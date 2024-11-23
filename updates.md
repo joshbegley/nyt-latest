@@ -1,3 +1,7 @@
+**2-Year-Old Gorilla Dies After Being Struck by Hydraulic Door at Zoo**\
+`A Calgary Zoo staff member mistakenly activated a door that struck the western lowland gorilla named Eyare, a report found.`\
+https://nytimes.com/2024/11/23/world/canada/gorilla-death-calgary-zoo.html
+
 **Rutgers extends 15-year losing streak to ranked foes after Illinois comeback**\
 `Rutgers' loss streak to AP top-25 ranked opponents is now 41 games. In the first 40, Rutgers lost by an average of 29.8 points.`\
 https://nytimes.com/athletic/5942440/2024/11/23/rutgers-illinois-ranked-opponent-loss-streak-cfb/
