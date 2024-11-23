@@ -1,3 +1,7 @@
+**Hannah Hidalgo, Notre Dame overpower USC in top-10 matchup**\
+`USC appeared overmatched by the Irish, falling behind early and losing contact in the fourth quarter as Notre Dame won 74-61.`\
+https://nytimes.com/athletic/5942754/2024/11/23/notre-dame-usc-result-score-takeaways/
+
 **Climate Talks Forge a Deal on Money After a Bitter Fight**\
 `The financing plan, which calls for $300 billion per year in support for developing nations, was immediately assailed as inadequate by a string of delegates.`\
 https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
