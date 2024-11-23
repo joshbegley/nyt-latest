@@ -1,3 +1,7 @@
+**George Russell takes pole at the Las Vegas Grand Prix**\
+`The Mercedes driver converted three terrific practices into pole position. `\
+https://nytimes.com/athletic/5941819/2024/11/23/george-russell-f1-las-vegas-gp-pole/
+
 **Duke outlasts Arizona's physicality in top-25 matchup**\
 `If Duke hadn’t lost in the fashion it did against Kentucky, there’s no telling if it would’ve been able to match Arizona’s physicality.`\
 https://nytimes.com/athletic/5941726/2024/11/23/duke-arizona-score-result/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5940997/2024/11/23/13-insights-fantasy-football-wee
 `In a starkly unfiltered press conference on Friday, Guardiola got his point of view across like only he can - and he appeared re-energised`\
 https://nytimes.com/athletic/5941179/2024/11/23/pep-guardiola-press-conference-contract-klopp/
 
+**Ghost Town: Visiting Swindon to find out the truth about Ian Holloway and the spirits**\
+`Holloway says staff who work at Beversbrook Sports and Community facility in Wiltshire have CCTV footage of strange, unexplainable events`\
+https://nytimes.com/athletic/5940396/2024/11/23/ian-holloway-swindon-supernatural/
+
 **Football's chequered history of half-time entertainment: Punch-ups, cheerleaders and booing The Shamen**\
 `Bored at half-time? Wish there was some entertainment? Be careful what you wish for`\
 https://nytimes.com/athletic/5929213/2024/11/23/football-half-time-entertainment/
-
-**The rise of football's arrival ’fits**\
-`Football is following in the footsteps of U.S. Sports in showcasing its players' creative outfits… but not in the tunnel`\
-https://nytimes.com/athletic/5940350/2024/11/23/football-fits-arrival-koune-konate-fashion/
-
-**Vieira's reputation as a manager has taken a knock. Does he have point to prove at Genoa?**\
-`The former Arsenal and France midfielder is the new man in charge at Genoa in Serie A, charged with salvaging their season`\
-https://nytimes.com/athletic/5938510/2024/11/23/patrick-vieira-genoa-manager-future/
 
