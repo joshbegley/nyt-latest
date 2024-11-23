@@ -1,3 +1,7 @@
+**Franz Wagner and the Magic take pride in being 'physical' and it has them rolling**\
+`Without All-Star Paolo Banchero for the past month, Orlando won't go away in the East.`\
+https://nytimes.com/athletic/5940092/2024/11/23/franz-wagner-orlando-magic-nba/
+
 **F.B.I. Agents Investigate Use of Fake Donors in N.Y. Assembly Race**\
 `The inquiry follows a New York Times report questioning the validity of more than $162,000 in matching funds given to Dao Yin, a Democrat of Queens.`\
 https://nytimes.com/2024/11/23/nyregion/dao-yin-investigation-donors.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941726/2024/11/23/duke-arizona-score-result/
 **One Dead in U.S. Listeria Outbreak Tied to Ready-to-Eat Meat and Poultry**\
 `Officials have linked 11 listeria cases since October 2021 to items from Yu Shang Food, which is recalling more than 72,000 pounds of products.`\
 https://nytimes.com/2024/11/23/us/listeria-death-yushang-recall.html
-
-**Trump Chooses New York Doctor to Be Next U.S. Surgeon General**\
-`Dr. Janette Nesheiwat is a medical director for a chain of urgent care clinics. Her sister served as an adviser in the first Trump administration.`\
-https://nytimes.com/2024/11/23/us/politics/janette-nesheiwat-surgeon-general.html
 
