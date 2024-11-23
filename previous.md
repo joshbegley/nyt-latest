@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/weldon-cdc
 https://nytimes.com/athletic/5941635/2024/11/22/joel-embiid-injury-update-sixers/
 
 **Yankees non-tender 2 players; here's what it means for the club's 2025 payroll**\
-`As the Yankees look to re-sign Juan Soto, they made some moves on Friday to provide some financial flexibility.`\
+`As the Yankees look to re-sign Juan Soto, they made moves Friday to provide some financial flexibility.`\
 https://nytimes.com/athletic/5941391/2024/11/22/yankees-non-tender-jon-berti-tim-mayza-2025-payroll/
 
 **Labor Secretary Pick Is Rep. Lori Chavez-DeRemer of Oregon**\
