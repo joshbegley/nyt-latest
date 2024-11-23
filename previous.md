@@ -1,3 +1,7 @@
+**Football's chequered history of half-time entertainment: Punch-ups, cheerleaders and booing The Shamen**\
+`Bored at half-time? Wish there was some entertainment? Be careful what you wish for`\
+https://nytimes.com/athletic/5929213/2024/11/23/football-half-time-entertainment/
+
 **The rise of football's arrival ’fits**\
 `Football is following in the footsteps of U.S. Sports in showcasing its players' creative outfits… but not in the tunnel`\
 https://nytimes.com/athletic/5940350/2024/11/23/football-fits-arrival-koune-konate-fashion/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/world/europe/poland-law-justice-us-trump.html
 **Man City vs Spurs preview, odds, prediction as slumping City hope to get back on track**\
 `Manchester City have lost four in a row, a streak which is unheard of in the Pep Guardiola era. Can they end that skid against Spurs?`\
 https://nytimes.com/athletic/5940851/2024/11/23/manchester-city-tottenham-preview-odds-prediction/
-
-**Indiana at Ohio State: How to watch, picks, odds for Big Ten, top-5 showdown**\
-`Ohio State takes on undefeated Indiana in a massive game in the CFP race. The Buckeyes are huge favorites at home.`\
-https://nytimes.com/athletic/5938386/2024/11/23/indiana-ohio-state-how-to-watch-picks-odds/
 

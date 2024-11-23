@@ -1,3 +1,7 @@
+**Football's chequered history of half-time entertainment: Punch-ups, cheerleaders and booing The Shamen**\
+`Bored at half-time? Wish there was some entertainment? Be careful what you wish for`\
+https://nytimes.com/athletic/5929213/2024/11/23/football-half-time-entertainment/
+
 **The rise of football's arrival ’fits**\
 `Football is following in the footsteps of U.S. Sports in showcasing its players' creative outfits… but not in the tunnel`\
 https://nytimes.com/athletic/5940350/2024/11/23/football-fits-arrival-koune-konate-fashion/
