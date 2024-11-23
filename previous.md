@@ -1,3 +1,7 @@
+**Auston Matthews returns to ice, discusses mysterious injury for first time**\
+`Matthews skated on his own ahead of Leafs practice Saturday. It was his first time on the ice since Nov. 10.`\
+https://nytimes.com/athletic/5942404/2024/11/23/maple-leafs-auston-matthews-injury-4/
+
 **The Briefing: Man City 0 Tottenham 4 - Maddison's perfect birthday, what's going wrong for Guardiola's team?**\
 `Tottenham ran amok against champions Manchester City - The Athletic analyses the talking point from a fascinating match at the Etihad`\
 https://nytimes.com/athletic/5931849/2024/11/23/manchester-city-0-tottenham-4-guardiola-postecoglou-maddison/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942206/2024/11/23/barcelona-alexia-putellas-injury
 **Arsenal 3 Nottingham Forest 0 - Nwaneri's first league goal and the Odegaard effect**\
 `Analysis of Arsenal's Premier League victory over Nottingham Forest`\
 https://nytimes.com/athletic/5931799/2024/11/23/arsenal-nottingham-forest-nwaneri-highlights/
-
-**Down About the Election? There Is a Speech I Want You to Read.**\
-`Frederick Douglass knew what to do when faced with Jim Crow.`\
-https://nytimes.com/2024/11/23/opinion/election-frederick-douglass.html
 
