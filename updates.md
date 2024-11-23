@@ -1,3 +1,7 @@
+**F1 Las Vegas Grand Prix odds: Ferrari's Sainz, Leclerc favored after qualifying**\
+`Max Verstappen has fallen behind Lando Norris and Charles Leclerc in the odds to win the F1 Las Vegas Grand Prix.`\
+https://nytimes.com/athletic/5935402/2024/11/23/f1-las-vegas-grand-prix-2024-odds-verstappen-norris-leclerc/
+
 **Nuno hopeful Gibbs-White, Anderson will return for Ipswich**\
 `Nuno Espirito Santo hopes Morgan Gibbs-White and Elliot Anderson will be fit to face Ipswich Town next weekend.`\
 https://nytimes.com/athletic/5942344/2024/11/23/morgan-gibbs-white-elliot-anderson-ipswich/

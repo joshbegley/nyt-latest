@@ -1,3 +1,7 @@
+**Baleba wrongly sent off, says Hurzeler**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler claims Carlos Baleba was wrongly sent off in the 2-1 win at Bournemouth.`\
+https://nytimes.com/athletic/5942354/2024/11/23/brighton-head-coach-fabian-hurzeler-insists-carlos-baleba-was-wrongly-sent-off-in-bournemouth-win/
+
 **Nuno hopeful Gibbs-White, Anderson will return for Ipswich**\
 `Nuno Espirito Santo hopes Morgan Gibbs-White and Elliot Anderson will be fit to face Ipswich Town next weekend.`\
 https://nytimes.com/athletic/5942344/2024/11/23/morgan-gibbs-white-elliot-anderson-ipswich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942169/2024/11/23/steve-cooper-referee-frustration
 **How Scott Bessent Went From Democratic Donor to Trump Treasury Secretary Pick**\
 `The hedge fund investor predicted last year that President-elect Donald J. Trump’s political fortunes were on the rise.`\
 https://nytimes.com/2024/11/23/us/politics/scott-bessent-treasury-profile.html
-
-**Food Poisoning Kills 23 Children as South Africa Declares Emergency**\
-`The South African government said that nearly 900 people, many children, had fallen sick since September.`\
-https://nytimes.com/2024/11/23/world/africa/south-africa-food-poisoning-kills-children.html
 
