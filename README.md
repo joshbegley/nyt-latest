@@ -1,3 +1,7 @@
+**Royals trade Brady Singer to Reds for Jonathan India, Joey Wiemer**\
+`The Royals landed the 2020 NL Rookie of the Year for Singer, a durable starter whom Kansas City drafted in the first round in 2018.`\
+https://nytimes.com/athletic/5941558/2024/11/22/royals-reds-trade-brady-singer-reds-jonathan-india-joey-wiemer/
+
 **‘Glicked’ Fans Rejoice in Bloodshed and Broadway Songs**\
 `“Wicked” and “Gladiator II,” which opened on Friday, drew moviegoers who attended a double feature that emulated the rage over “Barbenheimer” last year.`\
 https://nytimes.com/2024/11/22/us/wicked-gladiator-release-glicked.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/us/politics/matt-gaetz-withdrawal-distraction.htm
 **Republicans Blocking Proposal to Narrow Part of a Surveillance Law**\
 `The second Trump administration appears likely to inherit broader powers to force American service providers to help a warrantless wiretapping program.`\
 https://nytimes.com/2024/11/22/us/politics/fisa-surveillance-bill-program.html
-
-**Ex-Treasurer in Arizona Pleads Guilty to Embezzling $38 Million**\
-`A former elected official for a small county used public money to renovate her ranch and buy at least 20 vehicles, including Cadillacs and an Airstream travel trailer, the Justice Department said.`\
-https://nytimes.com/2024/11/22/us/elizabeth-gutfahr-guilty-embezzlement-arizona.html
 
