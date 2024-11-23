@@ -1,3 +1,7 @@
+**Murray named Djokovic's coach for Australian Open**\
+`Novak Djokovic has appointed his former rival and three-time Grand Slam champion Andy Murray as his new coach.`\
+https://nytimes.com/athletic/5942196/2024/11/23/andy-murray-novak-djokovic-coach/
+
 **Hot Take: Pumpkin Pie Is Good**\
 `Especially Melissa Clark’s brandied pumpkin pie, a New York Times Cooking classic with five stars and over 2,000 reviews.`\
 https://nytimes.com/2024/11/23/dining/pumpkin-pie-thanksgiving-recipes.html

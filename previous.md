@@ -1,3 +1,7 @@
+**Murray named Djokovic's coach for Australian Open**\
+`Novak Djokovic has appointed his former rival and three-time Grand Slam champion Andy Murray as his new coach.`\
+https://nytimes.com/athletic/5942196/2024/11/23/andy-murray-novak-djokovic-coach/
+
 **Hot Take: Pumpkin Pie Is Good**\
 `Especially Melissa Clark’s brandied pumpkin pie, a New York Times Cooking classic with five stars and over 2,000 reviews.`\
 https://nytimes.com/2024/11/23/dining/pumpkin-pie-thanksgiving-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5935402/2024/11/23/f1-las-vegas-grand-prix-2024-odd
 **Russini’s what I’m hearing: The day the Jets fell apart and the Broncos rallied, Belichick best fits**\
 `Plus, the former head coach the Jets should pursue, end of the Giants' Daniel Jones era, Darren Rizzi rises and clutch kicker misses.`\
 https://nytimes.com/athletic/5941684/2024/11/23/russinis-what-im-hearing-the-day-the-jets-fell-apart-and-the-broncos-rallied-belichick-best-fits/
-
-**Trump Plays Self-Defense With His Treasury Choice**\
-`Unlike some of his other cabinet picks, Bessent is a fairly conventional billionaire who should play well on Wall Street.`\
-https://nytimes.com/live/2024/11/19/opinion/thepoint/trump-treasury-bessent-wallstreet
 
