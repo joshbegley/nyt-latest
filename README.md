@@ -8,7 +8,7 @@ https://nytimes.com/2024/11/22/nyregion/nypd-sex-crime-christopher-terranova.htm
 
 **Trump picks Scott Turner, a little-known official from his first term, to lead HUD.**\
 `By Glenn Thrush`\
-https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/scott-turner-hud-trump
+https://nytimes.com/2024/11/22/us/politics/scott-turner-hud-trump.html
 
 **Former Rangers manager Chris Woodward returns to Dodgers' staff as first-base coach**\
 `Woodward returned to the Dodgers as a senior advisor last season after four seasons managing the Rangers.`\
