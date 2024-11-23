@@ -1,3 +1,11 @@
+**Bulls get win, but Patrick Williams out indefinitely with foot inflammation**\
+`Left foot inflammation caused Williams to miss his second straight contest Friday, a Bulls win against the Atlanta Hawks.`\
+https://nytimes.com/athletic/5941727/2024/11/22/patrick-williams-chicago-bulls-foot-injury/
+
+**Cubs release Mike Tauchman and Nick Madrigal as roster turnover continues**\
+`The Cubs also tendered arbitration-level contracts to Justin Steele, Eli Morgan, Nate Pearson and Isaac Paredes.`\
+https://nytimes.com/athletic/5941763/2024/11/22/cubs-release-mike-tauchman-nick-madrigal/
+
 **Sebastian Gorka to Return to White House as Adviser**\
 `In a statement, Donald J. Trump lauded the firebrand conservative commentator as a “tireless advocate” for his agenda. There was no mention that Mr. Gorka had been forced out of the Trump administration in 2017.`\
 https://nytimes.com/2024/11/22/us/politics/sebastian-gorka-adviser.html

@@ -1,3 +1,11 @@
+**Bulls get win, but Patrick Williams out indefinitely with foot inflammation**\
+`Left foot inflammation caused Williams to miss his second straight contest Friday, a Bulls win against the Atlanta Hawks.`\
+https://nytimes.com/athletic/5941727/2024/11/22/patrick-williams-chicago-bulls-foot-injury/
+
+**Cubs release Mike Tauchman and Nick Madrigal as roster turnover continues**\
+`The Cubs also tendered arbitration-level contracts to Justin Steele, Eli Morgan, Nate Pearson and Isaac Paredes.`\
+https://nytimes.com/athletic/5941763/2024/11/22/cubs-release-mike-tauchman-nick-madrigal/
+
 **Law: Jonathan India, Brady Singer trade could help both teams**\
 `India's on-base skills could benefit the Royals, while the Reds needed to trade from their position-player depth to get some pitching.`\
 https://nytimes.com/athletic/5941706/2024/11/22/reds-royals-jonathan-india-brady-singer-trade-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/22/us/politics/sebastian-gorka-adviser.html
 **Alice Brock, Restaurant Owner Made Famous by a Song, Dies at 83**\
 `Arlo Guthrie’s antiwar staple “Alice’s Restaurant” was inspired by a Thanksgiving Day visit to her diner in western Massachusetts.`\
 https://nytimes.com/2024/11/22/arts/music/alice-brock-dead.html
-
-**Reacts Like a Superfan**\
-`Ryan McCarty’s themeless puzzle is a crowd-pleaser.`\
-https://nytimes.com/2024/11/22/crosswords/daily-puzzle-2024-11-23.html
-
-**Trump Chooses Dr. David Weldon, a Former Congressman, to Lead the C.D.C.**\
-`In selecting a doctor who is skeptical of vaccine safety, the president-elect is emphasizing his commitment to reforming the role of federal health agencies in radical ways.`\
-https://nytimes.com/2024/11/22/health/weldon-cdc.html
 
