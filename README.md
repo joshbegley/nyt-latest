@@ -1,3 +1,7 @@
+**Good vibes return to Michigan Stadium: Takeaways from a dominant win over Northwestern**\
+`With five-star quarterback Bryce Underwood in attendance, Michigan picked up win No. 6 in impressive fashion. `\
+https://nytimes.com/athletic/5942813/2024/11/23/michigan-northwestern-bryce-underwood-bowl-eligible/
+
 **Owners of Colorado Funeral Home Admit to Abusing Nearly 200 Corpses**\
 `Jon and Carie Hallford pleaded guilty to corpse abuse after dozens of decaying bodies were found at their funeral home.`\
 https://nytimes.com/2024/11/23/us/colorado-funeral-home-guilty-corpse-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942440/2024/11/23/rutgers-illinois-ranked-opponent
 **Fantasy football rankings Week 12: Sleepers, projections, starts, Bo Nix, Rome Odunze**\
 `In this bye-heavy week, Jake Ciely offers detailed game breakdowns, rankings, sleepers and more to help maximize your Week 12 lineup.`\
 https://nytimes.com/athletic/5933388/2024/11/23/fantasy-football-rankings-week-12-sleepers-projections-starts-bo-nix-rome-odunze/
-
-**Trump Transition: Trump Names Agriculture Secretary, Rounding Out Main Cabinet Picks**\
-``\
-https://nytimes.com/live/2024/11/23/us/trump-news
 
