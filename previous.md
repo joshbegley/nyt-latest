@@ -1,3 +1,7 @@
+**With F1 Academy seat in 2025, Alba Hurup Larsen's swift motorsports ascent continues**\
+`The 15-year-old Danish prodigy went from lockdown go-karter to F1 Academy driver in just a few short years. `\
+https://nytimes.com/athletic/5941780/2024/11/23/f1-academy-alba-hurup-larsen-kevin-magnussen/
+
 **So Many Days Lost at the Doctor’s Office**\
 `Medical care can be wearying and time-consuming, especially for seniors. Researchers are beginning to quantify the burdens.`\
 https://nytimes.com/2024/11/23/health/elderly-health-appointments-burdens.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942034/2024/11/23/carlo-ancelotti-confident-on-kyl
 **Why Broncos believe Bo Nix's recent surge is 'just the tip of the iceberg'**\
 `The rookie QB has been one of the NFL's best passers against the blitz the past month, evidence of his growth in identifying defenses.`\
 https://nytimes.com/athletic/5940567/2024/11/23/broncos-rookie-qb-bo-nix-offense/
-
-**Where You Should Donate This Holiday Season**\
-`Announcing the return of Opinion’s annual giving guide.`\
-https://nytimes.com/2024/11/23/opinion/charity-holiday-gift-giving-guide.html
 

@@ -1,3 +1,7 @@
+**With F1 Academy seat in 2025, Alba Hurup Larsen's swift motorsports ascent continues**\
+`The 15-year-old Danish prodigy went from lockdown go-karter to F1 Academy driver in just a few short years. `\
+https://nytimes.com/athletic/5941780/2024/11/23/f1-academy-alba-hurup-larsen-kevin-magnussen/
+
 **So Many Days Lost at the Doctor’s Office**\
 `Medical care can be wearying and time-consuming, especially for seniors. Researchers are beginning to quantify the burdens.`\
 https://nytimes.com/2024/11/23/health/elderly-health-appointments-burdens.html
