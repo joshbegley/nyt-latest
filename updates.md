@@ -1,3 +1,7 @@
+**Climate Talks Forge a Deal on Money After a Bitter Fight**\
+`The financing plan, which calls for $300 billion per year in support for developing nations, was assailed as inadequate by some delegates.`\
+https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
+
 **California Educator Is Charged With Molesting 8 Children**\
 `David Braff was first accused of misconduct years ago but has since held a series of school jobs. The authorities are investigating the possibility of additional victims.`\
 https://nytimes.com/2024/11/23/us/california-assistant-principal-sexual-misconduct.html
