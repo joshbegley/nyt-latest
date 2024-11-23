@@ -1,3 +1,7 @@
+**Down About the Election? There Is a Speech I Want You to Read.**\
+`Frederick Douglass knew what to do when faced with Jim Crow.`\
+https://nytimes.com/2024/11/23/opinion/election-frederick-douglass.html
+
 **Blue Man Group to End New York Run After Three Decades Off Broadway**\
 `The troupe is also closing its Chicago company, but continues to perform in Berlin, Boston, Las Vegas and, soon, Orlando.`\
 https://nytimes.com/2024/11/23/theater/blue-man-group-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942126/2024/11/23/bryce-underwood-tom-brady-michig
 **With F1 Academy seat in 2025, Alba Hurup Larsen's swift motorsports ascent continues**\
 `The 15-year-old Danish prodigy went from lockdown go-karter to F1 Academy driver in just a few short years. `\
 https://nytimes.com/athletic/5941780/2024/11/23/f1-academy-alba-hurup-larsen-kevin-magnussen/
-
-**College Football Playoff 2024 projections: Predicting the bracket with Week 13 underway**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
 
