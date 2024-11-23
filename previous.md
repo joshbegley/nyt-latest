@@ -1,3 +1,7 @@
+**Israel Is Not an I.C.C. Member. How Can the Court Prosecute Israeli Leaders?**\
+`The jurisdiction of the court in The Hague can extend beyond member states.`\
+https://nytimes.com/2024/11/22/world/middleeast/israel-icc-jurisdiction-explained.html
+
 **Emerging Details of Chinese Hack Leave U.S. Officials Increasingly Concerned**\
 `Leaders of the big telecommunications companies were summoned to the White House to discuss strategies for overhauling the security of the nation’s telecommunications networks amid growing alarm at the scope of a Chinese hack.`\
 https://nytimes.com/2024/11/22/us/politics/chinese-hack-telecom-white-house.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5941558/2024/11/22/royals-reds-trade-brady-singer-j
 **‘Glicked’ Fans Rejoice in Bloodshed and Broadway Songs**\
 `“Wicked” and “Gladiator II,” which opened on Friday, drew moviegoers who attended a double feature that emulated the rage over “Barbenheimer” last year.`\
 https://nytimes.com/2024/11/22/us/wicked-gladiator-release-glicked.html
-
-**Penny Trial Defense Shifts Focus From Choke to Sickle Cell and Drug Use**\
-`Lawyers for Daniel Penny, who is accused of choking Jordan Neely to death, called an expert who argued that a combination of factors led to Mr. Neely’s death.`\
-https://nytimes.com/2024/11/22/nyregion/daniel-penny-defense-jordan-neely.html
 
