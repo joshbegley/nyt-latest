@@ -1,3 +1,7 @@
+**Shape Up or Ship Out**\
+`Alex Eaton-Salners floats in with a precise Sunday construction.`\
+https://nytimes.com/2024/11/23/crosswords/daily-puzzle-2024-11-24.html
+
 **Ole Miss loses to Florida 17-24 as CFP chances slip away**\
 `Florida also clinched bowl eligibility with the win.`\
 https://nytimes.com/athletic/5942414/2024/11/23/florida-ole-miss-college-football-results-analysis/
