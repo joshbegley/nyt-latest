@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5942440/2024/11/23/rutgers-illinois-ranked-opponent
 `In this bye-heavy week, Jake Ciely offers detailed game breakdowns, rankings, sleepers and more to help maximize your Week 12 lineup.`\
 https://nytimes.com/athletic/5933388/2024/11/23/fantasy-football-rankings-week-12-sleepers-projections-starts-bo-nix-rome-odunze/
 
-**Trump Transition Live Updates: Trump Picks an Agriculture Secretary and Completes Naming His Cabinet**\
+**Trump Transition Live Updates: Trump Names Agriculture Secretary, Rounding Out Main Cabinet Picks**\
 ``\
 https://nytimes.com/live/2024/11/23/us/trump-news
 
