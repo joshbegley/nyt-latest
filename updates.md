@@ -1,3 +1,23 @@
+**F.B.I. Agents Investigate Use of Fake Donors in N.Y. Assembly Race**\
+`The inquiry follows a New York Times report questioning the validity of more than $162,000 in matching funds given to Dao Yin, a Democrat of Queens.`\
+https://nytimes.com/2024/11/23/nyregion/dao-yin-investigation-donors.html
+
+**Dining Sheds Changed the N.Y.C. Food Scene. Now Watch Them Disappear.**\
+`Street side sheds and shanties helped keep restaurants afloat during the worst of the coronavirus pandemic. Now, for better or worse, new city rules are forcing their removal.`\
+https://nytimes.com/interactive/2024/11/23/nyregion/nyc-outdoor-dining-sheds-removal.html
+
+**Can the Gilgo Beach Suspect’s House Become a ‘Nice Starter Home’?**\
+`Asa Ellerup, who is married to Rex Heuermann, the defendant in the Gilgo Beach murders, stuck it out despite destructive searches and gawkers. Now she is selling and heading to South Carolina.`\
+https://nytimes.com/2024/11/23/nyregion/gilgo-beach-heuermann-house-for-sale.html
+
+**How a Pop Pianist Spends Her Sundays**\
+`Chloe Flower, who performed with Cardi B at the Grammy Awards, indulges in luxury shopping, a foot massage and three-hour dinners with loved ones on her “me” day.`\
+https://nytimes.com/2024/11/23/nyregion/chloe-flower-piano.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/23/crosswords/spelling-bee-forum.html
+
 **Andrew Wiggins is rolling as Warriors advance to NBA Cup knockout round**\
 `Wiggins put up 30 points in Golden State's 112-108 win in New Orleans, and the Warriors clinched Group C of the NBA Cup.`\
 https://nytimes.com/athletic/5941733/2024/11/23/andrew-wiggins-warriors-nba-cup-knockout-round/
