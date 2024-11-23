@@ -1,3 +1,7 @@
+**Astros' Jake Meyers survived the tender deadline, but is he on borrowed time in Houston?**\
+`Based on GM Dana Brown's recent comments, the Astros' decision to tender a contract to Meyers doesn't mean he'll have a prominent role.`\
+https://nytimes.com/athletic/5941481/2024/11/22/astros-tender-contract-jake-meyers-plans/
+
 **Florida’s Top Health Official Urges an End to Putting Fluoride in Water**\
 `The recommendation followed similar pushes from Robert F. Kennedy Jr., Donald J. Trump’s pick to lead the Department of Health and Human Services.`\
 https://nytimes.com/2024/11/22/us/politics/florida-fluoride-water-rfk-jr-ladapo.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/11/22/us/politics/russell-vought-office-of-management-a
 **Chiefs signing D.J. Humphries to boost offensive line depth**\
 `Kansas City added Humphries with Wanya Morris battling a knee injury and the rookie Kingsley Suamataia's growing pains.`\
 https://nytimes.com/athletic/5941471/2024/11/22/chiefs-sign-d-j-humphries-offensive-line/
-
-**Blue Jays non-tender former closer Jordan Romano, creating bigger hole in bullpen**\
-`Romano was a standout closer from 2021-23 but struggled with injuries in 2024.`\
-https://nytimes.com/athletic/5938435/2024/11/22/blue-jays-jordan-romano-non-tender/
 
