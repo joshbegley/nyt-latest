@@ -1,3 +1,23 @@
+**F.B.I. Agents Investigate Use of Fake Donors in N.Y. Assembly Race**\
+`The inquiry follows a New York Times report questioning the validity of more than $162,000 in matching funds given to Dao Yin, a Democrat of Queens.`\
+https://nytimes.com/2024/11/23/nyregion/dao-yin-investigation-donors.html
+
+**Dining Sheds Changed the N.Y.C. Food Scene. Now Watch Them Disappear.**\
+`Street side sheds and shanties helped keep restaurants afloat during the worst of the coronavirus pandemic. Now, for better or worse, new city rules are forcing their removal.`\
+https://nytimes.com/interactive/2024/11/23/nyregion/nyc-outdoor-dining-sheds-removal.html
+
+**Can the Gilgo Beach Suspect’s House Become a ‘Nice Starter Home’?**\
+`Asa Ellerup, who is married to Rex Heuermann, the defendant in the Gilgo Beach murders, stuck it out despite destructive searches and gawkers. Now she is selling and heading to South Carolina.`\
+https://nytimes.com/2024/11/23/nyregion/gilgo-beach-heuermann-house-for-sale.html
+
+**How a Pop Pianist Spends Her Sundays**\
+`Chloe Flower, who performed with Cardi B at the Grammy Awards, indulges in luxury shopping, a foot massage and three-hour dinners with loved ones on her “me” day.`\
+https://nytimes.com/2024/11/23/nyregion/chloe-flower-piano.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/23/crosswords/spelling-bee-forum.html
+
 **Andrew Wiggins is rolling as Warriors advance to NBA Cup knockout round**\
 `Wiggins put up 30 points in Golden State's 112-108 win in New Orleans, and the Warriors clinched Group C of the NBA Cup.`\
 https://nytimes.com/athletic/5941733/2024/11/23/andrew-wiggins-warriors-nba-cup-knockout-round/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/23/us/listeria-death-yushang-recall.html
 **Trump Chooses New York Doctor to Be Next U.S. Surgeon General**\
 `Dr. Janette Nesheiwat is a medical director for a chain of urgent care clinics. Her sister served as an adviser in the first Trump administration.`\
 https://nytimes.com/2024/11/23/us/politics/janette-nesheiwat-surgeon-general.html
-
-**Corrections: Nov. 23, 2024**\
-`Corrections that appeared in print on Saturday, Nov. 23, 2024.`\
-https://nytimes.com/2024/11/23/pageoneplus/corrections-nov-23-2024.html
-
-**Ruben Amorim's first Man Utd press conference: What he said and what it means**\
-`Despite Amorim’s first encounter with assembled media being a pre-match press conference, no one asked about Sunday’s opponents Ipswich`\
-https://nytimes.com/athletic/5934564/2024/11/23/amorim-first-united-press-conference-analsyed/
-
-**13 insights fantasy football managers need to know ahead of Week 12**\
-`Among Theo Gremminger's latest fantasy football insights, he says Tee Higgins is sitting in the catbird seat of the 2025 free agency class.`\
-https://nytimes.com/athletic/5940997/2024/11/23/13-insights-fantasy-football-week-12/
-
-**Pep Guardiola speaks his mind: ‘I’m sorry guys, I won six Premier Leagues’**\
-`In a starkly unfiltered press conference on Friday, Guardiola got his point of view across like only he can - and he appeared re-energised`\
-https://nytimes.com/athletic/5941179/2024/11/23/pep-guardiola-press-conference-contract-klopp/
-
-**Ghost Town: Visiting Swindon to find out the truth about Ian Holloway and the spirits**\
-`Holloway says staff who work at Beversbrook Sports and Community facility in Wiltshire have CCTV footage of strange, unexplainable events`\
-https://nytimes.com/athletic/5940396/2024/11/23/ian-holloway-swindon-supernatural/
 
