@@ -24,7 +24,7 @@ https://nytimes.com/athletic/5941671/2024/11/22/mlb-top-non-tender-free-agents/
 
 **Sebastian Gorka to return to the White House as an adviser.**\
 `In a statement, Donald J. Trump lauded the firebrand conservative commentator as a “tireless advocate” for his agenda. There was no mention that Mr. Gorka had been forced out of the Trump administration in 2017.`\
-https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/sebastian-gorka-to-return-to-the-white-house-as-an-adviser
+https://nytimes.com/2024/11/22/us/politics/sebastian-gorka-to-return-to-the-white-house-as-an-adviser.html
 
 **Alice Brock, Restaurant Owner Made Famous by a Song, Dies at 83**\
 `Arlo Guthrie’s antiwar staple “Alice’s Restaurant” was inspired by a Thanksgiving Day visit to her diner in western Massachusetts.`\
