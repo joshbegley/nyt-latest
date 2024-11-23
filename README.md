@@ -11,7 +11,7 @@ https://nytimes.com/2024/11/22/us/politics/florida-fluoride-water-rfk-jr-ladapo.
 https://nytimes.com/2024/11/22/health/fda-commissioner-marty-makary-rfkjr.html
 
 **'I want to have points': Yakov Trenin has been as advertised for Wild, except for scoring**\
-`Trenin, who has a single point in 19 games this season, is trying to 'stay positive' as he tries to break his slump.
+`Trenin, who has a single point in 19 games this season, is trying to "stay positive" as he tries to break his slump.
 `\
 https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
 
