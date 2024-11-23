@@ -1,3 +1,7 @@
+**Madeleine Riffaud, ‘the Girl Who Saved Paris,’ Dies at 100**\
+`Humiliated by a Nazi officer at age 15, she joined the French Resistance. By the time she was 20, she had killed a German soldier, survived torture and captured a supply train.`\
+https://nytimes.com/2024/11/23/world/europe/madeleine-riffaud-dead.html
+
 **O'Neil revels in Fulham win: 'One of my favourite afternoons at Wolves'**\
 `Gary O’Neil says his Wolverhampton Wanderers&#8217; 4-1 victory at Fulham was one of his favourite days as head coach of the club.`\
 https://nytimes.com/athletic/5942368/2024/11/23/gary-oneil-fulham-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/opinion/election-frederick-douglass.html
 **Blue Man Group to End New York Run After Three Decades Off Broadway**\
 `The troupe is also closing its Chicago company, but continues to perform in Berlin, Boston, Las Vegas and, soon, Orlando.`\
 https://nytimes.com/2024/11/23/theater/blue-man-group-closing.html
-
-**Cooper frustrated by Madley decisions in Chelsea loss**\
-`Leicester City manager Steve Cooper has criticised the standard of refereeing in the Premier League after his side fell to a controversial 2-1 home defeat to Chelsea.`\
-https://nytimes.com/athletic/5942169/2024/11/23/steve-cooper-referee-frustration/
 
