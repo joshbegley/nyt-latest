@@ -1,3 +1,7 @@
+**Blue Man Group to End New York Run After Three Decades Off Broadway**\
+`The troupe is also closing its Chicago company, but continues to perform in Berlin, Boston, Las Vegas and, soon, Orlando.`\
+https://nytimes.com/2024/11/23/theater/blue-man-group-closing.html
+
 **Cooper frustrated by Madley decisions in Chelsea loss**\
 `Leicester City manager Steve Cooper has criticised the standard of refereeing in the Premier League after his side fell to a controversial 2-1 home defeat to Chelsea.`\
 https://nytimes.com/athletic/5942169/2024/11/23/steve-cooper-referee-frustration/
