@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
 `\
 https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
 
+**'I want to have points': Yakov Trenin has been as advertised for Wild, except for scoring**\
+`Trenin, who has a single point in 19 games this season, is trying to "stay positive" as he tries to break his slump.
+`\
+https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
+
 **Yankees non-tender 2 players; here's what it means for the club's 2025 payroll**\
 `As the Yankees look to re-sign Juan Soto, they made some moves on Friday to provide some financial flexibility.`\
 https://nytimes.com/athletic/5941391/2024/11/22/yankees-non-tender-jon-berti-tim-mayza-2025-payroll/
