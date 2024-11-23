@@ -1,3 +1,15 @@
+**Scenes From the Storm That Drenched the Pacific Northwest**\
+`The storm, driven by the season’s first major atmospheric river, inundated the region, killing at least two people and causing widespread power outages.`\
+https://nytimes.com/2024/11/23/us/storm-rain-atmospheric-river-california.html
+
+**SMU routs Virginia, clinches spot in ACC Championship Game**\
+`The Mustangs will take on either Miami or Clemson in the league title game in Charlotte, N.C., on Dec. 7.`\
+https://nytimes.com/athletic/5942407/2024/11/23/smu-acc-championship-game-virginia/
+
+**Auston Matthews returns to ice, discusses mysterious injury for first time**\
+`Matthews skated on his own ahead of Leafs practice Saturday. It was his first time on the ice since Nov. 10.`\
+https://nytimes.com/athletic/5942404/2024/11/23/maple-leafs-auston-matthews-injury-4/
+
 **Trump Transition Live Updates: Trump Picks America First Leader as Agriculture Secretary**\
 ``\
 https://nytimes.com/live/2024/11/23/us/trump-news
