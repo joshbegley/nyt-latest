@@ -1,3 +1,7 @@
+**So Many Days Lost at the Doctor’s Office**\
+`Medical care can be wearying and time-consuming, especially for seniors. Researchers are beginning to quantify the burdens.`\
+https://nytimes.com/2024/11/23/health/elderly-health-appointments-burdens.html
+
 **Inter Miami to appoint Mascherano as new head coach**\
 `Mascherano also played with Miami's Sergio Busquets and Jordi Alba during his days at Barcelona.`\
 https://nytimes.com/athletic/5940549/2024/11/23/javier-mascherano-inter-miami-coach/
