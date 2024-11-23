@@ -1,8 +1,12 @@
+**Wild's Kirill Kaprizov out with lower-body injury, to be evaluated Sunday: Source**\
+`Kaprizov will be examined by the team's orthopedist on Sunday in Minnesota.`\
+https://nytimes.com/athletic/5942579/2024/11/23/kirill-kaprizov-wild-injury/
+
 **Shape Up or Ship Out**\
 `Alex Eaton-Salners floats in with a precise Sunday construction.`\
 https://nytimes.com/2024/11/23/crosswords/daily-puzzle-2024-11-24.html
 
-**Ole Miss loses to Florida 17-24 as CFP chances slip away**\
+**Ole Miss loses to Florida 24-17 as CFP chances slip away**\
 `Florida also clinched bowl eligibility with the win.`\
 https://nytimes.com/athletic/5942414/2024/11/23/florida-ole-miss-college-football-results-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931849/2024/11/23/manchester-city-0-tottenham-4-gu
 **Madeleine Riffaud, ‘the Girl Who Saved Paris,’ Dies at 100**\
 `Humiliated by a Nazi officer at age 15, she joined the French Resistance. By the time she was 20, she had killed a German soldier, survived torture and captured a supply train.`\
 https://nytimes.com/2024/11/23/world/europe/madeleine-riffaud-dead.html
-
-**O'Neil revels in Fulham win: 'One of my favourite afternoons at Wolves'**\
-`Gary O’Neil says his Wolverhampton Wanderers&#8217; 4-1 victory at Fulham was one of his favourite days as head coach of the club.`\
-https://nytimes.com/athletic/5942368/2024/11/23/gary-oneil-fulham-win/
 
