@@ -1,3 +1,7 @@
+**Bryce Underwood's meetings with Tom Brady helped flip QB to Michigan**\
+`Ton Brady became a great resource for the young QB, who grew up a Michigan fan and is from Belleville, Mich.`\
+https://nytimes.com/athletic/5942126/2024/11/23/bryce-underwood-tom-brady-michigan-commitment-flip/
+
 **With F1 Academy seat in 2025, Alba Hurup Larsen's swift motorsports ascent continues**\
 `The 15-year-old Danish prodigy went from lockdown go-karter to F1 Academy driver in just a few short years. `\
 https://nytimes.com/athletic/5941780/2024/11/23/f1-academy-alba-hurup-larsen-kevin-magnussen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942009/2024/11/23/marta-orlando-pride-nwsl-champio
 **Ancelotti confident on Mbappe improvement: 'His quality is enormous'**\
 `Carlo Ancelotti is confident that Kylian Mbappe&#8217;s form will improve for Real Madrid.`\
 https://nytimes.com/athletic/5942034/2024/11/23/carlo-ancelotti-confident-on-kylian-mbappe-improvement-his-quality-is-enormous/
-
-**Why Broncos believe Bo Nix's recent surge is 'just the tip of the iceberg'**\
-`The rookie QB has been one of the NFL's best passers against the blitz the past month, evidence of his growth in identifying defenses.`\
-https://nytimes.com/athletic/5940567/2024/11/23/broncos-rookie-qb-bo-nix-offense/
 

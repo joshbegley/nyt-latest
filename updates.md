@@ -1,3 +1,7 @@
+**Bryce Underwood's meetings with Tom Brady helped flip QB to Michigan**\
+`Ton Brady became a great resource for the young QB, who grew up a Michigan fan and is from Belleville, Mich.`\
+https://nytimes.com/athletic/5942126/2024/11/23/bryce-underwood-tom-brady-michigan-commitment-flip/
+
 **With F1 Academy seat in 2025, Alba Hurup Larsen's swift motorsports ascent continues**\
 `The 15-year-old Danish prodigy went from lockdown go-karter to F1 Academy driver in just a few short years. `\
 https://nytimes.com/athletic/5941780/2024/11/23/f1-academy-alba-hurup-larsen-kevin-magnussen/
