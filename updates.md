@@ -43,6 +43,11 @@ https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
 `\
 https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
 
+**'I want to have points': Yakov Trenin has been as advertised for Wild, except for scoring**\
+`Trenin, who has a single point in 19 games this season, is trying to 'stay positive' as he tries to break his slump.
+`\
+https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
+
 **Astros' Jake Meyers survived the tender deadline, but is he on borrowed time in Houston?**\
 `Based on GM Dana Brown's recent comments, the Astros' decision to tender a contract to Meyers doesn't mean he'll have a prominent role.`\
 https://nytimes.com/athletic/5941481/2024/11/22/astros-tender-contract-jake-meyers-plans/
