@@ -1,3 +1,7 @@
+**Mavericks appear to have answered brutal wake-up call, winning fourth straight**\
+`A defensive lapse sent the team spiraling last week, but Dallas has yet to lose since, including Friday's resilient win over Denver.`\
+https://nytimes.com/athletic/5941827/2024/11/23/mavericks-win-streak-denver-nuggets/
+
 **Sectarian Violence Kills Least 25 in Northwest Pakistan**\
 `The clashes overnight between Sunni and Shiite tribes in Khyber Pakhtunkhwa Province came a day after gunmen ambushed a convey of vehicles in the area.`\
 https://nytimes.com/2024/11/23/world/asia/pakistan-sectarian-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/opinion/trump-election-flattery-business-cabinet.
 **One stat that sums up each NHL team's season at the quarter mark**\
 `What's the defining data point for your favorite team? Here are all 32 answers from The Athletic's NHL staff.`\
 https://nytimes.com/athletic/5938892/2024/11/23/nhl-stats-quarter-mark-season-2024/
-
-**Gift Ideas That Push Back the Darkness**\
-`Give a woman her life back, save a child’s life or help a child read, with my annual holiday giving guide.`\
-https://nytimes.com/2024/11/23/opinion/charity-holiday-gift-women-children-reading.html
 
