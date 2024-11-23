@@ -1,3 +1,7 @@
+**F1 Las Vegas Grand Prix odds: Ferrari's Charles Leclerc, Carlos Sainz favored after qualifying**\
+`Max Verstappen has fallen behind Lando Norris and Charles Leclerc in the odds to win the F1 Las Vegas Grand Prix.`\
+https://nytimes.com/athletic/5935402/2024/11/23/f1-las-vegas-grand-prix-2024-odds-verstappen-norris-leclerc/
+
 **Russini’s what I’m hearing: The day the Jets fell apart and the Broncos rallied, Belichick best fits**\
 `Plus, the former head coach the Jets should pursue, end of the Giants' Daniel Jones era, Darren Rizzi rises and clutch kicker misses.`\
 https://nytimes.com/athletic/5941684/2024/11/23/russinis-what-im-hearing-the-day-the-jets-fell-apart-and-the-broncos-rallied-belichick-best-fits/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/business/dealbook/bessent-lutnick-divestments.htm
 **Biden’s Chief Economist Processes the Election With ‘Confusion, Guilt’**\
 `Jared Bernstein, the chair of the White House Council of Economic Advisers, was a leading architect of “Bidenomics.”`\
 https://nytimes.com/2024/11/23/business/dealbook/jared-bernstein-bidenomics-economy.html
-
-**Three fans arrested for alleged racist chanting during El Clasico**\
-`Three fans allegedly responsible for racist chanting towards Barcelona players during last month’s El Clasico have been arrested.`\
-https://nytimes.com/athletic/5941985/2024/11/23/real-madrid-barcelona-el-clasico-arrests-racist/
 

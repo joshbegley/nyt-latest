@@ -1,3 +1,7 @@
+**Russini’s what I’m hearing: The day the Jets fell apart and the Broncos rallied, Belichick best fits**\
+`Plus, the former head coach the Jets should pursue, end of the Giants' Daniel Jones era, Darren Rizzi rises and clutch kicker misses.`\
+https://nytimes.com/athletic/5941684/2024/11/23/russinis-what-im-hearing-the-day-the-jets-fell-apart-and-the-broncos-rallied-belichick-best-fits/
+
 **Trump Plays Self-Defense With His Treasury Choice**\
 `Unlike some of his other cabinet picks, Bessent is a fairly conventional billionaire who should play well on Wall Street.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/trump-treasury-bessent-wallstreet
