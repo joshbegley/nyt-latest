@@ -1,3 +1,7 @@
+**Nebraska's 7-year bowl drought ends vs. struggling Wisconsin: What it means for Huskers, Badgers**\
+`The Huskers had been 0-8 with bowl eligibility on the line under Matt Rhule. Wisconsin lost its fourth straight. `\
+https://nytimes.com/athletic/5942694/2024/11/23/nebraska-football-wisconsin-score-takeaways/
+
 **Hannah Hidalgo, Notre Dame overpower USC in top-10 matchup**\
 `USC appeared overmatched by the Irish, falling behind early and losing contact in the fourth quarter as Notre Dame won 74-61.`\
 https://nytimes.com/athletic/5942754/2024/11/23/notre-dame-usc-result-score-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/us/politics/trump-agriculture-secretary.html
 **Takeaways from Georgia's win: Sluggish on the field but a good day on the Playoff front**\
 `Georgia didn't look great against UMass but could move up a few spots thanks to losses by Indiana and Ole Miss. `\
 https://nytimes.com/athletic/5942540/2024/11/23/georgia-umass-college-football-playoff/
-
-**Olof Mellberg to manage St. Louis City SC**\
-`The 47-year-old will replace Hackworth, the interim head coach, who will remain with the club in his previous role.`\
-https://nytimes.com/athletic/5942505/2024/11/23/olof-mellberg-st-louis-city-sc-mls/
 
