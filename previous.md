@@ -22,9 +22,9 @@ https://nytimes.com/athletic/5941709/2024/11/22/dodgers-chris-woodward-first-bas
 `Among players who hit the open market after getting non-tendered were a few former All-Stars and players drafted in the first round.`\
 https://nytimes.com/athletic/5941671/2024/11/22/mlb-top-non-tender-free-agents/
 
-**Sebastian Gorka to return to the White House as an adviser.**\
+**Sebastian Gorka to Return to White House as Adviser**\
 `In a statement, Donald J. Trump lauded the firebrand conservative commentator as a “tireless advocate” for his agenda. There was no mention that Mr. Gorka had been forced out of the Trump administration in 2017.`\
-https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/sebastian-gorka-to-return-to-the-white-house-as-an-adviser
+https://nytimes.com/2024/11/22/us/politics/sebastian-gorka-adviser.html
 
 **Alice Brock, Restaurant Owner Made Famous by a Song, Dies at 83**\
 `Arlo Guthrie’s antiwar staple “Alice’s Restaurant” was inspired by a Thanksgiving Day visit to her diner in western Massachusetts.`\
@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/22/arts/music/alice-brock-dead.html
 `Ryan McCarty’s themeless puzzle is a crowd-pleaser.`\
 https://nytimes.com/2024/11/22/crosswords/daily-puzzle-2024-11-23.html
 
-**Trump chooses Dr. David Weldon, a former congressman, to lead the C.D.C.**\
-`By Emily Baumgaertner and Teddy Rosenbluth`\
+**Trump Chooses Dr. David Weldon, a Former Congressman, to Lead the C.D.C.**\
+`In selecting a doctor who is skeptical of vaccine safety, the president-elect is emphasizing his commitment to reforming the role of federal health agencies in radical ways.`\
 https://nytimes.com/2024/11/22/health/weldon-cdc.html
 

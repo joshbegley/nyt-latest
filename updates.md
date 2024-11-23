@@ -1,3 +1,11 @@
+**Sebastian Gorka to Return to White House as Adviser**\
+`In a statement, Donald J. Trump lauded the firebrand conservative commentator as a “tireless advocate” for his agenda. There was no mention that Mr. Gorka had been forced out of the Trump administration in 2017.`\
+https://nytimes.com/2024/11/22/us/politics/sebastian-gorka-adviser.html
+
+**Trump Chooses Dr. David Weldon, a Former Congressman, to Lead the C.D.C.**\
+`In selecting a doctor who is skeptical of vaccine safety, the president-elect is emphasizing his commitment to reforming the role of federal health agencies in radical ways.`\
+https://nytimes.com/2024/11/22/health/weldon-cdc.html
+
 **Law: Jonathan India, Brady Singer trade could help both teams**\
 `India's on-base skills could benefit the Royals, while the Reds needed to trade from their position-player depth to get some pitching.`\
 https://nytimes.com/athletic/5941706/2024/11/22/reds-royals-jonathan-india-brady-singer-trade-analysis/
