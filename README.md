@@ -1,3 +1,7 @@
+**Former Rangers manager Chris Woodward returns to Dodgers' staff as first-base coach**\
+`Woodward returned to the Dodgers as a senior advisor last season after four seasons managing the Rangers.`\
+https://nytimes.com/athletic/5941709/2024/11/22/dodgers-chris-woodward-first-base-coach/
+
 **Seven intriguing new names on MLB's free-agent market after Friday's non-tender deadline**\
 `Among players who hit the open market after getting non-tendered were a few former All-Stars and players drafted in the first round.`\
 https://nytimes.com/athletic/5941671/2024/11/22/mlb-top-non-tender-free-agents/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/22/business/economy/labor-secretary-lori-chavez-dere
 **Israel Is Not an I.C.C. Member. How Can the Court Prosecute Israeli Leaders?**\
 `The jurisdiction of the court in The Hague can extend beyond member states.`\
 https://nytimes.com/2024/11/22/world/middleeast/israel-icc-jurisdiction-explained.html
-
-**Emerging Details of Chinese Hack Leave U.S. Officials Increasingly Concerned**\
-`Leaders of the big telecommunications companies were summoned to the White House to discuss strategies for overhauling the security of the nation’s telecommunications networks amid growing alarm at the scope of a Chinese hack.`\
-https://nytimes.com/2024/11/22/us/politics/chinese-hack-telecom-white-house.html
 
