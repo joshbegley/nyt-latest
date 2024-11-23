@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
 
+**'I want to have points': Yakov Trenin has been as advertised for Wild, except for scoring**\
+`Trenin, who has a single point in 19 games this season, is trying to "stay positive" as he tries to break his slump.
+`\
+https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
+
 **Zion Williamson, CAA parting ways: Sources**\
 `It is not immediately clear why Williamson and CAA are splitting.`\
 https://nytimes.com/athletic/5941622/2024/11/22/zion-williamson-caa-agency-part-ways/
