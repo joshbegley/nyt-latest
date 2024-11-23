@@ -1,3 +1,11 @@
+**NWSL commissioner gives update on NWSL expansion, youth development and more**\
+`Jessica Berman answered questions about expansion, youth development and more`\
+https://nytimes.com/athletic/5941460/2024/11/22/cincinnati-cleveland-denver-nwsl-expansion-finalists-jessica-berman/
+
+**Royals trade Brady Singer to Reds for Jonathan India, Joey Wiemer**\
+`The Royals landed the 2020 NL Rookie of the Year for Singer, a durable starter whom Kansas City drafted in the first round in 2018.`\
+https://nytimes.com/athletic/5941558/2024/11/22/royals-reds-trade-brady-singer-jonathan-india-joey-wiemer/
+
 **Royals trade Brady Singer to Reds for Jonathan India, Joey Wiemer**\
 `The Royals landed the 2020 NL Rookie of the Year for Singer, a durable starter whom Kansas City drafted in the first round in 2018.`\
 https://nytimes.com/athletic/5941558/2024/11/22/royals-reds-trade-brady-singer-reds-jonathan-india-joey-wiemer/
