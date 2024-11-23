@@ -12,7 +12,7 @@ https://nytimes.com/2024/11/22/health/fda-commissioner-marty-makary-rfkjr.html
 https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
 
 **NWSL commissioner gives update on NWSL expansion, youth development and more**\
-`Jessica Berman answered questions about expansion, youth development and more`\
+`Jessica Berman answered questions about expansion, youth development and more.`\
 https://nytimes.com/athletic/5941460/2024/11/22/cincinnati-cleveland-denver-nwsl-expansion-finalists-jessica-berman/
 
 **Royals trade Brady Singer to Reds for Jonathan India, Joey Wiemer**\
