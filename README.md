@@ -1,3 +1,7 @@
+**Russini’s what I’m hearing: The day the Jets fell apart and the Broncos rallied, Belichick best fits**\
+`Plus, the former head coach the Jets should pursue, end of the Giants' Daniel Jones era, Darren Rizzi rises and clutch kicker misses.`\
+https://nytimes.com/athletic/5941684/2024/11/23/russinis-what-im-hearing-the-day-the-jets-fell-apart-and-the-broncos-rallied-belichick-best-fits/
+
 **Trump Plays Self-Defense With His Treasury Choice**\
 `Unlike some of his other cabinet picks, Bessent is a fairly conventional billionaire who should play well on Wall Street.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/trump-treasury-bessent-wallstreet
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/business/dealbook/jared-bernstein-bidenomics-econ
 **Three fans arrested for alleged racist chanting during El Clasico**\
 `Three fans allegedly responsible for racist chanting towards Barcelona players during last month’s El Clasico have been arrested.`\
 https://nytimes.com/athletic/5941985/2024/11/23/real-madrid-barcelona-el-clasico-arrests-racist/
-
-**2 Books for Readers Who Don’t Care About Polite Company**\
-`A Japanese tale of “frustrated love and revenge,” and a visual history of bathrooms.`\
-https://nytimes.com/2024/11/23/books/read-like-wind-recommendations.html
 
