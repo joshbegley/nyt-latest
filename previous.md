@@ -23,7 +23,7 @@ https://nytimes.com/2024/11/22/arts/music/alice-brock-dead.html
 https://nytimes.com/2024/11/22/crosswords/daily-puzzle-2024-11-23.html
 
 **Trump chooses Dr. David Weldon, a former congressman, to lead the C.D.C.**\
-`By Emily Baumgaertner`\
+`By Emily Baumgaertner and Teddy Rosenbluth`\
 https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/weldon-cdc
 
 **76ers' Joel Embiid out Sunday with swelling in knee**\

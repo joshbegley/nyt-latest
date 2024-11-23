@@ -1,3 +1,7 @@
+**Trump chooses Dr. David Weldon, a former congressman, to lead the C.D.C.**\
+`By Emily Baumgaertner and Teddy Rosenbluth`\
+https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/weldon-cdc
+
 **Trump picks Scott Turner, a little-known official from his first term, to lead HUD.**\
 `By Glenn Thrush`\
 https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/scott-turner-hud-trump
