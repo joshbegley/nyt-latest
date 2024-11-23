@@ -1,3 +1,7 @@
+**Hannah Hidalgo, Notre Dame overpower USC in top-10 matchup**\
+`USC appeared overmatched by the Irish, falling behind early and losing contact in the fourth quarter as Notre Dame won 74-61.`\
+https://nytimes.com/athletic/5942754/2024/11/23/notre-dame-usc-result-score-takeaways/
+
 **California Educator Is Charged With Molesting 8 Children**\
 `David Braff was first accused of misconduct years ago but has since held a series of school jobs. The authorities are investigating the possibility of additional victims.`\
 https://nytimes.com/2024/11/23/us/california-assistant-principal-sexual-misconduct.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942540/2024/11/23/georgia-umass-college-football-p
 **Olof Mellberg to manage St. Louis City SC**\
 `The 47-year-old will replace Hackworth, the interim head coach, who will remain with the club in his previous role.`\
 https://nytimes.com/athletic/5942505/2024/11/23/olof-mellberg-st-louis-city-sc-mls/
-
-**Wild's Kirill Kaprizov out with lower-body injury, to be evaluated Sunday: Source**\
-`Kaprizov will be examined by the team's orthopedist on Sunday in Minnesota.`\
-https://nytimes.com/athletic/5942579/2024/11/23/kirill-kaprizov-wild-injury/
 
