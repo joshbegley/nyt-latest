@@ -1,3 +1,7 @@
+**Franz Wagner and the Magic take pride in being 'physical' and it has them rolling**\
+`Without All-Star Paolo Banchero for the past month, Orlando won't go away in the East.`\
+https://nytimes.com/athletic/5940092/2024/11/23/franz-wagner-orlando-magic-nba/
+
 **F.B.I. Agents Investigate Use of Fake Donors in N.Y. Assembly Race**\
 `The inquiry follows a New York Times report questioning the validity of more than $162,000 in matching funds given to Dao Yin, a Democrat of Queens.`\
 https://nytimes.com/2024/11/23/nyregion/dao-yin-investigation-donors.html
