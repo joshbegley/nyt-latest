@@ -1,3 +1,7 @@
+**Inter Miami to appoint Mascherano as new head coach**\
+`Mascherano also played with Miami's Sergio Busquets and Jordi Alba during his days at Barcelona.`\
+https://nytimes.com/athletic/5940549/2024/11/23/javier-mascherano-inter-miami-coach/
+
 **F1 Las Vegas Grand Prix odds: Ferrari's Charles Leclerc, Carlos Sainz favored after qualifying**\
 `Max Verstappen has fallen behind Lando Norris and Charles Leclerc in the odds to win the F1 Las Vegas Grand Prix.`\
 https://nytimes.com/athletic/5935402/2024/11/23/f1-las-vegas-grand-prix-2024-odds-verstappen-norris-leclerc/

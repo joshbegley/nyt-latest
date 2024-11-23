@@ -1,3 +1,7 @@
+**Inter Miami to appoint Mascherano as new head coach**\
+`Mascherano also played with Miami's Sergio Busquets and Jordi Alba during his days at Barcelona.`\
+https://nytimes.com/athletic/5940549/2024/11/23/javier-mascherano-inter-miami-coach/
+
 **F1 Las Vegas Grand Prix odds: Ferrari's Charles Leclerc, Carlos Sainz favored after qualifying**\
 `Max Verstappen has fallen behind Lando Norris and Charles Leclerc in the odds to win the F1 Las Vegas Grand Prix.`\
 https://nytimes.com/athletic/5935402/2024/11/23/f1-las-vegas-grand-prix-2024-odds-verstappen-norris-leclerc/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/opinion/charity-holiday-gift-giving-guide.html
 **Stock for Sale by Cabinet Members**\
 `Trump’s picks for Treasury secretary and commerce secretary both lead Wall Street firms. Here’s what that could mean for their finances and businesses.`\
 https://nytimes.com/2024/11/23/business/dealbook/bessent-lutnick-divestments.html
-
-**Biden’s Chief Economist Processes the Election With ‘Confusion, Guilt’**\
-`Jared Bernstein, the chair of the White House Council of Economic Advisers, was a leading architect of “Bidenomics.”`\
-https://nytimes.com/2024/11/23/business/dealbook/jared-bernstein-bidenomics-economy.html
 
