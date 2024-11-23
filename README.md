@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5941704/2024/11/22/penguins-jets-tristan-jarry-sidn
 `Christopher Terranova, a former officer from Staten Island, was accused of preying on teenage boys on Snapchat, including one whom he met when the child reported a robbery.`\
 https://nytimes.com/2024/11/22/nyregion/nypd-sex-crime-christopher-terranova.html
 
-**Trump picks Scott Turner, a little-known official from his first term, to lead HUD.**\
-`By Glenn Thrush`\
+**Trump Picks Scott Turner, Little-Known Official From First Term, to Lead HUD**\
+`The housing agency plays a central role in addressing the growing national affordability crisis.`\
 https://nytimes.com/2024/11/22/us/politics/scott-turner-hud-trump.html
 
 **Former Rangers manager Chris Woodward returns to Dodgers' staff as first-base coach**\
@@ -32,7 +32,7 @@ https://nytimes.com/2024/11/22/crosswords/daily-puzzle-2024-11-23.html
 
 **Trump chooses Dr. David Weldon, a former congressman, to lead the C.D.C.**\
 `By Emily Baumgaertner and Teddy Rosenbluth`\
-https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/weldon-cdc
+https://nytimes.com/2024/11/22/health/weldon-cdc.html
 
 **76ers' Joel Embiid out Sunday with swelling in knee**\
 `The team ruled Embiid out of Friday's game against the Brooklyn Nets and later announced that Embiid has swelling in his left knee.`\
