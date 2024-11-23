@@ -1,3 +1,7 @@
+**Nuno hopeful Gibbs-White, Anderson will return for Ipswich**\
+`Nuno Espirito Santo hopes Morgan Gibbs-White and Elliot Anderson will be fit to face Ipswich Town next weekend.`\
+https://nytimes.com/athletic/5942344/2024/11/23/morgan-gibbs-white-elliot-anderson-ipswich/
+
 **What’s Behind Ukraine and Russia’s Missile Brinkmanship?**\
 `Tit-for-tat moves this week included the use of American-made ballistic missiles to strike inside Russia, and new nuclear threats from Moscow. Neither appear to have influenced the war on the ground.`\
 https://nytimes.com/2024/11/23/world/europe/russia-ukraine-missiles.html

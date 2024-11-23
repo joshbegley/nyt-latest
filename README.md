@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5942344/2024/11/23/morgan-gibbs-white-elliot-anders
 `Tit-for-tat moves this week included the use of American-made ballistic missiles to strike inside Russia, and new nuclear threats from Moscow. Neither appear to have influenced the war on the ground.`\
 https://nytimes.com/2024/11/23/world/europe/russia-ukraine-missiles.html
 
+**F1 Las Vegas Grand Prix odds: Ferrari's Sainz, Leclerc favored after qualifying**\
+`Max Verstappen has fallen behind Lando Norris and Charles Leclerc in the odds to win the F1 Las Vegas Grand Prix.`\
+https://nytimes.com/athletic/5935402/2024/11/23/f1-las-vegas-grand-prix-2024-odds-verstappen-norris-leclerc/
+
 **Barcelona's Putellas out for three weeks with leg injury**\
 `Barcelona forward Alexia Putellas is set to be out for the next three weeks with an injury to the triceps suralis in her right leg.`\
 https://nytimes.com/athletic/5942206/2024/11/23/barcelona-alexia-putellas-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/us/politics/scott-bessent-treasury-profile.html
 **Food Poisoning Kills 23 Children as South Africa Declares Emergency**\
 `The South African government said that nearly 900 people, many children, had fallen sick since September.`\
 https://nytimes.com/2024/11/23/world/africa/south-africa-food-poisoning-kills-children.html
-
-**Murray named Djokovic's coach for Australian Open**\
-`Novak Djokovic has appointed his former rival and three-time Grand Slam champion Andy Murray as his new coach.`\
-https://nytimes.com/athletic/5942196/2024/11/23/andy-murray-novak-djokovic-coach/
 
