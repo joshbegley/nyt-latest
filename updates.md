@@ -1,3 +1,7 @@
+**What’s Behind Ukraine and Russia’s Missile Brinkmanship?**\
+`Tit-for-tat moves this week included the use of American-made ballistic missiles to strike inside Russia, and new nuclear threats from Moscow. Neither appear to have influenced the war on the ground.`\
+https://nytimes.com/2024/11/23/world/europe/russia-ukraine-missiles.html
+
 **Food Poisoning Kills 23 Children as South Africa Declares Emergency**\
 `The South African government said that nearly 900 people, many children, had fallen sick since September.`\
 https://nytimes.com/2024/11/23/world/africa/south-africa-food-poisoning-kills-children.html
