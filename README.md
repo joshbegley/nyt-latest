@@ -1,3 +1,7 @@
+**Army vs. Notre Dame: How to watch, picks, odds as Yankee Stadium hosts big clash**\
+`Army can throw the College Football Playoff race into total chaos with an upset win against two-touchdown favorites Notre Dame.`\
+https://nytimes.com/athletic/5938450/2024/11/23/army-notre-dame-how-to-watch-picks-odds/
+
 **K-Pop Trained Rosé to Be ‘a Perfect Girl.’ Now She’s Trying to Be Herself.**\
 `The Blackpink star strikes out on her own, away from the system that turned her into a global phenomenon.`\
 https://nytimes.com/2024/11/23/magazine/rose-blackpink-kpop.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/books/cormac-mccarthy-muse.html
 **On Blood-Soaked Ground, a ‘Prayer for the Future’ of a Divided Land**\
 `Two weeks after the election, a gathering in Gettysburg commemorated Lincoln’s address, 272 words that have come to epitomize what it means to be presidential.`\
 https://nytimes.com/2024/11/23/us/gettysburg-address.html
-
-**I Tested the Latest FAFSA. It Works Fine. Don’t Celebrate Yet.**\
-`The rollout of the new student aid form last year was a debacle. This year’s beta testing has gone better. Next up: millions of users and a new administration.`\
-https://nytimes.com/2024/11/23/your-money/fafsa-financial-aid-college.html
 
