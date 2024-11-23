@@ -1,3 +1,11 @@
+**The Briefing: Leicester 1 Chelsea 2 -  Fernandez makes his mark and a marvellous Madueke-Palmer mix-up**\
+`Simon Johnson breaks down the main talking points from Chelsea's 2-1 win at Leicester City`\
+https://nytimes.com/athletic/5931797/2024/11/23/leicester-1-chelsea-2-fernandez-madueke-palmer/
+
+**Marta on her 2024 Orlando Pride season: Best dream I can imagine isn't even close**\
+`Marta will get to play in front of her mom for the first time in the U.S. on Saturday`\
+https://nytimes.com/athletic/5942009/2024/11/23/marta-orlando-pride-nwsl-championship/
+
 **Sectarian Violence Kills at Least 25 in Northwest Pakistan**\
 `The clashes overnight between Sunni and Shiite tribes in Khyber Pakhtunkhwa Province came a day after gunmen ambushed a convey of vehicles in the area.`\
 https://nytimes.com/2024/11/23/world/asia/pakistan-sectarian-violence.html
