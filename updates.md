@@ -1,3 +1,7 @@
+**Trump Plays Self-Defense With His Treasury Choice**\
+`Unlike some of his other cabinet picks, Bessent is a fairly conventional billionaire who should play well on Wall Street.`\
+https://nytimes.com/live/2024/11/19/opinion/thepoint/trump-treasury-bessent-wallstreet
+
 **The Briefing: Leicester 1 Chelsea 2 -  Fernandez makes his mark and a marvellous Madueke-Palmer mix-up**\
 `Simon Johnson breaks down the main talking points from Chelsea's 2-1 win at Leicester City`\
 https://nytimes.com/athletic/5931797/2024/11/23/leicester-1-chelsea-2-fernandez-madueke-palmer/
