@@ -1,3 +1,11 @@
+**Three fans arrested for alleged racist chanting during El Clasico**\
+`Three fans allegedly responsible for racist chanting towards Barcelona players during last month’s El Clasico have been arrested.`\
+https://nytimes.com/athletic/5941985/2024/11/23/real-madrid-barcelona-el-clasico-arrests-racist/
+
+**2 Books for Readers Who Don’t Care About Polite Company**\
+`A Japanese tale of “frustrated love and revenge,” and a visual history of bathrooms.`\
+https://nytimes.com/2024/11/23/books/read-like-wind-recommendations.html
+
 **Amorim praises Man United midfielder Mount: 'I love that kid'**\
 `New Manchester United head coach Ruben Amorim says that midfielder Mason Mount is “perfect” for his system.`\
 https://nytimes.com/athletic/5941957/2024/11/23/ruben-amorim-mason-mount-man-united/
