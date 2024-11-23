@@ -1,3 +1,7 @@
+**Ancelotti confident on Mbappe improvement: 'His quality is enormous'**\
+`Carlo Ancelotti is confident that Kylian Mbappe&#8217;s form will improve for Real Madrid.`\
+https://nytimes.com/athletic/5942034/2024/11/23/carlo-ancelotti-confident-on-kylian-mbappe-improvement-his-quality-is-enormous/
+
 **Why Broncos believe Bo Nix's recent surge is 'just the tip of the iceberg'**\
 `The rookie QB has been one of the NFL's best passers against the blitz the past month, evidence of his growth in identifying defenses.`\
 https://nytimes.com/athletic/5940567/2024/11/23/broncos-rookie-qb-bo-nix-offense/
