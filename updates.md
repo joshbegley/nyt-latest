@@ -1,3 +1,7 @@
+**Baleba wrongly sent off, says Hurzeler**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler claims Carlos Baleba was wrongly sent off in the 2-1 win at Bournemouth.`\
+https://nytimes.com/athletic/5942354/2024/11/23/brighton-head-coach-fabian-hurzeler-insists-carlos-baleba-was-wrongly-sent-off-in-bournemouth-win/
+
 **F1 Las Vegas Grand Prix odds: Ferrari's Sainz, Leclerc favored after qualifying**\
 `Max Verstappen has fallen behind Lando Norris and Charles Leclerc in the odds to win the F1 Las Vegas Grand Prix.`\
 https://nytimes.com/athletic/5935402/2024/11/23/f1-las-vegas-grand-prix-2024-odds-verstappen-norris-leclerc/
