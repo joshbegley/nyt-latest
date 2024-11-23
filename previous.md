@@ -1,3 +1,7 @@
+**Climate Talks Are Close to a Deal on Money After a Bitter Fight**\
+`Some countries were outraged over what they saw as deep flaws in the plan, which calls for $300 billion per year in support for developing nations.`\
+https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
+
 **Rutgers extends 15-year losing streak to ranked foes after Illinois comeback**\
 `Rutgers' loss streak to AP top-25 ranked opponents is now 41 games. In the first 40, Rutgers lost by an average of 29.8 points.`\
 https://nytimes.com/athletic/5942440/2024/11/23/rutgers-illinois-ranked-opponent-loss-streak-cfb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-project
 **Shape Up or Ship Out**\
 `Alex Eaton-Salners floats in with a precise Sunday construction.`\
 https://nytimes.com/2024/11/23/crosswords/daily-puzzle-2024-11-24.html
-
-**Ole Miss loses to Florida 24-17 as CFP chances slip away**\
-`Florida also clinched bowl eligibility with the win.`\
-https://nytimes.com/athletic/5942414/2024/11/23/florida-ole-miss-college-football-results-analysis/
 

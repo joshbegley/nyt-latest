@@ -1,3 +1,7 @@
+**Climate Talks Are Close to a Deal on Money After a Bitter Fight**\
+`Some countries were outraged over what they saw as deep flaws in the plan, which calls for $300 billion per year in support for developing nations.`\
+https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
+
 **Trump Transition Live Updates: Trump Names Agriculture Secretary, Rounding Out Main Cabinet Picks**\
 ``\
 https://nytimes.com/live/2024/11/23/us/trump-news
