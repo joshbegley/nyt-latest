@@ -2,7 +2,7 @@
 `Jarry was the Penguins’ best player in a 4-1 loss to the Jets on Friday.`\
 https://nytimes.com/athletic/5941704/2024/11/22/penguins-jets-tristan-jarry-sidney-crosby/
 
-**Former N.Y.P.D. Officer Convicted of Sex Offenses With 4 Underage Boys**\
+**Ex-N.Y.P.D. Officer Convicted of Sex Offenses Involving 4 Underage Boys**\
 `Christopher Terranova, a former officer from Staten Island, was accused of preying on teenage boys on Snapchat, including one whom he met when the child reported a robbery.`\
 https://nytimes.com/2024/11/22/nyregion/nypd-sex-crime-christopher-terranova.html
 
