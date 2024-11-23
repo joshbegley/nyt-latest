@@ -1,3 +1,7 @@
+**Trump chooses Dr. David Weldon, a former congressman, to lead the C.D.C.**\
+`By Emily Baumgaertner`\
+https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/weldon-cdc
+
 **Trump Chooses Dr. David Weldon to Lead C.D.C.**\
 `By Emily Baumgaertner`\
 https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/weldon-cdc
