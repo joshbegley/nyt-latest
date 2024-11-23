@@ -1,3 +1,7 @@
+**‘Glicked’ Fans Rejoice in Bloodshed and Broadway Songs**\
+`“Wicked” and “Gladiator II,” which opened on Friday, drew moviegoers who attended a double feature that emulated the rage over “Barbenheimer” last year.`\
+https://nytimes.com/2024/11/22/us/wicked-gladiator-release-glicked.html
+
 **Penny Trial Defense Shifts Focus From Choke to Sickle Cell and Drug Use**\
 `Lawyers for Daniel Penny, who is accused of choking Jordan Neely to death, called an expert who argued that a combination of factors led to Mr. Neely’s death.`\
 https://nytimes.com/2024/11/22/nyregion/daniel-penny-defense-jordan-neely.html
