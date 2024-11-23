@@ -1,3 +1,11 @@
+**Trump Chooses Dr. David Weldon to Lead C.D.C.**\
+`By Emily Baumgaertner`\
+https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/weldon-cdc
+
+**76ers' Joel Embiid out Sunday with swelling in knee**\
+`The team ruled Embiid out of Friday's game against the Brooklyn Nets and later announced that Embiid has swelling in his left knee.`\
+https://nytimes.com/athletic/5941635/2024/11/22/joel-embiid-injury-update-sixers/
+
 **'I want to have points': Yakov Trenin has been as advertised for Wild, except for scoring**\
 `Trenin, who has a single point in 19 games this season, is trying to "stay positive" as he tries to break his slump.
 `\

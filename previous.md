@@ -1,3 +1,11 @@
+**Trump Chooses Dr. David Weldon to Lead C.D.C.**\
+`By Emily Baumgaertner`\
+https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/weldon-cdc
+
+**76ers' Joel Embiid out Sunday with swelling in knee**\
+`The team ruled Embiid out of Friday's game against the Brooklyn Nets and later announced that Embiid has swelling in his left knee.`\
+https://nytimes.com/athletic/5941635/2024/11/22/joel-embiid-injury-update-sixers/
+
 **Yankees non-tender 2 players; here's what it means for the club's 2025 payroll**\
 `As the Yankees look to re-sign Juan Soto, they made some moves on Friday to provide some financial flexibility.`\
 https://nytimes.com/athletic/5941391/2024/11/22/yankees-non-tender-jon-berti-tim-mayza-2025-payroll/
@@ -29,13 +37,4 @@ https://nytimes.com/2024/11/22/us/politics/florida-fluoride-water-rfk-jr-ladapo.
 **Dr. Martin Makary Chosen to Head the F.D.A.**\
 `A frequent Fox News commentator, Dr. Makary has a penchant for challenging the medical establishment, and stirred pandemic concerns with his views on Covid immunity and vaccine mandates.`\
 https://nytimes.com/2024/11/22/health/fda-commissioner-marty-makary-rfkjr.html
-
-**'I want to have points': Yakov Trenin has been as advertised for Wild, except for scoring**\
-`Trenin, who has a single point in 19 games this season, is trying to "stay positive" as he tries to break his slump.
-`\
-https://nytimes.com/athletic/5941548/2024/11/22/wild-yakov-trenin-scoring/
-
-**NWSL commissioner gives update on NWSL expansion, youth development and more**\
-`Jessica Berman answered questions about expansion, youth development and more.`\
-https://nytimes.com/athletic/5941460/2024/11/22/cincinnati-cleveland-denver-nwsl-expansion-finalists-jessica-berman/
 
