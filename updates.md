@@ -1,3 +1,11 @@
+**Trump picks Scott Turner, a little-known official from his first term, to lead HUD.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/scott-turner-hud-trump
+
+**Former Rangers manager Chris Woodward returns to Dodgers' staff as first-base coach**\
+`Woodward returned to the Dodgers as a senior advisor last season after four seasons managing the Rangers.`\
+https://nytimes.com/athletic/5941709/2024/11/22/dodgers-chris-woodward-first-base-coach/
+
 **Seven intriguing new names on MLB's free-agent market after Friday's non-tender deadline**\
 `Among players who hit the open market after getting non-tendered were a few former All-Stars and players drafted in the first round.`\
 https://nytimes.com/athletic/5941671/2024/11/22/mlb-top-non-tender-free-agents/
