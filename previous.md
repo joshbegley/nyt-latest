@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5942505/2024/11/23/olof-mellberg-st-louis-city-sc-m
 `Kaprizov will be examined by the team's orthopedist on Sunday in Minnesota.`\
 https://nytimes.com/athletic/5942579/2024/11/23/kirill-kaprizov-wild-injury/
 
+**College Football Playoff 2024 projections: Predicting the bracket with Week 13 underway**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
+
 **Shape Up or Ship Out**\
 `Alex Eaton-Salners floats in with a precise Sunday construction.`\
 https://nytimes.com/2024/11/23/crosswords/daily-puzzle-2024-11-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942407/2024/11/23/smu-acc-championship-game-virgin
 **Auston Matthews returns to ice, discusses mysterious injury for first time**\
 `Matthews skated on his own ahead of Leafs practice Saturday. It was his first time on the ice since Nov. 10.`\
 https://nytimes.com/athletic/5942404/2024/11/23/maple-leafs-auston-matthews-injury-4/
-
-**The Briefing: Man City 0 Tottenham 4 - Maddison's perfect birthday, what's going wrong for Guardiola's team?**\
-`Tottenham ran amok against champions Manchester City - The Athletic analyses the talking point from a fascinating match at the Etihad`\
-https://nytimes.com/athletic/5931849/2024/11/23/manchester-city-0-tottenham-4-guardiola-postecoglou-maddison/
 

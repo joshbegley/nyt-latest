@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Predicting the bracket with Week 13 underway**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
+
 **Olof Mellberg to manage St. Louis City SC**\
 `The 47-year-old will replace Hackworth, the interim head coach, who will remain with the club in his previous role.`\
 https://nytimes.com/athletic/5942505/2024/11/23/olof-mellberg-st-louis-city-sc-mls/
