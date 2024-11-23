@@ -1,4 +1,8 @@
 **Bulls get win, but Patrick Williams out indefinitely with foot inflammation**\
+`Left foot issues caused Williams to miss his second straight contest Friday, a Bulls win against the Atlanta Hawks.`\
+https://nytimes.com/athletic/5941727/2024/11/22/patrick-williams-chicago-bulls-foot-injury/
+
+**Bulls get win, but Patrick Williams out indefinitely with foot inflammation**\
 `Left foot inflammation caused Williams to miss his second straight contest Friday, a Bulls win against the Atlanta Hawks.`\
 https://nytimes.com/athletic/5941727/2024/11/22/patrick-williams-chicago-bulls-foot-injury/
 
