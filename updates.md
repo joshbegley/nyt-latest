@@ -1,3 +1,7 @@
+**Ole Miss loses to Florida 17-24 as CFP chances slip away**\
+`Florida also clinched bowl eligibility with the win.`\
+https://nytimes.com/athletic/5942414/2024/11/23/florida-ole-miss-college-football-results-analysis/
+
 **Did Ohio State burst Indiana's bubble? What Buckeyes' dominant win means in Playoff chase**\
 `No. 2 Ohio State stifled No. 5 Indiana, winning 38-15 to inch closer to a Big Ten title bid while handing the Hoosiers their first loss.`\
 https://nytimes.com/athletic/5942432/2024/11/23/ohio-state-indiana-football-score-playoff/
