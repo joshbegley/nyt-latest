@@ -1,3 +1,11 @@
+**George Russell takes pole at the Las Vegas Grand Prix**\
+`The Mercedes driver converted three terrific practices into pole position. `\
+https://nytimes.com/athletic/5941819/2024/11/23/george-russell-f1-las-vegas-gp-pole/
+
+**Ghost Town: Visiting Swindon to find out the truth about Ian Holloway and the spirits**\
+`Holloway says staff who work at Beversbrook Sports and Community facility in Wiltshire have CCTV footage of strange, unexplainable events`\
+https://nytimes.com/athletic/5940396/2024/11/23/ian-holloway-swindon-supernatural/
+
 **Duke outlasts Arizona's physicality in top-25 matchup**\
 `If Duke hadn’t lost in the fashion it did against Kentucky, there’s no telling if it would’ve been able to match Arizona’s physicality.`\
 https://nytimes.com/athletic/5941726/2024/11/23/duke-arizona-score-result/
