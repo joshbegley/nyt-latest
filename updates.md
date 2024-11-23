@@ -1,3 +1,7 @@
+**Seven intriguing new names on MLB's free-agent market after Friday's non-tender deadline**\
+`Among players who hit the open market after getting non-tendered were a few former All-Stars and players drafted in the first round.`\
+https://nytimes.com/athletic/5941671/2024/11/22/mlb-top-non-tender-free-agents/
+
 **Sebastian Gorka to return to the White House as an adviser.**\
 `In a statement, Donald J. Trump lauded the firebrand conservative commentator as a “tireless advocate” for his agenda. There was no mention that Mr. Gorka had been forced out of the Trump administration in 2017.`\
 https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/sebastian-gorka-to-return-to-the-white-house-as-an-adviser
