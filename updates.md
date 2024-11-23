@@ -1,3 +1,7 @@
+**Corrections: Nov. 23, 2024**\
+`Corrections that appeared in print on Saturday, Nov. 23, 2024.`\
+https://nytimes.com/2024/11/23/pageoneplus/corrections-nov-23-2024.html
+
 **Ruben Amorim's first Man Utd press conference: What he said and what it means**\
 `Despite Amorim’s first encounter with assembled media being a pre-match press conference, no one asked about Sunday’s opponents Ipswich`\
 https://nytimes.com/athletic/5934564/2024/11/23/amorim-first-united-press-conference-analsyed/
