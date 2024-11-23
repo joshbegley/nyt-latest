@@ -1,3 +1,15 @@
+**Sebastian Gorka to return to the White House as an adviser.**\
+`In a statement, Donald J. Trump lauded the firebrand conservative commentator as a “tireless advocate” for his agenda. There was no mention that Mr. Gorka had been forced out of the Trump administration in 2017.`\
+https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/sebastian-gorka-to-return-to-the-white-house-as-an-adviser
+
+**Alice Brock, Restaurant Owner Made Famous by a Song, Dies at 83**\
+`Arlo Guthrie’s antiwar staple “Alice’s Restaurant” was inspired by a Thanksgiving Day visit to her diner in western Massachusetts.`\
+https://nytimes.com/2024/11/22/arts/music/alice-brock-dead.html
+
+**Reacts Like a Superfan**\
+`Ryan McCarty’s themeless puzzle is a crowd-pleaser.`\
+https://nytimes.com/2024/11/22/crosswords/daily-puzzle-2024-11-23.html
+
 **Trump chooses Dr. David Weldon, a former congressman, to lead the C.D.C.**\
 `By Emily Baumgaertner`\
 https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/weldon-cdc
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/22/us/politics/chinese-hack-telecom-white-house.html
 **Zion Williamson, CAA parting ways: Sources**\
 `It is not immediately clear why Williamson and CAA are splitting.`\
 https://nytimes.com/athletic/5941622/2024/11/22/zion-williamson-caa-agency-part-ways/
-
-**Astros' Jake Meyers survived the tender deadline, but is he on borrowed time in Houston?**\
-`Based on GM Dana Brown's recent comments, the Astros' decision to tender a contract to Meyers doesn't mean he'll have a prominent role.`\
-https://nytimes.com/athletic/5941481/2024/11/22/astros-tender-contract-jake-meyers-plans/
-
-**Florida’s Top Health Official Urges an End to Putting Fluoride in Water**\
-`The recommendation followed similar pushes from Robert F. Kennedy Jr., Donald J. Trump’s pick to lead the Department of Health and Human Services.`\
-https://nytimes.com/2024/11/22/us/politics/florida-fluoride-water-rfk-jr-ladapo.html
-
-**Dr. Martin Makary Chosen to Head the F.D.A.**\
-`A frequent Fox News commentator, Dr. Makary has a penchant for challenging the medical establishment, and stirred pandemic concerns with his views on Covid immunity and vaccine mandates.`\
-https://nytimes.com/2024/11/22/health/fda-commissioner-marty-makary-rfkjr.html
 

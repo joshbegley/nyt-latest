@@ -1,3 +1,15 @@
+**Sebastian Gorka to return to the White House as an adviser.**\
+`In a statement, Donald J. Trump lauded the firebrand conservative commentator as a “tireless advocate” for his agenda. There was no mention that Mr. Gorka had been forced out of the Trump administration in 2017.`\
+https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/sebastian-gorka-to-return-to-the-white-house-as-an-adviser
+
+**Alice Brock, Restaurant Owner Made Famous by a Song, Dies at 83**\
+`Arlo Guthrie’s antiwar staple “Alice’s Restaurant” was inspired by a Thanksgiving Day visit to her diner in western Massachusetts.`\
+https://nytimes.com/2024/11/22/arts/music/alice-brock-dead.html
+
+**Reacts Like a Superfan**\
+`Ryan McCarty’s themeless puzzle is a crowd-pleaser.`\
+https://nytimes.com/2024/11/22/crosswords/daily-puzzle-2024-11-23.html
+
 **Yankees non-tender 2 players; here's what it means for the club's 2025 payroll**\
 `As the Yankees look to re-sign Juan Soto, they made moves Friday to provide some financial flexibility.`\
 https://nytimes.com/athletic/5941391/2024/11/22/yankees-non-tender-jon-berti-tim-mayza-2025-payroll/
