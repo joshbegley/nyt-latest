@@ -1,3 +1,11 @@
+**Hot Take: Pumpkin Pie Is Good**\
+`Especially Melissa Clark’s brandied pumpkin pie, a New York Times Cooking classic with five stars and over 2,000 reviews.`\
+https://nytimes.com/2024/11/23/dining/pumpkin-pie-thanksgiving-recipes.html
+
+**Antetokounmpo-Lillard combo finding its groove as 'vibes ... are high' after Bucks top Pacers**\
+`From the mundane to the spectacular, Antetokounmpo and Lillard find themselves to be in sync as the Bucks have won five of their last six.`\
+https://nytimes.com/athletic/5941919/2024/11/23/giannis-damian-lillard-bucks-pacers/
+
 **College Football Playoff 2024 projections: Predicting the bracket with Week 13 underway**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
