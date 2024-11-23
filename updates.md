@@ -1,3 +1,7 @@
+**Trump Transition Live Updates: Trump Picks an Agriculture Secretary and Completes Naming His Cabinet**\
+``\
+https://nytimes.com/live/2024/11/23/us/trump-news
+
 **Trump Transition Live Updates: Trump Picks America First Leader as Agriculture Secretary**\
 ``\
 https://nytimes.com/live/2024/11/23/us/trump-news
