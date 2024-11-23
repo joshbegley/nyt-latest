@@ -1,3 +1,7 @@
+**Trump picks Scott Turner, a little-known official from his first term, to lead HUD.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/11/22/us/trump-cabinet-news/scott-turner-hud-trump
+
 **Former Rangers manager Chris Woodward returns to Dodgers' staff as first-base coach**\
 `Woodward returned to the Dodgers as a senior advisor last season after four seasons managing the Rangers.`\
 https://nytimes.com/athletic/5941709/2024/11/22/dodgers-chris-woodward-first-base-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941391/2024/11/22/yankees-non-tender-jon-berti-tim
 **Labor Secretary Pick Is Rep. Lori Chavez-DeRemer of Oregon**\
 `A moderate from a swing district, she received endorsements from several unions but narrowly lost her bid for a second House term.`\
 https://nytimes.com/2024/11/22/business/economy/labor-secretary-lori-chavez-deremer-trump.html
-
-**Israel Is Not an I.C.C. Member. How Can the Court Prosecute Israeli Leaders?**\
-`The jurisdiction of the court in The Hague can extend beyond member states.`\
-https://nytimes.com/2024/11/22/world/middleeast/israel-icc-jurisdiction-explained.html
 
