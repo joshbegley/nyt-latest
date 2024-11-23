@@ -1,3 +1,7 @@
+**F1 Las Vegas Grand Prix odds: Ferrari's Charles Leclerc, Carlos Sainz favored after qualifying**\
+`Max Verstappen has fallen behind Lando Norris and Charles Leclerc in the odds to win the F1 Las Vegas Grand Prix.`\
+https://nytimes.com/athletic/5935402/2024/11/23/f1-las-vegas-grand-prix-2024-odds-verstappen-norris-leclerc/
+
 **Russini’s what I’m hearing: The day the Jets fell apart and the Broncos rallied, Belichick best fits**\
 `Plus, the former head coach the Jets should pursue, end of the Giants' Daniel Jones era, Darren Rizzi rises and clutch kicker misses.`\
 https://nytimes.com/athletic/5941684/2024/11/23/russinis-what-im-hearing-the-day-the-jets-fell-apart-and-the-broncos-rallied-belichick-best-fits/
