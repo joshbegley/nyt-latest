@@ -1,3 +1,7 @@
+**What’s Behind Ukraine and Russia’s Missile Brinkmanship?**\
+`Tit-for-tat moves this week included the use of American-made ballistic missiles to strike inside Russia, and new nuclear threats from Moscow. Neither appear to have influenced the war on the ground.`\
+https://nytimes.com/2024/11/23/world/europe/russia-ukraine-missiles.html
+
 **Barcelona's Putellas out for three weeks with leg injury**\
 `Barcelona forward Alexia Putellas is set to be out for the next three weeks with an injury to the triceps suralis in her right leg.`\
 https://nytimes.com/athletic/5942206/2024/11/23/barcelona-alexia-putellas-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942196/2024/11/23/andy-murray-novak-djokovic-coach
 **Hot Take: Pumpkin Pie Is Good**\
 `Especially Melissa Clark’s brandied pumpkin pie, a New York Times Cooking classic with five stars and over 2,000 reviews.`\
 https://nytimes.com/2024/11/23/dining/pumpkin-pie-thanksgiving-recipes.html
-
-**Antetokounmpo-Lillard combo finding its groove as 'vibes ... are high' after Bucks top Pacers**\
-`From the mundane to the spectacular, Antetokounmpo and Lillard find themselves to be in sync as the Bucks have won five of their last six.`\
-https://nytimes.com/athletic/5941919/2024/11/23/giannis-damian-lillard-bucks-pacers/
 
