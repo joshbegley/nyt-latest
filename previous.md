@@ -1,3 +1,7 @@
+**Duke outlasts Arizona's physicality in top-25 matchup**\
+`If Duke hadn’t lost in the fashion it did against Kentucky, there’s no telling if it would’ve been able to match Arizona’s physicality.`\
+https://nytimes.com/athletic/5941726/2024/11/23/duke-arizona-score-result/
+
 **One Dead in U.S. Listeria Outbreak Tied to Ready-to-Eat Meat and Poultry**\
 `Officials have linked 11 listeria cases since October 2021 to items from Yu Shang Food, which is recalling more than 72,000 pounds of products.`\
 https://nytimes.com/2024/11/23/us/listeria-death-yushang-recall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940350/2024/11/23/football-fits-arrival-koune-kona
 **Vieira's reputation as a manager has taken a knock. Does he have point to prove at Genoa?**\
 `The former Arsenal and France midfielder is the new man in charge at Genoa in Serie A, charged with salvaging their season`\
 https://nytimes.com/athletic/5938510/2024/11/23/patrick-vieira-genoa-manager-future/
-
-**Ghost Town: Visiting Swindon to find out the truth about Ian Holloway and the spirits**\
-`Holloway says staff who work at Beversbrook Sports and Community facility in Wiltshire have CCTV footage of strange, unexplainable events`\
-https://nytimes.com/athletic/5940396/2024/11/23/ian-holloway-swindon-supernatural/
 
