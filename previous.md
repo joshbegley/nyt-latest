@@ -1,3 +1,7 @@
+**Andrew Wiggins is rolling as Warriors advance to NBA Cup knockout round**\
+`Wiggins put up 30 points in Golden State's 112-108 win in New Orleans, and the Warriors clinched Group C of the NBA Cup.`\
+https://nytimes.com/athletic/5941733/2024/11/23/andrew-wiggins-warriors-nba-cup-knockout-round/
+
 **George Russell takes pole at the Las Vegas Grand Prix**\
 `The Mercedes driver converted three terrific practices into pole position. `\
 https://nytimes.com/athletic/5941819/2024/11/23/george-russell-f1-las-vegas-gp-pole/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941179/2024/11/23/pep-guardiola-press-conference-c
 **Ghost Town: Visiting Swindon to find out the truth about Ian Holloway and the spirits**\
 `Holloway says staff who work at Beversbrook Sports and Community facility in Wiltshire have CCTV footage of strange, unexplainable events`\
 https://nytimes.com/athletic/5940396/2024/11/23/ian-holloway-swindon-supernatural/
-
-**Football's chequered history of half-time entertainment: Punch-ups, cheerleaders and booing The Shamen**\
-`Bored at half-time? Wish there was some entertainment? Be careful what you wish for`\
-https://nytimes.com/athletic/5929213/2024/11/23/football-half-time-entertainment/
 
