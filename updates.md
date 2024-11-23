@@ -1,3 +1,15 @@
+**Trump Transition Live Updates: Trump Picks America First Leader as Agriculture Secretary**\
+``\
+https://nytimes.com/live/2024/11/23/us/trump-news
+
+**Trump Picks Brooke Rollins, a Conservative Lawyer, to Lead Agriculture Dept.**\
+`Ms. Rollins is the chief executive of the America First Policy Institute, a think tank created to promote President-elect Donald J. Trump’s agenda.`\
+https://nytimes.com/2024/11/23/us/politics/trump-agriculture-secretary.html
+
+**Takeaways from Georgia's win: Sluggish on the field but a good day on the Playoff front**\
+`Georgia didn't look great against UMass but could move up a few spots thanks to losses by Indiana and Ole Miss. `\
+https://nytimes.com/athletic/5942540/2024/11/23/georgia-umass-college-football-playoff/
+
 **College Football Playoff 2024 projections: Predicting the bracket with Week 13 underway**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
