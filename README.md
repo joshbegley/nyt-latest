@@ -1,3 +1,7 @@
+**The moral of the story from Ole Miss loss: This is about surviving the grind**\
+`Ole Miss wasn't built for CFP survival this year. But a good example of that is the team Ole Miss beat two weeks ago: Georgia.`\
+https://nytimes.com/athletic/5942763/2024/11/23/ole-miss-lane-kiffin-college-football-playoff/
+
 **Nebraska's 7-year bowl drought ends vs. struggling Wisconsin: What it means for Huskers, Badgers**\
 `The Huskers had been 0-8 with bowl eligibility on the line under Matt Rhule. Wisconsin lost its fourth straight. `\
 https://nytimes.com/athletic/5942694/2024/11/23/nebraska-football-wisconsin-score-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/23/us/trump-news
 **Trump Picks Brooke Rollins, a Conservative Lawyer, to Lead Agriculture Dept.**\
 `Ms. Rollins is the chief executive of the America First Policy Institute, a think tank created to promote President-elect Donald J. Trump’s agenda.`\
 https://nytimes.com/2024/11/23/us/politics/trump-agriculture-secretary.html
-
-**Takeaways from Georgia's win: Sluggish on the field but a good day on the Playoff front**\
-`Georgia didn't look great against UMass but could move up a few spots thanks to losses by Indiana and Ole Miss. `\
-https://nytimes.com/athletic/5942540/2024/11/23/georgia-umass-college-football-playoff/
 
