@@ -1,3 +1,7 @@
+**Shape Up or Ship Out**\
+`Alex Eaton-Salners floats in with a precise Sunday construction.`\
+https://nytimes.com/2024/11/23/crosswords/daily-puzzle-2024-11-24.html
+
 **Ole Miss loses to Florida 17-24 as CFP chances slip away**\
 `Florida also clinched bowl eligibility with the win.`\
 https://nytimes.com/athletic/5942414/2024/11/23/florida-ole-miss-college-football-results-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/world/europe/madeleine-riffaud-dead.html
 **O'Neil revels in Fulham win: 'One of my favourite afternoons at Wolves'**\
 `Gary O’Neil says his Wolverhampton Wanderers&#8217; 4-1 victory at Fulham was one of his favourite days as head coach of the club.`\
 https://nytimes.com/athletic/5942368/2024/11/23/gary-oneil-fulham-win/
-
-**Baleba wrongly sent off, says Hurzeler**\
-`Brighton &amp; Hove Albion head coach Fabian Hurzeler claims Carlos Baleba was wrongly sent off in the 2-1 win at Bournemouth.`\
-https://nytimes.com/athletic/5942354/2024/11/23/brighton-head-coach-fabian-hurzeler-insists-carlos-baleba-was-wrongly-sent-off-in-bournemouth-win/
 
