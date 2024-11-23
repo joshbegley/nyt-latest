@@ -1,3 +1,15 @@
+**Law: Jonathan India, Brady Singer trade could help both teams**\
+`India's on-base skills could benefit the Royals, while the Reds needed to trade from their position-player depth to get some pitching.`\
+https://nytimes.com/athletic/5941706/2024/11/22/reds-royals-jonathan-india-brady-singer-trade-analysis/
+
+**Trump Picks Scott Turner, Little-Known Official From First Term, to Lead HUD**\
+`The housing agency plays a central role in addressing the growing national affordability crisis.`\
+https://nytimes.com/2024/11/22/us/politics/scott-turner-hud-trump.html
+
+**Trump chooses Dr. David Weldon, a former congressman, to lead the C.D.C.**\
+`By Emily Baumgaertner and Teddy Rosenbluth`\
+https://nytimes.com/2024/11/22/health/weldon-cdc.html
+
 **Ex-N.Y.P.D. Officer Convicted of Sex Offenses Involving 4 Underage Boys**\
 `Christopher Terranova, a former officer from Staten Island, was accused of preying on teenage boys on Snapchat, including one whom he met when the child reported a robbery.`\
 https://nytimes.com/2024/11/22/nyregion/nypd-sex-crime-christopher-terranova.html

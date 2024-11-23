@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/22/arts/music/alice-brock-dead.html
 `Ryan McCarty’s themeless puzzle is a crowd-pleaser.`\
 https://nytimes.com/2024/11/22/crosswords/daily-puzzle-2024-11-23.html
 
-**Trump chooses Dr. David Weldon, a former congressman, to lead the C.D.C.**\
-`By Emily Baumgaertner and Teddy Rosenbluth`\
+**Trump Chooses Dr. David Weldon, a Former Congressman, to Lead the C.D.C.**\
+`In selecting a doctor who is skeptical of vaccine safety, the president-elect is emphasizing his commitment to reforming the role of federal health agencies in radical ways.`\
 https://nytimes.com/2024/11/22/health/weldon-cdc.html
 
