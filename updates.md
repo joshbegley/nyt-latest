@@ -1,3 +1,11 @@
+**California Educator Is Charged With Molesting 8 Children**\
+`David Braff was first accused of misconduct years ago but has since held a series of school jobs. The authorities are investigating the possibility of additional victims.`\
+https://nytimes.com/2024/11/23/us/california-assistant-principal-sexual-misconduct.html
+
+**Climate Talks Forge a Deal on Money After a Bitter Fight**\
+`Some countries were outraged over what one delegate called the “deeply inadequate” plan, which calls for $300 billion per year in support for developing nations.`\
+https://nytimes.com/2024/11/23/climate/cop29-climate-talks-conclusion.html
+
 **Is Flyers' Matvei Michkov trending to be better than Blackhawks' Connor Bedard?**\
 `The first meeting between the young stars offered a glimpse of a potential budding rivalry for years to come.`\
 https://nytimes.com/athletic/5942675/2024/11/23/flyers-blackhawks-matvei-michkov-connor-bedard/
