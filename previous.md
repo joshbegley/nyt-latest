@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5942126/2024/11/23/bryce-underwood-tom-brady-michig
 `The 15-year-old Danish prodigy went from lockdown go-karter to F1 Academy driver in just a few short years. `\
 https://nytimes.com/athletic/5941780/2024/11/23/f1-academy-alba-hurup-larsen-kevin-magnussen/
 
+**College Football Playoff 2024 projections: Predicting the bracket with Week 13 underway**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
+
 **So Many Days Lost at the Doctor’s Office**\
 `Medical care can be wearying and time-consuming, especially for seniors. Researchers are beginning to quantify the burdens.`\
 https://nytimes.com/2024/11/23/health/elderly-health-appointments-burdens.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5931797/2024/11/23/leicester-1-chelsea-2-fernandez-
 **Marta on her 2024 Orlando Pride season: Best dream I can imagine isn't even close**\
 `Marta will get to play in front of her mom for the first time in the U.S. on Saturday`\
 https://nytimes.com/athletic/5942009/2024/11/23/marta-orlando-pride-nwsl-championship/
-
-**Ancelotti confident on Mbappe improvement: 'His quality is enormous'**\
-`Carlo Ancelotti is confident that Kylian Mbappe&#8217;s form will improve for Real Madrid.`\
-https://nytimes.com/athletic/5942034/2024/11/23/carlo-ancelotti-confident-on-kylian-mbappe-improvement-his-quality-is-enormous/
 

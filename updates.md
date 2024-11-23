@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Predicting the bracket with Week 13 underway**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
+
 **Bryce Underwood's meetings with Tom Brady helped flip QB to Michigan**\
 `Ton Brady became a great resource for the young QB, who grew up a Michigan fan and is from Belleville, Mich.`\
 https://nytimes.com/athletic/5942126/2024/11/23/bryce-underwood-tom-brady-michigan-commitment-flip/
