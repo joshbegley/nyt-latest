@@ -1,3 +1,7 @@
+**Sectarian Violence Kills at Least 25 in Northwest Pakistan**\
+`The clashes overnight between Sunni and Shiite tribes in Khyber Pakhtunkhwa Province came a day after gunmen ambushed a convey of vehicles in the area.`\
+https://nytimes.com/2024/11/23/world/asia/pakistan-sectarian-violence.html
+
 **Ancelotti confident on Mbappe improvement: 'His quality is enormous'**\
 `Carlo Ancelotti is confident that Kylian Mbappe&#8217;s form will improve for Real Madrid.`\
 https://nytimes.com/athletic/5942034/2024/11/23/carlo-ancelotti-confident-on-kylian-mbappe-improvement-his-quality-is-enormous/
