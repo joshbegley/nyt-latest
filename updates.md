@@ -1,3 +1,7 @@
+**Down About the Election? There Is a Speech I Want You to Read.**\
+`Frederick Douglass knew what to do when faced with Jim Crow.`\
+https://nytimes.com/2024/11/23/opinion/election-frederick-douglass.html
+
 **Blue Man Group to End New York Run After Three Decades Off Broadway**\
 `The troupe is also closing its Chicago company, but continues to perform in Berlin, Boston, Las Vegas and, soon, Orlando.`\
 https://nytimes.com/2024/11/23/theater/blue-man-group-closing.html
