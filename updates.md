@@ -1,3 +1,7 @@
+**Royals trade Brady Singer to Reds for Jonathan India, Joey Wiemer**\
+`The Royals landed the 2020 NL Rookie of the Year for Singer, a durable starter whom Kansas City drafted in the first round in 2018.`\
+https://nytimes.com/athletic/5941558/2024/11/22/royals-reds-trade-brady-singer-reds-jonathan-india-joey-wiemer/
+
 **‘Glicked’ Fans Rejoice in Bloodshed and Broadway Songs**\
 `“Wicked” and “Gladiator II,” which opened on Friday, drew moviegoers who attended a double feature that emulated the rage over “Barbenheimer” last year.`\
 https://nytimes.com/2024/11/22/us/wicked-gladiator-release-glicked.html
