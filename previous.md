@@ -1,3 +1,11 @@
+**How Scott Bessent Went From Democratic Donor to Trump Treasury Secretary Pick**\
+`The hedge fund investor predicted last year that President-elect Donald J. Trump’s political fortunes were on the rise.`\
+https://nytimes.com/2024/11/23/us/politics/scott-bessent-treasury-profile.html
+
+**Food Poisoning Kills at Least 23 Children as South Africa Declares Emergency**\
+`The South African government, saying that nearly 900 people, many children, had fallen sick since September, declared a state of emergency.`\
+https://nytimes.com/2024/11/23/world/africa/south-africa-food-poisoning-kills-children.html
+
 **Murray named Djokovic's coach for Australian Open**\
 `Novak Djokovic has appointed his former rival and three-time Grand Slam champion Andy Murray as his new coach.`\
 https://nytimes.com/athletic/5942196/2024/11/23/andy-murray-novak-djokovic-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/23/health/elderly-health-appointments-burdens.html
 **Inter Miami to appoint Mascherano as new head coach**\
 `Mascherano also played with Miami's Sergio Busquets and Jordi Alba during his days at Barcelona.`\
 https://nytimes.com/athletic/5940549/2024/11/23/javier-mascherano-inter-miami-coach/
-
-**F1 Las Vegas Grand Prix odds: Ferrari's Charles Leclerc, Carlos Sainz favored after qualifying**\
-`Max Verstappen has fallen behind Lando Norris and Charles Leclerc in the odds to win the F1 Las Vegas Grand Prix.`\
-https://nytimes.com/athletic/5935402/2024/11/23/f1-las-vegas-grand-prix-2024-odds-verstappen-norris-leclerc/
-
-**Russini’s what I’m hearing: The day the Jets fell apart and the Broncos rallied, Belichick best fits**\
-`Plus, the former head coach the Jets should pursue, end of the Giants' Daniel Jones era, Darren Rizzi rises and clutch kicker misses.`\
-https://nytimes.com/athletic/5941684/2024/11/23/russinis-what-im-hearing-the-day-the-jets-fell-apart-and-the-broncos-rallied-belichick-best-fits/
 

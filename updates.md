@@ -1,3 +1,11 @@
+**How Scott Bessent Went From Democratic Donor to Trump Treasury Secretary Pick**\
+`The hedge fund investor predicted last year that President-elect Donald J. Trump’s political fortunes were on the rise.`\
+https://nytimes.com/2024/11/23/us/politics/scott-bessent-treasury-profile.html
+
+**Food Poisoning Kills at Least 23 Children as South Africa Declares Emergency**\
+`The South African government, saying that nearly 900 people, many children, had fallen sick since September, declared a state of emergency.`\
+https://nytimes.com/2024/11/23/world/africa/south-africa-food-poisoning-kills-children.html
+
 **Murray named Djokovic's coach for Australian Open**\
 `Novak Djokovic has appointed his former rival and three-time Grand Slam champion Andy Murray as his new coach.`\
 https://nytimes.com/athletic/5942196/2024/11/23/andy-murray-novak-djokovic-coach/
