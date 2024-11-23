@@ -1,3 +1,11 @@
+**Penn State makes right calls late to escape Minnesota: Takeaways from a close call**\
+`No. 4 Penn State survived an upset bid from Minnesota on Saturday after converting three fourth downs on its final possession.`\
+https://nytimes.com/athletic/5942716/2024/11/23/penn-state-minnesota-score-recap-playoff/
+
+**Travis Hunter tracker: Superstar's huge performance can't save Colorado from upset loss**\
+`Hunter scored twice and surpassed 1,000 yards receiving for the season during Saturday's game, but it wasn't enough for Colorado.`\
+https://nytimes.com/athletic/5942640/2024/11/23/travis-hunter-nfl-draft-2025-kansas/
+
 **How Wild fell in shootout despite late rally without Kirill Kaprizov: 3 takeaways**\
 `Playing without their superstar, the Wild scored two late goals before the Flames took a 4-3 win in a five-round shootout.`\
 https://nytimes.com/athletic/5942589/2024/11/23/wild-flames-kirill-kaprizov-injury/
