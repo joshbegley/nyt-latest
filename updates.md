@@ -1,3 +1,11 @@
+**Leicester fans: Was it right to sack Cooper - and who should replace him?**\
+`Cooper leaves with the club 16th in the Premier League - was it the right decision, and who should come in?`\
+https://nytimes.com/athletic/5943974/2024/11/24/leicester-sack-steve-cooper-next-manager/
+
+**Chuck Woolery, Host of ‘Love Connection,’ Dies at 83**\
+`After a career that included stints on “Wheel of Fortune” and other popular game shows, he took a combative turn as a right-wing podcast host.`\
+https://nytimes.com/2024/11/24/arts/television/chuck-woolery-dead.html
+
 **The Briefing: Southampton 2 Liverpool 3 - Salah to rescue... but what happened at the back? Was it a penalty?**\
 `Liverpool had a tougher afternoon away to Southampton that many expected - The Athletic analyses the talking points from a thrilling game`\
 https://nytimes.com/athletic/5940174/2024/11/24/southampton-2-liverpool-3-salah-slot-konate-van-dijk/
