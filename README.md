@@ -1,3 +1,7 @@
+**Bucs steamroll Giants 30-7 in first game without Daniel Jones: Takeaways**\
+`The Giants were shut out in the first half and couldn't convert a third down until after halftime in Tommy DeVito's first start of 2024.`\
+https://nytimes.com/athletic/5944029/2024/11/24/buccaneers-giants-score-result-takeaways/
+
 **F1 Mailbag: Submit your questions for our Las Vegas GP mailbag**\
 `One championship down, one to go. Ask our F1 writers what's on your mind after a fascinating Las Vegas Grand Prix. `\
 https://nytimes.com/athletic/5944503/2024/11/24/f1-las-vegas-max-verstappen-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/arts/music/charles-dumont-dead.html
 **Walker was not to blame for City's vulnerable right side - Guardiola was**\
 `City lost 4-0 at home to Spurs due to the system, not because of their right-back's pace — or lack of it`\
 https://nytimes.com/athletic/5943707/2024/11/24/guardiola-not-walker-to-blame-for-man-citys-vulnerability-down-right/
-
-**NFL Week 12 inactives and fantasy tips: Kittle, Jacobs active for Sunday's game**\
-`Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
-https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
 
