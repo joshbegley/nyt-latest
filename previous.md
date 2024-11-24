@@ -1,3 +1,11 @@
+**Without Drama or Banana, Art Auctions Struggle**\
+`Beyond the headline-grabbing sales of the fall auction season, the market tries to soar beyond its two-year slump.`\
+https://nytimes.com/2024/11/24/arts/design/art-auctions-struggle-banana.html
+
+**How good is the Central Michigan job? What Jim McElwain's replacement will inherit**\
+`The expectations are rightfully high in Mt. Pleasant, but the Chips' recent glory days are fading further into the past.`\
+https://nytimes.com/athletic/5943801/2024/11/24/central-michigan-football-coaching-search-candidates/
+
 **Lowetide: Why the Oilers' defensive deployment reveals surprises**\
 `Who is trusted by the Oilers coaching staff, and who is being faded compared to a year ago?`\
 https://nytimes.com/athletic/5942242/2024/11/24/edmonton-oilers-defensive-deployment-suprises/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/24/business/ai-data-center-bernard-looney.html
 **The Pulse: A 12-team College Football Playoff without Bama**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5943803/2024/11/24/alabama-college-football-nfl-schedule-the-pulse/
-
-**Tulsa fires football coach Kevin Wilson amid 3-8 season**\
-`This is the sixth coaching change in the AAC, joining Charlotte, East Carolina, Florida Atlantic, Rice and Temple.`\
-https://nytimes.com/athletic/5943811/2024/11/24/tulsa-kevin-wilson-fired/
-
-**Marta's resurgence, the clean sheets, the unbeaten run - Pride's NWSL championship seemed destined**\
-`Orlando has gone from being told nobody respected them to a title-winning team everyone admires (or, at least, envies).`\
-https://nytimes.com/athletic/5943603/2024/11/24/orlando-pride-nwsl-championship-destiny/
 

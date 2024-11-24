@@ -1,3 +1,11 @@
+**Without Drama or Banana, Art Auctions Struggle**\
+`Beyond the headline-grabbing sales of the fall auction season, the market tries to soar beyond its two-year slump.`\
+https://nytimes.com/2024/11/24/arts/design/art-auctions-struggle-banana.html
+
+**How good is the Central Michigan job? What Jim McElwain's replacement will inherit**\
+`The expectations are rightfully high in Mt. Pleasant, but the Chips' recent glory days are fading further into the past.`\
+https://nytimes.com/athletic/5943801/2024/11/24/central-michigan-football-coaching-search-candidates/
+
 **Cooper sacked as Leicester manager after five months in charge**\
 `Steve Cooper has been sacked as manager of Leicester City after five months in charge at the King Power Stadium.`\
 https://nytimes.com/athletic/5943887/2024/11/24/leicester-city-sack-steve-cooper/
