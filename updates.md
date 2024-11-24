@@ -1,3 +1,7 @@
+**Fred R. Harris, 94, Oklahoma Senator Who Ran for President, Dies at 94**\
+`After he spent eight years in the Senate as a moderate Democrat, his views took a leftward turn toward “new populism” in a failed 1976 shot at the presidency.`\
+https://nytimes.com/2024/11/23/us/politics/fred-r-harris-dead.html
+
 **Orlando and Marta win first NWSL championship**\
 `Banda's goal proved the difference in Orlando's first NWSL championship.`\
 https://nytimes.com/athletic/5942976/2024/11/23/nwsl-championship-orlando-pride-barbra-banda/
