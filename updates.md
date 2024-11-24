@@ -1,3 +1,11 @@
+**Yohe's 10 observations: On Sidney Crosby and a team with no hope**\
+`When you think of Crosby, you think of winning (and his 600 goals). But there's no winning with this team.`\
+https://nytimes.com/athletic/5943032/2024/11/24/penguins-sidney-crosby-no-hope/
+
+**Wild day in SEC sets up Georgia vs. Texas-Texas A&M winner in title game**\
+`Earlier in the day, Georgia wasn’t considering the SEC championship a strong possibility, much less clinching a spot before the night ended.`\
+https://nytimes.com/athletic/5943246/2024/11/24/sec-title-game-scenarios-georgia-texas-texas-am/
+
 **Jackson is more than making up for Chelsea missing out on Osimhen in the summer**\
 `The 23-year-old striker is relishing being one of Chelsea's main men, the undisputed leader of Enzo Maresca's front line`\
 https://nytimes.com/athletic/5942326/2024/11/24/nicolas-jackson-chelsea-transfer-victor-osimhen/
