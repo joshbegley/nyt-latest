@@ -1,3 +1,7 @@
+**Max Verstappen clinches fourth F1 championship, Russell wins Las Vegas GP**\
+`It wasn't his easiest path to the title, but Verstappen's year-long resilience paid off handsomely. `\
+https://nytimes.com/athletic/5943300/2024/11/24/max-verstappen-wins-f1-championship-2024-vegas/
+
 **Pistons perimeter defense struggles in loss to Magic. How can Ausar Thompson help?**\
 `Continued development of the second-year wing, who was available for the first time this season, but didn't play in the loss, is vital.`\
 https://nytimes.com/athletic/5943274/2024/11/24/pistons-lose-to-magic-ausar-thompson/

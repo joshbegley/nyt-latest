@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5943274/2024/11/24/pistons-lose-to-magic-ausar-thom
 https://nytimes.com/athletic/5469079/2024/11/24/sudan-football-humanitarian-crisis/
 
 **Max Verstappen clinches fourth F1 championship, Russell wins Las Vegas GP**\
-`Max Verstappen finished ahead of Lando Norris to win his fourth-consecutive F1 drivers' title. `\
+`It wasn't his easiest path to the title, but Verstappen's year-long resilience paid off handsomely. `\
 https://nytimes.com/athletic/5943300/2024/11/24/max-verstappen-wins-f1-championship-2024-vegas/
 
 **Nausea hits Canadiens again, but the context is completely different this time**\
