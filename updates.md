@@ -1,3 +1,11 @@
+**Ferrari's Charles Leclerc fumes 'being nice f—s me over all the time' after Las Vegas Grand Prix**\
+`Charles Leclerc was not happy after finishing behind his Ferrari teammate Carlos Sainz in Las Vegas`\
+https://nytimes.com/athletic/5943371/2024/11/24/f1-charles-leclerc-carlos-sainz-ferrari-las-vegas-gp/
+
+**Mercedes F1 rediscovers its winning rhythm on Las Vegas GP's smooth city streets**\
+`Mercedes dominated F1's top teams in Las Vegas. How? Well, that's a mystery.`\
+https://nytimes.com/athletic/5943370/2024/11/24/f1-vegas-george-russell-win-lewis-hamilton-mercedes/
+
 **Brad Treliving sitdown: On Maple Leafs' evolving identity, Marner, Tavares, Matthews' timeline and more**\
 `In a wide-ranging interview with The Athletic, the Maple Leafs GM said his team taking on coach Craig Berube's personality is a good sign.`\
 https://nytimes.com/athletic/5942287/2024/11/24/brad-treliving-maple-leafs-interview/
