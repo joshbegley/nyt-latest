@@ -1,4 +1,8 @@
 **Sooners 'finally did the things' to win, possibly eliminating Bama from Playoff**\
+`Oklahoma's defense dominated Alabama in a 24-3 Sooners win that injected more chaos into the College Football Playoff race.`\
+https://nytimes.com/athletic/5943136/2024/11/23/alabama-oklahoma-college-football-score-analysis/
+
+**Sooners 'finally did the things' to win, possibly eliminating Bama from Playoff**\
 `Alabama QB Jalen Milroe completed just two passes in the first half before finishing 11-for-26 for 164 yards and three interceptions.`\
 https://nytimes.com/athletic/5943136/2024/11/23/alabama-oklahoma-college-football-score-analysis/
 
