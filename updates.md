@@ -1,3 +1,11 @@
+**Connecticut Couple Charged in $1 Million Theft of Lululemon Goods**\
+`Investigators said the couple used trickery and misdirection to steal merchandise from Lululemon stores in at least five states.`\
+https://nytimes.com/2024/11/24/business/lululemon-theft-connecticut-couple.html
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/24/nhl-standings-playoffs-projections-odds/
+
 **I Starred in ‘Cabaret.’ We Need to Heed Its Warning.**\
 `Much has changed since the show debuted on Broadway in 1966, but it’s what hasn’t changed that should worry us.`\
 https://nytimes.com/2024/11/24/opinion/cabaret-trump-joel-grey.html
