@@ -1,3 +1,11 @@
+**Orlando City ends Atlanta United's Cinderella playoff run**\
+`Orlando City scored in the 39th after center forward Ramiro Enrique pounced on a deflected ball inside Atlanta United’s penalty area.`\
+https://nytimes.com/athletic/5944919/2024/11/24/atlanta-united-orlando-city-mls-playoffs/
+
+**Yohe: What I'm hearing about Mike Sullivan, the Penguins and the future**\
+`Mike Sullivan's fate is in the hands of Kyle Dubas and no one else.`\
+https://nytimes.com/athletic/5944592/2024/11/24/penguins-mike-sullivan-kyle-dubas-fsg/
+
 **No. 5 UCLA shocks No. 1 South Carolina in stellar defensive performance**\
 `It is the first victory over a top-ranked team in 20 tries for UCLA in program history.`\
 https://nytimes.com/athletic/5944873/2024/11/24/usc-ucla-womens-basketball-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/video/climate/100000009843098/cop29-climate-summit-deal.html
 **Chiefs top Panthers 30-27 as Mahomes' run sets up winning kick: Takeaways**\
 `The Chiefs improved to an AFC-best 10-1, while Travis Kelce moved up the all-time tight end receiving yards list. `\
 https://nytimes.com/athletic/5943979/2024/11/24/chiefs-panthers-score-result-takeaways/
-
-**Israel Conducts Widespread Strikes Near Beirut**\
-`As negotiators inch toward a cease-fire deal, the conflict between Israel and Hezbollah in Lebanon has intensified.`\
-https://nytimes.com/2024/11/24/world/middleeast/israel-strikes-lebanon.html
-
-**Behind the Blues' abrupt coaching change: 'A difference-maker became available, and we reacted'**\
-`The Blues fired Drew Bannister just 22 games into his first full season as coach, replacing him with former Bruins coach Jim Montgomery.`\
-https://nytimes.com/athletic/5943949/2024/11/24/blues-jim-montgomery-decision/
 

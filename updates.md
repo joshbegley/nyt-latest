@@ -1,3 +1,11 @@
+**Orlando City ends Atlanta United's Cinderella playoff run**\
+`Orlando City scored in the 39th after center forward Ramiro Enrique pounced on a deflected ball inside Atlanta United’s penalty area.`\
+https://nytimes.com/athletic/5944919/2024/11/24/atlanta-united-orlando-city-mls-playoffs/
+
+**Yohe: What I'm hearing about Mike Sullivan, the Penguins and the future**\
+`Mike Sullivan's fate is in the hands of Kyle Dubas and no one else.`\
+https://nytimes.com/athletic/5944592/2024/11/24/penguins-mike-sullivan-kyle-dubas-fsg/
+
 **No. 5 UCLA shocks No. 1 South Carolina in stellar defensive performance**\
 `It is the first victory over a top-ranked team in 20 tries for UCLA in program history.`\
 https://nytimes.com/athletic/5944873/2024/11/24/usc-ucla-womens-basketball-takeaways/
