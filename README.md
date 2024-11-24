@@ -1,3 +1,7 @@
+**Stewart Mandel's 12-team Playoff projections after Week 13**\
+`Fun fact: If Arizona State does get the No. 4 seed, it will play a local quarterfinal game at the Fiesta Bowl.`\
+https://nytimes.com/athletic/5944295/2024/11/24/college-football-playoff-bracket-projections-week-13/
+
 **AP Top 25: As Bama plunges, SMU earns first top-10 nod since 1985**\
 `Oregon, Ohio State, Texas and Penn State remain atop the AP Top 25 college football poll, while Alabama and Ole Miss fell out of the top 10.`\
 https://nytimes.com/athletic/5944210/2024/11/24/ap-top-25-poll-smu-alabama/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/sports/baseball/rico-carty-dead.html
 **How Wisconsin landed 4-star QB Carter Smith, former Michigan commit**\
 `Smith, who originally committed to Michigan, represents the second-highest rated quarterback for the Badgers in the online ranking era.`\
 https://nytimes.com/athletic/5942968/2024/11/24/wisconsin-recruiting-carter-smith-quarterback/
-
-**2 Dead After Civil Air Patrol Plane Crashes in Colorado Mountains**\
-`A Cessna plane crashed while conducting a training exercise, killing the pilot and an aerial photographer, the authorities said.`\
-https://nytimes.com/2024/11/24/us/colorado-civil-patrol-plane-crash.html
 
