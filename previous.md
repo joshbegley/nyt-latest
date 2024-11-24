@@ -1,3 +1,11 @@
+**Brad Treliving sitdown: On Maple Leafs' evolving identity, Marner, Tavares, Matthews' timeline and more**\
+`In a wide-ranging interview with The Athletic, the Maple Leafs GM said his team taking on coach Craig Berube's personality is a good sign.`\
+https://nytimes.com/athletic/5942287/2024/11/24/brad-treliving-maple-leafs-interview/
+
+**'It was electric': Oilers' Vasily Podkolzin finally finds the net. He wants more**\
+`Podkolzin hadn’t scored an NHL goal since March 23, 2023 — a span of 42 games. His hard work paid off.`\
+https://nytimes.com/athletic/5943325/2024/11/24/vasily-podkolzin-oilers-first-goal/
+
 **Week 13 CFP race lessons: SEC teams lose benefit of the doubt, Big 12's chaos continues**\
 `Playoff expansion is delivering exactly what was promised: more meaningful games and more chances for mayhem.`\
 https://nytimes.com/athletic/5943486/2024/11/24/college-football-playoff-week-13-sec-big-12-indiana/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/24/opinion/trump-recess-appointments-constitution.ht
 **The Theologian Who Changed His Mind About Gay Marriage**\
 `Can God be wrong?`\
 https://nytimes.com/2024/11/24/opinion/gay-marriage-religion-theology-us.html
-
-**'This sucks': At Indiana's iconic bar, the thrill of possibility, the agony of reality**\
-`The crowd thins but remains strong through the finish of Ohio State’s 38-15 rout. It remains proud, too, if realistic.`\
-https://nytimes.com/athletic/5943036/2024/11/24/indiana-hoosiers-football-fans-curt-cignetti/
-
-**Inside Max Verstappen's Las Vegas F1 title clincher: Relief, elation and beer**\
-`Reaching the landmark fourth title in Las Vegas of all places was a surreal but poignant moment in Verstappen's career. `\
-https://nytimes.com/athletic/5941479/2024/11/24/f1-max-verstappen-wins-championship-las-vegas/
 
