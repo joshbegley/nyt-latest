@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Indiana hangs on as Alabama, Ole Miss fall out**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/24/college-football-playoff-projections-odds/
+
 **Taiwan Is Ready to Defend Democracy. Is Trump?**\
 `Many Americans voted for border security. Try living right across from China.`\
 https://nytimes.com/2024/11/24/opinion/taiwan-china-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942550/2024/11/24/16-things-explain-guardiola-reco
 **Ethan Nwaneri, Martin Odegaard and plotting the best path for Arsenal's prodigious teenager**\
 `Arteta wants to build Nwaneri's career brick by brick but the teenager has already earned the respect and trust of his senior players`\
 https://nytimes.com/athletic/5942446/2024/11/24/ethan-nwaneri-martin-odegaard-teenage-prodigy/
-
-**How Sabres put themselves in playoff picture with California sweep: 10 takeaways**\
-`The Sabres' 11-9-1 record has them in playoff position with Thanksgiving just a few days away. How did it happen?`\
-https://nytimes.com/athletic/5943201/2024/11/24/sabres-sharks-ducks-kings-takeaways/
 
