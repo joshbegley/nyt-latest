@@ -1,3 +1,7 @@
+**Martin takes responsibility for Southampton's defensive errors: 'That is on me'**\
+`Southampton manager Russell Martin says he takes responsibility for the goals that his side conceded during their 3-2 defeat to Liverpool.`\
+https://nytimes.com/athletic/5944429/2024/11/24/southampton-russell-martin-liverpool/
+
 **Lions cruise to 24-6 win over Colts to earn 9th straight victory: Key takeaways**\
 `Detroit pounced on Indianapolis en route to securing a second consecutive 10-win season for the first time in franchise history.`\
 https://nytimes.com/athletic/5944009/2024/11/24/lions-colts-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944419/2024/11/24/notre-dame-army-marcus-freeman-p
 **Trump’s Cabinet: Many Ideologies Behind the Veil of ‘America First’**\
 `One faction of prospective nominees appears focused on revenge, another on calming markets and a third on relentlessly — perhaps hopelessly — cutting people and budgets.`\
 https://nytimes.com/2024/11/24/us/politics/trump-cabinet-america-first.html
-
-**Tony Campolo, Preacher Who Challenged Religious Right, Dies at 89**\
-`A mesmerizing speaker, he urged his fellow evangelicals to turn away from politics in favor of the values of charity and love espoused by Jesus.`\
-https://nytimes.com/2024/11/24/us/tony-campolo-dead.html
 
