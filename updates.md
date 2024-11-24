@@ -1,3 +1,7 @@
+**Hornets' Grant Williams tore ACL in loss to Bucks**\
+`He is expected to miss the remainder of the season, per multiple reports.`\
+https://nytimes.com/athletic/5944246/2024/11/24/grant-williams-hornets-acl-tear/
+
 **Hezbollah Fires About 250 Projectiles Into Israel**\
 `Hezbollah’s attack came after Israel’s deadly strike on Beirut on Saturday. It was one of the largest mounted by the militant group against Israel since it started firing on the country last year in solidarity with Hamas.`\
 https://nytimes.com/video/world/middleeast/100000009843029/hezbollah-airstrikes-israel-middle-east-war.html
