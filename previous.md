@@ -2,7 +2,7 @@
 `Orlando City scored in the 39th after center forward Ramiro Enrique pounced on a deflected ball inside Atlanta United’s penalty area.`\
 https://nytimes.com/athletic/5944919/2024/11/24/atlanta-united-orlando-city-mls-playoffs/
 
-**Yohe: What I'm hearing about Mike Sullivan, the Penguins and the future**\
+**What I'm hearing about the Penguins, Mike Sullivan and the future**\
 `Mike Sullivan's fate is in the hands of Kyle Dubas and no one else.`\
 https://nytimes.com/athletic/5944592/2024/11/24/penguins-mike-sullivan-kyle-dubas-fsg/
 
