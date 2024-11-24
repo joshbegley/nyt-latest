@@ -1,3 +1,11 @@
+**Madrid president Perez criticises FIFA, UEFA over football calendar**\
+`Real Madrid president Florentino Perez has accused UEFA and FIFA of &#8220;putting the health of players at risk&#8221; and &#8220;disrespecting the fans&#8221; in an attack on the global football calendar.`\
+https://nytimes.com/athletic/5943517/2024/11/24/real-madrid-florentino-perez-uefa-fifa/
+
+**Matas Buzelis provides glimpse of future for a Bulls team struggling in the present**\
+`Matas Buzelis put on a show with 12 second-quarter points and a memorable dunk. It could be remembered as the moment Buzelis began to bloom.`\
+https://nytimes.com/athletic/5943363/2024/11/24/matas-buzelis-bulls-grizzlies/
+
 **After a very familiar loss, it's clear: The Lakers still haven't figured out the Nuggets**\
 `The Nuggets punched the Lakers in the mouth and Los Angeles immediately folded, losing the 13th of its last 14 games against Denver.`\
 https://nytimes.com/athletic/5941433/2024/11/24/lakers-nuggets-anthony-davis-nikola-jokic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5943371/2024/11/24/f1-charles-leclerc-carlos-sainz-
 **Mercedes F1 rediscovers its winning rhythm on Las Vegas GP's smooth city streets**\
 `Mercedes dominated F1's top teams in Las Vegas. How? Well, that's a mystery.`\
 https://nytimes.com/athletic/5943370/2024/11/24/f1-vegas-george-russell-win-lewis-hamilton-mercedes/
-
-**Brad Treliving sitdown: On Maple Leafs' evolving identity, Marner, Tavares, Matthews' timeline and more**\
-`In a wide-ranging interview with The Athletic, the Maple Leafs GM said his team taking on coach Craig Berube's personality is a good sign.`\
-https://nytimes.com/athletic/5942287/2024/11/24/brad-treliving-maple-leafs-interview/
-
-**'It was electric': Oilers' Vasily Podkolzin finally finds the net. He wants more**\
-`Podkolzin hadn’t scored an NHL goal since March 23, 2023 — a span of 42 games. His hard work paid off.`\
-https://nytimes.com/athletic/5943325/2024/11/24/vasily-podkolzin-oilers-first-goal/
 
