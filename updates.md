@@ -1,3 +1,7 @@
+**Alabama plagued by turnovers, fails to score touchdown in loss to Oklahoma**\
+`Alabama QB Jalen Milroe completed just two passes in the first half before finishing 11-for-26 for 164 yards and three interceptions.`\
+https://nytimes.com/athletic/5943136/2024/11/23/alabama-oklahoma-college-football-score-analysis/
+
 **Inside Minnesotan Travis Boyd's debut with Wild: Hoofing through snow and a dream come true**\
 `To say Boyd will never forget his debut with his home state Wild in Calgary is an understatement.`\
 https://nytimes.com/athletic/5943021/2024/11/23/wild-flames-travis-boyd/

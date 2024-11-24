@@ -1,3 +1,7 @@
+**Alabama plagued by turnovers, fails to score touchdown in loss to Oklahoma**\
+`Alabama QB Jalen Milroe completed just two passes in the first half before finishing 11-for-26 for 164 yards and three interceptions.`\
+https://nytimes.com/athletic/5943136/2024/11/23/alabama-oklahoma-college-football-score-analysis/
+
 **Inside Minnesotan Travis Boyd's debut with Wild: Hoofing through snow and a dream come true**\
 `To say Boyd will never forget his debut with his home state Wild in Calgary is an understatement.`\
 https://nytimes.com/athletic/5943021/2024/11/23/wild-flames-travis-boyd/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/23/pageoneplus/corrections-nov-24-2024.html
 **Ashton Jeanty hits 2,000 yards as Boise State clinches MWC title game bid**\
 `Ashton Jeanty has 2,062 yards in 11 games as Boise State stayed atop the Group of 5 Playoff race with a 17-13 win at Wyoming.`\
 https://nytimes.com/athletic/5943012/2024/11/23/ashton-jeanty-rushing-yards-boise-state-record/
-
-**Mirtle: Nylanders ready to add chapter to NHL's long history of brotherly acts**\
-`Sunday night, William Nylander and his younger brother, Alex, will join four other sets of brothers who have played together as Leafs. `\
-https://nytimes.com/athletic/5942661/2024/11/23/maple-leafs-william-alex-nylander-brothers-nhl/
 
