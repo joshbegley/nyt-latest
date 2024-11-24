@@ -1,3 +1,7 @@
+**Does the Conductor Klaus Mäkelä Deserve His Meteoric Rise?**\
+`The 28-year-old maestro, already entrusted with two storied ensembles, visited Carnegie Hall with the superb Concertgebouw Orchestra of Amsterdam.`\
+https://nytimes.com/2024/11/24/arts/music/klaus-makela-concertgebouw-carnegie.html
+
 **SEC vibes rankings: What in the world just happened?**\
 `The SEC is the deepest conference, the hardest to play in and could deserve only three teams in the College Football Playoff.`\
 https://nytimes.com/athletic/5943838/2024/11/24/week-13-sec-football-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943887/2024/11/24/leicester-city-sack-steve-cooper
 **The Briefing: Southampton 2 Liverpool 3 - Salah to rescue... but what happened at the back? And was it a penalty?**\
 `Liverpool had a tougher afternoon away to Southampton that many expected — The Athletic analyses the talking points from a thrilling game`\
 https://nytimes.com/athletic/5940174/2024/11/24/southampton-2-liverpool-3-salah-slot-konate-van-dijk/
-
-**Getting the Election Wrong, and Right**\
-`Readers respond to a column by David Brooks. Also: Blaming the Green Party for a Democratic loss in the Senate race in Pennsylvania; a sitcom cabinet.`\
-https://nytimes.com/2024/11/24/opinion/trump-harris-election-lessons.html
 
