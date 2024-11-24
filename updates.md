@@ -1,3 +1,7 @@
+**Does the Conductor Klaus Mäkelä Deserve His Meteoric Rise?**\
+`The 28-year-old maestro, already entrusted with two storied ensembles, visited Carnegie Hall with the superb Concertgebouw Orchestra of Amsterdam.`\
+https://nytimes.com/2024/11/24/arts/music/klaus-makela-concertgebouw-carnegie.html
+
 **The Briefing: Southampton 2 Liverpool 3 - Salah to rescue... but what happened at the back? And was it a penalty?**\
 `Liverpool had a tougher afternoon away to Southampton that many expected — The Athletic analyses the talking points from a thrilling game`\
 https://nytimes.com/athletic/5940174/2024/11/24/southampton-2-liverpool-3-salah-slot-konate-van-dijk/
