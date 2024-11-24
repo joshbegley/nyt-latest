@@ -1,3 +1,7 @@
+**Cooper sacked as Leicester manager after five months in charge**\
+`Steve Cooper has been sacked as manager of Leicester City after just five months in charge at the King Power Stadium.`\
+https://nytimes.com/athletic/5943887/2024/11/24/leicester-city-sack-steve-cooper/
+
 **Lowetide: Why the Oilers' defensive deployment reveals surprises**\
 `Who is trusted by the Oilers coaching staff, and who is being faded compared to a year ago?`\
 https://nytimes.com/athletic/5942242/2024/11/24/edmonton-oilers-defensive-deployment-suprises/
