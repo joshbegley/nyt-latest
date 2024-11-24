@@ -1,3 +1,7 @@
+**Dartmouth Sorority and 2 Fraternity Members Are Charged After Student’s Drowning**\
+`The 20-year-old student died this summer after attending an off-campus party. The fraternity members and sorority were charged with offenses related to providing alcohol to minors.`\
+https://nytimes.com/2024/11/24/us/dartmouth-student-drowning-charges.html
+
 **Walker was not to blame for City's vulnerable right side - Guardiola was**\
 `City lost 4-0 at home to Spurs due to the system, not because of their right-back's pace — or lack of it`\
 https://nytimes.com/athletic/5943707/2024/11/24/guardiola-not-walker-to-blame-for-man-citys-vulnerability-down-right/

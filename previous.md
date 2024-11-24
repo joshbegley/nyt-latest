@@ -1,3 +1,7 @@
+**Dartmouth Sorority and 2 Fraternity Members Are Charged After Student’s Drowning**\
+`The 20-year-old student died this summer after attending an off-campus party. The fraternity members and sorority were charged with offenses related to providing alcohol to minors.`\
+https://nytimes.com/2024/11/24/us/dartmouth-student-drowning-charges.html
+
 **Sampson: Notre Dame showing no signs of letting up on ruthless march to the Playoff**\
 `Notre Dame is operating at levels of ruthlessness not seen under Marcus Freeman. Perhaps not seen at Notre Dame in a long time.`\
 https://nytimes.com/athletic/5944419/2024/11/24/notre-dame-army-marcus-freeman-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944295/2024/11/24/college-football-playoff-bracket
 **AP Top 25: As Bama plunges, SMU earns first top-10 nod since 1985**\
 `Oregon, Ohio State, Texas and Penn State remain atop the AP Top 25 college football poll, while Alabama and Ole Miss fell out of the top 10.`\
 https://nytimes.com/athletic/5944210/2024/11/24/ap-top-25-poll-smu-alabama/
-
-**Hornets' Grant Williams out for season with torn ACL**\
-`The Hornets are 6-10 this season and have been dealing with a slew of injuries.`\
-https://nytimes.com/athletic/5944246/2024/11/24/grant-williams-hornets-acl-tear/
 
