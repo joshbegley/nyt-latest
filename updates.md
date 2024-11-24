@@ -1,3 +1,7 @@
+**Corrections: Nov. 24, 2024**\
+`Corrections that appeared in print on Sunday, Nov. 24, 2024.`\
+https://nytimes.com/2024/11/23/pageoneplus/corrections-nov-24-2024.html
+
 **College Football Playoff 2024 projections: Indiana, Ole Miss tumble after losses**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
