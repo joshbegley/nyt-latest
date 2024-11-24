@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5942242/2024/11/24/edmonton-oilers-defensive-deploy
 https://nytimes.com/athletic/5943887/2024/11/24/leicester-city-sack-steve-cooper/
 
 **The Briefing: Southampton 2 Liverpool 3 - Salah to rescue... but what happened at the back? And was it a penalty?**\
-`Liverpool had a tougher afternoon away to Southampton that many expected - The Athletic analyses the talking points from a thrilling game`\
+`Liverpool had a tougher afternoon away to Southampton that many expected — The Athletic analyses the talking points from a thrilling game`\
 https://nytimes.com/athletic/5940174/2024/11/24/southampton-2-liverpool-3-salah-slot-konate-van-dijk/
 
 **Getting the Election Wrong, and Right**\
