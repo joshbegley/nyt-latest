@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5943012/2024/11/23/ashton-jeanty-rushing-yards-bois
 `Sunday night, William Nylander and his younger brother, Alex, will join four other sets of brothers who have played together as Leafs. `\
 https://nytimes.com/athletic/5942661/2024/11/23/maple-leafs-william-alex-nylander-brothers-nhl/
 
+**College Football Playoff 2024 projections: Indiana, Ole Miss tumble after losses**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
+
 **Penguins' Sidney Crosby scores 600th career goal, joins elite company**\
 `Crosby became only the 21st NHL player to score at least 600 career goals.`\
 https://nytimes.com/athletic/5900736/2024/11/23/penguins-sidney-crosby-600-career-nhl-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942640/2024/11/23/travis-hunter-nfl-draft-2025-kan
 **How Wild fell in shootout despite late rally without Kirill Kaprizov: 3 takeaways**\
 `Playing without their superstar, the Wild scored two late goals before the Flames won 4-3 in a five-round shootout.`\
 https://nytimes.com/athletic/5942589/2024/11/23/wild-flames-kirill-kaprizov-injury/
-
-**Kansas continues to cause Big 12 Playoff angst. Latest victim: Deion's Buffs**\
-`The Big 12 is wide open after a resurgent Kansas team upended Colorado in Kansas City. `\
-https://nytimes.com/athletic/5942727/2024/11/23/colorado-kansas-score-analysis-reaction/
 
