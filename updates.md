@@ -1,3 +1,15 @@
+**How Canucks overcame harsh Quinn Hughes ejection to flatten Senators: 3 takeaways**\
+`The Canucks' 4-3 victory set a positive tone for the opening of their six-game road trip.`\
+https://nytimes.com/athletic/5942948/2024/11/23/canucks-senators-quinn-hughes-ejection/
+
+**Fred R. Harris, Former Oklahoma Senator Who Ran for President, Dies at 94**\
+`After he spent eight years in the Senate as a moderate Democrat, his views took a leftward turn toward “new populism” in a failed 1976 shot at the presidency.`\
+https://nytimes.com/2024/11/23/us/politics/fred-r-harris-dead.html
+
+**Ashton Jeanty hits 2,000 yards as Boise State clinches MWC title game bid**\
+`Ashton Jeanty has 2,062 yards in 11 games as Boise State stayed atop the Group of 5 Playoff race with a 17-13 win at Wyoming.`\
+https://nytimes.com/athletic/5943012/2024/11/23/ashton-jeanty-rushing-yards-boise-state-record/
+
 **Iowa's scorched-earth QB situation and what it means for Kirk Ferentz**\
 `Ferentz calling his quarterback position 'clearly cloudy' perfectly summarizes the situation.`\
 https://nytimes.com/athletic/5943035/2024/11/23/iowa-quarterbacks-kirk-ferentz-cade-mcnamara/
