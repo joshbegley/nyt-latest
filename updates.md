@@ -1,3 +1,7 @@
+**Mirtle: Nylanders ready to add chapter to NHL's long history of brotherly acts**\
+`On Sunday night, William Nylander and younger brother Alex will join four other sets of brothers who have played together as Leafs. `\
+https://nytimes.com/athletic/5942661/2024/11/23/maple-leafs-william-alex-nylander-brothers-nhl/
+
 **Penguins' Sidney Crosby scores 600th career goal, joins elite company**\
 `Crosby became only the 21st NHL player to score at least 600 career goals.`\
 https://nytimes.com/athletic/5900736/2024/11/23/penguins-sidney-crosby-600-career-nhl-goals/
