@@ -2,6 +2,10 @@
 `Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
 
+**College Football Playoff 2024 projections: Indiana hangs on as Alabama, Ole Miss fall out**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/24/college-football-playoff-projections-odds/
+
 **Aina in advanced talks over new Forest deal**\
 `Nottingham Forest are in advanced discussions with defender Ola Aina over a contract extension.`\
 https://nytimes.com/athletic/5943480/2024/11/24/ola-aina-new-nottingham-forest-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943486/2024/11/24/college-football-playoff-week-13
 **Lando Norris leaves Las Vegas with title hopes dashed but plenty to feel good about**\
 `Lando Norris’ longshot bid to wrest the F1 drivers’ championship from Max Verstappen ended Saturday. But he has plenty to like for 2025.`\
 https://nytimes.com/athletic/5943377/2024/11/24/lando-norris-formula-one-drivers-championship-max-verstappen/
-
-**Hezbollah Fires Waves of Projectiles Into Israel After Deadly Strike in Beirut**\
-`Israel’s military has been intensifying operations against Hezbollah in Lebanon in an apparent attempt to pressure the militant group into a cease-fire.`\
-https://nytimes.com/2024/11/24/world/europe/israel-lebanon-hezbollah.html
 
