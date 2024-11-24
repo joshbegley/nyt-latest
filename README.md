@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5942968/2024/11/24/wisconsin-recruiting-carter-smit
 `A Cessna plane crashed while conducting a training exercise, killing the pilot and an aerial photographer, the authorities said.`\
 https://nytimes.com/2024/11/24/us/colorado-civil-patrol-plane-crash.html
 
+**Montana State leads FCS bracket, South Dakota State chasing three-peat**\
+`The 24-team FCS playoff bracket is set with Montana State claiming the No. 1 overall seed.`\
+https://nytimes.com/athletic/5944091/2024/11/24/fcs-football-playoff-bracket-montana-state-south-dakota-state/
+
 **Blue Jackets Sunday Gathering: Olivier's emergence, Jiricek's future and a big payday coming**\
 `Olivier's emergence has been the most surprising development over the first six weeks of the season.`\
 https://nytimes.com/athletic/5941958/2024/11/24/blue-jackets-jiricek-olivier/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/arts/music/klaus-makela-concertgebouw-carnegie.ht
 **SEC vibes rankings: What in the world just happened?**\
 `The SEC is the deepest conference, the hardest to play in and could deserve only three teams in the College Football Playoff.`\
 https://nytimes.com/athletic/5943838/2024/11/24/week-13-sec-football-rankings/
-
-**NFL Week 12 inactives and fantasy tips: Mike Evans, Malik Nabers active for Sunday**\
-`Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
-https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
 
