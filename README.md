@@ -1,3 +1,7 @@
+**Vikings beat Bears 30-27 in OT as Addison has career day: Key takeaways**\
+`The Bears got the ball first in overtime but were forced to punt, leaving Minnesota with the chance to win on a field goal.`\
+https://nytimes.com/athletic/5943990/2024/11/24/vikings-bears-score-result-takeaways/
+
 **Cowboys shock Commanders 34-26 after chaotic fourth quarter: Takeaways**\
 `A missed PAT by Washington's Austin Seibert let the Cowboys off the hook for allowing an 86-yard TD with under 30 seconds left.`\
 https://nytimes.com/athletic/5944044/2024/11/24/commanders-cowboys-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944429/2024/11/24/southampton-russell-martin-liver
 **Lions cruise to win over Colts to earn 9th straight victory: Key takeaways**\
 `Detroit pounced on Indianapolis en route to securing a second consecutive 10-win season for the first time in franchise history.`\
 https://nytimes.com/athletic/5944009/2024/11/24/lions-colts-score-result-takeaways/
-
-**Titans upset Texans 32-27 in AFC South battle: Takeaways**\
-`The Titans' defense sealed the game with a safety in the turnover-heavy affair at NRG Stadium.`\
-https://nytimes.com/athletic/5944412/2024/11/24/texans-titans-score-result-takeaways/
 
