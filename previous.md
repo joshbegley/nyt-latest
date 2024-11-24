@@ -1,3 +1,7 @@
+**NFL Week 12 inactives and fantasy tips: Mike Evans, Keenan Allen questionable for Sunday**\
+`Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
+
 **Aina in advanced talks over new Forest deal**\
 `Nottingham Forest are in advanced discussions with defender Ola Aina over a contract extension.`\
 https://nytimes.com/athletic/5943480/2024/11/24/ola-aina-new-nottingham-forest-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943377/2024/11/24/lando-norris-formula-one-drivers
 **Hezbollah Fires Waves of Projectiles Into Israel After Deadly Strike in Beirut**\
 `Israel’s military has been intensifying operations against Hezbollah in Lebanon in an apparent attempt to pressure the militant group into a cease-fire.`\
 https://nytimes.com/2024/11/24/world/europe/israel-lebanon-hezbollah.html
-
-**Neighbors Are Burning Each Other’s Land to Stop Dangerous Wildfires. Let’s Help Them.**\
-`We don’t use prescribed burns enough.`\
-https://nytimes.com/2024/11/24/opinion/wildfires-new-york-new-jersey-prescribed-burn.html
 

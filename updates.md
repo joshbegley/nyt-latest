@@ -1,3 +1,7 @@
+**NFL Week 12 inactives and fantasy tips: Mike Evans, Keenan Allen questionable for Sunday**\
+`Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
+
 **Aina in advanced talks over new Forest deal**\
 `Nottingham Forest are in advanced discussions with defender Ola Aina over a contract extension.`\
 https://nytimes.com/athletic/5943480/2024/11/24/ola-aina-new-nottingham-forest-contract/
