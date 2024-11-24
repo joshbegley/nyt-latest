@@ -1,3 +1,7 @@
+**Rico Carty, Exceptional Hitter Who Was Stymied by Injuries, Dies at 85**\
+`A Dominican baseball star, he had a dazzling rookie year and became a pioneering designated hitter, but injuries and tuberculosis held him back.`\
+https://nytimes.com/2024/11/24/sports/baseball/rico-carty-dead.html
+
 **How Wisconsin landed 4-star QB Carter Smith, former Michigan commit**\
 `Smith, who originally committed to Michigan, represents the second-highest rated quarterback for the Badgers in the online ranking era.`\
 https://nytimes.com/athletic/5942968/2024/11/24/wisconsin-recruiting-carter-smith-quarterback/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/arts/television/chuck-woolery-dead.html
 **Without Drama or Banana, Art Auctions Struggle**\
 `Beyond the headline-grabbing sales of the fall auction season, the market tries to soar beyond its two-year slump.`\
 https://nytimes.com/2024/11/24/arts/design/art-auctions-struggle-banana.html
-
-**How good is the Central Michigan job? What Jim McElwain's replacement will inherit**\
-`The expectations are rightfully high in Mt. Pleasant, but the Chips' recent glory days are fading further into the past.`\
-https://nytimes.com/athletic/5943801/2024/11/24/central-michigan-football-coaching-search-candidates/
 

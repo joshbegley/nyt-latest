@@ -1,3 +1,7 @@
+**Rico Carty, Exceptional Hitter Who Was Stymied by Injuries, Dies at 85**\
+`A Dominican baseball star, he had a dazzling rookie year and became a pioneering designated hitter, but injuries and tuberculosis held him back.`\
+https://nytimes.com/2024/11/24/sports/baseball/rico-carty-dead.html
+
 **How Wisconsin landed 4-star QB Carter Smith, former Michigan commit**\
 `Smith, who originally committed to Michigan, represents the second-highest rated quarterback for the Badgers in the online ranking era.`\
 https://nytimes.com/athletic/5942968/2024/11/24/wisconsin-recruiting-carter-smith-quarterback/
