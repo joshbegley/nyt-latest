@@ -1,3 +1,7 @@
+**Vikings beat Bears 30-27 in OT as Addison has career day: Key takeaways**\
+`The Bears got the ball first in overtime but were forced to punt, giving Minnesota the chance to win with a field goal.`\
+https://nytimes.com/athletic/5943990/2024/11/24/vikings-bears-score-result-takeaways/
+
 **What I'm hearing about the Penguins, Mike Sullivan and the future**\
 `Mike Sullivan's fate is in the hands of Kyle Dubas and no one else.`\
 https://nytimes.com/athletic/5944592/2024/11/24/penguins-mike-sullivan-kyle-dubas-fsg/
