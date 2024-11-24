@@ -1,3 +1,7 @@
+**Cowboys shock Commanders 34-26 after chaotic fourth quarter: Takeaways**\
+`A missed PAT by Washington's Austin Seibert let the Cowboys off the hook for allowing an 86-yard TD with under 30 seconds left.`\
+https://nytimes.com/athletic/5944044/2024/11/24/commanders-cowboys-score-result-takeaways/
+
 **Nations at COP29 Climate Summit Agree to Annual $300 Billion Pledge**\
 `Delegates from developing countries described the deal’s financial target, $300 billion per year by 2035, as lacking the ambition needed to help their governments combat climate change.`\
 https://nytimes.com/video/climate/100000009843098/cop29-climate-summit-deal.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5944608/2024/11/24/jeeno-thitikul-lpga-tour-champio
 `Southampton manager Russell Martin says he takes responsibility for the goals that his side conceded during their 3-2 defeat to Liverpool.`\
 https://nytimes.com/athletic/5944429/2024/11/24/southampton-russell-martin-liverpool/
 
-**Lions cruise to 24-6 win over Colts to earn 9th straight victory: Key takeaways**\
+**Lions cruise to win over Colts to earn 9th straight victory: Key takeaways**\
 `Detroit pounced on Indianapolis en route to securing a second consecutive 10-win season for the first time in franchise history.`\
 https://nytimes.com/athletic/5944009/2024/11/24/lions-colts-score-result-takeaways/
 
 **Titans upset Texans 32-27 in AFC South battle: Takeaways**\
 `The Titans' defense sealed the game with a safety in the turnover-heavy affair at NRG Stadium.`\
 https://nytimes.com/athletic/5944412/2024/11/24/texans-titans-score-result-takeaways/
-
-**Bucs beat Giants 30-7 in N.Y.'s first game without Daniel Jones: Takeaways**\
-`The Giants were shut out in the first half and couldn't convert a third down until after halftime in Tommy DeVito's first start of 2024.`\
-https://nytimes.com/athletic/5944029/2024/11/24/buccaneers-giants-score-result-takeaways/
 

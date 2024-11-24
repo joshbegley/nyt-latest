@@ -1,3 +1,11 @@
+**Cowboys shock Commanders 34-26 after chaotic fourth quarter: Takeaways**\
+`A missed PAT by Washington's Austin Seibert let the Cowboys off the hook for allowing an 86-yard TD with under 30 seconds left.`\
+https://nytimes.com/athletic/5944044/2024/11/24/commanders-cowboys-score-result-takeaways/
+
+**Lions cruise to win over Colts to earn 9th straight victory: Key takeaways**\
+`Detroit pounced on Indianapolis en route to securing a second consecutive 10-win season for the first time in franchise history.`\
+https://nytimes.com/athletic/5944009/2024/11/24/lions-colts-score-result-takeaways/
+
 **Nations at COP29 Climate Summit Agree to Annual $300 Billion Pledge**\
 `Delegates from developing countries described the deal’s financial target, $300 billion per year by 2035, as lacking the ambition needed to help their governments combat climate change.`\
 https://nytimes.com/video/climate/100000009843098/cop29-climate-summit-deal.html
