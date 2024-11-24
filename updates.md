@@ -1,3 +1,15 @@
+**F1 Mailbag: Submit your questions for our Las Vegas GP mailbag**\
+`One championship down, one to go. Ask our F1 writers what's on your mind after a fascinating Las Vegas Grand Prix. `\
+https://nytimes.com/athletic/5944503/2024/11/24/f1-las-vegas-max-verstappen-mailbag/
+
+**Monday Briefing: U.N. climate talks End With a Deal**\
+`Plus, photographing the world’s food.`\
+https://nytimes.com/2024/11/24/briefing/climate-talks-middle-east-trump.html
+
+**Wild star Kirill Kaprizov escapes serious injury, listed as day-to-day**\
+`The Wild currently sit in second place in the Central Division at 13-3-4.`\
+https://nytimes.com/athletic/5944485/2024/11/24/wild-kirill-kaprizov-injury-update/
+
 **Dartmouth Sorority and 2 Fraternity Members Are Charged After Student’s Drowning**\
 `The 20-year-old student died this summer after attending an off-campus party. The fraternity members and sorority were charged with offenses related to providing alcohol to minors.`\
 https://nytimes.com/2024/11/24/us/dartmouth-student-drowning-charges.html
