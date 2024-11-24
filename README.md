@@ -1,7 +1,3 @@
-**Penn State makes right calls late to escape Minnesota: Takeaways from a close call**\
-`No. 4 Penn State survived an upset bid from Minnesota on Saturday after converting three fourth downs on its final possession.`\
-https://nytimes.com/athletic/5942716/2024/11/23/penn-state-minnesota-score-recap-playoff/
-
 **Travis Hunter tracker: Superstar's huge performance can't save Colorado from upset loss**\
 `Hunter scored twice and surpassed 1,000 yards receiving for the season during Saturday's game, but it wasn't enough for Colorado.`\
 https://nytimes.com/athletic/5942640/2024/11/23/travis-hunter-nfl-draft-2025-kansas/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5942754/2024/11/23/notre-dame-usc-result-score-take
 **California Educator Is Charged With Molesting 8 Children**\
 `David Braff was first accused of misconduct years ago but has since held a series of school jobs. The authorities are investigating the possibility of additional victims.`\
 https://nytimes.com/2024/11/23/us/california-assistant-principal-sexual-misconduct.html
+
+**Is Flyers' Matvei Michkov trending to be better than Blackhawks' Connor Bedard?**\
+`The first meeting between the young stars offered a glimpse of a potential budding rivalry for years to come.`\
+https://nytimes.com/athletic/5942675/2024/11/23/flyers-blackhawks-matvei-michkov-connor-bedard/
 
