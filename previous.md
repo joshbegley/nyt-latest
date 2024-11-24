@@ -1,3 +1,15 @@
+**Walker was not to blame for City's vulnerable right side - Guardiola was**\
+`City lost 4-0 at home to Spurs due to the system, not because of their right-back's pace - or lack of it`\
+https://nytimes.com/athletic/5943707/2024/11/24/guardiola-not-walker-to-blame-for-man-citys-vulnerability-down-right/
+
+**NFL Week 12 inactives and fantasy tips: Kittle, Jacobs active for Sunday's game**\
+`Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
+
+**Bayer Leverkusen CEO positive about Alonso and Wirtz's futures**\
+`Bayer Leverkusen CEO Fernando Carro has denied reports that head coach Xabi Alonso and star midfielder Florian Wirtz are certain to leave the club in the near future.`\
+https://nytimes.com/athletic/5944367/2024/11/24/leverkusen-alonso-wirtz-future/
+
 **Stewart Mandel's 12-team Playoff projections after Week 13**\
 `Fun fact: If Arizona State does get the No. 4 seed, it will play a local quarterfinal game at the Fiesta Bowl.`\
 https://nytimes.com/athletic/5944295/2024/11/24/college-football-playoff-bracket-projections-week-13/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5944011/2024/11/24/italy-davis-cup-win-netherlands/
 **What to Know About Brooke Rollins, Trump’s Choice for Agriculture Secretary**\
 `A Texas native, Ms. Rollins worked in the first Trump White House and has also led two influential conservative think tanks.`\
 https://nytimes.com/2024/11/24/us/politics/brooke-rollins-trump-agriculture.html
-
-**The Briefing: Ipswich 1 Man Utd 1 - That opening goal, Onana's importance, what Amorim has to do**\
-`Our writers break down the action from Ruben Amorim's first match in charge of Manchester United`\
-https://nytimes.com/athletic/5940184/2024/11/24/ipswich-man-utd-amorim/
-
-**Rico Carty, Exceptional Hitter Who Was Stymied by Injuries, Dies at 85**\
-`A Dominican baseball star, he had a dazzling rookie year and became a pioneering designated hitter, but injuries and tuberculosis held him back.`\
-https://nytimes.com/2024/11/24/sports/baseball/rico-carty-dead.html
-
-**How Wisconsin landed 4-star QB Carter Smith, former Michigan commit**\
-`Smith, who originally committed to Michigan, represents the second-highest rated quarterback for the Badgers in the online ranking era.`\
-https://nytimes.com/athletic/5942968/2024/11/24/wisconsin-recruiting-carter-smith-quarterback/
 

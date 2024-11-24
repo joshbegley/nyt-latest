@@ -1,3 +1,15 @@
+**Walker was not to blame for City's vulnerable right side - Guardiola was**\
+`City lost 4-0 at home to Spurs due to the system, not because of their right-back's pace - or lack of it`\
+https://nytimes.com/athletic/5943707/2024/11/24/guardiola-not-walker-to-blame-for-man-citys-vulnerability-down-right/
+
+**NFL Week 12 inactives and fantasy tips: Kittle, Jacobs active for Sunday's game**\
+`Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
+
+**Bayer Leverkusen CEO positive about Alonso and Wirtz's futures**\
+`Bayer Leverkusen CEO Fernando Carro has denied reports that head coach Xabi Alonso and star midfielder Florian Wirtz are certain to leave the club in the near future.`\
+https://nytimes.com/athletic/5944367/2024/11/24/leverkusen-alonso-wirtz-future/
+
 **Stewart Mandel's 12-team Playoff projections after Week 13**\
 `Fun fact: If Arizona State does get the No. 4 seed, it will play a local quarterfinal game at the Fiesta Bowl.`\
 https://nytimes.com/athletic/5944295/2024/11/24/college-football-playoff-bracket-projections-week-13/
