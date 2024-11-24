@@ -1,3 +1,7 @@
+**Jackson is more than making up for Chelsea missing out on Osimhen in the summer**\
+`The 23-year-old striker is relishing being one of Chelsea's main men, the undisputed leader of Enzo Maresca's front line`\
+https://nytimes.com/athletic/5942326/2024/11/24/nicolas-jackson-chelsea-transfer-victor-osimhen/
+
 **Arizona State's Kenny Dillingham has proved himself a great coach — with room to improve**\
 `The Sun Devils, who defeated BYU to keep their storybook journey alive, have mirrored their coach. Fun. Passionate. And a little reckless.`\
 https://nytimes.com/athletic/5943122/2024/11/24/arizona-state-byu-kenny-dillingham/

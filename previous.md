@@ -1,3 +1,7 @@
+**Jackson is more than making up for Chelsea missing out on Osimhen in the summer**\
+`The 23-year-old striker is relishing being one of Chelsea's main men, the undisputed leader of Enzo Maresca's front line`\
+https://nytimes.com/athletic/5942326/2024/11/24/nicolas-jackson-chelsea-transfer-victor-osimhen/
+
 **Arizona State's Kenny Dillingham has proved himself a great coach — with room to improve**\
 `The Sun Devils, who defeated BYU to keep their storybook journey alive, have mirrored their coach. Fun. Passionate. And a little reckless.`\
 https://nytimes.com/athletic/5943122/2024/11/24/arizona-state-byu-kenny-dillingham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940163/2024/11/24/real-madrid-auction-sothebys/
 **What Ever Happened to the Lady Jaguars?**\
 `When we met them a dozen years ago, they were teenagers in trouble, playing for a basketball team that always lost. Did they find a way to win at life?`\
 https://nytimes.com/2024/11/24/us/lady-jaguars-basketball-carroll-academy.html
-
-**Quote of the Day: Bathing in Oil Might Seem Crude Near a Climate Summit, but Locals Swear by It**\
-`Quotation of the Day for Sunday, November 24, 2024.`\
-https://nytimes.com/2024/11/24/pageoneplus/quote-of-the-day-bathing-in-oil-might-seem-crude-near-a-climate-summit-but-locals-swear-by-it.html
 
