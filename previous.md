@@ -1,3 +1,7 @@
+**AP Top 25: As Bama plunges, SMU earns first top-10 nod since 1985**\
+`Oregon, Ohio State, Texas and Penn State remain atop the AP Top 25 college football poll, while Alabama and Ole Miss fell out of the top 10.`\
+https://nytimes.com/athletic/5944210/2024/11/24/ap-top-25-poll-smu-alabama/
+
 **Hornets' Grant Williams out for season with torn ACL**\
 `The Hornets are 6-10 this season and have been dealing with a slew of injuries.`\
 https://nytimes.com/athletic/5944246/2024/11/24/grant-williams-hornets-acl-tear/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5944011/2024/11/24/italy-davis-cup-win-netherlands/
 https://nytimes.com/2024/11/24/us/politics/brooke-rollins-trump-agriculture.html
 
 **The Briefing: Ipswich 1 Man Utd 1 - That opening goal, Onana's importance, what Amorim has to do**\
-`Our writers break down the action from Ruben Amorim's first match in charge of Manchester United.`\
+`Our writers break down the action from Ruben Amorim's first match in charge of Manchester United`\
 https://nytimes.com/athletic/5940184/2024/11/24/ipswich-man-utd-amorim/
 
 **Rico Carty, Exceptional Hitter Who Was Stymied by Injuries, Dies at 85**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942968/2024/11/24/wisconsin-recruiting-carter-smit
 **2 Dead After Civil Air Patrol Plane Crashes in Colorado Mountains**\
 `A Cessna plane crashed while conducting a training exercise, killing the pilot and an aerial photographer, the authorities said.`\
 https://nytimes.com/2024/11/24/us/colorado-civil-patrol-plane-crash.html
-
-**Montana State leads FCS bracket, South Dakota State chasing three-peat**\
-`The 24-team FCS playoff bracket is set with Montana State claiming the No. 1 overall seed.`\
-https://nytimes.com/athletic/5944091/2024/11/24/fcs-football-playoff-bracket-montana-state-south-dakota-state/
 

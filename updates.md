@@ -1,3 +1,11 @@
+**AP Top 25: As Bama plunges, SMU earns first top-10 nod since 1985**\
+`Oregon, Ohio State, Texas and Penn State remain atop the AP Top 25 college football poll, while Alabama and Ole Miss fell out of the top 10.`\
+https://nytimes.com/athletic/5944210/2024/11/24/ap-top-25-poll-smu-alabama/
+
+**The Briefing: Ipswich 1 Man Utd 1 - That opening goal, Onana's importance, what Amorim has to do**\
+`Our writers break down the action from Ruben Amorim's first match in charge of Manchester United`\
+https://nytimes.com/athletic/5940184/2024/11/24/ipswich-man-utd-amorim/
+
 **Hornets' Grant Williams out for season with torn ACL**\
 `The Hornets are 6-10 this season and have been dealing with a slew of injuries.`\
 https://nytimes.com/athletic/5944246/2024/11/24/grant-williams-hornets-acl-tear/
