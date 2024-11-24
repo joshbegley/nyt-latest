@@ -1,3 +1,7 @@
+**Israeli Rabbi Who Disappeared in Dubai Is Found Dead**\
+`The Israeli authorities called the killing of the rabbi, Zvi Kogan, an act of terrorism. He had been missing since Thursday.`\
+https://nytimes.com/2024/11/24/world/middleeast/dubai-israeli-rabbi-disapperance.html
+
 **Have New York’s Football Teams Finally Hit Rock Bottom?**\
 `The Jets and Giants are both having seasons that fans would rather forget. But they took very different routes to get there.`\
 https://nytimes.com/2024/11/24/nyregion/new-york-jets-giants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/nyregion/new-york-city-hotels.html
 **Pistons perimeter defense struggles in loss to Magic. How can Ausar Thompson help?**\
 `Continued development of the second-year wing, who was available for the first time this season, but didn't play in the loss, is vital.`\
 https://nytimes.com/athletic/5943274/2024/11/24/pistons-lose-to-magic-ausar-thompson/
-
-**Sudan, football and the 'worst humanitarian crisis on earth'**\
-`War in Sudan is estimated to have killed thousands of people and displaced millions more, but football is providing a small ray of hope`\
-https://nytimes.com/athletic/5469079/2024/11/24/sudan-football-humanitarian-crisis/
 
