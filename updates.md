@@ -1,3 +1,7 @@
+**Charles Dumont, Who Wrote Enduring Melodies for Édith Piaf, Dies at 95**\
+`His dozens of songs included “Non, Je Ne Regrette Rien,” a powerful anthem of redemptive love that became one of Piaf’s signature songs.`\
+https://nytimes.com/2024/11/24/arts/music/charles-dumont-dead.html
+
 **Walker was not to blame for City's vulnerable right side - Guardiola was**\
 `City lost 4-0 at home to Spurs due to the system, not because of their right-back's pace - or lack of it`\
 https://nytimes.com/athletic/5943707/2024/11/24/guardiola-not-walker-to-blame-for-man-citys-vulnerability-down-right/

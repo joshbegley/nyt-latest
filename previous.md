@@ -1,3 +1,7 @@
+**Charles Dumont, Who Wrote Enduring Melodies for Édith Piaf, Dies at 95**\
+`His dozens of songs included “Non, Je Ne Regrette Rien,” a powerful anthem of redemptive love that became one of Piaf’s signature songs.`\
+https://nytimes.com/2024/11/24/arts/music/charles-dumont-dead.html
+
 **Walker was not to blame for City's vulnerable right side - Guardiola was**\
 `City lost 4-0 at home to Spurs due to the system, not because of their right-back's pace - or lack of it`\
 https://nytimes.com/athletic/5943707/2024/11/24/guardiola-not-walker-to-blame-for-man-citys-vulnerability-down-right/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/climate/plastic-pollution-south-korea-talks.html
 **Italy retains Davis Cup: Sinner and Berrettini down Netherlands in Malaga**\
 `It adds to the Billie Jean King Cup, which Italy's women's team won with victory over Slovakia.`\
 https://nytimes.com/athletic/5944011/2024/11/24/italy-davis-cup-win-netherlands/
-
-**What to Know About Brooke Rollins, Trump’s Choice for Agriculture Secretary**\
-`A Texas native, Ms. Rollins worked in the first Trump White House and has also led two influential conservative think tanks.`\
-https://nytimes.com/2024/11/24/us/politics/brooke-rollins-trump-agriculture.html
 
