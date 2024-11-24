@@ -1,3 +1,7 @@
+**Pistons perimeter defense struggles in loss to Magic. How can Ausar Thompson help?**\
+`Continued development of the second-year wing, who was available for the first time this season, but didn't play in the loss, is vital.`\
+https://nytimes.com/athletic/5943274/2024/11/24/pistons-lose-to-magic-ausar-thompson/
+
 **Sudan, football and the 'worst humanitarian crisis on earth'**\
 `War in Sudan is estimated to have killed thousands of people and displaced millions more, but football is providing a small ray of hope`\
 https://nytimes.com/athletic/5469079/2024/11/24/sudan-football-humanitarian-crisis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943032/2024/11/24/penguins-sidney-crosby-no-hope/
 **Wild day in SEC sets up Georgia vs. Texas-Texas A&M winner in title game**\
 `Earlier in the day, Georgia wasn’t considering the SEC championship a strong possibility, much less clinching a spot before the night ended.`\
 https://nytimes.com/athletic/5943246/2024/11/24/sec-title-game-scenarios-georgia-texas-texas-am/
-
-**Jackson is more than making up for Chelsea missing out on Osimhen in the summer**\
-`The 23-year-old striker is relishing being one of Chelsea's main men, the undisputed leader of Enzo Maresca's front line`\
-https://nytimes.com/athletic/5942326/2024/11/24/nicolas-jackson-chelsea-transfer-victor-osimhen/
 

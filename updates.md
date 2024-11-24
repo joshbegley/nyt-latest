@@ -1,3 +1,7 @@
+**Pistons perimeter defense struggles in loss to Magic. How can Ausar Thompson help?**\
+`Continued development of the second-year wing, who was available for the first time this season, but didn't play in the loss, is vital.`\
+https://nytimes.com/athletic/5943274/2024/11/24/pistons-lose-to-magic-ausar-thompson/
+
 **Sudan, football and the 'worst humanitarian crisis on earth'**\
 `War in Sudan is estimated to have killed thousands of people and displaced millions more, but football is providing a small ray of hope`\
 https://nytimes.com/athletic/5469079/2024/11/24/sudan-football-humanitarian-crisis/
