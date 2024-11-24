@@ -1,3 +1,11 @@
+**After a very familiar loss, it's clear: The Lakers still haven't figured out the Nuggets**\
+`The Nuggets punched the Lakers in the mouth and Los Angeles immediately folded, losing the 13th of its last 14 games against Denver.`\
+https://nytimes.com/athletic/5941433/2024/11/24/lakers-nuggets-anthony-davis-nikola-jokic/
+
+**USC makes the plays it needed for rivalry win: Takeaways from Trojans' victory over UCLA**\
+`USC won’t apologize for the style in which it beat crosstown rival UCLA 19-13 on Saturday at the Rose Bowl to become bowl-eligible.`\
+https://nytimes.com/athletic/5943409/2024/11/24/usc-ucla-jayden-maiava-lincoln-riley/
+
 **College Football Playoff 2024 projections: Indiana hangs on as Alabama, Ole Miss fall out**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/24/college-football-playoff-projections-odds/
