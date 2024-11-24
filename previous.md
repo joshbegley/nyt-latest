@@ -1,3 +1,7 @@
+**Jeeno Thitikul wins LPGA CME Group Tour Championship, $4 million**\
+`The 21-year-old from Thailand has been on a steady path toward LPGA stardom since joining the tour in 2022.`\
+https://nytimes.com/athletic/5944608/2024/11/24/jeeno-thitikul-lpga-tour-championship/
+
 **Martin takes responsibility for Southampton's defensive errors: 'That is on me'**\
 `Southampton manager Russell Martin says he takes responsibility for the goals that his side conceded during their 3-2 defeat to Liverpool.`\
 https://nytimes.com/athletic/5944429/2024/11/24/southampton-russell-martin-liverpool/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5944009/2024/11/24/lions-colts-score-result-takeawa
 `The Titans' defense sealed the game with a safety in the turnover-heavy affair at NRG Stadium.`\
 https://nytimes.com/athletic/5944412/2024/11/24/texans-titans-score-result-takeaways/
 
-**Bucs steamroll Giants 30-7 in first game without Daniel Jones: Takeaways**\
+**Bucs beat Giants 30-7 in N.Y.'s first game without Daniel Jones: Takeaways**\
 `The Giants were shut out in the first half and couldn't convert a third down until after halftime in Tommy DeVito's first start of 2024.`\
 https://nytimes.com/athletic/5944029/2024/11/24/buccaneers-giants-score-result-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/us/dartmouth-student-drowning-charges.html
 **Sampson: Notre Dame showing no signs of letting up on ruthless march to the Playoff**\
 `Notre Dame is operating at levels of ruthlessness not seen under Marcus Freeman. Perhaps not seen at Notre Dame in a long time.`\
 https://nytimes.com/athletic/5944419/2024/11/24/notre-dame-army-marcus-freeman-playoff/
-
-**Trump’s Cabinet: Many Ideologies Behind the Veil of ‘America First’**\
-`One faction of prospective nominees appears focused on revenge, another on calming markets and a third on relentlessly — perhaps hopelessly — cutting people and budgets.`\
-https://nytimes.com/2024/11/24/us/politics/trump-cabinet-america-first.html
 
