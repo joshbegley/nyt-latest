@@ -1,3 +1,11 @@
+**Trump’s Choices for Health Agencies Suggest a Shake-Up Is Coming**\
+`The picks to oversee public health have all pushed back against Covid policies or supported ideas that are outside the medical mainstream.`\
+https://nytimes.com/2024/11/23/health/trump-kennedy-health-agencies-vaccines-covid.html
+
+**BYU-Arizona State ends in chaos as Sun Devils fans rush field too early**\
+`Fans rushed the field after ASU's final possession, only for referees to review the final play and put one second back on the clock.`\
+https://nytimes.com/athletic/5942854/2024/11/23/byu-arizona-state-goal-posts-score/
+
 **Curt Cignetti thinks Indiana is still Playoff worthy. In 12-team format, we get to debate**\
 `Despite loss, Hoosiers have been one of the better teams in the country. Last year, that would no longer matter. This year, it still might.`\
 https://nytimes.com/athletic/5942805/2024/11/23/indiana-ohio-state-curt-cignetti-college-football-playoff-debate/
