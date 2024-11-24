@@ -1,3 +1,7 @@
+**Bucs steamroll Giants 30-7 in first game without Daniel Jones: Takeaways**\
+`The Giants were shut out in the first half and couldn't convert a third down until after halftime in Tommy DeVito's first start of 2024.`\
+https://nytimes.com/athletic/5944029/2024/11/24/buccaneers-giants-score-result-takeaways/
+
 **F1 Mailbag: Submit your questions for our Las Vegas GP mailbag**\
 `One championship down, one to go. Ask our F1 writers what's on your mind after a fascinating Las Vegas Grand Prix. `\
 https://nytimes.com/athletic/5944503/2024/11/24/f1-las-vegas-max-verstappen-mailbag/
