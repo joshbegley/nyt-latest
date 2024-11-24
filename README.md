@@ -1,3 +1,7 @@
+**St. Louis Blues fire coach Drew Bannister, hire Jim Montgomery as replacement**\
+`The Blues signed Montgomery to a five-year contract to become the 28th head coach in the team's history.`\
+https://nytimes.com/athletic/5943689/2024/11/24/blues-jim-montgomery-drew-bannister/
+
 **Connecticut Couple Charged in $1 Million Theft of Lululemon Goods**\
 `Investigators said the couple used trickery and misdirection to steal merchandise from Lululemon stores in at least five states.`\
 https://nytimes.com/2024/11/24/business/lululemon-theft-connecticut-couple.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantas
 **College Football Playoff 2024 projections: Indiana hangs on as Alabama, Ole Miss fall out**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/24/college-football-playoff-projections-odds/
-
-**Aina in advanced talks over new Forest deal**\
-`Nottingham Forest are in advanced discussions with defender Ola Aina over a contract extension.`\
-https://nytimes.com/athletic/5943480/2024/11/24/ola-aina-new-nottingham-forest-contract/
 
