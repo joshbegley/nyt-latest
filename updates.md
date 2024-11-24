@@ -1,3 +1,7 @@
+**NFL Week 12 inactives and fantasy tips: Mike Evans, Malik Nabers active for Sunday**\
+`Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
+
 **Leicester fans: Was it right to sack Cooper - and who should replace him?**\
 `Cooper leaves with the club 16th in the Premier League - was it the right decision, and who should come in?`\
 https://nytimes.com/athletic/5943974/2024/11/24/leicester-sack-steve-cooper-next-manager/
