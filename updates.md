@@ -1,3 +1,7 @@
+**St. Louis Blues fire coach Drew Bannister, hire Jim Montgomery as replacement**\
+`The Blues signed Montgomery to a five-year contract to become the 28th head coach in the team's history.`\
+https://nytimes.com/athletic/5943689/2024/11/24/blues-jim-montgomery-drew-bannister/
+
 **Connecticut Couple Charged in $1 Million Theft of Lululemon Goods**\
 `Investigators said the couple used trickery and misdirection to steal merchandise from Lululemon stores in at least five states.`\
 https://nytimes.com/2024/11/24/business/lululemon-theft-connecticut-couple.html
