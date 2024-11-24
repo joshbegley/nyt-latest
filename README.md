@@ -1,3 +1,11 @@
+**Ferrari's Charles Leclerc fumes 'being nice f—s me over all the time' after Las Vegas Grand Prix**\
+`Charles Leclerc was not happy after finishing behind his Ferrari teammate Carlos Sainz in Las Vegas`\
+https://nytimes.com/athletic/5943371/2024/11/24/f1-charles-leclerc-carlos-sainz-ferrari-las-vegas-gp/
+
+**Mercedes F1 rediscovers its winning rhythm on Las Vegas GP's smooth city streets**\
+`Mercedes dominated F1's top teams in Las Vegas. How? Well, that's a mystery.`\
+https://nytimes.com/athletic/5943370/2024/11/24/f1-vegas-george-russell-win-lewis-hamilton-mercedes/
+
 **Brad Treliving sitdown: On Maple Leafs' evolving identity, Marner, Tavares, Matthews' timeline and more**\
 `In a wide-ranging interview with The Athletic, the Maple Leafs GM said his team taking on coach Craig Berube's personality is a good sign.`\
 https://nytimes.com/athletic/5942287/2024/11/24/brad-treliving-maple-leafs-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/24/crosswords/wordle-review-1255.html
 **The Connections Companion No. 533**\
 `Scroll down for hints and conversation about the puzzle for Nov. 25, 2024.`\
 https://nytimes.com/2024/11/24/crosswords/connections-companion-533.html
-
-**Donald Trump’s Theory of Power Is More Power for Donald Trump**\
-`The once and future president’s constitutional gimmicks are embarrassingly transparent.`\
-https://nytimes.com/2024/11/24/opinion/trump-recess-appointments-constitution.html
-
-**The Theologian Who Changed His Mind About Gay Marriage**\
-`Can God be wrong?`\
-https://nytimes.com/2024/11/24/opinion/gay-marriage-religion-theology-us.html
 
