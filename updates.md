@@ -1,3 +1,7 @@
+**Real Madrid's Sotheby's auction: Lockers, a giant mosaic and other Bernabeu memorabilia**\
+`Sotheby's is holding a special auction for memorabilia from Real Madrid's Santiago Bernabeu`\
+https://nytimes.com/athletic/5940163/2024/11/24/real-madrid-auction-sothebys/
+
 **Yohe's 10 observations: On Sidney Crosby and a team with no hope**\
 `When you think of Crosby, you think of winning (and his 600 goals). But there's no winning with this team.`\
 https://nytimes.com/athletic/5943032/2024/11/24/penguins-sidney-crosby-no-hope/

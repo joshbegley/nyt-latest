@@ -1,3 +1,15 @@
+**Taiwan Is Ready to Defend Democracy. Is Trump?**\
+`Many Americans voted for border security. Try living right across from China.`\
+https://nytimes.com/2024/11/24/opinion/taiwan-china-trump.html
+
+**The Democrats Are in Trouble. This Man Can Save Them.**\
+`The theories of the 20th-century philosopher John Rawls can inspire a new way for Democrats to find relevance.`\
+https://nytimes.com/2024/11/24/opinion/democratic-party-progressives-john-rawls.html
+
+**Yohe's 10 observations: On Sidney Crosby and a team with no hope**\
+`When you think of Crosby, you think of winning (and his 600 goals). But there's no winning with this team.`\
+https://nytimes.com/athletic/5943032/2024/11/24/penguins-sidney-crosby-no-hope/
+
 **Wild day in SEC sets up Georgia vs. Texas-Texas A&M winner in title game**\
 `Earlier in the day, Georgia wasn’t considering the SEC championship a strong possibility, much less clinching a spot before the night ended.`\
 https://nytimes.com/athletic/5943246/2024/11/24/sec-title-game-scenarios-georgia-texas-texas-am/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5942446/2024/11/24/ethan-nwaneri-martin-odegaard-te
 **How Sabres put themselves in playoff picture with California sweep: 10 takeaways**\
 `The Sabres' 11-9-1 record has them in playoff position with Thanksgiving just a few days away. How did it happen?`\
 https://nytimes.com/athletic/5943201/2024/11/24/sabres-sharks-ducks-kings-takeaways/
-
-**Explaining Ruben Amorim's 3-4-2-1 formation and how he's teaching it at Manchester United**\
-`Footage from training suggests a drastic tactical change is imminent, and it starts at Ipswich on Sunday afternoon`\
-https://nytimes.com/athletic/5940089/2024/11/24/manchester-united-tactics-ruben-amorim/
-
-**Fifteen of the best football songs of all time, from Seven Nation Army to Freed from Desire**\
-`From Seven Nation Army to Mas Que Nada, The Athletic's writers celebrate the best football songs ever written`\
-https://nytimes.com/athletic/5938054/2024/11/24/best-football-songs-all-time/
-
-**Real Madrid's Sotheby's auction: Lockers, a giant mosaic and other Bernabeu memorabilia**\
-`Sotheby's is holding a special auction for memorabilia from Real Madrid's Santiago Bernabeu`\
-https://nytimes.com/athletic/5940163/2024/11/24/real-madrid-auction-sothebys/
 
