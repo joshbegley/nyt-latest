@@ -1,3 +1,11 @@
+**Lando Norris leaves Las Vegas with title hopes dashed but plenty to feel good about**\
+`Lando Norris’ longshot bid to wrest the F1 drivers’ championship from Max Verstappen ended Saturday. But he has plenty to like for 2025.`\
+https://nytimes.com/athletic/5943377/2024/11/24/lando-norris-formula-one-drivers-championship-max-verstappen/
+
+**Hezbollah Fires Waves of Projectiles Into Israel After Deadly Strike in Beirut**\
+`Israel’s military has been intensifying operations against Hezbollah in Lebanon in an apparent attempt to pressure the militant group into a cease-fire.`\
+https://nytimes.com/2024/11/24/world/europe/israel-lebanon-hezbollah.html
+
 **Neighbors Are Burning Each Other’s Land to Stop Dangerous Wildfires. Let’s Help Them.**\
 `We don’t use prescribed burns enough.`\
 https://nytimes.com/2024/11/24/opinion/wildfires-new-york-new-jersey-prescribed-burn.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5941479/2024/11/24/f1-max-verstappen-wins-champions
 **Cowboys Today: Predictions, no Trey Lance trade regret and Zack Martin's future**\
 `The Cowboys will try to end a five-game losing streak Sunday when they play the Commanders in Washington.`\
 https://nytimes.com/athletic/5942318/2024/11/24/cowboys-commanders-predictions-trey-lance/
-
-**'On our terms': Penn State keeps Playoff plans intact with aggressive final drive**\
-`Penn State finally slammed the door on Minnesota with creativity, aggressiveness and execution.`\
-https://nytimes.com/athletic/5943149/2024/11/24/penn-state-football-minnesota-fourth-down/
-
-**Egypt Feuds With Travel Blogger, Issuing 1,100-Word Response to Complaints**\
-`When a blogger criticized Cairo’s airport, Egypt’s government fired back, citing security footage, threatening legal action and asking, “Is it reasonable for a passenger to visit two lounges before a single flight?”`\
-https://nytimes.com/2024/11/24/world/middleeast/egypt-travel-blogger-feud-airport.html
 

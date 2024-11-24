@@ -1,3 +1,11 @@
+**Lando Norris leaves Las Vegas with title hopes dashed but plenty to feel good about**\
+`Lando Norris’ longshot bid to wrest the F1 drivers’ championship from Max Verstappen ended Saturday. But he has plenty to like for 2025.`\
+https://nytimes.com/athletic/5943377/2024/11/24/lando-norris-formula-one-drivers-championship-max-verstappen/
+
+**Hezbollah Fires Waves of Projectiles Into Israel After Deadly Strike in Beirut**\
+`Israel’s military has been intensifying operations against Hezbollah in Lebanon in an apparent attempt to pressure the militant group into a cease-fire.`\
+https://nytimes.com/2024/11/24/world/europe/israel-lebanon-hezbollah.html
+
 **Neighbors Are Burning Each Other’s Land to Stop Dangerous Wildfires. Let’s Help Them.**\
 `We don’t use prescribed burns enough.`\
 https://nytimes.com/2024/11/24/opinion/wildfires-new-york-new-jersey-prescribed-burn.html
