@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5942976/2024/11/23/nwsl-championship-orlando-pride-
 `The Canucks' 4-3 victory set a positive tone for the opening of their six-game road trip.`\
 https://nytimes.com/athletic/5942948/2024/11/23/canucks-senators-quinn-hughes-ejection/
 
-**Fred R. Harris, 94, Oklahoma Senator Who Ran for President, Dies at 94**\
-`After he spent eight years in the Senate as a moderate Democrat, his views took a leftward turn toward “new populism” in a failed 1976 shot at the presidency.`\
+**Fred R. Harris, Oklahoma Senator Who Ran for President, Dies at 94**\
+`After eight years in the Senate as a moderate Democrat, he took a leftward turn toward “new populism” in a failed 1976 shot at the presidency.`\
 https://nytimes.com/2024/11/23/us/politics/fred-r-harris-dead.html
 
 **Iowa's scorched-earth QB situation and what it means for Kirk Ferentz**\
