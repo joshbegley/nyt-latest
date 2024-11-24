@@ -1,3 +1,7 @@
+**Penguins' Sidney Crosby scores 600th career goal, joins elite company**\
+`Crosby became only the 21st NHL player to score at least 600 career goals.`\
+https://nytimes.com/athletic/5900736/2024/11/23/penguins-sidney-crosby-600-career-nhl-goals/
+
 **Trump’s Choices for Health Agencies Suggest a Shake-Up Is Coming**\
 `The picks to oversee public health have all pushed back against Covid policies or supported ideas that are outside the medical mainstream.`\
 https://nytimes.com/2024/11/23/health/trump-kennedy-health-agencies-vaccines-covid.html
