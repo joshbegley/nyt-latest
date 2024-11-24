@@ -1,5 +1,5 @@
-**Hornets' Grant Williams tore ACL in loss to Bucks**\
-`He is expected to miss the remainder of the season, per multiple reports.`\
+**Hornets' Grant Williams out for season with torn ACL**\
+`The Hornets are 6-10 this season and have been dealing with a slew of injuries.`\
 https://nytimes.com/athletic/5944246/2024/11/24/grant-williams-hornets-acl-tear/
 
 **Hezbollah Fires About 250 Projectiles Into Israel**\
