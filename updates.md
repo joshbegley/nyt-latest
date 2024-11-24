@@ -1,3 +1,7 @@
+**As Kirill Kaprizov injury concern grows, Wild confident they have 'good team' to fill void**\
+`The Wild will need other players to step up if they plan to keep the tremendous first quarter of their season going.`\
+https://nytimes.com/athletic/5942980/2024/11/23/wild-kirill-kaprizov-injury-flames/
+
 **Corrections: Nov. 24, 2024**\
 `Corrections that appeared in print on Sunday, Nov. 24, 2024.`\
 https://nytimes.com/2024/11/23/pageoneplus/corrections-nov-24-2024.html

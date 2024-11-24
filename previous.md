@@ -1,3 +1,7 @@
+**As Kirill Kaprizov injury concern grows, Wild confident they have 'good team' to fill void**\
+`The Wild will need other players to step up if they plan to keep the tremendous first quarter of their season going.`\
+https://nytimes.com/athletic/5942980/2024/11/23/wild-kirill-kaprizov-injury-flames/
+
 **Corrections: Nov. 24, 2024**\
 `Corrections that appeared in print on Sunday, Nov. 24, 2024.`\
 https://nytimes.com/2024/11/23/pageoneplus/corrections-nov-24-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942805/2024/11/23/indiana-ohio-state-curt-cignetti
 **Penn State makes right calls late to escape Minnesota, close in on Playoff bid: Takeaways**\
 `No. 4 Penn State survived an upset bid from Minnesota on Saturday after converting three fourth downs on its final possession.`\
 https://nytimes.com/athletic/5942716/2024/11/23/penn-state-minnesota-score-recap-playoff/
-
-**Travis Hunter tracker: Superstar's huge performance can't save Colorado from upset loss**\
-`Hunter scored twice and surpassed 1,000 yards receiving for the season during Saturday's game, but it wasn't enough for Colorado.`\
-https://nytimes.com/athletic/5942640/2024/11/23/travis-hunter-nfl-draft-2025-kansas/
 
