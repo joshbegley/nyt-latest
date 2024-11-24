@@ -1,3 +1,7 @@
+**The World Seeks an End to Plastic Pollution at Talks in South Korea**\
+`Many nations hope to reduce the half a billion tons of plastic made each year. But pushback from plastic and oil producers, and Donald Trump’s election, could scuttle an agreement.`\
+https://nytimes.com/2024/11/24/climate/plastic-pollution-south-korea-talks.html
+
 **Italy retains Davis Cup: Sinner and Berrettini down Netherlands in Malaga**\
 `It adds to the Billie Jean King Cup, which Italy's women's team won with victory over Slovakia.`\
 https://nytimes.com/athletic/5944011/2024/11/24/italy-davis-cup-win-netherlands/

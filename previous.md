@@ -1,3 +1,7 @@
+**The World Seeks an End to Plastic Pollution at Talks in South Korea**\
+`Many nations hope to reduce the half a billion tons of plastic made each year. But pushback from plastic and oil producers, and Donald Trump’s election, could scuttle an agreement.`\
+https://nytimes.com/2024/11/24/climate/plastic-pollution-south-korea-talks.html
+
 **Italy retains Davis Cup: Sinner and Berrettini down Netherlands in Malaga**\
 `It adds to the Billie Jean King Cup, which Italy's women's team won with victory over Slovakia.`\
 https://nytimes.com/athletic/5944011/2024/11/24/italy-davis-cup-win-netherlands/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941958/2024/11/24/blue-jackets-jiricek-olivier/
 **Does the Conductor Klaus Mäkelä Deserve His Meteoric Rise?**\
 `The 28-year-old maestro, entrusted with two storied ensembles, visited Carnegie Hall with the superb Concertgebouw Orchestra of Amsterdam.`\
 https://nytimes.com/2024/11/24/arts/music/klaus-makela-concertgebouw-carnegie.html
-
-**SEC vibes rankings: What in the world just happened?**\
-`The SEC is the deepest conference, the hardest to play in and could deserve only three teams in the College Football Playoff.`\
-https://nytimes.com/athletic/5943838/2024/11/24/week-13-sec-football-rankings/
 
