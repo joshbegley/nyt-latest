@@ -1,4 +1,8 @@
 **Cooper sacked as Leicester manager after five months in charge**\
+`Steve Cooper has been sacked as manager of Leicester City after five months in charge at the King Power Stadium.`\
+https://nytimes.com/athletic/5943887/2024/11/24/leicester-city-sack-steve-cooper/
+
+**Cooper sacked as Leicester manager after five months in charge**\
 `Steve Cooper has been sacked as manager of Leicester City after just five months in charge at the King Power Stadium.`\
 https://nytimes.com/athletic/5943887/2024/11/24/leicester-city-sack-steve-cooper/
 
