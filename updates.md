@@ -1,3 +1,7 @@
+**Orlando and Marta win first NWSL championship**\
+`Banda's goal proved the difference in Orlando's first NWSL championship.`\
+https://nytimes.com/athletic/5942976/2024/11/23/nwsl-championship-orlando-pride-barbra-banda/
+
 **Trump’s Choices for Health Agencies Suggest a Shake-Up Is Coming**\
 `The picks to oversee public health have all pushed back against Covid policies or supported ideas that are outside the medical mainstream.`\
 https://nytimes.com/2024/11/23/health/trump-kennedy-health-agencies-vaccines-covid.html
