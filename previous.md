@@ -1,3 +1,7 @@
+**Boise State's Ashton Jeanty passes 2,000-yard mark in 11th game**\
+`Jeanty hit the milestone with a 5-yard carry three minutes into the third quarter of a 10-10 tie.`\
+https://nytimes.com/athletic/5943012/2024/11/23/ashton-jeanty-rushing-yards-boise-state-record/
+
 **Mirtle: Nylanders ready to add chapter to NHL's long history of brotherly acts**\
 `Sunday night, William Nylander and his younger brother, Alex, will join four other sets of brothers who have played together as Leafs. `\
 https://nytimes.com/athletic/5942661/2024/11/23/maple-leafs-william-alex-nylander-brothers-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942589/2024/11/23/wild-flames-kirill-kaprizov-inju
 **Kansas continues to cause Big 12 Playoff angst. Latest victim: Deion's Buffs**\
 `The Big 12 is wide open after a resurgent Kansas team upended Colorado in Kansas City. `\
 https://nytimes.com/athletic/5942727/2024/11/23/colorado-kansas-score-analysis-reaction/
-
-**Good vibes return to Michigan Stadium: Takeaways from a dominant win over Northwestern**\
-`With five-star quarterback Bryce Underwood in attendance, Michigan picked up win No. 6 in impressive fashion. `\
-https://nytimes.com/athletic/5942813/2024/11/23/michigan-northwestern-bryce-underwood-bowl-eligible/
 

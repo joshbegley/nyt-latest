@@ -1,3 +1,7 @@
+**Boise State's Ashton Jeanty passes 2,000-yard mark in 11th game**\
+`Jeanty hit the milestone with a 5-yard carry three minutes into the third quarter of a 10-10 tie.`\
+https://nytimes.com/athletic/5943012/2024/11/23/ashton-jeanty-rushing-yards-boise-state-record/
+
 **Mirtle: Nylanders ready to add chapter to NHL's long history of brotherly acts**\
 `Sunday night, William Nylander and his younger brother, Alex, will join four other sets of brothers who have played together as Leafs. `\
 https://nytimes.com/athletic/5942661/2024/11/23/maple-leafs-william-alex-nylander-brothers-nhl/
