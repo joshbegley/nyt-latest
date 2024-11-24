@@ -1,3 +1,7 @@
+**Perches in a Coop**\
+`Dena R. Witkes makes her Crossword debut.`\
+https://nytimes.com/2024/11/24/crosswords/daily-puzzle-2024-11-25.html
+
 **NFL Week 12 takeaways: Is the Commanders offense collapsing? Are the Texans still a year away?**\
 `Plus, sizing up the red-hot Vikings, and sorting out the post-Daniel Jones Giants.`\
 https://nytimes.com/athletic/5944819/2024/11/24/nfl-week-12-scores-takeaways-commanders-cowboys-texans-titans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944023/2024/11/24/patriots-dolphins-score-result-t
 **Jeeno Thitikul wins LPGA CME Group Tour Championship, $4 million**\
 `The 21-year-old from Thailand has been on a steady path toward LPGA stardom since joining the tour in 2022.`\
 https://nytimes.com/athletic/5944608/2024/11/24/jeeno-thitikul-lpga-tour-championship/
-
-**Martin takes responsibility for Southampton's defensive errors: 'That is on me'**\
-`Southampton manager Russell Martin says he takes responsibility for the goals that his side conceded during their 3-2 defeat to Liverpool.`\
-https://nytimes.com/athletic/5944429/2024/11/24/southampton-russell-martin-liverpool/
 
