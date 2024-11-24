@@ -1,3 +1,7 @@
+**Barca briefing: Needless mistakes, Casado red card and Yamal's absence felt again**\
+`It was an unhappy return to action for Hansi Flick's side as they drew 2-2 with Celta Vigo after conceding two late goals`\
+https://nytimes.com/athletic/5942995/2024/11/24/barcelona-celta-casado-yamal/
+
 **Israeli Rabbi Who Disappeared in Dubai Is Found Dead**\
 `The Israeli authorities called the killing of the rabbi, Zvi Kogan, an act of terrorism. He had been missing since Thursday.`\
 https://nytimes.com/2024/11/24/world/middleeast/dubai-israeli-rabbi-disapperance.html

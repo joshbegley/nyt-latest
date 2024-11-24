@@ -1,3 +1,7 @@
+**Barca briefing: Needless mistakes, Casado red card and Yamal's absence felt again**\
+`It was an unhappy return to action for Hansi Flick's side as they drew 2-2 with Celta Vigo after conceding two late goals`\
+https://nytimes.com/athletic/5942995/2024/11/24/barcelona-celta-casado-yamal/
+
 **Israeli Rabbi Who Disappeared in Dubai Is Found Dead**\
 `The Israeli authorities called the killing of the rabbi, Zvi Kogan, an act of terrorism. He had been missing since Thursday.`\
 https://nytimes.com/2024/11/24/world/middleeast/dubai-israeli-rabbi-disapperance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/nyregion/chinatown-vendors.html
 **New York City Hotel Rates Soar to Record Heights as Holiday Travel Nears**\
 `Hotels charged an average of $417 per night in September, the highest monthly rate ever for the city. “I don’t understand how normal people can go there,” one tourist said.`\
 https://nytimes.com/2024/11/24/nyregion/new-york-city-hotels.html
-
-**Pistons perimeter defense struggles in loss to Magic. How can Ausar Thompson help?**\
-`Continued development of the second-year wing, who was available for the first time this season, but didn't play in the loss, is vital.`\
-https://nytimes.com/athletic/5943274/2024/11/24/pistons-lose-to-magic-ausar-thompson/
 
