@@ -1,3 +1,11 @@
+**The Pulse: A 12-team College Football Playoff without Bama**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5943803/2024/11/24/alabama-college-football-nfl-schedule-the-pulse/
+
+**Tulsa fires football coach Kevin Wilson amid 3-8 season**\
+`This is the sixth coaching change in the AAC, joining Charlotte, East Carolina, Florida Atlantic, Rice and Temple.`\
+https://nytimes.com/athletic/5943811/2024/11/24/tulsa-kevin-wilson-fired/
+
 **Marta's resurgence, the clean sheets, the unbeaten run - Pride's NWSL championship seemed destined**\
 `Orlando has gone from being told nobody respected them to a title-winning team everyone admires (or, at least, envies).`\
 https://nytimes.com/athletic/5943603/2024/11/24/orlando-pride-nwsl-championship-destiny/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5943363/2024/11/24/matas-buzelis-bulls-grizzlies/
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/11/24/nhl-standings-playoffs-projections-odds/
-
-**After a very familiar loss, it's clear: The Lakers still haven't figured out the Nuggets**\
-`The Nuggets punched the Lakers in the mouth and Los Angeles immediately folded, losing the 13th of its last 14 games against Denver.`\
-https://nytimes.com/athletic/5941433/2024/11/24/lakers-nuggets-anthony-davis-nikola-jokic/
-
-**USC makes the plays it needed for rivalry win: Takeaways from Trojans' victory over UCLA**\
-`USC won’t apologize for the style in which it beat crosstown rival UCLA 19-13 on Saturday at the Rose Bowl to become bowl-eligible.`\
-https://nytimes.com/athletic/5943409/2024/11/24/usc-ucla-jayden-maiava-lincoln-riley/
 
