@@ -1,3 +1,7 @@
+**Perches in a Coop**\
+`Dena R. Witkes makes her Crossword debut.`\
+https://nytimes.com/2024/11/24/crosswords/daily-puzzle-2024-11-25.html
+
 **NFL Week 12 takeaways: Is the Commanders offense collapsing? Are the Texans still a year away?**\
 `Plus, sizing up the red-hot Vikings, and sorting out the post-Daniel Jones Giants.`\
 https://nytimes.com/athletic/5944819/2024/11/24/nfl-week-12-scores-takeaways-commanders-cowboys-texans-titans/
