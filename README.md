@@ -1,3 +1,7 @@
+**Orlando City ends Atlanta United's Cinderella playoff run**\
+`Orlando City scored in the 39th after center forward Ramiro Enrique pounced on a deflected ball inside Atlanta United’s penalty area.`\
+https://nytimes.com/athletic/5944919/2024/11/24/atlanta-united-orlando-city-mls-playoffs/
+
 **What I'm hearing about the Penguins, Mike Sullivan and the future**\
 `Mike Sullivan's fate is in the hands of Kyle Dubas and no one else.`\
 https://nytimes.com/athletic/5944592/2024/11/24/penguins-mike-sullivan-kyle-dubas-fsg/
@@ -33,8 +37,4 @@ https://nytimes.com/video/climate/100000009843098/cop29-climate-summit-deal.html
 **Chiefs top Panthers 30-27 as Mahomes' run sets up winning kick: Takeaways**\
 `The Chiefs improved to an AFC-best 10-1, while Travis Kelce moved up the all-time tight end receiving yards list. `\
 https://nytimes.com/athletic/5943979/2024/11/24/chiefs-panthers-score-result-takeaways/
-
-**Israel Conducts Widespread Strikes Near Beirut**\
-`As negotiators inch toward a cease-fire deal, the conflict between Israel and Hezbollah in Lebanon has intensified.`\
-https://nytimes.com/2024/11/24/world/middleeast/israel-strikes-lebanon.html
 
