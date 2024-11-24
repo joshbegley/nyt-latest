@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5944044/2024/11/24/commanders-cowboys-score-result-
 https://nytimes.com/video/climate/100000009843098/cop29-climate-summit-deal.html
 
 **Chiefs top Panthers 30-27 as Mahomes' run sets up winning kick: Takeaways**\
-`Chiefs improve to AFC-best 10-1, while Travis Kelce moves up the all-time tight end receiving yards list. `\
+`The Chiefs improved to an AFC-best 10-1, while Travis Kelce moved up the all-time tight end receiving yards list. `\
 https://nytimes.com/athletic/5943979/2024/11/24/chiefs-panthers-score-result-takeaways/
 
 **Israel Conducts Widespread Strikes Near Beirut**\
