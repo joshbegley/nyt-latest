@@ -1,3 +1,11 @@
+**Ipswich vs Manchester United preview: Storylines, odds, prediction for Amorim's debut**\
+`Ruben Amorim debuts as Manchester United manager Sunday at Ipswich. Will the Red Devils get a win or will the honeymoon period end early?`\
+https://nytimes.com/athletic/5940798/2024/11/24/ipswich-manchester-united-preview-odds-prediction/
+
+**LaMelo Ball scores career-high 50 points in loss to Bucks**\
+`Saturday marked the first time Ball has eclipsed 40 or more points in a game. `\
+https://nytimes.com/athletic/5943115/2024/11/23/lamelo-ball-career-high-50-points/
+
 **Sooners 'finally did the things' to win, possibly eliminating Bama from Playoff**\
 `Oklahoma's defense dominated Alabama in a 24-3 Sooners win that injected more chaos into the College Football Playoff race.`\
 https://nytimes.com/athletic/5943136/2024/11/23/alabama-oklahoma-college-football-score-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5943035/2024/11/23/iowa-quarterbacks-kirk-ferentz-c
 **As Kirill Kaprizov injury concern grows, Wild confident they have 'good team' to fill void**\
 `The Wild will need other players to step up if they plan to keep the tremendous first quarter of their season going.`\
 https://nytimes.com/athletic/5942980/2024/11/23/wild-kirill-kaprizov-injury-flames/
-
-**Corrections: Nov. 24, 2024**\
-`Corrections that appeared in print on Sunday, Nov. 24, 2024.`\
-https://nytimes.com/2024/11/23/pageoneplus/corrections-nov-24-2024.html
-
-**Ashton Jeanty hits 2,000 yards as Boise State clinches MWC title game bid**\
-`Ashton Jeanty has 2,062 yards in 11 games as Boise State stayed atop the Group of 5 Playoff race with a 17-13 win at Wyoming.`\
-https://nytimes.com/athletic/5943012/2024/11/23/ashton-jeanty-rushing-yards-boise-state-record/
 
