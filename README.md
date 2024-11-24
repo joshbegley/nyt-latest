@@ -1,3 +1,11 @@
+**Lions cruise to 24-6 win over Colts to earn 9th straight victory: Key takeaways**\
+`Detroit pounced on Indianapolis en route to securing a second consecutive 10-win season for the first time in franchise history.`\
+https://nytimes.com/athletic/5944009/2024/11/24/lions-colts-score-result-takeaways/
+
+**Titans upset Texans 32-27 in AFC South battle: Takeaways**\
+`The Titans' defense sealed the game with a safety in the turnover-heavy affair at NRG Stadium.`\
+https://nytimes.com/athletic/5944412/2024/11/24/texans-titans-score-result-takeaways/
+
 **Bucs steamroll Giants 30-7 in first game without Daniel Jones: Takeaways**\
 `The Giants were shut out in the first half and couldn't convert a third down until after halftime in Tommy DeVito's first start of 2024.`\
 https://nytimes.com/athletic/5944029/2024/11/24/buccaneers-giants-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/24/us/politics/trump-cabinet-america-first.html
 **Tony Campolo, Preacher Who Challenged Religious Right, Dies at 89**\
 `A mesmerizing speaker, he urged his fellow evangelicals to turn away from politics in favor of the values of charity and love espoused by Jesus.`\
 https://nytimes.com/2024/11/24/us/tony-campolo-dead.html
-
-**Charles Dumont, Who Wrote Enduring Melodies for Édith Piaf, Dies at 95**\
-`His dozens of songs included “Non, Je Ne Regrette Rien,” a powerful anthem of redemptive love that became one of Piaf’s signature songs.`\
-https://nytimes.com/2024/11/24/arts/music/charles-dumont-dead.html
-
-**Walker was not to blame for City's vulnerable right side - Guardiola was**\
-`City lost 4-0 at home to Spurs due to the system, not because of their right-back's pace — or lack of it`\
-https://nytimes.com/athletic/5943707/2024/11/24/guardiola-not-walker-to-blame-for-man-citys-vulnerability-down-right/
 
