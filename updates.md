@@ -1,3 +1,11 @@
+**Sudan, football and the 'worst humanitarian crisis on earth'**\
+`War in Sudan is estimated to have killed thousands of people and displaced millions more, but football is providing a small ray of hope`\
+https://nytimes.com/athletic/5469079/2024/11/24/sudan-football-humanitarian-crisis/
+
+**Max Verstappen clinches fourth F1 championship, Russell wins Las Vegas GP**\
+`Max Verstappen finished ahead of Lando Norris to win his fourth-consecutive F1 drivers' title. `\
+https://nytimes.com/athletic/5943300/2024/11/24/max-verstappen-wins-f1-championship-2024-vegas/
+
 **Nausea hits Canadiens again, but the context is completely different this time**\
 `The Canadiens took a step back Saturday, but it did not undo all the growth they've had lately.`\
 https://nytimes.com/athletic/5943266/2024/11/24/canadiens-golden-knights-martin-st-louis/
