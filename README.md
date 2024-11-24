@@ -1,3 +1,11 @@
+**Tortured, Burned, Put to Death. Their Crime? ‘Sorcery.’**\
+`Tragedies in Papua New Guinea are often followed by accusations of sorcery and unspeakable acts of violence. That cycle has become more brutal in recent years.`\
+https://nytimes.com/2024/11/24/world/asia/papua-new-guinea-sorcery.html
+
+**Southampton vs Liverpool odds, prediction: Leading Reds look to extend unbeaten run**\
+`Liverpool lead the league and Southampton are dead last. Will the Saints pull off a shocker or will the Reds extend their unbeaten run?`\
+https://nytimes.com/athletic/5940902/2024/11/24/southampton-liverpool-preview-odds-prediction/
+
 **Ipswich vs Manchester United preview: Storylines, odds, prediction for Amorim's debut**\
 `Ruben Amorim debuts as Manchester United manager Sunday at Ipswich. Will the Red Devils get a win or will the honeymoon period end early?`\
 https://nytimes.com/athletic/5940798/2024/11/24/ipswich-manchester-united-preview-odds-prediction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5942948/2024/11/23/canucks-senators-quinn-hughes-ej
 **Fred R. Harris, Oklahoma Senator Who Ran for President, Dies at 94**\
 `After eight years in the Senate as a moderate Democrat, he took a leftward turn toward “new populism” in a failed shot at the presidency in 1976.`\
 https://nytimes.com/2024/11/23/us/politics/fred-r-harris-dead.html
-
-**Iowa's scorched-earth QB situation and what it means for Kirk Ferentz**\
-`Ferentz calling his quarterback position 'clearly cloudy' perfectly summarizes the situation.`\
-https://nytimes.com/athletic/5943035/2024/11/23/iowa-quarterbacks-kirk-ferentz-cade-mcnamara/
-
-**As Kirill Kaprizov injury concern grows, Wild confident they have 'good team' to fill void**\
-`The Wild will need other players to step up if they plan to keep the tremendous first quarter of their season going.`\
-https://nytimes.com/athletic/5942980/2024/11/23/wild-kirill-kaprizov-injury-flames/
 
