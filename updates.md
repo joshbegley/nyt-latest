@@ -1,3 +1,11 @@
+**Inside Minnesotan Travis Boyd's debut with Wild: Hoofing through snow and a dream come true**\
+`To say Boyd will never forget his debut with his home state Wild in Calgary is an understatement.`\
+https://nytimes.com/athletic/5943021/2024/11/23/wild-flames-travis-boyd/
+
+**Notre Dame routs Army to keep CFP hosting bid in focus**\
+`The Irish made short and efficient work of Jeff Monken’s previously unbeaten squad.`\
+https://nytimes.com/athletic/5943085/2024/11/23/notre-dame-army-college-football-playoff/
+
 **Fred R. Harris, Oklahoma Senator Who Ran for President, Dies at 94**\
 `After eight years in the Senate as a moderate Democrat, he took a leftward turn toward “new populism” in a failed 1976 shot at the presidency.`\
 https://nytimes.com/2024/11/23/us/politics/fred-r-harris-dead.html
