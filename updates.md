@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Indiana, Ole Miss tumble after losses**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
+
 **Boise State's Ashton Jeanty passes 2,000-yard mark in 11th game**\
 `Jeanty hit the milestone with a 5-yard carry three minutes into the third quarter of a 10-10 tie.`\
 https://nytimes.com/athletic/5943012/2024/11/23/ashton-jeanty-rushing-yards-boise-state-record/
