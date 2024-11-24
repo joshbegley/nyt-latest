@@ -1,3 +1,11 @@
+**Inside Minnesotan Travis Boyd's debut with Wild: Hoofing through snow and a dream come true**\
+`To say Boyd will never forget his debut with his home state Wild in Calgary is an understatement.`\
+https://nytimes.com/athletic/5943021/2024/11/23/wild-flames-travis-boyd/
+
+**Notre Dame routs Army to keep CFP hosting bid in focus**\
+`The Irish made short and efficient work of Jeff Monken’s previously unbeaten squad.`\
+https://nytimes.com/athletic/5943085/2024/11/23/notre-dame-army-college-football-playoff/
+
 **Orlando and Marta win first NWSL championship**\
 `Banda's goal proved the difference in Orlando's first NWSL championship.`\
 https://nytimes.com/athletic/5942976/2024/11/23/nwsl-championship-orlando-pride-barbra-banda/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5943012/2024/11/23/ashton-jeanty-rushing-yards-bois
 **Mirtle: Nylanders ready to add chapter to NHL's long history of brotherly acts**\
 `Sunday night, William Nylander and his younger brother, Alex, will join four other sets of brothers who have played together as Leafs. `\
 https://nytimes.com/athletic/5942661/2024/11/23/maple-leafs-william-alex-nylander-brothers-nhl/
-
-**College Football Playoff 2024 projections: Indiana, Ole Miss tumble after losses**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/23/college-football-playoff-projections-odds/
-
-**Penguins' Sidney Crosby scores 600th career goal, joins elite company**\
-`Crosby became only the 21st NHL player to score at least 600 career goals.`\
-https://nytimes.com/athletic/5900736/2024/11/23/penguins-sidney-crosby-600-career-nhl-goals/
 
