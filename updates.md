@@ -1,3 +1,7 @@
+**I Starred in ‘Cabaret.’ We Need to Heed Its Warning.**\
+`Much has changed since the show debuted on Broadway in 1966, but it’s what hasn’t changed that should worry us.`\
+https://nytimes.com/2024/11/24/opinion/cabaret-trump-joel-grey.html
+
 **Madrid president Perez criticises FIFA, UEFA over football calendar**\
 `Real Madrid president Florentino Perez has accused UEFA and FIFA of &#8220;putting the health of players at risk&#8221; and &#8220;disrespecting the fans&#8221; in an attack on the global football calendar.`\
 https://nytimes.com/athletic/5943517/2024/11/24/real-madrid-florentino-perez-uefa-fifa/
