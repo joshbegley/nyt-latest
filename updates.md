@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Indiana hangs on as Alabama, Ole Miss fall out**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/24/college-football-playoff-projections-odds/
+
 **Taiwan Is Ready to Defend Democracy. Is Trump?**\
 `Many Americans voted for border security. Try living right across from China.`\
 https://nytimes.com/2024/11/24/opinion/taiwan-china-trump.html
