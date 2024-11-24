@@ -1,3 +1,7 @@
+**Week 13 CFP race lessons: SEC teams lose benefit of the doubt, Big 12's chaos continues**\
+`Playoff expansion is delivering exactly what was promised: more meaningful games and more chances for mayhem.`\
+https://nytimes.com/athletic/5943486/2024/11/24/college-football-playoff-week-13-sec-big-12-indiana/
+
 **Lando Norris leaves Las Vegas with title hopes dashed but plenty to feel good about**\
 `Lando Norris’ longshot bid to wrest the F1 drivers’ championship from Max Verstappen ended Saturday. But he has plenty to like for 2025.`\
 https://nytimes.com/athletic/5943377/2024/11/24/lando-norris-formula-one-drivers-championship-max-verstappen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943036/2024/11/24/indiana-hoosiers-football-fans-c
 **Inside Max Verstappen's Las Vegas F1 title clincher: Relief, elation and beer**\
 `Reaching the landmark fourth title in Las Vegas of all places was a surreal but poignant moment in Verstappen's career. `\
 https://nytimes.com/athletic/5941479/2024/11/24/f1-max-verstappen-wins-championship-las-vegas/
-
-**Cowboys Today: Predictions, no Trey Lance trade regret and Zack Martin's future**\
-`The Cowboys will try to end a five-game losing streak Sunday when they play the Commanders in Washington.`\
-https://nytimes.com/athletic/5942318/2024/11/24/cowboys-commanders-predictions-trey-lance/
 

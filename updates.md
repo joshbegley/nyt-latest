@@ -1,3 +1,7 @@
+**Week 13 CFP race lessons: SEC teams lose benefit of the doubt, Big 12's chaos continues**\
+`Playoff expansion is delivering exactly what was promised: more meaningful games and more chances for mayhem.`\
+https://nytimes.com/athletic/5943486/2024/11/24/college-football-playoff-week-13-sec-big-12-indiana/
+
 **Lando Norris leaves Las Vegas with title hopes dashed but plenty to feel good about**\
 `Lando Norris’ longshot bid to wrest the F1 drivers’ championship from Max Verstappen ended Saturday. But he has plenty to like for 2025.`\
 https://nytimes.com/athletic/5943377/2024/11/24/lando-norris-formula-one-drivers-championship-max-verstappen/
