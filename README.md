@@ -1,3 +1,7 @@
+**Maverick McNealy wins first career PGA Tour with walk-off birdie**\
+`McNealy made his birdie on the final hole to earn his first career PGA Tour win and put himself in the early 2025 signature events`\
+https://nytimes.com/athletic/5944630/2024/11/24/maverick-mcnealy-pga-tour-rsm-classic/
+
 **Perches in a Coop**\
 `Dena R. Witkes makes her Crossword debut.`\
 https://nytimes.com/2024/11/24/crosswords/daily-puzzle-2024-11-25.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943949/2024/11/24/blues-jim-montgomery-decision/
 **Tagovailoa throws 4 TD passes in Dolphins' 34-15 win vs. Patriots: Takeaways**\
 `He’s now a dominating 7-0 in his career against the Patriots.`\
 https://nytimes.com/athletic/5944023/2024/11/24/patriots-dolphins-score-result-takeaways/
-
-**Jeeno Thitikul wins LPGA CME Group Tour Championship, $4 million**\
-`The 21-year-old from Thailand has been on a steady path toward LPGA stardom since joining the tour in 2022.`\
-https://nytimes.com/athletic/5944608/2024/11/24/jeeno-thitikul-lpga-tour-championship/
 
