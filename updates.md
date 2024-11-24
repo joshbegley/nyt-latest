@@ -1,3 +1,7 @@
+**Marta's resurgence, the clean sheets, the unbeaten run - Pride's NWSL championship seemed destined**\
+`Orlando has gone from being told nobody respected them to a title-winning team everyone admires (or, at least, envies).`\
+https://nytimes.com/athletic/5943603/2024/11/24/orlando-pride-nwsl-championship-destiny/
+
 **Live Q&A: Week 12 fantasy football start/sit chat with Jay Felicio, Sunday 11/24 at 11 a.m. ET**\
 `Submit your Week 12 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5940899/2024/11/24/live-qa-week-12-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-24-at-11-a-m-et/

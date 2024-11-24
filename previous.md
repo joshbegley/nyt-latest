@@ -1,3 +1,7 @@
+**Marta's resurgence, the clean sheets, the unbeaten run - Pride's NWSL championship seemed destined**\
+`Orlando has gone from being told nobody respected them to a title-winning team everyone admires (or, at least, envies).`\
+https://nytimes.com/athletic/5943603/2024/11/24/orlando-pride-nwsl-championship-destiny/
+
 **Live Q&A: Week 12 fantasy football start/sit chat with Jay Felicio, Sunday 11/24 at 11 a.m. ET**\
 `Submit your Week 12 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5940899/2024/11/24/live-qa-week-12-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-24-at-11-a-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5941433/2024/11/24/lakers-nuggets-anthony-davis-nik
 **USC makes the plays it needed for rivalry win: Takeaways from Trojans' victory over UCLA**\
 `USC won’t apologize for the style in which it beat crosstown rival UCLA 19-13 on Saturday at the Rose Bowl to become bowl-eligible.`\
 https://nytimes.com/athletic/5943409/2024/11/24/usc-ucla-jayden-maiava-lincoln-riley/
-
-**NFL Week 12 inactives and fantasy tips: Mike Evans, Keenan Allen questionable for Sunday**\
-`Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
-https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
 
