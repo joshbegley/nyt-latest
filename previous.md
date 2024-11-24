@@ -1,3 +1,27 @@
+**Arizona State's Kenny Dillingham has proved himself a great coach — with room to improve**\
+`The Sun Devils, who defeated BYU to keep their storybook journey alive, have mirrored their coach. Fun. Passionate. And a little reckless.`\
+https://nytimes.com/athletic/5943122/2024/11/24/arizona-state-byu-kenny-dillingham/
+
+**Picking a starting XI for Ruben Amorim's first Manchester United game**\
+`The Athletic's Manchester United writers pick their starting XIs for Amorim's first game in charge against Ipswich today`\
+https://nytimes.com/athletic/5941856/2024/11/24/manchester-united-ipswich-ruben-amorim-lineup/
+
+**Sixteen things that help explain Pep Guardiola losing five games in a row for the first time**\
+`Pep Guardiola has put Manchester City's awful recent run down to many little things - here are 16 of them, and their impacts explained`\
+https://nytimes.com/athletic/5942550/2024/11/24/16-things-explain-guardiola-record-defeats/
+
+**Ethan Nwaneri, Martin Odegaard and plotting the best path for Arsenal's prodigious teenager**\
+`Arteta wants to build Nwaneri's career brick by brick but the teenager has already earned the respect and trust of his senior players`\
+https://nytimes.com/athletic/5942446/2024/11/24/ethan-nwaneri-martin-odegaard-teenage-prodigy/
+
+**How Sabres put themselves in playoff picture with California sweep: 10 takeaways**\
+`The Sabres' 11-9-1 record has them in playoff position with Thanksgiving just a few days away. How did it happen?`\
+https://nytimes.com/athletic/5943201/2024/11/24/sabres-sharks-ducks-kings-takeaways/
+
+**Explaining Ruben Amorim's 3-4-2-1 formation and how he's teaching it at Manchester United**\
+`Footage from training suggests a drastic tactical change is imminent, and it starts at Ipswich on Sunday afternoon`\
+https://nytimes.com/athletic/5940089/2024/11/24/manchester-united-tactics-ruben-amorim/
+
 **Fifteen of the best football songs of all time, from Seven Nation Army to Freed from Desire**\
 `From Seven Nation Army to Mas Que Nada, The Athletic's writers celebrate the best football songs ever written`\
 https://nytimes.com/athletic/5938054/2024/11/24/best-football-songs-all-time/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/11/24/us/lady-jaguars-basketball-carroll-academy.html
 **Quote of the Day: Bathing in Oil Might Seem Crude Near a Climate Summit, but Locals Swear by It**\
 `Quotation of the Day for Sunday, November 24, 2024.`\
 https://nytimes.com/2024/11/24/pageoneplus/quote-of-the-day-bathing-in-oil-might-seem-crude-near-a-climate-summit-but-locals-swear-by-it.html
-
-**Taking a Second Look at the Lives of Troubled Girls, a Decade Later**\
-`When they were teens, these girls were sent to a school for juvenile delinquents. Our journalists experienced the rare privilege of telling their stories twice.`\
-https://nytimes.com/2024/11/24/us/lady-jaguars-john-branch.html
-
-**What Two Acclaimed Female-Directed Movies Say About Indian Cinema**\
-`“Laapataa Ladies” and “All We Imagine as Light” have both captivated audiences at home. But only one was able to get India’s nod for the best foreign film Oscar.`\
-https://nytimes.com/2024/11/24/world/asia/indian-movies-oscars.html
-
-**A Corruption Case That Spilled Across Latin America Is Coming Undone**\
-`Operation Car Wash, which started in Brazil, revealed a bribery scheme that spanned at least 12 countries. Brazil’s Supreme Court has reversed much of its impact.`\
-https://nytimes.com/2024/11/24/world/americas/brazil-corruption-operation-car-wash-convictions.html
-
-**Tortured, Burned, Put to Death. Their Crime? ‘Sorcery.’**\
-`Tragedies in Papua New Guinea are often followed by accusations of sorcery and unspeakable acts of violence. That cycle has become more brutal in recent years.`\
-https://nytimes.com/2024/11/24/world/asia/papua-new-guinea-sorcery.html
-
-**Southampton vs Liverpool odds, prediction: Leading Reds look to extend unbeaten run**\
-`Liverpool lead the league and Southampton are dead last. Will the Saints pull off a shocker or will the Reds extend their unbeaten run?`\
-https://nytimes.com/athletic/5940902/2024/11/24/southampton-liverpool-preview-odds-prediction/
-
-**Ipswich vs Manchester United preview: Storylines, odds, prediction for Amorim's debut**\
-`Ruben Amorim debuts as Manchester United manager Sunday at Ipswich. Will the Red Devils get a win or will the honeymoon period end early?`\
-https://nytimes.com/athletic/5940798/2024/11/24/ipswich-manchester-united-preview-odds-prediction/
 
