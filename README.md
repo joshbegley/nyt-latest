@@ -1,3 +1,7 @@
+**Nations at COP29 Climate Summit Agree to Annual $300 Billion Pledge**\
+`Delegates from developing countries described the deal’s financial target, $300 billion per year by 2035, as lacking the ambition needed to help their governments combat climate change.`\
+https://nytimes.com/video/climate/100000009843098/cop29-climate-summit-deal.html
+
 **Chiefs top Panthers 30-27 as Mahomes' run sets up winning kick: Takeaways**\
 `Chiefs improve to AFC-best 10-1, while Travis Kelce moves up the all-time tight end receiving yards list. `\
 https://nytimes.com/athletic/5943979/2024/11/24/chiefs-panthers-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944412/2024/11/24/texans-titans-score-result-takea
 **Bucs beat Giants 30-7 in N.Y.'s first game without Daniel Jones: Takeaways**\
 `The Giants were shut out in the first half and couldn't convert a third down until after halftime in Tommy DeVito's first start of 2024.`\
 https://nytimes.com/athletic/5944029/2024/11/24/buccaneers-giants-score-result-takeaways/
-
-**F1 Mailbag: Submit your questions for our Las Vegas GP mailbag**\
-`One championship down, one to go. Ask our F1 writers what's on your mind after a fascinating Las Vegas Grand Prix. `\
-https://nytimes.com/athletic/5944503/2024/11/24/f1-las-vegas-max-verstappen-mailbag/
 
