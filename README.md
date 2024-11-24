@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5944011/2024/11/24/italy-davis-cup-win-netherlands/
 https://nytimes.com/2024/11/24/us/politics/brooke-rollins-trump-agriculture.html
 
 **The Briefing: Ipswich 1 Man Utd 1 - That opening goal, Onana's importance, what Amorim has to do**\
-`Our writers break down the action from Ruben Amorim's first match in charge of Manchester United.`\
+`Our writers break down the action from Ruben Amorim's first match in charge of Manchester United`\
 https://nytimes.com/athletic/5940184/2024/11/24/ipswich-man-utd-amorim/
 
 **Rico Carty, Exceptional Hitter Who Was Stymied by Injuries, Dies at 85**\
