@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Indiana hangs on as Alabama, Ole Miss fall out**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/24/college-football-playoff-projections-odds/
+
 **NFL Week 12 inactives and fantasy tips: Mike Evans, Keenan Allen questionable for Sunday**\
 `Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
