@@ -1,3 +1,11 @@
+**What Two Acclaimed Female-Directed Movies Say About Indian Cinema**\
+`“Laapataa Ladies” and “All We Imagine as Light” have both captivated audiences at home. But only one was able to get India’s nod for the best foreign film Oscar.`\
+https://nytimes.com/2024/11/24/world/asia/indian-movies-oscars.html
+
+**A Corruption Case That Spilled Across Latin America Is Coming Undone**\
+`Operation Car Wash, which started in Brazil, revealed a bribery scheme that spanned at least 12 countries. Brazil’s Supreme Court has reversed much of its impact.`\
+https://nytimes.com/2024/11/24/world/americas/brazil-corruption-operation-car-wash-convictions.html
+
 **Tortured, Burned, Put to Death. Their Crime? ‘Sorcery.’**\
 `Tragedies in Papua New Guinea are often followed by accusations of sorcery and unspeakable acts of violence. That cycle has become more brutal in recent years.`\
 https://nytimes.com/2024/11/24/world/asia/papua-new-guinea-sorcery.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5943085/2024/11/23/notre-dame-army-college-football
 **Orlando and Marta win first NWSL championship**\
 `Banda's goal proved the difference in Orlando's first NWSL championship.`\
 https://nytimes.com/athletic/5942976/2024/11/23/nwsl-championship-orlando-pride-barbra-banda/
-
-**How Canucks overcame harsh Quinn Hughes ejection to flatten Senators: 3 takeaways**\
-`The Canucks' 4-3 victory set a positive tone for the opening of their six-game road trip.`\
-https://nytimes.com/athletic/5942948/2024/11/23/canucks-senators-quinn-hughes-ejection/
-
-**Fred R. Harris, Oklahoma Senator Who Ran for President, Dies at 94**\
-`After eight years in the Senate as a moderate Democrat, he took a leftward turn toward “new populism” in a failed shot at the presidency in 1976.`\
-https://nytimes.com/2024/11/23/us/politics/fred-r-harris-dead.html
 
