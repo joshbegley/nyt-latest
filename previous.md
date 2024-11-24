@@ -1,40 +1,40 @@
-**Raging Waters Were Headed Their Way. Why Did Nobody Tell Them?**\
-`Torrential rains in Valencia, in eastern Spain, caused flooding that killed more than 200 people. The deluge started inland. It took the authorities hours to warn those downstream.`\
-https://nytimes.com/2024/11/24/world/europe/spain-valencia-flood-alert-warning.html
+**Cowboys Today: Predictions, no Trey Lance trade regret and Zack Martin's future**\
+`The Cowboys will try to end a five-game losing streak Sunday when they play the Commanders in Washington.`\
+https://nytimes.com/athletic/5942318/2024/11/24/cowboys-commanders-predictions-trey-lance/
 
-**A Survivor in Spain Filmed How the Water Flooded Her Town in Hours**\
-`Rosalía Arenas, a resident of Utiel, recorded on her phone for nearly five hours as deadly floods submerged her street. A boat eventually evacuated Ms. Arena and her 2-year-old child.`\
-https://nytimes.com/video/world/europe/100000009819423/spain-valencia-deadly-floods-utiel.html
+**'On our terms': Penn State keeps Playoff plans intact with aggressive final drive**\
+`Penn State finally slammed the door on Minnesota with creativity, aggressiveness and execution.`\
+https://nytimes.com/athletic/5943149/2024/11/24/penn-state-football-minnesota-fourth-down/
 
-**Shopping and Shame Share the Shelves in ‘American Bulk’**\
-`In an eye-opening collection, Emily Mester considers why she, and we, seek satisfaction by obsessively choosing, buying and rating the objects we desire.`\
-https://nytimes.com/2024/11/24/books/review/american-bulk-emily-mester.html
+**Egypt Feuds With Travel Blogger, Issuing 1,100-Word Response to Complaints**\
+`When a blogger criticized Cairo’s airport, Egypt’s government fired back, citing security footage, threatening legal action and asking, “Is it reasonable for a passenger to visit two lounges before a single flight?”`\
+https://nytimes.com/2024/11/24/world/middleeast/egypt-travel-blogger-feud-airport.html
 
-**Should You Still Learn to Code in an A.I. World?**\
-`Coding boot camps once looked like the golden ticket to an economically secure future. But as that promise fades, what should you do? Keep learning, until further notice.`\
-https://nytimes.com/2024/11/24/business/computer-coding-boot-camps.html
+**Trump Is Running His Transition Team on Secret Money**\
+`Breaking with past practice, President-elect Donald J. Trump has not agreed to disclose the donors paying for his planning effort or to limit their contributions.`\
+https://nytimes.com/2024/11/24/us/politics/donald-trump-2024-campaign-transition.html
 
-**In West Bank Raids, Palestinians See Echoes of Israel’s Gaza War**\
-`West Bank residents say Israeli forces are adopting tactics similar to the ones they are deploying in Gaza, including airstrikes and the use of Palestinians as human shields.`\
-https://nytimes.com/2024/11/24/world/middleeast/west-bank-raids-gaza-war.html
+**‘Shoot Me Up With Everything’**\
+`For a reporter who covers infectious diseases, vaccines are an indispensable news gathering tool.`\
+https://nytimes.com/2024/11/24/pageoneplus/shoot-me-up-with-everything.html
 
-**Reading, With Extra Cheese: Remembering Pizza Hut’s ‘Book It!’**\
-`Reporting on the 40th anniversary of the popular pizza literacy program sent one writer on a mozzarella-scented memory trail.`\
-https://nytimes.com/2024/11/24/insider/book-it-pizza-hut.html
+**How Alabama's offense faltered with everything on the line**\
+`The Crimson Tide picked up their third loss of the season in a 24-3 result against Oklahoma on Saturday.`\
+https://nytimes.com/athletic/5943268/2024/11/24/alabama-oklahoma-college-football-loss-offense-jalen-milroe/
 
-**Lions at Colts: How to watch, odds, expert picks with Detroit as big road favorite**\
-`The Lions are the most consistent and formidable team in the NFL. The Colts are among the most volatile. They face off Sunday.`\
-https://nytimes.com/athletic/5939088/2024/11/24/lions-colts-how-to-watch-odds-picks-betting/
+**Immigrants Across U.S. Rush to Prepare for Trump Crackdown**\
+`Donald Trump’s promise to carry out mass deportations has driven fearful immigrants to seek protections and advice.`\
+https://nytimes.com/2024/11/24/us/trump-immigrants-deportations.html
 
-**Chiefs at Panthers: How to watch, odds, picks with Kansas City week's biggest favorites**\
-`The Chiefs aim to bounce back from their first loss against the slightly resurgent but massive underdog Panthers. `\
-https://nytimes.com/athletic/5938217/2024/11/24/chiefs-panthers-how-to-watch-odds-picks-betting/
+**The Amsterdam Attacks and the Long Shadow of ‘Pogroms’**\
+`Many have used an old word to refer to recent events. Is it accurate?`\
+https://nytimes.com/2024/11/24/world/europe/amsterdam-pogrom.html
 
-**Barca briefing: Needless mistakes, Casado red card and Yamal's absence felt again**\
-`It was an unhappy return to action for Hansi Flick's side as they drew 2-2 with Celta Vigo after conceding two late goals`\
-https://nytimes.com/athletic/5942995/2024/11/24/barcelona-celta-casado-yamal/
+**For Nebraska, snapping a bowl drought comes with a sense of relief**\
+`Nebraska beat Wisconsin 44-25 as new OC Dana Holgorsen seemed to bring new swagger to the offense. `\
+https://nytimes.com/athletic/5943354/2024/11/24/nebraska-wisconsin-college-football-bowl-eligibility-matt-rhule/
 
-**Israeli Rabbi Who Disappeared in Dubai Is Found Dead**\
-`The Israeli authorities called the killing of the rabbi, Zvi Kogan, an act of terrorism. He had been missing since Thursday.`\
-https://nytimes.com/2024/11/24/world/middleeast/dubai-israeli-rabbi-disapperance.html
+**Shopping for a Good Riding Boot?**\
+`Start here.`\
+https://nytimes.com/2024/11/24/style/riding-boots-shopping-guide.html
 
