@@ -1,3 +1,7 @@
+**2 Dead After Civil Air Patrol Plane Crashes in Colorado Mountains**\
+`A Cessna plane crashed while conducting a training exercise, killing the pilot and an aerial photographer, the authorities said.`\
+https://nytimes.com/2024/11/24/us/colorado-civil-patrol-plane-crash.html
+
 **Blue Jackets Sunday Gathering: Olivier's emergence, Jiricek's future and a big payday coming**\
 `Olivier's emergence has been the most surprising development over the first six weeks of the season.`\
 https://nytimes.com/athletic/5941958/2024/11/24/blue-jackets-jiricek-olivier/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943801/2024/11/24/central-michigan-football-coachi
 **Lowetide: Why the Oilers' defensive deployment reveals surprises**\
 `Who is trusted by the Oilers coaching staff, and who is being faded compared to a year ago?`\
 https://nytimes.com/athletic/5942242/2024/11/24/edmonton-oilers-defensive-deployment-suprises/
-
-**Cooper sacked as Leicester manager after five months in charge**\
-`Steve Cooper has been sacked as manager of Leicester City after five months in charge at the King Power Stadium.`\
-https://nytimes.com/athletic/5943887/2024/11/24/leicester-city-sack-steve-cooper/
 
