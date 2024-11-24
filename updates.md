@@ -1,3 +1,7 @@
+**Hezbollah Fires About 250 Projectiles Into Israel**\
+`Hezbollah’s attack came after Israel’s deadly strike on Beirut on Saturday. It was one of the largest mounted by the militant group against Israel since it started firing on the country last year in solidarity with Hamas.`\
+https://nytimes.com/video/world/middleeast/100000009843029/hezbollah-airstrikes-israel-middle-east-war.html
+
 **The World Seeks an End to Plastic Pollution at Talks in South Korea**\
 `Many nations hope to reduce the half a billion tons of plastic made each year. But pushback from plastic and oil producers, and Donald Trump’s election, could scuttle an agreement.`\
 https://nytimes.com/2024/11/24/climate/plastic-pollution-south-korea-talks.html
