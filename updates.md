@@ -1,3 +1,7 @@
+**Nations at COP29 Climate Summit Agree to Annual $300 Billion Pledge**\
+`Delegates from developing countries described the deal’s financial target, $300 billion per year by 2035, as lacking the ambition needed to help their governments combat climate change.`\
+https://nytimes.com/video/climate/100000009843098/cop29-climate-summit-deal.html
+
 **Chiefs top Panthers 30-27 as Mahomes' run sets up winning kick: Takeaways**\
 `Chiefs improve to AFC-best 10-1, while Travis Kelce moves up the all-time tight end receiving yards list. `\
 https://nytimes.com/athletic/5943979/2024/11/24/chiefs-panthers-score-result-takeaways/
