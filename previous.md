@@ -1,3 +1,11 @@
+**Sampson: Notre Dame showing no signs of letting up on ruthless march to the Playoff**\
+`Notre Dame is operating at levels of ruthlessness not seen under Marcus Freeman. Perhaps not seen at Notre Dame in a long time.`\
+https://nytimes.com/athletic/5944419/2024/11/24/notre-dame-army-marcus-freeman-playoff/
+
+**Trump’s Cabinet: Many Ideologies Behind the Veil of ‘America First’**\
+`One faction of prospective nominees appears focused on revenge, another on calming markets and a third on relentlessly — perhaps hopelessly — cutting people and budgets.`\
+https://nytimes.com/2024/11/24/us/politics/trump-cabinet-america-first.html
+
 **Tony Campolo, Preacher Who Challenged Religious Right, Dies at 89**\
 `A mesmerizing speaker, he urged his fellow evangelicals to turn away from politics in favor of the values of charity and love espoused by Jesus.`\
 https://nytimes.com/2024/11/24/us/tony-campolo-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5944210/2024/11/24/ap-top-25-poll-smu-alabama/
 **Hornets' Grant Williams out for season with torn ACL**\
 `The Hornets are 6-10 this season and have been dealing with a slew of injuries.`\
 https://nytimes.com/athletic/5944246/2024/11/24/grant-williams-hornets-acl-tear/
-
-**Hezbollah Fires About 250 Projectiles Into Israel**\
-`Hezbollah’s attack came after Israel’s deadly strike on Beirut on Saturday. It was one of the largest mounted by the militant group against Israel since it started firing on the country last year in solidarity with Hamas.`\
-https://nytimes.com/video/world/middleeast/100000009843029/hezbollah-airstrikes-israel-middle-east-war.html
-
-**The World Seeks an End to Plastic Pollution at Talks in South Korea**\
-`Many nations hope to reduce the half a billion tons of plastic made each year. But pushback from plastic and oil producers, and Donald Trump’s election, could scuttle an agreement.`\
-https://nytimes.com/2024/11/24/climate/plastic-pollution-south-korea-talks.html
 

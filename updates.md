@@ -1,3 +1,11 @@
+**Sampson: Notre Dame showing no signs of letting up on ruthless march to the Playoff**\
+`Notre Dame is operating at levels of ruthlessness not seen under Marcus Freeman. Perhaps not seen at Notre Dame in a long time.`\
+https://nytimes.com/athletic/5944419/2024/11/24/notre-dame-army-marcus-freeman-playoff/
+
+**Trump’s Cabinet: Many Ideologies Behind the Veil of ‘America First’**\
+`One faction of prospective nominees appears focused on revenge, another on calming markets and a third on relentlessly — perhaps hopelessly — cutting people and budgets.`\
+https://nytimes.com/2024/11/24/us/politics/trump-cabinet-america-first.html
+
 **Tony Campolo, Preacher Who Challenged Religious Right, Dies at 89**\
 `A mesmerizing speaker, he urged his fellow evangelicals to turn away from politics in favor of the values of charity and love espoused by Jesus.`\
 https://nytimes.com/2024/11/24/us/tony-campolo-dead.html
