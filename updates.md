@@ -1,3 +1,7 @@
+**NFL Week 12 takeaways: Is the Commanders offense collapsing? Are the Texans still a year away?**\
+`Plus, sizing up the red-hot Vikings, and sorting out the post-Daniel Jones Giants.`\
+https://nytimes.com/athletic/5944819/2024/11/24/nfl-week-12-scores-takeaways-commanders-cowboys-texans-titans/
+
 **Vikings beat Bears 30-27 in OT as Addison has career day: Key takeaways**\
 `The Bears got the ball first in overtime but were forced to punt, leaving Minnesota with the chance to win on a field goal.`\
 https://nytimes.com/athletic/5943990/2024/11/24/vikings-bears-score-result-takeaways/
