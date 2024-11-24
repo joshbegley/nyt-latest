@@ -18,8 +18,8 @@ https://nytimes.com/athletic/5942980/2024/11/23/wild-kirill-kaprizov-injury-flam
 `Corrections that appeared in print on Sunday, Nov. 24, 2024.`\
 https://nytimes.com/2024/11/23/pageoneplus/corrections-nov-24-2024.html
 
-**Boise State's Ashton Jeanty passes 2,000-yard mark in 11th game**\
-`Jeanty hit the milestone with a 5-yard carry three minutes into the third quarter of a 10-10 tie.`\
+**Ashton Jeanty hits 2,000 yards as Boise State clinches MWC title game bid**\
+`Ashton Jeanty has 2,062 yards in 11 games as Boise State stayed atop the Group of 5 Playoff race with a 17-13 win at Wyoming.`\
 https://nytimes.com/athletic/5943012/2024/11/23/ashton-jeanty-rushing-yards-boise-state-record/
 
 **Mirtle: Nylanders ready to add chapter to NHL's long history of brotherly acts**\
