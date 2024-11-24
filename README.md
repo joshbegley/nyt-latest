@@ -1,3 +1,7 @@
+**Corrections: Nov. 24, 2024**\
+`Corrections that appeared in print on Sunday, Nov. 24, 2024.`\
+https://nytimes.com/2024/11/23/pageoneplus/corrections-nov-24-2024.html
+
 **Boise State's Ashton Jeanty passes 2,000-yard mark in 11th game**\
 `Jeanty hit the milestone with a 5-yard carry three minutes into the third quarter of a 10-10 tie.`\
 https://nytimes.com/athletic/5943012/2024/11/23/ashton-jeanty-rushing-yards-boise-state-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942716/2024/11/23/penn-state-minnesota-score-recap
 **Travis Hunter tracker: Superstar's huge performance can't save Colorado from upset loss**\
 `Hunter scored twice and surpassed 1,000 yards receiving for the season during Saturday's game, but it wasn't enough for Colorado.`\
 https://nytimes.com/athletic/5942640/2024/11/23/travis-hunter-nfl-draft-2025-kansas/
-
-**How Wild fell in shootout despite late rally without Kirill Kaprizov: 3 takeaways**\
-`Playing without their superstar, the Wild scored two late goals before the Flames won 4-3 in a five-round shootout.`\
-https://nytimes.com/athletic/5942589/2024/11/23/wild-flames-kirill-kaprizov-injury/
 
