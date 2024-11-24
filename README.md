@@ -1,3 +1,7 @@
+**Bayer Leverkusen CEO positive about Alonso and Wirtz's futures**\
+`Bayer Leverkusen CEO Fernando Carro has denied reports that head coach Xabi Alonso and star midfielder Florian Wirtz are certain to leave the club in the near future.`\
+https://nytimes.com/athletic/5944367/2024/11/24/leverkusen-alonso-wirtz-future/
+
 **Stewart Mandel's 12-team Playoff projections after Week 13**\
 `Fun fact: If Arizona State does get the No. 4 seed, it will play a local quarterfinal game at the Fiesta Bowl.`\
 https://nytimes.com/athletic/5944295/2024/11/24/college-football-playoff-bracket-projections-week-13/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940184/2024/11/24/ipswich-man-utd-amorim/
 **Rico Carty, Exceptional Hitter Who Was Stymied by Injuries, Dies at 85**\
 `A Dominican baseball star, he had a dazzling rookie year and became a pioneering designated hitter, but injuries and tuberculosis held him back.`\
 https://nytimes.com/2024/11/24/sports/baseball/rico-carty-dead.html
-
-**How Wisconsin landed 4-star QB Carter Smith, former Michigan commit**\
-`Smith, who originally committed to Michigan, represents the second-highest rated quarterback for the Badgers in the online ranking era.`\
-https://nytimes.com/athletic/5942968/2024/11/24/wisconsin-recruiting-carter-smith-quarterback/
 
