@@ -1,3 +1,11 @@
+**Vikings beat Bears 30-27 in OT as Addison has career day: Key takeaways**\
+`The Bears got the ball first in overtime but were forced to punt, leaving Minnesota with the chance to win on a field goal.`\
+https://nytimes.com/athletic/5943990/2024/11/24/vikings-bears-score-result-takeaways/
+
+**Chiefs top Panthers 30-27 as Mahomes' run sets up winning kick: Takeaways**\
+`The Chiefs improved to an AFC-best 10-1, while Travis Kelce moved up the all-time tight end receiving yards list. `\
+https://nytimes.com/athletic/5943979/2024/11/24/chiefs-panthers-score-result-takeaways/
+
 **Cowboys shock Commanders 34-26 after chaotic fourth quarter: Takeaways**\
 `A missed PAT by Washington's Austin Seibert let the Cowboys off the hook for allowing an 86-yard TD with under 30 seconds left.`\
 https://nytimes.com/athletic/5944044/2024/11/24/commanders-cowboys-score-result-takeaways/
