@@ -1,3 +1,7 @@
+**The Briefing: Southampton 2 Liverpool 3 - Salah to rescue... but what happened at the back? And was it a penalty?**\
+`Liverpool had a tougher afternoon away to Southampton that many expected - The Athletic analyses the talking points from a thrilling game`\
+https://nytimes.com/athletic/5940174/2024/11/24/southampton-2-liverpool-3-salah-slot-konate-van-dijk/
+
 **SEC vibes rankings: What in the world just happened?**\
 `The SEC is the deepest conference, the hardest to play in and could deserve only three teams in the College Football Playoff.`\
 https://nytimes.com/athletic/5943838/2024/11/24/week-13-sec-football-rankings/
