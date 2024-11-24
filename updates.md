@@ -1,3 +1,7 @@
+**Israeli Rabbi Who Disappeared in Dubai Is Found Dead**\
+`The Israeli authorities called the killing of the rabbi, Zvi Kogan, an act of terrorism. He had been missing since Thursday.`\
+https://nytimes.com/2024/11/24/world/middleeast/dubai-israeli-rabbi-disapperance.html
+
 **Have New York’s Football Teams Finally Hit Rock Bottom?**\
 `The Jets and Giants are both having seasons that fans would rather forget. But they took very different routes to get there.`\
 https://nytimes.com/2024/11/24/nyregion/new-york-jets-giants.html
