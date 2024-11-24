@@ -1,3 +1,7 @@
+**Yohe's 10 observations: On Sidney Crosby and a team with no hope**\
+`When you think of Crosby, you think of winning (and his 600 goals). But there's no winning with this team.`\
+https://nytimes.com/athletic/5943032/2024/11/24/penguins-sidney-crosby-no-hope/
+
 **Wild day in SEC sets up Georgia vs. Texas-Texas A&M winner in title game**\
 `Earlier in the day, Georgia wasn’t considering the SEC championship a strong possibility, much less clinching a spot before the night ended.`\
 https://nytimes.com/athletic/5943246/2024/11/24/sec-title-game-scenarios-georgia-texas-texas-am/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940089/2024/11/24/manchester-united-tactics-ruben-
 **Fifteen of the best football songs of all time, from Seven Nation Army to Freed from Desire**\
 `From Seven Nation Army to Mas Que Nada, The Athletic's writers celebrate the best football songs ever written`\
 https://nytimes.com/athletic/5938054/2024/11/24/best-football-songs-all-time/
-
-**Real Madrid's Sotheby's auction: Lockers, a giant mosaic and other Bernabeu memorabilia**\
-`Sotheby's is holding a special auction for memorabilia from Real Madrid's Santiago Bernabeu`\
-https://nytimes.com/athletic/5940163/2024/11/24/real-madrid-auction-sothebys/
 
