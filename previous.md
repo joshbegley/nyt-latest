@@ -1,3 +1,11 @@
+**Aina in advanced talks over new Forest deal**\
+`Nottingham Forest are in advanced discussions with defender Ola Aina over a contract extension.`\
+https://nytimes.com/athletic/5943480/2024/11/24/ola-aina-new-nottingham-forest-contract/
+
+**New Thanksgiving Classics**\
+`We’ve got a menu for your holiday.`\
+https://nytimes.com/2024/11/24/briefing/new-thanksgiving-classics.html
+
 **Ferrari's Charles Leclerc fumes 'being nice f—s me over all the time' after Las Vegas Grand Prix**\
 `Charles Leclerc was not happy after finishing behind his Ferrari teammate Carlos Sainz in Las Vegas`\
 https://nytimes.com/athletic/5943371/2024/11/24/f1-charles-leclerc-carlos-sainz-ferrari-las-vegas-gp/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/24/world/europe/israel-lebanon-hezbollah.html
 **Neighbors Are Burning Each Other’s Land to Stop Dangerous Wildfires. Let’s Help Them.**\
 `We don’t use prescribed burns enough.`\
 https://nytimes.com/2024/11/24/opinion/wildfires-new-york-new-jersey-prescribed-burn.html
-
-**Wordle Review No. 1,255**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 25, 2024.`\
-https://nytimes.com/2024/11/24/crosswords/wordle-review-1255.html
-
-**The Connections Companion No. 533**\
-`Scroll down for hints and conversation about the puzzle for Nov. 25, 2024.`\
-https://nytimes.com/2024/11/24/crosswords/connections-companion-533.html
 

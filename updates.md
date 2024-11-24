@@ -1,3 +1,11 @@
+**Aina in advanced talks over new Forest deal**\
+`Nottingham Forest are in advanced discussions with defender Ola Aina over a contract extension.`\
+https://nytimes.com/athletic/5943480/2024/11/24/ola-aina-new-nottingham-forest-contract/
+
+**New Thanksgiving Classics**\
+`We’ve got a menu for your holiday.`\
+https://nytimes.com/2024/11/24/briefing/new-thanksgiving-classics.html
+
 **Ferrari's Charles Leclerc fumes 'being nice f—s me over all the time' after Las Vegas Grand Prix**\
 `Charles Leclerc was not happy after finishing behind his Ferrari teammate Carlos Sainz in Las Vegas`\
 https://nytimes.com/athletic/5943371/2024/11/24/f1-charles-leclerc-carlos-sainz-ferrari-las-vegas-gp/
