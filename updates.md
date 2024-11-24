@@ -1,4 +1,8 @@
 **Mirtle: Nylanders ready to add chapter to NHL's long history of brotherly acts**\
+`Sunday night, William Nylander and his younger brother, Alex, will join four other sets of brothers who have played together as Leafs. `\
+https://nytimes.com/athletic/5942661/2024/11/23/maple-leafs-william-alex-nylander-brothers-nhl/
+
+**Mirtle: Nylanders ready to add chapter to NHL's long history of brotherly acts**\
 `On Sunday night, William Nylander and younger brother Alex will join four other sets of brothers who have played together as Leafs. `\
 https://nytimes.com/athletic/5942661/2024/11/23/maple-leafs-william-alex-nylander-brothers-nhl/
 
