@@ -1,3 +1,7 @@
+**The Briefing: Southampton 2 Liverpool 3 - Salah to rescue... but what happened at the back? Was it a penalty?**\
+`Liverpool had a tougher afternoon away to Southampton that many expected - The Athletic analyses the talking points from a thrilling game`\
+https://nytimes.com/athletic/5940174/2024/11/24/southampton-2-liverpool-3-salah-slot-konate-van-dijk/
+
 **Without Drama or Banana, Art Auctions Struggle**\
 `Beyond the headline-grabbing sales of the fall auction season, the market tries to soar beyond its two-year slump.`\
 https://nytimes.com/2024/11/24/arts/design/art-auctions-struggle-banana.html
