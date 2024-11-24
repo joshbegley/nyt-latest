@@ -1,3 +1,7 @@
+**SEC vibes rankings: What in the world just happened?**\
+`The SEC is the deepest conference, the hardest to play in and could deserve only three teams in the College Football Playoff.`\
+https://nytimes.com/athletic/5943838/2024/11/24/week-13-sec-football-rankings/
+
 **NFL Week 12 inactives and fantasy tips: Mike Evans, Malik Nabers active for Sunday**\
 `Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
