@@ -1,3 +1,7 @@
+**No. 5 UCLA shocks No. 1 South Carolina in stellar defensive performance**\
+`It is the first victory over a top-ranked team in 20 tries for UCLA in program history.`\
+https://nytimes.com/athletic/5944873/2024/11/24/usc-ucla-womens-basketball-takeaways/
+
 **Maverick McNealy wins first career PGA Tour with walk-off birdie**\
 `McNealy made his birdie on the final hole to earn his first career PGA Tour win and put himself in the early 2025 signature events`\
 https://nytimes.com/athletic/5944630/2024/11/24/maverick-mcnealy-pga-tour-rsm-classic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/world/middleeast/israel-strikes-lebanon.html
 **Behind the Blues' abrupt coaching change: 'A difference-maker became available, and we reacted'**\
 `The Blues fired Drew Bannister just 22 games into his first full season as coach, replacing him with former Bruins coach Jim Montgomery.`\
 https://nytimes.com/athletic/5943949/2024/11/24/blues-jim-montgomery-decision/
-
-**Tagovailoa throws 4 TD passes in Dolphins' 34-15 win vs. Patriots: Takeaways**\
-`He’s now a dominating 7-0 in his career against the Patriots.`\
-https://nytimes.com/athletic/5944023/2024/11/24/patriots-dolphins-score-result-takeaways/
 
