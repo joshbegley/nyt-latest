@@ -1,3 +1,7 @@
+**SEC vibes rankings: What in the world just happened?**\
+`The SEC is the deepest conference, the hardest to play in and could deserve only three teams in the College Football Playoff.`\
+https://nytimes.com/athletic/5943838/2024/11/24/week-13-sec-football-rankings/
+
 **NFL Week 12 inactives and fantasy tips: Mike Evans, Malik Nabers active for Sunday**\
 `Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940174/2024/11/24/southampton-2-liverpool-3-salah-
 **Getting the Election Wrong, and Right**\
 `Readers respond to a column by David Brooks. Also: Blaming the Green Party for a Democratic loss in the Senate race in Pennsylvania; a sitcom cabinet.`\
 https://nytimes.com/2024/11/24/opinion/trump-harris-election-lessons.html
-
-**Fat, Flaky Mounds of Quick Bread, Golden Brown, With a Significant Crumb**\
-`My five-star all-purpose biscuit recipe, at the ready.`\
-https://nytimes.com/2024/11/24/dining/biscuit-thanksgiving-recipes-2024.html
 
