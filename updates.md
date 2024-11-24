@@ -1,3 +1,7 @@
+**Sooners 'finally did the things' to win, possibly eliminating Bama from Playoff**\
+`Alabama QB Jalen Milroe completed just two passes in the first half before finishing 11-for-26 for 164 yards and three interceptions.`\
+https://nytimes.com/athletic/5943136/2024/11/23/alabama-oklahoma-college-football-score-analysis/
+
 **Fred R. Harris, Oklahoma Senator Who Ran for President, Dies at 94**\
 `After eight years in the Senate as a moderate Democrat, he took a leftward turn toward “new populism” in a failed shot at the presidency in 1976.`\
 https://nytimes.com/2024/11/23/us/politics/fred-r-harris-dead.html

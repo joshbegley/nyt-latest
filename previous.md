@@ -1,4 +1,4 @@
-**Alabama plagued by turnovers, fails to score touchdown in loss to Oklahoma**\
+**Sooners 'finally did the things' to win, possibly eliminating Bama from Playoff**\
 `Alabama QB Jalen Milroe completed just two passes in the first half before finishing 11-for-26 for 164 yards and three interceptions.`\
 https://nytimes.com/athletic/5943136/2024/11/23/alabama-oklahoma-college-football-score-analysis/
 
