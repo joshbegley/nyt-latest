@@ -1,3 +1,7 @@
+**Martin takes responsibility for Southampton's defensive errors: 'That is on me'**\
+`Southampton manager Russell Martin says he takes responsibility for the goals that his side conceded during their 3-2 defeat to Liverpool.`\
+https://nytimes.com/athletic/5944429/2024/11/24/southampton-russell-martin-liverpool/
+
 **Lions cruise to 24-6 win over Colts to earn 9th straight victory: Key takeaways**\
 `Detroit pounced on Indianapolis en route to securing a second consecutive 10-win season for the first time in franchise history.`\
 https://nytimes.com/athletic/5944009/2024/11/24/lions-colts-score-result-takeaways/
