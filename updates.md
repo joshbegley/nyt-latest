@@ -1,3 +1,7 @@
+**Orlando and Marta win first NWSL championship**\
+`Banda's goal proved the difference in Orlando's first NWSL championship.`\
+https://nytimes.com/athletic/5942976/2024/11/23/nwsl-championship-orlando-pride-barbra-banda/
+
 **How Canucks overcame harsh Quinn Hughes ejection to flatten Senators: 3 takeaways**\
 `The Canucks' 4-3 victory set a positive tone for the opening of their six-game road trip.`\
 https://nytimes.com/athletic/5942948/2024/11/23/canucks-senators-quinn-hughes-ejection/
