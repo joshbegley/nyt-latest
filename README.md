@@ -1,3 +1,7 @@
+**NFL Week 12 inactives and fantasy tips: Mike Evans, Malik Nabers active for Sunday**\
+`Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
+https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
+
 **Leicester fans: Was it right to sack Cooper - and who should replace him?**\
 `Cooper leaves with the club 16th in the Premier League - was it the right decision, and who should come in?`\
 https://nytimes.com/athletic/5943974/2024/11/24/leicester-sack-steve-cooper-next-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/opinion/trump-harris-election-lessons.html
 **Fat, Flaky Mounds of Quick Bread, Golden Brown, With a Significant Crumb**\
 `My five-star all-purpose biscuit recipe, at the ready.`\
 https://nytimes.com/2024/11/24/dining/biscuit-thanksgiving-recipes-2024.html
-
-**Until Saturday: Notre Dame is on the rise, while the SEC could be down**\
-`Welcome to Until Saturday, the five-star college football newsletter: Notre Dame is rising, and the SEC is falling?`\
-https://nytimes.com/athletic/5943543/2024/11/24/notre-dame-sec-college-football-playoff-until-saturday/
 
