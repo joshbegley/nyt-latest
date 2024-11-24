@@ -1,3 +1,7 @@
+**Curt Cignetti thinks Indiana is still Playoff worthy. In 12-team format, we get to debate**\
+`Despite loss, Hoosiers have been one of the better teams in the country. Last year, that would no longer matter. This year, it still might.`\
+https://nytimes.com/athletic/5942805/2024/11/23/indiana-ohio-state-curt-cignetti-college-football-playoff-debate/
+
 **Penn State makes right calls late to escape Minnesota, close in on Playoff bid: Takeaways**\
 `No. 4 Penn State survived an upset bid from Minnesota on Saturday after converting three fourth downs on its final possession.`\
 https://nytimes.com/athletic/5942716/2024/11/23/penn-state-minnesota-score-recap-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942694/2024/11/23/nebraska-football-wisconsin-scor
 **Hannah Hidalgo, Notre Dame overpower USC in top-10 matchup**\
 `USC appeared overmatched by the Irish, falling behind early and losing contact in the fourth quarter as Notre Dame won 74-61.`\
 https://nytimes.com/athletic/5942754/2024/11/23/notre-dame-usc-result-score-takeaways/
-
-**California Educator Is Charged With Molesting 8 Children**\
-`David Braff was first accused of misconduct years ago but has since held a series of school jobs. The authorities are investigating the possibility of additional victims.`\
-https://nytimes.com/2024/11/23/us/california-assistant-principal-sexual-misconduct.html
 
