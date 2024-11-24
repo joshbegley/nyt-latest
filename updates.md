@@ -1,3 +1,11 @@
+**Madrid president Perez criticises FIFA, UEFA over football calendar**\
+`Real Madrid president Florentino Perez has accused UEFA and FIFA of &#8220;putting the health of players at risk&#8221; and &#8220;disrespecting the fans&#8221; in an attack on the global football calendar.`\
+https://nytimes.com/athletic/5943517/2024/11/24/real-madrid-florentino-perez-uefa-fifa/
+
+**Matas Buzelis provides glimpse of future for a Bulls team struggling in the present**\
+`Matas Buzelis put on a show with 12 second-quarter points and a memorable dunk. It could be remembered as the moment Buzelis began to bloom.`\
+https://nytimes.com/athletic/5943363/2024/11/24/matas-buzelis-bulls-grizzlies/
+
 **After a very familiar loss, it's clear: The Lakers still haven't figured out the Nuggets**\
 `The Nuggets punched the Lakers in the mouth and Los Angeles immediately folded, losing the 13th of its last 14 games against Denver.`\
 https://nytimes.com/athletic/5941433/2024/11/24/lakers-nuggets-anthony-davis-nikola-jokic/
