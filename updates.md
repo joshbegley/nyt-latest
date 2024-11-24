@@ -1,3 +1,7 @@
+**Live Q&A: Week 12 fantasy football start/sit chat with Jay Felicio, Sunday 11/24 at 11 a.m. ET**\
+`Submit your Week 12 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5940899/2024/11/24/live-qa-week-12-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-24-at-11-a-m-et/
+
 **St. Louis Blues fire coach Drew Bannister, hire Jim Montgomery as replacement**\
 `The Blues signed Montgomery to a five-year contract to become the 28th head coach in the team's history.`\
 https://nytimes.com/athletic/5943689/2024/11/24/blues-jim-montgomery-drew-bannister/

@@ -1,3 +1,7 @@
+**Live Q&A: Week 12 fantasy football start/sit chat with Jay Felicio, Sunday 11/24 at 11 a.m. ET**\
+`Submit your Week 12 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5940899/2024/11/24/live-qa-week-12-fantasy-football-start-sit-chat-with-jay-felicio-sunday-11-24-at-11-a-m-et/
+
 **St. Louis Blues fire coach Drew Bannister, hire Jim Montgomery as replacement**\
 `The Blues signed Montgomery to a five-year contract to become the 28th head coach in the team's history.`\
 https://nytimes.com/athletic/5943689/2024/11/24/blues-jim-montgomery-drew-bannister/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943409/2024/11/24/usc-ucla-jayden-maiava-lincoln-r
 **NFL Week 12 inactives and fantasy tips: Mike Evans, Keenan Allen questionable for Sunday**\
 `Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
-
-**College Football Playoff 2024 projections: Indiana hangs on as Alabama, Ole Miss fall out**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/24/college-football-playoff-projections-odds/
 
