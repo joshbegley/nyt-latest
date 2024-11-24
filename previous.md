@@ -1,3 +1,15 @@
+**Getting the Election Wrong, and Right**\
+`Readers respond to a column by David Brooks. Also: Blaming the Green Party for a Democratic loss in the Senate race in Pennsylvania; a sitcom cabinet.`\
+https://nytimes.com/2024/11/24/opinion/trump-harris-election-lessons.html
+
+**Fat, Flaky Mounds of Quick Bread, Golden Brown, With a Significant Crumb**\
+`My five-star all-purpose biscuit recipe, at the ready.`\
+https://nytimes.com/2024/11/24/dining/biscuit-thanksgiving-recipes-2024.html
+
+**Until Saturday: Notre Dame is on the rise, while the SEC could be down**\
+`Welcome to Until Saturday, the five-star college football newsletter: Notre Dame is rising, and the SEC is falling?`\
+https://nytimes.com/athletic/5943543/2024/11/24/notre-dame-sec-college-football-playoff-until-saturday/
+
 **Former BP Chief Joins A.I. Data Center Developer**\
 `Bernard Looney will join Prometheus Hyperscale, a Wyoming start-up, to help it address the enormous energy needs of the artificial intelligence industry.`\
 https://nytimes.com/2024/11/24/business/ai-data-center-bernard-looney.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5943689/2024/11/24/blues-jim-montgomery-drew-bannis
 **Connecticut Couple Charged in $1 Million Theft of Lululemon Goods**\
 `Investigators said the couple used trickery and misdirection to steal merchandise from Lululemon stores in at least five states.`\
 https://nytimes.com/2024/11/24/business/lululemon-theft-connecticut-couple.html
-
-**I Starred in ‘Cabaret.’ We Need to Heed Its Warning.**\
-`Much has changed since the show debuted on Broadway in 1966, but it’s what hasn’t changed that should worry us.`\
-https://nytimes.com/2024/11/24/opinion/cabaret-trump-joel-grey.html
-
-**Madrid president Perez criticises FIFA, UEFA over football calendar**\
-`Real Madrid president Florentino Perez has accused UEFA and FIFA of &#8220;putting the health of players at risk&#8221; and &#8220;disrespecting the fans&#8221; in an attack on the global football calendar.`\
-https://nytimes.com/athletic/5943517/2024/11/24/real-madrid-florentino-perez-uefa-fifa/
-
-**Matas Buzelis provides glimpse of future for a Bulls team struggling in the present**\
-`Matas Buzelis put on a show with 12 second-quarter points and a memorable dunk. It could be remembered as the moment Buzelis began to bloom.`\
-https://nytimes.com/athletic/5943363/2024/11/24/matas-buzelis-bulls-grizzlies/
 

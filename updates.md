@@ -1,3 +1,15 @@
+**Getting the Election Wrong, and Right**\
+`Readers respond to a column by David Brooks. Also: Blaming the Green Party for a Democratic loss in the Senate race in Pennsylvania; a sitcom cabinet.`\
+https://nytimes.com/2024/11/24/opinion/trump-harris-election-lessons.html
+
+**Fat, Flaky Mounds of Quick Bread, Golden Brown, With a Significant Crumb**\
+`My five-star all-purpose biscuit recipe, at the ready.`\
+https://nytimes.com/2024/11/24/dining/biscuit-thanksgiving-recipes-2024.html
+
+**Until Saturday: Notre Dame is on the rise, while the SEC could be down**\
+`Welcome to Until Saturday, the five-star college football newsletter: Notre Dame is rising, and the SEC is falling?`\
+https://nytimes.com/athletic/5943543/2024/11/24/notre-dame-sec-college-football-playoff-until-saturday/
+
 **Former BP Chief Joins A.I. Data Center Developer**\
 `Bernard Looney will join Prometheus Hyperscale, a Wyoming start-up, to help it address the enormous energy needs of the artificial intelligence industry.`\
 https://nytimes.com/2024/11/24/business/ai-data-center-bernard-looney.html
