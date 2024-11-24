@@ -1,3 +1,7 @@
+**No. 5 UCLA shocks No. 1 South Carolina in stellar defensive performance**\
+`It is the first victory over a top-ranked team in 20 tries for UCLA in program history.`\
+https://nytimes.com/athletic/5944873/2024/11/24/usc-ucla-womens-basketball-takeaways/
+
 **Maverick McNealy wins first career PGA Tour with walk-off birdie**\
 `McNealy made his birdie on the final hole to earn his first career PGA Tour win and put himself in the early 2025 signature events`\
 https://nytimes.com/athletic/5944630/2024/11/24/maverick-mcnealy-pga-tour-rsm-classic/
