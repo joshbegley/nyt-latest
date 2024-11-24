@@ -1,3 +1,11 @@
+**Nausea hits Canadiens again, but the context is completely different this time**\
+`The Canadiens took a step back Saturday, but it did not undo all the growth they've had lately.`\
+https://nytimes.com/athletic/5943266/2024/11/24/canadiens-golden-knights-martin-st-louis/
+
+**Jordan Morris' extra-time goal sends Sounders to Western Conference final**\
+`Seattle earned its first Western Conference final berth since 2020 thanks to Jordan Morris' extra-time goal.`\
+https://nytimes.com/athletic/5943279/2024/11/24/seattle-sounders-los-angeles-fc-mls-playoffs-score/
+
 **College Football Playoff 2024 projections: Indiana hangs on as Alabama, Ole Miss fall out**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/24/college-football-playoff-projections-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5943122/2024/11/24/arizona-state-byu-kenny-dillingh
 **Picking a starting XI for Ruben Amorim's first Manchester United game**\
 `The Athletic's Manchester United writers pick their starting XIs for Amorim's first game in charge against Ipswich today`\
 https://nytimes.com/athletic/5941856/2024/11/24/manchester-united-ipswich-ruben-amorim-lineup/
-
-**Sixteen things that help explain Pep Guardiola losing five games in a row for the first time**\
-`Pep Guardiola has put Manchester City's awful recent run down to many little things - here are 16 of them, and their impacts explained`\
-https://nytimes.com/athletic/5942550/2024/11/24/16-things-explain-guardiola-record-defeats/
-
-**Ethan Nwaneri, Martin Odegaard and plotting the best path for Arsenal's prodigious teenager**\
-`Arteta wants to build Nwaneri's career brick by brick but the teenager has already earned the respect and trust of his senior players`\
-https://nytimes.com/athletic/5942446/2024/11/24/ethan-nwaneri-martin-odegaard-teenage-prodigy/
 
