@@ -1,3 +1,7 @@
+**Connecticut Couple Charged in $1 Million Theft of Lululemon Goods**\
+`Investigators said the couple used trickery and misdirection to steal merchandise from Lululemon stores in at least five states.`\
+https://nytimes.com/2024/11/24/business/lululemon-theft-connecticut-couple.html
+
 **I Starred in ‘Cabaret.’ We Need to Heed Its Warning.**\
 `Much has changed since the show debuted on Broadway in 1966, but it’s what hasn’t changed that should worry us.`\
 https://nytimes.com/2024/11/24/opinion/cabaret-trump-joel-grey.html
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/5943517/2024/11/24/real-madrid-florentino-perez-uef
 **Matas Buzelis provides glimpse of future for a Bulls team struggling in the present**\
 `Matas Buzelis put on a show with 12 second-quarter points and a memorable dunk. It could be remembered as the moment Buzelis began to bloom.`\
 https://nytimes.com/athletic/5943363/2024/11/24/matas-buzelis-bulls-grizzlies/
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/11/24/nhl-standings-playoffs-projections-odds/
 
 **After a very familiar loss, it's clear: The Lakers still haven't figured out the Nuggets**\
 `The Nuggets punched the Lakers in the mouth and Los Angeles immediately folded, losing the 13th of its last 14 games against Denver.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5701128/2024/11/24/college-football-playoff-project
 **Aina in advanced talks over new Forest deal**\
 `Nottingham Forest are in advanced discussions with defender Ola Aina over a contract extension.`\
 https://nytimes.com/athletic/5943480/2024/11/24/ola-aina-new-nottingham-forest-contract/
-
-**New Thanksgiving Classics**\
-`We’ve got a menu for your holiday.`\
-https://nytimes.com/2024/11/24/briefing/new-thanksgiving-classics.html
-
-**Ferrari's Charles Leclerc fumes 'being nice f—s me over all the time' after Las Vegas Grand Prix**\
-`Charles Leclerc was not happy after finishing behind his Ferrari teammate Carlos Sainz in Las Vegas`\
-https://nytimes.com/athletic/5943371/2024/11/24/f1-charles-leclerc-carlos-sainz-ferrari-las-vegas-gp/
 
