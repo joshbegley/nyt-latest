@@ -1,3 +1,7 @@
+**I Starred in ‘Cabaret.’ We Need to Heed Its Warning.**\
+`Much has changed since the show debuted on Broadway in 1966, but it’s what hasn’t changed that should worry us.`\
+https://nytimes.com/2024/11/24/opinion/cabaret-trump-joel-grey.html
+
 **Madrid president Perez criticises FIFA, UEFA over football calendar**\
 `Real Madrid president Florentino Perez has accused UEFA and FIFA of &#8220;putting the health of players at risk&#8221; and &#8220;disrespecting the fans&#8221; in an attack on the global football calendar.`\
 https://nytimes.com/athletic/5943517/2024/11/24/real-madrid-florentino-perez-uefa-fifa/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/briefing/new-thanksgiving-classics.html
 **Ferrari's Charles Leclerc fumes 'being nice f—s me over all the time' after Las Vegas Grand Prix**\
 `Charles Leclerc was not happy after finishing behind his Ferrari teammate Carlos Sainz in Las Vegas`\
 https://nytimes.com/athletic/5943371/2024/11/24/f1-charles-leclerc-carlos-sainz-ferrari-las-vegas-gp/
-
-**Mercedes F1 rediscovers its winning rhythm on Las Vegas GP's smooth city streets**\
-`Mercedes dominated F1's top teams in Las Vegas. How? Well, that's a mystery.`\
-https://nytimes.com/athletic/5943370/2024/11/24/f1-vegas-george-russell-win-lewis-hamilton-mercedes/
 
