@@ -1,3 +1,7 @@
+**Maverick McNealy wins first career PGA Tour with walk-off birdie**\
+`McNealy made his birdie on the final hole to earn his first career PGA Tour win and put himself in the early 2025 signature events`\
+https://nytimes.com/athletic/5944630/2024/11/24/maverick-mcnealy-pga-tour-rsm-classic/
+
 **Perches in a Coop**\
 `Dena R. Witkes makes her Crossword debut.`\
 https://nytimes.com/2024/11/24/crosswords/daily-puzzle-2024-11-25.html
