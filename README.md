@@ -1,3 +1,7 @@
+**Penguins' Sidney Crosby scores 600th career goal, joins elite company**\
+`Crosby became only the 21st NHL player to score at least 600 career goals.`\
+https://nytimes.com/athletic/5900736/2024/11/23/penguins-sidney-crosby-600-career-nhl-goals/
+
 **Trump’s Choices for Health Agencies Suggest a Shake-Up Is Coming**\
 `The picks to oversee public health have all pushed back against Covid policies or supported ideas that are outside the medical mainstream.`\
 https://nytimes.com/2024/11/23/health/trump-kennedy-health-agencies-vaccines-covid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942813/2024/11/23/michigan-northwestern-bryce-unde
 **Owners of Colorado Funeral Home Admit to Abusing Nearly 200 Corpses**\
 `Jon and Carie Hallford pleaded guilty to corpse abuse after dozens of decaying bodies were found at their funeral home.`\
 https://nytimes.com/2024/11/23/us/colorado-funeral-home-guilty-corpse-abuse.html
-
-**The moral of the story from Ole Miss loss: This is about surviving the grind**\
-`Ole Miss wasn't built for CFP survival this year. But a good example of that is the team Ole Miss beat two weeks ago: Georgia.`\
-https://nytimes.com/athletic/5942763/2024/11/23/ole-miss-lane-kiffin-college-football-playoff/
 
