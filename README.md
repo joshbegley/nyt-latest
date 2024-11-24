@@ -1,3 +1,7 @@
+**Tony Campolo, Preacher Who Challenged Religious Right, Dies at 89**\
+`A mesmerizing speaker, he urged his fellow evangelicals to turn away from politics in favor of the values of charity and love espoused by Jesus.`\
+https://nytimes.com/2024/11/24/us/tony-campolo-dead.html
+
 **Charles Dumont, Who Wrote Enduring Melodies for Édith Piaf, Dies at 95**\
 `His dozens of songs included “Non, Je Ne Regrette Rien,” a powerful anthem of redemptive love that became one of Piaf’s signature songs.`\
 https://nytimes.com/2024/11/24/arts/music/charles-dumont-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009843029/hezbollah-airstrikes-
 **The World Seeks an End to Plastic Pollution at Talks in South Korea**\
 `Many nations hope to reduce the half a billion tons of plastic made each year. But pushback from plastic and oil producers, and Donald Trump’s election, could scuttle an agreement.`\
 https://nytimes.com/2024/11/24/climate/plastic-pollution-south-korea-talks.html
-
-**Italy retains Davis Cup: Sinner and Berrettini down Netherlands in Malaga**\
-`It adds to the Billie Jean King Cup, which Italy's women's team won with victory over Slovakia.`\
-https://nytimes.com/athletic/5944011/2024/11/24/italy-davis-cup-win-netherlands/
 
