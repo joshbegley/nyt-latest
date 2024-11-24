@@ -1,3 +1,7 @@
+**Walker was not to blame for City's vulnerable right side - Guardiola was**\
+`City lost 4-0 at home to Spurs due to the system, not because of their right-back's pace — or lack of it`\
+https://nytimes.com/athletic/5943707/2024/11/24/guardiola-not-walker-to-blame-for-man-citys-vulnerability-down-right/
+
 **Sampson: Notre Dame showing no signs of letting up on ruthless march to the Playoff**\
 `Notre Dame is operating at levels of ruthlessness not seen under Marcus Freeman. Perhaps not seen at Notre Dame in a long time.`\
 https://nytimes.com/athletic/5944419/2024/11/24/notre-dame-army-marcus-freeman-playoff/
