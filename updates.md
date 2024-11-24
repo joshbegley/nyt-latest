@@ -1,3 +1,7 @@
+**Tony Campolo, Preacher Who Challenged Religious Right, Dies at 89**\
+`A mesmerizing speaker, he urged his fellow evangelicals to turn away from politics in favor of the values of charity and love espoused by Jesus.`\
+https://nytimes.com/2024/11/24/us/tony-campolo-dead.html
+
 **Charles Dumont, Who Wrote Enduring Melodies for Édith Piaf, Dies at 95**\
 `His dozens of songs included “Non, Je Ne Regrette Rien,” a powerful anthem of redemptive love that became one of Piaf’s signature songs.`\
 https://nytimes.com/2024/11/24/arts/music/charles-dumont-dead.html
