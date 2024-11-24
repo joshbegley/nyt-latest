@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5942976/2024/11/23/nwsl-championship-orlando-pride-
 https://nytimes.com/athletic/5942948/2024/11/23/canucks-senators-quinn-hughes-ejection/
 
 **Fred R. Harris, Oklahoma Senator Who Ran for President, Dies at 94**\
-`After eight years in the Senate as a moderate Democrat, he took a leftward turn toward “new populism” in a failed 1976 shot at the presidency.`\
+`After eight years in the Senate as a moderate Democrat, he took a leftward turn toward “new populism” in a failed shot at the presidency in 1976.`\
 https://nytimes.com/2024/11/23/us/politics/fred-r-harris-dead.html
 
 **Iowa's scorched-earth QB situation and what it means for Kirk Ferentz**\
