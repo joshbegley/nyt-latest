@@ -1,3 +1,7 @@
+**Iowa's scorched-earth QB situation and what it means for Kirk Ferentz**\
+`Ferentz calling his quarterback position 'clearly cloudy' perfectly summarizes the situation.`\
+https://nytimes.com/athletic/5943035/2024/11/23/iowa-quarterbacks-kirk-ferentz-cade-mcnamara/
+
 **As Kirill Kaprizov injury concern grows, Wild confident they have 'good team' to fill void**\
 `The Wild will need other players to step up if they plan to keep the tremendous first quarter of their season going.`\
 https://nytimes.com/athletic/5942980/2024/11/23/wild-kirill-kaprizov-injury-flames/

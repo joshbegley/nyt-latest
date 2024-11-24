@@ -1,3 +1,7 @@
+**Iowa's scorched-earth QB situation and what it means for Kirk Ferentz**\
+`Ferentz calling his quarterback position 'clearly cloudy' perfectly summarizes the situation.`\
+https://nytimes.com/athletic/5943035/2024/11/23/iowa-quarterbacks-kirk-ferentz-cade-mcnamara/
+
 **As Kirill Kaprizov injury concern grows, Wild confident they have 'good team' to fill void**\
 `The Wild will need other players to step up if they plan to keep the tremendous first quarter of their season going.`\
 https://nytimes.com/athletic/5942980/2024/11/23/wild-kirill-kaprizov-injury-flames/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942854/2024/11/23/byu-arizona-state-goal-posts-sco
 **Curt Cignetti thinks Indiana is still Playoff worthy. In 12-team format, we get to debate**\
 `Despite loss, Hoosiers have been one of the better teams in the country. Last year, that would no longer matter. This year, it still might.`\
 https://nytimes.com/athletic/5942805/2024/11/23/indiana-ohio-state-curt-cignetti-college-football-playoff-debate/
-
-**Penn State makes right calls late to escape Minnesota, close in on Playoff bid: Takeaways**\
-`No. 4 Penn State survived an upset bid from Minnesota on Saturday after converting three fourth downs on its final possession.`\
-https://nytimes.com/athletic/5942716/2024/11/23/penn-state-minnesota-score-recap-playoff/
 
