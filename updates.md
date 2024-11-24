@@ -1,3 +1,7 @@
+**How Wisconsin landed 4-star QB Carter Smith, former Michigan commit**\
+`Smith, who originally committed to Michigan, represents the second-highest rated quarterback for the Badgers in the online ranking era.`\
+https://nytimes.com/athletic/5942968/2024/11/24/wisconsin-recruiting-carter-smith-quarterback/
+
 **2 Dead After Civil Air Patrol Plane Crashes in Colorado Mountains**\
 `A Cessna plane crashed while conducting a training exercise, killing the pilot and an aerial photographer, the authorities said.`\
 https://nytimes.com/2024/11/24/us/colorado-civil-patrol-plane-crash.html

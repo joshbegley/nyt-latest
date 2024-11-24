@@ -1,3 +1,7 @@
+**How Wisconsin landed 4-star QB Carter Smith, former Michigan commit**\
+`Smith, who originally committed to Michigan, represents the second-highest rated quarterback for the Badgers in the online ranking era.`\
+https://nytimes.com/athletic/5942968/2024/11/24/wisconsin-recruiting-carter-smith-quarterback/
+
 **2 Dead After Civil Air Patrol Plane Crashes in Colorado Mountains**\
 `A Cessna plane crashed while conducting a training exercise, killing the pilot and an aerial photographer, the authorities said.`\
 https://nytimes.com/2024/11/24/us/colorado-civil-patrol-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/arts/design/art-auctions-struggle-banana.html
 **How good is the Central Michigan job? What Jim McElwain's replacement will inherit**\
 `The expectations are rightfully high in Mt. Pleasant, but the Chips' recent glory days are fading further into the past.`\
 https://nytimes.com/athletic/5943801/2024/11/24/central-michigan-football-coaching-search-candidates/
-
-**Lowetide: Why the Oilers' defensive deployment reveals surprises**\
-`Who is trusted by the Oilers coaching staff, and who is being faded compared to a year ago?`\
-https://nytimes.com/athletic/5942242/2024/11/24/edmonton-oilers-defensive-deployment-suprises/
 
