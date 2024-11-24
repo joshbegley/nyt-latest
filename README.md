@@ -1,3 +1,7 @@
+**USC makes the plays it needed for rivalry win: Takeaways from Trojans' victory over UCLA**\
+`USC won’t apologize for the style in which it beat crosstown rival UCLA 19-13 on Saturday at the Rose Bowl to become bowl-eligible.`\
+https://nytimes.com/athletic/5943409/2024/11/24/usc-ucla-jayden-maiava-lincoln-riley/
+
 **NFL Week 12 inactives and fantasy tips: Mike Evans, Keenan Allen questionable for Sunday**\
 `Six teams are on bye this week. Learn which players may still be available. Plus, Ciely's Week 11 player rankings, game previews, and more.`\
 https://nytimes.com/athletic/5942512/2024/11/24/nfl-week-12-inactives-and-fantasy-tips/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943325/2024/11/24/vasily-podkolzin-oilers-first-go
 **Week 13 CFP race lessons: SEC teams lose benefit of the doubt, Big 12's chaos continues**\
 `Playoff expansion is delivering exactly what was promised: more meaningful games and more chances for mayhem.`\
 https://nytimes.com/athletic/5943486/2024/11/24/college-football-playoff-week-13-sec-big-12-indiana/
-
-**Lando Norris leaves Las Vegas with title hopes dashed but plenty to feel good about**\
-`Lando Norris’ longshot bid to wrest the F1 drivers’ championship from Max Verstappen ended Saturday. But he has plenty to like for 2025.`\
-https://nytimes.com/athletic/5943377/2024/11/24/lando-norris-formula-one-drivers-championship-max-verstappen/
 
