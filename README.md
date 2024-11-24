@@ -1,3 +1,11 @@
+**Sudan, football and the 'worst humanitarian crisis on earth'**\
+`War in Sudan is estimated to have killed thousands of people and displaced millions more, but football is providing a small ray of hope`\
+https://nytimes.com/athletic/5469079/2024/11/24/sudan-football-humanitarian-crisis/
+
+**Max Verstappen clinches fourth F1 championship, Russell wins Las Vegas GP**\
+`Max Verstappen finished ahead of Lando Norris to win his fourth-consecutive F1 drivers' title. `\
+https://nytimes.com/athletic/5943300/2024/11/24/max-verstappen-wins-f1-championship-2024-vegas/
+
 **Nausea hits Canadiens again, but the context is completely different this time**\
 `The Canadiens took a step back Saturday, but it did not undo all the growth they've had lately.`\
 https://nytimes.com/athletic/5943266/2024/11/24/canadiens-golden-knights-martin-st-louis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5943246/2024/11/24/sec-title-game-scenarios-georgia
 **Jackson is more than making up for Chelsea missing out on Osimhen in the summer**\
 `The 23-year-old striker is relishing being one of Chelsea's main men, the undisputed leader of Enzo Maresca's front line`\
 https://nytimes.com/athletic/5942326/2024/11/24/nicolas-jackson-chelsea-transfer-victor-osimhen/
-
-**Arizona State's Kenny Dillingham has proved himself a great coach — with room to improve**\
-`The Sun Devils, who defeated BYU to keep their storybook journey alive, have mirrored their coach. Fun. Passionate. And a little reckless.`\
-https://nytimes.com/athletic/5943122/2024/11/24/arizona-state-byu-kenny-dillingham/
-
-**Picking a starting XI for Ruben Amorim's first Manchester United game**\
-`The Athletic's Manchester United writers pick their starting XIs for Amorim's first game in charge against Ipswich today`\
-https://nytimes.com/athletic/5941856/2024/11/24/manchester-united-ipswich-ruben-amorim-lineup/
 
