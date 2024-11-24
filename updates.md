@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Olivier's emergence, Jiricek's future and a big payday coming**\
+`Olivier's emergence has been the most surprising development over the first six weeks of the season.`\
+https://nytimes.com/athletic/5941958/2024/11/24/blue-jackets-jiricek-olivier/
+
 **Does the Conductor Klaus Mäkelä Deserve His Meteoric Rise?**\
 `The 28-year-old maestro, already entrusted with two storied ensembles, visited Carnegie Hall with the superb Concertgebouw Orchestra of Amsterdam.`\
 https://nytimes.com/2024/11/24/arts/music/klaus-makela-concertgebouw-carnegie.html

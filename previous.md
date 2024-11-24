@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Olivier's emergence, Jiricek's future and a big payday coming**\
+`Olivier's emergence has been the most surprising development over the first six weeks of the season.`\
+https://nytimes.com/athletic/5941958/2024/11/24/blue-jackets-jiricek-olivier/
+
 **Does the Conductor Klaus Mäkelä Deserve His Meteoric Rise?**\
 `The 28-year-old maestro, already entrusted with two storied ensembles, visited Carnegie Hall with the superb Concertgebouw Orchestra of Amsterdam.`\
 https://nytimes.com/2024/11/24/arts/music/klaus-makela-concertgebouw-carnegie.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5942242/2024/11/24/edmonton-oilers-defensive-deploy
 **Cooper sacked as Leicester manager after five months in charge**\
 `Steve Cooper has been sacked as manager of Leicester City after five months in charge at the King Power Stadium.`\
 https://nytimes.com/athletic/5943887/2024/11/24/leicester-city-sack-steve-cooper/
-
-**The Briefing: Southampton 2 Liverpool 3 - Salah to rescue... but what happened at the back? And was it a penalty?**\
-`Liverpool had a tougher afternoon away to Southampton that many expected — The Athletic analyses the talking points from a thrilling game`\
-https://nytimes.com/athletic/5940174/2024/11/24/southampton-2-liverpool-3-salah-slot-konate-van-dijk/
 
