@@ -1,3 +1,7 @@
+**Former BP Chief Joins A.I. Data Center Developer**\
+`Bernard Looney will join Prometheus Hyperscale, a Wyoming start-up, to help it address the enormous energy needs of the artificial intelligence industry.`\
+https://nytimes.com/2024/11/24/business/ai-data-center-bernard-looney.html
+
 **The Pulse: A 12-team College Football Playoff without Bama**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5943803/2024/11/24/alabama-college-football-nfl-schedule-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943517/2024/11/24/real-madrid-florentino-perez-uef
 **Matas Buzelis provides glimpse of future for a Bulls team struggling in the present**\
 `Matas Buzelis put on a show with 12 second-quarter points and a memorable dunk. It could be remembered as the moment Buzelis began to bloom.`\
 https://nytimes.com/athletic/5943363/2024/11/24/matas-buzelis-bulls-grizzlies/
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/11/24/nhl-standings-playoffs-projections-odds/
 

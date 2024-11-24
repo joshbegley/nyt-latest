@@ -1,3 +1,7 @@
+**Former BP Chief Joins A.I. Data Center Developer**\
+`Bernard Looney will join Prometheus Hyperscale, a Wyoming start-up, to help it address the enormous energy needs of the artificial intelligence industry.`\
+https://nytimes.com/2024/11/24/business/ai-data-center-bernard-looney.html
+
 **The Pulse: A 12-team College Football Playoff without Bama**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5943803/2024/11/24/alabama-college-football-nfl-schedule-the-pulse/
