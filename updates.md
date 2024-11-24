@@ -1,3 +1,7 @@
+**Fifteen of the best football songs of all time, from Seven Nation Army to Freed from Desire**\
+`From Seven Nation Army to Mas Que Nada, The Athletic's writers celebrate the best football songs ever written`\
+https://nytimes.com/athletic/5938054/2024/11/24/best-football-songs-all-time/
+
 **Real Madrid's Sotheby's auction: Lockers, a giant mosaic and other Bernabeu memorabilia**\
 `Sotheby's is holding a special auction for memorabilia from Real Madrid's Santiago Bernabeu`\
 https://nytimes.com/athletic/5940163/2024/11/24/real-madrid-auction-sothebys/

@@ -1,3 +1,7 @@
+**Fifteen of the best football songs of all time, from Seven Nation Army to Freed from Desire**\
+`From Seven Nation Army to Mas Que Nada, The Athletic's writers celebrate the best football songs ever written`\
+https://nytimes.com/athletic/5938054/2024/11/24/best-football-songs-all-time/
+
 **Real Madrid's Sotheby's auction: Lockers, a giant mosaic and other Bernabeu memorabilia**\
 `Sotheby's is holding a special auction for memorabilia from Real Madrid's Santiago Bernabeu`\
 https://nytimes.com/athletic/5940163/2024/11/24/real-madrid-auction-sothebys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940902/2024/11/24/southampton-liverpool-preview-od
 **Ipswich vs Manchester United preview: Storylines, odds, prediction for Amorim's debut**\
 `Ruben Amorim debuts as Manchester United manager Sunday at Ipswich. Will the Red Devils get a win or will the honeymoon period end early?`\
 https://nytimes.com/athletic/5940798/2024/11/24/ipswich-manchester-united-preview-odds-prediction/
-
-**LaMelo Ball scores career-high 50 points in loss to Bucks**\
-`Saturday marked the first time Ball has eclipsed 40 or more points in a game. `\
-https://nytimes.com/athletic/5943115/2024/11/23/lamelo-ball-career-high-50-points/
 
