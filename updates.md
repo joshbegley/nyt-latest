@@ -1,3 +1,19 @@
+**Chiefs top Panthers 30-27 as Mahomes' run sets up winning kick: Takeaways**\
+`Chiefs improve to AFC-best 10-1, while Travis Kelce moves up the all-time tight end receiving yards list. `\
+https://nytimes.com/athletic/5943979/2024/11/24/chiefs-panthers-score-result-takeaways/
+
+**Israel Conducts Widespread Strikes Near Beirut**\
+`As negotiators inch toward a cease-fire deal, the conflict between Israel and Hezbollah in Lebanon has intensified.`\
+https://nytimes.com/2024/11/24/world/middleeast/israel-strikes-lebanon.html
+
+**Behind the Blues' abrupt coaching change: 'A difference-maker became available, and we reacted'**\
+`The Blues fired Drew Bannister just 22 games into his first full season as coach, replacing him with former Bruins coach Jim Montgomery.`\
+https://nytimes.com/athletic/5943949/2024/11/24/blues-jim-montgomery-decision/
+
+**Tagovailoa throws 4 TD passes in Dolphins' 34-15 win vs. Patriots: Takeaways**\
+`He’s now a dominating 7-0 in his career against the Patriots.`\
+https://nytimes.com/athletic/5944023/2024/11/24/patriots-dolphins-score-result-takeaways/
+
 **Jeeno Thitikul wins LPGA CME Group Tour Championship, $4 million**\
 `The 21-year-old from Thailand has been on a steady path toward LPGA stardom since joining the tour in 2022.`\
 https://nytimes.com/athletic/5944608/2024/11/24/jeeno-thitikul-lpga-tour-championship/

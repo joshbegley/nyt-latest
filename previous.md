@@ -1,3 +1,19 @@
+**Chiefs top Panthers 30-27 as Mahomes' run sets up winning kick: Takeaways**\
+`Chiefs improve to AFC-best 10-1, while Travis Kelce moves up the all-time tight end receiving yards list. `\
+https://nytimes.com/athletic/5943979/2024/11/24/chiefs-panthers-score-result-takeaways/
+
+**Israel Conducts Widespread Strikes Near Beirut**\
+`As negotiators inch toward a cease-fire deal, the conflict between Israel and Hezbollah in Lebanon has intensified.`\
+https://nytimes.com/2024/11/24/world/middleeast/israel-strikes-lebanon.html
+
+**Behind the Blues' abrupt coaching change: 'A difference-maker became available, and we reacted'**\
+`The Blues fired Drew Bannister just 22 games into his first full season as coach, replacing him with former Bruins coach Jim Montgomery.`\
+https://nytimes.com/athletic/5943949/2024/11/24/blues-jim-montgomery-decision/
+
+**Tagovailoa throws 4 TD passes in Dolphins' 34-15 win vs. Patriots: Takeaways**\
+`He’s now a dominating 7-0 in his career against the Patriots.`\
+https://nytimes.com/athletic/5944023/2024/11/24/patriots-dolphins-score-result-takeaways/
+
 **Jeeno Thitikul wins LPGA CME Group Tour Championship, $4 million**\
 `The 21-year-old from Thailand has been on a steady path toward LPGA stardom since joining the tour in 2022.`\
 https://nytimes.com/athletic/5944608/2024/11/24/jeeno-thitikul-lpga-tour-championship/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5944029/2024/11/24/buccaneers-giants-score-result-t
 **F1 Mailbag: Submit your questions for our Las Vegas GP mailbag**\
 `One championship down, one to go. Ask our F1 writers what's on your mind after a fascinating Las Vegas Grand Prix. `\
 https://nytimes.com/athletic/5944503/2024/11/24/f1-las-vegas-max-verstappen-mailbag/
-
-**Monday Briefing: U.N. climate talks End With a Deal**\
-`Plus, photographing the world’s food.`\
-https://nytimes.com/2024/11/24/briefing/climate-talks-middle-east-trump.html
-
-**Wild star Kirill Kaprizov escapes serious injury, listed as day-to-day**\
-`The Wild currently sit in second place in the Central Division at 13-3-4.`\
-https://nytimes.com/athletic/5944485/2024/11/24/wild-kirill-kaprizov-injury-update/
-
-**Dartmouth Sorority and 2 Fraternity Members Are Charged After Student’s Drowning**\
-`The 20-year-old student died this summer after attending an off-campus party. The fraternity members and sorority were charged with offenses related to providing alcohol to minors.`\
-https://nytimes.com/2024/11/24/us/dartmouth-student-drowning-charges.html
-
-**Sampson: Notre Dame showing no signs of letting up on ruthless march to the Playoff**\
-`Notre Dame is operating at levels of ruthlessness not seen under Marcus Freeman. Perhaps not seen at Notre Dame in a long time.`\
-https://nytimes.com/athletic/5944419/2024/11/24/notre-dame-army-marcus-freeman-playoff/
 
