@@ -1,3 +1,11 @@
+**Leicester fans: Was it right to sack Cooper - and who should replace him?**\
+`Cooper leaves with the club 16th in the Premier League - was it the right decision, and who should come in?`\
+https://nytimes.com/athletic/5943974/2024/11/24/leicester-sack-steve-cooper-next-manager/
+
+**Chuck Woolery, Host of ‘Love Connection,’ Dies at 83**\
+`After a career that included stints on “Wheel of Fortune” and other popular game shows, he took a combative turn as a right-wing podcast host.`\
+https://nytimes.com/2024/11/24/arts/television/chuck-woolery-dead.html
+
 **Without Drama or Banana, Art Auctions Struggle**\
 `Beyond the headline-grabbing sales of the fall auction season, the market tries to soar beyond its two-year slump.`\
 https://nytimes.com/2024/11/24/arts/design/art-auctions-struggle-banana.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/24/dining/biscuit-thanksgiving-recipes-2024.html
 **Until Saturday: Notre Dame is on the rise, while the SEC could be down**\
 `Welcome to Until Saturday, the five-star college football newsletter: Notre Dame is rising, and the SEC is falling?`\
 https://nytimes.com/athletic/5943543/2024/11/24/notre-dame-sec-college-football-playoff-until-saturday/
-
-**Former BP Chief Joins A.I. Data Center Developer**\
-`Bernard Looney will join Prometheus Hyperscale, a Wyoming start-up, to help it address the enormous energy needs of the artificial intelligence industry.`\
-https://nytimes.com/2024/11/24/business/ai-data-center-bernard-looney.html
-
-**The Pulse: A 12-team College Football Playoff without Bama**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/5943803/2024/11/24/alabama-college-football-nfl-schedule-the-pulse/
 
