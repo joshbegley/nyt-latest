@@ -1,3 +1,19 @@
+**Real Madrid's Sotheby's auction: Lockers, a giant mosaic and other Bernabeu memorabilia**\
+`Sotheby's is holding a special auction for memorabilia from Real Madrid's Santiago Bernabeu`\
+https://nytimes.com/athletic/5940163/2024/11/24/real-madrid-auction-sothebys/
+
+**What Ever Happened to the Lady Jaguars?**\
+`When we met them a dozen years ago, they were teenagers in trouble, playing for a basketball team that always lost. Did they find a way to win at life?`\
+https://nytimes.com/2024/11/24/us/lady-jaguars-basketball-carroll-academy.html
+
+**Quote of the Day: Bathing in Oil Might Seem Crude Near a Climate Summit, but Locals Swear by It**\
+`Quotation of the Day for Sunday, November 24, 2024.`\
+https://nytimes.com/2024/11/24/pageoneplus/quote-of-the-day-bathing-in-oil-might-seem-crude-near-a-climate-summit-but-locals-swear-by-it.html
+
+**Taking a Second Look at the Lives of Troubled Girls, a Decade Later**\
+`When they were teens, these girls were sent to a school for juvenile delinquents. Our journalists experienced the rare privilege of telling their stories twice.`\
+https://nytimes.com/2024/11/24/us/lady-jaguars-john-branch.html
+
 **What Two Acclaimed Female-Directed Movies Say About Indian Cinema**\
 `“Laapataa Ladies” and “All We Imagine as Light” have both captivated audiences at home. But only one was able to get India’s nod for the best foreign film Oscar.`\
 https://nytimes.com/2024/11/24/world/asia/indian-movies-oscars.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5940798/2024/11/24/ipswich-manchester-united-previe
 **LaMelo Ball scores career-high 50 points in loss to Bucks**\
 `Saturday marked the first time Ball has eclipsed 40 or more points in a game. `\
 https://nytimes.com/athletic/5943115/2024/11/23/lamelo-ball-career-high-50-points/
-
-**Sooners 'finally did the things' to win, possibly eliminating Bama from Playoff**\
-`Oklahoma's defense dominated Alabama in a 24-3 Sooners win that injected more chaos into the College Football Playoff race.`\
-https://nytimes.com/athletic/5943136/2024/11/23/alabama-oklahoma-college-football-score-analysis/
-
-**Inside Minnesotan Travis Boyd's debut with Wild: Hoofing through snow and a dream come true**\
-`To say Boyd will never forget his debut with his home state Wild in Calgary is an understatement.`\
-https://nytimes.com/athletic/5943021/2024/11/23/wild-flames-travis-boyd/
-
-**Notre Dame routs Army to keep CFP hosting bid in focus**\
-`The Irish made short and efficient work of Jeff Monken’s previously unbeaten squad.`\
-https://nytimes.com/athletic/5943085/2024/11/23/notre-dame-army-college-football-playoff/
-
-**Orlando and Marta win first NWSL championship**\
-`Banda's goal proved the difference in Orlando's first NWSL championship.`\
-https://nytimes.com/athletic/5942976/2024/11/23/nwsl-championship-orlando-pride-barbra-banda/
 
