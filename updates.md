@@ -1,3 +1,7 @@
+**DHL Cargo Plane Crashes Near Airport in Lithuania, Killing 1**\
+`The crash near Vilnius Airport sparked a fire in a residential area, an airport official said. Four people were on board.`\
+https://nytimes.com/2024/11/25/world/europe/dhl-lithuania-plane-crash.html
+
 **Your Thanksgiving Day Watching Lineup, Plus 6 Things to Watch on TV This Week**\
 `Watch the Macy’s Day Parade, the dog show and football while the turkey is cooking, and catch up on true crime and two new shows.`\
 https://nytimes.com/2024/11/25/arts/television/your-thanksgiving-day-watching-lineup-plus-6-things-to-watch-on-tv-this-week.html
