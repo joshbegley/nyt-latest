@@ -1,3 +1,15 @@
+**Lions WR Jameson Williams will not face weapons charges, prosecutor says**\
+`The decision stems from an incident last month when Williams was nearly brought to jail for lacking a concealed pistol license.`\
+https://nytimes.com/athletic/5947806/2024/11/25/detroit-lions-jameson-williams-weapons-charges/
+
+**49ers minutia minute: Brock Purdy passes first test; Dre Greenlaw's window opens**\
+`For the second time in as many matchups, the Packers kept their footing on a slick field while the 49ers kept slip sliding away.`\
+https://nytimes.com/athletic/5947980/2024/11/25/49ers-brock-purdy-dre-greenlaw-injury-updates/
+
+**Florida Woman Who Fatally Shot Black Neighbor Gets 25 Years in Prison**\
+`Susan Lorincz, who shot Ajike Owens, was convicted of manslaughter. The case prompted national outrage.`\
+https://nytimes.com/2024/11/25/us/police-deputies-killed-crash-florida.html
+
 **Driver Kills 3 Florida Deputies in a ‘Gut Punch’ to Palm Beach County**\
 `Thee members of the motorcycle unit at the Palm Beach County Sheriff’s Office were struck by a driver on Thursday. Two died that day, and a third who had been in critical condition died on Monday.`\
 https://nytimes.com/2024/11/25/us/sheriff-deputies-killed-crash-florida.html
