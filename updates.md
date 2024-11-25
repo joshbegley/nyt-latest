@@ -1,3 +1,7 @@
+**On the Outskirts of Beirut, a Crowd Watches the War, and Waits for Its End**\
+`Every night, dozens gather at the hillside to watch airstrikes rain down on the city’s southern suburbs. The ritual offers a window into the war — and proof that the once unimaginable is really happening.`\
+https://nytimes.com/2024/11/25/world/middleeast/lebanon-dahiya-hezbollah-israel-airstrikes.html
+
 **Chris Kreider's no-assist streak, Brett Berard's call-up, more: 11 Rangers observations**\
 `Kreider is in bizarre statistical company with his early-season points output.`\
 https://nytimes.com/athletic/5944923/2024/11/25/rangers-kreider-assists-quick-berard/
