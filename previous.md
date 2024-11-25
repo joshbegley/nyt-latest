@@ -1,3 +1,15 @@
+**Crony Capitalism Is Coming to America**\
+`Business success may increasingly depend on connections, not competence.`\
+https://nytimes.com/2024/11/25/opinion/trump-tariffs-deportations.html
+
+**We’re Talking Thanksgiving With Martha Stewart, David Chang, Gayle King, Gwyneth Paltrow and More**\
+`We’ve gathered some of the biggest names in cooking and culture to share warm memories, hot takes and delicious recipes.`\
+https://nytimes.com/interactive/2024/11/25/dining/celebrity-thanksgiving-2024.html
+
+**NFL Week 12 inactives and fantasy tips: Ladd McConkey active for Monday Night Football**\
+`Check out who's in and who's out for Monday Night Football. Plus Week 12 recaps and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5942512/2024/11/25/nfl-week-12-inactives-and-fantasy-tips/
+
 **Ravens LB Roquan Smith inactive for 'MNF' game vs. Chargers**\
 `Baltimore's leading tackler and four-time All-Pro will miss Week 12 with hamstring injury. `\
 https://nytimes.com/athletic/5947159/2024/11/25/ravens-roquan-smith-inactive-chargers-game/
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/5947837/2024/11/25/jets-season-after-woody-johnson-
 **Lions WR Jameson Williams will not face weapons charges, prosecutor says**\
 `The decision stems from an incident last month when Williams was nearly brought to jail for lacking a concealed pistol license.`\
 https://nytimes.com/athletic/5947806/2024/11/25/detroit-lions-jameson-williams-weapons-charges/
-
-**49ers minutia minute: Brock Purdy passes first test; Dre Greenlaw's window opens**\
-`For the second time in two matchups, the Packers kept their footing on a slick field while the 49ers kept slip-sliding away.`\
-https://nytimes.com/athletic/5947980/2024/11/25/49ers-brock-purdy-dre-greenlaw-injury-updates/
-
-**Florida Woman Who Fatally Shot Black Neighbor Gets 25 Years in Prison**\
-`Susan Lorincz, who shot Ajike Owens, was convicted of manslaughter. The case prompted national outrage.`\
-https://nytimes.com/2024/11/25/us/susan-lorincz-sentencing-ajike-owens-manslaughter.html
-
-**Driver Kills 3 Florida Deputies in a ‘Gut Punch’ to Palm Beach County**\
-`Thee members of the motorcycle unit at the Palm Beach County Sheriff’s Office were struck by a driver on Thursday. Two died that day, and a third who had been in critical condition died on Monday.`\
-https://nytimes.com/2024/11/25/us/sheriff-deputies-killed-crash-florida.html
 
