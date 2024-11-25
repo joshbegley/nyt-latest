@@ -1,3 +1,11 @@
+**Your Thanksgiving Day Watching Lineup, Plus 6 Things to Watch on TV This Week**\
+`Watch the Macy’s Day Parade, the dog show and football while the turkey is cooking, and catch up on true crime and two new shows.`\
+https://nytimes.com/2024/11/25/arts/television/your-thanksgiving-day-watching-lineup-plus-6-things-to-watch-on-tv-this-week.html
+
+**The Desire to Turn Inward Is a Delusion**\
+`Focusing on your own life and disengaging from politics can be appealing. But it is a abdication of responsibility.`\
+https://nytimes.com/2024/11/25/opinion/trump-putin-exile-russia.html
+
 **Saquon Barkley carries Eagles past Rams: Takeaways**\
 `Barkley rushed for a career-high 255 yards on 26 carries and added two touchdowns`\
 https://nytimes.com/athletic/5945821/2024/11/25/eagles-rams-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5941962/2024/11/25/crystal-palace-oliver-glasner-fr
 **The Briefing: Are Man City's players the wrong ages? How long will Amorim need? Was Cooper always doomed?**\
 `Analysis of the key talking points from the Premier League weekend and a look at the week ahead`\
 https://nytimes.com/athletic/5944500/2024/11/25/man-city-wrong-ages/
-
-**Fantasy football Week 12 takeaways: Kyler Murray is bubble gum; Tyreek Hill is a problem**\
-`Among his Week 12 takes, Michael Salfino says that Tyreek Hill has become a problem for his managers with his sub-standard production.`\
-https://nytimes.com/athletic/5945164/2024/11/25/fantasy-football-week-12-takeaways-kyler-tyreek/
-
-**Monday Briefing**\
-`Reaching a climate deal.`\
-https://nytimes.com/2024/11/25/briefing/climate-israel-hezbollah.html
 
