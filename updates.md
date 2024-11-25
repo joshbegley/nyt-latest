@@ -1,3 +1,7 @@
+**GM joining F1 is a big win for the storied U.S. motorsports brand**\
+`GM has seen decades of success in racing — but largely on a domestic level. Racing in F1 could change that dramatically.`\
+https://nytimes.com/athletic/5947705/2024/11/25/general-motors-joins-f1-2026/
+
 **Netflix to Screen ‘One Hundred Years of Solitude’ in Havana**\
 `The first two episodes will be shown at a film festival in Havana that was long championed by Gabriel García Márquez, the Colombian novelist who wrote the book.`\
 https://nytimes.com/2024/11/25/arts/netflix-one-hundred-years-of-solitude-havana.html
