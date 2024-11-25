@@ -1,3 +1,7 @@
+**Florida Woman Who Fatally Shot Black Neighbor Gets 25 Years in Prison**\
+`Susan Lorincz, who shot Ajike Owens, was convicted of manslaughter. The case prompted national outrage.`\
+https://nytimes.com/2024/11/25/us/susan-lorincz-sentencing-ajike-owens-manslaughter.html
+
 **Biden White House Holds Up U.S. Contribution to Anti-Doping Agency**\
 `The administration is pressing the World Anti-Doping Agency to allow an outside audit after it failed to suspend Chinese swimmers for positive tests.`\
 https://nytimes.com/2024/11/25/us/politics/white-house-contribution-anti-doping-agency.html
