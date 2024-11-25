@@ -1,3 +1,7 @@
+**Thousands Defy Pakistan Crackdown to Rally for Imran Khan’s Release**\
+`Protesters march to Pakistan’s capital amid a city lockdown and violent clashes with the police as political tensions surge.`\
+https://nytimes.com/2024/11/25/world/asia/pakistan-crackdown-imran-khan.html
+
 **F1’s second Las Vegas GP was a step up — and proved it doesn’t need to try so hard **\
 `The Las Vegas GP toned itself down in year two, but retained what makes it so unique.`\
 https://nytimes.com/athletic/5946973/2024/11/25/f1-las-vegas-review-year-two/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946086/2024/11/25/seahawks-offense-geno-smith-ryan
 **Heat Today: Jimmy Butler's production, and humor, are leading Miami's turnaround**\
 `Since returning from a four-game injury absence, Butler has been putting up huge numbers — and keeping things light with teammates.`\
 https://nytimes.com/athletic/5946695/2024/11/25/jimmy-butler-tyler-herro-heat/
-
-**U.A.E. Arrests 3 Uzbeks Linked to Murder of Israeli Rabbi**\
-`Israeli authorities say the abduction and killing of Rabbi Zvi Kogan was an act of antisemitic terrorism, but investigators have not yet stated a motive.`\
-https://nytimes.com/2024/11/25/world/middleeast/israel-dead-rabbi-uae-arrests.html
 
