@@ -1,3 +1,7 @@
+**What Deontae Lawson's absence means for Alabama's defense**\
+`Lawson, a junior and projected NFL prospect, likely has played his final game for Alabama.`\
+https://nytimes.com/athletic/5947046/2024/11/25/deontae-lawson-injury-alabama-football/
+
 **Biden Pardons Turkeys for the Last Time as President**\
 `Setting aside politics, the president used the lighthearted ceremony to thank the nation one more time for the opportunity to serve.`\
 https://nytimes.com/2024/11/25/us/politics/biden-turkey-pardon-thanksgiving.html

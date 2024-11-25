@@ -1,3 +1,7 @@
+**What Deontae Lawson's absence means for Alabama's defense**\
+`Lawson, a junior and projected NFL prospect, likely has played his final game for Alabama.`\
+https://nytimes.com/athletic/5947046/2024/11/25/deontae-lawson-injury-alabama-football/
+
 **Biden Pardons Turkeys for the Last Time as President**\
 `Setting aside politics, the president used the lighthearted ceremony to thank the nation one more time for the opportunity to serve.`\
 https://nytimes.com/2024/11/25/us/politics/biden-turkey-pardon-thanksgiving.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946835/2024/11/25/college-football-week-14-odds-te
 **Celtics' Kristaps Porziņģis probable to make season debut vs. Clippers**\
 `Porziņģis missed 25 regular-season games and the majority of the playoffs last season with an injury.`\
 https://nytimes.com/athletic/5946972/2024/11/25/boston-celtics-kristaps-porzingis-debut-clippers/
-
-**Bishop T.D. Jakes Recovering From ‘Health Incident’ During Sunday Sermon**\
-`Bishop Jakes received immediate medical attention and is now “stable and under the care of medical professionals,” according to the Potter’s House, his megachurch.`\
-https://nytimes.com/2024/11/25/us/td-jakes-health-incident-stable.html
 
