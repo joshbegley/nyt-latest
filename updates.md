@@ -1,3 +1,11 @@
+**Caleb Williams' confidence is soaring even as the Bears' losses pile up**\
+`Williams made some rookie mistakes against the Vikings, but he also did some of the special things that made him the top pick in the draft.`\
+https://nytimes.com/athletic/5945058/2024/11/24/bears-caleb-williams-confidence-vikings/
+
+**Commanders kicking themselves over loss to Cowboys as playoff race tightens**\
+`Washington failed to capitalize on Dallas' mistakes and dropped its third consecutive game to a team that had lost five straight. `\
+https://nytimes.com/athletic/5945209/2024/11/24/commanders-loss-cowboys-jayden-daniels/
+
 **'It’s a next-man-up mentality': Lions keep rolling as injuries remain biggest obstacle**\
 `The Lions saw their injury list continue to grow in their win against the Colts.`\
 https://nytimes.com/athletic/5945008/2024/11/24/lions-win-injuries-colts/

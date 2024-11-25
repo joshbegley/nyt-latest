@@ -1,3 +1,11 @@
+**Caleb Williams' confidence is soaring even as the Bears' losses pile up**\
+`Williams made some rookie mistakes against the Vikings, but he also did some of the special things that made him the top pick in the draft.`\
+https://nytimes.com/athletic/5945058/2024/11/24/bears-caleb-williams-confidence-vikings/
+
+**Commanders kicking themselves over loss to Cowboys as playoff race tightens**\
+`Washington failed to capitalize on Dallas' mistakes and dropped its third consecutive game to a team that had lost five straight. `\
+https://nytimes.com/athletic/5945209/2024/11/24/commanders-loss-cowboys-jayden-daniels/
+
 **'It’s a next-man-up mentality': Lions keep rolling as injuries remain biggest obstacle**\
 `The Lions saw their injury list continue to grow in their win against the Colts.`\
 https://nytimes.com/athletic/5945008/2024/11/24/lions-win-injuries-colts/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5945175/2024/11/24/raiders-gardner-minshew-collarbo
 **Jacobs scores three TDs as Packers run over 49ers, 38-10: Takeaways**\
 `Green Bay running back scores his first three-touchdown game since 2022 as the Packers pick up their sixth win in seven games. `\
 https://nytimes.com/athletic/5944064/2024/11/24/49ers-packers-score-result-takeaways/
-
-**Seahawks shut down Cardinals for gutsy win, NFC West lead: Key takeaways**\
-`Seattle improved its shot at a division title after snapping Arizona's four-game winning streak on Sunday.`\
-https://nytimes.com/athletic/5944068/2024/11/24/cardinals-seahawks-score-result-takeaways/
-
-**Bryce Young's continued growth shows why Panthers should ride with him rest of the way**\
-`The Panthers were impressed with Young's performance. So was Patrick Mahomes. "I thought he played his tail off, man."`\
-https://nytimes.com/athletic/5945028/2024/11/24/panthers-loss-bryce-young-chiefs/
 
