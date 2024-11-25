@@ -1,3 +1,15 @@
+**Philippines President Slams Vice President’s Assassination Plot**\
+`Political turmoil has escalated after Vice President Sara Duterte claimed to have arranged for President Ferdinand R. Marcos Jr.’s assassination if she is slain.`\
+https://nytimes.com/2024/11/25/world/asia/philippines-president-assassination-threat.html
+
+**'Doc was so special': Julius 'The Doctor' Erving elevates to No. 15 in 'The Basketball 100'**\
+`Erving was the telegenic, genial face of two leagues during his 16-year career, carrying the ABA for five seasons and was NBA MVP in 1981.`\
+https://nytimes.com/athletic/5940529/2024/11/25/julius-erving-the-basketball-100-book-excerpt/
+
+**Malcolm Brogdon reflects on Celtics trade, fresh start as Wizards vet**\
+`"I want to be one of the vets that’s always patient and wants to teach them the right way,” Brogdon said on the Wizards, his new team.`\
+https://nytimes.com/athletic/5944815/2024/11/25/malcolm-brogdon-celtics-trade-wizards/
+
 **Rodrigue: Rams can’t run with the big-time postseason teams if they can get run over**\
 `“You just go back to work. I don’t know any other way to go about it," Rams coach Sean McVay said after the Eagles beat them up Sunday.`\
 https://nytimes.com/athletic/5945982/2024/11/25/rams-lose-eagles-matthew-stafford-saquon-barkley/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5941956/2024/11/25/rafael-nadal-spain-sport-history
 **How Democrats Lost Their Base and Their Message**\
 `Donald Trump’s populist pitch bumped Democrats off their traditional place in American politics.`\
 https://nytimes.com/2024/11/25/upshot/democrats-trump-working-class.html
-
-**‘There Are No Guardrails, There Are Only Choices’: Four Columnists Debate Trump’s Early Moves**\
-`Trump’s 2016 presidential transition signaled how he would govern. What do his preparations for a second term tell us about America’s future?`\
-https://nytimes.com/2024/11/25/opinion/donald-trump-cabinet-nominations.html
-
-**How Do I Balance Being Fashionable With Being Professional?**\
-`A reader asks how to dress for work without losing a sense of style. Our fashion critic offers insights on striking the right balance.`\
-https://nytimes.com/2024/11/25/style/work-outfit-office-fashion.html
-
-**I’m a Food Editor. I Hate Thanksgiving Dinner.**\
-`True confessions from the New York Times Cooking desk.`\
-https://nytimes.com/2024/11/25/opinion/thanksgiving-dinner-food.html
 
