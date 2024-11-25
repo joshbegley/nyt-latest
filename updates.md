@@ -1,3 +1,19 @@
+**The Bessent Bounce — Markets Cheer Trump’s Treasury Pick**\
+`Investors seemed to signal their approval for Scott Bessent as a safe choice to implement the president-elect’s economic agenda.`\
+https://nytimes.com/2024/11/25/business/dealbook/markets-trump-treasury-bessent.html
+
+**San Francisco Giants free-agent profile: Ha-Seong Kim, SS**\
+`Kim is perhaps the most logical fit for the Giants on the free agent market. He does come with risk, however.`\
+https://nytimes.com/athletic/5941013/2024/11/25/sf-giants-ha-seong-kim-free-agency/
+
+**Manchester United's switches of play were the positive aspect of Amorim's first game in charge**\
+`Against Ipswich, it was United's intentions rather than their actual level of performance that was significant`\
+https://nytimes.com/athletic/5946123/2024/11/25/manchester-united-tactics-amorim-ipswich/
+
+**Trump Transition Live Updates: Trump Wraps Up Main Cabinet Picks by Naming Rollins to Agriculture**\
+``\
+https://nytimes.com/live/2024/11/25/us/trump-news
+
 **Ohio State film study: What worked for the Buckeyes against Indiana**\
 `Let’s talk about how Ohio State's defense dominated Indiana, along with the offensive line and Will Howard’s performance.`\
 https://nytimes.com/athletic/5946181/2024/11/25/ohio-state-football-indiana-will-howard-defense/
