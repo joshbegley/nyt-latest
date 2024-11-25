@@ -1,3 +1,7 @@
+**NBA Rewind: Who's up (Bucks), who's down (Pacers) and the great East-West divide**\
+`About a month into the season, the imbalance between conferences has never been wider. Plus, your latest NBA Cup-date.`\
+https://nytimes.com/athletic/5936987/2024/11/25/nba-rewind-pacers-bucks-east-west/
+
 **New York Giants fan survey: Should Brian Daboll, Joe Schoen return in 2025?**\
 `Here's your chance to let us know whether you believe the current regime can turn the Giants into contenders — or if changes must be made.`\
 https://nytimes.com/athletic/5933125/2024/11/25/new-york-giants-brian-daboll-joe-schoen-survey/
