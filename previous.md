@@ -1,3 +1,7 @@
+**Raiders QB Gardner Minshew out for season with broken collarbone: Source**\
+`Antonio Pierce hinted that Aidan O'Connell could be activated from injured reserve to play against the Chiefs on Black Friday.`\
+https://nytimes.com/athletic/5945175/2024/11/24/raiders-gardner-minshew-collarbone-injury-out-for-season/
+
 **Jacobs scores three TDs as Packers run over 49ers, 38-10: Takeaways**\
 `Green Bay running back scores his first three-touchdown game since 2022 as the Packers pick up their sixth win in seven games. `\
 https://nytimes.com/athletic/5944064/2024/11/24/49ers-packers-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944975/2024/11/24/chiefs-patrick-mahomes-panthers/
 **Another Patriots defensive dud raises questions about Jerod Mayo, offseason needs**\
 `It's not just the Patriots offense that's struggling. It's alarming that the defense, the team's supposed strength, is playing this poorly.`\
 https://nytimes.com/athletic/5944874/2024/11/24/patriots-loss-jerod-mayo-dolphins/
-
-**Orlando City ends Atlanta United's Cinderella playoff run**\
-`Orlando City scored in the 39th after center forward Ramiro Enrique pounced on a deflected ball inside Atlanta United’s penalty area.`\
-https://nytimes.com/athletic/5944919/2024/11/24/atlanta-united-orlando-city-mls-playoffs/
 

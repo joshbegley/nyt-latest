@@ -1,3 +1,7 @@
+**Raiders QB Gardner Minshew out for season with broken collarbone: Source**\
+`Antonio Pierce hinted that Aidan O'Connell could be activated from injured reserve to play against the Chiefs on Black Friday.`\
+https://nytimes.com/athletic/5945175/2024/11/24/raiders-gardner-minshew-collarbone-injury-out-for-season/
+
 **Washington Curtails Intel’s Chip Grant After Company Stumbles**\
 `The Biden administration is reducing its award to the chip maker, partly to account for a multibillion-dollar military contract.`\
 https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
