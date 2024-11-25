@@ -1,3 +1,7 @@
+**Spurs' Vicario has surgery after right ankle fracture**\
+`Tottenham Hotspur goalkeeper Gugliemo Vicario has undergone surgery after sustaining a fracture to his right ankle.`\
+https://nytimes.com/athletic/5947455/2024/11/25/guglielmo-vicario-injury-tottenham/
+
 **What to watch this week in NBA: Bucks-Heat, Thunder-Lakers and more Cup games**\
 `The NBA Cup continues this week, including five games on national TV on Black Friday.`\
 https://nytimes.com/athletic/5944305/2024/11/25/what-to-watch-nba-bucks-heat-thunder-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947232/2024/11/25/vanni-sartini-whitecaps-next-coa
 **Submit a question for James Boyd’s Indianapolis Colts mailbag**\
 `Despite losing four of their past five games, the Colts are still in the playoff hunt. Can Anthony Richardson lead them there?`\
 https://nytimes.com/athletic/5947255/2024/11/25/indianapolis-colts-mailbag-anthony-richardson/
-
-**What to watch in college basketball this week: Kansas-Duke, Maui and Vegas tourneys**\
-`What to watch, and why to watch it, across college basketball this Thanksgiving week.`\
-https://nytimes.com/athletic/5946540/2024/11/25/what-to-watch-college-basketball-duke-kansas-maui-vegas/
 
