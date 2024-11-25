@@ -1,3 +1,7 @@
+**The Bessent Bounce — Markets Cheer Trump’s Treasury Pick**\
+`Investors seemed to signal their approval for Scott Bessent as a safe choice to implement the president-elect’s economic agenda.`\
+https://nytimes.com/2024/11/25/business/dealbook/markets-trump-treasury-bessent.html
+
 **San Francisco Giants free-agent profile: Ha-Seong Kim, SS**\
 `Kim is perhaps the most logical fit for the Giants on the free agent market. He does come with risk, however.`\
 https://nytimes.com/athletic/5941013/2024/11/25/sf-giants-ha-seong-kim-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944685/2024/11/25/weekend-nhl-rankings-bruins-sena
 **Twins roster projection 1.0: Where things stand, what they need as offseason gets underway**\
 `What would the Twins' Opening Day roster look like if the season started now and where could they look to shake things up?`\
 https://nytimes.com/athletic/5944676/2024/11/25/twins-roster-projection-offseason-needs/
-
-**Rutherford: Armstrong is all-in to fix the Blues and add to his legacy, feelings be damned**\
-`First he signed Philip Broberg and Dylan Holloway to offer sheets and now he replaces Drew Bannister with Jim Montgomery.`\
-https://nytimes.com/athletic/5944993/2024/11/25/doug-armstrong-jim-montgomery-bold-hire/
 
