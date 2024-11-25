@@ -1,3 +1,7 @@
+**Submit your NBA questions for ‘The Athletic NBA Daily’ podcast mailbag**\
+`Let us know what you think about the first month of the 2024-25 NBA season.`\
+https://nytimes.com/athletic/5939460/2024/11/25/nba-podcast-mailbag-athletic-daily/
+
 **U.S. midfielder Paredes sustains setback in injury recovery**\
 `USMNT midfielder Kevin Paredes has suffered a setback in his recovery from a foot injury.`\
 https://nytimes.com/athletic/5947063/2024/11/25/kevin-paredes-injury-usmnt-wolfsburg/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/briefing/trump-jack-smith-lebanon-israel-pakistan
 **Mountain West files motion to dismiss Pac-12 lawsuit challenging poaching penalties**\
 `The Pac-12 lost 10 members to other power conferences this year.`\
 https://nytimes.com/athletic/5947496/2024/11/25/mountain-west-motion-pac-12-lawsuit-poaching-penalties/
-
-**10 things Blues fans should know about Jim Montgomery**\
-`From players he loves to personality traits to stylistic preferences, here are takeaways on Montgomery from his time with the Bruins.`\
-https://nytimes.com/athletic/5947528/2024/11/25/jim-montgomery-bruins-blues-learnings/
 
