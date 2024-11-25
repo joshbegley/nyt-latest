@@ -1,3 +1,7 @@
+**Submit your questions for The Athletic's state of Florida recruiting mailbag**\
+`<p>The early signing period is quickly approaching.`\
+https://nytimes.com/athletic/5944090/2024/11/25/submit-your-questions-for-the-athletics-state-of-florida-recruiting-mailbag/
+
 **What I think and what I know about the Jets a quarter of the way into 2024-25**\
 `How much of Winnipeg's start is for real, and what's realistic to ask of the Jets as their season faces its first major test?`\
 https://nytimes.com/athletic/5944318/2024/11/25/jets-nhl-season-analysis-scheifele-power-play/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/25/us/trump-news
 **Ohio State film study: What worked for the Buckeyes against Indiana**\
 `Let’s talk about how Ohio State's defense dominated Indiana, along with the offensive line and Will Howard’s performance.`\
 https://nytimes.com/athletic/5946181/2024/11/25/ohio-state-football-indiana-will-howard-defense/
-
-**Tennis Briefing: Jannik Sinner's sublime season awaits CAS verdict, Elena Vesnina retires**\
-`The trajectory of the world No. 1's career is out of his hands as the tennis season comes to an end.`\
-https://nytimes.com/athletic/5944850/2024/11/25/tennis-news-sinner-2024-season-wada-appeal/
 
