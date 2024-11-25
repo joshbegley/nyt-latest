@@ -1,3 +1,7 @@
+**What I think and what I know about the Jets a quarter of the way into 2024-25**\
+`How much of Winnipeg's start is for real, and what's realistic to ask of the Jets as their season faces its first major test?`\
+https://nytimes.com/athletic/5944318/2024/11/25/jets-nhl-season-analysis-scheifele-power-play/
+
 **De Bruyne says Man City contract talks on hold amid injury comeback**\
 `Kevin De Bruyne says he has put talks about his Manchester City future to one side while he focuses on his recovery from injury.`\
 https://nytimes.com/athletic/5946390/2024/11/25/kevin-de-bruyne-manchester-city-future/
