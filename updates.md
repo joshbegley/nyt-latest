@@ -1,3 +1,11 @@
+**Judge Allows San Jose State Volleyball Player to Compete**\
+`A federal judge declined to prevent the player from participating in a conference tournament this week, in response to a lawsuit from other athletes who say she is transgender.`\
+https://nytimes.com/2024/11/25/us/san-jose-state-volleyball-transgender.html
+
+**Wilson in Newcastle squad for first time this season**\
+`Newcastle United have been boosted by the news that Callum Wilson has returned to their matchday squad for the first time this season.`\
+https://nytimes.com/athletic/5947205/2024/11/25/newcastle-team-news-callum-wilson/
+
 **The Windup: Angels trying another big move**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/5947095/2024/11/25/yusei-kikuchi-angels-automated-strike-zone-the-windup/
