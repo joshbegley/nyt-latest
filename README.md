@@ -1,3 +1,7 @@
+**Colts WR Josh Downs week to week with shoulder injury: Source**\
+`The second-year wideout leads Indianapolis in receptions, receiving yards per game and targets. `\
+https://nytimes.com/athletic/5947212/2024/11/25/colts-josh-downs-shoulder-injury-update/
+
 **Judge Allows San Jose State Volleyball Player to Compete**\
 `A federal judge declined to prevent the player, who is at the center of a controversy over transgender athletes, from participating in a women’s volleyball conference tournament this week.`\
 https://nytimes.com/2024/11/25/us/san-jose-state-volleyball-transgender.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947155/2024/11/25/notre-dame-football-mailbag-ques
 **What Deontae Lawson's absence means for Alabama's defense**\
 `Lawson, a junior and projected NFL prospect, likely has played his final game for Alabama.`\
 https://nytimes.com/athletic/5947046/2024/11/25/deontae-lawson-injury-alabama-football/
-
-**Biden Pardons Turkeys for the Last Time as President**\
-`Setting aside politics, the president used the lighthearted ceremony to thank the nation one more time for the opportunity to serve.`\
-https://nytimes.com/2024/11/25/us/politics/biden-turkey-pardon-thanksgiving.html
 
