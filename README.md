@@ -1,3 +1,11 @@
+**Special Counsel Moves to Dismiss Federal Cases Against Trump**\
+`Also, Israel is nearing a decision on a Lebanon cease-fire. Here's the latest at the end of Monday.`\
+https://nytimes.com/2024/11/25/briefing/special-counsel-drop-trump-cases-israel-lebanon-truce.html
+
+**Here’s Where Weather May Disrupt Your Thanksgiving Travel**\
+`A few storms may disrupt some holiday travel, as millions of people take to the road and skies this week.`\
+https://nytimes.com/2024/11/25/weather/thanksgiving-storm-travel.html
+
 **The Vice-Presidential Curse**\
 `Incumbent vice presidents running for president face unique challenges — and have a poor track record in elections.`\
 https://nytimes.com/2024/11/25/us/politics/the-vice-presidential-curse.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/25/nyregion/jessica-tisch-nypd-commissioner.html
 **Former Kentucky Sheriff Arraigned on Murder Charge in Judge Shooting**\
 `The former sheriff, Shawn Stines, was indicted last week after a local judge was shot to death in his chambers in September.`\
 https://nytimes.com/2024/11/25/us/kentucky-sheriff-arraigned-judge-shooting.html
-
-**GM joining F1 is a big win for the storied U.S. motorsports brand**\
-`GM has seen decades of success in racing — but largely on a domestic level. Racing in F1 could change that dramatically.`\
-https://nytimes.com/athletic/5947705/2024/11/25/general-motors-joins-f1-2026/
-
-**Netflix to Screen ‘One Hundred Years of Solitude’ in Havana**\
-`The first two episodes will be shown at a film festival in Havana that was long championed by Gabriel García Márquez, the Colombian novelist who wrote the book.`\
-https://nytimes.com/2024/11/25/arts/netflix-one-hundred-years-of-solitude-havana.html
 
