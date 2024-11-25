@@ -1,3 +1,11 @@
+**Tennis Briefing: Jannik Sinner's sublime season awaits CAS verdict, Elena Vesnina retires**\
+`The trajectory of the world No. 1's career is out of his hands as the tennis season comes to an end.`\
+https://nytimes.com/athletic/5944850/2024/11/25/tennis-news-sinner-2024-season-wada-appeal/
+
+**The Athletic FC: Manchester City loss feels seismic, Salah's contract claim**\
+`Today in TAFC: How crucial will City's 4-0 defeat to Spurs be? Salah opens up about new deal talks and is Mascherano right for Inter Miami.`\
+https://nytimes.com/athletic/5946166/2024/11/25/manchester-city-tottenham-salah-contract-claim/
+
 **FPL: What we learnt from Gameweek 12 - Salah and the budget forwards shine**\
 `Abdul Rehman breaks down the main talking points from Gameweek 12 so far in Fantasy Premier League `\
 https://nytimes.com/athletic/5944558/2024/11/25/fantasy-premier-league-gameweek-12-salah-haaland-cunha/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5944194/2024/11/25/wild-john-hynes-anniversary-coac
 **Vinicius Jr suffers hamstring injury, expected to be out for three weeks**\
 `Real Madrid forward Vinicius Junior is expected to be sidelined for three weeks with a hamstring injury, ruling him out of Wednesday&#8217;s Champions League tie at Liverpool.`\
 https://nytimes.com/athletic/5946221/2024/11/25/vinicius-junior-real-madrid-injury-update/
-
-**A Climate Change**\
-`We explore Donald Trump’s climate agenda.`\
-https://nytimes.com/2024/11/25/briefing/donald-trump-climate-policies.html
-
-**Giants' Malik Nabers is 'tired of losing,' sick of trying to explain why offense is inept**\
-`"Go out there, first, second quarter, I don’t get the ball. ... Start getting the ball when it’s 30-0. What you want me to do?”`\
-https://nytimes.com/athletic/5945280/2024/11/25/giants-loss-malik-nabers-buccaneers/
 
