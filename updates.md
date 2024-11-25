@@ -1,3 +1,11 @@
+**Washington Curtails Intel’s Chip Grant After Company Stumbles**\
+`The Biden Administration is reducing its award to the pioneering chip maker to less than $8 billion, from $8.5 billion.`\
+https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
+
+**Bo Nix stays hot as Broncos sweep Raiders with 29-19 win: Takeaways**\
+`Sunday marked Nix's third consecutive game with multiple touchdowns and no interceptions.`\
+https://nytimes.com/athletic/5944059/2024/11/24/broncos-raiders-score-result-takeaways/
+
 **Another Patriots defensive dud raises questions about Jerod Mayo, offseason needs**\
 `It's not just the Patriots offense that's struggling. It's alarming that the defense, the team's supposed strength, is playing this poorly.`\
 https://nytimes.com/athletic/5944874/2024/11/24/patriots-loss-jerod-mayo-dolphins/
