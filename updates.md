@@ -1,3 +1,7 @@
+**ECU planning to promote interim coach Blake Harrell to full-time job**\
+`Harrell, formerly the defensive coordinator, is 4-0 since taking over as the interim coach.`\
+https://nytimes.com/athletic/5946573/2024/11/25/blake-harrell-ecu-football-coach/
+
 **Ex-Dancer Accuses Shen Yun of Forced Labor and Trafficking in Lawsuit**\
 `The former performer, who was recruited to join Shen Yun at age 13, said the prominent dance group coerced children into making money for it.`\
 https://nytimes.com/2024/11/25/nyregion/shen-yun-lawsuit-trafficking-labor.html

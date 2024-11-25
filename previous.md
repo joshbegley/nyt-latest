@@ -1,3 +1,7 @@
+**ECU planning to promote interim coach Blake Harrell to full-time job**\
+`Harrell, formerly the defensive coordinator, is 4-0 since taking over as the interim coach.`\
+https://nytimes.com/athletic/5946573/2024/11/25/blake-harrell-ecu-football-coach/
+
 **Dating App Fatigue? In Vermont, Personal Ads Still Thrive.**\
 `Small weekly seeks readers looking for love.`\
 https://nytimes.com/2024/11/25/style/seven-days-personals-vermont.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946399/2024/11/25/fantasy-football-week-12-recap/
 **Angels, Yusei Kikuchi agree to 3-year, $63 million deal**\
 `The Angels bolstered their standing as the most aggressive team of the offseason thus far with their biggest splash yet.`\
 https://nytimes.com/athletic/5946508/2024/11/25/yusei-kikuchi-angels-contract-mlb/
-
-**NBA Rewind: Who's up (Bucks), who's down (Pacers) and the great East-West divide**\
-`About a month into the season, the imbalance between conferences has never been wider. Plus, your latest NBA Cup-date.`\
-https://nytimes.com/athletic/5936987/2024/11/25/nba-rewind-pacers-bucks-east-west/
 
