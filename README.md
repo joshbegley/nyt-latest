@@ -1,3 +1,7 @@
+**U.A.E. Arrests 3 Uzbeks Linked to Murder of Israeli Rabbi**\
+`Israeli authorities say the abduction and killing of Rabbi Zvi Kogan was an act of antisemitic terrorism, but investigators have not yet stated a motive.`\
+https://nytimes.com/2024/11/25/world/middleeast/israel-dead-rabbi-uae-arrests.html
+
 **Book Club: Read ‘Small Things Like These,’ by Claire Keegan, with the Book Review**\
 `In December, the Book Review Book Club will read and discuss “Small Things Like These,” a meditative Christmastime novella about a man confronting a local horror.`\
 https://nytimes.com/2024/11/25/books/review/small-things-like-these-claire-keegan-book-club.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5946663/2024/11/25/cowboys-today-nfl-draft-pick-win
 **Ex-Jets general manager Mike Tannenbaum to lead search for team's next GM, head coach**\
 `The Jets have retained Tannenbaum's company, The 33rd Team, with former Vikings GM Rick Spielman set to work on the search as well.`\
 https://nytimes.com/athletic/5946752/2024/11/25/mike-tannenbaum-jets-gm-search/
-
-**In Haiti, a Grim Barometer: Even United Nations Workers Are Fleeing**\
-`A surge in gang violence over the past two weeks has led international aid organizations to rethink their staff levels in Haiti.`\
-https://nytimes.com/2024/11/25/world/americas/haiti-gang-violence-un-evacuations.html
 
