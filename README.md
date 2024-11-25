@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5947212/2024/11/25/colts-josh-downs-shoulder-injury-update/
 
 **Judge Allows San Jose State Volleyball Player to Compete**\
-`A federal judge declined to prevent the player from participating in a conference tournament this week, in response to a lawsuit from other athletes who say she is transgender.`\
+`A federal judge declined to prevent the player, who is at the center of a controversy over transgender athletes, from participating in a women’s volleyball conference tournament this week.`\
 https://nytimes.com/2024/11/25/us/san-jose-state-volleyball-transgender.html
 
 **Wilson in Newcastle squad for first time this season**\
