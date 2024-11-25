@@ -1,3 +1,7 @@
+**Field being reshaped in day shows beauty of 12 teams: College Football Playoff Bubble Watch**\
+`Will the ACC get two teams in after all? So, are the Hoosiers safe? What's at stake in Farmageddon? Can Texas A&M rebound? `\
+https://nytimes.com/athletic/5944442/2024/11/25/college-football-playoff-bubble-watch-reshaped-day/
+
 **Philippines President Slams Vice President’s Assassination Plot**\
 `Political turmoil has escalated after Vice President Sara Duterte claimed to have arranged for President Ferdinand R. Marcos Jr.’s assassination if she is slain.`\
 https://nytimes.com/2024/11/25/world/asia/philippines-president-assassination-threat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/us/trump-scalia-recess-appointments.html
 **'Rafa is part of us': What Rafael Nadal means to Spain**\
 `The 22-time Grand Slam champion has been a sporting servant and avatar for Spain in one of its most successful eras`\
 https://nytimes.com/athletic/5941956/2024/11/25/rafael-nadal-spain-sport-history/
-
-**How Democrats Lost Their Base and Their Message**\
-`Donald Trump’s populist pitch bumped Democrats off their traditional place in American politics.`\
-https://nytimes.com/2024/11/25/upshot/democrats-trump-working-class.html
 
