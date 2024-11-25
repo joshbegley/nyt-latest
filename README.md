@@ -1,3 +1,15 @@
+**San Francisco Giants free-agent profile: Ha-Seong Kim, SS**\
+`Kim is perhaps the most logical fit for the Giants on the free agent market. He does come with risk, however.`\
+https://nytimes.com/athletic/5941013/2024/11/25/sf-giants-ha-seong-kim-free-agency/
+
+**Manchester United's switches of play were the positive aspect of Amorim's first game in charge**\
+`Against Ipswich, it was United's intentions rather than their actual level of performance that was significant`\
+https://nytimes.com/athletic/5946123/2024/11/25/manchester-united-tactics-amorim-ipswich/
+
+**Trump Transition Live Updates: Trump Wraps Up Main Cabinet Picks by Naming Rollins to Agriculture**\
+``\
+https://nytimes.com/live/2024/11/25/us/trump-news
+
 **Ohio State film study: What worked for the Buckeyes against Indiana**\
 `Let’s talk about how Ohio State's defense dominated Indiana, along with the offensive line and Will Howard’s performance.`\
 https://nytimes.com/athletic/5946181/2024/11/25/ohio-state-football-indiana-will-howard-defense/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5944676/2024/11/25/twins-roster-projection-offseaso
 **Rutherford: Armstrong is all-in to fix the Blues and add to his legacy, feelings be damned**\
 `First he signed Philip Broberg and Dylan Holloway to offer sheets and now he replaces Drew Bannister with Jim Montgomery.`\
 https://nytimes.com/athletic/5944993/2024/11/25/doug-armstrong-jim-montgomery-bold-hire/
-
-**Super League, Ballon d'Or and UEFA - Madrid president Perez's speech and what he meant**\
-`Perez spoke to Madrid's general assembly for 85 minutes, including questions, on Sunday and covered some big issues`\
-https://nytimes.com/athletic/5946080/2024/11/25/super-league-real-madrid-perez/
-
-**Lowetide: Which Oilers prospects are spiking in AHL Bakersfield?**\
-`A quick look at the Bakersfield Condors this season shows some interesting names in the pipeline.`\
-https://nytimes.com/athletic/5944197/2024/11/25/oilers-prospects-savoie-ahl/
-
-**One year after Hynes' arrival in Minnesota, Wild players are buying what he's selling**\
-`After taking over from Dean Evason last November, John Hynes has the love of his players and an excellent start to the season.`\
-https://nytimes.com/athletic/5944194/2024/11/25/wild-john-hynes-anniversary-coaching/
 
