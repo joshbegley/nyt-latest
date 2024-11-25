@@ -1,3 +1,11 @@
+**Fantasy Football Week 12 recap: Can McCaffrey turn it around? It doesn't look good**\
+`CMC's disappointing season continued Sunday, while Saquon Barkley has us asking whether he can break an all-time RB points record.`\
+https://nytimes.com/athletic/5946399/2024/11/25/fantasy-football-week-12-recap-can-christian-mccaffrey-turn-it-around-it-doesnt-look-good/
+
+**Angels, Yusei Kikuchi agree to 3-year, $63 million deal**\
+`The Angels bolstered their standing as the most aggressive team of the offseason thus far with their biggest splash yet.`\
+https://nytimes.com/athletic/5946508/2024/11/25/yusei-kikuchi-angels-contract-mlb/
+
 **NBA Rewind: Who's up (Bucks), who's down (Pacers) and the great East-West divide**\
 `About a month into the season, the imbalance between conferences has never been wider. Plus, your latest NBA Cup-date.`\
 https://nytimes.com/athletic/5936987/2024/11/25/nba-rewind-pacers-bucks-east-west/
@@ -28,13 +36,5 @@ https://nytimes.com/athletic/5946390/2024/11/25/kevin-de-bruyne-manchester-city-
 
 **Barbara Taylor Bradford, Best-Selling Romance Novelist, Dies at 91**\
 `Her own rags-to-riches story mirrored those of many of her heroines, and her dozens of books helped her amass a fortune of $300 million.`\
-https://nytimes.com/2024/11/25/obituaries/barbara-taylor-bradford-dead.html
-
-**Men’s college basketball Top 25: Feast Week is here. Who's for real?**\
-`Three weeks in, the competition you’ve beaten has to start mattering, which is why Tennessee has jumped Iowa State and UConn.`\
-https://nytimes.com/athletic/5945741/2024/11/25/mens-basketball-top-25-tennessee-feast-week/
-
-**The Bessent Bounce — Markets Cheer Trump’s Treasury Pick**\
-`Investors seemed to signal their approval for Scott Bessent as a safe choice to implement the president-elect’s economic agenda.`\
-https://nytimes.com/2024/11/25/business/dealbook/markets-trump-treasury-bessent.html
+https://nytimes.com/2024/11/25/books/barbara-taylor-bradford-dead.html
 
