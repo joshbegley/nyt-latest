@@ -1,3 +1,7 @@
+**Keane involved in fan altercation after Man Utd draw at Ipswich**\
+`Sky Sports pundit Roy Keane was involved in an altercation with a supporter in the home section at Portman Road following Manchester United&#8217;s draw at Ipswich Town on Sunday.`\
+https://nytimes.com/athletic/5946110/2024/11/25/roy-keane-fan-ipswich-sky-sports/
+
 **Storm Bert Batters Britain, Leaving at Least 3 Dead**\
 `Torrential rain doused most of the country, stymying travel and leading to widespread flooding, landslides, fallen trees and power outages.`\
 https://nytimes.com/2024/11/25/world/europe/storm-bert-uk-weather.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945924/2024/11/25/guardiola-losing-streak-soccer-c
 **Chicken fingers or gravy? Food-filled Zambonis are popular collectibles in Las Vegas**\
 `Some Thanksgiving dinners in the Las Vegas area will be accompanied by a model of an ice-resurfacing machine.`\
 https://nytimes.com/athletic/5938987/2024/11/25/vegas-zamboni-chicken-gravy/
-
-**Are the Giants less ‘clown show’ than the Jets? It’s getting harder to tell: Sando’s Pick Six**\
-`What's the difference between the Giants and Jets? As one coach put it, the Giants have more credibility ... but perhaps not for long.`\
-https://nytimes.com/athletic/5935383/2024/11/25/giants-jets-john-mara-woody-johnson/
 

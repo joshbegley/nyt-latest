@@ -1,3 +1,7 @@
+**Keane involved in fan altercation after Man Utd draw at Ipswich**\
+`Sky Sports pundit Roy Keane was involved in an altercation with a supporter in the home section at Portman Road following Manchester United&#8217;s draw at Ipswich Town on Sunday.`\
+https://nytimes.com/athletic/5946110/2024/11/25/roy-keane-fan-ipswich-sky-sports/
+
 **Storm Bert Batters Britain, Leaving at Least 3 Dead**\
 `Torrential rain doused most of the country, stymying travel and leading to widespread flooding, landslides, fallen trees and power outages.`\
 https://nytimes.com/2024/11/25/world/europe/storm-bert-uk-weather.html
