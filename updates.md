@@ -1,3 +1,11 @@
+**U.S. midfielder Paredes sustains setback in injury recovery**\
+`USMNT midfielder Kevin Paredes has suffered a setback in his recovery from a foot injury.`\
+https://nytimes.com/athletic/5947063/2024/11/25/kevin-paredes-injury-usmnt-wolfsburg/
+
+**Jessica Tisch Is Sworn In as N.Y.P.D. Commissioner**\
+`Commissioner Tisch is the fourth person to hold the role during the Adams administration, and the department’s second-ever female leader.`\
+https://nytimes.com/2024/11/25/nyregion/jessica-tisch-nypd-commissioner.html
+
 **Former Kentucky Sheriff Arraigned on Murder Charge in Judge Shooting**\
 `The former sheriff, Shawn Stines, was indicted last week after a local judge was shot to death in his chambers in September.`\
 https://nytimes.com/2024/11/25/us/kentucky-sheriff-arraigned-judge-shooting.html
