@@ -1,3 +1,11 @@
+**‘I'm more out than in’: What Salah's latest comments mean for his Liverpool future**\
+`It was a bold move from the Egyptian - whether it has the impact he desires in the negotiating process, only time will tell`\
+https://nytimes.com/athletic/5945083/2024/11/25/mohamed-salah-liverpool-contract-decision/
+
+**Salah on Liverpool contract situation: 'I’m probably more out than in'**\
+`Mohamed Salah says he has yet to receive a formal contract offer from Liverpool as he admits “I’m probably more out than in (next summer).`\
+https://nytimes.com/athletic/5945979/2024/11/25/mohamed-salah-liverpool-contract-update/
+
 **Saquon Barkley's Philadelphia story could have a most valuable ending**\
 `Barkley's 255 rushing yards, along with his 302 scrimmage yards and two TDs against the Rams support his case for a non-QB to be an MVP.`\
 https://nytimes.com/athletic/5945242/2024/11/25/eagles-saquon-barkley-rams/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/25/learning/word-of-the-day-saturnine.html
 **As 76ers struggle, Clippers exceed expectations while understanding who is playing**\
 `Philadelphia is suffering losses due to lineup inconsistency, and LA is benefiting from knowing who will play.`\
 https://nytimes.com/athletic/5945663/2024/11/25/clippers-succeed-76ers-struggle/
-
-**Eagles' Brandon Graham says he's done for season due to torn triceps**\
-`Graham is a beloved veteran who is in his 15th season with the franchise.`\
-https://nytimes.com/athletic/5945907/2024/11/25/eagles-brandon-graham-injured-tricep/
-
-**DHL Cargo Plane Crashes Near Airport in Lithuania, Killing 1**\
-`The crash near Vilnius Airport sparked a fire in a residential area, officials said. One person on board was killed and the other three were hospitalized.`\
-https://nytimes.com/2024/11/25/world/europe/dhl-lithuania-plane-crash.html
 
