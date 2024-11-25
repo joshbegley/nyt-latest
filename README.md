@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5945562/2024/11/24/49ers-loss-blowout-packers/
 https://nytimes.com/athletic/5945552/2024/11/24/broncos-win-bo-nix-courtland-sutton-raiders/
 
 **Maple Leafs report cards: Marner's commanding performance drives win**\
-`Mitch Marner made it happen for the Leafs' first game against the Utah Hockey Club.`\
+`Marner made it happen for the Leafs' first game against the Utah Hockey Club.`\
 https://nytimes.com/athletic/5944951/2024/11/24/maple-leafs-report-cards-marner-utah/
 
 **Celtics fans witness Jaylen Brown's 3-point magic show before the winning matinee**\
