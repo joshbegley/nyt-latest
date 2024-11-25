@@ -1,4 +1,4 @@
-**Colts WR Josh Downs week-to-week with shoulder injury: Source**\
+**Colts WR Josh Downs week to week with shoulder injury: Source**\
 `The second-year wideout leads Indianapolis in receptions, receiving yards per game and targets. `\
 https://nytimes.com/athletic/5947212/2024/11/25/colts-josh-downs-shoulder-injury-update/
 
