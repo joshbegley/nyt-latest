@@ -1,3 +1,19 @@
+**Raiders were a mess at QB before Gardner Minshew's injury and need a fix this offseason**\
+`The Raiders are 2-9 and going nowhere. Why not stick with Aidan O'Connell or Desmond Ridder for now and aim to find a new QB this offseason?`\
+https://nytimes.com/athletic/5945346/2024/11/24/raiders-loss-gardner-minshew-broncos/
+
+**‘Dune: Prophecy’ Season 1, Episode 2 Recap: The Agony**\
+`Valya has shown that she is clearly willing to sacrifice whatever, and whomever, it takes to accomplish her goal.`\
+https://nytimes.com/2024/11/24/arts/television/dune-prophecy-recap-episode-2.html
+
+**The Commanders split apart on the field Sunday, continuing an ill-timed reversal of fortune**\
+`"It's very frustrating to play 3 1/2 quarters the way we did," tight end Zach Ertz said of the Commanders' 34-26 loss to the Cowboys.`\
+https://nytimes.com/athletic/5944814/2024/11/24/commanders-cowboys-reversal-of-fortune/
+
+**Inside KaVontae Turpin's 'Houdini-style' TD: A spinning escape and blazing finish**\
+`KaVontae Turpin thinks his TD return might be the last time he gets an opportunity to return a kickoff this season.`\
+https://nytimes.com/athletic/5945128/2024/11/24/cowboys-kavontae-turpin-kickoff-return-td-commanders/
+
 **Sam Darnold's toughness surfaces when needed in Vikings' overtime victory over Bears**\
 `Darnold finished 22-of-34 passing for 330 yards and two touchdowns. And for the second straight week, he lifted a team that needed him.`\
 https://nytimes.com/athletic/5945140/2024/11/24/vikings-win-sam-darnold-bears/
