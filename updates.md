@@ -1,3 +1,7 @@
+**Ex-Dancer Accuses Shen Yun of Forced Labor and Trafficking in Lawsuit**\
+`The former performer, who was recruited to join Shen Yun at age 13, said the prominent dance group coerced children into making money for it.`\
+https://nytimes.com/2024/11/25/nyregion/shen-yun-lawsuit-trafficking-labor.html
+
 **Dating App Fatigue? In Vermont, Personal Ads Still Thrive.**\
 `Small weekly seeks readers looking for love.`\
 https://nytimes.com/2024/11/25/style/seven-days-personals-vermont.html
