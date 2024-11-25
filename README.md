@@ -2,6 +2,10 @@
 `Leicester have not moved far from the position they were in last summer, when Cooper was appointed — they cannot make the same mistake again`\
 https://nytimes.com/athletic/5944299/2024/11/25/steve-cooper-leicester-sacking/
 
+**New York Giants fan survey: Should Brian Daboll, Joe Schoen return in 2025?**\
+`Here's your chance to let us know whether you believe the current regime can turn the Giants into contenders — or if changes must be made.`\
+https://nytimes.com/athletic/5933125/2024/11/25/new-york-giants-brian-daboll-joe-schoen-survey/
+
 **Newsom Challenges Trump on Electric Vehicle Tax Credits**\
 `Gov. Gavin Newsom said California would fill the void for residents if the Trump administration killed a $7,500 E.V. tax credit.`\
 https://nytimes.com/2024/11/25/climate/newsom-trump-electric-vehicle-tax-credits.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/business/dealbook/markets-trump-treasury-bessent.
 **San Francisco Giants free-agent profile: Ha-Seong Kim, SS**\
 `Kim is perhaps the most logical fit for the Giants on the free agent market. He does come with risk, however.`\
 https://nytimes.com/athletic/5941013/2024/11/25/sf-giants-ha-seong-kim-free-agency/
-
-**Manchester United's switches of play were the positive aspect of Amorim's first game in charge**\
-`Against Ipswich, it was United's intentions rather than their actual level of performance that was significant`\
-https://nytimes.com/athletic/5946123/2024/11/25/manchester-united-tactics-amorim-ipswich/
 
