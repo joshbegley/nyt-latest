@@ -1,3 +1,7 @@
+**Barbara Taylor Bradford, Best-Selling Romance Novelist, Dies at 91**\
+`Her own rags-to-riches story mirrored those of many of her heroines, and her dozens of books helped her amass a fortune of $300 million.`\
+https://nytimes.com/2024/11/25/obituaries/barbara-taylor-bradford-dead.html
+
 **Men’s college basketball Top 25: Feast Week is here. Who's for real?**\
 `Three weeks in, the competition you’ve beaten has to start mattering, which is why Tennessee has jumped Iowa State and UConn.`\
 https://nytimes.com/athletic/5945741/2024/11/25/mens-basketball-top-25-tennessee-feast-week/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946166/2024/11/25/manchester-city-tottenham-salah-
 **FPL: What we learnt from Gameweek 12 - Salah and the budget forwards shine**\
 `Abdul Rehman breaks down the main talking points from Gameweek 12 so far in Fantasy Premier League `\
 https://nytimes.com/athletic/5944558/2024/11/25/fantasy-premier-league-gameweek-12-salah-haaland-cunha/
-
-**Weekend NHL rankings: Change in Boston, déjà vu in Ottawa and expected storylines**\
-`We all may be terrible at predicting the NHL, but sometimes the league offers refreshingly foreseeable storylines.`\
-https://nytimes.com/athletic/5944685/2024/11/25/weekend-nhl-rankings-bruins-senators-storylines/
 
