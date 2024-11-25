@@ -1,3 +1,11 @@
+**Word of the Day: saturnine**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/25/learning/word-of-the-day-saturnine.html
+
+**As 76ers struggle, Clippers exceed expectations while understanding who is playing**\
+`Philadelphia is suffering losses due to lineup inconsistency while LA is benefitting from knowing who will play.`\
+https://nytimes.com/athletic/5945663/2024/11/25/clippers-succeed-76ers-struggle/
+
 **Eagles' Brandon Graham says he's done for season due to torn triceps**\
 `Graham is a beloved veteran who is in his 15th season with the franchise.`\
 https://nytimes.com/athletic/5945907/2024/11/25/eagles-brandon-graham-injured-tricep/
