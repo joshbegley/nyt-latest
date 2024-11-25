@@ -1,3 +1,7 @@
+**Chris Kreider's no-assist streak, Brett Berard's call-up, more: 11 Rangers observations**\
+`Kreider is in bizarre statistical company with his early-season points output.`\
+https://nytimes.com/athletic/5944923/2024/11/25/rangers-kreider-assists-quick-berard/
+
 **Field being reshaped in day shows beauty of 12 teams: College Football Playoff Bubble Watch**\
 `Will the ACC get two teams in after all? So, are the Hoosiers safe? What's at stake in Farmageddon? Can Texas A&M rebound? `\
 https://nytimes.com/athletic/5944442/2024/11/25/college-football-playoff-bubble-watch-reshaped-day/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/us/brazil-bahia-emerald-dispute.html
 **Trump’s Judicial Hero Would Have Hated His Recess Appointments Plan**\
 `Justice Antonin Scalia, a conservative giant, said attempts to circumvent the Senate’s responsibility to vet nominees were “ignoble” and “just made up.”`\
 https://nytimes.com/2024/11/25/us/trump-scalia-recess-appointments.html
-
-**'Rafa is part of us': What Rafael Nadal means to Spain**\
-`The 22-time Grand Slam champion has been a sporting servant and avatar for Spain in one of its most successful eras`\
-https://nytimes.com/athletic/5941956/2024/11/25/rafael-nadal-spain-sport-history/
 
