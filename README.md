@@ -1,7 +1,3 @@
-**Raiders reach new low as dominance over Broncos firmly a thing of the past**\
-`For as bad as things have been for the Raiders, they've at least routinely beaten Broncos in recent seasons. Not this year.`\
-https://nytimes.com/athletic/5945537/2024/11/24/raiders-loss-quarterback-gardner-minshew-broncos/
-
 **Led by 'f------ beast' Leonard Williams, Seahawks' D smothers Cardinals for NFC West lead**\
 `Williams and the defense had their best performance of the season, breathing new life into the Seahawks' playoff hopes.`\
 https://nytimes.com/athletic/5945560/2024/11/24/seahawks-win-defense-cardinals-leonard-williams/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5944814/2024/11/24/commanders-cowboys-reversal-of-f
 **Inside KaVontae Turpin's 'Houdini-style' TD: A spinning escape and blazing finish**\
 `Turpin thinks his TD return might be the last time he gets an opportunity to return a kickoff this season.`\
 https://nytimes.com/athletic/5945128/2024/11/24/cowboys-kavontae-turpin-kickoff-return-td-commanders/
+
+**Uruguay’s Center Left Reclaims Power in Presidential Election**\
+`After a campaign notable for the amiable tone from both sides, Yamandú Orsi was named the winner.`\
+https://nytimes.com/2024/11/24/world/americas/uruguay-presidential-election.html
 
