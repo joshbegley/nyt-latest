@@ -1,3 +1,23 @@
+**Great Apes and Tiny Bears: Chasing Wild Thrills in Borneo**\
+`This Southeast Asian island, home to some of the world’s strangest and most iconic creatures, is a dream destination for a growing number of “mammal watchers.”`\
+https://nytimes.com/2024/11/25/travel/borneo-wildlife.html
+
+**How Healthy Is Turkey?**\
+`Give thanks for this bird — and its many nutritional benefits.`\
+https://nytimes.com/2024/11/25/well/eat/turkey-health-benefits-recipes.html
+
+**‘Everyone Thought We Were Going to Die’: Living With Flight Trauma**\
+`Extreme turbulence, a blown-out door, an engine on fire: For passengers and crew members who have experienced in-air emergencies, the pain endures.`\
+https://nytimes.com/2024/11/25/well/mind/airplane-emergencies-mental-health.html
+
+**Devil’s advocate: Why Yankees pursuit of Juan Soto shouldn’t go all out**\
+`Re-signing Soto seems like a no-brainer, but bringing him back would create some issues for the Yankees to address.`\
+https://nytimes.com/athletic/5944365/2024/11/25/yankees-juan-soto-pursuit-questions/
+
+**Big Ten bowl breakdown: If the Playoff takes four, where would everyone else go?**\
+`Ohio State coach Ryan Day was looking to send a message in the final minutes against Indiana.`\
+https://nytimes.com/athletic/5944561/2024/11/25/big-ten-playoff-teams-postseason-bowls/
+
 **The Athletic 134: In late November, every win deserves credit**\
 `Every week this season has given us an upset that has upended the CFP. I wouldn’t pencil anything in heading into the final weekend either.`\
 https://nytimes.com/athletic/5945494/2024/11/25/college-football-fbs-team-134-rankings/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5945979/2024/11/25/mohamed-salah-liverpool-contract
 **Saquon Barkley's Philadelphia story could have a most valuable ending**\
 `Barkley's 255 rushing yards, along with his 302 scrimmage yards and two TDs against the Rams support his case for a non-QB to be an MVP.`\
 https://nytimes.com/athletic/5945242/2024/11/25/eagles-saquon-barkley-rams/
-
-**Leganes 0 Real Madrid 3: Mbappe and Bellingham continue to improve as Liverpool trip looms**\
-`Barcelona dropped points again and things are looking up for Carlo Ancelotti's side`\
-https://nytimes.com/athletic/5945223/2024/11/25/leganes-real-madrid-result-analysis/
-
-**As New York’s Migrant Crisis Eases, Trump’s Deportation Threat Looms**\
-`New York City’s migrant shelter population has been steadily falling, but President-elect Donald Trump’s immigration stance will bring new challenges.`\
-https://nytimes.com/2024/11/25/nyregion/migrants-shelters-trump-nyc.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/25/crosswords/spelling-bee-forum.html
-
-**Nicolas Pepe exclusive: 'Arsenal spent a lot of money on me and I paid the price for it'**\
-`Pepe is enjoying his football again at Villarreal after his time at Arsenal turned sour as he was worn down by abuse online`\
-https://nytimes.com/athletic/5934816/2024/11/25/nicolas-pepe-interview-arsenal-emery-villarreal/
-
-**DHL Cargo Plane Crashes Into Homes**\
-`Thick smoke rose from a residential area near an airport in Vilnius, Lithuania, after the plane crashed.`\
-https://nytimes.com/video/world/europe/100000009843539/dhl-lithuania-plane-crash.html
 
