@@ -1,3 +1,7 @@
+**Field being reshaped in day shows beauty of 12 teams: College Football Playoff Bubble Watch**\
+`Will the ACC get two teams in after all? So, are the Hoosiers safe? What's at stake in Farmageddon? Can Texas A&M rebound? `\
+https://nytimes.com/athletic/5944442/2024/11/25/college-football-playoff-bubble-watch-reshaped-day/
+
 **Philippines President Slams Vice President’s Assassination Plot**\
 `Political turmoil has escalated after Vice President Sara Duterte claimed to have arranged for President Ferdinand R. Marcos Jr.’s assassination if she is slain.`\
 https://nytimes.com/2024/11/25/world/asia/philippines-president-assassination-threat.html
