@@ -1,3 +1,11 @@
+**Chiefs' latest too-close-for-comfort win doesn't sit well in the locker room**\
+`Half of the Chiefs’ 10 wins have been decided on the final snap. Patrick Mahomes and kicker Spencer Shrader saved the day in Carolina.`\
+https://nytimes.com/athletic/5944975/2024/11/24/chiefs-patrick-mahomes-panthers/
+
+**Another Patriots defensive dud raises all sorts of questions about Jerod Mayo, offseason**\
+`It's not just the Patriots offense that's struggling. It's alarming that the defense, the team's supposed strength, is playing this poorly.`\
+https://nytimes.com/athletic/5944874/2024/11/24/patriots-defense-jerod-mayo-offseason/
+
 **Vikings beat Bears 30-27 in OT as Addison has career day: Key takeaways**\
 `The Bears got the ball first in overtime but were forced to punt, giving Minnesota the chance to win with a field goal.`\
 https://nytimes.com/athletic/5943990/2024/11/24/vikings-bears-score-result-takeaways/
