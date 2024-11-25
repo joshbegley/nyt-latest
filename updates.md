@@ -1,3 +1,15 @@
+**'It’s a next-man-up mentality': Lions keep rolling as injuries remain biggest obstacle**\
+`The Lions saw their injury list continue to grow in their win against the Colts.`\
+https://nytimes.com/athletic/5945008/2024/11/24/lions-win-injuries-colts/
+
+**Crazy final 5 minutes: How the Cowboys hung on to beat Commanders**\
+`A breakdown in coverage, a missed extra point and two kickoff returns for touchdowns highlighted the Cowboys' wild victory.`\
+https://nytimes.com/athletic/5945252/2024/11/24/cowboys-win-wild-finish-commanders/
+
+**Raiders QB Gardner Minshew out for season with broken collarbone: Sources**\
+`Antonio Pierce hinted that Aidan O'Connell could be activated from injured reserve to play against the Chiefs on Black Friday.`\
+https://nytimes.com/athletic/5945175/2024/11/24/raiders-gardner-minshew-collarbone-injury-out-for-season/
+
 **LA Galaxy back in Western Conference final for first time since 2014**\
 `The Galaxy are the last of any of the top-three-seeded teams in either MLS conference to move on to their respective conference final.`\
 https://nytimes.com/athletic/5945340/2024/11/24/la-galaxy-minnesota-united-mls-playoffs/
