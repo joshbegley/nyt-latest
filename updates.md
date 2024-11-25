@@ -1,3 +1,11 @@
+**Tennis Briefing: Jannik Sinner's sublime season awaits CAS verdict, Elena Vesnina retires**\
+`The trajectory of the world No. 1's career is out of his hands as the tennis season comes to an end.`\
+https://nytimes.com/athletic/5944850/2024/11/25/tennis-news-sinner-2024-season-wada-appeal/
+
+**The Athletic FC: Manchester City loss feels seismic, Salah's contract claim**\
+`Today in TAFC: How crucial will City's 4-0 defeat to Spurs be? Salah opens up about new deal talks and is Mascherano right for Inter Miami.`\
+https://nytimes.com/athletic/5946166/2024/11/25/manchester-city-tottenham-salah-contract-claim/
+
 **Super League, Ballon d'Or and UEFA - Madrid president Perez's speech and what he meant**\
 `Perez spoke to Madrid's general assembly for 85 minutes, including questions, on Sunday and covered some big issues`\
 https://nytimes.com/athletic/5946080/2024/11/25/super-league-real-madrid-perez/
