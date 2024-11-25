@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5944943/2024/11/24/bears-vikings-overtime-loss-cale
 https://nytimes.com/athletic/5945021/2024/11/24/giants-loss-brian-daboll-buccaneers/
 
 **Washington Curtails Intel’s Chip Grant After Company Stumbles**\
-`The Biden administration is reducing its award to the chip maker, partly to account for a multibillion dollar military contract.`\
+`The Biden administration is reducing its award to the chip maker, partly to account for a multibillion-dollar military contract.`\
 https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
 
 **Bo Nix stays hot as Broncos sweep Raiders with 29-19 win: Takeaways**\
