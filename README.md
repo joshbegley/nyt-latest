@@ -1,4 +1,4 @@
-**Saquon Barkley writes a winning chapter for his Philadelphia story**\
+**Saquon Barkley's Philadelphia story could have a most valuable ending**\
 `Barkley's 255 rushing yards, along with his 302 scrimmage yards and two TDs against the Rams support his case for a non-QB to be an MVP.`\
 https://nytimes.com/athletic/5945242/2024/11/25/eagles-saquon-barkley-rams/
 
