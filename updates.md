@@ -1,3 +1,7 @@
+**F1’s second Las Vegas GP was a step up — and proved it doesn’t need to try so hard **\
+`The Las Vegas GP toned itself down in year two, but retained what makes it so unique.`\
+https://nytimes.com/athletic/5946973/2024/11/25/f1-las-vegas-review-year-two/
+
 **Devoted Aide Who Keeps Good News Flowing Will Follow Trump to the White House**\
 `Natalie Harp, a 33-year-year-old former anchor on a right-wing cable show, is poised to become the primary conveyor belt for information to and from the president.`\
 https://nytimes.com/2024/11/25/us/politics/trump-natalie-harp.html

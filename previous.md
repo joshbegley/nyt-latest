@@ -1,3 +1,7 @@
+**F1’s second Las Vegas GP was a step up — and proved it doesn’t need to try so hard **\
+`The Las Vegas GP toned itself down in year two, but retained what makes it so unique.`\
+https://nytimes.com/athletic/5946973/2024/11/25/f1-las-vegas-review-year-two/
+
 **Devoted Aide Who Keeps Good News Flowing Will Follow Trump to the White House**\
 `Natalie Harp, a 33-year-year-old former anchor on a right-wing cable show, is poised to become the primary conveyor belt for information to and from the president.`\
 https://nytimes.com/2024/11/25/us/politics/trump-natalie-harp.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946695/2024/11/25/jimmy-butler-tyler-herro-heat/
 **U.A.E. Arrests 3 Uzbeks Linked to Murder of Israeli Rabbi**\
 `Israeli authorities say the abduction and killing of Rabbi Zvi Kogan was an act of antisemitic terrorism, but investigators have not yet stated a motive.`\
 https://nytimes.com/2024/11/25/world/middleeast/israel-dead-rabbi-uae-arrests.html
-
-**Book Club: Read ‘Small Things Like These,’ by Claire Keegan, with the Book Review**\
-`In December, the Book Review Book Club will read and discuss “Small Things Like These,” a meditative Christmastime novella about a man confronting a local horror.`\
-https://nytimes.com/2024/11/25/books/review/small-things-like-these-claire-keegan-book-club.html
 
