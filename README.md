@@ -1,3 +1,7 @@
+**Judge Allows San Jose State Volleyball Player to Compete**\
+`A federal judge declined to prevent the player from participating in a conference tournament this week, in response to a lawsuit from other athletes who say she is transgender.`\
+https://nytimes.com/2024/11/25/us/san-jose-state-volleyball-transgender.html
+
 **Wilson in Newcastle squad for first time this season**\
 `Newcastle United have been boosted by the news that Callum Wilson has returned to their matchday squad for the first time this season.`\
 https://nytimes.com/athletic/5947205/2024/11/25/newcastle-team-news-callum-wilson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947046/2024/11/25/deontae-lawson-injury-alabama-fo
 **Biden Pardons Turkeys for the Last Time as President**\
 `Setting aside politics, the president used the lighthearted ceremony to thank the nation one more time for the opportunity to serve.`\
 https://nytimes.com/2024/11/25/us/politics/biden-turkey-pardon-thanksgiving.html
-
-**NFL Week 13 odds, spreads, schedule: The Eagles are underdogs??**\
-`Thanksgiving Week has close matchups on tap, including a headliner with the Ravens favored over the flying Eagles. `\
-https://nytimes.com/athletic/5946647/2024/11/25/nfl-week-13-odds-spreads-schedule-thanksgiving-eagles-ravens/
 
