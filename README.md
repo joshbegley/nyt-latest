@@ -30,8 +30,8 @@ https://nytimes.com/athletic/5947095/2024/11/25/yusei-kikuchi-angels-automated-s
 `F1 will have 11 teams and 22 drivers for the new regulations.`\
 https://nytimes.com/athletic/5947118/2024/11/25/formula-1-expands-grid-general-motors/
 
-**U.S. Says Google Is an Ad Tech Monopolist in Closing Arguments**\
-`The two sides made their final cases to a federal judge Monday in a trial over the tech giant’s dominance in technology selling ads online.`\
+**U.S. Says Google Is an Ad Tech Monopolist, in Closing Arguments**\
+`The two sides made their final cases to a federal judge Monday in a trial over the tech giant’s dominance in technology that sells ads online.`\
 https://nytimes.com/2024/11/25/technology/google-advertising-monopoly.html
 
 **Jack Smith Moves to Dismiss Charges Against Trump in Election and Documents Cases**\

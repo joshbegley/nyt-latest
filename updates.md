@@ -1,3 +1,23 @@
+**Whitecaps part ways with head coach Sartini**\
+`Sartini took over in 2021 and led the Canadian side to the postseason appearances in three of the last four years.`\
+https://nytimes.com/athletic/5947232/2024/11/25/vanni-sartini-whitecaps-next-coach/
+
+**Submit a question for James Boyd’s Indianapolis Colts mailbag**\
+`Despite losing four of their past five games, the Colts are still in the playoff hunt. Can Anthony Richardson lead them there?`\
+https://nytimes.com/athletic/5947255/2024/11/25/indianapolis-colts-mailbag-anthony-richardson/
+
+**What to watch in college basketball this week: Kansas-Duke, Maui and Vegas tourneys**\
+`What to watch, and why to watch it, across college basketball this Thanksgiving week.`\
+https://nytimes.com/athletic/5946540/2024/11/25/what-to-watch-college-basketball-duke-kansas-maui-vegas/
+
+**Judge Allows San Jose State Volleyball Player to Compete**\
+`A federal judge ruled that the player, who is at the center of a controversy over transgender athletes, can participate in a women’s volleyball conference tournament this week.`\
+https://nytimes.com/2024/11/25/us/san-jose-state-volleyball-transgender.html
+
+**Jack Smith Moves to Dismiss Charges Against Trump in Election and Documents Cases**\
+`The special counsel asked a federal judge in Washington and an appeals court in Atlanta to dismiss cases that had charged Donald J. Trump with plotting to overturn his loss in the 2020 election and with later obstructing efforts to retrieve classified documents he was hoarding.`\
+https://nytimes.com/2024/11/25/us/politics/jack-smith-trump-election-documents-charges.html
+
 **Colts WR Josh Downs week to week with shoulder injury: Source**\
 `The second-year wideout leads Indianapolis in receptions, receiving yards per game and targets. `\
 https://nytimes.com/athletic/5947212/2024/11/25/colts-josh-downs-shoulder-injury-update/

@@ -1,9 +1,21 @@
+**Whitecaps part ways with head coach Sartini**\
+`Sartini took over in 2021 and led the Canadian side to the postseason appearances in three of the last four years.`\
+https://nytimes.com/athletic/5947232/2024/11/25/vanni-sartini-whitecaps-next-coach/
+
+**Submit a question for James Boyd’s Indianapolis Colts mailbag**\
+`Despite losing four of their past five games, the Colts are still in the playoff hunt. Can Anthony Richardson lead them there?`\
+https://nytimes.com/athletic/5947255/2024/11/25/indianapolis-colts-mailbag-anthony-richardson/
+
+**What to watch in college basketball this week: Kansas-Duke, Maui and Vegas tourneys**\
+`What to watch, and why to watch it, across college basketball this Thanksgiving week.`\
+https://nytimes.com/athletic/5946540/2024/11/25/what-to-watch-college-basketball-duke-kansas-maui-vegas/
+
 **Colts WR Josh Downs week to week with shoulder injury: Source**\
 `The second-year wideout leads Indianapolis in receptions, receiving yards per game and targets. `\
 https://nytimes.com/athletic/5947212/2024/11/25/colts-josh-downs-shoulder-injury-update/
 
 **Judge Allows San Jose State Volleyball Player to Compete**\
-`A federal judge declined to prevent the player, who is at the center of a controversy over transgender athletes, from participating in a women’s volleyball conference tournament this week.`\
+`A federal judge ruled that the player, who is at the center of a controversy over transgender athletes, can participate in a women’s volleyball conference tournament this week.`\
 https://nytimes.com/2024/11/25/us/san-jose-state-volleyball-transgender.html
 
 **Wilson in Newcastle squad for first time this season**\
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/5947118/2024/11/25/formula-1-expands-grid-general-m
 `The two sides made their final cases to a federal judge Monday in a trial over the tech giant’s dominance in technology selling ads online.`\
 https://nytimes.com/2024/11/25/technology/google-advertising-monopoly.html
 
-**Jack Smith Moves to Dismiss Charges Against Trump 2 Felony Cases**\
-`The special counsel asked a federal judge to dismiss the indictment that had charged Donald J. Trump with plotting to overturn his loss in the 2020 election and another accusing him of illegally retaining classified documents.`\
-https://nytimes.com/2024/11/25/us/politics/jack-smith-trump-election-charges.html
-
-**AP men's basketball Top 25: Top five unchanged as Feast Week heats up**\
-`The AP top five remains unchanged, but Thanksgiving week is littered with ranked matchups and potential blue-blood clashes.`\
-https://nytimes.com/athletic/5946597/2024/11/25/ap-mens-basketball-top-25-rankings-feast-week/
-
-**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
-`Notre Dame is in strong position to make the Playoff — and host a first-round game if it beats USC. What's on your mind about the Irish?`\
-https://nytimes.com/athletic/5947155/2024/11/25/notre-dame-football-mailbag-questions-15/
-
-**What Deontae Lawson's absence means for Alabama's defense**\
-`Lawson, a junior and projected NFL prospect, likely has played his final game for Alabama.`\
-https://nytimes.com/athletic/5947046/2024/11/25/deontae-lawson-injury-alabama-football/
+**Jack Smith Moves to Dismiss Charges Against Trump in Election and Documents Cases**\
+`The special counsel asked a federal judge in Washington and an appeals court in Atlanta to dismiss cases that had charged Donald J. Trump with plotting to overturn his loss in the 2020 election and with later obstructing efforts to retrieve classified documents he was hoarding.`\
+https://nytimes.com/2024/11/25/us/politics/jack-smith-trump-election-documents-charges.html
 
