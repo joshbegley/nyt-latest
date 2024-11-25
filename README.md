@@ -1,3 +1,7 @@
+**NBA Rewind: Who's up (Bucks), who's down (Pacers) and the great East-West divide**\
+`About a month into the season, the imbalance between conferences has never been wider. Plus, your latest NBA Cup-date.`\
+https://nytimes.com/athletic/5936987/2024/11/25/nba-rewind-pacers-bucks-east-west/
+
 **A disconnect between manager, squad and fans - how Cooper's time at Leicester came to an end**\
 `Leicester have not moved far from the position they were in last summer, when Cooper was appointed — they cannot make the same mistake again`\
 https://nytimes.com/athletic/5944299/2024/11/25/steve-cooper-leicester-sacking/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945741/2024/11/25/mens-basketball-top-25-tennessee
 **The Bessent Bounce — Markets Cheer Trump’s Treasury Pick**\
 `Investors seemed to signal their approval for Scott Bessent as a safe choice to implement the president-elect’s economic agenda.`\
 https://nytimes.com/2024/11/25/business/dealbook/markets-trump-treasury-bessent.html
-
-**San Francisco Giants free-agent profile: Ha-Seong Kim, SS**\
-`Kim is perhaps the most logical fit for the Giants on the free agent market. He does come with risk, however.`\
-https://nytimes.com/athletic/5941013/2024/11/25/sf-giants-ha-seong-kim-free-agency/
 
