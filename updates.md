@@ -1,3 +1,7 @@
+**The Vice-Presidential Curse**\
+`Incumbent vice presidents running for president face unique challenges — and have a poor track record in elections.`\
+https://nytimes.com/2024/11/25/us/politics/the-vice-presidential-curse.html
+
 **The Briefing: Newcastle 0 West Ham 2 - Burn a big miss and Wilson makes return in a limp home defeat**\
 `Newcastle miss a chance to go sixth in the table, and only two points off second-placed Man City, after a disappointing 2-0 loss to West Ham`\
 https://nytimes.com/athletic/5940191/2024/11/25/newcastle-west-ham-defeat-burn-wilson/

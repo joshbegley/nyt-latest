@@ -1,3 +1,7 @@
+**The Vice-Presidential Curse**\
+`Incumbent vice presidents running for president face unique challenges — and have a poor track record in elections.`\
+https://nytimes.com/2024/11/25/us/politics/the-vice-presidential-curse.html
+
 **The Briefing: Newcastle 0 West Ham 2 - Burn a big miss and Wilson makes return in a limp home defeat**\
 `Newcastle miss a chance to go sixth in the table, and only two points off second-placed Man City, after a disappointing 2-0 loss to West Ham`\
 https://nytimes.com/athletic/5940191/2024/11/25/newcastle-west-ham-defeat-burn-wilson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947705/2024/11/25/general-motors-joins-f1-2026/
 **Netflix to Screen ‘One Hundred Years of Solitude’ in Havana**\
 `The first two episodes will be shown at a film festival in Havana that was long championed by Gabriel García Márquez, the Colombian novelist who wrote the book.`\
 https://nytimes.com/2024/11/25/arts/netflix-one-hundred-years-of-solitude-havana.html
-
-**‘Holding Space’ for ‘Defying Gravity’? She Is, Too.**\
-`Tracy E. Gilchrist’s interview with Ariana Grande and Cynthia Erivo stood out among dozens of others on the “Wicked” press tour. She called it “high camp” but sincere.`\
-https://nytimes.com/2024/11/25/style/wicked-interview-holding-space.html
 
