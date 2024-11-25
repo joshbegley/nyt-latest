@@ -1,3 +1,7 @@
+**Macy’s Discovers Employee Hid Millions in Delivery Expenses**\
+`The department store chain said it had found the erroneous accounting entries while preparing its results for the third quarter.`\
+https://nytimes.com/2024/11/25/business/macys-earnings-delay-accounting-error.html
+
 **The Bounce: Are the Bucks finally back to being good?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5946273/2024/11/25/giannis-antetokounmpo-bucks-nikola-jokic-nuggets-the-bounce-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944299/2024/11/25/steve-cooper-leicester-sacking/
 **New York Giants fan survey: Should Brian Daboll, Joe Schoen return in 2025?**\
 `Here's your chance to let us know whether you believe the current regime can turn the Giants into contenders — or if changes must be made.`\
 https://nytimes.com/athletic/5933125/2024/11/25/new-york-giants-brian-daboll-joe-schoen-survey/
-
-**Newsom Challenges Trump on Electric Vehicle Tax Credits**\
-`Gov. Gavin Newsom said California would fill the void for residents if the Trump administration killed a $7,500 E.V. tax credit.`\
-https://nytimes.com/2024/11/25/climate/newsom-trump-electric-vehicle-tax-credits.html
 
