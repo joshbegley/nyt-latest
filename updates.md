@@ -1,3 +1,11 @@
+**Another Patriots defensive dud raises questions about Jerod Mayo, offseason needs**\
+`It's not just the Patriots offense that's struggling. It's alarming that the defense, the team's supposed strength, is playing this poorly.`\
+https://nytimes.com/athletic/5944874/2024/11/24/patriots-loss-jerod-mayo-dolphins/
+
+**NFL Week 12 takeaways: Is the Commanders offense collapsing? Are the 49ers out of time?**\
+`Plus, sizing up the red-hot Vikings, and sorting out the post-Daniel Jones Giants.`\
+https://nytimes.com/athletic/5944819/2024/11/24/nfl-week-12-scores-takeaways-commanders-cowboys-texans-titans/
+
 **Chiefs' latest too-close-for-comfort win doesn't sit well in the locker room**\
 `Half of the Chiefs’ 10 wins have been decided on the final snap. Patrick Mahomes and kicker Spencer Shrader saved the day in Carolina.`\
 https://nytimes.com/athletic/5944975/2024/11/24/chiefs-patrick-mahomes-panthers/
