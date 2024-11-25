@@ -1,3 +1,7 @@
+**Vinicius Jr suffers hamstring injury, expected to be out for three weeks**\
+`Real Madrid forward Vinicius Junior is expected to be sidelined for three weeks with a hamstring injury, ruling him out of Wednesday&#8217;s Champions League tie at Liverpool.`\
+https://nytimes.com/athletic/5946221/2024/11/25/vinicius-junior-real-madrid-injury-update/
+
 **A Climate Change**\
 `We explore Donald Trump’s climate agenda.`\
 https://nytimes.com/2024/11/25/briefing/donald-trump-climate-policies.html

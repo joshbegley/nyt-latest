@@ -1,3 +1,7 @@
+**Vinicius Jr suffers hamstring injury, expected to be out for three weeks**\
+`Real Madrid forward Vinicius Junior is expected to be sidelined for three weeks with a hamstring injury, ruling him out of Wednesday&#8217;s Champions League tie at Liverpool.`\
+https://nytimes.com/athletic/5946221/2024/11/25/vinicius-junior-real-madrid-injury-update/
+
 **A Climate Change**\
 `We explore Donald Trump’s climate agenda.`\
 https://nytimes.com/2024/11/25/briefing/donald-trump-climate-policies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946064/2024/11/25/will-levis-titans-win-texans/
 **Why the Chiefs might have reason to worry, and why the Bills' bye felt like a win**\
 `The Bills' offense has owned the Chiefs' defense for years, and the drama that once dominated Buffalo is nowhere to be found right now.`\
 https://nytimes.com/athletic/5946050/2024/11/25/chiefs-bills-afc-playoff-picture/
-
-**Inside the Harbaugh coaching universe: 'You just want to be attached to that'**\
-`The Harbaugh brothers face off Monday night for the first time since John's Ravens beat Jim's 49ers in Super Bowl XLVII in January 2013.`\
-https://nytimes.com/athletic/5944185/2024/11/25/john-jim-harbaugh-ravens-chargers/
 
