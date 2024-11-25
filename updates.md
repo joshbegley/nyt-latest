@@ -1,3 +1,19 @@
+**Traffic Accident Kills 3 Florida Deputies in a ‘Gut Punch’**\
+`Thee members of the motorcycle unit at the Palm Beach County Sheriff’s Office were struck by a driver on Thursday. Two died that day, and a third who had been in critical condition died on Monday.`\
+https://nytimes.com/2024/11/25/us/sheriff-deputies-killed-crash-florida.html
+
+**Trump backs a Florida official to succeed Matt Gaetz in Congress.**\
+`Jimmy Patronis, the chief financial officer for the state, earned the president-elect’s influential endorsement on Monday before a January G.O.P. primary.`\
+https://nytimes.com/live/2024/11/25/us/trump-news/trump-backs-a-florida-official-to-succeed-matt-gaetz-in-congress
+
+**Trump Evaded Jack Smith and the Rule of Law**\
+`He will spend his presidential term with no fear of a verdict on his federal indictments.`\
+https://nytimes.com/2024/11/25/opinion/trump-evaded-jack-smith-and-the-rule-of-law.html
+
+**Here’s Where Weather May Disrupt Your Thanksgiving Travel**\
+`Millions of people are taking to the road and skies this week. Some may encounter dreary weather.`\
+https://nytimes.com/2024/11/25/weather/thanksgiving-storm-travel.html
+
 **Trump Evaded Jack Smith and the Rule of Law**\
 `He will spend his presidential term with no fear of a verdict on his federal indictments.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/trump-evaded-jack-smith-and-the-rule-of-law
