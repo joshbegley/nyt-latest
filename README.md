@@ -1,3 +1,7 @@
+**Greenberg: In a season of heartbreakers, the Bears add another chapter to their sad story**\
+`It wasn't all bad. Caleb Williams had his moments. But there were also many times when you understood why the Bears have lost five in a row.`\
+https://nytimes.com/athletic/5944943/2024/11/24/bears-vikings-overtime-loss-caleb-williams/
+
 **'We played soft': Giants show more fire in locker room than during another humiliating loss**\
 `Cracks in Brian Daboll’s hold on his players began to show for the first time Sunday. That was inevitable, and it might keep getting worse.`\
 https://nytimes.com/athletic/5945021/2024/11/24/giants-loss-brian-daboll-buccaneers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944873/2024/11/24/usc-ucla-womens-basketball-takea
 **Maverick McNealy wins first career PGA Tour with walk-off birdie**\
 `McNealy made his birdie on the final hole to earn his first career PGA Tour win and put himself in the early 2025 signature events`\
 https://nytimes.com/athletic/5944630/2024/11/24/maverick-mcnealy-pga-tour-rsm-classic/
-
-**Perches in a Coop**\
-`Dena R. Witkes makes her Crossword debut.`\
-https://nytimes.com/2024/11/24/crosswords/daily-puzzle-2024-11-25.html
 
