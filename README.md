@@ -1,3 +1,11 @@
+**Sam Darnold's toughness surfaces when needed in Vikings' overtime victory over Bears**\
+`Darnold finished 22-of-34 passing for 330 yards and two touchdowns. And for the second straight week, he lifted a team that needed him.`\
+https://nytimes.com/athletic/5945140/2024/11/24/vikings-win-sam-darnold-bears/
+
+**Colts ask too much of QB Anthony Richardson in sloppy loss to Lions**\
+`The Colts have to get Jonathan Taylor going. Putting so much of the offensive burden on Richardson isn't a recipe for consistent success. `\
+https://nytimes.com/athletic/5945234/2024/11/24/colts-loss-anthony-richardson-lions/
+
 **Raiders QB Gardner Minshew out for season with broken collarbone: Source**\
 `Antonio Pierce hinted that Aidan O'Connell could be activated from injured reserve to play against the Chiefs on Black Friday.`\
 https://nytimes.com/athletic/5945175/2024/11/24/raiders-gardner-minshew-collarbone-injury-out-for-season/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
 **Bo Nix stays hot as Broncos sweep Raiders with 29-19 win: Takeaways**\
 `Sunday marked Nix's third consecutive game with multiple touchdowns and no interceptions.`\
 https://nytimes.com/athletic/5944059/2024/11/24/broncos-raiders-score-result-takeaways/
-
-**Chiefs' latest too-close-for-comfort win doesn't sit well in the locker room**\
-`Half of the Chiefs' 10 wins have been decided on the final snap. Patrick Mahomes and kicker Spencer Shrader saved the day in Carolina.`\
-https://nytimes.com/athletic/5944975/2024/11/24/chiefs-patrick-mahomes-panthers/
-
-**Another Patriots defensive dud raises questions about Jerod Mayo, offseason needs**\
-`It's not just the Patriots offense that's struggling. It's alarming that the defense, the team's supposed strength, is playing this poorly.`\
-https://nytimes.com/athletic/5944874/2024/11/24/patriots-loss-jerod-mayo-dolphins/
 
