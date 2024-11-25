@@ -1,3 +1,7 @@
+**Cowboys Today: The dream of getting the No. 1 overall pick died in Landover**\
+`The possibility of Travis Hunter in Dallas is likely gone as the Cowboys rediscover the art of creating turnovers Sunday vs. the Commanders.`\
+https://nytimes.com/athletic/5946663/2024/11/25/cowboys-today-nfl-draft-pick-win-commanders/
+
 **Ex-Jets general manager Mike Tannenbaum to lead search for team's next GM, head coach**\
 `The Jets have retained Tannenbaum's company, The 33rd Team, with former Vikings GM Rick Spielman set to work on the search as well.`\
 https://nytimes.com/athletic/5946752/2024/11/25/mike-tannenbaum-jets-gm-search/
@@ -26,11 +30,7 @@ https://nytimes.com/athletic/5946784/2024/11/25/trending-%f0%9f%93%89-%f0%9f%93%
 `Responses to a news article about overweight Americans. Also: Cabinet picks accused of sexual abuse; transgender rights; boys’ feelings about the election.`\
 https://nytimes.com/2024/11/25/opinion/obesity-diet-physical-education.html
 
-**MLB trade scenarios: Bowden on Garrett Crochet, Jordan Montgomery, Nolan Arenado and more**\
+**MLB trade scenarios: Bowden on Garrett Crochet, Cody Bellinger, Vladimir Guerrero Jr., more**\
 `Bowden tackles more than two dozen questions submitted by subscribers and shares the latest he's hearing about the trade market. `\
 https://nytimes.com/athletic/5946068/2024/11/25/mlb-trade-scenarios-rumors-crochet-arenado/
-
-**Kitchens Are a Force for Social Change**\
-`Places that make and prepare food have a quietly revolutionary impact on the communities around them. In a new series from Headway, we train a lens on kitchens that are sparking change.`\
-https://nytimes.com/2024/11/25/headway/kitchens-are-a-force-for-social-change.html
 
