@@ -1,3 +1,23 @@
+**Steel Maker ThyssenKrupp to Slash 11,000 Jobs in Germany**\
+`The venerable steel producer, which has been struggling against high energy prices at home and growing competition from abroad, is the latest company in Europe to cut its work force.`\
+https://nytimes.com/2024/11/25/business/thyssenkrupp-job-cuts-germany.html
+
+**If My Dying Daughter Could Face Her Mortality, Why Couldn’t the Rest of Us?**\
+`A bereaved mother’s case against our grief-phobic culture.`\
+https://nytimes.com/2024/11/25/opinion/children-cancer-grief.html
+
+**U.K. Man Fighting for Ukraine Is Said to Be Captured in Russia**\
+`Russian state media reported that a British volunteer for the Ukrainian Army was captured amid fighting in the Kursk region.`\
+https://nytimes.com/2024/11/25/world/europe/uk-man-ukraine-army-captured-russia.html
+
+**Israeli Strikes Destroy Buildings Near Beirut**\
+`Israel hit buildings in the Dahiya area south of Beirut, Lebanon, as it continued a heavy exchange of fire with Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000009843736/lebanon-israel-strikes-beirut-dahiya.html
+
+**Penguins Today: Neither Sidney Crosby nor Light Up Night can cure these blues**\
+`The Penguins' points percentage is third-worst in the NHL. Their goal differential is the worst. It's bleak.`\
+https://nytimes.com/athletic/5946511/2024/11/25/penguins-today-sidney-crosby-600th-goal/
+
 **ECU planning to promote interim coach Blake Harrell to full-time job**\
 `Harrell, formerly the defensive coordinator, is 4-0 since taking over as the interim coach.`\
 https://nytimes.com/athletic/5946573/2024/11/25/blake-harrell-ecu-football-coach/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/25/business/macys-earnings-delay-accounting-error.ht
 **The Bounce: Are the Bucks finally back to being good?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5946273/2024/11/25/giannis-antetokounmpo-bucks-nikola-jokic-nuggets-the-bounce-nba/
-
-**Regulator Sues Anti-Police Activist Who Spent Charity Funds on Himself**\
-`Brandon Anderson, who used his nonprofit’s accounts to rent mansions and buy luxury clothes, was featured in a New York Times story in August.`\
-https://nytimes.com/2024/11/25/us/brandon-anderson-raheem-ai.html
-
-**Former Marlins GM Kim Ng spearheads new pro softball league: 'MLB for softball'**\
-`The Athletes Unlimited Softball League (AUSL) will start play in June 2025 with four teams and a 30-game schedule.`\
-https://nytimes.com/athletic/5944861/2024/11/25/softball-league-kim-ng/
-
-**Can You Find The 13 Hidden Book Titles in This Text Puzzle?**\
-`This very short story hides the titles of 13 popular books published in the first decade of the 21st century. Dive in and see if you can find them all — and get an instant reading list at the end.`\
-https://nytimes.com/interactive/2024/11/25/books/review/novels-title-search.html
-
-**Fantasy Football Week 12 recap: Can McCaffrey turn it around? It doesn't look good**\
-`CMC's disappointing season continued Sunday, while Saquon Barkley has us asking whether he can break an all-time RB points record.`\
-https://nytimes.com/athletic/5946399/2024/11/25/fantasy-football-week-12-recap/
-
-**Angels, Yusei Kikuchi agree to 3-year, $63 million deal**\
-`The Angels bolstered their standing as the most aggressive team of the offseason thus far with their biggest splash yet.`\
-https://nytimes.com/athletic/5946508/2024/11/25/yusei-kikuchi-angels-contract-mlb/
 
