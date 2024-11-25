@@ -1,3 +1,11 @@
+**The Briefing: Are Man City's players the wrong ages? How long will Amorim need? Was Cooper always doomed?**\
+`Analysis of the key talking points from the Premier League weekend and a look at the week ahead`\
+https://nytimes.com/athletic/5944500/2024/11/25/man-city-wrong-ages/
+
+**Fantasy football Week 12 takeaways: Kyler Murray is bubble gum; Tyreek Hill is a problem**\
+`Among his Week 12 takes, Michael Salfino says that Tyreek Hill has become a problem for his managers with his sub-standard production.`\
+https://nytimes.com/athletic/5945164/2024/11/25/fantasy-football-week-12-takeaways-kyler-tyreek/
+
 **Monday Briefing**\
 `Reaching a climate deal.`\
 https://nytimes.com/2024/11/25/briefing/climate-israel-hezbollah.html
