@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5946752/2024/11/25/mike-tannenbaum-jets-gm-search/
 `A surge in gang violence over the past two weeks has led international aid organizations to rethink their staff levels in Haiti.`\
 https://nytimes.com/2024/11/25/world/americas/haiti-gang-violence-un-evacuations.html
 
-**An A.I. Granny Befuddles Phone Scammers**\
+**An A.I. Granny Is Phone Scammers’ Worst Nightmare**\
 `Daisy Harris, an A.I.-generated English granny, has been stymying scammers with meandering, time-wasting conversations. But can she actually make a dent in the flood of fraud?`\
 https://nytimes.com/2024/11/25/technology/ai-granny-phone-scam.html
 
