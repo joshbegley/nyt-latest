@@ -1,3 +1,11 @@
+**The Bounce: Are the Bucks finally back to being good?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5946273/2024/11/25/giannis-antetokounmpo-bucks-nikola-jokic-nuggets-the-bounce-nba/
+
+**Regulator Sues Anti-Police Activist Who Spent Charity Funds on Himself**\
+`Brandon Anderson, who used his nonprofit’s accounts to rent mansions and buy luxury clothes, was featured in a New York Times story in August.`\
+https://nytimes.com/2024/11/25/us/brandon-anderson-raheem-ai.html
+
 **Former Marlins GM Kim Ng spearheads new pro softball league: 'MLB for softball'**\
 `The Athletes Unlimited Softball League (AUSL) will start play in June 2025 with four teams and a 30-game schedule.`\
 https://nytimes.com/athletic/5944861/2024/11/25/softball-league-kim-ng/
