@@ -1,3 +1,7 @@
+**Former Kentucky Sheriff Arraigned on Murder Charge in Judge Shooting**\
+`The former sheriff, Shawn Stines, was indicted last week after a local judge was shot to death in his chambers in September.`\
+https://nytimes.com/2024/11/25/us/kentucky-sheriff-arraigned-judge-shooting.html
+
 **GM joining F1 is a big win for the storied U.S. motorsports brand**\
 `GM has seen decades of success in racing — but largely on a domestic level. Racing in F1 could change that dramatically.`\
 https://nytimes.com/athletic/5947705/2024/11/25/general-motors-joins-f1-2026/
