@@ -1,3 +1,7 @@
+**Ohio State film study: What worked for the Buckeyes against Indiana**\
+`Let’s talk about how Ohio State's defense dominated Indiana, along with the offensive line and Will Howard’s performance.`\
+https://nytimes.com/athletic/5946181/2024/11/25/ohio-state-football-indiana-will-howard-defense/
+
 **Tennis Briefing: Jannik Sinner's sublime season awaits CAS verdict, Elena Vesnina retires**\
 `The trajectory of the world No. 1's career is out of his hands as the tennis season comes to an end.`\
 https://nytimes.com/athletic/5944850/2024/11/25/tennis-news-sinner-2024-season-wada-appeal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944197/2024/11/25/oilers-prospects-savoie-ahl/
 **One year after Hynes' arrival in Minnesota, Wild players are buying what he's selling**\
 `After taking over from Dean Evason last November, John Hynes has the love of his players and an excellent start to the season.`\
 https://nytimes.com/athletic/5944194/2024/11/25/wild-john-hynes-anniversary-coaching/
-
-**Vinicius Jr suffers hamstring injury, expected to be out for three weeks**\
-`Real Madrid forward Vinicius Junior is expected to be sidelined for three weeks with a hamstring injury, ruling him out of Wednesday&#8217;s Champions League tie at Liverpool.`\
-https://nytimes.com/athletic/5946221/2024/11/25/vinicius-junior-real-madrid-injury-update/
 
