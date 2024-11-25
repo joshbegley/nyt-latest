@@ -34,7 +34,3 @@ https://nytimes.com/athletic/5946068/2024/11/25/mlb-trade-scenarios-rumors-croch
 `Places that make and prepare food have a quietly revolutionary impact on the communities around them. In a new series from Headway, we train a lens on kitchens that are sparking change.`\
 https://nytimes.com/2024/11/25/headway/kitchens-are-a-force-for-social-change.html
 
-**What’s Going on With All of These Food Recalls?**\
-`It might seem like there’s news about E. coli or listeria every week. Here’s what the data on food safety actually show.`\
-https://nytimes.com/2024/11/25/well/food-safety-outbreaks.html
-
