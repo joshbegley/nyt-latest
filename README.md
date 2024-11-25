@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5947714/2024/11/25/uconn-memphis-maui-invitational-
 https://nytimes.com/2024/11/25/briefing/special-counsel-drop-trump-cases-israel-lebanon-truce.html
 
 **Here’s Where Weather May Disrupt Your Thanksgiving Travel**\
-`A few storms may disrupt some holiday travel, as millions of people take to the road and skies this week.`\
+`Millions of people are taking to the road and skies this week. Some may encounter dreary weather.`\
 https://nytimes.com/2024/11/25/weather/thanksgiving-storm-travel.html
 
 **The Vice-Presidential Curse**\
