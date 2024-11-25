@@ -1,3 +1,7 @@
+**Trump Evaded Jack Smith and the Rule of Law**\
+`He will spend his presidential term with no fear of a verdict on his federal indictments.`\
+https://nytimes.com/live/2024/11/19/opinion/thepoint/trump-evaded-jack-smith-and-the-rule-of-law
+
 **When Your Workouts Turn Into a Work of Art**\
 `Using the maps from his daily runs, Duncan McCabe took the Strava art trend to new heights by creating an animated stickman that has become an online sensation.`\
 https://nytimes.com/2024/11/25/style/strava-art-animation-duncan-mccabe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947800/2024/11/25/mlb-schedule-change-rays-twins-a
 **NFL removes Patriots' Jabrill Peppers from commissioner's exempt list**\
 `Peppers had been on the list since Oct. 9 following his arrest on assault charges.`\
 https://nytimes.com/athletic/5947811/2024/11/25/jabrill-peppers-patriots-exempt-list/
-
-**Submit your NBA questions for ‘The Athletic NBA Daily’ podcast mailbag**\
-`Let us know what you think about the first month of the 2024-25 NBA season.`\
-https://nytimes.com/athletic/5939460/2024/11/25/nba-podcast-mailbag-athletic-daily/
 
