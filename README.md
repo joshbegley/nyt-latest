@@ -1,3 +1,11 @@
+**Word of the Day: saturnine**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/25/learning/word-of-the-day-saturnine.html
+
+**As 76ers struggle, Clippers exceed expectations while understanding who is playing**\
+`Philadelphia is suffering losses due to lineup inconsistency while LA is benefitting from knowing who will play.`\
+https://nytimes.com/athletic/5945663/2024/11/25/clippers-succeed-76ers-struggle/
+
 **Eagles' Brandon Graham says he's done for season due to torn triceps**\
 `Graham is a beloved veteran who is in his 15th season with the franchise.`\
 https://nytimes.com/athletic/5945907/2024/11/25/eagles-brandon-graham-injured-tricep/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5942193/2024/11/25/aston-villa-own-corners-unai-eme
 **Goodison Park is teetering and tetchy - pressure is building on Dyche**\
 `The voices of disquiet are getting louder at Everton — and the December fixture list looks treacherous. All is not well at Goodison Park`\
 https://nytimes.com/athletic/5942537/2024/11/25/everton-sean-dyche-goodison-park-pressure/
-
-**Brighton's attacking trio Joao Pedro, Rutter and Welbeck put the Premier League on notice**\
-`Fabian Hurzeler picked the three forwards from the start for the first time on Saturday - they combined to devastating effect `\
-https://nytimes.com/athletic/5875006/2024/11/25/brighton-joao-pedro-rutter-welbeck-hurzeler/
-
-**Should Eddie Howe play Sandro Tonali and Bruno Guimaraes together?**\
-`Playing Newcastle's two star midfielders together hasn't proven the best choice so far`\
-https://nytimes.com/athletic/5937034/2024/11/25/eddie-howe-tonali-guimaraes/
 
