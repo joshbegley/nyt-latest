@@ -1,3 +1,7 @@
+**Chris Kreider's no-assist streak, Brett Berard's call-up, more: 11 Rangers observations**\
+`Kreider is in bizarre statistical company with his early-season points output.`\
+https://nytimes.com/athletic/5944923/2024/11/25/rangers-kreider-assists-quick-berard/
+
 **Field being reshaped in day shows beauty of 12 teams: College Football Playoff Bubble Watch**\
 `Will the ACC get two teams in after all? So, are the Hoosiers safe? What's at stake in Farmageddon? Can Texas A&M rebound? `\
 https://nytimes.com/athletic/5944442/2024/11/25/college-football-playoff-bubble-watch-reshaped-day/
