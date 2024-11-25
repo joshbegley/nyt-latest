@@ -1,3 +1,7 @@
+**Leganes 0 Real Madrid 3: Mbappe and Bellingham continue to improve as Liverpool trip looms**\
+`Barcelona dropped points again and things are looking up for Carlo Ancelotti's side`\
+https://nytimes.com/athletic/5945223/2024/11/25/leganes-real-madrid-result-analysis/
+
 **Ultranationalist Wins First Round of Romania’s Presidential Election**\
 `Calin Georgescu, who had been widely dismissed as a fringe extremist, won the most votes on Sunday. He will probably face a liberal opponent in the second round on Dec. 8.`\
 https://nytimes.com/2024/11/25/world/europe/romania-election-calin-georgescu.html

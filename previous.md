@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5945979/2024/11/25/mohamed-salah-liverpool-contract
 `Barkley's 255 rushing yards, along with his 302 scrimmage yards and two TDs against the Rams support his case for a non-QB to be an MVP.`\
 https://nytimes.com/athletic/5945242/2024/11/25/eagles-saquon-barkley-rams/
 
-**The Briefing: Leganes 0 Real Madrid 3: Mbappe and Bellingham continue to improve as Liverpool trip looms**\
-`We break down the key storylines from Sunday evening's game in Leganes`\
+**Leganes 0 Real Madrid 3: Mbappe and Bellingham continue to improve as Liverpool trip looms**\
+`Barcelona dropped points again and things are looking up for Carlo Ancelotti's side`\
 https://nytimes.com/athletic/5945223/2024/11/25/leganes-real-madrid-result-analysis/
 
 **As New York’s Migrant Crisis Eases, Trump’s Deportation Threat Looms**\
