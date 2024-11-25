@@ -1,3 +1,7 @@
+**GM joining F1 is a big win for the storied U.S. motorsports brand**\
+`GM has seen decades of success in racing — but largely on a domestic level. Racing in F1 could change that dramatically.`\
+https://nytimes.com/athletic/5947705/2024/11/25/general-motors-joins-f1-2026/
+
 **Netflix to Screen ‘One Hundred Years of Solitude’ in Havana**\
 `The first two episodes will be shown at a film festival in Havana that was long championed by Gabriel García Márquez, the Colombian novelist who wrote the book.`\
 https://nytimes.com/2024/11/25/arts/netflix-one-hundred-years-of-solitude-havana.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947641/2024/11/25/mikel-arteta-arsenal-sporting/
 **Yusei Kikuchi helps the Angels, but he can't be their big offseason move: Law**\
 `The Angels need a lot of help to go from also-ran to contender. Kikuchi moves them in the right direction but they still need a lot more.`\
 https://nytimes.com/athletic/5947563/2024/11/25/yusei-kikuchi-angels-signing-analysis/
-
-**Raiders QB O'Connell returning to practice, could play vs. Chiefs**\
-`After Gardner Minshew's injury, coach Antonio Pierce wouldn’t say whether O'Connell will play against the Chiefs on Black Friday.`\
-https://nytimes.com/athletic/5947519/2024/11/25/raiders-aidan-oconnell-return-injury-chiefs-black-friday/
 
