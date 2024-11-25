@@ -1,3 +1,27 @@
+**Ex-Jets general manager Mike Tannenbaum to lead search for team's next GM, head coach**\
+`The Jets have retained Tannenbaum's company, The 33rd Team, with former Vikings GM Rick Spielman set to work on the search as well.`\
+https://nytimes.com/athletic/5946752/2024/11/25/mike-tannenbaum-jets-gm-search/
+
+**In Haiti, a Grim Barometer: Even United Nations Workers Are Fleeing**\
+`A surge in gang violence over the past two weeks has led international aid organizations to rethink their staff levels in Haiti.`\
+https://nytimes.com/2024/11/25/world/americas/haiti-gang-violence-un-evacuations.html
+
+**An A.I. Granny Befuddles Phone Scammers**\
+`Daisy Harris, an A.I.-generated English granny, has been stymying scammers with meandering, time-wasting conversations. But can she actually make a dent in the flood of fraud?`\
+https://nytimes.com/2024/11/25/technology/ai-granny-phone-scam.html
+
+**The ‘Rocket Docket’ Judge Who Will Decide the Fate of Google’s Ad Technology**\
+`The ruling by a federal judge, Leonie Brinkema, in an antitrust case over Google’s advertising technology could add to the internet company’s woes.`\
+https://nytimes.com/2024/11/25/technology/google-antitrust-leonie-brinkema.html
+
+**College football national title odds: Ohio State has top spot among a clear top four teams**\
+`Week 13's chaos thinned the field and a clear top four teams have emerged in the odds. Ohio State is the favorite to win the national title.`\
+https://nytimes.com/athletic/5946761/2024/11/25/college-football-national-title-odds-ohio-state-georgia-oregon-texas/
+
+**Scoop City: Risers and fallers after Week 12**\
+`A quick look at the risers (Saquon Barkley's MVP odds), fallers (Texans, Commanders) and where Daniel Jones could land.`\
+https://nytimes.com/athletic/5946784/2024/11/25/trending-%f0%9f%93%89-%f0%9f%93%88-after-nfls-week-12-as-the-seahawks-eagles-shine/
+
 **Overcoming Obesity, With Diet and Physical Education**\
 `Responses to a news article about overweight Americans. Also: Cabinet picks accused of sexual abuse; transgender rights; boys’ feelings about the election.`\
 https://nytimes.com/2024/11/25/opinion/obesity-diet-physical-education.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/11/25/headway/kitchens-are-a-force-for-social-change.ht
 **What’s Going on With All of These Food Recalls?**\
 `It might seem like there’s news about E. coli or listeria every week. Here’s what the data on food safety actually show.`\
 https://nytimes.com/2024/11/25/well/food-safety-outbreaks.html
-
-**Democrats Rush to Regroup in the Southern Battlegrounds**\
-`With critical races in Georgia and North Carolina just two years away, the party is soul-searching on a time crunch.`\
-https://nytimes.com/2024/11/25/us/politics/democrats-georgia-north-carolina-trump-harris-campaign.html
-
-**‘DNA Typewriters’ Can Record a Cell’s History**\
-`Labs around the world are trying to turn cells into autobiographers, tracking their own development from embryos to adults.`\
-https://nytimes.com/2024/11/25/science/dna-typewriter-cell-development.html
-
-**Cheese Dreams Live Up to Their Name**\
-`These two-bite, snacky sandwiches are made with loads of Cheddar cheese spiked with Worcestershire sauce and garlic powder for oomph.`\
-https://nytimes.com/2024/11/25/dining/cheese-dreams-recipe-thanksgiving.html
-
-**Trump’s Middle East Envoy Has Prior Ties to Oil-Rich Nations There**\
-`Steve Witkoff’s involvement with two sovereign wealth funds as he bought and then sold Manhattan’s Park Lane Hotel demonstrates the conflicts his new role will present.`\
-https://nytimes.com/2024/11/25/us/politics/witkoff-trump-middle-east-envoy.html
-
-**Can Wall Street Billionaires Deliver on Trump’s Blue-Collar Promise?**\
-`The president-elect has named wealthy financiers for key economic positions, raising questions about how much they will follow through on promises to help the working class.`\
-https://nytimes.com/2024/11/25/us/politics/trump-billionaires-economic-nominees.html
-
-**Canucks notebook: Why Vancouver's new first line is dominating and more**\
-`Jake DeBrusk, Elias Pettersson and Kiefer Sherwood are playing dominant hockey as a trio for the Canucks.`\
-https://nytimes.com/athletic/5945903/2024/11/25/vancouver-canucks-pettersson-sherwood-debrusk/
 
