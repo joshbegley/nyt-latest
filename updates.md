@@ -1,3 +1,11 @@
+**Netflix to Screen ‘One Hundred Years of Solitude’ in Havana**\
+`The first two episodes will be shown at a film festival in Havana that was long championed by Gabriel García Márquez, the Colombian novelist who wrote the book.`\
+https://nytimes.com/2024/11/25/arts/netflix-one-hundred-years-of-solitude-havana.html
+
+**‘Holding Space’ for ‘Defying Gravity’? She Is, Too.**\
+`Tracy E. Gilchrist’s interview with Ariana Grande and Cynthia Erivo stood out among dozens of others on the “Wicked” press tour. She called it “high camp” but sincere.`\
+https://nytimes.com/2024/11/25/style/wicked-interview-holding-space.html
+
 **Judge denies request to block SJSU volleyball player from tournament**\
 `The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
 https://nytimes.com/athletic/5947424/2024/11/25/san-jose-state-volleyball-lawsuit-transgender/
