@@ -1,3 +1,11 @@
+**The Briefing: Newcastle 0 West Ham 2 - Burn a big miss and Wilson makes return in a limp home defeat**\
+`Newcastle miss a chance to go sixth in the table, and only two points off second-placed Man City, after a disappointing 2-0 loss to West Ham`\
+https://nytimes.com/athletic/5940191/2024/11/25/newcastle-west-ham-defeat-burn-wilson/
+
+**MLB swaps 2025 Rays dates at Steinbrenner Field with Twins, Angels**\
+`Major League Baseball on Monday announced an adjustment to the Tampa Bay Rays' 2025 schedule to mitigate the possible effects of weather.`\
+https://nytimes.com/athletic/5947800/2024/11/25/mlb-schedule-change-rays-twins-angels/
+
 **NFL removes Patriots' Jabrill Peppers from commissioner's exempt list**\
 `Peppers had been on the list since Oct. 9 following his arrest on assault charges.`\
 https://nytimes.com/athletic/5947811/2024/11/25/jabrill-peppers-patriots-exempt-list/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/25/arts/netflix-one-hundred-years-of-solitude-havana
 **‘Holding Space’ for ‘Defying Gravity’? She Is, Too.**\
 `Tracy E. Gilchrist’s interview with Ariana Grande and Cynthia Erivo stood out among dozens of others on the “Wicked” press tour. She called it “high camp” but sincere.`\
 https://nytimes.com/2024/11/25/style/wicked-interview-holding-space.html
-
-**Judge denies request to block SJSU volleyball player from tournament**\
-`The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
-https://nytimes.com/athletic/5947424/2024/11/25/san-jose-state-volleyball-lawsuit-transgender/
-
-**Tuesday Briefing: Trump’s Criminal Cases Likely to Be Dismissed**\
-`Plus, a possible cease-fire deal in Lebanon.`\
-https://nytimes.com/2024/11/25/briefing/trump-jack-smith-lebanon-israel-pakistan-imran-khan.html
 
