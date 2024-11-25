@@ -1,3 +1,7 @@
+**Barbara Taylor Bradford, Best-Selling Romance Novelist, Dies at 91**\
+`Her own rags-to-riches story mirrored those of many of her heroines, and her dozens of books helped her amass a fortune of $300 million.`\
+https://nytimes.com/2024/11/25/obituaries/barbara-taylor-bradford-dead.html
+
 **Men’s college basketball Top 25: Feast Week is here. Who's for real?**\
 `Three weeks in, the competition you’ve beaten has to start mattering, which is why Tennessee has jumped Iowa State and UConn.`\
 https://nytimes.com/athletic/5945741/2024/11/25/mens-basketball-top-25-tennessee-feast-week/
