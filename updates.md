@@ -1,3 +1,7 @@
+**Eagles' Brandon Graham says he's done for season due to torn triceps**\
+`Graham is a beloved veteran who is in his 15th season with the franchise.`\
+https://nytimes.com/athletic/5945907/2024/11/25/eagles-brandon-graham-injured-tricep/
+
 **DHL Cargo Plane Crashes Near Airport in Lithuania, Killing 1**\
 `The crash near Vilnius Airport sparked a fire in a residential area, an airport official said. Four people were on board.`\
 https://nytimes.com/2024/11/25/world/europe/dhl-lithuania-plane-crash.html

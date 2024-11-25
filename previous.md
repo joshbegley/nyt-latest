@@ -1,3 +1,7 @@
+**Eagles' Brandon Graham says he's done for season due to torn triceps**\
+`Graham is a beloved veteran who is in his 15th season with the franchise.`\
+https://nytimes.com/athletic/5945907/2024/11/25/eagles-brandon-graham-injured-tricep/
+
 **DHL Cargo Plane Crashes Near Airport in Lithuania, Killing 1**\
 `The crash near Vilnius Airport sparked a fire in a residential area, an airport official said. Four people were on board.`\
 https://nytimes.com/2024/11/25/world/europe/dhl-lithuania-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5875006/2024/11/25/brighton-joao-pedro-rutter-welbe
 **Should Eddie Howe play Sandro Tonali and Bruno Guimaraes together?**\
 `Playing Newcastle's two star midfielders together hasn't proven the best choice so far`\
 https://nytimes.com/athletic/5937034/2024/11/25/eddie-howe-tonali-guimaraes/
-
-**Oliver Glasner wanted Crystal Palace back on the front foot - he got his wish**\
-`From passive and ponderous, Palace were positive against Villa - none more so than Ismaila Sarr. Can it be a turning point for their season?`\
-https://nytimes.com/athletic/5941962/2024/11/25/crystal-palace-oliver-glasner-front-foot/
 
