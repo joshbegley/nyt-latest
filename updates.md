@@ -1,3 +1,11 @@
+**49ers fall apart in blowout loss to Packers: ‘The worst I’ve been a part of'**\
+`A prominent part of Sunday's loss: The 49ers continue to get fizzling performances from players that had been explosive in prior seasons.`\
+https://nytimes.com/athletic/5945562/2024/11/24/49ers-loss-blowout-packers/
+
+**Bo Nix, Courtland Sutton and a budding bromance steering Broncos toward playoffs**\
+`The rookie QB and his top receiver connected for seven receptions, 81 yards and two TDs in the second half of the Broncos' 29-19 win Sunday.`\
+https://nytimes.com/athletic/5945552/2024/11/24/broncos-win-bo-nix-courtland-sutton-raiders/
+
 **Maple Leafs report cards: Marner's commanding performance drives win**\
 `Mitch Marner made it happen for the Leafs' first game against the Utah Hockey Club.`\
 https://nytimes.com/athletic/5944951/2024/11/24/maple-leafs-report-cards-marner-utah/
