@@ -1,3 +1,15 @@
+**Book Club: Read ‘Small Things Like These,’ by Claire Keegan, with the Book Review**\
+`In December, the Book Review Book Club will read and discuss “Small Things Like These,” a meditative Christmastime novella about a man confronting a local horror.`\
+https://nytimes.com/2024/11/25/books/review/small-things-like-these-claire-keegan-book-club.html
+
+**Jim Montgomery talks: Vision for Blues, 'whirlwind' courtship and his first task**\
+`Montgomery's vision for the Blues: "We're going to be a blue-collar team, that we're going to work, and we're going to have energy."`\
+https://nytimes.com/athletic/5946619/2024/11/25/jim-montgomery-blues-interview/
+
+**USMNT Player Tracker: Pepi the hat-trick hero, Adams' impact and Reyna returns**\
+`Our weekly round up of the European leagues' U.S. contingent includes Tyler Adams' latest cameo and Taylor Booth impressing in another cameo`\
+https://nytimes.com/athletic/5946557/2024/11/25/usmnt-pepi-adams-aaronson-reyna-tracker/
+
 **An A.I. Granny Is Phone Scammers’ Worst Nightmare**\
 `Daisy Harris, an A.I.-generated English granny, has been stymying scammers with meandering, time-wasting conversations. But can she actually make a dent in the flood of fraud?`\
 https://nytimes.com/2024/11/25/technology/ai-granny-phone-scam.html
