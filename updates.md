@@ -1,3 +1,7 @@
+**The Pulse: The NFL teams hiding behind their records**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5945365/2024/11/25/nfl-week-12-takeaways-the-pulse/
+
 **Keane involved in fan altercation after Man Utd draw at Ipswich**\
 `Sky Sports pundit Roy Keane was involved in an altercation with a supporter in the home section at Portman Road following Manchester United&#8217;s draw at Ipswich Town on Sunday.`\
 https://nytimes.com/athletic/5946110/2024/11/25/roy-keane-fan-ipswich-sky-sports/
