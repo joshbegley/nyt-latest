@@ -1,3 +1,7 @@
+**Ultranationalist Wins First Round of Romania’s Presidential Election**\
+`Calin Georgescu, who had been widely dismissed as a fringe extremist, won the most votes on Sunday. He will probably face a liberal opponent in the second round on Dec. 8.`\
+https://nytimes.com/2024/11/25/world/europe/romania-election-calin-georgescu.html
+
 **‘I'm more out than in’: What Salah's latest comments mean for his Liverpool future**\
 `It was a bold move from the Egyptian - whether it has the impact he desires in the negotiating process, only time will tell`\
 https://nytimes.com/athletic/5945083/2024/11/25/mohamed-salah-liverpool-contract-decision/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009843539/dhl-lithuania-plane-crash
 **Word of the Day: saturnine**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/25/learning/word-of-the-day-saturnine.html
-
-**As 76ers struggle, Clippers exceed expectations while understanding who is playing**\
-`Philadelphia is suffering losses due to lineup inconsistency, and LA is benefiting from knowing who will play.`\
-https://nytimes.com/athletic/5945663/2024/11/25/clippers-succeed-76ers-struggle/
 
