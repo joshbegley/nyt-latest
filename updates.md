@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Change in Boston, déjà vu in Ottawa and expected storylines**\
+`We all may be terrible at predicting the NHL, but sometimes the league offers refreshingly foreseeable storylines.`\
+https://nytimes.com/athletic/5944685/2024/11/25/weekend-nhl-rankings-bruins-senators-storylines/
+
 **Twins roster projection 1.0: Where things stand, what they need as offseason gets underway**\
 `What would the Twins' Opening Day roster look like if the season started now and where could they look to shake things up?`\
 https://nytimes.com/athletic/5944676/2024/11/25/twins-roster-projection-offseason-needs/
