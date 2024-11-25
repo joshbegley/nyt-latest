@@ -1,3 +1,7 @@
+**Yamal out for Barcelona vs Brest in Champions League with ankle injury**\
+`Lamine Yamal will not feature for Barcelona in their Champions League meeting with Brest as he continues his recovery from an ankle injury.`\
+https://nytimes.com/athletic/5946121/2024/11/25/lamine-yamal-injury-barcelona-team-news/
+
 **Israel and Hezbollah Mount New Attacks Amid Cease-Fire Talks**\
 `Rockets flew on both sides of the Israel-Lebanon border even as diplomats tried to finalize a truce.`\
 https://nytimes.com/2024/11/25/world/americas/israel-lebanon-hezbollah-strikes-ceasefire.html

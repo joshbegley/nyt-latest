@@ -1,3 +1,7 @@
+**Yamal out for Barcelona vs Brest in Champions League with ankle injury**\
+`Lamine Yamal will not feature for Barcelona in their Champions League meeting with Brest as he continues his recovery from an ankle injury.`\
+https://nytimes.com/athletic/5946121/2024/11/25/lamine-yamal-injury-barcelona-team-news/
+
 **Israel and Hezbollah Mount New Attacks Amid Cease-Fire Talks**\
 `Rockets flew on both sides of the Israel-Lebanon border even as diplomats tried to finalize a truce.`\
 https://nytimes.com/2024/11/25/world/americas/israel-lebanon-hezbollah-strikes-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945982/2024/11/25/rams-lose-eagles-matthew-staffor
 **Brian Kelly brushed off 'fit' concerns at LSU. But in Year 3, they're bigger than ever**\
 `One former player's advice for Brian Kelly: "You have to let your players know that you really got 'em."`\
 https://nytimes.com/athletic/5945266/2024/11/25/brian-kelly-lsu-notre-dame-recruiting/
-
-**Stakes are low for Sherrone Moore vs. Ohio State — but pressure will soon ramp up**\
-`A lack of pressure shouldn’t be confused with a lack of desire. Michigan wants to win, as the Wolverines will say over and over this week.`\
-https://nytimes.com/athletic/5944149/2024/11/25/michigan-ohio-state-sherrone-moore-ryan-day/
 
