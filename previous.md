@@ -1,3 +1,11 @@
+**10 things Blues fans should know about Jim Montgomery**\
+`From players he loves to personality traits to stylistic preferences, here are takeaways on Montgomery from his time with the Bruins.`\
+https://nytimes.com/athletic/5947528/2024/11/25/jim-montgomery-bruins-blues-learnings/
+
+**Judge Delays Hearing on Menendez Brothers’ Bid for Early Release**\
+`A hearing scheduled for mid-December was pushed back to Jan. 30 so the judge and the new L.A. district attorney would have time to review filings in the case.`\
+https://nytimes.com/2024/11/25/us/menendez-brothers-early-release-delayed.html
+
 **Arteta wants Arsenal to be 'ruthless' as they search for away win in Europe**\
 `Mikel Arteta has challenged his Arsenal team to find the missing ingredient in the Champions League and end their year-long run without a win on the road.`\
 https://nytimes.com/athletic/5947641/2024/11/25/mikel-arteta-arsenal-sporting/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/25/science/squirting-cucumbers-video.html
 **The Certainty of Uncertainty**\
 `There’s no avoiding uncertainty in economics, so we need tools to deal with it`\
 https://nytimes.com/2024/11/25/opinion/economics-business-risk.html
-
-**Vast Oceans of Water May Be Hiding Within Uranus and Neptune**\
-`A scientist simulated the contents of the ice giant worlds, and found that a fluid layer may explain each planet’s strange magnetic field.`\
-https://nytimes.com/2024/11/25/science/uranus-neptune-oceans.html
-
-**USWNT goalkeeper Alyssa Naeher announces retirement from international soccer**\
-`The two-time World Cup winner and Olympic gold medalist announced the December camp will be her last.`\
-https://nytimes.com/athletic/5947493/2024/11/25/uswnt-goalkeeper-alyssa-naeher-announces-retirement/
 
