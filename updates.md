@@ -1,3 +1,7 @@
+**De Bruyne says Man City contract talks on hold amid injury comeback**\
+`Kevin De Bruyne says he has put talks about his Manchester City future to one side while he focuses on his recovery from injury.`\
+https://nytimes.com/athletic/5946390/2024/11/25/kevin-de-bruyne-manchester-city-future/
+
 **Barbara Taylor Bradford, Best-Selling Romance Novelist, Dies at 91**\
 `Her own rags-to-riches story mirrored those of many of her heroines, and her dozens of books helped her amass a fortune of $300 million.`\
 https://nytimes.com/2024/11/25/obituaries/barbara-taylor-bradford-dead.html
