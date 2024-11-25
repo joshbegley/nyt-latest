@@ -1,3 +1,7 @@
+**Celtics' Kristaps Porziņģis probable to make season debut vs. Clippers**\
+`Porziņģis missed 25 regular-season games and the majority of the playoffs last season with an injury.`\
+https://nytimes.com/athletic/5946972/2024/11/25/boston-celtics-kristaps-porzingis-debut-clippers/
+
 **Bishop T.D. Jakes Recovering From ‘Health Incident’ During Sunday Sermon**\
 `Bishop Jakes received immediate medical attention and is now “stable and under the care of medical professionals,” according to the Potter’s House, his megachurch.`\
 https://nytimes.com/2024/11/25/us/td-jakes-health-incident-stable.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946619/2024/11/25/jim-montgomery-blues-interview/
 **USMNT Player Tracker: Pepi the hat-trick hero, Adams' impact and Reyna returns**\
 `Our weekly round up of the European leagues' U.S. contingent includes Tyler Adams' latest cameo and Taylor Booth impressing in another cameo`\
 https://nytimes.com/athletic/5946557/2024/11/25/usmnt-pepi-adams-aaronson-reyna-tracker/
-
-**New Mexico City to Pay $20 Million to Family of Woman Shot by Police**\
-`New Mexico has among the highest rates of killings by police officers in the U.S., and officials are trying to reduce the number of deadly encounters.`\
-https://nytimes.com/2024/11/25/us/teresa-gomez-shooting-settlement-new-mexico.html
 

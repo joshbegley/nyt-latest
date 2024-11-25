@@ -1,3 +1,7 @@
+**Celtics' Kristaps Porziņģis probable to make season debut vs. Clippers**\
+`Porziņģis missed 25 regular-season games and the majority of the playoffs last season with an injury.`\
+https://nytimes.com/athletic/5946972/2024/11/25/boston-celtics-kristaps-porzingis-debut-clippers/
+
 **Bishop T.D. Jakes Recovering From ‘Health Incident’ During Sunday Sermon**\
 `Bishop Jakes received immediate medical attention and is now “stable and under the care of medical professionals,” according to the Potter’s House, his megachurch.`\
 https://nytimes.com/2024/11/25/us/td-jakes-health-incident-stable.html
