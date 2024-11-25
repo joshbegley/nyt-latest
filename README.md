@@ -1,3 +1,7 @@
+**When Your Workouts Turn Into a Work of Art**\
+`Using the maps from his daily runs, Duncan McCabe took the Strava art trend to new heights by creating an animated stickman that has become an online sensation.`\
+https://nytimes.com/2024/11/25/style/strava-art-animation-duncan-mccabe.html
+
 **‘Get Millie Black’ Is a Fresh Take on the Cop Drama**\
 `Created by the Booker Prize-winning author Marlon James, the HBO series puts a new spin on a lot of old crime show conventions.`\
 https://nytimes.com/2024/11/25/arts/television/get-millie-black-hbo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947811/2024/11/25/jabrill-peppers-patriots-exempt-
 **Submit your NBA questions for ‘The Athletic NBA Daily’ podcast mailbag**\
 `Let us know what you think about the first month of the 2024-25 NBA season.`\
 https://nytimes.com/athletic/5939460/2024/11/25/nba-podcast-mailbag-athletic-daily/
-
-**U.S. midfielder Paredes sustains setback in injury recovery**\
-`USMNT midfielder Kevin Paredes has suffered a setback in his recovery from a foot injury.`\
-https://nytimes.com/athletic/5947063/2024/11/25/kevin-paredes-injury-usmnt-wolfsburg/
 

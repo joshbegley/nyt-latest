@@ -1,3 +1,11 @@
+**‘Get Millie Black’ Is a Fresh Take on the Cop Drama**\
+`Created by the Booker Prize-winning author Marlon James, the HBO series puts a new spin on a lot of old crime show conventions.`\
+https://nytimes.com/2024/11/25/arts/television/get-millie-black-hbo.html
+
+**Memphis knocks off UConn in Maui opener after Dan Hurley technical in OT**\
+`Penny Hardaway's Tigers dealt the two-time defending national champs their first loss since Feb. 20.`\
+https://nytimes.com/athletic/5947714/2024/11/25/uconn-memphis-maui-invitational-dan-hurley/
+
 **Special Counsel Moves to Dismiss Federal Cases Against Trump**\
 `Also, Israel is nearing a decision on a Lebanon cease-fire. Here's the latest at the end of Monday.`\
 https://nytimes.com/2024/11/25/briefing/special-counsel-drop-trump-cases-israel-lebanon-truce.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5939460/2024/11/25/nba-podcast-mailbag-athletic-dai
 **U.S. midfielder Paredes sustains setback in injury recovery**\
 `USMNT midfielder Kevin Paredes has suffered a setback in his recovery from a foot injury.`\
 https://nytimes.com/athletic/5947063/2024/11/25/kevin-paredes-injury-usmnt-wolfsburg/
-
-**Jessica Tisch Is Sworn In as N.Y.P.D. Commissioner**\
-`Commissioner Tisch is the fourth person to hold the role during the Adams administration, and the department’s second-ever female leader.`\
-https://nytimes.com/2024/11/25/nyregion/jessica-tisch-nypd-commissioner.html
-
-**Former Kentucky Sheriff Arraigned on Murder Charge in Judge Shooting**\
-`The former sheriff, Shawn Stines, was indicted last week after a local judge was shot to death in his chambers in September.`\
-https://nytimes.com/2024/11/25/us/kentucky-sheriff-arraigned-judge-shooting.html
 
