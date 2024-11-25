@@ -1,3 +1,7 @@
+**Can Wall Street Billionaires Deliver on Trump’s Blue-Collar Promise?**\
+`The president-elect has named wealthy financiers for key economic positions, raising questions about how much they will follow through on promises to help the working class.`\
+https://nytimes.com/2024/11/25/us/politics/trump-billionaires-economic-nominees.html
+
 **Canucks notebook: Why Vancouver's new first line is dominating and more**\
 `Jake DeBrusk, Elias Pettersson and Kiefer Sherwood are playing dominant hockey as a trio for the Canucks.`\
 https://nytimes.com/athletic/5945903/2024/11/25/vancouver-canucks-pettersson-sherwood-debrusk/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946511/2024/11/25/penguins-today-sidney-crosby-600
 **ECU planning to promote interim coach Blake Harrell to full-time job**\
 `Harrell, formerly the defensive coordinator, is 4-0 since taking over as the interim coach.`\
 https://nytimes.com/athletic/5946573/2024/11/25/blake-harrell-ecu-football-coach/
-
-**Dating App Fatigue? In Vermont, Personal Ads Still Thrive.**\
-`Small weekly seeks readers looking for love.`\
-https://nytimes.com/2024/11/25/style/seven-days-personals-vermont.html
 
