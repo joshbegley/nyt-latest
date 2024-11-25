@@ -1,3 +1,7 @@
+**The Nosy and Deadly 81-Year-Old With an 8-Year-Old Blackmailer**\
+`Our columnist on new thrillers by Christopher Bollen, M.W. Craven and Marie Tierney.`\
+https://nytimes.com/2024/11/25/books/review/new-thrillers.html
+
 **Thousands Defy Pakistan Crackdown to Rally for Imran Khan’s Release**\
 `Protesters march to Pakistan’s capital amid a city lockdown and violent clashes with the police as political tensions surge.`\
 https://nytimes.com/2024/11/25/world/asia/pakistan-crackdown-imran-khan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/opinion/republicans-freak-out-over-trumps-choice-
 **The Seahawks are finally playing contender-level defense. When will the offense catch up?**\
 `The Seahawks' urgency on defense is obvious, and it's the biggest reason for the team's surge. The offense needs to match that energy.`\
 https://nytimes.com/athletic/5946086/2024/11/25/seahawks-offense-geno-smith-ryan-grubb/
-
-**Heat Today: Jimmy Butler's production, and humor, are leading Miami's turnaround**\
-`Since returning from a four-game injury absence, Butler has been putting up huge numbers — and keeping things light with teammates.`\
-https://nytimes.com/athletic/5946695/2024/11/25/jimmy-butler-tyler-herro-heat/
 
