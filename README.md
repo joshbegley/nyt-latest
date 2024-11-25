@@ -1,3 +1,11 @@
+**Maple Leafs report cards: Marner's commanding performance drives win**\
+`Mitch Marner made it happen for the Leafs' first game against the Utah Hockey Club.`\
+https://nytimes.com/athletic/5944951/2024/11/24/maple-leafs-report-cards-marner-utah/
+
+**Celtics fans witness Jaylen Brown's 3-point magic show before the winning matinee**\
+`Brown made five 3s in the game's first 2 minutes and 22 seconds. His Boston teammates seemed to lose their rhythm but held on for the win.`\
+https://nytimes.com/athletic/5945378/2024/11/24/jaylen-browns-early-3-point-magic-show/
+
 **Raiders were a mess at QB before Gardner Minshew's injury and need a fix this offseason**\
 `The Raiders are 2-9 and going nowhere. Why not stick with Aidan O'Connell or Desmond Ridder for now and aim to find a new QB this offseason?`\
 https://nytimes.com/athletic/5945346/2024/11/24/raiders-loss-gardner-minshew-broncos/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5945209/2024/11/24/commanders-loss-cowboys-jayden-d
 **'It’s a next-man-up mentality': Lions keep rolling as injuries remain biggest obstacle**\
 `The Lions saw their injury list continue to grow in their win against the Colts.`\
 https://nytimes.com/athletic/5945008/2024/11/24/lions-win-injuries-colts/
-
-**Crazy final 5 minutes: How the Cowboys hung on to beat Commanders**\
-`A breakdown in coverage, a missed extra point and two kickoff returns for touchdowns highlighted the Cowboys' wild victory.`\
-https://nytimes.com/athletic/5945252/2024/11/24/cowboys-win-wild-finish-commanders/
-
-**LA Galaxy back in Western Conference final for first time since 2014**\
-`The Galaxy are the last of any of the top-three-seeded teams in either MLS conference to move on to their respective conference final.`\
-https://nytimes.com/athletic/5945340/2024/11/24/la-galaxy-minnesota-united-mls-playoffs/
 
