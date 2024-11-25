@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Change in Boston, déjà vu in Ottawa and expected storylines**\
+`We all may be terrible at predicting the NHL, but sometimes the league offers refreshingly foreseeable storylines.`\
+https://nytimes.com/athletic/5944685/2024/11/25/weekend-nhl-rankings-bruins-senators-storylines/
+
 **Twins roster projection 1.0: Where things stand, what they need as offseason gets underway**\
 `What would the Twins' Opening Day roster look like if the season started now and where could they look to shake things up?`\
 https://nytimes.com/athletic/5944676/2024/11/25/twins-roster-projection-offseason-needs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945280/2024/11/25/giants-loss-malik-nabers-buccane
 **The Pulse: The NFL teams hiding behind their records**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5945365/2024/11/25/nfl-week-12-takeaways-the-pulse/
-
-**Keane involved in fan altercation after Man Utd draw at Ipswich**\
-`Sky Sports pundit Roy Keane was involved in an altercation with a supporter in the home section at Portman Road following Manchester United&#8217;s draw at Ipswich Town on Sunday.`\
-https://nytimes.com/athletic/5946110/2024/11/25/roy-keane-fan-ipswich-sky-sports/
 
