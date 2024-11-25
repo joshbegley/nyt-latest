@@ -1,3 +1,7 @@
+**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
+`Notre Dame is in strong position to make the Playoff — and host a first-round game if it beats USC. What's on your mind about the Irish?`\
+https://nytimes.com/athletic/5947155/2024/11/25/notre-dame-football-mailbag-questions-15/
+
 **What Deontae Lawson's absence means for Alabama's defense**\
 `Lawson, a junior and projected NFL prospect, likely has played his final game for Alabama.`\
 https://nytimes.com/athletic/5947046/2024/11/25/deontae-lawson-injury-alabama-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/us/politics/trump-natalie-harp.html
 **College football Week 14 odds: Texas is favored by almost a touchdown at Texas A&M**\
 `Rivalry week is upon us. The final week of the college football regular season has tons of big games, including Texas at Texas A&M.`\
 https://nytimes.com/athletic/5946835/2024/11/25/college-football-week-14-odds-texas-texas-am-ohio-state-michigan/
-
-**Celtics' Kristaps Porziņģis probable to make season debut vs. Clippers**\
-`Porziņģis missed 25 regular-season games and the majority of the playoffs last season with an injury.`\
-https://nytimes.com/athletic/5946972/2024/11/25/boston-celtics-kristaps-porzingis-debut-clippers/
 
