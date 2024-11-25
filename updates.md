@@ -1,3 +1,7 @@
+**Celtics fans witness Jaylen Brown's 3-point magic show before winning matinee**\
+`Brown made five 3s in the first 2 minutes and 22 seconds. His Boston teammates seemed to lose their rhythm but held on for the win.`\
+https://nytimes.com/athletic/5945378/2024/11/24/jaylen-browns-early-3-point-magic-show/
+
 **Raiders reach new low as dominance over Broncos is firmly a thing of the past**\
 `For as bad as things have been for the Raiders, they've at least routinely beaten the Broncos in recent seasons. Not this year.`\
 https://nytimes.com/athletic/5945537/2024/11/24/raiders-loss-quarterback-gardner-minshew-broncos/
