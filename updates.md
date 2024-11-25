@@ -1,3 +1,7 @@
+**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
+`Notre Dame is in strong position to make the Playoff — and host a first-round game if it beats USC. What's on your mind about the Irish?`\
+https://nytimes.com/athletic/5947155/2024/11/25/notre-dame-football-mailbag-questions-15/
+
 **What Deontae Lawson's absence means for Alabama's defense**\
 `Lawson, a junior and projected NFL prospect, likely has played his final game for Alabama.`\
 https://nytimes.com/athletic/5947046/2024/11/25/deontae-lawson-injury-alabama-football/
