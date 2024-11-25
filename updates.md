@@ -1,3 +1,7 @@
+**Ravens LB Roquan Smith inactive for 'MNF' game vs. Chargers**\
+`Baltimore's leading tackler and four-time All-Pro will miss Week 12 with hamstring injury. `\
+https://nytimes.com/athletic/5947159/2024/11/25/ravens-roquan-smith-inactive-chargers-game/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>We&#8217;re coming up on Thanksgiving weekend, when the sport usually goes into overdrive between rivalry games, Playoff prospects and (normally) coaching changes.</p>
 <p>Leave your questions here. Please include your city.</p>

@@ -1,3 +1,7 @@
+**Ravens LB Roquan Smith inactive for 'MNF' game vs. Chargers**\
+`Baltimore's leading tackler and four-time All-Pro will miss Week 12 with hamstring injury. `\
+https://nytimes.com/athletic/5947159/2024/11/25/ravens-roquan-smith-inactive-chargers-game/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>We&#8217;re coming up on Thanksgiving weekend, when the sport usually goes into overdrive between rivalry games, Playoff prospects and (normally) coaching changes.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/2024/11/25/us/susan-lorincz-sentencing-ajike-owens-manslaugh
 **Driver Kills 3 Florida Deputies in a ‘Gut Punch’ to Palm Beach County**\
 `Thee members of the motorcycle unit at the Palm Beach County Sheriff’s Office were struck by a driver on Thursday. Two died that day, and a third who had been in critical condition died on Monday.`\
 https://nytimes.com/2024/11/25/us/sheriff-deputies-killed-crash-florida.html
-
-**Trump backs a Florida official to succeed Matt Gaetz in Congress.**\
-`Jimmy Patronis, the chief financial officer for the state, earned the president-elect’s influential endorsement on Monday before a January G.O.P. primary.`\
-https://nytimes.com/live/2024/11/25/us/trump-news/trump-backs-a-florida-official-to-succeed-matt-gaetz-in-congress
 
