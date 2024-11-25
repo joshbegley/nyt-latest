@@ -1,3 +1,7 @@
+**Woody Johnson has given up on the season — what that means for Jets coaches and players**\
+`On Monday, Jeff Ulbrich and a few veteran players met with the media for the first time since GM Joe Douglas was fired.`\
+https://nytimes.com/athletic/5947837/2024/11/25/jets-season-after-woody-johnson-starts-new-gm-search/
+
 **Lions WR Jameson Williams will not face weapons charges, prosecutor says**\
 `The decision stems from an incident last month when Williams was nearly brought to jail for lacking a concealed pistol license.`\
 https://nytimes.com/athletic/5947806/2024/11/25/detroit-lions-jameson-williams-weapons-charges/

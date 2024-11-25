@@ -1,3 +1,7 @@
+**Woody Johnson has given up on the season — what that means for Jets coaches and players**\
+`On Monday, Jeff Ulbrich and a few veteran players met with the media for the first time since GM Joe Douglas was fired.`\
+https://nytimes.com/athletic/5947837/2024/11/25/jets-season-after-woody-johnson-starts-new-gm-search/
+
 **Lions WR Jameson Williams will not face weapons charges, prosecutor says**\
 `The decision stems from an incident last month when Williams was nearly brought to jail for lacking a concealed pistol license.`\
 https://nytimes.com/athletic/5947806/2024/11/25/detroit-lions-jameson-williams-weapons-charges/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/arts/television/get-millie-black-hbo.html
 **Memphis knocks off UConn in Maui opener after Dan Hurley technical in OT**\
 `Penny Hardaway's Tigers dealt the two-time defending national champs their first loss since Feb. 20.`\
 https://nytimes.com/athletic/5947714/2024/11/25/uconn-memphis-maui-invitational-dan-hurley/
-
-**Special Counsel Moves to Dismiss Federal Cases Against Trump**\
-`Also, Israel is nearing a decision on a Lebanon cease-fire. Here's the latest at the end of Monday.`\
-https://nytimes.com/2024/11/25/briefing/special-counsel-drop-trump-cases-israel-lebanon-truce.html
 
