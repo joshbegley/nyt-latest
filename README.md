@@ -29,7 +29,7 @@ https://nytimes.com/athletic/5947837/2024/11/25/jets-season-after-woody-johnson-
 https://nytimes.com/athletic/5947806/2024/11/25/detroit-lions-jameson-williams-weapons-charges/
 
 **49ers minutia minute: Brock Purdy passes first test; Dre Greenlaw's window opens**\
-`For the second time in as many matchups, the Packers kept their footing on a slick field while the 49ers kept slip sliding away.`\
+`For the second time in two matchups, the Packers kept their footing on a slick field while the 49ers kept slip-sliding away.`\
 https://nytimes.com/athletic/5947980/2024/11/25/49ers-brock-purdy-dre-greenlaw-injury-updates/
 
 **Florida Woman Who Fatally Shot Black Neighbor Gets 25 Years in Prison**\
