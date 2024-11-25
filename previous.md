@@ -1,6 +1,6 @@
 **Fantasy Football Week 12 recap: Can McCaffrey turn it around? It doesn't look good**\
 `CMC's disappointing season continued Sunday, while Saquon Barkley has us asking whether he can break an all-time RB points record.`\
-https://nytimes.com/athletic/5946399/2024/11/25/fantasy-football-week-12-recap-can-christian-mccaffrey-turn-it-around-it-doesnt-look-good/
+https://nytimes.com/athletic/5946399/2024/11/25/fantasy-football-week-12-recap/
 
 **Angels, Yusei Kikuchi agree to 3-year, $63 million deal**\
 `The Angels bolstered their standing as the most aggressive team of the offseason thus far with their biggest splash yet.`\
