@@ -11,7 +11,7 @@ https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
 https://nytimes.com/athletic/5944059/2024/11/24/broncos-raiders-score-result-takeaways/
 
 **Chiefs' latest too-close-for-comfort win doesn't sit well in the locker room**\
-`Half of the Chiefs’ 10 wins have been decided on the final snap. Patrick Mahomes and kicker Spencer Shrader saved the day in Carolina.`\
+`Half of the Chiefs' 10 wins have been decided on the final snap. Patrick Mahomes and kicker Spencer Shrader saved the day in Carolina.`\
 https://nytimes.com/athletic/5944975/2024/11/24/chiefs-patrick-mahomes-panthers/
 
 **Another Patriots defensive dud raises questions about Jerod Mayo, offseason needs**\
