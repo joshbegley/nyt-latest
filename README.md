@@ -1,3 +1,11 @@
+**U.S. midfielder Paredes sustains setback in injury recovery**\
+`USMNT midfielder Kevin Paredes has suffered a setback in his recovery from a foot injury.`\
+https://nytimes.com/athletic/5947063/2024/11/25/kevin-paredes-injury-usmnt-wolfsburg/
+
+**Jessica Tisch Is Sworn In as N.Y.P.D. Commissioner**\
+`Commissioner Tisch is the fourth person to hold the role during the Adams administration, and the department’s second-ever female leader.`\
+https://nytimes.com/2024/11/25/nyregion/jessica-tisch-nypd-commissioner.html
+
 **Former Kentucky Sheriff Arraigned on Murder Charge in Judge Shooting**\
 `The former sheriff, Shawn Stines, was indicted last week after a local judge was shot to death in his chambers in September.`\
 https://nytimes.com/2024/11/25/us/kentucky-sheriff-arraigned-judge-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5947496/2024/11/25/mountain-west-motion-pac-12-laws
 **10 things Blues fans should know about Jim Montgomery**\
 `From players he loves to personality traits to stylistic preferences, here are takeaways on Montgomery from his time with the Bruins.`\
 https://nytimes.com/athletic/5947528/2024/11/25/jim-montgomery-bruins-blues-learnings/
-
-**Judge Delays Hearing on Menendez Brothers’ Bid for Early Release**\
-`A hearing scheduled for mid-December was pushed back to Jan. 30 so the judge and the new L.A. district attorney would have time to review filings in the case.`\
-https://nytimes.com/2024/11/25/us/menendez-brothers-early-release-delayed.html
-
-**Arteta wants Arsenal to be 'ruthless' as they search for away win in Europe**\
-`Mikel Arteta has challenged his Arsenal team to find the missing ingredient in the Champions League and end their year-long run without a win on the road.`\
-https://nytimes.com/athletic/5947641/2024/11/25/mikel-arteta-arsenal-sporting/
 
