@@ -1,3 +1,11 @@
+**Former Marlins GM Kim Ng spearheads new pro softball league: 'MLB for softball'**\
+`The Athletes Unlimited Softball League (AUSL) will start play in June 2025 with four teams and a 30-game schedule.`\
+https://nytimes.com/athletic/5944861/2024/11/25/softball-league-kim-ng/
+
+**Can You Find The 13 Hidden Book Titles in This Text Puzzle?**\
+`This very short story hides the titles of 13 popular books published in the first decade of the 21st century. Dive in and see if you can find them all — and get an instant reading list at the end.`\
+https://nytimes.com/interactive/2024/11/25/books/review/novels-title-search.html
+
 **Fantasy Football Week 12 recap: Can McCaffrey turn it around? It doesn't look good**\
 `CMC's disappointing season continued Sunday, while Saquon Barkley has us asking whether he can break an all-time RB points record.`\
 https://nytimes.com/athletic/5946399/2024/11/25/fantasy-football-week-12-recap/

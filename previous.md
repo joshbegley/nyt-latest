@@ -1,3 +1,11 @@
+**Former Marlins GM Kim Ng spearheads new pro softball league: 'MLB for softball'**\
+`The Athletes Unlimited Softball League (AUSL) will start play in June 2025 with four teams and a 30-game schedule.`\
+https://nytimes.com/athletic/5944861/2024/11/25/softball-league-kim-ng/
+
+**Can You Find The 13 Hidden Book Titles in This Text Puzzle?**\
+`This very short story hides the titles of 13 popular books published in the first decade of the 21st century. Dive in and see if you can find them all — and get an instant reading list at the end.`\
+https://nytimes.com/interactive/2024/11/25/books/review/novels-title-search.html
+
 **Fantasy Football Week 12 recap: Can McCaffrey turn it around? It doesn't look good**\
 `CMC's disappointing season continued Sunday, while Saquon Barkley has us asking whether he can break an all-time RB points record.`\
 https://nytimes.com/athletic/5946399/2024/11/25/fantasy-football-week-12-recap/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5944090/2024/11/25/submit-your-questions-for-the-at
 **What I think and what I know about the Jets a quarter of the way into 2024-25**\
 `How much of Winnipeg's start is for real, and what's realistic to ask of the Jets as their season faces its first major test?`\
 https://nytimes.com/athletic/5944318/2024/11/25/jets-nhl-season-analysis-scheifele-power-play/
-
-**De Bruyne says Man City contract talks on hold amid injury comeback**\
-`Kevin De Bruyne says he has put talks about his Manchester City future to one side while he focuses on his recovery from injury.`\
-https://nytimes.com/athletic/5946390/2024/11/25/kevin-de-bruyne-manchester-city-future/
-
-**Barbara Taylor Bradford, Best-Selling Romance Novelist, Dies at 91**\
-`Her own rags-to-riches story mirrored those of many of her heroines, and her dozens of books helped her amass a fortune of $300 million.`\
-https://nytimes.com/2024/11/25/books/barbara-taylor-bradford-dead.html
 
