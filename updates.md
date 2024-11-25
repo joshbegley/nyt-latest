@@ -1,3 +1,15 @@
+**Sam Darnold's toughness surfaces when needed in Vikings' overtime victory over Bears**\
+`Darnold finished 22-of-34 passing for 330 yards and two touchdowns. And for the second straight week, he lifted a team that needed him.`\
+https://nytimes.com/athletic/5945140/2024/11/24/vikings-win-sam-darnold-bears/
+
+**Colts ask too much of QB Anthony Richardson in sloppy loss to Lions**\
+`The Colts have to get Jonathan Taylor going. Putting so much of the offensive burden on Richardson isn't a recipe for consistent success. `\
+https://nytimes.com/athletic/5945234/2024/11/24/colts-loss-anthony-richardson-lions/
+
+**Raiders QB Gardner Minshew out for season with broken collarbone: Sources**\
+`Antonio Pierce hinted that Aidan O'Connell could be activated from injured reserve to play against the Chiefs on Black Friday.`\
+https://nytimes.com/athletic/5945175/2024/11/24/raiders-gardner-minshew-collarbone-injury-out-for-season/
+
 **‘Dune: Prophecy’ Season 1, Episode 2 Recap: The Agony**\
 `Valya has shown that she is clearly willing to sacrifice whatever, and whomever, it takes to accomplish her goal.`\
 https://nytimes.com/2024/11/24/arts/television/dune-prophecy-recap-episode-2.html
