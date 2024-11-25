@@ -1,3 +1,7 @@
+**AP men's basketball Top 25: Top five unchanged as Feast Week heats up**\
+`The AP top five remains unchanged, but Thanksgiving week is littered with ranked matchups and potential blue-blood clashes.`\
+https://nytimes.com/athletic/5946597/2024/11/25/ap-mens-basketball-top-25-rankings-feast-week/
+
 **Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
 `Notre Dame is in strong position to make the Playoff — and host a first-round game if it beats USC. What's on your mind about the Irish?`\
 https://nytimes.com/athletic/5947155/2024/11/25/notre-dame-football-mailbag-questions-15/
