@@ -1,3 +1,19 @@
+**‘Dune: Prophecy’ Season 1, Episode 2 Recap: The Agony**\
+`Valya has shown that she is clearly willing to sacrifice whatever, and whomever, it takes to accomplish her goal.`\
+https://nytimes.com/2024/11/24/arts/television/dune-prophecy-recap-episode-2.html
+
+**The Commanders split apart on the field Sunday, continuing an ill-timed reversal of fortune**\
+`"It's very frustrating to play 3 1/2 quarters the way we did," tight end Zach Ertz said of the Commanders' 34-26 loss to the Cowboys.`\
+https://nytimes.com/athletic/5944814/2024/11/24/commanders-cowboys-reversal-of-fortune/
+
+**Inside KaVontae Turpin's 'Houdini-style' TD: A spinning escape and blazing finish**\
+`KaVontae Turpin thinks his TD return might be the last time he gets an opportunity to return a kickoff this season.`\
+https://nytimes.com/athletic/5945128/2024/11/24/cowboys-kavontae-turpin-kickoff-return-td-commanders/
+
+**Uruguay’s Center Left Reclaims Power in Presidential Election**\
+`After a campaign notable for the amiable tone from both sides, Yamandú Orsi was named the winner.`\
+https://nytimes.com/2024/11/24/world/americas/uruguay-presidential-election.html
+
 **Uruguay’s Center Left Reclaims Power in Presidential Election**\
 `After a campaign notable for the amiable tone from both parties, Yamandú Orsi was named the winner.`\
 https://nytimes.com/2024/11/24/world/americas/uruguay-presidential-election.html
