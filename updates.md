@@ -1,3 +1,11 @@
+**Are Villa a danger to themselves from their own corners?**\
+`Unai Emery is renowned for his forensic analysis and they remain a constant threat from set-pieces — but they are now a danger to themselves`\
+https://nytimes.com/athletic/5942193/2024/11/25/aston-villa-own-corners-unai-emery/
+
+**Goodison Park is teetering and tetchy - pressure is building on Dyche**\
+`The voices of disquiet are getting louder at Everton — and the December fixture list looks treacherous. All is not well at Goodison Park`\
+https://nytimes.com/athletic/5942537/2024/11/25/everton-sean-dyche-goodison-park-pressure/
+
 **Brighton's attacking trio Joao Pedro, Rutter and Welbeck put the Premier League on notice**\
 `Fabian Hurzeler picked the three forwards from the start for the first time on Saturday - they combined to devastating effect `\
 https://nytimes.com/athletic/5875006/2024/11/25/brighton-joao-pedro-rutter-welbeck-hurzeler/
