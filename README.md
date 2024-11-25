@@ -1,6 +1,6 @@
 **Celtics fans witness Jaylen Brown's 3-point magic show before the winning matinee**\
 `Brown made five 3s in the game's first 2 minutes and 22 seconds. His Boston teammates seemed to lose their rhythm but held on for the win.`\
-https://nytimes.com/athletic/5945378/2024/11/24/jaylen-browns-early-3-point-magic-show-precedes-celtics-winning-matinee/
+https://nytimes.com/athletic/5945378/2024/11/24/jaylen-browns-early-3-point-magic-show/
 
 **Raiders were a mess at QB before Gardner Minshew's injury and need a fix this offseason**\
 `The Raiders are 2-9 and going nowhere. Why not stick with Aidan O'Connell or Desmond Ridder for now and aim to find a new QB this offseason?`\
