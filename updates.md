@@ -1,3 +1,7 @@
+**Submit your NBA questions for ‘The Athletic NBA Daily’ podcast mailbag**\
+`Let us know what you think about the first month of the 2024-25 NBA season.`\
+https://nytimes.com/athletic/5939460/2024/11/25/nba-podcast-mailbag-athletic-daily/
+
 **U.S. midfielder Paredes sustains setback in injury recovery**\
 `USMNT midfielder Kevin Paredes has suffered a setback in his recovery from a foot injury.`\
 https://nytimes.com/athletic/5947063/2024/11/25/kevin-paredes-injury-usmnt-wolfsburg/
