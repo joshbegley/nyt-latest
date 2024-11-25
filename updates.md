@@ -1,3 +1,11 @@
+**A disconnect between manager, squad and fans - how Cooper's time at Leicester came to an end**\
+`Leicester have not moved far from the position they were in last summer, when Cooper was appointed — they cannot make the same mistake again`\
+https://nytimes.com/athletic/5944299/2024/11/25/steve-cooper-leicester-sacking/
+
+**Newsom Challenges Trump on Electric Vehicle Tax Credits**\
+`Gov. Gavin Newsom said California would fill the void for residents if the Trump administration killed a $7,500 E.V. tax credit.`\
+https://nytimes.com/2024/11/25/climate/newsom-trump-electric-vehicle-tax-credits.html
+
 **Submit your questions for The Athletic's state of Florida recruiting mailbag**\
 `<p>The early signing period is quickly approaching.`\
 https://nytimes.com/athletic/5944090/2024/11/25/submit-your-questions-for-the-athletics-state-of-florida-recruiting-mailbag/

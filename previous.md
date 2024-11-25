@@ -1,3 +1,11 @@
+**A disconnect between manager, squad and fans - how Cooper's time at Leicester came to an end**\
+`Leicester have not moved far from the position they were in last summer, when Cooper was appointed — they cannot make the same mistake again`\
+https://nytimes.com/athletic/5944299/2024/11/25/steve-cooper-leicester-sacking/
+
+**Newsom Challenges Trump on Electric Vehicle Tax Credits**\
+`Gov. Gavin Newsom said California would fill the void for residents if the Trump administration killed a $7,500 E.V. tax credit.`\
+https://nytimes.com/2024/11/25/climate/newsom-trump-electric-vehicle-tax-credits.html
+
 **Submit your questions for The Athletic's state of Florida recruiting mailbag**\
 `<p>The early signing period is quickly approaching.`\
 https://nytimes.com/athletic/5944090/2024/11/25/submit-your-questions-for-the-athletics-state-of-florida-recruiting-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5941013/2024/11/25/sf-giants-ha-seong-kim-free-agen
 **Manchester United's switches of play were the positive aspect of Amorim's first game in charge**\
 `Against Ipswich, it was United's intentions rather than their actual level of performance that was significant`\
 https://nytimes.com/athletic/5946123/2024/11/25/manchester-united-tactics-amorim-ipswich/
-
-**Trump Transition Live Updates: Trump Wraps Up Main Cabinet Picks by Naming Rollins to Agriculture**\
-``\
-https://nytimes.com/live/2024/11/25/us/trump-news
-
-**Ohio State film study: What worked for the Buckeyes against Indiana**\
-`Let’s talk about how Ohio State's defense dominated Indiana, along with the offensive line and Will Howard’s performance.`\
-https://nytimes.com/athletic/5946181/2024/11/25/ohio-state-football-indiana-will-howard-defense/
 
