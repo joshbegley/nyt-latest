@@ -1,3 +1,7 @@
+**Men’s college basketball Top 25: Feast Week is here. Who's for real?**\
+`Three weeks in, the competition you’ve beaten has to start mattering, which is why Tennessee has jumped Iowa State and UConn.`\
+https://nytimes.com/athletic/5945741/2024/11/25/mens-basketball-top-25-tennessee-feast-week/
+
 **The Bessent Bounce — Markets Cheer Trump’s Treasury Pick**\
 `Investors seemed to signal their approval for Scott Bessent as a safe choice to implement the president-elect’s economic agenda.`\
 https://nytimes.com/2024/11/25/business/dealbook/markets-trump-treasury-bessent.html
