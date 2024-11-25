@@ -1,3 +1,7 @@
+**The Windup: Angels trying another big move**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5947095/2024/11/25/yusei-kikuchi-angels-automated-strike-zone-the-windup/
+
 **Formula 1 expands grid as General Motors to become the 11th team in 2026**\
 `F1 will have 11 teams and 22 drivers for the new regulations.`\
 https://nytimes.com/athletic/5947118/2024/11/25/formula-1-expands-grid-general-motors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946647/2024/11/25/nfl-week-13-odds-spreads-schedul
 **‘Liberated’ From Leadership, McConnell Is Ready to Pick His Own Fights**\
 `The longest-serving Senate leader is relinquishing his post in the next Congress and planning to use his influence in ways that could put him at odds with President-elect Donald J. Trump.`\
 https://nytimes.com/2024/11/25/us/politics/mitch-mcconnell-senate-leadership.html
-
-**The Nosy and Deadly 81-Year-Old With an 8-Year-Old Blackmailer**\
-`Our columnist on new thrillers by Christopher Bollen, M.W. Craven and Marie Tierney.`\
-https://nytimes.com/2024/11/25/books/review/new-thrillers.html
 
