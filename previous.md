@@ -1,3 +1,7 @@
+**Uruguay’s Center Left Reclaims Power in Presidential Election**\
+`After a campaign notable for the amiable tone from both parties, Yamandú Orsi was named the winner.`\
+https://nytimes.com/2024/11/24/world/americas/uruguay-presidential-election.html
+
 **Caleb Williams' confidence is soaring even as the Bears' losses pile up**\
 `Williams made some rookie mistakes against the Vikings, but he also did some of the special things that made him the top pick in the draft.`\
 https://nytimes.com/athletic/5945058/2024/11/24/bears-caleb-williams-confidence-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945234/2024/11/24/colts-loss-anthony-richardson-li
 **Raiders QB Gardner Minshew out for season with broken collarbone: Sources**\
 `Antonio Pierce hinted that Aidan O'Connell could be activated from injured reserve to play against the Chiefs on Black Friday.`\
 https://nytimes.com/athletic/5945175/2024/11/24/raiders-gardner-minshew-collarbone-injury-out-for-season/
-
-**Jacobs scores three TDs as Packers run over 49ers, 38-10: Takeaways**\
-`Green Bay running back scores his first three-touchdown game since 2022 as the Packers pick up their sixth win in seven games. `\
-https://nytimes.com/athletic/5944064/2024/11/24/49ers-packers-score-result-takeaways/
 

@@ -1,3 +1,7 @@
+**Uruguay’s Center Left Reclaims Power in Presidential Election**\
+`After a campaign notable for the amiable tone from both parties, Yamandú Orsi was named the winner.`\
+https://nytimes.com/2024/11/24/world/americas/uruguay-presidential-election.html
+
 **Caleb Williams' confidence is soaring even as the Bears' losses pile up**\
 `Williams made some rookie mistakes against the Vikings, but he also did some of the special things that made him the top pick in the draft.`\
 https://nytimes.com/athletic/5945058/2024/11/24/bears-caleb-williams-confidence-vikings/
