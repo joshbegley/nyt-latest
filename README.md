@@ -1,3 +1,11 @@
+**The Bounce: Are the Bucks finally back to being good?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5946273/2024/11/25/giannis-antetokounmpo-bucks-nikola-jokic-nuggets-the-bounce-nba/
+
+**Regulator Sues Anti-Police Activist Who Spent Charity Funds on Himself**\
+`Brandon Anderson, who used his nonprofit’s accounts to rent mansions and buy luxury clothes, was featured in a New York Times story in August.`\
+https://nytimes.com/2024/11/25/us/brandon-anderson-raheem-ai.html
+
 **Former Marlins GM Kim Ng spearheads new pro softball league: 'MLB for softball'**\
 `The Athletes Unlimited Softball League (AUSL) will start play in June 2025 with four teams and a 30-game schedule.`\
 https://nytimes.com/athletic/5944861/2024/11/25/softball-league-kim-ng/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5933125/2024/11/25/new-york-giants-brian-daboll-joe
 **Newsom Challenges Trump on Electric Vehicle Tax Credits**\
 `Gov. Gavin Newsom said California would fill the void for residents if the Trump administration killed a $7,500 E.V. tax credit.`\
 https://nytimes.com/2024/11/25/climate/newsom-trump-electric-vehicle-tax-credits.html
-
-**Submit your questions for The Athletic's state of Florida recruiting mailbag**\
-`<p>The early signing period is quickly approaching.`\
-https://nytimes.com/athletic/5944090/2024/11/25/submit-your-questions-for-the-athletics-state-of-florida-recruiting-mailbag/
-
-**What I think and what I know about the Jets a quarter of the way into 2024-25**\
-`How much of Winnipeg's start is for real, and what's realistic to ask of the Jets as their season faces its first major test?`\
-https://nytimes.com/athletic/5944318/2024/11/25/jets-nhl-season-analysis-scheifele-power-play/
 
