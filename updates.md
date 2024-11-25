@@ -1,3 +1,7 @@
+**Biden White House Holds Up U.S. Contribution to Anti-Doping Agency**\
+`The administration is pressing the World Anti-Doping Agency to allow an outside audit after it failed to suspend Chinese swimmers for positive tests.`\
+https://nytimes.com/2024/11/25/us/politics/white-house-contribution-anti-doping-agency.html
+
 **Woody Johnson has given up on the season — what that means for Jets coaches and players**\
 `On Monday, Jeff Ulbrich and a few veteran players met with the media for the first time since GM Joe Douglas was fired.`\
 https://nytimes.com/athletic/5947837/2024/11/25/jets-season-after-woody-johnson-starts-new-gm-search/

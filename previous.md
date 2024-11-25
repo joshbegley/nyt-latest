@@ -1,3 +1,7 @@
+**Biden White House Holds Up U.S. Contribution to Anti-Doping Agency**\
+`The administration is pressing the World Anti-Doping Agency to allow an outside audit after it failed to suspend Chinese swimmers for positive tests.`\
+https://nytimes.com/2024/11/25/us/politics/white-house-contribution-anti-doping-agency.html
+
 **Woody Johnson has given up on the season — what that means for Jets coaches and players**\
 `On Monday, Jeff Ulbrich and a few veteran players met with the media for the first time since GM Joe Douglas was fired.`\
 https://nytimes.com/athletic/5947837/2024/11/25/jets-season-after-woody-johnson-starts-new-gm-search/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/style/strava-art-animation-duncan-mccabe.html
 **‘Get Millie Black’ Is a Fresh Take on the Cop Drama**\
 `Created by the Booker Prize-winning author Marlon James, the HBO series puts a new spin on a lot of old crime show conventions.`\
 https://nytimes.com/2024/11/25/arts/television/get-millie-black-hbo.html
-
-**Memphis knocks off UConn in Maui opener after Dan Hurley technical in OT**\
-`Penny Hardaway's Tigers dealt the two-time defending national champs their first loss since Feb. 20.`\
-https://nytimes.com/athletic/5947714/2024/11/25/uconn-memphis-maui-invitational-dan-hurley/
 

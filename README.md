@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5947980/2024/11/25/49ers-brock-purdy-dre-greenlaw-i
 
 **Florida Woman Who Fatally Shot Black Neighbor Gets 25 Years in Prison**\
 `Susan Lorincz, who shot Ajike Owens, was convicted of manslaughter. The case prompted national outrage.`\
-https://nytimes.com/2024/11/25/us/police-deputies-killed-crash-florida.html
+https://nytimes.com/2024/11/25/us/susan-lorincz-sentencing-ajike-owens-manslaughter.html
 
 **Driver Kills 3 Florida Deputies in a ‘Gut Punch’ to Palm Beach County**\
 `Thee members of the motorcycle unit at the Palm Beach County Sheriff’s Office were struck by a driver on Thursday. Two died that day, and a third who had been in critical condition died on Monday.`\
