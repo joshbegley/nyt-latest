@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: It's Nikola Jokić's world; scouting Ace Bailey; NBA Cup craziness**\
+`For a player who has done so many unprecedented things, the three-time MVP is having a season like no other.`\
+https://nytimes.com/athletic/5945397/2024/11/25/nikola-jokic-nba-cup-ace-bailey-rutgers/
+
 **Why Ed Sheeran issued an apology to Man Utd head coach Ruben Amorim**\
 `Ed Sheeran has apologised to new Manchester United head coach Ruben Amorim for interrupting his post-match interview following Sunday&#8217;s draw at Ipswich Town.`\
 https://nytimes.com/athletic/5946604/2024/11/25/ed-sheeran-ruben-amorim-sky-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/style/seven-days-personals-vermont.html
 **Ex-Dancer Accuses Shen Yun of Forced Labor and Trafficking in Lawsuit**\
 `The former performer, who was recruited to join Shen Yun at age 13, said the prominent dance group coerced children into making money for it.`\
 https://nytimes.com/2024/11/25/nyregion/shen-yun-lawsuit-trafficking-labor.html
-
-**Macy’s Discovers Employee Hid Millions in Delivery Expenses**\
-`The department store chain said it had found the erroneous accounting entries while preparing its results for the third quarter.`\
-https://nytimes.com/2024/11/25/business/macys-earnings-delay-accounting-error.html
 

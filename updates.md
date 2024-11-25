@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: It's Nikola Jokić's world; scouting Ace Bailey; NBA Cup craziness**\
+`For a player who has done so many unprecedented things, the three-time MVP is having a season like no other.`\
+https://nytimes.com/athletic/5945397/2024/11/25/nikola-jokic-nba-cup-ace-bailey-rutgers/
+
 **Why Ed Sheeran issued an apology to Man Utd head coach Ruben Amorim**\
 `Ed Sheeran has apologised to new Manchester United head coach Ruben Amorim for interrupting his post-match interview following Sunday&#8217;s draw at Ipswich Town.`\
 https://nytimes.com/athletic/5946604/2024/11/25/ed-sheeran-ruben-amorim-sky-sports/
