@@ -1,3 +1,11 @@
+**Washington Curtails Intel’s Chip Grant After Company Stumbles**\
+`The Biden Administration is reducing its award to the pioneering chip maker to less than $8 billion, from $8.5 billion.`\
+https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
+
+**Bo Nix stays hot as Broncos sweep Raiders with 29-19 win: Takeaways**\
+`Sunday marked Nix's third consecutive game with multiple touchdowns and no interceptions.`\
+https://nytimes.com/athletic/5944059/2024/11/24/broncos-raiders-score-result-takeaways/
+
 **Chiefs' latest too-close-for-comfort win doesn't sit well in the locker room**\
 `Half of the Chiefs’ 10 wins have been decided on the final snap. Patrick Mahomes and kicker Spencer Shrader saved the day in Carolina.`\
 https://nytimes.com/athletic/5944975/2024/11/24/chiefs-patrick-mahomes-panthers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/24/crosswords/daily-puzzle-2024-11-25.html
 **NFL Week 12 takeaways: Is the Commanders offense collapsing? Are the 49ers out of time?**\
 `Plus, sizing up the red-hot Vikings, and sorting out the post-Daniel Jones Giants.`\
 https://nytimes.com/athletic/5944819/2024/11/24/nfl-week-12-scores-takeaways-commanders-cowboys-texans-titans/
-
-**Vikings beat Bears 30-27 in OT as Addison has career day: Key takeaways**\
-`The Bears got the ball first in overtime but were forced to punt, giving Minnesota the chance to win with a field goal.`\
-https://nytimes.com/athletic/5943990/2024/11/24/vikings-bears-score-result-takeaways/
-
-**Cowboys shock Commanders 34-26 after chaotic fourth quarter: Takeaways**\
-`A missed PAT by Washington's Austin Seibert let the Cowboys off the hook for allowing an 86-yard TD with under 30 seconds left.`\
-https://nytimes.com/athletic/5944044/2024/11/24/commanders-cowboys-score-result-takeaways/
 
