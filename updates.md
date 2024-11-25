@@ -1,3 +1,7 @@
+**End of Trump Cases Leaves Limits on Presidential Criminality Unclear**\
+`Donald J. Trump is set to regain office without clarity on the scope of presidential immunity and with a lingering cloud over whether outside special counsels can investigate high-level wrongdoing.`\
+https://nytimes.com/2024/11/25/us/politics/trump-cases-presidential-criminality.html
+
 **Crony Capitalism Is Coming to America**\
 `Business success may increasingly depend on connections, not competence.`\
 https://nytimes.com/2024/11/25/opinion/trump-tariffs-deportations.html
