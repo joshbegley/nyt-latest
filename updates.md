@@ -1,3 +1,7 @@
+**49ers minutia minute: Brock Purdy passes first test; Dre Greenlaw's window opens**\
+`For the second time in two matchups, the Packers kept their footing on a slick field while the 49ers kept slip-sliding away.`\
+https://nytimes.com/athletic/5947980/2024/11/25/49ers-brock-purdy-dre-greenlaw-injury-updates/
+
 **Ravens LB Roquan Smith inactive for 'MNF' game vs. Chargers**\
 `Baltimore's leading tackler and four-time All-Pro will miss Week 12 with hamstring injury. `\
 https://nytimes.com/athletic/5947159/2024/11/25/ravens-roquan-smith-inactive-chargers-game/
