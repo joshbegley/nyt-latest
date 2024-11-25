@@ -1,3 +1,7 @@
+**On the Outskirts of Beirut, a Crowd Watches the War, and Waits for Its End**\
+`Every night, dozens gather at the hillside to watch airstrikes rain down on the city’s southern suburbs. The ritual offers a window into the war — and proof that the once unimaginable is really happening.`\
+https://nytimes.com/2024/11/25/world/middleeast/lebanon-dahiya-hezbollah-israel-airstrikes.html
+
 **Chris Kreider's no-assist streak, Brett Berard's call-up, more: 11 Rangers observations**\
 `Kreider is in bizarre statistical company with his early-season points output.`\
 https://nytimes.com/athletic/5944923/2024/11/25/rangers-kreider-assists-quick-berard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944149/2024/11/25/michigan-ohio-state-sherrone-moo
 **An Emerald Taken From Brazil Decades Ago May Soon Be Returned**\
 `A U.S. ruling set in motion the gem’s repatriation to Brazil, where it was first unearthed more than 20 years ago.`\
 https://nytimes.com/2024/11/25/us/brazil-bahia-emerald-dispute.html
-
-**Trump’s Judicial Hero Would Have Hated His Recess Appointments Plan**\
-`Justice Antonin Scalia, a conservative giant, said attempts to circumvent the Senate’s responsibility to vet nominees were “ignoble” and “just made up.”`\
-https://nytimes.com/2024/11/25/us/trump-scalia-recess-appointments.html
 
