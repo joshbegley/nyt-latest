@@ -1,3 +1,15 @@
+**Dating App Fatigue? In Vermont, Personal Ads Still Thrive.**\
+`Small weekly seeks readers looking for love.`\
+https://nytimes.com/2024/11/25/style/seven-days-personals-vermont.html
+
+**Ex-Dancer Accuses Shen Yun of Forced Labor and Trafficking in Lawsuit**\
+`The former performer said the prominent dance group coerced children into performing and making money for Shen Yun.`\
+https://nytimes.com/2024/11/25/nyregion/shen-yun-lawsuit-trafficking-labor.html
+
+**Macy’s Discovers Employee Hid Millions in Delivery Expenses**\
+`The department store chain said it had found the erroneous accounting entries while preparing its results for the third quarter.`\
+https://nytimes.com/2024/11/25/business/macys-earnings-delay-accounting-error.html
+
 **The Bounce: Are the Bucks finally back to being good?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5946273/2024/11/25/giannis-antetokounmpo-bucks-nikola-jokic-nuggets-the-bounce-nba/
