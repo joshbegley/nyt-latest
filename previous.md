@@ -1,3 +1,27 @@
+**Packers' free-agent tandem of Josh Jacobs, Xavier McKinney fuels blowout of 49ers**\
+`McKinney intercepted his seventh pass of the season and Jacobs ran for 106 yards and three touchdowns against the 49ers on Sunday.`\
+https://nytimes.com/athletic/5945756/2024/11/25/packers-win-josh-jacobs-xavier-mckinney-49ers/
+
+**Amorim's first Man Utd game: Emotion, ideas and 'too much thinking'**\
+`It took only 81 seconds for the 'idea' Amorim promised to come to fruition, but United's new head coach knows there is a lot of work ahead`\
+https://nytimes.com/athletic/5944516/2024/11/25/ruben-amorim-man-united-ipswich/
+
+**Chelsea have blown teams away under Bompastor - now they've shown they can win ugly**\
+`The champions' new coach makes it 12 out of 12 as they show another side to their game against Manchester United`\
+https://nytimes.com/athletic/5944349/2024/11/25/chelsea-can-win-ugly-too-bompastor/
+
+**Conor McGregor verdict should make football think twice about associating with him**\
+`In October, Conor McGregor was play-fighting on the pitch at the Emirates, last week he was found liable for an assault of a woman in 2018`\
+https://nytimes.com/athletic/5943784/2024/11/25/conor-mcgregor-verdict-football/
+
+**Tears, tributes and unity as football returns to Valencia after the floods**\
+`Valencia is still dealing with the effects of catastrophic flooding. This weekend, its football team paid tribute to the victims`\
+https://nytimes.com/athletic/5943560/2024/11/25/valencia-floods-tributes-dana/
+
+**How Tottenham created the space for James Maddison's signature move**\
+`Maddison's runs into the box for Spurs are now familiar - but his team-mates deserve credit for enabling them`\
+https://nytimes.com/athletic/5943404/2024/11/25/how-tottenham-created-the-space-for-james-maddisons-signature-move/
+
 **Quotation of the Day: The Jets and Giants Take Different Routes Toward Rock Bottom**\
 `Quotation of the Day for Monday, November 25, 2024`\
 https://nytimes.com/2024/11/24/pageoneplus/quotation-of-the-day-the-jets-and-giants-take-different-routes-toward-rock-bottom.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5945560/2024/11/24/seahawks-win-defense-cardinals-l
 **49ers fall apart in blowout loss to Packers: ‘The worst I’ve been a part of'**\
 `A prominent part of Sunday's loss: The 49ers continue to get fizzling performances from players that had been explosive in prior seasons.`\
 https://nytimes.com/athletic/5945562/2024/11/24/49ers-loss-blowout-packers/
-
-**Bo Nix, Courtland Sutton and a budding bromance steering Broncos toward playoffs**\
-`The rookie QB and his top receiver connected for seven receptions, 81 yards and two TDs in the second half of the Broncos' 29-19 win Sunday.`\
-https://nytimes.com/athletic/5945552/2024/11/24/broncos-win-bo-nix-courtland-sutton-raiders/
-
-**Maple Leafs report cards: Marner's commanding performance drives win**\
-`Marner made it happen for the Leafs' first game against the Utah Hockey Club.`\
-https://nytimes.com/athletic/5944951/2024/11/24/maple-leafs-report-cards-marner-utah/
-
-**Celtics fans witness Jaylen Brown's 3-point magic show before winning matinee**\
-`Brown made five 3s in the first 2 minutes and 22 seconds. His Boston teammates seemed to lose their rhythm but held on for the win.`\
-https://nytimes.com/athletic/5945378/2024/11/24/jaylen-browns-early-3-point-magic-show/
-
-**Raiders were a mess at QB before Gardner Minshew's injury and need a fix this offseason**\
-`The Raiders are 2-9 and going nowhere. Why not stick with Aidan O'Connell or Desmond Ridder for now and aim to find a new QB this offseason?`\
-https://nytimes.com/athletic/5945346/2024/11/24/raiders-loss-gardner-minshew-broncos/
-
-**‘Dune: Prophecy’ Season 1, Episode 2 Recap: The Agony**\
-`Valya has shown that she is clearly willing to sacrifice whatever, and whomever, it takes to accomplish her goal.`\
-https://nytimes.com/2024/11/24/arts/television/dune-prophecy-recap-episode-2.html
-
-**The Commanders split apart on the field Sunday, continuing an ill-timed reversal of fortune**\
-`"It's very frustrating to play 3 1/2 quarters the way we did," tight end Zach Ertz said of the Commanders' 34-26 loss to the Cowboys.`\
-https://nytimes.com/athletic/5944814/2024/11/24/commanders-cowboys-reversal-of-fortune/
 
