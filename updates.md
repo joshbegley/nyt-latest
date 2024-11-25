@@ -1,3 +1,11 @@
+**The Briefing: Newcastle 0 West Ham 2 - Burn a big miss and Wilson makes return in a limp home defeat**\
+`Newcastle miss a chance to go sixth in the table, and only two points off second-placed Man City, after a disappointing 2-0 loss to West Ham`\
+https://nytimes.com/athletic/5940191/2024/11/25/newcastle-west-ham-defeat-burn-wilson/
+
+**MLB swaps 2025 Rays dates at Steinbrenner Field with Twins, Angels**\
+`Major League Baseball on Monday announced an adjustment to the Tampa Bay Rays' 2025 schedule to mitigate the possible effects of weather.`\
+https://nytimes.com/athletic/5947800/2024/11/25/mlb-schedule-change-rays-twins-angels/
+
 **NFL removes Patriots' Jabrill Peppers from commissioner's exempt list**\
 `Peppers had been on the list since Oct. 9 following his arrest on assault charges.`\
 https://nytimes.com/athletic/5947811/2024/11/25/jabrill-peppers-patriots-exempt-list/
