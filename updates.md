@@ -1,3 +1,15 @@
+**Bishop T.D. Jakes Recovering From ‘Health Incident’ During Sunday Sermon**\
+`Bishop Jakes received immediate medical attention and is now “stable and under the care of medical professionals,” according to the Potter’s House, his megachurch.`\
+https://nytimes.com/2024/11/25/us/td-jakes-health-incident-stable.html
+
+**Do You Use Online Betting Markets? Tell Us About It.**\
+`The New York Times is covering the rise of online betting markets. We want to hear about the experiences of people who use them, either for recreational purposes or as a source of income.`\
+https://nytimes.com/2024/11/25/business/online-betting-reader-callout.html
+
+**Republicans Freak Out Over Trump’s Choice for Labor Secretary**\
+`The business wing of the party is appalled that he chose someone who supports workers’ rights.`\
+https://nytimes.com/2024/11/25/opinion/republicans-freak-out-over-trumps-choice-for-labor-secretary.html
+
 **Republicans Freak Out Over Trump’s Choice for Labor Secretary**\
 `The business wing of the party is appalled that he chose someone who supports workers’ rights.`\
 https://nytimes.com/live/2024/11/19/opinion/thepoint/republicans-freak-out-over-trumps-choice-for-labor-secretary
