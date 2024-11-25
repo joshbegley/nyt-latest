@@ -11,7 +11,7 @@ https://nytimes.com/video/world/europe/100000009843539/dhl-lithuania-plane-crash
 https://nytimes.com/2024/11/25/learning/word-of-the-day-saturnine.html
 
 **As 76ers struggle, Clippers exceed expectations while understanding who is playing**\
-`Philadelphia is suffering losses due to lineup inconsistency while LA is benefitting from knowing who will play.`\
+`Philadelphia is suffering losses due to lineup inconsistency, and LA is benefiting from knowing who will play.`\
 https://nytimes.com/athletic/5945663/2024/11/25/clippers-succeed-76ers-struggle/
 
 **Eagles' Brandon Graham says he's done for season due to torn triceps**\
