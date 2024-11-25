@@ -1,3 +1,11 @@
+**Greenberg: In a season of heartbreakers, the Bears add another chapter to their sad story**\
+`It wasn't all bad. Caleb Williams had his moments. But there were also many times when you understood why the Bears have lost five in a row.`\
+https://nytimes.com/athletic/5944943/2024/11/24/bears-vikings-overtime-loss-caleb-williams/
+
+**Chiefs' latest too-close-for-comfort win doesn't sit well in the locker room**\
+`Half of the Chiefs' 10 wins have been decided on the final snap. Patrick Mahomes and kicker Spencer Shrader saved the day in Carolina.`\
+https://nytimes.com/athletic/5944975/2024/11/24/chiefs-patrick-mahomes-panthers/
+
 **'We played soft': Giants show more fire in locker room than during another humiliating loss**\
 `Cracks in Brian Daboll’s hold on his players began to show for the first time Sunday. That was inevitable, and it might keep getting worse.`\
 https://nytimes.com/athletic/5945021/2024/11/24/giants-loss-brian-daboll-buccaneers/
