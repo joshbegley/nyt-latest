@@ -1,5 +1,9 @@
+**Inside KaVontae Turpin's 'Houdini-style' TD: A spinning escape and blazing finish**\
+`KaVontae Turpin thinks his TD return might be the last time he gets an opportunity to return a kickoff this season.`\
+https://nytimes.com/athletic/5945128/2024/11/24/cowboys-kavontae-turpin-kickoff-return-td-commanders/
+
 **Uruguay’s Center Left Reclaims Power in Presidential Election**\
-`After a campaign notable for the amiable tone from both parties, Yamandú Orsi was named the winner.`\
+`After a campaign notable for the amiable tone from both sides, Yamandú Orsi was named the winner.`\
 https://nytimes.com/2024/11/24/world/americas/uruguay-presidential-election.html
 
 **Caleb Williams' confidence is soaring even as the Bears' losses pile up**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945140/2024/11/24/vikings-win-sam-darnold-bears/
 **Colts ask too much of QB Anthony Richardson in sloppy loss to Lions**\
 `The Colts have to get Jonathan Taylor going. Putting so much of the offensive burden on Richardson isn't a recipe for consistent success. `\
 https://nytimes.com/athletic/5945234/2024/11/24/colts-loss-anthony-richardson-lions/
-
-**Raiders QB Gardner Minshew out for season with broken collarbone: Sources**\
-`Antonio Pierce hinted that Aidan O'Connell could be activated from injured reserve to play against the Chiefs on Black Friday.`\
-https://nytimes.com/athletic/5945175/2024/11/24/raiders-gardner-minshew-collarbone-injury-out-for-season/
 
