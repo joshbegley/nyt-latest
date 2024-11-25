@@ -1,3 +1,15 @@
+**Nicolas Pepe exclusive: 'Arsenal spent a lot of money on me and I paid the price for it'**\
+`Pepe is enjoying his football again at Villarreal after his time at Arsenal turned sour as he was worn down by abuse online`\
+https://nytimes.com/athletic/5934816/2024/11/25/nicolas-pepe-interview-arsenal-emery-villarreal/
+
+**DHL Cargo Plane Crashes Into Homes**\
+`Thick smoke rose from a residential area near an airport in Vilnius, Lithuania, after the plane crashed.`\
+https://nytimes.com/video/world/europe/100000009843539/dhl-lithuania-plane-crash.html
+
+**As 76ers struggle, Clippers exceed expectations while understanding who is playing**\
+`Philadelphia is suffering losses due to lineup inconsistency, and LA is benefiting from knowing who will play.`\
+https://nytimes.com/athletic/5945663/2024/11/25/clippers-succeed-76ers-struggle/
+
 **Word of the Day: saturnine**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/25/learning/word-of-the-day-saturnine.html
