@@ -1,3 +1,7 @@
+**Washington Curtails Intel’s Chip Grant After Company Stumbles**\
+`The Biden administration is reducing its award to the chip maker, partly to account for a multibillion-dollar military contract.`\
+https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
+
 **Jacobs scores three TDs as Packers run over 49ers, 38-10: Takeaways**\
 `Green Bay running back scores his first three-touchdown game since 2022 as the Packers pick up their sixth win in seven games. `\
 https://nytimes.com/athletic/5944064/2024/11/24/49ers-packers-score-result-takeaways/
