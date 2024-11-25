@@ -23,7 +23,7 @@ https://nytimes.com/2024/11/25/world/asia/pakistan-crackdown-imran-khan.html
 https://nytimes.com/athletic/5946973/2024/11/25/f1-las-vegas-review-year-two/
 
 **Devoted Aide Who Keeps Good News Flowing Will Follow Trump to the White House**\
-`Natalie Harp, a 33-year-year-old former anchor on a right-wing cable show, is poised to become the primary conveyor belt for information to and from the president.`\
+`Natalie Harp, a 33-year-old former anchor on a right-wing cable show, is poised to become the primary conveyor belt for information to and from the president.`\
 https://nytimes.com/2024/11/25/us/politics/trump-natalie-harp.html
 
 **College football Week 14 odds: Texas is favored by almost a touchdown at Texas A&M**\
