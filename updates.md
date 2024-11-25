@@ -1,3 +1,11 @@
+**Storm Bert Batters Britain, Leaving at Least 3 Dead**\
+`Torrential rain doused most of the country, stymying travel and leading to widespread flooding, landslides, fallen trees and power outages.`\
+https://nytimes.com/2024/11/25/world/europe/storm-bert-uk-weather.html
+
+**Chris Paul's timeline, Rockets financials and more: NBA salary cap analysis**\
+`Kelly Iko talks with salary cap expert Danny LeRoux about money matter impacting the Southwest Division. `\
+https://nytimes.com/athletic/5939393/2024/11/25/spurs-wembanyama-rockets-grizzlies-nba-salary-cap/
+
 **Can the Eagles seriously threaten the Lions in the NFC?**\
 `"If they played five games, Philly would lose at least three of them, maybe four of them," one NFC coach said.`\
 https://nytimes.com/athletic/5946065/2024/11/25/eagles-lions-nfc-playoff-picture/
