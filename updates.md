@@ -1,3 +1,7 @@
+**Biden Pardons the Last Turkeys of His Presidency**\
+`President Biden, granting clemency to a pair of turkeys in an annual White House ceremony, expressed gratitude for serving as commander in chief.`\
+https://nytimes.com/video/us/politics/100000009844587/biden-turkey-pardon-thanksgiving.html
+
 **Squirting Cucumbers Shoot Their Seeds Like Botanical Bombardiers**\
 `Scientists say they’ve worked out how the plant can fire its seeds up to almost 40 feet.`\
 https://nytimes.com/2024/11/25/science/squirting-cucumbers-video.html
