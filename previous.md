@@ -1,3 +1,7 @@
+**Saquon Barkley's Philadelphia story could have a most valuable ending**\
+`Barkley's 255 rushing yards, along with his 302 scrimmage yards and two TDs against the Rams support his case for a non-QB to be an MVP.`\
+https://nytimes.com/athletic/5945242/2024/11/25/eagles-saquon-barkley-rams/
+
 **The Briefing: Leganes 0 Real Madrid 3: Mbappe and Bellingham continue to improve as Liverpool trip looms**\
 `We break down the key storylines from Sunday evening's game in Leganes`\
 https://nytimes.com/athletic/5945223/2024/11/25/leganes-real-madrid-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945907/2024/11/25/eagles-brandon-graham-injured-tr
 **DHL Cargo Plane Crashes Near Airport in Lithuania, Killing 1**\
 `The crash near Vilnius Airport sparked a fire in a residential area, officials said. One person on board was killed and the other three were hospitalized.`\
 https://nytimes.com/2024/11/25/world/europe/dhl-lithuania-plane-crash.html
-
-**Your Thanksgiving Day Watching Lineup, Plus 6 Things to Watch on TV This Week**\
-`Watch the Macy’s Day Parade, the dog show and football while the turkey is cooking, and catch up on true crime and two new shows.`\
-https://nytimes.com/2024/11/25/arts/television/your-thanksgiving-day-watching-lineup-plus-6-things-to-watch-on-tv-this-week.html
 
