@@ -1,5 +1,9 @@
+**Colts WR Josh Downs week-to-week with shoulder injury: Source**\
+`The second-year wideout leads Indianapolis in receptions, receiving yards per game and targets. `\
+https://nytimes.com/athletic/5947212/2024/11/25/colts-josh-downs-shoulder-injury-update/
+
 **Judge Allows San Jose State Volleyball Player to Compete**\
-`A federal judge declined to prevent the player from participating in a conference tournament this week, in response to a lawsuit from other athletes who say she is transgender.`\
+`A federal judge declined to prevent the player, who is at the center of a controversy over transgender athletes, from participating in a women’s volleyball conference tournament this week.`\
 https://nytimes.com/2024/11/25/us/san-jose-state-volleyball-transgender.html
 
 **Wilson in Newcastle squad for first time this season**\
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/5947118/2024/11/25/formula-1-expands-grid-general-m
 `The two sides made their final cases to a federal judge Monday in a trial over the tech giant’s dominance in technology selling ads online.`\
 https://nytimes.com/2024/11/25/technology/google-advertising-monopoly.html
 
-**Jack Smith Moves to Dismiss Charges Against Trump in 2020 Election Case**\
-`The special counsel asked a federal judge in Washington to dismiss the indictment that had charged Donald J. Trump with plotting to overturn his loss in the 2020 election.`\
+**Jack Smith Moves to Dismiss Charges Against Trump 2 Felony Cases**\
+`The special counsel asked a federal judge to dismiss the indictment that had charged Donald J. Trump with plotting to overturn his loss in the 2020 election and another accusing him of illegally retaining classified documents.`\
 https://nytimes.com/2024/11/25/us/politics/jack-smith-trump-election-charges.html
 
 **AP men's basketball Top 25: Top five unchanged as Feast Week heats up**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947155/2024/11/25/notre-dame-football-mailbag-ques
 **What Deontae Lawson's absence means for Alabama's defense**\
 `Lawson, a junior and projected NFL prospect, likely has played his final game for Alabama.`\
 https://nytimes.com/athletic/5947046/2024/11/25/deontae-lawson-injury-alabama-football/
-
-**Biden Pardons Turkeys for the Last Time as President**\
-`Setting aside politics, the president used the lighthearted ceremony to thank the nation one more time for the opportunity to serve.`\
-https://nytimes.com/2024/11/25/us/politics/biden-turkey-pardon-thanksgiving.html
 

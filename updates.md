@@ -1,3 +1,15 @@
+**Colts WR Josh Downs week-to-week with shoulder injury: Source**\
+`The second-year wideout leads Indianapolis in receptions, receiving yards per game and targets. `\
+https://nytimes.com/athletic/5947212/2024/11/25/colts-josh-downs-shoulder-injury-update/
+
+**Judge Allows San Jose State Volleyball Player to Compete**\
+`A federal judge declined to prevent the player, who is at the center of a controversy over transgender athletes, from participating in a women’s volleyball conference tournament this week.`\
+https://nytimes.com/2024/11/25/us/san-jose-state-volleyball-transgender.html
+
+**Jack Smith Moves to Dismiss Charges Against Trump 2 Felony Cases**\
+`The special counsel asked a federal judge to dismiss the indictment that had charged Donald J. Trump with plotting to overturn his loss in the 2020 election and another accusing him of illegally retaining classified documents.`\
+https://nytimes.com/2024/11/25/us/politics/jack-smith-trump-election-charges.html
+
 **Judge Allows San Jose State Volleyball Player to Compete**\
 `A federal judge declined to prevent the player from participating in a conference tournament this week, in response to a lawsuit from other athletes who say she is transgender.`\
 https://nytimes.com/2024/11/25/us/san-jose-state-volleyball-transgender.html
