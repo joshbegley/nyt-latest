@@ -1,3 +1,7 @@
+**Biden Pardons the Last Turkeys of His Presidency**\
+`President Biden, granting clemency to a pair of turkeys in an annual White House ceremony, expressed gratitude for serving as commander in chief.`\
+https://nytimes.com/video/us/politics/100000009844587/biden-turkey-pardon-thanksgiving.html
+
 **Squirting Cucumbers Shoot Their Seeds Like Botanical Bombardiers**\
 `Scientists say they’ve worked out how the plant can fire its seeds up to almost 40 feet.`\
 https://nytimes.com/2024/11/25/science/squirting-cucumbers-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/technology/microsoft-outlook-teams-outage.html
 **How to watch Auburn vs. Iowa State, the Maui Invitational's opening night headliner**\
 `Top-ranked programs in Auburn and Iowa State headline the Maui Invitational on Monday night.`\
 https://nytimes.com/athletic/5947191/2024/11/25/auburn-iowa-state-maui-watch-odds/
-
-**Nan Goldin Challenges Germany on What Artists Can Say About Israel**\
-`A speech by the artist at an exhibition of her work was followed by protests from her supporters and an uproar in the news media.`\
-https://nytimes.com/2024/11/25/arts/design/nan-goldin-germany-gaza.html
 
