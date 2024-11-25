@@ -1,3 +1,23 @@
+**Twins roster projection 1.0: Where things stand, what they need as offseason gets underway**\
+`What would the Twins' Opening Day roster look like if the season started now and where could they look to shake things up?`\
+https://nytimes.com/athletic/5944676/2024/11/25/twins-roster-projection-offseason-needs/
+
+**Rutherford: Armstrong is all-in to fix the Blues and add to his legacy, feelings be damned**\
+`First he signed Philip Broberg and Dylan Holloway to offer sheets and now he replaces Drew Bannister with Jim Montgomery.`\
+https://nytimes.com/athletic/5944993/2024/11/25/doug-armstrong-jim-montgomery-bold-hire/
+
+**Super League, Ballon d'Or and UEFA - Madrid president Perez's speech and what he meant**\
+`Perez spoke to Madrid's general assembly for 85 minutes including questions on Sunday, covering some big issues`\
+https://nytimes.com/athletic/5946080/2024/11/25/super-league-real-madrid-perez/
+
+**Lowetide: Which Oilers prospects are spiking in AHL Bakersfield?**\
+`A quick look at the Bakersfield Condors this season shows some interesting names in the pipeline.`\
+https://nytimes.com/athletic/5944197/2024/11/25/oilers-prospects-savoie-ahl/
+
+**One year after Hynes' arrival in Minnesota, Wild players are buying what he's selling**\
+`After taking over from Dean Evason last November, John Hynes has the love of his players and an excellent start to the season.`\
+https://nytimes.com/athletic/5944194/2024/11/25/wild-john-hynes-anniversary-coaching/
+
 **Vinicius Jr suffers hamstring injury, expected to be out for three weeks**\
 `Real Madrid forward Vinicius Junior is expected to be sidelined for three weeks with a hamstring injury, ruling him out of Wednesday&#8217;s Champions League tie at Liverpool.`\
 https://nytimes.com/athletic/5946221/2024/11/25/vinicius-junior-real-madrid-injury-update/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5945365/2024/11/25/nfl-week-12-takeaways-the-pulse/
 **Keane involved in fan altercation after Man Utd draw at Ipswich**\
 `Sky Sports pundit Roy Keane was involved in an altercation with a supporter in the home section at Portman Road following Manchester United&#8217;s draw at Ipswich Town on Sunday.`\
 https://nytimes.com/athletic/5946110/2024/11/25/roy-keane-fan-ipswich-sky-sports/
-
-**Storm Bert Batters Britain, Leaving at Least 3 Dead**\
-`Torrential rain doused most of the country, stymying travel and leading to widespread flooding, landslides, fallen trees and power outages.`\
-https://nytimes.com/2024/11/25/world/europe/storm-bert-uk-weather.html
-
-**Chris Paul's timeline, Rockets financials and more: NBA salary cap analysis**\
-`Kelly Iko talks with salary cap expert Danny LeRoux about money matter impacting the Southwest Division. `\
-https://nytimes.com/athletic/5939393/2024/11/25/spurs-wembanyama-rockets-grizzlies-nba-salary-cap/
-
-**Can the Eagles seriously threaten the Lions in the NFC?**\
-`"If they played five games, Philly would lose at least three of them, maybe four of them," one NFC coach said.`\
-https://nytimes.com/athletic/5946065/2024/11/25/eagles-lions-nfc-playoff-picture/
-
-**The Will Levis roller coaster and an outlier among outliers for the Titans**\
-`Levis is the only NFL player since 1960 to have two games with a pick six and eight sacks taken. Somehow, he and the Titans still won.`\
-https://nytimes.com/athletic/5946064/2024/11/25/will-levis-titans-win-texans/
-
-**Why the Chiefs might have reason to worry, and why the Bills' bye felt like a win**\
-`The Bills' offense has owned the Chiefs' defense for years, and the drama that once dominated Buffalo is nowhere to be found right now.`\
-https://nytimes.com/athletic/5946050/2024/11/25/chiefs-bills-afc-playoff-picture/
 
