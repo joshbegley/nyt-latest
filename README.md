@@ -1,3 +1,7 @@
+**The Athletic 134: In late November, every win deserves credit**\
+`Every week this season has given us an upset that has upended the CFP. I wouldn’t pencil anything in heading into the final weekend either.`\
+https://nytimes.com/athletic/5945494/2024/11/25/college-football-fbs-team-134-rankings/
+
 **Ultranationalist Wins First Round of Romania’s Presidential Election**\
 `Calin Georgescu, who had been widely dismissed as a fringe extremist, won the most votes on Sunday. He will probably face a liberal opponent in the second round on Dec. 8.`\
 https://nytimes.com/2024/11/25/world/europe/romania-election-calin-georgescu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5934816/2024/11/25/nicolas-pepe-interview-arsenal-e
 **DHL Cargo Plane Crashes Into Homes**\
 `Thick smoke rose from a residential area near an airport in Vilnius, Lithuania, after the plane crashed.`\
 https://nytimes.com/video/world/europe/100000009843539/dhl-lithuania-plane-crash.html
-
-**Word of the Day: saturnine**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/25/learning/word-of-the-day-saturnine.html
 
