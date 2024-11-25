@@ -1,3 +1,7 @@
+**The Windup: Angels trying another big move**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5947095/2024/11/25/yusei-kikuchi-angels-automated-strike-zone-the-windup/
+
 **Formula 1 expands grid as General Motors to become the 11th team in 2026**\
 `F1 will have 11 teams and 22 drivers for the new regulations.`\
 https://nytimes.com/athletic/5947118/2024/11/25/formula-1-expands-grid-general-motors/

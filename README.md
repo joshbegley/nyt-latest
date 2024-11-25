@@ -1,3 +1,7 @@
+**Wilson in Newcastle squad for first time this season**\
+`Newcastle United have been boosted by the news that Callum Wilson has returned to their matchday squad for the first time this season.`\
+https://nytimes.com/athletic/5947205/2024/11/25/newcastle-team-news-callum-wilson/
+
 **The Windup: Angels trying another big move**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/5947095/2024/11/25/yusei-kikuchi-angels-automated-strike-zone-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/us/politics/biden-turkey-pardon-thanksgiving.html
 **NFL Week 13 odds, spreads, schedule: The Eagles are underdogs??**\
 `Thanksgiving Week has close matchups on tap, including a headliner with the Ravens favored over the flying Eagles. `\
 https://nytimes.com/athletic/5946647/2024/11/25/nfl-week-13-odds-spreads-schedule-thanksgiving-eagles-ravens/
-
-**‘Liberated’ From Leadership, McConnell Is Ready to Pick His Own Fights**\
-`The longest-serving Senate leader is relinquishing his post in the next Congress and planning to use his influence in ways that could put him at odds with President-elect Donald J. Trump.`\
-https://nytimes.com/2024/11/25/us/politics/mitch-mcconnell-senate-leadership.html
 
