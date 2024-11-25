@@ -1,3 +1,15 @@
+**Lions WR Jameson Williams will not face weapons charges, prosecutor says**\
+`The decision stems from an incident last month when Williams was nearly brought to jail for lacking a concealed pistol license.`\
+https://nytimes.com/athletic/5947806/2024/11/25/detroit-lions-jameson-williams-will-not-face-weapons-charges-arrest/
+
+**49ers minutia minute: Brock Purdy passes first test; Dre Greenlaw's window opens**\
+`For the second time in as many matchups, the Packers kept their footing on a slick field while the 49ers kept slip sliding away.`\
+https://nytimes.com/athletic/5947980/2024/11/25/49ers-brock-purdy-dre-greenlaw-injury-updates/
+
+**Florida Woman Who Fatally Shot Black Neighbor Gets 25 Years in Prison**\
+`Susan Lorincz, who shot Ajike Owens, was convicted of manslaughter. The case prompted national outrage.`\
+https://nytimes.com/2024/11/25/us/police-deputies-killed-crash-florida.html
+
 **Driver Kills 3 Florida Deputies in a ‘Gut Punch’ to Palm Beach County**\
 `Thee members of the motorcycle unit at the Palm Beach County Sheriff’s Office were struck by a driver on Thursday. Two died that day, and a third who had been in critical condition died on Monday.`\
 https://nytimes.com/2024/11/25/us/sheriff-deputies-killed-crash-florida.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5947714/2024/11/25/uconn-memphis-maui-invitational-
 **Special Counsel Moves to Dismiss Federal Cases Against Trump**\
 `Also, Israel is nearing a decision on a Lebanon cease-fire. Here's the latest at the end of Monday.`\
 https://nytimes.com/2024/11/25/briefing/special-counsel-drop-trump-cases-israel-lebanon-truce.html
-
-**Here’s Where Weather May Disrupt Your Thanksgiving Travel**\
-`Millions of people are taking to the road and skies this week. Some may encounter dreary weather.`\
-https://nytimes.com/2024/11/25/weather/thanksgiving-storm-travel.html
-
-**The Vice-Presidential Curse**\
-`Incumbent vice presidents running for president face unique challenges — and have a poor track record in elections.`\
-https://nytimes.com/2024/11/25/us/politics/the-vice-presidential-curse.html
-
-**The Briefing: Newcastle 0 West Ham 2 - Wilson makes return but Burn a big miss in a limp home defeat**\
-`Newcastle miss a chance to go sixth in the table, and only two points off second-placed Man City, after a disappointing 2-0 loss to West Ham`\
-https://nytimes.com/athletic/5940191/2024/11/25/newcastle-west-ham-defeat-burn-wilson/
 
