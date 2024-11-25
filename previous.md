@@ -1,3 +1,11 @@
+**Jacobs scores three TDs as Packers run over 49ers, 38-10: Takeaways**\
+`Green Bay running back scores his first three-touchdown game since 2022 as the Packers pick up their sixth win in seven games. `\
+https://nytimes.com/athletic/5944064/2024/11/24/49ers-packers-score-result-takeaways/
+
+**Seahawks shut down Cardinals for gutsy win, NFC West lead: Key takeaways**\
+`Seattle improved its shot at a division title after snapping Arizona's four-game winning streak on Sunday.`\
+https://nytimes.com/athletic/5944068/2024/11/24/cardinals-seahawks-score-result-takeaways/
+
 **Bryce Young's continued growth shows why Panthers should ride with him rest of the way**\
 `The Panthers were impressed with Bryce Young's performance. So was Patrick Mahomes. "I thought he played his tail off, man."`\
 https://nytimes.com/athletic/5945028/2024/11/24/panthers-loss-bryce-young-chiefs/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/5944943/2024/11/24/bears-vikings-overtime-loss-cale
 https://nytimes.com/athletic/5945021/2024/11/24/giants-loss-brian-daboll-buccaneers/
 
 **Washington Curtails Intel’s Chip Grant After Company Stumbles**\
-`The Biden administration is reducing its award to the pioneering chip maker to less than $8 billion, from $8.5 billion.`\
+`The Biden administration is reducing its award to the chip maker, partly to account for a multibillion dollar military contract.`\
 https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
 
 **Bo Nix stays hot as Broncos sweep Raiders with 29-19 win: Takeaways**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5944874/2024/11/24/patriots-loss-jerod-mayo-dolphin
 **Orlando City ends Atlanta United's Cinderella playoff run**\
 `Orlando City scored in the 39th after center forward Ramiro Enrique pounced on a deflected ball inside Atlanta United’s penalty area.`\
 https://nytimes.com/athletic/5944919/2024/11/24/atlanta-united-orlando-city-mls-playoffs/
-
-**What I'm hearing about the Penguins, Mike Sullivan and the future**\
-`Mike Sullivan's fate is in the hands of Kyle Dubas and no one else.`\
-https://nytimes.com/athletic/5944592/2024/11/24/penguins-mike-sullivan-kyle-dubas-fsg/
-
-**No. 5 UCLA shocks No. 1 South Carolina in stellar defensive performance**\
-`It is the first victory over a top-ranked team in 20 tries for UCLA in program history.`\
-https://nytimes.com/athletic/5944873/2024/11/24/usc-ucla-womens-basketball-takeaways/
 

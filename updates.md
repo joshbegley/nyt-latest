@@ -1,3 +1,15 @@
+**Jacobs scores three TDs as Packers run over 49ers, 38-10: Takeaways**\
+`Green Bay running back scores his first three-touchdown game since 2022 as the Packers pick up their sixth win in seven games. `\
+https://nytimes.com/athletic/5944064/2024/11/24/49ers-packers-score-result-takeaways/
+
+**Seahawks shut down Cardinals for gutsy win, NFC West lead: Key takeaways**\
+`Seattle improved its shot at a division title after snapping Arizona's four-game winning streak on Sunday.`\
+https://nytimes.com/athletic/5944068/2024/11/24/cardinals-seahawks-score-result-takeaways/
+
+**Washington Curtails Intel’s Chip Grant After Company Stumbles**\
+`The Biden administration is reducing its award to the chip maker, partly to account for a multibillion dollar military contract.`\
+https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
+
 **Bryce Young's continued growth shows why Panthers should ride with him rest of the way**\
 `The Panthers were impressed with Bryce Young's performance. So was Patrick Mahomes. "I thought he played his tail off, man."`\
 https://nytimes.com/athletic/5945028/2024/11/24/panthers-loss-bryce-young-chiefs/
