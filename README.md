@@ -1,3 +1,7 @@
+**Republicans Freak Out Over Trump’s Choice for Labor Secretary**\
+`The business wing of the party is appalled that he chose someone who supports workers’ rights.`\
+https://nytimes.com/live/2024/11/19/opinion/thepoint/republicans-freak-out-over-trumps-choice-for-labor-secretary
+
 **The Seahawks are finally playing contender-level defense. When will the offense catch up?**\
 `The Seahawks' urgency on defense is obvious, and it's the biggest reason for the team's surge. The offense needs to match that energy.`\
 https://nytimes.com/athletic/5946086/2024/11/25/seahawks-offense-geno-smith-ryan-grubb/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/arts/music/kendrick-lamar-gnx-review.html
 **Storm Bert Causes Flooding Across Britain and Ireland**\
 `Heavy weekend rain and strong winds brought in by Storm Bert caused widespread flooding and travel disruptions across Britain and Ireland, and killed at least three people in England and Wales.`\
 https://nytimes.com/video/world/europe/100000009843741/storm-bert-floods-britain-ireland-wales.html
-
-**Cowboys Today: The dream of getting the No. 1 overall pick died in Landover**\
-`The possibility of Travis Hunter in Dallas is likely gone as the Cowboys rediscover the art of creating turnovers Sunday vs. the Commanders.`\
-https://nytimes.com/athletic/5946663/2024/11/25/cowboys-today-nfl-draft-pick-win-commanders/
 
