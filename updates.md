@@ -1,3 +1,7 @@
+**Bryce Young's continued growth shows why Panthers should ride with him rest of the way**\
+`The Panthers were impressed with Bryce Young's performance. So was Patrick Mahomes. "I thought he played his tail off, man."`\
+https://nytimes.com/athletic/5945028/2024/11/24/panthers-loss-bryce-young-chiefs/
+
 **Greenberg: In a season of heartbreakers, the Bears add another chapter to their sad story**\
 `It wasn't all bad. Caleb Williams had his moments. But there were also many times when you understood why the Bears have lost five in a row.`\
 https://nytimes.com/athletic/5944943/2024/11/24/bears-vikings-overtime-loss-caleb-williams/
