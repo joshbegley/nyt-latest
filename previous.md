@@ -1,3 +1,7 @@
+**Israel and Hezbollah Mount New Attacks Amid Cease-Fire Talks**\
+`Rockets flew on both sides of the Israel-Lebanon border even as diplomats tried to finalize a truce.`\
+https://nytimes.com/2024/11/25/world/americas/israel-lebanon-hezbollah-strikes-ceasefire.html
+
 **On the Outskirts of Beirut, a Crowd Watches the War, and Waits for Its End**\
 `Every night, dozens gather at the hillside to watch airstrikes rain down on the city’s southern suburbs. The ritual offers a window into the war — and proof that the once unimaginable is really happening.`\
 https://nytimes.com/2024/11/25/world/middleeast/lebanon-dahiya-hezbollah-israel-airstrikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945266/2024/11/25/brian-kelly-lsu-notre-dame-recru
 **Stakes are low for Sherrone Moore vs. Ohio State — but pressure will soon ramp up**\
 `A lack of pressure shouldn’t be confused with a lack of desire. Michigan wants to win, as the Wolverines will say over and over this week.`\
 https://nytimes.com/athletic/5944149/2024/11/25/michigan-ohio-state-sherrone-moore-ryan-day/
-
-**An Emerald Taken From Brazil Decades Ago May Soon Be Returned**\
-`A U.S. ruling set in motion the gem’s repatriation to Brazil, where it was first unearthed more than 20 years ago.`\
-https://nytimes.com/2024/11/25/us/brazil-bahia-emerald-dispute.html
 

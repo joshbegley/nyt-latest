@@ -1,3 +1,7 @@
+**Israel and Hezbollah Mount New Attacks Amid Cease-Fire Talks**\
+`Rockets flew on both sides of the Israel-Lebanon border even as diplomats tried to finalize a truce.`\
+https://nytimes.com/2024/11/25/world/americas/israel-lebanon-hezbollah-strikes-ceasefire.html
+
 **On the Outskirts of Beirut, a Crowd Watches the War, and Waits for Its End**\
 `Every night, dozens gather at the hillside to watch airstrikes rain down on the city’s southern suburbs. The ritual offers a window into the war — and proof that the once unimaginable is really happening.`\
 https://nytimes.com/2024/11/25/world/middleeast/lebanon-dahiya-hezbollah-israel-airstrikes.html
