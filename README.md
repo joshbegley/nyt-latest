@@ -1,6 +1,6 @@
 **Trump Evaded Jack Smith and the Rule of Law**\
 `He will spend his presidential term with no fear of a verdict on his federal indictments.`\
-https://nytimes.com/live/2024/11/19/opinion/thepoint/trump-evaded-jack-smith-and-the-rule-of-law
+https://nytimes.com/2024/11/25/opinion/trump-evaded-jack-smith-and-the-rule-of-law.html
 
 **When Your Workouts Turn Into a Work of Art**\
 `Using the maps from his daily runs, Duncan McCabe took the Strava art trend to new heights by creating an animated stickman that has become an online sensation.`\
