@@ -1,3 +1,11 @@
+**Traffic Accident Kills 3 Florida Deputies in a ‘Gut Punch’**\
+`Thee members of the motorcycle unit at the Palm Beach County Sheriff’s Office were struck by a driver on Thursday. Two died that day, and a third who had been in critical condition died on Monday.`\
+https://nytimes.com/2024/11/25/us/sheriff-deputies-killed-crash-florida.html
+
+**Trump backs a Florida official to succeed Matt Gaetz in Congress.**\
+`Jimmy Patronis, the chief financial officer for the state, earned the president-elect’s influential endorsement on Monday before a January G.O.P. primary.`\
+https://nytimes.com/live/2024/11/25/us/trump-news/trump-backs-a-florida-official-to-succeed-matt-gaetz-in-congress
+
 **Trump Evaded Jack Smith and the Rule of Law**\
 `He will spend his presidential term with no fear of a verdict on his federal indictments.`\
 https://nytimes.com/2024/11/25/opinion/trump-evaded-jack-smith-and-the-rule-of-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/25/us/politics/the-vice-presidential-curse.html
 **The Briefing: Newcastle 0 West Ham 2 - Wilson makes return but Burn a big miss in a limp home defeat**\
 `Newcastle miss a chance to go sixth in the table, and only two points off second-placed Man City, after a disappointing 2-0 loss to West Ham`\
 https://nytimes.com/athletic/5940191/2024/11/25/newcastle-west-ham-defeat-burn-wilson/
-
-**MLB swaps 2025 Rays dates at Steinbrenner Field with Twins, Angels**\
-`Major League Baseball on Monday announced an adjustment to the Tampa Bay Rays' 2025 schedule to mitigate the possible effects of weather.`\
-https://nytimes.com/athletic/5947800/2024/11/25/mlb-schedule-change-rays-twins-angels/
-
-**NFL removes Patriots' Jabrill Peppers from commissioner's exempt list**\
-`Peppers had been on the list since Oct. 9 following his arrest on assault charges.`\
-https://nytimes.com/athletic/5947811/2024/11/25/jabrill-peppers-patriots-exempt-list/
 
