@@ -1,19 +1,3 @@
-**Raiders were a mess at QB before Gardner Minshew's injury and need a fix this offseason**\
-`The Raiders are 2-9 and going nowhere. Why not stick with Aidan O'Connell or Desmond Ridder for now and aim to find a new QB this offseason?`\
-https://nytimes.com/athletic/5945346/2024/11/24/raiders-loss-gardner-minshew-broncos/
-
-**‘Dune: Prophecy’ Season 1, Episode 2 Recap: The Agony**\
-`Valya has shown that she is clearly willing to sacrifice whatever, and whomever, it takes to accomplish her goal.`\
-https://nytimes.com/2024/11/24/arts/television/dune-prophecy-recap-episode-2.html
-
-**The Commanders split apart on the field Sunday, continuing an ill-timed reversal of fortune**\
-`"It's very frustrating to play 3 1/2 quarters the way we did," tight end Zach Ertz said of the Commanders' 34-26 loss to the Cowboys.`\
-https://nytimes.com/athletic/5944814/2024/11/24/commanders-cowboys-reversal-of-fortune/
-
-**Inside KaVontae Turpin's 'Houdini-style' TD: A spinning escape and blazing finish**\
-`KaVontae Turpin thinks his TD return might be the last time he gets an opportunity to return a kickoff this season.`\
-https://nytimes.com/athletic/5945128/2024/11/24/cowboys-kavontae-turpin-kickoff-return-td-commanders/
-
 **Uruguay’s Center Left Reclaims Power in Presidential Election**\
 `After a campaign notable for the amiable tone from both sides, Yamandú Orsi was named the winner.`\
 https://nytimes.com/2024/11/24/world/americas/uruguay-presidential-election.html
@@ -37,4 +21,20 @@ https://nytimes.com/athletic/5945252/2024/11/24/cowboys-win-wild-finish-commande
 **LA Galaxy back in Western Conference final for first time since 2014**\
 `The Galaxy are the last of any of the top-three-seeded teams in either MLS conference to move on to their respective conference final.`\
 https://nytimes.com/athletic/5945340/2024/11/24/la-galaxy-minnesota-united-mls-playoffs/
+
+**Even when the ball bounces their way, the Bears can't avoid another painful loss**\
+`Caleb Williams led a furious fourth-quarter comeback that included a recovered onside kick, but the Bears let the Vikings escape in OT.`\
+https://nytimes.com/athletic/5945004/2024/11/24/bears-painful-overtime-loss-vikings/
+
+**Sam Darnold's toughness surfaces when needed in Vikings' overtime victory over Bears**\
+`Darnold finished 22-of-34 passing for 330 yards and two touchdowns. And for the second straight week, he lifted a team that needed him.`\
+https://nytimes.com/athletic/5945140/2024/11/24/vikings-win-sam-darnold-bears/
+
+**Colts ask too much of QB Anthony Richardson in sloppy loss to Lions**\
+`The Colts have to get Jonathan Taylor going. Putting so much of the offensive burden on Richardson isn't a recipe for consistent success. `\
+https://nytimes.com/athletic/5945234/2024/11/24/colts-loss-anthony-richardson-lions/
+
+**Raiders QB Gardner Minshew out for season with broken collarbone: Sources**\
+`Antonio Pierce hinted that Aidan O'Connell could be activated from injured reserve to play against the Chiefs on Black Friday.`\
+https://nytimes.com/athletic/5945175/2024/11/24/raiders-gardner-minshew-collarbone-injury-out-for-season/
 
