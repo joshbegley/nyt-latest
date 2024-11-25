@@ -1,3 +1,7 @@
+**Quotation of the Day: The Jets and Giants Take Different Routes Toward Rock Bottom**\
+`Quotation of the Day for Monday, November 25, 2024`\
+https://nytimes.com/2024/11/24/pageoneplus/quotation-of-the-day-the-jets-and-giants-take-different-routes-toward-rock-bottom.html
+
 **Celtics fans witness Jaylen Brown's 3-point magic show before winning matinee**\
 `Brown made five 3s in the first 2 minutes and 22 seconds. His Boston teammates seemed to lose their rhythm but held on for the win.`\
 https://nytimes.com/athletic/5945378/2024/11/24/jaylen-browns-early-3-point-magic-show/

@@ -1,3 +1,7 @@
+**Quotation of the Day: The Jets and Giants Take Different Routes Toward Rock Bottom**\
+`Quotation of the Day for Monday, November 25, 2024`\
+https://nytimes.com/2024/11/24/pageoneplus/quotation-of-the-day-the-jets-and-giants-take-different-routes-toward-rock-bottom.html
+
 **Raiders reach new low as dominance over Broncos is firmly a thing of the past**\
 `For as bad as things have been for the Raiders, they've at least routinely beaten the Broncos in recent seasons. Not this year.`\
 https://nytimes.com/athletic/5945537/2024/11/24/raiders-loss-quarterback-gardner-minshew-broncos/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/24/arts/television/dune-prophecy-recap-episode-2.htm
 **The Commanders split apart on the field Sunday, continuing an ill-timed reversal of fortune**\
 `"It's very frustrating to play 3 1/2 quarters the way we did," tight end Zach Ertz said of the Commanders' 34-26 loss to the Cowboys.`\
 https://nytimes.com/athletic/5944814/2024/11/24/commanders-cowboys-reversal-of-fortune/
-
-**Inside KaVontae Turpin's 'Houdini-style' TD: A spinning escape and blazing finish**\
-`Turpin thinks his TD return might be the last time he gets an opportunity to return a kickoff this season.`\
-https://nytimes.com/athletic/5945128/2024/11/24/cowboys-kavontae-turpin-kickoff-return-td-commanders/
 
