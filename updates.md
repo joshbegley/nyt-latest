@@ -1,3 +1,7 @@
+**A Climate Change**\
+`We explore Donald Trump’s climate agenda.`\
+https://nytimes.com/2024/11/25/briefing/donald-trump-climate-policies.html
+
 **Giants' Malik Nabers is 'tired of losing,' sick of trying to explain why offense is inept**\
 `"Go out there, first, second quarter, I don’t get the ball. ... Start getting the ball when it’s 30-0. What you want me to do?”`\
 https://nytimes.com/athletic/5945280/2024/11/25/giants-loss-malik-nabers-buccaneers/
