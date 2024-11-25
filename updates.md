@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Reaching a climate deal.`\
+https://nytimes.com/2024/11/25/briefing/climate-israel-hezbollah.html
+
 **Packers' free-agent tandem of Josh Jacobs, Xavier McKinney fuels blowout of 49ers**\
 `McKinney intercepted his seventh pass of the season and Jacobs ran for 106 yards and three touchdowns against the 49ers on Sunday.`\
 https://nytimes.com/athletic/5945756/2024/11/25/packers-win-josh-jacobs-xavier-mckinney-49ers/

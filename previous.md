@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Reaching a climate deal.`\
+https://nytimes.com/2024/11/25/briefing/climate-israel-hezbollah.html
+
 **Packers' free-agent tandem of Josh Jacobs, Xavier McKinney fuels blowout of 49ers**\
 `McKinney intercepted his seventh pass of the season and Jacobs ran for 106 yards and three touchdowns against the 49ers on Sunday.`\
 https://nytimes.com/athletic/5945756/2024/11/25/packers-win-josh-jacobs-xavier-mckinney-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945537/2024/11/24/raiders-loss-quarterback-gardner
 **Led by 'f---ing beast' Leonard Williams, Seahawks' D smothers Cardinals for NFC West lead**\
 `Williams and the defense had their best performance of the season, breathing new life into the Seahawks' playoff hopes.`\
 https://nytimes.com/athletic/5945560/2024/11/24/seahawks-win-defense-cardinals-leonard-williams/
-
-**49ers fall apart in blowout loss to Packers: ‘The worst I’ve been a part of'**\
-`A prominent part of Sunday's loss: The 49ers continue to get fizzling performances from players that had been explosive in prior seasons.`\
-https://nytimes.com/athletic/5945562/2024/11/24/49ers-loss-blowout-packers/
 

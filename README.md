@@ -1,3 +1,11 @@
+**The Briefing: Are Man City's players the wrong ages? How long will Amorim need? Was Cooper always doomed?**\
+`Analysis of the key talking points from the Premier League weekend and a look at the week ahead`\
+https://nytimes.com/athletic/5944500/2024/11/25/man-city-wrong-ages/
+
+**Fantasy football Week 12 takeaways: Kyler Murray is bubble gum; Tyreek Hill is a problem**\
+`Among his Week 12 takes, Michael Salfino says that Tyreek Hill has become a problem for his managers with his sub-standard production.`\
+https://nytimes.com/athletic/5945164/2024/11/25/fantasy-football-week-12-takeaways-kyler-tyreek/
+
 **Monday Briefing**\
 `Reaching a climate deal.`\
 https://nytimes.com/2024/11/25/briefing/climate-israel-hezbollah.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5943404/2024/11/25/how-tottenham-created-the-space-
 **Quotation of the Day: The Jets and Giants Take Different Routes Toward Rock Bottom**\
 `Quotation of the Day for Monday, November 25, 2024`\
 https://nytimes.com/2024/11/24/pageoneplus/quotation-of-the-day-the-jets-and-giants-take-different-routes-toward-rock-bottom.html
-
-**Raiders reach new low as dominance over Broncos is firmly a thing of the past**\
-`For as bad as things have been for the Raiders, they've at least routinely beaten the Broncos in recent seasons. Not this year.`\
-https://nytimes.com/athletic/5945537/2024/11/24/raiders-loss-quarterback-gardner-minshew-broncos/
-
-**Led by 'f---ing beast' Leonard Williams, Seahawks' D smothers Cardinals for NFC West lead**\
-`Williams and the defense had their best performance of the season, breathing new life into the Seahawks' playoff hopes.`\
-https://nytimes.com/athletic/5945560/2024/11/24/seahawks-win-defense-cardinals-leonard-williams/
 
