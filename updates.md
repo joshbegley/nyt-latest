@@ -1,3 +1,7 @@
+**U.S. Says Google Is an Ad Tech Monopolist, in Closing Arguments**\
+`The two sides made their final cases to a federal judge Monday in a trial over the tech giant’s dominance in technology that sells ads online.`\
+https://nytimes.com/2024/11/25/technology/google-advertising-monopoly.html
+
 **Whitecaps part ways with head coach Sartini**\
 `Sartini took over in 2021 and led the Canadian side to the postseason appearances in three of the last four years.`\
 https://nytimes.com/athletic/5947232/2024/11/25/vanni-sartini-whitecaps-next-coach/
