@@ -1,3 +1,7 @@
+**The Athletic 134: In late November, every win deserves credit**\
+`Every week this season has given us an upset that has upended the CFP. I wouldn’t pencil anything in heading into the final weekend either.`\
+https://nytimes.com/athletic/5945494/2024/11/25/college-football-fbs-team-134-rankings/
+
 **Leganes 0 Real Madrid 3: Mbappe and Bellingham continue to improve as Liverpool trip looms**\
 `Barcelona dropped points again and things are looking up for Carlo Ancelotti's side`\
 https://nytimes.com/athletic/5945223/2024/11/25/leganes-real-madrid-result-analysis/
