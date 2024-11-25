@@ -1,3 +1,7 @@
+**Why Ed Sheeran issued an apology to Man Utd head coach Ruben Amorim**\
+`Ed Sheeran has apologised to new Manchester United head coach Ruben Amorim for interrupting his post-match interview following Sunday&#8217;s draw at Ipswich Town.`\
+https://nytimes.com/athletic/5946604/2024/11/25/ed-sheeran-ruben-amorim-sky-sports/
+
 **Steel Maker ThyssenKrupp to Slash 11,000 Jobs in Germany**\
 `The venerable steel producer, which has been struggling against high energy prices at home and growing competition from abroad, is the latest company in Europe to cut its work force.`\
 https://nytimes.com/2024/11/25/business/thyssenkrupp-job-cuts-germany.html

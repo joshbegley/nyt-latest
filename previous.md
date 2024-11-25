@@ -1,3 +1,7 @@
+**Why Ed Sheeran issued an apology to Man Utd head coach Ruben Amorim**\
+`Ed Sheeran has apologised to new Manchester United head coach Ruben Amorim for interrupting his post-match interview following Sunday&#8217;s draw at Ipswich Town.`\
+https://nytimes.com/athletic/5946604/2024/11/25/ed-sheeran-ruben-amorim-sky-sports/
+
 **Steel Maker ThyssenKrupp to Slash 11,000 Jobs in Germany**\
 `The venerable steel producer, which has been struggling against high energy prices at home and growing competition from abroad, is the latest company in Europe to cut its work force.`\
 https://nytimes.com/2024/11/25/business/thyssenkrupp-job-cuts-germany.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/nyregion/shen-yun-lawsuit-trafficking-labor.html
 **Macy’s Discovers Employee Hid Millions in Delivery Expenses**\
 `The department store chain said it had found the erroneous accounting entries while preparing its results for the third quarter.`\
 https://nytimes.com/2024/11/25/business/macys-earnings-delay-accounting-error.html
-
-**The Bounce: Are the Bucks finally back to being good?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5946273/2024/11/25/giannis-antetokounmpo-bucks-nikola-jokic-nuggets-the-bounce-nba/
 
