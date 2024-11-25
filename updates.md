@@ -1,3 +1,7 @@
+**Ultranationalist Wins First Round of Romania’s Presidential Election**\
+`Calin Georgescu, who had been widely dismissed as a fringe extremist, won the most votes on Sunday. He will probably face a liberal opponent in the second round on Dec. 8.`\
+https://nytimes.com/2024/11/25/world/europe/romania-election-calin-georgescu.html
+
 **‘I'm more out than in’: What Salah's latest comments mean for his Liverpool future**\
 `It was a bold move from the Egyptian - whether it has the impact he desires in the negotiating process, only time will tell`\
 https://nytimes.com/athletic/5945083/2024/11/25/mohamed-salah-liverpool-contract-decision/
