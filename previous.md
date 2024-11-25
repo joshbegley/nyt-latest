@@ -1,3 +1,7 @@
+**Arteta wants Arsenal to be 'ruthless' as they search for away win in Europe**\
+`Mikel Arteta has challenged his Arsenal team to find the missing ingredient in the Champions League and end their year-long run without a win on the road.`\
+https://nytimes.com/athletic/5947641/2024/11/25/mikel-arteta-arsenal-sporting/
+
 **Yusei Kikuchi helps the Angels, but he can't be their big offseason move: Law**\
 `The Angels need a lot of help to go from also-ran to contender. Kikuchi moves them in the right direction but they still need a lot more.`\
 https://nytimes.com/athletic/5947563/2024/11/25/yusei-kikuchi-angels-signing-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/science/uranus-neptune-oceans.html
 **USWNT goalkeeper Alyssa Naeher announces retirement from international soccer**\
 `The two-time World Cup winner and Olympic gold medalist announced the December camp will be her last.`\
 https://nytimes.com/athletic/5947493/2024/11/25/uswnt-goalkeeper-alyssa-naeher-announces-retirement/
-
-**A Simple Baked Potato, With a Luxurious Twist**\
-`The French-born chef Yann Nury shares a festive take on a classic American comfort food.`\
-https://nytimes.com/2024/11/25/t-magazine/baked-potato-caviar-recipe.html
 
