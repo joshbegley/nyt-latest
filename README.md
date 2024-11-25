@@ -1,3 +1,11 @@
+**49ers fall apart in blowout loss to Packers: ‘The worst I’ve been a part of'**\
+`A prominent part of Sunday's loss: The 49ers continue to get fizzling performances from players that had been explosive in prior seasons.`\
+https://nytimes.com/athletic/5945562/2024/11/24/49ers-loss-blowout-packers/
+
+**Bo Nix, Courtland Sutton and a budding bromance steering Broncos toward playoffs**\
+`The rookie QB and his top receiver connected for seven receptions, 81 yards and two TDs in the second half of the Broncos' 29-19 win Sunday.`\
+https://nytimes.com/athletic/5945552/2024/11/24/broncos-win-bo-nix-courtland-sutton-raiders/
+
 **Maple Leafs report cards: Marner's commanding performance drives win**\
 `Mitch Marner made it happen for the Leafs' first game against the Utah Hockey Club.`\
 https://nytimes.com/athletic/5944951/2024/11/24/maple-leafs-report-cards-marner-utah/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/24/world/americas/uruguay-presidential-election.html
 **Caleb Williams' confidence is soaring even as the Bears' losses pile up**\
 `Williams made some rookie mistakes against the Vikings, but he also did some of the special things that made him the top pick in the draft.`\
 https://nytimes.com/athletic/5945058/2024/11/24/bears-caleb-williams-confidence-vikings/
-
-**Commanders kicking themselves over loss to Cowboys as playoff race tightens**\
-`Washington failed to capitalize on Dallas' mistakes and dropped its third consecutive game to a team that had lost five straight. `\
-https://nytimes.com/athletic/5945209/2024/11/24/commanders-loss-cowboys-jayden-daniels/
-
-**'It’s a next-man-up mentality': Lions keep rolling as injuries remain biggest obstacle**\
-`The Lions saw their injury list continue to grow in their win against the Colts.`\
-https://nytimes.com/athletic/5945008/2024/11/24/lions-win-injuries-colts/
 
