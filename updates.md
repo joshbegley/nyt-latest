@@ -1,3 +1,15 @@
+**Formula 1 expands grid as General Motors to become the 11th team in 2026**\
+`F1 will have 11 teams and 22 drivers for the new regulations.`\
+https://nytimes.com/athletic/5947118/2024/11/25/formula-1-expands-grid-general-motors/
+
+**U.S. Says Google Is an Ad Tech Monopolist in Closing Arguments**\
+`The two sides made their final cases to a federal judge Monday in a trial over the tech giant’s dominance in technology selling ads online.`\
+https://nytimes.com/2024/11/25/technology/google-advertising-monopoly.html
+
+**Jack Smith Moves to Dismiss Charges Against Trump in 2020 Election Case**\
+`The special counsel asked a federal judge in Washington to dismiss the indictment that had charged Donald J. Trump with plotting to overturn his loss in the 2020 election.`\
+https://nytimes.com/2024/11/25/us/politics/jack-smith-trump-election-charges.html
+
 **AP men's basketball Top 25: Top five unchanged as Feast Week heats up**\
 `The AP top five remains unchanged, but Thanksgiving week is littered with ranked matchups and potential blue-blood clashes.`\
 https://nytimes.com/athletic/5946597/2024/11/25/ap-mens-basketball-top-25-rankings-feast-week/

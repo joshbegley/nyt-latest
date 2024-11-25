@@ -1,3 +1,15 @@
+**Formula 1 expands grid as General Motors to become the 11th team in 2026**\
+`F1 will have 11 teams and 22 drivers for the new regulations.`\
+https://nytimes.com/athletic/5947118/2024/11/25/formula-1-expands-grid-general-motors/
+
+**U.S. Says Google Is an Ad Tech Monopolist in Closing Arguments**\
+`The two sides made their final cases to a federal judge Monday in a trial over the tech giant’s dominance in technology selling ads online.`\
+https://nytimes.com/2024/11/25/technology/google-advertising-monopoly.html
+
+**Jack Smith Moves to Dismiss Charges Against Trump in 2020 Election Case**\
+`The special counsel asked a federal judge in Washington to dismiss the indictment that had charged Donald J. Trump with plotting to overturn his loss in the 2020 election.`\
+https://nytimes.com/2024/11/25/us/politics/jack-smith-trump-election-charges.html
+
 **AP men's basketball Top 25: Top five unchanged as Feast Week heats up**\
 `The AP top five remains unchanged, but Thanksgiving week is littered with ranked matchups and potential blue-blood clashes.`\
 https://nytimes.com/athletic/5946597/2024/11/25/ap-mens-basketball-top-25-rankings-feast-week/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/25/us/politics/mitch-mcconnell-senate-leadership.htm
 **The Nosy and Deadly 81-Year-Old With an 8-Year-Old Blackmailer**\
 `Our columnist on new thrillers by Christopher Bollen, M.W. Craven and Marie Tierney.`\
 https://nytimes.com/2024/11/25/books/review/new-thrillers.html
-
-**Thousands Defy Pakistan Crackdown to Rally for Imran Khan’s Release**\
-`Protesters march to Pakistan’s capital amid a city lockdown and violent clashes with the police as political tensions surge.`\
-https://nytimes.com/2024/11/25/world/asia/pakistan-crackdown-imran-khan.html
-
-**F1’s second Las Vegas GP was a step up — and proved it doesn’t need to try so hard **\
-`The Las Vegas GP toned itself down in year two, but retained what makes it so unique.`\
-https://nytimes.com/athletic/5946973/2024/11/25/f1-las-vegas-review-year-two/
-
-**Devoted Aide Who Keeps Good News Flowing Will Follow Trump to the White House**\
-`Natalie Harp, a 33-year-old former anchor on a right-wing cable show, is poised to become the primary conveyor belt for information to and from the president.`\
-https://nytimes.com/2024/11/25/us/politics/trump-natalie-harp.html
 
