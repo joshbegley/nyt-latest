@@ -1,3 +1,7 @@
+**Giants' Malik Nabers is 'tired of losing,' sick of trying to explain why offense is inept**\
+`"Go out there, first, second quarter, I don’t get the ball. ... Start getting the ball when it’s 30-0. What you want me to do?”`\
+https://nytimes.com/athletic/5945280/2024/11/25/giants-loss-malik-nabers-buccaneers/
+
 **The Pulse: The NFL teams hiding behind their records**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5945365/2024/11/25/nfl-week-12-takeaways-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944185/2024/11/25/john-jim-harbaugh-ravens-charger
 **Blackhawks prospect breakdown: How Aidan Thompson became a top college offensive player**\
 `A monster start to his junior year in Denver earned Aidan Thompson glowing reviews from the Blackhawks' development coaches.`\
 https://nytimes.com/athletic/5944363/2024/11/25/blackhawks-aidan-thompson-prospect-breakdown-denver/
-
-**Which U.S. soccer coaches could survive a Guardiola-style five-game skid?**\
-`Manchester City's struggles prompt questions about how safe American head coaches are`\
-https://nytimes.com/athletic/5945924/2024/11/25/guardiola-losing-streak-soccer-coaches/
 
