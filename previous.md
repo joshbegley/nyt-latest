@@ -1,3 +1,11 @@
+**As New York’s Migrant Crisis Eases, Trump’s Deportation Threat Looms**\
+`New York City’s migrant shelter population has been steadily falling, but President-elect Donald Trump’s immigration stance will bring new challenges.`\
+https://nytimes.com/2024/11/25/nyregion/migrants-shelters-trump-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/25/crosswords/spelling-bee-forum.html
+
 **Nicolas Pepe exclusive: 'Arsenal spent a lot of money on me and I paid the price for it'**\
 `Pepe is enjoying his football again at Villarreal after his time at Arsenal turned sour as he was worn down by abuse online`\
 https://nytimes.com/athletic/5934816/2024/11/25/nicolas-pepe-interview-arsenal-emery-villarreal/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/25/arts/television/your-thanksgiving-day-watching-li
 **The Desire to Turn Inward Is a Delusion**\
 `Focusing on your own life and disengaging from politics can be appealing. But it is a abdication of responsibility.`\
 https://nytimes.com/2024/11/25/opinion/trump-putin-exile-russia.html
-
-**Saquon Barkley carries Eagles past Rams: Takeaways**\
-`Barkley rushed for a career-high 255 yards on 26 carries and added two touchdowns`\
-https://nytimes.com/athletic/5945821/2024/11/25/eagles-rams-score-result-takeaways/
-
-**Leeds United are top of the Championship and proving everyone right**\
-`Leeds United have been described as a Premier League side in waiting and the Championship leaders aren't wilting under the pressure`\
-https://nytimes.com/athletic/5944076/2024/11/25/leeds-united-swansea-championship-recap/
 

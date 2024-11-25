@@ -1,3 +1,11 @@
+**As New York’s Migrant Crisis Eases, Trump’s Deportation Threat Looms**\
+`New York City’s migrant shelter population has been steadily falling, but President-elect Donald Trump’s immigration stance will bring new challenges.`\
+https://nytimes.com/2024/11/25/nyregion/migrants-shelters-trump-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/25/crosswords/spelling-bee-forum.html
+
 **DHL Cargo Plane Crashes Near Airport in Lithuania, Killing 1**\
 `The crash near Vilnius Airport sparked a fire in a residential area, officials said. One person on board was killed and the other three were hospitalized.`\
 https://nytimes.com/2024/11/25/world/europe/dhl-lithuania-plane-crash.html
