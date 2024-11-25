@@ -1,3 +1,11 @@
+**Netflix to Screen ‘One Hundred Years of Solitude’ in Havana**\
+`The first two episodes will be shown at a film festival in Havana that was long championed by Gabriel García Márquez, the Colombian novelist who wrote the book.`\
+https://nytimes.com/2024/11/25/arts/netflix-one-hundred-years-of-solitude-havana.html
+
+**‘Holding Space’ for ‘Defying Gravity’? She Is, Too.**\
+`Tracy E. Gilchrist’s interview with Ariana Grande and Cynthia Erivo stood out among dozens of others on the “Wicked” press tour. She called it “high camp” but sincere.`\
+https://nytimes.com/2024/11/25/style/wicked-interview-holding-space.html
+
 **Judge denies request to block SJSU volleyball player from tournament**\
 `The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
 https://nytimes.com/athletic/5947424/2024/11/25/san-jose-state-volleyball-lawsuit-transgender/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5947563/2024/11/25/yusei-kikuchi-angels-signing-ana
 **Raiders QB O'Connell returning to practice, could play vs. Chiefs**\
 `After Gardner Minshew's injury, coach Antonio Pierce wouldn’t say whether O'Connell will play against the Chiefs on Black Friday.`\
 https://nytimes.com/athletic/5947519/2024/11/25/raiders-aidan-oconnell-return-injury-chiefs-black-friday/
-
-**What we're hearing about the Rangers: Chris Drury's trade memo and a loud message to the room**\
-`The Rangers are 12-6-1 but have a number of veterans underperforming to start the season.`\
-https://nytimes.com/athletic/5947184/2024/11/25/rangers-kreider-trouba-trade-discussions/
-
-**It's 11am. It's Monday. Time to go to the pub with Emma Hayes...**\
-`Plans for American soccer, thinking about the game through a female lens, and staying grounded`\
-https://nytimes.com/athletic/5947302/2024/11/25/emma-hayes-press-conference-pub-uswnt-england/
 
