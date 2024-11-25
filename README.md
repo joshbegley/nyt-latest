@@ -1,3 +1,7 @@
+**Raiders were a mess at QB before Gardner Minshew's injury and need a fix this offseason**\
+`The Raiders are 2-9 and going nowhere. Why not stick with Aidan O'Connell or Desmond Ridder for now and aim to find a new QB this offseason?`\
+https://nytimes.com/athletic/5945346/2024/11/24/raiders-loss-gardner-minshew-broncos/
+
 **‘Dune: Prophecy’ Season 1, Episode 2 Recap: The Agony**\
 `Valya has shown that she is clearly willing to sacrifice whatever, and whomever, it takes to accomplish her goal.`\
 https://nytimes.com/2024/11/24/arts/television/dune-prophecy-recap-episode-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945252/2024/11/24/cowboys-win-wild-finish-commande
 **LA Galaxy back in Western Conference final for first time since 2014**\
 `The Galaxy are the last of any of the top-three-seeded teams in either MLS conference to move on to their respective conference final.`\
 https://nytimes.com/athletic/5945340/2024/11/24/la-galaxy-minnesota-united-mls-playoffs/
-
-**Even when the ball bounces their way, the Bears can't avoid another painful loss**\
-`Caleb Williams led a furious fourth-quarter comeback that included a recovered onside kick, but the Bears let the Vikings escape in OT.`\
-https://nytimes.com/athletic/5945004/2024/11/24/bears-painful-overtime-loss-vikings/
 
