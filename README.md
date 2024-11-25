@@ -1,3 +1,11 @@
+**Chiefs' latest too-close-for-comfort win doesn't sit well in the locker room**\
+`Half of the Chiefs’ 10 wins have been decided on the final snap. Patrick Mahomes and kicker Spencer Shrader saved the day in Carolina.`\
+https://nytimes.com/athletic/5944975/2024/11/24/chiefs-patrick-mahomes-panthers/
+
+**Another Patriots defensive dud raises all sorts of questions about Jerod Mayo, offseason**\
+`It's not just the Patriots offense that's struggling. It's alarming that the defense, the team's supposed strength, is playing this poorly.`\
+https://nytimes.com/athletic/5944874/2024/11/24/patriots-defense-jerod-mayo-offseason/
+
 **Orlando City ends Atlanta United's Cinderella playoff run**\
 `Orlando City scored in the 39th after center forward Ramiro Enrique pounced on a deflected ball inside Atlanta United’s penalty area.`\
 https://nytimes.com/athletic/5944919/2024/11/24/atlanta-united-orlando-city-mls-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5943990/2024/11/24/vikings-bears-score-result-takea
 **Cowboys shock Commanders 34-26 after chaotic fourth quarter: Takeaways**\
 `A missed PAT by Washington's Austin Seibert let the Cowboys off the hook for allowing an 86-yard TD with under 30 seconds left.`\
 https://nytimes.com/athletic/5944044/2024/11/24/commanders-cowboys-score-result-takeaways/
-
-**Nations at COP29 Climate Summit Agree to Annual $300 Billion Pledge**\
-`Delegates from developing countries described the deal’s financial target, $300 billion per year by 2035, as lacking the ambition needed to help their governments combat climate change.`\
-https://nytimes.com/video/climate/100000009843098/cop29-climate-summit-deal.html
-
-**Chiefs top Panthers 30-27 as Mahomes' run sets up winning kick: Takeaways**\
-`The Chiefs improved to an AFC-best 10-1, while Travis Kelce moved up the all-time tight end receiving yards list. `\
-https://nytimes.com/athletic/5943979/2024/11/24/chiefs-panthers-score-result-takeaways/
 
