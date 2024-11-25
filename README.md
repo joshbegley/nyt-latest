@@ -1,40 +1,40 @@
-**Great Apes and Tiny Bears: Chasing Wild Thrills in Borneo**\
-`This Southeast Asian island, home to some of the world’s strangest and most iconic creatures, is a dream destination for a growing number of “mammal watchers.”`\
-https://nytimes.com/2024/11/25/travel/borneo-wildlife.html
+**Rodrigue: Rams can’t run with the big-time postseason teams if they can get run over**\
+`“You just go back to work. I don’t know any other way to go about it," Rams coach Sean McVay said after the Eagles beat them up Sunday.`\
+https://nytimes.com/athletic/5945982/2024/11/25/rams-lose-eagles-matthew-stafford-saquon-barkley/
 
-**How Healthy Is Turkey?**\
-`Give thanks for this bird — and its many nutritional benefits.`\
-https://nytimes.com/2024/11/25/well/eat/turkey-health-benefits-recipes.html
+**Brian Kelly brushed off 'fit' concerns at LSU. But in Year 3, they're bigger than ever**\
+`One former player's advice for Brian Kelly: "You have to let your players know that you really got 'em."`\
+https://nytimes.com/athletic/5945266/2024/11/25/brian-kelly-lsu-notre-dame-recruiting/
 
-**‘Everyone Thought We Were Going to Die’: Living With Flight Trauma**\
-`Extreme turbulence, a blown-out door, an engine on fire: For passengers and crew members who have experienced in-air emergencies, the pain endures.`\
-https://nytimes.com/2024/11/25/well/mind/airplane-emergencies-mental-health.html
+**Stakes are low for Sherrone Moore vs. Ohio State — but pressure will soon ramp up**\
+`A lack of pressure shouldn’t be confused with a lack of desire. Michigan wants to win, as the Wolverines will say over and over this week.`\
+https://nytimes.com/athletic/5944149/2024/11/25/michigan-ohio-state-sherrone-moore-ryan-day/
 
-**Devil’s advocate: Why Yankees pursuit of Juan Soto shouldn’t go all out**\
-`Re-signing Soto seems like a no-brainer, but bringing him back would create some issues for the Yankees to address.`\
-https://nytimes.com/athletic/5944365/2024/11/25/yankees-juan-soto-pursuit-questions/
+**An Emerald Taken From Brazil Decades Ago May Soon Be Returned**\
+`A U.S. ruling set in motion the gem’s repatriation to Brazil, where it was first unearthed more than 20 years ago.`\
+https://nytimes.com/2024/11/25/us/brazil-bahia-emerald-dispute.html
 
-**Big Ten bowl breakdown: If the Playoff takes four, where would everyone else go?**\
-`Ohio State coach Ryan Day was looking to send a message in the final minutes against Indiana.`\
-https://nytimes.com/athletic/5944561/2024/11/25/big-ten-playoff-teams-postseason-bowls/
+**Trump’s Judicial Hero Would Have Hated His Recess Appointments Plan**\
+`Justice Antonin Scalia, a conservative giant, said attempts to circumvent the Senate’s responsibility to vet nominees were “ignoble” and “just made up.”`\
+https://nytimes.com/2024/11/25/us/trump-scalia-recess-appointments.html
 
-**The Athletic 134: In late November, every win deserves credit**\
-`Every week this season has given us an upset that has upended the CFP. I wouldn’t pencil anything in heading into the final weekend either.`\
-https://nytimes.com/athletic/5945494/2024/11/25/college-football-fbs-team-134-rankings/
+**'Rafa is part of us': What Rafael Nadal means to Spain**\
+`The 22-time Grand Slam champion has been a sporting servant and avatar for Spain in one of its most successful eras`\
+https://nytimes.com/athletic/5941956/2024/11/25/rafael-nadal-spain-sport-history/
 
-**Ultranationalist Wins First Round of Romania’s Presidential Election**\
-`Calin Georgescu, who had been widely dismissed as a fringe extremist, won the most votes on Sunday. He will probably face a liberal opponent in the second round on Dec. 8.`\
-https://nytimes.com/2024/11/25/world/europe/romania-election-calin-georgescu.html
+**How Democrats Lost Their Base and Their Message**\
+`Donald Trump’s populist pitch bumped Democrats off their traditional place in American politics.`\
+https://nytimes.com/2024/11/25/upshot/democrats-trump-working-class.html
 
-**‘I'm more out than in’: What Salah's latest comments mean for his Liverpool future**\
-`It was a bold move from the Egyptian - whether it has the impact he desires in the negotiating process, only time will tell`\
-https://nytimes.com/athletic/5945083/2024/11/25/mohamed-salah-liverpool-contract-decision/
+**‘There Are No Guardrails, There Are Only Choices’: Four Columnists Debate Trump’s Early Moves**\
+`Trump’s 2016 presidential transition signaled how he would govern. What do his preparations for a second term tell us about America’s future?`\
+https://nytimes.com/2024/11/25/opinion/donald-trump-cabinet-nominations.html
 
-**Salah on Liverpool contract situation: 'I’m probably more out than in'**\
-`Mohamed Salah says he has yet to receive a formal contract offer from Liverpool as he admits “I’m probably more out than in (next summer).`\
-https://nytimes.com/athletic/5945979/2024/11/25/mohamed-salah-liverpool-contract-update/
+**How Do I Balance Being Fashionable With Being Professional?**\
+`A reader asks how to dress for work without losing a sense of style. Our fashion critic offers insights on striking the right balance.`\
+https://nytimes.com/2024/11/25/style/work-outfit-office-fashion.html
 
-**Saquon Barkley's Philadelphia story could have a most valuable ending**\
-`Barkley's 255 rushing yards, along with his 302 scrimmage yards and two TDs against the Rams support his case for a non-QB to be an MVP.`\
-https://nytimes.com/athletic/5945242/2024/11/25/eagles-saquon-barkley-rams/
+**I’m a Food Editor. I Hate Thanksgiving Dinner.**\
+`True confessions from the New York Times Cooking desk.`\
+https://nytimes.com/2024/11/25/opinion/thanksgiving-dinner-food.html
 
