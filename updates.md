@@ -1,3 +1,7 @@
+**Led by 'f------ beast' Leonard Williams, Seahawks' D smothers Cardinals for NFC West lead**\
+`Williams and the defense had their best performance of the season, breathing new life into the Seahawks' playoff hopes.`\
+https://nytimes.com/athletic/5945560/2024/11/24/seahawks-win-defense-cardinals-leonard-williams/
+
 **Maple Leafs report cards: Marner's commanding performance drives win**\
 `Marner made it happen for the Leafs' first game against the Utah Hockey Club.`\
 https://nytimes.com/athletic/5944951/2024/11/24/maple-leafs-report-cards-marner-utah/
