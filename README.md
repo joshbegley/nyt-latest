@@ -1,3 +1,7 @@
+**A Climate Change**\
+`We explore Donald Trump’s climate agenda.`\
+https://nytimes.com/2024/11/25/briefing/donald-trump-climate-policies.html
+
 **Giants' Malik Nabers is 'tired of losing,' sick of trying to explain why offense is inept**\
 `"Go out there, first, second quarter, I don’t get the ball. ... Start getting the ball when it’s 30-0. What you want me to do?”`\
 https://nytimes.com/athletic/5945280/2024/11/25/giants-loss-malik-nabers-buccaneers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946050/2024/11/25/chiefs-bills-afc-playoff-picture
 **Inside the Harbaugh coaching universe: 'You just want to be attached to that'**\
 `The Harbaugh brothers face off Monday night for the first time since John's Ravens beat Jim's 49ers in Super Bowl XLVII in January 2013.`\
 https://nytimes.com/athletic/5944185/2024/11/25/john-jim-harbaugh-ravens-chargers/
-
-**Blackhawks prospect breakdown: How Aidan Thompson became a top college offensive player**\
-`A monster start to his junior year in Denver earned Aidan Thompson glowing reviews from the Blackhawks' development coaches.`\
-https://nytimes.com/athletic/5944363/2024/11/25/blackhawks-aidan-thompson-prospect-breakdown-denver/
 
