@@ -1,3 +1,7 @@
+**De Bruyne says Man City contract talks on hold amid injury comeback**\
+`Kevin De Bruyne says he has put talks about his Manchester City future to one side while he focuses on his recovery from injury.`\
+https://nytimes.com/athletic/5946390/2024/11/25/kevin-de-bruyne-manchester-city-future/
+
 **Barbara Taylor Bradford, Best-Selling Romance Novelist, Dies at 91**\
 `Her own rags-to-riches story mirrored those of many of her heroines, and her dozens of books helped her amass a fortune of $300 million.`\
 https://nytimes.com/2024/11/25/obituaries/barbara-taylor-bradford-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944850/2024/11/25/tennis-news-sinner-2024-season-w
 **The Athletic FC: Manchester City loss feels seismic, Salah's contract claim**\
 `Today in TAFC: How crucial will City's 4-0 defeat to Spurs be? Salah opens up about new deal talks and is Mascherano right for Inter Miami.`\
 https://nytimes.com/athletic/5946166/2024/11/25/manchester-city-tottenham-salah-contract-claim/
-
-**FPL: What we learnt from Gameweek 12 - Salah and the budget forwards shine**\
-`Abdul Rehman breaks down the main talking points from Gameweek 12 so far in Fantasy Premier League `\
-https://nytimes.com/athletic/5944558/2024/11/25/fantasy-premier-league-gameweek-12-salah-haaland-cunha/
 
