@@ -1,3 +1,7 @@
+**Super League, Ballon d'Or and UEFA - Madrid president Perez's speech and what he meant**\
+`Perez spoke to Madrid's general assembly for 85 minutes, including questions, on Sunday and covered some big issues`\
+https://nytimes.com/athletic/5946080/2024/11/25/super-league-real-madrid-perez/
+
 **FPL: What we learnt from Gameweek 12 - Salah and the budget forwards shine**\
 `Abdul Rehman breaks down the main talking points from Gameweek 12 so far in Fantasy Premier League `\
 https://nytimes.com/athletic/5944558/2024/11/25/fantasy-premier-league-gameweek-12-salah-haaland-cunha/
