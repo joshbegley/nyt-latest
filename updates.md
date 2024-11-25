@@ -1,3 +1,11 @@
+**Special Counsel Moves to Dismiss Federal Cases Against Trump**\
+`Also, Israel is nearing a decision on a Lebanon cease-fire. Here's the latest at the end of Monday.`\
+https://nytimes.com/2024/11/25/briefing/special-counsel-drop-trump-cases-israel-lebanon-truce.html
+
+**Here’s Where Weather May Disrupt Your Thanksgiving Travel**\
+`A few storms may disrupt some holiday travel, as millions of people take to the road and skies this week.`\
+https://nytimes.com/2024/11/25/weather/thanksgiving-storm-travel.html
+
 **The Briefing: Newcastle 0 West Ham 2 - Wilson makes return but Burn a big miss in a limp home defeat**\
 `Newcastle miss a chance to go sixth in the table, and only two points off second-placed Man City, after a disappointing 2-0 loss to West Ham`\
 https://nytimes.com/athletic/5940191/2024/11/25/newcastle-west-ham-defeat-burn-wilson/
