@@ -1,3 +1,11 @@
+**Saquon Barkley carries Eagles past Rams: Takeaways**\
+`Barkley rushed for a career-high 255 yards on 26 carries and added two touchdowns`\
+https://nytimes.com/athletic/5945821/2024/11/25/eagles-rams-score-result-takeaways/
+
+**Leeds United are top of the Championship and proving everyone right**\
+`Leeds United have been described as a Premier League side in waiting and the Championship leaders aren't wilting under the pressure`\
+https://nytimes.com/athletic/5944076/2024/11/25/leeds-united-swansea-championship-recap/
+
 **Are Villa a danger to themselves from their own corners?**\
 `Unai Emery is renowned for his forensic analysis and they remain a constant threat from set-pieces — but they are now a danger to themselves`\
 https://nytimes.com/athletic/5942193/2024/11/25/aston-villa-own-corners-unai-emery/
