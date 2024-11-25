@@ -1,3 +1,11 @@
+**‘I'm more out than in’: What Salah's latest comments mean for his Liverpool future**\
+`It was a bold move from the Egyptian - whether it has the impact he desires in the negotiating process, only time will tell`\
+https://nytimes.com/athletic/5945083/2024/11/25/mohamed-salah-liverpool-contract-decision/
+
+**Salah on Liverpool contract situation: 'I’m probably more out than in'**\
+`Mohamed Salah says he has yet to receive a formal contract offer from Liverpool as he admits “I’m probably more out than in (next summer).`\
+https://nytimes.com/athletic/5945979/2024/11/25/mohamed-salah-liverpool-contract-update/
+
 **Saquon Barkley's Philadelphia story could have a most valuable ending**\
 `Barkley's 255 rushing yards, along with his 302 scrimmage yards and two TDs against the Rams support his case for a non-QB to be an MVP.`\
 https://nytimes.com/athletic/5945242/2024/11/25/eagles-saquon-barkley-rams/
