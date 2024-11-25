@@ -1,3 +1,7 @@
+**Ohio State film study: What worked for the Buckeyes against Indiana**\
+`Let’s talk about how Ohio State's defense dominated Indiana, along with the offensive line and Will Howard’s performance.`\
+https://nytimes.com/athletic/5946181/2024/11/25/ohio-state-football-indiana-will-howard-defense/
+
 **Tennis Briefing: Jannik Sinner's sublime season awaits CAS verdict, Elena Vesnina retires**\
 `The trajectory of the world No. 1's career is out of his hands as the tennis season comes to an end.`\
 https://nytimes.com/athletic/5944850/2024/11/25/tennis-news-sinner-2024-season-wada-appeal/
