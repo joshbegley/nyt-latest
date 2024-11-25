@@ -1,3 +1,11 @@
+**Overcoming Obesity, With Diet and Physical Education**\
+`Responses to a news article about overweight Americans. Also: Cabinet picks accused of sexual abuse; transgender rights; boys’ feelings about the election.`\
+https://nytimes.com/2024/11/25/opinion/obesity-diet-physical-education.html
+
+**MLB trade scenarios: Bowden on Garrett Crochet, Jordan Montgomery, Nolan Arenado and more**\
+`Bowden tackles more than two dozen questions submitted by subscribers and shares the latest he's hearing about the trade market. `\
+https://nytimes.com/athletic/5946068/2024/11/25/mlb-trade-scenarios-rumors-crochet-arenado/
+
 **Kitchens Are a Force for Social Change**\
 `Places that make and prepare food have a quietly revolutionary impact on the communities around them. In a new series from Headway, we train a lens on kitchens that are sparking change.`\
 https://nytimes.com/2024/11/25/headway/kitchens-are-a-force-for-social-change.html

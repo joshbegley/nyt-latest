@@ -1,3 +1,11 @@
+**Overcoming Obesity, With Diet and Physical Education**\
+`Responses to a news article about overweight Americans. Also: Cabinet picks accused of sexual abuse; transgender rights; boys’ feelings about the election.`\
+https://nytimes.com/2024/11/25/opinion/obesity-diet-physical-education.html
+
+**MLB trade scenarios: Bowden on Garrett Crochet, Jordan Montgomery, Nolan Arenado and more**\
+`Bowden tackles more than two dozen questions submitted by subscribers and shares the latest he's hearing about the trade market. `\
+https://nytimes.com/athletic/5946068/2024/11/25/mlb-trade-scenarios-rumors-crochet-arenado/
+
 **Kitchens Are a Force for Social Change**\
 `Places that make and prepare food have a quietly revolutionary impact on the communities around them. In a new series from Headway, we train a lens on kitchens that are sparking change.`\
 https://nytimes.com/2024/11/25/headway/kitchens-are-a-force-for-social-change.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/25/us/politics/trump-billionaires-economic-nominees.
 **Canucks notebook: Why Vancouver's new first line is dominating and more**\
 `Jake DeBrusk, Elias Pettersson and Kiefer Sherwood are playing dominant hockey as a trio for the Canucks.`\
 https://nytimes.com/athletic/5945903/2024/11/25/vancouver-canucks-pettersson-sherwood-debrusk/
-
-**Hollinger's Week That Was: It's Nikola Jokić's world; scouting Ace Bailey; NBA Cup craziness**\
-`For a player who has done so many unprecedented things, the three-time MVP is having a season like no other.`\
-https://nytimes.com/athletic/5945397/2024/11/25/nikola-jokic-nba-cup-ace-bailey-rutgers/
-
-**Why Ed Sheeran issued an apology to Man Utd head coach Ruben Amorim**\
-`Ed Sheeran has apologised to new Manchester United head coach Ruben Amorim for interrupting his post-match interview following Sunday&#8217;s draw at Ipswich Town.`\
-https://nytimes.com/athletic/5946604/2024/11/25/ed-sheeran-ruben-amorim-sky-sports/
 
