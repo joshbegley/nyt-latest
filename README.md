@@ -1,3 +1,7 @@
+**What to watch this week in NBA: Bucks-Heat, Thunder-Lakers and more Cup games**\
+`The NBA Cup continues this week, including five games on national TV on Black Friday.`\
+https://nytimes.com/athletic/5944305/2024/11/25/what-to-watch-nba-bucks-heat-thunder-lakers/
+
 **Utah's Kyle Whittingham: Decisions on future to be made**\
 `Whether or not Kyle Whittingham returns for his 21st season as Utah&#8217;s coach next year remains to be seen.`\
 https://nytimes.com/athletic/5947341/2024/11/25/kyle-whittingham-utah-coach-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947255/2024/11/25/indianapolis-colts-mailbag-antho
 **What to watch in college basketball this week: Kansas-Duke, Maui and Vegas tourneys**\
 `What to watch, and why to watch it, across college basketball this Thanksgiving week.`\
 https://nytimes.com/athletic/5946540/2024/11/25/what-to-watch-college-basketball-duke-kansas-maui-vegas/
-
-**Colts WR Josh Downs week to week with shoulder injury: Source**\
-`The second-year wideout leads Indianapolis in receptions, receiving yards per game and targets. `\
-https://nytimes.com/athletic/5947212/2024/11/25/colts-josh-downs-shoulder-injury-update/
 
