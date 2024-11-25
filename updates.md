@@ -1,3 +1,7 @@
+**Republicans Freak Out Over Trump’s Choice for Labor Secretary**\
+`The business wing of the party is appalled that he chose someone who supports workers’ rights.`\
+https://nytimes.com/live/2024/11/19/opinion/thepoint/republicans-freak-out-over-trumps-choice-for-labor-secretary
+
 **The Seahawks are finally playing contender-level defense. When will the offense catch up?**\
 `The Seahawks' urgency on defense is obvious, and it's the biggest reason for the team's surge. The offense needs to match that energy.`\
 https://nytimes.com/athletic/5946086/2024/11/25/seahawks-offense-geno-smith-ryan-grubb/
