@@ -1,3 +1,17 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>We&#8217;re coming up on Thanksgiving weekend, when the sport usually goes into overdrive between rivalry games, Playoff prospects and (normally) coaching changes.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5948043/2024/11/25/submit-a-question-for-stewart-mandels-college-football-mailbag-283/
+
+**Elevate Your Roman Adventure With Capital One**\
+`Tour the Italian capitol city and enjoy premium Venture X cardholder benefits at Six Senses Rome.`\
+https://nytimes.com/paidpost/capital-one/elevate-your-roman-adventure-with-capital-one.html
+
+**Kohl’s Picks C.E.O. of Michaels to Help It Turn Around**\
+`Ashley Buchanan will be the third chief executive of the department store chain since 2018.`\
+https://nytimes.com/2024/11/25/business/kohls-ashley-buchanan.html
+
 **Florida Woman Who Fatally Shot Black Neighbor Gets 25 Years in Prison**\
 `Susan Lorincz, who shot Ajike Owens, was convicted of manslaughter. The case prompted national outrage.`\
 https://nytimes.com/2024/11/25/us/susan-lorincz-sentencing-ajike-owens-manslaughter.html
