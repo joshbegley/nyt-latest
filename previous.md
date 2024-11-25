@@ -1,3 +1,7 @@
+**The Briefing: Leganes 0 Real Madrid 3: Mbappe and Bellingham continue to improve as Liverpool trip looms**\
+`We break down the key storylines from Sunday evening's game in Leganes`\
+https://nytimes.com/athletic/5945223/2024/11/25/leganes-real-madrid-result-analysis/
+
 **As New York’s Migrant Crisis Eases, Trump’s Deportation Threat Looms**\
 `New York City’s migrant shelter population has been steadily falling, but President-elect Donald Trump’s immigration stance will bring new challenges.`\
 https://nytimes.com/2024/11/25/nyregion/migrants-shelters-trump-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/world/europe/dhl-lithuania-plane-crash.html
 **Your Thanksgiving Day Watching Lineup, Plus 6 Things to Watch on TV This Week**\
 `Watch the Macy’s Day Parade, the dog show and football while the turkey is cooking, and catch up on true crime and two new shows.`\
 https://nytimes.com/2024/11/25/arts/television/your-thanksgiving-day-watching-lineup-plus-6-things-to-watch-on-tv-this-week.html
-
-**The Desire to Turn Inward Is a Delusion**\
-`Focusing on your own life and disengaging from politics can be appealing. But it is a abdication of responsibility.`\
-https://nytimes.com/2024/11/25/opinion/trump-putin-exile-russia.html
 

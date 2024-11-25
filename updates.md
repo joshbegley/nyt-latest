@@ -1,3 +1,7 @@
+**The Briefing: Leganes 0 Real Madrid 3: Mbappe and Bellingham continue to improve as Liverpool trip looms**\
+`We break down the key storylines from Sunday evening's game in Leganes`\
+https://nytimes.com/athletic/5945223/2024/11/25/leganes-real-madrid-result-analysis/
+
 **As New York’s Migrant Crisis Eases, Trump’s Deportation Threat Looms**\
 `New York City’s migrant shelter population has been steadily falling, but President-elect Donald Trump’s immigration stance will bring new challenges.`\
 https://nytimes.com/2024/11/25/nyregion/migrants-shelters-trump-nyc.html
