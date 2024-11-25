@@ -1,3 +1,11 @@
+**Sam Darnold's toughness surfaces when needed in Vikings' overtime victory over Bears**\
+`Darnold finished 22-of-34 passing for 330 yards and two touchdowns. And for the second straight week, he lifted a team that needed him.`\
+https://nytimes.com/athletic/5945140/2024/11/24/vikings-win-sam-darnold-bears/
+
+**Colts ask too much of QB Anthony Richardson in sloppy loss to Lions**\
+`The Colts have to get Jonathan Taylor going. Putting so much of the offensive burden on Richardson isn't a recipe for consistent success. `\
+https://nytimes.com/athletic/5945234/2024/11/24/colts-loss-anthony-richardson-lions/
+
 **Bryce Young's continued growth shows why Panthers should ride with him rest of the way**\
 `The Panthers were impressed with Young's performance. So was Patrick Mahomes. "I thought he played his tail off, man."`\
 https://nytimes.com/athletic/5945028/2024/11/24/panthers-loss-bryce-young-chiefs/
