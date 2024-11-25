@@ -1,3 +1,15 @@
+**Book Club: Read ‘Small Things Like These,’ by Claire Keegan, with the Book Review**\
+`In December, the Book Review Book Club will read and discuss “Small Things Like These,” a meditative Christmastime novella about a man confronting a local horror.`\
+https://nytimes.com/2024/11/25/books/review/small-things-like-these-claire-keegan-book-club.html
+
+**Jim Montgomery talks: Vision for Blues, 'whirlwind' courtship and his first task**\
+`Montgomery's vision for the Blues: "We're going to be a blue-collar team, that we're going to work, and we're going to have energy."`\
+https://nytimes.com/athletic/5946619/2024/11/25/jim-montgomery-blues-interview/
+
+**USMNT Player Tracker: Pepi the hat-trick hero, Adams' impact and Reyna returns**\
+`Our weekly round up of the European leagues' U.S. contingent includes Tyler Adams' latest cameo and Taylor Booth impressing in another cameo`\
+https://nytimes.com/athletic/5946557/2024/11/25/usmnt-pepi-adams-aaronson-reyna-tracker/
+
 **New Mexico City to Pay $20 Million to Family of Woman Shot by Police**\
 `New Mexico has among the highest rates of killings by police officers in the U.S., and officials are trying to reduce the number of deadly encounters.`\
 https://nytimes.com/2024/11/25/us/teresa-gomez-shooting-settlement-new-mexico.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5946752/2024/11/25/mike-tannenbaum-jets-gm-search/
 **In Haiti, a Grim Barometer: Even United Nations Workers Are Fleeing**\
 `A surge in gang violence over the past two weeks has led international aid organizations to rethink their staff levels in Haiti.`\
 https://nytimes.com/2024/11/25/world/americas/haiti-gang-violence-un-evacuations.html
-
-**An A.I. Granny Is Phone Scammers’ Worst Nightmare**\
-`Daisy Harris, an A.I.-generated English granny, has been stymying scammers with meandering, time-wasting conversations. But can she actually make a dent in the flood of fraud?`\
-https://nytimes.com/2024/11/25/technology/ai-granny-phone-scam.html
-
-**The ‘Rocket Docket’ Judge Who Will Decide the Fate of Google’s Ad Technology**\
-`The ruling by a federal judge, Leonie Brinkema, in an antitrust case over Google’s advertising technology could add to the internet company’s woes.`\
-https://nytimes.com/2024/11/25/technology/google-antitrust-leonie-brinkema.html
-
-**College football national title odds: Ohio State has top spot among a clear top four teams**\
-`Week 13's chaos thinned the field and a clear top four teams have emerged in the odds. Ohio State is the favorite to win the national title.`\
-https://nytimes.com/athletic/5946761/2024/11/25/college-football-national-title-odds-ohio-state-georgia-oregon-texas/
 
