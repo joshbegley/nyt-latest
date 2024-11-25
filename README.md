@@ -1,3 +1,17 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>We&#8217;re coming up on Thanksgiving weekend, when the sport usually goes into overdrive between rivalry games, Playoff prospects and (normally) coaching changes.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5948043/2024/11/25/submit-a-question-for-stewart-mandels-college-football-mailbag-283/
+
+**Elevate Your Roman Adventure With Capital One**\
+`Tour the Italian capitol city and enjoy premium Venture X cardholder benefits at Six Senses Rome.`\
+https://nytimes.com/paidpost/capital-one/elevate-your-roman-adventure-with-capital-one.html
+
+**Kohl’s Picks C.E.O. of Michaels to Help It Turn Around**\
+`Ashley Buchanan will be the third chief executive of the department store chain since 2018.`\
+https://nytimes.com/2024/11/25/business/kohls-ashley-buchanan.html
+
 **Biden White House Holds Up U.S. Contribution to Anti-Doping Agency**\
 `The administration is pressing the World Anti-Doping Agency to allow an outside audit after it failed to suspend Chinese swimmers for positive tests.`\
 https://nytimes.com/2024/11/25/us/politics/white-house-contribution-anti-doping-agency.html
@@ -25,16 +39,4 @@ https://nytimes.com/2024/11/25/us/sheriff-deputies-killed-crash-florida.html
 **Trump backs a Florida official to succeed Matt Gaetz in Congress.**\
 `Jimmy Patronis, the chief financial officer for the state, earned the president-elect’s influential endorsement on Monday before a January G.O.P. primary.`\
 https://nytimes.com/live/2024/11/25/us/trump-news/trump-backs-a-florida-official-to-succeed-matt-gaetz-in-congress
-
-**Trump Evaded Jack Smith and the Rule of Law**\
-`He will spend his presidential term with no fear of a verdict on his federal indictments.`\
-https://nytimes.com/2024/11/25/opinion/trump-evaded-jack-smith-and-the-rule-of-law.html
-
-**When Your Workouts Turn Into a Work of Art**\
-`Using the maps from his daily runs, Duncan McCabe took the Strava art trend to new heights by creating an animated stickman that has become an online sensation.`\
-https://nytimes.com/2024/11/25/style/strava-art-animation-duncan-mccabe.html
-
-**‘Get Millie Black’ Is a Fresh Take on the Cop Drama**\
-`Created by the Booker Prize-winning author Marlon James, the HBO series puts a new spin on a lot of old crime show conventions.`\
-https://nytimes.com/2024/11/25/arts/television/get-millie-black-hbo.html
 
