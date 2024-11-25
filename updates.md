@@ -1,3 +1,7 @@
+**FPL: What we learnt from Gameweek 12 - Salah and the budget forwards shine**\
+`Abdul Rehman breaks down the main talking points from Gameweek 12 so far in Fantasy Premier League `\
+https://nytimes.com/athletic/5944558/2024/11/25/fantasy-premier-league-gameweek-12-salah-haaland-cunha/
+
 **Weekend NHL rankings: Change in Boston, déjà vu in Ottawa and expected storylines**\
 `We all may be terrible at predicting the NHL, but sometimes the league offers refreshingly foreseeable storylines.`\
 https://nytimes.com/athletic/5944685/2024/11/25/weekend-nhl-rankings-bruins-senators-storylines/

@@ -1,3 +1,7 @@
+**FPL: What we learnt from Gameweek 12 - Salah and the budget forwards shine**\
+`Abdul Rehman breaks down the main talking points from Gameweek 12 so far in Fantasy Premier League `\
+https://nytimes.com/athletic/5944558/2024/11/25/fantasy-premier-league-gameweek-12-salah-haaland-cunha/
+
 **Weekend NHL rankings: Change in Boston, déjà vu in Ottawa and expected storylines**\
 `We all may be terrible at predicting the NHL, but sometimes the league offers refreshingly foreseeable storylines.`\
 https://nytimes.com/athletic/5944685/2024/11/25/weekend-nhl-rankings-bruins-senators-storylines/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/briefing/donald-trump-climate-policies.html
 **Giants' Malik Nabers is 'tired of losing,' sick of trying to explain why offense is inept**\
 `"Go out there, first, second quarter, I don’t get the ball. ... Start getting the ball when it’s 30-0. What you want me to do?”`\
 https://nytimes.com/athletic/5945280/2024/11/25/giants-loss-malik-nabers-buccaneers/
-
-**The Pulse: The NFL teams hiding behind their records**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5945365/2024/11/25/nfl-week-12-takeaways-the-pulse/
 
