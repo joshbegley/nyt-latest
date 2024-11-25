@@ -27,7 +27,7 @@ https://nytimes.com/2024/11/24/arts/television/dune-prophecy-recap-episode-2.htm
 https://nytimes.com/athletic/5944814/2024/11/24/commanders-cowboys-reversal-of-fortune/
 
 **Inside KaVontae Turpin's 'Houdini-style' TD: A spinning escape and blazing finish**\
-`KaVontae Turpin thinks his TD return might be the last time he gets an opportunity to return a kickoff this season.`\
+`Turpin thinks his TD return might be the last time he gets an opportunity to return a kickoff this season.`\
 https://nytimes.com/athletic/5945128/2024/11/24/cowboys-kavontae-turpin-kickoff-return-td-commanders/
 
 **Uruguay’s Center Left Reclaims Power in Presidential Election**\

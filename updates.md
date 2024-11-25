@@ -1,3 +1,7 @@
+**Inside KaVontae Turpin's 'Houdini-style' TD: A spinning escape and blazing finish**\
+`Turpin thinks his TD return might be the last time he gets an opportunity to return a kickoff this season.`\
+https://nytimes.com/athletic/5945128/2024/11/24/cowboys-kavontae-turpin-kickoff-return-td-commanders/
+
 **49ers fall apart in blowout loss to Packers: ‘The worst I’ve been a part of'**\
 `A prominent part of Sunday's loss: The 49ers continue to get fizzling performances from players that had been explosive in prior seasons.`\
 https://nytimes.com/athletic/5945562/2024/11/24/49ers-loss-blowout-packers/
