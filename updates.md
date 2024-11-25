@@ -1,3 +1,7 @@
+**An A.I. Granny Is Phone Scammers’ Worst Nightmare**\
+`Daisy Harris, an A.I.-generated English granny, has been stymying scammers with meandering, time-wasting conversations. But can she actually make a dent in the flood of fraud?`\
+https://nytimes.com/2024/11/25/technology/ai-granny-phone-scam.html
+
 **New Mexico City to Pay $20 Million to Family of Woman Shot by Police**\
 `New Mexico has among the highest rates of killings by police officers in the U.S., and officials are trying to reduce the number of deadly encounters.`\
 https://nytimes.com/2024/11/25/us/teresa-gomez-shooting-settlement-new-mexico.html
