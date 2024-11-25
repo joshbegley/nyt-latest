@@ -1,3 +1,11 @@
+**LA Galaxy back in Western Conference final for first time since 2014**\
+`The Galaxy are the last of any of the top-three-seeded teams in either MLS conference to move on to their respective conference final.`\
+https://nytimes.com/athletic/5945340/2024/11/24/la-galaxy-minnesota-united-mls-playoffs/
+
+**Even when the ball bounces their way, the Bears can't avoid another painful loss**\
+`Caleb Williams led a furious fourth-quarter comeback that included a recovered onside kick, but the Bears let the Vikings escape in OT.`\
+https://nytimes.com/athletic/5945004/2024/11/24/bears-painful-overtime-loss-vikings/
+
 **Sam Darnold's toughness surfaces when needed in Vikings' overtime victory over Bears**\
 `Darnold finished 22-of-34 passing for 330 yards and two touchdowns. And for the second straight week, he lifted a team that needed him.`\
 https://nytimes.com/athletic/5945140/2024/11/24/vikings-win-sam-darnold-bears/
