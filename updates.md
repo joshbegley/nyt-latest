@@ -1,3 +1,7 @@
+**Can Wall Street Billionaires Deliver on Trump’s Blue-Collar Promise?**\
+`The president-elect has named wealthy financiers for key economic positions, raising questions about how much they will follow through on promises to help the working class.`\
+https://nytimes.com/2024/11/25/us/politics/trump-billionaires-economic-nominees.html
+
 **Canucks notebook: Why Vancouver's new first line is dominating and more**\
 `Jake DeBrusk, Elias Pettersson and Kiefer Sherwood are playing dominant hockey as a trio for the Canucks.`\
 https://nytimes.com/athletic/5945903/2024/11/25/vancouver-canucks-pettersson-sherwood-debrusk/
