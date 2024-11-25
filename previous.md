@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5944064/2024/11/24/49ers-packers-score-result-takea
 https://nytimes.com/athletic/5944068/2024/11/24/cardinals-seahawks-score-result-takeaways/
 
 **Bryce Young's continued growth shows why Panthers should ride with him rest of the way**\
-`The Panthers were impressed with Bryce Young's performance. So was Patrick Mahomes. "I thought he played his tail off, man."`\
+`The Panthers were impressed with Young's performance. So was Patrick Mahomes. "I thought he played his tail off, man."`\
 https://nytimes.com/athletic/5945028/2024/11/24/panthers-loss-bryce-young-chiefs/
 
 **Greenberg: In a season of heartbreakers, the Bears add another chapter to their sad story**\

@@ -1,3 +1,7 @@
+**Bryce Young's continued growth shows why Panthers should ride with him rest of the way**\
+`The Panthers were impressed with Young's performance. So was Patrick Mahomes. "I thought he played his tail off, man."`\
+https://nytimes.com/athletic/5945028/2024/11/24/panthers-loss-bryce-young-chiefs/
+
 **Raiders QB Gardner Minshew out for season with broken collarbone: Source**\
 `Antonio Pierce hinted that Aidan O'Connell could be activated from injured reserve to play against the Chiefs on Black Friday.`\
 https://nytimes.com/athletic/5945175/2024/11/24/raiders-gardner-minshew-collarbone-injury-out-for-season/
