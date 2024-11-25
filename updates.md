@@ -1,3 +1,15 @@
+**Brighton's attacking trio Joao Pedro, Rutter and Welbeck put the Premier League on notice**\
+`Fabian Hurzeler picked the three forwards from the start for the first time on Saturday - they combined to devastating effect `\
+https://nytimes.com/athletic/5875006/2024/11/25/brighton-joao-pedro-rutter-welbeck-hurzeler/
+
+**Should Eddie Howe play Sandro Tonali and Bruno Guimaraes together?**\
+`Playing Newcastle's two star midfielders together hasn't proven the best choice so far`\
+https://nytimes.com/athletic/5937034/2024/11/25/eddie-howe-tonali-guimaraes/
+
+**Oliver Glasner wanted Crystal Palace back on the front foot - he got his wish**\
+`From passive and ponderous, Palace were positive against Villa - none more so than Ismaila Sarr. Can it be a turning point for their season?`\
+https://nytimes.com/athletic/5941962/2024/11/25/crystal-palace-oliver-glasner-front-foot/
+
 **The Briefing: Are Man City's players the wrong ages? How long will Amorim need? Was Cooper always doomed?**\
 `Analysis of the key talking points from the Premier League weekend and a look at the week ahead`\
 https://nytimes.com/athletic/5944500/2024/11/25/man-city-wrong-ages/
