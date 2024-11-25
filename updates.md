@@ -1,3 +1,7 @@
+**Mountain West files motion to dismiss Pac-12 lawsuit challenging poaching penalties**\
+`The Pac-12 lost 10 members to other power conferences this year.`\
+https://nytimes.com/athletic/5947496/2024/11/25/mountain-west-motion-pac-12-lawsuit-poaching-penalties/
+
 **10 things Blues fans should know about Jim Montgomery**\
 `From players he loves to personality traits to stylistic preferences, here are takeaways on Montgomery from his time with the Bruins.`\
 https://nytimes.com/athletic/5947528/2024/11/25/jim-montgomery-bruins-blues-learnings/

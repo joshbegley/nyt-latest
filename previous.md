@@ -1,3 +1,7 @@
+**Mountain West files motion to dismiss Pac-12 lawsuit challenging poaching penalties**\
+`The Pac-12 lost 10 members to other power conferences this year.`\
+https://nytimes.com/athletic/5947496/2024/11/25/mountain-west-motion-pac-12-lawsuit-poaching-penalties/
+
 **10 things Blues fans should know about Jim Montgomery**\
 `From players he loves to personality traits to stylistic preferences, here are takeaways on Montgomery from his time with the Bruins.`\
 https://nytimes.com/athletic/5947528/2024/11/25/jim-montgomery-bruins-blues-learnings/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009844587/biden-turkey-pardon-thanks
 **Squirting Cucumbers Shoot Their Seeds Like Botanical Bombardiers**\
 `Scientists say they’ve worked out how the plant can fire its seeds up to almost 40 feet.`\
 https://nytimes.com/2024/11/25/science/squirting-cucumbers-video.html
-
-**The Certainty of Uncertainty**\
-`There’s no avoiding uncertainty in economics, so we need tools to deal with it`\
-https://nytimes.com/2024/11/25/opinion/economics-business-risk.html
 
