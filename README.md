@@ -1,6 +1,6 @@
 **Lions WR Jameson Williams will not face weapons charges, prosecutor says**\
 `The decision stems from an incident last month when Williams was nearly brought to jail for lacking a concealed pistol license.`\
-https://nytimes.com/athletic/5947806/2024/11/25/detroit-lions-jameson-williams-will-not-face-weapons-charges-arrest/
+https://nytimes.com/athletic/5947806/2024/11/25/detroit-lions-jameson-williams-weapons-charges/
 
 **49ers minutia minute: Brock Purdy passes first test; Dre Greenlaw's window opens**\
 `For the second time in as many matchups, the Packers kept their footing on a slick field while the 49ers kept slip sliding away.`\
