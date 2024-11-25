@@ -1,3 +1,11 @@
+**The Nosy and Deadly 81-Year-Old With an 8-Year-Old Blackmailer**\
+`Our columnist on new thrillers by Christopher Bollen, M.W. Craven and Marie Tierney.`\
+https://nytimes.com/2024/11/25/books/review/new-thrillers.html
+
+**Thousands Defy Pakistan Crackdown to Rally for Imran Khan’s Release**\
+`Protesters march to Pakistan’s capital amid a city lockdown and violent clashes with the police as political tensions surge.`\
+https://nytimes.com/2024/11/25/world/asia/pakistan-crackdown-imran-khan.html
+
 **F1’s second Las Vegas GP was a step up — and proved it doesn’t need to try so hard **\
 `The Las Vegas GP toned itself down in year two, but retained what makes it so unique.`\
 https://nytimes.com/athletic/5946973/2024/11/25/f1-las-vegas-review-year-two/
