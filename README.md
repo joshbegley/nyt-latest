@@ -1,3 +1,11 @@
+**Are Villa a danger to themselves from their own corners?**\
+`Unai Emery is renowned for his forensic analysis and they remain a constant threat from set-pieces — but they are now a danger to themselves`\
+https://nytimes.com/athletic/5942193/2024/11/25/aston-villa-own-corners-unai-emery/
+
+**Goodison Park is teetering and tetchy - pressure is building on Dyche**\
+`The voices of disquiet are getting louder at Everton — and the December fixture list looks treacherous. All is not well at Goodison Park`\
+https://nytimes.com/athletic/5942537/2024/11/25/everton-sean-dyche-goodison-park-pressure/
+
 **Brighton's attacking trio Joao Pedro, Rutter and Welbeck put the Premier League on notice**\
 `Fabian Hurzeler picked the three forwards from the start for the first time on Saturday - they combined to devastating effect `\
 https://nytimes.com/athletic/5875006/2024/11/25/brighton-joao-pedro-rutter-welbeck-hurzeler/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5945756/2024/11/25/packers-win-josh-jacobs-xavier-m
 **Amorim's first Man Utd game: Emotion, ideas and 'too much thinking'**\
 `It took only 81 seconds for the 'idea' Amorim promised to come to fruition, but United's new head coach knows there is a lot of work ahead`\
 https://nytimes.com/athletic/5944516/2024/11/25/ruben-amorim-man-united-ipswich/
-
-**Chelsea have blown teams away under Bompastor - now they've shown they can win ugly**\
-`The champions' new coach makes it 12 out of 12 as they show another side to their game against Manchester United`\
-https://nytimes.com/athletic/5944349/2024/11/25/chelsea-can-win-ugly-too-bompastor/
-
-**Conor McGregor verdict should make football think twice about associating with him**\
-`In October, Conor McGregor was play-fighting on the pitch at the Emirates, last week he was found liable for an assault of a woman in 2018`\
-https://nytimes.com/athletic/5943784/2024/11/25/conor-mcgregor-verdict-football/
 
