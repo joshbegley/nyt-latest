@@ -1,3 +1,11 @@
+**'We played soft': Giants show more fire in locker room than during another humiliating loss**\
+`Cracks in Brian Daboll’s hold on his players began to show for the first time Sunday. That was inevitable, and it might keep getting worse.`\
+https://nytimes.com/athletic/5945021/2024/11/24/giants-loss-brian-daboll-buccaneers/
+
+**Washington Curtails Intel’s Chip Grant After Company Stumbles**\
+`The Biden administration is reducing its award to the pioneering chip maker to less than $8 billion, from $8.5 billion.`\
+https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
+
 **Washington Curtails Intel’s Chip Grant After Company Stumbles**\
 `The Biden Administration is reducing its award to the pioneering chip maker to less than $8 billion, from $8.5 billion.`\
 https://nytimes.com/2024/11/24/business/washington-curtails-intel-grant.html
