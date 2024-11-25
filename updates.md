@@ -1,3 +1,11 @@
+**Judge denies request to block SJSU volleyball player from tournament**\
+`The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
+https://nytimes.com/athletic/5947424/2024/11/25/san-jose-state-volleyball-lawsuit-transgender/
+
+**Tuesday Briefing: Trump’s Criminal Cases Likely to Be Dismissed**\
+`Plus, a possible cease-fire deal in Lebanon.`\
+https://nytimes.com/2024/11/25/briefing/trump-jack-smith-lebanon-israel-pakistan-imran-khan.html
+
 **Mountain West files motion to dismiss Pac-12 lawsuit challenging poaching penalties**\
 `The Pac-12 lost 10 members to other power conferences this year.`\
 https://nytimes.com/athletic/5947496/2024/11/25/mountain-west-motion-pac-12-lawsuit-poaching-penalties/

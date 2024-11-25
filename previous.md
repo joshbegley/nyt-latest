@@ -1,3 +1,11 @@
+**Judge denies request to block SJSU volleyball player from tournament**\
+`The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
+https://nytimes.com/athletic/5947424/2024/11/25/san-jose-state-volleyball-lawsuit-transgender/
+
+**Tuesday Briefing: Trump’s Criminal Cases Likely to Be Dismissed**\
+`Plus, a possible cease-fire deal in Lebanon.`\
+https://nytimes.com/2024/11/25/briefing/trump-jack-smith-lebanon-israel-pakistan-imran-khan.html
+
 **Mountain West files motion to dismiss Pac-12 lawsuit challenging poaching penalties**\
 `The Pac-12 lost 10 members to other power conferences this year.`\
 https://nytimes.com/athletic/5947496/2024/11/25/mountain-west-motion-pac-12-lawsuit-poaching-penalties/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5947184/2024/11/25/rangers-kreider-trouba-trade-dis
 **It's 11am. It's Monday. Time to go to the pub with Emma Hayes...**\
 `Plans for American soccer, thinking about the game through a female lens, and staying grounded`\
 https://nytimes.com/athletic/5947302/2024/11/25/emma-hayes-press-conference-pub-uswnt-england/
-
-**Biden Pardons the Last Turkeys of His Presidency**\
-`President Biden, granting clemency to a pair of turkeys in an annual White House ceremony, expressed gratitude for serving as commander in chief.`\
-https://nytimes.com/video/us/politics/100000009844587/biden-turkey-pardon-thanksgiving.html
-
-**Squirting Cucumbers Shoot Their Seeds Like Botanical Bombardiers**\
-`Scientists say they’ve worked out how the plant can fire its seeds up to almost 40 feet.`\
-https://nytimes.com/2024/11/25/science/squirting-cucumbers-video.html
 
