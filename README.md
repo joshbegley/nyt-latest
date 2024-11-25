@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/25/style/seven-days-personals-vermont.html
 
 **Ex-Dancer Accuses Shen Yun of Forced Labor and Trafficking in Lawsuit**\
-`The former performer said the prominent dance group coerced children into performing and making money for Shen Yun.`\
+`The former performer, who was recruited to join Shen Yun at age 13, said the prominent dance group coerced children into making money for it.`\
 https://nytimes.com/2024/11/25/nyregion/shen-yun-lawsuit-trafficking-labor.html
 
 **Macy’s Discovers Employee Hid Millions in Delivery Expenses**\
