@@ -1,3 +1,7 @@
+**Spurs' Vicario has surgery after right ankle fracture**\
+`Tottenham Hotspur goalkeeper Gugliemo Vicario has undergone surgery after sustaining a fracture to his right ankle.`\
+https://nytimes.com/athletic/5947455/2024/11/25/guglielmo-vicario-injury-tottenham/
+
 **What to watch this week in NBA: Bucks-Heat, Thunder-Lakers and more Cup games**\
 `The NBA Cup continues this week, including five games on national TV on Black Friday.`\
 https://nytimes.com/athletic/5944305/2024/11/25/what-to-watch-nba-bucks-heat-thunder-lakers/
