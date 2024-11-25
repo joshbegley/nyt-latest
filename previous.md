@@ -1,3 +1,7 @@
+**It's 11am. It's Monday. Time to go to the pub with Emma Hayes...**\
+`Plans for American soccer, thinking about the game through a female lens, and staying grounded`\
+https://nytimes.com/athletic/5947302/2024/11/25/emma-hayes-press-conference-pub-uswnt-england/
+
 **Biden Pardons the Last Turkeys of His Presidency**\
 `President Biden, granting clemency to a pair of turkeys in an annual White House ceremony, expressed gratitude for serving as commander in chief.`\
 https://nytimes.com/video/us/politics/100000009844587/biden-turkey-pardon-thanksgiving.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947454/2024/11/25/penguins-trade-philip-tomasino-p
 **Widespread Microsoft Outage Takes Email and Videoconferencing Offline**\
 `The software giant said it was working on a fix for the issue, which has affected the many companies that use Microsoft’s products.`\
 https://nytimes.com/2024/11/25/technology/microsoft-outlook-teams-outage.html
-
-**How to watch Auburn vs. Iowa State, the Maui Invitational's opening night headliner**\
-`Top-ranked programs in Auburn and Iowa State headline the Maui Invitational on Monday night.`\
-https://nytimes.com/athletic/5947191/2024/11/25/auburn-iowa-state-maui-watch-odds/
 

@@ -1,3 +1,7 @@
+**It's 11am. It's Monday. Time to go to the pub with Emma Hayes...**\
+`Plans for American soccer, thinking about the game through a female lens, and staying grounded`\
+https://nytimes.com/athletic/5947302/2024/11/25/emma-hayes-press-conference-pub-uswnt-england/
+
 **Biden Pardons the Last Turkeys of His Presidency**\
 `President Biden, granting clemency to a pair of turkeys in an annual White House ceremony, expressed gratitude for serving as commander in chief.`\
 https://nytimes.com/video/us/politics/100000009844587/biden-turkey-pardon-thanksgiving.html
