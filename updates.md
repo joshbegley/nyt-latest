@@ -1,3 +1,11 @@
+**Devoted Aide Who Keeps Good News Flowing Will Follow Trump to the White House**\
+`Natalie Harp, a 33-year-year-old former anchor on a right-wing cable show, is poised to become the primary conveyor belt for information to and from the president.`\
+https://nytimes.com/2024/11/25/us/politics/trump-natalie-harp.html
+
+**College football Week 14 odds: Texas is favored by almost a touchdown at Texas A&M**\
+`Rivalry week is upon us. The final week of the college football regular season has tons of big games, including Texas at Texas A&M.`\
+https://nytimes.com/athletic/5946835/2024/11/25/college-football-week-14-odds-texas-texas-am-ohio-state-michigan/
+
 **Celtics' Kristaps Porziņģis probable to make season debut vs. Clippers**\
 `Porziņģis missed 25 regular-season games and the majority of the playoffs last season with an injury.`\
 https://nytimes.com/athletic/5946972/2024/11/25/boston-celtics-kristaps-porzingis-debut-clippers/

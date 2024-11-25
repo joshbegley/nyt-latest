@@ -1,3 +1,11 @@
+**Devoted Aide Who Keeps Good News Flowing Will Follow Trump to the White House**\
+`Natalie Harp, a 33-year-year-old former anchor on a right-wing cable show, is poised to become the primary conveyor belt for information to and from the president.`\
+https://nytimes.com/2024/11/25/us/politics/trump-natalie-harp.html
+
+**College football Week 14 odds: Texas is favored by almost a touchdown at Texas A&M**\
+`Rivalry week is upon us. The final week of the college football regular season has tons of big games, including Texas at Texas A&M.`\
+https://nytimes.com/athletic/5946835/2024/11/25/college-football-week-14-odds-texas-texas-am-ohio-state-michigan/
+
 **Celtics' Kristaps Porziņģis probable to make season debut vs. Clippers**\
 `Porziņģis missed 25 regular-season games and the majority of the playoffs last season with an injury.`\
 https://nytimes.com/athletic/5946972/2024/11/25/boston-celtics-kristaps-porzingis-debut-clippers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/25/world/middleeast/israel-dead-rabbi-uae-arrests.ht
 **Book Club: Read ‘Small Things Like These,’ by Claire Keegan, with the Book Review**\
 `In December, the Book Review Book Club will read and discuss “Small Things Like These,” a meditative Christmastime novella about a man confronting a local horror.`\
 https://nytimes.com/2024/11/25/books/review/small-things-like-these-claire-keegan-book-club.html
-
-**Jim Montgomery talks: Vision for Blues, whirlwind hiring process and his first task**\
-`Montgomery's vision for the Blues: "That we're going to be a blue-collar team, that we're going to work, and we're going to have energy."`\
-https://nytimes.com/athletic/5946619/2024/11/25/jim-montgomery-blues-interview/
-
-**USMNT Player Tracker: Pepi the hat-trick hero, Adams' impact and Reyna returns**\
-`Our weekly round up of the European leagues' U.S. contingent includes Tyler Adams' latest cameo and Taylor Booth impressing in another cameo`\
-https://nytimes.com/athletic/5946557/2024/11/25/usmnt-pepi-adams-aaronson-reyna-tracker/
 
