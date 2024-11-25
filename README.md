@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5944676/2024/11/25/twins-roster-projection-offseaso
 https://nytimes.com/athletic/5944993/2024/11/25/doug-armstrong-jim-montgomery-bold-hire/
 
 **Super League, Ballon d'Or and UEFA - Madrid president Perez's speech and what he meant**\
-`Perez spoke to Madrid's general assembly for 85 minutes including questions on Sunday, covering some big issues`\
+`Perez spoke to Madrid's general assembly for 85 minutes, including questions, on Sunday and covered some big issues`\
 https://nytimes.com/athletic/5946080/2024/11/25/super-league-real-madrid-perez/
 
 **Lowetide: Which Oilers prospects are spiking in AHL Bakersfield?**\
