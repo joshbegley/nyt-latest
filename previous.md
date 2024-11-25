@@ -1,3 +1,7 @@
+**NFL removes Patriots' Jabrill Peppers from commissioner's exempt list**\
+`Peppers had been on the list since Oct. 9 following his arrest on assault charges.`\
+https://nytimes.com/athletic/5947811/2024/11/25/jabrill-peppers-patriots-exempt-list/
+
 **Submit your NBA questions for ‘The Athletic NBA Daily’ podcast mailbag**\
 `Let us know what you think about the first month of the 2024-25 NBA season.`\
 https://nytimes.com/athletic/5939460/2024/11/25/nba-podcast-mailbag-athletic-daily/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947424/2024/11/25/san-jose-state-volleyball-lawsui
 **Tuesday Briefing: Trump’s Criminal Cases Likely to Be Dismissed**\
 `Plus, a possible cease-fire deal in Lebanon.`\
 https://nytimes.com/2024/11/25/briefing/trump-jack-smith-lebanon-israel-pakistan-imran-khan.html
-
-**Mountain West files motion to dismiss Pac-12 lawsuit challenging poaching penalties**\
-`The Pac-12 lost 10 members to other power conferences this year.`\
-https://nytimes.com/athletic/5947496/2024/11/25/mountain-west-motion-pac-12-lawsuit-poaching-penalties/
 

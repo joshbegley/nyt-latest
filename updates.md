@@ -1,3 +1,7 @@
+**NFL removes Patriots' Jabrill Peppers from commissioner's exempt list**\
+`Peppers had been on the list since Oct. 9 following his arrest on assault charges.`\
+https://nytimes.com/athletic/5947811/2024/11/25/jabrill-peppers-patriots-exempt-list/
+
 **Submit your NBA questions for ‘The Athletic NBA Daily’ podcast mailbag**\
 `Let us know what you think about the first month of the 2024-25 NBA season.`\
 https://nytimes.com/athletic/5939460/2024/11/25/nba-podcast-mailbag-athletic-daily/
