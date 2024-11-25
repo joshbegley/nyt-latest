@@ -1,3 +1,11 @@
+**How to watch Auburn vs. Iowa State, the Maui Invitational's opening night headliner**\
+`Top-ranked programs in Auburn and Iowa State headline the Maui Invitational on Monday night.`\
+https://nytimes.com/athletic/5947191/2024/11/25/auburn-iowa-state-maui-watch-odds/
+
+**Nan Goldin Challenges Germany on What Artists Can Say About Israel**\
+`A speech by the artist at an exhibition of her work was followed by protests from her supporters and an uproar in the news media.`\
+https://nytimes.com/2024/11/25/arts/design/nan-goldin-germany-gaza.html
+
 **Spurs' Vicario has surgery after right ankle fracture**\
 `Tottenham Hotspur goalkeeper Gugliemo Vicario has undergone surgery after sustaining a fracture to his right ankle.`\
 https://nytimes.com/athletic/5947455/2024/11/25/guglielmo-vicario-injury-tottenham/

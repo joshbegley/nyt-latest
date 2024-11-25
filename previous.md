@@ -1,3 +1,11 @@
+**How to watch Auburn vs. Iowa State, the Maui Invitational's opening night headliner**\
+`Top-ranked programs in Auburn and Iowa State headline the Maui Invitational on Monday night.`\
+https://nytimes.com/athletic/5947191/2024/11/25/auburn-iowa-state-maui-watch-odds/
+
+**Nan Goldin Challenges Germany on What Artists Can Say About Israel**\
+`A speech by the artist at an exhibition of her work was followed by protests from her supporters and an uproar in the news media.`\
+https://nytimes.com/2024/11/25/arts/design/nan-goldin-germany-gaza.html
+
 **Spurs' Vicario has surgery after right ankle fracture**\
 `Tottenham Hotspur goalkeeper Gugliemo Vicario has undergone surgery after sustaining a fracture to his right ankle.`\
 https://nytimes.com/athletic/5947455/2024/11/25/guglielmo-vicario-injury-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5947229/2024/11/25/angels-sign-yusei-kikuchi-next-s
 **College Football Playoff 2024 projections: Indiana hangs on as Alabama, Ole Miss fall out**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/25/college-football-playoff-projections-odds/
-
-**Whitecaps part ways with head coach Sartini**\
-`Sartini took over in 2021 and led the Canadian side to the postseason appearances in three of the last four years.`\
-https://nytimes.com/athletic/5947232/2024/11/25/vanni-sartini-whitecaps-next-coach/
-
-**Submit a question for James Boyd’s Indianapolis Colts mailbag**\
-`Despite losing four of their past five games, the Colts are still in the playoff hunt. Can Anthony Richardson lead them there?`\
-https://nytimes.com/athletic/5947255/2024/11/25/indianapolis-colts-mailbag-anthony-richardson/
 
