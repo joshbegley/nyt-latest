@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5945663/2024/11/25/clippers-succeed-76ers-struggle/
 https://nytimes.com/athletic/5945907/2024/11/25/eagles-brandon-graham-injured-tricep/
 
 **DHL Cargo Plane Crashes Near Airport in Lithuania, Killing 1**\
-`The crash near Vilnius Airport sparked a fire in a residential area, an airport official said. Four people were on board.`\
+`The crash near Vilnius Airport sparked a fire in a residential area, officials said. One person on board was killed and the other three were hospitalized.`\
 https://nytimes.com/2024/11/25/world/europe/dhl-lithuania-plane-crash.html
 
 **Your Thanksgiving Day Watching Lineup, Plus 6 Things to Watch on TV This Week**\

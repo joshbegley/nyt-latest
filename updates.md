@@ -1,3 +1,7 @@
+**DHL Cargo Plane Crashes Near Airport in Lithuania, Killing 1**\
+`The crash near Vilnius Airport sparked a fire in a residential area, officials said. One person on board was killed and the other three were hospitalized.`\
+https://nytimes.com/2024/11/25/world/europe/dhl-lithuania-plane-crash.html
+
 **Nicolas Pepe exclusive: 'Arsenal spent a lot of money on me and I paid the price for it'**\
 `Pepe is enjoying his football again at Villarreal after his time at Arsenal turned sour as he was worn down by abuse online`\
 https://nytimes.com/athletic/5934816/2024/11/25/nicolas-pepe-interview-arsenal-emery-villarreal/
