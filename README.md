@@ -1,3 +1,7 @@
+**Former Kentucky Sheriff Arraigned on Murder Charge in Judge Shooting**\
+`The former sheriff, Shawn Stines, was indicted last week after a local judge was shot to death in his chambers in September.`\
+https://nytimes.com/2024/11/25/us/kentucky-sheriff-arraigned-judge-shooting.html
+
 **GM joining F1 is a big win for the storied U.S. motorsports brand**\
 `GM has seen decades of success in racing — but largely on a domestic level. Racing in F1 could change that dramatically.`\
 https://nytimes.com/athletic/5947705/2024/11/25/general-motors-joins-f1-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/us/menendez-brothers-early-release-delayed.html
 **Arteta wants Arsenal to be 'ruthless' as they search for away win in Europe**\
 `Mikel Arteta has challenged his Arsenal team to find the missing ingredient in the Champions League and end their year-long run without a win on the road.`\
 https://nytimes.com/athletic/5947641/2024/11/25/mikel-arteta-arsenal-sporting/
-
-**Yusei Kikuchi helps the Angels, but he can't be their big offseason move: Law**\
-`The Angels need a lot of help to go from also-ran to contender. Kikuchi moves them in the right direction but they still need a lot more.`\
-https://nytimes.com/athletic/5947563/2024/11/25/yusei-kikuchi-angels-signing-analysis/
 
