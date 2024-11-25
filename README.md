@@ -1,4 +1,4 @@
-**Traffic Accident Kills 3 Florida Deputies in a ‘Gut Punch’**\
+**Driver Kills 3 Florida Deputies in a ‘Gut Punch’ to Palm Beach County**\
 `Thee members of the motorcycle unit at the Palm Beach County Sheriff’s Office were struck by a driver on Thursday. Two died that day, and a third who had been in critical condition died on Monday.`\
 https://nytimes.com/2024/11/25/us/sheriff-deputies-killed-crash-florida.html
 
