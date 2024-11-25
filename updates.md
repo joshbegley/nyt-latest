@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Marner's commanding performance drives win**\
+`Marner made it happen for the Leafs' first game against the Utah Hockey Club.`\
+https://nytimes.com/athletic/5944951/2024/11/24/maple-leafs-report-cards-marner-utah/
+
 **Inside KaVontae Turpin's 'Houdini-style' TD: A spinning escape and blazing finish**\
 `Turpin thinks his TD return might be the last time he gets an opportunity to return a kickoff this season.`\
 https://nytimes.com/athletic/5945128/2024/11/24/cowboys-kavontae-turpin-kickoff-return-td-commanders/
