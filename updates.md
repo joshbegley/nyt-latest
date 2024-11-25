@@ -1,3 +1,7 @@
+**New York Giants fan survey: Should Brian Daboll, Joe Schoen return in 2025?**\
+`Here's your chance to let us know whether you believe the current regime can turn the Giants into contenders — or if changes must be made.`\
+https://nytimes.com/athletic/5933125/2024/11/25/new-york-giants-brian-daboll-joe-schoen-survey/
+
 **A disconnect between manager, squad and fans - how Cooper's time at Leicester came to an end**\
 `Leicester have not moved far from the position they were in last summer, when Cooper was appointed — they cannot make the same mistake again`\
 https://nytimes.com/athletic/5944299/2024/11/25/steve-cooper-leicester-sacking/
