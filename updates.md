@@ -1,3 +1,7 @@
+**Canucks notebook: Why Vancouver's new first line is dominating and more**\
+`Jake DeBrusk, Elias Pettersson and Kiefer Sherwood are playing dominant hockey as a trio for the Canucks.`\
+https://nytimes.com/athletic/5945903/2024/11/25/vancouver-canucks-pettersson-sherwood-debrusk/
+
 **Hollinger's Week That Was: It's Nikola Jokić's world; scouting Ace Bailey; NBA Cup craziness**\
 `For a player who has done so many unprecedented things, the three-time MVP is having a season like no other.`\
 https://nytimes.com/athletic/5945397/2024/11/25/nikola-jokic-nba-cup-ace-bailey-rutgers/
