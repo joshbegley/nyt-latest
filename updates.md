@@ -1,3 +1,7 @@
+**How Rangers failed to play to 'standard' despite attempts to shake things up: 4 takeaways**\
+`The Rangers dropped their third straight game, 5-2, to the Blues on Monday.`\
+https://nytimes.com/athletic/5948527/2024/11/25/rangers-blues-takeaways-kreider-trouba/
+
 **How Connor Hellebuyck stole latest Jets victory over Wild: 3 takeaways**\
 `Hellebuyck made 38 of his 43 saves in the first two periods and the Wild ran out of energy early as the Jets took the 4-1 win.`\
 https://nytimes.com/athletic/5948291/2024/11/25/wild-jets-connor-hellebuyck-takeaways/

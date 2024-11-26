@@ -14,7 +14,7 @@ https://nytimes.com/2024/11/25/business/biden-loans-ev-auto-industry.html
 `Bissonnette said he fought with 7 different people in total. Six of those men were accussed of assault and disorderly conduct.`\
 https://nytimes.com/athletic/5948580/2024/11/25/paul-bissonnette-nhl-assault-group/
 
-**How Rangers failed to play to their 'standard' despite attempts to shake things up: 4 takeaways**\
+**How Rangers failed to play to 'standard' despite attempts to shake things up: 4 takeaways**\
 `The Rangers dropped their third straight game, 5-2, to the Blues on Monday.`\
 https://nytimes.com/athletic/5948527/2024/11/25/rangers-blues-takeaways-kreider-trouba/
 
