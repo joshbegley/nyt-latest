@@ -1,3 +1,7 @@
+**The Pulse: The HarBowl lived up to the hype**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5948364/2024/11/26/chargers-ravens-harbaugh-the-pulse/
+
 **Arsenal's Wubben-Moy replaces Man Utd's Le Tissier in England squad**\
 `Arsenal defender Lotte Wubben-Moy has been called up to the England squad for their upcoming friendlies.`\
 https://nytimes.com/athletic/5948992/2024/11/26/england-women-squad-wubben-moy-le-tissier/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947779/2024/11/26/justin-jefferson-vikings-bears-u
 **Last summer, William and Alex Nylander hatched a plan — to help the Maple Leafs together**\
 `The brothers' summer dream and long-shot idea to help the Maple Leafs win together is now a reality.`\
 https://nytimes.com/athletic/5947451/2024/11/26/maple-leafs-william-alex-nylander/
-
-**NFL QB stock report, Week 13: Can Daniel Jones become next Baker Mayfield or Sam Darnold?**\
-`Jones would do well to consider his next team's entire situation rather than the path of least resistance to playing time.`\
-https://nytimes.com/athletic/5947236/2024/11/26/nfl-qb-stock-report-rankings-daniel-jones-baker-mayfield/
 
