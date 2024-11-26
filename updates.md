@@ -1,3 +1,7 @@
+**The Celtics could win without Kristaps Porziņģis, but they're far more powerful with him**\
+`After missing the first 17 games of the regular season while recovering from offseason ankle surgery, Porziņģis is back.`\
+https://nytimes.com/athletic/5948719/2024/11/26/celtics-clippers-kristaps-porzingis-back-from-injury/
+
 **She Was the Most Powerful Woman in the World. And She Isn’t Ready to Say Sorry.**\
 `In her memoir, the former German chancellor doesn’t take the chance to make amends.`\
 https://nytimes.com/2024/11/26/opinion/angela-merkel-book-freedom.html

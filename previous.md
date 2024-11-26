@@ -1,3 +1,7 @@
+**The Celtics could win without Kristaps Porziņģis, but they're far more powerful with him**\
+`After missing the first 17 games of the regular season while recovering from offseason ankle surgery, Porziņģis is back.`\
+https://nytimes.com/athletic/5948719/2024/11/26/celtics-clippers-kristaps-porzingis-back-from-injury/
+
 **She Was the Most Powerful Woman in the World. And She Isn’t Ready to Say Sorry.**\
 `In her memoir, the former German chancellor doesn’t take the chance to make amends.`\
 https://nytimes.com/2024/11/26/opinion/angela-merkel-book-freedom.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946821/2024/11/26/mohamed-salah-contract-liverpool
 **Auburn claws back for dramatic Maui Invitational win over Iowa State**\
 `Auburn trailed by as many as 18 points in the first half before rattling off a 20-4 run out of intermission.`\
 https://nytimes.com/athletic/5948710/2024/11/26/auburn-iowa-state-johni-broome-maui-invitational/
-
-**Bayern Munich vs PSG: Four years after meeting in the Champions League final, how have they changed?**\
-`As the two European giants meet again, we assess the profile, tactics and progress of each side`\
-https://nytimes.com/athletic/5946229/2024/11/26/bayern-munich-vs-psg-four-years-after-meeting-in-the-champions-league-final-whats-changed/
 
