@@ -1,3 +1,7 @@
+**Explained: Baller League - the influencer-backed 'new era for football'**\
+`What is the new concept and is it really the revolution organisers are suggesting?`\
+https://nytimes.com/athletic/5949002/2024/11/26/baller-league-explained-ksi-ishowspeed/
+
 **Chargers' loss to Ravens shows just how much work Jim Harbaugh still has to do**\
 `Harbaugh and GM Joe Hortiz have Los Angeles on an upward trajectory, but the roster limitations were on display Monday vs. Baltimore.`\
 https://nytimes.com/athletic/5948879/2024/11/26/chargers-loss-harbaugh-ravens/
