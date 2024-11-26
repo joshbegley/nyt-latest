@@ -1,3 +1,7 @@
+**Jacob Trouba responds to trade talk after Rangers put him back on the block**\
+`Trouba on being involved in a fresh round of trade talk: "You've got to kind of block all that out and just focus on playing hockey."`\
+https://nytimes.com/athletic/5950260/2024/11/26/jacob-youve-got-to-block-all-that-out-jacob-trouba-tries-to-focus-on-the-rangers-rather-than-the-rumors/
+
 **Market share report: Jonnu Smith reaches stud status; Ameer Abdullah is a worthy pickup for Week 13**\
 `In his latest market report, Michael Salfino says that Jonnu Smith is in a perfect situation as the top option in the Miami passing game.`\
 https://nytimes.com/athletic/5950329/2024/11/26/fantasy-football-market-share-report-week-12-2/

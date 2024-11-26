@@ -1,3 +1,7 @@
+**Jacob Trouba responds to trade talk after Rangers put him back on the block**\
+`Trouba on being involved in a fresh round of trade talk: "You've got to kind of block all that out and just focus on playing hockey."`\
+https://nytimes.com/athletic/5950260/2024/11/26/jacob-youve-got-to-block-all-that-out-jacob-trouba-tries-to-focus-on-the-rangers-rather-than-the-rumors/
+
 **Market share report: Jonnu Smith reaches stud status; Ameer Abdullah is a worthy pickup for Week 13**\
 `In his latest market report, Michael Salfino says that Jonnu Smith is in a perfect situation as the top option in the Miami passing game.`\
 https://nytimes.com/athletic/5950329/2024/11/26/fantasy-football-market-share-report-week-12-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5950166/2024/11/26/dabo-swinney-nil-revenue-sharing
 **Shedeur Sanders, Travis Hunter will play for Colorado in bowl game**\
 `Both Shedeur Sanders and Travis Hunter have been rumored to be in play for the No. 1 pick in next year’s NFL Draft.`\
 https://nytimes.com/athletic/5950358/2024/11/26/shedeur-sanders-travis-hunter-bowl-colorado/
-
-**TV on the Radio, Brooklyn Rock Veterans, Return to the Stage**\
-`The acclaimed band, which emerged during the 2000s indie boom, is performing a series of live shows commemorating the 20th anniversary of its debut album.`\
-https://nytimes.com/2024/11/26/arts/music/tv-on-the-radio-live-shows.html
 
