@@ -1,5 +1,9 @@
 **Here are the latest developments.**\
 `Under the deal, both sides will first observe a 60-day truce, during which Israel will withdraw from Lebanon and Hezbollah will move its fighters north.`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/israel-hezbollah-lebanon-cease-fire
+
+**Here are the latest developments.**\
+`Under the deal, both sides will first observe a 60-day truce, during which Israel will withdraw from Lebanon and Hezbollah will move its fighters north.`\
 https://nytimes.com/2024/11/26/world/middleeast/israel-hezbollah-lebanon-cease-fire.html
 
 **The Migrant Caravans Trump Derides Rarely Make It Close to the U.S.**\
