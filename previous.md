@@ -1,3 +1,7 @@
+**Victor Wembanyama's ups and downs this season: Is he shooting too many 3s?**\
+`Opponents are putting their best perimeter and most aggressive defenders on Wembanyama.`\
+https://nytimes.com/athletic/5949516/2024/11/26/victor-wembanyama-ups-downs-spurs/
+
 **A 2024 World Series champion Dodgers full playoff pool share is worth $477K**\
 `The total amount of money split between the 12 MLB postseason teams this year, $129.1 million, was a record. `\
 https://nytimes.com/athletic/5949764/2024/11/26/world-series-dodgers-mlb-playoff-share/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/climate/cop29-un-climate-negotiations.html
 **Starbucks Among Companies Affected by Ransomware Attack**\
 `Blue Yonder, which provides supply chain management software for thousands of companies, said a cyberattack had disrupted some services.`\
 https://nytimes.com/2024/11/26/business/blue-yonder-ransomware-attack-starbucks.html
-
-**Super Bowl 2025 odds: Lions, Chiefs lead. Eagles, Ravens rising**\
-`The Detroit Lions solidified their spot at the top of the Super Bowl odds heading into Week 13. Here's where the contenders stand.`\
-https://nytimes.com/athletic/5949652/2024/11/26/super-bowl-2025-odds-lions-chiefs-eagles-ravens/
 

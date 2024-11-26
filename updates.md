@@ -1,3 +1,7 @@
+**Victor Wembanyama's ups and downs this season: Is he shooting too many 3s?**\
+`Opponents are putting their best perimeter and most aggressive defenders on Wembanyama.`\
+https://nytimes.com/athletic/5949516/2024/11/26/victor-wembanyama-ups-downs-spurs/
+
 **A 2024 World Series champion Dodgers full playoff pool share is worth $477K**\
 `The total amount of money split between the 12 MLB postseason teams this year, $129.1 million, was a record. `\
 https://nytimes.com/athletic/5949764/2024/11/26/world-series-dodgers-mlb-playoff-share/
