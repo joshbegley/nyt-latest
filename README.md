@@ -1,7 +1,3 @@
-**Scottie Barnes' good leadership, Chris Boucher and more: Raptors starting 5**\
-`Elsewhere, the Raptors need to start taking a lot more 3s. `\
-https://nytimes.com/athletic/5948514/2024/11/26/scottie-barnes-good-leadership-chris-boucher-and-more-raptors-starting-5/
-
 **Bodies Retrieved After Tourist Ship Sinks Off Egypt’s Red Sea Coast**\
 `Four bodies were retrieved one day after Monday’s shipwreck, according to local authorities. Search teams rescued 31 people and nine people remained missing on Tuesday.`\
 https://nytimes.com/video/world/middleeast/100000009845970/red-sea-egypt-boat-sinking.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5948455/2024/11/26/general-motors-f1-formula-one-gr
 **100 Notable Books of 2024**\
 `Here are the year’s notable fiction, poetry and nonfiction, chosen by the staff of The New York Times Book Review.`\
 https://nytimes.com/interactive/2024/11/26/books/notable-books.html
+
+**Nuggets 'embarrassed' by Knicks at home: 'Who do we want to be as a team?'**\
+`Denver coach Michael Malone blasted his team's effort in the 145-118 loss on Monday night.`\
+https://nytimes.com/athletic/5948731/2024/11/26/nuggets-knicks-michael-malone-nikola-jokic/
 
