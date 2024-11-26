@@ -1,3 +1,7 @@
+**Fantasy football Week 13 drops: Quentin Johnston's drops make him droppable and more**\
+`Gary Davenport gives advice on who to drop ahead of Week 13 as fantasy football playoffs near. `\
+https://nytimes.com/athletic/5949291/2024/11/26/fantasy-football-week-13-drops-quentin-johnstons-drops-make-him-droppable-and-more/
+
 **Has Social Media Advice Affected Your Finances? We Want to Hear From You.**\
 `If you have come across misleading personal finance advice online, tell us. We may include your experiences in an article.`\
 https://nytimes.com/2024/11/26/business/social-media-influencers-finance-callout.html
