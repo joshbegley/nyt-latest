@@ -1,3 +1,7 @@
+**NYCFC fires head coach Cushing**\
+`NYCFC have fired head coach Nick Cushing, the club announced on Tuesday morning.`\
+https://nytimes.com/athletic/5949233/2024/11/26/new-york-city-nick-cushing-out/
+
 **Scottie Barnes' good leadership, Chris Boucher and more: Raptors starting 5**\
 `Elsewhere, the Raptors need to start taking a lot more 3s. `\
 https://nytimes.com/athletic/5948514/2024/11/26/scottie-barnes-good-leadership-chris-boucher-and-more-raptors-starting-5/
