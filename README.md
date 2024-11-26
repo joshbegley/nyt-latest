@@ -1,3 +1,11 @@
+**Jack Smith Closes Up Shop, Defeated More by Voters Than by Jurors**\
+`The special counsel will leave behind a complex legacy, having amassed considerable evidence against Donald J. Trump but having lost key legal battles that could constrain future investigators.`\
+https://nytimes.com/2024/11/26/us/politics/jack-smith-trump-cases.html
+
+**Biden Announces Cease-Fire Deal Between Israel and Lebanon**\
+`The fighting has displaced over a million Lebanese and tens of thousands of Israelis, killed more than 3,000 Lebanese and 100 Israelis.`\
+https://nytimes.com/video/world/middleeast/100000009847608/israel-lebanon-ceasefire.html
+
 **A Vulnerable Trudeau Hopes to Muster Unity Against Trump Tariff Plans**\
 `Many of the prime minister’s political opponents were as critical of him as about the president-elect’s plan, which would adversely affect Canada’s economy.`\
 https://nytimes.com/2024/11/26/us/politics/trudeau-trump-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/26/sports/ncaa-cross-country-byu-olive-oil.html
 **After Beloved Pilot Dies in Crash, 2 Rescue Dogs Rescue Themselves**\
 `Seuk Kim was transporting three rescue dogs from Maryland to Albany, N.Y., when his plane crashed in the Catskill Mountains. Two of the dogs managed to survive.`\
 https://nytimes.com/2024/11/26/nyregion/plane-crash-pilot-new-york.html
-
-**Bayern Munich 1 PSG 0 - Paris risk Champions League exit, Dembele's nightmare, 'captain' Kimmich**\
-`Analysis of Bayern Munich's Champions League win over Paris Saint-Germain`\
-https://nytimes.com/athletic/5949412/2024/11/26/bayern-munich-psg-champions-league-highlights/
-
-**Why Is Trump Identifying the U.S.-Canada Border as a Problem?**\
-`Arrests for illegal crossings from Canada spiked in the last fiscal year, but remain a fraction of the number of those from Mexico.`\
-https://nytimes.com/2024/11/26/us/trump-canada-border-migrants.html
 
