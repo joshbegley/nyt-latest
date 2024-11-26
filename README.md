@@ -1,9 +1,13 @@
+**The Briefing: Sporting 1 Arsenal 5 - Statement win, majestic Odegaard and keeping Gyokeres quiet**\
+`Our writers break down the action from Portugal as Arsenal secured a brilliant victory over Sporting.`\
+https://nytimes.com/athletic/5946416/2024/11/26/arsenal-sporting-champions-league-dominant/
+
 **Rudy Giuliani Loses His Lawyers, and His Cool, in Court**\
 `The subject of several cases, the former New York City mayor lashed out at a judge questioning why he had not forfeited personal assets as required.`\
 https://nytimes.com/2024/11/26/nyregion/rudy-giuliani-defamation-hearing-lawyers.html
 
 **NFL Week 13 playoff scenarios: How Bills, Chiefs and Lions can clinch spots**\
-`Find out how these three times can punch their postseason ticket with over a month to go in the regular season. `\
+`Find out how these three teams can punch their postseason ticket with over a month to go in the regular season. `\
 https://nytimes.com/athletic/5950566/2024/11/26/nfl-week-13-playoff-scenarios-how-bills-chiefs-lions/
 
 **Khris Middleton's return nears after he practices 5-on-5 for first time**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5950525/2024/11/26/tommy-devito-giants-arm-injury/
 **Raise Your Glass High to the New Cast of ‘Vanderpump Rules’**\
 `The Bravo reality show is getting an entirely new cast for its 12th season. Lisa Vanderpump, for whom the show is named, will continue at its helm.`\
 https://nytimes.com/2024/11/26/arts/television/vanderpump-rules-season-12-new-cast.html
-
-**Saudi Arabia and Russia to U.N.: Don’t Talk About a Fossil Fuel Exit**\
-`A handful of oil-producing nations ensured that a United Nations General Assembly resolution on climate change steered clear of a call to transition away from fossil fuels.`\
-https://nytimes.com/2024/11/26/climate/saudi-arabia-russia-fossil-fuels-un.html
 
