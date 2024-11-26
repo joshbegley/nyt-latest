@@ -1,3 +1,11 @@
+**Jaden Ivey takes 'real step' with game winner. How he can sustain it**\
+`Ivey is developing winning on-court habits that can become a repeatable formula for personal and team success.`\
+https://nytimes.com/athletic/5948664/2024/11/26/jaden-ivey-game-winner-pistons-raptors/
+
+**The underlying numbers behind Newcastle's goalscoring woes**\
+`Only five players have scored in the Premier League for Newcastle this season - the numbers behind their bluntness make for stark reading`\
+https://nytimes.com/athletic/5946038/2024/11/26/newcastle-united-west-ham-goals-eddie-howe/
+
 **Wild get 'goalied' and deserved better but suffer another loss to the Jets**\
 `Connor Hellebuyck made 38 of his 43 saves in the first 36 minutes, leading Winnipeg to its seventh straight win against Minnesota.`\
 https://nytimes.com/athletic/5948732/2024/11/26/wild-keep-losing-to-jets/

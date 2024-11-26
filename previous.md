@@ -1,3 +1,11 @@
+**Jaden Ivey takes 'real step' with game winner. How he can sustain it**\
+`Ivey is developing winning on-court habits that can become a repeatable formula for personal and team success.`\
+https://nytimes.com/athletic/5948664/2024/11/26/jaden-ivey-game-winner-pistons-raptors/
+
+**The underlying numbers behind Newcastle's goalscoring woes**\
+`Only five players have scored in the Premier League for Newcastle this season - the numbers behind their bluntness make for stark reading`\
+https://nytimes.com/athletic/5946038/2024/11/26/newcastle-united-west-ham-goals-eddie-howe/
+
 **Word of the Day: propaganda**\
 `This word has appeared in 678 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/26/learning/word-of-the-day-propaganda.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5937526/2024/11/26/spurs-postecoglou-form-vicario-i
 **How Jim Montgomery earned win in Blues coaching debut: 3 takeaways**\
 `The Blues took a season-high 43 shots, Zack Bolduc had a breakout game, and the team played with togetherness.`\
 https://nytimes.com/athletic/5948307/2024/11/26/blues-jim-montgomery-rangers-takeaways/
-
-**Emergency Crews Race to Save Sole Survivor of Costa Rica Plane Crash**\
-`Rescue workers were traversing a remote mountain forest overnight with a woman who survived a crash that killed five of the six people aboard.`\
-https://nytimes.com/2024/11/26/world/americas/plane-crash-costa-rica.html
-
-**How Viktor Gyokeres became Europe's hottest striker**\
-`Gyokeres has made 25 appearances for Sporting CP and Sweden in 2024-25. And scored 33 goals. We spoke to key figures from his previous clubs`\
-https://nytimes.com/athletic/5940133/2024/11/26/viktor-gyokeres-sporting-lisbon-striker-form/
 
