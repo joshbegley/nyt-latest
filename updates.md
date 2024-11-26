@@ -1,3 +1,7 @@
+**Senators D Artem Zub placed on LTIR: Will it lead to a trade?**\
+`Zub was placed on long-term injured reserve Tuesday morning after suffering a fracture in his foot.`\
+https://nytimes.com/athletic/5949759/2024/11/26/senators-artem-zub-injury/
+
 **Trump’s Tariff Plan Makes Little Sense**\
 `Why set off a tit-for-tat with our closest allies?`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/trump-tariff-mexico-canada
