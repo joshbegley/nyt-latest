@@ -1,3 +1,7 @@
+**The Rebellious Beauty of Nollywood’s Screen Sirens**\
+`The distinctive makeup of early-aughts Nigerian movies is coming back — and so is the daring attitude of the women who wore it.`\
+https://nytimes.com/2024/11/26/t-magazine/nollywood-beauty-makeup.html
+
 **Mexico’s President Raises Prospect of Retaliatory Tariffs on U.S. Goods**\
 `President Claudia Sheinbaum responded to President-elect Trump’s threat to impose high tariffs, saying such a move would inflict damage on both countries.`\
 https://nytimes.com/2024/11/26/us/mexico-tariffs-us-trump.html
