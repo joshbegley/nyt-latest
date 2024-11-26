@@ -1,3 +1,11 @@
+**After Trump’s Tariff Threat, Is a China Currency War Next?**\
+`While China could offset American tariffs by letting its currency fall, that might endanger Beijing’s recent efforts to stabilize the economy.`\
+https://nytimes.com/2024/11/26/business/trump-tariffs-us-china-currency.html
+
+**How much has Michigan's defense changed under Wink Martindale — and what's next?**\
+`ANN ARBOR, Mich.`\
+https://nytimes.com/athletic/5947249/2024/11/26/michigan-ohio-state-wink-martindale/
+
 **Fentanyl Rises Again, This Time as Trump’s Diplomatic Weapon Against China**\
 `The president-elect’s pledge to use tariffs to stem the flow of opioids from China could backfire if Beijing responds by ending counternarcotics cooperation.`\
 https://nytimes.com/2024/11/26/world/asia/trump-china-tariff-fentanyl.html
