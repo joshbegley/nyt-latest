@@ -1,3 +1,7 @@
+**Rams’ Demarcus Robinson arrested on suspicion of DUI hours after loss to Eagles**\
+`Patrol officers say they initiated an enforcement stop after observing a white Dodge sedan traveling over 100 miles per hour.`\
+https://nytimes.com/athletic/5948636/2024/11/25/rams-demarcus-robinson-arrested-dui/
+
 **How Rangers failed to play to 'standard' despite attempts to shake things up: 4 takeaways**\
 `The Rangers dropped their third straight game, 5-2, to the Blues on Monday.`\
 https://nytimes.com/athletic/5948527/2024/11/25/rangers-blues-takeaways-kreider-trouba/

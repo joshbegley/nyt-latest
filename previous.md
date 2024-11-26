@@ -1,3 +1,7 @@
+**Rams’ Demarcus Robinson arrested on suspicion of DUI hours after loss to Eagles**\
+`Patrol officers say they initiated an enforcement stop after observing a white Dodge sedan traveling over 100 miles per hour.`\
+https://nytimes.com/athletic/5948636/2024/11/25/rams-demarcus-robinson-arrested-dui/
+
 **How Connor Hellebuyck stole latest Jets victory over Wild: 3 takeaways**\
 `Hellebuyck made 38 of his 43 saves in the first two periods and the Wild ran out of energy early as the Jets took the 4-1 win.`\
 https://nytimes.com/athletic/5948291/2024/11/25/wild-jets-connor-hellebuyck-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/world/middleeast/lebanon-antiquities-israel-strik
 **Significant Stretches**\
 `Killian Olson makes his Crossword debut.`\
 https://nytimes.com/2024/11/25/crosswords/daily-puzzle-2024-11-26.html
-
-**Corrections: Nov. 26, 2024**\
-`Corrections that appeared in print on Tuesday, Nov. 26, 2024.`\
-https://nytimes.com/2024/11/25/pageoneplus/corrections-nov-26-2024.html
 
