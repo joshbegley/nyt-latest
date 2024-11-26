@@ -1,3 +1,7 @@
+**Pakistan Deploys Army in Its Capital as Protesters and Police Clash**\
+`Soldiers were ordered to defend government buildings with gunfire, if needed, as supporters of former Prime Minister Imran Khan demanded his release from prison.`\
+https://nytimes.com/2024/11/26/world/asia/pakistan-protests-imran-khan.html
+
 **How set-piece joy and flying full-backs inspired West Ham's win at Newcastle**\
 `Julen Lopetegui's approach was vindicated as West Ham pulled off an impressive victory on the road at Newcastle United`\
 https://nytimes.com/athletic/5947345/2024/11/26/west-ham-lopetegui-newcastle-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5948789/2024/11/26/knicks-offense-crushes-denver/
 **On the Wings of War**\
 `Scientists study the flight of hummingbirds to design robots for drone warfare.`\
 https://nytimes.com/2024/11/26/science/hummingbirds-robots-drone-warfare.html
-
-**He Was One of New York’s Busiest Shoplifters. His Mother Was a Cop.**\
-`Drug addiction fueled David Andino’s need to steal. Every day, he hit the same Target in Manhattan. His mother, a retired police officer, hadn’t seen him in years.`\
-https://nytimes.com/2024/11/26/nyregion/nyc-shoplifting-target-arrest.html
 
