@@ -1,3 +1,7 @@
+**Canucks prospect stock watch: Who's up, who's down in the system?**\
+`Checking in on how some of Vancouver's notable prospects are tracking in the early season.`\
+https://nytimes.com/athletic/5948856/2024/11/26/canucks-prospect-stock-watch-2024/
+
 **Digging Into Kendrick Lamar’s Samples**\
 `Listen to some of the most notable sonic references on “GNX,” from SWV, Luther Vandross and Debbie Deb.`\
 https://nytimes.com/2024/11/26/arts/music/amplifier-newsletter-kendrick-lamar-samples.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/us/trump-news/us-markets-have-a-muted-reaction-wit
 **How to watch North Carolina vs. Auburn: Top-15 teams clash in Maui Invitational semifinal**\
 `Both Auburn and UNC pulled wild comebacks in the opening round. They face off in a Maui Invitational semifinal Tuesday night.`\
 https://nytimes.com/athletic/5949699/2024/11/26/auburn-unc-how-to-watch-odds-preview/
-
-**Yes, It ‘Looks Like a Duck,’ but Carriers Like the New Mail Truck**\
-`The electric trucks have a side cargo door, more space and, critically, air conditioning, promising some long-overdue relief for carriers, who haven’t had an upgrade since the 1980s.`\
-https://nytimes.com/2024/11/26/us/usps-new-mail-trucks.html
 

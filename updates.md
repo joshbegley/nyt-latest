@@ -1,3 +1,7 @@
+**Canucks prospect stock watch: Who's up, who's down in the system?**\
+`Checking in on how some of Vancouver's notable prospects are tracking in the early season.`\
+https://nytimes.com/athletic/5948856/2024/11/26/canucks-prospect-stock-watch-2024/
+
 **Buccaneers' Baker Mayfield suing father's company for $12 million**\
 `Under the contract terms, Mayfield can demand the full outstanding balance to be paid immediately, per the lawsuit.`\
 https://nytimes.com/athletic/5949507/2024/11/26/baker-mayfield-father-brother-lawsuit-breach-settlement/
