@@ -1,15 +1,3 @@
-**Runners Use Secret Ingredient to Win N.C.A.A. Race: Olive Oil**\
-`B.Y.U.’s cross-country runners went old school and coated their bodies for a cold race day.`\
-https://nytimes.com/2024/11/26/sports/ncaa-cross-country-byu-olive-oil.html
-
-**After Beloved Pilot Dies in Crash, 2 Rescue Dogs Rescue Themselves**\
-`Seuk Kim was transporting three rescue dogs from Maryland to Albany, N.Y., when his plane crashed in the Catskill Mountains. Two of the dogs managed to survive.`\
-https://nytimes.com/2024/11/26/nyregion/plane-crash-pilot-new-york.html
-
-**Bayern Munich 1 PSG 0 - Paris risk Champions League exit, Dembele's nightmare, 'captain' Kimmich**\
-`Analysis of Bayern Munich's Champions League win over Paris Saint-Germain`\
-https://nytimes.com/athletic/5949412/2024/11/26/bayern-munich-1-psg-0-paris-risk-champions-league-exit-dembeles-nightmare-captain-kimmich/
-
 **Why Is Trump Identifying the U.S.-Canada Border as a Problem?**\
 `Arrests for illegal crossings from Canada spiked in the last fiscal year, but remain a fraction of the number of those from Mexico.`\
 https://nytimes.com/2024/11/26/us/trump-canada-border-migrants.html
@@ -37,4 +25,16 @@ https://nytimes.com/video/world/middleeast/100000009847557/biden-israel-lebanon-
 **The Briefing: Sporting 1 Arsenal 5 - Statement win, majestic Odegaard and keeping Gyokeres quiet**\
 `Our writers break down the action from Portugal as Arsenal secured a brilliant victory over Sporting.`\
 https://nytimes.com/athletic/5946416/2024/11/26/arsenal-sporting-champions-league-dominant/
+
+**Rudy Giuliani Loses His Lawyers, and His Cool, in Court**\
+`The subject of several cases, the former New York City mayor lashed out at a judge questioning why he had not forfeited personal assets as required.`\
+https://nytimes.com/2024/11/26/nyregion/rudy-giuliani-defamation-hearing-lawyers.html
+
+**NFL Week 13 playoff scenarios: How Bills, Chiefs and Lions can clinch spots**\
+`Find out how these three teams can punch their postseason ticket with over a month to go in the regular season. `\
+https://nytimes.com/athletic/5950566/2024/11/26/nfl-week-13-playoff-scenarios-how-bills-chiefs-lions/
+
+**Khris Middleton's return nears after participating in 5-on-5 session**\
+`The Bucks' All-Star wing will still be out on Tuesday against the Miami Heat, but he's cleared one hurdle after offseason ankle surgeries.`\
+https://nytimes.com/athletic/5950652/2024/11/26/khris-middleton-bucks-injury-practice/
 
