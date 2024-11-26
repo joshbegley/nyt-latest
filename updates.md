@@ -1,3 +1,7 @@
+**Chargers' loss to Ravens shows just how much work Jim Harbaugh still has to do**\
+`Harbaugh and GM Joe Hortiz have Los Angeles on an upward trajectory, but the roster limitations were on display Monday vs. Baltimore.`\
+https://nytimes.com/athletic/5948879/2024/11/26/chargers-loss-harbaugh-ravens/
+
 **'I cannot be the same every time': How tennis players and tennis coaches choose each other**\
 `The relationship between player and coach can be transformative or combustible, sometimes both. So how do they start?`\
 https://nytimes.com/athletic/5947172/2024/11/26/tennis-players-coaches-relationship-how-choose/
