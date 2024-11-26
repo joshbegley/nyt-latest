@@ -1,3 +1,7 @@
+**Judge denies request to block SJSU volleyball player from tournament**\
+`The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
+https://nytimes.com/athletic/5947424/2024/11/26/san-jose-state-volleyball-lawsuit-transgender/
+
 **Champions League Briefing: Guardiola marked by Man City collapse, Pulisic among form players**\
 `Analysis of the key moments from the latest round of the Champions League`\
 https://nytimes.com/athletic/5950475/2024/11/26/champions-league-guardiola-marked/
