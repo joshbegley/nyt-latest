@@ -1,3 +1,11 @@
+**Sign Up to Learn the 10 Best Books of 2024**\
+`On Dec. 3, we’ll announce our picks. Make sure you’re among the first to find out.`\
+https://nytimes.com/2024/11/26/books/best-books-announcement.html
+
+**NFL Week 12 best and worst coaching decisions: Dave Canales, Bryce Young progress**\
+`Also, Mike Zimmer's Cowboys defense bests Kliff Kingsbury's Commanders offense and Matt LaFleur has the Packers' run game humming.`\
+https://nytimes.com/athletic/5945885/2024/11/26/nfl-week-12-worst-best-coaching-decisions-nguyen/
+
 **General Motors enters the grid: Why F1 changed its tune after rejecting Andretti**\
 `The difference between now and F1's January rejection of Andretti is that with General Motors, it has exactly what it wanted all along.`\
 https://nytimes.com/athletic/5948455/2024/11/26/general-motors-f1-formula-one-grid-expansion-andretti/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5944268/2024/11/26/milwaukee-bucks-doc-rivers-andre
 **Explained: Baller League - the influencer-backed 'new era for football'**\
 `What is the new concept and is it really the revolution organisers are suggesting?`\
 https://nytimes.com/athletic/5949002/2024/11/26/baller-league-explained-ksi-ishowspeed/
-
-**College football bowl projections: How chaos impacts Alabama, Oklahoma, Ole Miss**\
-`With one more week of regular-season action, 77 teams have qualified for the postseason.`\
-https://nytimes.com/athletic/5915859/2024/11/26/college-football-bowl-projections-9/
-
-**'I cannot be the same every time': How tennis players and tennis coaches choose each other**\
-`The relationship between player and coach can be transformative or combustible, sometimes both. So how do they start?`\
-https://nytimes.com/athletic/5947172/2024/11/26/tennis-players-coaches-relationship-how-choose/
 
