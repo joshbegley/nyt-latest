@@ -1,3 +1,15 @@
+**Puzzle Mania 2024 Answers**\
+`Answer grids for Puzzle Mania 2024`\
+https://nytimes.com/interactive/2024/11/26/us/01puzzle-mania-answers.html
+
+**TV on the Radio, Brooklyn Rock Veterans, Return to the Stage**\
+`The acclaimed band, which emerged during the 2000s indie boom, is performing a series of live shows commemorating the 20th anniversary of its debut album.`\
+https://nytimes.com/2024/11/26/arts/music/tv-on-the-radio-live-shows.html
+
+**Fed Kept Options Open on Rate Cuts, Minutes Show**\
+`Minutes from a Nov. 6-7 meeting showed that Federal Reserve policymakers saw the labor market stabilizing and signs of economic strength.`\
+https://nytimes.com/2024/11/26/business/economy/federal-reserve-minutes.html
+
 **Canucks prospect stock watch: Who's up, who's down in the system?**\
 `Checking in on how some of Vancouver's notable prospects are tracking in the early season.`\
 https://nytimes.com/athletic/5948856/2024/11/26/canucks-prospect-stock-watch-2024/
