@@ -1,3 +1,11 @@
+**Pakistan’s Army Deployed as Police Clash With Imran Khan’s Supporters**\
+`Soldiers have been ordered to defend government buildings and use gunfire against Imran Khan’s supporters if needed.`\
+https://nytimes.com/video/world/asia/100000009846440/pakistan-protests-imran-khan.html
+
+**U.S. Investigating Political Action Committee Tied to Mayor Adams**\
+`Prosecutors and the F.B.I. are examining an organization founded by the Rev. Alfred Cockfield II, according to people with knowledge of the matter.`\
+https://nytimes.com/2024/11/26/nyregion/adams-cockfield-federal-investigation.html
+
 **U.S. markets have a muted reaction, with some exceptions, to Trump’s tariff pledge.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2024/us/trump-news/us-markets-have-a-muted-reaction-with-some-exceptions-to-trumps-tariff-pledge
