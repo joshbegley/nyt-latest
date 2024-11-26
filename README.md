@@ -18,7 +18,7 @@ https://nytimes.com/2024/11/26/dining/thanksgiving-eve-means-meatballs.html
 `Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/5949534/2024/11/26/nhl-mailbag-trades-injuries-4-nations/
 
-**UNC, Mack Brown parting ways; Tulane's Sumrall will get good look**\
+**Mack Brown out at UNC; Tulane's Sumrall will get good look**\
 `Brown’s 113 career wins, 10 bowl trips and four bowl victories are the most in UNC football history.`\
 https://nytimes.com/athletic/5946905/2024/11/26/mack-brown-retires-unc-football/
 
