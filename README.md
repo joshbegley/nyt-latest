@@ -1,3 +1,15 @@
+**Saudi Arabia and Russia to U.N: Don’t Talk About a Fossil Fuel Exit**\
+`A handful of oil-producing nations ensured that a United Nations General Assembly resolution on climate change steered clear of a call to transition away from fossil fuels.`\
+https://nytimes.com/2024/11/26/climate/saudi-arabia-russia-fossil-fuels-un.html
+
+**How to Host a Festive Fall Meal Like an Off-Duty Chef**\
+`Lauren Schofield — and her friends Anthony Ha and Sadie Mae Burns, of the restaurant Ha’s Đặc Biệt — take entertaining as seriously as their day jobs.`\
+https://nytimes.com/2024/11/26/t-magazine/lauren-schofield-has-dac-biet.html
+
+**Tariff Threats Show Trump’s Commitment to Upending Global Trade**\
+`The president-elect’s threat to hit Canada, Mexico and China with new tariffs is already rocking business and diplomatic relationships and could topple the trade pacts he signed in his first term.`\
+https://nytimes.com/2024/11/26/us/politics/trump-tariffs-global-trade.html
+
 **Javier Mascherano: The Lionel Messi ally charged with taking Inter Miami one step further**\
 `Mascherano's hire as Inter Miami head coach only strengthens the notion that this is a club tailor-made for Lionel Messi to shine at`\
 https://nytimes.com/athletic/5948385/2024/11/26/javier-mascherano-inter-miami-coach-lionel-messi/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5950348/2024/11/26/unc-football-coaching-candidates
 **Live Q&A: Week 13 fantasy football add/drop chat with Jay Felicio, Tuesday 11/26 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5949510/2024/11/26/live-qa-week-13-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-11-26-at-5-p-m-et/
-
-**Jacob Trouba responds to trade talk after Rangers put him back on the block**\
-`Trouba on being involved in a fresh round of trade talk: "You've got to kind of block all that out and just focus on playing hockey."`\
-https://nytimes.com/athletic/5950260/2024/11/26/jacob-youve-got-to-block-all-that-out-jacob-trouba-tries-to-focus-on-the-rangers-rather-than-the-rumors/
-
-**Market share report: Jonnu Smith reaches stud status; Ameer Abdullah is a worthy pickup for Week 13**\
-`In his latest market report, Michael Salfino says that Jonnu Smith is in a perfect situation as the top option in the Miami passing game.`\
-https://nytimes.com/athletic/5950329/2024/11/26/fantasy-football-market-share-report-week-12-2/
-
-**On the campaign trail and after, Trump has floated plans for hefty tariffs.**\
-`By Ana Swanson`\
-https://nytimes.com/live/2024/us/trump-news/on-the-campaign-trail-and-after-trump-has-floated-plans-for-hefty-tariffs
 
