@@ -1,3 +1,7 @@
+**Biden says he hopes the U.S.-brokered deal will facilitate a cease-fire in Gaza.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/biden-israel-lebanon-ceasefire
+
 **Juan Soto expected to go through multiple rounds of free-agent offers**\
 `The offers were expected to separate serious suitors from wishful thinkers in the Soto sweepstakes.`\
 https://nytimes.com/athletic/5950614/2024/11/26/juan-soto-free-agency-offer-overview/
