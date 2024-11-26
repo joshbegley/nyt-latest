@@ -1,3 +1,11 @@
+**Small Plane Crash Kills 5 in Costa Rica**\
+`The Red Cross said emergency crews had found the sole survivor and were trying to rescue her.`\
+https://nytimes.com/2024/11/26/world/americas/plane-crash-costa-rica.html
+
+**How Viktor Gyokeres became Europe's hottest striker**\
+`Gyokeres has made 25 appearances for Sporting CP and Sweden in 2024-25. And scored 33 goals. We spoke to key figures from his previous clubs`\
+https://nytimes.com/athletic/5940133/2024/11/26/viktor-gyokeres-sporting-lisbon-striker-form/
+
 **Eight graphs which show why Salah deserves a new Liverpool contract**\
 `FSG is all about the numbers when it comes to their business decisions - and these ones are hard to ignore`\
 https://nytimes.com/athletic/5946821/2024/11/26/mohamed-salah-contract-liverpool-graphs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5947392/2024/11/26/champions-league-matchday-5-proj
 **How varied interpretations of football's laws have left players confused and the data in a mess**\
 `Yellow cards are up, penalties are down and nobody is entirely sure what is going on...`\
 https://nytimes.com/athletic/5924446/2024/11/26/premier-league-refereeing-interpretations-data-spikes/
-
-**A Misstep by Ireland’s Prime Minister Muddies Election Race**\
-`A fumbled meeting with a voter may dent Simon Harris’s popularity. But his coalition government’s main opposition, the nationalist party Sinn Fein, will likely remain locked out of power.`\
-https://nytimes.com/2024/11/26/world/europe/simon-harris-voter-video-sinn-fein-election.html
-
-**'He has an aura. He'll get support. He needs it' - views from the away end at Amorim's first United match**\
-`An early goal, positive support but some familiar concerns - United fans in the away end give Andy Mitten their views on Sunday's match`\
-https://nytimes.com/athletic/5946524/2024/11/26/manchester-united-ipswich-supporters/
 
