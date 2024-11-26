@@ -1,3 +1,11 @@
+**The Briefing: Sporting 1 Arsenal 5 - Statement win, majestic Odegaard and keeping Gyokeres quiet**\
+`Our writers break down the action from Portugal as Arsenal secured a brilliant victory over Sporting.`\
+https://nytimes.com/athletic/5946416/2024/11/26/arsenal-sporting-champions-league-dominant/
+
+**NFL Week 13 playoff scenarios: How Bills, Chiefs and Lions can clinch spots**\
+`Find out how these three teams can punch their postseason ticket with over a month to go in the regular season. `\
+https://nytimes.com/athletic/5950566/2024/11/26/nfl-week-13-playoff-scenarios-how-bills-chiefs-lions/
+
 **Rudy Giuliani Loses His Lawyers, and His Cool, in Court**\
 `The subject of several cases, the former New York City mayor lashed out at a judge questioning why he had not forfeited personal assets as required.`\
 https://nytimes.com/2024/11/26/nyregion/rudy-giuliani-defamation-hearing-lawyers.html
