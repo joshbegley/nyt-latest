@@ -1,3 +1,15 @@
+**NFL MVP odds: Could Saquon Barkley be the first non-QB winner in over a decade?**\
+`Saquon Barkley surged up the MVP odds board after his massive game on Sunday night. Can he end the RB MVP drought?`\
+https://nytimes.com/athletic/5950017/2024/11/26/nfl-mvp-odds-saquon-barkley/
+
+**Bruce Feldman's UNC coaching candidates: Jon Sumrall, Jamey Chadwell and more**\
+`From coaches leading G5 contenders to respected P5 coordinators, the Tar Heels have a number of options for their new direction.`\
+https://nytimes.com/athletic/5950348/2024/11/26/unc-football-coaching-candidates-jon-sumrall/
+
+**Live Q&A: Week 13 fantasy football add/drop chat with Jay Felicio, Tuesday 11/26 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5949510/2024/11/26/live-qa-week-13-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-11-26-at-5-p-m-et/
+
 **Jacob Trouba responds to trade talk after Rangers put him back on the block**\
 `Trouba on being involved in a fresh round of trade talk: "You've got to kind of block all that out and just focus on playing hockey."`\
 https://nytimes.com/athletic/5950260/2024/11/26/jacob-youve-got-to-block-all-that-out-jacob-trouba-tries-to-focus-on-the-rangers-rather-than-the-rumors/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/26/opinion/editorials/the-senate-should-leave-no-jud
 **Trump’s Tariff Plan Makes Little Sense**\
 `Why set off a tit-for-tat with our closest allies?`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/trump-tariff-mexico-canada
-
-**G.O.P. Senator Blocking Promotion of General Who Commanded Afghan Withdrawal**\
-`Lt. Gen. Christopher T. Donahue was recently selected to lead the U.S. Army’s Europe Command as the war in Ukraine heads into its fourth year.`\
-https://nytimes.com/2024/11/26/us/politics/general-christopher-donahue-afghanistan.html
-
-**Dabo Swinney addresses NIL and revenue sharing on eve of South Carolina game**\
-`Swinney is confident Clemson will be well-situated once revenue sharing begins in college athletics.`\
-https://nytimes.com/athletic/5950166/2024/11/26/dabo-swinney-nil-revenue-sharing-transfer-portal/
-
-**Shedeur Sanders, Travis Hunter will play for Colorado in bowl game**\
-`Both Shedeur Sanders and Travis Hunter have been rumored to be in play for the No. 1 pick in next year’s NFL Draft.`\
-https://nytimes.com/athletic/5950358/2024/11/26/shedeur-sanders-travis-hunter-bowl-colorado/
 
