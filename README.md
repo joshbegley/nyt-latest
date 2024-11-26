@@ -1,3 +1,7 @@
+**Shedeur Sanders, Travis Hunter will play for Colorado in bowl game**\
+`Both Shedeur Sanders and Travis Hunter have been rumored to be in play for the No. 1 pick in next year’s NFL Draft.`\
+https://nytimes.com/athletic/5950358/2024/11/26/shedeur-sanders-travis-hunter-bowl-colorado/
+
 **Puzzle Mania 2024 Answers**\
 `Answer grids for Puzzle Mania 2024`\
 https://nytimes.com/interactive/2024/11/26/us/01puzzle-mania-answers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5950139/2024/11/26/jude-bellingham-england-euros-sc
 **These Wolves Like a Little Treat: Flower Nectar**\
 `After Ethiopian wolves feed on their favorite rodents, they may be enjoying a bit of dessert and in the process helping pollinate plants known as torch lilies.`\
 https://nytimes.com/2024/11/26/science/wolves-flowers-nectar-pollinate.html
-
-**Pakistan’s Army Deployed as Police Clash With Imran Khan’s Supporters**\
-`Soldiers have been ordered to defend government buildings and use gunfire against Imran Khan’s supporters if needed.`\
-https://nytimes.com/video/world/asia/100000009846440/pakistan-protests-imran-khan.html
 
