@@ -1,3 +1,7 @@
+**Juan Soto expected to go through multiple rounds of free-agent offers**\
+`The offers were expected to separate serious suitors from wishful thinkers in the Soto sweepstakes.`\
+https://nytimes.com/athletic/5950614/2024/11/26/juan-soto-free-agency-offer-overview/
+
 **Wednesday Briefing: Israel Approves Hezbollah Cease-Fire Deal**\
 `Plus, Mexico reacts to Trump’s tariff threats.`\
 https://nytimes.com/2024/11/26/briefing/cease-fire-tariff-trump-ukraine.html

@@ -1,3 +1,7 @@
+**Biden says he hopes the U.S.-brokered deal will facilitate a cease-fire in Gaza.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/biden-israel-lebanon-ceasefire
+
 **Juan Soto expected to go through multiple rounds of free-agent offers**\
 `The offers were expected to separate serious suitors from wishful thinkers in the Soto sweepstakes.`\
 https://nytimes.com/athletic/5950614/2024/11/26/juan-soto-free-agency-offer-overview/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/us/politics/trump-tariffs-global-trade.html
 **Javier Mascherano: The Lionel Messi ally charged with taking Inter Miami one step further**\
 `Mascherano's hire as Inter Miami head coach only strengthens the notion that this is a club tailor-made for Lionel Messi to shine at`\
 https://nytimes.com/athletic/5948385/2024/11/26/javier-mascherano-inter-miami-coach-lionel-messi/
-
-**Senators' Pizza Line to be honoured on Dec. 5**\
-`The trio will participate in a ceremonial faceoff before the Sens' home game against the Detroit Red Wings.`\
-https://nytimes.com/athletic/5949845/2024/11/26/senators-alfredsson-heatley-spezza/
 
