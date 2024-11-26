@@ -1,3 +1,19 @@
+**The Scots thriving in Italy: 'Everyone was surprised I actually had good technique'**\
+`For more than 30 years, there were no Scots playing in Serie A but that has changed dramatically`\
+https://nytimes.com/athletic/5902911/2024/11/26/scottish-players-italy-serie-a/
+
+**Tuesday Briefing**\
+`Talks on a truce between Israel and Lebanon.`\
+https://nytimes.com/2024/11/26/briefing/truce-trump-storm-bert.html
+
+**Champions League Projections: Who has performed above or below expectation at the halfway point?**\
+`We look at the good, the bad and the expected at the halfway stage of the 2024-25 Champions League`\
+https://nytimes.com/athletic/5947392/2024/11/26/champions-league-matchday-5-projections/
+
+**How varied interpretations of football's laws have left players confused and the data in a mess**\
+`Yellow cards are up, penalties are down and nobody is entirely sure what is going on...`\
+https://nytimes.com/athletic/5924446/2024/11/26/premier-league-refereeing-interpretations-data-spikes/
+
 **A Misstep by Ireland’s Prime Minister Muddies Election Race**\
 `A fumbled meeting with a voter may dent Simon Harris’s popularity. But his coalition government’s main opposition, the nationalist party Sinn Fein, will likely remain locked out of power.`\
 https://nytimes.com/2024/11/26/world/europe/simon-harris-voter-video-sinn-fein-election.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5947768/2024/11/26/bayern-munich-psg-preview-odds-p
 **China’s Police Are Preying on Small Firms in Search of Cash**\
 `With localities facing budget holes, the police are crossing provincial borders to collect fines and draining company treasuries. Businesses call it a shakedown.`\
 https://nytimes.com/2024/11/26/business/china-economy-police-business.html
-
-**The World’s Pioneering Tech Cop Is Making Her Exit**\
-`Margrethe Vestager, the European Union’s antitrust regulator, who put technology’s harms on the global agenda, reflected on a decade of taking on the biggest companies and what comes next.`\
-https://nytimes.com/2024/11/26/technology/margrethe-vestager-eu-antitrust.html
-
-**Fantasy football Week 13 waiver wire: Streamers, Jeremy McNichols, Xavier Legette**\
-`Jake Ciely runs through the top waiver options for Week 13, like rookie Xavier Legette, and also offers a three-week streaming QB guide.`\
-https://nytimes.com/athletic/5946555/2024/11/26/fantasy-football-week-13-waiver-wire-streamers-jeremy-mcnichols-xavier-legette/
-
-**Quote of the Day: PULLOUTS BY U.N. DISMAY HAITIANS**\
-`Quotation of the Day for Tuesday, November 26, 2024`\
-https://nytimes.com/2024/11/25/pageoneplus/quote-of-the-day-pullouts-by-un-dismay-haitians.html
-
-**Henry powers Ravens past Chargers 30-23 in 'Harbaugh Bowl': Takeaways**\
-`Ravens coach John Harbaugh is now 3-0 all-time versus his younger brother Jim dating back to 2011.`\
-https://nytimes.com/athletic/5947101/2024/11/25/ravens-chargers-harbaugh-score-result-takeaways-mnf/
 
