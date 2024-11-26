@@ -1,3 +1,15 @@
+**How good is the Tulsa job? What Kevin Wilson's replacement will inherit**\
+`There’s still some tradition here, and the job can pay well, but resources elsewhere in the program have been hard to come by.`\
+https://nytimes.com/athletic/5948481/2024/11/26/tulsa-college-football-coach-search-kevin-wilson/
+
+**Trump Transition Live Updates: Tariffs on Mexico, Canada and China on Day 1**\
+``\
+https://nytimes.com/live/2024/11/26/us/trump-news
+
+**Trump’s Tariff Threat Roils Global Markets**\
+`The dollar gained and investors sold off stocks after the president-elect promised to levy new restrictions on the United States’ biggest trade partners.`\
+https://nytimes.com/2024/11/26/business/dealbook/trumps-tariff-markets.html
+
 **Sign Up to Learn the 10 Best Books of 2024**\
 `On Dec. 3, we’ll announce our picks. Make sure you’re among the first to find out.`\
 https://nytimes.com/2024/11/26/books/best-books-announcement.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5949083/2024/11/26/maui-invitational-history-scores
 **Man Utd post profit for first quarter of season despite £8.6m in 'restructuring' costs**\
 `Manchester United made a profit during the first quarter of the 2024-25 season, despite paying out £8.`\
 https://nytimes.com/athletic/5949129/2024/11/26/man-utd-finances-profit-stadium/
-
-**The Athletic FC: War-torn Sudan's World Cup dream; Spurs' Vicario blow; more Scots in Italy?**\
-`Today in TAFC: How Sudan's national team are succeeding even as civil war rages; Vicario breaks his ankle; why Italian clubs want Scots`\
-https://nytimes.com/athletic/5949013/2024/11/26/sudan-world-cup-vicario-tottenham-scots-in-italy/
-
-**What we're seeing with the Bucks: Rivers' rotations, Jackson's pressure and more**\
-`After a 2-8 start to the season, the Bucks are in a much better place than they were two weeks ago.`\
-https://nytimes.com/athletic/5944268/2024/11/26/milwaukee-bucks-doc-rivers-andre-jackson/
-
-**Explained: Baller League - the influencer-backed 'new era for football'**\
-`What is the new concept and is it really the revolution organisers are suggesting?`\
-https://nytimes.com/athletic/5949002/2024/11/26/baller-league-explained-ksi-ishowspeed/
 
