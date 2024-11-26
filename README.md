@@ -1,3 +1,7 @@
+**Juan Soto expected to go through multiple rounds of free-agent offers**\
+`The offers were expected to separate serious suitors from wishful thinkers in the Soto sweepstakes.`\
+https://nytimes.com/athletic/5950614/2024/11/26/juan-soto-free-agency-offer-overview/
+
 **Wednesday Briefing: Israel Approves Hezbollah Cease-Fire Deal**\
 `Plus, Mexico reacts to Trump’s tariff threats.`\
 https://nytimes.com/2024/11/26/briefing/cease-fire-tariff-trump-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5948385/2024/11/26/javier-mascherano-inter-miami-co
 **Senators' Pizza Line to be honoured on Dec. 5**\
 `The trio will participate in a ceremonial faceoff before the Sens' home game against the Detroit Red Wings.`\
 https://nytimes.com/athletic/5949845/2024/11/26/senators-alfredsson-heatley-spezza/
-
-**Here are the latest developments.**\
-`Under the deal, both sides will first observe a 60-day truce, during which Israel will withdraw from Lebanon and Hezbollah will move its fighters north.`\
-https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/israel-hezbollah-lebanon-cease-fire
 
