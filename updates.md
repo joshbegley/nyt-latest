@@ -1,3 +1,11 @@
+**How Connor Hellebuyck stole latest Jets victory over Wild: 3 takeaways**\
+`Hellebuyck made 38 of his 43 saves in the first two periods and the Wild ran out of energy early as the Jets took the 4-1 win.`\
+https://nytimes.com/athletic/5948291/2024/11/25/wild-jets-connor-hellebuyck-takeaways/
+
+**TikTok Influencer Arrested After Allegedly Documenting Stolen Items**\
+`Marlena Velez, 22, stole the items by scanning false bar codes in the self-checkout to make the items cheaper, the police said.`\
+https://nytimes.com/2024/11/25/us/tiktok-influencer-shoplifting-target.html
+
 **Biden Administration to Lend $6 Billion for Rivian E.V. Factory**\
 `The financing for a factory in Georgia is part of a last-minute effort to establish climate policies before President-elect Donald J. Trump takes office.`\
 https://nytimes.com/2024/11/25/business/biden-loans-ev-auto-industry.html
