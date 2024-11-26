@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5949233/2024/11/26/new-york-city-nick-cushing-out/
 https://nytimes.com/athletic/5948514/2024/11/26/scottie-barnes-good-leadership-chris-boucher-and-more-raptors-starting-5/
 
 **Bodies Retrieved After Tourist Ship Sinks Off Egypt’s Red Sea Coast**\
-`Four bodies were retrieved one day after Monday’s shipwreck, according to local authorities. Search teams rescued 31 people and nine people remained missing on Tuesday.`\
+`Four bodies were retrieved one day after Monday’s shipwreck, according to local authorities. Search teams rescued 32 people and eight people remained missing on Tuesday.`\
 https://nytimes.com/video/world/middleeast/100000009845970/red-sea-egypt-boat-sinking.html
 
 **FA pledges to increase diversity of England men's coaching staff by 2028**\

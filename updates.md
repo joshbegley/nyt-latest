@@ -1,3 +1,7 @@
+**Bodies Retrieved After Tourist Ship Sinks Off Egypt’s Red Sea Coast**\
+`Four bodies were retrieved one day after Monday’s shipwreck, according to local authorities. Search teams rescued 32 people and eight people remained missing on Tuesday.`\
+https://nytimes.com/video/world/middleeast/100000009845970/red-sea-egypt-boat-sinking.html
+
 **NYCFC fires head coach Cushing**\
 `NYCFC have fired head coach Nick Cushing, the club announced on Tuesday morning.`\
 https://nytimes.com/athletic/5949233/2024/11/26/new-york-city-nick-cushing-out/
