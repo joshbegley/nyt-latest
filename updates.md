@@ -1,3 +1,16 @@
+**Trump has significant power to impose tariffs unilaterally.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/us/trump-news/trump-has-significant-power-to-impose-tariffs-unilaterally
+
+**Slot: Salah's comments on Liverpool future 'definitely not' a distraction**\
+`Arne Slot insists Mohamed Salah’s comments about his future are not a distraction ahead of Liverpool’s Champions League clash with Real Madrid at Anfield on Wednesday as he joked: “If I look at my line ups then Mo is more in than out!”
+The Egypt forward, who has scored 12 goals in all competitions this season, caused a stir following Sunday’s victory over Southampton when he claimed that he has yet to receive a formal contract offer as he enters the final six months of his deal.`\
+https://nytimes.com/athletic/5949851/2024/11/26/arne-slot-mohamed-salah-liverpool-future/
+
+**College football best bets Week 14: Going with Clemson, an Iowa over and more**\
+`Austin Mock has a number of overs among his several best bets for the final week of the college football regular season.`\
+https://nytimes.com/athletic/5949685/2024/11/26/college-football-best-bets-week-14-clemson-iowa/
+
 **Blue Blossom Puts a Modern Spin on Regional Chinese Dishes**\
 `Le Basque takes on vegan cooking, the Armani restaurant moves into the store’s flagship and more restaurant news.`\
 https://nytimes.com/2024/11/26/dining/nyc-restaurant-news.html
