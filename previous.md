@@ -1,3 +1,15 @@
+**Are the French Laundry and Per Se Still Worth a Splurge? We Went Back to See.**\
+`As Thomas Keller’s most influential restaurants hit major birthdays, the cost and the demand have risen. But what about the food and the fun?`\
+https://nytimes.com/2024/11/26/dining/french-laundry-per-se.html
+
+**Jets QB Aaron Rodgers addresses uncertain NFL future, 2025 plans on Pat McAfee Show**\
+`The Jets are looking at a potential rebuild after in-season firings of their coach and general manager.`\
+https://nytimes.com/athletic/5950722/2024/11/26/aaron-rodgers-2025-season-jets/
+
+**49ers mailbag: Why not Josh Dobbs? What changes are looming this offseason?**\
+`Among the questions this week: Can the 49ers part ways with Deebo Samuel and who might they pursue at defensive coordinator in 2025?`\
+https://nytimes.com/athletic/5950590/2024/11/26/49ers-mailbag-josh-dobbs-offseason-changes/
+
 **Jack Smith Closes Up Shop, Defeated More by Voters Than by Jurors**\
 `The special counsel will leave behind a complex legacy, having amassed considerable evidence against Donald J. Trump but having lost key legal battles that could constrain future investigators.`\
 https://nytimes.com/2024/11/26/us/politics/jack-smith-trump-cases.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/26/us/fbi-most-wanted-extremist-caught-wales.html
 **Israel Approves Cease-Fire With Hezbollah to Halt War in Lebanon**\
 `President Biden said the 60-day truce, which the United States helped broker, would take effect early Wednesday, and was intended to become permanent, ending Lebanon’s deadliest war in decades.`\
 https://nytimes.com/2024/11/26/world/middleeast/cease-fire-israel-hezbollah-lebanon.html
-
-**What the Cease-Fire Between Israel and Lebanon Means for Gaza**\
-`Can a truce lead to an enduring peace?`\
-https://nytimes.com/2024/11/26/opinion/israel-lebanon-ceasefire-gaza.html
-
-**Runners Use Secret Ingredient to Win N.C.A.A. Race: Olive Oil**\
-`B.Y.U.’s cross-country runners went old school and coated their bodies for a cold race day.`\
-https://nytimes.com/2024/11/26/sports/ncaa-cross-country-byu-olive-oil.html
-
-**After Beloved Pilot Dies in Crash, 2 Rescue Dogs Rescue Themselves**\
-`Seuk Kim was transporting three rescue dogs from Maryland to Albany, N.Y., when his plane crashed in the Catskill Mountains. Two of the dogs managed to survive.`\
-https://nytimes.com/2024/11/26/nyregion/plane-crash-pilot-new-york.html
 
