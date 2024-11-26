@@ -1,3 +1,7 @@
+**NBA Power Rankings: Giving thanks for returning vets, sharp coaches and ... Elfrid Payton?**\
+`Lakers and Timberwolves fall, and there's some shuffling among the top four.`\
+https://nytimes.com/athletic/5949042/2024/11/26/nba-power-rankings-spurs-celtics-knicks-lakers/
+
 **Fantasy football Week 13 drops: Quentin Johnston's drops make him droppable and more**\
 `Gary Davenport gives advice on who to drop ahead of Week 13 as fantasy football playoffs near. `\
 https://nytimes.com/athletic/5949291/2024/11/26/fantasy-football-week-13-drops-quentin-johnstons-drops-make-him-droppable-and-more/
