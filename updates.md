@@ -1,3 +1,7 @@
+**Has Social Media Advice Affected Your Finances? We Want to Hear From You.**\
+`If you have come across misleading personal finance advice online, tell us. We may include your experiences in an article.`\
+https://nytimes.com/2024/11/26/business/social-media-influencers-finance-callout.html
+
 **USMNT's McKennie out of Juventus squad for Villa trip**\
 `USMNT midfielder Weston McKennie has been left out of Juventus&#8217; squad for their Champions League tie against Aston Villa on Wednesday.`\
 https://nytimes.com/athletic/5949289/2024/11/26/weston-mckennie-injury-juventus-aston-villa/
