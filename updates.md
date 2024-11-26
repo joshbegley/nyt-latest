@@ -1,5 +1,9 @@
 **Top Trump Aide Accused of Asking for Money to ‘Promote’ Potential Appointees**\
 `President-elect Donald J. Trump ordered the investigation by his legal team into Boris Epshteyn, a powerful figure in the transition. Mr. Epshteyn denies the allegations.`\
+https://nytimes.com/2024/11/25/us/politics/trump-boris-epshteyn-investigation.html
+
+**Top Trump Aide Accused of Asking for Money to ‘Promote’ Potential Appointees**\
+`President-elect Donald J. Trump ordered the investigation by his legal team into Boris Epshteyn, a powerful figure in the transition. Mr. Epshteyn denies the allegations.`\
 https://nytimes.com/2024/11/25/us/politics/top-trump-aide-accused-of-asking-for-money-to-promote-potential-appointees.html
 
 **Trump Plans Tariffs on Mexico, Canada and China That Could Cripple Trade**\

@@ -1,6 +1,6 @@
 **Top Trump Aide Accused of Asking for Money to ‘Promote’ Potential Appointees**\
 `President-elect Donald J. Trump ordered the investigation by his legal team into Boris Epshteyn, a powerful figure in the transition. Mr. Epshteyn denies the allegations.`\
-https://nytimes.com/2024/11/25/us/politics/top-trump-aide-accused-of-asking-for-money-to-promote-potential-appointees.html
+https://nytimes.com/2024/11/25/us/politics/trump-boris-epshteyn-investigation.html
 
 **Israeli Strikes Threaten Lebanon’s Archaeological Treasures**\
 `The country is home to thousands of years’ worth of antiquities. Some have already been damaged or destroyed in the war, alarming the conservationists trying to protect them.`\
