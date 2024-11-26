@@ -1,3 +1,7 @@
+**NYCFC fires head coach Cushing**\
+`NYCFC have fired head coach Nick Cushing, the club announced on Tuesday morning.`\
+https://nytimes.com/athletic/5949233/2024/11/26/new-york-city-nick-cushing-out/
+
 **Scottie Barnes' good leadership, Chris Boucher and more: Raptors starting 5**\
 `Elsewhere, the Raptors need to start taking a lot more 3s. `\
 https://nytimes.com/athletic/5948514/2024/11/26/scottie-barnes-good-leadership-chris-boucher-and-more-raptors-starting-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5945885/2024/11/26/nfl-week-12-worst-best-coaching-
 **General Motors enters the grid: Why F1 changed its tune after rejecting Andretti**\
 `The difference between now and F1's January rejection of Andretti is that with General Motors, it has exactly what it wanted all along.`\
 https://nytimes.com/athletic/5948455/2024/11/26/general-motors-f1-formula-one-grid-expansion-andretti/
-
-**100 Notable Books of 2024**\
-`Here are the year’s notable fiction, poetry and nonfiction, chosen by the staff of The New York Times Book Review.`\
-https://nytimes.com/interactive/2024/11/26/books/notable-books.html
 
