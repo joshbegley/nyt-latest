@@ -1,3 +1,7 @@
+**How set-piece joy and flying full-backs inspired West Ham's win at Newcastle**\
+`Julen Lopetegui's approach was vindicated as West Ham pulled off an impressive victory on the road at Newcastle United`\
+https://nytimes.com/athletic/5947345/2024/11/26/west-ham-lopetegui-newcastle-united/
+
 **Their Landlord Overcharged Them. Now Tenants Will Split $15 Million.**\
 `Dozens of New York City renters are receiving payoffs from Blackstone in a settlement of a case that accused the previous landlord of violating rent-stabilization rules.`\
 https://nytimes.com/2024/11/26/nyregion/blackstone-parker-towers-rent.html

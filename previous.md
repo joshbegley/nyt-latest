@@ -1,3 +1,7 @@
+**How set-piece joy and flying full-backs inspired West Ham's win at Newcastle**\
+`Julen Lopetegui's approach was vindicated as West Ham pulled off an impressive victory on the road at Newcastle United`\
+https://nytimes.com/athletic/5947345/2024/11/26/west-ham-lopetegui-newcastle-united/
+
 **Their Landlord Overcharged Them. Now Tenants Will Split $15 Million.**\
 `Dozens of New York City renters are receiving payoffs from Blackstone in a settlement of a case that accused the previous landlord of violating rent-stabilization rules.`\
 https://nytimes.com/2024/11/26/nyregion/blackstone-parker-towers-rent.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/science/hummingbirds-robots-drone-warfare.html
 **He Was One of New York’s Busiest Shoplifters. His Mother Was a Cop.**\
 `Drug addiction fueled David Andino’s need to steal. Every day, he hit the same Target in Manhattan. His mother, a retired police officer, hadn’t seen him in years.`\
 https://nytimes.com/2024/11/26/nyregion/nyc-shoplifting-target-arrest.html
-
-**Rocket Engine Fire Stalls Japan’s Ambitions to Launch Satellites**\
-`Japan is off to a shaky start in its efforts to break into the space rocket market dominated by Elon Musk’s SpaceX.`\
-https://nytimes.com/2024/11/26/world/asia/japan-satellite-launch-failure.html
 
