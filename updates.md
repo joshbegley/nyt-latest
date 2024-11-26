@@ -1,3 +1,7 @@
+**Trump Plans 25% Tariff on Canada and Mexico, Potentially Crippling Trade**\
+`The president-elect said that he would impose the tariff on Day 1 and that it would stay in place until Canada and Mexico halted the flow of drugs and migrants across U.S. borders.`\
+https://nytimes.com/2024/11/25/business/economy/trump-tariffs-canada-mexico-china.html
+
 **There Is No Excuse for the Bullying of Sarah McBride**\
 `After a brutal election, Democrats need to get better at talking about trans issues.`\
 https://nytimes.com/2024/11/25/opinion/democrats-trans-issues-sarah-mcbride.html
