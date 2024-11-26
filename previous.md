@@ -1,3 +1,11 @@
+**Digging Into Kendrick Lamar’s Samples**\
+`Listen to some of the most notable sonic references on “GNX,” from SWV, Luther Vandross and Debbie Deb.`\
+https://nytimes.com/2024/11/26/arts/music/amplifier-newsletter-kendrick-lamar-samples.html
+
+**Buccaneers' Baker Mayfield suing father's company for $12 million**\
+`Under the contract terms, the Mayfield can demand the full outstanding balance to be paid immediately, per the lawsuit.`\
+https://nytimes.com/athletic/5949507/2024/11/26/baker-mayfield-father-brother-lawsuit-breach-settlement/
+
 **Senators D Artem Zub placed on LTIR: Will it lead to a trade?**\
 `Zub was placed on long-term injured reserve Tuesday morning after suffering a fracture in his foot.`\
 https://nytimes.com/athletic/5949759/2024/11/26/senators-artem-zub-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5949699/2024/11/26/auburn-unc-how-to-watch-odds-pre
 **Yes, It ‘Looks Like a Duck,’ but Carriers Like the New Mail Truck**\
 `The electric trucks have a side cargo door, more space and, critically, air conditioning, promising some long-overdue relief for carriers, who haven’t had an upgrade since the 1980s.`\
 https://nytimes.com/2024/11/26/us/usps-new-mail-trucks.html
-
-**Heat Today: How Kevin Love is finding ways to make an impact in limited minutes**\
-`The former All-Star is mostly a floor-spacing role player, but he's given Miami a big lift. "They just love playing with him." `\
-https://nytimes.com/athletic/5949486/2024/11/26/kevin-love-heat-today/
-
-**If Trump follows through on his tariffs, trade wars may follow.**\
-`By Ana Swanson`\
-https://nytimes.com/live/2024/us/trump-news/if-trump-follows-through-on-his-tariffs-trade-wars-may-follow
 
