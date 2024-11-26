@@ -1,3 +1,11 @@
+**Live Updates: Israel Pummels Lebanon as Ministers Prepare to Discuss Truce With Hezbollah**\
+`Prime Minister Benjamin Netanyahu was expected to present a deal mediated by U.S. and French diplomats to end the fighting. The Israeli military kept up the pressure with heavy strikes in and around Beirut.`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire
+
+**Southgate not 'limiting his future options' to coaching**\
+`Gareth Southgate says he is not “limiting his future options” to just returning to football coaching.`\
+https://nytimes.com/athletic/5949273/2024/11/26/gareth-southgate-future-coaching/
+
 **NYCFC fires head coach Cushing**\
 `NYCFC have fired head coach Nick Cushing, the club announced on Tuesday morning.`\
 https://nytimes.com/athletic/5949233/2024/11/26/new-york-city-nick-cushing-out/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/26/business/dealbook/trumps-tariff-markets.html
 **Sign Up to Learn the 10 Best Books of 2024**\
 `On Dec. 3, we’ll announce our picks. Make sure you’re among the first to find out.`\
 https://nytimes.com/2024/11/26/books/best-books-announcement.html
-
-**NFL Week 12 best and worst coaching decisions: Dave Canales, Bryce Young progress**\
-`Also, Mike Zimmer's Cowboys defense bests Kliff Kingsbury's Commanders offense and Matt LaFleur has the Packers' run game humming.`\
-https://nytimes.com/athletic/5945885/2024/11/26/nfl-week-12-worst-best-coaching-decisions-nguyen/
-
-**General Motors enters the grid: Why F1 changed its tune after rejecting Andretti**\
-`The difference between now and F1's January rejection of Andretti is that with General Motors, it has exactly what it wanted all along.`\
-https://nytimes.com/athletic/5948455/2024/11/26/general-motors-f1-formula-one-grid-expansion-andretti/
 
