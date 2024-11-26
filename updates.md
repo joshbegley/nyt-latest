@@ -1,3 +1,7 @@
+**Arteta hails Arsenal ruthless in Sporting CP win: 'We played with courage'**\
+`Mikel Arteta hailed Arsenal&#8217;s 5-1 win over Sporting CP as a landmark victory as he praised his players for finding their ruthless streak in front of goal.`\
+https://nytimes.com/athletic/5951132/2024/11/26/mikel-arteta-arsenal-sporting-cp/
+
 **Trump’s Tariff Threat Pits Canada Against Mexico**\
 `The president-elect’s opening salvo in trade and border talks with the United States’ neighbors is casting a harsh light on the North American alliance.`\
 https://nytimes.com/2024/11/26/world/mexico-canada-trump-tariffs.html

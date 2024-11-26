@@ -1,3 +1,7 @@
+**Arteta hails Arsenal ruthless in Sporting CP win: 'We played with courage'**\
+`Mikel Arteta hailed Arsenal&#8217;s 5-1 win over Sporting CP as a landmark victory as he praised his players for finding their ruthless streak in front of goal.`\
+https://nytimes.com/athletic/5951132/2024/11/26/mikel-arteta-arsenal-sporting-cp/
+
 **Trump’s Tariff Threat Pits Canada Against Mexico**\
 `The president-elect’s opening salvo in trade and border talks with the United States’ neighbors is casting a harsh light on the North American alliance.`\
 https://nytimes.com/2024/11/26/world/mexico-canada-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009847608/israel-lebanon-ceasef
 **A Vulnerable Trudeau Hopes to Muster Unity Against Trump Tariff Plans**\
 `Many of the prime minister’s political opponents were as critical of him as about the president-elect’s plan, which would adversely affect Canada’s economy.`\
 https://nytimes.com/2024/11/26/us/politics/trudeau-trump-tariffs.html
-
-**Israel Approved Terms for a Cease-Fire With Hezbollah**\
-`Also, Mexico responded to Trump’s tariff threat. Here's the latest at the end of Tuesday.`\
-https://nytimes.com/2024/11/26/briefing/israel-lebanon-cease-fire-trump-tariff-threat.html
 
