@@ -1,3 +1,15 @@
+**Officials May Close Huge N.Y.C. Migrant Shelter, Fearing Trump Crackdown**\
+`The administration of Mayor Eric Adams is fearful that President-elect Donald J. Trump may target a Brooklyn tent complex housing 2,000 asylum seekers on federal land.`\
+https://nytimes.com/2024/11/26/nyregion/nyc-migrant-shelter-closing-trump-immigration.html
+
+**Citations issued to Dolphins WR Tyreek Hill in September dismissed**\
+`Hill was issued the citations on his way to Hard Rock Stadium after police pulled him over just hours before his team's Week 1 win.`\
+https://nytimes.com/athletic/5949683/2024/11/26/tyreek-hill-dolphins-citations-dismissed/
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/11/26/opinion/thepoint
+
 **Rice football hires Scott Abell from FCS ranks as new head coach**\
 `Abell’s teams were led by an explosive shotgun triple option offense that led the FCS in scoring and rushing in 2023.`\
 https://nytimes.com/athletic/5949758/2024/11/26/rice-football-scott-abell-head-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/26/arts/television/the-madness-colman-domingo.html
 **Drake Accuses Universal and Spotify of Boosting a Kendrick Lamar Song**\
 `The Canadian rapper filed legal papers on Monday claiming that the record company and streaming service promoted “Not Like Us” ahead of Drake’s tracks.`\
 https://nytimes.com/2024/11/26/arts/music/drake-lawsuit-kendrick-lamar-not-like-us.html
-
-**One Housing Project Got Built. Another Didn’t. Why?**\
-`There’s a solution to New York City’s housing shortage: Build more homes. But that can get complicated. Mihir Zaveri, a New York Times reporter covering housing in the New York City region, explains why one project got built and another did not.`\
-https://nytimes.com/video/nyregion/100000009823249/one-housing-project-got-built-another-didnt-why.html
-
-**Lloyd: Assessing 8 incredible stats that define the Cavs' remarkable 17-1 start**\
-`Cleveland has outscored opponents by 223 points, already surpassing last season’s total of198. The franchise wins mark is within reach.`\
-https://nytimes.com/athletic/5948791/2024/11/26/cleveland-cavaliers-8-incredible-stats/
-
-**North Carolina’s Democratic Governor Vetoes a G.O.P. Power Grab**\
-`Republicans have a supermajority in the state’s legislature and may move to override Gov. Roy Cooper’s veto, which would set off a new fight over state power and hurricane aid.`\
-https://nytimes.com/2024/11/26/us/politics/roy-cooper-north-carolina-republicans.html
 
