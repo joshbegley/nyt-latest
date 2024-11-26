@@ -1,3 +1,15 @@
+**Nuggets 'embarrassed' by Knicks at home: 'Who do we want to be as a team?'**\
+`Denver coach Michael Malone blasted his team's effort in the 145-118 loss on Monday night.`\
+https://nytimes.com/athletic/5948731/2024/11/26/nuggets-knicks-michael-malone-nikola-jokic/
+
+**Did we just watch the best day in Maui Invitational history?**\
+`Only Maui magic explains how a 2,400-seat high school gymnasium seems to always, somehow, spur spectacular basketball games.`\
+https://nytimes.com/athletic/5949083/2024/11/26/maui-invitational-history-scores-bracket-unc/
+
+**Man Utd post profit for first quarter of season despite £8.6m in 'restructuring' costs**\
+`Manchester United made a profit during the first quarter of the 2024-25 season, despite paying out £8.`\
+https://nytimes.com/athletic/5949129/2024/11/26/man-utd-finances-profit-stadium/
+
 **The Athletic FC: War-torn Sudan's World Cup dream; Spurs' Vicario blow; more Scots in Italy?**\
 `Today in TAFC: How Sudan's national team are succeeding even as civil war rages; Vicario breaks his ankle; why Italian clubs want Scots`\
 https://nytimes.com/athletic/5949013/2024/11/26/sudan-world-cup-vicario-tottenham-scots-in-italy/
@@ -10,6 +22,10 @@ https://nytimes.com/athletic/5944268/2024/11/26/milwaukee-bucks-doc-rivers-andre
 `What is the new concept and is it really the revolution organisers are suggesting?`\
 https://nytimes.com/athletic/5949002/2024/11/26/baller-league-explained-ksi-ishowspeed/
 
+**College football bowl projections: How chaos impacts Alabama, Oklahoma, Ole Miss**\
+`With one more week of regular-season action, 77 teams have qualified for the postseason.`\
+https://nytimes.com/athletic/5915859/2024/11/26/college-football-bowl-projections-9/
+
 **'I cannot be the same every time': How tennis players and tennis coaches choose each other**\
 `The relationship between player and coach can be transformative or combustible, sometimes both. So how do they start?`\
 https://nytimes.com/athletic/5947172/2024/11/26/tennis-players-coaches-relationship-how-choose/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5948879/2024/11/26/chargers-loss-harbaugh-ravens/
 **Can Broncos' rushing roulette support a playoff push down the stretch?**\
 `Denver has had five different players lead the team in rushing during a game this season, the most since 2010.`\
 https://nytimes.com/athletic/5946402/2024/11/26/broncos-running-backs/
-
-**The Pulse: The HarBowl lived up to the hype**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5948364/2024/11/26/chargers-ravens-harbaugh-the-pulse/
-
-**Arsenal's Wubben-Moy replaces Man Utd's Le Tissier in England squad**\
-`Arsenal defender Lotte Wubben-Moy has been called up to the England squad for their upcoming friendlies.`\
-https://nytimes.com/athletic/5948992/2024/11/26/england-women-squad-wubben-moy-le-tissier/
-
-**Barack Obama’s Big Lesson**\
-`We cover an analysis of the 2024 election.`\
-https://nytimes.com/2024/11/26/briefing/election-2024-barack-obama.html
-
-**'I don’t feel as though I’m welcomed at Liverpool - it bloody hurts'**\
-`Owen's pain at being marginalised by his boyhood club is still raw`\
-https://nytimes.com/athletic/5934690/2024/11/26/michael-owen-liverpool-real-madrid-manchester-united/
 
