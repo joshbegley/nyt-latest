@@ -1,3 +1,7 @@
+**16 Still Missing After Tourist Ship Capsizes in Egypt**\
+`The vessel was hit by a large wave in a part of the Red Sea coast that is known for diving and snorkeling.`\
+https://nytimes.com/2024/11/26/world/middleeast/egypt-tourist-boat-sinks-red-sea.html
+
 **John Harbaugh's aggressive decision-making helps Ravens find footing in win over Chargers**\
 `Converting a fourth-and-1 deep in its own territory helped shift the momentum in Baltimore's favor for a critical Monday night victory. `\
 https://nytimes.com/athletic/5948883/2024/11/26/ravens-win-john-harbaugh-chargers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947027/2024/11/26/ned-rice-phillies-family-brain-c
 **How much has Michigan's defense changed under Wink Martindale — and what's next?**\
 `ANN ARBOR, Mich.`\
 https://nytimes.com/athletic/5947249/2024/11/26/michigan-ohio-state-wink-martindale/
-
-**Fentanyl Rises Again, This Time as Trump’s Diplomatic Weapon Against China**\
-`The president-elect’s pledge to use tariffs to stem the flow of opioids from China could backfire if Beijing responds by ending counternarcotics cooperation.`\
-https://nytimes.com/2024/11/26/world/asia/trump-china-tariff-fentanyl.html
 
