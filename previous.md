@@ -18,7 +18,7 @@ https://nytimes.com/2024/11/26/opinion/angela-merkel-book-freedom.html
 `Three giant, shifting tectonic plates will have profound implications for the new administration.`\
 https://nytimes.com/2024/11/26/opinion/trump-israel-iran.html
 
-**Wild got 'goalied' and deserved better but suffered another loss to the Jets**\
+**Wild get 'goalied' and deserved better but suffer another loss to the Jets**\
 `Connor Hellebuyck made 38 of his 43 saves in the first 36 minutes, leading Winnipeg to its seventh straight win against Minnesota.`\
 https://nytimes.com/athletic/5948732/2024/11/26/wild-keep-losing-to-jets/
 

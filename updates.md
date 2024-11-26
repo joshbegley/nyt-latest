@@ -1,3 +1,7 @@
+**Wild get 'goalied' and deserved better but suffer another loss to the Jets**\
+`Connor Hellebuyck made 38 of his 43 saves in the first 36 minutes, leading Winnipeg to its seventh straight win against Minnesota.`\
+https://nytimes.com/athletic/5948732/2024/11/26/wild-keep-losing-to-jets/
+
 **Word of the Day: propaganda**\
 `This word has appeared in 678 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/11/26/learning/word-of-the-day-propaganda.html
