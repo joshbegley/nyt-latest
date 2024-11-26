@@ -1,3 +1,7 @@
+**Top Trump Aide Accused of Asking for Money to ‘Promote’ Potential Appointees**\
+`President-elect Donald J. Trump ordered the investigation by his legal team into Boris Epshteyn, a powerful figure in the transition. Mr. Epshteyn denies the allegations.`\
+https://nytimes.com/2024/11/25/us/politics/top-trump-aide-accused-of-asking-for-money-to-promote-potential-appointees.html
+
 **Israeli Strikes Threaten Lebanon’s Archaeological Treasures**\
 `The country is home to thousands of years’ worth of antiquities. Some have already been damaged or destroyed in the war, alarming the conservationists trying to protect them.`\
 https://nytimes.com/2024/11/25/world/middleeast/lebanon-antiquities-israel-strikes.html
@@ -23,7 +27,7 @@ https://nytimes.com/2024/11/25/opinion/democrats-trans-issues-sarah-mcbride.html
 https://nytimes.com/2024/11/25/arts/music/at-the-brooklyn-academy-musical-journeys-through-minefields.html
 
 **Trump Plans Tariffs on Mexico, Canada and China That Could Cripple Trade**\
-`The president-elect said that he would impose the across-the-board tariffs on Day 1 and that they would stay in place until Canada, Mexico and China halted the flow of drugs and migrants.`\
+`The president-elect said that he would impose the across-the-board tariffs on Day 1 and that they would stay in place until the three countries halted the flow of drugs and migrants.`\
 https://nytimes.com/2024/11/25/business/economy/trump-tariffs-canada-mexico-china.html
 
 **Submit questions for Ben Standig's Commanders mailbag**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5948262/2024/11/25/commanders-mailbag-losing-streak
 **End of Trump Cases Leaves Limits on Presidential Criminality Unclear**\
 `Donald J. Trump is set to regain office without clarity on the scope of presidential immunity and with a lingering cloud over whether outside special counsels can investigate high-level wrongdoing.`\
 https://nytimes.com/2024/11/25/us/politics/trump-cases-presidential-criminality.html
-
-**Crony Capitalism Is Coming to America**\
-`Business success may increasingly depend on connections, not competence.`\
-https://nytimes.com/2024/11/25/opinion/trump-tariffs-deportations.html
 
