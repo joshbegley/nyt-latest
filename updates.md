@@ -1,3 +1,11 @@
+**John Harbaugh's aggressive decision-making helps Ravens find footing in win over Chargers**\
+`Converting a fourth-and-1 deep in its own territory helped shift the momentum in Baltimore's favor for a critical Monday night victory. `\
+https://nytimes.com/athletic/5948883/2024/11/26/ravens-win-john-harbaugh-chargers/
+
+**Fury Unfolds in Pakistan**\
+`Scenes from the violent clashes between the security forces and protesters who are demanding the release of Imran Khan from prison.`\
+https://nytimes.com/2024/11/26/world/asia/pakistan-protest-photos.html
+
 **How a special friendship is defining one of the NBA's best cultures**\
 `Suggs' viral comforting of a crying Carter Jr. went deeper than it appeared. And it reveals what makes the Magic special.`\
 https://nytimes.com/athletic/5941499/2024/11/26/jalen-suggs-wendell-carter-jr-magic-friendship/
