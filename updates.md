@@ -1,3 +1,11 @@
+**Top Trump Aide Accused of Asking for Money to ‘Promote’ Potential Appointees**\
+`President-elect Donald J. Trump ordered the investigation by his legal team into Boris Epshteyn, a powerful figure in the transition. Mr. Epshteyn denies the allegations.`\
+https://nytimes.com/2024/11/25/us/politics/top-trump-aide-accused-of-asking-for-money-to-promote-potential-appointees.html
+
+**Trump Plans Tariffs on Mexico, Canada and China That Could Cripple Trade**\
+`The president-elect said that he would impose the across-the-board tariffs on Day 1 and that they would stay in place until the three countries halted the flow of drugs and migrants.`\
+https://nytimes.com/2024/11/25/business/economy/trump-tariffs-canada-mexico-china.html
+
 **Trump Plans Tariffs on Mexico, Canada and China That Could Cripple Trade**\
 `The president-elect said that he would impose the across-the-board tariffs on Day 1 and that they would stay in place until Canada, Mexico and China halted the flow of drugs and migrants.`\
 https://nytimes.com/2024/11/25/business/economy/trump-tariffs-canada-mexico-china.html
