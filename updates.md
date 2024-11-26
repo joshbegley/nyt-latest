@@ -1,3 +1,11 @@
+**Mack Brown out at UNC; Tulane's Sumrall will get good look**\
+`Brown’s 113 career wins, 10 bowl trips and four bowl victories are the most in UNC football history.`\
+https://nytimes.com/athletic/5946905/2024/11/26/mack-brown-retires-unc-football/
+
+**New Drug Causes 20 Percent Weigh Loss in Early Amgen Results**\
+`The drug, which is named MariTide and delivered in a monthly injection, is some time from being sold.`\
+https://nytimes.com/2024/11/26/health/weight-loss-drug-maritide-amgen.html
+
 **North Carolina’s Democratic Governor Vetoes a G.O.P. Power Grab**\
 `Republicans have a supermajority in the state’s legislature and may move to override Gov. Roy Cooper’s veto, which would set off a new fight over state power and hurricane aid.`\
 https://nytimes.com/2024/11/26/us/politics/roy-cooper-north-carolina-republicans.html
