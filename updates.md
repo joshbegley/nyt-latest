@@ -1,3 +1,15 @@
+**Israel Approved Terms for a Cease-Fire With Hezbollah**\
+`Also, Mexico responded to Trump’s tariff threat. Here's the latest at the end of Tuesday.`\
+https://nytimes.com/2024/11/26/briefing/israel-lebanon-cease-fire-trump-tariff-threat.html
+
+**Breaking down the numbers behind Robert Lewandowski's century of Champions League goals**\
+`Barcelona striker Lewandowski has become just the third player to reach 100 European Cup/Champions League goals — this is how he did it`\
+https://nytimes.com/athletic/5908438/2024/11/26/robert-lewandowski-100-champions-league-goals/
+
+**Fugitive on List of F.B.I.’s Most-Wanted Terrorists Is Captured in U.K.**\
+`The suspect, an animal-rights activist, was sought in connection to the bombings of two San Francisco-area businesses in 2003.`\
+https://nytimes.com/2024/11/26/us/fbi-most-wanted-extremist-caught-wales.html
+
 **Israel Approves Cease-Fire With Hezbollah to Halt War in Lebanon**\
 `President Biden said the 60-day truce, which the United States helped broker, would take effect early Wednesday and was intended to become permanent, ending Lebanon’s deadliest war in decades.`\
 https://nytimes.com/2024/11/26/world/middleeast/cease-fire-israel-hezbollah-lebanon.html
