@@ -1,3 +1,15 @@
+**Angela Merkel Isn’t Ready to Say Sorry**\
+`In her memoir, the former German chancellor doesn’t take the chance to make amends.`\
+https://nytimes.com/2024/11/26/opinion/angela-merkel-book-freedom.html
+
+**Mr. Trump, Do You Realize How Much the World Has Changed Since You Were President?**\
+`Three giant, shifting tectonic plates will have profound implications for the new administration.`\
+https://nytimes.com/2024/11/26/opinion/trump-israel-iran.html
+
+**Wild got 'goalied' and deserved better, but suffer another loss to Jets**\
+`Connor Hellebuyck made 38 of his 43 saves in the first 36 minutes, leading Winnipeg to its 7th straight win against Minnesota.`\
+https://nytimes.com/athletic/5948732/2024/11/26/wild-keep-losing-to-jets/
+
 **Spurs must stop these wild swings in mood and form but this may be the hardest time to do it**\
 `The good vibes lasted for 48 hours this time. Then Vicario's ankle surgery was announced. Spurs' tough schedule suddenly looks even tougher`\
 https://nytimes.com/athletic/5937526/2024/11/26/spurs-postecoglou-form-vicario-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5948710/2024/11/26/auburn-iowa-state-johni-broome-m
 **Bayern Munich vs PSG: Four years after meeting in the Champions League final, how have they changed?**\
 `As the two European giants meet again, we assess the profile, tactics and progress of each side`\
 https://nytimes.com/athletic/5946229/2024/11/26/bayern-munich-vs-psg-four-years-after-meeting-in-the-champions-league-final-whats-changed/
-
-**'I felt ashamed' - How a dream summer transfer became one footballer's nightmare**\
-`Muhammadu Faal was announced as a Crawley player on July 22 but he never received a final contract. Then it all turned sour`\
-https://nytimes.com/athletic/5935036/2024/11/26/muhammadu-faal-crawley-transfer-nightmare/
-
-**The Scots thriving in Italy: 'Everyone was surprised I actually had good technique'**\
-`For more than 30 years, there were no Scots playing in Serie A but that has changed dramatically`\
-https://nytimes.com/athletic/5902911/2024/11/26/scottish-players-italy-serie-a/
-
-**Tuesday Briefing**\
-`Talks on a truce between Israel and Lebanon.`\
-https://nytimes.com/2024/11/26/briefing/truce-trump-storm-bert.html
 

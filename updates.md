@@ -1,3 +1,15 @@
+**Angela Merkel Isn’t Ready to Say Sorry**\
+`In her memoir, the former German chancellor doesn’t take the chance to make amends.`\
+https://nytimes.com/2024/11/26/opinion/angela-merkel-book-freedom.html
+
+**Mr. Trump, Do You Realize How Much the World Has Changed Since You Were President?**\
+`Three giant, shifting tectonic plates will have profound implications for the new administration.`\
+https://nytimes.com/2024/11/26/opinion/trump-israel-iran.html
+
+**Wild got 'goalied' and deserved better, but suffer another loss to Jets**\
+`Connor Hellebuyck made 38 of his 43 saves in the first 36 minutes, leading Winnipeg to its 7th straight win against Minnesota.`\
+https://nytimes.com/athletic/5948732/2024/11/26/wild-keep-losing-to-jets/
+
 **How Jim Montgomery earned win in Blues coaching debut: 3 takeaways**\
 `The Blues took a season-high 43 shots, Zack Bolduc had a breakout game, and the team played with togetherness.`\
 https://nytimes.com/athletic/5948307/2024/11/26/blues-jim-montgomery-rangers-takeaways/
