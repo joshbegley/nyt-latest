@@ -1,3 +1,7 @@
+**Wednesday Briefing: Israel Approves Hezbollah Cease-Fire Deal**\
+`Plus, Mexico reacts to Trump’s tariff threats.`\
+https://nytimes.com/2024/11/26/briefing/cease-fire-tariff-trump-ukraine.html
+
 **Saudi Arabia and Russia to U.N.: Don’t Talk About a Fossil Fuel Exit**\
 `A handful of oil-producing nations ensured that a United Nations General Assembly resolution on climate change steered clear of a call to transition away from fossil fuels.`\
 https://nytimes.com/2024/11/26/climate/saudi-arabia-russia-fossil-fuels-un.html
