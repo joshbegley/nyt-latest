@@ -1,3 +1,11 @@
+**How a special friendship is defining one of the NBA's best cultures**\
+`Suggs' viral comforting of a crying Carter Jr. went deeper than it appeared. And it reveals what makes the Magic special.`\
+https://nytimes.com/athletic/5941499/2024/11/26/jalen-suggs-wendell-carter-jr-magic-friendship/
+
+**Liverpool's Tsimikas set for short spell on sidelines with ankle injury**\
+`Liverpool defender Kostas Tsimikas is set for a short spell on the sidelines due to an ankle injury.`\
+https://nytimes.com/athletic/5948964/2024/11/26/liverpool-tsimikas-ankle-injury/
+
 **Browns' vision for Jerry Jeudy is coming to life with Jameis Winston at QB**\
 `In the four games since Winston has become Cleveland's starting QB, Jeudy's recorded 24 receptions for 379 yards and a touchdown. `\
 https://nytimes.com/athletic/5947733/2024/11/26/browns-jerry-jeudy-jameis-winston/
