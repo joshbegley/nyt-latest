@@ -1,3 +1,11 @@
+**Pakistan’s Army Deployed as Police Clash With Imran Khan’s Supporters**\
+`Soldiers have been ordered to defend government buildings and use gunfire against Imran Khan’s supporters if needed.`\
+https://nytimes.com/video/world/asia/100000009846440/pakistan-protests-imran-khan.html
+
+**U.S. Investigating Political Action Committee Tied to Mayor Adams**\
+`Prosecutors and the F.B.I. are examining an organization founded by the Rev. Alfred Cockfield II, according to people with knowledge of the matter.`\
+https://nytimes.com/2024/11/26/nyregion/adams-cockfield-federal-investigation.html
+
 **U.S. markets have a muted reaction, with some exceptions, to Trump’s tariff pledge.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2024/us/trump-news/us-markets-have-a-muted-reaction-with-some-exceptions-to-trumps-tariff-pledge
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5949516/2024/11/26/victor-wembanyama-ups-downs-spur
 **A 2024 World Series champion Dodgers full playoff pool share is worth $477K**\
 `The total amount of money split between the 12 MLB postseason teams this year, $129.1 million, was a record. `\
 https://nytimes.com/athletic/5949764/2024/11/26/world-series-dodgers-mlb-playoff-share/
-
-**Explaining why Barcelona have closed part of their ground 'indefinitely'**\
-`Barca believe a group of fans should repay the money the club have been fined for crowd misbehaviour. The supporters involved disagree...`\
-https://nytimes.com/athletic/5949974/2024/11/26/barcelona-montjuic-fans-behaviour/
-
-**Miami names Mascherano as new head coach**\
-`Former Barcelona, Liverpool and Argentina midfielder Javier Mascherano has been named by Inter Miami as its new head coach.`\
-https://nytimes.com/athletic/5948934/2024/11/26/inter-miami-javier-mascherano-confirmed/
 
