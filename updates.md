@@ -1,3 +1,15 @@
+**Powers Points: Philipp Kurashev out to prove himself again with next contract looming**\
+`Plus a breakdown of Connor Bedard's game so far this season and ranking the top Blackhawks prospects by play.`\
+https://nytimes.com/athletic/5947817/2024/11/26/blackhawks-kurashev-contract-nhl-bedard/
+
+**Live Updates: Israel Pummels Lebanon as Ministers Prepare to Discuss Truce With Hezbollah**\
+`Prime Minister Benjamin Netanyahu was expected to present a deal mediated by U.S. and French diplomats to end the fighting. The Israeli military kept up the pressure with heavy strikes in and around Beirut.`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire
+
+**Southgate not 'limiting his future options' to coaching**\
+`Gareth Southgate says he is not “limiting his future options” to just returning to football coaching.`\
+https://nytimes.com/athletic/5949273/2024/11/26/gareth-southgate-future-coaching/
+
 **Bodies Retrieved After Tourist Ship Sinks Off Egypt’s Red Sea Coast**\
 `Four bodies were retrieved one day after Monday’s shipwreck, according to local authorities. Search teams rescued 32 people and eight people remained missing on Tuesday.`\
 https://nytimes.com/video/world/middleeast/100000009845970/red-sea-egypt-boat-sinking.html
