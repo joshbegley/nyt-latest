@@ -14,10 +14,6 @@ https://nytimes.com/athletic/5950166/2024/11/26/dabo-swinney-nil-revenue-sharing
 `Both Shedeur Sanders and Travis Hunter have been rumored to be in play for the No. 1 pick in next year’s NFL Draft.`\
 https://nytimes.com/athletic/5950358/2024/11/26/shedeur-sanders-travis-hunter-bowl-colorado/
 
-**Editor’s Note.**\
-`This article was published prematurely.`\
-https://nytimes.com/interactive/2024/11/26/us/published-in-error.html
-
 **TV on the Radio, Brooklyn Rock Veterans, Return to the Stage**\
 `The acclaimed band, which emerged during the 2000s indie boom, is performing a series of live shows commemorating the 20th anniversary of its debut album.`\
 https://nytimes.com/2024/11/26/arts/music/tv-on-the-radio-live-shows.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/11/26/arts/music/amplifier-newsletter-kendrick-lamar-sa
 **Buccaneers' Baker Mayfield suing father's company for $12 million**\
 `Under the contract terms, Mayfield can demand the full outstanding balance to be paid immediately, per the lawsuit.`\
 https://nytimes.com/athletic/5949507/2024/11/26/baker-mayfield-father-brother-lawsuit-breach-settlement/
+
+**Senators D Artem Zub placed on LTIR: Will it lead to a trade?**\
+`Zub was placed on long-term injured reserve Tuesday morning after suffering a fracture in his foot.`\
+https://nytimes.com/athletic/5949759/2024/11/26/senators-artem-zub-injury/
 
