@@ -1,3 +1,11 @@
+**After Trump’s Tariff Threat, Is a China Currency War Next?**\
+`While China could offset American tariffs by letting its currency fall, that might endanger Beijing’s recent efforts to stabilize the economy.`\
+https://nytimes.com/2024/11/26/business/trump-tariffs-us-china-currency.html
+
+**How much has Michigan's defense changed under Wink Martindale — and what's next?**\
+`ANN ARBOR, Mich.`\
+https://nytimes.com/athletic/5947249/2024/11/26/michigan-ohio-state-wink-martindale/
+
 **Fentanyl Rises Again, This Time as Trump’s Diplomatic Weapon Against China**\
 `The president-elect’s pledge to use tariffs to stem the flow of opioids from China could backfire if Beijing responds by ending counternarcotics cooperation.`\
 https://nytimes.com/2024/11/26/world/asia/trump-china-tariff-fentanyl.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/26/climate/women-landscape-architecture-climate-chan
 **Biden Cuts Intel’s Chip Award by More Than $600 Million**\
 `The Silicon Valley company will receive less money from the CHIPS Act after winning a $3 billion military contract and changing some of its investment commitments.`\
 https://nytimes.com/2024/11/26/business/economy/intel-chips-award-biden.html
-
-**A Great Idea for People With a Terrible Disease: Let’s Find a Cure Ourselves**\
-`A group of long Covid patients is financing research, and making progress.`\
-https://nytimes.com/2024/11/26/opinion/charity-holiday-gift-long-covid-research.html
-
-**Do You Have Any Special or Unusual Holiday Traditions?**\
-`Times readers shared their fun, unique and eccentric holiday rituals — like singing to the turkey with a sibling while it roasts outside. What are yours?`\
-https://nytimes.com/2024/11/26/learning/do-you-have-any-special-or-unusual-holiday-traditions.html
 
