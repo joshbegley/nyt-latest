@@ -1,3 +1,19 @@
+**NFL best bets Week 13: 'Give me all the food and all the points'**\
+`Austin Mock's model likes three plays so far for Week 13, including a Thanksgiving Day game and Eagles-Ravens. `\
+https://nytimes.com/athletic/5949895/2024/11/26/nfl-best-bets-week-13-bears-lions-eagles-ravens/
+
+**Jack Smith and the Dismissal of Cases Against Trump**\
+`Readers discuss the special counsel’s move and whether the cases should have been dismissed. Also: Medicaid; turkeys’ misery; skilled immigrants.`\
+https://nytimes.com/2024/11/26/opinion/donald-trump-jack-smith-jan6.html
+
+**Cowboys Today: Jerry Jones more interested in wins than 'ambiguity' of draft picks**\
+`The Cowboys had 16 players on their injury report Monday as they deal with a season-long problem of getting everyone on the field.`\
+https://nytimes.com/athletic/5949514/2024/11/26/cowboys-today-jerry-jones-tanking-draft-picks-injuries/
+
+**Intense Israeli airstrikes send people fleeing central Beirut in panic.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/intense-israeli-airstrikes-send-people-fleeing-central-beirut-in-panic
+
 **Are All These U.N. Climate Talks Doing Any Good?**\
 `What the U.N. negotiations, known as COP, can (and can’t) do to combat climate change.`\
 https://nytimes.com/2024/11/26/climate/cop29-un-climate-negotiations.html

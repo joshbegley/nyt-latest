@@ -1,3 +1,19 @@
+**NFL best bets Week 13: 'Give me all the food and all the points'**\
+`Austin Mock's model likes three plays so far for Week 13, including a Thanksgiving Day game and Eagles-Ravens. `\
+https://nytimes.com/athletic/5949895/2024/11/26/nfl-best-bets-week-13-bears-lions-eagles-ravens/
+
+**Jack Smith and the Dismissal of Cases Against Trump**\
+`Readers discuss the special counsel’s move and whether the cases should have been dismissed. Also: Medicaid; turkeys’ misery; skilled immigrants.`\
+https://nytimes.com/2024/11/26/opinion/donald-trump-jack-smith-jan6.html
+
+**Cowboys Today: Jerry Jones more interested in wins than 'ambiguity' of draft picks**\
+`The Cowboys had 16 players on their injury report Monday as they deal with a season-long problem of getting everyone on the field.`\
+https://nytimes.com/athletic/5949514/2024/11/26/cowboys-today-jerry-jones-tanking-draft-picks-injuries/
+
+**Intense Israeli airstrikes send people fleeing central Beirut in panic.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/intense-israeli-airstrikes-send-people-fleeing-central-beirut-in-panic
+
 **Are All These U.N. Climate Talks Doing Any Good?**\
 `What the U.N. negotiations, known as COP, can (and can’t) do to combat climate change.`\
 https://nytimes.com/2024/11/26/climate/cop29-un-climate-negotiations.html
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/5949851/2024/11/26/arne-slot-mohamed-salah-liverpoo
 **College football best bets Week 14: Going with Clemson, an Iowa over and more**\
 `Austin Mock has a number of overs among his several best bets for the final week of the college football regular season.`\
 https://nytimes.com/athletic/5949685/2024/11/26/college-football-best-bets-week-14-clemson-iowa/
-
-**Blue Blossom Puts a Modern Spin on Regional Chinese Dishes**\
-`Le Basque takes on vegan cooking, the Armani restaurant moves into the store’s flagship and more restaurant news.`\
-https://nytimes.com/2024/11/26/dining/nyc-restaurant-news.html
-
-**Alexander-Arnold to return to Liverpool squad, could play role from bench vs Madrid**\
-`Arne Slot says Trent Alexander-Arnold is not fit enough to start Liverpool’s Champions League clash with Real Madrid at Anfield — but he could play a role off the bench.`\
-https://nytimes.com/athletic/5937775/2024/11/26/alexander-arnold-injury-liverpool-real-madrid/
-
-**Scoop City: Updated playoff (and No. 1 pick) races**\
-`Evaluating key battles for No. 1 seeds, wild card spots and the first pick, plus a look at Week 13's fantasy adds and Belichick's next job`\
-https://nytimes.com/athletic/5949479/2024/11/26/updated-playoff-standings-wild-card-scoop-city/
-
-**Officials May Close Huge N.Y.C. Migrant Shelter, Fearing Trump Crackdown**\
-`The administration of Mayor Eric Adams is fearful that President-elect Donald J. Trump may target a Brooklyn tent complex housing 2,000 asylum seekers on federal land.`\
-https://nytimes.com/2024/11/26/nyregion/nyc-migrant-shelter-closing-trump-immigration.html
 
