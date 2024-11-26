@@ -1,3 +1,15 @@
+**Arsenal's Wubben-Moy replaces Man Utd's Le Tissier in England squad**\
+`Arsenal defender Lotte Wubben-Moy has been called up to the England squad for their upcoming friendlies.`\
+https://nytimes.com/athletic/5948992/2024/11/26/england-women-squad-wubben-moy-le-tissier/
+
+**Barack Obama’s Big Lesson**\
+`We cover an analysis of the 2024 election.`\
+https://nytimes.com/2024/11/26/briefing/election-2024-barack-obama.html
+
+**'I don’t feel as though I’m welcomed at Liverpool - it bloody hurts'**\
+`Owen's pain at being marginalised by his boyhood club is still raw`\
+https://nytimes.com/athletic/5934690/2024/11/26/michael-owen-liverpool-real-madrid-manchester-united/
+
 **Russia Launches Record Number of Drones in Overnight Attack, Ukraine Says**\
 `The assault, which the Ukrainian Air Force said involved 188 drones, came as both sides intensify air bombardments.`\
 https://nytimes.com/2024/11/26/world/europe/ukraine-russia-drone-attack.html
