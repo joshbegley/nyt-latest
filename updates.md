@@ -1,3 +1,11 @@
+**Small Plane Crash Kills 5 in Costa Rica**\
+`The Red Cross said emergency crews had found the sole survivor and were trying to rescue her.`\
+https://nytimes.com/2024/11/26/world/americas/plane-crash-costa-rica.html
+
+**How Viktor Gyokeres became Europe's hottest striker**\
+`Gyokeres has made 25 appearances for Sporting CP and Sweden in 2024-25. And scored 33 goals. We spoke to key figures from his previous clubs`\
+https://nytimes.com/athletic/5940133/2024/11/26/viktor-gyokeres-sporting-lisbon-striker-form/
+
 **Eight graphs which show why Salah deserves a new Liverpool contract**\
 `FSG is all about the numbers when it comes to their business decisions - and these ones are hard to ignore`\
 https://nytimes.com/athletic/5946821/2024/11/26/mohamed-salah-contract-liverpool-graphs/
