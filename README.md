@@ -1,3 +1,7 @@
+**Starbucks Among Companies Affected by Ransomware Attack**\
+`Blue Yonder, which provides supply chain management software for thousands of companies, said a cyberattack had disrupted some services.`\
+https://nytimes.com/2024/11/26/business/blue-yonder-ransomware-attack-starbucks.html
+
 **Super Bowl 2025 odds: Lions, Chiefs lead. Eagles, Ravens rising**\
 `The Detroit Lions solidified their spot at the top of the Super Bowl odds heading into Week 13. Here's where the contenders stand.`\
 https://nytimes.com/athletic/5949652/2024/11/26/super-bowl-2025-odds-lions-chiefs-eagles-ravens/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/11/26/nyregion/nyc-migrant-shelter-closing-trump-immigr
 **Citations issued to Dolphins WR Tyreek Hill in September dismissed**\
 `Hill was issued the citations on his way to Hard Rock Stadium after police pulled him over just hours before his team's Week 1 win.`\
 https://nytimes.com/athletic/5949683/2024/11/26/tyreek-hill-dolphins-citations-dismissed/
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2024/11/26/opinion/thepoint
 
