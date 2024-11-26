@@ -1,3 +1,15 @@
+**Saudi Arabia and Russia to U.N: Don’t Talk About a Fossil Fuel Exit**\
+`A handful of oil-producing nations ensured that a United Nations General Assembly resolution on climate change steered clear of a call to transition away from fossil fuels.`\
+https://nytimes.com/2024/11/26/climate/saudi-arabia-russia-fossil-fuels-un.html
+
+**How to Host a Festive Fall Meal Like an Off-Duty Chef**\
+`Lauren Schofield — and her friends Anthony Ha and Sadie Mae Burns, of the restaurant Ha’s Đặc Biệt — take entertaining as seriously as their day jobs.`\
+https://nytimes.com/2024/11/26/t-magazine/lauren-schofield-has-dac-biet.html
+
+**Tariff Threats Show Trump’s Commitment to Upending Global Trade**\
+`The president-elect’s threat to hit Canada, Mexico and China with new tariffs is already rocking business and diplomatic relationships and could topple the trade pacts he signed in his first term.`\
+https://nytimes.com/2024/11/26/us/politics/trump-tariffs-global-trade.html
+
 **Javier Mascherano: The Lionel Messi ally charged with taking Inter Miami one step further**\
 `Mascherano's hire as Inter Miami head coach only strengthens the notion that this is a club tailor-made for Lionel Messi to shine at`\
 https://nytimes.com/athletic/5948385/2024/11/26/javier-mascherano-inter-miami-coach-lionel-messi/
