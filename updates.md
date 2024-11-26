@@ -1,3 +1,7 @@
+**How Rangers failed to play to their 'standard' despite attempts to shake things up: 4 takeaways**\
+`The Rangers dropped their third straight game, 5-2, to the Blues on Monday.`\
+https://nytimes.com/athletic/5948527/2024/11/25/rangers-blues-takeaways-kreider-trouba/
+
 **Full Time: A meaningful first title for Pride, Marta**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5948536/2024/11/25/orlando-pride-nwsl-championship-full-time/
