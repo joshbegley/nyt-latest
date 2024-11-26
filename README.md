@@ -1,3 +1,7 @@
+**UNC, Mack Brown parting ways amid rollercoaster season**\
+`Brown’s 113 career wins, 10 bowl trips and four bowl victories are the most in UNC football history.`\
+https://nytimes.com/athletic/5946905/2024/11/26/mack-brown-retires-unc-football/
+
 **The Rebellious Beauty of Nollywood’s Screen Sirens**\
 `The distinctive makeup of early-aughts Nigerian movies is coming back — and so is the daring attitude of the women who wore it.`\
 https://nytimes.com/2024/11/26/t-magazine/nollywood-beauty-makeup.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946869/2024/11/26/devin-neal-travis-hunter-other-n
 **NBA Power Rankings: Giving thanks for returning vets, sharp coaches and ... Elfrid Payton?**\
 `Lakers and Timberwolves fall, and there's some shuffling among the top four.`\
 https://nytimes.com/athletic/5949042/2024/11/26/nba-power-rankings-spurs-celtics-knicks-lakers/
-
-**Fantasy football Week 13 drops: Quentin Johnston's drops make him droppable and more**\
-`Gary Davenport gives advice on who to drop ahead of Week 13 as fantasy football playoffs near. `\
-https://nytimes.com/athletic/5949291/2024/11/26/fantasy-football-week-13-drops-quentin-johnstons-drops-make-him-droppable-and-more/
 
