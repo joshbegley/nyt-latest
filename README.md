@@ -1,3 +1,7 @@
+**Market share report: Jonnu Smith reaches stud status; Ameer Abdullah is a worthy pickup for Week 13**\
+`In his latest market report, Michael Salfino says that Jonnu Smith is in a perfect situation as the top option in the Miami passing game.`\
+https://nytimes.com/athletic/5950329/2024/11/26/fantasy-football-market-share-report-week-12-2/
+
 **On the campaign trail and after, Trump has floated plans for hefty tariffs.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/us/trump-news/on-the-campaign-trail-and-after-trump-has-floated-plans-for-hefty-tariffs
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5950358/2024/11/26/shedeur-sanders-travis-hunter-bo
 **TV on the Radio, Brooklyn Rock Veterans, Return to the Stage**\
 `The acclaimed band, which emerged during the 2000s indie boom, is performing a series of live shows commemorating the 20th anniversary of its debut album.`\
 https://nytimes.com/2024/11/26/arts/music/tv-on-the-radio-live-shows.html
-
-**Fed Kept Options Open on Rate Cuts, Minutes Show**\
-`Minutes from a Nov. 6-7 meeting showed that Federal Reserve policymakers saw the labor market stabilizing and signs of economic strength.`\
-https://nytimes.com/2024/11/26/business/economy/federal-reserve-minutes.html
 
