@@ -1,3 +1,7 @@
+**Full Time: A meaningful first title for Pride, Marta**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5948536/2024/11/25/orlando-pride-nwsl-championship-full-time/
+
 **Top Trump Aide Accused of Asking for Money to ‘Promote’ Potential Appointees**\
 `President-elect Donald J. Trump ordered the investigation by his legal team into Boris Epshteyn, a powerful figure in the transition. Mr. Epshteyn denies the allegations.`\
 https://nytimes.com/2024/11/25/us/politics/trump-boris-epshteyn-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/business/economy/trump-tariffs-canada-mexico-chin
 **Submit questions for Ben Standig's Commanders mailbag**\
 `Standig is taking questions to consider for his upcoming mailbag ahead of the Thanksgiving holiday.`\
 https://nytimes.com/athletic/5948262/2024/11/25/commanders-mailbag-losing-streak/
-
-**End of Trump Cases Leaves Limits on Presidential Criminality Unclear**\
-`Donald J. Trump is set to regain office without clarity on the scope of presidential immunity and with a lingering cloud over whether outside special counsels can investigate high-level wrongdoing.`\
-https://nytimes.com/2024/11/25/us/politics/trump-cases-presidential-criminality.html
 
