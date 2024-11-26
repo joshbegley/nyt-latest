@@ -1,3 +1,11 @@
+**How Connor Hellebuyck stole latest Jets victory over Wild: 3 takeaways**\
+`Hellebuyck made 38 of his 43 saves in the first two periods and the Wild ran out of energy early as the Jets took the 4-1 win.`\
+https://nytimes.com/athletic/5948291/2024/11/25/wild-jets-connor-hellebuyck-takeaways/
+
+**TikTok Influencer Arrested After Allegedly Documenting Stolen Items**\
+`Marlena Velez, 22, stole the items by scanning false bar codes in the self-checkout to make the items cheaper, the police said.`\
+https://nytimes.com/2024/11/25/us/tiktok-influencer-shoplifting-target.html
+
 **Biden Administration to Lend $6 Billion for Rivian E.V. Factory**\
 `The financing for a factory in Georgia is part of a last-minute effort to establish climate policies before President-elect Donald J. Trump takes office.`\
 https://nytimes.com/2024/11/25/business/biden-loans-ev-auto-industry.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/25/crosswords/daily-puzzle-2024-11-26.html
 **Corrections: Nov. 26, 2024**\
 `Corrections that appeared in print on Tuesday, Nov. 26, 2024.`\
 https://nytimes.com/2024/11/25/pageoneplus/corrections-nov-26-2024.html
-
-**Trial of Controversial Alzheimer’s Drug Halted After Disappointing Results**\
-`Cassava Sciences said that its drug did not significantly reduce cognitive decline in 1,900 people with mild to moderate Alzheimer’s disease.`\
-https://nytimes.com/2024/11/25/health/cassava-alzheimers-simuflam.html
-
-**There Is No Excuse for the Bullying of Sarah McBride**\
-`After a brutal election, Democrats need to get better at talking about trans issues.`\
-https://nytimes.com/2024/11/25/opinion/democrats-trans-issues-sarah-mcbride.html
 
