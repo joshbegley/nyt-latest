@@ -1,3 +1,15 @@
+**What the Ceasefire Between Israel and Lebanon Means for Gaza**\
+`Will this cease-fire lead to peace?`\
+https://nytimes.com/2024/11/26/opinion/israel-lebanon-ceasefire-gaza.html
+
+**Bayern Munich 1 PSG 0 - Paris risk Champions League exit, Dembele's nightmare, 'captain' Kimmich**\
+`Analysis of Bayern Munich's Champions League win over Paris Saint-Germain`\
+https://nytimes.com/athletic/5949412/2024/11/26/bayern-munich-psg-champions-league-highlights/
+
+**Biden Announces Israel and Lebanon Cease-Fire Deal**\
+`President Biden praised the truce, which would stop the fighting between Israel and the Lebanese armed group Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000009847557/biden-israel-lebanon-ceasefire.html
+
 **Runners Use Secret Ingredient to Win N.C.A.A. Race: Olive Oil**\
 `B.Y.U.’s cross-country runners went old school and coated their bodies for a cold race day.`\
 https://nytimes.com/2024/11/26/sports/ncaa-cross-country-byu-olive-oil.html
