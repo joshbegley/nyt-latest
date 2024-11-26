@@ -1,3 +1,15 @@
+**U.S. markets have a muted reaction, with some exceptions, to Trump’s tariff pledge.**\
+`By Danielle Kaye`\
+https://nytimes.com/live/2024/us/trump-news/us-markets-have-a-muted-reaction-with-some-exceptions-to-trumps-tariff-pledge
+
+**How to watch North Carolina vs. Auburn: Top-15 teams clash in Maui Invitational semifinal**\
+`Both Auburn and UNC pulled wild comebacks in the opening round. They face off in a Maui Invitational semifinal Tuesday night.`\
+https://nytimes.com/athletic/5949699/2024/11/26/auburn-unc-how-to-watch-odds-preview/
+
+**Yes, It ‘Looks Like a Duck,’ but Carriers Like the New Mail Truck**\
+`The electric trucks have a side cargo door, more space and, critically, air conditioning, promising some long-overdue relief for carriers, who haven’t had an upgrade since the 1980s.`\
+https://nytimes.com/2024/11/26/us/usps-new-mail-trucks.html
+
 **Heat Today: How Kevin Love is finding ways to make an impact in limited minutes**\
 `The former All-Star is mostly a floor-spacing role player, but he's given Miami a big lift. "They just love playing with him." `\
 https://nytimes.com/athletic/5949486/2024/11/26/kevin-love-heat-today/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5949974/2024/11/26/barcelona-montjuic-fans-behaviou
 **Miami names Mascherano as new head coach**\
 `Former Barcelona, Liverpool and Argentina midfielder Javier Mascherano has been named by Inter Miami as its new head coach.`\
 https://nytimes.com/athletic/5948934/2024/11/26/inter-miami-javier-mascherano-confirmed/
-
-**NFL best bets Week 13: 'Give me all the food and all the points'**\
-`Austin Mock's model likes three plays so far for Week 13, including a Thanksgiving Day game and Eagles-Ravens. `\
-https://nytimes.com/athletic/5949895/2024/11/26/nfl-best-bets-week-13-bears-lions-eagles-ravens/
-
-**Jack Smith and the Dismissal of Cases Against Trump**\
-`Readers discuss the special counsel’s move and whether the cases should have been dismissed. Also: Medicaid; turkeys’ misery; skilled immigrants.`\
-https://nytimes.com/2024/11/26/opinion/donald-trump-jack-smith-jan6.html
-
-**Cowboys Today: Jerry Jones more interested in wins than 'ambiguity' of draft picks**\
-`The Cowboys had 16 players on their injury report Monday as they deal with a season-long problem of getting everyone on the field.`\
-https://nytimes.com/athletic/5949514/2024/11/26/cowboys-today-jerry-jones-tanking-draft-picks-injuries/
 
