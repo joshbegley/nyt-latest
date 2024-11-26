@@ -1,3 +1,7 @@
+**Trump’s Tariff Threat Pits Canada Against Mexico**\
+`The president-elect’s opening salvo in trade and border talks with the United States’ neighbors is casting a harsh light on the North American alliance.`\
+https://nytimes.com/2024/11/26/world/mexico-canada-trump-tariffs.html
+
 **Guardiola: Man City 'fragile' after letting three-goal lead slip vs Feyenoord**\
 `Manchester City manager Pep Guardiola said his side are &#8220;fragile&#8221; after letting a three-goal lead slip in Tuesday&#8217;s 3-3 Champions League draw with Feyenoord.`\
 https://nytimes.com/athletic/5950993/2024/11/26/pep-guardiola-manchester-city-fragile-after-letting-three-goal-lead-slip-against-feyenoord/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/us/politics/trudeau-trump-tariffs.html
 **Israel Approved Terms for a Cease-Fire With Hezbollah**\
 `Also, Mexico responded to Trump’s tariff threat. Here's the latest at the end of Tuesday.`\
 https://nytimes.com/2024/11/26/briefing/israel-lebanon-cease-fire-trump-tariff-threat.html
-
-**Breaking down the numbers behind Robert Lewandowski's century of Champions League goals**\
-`Barcelona striker Lewandowski has become just the third player to reach 100 European Cup/Champions League goals — this is how he did it`\
-https://nytimes.com/athletic/5908438/2024/11/26/robert-lewandowski-100-champions-league-goals/
 
