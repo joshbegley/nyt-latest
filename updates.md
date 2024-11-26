@@ -1,3 +1,11 @@
+**Bellingham: 'I felt like a scapegoat' at Euro 2024**\
+`Jude Bellingham says he did not enjoy playing for England after the 2024 European Championship having felt &#8220;like the scapegoat&#8221; at the tournament.`\
+https://nytimes.com/athletic/5950139/2024/11/26/jude-bellingham-england-euros-scapegoat/
+
+**These Wolves Like a Little Treat: Flower Nectar**\
+`After Ethiopian wolves feed on their favorite rodents, they may be enjoying a bit of dessert and in the process helping pollinate plants known as torch lilies.`\
+https://nytimes.com/2024/11/26/science/wolves-flowers-nectar-pollinate.html
+
 **Pakistan’s Army Deployed as Police Clash With Imran Khan’s Supporters**\
 `Soldiers have been ordered to defend government buildings and use gunfire against Imran Khan’s supporters if needed.`\
 https://nytimes.com/video/world/asia/100000009846440/pakistan-protests-imran-khan.html
