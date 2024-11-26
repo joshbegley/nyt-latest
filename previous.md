@@ -10,13 +10,13 @@ https://nytimes.com/2024/11/26/nyregion/rudy-giuliani-defamation-hearing-lawyers
 `Find out how these three teams can punch their postseason ticket with over a month to go in the regular season. `\
 https://nytimes.com/athletic/5950566/2024/11/26/nfl-week-13-playoff-scenarios-how-bills-chiefs-lions/
 
-**Khris Middleton's return nears after he practices 5-on-5 for first time**\
-`The Bucks' All-Star wing will likely remain out for at least the next two games, but he's cleared one hurdle after offseason ankle surgeries`\
+**Khris Middleton's return nears after participating in 5-on-5 session**\
+`The Bucks' All-Star wing will still be out on Tuesday against the Miami Heat, but he's cleared one hurdle after offseason ankle surgeries.`\
 https://nytimes.com/athletic/5950652/2024/11/26/khris-middleton-bucks-injury-practice/
 
-**Biden says he hopes the U.S.-brokered deal will facilitate a cease-fire in Gaza.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/biden-israel-lebanon-ceasefire
+**Biden Announces Cease-Fire Deal Between Israel and Lebanon**\
+`The deal should end more than a year of fighting between Israel and Hezbollah, and President Biden said he hoped it would also facilitate a cease-fire in Gaza.`\
+https://nytimes.com/2024/11/26/world/middleeast/biden-israel-lebanon-ceasefire.html
 
 **Juan Soto expected to go through multiple rounds of free-agent offers**\
 `The offers were expected to separate serious suitors from wishful thinkers in the Soto sweepstakes.`\

@@ -1,3 +1,11 @@
+**Khris Middleton's return nears after participating in 5-on-5 session**\
+`The Bucks' All-Star wing will still be out on Tuesday against the Miami Heat, but he's cleared one hurdle after offseason ankle surgeries.`\
+https://nytimes.com/athletic/5950652/2024/11/26/khris-middleton-bucks-injury-practice/
+
+**Biden Announces Cease-Fire Deal Between Israel and Lebanon**\
+`The deal should end more than a year of fighting between Israel and Hezbollah, and President Biden said he hoped it would also facilitate a cease-fire in Gaza.`\
+https://nytimes.com/2024/11/26/world/middleeast/biden-israel-lebanon-ceasefire.html
+
 **The Briefing: Sporting 1 Arsenal 5 - Statement win, majestic Odegaard and keeping Gyokeres quiet**\
 `Our writers break down the action from Portugal as Arsenal secured a brilliant victory over Sporting.`\
 https://nytimes.com/athletic/5946416/2024/11/26/arsenal-sporting-champions-league-dominant/
