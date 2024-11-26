@@ -1,3 +1,7 @@
+**Javier Mascherano: The Lionel Messi ally charged with taking Inter Miami one step further**\
+`Mascherano's hire as Inter Miami head coach only strengthens the notion that this is a club tailor-made for Lionel Messi to shine at`\
+https://nytimes.com/athletic/5948385/2024/11/26/javier-mascherano-inter-miami-coach-lionel-messi/
+
 **Senators' Pizza Line to be honoured on Dec. 5**\
 `The trio will participate in a ceremonial faceoff before the Sens' home game against the Detroit Red Wings.`\
 https://nytimes.com/athletic/5949845/2024/11/26/senators-alfredsson-heatley-spezza/
