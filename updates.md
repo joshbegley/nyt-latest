@@ -1,3 +1,7 @@
+**Starbucks Among Companies Affected by Ransomware Attack**\
+`Blue Yonder, which provides supply chain management software for thousands of companies, said a cyberattack had disrupted some services.`\
+https://nytimes.com/2024/11/26/business/blue-yonder-ransomware-attack-starbucks.html
+
 **Super Bowl 2025 odds: Lions, Chiefs lead. Eagles, Ravens rising**\
 `The Detroit Lions solidified their spot at the top of the Super Bowl odds heading into Week 13. Here's where the contenders stand.`\
 https://nytimes.com/athletic/5949652/2024/11/26/super-bowl-2025-odds-lions-chiefs-eagles-ravens/
