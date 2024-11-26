@@ -1,3 +1,11 @@
+**General Motors enters the grid: Why F1 changed its tune after rejecting Andretti**\
+`The difference between now and F1's January rejection of Andretti is that with General Motors, it has exactly what it wanted all along.`\
+https://nytimes.com/athletic/5948455/2024/11/26/general-motors-f1-formula-one-grid-expansion-andretti/
+
+**100 Notable Books of 2024**\
+`Here are the year’s notable fiction, poetry and nonfiction, chosen by the staff of The New York Times Book Review.`\
+https://nytimes.com/interactive/2024/11/26/books/notable-books.html
+
 **Nuggets 'embarrassed' by Knicks at home: 'Who do we want to be as a team?'**\
 `Denver coach Michael Malone blasted his team's effort in the 145-118 loss on Monday night.`\
 https://nytimes.com/athletic/5948731/2024/11/26/nuggets-knicks-michael-malone-nikola-jokic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5915859/2024/11/26/college-football-bowl-projection
 **'I cannot be the same every time': How tennis players and tennis coaches choose each other**\
 `The relationship between player and coach can be transformative or combustible, sometimes both. So how do they start?`\
 https://nytimes.com/athletic/5947172/2024/11/26/tennis-players-coaches-relationship-how-choose/
-
-**Chargers' loss to Ravens shows just how much work Jim Harbaugh still has to do**\
-`Harbaugh and GM Joe Hortiz have Los Angeles on an upward trajectory, but the roster limitations were on display Monday vs. Baltimore.`\
-https://nytimes.com/athletic/5948879/2024/11/26/chargers-loss-harbaugh-ravens/
-
-**Can Broncos' rushing roulette support a playoff push down the stretch?**\
-`Denver has had five different players lead the team in rushing during a game this season, the most since 2010.`\
-https://nytimes.com/athletic/5946402/2024/11/26/broncos-running-backs/
 

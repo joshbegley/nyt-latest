@@ -1,3 +1,11 @@
+**General Motors enters the grid: Why F1 changed its tune after rejecting Andretti**\
+`The difference between now and F1's January rejection of Andretti is that with General Motors, it has exactly what it wanted all along.`\
+https://nytimes.com/athletic/5948455/2024/11/26/general-motors-f1-formula-one-grid-expansion-andretti/
+
+**100 Notable Books of 2024**\
+`Here are the year’s notable fiction, poetry and nonfiction, chosen by the staff of The New York Times Book Review.`\
+https://nytimes.com/interactive/2024/11/26/books/notable-books.html
+
 **Nuggets 'embarrassed' by Knicks at home: 'Who do we want to be as a team?'**\
 `Denver coach Michael Malone blasted his team's effort in the 145-118 loss on Monday night.`\
 https://nytimes.com/athletic/5948731/2024/11/26/nuggets-knicks-michael-malone-nikola-jokic/
