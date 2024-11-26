@@ -1,3 +1,7 @@
+**Hong Kong’s Top Court Upholds Rights of Same-Sex Married Couples**\
+`Long-running legal battles culminated in a ruling that preserves public housing benefits and inheritance rights in the territory.`\
+https://nytimes.com/2024/11/26/world/asia/hong-kong-same-sex-rights.html
+
 **China’s Huawei Takes Aim at Apple With Latest Smartphone**\
 `Last year, a chip breakthrough put Huawei on top of the Chinese smartphone market. Now it is rolling out its newest phone, the Mate 70 series.`\
 https://nytimes.com/2024/11/26/business/china-huawei-mate-70.html

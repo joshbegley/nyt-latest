@@ -1,3 +1,7 @@
+**Hong Kong’s Top Court Upholds Rights of Same-Sex Married Couples**\
+`Long-running legal battles culminated in a ruling that preserves public housing benefits and inheritance rights in the territory.`\
+https://nytimes.com/2024/11/26/world/asia/hong-kong-same-sex-rights.html
+
 **China’s Huawei Takes Aim at Apple With Latest Smartphone**\
 `Last year, a chip breakthrough put Huawei on top of the Chinese smartphone market. Now it is rolling out its newest phone, the Mate 70 series.`\
 https://nytimes.com/2024/11/26/business/china-huawei-mate-70.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/nyregion/macys-thanksgiving-day-parade-how-to-wat
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/11/26/crosswords/spelling-bee-forum.html
-
-**The Knicks' offense is scary good and might just be getting started**\
-`Denver wasn't bad from the jump, New York just unleashed its relentless offense in the 145-118 win.`\
-https://nytimes.com/athletic/5948789/2024/11/26/knicks-offense-crushes-denver/
 
