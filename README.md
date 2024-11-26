@@ -1,40 +1,40 @@
+**Biden Cuts Intel’s Chip Award by More Than $600 Million**\
+`The Silicon Valley company will receive less money from the CHIPS Act after winning a $3 billion military contract and changing some of its investment commitments.`\
+https://nytimes.com/2024/11/26/business/economy/intel-chips-award-biden.html
+
+**A Great Idea for People With a Terrible Disease: Let’s Find a Cure Ourselves**\
+`A group of long Covid patients is financing research, and making progress.`\
+https://nytimes.com/2024/11/26/opinion/charity-holiday-gift-long-covid-research.html
+
+**Do You Have Any Special or Unusual Holiday Traditions?**\
+`Times readers shared their fun, unique and eccentric holiday rituals — like singing to the turkey with a sibling while it roasts outside. What are yours?`\
+https://nytimes.com/2024/11/26/learning/do-you-have-any-special-or-unusual-holiday-traditions.html
+
+**FIFA President’s Bet on Club World Cup Meets Reality**\
+`Gianni Infantino has tied his legacy to the 32-team tournament, even inscribing his name on the trophy. Its success is far from guaranteed.`\
+https://nytimes.com/2024/11/26/business/gianni-infantino-club-world-cup.html
+
+**Our Mount Rushmore of Fictional Presidents**\
+`Jed Bartlett and other presidents of our youth.`\
+https://nytimes.com/2024/11/26/opinion/our-favorite-fictional-presidents.html
+
+**Would Bernie Have Won?**\
+`Faiz Shakir makes a case for the Democratic Party to embrace economic populism.`\
+https://nytimes.com/2024/11/26/opinion/ezra-klein-podcast-faiz-shakir.html
+
+**Breaking Up Google Would Be a Big Mistake**\
+`Such a move would help no one.`\
+https://nytimes.com/2024/11/26/opinion/google-chrome-antitrust.html
+
+**Nicholas Kristof: Consider Skipping Meat This Thanksgiving**\
+`The columnist points out the hypocrisy of loving your dog while eating bacon.`\
+https://nytimes.com/2024/11/26/opinion/thanksgiving-factory-farming.html
+
 **Is Creativity Dead?**\
 `Or is the algorithm just hiding it from you?`\
-https://nytimes.com/video/opinion/100000009832540/social-media-algorithm-creativity.html
+https://nytimes.com/2024/11/26/opinion/social-media-algorithm-creativity.html
 
-**Hong Kong’s Top Court Upholds Rights of Same-Sex Married Couples**\
-`Long-running legal battles culminated in a ruling that preserves public housing benefits and inheritance rights in the territory.`\
-https://nytimes.com/2024/11/26/world/asia/hong-kong-same-sex-rights.html
-
-**China’s Huawei Takes Aim at Apple With Latest Smartphone**\
-`Last year, a chip breakthrough put Huawei on top of the Chinese smartphone market. Now it is rolling out its newest phone, the Mate 70 series.`\
-https://nytimes.com/2024/11/26/business/china-huawei-mate-70.html
-
-**Pakistan Deploys Army in Its Capital as Protesters and Police Clash**\
-`Soldiers were ordered to defend government buildings with gunfire, if needed, as supporters of former Prime Minister Imran Khan demanded his release from prison.`\
-https://nytimes.com/2024/11/26/world/asia/pakistan-protests-imran-khan.html
-
-**How set-piece joy and flying full-backs inspired West Ham's win at Newcastle**\
-`Julen Lopetegui's approach was vindicated as West Ham pulled off an impressive victory on the road at Newcastle United`\
-https://nytimes.com/athletic/5947345/2024/11/26/west-ham-lopetegui-newcastle-united/
-
-**Their Landlord Overcharged Them. Now Tenants Will Split $15 Million.**\
-`Dozens of New York City renters are receiving payoffs from Blackstone in a settlement of a case that accused the previous landlord of violating rent-stabilization rules.`\
-https://nytimes.com/2024/11/26/nyregion/blackstone-parker-towers-rent.html
-
-**‘Glicked’**\
-`Can “Wicked” and “Gladiator II” recapture the magic of “Barbenheimer”?`\
-https://nytimes.com/2024/11/26/learning/glicked.html
-
-**They Attended Trump’s Trial. Now He’s Offering Them High-Profile Jobs.**\
-`A parade of President-elect Donald J. Trump’s allies showed their loyalty at his criminal trial in Manhattan. Many are now in line for key government jobs.`\
-https://nytimes.com/2024/11/26/nyregion/trump-trial-cabinet-ramaswamy-burgum.html
-
-**5 Ways to Fix New York City’s Housing Crisis**\
-`Here is what renters, landlords, developers and politicians say.`\
-https://nytimes.com/2024/11/26/nyregion/how-to-fix-nyc-housing-crisis.html
-
-**How to Watch the Macy’s Thanksgiving Day Parade**\
-`For the 98th time, Macy’s brings New Yorkers its annual parade. This year, there will be 22 floats, 17 character balloons and performances by the Temptations and T-Pain.`\
-https://nytimes.com/2024/11/26/nyregion/macys-thanksgiving-day-parade-how-to-watch.html
+**I Ran Operation Warp Speed. I’m Concerned About Bird Flu.**\
+`Avian influenza might mutate to enable human-to-human transmission.`\
+https://nytimes.com/2024/11/26/opinion/vaccine-bird-flu-pandemic.html
 
