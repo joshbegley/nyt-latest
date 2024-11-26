@@ -1,40 +1,40 @@
-**Jaden Ivey takes 'real step' with game winner. How he can sustain it**\
-`Ivey is developing winning on-court habits that can become a repeatable formula for personal and team success.`\
-https://nytimes.com/athletic/5948664/2024/11/26/jaden-ivey-game-winner-pistons-raptors/
+**Their Landlord Overcharged Them. Now Tenants Will Split $15 Million.**\
+`Dozens of New York City renters are receiving payoffs from Blackstone in a settlement of a case that accused the previous landlord of violating rent-stabilization rules.`\
+https://nytimes.com/2024/11/26/nyregion/blackstone-parker-towers-rent.html
 
-**The underlying numbers behind Newcastle's goalscoring woes**\
-`Only five players have scored in the Premier League for Newcastle this season - the numbers behind their bluntness make for stark reading`\
-https://nytimes.com/athletic/5946038/2024/11/26/newcastle-united-west-ham-goals-eddie-howe/
+**‘Glicked’**\
+`Can “Wicked” and “Gladiator II” recapture the magic of “Barbenheimer”?`\
+https://nytimes.com/2024/11/26/learning/glicked.html
 
-**Word of the Day: propaganda**\
-`This word has appeared in 678 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/26/learning/word-of-the-day-propaganda.html
+**They Attended Trump’s Trial. Now He’s Offering Them High-Profile Jobs.**\
+`A parade of President-elect Donald J. Trump’s allies showed their loyalty at his criminal trial in Manhattan. Many are now in line for key government jobs.`\
+https://nytimes.com/2024/11/26/nyregion/trump-trial-cabinet-ramaswamy-burgum.html
 
-**Late Night Makes Its Last Jokes About Biden Pardoning Turkeys**\
-`Although Thanksgiving was still three days away, “the turkeys looked at Biden and said, ‘We better get this done,’” Jimmy Fallon said.`\
-https://nytimes.com/2024/11/26/arts/television/late-night-biden-turkey-pardon.html
+**5 Ways to Fix New York City’s Housing Crisis**\
+`Here is what renters, landlords, developers and politicians say.`\
+https://nytimes.com/2024/11/26/nyregion/how-to-fix-nyc-housing-crisis.html
 
-**The Celtics could win without Kristaps Porziņģis, but they're far more powerful with him**\
-`After missing the first 17 games of the regular season while recovering from offseason ankle surgery, Porziņģis is back.`\
-https://nytimes.com/athletic/5948719/2024/11/26/celtics-clippers-kristaps-porzingis-back-from-injury/
+**How to Watch the Macy’s Thanksgiving Day Parade**\
+`For the 98th time, Macy’s brings New Yorkers its annual parade. This year, there will be 22 floats, 17 character balloons and performances by the Temptations and T-Pain.`\
+https://nytimes.com/2024/11/26/nyregion/macys-thanksgiving-day-parade-how-to-watch.html
 
-**She Was the Most Powerful Woman in the World. And She Isn’t Ready to Say Sorry.**\
-`In her memoir, the former German chancellor doesn’t take the chance to make amends.`\
-https://nytimes.com/2024/11/26/opinion/angela-merkel-book-freedom.html
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/26/crosswords/spelling-bee-forum.html
 
-**Mr. Trump, Do You Realize How Much the World Has Changed Since You Were President?**\
-`Three giant, shifting tectonic plates will have profound implications for the new administration.`\
-https://nytimes.com/2024/11/26/opinion/trump-israel-iran.html
+**The Knicks' offense is scary good and might just be getting started**\
+`Denver wasn't bad from the jump, New York just unleashed its relentless offense in the 145-118 win.`\
+https://nytimes.com/athletic/5948789/2024/11/26/knicks-offense-crushes-denver/
 
-**Wild get 'goalied' and deserved better but suffer another loss to the Jets**\
-`Connor Hellebuyck made 38 of his 43 saves in the first 36 minutes, leading Winnipeg to its seventh straight win against Minnesota.`\
-https://nytimes.com/athletic/5948732/2024/11/26/wild-keep-losing-to-jets/
+**On the Wings of War**\
+`Scientists study the flight of hummingbirds to design robots for drone warfare.`\
+https://nytimes.com/2024/11/26/science/hummingbirds-robots-drone-warfare.html
 
-**Spurs must stop these wild swings in mood and form but this may be the hardest time to do it**\
-`The good vibes lasted for 48 hours this time. Then Vicario's ankle surgery was announced. Spurs' tough schedule suddenly looks even tougher`\
-https://nytimes.com/athletic/5937526/2024/11/26/spurs-postecoglou-form-vicario-injury/
+**He Was One of New York’s Busiest Shoplifters. His Mother Was a Cop.**\
+`Drug addiction fueled David Andino’s need to steal. Every day, he hit the same Target in Manhattan. His mother, a retired police officer, hadn’t seen him in years.`\
+https://nytimes.com/2024/11/26/nyregion/nyc-shoplifting-target-arrest.html
 
-**How Jim Montgomery earned win in Blues coaching debut: 3 takeaways**\
-`The Blues took a season-high 43 shots, Zack Bolduc had a breakout game, and the team played with togetherness.`\
-https://nytimes.com/athletic/5948307/2024/11/26/blues-jim-montgomery-rangers-takeaways/
+**Rocket Engine Fire Stalls Japan’s Ambitions to Launch Satellites**\
+`Japan is off to a shaky start in its efforts to break into the space rocket market dominated by Elon Musk’s SpaceX.`\
+https://nytimes.com/2024/11/26/world/asia/japan-satellite-launch-failure.html
 
