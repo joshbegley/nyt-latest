@@ -1,3 +1,11 @@
+**Guardiola: Man City 'fragile' after letting three-goal lead slip vs Feyenoord**\
+`Manchester City manager Pep Guardiola said his side are &#8220;fragile&#8221; after letting a three-goal lead slip in Tuesday&#8217;s 3-3 Champions League draw with Feyenoord.`\
+https://nytimes.com/athletic/5950993/2024/11/26/pep-guardiola-manchester-city-fragile-after-letting-three-goal-lead-slip-against-feyenoord/
+
+**Trump Team Signs Memo Allowing Briefings With Some Federal Agencies**\
+`But President-elect Donald J. Trump’s team has so far refused to sign an agreement with the Justice Department to allow the F.B.I. to do security clearances for transition members.`\
+https://nytimes.com/2024/11/26/us/politics/trump-transition-briefings.html
+
 **Are the French Laundry and Per Se Still Worth a Splurge? We Went Back to See.**\
 `As Thomas Keller’s most influential restaurants hit major birthdays, the cost and the demand have risen. But what about the food and the fun?`\
 https://nytimes.com/2024/11/26/dining/french-laundry-per-se.html
