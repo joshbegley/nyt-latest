@@ -1,3 +1,15 @@
+**Heat Today: How Kevin Love is finding ways to make an impact in limited minutes**\
+`The former All-Star is mostly a floor-spacing role player, but he's given Miami a big lift. "They just love playing with him." `\
+https://nytimes.com/athletic/5949486/2024/11/26/kevin-love-heat-today/
+
+**If Trump follows through on his tariffs, trade wars may follow.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/us/trump-news/if-trump-follows-through-on-his-tariffs-trade-wars-may-follow
+
+**These Aren’t Regular Mashed Potatoes. They’re Martha Stewart’s Mashed Potatoes.**\
+`To serve alongside Dolly Parton’s cranberry jelly tower and Christina Tosi’s one-pot corn bake.`\
+https://nytimes.com/2024/11/26/dining/these-arent-regular-mashed-potatoes-theyre-martha-stewarts-mashed-potatoes.html
+
 **Victor Wembanyama's ups and downs this season: Is he shooting too many 3s?**\
 `Opponents are putting their best perimeter and most aggressive defenders on Wembanyama.`\
 https://nytimes.com/athletic/5949516/2024/11/26/victor-wembanyama-ups-downs-spurs/

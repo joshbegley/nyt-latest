@@ -1,3 +1,15 @@
+**Heat Today: How Kevin Love is finding ways to make an impact in limited minutes**\
+`The former All-Star is mostly a floor-spacing role player, but he's given Miami a big lift. "They just love playing with him." `\
+https://nytimes.com/athletic/5949486/2024/11/26/kevin-love-heat-today/
+
+**If Trump follows through on his tariffs, trade wars may follow.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/us/trump-news/if-trump-follows-through-on-his-tariffs-trade-wars-may-follow
+
+**These Aren’t Regular Mashed Potatoes. They’re Martha Stewart’s Mashed Potatoes.**\
+`To serve alongside Dolly Parton’s cranberry jelly tower and Christina Tosi’s one-pot corn bake.`\
+https://nytimes.com/2024/11/26/dining/these-arent-regular-mashed-potatoes-theyre-martha-stewarts-mashed-potatoes.html
+
 **Victor Wembanyama's ups and downs this season: Is he shooting too many 3s?**\
 `Opponents are putting their best perimeter and most aggressive defenders on Wembanyama.`\
 https://nytimes.com/athletic/5949516/2024/11/26/victor-wembanyama-ups-downs-spurs/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/26/opinion/donald-trump-jack-smith-jan6.html
 **Cowboys Today: Jerry Jones more interested in wins than 'ambiguity' of draft picks**\
 `The Cowboys had 16 players on their injury report Monday as they deal with a season-long problem of getting everyone on the field.`\
 https://nytimes.com/athletic/5949514/2024/11/26/cowboys-today-jerry-jones-tanking-draft-picks-injuries/
-
-**Intense Israeli airstrikes send people fleeing central Beirut in panic.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/intense-israeli-airstrikes-send-people-fleeing-central-beirut-in-panic
-
-**Are All These U.N. Climate Talks Doing Any Good?**\
-`What the U.N. negotiations, known as COP, can (and can’t) do to combat climate change.`\
-https://nytimes.com/2024/11/26/climate/cop29-un-climate-negotiations.html
-
-**Starbucks Among Companies Affected by Ransomware Attack**\
-`Blue Yonder, which provides supply chain management software for thousands of companies, said a cyberattack had disrupted some services.`\
-https://nytimes.com/2024/11/26/business/blue-yonder-ransomware-attack-starbucks.html
 
