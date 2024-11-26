@@ -1,3 +1,7 @@
+**What the Cease-Fire Between Israel and Lebanon Means for Gaza**\
+`Will this cease-fire lead to peace?`\
+https://nytimes.com/2024/11/26/opinion/israel-lebanon-ceasefire-gaza.html
+
 **Israel Approved Terms for a Cease-Fire With Hezbollah**\
 `Also, Mexico responded to Trump’s tariff threat. Here's the latest at the end of Tuesday.`\
 https://nytimes.com/2024/11/26/briefing/israel-lebanon-cease-fire-trump-tariff-threat.html
