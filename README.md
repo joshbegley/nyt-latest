@@ -1,3 +1,19 @@
+**What the Ceasefire Between Israel and Lebanon Means for Gaza**\
+`Will this cease-fire lead to peace?`\
+https://nytimes.com/2024/11/26/opinion/israel-lebanon-ceasefire-gaza.html
+
+**Runners Use Secret Ingredient to Win N.C.A.A. Race: Olive Oil**\
+`B.Y.U.’s cross-country runners went old school and coated their bodies for a cold race day.`\
+https://nytimes.com/2024/11/26/sports/ncaa-cross-country-byu-olive-oil.html
+
+**After Beloved Pilot Dies in Crash, 2 Rescue Dogs Rescue Themselves**\
+`Seuk Kim was transporting three rescue dogs from Maryland to Albany, N.Y., when his plane crashed in the Catskill Mountains. Two of the dogs managed to survive.`\
+https://nytimes.com/2024/11/26/nyregion/plane-crash-pilot-new-york.html
+
+**Bayern Munich 1 PSG 0 - Paris risk Champions League exit, Dembele's nightmare, 'captain' Kimmich**\
+`Analysis of Bayern Munich's Champions League win over Paris Saint-Germain`\
+https://nytimes.com/athletic/5949412/2024/11/26/bayern-munich-psg-champions-league-highlights/
+
 **Why Is Trump Identifying the U.S.-Canada Border as a Problem?**\
 `Arrests for illegal crossings from Canada spiked in the last fiscal year, but remain a fraction of the number of those from Mexico.`\
 https://nytimes.com/2024/11/26/us/trump-canada-border-migrants.html
@@ -18,23 +34,7 @@ https://nytimes.com/2024/11/26/business/scott-bessent-wall-street-treasury.html
 `Following a lawsuit, the National Association of Realtors was ordered to rewrite its rules governing agents’ commissions and pay $418 million in damages.`\
 https://nytimes.com/2024/11/26/realestate/nar-settlement-approval-commissions.html
 
-**Biden Announces Israel and Lebanon Cease-fire Deal**\
-`President Biden praised the truce, which will stop the fighting between Israel and the Lebanese armed group Hezbollah.`\
+**Biden Announces Israel and Lebanon Cease-Fire Deal**\
+`President Biden praised the truce, which would stop the fighting between Israel and the Lebanese armed group Hezbollah.`\
 https://nytimes.com/video/world/middleeast/100000009847557/biden-israel-lebanon-ceasefire.html
-
-**The Briefing: Sporting 1 Arsenal 5 - Statement win, majestic Odegaard and keeping Gyokeres quiet**\
-`Our writers break down the action from Portugal as Arsenal secured a brilliant victory over Sporting.`\
-https://nytimes.com/athletic/5946416/2024/11/26/arsenal-sporting-champions-league-dominant/
-
-**Rudy Giuliani Loses His Lawyers, and His Cool, in Court**\
-`The subject of several cases, the former New York City mayor lashed out at a judge questioning why he had not forfeited personal assets as required.`\
-https://nytimes.com/2024/11/26/nyregion/rudy-giuliani-defamation-hearing-lawyers.html
-
-**NFL Week 13 playoff scenarios: How Bills, Chiefs and Lions can clinch spots**\
-`Find out how these three teams can punch their postseason ticket with over a month to go in the regular season. `\
-https://nytimes.com/athletic/5950566/2024/11/26/nfl-week-13-playoff-scenarios-how-bills-chiefs-lions/
-
-**Khris Middleton's return nears after participating in 5-on-5 session**\
-`The Bucks' All-Star wing will still be out on Tuesday against the Miami Heat, but he's cleared one hurdle after offseason ankle surgeries.`\
-https://nytimes.com/athletic/5950652/2024/11/26/khris-middleton-bucks-injury-practice/
 
