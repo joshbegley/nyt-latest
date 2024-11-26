@@ -1,3 +1,19 @@
+**Brady Tkachuk steps up after facing criticism as Senators captain**\
+`The 25-year-old's leadership came under fire during the Sens' five-game losing streak which ended Monday with a 4-3 win over Calgary.`\
+https://nytimes.com/athletic/5948558/2024/11/26/ottawa-senators-brady-tkachuk-leadership/
+
+**Thanksgiving Eve Means Meatballs**\
+`Specifically, Kay Chun’s 5-ingredient, 20-minute pork and ricotta meatballs that call out for your favorite marinara and a pile of rigatoni.`\
+https://nytimes.com/2024/11/26/dining/thanksgiving-eve-means-meatballs.html
+
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/5949534/2024/11/26/nhl-mailbag-trades-injuries-4-nations/
+
+**UNC, Mack Brown parting ways; Tulane's Sumrall will get good look**\
+`Brown’s 113 career wins, 10 bowl trips and four bowl victories are the most in UNC football history.`\
+https://nytimes.com/athletic/5946905/2024/11/26/mack-brown-retires-unc-football/
+
 **UNC, Mack Brown parting ways amid rollercoaster season**\
 `Brown’s 113 career wins, 10 bowl trips and four bowl victories are the most in UNC football history.`\
 https://nytimes.com/athletic/5946905/2024/11/26/mack-brown-retires-unc-football/
