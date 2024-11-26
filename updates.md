@@ -1,3 +1,11 @@
+**Jack Smith Closes Up Shop, Defeated More by Voters Than by Jurors**\
+`The special counsel will leave behind a complex legacy, having amassed considerable evidence against Donald J. Trump but having lost key legal battles that could constrain future investigators.`\
+https://nytimes.com/2024/11/26/us/politics/jack-smith-trump-cases.html
+
+**Biden Announces Cease-Fire Deal Between Israel and Lebanon**\
+`The fighting has displaced over a million Lebanese and tens of thousands of Israelis, killed more than 3,000 Lebanese and 100 Israelis.`\
+https://nytimes.com/video/world/middleeast/100000009847608/israel-lebanon-ceasefire.html
+
 **A Vulnerable Trudeau Hopes to Muster Unity Against Trump Tariff Plans**\
 `Many of the prime minister’s political opponents were as critical of him as about the president-elect’s plan, which would adversely affect Canada’s economy.`\
 https://nytimes.com/2024/11/26/us/politics/trudeau-trump-tariffs.html
