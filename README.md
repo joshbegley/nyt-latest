@@ -8,7 +8,7 @@ https://nytimes.com/2024/11/26/world/mexico-canada-trump-tariffs.html
 
 **Guardiola: Man City 'fragile' after letting three-goal lead slip vs Feyenoord**\
 `Manchester City manager Pep Guardiola said his side are &#8220;fragile&#8221; after letting a three-goal lead slip in Tuesday&#8217;s 3-3 Champions League draw with Feyenoord.`\
-https://nytimes.com/athletic/5950993/2024/11/26/pep-guardiola-manchester-city-fragile-after-letting-three-goal-lead-slip-against-feyenoord/
+https://nytimes.com/athletic/5950993/2024/11/26/pep-guardiola-manchester-city-feyenoord/
 
 **Trump Team Signs Transition Agreement but Shuns F.B.I. Clearances**\
 `President-elect Donald J. Trump’s team will have some formal briefings with outgoing staff members, but it has so far refused to allow the F.B.I. to do security clearances for transition members.`\
