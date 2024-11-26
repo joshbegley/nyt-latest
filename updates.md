@@ -1,3 +1,7 @@
+**Emergency Crews Race to Save Sole Survivor of Costa Rica Plane Crash**\
+`Rescue workers were traversing a remote mountain forest overnight with a woman who survived a crash that killed five of the six people aboard.`\
+https://nytimes.com/2024/11/26/world/americas/plane-crash-costa-rica.html
+
 **Late Night Makes Its Last Jokes About Biden Pardoning Turkeys**\
 `Although Thanksgiving was still three days away, “the turkeys looked at Biden and said, ‘We better get this done,’” Jimmy Fallon said.`\
 https://nytimes.com/2024/11/26/arts/television/late-night-biden-turkey-pardon.html
