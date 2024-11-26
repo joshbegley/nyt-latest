@@ -1,3 +1,11 @@
+**How Joe Burrow elevated his game and the Bengals offense with 2 improvements**\
+`Adding muscle while rehabbing his injured wrist and "playing downhill" when facing pressure in the pocket are making a difference.`\
+https://nytimes.com/athletic/5941463/2024/11/26/joe-burrow-improvements-bengals-offense/
+
+**When brain cancer struck a baseball family, a 'wonderful' village sheltered them**\
+`After a Phillies family's devastating diagnosis, so many — in and out of baseball — rallied to their side. It helped them carry on. `\
+https://nytimes.com/athletic/5947027/2024/11/26/ned-rice-phillies-family-brain-cancer/
+
 **After Trump’s Tariff Threat, Is a China Currency War Next?**\
 `While China could offset American tariffs by letting its currency fall, that might endanger Beijing’s recent efforts to stabilize the economy.`\
 https://nytimes.com/2024/11/26/business/trump-tariffs-us-china-currency.html
