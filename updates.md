@@ -1,3 +1,11 @@
+**Word of the Day: propaganda**\
+`This word has appeared in 678 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/26/learning/word-of-the-day-propaganda.html
+
+**Wild got 'goalied' and deserved better but suffered another loss to the Jets**\
+`Connor Hellebuyck made 38 of his 43 saves in the first 36 minutes, leading Winnipeg to its seventh straight win against Minnesota.`\
+https://nytimes.com/athletic/5948732/2024/11/26/wild-keep-losing-to-jets/
+
 **Emergency Crews Race to Save Sole Survivor of Costa Rica Plane Crash**\
 `Rescue workers were traversing a remote mountain forest overnight with a woman who survived a crash that killed five of the six people aboard.`\
 https://nytimes.com/2024/11/26/world/americas/plane-crash-costa-rica.html
