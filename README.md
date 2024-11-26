@@ -19,7 +19,7 @@ https://nytimes.com/2024/11/26/us/fbi-most-wanted-extremist-caught-wales.html
 https://nytimes.com/2024/11/26/world/middleeast/cease-fire-israel-hezbollah-lebanon.html
 
 **What the Cease-Fire Between Israel and Lebanon Means for Gaza**\
-`Will this cease-fire lead to peace?`\
+`Can a truce lead to an enduring peace?`\
 https://nytimes.com/2024/11/26/opinion/israel-lebanon-ceasefire-gaza.html
 
 **Runners Use Secret Ingredient to Win N.C.A.A. Race: Olive Oil**\
