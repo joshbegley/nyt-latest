@@ -1,4 +1,4 @@
-**Angela Merkel Isn’t Ready to Say Sorry**\
+**She Was the Most Powerful Woman in the World. And She Isn’t Ready to Say Sorry.**\
 `In her memoir, the former German chancellor doesn’t take the chance to make amends.`\
 https://nytimes.com/2024/11/26/opinion/angela-merkel-book-freedom.html
 
