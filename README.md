@@ -1,3 +1,7 @@
+**Javier Mascherano: The Lionel Messi ally charged with taking Inter Miami one step further**\
+`Mascherano's hire as Inter Miami head coach only strengthens the notion that this is a club tailor-made for Lionel Messi to shine at`\
+https://nytimes.com/athletic/5948385/2024/11/26/javier-mascherano-inter-miami-coach-lionel-messi/
+
 **Senators' Pizza Line to be honoured on Dec. 5**\
 `The trio will participate in a ceremonial faceoff before the Sens' home game against the Detroit Red Wings.`\
 https://nytimes.com/athletic/5949845/2024/11/26/senators-alfredsson-heatley-spezza/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5950329/2024/11/26/fantasy-football-market-share-re
 **On the campaign trail and after, Trump has floated plans for hefty tariffs.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/us/trump-news/on-the-campaign-trail-and-after-trump-has-floated-plans-for-hefty-tariffs
-
-**Blinken and U.S. Allies Struggle with Wars as Biden’s Presidency Wanes**\
-`Top diplomats from the Group of 7 nations tried to project unity on Ukraine while discussing differences over Israel and anticipating the return of Donald J. Trump.`\
-https://nytimes.com/2024/11/26/world/europe/blinken-allies-biden-presidency.html
 
