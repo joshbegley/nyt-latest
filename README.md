@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`Under the deal, both sides will first observe a 60-day truce, during which Israel will withdraw from Lebanon and Hezbollah will move its fighters north.`\
+https://nytimes.com/2024/11/26/world/middleeast/israel-hezbollah-lebanon-cease-fire.html
+
+**The Migrant Caravans Trump Derides Rarely Make It Close to the U.S.**\
+`Migrants often gather in groups in southern Mexico as a means of protection from criminal groups. But they almost never make it anywhere near the U.S.-Mexico border.`\
+https://nytimes.com/2024/11/26/us/politics/migrant-caravans-mexico.html
+
 **NFL MVP odds: Could Saquon Barkley be the first non-QB winner in over a decade?**\
 `Saquon Barkley surged up the MVP odds board after his massive game on Sunday night. Can he end the RB MVP drought?`\
 https://nytimes.com/athletic/5950017/2024/11/26/nfl-mvp-odds-saquon-barkley/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/26/world/europe/blinken-allies-biden-presidency.html
 **Independent Inquiry Blames Israeli Leaders for Oct. 7 Failures**\
 `After the Israeli government delayed a formal investigation into the Hamas attacks, an alliance of survivors and victims’ families set up their own inquiry. Their scathing findings were released on Tuesday.`\
 https://nytimes.com/2024/11/26/world/middleeast/israel-oct-7-inquiry.html
-
-**The Senate Should Leave No Judgeship Unfilled**\
-`Donald Trump will try to fill every judgeship that Democrats leave open.`\
-https://nytimes.com/2024/11/26/opinion/editorials/the-senate-should-leave-no-judgeship-unfilled.html
-
-**Trump’s Tariff Plan Makes Little Sense**\
-`Why set off a tit-for-tat with our closest allies?`\
-https://nytimes.com/live/2024/11/26/opinion/thepoint/trump-tariff-mexico-canada
 
