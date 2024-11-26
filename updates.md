@@ -1,3 +1,11 @@
+**A 2024 World Series champion Dodgers full playoff pool share is worth $477K**\
+`The total amount of money split between the 12 MLB postseason teams this year, $129.1 million, was a record. `\
+https://nytimes.com/athletic/5949764/2024/11/26/world-series-dodgers-mlb-playoff-share/
+
+**Explaining why Barcelona have closed part of their ground 'indefinitely'**\
+`Barca believe a group of fans should pay the fines the club have been given for bad behaviour. The fans disagree`\
+https://nytimes.com/athletic/5949974/2024/11/26/barcelona-montjuic-fans-behaviour/
+
 **Miami names Mascherano as new head coach**\
 `Former Barcelona, Liverpool and Argentina midfielder Javier Mascherano has been named by Inter Miami as its new head coach.`\
 https://nytimes.com/athletic/5948934/2024/11/26/inter-miami-javier-mascherano-confirmed/

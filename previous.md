@@ -1,3 +1,11 @@
+**A 2024 World Series champion Dodgers full playoff pool share is worth $477K**\
+`The total amount of money split between the 12 MLB postseason teams this year, $129.1 million, was a record. `\
+https://nytimes.com/athletic/5949764/2024/11/26/world-series-dodgers-mlb-playoff-share/
+
+**Explaining why Barcelona have closed part of their ground 'indefinitely'**\
+`Barca believe a group of fans should pay the fines the club have been given for bad behaviour. The fans disagree`\
+https://nytimes.com/athletic/5949974/2024/11/26/barcelona-montjuic-fans-behaviour/
+
 **Miami names Mascherano as new head coach**\
 `Former Barcelona, Liverpool and Argentina midfielder Javier Mascherano has been named by Inter Miami as its new head coach.`\
 https://nytimes.com/athletic/5948934/2024/11/26/inter-miami-javier-mascherano-confirmed/
@@ -29,13 +37,4 @@ https://nytimes.com/2024/11/26/business/blue-yonder-ransomware-attack-starbucks.
 **Super Bowl 2025 odds: Lions, Chiefs lead. Eagles, Ravens rising**\
 `The Detroit Lions solidified their spot at the top of the Super Bowl odds heading into Week 13. Here's where the contenders stand.`\
 https://nytimes.com/athletic/5949652/2024/11/26/super-bowl-2025-odds-lions-chiefs-eagles-ravens/
-
-**Trump has significant power to impose tariffs unilaterally.**\
-`By Ana Swanson`\
-https://nytimes.com/live/2024/us/trump-news/trump-has-significant-power-to-impose-tariffs-unilaterally
-
-**Slot: Salah's comments on Liverpool future 'definitely not' a distraction**\
-`Arne Slot insists Mohamed Salah’s comments about his future are not a distraction ahead of Liverpool’s Champions League clash with Real Madrid at Anfield on Wednesday as he joked: “If I look at my line ups then Mo is more in than out!”
-The Egypt forward, who has scored 12 goals in all competitions this season, caused a stir following Sunday’s victory over Southampton when he claimed that he has yet to receive a formal contract offer as he enters the final six months of his deal.`\
-https://nytimes.com/athletic/5949851/2024/11/26/arne-slot-mohamed-salah-liverpool-future/
 
