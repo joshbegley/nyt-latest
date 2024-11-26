@@ -1,3 +1,7 @@
+**Super Bowl 2025 odds: Lions, Chiefs lead. Eagles, Ravens rising**\
+`The Detroit Lions solidified their spot at the top of the Super Bowl odds heading into Week 13. Here's where the contenders stand.`\
+https://nytimes.com/athletic/5949652/2024/11/26/super-bowl-2025-odds-lions-chiefs-eagles-ravens/
+
 **Trump has significant power to impose tariffs unilaterally.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/us/trump-news/trump-has-significant-power-to-impose-tariffs-unilaterally

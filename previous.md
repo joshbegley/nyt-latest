@@ -1,3 +1,7 @@
+**Super Bowl 2025 odds: Lions, Chiefs lead. Eagles, Ravens rising**\
+`The Detroit Lions solidified their spot at the top of the Super Bowl odds heading into Week 13. Here's where the contenders stand.`\
+https://nytimes.com/athletic/5949652/2024/11/26/super-bowl-2025-odds-lions-chiefs-eagles-ravens/
+
 **Trump has significant power to impose tariffs unilaterally.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/us/trump-news/trump-has-significant-power-to-impose-tariffs-unilaterally
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5949683/2024/11/26/tyreek-hill-dolphins-citations-d
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/11/26/opinion/thepoint
-
-**Rice football hires Scott Abell from FCS ranks as new head coach**\
-`Abell’s teams were led by an explosive shotgun triple option offense that led the FCS in scoring and rushing in 2023.`\
-https://nytimes.com/athletic/5949758/2024/11/26/rice-football-scott-abell-head-coach/
 
