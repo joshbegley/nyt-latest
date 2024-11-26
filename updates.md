@@ -1,3 +1,7 @@
+**Scoop City: Updated playoff (and No. 1 pick) races**\
+`Evaluating key battles for No. 1 seeds, wild card spots and the first pick, plus a look at Week 13's fantasy adds and Belichick's next job`\
+https://nytimes.com/athletic/5949479/2024/11/26/updated-playoff-standings-wild-card-scoop-city/
+
 **Officials May Close Huge N.Y.C. Migrant Shelter, Fearing Trump Crackdown**\
 `The administration of Mayor Eric Adams is fearful that President-elect Donald J. Trump may target a Brooklyn tent complex housing 2,000 asylum seekers on federal land.`\
 https://nytimes.com/2024/11/26/nyregion/nyc-migrant-shelter-closing-trump-immigration.html
