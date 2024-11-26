@@ -1,3 +1,15 @@
+**Students and Teachers Share Advice for Having Conversations Across Divides**\
+`Over a thousand students and dozens of educators offered ideas for how to have meaningful discussions about difficult topics. Here are some practical ideas — for use in or out of school.`\
+https://nytimes.com/2024/11/26/learning/students-and-teachers-share-advice-for-having-conversations-across-divides.html
+
+**Trump says foreign companies pay the tariffs. That’s usually wrong.**\
+`After Donald Trump imposed tariffs on China in his first term, economic studies found that most of the costs were passed on to U.S. consumers.`\
+https://nytimes.com/live/2024/us/trump-news/trump-says-foreign-companies-pay-the-tariffs-thats-usually-wrong
+
+**Jerry Jones: A McCarthy contract extension 'not crazy'**\
+`The Cowboys snapped a 5-game losing streak and are 4-7 after winning Sunday. Mike McCarthy is in the final season of a 5-year contract.`\
+https://nytimes.com/athletic/5949575/2024/11/26/cowboys-jerry-jones-comments-mike-mccarthy-contract-extension/
+
 **Colman Domingo Makes Sense of ‘The Madness’**\
 `The Netflix thriller uses a murder mystery to explore the dangers of misinformation and conspiracy theories. “It’s this flood of not knowing what to believe,” the actor says.`\
 https://nytimes.com/2024/11/26/arts/television/the-madness-colman-domingo.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/26/world/africa/breyten-breytenbach-dead.html
 **Brady Tkachuk steps up after facing criticism as Senators captain**\
 `The 25-year-old's leadership came under fire during the Sens' five-game losing streak which ended Monday with a 4-3 win over Calgary.`\
 https://nytimes.com/athletic/5948558/2024/11/26/ottawa-senators-brady-tkachuk-leadership/
-
-**Thanksgiving Eve Means Meatballs**\
-`Specifically, Kay Chun’s 5-ingredient, 20-minute pork and ricotta meatballs that call out for your favorite marinara and a pile of rigatoni.`\
-https://nytimes.com/2024/11/26/dining/thanksgiving-eve-means-meatballs.html
-
-**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
-`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/5949534/2024/11/26/nhl-mailbag-trades-injuries-4-nations/
-
-**Mack Brown out at UNC; Tulane's Sumrall will get good look**\
-`Brown’s 113 career wins, 10 bowl trips and four bowl victories are the most in UNC football history.`\
-https://nytimes.com/athletic/5946905/2024/11/26/mack-brown-retires-unc-football/
 
