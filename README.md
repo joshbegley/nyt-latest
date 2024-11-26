@@ -1,3 +1,7 @@
+**Walmart Pulls Back on D.E.I. Initiatives Amid Conservative Pressure**\
+`The retailer is the largest company to be targeted by the conservative activist Robby Starbuck.`\
+https://nytimes.com/2024/11/26/business/walmart-dei-policies.html
+
 **Powers Points: Philipp Kurashev out to prove himself again with next contract looming**\
 `Plus a breakdown of Connor Bedard's game so far this season and ranking the top Blackhawks prospects by play.`\
 https://nytimes.com/athletic/5947817/2024/11/26/blackhawks-kurashev-contract-nhl-bedard/
@@ -32,9 +36,5 @@ https://nytimes.com/athletic/5948481/2024/11/26/tulsa-college-football-coach-sea
 
 **Trump Transition Live Updates: Tariffs on Mexico, Canada and China on Day 1**\
 ``\
-https://nytimes.com/live/2024/11/26/us/trump-news
-
-**Trump’s Tariff Threat Roils Global Markets**\
-`The dollar gained and investors sold off stocks after the president-elect promised to levy new restrictions on the United States’ biggest trade partners.`\
-https://nytimes.com/2024/11/26/business/dealbook/trumps-tariff-markets.html
+https://nytimes.com/live/2024/us/trump-news
 
