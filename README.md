@@ -1,3 +1,7 @@
+**Heat Today: How Kevin Love is finding ways to make an impact in limited minutes**\
+`The former All-Star is mostly a floor-spacing role player, but he's given Miami a big lift. "They just love playing with him." `\
+https://nytimes.com/athletic/5949486/2024/11/26/kevin-love-heat-today/
+
 **If Trump follows through on his tariffs, trade wars may follow.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/us/trump-news/if-trump-follows-through-on-his-tariffs-trade-wars-may-follow
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/opinion/donald-trump-jack-smith-jan6.html
 **Cowboys Today: Jerry Jones more interested in wins than 'ambiguity' of draft picks**\
 `The Cowboys had 16 players on their injury report Monday as they deal with a season-long problem of getting everyone on the field.`\
 https://nytimes.com/athletic/5949514/2024/11/26/cowboys-today-jerry-jones-tanking-draft-picks-injuries/
-
-**Intense Israeli airstrikes send people fleeing central Beirut in panic.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/intense-israeli-airstrikes-send-people-fleeing-central-beirut-in-panic
 
