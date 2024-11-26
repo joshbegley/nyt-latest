@@ -1,3 +1,7 @@
+**Heat Today: How Kevin Love is finding ways to make an impact in limited minutes**\
+`The former All-Star is mostly a floor-spacing role player, but he's given Miami a big lift. "They just love playing with him." `\
+https://nytimes.com/athletic/5949486/2024/11/26/kevin-love-heat-today/
+
 **Explaining why Barcelona have closed part of their ground 'indefinitely'**\
 `Barca believe a group of fans should repay the money the club have been fined for crowd misbehaviour. The supporters involved disagree...`\
 https://nytimes.com/athletic/5949974/2024/11/26/barcelona-montjuic-fans-behaviour/
