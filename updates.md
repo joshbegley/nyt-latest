@@ -1,3 +1,7 @@
+**16 Still Missing After Tourist Ship Capsizes in Egypt**\
+`The vessel was hit by a large wave in a part of the Red Sea coast that is known for diving and snorkeling.`\
+https://nytimes.com/2024/11/26/world/middleeast/egypt-tourist-boat-sinks-red-sea.html
+
 **John Harbaugh's aggressive decision-making helps Ravens find footing in win over Chargers**\
 `Converting a fourth-and-1 deep in its own territory helped shift the momentum in Baltimore's favor for a critical Monday night victory. `\
 https://nytimes.com/athletic/5948883/2024/11/26/ravens-win-john-harbaugh-chargers/
