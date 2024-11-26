@@ -1,3 +1,11 @@
+**Bellingham: 'I felt like a scapegoat' at Euro 2024**\
+`Jude Bellingham says he did not enjoy playing for England after the 2024 European Championship having felt &#8220;like the scapegoat&#8221; at the tournament.`\
+https://nytimes.com/athletic/5950139/2024/11/26/jude-bellingham-england-euros-scapegoat/
+
+**These Wolves Like a Little Treat: Flower Nectar**\
+`After Ethiopian wolves feed on their favorite rodents, they may be enjoying a bit of dessert and in the process helping pollinate plants known as torch lilies.`\
+https://nytimes.com/2024/11/26/science/wolves-flowers-nectar-pollinate.html
+
 **Pakistan’s Army Deployed as Police Clash With Imran Khan’s Supporters**\
 `Soldiers have been ordered to defend government buildings and use gunfire against Imran Khan’s supporters if needed.`\
 https://nytimes.com/video/world/asia/100000009846440/pakistan-protests-imran-khan.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/us/trump-news/if-trump-follows-through-on-his-tari
 **These Aren’t Regular Mashed Potatoes. They’re Martha Stewart’s Mashed Potatoes.**\
 `To serve alongside Dolly Parton’s cranberry jelly tower and Christina Tosi’s one-pot corn bake.`\
 https://nytimes.com/2024/11/26/dining/these-arent-regular-mashed-potatoes-theyre-martha-stewarts-mashed-potatoes.html
-
-**Victor Wembanyama's ups and downs this season: Is he shooting too many 3s?**\
-`Opponents are putting their best perimeter and most aggressive defenders on Wembanyama.`\
-https://nytimes.com/athletic/5949516/2024/11/26/victor-wembanyama-ups-downs-spurs/
-
-**A 2024 World Series champion Dodgers full playoff pool share is worth $477K**\
-`The total amount of money split between the 12 MLB postseason teams this year, $129.1 million, was a record. `\
-https://nytimes.com/athletic/5949764/2024/11/26/world-series-dodgers-mlb-playoff-share/
 
