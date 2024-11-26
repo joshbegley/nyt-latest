@@ -1,3 +1,23 @@
+**Market share report: Jonnu Smith reaches stud status; Ameer Abdullah is a worthy pickup for Week 13**\
+`In his latest market report, Michael Salfino says that Jonnu Smith is in a perfect situation as the top option in the Miami passing game.`\
+https://nytimes.com/athletic/5950329/2024/11/26/fantasy-football-market-share-report-week-12-2/
+
+**On the campaign trail and after, Trump has floated plans for hefty tariffs.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/us/trump-news/on-the-campaign-trail-and-after-trump-has-floated-plans-for-hefty-tariffs
+
+**Blinken and U.S. Allies Struggle with Wars as Biden’s Presidency Wanes**\
+`Top diplomats from the Group of 7 nations tried to project unity on Ukraine while discussing differences over Israel and anticipating the return of Donald J. Trump.`\
+https://nytimes.com/2024/11/26/world/europe/blinken-allies-biden-presidency.html
+
+**Independent Inquiry Blames Israeli Leaders for Oct. 7 Failures**\
+`After the Israeli government delayed a formal investigation into the Hamas attacks, an alliance of survivors and victims’ families set up their own inquiry. Their scathing findings were released on Tuesday.`\
+https://nytimes.com/2024/11/26/world/middleeast/israel-oct-7-inquiry.html
+
+**The Senate Should Leave No Judgeship Unfilled**\
+`Donald Trump will try to fill every judgeship that Democrats leave open.`\
+https://nytimes.com/2024/11/26/opinion/editorials/the-senate-should-leave-no-judgeship-unfilled.html
+
 **Senators D Artem Zub placed on LTIR: Will it lead to a trade?**\
 `Zub was placed on long-term injured reserve Tuesday morning after suffering a fracture in his foot.`\
 https://nytimes.com/athletic/5949759/2024/11/26/senators-artem-zub-injury/
