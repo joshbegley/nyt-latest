@@ -1,3 +1,23 @@
+**Trump’s Tariff Plan Makes Little Sense**\
+`Why set off a tit-for-tat with our closest allies?`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/trump-tariff-mexico-canada
+
+**G.O.P. Senator Blocking Promotion of General Who Commanded Afghan Withdrawal**\
+`Lt. Gen. Christopher T. Donahue was recently selected to lead the U.S. Army’s Europe Command as the war in Ukraine heads into its fourth year.`\
+https://nytimes.com/2024/11/26/us/politics/general-christopher-donahue-afghanistan.html
+
+**Dabo Swinney addresses NIL and revenue sharing on eve of South Carolina game**\
+`Swinney is confident Clemson will be well-situated once revenue sharing begins in college athletics.`\
+https://nytimes.com/athletic/5950166/2024/11/26/dabo-swinney-nil-revenue-sharing-transfer-portal/
+
+**Shedeur Sanders, Travis Hunter will play for Colorado in bowl game**\
+`Both Shedeur Sanders and Travis Hunter have been rumored to be in play for the No. 1 pick in next year’s NFL Draft.`\
+https://nytimes.com/athletic/5950358/2024/11/26/shedeur-sanders-travis-hunter-bowl-colorado/
+
+**Editor’s Note.**\
+`This article was published prematurely.`\
+https://nytimes.com/interactive/2024/11/26/us/published-in-error.html
+
 **Puzzle Mania 2024 Answers**\
 `Answer grids for Puzzle Mania 2024`\
 https://nytimes.com/interactive/2024/11/26/us/01puzzle-mania-answers.html
