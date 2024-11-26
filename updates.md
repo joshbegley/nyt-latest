@@ -1,3 +1,11 @@
+**Israeli Strikes Threaten Lebanon’s Archaeological Treasures**\
+`The country is home to thousands of years’ worth of antiquities. Some have already been damaged or destroyed in the war, alarming the conservationists trying to protect them.`\
+https://nytimes.com/2024/11/25/world/middleeast/lebanon-antiquities-israel-strikes.html
+
+**Significant Stretches**\
+`Killian Olson makes his Crossword debut.`\
+https://nytimes.com/2024/11/25/crosswords/daily-puzzle-2024-11-26.html
+
 **Corrections: Nov. 26, 2024**\
 `Corrections that appeared in print on Tuesday, Nov. 26, 2024.`\
 https://nytimes.com/2024/11/25/pageoneplus/corrections-nov-26-2024.html

@@ -1,3 +1,11 @@
+**Israeli Strikes Threaten Lebanon’s Archaeological Treasures**\
+`The country is home to thousands of years’ worth of antiquities. Some have already been damaged or destroyed in the war, alarming the conservationists trying to protect them.`\
+https://nytimes.com/2024/11/25/world/middleeast/lebanon-antiquities-israel-strikes.html
+
+**Significant Stretches**\
+`Killian Olson makes his Crossword debut.`\
+https://nytimes.com/2024/11/25/crosswords/daily-puzzle-2024-11-26.html
+
 **Corrections: Nov. 26, 2024**\
 `Corrections that appeared in print on Tuesday, Nov. 26, 2024.`\
 https://nytimes.com/2024/11/25/pageoneplus/corrections-nov-26-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/25/us/politics/trump-cases-presidential-criminality.
 **Crony Capitalism Is Coming to America**\
 `Business success may increasingly depend on connections, not competence.`\
 https://nytimes.com/2024/11/25/opinion/trump-tariffs-deportations.html
-
-**We’re Talking Thanksgiving With Martha Stewart, David Chang, Gayle King, Gwyneth Paltrow and More**\
-`We’ve gathered some of the biggest names in cooking and culture to share warm memories, hot takes and delicious recipes.`\
-https://nytimes.com/interactive/2024/11/25/dining/celebrity-thanksgiving-2024.html
-
-**NFL Week 12 inactives and fantasy tips: Ladd McConkey active for Monday Night Football**\
-`Check out who's in and who's out for Monday Night Football. Plus Week 12 recaps and Jake Ciely's fantasy rankings.`\
-https://nytimes.com/athletic/5942512/2024/11/25/nfl-week-12-inactives-and-fantasy-tips/
 
