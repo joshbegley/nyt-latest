@@ -1,3 +1,11 @@
+**There Is No Excuse for the Bullying of Sarah McBride**\
+`After a brutal election, Democrats need to get better at talking about trans issues.`\
+https://nytimes.com/2024/11/25/opinion/democrats-trans-issues-sarah-mcbride.html
+
+**At the Brooklyn Academy, Musical Journeys Through Minefields**\
+`The Silkroad Ensemble’s “American Railroad” and Alarm Will Sound’s “Sun Dogs” used music and images to engage with difficult topics.`\
+https://nytimes.com/2024/11/25/arts/music/at-the-brooklyn-academy-musical-journeys-through-minefields.html
+
 **Trump Threatens 25% Tariff on Canada and Mexico, Potentially Crippling Trade**\
 `The president-elect said that he would impose the tariff on Day 1 and that it would stay in place until Canada and Mexico halted the flow of drugs and migrants across U.S. borders.`\
 https://nytimes.com/2024/11/25/business/economy/trump-tariffs-canada-mexico-china.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/5947159/2024/11/25/ravens-roquan-smith-inactive-cha
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/5948043/2024/11/25/submit-a-question-for-stewart-mandels-college-football-mailbag-283/
-
-**Elevate Your Roman Adventure With Capital One**\
-`Tour the Italian capitol city and enjoy premium Venture X cardholder benefits at Six Senses Rome.`\
-https://nytimes.com/paidpost/capital-one/elevate-your-roman-adventure-with-capital-one.html
-
-**Kohl’s Picks C.E.O. of Michaels to Help It Turn Around**\
-`Ashley Buchanan will be the third chief executive of the department store chain since 2018.`\
-https://nytimes.com/2024/11/25/business/kohls-ashley-buchanan.html
 
