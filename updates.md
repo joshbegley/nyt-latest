@@ -1,3 +1,7 @@
+**UNC, Mack Brown parting ways amid rollercoaster season**\
+`Brown’s 113 career wins, 10 bowl trips and four bowl victories are the most in UNC football history.`\
+https://nytimes.com/athletic/5946905/2024/11/26/mack-brown-retires-unc-football/
+
 **The Rebellious Beauty of Nollywood’s Screen Sirens**\
 `The distinctive makeup of early-aughts Nigerian movies is coming back — and so is the daring attitude of the women who wore it.`\
 https://nytimes.com/2024/11/26/t-magazine/nollywood-beauty-makeup.html
