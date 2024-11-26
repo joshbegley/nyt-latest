@@ -1,3 +1,15 @@
+**Puzzle Mania 2024 Answers**\
+`Answer grids for Puzzle Mania 2024`\
+https://nytimes.com/interactive/2024/11/26/us/01puzzle-mania-answers.html
+
+**TV on the Radio, Brooklyn Rock Veterans, Return to the Stage**\
+`The acclaimed band, which emerged during the 2000s indie boom, is performing a series of live shows commemorating the 20th anniversary of its debut album.`\
+https://nytimes.com/2024/11/26/arts/music/tv-on-the-radio-live-shows.html
+
+**Fed Kept Options Open on Rate Cuts, Minutes Show**\
+`Minutes from a Nov. 6-7 meeting showed that Federal Reserve policymakers saw the labor market stabilizing and signs of economic strength.`\
+https://nytimes.com/2024/11/26/business/economy/federal-reserve-minutes.html
+
 **Canucks prospect stock watch: Who's up, who's down in the system?**\
 `Checking in on how some of Vancouver's notable prospects are tracking in the early season.`\
 https://nytimes.com/athletic/5948856/2024/11/26/canucks-prospect-stock-watch-2024/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/26/science/wolves-flowers-nectar-pollinate.html
 **Pakistan’s Army Deployed as Police Clash With Imran Khan’s Supporters**\
 `Soldiers have been ordered to defend government buildings and use gunfire against Imran Khan’s supporters if needed.`\
 https://nytimes.com/video/world/asia/100000009846440/pakistan-protests-imran-khan.html
-
-**U.S. Investigating Political Action Committee Tied to Mayor Adams**\
-`Prosecutors and the F.B.I. are examining an organization founded by the Rev. Alfred Cockfield II, according to people with knowledge of the matter.`\
-https://nytimes.com/2024/11/26/nyregion/adams-cockfield-federal-investigation.html
-
-**U.S. markets have a muted reaction, with some exceptions, to Trump’s tariff pledge.**\
-`By Danielle Kaye`\
-https://nytimes.com/live/2024/us/trump-news/us-markets-have-a-muted-reaction-with-some-exceptions-to-trumps-tariff-pledge
-
-**How to watch North Carolina vs. Auburn: Top-15 teams clash in Maui Invitational semifinal**\
-`Both Auburn and UNC pulled wild comebacks in the opening round. They face off in a Maui Invitational semifinal Tuesday night.`\
-https://nytimes.com/athletic/5949699/2024/11/26/auburn-unc-how-to-watch-odds-preview/
 
