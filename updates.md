@@ -1,3 +1,7 @@
+**What we're seeing with the Bucks: Rivers' rotations, Jackson's pressure and more**\
+`After a 2-8 start to the season, the Bucks are in a much better place than they were two weeks ago.`\
+https://nytimes.com/athletic/5944268/2024/11/26/milwaukee-bucks-doc-rivers-andre-jackson/
+
 **Explained: Baller League - the influencer-backed 'new era for football'**\
 `What is the new concept and is it really the revolution organisers are suggesting?`\
 https://nytimes.com/athletic/5949002/2024/11/26/baller-league-explained-ksi-ishowspeed/

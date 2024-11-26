@@ -1,3 +1,7 @@
+**What we're seeing with the Bucks: Rivers' rotations, Jackson's pressure and more**\
+`After a 2-8 start to the season, the Bucks are in a much better place than they were two weeks ago.`\
+https://nytimes.com/athletic/5944268/2024/11/26/milwaukee-bucks-doc-rivers-andre-jackson/
+
 **Explained: Baller League - the influencer-backed 'new era for football'**\
 `What is the new concept and is it really the revolution organisers are suggesting?`\
 https://nytimes.com/athletic/5949002/2024/11/26/baller-league-explained-ksi-ishowspeed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5934690/2024/11/26/michael-owen-liverpool-real-madr
 **Russia Launches Record Number of Drones in Overnight Attack, Ukraine Says**\
 `The assault, which the Ukrainian Air Force said involved 188 drones, came as both sides intensify air bombardments.`\
 https://nytimes.com/2024/11/26/world/europe/ukraine-russia-drone-attack.html
-
-**Very different stories are unfolding for the Bears on defense and offense**\
-`The Bears offense is starting to click thanks to the Thomas Brown-Caleb Williams partnership, but Matt Eberflus' defense has regressed.`\
-https://nytimes.com/athletic/5947520/2024/11/26/bears-defense-offense-different-directions/
 
