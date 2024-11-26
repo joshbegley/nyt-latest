@@ -1,3 +1,7 @@
+**Senators D Artem Zub placed on LTIR: Will it lead to a trade?**\
+`Zub was placed on long-term injured reserve Tuesday morning after suffering a fracture in his foot.`\
+https://nytimes.com/athletic/5949759/2024/11/26/senators-artem-zub-injury/
+
 **Bellingham: 'I felt like a scapegoat' at Euro 2024**\
 `Jude Bellingham says he did not enjoy playing for England after the 2024 European Championship having felt &#8220;like the scapegoat&#8221; at the tournament.`\
 https://nytimes.com/athletic/5950139/2024/11/26/jude-bellingham-england-euros-scapegoat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949486/2024/11/26/kevin-love-heat-today/
 **If Trump follows through on his tariffs, trade wars may follow.**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/us/trump-news/if-trump-follows-through-on-his-tariffs-trade-wars-may-follow
-
-**These Aren’t Regular Mashed Potatoes. They’re Martha Stewart’s Mashed Potatoes.**\
-`To serve alongside Dolly Parton’s cranberry jelly tower and Christina Tosi’s one-pot corn bake.`\
-https://nytimes.com/2024/11/26/dining/these-arent-regular-mashed-potatoes-theyre-martha-stewarts-mashed-potatoes.html
 
