@@ -1,3 +1,7 @@
+**Are All These U.N. Climate Talks Doing Any Good?**\
+`What the U.N. negotiations, known as COP, can (and can’t) do to combat climate change.`\
+https://nytimes.com/2024/11/26/climate/cop29-un-climate-negotiations.html
+
 **Starbucks Among Companies Affected by Ransomware Attack**\
 `Blue Yonder, which provides supply chain management software for thousands of companies, said a cyberattack had disrupted some services.`\
 https://nytimes.com/2024/11/26/business/blue-yonder-ransomware-attack-starbucks.html

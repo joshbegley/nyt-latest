@@ -1,3 +1,7 @@
+**Are All These U.N. Climate Talks Doing Any Good?**\
+`What the U.N. negotiations, known as COP, can (and can’t) do to combat climate change.`\
+https://nytimes.com/2024/11/26/climate/cop29-un-climate-negotiations.html
+
 **Starbucks Among Companies Affected by Ransomware Attack**\
 `Blue Yonder, which provides supply chain management software for thousands of companies, said a cyberattack had disrupted some services.`\
 https://nytimes.com/2024/11/26/business/blue-yonder-ransomware-attack-starbucks.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5949479/2024/11/26/updated-playoff-standings-wild-c
 **Officials May Close Huge N.Y.C. Migrant Shelter, Fearing Trump Crackdown**\
 `The administration of Mayor Eric Adams is fearful that President-elect Donald J. Trump may target a Brooklyn tent complex housing 2,000 asylum seekers on federal land.`\
 https://nytimes.com/2024/11/26/nyregion/nyc-migrant-shelter-closing-trump-immigration.html
-
-**Citations issued to Dolphins WR Tyreek Hill in September dismissed**\
-`Hill was issued the citations on his way to Hard Rock Stadium after police pulled him over just hours before his team's Week 1 win.`\
-https://nytimes.com/athletic/5949683/2024/11/26/tyreek-hill-dolphins-citations-dismissed/
 
