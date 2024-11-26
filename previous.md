@@ -1,3 +1,7 @@
+**There Is No Excuse for the Bullying of Sarah McBride**\
+`After a brutal election, Democrats need to get better at talking about trans issues.`\
+https://nytimes.com/2024/11/25/opinion/democrats-trans-issues-sarah-mcbride.html
+
 **At the Brooklyn Academy, Musical Journeys Through Minefields**\
 `The Silkroad Ensemble’s “American Railroad” and Alarm Will Sound’s “Sun Dogs” used music and images to engage with difficult topics.`\
 https://nytimes.com/2024/11/25/arts/music/at-the-brooklyn-academy-musical-journeys-through-minefields.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5947159/2024/11/25/ravens-roquan-smith-inactive-cha
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/5948043/2024/11/25/submit-a-question-for-stewart-mandels-college-football-mailbag-283/
-
-**Elevate Your Roman Adventure With Capital One**\
-`Tour the Italian capitol city and enjoy premium Venture X cardholder benefits at Six Senses Rome.`\
-https://nytimes.com/paidpost/capital-one/elevate-your-roman-adventure-with-capital-one.html
 

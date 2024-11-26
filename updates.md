@@ -1,3 +1,7 @@
+**There Is No Excuse for the Bullying of Sarah McBride**\
+`After a brutal election, Democrats need to get better at talking about trans issues.`\
+https://nytimes.com/2024/11/25/opinion/democrats-trans-issues-sarah-mcbride.html
+
 **At the Brooklyn Academy, Musical Journeys Through Minefields**\
 `The Silkroad Ensemble’s “American Railroad” and Alarm Will Sound’s “Sun Dogs” used music and images to engage with difficult topics.`\
 https://nytimes.com/2024/11/25/arts/music/at-the-brooklyn-academy-musical-journeys-through-minefields.html
