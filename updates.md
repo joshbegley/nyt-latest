@@ -1,3 +1,11 @@
+**At the Brooklyn Academy, Musical Journeys Through Minefields**\
+`The Silkroad Ensemble’s “American Railroad” and Alarm Will Sound’s “Sun Dogs” used music and images to engage with difficult topics.`\
+https://nytimes.com/2024/11/25/arts/music/at-the-brooklyn-academy-musical-journeys-through-minefields.html
+
+**Ravens LB Roquan Smith inactive for 'MNF' vs. Chargers**\
+`Baltimore's leading tackler and four-time All-Pro will miss Week 12 with a hamstring injury. `\
+https://nytimes.com/athletic/5947159/2024/11/25/ravens-roquan-smith-inactive-chargers-game/
+
 **Trump Threatens 25% Tariff on Canada and Mexico, Potentially Crippling Trade**\
 `The president-elect said that he would impose the tariff on Day 1 and that it would stay in place until Canada and Mexico halted the flow of drugs and migrants across U.S. borders.`\
 https://nytimes.com/2024/11/25/business/economy/trump-tariffs-canada-mexico-china.html
