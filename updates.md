@@ -1,3 +1,19 @@
+**Colman Domingo Makes Sense of ‘The Madness’**\
+`The Netflix thriller uses a murder mystery to explore the dangers of misinformation and conspiracy theories. “It’s this flood of not knowing what to believe,” the actor says.`\
+https://nytimes.com/2024/11/26/arts/television/the-madness-colman-domingo.html
+
+**Drake Accuses Universal and Spotify of Boosting a Kendrick Lamar Song**\
+`The Canadian rapper filed legal papers on Monday claiming that the record company and streaming service promoted “Not Like Us” ahead of Drake’s tracks.`\
+https://nytimes.com/2024/11/26/arts/music/drake-lawsuit-kendrick-lamar-not-like-us.html
+
+**One Housing Project Got Built. Another Didn’t. Why?**\
+`There’s a solution to New York City’s housing shortage: Build more homes. But that can get complicated. Mihir Zaveri, a New York Times reporter covering housing in the New York City region, explains why one project got built and another did not.`\
+https://nytimes.com/video/nyregion/100000009823249/one-housing-project-got-built-another-didnt-why.html
+
+**Lloyd: Assessing 8 incredible stats that define the Cavs' remarkable 17-1 start**\
+`Cleveland has outscored opponents by 223 points, already surpassing last season’s total of198. The franchise wins mark is within reach.`\
+https://nytimes.com/athletic/5948791/2024/11/26/cleveland-cavaliers-8-incredible-stats/
+
 **Mack Brown out at UNC; Tulane's Sumrall will get good look**\
 `Brown’s 113 career wins, 10 bowl trips and four bowl victories are the most in UNC football history.`\
 https://nytimes.com/athletic/5946905/2024/11/26/mack-brown-retires-unc-football/
