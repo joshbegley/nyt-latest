@@ -1,3 +1,11 @@
+**Bodies Retrieved After Tourist Ship Sinks Off Egypt’s Red Sea Coast**\
+`Four bodies were retrieved one day after Monday’s shipwreck, according to local authorities. Search teams rescued 31 people and nine people remained missing on Tuesday.`\
+https://nytimes.com/video/world/middleeast/100000009845970/red-sea-egypt-boat-sinking.html
+
+**FA pledges to increase diversity of England men's coaching staff by 2028**\
+`The Football Association (FA) wants 30 per cent of the England men&#8217;s national team&#8217;s coaching staff to come from ethnically diverse backgrounds by 2028 as part of new plans announced to tackle discrimination, drive inclusion and boost representation in the game.`\
+https://nytimes.com/athletic/5949062/2024/11/26/fa-diversity-england-coaching-staff/
+
 **How good is the Tulsa job? What Kevin Wilson's replacement will inherit**\
 `There’s still some tradition here, and the job can pay well, but resources elsewhere in the program have been hard to come by.`\
 https://nytimes.com/athletic/5948481/2024/11/26/tulsa-college-football-coach-search-kevin-wilson/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/11/26/books/notable-books.html
 **Nuggets 'embarrassed' by Knicks at home: 'Who do we want to be as a team?'**\
 `Denver coach Michael Malone blasted his team's effort in the 145-118 loss on Monday night.`\
 https://nytimes.com/athletic/5948731/2024/11/26/nuggets-knicks-michael-malone-nikola-jokic/
-
-**Did we just watch the best day in Maui Invitational history?**\
-`Only Maui magic explains how a 2,400-seat high school gymnasium seems to always, somehow, spur spectacular basketball games.`\
-https://nytimes.com/athletic/5949083/2024/11/26/maui-invitational-history-scores-bracket-unc/
-
-**Man Utd post profit for first quarter of season despite £8.6m in 'restructuring' costs**\
-`Manchester United made a profit during the first quarter of the 2024-25 season, despite paying out £8.`\
-https://nytimes.com/athletic/5949129/2024/11/26/man-utd-finances-profit-stadium/
 

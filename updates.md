@@ -1,3 +1,11 @@
+**Bodies Retrieved After Tourist Ship Sinks Off Egypt’s Red Sea Coast**\
+`Four bodies were retrieved one day after Monday’s shipwreck, according to local authorities. Search teams rescued 31 people and nine people remained missing on Tuesday.`\
+https://nytimes.com/video/world/middleeast/100000009845970/red-sea-egypt-boat-sinking.html
+
+**FA pledges to increase diversity of England men's coaching staff by 2028**\
+`The Football Association (FA) wants 30 per cent of the England men&#8217;s national team&#8217;s coaching staff to come from ethnically diverse backgrounds by 2028 as part of new plans announced to tackle discrimination, drive inclusion and boost representation in the game.`\
+https://nytimes.com/athletic/5949062/2024/11/26/fa-diversity-england-coaching-staff/
+
 **How good is the Tulsa job? What Kevin Wilson's replacement will inherit**\
 `There’s still some tradition here, and the job can pay well, but resources elsewhere in the program have been hard to come by.`\
 https://nytimes.com/athletic/5948481/2024/11/26/tulsa-college-football-coach-search-kevin-wilson/
