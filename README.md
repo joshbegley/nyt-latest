@@ -1,3 +1,7 @@
+**Is Creativity Dead?**\
+`Or is the algorithm just hiding it from you?`\
+https://nytimes.com/video/opinion/100000009832540/social-media-algorithm-creativity.html
+
 **Hong Kong’s Top Court Upholds Rights of Same-Sex Married Couples**\
 `Long-running legal battles culminated in a ruling that preserves public housing benefits and inheritance rights in the territory.`\
 https://nytimes.com/2024/11/26/world/asia/hong-kong-same-sex-rights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/nyregion/how-to-fix-nyc-housing-crisis.html
 **How to Watch the Macy’s Thanksgiving Day Parade**\
 `For the 98th time, Macy’s brings New Yorkers its annual parade. This year, there will be 22 floats, 17 character balloons and performances by the Temptations and T-Pain.`\
 https://nytimes.com/2024/11/26/nyregion/macys-thanksgiving-day-parade-how-to-watch.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/26/crosswords/spelling-bee-forum.html
 
