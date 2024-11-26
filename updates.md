@@ -1,3 +1,11 @@
+**Rice football hires Scott Abell from FCS ranks as new head coach**\
+`Abell’s teams were led by an explosive shotgun triple option offense that led the FCS in scoring and rushing in 2023.`\
+https://nytimes.com/athletic/5949758/2024/11/26/rice-football-scott-abell-head-coach/
+
+**Trump’s Tariffs Would Deal a Big Blow to the Auto Industry**\
+`Automakers and parts suppliers would struggle if President-elect Donald J. Trump followed through on his threat to impose 25 percent tariffs on imports from Canada and Mexico.`\
+https://nytimes.com/2024/11/26/business/trump-tariffs-mexico-canada-cars.html
+
 **Students and Teachers Share Advice for Having Conversations Across Divides**\
 `Over a thousand students and dozens of educators offered ideas for how to have meaningful discussions about difficult topics. Here are some practical ideas — for use in or out of school.`\
 https://nytimes.com/2024/11/26/learning/students-and-teachers-share-advice-for-having-conversations-across-divides.html

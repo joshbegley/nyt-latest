@@ -1,3 +1,11 @@
+**Rice football hires Scott Abell from FCS ranks as new head coach**\
+`Abell’s teams were led by an explosive shotgun triple option offense that led the FCS in scoring and rushing in 2023.`\
+https://nytimes.com/athletic/5949758/2024/11/26/rice-football-scott-abell-head-coach/
+
+**Trump’s Tariffs Would Deal a Big Blow to the Auto Industry**\
+`Automakers and parts suppliers would struggle if President-elect Donald J. Trump followed through on his threat to impose 25 percent tariffs on imports from Canada and Mexico.`\
+https://nytimes.com/2024/11/26/business/trump-tariffs-mexico-canada-cars.html
+
 **Students and Teachers Share Advice for Having Conversations Across Divides**\
 `Over a thousand students and dozens of educators offered ideas for how to have meaningful discussions about difficult topics. Here are some practical ideas — for use in or out of school.`\
 https://nytimes.com/2024/11/26/learning/students-and-teachers-share-advice-for-having-conversations-across-divides.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5948791/2024/11/26/cleveland-cavaliers-8-incredible
 **North Carolina’s Democratic Governor Vetoes a G.O.P. Power Grab**\
 `Republicans have a supermajority in the state’s legislature and may move to override Gov. Roy Cooper’s veto, which would set off a new fight over state power and hurricane aid.`\
 https://nytimes.com/2024/11/26/us/politics/roy-cooper-north-carolina-republicans.html
-
-**Breyten Breytenbach, Dissident South African-Born Writer, Dies at 85**\
-`He wrote poetry in Afrikaans and prose in English in his fight against apartheid, an effort that landed him in jail for seven years and in Paris as an expatriate.`\
-https://nytimes.com/2024/11/26/world/africa/breyten-breytenbach-dead.html
-
-**Brady Tkachuk steps up after facing criticism as Senators captain**\
-`The 25-year-old's leadership came under fire during the Sens' five-game losing streak which ended Monday with a 4-3 win over Calgary.`\
-https://nytimes.com/athletic/5948558/2024/11/26/ottawa-senators-brady-tkachuk-leadership/
 
