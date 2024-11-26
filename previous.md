@@ -1,3 +1,15 @@
+**Russia Launches Record Number of Drones in Overnight Attack, Ukraine Says**\
+`The assault, which the Ukrainian Air Force said involved 188 drones, came as both sides intensify air bombardments.`\
+https://nytimes.com/2024/11/26/world/europe/ukraine-russia-drone-attack.html
+
+**Very different stories are unfolding for the Bears on defense and offense**\
+`The Bears offense is starting to click thanks to the Thomas Brown-Caleb Williams partnership, but Matt Eberflus' defense has regressed.`\
+https://nytimes.com/athletic/5947520/2024/11/26/bears-defense-offense-different-directions/
+
+**Inside the growth of Noah Gray, the Chiefs’ best offensive role player**\
+`Gray has already produced a career-high 315 yards and four touchdowns this season, his fourth in the NFL.`\
+https://nytimes.com/athletic/5947949/2024/11/26/chiefs-noah-gray-growth-patrick-mahomes/
+
 **Israeli Ministers Plan to Vote on Truce With Hezbollah**\
 `Prime Minister Benjamin Netanyahu was expected to present a deal mediated by U.S. and French diplomats to end fighting that has killed thousands, mostly in Lebanon, and displaced many more.`\
 https://nytimes.com/2024/11/26/world/middleeast/israel-hezbollah-ceasefire-lebanon.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5947970/2024/11/26/penguins-sidney-crosby-evgeni-ma
 **Is Ohio State's Emeka Egbuka the most complete receiver in the 2025 NFL Draft class?**\
 `Egbuka doesn't have the flash of some Ohio State teammates, past and present, but he might be the most consistent WR in program history.`\
 https://nytimes.com/athletic/5946543/2024/11/26/emeka-egbuka-nfl-draft-2025-scouting-report/
-
-**Packers mailbag: Is Green Bay a run-first team? Can the Dolphins handle the cold?**\
-`Also, Quay Walker steps up, how to address needs at defensive line and cornerback and the chances of Aaron Rodgers going to the Vikings.`\
-https://nytimes.com/athletic/5948090/2024/11/26/packers-mailbag-dolphins-thanksgiving/
-
-**The Metamorphosis of Pete Hegseth**\
-`Three military deployments reshaped the views of President-elect Donald J. Trump’s pick to lead the Defense Department.`\
-https://nytimes.com/2024/11/26/podcasts/the-daily/pete-hegseth.html
-
-**Trump’s Dramatic Tariff Plan, and a Cease-Fire Takes Shape in Lebanon**\
-`Plus, Matt Gaetz’s new gig.`\
-https://nytimes.com/2024/11/26/podcasts/trumps-tariff-plan-ceasefire.html
 
