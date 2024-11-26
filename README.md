@@ -1,3 +1,7 @@
+**Wednesday Briefing: Israel Approves Hezbollah Cease-Fire Deal**\
+`Plus, Mexico reacts to Trump’s tariff threats.`\
+https://nytimes.com/2024/11/26/briefing/cease-fire-tariff-trump-ukraine.html
+
 **Buster Posey, Giants 'excited' about possible Madison Bumgarner reunion**\
 `The San Francisco Giants and Madison Bumgarner could be headed for a reunion — just not on the pitcher’s mound.`\
 https://nytimes.com/athletic/5950559/2024/11/26/madison-bumgarner-sf-giants-reunion-posey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949845/2024/11/26/senators-alfredsson-heatley-spez
 **Here are the latest developments.**\
 `Under the deal, both sides will first observe a 60-day truce, during which Israel will withdraw from Lebanon and Hezbollah will move its fighters north.`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/israel-hezbollah-lebanon-cease-fire
-
-**The Migrant Caravans Trump Derides Rarely Make It Close to the U.S.**\
-`Migrants often gather in groups in southern Mexico as a means of protection from criminal groups. But they almost never make it anywhere near the U.S.-Mexico border.`\
-https://nytimes.com/2024/11/26/us/politics/migrant-caravans-mexico.html
 
