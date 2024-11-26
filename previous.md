@@ -1,3 +1,11 @@
+**Blue Blossom Puts a Modern Spin on Regional Chinese Dishes**\
+`Le Basque takes on vegan cooking, the Armani restaurant moves into the store’s flagship and more restaurant news.`\
+https://nytimes.com/2024/11/26/dining/nyc-restaurant-news.html
+
+**Alexander-Arnold to return to Liverpool squad, could play role from bench vs Madrid**\
+`Arne Slot says Trent Alexander-Arnold is not fit enough to start Liverpool’s Champions League clash with Real Madrid at Anfield — but he could play a role off the bench.`\
+https://nytimes.com/athletic/5937775/2024/11/26/alexander-arnold-injury-liverpool-real-madrid/
+
 **Scoop City: Updated playoff (and No. 1 pick) races**\
 `Evaluating key battles for No. 1 seeds, wild card spots and the first pick, plus a look at Week 13's fantasy adds and Belichick's next job`\
 https://nytimes.com/athletic/5949479/2024/11/26/updated-playoff-standings-wild-card-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/26/learning/students-and-teachers-share-advice-for-h
 **Trump says foreign companies pay the tariffs. That’s usually wrong.**\
 `After Donald Trump imposed tariffs on China in his first term, economic studies found that most of the costs were passed on to U.S. consumers.`\
 https://nytimes.com/live/2024/us/trump-news/trump-says-foreign-companies-pay-the-tariffs-thats-usually-wrong
-
-**Jerry Jones: A McCarthy contract extension 'not crazy'**\
-`The Cowboys snapped a 5-game losing streak and are 4-7 after winning Sunday. Mike McCarthy is in the final season of a 5-year contract.`\
-https://nytimes.com/athletic/5949575/2024/11/26/cowboys-jerry-jones-comments-mike-mccarthy-contract-extension/
-
-**Colman Domingo Makes Sense of ‘The Madness’**\
-`The Netflix thriller uses a murder mystery to explore the dangers of misinformation and conspiracy theories. “It’s this flood of not knowing what to believe,” the actor says.`\
-https://nytimes.com/2024/11/26/arts/television/the-madness-colman-domingo.html
 

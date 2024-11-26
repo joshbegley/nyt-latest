@@ -1,3 +1,11 @@
+**Blue Blossom Puts a Modern Spin on Regional Chinese Dishes**\
+`Le Basque takes on vegan cooking, the Armani restaurant moves into the store’s flagship and more restaurant news.`\
+https://nytimes.com/2024/11/26/dining/nyc-restaurant-news.html
+
+**Alexander-Arnold to return to Liverpool squad, could play role from bench vs Madrid**\
+`Arne Slot says Trent Alexander-Arnold is not fit enough to start Liverpool’s Champions League clash with Real Madrid at Anfield — but he could play a role off the bench.`\
+https://nytimes.com/athletic/5937775/2024/11/26/alexander-arnold-injury-liverpool-real-madrid/
+
 **Scoop City: Updated playoff (and No. 1 pick) races**\
 `Evaluating key battles for No. 1 seeds, wild card spots and the first pick, plus a look at Week 13's fantasy adds and Belichick's next job`\
 https://nytimes.com/athletic/5949479/2024/11/26/updated-playoff-standings-wild-card-scoop-city/
