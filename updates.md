@@ -1,3 +1,7 @@
+**China’s Huawei Takes Aim at Apple With Latest Smartphone**\
+`Last year, a chip breakthrough put Huawei on top of the Chinese smartphone market. Now it is rolling out its newest phone, the Mate 70 series.`\
+https://nytimes.com/2024/11/26/business/china-huawei-mate-70.html
+
 **Pakistan Deploys Army in Its Capital as Protesters and Police Clash**\
 `Soldiers were ordered to defend government buildings with gunfire, if needed, as supporters of former Prime Minister Imran Khan demanded his release from prison.`\
 https://nytimes.com/2024/11/26/world/asia/pakistan-protests-imran-khan.html
