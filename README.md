@@ -1,3 +1,11 @@
+**John Harbaugh's aggressive decision-making helps Ravens find footing in win over Chargers**\
+`Converting a fourth-and-1 deep in its own territory helped shift the momentum in Baltimore's favor for a critical Monday night victory. `\
+https://nytimes.com/athletic/5948883/2024/11/26/ravens-win-john-harbaugh-chargers/
+
+**Fury Unfolds in Pakistan**\
+`Scenes from the violent clashes between the security forces and protesters who are demanding the release of Imran Khan from prison.`\
+https://nytimes.com/2024/11/26/world/asia/pakistan-protest-photos.html
+
 **How a special friendship is defining one of the NBA's best cultures**\
 `Suggs' viral comforting of a crying Carter Jr. went deeper than it appeared. And it reveals what makes the Magic special.`\
 https://nytimes.com/athletic/5941499/2024/11/26/jalen-suggs-wendell-carter-jr-magic-friendship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5947249/2024/11/26/michigan-ohio-state-wink-martind
 **Fentanyl Rises Again, This Time as Trump’s Diplomatic Weapon Against China**\
 `The president-elect’s pledge to use tariffs to stem the flow of opioids from China could backfire if Beijing responds by ending counternarcotics cooperation.`\
 https://nytimes.com/2024/11/26/world/asia/trump-china-tariff-fentanyl.html
-
-**Patriots feel like they're playing out the string ahead of another important offseason**\
-`There's a feeling of resignation around the Patriots as they prepare for their final five games — ahead of more changes this offseason.`\
-https://nytimes.com/athletic/5947016/2024/11/26/patriots-jerod-mayo-locker-room-offseason/
-
-**Obesity Drugs Would Be Covered by Medicare and Medicaid Under Biden Proposal**\
-`The proposed rule could give millions of Americans access to the new drugs; it would also put pressure on the federal budget.`\
-https://nytimes.com/2024/11/26/upshot/obesity-drugs-medicare-medicaid.html
 
