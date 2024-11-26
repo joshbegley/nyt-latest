@@ -1,3 +1,7 @@
+**Trump Plans Tariffs on Mexico, Canada and China That Could Cripple Trade**\
+`The president-elect said that he would impose the across-the-board tariffs on Day 1 and that they would stay in place until Canada, Mexico and China halted the flow of drugs and migrants.`\
+https://nytimes.com/2024/11/25/business/economy/trump-tariffs-canada-mexico-china.html
+
 **Israeli Strikes Threaten Lebanon’s Archaeological Treasures**\
 `The country is home to thousands of years’ worth of antiquities. Some have already been damaged or destroyed in the war, alarming the conservationists trying to protect them.`\
 https://nytimes.com/2024/11/25/world/middleeast/lebanon-antiquities-israel-strikes.html
