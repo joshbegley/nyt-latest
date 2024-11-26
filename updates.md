@@ -1,3 +1,15 @@
+**Officials May Close Huge N.Y.C. Migrant Shelter, Fearing Trump Crackdown**\
+`The administration of Mayor Eric Adams is fearful that President-elect Donald J. Trump may target a Brooklyn tent complex housing 2,000 asylum seekers on federal land.`\
+https://nytimes.com/2024/11/26/nyregion/nyc-migrant-shelter-closing-trump-immigration.html
+
+**Citations issued to Dolphins WR Tyreek Hill in September dismissed**\
+`Hill was issued the citations on his way to Hard Rock Stadium after police pulled him over just hours before his team's Week 1 win.`\
+https://nytimes.com/athletic/5949683/2024/11/26/tyreek-hill-dolphins-citations-dismissed/
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/11/26/opinion/thepoint
+
 **Rice football hires Scott Abell from FCS ranks as new head coach**\
 `Abell’s teams were led by an explosive shotgun triple option offense that led the FCS in scoring and rushing in 2023.`\
 https://nytimes.com/athletic/5949758/2024/11/26/rice-football-scott-abell-head-coach/
