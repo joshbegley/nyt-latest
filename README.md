@@ -11,7 +11,7 @@ https://nytimes.com/2024/11/26/nyregion/rudy-giuliani-defamation-hearing-lawyers
 https://nytimes.com/athletic/5950566/2024/11/26/nfl-week-13-playoff-scenarios-how-bills-chiefs-lions/
 
 **Khris Middleton's return nears after participating in 5-on-5 session**\
-`The Bucks' All-Star wing will likely remain out for at least the next two games, but he's cleared one hurdle after offseason ankle surgeries`\
+`The Bucks' All-Star wing will still be out on Tuesday against the Miami Heat, but he's cleared one hurdle after offseason ankle surgeries.`\
 https://nytimes.com/athletic/5950652/2024/11/26/khris-middleton-bucks-injury-practice/
 
 **Biden Announces Cease-Fire Deal Between Israel and Lebanon**\
