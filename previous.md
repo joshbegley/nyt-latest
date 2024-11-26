@@ -1,3 +1,11 @@
+**Andrew Cuomo joins Netanyahu’s legal defense team.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/andrew-cuomo-joins-netanyahus-legal-defense-team
+
+**UConn suffers first back-to-back losses in 22 months with Colorado upset**\
+`Colorado then made a concerted effort — as it did all game — to take advantage of UConn’s precarious frontcourt foul trouble.`\
+https://nytimes.com/athletic/5951037/2024/11/26/uconn-loss-colorado-maui-invitational/
+
 **Judge denies request to block SJSU volleyball player from tournament**\
 `The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
 https://nytimes.com/athletic/5947424/2024/11/26/san-jose-state-volleyball-lawsuit-transgender/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/26/dining/french-laundry-per-se.html
 **Jets QB Aaron Rodgers addresses uncertain NFL future, 2025 plans on Pat McAfee Show**\
 `The Jets are looking at a potential rebuild after in-season firings of their coach and general manager.`\
 https://nytimes.com/athletic/5950722/2024/11/26/aaron-rodgers-2025-season-jets/
-
-**49ers mailbag: Why not Josh Dobbs? What changes are looming this offseason?**\
-`Among the questions this week: Can the 49ers part ways with Deebo Samuel and who might they pursue at defensive coordinator in 2025?`\
-https://nytimes.com/athletic/5950590/2024/11/26/49ers-mailbag-josh-dobbs-offseason-changes/
-
-**Jack Smith Closes Up Shop, Defeated More by Voters Than by Jurors**\
-`The special counsel will leave behind a complex legacy, having amassed considerable evidence against Donald J. Trump but having lost key legal battles that could constrain future investigators.`\
-https://nytimes.com/2024/11/26/us/politics/jack-smith-trump-cases.html
 

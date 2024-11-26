@@ -1,3 +1,11 @@
+**Andrew Cuomo joins Netanyahu’s legal defense team.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/andrew-cuomo-joins-netanyahus-legal-defense-team
+
+**UConn suffers first back-to-back losses in 22 months with Colorado upset**\
+`Colorado then made a concerted effort — as it did all game — to take advantage of UConn’s precarious frontcourt foul trouble.`\
+https://nytimes.com/athletic/5951037/2024/11/26/uconn-loss-colorado-maui-invitational/
+
 **Judge denies request to block SJSU volleyball player from tournament**\
 `The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
 https://nytimes.com/athletic/5947424/2024/11/26/san-jose-state-volleyball-lawsuit-transgender/
