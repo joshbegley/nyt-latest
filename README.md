@@ -1,3 +1,7 @@
+**Submit questions for Ben Standig's Commanders mailbag**\
+`Standig is taking questions to consider for his upcoming mailbag ahead of the Thanksgiving holiday.`\
+https://nytimes.com/athletic/5948262/2024/11/25/commanders-mailbag-losing-streak/
+
 **End of Trump Cases Leaves Limits on Presidential Criminality Unclear**\
 `Donald J. Trump is set to regain office without clarity on the scope of presidential immunity and with a lingering cloud over whether outside special counsels can investigate high-level wrongdoing.`\
 https://nytimes.com/2024/11/25/us/politics/trump-cases-presidential-criminality.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/11/25/business/kohls-ashley-buchanan.html
 **Biden White House Holds Up U.S. Contribution to Anti-Doping Agency**\
 `The administration is pressing the World Anti-Doping Agency to allow an outside audit after it failed to suspend Chinese swimmers for positive tests.`\
 https://nytimes.com/2024/11/25/us/politics/white-house-contribution-anti-doping-agency.html
-
-**Woody Johnson has given up on the season — what that means for Jets coaches and players**\
-`On Monday, Jeff Ulbrich and a few veteran players met with the media for the first time since GM Joe Douglas was fired.`\
-https://nytimes.com/athletic/5947837/2024/11/25/jets-season-after-woody-johnson-starts-new-gm-search/
 
