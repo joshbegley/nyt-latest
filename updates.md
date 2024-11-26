@@ -1,3 +1,19 @@
+**The Scots thriving in Italy: 'Everyone was surprised I actually had good technique'**\
+`For more than 30 years, there were no Scots playing in Serie A but that has changed dramatically`\
+https://nytimes.com/athletic/5902911/2024/11/26/scottish-players-italy-serie-a/
+
+**Tuesday Briefing**\
+`Talks on a truce between Israel and Lebanon.`\
+https://nytimes.com/2024/11/26/briefing/truce-trump-storm-bert.html
+
+**Champions League Projections: Who has performed above or below expectation at the halfway point?**\
+`We look at the good, the bad and the expected at the halfway stage of the 2024-25 Champions League`\
+https://nytimes.com/athletic/5947392/2024/11/26/champions-league-matchday-5-projections/
+
+**How varied interpretations of football's laws have left players confused and the data in a mess**\
+`Yellow cards are up, penalties are down and nobody is entirely sure what is going on...`\
+https://nytimes.com/athletic/5924446/2024/11/26/premier-league-refereeing-interpretations-data-spikes/
+
 **A Misstep by Ireland’s Prime Minister Muddies Election Race**\
 `A fumbled meeting with a voter may dent Simon Harris’s popularity. But his coalition government’s main opposition, the nationalist party Sinn Fein, will likely remain locked out of power.`\
 https://nytimes.com/2024/11/26/world/europe/simon-harris-voter-video-sinn-fein-election.html

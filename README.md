@@ -1,3 +1,19 @@
+**Eight graphs which show why Salah deserves a new Liverpool contract**\
+`FSG is all about the numbers when it comes to their business decisions - and these ones are hard to ignore`\
+https://nytimes.com/athletic/5946821/2024/11/26/mohamed-salah-contract-liverpool-graphs/
+
+**Auburn claws back for dramatic Maui Invitational win over Iowa State**\
+`Auburn trailed by as many as 18 points in the first half before rattling off a 20-4 run out of intermission.`\
+https://nytimes.com/athletic/5948710/2024/11/26/auburn-iowa-state-johni-broome-maui-invitational/
+
+**Bayern Munich vs PSG: Four years after meeting in the Champions League final, how have they changed?**\
+`As the two European giants meet again, we assess the profile, tactics and progress of each side`\
+https://nytimes.com/athletic/5946229/2024/11/26/bayern-munich-vs-psg-four-years-after-meeting-in-the-champions-league-final-whats-changed/
+
+**'I felt ashamed' - How a dream summer transfer became one footballer's nightmare**\
+`Muhammadu Faal was announced as a Crawley player on July 22 but he never received a final contract. Then it all turned sour`\
+https://nytimes.com/athletic/5935036/2024/11/26/muhammadu-faal-crawley-transfer-nightmare/
+
 **The Scots thriving in Italy: 'Everyone was surprised I actually had good technique'**\
 `For more than 30 years, there were no Scots playing in Serie A but that has changed dramatically`\
 https://nytimes.com/athletic/5902911/2024/11/26/scottish-players-italy-serie-a/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/26/world/europe/simon-harris-voter-video-sinn-fein-e
 **'He has an aura. He'll get support. He needs it' - views from the away end at Amorim's first United match**\
 `An early goal, positive support but some familiar concerns - United fans in the away end give Andy Mitten their views on Sunday's match`\
 https://nytimes.com/athletic/5946524/2024/11/26/manchester-united-ipswich-supporters/
-
-**As Russia Advances in Ukraine, a Cop Has to Flee City After City**\
-`For Volodymyr Nikulin, being a wartime police officer means aiding evacuees, surviving a shrapnel wound and tackling looters. It also means quickly switching cities when one falls to the invaders.`\
-https://nytimes.com/2024/11/26/world/europe/ukraine-donbas-wartime-policing.html
-
-**Angela Merkel Tells Us What She Really Thinks**\
-`In her memoir, the former German chancellor reflects on her political rise and defends her record as the outlook for her country turns grim.`\
-https://nytimes.com/2024/11/26/books/review/freedom-angela-merkel.html
-
-**Bayern Munich vs PSG: Storylines, odds, prediction for mammoth Champions League clash**\
-`Bayern Munich and PSG have both struggled in the Champions League so far, making Tuesday's clash massive for both teams.`\
-https://nytimes.com/athletic/5947768/2024/11/26/bayern-munich-psg-preview-odds-prediction/
-
-**China’s Police Are Preying on Small Firms in Search of Cash**\
-`With localities facing budget holes, the police are crossing provincial borders to collect fines and draining company treasuries. Businesses call it a shakedown.`\
-https://nytimes.com/2024/11/26/business/china-economy-police-business.html
 
