@@ -1,3 +1,15 @@
+**Buster Posey, Giants 'excited' about possible Madison Bumgarner reunion**\
+`The San Francisco Giants and Madison Bumgarner could be headed for a reunion — just not on the pitcher’s mound.`\
+https://nytimes.com/athletic/5950559/2024/11/26/madison-bumgarner-sf-giants-reunion-posey/
+
+**Giants' Tommy DeVito plans to play vs. Cowboys despite sore right forearm**\
+`Giants coach Brian Daboll said that DeVito would be limited in practice but was "hopeful" the QB would play against Dallas.`\
+https://nytimes.com/athletic/5950525/2024/11/26/tommy-devito-giants-arm-injury/
+
+**Raise Your Glass High to the New Cast of ‘Vanderpump Rules’**\
+`The Bravo reality show is getting an entirely new cast for its 12th season. Lisa Vanderpump, for whom the show is named, will continue at its helm.`\
+https://nytimes.com/2024/11/26/arts/television/vanderpump-rules-season-12-new-cast.html
+
 **Saudi Arabia and Russia to U.N: Don’t Talk About a Fossil Fuel Exit**\
 `A handful of oil-producing nations ensured that a United Nations General Assembly resolution on climate change steered clear of a call to transition away from fossil fuels.`\
 https://nytimes.com/2024/11/26/climate/saudi-arabia-russia-fossil-fuels-un.html
