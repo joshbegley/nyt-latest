@@ -1,3 +1,7 @@
+**Senators' Pizza Line to be honoured on Dec. 5**\
+`The trio will participate in a ceremonial faceoff before the Sens' home game against the Detroit Red Wings.`\
+https://nytimes.com/athletic/5949845/2024/11/26/senators-alfredsson-heatley-spezza/
+
 **Here are the latest developments.**\
 `Under the deal, both sides will first observe a 60-day truce, during which Israel will withdraw from Lebanon and Hezbollah will move its fighters north.`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/israel-hezbollah-lebanon-cease-fire

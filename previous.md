@@ -1,3 +1,7 @@
+**Senators' Pizza Line to be honoured on Dec. 5**\
+`The trio will participate in a ceremonial faceoff before the Sens' home game against the Detroit Red Wings.`\
+https://nytimes.com/athletic/5949845/2024/11/26/senators-alfredsson-heatley-spezza/
+
 **Here are the latest developments.**\
 `Under the deal, both sides will first observe a 60-day truce, during which Israel will withdraw from Lebanon and Hezbollah will move its fighters north.`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/israel-hezbollah-lebanon-cease-fire
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/us/trump-news/on-the-campaign-trail-and-after-trum
 **Blinken and U.S. Allies Struggle with Wars as Biden’s Presidency Wanes**\
 `Top diplomats from the Group of 7 nations tried to project unity on Ukraine while discussing differences over Israel and anticipating the return of Donald J. Trump.`\
 https://nytimes.com/2024/11/26/world/europe/blinken-allies-biden-presidency.html
-
-**Independent Inquiry Blames Israeli Leaders for Oct. 7 Failures**\
-`After the Israeli government delayed a formal investigation into the Hamas attacks, an alliance of survivors and victims’ families set up their own inquiry. Their scathing findings were released on Tuesday.`\
-https://nytimes.com/2024/11/26/world/middleeast/israel-oct-7-inquiry.html
 
