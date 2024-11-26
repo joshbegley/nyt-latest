@@ -1,3 +1,11 @@
+**Spurs must stop these wild swings in mood and form but this may be the hardest time to do it**\
+`The good vibes lasted for 48 hours this time. Then Vicario's ankle surgery was announced. Spurs' tough schedule suddenly looks even tougher`\
+https://nytimes.com/athletic/5937526/2024/11/26/spurs-postecoglou-form-vicario-injury/
+
+**How Jim Montgomery earned win in Blues coaching debut: 3 takeaways**\
+`The Blues took a season-high 43 shots, Zack Bolduc had a breakout game and the team played with togetherness.`\
+https://nytimes.com/athletic/5948307/2024/11/26/blues-jim-montgomery-rangers-takeaways/
+
 **Small Plane Crash Kills 5 in Costa Rica**\
 `The Red Cross said emergency crews had found the sole survivor and were trying to rescue her.`\
 https://nytimes.com/2024/11/26/world/americas/plane-crash-costa-rica.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5902911/2024/11/26/scottish-players-italy-serie-a/
 **Tuesday Briefing**\
 `Talks on a truce between Israel and Lebanon.`\
 https://nytimes.com/2024/11/26/briefing/truce-trump-storm-bert.html
-
-**Champions League Projections: Who has performed above or below expectation at the halfway point?**\
-`We look at the good, the bad and the expected at the halfway stage of the 2024-25 Champions League`\
-https://nytimes.com/athletic/5947392/2024/11/26/champions-league-matchday-5-projections/
-
-**How varied interpretations of football's laws have left players confused and the data in a mess**\
-`Yellow cards are up, penalties are down and nobody is entirely sure what is going on...`\
-https://nytimes.com/athletic/5924446/2024/11/26/premier-league-refereeing-interpretations-data-spikes/
 

@@ -1,3 +1,11 @@
+**Spurs must stop these wild swings in mood and form but this may be the hardest time to do it**\
+`The good vibes lasted for 48 hours this time. Then Vicario's ankle surgery was announced. Spurs' tough schedule suddenly looks even tougher`\
+https://nytimes.com/athletic/5937526/2024/11/26/spurs-postecoglou-form-vicario-injury/
+
+**How Jim Montgomery earned win in Blues coaching debut: 3 takeaways**\
+`The Blues took a season-high 43 shots, Zack Bolduc had a breakout game and the team played with togetherness.`\
+https://nytimes.com/athletic/5948307/2024/11/26/blues-jim-montgomery-rangers-takeaways/
+
 **Small Plane Crash Kills 5 in Costa Rica**\
 `The Red Cross said emergency crews had found the sole survivor and were trying to rescue her.`\
 https://nytimes.com/2024/11/26/world/americas/plane-crash-costa-rica.html
