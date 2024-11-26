@@ -1,3 +1,15 @@
+**'I cannot be the same every time': How tennis players and tennis coaches choose each other**\
+`The relationship between player and coach can be transformative or combustible, sometimes both. So how do they start?`\
+https://nytimes.com/athletic/5947172/2024/11/26/tennis-players-coaches-relationship-how-choose/
+
+**Chargers' loss to Ravens shows just how much work Jim Harbaugh still has to do**\
+`INGLEWOOD, Calif.`\
+https://nytimes.com/athletic/5948879/2024/11/26/chargers-loss-harbaugh-ravens/
+
+**Can Broncos' rushing roulette support a playoff push down the stretch?**\
+`Denver has had five different players lead the team in rushing during a game this season, the most since 2010.`\
+https://nytimes.com/athletic/5946402/2024/11/26/broncos-running-backs/
+
 **The Pulse: The HarBowl lived up to the hype**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5948364/2024/11/26/chargers-ravens-harbaugh-the-pulse/

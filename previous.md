@@ -1,3 +1,15 @@
+**'I cannot be the same every time': How tennis players and tennis coaches choose each other**\
+`The relationship between player and coach can be transformative or combustible, sometimes both. So how do they start?`\
+https://nytimes.com/athletic/5947172/2024/11/26/tennis-players-coaches-relationship-how-choose/
+
+**Chargers' loss to Ravens shows just how much work Jim Harbaugh still has to do**\
+`INGLEWOOD, Calif.`\
+https://nytimes.com/athletic/5948879/2024/11/26/chargers-loss-harbaugh-ravens/
+
+**Can Broncos' rushing roulette support a playoff push down the stretch?**\
+`Denver has had five different players lead the team in rushing during a game this season, the most since 2010.`\
+https://nytimes.com/athletic/5946402/2024/11/26/broncos-running-backs/
+
 **The Pulse: The HarBowl lived up to the hype**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5948364/2024/11/26/chargers-ravens-harbaugh-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5947520/2024/11/26/bears-defense-offense-different-
 **Inside the growth of Noah Gray, the Chiefs’ best offensive role player**\
 `Gray has already produced a career-high 315 yards and four touchdowns this season, his fourth in the NFL.`\
 https://nytimes.com/athletic/5947949/2024/11/26/chiefs-noah-gray-growth-patrick-mahomes/
-
-**Israeli Ministers Plan to Vote on Truce With Hezbollah**\
-`Prime Minister Benjamin Netanyahu was expected to present a deal mediated by U.S. and French diplomats to end fighting that has killed thousands, mostly in Lebanon, and displaced many more.`\
-https://nytimes.com/2024/11/26/world/middleeast/israel-hezbollah-ceasefire-lebanon.html
-
-**How Justin Jefferson played a huge role beyond the box score in Vikings' win over Bears**\
-`Jefferson is a superstar who sees the bigger picture. His selflessness resulted in huge games Sunday from Jordan Addison and T.J. Hockenson.`\
-https://nytimes.com/athletic/5947779/2024/11/26/justin-jefferson-vikings-bears-unselfish/
-
-**Last summer, William and Alex Nylander hatched a plan — to help the Maple Leafs together**\
-`The brothers' summer dream and long-shot idea to help the Maple Leafs win together is now a reality.`\
-https://nytimes.com/athletic/5947451/2024/11/26/maple-leafs-william-alex-nylander/
 
