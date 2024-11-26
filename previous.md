@@ -1,3 +1,7 @@
+**Champions League Briefing: Guardiola marked by Man City collapse, Pulisic among form players**\
+`Analysis of the key moments from the latest round of the Champions League`\
+https://nytimes.com/athletic/5950475/2024/11/26/champions-league-guardiola-marked/
+
 **Arteta hails Arsenal ruthless in Sporting CP win: 'We played with courage'**\
 `Mikel Arteta hailed Arsenal&#8217;s 5-1 win over Sporting CP as a landmark victory as he praised his players for finding their ruthless streak in front of goal.`\
 https://nytimes.com/athletic/5951132/2024/11/26/mikel-arteta-arsenal-sporting-cp/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/us/politics/jack-smith-trump-cases.html
 **Biden Announces Cease-Fire Deal Between Israel and Lebanon**\
 `The fighting has displaced over a million Lebanese and tens of thousands of Israelis, killed more than 3,000 Lebanese and 100 Israelis.`\
 https://nytimes.com/video/world/middleeast/100000009847608/israel-lebanon-ceasefire.html
-
-**A Vulnerable Trudeau Hopes to Muster Unity Against Trump Tariff Plans**\
-`Many of the prime minister’s political opponents were as critical of him as about the president-elect’s plan, which would adversely affect Canada’s economy.`\
-https://nytimes.com/2024/11/26/us/politics/trudeau-trump-tariffs.html
 

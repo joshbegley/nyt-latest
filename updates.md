@@ -1,3 +1,7 @@
+**Champions League Briefing: Guardiola marked by Man City collapse, Pulisic among form players**\
+`Analysis of the key moments from the latest round of the Champions League`\
+https://nytimes.com/athletic/5950475/2024/11/26/champions-league-guardiola-marked/
+
 **Guardiola: Man City 'fragile' after letting three-goal lead slip vs Feyenoord**\
 `Manchester City manager Pep Guardiola said his side are &#8220;fragile&#8221; after letting a three-goal lead slip in Tuesday&#8217;s 3-3 Champions League draw with Feyenoord.`\
 https://nytimes.com/athletic/5950993/2024/11/26/pep-guardiola-manchester-city-feyenoord/
