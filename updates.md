@@ -1,3 +1,19 @@
+**Nuggets 'embarrassed' by Knicks at home: 'Who do we want to be as a team?'**\
+`Denver coach Michael Malone blasted his team's effort in the 145-118 loss on Monday night.`\
+https://nytimes.com/athletic/5948731/2024/11/26/nuggets-knicks-michael-malone-nikola-jokic/
+
+**Did we just watch the best day in Maui Invitational history?**\
+`Only Maui magic explains how a 2,400-seat high school gymnasium seems to always, somehow, spur spectacular basketball games.`\
+https://nytimes.com/athletic/5949083/2024/11/26/maui-invitational-history-scores-bracket-unc/
+
+**Man Utd post profit for first quarter of season despite £8.6m in 'restructuring' costs**\
+`Manchester United made a profit during the first quarter of the 2024-25 season, despite paying out £8.`\
+https://nytimes.com/athletic/5949129/2024/11/26/man-utd-finances-profit-stadium/
+
+**College football bowl projections: How chaos impacts Alabama, Oklahoma, Ole Miss**\
+`With one more week of regular-season action, 77 teams have qualified for the postseason.`\
+https://nytimes.com/athletic/5915859/2024/11/26/college-football-bowl-projections-9/
+
 **The Athletic FC: War-torn Sudan's World Cup dream; Spurs' Vicario blow; more Scots in Italy?**\
 `Today in TAFC: How Sudan's national team are succeeding even as civil war rages; Vicario breaks his ankle; why Italian clubs want Scots`\
 https://nytimes.com/athletic/5949013/2024/11/26/sudan-world-cup-vicario-tottenham-scots-in-italy/
