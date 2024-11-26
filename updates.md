@@ -1,3 +1,7 @@
+**Trial of Controversial Alzheimer’s Drug Halted After Disappointing Results**\
+`Cassava Sciences said that its drug did not significantly reduce cognitive decline in 1,900 people with mild to moderate Alzheimer’s disease.`\
+https://nytimes.com/2024/11/25/health/cassava-alzheimers-simuflam.html
+
 **Trump Plans 25% Tariff on Canada and Mexico, Potentially Crippling Trade**\
 `The president-elect said that he would impose the tariff on Day 1 and that it would stay in place until Canada and Mexico halted the flow of drugs and migrants across U.S. borders.`\
 https://nytimes.com/2024/11/25/business/economy/trump-tariffs-canada-mexico-china.html

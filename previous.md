@@ -1,3 +1,7 @@
+**Trial of Controversial Alzheimer’s Drug Halted After Disappointing Results**\
+`Cassava Sciences said that its drug did not significantly reduce cognitive decline in 1,900 people with mild to moderate Alzheimer’s disease.`\
+https://nytimes.com/2024/11/25/health/cassava-alzheimers-simuflam.html
+
 **There Is No Excuse for the Bullying of Sarah McBride**\
 `After a brutal election, Democrats need to get better at talking about trans issues.`\
 https://nytimes.com/2024/11/25/opinion/democrats-trans-issues-sarah-mcbride.html
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/5942512/2024/11/25/nfl-week-12-inactives-and-fantas
 **Ravens LB Roquan Smith inactive for 'MNF' vs. Chargers**\
 `Baltimore's leading tackler and four-time All-Pro will miss Week 12 with a hamstring injury. `\
 https://nytimes.com/athletic/5947159/2024/11/25/ravens-roquan-smith-inactive-chargers-game/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>We&#8217;re coming up on Thanksgiving weekend, when the sport usually goes into overdrive between rivalry games, Playoff prospects and (normally) coaching changes.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/5948043/2024/11/25/submit-a-question-for-stewart-mandels-college-football-mailbag-283/
 
