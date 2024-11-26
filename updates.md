@@ -1,3 +1,7 @@
+**The Pulse: The HarBowl lived up to the hype**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5948364/2024/11/26/chargers-ravens-harbaugh-the-pulse/
+
 **Arsenal's Wubben-Moy replaces Man Utd's Le Tissier in England squad**\
 `Arsenal defender Lotte Wubben-Moy has been called up to the England squad for their upcoming friendlies.`\
 https://nytimes.com/athletic/5948992/2024/11/26/england-women-squad-wubben-moy-le-tissier/
