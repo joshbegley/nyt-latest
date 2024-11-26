@@ -1,3 +1,7 @@
+**Powers Points: Philipp Kurashev out to prove himself again with next contract looming**\
+`Plus a breakdown of Connor Bedard's game so far this season and ranking the top Blackhawks prospects by play.`\
+https://nytimes.com/athletic/5947817/2024/11/26/blackhawks-kurashev-contract-nhl-bedard/
+
 **Live Updates: Israel Pummels Lebanon as Ministers Prepare to Discuss Truce With Hezbollah**\
 `Prime Minister Benjamin Netanyahu was expected to present a deal mediated by U.S. and French diplomats to end the fighting. The Israeli military kept up the pressure with heavy strikes in and around Beirut.`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/26/us/trump-news
 **Trump’s Tariff Threat Roils Global Markets**\
 `The dollar gained and investors sold off stocks after the president-elect promised to levy new restrictions on the United States’ biggest trade partners.`\
 https://nytimes.com/2024/11/26/business/dealbook/trumps-tariff-markets.html
-
-**Sign Up to Learn the 10 Best Books of 2024**\
-`On Dec. 3, we’ll announce our picks. Make sure you’re among the first to find out.`\
-https://nytimes.com/2024/11/26/books/best-books-announcement.html
 
