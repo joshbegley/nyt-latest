@@ -1,3 +1,19 @@
+**On the campaign trail and after, Trump has floated plans for hefty tariffs.**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/us/trump-news/on-the-campaign-trail-and-after-trump-has-floated-plans-for-hefty-tariffs
+
+**Blinken and U.S. Allies Struggle with Wars as Biden’s Presidency Wanes**\
+`Top diplomats from the Group of 7 nations tried to project unity on Ukraine while discussing differences over Israel and anticipating the return of Donald J. Trump.`\
+https://nytimes.com/2024/11/26/world/europe/blinken-allies-biden-presidency.html
+
+**Independent Inquiry Blames Israeli Leaders for Oct. 7 Failures**\
+`After the Israeli government delayed a formal investigation into the Hamas attacks, an alliance of survivors and victims’ families set up their own inquiry. Their scathing findings were released on Tuesday.`\
+https://nytimes.com/2024/11/26/world/middleeast/israel-oct-7-inquiry.html
+
+**The Senate Should Leave No Judgeship Unfilled**\
+`Donald Trump will try to fill every judgeship that Democrats leave open.`\
+https://nytimes.com/2024/11/26/opinion/editorials/the-senate-should-leave-no-judgeship-unfilled.html
+
 **Trump’s Tariff Plan Makes Little Sense**\
 `Why set off a tit-for-tat with our closest allies?`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/trump-tariff-mexico-canada
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/26/arts/music/tv-on-the-radio-live-shows.html
 **Fed Kept Options Open on Rate Cuts, Minutes Show**\
 `Minutes from a Nov. 6-7 meeting showed that Federal Reserve policymakers saw the labor market stabilizing and signs of economic strength.`\
 https://nytimes.com/2024/11/26/business/economy/federal-reserve-minutes.html
-
-**Canucks prospect stock watch: Who's up, who's down in the system?**\
-`Checking in on how some of Vancouver's notable prospects are tracking in the early season.`\
-https://nytimes.com/athletic/5948856/2024/11/26/canucks-prospect-stock-watch-2024/
-
-**Digging Into Kendrick Lamar’s Samples**\
-`Listen to some of the most notable sonic references on “GNX,” from SWV, Luther Vandross and Debbie Deb.`\
-https://nytimes.com/2024/11/26/arts/music/amplifier-newsletter-kendrick-lamar-samples.html
-
-**Buccaneers' Baker Mayfield suing father's company for $12 million**\
-`Under the contract terms, Mayfield can demand the full outstanding balance to be paid immediately, per the lawsuit.`\
-https://nytimes.com/athletic/5949507/2024/11/26/baker-mayfield-father-brother-lawsuit-breach-settlement/
-
-**Senators D Artem Zub placed on LTIR: Will it lead to a trade?**\
-`Zub was placed on long-term injured reserve Tuesday morning after suffering a fracture in his foot.`\
-https://nytimes.com/athletic/5949759/2024/11/26/senators-artem-zub-injury/
 
