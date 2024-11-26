@@ -1,3 +1,7 @@
+**Henry powers Ravens past Chargers 30-23 in 'Harbaugh Bowl': Takeaways**\
+`Ravens coach John Harbaugh is now 3-0 all-time versus his younger brother Jim dating back to 2011.`\
+https://nytimes.com/athletic/5947101/2024/11/25/ravens-chargers-harbaugh-score-result-takeaways-mnf/
+
 **As Emil Andrae settles in, internal competition on Flyers' blue line bound to heat up**\
 `Andrae knows the Flyers' defense prospects are going to have to prove to the organization that they should be a part of the future.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5948536/2024/11/25/orlando-pride-nwsl-championship-
 **Top Trump Aide Accused of Asking for Money to ‘Promote’ Potential Appointees**\
 `President-elect Donald J. Trump ordered the investigation by his legal team into Boris Epshteyn, a powerful figure in the transition. Mr. Epshteyn denies the allegations.`\
 https://nytimes.com/2024/11/25/us/politics/trump-boris-epshteyn-investigation.html
-
-**Israeli Strikes Threaten Lebanon’s Archaeological Treasures**\
-`The country is home to thousands of years’ worth of antiquities. Some have already been damaged or destroyed in the war, alarming the conservationists trying to protect them.`\
-https://nytimes.com/2024/11/25/world/middleeast/lebanon-antiquities-israel-strikes.html
 
