@@ -1,3 +1,7 @@
+**Submit questions for Ben Standig's Commanders mailbag**\
+`Standig is taking questions to consider for his upcoming mailbag ahead of the Thanksgiving holiday.`\
+https://nytimes.com/athletic/5948262/2024/11/25/commanders-mailbag-losing-streak/
+
 **End of Trump Cases Leaves Limits on Presidential Criminality Unclear**\
 `Donald J. Trump is set to regain office without clarity on the scope of presidential immunity and with a lingering cloud over whether outside special counsels can investigate high-level wrongdoing.`\
 https://nytimes.com/2024/11/25/us/politics/trump-cases-presidential-criminality.html
