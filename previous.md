@@ -1,3 +1,7 @@
+**Liverpool's Tsimikas set for short spell on the sidelines with ankle injury**\
+`Liverpool defender Kostas Tsimikas is set for a short spell on the sidelines due to an ankle injury.`\
+https://nytimes.com/athletic/5948964/2024/11/26/liverpool-tsimikas-ankle-injury/
+
 **How Joe Burrow elevated his game and the Bengals offense with 2 improvements**\
 `Adding muscle while rehabbing his injured wrist and "playing downhill" when facing pressure in the pocket are making a difference.`\
 https://nytimes.com/athletic/5941463/2024/11/26/joe-burrow-improvements-bengals-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940794/2024/11/26/the-basketball-100-goat-points-b
 **How can the Falcons stay on top of the NFC South? Here are 5 potential fixes**\
 `Changing the pass coverage plan on defense and incorporating more play action on offense could help fix what ails the Falcons.`\
 https://nytimes.com/athletic/5947554/2024/11/26/falcons-fixes-to-win-nfc-south/
-
-**Transgender Activists Question the Movement’s Confrontational Approach**\
-`Facing diminishing public support, some activists say all-or-nothing tactics are not working. “We have to make it OK for someone to change their minds.”`\
-https://nytimes.com/2024/11/26/us/politics/transgender-activists-rights.html
 
