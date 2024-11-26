@@ -1,3 +1,7 @@
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/5949534/2024/11/26/nhl-mailbag-trades-injuries-4-nations/
+
 **UNC, Mack Brown parting ways amid rollercoaster season**\
 `Brown’s 113 career wins, 10 bowl trips and four bowl victories are the most in UNC football history.`\
 https://nytimes.com/athletic/5946905/2024/11/26/mack-brown-retires-unc-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5948778/2024/11/26/giants-brian-daboll-joe-schoen-h
 **Devin Neal, Travis Hunter and other NFL Draft prospects who stood out Saturday**\
 `Time's running out for NFL Draft prospects to boost their stock. Who got the job done over the weekend?`\
 https://nytimes.com/athletic/5946869/2024/11/26/devin-neal-travis-hunter-other-nfl-draft-prospects-who-stood-out-saturday/
-
-**NBA Power Rankings: Giving thanks for returning vets, sharp coaches and ... Elfrid Payton?**\
-`Lakers and Timberwolves fall, and there's some shuffling among the top four.`\
-https://nytimes.com/athletic/5949042/2024/11/26/nba-power-rankings-spurs-celtics-knicks-lakers/
 
