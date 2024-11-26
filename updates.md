@@ -1,3 +1,11 @@
+**Sign Up to Learn the 10 Best Books of 2024**\
+`On Dec. 3, we’ll announce our picks. Make sure you’re among the first to find out.`\
+https://nytimes.com/2024/11/26/books/best-books-announcement.html
+
+**NFL Week 12 best and worst coaching decisions: Dave Canales, Bryce Young progress**\
+`Also, Mike Zimmer's Cowboys defense bests Kliff Kingsbury's Commanders offense and Matt LaFleur has the Packers' run game humming.`\
+https://nytimes.com/athletic/5945885/2024/11/26/nfl-week-12-worst-best-coaching-decisions-nguyen/
+
 **General Motors enters the grid: Why F1 changed its tune after rejecting Andretti**\
 `The difference between now and F1's January rejection of Andretti is that with General Motors, it has exactly what it wanted all along.`\
 https://nytimes.com/athletic/5948455/2024/11/26/general-motors-f1-formula-one-grid-expansion-andretti/
