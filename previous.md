@@ -3,7 +3,7 @@
 https://nytimes.com/2024/11/26/arts/music/amplifier-newsletter-kendrick-lamar-samples.html
 
 **Buccaneers' Baker Mayfield suing father's company for $12 million**\
-`Under the contract terms, the Mayfield can demand the full outstanding balance to be paid immediately, per the lawsuit.`\
+`Under the contract terms, Mayfield can demand the full outstanding balance to be paid immediately, per the lawsuit.`\
 https://nytimes.com/athletic/5949507/2024/11/26/baker-mayfield-father-brother-lawsuit-breach-settlement/
 
 **Senators D Artem Zub placed on LTIR: Will it lead to a trade?**\

@@ -1,3 +1,7 @@
+**Buccaneers' Baker Mayfield suing father's company for $12 million**\
+`Under the contract terms, Mayfield can demand the full outstanding balance to be paid immediately, per the lawsuit.`\
+https://nytimes.com/athletic/5949507/2024/11/26/baker-mayfield-father-brother-lawsuit-breach-settlement/
+
 **Digging Into Kendrick Lamar’s Samples**\
 `Listen to some of the most notable sonic references on “GNX,” from SWV, Luther Vandross and Debbie Deb.`\
 https://nytimes.com/2024/11/26/arts/music/amplifier-newsletter-kendrick-lamar-samples.html
