@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/andrew-cuomo-joins-netanyahus-legal-defense-team
 
 **UConn suffers first back-to-back losses in 22 months with Colorado upset**\
-`Colorado then made a concerted effort — as it did all game — to take advantage of UConn’s precarious frontcourt foul trouble.`\
+`Colorado made a concerted effort to take advantage of UConn’s precarious frontcourt foul trouble.`\
 https://nytimes.com/athletic/5951037/2024/11/26/uconn-loss-colorado-maui-invitational/
 
 **Judge denies request to block SJSU volleyball player from tournament**\
