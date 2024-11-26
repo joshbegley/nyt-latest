@@ -1,3 +1,11 @@
+**The Bounce: Why the Rockets are legitimate West contenders**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5949137/2024/11/26/rockets-alperen-sengun-nba-the-bounce/
+
+**New Weight Loss Drug From Amgen Shows Promising Early Results**\
+`The drug, which is named MariTide and delivered in a monthly injection, is years from being sold, but caused an average of up to 20 percent weight loss in a small group of patients.`\
+https://nytimes.com/2024/11/26/health/weight-loss-drug-maritide-amgen.html
+
 **Highs, lows and why Timberwolves are sitting at .500: 'We just don't play hard'**\
 `Last season's Wolves were defined by exuberance and determination. The first 16 games this season have been defined by listlessness.`\
 https://nytimes.com/athletic/5945905/2024/11/26/timberwolves-struggles/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/26/business/social-media-influencers-finance-callout
 **USMNT's McKennie out of Juventus squad for Villa trip**\
 `USMNT midfielder Weston McKennie has been left out of Juventus&#8217; squad for their Champions League tie against Aston Villa on Wednesday.`\
 https://nytimes.com/athletic/5949289/2024/11/26/weston-mckennie-injury-juventus-aston-villa/
-
-**Konsa, Kamara set to return to Villa against Juventus**\
-`Unai Emery has confirmed Ezri Konsa and Boubacar Kamara are available for Aston Villa&#8217;s Champions League tie against Juventus on Wednesday.`\
-https://nytimes.com/athletic/5949353/2024/11/26/konsa-kamara-villa-team-news/
-
-**Rookie Jared McCain, taking inspiration from Stephen Curry, is thriving for the Sixers**\
-`The rookie has been one of the bright spots in the Sixers' dark season: "It's a great feeling having this kind of an impact on the team."`\
-https://nytimes.com/athletic/5945868/2024/11/26/jared-mccain-sixers-rookie/
 
