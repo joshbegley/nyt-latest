@@ -1,3 +1,7 @@
+**How Connor Hellebuyck stole latest Jets victory over Wild: 3 takeaways**\
+`Hellebuyck made 38 of his 43 saves in the first two periods, and the Wild ran out of energy early as the Jets secured a 4-1 win.`\
+https://nytimes.com/athletic/5948291/2024/11/25/wild-jets-connor-hellebuyck-takeaways/
+
 **Rams’ Demarcus Robinson arrested on suspicion of DUI hours after loss to Eagles**\
 `Patrol officers say they initiated an enforcement stop after observing a white Dodge sedan traveling over 100 miles per hour.`\
 https://nytimes.com/athletic/5948636/2024/11/25/rams-demarcus-robinson-arrested-dui/
