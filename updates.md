@@ -1,3 +1,7 @@
+**Corrections: Nov. 26, 2024**\
+`Corrections that appeared in print on Tuesday, Nov. 26, 2024.`\
+https://nytimes.com/2024/11/25/pageoneplus/corrections-nov-26-2024.html
+
 **Trial of Controversial Alzheimer’s Drug Halted After Disappointing Results**\
 `Cassava Sciences said that its drug did not significantly reduce cognitive decline in 1,900 people with mild to moderate Alzheimer’s disease.`\
 https://nytimes.com/2024/11/25/health/cassava-alzheimers-simuflam.html

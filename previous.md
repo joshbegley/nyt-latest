@@ -1,3 +1,7 @@
+**Corrections: Nov. 26, 2024**\
+`Corrections that appeared in print on Tuesday, Nov. 26, 2024.`\
+https://nytimes.com/2024/11/25/pageoneplus/corrections-nov-26-2024.html
+
 **Trial of Controversial Alzheimer’s Drug Halted After Disappointing Results**\
 `Cassava Sciences said that its drug did not significantly reduce cognitive decline in 1,900 people with mild to moderate Alzheimer’s disease.`\
 https://nytimes.com/2024/11/25/health/cassava-alzheimers-simuflam.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/25/dining/celebrity-thanksgiving-2024.ht
 **NFL Week 12 inactives and fantasy tips: Ladd McConkey active for Monday Night Football**\
 `Check out who's in and who's out for Monday Night Football. Plus Week 12 recaps and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/5942512/2024/11/25/nfl-week-12-inactives-and-fantasy-tips/
-
-**Ravens LB Roquan Smith inactive for 'MNF' vs. Chargers**\
-`Baltimore's leading tackler and four-time All-Pro will miss Week 12 with a hamstring injury. `\
-https://nytimes.com/athletic/5947159/2024/11/25/ravens-roquan-smith-inactive-chargers-game/
 
