@@ -1,3 +1,7 @@
+**Miami names Mascherano as new head coach**\
+`Former Barcelona, Liverpool and Argentina midfielder Javier Mascherano has been named by Inter Miami as its new head coach.`\
+https://nytimes.com/athletic/5948934/2024/11/26/inter-miami-javier-mascherano-confirmed/
+
 **NFL best bets Week 13: 'Give me all the food and all the points'**\
 `Austin Mock's model likes three plays so far for Week 13, including a Thanksgiving Day game and Eagles-Ravens. `\
 https://nytimes.com/athletic/5949895/2024/11/26/nfl-best-bets-week-13-bears-lions-eagles-ravens/
