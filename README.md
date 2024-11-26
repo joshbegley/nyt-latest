@@ -1,6 +1,6 @@
 **Here are the latest developments.**\
 `Under the deal, both sides will first observe a 60-day truce, during which Israel will withdraw from Lebanon and Hezbollah will move its fighters north.`\
-https://nytimes.com/2024/11/26/world/middleeast/israel-hezbollah-lebanon-cease-fire.html
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/israel-hezbollah-lebanon-cease-fire
 
 **The Migrant Caravans Trump Derides Rarely Make It Close to the U.S.**\
 `Migrants often gather in groups in southern Mexico as a means of protection from criminal groups. But they almost never make it anywhere near the U.S.-Mexico border.`\
