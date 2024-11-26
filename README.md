@@ -1,3 +1,11 @@
+**North Carolina’s Democratic Governor Vetoes a G.O.P. Power Grab**\
+`Republicans have a supermajority in the state’s legislature and may move to override Gov. Roy Cooper’s veto, which would set off a new fight over state power and hurricane aid.`\
+https://nytimes.com/2024/11/26/us/politics/roy-cooper-north-carolina-republicans.html
+
+**Breyten Breytenbach, Dissident South African-Born Writer, Dies at 85**\
+`He wrote poetry in Afrikaans and prose in English in his fight against apartheid, an effort that landed him in jail for seven years and in Paris as an expatriate.`\
+https://nytimes.com/2024/11/26/world/africa/breyten-breytenbach-dead.html
+
 **Brady Tkachuk steps up after facing criticism as Senators captain**\
 `The 25-year-old's leadership came under fire during the Sens' five-game losing streak which ended Monday with a 4-3 win over Calgary.`\
 https://nytimes.com/athletic/5948558/2024/11/26/ottawa-senators-brady-tkachuk-leadership/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5949137/2024/11/26/rockets-alperen-sengun-nba-the-b
 **New Weight Loss Drug From Amgen Shows Promising Early Results**\
 `The drug, which is named MariTide and delivered in a monthly injection, is years from being sold, but caused an average of up to 20 percent weight loss in a small group of patients.`\
 https://nytimes.com/2024/11/26/health/weight-loss-drug-maritide-amgen.html
-
-**Highs, lows and why Timberwolves are sitting at .500: 'We just don't play hard'**\
-`Last season's Wolves were defined by exuberance and determination. The first 16 games this season have been defined by listlessness.`\
-https://nytimes.com/athletic/5945905/2024/11/26/timberwolves-struggles/
-
-**Penguins Today: Could a David Jiříček trade be coming?**\
-`Kyle Dubas was in Cleveland to watch Jiříček on Sunday.`\
-https://nytimes.com/athletic/5949377/2024/11/26/penguins-today-david-jiricek-trade-rumors/
 
