@@ -1,6 +1,14 @@
+**How Joe Burrow elevated his game and the Bengals offense with 2 improvements**\
+`Adding muscle while rehabbing his injured wrist and "playing downhill" when facing pressure in the pocket are making a difference.`\
+https://nytimes.com/athletic/5941463/2024/11/26/joe-burrow-improvements-bengals-offense/
+
 **After Trump’s Tariff Threat, Is a China Currency War Next?**\
 `While China could offset American tariffs by letting its currency fall, that might endanger Beijing’s recent efforts to stabilize the economy.`\
 https://nytimes.com/2024/11/26/business/trump-tariffs-us-china-currency.html
+
+**When brain cancer struck a baseball family, a 'wonderful' village sheltered them**\
+`After a Phillies family's devastating diagnosis, so many — in and out of baseball — rallied to their side. It helped them carry on. `\
+https://nytimes.com/athletic/5947027/2024/11/26/ned-rice-phillies-family-brain-cancer/
 
 **How much has Michigan's defense changed under Wink Martindale — and what's next?**\
 `ANN ARBOR, Mich.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5947554/2024/11/26/falcons-fixes-to-win-nfc-south/
 **Transgender Activists Question the Movement’s Confrontational Approach**\
 `Facing diminishing public support, some activists say all-or-nothing tactics are not working. “We have to make it OK for someone to change their minds.”`\
 https://nytimes.com/2024/11/26/us/politics/transgender-activists-rights.html
-
-**Transforming the Landscape to Help Fight Climate Change**\
-`Martha Schwartz Partners works around the globe to take on pollution and warming of the planet.`\
-https://nytimes.com/2024/11/26/climate/women-landscape-architecture-climate-change.html
-
-**Biden Cuts Intel’s Chip Award by More Than $600 Million**\
-`The Silicon Valley company will receive less money from the CHIPS Act after winning a $3 billion military contract and changing some of its investment commitments.`\
-https://nytimes.com/2024/11/26/business/economy/intel-chips-award-biden.html
 
