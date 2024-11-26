@@ -1,3 +1,7 @@
+**Biden Administration to Lend $6 Billion for Rivian E.V. Factory**\
+`The financing for a factory in Georgia is part of a last-minute effort to establish climate policies before President-elect Donald J. Trump takes office.`\
+https://nytimes.com/2024/11/25/business/biden-loans-ev-auto-industry.html
+
 **Paul Bissonnette assaulted by group at Scottsdale restaurant**\
 `Bissonnette said he fought with 7 different people in total. Six of those men were accussed of assault and disorderly conduct.`\
 https://nytimes.com/athletic/5948580/2024/11/25/paul-bissonnette-nhl-assault-group/

@@ -1,3 +1,7 @@
+**Biden Administration to Lend $6 Billion for Rivian E.V. Factory**\
+`The financing for a factory in Georgia is part of a last-minute effort to establish climate policies before President-elect Donald J. Trump takes office.`\
+https://nytimes.com/2024/11/25/business/biden-loans-ev-auto-industry.html
+
 **Paul Bissonnette assaulted by group at Scottsdale restaurant**\
 `Bissonnette said he fought with 7 different people in total. Six of those men were accussed of assault and disorderly conduct.`\
 https://nytimes.com/athletic/5948580/2024/11/25/paul-bissonnette-nhl-assault-group/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/25/health/cassava-alzheimers-simuflam.html
 **There Is No Excuse for the Bullying of Sarah McBride**\
 `After a brutal election, Democrats need to get better at talking about trans issues.`\
 https://nytimes.com/2024/11/25/opinion/democrats-trans-issues-sarah-mcbride.html
-
-**At the Brooklyn Academy, Musical Journeys Through Minefields**\
-`The Silkroad Ensemble’s “American Railroad” and Alarm Will Sound’s “Sun Dogs” used music and images to engage with difficult topics.`\
-https://nytimes.com/2024/11/25/arts/music/at-the-brooklyn-academy-musical-journeys-through-minefields.html
 
