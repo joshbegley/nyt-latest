@@ -1,3 +1,7 @@
+**A Vulnerable Trudeau Hopes to Muster Unity Against Trump Tariff Plans**\
+`Many of the prime minister’s political opponents were as critical of him as about the president-elect’s plan, which would adversely affect Canada’s economy.`\
+https://nytimes.com/2024/11/26/us/politics/trudeau-trump-tariffs.html
+
 **Israel Approved Terms for a Cease-Fire With Hezbollah**\
 `Also, Mexico responded to Trump’s tariff threat. Here's the latest at the end of Tuesday.`\
 https://nytimes.com/2024/11/26/briefing/israel-lebanon-cease-fire-trump-tariff-threat.html
@@ -11,11 +15,11 @@ https://nytimes.com/athletic/5908438/2024/11/26/robert-lewandowski-100-champions
 https://nytimes.com/2024/11/26/us/fbi-most-wanted-extremist-caught-wales.html
 
 **Israel Approves Cease-Fire With Hezbollah to Halt War in Lebanon**\
-`President Biden said the 60-day truce, which the United States helped broker, would take effect early Wednesday and was intended to become permanent, ending Lebanon’s deadliest war in decades.`\
+`President Biden said the 60-day truce, which the United States helped broker, would take effect early Wednesday, and was intended to become permanent, ending Lebanon’s deadliest war in decades.`\
 https://nytimes.com/2024/11/26/world/middleeast/cease-fire-israel-hezbollah-lebanon.html
 
 **What the Cease-Fire Between Israel and Lebanon Means for Gaza**\
-`Will this cease-fire lead to peace?`\
+`Can a truce lead to an enduring peace?`\
 https://nytimes.com/2024/11/26/opinion/israel-lebanon-ceasefire-gaza.html
 
 **Runners Use Secret Ingredient to Win N.C.A.A. Race: Olive Oil**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949412/2024/11/26/bayern-munich-psg-champions-leag
 **Why Is Trump Identifying the U.S.-Canada Border as a Problem?**\
 `Arrests for illegal crossings from Canada spiked in the last fiscal year, but remain a fraction of the number of those from Mexico.`\
 https://nytimes.com/2024/11/26/us/trump-canada-border-migrants.html
-
-**NWSL title match was most-watched game in league history**\
-`The record viewership can be traced to the NWSL's historic million media rights deal, which brought more games to more networks than ever.`\
-https://nytimes.com/athletic/5948431/2024/11/26/nwsl-most-watched-championship-media/
 

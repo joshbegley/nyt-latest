@@ -1,3 +1,15 @@
+**A Vulnerable Trudeau Hopes to Muster Unity Against Trump Tariff Plans**\
+`Many of the prime minister’s political opponents were as critical of him as about the president-elect’s plan, which would adversely affect Canada’s economy.`\
+https://nytimes.com/2024/11/26/us/politics/trudeau-trump-tariffs.html
+
+**Israel Approves Cease-Fire With Hezbollah to Halt War in Lebanon**\
+`President Biden said the 60-day truce, which the United States helped broker, would take effect early Wednesday, and was intended to become permanent, ending Lebanon’s deadliest war in decades.`\
+https://nytimes.com/2024/11/26/world/middleeast/cease-fire-israel-hezbollah-lebanon.html
+
+**What the Cease-Fire Between Israel and Lebanon Means for Gaza**\
+`Can a truce lead to an enduring peace?`\
+https://nytimes.com/2024/11/26/opinion/israel-lebanon-ceasefire-gaza.html
+
 **What the Cease-Fire Between Israel and Lebanon Means for Gaza**\
 `Will this cease-fire lead to peace?`\
 https://nytimes.com/2024/11/26/opinion/israel-lebanon-ceasefire-gaza.html
