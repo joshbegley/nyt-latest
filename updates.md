@@ -1,3 +1,15 @@
+**U.S. markets have a muted reaction, with some exceptions, to Trump’s tariff pledge.**\
+`By Danielle Kaye`\
+https://nytimes.com/live/2024/us/trump-news/us-markets-have-a-muted-reaction-with-some-exceptions-to-trumps-tariff-pledge
+
+**How to watch North Carolina vs. Auburn: Top-15 teams clash in Maui Invitational semifinal**\
+`Both Auburn and UNC pulled wild comebacks in the opening round. They face off in a Maui Invitational semifinal Tuesday night.`\
+https://nytimes.com/athletic/5949699/2024/11/26/auburn-unc-how-to-watch-odds-preview/
+
+**Yes, It ‘Looks Like a Duck,’ but Carriers Like the New Mail Truck**\
+`The electric trucks have a side cargo door, more space and, critically, air conditioning, promising some long-overdue relief for carriers, who haven’t had an upgrade since the 1980s.`\
+https://nytimes.com/2024/11/26/us/usps-new-mail-trucks.html
+
 **Heat Today: How Kevin Love is finding ways to make an impact in limited minutes**\
 `The former All-Star is mostly a floor-spacing role player, but he's given Miami a big lift. "They just love playing with him." `\
 https://nytimes.com/athletic/5949486/2024/11/26/kevin-love-heat-today/
