@@ -1,3 +1,15 @@
+**Arsenal's Wubben-Moy replaces Man Utd's Le Tissier in England squad**\
+`Arsenal defender Lotte Wubben-Moy has been called up to the England squad for their upcoming friendlies.`\
+https://nytimes.com/athletic/5948992/2024/11/26/england-women-squad-wubben-moy-le-tissier/
+
+**Barack Obama’s Big Lesson**\
+`We cover an analysis of the 2024 election.`\
+https://nytimes.com/2024/11/26/briefing/election-2024-barack-obama.html
+
+**'I don’t feel as though I’m welcomed at Liverpool - it bloody hurts'**\
+`Owen's pain at being marginalised by his boyhood club is still raw`\
+https://nytimes.com/athletic/5934690/2024/11/26/michael-owen-liverpool-real-madrid-manchester-united/
+
 **Russia Launches Record Number of Drones in Overnight Attack, Ukraine Says**\
 `The assault, which the Ukrainian Air Force said involved 188 drones, came as both sides intensify air bombardments.`\
 https://nytimes.com/2024/11/26/world/europe/ukraine-russia-drone-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5947451/2024/11/26/maple-leafs-william-alex-nylande
 **NFL QB stock report, Week 13: Can Daniel Jones become next Baker Mayfield or Sam Darnold?**\
 `Jones would do well to consider his next team's entire situation rather than the path of least resistance to playing time.`\
 https://nytimes.com/athletic/5947236/2024/11/26/nfl-qb-stock-report-rankings-daniel-jones-baker-mayfield/
-
-**Zaire Franklin squashes issues with Pat McAfee as Colts focus on bigger problems**\
-`How can Indianapolis fix the offensive line problems that derailed the team in its Week 12 loss?`\
-https://nytimes.com/athletic/5948089/2024/11/26/zaire-franklin-pat-mcafee-colts-playoffs/
-
-**Yohe: Sidney Crosby, Evgeni Malkin, Kris Letang and the great unknown**\
-`The Big Three, who are the foundation of the greatest generation of Penguins hockey, are facing an epic uphill climb.`\
-https://nytimes.com/athletic/5947970/2024/11/26/penguins-sidney-crosby-evgeni-malkin-kris-letang/
-
-**Is Ohio State's Emeka Egbuka the most complete receiver in the 2025 NFL Draft class?**\
-`Egbuka doesn't have the flash of some Ohio State teammates, past and present, but he might be the most consistent WR in program history.`\
-https://nytimes.com/athletic/5946543/2024/11/26/emeka-egbuka-nfl-draft-2025-scouting-report/
 
