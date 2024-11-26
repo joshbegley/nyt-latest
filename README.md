@@ -1,3 +1,7 @@
+**Judge denies request to block SJSU volleyball player from tournament**\
+`The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
+https://nytimes.com/athletic/5947424/2024/11/26/san-jose-state-volleyball-lawsuit-transgender/
+
 **Champions League Briefing: Guardiola marked by Man City collapse, Pulisic among form players**\
 `Analysis of the key moments from the latest round of the Champions League`\
 https://nytimes.com/athletic/5950475/2024/11/26/champions-league-guardiola-marked/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5950590/2024/11/26/49ers-mailbag-josh-dobbs-offseas
 **Jack Smith Closes Up Shop, Defeated More by Voters Than by Jurors**\
 `The special counsel will leave behind a complex legacy, having amassed considerable evidence against Donald J. Trump but having lost key legal battles that could constrain future investigators.`\
 https://nytimes.com/2024/11/26/us/politics/jack-smith-trump-cases.html
-
-**Biden Announces Cease-Fire Deal Between Israel and Lebanon**\
-`The fighting has displaced over a million Lebanese and tens of thousands of Israelis, killed more than 3,000 Lebanese and 100 Israelis.`\
-https://nytimes.com/video/world/middleeast/100000009847608/israel-lebanon-ceasefire.html
 
