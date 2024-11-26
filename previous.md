@@ -1,3 +1,7 @@
+**Trump Threatens 25% Tariff on Canada and Mexico, Potentially Crippling Trade**\
+`The president-elect said that he would impose the tariff on Day 1 and that it would stay in place until Canada and Mexico halted the flow of drugs and migrants across U.S. borders.`\
+https://nytimes.com/2024/11/25/business/economy/trump-tariffs-canada-mexico-china.html
+
 **Submit questions for Ben Standig's Commanders mailbag**\
 `Standig is taking questions to consider for his upcoming mailbag ahead of the Thanksgiving holiday.`\
 https://nytimes.com/athletic/5948262/2024/11/25/commanders-mailbag-losing-streak/
@@ -18,7 +22,7 @@ https://nytimes.com/interactive/2024/11/25/dining/celebrity-thanksgiving-2024.ht
 `Check out who's in and who's out for Monday Night Football. Plus Week 12 recaps and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/5942512/2024/11/25/nfl-week-12-inactives-and-fantasy-tips/
 
-**Ravens LB Roquan Smith inactive for 'MNF' game vs. Chargers**\
+**Ravens LB Roquan Smith inactive for 'MNF' vs. Chargers**\
 `Baltimore's leading tackler and four-time All-Pro will miss Week 12 with hamstring injury. `\
 https://nytimes.com/athletic/5947159/2024/11/25/ravens-roquan-smith-inactive-chargers-game/
 
@@ -35,8 +39,4 @@ https://nytimes.com/paidpost/capital-one/elevate-your-roman-adventure-with-capit
 **Kohl’s Picks C.E.O. of Michaels to Help It Turn Around**\
 `Ashley Buchanan will be the third chief executive of the department store chain since 2018.`\
 https://nytimes.com/2024/11/25/business/kohls-ashley-buchanan.html
-
-**Biden White House Holds Up U.S. Contribution to Anti-Doping Agency**\
-`The administration is pressing the World Anti-Doping Agency to allow an outside audit after it failed to suspend Chinese swimmers for positive tests.`\
-https://nytimes.com/2024/11/25/us/politics/white-house-contribution-anti-doping-agency.html
 
