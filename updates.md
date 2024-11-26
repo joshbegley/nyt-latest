@@ -1,3 +1,7 @@
+**Late Night Makes Its Last Jokes About Biden Pardoning Turkeys**\
+`Although Thanksgiving was still three days away, “the turkeys looked at Biden and said, ‘We better get this done,’” Jimmy Fallon said.`\
+https://nytimes.com/2024/11/26/arts/television/late-night-biden-turkey-pardon.html
+
 **The Celtics could win without Kristaps Porziņģis, but they're far more powerful with him**\
 `After missing the first 17 games of the regular season while recovering from offseason ankle surgery, Porziņģis is back.`\
 https://nytimes.com/athletic/5948719/2024/11/26/celtics-clippers-kristaps-porzingis-back-from-injury/

@@ -26,8 +26,8 @@ https://nytimes.com/athletic/5937526/2024/11/26/spurs-postecoglou-form-vicario-i
 `The Blues took a season-high 43 shots, Zack Bolduc had a breakout game, and the team played with togetherness.`\
 https://nytimes.com/athletic/5948307/2024/11/26/blues-jim-montgomery-rangers-takeaways/
 
-**Small Plane Crash Kills 5 in Costa Rica**\
-`The Red Cross said emergency crews had found the sole survivor and were trying to rescue her.`\
+**Emergency Crews Race to Save Sole Survivor of Costa Rica Plane Crash**\
+`Rescue workers were traversing a remote mountain forest overnight with a woman who survived a crash that killed five of the six people aboard.`\
 https://nytimes.com/2024/11/26/world/americas/plane-crash-costa-rica.html
 
 **How Viktor Gyokeres became Europe's hottest striker**\

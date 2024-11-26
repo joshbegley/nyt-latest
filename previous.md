@@ -1,3 +1,7 @@
+**Late Night Makes Its Last Jokes About Biden Pardoning Turkeys**\
+`Although Thanksgiving was still three days away, “the turkeys looked at Biden and said, ‘We better get this done,’” Jimmy Fallon said.`\
+https://nytimes.com/2024/11/26/arts/television/late-night-biden-turkey-pardon.html
+
 **The Celtics could win without Kristaps Porziņģis, but they're far more powerful with him**\
 `After missing the first 17 games of the regular season while recovering from offseason ankle surgery, Porziņģis is back.`\
 https://nytimes.com/athletic/5948719/2024/11/26/celtics-clippers-kristaps-porzingis-back-from-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940133/2024/11/26/viktor-gyokeres-sporting-lisbon-
 **Eight graphs which show why Salah deserves a new Liverpool contract**\
 `FSG is all about the numbers when it comes to their business decisions - and these ones are hard to ignore`\
 https://nytimes.com/athletic/5946821/2024/11/26/mohamed-salah-contract-liverpool-graphs/
-
-**Auburn claws back for dramatic Maui Invitational win over Iowa State**\
-`Auburn trailed by as many as 18 points in the first half before rattling off a 20-4 run out of intermission.`\
-https://nytimes.com/athletic/5948710/2024/11/26/auburn-iowa-state-johni-broome-maui-invitational/
 
