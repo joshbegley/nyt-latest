@@ -1,3 +1,7 @@
+**Explained: Baller League - the influencer-backed 'new era for football'**\
+`What is the new concept and is it really the revolution organisers are suggesting?`\
+https://nytimes.com/athletic/5949002/2024/11/26/baller-league-explained-ksi-ishowspeed/
+
 **'I cannot be the same every time': How tennis players and tennis coaches choose each other**\
 `The relationship between player and coach can be transformative or combustible, sometimes both. So how do they start?`\
 https://nytimes.com/athletic/5947172/2024/11/26/tennis-players-coaches-relationship-how-choose/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/world/europe/ukraine-russia-drone-attack.html
 **Very different stories are unfolding for the Bears on defense and offense**\
 `The Bears offense is starting to click thanks to the Thomas Brown-Caleb Williams partnership, but Matt Eberflus' defense has regressed.`\
 https://nytimes.com/athletic/5947520/2024/11/26/bears-defense-offense-different-directions/
-
-**Inside the growth of Noah Gray, the Chiefs’ best offensive role player**\
-`Gray has already produced a career-high 315 yards and four touchdowns this season, his fourth in the NFL.`\
-https://nytimes.com/athletic/5947949/2024/11/26/chiefs-noah-gray-growth-patrick-mahomes/
 
