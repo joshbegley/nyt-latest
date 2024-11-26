@@ -1,3 +1,7 @@
+**Mexico’s President Raises Prospect of Retaliatory Tariffs on U.S. Goods**\
+`President Claudia Sheinbaum responded to President-elect Trump’s threat to impose high tariffs, saying such a move would inflict damage on both countries.`\
+https://nytimes.com/2024/11/26/us/mexico-tariffs-us-trump.html
+
 **The Bounce: Why the Rockets are legitimate West contenders**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5949137/2024/11/26/rockets-alperen-sengun-nba-the-bounce/

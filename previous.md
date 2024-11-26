@@ -1,3 +1,7 @@
+**Mexico’s President Raises Prospect of Retaliatory Tariffs on U.S. Goods**\
+`President Claudia Sheinbaum responded to President-elect Trump’s threat to impose high tariffs, saying such a move would inflict damage on both countries.`\
+https://nytimes.com/2024/11/26/us/mexico-tariffs-us-trump.html
+
 **The Bounce: Why the Rockets are legitimate West contenders**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5949137/2024/11/26/rockets-alperen-sengun-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949291/2024/11/26/fantasy-football-week-13-drops-q
 **Has Social Media Advice Affected Your Finances? We Want to Hear From You.**\
 `If you have come across misleading personal finance advice online, tell us. We may include your experiences in an article.`\
 https://nytimes.com/2024/11/26/business/social-media-influencers-finance-callout.html
-
-**USMNT's McKennie out of Juventus squad for Villa trip**\
-`USMNT midfielder Weston McKennie has been left out of Juventus&#8217; squad for their Champions League tie against Aston Villa on Wednesday.`\
-https://nytimes.com/athletic/5949289/2024/11/26/weston-mckennie-injury-juventus-aston-villa/
 
