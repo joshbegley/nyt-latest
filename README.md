@@ -1,6 +1,10 @@
 **Israeli Ministers Plan to Vote on Truce With Hezbollah**\
 `Prime Minister Benjamin Netanyahu was expected to present a deal mediated by U.S. and French diplomats to end fighting that has killed thousands, mostly in Lebanon, and displaced many more.`\
-https://nytimes.com/2024/11/26/world/middleeast/israeli-ministers-plan-to-vote-on-truce-with-hezbollah.html
+https://nytimes.com/2024/11/26/world/middleeast/israel-hezbollah-ceasefire-lebanon.html
+
+**How Justin Jefferson played a huge role beyond the box score in Vikings' win over Bears**\
+`Jefferson is a superstar who sees the bigger picture. His selflessness resulted in huge games Sunday from Jordan Addison and T.J. Hockenson.`\
+https://nytimes.com/athletic/5947779/2024/11/26/justin-jefferson-vikings-bears-unselfish/
 
 **Last summer, William and Alex Nylander hatched a plan — to help the Maple Leafs together**\
 `The brothers' summer dream and long-shot idea to help the Maple Leafs win together is now a reality.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/podcasts/the-daily/pete-hegseth.html
 **Trump’s Dramatic Tariff Plan, and a Cease-Fire Takes Shape in Lebanon**\
 `Plus, Matt Gaetz’s new gig.`\
 https://nytimes.com/2024/11/26/podcasts/trumps-tariff-plan-ceasefire.html
-
-**The Connections Companion No. 535**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Nov. 27, 2024.`\
-https://nytimes.com/2024/11/26/crosswords/connections-companion-535.html
 
