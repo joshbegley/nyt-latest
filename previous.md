@@ -1,3 +1,8 @@
+**As Emil Andrae settles in, internal competition on Flyers' blue line bound to heat up**\
+`Andrae knows the Flyers' defense prospects are going to have to prove to the organization that they should be a part of the future.
+`\
+https://nytimes.com/athletic/5948074/2024/11/25/flyers-emil-andrae-golden-knights/
+
 **Rams’ Demarcus Robinson arrested on suspicion of DUI hours after loss to Eagles**\
 `Patrol officers say they initiated an enforcement stop after observing a white Dodge sedan traveling over 100 miles per hour.`\
 https://nytimes.com/athletic/5948636/2024/11/25/rams-demarcus-robinson-arrested-dui/
@@ -33,8 +38,4 @@ https://nytimes.com/2024/11/25/us/politics/trump-boris-epshteyn-investigation.ht
 **Israeli Strikes Threaten Lebanon’s Archaeological Treasures**\
 `The country is home to thousands of years’ worth of antiquities. Some have already been damaged or destroyed in the war, alarming the conservationists trying to protect them.`\
 https://nytimes.com/2024/11/25/world/middleeast/lebanon-antiquities-israel-strikes.html
-
-**Significant Stretches**\
-`Killian Olson makes his Crossword debut.`\
-https://nytimes.com/2024/11/25/crosswords/daily-puzzle-2024-11-26.html
 

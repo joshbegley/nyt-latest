@@ -1,3 +1,8 @@
+**As Emil Andrae settles in, internal competition on Flyers' blue line bound to heat up**\
+`Andrae knows the Flyers' defense prospects are going to have to prove to the organization that they should be a part of the future.
+`\
+https://nytimes.com/athletic/5948074/2024/11/25/flyers-emil-andrae-golden-knights/
+
 **How Connor Hellebuyck stole latest Jets victory over Wild: 3 takeaways**\
 `Hellebuyck made 38 of his 43 saves in the first two periods, and the Wild ran out of energy early as the Jets secured a 4-1 win.`\
 https://nytimes.com/athletic/5948291/2024/11/25/wild-jets-connor-hellebuyck-takeaways/
