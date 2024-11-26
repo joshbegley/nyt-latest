@@ -1,3 +1,19 @@
+**Eight graphs which show why Salah deserves a new Liverpool contract**\
+`FSG is all about the numbers when it comes to their business decisions - and these ones are hard to ignore`\
+https://nytimes.com/athletic/5946821/2024/11/26/mohamed-salah-contract-liverpool-graphs/
+
+**Auburn claws back for dramatic Maui Invitational win over Iowa State**\
+`Auburn trailed by as many as 18 points in the first half before rattling off a 20-4 run out of intermission.`\
+https://nytimes.com/athletic/5948710/2024/11/26/auburn-iowa-state-johni-broome-maui-invitational/
+
+**Bayern Munich vs PSG: Four years after meeting in the Champions League final, how have they changed?**\
+`As the two European giants meet again, we assess the profile, tactics and progress of each side`\
+https://nytimes.com/athletic/5946229/2024/11/26/bayern-munich-vs-psg-four-years-after-meeting-in-the-champions-league-final-whats-changed/
+
+**'I felt ashamed' - How a dream summer transfer became one footballer's nightmare**\
+`Muhammadu Faal was announced as a Crawley player on July 22 but he never received a final contract. Then it all turned sour`\
+https://nytimes.com/athletic/5935036/2024/11/26/muhammadu-faal-crawley-transfer-nightmare/
+
 **The Scots thriving in Italy: 'Everyone was surprised I actually had good technique'**\
 `For more than 30 years, there were no Scots playing in Serie A but that has changed dramatically`\
 https://nytimes.com/athletic/5902911/2024/11/26/scottish-players-italy-serie-a/
