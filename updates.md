@@ -1,3 +1,11 @@
+**North Carolina’s Democratic Governor Vetoes a G.O.P. Power Grab**\
+`Republicans have a supermajority in the state’s legislature and may move to override Gov. Roy Cooper’s veto, which would set off a new fight over state power and hurricane aid.`\
+https://nytimes.com/2024/11/26/us/politics/roy-cooper-north-carolina-republicans.html
+
+**Breyten Breytenbach, Dissident South African-Born Writer, Dies at 85**\
+`He wrote poetry in Afrikaans and prose in English in his fight against apartheid, an effort that landed him in jail for seven years and in Paris as an expatriate.`\
+https://nytimes.com/2024/11/26/world/africa/breyten-breytenbach-dead.html
+
 **Brady Tkachuk steps up after facing criticism as Senators captain**\
 `The 25-year-old's leadership came under fire during the Sens' five-game losing streak which ended Monday with a 4-3 win over Calgary.`\
 https://nytimes.com/athletic/5948558/2024/11/26/ottawa-senators-brady-tkachuk-leadership/

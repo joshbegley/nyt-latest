@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/26/us/mexico-tariffs-us-trump.html
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5949137/2024/11/26/rockets-alperen-sengun-nba-the-bounce/
 
-**New Weight Loss Drug From Amgen Shows Promising Early Results**\
-`The drug, which is named MariTide and delivered in a monthly injection, is years from being sold, but caused an average of up to 20 percent weight loss in a small group of patients.`\
+**New Drug Causes 20 Percent Weigh Loss in Early Amgen Results**\
+`The drug, which is named MariTide and delivered in a monthly injection, is some time from being sold.`\
 https://nytimes.com/2024/11/26/health/weight-loss-drug-maritide-amgen.html
 
