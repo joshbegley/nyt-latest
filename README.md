@@ -1,3 +1,19 @@
+**Colman Domingo Makes Sense of ‘The Madness’**\
+`The Netflix thriller uses a murder mystery to explore the dangers of misinformation and conspiracy theories. “It’s this flood of not knowing what to believe,” the actor says.`\
+https://nytimes.com/2024/11/26/arts/television/the-madness-colman-domingo.html
+
+**Drake Accuses Universal and Spotify of Boosting a Kendrick Lamar Song**\
+`The Canadian rapper filed legal papers on Monday claiming that the record company and streaming service promoted “Not Like Us” ahead of Drake’s tracks.`\
+https://nytimes.com/2024/11/26/arts/music/drake-lawsuit-kendrick-lamar-not-like-us.html
+
+**One Housing Project Got Built. Another Didn’t. Why?**\
+`There’s a solution to New York City’s housing shortage: Build more homes. But that can get complicated. Mihir Zaveri, a New York Times reporter covering housing in the New York City region, explains why one project got built and another did not.`\
+https://nytimes.com/video/nyregion/100000009823249/one-housing-project-got-built-another-didnt-why.html
+
+**Lloyd: Assessing 8 incredible stats that define the Cavs' remarkable 17-1 start**\
+`Cleveland has outscored opponents by 223 points, already surpassing last season’s total of198. The franchise wins mark is within reach.`\
+https://nytimes.com/athletic/5948791/2024/11/26/cleveland-cavaliers-8-incredible-stats/
+
 **North Carolina’s Democratic Governor Vetoes a G.O.P. Power Grab**\
 `Republicans have a supermajority in the state’s legislature and may move to override Gov. Roy Cooper’s veto, which would set off a new fight over state power and hurricane aid.`\
 https://nytimes.com/2024/11/26/us/politics/roy-cooper-north-carolina-republicans.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5949534/2024/11/26/nhl-mailbag-trades-injuries-4-na
 **Mack Brown out at UNC; Tulane's Sumrall will get good look**\
 `Brown’s 113 career wins, 10 bowl trips and four bowl victories are the most in UNC football history.`\
 https://nytimes.com/athletic/5946905/2024/11/26/mack-brown-retires-unc-football/
-
-**The Rebellious Beauty of Nollywood’s Screen Sirens**\
-`The distinctive makeup of early-aughts Nigerian movies is coming back — and so is the daring attitude of the women who wore it.`\
-https://nytimes.com/2024/11/26/t-magazine/nollywood-beauty-makeup.html
-
-**Mexico’s President Raises Prospect of Retaliatory Tariffs on U.S. Goods**\
-`President Claudia Sheinbaum responded to President-elect Trump’s threat to impose high tariffs, saying such a move would inflict damage on both countries.`\
-https://nytimes.com/2024/11/26/us/mexico-tariffs-us-trump.html
-
-**The Bounce: Why the Rockets are legitimate West contenders**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5949137/2024/11/26/rockets-alperen-sengun-nba-the-bounce/
-
-**New Drug Causes 20 Percent Weigh Loss in Early Amgen Results**\
-`The drug, which is named MariTide and delivered in a monthly injection, is some time from being sold.`\
-https://nytimes.com/2024/11/26/health/weight-loss-drug-maritide-amgen.html
 
