@@ -1,3 +1,7 @@
+**Fugitive on List of F.B.I.’s Most-Wanted Terrorists Is Captured in U.K.**\
+`The suspect, an animal-rights activist, was sought in connection to the bombings of two San Francisco-area businesses in 2003.`\
+https://nytimes.com/2024/11/26/us/fbi-most-wanted-extremist-caught-wales.html
+
 **Israel Approves Cease-Fire With Hezbollah to Halt War in Lebanon**\
 `President Biden said the 60-day truce, which the United States helped broker, would take effect early Wednesday and was intended to become permanent, ending Lebanon’s deadliest war in decades.`\
 https://nytimes.com/2024/11/26/world/middleeast/cease-fire-israel-hezbollah-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946414/2024/11/26/manchester-city-3-feyenoord-3-co
 **He Helped ‘Break’ the Bank of England. Now He May Run the U.S. Treasury.**\
 `Scott Bessent’s former colleagues and rivals see the prospective Treasury secretary as a thoughtful choice with a broad understanding of financial markets.`\
 https://nytimes.com/2024/11/26/business/scott-bessent-wall-street-treasury.html
-
-**Judge Approves Settlement That Changes Rules for Real Estate Agents**\
-`Following a lawsuit, the National Association of Realtors was ordered to rewrite its rules governing agents’ commissions and pay $418 million in damages.`\
-https://nytimes.com/2024/11/26/realestate/nar-settlement-approval-commissions.html
 

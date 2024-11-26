@@ -1,3 +1,7 @@
+**Israel Approves Cease-Fire With Hezbollah to Halt War in Lebanon**\
+`President Biden said the 60-day truce, which the United States helped broker, would take effect early Wednesday and was intended to become permanent, ending Lebanon’s deadliest war in decades.`\
+https://nytimes.com/2024/11/26/world/middleeast/cease-fire-israel-hezbollah-lebanon.html
+
 **What the Ceasefire Between Israel and Lebanon Means for Gaza**\
 `Will this cease-fire lead to peace?`\
 https://nytimes.com/2024/11/26/opinion/israel-lebanon-ceasefire-gaza.html

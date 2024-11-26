@@ -1,3 +1,7 @@
+**Israel Approves Cease-Fire With Hezbollah to Halt War in Lebanon**\
+`President Biden said the 60-day truce, which the United States helped broker, would take effect early Wednesday and was intended to become permanent, ending Lebanon’s deadliest war in decades.`\
+https://nytimes.com/2024/11/26/world/middleeast/cease-fire-israel-hezbollah-lebanon.html
+
 **What the Ceasefire Between Israel and Lebanon Means for Gaza**\
 `Will this cease-fire lead to peace?`\
 https://nytimes.com/2024/11/26/opinion/israel-lebanon-ceasefire-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/business/scott-bessent-wall-street-treasury.html
 **Judge Approves Settlement That Changes Rules for Real Estate Agents**\
 `Following a lawsuit, the National Association of Realtors was ordered to rewrite its rules governing agents’ commissions and pay $418 million in damages.`\
 https://nytimes.com/2024/11/26/realestate/nar-settlement-approval-commissions.html
-
-**Biden Announces Israel and Lebanon Cease-Fire Deal**\
-`President Biden praised the truce, which would stop the fighting between Israel and the Lebanese armed group Hezbollah.`\
-https://nytimes.com/video/world/middleeast/100000009847557/biden-israel-lebanon-ceasefire.html
 
