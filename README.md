@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5948636/2024/11/25/rams-demarcus-robinson-arrested-dui/
 
 **How Connor Hellebuyck stole latest Jets victory over Wild: 3 takeaways**\
-`Hellebuyck made 38 of his 43 saves in the first two periods and the Wild ran out of energy early as the Jets took the 4-1 win.`\
+`Hellebuyck made 38 of his 43 saves in the first two periods, and the Wild ran out of energy early as the Jets secured a 4-1 win.`\
 https://nytimes.com/athletic/5948291/2024/11/25/wild-jets-connor-hellebuyck-takeaways/
 
 **TikTok Influencer Arrested After Allegedly Documenting Stolen Items**\
