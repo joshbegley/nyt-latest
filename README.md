@@ -1,3 +1,7 @@
+**Browns' vision for Jerry Jeudy is coming to life with Jameis Winston at QB**\
+`In the four games since Winston has become Cleveland's starting QB, Jeudy's recorded 24 receptions for 379 yards and a touchdown. `\
+https://nytimes.com/athletic/5947733/2024/11/26/browns-jerry-jeudy-jameis-winston/
+
 **Liverpool's Tsimikas set for short spell on the sidelines with ankle injury**\
 `Liverpool defender Kostas Tsimikas is set for a short spell on the sidelines due to an ankle injury.`\
 https://nytimes.com/athletic/5948964/2024/11/26/liverpool-tsimikas-ankle-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/upshot/obesity-drugs-medicare-medicaid.html
 **'The Basketball 100' GOAT Points: A new way to look at the greatest (players) of all time**\
 `How do you rank the greatest players in history? It's not an easy task as there is no ultimate truth here, no one correct and final answer.`\
 https://nytimes.com/athletic/5940794/2024/11/26/the-basketball-100-goat-points-book-excerpt/
-
-**How can the Falcons stay on top of the NFC South? Here are 5 potential fixes**\
-`Changing the pass coverage plan on defense and incorporating more play action on offense could help fix what ails the Falcons.`\
-https://nytimes.com/athletic/5947554/2024/11/26/falcons-fixes-to-win-nfc-south/
 
