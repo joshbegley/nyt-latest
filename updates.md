@@ -1,3 +1,7 @@
+**The Athletic FC: War-torn Sudan's World Cup dream; Spurs' Vicario blow; more Scots in Italy?**\
+`Today in TAFC: How Sudan's national team are succeeding even as civil war rages; Vicario breaks his ankle; why Italian clubs want Scots`\
+https://nytimes.com/athletic/5949013/2024/11/26/sudan-world-cup-vicario-tottenham-scots-in-italy/
+
 **What we're seeing with the Bucks: Rivers' rotations, Jackson's pressure and more**\
 `After a 2-8 start to the season, the Bucks are in a much better place than they were two weeks ago.`\
 https://nytimes.com/athletic/5944268/2024/11/26/milwaukee-bucks-doc-rivers-andre-jackson/

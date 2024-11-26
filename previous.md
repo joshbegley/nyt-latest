@@ -1,3 +1,7 @@
+**The Athletic FC: War-torn Sudan's World Cup dream; Spurs' Vicario blow; more Scots in Italy?**\
+`Today in TAFC: How Sudan's national team are succeeding even as civil war rages; Vicario breaks his ankle; why Italian clubs want Scots`\
+https://nytimes.com/athletic/5949013/2024/11/26/sudan-world-cup-vicario-tottenham-scots-in-italy/
+
 **What we're seeing with the Bucks: Rivers' rotations, Jackson's pressure and more**\
 `After a 2-8 start to the season, the Bucks are in a much better place than they were two weeks ago.`\
 https://nytimes.com/athletic/5944268/2024/11/26/milwaukee-bucks-doc-rivers-andre-jackson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/briefing/election-2024-barack-obama.html
 **'I don’t feel as though I’m welcomed at Liverpool - it bloody hurts'**\
 `Owen's pain at being marginalised by his boyhood club is still raw`\
 https://nytimes.com/athletic/5934690/2024/11/26/michael-owen-liverpool-real-madrid-manchester-united/
-
-**Russia Launches Record Number of Drones in Overnight Attack, Ukraine Says**\
-`The assault, which the Ukrainian Air Force said involved 188 drones, came as both sides intensify air bombardments.`\
-https://nytimes.com/2024/11/26/world/europe/ukraine-russia-drone-attack.html
 
