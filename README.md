@@ -1,3 +1,7 @@
+**China’s Huawei Takes Aim at Apple With Latest Smartphone**\
+`Last year, a chip breakthrough put Huawei on top of the Chinese smartphone market. Now it is rolling out its newest phone, the Mate 70 series.`\
+https://nytimes.com/2024/11/26/business/china-huawei-mate-70.html
+
 **Pakistan Deploys Army in Its Capital as Protesters and Police Clash**\
 `Soldiers were ordered to defend government buildings with gunfire, if needed, as supporters of former Prime Minister Imran Khan demanded his release from prison.`\
 https://nytimes.com/2024/11/26/world/asia/pakistan-protests-imran-khan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/crosswords/spelling-bee-forum.html
 **The Knicks' offense is scary good and might just be getting started**\
 `Denver wasn't bad from the jump, New York just unleashed its relentless offense in the 145-118 win.`\
 https://nytimes.com/athletic/5948789/2024/11/26/knicks-offense-crushes-denver/
-
-**On the Wings of War**\
-`Scientists study the flight of hummingbirds to design robots for drone warfare.`\
-https://nytimes.com/2024/11/26/science/hummingbirds-robots-drone-warfare.html
 
