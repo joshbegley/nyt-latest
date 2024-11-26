@@ -1,3 +1,15 @@
+**Rudy Giuliani Loses His Lawyers, and His Cool, in Court**\
+`The subject of several cases, the former New York City mayor lashed out at a judge questioning why he had not forfeited personal assets as required.`\
+https://nytimes.com/2024/11/26/nyregion/rudy-giuliani-defamation-hearing-lawyers.html
+
+**NFL Week 13 playoff scenarios: How Bills, Chiefs and Lions can clinch spots**\
+`Find out how these three times can punch their postseason ticket with over a month to go in the regular season. `\
+https://nytimes.com/athletic/5950566/2024/11/26/nfl-week-13-playoff-scenarios-how-bills-chiefs-lions/
+
+**Khris Middleton's return nears after he practices 5-on-5 for first time**\
+`The Bucks' All-Star wing will likely remain out for at least the next two games, but he's cleared one hurdle after offseason ankle surgeries`\
+https://nytimes.com/athletic/5950652/2024/11/26/khris-middleton-bucks-injury-practice/
+
 **Biden says he hopes the U.S.-brokered deal will facilitate a cease-fire in Gaza.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/biden-israel-lebanon-ceasefire

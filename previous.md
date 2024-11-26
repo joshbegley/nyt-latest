@@ -1,3 +1,15 @@
+**Rudy Giuliani Loses His Lawyers, and His Cool, in Court**\
+`The subject of several cases, the former New York City mayor lashed out at a judge questioning why he had not forfeited personal assets as required.`\
+https://nytimes.com/2024/11/26/nyregion/rudy-giuliani-defamation-hearing-lawyers.html
+
+**NFL Week 13 playoff scenarios: How Bills, Chiefs and Lions can clinch spots**\
+`Find out how these three times can punch their postseason ticket with over a month to go in the regular season. `\
+https://nytimes.com/athletic/5950566/2024/11/26/nfl-week-13-playoff-scenarios-how-bills-chiefs-lions/
+
+**Khris Middleton's return nears after he practices 5-on-5 for first time**\
+`The Bucks' All-Star wing will likely remain out for at least the next two games, but he's cleared one hurdle after offseason ankle surgeries`\
+https://nytimes.com/athletic/5950652/2024/11/26/khris-middleton-bucks-injury-practice/
+
 **Biden says he hopes the U.S.-brokered deal will facilitate a cease-fire in Gaza.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/biden-israel-lebanon-ceasefire
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/26/arts/television/vanderpump-rules-season-12-new-ca
 **Saudi Arabia and Russia to U.N.: Don’t Talk About a Fossil Fuel Exit**\
 `A handful of oil-producing nations ensured that a United Nations General Assembly resolution on climate change steered clear of a call to transition away from fossil fuels.`\
 https://nytimes.com/2024/11/26/climate/saudi-arabia-russia-fossil-fuels-un.html
-
-**How to Host a Festive Fall Meal Like an Off-Duty Chef**\
-`Lauren Schofield — and her friends Anthony Ha and Sadie Mae Burns, of the restaurant Ha’s Đặc Biệt — take entertaining as seriously as their day jobs.`\
-https://nytimes.com/2024/11/26/t-magazine/lauren-schofield-has-dac-biet.html
-
-**Tariff Threats Show Trump’s Commitment to Upending Global Trade**\
-`The president-elect’s threat to hit Canada, Mexico and China with new tariffs is already rocking business and diplomatic relationships and could topple the trade pacts he signed in his first term.`\
-https://nytimes.com/2024/11/26/us/politics/trump-tariffs-global-trade.html
-
-**Javier Mascherano: The Lionel Messi ally charged with taking Inter Miami one step further**\
-`Mascherano's hire as Inter Miami head coach only strengthens the notion that this is a club tailor-made for Lionel Messi to shine at`\
-https://nytimes.com/athletic/5948385/2024/11/26/javier-mascherano-inter-miami-coach-lionel-messi/
 
