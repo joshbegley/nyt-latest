@@ -1,3 +1,15 @@
+**Why Auston Matthews won't return to Maple Leafs lineup vs. Panthers: 'Not a healing thing'**\
+`Matthews will miss his ninth straight game with a mysterious injury, but Maple Leafs coach Craig Berube said "he's feeling good."`\
+https://nytimes.com/athletic/5953218/2024/11/27/auston-matthews-maple-leafs-injury-nhl-panthers/
+
+**Read the Cease-Fire Agreement**\
+`The Lebanese government released a copy of the cease-fire agreement on Wednesday.`\
+https://nytimes.com/interactive/2024/11/27/world/middleeast/ceasefire-agreement.html
+
+**F1 to race Italian GP until 2031 after reaching 6-year extension**\
+`Monza has hosted an F1 race every year since 1950, when the inaugural world championship took place, except for in 1980.`\
+https://nytimes.com/athletic/5953161/2024/11/27/f1-italian-grand-prix-extension/
+
 **Why Do the Lions and Cowboys Play on Thanksgiving Every Year?**\
 `The short answer: tradition.`\
 https://nytimes.com/2024/11/27/sports/football/lions-cowboys-thanksgiving-game-nfl.html
