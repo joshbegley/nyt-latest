@@ -1,3 +1,7 @@
+**Protesters Supporting Former Pakistani Leader Dispersed by Security Forces**\
+`Thousands of demonstrators seeking the release of Imran Khan, the jailed ex-prime minister, fled the capital. Four civilians were killed during the unrest.`\
+https://nytimes.com/2024/11/27/world/asia/pakistan-protests-imran-khan.html
+
 **Record November Snowfall Hits Seoul**\
 `The first snowfall of the season grounded flights and triggered a weather warning throughout the South Korean capital.`\
 https://nytimes.com/video/world/asia/100000009848263/snow-record-seoul.html
