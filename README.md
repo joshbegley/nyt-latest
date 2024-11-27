@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/26/us/politics/trump-transition-briefings.html
 `As Thomas Keller’s most influential restaurants hit major birthdays, the cost and the demand have risen. But what about the food and the fun?`\
 https://nytimes.com/2024/11/26/dining/french-laundry-per-se.html
 
-**Jets QB Aaron Rodgers addresses uncertain NFL future, 2025 plans on Pat McAfee Show**\
+**Jets QB Aaron Rodgers addresses uncertain NFL future, 2025 plans**\
 `The Jets are looking at a potential rebuild after in-season firings of their coach and general manager.`\
 https://nytimes.com/athletic/5950722/2024/11/26/aaron-rodgers-2025-season-jets/
 
