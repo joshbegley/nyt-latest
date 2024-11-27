@@ -1,3 +1,7 @@
+**Trump Picks Stanford Physician Who Opposed Lockdowns to Head N.I.H.**\
+`As the director of the National Institutes of Health, Dr. Jay Bhattacharya would oversee the world’s premier medical research agency, with a $47 billion budget and 27 separate institutes and centers.`\
+https://nytimes.com/2024/11/26/us/politics/jay-bhattacharya-nih-trump.html
+
 **Quotation of the Day: The Catch**\
 `Quotation of the Day for Wednesday, November 27, 2024.`\
 https://nytimes.com/2024/11/26/pageoneplus/quotation-of-the-day-the-catch.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/an
 **UConn suffers first back-to-back losses in 22 months with Colorado upset**\
 `Colorado will play the winner of No. 5 Iowa State and Dayton on Wednesday in the Maui Invitational's last-place game.`\
 https://nytimes.com/athletic/5951037/2024/11/26/uconn-loss-colorado-maui-invitational/
-
-**Judge denies request to block SJSU volleyball player from tournament**\
-`The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
-https://nytimes.com/athletic/5947424/2024/11/26/san-jose-state-volleyball-lawsuit-transgender/
 
