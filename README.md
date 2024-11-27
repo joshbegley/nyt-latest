@@ -1,40 +1,40 @@
-**Will Lebanon Deal Break Gaza Deadlock? Experts Doubt It**\
-`Hamas is unlikely to compromise in Gaza, despite the decision by its ally, Hezbollah, to stop fighting. A deal in Gaza would also be harder for Benjamin Netanyahu, the Israeli prime minister.`\
-https://nytimes.com/2024/11/27/world/middleeast/israel-ceasefire-hezbollah-gaza.html
+**A Fragile Israel-Hezbollah Truce, and a Push to Make You Love Plastic**\
+`Plus, the A.I. granny scamming the scammers.`\
+https://nytimes.com/2024/11/27/podcasts/headlines-nyt-audio-app.html
 
-**Brighton set to make Ferguson available for January loan move**\
-`Brighton and Hove Albion striker Evan Ferguson is expected to be made available for loan during the January transfer window.`\
-https://nytimes.com/athletic/5950307/2024/11/27/brighton-evan-ferguson-loan/
+**Why the Blue Jackets may trade David Jiricek, and what would they seek in return?**\
+`A trade may not be imminent, but the Blue Jackets and their former first-round draft pick appear headed that way.`\
+https://nytimes.com/athletic/5951102/2024/11/27/blue-jackets-david-jiricek-trade/
 
-**Inside the low-tech meeting that supercharged Donovan Mitchell and the Cavs**\
-`Kenny Atkinson knew the Cavs could be great when he took the coaching job last summer. But first, he needed to win over Donovan Mitchell.`\
-https://nytimes.com/athletic/5951307/2024/11/27/nba-cleveland-cavaliers-donovan-mitchell-kenny-atkinson/
+**Inside Conor Timmins' turnaround: How the Maple Leafs defenceman became a lineup lock**\
+`Conor Timmins has pushed back against popular perception. He has played all but two games for the Leafs and has been a difference maker.`\
+https://nytimes.com/athletic/5947019/2024/11/27/maple-leafs-conor-timmins-2/
 
-**Chinese Automakers Tell Suppliers to Cut Costs as Price War Deepens**\
-`China’s electric vehicle market is the world’s largest — and also its most cutthroat, with dozens of brands jostling for position.`\
-https://nytimes.com/2024/11/27/business/byd-china-electric-vehicles.html
+**Twenty-two things about the Islanders after 22 games in a strange season**\
+`Here are 22 things we've seen and we may see from this wild and wacky Islanders season.`\
+https://nytimes.com/athletic/5949213/2024/11/27/islanders-2024-25-nhl-season/
 
-**Notre Dame mailbag: Best Irish team I've covered? What will a home Playoff game look like?**\
-`Answering your Notre Dame questions about an all-Irish Playoff hypothetical, hosting a CFP game, transfer portal strategy and more.`\
-https://nytimes.com/athletic/5951322/2024/11/27/notre-dame-college-football-playoff-home/
+**How Red Wings prospects are trending heading into Thanksgiving**\
+`Checking in on 10 notable Red Wings prospects through the first two months of the season. `\
+https://nytimes.com/athletic/5947740/2024/11/27/red-wings-prospects-thanksgiving-progress/
 
-**Yankees’ 3 lingering Juan Soto questions as preliminary offers roll in**\
-`The Yankees must consider what they'll build around Soto if they can make the highest bid for his services.`\
-https://nytimes.com/athletic/5951077/2024/11/27/yankees-3-lingering-juan-soto-questions-as-preliminary-offers-roll-in/
+**As Packers embark on prime-time stretch, do they even like night games?**\
+`The Packers have four consecutive prime-time games starting Thursday and potentially a fifth in Week 17.`\
+https://nytimes.com/athletic/5951022/2024/11/27/packers-prime-time-games-dolphins/
 
-**How badly does Ohio State need to beat Michigan? For the Buckeyes, it's everything**\
-`Michigan is down, and Ohio State has a Playoff bid locked up. And yet beating the Wolverines has never felt more important in Columbus.`\
-https://nytimes.com/athletic/5951190/2024/11/27/ohio-state-ryan-day-seniors-michigan/
+**Can Jim Montgomery's coaching methods unlock the Blues offense? His history says yes**\
+`The Blues have one of the least productive offenses in the NHL, but Montgomery believes there's enough talent to turn it around.`\
+https://nytimes.com/athletic/5946740/2024/11/27/jim-montgomery-blues-offense/
 
-**Zaccharie Risacher might not be a typical No. 1 pick, but he's a good fit with Hawks**\
-`Risacher remains impactful when he isn’t scoring because he is constantly cutting.`\
-https://nytimes.com/athletic/5950626/2024/11/27/zaccharie-risacher-good-fit-hawks/
+**What we're hearing about the Cubs: Starting pitching and coaching changes**\
+`From Imanaga to Taillon to Stroman, in recent years, the Cubs have executed quality deals at the upper-middle level of pitching.`\
+https://nytimes.com/athletic/5951131/2024/11/27/chicago-cubs-offseason-mlb-notebook/
 
-**How do Michigan fans feel about their national title tattoos? 'It’s no regrets at all'**\
-`After talking to proud Michigan tattoo owners before the season, The Athletic contacted them again to see how they were holding up.`\
-https://nytimes.com/athletic/5949525/2024/11/27/michigan-national-championship-tattoos-ohio-state/
+**Some games mean more: The Week 13 matchups that will have biggest impact on playoff odds**\
+`We all know what the big games are heading into each week, but quantifying just how big they are is where it really gets fun. `\
+https://nytimes.com/athletic/5950341/2024/11/27/nfl-playoffs-week-13-projections-steelers-bengals/
 
-**When Leniency Is the Goal, a Justice System Breaks Easily**\
-`Two recent cases show New York’s fragile courts have little room for error.`\
-https://nytimes.com/2024/11/27/opinion/nyc-killing-criminal-justice.html
+**Still separated from Connor Bedard, is Teuvo Teräväinen a victim of his own versatility?**\
+`Teuvo Teräväinen can do it all. On a Blackhawks team struggling for consistency, that might not be in his best interest.`\
+https://nytimes.com/athletic/5951122/2024/11/27/blackhawks-teuvo-teravainen-versatility-bedard/
 
