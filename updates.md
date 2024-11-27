@@ -1,3 +1,11 @@
+**Cease-Fire Deal Leaves Beleaguered Palestinians in Gaza Feeling Forgotten**\
+`With a truce between Israel and Hezbollah taking hold, Gazans are losing hope that Israel’s war in the enclave will end anytime soon.`\
+https://nytimes.com/2024/11/27/world/middleeast/gaza-displaced-ceasefire.html
+
+**I.C.C. Prosecutor Seeks Arrest Warrant for Myanmar Junta Leader**\
+`The International Criminal Court’s chief prosecutor accused Senior Gen. Min Aung Hlaing of crimes against humanity toward the country’s Muslim Rohingya.`\
+https://nytimes.com/2024/11/27/world/asia/myanmar-junta-leader-rohingya.html
+
 **Spurs intend to trigger Ben Davies contract extension**\
 `Tottenham Hotspur intend to trigger the option in Ben Davies’ contract, keeping the Wales defender at the club for next season.`\
 https://nytimes.com/athletic/5952155/2024/11/27/tottenham-hotspur-intend-to-trigger-ben-davies-contract-extension/
