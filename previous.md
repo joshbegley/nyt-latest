@@ -34,7 +34,7 @@ https://nytimes.com/2024/11/27/dining/evelyne-de-pontbriand-dead.html
 `It's a battle of Tiger teams in tonight's Maui Invitational final. No. 4 Auburn is heavily favored over Memphis.`\
 https://nytimes.com/athletic/5953066/2024/11/27/auburn-memphis-maui-how-to-watch-odds-preview/
 
-**Several Trump administration picks face bomb threats and ‘swatting.’**\
-`By Devlin Barrett`\
-https://nytimes.com/live/2024/11/27/us/trump-news/several-trump-administration-picks-face-bomb-threats-and-swatting
+**Several Trump Administration Picks Face Bomb Threats and ‘Swatting’**\
+`A Trump transition team spokeswoman said law enforcement officials “acted quickly to ensure the safety of those who were targeted.”`\
+https://nytimes.com/2024/11/27/us/politics/trump-administration-picks-bomb-threats.html
 

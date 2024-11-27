@@ -1,3 +1,7 @@
+**Several Trump Administration Picks Face Bomb Threats and ‘Swatting’**\
+`A Trump transition team spokeswoman said law enforcement officials “acted quickly to ensure the safety of those who were targeted.”`\
+https://nytimes.com/2024/11/27/us/politics/trump-administration-picks-bomb-threats.html
+
 **A Guide to N.Y.C. Holiday Events: Music, Lights and More**\
 `“The Nutcracker,” light displays and ice skating: Here are some of our favorite things to do this season.`\
 https://nytimes.com/2024/11/27/arts/nyc-holiday-events-guide.html
