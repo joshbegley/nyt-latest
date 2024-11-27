@@ -1,3 +1,15 @@
+**Musk’s Slashing of the Federal Budget Faces Big Hurdles**\
+`The so-called Department of Government Efficiency, with Elon Musk as co-leader, has advantages that past budget-cutters did not, but laws and court challenges can still make change slow and difficult.`\
+https://nytimes.com/2024/11/27/us/politics/elon-musk-federal-budget.html
+
+**Manfred Ohrenstein, Liberal Lion of N.Y. Legislature, Dies at 99**\
+`He entered the State Senate as a reformer but during 34 years became part of the system he sought to reform.`\
+https://nytimes.com/2024/11/27/nyregion/manfred-ohrenstein-dead.html
+
+**Pakistan’s Capital Is Turned Upside Down by Unending Protests**\
+`Residents of Islamabad are tiring of regular demonstrations demanding the release of the former prime minister Imran Khan, with the marches leading to clashes with security forces.`\
+https://nytimes.com/2024/11/27/world/asia/islamabad-pakistan-protest-pti.html
+
 **What’s in Our Queue? ‘Elden Ring’ and More**\
 `By Paul Mozur`\
 https://nytimes.com/card/2024/11/27/arts/editors-recommendations-eldenring
