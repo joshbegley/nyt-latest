@@ -1,3 +1,7 @@
+**Premier League referee Coote investigated by FA over alleged betting breach**\
+`Suspended Premier League referee David Coote is being investigated by the Football Association (FA) following allegations he discussed issuing a yellow card with a friend before a match.`\
+https://nytimes.com/athletic/5951100/2024/11/27/david-coote-alleged-betting-breach/
+
 **Jimmy Kimmel Doubts Trump’s Grasp of Economics**\
 `Kimmel called the president-elect’s plan to hit Mexico, Canada and China with sweeping tariffs “the dumbest thing he’s come up with since Don Jr.”`\
 https://nytimes.com/2024/11/27/arts/television/jimmy-kimmel-trump-tariffs.html
