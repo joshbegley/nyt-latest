@@ -1,3 +1,7 @@
+**Suarez signs Miami contract extension through 2025 MLS season**\
+`Luis Suarez has signed a contract extension with Inter Miami that will keep him with the club through the 2025 Major League Soccer (MLS) season.`\
+https://nytimes.com/athletic/5952734/2024/11/27/luis-suarez-inter-miami-new-contract/
+
 **Tiny Love Stories: ‘I Couldn’t Stop Looking at Her’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/11/27/style/tiny-modern-love-stories-i-couldnt-stop-looking-at-her.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/business/economy/inflation-pce-fed-interest-rates
 **Cowboys Today: Does Rico Dowdle have a spot in running back room beyond this season?**\
 `Dowdle has produced when given the opportunity this season. What will that mean for his future in Dallas?`\
 https://nytimes.com/athletic/5951738/2024/11/27/cowboys-today-rico-dowdle-thanksgiving-giants/
-
-**Penguins Today: It’s Thanksgiving Eve, so let’s give thanks**\
-`The Penguins are a mess, but 'tis the season for reflection.`\
-https://nytimes.com/athletic/5950466/2024/11/27/penguins-today-thanksgiving-eve/
 
