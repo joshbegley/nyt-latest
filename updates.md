@@ -1,3 +1,7 @@
+**College football rivalry week odds, picks ATS for Texas-Texas A&M, OSU-Michigan and more**\
+`The college football season culminates in rivalry week with a number of games that affect the College Football Playoff race.`\
+https://nytimes.com/athletic/5947940/2024/11/27/college-football-rivalry-week-odds-picks-texas-am-ohio-state-michigan/
+
 **Helen Gallagher, Winner of Two Tonys and Three Emmys, Dies at 98**\
 `She was honored on Broadway for roles in “Pal Joey” and “No, No, Nanette” and then turned to TV, where she won three Daytime Emmys for her work on “Ryan’s Hope.”`\
 https://nytimes.com/2024/11/27/arts/helen-gallagher-dead.html
