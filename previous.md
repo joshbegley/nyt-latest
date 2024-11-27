@@ -1,3 +1,7 @@
+**A Guide to N.Y.C. Holiday Events: Music, Lights and More**\
+`“The Nutcracker,” light displays and ice skating: Here are some of our favorite things to do this season.`\
+https://nytimes.com/2024/11/27/arts/nyc-holiday-events-guide.html
+
 **Commanders CB Marshon Lattimore to practice for first time since trade**\
 `Lattimore has been dealing with a hamstring injury since before the acquisition, last playing with the Saints in Week 8.`\
 https://nytimes.com/athletic/5953343/2024/11/27/commanders-marshon-lattimore-practice-hamstring-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5953066/2024/11/27/auburn-memphis-maui-how-to-watch
 **Several Trump administration picks face bomb threats and ‘swatting.’**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2024/11/27/us/trump-news/several-trump-administration-picks-face-bomb-threats-and-swatting
-
-**Betting for (by) dummies: Lions, Bengals and not the Bears, oh my**\
-`While you're feasting on football, Jon Greenberg and Zac Jackson have some betting picks you can feast on as well.`\
-https://nytimes.com/athletic/5953106/2024/11/27/betting-for-by-dummies-detroit-lions-ohio-state/
 

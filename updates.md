@@ -1,3 +1,7 @@
+**A Guide to N.Y.C. Holiday Events: Music, Lights and More**\
+`“The Nutcracker,” light displays and ice skating: Here are some of our favorite things to do this season.`\
+https://nytimes.com/2024/11/27/arts/nyc-holiday-events-guide.html
+
 **Commanders CB Marshon Lattimore to practice for first time since trade**\
 `Lattimore has been dealing with a hamstring injury since before the acquisition, last playing with the Saints in Week 8.`\
 https://nytimes.com/athletic/5953343/2024/11/27/commanders-marshon-lattimore-practice-hamstring-trade/
