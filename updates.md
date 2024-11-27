@@ -1,3 +1,11 @@
+**Scoop City: What to watch for this long weekend**\
+`What to watch for at each slate for this long NFL weekend, plus a look at memorable Thanksgiving performances and the 2025 rookies`\
+https://nytimes.com/athletic/5952632/2024/11/27/thanksgiving-weekend-nfl-schedule-guide/
+
+**The Bounce: Lakers finally lose NBA Cup game; Chef Reactions chimes in**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5952206/2024/11/27/chef-reactions-lebron-james-lakers-nba-the-bounce/
+
 **NBA Lookahead: Can Nikola Jokić overcome voter fatigue and win another MVP?**\
 `More exciting NBA Cup action arrives on Friday. And a look back on the Reign Man.`\
 https://nytimes.com/athletic/5943228/2024/11/27/nba-lookahead-nikola-jokic-mvp/
