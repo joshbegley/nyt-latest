@@ -1,3 +1,7 @@
+**Ireland Should Be the Happiest Country in Europe. Shouldn’t It?**\
+`There are the same dark subplots here that have made the position of other incumbent governments so precarious.`\
+https://nytimes.com/2024/11/27/opinion/ireland-election-simon-harris.html
+
 **Suns hand Lakers first loss in NBA Cup history with 27-point win: Key takeaways**\
 `The Lakers' path to defending their NBA Cup now requires a win over the Thunder and a little help from the Spurs.`\
 https://nytimes.com/athletic/5951730/2024/11/27/suns-lakers-nba-cup-results-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946057/2024/11/27/champions-league-meals/
 **Trent x Jude: Why their bromance could matter for Liverpool and Madrid**\
 `The friendship between two of England's best young players adds an intriguing sub-plot to tonight's Champions League tie`\
 https://nytimes.com/athletic/5948928/2024/11/27/trent-alexander-arnold-jude-bellingham-liverpool-real-madrid/
-
-**Douglas Luiz, Alisha Lehmann and a rare couples transfer**\
-`Douglas Luiz swapped Aston Villa for Juventus in the summer - a week later, his partner Lehmann made the same move`\
-https://nytimes.com/athletic/5929101/2024/11/27/douglas-luiz-alisha-lehmann-aston-villa-juventus-couple-transfer/
 
