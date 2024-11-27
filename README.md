@@ -1,3 +1,15 @@
+**Andy Paley, Whose Imprint Was All Over Pop Music, Dies at 73**\
+`Musician, singer, songwriter, producer and more, he collaborated with Madonna and a raft of other artists and helped resuscitate the career of the Beach Boys’ Brian Wilson.`\
+https://nytimes.com/2024/11/27/arts/music/andy-paley-dead.html
+
+**Colleges and education groups urge students to make painful choices to avoid immigration trouble.**\
+`By Zach Montague`\
+https://nytimes.com/live/2024/11/27/us/trump-news/colleges-and-education-groups-urge-students-to-make-painful-choices-to-avoid-immigration-trouble
+
+**NWSLPA chief defends Barbra Banda after criticism following award win: Explaining the controversy**\
+`Banda, 24, was named BBC’s Women’s Footballer of the Year on Tuesday after helping lead the Orlando Pride to the double.`\
+https://nytimes.com/athletic/5952678/2024/11/27/barbra-banda-bbc-award-explained/
+
 **Updated 2025 NFL Draft order: Jaguars at No. 1; how picks 1-32 stand heading into Week 13**\
 `Which teams will be picking top 10 in the NFL Draft? Who's going to hold the No. 1 pick? Track all the latest movement here. `\
 https://nytimes.com/athletic/5950815/2024/11/27/nfl-draft-order-2025-round-1-full/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5953052/2024/11/27/hull-city-sack-tim-walter/
 **Hoping for Allies Among Trump’s Health Picks, Pharma Faces Hostility**\
 `Robert F. Kennedy Jr. and other candidates for top health posts are at odds with the drug industry, setting the stage for tense battles over regulatory changes.`\
 https://nytimes.com/2024/11/27/health/trump-rfk-jr-pharma.html
-
-**Fantasy basketball outperformers: LaMelo Ball, Jared McCain and 20 more early ROI all-stars**\
-`Eric Wong highlights the players who have provided the biggest ROI in fantasy basketball so far, including early ROY candidate Jared McCain.`\
-https://nytimes.com/athletic/5952537/2024/11/27/fantasy-basketball-outperformer-lamelo-jared-mccain/
-
-**F1 mailbag: Why wasn't Carlos Sainz penalized at the Las Vegas Grand Prix?**\
-`Plus: Will an American drive for General Motors/Cadillac in 2026? `\
-https://nytimes.com/athletic/5952807/2024/11/27/f1-mailbag-las-vegas-gp-sainz-general-motors/
-
-**Judge Finds New York in Contempt, Clearing the Way for Rikers Takeover**\
-`The finding was a landmark in a court case that has stretched out over more than a decade. Plans for a receivership of New York City’s jails will be heard on Jan. 14.`\
-https://nytimes.com/2024/11/27/nyregion/rikers-contempt-receivership.html
 
