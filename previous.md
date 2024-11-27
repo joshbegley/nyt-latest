@@ -1,3 +1,19 @@
+**Thousands of Lebanese Head South as a Fragile Peace Begins**\
+`Also, Trump picked an envoy for Russia and Ukraine. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/11/27/briefing/cease-fire-lebanon-trump-russia-ukraine-envoy.html
+
+**Robert Dixon, Last Surviving Buffalo Soldier, Dies at 103**\
+`A member of the Ninth Cavalry, one of the U.S. Army’s all-Black regiments, he trained West Point cadets in military horsemanship during World War II.`\
+https://nytimes.com/2024/11/27/us/robert-dixon-dead.html
+
+**What We Know About the Cease-Fire in Lebanon**\
+`The truce began Wednesday, bringing a fragile peace to Israel and Lebanon. Israeli troops are to withdraw in phases  from southern Lebanon, and Lebanese military convoys headed south to protect the peace.`\
+https://nytimes.com/2024/11/27/world/middleeast/what-we-know-about-the-cease-fire-in-lebanon.html
+
+**Bradley wins Mbappe battle, Bellingham booed, USMNT pair shine in comeback - Champions League briefing**\
+`There were plenty of talking points from the Champions League action on Wednesday night`\
+https://nytimes.com/athletic/5953587/2024/11/27/champions-league-jude-bellingham-booed-usmnt-psv/
+
 **Thousands Stream Homeward as Fragile Peace Begins in Lebanon**\
 `The cease-fire between Israel and Hezbollah began on Wednesday, but much hardship and uncertainty lie ahead after a yearlong war that killed thousands and left widespread destruction in Lebanon.`\
 https://nytimes.com/2024/11/27/world/middleeast/lebanon-ceasefire-israel-hezbollah.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5949206/2024/11/27/aston-villa-juventus-analysis/
 **‘Vanderpump Rules’ and the End of an Era of Reality Television**\
 `What once was an exhilarating show stuffed with vicariously appealing misbehavior became a dreary weeknight watch.`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/vanderpump-rules-new-cast
-
-**The Briefing: Liverpool 2-0 Madrid - Are Slot's team the best in Europe? And what now for Mbappe?**\
-`The major talking points as Liverpool record a statement win over their old rivals in the Champions League`\
-https://nytimes.com/athletic/5949208/2024/11/27/liverpool-real-madrid-champions-league-analysis-2/
-
-**College football rivalry week odds, picks ATS for Texas-Texas A&M, OSU-Michigan and more**\
-`The college football season culminates in rivalry week with a number of games that affect the College Football Playoff race.`\
-https://nytimes.com/athletic/5947940/2024/11/27/college-football-rivalry-week-odds-picks-texas-am-ohio-state-michigan/
-
-**Helen Gallagher, Winner of Two Tonys and Three Emmys, Dies at 98**\
-`She was honored on Broadway for roles in “Pal Joey” and “No, No, Nanette” and then turned to TV, where she won three Daytime Emmys for her work on “Ryan’s Hope.”`\
-https://nytimes.com/2024/11/27/arts/helen-gallagher-dead.html
-
-**Tran Defeats Steel in House Pickup for Democrats**\
-`Derek Tran, a consumer rights lawyer and Army veteran, defeated Representative Michelle Steel, a Republican two-term incumbent, flipping a seat in Orange County, Calif.`\
-https://nytimes.com/2024/11/27/us/politics/california-house-tran-steel.html
 
