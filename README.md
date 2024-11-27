@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5951594/2024/11/26/patrick-mahomes-leads-nflpas-lis
 `DeBrusk's goal for the Canucks in their 2-0 win versus Boston was the kind of goal the Bruins really needed.`\
 https://nytimes.com/athletic/5951613/2024/11/26/bruins-canucks-jake-debrusk-goal/
 
-**How Kevin Lankinen, Canucks locked down the Bruins in shutout win: 3 takeaways**\
+**How Kevin Lankinen, Canucks locked down Bruins in shutout win: 3 takeaways**\
 `A supreme defensive effort got the Canucks' East Coast road trip off to a 2-0-0 start with a shutout in Boston.`\
 https://nytimes.com/athletic/5951554/2024/11/26/canucks-lankinen-debrusk-shutout-bruins/
 

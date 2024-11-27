@@ -1,3 +1,7 @@
+**Ex-Bruin Jake DeBrusk, a goal scorer's tally and an offensively challenged former team**\
+`DeBrusk's goal for the Canucks in their 2-0 win versus Boston was the kind of goal the Bruins really needed.`\
+https://nytimes.com/athletic/5951613/2024/11/26/bruins-canucks-jake-debrusk-goal/
+
 **Blake Snell agrees to 5-year, $182 million deal with Dodgers**\
 `Snell, who will be 32 on Opening Day, is one of seven pitchers in major league history to win a Cy Young Award in both leagues.`\
 https://nytimes.com/athletic/5941217/2024/11/26/blake-snell-contract-dodgers-mlb-free-agency/

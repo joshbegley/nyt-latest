@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5941217/2024/11/26/blake-snell-contract-dodgers-mlb
 `Mahomes drives merchandise sales after winning his third Super Bowl MVP `\
 https://nytimes.com/athletic/5951594/2024/11/26/patrick-mahomes-leads-nflpas-list-of-top-50-players-in-merchandise-sales/
 
-**Ex-Bruin Jake DeBrusk, a goal-scorer's tally and an offensively challenged former team**\
-`DeBrusk's goal for the Canucks in their 2-0 win vs. Boston was the kind of goal the Bruins really needed.`\
+**Ex-Bruin Jake DeBrusk, a goal scorer's tally and an offensively challenged former team**\
+`DeBrusk's goal for the Canucks in their 2-0 win versus Boston was the kind of goal the Bruins really needed.`\
 https://nytimes.com/athletic/5951613/2024/11/26/bruins-canucks-jake-debrusk-goal/
 
 **How Kevin Lankinen, Canucks locked down the Bruins in shutout win: 3 takeaways**\
