@@ -1,3 +1,7 @@
+**Alongside Cease-Fire in Lebanon, Israeli Forces Keep Striking in Gaza**\
+`While Israel and Hezbollah were finalizing a cease-fire to halt the fighting in Lebanon, Israeli strikes killed 33 people in Gaza, according to local health authorities.`\
+https://nytimes.com/2024/11/27/world/middleeast/israel-gaza-strikes.html
+
 **Andy Paley, Whose Imprint Was All Over Pop Music, Dies at 73**\
 `Musician, singer, songwriter, producer and more, he collaborated with Madonna and a raft of other artists and helped resuscitate the career of the Beach Boys’ Brian Wilson.`\
 https://nytimes.com/2024/11/27/arts/music/andy-paley-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5953046/2024/11/27/lamine-yamal-golden-boy-award-wi
 **Hull City sack head coach Tim Walter**\
 `Hull City have sacked head coach Tim Walter after a run of nine games without a win brought a fall into the Championship’s relegation zone.`\
 https://nytimes.com/athletic/5953052/2024/11/27/hull-city-sack-tim-walter/
-
-**Hoping for Allies Among Trump’s Health Picks, Pharma Faces Hostility**\
-`Robert F. Kennedy Jr. and other candidates for top health posts are at odds with the drug industry, setting the stage for tense battles over regulatory changes.`\
-https://nytimes.com/2024/11/27/health/trump-rfk-jr-pharma.html
 
