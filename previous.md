@@ -1,3 +1,15 @@
+**Cowboys Today: Does Rico Dowdle have a spot in running back room beyond this season?**\
+`Dowdle has produced when given the opportunity this season. What will that mean for his future in Dallas?`\
+https://nytimes.com/athletic/5951738/2024/11/27/cowboys-today-rico-dowdle-thanksgiving-giants/
+
+**Penguins Today: It’s Thanksgiving Eve, so let’s give thanks**\
+`The Penguins are a mess, but 'tis the season for reflection.`\
+https://nytimes.com/athletic/5950466/2024/11/27/penguins-today-thanksgiving-eve/
+
+**Forget the Instagram Hard Launch: Are You Location-Sharing Official?**\
+`It’s the final frontier in digital expressions of coupledom. But for some people, it’s always going to be creepy.`\
+https://nytimes.com/2024/11/27/style/find-my-location-sharing-relationships.html
+
 **Man Utd's Martinez back for Bodo/Glimt clash, Maguire and Yoro absent**\
 `Manchester United defender Lisandro Martinez is fit to face Bodo/Glimt in the Europa League on Thursday but Harry Maguire and Leny Yoro remain unavailable.`\
 https://nytimes.com/athletic/5952411/2024/11/27/manchester-united-team-news-martinez-maguire-yoro/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/27/world/asia/us-china-prisoner-swap.html
 **At This French Exhibition, Check Your Clothes at the Door**\
 `A museum in Marseille, France, has a show dedicated to the history of social nudity. On a few special nights, visitors strolled around naked, too.`\
 https://nytimes.com/2024/11/27/arts/design/naturism-exhibition-naked-mucem-marseille.html
-
-**The first P4 job is open. But how good is the UNC gig?**\
-`This should be one of the best jobs in the ACC, if the infrastructure can improve to match the right coach.`\
-https://nytimes.com/athletic/5952287/2024/11/27/unc-football-job-profile-coaching-search/
-
-**Bodhi, the ‘Menswear Dog,’ Dies at 15**\
-`A Shiba Inu of uncommon sartorial panache, Bodhi modeled for Coach and was the subject of his own fashion lookbook.`\
-https://nytimes.com/2024/11/27/style/bodhi-menswear-dog-dies.html
-
-**How Madrid might play without Vinicius Jr - against Liverpool and beyond**\
-`Losing Vinicius Jr to an anticipated three-week injury lay-off is a significant blow for Madrid. But could it help Kylian Mbappe?`\
-https://nytimes.com/athletic/5950640/2024/11/27/real-madrid-vinicius-injury-tactics-line-up/
 
