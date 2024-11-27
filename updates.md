@@ -1,3 +1,15 @@
+**Portugal sign Puma kit deal, ending 27-year association with Nike**\
+`The Portugal Football Federation (FPF) has signed a new long-term deal with Puma, ending their 27-year partnership with Nike.`\
+https://nytimes.com/athletic/5952027/2024/11/27/portugal-nike-puma-kit-deal/
+
+**Donald Trump’s Immigration Plans**\
+`We explore Trump’s mass deportation goals.`\
+https://nytimes.com/2024/11/27/briefing/donald-trump-immigration-plans.html
+
+**‘We can finally go home.’ The road from Beirut is packed with people returning to the south.**\
+`By Christina Goldbaum`\
+https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire/we-can-finally-go-home-the-road-from-beirut-is-packed-with-people-returning-to-the-south
+
 **Brentford's Norgaard wins appeal against Everton red card**\
 `Brentford captain Christian Norgaard has avoided a three-game after the club successfully appealed against his red card for serious foul play in their 0-0 draw at Everton last weekend.`\
 https://nytimes.com/athletic/5952078/2024/11/27/norgaard-brentford-appeal-red-card/
