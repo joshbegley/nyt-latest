@@ -1,3 +1,11 @@
+**Brighton set to make Ferguson available for January loan move**\
+`Brighton and Hove Albion striker Evan Ferguson is expected to be made available for loan during the January transfer window.`\
+https://nytimes.com/athletic/5950307/2024/11/27/brighton-evan-ferguson-loan/
+
+**Inside the low-tech meeting that supercharged Donovan Mitchell and the Cavs**\
+`Kenny Atkinson knew the Cavs could be great when he took the coaching job last summer. But first, he needed to win over Donovan Mitchell.`\
+https://nytimes.com/athletic/5951307/2024/11/27/nba-cleveland-cavaliers-donovan-mitchell-kenny-atkinson/
+
 **Chinese Automakers Tell Suppliers to Cut Costs as Price War Deepens**\
 `China’s electric vehicle market is the world’s largest — and also its most cutthroat, with dozens of brands jostling for position.`\
 https://nytimes.com/2024/11/27/business/byd-china-electric-vehicles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/opinion/nyc-killing-criminal-justice.html
 **Two Presidents, Two Policies, One Superpower: America in Transition**\
 `Even as President Biden brokers a cease-fire in Lebanon, President-elect Donald J. Trump is running his own foreign policy without waiting to be sworn in.`\
 https://nytimes.com/2024/11/27/us/politics/biden-trump-foreign-policy.html
-
-**Kentucky Auction of Confiscated Alcohol Includes Rare Bourbon Bottles**\
-`A new state law grants the Kentucky Department of Alcoholic Beverage Control the authority to auction off impounded alcohol.`\
-https://nytimes.com/2024/11/27/us/kentucky-confiscated-bourbon-auction.html
-
-**Maine Becomes the Latest State to Sue Oil Companies Over Climate Change**\
-`In a new lawsuit, the state’s attorney general claims oil companies deceived the public about fossil fuel products’ contributions to climate change.`\
-https://nytimes.com/2024/11/27/climate/maine-climate-change-oil-company-lawsuit.html
 
