@@ -1,3 +1,7 @@
+**What’s a Democratic Billionaire to Do Now?**\
+`The party’s donor class is still wrestling with Donald Trump’s victory, worried about retribution and sluggish liberal energy. Some rich Democrats are even pondering leaving the country.`\
+https://nytimes.com/2024/11/27/us/politics/democratic-donors-reid-hoffman-democracy-alliance.html
+
 **'It's so fun to watch': With Giannis out, Damian Lillard puts on a show against the Heat**\
 `With Antetokounmpo declared out just before tip-off, Lillard's 37 points and 12 assists helped the Bucks move to 3-0 in NBA Cup play.`\
 https://nytimes.com/athletic/5951972/2024/11/27/giannis-antetokounmpo-out-damian-lillard-bucks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5951241/2024/11/27/fantasy-football-matchups-thanks
 **Scoop City: What to watch for this long weekend**\
 `What to watch for at each slate for this long NFL weekend, plus a look at memorable Thanksgiving performances and the 2025 rookies`\
 https://nytimes.com/athletic/5952632/2024/11/27/thanksgiving-weekend-nfl-schedule-guide/
-
-**The Bounce: Lakers finally lose NBA Cup game; Chef Reactions chimes in**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5952206/2024/11/27/chef-reactions-lebron-james-lakers-nba-the-bounce/
 
