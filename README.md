@@ -1,15 +1,3 @@
-**Man United midseason ticket price rise branded 'offensive' by leading fan group**\
-`Manchester United have been branded “offensive” for hiking ticket prices while the season is underway and using financial regulations as an excuse.`\
-https://nytimes.com/athletic/5952630/2024/11/27/manchester-united-ticket-prices-rise-must/
-
-**Dinosaur Domination Is Marked in a Timeline of Vomit and Feces Fossils**\
-`Studying bromalites helped paleontologists piece together how the reptiles came to rule a part of the prehistoric world.`\
-https://nytimes.com/2024/11/27/science/dinosaurs-fossils-poop-puke.html
-
-**Double-Pucker Cranberry Lemon Bars**\
-`Genevieve Ko’s pretty, sunset-colored treat is just the thing to offset all that tryptophan.`\
-https://nytimes.com/2024/11/27/dining/cranberry-lemon-bars.html
-
 **BOS Nation considering name change after backlash**\
 `The team, which will join the league in 2026, said it launched a process to gather input on its name from stakeholders.`\
 https://nytimes.com/athletic/5952727/2024/11/27/bos-nation-considers-name-change/
@@ -37,4 +25,16 @@ https://nytimes.com/video/world/middleeast/100000009848511/lebanon-ceasefire-isr
 **Congress Is Poised to Delay Again on Farm Bill, Leaving Families in Limbo**\
 `The agriculture and nutrition measure was last updated in 2018 and originally expired two years ago. Farmers fear the Trump administration’s priorities will eclipse theirs next year.`\
 https://nytimes.com/2024/11/27/us/politics/farm-bill-congress.html
+
+**Saving Electric Vehicles From Donald Trump**\
+`Readers offer environmental and business reasons to support E.V.s. Also: Women in the military; the Amsterdam pogrom; resentment of migrants; true crime.`\
+https://nytimes.com/2024/11/27/opinion/electric-vehicles-trump.html
+
+**Suarez signs Miami contract extension through 2025 MLS season**\
+`Luis Suarez has signed a contract extension with Inter Miami that will keep him with the club through the 2025 Major League Soccer (MLS) season.`\
+https://nytimes.com/athletic/5952734/2024/11/27/luis-suarez-inter-miami-new-contract/
+
+**Tiny Love Stories: ‘I Couldn’t Stop Looking at Her’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/11/27/style/tiny-modern-love-stories-i-couldnt-stop-looking-at-her.html
 
