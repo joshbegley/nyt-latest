@@ -1,3 +1,7 @@
+**Lebanese Cheer On a Cease-Fire as Thousands Return to Their Homes**\
+`Under the cease-fire agreement, Israel will withdraw its forces from Lebanon over the next 60 days, while Hezbollah will retreat from southern Lebanon, where the Lebanese military and United Nations peacekeepers are expected to operate.`\
+https://nytimes.com/video/world/middleeast/100000009848511/lebanon-ceasefire-israel-.html
+
 **Congress Is Poised to Delay Again on Farm Bill, Leaving Families in Limbo**\
 `The agriculture and nutrition measure was last updated in 2018 and originally expired two years ago. Farmers fear the Trump administration’s priorities will eclipse theirs next year.`\
 https://nytimes.com/2024/11/27/us/politics/farm-bill-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/us/politics/democratic-donors-reid-hoffman-democr
 **'It's so fun to watch': With Giannis out, Damian Lillard puts on a show against the Heat**\
 `With Antetokounmpo declared out just before tip-off, Lillard's 37 points and 12 assists helped the Bucks move to 3-0 in NBA Cup play.`\
 https://nytimes.com/athletic/5951972/2024/11/27/giannis-antetokounmpo-out-damian-lillard-bucks/
-
-**Postecoglou rules out signing Vicario replacement**\
-`Ange Postecoglou has ruled out Tottenham Hotspur signing a free agent to ease their injury woes after first-choice goalkeeper Guglielmo Vicario fractured his ankle.`\
-https://nytimes.com/athletic/5952464/2024/11/27/spurs-goalkeeper-vicario-postecoglou/
 

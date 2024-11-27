@@ -1,3 +1,7 @@
+**Lebanese Cheer On a Cease-Fire as Thousands Return to Their Homes**\
+`Under the cease-fire agreement, Israel will withdraw its forces from Lebanon over the next 60 days, while Hezbollah will retreat from southern Lebanon, where the Lebanese military and United Nations peacekeepers are expected to operate.`\
+https://nytimes.com/video/world/middleeast/100000009848511/lebanon-ceasefire-israel-.html
+
 **Congress Is Poised to Delay Again on Farm Bill, Leaving Families in Limbo**\
 `The agriculture and nutrition measure was last updated in 2018 and originally expired two years ago. Farmers fear the Trump administration’s priorities will eclipse theirs next year.`\
 https://nytimes.com/2024/11/27/us/politics/farm-bill-congress.html
