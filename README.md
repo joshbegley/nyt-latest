@@ -1,3 +1,7 @@
+**Chelsea are no longer 'Cole Palmer FC' - his marked-man status is forcing others to step up**\
+`Palmer is now getting the treatment reserved for superstars - his attacking statistics are down but his team-mates are thriving `\
+https://nytimes.com/athletic/5947386/2024/11/27/chelsea-cole-palmer-maresca-options/
+
 **How will Spurs - and Fraser Forster - cope in Guglielmo Vicario's absence?**\
 `Vicario had an operation on his foot on Monday and will be unavailable for months - can Forster adequately fill the void?`\
 https://nytimes.com/athletic/5949241/2024/11/27/spurs-fraser-forster-guglielmo-vicario/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5929101/2024/11/27/douglas-luiz-alisha-lehmann-asto
 **Kaoru Mitoma finally looking his old self after taxing second Premier League season**\
 `After finally overcoming a back injury, Mitoma is recapturing the sparkle that made him such a big hit in his first Premier League season`\
 https://nytimes.com/athletic/5908069/2024/11/27/mitoma-brighton-form/
-
-**Analysing Southampton's litany of errors**\
-`Southampton are conceding too many goals - and too often they only have themselves to blame. How will Russell Martin cut out the mistakes?`\
-https://nytimes.com/athletic/5950137/2024/11/27/southampton-russell-martin-errors-goals-conceded/
 
