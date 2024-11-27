@@ -1,3 +1,11 @@
+**French Intellectuals Decry a Dissident Writer’s Arrest in Algeria**\
+`An outspoken French-Algerian novelist returned to his homeland and was promptly taken into custody at age 75.`\
+https://nytimes.com/2024/11/27/world/europe/algeria-boualem-sansal-arrest.html
+
+**College football rivalry week model-predicted point differentials, totals for every game**\
+`Austin Mock's projection model predicts the point differential and point totals for every college football game this week.`\
+https://nytimes.com/athletic/5953572/2024/11/27/college-football-rivalry-week-model-projections/
+
 **A Guide to N.Y.C. Holiday Events: Music, Lights and More**\
 `“The Nutcracker,” light displays and ice skating: Here are some of our favorite things to do this season.`\
 https://nytimes.com/2024/11/27/arts/nyc-holiday-events-guide.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/sports/football/lions-cowboys-thanksgiving-game-n
 **Evelyne de Pontbriand, Champion of Biodynamic Winemaking, Dies at 73**\
 `The latest in a long line of women to run her family winery, she helped bring worldwide attention to sustainable viniculture.`\
 https://nytimes.com/2024/11/27/dining/evelyne-de-pontbriand-dead.html
-
-**How to watch Auburn vs. Memphis: Maui Invitational final features two Tigers**\
-`It's a battle of Tiger teams in tonight's Maui Invitational final. No. 4 Auburn is heavily favored over Memphis.`\
-https://nytimes.com/athletic/5953066/2024/11/27/auburn-memphis-maui-how-to-watch-odds-preview/
-
-**Several Trump Administration Picks Face Bomb Threats and ‘Swatting’**\
-`A Trump transition team spokeswoman said law enforcement officials “acted quickly to ensure the safety of those who were targeted.”`\
-https://nytimes.com/2024/11/27/us/politics/trump-administration-picks-bomb-threats.html
 
