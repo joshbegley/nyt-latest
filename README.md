@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘I Couldn’t Stop Looking at Her’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/11/27/style/tiny-modern-love-stories-i-couldnt-stop-looking-at-her.html
+
+**France Suggests It Would Not Immediately Arrest Netanyahu Despite I.C.C. Warrant**\
+`The foreign ministry did not say outright that Prime Minister Benjamin Netanyahu of Israel would be free to travel to France, but it argued that I.C.C. rules on immunity applied to him.`\
+https://nytimes.com/2024/11/27/world/middleeast/france-netanyahu-arrest-icc.html
+
+**LIV Golf to hire former 76ers exec as new CEO**\
+`O'Neil will inherit a tour that has become increasingly worldwide but needs a long-term TV carrier in the United States.`\
+https://nytimes.com/athletic/5952635/2024/11/27/liv-golf-scott-oneil-greg-norman-ceo/
+
 **Oxford University Names William Hague Its New Chancellor**\
 `Mr. Hague, a former leader of Britain’s Conservative Party, was chosen in a vote by his fellow alumni to lead the elite university.`\
 https://nytimes.com/2024/11/27/world/europe/oxford-chancellor-william-hague.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5951738/2024/11/27/cowboys-today-rico-dowdle-thanks
 **Penguins Today: It’s Thanksgiving Eve, so let’s give thanks**\
 `The Penguins are a mess, but 'tis the season for reflection.`\
 https://nytimes.com/athletic/5950466/2024/11/27/penguins-today-thanksgiving-eve/
-
-**Forget the Instagram Hard Launch: Are You Location-Sharing Official?**\
-`It’s the final frontier in digital expressions of coupledom. But for some people, it’s always going to be creepy.`\
-https://nytimes.com/2024/11/27/style/find-my-location-sharing-relationships.html
-
-**Man Utd's Martinez back for Bodo/Glimt clash, Maguire and Yoro absent**\
-`Manchester United defender Lisandro Martinez is fit to face Bodo/Glimt in the Europa League on Thursday but Harry Maguire and Leny Yoro remain unavailable.`\
-https://nytimes.com/athletic/5952411/2024/11/27/manchester-united-team-news-martinez-maguire-yoro/
-
-**Load up your fantasy football plate with Christian McCaffrey, Travis Kelce and more Thanksgiving week goodness**\
-`Renee Miller equates players to Thanksgiving foods — savory or unsavory — to help you get set for the holiday weekend.`\
-https://nytimes.com/athletic/5951241/2024/11/27/fantasy-football-matchups-thanksgiving/
 
