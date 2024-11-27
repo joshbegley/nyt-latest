@@ -1,3 +1,7 @@
+**What We Know About the Cease-Fire in Lebanon**\
+`The truce began Wednesday, bringing a fragile peace to Israel and Lebanon. Israeli troops are to withdraw in phases  from southern Lebanon, and Lebanese military convoys headed south to protect the peace.`\
+https://nytimes.com/2024/11/27/world/middleeast/israel-lebanon-military-ceasefire.html
+
 **Sean Combs Is Denied Bail a Third Time**\
 `A federal judge ruled against the music mogul’s efforts to be released from jail while he awaits trial on sex trafficking and racketeering charges.`\
 https://nytimes.com/2024/11/27/arts/music/sean-combs-diddy-denied-bail.html

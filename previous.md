@@ -16,7 +16,7 @@ https://nytimes.com/2024/11/27/us/robert-dixon-dead.html
 
 **What We Know About the Cease-Fire in Lebanon**\
 `The truce began Wednesday, bringing a fragile peace to Israel and Lebanon. Israeli troops are to withdraw in phases  from southern Lebanon, and Lebanese military convoys headed south to protect the peace.`\
-https://nytimes.com/2024/11/27/world/middleeast/what-we-know-about-the-cease-fire-in-lebanon.html
+https://nytimes.com/2024/11/27/world/middleeast/israel-lebanon-military-ceasefire.html
 
 **Bradley wins Mbappe battle, Bellingham booed, USMNT pair shine in comeback - Champions League briefing**\
 `There were plenty of talking points from the Champions League action on Wednesday night`\
