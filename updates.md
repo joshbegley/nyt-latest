@@ -1,3 +1,7 @@
+**What's wrong with Fred Warner? 49ers linebacker has been playing with a broken ankle**\
+`Just like last Wednesday, Brock Purdy didn't throw much in practice while Nick Bosa and Trent Williams didn't practice at all. `\
+https://nytimes.com/athletic/5954006/2024/11/27/fred-warner-49ers-broken-ankle/
+
 **Liverpool's Bradley, Konate to be assessed ahead of Man City**\
 `Arne Slot says Ibrahima Konate and Conor Bradley need further assessment to determine whether they will be available for Liverpool’s crunch Premier League clash with Manchester City at Anfield on Sunday.`\
 https://nytimes.com/athletic/5954002/2024/11/27/liverpool-injury-bradley-konate/

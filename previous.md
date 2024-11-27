@@ -1,3 +1,7 @@
+**What's wrong with Fred Warner? 49ers linebacker has been playing with a broken ankle**\
+`Just like last Wednesday, Brock Purdy didn't throw much in practice while Nick Bosa and Trent Williams didn't practice at all. `\
+https://nytimes.com/athletic/5954006/2024/11/27/fred-warner-49ers-broken-ankle/
+
 **Liverpool's Bradley, Konate to be assessed ahead of Man City**\
 `Arne Slot says Ibrahima Konate and Conor Bradley need further assessment to determine whether they will be available for Liverpool’s crunch Premier League clash with Manchester City at Anfield on Sunday.`\
 https://nytimes.com/athletic/5954002/2024/11/27/liverpool-injury-bradley-konate/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/us/youth-pastor-sex-crimes-west-virginia.html
 **Lebanese and Israelis Return to Their Homes Following Cease-Fire**\
 `Ramez Hassan Boustany checked on his home in the southern suburbs of Beirut following the cease-fire agreement between Israel and Hezbollah. In northern Israel, Amichay Bitton surveyed the damage on his parents’ property.`\
 https://nytimes.com/video/world/middleeast/100000009848981/israel-hezbollah-ceasefire-middle-east.html
-
-**Camavinga joins Madrid injury list, set for tests on hamstring**\
-`Eduardo Camavinga has joined Real Madrid&#8217;s lengthy injury list after picking up a hamstring issue during Wednesday night&#8217;s Champions League defeat to Liverpool.`\
-https://nytimes.com/athletic/5953811/2024/11/27/real-madrid-camavinga-injury/
 
