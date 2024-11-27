@@ -1,3 +1,7 @@
+**Suns hand Lakers first loss in NBA Cup history with 27-point win: Key takeaways**\
+`The Lakers' path to defending their NBA Cup now requires a win over the Thunder and a little help from the Spurs.`\
+https://nytimes.com/athletic/5951730/2024/11/27/suns-lakers-nba-cup-results-takeaways/
+
 **Chelsea are no longer 'Cole Palmer FC' - his marked-man status is forcing others to step up**\
 `Palmer is now getting the treatment reserved for superstars - his attacking statistics are down but his team-mates are thriving `\
 https://nytimes.com/athletic/5947386/2024/11/27/chelsea-cole-palmer-maresca-options/
