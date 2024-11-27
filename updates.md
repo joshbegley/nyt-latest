@@ -1,3 +1,11 @@
+**Is SEC football mediocre this season? College Football Playoff rankings don’t lie**\
+`There’s no strong argument for a fourth SEC team right now, other than what “would” happen if this team or that team played.`\
+https://nytimes.com/athletic/5951502/2024/11/26/college-football-rankings-sec-alabama-georgia-tennessee/
+
+**What will U.N. peacekeepers do under the new truce deal in Lebanon?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/what-will-un-peacekeepers-do-under-the-new-truce-deal-in-lebanon
+
 **Corrections: Nov. 27, 2024**\
 `Corrections that appeared in print on Wednesday, Nov. 27, 2024.`\
 https://nytimes.com/2024/11/26/pageoneplus/corrections-nov-27-2024.html

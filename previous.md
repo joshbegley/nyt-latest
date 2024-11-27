@@ -1,3 +1,11 @@
+**Is SEC football mediocre this season? College Football Playoff rankings don’t lie**\
+`There’s no strong argument for a fourth SEC team right now, other than what “would” happen if this team or that team played.`\
+https://nytimes.com/athletic/5951502/2024/11/26/college-football-rankings-sec-alabama-georgia-tennessee/
+
+**What will U.N. peacekeepers do under the new truce deal in Lebanon?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/what-will-un-peacekeepers-do-under-the-new-truce-deal-in-lebanon
+
 **Corrections: Nov. 27, 2024**\
 `Corrections that appeared in print on Wednesday, Nov. 27, 2024.`\
 https://nytimes.com/2024/11/26/pageoneplus/corrections-nov-27-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/26/business/economy/jamieson-greer-trade-representat
 **How Israel’s conflict with Lebanon escalated into an intense war.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/how-israels-conflict-with-lebanon-escalated-into-an-intense-war
-
-**Car Found in Georgia Pond May Be That of a New York Couple Missing Since 1980**\
-`The Romers, of Scarsdale, N.Y., disappeared from a Georgia hotel. Divers who seek to solve cold cases found a vehicle similar to theirs in a pond. They also found bones.`\
-https://nytimes.com/2024/11/26/us/georgia-romers-cold-case-car-pond.html
-
-**Andrew Cuomo joins Netanyahu’s legal defense team.**\
-`By Emma G. Fitzsimmons`\
-https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/andrew-cuomo-joins-netanyahus-legal-defense-team
 
