@@ -1,3 +1,11 @@
+**Sean Combs Is Denied Bail a Third Time**\
+`A federal judge ruled against the music mogul’s efforts to be released from jail while he awaits trial on sex trafficking and racketeering charges.`\
+https://nytimes.com/2024/11/27/arts/music/sean-combs-diddy-denied-bail.html
+
+**West Virginia shocks No. 3 Gonzaga 86-78 in Atlantis quarterfinals**\
+`That improves Darian DeVries’ first team to 4-1 and suggests big leaps since an 86-62 loss at rival Pitt on Nov. 15.`\
+https://nytimes.com/athletic/5953857/2024/11/27/west-virginia-gonzaga-atlantis-quarterfinals/
+
 **Thousands of Lebanese Head South as a Fragile Peace Begins**\
 `Also, Trump picked an envoy for Russia and Ukraine. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/11/27/briefing/cease-fire-lebanon-trump-russia-ukraine-envoy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/world/middleeast/israel-soldiers-lebanon-ceasefir
 **Why Daniel Jones signing with the Vikings makes a world of sense for both sides**\
 `Working with Kevin O'Connell should only help Jones' game, while the ex-Giants QB could offer some insurance this year and going forward.`\
 https://nytimes.com/athletic/5953700/2024/11/27/daniel-jones-vikings-signing-kevin-oconnell/
-
-**The Briefing: Aston Villa 0 Juventus 0: Last-minute VAR drama, Kamara's return and Weah's central role**\
-`Jacob Tanswell and Greg O'Keeffe analyse the main talking points from Aston Villa's draw against Juventus`\
-https://nytimes.com/athletic/5949206/2024/11/27/aston-villa-juventus-analysis/
-
-**‘Vanderpump Rules’ and the End of an Era of Reality Television**\
-`What once was an exhilarating show stuffed with vicariously appealing misbehavior became a dreary weeknight watch.`\
-https://nytimes.com/live/2024/11/26/opinion/thepoint/vanderpump-rules-new-cast
 
