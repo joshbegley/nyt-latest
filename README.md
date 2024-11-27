@@ -1,3 +1,11 @@
+**Five centers the Flyers could target in a trade this season**\
+`Could a move for a center be in the cards for GM Daniel Briere and the Flyers at some point before the March 7 trade deadline?`\
+https://nytimes.com/athletic/5952822/2024/11/27/flyers-nhl-trade-targets-center/
+
+**Trump’s Pick to Lead the N.I.H. Gets Some Things Right**\
+`The course of Bhattacharya’s tenure will depend on whether he can listen to his critics.`\
+https://nytimes.com/2024/11/27/opinion/nih-director-trump-jay-bhattacharya.html
+
 **Alongside Cease-Fire in Lebanon, Israeli Forces Keep Striking in Gaza**\
 `While Israel and Hezbollah were finalizing a cease-fire to halt the fighting in Lebanon, Israeli strikes killed 33 people in Gaza, according to local health authorities.`\
 https://nytimes.com/2024/11/27/world/middleeast/israel-gaza-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/podcasts/serial-keiko-free-willy-whale.html
 **Displaced Lebanese Rush to Return Home Following Cease-Fire**\
 `Roads were packed with cars as people displaced from southern and eastern Lebanon began returning to their homes after a cease-fire deal between Israel and Hezbollah.`\
 https://nytimes.com/video/world/middleeast/100000009848708/lebanon-displaced-cease-fire.html
-
-**Yamal named Golden Boy for 2024, becomes youngest winner of award**\
-`Lamine Yamal has won the Golden Boy award after a starring role for club and country in 2024.`\
-https://nytimes.com/athletic/5953046/2024/11/27/lamine-yamal-golden-boy-award-win/
-
-**Hull City sack head coach Tim Walter**\
-`Hull City have sacked head coach Tim Walter after a run of nine games without a win brought a fall into the Championship’s relegation zone.`\
-https://nytimes.com/athletic/5953052/2024/11/27/hull-city-sack-tim-walter/
 
