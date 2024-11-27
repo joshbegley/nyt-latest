@@ -1,3 +1,11 @@
+**NFL Week 13 fantasy football, betting cheat sheet: Will Montgomery be ready for Thursday?**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5947140/2024/11/27/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
+
+**NFL Week 13 odds, picks for Thanksgiving Day games**\
+`Odds, picks and previews for all three Thanksgiving Day games. `\
+https://nytimes.com/athletic/5949929/2024/11/27/nfl-week-13-odds-picks-thanksgiving/
+
 **Why Auston Matthews won't return to Maple Leafs lineup vs. Panthers: 'Not a healing thing'**\
 `Matthews will miss his ninth straight game with a mysterious injury, but Maple Leafs coach Craig Berube said "he's feeling good."`\
 https://nytimes.com/athletic/5953218/2024/11/27/auston-matthews-maple-leafs-injury-nhl-panthers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5953106/2024/11/27/betting-for-by-dummies-detroit-l
 **F1 to race Italian GP until 2031 after reaching 6-year extension**\
 `Monza has hosted an F1 race every year since 1950, when the inaugural world championship took place, except for in 1980.`\
 https://nytimes.com/athletic/5953161/2024/11/27/f1-italian-grand-prix-extension/
-
-**Judge Dismisses Defamation Suit Against Fox News Brought by Jan. 6 Figure**\
-`The suit was brought by Ray Epps, who was falsely characterized by Tucker Carlson and others as being a government agent who instigated the violence at the Capitol.`\
-https://nytimes.com/2024/11/27/us/politics/ray-epps-tucker-carlson-jan-6-defamation.html
-
-**Five centers the Flyers could target in a trade this season**\
-`Could a move for a center be in the cards for GM Daniel Briere and the Flyers at some point before the March 7 trade deadline?`\
-https://nytimes.com/athletic/5952822/2024/11/27/flyers-nhl-trade-targets-center/
 

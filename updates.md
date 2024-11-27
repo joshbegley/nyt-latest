@@ -1,3 +1,11 @@
+**NFL Week 13 fantasy football, betting cheat sheet: Will Montgomery be ready for Thursday?**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5947140/2024/11/27/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
+
+**NFL Week 13 odds, picks for Thanksgiving Day games**\
+`Odds, picks and previews for all three Thanksgiving Day games. `\
+https://nytimes.com/athletic/5949929/2024/11/27/nfl-week-13-odds-picks-thanksgiving/
+
 **Why Auston Matthews won't return to Maple Leafs lineup vs. Panthers: 'Not a healing thing'**\
 `Matthews will miss his ninth straight game with a mysterious injury, but Maple Leafs coach Craig Berube said "he's feeling good."`\
 https://nytimes.com/athletic/5953218/2024/11/27/auston-matthews-maple-leafs-injury-nhl-panthers/
