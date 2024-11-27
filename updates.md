@@ -1,3 +1,15 @@
+**How the Chiefs weather rash of injuries could make the difference in three-peat bid**\
+`Even with their 10-1 record, the Chiefs have used 61 players. In 17 games last season, the Chiefs used just 65 players.`\
+https://nytimes.com/athletic/5951101/2024/11/27/chiefs-injuries-raiders-black-friday/
+
+**Will the gap between Bears and Lions be exposed on Thanksgiving? Preview, Week 13 picks**\
+`The Bears and Lions are going in opposite directions. How apparent will that be on Thanksgiving Day? Analysis and our game picks.`\
+https://nytimes.com/athletic/5950765/2024/11/27/bears-lions-thanksgiving-caleb-williams/
+
+**The story behind Vikings RB Cam Akers' emotional return from a second torn Achilles**\
+`Akers' contributions to the Vikings this season are a testament to both his internal strength and the support of his family.`\
+https://nytimes.com/athletic/5950904/2024/11/27/cam-akers-vikings-achilles-injury-return/
+
 **A Fragile Israel-Hezbollah Truce, and a Push to Make You Love Plastic**\
 `Plus, the A.I. granny scamming the scammers.`\
 https://nytimes.com/2024/11/27/podcasts/headlines-nyt-audio-app.html
