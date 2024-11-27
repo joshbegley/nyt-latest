@@ -1,3 +1,15 @@
+**How the Chiefs weather rash of injuries could make the difference in three-peat bid**\
+`Even with their 10-1 record, the Chiefs have used 61 players. In 17 games last season, the Chiefs used just 65 players.`\
+https://nytimes.com/athletic/5951101/2024/11/27/chiefs-injuries-raiders-black-friday/
+
+**Will the gap between Bears and Lions be exposed on Thanksgiving? Preview, Week 13 picks**\
+`The Bears and Lions are going in opposite directions. How apparent will that be on Thanksgiving Day? Analysis and our game picks.`\
+https://nytimes.com/athletic/5950765/2024/11/27/bears-lions-thanksgiving-caleb-williams/
+
+**The story behind Vikings RB Cam Akers' emotional return from a second torn Achilles**\
+`Akers' contributions to the Vikings this season are a testament to both his internal strength and the support of his family.`\
+https://nytimes.com/athletic/5950904/2024/11/27/cam-akers-vikings-achilles-injury-return/
+
 **A Fragile Israel-Hezbollah Truce, and a Push to Make You Love Plastic**\
 `Plus, the A.I. granny scamming the scammers.`\
 https://nytimes.com/2024/11/27/podcasts/headlines-nyt-audio-app.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5951022/2024/11/27/packers-prime-time-games-dolphin
 **Can Jim Montgomery's coaching methods unlock the Blues offense? His history says yes**\
 `The Blues have one of the least productive offenses in the NHL, but Montgomery believes there's enough talent to turn it around.`\
 https://nytimes.com/athletic/5946740/2024/11/27/jim-montgomery-blues-offense/
-
-**What we're hearing about the Cubs: Starting pitching and coaching changes**\
-`From Imanaga to Taillon to Stroman, in recent years, the Cubs have executed quality deals at the upper-middle level of pitching.`\
-https://nytimes.com/athletic/5951131/2024/11/27/chicago-cubs-offseason-mlb-notebook/
-
-**Some games mean more: The Week 13 matchups that will have biggest impact on playoff odds**\
-`We all know what the big games are heading into each week, but quantifying just how big they are is where it really gets fun. `\
-https://nytimes.com/athletic/5950341/2024/11/27/nfl-playoffs-week-13-projections-steelers-bengals/
-
-**Still separated from Connor Bedard, is Teuvo Teräväinen a victim of his own versatility?**\
-`Teuvo Teräväinen can do it all. On a Blackhawks team struggling for consistency, that might not be in his best interest.`\
-https://nytimes.com/athletic/5951122/2024/11/27/blackhawks-teuvo-teravainen-versatility-bedard/
 
