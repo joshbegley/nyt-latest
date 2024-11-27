@@ -1,3 +1,11 @@
+**At This French Exhibition, Check Your Clothes at the Door**\
+`A museum in Marseille, France, has a show dedicated to the history of social nudity. On a few special nights, visitors strolled around naked, too.`\
+https://nytimes.com/2024/11/27/arts/design/naturism-exhibition-naked-mucem-marseille.html
+
+**The first P4 job is open. But how good is the UNC gig?**\
+`This should be one of the best jobs in the ACC, if the infrastructure can improve to match the right coach.`\
+https://nytimes.com/athletic/5952287/2024/11/27/unc-football-job-profile-coaching-search/
+
 **Bodhi, the ‘Menswear Dog,’ Dies at 15**\
 `A Shiba Inu of uncommon sartorial panache, Bodhi modeled for Coach and was the subject of his own fashion lookbook.`\
 https://nytimes.com/2024/11/27/style/bodhi-menswear-dog-dies.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5952260/2024/11/27/nba-all-star-game-format-issues/
 **Until Saturday: The SEC's bracket fallout**\
 `Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
 https://nytimes.com/athletic/5952323/2024/11/27/college-football-playoff-rankings-bracket-georgia-tennessee-until-saturday/
-
-**What to Know About the Israel-Hezbollah Cease-Fire**\
-`Under the agreement, Israel will gradually withdraw its forces from Lebanon over the next 60 days, and Hezbollah will not entrench itself near the Israeli border.`\
-https://nytimes.com/2024/11/27/world/middleeast/israel-lebanon-ceasefire.html
-
-**Best of 12 Questions 2024: Joey Logano calls his shot and more of our favorites**\
-`The 15th edition of the 12 Questions series has concluded, ending a year that saw us surpass the 500-interview mark in our weekly segment.`\
-https://nytimes.com/athletic/5950154/2024/11/27/nascar-12-questions-best-of-2024-joey-logano/
 
