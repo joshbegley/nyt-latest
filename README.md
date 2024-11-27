@@ -1,3 +1,7 @@
+**Fantasy basketball outperformers: LaMelo Ball, Jared McCain and 20 more early ROI all-stars**\
+`Eric Wong highlights the players who have provided the biggest ROI in fantasy basketball so far, including early ROY candidate Jared McCain.`\
+https://nytimes.com/athletic/5952537/2024/11/27/fantasy-basketball-outperformer-lamelo-jared-mccain/
+
 **F1 mailbag: Why wasn't Carlos Sainz penalized at the Las Vegas Grand Prix?**\
 `Plus: Will an American drive for General Motors/Cadillac in 2026? `\
 https://nytimes.com/athletic/5952807/2024/11/27/f1-mailbag-las-vegas-gp-sainz-general-motors/
@@ -33,8 +37,4 @@ https://nytimes.com/video/movies/100000009848652/wicked-scene.html
 **A Battered and Diminished Hezbollah Accepts a Cease-fire**\
 `Thirteen months of war left Hezbollah weakened, isolated and desperate for a way to stop the fighting.`\
 https://nytimes.com/2024/11/27/world/middleeast/hezbollah-israel-ceasefire.html
-
-**Ex-Giants QB Daniel Jones to sign with Vikings**\
-`Jones was released by the Giants last Friday after the team benched him earlier that week.`\
-https://nytimes.com/athletic/5952861/2024/11/27/giants-daniel-jones-sign-vikings/
 
