@@ -1,3 +1,7 @@
+**Jimmy Kimmel Doubts Trump’s Grasp of Economics**\
+`Kimmel called the president-elect’s plan to hit Mexico, Canada and China with sweeping tariffs “the dumbest thing he’s come up with since Don Jr.”`\
+https://nytimes.com/2024/11/27/arts/television/jimmy-kimmel-trump-tariffs.html
+
 **Auburn star Johni Broome leads Tigers past UNC, into Maui Invitational final**\
 `Broome had 18 first half points before eventually finishing with a game-high 23, plus 19 boards. `\
 https://nytimes.com/athletic/5951870/2024/11/27/auburn-unc-maui-invitational-semifinal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947386/2024/11/27/chelsea-cole-palmer-maresca-opti
 **How will Spurs - and Fraser Forster - cope in Guglielmo Vicario's absence?**\
 `Vicario had an operation on his foot on Monday and will be unavailable for months - can Forster adequately fill the void?`\
 https://nytimes.com/athletic/5949241/2024/11/27/spurs-fraser-forster-guglielmo-vicario/
-
-**Why Ruben Amorim was frustrated by his Man United media commitments and why it won't ease up**\
-`"I just want to work with my players, nothing more, but I understand this is a different game here. So, let’s see.”`\
-https://nytimes.com/athletic/5950447/2024/11/27/ruben-amorim-media-complaint/
 

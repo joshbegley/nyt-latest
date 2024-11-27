@@ -1,3 +1,7 @@
+**Jimmy Kimmel Doubts Trump’s Grasp of Economics**\
+`Kimmel called the president-elect’s plan to hit Mexico, Canada and China with sweeping tariffs “the dumbest thing he’s come up with since Don Jr.”`\
+https://nytimes.com/2024/11/27/arts/television/jimmy-kimmel-trump-tariffs.html
+
 **Auburn star Johni Broome leads Tigers past UNC, into Maui Invitational final**\
 `Broome had 18 first half points before eventually finishing with a game-high 23, plus 19 boards. `\
 https://nytimes.com/athletic/5951870/2024/11/27/auburn-unc-maui-invitational-semifinal/
