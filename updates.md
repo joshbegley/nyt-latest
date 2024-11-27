@@ -1,3 +1,11 @@
+**Guardiola clarifies 'I want to hurt myself' comment**\
+`Manchester City manager Pep Guardiola says he “in no way intended to make light of the very serious issue of self-harm” after appearing to make a joke about “hurting himself”.`\
+https://nytimes.com/athletic/5952137/2024/11/27/pep-guardiola-manchester-city-harm/
+
+**What to make of Kliff Kingsbury and the Commanders' recent offensive regression**\
+`Why has Washington's offense stalled over the past few weeks? Is Kingsbury truly to blame?`\
+https://nytimes.com/athletic/5951612/2024/11/27/kliff-kingsbury-commanders-offense-struggles/
+
 **Portugal sign Puma kit deal, ending 27-year association with Nike**\
 `The Portugal Football Federation (FPF) has signed a new long-term deal with Puma, ending their 27-year partnership with Nike.`\
 https://nytimes.com/athletic/5952027/2024/11/27/portugal-nike-puma-kit-deal/

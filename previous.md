@@ -1,3 +1,11 @@
+**Guardiola clarifies 'I want to hurt myself' comment**\
+`Manchester City manager Pep Guardiola says he “in no way intended to make light of the very serious issue of self-harm” after appearing to make a joke about “hurting himself”.`\
+https://nytimes.com/athletic/5952137/2024/11/27/pep-guardiola-manchester-city-harm/
+
+**What to make of Kliff Kingsbury and the Commanders' recent offensive regression**\
+`Why has Washington's offense stalled over the past few weeks? Is Kingsbury truly to blame?`\
+https://nytimes.com/athletic/5951612/2024/11/27/kliff-kingsbury-commanders-offense-struggles/
+
 **Portugal sign Puma kit deal, ending 27-year association with Nike**\
 `The Portugal Football Federation (FPF) has signed a new long-term deal with Puma, ending their 27-year partnership with Nike.`\
 https://nytimes.com/athletic/5952027/2024/11/27/portugal-nike-puma-kit-deal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5950328/2024/11/27/blake-snell-dodgers-the-pulse/
 **Lampard in advanced talks over Coventry job**\
 `Frank Lampard is in advanced negotiations to become Coventry City’s new manager.`\
 https://nytimes.com/athletic/5931769/2024/11/27/frank-lampard-coventry-manager/
-
-**Dejounte Murray should allow the Pelicans to finally develop an identity**\
-`With Murray and the returning CJ McCollum, New Orleans will finally have a functional backcourt. `\
-https://nytimes.com/athletic/5951641/2024/11/27/dejounte-murray-should-allow-the-pelicans-to-finally-develop-an-identity/
-
-**Displaced Israelis ‘don’t know what we will be returning to.’**\
-`By Adam Rasgon and Gabby Sobelman`\
-https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire/displaced-israelis-dont-know-what-we-will-be-returning-to
 
