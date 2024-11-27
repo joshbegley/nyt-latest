@@ -1,3 +1,7 @@
+**Several Trump administration picks face bomb threats and ‘swatting.’**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2024/11/27/us/trump-news/several-trump-administration-picks-face-bomb-threats-and-swatting
+
 **Betting for (by) dummies: Lions, Bengals and not the Bears, oh my**\
 `While you're feasting on football, Jon Greenberg and Zac Jackson have some betting picks you can feast on as well.`\
 https://nytimes.com/athletic/5953106/2024/11/27/betting-for-by-dummies-detroit-lions-ohio-state/
