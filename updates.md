@@ -1,3 +1,7 @@
+**For the Dodgers, signing Blake Snell always made sense**\
+`The Dodgers have long been fascinated with Snell, and now the left-hander joins an organization in need of more top-of-the-line pitching. `\
+https://nytimes.com/athletic/5951767/2024/11/27/los-angeles-dodgers-blake-snell-analysis/
+
 **Ireland Should Be the Happiest Country in Europe. Shouldn’t It?**\
 `There are the same dark subplots here that have made the position of other incumbent governments so precarious.`\
 https://nytimes.com/2024/11/27/opinion/ireland-election-simon-harris.html
