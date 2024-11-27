@@ -1,3 +1,7 @@
+**NBA Lookahead: Can Nikola Jokić overcome voter fatigue and win another MVP?**\
+`More exciting NBA Cup action arrives on Friday. And a look back on the Reign Man.`\
+https://nytimes.com/athletic/5943228/2024/11/27/nba-lookahead-nikola-jokic-mvp/
+
 **3 Americans Are Said to Be Freed From China in Prisoner Swap**\
 `The three men, John Leung, Kai Li, and Mark Swidan, are on planes heading to the United States, two officials said.`\
 https://nytimes.com/2024/11/27/world/asia/us-china-prisoner-swap.html
