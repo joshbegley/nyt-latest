@@ -1,3 +1,7 @@
+**Hammer’s End**\
+`Jill Singer’s triple words score.`\
+https://nytimes.com/2024/11/26/crosswords/daily-puzzle-2024-11-27.html
+
 **Is SEC football mediocre this season? College Football Playoff rankings don’t lie**\
 `There’s no strong argument for a fourth SEC team right now, other than what “would” happen if this team or that team played.`\
 https://nytimes.com/athletic/5951502/2024/11/26/college-football-rankings-sec-alabama-georgia-tennessee/
