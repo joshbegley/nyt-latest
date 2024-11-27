@@ -1,3 +1,7 @@
+**Why Daniel Jones signing with the Vikings makes a world of sense for both sides**\
+`Working with Kevin O'Connell should only help Jones' game, while the ex-Giants QB could offer some insurance this year and going forward.`\
+https://nytimes.com/athletic/5953700/2024/11/27/daniel-jones-vikings-signing-kevin-oconnell/
+
 **The Briefing: Aston Villa 0 Juventus 0: Last-minute VAR drama, Kamara's return and Weah's central role**\
 `Jacob Tanswell and Greg O'Keeffe analyse the main talking points from Aston Villa's draw against Juventus`\
 https://nytimes.com/athletic/5949206/2024/11/27/aston-villa-juventus-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/world/asia/min-aung-hlaing-myanmar.html
 **Black Friday May Have Lost the Chaos but It’s Still Huge for Retailers**\
 `Black Friday remains one of the busiest shopping days of the year, but its impact has been diluted by monthlong holiday sales and the convenience of buying online.`\
 https://nytimes.com/2024/11/27/business/black-friday-shopping-cyber-monday.html
-
-**Am I a Hypocrite for Calling Donald Trump a Liar?**\
-`The magazine’s Ethicist columnist on hypocrisy.`\
-https://nytimes.com/2024/11/27/magazine/hypocrisy-trump-liar-ethics.html
 
