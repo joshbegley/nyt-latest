@@ -1,3 +1,7 @@
+**Judge Finds New York in Contempt, Clearing the Way to Take Over Rikers**\
+`The finding was a landmark in a court case that has stretched out over more than a decade. Plans for a receivership of New York City’s jails will be heard on Jan. 14.`\
+https://nytimes.com/2024/11/27/nyregion/rikers-contempt-receivership.html
+
 **Hull City sack head coach Tim Walter**\
 `Hull City have sacked head coach Tim Walter after a run of nine games without a win brought a fall into the Championship’s relegation zone.`\
 https://nytimes.com/athletic/5953052/2024/11/27/hull-city-sack-tim-walter/
