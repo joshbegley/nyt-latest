@@ -1,3 +1,7 @@
+**Yamal named Golden Boy for 2024, becomes youngest winner of award**\
+`Lamine Yamal has won the Golden Boy award after a starring role for club and country in 2024.`\
+https://nytimes.com/athletic/5953046/2024/11/27/lamine-yamal-golden-boy-award-win/
+
 **Hull City sack head coach Tim Walter**\
 `Hull City have sacked head coach Tim Walter after a run of nine games without a win brought a fall into the Championship’s relegation zone.`\
 https://nytimes.com/athletic/5953052/2024/11/27/hull-city-sack-tim-walter/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/5952537/2024/11/27/fantasy-basketball-outperformer-
 `Plus: Will an American drive for General Motors/Cadillac in 2026? `\
 https://nytimes.com/athletic/5952807/2024/11/27/f1-mailbag-las-vegas-gp-sainz-general-motors/
 
-**Judge Finds New York in Contempt, Clearing the Way to Take Over Rikers**\
+**Judge Finds New York in Contempt, Clearing the Way for Rikers Takeover**\
 `The finding was a landmark in a court case that has stretched out over more than a decade. Plans for a receivership of New York City’s jails will be heard on Jan. 14.`\
 https://nytimes.com/2024/11/27/nyregion/rikers-contempt-receivership.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/dining/cranberry-lemon-bars.html
 **BOS Nation considering name change after backlash**\
 `The team, which will join the league in 2026, said it launched a process to gather input on its name from stakeholders.`\
 https://nytimes.com/athletic/5952727/2024/11/27/bos-nation-considers-name-change/
-
-**Watch Ariana Grande Swing From a Chandelier in ‘Wicked’**\
-`The director Jon M. Chu narrates the musical scene, also featuring Cynthia Erivo, where Grande performs the song “Popular.”`\
-https://nytimes.com/2024/11/27/movies/wicked-clip-ariana-grande.html
 
