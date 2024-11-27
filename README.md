@@ -1,3 +1,15 @@
+**Brentford's Norgaard wins appeal against Everton red card**\
+`Brentford captain Christian Norgaard has avoided a three-game after the club successfully appealed against his red card for serious foul play in their 0-0 draw at Everton last weekend.`\
+https://nytimes.com/athletic/5952078/2024/11/27/norgaard-brentford-appeal-red-card/
+
+**A year later, did Arkansas make the right move sticking with Sam Pittman?**\
+`At 6-5 as the regular season wraps Saturday at Mizzou, is the program nearing an ascent? Or spinning its wheels after five seasons?`\
+https://nytimes.com/athletic/5951303/2024/11/27/arkansas-football-sam-pittman-bobby-petrino/
+
+**Penguins fan survey: Voice your opinion on Kyle Dubas, the rebuild and much more**\
+`What are your thoughts on the Penguins as they chart a path forward? Fill out our survey to be heard.`\
+https://nytimes.com/athletic/5949495/2024/11/27/penguins-fan-survey-rebuild/
+
 **The Pulse: An overnight MLB free-agent surprise**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5950328/2024/11/27/blake-snell-dodgers-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5950765/2024/11/27/bears-lions-thanksgiving-caleb-w
 **The story behind Vikings RB Cam Akers' emotional return from a second torn Achilles**\
 `Akers' contributions to the Vikings this season are a testament to both his internal strength and the support of his family.`\
 https://nytimes.com/athletic/5950904/2024/11/27/cam-akers-vikings-achilles-injury-return/
-
-**A Fragile Israel-Hezbollah Truce, and a Push to Make You Love Plastic**\
-`Plus, the A.I. granny scamming the scammers.`\
-https://nytimes.com/2024/11/27/podcasts/headlines-nyt-audio-app.html
-
-**Why the Blue Jackets may trade David Jiricek, and what would they seek in return?**\
-`A trade may not be imminent, but the Blue Jackets and their former first-round draft pick appear headed that way.`\
-https://nytimes.com/athletic/5951102/2024/11/27/blue-jackets-david-jiricek-trade/
-
-**Inside Conor Timmins' turnaround: How the Maple Leafs defenceman became a lineup lock**\
-`Conor Timmins has pushed back against popular perception. He has played all but two games for the Leafs and has been a difference maker.`\
-https://nytimes.com/athletic/5947019/2024/11/27/maple-leafs-conor-timmins-2/
 
