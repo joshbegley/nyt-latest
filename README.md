@@ -1,3 +1,11 @@
+**Auburn star Johni Broome leads Tigers past UNC, into Maui Invitational final**\
+`Broome had 18 first half points before eventually finishing with a game-high 23, plus 19 boards. `\
+https://nytimes.com/athletic/5951870/2024/11/27/auburn-unc-maui-invitational-semifinal/
+
+**Word of the Day: eminent domain**\
+`This term has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/27/learning/word-of-the-day-eminent-domain.html
+
 **Less star power, less firepower: 'Downgraded' PSG falling short in the Champions League**\
 `We have become used to seeing PSG beaten dramatically in the Champions League knock-out stages - they are at risk of not even doing that`\
 https://nytimes.com/athletic/5951751/2024/11/27/bayern-psg-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5949241/2024/11/27/spurs-fraser-forster-guglielmo-v
 **Why Ruben Amorim was frustrated by his Man United media commitments and why it won't ease up**\
 `"I just want to work with my players, nothing more, but I understand this is a different game here. So, let’s see.”`\
 https://nytimes.com/athletic/5950447/2024/11/27/ruben-amorim-media-complaint/
-
-**How Leeds' perfect timing allowed them to exploit Swansea's high defensive line**\
-`Leeds scored four times against Swansea on Sunday as their preparation paid off`\
-https://nytimes.com/athletic/5949007/2024/11/27/leeds-united-high-line-analysis/
-
-**Leicester's new manager search will be heavily influenced by financial constraints**\
-`The club would prefer an out-of-work manager who could start right away, and may seek a younger option who won't demand huge wages`\
-https://nytimes.com/athletic/5949444/2024/11/27/leicester-manager-search-psr-constraints/
 
