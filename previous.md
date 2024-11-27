@@ -1,3 +1,7 @@
+**How Kevin Lankinen, Canucks locked down the Bruins in shutout win: 3 takeaways**\
+`A supreme defensive effort got the Canucks' East Coast road trip off to a 2-0-0 start with a shutout in Boston.`\
+https://nytimes.com/athletic/5951554/2024/11/26/canucks-lankinen-debrusk-shutout-bruins/
+
 **Kent State becomes first 0-12 team since 2019 after 21st straight loss**\
 `Tuesday's loss marked the 21st straight for Kenni Burns' squad, as Kent State went 1-11 last season.`\
 https://nytimes.com/athletic/5951354/2024/11/26/kent-state-winless-record-buffalo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5951410/2024/11/26/memphis-basketball-michigan-stat
 **CFP rankings: Alabama, Clemson on outside looking in as ASU surges**\
 `No. 9 SMU moved into the bracket for the first time, giving the ACC two teams in the 12-team bracket alongside Miami.`\
 https://nytimes.com/athletic/5951393/2024/11/26/cfp-rankings-show-college-football-playoff-bracket/
-
-**Trump Taps Kevin Hassett to Lead National Economic Council**\
-`Mr. Hassett defended Donald Trump’s tax cuts and trade policies in his first administration but has also acknowledged that tariffs can weaken economic growth.`\
-https://nytimes.com/2024/11/26/us/politics/kevin-hassett-nec-trump.html
 

@@ -1,3 +1,7 @@
+**How Kevin Lankinen, Canucks locked down the Bruins in shutout win: 3 takeaways**\
+`A supreme defensive effort got the Canucks' East Coast road trip off to a 2-0-0 start with a shutout in Boston.`\
+https://nytimes.com/athletic/5951554/2024/11/26/canucks-lankinen-debrusk-shutout-bruins/
+
 **Kent State becomes first 0-12 team since 2019 after 21st straight loss**\
 `Tuesday's loss marked the 21st straight for Kenni Burns' squad, as Kent State went 1-11 last season.`\
 https://nytimes.com/athletic/5951354/2024/11/26/kent-state-winless-record-buffalo/
