@@ -1,3 +1,15 @@
+**Thousands Stream Homeward as Fragile Peace Begins in Lebanon**\
+`The cease-fire between Israel and Hezbollah began on Wednesday, but much hardship and uncertainty lie ahead after a yearlong war that killed thousands and left widespread destruction in Lebanon.`\
+https://nytimes.com/2024/11/27/world/middleeast/lebanon-ceasefire-israel-hezbollah.html
+
+**Rain Expected at Macy’s Thanksgiving Parade**\
+`Over half an inch of rain could accumulate throughout Thursday in Manhattan.`\
+https://nytimes.com/2024/11/27/nyregion/macys-thanksgiving-day-parade-weather-nyc.html
+
+**Northern Israel Somber as a Few Soldiers and Residents Trickle Through**\
+`While there were limited signs of life in the area, most residents were hesitant to head back without greater certainty that the cease-fire with Hezbollah would hold.`\
+https://nytimes.com/2024/11/27/world/middleeast/israel-soldiers-lebanon-ceasefire.html
+
 **Why Daniel Jones signing with the Vikings makes a world of sense for both sides**\
 `Working with Kevin O'Connell should only help Jones' game, while the ex-Giants QB could offer some insurance this year and going forward.`\
 https://nytimes.com/athletic/5953700/2024/11/27/daniel-jones-vikings-signing-kevin-oconnell/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/27/arts/helen-gallagher-dead.html
 **Tran Defeats Steel in House Pickup for Democrats**\
 `Derek Tran, a consumer rights lawyer and Army veteran, defeated Representative Michelle Steel, a Republican two-term incumbent, flipping a seat in Orange County, Calif.`\
 https://nytimes.com/2024/11/27/us/politics/california-house-tran-steel.html
-
-**Thursday Briefing: A Fragile Cease-fire in Lebanon**\
-`Plus, a post-election Thanksgiving.`\
-https://nytimes.com/2024/11/27/briefing/lebanon-cease-fire-trump-thanksgiving.html
-
-**Who is Myanmar’s Senior Gen. Min Aung Hlaing?**\
-`The leader of a military junta is accused of crimes against humanity over his persecution of the country’s Muslim Rohingya.`\
-https://nytimes.com/2024/11/27/world/asia/min-aung-hlaing-myanmar.html
-
-**Black Friday May Have Lost the Chaos but It’s Still Huge for Retailers**\
-`Black Friday remains one of the busiest shopping days of the year, but its impact has been diluted by monthlong holiday sales and the convenience of buying online.`\
-https://nytimes.com/2024/11/27/business/black-friday-shopping-cyber-monday.html
 
