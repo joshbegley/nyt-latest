@@ -1,3 +1,11 @@
+**What did we learn from Alabama and Houston's top-10 Players Era clash?**\
+`Mouhamed Dioubate was an X-factor, L.J. Cryer ran out of magic, and Alabama won a third straight meeting between two bruising contenders.`\
+https://nytimes.com/athletic/5951591/2024/11/26/houston-alabama-basketball-players-era/
+
+**How Kevin Lankinen, Canucks locked down Bruins in shutout win: 3 takeaways**\
+`A supreme defensive effort got the Canucks' East Coast road trip off to a 2-0-0 start with a shutout in Boston.`\
+https://nytimes.com/athletic/5951554/2024/11/26/canucks-lankinen-debrusk-shutout-bruins/
+
 **Ex-Bruin Jake DeBrusk, a goal scorer's tally and an offensively challenged former team**\
 `DeBrusk's goal for the Canucks in their 2-0 win versus Boston was the kind of goal the Bruins really needed.`\
 https://nytimes.com/athletic/5951613/2024/11/26/bruins-canucks-jake-debrusk-goal/
