@@ -1,3 +1,11 @@
+**French Intellectuals Decry a Dissident Writer’s Arrest in Algeria**\
+`An outspoken French-Algerian novelist returned to his homeland and was promptly taken into custody at age 75.`\
+https://nytimes.com/2024/11/27/world/europe/algeria-boualem-sansal-arrest.html
+
+**College football rivalry week model-predicted point differentials, totals for every game**\
+`Austin Mock's projection model predicts the point differential and point totals for every college football game this week.`\
+https://nytimes.com/athletic/5953572/2024/11/27/college-football-rivalry-week-model-projections/
+
 **Several Trump Administration Picks Face Bomb Threats and ‘Swatting’**\
 `A Trump transition team spokeswoman said law enforcement officials “acted quickly to ensure the safety of those who were targeted.”`\
 https://nytimes.com/2024/11/27/us/politics/trump-administration-picks-bomb-threats.html
