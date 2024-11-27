@@ -1,3 +1,7 @@
+**Less star power, less firepower: 'Downgraded' PSG falling short in the Champions League**\
+`We have become used to seeing PSG beaten dramatically in the Champions League knock-out stages - they are at risk of not even doing that`\
+https://nytimes.com/athletic/5951751/2024/11/27/bayern-psg-champions-league/
+
 **Rosenthal: Blake Snell, Dodgers not messing around with five-year, $182 million deal**\
 `But by agreeing to terms so quickly, Snell will give himself a better ramp-up than he got last year, when he signed late in the process.`\
 https://nytimes.com/athletic/5951778/2024/11/27/blake-snell-scott-boras-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949007/2024/11/27/leeds-united-high-line-analysis/
 **Leicester's new manager search will be heavily influenced by financial constraints**\
 `The club would prefer an out-of-work manager who could start right away, and may seek a younger option who won't demand huge wages`\
 https://nytimes.com/athletic/5949444/2024/11/27/leicester-manager-search-psr-constraints/
-
-**From Airdrie's promotion to scoring for Palace in the Premier League: Who is Justin Devenny?**\
-`The Northern Ireland midfielder moved to Selhurst Park after impressing in the Scottish third tier and has taken his chance in recent weeks`\
-https://nytimes.com/athletic/5942565/2024/11/27/devenny-crystal-palace-airdrieonians-northern-ireland/
 
