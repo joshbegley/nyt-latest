@@ -1,3 +1,7 @@
+**Volkswagen Says It Is Exiting China’s Xinjiang Region After 12 Years**\
+`VW and its joint venture partner, SAIC Motor, are transferring an assembly plant and test tracks after years of criticism from human rights activists.`\
+https://nytimes.com/2024/11/27/business/volkswagen-xinjiang-saic.html
+
 **Record November Snowfall Hits Seoul**\
 `The first snow of the late-fall season grounded flights and triggered a weather warning throughout the South Korean capital.`\
 https://nytimes.com/video/world/asia/100000009848263/snow-record-seoul.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire/he
 **Live Updates: Thousands Return to Southern Lebanon as Cease-Fire Takes Effect**\
 `Over a million people fled their homes as fighting intensified in recent months. Under the deal, both Israel and Hezbollah must withdraw from southern Lebanon.`\
 https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire
-
-**Premier League referee Coote investigated by FA over alleged betting breach**\
-`Suspended Premier League referee David Coote is being investigated by the Football Association (FA) following allegations he discussed issuing a yellow card with a friend before a match.`\
-https://nytimes.com/athletic/5951100/2024/11/27/david-coote-alleged-betting-breach/
 
