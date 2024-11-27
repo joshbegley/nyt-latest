@@ -1,3 +1,7 @@
+**Real Madrid defender Raul Asencio and his alleged involvement in sex-tape investigation**\
+`Asencio is due to start against Liverpool in the Champions League while under investigation for alleged distribution of a sex tape`\
+https://nytimes.com/athletic/5951188/2024/11/27/raul-asencio-real-madrid-sex-tape-investigation/
+
 **Inflation is Back in Focus as Trumponomics Looms Large Over Global Trade**\
 `Investors are bracing for the latest data as the president-elect’s economic agenda of cutting immigration and taxes, while raising tariffs takes shape.`\
 https://nytimes.com/2024/11/27/business/dealbook/inflation-trumponomics-pce-markets.html

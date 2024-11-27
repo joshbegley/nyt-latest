@@ -1,3 +1,7 @@
+**Real Madrid defender Raul Asencio and his alleged involvement in sex-tape investigation**\
+`Asencio is due to start against Liverpool in the Champions League while under investigation for alleged distribution of a sex tape`\
+https://nytimes.com/athletic/5951188/2024/11/27/raul-asencio-real-madrid-sex-tape-investigation/
+
 **Inflation is Back in Focus as Trumponomics Looms Large Over Global Trade**\
 `Investors are bracing for the latest data as the president-elect’s economic agenda of cutting immigration and taxes, while raising tariffs takes shape.`\
 https://nytimes.com/2024/11/27/business/dealbook/inflation-trumponomics-pce-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/world/middleeast/gaza-displaced-ceasefire.html
 **I.C.C. Prosecutor Seeks Arrest Warrant for Myanmar Junta Leader**\
 `The International Criminal Court’s chief prosecutor accused Senior Gen. Min Aung Hlaing of crimes against humanity toward the country’s Muslim Rohingya.`\
 https://nytimes.com/2024/11/27/world/asia/myanmar-junta-leader-rohingya.html
-
-**Spurs intend to trigger Ben Davies contract extension**\
-`Tottenham Hotspur intend to trigger the option in Ben Davies’ contract, keeping the Wales defender at the club for next season.`\
-https://nytimes.com/athletic/5952155/2024/11/27/tottenham-hotspur-intend-to-trigger-ben-davies-contract-extension/
 
