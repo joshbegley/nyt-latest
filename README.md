@@ -1,3 +1,7 @@
+**After Hunter Dickinson's ejection, KJ Adams and Kansas hit new gear vs. Duke**\
+`Dickinson's flagrant-2 foul will be the water cooler conversation on Wednesday: Was the contact his foot made with Maliq Brown a kick?`\
+https://nytimes.com/athletic/5951710/2024/11/26/hunter-dickinson-ejection-kansas-duke/
+
 **What did we learn from Alabama and Houston's top-10 Players Era clash?**\
 `Mouhamed Dioubate was an X-factor, L.J. Cryer ran out of magic, and Alabama won a third straight meeting between two bruising contenders.`\
 https://nytimes.com/athletic/5951591/2024/11/26/houston-alabama-basketball-players-era/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5951502/2024/11/26/college-football-rankings-sec-al
 **What will U.N. peacekeepers do under the new truce deal in Lebanon?**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/what-will-un-peacekeepers-do-under-the-new-truce-deal-in-lebanon
-
-**Corrections: Nov. 27, 2024**\
-`Corrections that appeared in print on Wednesday, Nov. 27, 2024.`\
-https://nytimes.com/2024/11/26/pageoneplus/corrections-nov-27-2024.html
 
