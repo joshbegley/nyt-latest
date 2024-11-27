@@ -1,3 +1,15 @@
+**Why Do the Lions and Cowboys Play on Thanksgiving Every Year?**\
+`The short answer: tradition.`\
+https://nytimes.com/2024/11/27/sports/football/lions-cowboys-thanksgiving-game-nfl.html
+
+**Evelyne de Pontbriand, Champion of Biodynamic Winemaking, Dies at 73**\
+`The latest in a long line of women to run her family winery, she helped bring worldwide attention to sustainable viniculture.`\
+https://nytimes.com/2024/11/27/dining/evelyne-de-pontbriand-dead.html
+
+**How to watch Auburn vs. Memphis: Maui Invitational final features two Tigers**\
+`It's a battle of Tiger teams in tonight's Maui Invitational final. No. 4 Auburn is heavily favored over Memphis.`\
+https://nytimes.com/athletic/5953066/2024/11/27/auburn-memphis-maui-how-to-watch-odds-preview/
+
 **Several Trump administration picks face bomb threats and ‘swatting.’**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2024/11/27/us/trump-news/several-trump-administration-picks-face-bomb-threats-and-swatting

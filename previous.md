@@ -1,3 +1,15 @@
+**Why Do the Lions and Cowboys Play on Thanksgiving Every Year?**\
+`The short answer: tradition.`\
+https://nytimes.com/2024/11/27/sports/football/lions-cowboys-thanksgiving-game-nfl.html
+
+**Evelyne de Pontbriand, Champion of Biodynamic Winemaking, Dies at 73**\
+`The latest in a long line of women to run her family winery, she helped bring worldwide attention to sustainable viniculture.`\
+https://nytimes.com/2024/11/27/dining/evelyne-de-pontbriand-dead.html
+
+**How to watch Auburn vs. Memphis: Maui Invitational final features two Tigers**\
+`It's a battle of Tiger teams in tonight's Maui Invitational final. No. 4 Auburn is heavily favored over Memphis.`\
+https://nytimes.com/athletic/5953066/2024/11/27/auburn-memphis-maui-how-to-watch-odds-preview/
+
 **Several Trump administration picks face bomb threats and ‘swatting.’**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2024/11/27/us/trump-news/several-trump-administration-picks-face-bomb-threats-and-swatting
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/27/opinion/nih-director-trump-jay-bhattacharya.html
 **Alongside Cease-Fire in Lebanon, Israeli Forces Keep Striking in Gaza**\
 `While Israel and Hezbollah were finalizing a cease-fire to halt the fighting in Lebanon, Israeli strikes killed 33 people in Gaza, according to local health authorities.`\
 https://nytimes.com/2024/11/27/world/middleeast/israel-gaza-strikes.html
-
-**Andy Paley, Whose Imprint Was All Over Pop Music, Dies at 73**\
-`Musician, singer, songwriter, producer and more, he collaborated with Madonna and a raft of other artists and helped resuscitate the career of the Beach Boys’ Brian Wilson.`\
-https://nytimes.com/2024/11/27/arts/music/andy-paley-dead.html
-
-**Colleges and education groups urge students to make painful choices to avoid immigration trouble.**\
-`By Zach Montague`\
-https://nytimes.com/live/2024/11/27/us/trump-news/colleges-and-education-groups-urge-students-to-make-painful-choices-to-avoid-immigration-trouble
-
-**NWSLPA chief defends Barbra Banda after criticism following award win: Explaining the controversy**\
-`Banda, 24, was named BBC’s Women’s Footballer of the Year on Tuesday after helping lead the Orlando Pride to the double.`\
-https://nytimes.com/athletic/5952678/2024/11/27/barbra-banda-bbc-award-explained/
 
