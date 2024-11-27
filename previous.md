@@ -1,3 +1,11 @@
+**F1 to race Italian GP until 2031 after reaching 6-year extension**\
+`Monza has hosted an F1 race every year since 1950, when the inaugural World Championship took place, except for in 1980.`\
+https://nytimes.com/athletic/5953161/2024/11/27/f1-italian-grand-prix-extension/
+
+**Judge Dismisses Defamation Suit Against Fox News Brought by Jan. 6 Figure**\
+`The suit was brought by Ray Epps, who was falsely characterized by Tucker Carlson and others as being a government agent who instigated the violence at the Capitol.`\
+https://nytimes.com/2024/11/27/us/politics/ray-epps-tucker-carlson-jan-6-defamation.html
+
 **Five centers the Flyers could target in a trade this season**\
 `Could a move for a center be in the cards for GM Daniel Briere and the Flyers at some point before the March 7 trade deadline?`\
 https://nytimes.com/athletic/5952822/2024/11/27/flyers-nhl-trade-targets-center/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5950815/2024/11/27/nfl-draft-order-2025-round-1-ful
 **China Has a New Playbook to Counter Trump: ‘Supply Chain Warfare’**\
 `A series of swipes at American companies show how China could take the initiative in a new trade war, using its economic dominance to exact pain.`\
 https://nytimes.com/2024/11/27/business/china-retaliation-skydio.html
-
-**​​Tell Us Your Memories of Keiko, the Whale From ‘Free Willy’**\
-`We want to hear your stories of the beloved celebrity orca, whose real-life return to the ocean is explored in our new podcast.`\
-https://nytimes.com/2024/11/27/podcasts/serial-keiko-free-willy-whale.html
-
-**Displaced Lebanese Rush to Return Home Following Cease-Fire**\
-`Roads were packed with cars as people displaced from southern and eastern Lebanon began returning to their homes after a cease-fire deal between Israel and Hezbollah.`\
-https://nytimes.com/video/world/middleeast/100000009848708/lebanon-displaced-cease-fire.html
 
