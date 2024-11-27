@@ -1,3 +1,7 @@
+**Ex-Giants QB Daniel Jones to sign with Vikings**\
+`Jones was released by the Giants last Friday after the team benched him earlier that week.`\
+https://nytimes.com/athletic/5952861/2024/11/27/giants-daniel-jones-sign-vikings/
+
 **Lebanese Cheer On a Cease-Fire as Thousands Return to Their Homes**\
 `Under the cease-fire agreement, Israel will withdraw its forces from Lebanon over the next 60 days, while Hezbollah will retreat from southern Lebanon, where the Lebanese military and United Nations peacekeepers are expected to operate.`\
 https://nytimes.com/video/world/middleeast/100000009848511/lebanon-ceasefire-israel-.html
