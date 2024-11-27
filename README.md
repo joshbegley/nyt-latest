@@ -1,3 +1,7 @@
+**Meet One of Hong Kong’s Last Remaining Pro-Democracy Activists**\
+`For Chan Po-ying, a labor rights leader, life is one of constant police surveillance, even on hikes. But she finds solace from tiny gestures of support.`\
+https://nytimes.com/2024/11/27/world/asia/hong-kong-democracy-activist.html
+
 **After Hunter Dickinson's ejection, KJ Adams and Kansas hit new gear vs. Duke**\
 `Dickinson's flagrant-2 foul will be the water cooler conversation on Wednesday: Was the contact his foot made with Maliq Brown a kick?`\
 https://nytimes.com/athletic/5951710/2024/11/26/hunter-dickinson-ejection-kansas-duke/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/crosswords/daily-puzzle-2024-11-27.html
 **Is SEC football mediocre this season? College Football Playoff rankings don’t lie**\
 `There’s no strong argument for a fourth SEC team right now, other than what “would” happen if this team or that team played.`\
 https://nytimes.com/athletic/5951502/2024/11/26/college-football-rankings-sec-alabama-georgia-tennessee/
-
-**What will U.N. peacekeepers do under the new truce deal in Lebanon?**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/what-will-un-peacekeepers-do-under-the-new-truce-deal-in-lebanon
 
