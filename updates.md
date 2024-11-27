@@ -1,3 +1,7 @@
+**Ireland Should Be the Happiest Country in Europe. Shouldn’t It?**\
+`There are the same dark subplots here that have made the position of other incumbent governments so precarious.`\
+https://nytimes.com/2024/11/27/opinion/ireland-election-simon-harris.html
+
 **Suns hand Lakers first loss in NBA Cup history with 27-point win: Key takeaways**\
 `The Lakers' path to defending their NBA Cup now requires a win over the Thunder and a little help from the Spurs.`\
 https://nytimes.com/athletic/5951730/2024/11/27/suns-lakers-nba-cup-results-takeaways/
