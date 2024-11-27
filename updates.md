@@ -1,3 +1,7 @@
+**Jets QB Aaron Rodgers addresses uncertain NFL future, 2025 plans**\
+`The Jets are looking at a potential rebuild after in-season firings of their coach and general manager.`\
+https://nytimes.com/athletic/5950722/2024/11/26/aaron-rodgers-2025-season-jets/
+
 **UConn suffers first back-to-back losses in 22 months with Colorado upset**\
 `Colorado made a concerted effort to take advantage of UConn’s precarious frontcourt foul trouble.`\
 https://nytimes.com/athletic/5951037/2024/11/26/uconn-loss-colorado-maui-invitational/
