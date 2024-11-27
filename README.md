@@ -1,3 +1,7 @@
+**Betting for (by) dummies: Lions, Bengals and not the Bears, oh my**\
+`While you're feasting on football, Jon Greenberg and Zac Jackson have some betting picks you can feast on as well.`\
+https://nytimes.com/athletic/5953106/2024/11/27/betting-for-by-dummies-detroit-lions-ohio-state/
+
 **F1 to race Italian GP until 2031 after reaching 6-year extension**\
 `Monza has hosted an F1 race every year since 1950, when the inaugural World Championship took place, except for in 1980.`\
 https://nytimes.com/athletic/5953161/2024/11/27/f1-italian-grand-prix-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952678/2024/11/27/barbra-banda-bbc-award-explained
 **Updated 2025 NFL Draft order: Jaguars at No. 1; how picks 1-32 stand heading into Week 13**\
 `Which teams will be picking top 10 in the NFL Draft? Who's going to hold the No. 1 pick? Track all the latest movement here. `\
 https://nytimes.com/athletic/5950815/2024/11/27/nfl-draft-order-2025-round-1-full/
-
-**China Has a New Playbook to Counter Trump: ‘Supply Chain Warfare’**\
-`A series of swipes at American companies show how China could take the initiative in a new trade war, using its economic dominance to exact pain.`\
-https://nytimes.com/2024/11/27/business/china-retaliation-skydio.html
 
