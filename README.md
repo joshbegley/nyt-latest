@@ -1,3 +1,7 @@
+**How badly does Ohio State need to beat Michigan? For the Buckeyes, it's everything**\
+`Michigan is down, and Ohio State has a Playoff bid locked up. And yet beating the Wolverines has never felt more important in Columbus.`\
+https://nytimes.com/athletic/5951190/2024/11/27/ohio-state-ryan-day-seniors-michigan/
+
 **Zaccharie Risacher might not be a typical No. 1 pick, but he's a good fit with Hawks**\
 `Risacher remains impactful when he isn’t scoring because he is constantly cutting.`\
 https://nytimes.com/athletic/5950626/2024/11/27/zaccharie-risacher-good-fit-hawks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/us/thanksgiving-travel-chicago-new-york.html
 **$400,000 Homes in Michigan, Pennsylvania and Vermont**\
 `A five-bedroom Tudor Revival house in Detroit, a 1925 rowhouse in South Philadelphia, and a two-bedroom cottage from 1920 in Manchester, Vt.`\
 https://nytimes.com/2024/11/27/realestate/400000-homes-in-michigan-pennsylvania-and-vermont.html
-
-**America’s Great Unifying Event: The Macy’s Thanksgiving Day Parade**\
-`The nostalgia-fueled production has been the most-watched entertainment program in the United States for the past three years, ahead of the Oscars and the World Series.`\
-https://nytimes.com/2024/11/27/business/media/macys-thanksgiving-day-parade-viewership-appeal.html
 
