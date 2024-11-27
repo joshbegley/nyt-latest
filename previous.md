@@ -1,3 +1,7 @@
+**Helen Gallagher, Winner of Two Tonys and Three Emmys, Dies at 98**\
+`She was honored on Broadway for roles in “Pal Joey” and “No, No, Nanette” and then turned to TV, where she won three Daytime Emmys for her work on “Ryan’s Hope.”`\
+https://nytimes.com/2024/11/27/arts/helen-gallagher-dead.html
+
 **Tran Defeats Steel in House Pickup for Democrats**\
 `Derek Tran, a consumer rights lawyer and Army veteran, defeated Representative Michelle Steel, a Republican two-term incumbent, flipping a seat in Orange County, Calif.`\
 https://nytimes.com/2024/11/27/us/politics/california-house-tran-steel.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/26/opinion/thepoint/icc-rohyinga-genocide
 **Trump Picks Keith Kellogg to Be Envoy to Ukraine and Russia**\
 `The retired Army lieutenant general could play a key role in any negotiations to end the yearslong war between the countries.`\
 https://nytimes.com/2024/11/27/us/politics/trump-keith-kellogg-ukraine-russia.html
-
-**Chiefs' Pacheco to return, Raiders' O'Connell to start in Week 13**\
-`Pacheco hasn't played since Week 2 as he recovered from a fractured fibula and O'Connell has been out since Week 7.`\
-https://nytimes.com/athletic/5953623/2024/11/27/chiefs-isiah-pacheco-raiders-aidan-oconnell-black-friday/
 

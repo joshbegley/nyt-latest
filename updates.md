@@ -1,3 +1,7 @@
+**Helen Gallagher, Winner of Two Tonys and Three Emmys, Dies at 98**\
+`She was honored on Broadway for roles in “Pal Joey” and “No, No, Nanette” and then turned to TV, where she won three Daytime Emmys for her work on “Ryan’s Hope.”`\
+https://nytimes.com/2024/11/27/arts/helen-gallagher-dead.html
+
 **Tran Defeats Steel in House Pickup for Democrats**\
 `Derek Tran, a consumer rights lawyer and Army veteran, defeated Representative Michelle Steel, a Republican two-term incumbent, flipping a seat in Orange County, Calif.`\
 https://nytimes.com/2024/11/27/us/politics/california-house-tran-steel.html
