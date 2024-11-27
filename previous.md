@@ -1,3 +1,7 @@
+**The Fed’s Favorite Inflation Measure Sped Up in October**\
+`Inflation has been stubborn in recent months. Now, President-elect Donald J. Trump’s tariffs loom as a potential risk.`\
+https://nytimes.com/2024/11/27/business/economy/inflation-pce-fed-interest-rates.html
+
 **Cowboys Today: Does Rico Dowdle have a spot in running back room beyond this season?**\
 `Dowdle has produced when given the opportunity this season. What will that mean for his future in Dallas?`\
 https://nytimes.com/athletic/5951738/2024/11/27/cowboys-today-rico-dowdle-thanksgiving-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5943228/2024/11/27/nba-lookahead-nikola-jokic-mvp/
 **3 Americans, Including F.B.I. Informant, Are Said to Be Freed in China Swap**\
 `The three men, John Leung, Kai Li and Mark Swidan, are on planes heading to the United States, officials said.`\
 https://nytimes.com/2024/11/27/world/asia/us-china-prisoner-swap.html
-
-**At This French Exhibition, Check Your Clothes at the Door**\
-`A museum in Marseille, France, has a show dedicated to the history of social nudity. On a few special nights, visitors strolled around naked, too.`\
-https://nytimes.com/2024/11/27/arts/design/naturism-exhibition-naked-mucem-marseille.html
 

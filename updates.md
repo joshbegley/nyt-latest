@@ -1,3 +1,7 @@
+**The Fed’s Favorite Inflation Measure Sped Up in October**\
+`Inflation has been stubborn in recent months. Now, President-elect Donald J. Trump’s tariffs loom as a potential risk.`\
+https://nytimes.com/2024/11/27/business/economy/inflation-pce-fed-interest-rates.html
+
 **Cowboys Today: Does Rico Dowdle have a spot in running back room beyond this season?**\
 `Dowdle has produced when given the opportunity this season. What will that mean for his future in Dallas?`\
 https://nytimes.com/athletic/5951738/2024/11/27/cowboys-today-rico-dowdle-thanksgiving-giants/
