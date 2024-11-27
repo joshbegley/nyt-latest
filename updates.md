@@ -1,3 +1,11 @@
+**'It's so fun to watch': With Giannis out, Damian Lillard puts on a show against the Heat**\
+`With Antetokounmpo declared out just before tip-off, Lillard's 37 points and 12 assists helped the Bucks move to 3-0 in NBA Cup play.`\
+https://nytimes.com/athletic/5951972/2024/11/27/giannis-antetokounmpo-out-damian-lillard-bucks/
+
+**Postecoglou rules out signing Vicario replacement**\
+`Ange Postecoglou has ruled out Tottenham Hotspur signing a free agent to ease their injury woes after first-choice goalkeeper Guglielmo Vicario fractured his ankle.`\
+https://nytimes.com/athletic/5952464/2024/11/27/spurs-goalkeeper-vicario-postecoglou/
+
 **The Fed’s Favorite Inflation Measure Sped Up in October**\
 `Inflation has been stubborn in recent months. Now, President-elect Donald J. Trump’s tariffs loom as a potential risk.`\
 https://nytimes.com/2024/11/27/business/economy/inflation-pce-fed-interest-rates.html
