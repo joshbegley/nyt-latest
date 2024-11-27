@@ -1,3 +1,11 @@
+**Jim Abrahams, 80, Dies; One of Trio Behind ‘Airplane!’ and ‘Naked Gun’**\
+`Along with David and Jerry Zucker, he revolutionized film comedy with a style of straight-faced, fast-paced parody.`\
+https://nytimes.com/2024/11/27/movies/jim-abrahams-dead.html
+
+**Giants legend Brandon Crawford announces retirement**\
+`A three-time All-Star and four-time Gold Glove winner, Crawford left his mark on the Bay Area during 13 seasons.`\
+https://nytimes.com/athletic/5954065/2024/11/27/giants-brandon-crawford-retirement/
+
 **‘Queer’ Review: The Seductive, Damaged Charm of Daniel Craig**\
 `The star kills off his Bond to inhabit a dissolute American expat in Luca Guadagnino’s handsome adaptation of the William S. Burroughs novella.`\
 https://nytimes.com/2024/11/27/movies/queer-review-daniel-craig-luca-guadagnino.html
