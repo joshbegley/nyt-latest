@@ -1,3 +1,7 @@
+**F1 mailbag: Why wasn't Carlos Sainz penalized at the Las Vegas Grand Prix?**\
+`Plus: Will an American drive for General Motors/Cadillac in 2026? `\
+https://nytimes.com/athletic/5952807/2024/11/27/f1-mailbag-las-vegas-gp-sainz-general-motors/
+
 **Judge Finds City in Contempt and Is ‘Inclined’ to Take Control of Rikers**\
 `The finding was a landmark in a court case that has stretched out over more than a decade. Plans for a receivership of New York City’s jails will be heard on Jan. 14.`\
 https://nytimes.com/2024/11/27/nyregion/rikers-contempt-receivership.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/world/middleeast/hezbollah-israel-ceasefire.html
 **Ex-Giants QB Daniel Jones to sign with Vikings**\
 `Jones was released by the Giants last Friday after the team benched him earlier that week.`\
 https://nytimes.com/athletic/5952861/2024/11/27/giants-daniel-jones-sign-vikings/
-
-**Lebanese Cheer On a Cease-Fire as Thousands Return to Their Homes**\
-`Under the cease-fire agreement, Israel will withdraw its forces from Lebanon over the next 60 days, while Hezbollah will retreat from southern Lebanon, where the Lebanese military and United Nations peacekeepers are expected to operate.`\
-https://nytimes.com/video/world/middleeast/100000009848511/lebanon-ceasefire-israel-.html
 
