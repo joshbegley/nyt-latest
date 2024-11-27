@@ -1,3 +1,15 @@
+**Congress Is Poised to Delay Again on Farm Bill, Leaving Families in Limbo**\
+`The agriculture and nutrition measure was last updated in 2018 and originally expired two years ago. Farmers fear the Trump administration’s priorities will eclipse theirs next year.`\
+https://nytimes.com/2024/11/27/us/politics/farm-bill-congress.html
+
+**Saving Electric Vehicles From Donald Trump**\
+`Readers offer environmental and business reasons to support E.V.s. Also: Women in the military; the Amsterdam pogrom; resentment of migrants; true crime.`\
+https://nytimes.com/2024/11/27/opinion/electric-vehicles-trump.html
+
+**France Suggests It Would Not Immediately Arrest Netanyahu Despite I.C.C. Warrant**\
+`The foreign ministry did not say outright that Prime Minister Benjamin Netanyahu of Israel would be free to travel to France, but it argued that an I.C.C. rule on immunity may apply to him.`\
+https://nytimes.com/2024/11/27/world/middleeast/france-netanyahu-arrest-icc.html
+
 **Suarez signs Miami contract extension through 2025 MLS season**\
 `Luis Suarez has signed a contract extension with Inter Miami that will keep him with the club through the 2025 Major League Soccer (MLS) season.`\
 https://nytimes.com/athletic/5952734/2024/11/27/luis-suarez-inter-miami-new-contract/

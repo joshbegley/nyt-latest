@@ -1,3 +1,11 @@
+**Congress Is Poised to Delay Again on Farm Bill, Leaving Families in Limbo**\
+`The agriculture and nutrition measure was last updated in 2018 and originally expired two years ago. Farmers fear the Trump administration’s priorities will eclipse theirs next year.`\
+https://nytimes.com/2024/11/27/us/politics/farm-bill-congress.html
+
+**Saving Electric Vehicles From Donald Trump**\
+`Readers offer environmental and business reasons to support E.V.s. Also: Women in the military; the Amsterdam pogrom; resentment of migrants; true crime.`\
+https://nytimes.com/2024/11/27/opinion/electric-vehicles-trump.html
+
 **Suarez signs Miami contract extension through 2025 MLS season**\
 `Luis Suarez has signed a contract extension with Inter Miami that will keep him with the club through the 2025 Major League Soccer (MLS) season.`\
 https://nytimes.com/athletic/5952734/2024/11/27/luis-suarez-inter-miami-new-contract/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5952734/2024/11/27/luis-suarez-inter-miami-new-cont
 https://nytimes.com/2024/11/27/style/tiny-modern-love-stories-i-couldnt-stop-looking-at-her.html
 
 **France Suggests It Would Not Immediately Arrest Netanyahu Despite I.C.C. Warrant**\
-`The foreign ministry did not say outright that Prime Minister Benjamin Netanyahu of Israel would be free to travel to France, but it argued that I.C.C. rules on immunity applied to him.`\
+`The foreign ministry did not say outright that Prime Minister Benjamin Netanyahu of Israel would be free to travel to France, but it argued that an I.C.C. rule on immunity may apply to him.`\
 https://nytimes.com/2024/11/27/world/middleeast/france-netanyahu-arrest-icc.html
 
 **LIV Golf to hire former 76ers exec as new CEO**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5951972/2024/11/27/giannis-antetokounmpo-out-damian
 **Postecoglou rules out signing Vicario replacement**\
 `Ange Postecoglou has ruled out Tottenham Hotspur signing a free agent to ease their injury woes after first-choice goalkeeper Guglielmo Vicario fractured his ankle.`\
 https://nytimes.com/athletic/5952464/2024/11/27/spurs-goalkeeper-vicario-postecoglou/
-
-**The Fed’s Favorite Inflation Measure Sped Up in October**\
-`Inflation has been stubborn in recent months. Now, President-elect Donald J. Trump’s tariffs loom as a potential risk.`\
-https://nytimes.com/2024/11/27/business/economy/inflation-pce-fed-interest-rates.html
-
-**Cowboys Today: Does Rico Dowdle have a spot in running back room beyond this season?**\
-`Dowdle has produced when given the opportunity this season. What will that mean for his future in Dallas?`\
-https://nytimes.com/athletic/5951738/2024/11/27/cowboys-today-rico-dowdle-thanksgiving-giants/
 
