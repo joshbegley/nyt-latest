@@ -1,3 +1,7 @@
+**‘Queer’ Review: The Seductive, Damaged Charm of Daniel Craig**\
+`The star kills off his Bond to inhabit a dissolute American expat in Luca Guadagnino’s handsome adaptation of the William S. Burroughs novella.`\
+https://nytimes.com/2024/11/27/movies/queer-review-daniel-craig-luca-guadagnino.html
+
 **What's wrong with Fred Warner? 49ers linebacker has been playing with a broken ankle**\
 `Just like last Wednesday, Brock Purdy didn't throw much in practice while Nick Bosa and Trent Williams didn't practice at all. `\
 https://nytimes.com/athletic/5954006/2024/11/27/fred-warner-49ers-broken-ankle/
