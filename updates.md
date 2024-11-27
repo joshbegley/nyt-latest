@@ -1,3 +1,15 @@
+**Maresca rules out selling Nkunku in January**\
+`Enzo Maresca says striker Christopher Nkunku is a big part of his plans at Chelsea and is not going to be sold in January.`\
+https://nytimes.com/athletic/5953690/2024/11/27/chelsea-nkunku-transfer-january/
+
+**Kelowna Rockets win bid to host 2026 Memorial Cup**\
+`The Kelowna Rockets have won the bid process to host the 2026 Memorial Cup, the Canadian Hockey League announced on Wednesday afternoon.`\
+https://nytimes.com/athletic/5953627/2024/11/27/kelowna-rockets-2026-memorial-cup-host/
+
+**What the International Criminal Court Gets Right**\
+`Prosecuting crimes against humanity in Myanmar couldn’t be more important to the rules-based order.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/icc-rohyinga-genocide
+
 **Trump Picks Keith Kellogg to Be Envoy to Ukraine and Russia**\
 `The retired Army lieutenant general could play a key role in any negotiations to end the yearslong war between the countries.`\
 https://nytimes.com/2024/11/27/us/politics/trump-keith-kellogg-ukraine-russia.html

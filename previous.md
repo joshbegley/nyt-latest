@@ -1,3 +1,15 @@
+**Maresca rules out selling Nkunku in January**\
+`Enzo Maresca says striker Christopher Nkunku is a big part of his plans at Chelsea and is not going to be sold in January.`\
+https://nytimes.com/athletic/5953690/2024/11/27/chelsea-nkunku-transfer-january/
+
+**Kelowna Rockets win bid to host 2026 Memorial Cup**\
+`The Kelowna Rockets have won the bid process to host the 2026 Memorial Cup, the Canadian Hockey League announced on Wednesday afternoon.`\
+https://nytimes.com/athletic/5953627/2024/11/27/kelowna-rockets-2026-memorial-cup-host/
+
+**What the International Criminal Court Gets Right**\
+`Prosecuting crimes against humanity in Myanmar couldn’t be more important to the rules-based order.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/icc-rohyinga-genocide
+
 **Trump Picks Keith Kellogg to Be Envoy to Ukraine and Russia**\
 `The retired Army lieutenant general could play a key role in any negotiations to end the yearslong war between the countries.`\
 https://nytimes.com/2024/11/27/us/politics/trump-keith-kellogg-ukraine-russia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/27/world/asia/islamabad-pakistan-protest-pti.html
 **What’s in Our Queue? ‘Elden Ring’ and More**\
 `By Paul Mozur`\
 https://nytimes.com/card/2024/11/27/arts/editors-recommendations-eldenring
-
-**The Triumph of the Gobbler Sandwich**\
-`The classic Thanksgiving leftovers sandwich has cultivated a whole new fan base at chain stores like Wawa.`\
-https://nytimes.com/2024/11/27/dining/thanksgiving-leftover-sandwiches.html
-
-**Moscow Expels 2 German Journalists, Accusing Berlin of Closing Russian TV Bureau**\
-`The German government denied it had taken action against Russia’s Channel One office in Berlin.`\
-https://nytimes.com/2024/11/27/world/europe/russia-german-journalists-expelled.html
-
-**French Intellectuals Decry a Dissident Writer’s Arrest in Algeria**\
-`An outspoken French-Algerian novelist returned to his homeland and was promptly taken into custody at age 75.`\
-https://nytimes.com/2024/11/27/world/europe/algeria-boualem-sansal-arrest.html
 
