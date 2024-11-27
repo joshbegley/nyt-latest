@@ -1,3 +1,15 @@
+**Musk’s Slashing of the Federal Budget Faces Big Hurdles**\
+`The so-called Department of Government Efficiency, with Elon Musk as co-leader, has advantages that past budget-cutters did not, but laws and court challenges can still make change slow and difficult.`\
+https://nytimes.com/2024/11/27/us/politics/elon-musk-federal-budget.html
+
+**Manfred Ohrenstein, Liberal Lion of N.Y. Legislature, Dies at 99**\
+`He entered the State Senate as a reformer but during 34 years became part of the system he sought to reform.`\
+https://nytimes.com/2024/11/27/nyregion/manfred-ohrenstein-dead.html
+
+**Pakistan’s Capital Is Turned Upside Down by Unending Protests**\
+`Residents of Islamabad are tiring of regular demonstrations demanding the release of the former prime minister Imran Khan, with the marches leading to clashes with security forces.`\
+https://nytimes.com/2024/11/27/world/asia/islamabad-pakistan-protest-pti.html
+
 **What’s in Our Queue? ‘Elden Ring’ and More**\
 `By Paul Mozur`\
 https://nytimes.com/card/2024/11/27/arts/editors-recommendations-eldenring
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/27/arts/nyc-holiday-events-guide.html
 **Commanders CB Marshon Lattimore to practice for first time since trade**\
 `Lattimore has been dealing with a hamstring injury since before the acquisition, last playing with the Saints in Week 8.`\
 https://nytimes.com/athletic/5953343/2024/11/27/commanders-marshon-lattimore-practice-hamstring-trade/
-
-**NFL Week 13 fantasy football, betting cheat sheet: Will Montgomery be ready for Thursday?**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5947140/2024/11/27/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
-
-**NFL Week 13 odds, picks for Thanksgiving Day games**\
-`Odds, picks and previews for all three Thanksgiving Day games. `\
-https://nytimes.com/athletic/5949929/2024/11/27/nfl-week-13-odds-picks-thanksgiving/
-
-**Why Auston Matthews won't return to Maple Leafs lineup vs. Panthers: 'Not a healing thing'**\
-`Matthews will miss his ninth straight game with a mysterious injury, but Maple Leafs coach Craig Berube said "he's feeling good."`\
-https://nytimes.com/athletic/5953218/2024/11/27/auston-matthews-maple-leafs-injury-nhl-panthers/
 
