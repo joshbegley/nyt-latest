@@ -1,3 +1,11 @@
+**The NBA can tinker with the All-Star Game all it wants, but there's only one way to fix it**\
+`Any format changes are but Scotch Tape. Any concocted gimmicks are covering up the real issue with the NBA's All-Star Game.`\
+https://nytimes.com/athletic/5952260/2024/11/27/nba-all-star-game-format-issues/
+
+**Until Saturday: The SEC's bracket fallout**\
+`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
+https://nytimes.com/athletic/5952323/2024/11/27/college-football-playoff-rankings-bracket-georgia-tennessee-until-saturday/
+
 **What to Know About the Israel-Hezbollah Cease-Fire**\
 `Under the agreement, Israel will gradually withdraw its forces from Lebanon over the next 60 days, and Hezbollah will not entrench itself near the Israeli border.`\
 https://nytimes.com/2024/11/27/world/middleeast/israel-lebanon-ceasefire.html

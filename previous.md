@@ -1,3 +1,11 @@
+**The NBA can tinker with the All-Star Game all it wants, but there's only one way to fix it**\
+`Any format changes are but Scotch Tape. Any concocted gimmicks are covering up the real issue with the NBA's All-Star Game.`\
+https://nytimes.com/athletic/5952260/2024/11/27/nba-all-star-game-format-issues/
+
+**Until Saturday: The SEC's bracket fallout**\
+`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
+https://nytimes.com/athletic/5952323/2024/11/27/college-football-playoff-rankings-bracket-georgia-tennessee-until-saturday/
+
 **What to Know About the Israel-Hezbollah Cease-Fire**\
 `Under the agreement, Israel will gradually withdraw its forces from Lebanon over the next 60 days, and Hezbollah will not entrench itself near the Israeli border.`\
 https://nytimes.com/2024/11/27/world/middleeast/israel-lebanon-ceasefire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5951710/2024/11/27/hunter-dickinson-ejection-kansas
 **Kevin Durant and Bradley Beal return, and the Suns hit reset after a bad stretch**\
 `After a miserable seven-game stretch, the Suns hit "reset" Tuesday night, and finally looked like the team they were earlier this season.`\
 https://nytimes.com/athletic/5951887/2024/11/27/phoenix-suns-kevin-durant-bradley-beal-return-lakers/
-
-**Acheampong back in Chelsea first-team training ahead of Heidenheim trip**\
-`Chelsea academy defender Josh Acheampong trained with the first-team squad this morning (Wednesday) — a sign that his exile from competitive action could be over.`\
-https://nytimes.com/athletic/5952156/2024/11/27/josh-acheampong-chelsea-training/
-
-**Mystery Drones Spotted Over U.S. Air Bases in Britain**\
-`Small unmanned craft were seen flying over four bases in England, the U.S. Air Force in Europe said in a statement. The Pentagon noted that there had not been “any significant mission impact.”`\
-https://nytimes.com/2024/11/27/world/europe/drones-us-air-bases-uk.html
 
