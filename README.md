@@ -1,3 +1,7 @@
+**Record November Snowfall Hits Seoul**\
+`The first snow of the late-fall season grounded flights and triggered a weather warning throughout the South Korean capital.`\
+https://nytimes.com/video/world/asia/100000009848263/snow-record-seoul.html
+
 **The Sidewalk Fruit Vendor Who Sold a $6.2 Million Banana for 25 Cents**\
 `A 74-year-old immigrant who works outside Sotheby’s shares a basement in the Bronx and works 12-hour shifts. He was stunned to hear what his banana went for at auction.`\
 https://nytimes.com/2024/11/27/nyregion/banana-auction-sothebys.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire
 **Premier League referee Coote investigated by FA over alleged betting breach**\
 `Suspended Premier League referee David Coote is being investigated by the Football Association (FA) following allegations he discussed issuing a yellow card with a friend before a match.`\
 https://nytimes.com/athletic/5951100/2024/11/27/david-coote-alleged-betting-breach/
-
-**Jimmy Kimmel Doubts Trump’s Grasp of Economics**\
-`Kimmel called the president-elect’s plan to hit Mexico, Canada and China with sweeping tariffs “the dumbest thing he’s come up with since Don Jr.”`\
-https://nytimes.com/2024/11/27/arts/television/jimmy-kimmel-trump-tariffs.html
 
