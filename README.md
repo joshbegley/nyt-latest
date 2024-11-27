@@ -1,3 +1,35 @@
+**The Sidewalk Fruit Vendor Who Sold a $6.2 Million Banana for 25 Cents**\
+`A 74-year-old immigrant who works outside Sotheby’s shares a basement in the Bronx and works 12-hour shifts. He was stunned to hear what his banana went for at auction.`\
+https://nytimes.com/2024/11/27/nyregion/banana-auction-sothebys.html
+
+**Travel Day**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/11/27/learning/travel-day.html
+
+**On Big Pharma, Food and Agriculture, These Are Kennedy’s Unexpected Bedfellows**\
+`When it comes to weeding out corporate influence, Robert F. Kennedy Jr.’s ideas often align best with some of Trump’s loudest critics.`\
+https://nytimes.com/2024/11/27/health/rfk-jr-michelle-obama-bernie-sanders.html
+
+**Escape From New York? For Thanksgiving, You Have to Have a Plan.**\
+`Getting to any of the airports that serve New York City can take too long or cost too much. Devising a way to ease the journey is its own holiday ritual.`\
+https://nytimes.com/2024/11/27/nyregion/nyc-thanksgiving-travel-airports.html
+
+**Why a Pasture-Raised Thanksgiving Turkey Costs $95**\
+`Humanely raised turkeys are often more expensive because they eat high-quality food, require more space, and take extra time to raise.`\
+https://nytimes.com/2024/11/27/nyregion/turkey-pasture-raised-cost.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/27/crosswords/spelling-bee-forum.html
+
+**Here is the latest on the cease-fire in Lebanon.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire/here-is-the-latest-on-the-cease-fire-in-lebanon
+
+**Live Updates: Thousands Return to Southern Lebanon as Cease-Fire Takes Effect**\
+`Over a million people fled their homes as fighting intensified in recent months. Under the deal, both Israel and Hezbollah must withdraw from southern Lebanon.`\
+https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire
+
 **Premier League referee Coote investigated by FA over alleged betting breach**\
 `Suspended Premier League referee David Coote is being investigated by the Football Association (FA) following allegations he discussed issuing a yellow card with a friend before a match.`\
 https://nytimes.com/athletic/5951100/2024/11/27/david-coote-alleged-betting-breach/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/5951100/2024/11/27/david-coote-alleged-betting-brea
 **Jimmy Kimmel Doubts Trump’s Grasp of Economics**\
 `Kimmel called the president-elect’s plan to hit Mexico, Canada and China with sweeping tariffs “the dumbest thing he’s come up with since Don Jr.”`\
 https://nytimes.com/2024/11/27/arts/television/jimmy-kimmel-trump-tariffs.html
-
-**Auburn star Johni Broome leads Tigers past UNC, into Maui Invitational final**\
-`Broome had 18 first half points before eventually finishing with a game-high 23, plus 19 boards. `\
-https://nytimes.com/athletic/5951870/2024/11/27/auburn-unc-maui-invitational-semifinal/
-
-**Word of the Day: eminent domain**\
-`This term has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/11/27/learning/word-of-the-day-eminent-domain.html
-
-**Less star power, less firepower: 'Downgraded' PSG falling short in the Champions League**\
-`We have become used to seeing PSG beaten dramatically in the Champions League knock-out stages - they are at risk of not even doing that`\
-https://nytimes.com/athletic/5951751/2024/11/27/bayern-psg-champions-league/
-
-**Rosenthal: Blake Snell, Dodgers not messing around with 5-year, $182 million deal**\
-`By agreeing to terms so quickly, Snell gives himself a better ramp-up than he got last year, when he signed late in the process.`\
-https://nytimes.com/athletic/5951778/2024/11/27/blake-snell-scott-boras-dodgers/
-
-**For the Dodgers, signing Blake Snell always made sense**\
-`The Dodgers have long been fascinated with Snell, and now the left-hander joins an organization in need of more top-of-the-line pitching. `\
-https://nytimes.com/athletic/5951767/2024/11/27/los-angeles-dodgers-blake-snell-analysis/
-
-**Ireland Is Rich. That Doesn’t Mean It’s Happy.**\
-`There are the same dark subplots here that have made the position of other incumbent governments so precarious.`\
-https://nytimes.com/2024/11/27/opinion/ireland-election-simon-harris.html
-
-**Suns hand Lakers first loss in NBA Cup history with 27-point win: Key takeaways**\
-`The Lakers' path to defending their NBA Cup now requires a win over the Thunder and a little help from the Spurs.`\
-https://nytimes.com/athletic/5951730/2024/11/27/suns-lakers-nba-cup-results-takeaways/
-
-**Chelsea are no longer 'Cole Palmer FC' - his marked-man status is forcing others to step up**\
-`Palmer is now getting the treatment reserved for superstars - his attacking statistics are down but his team-mates are thriving `\
-https://nytimes.com/athletic/5947386/2024/11/27/chelsea-cole-palmer-maresca-options/
 
