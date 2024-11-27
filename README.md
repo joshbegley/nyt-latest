@@ -1,3 +1,11 @@
+**'It's so fun to watch': With Giannis out, Damian Lillard puts on a show against the Heat**\
+`With Antetokounmpo declared out just before tip-off, Lillard's 37 points and 12 assists helped the Bucks move to 3-0 in NBA Cup play.`\
+https://nytimes.com/athletic/5951972/2024/11/27/giannis-antetokounmpo-out-damian-lillard-bucks/
+
+**Postecoglou rules out signing Vicario replacement**\
+`Ange Postecoglou has ruled out Tottenham Hotspur signing a free agent to ease their injury woes after first-choice goalkeeper Guglielmo Vicario fractured his ankle.`\
+https://nytimes.com/athletic/5952464/2024/11/27/spurs-goalkeeper-vicario-postecoglou/
+
 **The Fed’s Favorite Inflation Measure Sped Up in October**\
 `Inflation has been stubborn in recent months. Now, President-elect Donald J. Trump’s tariffs loom as a potential risk.`\
 https://nytimes.com/2024/11/27/business/economy/inflation-pce-fed-interest-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5952632/2024/11/27/thanksgiving-weekend-nfl-schedul
 **The Bounce: Lakers finally lose NBA Cup game; Chef Reactions chimes in**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5952206/2024/11/27/chef-reactions-lebron-james-lakers-nba-the-bounce/
-
-**NBA Lookahead: Can Nikola Jokić overcome voter fatigue and win another MVP?**\
-`More exciting NBA Cup action arrives on Friday. And a look back on the Reign Man.`\
-https://nytimes.com/athletic/5943228/2024/11/27/nba-lookahead-nikola-jokic-mvp/
-
-**3 Americans, Including F.B.I. Informant, Are Said to Be Freed in China Swap**\
-`The three men, John Leung, Kai Li and Mark Swidan, are on planes heading to the United States, officials said.`\
-https://nytimes.com/2024/11/27/world/asia/us-china-prisoner-swap.html
 
