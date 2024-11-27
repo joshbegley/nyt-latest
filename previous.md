@@ -1,3 +1,7 @@
+**Commanders CB Marshon Lattimore to practice for first time since trade**\
+`Lattimore has been dealing with a hamstring injury since before the acquisition, last playing with the Saints in Week 8.`\
+https://nytimes.com/athletic/5953343/2024/11/27/commanders-marshon-lattimore-practice-hamstring-trade/
+
 **NFL Week 13 fantasy football, betting cheat sheet: Will Montgomery be ready for Thursday?**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5947140/2024/11/27/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/27/us/trump-news/several-trump-administration-p
 **Betting for (by) dummies: Lions, Bengals and not the Bears, oh my**\
 `While you're feasting on football, Jon Greenberg and Zac Jackson have some betting picks you can feast on as well.`\
 https://nytimes.com/athletic/5953106/2024/11/27/betting-for-by-dummies-detroit-lions-ohio-state/
-
-**F1 to race Italian GP until 2031 after reaching 6-year extension**\
-`Monza has hosted an F1 race every year since 1950, when the inaugural world championship took place, except for in 1980.`\
-https://nytimes.com/athletic/5953161/2024/11/27/f1-italian-grand-prix-extension/
 

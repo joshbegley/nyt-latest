@@ -1,3 +1,7 @@
+**Commanders CB Marshon Lattimore to practice for first time since trade**\
+`Lattimore has been dealing with a hamstring injury since before the acquisition, last playing with the Saints in Week 8.`\
+https://nytimes.com/athletic/5953343/2024/11/27/commanders-marshon-lattimore-practice-hamstring-trade/
+
 **NFL Week 13 fantasy football, betting cheat sheet: Will Montgomery be ready for Thursday?**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5947140/2024/11/27/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
