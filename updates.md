@@ -1,3 +1,7 @@
+**What’s a Democratic Billionaire to Do Now?**\
+`The party’s donor class is still wrestling with Donald Trump’s victory, worried about retribution and sluggish liberal energy. Some rich Democrats are even pondering leaving the country.`\
+https://nytimes.com/2024/11/27/us/politics/democratic-donors-reid-hoffman-democracy-alliance.html
+
 **'It's so fun to watch': With Giannis out, Damian Lillard puts on a show against the Heat**\
 `With Antetokounmpo declared out just before tip-off, Lillard's 37 points and 12 assists helped the Bucks move to 3-0 in NBA Cup play.`\
 https://nytimes.com/athletic/5951972/2024/11/27/giannis-antetokounmpo-out-damian-lillard-bucks/
