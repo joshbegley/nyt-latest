@@ -1,3 +1,7 @@
+**Chinese Automakers Tell Suppliers to Cut Costs as Price War Deepens**\
+`China’s electric vehicle market is the world’s largest — and also its most cutthroat, with dozens of brands jostling for position.`\
+https://nytimes.com/2024/11/27/business/byd-china-electric-vehicles.html
+
 **Notre Dame mailbag: Best Irish team I've covered? What will a home Playoff game look like?**\
 `Answering your Notre Dame questions about an all-Irish Playoff hypothetical, hosting a CFP game, transfer portal strategy and more.`\
 https://nytimes.com/athletic/5951322/2024/11/27/notre-dame-college-football-playoff-home/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/us/kentucky-confiscated-bourbon-auction.html
 **Maine Becomes the Latest State to Sue Oil Companies Over Climate Change**\
 `In a new lawsuit, the state’s attorney general claims oil companies deceived the public about fossil fuel products’ contributions to climate change.`\
 https://nytimes.com/2024/11/27/climate/maine-climate-change-oil-company-lawsuit.html
-
-**What Is Russia’s Oreshnik Ballistic Missile?**\
-`The weapon used for the first time against Ukraine last week is capable of carrying nuclear weapons.`\
-https://nytimes.com/2024/11/27/world/europe/russia-oreshnik-ballistic-missile.html
 
