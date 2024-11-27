@@ -1,3 +1,19 @@
+**Auburn star Johni Broome leads Tigers past UNC, into Maui Invitational final**\
+`Broome had 18 first half points before eventually finishing with a game-high 23, plus 19 boards. `\
+https://nytimes.com/athletic/5951870/2024/11/27/auburn-unc-maui-invitational-semifinal/
+
+**Word of the Day: eminent domain**\
+`This term has appeared in 15 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/11/27/learning/word-of-the-day-eminent-domain.html
+
+**Rosenthal: Blake Snell, Dodgers not messing around with 5-year, $182 million deal**\
+`By agreeing to terms so quickly, Snell gives himself a better ramp-up than he got last year, when he signed late in the process.`\
+https://nytimes.com/athletic/5951778/2024/11/27/blake-snell-scott-boras-dodgers/
+
+**Ireland Is Rich. That Doesn’t Mean It’s Happy.**\
+`There are the same dark subplots here that have made the position of other incumbent governments so precarious.`\
+https://nytimes.com/2024/11/27/opinion/ireland-election-simon-harris.html
+
 **Less star power, less firepower: 'Downgraded' PSG falling short in the Champions League**\
 `We have become used to seeing PSG beaten dramatically in the Champions League knock-out stages - they are at risk of not even doing that`\
 https://nytimes.com/athletic/5951751/2024/11/27/bayern-psg-champions-league/
