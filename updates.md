@@ -1,3 +1,11 @@
+**Car Found in Georgia Pond May Be That of a New York Couple Missing Since 1980**\
+`The Romers, of Scarsdale, N.Y., disappeared from a Georgia hotel. Divers who seek to solve cold cases found a vehicle similar to theirs in a pond. They also found bones.`\
+https://nytimes.com/2024/11/26/us/georgia-romers-cold-case-car-pond.html
+
+**UConn suffers first back-to-back losses in 22 months with Colorado upset**\
+`Colorado will play the winner of No. 5 Iowa State and Dayton on Wednesday in the Maui Invitational's last-place game.`\
+https://nytimes.com/athletic/5951037/2024/11/26/uconn-loss-colorado-maui-invitational/
+
 **Jets QB Aaron Rodgers addresses uncertain NFL future, 2025 plans**\
 `The Jets are looking at a potential rebuild after in-season firings of their coach and general manager.`\
 https://nytimes.com/athletic/5950722/2024/11/26/aaron-rodgers-2025-season-jets/
