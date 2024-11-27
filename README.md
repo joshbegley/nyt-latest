@@ -1,3 +1,19 @@
+**BOS Nation considering name change after backlash**\
+`The team, which will join the league in 2026, said it launched a process to gather input on its name from stakeholders.`\
+https://nytimes.com/athletic/5952727/2024/11/27/bos-nation-considers-name-change/
+
+**Watch Ariana Grande Swing From a Chandelier in ‘Wicked’**\
+`The director Jon M. Chu narrates the musical scene, also featuring Cynthia Erivo, where Grande performs the song “Popular.”`\
+https://nytimes.com/2024/11/27/movies/wicked-clip-ariana-grande.html
+
+**‘Wicked’ | Anatomy of a Scene**\
+`The director Jon M. Chu narrates a scene in “Wicked” that features the song “Popular,” with Ariana Grande and Cynthia Erivo.`\
+https://nytimes.com/video/movies/100000009848652/wicked-scene.html
+
+**A Battered and Diminished Hezbollah Accepts a Ceasefire**\
+`Thirteen months of war left Hezbollah weakened, isolated and desperate for a way to stop the fighting.`\
+https://nytimes.com/2024/11/27/world/middleeast/hezbollah-israel-ceasefire.html
+
 **Ex-Giants QB Daniel Jones to sign with Vikings**\
 `Jones was released by the Giants last Friday after the team benched him earlier that week.`\
 https://nytimes.com/athletic/5952861/2024/11/27/giants-daniel-jones-sign-vikings/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5952734/2024/11/27/luis-suarez-inter-miami-new-cont
 **Tiny Love Stories: ‘I Couldn’t Stop Looking at Her’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/11/27/style/tiny-modern-love-stories-i-couldnt-stop-looking-at-her.html
-
-**France Suggests It Would Not Immediately Arrest Netanyahu Despite I.C.C. Warrant**\
-`The foreign ministry did not say outright that Prime Minister Benjamin Netanyahu of Israel would be free to travel to France, but it argued that an I.C.C. rule on immunity may apply to him.`\
-https://nytimes.com/2024/11/27/world/middleeast/france-netanyahu-arrest-icc.html
-
-**LIV Golf to hire former 76ers exec as new CEO**\
-`O'Neil will inherit a tour that has become increasingly worldwide but needs a long-term TV carrier in the United States.`\
-https://nytimes.com/athletic/5952635/2024/11/27/liv-golf-scott-oneil-greg-norman-ceo/
-
-**Oxford University Names William Hague Its New Chancellor**\
-`Mr. Hague, a former leader of Britain’s Conservative Party, was chosen in a vote by his fellow alumni to lead the elite university.`\
-https://nytimes.com/2024/11/27/world/europe/oxford-chancellor-william-hague.html
-
-**What’s a Democratic Billionaire to Do Now?**\
-`The party’s donor class is still wrestling with Donald Trump’s victory, worried about retribution and sluggish liberal energy. Some rich Democrats are even pondering leaving the country.`\
-https://nytimes.com/2024/11/27/us/politics/democratic-donors-reid-hoffman-democracy-alliance.html
 
