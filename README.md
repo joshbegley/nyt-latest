@@ -1,40 +1,40 @@
+**How America helped shape the England team who'll face the USWNT at Wembley this weekend**\
+`England face the USWNT at Wembley this week, and plenty of Lionesses are grateful to the U.S. for aiding their football development`\
+https://nytimes.com/athletic/5940024/2024/11/27/england-lionesses-made-in-america/
+
+**What the Premier League taking production in-house means for streaming, apps and broadcasters**\
+`Why Premier League clubs voted to establish an in-house media operation`\
+https://nytimes.com/athletic/5949116/2024/11/27/what-the-premier-league-taking-production-in-house-means-for-streaming-apps-and-broadcasters/
+
+**Wednesday Briefing**\
+`A cease-fire agreement between Israel and Hezbollah.`\
+https://nytimes.com/2024/11/27/briefing/israel-hezbollah-truce-trump.html
+
+**Compassion or Coercion? Britain’s Emotional Debate Over Assisted Dying.**\
+`As lawmakers prepare to vote on legalizing assisted suicide for the terminally ill in England and Wales, an intense public discussion has unfolded.`\
+https://nytimes.com/2024/11/27/world/europe/uk-assisted-dying-suicide.html
+
+**‘Mr. Every Man’: The 50 Others Accused in France’s Mass Rape Trial**\
+`Dominique Pelicot invited men to rape his wife, whom he had drugged. The French media call them “Mr. Every Man” because they come from such ordinary backgrounds.`\
+https://nytimes.com/2024/11/27/france-mass-rape-pelicot.html
+
+**Will Namibia’s Liberation Party Be the Next to Fall in Africa?**\
+`Voters head to the polls on Wednesday in the latest test for one of southern Africa’s liberation parties, which have been rebuked at the ballot box this year.`\
+https://nytimes.com/2024/11/27/world/africa/namibia-election-swapo.html
+
+**Week 13 fantasy football rankings: Sleepers, projections, starts, sits | Tyrone Tracy, Tank Dell**\
+`Jake Ciely offers detailed game breakdowns, sleepers and rankings (food too) to help you navigate a busy fantasy football Thanksgiving week.`\
+https://nytimes.com/athletic/5950905/2024/11/27/week-13-fantasy-football-rankings-sleepers-projections-starts-sits-tyrone-tracy-tank-dell/
+
 **Meet One of Hong Kong’s Last Remaining Pro-Democracy Activists**\
 `For Chan Po-ying, a labor rights leader, life is one of constant police surveillance, even on hikes. But she finds solace from tiny gestures of support.`\
 https://nytimes.com/2024/11/27/world/asia/hong-kong-democracy-activist.html
 
+**Liverpool vs Real Madrid in the Champions League: Preview, odds and prediction**\
+`Liverpool host Real Madrid in a meeting of two previous Champions League winners on Wednesday. Will Liverpool keep rolling?`\
+https://nytimes.com/athletic/5950577/2024/11/27/liverpool-real-madrid-odds-prediction-champions-league/
+
 **After Hunter Dickinson's ejection, KJ Adams and Kansas hit new gear vs. Duke**\
 `Dickinson's flagrant-2 foul will be the water cooler conversation on Wednesday: Was the contact his foot made with Maliq Brown a kick?`\
 https://nytimes.com/athletic/5951710/2024/11/26/hunter-dickinson-ejection-kansas-duke/
-
-**What did we learn from Alabama and Houston's top-10 Players Era clash?**\
-`Mouhamed Dioubate was an X-factor, L.J. Cryer ran out of magic, and Alabama won a third straight meeting between two bruising contenders.`\
-https://nytimes.com/athletic/5951591/2024/11/26/houston-alabama-basketball-players-era/
-
-**Blake Snell agrees to 5-year, $182 million deal with Dodgers**\
-`Snell, who will be 32 on Opening Day, is one of seven pitchers in major league history to win a Cy Young Award in both leagues.`\
-https://nytimes.com/athletic/5941217/2024/11/26/blake-snell-contract-dodgers-mlb-free-agency/
-
-**Patrick Mahomes leads NFLPA's list of top 50 players in merchandise sales**\
-`Mahomes drives merchandise sales after winning his third Super Bowl MVP `\
-https://nytimes.com/athletic/5951594/2024/11/26/patrick-mahomes-leads-nflpas-list-of-top-50-players-in-merchandise-sales/
-
-**Ex-Bruin Jake DeBrusk, a goal scorer's tally and an offensively challenged former team**\
-`DeBrusk's goal for the Canucks in their 2-0 win versus Boston was the kind of goal the Bruins really needed.`\
-https://nytimes.com/athletic/5951613/2024/11/26/bruins-canucks-jake-debrusk-goal/
-
-**How Kevin Lankinen, Canucks locked down Bruins in shutout win: 3 takeaways**\
-`A supreme defensive effort got the Canucks' East Coast road trip off to a 2-0-0 start with a shutout in Boston.`\
-https://nytimes.com/athletic/5951554/2024/11/26/canucks-lankinen-debrusk-shutout-bruins/
-
-**Kent State becomes first 0-12 team since 2019 after 21st straight loss**\
-`Tuesday's loss marked the 21st straight for Kenni Burns' squad, as Kent State went 1-11 last season.`\
-https://nytimes.com/athletic/5951354/2024/11/26/kent-state-winless-record-buffalo/
-
-**Hammer’s End**\
-`Jill Singer’s triple words score.`\
-https://nytimes.com/2024/11/26/crosswords/daily-puzzle-2024-11-27.html
-
-**Is SEC football mediocre this season? College Football Playoff rankings don’t lie**\
-`There’s no strong argument for a fourth SEC team right now, other than what “would” happen if this team or that team played.`\
-https://nytimes.com/athletic/5951502/2024/11/26/college-football-rankings-sec-alabama-georgia-tennessee/
 
