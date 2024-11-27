@@ -1,3 +1,7 @@
+**Chelsea are no longer 'Cole Palmer FC' - his marked-man status is forcing others to step up**\
+`Palmer is now getting the treatment reserved for superstars - his attacking statistics are down but his team-mates are thriving `\
+https://nytimes.com/athletic/5947386/2024/11/27/chelsea-cole-palmer-maresca-options/
+
 **How will Spurs - and Fraser Forster - cope in Guglielmo Vicario's absence?**\
 `Vicario had an operation on his foot on Monday and will be unavailable for months - can Forster adequately fill the void?`\
 https://nytimes.com/athletic/5949241/2024/11/27/spurs-fraser-forster-guglielmo-vicario/
