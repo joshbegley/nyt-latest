@@ -1,3 +1,11 @@
+**Why Auston Matthews won't return to Maple Leafs lineup vs. Panthers: 'Not a healing thing'**\
+`Matthews will miss his ninth straight game with a mysterious injury, but Maple Leafs coach Craig Berube said "he's feeling good."`\
+https://nytimes.com/athletic/5953218/2024/11/27/auston-matthews-maple-leafs-injury-nhl-panthers/
+
+**Read the Cease-Fire Agreement**\
+`The Lebanese government released a copy of the cease-fire agreement on Wednesday.`\
+https://nytimes.com/interactive/2024/11/27/world/middleeast/ceasefire-agreement.html
+
 **Why Do the Lions and Cowboys Play on Thanksgiving Every Year?**\
 `The short answer: tradition.`\
 https://nytimes.com/2024/11/27/sports/football/lions-cowboys-thanksgiving-game-nfl.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/us/politics/ray-epps-tucker-carlson-jan-6-defamat
 **Five centers the Flyers could target in a trade this season**\
 `Could a move for a center be in the cards for GM Daniel Briere and the Flyers at some point before the March 7 trade deadline?`\
 https://nytimes.com/athletic/5952822/2024/11/27/flyers-nhl-trade-targets-center/
-
-**Trump’s Pick to Lead the N.I.H. Gets Some Things Right**\
-`The course of Bhattacharya’s tenure will depend on whether he can listen to his critics.`\
-https://nytimes.com/2024/11/27/opinion/nih-director-trump-jay-bhattacharya.html
-
-**Alongside Cease-Fire in Lebanon, Israeli Forces Keep Striking in Gaza**\
-`While Israel and Hezbollah were finalizing a cease-fire to halt the fighting in Lebanon, Israeli strikes killed 33 people in Gaza, according to local health authorities.`\
-https://nytimes.com/2024/11/27/world/middleeast/israel-gaza-strikes.html
 
