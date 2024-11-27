@@ -1,3 +1,11 @@
+**What to Know About the Israel-Hezbollah Cease-Fire**\
+`Under the agreement, Israel will gradually withdraw its forces from Lebanon over the next 60 days, and Hezbollah will not entrench itself near the Israeli border.`\
+https://nytimes.com/2024/11/27/world/middleeast/israel-lebanon-ceasefire.html
+
+**Best of 12 Questions 2024: Joey Logano calls his shot and more of our favorites**\
+`The 15th edition of the 12 Questions series has concluded, ending a year that saw us surpass the 500-interview mark in our weekly segment.`\
+https://nytimes.com/athletic/5950154/2024/11/27/nascar-12-questions-best-of-2024-joey-logano/
+
 **Real Madrid defender Raul Asencio and his alleged involvement in sex-tape investigation**\
 `Asencio is due to start against Liverpool in the Champions League while under investigation for alleged distribution of a sex tape`\
 https://nytimes.com/athletic/5951188/2024/11/27/raul-asencio-real-madrid-sex-tape-investigation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5952156/2024/11/27/josh-acheampong-chelsea-training
 **Mystery Drones Spotted Over U.S. Air Bases in Britain**\
 `Small unmanned craft were seen flying over four bases in England, the U.S. Air Force in Europe said in a statement. The Pentagon noted that there had not been “any significant mission impact.”`\
 https://nytimes.com/2024/11/27/world/europe/drones-us-air-bases-uk.html
-
-**Cease-Fire Deal Leaves Beleaguered Palestinians in Gaza Feeling Forgotten**\
-`With a truce between Israel and Hezbollah taking hold, Gazans are losing hope that Israel’s war in the enclave will end anytime soon.`\
-https://nytimes.com/2024/11/27/world/middleeast/gaza-displaced-ceasefire.html
-
-**I.C.C. Prosecutor Seeks Arrest Warrant for Myanmar Junta Leader**\
-`The International Criminal Court’s chief prosecutor accused Senior Gen. Min Aung Hlaing of crimes against humanity toward the country’s Muslim Rohingya.`\
-https://nytimes.com/2024/11/27/world/asia/myanmar-junta-leader-rohingya.html
 
