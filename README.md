@@ -1,3 +1,7 @@
+**Thursday Briefing: A Fragile Cease-fire in Lebanon**\
+`Plus, a post-election Thanksgiving.`\
+https://nytimes.com/2024/11/27/briefing/lebanon-cease-fire-trump-thanksgiving.html
+
 **Who is Myanmar’s Senior Gen. Min Aung Hlaing?**\
 `The leader of a military junta is accused of crimes against humanity over his persecution of the country’s Muslim Rohingya.`\
 https://nytimes.com/2024/11/27/world/asia/min-aung-hlaing-myanmar.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5953623/2024/11/27/chiefs-isiah-pacheco-raiders-aid
 **The False Premise Shaping Trump’s Public Health Picks**\
 `Nobody got Covid totally right. But the contrarians got it mostly wrong.`\
 https://nytimes.com/2024/11/27/opinion/covid-trump-cabinet.html
-
-**Musk’s Slashing of the Federal Budget Faces Big Hurdles**\
-`The so-called Department of Government Efficiency, with Elon Musk as co-leader, has advantages that past budget-cutters did not, but laws and court challenges can still make change slow and difficult.`\
-https://nytimes.com/2024/11/27/us/politics/elon-musk-federal-budget.html
 
