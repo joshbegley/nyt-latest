@@ -1,3 +1,11 @@
+**Politics, posturing and presents: Inside the weird world of Champions League meals**\
+`The secretive rituals around pre-match meals are integral to Europe's elite competition - but what really goes on?`\
+https://nytimes.com/athletic/5946057/2024/11/27/champions-league-meals/
+
+**Trent x Jude: Why their bromance could matter for Liverpool and Madrid**\
+`The friendship between two of England's best young players adds an intriguing sub-plot to tonight's Champions League tie`\
+https://nytimes.com/athletic/5948928/2024/11/27/trent-alexander-arnold-jude-bellingham-liverpool-real-madrid/
+
 **Douglas Luiz, Alisha Lehmann and a rare couples transfer**\
 `Douglas Luiz swapped Aston Villa for Juventus in the summer - a week later, his partner Lehmann made the same move`\
 https://nytimes.com/athletic/5929101/2024/11/27/douglas-luiz-alisha-lehmann-aston-villa-juventus-couple-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/world/europe/uk-assisted-dying-suicide.html
 **‘Mr. Every Man’: The 50 Others Accused in France’s Mass Rape Trial**\
 `Dominique Pelicot invited men to rape his wife, whom he had drugged. The French media call them “Mr. Every Man” because they come from such ordinary backgrounds.`\
 https://nytimes.com/2024/11/27/france-mass-rape-pelicot.html
-
-**Will Namibia’s Liberation Party Be the Next to Fall in Africa?**\
-`Voters head to the polls on Wednesday in the latest test for one of southern Africa’s liberation parties, which have been rebuked at the ballot box this year.`\
-https://nytimes.com/2024/11/27/world/africa/namibia-election-swapo.html
-
-**Week 13 fantasy football rankings: Sleepers, projections, starts, sits | Tyrone Tracy, Tank Dell**\
-`Jake Ciely offers detailed game breakdowns, sleepers and rankings (food too) to help you navigate a busy fantasy football Thanksgiving week.`\
-https://nytimes.com/athletic/5950905/2024/11/27/week-13-fantasy-football-rankings-sleepers-projections-starts-sits-tyrone-tracy-tank-dell/
 

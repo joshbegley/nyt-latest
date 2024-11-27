@@ -1,3 +1,11 @@
+**Politics, posturing and presents: Inside the weird world of Champions League meals**\
+`The secretive rituals around pre-match meals are integral to Europe's elite competition - but what really goes on?`\
+https://nytimes.com/athletic/5946057/2024/11/27/champions-league-meals/
+
+**Trent x Jude: Why their bromance could matter for Liverpool and Madrid**\
+`The friendship between two of England's best young players adds an intriguing sub-plot to tonight's Champions League tie`\
+https://nytimes.com/athletic/5948928/2024/11/27/trent-alexander-arnold-jude-bellingham-liverpool-real-madrid/
+
 **Douglas Luiz, Alisha Lehmann and a rare couples transfer**\
 `Douglas Luiz swapped Aston Villa for Juventus in the summer - a week later, his partner Lehmann made the same move`\
 https://nytimes.com/athletic/5929101/2024/11/27/douglas-luiz-alisha-lehmann-aston-villa-juventus-couple-transfer/
