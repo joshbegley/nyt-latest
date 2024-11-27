@@ -1,3 +1,7 @@
+**Displaced Israelis ‘don’t know what we will be returning to.’**\
+`By Adam Rasgon and Gabby Sobelman`\
+https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire/displaced-israelis-dont-know-what-we-will-be-returning-to
+
 **How the Chiefs weather rash of injuries could make the difference in three-peat bid**\
 `Even with their 10-1 record, the Chiefs have used 61 players. In 17 games last season, the Chiefs used just 65 players.`\
 https://nytimes.com/athletic/5951101/2024/11/27/chiefs-injuries-raiders-black-friday/
