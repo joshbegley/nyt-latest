@@ -1,9 +1,13 @@
+**Car Found in Georgia Pond May Be That of a New York Couple Missing Since 1980**\
+`The Romers, of Scarsdale, N.Y., disappeared from a Georgia hotel. Divers who seek to solve cold cases found a vehicle similar to theirs in a pond. They also found bones.`\
+https://nytimes.com/2024/11/26/us/georgia-romers-cold-case-car-pond.html
+
 **Andrew Cuomo joins Netanyahu’s legal defense team.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/andrew-cuomo-joins-netanyahus-legal-defense-team
 
 **UConn suffers first back-to-back losses in 22 months with Colorado upset**\
-`Colorado made a concerted effort to take advantage of UConn’s precarious frontcourt foul trouble.`\
+`Colorado will play the winner of No. 5 Iowa State and Dayton on Wednesday in the Maui Invitational's last-place game.`\
 https://nytimes.com/athletic/5951037/2024/11/26/uconn-loss-colorado-maui-invitational/
 
 **Judge denies request to block SJSU volleyball player from tournament**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/us/politics/trump-transition-briefings.html
 **Are the French Laundry and Per Se Still Worth a Splurge? We Went Back to See.**\
 `As Thomas Keller’s most influential restaurants hit major birthdays, the cost and the demand have risen. But what about the food and the fun?`\
 https://nytimes.com/2024/11/26/dining/french-laundry-per-se.html
-
-**Jets QB Aaron Rodgers addresses uncertain NFL future, 2025 plans**\
-`The Jets are looking at a potential rebuild after in-season firings of their coach and general manager.`\
-https://nytimes.com/athletic/5950722/2024/11/26/aaron-rodgers-2025-season-jets/
 
