@@ -1,3 +1,7 @@
+**Tran Defeats Steel in House Pickup for Democrats**\
+`Derek Tran, a consumer rights lawyer and Army veteran, defeated Representative Michelle Steel, a Republican two-term incumbent, flipping a seat in Orange County, Calif.`\
+https://nytimes.com/2024/11/27/us/politics/california-house-tran-steel.html
+
 **Thursday Briefing: A Fragile Cease-fire in Lebanon**\
 `Plus, a post-election Thanksgiving.`\
 https://nytimes.com/2024/11/27/briefing/lebanon-cease-fire-trump-thanksgiving.html

@@ -1,3 +1,7 @@
+**Tran Defeats Steel in House Pickup for Democrats**\
+`Derek Tran, a consumer rights lawyer and Army veteran, defeated Representative Michelle Steel, a Republican two-term incumbent, flipping a seat in Orange County, Calif.`\
+https://nytimes.com/2024/11/27/us/politics/california-house-tran-steel.html
+
 **Thursday Briefing: A Fragile Cease-fire in Lebanon**\
 `Plus, a post-election Thanksgiving.`\
 https://nytimes.com/2024/11/27/briefing/lebanon-cease-fire-trump-thanksgiving.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/us/politics/trump-keith-kellogg-ukraine-russia.ht
 **Chiefs' Pacheco to return, Raiders' O'Connell to start in Week 13**\
 `Pacheco hasn't played since Week 2 as he recovered from a fractured fibula and O'Connell has been out since Week 7.`\
 https://nytimes.com/athletic/5953623/2024/11/27/chiefs-isiah-pacheco-raiders-aidan-oconnell-black-friday/
-
-**The False Premise Shaping Trump’s Public Health Picks**\
-`Nobody got Covid totally right. But the contrarians got it mostly wrong.`\
-https://nytimes.com/2024/11/27/opinion/covid-trump-cabinet.html
 
