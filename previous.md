@@ -1,3 +1,7 @@
+**The Pulse: An overnight MLB free-agent surprise**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5950328/2024/11/27/blake-snell-dodgers-the-pulse/
+
 **Lampard in advanced talks over Coventry job**\
 `Frank Lampard is in advanced negotiations to become Coventry City’s new manager.`\
 https://nytimes.com/athletic/5931769/2024/11/27/frank-lampard-coventry-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5951102/2024/11/27/blue-jackets-david-jiricek-trade
 **Inside Conor Timmins' turnaround: How the Maple Leafs defenceman became a lineup lock**\
 `Conor Timmins has pushed back against popular perception. He has played all but two games for the Leafs and has been a difference maker.`\
 https://nytimes.com/athletic/5947019/2024/11/27/maple-leafs-conor-timmins-2/
-
-**Twenty-two things about the Islanders after 22 games in a strange season**\
-`Here are 22 things we've seen and we may see from this wild and wacky Islanders season.`\
-https://nytimes.com/athletic/5949213/2024/11/27/islanders-2024-25-nhl-season/
 

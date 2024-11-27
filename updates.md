@@ -1,3 +1,7 @@
+**The Pulse: An overnight MLB free-agent surprise**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5950328/2024/11/27/blake-snell-dodgers-the-pulse/
+
 **Lampard in advanced talks over Coventry job**\
 `Frank Lampard is in advanced negotiations to become Coventry City’s new manager.`\
 https://nytimes.com/athletic/5931769/2024/11/27/frank-lampard-coventry-manager/
