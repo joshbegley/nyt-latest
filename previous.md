@@ -1,3 +1,11 @@
+**Trump Picks Keith Kellogg to Be Envoy to Ukraine and Russia**\
+`The retired Army lieutenant general could play a key role in any negotiations to end the yearslong war between the countries.`\
+https://nytimes.com/2024/11/27/us/politics/trump-keith-kellogg-ukraine-russia.html
+
+**Chiefs' Pacheco to return, Raiders' O'Connell to start in Week 13**\
+`Pacheco hasn't played since Week 2 as he recovered from a fractured fibula and O'Connell has been out since Week 7.`\
+https://nytimes.com/athletic/5953623/2024/11/27/chiefs-isiah-pacheco-raiders-aidan-oconnell-black-friday/
+
 **The False Premise Shaping Trump’s Public Health Picks**\
 `Nobody got Covid totally right. But the contrarians got it mostly wrong.`\
 https://nytimes.com/2024/11/27/opinion/covid-trump-cabinet.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/world/europe/russia-german-journalists-expelled.h
 **French Intellectuals Decry a Dissident Writer’s Arrest in Algeria**\
 `An outspoken French-Algerian novelist returned to his homeland and was promptly taken into custody at age 75.`\
 https://nytimes.com/2024/11/27/world/europe/algeria-boualem-sansal-arrest.html
-
-**College football rivalry week model-predicted point differentials, totals for every game**\
-`Austin Mock's projection model predicts the point differential and point totals for every college football game this week.`\
-https://nytimes.com/athletic/5953572/2024/11/27/college-football-rivalry-week-model-projections/
-
-**A Guide to N.Y.C. Holiday Events: Music, Lights and More**\
-`“The Nutcracker,” light displays and ice skating: Here are some of our favorite things to do this season.`\
-https://nytimes.com/2024/11/27/arts/nyc-holiday-events-guide.html
 

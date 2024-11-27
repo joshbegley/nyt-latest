@@ -1,3 +1,11 @@
+**Trump Picks Keith Kellogg to Be Envoy to Ukraine and Russia**\
+`The retired Army lieutenant general could play a key role in any negotiations to end the yearslong war between the countries.`\
+https://nytimes.com/2024/11/27/us/politics/trump-keith-kellogg-ukraine-russia.html
+
+**Chiefs' Pacheco to return, Raiders' O'Connell to start in Week 13**\
+`Pacheco hasn't played since Week 2 as he recovered from a fractured fibula and O'Connell has been out since Week 7.`\
+https://nytimes.com/athletic/5953623/2024/11/27/chiefs-isiah-pacheco-raiders-aidan-oconnell-black-friday/
+
 **The False Premise Shaping Trump’s Public Health Picks**\
 `Nobody got Covid totally right. But the contrarians got it mostly wrong.`\
 https://nytimes.com/2024/11/27/opinion/covid-trump-cabinet.html
