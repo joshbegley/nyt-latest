@@ -1,3 +1,7 @@
+**Suns hand Lakers first loss in NBA Cup history with 27-point win: Key takeaways**\
+`The Lakers' path to defending their NBA Cup now requires a win over the Thunder and a little help from the Spurs.`\
+https://nytimes.com/athletic/5951730/2024/11/27/suns-lakers-nba-cup-results-takeaways/
+
 **Chelsea are no longer 'Cole Palmer FC' - his marked-man status is forcing others to step up**\
 `Palmer is now getting the treatment reserved for superstars - his attacking statistics are down but his team-mates are thriving `\
 https://nytimes.com/athletic/5947386/2024/11/27/chelsea-cole-palmer-maresca-options/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5948928/2024/11/27/trent-alexander-arnold-jude-bell
 **Douglas Luiz, Alisha Lehmann and a rare couples transfer**\
 `Douglas Luiz swapped Aston Villa for Juventus in the summer - a week later, his partner Lehmann made the same move`\
 https://nytimes.com/athletic/5929101/2024/11/27/douglas-luiz-alisha-lehmann-aston-villa-juventus-couple-transfer/
-
-**Kaoru Mitoma finally looking his old self after taxing second Premier League season**\
-`After finally overcoming a back injury, Mitoma is recapturing the sparkle that made him such a big hit in his first Premier League season`\
-https://nytimes.com/athletic/5908069/2024/11/27/mitoma-brighton-form/
 
