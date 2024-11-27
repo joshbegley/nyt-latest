@@ -1,3 +1,7 @@
+**Kent State becomes first 0-12 team since 2019 after 21st straight loss**\
+`Tuesday's loss marked the 21st straight for Kenni Burns' squad, as Kent State went 1-11 last season.`\
+https://nytimes.com/athletic/5951354/2024/11/26/kent-state-winless-record-buffalo/
+
 **Hammer’s End**\
 `Jill Singer’s triple words score.`\
 https://nytimes.com/2024/11/26/crosswords/daily-puzzle-2024-11-27.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5951393/2024/11/26/cfp-rankings-show-college-footba
 **Trump Taps Kevin Hassett to Lead National Economic Council**\
 `Mr. Hassett defended Donald Trump’s tax cuts and trade policies in his first administration but has also acknowledged that tariffs can weaken economic growth.`\
 https://nytimes.com/2024/11/26/us/politics/kevin-hassett-nec-trump.html
-
-**Trump Selects First-Term Official as Trade Representative**\
-`The lawyer Jamieson Greer is set to be the top U.S. trade negotiator, a crucial position given the president-elect’s threats to impose tariffs on imports from other countries.`\
-https://nytimes.com/2024/11/26/business/economy/jamieson-greer-trade-representative.html
 
