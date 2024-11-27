@@ -1,3 +1,11 @@
+**Hull City sack head coach Tim Walter**\
+`Hull City have sacked head coach Tim Walter after a run of nine games without a win brought a fall into the Championship’s relegation zone.`\
+https://nytimes.com/athletic/5953052/2024/11/27/hull-city-sack-tim-walter/
+
+**Hoping for Allies Among Trump’s Health Picks, Pharma Faces Hostility**\
+`Robert F. Kennedy Jr. and other candidates for top health posts are at odds with the drug industry, setting the stage for tense battles over regulatory changes.`\
+https://nytimes.com/2024/11/27/health/trump-rfk-jr-pharma.html
+
 **Fantasy basketball outperformers: LaMelo Ball, Jared McCain and 20 more early ROI all-stars**\
 `Eric Wong highlights the players who have provided the biggest ROI in fantasy basketball so far, including early ROY candidate Jared McCain.`\
 https://nytimes.com/athletic/5952537/2024/11/27/fantasy-basketball-outperformer-lamelo-jared-mccain/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5952727/2024/11/27/bos-nation-considers-name-change
 **Watch Ariana Grande Swing From a Chandelier in ‘Wicked’**\
 `The director Jon M. Chu narrates the musical scene, also featuring Cynthia Erivo, where Grande performs the song “Popular.”`\
 https://nytimes.com/2024/11/27/movies/wicked-clip-ariana-grande.html
-
-**‘Wicked’ | Anatomy of a Scene**\
-`The director Jon M. Chu narrates a scene in “Wicked” that features the song “Popular,” with Ariana Grande and Cynthia Erivo.`\
-https://nytimes.com/video/movies/100000009848652/wicked-scene.html
-
-**A Battered and Diminished Hezbollah Accepts a Cease-fire**\
-`Thirteen months of war left Hezbollah weakened, isolated and desperate for a way to stop the fighting.`\
-https://nytimes.com/2024/11/27/world/middleeast/hezbollah-israel-ceasefire.html
 

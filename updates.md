@@ -1,3 +1,11 @@
+**Hull City sack head coach Tim Walter**\
+`Hull City have sacked head coach Tim Walter after a run of nine games without a win brought a fall into the Championship’s relegation zone.`\
+https://nytimes.com/athletic/5953052/2024/11/27/hull-city-sack-tim-walter/
+
+**Hoping for Allies Among Trump’s Health Picks, Pharma Faces Hostility**\
+`Robert F. Kennedy Jr. and other candidates for top health posts are at odds with the drug industry, setting the stage for tense battles over regulatory changes.`\
+https://nytimes.com/2024/11/27/health/trump-rfk-jr-pharma.html
+
 **Fantasy basketball outperformers: LaMelo Ball, Jared McCain and 20 more early ROI all-stars**\
 `Eric Wong highlights the players who have provided the biggest ROI in fantasy basketball so far, including early ROY candidate Jared McCain.`\
 https://nytimes.com/athletic/5952537/2024/11/27/fantasy-basketball-outperformer-lamelo-jared-mccain/
