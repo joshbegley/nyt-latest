@@ -1,3 +1,11 @@
+**The Briefing: Aston Villa 0 Juventus 0: Last-minute VAR drama, Kamara's return and Weah's central role**\
+`Jacob Tanswell and Greg O'Keeffe analyse the main talking points from Aston Villa's draw against Juventus`\
+https://nytimes.com/athletic/5949206/2024/11/27/aston-villa-juventus-analysis/
+
+**‘Vanderpump Rules’ and the End of an Era of Reality Television**\
+`What once was an exhilarating show stuffed with vicariously appealing misbehavior became a dreary weeknight watch.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/vanderpump-rules-new-cast
+
 **The Briefing: Liverpool 2-0 Madrid - Are Slot's team the best in Europe and what now for Mbappe?**\
 `The major talking points as Liverpool record a statement win over their old rivals in the Champions League`\
 https://nytimes.com/athletic/5949208/2024/11/27/liverpool-real-madrid-champions-league-analysis-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/business/black-friday-shopping-cyber-monday.html
 **Am I a Hypocrite for Calling Donald Trump a Liar?**\
 `The magazine’s Ethicist columnist on hypocrisy.`\
 https://nytimes.com/2024/11/27/magazine/hypocrisy-trump-liar-ethics.html
-
-**Maresca rules out selling Nkunku in January**\
-`Enzo Maresca says striker Christopher Nkunku is a big part of his plans at Chelsea and is not going to be sold in January.`\
-https://nytimes.com/athletic/5953690/2024/11/27/chelsea-nkunku-transfer-january/
-
-**Kelowna Rockets win bid to host 2026 Memorial Cup**\
-`The Kelowna Rockets have won the bid process to host the 2026 Memorial Cup, the Canadian Hockey League announced on Wednesday afternoon.`\
-https://nytimes.com/athletic/5953627/2024/11/27/kelowna-rockets-2026-memorial-cup-host/
 
