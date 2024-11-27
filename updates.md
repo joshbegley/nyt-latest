@@ -1,3 +1,11 @@
+**Who is Myanmar’s Senior Gen. Min Aung Hlaing?**\
+`The leader of a military junta is accused of crimes against humanity over his persecution of the country’s Muslim Rohingya.`\
+https://nytimes.com/2024/11/27/world/asia/min-aung-hlaing-myanmar.html
+
+**Black Friday May Have Lost the Chaos but It’s Still Huge for Retailers**\
+`Black Friday remains one of the busiest shopping days of the year, but its impact has been diluted by monthlong holiday sales and the convenience of buying online.`\
+https://nytimes.com/2024/11/27/business/black-friday-shopping-cyber-monday.html
+
 **Am I a Hypocrite for Calling Donald Trump a Liar?**\
 `The magazine’s Ethicist columnist on hypocrisy.`\
 https://nytimes.com/2024/11/27/magazine/hypocrisy-trump-liar-ethics.html
