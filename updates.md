@@ -1,3 +1,7 @@
+**Fantasy basketball outperformers: LaMelo Ball, Jared McCain and 20 more early ROI all-stars**\
+`Eric Wong highlights the players who have provided the biggest ROI in fantasy basketball so far, including early ROY candidate Jared McCain.`\
+https://nytimes.com/athletic/5952537/2024/11/27/fantasy-basketball-outperformer-lamelo-jared-mccain/
+
 **F1 mailbag: Why wasn't Carlos Sainz penalized at the Las Vegas Grand Prix?**\
 `Plus: Will an American drive for General Motors/Cadillac in 2026? `\
 https://nytimes.com/athletic/5952807/2024/11/27/f1-mailbag-las-vegas-gp-sainz-general-motors/
