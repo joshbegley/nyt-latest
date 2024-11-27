@@ -1,3 +1,7 @@
+**Hammer’s End**\
+`Jill Singer’s triple words score.`\
+https://nytimes.com/2024/11/26/crosswords/daily-puzzle-2024-11-27.html
+
 **Is SEC football mediocre this season? College Football Playoff rankings don’t lie**\
 `There’s no strong argument for a fourth SEC team right now, other than what “would” happen if this team or that team played.`\
 https://nytimes.com/athletic/5951502/2024/11/26/college-football-rankings-sec-alabama-georgia-tennessee/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/us/politics/kevin-hassett-nec-trump.html
 **Trump Selects First-Term Official as Trade Representative**\
 `The lawyer Jamieson Greer is set to be the top U.S. trade negotiator, a crucial position given the president-elect’s threats to impose tariffs on imports from other countries.`\
 https://nytimes.com/2024/11/26/business/economy/jamieson-greer-trade-representative.html
-
-**How Israel’s conflict with Lebanon escalated into an intense war.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/how-israels-conflict-with-lebanon-escalated-into-an-intense-war
 
