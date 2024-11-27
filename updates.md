@@ -1,3 +1,7 @@
+**Rosenthal: Blake Snell, Dodgers not messing around with five-year, $182 million deal**\
+`But by agreeing to terms so quickly, Snell will give himself a better ramp-up than he got last year, when he signed late in the process.`\
+https://nytimes.com/athletic/5951778/2024/11/27/blake-snell-scott-boras-dodgers/
+
 **For the Dodgers, signing Blake Snell always made sense**\
 `The Dodgers have long been fascinated with Snell, and now the left-hander joins an organization in need of more top-of-the-line pitching. `\
 https://nytimes.com/athletic/5951767/2024/11/27/los-angeles-dodgers-blake-snell-analysis/
