@@ -1,3 +1,11 @@
+**Notre Dame mailbag: Best Irish team I've covered? What will a home Playoff game look like?**\
+`Answering your Notre Dame questions about an all-Irish Playoff hypothetical, hosting a CFP game, transfer portal strategy and more.`\
+https://nytimes.com/athletic/5951322/2024/11/27/notre-dame-college-football-playoff-home/
+
+**Yankees’ 3 lingering Juan Soto questions as preliminary offers roll in**\
+`The Yankees must consider what they'll build around Soto if they can make the highest bid for his services.`\
+https://nytimes.com/athletic/5951077/2024/11/27/yankees-3-lingering-juan-soto-questions-as-preliminary-offers-roll-in/
+
 **How badly does Ohio State need to beat Michigan? For the Buckeyes, it's everything**\
 `Michigan is down, and Ohio State has a Playoff bid locked up. And yet beating the Wolverines has never felt more important in Columbus.`\
 https://nytimes.com/athletic/5951190/2024/11/27/ohio-state-ryan-day-seniors-michigan/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/climate/maine-climate-change-oil-company-lawsuit.
 **What Is Russia’s Oreshnik Ballistic Missile?**\
 `The weapon used for the first time against Ukraine last week is capable of carrying nuclear weapons.`\
 https://nytimes.com/2024/11/27/world/europe/russia-oreshnik-ballistic-missile.html
-
-**Record Number of Travelers Expected Over Thanksgiving Week**\
-`Bad weather threatens roads over the holiday, but security lines were moving quickly at Chicago’s main airport on Tuesday.`\
-https://nytimes.com/2024/11/27/us/thanksgiving-travel-chicago-new-york.html
-
-**$400,000 Homes in Michigan, Pennsylvania and Vermont**\
-`A five-bedroom Tudor Revival house in Detroit, a 1925 rowhouse in South Philadelphia, and a two-bedroom cottage from 1920 in Manchester, Vt.`\
-https://nytimes.com/2024/11/27/realestate/400000-homes-in-michigan-pennsylvania-and-vermont.html
 
