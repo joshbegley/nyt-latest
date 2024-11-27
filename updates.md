@@ -1,3 +1,7 @@
+**What the Browns are facing going forward from a salary cap and roster perspective**\
+`Should Cleveland prepare for a full-on rebuild, or might it just shed some salary and bring back most of the folks in charge?`\
+https://nytimes.com/athletic/5951525/2024/11/27/browns-future-roster-salary-cap-plans/
+
 **Ducks stock watch: Who's up, who's down at the quarter-season mark?**\
 `What can we make of the Ducks one quarter in? Are they improving at all under Greg Cronin? Is the best yet to come or is there peril ahead?`\
 https://nytimes.com/athletic/5951974/2024/11/27/anaheim-ducks-nhl-players-analysis/
