@@ -1,3 +1,11 @@
+**At This French Exhibition, Check Your Clothes at the Door**\
+`A museum in Marseille, France, has a show dedicated to the history of social nudity. On a few special nights, visitors strolled around naked, too.`\
+https://nytimes.com/2024/11/27/arts/design/naturism-exhibition-naked-mucem-marseille.html
+
+**The first P4 job is open. But how good is the UNC gig?**\
+`This should be one of the best jobs in the ACC, if the infrastructure can improve to match the right coach.`\
+https://nytimes.com/athletic/5952287/2024/11/27/unc-football-job-profile-coaching-search/
+
 **Bodhi, the ‘Menswear Dog,’ Dies at 15**\
 `A Shiba Inu of uncommon sartorial panache, Bodhi modeled for Coach and was the subject of his own fashion lookbook.`\
 https://nytimes.com/2024/11/27/style/bodhi-menswear-dog-dies.html
