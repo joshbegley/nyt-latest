@@ -1,3 +1,15 @@
+**Thousands Stream Homeward as Fragile Peace Begins in Lebanon**\
+`The cease-fire between Israel and Hezbollah began on Wednesday, but much hardship and uncertainty lie ahead after a yearlong war that killed thousands and left widespread destruction in Lebanon.`\
+https://nytimes.com/2024/11/27/world/middleeast/lebanon-ceasefire-israel-hezbollah.html
+
+**Rain Expected at Macy’s Thanksgiving Parade**\
+`Over half an inch of rain could accumulate throughout Thursday in Manhattan.`\
+https://nytimes.com/2024/11/27/nyregion/macys-thanksgiving-day-parade-weather-nyc.html
+
+**Northern Israel Somber as a Few Soldiers and Residents Trickle Through**\
+`While there were limited signs of life in the area, most residents were hesitant to head back without greater certainty that the cease-fire with Hezbollah would hold.`\
+https://nytimes.com/2024/11/27/world/middleeast/israel-soldiers-lebanon-ceasefire.html
+
 **The Briefing: Liverpool 2-0 Madrid - Are Slot's team the best in Europe? And what now for Mbappe?**\
 `The major talking points as Liverpool record a statement win over their old rivals in the Champions League`\
 https://nytimes.com/athletic/5949208/2024/11/27/liverpool-real-madrid-champions-league-analysis-2/
