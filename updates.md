@@ -1,3 +1,7 @@
+**Volkswagen Says It Is Exiting China’s Xinjiang Region After 12 Years**\
+`VW and its joint venture partner, SAIC Motor, are transferring an assembly plant and test tracks after years of criticism from human rights activists.`\
+https://nytimes.com/2024/11/27/business/volkswagen-xinjiang-saic.html
+
 **Record November Snowfall Hits Seoul**\
 `The first snow of the late-fall season grounded flights and triggered a weather warning throughout the South Korean capital.`\
 https://nytimes.com/video/world/asia/100000009848263/snow-record-seoul.html
