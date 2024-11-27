@@ -1,3 +1,7 @@
+**Will Lebanon Deal Break Gaza Deadlock? Experts Doubt It**\
+`Hamas is unlikely to compromise in Gaza, despite the decision by its ally, Hezbollah, to stop fighting. A deal in Gaza would also be harder for Benjamin Netanyahu, the Israeli prime minister.`\
+https://nytimes.com/2024/11/27/world/middleeast/israel-ceasefire-hezbollah-gaza.html
+
 **Brighton set to make Ferguson available for January loan move**\
 `Brighton and Hove Albion striker Evan Ferguson is expected to be made available for loan during the January transfer window.`\
 https://nytimes.com/athletic/5950307/2024/11/27/brighton-evan-ferguson-loan/

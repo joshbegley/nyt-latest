@@ -1,3 +1,7 @@
+**Will Lebanon Deal Break Gaza Deadlock? Experts Doubt It**\
+`Hamas is unlikely to compromise in Gaza, despite the decision by its ally, Hezbollah, to stop fighting. A deal in Gaza would also be harder for Benjamin Netanyahu, the Israeli prime minister.`\
+https://nytimes.com/2024/11/27/world/middleeast/israel-ceasefire-hezbollah-gaza.html
+
 **Brighton set to make Ferguson available for January loan move**\
 `Brighton and Hove Albion striker Evan Ferguson is expected to be made available for loan during the January transfer window.`\
 https://nytimes.com/athletic/5950307/2024/11/27/brighton-evan-ferguson-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949525/2024/11/27/michigan-national-championship-t
 **When Leniency Is the Goal, a Justice System Breaks Easily**\
 `Two recent cases show New York’s fragile courts have little room for error.`\
 https://nytimes.com/2024/11/27/opinion/nyc-killing-criminal-justice.html
-
-**Two Presidents, Two Policies, One Superpower: America in Transition**\
-`Even as President Biden brokers a cease-fire in Lebanon, President-elect Donald J. Trump is running his own foreign policy without waiting to be sworn in.`\
-https://nytimes.com/2024/11/27/us/politics/biden-trump-foreign-policy.html
 
