@@ -1,3 +1,7 @@
+**Ex-USMNT goalkeeper Friedel sacked as Besiktas sporting director**\
+`Former Premier League and USMNT goalkeeper Brad Friedel has been sacked as sporting director of Turkish side Besiktas after five months in the role.`\
+https://nytimes.com/athletic/5951985/2024/11/27/brad-friedel-sacked-besiktas/
+
 **Record Snowfall Hurls Seoul Into Winter**\
 `The heaviest November snowstorm on record in the South Korean capital was a nuisance to commuters, and a delight to tourists, children and dogs.`\
 https://nytimes.com/2024/11/27/world/asia/snow-record-seoul.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/nyregion/nyc-thanksgiving-travel-airports.html
 **Why a Pasture-Raised Thanksgiving Turkey Costs $95**\
 `Humanely raised turkeys are often more expensive because they eat high-quality food, require more space, and take extra time to raise.`\
 https://nytimes.com/2024/11/27/nyregion/turkey-pasture-raised-cost.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/27/crosswords/spelling-bee-forum.html
 
