@@ -1,3 +1,7 @@
+**Record Snowfall Hurls Seoul Into Winter**\
+`The heaviest November snowstorm on record in the South Korean capital was a nuisance to commuters, and a delight to tourists, children and dogs.`\
+https://nytimes.com/2024/11/27/world/asia/snow-record-seoul.html
+
 **Protesters Supporting Former Pakistani Leader Dispersed by Security Forces**\
 `Thousands of demonstrators seeking the release of Imran Khan, the jailed ex-prime minister, fled the capital. Four civilians were killed during the unrest.`\
 https://nytimes.com/2024/11/27/world/asia/pakistan-protests-imran-khan.html
