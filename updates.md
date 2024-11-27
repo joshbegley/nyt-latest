@@ -1,3 +1,7 @@
+**Oxford University Names William Hague Its New Chancellor**\
+`Mr. Hague, a former leader of Britain’s Conservative Party, was chosen in a vote by his fellow alumni to lead the elite university.`\
+https://nytimes.com/2024/11/27/world/europe/oxford-chancellor-william-hague.html
+
 **What’s a Democratic Billionaire to Do Now?**\
 `The party’s donor class is still wrestling with Donald Trump’s victory, worried about retribution and sluggish liberal energy. Some rich Democrats are even pondering leaving the country.`\
 https://nytimes.com/2024/11/27/us/politics/democratic-donors-reid-hoffman-democracy-alliance.html

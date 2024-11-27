@@ -1,3 +1,7 @@
+**Oxford University Names William Hague Its New Chancellor**\
+`Mr. Hague, a former leader of Britain’s Conservative Party, was chosen in a vote by his fellow alumni to lead the elite university.`\
+https://nytimes.com/2024/11/27/world/europe/oxford-chancellor-william-hague.html
+
 **What’s a Democratic Billionaire to Do Now?**\
 `The party’s donor class is still wrestling with Donald Trump’s victory, worried about retribution and sluggish liberal energy. Some rich Democrats are even pondering leaving the country.`\
 https://nytimes.com/2024/11/27/us/politics/democratic-donors-reid-hoffman-democracy-alliance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952411/2024/11/27/manchester-united-team-news-mart
 **Load up your fantasy football plate with Christian McCaffrey, Travis Kelce and more Thanksgiving week goodness**\
 `Renee Miller equates players to Thanksgiving foods — savory or unsavory — to help you get set for the holiday weekend.`\
 https://nytimes.com/athletic/5951241/2024/11/27/fantasy-football-matchups-thanksgiving/
-
-**Scoop City: What to watch for this long weekend**\
-`What to watch for at each slate for this long NFL weekend, plus a look at memorable Thanksgiving performances and the 2025 rookies`\
-https://nytimes.com/athletic/5952632/2024/11/27/thanksgiving-weekend-nfl-schedule-guide/
 
