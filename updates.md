@@ -1,3 +1,11 @@
+**What to Know About the Israel-Hezbollah Cease-Fire**\
+`Under the agreement, Israel will gradually withdraw its forces from Lebanon over the next 60 days, and Hezbollah will not entrench itself near the Israeli border.`\
+https://nytimes.com/2024/11/27/world/middleeast/israel-lebanon-ceasefire.html
+
+**Best of 12 Questions 2024: Joey Logano calls his shot and more of our favorites**\
+`The 15th edition of the 12 Questions series has concluded, ending a year that saw us surpass the 500-interview mark in our weekly segment.`\
+https://nytimes.com/athletic/5950154/2024/11/27/nascar-12-questions-best-of-2024-joey-logano/
+
 **Real Madrid defender Raul Asencio and his alleged involvement in sex-tape investigation**\
 `Asencio is due to start against Liverpool in the Champions League while under investigation for alleged distribution of a sex tape`\
 https://nytimes.com/athletic/5951188/2024/11/27/raul-asencio-real-madrid-sex-tape-investigation/
