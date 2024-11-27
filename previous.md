@@ -1,3 +1,23 @@
+**How will Spurs - and Fraser Forster - cope in Guglielmo Vicario's absence?**\
+`Vicario had an operation on his foot on Monday and will be unavailable for months - can Forster adequately fill the void?`\
+https://nytimes.com/athletic/5949241/2024/11/27/spurs-fraser-forster-guglielmo-vicario/
+
+**Why Ruben Amorim was frustrated by his Man United media commitments and why it won't ease up**\
+`"I just want to work with my players, nothing more, but I understand this is a different game here. So, let’s see.”`\
+https://nytimes.com/athletic/5950447/2024/11/27/ruben-amorim-media-complaint/
+
+**How Leeds' perfect timing allowed them to exploit Swansea's high defensive line**\
+`Leeds scored four times against Swansea on Sunday as their preparation paid off`\
+https://nytimes.com/athletic/5949007/2024/11/27/leeds-united-high-line-analysis/
+
+**Leicester's new manager search will be heavily influenced by financial constraints**\
+`The club would prefer an out-of-work manager who could start right away, and may seek a younger option who won't demand huge wages`\
+https://nytimes.com/athletic/5949444/2024/11/27/leicester-manager-search-psr-constraints/
+
+**From Airdrie's promotion to scoring for Palace in the Premier League: Who is Justin Devenny?**\
+`The Northern Ireland midfielder moved to Selhurst Park after impressing in the Scottish third tier and has taken his chance in recent weeks`\
+https://nytimes.com/athletic/5942565/2024/11/27/devenny-crystal-palace-airdrieonians-northern-ireland/
+
 **Politics, posturing and presents: Inside the weird world of Champions League meals**\
 `The secretive rituals around pre-match meals are integral to Europe's elite competition - but what really goes on?`\
 https://nytimes.com/athletic/5946057/2024/11/27/champions-league-meals/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5908069/2024/11/27/mitoma-brighton-form/
 **Analysing Southampton's litany of errors**\
 `Southampton are conceding too many goals - and too often they only have themselves to blame. How will Russell Martin cut out the mistakes?`\
 https://nytimes.com/athletic/5950137/2024/11/27/southampton-russell-martin-errors-goals-conceded/
-
-**How America helped shape the England team who'll face the USWNT at Wembley this weekend**\
-`England face the USWNT at Wembley this week, and plenty of Lionesses are grateful to the U.S. for aiding their football development`\
-https://nytimes.com/athletic/5940024/2024/11/27/england-lionesses-made-in-america/
-
-**What the Premier League taking production in-house means for streaming, apps and broadcasters**\
-`Why Premier League clubs voted to establish an in-house media operation`\
-https://nytimes.com/athletic/5949116/2024/11/27/what-the-premier-league-taking-production-in-house-means-for-streaming-apps-and-broadcasters/
-
-**Wednesday Briefing**\
-`A cease-fire agreement between Israel and Hezbollah.`\
-https://nytimes.com/2024/11/27/briefing/israel-hezbollah-truce-trump.html
-
-**Compassion or Coercion? Britain’s Emotional Debate Over Assisted Dying.**\
-`As lawmakers prepare to vote on legalizing assisted suicide for the terminally ill in England and Wales, an intense public discussion has unfolded.`\
-https://nytimes.com/2024/11/27/world/europe/uk-assisted-dying-suicide.html
-
-**‘Mr. Every Man’: The 50 Others Accused in France’s Mass Rape Trial**\
-`Dominique Pelicot invited men to rape his wife, whom he had drugged. The French media call them “Mr. Every Man” because they come from such ordinary backgrounds.`\
-https://nytimes.com/2024/11/27/france-mass-rape-pelicot.html
 
