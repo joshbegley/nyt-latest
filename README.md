@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5949206/2024/11/27/aston-villa-juventus-analysis/
 `What once was an exhilarating show stuffed with vicariously appealing misbehavior became a dreary weeknight watch.`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/vanderpump-rules-new-cast
 
-**The Briefing: Liverpool 2-0 Madrid - Are Slot's team the best in Europe and what now for Mbappe?**\
+**The Briefing: Liverpool 2-0 Madrid - Are Slot's team the best in Europe? And what now for Mbappe?**\
 `The major talking points as Liverpool record a statement win over their old rivals in the Champions League`\
 https://nytimes.com/athletic/5949208/2024/11/27/liverpool-real-madrid-champions-league-analysis-2/
 
