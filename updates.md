@@ -1,3 +1,19 @@
+**Suarez signs Miami contract extension through 2025 MLS season**\
+`Luis Suarez has signed a contract extension with Inter Miami that will keep him with the club through the 2025 Major League Soccer (MLS) season.`\
+https://nytimes.com/athletic/5952734/2024/11/27/luis-suarez-inter-miami-new-contract/
+
+**Tiny Love Stories: ‘I Couldn’t Stop Looking at Her’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/11/27/style/tiny-modern-love-stories-i-couldnt-stop-looking-at-her.html
+
+**France Suggests It Would Not Immediately Arrest Netanyahu Despite I.C.C. Warrant**\
+`The foreign ministry did not say outright that Prime Minister Benjamin Netanyahu of Israel would be free to travel to France, but it argued that I.C.C. rules on immunity applied to him.`\
+https://nytimes.com/2024/11/27/world/middleeast/france-netanyahu-arrest-icc.html
+
+**LIV Golf to hire former 76ers exec as new CEO**\
+`O'Neil will inherit a tour that has become increasingly worldwide but needs a long-term TV carrier in the United States.`\
+https://nytimes.com/athletic/5952635/2024/11/27/liv-golf-scott-oneil-greg-norman-ceo/
+
 **Oxford University Names William Hague Its New Chancellor**\
 `Mr. Hague, a former leader of Britain’s Conservative Party, was chosen in a vote by his fellow alumni to lead the elite university.`\
 https://nytimes.com/2024/11/27/world/europe/oxford-chancellor-william-hague.html
