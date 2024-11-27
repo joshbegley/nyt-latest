@@ -1,3 +1,7 @@
+**‘Queer’ Review: The Seductive, Damaged Charm of Daniel Craig**\
+`The star kills off his Bond to inhabit a dissolute American expat in Luca Guadagnino’s handsome adaptation of the William S. Burroughs novella.`\
+https://nytimes.com/2024/11/27/movies/queer-review-daniel-craig-luca-guadagnino.html
+
 **What's wrong with Fred Warner? 49ers linebacker has been playing with a broken ankle**\
 `Just like last Wednesday, Brock Purdy didn't throw much in practice while Nick Bosa and Trent Williams didn't practice at all. `\
 https://nytimes.com/athletic/5954006/2024/11/27/fred-warner-49ers-broken-ankle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/technology/microsoft-ftc-antitrust.html
 **Youth Pastor Charged With Nearly 200 Sex Crimes Going Back Decades**\
 `Many of the victims were his relatives, the police said, including five nieces who filed a complaint against him in 2004.`\
 https://nytimes.com/2024/11/27/us/youth-pastor-sex-crimes-west-virginia.html
-
-**Lebanese and Israelis Return to Their Homes Following Cease-Fire**\
-`Ramez Hassan Boustany checked on his home in the southern suburbs of Beirut following the cease-fire agreement between Israel and Hezbollah. In northern Israel, Amichay Bitton surveyed the damage on his parents’ property.`\
-https://nytimes.com/video/world/middleeast/100000009848981/israel-hezbollah-ceasefire-middle-east.html
 
