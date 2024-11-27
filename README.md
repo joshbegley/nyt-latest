@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 2-0 Madrid - Are Slot's team the best in Europe and what now for Mbappe?**\
+`The major talking points as Liverpool record a statement win over their old rivals in the Champions League`\
+https://nytimes.com/athletic/5949208/2024/11/27/liverpool-real-madrid-champions-league-analysis-2/
+
 **College football rivalry week odds, picks ATS for Texas-Texas A&M, OSU-Michigan and more**\
 `The college football season culminates in rivalry week with a number of games that affect the College Football Playoff race.`\
 https://nytimes.com/athletic/5947940/2024/11/27/college-football-rivalry-week-odds-picks-texas-am-ohio-state-michigan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5953690/2024/11/27/chelsea-nkunku-transfer-january/
 **Kelowna Rockets win bid to host 2026 Memorial Cup**\
 `The Kelowna Rockets have won the bid process to host the 2026 Memorial Cup, the Canadian Hockey League announced on Wednesday afternoon.`\
 https://nytimes.com/athletic/5953627/2024/11/27/kelowna-rockets-2026-memorial-cup-host/
-
-**What the International Criminal Court Gets Right**\
-`Prosecuting crimes against humanity in Myanmar couldn’t be more important to the rules-based order.`\
-https://nytimes.com/live/2024/11/26/opinion/thepoint/icc-rohyinga-genocide
 
