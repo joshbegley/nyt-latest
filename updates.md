@@ -1,3 +1,7 @@
+**How badly does Ohio State need to beat Michigan? For the Buckeyes, it's everything**\
+`Michigan is down, and Ohio State has a Playoff bid locked up. And yet beating the Wolverines has never felt more important in Columbus.`\
+https://nytimes.com/athletic/5951190/2024/11/27/ohio-state-ryan-day-seniors-michigan/
+
 **Zaccharie Risacher might not be a typical No. 1 pick, but he's a good fit with Hawks**\
 `Risacher remains impactful when he isn’t scoring because he is constantly cutting.`\
 https://nytimes.com/athletic/5950626/2024/11/27/zaccharie-risacher-good-fit-hawks/
