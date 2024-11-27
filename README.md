@@ -1,3 +1,15 @@
+**Bodhi, the ‘Menswear Dog,’ Dies at 15**\
+`A Shiba Inu of uncommon sartorial panache, Bodhi modeled for Coach and was the subject of his own fashion lookbook.`\
+https://nytimes.com/2024/11/27/style/bodhi-menswear-dog-dies.html
+
+**How Madrid might play without Vinicius Jr - against Liverpool and beyond**\
+`Losing Vinicius Jr to an anticipated three-week injury lay-off is a significant blow for Madrid. But could it help Kylian Mbappe?`\
+https://nytimes.com/athletic/5950640/2024/11/27/real-madrid-vinicius-injury-tactics-line-up/
+
+**I Ran Into My Horrible Ex in My Therapist’s Waiting Room. Help!**\
+`A reader seeks advice on how to contend with the possibility of a future encounter with her ex after an explosive and painful breakup.`\
+https://nytimes.com/2024/11/27/style/encountering-an-ex.html
+
 **It's time for Timberwolves to ride Rob Dillingham's electricity to new heights**\
 `If Dillingham gets a real role once Mike Conley returns, whose minutes are going to be cut?`\
 https://nytimes.com/athletic/5951397/2024/11/27/rob-dillingham-timberwolves-new-heights/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/27/world/middleeast/israel-lebanon-ceasefire.html
 **Best of 12 Questions 2024: Joey Logano calls his shot and more of our favorites**\
 `The 15th edition of the 12 Questions series has concluded, ending a year that saw us surpass the 500-interview mark in our weekly segment.`\
 https://nytimes.com/athletic/5950154/2024/11/27/nascar-12-questions-best-of-2024-joey-logano/
-
-**Real Madrid defender Raul Asencio and his alleged involvement in sex-tape investigation**\
-`Asencio is due to start against Liverpool in the Champions League while under investigation for alleged distribution of a sex tape`\
-https://nytimes.com/athletic/5951188/2024/11/27/raul-asencio-real-madrid-sex-tape-investigation/
-
-**Inflation is Back in Focus as Trumponomics Looms Large Over Global Trade**\
-`Investors are bracing for the latest data as the president-elect’s economic agenda of cutting immigration and taxes, while raising tariffs takes shape.`\
-https://nytimes.com/2024/11/27/business/dealbook/inflation-trumponomics-pce-markets.html
-
-**The Athletic FC - What's going on with City? Plus: Coote probe over alleged betting breach**\
-`Today in TAFC: City's head-scratching defeat, PSG's downturn and Jude Bellingham unhappy over being England's 'scapegoat'`\
-https://nytimes.com/athletic/5952092/2024/11/27/man-city-psg-champions-league/
 
