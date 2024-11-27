@@ -36,5 +36,5 @@ https://nytimes.com/athletic/5953066/2024/11/27/auburn-memphis-maui-how-to-watch
 
 **Several Trump administration picks face bomb threats and ‘swatting.’**\
 `By Devlin Barrett`\
-https://nytimes.com/live/2024/11/27/us/trump-news/several-trump-administration-picks-face-bomb-threats-and-swatting
+https://nytimes.com/2024/11/27/us/politics/trump-administration-picks-bomb-threats.html
 
