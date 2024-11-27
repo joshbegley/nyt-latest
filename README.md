@@ -1,3 +1,11 @@
+**Inflation is Back in Focus as Trumponomics Looms Large Over Global Trade**\
+`Investors are bracing for the latest data as the president-elect’s economic agenda of cutting immigration and taxes, while raising tariffs takes shape.`\
+https://nytimes.com/2024/11/27/business/dealbook/inflation-trumponomics-pce-markets.html
+
+**The Athletic FC - What's going on with City? Plus: Coote probe over alleged betting breach**\
+`Today in TAFC: City's head-scratching defeat, PSG's downturn and Jude Bellingham unhappy over being England's 'scapegoat'`\
+https://nytimes.com/athletic/5952092/2024/11/27/man-city-psg-champions-league/
+
 **Trump Transition Live Updates: Picks for Trade and Economic Posts Highlight Trump’s Tariff Plans**\
 ``\
 https://nytimes.com/live/2024/11/27/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/world/asia/myanmar-junta-leader-rohingya.html
 **Spurs intend to trigger Ben Davies contract extension**\
 `Tottenham Hotspur intend to trigger the option in Ben Davies’ contract, keeping the Wales defender at the club for next season.`\
 https://nytimes.com/athletic/5952155/2024/11/27/tottenham-hotspur-intend-to-trigger-ben-davies-contract-extension/
-
-**Can Jeff Skinner become a difference-maker for the Oilers?**\
-`Skinner has gone from prized free-agent signing to struggling to find a consistent spot in the lineup.`\
-https://nytimes.com/athletic/5951127/2024/11/27/oilers-jeff-skinner-stats/
-
-**Caleb Williams rises to the Brian Flores challenge, more from Week 12: Quick Outs**\
-`Chicago's rookie QB did all he could against Minnesota, while Saquon Barkley kept rolling and Seattle's defense answered the bell again.`\
-https://nytimes.com/athletic/5949720/2024/11/27/nfl-week-12-caleb-williams-saquon-barkley/
 
