@@ -1,3 +1,7 @@
+**Less star power, less firepower: 'Downgraded' PSG falling short in the Champions League**\
+`We have become used to seeing PSG beaten dramatically in the Champions League knock-out stages - they are at risk of not even doing that`\
+https://nytimes.com/athletic/5951751/2024/11/27/bayern-psg-champions-league/
+
 **Rosenthal: Blake Snell, Dodgers not messing around with five-year, $182 million deal**\
 `But by agreeing to terms so quickly, Snell will give himself a better ramp-up than he got last year, when he signed late in the process.`\
 https://nytimes.com/athletic/5951778/2024/11/27/blake-snell-scott-boras-dodgers/
