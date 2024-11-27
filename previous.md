@@ -1,3 +1,11 @@
+**Trump Taps Kevin Hassett to Lead National Economic Council**\
+`Mr. Hassett defended Donald Trump’s tax cuts and trade policies in his first administration but has also acknowledged that tariffs can weaken economic growth.`\
+https://nytimes.com/2024/11/26/us/politics/kevin-hassett-nec-trump.html
+
+**Trump Selects Jamieson Greer as Trade Representative**\
+`The lawyer and former Trump official is set to be the top U.S. trade negotiator, a crucial position given the president-elect’s threats to impose tariffs on imports from other countries.`\
+https://nytimes.com/2024/11/26/business/economy/jamieson-greer-trade-representative.html
+
 **How Israel’s conflict with Lebanon escalated into an intense war.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/how-israels-conflict-with-lebanon-escalated-into-an-intense-war
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5951132/2024/11/26/mikel-arteta-arsenal-sporting-cp
 **Trump’s Tariff Threat Pits Canada Against Mexico**\
 `The president-elect’s opening salvo in trade and border talks with the United States’ neighbors is casting a harsh light on the North American alliance.`\
 https://nytimes.com/2024/11/26/world/mexico-canada-trump-tariffs.html
-
-**Guardiola: Man City 'fragile' after letting three-goal lead slip vs Feyenoord**\
-`Manchester City manager Pep Guardiola said his side are &#8220;fragile&#8221; after letting a three-goal lead slip in Tuesday&#8217;s 3-3 Champions League draw with Feyenoord.`\
-https://nytimes.com/athletic/5950993/2024/11/26/pep-guardiola-manchester-city-feyenoord/
-
-**Trump Team Signs Transition Agreement but Shuns F.B.I. Clearances**\
-`President-elect Donald J. Trump’s team will have some formal briefings with outgoing staff members, but it has so far refused to allow the F.B.I. to do security clearances for transition members.`\
-https://nytimes.com/2024/11/26/us/politics/trump-transition-briefings.html
 

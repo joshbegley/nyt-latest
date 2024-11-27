@@ -1,3 +1,11 @@
+**Trump Taps Kevin Hassett to Lead National Economic Council**\
+`Mr. Hassett defended Donald Trump’s tax cuts and trade policies in his first administration but has also acknowledged that tariffs can weaken economic growth.`\
+https://nytimes.com/2024/11/26/us/politics/kevin-hassett-nec-trump.html
+
+**Trump Selects Jamieson Greer as Trade Representative**\
+`The lawyer and former Trump official is set to be the top U.S. trade negotiator, a crucial position given the president-elect’s threats to impose tariffs on imports from other countries.`\
+https://nytimes.com/2024/11/26/business/economy/jamieson-greer-trade-representative.html
+
 **How Israel’s conflict with Lebanon escalated into an intense war.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/how-israels-conflict-with-lebanon-escalated-into-an-intense-war
