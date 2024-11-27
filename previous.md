@@ -1,3 +1,7 @@
+**How Israel’s conflict with Lebanon escalated into an intense war.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/how-israels-conflict-with-lebanon-escalated-into-an-intense-war
+
 **Car Found in Georgia Pond May Be That of a New York Couple Missing Since 1980**\
 `The Romers, of Scarsdale, N.Y., disappeared from a Georgia hotel. Divers who seek to solve cold cases found a vehicle similar to theirs in a pond. They also found bones.`\
 https://nytimes.com/2024/11/26/us/georgia-romers-cold-case-car-pond.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5950993/2024/11/26/pep-guardiola-manchester-city-fe
 **Trump Team Signs Transition Agreement but Shuns F.B.I. Clearances**\
 `President-elect Donald J. Trump’s team will have some formal briefings with outgoing staff members, but it has so far refused to allow the F.B.I. to do security clearances for transition members.`\
 https://nytimes.com/2024/11/26/us/politics/trump-transition-briefings.html
-
-**Are the French Laundry and Per Se Still Worth a Splurge? We Went Back to See.**\
-`As Thomas Keller’s most influential restaurants hit major birthdays, the cost and the demand have risen. But what about the food and the fun?`\
-https://nytimes.com/2024/11/26/dining/french-laundry-per-se.html
 

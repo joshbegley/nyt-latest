@@ -1,3 +1,7 @@
+**How Israel’s conflict with Lebanon escalated into an intense war.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/how-israels-conflict-with-lebanon-escalated-into-an-intense-war
+
 **Car Found in Georgia Pond May Be That of a New York Couple Missing Since 1980**\
 `The Romers, of Scarsdale, N.Y., disappeared from a Georgia hotel. Divers who seek to solve cold cases found a vehicle similar to theirs in a pond. They also found bones.`\
 https://nytimes.com/2024/11/26/us/georgia-romers-cold-case-car-pond.html
