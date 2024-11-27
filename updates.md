@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 2-0 Madrid - Are Slot's team the best in Europe and what now for Mbappe?**\
+`The major talking points as Liverpool record a statement win over their old rivals in the Champions League`\
+https://nytimes.com/athletic/5949208/2024/11/27/liverpool-real-madrid-champions-league-analysis-2/
+
 **College football rivalry week odds, picks ATS for Texas-Texas A&M, OSU-Michigan and more**\
 `The college football season culminates in rivalry week with a number of games that affect the College Football Playoff race.`\
 https://nytimes.com/athletic/5947940/2024/11/27/college-football-rivalry-week-odds-picks-texas-am-ohio-state-michigan/
