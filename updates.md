@@ -1,3 +1,7 @@
+**Ducks stock watch: Who's up, who's down at the quarter-season mark?**\
+`What can we make of the Ducks one quarter in? Are they improving at all under Greg Cronin? Is the best yet to come or is there peril ahead?`\
+https://nytimes.com/athletic/5951974/2024/11/27/anaheim-ducks-nhl-players-analysis/
+
 **The NBA can tinker with the All-Star Game all it wants, but there's only one way to fix it**\
 `Any format changes are but Scotch Tape. Any concocted gimmicks are covering up the real issue with the NBA's All-Star Game.`\
 https://nytimes.com/athletic/5952260/2024/11/27/nba-all-star-game-format-issues/
