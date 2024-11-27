@@ -1,3 +1,7 @@
+**Protesters Supporting Former Pakistani Leader Dispersed by Security Forces**\
+`Thousands of demonstrators seeking the release of Imran Khan, the jailed ex-prime minister, fled the capital. Four civilians were killed during the unrest.`\
+https://nytimes.com/2024/11/27/world/asia/pakistan-protests-imran-khan.html
+
 **Volkswagen Says It Is Exiting China’s Xinjiang Region After 12 Years**\
 `VW and its joint venture partner, SAIC Motor, are transferring an assembly plant and test tracks after years of criticism from human rights activists.`\
 https://nytimes.com/2024/11/27/business/volkswagen-xinjiang-saic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/crosswords/spelling-bee-forum.html
 **Here is the latest on the cease-fire in Lebanon.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire/here-is-the-latest-on-the-cease-fire-in-lebanon
-
-**Live Updates: Thousands Return to Southern Lebanon as Cease-Fire Takes Effect**\
-`Over a million people fled their homes as fighting intensified in recent months. Under the deal, both Israel and Hezbollah must withdraw from southern Lebanon.`\
-https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire
 
