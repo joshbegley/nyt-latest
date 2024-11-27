@@ -1,3 +1,11 @@
+**Notre Dame mailbag: Best Irish team I've covered? What will a home Playoff game look like?**\
+`Answering your Notre Dame questions about an all-Irish Playoff hypothetical, hosting a CFP game, transfer portal strategy and more.`\
+https://nytimes.com/athletic/5951322/2024/11/27/notre-dame-college-football-playoff-home/
+
+**Yankees’ 3 lingering Juan Soto questions as preliminary offers roll in**\
+`The Yankees must consider what they'll build around Soto if they can make the highest bid for his services.`\
+https://nytimes.com/athletic/5951077/2024/11/27/yankees-3-lingering-juan-soto-questions-as-preliminary-offers-roll-in/
+
 **How badly does Ohio State need to beat Michigan? For the Buckeyes, it's everything**\
 `Michigan is down, and Ohio State has a Playoff bid locked up. And yet beating the Wolverines has never felt more important in Columbus.`\
 https://nytimes.com/athletic/5951190/2024/11/27/ohio-state-ryan-day-seniors-michigan/
