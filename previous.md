@@ -1,3 +1,11 @@
+**Updated 2025 NFL Draft order: Jaguars at No. 1; how picks 1-32 stand heading into Week 13**\
+`Which teams will be picking top 10 in the NFL Draft? Who's going to hold the No. 1 pick? Track all the latest movement here. `\
+https://nytimes.com/athletic/5950815/2024/11/27/nfl-draft-order-2025-round-1-full/
+
+**China Has a New Playbook to Counter Trump: ‘Supply Chain Warfare’**\
+`A series of swipes at American companies show how China could take the initiative in a new trade war, using its economic dominance to exact pain.`\
+https://nytimes.com/2024/11/27/business/china-retaliation-skydio.html
+
 **​​Tell Us Your Memories of Keiko, the Whale From ‘Free Willy’**\
 `We want to hear your stories of the beloved celebrity orca, whose real-life return to the ocean is explored in our new podcast.`\
 https://nytimes.com/2024/11/27/podcasts/serial-keiko-free-willy-whale.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5952807/2024/11/27/f1-mailbag-las-vegas-gp-sainz-ge
 **Judge Finds New York in Contempt, Clearing the Way for Rikers Takeover**\
 `The finding was a landmark in a court case that has stretched out over more than a decade. Plans for a receivership of New York City’s jails will be heard on Jan. 14.`\
 https://nytimes.com/2024/11/27/nyregion/rikers-contempt-receivership.html
-
-**Man United midseason ticket price rise branded 'offensive' by leading fan group**\
-`Manchester United have been branded “offensive” for hiking ticket prices while the season is underway and using financial regulations as an excuse.`\
-https://nytimes.com/athletic/5952630/2024/11/27/manchester-united-ticket-prices-rise-must/
-
-**Dinosaur Domination Is Marked in a Timeline of Vomit and Feces Fossils**\
-`Studying bromalites helped paleontologists piece together how the reptiles came to rule a part of the prehistoric world.`\
-https://nytimes.com/2024/11/27/science/dinosaurs-fossils-poop-puke.html
 

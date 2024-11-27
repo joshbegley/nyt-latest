@@ -1,3 +1,11 @@
+**Updated 2025 NFL Draft order: Jaguars at No. 1; how picks 1-32 stand heading into Week 13**\
+`Which teams will be picking top 10 in the NFL Draft? Who's going to hold the No. 1 pick? Track all the latest movement here. `\
+https://nytimes.com/athletic/5950815/2024/11/27/nfl-draft-order-2025-round-1-full/
+
+**China Has a New Playbook to Counter Trump: ‘Supply Chain Warfare’**\
+`A series of swipes at American companies show how China could take the initiative in a new trade war, using its economic dominance to exact pain.`\
+https://nytimes.com/2024/11/27/business/china-retaliation-skydio.html
+
 **​​Tell Us Your Memories of Keiko, the Whale From ‘Free Willy’**\
 `We want to hear your stories of the beloved celebrity orca, whose real-life return to the ocean is explored in our new podcast.`\
 https://nytimes.com/2024/11/27/podcasts/serial-keiko-free-willy-whale.html
