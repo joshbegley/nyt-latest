@@ -15,7 +15,7 @@ https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/wh
 https://nytimes.com/2024/11/26/pageoneplus/corrections-nov-27-2024.html
 
 **Trump Picks Stanford Physician Who Opposed Lockdowns to Head N.I.H.**\
-`As the director of the National Institutes of Health, Dr. Jay Bhattacharya would oversee the world’s premier medical research agency, with a $47-billion budget and 27 separate institutes and centers.`\
+`As the director of the National Institutes of Health, Dr. Jay Bhattacharya would oversee the world’s premier medical research agency, with a $48 billion budget and 27 separate institutes and centers.`\
 https://nytimes.com/2024/11/26/us/politics/jay-bhattacharya-nih-trump.html
 
 **Quotation of the Day: The Catch**\
