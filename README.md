@@ -1,3 +1,7 @@
+**Bradley wins Mbappe battle, Bellingham booed, USMNT pair shine in comeback - Champions League briefing**\
+`There were plenty of talking points from the Champions League action on Wednesday night`\
+https://nytimes.com/athletic/5953587/2024/11/27/champions-league-jude-bellingham-booed-usmnt-psv/
+
 **Thousands Stream Homeward as Fragile Peace Begins in Lebanon**\
 `The cease-fire between Israel and Hezbollah began on Wednesday, but much hardship and uncertainty lie ahead after a yearlong war that killed thousands and left widespread destruction in Lebanon.`\
 https://nytimes.com/2024/11/27/world/middleeast/lebanon-ceasefire-israel-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947940/2024/11/27/college-football-rivalry-week-od
 **Helen Gallagher, Winner of Two Tonys and Three Emmys, Dies at 98**\
 `She was honored on Broadway for roles in “Pal Joey” and “No, No, Nanette” and then turned to TV, where she won three Daytime Emmys for her work on “Ryan’s Hope.”`\
 https://nytimes.com/2024/11/27/arts/helen-gallagher-dead.html
-
-**Tran Defeats Steel in House Pickup for Democrats**\
-`Derek Tran, a consumer rights lawyer and Army veteran, defeated Representative Michelle Steel, a Republican two-term incumbent, flipping a seat in Orange County, Calif.`\
-https://nytimes.com/2024/11/27/us/politics/california-house-tran-steel.html
 
