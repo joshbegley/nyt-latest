@@ -1,3 +1,7 @@
+**Trump Picks Stanford Physician Who Opposed Lockdowns to Head N.I.H.**\
+`As the director of the National Institutes of Health, Dr. Jay Bhattacharya would oversee the world’s premier medical research agency, with a $47 billion budget and 27 separate institutes and centers.`\
+https://nytimes.com/2024/11/26/us/politics/jay-bhattacharya-nih-trump.html
+
 **Quotation of the Day: The Catch**\
 `Quotation of the Day for Wednesday, November 27, 2024.`\
 https://nytimes.com/2024/11/26/pageoneplus/quotation-of-the-day-the-catch.html
