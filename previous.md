@@ -1,3 +1,7 @@
+**3 Americans Are Said to Be Freed From China in Prisoner Swap**\
+`The three men, John Leung, Kai Li, and Mark Swidan, are on planes heading to the United States, two officials said.`\
+https://nytimes.com/2024/11/27/world/asia/us-china-prisoner-swap.html
+
 **At This French Exhibition, Check Your Clothes at the Door**\
 `A museum in Marseille, France, has a show dedicated to the history of social nudity. On a few special nights, visitors strolled around naked, too.`\
 https://nytimes.com/2024/11/27/arts/design/naturism-exhibition-naked-mucem-marseille.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5951974/2024/11/27/anaheim-ducks-nhl-players-analys
 **The NBA can tinker with the All-Star Game all it wants, but there's only one way to fix it**\
 `Any format changes are but Scotch Tape. Any concocted gimmicks are covering up the real issue with the NBA's All-Star Game.`\
 https://nytimes.com/athletic/5952260/2024/11/27/nba-all-star-game-format-issues/
-
-**Until Saturday: The SEC's bracket fallout**\
-`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
-https://nytimes.com/athletic/5952323/2024/11/27/college-football-playoff-rankings-bracket-georgia-tennessee-until-saturday/
 

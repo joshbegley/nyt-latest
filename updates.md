@@ -1,3 +1,7 @@
+**3 Americans Are Said to Be Freed From China in Prisoner Swap**\
+`The three men, John Leung, Kai Li, and Mark Swidan, are on planes heading to the United States, two officials said.`\
+https://nytimes.com/2024/11/27/world/asia/us-china-prisoner-swap.html
+
 **At This French Exhibition, Check Your Clothes at the Door**\
 `A museum in Marseille, France, has a show dedicated to the history of social nudity. On a few special nights, visitors strolled around naked, too.`\
 https://nytimes.com/2024/11/27/arts/design/naturism-exhibition-naked-mucem-marseille.html
