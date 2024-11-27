@@ -1,3 +1,7 @@
+**​​Tell Us Your Memories of Keiko, the Whale From ‘Free Willy’**\
+`We want to hear your stories of the beloved celebrity orca, whose real-life return to the ocean is explored in our new podcast.`\
+https://nytimes.com/2024/11/27/podcasts/serial-keiko-free-willy-whale.html
+
 **Displaced Lebanese Rush to Return Home Following Cease-Fire**\
 `Roads were packed with cars as people displaced from southern and eastern Lebanon began returning to their homes after a cease-fire deal between Israel and Hezbollah.`\
 https://nytimes.com/video/world/middleeast/100000009848708/lebanon-displaced-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952630/2024/11/27/manchester-united-ticket-prices-
 **Dinosaur Domination Is Marked in a Timeline of Vomit and Feces Fossils**\
 `Studying bromalites helped paleontologists piece together how the reptiles came to rule a part of the prehistoric world.`\
 https://nytimes.com/2024/11/27/science/dinosaurs-fossils-poop-puke.html
-
-**Double-Pucker Cranberry Lemon Bars**\
-`Genevieve Ko’s pretty, sunset-colored treat is just the thing to offset all that tryptophan.`\
-https://nytimes.com/2024/11/27/dining/cranberry-lemon-bars.html
 
