@@ -1,3 +1,11 @@
+**Lampard in advanced talks over Coventry job**\
+`Frank Lampard is in advanced negotiations to become Coventry City’s new manager.`\
+https://nytimes.com/athletic/5931769/2024/11/27/frank-lampard-coventry-manager/
+
+**Dejounte Murray should allow the Pelicans to finally develop an identity**\
+`With Murray and the returning CJ McCollum, New Orleans will finally have a functional backcourt. `\
+https://nytimes.com/athletic/5951641/2024/11/27/dejounte-murray-should-allow-the-pelicans-to-finally-develop-an-identity/
+
 **Displaced Israelis ‘don’t know what we will be returning to.’**\
 `By Adam Rasgon and Gabby Sobelman`\
 https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire/displaced-israelis-dont-know-what-we-will-be-returning-to
