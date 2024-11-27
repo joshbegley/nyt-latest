@@ -27,7 +27,7 @@ https://nytimes.com/live/2024/11/27/us/trump-news/several-trump-administration-p
 https://nytimes.com/athletic/5953106/2024/11/27/betting-for-by-dummies-detroit-lions-ohio-state/
 
 **F1 to race Italian GP until 2031 after reaching 6-year extension**\
-`Monza has hosted an F1 race every year since 1950, when the inaugural World Championship took place, except for in 1980.`\
+`Monza has hosted an F1 race every year since 1950, when the inaugural world championship took place, except for in 1980.`\
 https://nytimes.com/athletic/5953161/2024/11/27/f1-italian-grand-prix-extension/
 
 **Judge Dismisses Defamation Suit Against Fox News Brought by Jan. 6 Figure**\
