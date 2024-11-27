@@ -1,3 +1,11 @@
+**Trump Transition Live Updates: Picks for Trade and Economic Posts Highlight Trump’s Tariff Plans**\
+``\
+https://nytimes.com/live/2024/11/27/us/trump-news
+
+**After Hunter Dickinson's ejection, KJ Adams and Kansas hit new gear vs. Duke**\
+`Dickinson's flagrant-2 foul will be the water cooler conversation, but Kansas may have learned more about itself after he left the floor.`\
+https://nytimes.com/athletic/5951710/2024/11/27/hunter-dickinson-ejection-kansas-duke/
+
 **Kevin Durant and Bradley Beal return, and the Suns hit reset after a bad stretch**\
 `After a miserable seven-game stretch, the Suns hit "reset" Tuesday night, and finally looked like the team they were earlier this season.`\
 https://nytimes.com/athletic/5951887/2024/11/27/phoenix-suns-kevin-durant-bradley-beal-return-lakers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5951127/2024/11/27/oilers-jeff-skinner-stats/
 **Caleb Williams rises to the Brian Flores challenge, more from Week 12: Quick Outs**\
 `Chicago's rookie QB did all he could against Minnesota, while Saquon Barkley kept rolling and Seattle's defense answered the bell again.`\
 https://nytimes.com/athletic/5949720/2024/11/27/nfl-week-12-caleb-williams-saquon-barkley/
-
-**Broncos guard Quinn Meinerz has punished defenders on what could be Pro Bowl path**\
-`Meinerz, Pro Football Focus' top-rated guard in the NFL the past two weeks, has let go of the pressure he put on himself early this season.`\
-https://nytimes.com/athletic/5938037/2024/11/27/broncos-guard-quinn-meinerz/
-
-**Blake Snell gets his payday, while the Dodgers hope they got an ace: Law**\
-`Snell will help the Dodgers, as he would any team, but LA's rotation is still far from a finished product even after this signing.`\
-https://nytimes.com/athletic/5951740/2024/11/27/blake-snell-dodgers-signing-analysis/
 
