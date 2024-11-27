@@ -1,3 +1,7 @@
+**Several Trump administration picks face bomb threats and ‘swatting.’**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2024/11/27/us/trump-news/several-trump-administration-picks-face-bomb-threats-and-swatting
+
 **Betting for (by) dummies: Lions, Bengals and not the Bears, oh my**\
 `While you're feasting on football, Jon Greenberg and Zac Jackson have some betting picks you can feast on as well.`\
 https://nytimes.com/athletic/5953106/2024/11/27/betting-for-by-dummies-detroit-lions-ohio-state/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/27/us/trump-news/colleges-and-education-groups-
 **NWSLPA chief defends Barbra Banda after criticism following award win: Explaining the controversy**\
 `Banda, 24, was named BBC’s Women’s Footballer of the Year on Tuesday after helping lead the Orlando Pride to the double.`\
 https://nytimes.com/athletic/5952678/2024/11/27/barbra-banda-bbc-award-explained/
-
-**Updated 2025 NFL Draft order: Jaguars at No. 1; how picks 1-32 stand heading into Week 13**\
-`Which teams will be picking top 10 in the NFL Draft? Who's going to hold the No. 1 pick? Track all the latest movement here. `\
-https://nytimes.com/athletic/5950815/2024/11/27/nfl-draft-order-2025-round-1-full/
 
