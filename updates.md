@@ -1,3 +1,7 @@
+**CFP rankings: Alabama, Clemson on outside looking in as ASU surges**\
+`No. 9 SMU moved into the bracket for the first time, giving the ACC two teams in the 12-team bracket alongside Miami.`\
+https://nytimes.com/athletic/5951393/2024/11/26/cfp-rankings-show-college-football-playoff-bracket/
+
 **Trump Selects First-Term Official as Trade Representative**\
 `The lawyer Jamieson Greer is set to be the top U.S. trade negotiator, a crucial position given the president-elect’s threats to impose tariffs on imports from other countries.`\
 https://nytimes.com/2024/11/26/business/economy/jamieson-greer-trade-representative.html
