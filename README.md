@@ -1,3 +1,11 @@
+**Lampard in advanced talks over Coventry job**\
+`Frank Lampard is in advanced negotiations to become Coventry City’s new manager.`\
+https://nytimes.com/athletic/5931769/2024/11/27/frank-lampard-coventry-manager/
+
+**Dejounte Murray should allow the Pelicans to finally develop an identity**\
+`With Murray and the returning CJ McCollum, New Orleans will finally have a functional backcourt. `\
+https://nytimes.com/athletic/5951641/2024/11/27/dejounte-murray-should-allow-the-pelicans-to-finally-develop-an-identity/
+
 **Displaced Israelis ‘don’t know what we will be returning to.’**\
 `By Adam Rasgon and Gabby Sobelman`\
 https://nytimes.com/live/2024/11/27/world/israel-hezbollah-lebanon-cease-fire/displaced-israelis-dont-know-what-we-will-be-returning-to
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5947019/2024/11/27/maple-leafs-conor-timmins-2/
 **Twenty-two things about the Islanders after 22 games in a strange season**\
 `Here are 22 things we've seen and we may see from this wild and wacky Islanders season.`\
 https://nytimes.com/athletic/5949213/2024/11/27/islanders-2024-25-nhl-season/
-
-**How Red Wings prospects are trending heading into Thanksgiving**\
-`Checking in on 10 notable Red Wings prospects through the first two months of the season. `\
-https://nytimes.com/athletic/5947740/2024/11/27/red-wings-prospects-thanksgiving-progress/
-
-**As Packers embark on prime-time stretch, do they even like night games?**\
-`The Packers have four consecutive prime-time games starting Thursday and potentially a fifth in Week 17.`\
-https://nytimes.com/athletic/5951022/2024/11/27/packers-prime-time-games-dolphins/
 
