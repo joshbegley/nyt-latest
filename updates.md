@@ -1,3 +1,7 @@
+**Record November Snowfall Hits Seoul**\
+`The first snow of the late-fall season grounded flights and triggered a weather warning throughout the South Korean capital.`\
+https://nytimes.com/video/world/asia/100000009848263/snow-record-seoul.html
+
 **The Sidewalk Fruit Vendor Who Sold a $6.2 Million Banana for 25 Cents**\
 `A 74-year-old immigrant who works outside Sotheby’s shares a basement in the Bronx and works 12-hour shifts. He was stunned to hear what his banana went for at auction.`\
 https://nytimes.com/2024/11/27/nyregion/banana-auction-sothebys.html
