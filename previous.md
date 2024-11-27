@@ -1,3 +1,7 @@
+**Kevin Durant and Bradley Beal return, and the Suns hit reset after a bad stretch**\
+`After a miserable seven-game stretch, the Suns hit "reset" Tuesday night, and finally looked like the team they were earlier this season.`\
+https://nytimes.com/athletic/5951887/2024/11/27/phoenix-suns-kevin-durant-bradley-beal-return-lakers/
+
 **Acheampong back in Chelsea first-team training ahead of Heidenheim trip**\
 `Chelsea academy defender Josh Acheampong trained with the first-team squad this morning (Wednesday) — a sign that his exile from competitive action could be over.`\
 https://nytimes.com/athletic/5952156/2024/11/27/josh-acheampong-chelsea-training/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5938037/2024/11/27/broncos-guard-quinn-meinerz/
 **Blake Snell gets his payday, while the Dodgers hope they got an ace: Law**\
 `Snell will help the Dodgers, as he would any team, but LA's rotation is still far from a finished product even after this signing.`\
 https://nytimes.com/athletic/5951740/2024/11/27/blake-snell-dodgers-signing-analysis/
-
-**Bodo/Glimt and football in the Arctic Circle - Freezing water bottles and Man Utd supporters**\
-`Bodo will bring a record number of away fans to Old Trafford on Thursday, the result of a Man Utd affinity and an unlikely success story`\
-https://nytimes.com/athletic/5950142/2024/11/27/bodo-glimt-football-arctic-circle/
 

@@ -1,3 +1,7 @@
+**Kevin Durant and Bradley Beal return, and the Suns hit reset after a bad stretch**\
+`After a miserable seven-game stretch, the Suns hit "reset" Tuesday night, and finally looked like the team they were earlier this season.`\
+https://nytimes.com/athletic/5951887/2024/11/27/phoenix-suns-kevin-durant-bradley-beal-return-lakers/
+
 **Acheampong back in Chelsea first-team training ahead of Heidenheim trip**\
 `Chelsea academy defender Josh Acheampong trained with the first-team squad this morning (Wednesday) — a sign that his exile from competitive action could be over.`\
 https://nytimes.com/athletic/5952156/2024/11/27/josh-acheampong-chelsea-training/
