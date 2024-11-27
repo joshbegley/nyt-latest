@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Elden Ring’ and More**\
+`By Paul Mozur`\
+https://nytimes.com/card/2024/11/27/arts/editors-recommendations-eldenring
+
+**The Triumph of the Gobbler Sandwich**\
+`The classic Thanksgiving leftovers sandwich has cultivated a whole new fan base at chain stores like Wawa.`\
+https://nytimes.com/2024/11/27/dining/thanksgiving-leftover-sandwiches.html
+
 **Moscow Expels 2 German Journalists, Accusing Berlin of Closing Russian TV Bureau**\
 `The German government denied it had taken action against Russia’s Channel One office in Berlin.`\
 https://nytimes.com/2024/11/27/world/europe/russia-german-journalists-expelled.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5949929/2024/11/27/nfl-week-13-odds-picks-thanksgiv
 **Why Auston Matthews won't return to Maple Leafs lineup vs. Panthers: 'Not a healing thing'**\
 `Matthews will miss his ninth straight game with a mysterious injury, but Maple Leafs coach Craig Berube said "he's feeling good."`\
 https://nytimes.com/athletic/5953218/2024/11/27/auston-matthews-maple-leafs-injury-nhl-panthers/
-
-**Read the Cease-Fire Agreement**\
-`The Lebanese government released a copy of the cease-fire agreement on Wednesday.`\
-https://nytimes.com/interactive/2024/11/27/world/middleeast/ceasefire-agreement.html
-
-**Why Do the Lions and Cowboys Play on Thanksgiving Every Year?**\
-`The short answer: tradition.`\
-https://nytimes.com/2024/11/27/sports/football/lions-cowboys-thanksgiving-game-nfl.html
 

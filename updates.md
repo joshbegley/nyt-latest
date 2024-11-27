@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Elden Ring’ and More**\
+`By Paul Mozur`\
+https://nytimes.com/card/2024/11/27/arts/editors-recommendations-eldenring
+
+**The Triumph of the Gobbler Sandwich**\
+`The classic Thanksgiving leftovers sandwich has cultivated a whole new fan base at chain stores like Wawa.`\
+https://nytimes.com/2024/11/27/dining/thanksgiving-leftover-sandwiches.html
+
 **Moscow Expels 2 German Journalists, Accusing Berlin of Closing Russian TV Bureau**\
 `The German government denied it had taken action against Russia’s Channel One office in Berlin.`\
 https://nytimes.com/2024/11/27/world/europe/russia-german-journalists-expelled.html
