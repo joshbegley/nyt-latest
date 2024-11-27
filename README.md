@@ -1,3 +1,7 @@
+**College football rivalry week odds, picks ATS for Texas-Texas A&M, OSU-Michigan and more**\
+`The college football season culminates in rivalry week with a number of games that affect the College Football Playoff race.`\
+https://nytimes.com/athletic/5947940/2024/11/27/college-football-rivalry-week-odds-picks-texas-am-ohio-state-michigan/
+
 **Helen Gallagher, Winner of Two Tonys and Three Emmys, Dies at 98**\
 `She was honored on Broadway for roles in “Pal Joey” and “No, No, Nanette” and then turned to TV, where she won three Daytime Emmys for her work on “Ryan’s Hope.”`\
 https://nytimes.com/2024/11/27/arts/helen-gallagher-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5953627/2024/11/27/kelowna-rockets-2026-memorial-cu
 **What the International Criminal Court Gets Right**\
 `Prosecuting crimes against humanity in Myanmar couldn’t be more important to the rules-based order.`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/icc-rohyinga-genocide
-
-**Trump Picks Keith Kellogg to Be Envoy to Ukraine and Russia**\
-`The retired Army lieutenant general could play a key role in any negotiations to end the yearslong war between the countries.`\
-https://nytimes.com/2024/11/27/us/politics/trump-keith-kellogg-ukraine-russia.html
 
