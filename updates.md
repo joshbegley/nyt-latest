@@ -1,3 +1,7 @@
+**How Will Trump’s Covid Contrarians Handle the Next Pandemic?**\
+`President-elect Donald J. Trump’s selections to run the nation’s health agencies are alarming infectious disease experts.`\
+https://nytimes.com/2024/11/27/us/politics/trump-health.html
+
 **What's wrong with Fred Warner? 49ers linebacker has been playing with a broken ankle**\
 `Just like last Wednesday, Brock Purdy didn't throw much in practice, and Nick Bosa and Trent Williams didn't practice at all. `\
 https://nytimes.com/athletic/5954006/2024/11/27/fred-warner-49ers-broken-ankle/
