@@ -1,3 +1,15 @@
+**Man Utd's Martinez back for Bodo/Glimt clash, Maguire and Yoro absent**\
+`Manchester United defender Lisandro Martinez is fit to face Bodo/Glimt in the Europa League on Thursday but Harry Maguire and Leny Yoro remain unavailable.`\
+https://nytimes.com/athletic/5952411/2024/11/27/manchester-united-team-news-martinez-maguire-yoro/
+
+**Load up your fantasy football plate with Christian McCaffrey, Travis Kelce and more Thanksgiving week goodness**\
+`Renee Miller equates players to Thanksgiving foods — savory or unsavory — to help you get set for the holiday weekend.`\
+https://nytimes.com/athletic/5951241/2024/11/27/fantasy-football-matchups-thanksgiving/
+
+**3 Americans, Including F.B.I. Informant, Are Said to Be Freed in China Swap**\
+`The three men, John Leung, Kai Li and Mark Swidan, are on planes heading to the United States, officials said.`\
+https://nytimes.com/2024/11/27/world/asia/us-china-prisoner-swap.html
+
 **Scoop City: What to watch for this long weekend**\
 `What to watch for at each slate for this long NFL weekend, plus a look at memorable Thanksgiving performances and the 2025 rookies`\
 https://nytimes.com/athletic/5952632/2024/11/27/thanksgiving-weekend-nfl-schedule-guide/
