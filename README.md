@@ -1,3 +1,7 @@
+**Displaced Lebanese Rush to Return Home Following Cease-Fire**\
+`Roads were packed with cars as people displaced from southern and eastern Lebanon began returning to their homes after a cease-fire deal between Israel and Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000009848708/lebanon-displaced-cease-fire.html
+
 **Yamal named Golden Boy for 2024, becomes youngest winner of award**\
 `Lamine Yamal has won the Golden Boy award after a starring role for club and country in 2024.`\
 https://nytimes.com/athletic/5953046/2024/11/27/lamine-yamal-golden-boy-award-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/science/dinosaurs-fossils-poop-puke.html
 **Double-Pucker Cranberry Lemon Bars**\
 `Genevieve Ko’s pretty, sunset-colored treat is just the thing to offset all that tryptophan.`\
 https://nytimes.com/2024/11/27/dining/cranberry-lemon-bars.html
-
-**BOS Nation considering name change after backlash**\
-`The team, which will join the league in 2026, said it launched a process to gather input on its name from stakeholders.`\
-https://nytimes.com/athletic/5952727/2024/11/27/bos-nation-considers-name-change/
 
