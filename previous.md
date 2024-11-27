@@ -1,3 +1,7 @@
+**It's time for Timberwolves to ride Rob Dillingham's electricity to new heights**\
+`If Dillingham gets a real role once Mike Conley returns, whose minutes are going to be cut?`\
+https://nytimes.com/athletic/5951397/2024/11/27/rob-dillingham-timberwolves-new-heights/
+
 **What the Browns are facing going forward from a salary cap and roster perspective**\
 `Should Cleveland prepare for a full-on rebuild, or might it just shed some salary and bring back most of the folks in charge?`\
 https://nytimes.com/athletic/5951525/2024/11/27/browns-future-roster-salary-cap-plans/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/business/dealbook/inflation-trumponomics-pce-mark
 **The Athletic FC - What's going on with City? Plus: Coote probe over alleged betting breach**\
 `Today in TAFC: City's head-scratching defeat, PSG's downturn and Jude Bellingham unhappy over being England's 'scapegoat'`\
 https://nytimes.com/athletic/5952092/2024/11/27/man-city-psg-champions-league/
-
-**Trump Transition Live Updates: Picks for Trade and Economic Posts Highlight Trump’s Tariff Plans**\
-``\
-https://nytimes.com/live/2024/11/27/us/trump-news
 
