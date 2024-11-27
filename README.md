@@ -1,3 +1,7 @@
+**What the Browns are facing going forward from a salary cap and roster perspective**\
+`Should Cleveland prepare for a full-on rebuild, or might it just shed some salary and bring back most of the folks in charge?`\
+https://nytimes.com/athletic/5951525/2024/11/27/browns-future-roster-salary-cap-plans/
+
 **Ducks stock watch: Who's up, who's down at the quarter-season mark?**\
 `What can we make of the Ducks one quarter in? Are they improving at all under Greg Cronin? Is the best yet to come or is there peril ahead?`\
 https://nytimes.com/athletic/5951974/2024/11/27/anaheim-ducks-nhl-players-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952092/2024/11/27/man-city-psg-champions-league/
 **Trump Transition Live Updates: Picks for Trade and Economic Posts Highlight Trump’s Tariff Plans**\
 ``\
 https://nytimes.com/live/2024/11/27/us/trump-news
-
-**After Hunter Dickinson's ejection, KJ Adams and Kansas hit new gear vs. Duke**\
-`Dickinson's flagrant-2 foul will be the water cooler conversation, but Kansas may have learned more about itself after he left the floor.`\
-https://nytimes.com/athletic/5951710/2024/11/27/hunter-dickinson-ejection-kansas-duke/
 
