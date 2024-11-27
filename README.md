@@ -1,3 +1,7 @@
+**Corrections: Nov. 27, 2024**\
+`Corrections that appeared in print on Wednesday, Nov. 27, 2024.`\
+https://nytimes.com/2024/11/26/pageoneplus/corrections-nov-27-2024.html
+
 **Trump Picks Stanford Physician Who Opposed Lockdowns to Head N.I.H.**\
 `As the director of the National Institutes of Health, Dr. Jay Bhattacharya would oversee the world’s premier medical research agency, with a $47 billion budget and 27 separate institutes and centers.`\
 https://nytimes.com/2024/11/26/us/politics/jay-bhattacharya-nih-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/us/georgia-romers-cold-case-car-pond.html
 **Andrew Cuomo joins Netanyahu’s legal defense team.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2024/11/26/world/israel-hezbollah-lebanon-cease-fire/andrew-cuomo-joins-netanyahus-legal-defense-team
-
-**UConn suffers first back-to-back losses in 22 months with Colorado upset**\
-`Colorado will play the winner of No. 5 Iowa State and Dayton on Wednesday in the Maui Invitational's last-place game.`\
-https://nytimes.com/athletic/5951037/2024/11/26/uconn-loss-colorado-maui-invitational/
 
