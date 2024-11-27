@@ -1,3 +1,7 @@
+**Rosenthal: Blake Snell, Dodgers not messing around with five-year, $182 million deal**\
+`But by agreeing to terms so quickly, Snell will give himself a better ramp-up than he got last year, when he signed late in the process.`\
+https://nytimes.com/athletic/5951778/2024/11/27/blake-snell-scott-boras-dodgers/
+
 **For the Dodgers, signing Blake Snell always made sense**\
 `The Dodgers have long been fascinated with Snell, and now the left-hander joins an organization in need of more top-of-the-line pitching. `\
 https://nytimes.com/athletic/5951767/2024/11/27/los-angeles-dodgers-blake-snell-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949444/2024/11/27/leicester-manager-search-psr-con
 **From Airdrie's promotion to scoring for Palace in the Premier League: Who is Justin Devenny?**\
 `The Northern Ireland midfielder moved to Selhurst Park after impressing in the Scottish third tier and has taken his chance in recent weeks`\
 https://nytimes.com/athletic/5942565/2024/11/27/devenny-crystal-palace-airdrieonians-northern-ireland/
-
-**Politics, posturing and presents: Inside the weird world of Champions League meals**\
-`The secretive rituals around pre-match meals are integral to Europe's elite competition - but what really goes on?`\
-https://nytimes.com/athletic/5946057/2024/11/27/champions-league-meals/
 
