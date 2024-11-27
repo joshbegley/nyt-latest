@@ -1,3 +1,11 @@
+**Cease-Fire Deal Leaves Beleaguered Palestinians in Gaza Feeling Forgotten**\
+`With a truce between Israel and Hezbollah taking hold, Gazans are losing hope that Israel’s war in the enclave will end anytime soon.`\
+https://nytimes.com/2024/11/27/world/middleeast/gaza-displaced-ceasefire.html
+
+**I.C.C. Prosecutor Seeks Arrest Warrant for Myanmar Junta Leader**\
+`The International Criminal Court’s chief prosecutor accused Senior Gen. Min Aung Hlaing of crimes against humanity toward the country’s Muslim Rohingya.`\
+https://nytimes.com/2024/11/27/world/asia/myanmar-junta-leader-rohingya.html
+
 **Spurs intend to trigger Ben Davies contract extension**\
 `Tottenham Hotspur intend to trigger the option in Ben Davies’ contract, keeping the Wales defender at the club for next season.`\
 https://nytimes.com/athletic/5952155/2024/11/27/tottenham-hotspur-intend-to-trigger-ben-davies-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/theater/nyc-theater-holiday-christmas-shows.html
 **Manchester City's 13-minute collapse against Feyenoord encapsulated their defensive woes**\
 `The Dutch side's three late goals perfectly displayed Man City’s defensive issues, as did the fact they came in such quick succession`\
 https://nytimes.com/athletic/5951431/2024/11/27/manchester-city-feyenoord-defence-analysis/
-
-**Guardiola clarifies 'I want to hurt myself' comment**\
-`Manchester City manager Pep Guardiola says he “in no way intended to make light of the very serious issue of self-harm” after appearing to make a joke about “hurting himself”.`\
-https://nytimes.com/athletic/5952137/2024/11/27/pep-guardiola-manchester-city-harm/
-
-**What to make of Kliff Kingsbury and the Commanders' recent offensive regression**\
-`Why has Washington's offense stalled over the past few weeks? Is Kingsbury truly to blame?`\
-https://nytimes.com/athletic/5951612/2024/11/27/kliff-kingsbury-commanders-offense-struggles/
 
