@@ -1,3 +1,7 @@
+**Am I a Hypocrite for Calling Donald Trump a Liar?**\
+`The magazine’s Ethicist columnist on hypocrisy.`\
+https://nytimes.com/2024/11/27/magazine/hypocrisy-trump-liar-ethics.html
+
 **Maresca rules out selling Nkunku in January**\
 `Enzo Maresca says striker Christopher Nkunku is a big part of his plans at Chelsea and is not going to be sold in January.`\
 https://nytimes.com/athletic/5953690/2024/11/27/chelsea-nkunku-transfer-january/

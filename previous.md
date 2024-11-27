@@ -1,3 +1,7 @@
+**Am I a Hypocrite for Calling Donald Trump a Liar?**\
+`The magazine’s Ethicist columnist on hypocrisy.`\
+https://nytimes.com/2024/11/27/magazine/hypocrisy-trump-liar-ethics.html
+
 **Maresca rules out selling Nkunku in January**\
 `Enzo Maresca says striker Christopher Nkunku is a big part of his plans at Chelsea and is not going to be sold in January.`\
 https://nytimes.com/athletic/5953690/2024/11/27/chelsea-nkunku-transfer-january/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/nyregion/manfred-ohrenstein-dead.html
 **Pakistan’s Capital Is Turned Upside Down by Unending Protests**\
 `Residents of Islamabad are tiring of regular demonstrations demanding the release of the former prime minister Imran Khan, with the marches leading to clashes with security forces.`\
 https://nytimes.com/2024/11/27/world/asia/islamabad-pakistan-protest-pti.html
-
-**What’s in Our Queue? ‘Elden Ring’ and More**\
-`By Paul Mozur`\
-https://nytimes.com/card/2024/11/27/arts/editors-recommendations-eldenring
 
