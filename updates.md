@@ -1,3 +1,19 @@
+**BOS Nation considering name change after backlash**\
+`The team, which will join the league in 2026, said it launched a process to gather input on its name from stakeholders.`\
+https://nytimes.com/athletic/5952727/2024/11/27/bos-nation-considers-name-change/
+
+**Watch Ariana Grande Swing From a Chandelier in ‘Wicked’**\
+`The director Jon M. Chu narrates the musical scene, also featuring Cynthia Erivo, where Grande performs the song “Popular.”`\
+https://nytimes.com/2024/11/27/movies/wicked-clip-ariana-grande.html
+
+**‘Wicked’ | Anatomy of a Scene**\
+`The director Jon M. Chu narrates a scene in “Wicked” that features the song “Popular,” with Ariana Grande and Cynthia Erivo.`\
+https://nytimes.com/video/movies/100000009848652/wicked-scene.html
+
+**A Battered and Diminished Hezbollah Accepts a Ceasefire**\
+`Thirteen months of war left Hezbollah weakened, isolated and desperate for a way to stop the fighting.`\
+https://nytimes.com/2024/11/27/world/middleeast/hezbollah-israel-ceasefire.html
+
 **Ex-Giants QB Daniel Jones to sign with Vikings**\
 `Jones was released by the Giants last Friday after the team benched him earlier that week.`\
 https://nytimes.com/athletic/5952861/2024/11/27/giants-daniel-jones-sign-vikings/
