@@ -1,3 +1,11 @@
+**Liverpool's Bradley, Konate to be assessed ahead of Man City**\
+`Arne Slot says Ibrahima Konate and Conor Bradley need further assessment to determine whether they will be available for Liverpool’s crunch Premier League clash with Manchester City at Anfield on Sunday.`\
+https://nytimes.com/athletic/5954002/2024/11/27/liverpool-injury-bradley-konate/
+
+**U.S. Border Agents Seize 3,000 Fake Gibson Guitars**\
+`They would have been worth nearly $18 million if they were genuine, making it the largest counterfeit instrument seizure in history, officials said.`\
+https://nytimes.com/2024/11/27/us/fake-gibson-guitars-seized.html
+
 **Hezbollah Has Been Weakened. That Might Not Last.**\
 `Israel has decimated Hezbollah’s senior leadership and military infrastructure.`\
 https://nytimes.com/2024/11/27/opinion/hezbollah-israel-lebanon-ceasefire.html
