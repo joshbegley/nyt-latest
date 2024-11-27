@@ -1,3 +1,7 @@
+**Ex-Bruin Jake DeBrusk, a goal-scorer's tally and an offensively challenged former team**\
+`DeBrusk's goal for the Canucks in their 2-0 win vs. Boston was the kind of goal the Bruins really needed.`\
+https://nytimes.com/athletic/5951613/2024/11/26/bruins-canucks-jake-debrusk-goal/
+
 **How Kevin Lankinen, Canucks locked down the Bruins in shutout win: 3 takeaways**\
 `A supreme defensive effort got the Canucks' East Coast road trip off to a 2-0-0 start with a shutout in Boston.`\
 https://nytimes.com/athletic/5951554/2024/11/26/canucks-lankinen-debrusk-shutout-bruins/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/26/pageoneplus/quotation-of-the-day-the-catch.html
 **Memphis beats Michigan State to move into Maui Invitational title game**\
 `Penny Hardaway’s team has positioned itself to play the winner of No. 4 Auburn and No. 12 North Carolina in the championship.`\
 https://nytimes.com/athletic/5951410/2024/11/26/memphis-basketball-michigan-state-maui-invitational/
-
-**CFP rankings: Alabama, Clemson on outside looking in as ASU surges**\
-`No. 9 SMU moved into the bracket for the first time, giving the ACC two teams in the 12-team bracket alongside Miami.`\
-https://nytimes.com/athletic/5951393/2024/11/26/cfp-rankings-show-college-football-playoff-bracket/
 
