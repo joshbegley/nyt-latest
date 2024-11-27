@@ -1,3 +1,15 @@
+**Douglas Luiz, Alisha Lehmann and a rare couples transfer**\
+`Douglas Luiz swapped Aston Villa for Juventus in the summer - a week later, his partner Lehmann made the same move`\
+https://nytimes.com/athletic/5929101/2024/11/27/douglas-luiz-alisha-lehmann-aston-villa-juventus-couple-transfer/
+
+**Kaoru Mitoma finally looking his old self after taxing second Premier League season**\
+`After finally overcoming a back injury, Mitoma is recapturing the sparkle that made him such a big hit in his first Premier League season`\
+https://nytimes.com/athletic/5908069/2024/11/27/mitoma-brighton-form/
+
+**Analysing Southampton's litany of errors**\
+`Southampton are conceding too many goals - and too often they only have themselves to blame. How will Russell Martin cut out the mistakes?`\
+https://nytimes.com/athletic/5950137/2024/11/27/southampton-russell-martin-errors-goals-conceded/
+
 **How America helped shape the England team who'll face the USWNT at Wembley this weekend**\
 `England face the USWNT at Wembley this week, and plenty of Lionesses are grateful to the U.S. for aiding their football development`\
 https://nytimes.com/athletic/5940024/2024/11/27/england-lionesses-made-in-america/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/27/world/africa/namibia-election-swapo.html
 **Week 13 fantasy football rankings: Sleepers, projections, starts, sits | Tyrone Tracy, Tank Dell**\
 `Jake Ciely offers detailed game breakdowns, sleepers and rankings (food too) to help you navigate a busy fantasy football Thanksgiving week.`\
 https://nytimes.com/athletic/5950905/2024/11/27/week-13-fantasy-football-rankings-sleepers-projections-starts-sits-tyrone-tracy-tank-dell/
-
-**Meet One of Hong Kong’s Last Remaining Pro-Democracy Activists**\
-`For Chan Po-ying, a labor rights leader, life is one of constant police surveillance, even on hikes. But she finds solace from tiny gestures of support.`\
-https://nytimes.com/2024/11/27/world/asia/hong-kong-democracy-activist.html
-
-**Liverpool vs Real Madrid in the Champions League: Preview, odds and prediction**\
-`Liverpool host Real Madrid in a meeting of two previous Champions League winners on Wednesday. Will Liverpool keep rolling?`\
-https://nytimes.com/athletic/5950577/2024/11/27/liverpool-real-madrid-odds-prediction-champions-league/
-
-**After Hunter Dickinson's ejection, KJ Adams and Kansas hit new gear vs. Duke**\
-`Dickinson's flagrant-2 foul will be the water cooler conversation on Wednesday: Was the contact his foot made with Maliq Brown a kick?`\
-https://nytimes.com/athletic/5951710/2024/11/26/hunter-dickinson-ejection-kansas-duke/
 

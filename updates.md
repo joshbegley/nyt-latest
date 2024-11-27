@@ -1,3 +1,15 @@
+**Douglas Luiz, Alisha Lehmann and a rare couples transfer**\
+`Douglas Luiz swapped Aston Villa for Juventus in the summer - a week later, his partner Lehmann made the same move`\
+https://nytimes.com/athletic/5929101/2024/11/27/douglas-luiz-alisha-lehmann-aston-villa-juventus-couple-transfer/
+
+**Kaoru Mitoma finally looking his old self after taxing second Premier League season**\
+`After finally overcoming a back injury, Mitoma is recapturing the sparkle that made him such a big hit in his first Premier League season`\
+https://nytimes.com/athletic/5908069/2024/11/27/mitoma-brighton-form/
+
+**Analysing Southampton's litany of errors**\
+`Southampton are conceding too many goals - and too often they only have themselves to blame. How will Russell Martin cut out the mistakes?`\
+https://nytimes.com/athletic/5950137/2024/11/27/southampton-russell-martin-errors-goals-conceded/
+
 **How America helped shape the England team who'll face the USWNT at Wembley this weekend**\
 `England face the USWNT at Wembley this week, and plenty of Lionesses are grateful to the U.S. for aiding their football development`\
 https://nytimes.com/athletic/5940024/2024/11/27/england-lionesses-made-in-america/
