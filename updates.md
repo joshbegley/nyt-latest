@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 2-0 Madrid - Are Slot's team the best in Europe? And what now for Mbappe?**\
+`The major talking points as Liverpool record a statement win over their old rivals in the Champions League`\
+https://nytimes.com/athletic/5949208/2024/11/27/liverpool-real-madrid-champions-league-analysis-2/
+
 **Why Daniel Jones signing with the Vikings makes a world of sense for both sides**\
 `Working with Kevin O'Connell should only help Jones' game, while the ex-Giants QB could offer some insurance this year and going forward.`\
 https://nytimes.com/athletic/5953700/2024/11/27/daniel-jones-vikings-signing-kevin-oconnell/
