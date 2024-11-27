@@ -1,3 +1,11 @@
+**Brighton set to make Ferguson available for January loan move**\
+`Brighton and Hove Albion striker Evan Ferguson is expected to be made available for loan during the January transfer window.`\
+https://nytimes.com/athletic/5950307/2024/11/27/brighton-evan-ferguson-loan/
+
+**Inside the low-tech meeting that supercharged Donovan Mitchell and the Cavs**\
+`Kenny Atkinson knew the Cavs could be great when he took the coaching job last summer. But first, he needed to win over Donovan Mitchell.`\
+https://nytimes.com/athletic/5951307/2024/11/27/nba-cleveland-cavaliers-donovan-mitchell-kenny-atkinson/
+
 **Chinese Automakers Tell Suppliers to Cut Costs as Price War Deepens**\
 `China’s electric vehicle market is the world’s largest — and also its most cutthroat, with dozens of brands jostling for position.`\
 https://nytimes.com/2024/11/27/business/byd-china-electric-vehicles.html
