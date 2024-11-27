@@ -1,3 +1,11 @@
+**Quotation of the Day: The Catch**\
+`Quotation of the Day for Wednesday, November 27, 2024.`\
+https://nytimes.com/2024/11/26/pageoneplus/quotation-of-the-day-the-catch.html
+
+**Memphis beats Michigan State to move into Maui Invitational title game**\
+`Penny Hardaway’s team has positioned itself to play the winner of No. 4 Auburn and No. 12 North Carolina in the championship.`\
+https://nytimes.com/athletic/5951410/2024/11/26/memphis-basketball-michigan-state-maui-invitational/
+
 **CFP rankings: Alabama, Clemson on outside looking in as ASU surges**\
 `No. 9 SMU moved into the bracket for the first time, giving the ACC two teams in the 12-team bracket alongside Miami.`\
 https://nytimes.com/athletic/5951393/2024/11/26/cfp-rankings-show-college-football-playoff-bracket/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5951037/2024/11/26/uconn-loss-colorado-maui-invitat
 **Judge denies request to block SJSU volleyball player from tournament**\
 `The plaintiffs sued the Mountain West and its commissioner over the participation of a player who they say is transgender.`\
 https://nytimes.com/athletic/5947424/2024/11/26/san-jose-state-volleyball-lawsuit-transgender/
-
-**Champions League Briefing: Guardiola marked by Man City collapse, Pulisic among form players**\
-`Analysis of the key moments from the latest round of the Champions League`\
-https://nytimes.com/athletic/5950475/2024/11/26/champions-league-guardiola-marked/
-
-**Arteta hails Arsenal ruthless in Sporting CP win: 'We played with courage'**\
-`Mikel Arteta hailed Arsenal&#8217;s 5-1 win over Sporting CP as a landmark victory as he praised his players for finding their ruthless streak in front of goal.`\
-https://nytimes.com/athletic/5951132/2024/11/26/mikel-arteta-arsenal-sporting-cp/
 
