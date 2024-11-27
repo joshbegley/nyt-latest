@@ -1,3 +1,11 @@
+**Acheampong back in Chelsea first-team training ahead of Heidenheim trip**\
+`Chelsea academy defender Josh Acheampong trained with the first-team squad this morning (Wednesday) — a sign that his exile from competitive action could be over.`\
+https://nytimes.com/athletic/5952156/2024/11/27/josh-acheampong-chelsea-training/
+
+**Mystery Drones Spotted Over U.S. Air Bases in Britain**\
+`Small unmanned craft were seen flying over four bases in England, the U.S. Air Force in Europe said in a statement. The Pentagon noted that there had not been “any significant mission impact.”`\
+https://nytimes.com/2024/11/27/world/europe/drones-us-air-bases-uk.html
+
 **Cease-Fire Deal Leaves Beleaguered Palestinians in Gaza Feeling Forgotten**\
 `With a truce between Israel and Hezbollah taking hold, Gazans are losing hope that Israel’s war in the enclave will end anytime soon.`\
 https://nytimes.com/2024/11/27/world/middleeast/gaza-displaced-ceasefire.html
