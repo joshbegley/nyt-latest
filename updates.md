@@ -1,3 +1,7 @@
+**Hezbollah Has Been Weakened. That Might Not Last.**\
+`Israel has decimated Hezbollah’s senior leadership and military infrastructure.`\
+https://nytimes.com/2024/11/27/opinion/hezbollah-israel-lebanon-ceasefire.html
+
 **Hezbollah Has Been Weakened. That Might Not Last**\
 `Israel has decimated Hezbollah’s senior leadership and military infrastructure. `\
 https://nytimes.com/2024/11/27/opinion/hezbollah-israel-lebanon-ceasefire.html
