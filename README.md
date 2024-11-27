@@ -1,3 +1,7 @@
+**Scoop City: What to watch for this long weekend**\
+`What to watch for at each slate for this long NFL weekend, plus a look at memorable Thanksgiving performances and the 2025 rookies`\
+https://nytimes.com/athletic/5952632/2024/11/27/thanksgiving-weekend-nfl-schedule-guide/
+
 **The Bounce: Lakers finally lose NBA Cup game; Chef Reactions chimes in**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5952206/2024/11/27/chef-reactions-lebron-james-lakers-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/style/encountering-an-ex.html
 **It's time for Timberwolves to ride Rob Dillingham's electricity to new heights**\
 `If Dillingham gets a real role once Mike Conley returns, whose minutes are going to be cut?`\
 https://nytimes.com/athletic/5951397/2024/11/27/rob-dillingham-timberwolves-new-heights/
-
-**What the Browns are facing going forward from a salary cap and roster perspective**\
-`Should Cleveland prepare for a full-on rebuild, or might it just shed some salary and bring back most of the folks in charge?`\
-https://nytimes.com/athletic/5951525/2024/11/27/browns-future-roster-salary-cap-plans/
 
