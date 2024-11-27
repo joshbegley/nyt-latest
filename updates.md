@@ -1,3 +1,7 @@
+**Thursday Briefing: A Fragile Cease-fire in Lebanon**\
+`Plus, a post-election Thanksgiving.`\
+https://nytimes.com/2024/11/27/briefing/lebanon-cease-fire-trump-thanksgiving.html
+
 **Who is Myanmar’s Senior Gen. Min Aung Hlaing?**\
 `The leader of a military junta is accused of crimes against humanity over his persecution of the country’s Muslim Rohingya.`\
 https://nytimes.com/2024/11/27/world/asia/min-aung-hlaing-myanmar.html
