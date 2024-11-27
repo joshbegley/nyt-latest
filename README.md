@@ -1,3 +1,7 @@
+**How Will Trump’s Covid Contrarians Handle the Next Pandemic?**\
+`President-elect Donald J. Trump’s selections to run the nation’s health agencies are alarming infectious disease experts.`\
+https://nytimes.com/2024/11/27/us/politics/trump-health.html
+
 **Jim Abrahams, 80, Dies; One of Trio Behind ‘Airplane!’ and ‘Naked Gun’**\
 `Along with David and Jerry Zucker, he revolutionized film comedy with a style of straight-faced, fast-paced parody.`\
 https://nytimes.com/2024/11/27/movies/jim-abrahams-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/us/politics/john-fetterman-democrats.html
 **N.Y.P.D. Detective Is Charged With Making ‘Ghost Guns’**\
 `Anthony Sciortino, a detective in Staten Island, was also charged with falsifying police records in what prosecutors said was a “brazen act of misconduct.”`\
 https://nytimes.com/2024/11/27/nyregion/nypd-detective-ghost-guns.html
-
-**Why the Wild are in hot pursuit of Blue Jackets defense prospect David Jiricek**\
-`The Wild are keen on the 6-foot-4 right-shot defenseman who's struggled to find his place in Columbus.`\
-https://nytimes.com/athletic/5953972/2024/11/27/wild-david-jiricek-spurgeon-defense/
 

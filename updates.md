@@ -1,3 +1,7 @@
+**What's wrong with Fred Warner? 49ers linebacker has been playing with a broken ankle**\
+`Just like last Wednesday, Brock Purdy didn't throw much in practice, and Nick Bosa and Trent Williams didn't practice at all. `\
+https://nytimes.com/athletic/5954006/2024/11/27/fred-warner-49ers-broken-ankle/
+
 **Jim Abrahams, 80, Dies; One of Trio Behind ‘Airplane!’ and ‘Naked Gun’**\
 `Along with David and Jerry Zucker, he revolutionized film comedy with a style of straight-faced, fast-paced parody.`\
 https://nytimes.com/2024/11/27/movies/jim-abrahams-dead.html

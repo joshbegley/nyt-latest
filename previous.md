@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5954065/2024/11/27/giants-brandon-crawford-retireme
 https://nytimes.com/2024/11/27/movies/queer-review-daniel-craig-luca-guadagnino.html
 
 **What's wrong with Fred Warner? 49ers linebacker has been playing with a broken ankle**\
-`Just like last Wednesday, Brock Purdy didn't throw much in practice while Nick Bosa and Trent Williams didn't practice at all. `\
+`Just like last Wednesday, Brock Purdy didn't throw much in practice, and Nick Bosa and Trent Williams didn't practice at all. `\
 https://nytimes.com/athletic/5954006/2024/11/27/fred-warner-49ers-broken-ankle/
 
 **Liverpool's Bradley, Konate to be assessed ahead of Man City**\
