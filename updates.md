@@ -1,3 +1,15 @@
+**Five centers the Flyers could target in a trade this season**\
+`Could a move for a center be in the cards for GM Daniel Briere and the Flyers at some point before the March 7 trade deadline?`\
+https://nytimes.com/athletic/5952822/2024/11/27/flyers-nhl-trade-targets-center/
+
+**Trump’s Pick to Lead the N.I.H. Gets Some Things Right**\
+`The course of Bhattacharya’s tenure will depend on whether he can listen to his critics.`\
+https://nytimes.com/2024/11/27/opinion/nih-director-trump-jay-bhattacharya.html
+
+**Alongside Cease-Fire in Lebanon, Israeli Forces Keep Striking in Gaza**\
+`While Israel and Hezbollah were finalizing a cease-fire to halt the fighting in Lebanon, Israeli strikes killed 33 people in Gaza, according to local health authorities.`\
+https://nytimes.com/2024/11/27/world/middleeast/israel-gaza-strikes.html
+
 **Andy Paley, Whose Imprint Was All Over Pop Music, Dies at 73**\
 `Musician, singer, songwriter, producer and more, he collaborated with Madonna and a raft of other artists and helped resuscitate the career of the Beach Boys’ Brian Wilson.`\
 https://nytimes.com/2024/11/27/arts/music/andy-paley-dead.html
