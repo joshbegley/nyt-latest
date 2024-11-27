@@ -1,3 +1,7 @@
+**The False Premise Shaping Trump’s Public Health Picks**\
+`Nobody got Covid totally right. But the contrarians got it mostly wrong.`\
+https://nytimes.com/2024/11/27/opinion/covid-trump-cabinet.html
+
 **Musk’s Slashing of the Federal Budget Faces Big Hurdles**\
 `The so-called Department of Government Efficiency, with Elon Musk as co-leader, has advantages that past budget-cutters did not, but laws and court challenges can still make change slow and difficult.`\
 https://nytimes.com/2024/11/27/us/politics/elon-musk-federal-budget.html

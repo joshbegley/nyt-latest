@@ -1,3 +1,7 @@
+**The False Premise Shaping Trump’s Public Health Picks**\
+`Nobody got Covid totally right. But the contrarians got it mostly wrong.`\
+https://nytimes.com/2024/11/27/opinion/covid-trump-cabinet.html
+
 **Musk’s Slashing of the Federal Budget Faces Big Hurdles**\
 `The so-called Department of Government Efficiency, with Elon Musk as co-leader, has advantages that past budget-cutters did not, but laws and court challenges can still make change slow and difficult.`\
 https://nytimes.com/2024/11/27/us/politics/elon-musk-federal-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5953572/2024/11/27/college-football-rivalry-week-mo
 **A Guide to N.Y.C. Holiday Events: Music, Lights and More**\
 `“The Nutcracker,” light displays and ice skating: Here are some of our favorite things to do this season.`\
 https://nytimes.com/2024/11/27/arts/nyc-holiday-events-guide.html
-
-**Commanders CB Marshon Lattimore to practice for first time since trade**\
-`Lattimore has been dealing with a hamstring injury since before the acquisition, last playing with the Saints in Week 8.`\
-https://nytimes.com/athletic/5953343/2024/11/27/commanders-marshon-lattimore-practice-hamstring-trade/
 
