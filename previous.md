@@ -1,3 +1,7 @@
+**Moscow Expels 2 German Journalists, Accusing Berlin of Closing Russian TV Bureau**\
+`The German government denied it had taken action against Russia’s Channel One office in Berlin.`\
+https://nytimes.com/2024/11/27/world/europe/russia-german-journalists-expelled.html
+
 **French Intellectuals Decry a Dissident Writer’s Arrest in Algeria**\
 `An outspoken French-Algerian novelist returned to his homeland and was promptly taken into custody at age 75.`\
 https://nytimes.com/2024/11/27/world/europe/algeria-boualem-sansal-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/27/world/middleeast/ceasefire-agreement.
 **Why Do the Lions and Cowboys Play on Thanksgiving Every Year?**\
 `The short answer: tradition.`\
 https://nytimes.com/2024/11/27/sports/football/lions-cowboys-thanksgiving-game-nfl.html
-
-**Evelyne de Pontbriand, Champion of Biodynamic Winemaking, Dies at 73**\
-`The latest in a long line of women to run her family winery, she helped bring worldwide attention to sustainable viniculture.`\
-https://nytimes.com/2024/11/27/dining/evelyne-de-pontbriand-dead.html
 
