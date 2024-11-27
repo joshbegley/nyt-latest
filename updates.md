@@ -1,3 +1,15 @@
+**Displaced Lebanese Rush to Return Home Following Cease-Fire**\
+`Roads were packed with cars as people displaced from southern and eastern Lebanon began returning to their homes after a cease-fire deal between Israel and Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000009848708/lebanon-displaced-cease-fire.html
+
+**Yamal named Golden Boy for 2024, becomes youngest winner of award**\
+`Lamine Yamal has won the Golden Boy award after a starring role for club and country in 2024.`\
+https://nytimes.com/athletic/5953046/2024/11/27/lamine-yamal-golden-boy-award-win/
+
+**Judge Finds New York in Contempt, Clearing the Way for Rikers Takeover**\
+`The finding was a landmark in a court case that has stretched out over more than a decade. Plans for a receivership of New York City’s jails will be heard on Jan. 14.`\
+https://nytimes.com/2024/11/27/nyregion/rikers-contempt-receivership.html
+
 **Judge Finds New York in Contempt, Clearing the Way to Take Over Rikers**\
 `The finding was a landmark in a court case that has stretched out over more than a decade. Plans for a receivership of New York City’s jails will be heard on Jan. 14.`\
 https://nytimes.com/2024/11/27/nyregion/rikers-contempt-receivership.html
