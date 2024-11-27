@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5952734/2024/11/27/luis-suarez-inter-miami-new-cont
 https://nytimes.com/2024/11/27/style/tiny-modern-love-stories-i-couldnt-stop-looking-at-her.html
 
 **France Suggests It Would Not Immediately Arrest Netanyahu Despite I.C.C. Warrant**\
-`The foreign ministry did not say outright that Prime Minister Benjamin Netanyahu of Israel would be free to travel to France, but it argued that I.C.C. rules on immunity applied to him.`\
+`The foreign ministry did not say outright that Prime Minister Benjamin Netanyahu of Israel would be free to travel to France, but it argued that an I.C.C. rule on immunity may apply to him.`\
 https://nytimes.com/2024/11/27/world/middleeast/france-netanyahu-arrest-icc.html
 
 **LIV Golf to hire former 76ers exec as new CEO**\
