@@ -1,3 +1,11 @@
+**Sean Combs Is Denied Bail a Third Time**\
+`A federal judge ruled against the music mogul’s efforts to be released from jail while he awaits trial on sex trafficking and racketeering charges.`\
+https://nytimes.com/2024/11/27/arts/music/sean-combs-diddy-denied-bail.html
+
+**West Virginia shocks No. 3 Gonzaga 86-78 in Atlantis quarterfinals**\
+`That improves Darian DeVries’ first team to 4-1 and suggests big leaps since an 86-62 loss at rival Pitt on Nov. 15.`\
+https://nytimes.com/athletic/5953857/2024/11/27/west-virginia-gonzaga-atlantis-quarterfinals/
+
 **Thousands of Lebanese Head South as a Fragile Peace Begins**\
 `Also, Trump picked an envoy for Russia and Ukraine. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/11/27/briefing/cease-fire-lebanon-trump-russia-ukraine-envoy.html
