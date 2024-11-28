@@ -1,3 +1,7 @@
+**Judge John Hodgman on Putrid Flowers**\
+`Can you prevent your spouse from growing a plant that (occasionally) smells like a rotting corpse?`\
+https://nytimes.com/2024/11/28/magazine/judge-john-hodgman-on-putrid-flowers.html
+
 **Karl Marx Explained the 19th Century. Wolfgang Streeck Is Explaining the 21st.**\
 `He has a convincing theory of what has gone wrong with globalization.`\
 https://nytimes.com/2024/11/28/opinion/wolfgang-streeck-populism.html
