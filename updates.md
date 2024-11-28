@@ -1,3 +1,7 @@
+**NFL Week 13 fantasy football, betting cheat sheet: David Montgomery active for Thanksgiving game**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
+
 **Nottingham Forest's Danilo returns to training following broken ankle**\
 `Danilo has returned to training with Nottingham Forest, as he continues his recovery from a broken ankle.`\
 https://nytimes.com/athletic/5955130/2024/11/28/danilo-nottingham-forest-return-injury-update/
