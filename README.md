@@ -1,3 +1,7 @@
+**Anthony Edwards unloads on the Timberwolves, calling them soft and front-runners**\
+`Timberwolves have lost four in a row and sit in 12th place in the Western Conference at 8-10.`\
+https://nytimes.com/athletic/5954552/2024/11/28/anthony-edwards-postgame-comments/
+
 **Seth Meyers Wishes You a Happy Frozen-Pizza Thanksgiving**\
 `Meyers tried out a few catchphrases for DiGiorno’s seasonal offering, while Jimmy Fallon suggested some last-minute Turkey Day substitutions.`\
 https://nytimes.com/2024/11/28/arts/television/seth-meyers-thanksgiving.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952025/2024/11/28/jess-fishlock-interview-wales-se
 **Fantasy Premier League: Ranking the best forwards in the game right now**\
 `Erling Haaland is no longer the automatic choice up front for FPL managers - here are the best alternatives`\
 https://nytimes.com/athletic/5952005/2024/11/28/fantasy-premier-league-ranking-the-best-forwards-in-the-game-right-now/
-
-**Leeds are playing a squad game - they're no longer relying on a few individuals**\
-`Leeds beat Luton 3-0 on Wednesday evening to climb back to the top of the Championship`\
-https://nytimes.com/athletic/5953445/2024/11/28/leeds-united-squad-luton/
 
