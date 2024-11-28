@@ -1,3 +1,7 @@
+**Millions Turn Out and Tune In for Macy’s Thanksgiving Day Parade**\
+`There will be some differences this year because, after three decades, a new company has taken over production of the annual event.`\
+https://nytimes.com/2024/11/28/nyregion/macys-thanksgiving-day-parade.html
+
 **San Jose State’s Opponent Boycotts Game Over Transgender Player. Again.**\
 `The women’s volleyball team at the center of a national debate over gender and sports advanced to the conference championship after Boise State refused to play.`\
 https://nytimes.com/2024/11/28/us/transgender-san-jose-boise-volleyball.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954586/2024/11/28/cowboys-today-predictions-giants
 **Barcelona at 125: 7% of goals scored by Messi, three papal conclaves and 132 trophies**\
 `Barcelona are 125 years old on Friday. So what are some of the most significant numbers in their history?`\
 https://nytimes.com/athletic/5927155/2024/11/28/barcelona-125th-anniversary-messi-numbers/
-
-**Books About Everyone, for Everyone**\
-`First Book’s work is an antidote to book bans. It makes diverse books more accessible to students, teachers and libraries.`\
-https://nytimes.com/2024/11/28/opinion/communities-fund-first-book.html
 

@@ -1,3 +1,7 @@
+**Millions Turn Out and Tune In for Macy’s Thanksgiving Day Parade**\
+`There will be some differences this year because, after three decades, a new company has taken over production of the annual event.`\
+https://nytimes.com/2024/11/28/nyregion/macys-thanksgiving-day-parade.html
+
 **San Jose State’s Opponent Boycotts Game Over Transgender Player. Again.**\
 `The women’s volleyball team at the center of a national debate over gender and sports advanced to the conference championship after Boise State refused to play.`\
 https://nytimes.com/2024/11/28/us/transgender-san-jose-boise-volleyball.html
