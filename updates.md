@@ -1,3 +1,7 @@
+**This Maverick Thinker Is the Karl Marx of Our Time**\
+`He has a convincing theory of what has gone wrong with globalization.`\
+https://nytimes.com/2024/11/28/opinion/wolfgang-streeck-populism.html
+
 **India’s Exam Leaks Underline the Nation’s Bigger Problem**\
 `The economy has failed to create enough good jobs, so a government post appeals to far more people than there are openings, fueling desperation.`\
 https://nytimes.com/2024/11/28/world/asia/indias-exam-leaks-underline-the-nations-bigger-problem.html
