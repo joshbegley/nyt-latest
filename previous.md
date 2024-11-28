@@ -1,3 +1,7 @@
+**Explaining Iga Swiatek's doping ban, why it was kept secret and what it means for tennis**\
+`The five-time Grand Slam champion has served 22 days of a one-month ban from tennis. Here's what you need to know`\
+https://nytimes.com/athletic/5955134/2024/11/28/iga-swiatek-drugs-ban-explained/
+
 **Footprints Suggest Different Human Relatives Lived Alongside One Another**\
 `A discovery in northern Kenya hints that two extinct species that were our ancient relatives shared the same habitat and possibly interacted.`\
 https://nytimes.com/2024/11/28/science/footprints-ancient-kenya.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5955596/2024/11/28/frank-lampard-coventry-city/
 **NFL Week 13 fantasy football, betting cheat sheet: Drew Lock to start Giants' Thanksgiving game**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
-
-**British Fan of ‘Homeland’ Series Is Convicted of Spying for Iran**\
-`Daniel Khalife also pleaded guilty to an escape from a London jail, strapped underneath a truck with a sling made of trousers, that embarrassed the British authorities.`\
-https://nytimes.com/2024/11/28/world/europe/daniel-khalife-iran-spy-prison-escape.html
 
