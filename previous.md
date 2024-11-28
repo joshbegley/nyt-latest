@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 2 Roma 2: Late Hummels equaliser denies Spurs in wildly open Europa League clash**\
+`Jack Pitt-Brooke, Jay Harris and Liam Tharme break down the key moments from Thursday's Europa League tie`\
+https://nytimes.com/athletic/5949205/2024/11/28/tottenham-roma-result-analysis/
+
+**The Briefing: Manchester United 3-2 Bodo/Glimt - Amorim's first win, Hojlund at the double**\
+`Laurie Whitwell dissects the key talking points from Ruben Amorim's first win in charge of Manchester United`\
+https://nytimes.com/athletic/5949204/2024/11/28/manchester-united-bodo-glimt-hojlund-result/
+
 **Trump Team’s Rejection of a Transition Deal Adds a Wrinkle to Its Transparency Pledges**\
 `The president-elect’s team said it would disclose its donors’ names and not take donations from foreigners, but it isn’t legally bound to adhere to those promises.`\
 https://nytimes.com/2024/11/28/us/politics/trump-transition-transparency.html
@@ -17,12 +25,4 @@ https://nytimes.com/2024/11/28/world/middleeast/baalbek-lebanon-israel.html
 **Everyone’s Going to the Book Bar**\
 `A glass of wine, a snack and a new book is about as good as it gets.`\
 https://nytimes.com/2024/11/28/dining/everyones-going-to-the-book-bar.html
-
-**‘The Agency’ Is a Slick and Pleasing Spy Drama**\
-`Based on the French show “The Bureau,” the new Showtime series stars Michael Fassbender as a spy who must readjust to life after living undercover.`\
-https://nytimes.com/2024/11/28/arts/television/the-agency-showtime-paramount.html
-
-**Hiker Survives 50 Days in Canadian Wilderness**\
-`Sam Benastick was found after weeks missing in British Columbia’s frigid Redfern-Keily Provincial Park, and after the official search was called off. The police had feared “this would not be the outcome,” a spokeswoman said.`\
-https://nytimes.com/2024/11/28/world/canada/hiker-canada-sam-benastick.html
 
