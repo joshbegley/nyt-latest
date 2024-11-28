@@ -1,3 +1,7 @@
+**Taylor Hall nets first hat trick in nearly 11 years to propel Blackhawks against Stars**\
+`The Blackhawks found their scoring touch in a 6-2 defeat of Dallas in front of the third-biggest home crowd this season.`\
+https://nytimes.com/athletic/5954312/2024/11/28/blackhawks-taylor-hall-hat-trick-stars/
+
 **'It's ridiculous!': Blue Jackets' Dean Evason infuriated by non-call in OT loss**\
 `The Blue Jackets forced overtime against the Canadiens but fell just 44 seconds into OT after a play that set Evason off.`\
 https://nytimes.com/athletic/5954393/2024/11/28/blue-jackets-evason-overtime-call-canadiens/

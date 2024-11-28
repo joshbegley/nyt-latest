@@ -1,3 +1,7 @@
+**Taylor Hall nets first hat trick in nearly 11 years to propel Blackhawks against Stars**\
+`The Blackhawks found their scoring touch in a 6-2 defeat of Dallas in front of the third-biggest home crowd this season.`\
+https://nytimes.com/athletic/5954312/2024/11/28/blackhawks-taylor-hall-hat-trick-stars/
+
 **What's going wrong with Everton's misfiring attack?**\
 `Everton have scored 10 goals in 12 games - but more worryingly there has been a lack of creativity. How can Sean Dyche solve the problems?`\
 https://nytimes.com/athletic/5952438/2024/11/28/everton-attack-misfiring-creativity-sean-dyche/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952316/2024/11/28/chelsea-champions-league-analysi
 **A debut for Portugal. Scoring in La Liga. But what next for Fabio Silva and Wolves?**\
 `The striker is loved by fans at his new club but does he have a future there?`\
 https://nytimes.com/athletic/5950135/2024/11/28/what-next-for-fabio-silva-and-wolves/
-
-**Barcelona 125: Joan Gamper, the man who built the club (thanks to a magazine advert)**\
-`How frustration prompted a Swiss man to create one of the world's most beloved football clubs - before he was exiled`\
-https://nytimes.com/athletic/5942164/2024/11/28/barcelona-joan-gamper-football-club-newspaper/
 
