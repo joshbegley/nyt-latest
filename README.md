@@ -1,3 +1,15 @@
+**Next week’s waiver wire: Allen, Thielen and more players to add before Week 14**\
+`John Laghezza shares his top expected future waiver values, including Braelon Allen, who could be a league winner if opportunity knocks.`\
+https://nytimes.com/athletic/5950592/2024/11/28/next-weeks-waiver-wire-braelon-allen-thielen-players-add-now-week-14/
+
+**What do Manchester City fans make of the club's dire run of form?**\
+`City supporters across the world are resigned to their team's ongoing dip - but grateful for the magical memories this squad gave them`\
+https://nytimes.com/athletic/5952352/2024/11/28/manchster-city-fans-reaction-defeats-form/
+
+**How a strange fixture quirk could help Arsenal's title prospects**\
+`Arsenal venture outside of London only once in their next 13 games, a schedule that could help them during a busy period`\
+https://nytimes.com/athletic/5940080/2024/11/28/arsenal-london-fixtures-december-january/
+
 **Thursday Briefing**\
 `The first day of a truce between Hezbollah and Israel.`\
 https://nytimes.com/2024/11/28/briefing/hezbollah-truce-trump-envoy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5954426/2024/11/27/sabres-wild-takeaways-jack-quinn
 **Penguins flip first-shot script and Rust restores "fun" for a night: Takeaways**\
 `The Penguins scored on their first shot of the game en route to a badly needed victory against the Canucks.`\
 https://nytimes.com/athletic/5954402/2024/11/27/penguins-rust-first-shot-canucks/
-
-**As Plastic Talks Continue, a Reminder of What We’re All Exposed To**\
-`As international talks continue this week, a dozen U.N. officials reveal scientists tracked their exposure to many chemicals found in plastics.`\
-https://nytimes.com/2024/11/27/climate/plastic-chemicals-exposure.html
-
-**Maple Leafs report cards: Depleted lineup no match for Stanley Cup champs**\
-`A difference in urgency was clear from the start as Toronto's four-game winning streak came to an end with a 5-1 loss to Florida.`\
-https://nytimes.com/athletic/5954363/2024/11/27/maple-leafs-panthers-grades-analysis/
-
-**Did Arturs Šilovs’ brutal performance cost the Canucks? 3 takeaways**\
-`The Canucks couldn't complete the comeback after falling into a 4-1 deficit by the end of the first period.`\
-https://nytimes.com/athletic/5954207/2024/11/27/canucks-silovs-defence-penguins/
 
