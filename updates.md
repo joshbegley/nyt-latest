@@ -1,3 +1,7 @@
+**Conor Bradley and a tackle for the ages**\
+`Liverpool's victory over Real Madrid was ignited by a thumping, memorable challenge on Kylian Mbappe from their young right-back`\
+https://nytimes.com/athletic/5954096/2024/11/28/liverpool-conor-bradley-tackle-kylian-mbappe/
+
 **Stowaway Travels on Flight From U.S., Officials Say**\
 `A Delta Air Lines pilot announced on a trip from New York to Paris that there was an extra passenger. The airline said it was working with the authorities to investigate the flight.`\
 https://nytimes.com/2024/11/28/us/jfk-paris-delta-stowaway.html
