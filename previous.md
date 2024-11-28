@@ -1,3 +1,11 @@
+**Snow and Rain Disrupt Holiday Travel as Storm Moves Across the Northeast**\
+`More than a foot of snow could accumulate in northern New England, hampering drivers in a record-breaking year for Thanksgiving travel.`\
+https://nytimes.com/2024/11/28/us/snow-storm-thanksgiving-travel-weather-northeast.html
+
+**Yiddish Is a Supposedly Dying Language That’s Thrillingly Alive**\
+`Yiddish, the heart of some communities, is always fascinating.`\
+https://nytimes.com/2024/11/28/opinion/yiddish-hebrew-language-thriving.html
+
 **Boise State volleyball forfeits Mountain West tournament match vs. SJSU**\
 `Boise State forfeited games against SJSU this season instead of competing against an alleged transgender player on the Spartans' roster.`\
 https://nytimes.com/athletic/5955432/2024/11/28/boise-state-volleyball-withdraws-tournament/
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/5954932/2024/11/28/van-nistelrooy-leicester-attacki
 **Malacia set to start for Man United in Europa League following long-term injury**\
 `Tyrell Malacia is set to start his first game for Manchester United in 550 days against Bodo/Glimt in the Europa League.`\
 https://nytimes.com/athletic/5955580/2024/11/28/tyrell-malacia-set-to-start-for-manchester-united-against-bodo-glimt-following-long-term-knee-injury/
-
-**Romania Court Orders a Recount After Surprise Election Result**\
-`A top court issued the ruling just days after an ultranationalist outsider unexpectedly won the most votes in the first round of presidential elections held Sunday.`\
-https://nytimes.com/2024/11/28/world/europe/romania-recount-tiktok-election.html
-
-**Lampard ‘not disappointed’ to miss out on Premier League job after Coventry appointment**\
-`Frank Lampard said he isn’t disappointed not to have been given a Premier League job after he was named as Coventry City’s new manager.`\
-https://nytimes.com/athletic/5955596/2024/11/28/frank-lampard-coventry-city/
 

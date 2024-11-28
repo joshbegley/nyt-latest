@@ -1,3 +1,11 @@
+**Snow and Rain Disrupt Holiday Travel as Storm Moves Across the Northeast**\
+`More than a foot of snow could accumulate in northern New England, hampering drivers in a record-breaking year for Thanksgiving travel.`\
+https://nytimes.com/2024/11/28/us/snow-storm-thanksgiving-travel-weather-northeast.html
+
+**Yiddish Is a Supposedly Dying Language That’s Thrillingly Alive**\
+`Yiddish, the heart of some communities, is always fascinating.`\
+https://nytimes.com/2024/11/28/opinion/yiddish-hebrew-language-thriving.html
+
 **Boise State volleyball forfeits Mountain West tournament match vs. SJSU**\
 `Boise State forfeited games against SJSU this season instead of competing against an alleged transgender player on the Spartans' roster.`\
 https://nytimes.com/athletic/5955432/2024/11/28/boise-state-volleyball-withdraws-tournament/
