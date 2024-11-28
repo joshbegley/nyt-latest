@@ -1,3 +1,7 @@
+**San Jose State’s Opponent Boycotts Game Over Transgender Player. Again.**\
+`The women’s volleyball team at the center of a national debate over gender and sports advanced to the conference championship after Boise State refused to play.`\
+https://nytimes.com/2024/11/28/us/transgender-san-jose-boise-volleyball.html
+
 **Submit your questions for Until Saturday's podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/5954907/2024/11/28/college-football-questions-mailbag-until-saturday-34/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5927155/2024/11/28/barcelona-125th-anniversary-mess
 **Books About Everyone, for Everyone**\
 `First Book’s work is an antidote to book bans. It makes diverse books more accessible to students, teachers and libraries.`\
 https://nytimes.com/2024/11/28/opinion/communities-fund-first-book.html
-
-**Taylor Swift, the future of fandom and a dilemma facing women's football**\
-`Powerful figures within the game have spoken about the opportunities for attrating new fans, but the comments have divided opinion`\
-https://nytimes.com/athletic/5952288/2024/11/28/taylor-swift-womens-football-fandom/
 

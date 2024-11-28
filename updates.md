@@ -1,3 +1,7 @@
+**San Jose State’s Opponent Boycotts Game Over Transgender Player. Again.**\
+`The women’s volleyball team at the center of a national debate over gender and sports advanced to the conference championship after Boise State refused to play.`\
+https://nytimes.com/2024/11/28/us/transgender-san-jose-boise-volleyball.html
+
 **Submit your questions for Until Saturday's podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/5954907/2024/11/28/college-football-questions-mailbag-until-saturday-34/
