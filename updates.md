@@ -1,3 +1,7 @@
+**Australia Has Barred Everyone Under 16 From Social Media. Will It Work?**\
+`The law sets a minimum age for users of platforms like TikTok, Instagram and X. How the restriction will be enforced online remains an open question.`\
+https://nytimes.com/2024/11/28/world/asia/australia-social-media-ban-law.html
+
 **Marks: After winning Maui, Auburn and Johni Broome look like college basketball's best**\
 `Broome had 21 points, 16 rebounds, six assists, four blocks, two 3-pointers and one steal in the Maui title game domination of Memphis.`\
 https://nytimes.com/athletic/5954782/2024/11/28/auburn-basketball-johni-broome-maui-invitational/
