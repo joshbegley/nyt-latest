@@ -1,3 +1,7 @@
+**How Australia Will (or Won’t) Keep Children Off Social Media**\
+`Critics say big questions remain not only about how the new law will be enforced, but also about whether the ban will really protect young people.`\
+https://nytimes.com/2024/11/28/world/australia/australia-social-media-ban.html
+
 **Australia Has Barred Everyone Under 16 From Social Media. Will It Work?**\
 `The law sets a minimum age for users of platforms like TikTok, Instagram and X. How the restriction will be enforced online remains an open question.`\
 https://nytimes.com/2024/11/28/world/asia/australia-social-media-ban-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/28/briefing/thanksgiving-arguments.html
 **The Pulse: Thanksgiving food draft**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5951828/2024/11/28/thanskgiving-football-schedule-the-pulse/
-
-**Ukraine Reports Major Russian Attack on Its Energy Sector**\
-`President Vladimir V. Putin said Russia has been selecting targets for missile strikes in Kyiv and that they might include “decision-making centers.”`\
-https://nytimes.com/2024/11/28/world/europe/russia-missile-attack-ukraine-energy.html
 

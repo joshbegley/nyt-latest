@@ -1,3 +1,7 @@
+**How Australia Will (or Won’t) Keep Children Off Social Media**\
+`Critics say big questions remain not only about how the new law will be enforced, but also about whether the ban will really protect young people.`\
+https://nytimes.com/2024/11/28/world/australia/australia-social-media-ban.html
+
 **Australia Has Barred Everyone Under 16 From Social Media. Will It Work?**\
 `The law sets a minimum age for users of platforms like TikTok, Instagram and X. How the restriction will be enforced online remains an open question.`\
 https://nytimes.com/2024/11/28/world/asia/australia-social-media-ban-law.html
