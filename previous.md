@@ -1,5 +1,13 @@
-**Taylor Hall nets first hat trick in nearly 11 years to propel Blackhawks against Stars**\
-`The Blackhawks found their scoring touch in a 6-2 defeat of Dallas in front of the third-biggest home crowd this season.`\
+**Karl Marx Explained the 19th Century. Wolfgang Streeck Is Explaining the 21st.**\
+`He has a convincing theory of what has gone wrong with globalization.`\
+https://nytimes.com/2024/11/28/opinion/wolfgang-streeck-populism.html
+
+**Is China Coming for Your Turkey, Too?**\
+`China’s push to develop alternative proteins is not a threat to America. It’s good for the planet.`\
+https://nytimes.com/2024/11/28/opinion/china-food-science-protein.html
+
+**Taylor Hall nets first hat trick in nearly 11 years to propel Blackhawks past Stars**\
+`Chicago found its scoring touch in a 6-2 defeat of Dallas in front of the third-biggest home crowd this season.`\
 https://nytimes.com/athletic/5954312/2024/11/28/blackhawks-taylor-hall-hat-trick-stars/
 
 **What's going wrong with Everton's misfiring attack?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5949197/2024/11/28/tomas-soucek-west-ham-legend/
 **Forget Wrexham and Birmingham - Wycombe are the team to beat in League One**\
 `New ownership, data-led recruitment and a bright young manager have turned the club into the most in-form side in the country`\
 https://nytimes.com/athletic/5952178/2024/11/28/wycombe-wrexham-birmingham-league-one/
-
-**Income, sponsorship, recruitment boost: How Champions League football would help Chelsea**\
-`Chelsea are aiming for Champions League football — this is how it would help`\
-https://nytimes.com/athletic/5952316/2024/11/28/chelsea-champions-league-analysis/
-
-**A debut for Portugal. Scoring in La Liga. But what next for Fabio Silva and Wolves?**\
-`The striker is loved by fans at his new club but does he have a future there?`\
-https://nytimes.com/athletic/5950135/2024/11/28/what-next-for-fabio-silva-and-wolves/
 

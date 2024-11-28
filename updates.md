@@ -1,3 +1,15 @@
+**Karl Marx Explained the 19th Century. Wolfgang Streeck Is Explaining the 21st.**\
+`He has a convincing theory of what has gone wrong with globalization.`\
+https://nytimes.com/2024/11/28/opinion/wolfgang-streeck-populism.html
+
+**Is China Coming for Your Turkey, Too?**\
+`China’s push to develop alternative proteins is not a threat to America. It’s good for the planet.`\
+https://nytimes.com/2024/11/28/opinion/china-food-science-protein.html
+
+**Taylor Hall nets first hat trick in nearly 11 years to propel Blackhawks past Stars**\
+`Chicago found its scoring touch in a 6-2 defeat of Dallas in front of the third-biggest home crowd this season.`\
+https://nytimes.com/athletic/5954312/2024/11/28/blackhawks-taylor-hall-hat-trick-stars/
+
 **Taylor Hall nets first hat trick in nearly 11 years to propel Blackhawks against Stars**\
 `The Blackhawks found their scoring touch in a 6-2 defeat of Dallas in front of the third-biggest home crowd this season.`\
 https://nytimes.com/athletic/5954312/2024/11/28/blackhawks-taylor-hall-hat-trick-stars/
