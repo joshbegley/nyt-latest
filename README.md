@@ -1,3 +1,7 @@
+**Corrections: Nov. 28, 2024**\
+`Corrections that appeared in print on Thursday, Nov. 28, 2024.`\
+https://nytimes.com/2024/11/27/pageoneplus/corrections-nov-28-2024.html
+
 **What the Cease-Fire Tells Us About Hezbollah**\
 `Hezbollah has entered a cease-fire with Israel. Ben Hubbard, an international correspondent for The New York Times, explains how 13 months of war left Hezbollah weakened, isolated and desperate for a way to stop the fighting in Lebanon.`\
 https://nytimes.com/video/world/middleeast/100000009847236/what-the-cease-fire-tells-us-about-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/27/us/trump-news/workers-union-criticizes-elon-
 **Mexico’s President and Trump Describe a Positive Talk but Differ on Migration Details**\
 `The discussion between President Claudia Sheinbaum of Mexico and the president-elect came after Mr. Trump threatened tariffs unless Mexican authorities stopped migrants and drugs from coming across the border.`\
 https://nytimes.com/2024/11/27/us/politics/mexico-trump-tariff-tensions.html
-
-**How Will Trump’s Covid Contrarians Handle the Next Pandemic?**\
-`President-elect Donald J. Trump’s selections to run the nation’s health agencies are alarming infectious disease experts.`\
-https://nytimes.com/2024/11/27/us/politics/trump-health.html
 
