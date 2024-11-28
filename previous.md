@@ -1,3 +1,7 @@
+**Romania Court Orders a Recount After Surprise Election Result**\
+`A top court issued the ruling just days after an ultranationalist outsider unexpectedly won the most votes in the first round of presidential elections held Sunday.`\
+https://nytimes.com/2024/11/28/world/europe/romania-recount-tiktok-election.html
+
 **Lampard 'not dissapointed' to not get Premier League job after becoming Coventry manager**\
 `Frank Lampard said he isn’t disappointed not to have been given a Premier League job after he was named as Coventry City’s new manager.`\
 https://nytimes.com/athletic/5955596/2024/11/28/frank-lampard-coventry-city/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5955478/2024/11/28/usmnt-tillman-pepi-psv-champions
 **Two South Asian Neighbors, Once Friendly, Are Now at Bitter Odds**\
 `India and Bangladesh have traded angry accusations about Bangladesh’s Hindu minority.`\
 https://nytimes.com/2024/11/28/world/asia/india-bangladesh-relations-hindu.html
-
-**Veggie Recipe Matchmaker, Part 1**\
-`“Together we have the dietary restrictions from hell.” “I said I’d bring a ‘tasty salad’ but I have zero ideas for making that happen.” Let’s get it.`\
-https://nytimes.com/2024/11/28/dining/reader-questions.html
 
