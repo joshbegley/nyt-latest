@@ -1,3 +1,7 @@
+**Cowboys Today: Predictions for Thanksgiving matchup vs. Giants and Brandin Cooks returns**\
+`Comparing Cooper Rush and Dak Prescott, injury updates and picking the winner in the Cowboys-Giants matchup.`\
+https://nytimes.com/athletic/5954586/2024/11/28/cowboys-today-predictions-giants-cooper-rush/
+
 **Barcelona at 125: 7% of goals scored by Messi, three papal conclaves and 132 trophies**\
 `Barcelona are 125 years old on Friday. So what are some of the most significant numbers in their history?`\
 https://nytimes.com/athletic/5927155/2024/11/28/barcelona-125th-anniversary-messi-numbers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954533/2024/11/28/washington-wizards-losing-streak
 **Best division since realignment? Putting the NFC North's dominance in context**\
 `The Lions, Vikings, Packers and Bears have combined to beat non-divisional foes by 9.5 points per game, easily the best since 2002.`\
 https://nytimes.com/athletic/5952981/2024/11/28/lions-bears-packers-vikings-nfc-north/
-
-**Another injury means more changes are coming up front for Leafs forwards**\
-`Bobby McMann left the second period of the Leafs' loss to the Panthers, putting coach Craig Berube into yet another quandary.`\
-https://nytimes.com/athletic/5954497/2024/11/28/maple-leafs-injuries-mcmann-berube-panthers/
 
