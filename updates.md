@@ -1,3 +1,7 @@
+**Boise State volleyball forfeits Mountain West tournament match vs. SJSU**\
+`Boise State forfeited games against SJSU this season instead of competing against an alleged transgender player on the Spartans' roster.`\
+https://nytimes.com/athletic/5955432/2024/11/28/boise-state-volleyball-withdraws-tournament/
+
 **Explaining Iga Swiatek's doping ban, why it was kept secret and what it means for tennis**\
 `The five-time Grand Slam champion has served 22 days of a one-month ban from tennis. Here's what you need to know`\
 https://nytimes.com/athletic/5955134/2024/11/28/iga-swiatek-drugs-ban-trimetazidine/

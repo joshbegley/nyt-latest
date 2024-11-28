@@ -1,3 +1,7 @@
+**Boise State volleyball forfeits Mountain West tournament match vs. SJSU**\
+`Boise State forfeited games against SJSU this season instead of competing against an alleged transgender player on the Spartans' roster.`\
+https://nytimes.com/athletic/5955432/2024/11/28/boise-state-volleyball-withdraws-tournament/
+
 **Explaining Iga Swiatek's doping ban, why it was kept secret and what it means for tennis**\
 `The five-time Grand Slam champion has served 22 days of a one-month ban from tennis. Here's what you need to know`\
 https://nytimes.com/athletic/5955134/2024/11/28/iga-swiatek-drugs-ban-trimetazidine/
@@ -21,8 +25,4 @@ https://nytimes.com/2024/11/28/world/europe/romania-recount-tiktok-election.html
 **Lampard ‘not disappointed’ to miss out on Premier League job after Coventry appointment**\
 `Frank Lampard said he isn’t disappointed not to have been given a Premier League job after he was named as Coventry City’s new manager.`\
 https://nytimes.com/athletic/5955596/2024/11/28/frank-lampard-coventry-city/
-
-**NFL Week 13 fantasy football, betting cheat sheet: Drew Lock to start Giants' Thanksgiving game**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
 
