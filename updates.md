@@ -1,3 +1,7 @@
+**Anthony Edwards says individual agendas are behind Timberwolves' slow start**\
+`This has not been a team that plays together, pushing in the same direction. "We got to start doing what the coaches say," Edwards said.`\
+https://nytimes.com/athletic/5954565/2024/11/28/anthony-edwards-timberwolves-slow-start/
+
 **Thompson: The Warriors need Brandin Podziemski, and he's showing some promising signs**\
 `After a stellar rookie year, Brandin Podziemski has struggled to start Year 2. But Wednesday, he looked like a player finding his way back.`\
 https://nytimes.com/athletic/5954850/2024/11/28/brandin-podziemski-golden-state-warriors-thunder/
