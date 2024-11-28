@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5952438/2024/11/28/everton-attack-misfiring-creativity-sean-dyche/
 
 **'It's ridiculous!': Blue Jackets' Dean Evason infuriated by non-call in OT loss**\
-`The Blue Jackets forced overtime against the Canadiens, but fell just 44 seconds into overtime after a play that set Evason off.`\
+`The Blue Jackets forced overtime against the Canadiens but fell just 44 seconds into OT after a play that set Evason off.`\
 https://nytimes.com/athletic/5954393/2024/11/28/blue-jackets-evason-overtime-call-canadiens/
 
 **Jess Fishlock has lots to achieve — with Wales, the Seattle Reign and padel**\
