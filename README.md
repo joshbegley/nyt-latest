@@ -31,7 +31,7 @@ https://nytimes.com/2024/11/28/world/asia/india-entrance-exam-leaks-economy.html
 https://nytimes.com/athletic/5954196/2024/11/28/kylian-mbappe-liverpool-real-madrid/
 
 **Conor Bradley and a tackle for the ages**\
-`Liverpool's victory over Real Madrid was ignited by a thumping, memorable challenge on Kylian Mbappe from their young right back`\
+`Liverpool's victory over Real Madrid was ignited by a thumping, memorable challenge on Kylian Mbappe from their young right-back`\
 https://nytimes.com/athletic/5954096/2024/11/28/liverpool-conor-bradley-tackle-kylian-mbappe/
 
 **Edwards unloads on the Timberwolves, calling them 'soft' and 'front-runners'**\
