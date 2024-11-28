@@ -1,3 +1,7 @@
+**Jack Quinn's goal-scoring slump continues as Sabres held scoreless: 3 takeaways vs. Wild**\
+`The Sabres put 39 shots on net, but Wild goalie Filip Gustavsson stopped every single one.`\
+https://nytimes.com/athletic/5954426/2024/11/27/sabres-wild-takeaways-jack-quinn/
+
 **Penguins flip first-shot script and Rust restores "fun" for a night: Takeaways**\
 `The Penguins scored on their first shot of the game en route to a badly needed victory against the Canucks.`\
 https://nytimes.com/athletic/5954402/2024/11/27/penguins-rust-first-shot-canucks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/world/middleeast/syria-opposition-forces-bases.ht
 **Corrections: Nov. 28, 2024**\
 `Corrections that appeared in print on Thursday, Nov. 28, 2024.`\
 https://nytimes.com/2024/11/27/pageoneplus/corrections-nov-28-2024.html
-
-**What the Cease-Fire Tells Us About Hezbollah**\
-`Hezbollah has entered a cease-fire with Israel. Ben Hubbard, an international correspondent for The New York Times, explains how 13 months of war left Hezbollah weakened, isolated and desperate for a way to stop the fighting in Lebanon.`\
-https://nytimes.com/video/world/middleeast/100000009847236/what-the-cease-fire-tells-us-about-hezbollah.html
 
