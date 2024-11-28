@@ -1,3 +1,7 @@
+**Anthony Edwards unloads on the Timberwolves, calling them soft and front-runners**\
+`Timberwolves have lost four in a row and sit in 12th place in the Western Conference at 8-10.`\
+https://nytimes.com/athletic/5954552/2024/11/28/anthony-edwards-postgame-comments/
+
 **Seth Meyers Wishes You a Happy Frozen-Pizza Thanksgiving**\
 `Meyers tried out a few catchphrases for DiGiorno’s seasonal offering, while Jimmy Fallon suggested some last-minute Turkey Day substitutions.`\
 https://nytimes.com/2024/11/28/arts/television/seth-meyers-thanksgiving.html
