@@ -1,3 +1,7 @@
+**Peggy Caserta, Who Wrote a Tell-All About Janis Joplin, Dies at 84**\
+`Her Haight-Ashbury clothing store was ground zero for the counterculture. But she was best known for a tawdry book — which she later disavowed — published after Ms. Joplin’s death.`\
+https://nytimes.com/2024/11/28/books/peggy-caserta-dead.html
+
 **The Briefing: Tottenham 2 Roma 2: Late Hummels equaliser denies Spurs in wildly open Europa League clash**\
 `Jack Pitt-Brooke, Jay Harris and Liam Tharme break down the key moments from Thursday's Europa League tie`\
 https://nytimes.com/athletic/5949205/2024/11/28/tottenham-roma-result-analysis/
@@ -21,8 +25,4 @@ https://nytimes.com/2024/11/28/briefing/lebanon-cease-fire-russia-ukraine-austra
 **‘Nobody Won’: Residents of a Lebanese City Return to Rubble and Sorrow**\
 `Tens of thousands of people who had fled the city of Baalbek returned to bombed-out restaurants, flattened apartment buildings and many of the dead still buried under the rubble.`\
 https://nytimes.com/2024/11/28/world/middleeast/baalbek-lebanon-israel.html
-
-**Everyone’s Going to the Book Bar**\
-`A glass of wine, a snack and a new book is about as good as it gets.`\
-https://nytimes.com/2024/11/28/dining/everyones-going-to-the-book-bar.html
 

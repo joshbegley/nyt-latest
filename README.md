@@ -2,7 +2,7 @@
 `Her Haight-Ashbury clothing store was ground zero for the counterculture. But she was best known for a tawdry book — which she later disavowed — published after Ms. Joplin’s death.`\
 https://nytimes.com/2024/11/28/books/peggy-caserta-dead.html
 
-**The Briefing: Tottenham 2 Roma 2: Late Hummels equaliser denies Spurs in wildly open Europa League clash**\
+**The Briefing - Tottenham 2 Roma 2: Late Hummels equaliser denies Spurs in wildly open Europa League clash**\
 `Jack Pitt-Brooke, Jay Harris and Liam Tharme break down the key moments from Thursday's Europa League tie`\
 https://nytimes.com/athletic/5949205/2024/11/28/tottenham-roma-result-analysis/
 
