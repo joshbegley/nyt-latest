@@ -1,3 +1,7 @@
+**Stowaway Travels on Flight From U.S., Officials Say**\
+`A Delta Air Lines pilot announced on a trip from New York to Paris that there was an extra passenger. The airline said it was working with the authorities to investigate the flight.`\
+https://nytimes.com/2024/11/28/us/jfk-paris-delta-stowaway.html
+
 **For Celtic and the rest of the Champions League's 'middle class', this season is different**\
 `In previous years Brendan Rodgers' side might already be out but the new format gives them hope - as does their capacity for a comeback`\
 https://nytimes.com/athletic/5954597/2024/11/28/celtic-club-bruges-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954096/2024/11/28/liverpool-conor-bradley-tackle-k
 **Edwards unloads on the Timberwolves, calling them 'soft' and 'front-runners'**\
 `Timberwolves have lost four in a row and sit in 12th place in the Western Conference at 8-10.`\
 https://nytimes.com/athletic/5954552/2024/11/28/anthony-edwards-postgame-comments/
-
-**Seth Meyers Wishes You a Happy Frozen-Pizza Thanksgiving**\
-`Meyers tried out a few catchphrases for DiGiorno’s seasonal offering, while Jimmy Fallon suggested some last-minute Turkey Day substitutions.`\
-https://nytimes.com/2024/11/28/arts/television/seth-meyers-thanksgiving.html
 

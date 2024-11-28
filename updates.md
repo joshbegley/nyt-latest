@@ -1,3 +1,7 @@
+**India’s Exam Leaks Underline the Nation’s Bigger Problem**\
+`The economy has failed to create enough good jobs, so a government post appeals to far more people than there are openings, fueling desperation.`\
+https://nytimes.com/2024/11/28/world/asia/india-entrance-exam-leaks-economy.html
+
 **For Celtic and the rest of the Champions League's 'middle class', this season is different**\
 `In previous years Brendan Rodgers' side might already be out but the new format gives them hope - as does their capacity for a comeback`\
 https://nytimes.com/athletic/5954597/2024/11/28/celtic-club-bruges-champions-league/
