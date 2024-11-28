@@ -1,3 +1,7 @@
+**Penguins flip first-shot script and Rust restores "fun" for a night: Takeaways**\
+`The Penguins scored on their first shot of the game en route to a badly needed victory against the Canucks.`\
+https://nytimes.com/athletic/5954402/2024/11/27/penguins-rust-first-shot-canucks/
+
 **As Plastic Talks Continue, a Reminder of What We’re All Exposed To.**\
 `As international talks continue this week, a dozen U.N. officials reveal scientists tracked their exposure to many chemicals found in plastics.`\
 https://nytimes.com/2024/11/27/climate/plastic-chemicals-exposure.html
