@@ -1,3 +1,43 @@
+**She Was the Queen of 90 Million Nightstands**\
+`Barbara Taylor Bradford was a profound part of her readers’ lives.`\
+https://nytimes.com/2024/11/28/opinion/barbara-taylor-bradford-romance-novels.html
+
+**In Brooklyn With $800,000 and Designs on a One-Bedroom. Which Option Was the Right Fit?**\
+`Forced out of their two-bedroom rental by a new landlord, a young couple looked to downsize in Park Slope or Clinton Hill. Here’s what they found.`\
+https://nytimes.com/interactive/2024/11/28/realestate/brooklyn-park-slope-clinton-hill-home-sale.html
+
+**With Trump Returning and Hezbollah Weakened, Iran Strikes a Conciliatory Tone**\
+`As Iran faces domestic and foreign challenges, its bellicose rhetoric on the United States and Israel has given way to signs that it wants less confrontation.`\
+https://nytimes.com/2024/11/28/world/middleeast/iran-shift-trump-hezbollah.html
+
+**Did the World Need a Hot Santa? It Got One Anyway.**\
+`A new series of ads from Target features Kris K., a “weirdly hot” version of the beloved character, continuing a trend of spicing up holiday favorites.`\
+https://nytimes.com/2024/11/28/style/target-hot-santa-ads.html
+
+**Celebrating the Art Movement That Wasn’t**\
+`“Harmony & Dissonance” is a nervy, mood-lifting, masterpiece-studded show that offers an in-depth look at Orphism, which is famous for being unknown.`\
+https://nytimes.com/2024/11/28/arts/design/orphism-guggenheim-museum-delauney-art.html
+
+**The Great Gags From ‘Airplane!’ and More**\
+`With the death of Jim Abrahams, one third of the Zucker-Abrahams-Zucker writing and directing trio, a looks at some of the funniest moments from their key films.`\
+https://nytimes.com/2024/11/28/movies/airplane-jokes-jim-abrahams.html
+
+**A Fossil Gets Its Name From a Revived Indigenous Language**\
+`After scientists found an extinct burrowing amphibian on Eastern Shoshone land, members of the tribe gave it a name in their language.`\
+https://nytimes.com/2024/11/28/science/fossils-eastern-shoshone-burrows.html
+
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are in Chelsea, on the Upper East Side and on the Grand Concourse.`\
+https://nytimes.com/2024/11/28/realestate/homes-for-sale-in-manhattan-and-the-bronx.html
+
+**Psychedelic Traces Found on Mug From Ancient Egypt**\
+`Egyptians may have used hallucinogenic substances as part of a fertility rite, researchers said.`\
+https://nytimes.com/2024/11/28/science/egyptian-psychedelic-mug.html
+
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a four-bedroom in North Bellmore, N.Y., and a three-bedroom in Sherman, Conn.`\
+https://nytimes.com/2024/11/28/realestate/housing-market-near-nyc.html
+
 **Dunk to return from injury against Southampton**\
 `Brighton &amp; Hove Albion captain Lewis Dunk is back in contention for Friday&#8217;s home game against Southampton.`\
 https://nytimes.com/athletic/5954650/2024/11/28/lewis-dunk-injury-brighton-southampton/

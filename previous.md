@@ -1,40 +1,40 @@
-**Dunk to return from injury against Southampton**\
-`Brighton &amp; Hove Albion captain Lewis Dunk is back in contention for Friday&#8217;s home game against Southampton.`\
-https://nytimes.com/athletic/5954650/2024/11/28/lewis-dunk-injury-brighton-southampton/
+**She Was the Queen of 90 Million Nightstands**\
+`Barbara Taylor Bradford was a profound part of her readers’ lives.`\
+https://nytimes.com/2024/11/28/opinion/barbara-taylor-bradford-romance-novels.html
 
-**Stowaway Travels on Flight From U.S., Officials Say**\
-`A Delta Air Lines pilot announced on a trip from New York to Paris that there was an extra passenger. The airline said it was working with the authorities to investigate the flight.`\
-https://nytimes.com/2024/11/28/us/jfk-paris-delta-stowaway.html
+**In Brooklyn With $800,000 and Designs on a One-Bedroom. Which Option Was the Right Fit?**\
+`Forced out of their two-bedroom rental by a new landlord, a young couple looked to downsize in Park Slope or Clinton Hill. Here’s what they found.`\
+https://nytimes.com/interactive/2024/11/28/realestate/brooklyn-park-slope-clinton-hill-home-sale.html
 
-**For Celtic and the rest of the Champions League's 'middle class', this season is different**\
-`In previous years Brendan Rodgers' side might already be out but the new format gives them hope - as does their capacity for a comeback`\
-https://nytimes.com/athletic/5954597/2024/11/28/celtic-club-bruges-champions-league/
+**With Trump Returning and Hezbollah Weakened, Iran Strikes a Conciliatory Tone**\
+`As Iran faces domestic and foreign challenges, its bellicose rhetoric on the United States and Israel has given way to signs that it wants less confrontation.`\
+https://nytimes.com/2024/11/28/world/middleeast/iran-shift-trump-hezbollah.html
 
-**This 22-Foot Turkey Roosts in a Region of Roadside Giants**\
-`Big Tom is a beloved landmark in his Minnesota hometown. Across the Midwest, small places take pride in having the largest of just about anything.`\
-https://nytimes.com/2024/11/28/us/worlds-largest-turkey-minnesota-thanksgiving.html
+**Did the World Need a Hot Santa? It Got One Anyway.**\
+`A new series of ads from Target features Kris K., a “weirdly hot” version of the beloved character, continuing a trend of spicing up holiday favorites.`\
+https://nytimes.com/2024/11/28/style/target-hot-santa-ads.html
 
-**What to Know About a Possible Federal Takeover of Rikers Island**\
-`A judge found New York City in contempt of an agreement meant to improve jail conditions, setting the stage for a receivership.`\
-https://nytimes.com/2024/11/28/nyregion/rikers-prison-federal-takeover.html
+**Celebrating the Art Movement That Wasn’t**\
+`“Harmony & Dissonance” is a nervy, mood-lifting, masterpiece-studded show that offers an in-depth look at Orphism, which is famous for being unknown.`\
+https://nytimes.com/2024/11/28/arts/design/orphism-guggenheim-museum-delauney-art.html
 
-**The M.T.A.’s New Subway Boss Says He’s Here to Stay**\
-`For a decade, the M.T.A. has not retained a city transit president for longer than three years. Now a 27-year veteran of the authority is taking the job.`\
-https://nytimes.com/2024/11/28/nyregion/mta-crichlow-subway-transit.html
+**The Great Gags From ‘Airplane!’ and More**\
+`With the death of Jim Abrahams, one third of the Zucker-Abrahams-Zucker writing and directing trio, a looks at some of the funniest moments from their key films.`\
+https://nytimes.com/2024/11/28/movies/airplane-jokes-jim-abrahams.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/28/crosswords/spelling-bee-forum.html
+**A Fossil Gets Its Name From a Revived Indigenous Language**\
+`After scientists found an extinct burrowing amphibian on Eastern Shoshone land, members of the tribe gave it a name in their language.`\
+https://nytimes.com/2024/11/28/science/fossils-eastern-shoshone-burrows.html
 
-**India’s Exam Leaks Underline the Nation’s Bigger Problem**\
-`The economy has failed to create enough good jobs, so a government post appeals to far more people than there are openings, fueling desperation.`\
-https://nytimes.com/2024/11/28/world/asia/india-entrance-exam-leaks-economy.html
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are in Chelsea, on the Upper East Side and on the Grand Concourse.`\
+https://nytimes.com/2024/11/28/realestate/homes-for-sale-in-manhattan-and-the-bronx.html
 
-**Kylian Mbappe's night to forget: That tackle, a missed penalty and attitude questions**\
-`The Frenchman had his chance to impress in Vinicius Junior's absence but not much went right for him at Anfield`\
-https://nytimes.com/athletic/5954196/2024/11/28/kylian-mbappe-liverpool-real-madrid/
+**Psychedelic Traces Found on Mug From Ancient Egypt**\
+`Egyptians may have used hallucinogenic substances as part of a fertility rite, researchers said.`\
+https://nytimes.com/2024/11/28/science/egyptian-psychedelic-mug.html
 
-**Conor Bradley and a tackle for the ages**\
-`Liverpool's victory over Real Madrid was ignited by a thumping, memorable challenge on Kylian Mbappe from their young right-back`\
-https://nytimes.com/athletic/5954096/2024/11/28/liverpool-conor-bradley-tackle-kylian-mbappe/
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are a four-bedroom in North Bellmore, N.Y., and a three-bedroom in Sherman, Conn.`\
+https://nytimes.com/2024/11/28/realestate/housing-market-near-nyc.html
 
