@@ -1,3 +1,27 @@
+**Jess Fishlock has lots to achieve — with Wales, the Seattle Reign and padel**\
+`The Wales and Reign midfielder has served her country with distinction - a place at the Euros for the first time is within touching distance`\
+https://nytimes.com/athletic/5952025/2024/11/28/jess-fishlock-interview-wales-seattle-reign/
+
+**Fantasy Premier League: Ranking the best forwards in the game right now**\
+`Erling Haaland is no longer the automatic choice up front for FPL managers - here are the best alternatives`\
+https://nytimes.com/athletic/5952005/2024/11/28/fantasy-premier-league-ranking-the-best-forwards-in-the-game-right-now/
+
+**Leeds are playing a squad game - they're no longer relying on a few individuals**\
+`Leeds beat Luton 3-0 on Wednesday evening to climb back to the top of the Championship`\
+https://nytimes.com/athletic/5953445/2024/11/28/leeds-united-squad-luton/
+
+**Tomas Soucek: West Ham legend?**\
+`Tomas Soucek explained his new celebration — he has made a huge impact at West Ham`\
+https://nytimes.com/athletic/5949197/2024/11/28/tomas-soucek-west-ham-legend/
+
+**Forget Wrexham and Birmingham - Wycombe are the team to beat in League One**\
+`New ownership, data-led recruitment and a bright young manager have turned the club into the most in-form side in the country`\
+https://nytimes.com/athletic/5952178/2024/11/28/wycombe-wrexham-birmingham-league-one/
+
+**Income, sponsorship, recruitment boost: How Champions League football would help Chelsea**\
+`Chelsea are aiming for Champions League football — this is how it would help`\
+https://nytimes.com/athletic/5952316/2024/11/28/chelsea-champions-league-analysis/
+
 **A debut for Portugal. Scoring in La Liga. But what next for Fabio Silva and Wolves?**\
 `The striker is loved by fans at his new club but does he have a future there?`\
 https://nytimes.com/athletic/5950135/2024/11/28/what-next-for-fabio-silva-and-wolves/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5952531/2024/11/28/the-art-of-the-training-video-ho
 **Binnington sets Blues franchise win record, plus injury news on Buchnevich, Broberg**\
 `Binnington won his 152nd game with the franchise, surpassing Mike Liut's long-standing record.`\
 https://nytimes.com/athletic/5954231/2024/11/28/blues-binnington-franchise-win-record-devils/
-
-**INEOS arrived at Man Utd on a wave of goodwill but ticket price rises put that at risk**\
-`The drive to increase revenue is now affecting matchgoing fans and supporters' groups are not impressed`\
-https://nytimes.com/athletic/5953380/2024/11/28/ineos-ratcliffe-ticket-price-rises/
-
-**Next week’s waiver wire: Allen, Thielen and more players to add before Week 14**\
-`John Laghezza shares his top expected future waiver values, including Braelon Allen, who could be a league winner if opportunity knocks.`\
-https://nytimes.com/athletic/5950592/2024/11/28/next-weeks-waiver-wire-braelon-allen-thielen-players-add-now-week-14/
-
-**What do Manchester City fans make of the club's dire run of form?**\
-`City supporters across the world are resigned to their team's ongoing dip - but grateful for the magical memories this squad gave them`\
-https://nytimes.com/athletic/5952352/2024/11/28/manchster-city-fans-reaction-defeats-form/
-
-**How a strange fixture quirk could help Arsenal's title prospects**\
-`Arsenal venture outside of London only once in their next 13 games, a schedule that could help them during a busy period`\
-https://nytimes.com/athletic/5940080/2024/11/28/arsenal-london-fixtures-december-january/
-
-**Thursday Briefing**\
-`The first day of a truce between Hezbollah and Israel.`\
-https://nytimes.com/2024/11/28/briefing/hezbollah-truce-trump-envoy.html
-
-**These Exams Mean Everything in India. Thieves See a Gold Mine.**\
-`In a country where government jobs are highly coveted, the tests that govern hiring are a lucrative target for criminal gangs.`\
-https://nytimes.com/2024/11/28/world/asia/india-exam-leak.html
 
