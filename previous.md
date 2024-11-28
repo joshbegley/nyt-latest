@@ -1,3 +1,7 @@
+**Biden Makes a Final Nantucket Visit as President**\
+`The president made his usual stops, expressing gratitude for progress toward peace in the Middle East and urging Americans to stay hopeful.`\
+https://nytimes.com/2024/11/28/us/politics/biden-thanksgiving-nantucket.html
+
 **NFL Week 13 fantasy football, betting cheat sheet: Drew Lock to start Giants' Thanksgiving game**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5955134/2024/11/28/iga-swiatek-drugs-ban-trimetazid
 **Footprints Suggest Different Human Relatives Lived Alongside One Another**\
 `A discovery in northern Kenya hints that two extinct species that were our ancient relatives shared the same habitat and possibly interacted.`\
 https://nytimes.com/2024/11/28/science/footprints-ancient-kenya.html
-
-**Van Nistelrooy's attacking approach might be just what this Leicester team needs**\
-`The Dutchman is in the frame to replace Steve Cooper - if he can replicate his playing style from PSV then Leicester's squad will be happy`\
-https://nytimes.com/athletic/5954932/2024/11/28/van-nistelrooy-leicester-attacking-approach/
 
