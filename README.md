@@ -1,3 +1,7 @@
+**Kendrick Lamar’s Never-Ending Battles**\
+`The Los Angeles rapper returns with his (surprise) sixth album, itching to escape his Drake drama, but still benefiting from it.`\
+https://nytimes.com/2024/11/28/arts/music/popcast-kendrick-lamar.html
+
 **Maps Pinpoint Where Democrats Lost Ground Since 2020 in 11 Big Cities**\
 `A Times analysis shows where Kamala Harris got fewer votes compared with Joe Biden and which voting blocs drove each city’s red shift.`\
 https://nytimes.com/interactive/2024/11/28/us/elections/precinct-city-maps.html
@@ -14,15 +18,11 @@ https://nytimes.com/athletic/5954973/2024/11/28/niclas-fullkrug-west-ham-injury-
 `No team and no defense can shapeshift like the Thunder. Their identity is that they play however the situation dictates they should.`\
 https://nytimes.com/athletic/5953873/2024/11/28/nba-thunder-defense-jalen-williams/
 
-**Swiatek suspended after positive test for banned substance**\
-`Iga Swiatek, the women’s world No.`\
+**Iga Swiatek receives one-month doping ban after positive test in summer**\
+`Swiatek appealed a provisional suspension issued in September, meaning that it remained confidential.`\
 https://nytimes.com/athletic/5954986/2024/11/28/iga-swiatek-doping-ban-tmz/
 
 **How Arne Slot is proving to be the master of the half-time tactical tweak**\
 `Liverpool's head coach has now shown on multiple occasions how he can turn a game with a subtle adjustment`\
 https://nytimes.com/athletic/5946337/2024/11/28/liverpool-arne-slot-half-time-tweak-real-madrid/
-
-**Fans of Manchester and Merseyside clubs unite to protest ticket price rises**\
-`Liverpool, Everton, Manchester United and Manchester City supporters will join forces this weekend to protest against rising Premier League ticket prices.`\
-https://nytimes.com/athletic/5954910/2024/11/28/manchester-merseyside-fans-ticket-prices/
 
