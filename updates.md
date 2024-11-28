@@ -1,3 +1,11 @@
+**As Plastic Talks Continue, a Reminder of What We’re All Exposed To.**\
+`As international talks continue this week, a dozen U.N. officials reveal scientists tracked their exposure to many chemicals found in plastics.`\
+https://nytimes.com/2024/11/27/climate/plastic-chemicals-exposure.html
+
+**Maple Leafs report cards: Depleted lineup no match for Stanley Cup champs**\
+`A difference in urgency was clear from the start as Toronto's four-game winning streak came to an end with a 5-1 loss to Florida.`\
+https://nytimes.com/athletic/5954363/2024/11/27/maple-leafs-panthers-grades-analysis/
+
 **Another stellar Filip Gustavsson performance, but Wild goalie gets lots of help: 3 takeaways vs. Sabres**\
 `In a 1-0 victory over the Sabres, the Wild improved to a league-best 10-1-3 on the road.`\
 https://nytimes.com/athletic/5954175/2024/11/27/wild-sabres-filip-gustavsson-takeaways/
