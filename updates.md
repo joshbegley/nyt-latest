@@ -1,3 +1,11 @@
+**What's Really Keeping You Up at Night?**\
+`Experts explain the science behind a good night’s rest and the factors that can influence sleep hygiene.`\
+https://nytimes.com/paidpost/bedsure/whats-really-keeping-you-up-at-night.html
+
+**Ohio Governor Signs Bathroom Restrictions for Transgender Students**\
+`The state is one of at least a dozen states to set restrictions on bathrooms for transgender students at public schools.`\
+https://nytimes.com/2024/11/27/us/ohio-transgender-bathroom-law.html
+
 **Shohei Ohtani asks judge for baseball cards seized from Ippei Mizuhara**\
 `Mizuhara pleaded guilty in June to bank and tax fraud after stealing millions from Ohtani.`\
 https://nytimes.com/athletic/5954145/2024/11/27/shohei-ohtani-ippei-mizuhara-baseball-cards/
