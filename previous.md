@@ -1,3 +1,7 @@
+**Syrian Rebel Groups Launch Largest Offensive in Years**\
+`Scores of people were killed after forces opposed to the government of President Bashar al-Assad overtook a Syrian military base, a monitoring group reported.`\
+https://nytimes.com/2024/11/27/world/middleeast/syria-opposition-forces-bases.html
+
 **Corrections: Nov. 28, 2024**\
 `Corrections that appeared in print on Thursday, Nov. 28, 2024.`\
 https://nytimes.com/2024/11/27/pageoneplus/corrections-nov-28-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954103/2024/11/27/auburn-memphis-maui-invitational
 **Workers’ union criticizes Elon Musk for posts identifying federal employees.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/11/27/us/trump-news/workers-union-criticizes-elon-musk-for-posts-identifying-federal-employees
-
-**Mexico’s President and Trump Describe a Positive Talk but Differ on Migration Details**\
-`The discussion between President Claudia Sheinbaum of Mexico and the president-elect came after Mr. Trump threatened tariffs unless Mexican authorities stopped migrants and drugs from coming across the border.`\
-https://nytimes.com/2024/11/27/us/politics/mexico-trump-tariff-tensions.html
 
