@@ -12,7 +12,7 @@ https://nytimes.com/2024/11/28/dining/what-to-cook-the-day-before-thanksgiving.h
 
 **Schumacher leaving Mercedes, Bottas confirms talks to re-join team**\
 `Bottas previously spent four years with Mercedes from 2017 to 2021 before joining Alpha Romeo.`\
-https://nytimes.com/athletic/5955077/2024/11/28/mick-schumacher-mercedes-valterri-bottas/
+https://nytimes.com/athletic/5955077/2024/11/28/mick-schumacher-mercedes-valtteri-bottas/
 
 **How a Women’s College Volleyball Team Became the Center of the Transgender Athlete Debate**\
 `Not since the swimmer Lia Thomas has a college athlete or team put the fiercely contested issue of transgender rights in sports under such a bright spotlight.`\
