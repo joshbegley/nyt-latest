@@ -1,3 +1,19 @@
+**Thursday Briefing**\
+`The first day of a truce between Hezbollah and Israel.`\
+https://nytimes.com/2024/11/28/briefing/hezbollah-truce-trump-envoy.html
+
+**These Exams Mean Everything in India. Thieves See a Gold Mine.**\
+`In a country where government jobs are highly coveted, the tests that govern hiring are a lucrative target for criminal gangs.`\
+https://nytimes.com/2024/11/28/world/asia/india-exam-leak.html
+
+**London’s 850-Year-Old Smithfield Meat Market Is Set to Close**\
+`Livestock has been traded on the historic site in Britain’s capital for centuries. The local authority voted this week to close it.`\
+https://nytimes.com/2024/11/28/world/europe/london-smithfield-meat-market.html
+
+**Quote of the Day: The Race to Build A Sun on Earth**\
+`Quotation of the Day for Thursday, November 28, 2024.`\
+https://nytimes.com/2024/11/27/pageoneplus/quote-of-the-day-the-race-to-build-a-sun-on-earth.html
+
 **Raptors finally show they can get up 3s at a modern rate in win over Pelicans**\
 `Attempting and making the fewest 3s in the league, the Raptors need to get less particular with their shot selection.`\
 https://nytimes.com/athletic/5954403/2024/11/27/raptors-pelicans-three-point-shots/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5954363/2024/11/27/maple-leafs-panthers-grades-anal
 **Did Arturs Šilovs’ brutal performance cost the Canucks? 3 takeaways**\
 `The Canucks couldn't complete the comeback after falling into a 4-1 deficit by the end of the first period.`\
 https://nytimes.com/athletic/5954207/2024/11/27/canucks-silovs-defence-penguins/
-
-**Another stellar Filip Gustavsson performance, but Wild goalie gets lots of help: 3 takeaways vs. Sabres**\
-`In a 1-0 victory over the Sabres, the Wild improved to a league-best 10-1-3 on the road.`\
-https://nytimes.com/athletic/5954175/2024/11/27/wild-sabres-filip-gustavsson-takeaways/
-
-**Appeals Court Again Blocks U.S. From Cutting Texas Border Wire Along Rio Grande**\
-`The injunction is the second time that the U.S. Court of Appeals for the Fifth Circuit has sided with Texas in a yearlong dispute over barbed wire around the city of Eagle Pass.`\
-https://nytimes.com/2024/11/27/us/texas-border-wire-immigration.html
-
-**Pitcher for the Reds**\
-`Ricky J. Sirois piles on.`\
-https://nytimes.com/2024/11/27/crosswords/daily-puzzle-2024-11-28.html
-
-**Syrian Rebel Groups Launch Largest Offensive in Years**\
-`Scores of people were killed after forces opposed to the government of President Bashar al-Assad overtook a Syrian military base, a monitoring group reported.`\
-https://nytimes.com/2024/11/27/world/middleeast/syria-opposition-forces-bases.html
 
