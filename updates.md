@@ -1,3 +1,23 @@
+**Best division since realignment? Putting the NFC North's dominance in context**\
+`The Lions, Vikings, Packers and Bears have combined to beat non-divisional foes by 9.5 points per game, easily the best since 2002.`\
+https://nytimes.com/athletic/5952981/2024/11/28/lions-bears-packers-vikings-nfc-north/
+
+**Another injury means more changes are coming up front for Leafs forwards**\
+`Bobby McMann left the second period of the Leafs' loss to the Panthers, putting coach Craig Berube into yet another quandary.`\
+https://nytimes.com/athletic/5954497/2024/11/28/maple-leafs-injuries-mcmann-berube-panthers/
+
+**The Connections Companion No. 537**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 29, 2024.`\
+https://nytimes.com/2024/11/28/crosswords/connections-companion-537.html
+
+**Wordle Review No. 1,259**\
+`Scroll down for hints and conversation about the puzzle for Friday, Nov. 29, 2024.`\
+https://nytimes.com/2024/11/28/crosswords/wordle-review-1259.html
+
+**Israeli Military Tells Lebanese Not to Return to Some Southern Areas**\
+`The military said it had fired on people arriving in parts of southern Lebanon because they were violating Israel’s cease-fire agreement with Hezbollah, which appeared to be holding.`\
+https://nytimes.com/2024/11/28/world/middleeast/lebanon-israel-ceasefire-hezbollah.html
+
 **Thanksgiving With Ina Garten**\
 `The Barefoot Contessa shared simple tips on the art of hosting for this special episode of “The Daily.”`\
 https://nytimes.com/2024/11/28/podcasts/the-daily/thanksgiving-ina-garten.html
