@@ -1,3 +1,7 @@
+**Lampard named new Coventry City manager**\
+`Frank Lampard has been named as Coventry City&#8217;s new manager on a two-year contract.`\
+https://nytimes.com/athletic/5953140/2024/11/28/frank-lampard-appointed-coventry-city/
+
 **A Top Chinese Commander Is Suspended Under Suspicion of Corruption**\
 `The case of Adm. Miao Hua suggests the persistence of graft at high levels of the military, despite the efforts by Xi Jinping to stamp out corruption.`\
 https://nytimes.com/2024/11/28/world/asia/china-military-official-corruption-allegations.html

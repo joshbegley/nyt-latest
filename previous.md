@@ -1,3 +1,7 @@
+**Lampard named new Coventry City manager**\
+`Frank Lampard has been named as Coventry City&#8217;s new manager on a two-year contract.`\
+https://nytimes.com/athletic/5953140/2024/11/28/frank-lampard-appointed-coventry-city/
+
 **A Top Chinese Commander Is Suspended Under Suspicion of Corruption**\
 `The case of Adm. Miao Hua suggests the persistence of graft at high levels of the military, despite the efforts by Xi Jinping to stamp out corruption.`\
 https://nytimes.com/2024/11/28/world/asia/china-military-official-corruption-allegations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/28/movies/airplane-jokes-jim-abrahams.html
 **A Fossil Gets Its Name From a Revived Indigenous Language**\
 `After scientists found an extinct burrowing amphibian on Eastern Shoshone land, members of the tribe gave it a name in their language.`\
 https://nytimes.com/2024/11/28/science/fossils-eastern-shoshone-burrows.html
-
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are in Chelsea, on the Upper East Side and on the Grand Concourse.`\
-https://nytimes.com/2024/11/28/realestate/homes-for-sale-in-manhattan-and-the-bronx.html
 
