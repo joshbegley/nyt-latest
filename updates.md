@@ -1,3 +1,7 @@
+**Van Nistelrooy in talks to become Leicester City manager**\
+`Leicester City are in talks to appoint Ruud van Nistelrooy as Steve Cooper&#8217;s successor.`\
+https://nytimes.com/athletic/5954675/2024/11/28/van-nistelrooy-leicester-manager-talks/
+
 **Lampard named new Coventry City manager**\
 `Frank Lampard has been named as Coventry City&#8217;s new manager on a two-and-half-year contract.`\
 https://nytimes.com/athletic/5953140/2024/11/28/frank-lampard-appointed-coventry-city/
