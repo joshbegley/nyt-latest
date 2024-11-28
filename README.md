@@ -1,5 +1,5 @@
 **Lampard named new Coventry City manager**\
-`Frank Lampard has been named as Coventry City&#8217;s new manager on a two-year contract.`\
+`Frank Lampard has been named as Coventry City&#8217;s new manager on a two-and-half-year contract.`\
 https://nytimes.com/athletic/5953140/2024/11/28/frank-lampard-appointed-coventry-city/
 
 **A Top Chinese Commander Is Suspended Under Suspicion of Corruption**\
