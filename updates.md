@@ -1,3 +1,15 @@
+**Taylor Swift, the future of fandom and a dilemma facing women's football**\
+`Powerful figures within the game have spoken about the opportunities for attrating new fans, but the comments have divided opinion`\
+https://nytimes.com/athletic/5952288/2024/11/28/taylor-swift-womens-football-fandom/
+
+**Mental fortitude, Ten Hag's backing and better positioning: How Onana has turned things around at United**\
+`The 'keeper endured a tough start to life at United but his improvement in several key areas has seen him flourish into a key performer`\
+https://nytimes.com/athletic/5952362/2024/11/28/onana-manchester-united-turned-things-around/
+
+**A Holiday Tradition**\
+`We’re covering Thanksgiving arguments past.`\
+https://nytimes.com/2024/11/28/briefing/thanksgiving-arguments.html
+
 **The Pulse: Thanksgiving food draft**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5951828/2024/11/28/thanskgiving-football-schedule-the-pulse/

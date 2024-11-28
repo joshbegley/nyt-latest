@@ -1,3 +1,15 @@
+**Taylor Swift, the future of fandom and a dilemma facing women's football**\
+`Powerful figures within the game have spoken about the opportunities for attrating new fans, but the comments have divided opinion`\
+https://nytimes.com/athletic/5952288/2024/11/28/taylor-swift-womens-football-fandom/
+
+**Mental fortitude, Ten Hag's backing and better positioning: How Onana has turned things around at United**\
+`The 'keeper endured a tough start to life at United but his improvement in several key areas has seen him flourish into a key performer`\
+https://nytimes.com/athletic/5952362/2024/11/28/onana-manchester-united-turned-things-around/
+
+**A Holiday Tradition**\
+`We’re covering Thanksgiving arguments past.`\
+https://nytimes.com/2024/11/28/briefing/thanksgiving-arguments.html
+
 **The Pulse: Thanksgiving food draft**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5951828/2024/11/28/thanskgiving-football-schedule-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/28/crosswords/connections-companion-537.html
 **Wordle Review No. 1,259**\
 `Scroll down for hints and conversation about the puzzle for Friday, Nov. 29, 2024.`\
 https://nytimes.com/2024/11/28/crosswords/wordle-review-1259.html
-
-**Israeli Military Tells Lebanese Not to Return to Some Southern Areas**\
-`The military said it had fired on people arriving in parts of southern Lebanon because they were violating Israel’s cease-fire agreement with Hezbollah, which appeared to be holding.`\
-https://nytimes.com/2024/11/28/world/middleeast/lebanon-israel-ceasefire-hezbollah.html
-
-**Thanksgiving With Ina Garten**\
-`The Barefoot Contessa shared simple tips on the art of hosting for this special episode of “The Daily.”`\
-https://nytimes.com/2024/11/28/podcasts/the-daily/thanksgiving-ina-garten.html
-
-**In the Kitchen With Ina Garten**\
-`Michael Barbaro, host of “The Daily,” visited the legendary cook at her home in East Hampton, N.Y., for a Thanksgiving meal.`\
-https://nytimes.com/video/podcasts/the-daily/100000009845298/thanksgiving-recipe-ina-garten.html
 
