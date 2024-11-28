@@ -1,3 +1,7 @@
+**Why a former MVP thinks Saquon Barkley can break the QB-only trend**\
+`Saquon Barkley is having the kind of year a non-QB needs to win the award.`\
+https://nytimes.com/athletic/5953301/2024/11/28/nfl-mvp-saquon-barkley-quarterbacks/
+
 **Who Might Be the Next Chair of the Democratic Party?**\
 `The current leader of the Democratic National Committee, Jaime Harrison, won’t seek re-election. His successor will need to revive a distressed party.`\
 https://nytimes.com/2024/11/28/us/politics/chair-democratic-national-committee.html
