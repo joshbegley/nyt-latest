@@ -1,3 +1,7 @@
+**Workers’ union criticizes Elon Musk for posts identifying federal employees.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/11/27/us/trump-news/workers-union-criticizes-elon-musk-for-posts-identifying-federal-employees
+
 **Mexico’s President Cites ‘Excellent’ Talk With Trump Amid Tariff Tensions**\
 `President Claudia Sheinbaum of Mexico said she and the president-elect talked about Mexico’s efforts to curb fentanyl consumption and keep migrants from reaching the border.`\
 https://nytimes.com/2024/11/27/us/politics/mexico-trump-tariff-tensions.html
