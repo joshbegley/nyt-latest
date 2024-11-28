@@ -1,3 +1,7 @@
+**Stowaway Travels on Flight From U.S., Officials Say**\
+`A Delta Air Lines pilot announced on a trip from New York to Paris that there was an extra passenger. The airline said it was working with the authorities to investigate the flight.`\
+https://nytimes.com/2024/11/28/us/jfk-paris-delta-stowaway.html
+
 **India’s Exam Leaks Underline the Nation’s Bigger Problem**\
 `The economy has failed to create enough good jobs, so a government post appeals to far more people than there are openings, fueling desperation.`\
 https://nytimes.com/2024/11/28/world/asia/india-entrance-exam-leaks-economy.html
