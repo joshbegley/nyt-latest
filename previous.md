@@ -1,3 +1,7 @@
+**Maps Pinpoint Where Democrats Lost Ground Since 2020 in 11 Big Cities**\
+`A Times analysis shows where Kamala Harris got fewer votes compared with Joe Biden and which voting blocs drove each city’s red shift.`\
+https://nytimes.com/interactive/2024/11/28/us/elections/precinct-city-maps.html
+
 **James' latest hamstring injury is fresh issue not a recurrence, scans show**\
 `Chelsea captain Reece James’ latest hamstring injury is in the other leg he had operated on last year and ruled him out for four months.`\
 https://nytimes.com/athletic/5955009/2024/11/28/chelsea-reece-james-hamstring-injury-latest/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5946337/2024/11/28/liverpool-arne-slot-half-time-tw
 **Fans of Manchester and Merseyside clubs unite to protest ticket price rises**\
 `Liverpool, Everton, Manchester United and Manchester City supporters will join forces this weekend to protest against rising Premier League ticket prices.`\
 https://nytimes.com/athletic/5954910/2024/11/28/manchester-merseyside-fans-ticket-prices/
-
-**Her Wrestling Empire Was Said to Harm Children. Trump Chose Her for Education.**\
-`Linda McMahon, whose résumé mainly rests on running World Wrestling Entertainment, has faced questions for years over whether she is suitable for important education posts.`\
-https://nytimes.com/2024/11/28/us/linda-mcmahon-education-wrestling-wwe.html
 

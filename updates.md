@@ -1,3 +1,7 @@
+**Maps Pinpoint Where Democrats Lost Ground Since 2020 in 11 Big Cities**\
+`A Times analysis shows where Kamala Harris got fewer votes compared with Joe Biden and which voting blocs drove each city’s red shift.`\
+https://nytimes.com/interactive/2024/11/28/us/elections/precinct-city-maps.html
+
 **James' latest hamstring injury is fresh issue not a recurrence, scans show**\
 `Chelsea captain Reece James’ latest hamstring injury is in the other leg he had operated on last year and ruled him out for four months.`\
 https://nytimes.com/athletic/5955009/2024/11/28/chelsea-reece-james-hamstring-injury-latest/
