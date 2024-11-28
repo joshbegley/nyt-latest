@@ -1,3 +1,7 @@
+**Thompson: The Warriors need Brandin Podziemski, and he's showing some promising signs**\
+`After a stellar rookie year, Brandin Podziemski has struggled to start Year 2. But Wednesday, he looked like a player finding his way back.`\
+https://nytimes.com/athletic/5954850/2024/11/28/brandin-podziemski-golden-state-warriors-thunder/
+
 **Millions Turn Out and Tune In for Macy’s Thanksgiving Day Parade**\
 `There will be some differences this year because, after three decades, a new company has taken over production of the annual event.`\
 https://nytimes.com/2024/11/28/nyregion/macys-thanksgiving-day-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954782/2024/11/28/auburn-basketball-johni-broome-m
 **Cowboys Today: Predictions for Thanksgiving matchup vs. Giants and Brandin Cooks returns**\
 `Comparing Cooper Rush and Dak Prescott, injury updates and picking the winner in the Cowboys-Giants matchup.`\
 https://nytimes.com/athletic/5954586/2024/11/28/cowboys-today-predictions-giants-cooper-rush/
-
-**Barcelona at 125: 7% of goals scored by Messi, three papal conclaves and 132 trophies**\
-`Barcelona are 125 years old on Friday. So what are some of the most significant numbers in their history?`\
-https://nytimes.com/athletic/5927155/2024/11/28/barcelona-125th-anniversary-messi-numbers/
 
