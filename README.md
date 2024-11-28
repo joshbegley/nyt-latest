@@ -1,3 +1,7 @@
+**Bowden: 24 reasons I'm thankful for MLB in 2024**\
+`Giving thanks: Here's to the people, teams, moments and milestones that have made it another special year for MLB.`\
+https://nytimes.com/athletic/5954797/2024/11/28/mlb-thanksgiving-baseball-giving-thanks-2024/
+
 **Missing Steph Curry, Warriors go cold in crunch time and lose to Thunder**\
 `Golden State has now lost three in a row, and Curry is dealing with pain in both knees. Others failed to step up late on Wednesday night.`\
 https://nytimes.com/athletic/5954335/2024/11/28/warriors-lose-thunder-steph-curry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952288/2024/11/28/taylor-swift-womens-football-fan
 **Mental fortitude, Ten Hag's backing and better positioning: How Onana has turned things around at United**\
 `The 'keeper endured a tough start to life at United but his improvement in several key areas has seen him flourish into a key performer`\
 https://nytimes.com/athletic/5952362/2024/11/28/onana-manchester-united-turned-things-around/
-
-**A Holiday Tradition**\
-`We’re covering Thanksgiving arguments past.`\
-https://nytimes.com/2024/11/28/briefing/thanksgiving-arguments.html
 
