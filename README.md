@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 2 Roma 2: Late Hummels equaliser denies Spurs in wildly open Europa League clash**\
+`Jack Pitt-Brooke, Jay Harris and Liam Tharme break down the key moments from Thursday's Europa League tie`\
+https://nytimes.com/athletic/5949205/2024/11/28/tottenham-roma-result-analysis/
+
 **The Briefing: Manchester United 3-2 Bodo/Glimt - Amorim's first win, Hojlund at the double**\
 `Laurie Whitwell dissects the key talking points from Ruben Amorim's first win in charge of Manchester United`\
 https://nytimes.com/athletic/5949204/2024/11/28/manchester-united-bodo-glimt-hojlund-result/
@@ -21,8 +25,4 @@ https://nytimes.com/2024/11/28/world/middleeast/baalbek-lebanon-israel.html
 **Everyone’s Going to the Book Bar**\
 `A glass of wine, a snack and a new book is about as good as it gets.`\
 https://nytimes.com/2024/11/28/dining/everyones-going-to-the-book-bar.html
-
-**‘The Agency’ Is a Slick and Pleasing Spy Drama**\
-`Based on the French show “The Bureau,” the new Showtime series stars Michael Fassbender as a spy who must readjust to life after living undercover.`\
-https://nytimes.com/2024/11/28/arts/television/the-agency-showtime-paramount.html
 
