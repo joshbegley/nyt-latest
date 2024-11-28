@@ -1,3 +1,11 @@
+**Raptors finally show they can get up 3s at a modern rate in win over Pelicans**\
+`Attempting and making the fewest 3s in the league, the Raptors need to get less particular with their shot selection.`\
+https://nytimes.com/athletic/5954403/2024/11/27/raptors-pelicans-three-point-shots/
+
+**As Plastic Talks Continue, a Reminder of What We’re All Exposed To**\
+`As international talks continue this week, a dozen U.N. officials reveal scientists tracked their exposure to many chemicals found in plastics.`\
+https://nytimes.com/2024/11/27/climate/plastic-chemicals-exposure.html
+
 **Jack Quinn's goal-scoring slump continues as Sabres held scoreless: 3 takeaways vs. Wild**\
 `The Sabres put 39 shots on net, but Wild goalie Filip Gustavsson stopped every single one.`\
 https://nytimes.com/athletic/5954426/2024/11/27/sabres-wild-takeaways-jack-quinn/

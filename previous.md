@@ -1,3 +1,7 @@
+**Raptors finally show they can get up 3s at a modern rate in win over Pelicans**\
+`Attempting and making the fewest 3s in the league, the Raptors need to get less particular with their shot selection.`\
+https://nytimes.com/athletic/5954403/2024/11/27/raptors-pelicans-three-point-shots/
+
 **Jack Quinn's goal-scoring slump continues as Sabres held scoreless: 3 takeaways vs. Wild**\
 `The Sabres put 39 shots on net, but Wild goalie Filip Gustavsson stopped every single one.`\
 https://nytimes.com/athletic/5954426/2024/11/27/sabres-wild-takeaways-jack-quinn/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5954426/2024/11/27/sabres-wild-takeaways-jack-quinn
 `The Penguins scored on their first shot of the game en route to a badly needed victory against the Canucks.`\
 https://nytimes.com/athletic/5954402/2024/11/27/penguins-rust-first-shot-canucks/
 
-**As Plastic Talks Continue, a Reminder of What We’re All Exposed To.**\
+**As Plastic Talks Continue, a Reminder of What We’re All Exposed To**\
 `As international talks continue this week, a dozen U.N. officials reveal scientists tracked their exposure to many chemicals found in plastics.`\
 https://nytimes.com/2024/11/27/climate/plastic-chemicals-exposure.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/crosswords/daily-puzzle-2024-11-28.html
 **Syrian Rebel Groups Launch Largest Offensive in Years**\
 `Scores of people were killed after forces opposed to the government of President Bashar al-Assad overtook a Syrian military base, a monitoring group reported.`\
 https://nytimes.com/2024/11/27/world/middleeast/syria-opposition-forces-bases.html
-
-**Corrections: Nov. 28, 2024**\
-`Corrections that appeared in print on Thursday, Nov. 28, 2024.`\
-https://nytimes.com/2024/11/27/pageoneplus/corrections-nov-28-2024.html
 
