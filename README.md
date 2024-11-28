@@ -1,3 +1,19 @@
+**Barcelona 125: Joan Gamper, the man who built the club (thanks to a magazine advert)**\
+`How frustration prompted a Swiss man to create one of the world's most beloved football clubs - before he was exiled`\
+https://nytimes.com/athletic/5942164/2024/11/28/barcelona-joan-gamper-football-club-newspaper/
+
+**The art of the training video: How much to reveal? Who to include? Do players care?**\
+`Videos of training at top clubs have become increasingly big draws for fans wanting to follow their team. How are they put together?`\
+https://nytimes.com/athletic/5952531/2024/11/28/the-art-of-the-training-video-how-much-to-reveal-who-to-include-do-players-care/
+
+**Binnington sets Blues franchise win record, plus injury news on Buchnevich, Broberg**\
+`Binnington won his 152nd game with the franchise, surpassing Mike Liut's long-standing record.`\
+https://nytimes.com/athletic/5954231/2024/11/28/blues-binnington-franchise-win-record-devils/
+
+**INEOS arrived at Man Utd on a wave of goodwill but ticket price rises put that at risk**\
+`The drive to increase revenue is now affecting matchgoing fans and supporters' groups are not impressed`\
+https://nytimes.com/athletic/5953380/2024/11/28/ineos-ratcliffe-ticket-price-rises/
+
 **Next week’s waiver wire: Allen, Thielen and more players to add before Week 14**\
 `John Laghezza shares his top expected future waiver values, including Braelon Allen, who could be a league winner if opportunity knocks.`\
 https://nytimes.com/athletic/5950592/2024/11/28/next-weeks-waiver-wire-braelon-allen-thielen-players-add-now-week-14/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/28/world/asia/india-exam-leak.html
 **London’s 850-Year-Old Smithfield Meat Market Is Set to Close**\
 `Livestock has been traded on the historic site in Britain’s capital for centuries. The local authority voted this week to close it.`\
 https://nytimes.com/2024/11/28/world/europe/london-smithfield-meat-market.html
-
-**Quote of the Day: The Race to Build A Sun on Earth**\
-`Quotation of the Day for Thursday, November 28, 2024.`\
-https://nytimes.com/2024/11/27/pageoneplus/quote-of-the-day-the-race-to-build-a-sun-on-earth.html
-
-**Raptors finally show they can get up 3s at a modern rate in win over Pelicans**\
-`Attempting and making the fewest 3s in the league, the Raptors need to get less particular with their shot selection.`\
-https://nytimes.com/athletic/5954403/2024/11/27/raptors-pelicans-three-point-shots/
-
-**Jack Quinn's goal-scoring slump continues as Sabres held scoreless: 3 takeaways vs. Wild**\
-`The Sabres put 39 shots on net, but Wild goalie Filip Gustavsson stopped every single one.`\
-https://nytimes.com/athletic/5954426/2024/11/27/sabres-wild-takeaways-jack-quinn/
-
-**Penguins flip first-shot script and Bryan Rust restores 'fun' for a night: Takeaways**\
-`The Penguins scored on their first shot en route to a badly needed victory against the Canucks.`\
-https://nytimes.com/athletic/5954402/2024/11/27/penguins-rust-first-shot-canucks/
 
