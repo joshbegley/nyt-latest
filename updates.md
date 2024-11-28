@@ -1,3 +1,7 @@
+**Lampard 'not disapointed' to not get Premier League job after becoming Coventry manager**\
+`Frank Lampard said he isn’t disappointed not to have been given a Premier League job after he was named as Coventry City’s new manager.`\
+https://nytimes.com/athletic/5955596/2024/11/28/frank-lampard-coventry-city/
+
 **Malacia set to start for Man United in Europa League following long-term injury**\
 `Tyrell Malacia is set to start his first game for Manchester United in 550 days against Bodo/Glimt in the Europa League.`\
 https://nytimes.com/athletic/5955580/2024/11/28/tyrell-malacia-set-to-start-for-manchester-united-against-bodo-glimt-following-long-term-knee-injury/
