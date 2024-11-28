@@ -1,3 +1,23 @@
+**For Celtic and the rest of the Champions League's 'middle class', this season is different**\
+`In previous years Brendan Rodgers' side might already be out but the new format gives them hope - as does their capacity for a comeback`\
+https://nytimes.com/athletic/5954597/2024/11/28/celtic-club-bruges-champions-league/
+
+**This 22-Foot Turkey Roosts in a Region of Roadside Giants**\
+`Big Tom is a beloved landmark in his Minnesota hometown. Across the Midwest, small places take pride in having the largest of just about anything.`\
+https://nytimes.com/2024/11/28/us/worlds-largest-turkey-minnesota-thanksgiving.html
+
+**What to Know About a Possible Federal Takeover of Rikers Island**\
+`A judge found New York City in contempt of an agreement meant to improve jail conditions, setting the stage for a receivership.`\
+https://nytimes.com/2024/11/28/nyregion/rikers-prison-federal-takeover.html
+
+**The M.T.A.’s New Subway Boss Says He’s Here to Stay**\
+`For a decade, the M.T.A. has not retained a city transit president for longer than three years. Now a 27-year veteran of the authority is taking the job.`\
+https://nytimes.com/2024/11/28/nyregion/mta-crichlow-subway-transit.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/28/crosswords/spelling-bee-forum.html
+
 **This Maverick Thinker Is the Karl Marx of Our Time**\
 `He has a convincing theory of what has gone wrong with globalization.`\
 https://nytimes.com/2024/11/28/opinion/wolfgang-streeck-populism.html
