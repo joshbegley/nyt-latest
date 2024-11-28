@@ -1,3 +1,7 @@
+**Real Madrid coach involved in road collision travelling back from Liverpool**\
+`Emergency services attended a scene in Warwickshire after the Real Madrid coach was involved in a road traffic collision while travelling back from Liverpool.`\
+https://nytimes.com/athletic/5955259/2024/11/28/real-madrid-coach-crash/
+
 **NFL Week 13 fantasy football, betting cheat sheet: David Montgomery active for Thanksgiving game**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
@@ -21,9 +25,4 @@ https://nytimes.com/athletic/5955077/2024/11/28/mick-schumacher-mercedes-valtter
 **How a Women’s College Volleyball Team Became the Center of the Transgender Athlete Debate**\
 `Not since the swimmer Lia Thomas has a college athlete or team put the fiercely contested issue of transgender rights in sports under such a bright spotlight.`\
 https://nytimes.com/2024/11/28/us/trans-volleyball-san-jose-state.html
-
-**Alexander-Arnold fit to start against Man City**\
-`Arne Slot has confirmed Liverpool defender Trent Alexander-Arnold is fit to start against Manchester City this weekend
-The 26-year-old returned to the squad as an unused substitute in the Champions League victory over Real Madrid on Wednesday following a hamstring injury.`\
-https://nytimes.com/athletic/5955126/2024/11/28/trent-alexander-arnold-manchester-city-start/
 

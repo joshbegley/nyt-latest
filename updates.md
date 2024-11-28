@@ -1,3 +1,7 @@
+**Real Madrid coach involved in road collision travelling back from Liverpool**\
+`Emergency services attended a scene in Warwickshire after the Real Madrid coach was involved in a road traffic collision while travelling back from Liverpool.`\
+https://nytimes.com/athletic/5955259/2024/11/28/real-madrid-coach-crash/
+
 **NFL Week 13 fantasy football, betting cheat sheet: David Montgomery active for Thanksgiving game**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
