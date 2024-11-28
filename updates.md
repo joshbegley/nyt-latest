@@ -1,3 +1,7 @@
+**Auburn announces its arrival in Maui Invitational championship win vs. Memphis**\
+`Auburn big man Johni Broome scored a team high 21 points, 16 rebounds, six assists, four blocks and one steal.`\
+https://nytimes.com/athletic/5954103/2024/11/27/auburn-memphis-maui-invitational-championship-result/
+
 **Workers’ union criticizes Elon Musk for posts identifying federal employees.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/11/27/us/trump-news/workers-union-criticizes-elon-musk-for-posts-identifying-federal-employees
