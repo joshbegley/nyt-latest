@@ -1,3 +1,7 @@
+**Lions hold off Bears, 23-20, for first Thanksgiving win in 8 years: Takeaways**\
+`Detroit held off second-half rally by Chicago rookie quarterback Caleb Williams to maintain hold on top seed and NFC North.`\
+https://nytimes.com/athletic/5955553/2024/11/28/bears-lions-score-result-takeaways/
+
 **Friday Briefing: Day 2 of Lebanon’s Cease-fire**\
 `Plus, the gangs stealing hiring exams in India.`\
 https://nytimes.com/2024/11/28/briefing/lebanon-cease-fire-russia-ukraine-australia.html

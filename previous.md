@@ -1,3 +1,7 @@
+**Lions hold off Bears, 23-20, for first Thanksgiving win in 8 years: Takeaways**\
+`Detroit held off second-half rally by Chicago rookie quarterback Caleb Williams to maintain hold on top seed and NFC North.`\
+https://nytimes.com/athletic/5955553/2024/11/28/bears-lions-score-result-takeaways/
+
 **Friday Briefing: Day 2 of Lebanon’s Cease-fire**\
 `Plus, the gangs stealing hiring exams in India.`\
 https://nytimes.com/2024/11/28/briefing/lebanon-cease-fire-russia-ukraine-australia.html
@@ -21,8 +25,4 @@ https://nytimes.com/2024/11/28/world/canada/hiker-canada-sam-benastick.html
 **Defense Secretary Takes Control of Plea Deals in War Crimes Cases**\
 `Defense Secretary Lloyd J. Austin III stripped his appointee of plea deal authority in a memo on Monday, which the Pentagon has not yet made public.`\
 https://nytimes.com/2024/11/28/us/politics/defense-secretary-plea-deals.html
-
-**Biden Makes a Final Nantucket Visit as President**\
-`The president made his usual stops, expressing gratitude for progress toward peace in the Middle East and urging Americans to stay hopeful.`\
-https://nytimes.com/2024/11/28/us/politics/biden-thanksgiving-nantucket.html
 
