@@ -1,3 +1,7 @@
+**Matt Eberflus explains why Bears didn't use TO at end of game vs. Lions**\
+`Chicago ran one play in the final 36 seconds — despite having one timeout left to use. `\
+https://nytimes.com/athletic/5955902/2024/11/28/bears-lions-timeout-matt-eberflus/
+
 **Peggy Caserta, Who Wrote a Tell-All About Janis Joplin, Dies at 84**\
 `Her Haight-Ashbury clothing store was ground zero for the counterculture. But she was best known for a tawdry book — which she later disavowed — published after Ms. Joplin’s death.`\
 https://nytimes.com/2024/11/28/books/peggy-caserta-dead.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5955553/2024/11/28/bears-lions-score-result-takeawa
 **Friday Briefing: Day 2 of Lebanon’s Cease-fire**\
 `Plus, the gangs stealing hiring exams in India.`\
 https://nytimes.com/2024/11/28/briefing/lebanon-cease-fire-russia-ukraine-australia.html
-
-**‘Nobody Won’: Residents of a Lebanese City Return to Rubble and Sorrow**\
-`Tens of thousands of people who had fled the city of Baalbek returned to bombed-out restaurants, flattened apartment buildings and many of the dead still buried under the rubble.`\
-https://nytimes.com/2024/11/28/world/middleeast/baalbek-lebanon-israel.html
 
