@@ -1,3 +1,11 @@
+**Mark Zuckerberg Meets With Trump at Mar-a-Lago**\
+`The president-elect has long been critical of Mr. Zuckerberg’s social media platforms, saying they censor conservative viewpoints.`\
+https://nytimes.com/2024/11/27/us/politics/mark-zuckerberg-trump-meeting.html
+
+**Mexico’s President and Trump Describe a Positive Talk but Differ on Migration Details**\
+`The discussion between President Claudia Sheinbaum of Mexico and the president-elect came after Mr. Trump threatened tariffs unless Mexican authorities stopped migrants and drugs from coming across the border.`\
+https://nytimes.com/2024/11/27/us/politics/mexico-trump-tariff-tensions.html
+
 **What's Really Keeping You Up at Night?**\
 `Experts explain the science behind a good night’s rest and the factors that can influence sleep hygiene.`\
 https://nytimes.com/paidpost/bedsure/whats-really-keeping-you-up-at-night.html
