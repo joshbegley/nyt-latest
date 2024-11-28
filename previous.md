@@ -1,3 +1,7 @@
+**Lando Norris dismisses Verstappen's McLaren title claim: 'He should start doing comedy'**\
+`Verstappen has claimed he would have won the 2024 F1 championship earlier had he been driving a McLaren. `\
+https://nytimes.com/athletic/5955378/2024/11/28/lando-norris-max-verstappen-f1-championship-claim-mclaren/
+
 **What a Deadly Offensive in Syria Means for a Stalled Civil War**\
 `Rebel groups have launched the largest offensive in years against government forces in the northwest.`\
 https://nytimes.com/2024/11/28/world/middleeast/syria-civil-war.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5955130/2024/11/28/danilo-nottingham-forest-return-
 **Restoring Faith in Public Health Messaging**\
 `Responses to an essay about how health authorities could better communicate with the public. Also: Trump donors; teaching students; the Pink House; hate groups.`\
 https://nytimes.com/2024/11/28/opinion/public-health-messaging.html
-
-**How to Cook Today**\
-`Quick-fire answers to common turkey questions, and a cranberry grilled cheese to keep you going. You’ve got this.`\
-https://nytimes.com/2024/11/28/dining/what-to-cook-the-day-before-thanksgiving.html
 

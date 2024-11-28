@@ -1,3 +1,7 @@
+**Lando Norris dismisses Verstappen's McLaren title claim: 'He should start doing comedy'**\
+`Verstappen has claimed he would have won the 2024 F1 championship earlier had he been driving a McLaren. `\
+https://nytimes.com/athletic/5955378/2024/11/28/lando-norris-max-verstappen-f1-championship-claim-mclaren/
+
 **What a Deadly Offensive in Syria Means for a Stalled Civil War**\
 `Rebel groups have launched the largest offensive in years against government forces in the northwest.`\
 https://nytimes.com/2024/11/28/world/middleeast/syria-civil-war.html
