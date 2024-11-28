@@ -1,3 +1,11 @@
+**The Moral Challenge of Trumpism**\
+`Trumpism represents an alternative value system. The people I regard as upright and admirable MAGA regards as morally disgraceful.`\
+https://nytimes.com/2024/11/28/opinion/trump-values-maga-cabinet.html
+
+**NFL Week 13 fantasy football, betting cheat sheet: Romeo Doubs out for Thanksgiving game**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
+
 **Matt Eberflus explains why Bears didn't use TO at end of game vs. Lions**\
 `Chicago ran one play in the final 36 seconds — despite having one timeout left to use. `\
 https://nytimes.com/athletic/5955902/2024/11/28/bears-lions-timeout-matt-eberflus/
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/5949204/2024/11/28/manchester-united-bodo-glimt-hoj
 **Trump Team’s Rejection of a Transition Deal Adds a Wrinkle to Its Transparency Pledges**\
 `The president-elect’s team said it would disclose its donors’ names and not take donations from foreigners, but it isn’t legally bound to adhere to those promises.`\
 https://nytimes.com/2024/11/28/us/politics/trump-transition-transparency.html
-
-**Lions hold off Bears, 23-20, for first Thanksgiving win in 8 years: Takeaways**\
-`Detroit held off second-half rally by Chicago rookie quarterback Caleb Williams to maintain hold on top seed and NFC North.`\
-https://nytimes.com/athletic/5955553/2024/11/28/bears-lions-score-result-takeaways/
-
-**Friday Briefing: Day 2 of Lebanon’s Cease-fire**\
-`Plus, the gangs stealing hiring exams in India.`\
-https://nytimes.com/2024/11/28/briefing/lebanon-cease-fire-russia-ukraine-australia.html
 

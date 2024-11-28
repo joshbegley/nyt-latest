@@ -1,3 +1,11 @@
+**The Moral Challenge of Trumpism**\
+`Trumpism represents an alternative value system. The people I regard as upright and admirable MAGA regards as morally disgraceful.`\
+https://nytimes.com/2024/11/28/opinion/trump-values-maga-cabinet.html
+
+**NFL Week 13 fantasy football, betting cheat sheet: Romeo Doubs out for Thanksgiving game**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
+
 **Matt Eberflus explains why Bears didn't use TO at end of game vs. Lions**\
 `Chicago ran one play in the final 36 seconds — despite having one timeout left to use. `\
 https://nytimes.com/athletic/5955902/2024/11/28/bears-lions-timeout-matt-eberflus/
