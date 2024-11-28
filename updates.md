@@ -1,3 +1,11 @@
+**Long-serving F1 steward, F2 race director depart**\
+`LUSAIL, Qatar — Two more high-profile figures have been dismissed from Formula One’s governing body, the FIA, before this weekend’s Qatar Grand Prix.`\
+https://nytimes.com/athletic/5955017/2024/11/28/fia-exits-f1-steward-departs/
+
+**Making it look routine: How a schedule of Sundays helps Bills thrive**\
+`The Bills benefit when they're on a normal Sunday schedule.`\
+https://nytimes.com/athletic/5954729/2024/11/28/bills-sunday-games-routine/
+
 **Kendrick Lamar’s Never-Ending Battles**\
 `The Los Angeles rapper returns with his (surprise) sixth album, itching to escape his Drake drama, but still benefiting from it.`\
 https://nytimes.com/2024/11/28/arts/music/popcast-kendrick-lamar.html
