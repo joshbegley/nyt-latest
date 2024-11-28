@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5955580/2024/11/28/tyrell-malacia-set-to-start-for-
 `A top court issued the ruling just days after an ultranationalist outsider unexpectedly won the most votes in the first round of presidential elections held Sunday.`\
 https://nytimes.com/2024/11/28/world/europe/romania-recount-tiktok-election.html
 
-**Lampard 'not dissapointed' to not get Premier League job after becoming Coventry manager**\
+**Lampard 'not disapointed' to not get Premier League job after becoming Coventry manager**\
 `Frank Lampard said he isn’t disappointed not to have been given a Premier League job after he was named as Coventry City’s new manager.`\
 https://nytimes.com/athletic/5955596/2024/11/28/frank-lampard-coventry-city/
 
