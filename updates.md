@@ -1,3 +1,11 @@
+**Appeals Court Again Blocks U.S. From Cutting Texas Border Wire Along Rio Grande**\
+`The injunction is the second time that the U.S. Court of Appeals for the Fifth Circuit has sided with Texas in a yearlong dispute over barbed wire around the city of Eagle Pass.`\
+https://nytimes.com/2024/11/27/us/texas-border-wire-immigration.html
+
+**Pitcher for the Reds**\
+`Ricky J. Sirois piles on.`\
+https://nytimes.com/2024/11/27/crosswords/daily-puzzle-2024-11-28.html
+
 **Syrian Rebel Groups Launch Largest Offensive in Years**\
 `Scores of people were killed after forces opposed to the government of President Bashar al-Assad overtook a Syrian military base, a monitoring group reported.`\
 https://nytimes.com/2024/11/27/world/middleeast/syria-opposition-forces-bases.html
