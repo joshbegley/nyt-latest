@@ -1,3 +1,19 @@
+**Barcelona 125: Joan Gamper, the man who built the club (thanks to a magazine advert)**\
+`How frustration prompted a Swiss man to create one of the world's most beloved football clubs - before he was exiled`\
+https://nytimes.com/athletic/5942164/2024/11/28/barcelona-joan-gamper-football-club-newspaper/
+
+**The art of the training video: How much to reveal? Who to include? Do players care?**\
+`Videos of training at top clubs have become increasingly big draws for fans wanting to follow their team. How are they put together?`\
+https://nytimes.com/athletic/5952531/2024/11/28/the-art-of-the-training-video-how-much-to-reveal-who-to-include-do-players-care/
+
+**Binnington sets Blues franchise win record, plus injury news on Buchnevich, Broberg**\
+`Binnington won his 152nd game with the franchise, surpassing Mike Liut's long-standing record.`\
+https://nytimes.com/athletic/5954231/2024/11/28/blues-binnington-franchise-win-record-devils/
+
+**INEOS arrived at Man Utd on a wave of goodwill but ticket price rises put that at risk**\
+`The drive to increase revenue is now affecting matchgoing fans and supporters' groups are not impressed`\
+https://nytimes.com/athletic/5953380/2024/11/28/ineos-ratcliffe-ticket-price-rises/
+
 **Next week’s waiver wire: Allen, Thielen and more players to add before Week 14**\
 `John Laghezza shares his top expected future waiver values, including Braelon Allen, who could be a league winner if opportunity knocks.`\
 https://nytimes.com/athletic/5950592/2024/11/28/next-weeks-waiver-wire-braelon-allen-thielen-players-add-now-week-14/
