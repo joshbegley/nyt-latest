@@ -1,3 +1,7 @@
+**Matt Eberflus explains why Bears didn't use TO at end of game vs. Lions**\
+`Chicago ran one play in the final 36 seconds — despite having one timeout left to use. `\
+https://nytimes.com/athletic/5955902/2024/11/28/bears-lions-timeout-matt-eberflus/
+
 **The Briefing - Tottenham 2 Roma 2: Late Hummels equaliser denies Spurs in wildly open Europa League clash**\
 `Jack Pitt-Brooke, Jay Harris and Liam Tharme break down the key moments from Thursday's Europa League tie`\
 https://nytimes.com/athletic/5949205/2024/11/28/tottenham-roma-result-analysis/
