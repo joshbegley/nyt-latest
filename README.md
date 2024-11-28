@@ -1,3 +1,7 @@
+**Australia Has Barred Everyone Under 16 From Social Media. Will It Work?**\
+`The law sets a minimum age for users of platforms like TikTok, Instagram and X. How the restriction will be enforced online remains an open question.`\
+https://nytimes.com/2024/11/28/world/asia/australia-social-media-ban-law.html
+
 **Marks: After winning Maui, Auburn and Johni Broome look like college basketball's best**\
 `Broome had 21 points, 16 rebounds, six assists, four blocks, two 3-pointers and one steal in the Maui title game domination of Memphis.`\
 https://nytimes.com/athletic/5954782/2024/11/28/auburn-basketball-johni-broome-maui-invitational/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5951828/2024/11/28/thanskgiving-football-schedule-t
 **Ukraine Reports Major Russian Attack on Its Energy Sector**\
 `President Vladimir V. Putin said Russia has been selecting targets for missile strikes in Kyiv and that they might include “decision-making centers.”`\
 https://nytimes.com/2024/11/28/world/europe/russia-missile-attack-ukraine-energy.html
-
-**'This much adversity early stinks': Wizards already have reached an inflection point**\
-`Washington has lost 13 consecutive games. Can its players emerge with their spirit intact? `\
-https://nytimes.com/athletic/5954533/2024/11/28/washington-wizards-losing-streak/
 
