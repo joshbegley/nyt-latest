@@ -1,5 +1,5 @@
 **Hiker Survives 50 Days in Canadian Wilderness**\
-`Sam Benastick was found after weeks missing in British Columbia’s frigid Redfern-Keily Provincial Park. The police had feared “this would not be the outcome,” a spokeswoman said.`\
+`Sam Benastick was found after weeks missing in British Columbia’s frigid Redfern-Keily Provincial Park, and after the official search was called off. The police had feared “this would not be the outcome,” a spokeswoman said.`\
 https://nytimes.com/2024/11/28/world/canada/hiker-canada-sam-benastick.html
 
 **Defense Secretary Takes Control of Plea Deals in War Crimes Cases**\
