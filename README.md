@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5954403/2024/11/27/raptors-pelicans-three-point-sho
 `The Sabres put 39 shots on net, but Wild goalie Filip Gustavsson stopped every single one.`\
 https://nytimes.com/athletic/5954426/2024/11/27/sabres-wild-takeaways-jack-quinn/
 
-**Penguins flip first-shot script and Rust restores "fun" for a night: Takeaways**\
-`The Penguins scored on their first shot of the game en route to a badly needed victory against the Canucks.`\
+**Penguins flip first-shot script and Bryan Rust restores 'fun' for a night: Takeaways**\
+`The Penguins scored on their first shot en route to a badly needed victory against the Canucks.`\
 https://nytimes.com/athletic/5954402/2024/11/27/penguins-rust-first-shot-canucks/
 
