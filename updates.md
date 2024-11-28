@@ -1,3 +1,7 @@
+**Lampard ‘not disappointed’ to miss out on Premier League job after Coventry appointment**\
+`Frank Lampard said he isn’t disappointed not to have been given a Premier League job after he was named as Coventry City’s new manager.`\
+https://nytimes.com/athletic/5955596/2024/11/28/frank-lampard-coventry-city/
+
 **Lampard 'not disapointed' to not get Premier League job after becoming Coventry manager**\
 `Frank Lampard said he isn’t disappointed not to have been given a Premier League job after he was named as Coventry City’s new manager.`\
 https://nytimes.com/athletic/5955596/2024/11/28/frank-lampard-coventry-city/
