@@ -1,3 +1,7 @@
+**Thompson: The Warriors need Brandin Podziemski, and he's showing some promising signs**\
+`After a stellar rookie year, Brandin Podziemski has struggled to start Year 2. But Wednesday, he looked like a player finding his way back.`\
+https://nytimes.com/athletic/5954850/2024/11/28/brandin-podziemski-golden-state-warriors-thunder/
+
 **Millions Turn Out and Tune In for Macy’s Thanksgiving Day Parade**\
 `There will be some differences this year because, after three decades, a new company has taken over production of the annual event.`\
 https://nytimes.com/2024/11/28/nyregion/macys-thanksgiving-day-parade.html
