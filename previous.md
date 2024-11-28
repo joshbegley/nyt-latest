@@ -1,4 +1,4 @@
-**Shohei Ohtani asks judge for baseball cards seized from former interpreter Ippei Mizuhara**\
+**Shohei Ohtani asks judge for baseball cards seized from Ippei Mizuhara**\
 `Mizuhara pleaded guilty in June to bank and tax fraud after stealing millions from Ohtani.`\
 https://nytimes.com/athletic/5954145/2024/11/27/shohei-ohtani-ippei-mizuhara-baseball-cards/
 
