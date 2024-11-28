@@ -1,3 +1,11 @@
+**A Top Chinese Commander Is Suspended Under Suspicion of Corruption**\
+`The case of Adm. Miao Hua suggests the persistence of graft at high levels of the military, despite the efforts by Xi Jinping to stamp out corruption.`\
+https://nytimes.com/2024/11/28/world/asia/china-military-official-corruption-allegations.html
+
+**Can Alabama bounce back and avoid disaster in the Iron Bowl? 3 keys and a prediction**\
+`The stakes might not be high this year, but it's always compelling when Alabama and Auburn get together. `\
+https://nytimes.com/athletic/5953759/2024/11/28/alabama-auburn-iron-bowl-kalen-deboer-2/
+
 **She Was the Queen of 90 Million Nightstands**\
 `Barbara Taylor Bradford was a profound part of her readers’ lives.`\
 https://nytimes.com/2024/11/28/opinion/barbara-taylor-bradford-romance-novels.html
