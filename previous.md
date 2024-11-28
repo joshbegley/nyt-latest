@@ -1,3 +1,7 @@
+**What the Cease-Fire Tells Us About Hezbollah**\
+`Hezbollah has entered a cease-fire with Israel. Ben Hubbard, an international correspondent for The New York Times, explains how 13 months of war left Hezbollah weakened, isolated and desperate for a way to stop the fighting in Lebanon.`\
+https://nytimes.com/video/world/middleeast/100000009847236/what-the-cease-fire-tells-us-about-hezbollah.html
+
 **Mark Zuckerberg Meets With Trump at Mar-a-Lago**\
 `The president-elect has long been critical of Mr. Zuckerberg’s social media platforms, saying they censor conservative viewpoints.`\
 https://nytimes.com/2024/11/27/us/politics/mark-zuckerberg-trump-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/us/politics/mexico-trump-tariff-tensions.html
 **How Will Trump’s Covid Contrarians Handle the Next Pandemic?**\
 `President-elect Donald J. Trump’s selections to run the nation’s health agencies are alarming infectious disease experts.`\
 https://nytimes.com/2024/11/27/us/politics/trump-health.html
-
-**Jim Abrahams, 80, Dies; One of Trio Behind ‘Airplane!’ and ‘Naked Gun’**\
-`Along with David and Jerry Zucker, he revolutionized film comedy with a style of straight-faced, fast-paced parody.`\
-https://nytimes.com/2024/11/27/movies/jim-abrahams-dead.html
 
