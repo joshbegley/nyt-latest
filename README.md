@@ -1,3 +1,7 @@
+**Anthony Edwards says individual agendas are behind Timberwolves' slow start**\
+`This has not been a team that plays together, pushing in the same direction. "We got to start doing what the coaches say," Edwards said.`\
+https://nytimes.com/athletic/5954565/2024/11/28/anthony-edwards-timberwolves-slow-start/
+
 **Thompson: The Warriors need Brandin Podziemski, and he's showing some promising signs**\
 `After a stellar rookie year, Brandin Podziemski has struggled to start Year 2. But Wednesday, he looked like a player finding his way back.`\
 https://nytimes.com/athletic/5954850/2024/11/28/brandin-podziemski-golden-state-warriors-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/28/world/asia/australia-social-media-ban-law.html
 **Marks: After winning Maui, Auburn and Johni Broome look like college basketball's best**\
 `Broome had 21 points, 16 rebounds, six assists, four blocks, two 3-pointers and one steal in the Maui title game domination of Memphis.`\
 https://nytimes.com/athletic/5954782/2024/11/28/auburn-basketball-johni-broome-maui-invitational/
-
-**Cowboys Today: Predictions for Thanksgiving matchup vs. Giants and Brandin Cooks returns**\
-`Comparing Cooper Rush and Dak Prescott, injury updates and picking the winner in the Cowboys-Giants matchup.`\
-https://nytimes.com/athletic/5954586/2024/11/28/cowboys-today-predictions-giants-cooper-rush/
 
