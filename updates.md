@@ -1,3 +1,7 @@
+**Ukraine Faces Power Outages as Russia Targets Energy Infrastructure**\
+`Russian President Vladimir V. Putin said the attacks were a response to Ukraine’s hitting Russian territory with U.S.-made long-range missiles last week.`\
+https://nytimes.com/video/world/europe/100000009850797/ukraine-power-outages-russian-strikes.html
+
 **Lando Norris dismisses Verstappen's McLaren title claim: 'He should start doing comedy'**\
 `Verstappen has claimed he would have won the 2024 F1 championship earlier had he been driving a McLaren. `\
 https://nytimes.com/athletic/5955378/2024/11/28/lando-norris-max-verstappen-f1-championship-claim-mclaren/
