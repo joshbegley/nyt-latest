@@ -1,3 +1,7 @@
+**Trump Team’s Rejection of a Transition Deal Adds a Wrinkle to Its Transparency Pledges**\
+`The president-elect’s team said it would disclose its donors’ names and not take donations from foreigners, but it isn’t legally bound to adhere to those promises.`\
+https://nytimes.com/2024/11/28/us/politics/trump-transition-transparency.html
+
 **Lions hold off Bears, 23-20, for first Thanksgiving win in 8 years: Takeaways**\
 `Detroit held off second-half rally by Chicago rookie quarterback Caleb Williams to maintain hold on top seed and NFC North.`\
 https://nytimes.com/athletic/5955553/2024/11/28/bears-lions-score-result-takeaways/
