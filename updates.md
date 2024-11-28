@@ -1,3 +1,7 @@
+**Seth Meyers Wishes You a Happy Frozen-Pizza Thanksgiving**\
+`Meyers tried out a few catchphrases for DiGiorno’s seasonal offering, while Jimmy Fallon suggested some last-minute Turkey Day substitutions.`\
+https://nytimes.com/2024/11/28/arts/television/seth-meyers-thanksgiving.html
+
 **Judge John Hodgman on Putrid Flowers**\
 `Can you prevent your spouse from growing a plant that (occasionally) smells like a rotting corpse?`\
 https://nytimes.com/2024/11/28/magazine/judge-john-hodgman-on-putrid-flowers.html

@@ -1,3 +1,7 @@
+**Seth Meyers Wishes You a Happy Frozen-Pizza Thanksgiving**\
+`Meyers tried out a few catchphrases for DiGiorno’s seasonal offering, while Jimmy Fallon suggested some last-minute Turkey Day substitutions.`\
+https://nytimes.com/2024/11/28/arts/television/seth-meyers-thanksgiving.html
+
 **Judge John Hodgman on Putrid Flowers**\
 `Can you prevent your spouse from growing a plant that (occasionally) smells like a rotting corpse?`\
 https://nytimes.com/2024/11/28/magazine/judge-john-hodgman-on-putrid-flowers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952005/2024/11/28/fantasy-premier-league-ranking-t
 **Leeds are playing a squad game - they're no longer relying on a few individuals**\
 `Leeds beat Luton 3-0 on Wednesday evening to climb back to the top of the Championship`\
 https://nytimes.com/athletic/5953445/2024/11/28/leeds-united-squad-luton/
-
-**Tomas Soucek: West Ham legend?**\
-`Tomas Soucek explained his new celebration — he has made a huge impact at West Ham`\
-https://nytimes.com/athletic/5949197/2024/11/28/tomas-soucek-west-ham-legend/
 
