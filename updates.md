@@ -1,3 +1,7 @@
+**Submit your questions for Until Saturday's podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/5954907/2024/11/28/college-football-questions-mailbag-until-saturday-34/
+
 **Bowden: 24 reasons I'm thankful for MLB in 2024**\
 `Giving thanks: Here's to the people, teams, moments and milestones that have made it another special year for MLB.`\
 https://nytimes.com/athletic/5954797/2024/11/28/mlb-thanksgiving-baseball-giving-thanks-2024/

@@ -1,3 +1,7 @@
+**Submit your questions for Until Saturday's podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/5954907/2024/11/28/college-football-questions-mailbag-until-saturday-34/
+
 **Bowden: 24 reasons I'm thankful for MLB in 2024**\
 `Giving thanks: Here's to the people, teams, moments and milestones that have made it another special year for MLB.`\
 https://nytimes.com/athletic/5954797/2024/11/28/mlb-thanksgiving-baseball-giving-thanks-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/28/opinion/communities-fund-first-book.html
 **Taylor Swift, the future of fandom and a dilemma facing women's football**\
 `Powerful figures within the game have spoken about the opportunities for attrating new fans, but the comments have divided opinion`\
 https://nytimes.com/athletic/5952288/2024/11/28/taylor-swift-womens-football-fandom/
-
-**Mental fortitude, Ten Hag's backing and better positioning: How Onana has turned things around at United**\
-`The 'keeper endured a tough start to life at United but his improvement in several key areas has seen him flourish into a key performer`\
-https://nytimes.com/athletic/5952362/2024/11/28/onana-manchester-united-turned-things-around/
 
