@@ -1,3 +1,11 @@
+**Long-serving F1 steward, F2 race director depart**\
+`LUSAIL, Qatar — Two more high-profile figures have been dismissed from Formula One’s governing body, the FIA, before this weekend’s Qatar Grand Prix.`\
+https://nytimes.com/athletic/5955017/2024/11/28/fia-exits-f1-steward-departs/
+
+**Making it look routine: How a schedule of Sundays helps Bills thrive**\
+`The Bills benefit when they're on a normal Sunday schedule.`\
+https://nytimes.com/athletic/5954729/2024/11/28/bills-sunday-games-routine/
+
 **Kendrick Lamar’s Never-Ending Battles**\
 `The Los Angeles rapper returns with his (surprise) sixth album, itching to escape his Drake drama, but still benefiting from it.`\
 https://nytimes.com/2024/11/28/arts/music/popcast-kendrick-lamar.html
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/5954973/2024/11/28/niclas-fullkrug-west-ham-injury-
 **How playing without a center made the Thunder even more dangerous**\
 `No team and no defense can shapeshift like the Thunder. Their identity is that they play however the situation dictates they should.`\
 https://nytimes.com/athletic/5953873/2024/11/28/nba-thunder-defense-jalen-williams/
-
-**Iga Swiatek receives one-month doping ban after positive test in summer**\
-`Swiatek appealed a provisional suspension issued in September, meaning that it remained confidential.`\
-https://nytimes.com/athletic/5954986/2024/11/28/iga-swiatek-doping-ban-tmz/
-
-**How Arne Slot is proving to be the master of the half-time tactical tweak**\
-`Liverpool's head coach has now shown on multiple occasions how he can turn a game with a subtle adjustment`\
-https://nytimes.com/athletic/5946337/2024/11/28/liverpool-arne-slot-half-time-tweak-real-madrid/
 
