@@ -1,3 +1,15 @@
+**Veggie Recipe Matchmaker, Part 1**\
+`“Together we have the dietary restrictions from hell.” “I said I’d bring a ‘tasty salad’ but I have zero ideas for making that happen.” Let’s get it.`\
+https://nytimes.com/2024/11/28/dining/reader-questions.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/11/28/books/review/7-new-books-we-recommend-this-week.html
+
+**Valtteri Bottas ponders next steps, F1 future: 'Not done yet with this sport'**\
+`Ahead of the Qatar GP, the veteran driver spoke about his future in F1 and what his motorsports moves in 2025 could be. `\
+https://nytimes.com/athletic/5955409/2024/11/28/valtteri-bottas-f1-future-mercedes/
+
 **Champions League projections: All the talking points after matchday five**\
 `Just how much danger are Real Madrid and Paris Saint-Germain in after their latest defeats?`\
 https://nytimes.com/athletic/5955295/2024/11/28/champions-league-projections-matchday-five-analysis/
@@ -13,16 +25,4 @@ https://nytimes.com/athletic/5955378/2024/11/28/lando-norris-max-verstappen-f1-c
 **What a Deadly Offensive in Syria Means for a Stalled Civil War**\
 `Rebel groups have launched the largest offensive in years against government forces in the northwest.`\
 https://nytimes.com/2024/11/28/world/middleeast/syria-civil-war.html
-
-**Review: Yunchan Lim, a Piano Star at 20, Casts Light on Chopin**\
-`Performing with the New York Philharmonic and Kazuki Yamada, Lim played Chopin’s F minor Concerto with imperturbable calm and eloquence.`\
-https://nytimes.com/2024/11/28/arts/music/yunchan-lim-piano-chopin-classical-music.html
-
-**Real Madrid coach involved in road collision travelling back from Liverpool**\
-`Emergency services attended a scene in Warwickshire after the Real Madrid coach was involved in a road traffic collision while travelling back from Liverpool.`\
-https://nytimes.com/athletic/5955259/2024/11/28/real-madrid-coach-crash/
-
-**NFL Week 13 fantasy football, betting cheat sheet: David Montgomery active for Thanksgiving game**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
 

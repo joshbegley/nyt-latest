@@ -1,3 +1,15 @@
+**Veggie Recipe Matchmaker, Part 1**\
+`“Together we have the dietary restrictions from hell.” “I said I’d bring a ‘tasty salad’ but I have zero ideas for making that happen.” Let’s get it.`\
+https://nytimes.com/2024/11/28/dining/reader-questions.html
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/11/28/books/review/7-new-books-we-recommend-this-week.html
+
+**Valtteri Bottas ponders next steps, F1 future: 'Not done yet with this sport'**\
+`Ahead of the Qatar GP, the veteran driver spoke about his future in F1 and what his motorsports moves in 2025 could be. `\
+https://nytimes.com/athletic/5955409/2024/11/28/valtteri-bottas-f1-future-mercedes/
+
 **Champions League projections: All the talking points after matchday five**\
 `Just how much danger are Real Madrid and Paris Saint-Germain in after their latest defeats?`\
 https://nytimes.com/athletic/5955295/2024/11/28/champions-league-projections-matchday-five-analysis/
