@@ -1,3 +1,7 @@
+**Missing Steph Curry, Warriors go cold in crunch time and lose to Thunder**\
+`Golden State has now lost three in a row, and Curry is dealing with pain in both knees. Others failed to step up late on Wednesday night.`\
+https://nytimes.com/athletic/5954335/2024/11/28/warriors-lose-thunder-steph-curry/
+
 **How Australia Will (or Won’t) Keep Children Off Social Media**\
 `Critics say big questions remain not only about how the new law will be enforced, but also about whether the ban will really protect young people.`\
 https://nytimes.com/2024/11/28/world/australia/australia-social-media-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952362/2024/11/28/onana-manchester-united-turned-t
 **A Holiday Tradition**\
 `We’re covering Thanksgiving arguments past.`\
 https://nytimes.com/2024/11/28/briefing/thanksgiving-arguments.html
-
-**The Pulse: Thanksgiving food draft**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/5951828/2024/11/28/thanskgiving-football-schedule-the-pulse/
 
