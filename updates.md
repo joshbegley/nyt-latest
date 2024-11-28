@@ -1,3 +1,11 @@
+**Mexico’s President Cites ‘Excellent’ Talk With Trump Amid Tariff Tensions**\
+`President Claudia Sheinbaum of Mexico said she and the president-elect talked about Mexico’s efforts to curb fentanyl consumption and keep migrants from reaching the border.`\
+https://nytimes.com/2024/11/27/us/politics/mexico-trump-tariff-tensions.html
+
+**A Year of War Transformed Hezbollah**\
+`Israel has decimated Hezbollah’s senior leadership and military infrastructure.`\
+https://nytimes.com/2024/11/27/opinion/hezbollah-israel-lebanon-ceasefire.html
+
 **How Will Trump’s Covid Contrarians Handle the Next Pandemic?**\
 `President-elect Donald J. Trump’s selections to run the nation’s health agencies are alarming infectious disease experts.`\
 https://nytimes.com/2024/11/27/us/politics/trump-health.html
