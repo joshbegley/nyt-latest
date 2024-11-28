@@ -1,3 +1,7 @@
+**Defense Secretary Takes Control of Plea Deals in War Crimes Cases**\
+`Defense Secretary Lloyd J. Austin III stripped his appointee of plea deal authority in a memo on Monday, which the Pentagon has not yet made public.`\
+https://nytimes.com/2024/11/28/us/politics/defense-secretary-plea-deals.html
+
 **Biden Makes a Final Nantucket Visit as President**\
 `The president made his usual stops, expressing gratitude for progress toward peace in the Middle East and urging Americans to stay hopeful.`\
 https://nytimes.com/2024/11/28/us/politics/biden-thanksgiving-nantucket.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5955432/2024/11/28/boise-state-volleyball-withdraws
 **Explaining Iga Swiatek's doping ban, why it was kept secret and what it means for tennis**\
 `The five-time Grand Slam champion has served 22 days of a one-month ban from tennis. Here's what you need to know`\
 https://nytimes.com/athletic/5955134/2024/11/28/iga-swiatek-drugs-ban-trimetazidine/
-
-**Footprints Suggest Different Human Relatives Lived Alongside One Another**\
-`A discovery in northern Kenya hints that two extinct species that were our ancient relatives shared the same habitat and possibly interacted.`\
-https://nytimes.com/2024/11/28/science/footprints-ancient-kenya.html
 
