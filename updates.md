@@ -1,3 +1,7 @@
+**Manchester United paid £10.4m to sack Ten Hag and his coaches**\
+`Manchester United paid £10.`\
+https://nytimes.com/athletic/5954690/2024/11/28/manchester-united-ten-hag-sacking/
+
 **Van Nistelrooy in talks to become Leicester City manager**\
 `Leicester City are in talks to appoint Ruud van Nistelrooy as Steve Cooper&#8217;s successor.`\
 https://nytimes.com/athletic/5954675/2024/11/28/van-nistelrooy-leicester-manager-talks/

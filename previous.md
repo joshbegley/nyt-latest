@@ -1,3 +1,7 @@
+**Manchester United paid £10.4m to sack Ten Hag and his coaches**\
+`Manchester United paid £10.`\
+https://nytimes.com/athletic/5954690/2024/11/28/manchester-united-ten-hag-sacking/
+
 **Van Nistelrooy in talks to become Leicester City manager**\
 `Leicester City are in talks to appoint Ruud van Nistelrooy as Steve Cooper&#8217;s successor.`\
 https://nytimes.com/athletic/5954675/2024/11/28/van-nistelrooy-leicester-manager-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/28/style/target-hot-santa-ads.html
 **Celebrating the Art Movement That Wasn’t**\
 `“Harmony & Dissonance” is a nervy, mood-lifting, masterpiece-studded show that offers an in-depth look at Orphism, which is famous for being unknown.`\
 https://nytimes.com/2024/11/28/arts/design/orphism-guggenheim-museum-delauney-art.html
-
-**The Great Gags From ‘Airplane!’ and More**\
-`With the death of Jim Abrahams, one third of the Zucker-Abrahams-Zucker writing and directing trio, a looks at some of the funniest moments from their key films.`\
-https://nytimes.com/2024/11/28/movies/airplane-jokes-jim-abrahams.html
 
