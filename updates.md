@@ -1,3 +1,11 @@
+**Giants' Drew Lock to start at QB vs. Cowboys**\
+`The sixth-year quarterback signed with New York in the offseason and has appeared in three games this season. `\
+https://nytimes.com/athletic/5955479/2024/11/28/drew-lock-starts-giants-cowboys-thanksgiving/
+
+**Two South Asian Neighbors, Once Friendly, Are Now at Bitter Odds**\
+`India and Bangladesh have traded angry accusations about Bangladesh’s Hindu minority.`\
+https://nytimes.com/2024/11/28/world/asia/india-bangladesh-relations-hindu.html
+
 **USMNT's Pepi on 'most important' goal of career in PSV's 'crazy' UCL win**\
 `Ricardo Pepi said his stoppage time winner against Shakhtar Donetsk was the most important goal of his career after he and USMNT team-mate Malik Tillman played instrumental roles in PSV&#8217;s &#8220;crazy&#8221; 3-2 comeback victory in the Champions League.`\
 https://nytimes.com/athletic/5955478/2024/11/28/usmnt-tillman-pepi-psv-champions-league/
