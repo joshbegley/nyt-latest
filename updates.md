@@ -1,3 +1,15 @@
+**Thanksgiving With Ina Garten**\
+`The Barefoot Contessa shared simple tips on the art of hosting for this special episode of “The Daily.”`\
+https://nytimes.com/2024/11/28/podcasts/the-daily/thanksgiving-ina-garten.html
+
+**In the Kitchen With Ina Garten**\
+`Michael Barbaro, host of “The Daily,” visited the legendary cook at her home in East Hampton, N.Y., for a Thanksgiving meal.`\
+https://nytimes.com/video/podcasts/the-daily/100000009845298/thanksgiving-recipe-ina-garten.html
+
+**Man Utd supporters send letter to CEO Berrada over ticket price rises**\
+`Manchester United Supporters&#8217; Trust (MUST) has sent a letter to the club’s chief executive Omar Berrada branding the newly-announced ticket rises a “disgrace”.`\
+https://nytimes.com/athletic/5954694/2024/11/28/manchester-united-tickets-must-berrada/
+
 **‘A Lack of Respect’: Chinese Women Mobilize Against Subpar Sanitary Pads**\
 `An online campaign has prompted major pad manufacturers to apologize. Regulators said they would consider women’s criticisms when writing new standards.`\
 https://nytimes.com/2024/11/28/world/asia/china-sanitary-pads-women.html
