@@ -1,3 +1,7 @@
+**Auburn announces its arrival in Maui Invitational championship win vs. Memphis**\
+`Auburn big man Johni Broome scored a team high 21 points, 16 rebounds, six assists, four blocks and one steal.`\
+https://nytimes.com/athletic/5954103/2024/11/27/auburn-memphis-maui-invitational-championship-result/
+
 **Workers’ union criticizes Elon Musk for posts identifying federal employees.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/11/27/us/trump-news/workers-union-criticizes-elon-musk-for-posts-identifying-federal-employees
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954002/2024/11/27/liverpool-injury-bradley-konate/
 **U.S. Border Agents Seize 3,000 Fake Gibson Guitars**\
 `They would have been worth nearly $18 million if they were genuine, making it the largest counterfeit instrument seizure in history, officials said.`\
 https://nytimes.com/2024/11/27/us/fake-gibson-guitars-seized.html
-
-**A Year of War Transformed Hezbollah**\
-`Israel has decimated Hezbollah’s senior leadership and military infrastructure.`\
-https://nytimes.com/2024/11/27/opinion/hezbollah-israel-lebanon-ceasefire.html
 
