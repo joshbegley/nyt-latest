@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5954207/2024/11/27/canucks-silovs-defence-penguins/
 
 **Another stellar Filip Gustavsson performance, but Wild goalie gets lots of help: 3 takeaways vs. Sabres**\
-`In a 1-0 victory over Buffalo, the Wild improved to a league-best 10-1-3 on the road.`\
+`In a 1-0 victory over the Sabres, the Wild improved to a league-best 10-1-3 on the road.`\
 https://nytimes.com/athletic/5954175/2024/11/27/wild-sabres-filip-gustavsson-takeaways/
 
 **Appeals Court Again Blocks U.S. From Cutting Texas Border Wire Along Rio Grande**\
