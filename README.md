@@ -1,3 +1,7 @@
+**Workers’ union criticizes Elon Musk for posts identifying federal employees.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/11/27/us/trump-news/workers-union-criticizes-elon-musk-for-posts-identifying-federal-employees
+
 **Mexico’s President Cites ‘Excellent’ Talk With Trump Amid Tariff Tensions**\
 `President Claudia Sheinbaum of Mexico said she and the president-elect talked about Mexico’s efforts to curb fentanyl consumption and keep migrants from reaching the border.`\
 https://nytimes.com/2024/11/27/us/politics/mexico-trump-tariff-tensions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/us/fake-gibson-guitars-seized.html
 **A Year of War Transformed Hezbollah**\
 `Israel has decimated Hezbollah’s senior leadership and military infrastructure.`\
 https://nytimes.com/2024/11/27/opinion/hezbollah-israel-lebanon-ceasefire.html
-
-**John Fetterman Wants Democrats to Stop Freaking Out**\
-`“Buckle up and pack a lunch, because it’s going to be four years of this,” the Democratic senator from Pennsylvania said.`\
-https://nytimes.com/2024/11/27/us/politics/john-fetterman-democrats.html
 
