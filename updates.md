@@ -1,3 +1,7 @@
+**The Pulse: Thanksgiving food draft**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5951828/2024/11/28/thanskgiving-football-schedule-the-pulse/
+
 **Ukraine Reports Major Russian Attack on Its Energy Sector**\
 `President Vladimir V. Putin said Russia has been selecting targets for missile strikes in Kyiv and that they might include “decision-making centers.”`\
 https://nytimes.com/2024/11/28/world/europe/russia-missile-attack-ukraine-energy.html
