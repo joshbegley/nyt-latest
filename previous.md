@@ -1,3 +1,7 @@
+**British Fan of ‘Homeland’ Series Is Convicted of Spying for Iran**\
+`Daniel Khalife also pleaded guilty to an escape from a London jail, strapped underneath a truck with a sling made of trousers, that embarrassed the British authorities.`\
+https://nytimes.com/2024/11/28/world/europe/daniel-khalife-iran-spy-prison-escape.html
+
 **Giants' Drew Lock to start at QB vs. Cowboys**\
 `The sixth-year quarterback signed with New York in the offseason and has appeared in three games this season. `\
 https://nytimes.com/athletic/5955479/2024/11/28/drew-lock-starts-giants-cowboys-thanksgiving/
@@ -21,8 +25,4 @@ https://nytimes.com/2024/11/28/books/review/7-new-books-we-recommend-this-week.h
 **Valtteri Bottas ponders next steps, F1 future: 'Not done yet with this sport'**\
 `Ahead of the Qatar GP, the veteran driver spoke about his future in F1 and what his motorsports moves in 2025 could be. `\
 https://nytimes.com/athletic/5955409/2024/11/28/valtteri-bottas-f1-future-mercedes/
-
-**Champions League projections: All the talking points after matchday five**\
-`Just how much danger are Real Madrid and Paris Saint-Germain in after their latest defeats?`\
-https://nytimes.com/athletic/5955295/2024/11/28/champions-league-projections-matchday-five-analysis/
 

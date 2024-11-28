@@ -1,3 +1,7 @@
+**British Fan of ‘Homeland’ Series Is Convicted of Spying for Iran**\
+`Daniel Khalife also pleaded guilty to an escape from a London jail, strapped underneath a truck with a sling made of trousers, that embarrassed the British authorities.`\
+https://nytimes.com/2024/11/28/world/europe/daniel-khalife-iran-spy-prison-escape.html
+
 **Giants' Drew Lock to start at QB vs. Cowboys**\
 `The sixth-year quarterback signed with New York in the offseason and has appeared in three games this season. `\
 https://nytimes.com/athletic/5955479/2024/11/28/drew-lock-starts-giants-cowboys-thanksgiving/
