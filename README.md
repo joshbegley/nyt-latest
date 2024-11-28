@@ -1,3 +1,23 @@
+**For Celtic and the rest of the Champions League's 'middle class', this season is different**\
+`In previous years Brendan Rodgers' side might already be out but the new format gives them hope - as does their capacity for a comeback`\
+https://nytimes.com/athletic/5954597/2024/11/28/celtic-club-bruges-champions-league/
+
+**This 22-Foot Turkey Roosts in a Region of Roadside Giants**\
+`Big Tom is a beloved landmark in his Minnesota hometown. Across the Midwest, small places take pride in having the largest of just about anything.`\
+https://nytimes.com/2024/11/28/us/worlds-largest-turkey-minnesota-thanksgiving.html
+
+**What to Know About a Possible Federal Takeover of Rikers Island**\
+`A judge found New York City in contempt of an agreement meant to improve jail conditions, setting the stage for a receivership.`\
+https://nytimes.com/2024/11/28/nyregion/rikers-prison-federal-takeover.html
+
+**The M.T.A.’s New Subway Boss Says He’s Here to Stay**\
+`For a decade, the M.T.A. has not retained a city transit president for longer than three years. Now a 27-year veteran of the authority is taking the job.`\
+https://nytimes.com/2024/11/28/nyregion/mta-crichlow-subway-transit.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/28/crosswords/spelling-bee-forum.html
+
 **India’s Exam Leaks Underline the Nation’s Bigger Problem**\
 `The economy has failed to create enough good jobs, so a government post appeals to far more people than there are openings, fueling desperation.`\
 https://nytimes.com/2024/11/28/world/asia/indias-exam-leaks-underline-the-nations-bigger-problem.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5954552/2024/11/28/anthony-edwards-postgame-comment
 **Seth Meyers Wishes You a Happy Frozen-Pizza Thanksgiving**\
 `Meyers tried out a few catchphrases for DiGiorno’s seasonal offering, while Jimmy Fallon suggested some last-minute Turkey Day substitutions.`\
 https://nytimes.com/2024/11/28/arts/television/seth-meyers-thanksgiving.html
-
-**Judge John Hodgman on Putrid Flowers**\
-`Can you prevent your spouse from growing a plant that (occasionally) smells like a rotting corpse?`\
-https://nytimes.com/2024/11/28/magazine/judge-john-hodgman-on-putrid-flowers.html
-
-**This Maverick Thinker Is the Karl Marx of Our Time**\
-`He has a convincing theory of what has gone wrong with globalization.`\
-https://nytimes.com/2024/11/28/opinion/wolfgang-streeck-populism.html
-
-**Is China Coming for Your Turkey, Too?**\
-`China’s push to develop alternative proteins is not a threat to America. It’s good for the planet.`\
-https://nytimes.com/2024/11/28/opinion/china-food-science-protein.html
-
-**Taylor Hall nets first hat trick in nearly 11 years to propel Blackhawks past Stars**\
-`Chicago found its scoring touch in a 6-2 defeat of Dallas in front of the third-biggest home crowd this season.`\
-https://nytimes.com/athletic/5954312/2024/11/28/blackhawks-taylor-hall-hat-trick-stars/
-
-**What's going wrong with Everton's misfiring attack?**\
-`Everton have scored 10 goals in 12 games - but more worryingly there has been a lack of creativity. How can Sean Dyche solve the problems?`\
-https://nytimes.com/athletic/5952438/2024/11/28/everton-attack-misfiring-creativity-sean-dyche/
 
