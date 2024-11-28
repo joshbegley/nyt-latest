@@ -1,3 +1,7 @@
+**'This much adversity early stinks': Wizards already have reached an inflection point**\
+`Washington has lost 13 consecutive games. Can its players emerge with their spirit intact? `\
+https://nytimes.com/athletic/5954533/2024/11/28/washington-wizards-losing-streak/
+
 **Best division since realignment? Putting the NFC North's dominance in context**\
 `The Lions, Vikings, Packers and Bears have combined to beat non-divisional foes by 9.5 points per game, easily the best since 2002.`\
 https://nytimes.com/athletic/5952981/2024/11/28/lions-bears-packers-vikings-nfc-north/
