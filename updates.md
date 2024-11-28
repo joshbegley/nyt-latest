@@ -1,3 +1,11 @@
+**USMNT's Pepi on 'most important' goal of career in PSV's 'crazy' UCL win**\
+`Ricardo Pepi said his stoppage time winner against Shakhtar Donetsk was the most important goal of his career after he and USMNT team-mate Malik Tillman played instrumental roles in PSV&#8217;s &#8220;crazy&#8221; 3-2 comeback victory in the Champions League.`\
+https://nytimes.com/athletic/5955478/2024/11/28/usmnt-tillman-pepi-psv-champions-league/
+
+**Two South Asian Giants, Once Friendly, Are Now at Bitter Odds**\
+`India and Bangladesh have traded angry accusations about Bangladesh’s Hindu minority.`\
+https://nytimes.com/2024/11/28/world/asia/india-bangladesh-relations-hindu.html
+
 **Veggie Recipe Matchmaker, Part 1**\
 `“Together we have the dietary restrictions from hell.” “I said I’d bring a ‘tasty salad’ but I have zero ideas for making that happen.” Let’s get it.`\
 https://nytimes.com/2024/11/28/dining/reader-questions.html
