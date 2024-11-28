@@ -1,3 +1,7 @@
+**Malacia set to start for Man United in Europa League following long-term injury**\
+`Tyrell Malacia is set to start his first game for Manchester United in 550 days against Bodo/Glimt in the Europa League.`\
+https://nytimes.com/athletic/5955580/2024/11/28/tyrell-malacia-set-to-start-for-manchester-united-against-bodo-glimt-following-long-term-knee-injury/
+
 **Romania Court Orders a Recount After Surprise Election Result**\
 `A top court issued the ruling just days after an ultranationalist outsider unexpectedly won the most votes in the first round of presidential elections held Sunday.`\
 https://nytimes.com/2024/11/28/world/europe/romania-recount-tiktok-election.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5955479/2024/11/28/drew-lock-starts-giants-cowboys-
 **USMNT's Pepi on 'most important' goal of career in PSV's 'crazy' UCL win**\
 `Ricardo Pepi said his stoppage time winner against Shakhtar Donetsk was the most important goal of his career after he and USMNT team-mate Malik Tillman played instrumental roles in PSV&#8217;s &#8220;crazy&#8221; 3-2 comeback victory in the Champions League.`\
 https://nytimes.com/athletic/5955478/2024/11/28/usmnt-tillman-pepi-psv-champions-league/
-
-**Two South Asian Neighbors, Once Friendly, Are Now at Bitter Odds**\
-`India and Bangladesh have traded angry accusations about Bangladesh’s Hindu minority.`\
-https://nytimes.com/2024/11/28/world/asia/india-bangladesh-relations-hindu.html
 
