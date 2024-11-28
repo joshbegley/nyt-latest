@@ -1,3 +1,7 @@
+**A debut for Portugal. Scoring in La Liga. But what next for Fabio Silva and Wolves?**\
+`The striker is loved by fans at his new club but does he have a future there?`\
+https://nytimes.com/athletic/5950135/2024/11/28/what-next-for-fabio-silva-and-wolves/
+
 **Barcelona 125: Joan Gamper, the man who built the club (thanks to a magazine advert)**\
 `How frustration prompted a Swiss man to create one of the world's most beloved football clubs - before he was exiled`\
 https://nytimes.com/athletic/5942164/2024/11/28/barcelona-joan-gamper-football-club-newspaper/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/28/briefing/hezbollah-truce-trump-envoy.html
 **These Exams Mean Everything in India. Thieves See a Gold Mine.**\
 `In a country where government jobs are highly coveted, the tests that govern hiring are a lucrative target for criminal gangs.`\
 https://nytimes.com/2024/11/28/world/asia/india-exam-leak.html
-
-**London’s 850-Year-Old Smithfield Meat Market Is Set to Close**\
-`Livestock has been traded on the historic site in Britain’s capital for centuries. The local authority voted this week to close it.`\
-https://nytimes.com/2024/11/28/world/europe/london-smithfield-meat-market.html
 

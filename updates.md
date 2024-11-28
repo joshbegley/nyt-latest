@@ -1,3 +1,7 @@
+**A debut for Portugal. Scoring in La Liga. But what next for Fabio Silva and Wolves?**\
+`The striker is loved by fans at his new club but does he have a future there?`\
+https://nytimes.com/athletic/5950135/2024/11/28/what-next-for-fabio-silva-and-wolves/
+
 **Barcelona 125: Joan Gamper, the man who built the club (thanks to a magazine advert)**\
 `How frustration prompted a Swiss man to create one of the world's most beloved football clubs - before he was exiled`\
 https://nytimes.com/athletic/5942164/2024/11/28/barcelona-joan-gamper-football-club-newspaper/
