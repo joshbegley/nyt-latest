@@ -1,3 +1,12 @@
+**How a Women’s College Volleyball Team Became the Center of the Transgender Athlete Debate**\
+`Not since the swimmer Lia Thomas has a college athlete or team put the fiercely contested issue of transgender rights in sports under such a bright spotlight.`\
+https://nytimes.com/2024/11/28/us/trans-volleyball-san-jose-state.html
+
+**Alexander-Arnold fit to start against Man City**\
+`Arne Slot has confirmed Liverpool defender Trent Alexander-Arnold is fit to start against Manchester City this weekend
+The 26-year-old returned to the squad as an unused substitute in the Champions League victory over Real Madrid on Wednesday following a hamstring injury.`\
+https://nytimes.com/athletic/5955126/2024/11/28/trent-alexander-arnold-manchester-city-start/
+
 **Why a former MVP thinks Saquon Barkley can break the QB-only trend**\
 `Saquon Barkley is having the kind of year a non-QB needs to win the award.`\
 https://nytimes.com/athletic/5953301/2024/11/28/nfl-mvp-saquon-barkley-quarterbacks/
