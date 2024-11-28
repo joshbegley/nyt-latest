@@ -1,3 +1,7 @@
+**Mexico’s President Cites ‘Excellent’ Talk With Trump Amid Tariff Tensions**\
+`President Claudia Sheinbaum of Mexico said she and the president-elect talked about Mexico’s efforts to curb fentanyl consumption and keep migrants from reaching the border.`\
+https://nytimes.com/2024/11/27/us/politics/mexico-trump-tariff-tensions.html
+
 **How Will Trump’s Covid Contrarians Handle the Next Pandemic?**\
 `President-elect Donald J. Trump’s selections to run the nation’s health agencies are alarming infectious disease experts.`\
 https://nytimes.com/2024/11/27/us/politics/trump-health.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5954002/2024/11/27/liverpool-injury-bradley-konate/
 `They would have been worth nearly $18 million if they were genuine, making it the largest counterfeit instrument seizure in history, officials said.`\
 https://nytimes.com/2024/11/27/us/fake-gibson-guitars-seized.html
 
-**Hezbollah Has Been Weakened. That Might Not Last.**\
+**A Year of War Transformed Hezbollah**\
 `Israel has decimated Hezbollah’s senior leadership and military infrastructure.`\
 https://nytimes.com/2024/11/27/opinion/hezbollah-israel-lebanon-ceasefire.html
 
 **John Fetterman Wants Democrats to Stop Freaking Out**\
 `“Buckle up and pack a lunch, because it’s going to be four years of this,” the Democratic senator from Pennsylvania said.`\
 https://nytimes.com/2024/11/27/us/politics/john-fetterman-democrats.html
-
-**N.Y.P.D. Detective Is Charged With Making ‘Ghost Guns’**\
-`Anthony Sciortino, a detective in Staten Island, was also charged with falsifying police records in what prosecutors said was a “brazen act of misconduct.”`\
-https://nytimes.com/2024/11/27/nyregion/nypd-detective-ghost-guns.html
 
