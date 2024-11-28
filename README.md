@@ -1,3 +1,7 @@
+**'This much adversity early stinks': Wizards already have reached an inflection point**\
+`Washington has lost 13 consecutive games. Can its players emerge with their spirit intact? `\
+https://nytimes.com/athletic/5954533/2024/11/28/washington-wizards-losing-streak/
+
 **Best division since realignment? Putting the NFC North's dominance in context**\
 `The Lions, Vikings, Packers and Bears have combined to beat non-divisional foes by 9.5 points per game, easily the best since 2002.`\
 https://nytimes.com/athletic/5952981/2024/11/28/lions-bears-packers-vikings-nfc-north/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954694/2024/11/28/manchester-united-tickets-must-b
 **‘A Lack of Respect’: Chinese Women Mobilize Against Subpar Sanitary Pads**\
 `An online campaign has prompted major pad manufacturers to apologize. Regulators said they would consider women’s criticisms when writing new standards.`\
 https://nytimes.com/2024/11/28/world/asia/china-sanitary-pads-women.html
-
-**AFC North Whiparound: Which players are teams in the division most thankful for?**\
-`Plus, how many wins will it take to win the division? And what's the current vibe surrounding each of the four teams? `\
-https://nytimes.com/athletic/5953307/2024/11/28/ravens-bengals-browns-steelers-afc-north-week-13/
 
