@@ -1,3 +1,11 @@
+**‘A Lack of Respect’: Chinese Women Mobilize Against Subpar Sanitary Pads**\
+`An online campaign has prompted major pad manufacturers to apologize. Regulators said they would consider women’s criticisms when writing new standards.`\
+https://nytimes.com/2024/11/28/world/asia/china-sanitary-pads-women.html
+
+**AFC North Whiparound: Which players are teams in the division most thankful for?**\
+`Plus, how many wins will it take to win the division? And what's the current vibe surrounding each of the four teams? `\
+https://nytimes.com/athletic/5953307/2024/11/28/ravens-bengals-browns-steelers-afc-north-week-13/
+
 **Manchester United paid £10.4m to sack Ten Hag and his coaches**\
 `Manchester United paid £10.`\
 https://nytimes.com/athletic/5954690/2024/11/28/manchester-united-ten-hag-sacking/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/11/28/realestate/brooklyn-park-slope-clinto
 **With Trump Returning and Hezbollah Weakened, Iran Strikes a Conciliatory Tone**\
 `As Iran faces domestic and foreign challenges, its bellicose rhetoric on the United States and Israel has given way to signs that it wants less confrontation.`\
 https://nytimes.com/2024/11/28/world/middleeast/iran-shift-trump-hezbollah.html
-
-**Did the World Need a Hot Santa? It Got One Anyway.**\
-`A new series of ads from Target features Kris K., a “weirdly hot” version of the beloved character, continuing a trend of spicing up holiday favorites.`\
-https://nytimes.com/2024/11/28/style/target-hot-santa-ads.html
-
-**Celebrating the Art Movement That Wasn’t**\
-`“Harmony & Dissonance” is a nervy, mood-lifting, masterpiece-studded show that offers an in-depth look at Orphism, which is famous for being unknown.`\
-https://nytimes.com/2024/11/28/arts/design/orphism-guggenheim-museum-delauney-art.html
 
