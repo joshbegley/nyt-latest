@@ -1,3 +1,7 @@
+**Penguins flip first-shot script and Rust restores "fun" for a night: Takeaways**\
+`The Penguins scored on their first shot of the game en route to a badly needed victory against the Canucks.`\
+https://nytimes.com/athletic/5954402/2024/11/27/penguins-rust-first-shot-canucks/
+
 **As Plastic Talks Continue, a Reminder of What We’re All Exposed To.**\
 `As international talks continue this week, a dozen U.N. officials reveal scientists tracked their exposure to many chemicals found in plastics.`\
 https://nytimes.com/2024/11/27/climate/plastic-chemicals-exposure.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/pageoneplus/corrections-nov-28-2024.html
 **What the Cease-Fire Tells Us About Hezbollah**\
 `Hezbollah has entered a cease-fire with Israel. Ben Hubbard, an international correspondent for The New York Times, explains how 13 months of war left Hezbollah weakened, isolated and desperate for a way to stop the fighting in Lebanon.`\
 https://nytimes.com/video/world/middleeast/100000009847236/what-the-cease-fire-tells-us-about-hezbollah.html
-
-**Mark Zuckerberg Meets With Trump at Mar-a-Lago**\
-`The president-elect has long been critical of Mr. Zuckerberg’s social media platforms, saying they censor conservative viewpoints.`\
-https://nytimes.com/2024/11/27/us/politics/mark-zuckerberg-trump-meeting.html
 
