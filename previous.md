@@ -1,3 +1,7 @@
+**E.U. Vessels Surround Anchored Chinese Ship After Baltic Sea Cables Are Severed**\
+`Multiple countries are investigating and the authorities in Europe say they have not ruled out sabotage. But U.S. intelligence officials have assessed that the cables were not cut deliberately.`\
+https://nytimes.com/2024/11/27/world/europe/baltic-sea-cables-chinese-ship.html
+
 **Auburn announces its arrival in Maui Invitational championship win vs. Memphis**\
 `Auburn big man Johni Broome scored a team high 21 points, 16 rebounds, six assists, four blocks and one steal.`\
 https://nytimes.com/athletic/5954103/2024/11/27/auburn-memphis-maui-invitational-championship-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954006/2024/11/27/fred-warner-49ers-broken-ankle/
 **Liverpool's Bradley, Konate to be assessed ahead of Man City**\
 `Arne Slot says Ibrahima Konate and Conor Bradley need further assessment to determine whether they will be available for Liverpool’s crunch Premier League clash with Manchester City at Anfield on Sunday.`\
 https://nytimes.com/athletic/5954002/2024/11/27/liverpool-injury-bradley-konate/
-
-**U.S. Border Agents Seize 3,000 Fake Gibson Guitars**\
-`They would have been worth nearly $18 million if they were genuine, making it the largest counterfeit instrument seizure in history, officials said.`\
-https://nytimes.com/2024/11/27/us/fake-gibson-guitars-seized.html
 

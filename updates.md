@@ -1,3 +1,7 @@
+**E.U. Vessels Surround Anchored Chinese Ship After Baltic Sea Cables Are Severed**\
+`Multiple countries are investigating and the authorities in Europe say they have not ruled out sabotage. But U.S. intelligence officials have assessed that the cables were not cut deliberately.`\
+https://nytimes.com/2024/11/27/world/europe/baltic-sea-cables-chinese-ship.html
+
 **Auburn announces its arrival in Maui Invitational championship win vs. Memphis**\
 `Auburn big man Johni Broome scored a team high 21 points, 16 rebounds, six assists, four blocks and one steal.`\
 https://nytimes.com/athletic/5954103/2024/11/27/auburn-memphis-maui-invitational-championship-result/
