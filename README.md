@@ -1,3 +1,7 @@
+**The Pulse: Thanksgiving food draft**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5951828/2024/11/28/thanskgiving-football-schedule-the-pulse/
+
 **Ukraine Reports Major Russian Attack on Its Energy Sector**\
 `President Vladimir V. Putin said Russia has been selecting targets for missile strikes in Kyiv and that they might include “decision-making centers.”`\
 https://nytimes.com/2024/11/28/world/europe/russia-missile-attack-ukraine-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/28/podcasts/the-daily/thanksgiving-ina-garten.html
 **In the Kitchen With Ina Garten**\
 `Michael Barbaro, host of “The Daily,” visited the legendary cook at her home in East Hampton, N.Y., for a Thanksgiving meal.`\
 https://nytimes.com/video/podcasts/the-daily/100000009845298/thanksgiving-recipe-ina-garten.html
-
-**Man Utd supporters send letter to CEO Berrada over ticket price rises**\
-`Manchester United Supporters&#8217; Trust (MUST) has sent a letter to the club’s chief executive Omar Berrada branding the newly-announced ticket rises a “disgrace”.`\
-https://nytimes.com/athletic/5954694/2024/11/28/manchester-united-tickets-must-berrada/
 

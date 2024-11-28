@@ -1,3 +1,7 @@
+**Ukraine Reports Major Russian Attack on Its Energy Sector**\
+`President Vladimir V. Putin said Russia has been selecting targets for missile strikes in Kyiv and that they might include “decision-making centers.”`\
+https://nytimes.com/2024/11/28/world/europe/russia-missile-attack-ukraine-energy.html
+
 **'This much adversity early stinks': Wizards already have reached an inflection point**\
 `Washington has lost 13 consecutive games. Can its players emerge with their spirit intact? `\
 https://nytimes.com/athletic/5954533/2024/11/28/washington-wizards-losing-streak/
