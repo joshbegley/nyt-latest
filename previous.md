@@ -1,3 +1,11 @@
+**What's going wrong with Everton's misfiring attack?**\
+`Everton have scored 10 goals in 12 games - but more worryingly there has been a lack of creativity. How can Sean Dyche solve the problems?`\
+https://nytimes.com/athletic/5952438/2024/11/28/everton-attack-misfiring-creativity-sean-dyche/
+
+**'It's ridiculous!': Blue Jackets' Dean Evason infuriated by non-call in OT loss**\
+`The Blue Jackets forced overtime against the Canadiens, but fell just 44 seconds into overtime after a play that set Evason off.`\
+https://nytimes.com/athletic/5954393/2024/11/28/blue-jackets-evason-overtime-call-canadiens/
+
 **Jess Fishlock has lots to achieve — with Wales, the Seattle Reign and padel**\
 `The Wales and Reign midfielder has served her country with distinction - a place at the Euros for the first time is within touching distance`\
 https://nytimes.com/athletic/5952025/2024/11/28/jess-fishlock-interview-wales-seattle-reign/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5950135/2024/11/28/what-next-for-fabio-silva-and-wo
 **Barcelona 125: Joan Gamper, the man who built the club (thanks to a magazine advert)**\
 `How frustration prompted a Swiss man to create one of the world's most beloved football clubs - before he was exiled`\
 https://nytimes.com/athletic/5942164/2024/11/28/barcelona-joan-gamper-football-club-newspaper/
-
-**The art of the training video: How much to reveal? Who to include? Do players care?**\
-`Videos of training at top clubs have become increasingly big draws for fans wanting to follow their team. How are they put together?`\
-https://nytimes.com/athletic/5952531/2024/11/28/the-art-of-the-training-video-how-much-to-reveal-who-to-include-do-players-care/
-
-**Binnington sets Blues franchise win record, plus injury news on Buchnevich, Broberg**\
-`Binnington won his 152nd game with the franchise, surpassing Mike Liut's long-standing record.`\
-https://nytimes.com/athletic/5954231/2024/11/28/blues-binnington-franchise-win-record-devils/
 
