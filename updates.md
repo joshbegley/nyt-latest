@@ -1,3 +1,7 @@
+**Champions League projections: All the talking points after matchday five**\
+`Just how much danger are Real Madrid and Paris Saint-Germain in after their latest defeats?`\
+https://nytimes.com/athletic/5955295/2024/11/28/champions-league-projections-matchday-five-analysis/
+
 **Ukraine Faces Power Outages as Russia Targets Energy Infrastructure**\
 `Russian President Vladimir V. Putin said the attacks were a response to Ukraine’s hitting Russian territory with U.S.-made long-range missiles last week.`\
 https://nytimes.com/video/world/europe/100000009850797/ukraine-power-outages-russian-strikes.html

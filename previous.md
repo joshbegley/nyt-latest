@@ -1,3 +1,7 @@
+**Champions League projections: All the talking points after matchday five**\
+`Just how much danger are Real Madrid and Paris Saint-Germain in after their latest defeats?`\
+https://nytimes.com/athletic/5955295/2024/11/28/champions-league-projections-matchday-five-analysis/
+
 **Ukraine Faces Power Outages as Russia Targets Energy Infrastructure**\
 `Russian President Vladimir V. Putin said the attacks were a response to Ukraine’s hitting Russian territory with U.S.-made long-range missiles last week.`\
 https://nytimes.com/video/world/europe/100000009850797/ukraine-power-outages-russian-strikes.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5955259/2024/11/28/real-madrid-coach-crash/
 **NFL Week 13 fantasy football, betting cheat sheet: David Montgomery active for Thanksgiving game**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
-
-**Nottingham Forest's Danilo returns to training following broken ankle**\
-`Danilo has returned to training with Nottingham Forest, as he continues his recovery from a broken ankle.`\
-https://nytimes.com/athletic/5955130/2024/11/28/danilo-nottingham-forest-return-injury-update/
 
