@@ -1,3 +1,7 @@
+**Dunk to return from injury against Southampton**\
+`Brighton &amp; Hove Albion captain Lewis Dunk is back in contention for Friday&#8217;s home game against Southampton.`\
+https://nytimes.com/athletic/5954650/2024/11/28/lewis-dunk-injury-brighton-southampton/
+
 **Stowaway Travels on Flight From U.S., Officials Say**\
 `A Delta Air Lines pilot announced on a trip from New York to Paris that there was an extra passenger. The airline said it was working with the authorities to investigate the flight.`\
 https://nytimes.com/2024/11/28/us/jfk-paris-delta-stowaway.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954196/2024/11/28/kylian-mbappe-liverpool-real-mad
 **Conor Bradley and a tackle for the ages**\
 `Liverpool's victory over Real Madrid was ignited by a thumping, memorable challenge on Kylian Mbappe from their young right-back`\
 https://nytimes.com/athletic/5954096/2024/11/28/liverpool-conor-bradley-tackle-kylian-mbappe/
-
-**Edwards unloads on the Timberwolves, calling them 'soft' and 'front-runners'**\
-`Timberwolves have lost four in a row and sit in 12th place in the Western Conference at 8-10.`\
-https://nytimes.com/athletic/5954552/2024/11/28/anthony-edwards-postgame-comments/
 
