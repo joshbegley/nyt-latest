@@ -1,3 +1,11 @@
+**Friday Briefing: Day 2 of Lebanon’s Cease-fire**\
+`Plus, the gangs stealing hiring exams in India.`\
+https://nytimes.com/2024/11/28/briefing/lebanon-cease-fire-russia-ukraine-australia.html
+
+**‘Nobody Won’: Residents of a Lebanese City Return to Rubble and Sorrow**\
+`Tens of thousands of people who had fled the city of Baalbek returned to bombed-out restaurants, flattened apartment buildings and many of the dead still buried under the rubble.`\
+https://nytimes.com/2024/11/28/world/middleeast/baalbek-lebanon-israel.html
+
 **Everyone’s Going to the Book Bar**\
 `A glass of wine, a snack and a new book is about as good as it gets.`\
 https://nytimes.com/2024/11/28/dining/everyones-going-to-the-book-bar.html

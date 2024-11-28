@@ -1,3 +1,11 @@
+**Friday Briefing: Day 2 of Lebanon’s Cease-fire**\
+`Plus, the gangs stealing hiring exams in India.`\
+https://nytimes.com/2024/11/28/briefing/lebanon-cease-fire-russia-ukraine-australia.html
+
+**‘Nobody Won’: Residents of a Lebanese City Return to Rubble and Sorrow**\
+`Tens of thousands of people who had fled the city of Baalbek returned to bombed-out restaurants, flattened apartment buildings and many of the dead still buried under the rubble.`\
+https://nytimes.com/2024/11/28/world/middleeast/baalbek-lebanon-israel.html
+
 **Everyone’s Going to the Book Bar**\
 `A glass of wine, a snack and a new book is about as good as it gets.`\
 https://nytimes.com/2024/11/28/dining/everyones-going-to-the-book-bar.html
@@ -17,12 +25,4 @@ https://nytimes.com/2024/11/28/us/politics/defense-secretary-plea-deals.html
 **Biden Makes a Final Nantucket Visit as President**\
 `The president made his usual stops, expressing gratitude for progress toward peace in the Middle East and urging Americans to stay hopeful.`\
 https://nytimes.com/2024/11/28/us/politics/biden-thanksgiving-nantucket.html
-
-**NFL Week 13 fantasy football, betting cheat sheet: Drew Lock to start Giants' Thanksgiving game**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
-
-**Snow and Rain Disrupt Holiday Travel as Storm Moves Across the Northeast**\
-`More than a foot of snow could accumulate in northern New England, hampering drivers in a record-breaking year for Thanksgiving travel.`\
-https://nytimes.com/2024/11/28/us/snow-storm-thanksgiving-travel-weather-northeast.html
 
