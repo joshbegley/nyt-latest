@@ -1,3 +1,11 @@
+**What's Really Keeping You Up at Night?**\
+`Experts explain the science behind a good night’s rest and the factors that can influence sleep hygiene.`\
+https://nytimes.com/paidpost/bedsure/whats-really-keeping-you-up-at-night.html
+
+**Ohio Governor Signs Bathroom Restrictions for Transgender Students**\
+`The state is one of at least a dozen states to set restrictions on bathrooms for transgender students at public schools.`\
+https://nytimes.com/2024/11/27/us/ohio-transgender-bathroom-law.html
+
 **Shohei Ohtani asks judge for baseball cards seized from Ippei Mizuhara**\
 `Mizuhara pleaded guilty in June to bank and tax fraud after stealing millions from Ohtani.`\
 https://nytimes.com/athletic/5954145/2024/11/27/shohei-ohtani-ippei-mizuhara-baseball-cards/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/27/movies/jim-abrahams-dead.html
 **Giants legend Brandon Crawford announces retirement**\
 `A three-time All-Star and four-time Gold Glove winner, Crawford left his mark on the Bay Area during 13 seasons.`\
 https://nytimes.com/athletic/5954065/2024/11/27/giants-brandon-crawford-retirement/
-
-**‘Queer’ Review: The Seductive, Damaged Charm of Daniel Craig**\
-`The star kills off his Bond to inhabit a dissolute American expat in Luca Guadagnino’s handsome adaptation of the William S. Burroughs novella.`\
-https://nytimes.com/2024/11/27/movies/queer-review-daniel-craig-luca-guadagnino.html
-
-**What's wrong with Fred Warner? 49ers linebacker has been playing with a broken ankle**\
-`Just like last Wednesday, Brock Purdy didn't throw much in practice, and Nick Bosa and Trent Williams didn't practice at all. `\
-https://nytimes.com/athletic/5954006/2024/11/27/fred-warner-49ers-broken-ankle/
 
