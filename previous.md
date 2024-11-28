@@ -1,3 +1,11 @@
+**Everyone’s Going to the Book Bar**\
+`A glass of wine, a snack and a new book is about as good as it gets.`\
+https://nytimes.com/2024/11/28/dining/everyones-going-to-the-book-bar.html
+
+**‘The Agency’ Is a Slick and Pleasing Spy Drama**\
+`Based on the French show “The Bureau,” the new Showtime series stars Michael Fassbender as a spy who must readjust to life after living undercover.`\
+https://nytimes.com/2024/11/28/arts/television/the-agency-showtime-paramount.html
+
 **Hiker Survives 50 Days in Canadian Wilderness**\
 `Sam Benastick was found after weeks missing in British Columbia’s frigid Redfern-Keily Provincial Park, and after the official search was called off. The police had feared “this would not be the outcome,” a spokeswoman said.`\
 https://nytimes.com/2024/11/28/world/canada/hiker-canada-sam-benastick.html
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-bet
 **Snow and Rain Disrupt Holiday Travel as Storm Moves Across the Northeast**\
 `More than a foot of snow could accumulate in northern New England, hampering drivers in a record-breaking year for Thanksgiving travel.`\
 https://nytimes.com/2024/11/28/us/snow-storm-thanksgiving-travel-weather-northeast.html
-
-**Yiddish Is a Supposedly Dying Language That’s Thrillingly Alive**\
-`Yiddish, the heart of some communities, is always fascinating.`\
-https://nytimes.com/2024/11/28/opinion/yiddish-hebrew-language-thriving.html
-
-**Boise State volleyball forfeits Mountain West tournament match vs. SJSU**\
-`Boise State forfeited games against SJSU this season instead of competing against an alleged transgender player on the Spartans' roster.`\
-https://nytimes.com/athletic/5955432/2024/11/28/boise-state-volleyball-withdraws-tournament/
 
