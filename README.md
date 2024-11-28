@@ -1,3 +1,11 @@
+**A Top Chinese Commander Is Suspended Under Suspicion of Corruption**\
+`The case of Adm. Miao Hua suggests the persistence of graft at high levels of the military, despite the efforts by Xi Jinping to stamp out corruption.`\
+https://nytimes.com/2024/11/28/world/asia/china-military-official-corruption-allegations.html
+
+**Can Alabama bounce back and avoid disaster in the Iron Bowl? 3 keys and a prediction**\
+`The stakes might not be high this year, but it's always compelling when Alabama and Auburn get together. `\
+https://nytimes.com/athletic/5953759/2024/11/28/alabama-auburn-iron-bowl-kalen-deboer-2/
+
 **She Was the Queen of 90 Million Nightstands**\
 `Barbara Taylor Bradford was a profound part of her readers’ lives.`\
 https://nytimes.com/2024/11/28/opinion/barbara-taylor-bradford-romance-novels.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/28/science/fossils-eastern-shoshone-burrows.html
 **Homes for Sale in Manhattan and the Bronx**\
 `This week’s properties are in Chelsea, on the Upper East Side and on the Grand Concourse.`\
 https://nytimes.com/2024/11/28/realestate/homes-for-sale-in-manhattan-and-the-bronx.html
-
-**Psychedelic Traces Found on Mug From Ancient Egypt**\
-`Egyptians may have used hallucinogenic substances as part of a fertility rite, researchers said.`\
-https://nytimes.com/2024/11/28/science/egyptian-psychedelic-mug.html
-
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties are a four-bedroom in North Bellmore, N.Y., and a three-bedroom in Sherman, Conn.`\
-https://nytimes.com/2024/11/28/realestate/housing-market-near-nyc.html
 
