@@ -1,3 +1,7 @@
+**Defense Secretary Takes Control of Plea Deals in War Crimes Cases**\
+`Defense Secretary Lloyd J. Austin III stripped his appointee of plea deal authority in a memo on Monday, which the Pentagon has not yet made public.`\
+https://nytimes.com/2024/11/28/us/politics/defense-secretary-plea-deals.html
+
 **Biden Makes a Final Nantucket Visit as President**\
 `The president made his usual stops, expressing gratitude for progress toward peace in the Middle East and urging Americans to stay hopeful.`\
 https://nytimes.com/2024/11/28/us/politics/biden-thanksgiving-nantucket.html
