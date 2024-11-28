@@ -1,3 +1,7 @@
+**'It's ridiculous!': Blue Jackets' Dean Evason infuriated by non-call in OT loss**\
+`The Blue Jackets forced overtime against the Canadiens but fell just 44 seconds into OT after a play that set Evason off.`\
+https://nytimes.com/athletic/5954393/2024/11/28/blue-jackets-evason-overtime-call-canadiens/
+
 **What's going wrong with Everton's misfiring attack?**\
 `Everton have scored 10 goals in 12 games - but more worryingly there has been a lack of creativity. How can Sean Dyche solve the problems?`\
 https://nytimes.com/athletic/5952438/2024/11/28/everton-attack-misfiring-creativity-sean-dyche/
