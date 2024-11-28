@@ -1,3 +1,7 @@
+**Hiker Survives 50 Days in Canadian Wilderness**\
+`Sam Benastick was found after weeks missing in British Columbia’s frigid Redfern-Keily Provincial Park. The police had feared “this would not be the outcome,” a spokeswoman said.`\
+https://nytimes.com/2024/11/28/world/canada/hiker-canada-sam-benastick.html
+
 **Defense Secretary Takes Control of Plea Deals in War Crimes Cases**\
 `Defense Secretary Lloyd J. Austin III stripped his appointee of plea deal authority in a memo on Monday, which the Pentagon has not yet made public.`\
 https://nytimes.com/2024/11/28/us/politics/defense-secretary-plea-deals.html
@@ -21,8 +25,4 @@ https://nytimes.com/2024/11/28/opinion/yiddish-hebrew-language-thriving.html
 **Boise State volleyball forfeits Mountain West tournament match vs. SJSU**\
 `Boise State forfeited games against SJSU this season instead of competing against an alleged transgender player on the Spartans' roster.`\
 https://nytimes.com/athletic/5955432/2024/11/28/boise-state-volleyball-withdraws-tournament/
-
-**Explaining Iga Swiatek's doping ban, why it was kept secret and what it means for tennis**\
-`The five-time Grand Slam champion has served 22 days of a one-month ban from tennis. Here's what you need to know`\
-https://nytimes.com/athletic/5955134/2024/11/28/iga-swiatek-drugs-ban-trimetazidine/
 
