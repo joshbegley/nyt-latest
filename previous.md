@@ -1,3 +1,7 @@
+**Marks: After winning Maui, Auburn and Johni Broome look like college basketball's best**\
+`Broome had 21 points, 16 rebounds, six assists, four blocks, two 3-pointers and one steal in the Maui title game domination of Memphis.`\
+https://nytimes.com/athletic/5954782/2024/11/28/auburn-basketball-johni-broome-maui-invitational/
+
 **Cowboys Today: Predictions for Thanksgiving matchup vs. Giants and Brandin Cooks returns**\
 `Comparing Cooper Rush and Dak Prescott, injury updates and picking the winner in the Cowboys-Giants matchup.`\
 https://nytimes.com/athletic/5954586/2024/11/28/cowboys-today-predictions-giants-cooper-rush/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/28/world/europe/russia-missile-attack-ukraine-energy
 **'This much adversity early stinks': Wizards already have reached an inflection point**\
 `Washington has lost 13 consecutive games. Can its players emerge with their spirit intact? `\
 https://nytimes.com/athletic/5954533/2024/11/28/washington-wizards-losing-streak/
-
-**Best division since realignment? Putting the NFC North's dominance in context**\
-`The Lions, Vikings, Packers and Bears have combined to beat non-divisional foes by 9.5 points per game, easily the best since 2002.`\
-https://nytimes.com/athletic/5952981/2024/11/28/lions-bears-packers-vikings-nfc-north/
 

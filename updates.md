@@ -1,3 +1,7 @@
+**Marks: After winning Maui, Auburn and Johni Broome look like college basketball's best**\
+`Broome had 21 points, 16 rebounds, six assists, four blocks, two 3-pointers and one steal in the Maui title game domination of Memphis.`\
+https://nytimes.com/athletic/5954782/2024/11/28/auburn-basketball-johni-broome-maui-invitational/
+
 **Cowboys Today: Predictions for Thanksgiving matchup vs. Giants and Brandin Cooks returns**\
 `Comparing Cooper Rush and Dak Prescott, injury updates and picking the winner in the Cowboys-Giants matchup.`\
 https://nytimes.com/athletic/5954586/2024/11/28/cowboys-today-predictions-giants-cooper-rush/
