@@ -1,3 +1,11 @@
+**USMNT's Pepi on 'most important' goal of career in PSV's 'crazy' UCL win**\
+`Ricardo Pepi said his stoppage time winner against Shakhtar Donetsk was the most important goal of his career after he and USMNT team-mate Malik Tillman played instrumental roles in PSV&#8217;s &#8220;crazy&#8221; 3-2 comeback victory in the Champions League.`\
+https://nytimes.com/athletic/5955478/2024/11/28/usmnt-tillman-pepi-psv-champions-league/
+
+**Two South Asian Giants, Once Friendly, Are Now at Bitter Odds**\
+`India and Bangladesh have traded angry accusations about Bangladesh’s Hindu minority.`\
+https://nytimes.com/2024/11/28/world/asia/india-bangladesh-relations-hindu.html
+
 **Veggie Recipe Matchmaker, Part 1**\
 `“Together we have the dietary restrictions from hell.” “I said I’d bring a ‘tasty salad’ but I have zero ideas for making that happen.” Let’s get it.`\
 https://nytimes.com/2024/11/28/dining/reader-questions.html
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/5955295/2024/11/28/champions-league-projections-mat
 **Ukraine Faces Power Outages as Russia Targets Energy Infrastructure**\
 `Russian President Vladimir V. Putin said the attacks were a response to Ukraine’s hitting Russian territory with U.S.-made long-range missiles last week.`\
 https://nytimes.com/video/world/europe/100000009850797/ukraine-power-outages-russian-strikes.html
-
-**Lando Norris dismisses Verstappen's McLaren title claim: 'He should start doing comedy'**\
-`Verstappen has claimed he would have won the 2024 F1 championship earlier had he been driving a McLaren. `\
-https://nytimes.com/athletic/5955378/2024/11/28/lando-norris-max-verstappen-f1-championship-claim-mclaren/
-
-**What a Deadly Offensive in Syria Means for a Stalled Civil War**\
-`Rebel groups have launched the largest offensive in years against government forces in the northwest.`\
-https://nytimes.com/2024/11/28/world/middleeast/syria-civil-war.html
 
