@@ -1,3 +1,7 @@
+**Mark Zuckerberg Meets With Trump at Mar-a-Lago**\
+`The president-elect has long been critical of Mr. Zuckerberg’s social media platforms, saying they censor conservative viewpoints.`\
+https://nytimes.com/2024/11/27/us/politics/mark-zuckerberg-trump-meeting.html
+
 **What's Really Keeping You Up at Night?**\
 `Experts explain the science behind a good night’s rest and the factors that can influence sleep hygiene.`\
 https://nytimes.com/paidpost/bedsure/whats-really-keeping-you-up-at-night.html
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/5954103/2024/11/27/auburn-memphis-maui-invitational
 `By Tim Balk`\
 https://nytimes.com/live/2024/11/27/us/trump-news/workers-union-criticizes-elon-musk-for-posts-identifying-federal-employees
 
-**Mexico’s President Cites ‘Excellent’ Talk With Trump Amid Tariff Tensions**\
-`President Claudia Sheinbaum of Mexico said she and the president-elect talked about Mexico’s efforts to curb fentanyl consumption and keep migrants from reaching the border.`\
+**Mexico’s President and Trump Describe a Positive Talk but Differ on Migration Details**\
+`The discussion between President Claudia Sheinbaum of Mexico and the president-elect came after Mr. Trump threatened tariffs unless Mexican authorities stopped migrants and drugs from coming across the border.`\
 https://nytimes.com/2024/11/27/us/politics/mexico-trump-tariff-tensions.html
 
 **How Will Trump’s Covid Contrarians Handle the Next Pandemic?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/us/politics/trump-health.html
 **Jim Abrahams, 80, Dies; One of Trio Behind ‘Airplane!’ and ‘Naked Gun’**\
 `Along with David and Jerry Zucker, he revolutionized film comedy with a style of straight-faced, fast-paced parody.`\
 https://nytimes.com/2024/11/27/movies/jim-abrahams-dead.html
-
-**Giants legend Brandon Crawford announces retirement**\
-`A three-time All-Star and four-time Gold Glove winner, Crawford left his mark on the Bay Area during 13 seasons.`\
-https://nytimes.com/athletic/5954065/2024/11/27/giants-brandon-crawford-retirement/
 
