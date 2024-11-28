@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5954907/2024/11/28/college-football-questions-mailb
 `Giving thanks: Here's to the people, teams, moments and milestones that have made it another special year for MLB.`\
 https://nytimes.com/athletic/5954797/2024/11/28/mlb-thanksgiving-baseball-giving-thanks-2024/
 
-**Missing Steph Curry, Warriors go cold in crunch time and lose to Thunder**\
+**Missing Steph Curry, Warriors go cold in crunchtime and lose to Thunder**\
 `Golden State has now lost three in a row, and Curry is dealing with pain in both knees. Others failed to step up late on Wednesday night.`\
 https://nytimes.com/athletic/5954335/2024/11/28/warriors-lose-thunder-steph-curry/
 

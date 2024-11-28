@@ -1,3 +1,7 @@
+**Missing Steph Curry, Warriors go cold in crunchtime and lose to Thunder**\
+`Golden State has now lost three in a row, and Curry is dealing with pain in both knees. Others failed to step up late on Wednesday night.`\
+https://nytimes.com/athletic/5954335/2024/11/28/warriors-lose-thunder-steph-curry/
+
 **Anthony Edwards says individual agendas are behind Timberwolves' slow start**\
 `This has not been a team that plays together, pushing in the same direction. "We got to start doing what the coaches say," Edwards said.`\
 https://nytimes.com/athletic/5954565/2024/11/28/anthony-edwards-timberwolves-slow-start/
