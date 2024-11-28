@@ -1,3 +1,7 @@
+**Judge John Hodgman on Putrid Flowers**\
+`Can you prevent your spouse from growing a plant that (occasionally) smells like a rotting corpse?`\
+https://nytimes.com/2024/11/28/magazine/judge-john-hodgman-on-putrid-flowers.html
+
 **Karl Marx Explained the 19th Century. Wolfgang Streeck Is Explaining the 21st.**\
 `He has a convincing theory of what has gone wrong with globalization.`\
 https://nytimes.com/2024/11/28/opinion/wolfgang-streeck-populism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5953445/2024/11/28/leeds-united-squad-luton/
 **Tomas Soucek: West Ham legend?**\
 `Tomas Soucek explained his new celebration — he has made a huge impact at West Ham`\
 https://nytimes.com/athletic/5949197/2024/11/28/tomas-soucek-west-ham-legend/
-
-**Forget Wrexham and Birmingham - Wycombe are the team to beat in League One**\
-`New ownership, data-led recruitment and a bright young manager have turned the club into the most in-form side in the country`\
-https://nytimes.com/athletic/5952178/2024/11/28/wycombe-wrexham-birmingham-league-one/
 
