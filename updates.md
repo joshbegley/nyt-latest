@@ -1,3 +1,7 @@
+**Who Might Be the Next Chair of the Democratic Party?**\
+`The current leader of the Democratic National Committee, Jaime Harrison, won’t seek re-election. His successor will need to revive a distressed party.`\
+https://nytimes.com/2024/11/28/us/politics/chair-democratic-national-committee.html
+
 **Long-serving F1 steward, F2 race director depart**\
 `LUSAIL, Qatar — Two more high-profile figures have been dismissed from Formula One’s governing body, the FIA, before this weekend’s Qatar Grand Prix.`\
 https://nytimes.com/athletic/5955017/2024/11/28/fia-exits-f1-steward-departs/

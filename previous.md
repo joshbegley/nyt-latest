@@ -1,3 +1,7 @@
+**Who Might Be the Next Chair of the Democratic Party?**\
+`The current leader of the Democratic National Committee, Jaime Harrison, won’t seek re-election. His successor will need to revive a distressed party.`\
+https://nytimes.com/2024/11/28/us/politics/chair-democratic-national-committee.html
+
 **Long-serving F1 steward, F2 race director depart**\
 `LUSAIL, Qatar — Two more high-profile figures have been dismissed from Formula One’s governing body, the FIA, before this weekend’s Qatar Grand Prix.`\
 https://nytimes.com/athletic/5955017/2024/11/28/fia-exits-f1-steward-departs/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5955009/2024/11/28/chelsea-reece-james-hamstring-in
 **West Ham hoping for Fullkrug return in 'next two or three matches'**\
 `West Ham United forward Niclas Fullkrug is nearing a return to full fitness having been sidelined since September with an Achilles tendon injury.`\
 https://nytimes.com/athletic/5954973/2024/11/28/niclas-fullkrug-west-ham-injury-update/
-
-**How playing without a center made the Thunder even more dangerous**\
-`No team and no defense can shapeshift like the Thunder. Their identity is that they play however the situation dictates they should.`\
-https://nytimes.com/athletic/5953873/2024/11/28/nba-thunder-defense-jalen-williams/
 
