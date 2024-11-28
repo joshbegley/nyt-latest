@@ -1,3 +1,11 @@
+**Kendrick Lamar’s Never-Ending Battles**\
+`The Los Angeles rapper returns with his (surprise) sixth album, itching to escape his Drake drama, but still benefiting from it.`\
+https://nytimes.com/2024/11/28/arts/music/popcast-kendrick-lamar.html
+
+**Iga Swiatek receives one-month doping ban after positive test in summer**\
+`Swiatek appealed a provisional suspension issued in September, meaning that it remained confidential.`\
+https://nytimes.com/athletic/5954986/2024/11/28/iga-swiatek-doping-ban-tmz/
+
 **Maps Pinpoint Where Democrats Lost Ground Since 2020 in 11 Big Cities**\
 `A Times analysis shows where Kamala Harris got fewer votes compared with Joe Biden and which voting blocs drove each city’s red shift.`\
 https://nytimes.com/interactive/2024/11/28/us/elections/precinct-city-maps.html
