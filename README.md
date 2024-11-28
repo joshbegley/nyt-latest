@@ -1,3 +1,7 @@
+**Ukraine Faces Power Outages as Russia Targets Energy Infrastructure**\
+`Russian President Vladimir V. Putin said the attacks were a response to Ukraine’s hitting Russian territory with U.S.-made long-range missiles last week.`\
+https://nytimes.com/video/world/europe/100000009850797/ukraine-power-outages-russian-strikes.html
+
 **Lando Norris dismisses Verstappen's McLaren title claim: 'He should start doing comedy'**\
 `Verstappen has claimed he would have won the 2024 F1 championship earlier had he been driving a McLaren. `\
 https://nytimes.com/athletic/5955378/2024/11/28/lando-norris-max-verstappen-f1-championship-claim-mclaren/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-bet
 **Nottingham Forest's Danilo returns to training following broken ankle**\
 `Danilo has returned to training with Nottingham Forest, as he continues his recovery from a broken ankle.`\
 https://nytimes.com/athletic/5955130/2024/11/28/danilo-nottingham-forest-return-injury-update/
-
-**Restoring Faith in Public Health Messaging**\
-`Responses to an essay about how health authorities could better communicate with the public. Also: Trump donors; teaching students; the Pink House; hate groups.`\
-https://nytimes.com/2024/11/28/opinion/public-health-messaging.html
 
