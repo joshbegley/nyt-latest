@@ -1,3 +1,11 @@
+**Barcelona at 125: 7% of goals scored by Messi, three papal conclaves and 132 trophies**\
+`Barcelona are 125 years old on Friday. So what are some of the most significant numbers in their history?`\
+https://nytimes.com/athletic/5927155/2024/11/28/barcelona-125th-anniversary-messi-numbers/
+
+**Books About Everyone, for Everyone**\
+`First Book’s work is an antidote to book bans. It makes diverse books more accessible to students, teachers and libraries.`\
+https://nytimes.com/2024/11/28/opinion/communities-fund-first-book.html
+
 **Taylor Swift, the future of fandom and a dilemma facing women's football**\
 `Powerful figures within the game have spoken about the opportunities for attrating new fans, but the comments have divided opinion`\
 https://nytimes.com/athletic/5952288/2024/11/28/taylor-swift-womens-football-fandom/
