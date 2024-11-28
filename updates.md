@@ -1,3 +1,11 @@
+**What a Deadly Offensive in Syria Means for a Stalled Civil War**\
+`Rebel groups have launched the largest offensive in years against government forces in the northwest.`\
+https://nytimes.com/2024/11/28/world/middleeast/syria-civil-war.html
+
+**Review: Yunchan Lim, a Piano Star at 20, Casts Light on Chopin**\
+`Performing with the New York Philharmonic and Kazuki Yamada, Lim played Chopin’s F minor Concerto with imperturbable calm and eloquence.`\
+https://nytimes.com/2024/11/28/arts/music/yunchan-lim-piano-chopin-classical-music.html
+
 **Real Madrid coach involved in road collision travelling back from Liverpool**\
 `Emergency services attended a scene in Warwickshire after the Real Madrid coach was involved in a road traffic collision while travelling back from Liverpool.`\
 https://nytimes.com/athletic/5955259/2024/11/28/real-madrid-coach-crash/

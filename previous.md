@@ -1,3 +1,11 @@
+**What a Deadly Offensive in Syria Means for a Stalled Civil War**\
+`Rebel groups have launched the largest offensive in years against government forces in the northwest.`\
+https://nytimes.com/2024/11/28/world/middleeast/syria-civil-war.html
+
+**Review: Yunchan Lim, a Piano Star at 20, Casts Light on Chopin**\
+`Performing with the New York Philharmonic and Kazuki Yamada, Lim played Chopin’s F minor Concerto with imperturbable calm and eloquence.`\
+https://nytimes.com/2024/11/28/arts/music/yunchan-lim-piano-chopin-classical-music.html
+
 **Real Madrid coach involved in road collision travelling back from Liverpool**\
 `Emergency services attended a scene in Warwickshire after the Real Madrid coach was involved in a road traffic collision while travelling back from Liverpool.`\
 https://nytimes.com/athletic/5955259/2024/11/28/real-madrid-coach-crash/
@@ -17,12 +25,4 @@ https://nytimes.com/2024/11/28/opinion/public-health-messaging.html
 **How to Cook Today**\
 `Quick-fire answers to common turkey questions, and a cranberry grilled cheese to keep you going. You’ve got this.`\
 https://nytimes.com/2024/11/28/dining/what-to-cook-the-day-before-thanksgiving.html
-
-**Schumacher leaving Mercedes, Bottas confirms talks to re-join team**\
-`Bottas previously spent four years with Mercedes from 2017 to 2021 before joining Alpha Romeo.`\
-https://nytimes.com/athletic/5955077/2024/11/28/mick-schumacher-mercedes-valtteri-bottas/
-
-**How a Women’s College Volleyball Team Became the Center of the Transgender Athlete Debate**\
-`Not since the swimmer Lia Thomas has a college athlete or team put the fiercely contested issue of transgender rights in sports under such a bright spotlight.`\
-https://nytimes.com/2024/11/28/us/trans-volleyball-san-jose-state.html
 
