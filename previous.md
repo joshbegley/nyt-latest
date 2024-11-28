@@ -1,3 +1,7 @@
+**Another stellar Filip Gustavsson performance, but Wild goalie gets lots of help: 3 takeaways vs. Sabres**\
+`In a 1-0 victory over Buffalo, the Wild improved to a league-best 10-1-3 on the road.`\
+https://nytimes.com/athletic/5954175/2024/11/27/wild-sabres-filip-gustavsson-takeaways/
+
 **Appeals Court Again Blocks U.S. From Cutting Texas Border Wire Along Rio Grande**\
 `The injunction is the second time that the U.S. Court of Appeals for the Fifth Circuit has sided with Texas in a yearlong dispute over barbed wire around the city of Eagle Pass.`\
 https://nytimes.com/2024/11/27/us/texas-border-wire-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/27/us/ohio-transgender-bathroom-law.html
 **Shohei Ohtani asks judge for baseball cards seized from Ippei Mizuhara**\
 `Mizuhara pleaded guilty in June to bank and tax fraud after stealing millions from Ohtani.`\
 https://nytimes.com/athletic/5954145/2024/11/27/shohei-ohtani-ippei-mizuhara-baseball-cards/
-
-**E.U. Vessels Surround Anchored Chinese Ship After Baltic Sea Cables Are Severed**\
-`Multiple countries are investigating and the authorities in Europe say they have not ruled out sabotage. But U.S. intelligence officials have assessed that the cables were not cut deliberately.`\
-https://nytimes.com/2024/11/27/world/europe/baltic-sea-cables-chinese-ship.html
 
