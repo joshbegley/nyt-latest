@@ -1,3 +1,7 @@
+**Dunk to return from injury against Southampton**\
+`Brighton &amp; Hove Albion captain Lewis Dunk is back in contention for Friday&#8217;s home game against Southampton.`\
+https://nytimes.com/athletic/5954650/2024/11/28/lewis-dunk-injury-brighton-southampton/
+
 **Conor Bradley and a tackle for the ages**\
 `Liverpool's victory over Real Madrid was ignited by a thumping, memorable challenge on Kylian Mbappe from their young right-back`\
 https://nytimes.com/athletic/5954096/2024/11/28/liverpool-conor-bradley-tackle-kylian-mbappe/
