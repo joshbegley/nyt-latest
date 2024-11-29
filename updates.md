@@ -1,3 +1,11 @@
+**Ole Miss' QB Dart overtakes Eli Manning's school record for passing yards**\
+`Dart is also the winningest quarterback in the school's modern history with 26 career victories.`\
+https://nytimes.com/athletic/5957547/2024/11/29/jaxson-dart-eli-manning-ole-miss-quarterback-record/
+
+**Bears go from 'HITS' to firing a coach in-season: The Matt Eberflus timeline**\
+`Eberflus had the defensive acumen, and at times connected with his players, but in the end, the coaching failures added up.`\
+https://nytimes.com/athletic/5957454/2024/11/29/bears-matt-eberflus-timeline/
+
 **Trudeau Flies to Mar-a-Lago to See Trump Amid Tariff Concerns**\
 `Prime Minister Justin Trudeau is under pressure to persuade President-elect Donald J. Trump to back down from a threat to impose a 25 percent tariff on all goods imported from Canada.`\
 https://nytimes.com/2024/11/29/world/canada/trudeau-trump-mar-a-lago-tariffs.html
