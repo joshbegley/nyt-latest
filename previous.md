@@ -1,3 +1,15 @@
+**Phallon Tullis-Joyce: From abandoning marine biology to Man Utd No 1 and USWNT selection**\
+`Phallon Tullis-Joyce has repeatedly had to bide her time but she has shown patience and persistence and is now reaping the rewards`\
+https://nytimes.com/athletic/5954680/2024/11/29/phallon-tullis-joyce-uswnt-manchester-united/
+
+**Oli McBurnie exclusive: His new start in La Liga and the heartbreak of George Baldock**\
+`The Las Palmas striker looks back at his ups, downs and lessons he's learned`\
+https://nytimes.com/athletic/5955055/2024/11/29/oli-mcburnie-interview/
+
+**Is Frank Lampard a good manager?**\
+`The opportunity at Coventry represents Lampard's best chance at a relatively normal job — it's one he needs to take`\
+https://nytimes.com/athletic/5955825/2024/11/29/is-frank-lampard-a-good-manager/
+
 **Friday Briefing**\
 `The cease-fire between Israel and Hezbollah.`\
 https://nytimes.com/2024/11/29/briefing/israel-hezbollah-ukraine.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/29/style/amaiya-davis-matthew-wynter-wedding.html
 **A Union That Was Meant to Be**\
 `The parents of Dr. Hilary Gallin and Joshua Brodie were trying to set them up for months. Little did they know, the couple had already connected.`\
 https://nytimes.com/2024/11/29/style/hilary-gallin-joshua-brodie-wedding.html
-
-**Jonathan David: The free agent summer signing Europe's elite will be eyeing**\
-`Jonathan David is available to discuss a pre-contract with clubs across Europe from January 1`\
-https://nytimes.com/athletic/5940329/2024/11/29/jonathan-david-transfer-latest-why/
-
-**Four Decades Later, a Yearbook Prediction Comes to Fruition**\
-`Andrew Gottlieb had a crush on his good friend Steuart Osha. When they reconnected years later, things finally turned romantic.`\
-https://nytimes.com/2024/11/29/style/steuart-osha-andrew-gottlieb-wedding.html
-
-**Quote of the Day: Georgia Winemakers, Long Tied to Russia, Drift Toward West**\
-`Quotation of the Day for Friday, November 29, 2024.`\
-https://nytimes.com/2024/11/28/pageoneplus/quote-of-the-day-georgia-winemakers-long-tied-to-russia-drift-toward-west.html
 
