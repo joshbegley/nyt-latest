@@ -1,3 +1,7 @@
+**Review: This ‘Importance of Being Earnest’ Is a Fabulous Romp**\
+`A new production in London, starring Ncuti Gatwa, releases Oscar Wilde’s 1895 comedy from period convention and brings it stunningly into the 21st century.`\
+https://nytimes.com/2024/11/29/theater/the-importance-of-being-earnest-ncuti-gatwa.html
+
 **Syrian Rebels Reach Outskirts of Major City of Aleppo, Raising Fears of Escalation**\
 `A war monitor and the rebels said the opposition fighters breached three neighborhoods in Aleppo. The government launched intense airstrikes on rebel territory.`\
 https://nytimes.com/2024/11/29/world/middleeast/syria-war-aleppo-rebels-government.html
