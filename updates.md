@@ -1,3 +1,23 @@
+**Can a Court’s ‘Last Resort’ Fix New York City’s Jails?**\
+`A federal judge is likely to employ a rarely used remedy to try to fix longstanding problems in the city’s jails. But it’s not foolproof.`\
+https://nytimes.com/2024/11/29/nyregion/rikers-receivership.html
+
+**Goodbye, Chain Drugstores. Hello, Golf Simulators.**\
+`New York’s retail landscape is changing. But it’s not cheese shops or butchers that are taking over those vacant neighborhood storefronts.`\
+https://nytimes.com/2024/11/29/nyregion/golf-simulators-retail-nyc.html
+
+**Will Hochul’s Political Concerns Put New York’s Climate Goals at Risk?**\
+`Gov. Kathy Hochul is contending with pressures from environmental advocates and President-elect Donald Trump as she charts a path forward.`\
+https://nytimes.com/2024/11/29/nyregion/hochul-trump-new-york-climate.html
+
+**The Great Opera Tradition Died With Puccini**\
+`A century after his death, the composer of “La Bohème,” “Tosca” and “Madama Butterfly” still dominates the repertoire like no one since.`\
+https://nytimes.com/2024/11/29/arts/music/giacomo-puccini-opera.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/29/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet 2025: Delap tracked, Man Utd striker interest, Gyokeres state of play**\
 `Welcome to a special Black Friday edition of the Transfer DealSheet — with everything you need to know about plans for transfers in 2025`\
 https://nytimes.com/athletic/5949367/2024/11/29/manchester-united-arsenal-liverpool-transfer-latest-real-madrid/

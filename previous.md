@@ -1,3 +1,23 @@
+**Can a Court’s ‘Last Resort’ Fix New York City’s Jails?**\
+`A federal judge is likely to employ a rarely used remedy to try to fix longstanding problems in the city’s jails. But it’s not foolproof.`\
+https://nytimes.com/2024/11/29/nyregion/rikers-receivership.html
+
+**Goodbye, Chain Drugstores. Hello, Golf Simulators.**\
+`New York’s retail landscape is changing. But it’s not cheese shops or butchers that are taking over those vacant neighborhood storefronts.`\
+https://nytimes.com/2024/11/29/nyregion/golf-simulators-retail-nyc.html
+
+**Will Hochul’s Political Concerns Put New York’s Climate Goals at Risk?**\
+`Gov. Kathy Hochul is contending with pressures from environmental advocates and President-elect Donald Trump as she charts a path forward.`\
+https://nytimes.com/2024/11/29/nyregion/hochul-trump-new-york-climate.html
+
+**The Great Opera Tradition Died With Puccini**\
+`A century after his death, the composer of “La Bohème,” “Tosca” and “Madama Butterfly” still dominates the repertoire like no one since.`\
+https://nytimes.com/2024/11/29/arts/music/giacomo-puccini-opera.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/29/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet 2025: Delap tracked, Man Utd striker interest, Gyokeres state of play**\
 `Welcome to a special Black Friday edition of the Transfer DealSheet — with everything you need to know about plans for transfers in 2025`\
 https://nytimes.com/athletic/5949367/2024/11/29/manchester-united-arsenal-liverpool-transfer-latest-real-madrid/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5954924/2024/11/29/arsenal-transfer-dealsheet-what-
 **Aston Villa Transfer DealSheet: What to expect in 2025**\
 `These are Aston Villa's plans for 2025 — across January and the summer windows`\
 https://nytimes.com/athletic/5946164/2024/11/29/aston-villa-transfer-dealsheet-what-to-expect-in-2025/
-
-**Tottenham Transfer DealSheet: What to expect in 2025**\
-`These are Tottenham's plans across the winter and summer transfer windows of 2025`\
-https://nytimes.com/athletic/5946739/2024/11/29/tottenham-transfer-latest-2025/
-
-**Manchester United Transfer DealSheet: What to expect in 2025**\
-`Manchester United have entered a new era but they also have financial restrictions to work around`\
-https://nytimes.com/athletic/5955730/2024/11/29/manchester-united-transfer-latest-2025/
-
-**Wolverhampton Wanderers Transfer DealSheet: What to expect in 2025**\
-`Wolves need a centre-back urgently and they also need to work out which of three stars to let go`\
-https://nytimes.com/athletic/5947006/2024/11/29/wolverhampton-wanderers-transfer-dealsheet-what-to-expect-in-2025/
-
-**Real Madrid Transfer DealSheet: What to expect in 2025**\
-`Real Madrid are struggling in Europe and second in the league but they still hold huge appeal to players`\
-https://nytimes.com/athletic/5954714/2024/11/29/real-madrid-transfer-latest-2025/
-
-**Everton Transfer DealSheet: What to expect in 2025**\
-`Everton's transfer business is up in the air as they wait for their takeover to go through`\
-https://nytimes.com/athletic/5949530/2024/11/29/everton-transfer-latest-2025/
 
