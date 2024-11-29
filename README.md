@@ -1,3 +1,11 @@
+**Cunha 'definitely not' leaving Wolves in January, says O'Neil**\
+`Wolves head coach Gary O’Neil says star forward Matheus Cunha will “definitely not” leave Wolves in the January transfer window.`\
+https://nytimes.com/athletic/5956739/2024/11/29/matheus-cunha-transfer-wolves-oneil/
+
+**British Lawmakers Vote to Legalize Assisted Dying After Emotional Debate**\
+`In a landmark decision on Friday, Parliament voted in favor of allowing assisted suicide for the terminally ill in England and Wales.`\
+https://nytimes.com/2024/11/29/world/europe/uk-assisted-dying-bill-vote.html
+
 **Alabama vs. Auburn is a rivalry of elites — in basketball, not football**\
 `These may never be “basketball schools,” but their men’s basketball programs right now are good enough to play each for a national title. `\
 https://nytimes.com/athletic/5956688/2024/11/29/alabama-auburn-iron-bowl-basketball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5953501/2024/11/29/chargers-mailbag-jim-harbaugh-su
 **Barrows: Play with an eye toward next season? The 49ers are already doing that**\
 `If the 49ers can't break out of their funk, here are three maneuvers they should consider down the home stretch.`\
 https://nytimes.com/athletic/5955942/2024/11/29/49ers-next-season-rookies/
-
-**Giants' QB situation isn't any clearer after Drew Lock's poor audition vs. Cowboys**\
-`Will Daboll turn back to Tommy DeVito once he's healthy? Or will Lock get another shot to start?`\
-https://nytimes.com/athletic/5956216/2024/11/29/drew-lock-giants-cowboys-loss-tommy-devito/
-
-**Britain’s Transport Secretary Quits After Phone Offense Revealed**\
-`In the latest setback for Prime Minister Keir Starmer, Louise Haigh resigned from the cabinet Friday after admitting she pleaded guilty to a type of fraud in 2014.`\
-https://nytimes.com/2024/11/29/world/europe/uk-transport-secretary-louise-haigh-resigns-conviction.html
 
