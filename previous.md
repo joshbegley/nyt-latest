@@ -1,3 +1,7 @@
+**Trump Disavowed Project 2025 During the Campaign. Not Anymore.**\
+`President-elect Donald J. Trump has filled his administration with people who have ties to the right-wing manifesto.`\
+https://nytimes.com/2024/11/29/us/politics/trump-disavowed-project-2025-during-the-campaign-not-anymore.html
+
 **Bears' Matt Eberflus keeps his job for now, confident he'll coach their next game**\
 `The Bears could still fire Eberflus later today or on Saturday, but will they? He said he believes he'll coach the team against the 49ers.`\
 https://nytimes.com/athletic/5956909/2024/11/29/bears-matt-eberflus-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/t-magazine/flocking-to-favorite-destinations.html
 **What to Expect in a Second Trump Term**\
 `Readers worry that he will punish enemies and rule like an autocrat. Also: A redundant efficiency department; science and policy; emotional tears.`\
 https://nytimes.com/2024/11/29/opinion/second-trump-term.html
-
-**Give Thanks for Leftovers**\
-`Turkey tikka masala, turkey tetrazzini, turkey pho, turkey congee, turkey à la king and, of course, the best Thanksgiving leftovers sandwich.`\
-https://nytimes.com/2024/11/29/dining/thanksgiving-leftovers-turkey-tetrazzini-pho-more.html
 
