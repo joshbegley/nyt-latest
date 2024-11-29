@@ -1,3 +1,11 @@
+**California Man to Reunite With Family 25 Years After He ‘Vanished With No Trace’**\
+`Marcella Nasseri saw a man who resembled her long-lost brother in the news. Fingerprint scans solved the decades-old case.`\
+https://nytimes.com/2024/11/29/us/family-member-reunited-decades-later.html
+
+**Dr. Dave Weldon, Trump’s C.D.C. Pick, Was Not on Anyone’s Radar**\
+`But over the years, the former congressman’s views have often aligned with those of his potential boss, Robert F. Kennedy Jr. — particularly on vaccine safety.`\
+https://nytimes.com/2024/11/29/health/dave-weldon-cdc.html
+
 **Fantasy football flex fliers: Take the MVS ride, gamble on Adonai Mitchell in Week 13**\
 `Scott Engel discusses who you to pick up in free agency, including Marquez Valdes-Scantling and Adonai Mitchell`\
 https://nytimes.com/athletic/5956660/2024/11/29/fantasy-football-flex-fliers-take-the-mvs-ride-gamble-on-adonai-mitchell-in-week-13/
