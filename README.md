@@ -1,3 +1,7 @@
+**You’re Hungover. Can Exercise Help?**\
+`If you overdid it last night, here’s how to know whether it’s wise to sweat through it.`\
+https://nytimes.com/2024/11/29/well/move/hangover-exercise-workout.html
+
 **Back-post Brennan: How Johnson is building his Tottenham career on a trademark goal**\
 `Ange Postecoglou has given Johnson the kind of coaching Pep Guardiola once did with Raheem Sterling, getting him into better positions`\
 https://nytimes.com/athletic/5956453/2024/11/29/back-post-brennan-how-johnson-is-building-his-tottenham-career-on-a-trademark-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954059/2024/11/29/norman-powell-exclusive-clippers
 **Protests Erupt in Georgia as It Pulls Back From Pro-Western Path**\
 `Thousands of people took to the streets after the government in the Caucasus nation said it had suspended talks on joining the European Union.`\
 https://nytimes.com/2024/11/29/world/europe/georgia-protests-eu-membership.html
-
-**Notre-Dame Shines, and World Gets a Sneak Peek, on Macron’s Televised Tour**\
-`The French president got a tour of the Paris monument one week before it is set to reopen for the first time since the 2019 fire.`\
-https://nytimes.com/2024/11/29/world/europe/notre-dame-paris-macron.html
 
