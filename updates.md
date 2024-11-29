@@ -1,3 +1,11 @@
+**Britain’s Transport Secretary Quits After Phone Offense Revealed**\
+`In the latest setback for Prime Minister Keir Starmer, Louise Haigh resigned from the cabinet Friday after admitting she pleaded guilty to a type of fraud in 2014.`\
+https://nytimes.com/2024/11/29/world/europe/uk-transport-secretary-louise-haigh-resigns-conviction.html
+
+**The Athletic FC: Who could move in January? Retelling Barca's kidnap drama; view of MLS Cup**\
+`Today in TAFC: All the possible big deals in January, the story of a Barcelona kidnap in 1981, and how Hojlund helped Amorim get first win`\
+https://nytimes.com/athletic/5956487/2024/11/29/premier-league-transfers-january-barcelona-kidnap/
+
 **How Norman Powell, with Kobe's help, is making an NBA All-Star case**\
 `At 31 and in his 10th NBA season, Powell has always believed he could do more and achieve more. He's showing it in a breakthrough campaign.`\
 https://nytimes.com/athletic/5954059/2024/11/29/norman-powell-exclusive-clippers-nba-all-star/
