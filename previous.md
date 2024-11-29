@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5957385/2024/11/29/colorado-oklahoma-state-result-s
 https://nytimes.com/2024/11/29/magazine/trump-voters-considered-traitors-ethics.html
 
 **Herdman resigns as Toronto FC head coach**\
-`John Herdman has resigned from his position as head coach of Toronto FC, the club announced Friday.`\
+`John Herdman has resigned from his position as head coach of Toronto FC, the team announced Friday.`\
 https://nytimes.com/athletic/5957430/2024/11/29/toronto-fc-coach-john-herdman/
 
 **For Matt Eberflus and Bears, the math didn't work out. What is next formula for success?**\

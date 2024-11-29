@@ -1,3 +1,7 @@
+**Herdman resigns as Toronto FC head coach**\
+`John Herdman has resigned from his position as head coach of Toronto FC, the team announced Friday.`\
+https://nytimes.com/athletic/5957430/2024/11/29/toronto-fc-coach-john-herdman/
+
 **Hunter, Colorado demolish OK State 52-0 in regular-season finale: Key takeaways**\
 `Hunter, the Heisman Trophy front-runner, scored three touchdowns and intercepted a pass.`\
 https://nytimes.com/athletic/5957385/2024/11/29/colorado-oklahoma-state-result-score-takeaways/
