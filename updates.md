@@ -1,3 +1,7 @@
+**Herdman resigns as Toronto FC head coach**\
+`John Herdman has resigned from his position as head coach of Toronto FC, the club announced Friday.`\
+https://nytimes.com/athletic/5957430/2024/11/29/toronto-fc-coach-john-herdman/
+
 **For Matt Eberflus and Bears, the math didn't work out. What is next formula for success?**\
 `The Bears made the wrong kind of history when they "relieved" Eberflus on Black Friday. But it was the right decision for this cursed team. `\
 https://nytimes.com/athletic/5957311/2024/11/29/chicago-bears-matt-eberflus-fired/

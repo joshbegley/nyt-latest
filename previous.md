@@ -1,3 +1,7 @@
+**Herdman resigns as Toronto FC head coach**\
+`John Herdman has resigned from his position as head coach of Toronto FC, the club announced Friday.`\
+https://nytimes.com/athletic/5957430/2024/11/29/toronto-fc-coach-john-herdman/
+
 **For Matt Eberflus and Bears, the math didn't work out. What is next formula for success?**\
 `The Bears made the wrong kind of history when they "relieved" Eberflus on Black Friday. But it was the right decision for this cursed team. `\
 https://nytimes.com/athletic/5957311/2024/11/29/chicago-bears-matt-eberflus-fired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957285/2024/11/29/jannik-sinner-doping-cas-wada-ap
 **Major Canadian News Outlets Sue OpenAI in New Copyright Case**\
 `A coalition of some of Canada’s biggest media companies is seeking billions of dollars in compensation for what they say is copyright infringement on their work through ChatGPT.`\
 https://nytimes.com/2024/11/29/world/canada/canada-openai-lawsuit-copyright.html
-
-**Vito Is First Pug to Win National Dog Show**\
-`The pup became a sensation when he won best in show at the competition, which was broadcast on Thanksgiving Day. One judge said the 2-year-old is “everything a pug should be.”`\
-https://nytimes.com/2024/11/29/us/vito-pug-national-dog-show.html
 
