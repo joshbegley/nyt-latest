@@ -1,3 +1,15 @@
+**Chargers mailbag: What will make this a successful season for Jim Harbaugh?**\
+`Postseason success isn't what will define Harbaugh's debut season in L.A., though the Chargers' playoff odds look good. `\
+https://nytimes.com/athletic/5953501/2024/11/29/chargers-mailbag-jim-harbaugh-success/
+
+**Barrows: Play with an eye toward next season? The 49ers are already doing that**\
+`If the 49ers can't break out of their funk, here are three maneuvers they should consider down the home stretch.`\
+https://nytimes.com/athletic/5955942/2024/11/29/49ers-next-season-rookies/
+
+**Giants' QB situation isn't any clearer after Drew Lock's poor audition vs. Cowboys**\
+`Will Daboll turn back to Tommy DeVito once he's healthy? Or will Lock get another shot to start?`\
+https://nytimes.com/athletic/5956216/2024/11/29/drew-lock-giants-cowboys-loss-tommy-devito/
+
 **Britain’s Transport Secretary Quits After Phone Offense Revealed**\
 `In the latest setback for Prime Minister Keir Starmer, Louise Haigh resigned from the cabinet Friday after admitting she pleaded guilty to a type of fraud in 2014.`\
 https://nytimes.com/2024/11/29/world/europe/uk-transport-secretary-louise-haigh-resigns-conviction.html
