@@ -1,3 +1,7 @@
+**Thanksgiving Leftovers**\
+`Make the most of your leftover food.`\
+https://nytimes.com/2024/11/29/briefing/thanksgiving-leftovers.html
+
 **Court Vision: Why UConn went 0-3 in Maui and North Carolina's potentially fatal flaw**\
 `The Maui Invitational edition leaves nothing uncovered from the three-day Feast Week event in Hawaii. `\
 https://nytimes.com/athletic/5954660/2024/11/29/court-vision-uconn-north-carolina-auburn-memphis/

@@ -1,3 +1,7 @@
+**Thanksgiving Leftovers**\
+`Make the most of your leftover food.`\
+https://nytimes.com/2024/11/29/briefing/thanksgiving-leftovers.html
+
 **Court Vision: Why UConn went 0-3 in Maui and North Carolina's potentially fatal flaw**\
 `The Maui Invitational edition leaves nothing uncovered from the three-day Feast Week event in Hawaii. `\
 https://nytimes.com/athletic/5954660/2024/11/29/court-vision-uconn-north-carolina-auburn-memphis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944604/2024/11/29/penguins-trade-tiers-2024-25/
 **Title race and tiebreaker scenarios or brain teasers? Big 12 Chaos meter**\
 `Four teams are tied for first place in the Big 12, and nine teams — more than half the league! — are still technically in contention. `\
 https://nytimes.com/athletic/5953573/2024/11/29/big-12-chaos-meter-arizona-state-tiebreaker-scenarios/
-
-**NHL Power Rankings: A new No. 1, Rangers fall from top 10 and the league's best deals**\
-`We scoured the books for this week’s rankings to find the best Black Friday deals for each team.`\
-https://nytimes.com/athletic/5955632/2024/11/29/nhl-power-rankings-hurricanes-rangers/
 
