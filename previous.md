@@ -1,3 +1,7 @@
+**Why Mexico Is Eliminating Independent Watchdog Agencies**\
+`A vote in the country’s Senate has cleared the way to abolish seven independent organizations that provided oversight on issues such as public information and price fixing.`\
+https://nytimes.com/2024/11/28/world/americas/mexico-senate-watchdog-agencies.html
+
 **'We’ll take any win we can': Banged up Lions edge Bears to earn elusive happy Thanksgiving**\
 `The Lions are now 11-1 for the first time ever.`\
 https://nytimes.com/athletic/5956018/2024/11/28/lions-bears-thanksgiving-win/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5947140/2024/11/28/nfl-week-13-fantasy-football-bet
 **Matt Eberflus explains why Bears didn't use TO at end of game vs. Lions**\
 `Chicago ran one play in the final 32 seconds — despite having one timeout left to use. `\
 https://nytimes.com/athletic/5955902/2024/11/28/bears-lions-timeout-matt-eberflus/
-
-**Peggy Caserta, Who Wrote a Tell-All About Janis Joplin, Dies at 84**\
-`Her Haight-Ashbury clothing store was ground zero for the counterculture. But she was best known for a tawdry book — which she later disavowed — published after Ms. Joplin’s death.`\
-https://nytimes.com/2024/11/28/books/peggy-caserta-dead.html
 
