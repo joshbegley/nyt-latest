@@ -1,3 +1,7 @@
+**FIFA Should Pay Workers Injured Building the Qatar World Cup, Internal Report Says**\
+`An unpublished report into the soccer governing body’s responsibility for migrant workers recommends that it should compensate those harmed.`\
+https://nytimes.com/2024/11/29/world/middleeast/qatar-world-cup-2022-fifa-migrant-workers.html
+
 **De Jong 'needs to regain confidence' - Flick**\
 `Barcelona midfielder Frenkie de Jong “needs to be managed” according to head coach Hansi Flick.`\
 https://nytimes.com/athletic/5956807/2024/11/29/barcelona-de-jong-flick/
