@@ -1,3 +1,15 @@
+**Stocks Resume Post-Election Rise**\
+`With Friday’s gains included, November was the best month in a year for the S&P 500.`\
+https://nytimes.com/2024/11/29/business/stock-market-election-trump.html
+
+**France Loses its Longtime Military Partner in Africa, Chad**\
+`The decision by Chad is another blow to what remained of France’s military influence in the troubled stretch of countries below the Sahara, where Russia’s influence has been growing.`\
+https://nytimes.com/2024/11/29/world/europe/france-chad-military-ally.html
+
+**NFL Week 13 fantasy football, betting cheat sheet: O'Connell, Pacheco active for Week 13**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5947140/2024/11/29/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
+
 **Canucks D Filip Hronek out of lineup with injury**\
 `Hronek appeared to get hurt at the end of Vancouver's game against the Pittsburgh Penguins on Wednesday.`\
 https://nytimes.com/athletic/5955605/2024/11/29/canucks-filip-hronek-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5955894/2024/11/29/matt-eberflus-fired-bears/
 **Trump Disavowed Project 2025 During the Campaign. Not Anymore.**\
 `President-elect Donald J. Trump has filled his administration with people who have ties to the right-wing manifesto.`\
 https://nytimes.com/2024/11/29/us/politics/trump-project-2025.html
-
-**Bears' Matt Eberflus keeps his job for now, confident he'll coach their next game**\
-`The Bears could still fire Eberflus later today or on Saturday, but will they? He said he believes he'll coach the team against the 49ers.`\
-https://nytimes.com/athletic/5956909/2024/11/29/bears-matt-eberflus-lions/
-
-**Texas A&M flips Michigan QB commit Hart after Underwood's switch to UM**\
-`Hart, who attends Cocoa (Fla.) High School, was the No. 6 quarterback and the No. 98 prospect in the 247Sports Composite rankings for 2026.`\
-https://nytimes.com/athletic/5956911/2024/11/29/texas-am-brady-hart-qb-recruiting-michigan/
-
-**What's next in MLB free agency? Bowden on Soto, Burnes, Adames, Santander and more**\
-`After the Blake Snell signing, what's the next domino to fall? Jim Bowden answers 25 questions about the free-agent and trade markets.`\
-https://nytimes.com/athletic/5956401/2024/11/29/mlb-free-agent-questions-soto-adames/
 
