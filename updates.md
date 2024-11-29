@@ -1,3 +1,7 @@
+**Auston Matthews, Matthew Knies set to return: Maple Leafs notebook**\
+`The Leafs captain is set to return Saturday vs. the Lightning after missing nine games with an undisclosed injury.`\
+https://nytimes.com/athletic/5957422/2024/11/29/auston-matthews-maple-leafs-injury/
+
 **Alabama A&M linebacker dies from head injury**\
 `Medrick suffered a head injury during a Magic City Classic game Oct. 26 against in-state rival Alabama State`\
 https://nytimes.com/athletic/5957443/2024/11/29/alabama-am-linebacker-dies-head-injury/
