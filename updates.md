@@ -1,3 +1,11 @@
+**Cunha 'definitely not' leaving Wolves in January, says O'Neil**\
+`Wolves head coach Gary O’Neil says star forward Matheus Cunha will “definitely not” leave Wolves in the January transfer window.`\
+https://nytimes.com/athletic/5956739/2024/11/29/matheus-cunha-transfer-wolves-oneil/
+
+**British Lawmakers Vote to Legalize Assisted Dying After Emotional Debate**\
+`In a landmark decision on Friday, Parliament voted in favor of allowing assisted suicide for the terminally ill in England and Wales.`\
+https://nytimes.com/2024/11/29/world/europe/uk-assisted-dying-bill-vote.html
+
 **Alabama vs. Auburn is a rivalry of elites — in basketball, not football**\
 `These may never be “basketball schools,” but their men’s basketball programs right now are good enough to play each for a national title. `\
 https://nytimes.com/athletic/5956688/2024/11/29/alabama-auburn-iron-bowl-basketball/
