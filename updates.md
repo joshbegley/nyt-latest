@@ -1,3 +1,7 @@
+**Protests Erupt in Georgia as It Pulls Back From Pro-Western Path**\
+`Thousands of people took to the streets after the government in the Caucasus nation said it had suspended talks on joining the European Union.`\
+https://nytimes.com/2024/11/29/world/europe/georgia-protests-eu-membership.html
+
 **Notre-Dame Shines, and World Gets a Sneak Peek, on Macron’s Televised Tour**\
 `The French president got a tour of the Paris monument one week before it is set to reopen for the first time since the 2019 fire.`\
 https://nytimes.com/2024/11/29/world/europe/notre-dame-paris-macron.html
