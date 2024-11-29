@@ -1,3 +1,7 @@
+**Cowboys run game, defense shine in 27-20 Thanksgiving home win vs. Giants: Takeaways**\
+`The Cowboys reignited their ground game, securing their fourth 100-yard rushing game of the season`\
+https://nytimes.com/athletic/5955835/2024/11/28/giants-cowboys-scores-takeaways-results/
+
 **'We'll take any win we can': Banged-up Lions edge Bears to earn elusive happy Thanksgiving**\
 `The Lions are now 11-1 for the first time ever.`\
 https://nytimes.com/athletic/5956018/2024/11/28/lions-bears-thanksgiving-win/

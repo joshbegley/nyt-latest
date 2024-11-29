@@ -1,3 +1,7 @@
+**Cowboys run game, defense shine in 27-20 Thanksgiving home win vs. Giants: Takeaways**\
+`The Cowboys reignited their ground game, securing their fourth 100-yard rushing game of the season`\
+https://nytimes.com/athletic/5955835/2024/11/28/giants-cowboys-scores-takeaways-results/
+
 **Art Collector Who Bought a $6 Million Banana Offers to Buy 100,000 More**\
 `The vendor who sold the banana only received a quarter for the fruit. Now the buyer of the conceptual work has offered his fruit stand a bigger payday.`\
 https://nytimes.com/2024/11/28/nyregion/banana-sothebys-fruit-stand.html
