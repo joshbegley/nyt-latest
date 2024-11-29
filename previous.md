@@ -1,3 +1,11 @@
+**Four Opinion Writers Visit Oz and Ask: Who’s Really ‘Wicked’?**\
+`A big-budget holiday film with a strong antifascist message? “Wicked” is not what we expected.`\
+https://nytimes.com/2024/11/29/opinion/wicked-cynthia-erivo-ariana-grande.html
+
+**My Traumatized Dog and I Had Trust Issues**\
+`We needed a steady presence in our lives. Enter Kevin.`\
+https://nytimes.com/2024/11/29/style/modern-love-stray-dog-devotion.html
+
 **Chinese Court Sentences Journalist to 7 Years in Prison for Espionage**\
 `Dong Yuyu, who has written articles critical of the Communist Party, was arrested in 2022 while having lunch with a Japanese diplomat.`\
 https://nytimes.com/2024/11/29/world/asia/china-journalist-dong-yuyu.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5954680/2024/11/29/phallon-tullis-joyce-uswnt-manch
 **Oli McBurnie exclusive: His new start in La Liga and the heartbreak of George Baldock**\
 `The Las Palmas striker looks back at his ups, downs and lessons he's learned`\
 https://nytimes.com/athletic/5955055/2024/11/29/oli-mcburnie-interview/
-
-**Is Frank Lampard a good manager?**\
-`The opportunity at Coventry represents Lampard's best chance at a relatively normal job — it's one he needs to take`\
-https://nytimes.com/athletic/5955825/2024/11/29/is-frank-lampard-a-good-manager/
-
-**Friday Briefing**\
-`The cease-fire between Israel and Hezbollah.`\
-https://nytimes.com/2024/11/29/briefing/israel-hezbollah-ukraine.html
 
