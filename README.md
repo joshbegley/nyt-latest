@@ -1,3 +1,7 @@
+**Jared Spurgeon and Marco Rossi flash offense as Wild rally from deficit: 3 takeaways vs. Blackhawks**\
+`Birthday boy Spurgeon scored two goals and Rossi added another as Minnesota rallied from a 2-0 deficit for a 3-2 victory over Chicago.`\
+https://nytimes.com/athletic/5957222/2024/11/29/wild-blackhawks-jared-spurgeon-marco-rossi/
+
 **Hunter, Colorado demolish OK State 52-0 in regular-season finale: Key takeaways**\
 `Hunter, the Heisman Trophy front-runner, scored three touchdowns and intercepted a pass.`\
 https://nytimes.com/athletic/5957385/2024/11/29/colorado-oklahoma-state-result-score-takeaways/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/5957368/2024/11/29/colts-injury-updates-patriots/
 https://nytimes.com/2024/11/29/world/africa/nigeria-boat-drownings.html
 
 **Lake-Effect Storm to Bring Several Feet of Snow to Great Lakes**\
-`Forecasters said driving would be extremely dangerous or impossible in parts of the region as the snow forced the closure of the Erie, Pa., airport on Friday.`\
+`Forecasters warned that some areas would be “paralyzed” by the lake-effect snow. Portions of western New York had already recorded 17 inches of snow by Friday afternoon.`\
 https://nytimes.com/2024/11/29/weather/lake-effect-snow-great-lakes-weather.html
 
 **Travis Hunter tracker: Potential No. 1 NFL Draft pick closes regular season in style**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957181/2024/11/29/travis-hunter-nfl-draft-2025-okl
 **Cubs promote Jacobson to assistant pitching coach after Moskos' departure**\
 `Jacobson just wrapped up his fifth season with the organization and his second as minor-league senior coordinator of pitching development.`\
 https://nytimes.com/athletic/5957321/2024/11/29/casey-jacobson-daniel-moskos-cubs-marlins-assistant-pitching-coach/
-
-**What Wisconsin's loss to Minnesota means for Luke Fickell, Badgers**\
-`What's next for Wisconsin after its fifth straight loss to end the regular season in a home defeat to Minnesota?`\
-https://nytimes.com/athletic/5957006/2024/11/29/wisconsin-football-minnesota-luke-fickell/
 
