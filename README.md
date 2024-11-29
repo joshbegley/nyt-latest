@@ -1,3 +1,7 @@
+**'We’ll take any win we can': Banged up Lions edge Bears to earn elusive happy Thanksgiving**\
+`The Lions are now 11-1 for the first time ever.`\
+https://nytimes.com/athletic/5956018/2024/11/28/lions-bears-thanksgiving-win/
+
 **Fire Matt Eberflus right now? Why it's time for Bears brass to have that tough conversation**\
 `With the Bears dropping their sixth straight game, is it time for Chicago to move on from the embattled head coach after the latest defeat?`\
 https://nytimes.com/athletic/5956024/2024/11/28/bears-matt-eberflus-job-status-decision/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/5955902/2024/11/28/bears-lions-timeout-matt-eberflu
 **Peggy Caserta, Who Wrote a Tell-All About Janis Joplin, Dies at 84**\
 `Her Haight-Ashbury clothing store was ground zero for the counterculture. But she was best known for a tawdry book — which she later disavowed — published after Ms. Joplin’s death.`\
 https://nytimes.com/2024/11/28/books/peggy-caserta-dead.html
-
-**The Briefing - Tottenham 2 Roma 2: Late Hummels equaliser denies Spurs in wildly open Europa League clash**\
-`Jack Pitt-Brooke, Jay Harris and Liam Tharme break down the key moments from Thursday's Europa League tie`\
-https://nytimes.com/athletic/5949205/2024/11/28/tottenham-roma-result-analysis/
 
