@@ -1,3 +1,11 @@
+**From 920 days away to 21 assists: How Elfrid Payton reclaimed his spot in the NBA**\
+`"He's a strong cat. I salute him," Dejounte Murray said of the veteran who filled a stat sheet.`\
+https://nytimes.com/athletic/5955859/2024/11/29/elfrid-payton-comeback-pelicans-nba/
+
+**Texas-Texas A&M tops rivalry games with Playoff stakes: Week 14’s top 10 college football games**\
+`A bitter in-state rivalry is back, plus there's the Palmetto Bowl, The Game, Farmageddon and more.`\
+https://nytimes.com/athletic/5953748/2024/11/29/college-football-schedule-week-14-top-games/
+
 **An early look at the 2025 NBA free-agent class, and why Myles Turner could rise to top**\
 `Right now, some of the highest-profile players appear unlikely to switch teams, but a few names could be difference-makers.`\
 https://nytimes.com/athletic/5935625/2024/11/29/nba-free-agency-jimmy-butler-brandon-ingram-myles-turner/
