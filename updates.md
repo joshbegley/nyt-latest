@@ -1,3 +1,19 @@
+**Colts rule out WR Josh Downs, 2 starting offensive linemen**\
+`“Just comes down to what the coaches and the trainers think (is) best,” Downs said of being ruled out.`\
+https://nytimes.com/athletic/5957368/2024/11/29/colts-injury-updates-patriots/
+
+**Dozens Killed and Over 100 Missing in Nigeria After Boat Capsizes**\
+`Rescuers were searching for survivors after the vessel, taking passengers to a food market, capsized along the River Niger, officials said.`\
+https://nytimes.com/2024/11/29/world/africa/nigeria-boat-drownings.html
+
+**Lake-Effect Storm to Bring Several Feet of Snow to Great Lakes**\
+`Forecasters said driving would be extremely dangerous or impossible in parts of the region as the snow forced the closure of the Erie, Pa., airport on Friday.`\
+https://nytimes.com/2024/11/29/weather/lake-effect-snow-great-lakes-weather.html
+
+**Travis Hunter tracker: Potential No. 1 draft pick closes regular season in style**\
+`Friday afternoon may have been Travis Hunter's last opportunity to impress Heisman voters and NFL scouts. He didn't disappoint.`\
+https://nytimes.com/athletic/5957181/2024/11/29/travis-hunter-nfl-draft-2025-oklahoma-state/
+
 **Cubs promote Jacobson to assistant pitching coach after Moskos' departure**\
 `Jacobson just wrapped up his fifth season with the organization and his second as minor-league senior coordinator of pitching development.`\
 https://nytimes.com/athletic/5957321/2024/11/29/casey-jacobson-daniel-moskos-cubs-marlins-assistant-pitching-coach/
