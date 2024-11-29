@@ -1,3 +1,7 @@
+**Hayes says USWNT don't have time to talk politics ahead of England friendly**\
+`United States head coach Emma Hayes says her side does not have time to talk politics as the former Chelsea boss returns to England.`\
+https://nytimes.com/athletic/5956752/2024/11/29/emma-hayes-uswnt-politics/
+
 **Barcelona 125: Lionel Messi speaks about his 'special club' but is yet to return**\
 `Barcelona's brightest star did an interview to mark the club's 125th anniversary but declined an invite to today's celebratory gala`\
 https://nytimes.com/athletic/5949405/2024/11/29/lionel-messi-barcelona-125-history/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/world/middleeast/syria-war-aleppo-rebels-governme
 **Why the secrecy around Iga Swiatek's doping case is bad for tennis**\
 `Swiatek said she couldn't play over the fall owing to 'personal matters'. That didn't really explain what was going on`\
 https://nytimes.com/athletic/5956276/2024/11/29/iga-swiatek-tennis-doping-ban/
-
-**NFL Week 13 fantasy football, betting cheat sheet: O'Connell to start vs. Chiefs**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5947140/2024/11/29/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
 
