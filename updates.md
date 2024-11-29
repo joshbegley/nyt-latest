@@ -1,3 +1,7 @@
+**Notre-Dame Shines, and World Gets a Sneak Peek, on Macron’s Televised Tour**\
+`The French president got a tour of the Paris monument one week before it is set to reopen for the first time since the 2019 fire.`\
+https://nytimes.com/2024/11/29/world/europe/notre-dame-paris-macron.html
+
 **Ex-Mets GM speaks about 'inappropriate relationship' for first time**\
 `The Mets fired Porter within nine hours of an ESPN report that revealed he had sent inappropriate text messages to a female journalist.`\
 https://nytimes.com/athletic/5955717/2024/11/29/mets-jared-porter-inappropriate-messages-comments/
