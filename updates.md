@@ -1,3 +1,7 @@
+**Britain’s Transport Secretary Quits After Phone Offense Revealed**\
+`In the latest setback for Prime Minister Keir Starmer, Louise Haigh resigned from the cabinet Friday after admitting she pleaded guilty to a type of fraud in 2014.`\
+https://nytimes.com/2024/11/29/world/europe/uk-transport-secretary-louise-haigh-resigns-conviction.html
+
 **Hard Fork’s 100 Most Iconic Technologies**\
 `“I just love imagining all of the angry emails we’re going to get from people who are like, ‘Why did you put the fulcrum on this list?’”`\
 https://nytimes.com/2024/11/29/podcasts/hardfork-iconic-100-technologies.html
