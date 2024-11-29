@@ -1,3 +1,7 @@
+**Bears fire coach Matt Eberflus amid 4-8 season**\
+`Eberflus is the Bears' fourth coach to be fired in the past 11 seasons.`\
+https://nytimes.com/athletic/5955894/2024/11/29/matt-eberflus-fired-bears/
+
 **Trump Disavowed Project 2025 During the Campaign. Not Anymore.**\
 `President-elect Donald J. Trump has filled his administration with people who have ties to the right-wing manifesto.`\
 https://nytimes.com/2024/11/29/us/politics/trump-project-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949405/2024/11/29/lionel-messi-barcelona-125-histo
 **Our Favorite Travel Destinations in 2024**\
 `From France’s Cap Ferret to Japan’s Kagoshima, T looks back at some of this year’s most enticing getaways.`\
 https://nytimes.com/2024/11/29/t-magazine/flocking-to-favorite-destinations.html
-
-**What to Expect in a Second Trump Term**\
-`Readers worry that he will punish enemies and rule like an autocrat. Also: A redundant efficiency department; science and policy; emotional tears.`\
-https://nytimes.com/2024/11/29/opinion/second-trump-term.html
 

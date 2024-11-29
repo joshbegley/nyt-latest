@@ -1,3 +1,7 @@
+**Bears fire coach Matt Eberflus amid 4-8 season**\
+`Eberflus is the Bears' fourth coach to be fired in the past 11 seasons.`\
+https://nytimes.com/athletic/5955894/2024/11/29/matt-eberflus-fired-bears/
+
 **Trump Disavowed Project 2025 During the Campaign. Not Anymore.**\
 `President-elect Donald J. Trump has filled his administration with people who have ties to the right-wing manifesto.`\
 https://nytimes.com/2024/11/29/us/politics/trump-project-2025.html
