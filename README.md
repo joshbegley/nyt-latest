@@ -1,3 +1,7 @@
+**Why soccers fans in Brazil watched game on a screen despite being sat behind the goal**\
+`Soccer fans in Brazil watched the Serie A match between Palmeiras and Botafogo on a big screen despite being sat in the stadium directly behind one of the goals after their view was obstructed by staging for a music concert.`\
+https://nytimes.com/athletic/5956351/2024/11/29/palmeiras-botafogo-screen-allianz-parque/
+
 **Can a Court’s ‘Last Resort’ Fix New York City’s Jails?**\
 `A federal judge is likely to employ a rarely used remedy to try to fix longstanding problems in the city’s jails. But it’s not foolproof.`\
 https://nytimes.com/2024/11/29/nyregion/rikers-receivership.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949134/2024/11/29/chelsea-transfer-dealsheet-what-
 **Arsenal Transfer DealSheet: What to expect in 2025**\
 `Renewed interest in Benjamin Sesko? Farewell to Gabriel Jesus? This is what we know so far about Arsenal's transfer plans for 2025`\
 https://nytimes.com/athletic/5954924/2024/11/29/arsenal-transfer-dealsheet-what-to-expect-in-2025/
-
-**Aston Villa Transfer DealSheet: What to expect in 2025**\
-`These are Aston Villa's plans for 2025 — across January and the summer windows`\
-https://nytimes.com/athletic/5946164/2024/11/29/aston-villa-transfer-dealsheet-what-to-expect-in-2025/
 
