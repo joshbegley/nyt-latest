@@ -1,3 +1,11 @@
+**California Man to Reunite With Family 25 Years After He ‘Vanished With No Trace’**\
+`Marcella Nasseri saw a man who resembled her long-lost brother in the news. Fingerprint scans solved the decades-old case.`\
+https://nytimes.com/2024/11/29/us/family-member-reunited-decades-later.html
+
+**Dr. Dave Weldon, Trump’s C.D.C. Pick, Was Not on Anyone’s Radar**\
+`But over the years, the former congressman’s views have often aligned with those of his potential boss, Robert F. Kennedy Jr. — particularly on vaccine safety.`\
+https://nytimes.com/2024/11/29/health/dave-weldon-cdc.html
+
 **Fantasy football flex fliers: Take the MVS ride, gamble on Adonai Mitchell in Week 13**\
 `Scott Engel discusses who you to pick up in free agency, including Marquez Valdes-Scantling and Adonai Mitchell`\
 https://nytimes.com/athletic/5956660/2024/11/29/fantasy-football-flex-fliers-take-the-mvs-ride-gamble-on-adonai-mitchell-in-week-13/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/29/well/move/hangover-exercise-workout.html
 **Back-post Brennan: How Johnson is building his Tottenham career on a trademark goal**\
 `Ange Postecoglou has given Johnson the kind of coaching Pep Guardiola once did with Raheem Sterling, getting him into better positions`\
 https://nytimes.com/athletic/5956453/2024/11/29/back-post-brennan-how-johnson-is-building-his-tottenham-career-on-a-trademark-goal/
-
-**Chiefs' mounting injuries becoming an obstacle on the road to a three-peat**\
-`Even with their 10-1 record, the Chiefs have used 61 players. In 17 games last season, the Chiefs used just 65 players.`\
-https://nytimes.com/athletic/5951101/2024/11/29/chiefs-injuries-raiders-black-friday/
-
-**Chargers mailbag: What will make this a successful season for Jim Harbaugh?**\
-`Postseason success isn't what will define Harbaugh's debut season in L.A., though the Chargers' playoff odds look good. `\
-https://nytimes.com/athletic/5953501/2024/11/29/chargers-mailbag-jim-harbaugh-success/
 
