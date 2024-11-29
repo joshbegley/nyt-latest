@@ -1,3 +1,7 @@
+**Fantasy football flex fliers: Take the MVS ride, gamble on Adonai Mitchell in Week 13**\
+`Scott Engel discusses who you to pick up in free agency, including Marquez Valdes-Scantling and Adonai Mitchell`\
+https://nytimes.com/athletic/5956660/2024/11/29/fantasy-football-flex-fliers-take-the-mvs-ride-gamble-on-adonai-mitchell-in-week-13/
+
 **Cunha 'definitely not' leaving Wolves in January, says O'Neil**\
 `Wolves head coach Gary O’Neil says star forward Matheus Cunha will “definitely not” leave Wolves in the January transfer window.`\
 https://nytimes.com/athletic/5956739/2024/11/29/matheus-cunha-transfer-wolves-oneil/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5951101/2024/11/29/chiefs-injuries-raiders-black-fr
 **Chargers mailbag: What will make this a successful season for Jim Harbaugh?**\
 `Postseason success isn't what will define Harbaugh's debut season in L.A., though the Chargers' playoff odds look good. `\
 https://nytimes.com/athletic/5953501/2024/11/29/chargers-mailbag-jim-harbaugh-success/
-
-**Barrows: Play with an eye toward next season? The 49ers are already doing that**\
-`If the 49ers can't break out of their funk, here are three maneuvers they should consider down the home stretch.`\
-https://nytimes.com/athletic/5955942/2024/11/29/49ers-next-season-rookies/
 
