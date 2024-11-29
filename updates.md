@@ -1,3 +1,7 @@
+**You’re Hungover. Can Exercise Help?**\
+`If you overdid it last night, here’s how to know whether it’s wise to sweat through it.`\
+https://nytimes.com/2024/11/29/well/move/hangover-exercise-workout.html
+
 **Chiefs' mounting injuries becoming an obstacle on the road to a three-peat**\
 `Even with their 10-1 record, the Chiefs have used 61 players. In 17 games last season, the Chiefs used just 65 players.`\
 https://nytimes.com/athletic/5951101/2024/11/29/chiefs-injuries-raiders-black-friday/
