@@ -1,3 +1,7 @@
+**Auston Matthews, Matthew Knies set to return: Maple Leafs notebook**\
+`The Leafs captain is set to return Saturday vs. the Lightning after missing nine games with an undisclosed injury.`\
+https://nytimes.com/athletic/5957422/2024/11/29/auston-matthews-maple-leafs-injury/
+
 **Alabama A&M linebacker dies from head injury**\
 `Medrick suffered a head injury during a Magic City Classic game Oct. 26 against in-state rival Alabama State`\
 https://nytimes.com/athletic/5957443/2024/11/29/alabama-am-linebacker-dies-head-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957311/2024/11/29/chicago-bears-matt-eberflus-fire
 **Colts rule out WR Josh Downs, 2 starting offensive linemen**\
 `“Just comes down to what the coaches and the trainers think (is) best,” Downs said of being ruled out.`\
 https://nytimes.com/athletic/5957368/2024/11/29/colts-injury-updates-patriots/
-
-**Dozens Killed and Over 100 Missing in Nigeria After Boat Capsizes**\
-`Rescuers were searching for survivors after the vessel, taking passengers to a food market, capsized along the River Niger, officials said.`\
-https://nytimes.com/2024/11/29/world/africa/nigeria-boat-drownings.html
 
