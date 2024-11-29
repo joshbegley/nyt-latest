@@ -1,3 +1,7 @@
+**Syrian Rebels Reach Outskirts of Major City of Aleppo, Raising Fears of Escalation**\
+`A war monitor and the rebels said the opposition fighters breached three neighborhoods in Aleppo. The government launched intense airstrikes on rebel territory.`\
+https://nytimes.com/2024/11/29/world/middleeast/syria-war-aleppo-rebels-government.html
+
 **Hayes says USWNT don't have time to talk politics ahead of England friendly**\
 `United States head coach Emma Hayes says her side does not have time to talk politics as the former Chelsea boss returns to England.`\
 https://nytimes.com/athletic/5956752/2024/11/29/emma-hayes-uswnt-politics/

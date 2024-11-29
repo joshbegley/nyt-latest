@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5954009/2024/11/29/premier-league-predicted-line-up
 `Chicago ran one play in the final 32 seconds — despite having one timeout left to use. `\
 https://nytimes.com/athletic/5955902/2024/11/29/bears-lions-timeout-matt-eberflus/
 
-**Syrian Rebels Reach Outskirts of Aleppo, in Biggest Advance in Years, Monitor Says**\
+**Syrian Rebels Reach Outskirts of Major City of Aleppo, Raising Fears of Escalation**\
 `A war monitor and the rebels said the opposition fighters breached three neighborhoods in Aleppo. The government launched intense airstrikes on rebel territory.`\
 https://nytimes.com/2024/11/29/world/middleeast/syria-war-aleppo-rebels-government.html
 
