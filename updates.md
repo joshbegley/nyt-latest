@@ -1,3 +1,7 @@
+**Trudeau Flies to Mar-a-Lago to See Trump Amid Tariff Concerns**\
+`Prime Minister Justin Trudeau is under pressure to persuade President-elect Donald J. Trump to back down from a threat to impose a 25 percent tariff on all goods imported from Canada.`\
+https://nytimes.com/2024/11/29/world/canada/trudeau-trump-mar-a-lago-tariffs.html
+
 **How Garland, Hughes and Lankinen drove a gutsy Canucks win: 3 takeaways**\
 `Vancouver excelled on special teams, showed guts and leaned on brilliant individual performances to beat Buffalo.`\
 https://nytimes.com/athletic/5957403/2024/11/29/canucks-sabres-recap-hughes-garland/
