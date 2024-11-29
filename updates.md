@@ -1,3 +1,7 @@
+**What Wisconsin's loss to Minnesota means for Luke Fickell, Badgers**\
+`What's next for Wisconsin after its fifth straight loss to end the regular season in a home defeat to Minnesota?`\
+https://nytimes.com/athletic/5957006/2024/11/29/wisconsin-football-minnesota-luke-fickell/
+
 **Sinner doping appeal not set to be heard before Australian Open**\
 `Jannik Sinner is set to be able to defend his Australian Open title with the appeal against his doping sanction not set to be heard by the Court of Arbitration for Sport (CAS) before the tournament begins in January.`\
 https://nytimes.com/athletic/5957285/2024/11/29/jannik-sinner-doping-cas-wada-appeal/
