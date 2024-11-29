@@ -1,3 +1,7 @@
+**How Garland, Hughes and Lankinen drove a gutsy Canucks win: 3 takeaways**\
+`Vancouver excelled on special teams, showed guts and leaned on brilliant individual performances to beat Buffalo.`\
+https://nytimes.com/athletic/5957403/2024/11/29/canucks-sabres-recap-hughes-garland/
+
 **Bayern's Davies banned from driving for a month after DUI**\
 `Alphonso Davies, the Bayern Munich defender and Canadian national team captain, has been banned from driving for one month after being found driving under the influence of alcohol.`\
 https://nytimes.com/athletic/5957096/2024/11/29/alphonso-davies-drink-driving-bayern-munich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957552/2024/11/29/dodgers-tommy-edman-extension/
 **J. Stanley Pottinger, 84, Dies; Official Figured Out Identity of ‘Deep Throat’**\
 `A former Nixon official (and later a novelist), he led an investigation in which a shadowy Watergate figure squirmed when asked if he had been an anonymous whistle blower.`\
 https://nytimes.com/2024/11/29/us/politics/j-stanley-pottinger-dead.html
-
-**Martin 'frustrated' by VAR decision to disallow Southampton goal**\
-`Russell Martin was left &#8220;frustrated&#8221; with the decision to disallow what could have been a winning goal for Southampton against Brighton &amp; Hove Albion.`\
-https://nytimes.com/athletic/5957499/2024/11/29/southampton-goal-disallowed-why-russell-martin/
 
