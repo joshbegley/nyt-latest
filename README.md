@@ -1,3 +1,11 @@
+**Arteta: Arsenal to 'dig in' to recent injury record**\
+`Mikel Arteta says Arsenal will “dig in” to their recent injury record to see how they can improve moving forward.`\
+https://nytimes.com/athletic/5956423/2024/11/29/mikel-arteta-arsenal-to-dig-in-to-recent-injury-record/
+
+**New Target Emerges in Russia’s Attacks on Ukraine’s Grid: Nuclear Facilities**\
+`Russia has increasingly hit critical substations linked to nuclear power plants in an effort to disconnect them. The assaults risk a disaster, experts said.`\
+https://nytimes.com/2024/11/29/world/europe/russia-ukraine-electric-grid-nuclear-power.html
+
 **Romero 'unlikely' to return for Tottenham against Fulham**\
 `Tottenham Hotspur are “unlikely” to have Cristian Romero available for Sunday’s Premier League home game against Fulham.`\
 https://nytimes.com/athletic/5956434/2024/11/29/cristian-romero-injury-tottenham-fulham/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/29/well/readers-offbeat-holiday-traditions.html
 **Looking for Quality Indie Cinema? Try Ovid.**\
 `The streaming service is a great place for independent films off the beaten path.`\
 https://nytimes.com/2024/11/29/movies/looking-for-quality-indie-cinema-try-ovid.html
-
-**The New York Times News Quiz, Nov. 29, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/11/29/briefing/trump-israel-lebanon-thanksgiving-news-quiz.html
-
-**‘Stick Season’ Gave This Vermont General Store Pop Music Fame. Now It Needs a Proprietor.**\
-`The hit singer Noah Kahan grew up frequenting Coburns’ General Store and has called it “the heart” of his hometown. His mother is helping lead an effort to save it.`\
-https://nytimes.com/2024/11/29/us/vermont-general-store-noah-kahan.html
 
