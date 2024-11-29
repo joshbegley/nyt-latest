@@ -1,3 +1,7 @@
+**Jaguars QB Trevor Lawrence expected to play vs. Texans**\
+`Lawrence was sidelined with a left shoulder injury and has not played since Week 9.`\
+https://nytimes.com/athletic/5956979/2024/11/29/jaguars-trevor-lawrence-injury-update-texans/
+
 **Who could be the Bears' next head coach? Here are 15 potential candidates**\
 `The Bears are searching for their fifth head coach since 2012. Will they go with a veteran like Bill Belichick or someone like Ben Johnson?`\
 https://nytimes.com/athletic/5956030/2024/11/29/bears-head-coach-candidates-list/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954633/2024/11/29/ibrahima-konate-injury-liverpool
 **Review: This ‘Importance of Being Earnest’ Is a Fabulous Romp**\
 `A new production in London, starring Ncuti Gatwa, releases Oscar Wilde’s 1895 comedy from period convention and brings it stunningly into the 21st century.`\
 https://nytimes.com/2024/11/29/theater/the-importance-of-being-earnest-ncuti-gatwa.html
-
-**Greenberg: Bears GM Ryan Poles should fire Matt Eberflus for his own sake after latest debacle**\
-`You can’t come back from this embarrassment. You just can't. With a little more than a month left, the Bears need to salvage some dignity.`\
-https://nytimes.com/athletic/5956200/2024/11/29/bears-lions-matt-eberflus-ryan-poles/
 
