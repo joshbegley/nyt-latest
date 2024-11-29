@@ -1,40 +1,40 @@
-**Thanksgiving Leftovers**\
-`Make the most of your leftover food.`\
-https://nytimes.com/2024/11/29/briefing/thanksgiving-leftovers.html
+**Lowetide: What's the collective impact of Oilers' mass asset exits over a decade?**\
+`The Oilers are a team with a farm system that is low in quality and quantity at the moment.`\
+https://nytimes.com/athletic/5955042/2024/11/29/oilers-assets-chiarelli-holland-bowman/
 
-**Court Vision: Why UConn went 0-3 in Maui and North Carolina's potentially fatal flaw**\
-`The Maui Invitational edition leaves nothing uncovered from the three-day Feast Week event in Hawaii. `\
-https://nytimes.com/athletic/5954660/2024/11/29/court-vision-uconn-north-carolina-auburn-memphis/
+**The Contrarian: That famous Bobby Orr photo is bad, and other fake arguments**\
+`A brand new batch of statements sent in by readers about the NHL that they believe to be obviously true. We argue them anyway.`\
+https://nytimes.com/athletic/5955238/2024/11/29/nhl-bobby-orr-maple-leafs-penguins/
 
-**From 920 days away to 21 assists: How Elfrid Payton reclaimed his spot in the NBA**\
-`"He's a strong cat. I salute him," Dejounte Murray said of the veteran who filled a stat sheet.`\
-https://nytimes.com/athletic/5955859/2024/11/29/elfrid-payton-comeback-pelicans-nba/
+**Row Z: Ed Sheeran, the Stockley Park fire alarm and important Arrival Wear Partner news**\
+`Tim Spiers takes a look at the sillier side of football this week`\
+https://nytimes.com/athletic/5956377/2024/11/29/row-z-manchester-united-tickets-ed-sheeran/
 
-**Texas-Texas A&M tops rivalry games with Playoff stakes: Week 14’s top 10 college football games**\
-`A bitter in-state rivalry is back, plus there's the Palmetto Bowl, The Game, Farmageddon and more.`\
-https://nytimes.com/athletic/5953748/2024/11/29/college-football-schedule-week-14-top-games/
+**Hard Fork’s 100 Most Iconic Technologies**\
+`“I just love imagining all of the angry emails we’re going to get from people who are like, ‘Why did you put the fulcrum on this list?’”`\
+https://nytimes.com/2024/11/29/podcasts/hardfork-iconic-100-technologies.html
 
-**An early look at the 2025 NBA free-agent class, and why Myles Turner could rise to top**\
-`Right now, some of the highest-profile players appear unlikely to switch teams, but a few names could be difference-makers.`\
-https://nytimes.com/athletic/5935625/2024/11/29/nba-free-agency-jimmy-butler-brandon-ingram-myles-turner/
+**A Bird Flu Pandemic Would Be One of the Most Foreseeable Catastrophes in History**\
+`It’s not too late for President Biden to give the U.S. a life-changing gift.`\
+https://nytimes.com/2024/11/29/opinion/bird-flu-pandemic.html
 
-**Commanders mailbag: Marshon Lattimore returns to practice field. Now what?**\
-`What does Lattimore's potential Washington debut mean for the CB rotation? Plus, which players with expiring deals should return in 2025?`\
-https://nytimes.com/athletic/5950629/2024/11/29/commanders-mailbag-marshon-lattimore/
+**Republican and Democratic Former Senate Counsels Agree: F.B.I. Checks on Trump Nominees Are a Must**\
+`With fewer and fewer checks on presidential power, we need rigorous congressional consideration of the incoming president’s team.`\
+https://nytimes.com/2024/11/29/opinion/trump-background-senate-nominations-fbi.html
 
-**Stay or Go? From Aaron Rodgers to Anders Carlson, vote on which Jets should return in 2025**\
-`Breaking down who on this roster should stick around for next season.`\
-https://nytimes.com/athletic/5946400/2024/11/29/new-york-jets-2025-roster-projection-aaron-rodgers/
+**How to Keep Going Amid the Chaos**\
+`When in despair, try tragic optimism, wise hope and wise action.`\
+https://nytimes.com/2024/11/29/opinion/tragic-optimism.html
 
-**During Texas–Texas A&M impasse, message board warriors kept the rivalry alive**\
-`"The rivalry was just too big to go away," said the managing editor of an A&M fan site. "People had to push their anger somewhere."`\
-https://nytimes.com/athletic/5954302/2024/11/29/texas-texas-am-rivalry-message-boards/
+**The Beauty I’ve Found Amid My Dad’s Alzheimer’s**\
+`When Dad first started forgetting things, I thought I’d lost him. I didn’t imagine I’d have more of him than I did before.`\
+https://nytimes.com/2024/11/29/opinion/alzheimers-elder-care.html
 
-**Penguins trade tiers: Players ranked by likeliness to be dealt**\
-`Let's take our bi-annual look at the Penguins most likely to be shipped out of town.`\
-https://nytimes.com/athletic/5944604/2024/11/29/penguins-trade-tiers-2024-25/
+**Supporting Local News, and Doctors Taking a Risk**\
+`With Trump’s return, both journalists and abortion pill providers need help.`\
+https://nytimes.com/2024/11/29/opinion/charity-holiday-gift-local-news-doctors.html
 
-**Title race and tiebreaker scenarios or brain teasers? Big 12 Chaos meter**\
-`Four teams are tied for first place in the Big 12, and nine teams — more than half the league! — are still technically in contention. `\
-https://nytimes.com/athletic/5953573/2024/11/29/big-12-chaos-meter-arizona-state-tiebreaker-scenarios/
+**Jerry Jeudy is heating up for Browns, but Broncos were right to change WR picture**\
+`The development of the receiving corps that helped replace Jeudy is one reason the Broncos have taken a step forward on offense.`\
+https://nytimes.com/athletic/5954916/2024/11/29/jerry-jeudy-browns-broncos-receivers/
 
