@@ -1,3 +1,7 @@
+**Vito Is First Pug to Win National Dog Show**\
+`The pup became a sensation when he won best in show at the competition, which was broadcast on Thanksgiving Day. One judge said the 2-year-old is “everything a pug should be.”`\
+https://nytimes.com/2024/11/29/us/vito-pug-national-dog-show.html
+
 **Lions sign LB Kwon Alexander after Malcolm Rodriguez tears ACL**\
 `Rodriguez will miss the remainder of the 2024 season and will be the fourth Lions linebacker placed on injured reserve.`\
 https://nytimes.com/athletic/5957008/2024/11/29/lions-sign-kwon-alexander-malcolm-rodriguez-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5947140/2024/11/29/nfl-week-13-fantasy-football-bet
 **Canucks D Filip Hronek out of lineup with injury**\
 `Hronek appeared to get hurt at the end of Vancouver's game against the Pittsburgh Penguins on Wednesday.`\
 https://nytimes.com/athletic/5955605/2024/11/29/canucks-filip-hronek-injury/
-
-**Cowboys Today: Curious sequence, injury updates, chicken nuggets**\
-`The Cowboys hope to finally have DaRon Bland and Trevon Diggs on the field together and a curious sequence of play calls in fourth quarter.`\
-https://nytimes.com/athletic/5957023/2024/11/29/cowboys-beat-giants-thanksgiving-td-celebration/
 
