@@ -1,3 +1,7 @@
+**What Wisconsin's loss to Minnesota means for Luke Fickell, Badgers**\
+`What's next for Wisconsin after its fifth straight loss to end the regular season in a home defeat to Minnesota?`\
+https://nytimes.com/athletic/5957006/2024/11/29/wisconsin-football-minnesota-luke-fickell/
+
 **Sinner doping appeal not set to be heard before Australian Open**\
 `Jannik Sinner is set to be able to defend his Australian Open title with the appeal against his doping sanction not set to be heard by the Court of Arbitration for Sport (CAS) before the tournament begins in January.`\
 https://nytimes.com/athletic/5957285/2024/11/29/jannik-sinner-doping-cas-wada-appeal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/nyregion/alice-hudson-dead.html
 **Stocks Resume Post-Election Rise**\
 `With Friday’s gains included, November was the best month in a year for the S&P 500.`\
 https://nytimes.com/2024/11/29/business/stock-market-election-trump.html
-
-**France Loses its Longtime Military Partner in Africa, Chad**\
-`The decision by Chad is another blow to what remained of France’s military influence in the troubled stretch of countries below the Sahara, where Russia’s influence has been growing.`\
-https://nytimes.com/2024/11/29/world/europe/france-chad-military-ally.html
 
