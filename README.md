@@ -1,3 +1,7 @@
+**Israel Warns Residents of Towns on Both Sides of Lebanon Border to Stay Away**\
+`The cease-fire agreement between Israel and Hezbollah that took effect this week does not say when people will be able to return to towns and villages in Lebanon’s far south.`\
+https://nytimes.com/2024/11/29/world/middleeast/israel-lebanon-ceasefire-hezbollah.html
+
 **Arteta: Arsenal to 'dig in' to recent injury record**\
 `Mikel Arteta says Arsenal will “dig in” to their recent injury record to see how they can improve moving forward.`\
 https://nytimes.com/athletic/5956423/2024/11/29/mikel-arteta-arsenal-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/world/europe/israel-lebanon-iran-gaza.html
 **We Asked for Your Offbeat Holiday Traditions. You Delivered.**\
 `Families with holiday rituals are more likely to gather. So here’s to “Ribsgiving,” stinky gifts and fried oysters for Christmas breakfast.`\
 https://nytimes.com/2024/11/29/well/readers-offbeat-holiday-traditions.html
-
-**Looking for Quality Indie Cinema? Try Ovid.**\
-`The streaming service is a great place for independent films off the beaten path.`\
-https://nytimes.com/2024/11/29/movies/looking-for-quality-indie-cinema-try-ovid.html
 
