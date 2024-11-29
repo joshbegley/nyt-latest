@@ -1,3 +1,7 @@
+**What will it take for Blackhawks to score more? Bedard with Hall? Nazar?**\
+`The Blackhawks have desperate need to inject a bit more offense into their team and they need it fast.`\
+https://nytimes.com/athletic/5957495/2024/11/29/blackhawks-wild-stats-bedard-hall-nazar/
+
 **Ole Miss' QB Dart overtakes Eli Manning's school record for passing yards**\
 `Dart is also the winningest quarterback in the school's modern history with 26 career victories.`\
 https://nytimes.com/athletic/5957547/2024/11/29/jaxson-dart-eli-manning-ole-miss-quarterback-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957454/2024/11/29/bears-matt-eberflus-timeline/
 **The Evening: Holiday Shopping Got Off to a Cautious Start**\
 `Plus, a look inside a revived Notre Dame.`\
 https://nytimes.com/2024/11/29/briefing/black-friday-trump-project-2025-britain-notre-dame.html
-
-**With Discounts on Offer, Shoppers Seem to Bite**\
-`Early data on online spending this week shows consumers are being drawn to discounts. A clearer picture of Black Friday sales, including in-store spending, will emerge in the days ahead.`\
-https://nytimes.com/2024/11/29/business/black-friday-holiday-shopping.html
 
