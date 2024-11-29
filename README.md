@@ -1,3 +1,23 @@
+**Bayern's Davies banned from driving for a month after DUI**\
+`Alphonso Davies, the Bayern Munich defender and Canadian national team captain, has been banned from driving for one month after being found driving under the influence of alcohol.`\
+https://nytimes.com/athletic/5957096/2024/11/29/alphonso-davies-drink-driving-bayern-munich/
+
+**Buffalo bracing for feet of snow ahead of 'SNF' showdown vs. 49ers**\
+`The Bills put out a public call for snow shovelers with heavy lake effect snowfall in the forecast leading up to kickoff.`\
+https://nytimes.com/athletic/5957402/2024/11/29/bills-49ers-snow-forecast-highmark-stadium/
+
+**In just over a week, the Rangers have fallen apart. What's next?**\
+`From off-ice turmoil to on-ice disinterest, things have gone off the rails for the Rangers in a matter of only eight days.`\
+https://nytimes.com/athletic/5957400/2024/11/29/new-york-rangers-trouba-kreider/
+
+**49ers' QB Purdy questionable vs. Bills; Bosa out**\
+`Purdy is officially listed as questionable for the game, though coach Kyle Shanahan said the plan is for him to start on Sunday.`\
+https://nytimes.com/athletic/5957517/2024/11/29/49ers-purdy-bosa-williams-status-bills/
+
+**Bears go from 'HITS' to firing a coach in-season: The Matt Eberflus timeline**\
+`Matt Eberflus went 14-32 as Chicago Bears head coach.`\
+https://nytimes.com/athletic/5957454/2024/11/29/bears-matt-eberflus-timeline/
+
 **The Evening: Holiday Shopping Got Off to a Cautious Start**\
 `Plus, a look inside a revived Notre Dame.`\
 https://nytimes.com/2024/11/29/briefing/black-friday-trump-project-2025-britain-notre-dame.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/11/29/us/politics/j-stanley-pottinger-dead.html
 **Martin 'frustrated' by VAR decision to disallow Southampton goal**\
 `Russell Martin was left &#8220;frustrated&#8221; with the decision to disallow what could have been a winning goal for Southampton against Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/5957499/2024/11/29/southampton-goal-disallowed-why-russell-martin/
-
-**Auston Matthews, Matthew Knies set to return: Maple Leafs notebook**\
-`The Leafs captain is set to return Saturday vs. the Lightning after missing nine games with an undisclosed injury.`\
-https://nytimes.com/athletic/5957422/2024/11/29/auston-matthews-maple-leafs-injury/
-
-**Alabama A&M linebacker dies from head injury**\
-`Medrick suffered a head injury during a Magic City Classic game Oct. 26 against in-state rival Alabama State`\
-https://nytimes.com/athletic/5957443/2024/11/29/alabama-am-linebacker-dies-head-injury/
-
-**Syrian Rebels Reach Aleppo in Big Advance**\
-`Rebels reached the major city of Aleppo on Friday, according to the fighters and a war monitor, raising fears that Syria’s long-running civil war was reigniting with an intensity not seen in years.`\
-https://nytimes.com/video/world/middleeast/100000009852244/syrian-rebels-aleppo.html
-
-**Earl Holliman, Rugged Screen Presence, Dies at 96**\
-`While never a star, the Golden Globe-winning actor was a familiar face, with roles in “Giant,” “Forbidden Planet” and the 1970s series “Police Woman.”`\
-https://nytimes.com/2024/11/29/movies/earl-holliman-dead.html
-
-**Jared Spurgeon and Marco Rossi flash offense as Wild rally from deficit: 3 takeaways vs. Blackhawks**\
-`Birthday boy Spurgeon scored two goals and Rossi added another as Minnesota rallied from a 2-0 deficit for a 3-2 victory over Chicago.`\
-https://nytimes.com/athletic/5957222/2024/11/29/wild-blackhawks-jared-spurgeon-marco-rossi/
 
