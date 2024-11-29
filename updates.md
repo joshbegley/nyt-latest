@@ -1,3 +1,7 @@
+**How China Became the World’s Largest Car Exporter**\
+`Tariffs from the United States and other countries are unlikely to stop China’s auto export dominance.`\
+https://nytimes.com/interactive/2024/11/29/business/china-cars-sales-exports.html
+
 **Four Opinion Writers Visit Oz and Ask: Who’s Really ‘Wicked’?**\
 `A big-budget holiday film with a strong antifascist message? “Wicked” is not what we expected.`\
 https://nytimes.com/2024/11/29/opinion/wicked-cynthia-erivo-ariana-grande.html
