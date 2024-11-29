@@ -1,3 +1,11 @@
+**Justice Dept. Girds for a Test of Its Independence**\
+`President-elect Donald Trump’s plans to install loyalists have left officials fearful that he intends to carry out his threats of retribution but hopeful that rule-of-law norms can hold.`\
+https://nytimes.com/2024/11/29/us/politics/justice-department-independence-trump.html
+
+**Audi sells stake in F1 team to Qatar sovereign wealth fund**\
+`LUSAIL, Qatar — Audi has sold a stake in its Formula One team to Qatar’s sovereign wealth fund ahead of the German manufacturer’s entry to the sport in 2026.`\
+https://nytimes.com/athletic/5956798/2024/11/29/audi-formula-one-stake-qatar/
+
 **What we're hearing on Igor Shesterkin's contract, Rangers trade targets and more**\
 `The fallout of Chris Drury's memo to other NHL GMs continues to play out as the Rangers take on the Flyers on Black Friday.`\
 https://nytimes.com/athletic/5956450/2024/11/29/rangers-nhl-shesterkin-trade-trouba/

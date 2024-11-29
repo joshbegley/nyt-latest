@@ -1,3 +1,7 @@
+**De Jong 'needs to regain confidence' - Flick**\
+`Barcelona midfielder Frenkie de Jong “needs to be managed” according to head coach Hansi Flick.`\
+https://nytimes.com/athletic/5956807/2024/11/29/barcelona-de-jong-flick/
+
 **Justice Dept. Girds for a Test of Its Independence**\
 `President-elect Donald Trump’s plans to install loyalists have left officials fearful that he intends to carry out his threats of retribution but hopeful that rule-of-law norms can hold.`\
 https://nytimes.com/2024/11/29/us/politics/justice-department-independence-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5956739/2024/11/29/matheus-cunha-transfer-wolves-on
 **British Lawmakers Vote to Legalize Assisted Dying After Emotional Debate**\
 `In a landmark decision on Friday, Parliament voted in favor of allowing assisted suicide for the terminally ill in England and Wales.`\
 https://nytimes.com/2024/11/29/world/europe/uk-assisted-dying-bill-vote.html
-
-**Alabama vs. Auburn is a rivalry of elites — in basketball, not football**\
-`These may never be “basketball schools,” but their men’s basketball programs right now are good enough to play each for a national title. `\
-https://nytimes.com/athletic/5956688/2024/11/29/alabama-auburn-iron-bowl-basketball/
 
