@@ -1,5 +1,9 @@
 **Trump Disavowed Project 2025 During the Campaign. Not Anymore.**\
 `President-elect Donald J. Trump has filled his administration with people who have ties to the right-wing manifesto.`\
+https://nytimes.com/2024/11/29/us/politics/trump-project-2025.html
+
+**Trump Disavowed Project 2025 During the Campaign. Not Anymore.**\
+`President-elect Donald J. Trump has filled his administration with people who have ties to the right-wing manifesto.`\
 https://nytimes.com/2024/11/29/us/politics/trump-disavowed-project-2025-during-the-campaign-not-anymore.html
 
 **Bears' Matt Eberflus keeps his job for now, confident he'll coach their next game**\
