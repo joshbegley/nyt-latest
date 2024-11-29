@@ -1,40 +1,40 @@
-**Margo Martindale Pours It On in ‘The Sticky’**\
-`The esteemed character actress has spent decades enlivening films and series in just a few scenes or episodes. In this new Amazon heist comedy, she is first on the call sheet.`\
-https://nytimes.com/2024/11/29/arts/television/margo-martindale-the-sticky.html
+**'Sky is the limit' for DeMarvion Overshown, whose pick six was just what the Cowboys needed**\
+`"I told y'all from the beginning he was going to be a dude,” Micah Parsons said of Overshown after the Cowboys' victory.`\
+https://nytimes.com/athletic/5956222/2024/11/29/cowboys-demarvion-overshown-interception-touchdown-giants/
 
-**Transcendent (and Occasionally Filthy) New Romance Novels**\
-`Our columnist on some recent favorites.`\
-https://nytimes.com/2024/11/29/books/review/new-romance-books.html
+**Michigan-Ohio State breakdown: Keys to the game, players to watch, predictions**\
+`There's far more on the line for Ohio State, but motivation is never an issue for either side in this iconic rivalry.`\
+https://nytimes.com/athletic/5952713/2024/11/29/ohio-state-michigan-preview-predictions/
 
-**The Heirs of a Despised Draft Dodger Want His Wright Brothers Plane Back**\
-`The Franklin Institute has said a wealthy scion, long vilified for refusing to serve during World War I, gave them a treasured Wright-built plane. His family is challenging that account.`\
-https://nytimes.com/2024/11/29/arts/the-heirs-of-a-despised-draft-dodger-want-his-wright-brothers-plane-back.html
+**Three keys and a prediction for Notre Dame's regular-season finale at USC**\
+`The Irish will be tested by a USC team that has held a fourth-quarter lead in all five of its losses this season.`\
+https://nytimes.com/athletic/5953375/2024/11/29/notre-dame-usc-prediction-preview-playoff/
 
-**The Price of Being Cool? A Quarter-Billion Dollars.**\
-`The WSA building, a 31-story New York office tower with mysterious financing, has become an improbable hub for artists, designers and influencers.`\
-https://nytimes.com/2024/11/29/style/wsa-building.html
+**After a Cease-Fire in Lebanon, Gaza and Iran’s Nuclear Ambitions Await Trump**\
+`A broader peace in the Middle East will be difficult to achieve, and Iran’s threat to Israel looms over any diplomatic effort.`\
+https://nytimes.com/2024/11/29/world/europe/after-a-cease-fire-in-lebanon-gaza-and-irans-nuclear-ambitions-await-trump.html
 
-**How Online Shoppers Are Trying to Foil ‘Porch Pirates’**\
-`Some people race to grab their packages before thieves can nab them. Others move to buildings with dedicated mailrooms.`\
-https://nytimes.com/2024/11/29/realestate/package-theft-strategies.html
+**We Asked for Your Offbeat Holiday Traditions. You Delivered.**\
+`Families with holiday rituals are more likely to gather. So here’s to “Ribsgiving,” stinky gifts and fried oysters for Christmas breakfast.`\
+https://nytimes.com/2024/11/29/well/readers-offbeat-holiday-traditions.html
 
-**An Apocalyptic Novel Throws Stones at the Glass House of ‘King Lear’**\
-`Julia Armfield’s “Private Rites” is a contemporary reimagining of the Shakespearean tragedy, set in a flooded London.`\
-https://nytimes.com/2024/11/29/books/review/private-rites-julia-armfield.html
+**Looking for Quality Indie Cinema? Try Ovid.**\
+`The streaming service is a great place for independent films off the beaten path.`\
+https://nytimes.com/2024/11/29/movies/looking-for-quality-indie-cinema-try-ovid.html
 
-**Ms. Rachel’s Improbable Journey From Toddler Whisperer to Holiday Toy Story**\
-`Rachel Accurso might be this era’s Mr. Rogers, if he were on YouTube, TikTok and Instagram. Toy companies and publishers all want a piece of the action.`\
-https://nytimes.com/2024/11/29/business/ms-rachel-youtube-holiday-toys.html
+**The New York Times News Quiz, Nov. 29, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/11/29/briefing/trump-israel-lebanon-thanksgiving-news-quiz.html
 
-**Trying to Come Up With a Gift? Pay Attention.**\
-`According to Jalil Johnson, an online style influencer, people often provide clues to the kind of presents they would like to receive.`\
-https://nytimes.com/2024/11/29/fashion/gifts-jalil-johnson.html
+**‘Stick Season’ Gave This Vermont General Store Pop Music Fame. Now It Needs a Proprietor.**\
+`The hit singer Noah Kahan grew up frequenting Coburns’ General Store and has called it “the heart” of his hometown. His mother is helping lead an effort to save it.`\
+https://nytimes.com/2024/11/29/us/vermont-general-store-noah-kahan.html
 
-**Dreams of Being a K-Pop Star? A Seoul Studio Wants to Help.**\
-`One of King Studio’s recording packages even includes a music video.`\
-https://nytimes.com/2024/11/29/fashion/k-pop-recording-sessions-seoul.html
+**Life After Death: America’s Cemeteries Are Rewilding**\
+`More burial sites are forgoing pristine lawns for drought resistant plants and wildflowers that help wildlife. Efforts picked up in the pandemic.`\
+https://nytimes.com/2024/11/29/climate/life-after-death-americas-cemeteries-are-rewilding.html
 
-**6 Winemakers Offer Some Gift Ideas**\
-`Here are several bottles, produced in France, New Zealand and beyond, that they would love to give or receive.`\
-https://nytimes.com/2024/11/29/fashion/6-winemakers-gift-ideas.html
+**Mark Duplass Reprises a Killer Role in ‘The Creep Tapes’**\
+`The murderer with the unnerving smile from the “Creep” movies is back, this time in a found-footage-style series on Shudder. Keep the camera rolling.`\
+https://nytimes.com/2024/11/29/arts/television/mark-duplass-the-creep-tapes-shudder.html
 
