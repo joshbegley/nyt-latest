@@ -1,3 +1,7 @@
+**The Transfer DealSheet 2025: Delap tracked, Man Utd striker interest, Gyokeres state of play**\
+`Welcome to a special Black Friday edition of the Transfer DealSheet — with everything you need to know about plans for transfers in 2025`\
+https://nytimes.com/athletic/5949367/2024/11/29/manchester-united-arsenal-liverpool-transfer-latest-real-madrid/
+
 **Newcastle Transfer DealSheet: What to expect in 2025**\
 `A possible revival of interest in Marc Guehi, as well as a new goalkeeper and right-winger, are among the things to watch out for`\
 https://nytimes.com/athletic/5949398/2024/11/29/newcastle-transfer-dealsheet-what-to-expect-in-2025/
