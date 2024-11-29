@@ -1,3 +1,7 @@
+**Bears' Matt Eberflus keeps his job for now, confident he'll coach their next game**\
+`The Bears could still fire Eberflus later today or on Saturday, but will they? He said he believes he'll coach the team against the 49ers.`\
+https://nytimes.com/athletic/5956909/2024/11/29/bears-matt-eberflus-lions/
+
 **Texas A&M flips Michigan QB commit Hart after Underwood's switch to UM**\
 `Hart, who attends Cocoa (Fla.) High School, was the No. 6 quarterback and the No. 98 prospect in the 247Sports Composite rankings for 2026.`\
 https://nytimes.com/athletic/5956911/2024/11/29/texas-am-brady-hart-qb-recruiting-michigan/
@@ -5,10 +9,6 @@ https://nytimes.com/athletic/5956911/2024/11/29/texas-am-brady-hart-qb-recruitin
 **What's next in MLB free agency? Bowden on Soto, Burnes, Adames, Santander and more**\
 `After the Blake Snell signing, what's the next domino to fall? Jim Bowden answers 25 questions about the free-agent and trade markets.`\
 https://nytimes.com/athletic/5956401/2024/11/29/mlb-free-agent-questions-soto-adames/
-
-**Six USWNT players nominated for The Best FIFA Football Awards 2024**\
-`Lindsey Horan and Trinity Rodman are among the contingent, while head coach Emma Hayes is also up for an award.`\
-https://nytimes.com/athletic/5956917/2024/11/29/uswnt-the-best-fifa-awards-nominees/
 
 **Liverpool's Konate set for spell on sidelines with injury**\
 `Liverpool defender Ibrahima Konate is set for a spell on the sidelines after picking up an injury.`\
