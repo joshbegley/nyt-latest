@@ -1,3 +1,7 @@
+**Major Canadian News Outlets Sue OpenAI in New Copyright Case**\
+`A coalition of some of Canada’s biggest media companies is seeking billions of dollars in compensation for what they say is copyright infringement on their work through ChatGPT.`\
+https://nytimes.com/2024/11/29/world/canada/canada-openai-lawsuit-copyright.html
+
 **Vito Is First Pug to Win National Dog Show**\
 `The pup became a sensation when he won best in show at the competition, which was broadcast on Thanksgiving Day. One judge said the 2-year-old is “everything a pug should be.”`\
 https://nytimes.com/2024/11/29/us/vito-pug-national-dog-show.html
