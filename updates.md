@@ -1,3 +1,7 @@
+**Jaguars QB Trevor Lawrence expected to play vs. Texans**\
+`Lawrence was sidelined with a left shoulder injury and has not played since Week 9.`\
+https://nytimes.com/athletic/5956979/2024/11/29/jaguars-trevor-lawrence-injury-update-texans/
+
 **Who could be the Bears' next head coach? Here are 15 potential candidates**\
 `The Bears are searching for their fifth head coach since 2012. Will they go with a veteran like Bill Belichick or someone like Ben Johnson?`\
 https://nytimes.com/athletic/5956030/2024/11/29/bears-head-coach-candidates-list/
