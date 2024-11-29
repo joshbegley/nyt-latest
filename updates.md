@@ -1,3 +1,7 @@
+**Cubs promote Jacobson to assistant pitching coach after Moskos' departure**\
+`Jacobson just wrapped up his fifth season with the organization and his second as minor-league senior coordinator of pitching development.`\
+https://nytimes.com/athletic/5957321/2024/11/29/casey-jacobson-daniel-moskos-cubs-marlins-assistant-pitching-coach/
+
 **What Wisconsin's loss to Minnesota means for Luke Fickell, Badgers**\
 `What's next for Wisconsin after its fifth straight loss to end the regular season in a home defeat to Minnesota?`\
 https://nytimes.com/athletic/5957006/2024/11/29/wisconsin-football-minnesota-luke-fickell/
