@@ -1,3 +1,7 @@
+**Matt Eberflus explains why Bears didn't use TO at end of game vs. Lions**\
+`Chicago ran one play in the final 32 seconds — despite having one timeout left to use. `\
+https://nytimes.com/athletic/5955902/2024/11/29/bears-lions-timeout-matt-eberflus/
+
 **Audi sells stake in F1 team to Qatar sovereign wealth fund**\
 `The deal marks the Qatar sovereign fund’s first significant investment in F1, and is a deepening of roots for the Gulf region in the sport.`\
 https://nytimes.com/athletic/5956798/2024/11/29/audi-formula-one-stake-qatar/

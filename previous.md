@@ -1,3 +1,7 @@
+**Matt Eberflus explains why Bears didn't use TO at end of game vs. Lions**\
+`Chicago ran one play in the final 32 seconds — despite having one timeout left to use. `\
+https://nytimes.com/athletic/5955902/2024/11/29/bears-lions-timeout-matt-eberflus/
+
 **Syrian Rebels Reach Outskirts of Aleppo, in Biggest Advance in Years, Monitor Says**\
 `A war monitor and the rebels said the opposition fighters breached three neighborhoods in Aleppo. The government launched intense airstrikes on rebel territory.`\
 https://nytimes.com/2024/11/29/world/middleeast/syria-war-aleppo-rebels-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5956450/2024/11/29/rangers-nhl-shesterkin-trade-tro
 **16-year-old writes apology letter for racially abusing Vinicius Junior**\
 `A 16-year-old who racially abused Vinicius Junior has written a letter of apology to the Real Madrid forward.`\
 https://nytimes.com/athletic/5956773/2024/11/29/vinicius-junior-racism-letter-minor/
-
-**California Man to Reunite With Family 25 Years After He ‘Vanished With No Trace’**\
-`Marcella Nasseri saw a man who resembled her long-lost brother in the news. Fingerprint scans solved the decades-old case.`\
-https://nytimes.com/2024/11/29/us/family-member-reunited-decades-later.html
 
