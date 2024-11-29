@@ -1,3 +1,27 @@
+**Barcelona 125: Lionel Messi speaks about his 'special club' but is yet to return**\
+`Barcelona's brightest star did an interview to mark the club's 125th anniversary but declined an invite to today's celebratory gala`\
+https://nytimes.com/athletic/5949405/2024/11/29/lionel-messi-barcelona-125-history/
+
+**Our Favorite Travel Destinations in 2024**\
+`From France’s Cap Ferret to Japan’s Kagoshima, T looks back at some of this year’s most enticing getaways.`\
+https://nytimes.com/2024/11/29/t-magazine/flocking-to-favorite-destinations.html
+
+**What to Expect in a Second Trump Term**\
+`Readers worry that he will punish enemies and rule like an autocrat. Also: A redundant efficiency department; science and policy; emotional tears.`\
+https://nytimes.com/2024/11/29/opinion/second-trump-term.html
+
+**Give Thanks for Leftovers**\
+`Turkey tikka masala, turkey tetrazzini, turkey pho, turkey congee, turkey à la king and, of course, the best Thanksgiving leftovers sandwich.`\
+https://nytimes.com/2024/11/29/dining/thanksgiving-leftovers-turkey-tetrazzini-pho-more.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include a martial arts face-off, a hijacked plane and killer zombies.`\
+https://nytimes.com/2024/11/29/movies/five-action-movies-to-stream-now.html
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 13?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/5954009/2024/11/29/premier-league-predicted-line-ups-gw-13/
+
 **Matt Eberflus explains why Bears didn't use TO at end of game vs. Lions**\
 `Chicago ran one play in the final 32 seconds — despite having one timeout left to use. `\
 https://nytimes.com/athletic/5955902/2024/11/29/bears-lions-timeout-matt-eberflus/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5956276/2024/11/29/iga-swiatek-tennis-doping-ban/
 **NFL Week 13 fantasy football, betting cheat sheet: O'Connell to start vs. Chiefs**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5947140/2024/11/29/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
-
-**FIFA Should Pay Workers Injured Building the Qatar World Cup, Internal Report Says**\
-`An unpublished report into the soccer governing body’s responsibility for migrant workers recommends that it should compensate those harmed.`\
-https://nytimes.com/2024/11/29/world/middleeast/qatar-world-cup-2022-fifa-migrant-workers.html
-
-**De Jong 'needs to regain confidence' - Flick**\
-`Barcelona midfielder Frenkie de Jong “needs to be managed” according to head coach Hansi Flick.`\
-https://nytimes.com/athletic/5956807/2024/11/29/barcelona-de-jong-flick/
-
-**Justice Dept. Girds for a Test of Its Independence**\
-`President-elect Donald Trump’s plans to install loyalists have left officials fearful that he intends to carry out his threats of retribution but hopeful that rule-of-law norms can hold.`\
-https://nytimes.com/2024/11/29/us/politics/justice-department-independence-trump.html
-
-**Audi sells stake in F1 team to Qatar sovereign wealth fund**\
-`The deal marks the Qatar sovereign fund’s first significant investment in F1, and is a deepening of roots for the Gulf region in the sport.`\
-https://nytimes.com/athletic/5956798/2024/11/29/audi-formula-one-stake-qatar/
-
-**What we're hearing on Igor Shesterkin's contract, Rangers trade targets and more**\
-`The fallout of Chris Drury's memo to other NHL GMs continues to play out as the Rangers take on the Flyers on Black Friday.`\
-https://nytimes.com/athletic/5956450/2024/11/29/rangers-nhl-shesterkin-trade-trouba/
-
-**16-year-old writes apology letter for racially abusing Vinicius Junior**\
-`A 16-year-old who racially abused Vinicius Junior has written a letter of apology to the Real Madrid forward.`\
-https://nytimes.com/athletic/5956773/2024/11/29/vinicius-junior-racism-letter-minor/
 
