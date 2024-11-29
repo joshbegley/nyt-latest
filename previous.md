@@ -1,3 +1,7 @@
+**Lions sign LB Kwon Alexander after Malcolm Rodriguez tears ACL**\
+`Rodriguez will miss the remainder of the 2024 season and will be the fourth Lions linebacker placed on injured reserve.`\
+https://nytimes.com/athletic/5957008/2024/11/29/lions-sign-kwon-alexander-malcolm-rodriguez-injury/
+
 **Leicester fans: What do you think about Ruud van Nistelrooy's appointment?**\
 `The club have replaced Steve Cooper with the former PSV manager and we want to hear your views`\
 https://nytimes.com/athletic/5956993/2024/11/29/leicester-appoint-ruud-van-nistelrooy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5955605/2024/11/29/canucks-filip-hronek-injury/
 **Cowboys Today: Curious sequence, injury updates, chicken nuggets**\
 `The Cowboys hope to finally have DaRon Bland and Trevon Diggs on the field together and a curious sequence of play calls in fourth quarter.`\
 https://nytimes.com/athletic/5957023/2024/11/29/cowboys-beat-giants-thanksgiving-td-celebration/
-
-**Jaguars QB Trevor Lawrence expected to play vs. Texans**\
-`Lawrence was sidelined with a left shoulder injury and has not played since Week 9.`\
-https://nytimes.com/athletic/5956979/2024/11/29/jaguars-trevor-lawrence-injury-update-texans/
 

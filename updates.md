@@ -1,3 +1,7 @@
+**Lions sign LB Kwon Alexander after Malcolm Rodriguez tears ACL**\
+`Rodriguez will miss the remainder of the 2024 season and will be the fourth Lions linebacker placed on injured reserve.`\
+https://nytimes.com/athletic/5957008/2024/11/29/lions-sign-kwon-alexander-malcolm-rodriguez-injury/
+
 **Leicester fans: What do you think about Ruud van Nistelrooy's appointment?**\
 `The club have replaced Steve Cooper with the former PSV manager and we want to hear your views`\
 https://nytimes.com/athletic/5956993/2024/11/29/leicester-appoint-ruud-van-nistelrooy/
