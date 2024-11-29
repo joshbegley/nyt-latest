@@ -1,3 +1,7 @@
+**This Beloved Ginger Ale Is Made With a Dozen Ingredients**\
+`Plus: a California hot spring retreat, an exhibition of Dorothea Rockburne’s artwork and more recommendations from T Magazine.`\
+https://nytimes.com/2024/11/28/t-magazine/ginger-ale-en-brasserie.html
+
 **What Memphis' upset of Tulane means in College Football Playoff and AAC**\
 `Tulane led 10-7 after the first quarter, but Memphis scored the next 20 points to take control of the game.`\
 https://nytimes.com/athletic/5956113/2024/11/28/memphis-football-tulane-aac-standings-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5956024/2024/11/28/bears-matt-eberflus-job-status-d
 **Canada Accuses Google of Creating an Ad Tech Monopoly**\
 `The case largely echoes an antitrust action in the United States and seeks to force Google to sell off sections of its online ad business.`\
 https://nytimes.com/2024/11/28/world/canada/google-complaint-ad-monopoly.html
-
-**The Moral Challenge of Trumpism**\
-`Trumpism represents an alternative value system. The people I regard as upright and admirable MAGA regards as morally disgraceful.`\
-https://nytimes.com/2024/11/28/opinion/trump-values-maga-cabinet.html
 
