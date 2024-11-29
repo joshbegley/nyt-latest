@@ -1,3 +1,7 @@
+**Guimaraes, Willock avoid 'serious' injuries but doubts for Palace trip**\
+`Newcastle United midfielders Bruno Guimaraes and Joe Willock have both avoided serious injury but head coach Eddie Howe says the pair are both still doubts for Saturday’s game at Crystal Palace.`\
+https://nytimes.com/athletic/5956446/2024/11/29/newcastle-guimaraes-willock-injury/
+
 **'Sky is the limit' for DeMarvion Overshown, whose pick six was just what the Cowboys needed**\
 `"I told y'all from the beginning he was going to be a dude,” Micah Parsons said of Overshown after the Cowboys' victory.`\
 https://nytimes.com/athletic/5956222/2024/11/29/cowboys-demarvion-overshown-interception-touchdown-giants/
