@@ -1,40 +1,40 @@
-**Israel Warns Residents of Towns on Both Sides of Lebanon Border to Stay Away**\
-`The cease-fire agreement between Israel and Hezbollah that took effect this week does not say when people will be able to return to towns and villages in Lebanon’s far south.`\
-https://nytimes.com/2024/11/29/world/middleeast/israel-lebanon-ceasefire-hezbollah.html
+**An early look at the 2025 NBA free-agent class, and why Myles Turner could rise to top**\
+`Right now, some of the highest-profile players appear unlikely to switch teams, but a few names could be difference-makers.`\
+https://nytimes.com/athletic/5935625/2024/11/29/nba-free-agency-jimmy-butler-brandon-ingram-myles-turner/
 
-**Arteta: Arsenal to 'dig in' to recent injury record**\
-`Mikel Arteta says Arsenal will “dig in” to their recent injury record to see how they can improve moving forward.`\
-https://nytimes.com/athletic/5956423/2024/11/29/mikel-arteta-arsenal-injuries/
+**Commanders mailbag: Marshon Lattimore returns to practice field. Now what?**\
+`What does Lattimore's potential Washington debut mean for the CB rotation? Plus, which players with expiring deals should return in 2025?`\
+https://nytimes.com/athletic/5950629/2024/11/29/commanders-mailbag-marshon-lattimore/
 
-**New Target Emerges in Russia’s Attacks on Ukraine’s Grid: Nuclear Facilities**\
-`Russia has increasingly hit critical substations linked to nuclear power plants in an effort to disconnect them. The assaults risk a disaster, experts said.`\
-https://nytimes.com/2024/11/29/world/europe/russia-ukraine-electric-grid-nuclear-power.html
+**Stay or Go? From Aaron Rodgers to Anders Carlson, vote on which Jets should return in 2025**\
+`Breaking down who on this roster should stick around for next season.`\
+https://nytimes.com/athletic/5946400/2024/11/29/new-york-jets-2025-roster-projection-aaron-rodgers/
 
-**Romero 'unlikely' to return for Tottenham against Fulham**\
-`Tottenham Hotspur are “unlikely” to have Cristian Romero available for Sunday’s Premier League home game against Fulham.`\
-https://nytimes.com/athletic/5956434/2024/11/29/cristian-romero-injury-tottenham-fulham/
+**During Texas–Texas A&M impasse, message board warriors kept the rivalry alive**\
+`"The rivalry was just too big to go away," said the managing editor of an A&M fan site. "People had to push their anger somewhere."`\
+https://nytimes.com/athletic/5954302/2024/11/29/texas-texas-am-rivalry-message-boards/
 
-**Guimaraes, Willock avoid 'serious' injuries but doubts for Palace trip**\
-`Newcastle United midfielders Bruno Guimaraes and Joe Willock have both avoided serious injury but head coach Eddie Howe says the pair are both still doubts for Saturday’s game at Crystal Palace.`\
-https://nytimes.com/athletic/5956446/2024/11/29/newcastle-guimaraes-willock-injury/
+**Penguins trade tiers: Players ranked by likeliness to be dealt**\
+`Let's take our bi-annual look at the Penguins most likely to be shipped out of town.`\
+https://nytimes.com/athletic/5944604/2024/11/29/penguins-trade-tiers-2024-25/
 
-**'Sky is the limit' for DeMarvion Overshown, whose pick six was just what the Cowboys needed**\
-`"I told y'all from the beginning he was going to be a dude,” Micah Parsons said of Overshown after the Cowboys' victory.`\
-https://nytimes.com/athletic/5956222/2024/11/29/cowboys-demarvion-overshown-interception-touchdown-giants/
+**Title race and tiebreaker scenarios or brain teasers? Big 12 Chaos meter**\
+`Four teams are tied for first place in the Big 12, and nine teams — more than half the league! — are still technically in contention. `\
+https://nytimes.com/athletic/5953573/2024/11/29/big-12-chaos-meter-arizona-state-tiebreaker-scenarios/
 
-**Michigan-Ohio State breakdown: Keys to the game, players to watch, predictions**\
-`There's far more on the line for Ohio State, but motivation is never an issue for either side in this iconic rivalry.`\
-https://nytimes.com/athletic/5952713/2024/11/29/ohio-state-michigan-preview-predictions/
+**NHL Power Rankings: A new No. 1, Rangers fall from top 10 and the league's best deals**\
+`We scoured the books for this week’s rankings to find the best Black Friday deals for each team.`\
+https://nytimes.com/athletic/5955632/2024/11/29/nhl-power-rankings-hurricanes-rangers/
 
-**Three keys and a prediction for Notre Dame's regular-season finale at USC**\
-`The Irish will be tested by a USC team that has held a fourth-quarter lead in all five of its losses this season.`\
-https://nytimes.com/athletic/5953375/2024/11/29/notre-dame-usc-prediction-preview-playoff/
+**Which Jets will make their respective teams in the NHL 4 Nations Face-Off?**\
+`Mark Scheifele isn't the only Jets player with a strong case to represent his country this February.`\
+https://nytimes.com/athletic/5955655/2024/11/29/jets-nhl-4-nations-face-off-roster/
 
-**After a Cease-Fire in Lebanon, Gaza and Iran’s Nuclear Ambitions Await Trump**\
-`A broader peace in the Middle East will be difficult to achieve, and Iran’s threat to Israel looms over any diplomatic effort.`\
-https://nytimes.com/2024/11/29/world/europe/israel-lebanon-iran-gaza.html
+**The Connections Companion No. 538**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Nov. 30, 2024.`\
+https://nytimes.com/2024/11/29/crosswords/connections-companion-538.html
 
-**We Asked for Your Offbeat Holiday Traditions. You Delivered.**\
-`Families with holiday rituals are more likely to gather. So here’s to “Ribsgiving,” stinky gifts and fried oysters for Christmas breakfast.`\
-https://nytimes.com/2024/11/29/well/readers-offbeat-holiday-traditions.html
+**Wordle Review No. 1,260**\
+`Scroll down for hints and conversation about the puzzle for Nov. 30, 2024.`\
+https://nytimes.com/2024/11/29/crosswords/wordle-review-1260.html
 
