@@ -1,3 +1,7 @@
+**Down for a Ski Trip**\
+`Willa Angel Chen Miller makes her New York Times Crossword debut, in a collaboration with Matthew Stock.`\
+https://nytimes.com/2024/11/28/crosswords/daily-puzzle-2024-11-29.html
+
 **Cowboys run game, defense shine in Thanksgiving win vs. Giants: Takeaways**\
 `The Cowboys reignited their ground game, securing their fourth 100-yard rushing game of the season`\
 https://nytimes.com/athletic/5955835/2024/11/28/giants-cowboys-scores-takeaways-results/
