@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5956807/2024/11/29/barcelona-de-jong-flick/
 https://nytimes.com/2024/11/29/us/politics/justice-department-independence-trump.html
 
 **Audi sells stake in F1 team to Qatar sovereign wealth fund**\
-`LUSAIL, Qatar — Audi has sold a stake in its Formula One team to Qatar’s sovereign wealth fund ahead of the German manufacturer’s entry to the sport in 2026.`\
+`The deal marks the Qatar sovereign fund’s first significant investment in F1, and is a deepening of roots for the Gulf region in the sport.`\
 https://nytimes.com/athletic/5956798/2024/11/29/audi-formula-one-stake-qatar/
 
 **What we're hearing on Igor Shesterkin's contract, Rangers trade targets and more**\
