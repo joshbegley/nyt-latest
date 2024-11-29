@@ -1,3 +1,15 @@
+**Syrian Rebels Reach Outskirts of Aleppo, in Biggest Advance in Years, Monitor Says**\
+`A war monitor and the rebels said the opposition fighters breached three neighborhoods in Aleppo. The government launched intense airstrikes on rebel territory.`\
+https://nytimes.com/2024/11/29/world/middleeast/syria-war-aleppo-rebels-government.html
+
+**Why the secrecy around Iga Swiatek's doping case is bad for tennis**\
+`Swiatek said she couldn't play over the fall owing to 'personal matters'. That didn't really explain what was going on`\
+https://nytimes.com/athletic/5956276/2024/11/29/iga-swiatek-tennis-doping-ban/
+
+**NFL Week 13 fantasy football, betting cheat sheet: O'Connell to start vs. Chiefs**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5947140/2024/11/29/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
+
 **FIFA Should Pay Workers Injured Building the Qatar World Cup, Internal Report Says**\
 `An unpublished report into the soccer governing body’s responsibility for migrant workers recommends that it should compensate those harmed.`\
 https://nytimes.com/2024/11/29/world/middleeast/qatar-world-cup-2022-fifa-migrant-workers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5956773/2024/11/29/vinicius-junior-racism-letter-mi
 **California Man to Reunite With Family 25 Years After He ‘Vanished With No Trace’**\
 `Marcella Nasseri saw a man who resembled her long-lost brother in the news. Fingerprint scans solved the decades-old case.`\
 https://nytimes.com/2024/11/29/us/family-member-reunited-decades-later.html
-
-**Dr. Dave Weldon, Trump’s C.D.C. Pick, Was Not on Anyone’s Radar**\
-`But over the years, the former congressman’s views have often aligned with those of his potential boss, Robert F. Kennedy Jr. — particularly on vaccine safety.`\
-https://nytimes.com/2024/11/29/health/dave-weldon-cdc.html
-
-**Fantasy football flex fliers: Take the MVS ride, gamble on Adonai Mitchell in Week 13**\
-`Scott Engel discusses who you to pick up in free agency, including Marquez Valdes-Scantling and Adonai Mitchell`\
-https://nytimes.com/athletic/5956660/2024/11/29/fantasy-football-flex-fliers-take-the-mvs-ride-gamble-on-adonai-mitchell-in-week-13/
-
-**Cunha 'definitely not' leaving Wolves in January, says O'Neil**\
-`Wolves head coach Gary O’Neil says star forward Matheus Cunha will “definitely not” leave Wolves in the January transfer window.`\
-https://nytimes.com/athletic/5956739/2024/11/29/matheus-cunha-transfer-wolves-oneil/
 

@@ -1,3 +1,15 @@
+**Syrian Rebels Reach Outskirts of Aleppo, in Biggest Advance in Years, Monitor Says**\
+`A war monitor and the rebels said the opposition fighters breached three neighborhoods in Aleppo. The government launched intense airstrikes on rebel territory.`\
+https://nytimes.com/2024/11/29/world/middleeast/syria-war-aleppo-rebels-government.html
+
+**Why the secrecy around Iga Swiatek's doping case is bad for tennis**\
+`Swiatek said she couldn't play over the fall owing to 'personal matters'. That didn't really explain what was going on`\
+https://nytimes.com/athletic/5956276/2024/11/29/iga-swiatek-tennis-doping-ban/
+
+**NFL Week 13 fantasy football, betting cheat sheet: O'Connell to start vs. Chiefs**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5947140/2024/11/29/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
+
 **FIFA Should Pay Workers Injured Building the Qatar World Cup, Internal Report Says**\
 `An unpublished report into the soccer governing body’s responsibility for migrant workers recommends that it should compensate those harmed.`\
 https://nytimes.com/2024/11/29/world/middleeast/qatar-world-cup-2022-fifa-migrant-workers.html
