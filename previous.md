@@ -1,3 +1,7 @@
+**How Norman Powell, with Kobe's help, is making an NBA All-Star case**\
+`At 31 and in his 10th NBA season, Powell has always believed he could do more and achieve more. He's showing in a breakthrough campaign.`\
+https://nytimes.com/athletic/5954059/2024/11/29/norman-powell-exclusive-clippers-nba-all-star/
+
 **Protests Erupt in Georgia as It Pulls Back From Pro-Western Path**\
 `Thousands of people took to the streets after the government in the Caucasus nation said it had suspended talks on joining the European Union.`\
 https://nytimes.com/2024/11/29/world/europe/georgia-protests-eu-membership.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/podcasts/hardfork-iconic-100-technologies.html
 **A Bird Flu Pandemic Would Be One of the Most Foreseeable Catastrophes in History**\
 `It’s not too late for President Biden to give the U.S. a life-changing gift.`\
 https://nytimes.com/2024/11/29/opinion/bird-flu-pandemic.html
-
-**Republican and Democratic Former Senate Counsels Agree: F.B.I. Checks on Trump Nominees Are a Must**\
-`With fewer and fewer checks on presidential power, we need rigorous congressional consideration of the incoming president’s team.`\
-https://nytimes.com/2024/11/29/opinion/trump-background-senate-nominations-fbi.html
 
