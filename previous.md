@@ -1,3 +1,7 @@
+**The ‘Braiding Sweetgrass’ Author Wants Us to Give Thanks Every Day**\
+`The world is a gift, not a giant Amazon warehouse, Robin Wall Kimmerer said. In her new book, “The Serviceberry,” she proposes gratitude as an antidote to prevailing views of nature as a commodity.`\
+https://nytimes.com/2024/11/29/books/braiding-sweetgrass-serviceberry-robin-wall-kimmerer.html
+
 **You’re Hungover. Can Exercise Help?**\
 `If you overdid it last night, here’s how to know whether it’s wise to sweat through it.`\
 https://nytimes.com/2024/11/29/well/move/hangover-exercise-workout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5956487/2024/11/29/premier-league-transfers-january
 **How Norman Powell, with Kobe's help, is making an NBA All-Star case**\
 `At 31 and in his 10th NBA season, Powell has always believed he could do more and achieve more. He's showing it in a breakthrough campaign.`\
 https://nytimes.com/athletic/5954059/2024/11/29/norman-powell-exclusive-clippers-nba-all-star/
-
-**Protests Erupt in Georgia as It Pulls Back From Pro-Western Path**\
-`Thousands of people took to the streets after the government in the Caucasus nation said it had suspended talks on joining the European Union.`\
-https://nytimes.com/2024/11/29/world/europe/georgia-protests-eu-membership.html
 

@@ -1,3 +1,7 @@
+**The ‘Braiding Sweetgrass’ Author Wants Us to Give Thanks Every Day**\
+`The world is a gift, not a giant Amazon warehouse, Robin Wall Kimmerer said. In her new book, “The Serviceberry,” she proposes gratitude as an antidote to prevailing views of nature as a commodity.`\
+https://nytimes.com/2024/11/29/books/braiding-sweetgrass-serviceberry-robin-wall-kimmerer.html
+
 **You’re Hungover. Can Exercise Help?**\
 `If you overdid it last night, here’s how to know whether it’s wise to sweat through it.`\
 https://nytimes.com/2024/11/29/well/move/hangover-exercise-workout.html
