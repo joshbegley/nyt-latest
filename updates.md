@@ -1,3 +1,11 @@
+**Hunter, Colorado demolish OK State 52-0 in regular-season finale: Key takeaways**\
+`Hunter, the Heisman Trophy front-runner, scored three touchdowns and intercepted a pass.`\
+https://nytimes.com/athletic/5957385/2024/11/29/colorado-oklahoma-state-result-score-takeaways/
+
+**Shouldn’t Trump Voters Be Viewed as Traitors?**\
+`The magazine’s Ethicist columnist on whether voters should be held accountable for their chosen candidate’s behavior.`\
+https://nytimes.com/2024/11/29/magazine/trump-voters-considered-traitors-ethics.html
+
 **Herdman resigns as Toronto FC head coach**\
 `John Herdman has resigned from his position as head coach of Toronto FC, the club announced Friday.`\
 https://nytimes.com/athletic/5957430/2024/11/29/toronto-fc-coach-john-herdman/
