@@ -1,3 +1,15 @@
+**Stocks Resume Post-Election Rise**\
+`With Friday’s gains included, November was the best month in a year for the S&P 500.`\
+https://nytimes.com/2024/11/29/business/stock-market-election-trump.html
+
+**France Loses its Longtime Military Partner in Africa, Chad**\
+`The decision by Chad is another blow to what remained of France’s military influence in the troubled stretch of countries below the Sahara, where Russia’s influence has been growing.`\
+https://nytimes.com/2024/11/29/world/europe/france-chad-military-ally.html
+
+**NFL Week 13 fantasy football, betting cheat sheet: O'Connell, Pacheco active for Week 13**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5947140/2024/11/29/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
+
 **Canucks D Filip Hronek out of lineup with injury**\
 `Hronek appeared to get hurt at the end of Vancouver's game against the Pittsburgh Penguins on Wednesday.`\
 https://nytimes.com/athletic/5955605/2024/11/29/canucks-filip-hronek-injury/
