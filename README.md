@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5956660/2024/11/29/fantasy-football-flex-fliers-tak
 `Wolves head coach Gary O’Neil says star forward Matheus Cunha will “definitely not” leave Wolves in the January transfer window.`\
 https://nytimes.com/athletic/5956739/2024/11/29/matheus-cunha-transfer-wolves-oneil/
 
-**British Lawmakers Vote to Legalize Assisted Dying After Emotional Debate**\
+**After Emotional Debate, British Lawmakers Vote to Legalize Assisted Dying**\
 `In a landmark decision on Friday, Parliament voted in favor of allowing assisted suicide for the terminally ill in England and Wales.`\
 https://nytimes.com/2024/11/29/world/europe/uk-assisted-dying-bill-vote.html
 
