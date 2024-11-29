@@ -1,3 +1,7 @@
+**Court Vision: Why UConn went 0-3 in Maui and North Carolina's potentially fatal flaw**\
+`The Maui Invitational edition leaves nothing uncovered from the three-day Feast Week event in Hawaii. `\
+https://nytimes.com/athletic/5954660/2024/11/29/court-vision-uconn-north-carolina-auburn-memphis/
+
 **From 920 days away to 21 assists: How Elfrid Payton reclaimed his spot in the NBA**\
 `"He's a strong cat. I salute him," Dejounte Murray said of the veteran who filled a stat sheet.`\
 https://nytimes.com/athletic/5955859/2024/11/29/elfrid-payton-comeback-pelicans-nba/

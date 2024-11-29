@@ -1,3 +1,7 @@
+**Court Vision: Why UConn went 0-3 in Maui and North Carolina's potentially fatal flaw**\
+`The Maui Invitational edition leaves nothing uncovered from the three-day Feast Week event in Hawaii. `\
+https://nytimes.com/athletic/5954660/2024/11/29/court-vision-uconn-north-carolina-auburn-memphis/
+
 **From 920 days away to 21 assists: How Elfrid Payton reclaimed his spot in the NBA**\
 `"He's a strong cat. I salute him," Dejounte Murray said of the veteran who filled a stat sheet.`\
 https://nytimes.com/athletic/5955859/2024/11/29/elfrid-payton-comeback-pelicans-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5953573/2024/11/29/big-12-chaos-meter-arizona-state
 **NHL Power Rankings: A new No. 1, Rangers fall from top 10 and the league's best deals**\
 `We scoured the books for this week’s rankings to find the best Black Friday deals for each team.`\
 https://nytimes.com/athletic/5955632/2024/11/29/nhl-power-rankings-hurricanes-rangers/
-
-**Which Jets will make their respective teams in the NHL 4 Nations Face-Off?**\
-`Mark Scheifele isn't the only Jets player with a strong case to represent his country this February.`\
-https://nytimes.com/athletic/5955655/2024/11/29/jets-nhl-4-nations-face-off-roster/
 
