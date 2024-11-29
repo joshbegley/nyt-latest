@@ -1,3 +1,11 @@
+**J. Stanley Pottinger, 84, Dies; Official Figured Out Identity of ‘Deep Throat’**\
+`A former Nixon official (and later a novelist), he led an investigation in which a shadowy Watergate figure squirmed when asked if he had been an anonymous whistle blower.`\
+https://nytimes.com/2024/11/29/us/politics/j-stanley-pottinger-dead.html
+
+**Martin 'frustrated' by VAR decision to disallow Southampton goal**\
+`Russell Martin was left &#8220;frustrated&#8221; with the decision to disallow what could have been a winning goal for Southampton against Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/5957499/2024/11/29/southampton-goal-disallowed-why-russell-martin/
+
 **Auston Matthews, Matthew Knies set to return: Maple Leafs notebook**\
 `The Leafs captain is set to return Saturday vs. the Lightning after missing nine games with an undisclosed injury.`\
 https://nytimes.com/athletic/5957422/2024/11/29/auston-matthews-maple-leafs-injury/

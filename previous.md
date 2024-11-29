@@ -1,3 +1,11 @@
+**J. Stanley Pottinger, 84, Dies; Official Figured Out Identity of ‘Deep Throat’**\
+`A former Nixon official (and later a novelist), he led an investigation in which a shadowy Watergate figure squirmed when asked if he had been an anonymous whistle blower.`\
+https://nytimes.com/2024/11/29/us/politics/j-stanley-pottinger-dead.html
+
+**Martin 'frustrated' by VAR decision to disallow Southampton goal**\
+`Russell Martin was left &#8220;frustrated&#8221; with the decision to disallow what could have been a winning goal for Southampton against Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/5957499/2024/11/29/southampton-goal-disallowed-why-russell-martin/
+
 **Auston Matthews, Matthew Knies set to return: Maple Leafs notebook**\
 `The Leafs captain is set to return Saturday vs. the Lightning after missing nine games with an undisclosed injury.`\
 https://nytimes.com/athletic/5957422/2024/11/29/auston-matthews-maple-leafs-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/29/magazine/trump-voters-considered-traitors-ethics.
 **Herdman resigns as Toronto FC head coach**\
 `John Herdman has resigned from his position as head coach of Toronto FC, the team announced Friday.`\
 https://nytimes.com/athletic/5957430/2024/11/29/toronto-fc-coach-john-herdman/
-
-**For Matt Eberflus and Bears, the math didn't work out. What is next formula for success?**\
-`The Bears made the wrong kind of history when they "relieved" Eberflus on Black Friday. But it was the right decision for this cursed team. `\
-https://nytimes.com/athletic/5957311/2024/11/29/chicago-bears-matt-eberflus-fired/
-
-**Colts rule out WR Josh Downs, 2 starting offensive linemen**\
-`“Just comes down to what the coaches and the trainers think (is) best,” Downs said of being ruled out.`\
-https://nytimes.com/athletic/5957368/2024/11/29/colts-injury-updates-patriots/
 
