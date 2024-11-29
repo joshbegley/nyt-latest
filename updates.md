@@ -1,3 +1,7 @@
+**'We’ll take any win we can': Banged up Lions edge Bears to earn elusive happy Thanksgiving**\
+`The Lions are now 11-1 for the first time ever.`\
+https://nytimes.com/athletic/5956018/2024/11/28/lions-bears-thanksgiving-win/
+
 **Fire Matt Eberflus right now? Why it's time for Bears brass to have that tough conversation**\
 `With the Bears dropping their sixth straight game, is it time for Chicago to move on from the embattled head coach after the latest defeat?`\
 https://nytimes.com/athletic/5956024/2024/11/28/bears-matt-eberflus-job-status-decision/
