@@ -1,3 +1,7 @@
+**The Evening: Holiday Shopping Got Off to a Cautious Start**\
+`Plus, a look inside a revived Notre Dame.`\
+https://nytimes.com/2024/11/29/briefing/black-friday-trump-project-2025-britain-notre-dame.html
+
 **With Discounts on Offer, Shoppers Seem to Bite**\
 `Early data on online spending this week shows consumers are being drawn to discounts. A clearer picture of Black Friday sales, including in-store spending, will emerge in the days ahead.`\
 https://nytimes.com/2024/11/29/business/black-friday-holiday-shopping.html
