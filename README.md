@@ -1,3 +1,7 @@
+**The Evening: Holiday Shopping Got Off to a Cautious Start**\
+`Plus, a look inside a revived Notre Dame.`\
+https://nytimes.com/2024/11/29/briefing/black-friday-trump-project-2025-britain-notre-dame.html
+
 **With Discounts on Offer, Shoppers Seem to Bite**\
 `Early data on online spending this week shows consumers are being drawn to discounts. A clearer picture of Black Friday sales, including in-store spending, will emerge in the days ahead.`\
 https://nytimes.com/2024/11/29/business/black-friday-holiday-shopping.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/movies/earl-holliman-dead.html
 **Jared Spurgeon and Marco Rossi flash offense as Wild rally from deficit: 3 takeaways vs. Blackhawks**\
 `Birthday boy Spurgeon scored two goals and Rossi added another as Minnesota rallied from a 2-0 deficit for a 3-2 victory over Chicago.`\
 https://nytimes.com/athletic/5957222/2024/11/29/wild-blackhawks-jared-spurgeon-marco-rossi/
-
-**Hunter, Colorado demolish OK State 52-0 in regular-season finale: Key takeaways**\
-`Hunter, the Heisman Trophy front-runner, scored three touchdowns and intercepted a pass.`\
-https://nytimes.com/athletic/5957385/2024/11/29/colorado-oklahoma-state-result-score-takeaways/
 
