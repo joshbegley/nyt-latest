@@ -1,3 +1,7 @@
+**Who could be the Bears' next head coach? Here are 15 potential candidates**\
+`The Bears are searching for their fifth head coach since 2012. Will they go with a veteran like Bill Belichick or someone like Ben Johnson?`\
+https://nytimes.com/athletic/5956030/2024/11/29/bears-head-coach-candidates-list/
+
 **Blackhawks goalie Laurent Brossoit to miss more time after second knee surgery**\
 `Brossoit initially underwent meniscus surgery in late August and was expected to miss five-to-seven weeks.`\
 https://nytimes.com/athletic/5956980/2024/11/29/blackhawks-laurent-brossoit-injury-timeline/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/theater/the-importance-of-being-earnest-ncuti-gat
 **Greenberg: Bears GM Ryan Poles should fire Matt Eberflus for his own sake after latest debacle**\
 `You can’t come back from this embarrassment. You just can't. With a little more than a month left, the Bears need to salvage some dignity.`\
 https://nytimes.com/athletic/5956200/2024/11/29/bears-lions-matt-eberflus-ryan-poles/
-
-**Hayes says USWNT don't have time to talk politics ahead of England friendly**\
-`United States head coach Emma Hayes says her side does not have time to talk politics as the former Chelsea boss returns to England.`\
-https://nytimes.com/athletic/5956752/2024/11/29/emma-hayes-uswnt-politics/
 
