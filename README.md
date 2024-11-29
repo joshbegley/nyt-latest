@@ -1,3 +1,7 @@
+**Cowboys Today: Curious sequence, injury updates, chicken nuggets**\
+`The Cowboys hope to finally have DaRon Bland and Trevon Diggs on the field together and a curious sequence of play calls in fourth quarter.`\
+https://nytimes.com/athletic/5957023/2024/11/29/cowboys-beat-giants-thanksgiving-td-celebration/
+
 **Jaguars QB Trevor Lawrence expected to play vs. Texans**\
 `Lawrence was sidelined with a left shoulder injury and has not played since Week 9.`\
 https://nytimes.com/athletic/5956979/2024/11/29/jaguars-trevor-lawrence-injury-update-texans/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5956030/2024/11/29/bears-head-coach-candidates-list
 `Brossoit initially underwent meniscus surgery in late August and was expected to miss five-to-seven weeks.`\
 https://nytimes.com/athletic/5956980/2024/11/29/blackhawks-laurent-brossoit-injury-timeline/
 
-**Bears fire coach Matt Eberflus amid 4-8 season**\
+**Bears fire Eberflus after 6 straight losses, clock management criticism**\
 `Eberflus is the Bears' fourth coach to be fired in the past 11 seasons.`\
 https://nytimes.com/athletic/5955894/2024/11/29/matt-eberflus-fired-bears/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5956401/2024/11/29/mlb-free-agent-questions-soto-ad
 **Liverpool's Konate set for spell on sidelines with injury**\
 `Liverpool defender Ibrahima Konate is set for a spell on the sidelines after picking up an injury.`\
 https://nytimes.com/athletic/5954633/2024/11/29/ibrahima-konate-injury-liverpool/
-
-**Review: This ‘Importance of Being Earnest’ Is a Fabulous Romp**\
-`A new production in London, starring Ncuti Gatwa, releases Oscar Wilde’s 1895 comedy from period convention and brings it stunningly into the 21st century.`\
-https://nytimes.com/2024/11/29/theater/the-importance-of-being-earnest-ncuti-gatwa.html
 
