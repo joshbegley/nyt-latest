@@ -1,3 +1,15 @@
+**What's next in MLB free agency? Bowden on Soto, Burnes, Adames, Santander and more**\
+`After the Blake Snell signing, what's the next domino to fall? Jim Bowden answers 25 questions about the free-agent and trade markets.`\
+https://nytimes.com/athletic/5956401/2024/11/29/mlb-free-agent-questions-soto-adames/
+
+**Six USWNT players nominated for The Best FIFA Football Awards 2024**\
+`Lindsey Horan and Trinity Rodman are among the contingent, while head coach Emma Hayes is also up for an award.`\
+https://nytimes.com/athletic/5956917/2024/11/29/uswnt-the-best-fifa-awards-nominees/
+
+**Liverpool's Konate set for spell on sidelines with injury**\
+`Liverpool defender Ibrahima Konate is set for a spell on the sidelines after picking up an injury.`\
+https://nytimes.com/athletic/5954633/2024/11/29/ibrahima-konate-injury-liverpool/
+
 **Review: This ‘Importance of Being Earnest’ Is a Fabulous Romp**\
 `A new production in London, starring Ncuti Gatwa, releases Oscar Wilde’s 1895 comedy from period convention and brings it stunningly into the 21st century.`\
 https://nytimes.com/2024/11/29/theater/the-importance-of-being-earnest-ncuti-gatwa.html
