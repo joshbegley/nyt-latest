@@ -1,3 +1,7 @@
+**Fire Matt Eberflus right now? Why it's time for Bears brass to have that tough conversation**\
+`With the Bears dropping their sixth straight game, is it time for Chicago to move on from the embattled head coach after the latest defeat?`\
+https://nytimes.com/athletic/5956024/2024/11/28/bears-matt-eberflus-job-status-decision/
+
 **Canada Accuses Google of Creating an Ad Tech Monopoly**\
 `The case largely echoes an antitrust action in the United States and seeks to force Google to sell off sections of its online ad business.`\
 https://nytimes.com/2024/11/28/world/canada/google-complaint-ad-monopoly.html
