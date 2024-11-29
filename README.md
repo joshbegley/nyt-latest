@@ -1,40 +1,40 @@
-**Why soccers fans in Brazil watched game on a screen despite being sat behind the goal**\
-`Soccer fans in Brazil watched the Serie A match between Palmeiras and Botafogo on a big screen despite being sat in the stadium directly behind one of the goals after their view was obstructed by staging for a music concert.`\
-https://nytimes.com/athletic/5956351/2024/11/29/palmeiras-botafogo-screen-allianz-parque/
+**Margo Martindale Pours It On in ‘The Sticky’**\
+`The esteemed character actress has spent decades enlivening films and series in just a few scenes or episodes. In this new Amazon heist comedy, she is first on the call sheet.`\
+https://nytimes.com/2024/11/29/arts/television/margo-martindale-the-sticky.html
 
-**Can a Court’s ‘Last Resort’ Fix New York City’s Jails?**\
-`A federal judge is likely to employ a rarely used remedy to try to fix longstanding problems in the city’s jails. But it’s not foolproof.`\
-https://nytimes.com/2024/11/29/nyregion/rikers-receivership.html
+**Transcendent (and Occasionally Filthy) New Romance Novels**\
+`Our columnist on some recent favorites.`\
+https://nytimes.com/2024/11/29/books/review/new-romance-books.html
 
-**Goodbye, Chain Drugstores. Hello, Golf Simulators.**\
-`New York’s retail landscape is changing. But it’s not cheese shops or butchers that are taking over those vacant neighborhood storefronts.`\
-https://nytimes.com/2024/11/29/nyregion/golf-simulators-retail-nyc.html
+**The Heirs of a Despised Draft Dodger Want His Wright Brothers Plane Back**\
+`The Franklin Institute has said a wealthy scion, long vilified for refusing to serve during World War I, gave them a treasured Wright-built plane. His family is challenging that account.`\
+https://nytimes.com/2024/11/29/arts/the-heirs-of-a-despised-draft-dodger-want-his-wright-brothers-plane-back.html
 
-**Will Hochul’s Political Concerns Put New York’s Climate Goals at Risk?**\
-`Gov. Kathy Hochul is contending with pressures from environmental advocates and President-elect Donald Trump as she charts a path forward.`\
-https://nytimes.com/2024/11/29/nyregion/hochul-trump-new-york-climate.html
+**The Price of Being Cool? A Quarter-Billion Dollars.**\
+`The WSA building, a 31-story New York office tower with mysterious financing, has become an improbable hub for artists, designers and influencers.`\
+https://nytimes.com/2024/11/29/style/wsa-building.html
 
-**The Great Opera Tradition Died With Puccini**\
-`A century after his death, the composer of “La Bohème,” “Tosca” and “Madama Butterfly” still dominates the repertoire like no one since.`\
-https://nytimes.com/2024/11/29/arts/music/giacomo-puccini-opera.html
+**How Online Shoppers Are Trying to Foil ‘Porch Pirates’**\
+`Some people race to grab their packages before thieves can nab them. Others move to buildings with dedicated mailrooms.`\
+https://nytimes.com/2024/11/29/realestate/package-theft-strategies.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/29/crosswords/spelling-bee-forum.html
+**An Apocalyptic Novel Throws Stones at the Glass House of ‘King Lear’**\
+`Julia Armfield’s “Private Rites” is a contemporary reimagining of the Shakespearean tragedy, set in a flooded London.`\
+https://nytimes.com/2024/11/29/books/review/private-rites-julia-armfield.html
 
-**The Transfer DealSheet 2025: Delap tracked, Man Utd striker interest, Gyokeres state of play**\
-`Welcome to a special Black Friday edition of the Transfer DealSheet — with everything you need to know about plans for transfers in 2025`\
-https://nytimes.com/athletic/5949367/2024/11/29/manchester-united-arsenal-liverpool-transfer-latest-real-madrid/
+**Ms. Rachel’s Improbable Journey From Toddler Whisperer to Holiday Toy Story**\
+`Rachel Accurso might be this era’s Mr. Rogers, if he were on YouTube, TikTok and Instagram. Toy companies and publishers all want a piece of the action.`\
+https://nytimes.com/2024/11/29/business/ms-rachel-youtube-holiday-toys.html
 
-**Newcastle Transfer DealSheet: What to expect in 2025**\
-`A possible revival of interest in Marc Guehi, as well as a new goalkeeper and right-winger, are among the things to watch out for`\
-https://nytimes.com/athletic/5949398/2024/11/29/newcastle-transfer-dealsheet-what-to-expect-in-2025/
+**Trying to Come Up With a Gift? Pay Attention.**\
+`According to Jalil Johnson, an online style influencer, people often provide clues to the kind of presents they would like to receive.`\
+https://nytimes.com/2024/11/29/fashion/gifts-jalil-johnson.html
 
-**Chelsea Transfer DealSheet: What to expect in 2025**\
-`Osimhen, Delap and more are covered as we look at what Chelsea fans should expect in 2025`\
-https://nytimes.com/athletic/5949134/2024/11/29/chelsea-transfer-dealsheet-what-to-expect-in-2025/
+**Dreams of Being a K-Pop Star? A Seoul Studio Wants to Help.**\
+`One of King Studio’s recording packages even includes a music video.`\
+https://nytimes.com/2024/11/29/fashion/k-pop-recording-sessions-seoul.html
 
-**Arsenal Transfer DealSheet: What to expect in 2025**\
-`Renewed interest in Benjamin Sesko? Farewell to Gabriel Jesus? This is what we know so far about Arsenal's transfer plans for 2025`\
-https://nytimes.com/athletic/5954924/2024/11/29/arsenal-transfer-dealsheet-what-to-expect-in-2025/
+**6 Winemakers Offer Some Gift Ideas**\
+`Here are several bottles, produced in France, New Zealand and beyond, that they would love to give or receive.`\
+https://nytimes.com/2024/11/29/fashion/6-winemakers-gift-ideas.html
 
