@@ -1,3 +1,7 @@
+**Chinese Court Sentences Journalist to 7 Years in Prison for Espionage**\
+`Dong Yuyu, who has written articles critical of the Communist Party, was arrested in 2022 while having lunch with a Japanese diplomat.`\
+https://nytimes.com/2024/11/29/world/asia/china-journalist-dong-yuyu.html
+
 **Fantasy Premier League: Five alternative captains for Gameweek 13 ranked**\
 `With Salah and Haaland facing off, it's time to look at some other captaincy options, from Saka to Joao Pedro`\
 https://nytimes.com/athletic/5950952/2024/11/29/fantasy-premier-league-five-alternative-captains-for-gameweek-13-ranked/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5955825/2024/11/29/is-frank-lampard-a-good-manager/
 **Friday Briefing**\
 `The cease-fire between Israel and Hezbollah.`\
 https://nytimes.com/2024/11/29/briefing/israel-hezbollah-ukraine.html
-
-**A Dublin Neighborhood at the Sharp End of Ireland’s Election Issues**\
-`In a northeast neighborhood of the capital city, deprivation and affluence exist side-by-side, and many voters feel frustrated by the status quo.`\
-https://nytimes.com/2024/11/29/world/europe/ireland-election-general-dublin.html
 
