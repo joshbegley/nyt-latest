@@ -1,3 +1,7 @@
+**Canucks D Filip Hronek out of lineup with injury**\
+`Hronek appeared to get hurt at the end of Vancouver's game against the Pittsburgh Penguins on Wednesday.`\
+https://nytimes.com/athletic/5955605/2024/11/29/canucks-filip-hronek-injury/
+
 **Cowboys Today: Curious sequence, injury updates, chicken nuggets**\
 `The Cowboys hope to finally have DaRon Bland and Trevon Diggs on the field together and a curious sequence of play calls in fourth quarter.`\
 https://nytimes.com/athletic/5957023/2024/11/29/cowboys-beat-giants-thanksgiving-td-celebration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5956911/2024/11/29/texas-am-brady-hart-qb-recruitin
 **What's next in MLB free agency? Bowden on Soto, Burnes, Adames, Santander and more**\
 `After the Blake Snell signing, what's the next domino to fall? Jim Bowden answers 25 questions about the free-agent and trade markets.`\
 https://nytimes.com/athletic/5956401/2024/11/29/mlb-free-agent-questions-soto-adames/
-
-**Liverpool's Konate set for spell on sidelines with injury**\
-`Liverpool defender Ibrahima Konate is set for a spell on the sidelines after picking up an injury.`\
-https://nytimes.com/athletic/5954633/2024/11/29/ibrahima-konate-injury-liverpool/
 

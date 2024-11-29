@@ -1,3 +1,7 @@
+**Canucks D Filip Hronek out of lineup with injury**\
+`Hronek appeared to get hurt at the end of Vancouver's game against the Pittsburgh Penguins on Wednesday.`\
+https://nytimes.com/athletic/5955605/2024/11/29/canucks-filip-hronek-injury/
+
 **Cowboys Today: Curious sequence, injury updates, chicken nuggets**\
 `The Cowboys hope to finally have DaRon Bland and Trevon Diggs on the field together and a curious sequence of play calls in fourth quarter.`\
 https://nytimes.com/athletic/5957023/2024/11/29/cowboys-beat-giants-thanksgiving-td-celebration/
