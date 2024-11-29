@@ -1,3 +1,15 @@
+**Fantasy Premier League: Five alternative captains for Gameweek 13 ranked**\
+`With Salah and Haaland facing off, it's time to look at some other captaincy options, from Saka to Joao Pedro`\
+https://nytimes.com/athletic/5950952/2024/11/29/fantasy-premier-league-five-alternative-captains-for-gameweek-13-ranked/
+
+**Packers' hot start vs. Dolphins seals win in chilly Thanksgiving showdown**\
+`Jordan Love paced the offense on 21-of-28 passing for 274 yards and two touchdowns, both of which went to Jayden Reed.`\
+https://nytimes.com/athletic/5956080/2024/11/29/packers-dolphins-score-result-takeaways/
+
+**Rico Dowdle gets first 100-yard game in Cowboys' win, plus 6 more important performances**\
+`Dowdle had a big game, Luke Schoonmaker stepped up, DeMarvion Overshown dominated and Cooper Rush got the job done.`\
+https://nytimes.com/athletic/5956187/2024/11/29/cowboys-beat-giants-rico-dowdle-thursday-night/
+
 **Barcelona 125: When their star striker was kidnapped for 23 days**\
 `The kidnapping of Quini is one of the most remarkable stories in Barca's 125-year history`\
 https://nytimes.com/athletic/5955293/2024/11/29/barcelona-125-anniversary-quini-kidnapping/
