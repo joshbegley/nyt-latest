@@ -1,3 +1,7 @@
+**Why soccers fans in Brazil watched game on a screen despite being sat behind the goal**\
+`Soccer fans in Brazil watched the Serie A match between Palmeiras and Botafogo on a big screen despite being sat in the stadium directly behind one of the goals after their view was obstructed by staging for a music concert.`\
+https://nytimes.com/athletic/5956351/2024/11/29/palmeiras-botafogo-screen-allianz-parque/
+
 **Can a Court’s ‘Last Resort’ Fix New York City’s Jails?**\
 `A federal judge is likely to employ a rarely used remedy to try to fix longstanding problems in the city’s jails. But it’s not foolproof.`\
 https://nytimes.com/2024/11/29/nyregion/rikers-receivership.html
