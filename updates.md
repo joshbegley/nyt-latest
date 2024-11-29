@@ -1,3 +1,7 @@
+**How Garland, Hughes and Lankinen drove a gutsy Canucks win: 3 takeaways**\
+`Vancouver excelled on special teams, showed guts and leaned on brilliant individual performances to beat Buffalo.`\
+https://nytimes.com/athletic/5957403/2024/11/29/canucks-sabres-recap-hughes-garland/
+
 **Bayern's Davies banned from driving for a month after DUI**\
 `Alphonso Davies, the Bayern Munich defender and Canadian national team captain, has been banned from driving for one month after being found driving under the influence of alcohol.`\
 https://nytimes.com/athletic/5957096/2024/11/29/alphonso-davies-drink-driving-bayern-munich/
