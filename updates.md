@@ -1,3 +1,7 @@
+**What Memphis' upset of Tulane means in College Football Playoff and AAC**\
+`Tulane led 10-7 after the first quarter, but Memphis scored the next 20 points to take control of the game.`\
+https://nytimes.com/athletic/5956113/2024/11/28/memphis-football-tulane-aac-standings-college-football-playoff/
+
 **Down for a Ski Trip**\
 `Willa Angel Chen Miller makes her New York Times Crossword debut, in a collaboration with Matthew Stock.`\
 https://nytimes.com/2024/11/28/crosswords/daily-puzzle-2024-11-29.html
