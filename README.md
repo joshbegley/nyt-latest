@@ -2,13 +2,13 @@
 `Tariffs from the United States and other countries are unlikely to stop China’s auto export dominance.`\
 https://nytimes.com/interactive/2024/11/29/business/china-cars-sales-exports.html
 
-**Four Opinion Writers Visit Oz and Ask: Who’s Really ‘Wicked’?**\
-`A big-budget holiday film with a strong antifascist message? “Wicked” is not what we expected.`\
-https://nytimes.com/2024/11/29/opinion/wicked-cynthia-erivo-ariana-grande.html
-
 **My Traumatized Dog and I Had Trust Issues**\
 `We needed a steady presence in our lives. Enter Kevin.`\
 https://nytimes.com/2024/11/29/style/modern-love-stray-dog-devotion.html
+
+**Four Opinion Writers Visit Oz and Ask: Who’s Really ‘Wicked’?**\
+`A big-budget holiday film with a strong antifascist message? “Wicked” is not what we expected.`\
+https://nytimes.com/2024/11/29/opinion/wicked-cynthia-erivo-ariana-grande.html
 
 **Chinese Court Sentences Journalist to 7 Years in Prison for Espionage**\
 `Dong Yuyu, who has written articles critical of the Communist Party, was arrested in 2022 while having lunch with a Japanese diplomat.`\
