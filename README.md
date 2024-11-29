@@ -1,3 +1,7 @@
+**How China Became the World’s Largest Car Exporter**\
+`Tariffs from the United States and other countries are unlikely to stop China’s auto export dominance.`\
+https://nytimes.com/interactive/2024/11/29/business/china-cars-sales-exports.html
+
 **Four Opinion Writers Visit Oz and Ask: Who’s Really ‘Wicked’?**\
 `A big-budget holiday film with a strong antifascist message? “Wicked” is not what we expected.`\
 https://nytimes.com/2024/11/29/opinion/wicked-cynthia-erivo-ariana-grande.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5956187/2024/11/29/cowboys-beat-giants-rico-dowdle-
 **Phallon Tullis-Joyce: From abandoning marine biology to Man Utd No 1 and USWNT selection**\
 `Phallon Tullis-Joyce has repeatedly had to bide her time but she has shown patience and persistence and is now reaping the rewards`\
 https://nytimes.com/athletic/5954680/2024/11/29/phallon-tullis-joyce-uswnt-manchester-united/
-
-**Oli McBurnie exclusive: His new start in La Liga and the heartbreak of George Baldock**\
-`The Las Palmas striker looks back at his ups, downs and lessons he's learned`\
-https://nytimes.com/athletic/5955055/2024/11/29/oli-mcburnie-interview/
 
