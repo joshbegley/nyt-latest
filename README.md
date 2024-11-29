@@ -1,3 +1,7 @@
+**Major Canadian News Outlets Sue OpenAI in New Copyright Case**\
+`A coalition of some of Canada’s biggest media companies is seeking billions of dollars in compensation for what they say is copyright infringement on their work through ChatGPT.`\
+https://nytimes.com/2024/11/29/world/canada/canada-openai-lawsuit-copyright.html
+
 **Vito Is First Pug to Win National Dog Show**\
 `The pup became a sensation when he won best in show at the competition, which was broadcast on Thanksgiving Day. One judge said the 2-year-old is “everything a pug should be.”`\
 https://nytimes.com/2024/11/29/us/vito-pug-national-dog-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/world/europe/france-chad-military-ally.html
 **NFL Week 13 fantasy football, betting cheat sheet: O'Connell, Pacheco active for Week 13**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5947140/2024/11/29/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
-
-**Canucks D Filip Hronek out of lineup with injury**\
-`Hronek appeared to get hurt at the end of Vancouver's game against the Pittsburgh Penguins on Wednesday.`\
-https://nytimes.com/athletic/5955605/2024/11/29/canucks-filip-hronek-injury/
 
