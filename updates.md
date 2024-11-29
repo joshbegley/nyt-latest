@@ -1,3 +1,11 @@
+**Alabama A&M linebacker dies from head injury**\
+`Medrick suffered a head injury during a Magic City Classic game Oct. 26 against in-state rival Alabama State`\
+https://nytimes.com/athletic/5957443/2024/11/29/alabama-am-linebacker-dies-head-injury/
+
+**Syrian Rebels Reach Aleppo in Big Advance**\
+`Rebels reached the major city of Aleppo on Friday, according to the fighters and a war monitor, raising fears that Syria’s long-running civil war was reigniting with an intensity not seen in years.`\
+https://nytimes.com/video/world/middleeast/100000009852244/syrian-rebels-aleppo.html
+
 **Earl Holliman, Rugged Screen Presence, Dies at 96**\
 `While never a star, the Golden Globe-winning actor was a familiar face, with roles in “Giant,” “Forbidden Planet” and the 1970s series “Police Woman.”`\
 https://nytimes.com/2024/11/29/movies/earl-holliman-dead.html

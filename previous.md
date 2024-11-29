@@ -1,3 +1,11 @@
+**Alabama A&M linebacker dies from head injury**\
+`Medrick suffered a head injury during a Magic City Classic game Oct. 26 against in-state rival Alabama State`\
+https://nytimes.com/athletic/5957443/2024/11/29/alabama-am-linebacker-dies-head-injury/
+
+**Syrian Rebels Reach Aleppo in Big Advance**\
+`Rebels reached the major city of Aleppo on Friday, according to the fighters and a war monitor, raising fears that Syria’s long-running civil war was reigniting with an intensity not seen in years.`\
+https://nytimes.com/video/world/middleeast/100000009852244/syrian-rebels-aleppo.html
+
 **Earl Holliman, Rugged Screen Presence, Dies at 96**\
 `While never a star, the Golden Globe-winning actor was a familiar face, with roles in “Giant,” “Forbidden Planet” and the 1970s series “Police Woman.”`\
 https://nytimes.com/2024/11/29/movies/earl-holliman-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5957368/2024/11/29/colts-injury-updates-patriots/
 **Dozens Killed and Over 100 Missing in Nigeria After Boat Capsizes**\
 `Rescuers were searching for survivors after the vessel, taking passengers to a food market, capsized along the River Niger, officials said.`\
 https://nytimes.com/2024/11/29/world/africa/nigeria-boat-drownings.html
-
-**Lake-Effect Storm to Bring Several Feet of Snow to Great Lakes**\
-`Forecasters warned that some areas would be “paralyzed” by the lake-effect snow. Portions of western New York had already recorded 17 inches of snow by Friday afternoon.`\
-https://nytimes.com/2024/11/29/weather/lake-effect-snow-great-lakes-weather.html
-
-**Travis Hunter tracker: Potential No. 1 NFL Draft pick closes regular season in style**\
-`Friday afternoon may have been Travis Hunter's last opportunity to impress Heisman voters and NFL scouts. He didn't disappoint.`\
-https://nytimes.com/athletic/5957181/2024/11/29/travis-hunter-nfl-draft-2025-oklahoma-state/
 
