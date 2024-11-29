@@ -1,6 +1,6 @@
 **Arteta: Arsenal to 'dig in' to recent injury record**\
 `Mikel Arteta says Arsenal will “dig in” to their recent injury record to see how they can improve moving forward.`\
-https://nytimes.com/athletic/5956423/2024/11/29/mikel-arteta-arsenal-to-dig-in-to-recent-injury-record/
+https://nytimes.com/athletic/5956423/2024/11/29/mikel-arteta-arsenal-injuries/
 
 **New Target Emerges in Russia’s Attacks on Ukraine’s Grid: Nuclear Facilities**\
 `Russia has increasingly hit critical substations linked to nuclear power plants in an effort to disconnect them. The assaults risk a disaster, experts said.`\
