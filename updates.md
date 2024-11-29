@@ -1,3 +1,15 @@
+**Israel Warns Residents of Towns on Both Sides of Lebanon Border to Stay Away**\
+`The cease-fire agreement between Israel and Hezbollah that took effect this week does not say when people will be able to return to towns and villages in Lebanon’s far south.`\
+https://nytimes.com/2024/11/29/world/middleeast/israel-lebanon-ceasefire-hezbollah.html
+
+**Arteta: Arsenal to 'dig in' to recent injury record**\
+`Mikel Arteta says Arsenal will “dig in” to their recent injury record to see how they can improve moving forward.`\
+https://nytimes.com/athletic/5956423/2024/11/29/mikel-arteta-arsenal-injuries/
+
+**New Target Emerges in Russia’s Attacks on Ukraine’s Grid: Nuclear Facilities**\
+`Russia has increasingly hit critical substations linked to nuclear power plants in an effort to disconnect them. The assaults risk a disaster, experts said.`\
+https://nytimes.com/2024/11/29/world/europe/russia-ukraine-electric-grid-nuclear-power.html
+
 **Romero 'unlikely' to return for Tottenham against Fulham**\
 `Tottenham Hotspur are “unlikely” to have Cristian Romero available for Sunday’s Premier League home game against Fulham.`\
 https://nytimes.com/athletic/5956434/2024/11/29/cristian-romero-injury-tottenham-fulham/
