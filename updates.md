@@ -1,3 +1,7 @@
+**Texas A&M flips Michigan QB commit Hart after Underwood's switch to UM**\
+`Hart, who attends Cocoa (Fla.) High School, was the No. 6 quarterback and the No. 98 prospect in the 247Sports Composite rankings for 2026.`\
+https://nytimes.com/athletic/5956911/2024/11/29/texas-am-brady-hart-qb-recruiting-michigan/
+
 **What's next in MLB free agency? Bowden on Soto, Burnes, Adames, Santander and more**\
 `After the Blake Snell signing, what's the next domino to fall? Jim Bowden answers 25 questions about the free-agent and trade markets.`\
 https://nytimes.com/athletic/5956401/2024/11/29/mlb-free-agent-questions-soto-adames/
