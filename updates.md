@@ -1,3 +1,7 @@
+**Leicester fans: What do you think about Ruud van Nistelrooy's appointment?**\
+`The club have replaced Steve Cooper with the former PSV manager and we want to hear your views`\
+https://nytimes.com/athletic/5956993/2024/11/29/leicester-appoint-ruud-van-nistelrooy/
+
 **British Parliament Supports Assisted Dying**\
 `The bill applies to those who are at least 18 years old, have received a terminal diagnosis and have no more than six months to live. Two doctors and a judge would have to give their approval, and fatal drugs would need to be self-administered.`\
 https://nytimes.com/video/world/europe/100000009851954/uk-parliament-bill-assisted-death.html

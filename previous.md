@@ -1,3 +1,7 @@
+**Leicester fans: What do you think about Ruud van Nistelrooy's appointment?**\
+`The club have replaced Steve Cooper with the former PSV manager and we want to hear your views`\
+https://nytimes.com/athletic/5956993/2024/11/29/leicester-appoint-ruud-van-nistelrooy/
+
 **British Parliament Supports Assisted Dying**\
 `The bill applies to those who are at least 18 years old, have received a terminal diagnosis and have no more than six months to live. Two doctors and a judge would have to give their approval, and fatal drugs would need to be self-administered.`\
 https://nytimes.com/video/world/europe/100000009851954/uk-parliament-bill-assisted-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957023/2024/11/29/cowboys-beat-giants-thanksgiving
 **Jaguars QB Trevor Lawrence expected to play vs. Texans**\
 `Lawrence was sidelined with a left shoulder injury and has not played since Week 9.`\
 https://nytimes.com/athletic/5956979/2024/11/29/jaguars-trevor-lawrence-injury-update-texans/
-
-**Who could be the Bears' next head coach? Here are 15 potential candidates**\
-`The Bears are searching for their fifth head coach since 2012. Will they go with a veteran like Bill Belichick or someone like Ben Johnson?`\
-https://nytimes.com/athletic/5956030/2024/11/29/bears-head-coach-candidates-list/
 
