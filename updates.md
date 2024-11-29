@@ -1,3 +1,11 @@
+**Art Collector Who Bought a $6 Million Banana Offers to Buy 100,000 More**\
+`The vendor who sold the banana only received a quarter for the fruit. Now the buyer of the conceptual work has offered his fruit stand a bigger payday.`\
+https://nytimes.com/2024/11/28/nyregion/banana-sothebys-fruit-stand.html
+
+**How the Bears wasted the final 32 seconds in their sixth consecutive loss**\
+`The Bears had plenty of time to get a game-tying field goal, but they mismanaged the final 32 seconds in another loss.`\
+https://nytimes.com/athletic/5956028/2024/11/28/bears-wasted-32-seconds-loss/
+
 **Why Mexico Is Eliminating Independent Watchdog Agencies**\
 `A vote in the country’s Senate has cleared the way to abolish seven independent organizations that provided oversight on issues such as public information and price fixing.`\
 https://nytimes.com/2024/11/28/world/americas/mexico-senate-watchdog-agencies.html
