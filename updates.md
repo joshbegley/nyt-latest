@@ -1,3 +1,7 @@
+**Travis Hunter tracker: Potential No. 1 NFL Draft pick closes regular season in style**\
+`Friday afternoon may have been Travis Hunter's last opportunity to impress Heisman voters and NFL scouts. He didn't disappoint.`\
+https://nytimes.com/athletic/5957181/2024/11/29/travis-hunter-nfl-draft-2025-oklahoma-state/
+
 **Herdman resigns as Toronto FC head coach**\
 `John Herdman has resigned from his position as head coach of Toronto FC, the team announced Friday.`\
 https://nytimes.com/athletic/5957430/2024/11/29/toronto-fc-coach-john-herdman/

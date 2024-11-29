@@ -26,7 +26,7 @@ https://nytimes.com/2024/11/29/world/africa/nigeria-boat-drownings.html
 `Forecasters said driving would be extremely dangerous or impossible in parts of the region as the snow forced the closure of the Erie, Pa., airport on Friday.`\
 https://nytimes.com/2024/11/29/weather/lake-effect-snow-great-lakes-weather.html
 
-**Travis Hunter tracker: Potential No. 1 draft pick closes regular season in style**\
+**Travis Hunter tracker: Potential No. 1 NFL Draft pick closes regular season in style**\
 `Friday afternoon may have been Travis Hunter's last opportunity to impress Heisman voters and NFL scouts. He didn't disappoint.`\
 https://nytimes.com/athletic/5957181/2024/11/29/travis-hunter-nfl-draft-2025-oklahoma-state/
 
