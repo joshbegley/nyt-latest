@@ -2,6 +2,10 @@
 `Ange Postecoglou has given Johnson the kind of coaching Pep Guardiola once did with Raheem Sterling, getting him into better positions`\
 https://nytimes.com/athletic/5956453/2024/11/29/back-post-brennan-how-johnson-is-building-his-tottenham-career-on-a-trademark-goal/
 
+**Chiefs' mounting injuries becoming an obstacle on the road to a three-peat**\
+`Even with their 10-1 record, the Chiefs have used 61 players. In 17 games last season, the Chiefs used just 65 players.`\
+https://nytimes.com/athletic/5951101/2024/11/29/chiefs-injuries-raiders-black-friday/
+
 **Chargers mailbag: What will make this a successful season for Jim Harbaugh?**\
 `Postseason success isn't what will define Harbaugh's debut season in L.A., though the Chargers' playoff odds look good. `\
 https://nytimes.com/athletic/5953501/2024/11/29/chargers-mailbag-jim-harbaugh-success/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/world/europe/georgia-protests-eu-membership.html
 **Notre-Dame Shines, and World Gets a Sneak Peek, on Macron’s Televised Tour**\
 `The French president got a tour of the Paris monument one week before it is set to reopen for the first time since the 2019 fire.`\
 https://nytimes.com/2024/11/29/world/europe/notre-dame-paris-macron.html
-
-**Ex-Mets GM speaks about 'inappropriate relationship' for first time**\
-`The Mets fired Porter within nine hours of an ESPN report that revealed he had sent inappropriate text messages to a female journalist.`\
-https://nytimes.com/athletic/5955717/2024/11/29/mets-jared-porter-inappropriate-messages-comments/
 

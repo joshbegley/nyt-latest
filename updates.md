@@ -1,3 +1,7 @@
+**Chiefs' mounting injuries becoming an obstacle on the road to a three-peat**\
+`Even with their 10-1 record, the Chiefs have used 61 players. In 17 games last season, the Chiefs used just 65 players.`\
+https://nytimes.com/athletic/5951101/2024/11/29/chiefs-injuries-raiders-black-friday/
+
 **Back-post Brennan: How Johnson is building his Tottenham career on a trademark goal**\
 `Ange Postecoglou has given Johnson the kind of coaching Pep Guardiola once did with Raheem Sterling, getting him into better positions`\
 https://nytimes.com/athletic/5956453/2024/11/29/back-post-brennan-how-johnson-is-building-his-tottenham-career-on-a-trademark-goal/
