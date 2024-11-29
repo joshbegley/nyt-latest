@@ -1,3 +1,7 @@
+**For Matt Eberflus and Bears, the math didn't work out. What is next formula for success?**\
+`The Bears made the wrong kind of history when they "relieved" Eberflus on Black Friday. But it was the right decision for this cursed team. `\
+https://nytimes.com/athletic/5957311/2024/11/29/chicago-bears-matt-eberflus-fired/
+
 **Colts rule out WR Josh Downs, 2 starting offensive linemen**\
 `“Just comes down to what the coaches and the trainers think (is) best,” Downs said of being ruled out.`\
 https://nytimes.com/athletic/5957368/2024/11/29/colts-injury-updates-patriots/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/world/canada/canada-openai-lawsuit-copyright.html
 **Vito Is First Pug to Win National Dog Show**\
 `The pup became a sensation when he won best in show at the competition, which was broadcast on Thanksgiving Day. One judge said the 2-year-old is “everything a pug should be.”`\
 https://nytimes.com/2024/11/29/us/vito-pug-national-dog-show.html
-
-**Lions sign LB Kwon Alexander after Malcolm Rodriguez tears ACL**\
-`Rodriguez will miss the remainder of the 2024 season and will be the fourth Lions linebacker placed on injured reserve.`\
-https://nytimes.com/athletic/5957008/2024/11/29/lions-sign-kwon-alexander-malcolm-rodriguez-injury/
 
