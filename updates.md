@@ -1,3 +1,15 @@
+**Earl Holliman, Rugged Screen Presence, Dies at 96**\
+`While never a star, the Golden Globe-winning actor was a familiar face, with roles in “Giant,” “Forbidden Planet” and the 1970s series “Police Woman.”`\
+https://nytimes.com/2024/11/29/movies/earl-holliman-dead.html
+
+**Jared Spurgeon and Marco Rossi flash offense as Wild rally from deficit: 3 takeaways vs. Blackhawks**\
+`Birthday boy Spurgeon scored two goals and Rossi added another as Minnesota rallied from a 2-0 deficit for a 3-2 victory over Chicago.`\
+https://nytimes.com/athletic/5957222/2024/11/29/wild-blackhawks-jared-spurgeon-marco-rossi/
+
+**Lake-Effect Storm to Bring Several Feet of Snow to Great Lakes**\
+`Forecasters warned that some areas would be “paralyzed” by the lake-effect snow. Portions of western New York had already recorded 17 inches of snow by Friday afternoon.`\
+https://nytimes.com/2024/11/29/weather/lake-effect-snow-great-lakes-weather.html
+
 **Travis Hunter tracker: Potential No. 1 NFL Draft pick closes regular season in style**\
 `Friday afternoon may have been Travis Hunter's last opportunity to impress Heisman voters and NFL scouts. He didn't disappoint.`\
 https://nytimes.com/athletic/5957181/2024/11/29/travis-hunter-nfl-draft-2025-oklahoma-state/
