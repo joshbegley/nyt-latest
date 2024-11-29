@@ -1,3 +1,11 @@
+**Romero 'unlikely' to return for Tottenham against Fulham**\
+`Tottenham Hotspur are “unlikely” to have Cristian Romero available for Sunday’s Premier League home game against Fulham.`\
+https://nytimes.com/athletic/5956434/2024/11/29/cristian-romero-injury-tottenham-fulham/
+
+**After a Cease-Fire in Lebanon, Gaza and Iran’s Nuclear Ambitions Await Trump**\
+`A broader peace in the Middle East will be difficult to achieve, and Iran’s threat to Israel looms over any diplomatic effort.`\
+https://nytimes.com/2024/11/29/world/europe/israel-lebanon-iran-gaza.html
+
 **Guimaraes, Willock avoid 'serious' injuries but doubts for Palace trip**\
 `Newcastle United midfielders Bruno Guimaraes and Joe Willock have both avoided serious injury but head coach Eddie Howe says the pair are both still doubts for Saturday’s game at Crystal Palace.`\
 https://nytimes.com/athletic/5956446/2024/11/29/newcastle-guimaraes-willock-injury/

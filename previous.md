@@ -1,3 +1,7 @@
+**Romero 'unlikely' to return for Tottenham against Fulham**\
+`Tottenham Hotspur are “unlikely” to have Cristian Romero available for Sunday’s Premier League home game against Fulham.`\
+https://nytimes.com/athletic/5956434/2024/11/29/cristian-romero-injury-tottenham-fulham/
+
 **Guimaraes, Willock avoid 'serious' injuries but doubts for Palace trip**\
 `Newcastle United midfielders Bruno Guimaraes and Joe Willock have both avoided serious injury but head coach Eddie Howe says the pair are both still doubts for Saturday’s game at Crystal Palace.`\
 https://nytimes.com/athletic/5956446/2024/11/29/newcastle-guimaraes-willock-injury/
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/5953375/2024/11/29/notre-dame-usc-prediction-previe
 
 **After a Cease-Fire in Lebanon, Gaza and Iran’s Nuclear Ambitions Await Trump**\
 `A broader peace in the Middle East will be difficult to achieve, and Iran’s threat to Israel looms over any diplomatic effort.`\
-https://nytimes.com/2024/11/29/world/europe/after-a-cease-fire-in-lebanon-gaza-and-irans-nuclear-ambitions-await-trump.html
+https://nytimes.com/2024/11/29/world/europe/israel-lebanon-iran-gaza.html
 
 **We Asked for Your Offbeat Holiday Traditions. You Delivered.**\
 `Families with holiday rituals are more likely to gather. So here’s to “Ribsgiving,” stinky gifts and fried oysters for Christmas breakfast.`\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/11/29/briefing/trump-israel-lebanon-thanksg
 **‘Stick Season’ Gave This Vermont General Store Pop Music Fame. Now It Needs a Proprietor.**\
 `The hit singer Noah Kahan grew up frequenting Coburns’ General Store and has called it “the heart” of his hometown. His mother is helping lead an effort to save it.`\
 https://nytimes.com/2024/11/29/us/vermont-general-store-noah-kahan.html
-
-**Life After Death: America’s Cemeteries Are Rewilding**\
-`More burial sites are forgoing pristine lawns for drought resistant plants and wildflowers that help wildlife. Efforts picked up in the pandemic.`\
-https://nytimes.com/2024/11/29/climate/life-after-death-americas-cemeteries-are-rewilding.html
 
