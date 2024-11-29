@@ -1,3 +1,11 @@
+**Cowboys Today: Curious sequence, injury updates, chicken nuggets**\
+`The Cowboys hope to finally have DaRon Bland and Trevon Diggs on the field together and a curious sequence of play calls in fourth quarter.`\
+https://nytimes.com/athletic/5957023/2024/11/29/cowboys-beat-giants-thanksgiving-td-celebration/
+
+**Bears fire Eberflus after 6 straight losses, clock management criticism**\
+`Eberflus is the Bears' fourth coach to be fired in the past 11 seasons.`\
+https://nytimes.com/athletic/5955894/2024/11/29/matt-eberflus-fired-bears/
+
 **Jaguars QB Trevor Lawrence expected to play vs. Texans**\
 `Lawrence was sidelined with a left shoulder injury and has not played since Week 9.`\
 https://nytimes.com/athletic/5956979/2024/11/29/jaguars-trevor-lawrence-injury-update-texans/
