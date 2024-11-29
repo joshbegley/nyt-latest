@@ -1,3 +1,7 @@
+**Chiefs survive at Arrowhead on Black Friday after game-ending Raiders botched snap: Takeaways**\
+`Kansas City became the first team to clinch a spot in the postseason after earning a stunning Week 13 victory.`\
+https://nytimes.com/athletic/5957553/2024/11/29/chiefs-raiders-game-takeaways/
+
 **Flyers showing signs they could work their way into playoff picture again**\
 `The Flyers are proving they can still will their way to enough points in the standings to keep things interesting.`\
 https://nytimes.com/athletic/5957614/2024/11/29/flyers-rangers-nhl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957400/2024/11/29/new-york-rangers-trouba-kreider/
 **49ers' QB Purdy questionable vs. Bills; Bosa out**\
 `Purdy is officially listed as questionable for the game, though coach Kyle Shanahan said the plan is for him to start on Sunday.`\
 https://nytimes.com/athletic/5957517/2024/11/29/49ers-purdy-bosa-williams-status-bills/
-
-**Bears go from 'HITS' to firing a coach in-season: The Matt Eberflus timeline**\
-`Eberflus had the defensive acumen, and at times connected with his players, but in the end, the coaching failures added up.`\
-https://nytimes.com/athletic/5957454/2024/11/29/bears-matt-eberflus-timeline/
 
