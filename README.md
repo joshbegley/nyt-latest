@@ -1,3 +1,7 @@
+**Ruben Amorim wants Manchester United to run and run - do they have the legs for it?**\
+`Physicality has been a repeated theme in conversations with the new Manchester United head coach - does this team have what it takes?`\
+https://nytimes.com/athletic/5946106/2024/11/29/amorim-manchester-united-bodo-glimt/
+
 **How China Became the World’s Largest Car Exporter**\
 `Tariffs from the United States and other countries are unlikely to stop China’s auto export dominance.`\
 https://nytimes.com/interactive/2024/11/29/business/china-cars-sales-exports.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5955088/2024/11/29/salah-de-bruyne-new-contract/
 **Rico Dowdle gets first 100-yard game in Cowboys' win, plus 6 more important performances**\
 `Dowdle had a big game, Luke Schoonmaker stepped up, DeMarvion Overshown dominated and Cooper Rush got the job done.`\
 https://nytimes.com/athletic/5956187/2024/11/29/cowboys-beat-giants-rico-dowdle-thursday-night/
-
-**Phallon Tullis-Joyce: From abandoning marine biology to Man Utd No 1 and USWNT selection**\
-`Phallon Tullis-Joyce has repeatedly had to bide her time but she has shown patience and persistence and is now reaping the rewards`\
-https://nytimes.com/athletic/5954680/2024/11/29/phallon-tullis-joyce-uswnt-manchester-united/
 
