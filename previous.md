@@ -1,3 +1,7 @@
+**Flyers showing signs they could work their way into playoff picture again**\
+`The Flyers are proving they can still will their way to enough points in the standings to keep things interesting.`\
+https://nytimes.com/athletic/5957614/2024/11/29/flyers-rangers-nhl-playoffs/
+
 **What will it take for Blackhawks to score more? Bedard with Hall? Nazar?**\
 `The Blackhawks have desperate need to inject a bit more offense into their team and they need it fast.`\
 https://nytimes.com/athletic/5957495/2024/11/29/blackhawks-wild-stats-bedard-hall-nazar/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957517/2024/11/29/49ers-purdy-bosa-williams-status
 **Bears go from 'HITS' to firing a coach in-season: The Matt Eberflus timeline**\
 `Eberflus had the defensive acumen, and at times connected with his players, but in the end, the coaching failures added up.`\
 https://nytimes.com/athletic/5957454/2024/11/29/bears-matt-eberflus-timeline/
-
-**The Evening: Holiday Shopping Got Off to a Cautious Start**\
-`Plus, a look inside a revived Notre Dame.`\
-https://nytimes.com/2024/11/29/briefing/black-friday-trump-project-2025-britain-notre-dame.html
 

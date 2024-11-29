@@ -1,3 +1,7 @@
+**Flyers showing signs they could work their way into playoff picture again**\
+`The Flyers are proving they can still will their way to enough points in the standings to keep things interesting.`\
+https://nytimes.com/athletic/5957614/2024/11/29/flyers-rangers-nhl-playoffs/
+
 **What will it take for Blackhawks to score more? Bedard with Hall? Nazar?**\
 `The Blackhawks have desperate need to inject a bit more offense into their team and they need it fast.`\
 https://nytimes.com/athletic/5957495/2024/11/29/blackhawks-wild-stats-bedard-hall-nazar/
