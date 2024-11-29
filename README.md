@@ -1,3 +1,15 @@
+**Barcelona 125: When their star striker was kidnapped for 23 days**\
+`The kidnapping of Quini is one of the most remarkable stories in Barca's 125-year history`\
+https://nytimes.com/athletic/5955293/2024/11/29/barcelona-125-anniversary-quini-kidnapping/
+
+**Liverpool, Manchester City and knowing when to say goodbye to ageing stars**\
+`Salah and De Bruyne are Premier League stars but they are human, too, and a decline is inevitable, which means any new deal is hard to price`\
+https://nytimes.com/athletic/5955088/2024/11/29/salah-de-bruyne-new-contract/
+
+**Rico Dowdle gets first 100-yard game in Cowboys' win plus 6 more important performances**\
+`Rico Dowdle had a big game, Luke Schoonmaker stepped up, DeMarvion Overshown dominated and Cooper Rush got the job done.`\
+https://nytimes.com/athletic/5956187/2024/11/29/cowboys-beat-giants-rico-dowdle-thursday-night/
+
 **Phallon Tullis-Joyce: From abandoning marine biology to Man Utd No 1 and USWNT selection**\
 `Phallon Tullis-Joyce has repeatedly had to bide her time but she has shown patience and persistence and is now reaping the rewards`\
 https://nytimes.com/athletic/5954680/2024/11/29/phallon-tullis-joyce-uswnt-manchester-united/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/29/science/killer-whales-whale-sharks-livers.html
 **It All Started With an Unexpected Hug and a Selfie**\
 `Jeffrey Ballou and Rasheedah Thomas unintentionally memorialized what would become one of the most significant days of their lives.`\
 https://nytimes.com/2024/11/29/style/rasheedah-thomas-jeffrey-ballou-wedding.html
-
-**Black Friday Used to Be Fun. Now, Many Shoppers Would Rather Sleep In.**\
-`Lining up early outside stores and hunting for deals was once part of a gratifying Black Friday. It no longer feels that way.`\
-https://nytimes.com/2024/11/29/business/black-friday-shoppers-sales.html
-
-**A Breakup Was Just the Beginning of Their Story**\
-`When Amaiya Davis and Matthew Wynter’s relationship ended abruptly, Ms. Davis blamed it on a cosmic shift, but she never lost hope. “I think part of me always knew we would get back together,” she said.`\
-https://nytimes.com/2024/11/29/style/amaiya-davis-matthew-wynter-wedding.html
-
-**A Union That Was Meant to Be**\
-`The parents of Dr. Hilary Gallin and Joshua Brodie were trying to set them up for months. Little did they know, the couple had already connected.`\
-https://nytimes.com/2024/11/29/style/hilary-gallin-joshua-brodie-wedding.html
 
