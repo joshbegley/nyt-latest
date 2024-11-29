@@ -1,3 +1,11 @@
+**Ex-Mets GM speaks about 'inappropriate relationship' for first time**\
+`The Mets fired Porter within nine hours of an ESPN report that revealed he had sent inappropriate text messages to a female journalist.`\
+https://nytimes.com/athletic/5955717/2024/11/29/mets-jared-porter-inappropriate-messages-comments/
+
+**The Athletic’s Friday football quiz question #32**\
+`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/5954698/2024/11/29/the-athletic-friday-football-quiz-question-32/
+
 **Lowetide: What's the collective impact of Oilers' mass asset exits over a decade?**\
 `The Oilers are a team with a farm system that is low in quality and quantity at the moment.`\
 https://nytimes.com/athletic/5955042/2024/11/29/oilers-assets-chiarelli-holland-bowman/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/29/opinion/tragic-optimism.html
 **The Beauty I’ve Found Amid My Dad’s Alzheimer’s**\
 `When Dad first started forgetting things, I thought I’d lost him. I didn’t imagine I’d have more of him than I did before.`\
 https://nytimes.com/2024/11/29/opinion/alzheimers-elder-care.html
-
-**Supporting Local News, and Doctors Taking a Risk**\
-`With Trump’s return, both journalists and abortion pill providers need help.`\
-https://nytimes.com/2024/11/29/opinion/charity-holiday-gift-local-news-doctors.html
-
-**Jerry Jeudy is heating up for Browns, but Broncos were right to change WR picture**\
-`The development of the receiving corps that helped replace Jeudy is one reason the Broncos have taken a step forward on offense.`\
-https://nytimes.com/athletic/5954916/2024/11/29/jerry-jeudy-browns-broncos-receivers/
 

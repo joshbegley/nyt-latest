@@ -1,3 +1,11 @@
+**Ex-Mets GM speaks about 'inappropriate relationship' for first time**\
+`The Mets fired Porter within nine hours of an ESPN report that revealed he had sent inappropriate text messages to a female journalist.`\
+https://nytimes.com/athletic/5955717/2024/11/29/mets-jared-porter-inappropriate-messages-comments/
+
+**The Athletic’s Friday football quiz question #32**\
+`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/5954698/2024/11/29/the-athletic-friday-football-quiz-question-32/
+
 **Lowetide: What's the collective impact of Oilers' mass asset exits over a decade?**\
 `The Oilers are a team with a farm system that is low in quality and quantity at the moment.`\
 https://nytimes.com/athletic/5955042/2024/11/29/oilers-assets-chiarelli-holland-bowman/
