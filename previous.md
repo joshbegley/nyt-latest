@@ -1,3 +1,11 @@
+**What we're hearing on Igor Shesterkin's contract, Rangers trade targets and more**\
+`The fallout of Chris Drury's memo to other NHL GMs continues to play out as the Rangers take on the Flyers on Black Friday.`\
+https://nytimes.com/athletic/5956450/2024/11/29/rangers-nhl-shesterkin-trade-trouba/
+
+**16-year-old writes apology letter for racially abusing Vinicius Junior**\
+`A 16-year-old who racially abused Vinicius Junior has written a letter of apology to the Real Madrid forward.`\
+https://nytimes.com/athletic/5956773/2024/11/29/vinicius-junior-racism-letter-minor/
+
 **California Man to Reunite With Family 25 Years After He ‘Vanished With No Trace’**\
 `Marcella Nasseri saw a man who resembled her long-lost brother in the news. Fingerprint scans solved the decades-old case.`\
 https://nytimes.com/2024/11/29/us/family-member-reunited-decades-later.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009851562/world-gets-first-glimpse-
 **The ‘Braiding Sweetgrass’ Author Wants Us to Give Thanks Every Day**\
 `The world is a gift, not a giant Amazon warehouse, Robin Wall Kimmerer said. In her new book, “The Serviceberry,” she proposes gratitude as an antidote to prevailing views of nature as a commodity.`\
 https://nytimes.com/2024/11/29/books/braiding-sweetgrass-serviceberry-robin-wall-kimmerer.html
-
-**You’re Hungover. Can Exercise Help?**\
-`If you overdid it last night, here’s how to know whether it’s wise to sweat through it.`\
-https://nytimes.com/2024/11/29/well/move/hangover-exercise-workout.html
-
-**Back-post Brennan: How Johnson is building his Tottenham career on a trademark goal**\
-`Ange Postecoglou has given Johnson the kind of coaching Pep Guardiola once did with Raheem Sterling, getting him into better positions`\
-https://nytimes.com/athletic/5956453/2024/11/29/back-post-brennan-how-johnson-is-building-his-tottenham-career-on-a-trademark-goal/
 

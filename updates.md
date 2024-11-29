@@ -1,3 +1,11 @@
+**What we're hearing on Igor Shesterkin's contract, Rangers trade targets and more**\
+`The fallout of Chris Drury's memo to other NHL GMs continues to play out as the Rangers take on the Flyers on Black Friday.`\
+https://nytimes.com/athletic/5956450/2024/11/29/rangers-nhl-shesterkin-trade-trouba/
+
+**16-year-old writes apology letter for racially abusing Vinicius Junior**\
+`A 16-year-old who racially abused Vinicius Junior has written a letter of apology to the Real Madrid forward.`\
+https://nytimes.com/athletic/5956773/2024/11/29/vinicius-junior-racism-letter-minor/
+
 **California Man to Reunite With Family 25 Years After He ‘Vanished With No Trace’**\
 `Marcella Nasseri saw a man who resembled her long-lost brother in the news. Fingerprint scans solved the decades-old case.`\
 https://nytimes.com/2024/11/29/us/family-member-reunited-decades-later.html
