@@ -1,3 +1,7 @@
+**Fantasy football flex fliers: Take the MVS ride, gamble on Adonai Mitchell in Week 13**\
+`Scott Engel discusses who you to pick up in free agency, including Marquez Valdes-Scantling and Adonai Mitchell`\
+https://nytimes.com/athletic/5956660/2024/11/29/fantasy-football-flex-fliers-take-the-mvs-ride-gamble-on-adonai-mitchell-in-week-13/
+
 **Cunha 'definitely not' leaving Wolves in January, says O'Neil**\
 `Wolves head coach Gary O’Neil says star forward Matheus Cunha will “definitely not” leave Wolves in the January transfer window.`\
 https://nytimes.com/athletic/5956739/2024/11/29/matheus-cunha-transfer-wolves-oneil/
