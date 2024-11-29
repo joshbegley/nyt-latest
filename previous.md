@@ -1,3 +1,7 @@
+**Blackhawks goalie Laurent Brossoit to miss more time after second knee surgery**\
+`Brossoit initially underwent meniscus surgery in late August and was expected to miss five-to-seven weeks.`\
+https://nytimes.com/athletic/5956980/2024/11/29/blackhawks-laurent-brossoit-injury-timeline/
+
 **Bears fire coach Matt Eberflus amid 4-8 season**\
 `Eberflus is the Bears' fourth coach to be fired in the past 11 seasons.`\
 https://nytimes.com/athletic/5955894/2024/11/29/matt-eberflus-fired-bears/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5954633/2024/11/29/ibrahima-konate-injury-liverpool
 `A new production in London, starring Ncuti Gatwa, releases Oscar Wilde’s 1895 comedy from period convention and brings it stunningly into the 21st century.`\
 https://nytimes.com/2024/11/29/theater/the-importance-of-being-earnest-ncuti-gatwa.html
 
+**Greenberg: Bears GM Ryan Poles should fire Matt Eberflus for his own sake after latest debacle**\
+`You can’t come back from this embarrassment. You just can't. With a little more than a month left, the Bears need to salvage some dignity.`\
+https://nytimes.com/athletic/5956200/2024/11/29/bears-lions-matt-eberflus-ryan-poles/
+
 **Hayes says USWNT don't have time to talk politics ahead of England friendly**\
 `United States head coach Emma Hayes says her side does not have time to talk politics as the former Chelsea boss returns to England.`\
 https://nytimes.com/athletic/5956752/2024/11/29/emma-hayes-uswnt-politics/
-
-**Barcelona 125: Lionel Messi speaks about his 'special club' but is yet to return**\
-`Barcelona's brightest star did an interview to mark the club's 125th anniversary but declined an invite to today's celebratory gala`\
-https://nytimes.com/athletic/5949405/2024/11/29/lionel-messi-barcelona-125-history/
-
-**Our Favorite Travel Destinations in 2024**\
-`From France’s Cap Ferret to Japan’s Kagoshima, T looks back at some of this year’s most enticing getaways.`\
-https://nytimes.com/2024/11/29/t-magazine/flocking-to-favorite-destinations.html
 

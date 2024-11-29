@@ -1,3 +1,11 @@
+**Blackhawks goalie Laurent Brossoit to miss more time after second knee surgery**\
+`Brossoit initially underwent meniscus surgery in late August and was expected to miss five-to-seven weeks.`\
+https://nytimes.com/athletic/5956980/2024/11/29/blackhawks-laurent-brossoit-injury-timeline/
+
+**Greenberg: Bears GM Ryan Poles should fire Matt Eberflus for his own sake after latest debacle**\
+`You can’t come back from this embarrassment. You just can't. With a little more than a month left, the Bears need to salvage some dignity.`\
+https://nytimes.com/athletic/5956200/2024/11/29/bears-lions-matt-eberflus-ryan-poles/
+
 **Bears fire coach Matt Eberflus amid 4-8 season**\
 `Eberflus is the Bears' fourth coach to be fired in the past 11 seasons.`\
 https://nytimes.com/athletic/5955894/2024/11/29/matt-eberflus-fired-bears/
