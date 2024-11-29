@@ -1,3 +1,7 @@
+**Bears' Matt Eberflus keeps his job for now, confident he'll coach their next game**\
+`The Bears could still fire Eberflus later today or on Saturday, but will they? He said he believes he'll coach the team against the 49ers.`\
+https://nytimes.com/athletic/5956909/2024/11/29/bears-matt-eberflus-lions/
+
 **Texas A&M flips Michigan QB commit Hart after Underwood's switch to UM**\
 `Hart, who attends Cocoa (Fla.) High School, was the No. 6 quarterback and the No. 98 prospect in the 247Sports Composite rankings for 2026.`\
 https://nytimes.com/athletic/5956911/2024/11/29/texas-am-brady-hart-qb-recruiting-michigan/
