@@ -1,3 +1,11 @@
+**With Discounts on Offer, Shoppers Seem to Bite**\
+`Early data on online spending this week shows consumers are being drawn to discounts. A clearer picture of Black Friday sales, including in-store spending, will emerge in the days ahead.`\
+https://nytimes.com/2024/11/29/business/black-friday-holiday-shopping.html
+
+**Dodgers, Tommy Edman agree to 5-year, $74 million contract extension**\
+`Edman, 29, went 11-for-27 (.407) with one home run, three doubles and 11 RBI in the Dodgers’ NLCS win over the Mets and won NLCS MVP honors.`\
+https://nytimes.com/athletic/5957552/2024/11/29/dodgers-tommy-edman-extension/
+
 **J. Stanley Pottinger, 84, Dies; Official Figured Out Identity of ‘Deep Throat’**\
 `A former Nixon official (and later a novelist), he led an investigation in which a shadowy Watergate figure squirmed when asked if he had been an anonymous whistle blower.`\
 https://nytimes.com/2024/11/29/us/politics/j-stanley-pottinger-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5957222/2024/11/29/wild-blackhawks-jared-spurgeon-m
 **Hunter, Colorado demolish OK State 52-0 in regular-season finale: Key takeaways**\
 `Hunter, the Heisman Trophy front-runner, scored three touchdowns and intercepted a pass.`\
 https://nytimes.com/athletic/5957385/2024/11/29/colorado-oklahoma-state-result-score-takeaways/
-
-**Shouldn’t Trump Voters Be Viewed as Traitors?**\
-`The magazine’s Ethicist columnist on whether voters should be held accountable for their chosen candidate’s behavior.`\
-https://nytimes.com/2024/11/29/magazine/trump-voters-considered-traitors-ethics.html
-
-**Herdman resigns as Toronto FC head coach**\
-`John Herdman has resigned from his position as head coach of Toronto FC, the team announced Friday.`\
-https://nytimes.com/athletic/5957430/2024/11/29/toronto-fc-coach-john-herdman/
 

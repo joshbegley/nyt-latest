@@ -1,3 +1,11 @@
+**With Discounts on Offer, Shoppers Seem to Bite**\
+`Early data on online spending this week shows consumers are being drawn to discounts. A clearer picture of Black Friday sales, including in-store spending, will emerge in the days ahead.`\
+https://nytimes.com/2024/11/29/business/black-friday-holiday-shopping.html
+
+**Dodgers, Tommy Edman agree to 5-year, $74 million contract extension**\
+`Edman, 29, went 11-for-27 (.407) with one home run, three doubles and 11 RBI in the Dodgers’ NLCS win over the Mets and won NLCS MVP honors.`\
+https://nytimes.com/athletic/5957552/2024/11/29/dodgers-tommy-edman-extension/
+
 **J. Stanley Pottinger, 84, Dies; Official Figured Out Identity of ‘Deep Throat’**\
 `A former Nixon official (and later a novelist), he led an investigation in which a shadowy Watergate figure squirmed when asked if he had been an anonymous whistle blower.`\
 https://nytimes.com/2024/11/29/us/politics/j-stanley-pottinger-dead.html
