@@ -1,3 +1,7 @@
+**'We'll take any win we can': Banged-up Lions edge Bears to earn elusive happy Thanksgiving**\
+`The Lions are now 11-1 for the first time ever.`\
+https://nytimes.com/athletic/5956018/2024/11/28/lions-bears-thanksgiving-win/
+
 **Art Collector Who Bought a $6 Million Banana Offers to Buy 100,000 More**\
 `The vendor who sold the banana only received a quarter for the fruit. Now the buyer of the conceptual work has offered his fruit stand a bigger payday.`\
 https://nytimes.com/2024/11/28/nyregion/banana-sothebys-fruit-stand.html
