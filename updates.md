@@ -1,3 +1,11 @@
+**Canada Accuses Google of Creating an Ad Tech Monopoly**\
+`The case largely echoes an antitrust action in the United States and seeks to force Google to sell off sections of its online ad business.`\
+https://nytimes.com/2024/11/28/world/canada/google-complaint-ad-monopoly.html
+
+**Matt Eberflus explains why Bears didn't use TO at end of game vs. Lions**\
+`Chicago ran one play in the final 32 seconds — despite having one timeout left to use. `\
+https://nytimes.com/athletic/5955902/2024/11/28/bears-lions-timeout-matt-eberflus/
+
 **The Moral Challenge of Trumpism**\
 `Trumpism represents an alternative value system. The people I regard as upright and admirable MAGA regards as morally disgraceful.`\
 https://nytimes.com/2024/11/28/opinion/trump-values-maga-cabinet.html
