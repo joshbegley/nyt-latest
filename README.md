@@ -1,3 +1,7 @@
+**Ole Miss' QB Dart overtakes Eli Manning's school record for passing yards**\
+`Dart is also the winningest quarterback in the school's modern history with 26 career victories.`\
+https://nytimes.com/athletic/5957547/2024/11/29/jaxson-dart-eli-manning-ole-miss-quarterback-record/
+
 **Trudeau Flies to Mar-a-Lago to See Trump Amid Tariff Concerns**\
 `Prime Minister Justin Trudeau is under pressure to persuade President-elect Donald J. Trump to back down from a threat to impose a 25 percent tariff on all goods imported from Canada.`\
 https://nytimes.com/2024/11/29/world/canada/trudeau-trump-mar-a-lago-tariffs.html
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/5957400/2024/11/29/new-york-rangers-trouba-kreider/
 https://nytimes.com/athletic/5957517/2024/11/29/49ers-purdy-bosa-williams-status-bills/
 
 **Bears go from 'HITS' to firing a coach in-season: The Matt Eberflus timeline**\
-`Matt Eberflus went 14-32 as Chicago Bears head coach.`\
+`Eberflus had the defensive acumen, and at times connected with his players, but in the end, the coaching failures added up.`\
 https://nytimes.com/athletic/5957454/2024/11/29/bears-matt-eberflus-timeline/
 
 **The Evening: Holiday Shopping Got Off to a Cautious Start**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/briefing/black-friday-trump-project-2025-britain-
 **With Discounts on Offer, Shoppers Seem to Bite**\
 `Early data on online spending this week shows consumers are being drawn to discounts. A clearer picture of Black Friday sales, including in-store spending, will emerge in the days ahead.`\
 https://nytimes.com/2024/11/29/business/black-friday-holiday-shopping.html
-
-**Dodgers, Tommy Edman agree to 5-year, $74 million contract extension**\
-`Edman, 29, went 11-for-27 (.407) with one home run, three doubles and 11 RBI in the Dodgers’ NLCS win over the Mets and won NLCS MVP honors.`\
-https://nytimes.com/athletic/5957552/2024/11/29/dodgers-tommy-edman-extension/
 
