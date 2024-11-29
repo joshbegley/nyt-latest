@@ -1,3 +1,7 @@
+**Hayes says USWNT don't have time to talk politics ahead of England friendly**\
+`United States head coach Emma Hayes says her side does not have time to talk politics as the former Chelsea boss returns to England.`\
+https://nytimes.com/athletic/5956752/2024/11/29/emma-hayes-uswnt-politics/
+
 **Barcelona 125: Lionel Messi speaks about his 'special club' but is yet to return**\
 `Barcelona's brightest star did an interview to mark the club's 125th anniversary but declined an invite to today's celebratory gala`\
 https://nytimes.com/athletic/5949405/2024/11/29/lionel-messi-barcelona-125-history/
