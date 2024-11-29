@@ -1,3 +1,7 @@
+**Sinner doping appeal not set to be heard before Australian Open**\
+`Jannik Sinner is set to be able to defend his Australian Open title with the appeal against his doping sanction not set to be heard by the Court of Arbitration for Sport (CAS) before the tournament begins in January.`\
+https://nytimes.com/athletic/5957285/2024/11/29/jannik-sinner-doping-cas-wada-appeal/
+
 **Major Canadian News Outlets Sue OpenAI in New Copyright Case**\
 `A coalition of some of Canada’s biggest media companies is seeking billions of dollars in compensation for what they say is copyright infringement on their work through ChatGPT.`\
 https://nytimes.com/2024/11/29/world/canada/canada-openai-lawsuit-copyright.html

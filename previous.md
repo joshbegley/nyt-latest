@@ -1,3 +1,7 @@
+**Sinner doping appeal not set to be heard before Australian Open**\
+`Jannik Sinner is set to be able to defend his Australian Open title with the appeal against his doping sanction not set to be heard by the Court of Arbitration for Sport (CAS) before the tournament begins in January.`\
+https://nytimes.com/athletic/5957285/2024/11/29/jannik-sinner-doping-cas-wada-appeal/
+
 **Major Canadian News Outlets Sue OpenAI in New Copyright Case**\
 `A coalition of some of Canada’s biggest media companies is seeking billions of dollars in compensation for what they say is copyright infringement on their work through ChatGPT.`\
 https://nytimes.com/2024/11/29/world/canada/canada-openai-lawsuit-copyright.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/29/business/stock-market-election-trump.html
 **France Loses its Longtime Military Partner in Africa, Chad**\
 `The decision by Chad is another blow to what remained of France’s military influence in the troubled stretch of countries below the Sahara, where Russia’s influence has been growing.`\
 https://nytimes.com/2024/11/29/world/europe/france-chad-military-ally.html
-
-**NFL Week 13 fantasy football, betting cheat sheet: O'Connell, Pacheco active for Week 13**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5947140/2024/11/29/nfl-week-13-fantasy-football-betting-cheat-sheet-injuries-weather-rankings/
 
