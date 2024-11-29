@@ -1,3 +1,11 @@
+**Alabama vs. Auburn is a rivalry of elites — in basketball, not football**\
+`These may never be “basketball schools,” but their men’s basketball programs right now are good enough to play each for a national title. `\
+https://nytimes.com/athletic/5956688/2024/11/29/alabama-auburn-iron-bowl-basketball/
+
+**World Gets First Glimpse Into Notre-Dame’s Renovated Interior**\
+`President Emmanuel Macron of France toured the Paris cathedral five years after it was damaged in a devastating fire. The landmark is expected to reopen to the public next month.`\
+https://nytimes.com/video/world/europe/100000009851562/world-gets-first-glimpse-into-notre-dames-renovated-interior.html
+
 **The ‘Braiding Sweetgrass’ Author Wants Us to Give Thanks Every Day**\
 `The world is a gift, not a giant Amazon warehouse, Robin Wall Kimmerer said. In her new book, “The Serviceberry,” she proposes gratitude as an antidote to prevailing views of nature as a commodity.`\
 https://nytimes.com/2024/11/29/books/braiding-sweetgrass-serviceberry-robin-wall-kimmerer.html

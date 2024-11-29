@@ -1,3 +1,11 @@
+**Alabama vs. Auburn is a rivalry of elites — in basketball, not football**\
+`These may never be “basketball schools,” but their men’s basketball programs right now are good enough to play each for a national title. `\
+https://nytimes.com/athletic/5956688/2024/11/29/alabama-auburn-iron-bowl-basketball/
+
+**World Gets First Glimpse Into Notre-Dame’s Renovated Interior**\
+`President Emmanuel Macron of France toured the Paris cathedral five years after it was damaged in a devastating fire. The landmark is expected to reopen to the public next month.`\
+https://nytimes.com/video/world/europe/100000009851562/world-gets-first-glimpse-into-notre-dames-renovated-interior.html
+
 **The ‘Braiding Sweetgrass’ Author Wants Us to Give Thanks Every Day**\
 `The world is a gift, not a giant Amazon warehouse, Robin Wall Kimmerer said. In her new book, “The Serviceberry,” she proposes gratitude as an antidote to prevailing views of nature as a commodity.`\
 https://nytimes.com/2024/11/29/books/braiding-sweetgrass-serviceberry-robin-wall-kimmerer.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5956216/2024/11/29/drew-lock-giants-cowboys-loss-to
 **Britain’s Transport Secretary Quits After Phone Offense Revealed**\
 `In the latest setback for Prime Minister Keir Starmer, Louise Haigh resigned from the cabinet Friday after admitting she pleaded guilty to a type of fraud in 2014.`\
 https://nytimes.com/2024/11/29/world/europe/uk-transport-secretary-louise-haigh-resigns-conviction.html
-
-**The Athletic FC: Who could move in January? Retelling Barca's kidnap drama; view of MLS Cup**\
-`Today in TAFC: All the possible big deals in January, the story of a Barcelona kidnap in 1981, and how Hojlund helped Amorim get first win`\
-https://nytimes.com/athletic/5956487/2024/11/29/premier-league-transfers-january-barcelona-kidnap/
-
-**How Norman Powell, with Kobe's help, is making an NBA All-Star case**\
-`At 31 and in his 10th NBA season, Powell has always believed he could do more and achieve more. He's showing it in a breakthrough campaign.`\
-https://nytimes.com/athletic/5954059/2024/11/29/norman-powell-exclusive-clippers-nba-all-star/
 
