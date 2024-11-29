@@ -1,3 +1,7 @@
+**Back-post Brennan: How Johnson is building his Tottenham career on a trademark goal**\
+`Ange Postecoglou has given Johnson the kind of coaching Pep Guardiola once did with Raheem Sterling, getting him into better positions`\
+https://nytimes.com/athletic/5956453/2024/11/29/back-post-brennan-how-johnson-is-building-his-tottenham-career-on-a-trademark-goal/
+
 **Chargers mailbag: What will make this a successful season for Jim Harbaugh?**\
 `Postseason success isn't what will define Harbaugh's debut season in L.A., though the Chargers' playoff odds look good. `\
 https://nytimes.com/athletic/5953501/2024/11/29/chargers-mailbag-jim-harbaugh-success/
