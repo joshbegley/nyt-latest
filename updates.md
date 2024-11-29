@@ -1,4 +1,8 @@
 **How Norman Powell, with Kobe's help, is making an NBA All-Star case**\
+`At 31 and in his 10th NBA season, Powell has always believed he could do more and achieve more. He's showing it in a breakthrough campaign.`\
+https://nytimes.com/athletic/5954059/2024/11/29/norman-powell-exclusive-clippers-nba-all-star/
+
+**How Norman Powell, with Kobe's help, is making an NBA All-Star case**\
 `At 31 and in his 10th NBA season, Powell has always believed he could do more and achieve more. He's showing in a breakthrough campaign.`\
 https://nytimes.com/athletic/5954059/2024/11/29/norman-powell-exclusive-clippers-nba-all-star/
 
