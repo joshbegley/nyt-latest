@@ -1,3 +1,7 @@
+**Cowboys run game, defense shine in Thanksgiving win vs. Giants: Takeaways**\
+`The Cowboys reignited their ground game, securing their fourth 100-yard rushing game of the season`\
+https://nytimes.com/athletic/5955835/2024/11/28/giants-cowboys-scores-takeaways-results/
+
 **Cowboys run game, defense shine in 27-20 Thanksgiving home win vs. Giants: Takeaways**\
 `The Cowboys reignited their ground game, securing their fourth 100-yard rushing game of the season`\
 https://nytimes.com/athletic/5955835/2024/11/28/giants-cowboys-scores-takeaways-results/
