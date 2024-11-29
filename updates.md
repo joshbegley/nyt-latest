@@ -1,3 +1,7 @@
+**What will it take for Blackhawks to score more? Bedard with Hall? Nazar?**\
+`The Blackhawks have desperate need to inject a bit more offense into their team and they need it fast.`\
+https://nytimes.com/athletic/5957495/2024/11/29/blackhawks-wild-stats-bedard-hall-nazar/
+
 **Ole Miss' QB Dart overtakes Eli Manning's school record for passing yards**\
 `Dart is also the winningest quarterback in the school's modern history with 26 career victories.`\
 https://nytimes.com/athletic/5957547/2024/11/29/jaxson-dart-eli-manning-ole-miss-quarterback-record/
