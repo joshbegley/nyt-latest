@@ -1,3 +1,11 @@
+**Raiders ask NFL to review final play of loss vs. Chiefs**\
+`The Raiders said they heard an official's whistle on the last play of Friday's game that resulted in a fumble and a 19-17 loss.`\
+https://nytimes.com/athletic/5958469/2024/11/30/las-vegas-raiders-kansas-city-chiefs-video-review/
+
+**The Briefing: West Ham 2 Arsenal 5: Gabriel - king of corners, Saka's record to chase,**\
+`Arsenal beat West Ham 5-2 as they look to put pressure on Liverpool at the top of the Premier League. Here are the big talking points...`\
+https://nytimes.com/athletic/5952416/2024/11/30/west-ham-2-arsenal-5-result-premier-league-saka-gabriel/
+
 **'In the final analysis,' Iowa keeps making Nebraska pay in rising rivalry**\
 `Former Nebraska AD Shawn Eichorst awoke something in Iowa on Nov. 30, 2014 that still carries ramifications for today’s Huskers.`\
 https://nytimes.com/athletic/5958432/2024/11/30/iowa-nebraska-rivalry-history-shawn-eichorst/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/30/us/lake-effect-snow-buffalo-ny-great-lakes.html
 **Best Movies of 2024**\
 `Our film critics rank their 10 favorites this year.`\
 https://nytimes.com/2024/11/30/movies/best-movies-2024.html
-
-**The Briefing: Palace 1 Newcastle 1: Wilson puzzle, Guehi gift, Munoz makes amends**\
-`Newcastle drew 1-1 with Crystal Palace at Selhurst Park. Here are the key talking points...`\
-https://nytimes.com/athletic/5952415/2024/11/30/crystal-palace-1-newcastle-1-premier-league-result/
-
-**Best TV Shows of 2024**\
-`“English Teacher,” “My Brilliant Friend,” “Shogun,” “Babylon Berlin” and “Somebody Somewhere” were among the series that stood out in a year when television felt more mid than ever.`\
-https://nytimes.com/2024/11/30/arts/television/best-tv-shows-2024.html
 

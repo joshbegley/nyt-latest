@@ -1,3 +1,7 @@
+**England 0-0 USWNT takeaways: New-look front three offer promise, if not goals**\
+`The United States duked out a rather tepid 0-0 game against England at Wembley in front of 78,346 fans.`\
+https://nytimes.com/athletic/5958233/2024/11/30/england-0-0-uswnt-takeaways/
+
 **Raiders ask NFL to review final play of loss vs. Chiefs**\
 `The Raiders said they heard an official's whistle on the last play of Friday's game that resulted in a fumble and a 19-17 loss.`\
 https://nytimes.com/athletic/5958469/2024/11/30/las-vegas-raiders-kansas-city-chiefs-video-review/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958422/2024/11/30/chris-wood-forest-goals-record/
 **Great Lakes Storm Dumps 2 Feet of Snow on Northeast and Midwest, With More to Come**\
 `The lake-effect storm disrupted holiday plans and travel across the region. National Guard troops were dispatched in New York and Pennsylvania.`\
 https://nytimes.com/2024/11/30/us/lake-effect-snow-buffalo-ny-great-lakes.html
-
-**Best Movies of 2024**\
-`Our film critics rank their 10 favorites this year.`\
-https://nytimes.com/2024/11/30/movies/best-movies-2024.html
 

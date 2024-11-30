@@ -1,3 +1,11 @@
+**Raiders ask NFL to review final play of loss vs. Chiefs**\
+`The Raiders said they heard an official's whistle on the last play of Friday's game that resulted in a fumble and a 19-17 loss.`\
+https://nytimes.com/athletic/5958469/2024/11/30/las-vegas-raiders-kansas-city-chiefs-video-review/
+
+**The Briefing: West Ham 2 Arsenal 5: Gabriel - king of corners, Saka's record to chase,**\
+`Arsenal beat West Ham 5-2 as they look to put pressure on Liverpool at the top of the Premier League. Here are the big talking points...`\
+https://nytimes.com/athletic/5952416/2024/11/30/west-ham-2-arsenal-5-result-premier-league-saka-gabriel/
+
 **Max Verstappen claims first F1 pole in 5 months at Qatar Grand Prix**\
 `Verstappen hadn't taken pole this season since the Austrian Grand Prix in June.`\
 https://nytimes.com/athletic/5958536/2024/11/30/max-verstappen-f1-pole-qatar-gp/
