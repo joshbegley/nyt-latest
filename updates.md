@@ -1,3 +1,7 @@
+**Best Movies of 2024**\
+`Our film critics rank their 10 favorites this year.`\
+https://nytimes.com/2024/11/30/movies/best-movies-2024.html
+
 **The Briefing: Palace 1 Newcastle 1: Wilson puzzle, Guehi gift, Munoz makes amends**\
 `Newcastle drew 1-1 with Crystal Palace at Selhurst Park. Here are the key talking points...`\
 https://nytimes.com/athletic/5952415/2024/11/30/crystal-palace-1-newcastle-1-premier-league-result/
