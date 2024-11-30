@@ -1,3 +1,7 @@
+**13 insights fantasy football managers need to know ahead of Week 13**\
+`Among Theo Gremminger's latest fantasy football insights, he says Tee Higgins is sitting in the catbird seat of the 2025 free agency class.`\
+https://nytimes.com/athletic/5957372/2024/11/30/13-insights-fantasy-football-managers-need-to-know-ahead-of-week-13/
+
 **Michigan at Ohio State picks, odds: Buckeyes look to end skid against Wolverines**\
 `Ohio State hosts Michigan in the latest edition of one of college football's top rivalries. Can the Buckeyes end the skid to their rivals?`\
 https://nytimes.com/athletic/5957041/2024/11/30/michigan-ohio-state-how-to-watch-picks-odds/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5957776/2024/11/29/nhl-hurricanes-jackson-blake-roo
 **How the Raiders fumbled away a golden opportunity to beat the Chiefs**\
 `In position to upset the defending champs, Jackson Powers-Johnson snapped the ball before Aidan O'Connell was ready — and the game was lost.`\
 https://nytimes.com/athletic/5957758/2024/11/29/raiders-botched-snap-fumble-chiefs/
-
-**Corrections: Nov. 30, 2024**\
-`Corrections that appeared in print on Saturday, Nov. 30, 2024.`\
-https://nytimes.com/2024/11/29/pageoneplus/corrections-nov-30-2024.html
 
