@@ -1,3 +1,7 @@
+**St Pauli are finding their feet in the Bundesliga - and the roar at the Millerntor shows survival matters**\
+`The club are adjusting to life back in the elite after the loss of their head coach and leading scorer, but there is belief they can survive`\
+https://nytimes.com/athletic/5957723/2024/11/30/pauli-bundesliga-millerntor-blessin/
+
 **The Bears finally fired Matt Eberflus. But he lost the locker room long ago**\
 `The Shane Waldron experience and the Hail Mary debacle cost Eberflus credibility at Halas Hall. The Thanksgiving loss was the last straw.`\
 https://nytimes.com/athletic/5957910/2024/11/30/matt-eberflus-fired-bears-players-locker-room/

@@ -1,3 +1,7 @@
+**St Pauli are finding their feet in the Bundesliga - and the roar at the Millerntor shows survival matters**\
+`The club are adjusting to life back in the elite after the loss of their head coach and leading scorer, but there is belief they can survive`\
+https://nytimes.com/athletic/5957723/2024/11/30/pauli-bundesliga-millerntor-blessin/
+
 **The Bears finally fired Matt Eberflus. But he lost the locker room long ago**\
 `The Shane Waldron experience and the Hail Mary debacle cost Eberflus credibility at Halas Hall. The Thanksgiving loss was the last straw.`\
 https://nytimes.com/athletic/5957910/2024/11/30/matt-eberflus-fired-bears-players-locker-room/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/30/opinion/dating-bro-culture-manosphere-trump-cinde
 **Rodrygo to return from injury for Madrid against Getafe**\
 `Real Madrid are set to be boosted with Rodrygo&#8217;s return from injury for the La Liga game with Getafe on Sunday.`\
 https://nytimes.com/athletic/5958088/2024/11/30/rodrygo-real-madrid-injury-latest/
-
-**Israeli Strike in North Gaza Kills Dozens, Rescue Group Says**\
-`Israel was pressing forward with an operation in Gaza to combat what it described as a Hamas resurgence. In Lebanon, an uneasy cease-fire appeared to be largely holding.`\
-https://nytimes.com/2024/11/30/world/middleeast/israel-north-gaza-lebanon-cease-fire.html
 
