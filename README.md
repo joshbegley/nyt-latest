@@ -1,3 +1,7 @@
+**Hal Lindsey, Author of ‘The Late, Great Planet Earth,’ Dies at 95**\
+`In that 1970 book and others he wrote of history and apocalyptic predictions based on biblical interpretations and actual events of the time.`\
+https://nytimes.com/2024/11/30/books/hal-lindsey-dead.html
+
 **Israel Accuses World Central Kitchen Worker of Role in Oct. 7 Attack**\
 `The Israeli military said it killed the worker in a strike in Gaza on Saturday. “To the best of our knowledge, no WCK team members are affiliated with Hamas,” a spokeswoman for the aid group said.`\
 https://nytimes.com/2024/11/30/world/middleeast/israel-gaza-world-central-kitchen.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952416/2024/11/30/west-ham-2-arsenal-5-result-prem
 **'In the final analysis,' Iowa keeps making Nebraska pay in rising rivalry**\
 `Former Nebraska AD Shawn Eichorst awoke something in Iowa on Nov. 30, 2014 that still carries ramifications for today’s Huskers.`\
 https://nytimes.com/athletic/5958432/2024/11/30/iowa-nebraska-rivalry-history-shawn-eichorst/
-
-**Max Verstappen claims first F1 pole in 5 months at Qatar Grand Prix**\
-`Verstappen hadn't taken pole this season since the Austrian Grand Prix in June.`\
-https://nytimes.com/athletic/5958536/2024/11/30/max-verstappen-f1-pole-qatar-gp/
 
