@@ -1,3 +1,7 @@
+**UCF coach Gus Malzahn stepping down to take job as Florida State's OC**\
+`Malzahn went 28-24 with the Knights, but after two nine-win seasons in the AAC, UCF fell to 10-15 in its first two seasons in the Big 12.`\
+https://nytimes.com/athletic/5948685/2024/11/30/gus-malzahn-resign-ucf-florida-state/
+
 **Chargers place J.K. Dobbins, Alohi Gilman on IR**\
 `Dobbins had emerged as an NFL Comeback Player of the Year candidate after injuries limited him to nine games the past three seasons.`\
 https://nytimes.com/athletic/5958772/2024/11/30/chargers-jk-dobbins-alohi-gilman-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958582/2024/11/30/michigan-ohio-state-football-sco
 **U.S. Condemns China’s Harsh Sentence for a Prominent Journalist**\
 `The sentencing of Dong Yuyu, a former Harvard Nieman fellow, signals that officials consider some exchanges between Chinese citizens and foreigners to be espionage.`\
 https://nytimes.com/2024/11/30/us/politics/us-dong-yuyu-sentence.html
-
-**Rebels Seize Control Over Most of Aleppo in Rapid Advance**\
-`The shift in control over Aleppo, Syria’s largest city, came just four days into a surprise offensive that is the most intense escalation in years in the civil war.`\
-https://nytimes.com/video/world/middleeast/100000009852609/aleppo-syria-rebels.html
 
