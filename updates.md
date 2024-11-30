@@ -1,3 +1,7 @@
+**Michgan, Ohio State players and police involved in postgame fight after shocking upset**\
+`Police and team staff stepped in to break up the fight, which intensified after Michigan planted its flag on Ohio State's field.`\
+https://nytimes.com/athletic/5958692/2024/11/30/michigan-vs-ohio-state-fight/
+
 **Hal Lindsey, Author of ‘The Late, Great Planet Earth,’ Dies at 95**\
 `In that 1970 book and others he wrote of history and apocalyptic predictions based on biblical interpretations and actual events of the time.`\
 https://nytimes.com/2024/11/30/books/hal-lindsey-dead.html
