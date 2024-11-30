@@ -1,3 +1,7 @@
+**'In the final analysis,' Iowa keeps making Nebraska pay in rising rivalry**\
+`Former Nebraska AD Shawn Eichorst awoke something in Iowa on Nov. 30, 2014 that still carries ramifications for today’s Huskers.`\
+https://nytimes.com/athletic/5958432/2024/11/30/iowa-nebraska-rivalry-history-shawn-eichorst/
+
 **Max Verstappen claims first F1 pole in 3 months at Qatar Grand Prix**\
 `Verstappen hadn't taken pole this season since the Austrian Grand Prix in June.`\
 https://nytimes.com/athletic/5958536/2024/11/30/max-verstappen-f1-pole-qatar-gp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952415/2024/11/30/crystal-palace-1-newcastle-1-pre
 **Best TV Shows of 2024**\
 `“English Teacher,” “My Brilliant Friend,” “Shogun,” “Babylon Berlin” and “Somebody Somewhere” were among the series that stood out in a year when television felt more mid than ever.`\
 https://nytimes.com/2024/11/30/arts/television/best-tv-shows-2024.html
-
-**Avalanche acquire Scott Wedgewood from Predators in backup goalie swap**\
-`Nashville trades veteran goalie Scott Wedgewood to Colorado for Justus Annunen and a sixth-round pick in 2025.`\
-https://nytimes.com/athletic/5958291/2024/11/30/avalanche-predators-trade-wedgewood-annunen/
 
