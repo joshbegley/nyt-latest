@@ -1,3 +1,7 @@
+**Jared Spurgeon's leadership continues to be driving force behind Wild's success**\
+`The Wild captain, who scored two goals Friday on his 35th birthday, has been a trusted leader for the team in many ways.`\
+https://nytimes.com/athletic/5957645/2024/11/29/wild-jared-spurgeon-blackhawks/
+
 **Chiefs survive at Arrowhead on Black Friday after game-ending Raiders botched snap: Takeaways**\
 `Kansas City became the first team to clinch a spot in the postseason after earning a stunning Week 13 victory.`\
 https://nytimes.com/athletic/5957553/2024/11/29/chiefs-raiders-game-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957402/2024/11/29/bills-49ers-snow-forecast-highma
 **In just over a week, the Rangers have fallen apart. What's next?**\
 `From off-ice turmoil to on-ice disinterest, things have gone off the rails for the Rangers in a matter of only eight days.`\
 https://nytimes.com/athletic/5957400/2024/11/29/new-york-rangers-trouba-kreider/
-
-**49ers' QB Purdy questionable vs. Bills; Bosa out**\
-`Purdy is officially listed as questionable for the game, though coach Kyle Shanahan said the plan is for him to start on Sunday.`\
-https://nytimes.com/athletic/5957517/2024/11/29/49ers-purdy-bosa-williams-status-bills/
 
