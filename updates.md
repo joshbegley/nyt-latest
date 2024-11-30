@@ -1,3 +1,7 @@
+**Israeli Strike in North Gaza Kills Dozens, Rescue Group Says**\
+`Israel was pressing forward with an operation in Gaza to combat what it described as a Hamas resurgence. In Lebanon, an uneasy cease-fire appeared to be largely holding.`\
+https://nytimes.com/2024/11/30/world/middleeast/israel-north-gaza-lebanon-cease-fire.html
+
 **Giving Love**\
 `The act of giving a gift is a vehicle for showing people how you feel. Here are tips to find the perfect present.`\
 https://nytimes.com/2024/11/30/briefing/giving-love.html
