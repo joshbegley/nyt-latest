@@ -32,7 +32,7 @@ https://nytimes.com/athletic/5957784/2024/11/30/lakers-eliminated-nba-cup/
 
 **Naz Reid's sweat equity pushes Timberwolves to snap miserable skid**\
 `"As a group, after the game, I asked them how bad do we want to win?" Anthony Edwards said.`\
-https://nytimes.com/athletic/5957709/2024/11/30/naz-reids-timberwolves-snap-skid/
+https://nytimes.com/athletic/5957709/2024/11/30/naz-reid-timberwolves-snap-skid/
 
 **Russia Forges Ahead in Eastern Ukraine, Capturing More Villages in Recent Days**\
 `Russian forces are closing in on two strongholds. The fall of the cities could pave the way for a takeover of the southern part of the Donetsk region, analysts said.`\
