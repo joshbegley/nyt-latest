@@ -1,3 +1,7 @@
+**Is Lewis Dunk no longer guaranteed his starting role at Brighton?**\
+`The centre-half had started his previous 249 Premier League appearances, but he may no longer be first-choice in Fabian Hurzeler's team`\
+https://nytimes.com/athletic/5957536/2024/11/30/brighton-dunk-hurzeler-england/
+
 **Celtics' Payton Pritchard making strong case for Sixth Man of the Year**\
 `“The key to him is he finds different ways to impact games,” Joe Mazzulla said. “He’s grown as a player over the course of his career."`\
 https://nytimes.com/athletic/5957980/2024/11/30/celtics-bulls-payton-pritchard/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5949031/2024/11/30/erling-haaland-football-mind-man
 **As Raptors search for shooters, Jamison Battle and Ja'Kobe Walter get their shot**\
 `With the Raptors building around Scottie Barnes, they need his teammates to be ready to hoist 3s.`\
 https://nytimes.com/athletic/5957899/2024/11/30/raptors-shooting-3s-heat/
-
-**Taiwan’s President to Rally Tiny Pacific Allies to Counter China**\
-`Lai Ching-te is looking to shore up support from three island nations that are among a dwindling number to keep diplomatic ties with Taiwan.`\
-https://nytimes.com/2024/11/30/world/asia/taiwans-president-pacific-islands-china.html
 

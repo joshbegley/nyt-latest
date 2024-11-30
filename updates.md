@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-de
 `\
 https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
 
+**'Incredible feeling': Kings goalie Erik Portillo steals win over Ducks in NHL debut**\
+`In a 2-1 win over the Ducks, the Kings' goalie of the future showed a glimpse of what he can one day offer in a regular role.
+`\
+https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
+
 **Celtics' Payton Pritchard making strong case for Sixth Man of the Year**\
 `“The key to him is he finds different ways to impact games,” Joe Mazzulla said. “He’s grown as a player over the course of his career."`\
 https://nytimes.com/athletic/5957980/2024/11/30/celtics-bulls-payton-pritchard/
