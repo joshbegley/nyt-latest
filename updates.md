@@ -1,3 +1,7 @@
+**Sherman: Nebraska denied the pregame hand shake against Iowa. And it backfired**\
+`Another close loss to Iowa could define Nebraska's season more than the Huskers think it will. `\
+https://nytimes.com/athletic/5958215/2024/11/30/nebraska-iowa-college-football-hand-shake/
+
 **Lakers' errors lead to elimination from NBA Cup, but 'there’s definitely good stuff'**\
 `LeBron James and the Lakers continue to make self-inflicted errors, but the team sees reasons for hope in close loss to West-leading Thunder`\
 https://nytimes.com/athletic/5957784/2024/11/30/lakers-eliminated-nba-cup/
