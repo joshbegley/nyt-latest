@@ -1,3 +1,7 @@
+**How losses to Wild, Canucks show Sabres still need to find another level offensively**\
+`The Sabres keep grinding out points but are playing with razor-thin margins if they can’t produce more offense.`\
+https://nytimes.com/athletic/5957712/2024/11/29/sabres-canucks-recap-stats/
+
 **Chiefs survive vs. Raiders after Las Vegas' critical botched snap: Takeaways**\
 `Kansas City became the first team to clinch a spot in the postseason after earning a stunning Week 13 victory.`\
 https://nytimes.com/athletic/5957553/2024/11/29/chiefs-raiders-game-takeaways/
