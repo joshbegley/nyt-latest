@@ -1,5 +1,5 @@
 **Heavy Snowfall Blankets Parts of the Great Lakes Region**\
-`States braced for more whiteout conditions in the coming days as a lake-effect storm dropped more than two feet of snow by the early weekend.`\
+`States braced for more whiteout conditions in the coming days as a lake-effect storm dropped more than three feet of snow in parts of the region by the early weekend.`\
 https://nytimes.com/video/weather/100000009852706/great-lakes-snow-storm.html
 
 **Blue Jackets trade David Jiricek to Wild for Daemon Hunt, draft picks: Sources**\
