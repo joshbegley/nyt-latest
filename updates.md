@@ -1,3 +1,7 @@
+**Chargers place J.K. Dobbins, Alohi Gilman on IR**\
+`Dobbins had emerged as an NFL Comeback Player of the Year candidate after injuries limited him to nine games the past three seasons.`\
+https://nytimes.com/athletic/5958772/2024/11/30/chargers-jk-dobbins-alohi-gilman-injuries/
+
 **West Virginia battered by Texas Tech, 52-15: Is it time to part with Neal Brown?**\
 `Since his arrival in Morgantown in 2019, Brown has helped the team to a 37-35 overall record but is 25-28 in the Big 12 over that span.`\
 https://nytimes.com/athletic/5958605/2024/11/30/west-virginia-regular-season-loss-neal-brown-texas-tech/
