@@ -1,3 +1,7 @@
+**Giving Love**\
+`The act of giving a gift is a vehicle for showing people how you feel. Here are tips to find the perfect present.`\
+https://nytimes.com/2024/11/30/briefing/giving-love.html
+
 **Can the Vikings keep pace in the NFC North against the gritty Cardinals?**\
 `The Vikings need a win at home Sunday to stay one game behind the 11-1 Lions, who lead the way in the North and have the NFC's best record.`\
 https://nytimes.com/athletic/5957315/2024/11/30/vikings-cardinals-preview-predictions-week-13/
