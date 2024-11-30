@@ -1,3 +1,7 @@
+**Giving Love**\
+`The act of giving a gift is a vehicle for showing people how you feel. Here are tips to find the perfect present.`\
+https://nytimes.com/2024/11/30/briefing/giving-love.html
+
 **Can the Vikings keep pace in the NFC North against the gritty Cardinals?**\
 `The Vikings need a win at home Sunday to stay one game behind the 11-1 Lions, who lead the way in the North and have the NFC's best record.`\
 https://nytimes.com/athletic/5957315/2024/11/30/vikings-cardinals-preview-predictions-week-13/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/30/world/middleeast/syria-aleppo-rebels-control.html
 **NFL Week 13 roundtable: Trevor Lawrence's return, Aaron Rodgers' future, second-year QB surge**\
 `While Lawrence's return is a storyline in Jacksonville, Rodgers' future hovers over the Jets. Our writers discuss Week 13.`\
 https://nytimes.com/athletic/5957308/2024/11/30/nfl-week-13-roundtable-lawrence-rodgers-jets-qbs/
-
-**Israel-Hezbollah Cease-Fire Rests on a Wobbly Linchpin: Lebanon’s Army**\
-`The Lebanese Army is tasked with ensuring that Hezbollah abides by the cease-fire. It has failed at that task before.`\
-https://nytimes.com/2024/11/30/world/middleeast/lebanon-army-ceasefire-israel-hezbollah.html
 
