@@ -48,6 +48,11 @@ https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-
 `\
 https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
 
+**Kyle Dubas' bet on Philip Tomasino pays off, Tristan Jarry takes big step for Penguins: 3 takeaways**\
+`Tomasino scored the winner and Jarry was sharp for the Penguins in a 2-1 victory over the Bruins.
+`\
+https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
+
 **What I’m seeing 5 games after the Bruins' coaching change**\
 `The Bruins are playing better in their five games under Joe Sacco. But they are not built to survive a long-term David Pastrnak drought.`\
 https://nytimes.com/athletic/5957859/2024/11/29/bruins-penguins-david-pastrnak-coach/
