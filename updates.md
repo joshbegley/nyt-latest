@@ -1,5 +1,9 @@
 **The Briefing: Palace 1 Newcastle 1: Wilson puzzle, Guehi gift, Munoz makes amends**\
 `Newcastle drew 1-1 with Crystal Palace at Selhurst Park. Here are the key talking points...`\
+https://nytimes.com/athletic/5952415/2024/11/30/crystal-palace-1-newcastle-1-premier-league-result/
+
+**The Briefing: Palace 1 Newcastle 1: Wilson puzzle, Guehi gift, Munoz makes amends**\
+`Newcastle drew 1-1 with Crystal Palace at Selhurst Park. Here are the key talking points...`\
 https://nytimes.com/athletic/5952415/2024/11/30/crystal-palace-0-newcastle-1-premier-league-result/
 
 **Best TV Shows of 2024**\
