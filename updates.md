@@ -1,3 +1,7 @@
+**Andrew Luck returning to Stanford in expanded, 'hands-on' GM role**\
+`Luck will oversee every aspect of the program, both on and off the field, in an expanded role rarely seen in college football.`\
+https://nytimes.com/athletic/5958205/2024/11/30/andrew-luck-stanford-general-manager-football/
+
 **Avalanche acquire Scott Wedgewood from Predators in backup goalie swap**\
 `Nashville trades veteran goalie Scott Wedgewood to Colorado for Justus Annunen and a sixth-round pick in 2025.`\
 https://nytimes.com/athletic/5958291/2024/11/30/avalanche-predators-trade-wedgewood-annunen/
