@@ -1,3 +1,11 @@
+**Israel Accuses World Central Kitchen Worker of Role in Oct. 7 Attack**\
+`The Israeli military said it killed the worker in a strike in Gaza on Saturday. “To the best of our knowledge, no WCK team members are affiliated with Hamas,” a spokeswoman for the aid group said.`\
+https://nytimes.com/2024/11/30/world/middleeast/israel-gaza-world-central-kitchen.html
+
+**How Michigan stunned No. 2 Ohio State for fourth rivalry win in a row: Key takeaways**\
+`Michigan upset Ryan Day and Ohio State 13-10 on Saturday to likely knock the Buckeyes out of the Big Ten title race. Here's how it happened.`\
+https://nytimes.com/athletic/5958582/2024/11/30/michigan-ohio-state-football-score-recap/
+
 **U.S. Condemns China’s Harsh Sentence for a Prominent Journalist**\
 `The sentencing of Dong Yuyu, a former Harvard Nieman fellow, signals that officials consider some exchanges between Chinese citizens and foreigners to be espionage.`\
 https://nytimes.com/2024/11/30/us/politics/us-dong-yuyu-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5958432/2024/11/30/iowa-nebraska-rivalry-history-sh
 **Max Verstappen claims first F1 pole in 5 months at Qatar Grand Prix**\
 `Verstappen hadn't taken pole this season since the Austrian Grand Prix in June.`\
 https://nytimes.com/athletic/5958536/2024/11/30/max-verstappen-f1-pole-qatar-gp/
-
-**A. Cornelius Baker, Champion of H.I.V. Testing, Dies at 63**\
-`Working inside the government and out, he lobbied to improve the lives of people with H.I.V. and AIDS, particularly those who belonged to minority groups.`\
-https://nytimes.com/2024/11/30/health/a-cornelius-baker-dead.html
-
-**Minnesota Lynx add Eric Thibault, Lindsay Whalen to coaching staff**\
-`Thibault comes to Minnesota after more than a decade with the Mystics, while former Lynx legend Whalen returns home.`\
-https://nytimes.com/athletic/5958384/2024/11/30/lynx-lindsay-whalen-eric-thibault-assistant-coaching-hires/
 
