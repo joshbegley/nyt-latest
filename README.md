@@ -1,3 +1,7 @@
+**Cade Cunningham's playmaking keeps Pistons unbeaten in NBA Cup**\
+`Detroit missed Cunningham during his 3-game absence due to a left sacroiliac joint sprain.`\
+https://nytimes.com/athletic/5957936/2024/11/30/cade-cunningham-playmaking-pistons-nba-cup/
+
 **FIFA 'has a responsibility' to compensate Qatar World Cup workers, report finds**\
 `A report commissioned by FIFA has concluded football&#8217;s governing body &#8220;has a responsibility&#8221; to compensate workers who suffered during the hosting of the 2022 Qatar World Cup.`\
 https://nytimes.com/athletic/5958142/2024/11/30/fifa-qatar-world-cup-report-workers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/30/opinion/homeless-children-democrats-housing.html
 **Why I’m Not Giving up on American Democracy**\
 `The free and decent country that saved my family from Soviet Hungary is now under threat.`\
 https://nytimes.com/2024/11/30/opinion/trump-orban-hungary-journalists-persecution.html
-
-**Stan Bowman Q&A: How has the Oilers' start impacted future roster decisions?**\
-`The Oilers are well ahead of their dismal 5-12-1 mark at this time last season, but they’re not where they should be, either.`\
-https://nytimes.com/athletic/5957912/2024/11/30/oilers-standings-start-stan-bowman/
 
