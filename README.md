@@ -1,6 +1,14 @@
+**West Virginia battered by Texas Tech, 52-15: Is it time to part with Neal Brown?**\
+`Since his arrival in Morgantown in 2019, Brown has helped the team to a 37-35 overall record but is 25-28 in the Big 12 over that span.`\
+https://nytimes.com/athletic/5958605/2024/11/30/west-virginia-regular-season-loss-neal-brown-texas-tech/
+
 **Trump Names Charles Kushner as Pick for Ambassador to France**\
 `The announcement elevated Mr. Kushner, the father of President Donald J. Trump’s son-in-law and the recipient of a presidential pardon at the end of Mr. Trump’s first term.`\
 https://nytimes.com/2024/11/30/us/politics/trump-charles-kushner-france-ambassador.html
+
+**College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-projections-odds/
 
 **Michigan, Ohio State players and police involved in postgame fight after shocking upset**\
 `Police and team staff stepped in to break up the fight, which intensified after Michigan planted its flag on Ohio State's field.`\
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009852609/aleppo-syria-rebels.h
 **Cucumbers Are Recalled After Salmonella Sickens People in 19 States**\
 `At least 68 people have fallen ill in the outbreak believed to be linked to cucumbers sold in the United States and Canada, the Centers for Disease Control and Prevention said.`\
 https://nytimes.com/2024/11/30/health/cucumbers-salmonella-outbreak-sunfed.html
-
-**England 0, USWNT 0 takeaways: New-look front three offer promise, if not goals**\
-`The United States duked out a rather tepid 0-0 game against England at Wembley in front of 78,346 fans.`\
-https://nytimes.com/athletic/5958233/2024/11/30/england-0-uswnt-0-takeaways/
-
-**Raiders ask NFL to review final play of loss vs. Chiefs**\
-`The Raiders said they heard an official's whistle on the last play of Friday's game that resulted in a fumble and a 19-17 loss.`\
-https://nytimes.com/athletic/5958469/2024/11/30/las-vegas-raiders-kansas-city-chiefs-video-review/
 
