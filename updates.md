@@ -1,3 +1,7 @@
+**A. Cornelius Baker, Champion of H.I.V. Testing, Dies at 63**\
+`Working inside the government and out, he lobbied to improve the lives of people with H.I.V. and AIDS, particularly those who belonged to minority groups.`\
+https://nytimes.com/2024/11/30/health/a-cornelius-baker-dead.html
+
 **Minnesota Lynx add Eric Thibault, Lindsay Whalen to coaching staff**\
 `Thibault comes to Minnesota after more than a decade with the Mystics, while former Lynx legend Whalen returns home.`\
 https://nytimes.com/athletic/5958384/2024/11/30/lynx-lindsay-whalen-eric-thibault-assistant-coaching-hires/
