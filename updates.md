@@ -1,3 +1,11 @@
+**The Briefing: Palace 1 Newcastle 1: Wilson puzzle, Guehi gift, Munoz makes amends**\
+`Newcastle drew 1-1 with Crystal Palace at Selhurst Park. Here are the key talking points...`\
+https://nytimes.com/athletic/5952415/2024/11/30/crystal-palace-0-newcastle-1-premier-league-result/
+
+**Best TV Shows of 2024**\
+`“English Teacher,” “My Brilliant Friend,” “Shogun,” “Babylon Berlin” and “Somebody Somewhere” were among the series that stood out in a year when television felt more mid than ever.`\
+https://nytimes.com/2024/11/30/arts/television/best-tv-shows-2024.html
+
 **Andrew Luck returning to Stanford in expanded, 'hands-on' GM role**\
 `Luck will oversee every aspect of the program, both on and off the field, in an expanded role rarely seen in college football.`\
 https://nytimes.com/athletic/5958205/2024/11/30/andrew-luck-stanford-general-manager-football/

@@ -1,3 +1,11 @@
+**The Briefing: Palace 1 Newcastle 1: Wilson puzzle, Guehi gift, Munoz makes amends**\
+`Newcastle drew 1-1 with Crystal Palace at Selhurst Park. Here are the key talking points...`\
+https://nytimes.com/athletic/5952415/2024/11/30/crystal-palace-0-newcastle-1-premier-league-result/
+
+**Best TV Shows of 2024**\
+`“English Teacher,” “My Brilliant Friend,” “Shogun,” “Babylon Berlin” and “Somebody Somewhere” were among the series that stood out in a year when television felt more mid than ever.`\
+https://nytimes.com/2024/11/30/arts/television/best-tv-shows-2024.html
+
 **Avalanche acquire Scott Wedgewood from Predators in backup goalie swap**\
 `Nashville trades veteran goalie Scott Wedgewood to Colorado for Justus Annunen and a sixth-round pick in 2025.`\
 https://nytimes.com/athletic/5958291/2024/11/30/avalanche-predators-trade-wedgewood-annunen/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5957936/2024/11/30/cade-cunningham-playmaking-pisto
 **FIFA 'has a responsibility' to compensate Qatar World Cup workers, report finds**\
 `A report commissioned by FIFA has concluded football&#8217;s governing body &#8220;has a responsibility&#8221; to compensate workers who suffered during the hosting of the 2022 Qatar World Cup.`\
 https://nytimes.com/athletic/5958142/2024/11/30/fifa-qatar-world-cup-report-workers/
-
-**Sherman: Nebraska denied the pregame hand shake against Iowa. And it backfired**\
-`Another close loss to Iowa could define Nebraska's season more than the Huskers think it will. `\
-https://nytimes.com/athletic/5958215/2024/11/30/nebraska-iowa-college-football-hand-shake/
-
-**Lakers' errors lead to elimination from NBA Cup, but 'there’s definitely good stuff'**\
-`LeBron James and the Lakers continue to make self-inflicted errors, but the team sees reasons for hope in close loss to West-leading Thunder`\
-https://nytimes.com/athletic/5957784/2024/11/30/lakers-eliminated-nba-cup/
 
