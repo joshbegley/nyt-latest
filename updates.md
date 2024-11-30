@@ -1,3 +1,11 @@
+**Should the Canucks trade for a defender with Filip Hronek out? 7 potential options**\
+`With Hronek sidelined, the Canucks might expedite their search for another top-four defenceman.`\
+https://nytimes.com/athletic/5957696/2024/11/30/canucks-trade-filip-hronek-options/
+
+**‘This Was One of the Most Delicious Recipes We Have Made’**\
+`Sarah DiGregorio’s salmon and kimchi skillet, a five-star, five-ingredient dinner to kick-start your taste buds.`\
+https://nytimes.com/2024/11/30/dining/kimchi-recipes.html
+
 **Saudi Arabia Leads a Pushback Against Global Plastic Treaty**\
 `Delegates from more than 170 countries are working to salvage a treaty that would tackle the growing problem of plastic pollution.`\
 https://nytimes.com/2024/11/30/climate/saudi-arabia-global-plastic-treaty.html
