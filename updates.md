@@ -83,6 +83,11 @@ https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-de
 `\
 https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
 
+**'Incredible feeling': Kings goalie Erik Portillo steals win over Ducks in NHL debut**\
+`In a 2-1 win over the Ducks, the Kings' goalie of the future showed a glimpse of what he can one day offer in a regular role.
+`\
+https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
+
 **Is Lewis Dunk no longer guaranteed his starting role at Brighton?**\
 `The centre-half had started his previous 249 Premier League appearances, but he may no longer be first-choice in Fabian Hurzeler's team`\
 https://nytimes.com/athletic/5957536/2024/11/30/brighton-dunk-hurzeler-england/
