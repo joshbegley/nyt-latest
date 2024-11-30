@@ -1,5 +1,5 @@
 **FIFA report: Saudi 2034 World Cup bid has "medium" human rights risk**\
-`According to a FIFA evaluation, Saudi Arabia's World Cup hosting bid in 2034 has "good potential" to spark reform.`\
+`According to a FIFA evaluation, Saudi Arabia's World Cup hosting bid in 2034 has "good potential" to spark reform`\
 https://nytimes.com/athletic/5957860/2024/11/30/fifa-2034-human-rights-world-cup/
 
 **Is Lewis Dunk no longer guaranteed his starting role at Brighton?**\
