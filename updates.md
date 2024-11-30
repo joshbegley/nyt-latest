@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
 
+**Kyle Dubas' bet on Philip Tomasino pays off, Tristan Jarry takes big step for Penguins: 3 takeaways**\
+`Tomasino scored the winner and Jarry was sharp for the Penguins in a 2-1 victory over the Bruins.
+`\
+https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
+
 **Styles of Singing**\
 `Oliver Goodridge and Juan Garavito team up on a hairy challenge.`\
 https://nytimes.com/2024/11/29/crosswords/daily-puzzle-2024-11-30.html
