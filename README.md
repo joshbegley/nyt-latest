@@ -1,6 +1,14 @@
+**Can the Vikings keep pace in the NFC North against the gritty Cardinals?**\
+`The Vikings need a win at home Sunday to stay one game behind the 11-1 Lions, who lead the way in the North and have the NFC's best record.`\
+https://nytimes.com/athletic/5957315/2024/11/30/vikings-cardinals-preview-predictions-week-13/
+
 **For Canada, Trade Tumult From Trump’s Return Has Begun**\
 `While the president-elect says he will impose a 25 percent tariff on everything Canada exports, Trudeau remains confident about forestalling that outcome.`\
 https://nytimes.com/2024/11/30/world/canada/tariffs-trump-trudeau.html
+
+**Texas at Texas A&M: How to watch, picks, odds as rivalry returns with huge stakes**\
+`The Texas-Texas A&M rivalry returns on Saturday night with a spot in the SEC title game on the line.`\
+https://nytimes.com/athletic/5957239/2024/11/30/texas-am-how-to-watch-picks-odds/
 
 **The Connections Companion No. 539**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Dec. 1, 2024.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5957308/2024/11/30/nfl-week-13-roundtable-lawrence-
 **Israel-Hezbollah Cease-Fire Rests on a Wobbly Linchpin: Lebanon’s Army**\
 `The Lebanese Army is tasked with ensuring that Hezbollah abides by the cease-fire. It has failed at that task before.`\
 https://nytimes.com/2024/11/30/world/middleeast/lebanon-army-ceasefire-israel-hezbollah.html
-
-**Democrats Weigh Dumping Nadler, Regrouping to Counter Trump**\
-`Some House Democrats want to oust aging committee leaders like Representative Jerrold Nadler in favor of younger lawmakers who they see as better suited to take on the president.`\
-https://nytimes.com/2024/11/30/us/politics/democrats-nadler-raskin.html
-
-**After Democratic Losses, a Little-Known Lawmaker Wants to Lead the Party**\
-`State Senator James Skoufis of New York is mounting a long-shot bid for D.N.C. chair, hoping his record of success in Trump country proves persuasive to party insiders.`\
-https://nytimes.com/2024/11/30/us/politics/skoufis-democratic-national-commitee-chair.html
 
