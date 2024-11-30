@@ -1,3 +1,7 @@
+**Andrew Luck returning to Stanford as GM of football program**\
+`Luck will oversee every aspect of the program, both on and off the field, in an expanded role rarely seen in college football.`\
+https://nytimes.com/athletic/5958205/2024/11/30/andrew-luck-stanford-general-manager-football/
+
 **Cade Cunningham's playmaking keeps Pistons unbeaten in NBA Cup**\
 `Detroit missed Cunningham during his 3-game absence due to a left sacroiliac joint sprain.`\
 https://nytimes.com/athletic/5957936/2024/11/30/cade-cunningham-playmaking-pistons-nba-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957910/2024/11/30/matt-eberflus-fired-bears-player
 **Note to Democrats: It’s Time to Take Up Your Hammers**\
 `There is a straight line from homeless schoolchildren to Donald Trump’s election victory.`\
 https://nytimes.com/2024/11/30/opinion/homeless-children-democrats-housing.html
-
-**Why I’m Not Giving up on American Democracy**\
-`The free and decent country that saved my family from Soviet Hungary is now under threat.`\
-https://nytimes.com/2024/11/30/opinion/trump-orban-hungary-journalists-persecution.html
 
