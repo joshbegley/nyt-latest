@@ -6,9 +6,9 @@ https://nytimes.com/video/world/middleeast/100000009852609/aleppo-syria-rebels.h
 `At least 68 people have fallen ill in the outbreak believed to be linked to cucumbers sold in the United States and Canada, the Centers for Disease Control and Prevention said.`\
 https://nytimes.com/2024/11/30/health/cucumbers-salmonella-outbreak-sunfed.html
 
-**England 0-0 USWNT takeaways: New-look front three offer promise, if not goals**\
+**England 0, USWNT 0 takeaways: New-look front three offer promise, if not goals**\
 `The United States duked out a rather tepid 0-0 game against England at Wembley in front of 78,346 fans.`\
-https://nytimes.com/athletic/5958233/2024/11/30/england-0-0-uswnt-takeaways/
+https://nytimes.com/athletic/5958233/2024/11/30/england-0-uswnt-0-takeaways/
 
 **Raiders ask NFL to review final play of loss vs. Chiefs**\
 `The Raiders said they heard an official's whistle on the last play of Friday's game that resulted in a fumble and a 19-17 loss.`\

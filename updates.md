@@ -1,3 +1,7 @@
+**England 0, USWNT 0 takeaways: New-look front three offer promise, if not goals**\
+`The United States duked out a rather tepid 0-0 game against England at Wembley in front of 78,346 fans.`\
+https://nytimes.com/athletic/5958233/2024/11/30/england-0-uswnt-0-takeaways/
+
 **Rebels Seize Control Over Most of Aleppo in Rapid Advance**\
 `The shift in control over Aleppo, Syria’s largest city, came just four days into a surprise offensive that is the most intense escalation in years in the civil war.`\
 https://nytimes.com/video/world/middleeast/100000009852609/aleppo-syria-rebels.html
