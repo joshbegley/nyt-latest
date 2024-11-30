@@ -1,3 +1,7 @@
+**What I’m seeing 5 games after the Bruins' coaching change**\
+`The Bruins are playing better in their five games under Joe Sacco. But they are not built to survive a long-term David Pastrnak drought.`\
+https://nytimes.com/athletic/5957859/2024/11/29/bruins-penguins-david-pastrnak-coach/
+
 **Solving left tackle problem for Patrick Mahomes a must after Chiefs escape Raiders**\
 `For the second time in five days, the Chiefs won, but Mahomes was sacked five times, highlighting issues at left tackle.`\
 https://nytimes.com/athletic/5957814/2024/11/29/chiefs-patrick-mahomes-left-tackle-raiders/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5957651/2024/11/29/blue-jackets-flames-dean-evason/
 **Text of the Email That Pete Hegseth’s Mother Sent Him**\
 `Penelope Hegseth sent the email to her son in 2018 as he was in the middle of divorcing his wife, Samantha.`\
 https://nytimes.com/2024/11/29/us/politics/hegseth-email-text.html
-
-**Pete Hegseth’s Mother Accused Her Son of Mistreating Women for Years**\
-`Penelope Hegseth made the accusation in an email to her son in 2018, amid his contentious divorce. She said on Friday that she regretted the email and had apologized to him.`\
-https://nytimes.com/2024/11/29/us/politics/pete-hegseth-mother-email.html
 
