@@ -1,3 +1,7 @@
+**Jared Spurgeon's leadership continues to be driving force behind Wild's success**\
+`The Wild captain, who scored two goals Friday on his 35th birthday, has been a trusted leader for the team in many ways.`\
+https://nytimes.com/athletic/5957645/2024/11/29/wild-jared-spurgeon-blackhawks/
+
 **Chiefs survive at Arrowhead on Black Friday after game-ending Raiders botched snap: Takeaways**\
 `Kansas City became the first team to clinch a spot in the postseason after earning a stunning Week 13 victory.`\
 https://nytimes.com/athletic/5957553/2024/11/29/chiefs-raiders-game-takeaways/
