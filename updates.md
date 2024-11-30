@@ -1,3 +1,11 @@
+**Notre Dame holds off USC: Takeaways from a Playoff-clinching win for the Fighting Irish**\
+`USC made Notre Dame sweat, but the Irish made big plays at the right time and will end the regular season with 10 consecutive wins. `\
+https://nytimes.com/athletic/5958950/2024/11/30/notre-dame-usc-college-football-playoff/
+
+**A College Volleyball Team’s Season in the Spotlight Comes to an End**\
+`The San Jose State women’s team, which has a transgender player, lost to the tournament favorite Colorado State, concluding a season that transcended sports.`\
+https://nytimes.com/2024/11/30/us/transgender-san-jose-state-volleyball.html
+
 **Penn State to play for Big Ten title after handling Maryland, Ohio State loss: Takeaways**\
 `After beating Maryland, Penn State has a chance to prove this team can punch up and hang with the best team in the country.`\
 https://nytimes.com/athletic/5958979/2024/11/30/penn-state-big-ten-championship-oregon-maryland/

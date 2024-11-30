@@ -1,3 +1,11 @@
+**Notre Dame holds off USC: Takeaways from a Playoff-clinching win for the Fighting Irish**\
+`USC made Notre Dame sweat, but the Irish made big plays at the right time and will end the regular season with 10 consecutive wins. `\
+https://nytimes.com/athletic/5958950/2024/11/30/notre-dame-usc-college-football-playoff/
+
+**A College Volleyball Team’s Season in the Spotlight Comes to an End**\
+`The San Jose State women’s team, which has a transgender player, lost to the tournament favorite Colorado State, concluding a season that transcended sports.`\
+https://nytimes.com/2024/11/30/us/transgender-san-jose-state-volleyball.html
+
 **Penn State to play for Big Ten title after handling Maryland, Ohio State loss: Takeaways**\
 `After beating Maryland, Penn State has a chance to prove this team can punch up and hang with the best team in the country.`\
 https://nytimes.com/athletic/5958979/2024/11/30/penn-state-big-ten-championship-oregon-maryland/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5958894/2024/11/30/rangers-jacob-trouba-kaapo-kakko
 **Drive Around the Block**\
 `John Lieb makes a nice Sunday debut.`\
 https://nytimes.com/2024/11/30/crosswords/daily-puzzle-2024-12-01.html
-
-**Heavy Snowfall Blankets Parts of the Great Lakes Region**\
-`States braced for more whiteout conditions in the coming days as a lake-effect storm dropped several feet of snow in parts of the region by the early weekend.`\
-https://nytimes.com/video/weather/100000009852706/great-lakes-snow-storm.html
-
-**Blue Jackets trade David Jiricek to Wild for Daemon Hunt, draft picks**\
-`Jiricek, 21, was selected with the No. 6 pick in the 2022 NHL Draft but was unable to grab a regular spot in the Blue Jackets lineup.`\
-https://nytimes.com/athletic/5953370/2024/11/30/david-jiricek-trade-blue-jackets-wild/
 
