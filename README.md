@@ -1,3 +1,7 @@
+**A. Cornelius Baker, Champion of H.I.V. Testing, Dies at 63**\
+`Working inside the government and out, he lobbied to improve the lives of people with H.I.V. and AIDS, particularly those who belonged to minority groups.`\
+https://nytimes.com/2024/11/30/health/a-cornelius-baker-dead.html
+
 **Minnesota Lynx add Eric Thibault, Lindsay Whalen to coaching staff**\
 `Thibault comes to Minnesota after more than a decade with the Mystics, while former Lynx legend Whalen returns home.`\
 https://nytimes.com/athletic/5958384/2024/11/30/lynx-lindsay-whalen-eric-thibault-assistant-coaching-hires/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958291/2024/11/30/avalanche-predators-trade-wedgew
 **Raphinha after Barcelona's defeat to Las Palmas: 'We are doing many things wrong'**\
 `Raphinha says that there are “many things” that Barcelona are doing wrong following his side&#8217;s 2-1 home defeat to Las Palmas.`\
 https://nytimes.com/athletic/5958327/2024/11/30/barcelona-las-palmas-defeat-raphinha/
-
-**Should the Canucks trade for a defender with Filip Hronek out? 7 potential options**\
-`With Hronek sidelined, the Canucks might expedite their search for another top-four defenceman.`\
-https://nytimes.com/athletic/5957696/2024/11/30/canucks-trade-filip-hronek-options/
 
