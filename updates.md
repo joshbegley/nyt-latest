@@ -1,3 +1,11 @@
+**Corrections: Nov. 30, 2024**\
+`Corrections that appeared in print on Saturday, Nov. 30, 2024.`\
+https://nytimes.com/2024/11/29/pageoneplus/corrections-nov-30-2024.html
+
+**Georgia Tech stunning Georgia 17-0 at halftime**\
+`No. 7 Georgia, favored by 19.5 points, is down 17-0 to Georgia Tech, and it could be worse than that.`\
+https://nytimes.com/athletic/5957539/2024/11/29/georgia-tech-georgia-rivalry-game-result/
+
 **Trudeau Flies to Mar-a-Lago to See Trump Amid Tariff Concerns**\
 `Prime Minister Justin Trudeau of Canada is the first G7 leader to visit President-elect Donald J. Trump in Florida since the election. He is under pressure to persuade Mr. Trump to back down from his tariff threat.`\
 https://nytimes.com/2024/11/29/world/canada/trudeau-trump-mar-a-lago-tariffs.html
