@@ -1,3 +1,11 @@
+**Text of the Email That Pete Hegseth’s Mother Sent Him**\
+`Penelope Hegseth sent the email to her son in 2018 as he was in the middle of divorcing his wife, Samantha.`\
+https://nytimes.com/2024/11/29/us/politics/hegseth-email-text.html
+
+**Pete Hegseth’s Mother Accused Her Son of Mistreating Women for Years**\
+`Penelope Hegseth made the accusation in an email to her son in 2018, amid his contentious divorce. She said on Friday that she regretted the email and had apologized to him.`\
+https://nytimes.com/2024/11/29/us/politics/pete-hegseth-mother-email.html
+
 **How losses to Wild, Canucks show Sabres still need to find another level offensively**\
 `The Sabres keep grinding out points but are playing with razor-thin margins if they can’t produce more offense.`\
 https://nytimes.com/athletic/5957712/2024/11/29/sabres-canucks-recap-stats/
