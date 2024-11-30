@@ -1,3 +1,7 @@
+**Saudi Arabia Leads a Pushback Against Global Plastic Treaty**\
+`Delegates from more than 170 countries are working to salvage a treaty that would tackle the growing problem of plastic pollution.`\
+https://nytimes.com/2024/11/30/climate/saudi-arabia-global-plastic-treaty.html
+
 **Andrew Luck returning to Stanford as GM of football program**\
 `Luck will oversee every aspect of the program, both on and off the field, in an expanded role rarely seen in college football.`\
 https://nytimes.com/athletic/5958205/2024/11/30/andrew-luck-stanford-general-manager-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957723/2024/11/30/pauli-bundesliga-millerntor-bles
 **The Bears finally fired Matt Eberflus. But he lost the locker room long ago**\
 `The Shane Waldron experience and the Hail Mary debacle cost Eberflus credibility at Halas Hall. The Thanksgiving loss was the last straw.`\
 https://nytimes.com/athletic/5957910/2024/11/30/matt-eberflus-fired-bears-players-locker-room/
-
-**Note to Democrats: It’s Time to Take Up Your Hammers**\
-`There is a straight line from homeless schoolchildren to Donald Trump’s election victory.`\
-https://nytimes.com/2024/11/30/opinion/homeless-children-democrats-housing.html
 
