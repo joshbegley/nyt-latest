@@ -1,3 +1,7 @@
+**Penn State to play for Big Ten title after handling Maryland, Ohio State loss: Takeaways**\
+`After beating Maryland, Penn State has a chance to prove this team can punch up and hang with the best team in the country.`\
+https://nytimes.com/athletic/5958979/2024/11/30/penn-state-big-ten-championship-oregon-maryland/
+
 **Trump Says He Will Replace F.B.I. Director With Kash Patel**\
 `President-elect Donald J. Trump appointed Christopher A. Wray to the post in 2017 after firing his predecessor, James B. Comey, but their relationship soured.`\
 https://nytimes.com/2024/11/30/us/politics/trump-replace-christopher-wray.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000009852706/great-lakes-snow-storm.html
 **Blue Jackets trade David Jiricek to Wild for Daemon Hunt, draft picks**\
 `Jiricek, 21, was selected with the No. 6 pick in the 2022 NHL Draft but was unable to grab a regular spot in the Blue Jackets lineup.`\
 https://nytimes.com/athletic/5953370/2024/11/30/david-jiricek-trade-blue-jackets-wild/
-
-**F1 Qatar GP preview: Can Ferrari stave off McLaren’s title bid another week?**\
-`McLaren could be celebrating its first constructors’ championship in almost three decades — but a few rivals stand in the way. `\
-https://nytimes.com/athletic/5958639/2024/11/30/f1-qatar-gp-preview-mclaren-ferrari-championship/
 
