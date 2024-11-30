@@ -88,6 +88,11 @@ https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-de
 `\
 https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
 
+**'Incredible feeling': Kings goalie Erik Portillo steals win over Ducks in NHL debut**\
+`In a 2-1 win over the Ducks, the Kings' goalie of the future showed a glimpse of what he can one day offer in a regular role.
+`\
+https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
+
 **FIFA report: Saudi 2034 World Cup bid has "medium" human rights risk**\
 `According to a FIFA evaluation, Saudi Arabia's World Cup hosting bid in 2034 has "good potential" to spark reform.`\
 https://nytimes.com/athletic/5957860/2024/11/30/fifa-2034-human-rights-world-cup/
