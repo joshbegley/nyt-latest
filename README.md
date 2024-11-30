@@ -1,3 +1,7 @@
+**Iowa tops Nebraska on 53-yard walk-off field goal: Hawkeyes-Huskers takeaways**\
+`The last seven matchupshave been decided by seven points or fewer, but Iowa has won nine of the past 10.`\
+https://nytimes.com/athletic/5957835/2024/11/29/nebraska-football-iowa-takeaways-result/
+
 **What I’m seeing 5 games after the Bruins' coaching change**\
 `The Bruins are playing better in their five games under Joe Sacco. But they are not built to survive a long-term David Pastrnak drought.`\
 https://nytimes.com/athletic/5957859/2024/11/29/bruins-penguins-david-pastrnak-coach/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5957539/2024/11/29/georgia-tech-georgia-rivalry-gam
 **Blue Jackets embrace Dean Evason's style, and the physical response it demands**\
 `The Blue Jackets played fast and physical in a 5-2 win over the Flames.`\
 https://nytimes.com/athletic/5957651/2024/11/29/blue-jackets-flames-dean-evason/
-
-**Text of the Email That Pete Hegseth’s Mother Sent Him**\
-`Penelope Hegseth sent the email to her son in 2018 as he was in the middle of divorcing his wife, Samantha.`\
-https://nytimes.com/2024/11/29/us/politics/hegseth-email-text.html
 
