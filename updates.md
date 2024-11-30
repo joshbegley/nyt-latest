@@ -1,3 +1,7 @@
+**Naz Reid's sweat equity pushes Timberwolves to snap miserable skid**\
+`"As a group, after the game, I asked them how bad do we want to win?" Anthony Edwards said.`\
+https://nytimes.com/athletic/5957709/2024/11/30/naz-reid-timberwolves-snap-skid/
+
 **Saudi Arabia Leads Pushback Against Global Plastic Treaty**\
 `Delegates from more than 170 countries are working to salvage a treaty that would tackle the growing problem of plastic pollution.`\
 https://nytimes.com/2024/11/30/climate/saudi-arabia-global-plastic-treaty.html
