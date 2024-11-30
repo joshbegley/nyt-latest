@@ -1,3 +1,11 @@
+**Protesters Clash With Police After Georgia Puts E.U. Accession on Hold**\
+`Thousands demonstrated in Tbilisi, Georgia, after the country said it had suspended its bid to join the European Union for four years. The police used tear gas and water cannons on protesters outside the Parliament building.`\
+https://nytimes.com/video/world/europe/100000009852662/georgia-parliament-protests-european-union.html
+
+**Bruins CEO Charlie Jacobs: 'We're a .500 club right now'**\
+`Jacobs said the Bruins, who are 11-11-3 and fourth in the Atlantic Division, have "yet to play our best game.”`\
+https://nytimes.com/athletic/5958790/2024/11/30/bruins-ceo-charlie-jacobs-pastrnak-marchand/
+
 **UCF coach Gus Malzahn stepping down to take job as Florida State's OC**\
 `Malzahn went 28-24 with the Knights, but after two nine-win seasons in the AAC, UCF fell to 10-15 in its first two seasons in the Big 12.`\
 https://nytimes.com/athletic/5948685/2024/11/30/gus-malzahn-resign-ucf-florida-state/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/11/30/books/hal-lindsey-dead.html
 **Israel Accuses World Central Kitchen Worker of Role in Oct. 7 Attack**\
 `The Israeli military said it killed the worker in a strike in Gaza on Saturday. “To the best of our knowledge, no WCK team members are affiliated with Hamas,” a spokeswoman for the aid group said.`\
 https://nytimes.com/2024/11/30/world/middleeast/israel-gaza-world-central-kitchen.html
-
-**How Michigan stunned No. 2 Ohio State for fourth rivalry win in a row: Key takeaways**\
-`Michigan upset Ryan Day and Ohio State 13-10 on Saturday to likely knock the Buckeyes out of the Big Ten title race. Here's how it happened.`\
-https://nytimes.com/athletic/5958582/2024/11/30/michigan-ohio-state-football-score-recap/
-
-**U.S. Condemns China’s Harsh Sentence for a Prominent Journalist**\
-`The sentencing of Dong Yuyu, a former Harvard Nieman fellow, signals that officials consider some exchanges between Chinese citizens and foreigners to be espionage.`\
-https://nytimes.com/2024/11/30/us/politics/us-dong-yuyu-sentence.html
 
