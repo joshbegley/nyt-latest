@@ -1,3 +1,7 @@
+**Israeli Strike in North Gaza Kills Dozens, Rescue Group Says**\
+`Israel was pressing forward with an operation in Gaza to combat what it described as a Hamas resurgence. In Lebanon, an uneasy cease-fire appeared to be largely holding.`\
+https://nytimes.com/2024/11/30/world/middleeast/israel-north-gaza-lebanon-cease-fire.html
+
 **Giving Love**\
 `The act of giving a gift is a vehicle for showing people how you feel. Here are tips to find the perfect present.`\
 https://nytimes.com/2024/11/30/briefing/giving-love.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957277/2024/11/30/green-bay-packers-quay-walker-do
 **Rebels Control Most of Syria’s Largest City, War Monitor Says**\
 `The rapid advance on Aleppo came just four days into a surprise rebel offensive that is the most intense escalation in years in a civil war that was mostly dormant.`\
 https://nytimes.com/2024/11/30/world/middleeast/syria-aleppo-rebels-control.html
-
-**NFL Week 13 roundtable: Trevor Lawrence's return, Aaron Rodgers' future, second-year QB surge**\
-`While Lawrence's return is a storyline in Jacksonville, Rodgers' future hovers over the Jets. Our writers discuss Week 13.`\
-https://nytimes.com/athletic/5957308/2024/11/30/nfl-week-13-roundtable-lawrence-rodgers-jets-qbs/
 
