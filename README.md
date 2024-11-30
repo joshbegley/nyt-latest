@@ -1,3 +1,7 @@
+**Emerson: Georgia-Georgia Tech a lesson in never hitting publish until it's really over**\
+`Georgia vs. Georgia Tech is a great reminder of why games — and sportswriters — should never hit publish until it's really over.`\
+https://nytimes.com/athletic/5958428/2024/11/30/georgia-georgia-tech-score-analysis/
+
 **Wood backed to keep scoring after equalling Nottm Forest record**\
 `Nuno Espirito Santo believes Chris Wood can keep thriving at the highest level for several years yet, after seeing him become Nottingham Forest’s joint-top Premier League goalscorer.`\
 https://nytimes.com/athletic/5958422/2024/11/30/chris-wood-forest-goals-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957696/2024/11/30/canucks-trade-filip-hronek-optio
 **‘This Was One of the Most Delicious Recipes We Have Made’**\
 `Sarah DiGregorio’s salmon and kimchi skillet, a five-star, five-ingredient dinner to kick-start your taste buds.`\
 https://nytimes.com/2024/11/30/dining/kimchi-recipes.html
-
-**Saudi Arabia Leads Pushback Against Global Plastic Treaty**\
-`Delegates from more than 170 countries are working to salvage a treaty that would tackle the growing problem of plastic pollution.`\
-https://nytimes.com/2024/11/30/climate/saudi-arabia-global-plastic-treaty.html
 
