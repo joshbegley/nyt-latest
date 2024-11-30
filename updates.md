@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-
 `\
 https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
 
+**Kyle Dubas' bet on Philip Tomasino pays off, Tristan Jarry takes big step for Penguins: 3 takeaways**\
+`Tomasino scored the winner and Jarry was sharp for the Penguins in a 2-1 victory over the Bruins.
+`\
+https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
+
 **Iowa tops Nebraska on 53-yard walk-off field goal: Hawkeyes-Huskers takeaways**\
 `The past seven matchups have been decided by seven points or fewer, but Iowa has won nine of the past 10.`\
 https://nytimes.com/athletic/5957835/2024/11/29/nebraska-football-iowa-takeaways-result/
