@@ -1,3 +1,23 @@
+**Inside the mind of Erling Haaland: everything and nothing**\
+`An exquisite football brain is joined by a destructive blankness that elevates the Man City and Norway striker into the sport's stratosphere`\
+https://nytimes.com/athletic/5949031/2024/11/30/erling-haaland-football-mind-man-city/
+
+**As Raptors search for shooters, Jamison Battle and Ja'Kobe Walter get their shot**\
+`With the Raptors building around Scottie Barnes, they need his teammates to be ready to hoist 3s.`\
+https://nytimes.com/athletic/5957899/2024/11/30/raptors-shooting-3s-heat/
+
+**Taiwan’s President to Rally Tiny Pacific Allies to Counter China**\
+`Lai Ching-te is looking to shore up support from three island nations that are among a dwindling number to keep diplomatic ties with Taiwan.`\
+https://nytimes.com/2024/11/30/world/asia/taiwans-president-pacific-islands-china.html
+
+**Real Madrid have a leadership problem - so what are they doing about it?**\
+`A summer exodus and cruel injuries mean other, less experienced players are having to step up`\
+https://nytimes.com/athletic/5956572/2024/11/30/real-madrid-leadership-mbappe-bellingham/
+
+**Putting Manchester City's month-long losing streak into too much context**\
+`Manchester City have gone a month without winning a match — but what else has happened in that time?`\
+https://nytimes.com/athletic/5954908/2024/11/30/manchester-city-losing-run-context-premier-league/
+
 **13 insights fantasy football managers need to know ahead of Week 13**\
 `Among Theo Gremminger's latest fantasy football insights, he says Tee Higgins is sitting in the catbird seat of the 2025 free agency class.`\
 https://nytimes.com/athletic/5957372/2024/11/30/13-insights-fantasy-football-managers-need-to-know-ahead-of-week-13/
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/5957835/2024/11/29/nebraska-football-iowa-takeaways
 **What I’m seeing 5 games after the Bruins' coaching change**\
 `The Bruins are playing better in their five games under Joe Sacco. But they are not built to survive a long-term David Pastrnak drought.`\
 https://nytimes.com/athletic/5957859/2024/11/29/bruins-penguins-david-pastrnak-coach/
-
-**Solving left tackle problem for Patrick Mahomes a must after Chiefs escape Raiders**\
-`For the second time in five days, the Chiefs won, but Mahomes was sacked five times, highlighting issues at left tackle.`\
-https://nytimes.com/athletic/5957814/2024/11/29/chiefs-patrick-mahomes-left-tackle-raiders/
-
-**Kyle Dubas' bet on Philip Tomasino pays off, Tristan Jarry takes big step for Penguins: 3 takeaways**\
-`Tomasino scored the winner and Jarry was sharp for the Penguins in a 2-1 victory over the Bruins.
-`\
-https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
-
-**Styles of Singing**\
-`Oliver Goodridge and Juan Garavito team up on a hairy challenge.`\
-https://nytimes.com/2024/11/29/crosswords/daily-puzzle-2024-11-30.html
-
-**Hurricanes rookie Jackson Blake adapting — and impressing — in NHL**\
-`The 2021 fourth-round pick has emerged as an unexpected top rookie a quarter of the way through the season.`\
-https://nytimes.com/athletic/5957776/2024/11/29/nhl-hurricanes-jackson-blake-rookie/
-
-**How the Raiders fumbled away a golden opportunity to beat the Chiefs**\
-`In position to upset the defending champs, Jackson Powers-Johnson snapped the ball before Aidan O'Connell was ready — and the game was lost.`\
-https://nytimes.com/athletic/5957758/2024/11/29/raiders-botched-snap-fumble-chiefs/
 

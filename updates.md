@@ -1,3 +1,23 @@
+**Inside the mind of Erling Haaland: everything and nothing**\
+`An exquisite football brain is joined by a destructive blankness that elevates the Man City and Norway striker into the sport's stratosphere`\
+https://nytimes.com/athletic/5949031/2024/11/30/erling-haaland-football-mind-man-city/
+
+**As Raptors search for shooters, Jamison Battle and Ja'Kobe Walter get their shot**\
+`With the Raptors building around Scottie Barnes, they need his teammates to be ready to hoist 3s.`\
+https://nytimes.com/athletic/5957899/2024/11/30/raptors-shooting-3s-heat/
+
+**Taiwan’s President to Rally Tiny Pacific Allies to Counter China**\
+`Lai Ching-te is looking to shore up support from three island nations that are among a dwindling number to keep diplomatic ties with Taiwan.`\
+https://nytimes.com/2024/11/30/world/asia/taiwans-president-pacific-islands-china.html
+
+**Real Madrid have a leadership problem - so what are they doing about it?**\
+`A summer exodus and cruel injuries mean other, less experienced players are having to step up`\
+https://nytimes.com/athletic/5956572/2024/11/30/real-madrid-leadership-mbappe-bellingham/
+
+**Putting Manchester City's month-long losing streak into too much context**\
+`Manchester City have gone a month without winning a match — but what else has happened in that time?`\
+https://nytimes.com/athletic/5954908/2024/11/30/manchester-city-losing-run-context-premier-league/
+
 **Kyle Dubas' bet on Philip Tomasino pays off, Tristan Jarry takes big step for Penguins: 3 takeaways**\
 `Tomasino scored the winner and Jarry was sharp for the Penguins in a 2-1 victory over the Bruins.
 `\
