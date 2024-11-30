@@ -1,3 +1,11 @@
+**Michigan at Ohio State picks, odds: Buckeyes look to end skid against Wolverines**\
+`Ohio State hosts Michigan in the latest edition of one of college football's top rivalries. Can the Buckeyes end the skid to their rivals?`\
+https://nytimes.com/athletic/5957041/2024/11/30/michigan-ohio-state-how-to-watch-picks-odds/
+
+**Quote of the Day: Macron Takes an Early Look at a Gleaming Notre-Dame**\
+`Quotation of the Day for Saturday, November 30, 2024.`\
+https://nytimes.com/2024/11/29/pageoneplus/quote-of-the-day-macron-takes-an-early-look-at-a-gleaming-notre-dame.html
+
 **Iowa tops Nebraska on 53-yard walk-off field goal: Hawkeyes-Huskers takeaways**\
 `The past seven matchups have been decided by seven points or fewer, but Iowa has won nine of the past 10.`\
 https://nytimes.com/athletic/5957835/2024/11/29/nebraska-football-iowa-takeaways-result/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5957758/2024/11/29/raiders-botched-snap-fumble-chie
 **Corrections: Nov. 30, 2024**\
 `Corrections that appeared in print on Saturday, Nov. 30, 2024.`\
 https://nytimes.com/2024/11/29/pageoneplus/corrections-nov-30-2024.html
-
-**Georgia Tech stunning Georgia 17-0 at halftime**\
-`No. 7 Georgia, favored by 19.5 points, is down 17-0 to Georgia Tech, and it could be worse than that.`\
-https://nytimes.com/athletic/5957539/2024/11/29/georgia-tech-georgia-rivalry-game-result/
-
-**Blue Jackets embrace Dean Evason's style, and the physical response it demands**\
-`The Blue Jackets played fast and physical in a 5-2 win over the Flames.`\
-https://nytimes.com/athletic/5957651/2024/11/29/blue-jackets-flames-dean-evason/
 
