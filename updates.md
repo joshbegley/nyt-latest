@@ -318,6 +318,11 @@ https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-de
 `\
 https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
 
+**'Incredible feeling': Kings goalie Erik Portillo steals win over Ducks in NHL debut**\
+`In a 2-1 win over the Ducks, the Kings' goalie of the future showed a glimpse of what he can one day offer in a regular role.
+`\
+https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
+
 **Is Archie Gray finally about to be given the chance to play in midfield?**\
 `The 18-year-old has so far only played at the back - will Rodrigo Bentancur's suspension and a gruelling run of fixtures change that?`\
 https://nytimes.com/athletic/5951942/2024/11/30/archie-gray-midfield-tottenham/
