@@ -1,3 +1,7 @@
+**How losses to Wild, Canucks show Sabres still need to find another level offensively**\
+`The Sabres keep grinding out points but are playing with razor-thin margins if they can’t produce more offense.`\
+https://nytimes.com/athletic/5957712/2024/11/29/sabres-canucks-recap-stats/
+
 **Jared Spurgeon's leadership continues to be driving force behind Wild's success**\
 `The Wild captain, who scored two goals Friday on his 35th birthday, has been a trusted leader for the team in many ways.`\
 https://nytimes.com/athletic/5957645/2024/11/29/wild-jared-spurgeon-blackhawks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957096/2024/11/29/alphonso-davies-drink-driving-ba
 **Buffalo bracing for feet of snow ahead of 'SNF' showdown vs. 49ers**\
 `The Bills put out a public call for snow shovelers with heavy lake effect snowfall in the forecast leading up to kickoff.`\
 https://nytimes.com/athletic/5957402/2024/11/29/bills-49ers-snow-forecast-highmark-stadium/
-
-**In just over a week, the Rangers have fallen apart. What's next?**\
-`From off-ice turmoil to on-ice disinterest, things have gone off the rails for the Rangers in a matter of only eight days.`\
-https://nytimes.com/athletic/5957400/2024/11/29/new-york-rangers-trouba-kreider/
 
