@@ -1,5 +1,5 @@
 **Iowa tops Nebraska on 53-yard walk-off field goal: Hawkeyes-Huskers takeaways**\
-`The last seven matchups have been decided by seven points or fewer, but Iowa has won nine of the past 10.`\
+`The past seven matchups have been decided by seven points or fewer, but Iowa has won nine of the past 10.`\
 https://nytimes.com/athletic/5957835/2024/11/29/nebraska-football-iowa-takeaways-result/
 
 **What I’m seeing 5 games after the Bruins' coaching change**\
