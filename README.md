@@ -1,3 +1,15 @@
+**Trump Says He Will Replace F.B.I. Director With Kash Patel**\
+`President-elect Donald J. Trump appointed Christopher A. Wray to the post in 2017 after firing his predecessor, James B. Comey, but their relationship soured.`\
+https://nytimes.com/2024/11/30/us/politics/trump-replace-christopher-wray.html
+
+**NHL trade grades: David Jiricek deal is a poor return on investment for Blue Jackets**\
+`The main asset Columbus gets back is a 2025 first-rounder over Daemon Hunt, even if it seems likely it will be a late first-round pick.`\
+https://nytimes.com/athletic/5958993/2024/11/30/david-jiricek-trade-blue-jackets-wild-grades/
+
+**Commanders release Forbes, put Ekeler on IR in flurry of roster moves**\
+`Emmanuel Forbes is the third first-round selection released or traded by the new Commanders’ staff since August.`\
+https://nytimes.com/athletic/5958960/2024/11/30/commanders-roster-emmanuel-forbes-release/
+
 **Tax Preparers Charged in Scheme to Defraud Covid Relief of $65 Million**\
 `The preparers filed for pandemic-related tax credits on behalf of ineligible clients and then netted hefty filing fees, officials said.`\
 https://nytimes.com/2024/11/30/us/tax-preparers-fraud-covid-relief.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5953370/2024/11/30/david-jiricek-trade-blue-jackets
 **F1 Qatar GP preview: Can Ferrari stave off McLaren’s title bid another week?**\
 `McLaren could be celebrating its first constructors’ championship in almost three decades — but a few rivals stand in the way. `\
 https://nytimes.com/athletic/5958639/2024/11/30/f1-qatar-gp-preview-mclaren-ferrari-championship/
-
-**Max Verstappen won't start from pole at Qatar GP after F1 stewards issue penalty**\
-`Verstappen still hasn't started from pole this season since the Austrian Grand Prix in June.`\
-https://nytimes.com/athletic/5958536/2024/11/30/f1-qatar-gp-max-verstappen-pole-penalty-george-russell/
-
-**Hayes on fans booing Albert at Wembley: 'Everybody is entitled to their opinions’**\
-`U.`\
-https://nytimes.com/athletic/5958711/2024/11/30/korbin-albert-uswnt-england/
-
-**Protesters Clash With Police After Georgia Puts E.U. Accession on Hold**\
-`Thousands demonstrated in Tbilisi, Georgia, after the country said it had suspended its bid to join the European Union for four years. The police used tear gas and water cannons on protesters outside the Parliament building.`\
-https://nytimes.com/video/world/europe/100000009852662/georgia-parliament-protests-european-union.html
 
