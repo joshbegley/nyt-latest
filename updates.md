@@ -1,3 +1,7 @@
+**Max Verstappen claims first F1 pole in 3 months at Qatar Grand Prix**\
+`Verstappen hadn't taken pole this season since the Austrian Grand Prix in June.`\
+https://nytimes.com/athletic/5958536/2024/11/30/max-verstappen-f1-pole-qatar-gp/
+
 **A. Cornelius Baker, Champion of H.I.V. Testing, Dies at 63**\
 `Working inside the government and out, he lobbied to improve the lives of people with H.I.V. and AIDS, particularly those who belonged to minority groups.`\
 https://nytimes.com/2024/11/30/health/a-cornelius-baker-dead.html
