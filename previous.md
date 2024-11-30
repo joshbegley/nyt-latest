@@ -1,3 +1,11 @@
+**South Carolina's Beamer: 'Name a player' who's done more than QB Sellers**\
+`Behind South Carolina's 'magic' quarterback, the Gamecocks are coming for the Playoff — even if it might be another year.`\
+https://nytimes.com/athletic/5958963/2024/11/30/south-carolina-clemson-lanorris-sellers/
+
+**Jacob Trouba's fight, Kaapo Kakko's late goal and a better start: 6 Rangers takeaways**\
+`The Rangers gave the dressing room, and perhaps management, an exhale-worthy 4-3 win against Montreal.`\
+https://nytimes.com/athletic/5958894/2024/11/30/rangers-jacob-trouba-kaapo-kakko-takeaways/
+
 **Drive Around the Block**\
 `John Lieb makes a nice Sunday debut.`\
 https://nytimes.com/2024/11/30/crosswords/daily-puzzle-2024-12-01.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009852662/georgia-parliament-protes
 **Bruins CEO Charlie Jacobs: 'We're a .500 club right now'**\
 `Jacobs said the Bruins, who are 11-11-3 and fourth in the Atlantic Division, have "yet to play our best game.”`\
 https://nytimes.com/athletic/5958790/2024/11/30/bruins-ceo-charlie-jacobs-pastrnak-marchand/
-
-**UCF coach Gus Malzahn stepping down to take job as Florida State's OC**\
-`Malzahn went 28-24 with the Knights, but after two nine-win seasons in the AAC, UCF fell to 10-15 in its first two seasons in the Big 12.`\
-https://nytimes.com/athletic/5948685/2024/11/30/gus-malzahn-resign-ucf-florida-state/
-
-**Chargers place J.K. Dobbins, Alohi Gilman on IR**\
-`Dobbins had emerged as an NFL Comeback Player of the Year candidate after injuries limited him to nine games the past three seasons.`\
-https://nytimes.com/athletic/5958772/2024/11/30/chargers-jk-dobbins-alohi-gilman-injuries/
 

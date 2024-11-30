@@ -1,3 +1,11 @@
+**South Carolina's Beamer: 'Name a player' who's done more than QB Sellers**\
+`Behind South Carolina's 'magic' quarterback, the Gamecocks are coming for the Playoff — even if it might be another year.`\
+https://nytimes.com/athletic/5958963/2024/11/30/south-carolina-clemson-lanorris-sellers/
+
+**Jacob Trouba's fight, Kaapo Kakko's late goal and a better start: 6 Rangers takeaways**\
+`The Rangers gave the dressing room, and perhaps management, an exhale-worthy 4-3 win against Montreal.`\
+https://nytimes.com/athletic/5958894/2024/11/30/rangers-jacob-trouba-kaapo-kakko-takeaways/
+
 **Heavy Snowfall Blankets Parts of the Great Lakes Region**\
 `States braced for more whiteout conditions in the coming days as a lake-effect storm dropped several feet of snow in parts of the region by the early weekend.`\
 https://nytimes.com/video/weather/100000009852706/great-lakes-snow-storm.html
