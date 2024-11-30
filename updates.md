@@ -1,3 +1,11 @@
+**Do Chelsea need to upgrade in the transfer market to become title contenders?**\
+`Chelsea are doing well in the Premier League, but do they need to add to their squad to hit elite levels again?`\
+https://nytimes.com/athletic/5956135/2024/11/30/chelsea-transfer-premier-league-title-contenders/
+
+**Barcelona 125: An A to Z of the club, from Alcantara to Zamora**\
+`To mark the 125th anniversary of the formation of Barca, we celebrate the people and the moments who have helped make the club what it is.`\
+https://nytimes.com/athletic/5955742/2024/11/30/barcelona-125-anniversary-messi-cruyff/
+
 **Inside the mind of Erling Haaland: everything and nothing**\
 `An exquisite football brain is joined by a destructive blankness that elevates the Man City and Norway striker into the sport's stratosphere`\
 https://nytimes.com/athletic/5949031/2024/11/30/erling-haaland-football-mind-man-city/
