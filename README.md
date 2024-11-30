@@ -1,3 +1,8 @@
+**Kyle Dubas' bet on Philip Tomasino pays off, Tristan Jarry takes big step for Penguins: 3 takeaways**\
+`Tomasino scored the winner and Jarry was sharp for the Penguins in a 2-1 victory over the Bruins.
+`\
+https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
+
 **Styles of Singing**\
 `Oliver Goodridge and Juan Garavito team up on a hairy challenge.`\
 https://nytimes.com/2024/11/29/crosswords/daily-puzzle-2024-11-30.html
@@ -33,8 +38,4 @@ https://nytimes.com/2024/11/29/us/politics/pete-hegseth-mother-email.html
 **How losses to Wild, Canucks show Sabres still need to find another level offensively**\
 `The Sabres keep grinding out points but are playing with razor-thin margins if they can’t produce more offense.`\
 https://nytimes.com/athletic/5957712/2024/11/29/sabres-canucks-recap-stats/
-
-**Jared Spurgeon's leadership continues to be driving force behind Wild's success**\
-`The Wild captain, who scored two goals Friday on his 35th birthday, has been a trusted leader for the team in many ways.`\
-https://nytimes.com/athletic/5957645/2024/11/29/wild-jared-spurgeon-blackhawks/
 
