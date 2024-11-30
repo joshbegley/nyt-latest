@@ -1,40 +1,40 @@
+**The Bears finally fired Matt Eberflus. But he lost the locker room long ago**\
+`The Shane Waldron experience and the Hail Mary debacle cost Eberflus credibility at Halas Hall. The Thanksgiving loss was the last straw.`\
+https://nytimes.com/athletic/5957910/2024/11/30/matt-eberflus-fired-bears-players-locker-room/
+
+**Note to Democrats: It’s Time to Take Up Your Hammers**\
+`There is a straight line from homeless schoolchildren to Donald Trump’s election victory.`\
+https://nytimes.com/2024/11/30/opinion/homeless-children-democrats-housing.html
+
+**Why I’m Not Giving up on American Democracy**\
+`The free and decent country that saved my family from Soviet Hungary is now under threat.`\
+https://nytimes.com/2024/11/30/opinion/trump-orban-hungary-journalists-persecution.html
+
+**Stan Bowman Q&A: How has the Oilers' start impacted future roster decisions?**\
+`The Oilers are well ahead of their dismal 5-12-1 mark at this time last season, but they’re not where they should be, either.`\
+https://nytimes.com/athletic/5957912/2024/11/30/oilers-standings-start-stan-bowman/
+
+**Reckoning With the Connection Between Brain Injuries and Criminal Behavior**\
+`In the fight to reduce recidivism, we may be ignoring one major element.`\
+https://nytimes.com/2024/11/30/opinion/brain-injury-incarcerations-crime.html
+
+**A Job and Community Transform Refugees’ Lives**\
+`The organization doesn’t just teach culinary skills — it provides additional support, such as résumé building and English classes.`\
+https://nytimes.com/2024/11/30/opinion/charity-holiday-gift-refugees.html
+
+**New Orleans Knows It May Not Live Forever. We Could All Take a Cue.**\
+`Unlike the other major cities that appear on lists of unsafe places, New Orleans has a striking competitive advantage.`\
+https://nytimes.com/2024/11/30/opinion/new-orleans-hurricanes-climate-change.html
+
+**How Our Messed-Up Dating Culture Leads to Loneliness, Anger and Donald Trump**\
+`A generation of resentful young men has arisen from the cultural norm dictating that men must be the breadwinners.`\
+https://nytimes.com/2024/11/30/opinion/dating-bro-culture-manosphere-trump-cinderella.html
+
+**Rodrygo to return from injury for Madrid against Getafe**\
+`Real Madrid are set to be boosted with Rodrygo&#8217;s return from injury for the La Liga game with Getafe on Sunday.`\
+https://nytimes.com/athletic/5958088/2024/11/30/rodrygo-real-madrid-injury-latest/
+
 **Israeli Strike in North Gaza Kills Dozens, Rescue Group Says**\
 `Israel was pressing forward with an operation in Gaza to combat what it described as a Hamas resurgence. In Lebanon, an uneasy cease-fire appeared to be largely holding.`\
 https://nytimes.com/2024/11/30/world/middleeast/israel-north-gaza-lebanon-cease-fire.html
-
-**Giving Love**\
-`The act of giving a gift is a vehicle for showing people how you feel. Here are tips to find the perfect present.`\
-https://nytimes.com/2024/11/30/briefing/giving-love.html
-
-**Can the Vikings keep pace in the NFC North against the gritty Cardinals?**\
-`The Vikings need a win at home Sunday to stay one game behind the 11-1 Lions, who lead the way in the North and have the NFC's best record.`\
-https://nytimes.com/athletic/5957315/2024/11/30/vikings-cardinals-preview-predictions-week-13/
-
-**For Canada, Trade Tumult From Trump’s Return Has Begun**\
-`While the president-elect says he will impose a 25 percent tariff on everything Canada exports, Trudeau remains confident about forestalling that outcome.`\
-https://nytimes.com/2024/11/30/world/canada/tariffs-trump-trudeau.html
-
-**Texas at Texas A&M: How to watch, picks, odds as rivalry returns with huge stakes**\
-`The Texas-Texas A&M rivalry returns on Saturday night with a spot in the SEC title game on the line.`\
-https://nytimes.com/athletic/5957239/2024/11/30/texas-am-how-to-watch-picks-odds/
-
-**The Connections Companion No. 539**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 1, 2024.`\
-https://nytimes.com/2024/11/30/crosswords/connections-companion-539.html
-
-**Wordle Review No. 1,261**\
-`Scroll down for hints and conversation about the puzzle for Dec. 1, 2024.`\
-https://nytimes.com/2024/11/30/crosswords/wordle-review-1261.html
-
-**Bernabeu? Camp Nou? Casablanca? The race to host 2030 World Cup final**\
-`FIFA has published the official bid evaluation report for the 2030 World Cup — so where will the final be played?`\
-https://nytimes.com/athletic/5958060/2024/11/30/world-cup-final-2030-stadium-where/
-
-**Packers linebacker Quay Walker is breaking out at just the right time**\
-`Green Bay's first of two 2022 first-round picks had arguably his two best games of the season the last two weeks.`\
-https://nytimes.com/athletic/5957277/2024/11/30/green-bay-packers-quay-walker-dolphins-lions/
-
-**Rebels Control Most of Syria’s Largest City, War Monitor Says**\
-`The rapid advance on Aleppo came just four days into a surprise rebel offensive that is the most intense escalation in years in a civil war that was mostly dormant.`\
-https://nytimes.com/2024/11/30/world/middleeast/syria-aleppo-rebels-control.html
 
