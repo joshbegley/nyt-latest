@@ -1,3 +1,7 @@
+**Chargers place J.K. Dobbins, Alohi Gilman on IR**\
+`Dobbins had emerged as an NFL Comeback Player of the Year candidate after injuries limited him to nine games the past three seasons.`\
+https://nytimes.com/athletic/5958772/2024/11/30/chargers-jk-dobbins-alohi-gilman-injuries/
+
 **West Virginia battered by Texas Tech, 52-15: Is it time to part with Neal Brown?**\
 `Since his arrival in Morgantown in 2019, Brown has helped the team to a 37-35 overall record but is 25-28 in the Big 12 over that span.`\
 https://nytimes.com/athletic/5958605/2024/11/30/west-virginia-regular-season-loss-neal-brown-texas-tech/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/30/us/politics/us-dong-yuyu-sentence.html
 **Rebels Seize Control Over Most of Aleppo in Rapid Advance**\
 `The shift in control over Aleppo, Syria’s largest city, came just four days into a surprise offensive that is the most intense escalation in years in the civil war.`\
 https://nytimes.com/video/world/middleeast/100000009852609/aleppo-syria-rebels.html
-
-**Cucumbers Are Recalled After Salmonella Sickens People in 19 States**\
-`At least 68 people have fallen ill in the outbreak believed to be linked to cucumbers sold in the United States and Canada, the Centers for Disease Control and Prevention said.`\
-https://nytimes.com/2024/11/30/health/cucumbers-salmonella-outbreak-sunfed.html
 
