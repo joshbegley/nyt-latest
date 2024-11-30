@@ -1,3 +1,11 @@
+**Blue Jackets embrace Dean Evason's style, and the physical response it demands**\
+`The Blue Jackets played fast and physical in a 5-2 win over the Flames.`\
+https://nytimes.com/athletic/5957651/2024/11/29/blue-jackets-flames-dean-evason/
+
+**Trudeau Flies to Mar-a-Lago to See Trump Amid Tariff Concerns**\
+`Prime Minister Justin Trudeau of Canada is the first foreign G7 leader to visit President-elect Donald J. Trump since the election. He is under pressure to persuade Mr. Trump to back down from his tariff threat.`\
+https://nytimes.com/2024/11/29/world/canada/trudeau-trump-mar-a-lago-tariffs.html
+
 **Trudeau Flies to Mar-a-Lago to See Trump Amid Tariff Concerns**\
 `Prime Minister Justin Trudeau of Canada is the first G7 leader to visit President-elect Donald J. Trump since the election. He is under pressure to persuade Mr. Trump to back down from his tariff threat.`\
 https://nytimes.com/2024/11/29/world/canada/trudeau-trump-mar-a-lago-tariffs.html
