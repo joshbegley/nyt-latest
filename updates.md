@@ -1,3 +1,7 @@
+**England 0-0 USWNT takeaways: New-look front three offer promise, if not goals**\
+`The United States duked out a rather tepid 0-0 game against England at Wembley in front of 78,346 fans.`\
+https://nytimes.com/athletic/5958233/2024/11/30/england-0-0-uswnt-takeaways/
+
 **Raiders ask NFL to review final play of loss vs. Chiefs**\
 `The Raiders said they heard an official's whistle on the last play of Friday's game that resulted in a fumble and a 19-17 loss.`\
 https://nytimes.com/athletic/5958469/2024/11/30/las-vegas-raiders-kansas-city-chiefs-video-review/
