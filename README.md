@@ -1,3 +1,7 @@
+**Michgan, Ohio State players and police involved in postgame fight after shocking upset**\
+`Police and team staff stepped in to break up the fight, which intensified after Michigan planted its flag on Ohio State's field.`\
+https://nytimes.com/athletic/5958692/2024/11/30/michigan-vs-ohio-state-fight/
+
 **Hal Lindsey, Author of ‘The Late, Great Planet Earth,’ Dies at 95**\
 `In that 1970 book and others he wrote of history and apocalyptic predictions based on biblical interpretations and actual events of the time.`\
 https://nytimes.com/2024/11/30/books/hal-lindsey-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958469/2024/11/30/las-vegas-raiders-kansas-city-ch
 **The Briefing: West Ham 2 Arsenal 5: Gabriel - king of corners, Saka's record to chase,**\
 `Arsenal beat West Ham 5-2 as they look to put pressure on Liverpool at the top of the Premier League. Here are the big talking points...`\
 https://nytimes.com/athletic/5952416/2024/11/30/west-ham-2-arsenal-5-result-premier-league-saka-gabriel/
-
-**'In the final analysis,' Iowa keeps making Nebraska pay in rising rivalry**\
-`Former Nebraska AD Shawn Eichorst awoke something in Iowa on Nov. 30, 2014 that still carries ramifications for today’s Huskers.`\
-https://nytimes.com/athletic/5958432/2024/11/30/iowa-nebraska-rivalry-history-shawn-eichorst/
 
