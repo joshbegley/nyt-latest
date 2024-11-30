@@ -1,3 +1,7 @@
+**Saudi Arabia Leads a Pushback Against Global Plastic Treaty**\
+`Delegates from more than 170 countries are working to salvage a treaty that would tackle the growing problem of plastic pollution.`\
+https://nytimes.com/2024/11/30/climate/saudi-arabia-global-plastic-treaty.html
+
 **Andrew Luck returning to Stanford as GM of football program**\
 `Luck will oversee every aspect of the program, both on and off the field, in an expanded role rarely seen in college football.`\
 https://nytimes.com/athletic/5958205/2024/11/30/andrew-luck-stanford-general-manager-football/
