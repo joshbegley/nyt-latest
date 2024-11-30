@@ -1,3 +1,7 @@
+**Blue Jackets embrace Dean Evason's style, and the physical response it demands**\
+`The Blue Jackets played fast and physical in a 5-2 win over the Flames.`\
+https://nytimes.com/athletic/5957651/2024/11/29/blue-jackets-flames-dean-evason/
+
 **Text of the Email That Pete Hegseth’s Mother Sent Him**\
 `Penelope Hegseth sent the email to her son in 2018 as he was in the middle of divorcing his wife, Samantha.`\
 https://nytimes.com/2024/11/29/us/politics/hegseth-email-text.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957547/2024/11/29/jaxson-dart-eli-manning-ole-miss
 **Trudeau Flies to Mar-a-Lago to See Trump Amid Tariff Concerns**\
 `Prime Minister Justin Trudeau of Canada is the first G7 leader to visit President-elect Donald J. Trump since the election. He is under pressure to persuade Mr. Trump to back down from his tariff threat.`\
 https://nytimes.com/2024/11/29/world/canada/trudeau-trump-mar-a-lago-tariffs.html
-
-**How Garland, Hughes and Lankinen drove a gutsy Canucks win: 3 takeaways**\
-`Vancouver excelled on special teams, showed guts and leaned on brilliant individual performances to beat Buffalo.`\
-https://nytimes.com/athletic/5957403/2024/11/29/canucks-sabres-recap-hughes-garland/
 
