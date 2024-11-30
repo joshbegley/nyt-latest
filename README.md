@@ -1,3 +1,7 @@
+**U.S. Condemns China’s Harsh Sentence for a Prominent Journalist**\
+`The sentencing of Dong Yuyu, a former Harvard Nieman fellow, signals that officials consider some exchanges between Chinese citizens and foreigners to be espionage.`\
+https://nytimes.com/2024/11/30/us/politics/us-dong-yuyu-entence.html
+
 **Rebels Seize Control Over Most of Aleppo in Rapid Advance**\
 `The shift in control over Aleppo, Syria’s largest city, came just four days into a surprise offensive that is the most intense escalation in years in the civil war.`\
 https://nytimes.com/video/world/middleeast/100000009852609/aleppo-syria-rebels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/30/health/a-cornelius-baker-dead.html
 **Minnesota Lynx add Eric Thibault, Lindsay Whalen to coaching staff**\
 `Thibault comes to Minnesota after more than a decade with the Mystics, while former Lynx legend Whalen returns home.`\
 https://nytimes.com/athletic/5958384/2024/11/30/lynx-lindsay-whalen-eric-thibault-assistant-coaching-hires/
-
-**Emerson: Georgia-Georgia Tech a lesson in never hitting publish until it's really over**\
-`Georgia vs. Georgia Tech is a great reminder of why games — and sportswriters — should never hit publish until it's really over.`\
-https://nytimes.com/athletic/5958428/2024/11/30/georgia-georgia-tech-score-analysis/
 
