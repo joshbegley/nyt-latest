@@ -1,3 +1,20 @@
+**The Hole in This Bagel Shop’s Business Model? It’s Too Popular.**\
+`Apollo Bagels in the West Village is drawing lines out the door — and most of the way down the block. Now it’s in a legal fight to stave off eviction.`\
+https://nytimes.com/2024/11/30/nyregion/apollo-bagels-nyc.html
+
+**How a Coffee Fortune Teller Spends His Sundays**\
+`Dr. Honeybrew, as he is known, starts his days with music before brewing Turkish coffee in hot sand and opening his home to guests for a little bit of magic.`\
+https://nytimes.com/2024/11/30/nyregion/how-a-coffee-fortune-teller-spends-his-sundays.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/30/crosswords/spelling-bee-forum.html
+
+**'Incredible feeling': Kings goalie Erik Portillo steals win over Ducks in NHL debut**\
+`In a 2-1 win over the Ducks, the Kings' goalie of the future showed a glimpse of what he can one day offer in a regular role.
+`\
+https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
+
 **'Incredible feeling': Kings goalie Erik Portillo steals win over Ducks in NHL debut**\
 `In a 2-1 win over the Ducks, the Kings' goalie of the future showed a glimpse of what he can one day offer in a regular role.
 `\
