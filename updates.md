@@ -1,3 +1,15 @@
+**Packers linebacker Quay Walker is breaking out at just the right time**\
+`Green Bay's first of two 2022 first-round picks had arguably his two best games of the season the last two weeks.`\
+https://nytimes.com/athletic/5957277/2024/11/30/green-bay-packers-quay-walker-dolphins-lions/
+
+**Rebels Control Most of Syria’s Largest City, War Monitor Says**\
+`The rapid advance on Aleppo came just four days into a surprise rebel offensive that is the most intense escalation in years in a civil war that was mostly dormant.`\
+https://nytimes.com/2024/11/30/world/middleeast/syria-aleppo-rebels-control.html
+
+**NFL Week 13 roundtable: Trevor Lawrence's return, Aaron Rodgers' future, second-year QB surge**\
+`While Lawrence's return is a storyline in Jacksonville, Rodgers' future hovers over the Jets. Our writers discuss Week 13.`\
+https://nytimes.com/athletic/5957308/2024/11/30/nfl-week-13-roundtable-lawrence-rodgers-jets-qbs/
+
 **Israel-Hezbollah Cease-Fire Rests on a Wobbly Linchpin: Lebanon’s Army**\
 `The Lebanese Army is tasked with ensuring that Hezbollah abides by the cease-fire. It has failed at that task before.`\
 https://nytimes.com/2024/11/30/world/middleeast/lebanon-army-ceasefire-israel-hezbollah.html

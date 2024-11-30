@@ -1,3 +1,15 @@
+**Packers linebacker Quay Walker is breaking out at just the right time**\
+`Green Bay's first of two 2022 first-round picks had arguably his two best games of the season the last two weeks.`\
+https://nytimes.com/athletic/5957277/2024/11/30/green-bay-packers-quay-walker-dolphins-lions/
+
+**Rebels Control Most of Syria’s Largest City, War Monitor Says**\
+`The rapid advance on Aleppo came just four days into a surprise rebel offensive that is the most intense escalation in years in a civil war that was mostly dormant.`\
+https://nytimes.com/2024/11/30/world/middleeast/syria-aleppo-rebels-control.html
+
+**NFL Week 13 roundtable: Trevor Lawrence's return, Aaron Rodgers' future, second-year QB surge**\
+`While Lawrence's return is a storyline in Jacksonville, Rodgers' future hovers over the Jets. Our writers discuss Week 13.`\
+https://nytimes.com/athletic/5957308/2024/11/30/nfl-week-13-roundtable-lawrence-rodgers-jets-qbs/
+
 **Israel-Hezbollah Cease-Fire Rests on a Wobbly Linchpin: Lebanon’s Army**\
 `The Lebanese Army is tasked with ensuring that Hezbollah abides by the cease-fire. It has failed at that task before.`\
 https://nytimes.com/2024/11/30/world/middleeast/lebanon-army-ceasefire-israel-hezbollah.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/30/world/africa/rfk-jr-kennedy-international-work-pu
 **For Rising Democrats, the Quiet Race to Lead the Party Began Months Ago**\
 `As Kamala Harris dominated attention on the 2024 trail, ambitious Democrats were also blanketing the country, building relationships that could pay dividends in the fight for the party’s future.`\
 https://nytimes.com/2024/11/30/us/politics/2028-democrats-whitmer-shapiro-newsom.html
-
-**How ‘Death Becomes Her’ Changed the Way Movies Look**\
-`The loony 1992 comedy’s visual effects broke new ground (along with Meryl Streep’s neck). With the film’s Broadway musical adaptation, a look at its enduring legacy.`\
-https://nytimes.com/2024/11/30/movies/death-becomes-her-movie-visual-effects.html
-
-**Fashion’s Last Great Weirdo**\
-`With a new store in Los Angeles, a Levi’s collaboration and a growing international presence, Kiko Kostadinov is building that rarest thing in fashion: an independent, family-run empire.`\
-https://nytimes.com/2024/11/30/style/kiko-kostadinov-mens-wear.html
-
-**6 Podcasts That Will Read You a Bedtime Story**\
-`If you’re seeking a respite for your brain at the end of the day, these shows deliver tales that are diverting but uneventful enough to help you doze off.`\
-https://nytimes.com/2024/11/30/arts/podcasts-bedtime-stories.html
 
