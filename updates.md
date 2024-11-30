@@ -1,3 +1,7 @@
+**Andrew Luck returning to Stanford as GM of football program**\
+`Luck will oversee every aspect of the program, both on and off the field, in an expanded role rarely seen in college football.`\
+https://nytimes.com/athletic/5958205/2024/11/30/andrew-luck-stanford-general-manager-football/
+
 **Cade Cunningham's playmaking keeps Pistons unbeaten in NBA Cup**\
 `Detroit missed Cunningham during his 3-game absence due to a left sacroiliac joint sprain.`\
 https://nytimes.com/athletic/5957936/2024/11/30/cade-cunningham-playmaking-pistons-nba-cup/
