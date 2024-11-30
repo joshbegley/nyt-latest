@@ -2,6 +2,10 @@
 `McLaren could be celebrating its first constructors’ championship in almost three decades — but a few rivals stand in the way. `\
 https://nytimes.com/athletic/5958639/2024/11/30/f1-qatar-gp-preview-mclaren-ferrari-championship/
 
+**Max Verstappen won't start from pole at Qatar GP after F1 stewards issue penalty**\
+`Verstappen still hasn't started from pole this season since the Austrian Grand Prix in June.`\
+https://nytimes.com/athletic/5958536/2024/11/30/f1-qatar-gp-max-verstappen-pole-penalty-george-russell/
+
 **Hayes on fans booing Albert at Wembley: 'Everybody is entitled to their opinions’**\
 `U.`\
 https://nytimes.com/athletic/5958711/2024/11/30/korbin-albert-uswnt-england/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/30/us/politics/trump-charles-kushner-france-ambassad
 **College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-projections-odds/
-
-**Michigan, Ohio State players and police involved in postgame fight after shocking upset**\
-`Police and team staff stepped in to break up the fight, which intensified after Michigan planted its flag on Ohio State's field.`\
-https://nytimes.com/athletic/5958692/2024/11/30/michigan-vs-ohio-state-fight/
 
