@@ -1,3 +1,20 @@
+**'Incredible feeling': Kings goalie Erik Portillo steals win over Ducks in NHL debut**\
+`In a 2-1 win over the Ducks, the Kings' goalie of the future showed a glimpse of what he can one day offer in a regular role.
+`\
+https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
+
+**Is Archie Gray finally about to be given the chance to play in midfield?**\
+`The 18-year-old has so far only played at the back - will Rodrigo Bentancur's suspension and a gruelling run of fixtures change that?`\
+https://nytimes.com/athletic/5951942/2024/11/30/archie-gray-midfield-tottenham/
+
+**Joe Whitworth: 'I want to play for Palace in the Premier League and my height won't hold me back'**\
+`The young loanee has kept nine clean sheets in League One and is excelling in his first full season of senior football at Exeter City`\
+https://nytimes.com/athletic/5949641/2024/11/30/whitworth-crystal-palace-exeter-england/
+
+**Smooth Criminal lean, flexible hands: Kelleher's technique that makes him a penalty expert**\
+`Caoimhin Kelleher made another save from a penalty kick against Real Madrid on Wednesday night`\
+https://nytimes.com/athletic/5955056/2024/11/30/liverpool-caoimhin-kelleher-penalty-analysis/
+
 **Do Chelsea need to upgrade in the transfer market to become title contenders?**\
 `Chelsea are doing well in the Premier League, but do they need to add to their squad to hit elite levels again?`\
 https://nytimes.com/athletic/5956135/2024/11/30/chelsea-transfer-premier-league-title-contenders/
@@ -21,20 +38,4 @@ https://nytimes.com/2024/11/30/world/asia/taiwans-president-pacific-islands-chin
 **Real Madrid have a leadership problem - so what are they doing about it?**\
 `A summer exodus and cruel injuries mean other, less experienced players are having to step up`\
 https://nytimes.com/athletic/5956572/2024/11/30/real-madrid-leadership-mbappe-bellingham/
-
-**Putting Manchester City's month-long losing streak into too much context**\
-`Manchester City have gone a month without winning a match — but what else has happened in that time?`\
-https://nytimes.com/athletic/5954908/2024/11/30/manchester-city-losing-run-context-premier-league/
-
-**13 insights fantasy football managers need to know ahead of Week 13**\
-`Among Theo Gremminger's latest fantasy football insights, he says Tee Higgins is sitting in the catbird seat of the 2025 free agency class.`\
-https://nytimes.com/athletic/5957372/2024/11/30/13-insights-fantasy-football-managers-need-to-know-ahead-of-week-13/
-
-**Michigan at Ohio State picks, odds: Buckeyes look to end skid against Wolverines**\
-`Ohio State hosts Michigan in the latest edition of one of college football's top rivalries. Can the Buckeyes end the skid to their rivals?`\
-https://nytimes.com/athletic/5957041/2024/11/30/michigan-ohio-state-how-to-watch-picks-odds/
-
-**Quote of the Day: Macron Takes an Early Look at a Gleaming Notre-Dame**\
-`Quotation of the Day for Saturday, November 30, 2024.`\
-https://nytimes.com/2024/11/29/pageoneplus/quote-of-the-day-macron-takes-an-early-look-at-a-gleaming-notre-dame.html
 
