@@ -33,6 +33,11 @@ https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-
 `\
 https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
 
+**Kyle Dubas' bet on Philip Tomasino pays off, Tristan Jarry takes big step for Penguins: 3 takeaways**\
+`Tomasino scored the winner and Jarry was sharp for the Penguins in a 2-1 victory over the Bruins.
+`\
+https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
+
 **Solving left tackle problem for Patrick Mahomes a must after Chiefs escape Raiders**\
 `For the second time in five days, the Chiefs won, but Mahomes was sacked five times, highlighting issues at left tackle.`\
 https://nytimes.com/athletic/5957814/2024/11/29/chiefs-patrick-mahomes-left-tackle-raiders/
