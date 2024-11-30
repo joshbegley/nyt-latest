@@ -1,3 +1,8 @@
+**Kyle Dubas' bet on Philip Tomasino pays off, Tristan Jarry takes big step for Penguins: 3 takeaways**\
+`Tomasino scored the winner and Jarry was sharp for the Penguins in a 2-1 victory over the Bruins.
+`\
+https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
+
 **Michigan at Ohio State picks, odds: Buckeyes look to end skid against Wolverines**\
 `Ohio State hosts Michigan in the latest edition of one of college football's top rivalries. Can the Buckeyes end the skid to their rivals?`\
 https://nytimes.com/athletic/5957041/2024/11/30/michigan-ohio-state-how-to-watch-picks-odds/
