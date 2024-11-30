@@ -1,3 +1,11 @@
+**Trump Names Charles Kushner as Pick for Ambassador to France**\
+`The announcement elevated Mr. Kushner, the father of President Donald J. Trump’s son-in-law and the recipient of a presidential pardon at the end of Mr. Trump’s first term.`\
+https://nytimes.com/2024/11/30/us/politics/trump-charles-kushner-france-ambassador.html
+
+**Michigan, Ohio State players and police involved in postgame fight after shocking upset**\
+`Police and team staff stepped in to break up the fight, which intensified after Michigan planted its flag on Ohio State's field.`\
+https://nytimes.com/athletic/5958692/2024/11/30/michigan-vs-ohio-state-fight/
+
 **Michgan, Ohio State players and police involved in postgame fight after shocking upset**\
 `Police and team staff stepped in to break up the fight, which intensified after Michigan planted its flag on Ohio State's field.`\
 https://nytimes.com/athletic/5958692/2024/11/30/michigan-vs-ohio-state-fight/
