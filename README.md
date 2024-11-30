@@ -1,3 +1,7 @@
+**Sherman: Nebraska denied the pregame hand shake against Iowa. And it backfired**\
+`Another close loss to Iowa could define Nebraska's season more than the Huskers think it will. `\
+https://nytimes.com/athletic/5958215/2024/11/30/nebraska-iowa-college-football-hand-shake/
+
 **Lakers' errors lead to elimination from NBA Cup, but 'there’s definitely good stuff'**\
 `LeBron James and the Lakers continue to make self-inflicted errors, but the team sees reasons for hope in close loss to West-leading Thunder`\
 https://nytimes.com/athletic/5957784/2024/11/30/lakers-eliminated-nba-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957912/2024/11/30/oilers-standings-start-stan-bowm
 **Reckoning With the Connection Between Brain Injuries and Criminal Behavior**\
 `In the fight to reduce recidivism, we may be ignoring one major element.`\
 https://nytimes.com/2024/11/30/opinion/brain-injury-incarcerations-crime.html
-
-**A Job and Community Transform Refugees’ Lives**\
-`The organization doesn’t just teach culinary skills — it provides additional support, such as résumé building and English classes.`\
-https://nytimes.com/2024/11/30/opinion/charity-holiday-gift-refugees.html
 
