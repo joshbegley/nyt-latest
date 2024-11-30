@@ -513,6 +513,11 @@ https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-de
 `\
 https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
 
+**'Incredible feeling': Kings goalie Erik Portillo steals win over Ducks in NHL debut**\
+`In a 2-1 win over the Ducks, the Kings' goalie of the future showed a glimpse of what he can one day offer in a regular role.
+`\
+https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
+
 **The Hole in This Bagel Shop’s Business Model? It’s Too Popular.**\
 `Apollo Bagels in the West Village is drawing lines out the door — and most of the way down the block. Now it’s in a legal fight to stave off eviction.`\
 https://nytimes.com/2024/11/30/nyregion/apollo-bagels-nyc.html
