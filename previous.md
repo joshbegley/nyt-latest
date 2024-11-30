@@ -1,3 +1,7 @@
+**F1 Qatar GP preview: Can Ferrari stave off McLaren’s title bid another week?**\
+`McLaren could be celebrating its first constructors’ championship in almost three decades — but a few rivals stand in the way. `\
+https://nytimes.com/athletic/5958639/2024/11/30/f1-qatar-gp-preview-mclaren-ferrari-championship/
+
 **Hayes on fans booing Albert at Wembley: 'Everybody is entitled to their opinions’**\
 `U.`\
 https://nytimes.com/athletic/5958711/2024/11/30/korbin-albert-uswnt-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-project
 **Michigan, Ohio State players and police involved in postgame fight after shocking upset**\
 `Police and team staff stepped in to break up the fight, which intensified after Michigan planted its flag on Ohio State's field.`\
 https://nytimes.com/athletic/5958692/2024/11/30/michigan-vs-ohio-state-fight/
-
-**Hal Lindsey, Author of ‘The Late, Great Planet Earth,’ Dies at 95**\
-`In that 1970 book and others he wrote of history and apocalyptic predictions based on biblical interpretations and actual events of the time.`\
-https://nytimes.com/2024/11/30/books/hal-lindsey-dead.html
 

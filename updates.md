@@ -1,3 +1,7 @@
+**F1 Qatar GP preview: Can Ferrari stave off McLaren’s title bid another week?**\
+`McLaren could be celebrating its first constructors’ championship in almost three decades — but a few rivals stand in the way. `\
+https://nytimes.com/athletic/5958639/2024/11/30/f1-qatar-gp-preview-mclaren-ferrari-championship/
+
 **Hayes on fans booing Albert at Wembley: 'Everybody is entitled to their opinions’**\
 `U.`\
 https://nytimes.com/athletic/5958711/2024/11/30/korbin-albert-uswnt-england/
