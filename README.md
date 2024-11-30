@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5957495/2024/11/29/blackhawks-wild-stats-bedard-hal
 https://nytimes.com/athletic/5957547/2024/11/29/jaxson-dart-eli-manning-ole-miss-quarterback-record/
 
 **Trudeau Flies to Mar-a-Lago to See Trump Amid Tariff Concerns**\
-`Prime Minister Justin Trudeau of Canada is the first foreign G7 leader to visit President-elect Donald J. Trump since the election. He is under pressure to persuade Mr. Trump to back down from his tariff threat.`\
+`Prime Minister Justin Trudeau of Canada is the first G7 leader to visit President-elect Donald J. Trump in Florida since the election. He is under pressure to persuade Mr. Trump to back down from his tariff threat.`\
 https://nytimes.com/2024/11/29/world/canada/trudeau-trump-mar-a-lago-tariffs.html
 
