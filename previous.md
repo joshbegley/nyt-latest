@@ -1,3 +1,11 @@
+**Rebels Seize Control Over Most of Aleppo in Rapid Advance**\
+`The shift in control over Aleppo, Syria’s largest city, came just four days into a surprise offensive that is the most intense escalation in years in the civil war.`\
+https://nytimes.com/video/world/middleeast/100000009852609/aleppo-syria-rebels.html
+
+**Cucumbers Are Recalled After Salmonella Sickens People in 19 States**\
+`At least 68 people have fallen ill in the outbreak believed to be linked to cucumbers sold in the United States and Canada, the Centers for Disease Control and Prevention said.`\
+https://nytimes.com/2024/11/30/health/cucumbers-salmonella-outbreak-sunfed.html
+
 **England 0-0 USWNT takeaways: New-look front three offer promise, if not goals**\
 `The United States duked out a rather tepid 0-0 game against England at Wembley in front of 78,346 fans.`\
 https://nytimes.com/athletic/5958233/2024/11/30/england-0-0-uswnt-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5958384/2024/11/30/lynx-lindsay-whalen-eric-thibaul
 **Emerson: Georgia-Georgia Tech a lesson in never hitting publish until it's really over**\
 `Georgia vs. Georgia Tech is a great reminder of why games — and sportswriters — should never hit publish until it's really over.`\
 https://nytimes.com/athletic/5958428/2024/11/30/georgia-georgia-tech-score-analysis/
-
-**Wood backed to keep scoring after equalling Nottm Forest record**\
-`Nuno Espirito Santo believes Chris Wood can keep thriving at the highest level for several years yet, after seeing him become Nottingham Forest’s joint-top Premier League goalscorer.`\
-https://nytimes.com/athletic/5958422/2024/11/30/chris-wood-forest-goals-record/
-
-**Great Lakes Storm Dumps 2 Feet of Snow on Northeast and Midwest, With More to Come**\
-`The lake-effect storm disrupted holiday plans and travel across the region. National Guard troops were dispatched in New York and Pennsylvania.`\
-https://nytimes.com/2024/11/30/us/lake-effect-snow-buffalo-ny-great-lakes.html
 
