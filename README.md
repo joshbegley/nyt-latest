@@ -1,6 +1,6 @@
 **U.S. Condemns China’s Harsh Sentence for a Prominent Journalist**\
 `The sentencing of Dong Yuyu, a former Harvard Nieman fellow, signals that officials consider some exchanges between Chinese citizens and foreigners to be espionage.`\
-https://nytimes.com/2024/11/30/us/politics/us-dong-yuyu-entence.html
+https://nytimes.com/2024/11/30/us/politics/us-dong-yuyu-sentence.html
 
 **Rebels Seize Control Over Most of Aleppo in Rapid Advance**\
 `The shift in control over Aleppo, Syria’s largest city, came just four days into a surprise offensive that is the most intense escalation in years in the civil war.`\
