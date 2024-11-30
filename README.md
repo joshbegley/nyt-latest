@@ -1,11 +1,3 @@
-**Text of the Email That Pete Hegseth’s Mother Sent Him**\
-`Penelope Hegseth sent the email to her son in 2018 as he was in the middle of divorcing his wife, Samantha.`\
-https://nytimes.com/2024/11/29/us/politics/hegseth-email-text.html
-
-**Pete Hegseth’s Mother Accused Her Son of Mistreating Women for Years**\
-`Penelope Hegseth made the accusation in an email to her son in 2018, amid his contentious divorce. She said on Friday that she regretted the email and had apologized to him.`\
-https://nytimes.com/2024/11/29/us/politics/pete-hegseth-mother-email.html
-
 **How losses to Wild, Canucks show Sabres still need to find another level offensively**\
 `The Sabres keep grinding out points but are playing with razor-thin margins if they can’t produce more offense.`\
 https://nytimes.com/athletic/5957712/2024/11/29/sabres-canucks-recap-stats/
@@ -37,4 +29,12 @@ https://nytimes.com/2024/11/29/world/canada/trudeau-trump-mar-a-lago-tariffs.htm
 **How Garland, Hughes and Lankinen drove a gutsy Canucks win: 3 takeaways**\
 `Vancouver excelled on special teams, showed guts and leaned on brilliant individual performances to beat Buffalo.`\
 https://nytimes.com/athletic/5957403/2024/11/29/canucks-sabres-recap-hughes-garland/
+
+**Bayern's Davies banned from driving for a month after DUI**\
+`Alphonso Davies, the Bayern Munich defender and Canadian national team captain, has been banned from driving for one month after being found driving under the influence of alcohol.`\
+https://nytimes.com/athletic/5957096/2024/11/29/alphonso-davies-drink-driving-bayern-munich/
+
+**Buffalo bracing for feet of snow ahead of 'SNF' showdown vs. 49ers**\
+`The Bills put out a public call for snow shovelers with heavy lake effect snowfall in the forecast leading up to kickoff.`\
+https://nytimes.com/athletic/5957402/2024/11/29/bills-49ers-snow-forecast-highmark-stadium/
 
