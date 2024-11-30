@@ -1,3 +1,7 @@
+**Hurricanes rookie Jackson Blake adapting — and impressing — in NHL**\
+`The 2021 fourth-round pick has emerged as an unexpected top rookie a quarter of the way through the season.`\
+https://nytimes.com/athletic/5957776/2024/11/29/nhl-hurricanes-jackson-blake-rookie/
+
 **How the Raiders fumbled away a golden opportunity to beat the Chiefs**\
 `In position to upset the defending champs, Jackson Powers-Johnson snapped the ball before Aidan O'Connell was ready — and the game was lost.`\
 https://nytimes.com/athletic/5957758/2024/11/29/raiders-botched-snap-fumble-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957645/2024/11/29/wild-jared-spurgeon-blackhawks/
 **Chiefs survive vs. Raiders after Las Vegas' critical botched snap: Takeaways**\
 `Kansas City became the first team to clinch a spot in the postseason after earning a stunning Week 13 victory.`\
 https://nytimes.com/athletic/5957553/2024/11/29/chiefs-raiders-game-takeaways/
-
-**Flyers showing signs they could work their way into playoff picture again**\
-`The Flyers are proving they can still will their way to enough points in the standings to keep things interesting.`\
-https://nytimes.com/athletic/5957614/2024/11/29/flyers-rangers-nhl-playoffs/
 
