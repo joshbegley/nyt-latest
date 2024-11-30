@@ -1,3 +1,7 @@
+**Celtics' Payton Pritchard making strong case for Sixth Man of the Year**\
+`“The key to him is he finds different ways to impact games,” Joe Mazzulla said. “He’s grown as a player over the course of his career."`\
+https://nytimes.com/athletic/5957980/2024/11/30/celtics-bulls-payton-pritchard/
+
 **'Incredible feeling': Kings goalie Erik Portillo steals win over Ducks in NHL debut**\
 `In a 2-1 win over the Ducks, the Kings' goalie of the future showed a glimpse of what he can one day offer in a regular role.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5957899/2024/11/30/raptors-shooting-3s-heat/
 **Taiwan’s President to Rally Tiny Pacific Allies to Counter China**\
 `Lai Ching-te is looking to shore up support from three island nations that are among a dwindling number to keep diplomatic ties with Taiwan.`\
 https://nytimes.com/2024/11/30/world/asia/taiwans-president-pacific-islands-china.html
-
-**Real Madrid have a leadership problem - so what are they doing about it?**\
-`A summer exodus and cruel injuries mean other, less experienced players are having to step up`\
-https://nytimes.com/athletic/5956572/2024/11/30/real-madrid-leadership-mbappe-bellingham/
 
