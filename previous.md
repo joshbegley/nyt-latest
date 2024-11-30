@@ -1,3 +1,7 @@
+**Minnesota Lynx add Eric Thibault, Lindsay Whalen to coaching staff**\
+`Thibault comes to Minnesota after more than a decade with the Mystics, while former Lynx legend Whalen returns home.`\
+https://nytimes.com/athletic/5958384/2024/11/30/lynx-lindsay-whalen-eric-thibault-assistant-coaching-hires/
+
 **Emerson: Georgia-Georgia Tech a lesson in never hitting publish until it's really over**\
 `Georgia vs. Georgia Tech is a great reminder of why games — and sportswriters — should never hit publish until it's really over.`\
 https://nytimes.com/athletic/5958428/2024/11/30/georgia-georgia-tech-score-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958327/2024/11/30/barcelona-las-palmas-defeat-raph
 **Should the Canucks trade for a defender with Filip Hronek out? 7 potential options**\
 `With Hronek sidelined, the Canucks might expedite their search for another top-four defenceman.`\
 https://nytimes.com/athletic/5957696/2024/11/30/canucks-trade-filip-hronek-options/
-
-**‘This Was One of the Most Delicious Recipes We Have Made’**\
-`Sarah DiGregorio’s salmon and kimchi skillet, a five-star, five-ingredient dinner to kick-start your taste buds.`\
-https://nytimes.com/2024/11/30/dining/kimchi-recipes.html
 

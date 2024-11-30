@@ -1,3 +1,7 @@
+**Minnesota Lynx add Eric Thibault, Lindsay Whalen to coaching staff**\
+`Thibault comes to Minnesota after more than a decade with the Mystics, while former Lynx legend Whalen returns home.`\
+https://nytimes.com/athletic/5958384/2024/11/30/lynx-lindsay-whalen-eric-thibault-assistant-coaching-hires/
+
 **Emerson: Georgia-Georgia Tech a lesson in never hitting publish until it's really over**\
 `Georgia vs. Georgia Tech is a great reminder of why games — and sportswriters — should never hit publish until it's really over.`\
 https://nytimes.com/athletic/5958428/2024/11/30/georgia-georgia-tech-score-analysis/
