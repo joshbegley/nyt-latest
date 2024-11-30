@@ -1,3 +1,7 @@
+**Hayes on fans booing Albert at Wembley: 'Everybody is entitled to their opinions’**\
+`U.`\
+https://nytimes.com/athletic/5958711/2024/11/30/korbin-albert-uswnt-england/
+
 **Protesters Clash With Police After Georgia Puts E.U. Accession on Hold**\
 `Thousands demonstrated in Tbilisi, Georgia, after the country said it had suspended its bid to join the European Union for four years. The police used tear gas and water cannons on protesters outside the Parliament building.`\
 https://nytimes.com/video/world/europe/100000009852662/georgia-parliament-protests-european-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958692/2024/11/30/michigan-vs-ohio-state-fight/
 **Hal Lindsey, Author of ‘The Late, Great Planet Earth,’ Dies at 95**\
 `In that 1970 book and others he wrote of history and apocalyptic predictions based on biblical interpretations and actual events of the time.`\
 https://nytimes.com/2024/11/30/books/hal-lindsey-dead.html
-
-**Israel Accuses World Central Kitchen Worker of Role in Oct. 7 Attack**\
-`The Israeli military said it killed the worker in a strike in Gaza on Saturday. “To the best of our knowledge, no WCK team members are affiliated with Hamas,” a spokeswoman for the aid group said.`\
-https://nytimes.com/2024/11/30/world/middleeast/israel-gaza-world-central-kitchen.html
 

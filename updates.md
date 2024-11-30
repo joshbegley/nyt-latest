@@ -1,3 +1,7 @@
+**Hayes on fans booing Albert at Wembley: 'Everybody is entitled to their opinions’**\
+`U.`\
+https://nytimes.com/athletic/5958711/2024/11/30/korbin-albert-uswnt-england/
+
 **Protesters Clash With Police After Georgia Puts E.U. Accession on Hold**\
 `Thousands demonstrated in Tbilisi, Georgia, after the country said it had suspended its bid to join the European Union for four years. The police used tear gas and water cannons on protesters outside the Parliament building.`\
 https://nytimes.com/video/world/europe/100000009852662/georgia-parliament-protests-european-union.html
