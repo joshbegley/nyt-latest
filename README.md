@@ -1,3 +1,7 @@
+**How the Raiders fumbled away a golden opportunity to beat the Chiefs**\
+`In position to upset the defending champs, Jackson Powers-Johnson snapped the ball before Aidan O'Connell was ready — and the game was lost.`\
+https://nytimes.com/athletic/5957758/2024/11/29/raiders-botched-snap-fumble-chiefs/
+
 **Corrections: Nov. 30, 2024**\
 `Corrections that appeared in print on Saturday, Nov. 30, 2024.`\
 https://nytimes.com/2024/11/29/pageoneplus/corrections-nov-30-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957553/2024/11/29/chiefs-raiders-game-takeaways/
 **Flyers showing signs they could work their way into playoff picture again**\
 `The Flyers are proving they can still will their way to enough points in the standings to keep things interesting.`\
 https://nytimes.com/athletic/5957614/2024/11/29/flyers-rangers-nhl-playoffs/
-
-**What will it take for Blackhawks to score more? Bedard with Hall? Nazar?**\
-`The Blackhawks have desperate need to inject a bit more offense into their team and they need it fast.`\
-https://nytimes.com/athletic/5957495/2024/11/29/blackhawks-wild-stats-bedard-hall-nazar/
 
