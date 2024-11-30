@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
 
+**Kyle Dubas' bet on Philip Tomasino pays off, Tristan Jarry takes big step for Penguins: 3 takeaways**\
+`Tomasino scored the winner and Jarry was sharp for the Penguins in a 2-1 victory over the Bruins.
+`\
+https://nytimes.com/athletic/5957790/2024/11/29/penguins-bruins-philip-tomasino-tristan-jarry/
+
 **13 insights fantasy football managers need to know ahead of Week 13**\
 `Among Theo Gremminger's latest fantasy football insights, he says Tee Higgins is sitting in the catbird seat of the 2025 free agency class.`\
 https://nytimes.com/athletic/5957372/2024/11/30/13-insights-fantasy-football-managers-need-to-know-ahead-of-week-13/
