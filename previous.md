@@ -1,3 +1,7 @@
+**Tax Preparers Charged in Scheme to Defraud Covid Relief of $65 Million**\
+`The preparers filed for pandemic-related tax credits on behalf of ineligible clients and then netted hefty filing fees, officials said.`\
+https://nytimes.com/2024/11/30/us/tax-preparers-fraud-covid-relief.html
+
 **South Carolina's Beamer: 'Name a player' who's done more than QB Sellers**\
 `Behind South Carolina's 'magic' quarterback, the Gamecocks are coming for the Playoff — even if it might be another year.`\
 https://nytimes.com/athletic/5958963/2024/11/30/south-carolina-clemson-lanorris-sellers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958711/2024/11/30/korbin-albert-uswnt-england/
 **Protesters Clash With Police After Georgia Puts E.U. Accession on Hold**\
 `Thousands demonstrated in Tbilisi, Georgia, after the country said it had suspended its bid to join the European Union for four years. The police used tear gas and water cannons on protesters outside the Parliament building.`\
 https://nytimes.com/video/world/europe/100000009852662/georgia-parliament-protests-european-union.html
-
-**Bruins CEO Charlie Jacobs: 'We're a .500 club right now'**\
-`Jacobs said the Bruins, who are 11-11-3 and fourth in the Atlantic Division, have "yet to play our best game.”`\
-https://nytimes.com/athletic/5958790/2024/11/30/bruins-ceo-charlie-jacobs-pastrnak-marchand/
 

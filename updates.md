@@ -1,3 +1,7 @@
+**Tax Preparers Charged in Scheme to Defraud Covid Relief of $65 Million**\
+`The preparers filed for pandemic-related tax credits on behalf of ineligible clients and then netted hefty filing fees, officials said.`\
+https://nytimes.com/2024/11/30/us/tax-preparers-fraud-covid-relief.html
+
 **South Carolina's Beamer: 'Name a player' who's done more than QB Sellers**\
 `Behind South Carolina's 'magic' quarterback, the Gamecocks are coming for the Playoff — even if it might be another year.`\
 https://nytimes.com/athletic/5958963/2024/11/30/south-carolina-clemson-lanorris-sellers/
