@@ -1,3 +1,7 @@
+**Max Verstappen claims first F1 pole in 5 months at Qatar Grand Prix**\
+`Verstappen hadn't taken pole this season since the Austrian Grand Prix in June.`\
+https://nytimes.com/athletic/5958536/2024/11/30/max-verstappen-f1-pole-qatar-gp/
+
 **'In the final analysis,' Iowa keeps making Nebraska pay in rising rivalry**\
 `Former Nebraska AD Shawn Eichorst awoke something in Iowa on Nov. 30, 2014 that still carries ramifications for today’s Huskers.`\
 https://nytimes.com/athletic/5958432/2024/11/30/iowa-nebraska-rivalry-history-shawn-eichorst/
