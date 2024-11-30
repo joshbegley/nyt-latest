@@ -1,3 +1,7 @@
+**U.S. Condemns China’s Harsh Sentence for a Prominent Journalist**\
+`The sentencing of Dong Yuyu, a former Harvard Nieman fellow, signals that officials consider some exchanges between Chinese citizens and foreigners to be espionage.`\
+https://nytimes.com/2024/11/30/us/politics/us-dong-yuyu-sentence.html
+
 **England 0, USWNT 0 takeaways: New-look front three offer promise, if not goals**\
 `The United States duked out a rather tepid 0-0 game against England at Wembley in front of 78,346 fans.`\
 https://nytimes.com/athletic/5958233/2024/11/30/england-0-uswnt-0-takeaways/
