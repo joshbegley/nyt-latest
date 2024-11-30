@@ -1,3 +1,7 @@
+**Styles of Singing**\
+`Oliver Goodridge and Juan Garavito team up on a hairy challenge.`\
+https://nytimes.com/2024/11/29/crosswords/daily-puzzle-2024-11-30.html
+
 **Hurricanes rookie Jackson Blake adapting — and impressing — in NHL**\
 `The 2021 fourth-round pick has emerged as an unexpected top rookie a quarter of the way through the season.`\
 https://nytimes.com/athletic/5957776/2024/11/29/nhl-hurricanes-jackson-blake-rookie/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957712/2024/11/29/sabres-canucks-recap-stats/
 **Jared Spurgeon's leadership continues to be driving force behind Wild's success**\
 `The Wild captain, who scored two goals Friday on his 35th birthday, has been a trusted leader for the team in many ways.`\
 https://nytimes.com/athletic/5957645/2024/11/29/wild-jared-spurgeon-blackhawks/
-
-**Chiefs survive vs. Raiders after Las Vegas' critical botched snap: Takeaways**\
-`Kansas City became the first team to clinch a spot in the postseason after earning a stunning Week 13 victory.`\
-https://nytimes.com/athletic/5957553/2024/11/29/chiefs-raiders-game-takeaways/
 
