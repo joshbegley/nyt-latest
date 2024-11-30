@@ -1,41 +1,40 @@
-**The Hole in This Bagel Shop’s Business Model? It’s Too Popular.**\
-`Apollo Bagels in the West Village is drawing lines out the door — and most of the way down the block. Now it’s in a legal fight to stave off eviction.`\
-https://nytimes.com/2024/11/30/nyregion/apollo-bagels-nyc.html
+**Israel-Hezbollah Cease-Fire Rests on a Wobbly Linchpin: Lebanon’s Army**\
+`The Lebanese Army is tasked with ensuring that Hezbollah abides by the cease-fire. It has failed at that task before.`\
+https://nytimes.com/2024/11/30/world/middleeast/lebanon-army-ceasefire-israel-hezbollah.html
 
-**How a Coffee Fortune Teller Spends His Sundays**\
-`Dr. Honeybrew, as he is known, starts his days with music before brewing Turkish coffee in hot sand and opening his home to guests for a little bit of magic.`\
-https://nytimes.com/2024/11/30/nyregion/how-a-coffee-fortune-teller-spends-his-sundays.html
+**Democrats Weigh Dumping Nadler, Regrouping to Counter Trump**\
+`Some House Democrats want to oust aging committee leaders like Representative Jerrold Nadler in favor of younger lawmakers who they see as better suited to take on the president.`\
+https://nytimes.com/2024/11/30/us/politics/democrats-nadler-raskin.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/11/30/crosswords/spelling-bee-forum.html
+**After Democratic Losses, a Little-Known Lawmaker Wants to Lead the Party**\
+`State Senator James Skoufis of New York is mounting a long-shot bid for D.N.C. chair, hoping his record of success in Trump country proves persuasive to party insiders.`\
+https://nytimes.com/2024/11/30/us/politics/skoufis-democratic-national-commitee-chair.html
 
-**FIFA report: Saudi 2034 World Cup bid has "medium" human rights risk**\
-`According to a FIFA evaluation, Saudi Arabia's World Cup hosting bid in 2034 has "good potential" to spark reform`\
-https://nytimes.com/athletic/5957860/2024/11/30/fifa-2034-human-rights-world-cup/
+**Air Turbulence From a Storm Can Start Earlier Than You Expect**\
+`This is your captain speaking: You may need to buckle those seatbelts a lot sooner than you’re used to.`\
+https://nytimes.com/2024/11/30/science/turbulence-airplanes-thunderstorms.html
 
-**Is Lewis Dunk no longer guaranteed his starting role at Brighton?**\
-`The centre-half had started his previous 249 Premier League appearances, but he may no longer be first-choice in Fabian Hurzeler's team`\
-https://nytimes.com/athletic/5957536/2024/11/30/brighton-dunk-hurzeler-england/
+**Flip Taxes: What Can Your Co-op Board Get Away With?**\
+`Transfer fees, a.k.a. flip taxes, typically fund upgrades and improvements in co-op buildings. But how much is too much?`\
+https://nytimes.com/2024/11/30/realestate/flip-taxes-what-can-your-co-op-board-get-away-with.html
 
-**Celtics' Payton Pritchard making strong case for Sixth Man of the Year**\
-`“The key to him is he finds different ways to impact games,” Joe Mazzulla said. “He’s grown as a player over the course of his career."`\
-https://nytimes.com/athletic/5957980/2024/11/30/celtics-bulls-payton-pritchard/
+**How Kennedy Has Worked Abroad to Weaken Global Public Health Policy**\
+`The health secretary pick and his organization have worked around the world to undermine longstanding policies on measles, AIDS and more.`\
+https://nytimes.com/2024/11/30/world/africa/rfk-jr-kennedy-international-work-public-health-policies.html
 
-**'Incredible feeling': Kings goalie Erik Portillo steals win over Ducks in NHL debut**\
-`In a 2-1 win over the Ducks, the Kings' goalie of the future showed a glimpse of what he can one day offer in a regular role.
-`\
-https://nytimes.com/athletic/5957931/2024/11/30/kings-ducks-erik-portillo-nhl-debut/
+**For Rising Democrats, the Quiet Race to Lead the Party Began Months Ago**\
+`As Kamala Harris dominated attention on the 2024 trail, ambitious Democrats were also blanketing the country, building relationships that could pay dividends in the fight for the party’s future.`\
+https://nytimes.com/2024/11/30/us/politics/2028-democrats-whitmer-shapiro-newsom.html
 
-**Is Archie Gray finally about to be given the chance to play in midfield?**\
-`The 18-year-old has so far only played at the back - will Rodrigo Bentancur's suspension and a gruelling run of fixtures change that?`\
-https://nytimes.com/athletic/5951942/2024/11/30/archie-gray-midfield-tottenham/
+**How ‘Death Becomes Her’ Changed the Way Movies Look**\
+`The loony 1992 comedy’s visual effects broke new ground (along with Meryl Streep’s neck). With the film’s Broadway musical adaptation, a look at its enduring legacy.`\
+https://nytimes.com/2024/11/30/movies/death-becomes-her-movie-visual-effects.html
 
-**Joe Whitworth: 'I want to play for Palace in the Premier League and my height won't hold me back'**\
-`The young loanee has kept nine clean sheets in League One and is excelling in his first full season of senior football at Exeter City`\
-https://nytimes.com/athletic/5949641/2024/11/30/whitworth-crystal-palace-exeter-england/
+**Fashion’s Last Great Weirdo**\
+`With a new store in Los Angeles, a Levi’s collaboration and a growing international presence, Kiko Kostadinov is building that rarest thing in fashion: an independent, family-run empire.`\
+https://nytimes.com/2024/11/30/style/kiko-kostadinov-mens-wear.html
 
-**Smooth Criminal lean, flexible hands: Kelleher's technique that makes him a penalty expert**\
-`Caoimhin Kelleher made another save from a penalty kick against Real Madrid on Wednesday night`\
-https://nytimes.com/athletic/5955056/2024/11/30/liverpool-caoimhin-kelleher-penalty-analysis/
+**6 Podcasts That Will Read You a Bedtime Story**\
+`If you’re seeking a respite for your brain at the end of the day, these shows deliver tales that are diverting but uneventful enough to help you doze off.`\
+https://nytimes.com/2024/11/30/arts/podcasts-bedtime-stories.html
 
