@@ -1,3 +1,11 @@
+**West Virginia battered by Texas Tech, 52-15: Is it time to part with Neal Brown?**\
+`Since his arrival in Morgantown in 2019, Brown has helped the team to a 37-35 overall record but is 25-28 in the Big 12 over that span.`\
+https://nytimes.com/athletic/5958605/2024/11/30/west-virginia-regular-season-loss-neal-brown-texas-tech/
+
+**College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-projections-odds/
+
 **Trump Names Charles Kushner as Pick for Ambassador to France**\
 `The announcement elevated Mr. Kushner, the father of President Donald J. Trump’s son-in-law and the recipient of a presidential pardon at the end of Mr. Trump’s first term.`\
 https://nytimes.com/2024/11/30/us/politics/trump-charles-kushner-france-ambassador.html
