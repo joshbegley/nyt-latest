@@ -1,3 +1,7 @@
+**Trump Names Charles Kushner as Pick for Ambassador to France**\
+`The announcement elevated Mr. Kushner, the father of President Donald J. Trump’s son-in-law and the recipient of a presidential pardon at the end of Mr. Trump’s first term.`\
+https://nytimes.com/2024/11/30/us/politics/trump-charles-kushner-france-ambassador.html
+
 **Michigan, Ohio State players and police involved in postgame fight after shocking upset**\
 `Police and team staff stepped in to break up the fight, which intensified after Michigan planted its flag on Ohio State's field.`\
 https://nytimes.com/athletic/5958692/2024/11/30/michigan-vs-ohio-state-fight/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958233/2024/11/30/england-0-uswnt-0-takeaways/
 **Raiders ask NFL to review final play of loss vs. Chiefs**\
 `The Raiders said they heard an official's whistle on the last play of Friday's game that resulted in a fumble and a 19-17 loss.`\
 https://nytimes.com/athletic/5958469/2024/11/30/las-vegas-raiders-kansas-city-chiefs-video-review/
-
-**The Briefing: West Ham 2 Arsenal 5: Gabriel - king of corners, Saka's record to chase,**\
-`Arsenal beat West Ham 5-2 as they look to put pressure on Liverpool at the top of the Premier League. Here are the big talking points...`\
-https://nytimes.com/athletic/5952416/2024/11/30/west-ham-2-arsenal-5-result-premier-league-saka-gabriel/
 
