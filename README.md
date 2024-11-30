@@ -1,3 +1,7 @@
+**Best Movies of 2024**\
+`Our film critics rank their 10 favorites this year.`\
+https://nytimes.com/2024/11/30/movies/best-movies-2024.html
+
 **The Briefing: Palace 1 Newcastle 1: Wilson puzzle, Guehi gift, Munoz makes amends**\
 `Newcastle drew 1-1 with Crystal Palace at Selhurst Park. Here are the key talking points...`\
 https://nytimes.com/athletic/5952415/2024/11/30/crystal-palace-1-newcastle-1-premier-league-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958205/2024/11/30/andrew-luck-stanford-general-man
 **Cade Cunningham's playmaking keeps Pistons unbeaten in NBA Cup**\
 `Detroit missed Cunningham during his 3-game absence due to a left sacroiliac joint sprain.`\
 https://nytimes.com/athletic/5957936/2024/11/30/cade-cunningham-playmaking-pistons-nba-cup/
-
-**FIFA 'has a responsibility' to compensate Qatar World Cup workers, report finds**\
-`A report commissioned by FIFA has concluded football&#8217;s governing body &#8220;has a responsibility&#8221; to compensate workers who suffered during the hosting of the 2022 Qatar World Cup.`\
-https://nytimes.com/athletic/5958142/2024/11/30/fifa-qatar-world-cup-report-workers/
 
