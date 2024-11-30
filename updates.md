@@ -1,3 +1,7 @@
+**Cade Cunningham's playmaking keeps Pistons unbeaten in NBA Cup**\
+`Detroit missed Cunningham during his 3-game absence due to a left sacroiliac joint sprain.`\
+https://nytimes.com/athletic/5957936/2024/11/30/cade-cunningham-playmaking-pistons-nba-cup/
+
 **FIFA 'has a responsibility' to compensate Qatar World Cup workers, report finds**\
 `A report commissioned by FIFA has concluded football&#8217;s governing body &#8220;has a responsibility&#8221; to compensate workers who suffered during the hosting of the 2022 Qatar World Cup.`\
 https://nytimes.com/athletic/5958142/2024/11/30/fifa-qatar-world-cup-report-workers/
