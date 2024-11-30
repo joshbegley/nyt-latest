@@ -1,3 +1,11 @@
+**Should the Canucks trade for a defender with Filip Hronek out? 7 potential options**\
+`With Hronek sidelined, the Canucks might expedite their search for another top-four defenceman.`\
+https://nytimes.com/athletic/5957696/2024/11/30/canucks-trade-filip-hronek-options/
+
+**‘This Was One of the Most Delicious Recipes We Have Made’**\
+`Sarah DiGregorio’s salmon and kimchi skillet, a five-star, five-ingredient dinner to kick-start your taste buds.`\
+https://nytimes.com/2024/11/30/dining/kimchi-recipes.html
+
 **Saudi Arabia Leads a Pushback Against Global Plastic Treaty**\
 `Delegates from more than 170 countries are working to salvage a treaty that would tackle the growing problem of plastic pollution.`\
 https://nytimes.com/2024/11/30/climate/saudi-arabia-global-plastic-treaty.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5957709/2024/11/30/naz-reids-timberwolves-snap-skid
 **Russia Forges Ahead in Eastern Ukraine, Capturing More Villages in Recent Days**\
 `Russian forces are closing in on two strongholds. The fall of the cities could pave the way for a takeover of the southern part of the Donetsk region, analysts said.`\
 https://nytimes.com/2024/11/30/world/europe/russia-advances-eastern-ukraine.html
-
-**St Pauli are finding their feet in the Bundesliga - and the roar at the Millerntor shows survival matters**\
-`The club are adjusting to life back in the elite after the loss of their head coach and leading scorer, but there is belief they can survive`\
-https://nytimes.com/athletic/5957723/2024/11/30/pauli-bundesliga-millerntor-blessin/
-
-**The Bears finally fired Matt Eberflus. But he lost the locker room long ago**\
-`The Shane Waldron experience and the Hail Mary debacle cost Eberflus credibility at Halas Hall. The Thanksgiving loss was the last straw.`\
-https://nytimes.com/athletic/5957910/2024/11/30/matt-eberflus-fired-bears-players-locker-room/
 
