@@ -1,3 +1,7 @@
+**How the Raiders fumbled away a golden opportunity to beat the Chiefs**\
+`In position to upset the defending champs, Jackson Powers-Johnson snapped the ball before Aidan O'Connell was ready — and the game was lost.`\
+https://nytimes.com/athletic/5957758/2024/11/29/raiders-botched-snap-fumble-chiefs/
+
 **Corrections: Nov. 30, 2024**\
 `Corrections that appeared in print on Saturday, Nov. 30, 2024.`\
 https://nytimes.com/2024/11/29/pageoneplus/corrections-nov-30-2024.html
