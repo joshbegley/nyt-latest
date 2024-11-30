@@ -1,3 +1,7 @@
+**Russia Forges Ahead in Eastern Ukraine, Capturing More Villages in Recent Days**\
+`Russian forces are closing in on two strongholds. The fall of the cities could pave the way for a takeover of the southern part of the Donetsk region, analysts said.`\
+https://nytimes.com/2024/11/30/world/europe/russia-advances-eastern-ukraine.html
+
 **St Pauli are finding their feet in the Bundesliga - and the roar at the Millerntor shows survival matters**\
 `The club are adjusting to life back in the elite after the loss of their head coach and leading scorer, but there is belief they can survive`\
 https://nytimes.com/athletic/5957723/2024/11/30/pauli-bundesliga-millerntor-blessin/
