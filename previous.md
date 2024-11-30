@@ -1,3 +1,11 @@
+**Heavy Snowfall Blankets Parts of the Great Lakes Region**\
+`States braced for more whiteout conditions in the coming days as a lake-effect storm dropped more than two feet of snow by the early weekend.`\
+https://nytimes.com/video/weather/100000009852706/great-lakes-snow-storm.html
+
+**Blue Jackets trade David Jiricek to Wild for Daemon Hunt, draft picks: Sources**\
+`Jiricek, 21, was selected with the No. 6 pick in the 2022 NHL Draft but was unable to grab a regular spot in the Blue Jackets lineup.`\
+https://nytimes.com/athletic/5953370/2024/11/30/david-jiricek-trade-blue-jackets-wild/
+
 **F1 Qatar GP preview: Can Ferrari stave off McLaren’s title bid another week?**\
 `McLaren could be celebrating its first constructors’ championship in almost three decades — but a few rivals stand in the way. `\
 https://nytimes.com/athletic/5958639/2024/11/30/f1-qatar-gp-preview-mclaren-ferrari-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5958772/2024/11/30/chargers-jk-dobbins-alohi-gilman
 **West Virginia battered by Texas Tech, 52-15: Is it time to part with Neal Brown?**\
 `Since his arrival in Morgantown in 2019, Brown has helped the team to a 37-35 overall record but is 25-28 in the Big 12 over that span.`\
 https://nytimes.com/athletic/5958605/2024/11/30/west-virginia-regular-season-loss-neal-brown-texas-tech/
-
-**Trump Names Charles Kushner as Pick for Ambassador to France**\
-`The announcement elevated Mr. Kushner, the father of President Donald J. Trump’s son-in-law and the recipient of a presidential pardon at the end of Mr. Trump’s first term.`\
-https://nytimes.com/2024/11/30/us/politics/trump-charles-kushner-france-ambassador.html
-
-**College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-projections-odds/
 

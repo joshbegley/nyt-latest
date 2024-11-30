@@ -1,3 +1,11 @@
+**Heavy Snowfall Blankets Parts of the Great Lakes Region**\
+`States braced for more whiteout conditions in the coming days as a lake-effect storm dropped more than two feet of snow by the early weekend.`\
+https://nytimes.com/video/weather/100000009852706/great-lakes-snow-storm.html
+
+**Blue Jackets trade David Jiricek to Wild for Daemon Hunt, draft picks: Sources**\
+`Jiricek, 21, was selected with the No. 6 pick in the 2022 NHL Draft but was unable to grab a regular spot in the Blue Jackets lineup.`\
+https://nytimes.com/athletic/5953370/2024/11/30/david-jiricek-trade-blue-jackets-wild/
+
 **Max Verstappen won't start from pole at Qatar GP after F1 stewards issue penalty**\
 `Verstappen still hasn't started from pole this season since the Austrian Grand Prix in June.`\
 https://nytimes.com/athletic/5958536/2024/11/30/f1-qatar-gp-max-verstappen-pole-penalty-george-russell/
