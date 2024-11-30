@@ -1,3 +1,11 @@
+**Avalanche acquire Scott Wedgewood from Predators in backup goalie swap**\
+`Nashville trades veteran goalie Scott Wedgewood to Colorado for Justus Annunen and a sixth-round pick in 2025.`\
+https://nytimes.com/athletic/5958291/2024/11/30/avalanche-predators-trade-wedgewood-annunen/
+
+**Raphinha after Barcelona's defeat to Las Palmas: 'We are doing many things wrong'**\
+`Raphinha says that there are “many things” that Barcelona are doing wrong following his side&#8217;s 2-1 home defeat to Las Palmas.`\
+https://nytimes.com/athletic/5958327/2024/11/30/barcelona-las-palmas-defeat-raphinha/
+
 **Should the Canucks trade for a defender with Filip Hronek out? 7 potential options**\
 `With Hronek sidelined, the Canucks might expedite their search for another top-four defenceman.`\
 https://nytimes.com/athletic/5957696/2024/11/30/canucks-trade-filip-hronek-options/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5958215/2024/11/30/nebraska-iowa-college-football-h
 **Lakers' errors lead to elimination from NBA Cup, but 'there’s definitely good stuff'**\
 `LeBron James and the Lakers continue to make self-inflicted errors, but the team sees reasons for hope in close loss to West-leading Thunder`\
 https://nytimes.com/athletic/5957784/2024/11/30/lakers-eliminated-nba-cup/
-
-**Naz Reid's sweat equity pushes Timberwolves to snap miserable skid**\
-`"As a group, after the game, I asked them how bad do we want to win?" Anthony Edwards said.`\
-https://nytimes.com/athletic/5957709/2024/11/30/naz-reid-timberwolves-snap-skid/
-
-**Russia Forges Ahead in Eastern Ukraine, Capturing More Villages in Recent Days**\
-`Russian forces are closing in on two strongholds. The fall of the cities could pave the way for a takeover of the southern part of the Donetsk region, analysts said.`\
-https://nytimes.com/2024/11/30/world/europe/russia-advances-eastern-ukraine.html
 

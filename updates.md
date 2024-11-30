@@ -1,3 +1,11 @@
+**Avalanche acquire Scott Wedgewood from Predators in backup goalie swap**\
+`Nashville trades veteran goalie Scott Wedgewood to Colorado for Justus Annunen and a sixth-round pick in 2025.`\
+https://nytimes.com/athletic/5958291/2024/11/30/avalanche-predators-trade-wedgewood-annunen/
+
+**Raphinha after Barcelona's defeat to Las Palmas: 'We are doing many things wrong'**\
+`Raphinha says that there are “many things” that Barcelona are doing wrong following his side&#8217;s 2-1 home defeat to Las Palmas.`\
+https://nytimes.com/athletic/5958327/2024/11/30/barcelona-las-palmas-defeat-raphinha/
+
 **Naz Reid's sweat equity pushes Timberwolves to snap miserable skid**\
 `"As a group, after the game, I asked them how bad do we want to win?" Anthony Edwards said.`\
 https://nytimes.com/athletic/5957709/2024/11/30/naz-reid-timberwolves-snap-skid/
