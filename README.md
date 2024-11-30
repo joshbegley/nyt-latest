@@ -1,3 +1,7 @@
+**Wood backed to keep scoring after equalling Nottm Forest record**\
+`Nuno Espirito Santo believes Chris Wood can keep thriving at the highest level for several years yet, after seeing him become Nottingham Forest’s joint-top Premier League goalscorer.`\
+https://nytimes.com/athletic/5958422/2024/11/30/chris-wood-forest-goals-record/
+
 **Great Lakes Storm Dumps 2 Feet of Snow on Northeast and Midwest, With More to Come**\
 `The lake-effect storm disrupted holiday plans and travel across the region. National Guard troops were dispatched in New York and Pennsylvania.`\
 https://nytimes.com/2024/11/30/us/lake-effect-snow-buffalo-ny-great-lakes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/30/dining/kimchi-recipes.html
 **Saudi Arabia Leads Pushback Against Global Plastic Treaty**\
 `Delegates from more than 170 countries are working to salvage a treaty that would tackle the growing problem of plastic pollution.`\
 https://nytimes.com/2024/11/30/climate/saudi-arabia-global-plastic-treaty.html
-
-**Andrew Luck returning to Stanford in expanded, 'hands-on' GM role**\
-`Luck will oversee every aspect of the program, both on and off the field, in an expanded role rarely seen in college football.`\
-https://nytimes.com/athletic/5958205/2024/11/30/andrew-luck-stanford-general-manager-football/
 
