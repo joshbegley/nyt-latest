@@ -1,3 +1,7 @@
+**Great Lakes Storm Dumps 2 Feet of Snow on Northeast and Midwest, With More to Come**\
+`The lake-effect storm disrupted holiday plans and travel across the region. National Guard troops were dispatched in New York and Pennsylvania.`\
+https://nytimes.com/2024/11/30/us/lake-effect-snow-buffalo-ny-great-lakes.html
+
 **Best Movies of 2024**\
 `Our film critics rank their 10 favorites this year.`\
 https://nytimes.com/2024/11/30/movies/best-movies-2024.html

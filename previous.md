@@ -1,3 +1,7 @@
+**Great Lakes Storm Dumps 2 Feet of Snow on Northeast and Midwest, With More to Come**\
+`The lake-effect storm disrupted holiday plans and travel across the region. National Guard troops were dispatched in New York and Pennsylvania.`\
+https://nytimes.com/2024/11/30/us/lake-effect-snow-buffalo-ny-great-lakes.html
+
 **Best Movies of 2024**\
 `Our film critics rank their 10 favorites this year.`\
 https://nytimes.com/2024/11/30/movies/best-movies-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/30/climate/saudi-arabia-global-plastic-treaty.html
 **Andrew Luck returning to Stanford in expanded, 'hands-on' GM role**\
 `Luck will oversee every aspect of the program, both on and off the field, in an expanded role rarely seen in college football.`\
 https://nytimes.com/athletic/5958205/2024/11/30/andrew-luck-stanford-general-manager-football/
-
-**Cade Cunningham's playmaking keeps Pistons unbeaten in NBA Cup**\
-`Detroit missed Cunningham during his 3-game absence due to a left sacroiliac joint sprain.`\
-https://nytimes.com/athletic/5957936/2024/11/30/cade-cunningham-playmaking-pistons-nba-cup/
 
