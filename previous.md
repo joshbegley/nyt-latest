@@ -1,3 +1,7 @@
+**FIFA report: Saudi 2034 World Cup bid has "medium" human rights risk**\
+`According to a FIFA evaluation, Saudi Arabia's World Cup hosting bid in 2034 has "good potential" to spark reform.`\
+https://nytimes.com/athletic/5957860/2024/11/30/fifa-2034-human-rights-world-cup/
+
 **Is Lewis Dunk no longer guaranteed his starting role at Brighton?**\
 `The centre-half had started his previous 249 Premier League appearances, but he may no longer be first-choice in Fabian Hurzeler's team`\
 https://nytimes.com/athletic/5957536/2024/11/30/brighton-dunk-hurzeler-england/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5955742/2024/11/30/barcelona-125-anniversary-messi-
 **Inside the mind of Erling Haaland: everything and nothing**\
 `An exquisite football brain is joined by a destructive blankness that elevates the Man City and Norway striker into the sport's stratosphere`\
 https://nytimes.com/athletic/5949031/2024/11/30/erling-haaland-football-mind-man-city/
-
-**As Raptors search for shooters, Jamison Battle and Ja'Kobe Walter get their shot**\
-`With the Raptors building around Scottie Barnes, they need his teammates to be ready to hoist 3s.`\
-https://nytimes.com/athletic/5957899/2024/11/30/raptors-shooting-3s-heat/
 
