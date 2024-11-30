@@ -1,3 +1,11 @@
+**Lakers' errors lead to elimination from NBA Cup, but 'there’s definitely good stuff'**\
+`LeBron James and the Lakers continue to make self-inflicted errors, but the team sees reasons for hope in close loss to West-leading Thunder`\
+https://nytimes.com/athletic/5957784/2024/11/30/lakers-eliminated-nba-cup/
+
+**Naz Reid's sweat equity pushes Timberwolves to snap miserable skid**\
+`"As a group, after the game, I asked them how bad do we want to win?" Anthony Edwards said.`\
+https://nytimes.com/athletic/5957709/2024/11/30/naz-reids-timberwolves-snap-skid/
+
 **Russia Forges Ahead in Eastern Ukraine, Capturing More Villages in Recent Days**\
 `Russian forces are closing in on two strongholds. The fall of the cities could pave the way for a takeover of the southern part of the Donetsk region, analysts said.`\
 https://nytimes.com/2024/11/30/world/europe/russia-advances-eastern-ukraine.html
