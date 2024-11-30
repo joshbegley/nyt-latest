@@ -1,3 +1,7 @@
+**Emerson: Georgia-Georgia Tech a lesson in never hitting publish until it's really over**\
+`Georgia vs. Georgia Tech is a great reminder of why games — and sportswriters — should never hit publish until it's really over.`\
+https://nytimes.com/athletic/5958428/2024/11/30/georgia-georgia-tech-score-analysis/
+
 **Wood backed to keep scoring after equalling Nottm Forest record**\
 `Nuno Espirito Santo believes Chris Wood can keep thriving at the highest level for several years yet, after seeing him become Nottingham Forest’s joint-top Premier League goalscorer.`\
 https://nytimes.com/athletic/5958422/2024/11/30/chris-wood-forest-goals-record/
