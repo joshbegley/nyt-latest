@@ -1,3 +1,15 @@
+**The Hole in This Bagel Shop’s Business Model? It’s Too Popular.**\
+`Apollo Bagels in the West Village is drawing lines out the door — and most of the way down the block. Now it’s in a legal fight to stave off eviction.`\
+https://nytimes.com/2024/11/30/nyregion/apollo-bagels-nyc.html
+
+**How a Coffee Fortune Teller Spends His Sundays**\
+`Dr. Honeybrew, as he is known, starts his days with music before brewing Turkish coffee in hot sand and opening his home to guests for a little bit of magic.`\
+https://nytimes.com/2024/11/30/nyregion/how-a-coffee-fortune-teller-spends-his-sundays.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/11/30/crosswords/spelling-bee-forum.html
+
 **FIFA report: Saudi 2034 World Cup bid has "medium" human rights risk**\
 `According to a FIFA evaluation, Saudi Arabia's World Cup hosting bid in 2034 has "good potential" to spark reform`\
 https://nytimes.com/athletic/5957860/2024/11/30/fifa-2034-human-rights-world-cup/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5949641/2024/11/30/whitworth-crystal-palace-exeter-
 **Smooth Criminal lean, flexible hands: Kelleher's technique that makes him a penalty expert**\
 `Caoimhin Kelleher made another save from a penalty kick against Real Madrid on Wednesday night`\
 https://nytimes.com/athletic/5955056/2024/11/30/liverpool-caoimhin-kelleher-penalty-analysis/
-
-**Do Chelsea need to upgrade in the transfer market to become title contenders?**\
-`Chelsea are doing well in the Premier League, but do they need to add to their squad to hit elite levels again?`\
-https://nytimes.com/athletic/5956135/2024/11/30/chelsea-transfer-premier-league-title-contenders/
-
-**Barcelona 125: An A to Z of the club, from Alcantara to Zamora**\
-`To mark the 125th anniversary of the formation of Barca, we celebrate the people and the moments who have helped make the club what it is.`\
-https://nytimes.com/athletic/5955742/2024/11/30/barcelona-125-anniversary-messi-cruyff/
-
-**Inside the mind of Erling Haaland: everything and nothing**\
-`An exquisite football brain is joined by a destructive blankness that elevates the Man City and Norway striker into the sport's stratosphere`\
-https://nytimes.com/athletic/5949031/2024/11/30/erling-haaland-football-mind-man-city/
 
