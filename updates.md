@@ -1,3 +1,7 @@
+**'Our chemistry has been incredible': Giannis Antetokounmpo, Damian Lillard key Bucks' win streak**\
+`For the third time, Antetokounmpo and Lillard had 25-plus points and 10-plus assists in the same game, the most by any duo in NBA history.`\
+https://nytimes.com/athletic/5959764/2024/12/01/milwaukee-bucks-giannis-antetokounmpo-damian-lillard/
+
 **Chelsea's Fofana out for around a month with hamstring injury**\
 `Chelsea defender Wesley Fofana is facing around a month out with a hamstring injury.`\
 https://nytimes.com/athletic/5960267/2024/12/01/wesley-fofana-hamstring-injury-chelsea/

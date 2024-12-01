@@ -1,3 +1,7 @@
+**'Our chemistry has been incredible': Giannis Antetokounmpo, Damian Lillard key Bucks' win streak**\
+`For the third time, Antetokounmpo and Lillard had 25-plus points and 10-plus assists in the same game, the most by any duo in NBA history.`\
+https://nytimes.com/athletic/5959764/2024/12/01/milwaukee-bucks-giannis-antetokounmpo-damian-lillard/
+
 **Chelsea's Fofana out for around a month with hamstring injury**\
 `Chelsea defender Wesley Fofana is facing around a month out with a hamstring injury.`\
 https://nytimes.com/athletic/5960267/2024/12/01/wesley-fofana-hamstring-injury-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960119/2024/12/01/ohio-state-michigan-ryan-day-the
 **Lowetide: Which defencemen should the Oilers target in a trade?**\
 `Depth on defence is a strong need for Edmonton if the goal of winning the Stanley Cup is to be realized.`\
 https://nytimes.com/athletic/5957782/2024/12/01/oilers-defence-trade-targets-2024/
-
-**The Briefing: Tottenham Hotspur 1 Fulham 1 - Inconsistent Tottenham fail to beat 10-man Fulham**\
-`Jack Pitt-Brooke and Jay Harris break down the key moments from Tottenham's game against Fulham`\
-https://nytimes.com/athletic/5955176/2024/12/01/tottenham-fulham-draw-briefing/
 
