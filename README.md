@@ -1,3 +1,7 @@
+**Georgia's Julian Humphrey to enter transfer portal: What it means for Bulldogs**\
+`This isn’t the first time Humphrey has announced plans to enter the portal. He did so during last year’s winter window.`\
+https://nytimes.com/athletic/5960674/2024/12/01/julian-humphrey-transfer-portal-georgia-football/
+
 **Lawrence concussed after late hit, triggering fight between Texans, Jags**\
 `Sunday marked Lawrence's first game back since Week 9 as he recovered from a shoulder injury.`\
 https://nytimes.com/athletic/5960630/2024/12/01/trevor-lawrence-hit-azeez-al-shaair-texans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960482/2024/12/01/college-football-playoff-bracket
 **The Briefing: Liverpool 2 Man City 0 - Slot's side dominate struggling champions to go nine points clear**\
 `Our writers break down the action from Anfield as Salah again proves crucial for Liverpool and City's poor run continues`\
 https://nytimes.com/athletic/5955206/2024/12/01/liverpool-man-city-premier-league/
-
-**Republicans Stand Behind Trump’s Choice of Kash Patel to Lead F.B.I.**\
-`Several lawmakers expressed support on Sunday for the president-elect’s plan to install a loyalist who has vowed to use the position to exact revenge on adversaries.`\
-https://nytimes.com/2024/12/01/us/politics/trump-kash-patel-fbi-republicans.html
 
