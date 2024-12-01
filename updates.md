@@ -1,3 +1,7 @@
+**Marshall Brickman, Woody Allen’s Co-Writer on Hit Films, Dies at 85**\
+`The duo won an Oscar for “Annie Hall.” Mr. Brickman went on to write Broadway shows, including “Jersey Boys,” and make movies of his own.`\
+https://nytimes.com/2024/12/01/movies/marshall-brickman-dead.html
+
 **LA Galaxy outlast Seattle Sounders to earn first MLS Cup berth since 2014**\
 `LA will now host MLS Cup next Saturday against the New York Red Bulls.`\
 https://nytimes.com/athletic/5959519/2024/12/01/la-galaxy-seattle-sounders-results-score/
