@@ -1,3 +1,19 @@
+**‘I Was in a Classic New York City Conflict I Had Seen in Movies’**\
+`Hailing a cab on a rainy night, an unseen hand at the cemetery and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/12/01/nyregion/metropolitan-diary.html
+
+**We Took Angelina Jolie to the Opera. She Found ‘a Poetry to It All.’**\
+`Jolie plays the superstar soprano Maria Callas in the new movie “Maria.” We went to the Metropolitan Opera with her and the director Pablo Larraín.`\
+https://nytimes.com/2024/12/01/arts/music/angelina-jolie-met-maria-callas.html
+
+**The Nameless Dead and the Cold Case Unit That Tries to Identify Them**\
+`A little-known squad of New York’s medical examiner’s office uses dogs, DNA and any other available clue to identify bodies.`\
+https://nytimes.com/2024/12/01/nyregion/nyc-unidentified-bodies-squad.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/01/crosswords/spelling-bee-forum.html
+
 **Stuart Skinner's last audition for a Team Canada job is as good as it gets**\
 `DENVER — The die may already be cast, but Stuart Skinner surely gave Team Canada brass something to think about if it hasn’t.`\
 https://nytimes.com/athletic/5959574/2024/12/01/stuart-skinner-team-canada-audition/
