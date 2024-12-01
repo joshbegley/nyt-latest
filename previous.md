@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Don Waddell discusses value of picks in David Jiricek trade**\
+`The Blue Jackets GM breaks down the Jiricek trade with the Wild and the value of the draft picks the club got in return.`\
+https://nytimes.com/athletic/5958168/2024/12/01/david-jiricek-trade-blue-jackets/
+
 **Trump Offers Massad Boulos Middle East Adviser Role**\
 `The announcement on Sunday was the second time this weekend that Mr. Trump offered an influential post to an in-law.`\
 https://nytimes.com/2024/12/01/us/politics/trump-massad-boulos-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960393/2024/12/01/edoardo-bove-fiorentina-inter/
 **Ireland’s Main Parties Edge Out Sinn Féin, Early Election Results Show**\
 `At one level, the vote was an endorsement of continuity, but the stability in Ireland’s political center ground masked volatility on the fringes.`\
 https://nytimes.com/2024/12/01/world/europe/ireland-election-results.html
-
-**Nations Fail to Reach an Agreement on Plastic Pollution**\
-`Talks on the world’s first treaty to tackle plastic pollution will continue in coming months, delegates said.`\
-https://nytimes.com/2024/12/01/climate/united-nations-plastic-pollution.html
 

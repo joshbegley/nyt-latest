@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Don Waddell discusses value of picks in David Jiricek trade**\
+`The Blue Jackets GM breaks down the Jiricek trade with the Wild and the value of the draft picks the club got in return.`\
+https://nytimes.com/athletic/5958168/2024/12/01/david-jiricek-trade-blue-jackets/
+
 **Trump Offers Massad Boulos Middle East Adviser Role**\
 `The announcement on Sunday was the second time this weekend that Mr. Trump offered an influential post to an in-law.`\
 https://nytimes.com/2024/12/01/us/politics/trump-massad-boulos-middle-east.html
