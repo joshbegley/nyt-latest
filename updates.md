@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-take
 `\
 https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
 
+**Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
+`Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
+`\
+https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
+
 **Kirk Cousins tosses 4 INTs as Chargers beat Falcons 17-13: Takeaways**\
 `The Chargers scored 10 points off turnovers in the second four-interception game of Kirk Cousins' 13-year NFL career.`\
 https://nytimes.com/athletic/5960116/2024/12/01/chargers-falcons-score-result-takeaways/
