@@ -1,3 +1,11 @@
+**Maple Leafs report cards: Good effort, but too-close-for-comfort result**\
+`The Maple Leafs held on for a 5-3 victory after going up 4-0 and allowing three goals in the third period to the Lightning.`\
+https://nytimes.com/athletic/5959282/2024/11/30/maple-leafs-lightning-grades-analysis/
+
+**Auburn hired Hugh Freeze to beat Alabama. It's racking up missed opportunities instead**\
+`Auburn finished a mistake-prone second season under Hugh Freeze by squandering chances to do what Freeze was hired to do: Beat Bama.`\
+https://nytimes.com/athletic/5959268/2024/11/30/hugh-freeze-auburn-alabama-iron-bowl/
+
 **Meet 2024 Ohio State, the unhappiest Playoff team in college football history**\
 `Everything about Ohio State football should be good right now, and yet there is no program in the country more joyless.`\
 https://nytimes.com/athletic/5959271/2024/11/30/ohio-state-michigan-college-football-playoff/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5959174/2024/11/30/texas-longhorns-aggies-score-hig
 **Ryan Day went all in on beating Michigan — except it when it mattered most**\
 `Ohio State brought back a ton of talent, invested in NIL and added key transfers with the goal of beating Michigan. Ryan Day failed again.`\
 https://nytimes.com/athletic/5959175/2024/11/30/ryan-day-ohio-state-michigan-losses/
-
-**College football rivalry weekend heats up with fights, chaotic flag plants**\
-`Ohio State-Michigan, Auburn-Alabama and UNC-NC State were among the heated rivalry games that featured skirmishes.`\
-https://nytimes.com/athletic/5959050/2024/11/30/fights-flag-plant-ohio-state-michigan-auburn-alabama/
-
-**Portzline: David Jiricek's skating concerns were enough for Blue Jackets to trade him**\
-`Blue Jackets general manager Don Waddell was wise to move Jiricek now, before his inability to crack the NHL became a bigger concern.`\
-https://nytimes.com/athletic/5959028/2024/11/30/david-jiricek-blue-jackets-trade/
 
