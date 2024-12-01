@@ -1,3 +1,7 @@
+**The Briefing: Barcelona 1 Las Palmas 2 - The lead eroded, lack of depth exposed and De Jong heckled**\
+`The side from the Canary Islands won for the first time at Barca in 53 years as the leaders' stuttering domestic form continued apace`\
+https://nytimes.com/athletic/5958703/2024/12/01/barcelona-las-palmas-jong-flick-briefing/
+
 **After an NBA Cup win, 'exhausted' Pistons lose to 76ers in second of back-to-backs**\
 `From the opening tip Detroit lacked the energy necessary to make its loss a competitive game.`\
 https://nytimes.com/athletic/5959453/2024/12/01/pistons-exhausted-lose-to-76ers/
