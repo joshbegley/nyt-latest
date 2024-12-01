@@ -1,7 +1,3 @@
-**The Briefing: Chelsea 3 Aston Villa 0 - The Palmer press, Fofana concern and are Chelsea contenders?**\
-`Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
-https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
-
 **College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/01/college-football-playoff-projections-odds/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/01/briefing/opera-maria-angelina-jolie.html
 **The USWNT needs 'to build better connections'. Fortunately, that may be straightforward**\
 `Against England, the USWNT failed to score for the second time under Emma Hayes, but there are reasons to be positive about the attack`\
 https://nytimes.com/athletic/5959670/2024/12/01/england-women-uswnt-reaction/
+
+**Fighting Rages in Syria as Rebels Advance**\
+`Forces opposed to President Bashar al-Assad have captured the Aleppo airport and are attacking the western city of Hama, according to local officials and a Britain-based war monitor.`\
+https://nytimes.com/2024/12/01/world/middleeast/syria-war-aleppo-rebels-government.html
 
