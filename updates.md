@@ -1,3 +1,11 @@
+**Purdue fires coach Ryan Walters after 66-0 thrashing to rival Indiana**\
+`Purdue has struggled mightily under Walters, compiling a 5-14 record and not finding any success.`\
+https://nytimes.com/athletic/5854543/2024/12/01/purdue-fires-ryan-walter/
+
+**Chaotic F1 Qatar GP ends with Max Verstappen win, sets up season finale showdown**\
+`Lando Norris' penalty up-ended McLaren's title bid and sets up `\
+https://nytimes.com/athletic/5960354/2024/12/01/max-verstappen-wins-qatar-gp-f1-championship-mclaren-ferrari/
+
 **Fiorentina-Inter suspended after Bove appears to collapse during Serie A game**\
 `The Fiorentina midfielder was taken to hospital after falling to the ground during the first half of the match.`\
 https://nytimes.com/athletic/5960393/2024/12/01/edoardo-bove-fiorentina-inter/
