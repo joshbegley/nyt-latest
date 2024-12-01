@@ -1,3 +1,7 @@
+**SEC vibes rankings: Who would deserve a fourth SEC Playoff bid?**\
+`Which SEC team should get a fourth College Football Playoff bid if the conference gets it?`\
+https://nytimes.com/athletic/5960893/2024/12/01/week-14-sec-rankings-college-football-playoff/
+
 **Oxford’s 2024 Word of the Year Is…**\
 `A slang term for supposed mental damage done by overconsumption of trivial online content triumphed over a shortlist that also included “lore,” “demure” and “slop.”`\
 https://nytimes.com/2024/12/01/arts/brain-rot-oxford-word.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5960883/2024/12/01/jerry-mack-hired-kennesaw-state-
 **Real Madrid 2 Getafe 0: Mbappe heals, the Bellingham show and Garcia's role**\
 `After the disappointment of the midweek defeat to Liverpool, Madrid were back to winning ways in La Liga`\
 https://nytimes.com/athletic/5960761/2024/12/01/real-madrid-bellingham-mbappe/
-
-**Temple expected to hire Sam Houston's K.C. Keeler as next coach**\
-`The 65-year-old Keeler began his head coaching career at Division III Rowan in New Jersey.`\
-https://nytimes.com/athletic/5960928/2024/12/01/temple-football-kc-keeler-head-coach/
 
