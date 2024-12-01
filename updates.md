@@ -1,3 +1,7 @@
+**Live Q&A: Week 13 fantasy football start/sit chat with Jay Felicio, Sunday 12/1at 11 a.m. ET**\
+`Submit your Week 13 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5957160/2024/12/01/live-qa-week-13-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-1at-11-a-m-et/
+
 **The USWNT needs 'to build better connections'. Fortunately, that may be straightforward**\
 `Against England, the USWNT failed to score for the second time under Emma Hayes, but there are reasons to be positive about the attack`\
 https://nytimes.com/athletic/5959670/2024/12/01/england-women-uswnt-reaction/
