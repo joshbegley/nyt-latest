@@ -1,3 +1,11 @@
+**Jack Doohan poised to replace Esteban Ocon at Alpine F1 for Abu Dhabi GP**\
+`Doohan was already set to drive for Alpine in 2025, replacing the Haas-bound Ocon.`\
+https://nytimes.com/athletic/5960589/2024/12/01/jack-doohan-esteban-ocon-alpine-f1-abu-dhabi-gp/
+
+**Virginia Lawmakers Want to Know Why 6 Inmates Have Burned Themselves**\
+`The state’s top prison official criticized reports that the self-burnings at Red Onion State Prison, which has had a history of complaints, were in protest of poor conditions.`\
+https://nytimes.com/2024/12/01/us/virginia-prisoners-burns-protest.html
+
 **Georgia's Julian Humphrey to enter transfer portal: What it means for Bulldogs**\
 `This isn’t the first time Humphrey has announced plans to enter the portal. He did so during last year’s winter window.`\
 https://nytimes.com/athletic/5960674/2024/12/01/julian-humphrey-transfer-portal-georgia-football/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/01/us/politics/trump-massad-boulos-middle-east.html
 **Relatives of Subway Choking Victim Must Relive His Death Daily**\
 `In life, Jordan Neely’s family lost him to mental illness. After his death, his father and uncle have steeled themselves to attend the manslaughter trial of Daniel Penny each day.`\
 https://nytimes.com/2024/12/01/nyregion/subway-choking-jordan-neely-relatives.html
-
-**Stewart Mandel's 12-team Playoff projections after Week 14**\
-`Ohio State’s inexplicable home loss to Michigan and Miami’s loss at Syracuse certainly shook up the seeding heading into league title games.`\
-https://nytimes.com/athletic/5960482/2024/12/01/college-football-playoff-bracket-projections-week-14/
-
-**The Briefing: Liverpool 2 Man City 0 - Slot's side dominate struggling champions to go nine points clear**\
-`Our writers break down the action from Anfield as Salah again proves crucial for Liverpool and City's poor run continues`\
-https://nytimes.com/athletic/5955206/2024/12/01/liverpool-man-city-premier-league/
 
