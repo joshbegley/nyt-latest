@@ -14,9 +14,17 @@ https://nytimes.com/2024/12/01/insider/macys-thanksgiving-parade.html
 `Why are so many people snapping photos and taking videos at the movies? Will this trend ever go away?`\
 https://nytimes.com/2024/12/01/movies/wicked-movie-screen-cellphone-pictures.html
 
+**Chargers at Falcons: How to watch, odds, expert picks for near pick'em in Atlanta**\
+`Both the Falcons and Chargers look to bounce back on Sunday, in one of the week's closest games by the odds.`\
+https://nytimes.com/athletic/5953642/2024/12/01/chargers-falcons-how-to-watch-odds-picks-betting/
+
 **Super Mega 2024 Clues**\
 `This year’s Super Mega has 720 entries.`\
 https://nytimes.com/2024/12/01/crosswords/super-mega-2024-clues.html
+
+**49ers at Bills: How to watch, odds, picks with Buffalo as touchdown favorites on SNF**\
+`San Francisco is in desperation mode after back-to-back losses and find itself as a touchdown underdog in Buffalo.`\
+https://nytimes.com/athletic/5954028/2024/12/01/49ers-bills-how-to-watch-odds-picks-betting/
 
 **More Than a Dozen Drafts From Dallas on One November Day**\
 `An article budget from Nov. 22, 1963, shows the scramble to explain President John F. Kennedy’s assassination.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/01/science/giant-centipede-venom.html
 **A Second Trump Term Poses a Crucial Test of the Senate’s Independence**\
 `President-elect Donald J. Trump is threatening to challenge the institution’s historic role, and the Constitution, with his prospective nominees and threats to push the boundaries of executive authority.`\
 https://nytimes.com/2024/12/01/us/politics/trump-senate-independence.html
-
-**Game Time in Philadelphia: Vote Looms for New 76ers Arena Near Chinatown**\
-`The mayor and labor unions say the $1.3 billion basketball arena would be an economic boost. But the city acknowledges that Chinatown could be at risk.`\
-https://nytimes.com/2024/12/01/us/philadelphia-76ers-arena-chinatown.html
-
-**Why Black Americans Searching for Their Roots Should Look to Angola**\
-`When President Biden visits the country this week, he is expected to highlight a largely overlooked bond between Angola and the United States that was born out of the trans-Atlantic slave trade.`\
-https://nytimes.com/2024/12/01/world/africa/angola-biden-slavery.html
 
