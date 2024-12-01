@@ -1,3 +1,7 @@
+**After an NBA Cup win, 'exhausted' Pistons lose to 76ers in second of back-to-backs**\
+`From the opening tip Detroit lacked the energy necessary to make its loss a competitive game.`\
+https://nytimes.com/athletic/5959453/2024/12/01/pistons-exhausted-lose-to-76ers/
+
 **‘I Was in a Classic New York City Conflict I Had Seen in Movies’**\
 `Hailing a cab on a rainy night, an unseen hand at the cemetery and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/12/01/nyregion/metropolitan-diary.html
