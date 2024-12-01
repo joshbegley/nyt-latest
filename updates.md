@@ -1,3 +1,15 @@
+**West Virginia fires coach Neal Brown after 6-6 season**\
+`Since his arrival in Morgantown in 2019, Brown has helped the team to a 37-35 overall record but is 25-28 in the Big 12 over that span.`\
+https://nytimes.com/athletic/5958530/2024/12/01/neal-brown-fired-west-virginia-football-news/
+
+**Monday Briefing: Rebels Advance in Syria**\
+`Plus, the vast network of undersea internet cables.`\
+https://nytimes.com/2024/12/01/briefing/syria-trump-fbi-mexico.html
+
+**How Jake DeBrusk powered Canucks' comeback win in Detroit: 3 takeaways**\
+`DeBrusk continued his hot streak with a hat trick in Detroit that included the overtime winner.`\
+https://nytimes.com/athletic/5960390/2024/12/01/canucks-red-wings-jake-debrusk-overtime/
+
 **D.E.A. Pick Has Trump Connections but Is Rooted in Local Law Enforcement**\
 `Sheriff Chad Chronister, who has spent decades in Hillsborough County, Fla., is likely to face an array of challenges should he be confirmed as the agency’s administrator.`\
 https://nytimes.com/2024/12/01/us/politics/trump-chad-chronister-dea.html
