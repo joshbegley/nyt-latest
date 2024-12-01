@@ -1,3 +1,7 @@
+**After an NBA Cup win, 'exhausted' Pistons lose to 76ers in second of back-to-backs**\
+`From the opening tip Detroit lacked the energy necessary to make its loss a competitive game.`\
+https://nytimes.com/athletic/5959453/2024/12/01/pistons-exhausted-lose-to-76ers/
+
 **‘I Was in a Classic New York City Conflict I Had Seen in Movies’**\
 `Hailing a cab on a rainy night, an unseen hand at the cemetery and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/12/01/nyregion/metropolitan-diary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/opinion/trump-election-leaving-expat.html
 **Marshall Brickman, Woody Allen’s Co-Writer on Hit Films, Dies at 85**\
 `The duo won an Oscar for “Annie Hall.” Mr. Brickman went on to write Broadway shows, including “Jersey Boys,” and make movies of his own.`\
 https://nytimes.com/2024/12/01/movies/marshall-brickman-dead.html
-
-**LA Galaxy outlast Seattle Sounders to earn first MLS Cup berth since 2014**\
-`LA will now host MLS Cup next Saturday against the New York Red Bulls.`\
-https://nytimes.com/athletic/5959519/2024/12/01/la-galaxy-seattle-sounders-results-score/
 
