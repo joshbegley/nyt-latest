@@ -1,3 +1,7 @@
+**D.E.A. Pick Has Trump Connections but Is Rooted in Local Law Enforcement**\
+`Sheriff Chad Chronister, who has spent decades in Hillsborough County, Fla., is likely to face an array of challenges should he be confirmed as the agency’s administrator.`\
+https://nytimes.com/2024/12/01/us/politics/trump-chad-chronister-dea.html
+
 **Peter Westbrook, Pathbreaking Olympic Fencer, Dies at 72**\
 `As the first African American to win a medal in a sport long dominated by white Europeans, he was compared to Jackie Robinson and Arthur Ashe.`\
 https://nytimes.com/2024/12/01/obituaries/peter-westbrook-dead.html
