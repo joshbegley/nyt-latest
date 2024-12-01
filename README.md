@@ -1,3 +1,7 @@
+**NFL Week 13 takeaways: Are Chargers a Super Bowl threat? Is Russell Wilson the Steelers’ long-term answer?**\
+`Plus, what to make of good teams’ close wins over bad opponents.`\
+https://nytimes.com/athletic/5961147/2024/12/01/nfl-week-13-scores-takeaways-chargers-russell-wilson-steelers/
+
 **Steelers force three turnovers, Wilson has career day in 44-38 win over Bengals: Key takeaways**\
 `Wilson posted the second-best performance of his career, while Burrow loses his third straight game with 300 yards and three touchdowns. `\
 https://nytimes.com/athletic/5960127/2024/12/01/steelers-bengals-score-result-takeaways/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/5960143/2024/12/01/cardinals-vikings-score-result-t
 **Jayden Daniels, Commanders pick up 42-19 win against Titans: Takeaways**\
 `The Washington Commanders had about as perfect of a half a team could have in Sunday's 42-19 win against the Tennessee Titans.`\
 https://nytimes.com/athletic/5960176/2024/12/01/titans-commanders-score-result-takeaways/
-
-**Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
-`Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
-`\
-https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
 
