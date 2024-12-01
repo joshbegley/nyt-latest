@@ -1,3 +1,11 @@
+**How the New York Times Makes the Super Mega Crossword**\
+`The centerpiece of the annual Puzzle Mania print section requires a big helping of teamwork, with a side order of patience.`\
+https://nytimes.com/2024/12/01/crosswords/puzzle-mania-super-mega.html
+
+**How Borussia Dortmund's 'golden boy' is becoming one of Europe's most destructive players**\
+`Borussia Dortmund's Jamie Gittens is at an exciting moment in his career with each match revealing something new about his game`\
+https://nytimes.com/athletic/5958867/2024/12/01/jamie-gittens-borussia-dortmund-bayern-munich/
+
 **Police and Protesters Clash in Georgian Capital**\
 `The government’s decision to suspend its bid for European Union membership has driven thousands of protesters onto the streets.`\
 https://nytimes.com/2024/12/01/world/europe/georgia-tbilisi-protest.html
