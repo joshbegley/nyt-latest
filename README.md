@@ -1,3 +1,7 @@
+**Mikaela Shiffrin out indefinitely after injury while seeking 100th World Cup win**\
+`Shiffrin's "return to snow is TBD" after sustaining an injury Saturday during the giant slalom at a World Cup event in Vermont.`\
+https://nytimes.com/athletic/5960019/2024/12/01/star-skier-mikaela-shiffrin-out-indefinitely-after-injury-while-seeking-100th-world-cup-win/
+
 **When A.I. and Doctors Make the Diagnosis**\
 `Readers discuss artificial intelligence in medicine. Also: Toxins in water; breasts on billboards; the $6.2 million banana; a deportation question.`\
 https://nytimes.com/2024/12/01/opinion/ai-doctors-diagnosis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/12/01/college-football-playoff-project
 **Live Q&A: Week 13 fantasy football start/sit chat with Jay Felicio, Sunday 12/1at 11 a.m. ET**\
 `Submit your Week 13 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5957160/2024/12/01/live-qa-week-13-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-1at-11-a-m-et/
-
-**Former Defense Minister Accuses Israel of Committing War Crimes in Gaza**\
-`The comments by Moshe Yaalon were swiftly denied and condemned by allies of Prime Minister Benjamin Netanyahu of Israel, who said that they would hurt the country and help its enemies.`\
-https://nytimes.com/2024/12/01/world/middleeast/israel-gaza-yaalon.html
 
