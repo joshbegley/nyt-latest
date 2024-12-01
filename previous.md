@@ -1,3 +1,7 @@
+**Temple expected to hire Sam Houston's K.C. Keeler as next coach**\
+`The 65-year-old Keeler began his head coaching career at Division III Rowan in New Jersey.`\
+https://nytimes.com/athletic/5960928/2024/12/01/temple-football-kc-keeler-head-coach/
+
 **West Virginia fires coach Neal Brown after 6-6 season**\
 `Since his arrival in Morgantown in 2019, Brown has helped the team to a 37-35 overall record but is 25-28 in the Big 12 over that span.`\
 https://nytimes.com/athletic/5958530/2024/12/01/neal-brown-fired-west-virginia-football-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960745/2024/12/01/wisconsin-leon-lowery-transfer-l
 **Jack Doohan poised to replace Esteban Ocon at Alpine F1 for Abu Dhabi GP**\
 `Doohan was already set to drive for Alpine in 2025, replacing the Haas-bound Ocon.`\
 https://nytimes.com/athletic/5960589/2024/12/01/jack-doohan-esteban-ocon-alpine-f1-abu-dhabi-gp/
-
-**Virginia Lawmakers Want to Know Why 6 Inmates Have Burned Themselves**\
-`The state’s top prison official criticized reports that the self-burnings at Red Onion State Prison, which has had a history of complaints, were in protest of poor conditions.`\
-https://nytimes.com/2024/12/01/us/virginia-prisoners-burns-protest.html
 

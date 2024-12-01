@@ -1,3 +1,7 @@
+**Temple expected to hire Sam Houston's K.C. Keeler as next coach**\
+`The 65-year-old Keeler began his head coaching career at Division III Rowan in New Jersey.`\
+https://nytimes.com/athletic/5960928/2024/12/01/temple-football-kc-keeler-head-coach/
+
 **How Jake DeBrusk powered Canucks' comeback win in Detroit: 3 takeaways**\
 `DeBrusk continued his hot streak with a hat trick that included the overtime winner.`\
 https://nytimes.com/athletic/5960390/2024/12/01/canucks-red-wings-jake-debrusk-overtime/
