@@ -1,3 +1,11 @@
+**SJSU volleyball's controversial season ends with loss in championship**\
+`The Spartans lost to top-seeded Colorado State in four sets.`\
+https://nytimes.com/athletic/5959244/2024/12/01/san-jose-state-volleyball-mountain-west-tournament/
+
+**Snyder: Everything Penn State wants is suddenly right here — including a path to No. 1 seed**\
+`The focus for PSU has been on getting to host a first-round game. But with a win over Oregon, it could end up getting a first-round bye.`\
+https://nytimes.com/athletic/5959466/2024/12/01/penn-state-college-football-playoff-host-oregon-big-ten/
+
 **Blackburn 1 Leeds 0: Familiar issues, and should Farke be more proactive with his subs?**\
 `Daniel Farke's side succumbed to a first-half penalty at Ewood Park to sap some of the momentum out of a previously rousing week`\
 https://nytimes.com/athletic/5959272/2024/12/01/leeds-farke-substitutes-gnonto-blackburn-briefing/

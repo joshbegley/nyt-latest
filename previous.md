@@ -1,3 +1,7 @@
+**SJSU volleyball's controversial season ends with loss in championship**\
+`The Spartans lost to top-seeded Colorado State in four sets.`\
+https://nytimes.com/athletic/5959244/2024/12/01/san-jose-state-volleyball-mountain-west-tournament/
+
 **Blackburn 1 Leeds 0: Familiar issues, and should Farke be more proactive with his subs?**\
 `Daniel Farke's side succumbed to a first-half penalty at Ewood Park to sap some of the momentum out of a previously rousing week`\
 https://nytimes.com/athletic/5959272/2024/12/01/leeds-farke-substitutes-gnonto-blackburn-briefing/
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/5959606/2024/12/01/college-football-playoff-week-14
 **Matt Campbell, Iowa State reach new heights after working through 'gut-wrenching' process**\
 `The Cyclones (10-2) will face Arizona State (10-2) next Saturday for the Big 12 championship and a shot at the College Football Playoff.`\
 https://nytimes.com/athletic/5959656/2024/12/01/iowa-state-kansas-state-big-12-championship-game/
+
+**Snyder: Everything Penn State wants is suddenly right here — including a path to No. 1 seed**\
+`The focus for PSU has been on getting to host a first-round game. But with a win over Oregon, it could end up getting a first-round bye.`\
+https://nytimes.com/athletic/5959466/2024/12/01/penn-state-college-football-playoff-host-oregon-big-ten/
 
 **I Viewed the Rise of ‘Barstool Conservatism’ With Alarm. And Rightly So.**\
 `This year Donald Trump took social conservatives for granted.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/01/opinion/charity-holiday-gift-homeless.html
 **Mary Is the Bennet Sister We Need**\
 `Jane Austen, one of the most beloved novelists in the English language, must have had some sympathy for a girl who liked a good book.`\
 https://nytimes.com/2024/12/01/opinion/pride-prejudice-jane-austen.html
-
-**Misogyny and Antisemitism Are a Toxic Brew**\
-`Stereotyping Jewish women is dangerously common.`\
-https://nytimes.com/2024/12/01/opinion/jewish-women-misogyny-antisemitism.html
-
-**Alabama's Playoff fate is out of its hands. How should Kalen DeBoer's debut be judged?**\
-`Beating Auburn gave Alabama a satisfying end to an up-and-down regular season under Kalen DeBoer. What's next? It's not up to the Tide.`\
-https://nytimes.com/athletic/5959364/2024/12/01/alabama-iron-bowl-auburn-playoff-deboer/
 
