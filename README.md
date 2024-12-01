@@ -1,3 +1,7 @@
+**Portzline: David Jiricek's skating concerns were enough for Blue Jackets to trade him**\
+`Blue Jackets general manager Don Waddell was wise to move Jiricek now, before his inability to crack the NHL became a bigger concern.`\
+https://nytimes.com/athletic/5959028/2024/11/30/david-jiricek-blue-jackets-trade/
+
 **College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/11/30/us/transgender-san-jose-state-volleyball.html
 **Penn State to play for Big Ten title after handling Maryland, Ohio State loss: Takeaways**\
 `After beating Maryland, Penn State has a chance to prove this team can punch up and hang with the best team in the country.`\
 https://nytimes.com/athletic/5958979/2024/11/30/penn-state-big-ten-championship-oregon-maryland/
-
-**Trump Says He Will Nominate Kash Patel to Run F.B.I.**\
-`President-elect Donald J. Trump turned to a firebrand loyalist to become director of the bureau, which he sees as part of a ‘deep state’ conspiracy against him.`\
-https://nytimes.com/2024/11/30/us/politics/trump-replace-christopher-wray.html
 

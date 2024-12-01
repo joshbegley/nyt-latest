@@ -1,4 +1,8 @@
 **Michigan's mastery over Ohio State and Ryan Day continues: 'We own you'**\
+`The Wolverines' mental edge over the Buckeyes is worth at least 14 points. Or maybe 21, which was the pregame point spread.`\
+https://nytimes.com/athletic/5959083/2024/11/30/michigan-ohio-state-ryan-day-sherrone-moore/
+
+**Michigan's mastery over Ohio State and Ryan Day continues: 'We own you'**\
 `Michigan’s mental edge over the Buckeyes is worth at least 14 points. Or maybe 21, which was the pregame point spread.`\
 https://nytimes.com/athletic/5959083/2024/11/30/michigan-ohio-state-ryan-day-sherrone-moore/
 
