@@ -1,3 +1,7 @@
+**Former Defense Minister Accuses Israel of Committing War Crimes in Gaza**\
+`The comments by Moshe Yaalon were swiftly denied and condemned by allies of Prime Minister Benjamin Netanyahu of Israel, who said that they would hurt the country and help its enemies.`\
+https://nytimes.com/2024/12/01/world/middleeast/israel-gaza-yaalon.html
+
 **How the New York Times Makes the Super Mega Crossword**\
 `The centerpiece of the annual Puzzle Mania print section requires a big helping of teamwork, with a side order of patience.`\
 https://nytimes.com/2024/12/01/crosswords/puzzle-mania-super-mega.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5959705/2024/12/01/texas-longhorns-aggies-rivalry-k
 **Kane out of Bayern's DFB-Pokal match against Leverkusen with thigh injury**\
 `Harry Kane will miss Bayern Munich&#8217;s DFB-Pokal match against Bayer Leverkusen on Tuesday with a thigh muscle injury.`\
 https://nytimes.com/athletic/5959757/2024/12/01/harry-kane-injury-update-bayern-munich/
-
-**SJSU volleyball's controversial season ends with loss in championship**\
-`The Spartans lost to top-seeded Colorado State in four sets.`\
-https://nytimes.com/athletic/5959244/2024/12/01/san-jose-state-volleyball-mountain-west-tournament/
 
