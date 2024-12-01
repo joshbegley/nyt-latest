@@ -1,3 +1,11 @@
+**Chelsea's Fofana out for around a month with hamstring injury**\
+`Chelsea defender Wesley Fofana is facing around a month out with a hamstring injury.`\
+https://nytimes.com/athletic/5960267/2024/12/01/wesley-fofana-hamstring-injury-chelsea/
+
+**NFL Week 13 inactives and fantasy tips: Trevor Lawrence, Breece Hall active for Week 13**\
+`Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5956931/2024/12/01/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/
+
 **Long a ‘Crown Jewel’ of Government, N.I.H. Is Now a Target**\
 `The agency long benefited from broad bipartisan support. But Republican criticism has intensified, and new choices for top health posts hope to upend the organization.`\
 https://nytimes.com/2024/12/01/health/nih-trump-kennedy-bhattacharya.html

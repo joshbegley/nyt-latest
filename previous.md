@@ -1,3 +1,11 @@
+**Chelsea's Fofana out for around a month with hamstring injury**\
+`Chelsea defender Wesley Fofana is facing around a month out with a hamstring injury.`\
+https://nytimes.com/athletic/5960267/2024/12/01/wesley-fofana-hamstring-injury-chelsea/
+
+**NFL Week 13 inactives and fantasy tips: Trevor Lawrence, Breece Hall active for Week 13**\
+`Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5956931/2024/12/01/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/
+
 **Long a ‘Crown Jewel’ of Government, N.I.H. Is Now a Target**\
 `The agency long benefited from broad bipartisan support. But Republican criticism has intensified, and new choices for top health posts hope to upend the organization.`\
 https://nytimes.com/2024/12/01/health/nih-trump-kennedy-bhattacharya.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5957782/2024/12/01/oilers-defence-trade-targets-202
 **The Briefing: Tottenham Hotspur 1 Fulham 1 - Inconsistent Tottenham fail to beat 10-man Fulham**\
 `Jack Pitt-Brooke and Jay Harris break down the key moments from Tottenham's game against Fulham`\
 https://nytimes.com/athletic/5955176/2024/12/01/tottenham-fulham-draw-briefing/
-
-**The Briefing: Manchester United 4 Everton 0 - Amorim's rotation pays off and Zirkzee ends drought**\
-`Our writers analyse and evaluate the key talking points from Manchester United's comfortable victory over Everton`\
-https://nytimes.com/athletic/5955164/2024/12/01/manchester-united-4-everton-0-the-briefing/
-
-**The Briefing: Chelsea 3 Aston Villa 0 - the Palmer press, Fofana concern... and are Chelsea contenders?**\
-`Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
-https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
 
