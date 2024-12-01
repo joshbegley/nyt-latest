@@ -1,3 +1,7 @@
+**Big 12 Championship Game set: Arizona State vs. Iowa State for CFP spot**\
+`Arizona State was picked last in the preseason Big 12 media poll. Iowa State’s last league title came in 1912.`\
+https://nytimes.com/athletic/5959538/2024/12/01/big-12-championship-iowa-state-arizona-state/
+
 **Running Away From Trump’s America Is Complicated. I Should Know.**\
 `For Americans declaring they want to leave a Trump-led America, the best approach is to understand what you are running to, not from.`\
 https://nytimes.com/2024/12/01/opinion/trump-election-leaving-expat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958762/2024/12/01/frank-lampard-coventry-cardiff-m
 **What are the biggest leads to be overturned in a Premier League title race?**\
 `What some of the Premier League's great title comebacks tell us about Liverpool's current lead`\
 https://nytimes.com/athletic/5948946/2024/12/01/biggest-premier-league-title-race-leads-overturned/
-
-**Legendary St. John's coach Lou Carnesecca dies at 99**\
-`Carnesecca won 526 games and lost just 200 in his 24 years at St. John’s, leading the team to 18 NCAA Tournaments.`\
-https://nytimes.com/athletic/5959323/2024/12/01/lou-carnesecca-death-st-johns/
 
