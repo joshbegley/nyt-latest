@@ -1,3 +1,15 @@
+**Kash Patel’s Threat to the Rule of Law**\
+`In the new administration, loyalty will come before experience or moral judgment.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/patel-trump-fbi-loyalty
+
+**Dyche on Everton's loss at Man Utd: 'Difficult with such glaring individual mistakes'**\
+`Everton manager Sean Dyche says “individual mistakes” cost his side as they suffered a 4-0 defeat against Manchester United at Old Trafford.`\
+https://nytimes.com/athletic/5960368/2024/12/01/everton-manchester-united-sean-dyche/
+
+**Feldman: Don't ask if Ohio State will fire Ryan Day. Ask if Day even wants to stay**\
+`Ryan Day has had a remarkable run at Ohio State, but the pall of losing to Michigan grows ever darker — and fans ever more impatient. `\
+https://nytimes.com/athletic/5960272/2024/12/01/will-ryan-day-be-fired-ohio-state/
+
 **Until Saturday: Fight-filled Saturday shakes up CFP race: Plus, the upside-down Big 12**\
 `Welcome to Until Saturday, the five-star college football newsletter: Fight-filled Saturday shakes up College Football Playoff race.`\
 https://nytimes.com/athletic/5954034/2024/12/01/college-football-fights-week-14-until-saturday/
