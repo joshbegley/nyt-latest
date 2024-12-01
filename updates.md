@@ -1,3 +1,7 @@
+**Mikaela Shiffrin out indefinitely after injury while seeking 100th World Cup win**\
+`Shiffrin's "return to snow is TBD" after sustaining an injury Saturday during the giant slalom at a World Cup event in Vermont.`\
+https://nytimes.com/athletic/5960019/2024/12/01/star-skier-mikaela-shiffrin-out-indefinitely-after-injury-while-seeking-100th-world-cup-win/
+
 **When A.I. and Doctors Make the Diagnosis**\
 `Readers discuss artificial intelligence in medicine. Also: Toxins in water; breasts on billboards; the $6.2 million banana; a deportation question.`\
 https://nytimes.com/2024/12/01/opinion/ai-doctors-diagnosis.html
