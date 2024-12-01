@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-ja
 `\
 https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
 
+**'It's an investment': Wild content with price paid for David Jiricek**\
+`Though some might see the price for Jiricek as a haul, the Wild got a player they've long coveted.
+`\
+https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
+
 **Trump Picks a Florida Sheriff as D.E.A. Administrator**\
 `The announcement of Sheriff Chad Chronister came after President-elect Donald J. Trump said that he would impose tariffs that would stay in place until Canada, Mexico and China halted the flow of drugs and migrants.`\
 https://nytimes.com/2024/11/30/us/politics/chad-chronister-dea.html
