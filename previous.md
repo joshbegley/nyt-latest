@@ -1,3 +1,7 @@
+**Peter Westbrook, Pathbreaking Olympic Fencer, Dies at 72**\
+`As the first African American to win a medal in a sport long dominated by white Europeans, he was compared to Jackie Robinson and Arthur Ashe.`\
+https://nytimes.com/2024/12/01/obituaries/peter-westbrook-dead.html
+
 **Stowaway on Flight to Paris Disrupts a Return Flight to New York**\
 `The same passenger who stowed away on a Delta Air Lines flight to Paris caused a disturbance on a flight to New York on Saturday, an aviation official said.`\
 https://nytimes.com/2024/12/01/world/europe/stowaway-return-cdg-jfk-airport.html
@@ -18,6 +22,10 @@ https://nytimes.com/athletic/5960589/2024/12/01/jack-doohan-esteban-ocon-alpine-
 `The state’s top prison official criticized reports that the self-burnings at Red Onion State Prison, which has had a history of complaints, were in protest of poor conditions.`\
 https://nytimes.com/2024/12/01/us/virginia-prisoners-burns-protest.html
 
+**NFL Week 13 inactives and fantasy tips: DeVonta Smith out against Baltimore Ravens**\
+`Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5956931/2024/12/01/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/
+
 **Georgia's Julian Humphrey to enter transfer portal: What it means for Bulldogs**\
 `This isn’t the first time Humphrey has announced plans to enter the portal. He did so during last year’s winter window.`\
 https://nytimes.com/athletic/5960674/2024/12/01/julian-humphrey-transfer-portal-georgia-football/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5960630/2024/12/01/trevor-lawrence-hit-azeez-al-sha
 **AP Top 25: Ohio State drops to No. 7, Miami to No. 14**\
 `The Big Ten (No. 1 Oregon vs. No. 3 Penn State) and SEC (No. 2 Texas vs. No. 5 Georgia) are set for top-five title matchups in the AP poll.`\
 https://nytimes.com/athletic/5960522/2024/12/01/ap-top-25-rankings-ohio-state-miami/
-
-**Guardiola says he didn't expect 'sacked in the morning' chants from Anfield**\
-`Manchester City manager Pep Guardiola says he did not expect to hear “sacked in the morning” chants from Liverpool fans during his side’s 2-0 defeat at Anfield.`\
-https://nytimes.com/athletic/5960609/2024/12/01/pep-guardiola-anfield-six-liverpool-manchester-city/
-
-**Lions signing safety Jamal Adams to practice squad: Source**\
-`The signing comes with an understanding that Adams will be elevated to Detroit's active roster.`\
-https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
 

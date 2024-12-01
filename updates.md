@@ -1,3 +1,11 @@
+**Peter Westbrook, Pathbreaking Olympic Fencer, Dies at 72**\
+`As the first African American to win a medal in a sport long dominated by white Europeans, he was compared to Jackie Robinson and Arthur Ashe.`\
+https://nytimes.com/2024/12/01/obituaries/peter-westbrook-dead.html
+
+**NFL Week 13 inactives and fantasy tips: DeVonta Smith out against Baltimore Ravens**\
+`Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5956931/2024/12/01/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/
+
 **Stowaway on Flight to Paris Disrupts a Return Flight to New York**\
 `The same passenger who stowed away on a Delta Air Lines flight to Paris caused a disturbance on a flight to New York on Saturday, an aviation official said.`\
 https://nytimes.com/2024/12/01/world/europe/stowaway-return-cdg-jfk-airport.html
