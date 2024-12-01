@@ -1,3 +1,7 @@
+**Falcons sticking with, and standing up for, Kirk Cousins after ugly day in Atlanta**\
+`The Falcons lost their third straight game as Cousins threw four interceptions against the Chargers on Sunday.`\
+https://nytimes.com/athletic/5961244/2024/12/01/falcons-kirk-cousins-four-interceptions-chargers/
+
 **Syria’s Rebels Struck When Assad’s Allies Were Weakened and Distracted**\
 `Diminished support for the Syrian government from Iran, Hezbollah and Russia enabled opposition forces to take the initiative and seize new territory.`\
 https://nytimes.com/2024/12/01/world/middleeast/syria-rebels-bashar-al-assad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960926/2024/12/01/f1-qatar-gp-penalties-fia-norris
 **Wayne Northrop, ‘Days of Our Lives’ Actor, Dies at 77**\
 `He was best known for playing two characters, Roman Brady and Dr. Alex North, in more than 1,000 episodes on the daytime soap opera.`\
 https://nytimes.com/2024/12/01/arts/television/wayne-northrop-dead.html
-
-**Seahawks rally past Jets 26-21 for third consecutive win: Takeaways**\
-`The game-winning score was Seattle’s best short-yardage play of the day — an 8-yard run by Charbonnet on third-and-1.`\
-https://nytimes.com/athletic/5960164/2024/12/01/seahawks-jets-score-result-takeaways/
 

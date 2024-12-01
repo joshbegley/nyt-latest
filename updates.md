@@ -1,3 +1,7 @@
+**Falcons sticking with, and standing up for, Kirk Cousins after ugly day in Atlanta**\
+`The Falcons lost their third straight game as Cousins threw four interceptions against the Chargers on Sunday.`\
+https://nytimes.com/athletic/5961244/2024/12/01/falcons-kirk-cousins-four-interceptions-chargers/
+
 **Syria’s Rebels Struck When Assad’s Allies Were Weakened and Distracted**\
 `Diminished support for the Syrian government from Iran, Hezbollah and Russia enabled opposition forces to take the initiative and seize new territory.`\
 https://nytimes.com/2024/12/01/world/middleeast/syria-rebels-bashar-al-assad.html
