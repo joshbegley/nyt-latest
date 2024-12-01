@@ -1,3 +1,7 @@
+**Guardiola says he didn't expect 'sacked in the morning' chants from Anfield**\
+`Manchester City manager Pep Guardiola says he did not expect to hear “sacked in the morning” chants from Liverpool fans during his side’s 2-0 defeat at Anfield.`\
+https://nytimes.com/athletic/5960609/2024/12/01/pep-guardiola-anfield-six-liverpool-manchester-city/
+
 **Lions signing S Jamal Adams to practice squad: Source**\
 `The signing comes with an understanding that Adams will be elevated to Detroit's active roster.`\
 https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
 https://nytimes.com/athletic/5958168/2024/12/01/david-jiricek-trade-blue-jackets/
 
 **Trump Offers Massad Boulos Middle East Adviser Role**\
-`The announcement on Sunday was the second time this weekend that Mr. Trump offered an influential post to an in-law.`\
+`The announcement on Sunday was the second time this weekend that President-elect Donald J. Trump offered an influential post to an in-law.`\
 https://nytimes.com/2024/12/01/us/politics/trump-massad-boulos-middle-east.html
 
 **Relatives of Subway Choking Victim Must Relive His Death Daily**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854543/2024/12/01/purdue-fires-ryan-walters/
 **Chaotic F1 Qatar GP ends with Max Verstappen win, sets up season finale showdown**\
 `Lando Norris' penalty up-ended McLaren's title bid and sets up a last-ditch fight for the constructors' championship in Abu Dhabi.`\
 https://nytimes.com/athletic/5960354/2024/12/01/max-verstappen-wins-qatar-gp-f1-championship-mclaren-ferrari/
-
-**Fiorentina-Inter abandoned after Bove appears to collapse during Serie A game**\
-`The Fiorentina midfielder was taken to hospital after falling to the ground during the first half of the match.`\
-https://nytimes.com/athletic/5960393/2024/12/01/edoardo-bove-fiorentina-inter/
 

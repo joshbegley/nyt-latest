@@ -1,3 +1,11 @@
+**Guardiola says he didn't expect 'sacked in the morning' chants from Anfield**\
+`Manchester City manager Pep Guardiola says he did not expect to hear “sacked in the morning” chants from Liverpool fans during his side’s 2-0 defeat at Anfield.`\
+https://nytimes.com/athletic/5960609/2024/12/01/pep-guardiola-anfield-six-liverpool-manchester-city/
+
+**Trump Offers Massad Boulos Middle East Adviser Role**\
+`The announcement on Sunday was the second time this weekend that President-elect Donald J. Trump offered an influential post to an in-law.`\
+https://nytimes.com/2024/12/01/us/politics/trump-massad-boulos-middle-east.html
+
 **Lions signing S Jamal Adams to practice squad: Source**\
 `The signing comes with an understanding that Adams will be elevated to Detroit's active roster.`\
 https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
