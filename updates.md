@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/01/college-football-playoff-projections-odds/
+
 **Live Q&A: Week 13 fantasy football start/sit chat with Jay Felicio, Sunday 12/1at 11 a.m. ET**\
 `Submit your Week 13 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5957160/2024/12/01/live-qa-week-13-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-1at-11-a-m-et/
