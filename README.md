@@ -1,3 +1,11 @@
+**How the New York Times Makes the Super Mega Crossword**\
+`The centerpiece of the annual Puzzle Mania print section requires a big helping of teamwork, with a side order of patience.`\
+https://nytimes.com/2024/12/01/crosswords/puzzle-mania-super-mega.html
+
+**How Borussia Dortmund's 'golden boy' is becoming one of Europe's most destructive players**\
+`Borussia Dortmund's Jamie Gittens is at an exciting moment in his career with each match revealing something new about his game`\
+https://nytimes.com/athletic/5958867/2024/12/01/jamie-gittens-borussia-dortmund-bayern-munich/
+
 **Police and Protesters Clash in Georgian Capital**\
 `The government’s decision to suspend its bid for European Union membership has driven thousands of protesters onto the streets.`\
 https://nytimes.com/2024/12/01/world/europe/georgia-tbilisi-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5959757/2024/12/01/harry-kane-injury-update-bayern-
 **SJSU volleyball's controversial season ends with loss in championship**\
 `The Spartans lost to top-seeded Colorado State in four sets.`\
 https://nytimes.com/athletic/5959244/2024/12/01/san-jose-state-volleyball-mountain-west-tournament/
-
-**Blackburn 1 Leeds 0: Familiar issues, and should Farke be more proactive with his subs?**\
-`Daniel Farke's side succumbed to a first-half penalty at Ewood Park to sap some of the momentum out of a previously rousing week`\
-https://nytimes.com/athletic/5959272/2024/12/01/leeds-farke-substitutes-gnonto-blackburn-briefing/
-
-**What we learned about the College Football Playoff: Who’s in? Who’s safe? Who’s on bubble?**\
-`We have some clarity on the CFP field going into championship weekend. Ohio State, Georgia appear safe. Indiana, Miami should root for SMU.`\
-https://nytimes.com/athletic/5959606/2024/12/01/college-football-playoff-week-14-sec-big-12-clemson/
 
