@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-ja
 `\
 https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
 
+**'It's an investment': Wild content with price paid for David Jiricek**\
+`Though some might see the price for Jiricek as a haul, the Wild got a player they've long coveted.
+`\
+https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
+
 **Meet 2024 Ohio State, the unhappiest Playoff team in college football history**\
 `Everything about Ohio State football should be good right now, and yet there is no program in the country more joyless.`\
 https://nytimes.com/athletic/5959271/2024/11/30/ohio-state-michigan-college-football-playoff/
