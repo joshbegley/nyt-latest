@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5959770/2024/12/01/botafogo-copa-libertadores-club-
 `At the Metropolitan Opera with Angelina Jolie.`\
 https://nytimes.com/2024/12/01/briefing/opera-maria-angelina-jolie.html
 
-**The USWNT need 'to build better connections'. Fortunately, doing that may be straightforward**\
+**The USWNT needs 'to build better connections'. Fortunately, doing that may be straightforward**\
 `Against England, the USWNT failed to score for the second time under Emma Hayes, but there are reasons to be positive about the attack`\
 https://nytimes.com/athletic/5959670/2024/12/01/england-women-uswnt-reaction/
 
