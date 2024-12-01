@@ -1,3 +1,7 @@
+**Liverpool vs Man City dissected: The rivalry, key battles - and our predictions**\
+`What's the state of the rivalry? Which players are most feared? And who will win? Our experts debate the big questions`\
+https://nytimes.com/athletic/5957001/2024/12/01/liverpool-manchester-city-prediction-tactics/
+
 **Greenwood and Carter switching positions gives England's defence better balance**\
 `Something strange happened at the start of England’s draw with USA at Wembley on Saturday - two of England's defenders swapped positions`\
 https://nytimes.com/athletic/5958726/2024/12/01/alex-greenwood-and-jess-carter-switching-positions-gives-englands-defence-better-balance/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/world/africa/france-senegal-thiaroye-massacre.htm
 **Liverpool vs Man City preview, odds, prediction: Reds aim for massive blow in title race**\
 `Liverpool already has an eight-point lead in the Premier League. Can the Reds extend that and put the title away in December?`\
 https://nytimes.com/athletic/5956971/2024/12/01/liverpool-manchester-city-preview-odds-prediction/
-
-**From Pong to Pokémon: A History of Holiday ‘It’ Toys**\
-`A look back at 70-plus years of gadgetry, innovation and Mr. Potato Head.`\
-https://nytimes.com/2024/12/01/style/from-pong-to-pokemon-a-history-of-holiday-it-toys.html
 

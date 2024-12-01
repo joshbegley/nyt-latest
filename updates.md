@@ -1,3 +1,7 @@
+**Liverpool vs Man City dissected: The rivalry, key battles - and our predictions**\
+`What's the state of the rivalry? Which players are most feared? And who will win? Our experts debate the big questions`\
+https://nytimes.com/athletic/5957001/2024/12/01/liverpool-manchester-city-prediction-tactics/
+
 **Greenwood and Carter switching positions gives England's defence better balance**\
 `Something strange happened at the start of England’s draw with USA at Wembley on Saturday - two of England's defenders swapped positions`\
 https://nytimes.com/athletic/5958726/2024/12/01/alex-greenwood-and-jess-carter-switching-positions-gives-englands-defence-better-balance/
