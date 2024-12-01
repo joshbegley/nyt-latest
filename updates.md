@@ -1,3 +1,7 @@
+**Stewart Mandel's 12-team Playoff projections after Week 14**\
+`Ohio State’s inexplicable home loss to Michigan and Miami’s loss at Syracuse certainly shook up the seeding heading into league title games.`\
+https://nytimes.com/athletic/5960482/2024/12/01/college-football-playoff-bracket-projections-week-14/
+
 **The Briefing: Liverpool 2 Man City 0 - Slot's side dominate struggling champions to go nine points clear**\
 `Our writers break down the action from Anfield as Salah again proves crucial for Liverpool and City's poor run continues`\
 https://nytimes.com/athletic/5955206/2024/12/01/liverpool-man-city-premier-league/
