@@ -1,3 +1,11 @@
+**A Unique Night at the Opera**\
+`At the Metropolitan Opera with Angelina Jolie.`\
+https://nytimes.com/2024/12/01/briefing/opera-maria-angelina-jolie.html
+
+**The USWNT need 'to build better connections'. Fortunately, doing that may be straightforward**\
+`Against England, the USWNT failed to score for the second time under Emma Hayes, but there are reasons to be positive about the attack`\
+https://nytimes.com/athletic/5959670/2024/12/01/england-women-uswnt-reaction/
+
 **Fighting Rages in Syria as Rebels Advance**\
 `Forces opposed to President Bashar al-Assad have captured the Aleppo airport and are attacking the western city of Hama, according to local officials and a Britain-based war monitor.`\
 https://nytimes.com/2024/12/01/world/middleeast/syria-war-aleppo-rebels-government.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5959656/2024/12/01/iowa-state-kansas-state-big-12-c
 **Snyder: Everything Penn State wants is suddenly right here — including a path to No. 1 seed**\
 `The focus for PSU has been on getting to host a first-round game. But with a win over Oregon, it could end up getting a first-round bye.`\
 https://nytimes.com/athletic/5959466/2024/12/01/penn-state-college-football-playoff-host-oregon-big-ten/
-
-**I Viewed the Rise of ‘Barstool Conservatism’ With Alarm. And Rightly So.**\
-`This year Donald Trump took social conservatives for granted.`\
-https://nytimes.com/2024/12/01/opinion/trump-barstool-young-men.html
-
-**Wordle Review No. 1,262**\
-`Scroll down for hints and conversation about the puzzle for Monday, Dec. 2, 2024.`\
-https://nytimes.com/2024/12/01/crosswords/wordle-review-1262.html
 
