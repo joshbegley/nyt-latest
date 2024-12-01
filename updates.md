@@ -1,3 +1,11 @@
+**Big Ten fines Ohio State, Michigan $100K each for postgame brawl**\
+`No players will receive individual discipline, although the conference could have doled out suspensions for postseason games.`\
+https://nytimes.com/athletic/5961212/2024/12/01/ohio-state-michigan-fight-fines-big-ten/
+
+**The Lion’s Share**\
+`Andrea Carla Michaels and Kevin Christian go for a run.`\
+https://nytimes.com/2024/12/01/crosswords/daily-puzzle-2024-12-02.html
+
 **Max Verstappen responds to Qatar qualifying penalty: "I lost all respect"**\
 `Verstappen was unhappy with the role Russell, who rose from second to first on the grid, had played in the decision.`\
 https://nytimes.com/athletic/5960819/2024/12/01/max-verstappen-qualifying-penalty-george-russell-comments/

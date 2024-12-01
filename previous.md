@@ -1,3 +1,11 @@
+**Big Ten fines Ohio State, Michigan $100K each for postgame brawl**\
+`No players will receive individual discipline, although the conference could have doled out suspensions for postseason games.`\
+https://nytimes.com/athletic/5961212/2024/12/01/ohio-state-michigan-fight-fines-big-ten/
+
+**The Lion’s Share**\
+`Andrea Carla Michaels and Kevin Christian go for a run.`\
+https://nytimes.com/2024/12/01/crosswords/daily-puzzle-2024-12-02.html
+
 **Max Verstappen responds to Qatar qualifying penalty: "I lost all respect"**\
 `Verstappen was unhappy with the role Russell, who rose from second to first on the grid, had played in the decision.`\
 https://nytimes.com/athletic/5960819/2024/12/01/max-verstappen-qualifying-penalty-george-russell-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5960893/2024/12/01/week-14-sec-rankings-college-foo
 **Oxford’s 2024 Word of the Year Is…**\
 `A slang term for supposed mental damage done by overconsumption of trivial online content triumphed over a shortlist that also included “lore,” “demure” and “slop.”`\
 https://nytimes.com/2024/12/01/arts/brain-rot-oxford-word.html
-
-**Biden’s Visit to Africa Will Focus on History and Economic Hope**\
-`In Angola on likely his last overseas trip in office, the president will tour a slavery museum and spotlight a rail corridor that is part of his administration’s strategy in the region.`\
-https://nytimes.com/2024/12/01/us/politics/biden-africa-angola-economic-strategy.html
-
-**Aaron Jones' late TD lifts Vikings past Cardinals 23-22: Takeaways**\
-`Justin Jefferson crossed 1,000 receiving yards for the fifth straight season, joining an elite club in the process.`\
-https://nytimes.com/athletic/5960143/2024/12/01/cardinals-vikings-score-result-takeaways/
 
