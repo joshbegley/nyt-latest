@@ -1,3 +1,7 @@
+**Alabama's Playoff fate is out of its hands. How should Kalen DeBoer's debut be judged?**\
+`Beating Auburn gave Alabama a satisfying end to an up-and-down regular season under Kalen DeBoer. What's next? It's not up to the Tide.`\
+https://nytimes.com/athletic/5959364/2024/12/01/alabama-iron-bowl-auburn-playoff-deboer/
+
 **Chargers at Falcons: How to watch, odds, expert picks for near pick'em in Atlanta**\
 `Both the Falcons and Chargers look to bounce back on Sunday, in one of the week's closest games by the odds.`\
 https://nytimes.com/athletic/5953642/2024/12/01/chargers-falcons-how-to-watch-odds-picks-betting/
