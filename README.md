@@ -1,3 +1,7 @@
+**Real Madrid 2 Getafe 0: Mbappe heals, the Bellingham show and Garcia's role**\
+`After the disappointment of the midweek defeat to Liverpool, Madrid were back to winning ways in La Liga`\
+https://nytimes.com/athletic/5960761/2024/12/01/real-madrid-bellingham-mbappe/
+
 **Temple expected to hire Sam Houston's K.C. Keeler as next coach**\
 `The 65-year-old Keeler began his head coaching career at Division III Rowan in New Jersey.`\
 https://nytimes.com/athletic/5960928/2024/12/01/temple-football-kc-keeler-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/business/stellantis-ceo-resigns.html
 **Wisconsin exit interview: Leon Lowery on decision to transfer and thoughts on Badgers' future**\
 `Lowery started 11 games at linebacker in his one season at Wisconsin but failed to have as big of an impact as expected. `\
 https://nytimes.com/athletic/5960745/2024/12/01/wisconsin-leon-lowery-transfer-linebacker/
-
-**Jack Doohan poised to replace Esteban Ocon at Alpine F1 for Abu Dhabi GP**\
-`Doohan was already set to drive for Alpine in 2025, replacing the Haas-bound Ocon.`\
-https://nytimes.com/athletic/5960589/2024/12/01/jack-doohan-esteban-ocon-alpine-f1-abu-dhabi-gp/
 
