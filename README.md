@@ -1,5 +1,5 @@
 **C.E.O. of Stellantis, Owner of Chrysler and Jeep, Resigns**\
-`The company, facing slumping sales, announced that Carlos Tavares would step down immediately and that a new chief would be appointed early next year.`\
+`The company, facing slumping sales, announced that Carlos Tavares would step down immediately and that a search for a new chief was underway.`\
 https://nytimes.com/2024/12/01/business/stellantis-ceo-resigns.html
 
 **Wisconsin exit interview: Leon Lowery on decision to transfer and thoughts on Badgers' future**\
