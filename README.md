@@ -1,3 +1,7 @@
+**Meet 2024 Ohio State, the unhappiest Playoff team in college football history**\
+`Everything about Ohio State football should be good right now, and yet there is no program in the country more joyless.`\
+https://nytimes.com/athletic/5959271/2024/11/30/ohio-state-michigan-college-football-playoff/
+
 **Red Bulls advance to MLS Cup final with 1-0 win vs. Orlando City**\
 `The Red Bulls return to the MLS Cup for the first time since 2008.`\
 https://nytimes.com/athletic/5959275/2024/11/30/new-york-red-bulls-orlando-city-mls-eastern-conference-final-score/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5959050/2024/11/30/fights-flag-plant-ohio-state-mic
 **Portzline: David Jiricek's skating concerns were enough for Blue Jackets to trade him**\
 `Blue Jackets general manager Don Waddell was wise to move Jiricek now, before his inability to crack the NHL became a bigger concern.`\
 https://nytimes.com/athletic/5959028/2024/11/30/david-jiricek-blue-jackets-trade/
-
-**College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-projections-odds/
 
