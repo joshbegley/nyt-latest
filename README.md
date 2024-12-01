@@ -1,3 +1,7 @@
+**Wayne Northrop, ‘Days of Our Lives’ Actor, Dies at 77**\
+`He was best known for playing two characters, Roman Brady and Dr. Alex North, in more than 1,000 episodes on the daytime soap opera.`\
+https://nytimes.com/2024/12/01/arts/television/wayne-northrop-dead.html
+
 **Seahawks rally past Jets 26-21 for third consecutive win: Takeaways**\
 `The game-winning score was Seattle’s best short-yardage play of the day — an 8-yard run by Charbonnet on third-and-1.`\
 https://nytimes.com/athletic/5960164/2024/12/01/seahawks-jets-score-result-takeaways/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5960116/2024/12/01/chargers-falcons-score-result-ta
 **FIU firing Mike MacIntyre after third straight 4-8 season: Source**\
 `The news comes 10 days after a former player alleged that MacIntyre threw a chair that hit a player during halftime of a 2022 game.`\
 https://nytimes.com/athletic/5943881/2024/12/01/fiu-mike-macintyre-firing/
-
-**Jerry Mack hired as second Kennesaw State head coach**\
-`Mack is the second coach in Kennesaw State football history, following Brian Bohannon.`\
-https://nytimes.com/athletic/5960883/2024/12/01/jerry-mack-hired-kennesaw-state-football/
 

@@ -1,3 +1,7 @@
+**Seahawks rally past Jets 26-21 for third consecutive win: Takeaways**\
+`The game-winning score was Seattle’s best short-yardage play of the day — an 8-yard run by Charbonnet on third-and-1.`\
+https://nytimes.com/athletic/5960164/2024/12/01/seahawks-jets-score-result-takeaways/
+
 **SEC vibes rankings: Who would deserve a fourth SEC Playoff bid?**\
 `Which SEC team should get a fourth College Football Playoff bid if the conference gets it?`\
 https://nytimes.com/athletic/5960893/2024/12/01/week-14-sec-rankings-college-football-playoff/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5943881/2024/12/01/fiu-mike-macintyre-firing/
 **Jerry Mack hired as second Kennesaw State head coach**\
 `Mack is the second coach in Kennesaw State football history, following Brian Bohannon.`\
 https://nytimes.com/athletic/5960883/2024/12/01/jerry-mack-hired-kennesaw-state-football/
-
-**Real Madrid 2 Getafe 0: Mbappe heals, the Bellingham show and Garcia's role**\
-`After the disappointment of the midweek defeat to Liverpool, Madrid were back to winning ways in La Liga`\
-https://nytimes.com/athletic/5960761/2024/12/01/real-madrid-bellingham-mbappe/
 
