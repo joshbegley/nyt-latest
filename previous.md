@@ -1,3 +1,7 @@
+**Stuart Skinner's last audition for a Team Canada job is as good as it gets**\
+`DENVER — The die may already be cast, but Stuart Skinner surely gave Team Canada brass something to think about if it hasn’t.`\
+https://nytimes.com/athletic/5959574/2024/12/01/stuart-skinner-team-canada-audition/
+
 **What changes are needed to the Warriors' suddenly struggling 13-man rotation?**\
 `Coach Steve Kerr found a way to use 13 players in the first 15 minutes against Phoenix in his search for answers, without much success.`\
 https://nytimes.com/athletic/5959219/2024/12/01/warriors-struggle-13-man-rotation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957001/2024/12/01/liverpool-manchester-city-predic
 **Greenwood and Carter switching positions gives England's defence better balance**\
 `Something strange happened at the start of England’s draw with USA at Wembley on Saturday - two of England's defenders swapped positions`\
 https://nytimes.com/athletic/5958726/2024/12/01/alex-greenwood-and-jess-carter-switching-positions-gives-englands-defence-better-balance/
-
-**'I am here as a head coach, not as a celebrity' - Frank Lampard's first day at Coventry**\
-`After 18 months out the game, the former Chelsea and England star was given a reminder of how tough the Championship can be`\
-https://nytimes.com/athletic/5958762/2024/12/01/frank-lampard-coventry-cardiff-manager/
 

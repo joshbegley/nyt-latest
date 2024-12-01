@@ -1,3 +1,7 @@
+**Stuart Skinner's last audition for a Team Canada job is as good as it gets**\
+`DENVER — The die may already be cast, but Stuart Skinner surely gave Team Canada brass something to think about if it hasn’t.`\
+https://nytimes.com/athletic/5959574/2024/12/01/stuart-skinner-team-canada-audition/
+
 **What changes are needed to the Warriors' suddenly struggling 13-man rotation?**\
 `Coach Steve Kerr found a way to use 13 players in the first 15 minutes against Phoenix in his search for answers, without much success.`\
 https://nytimes.com/athletic/5959219/2024/12/01/warriors-struggle-13-man-rotation/
