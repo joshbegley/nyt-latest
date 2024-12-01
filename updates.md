@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-take
 `\
 https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
 
+**Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
+`Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
+`\
+https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
+
 **Oxford’s 2024 Word of the Year Is…**\
 `A slang term for supposed mental damage done by overconsumption of trivial online content triumphed over a shortlist that also included “lore,” “demure” and “slop.”`\
 https://nytimes.com/2024/12/01/arts/brain-rot-oxford-word.html
