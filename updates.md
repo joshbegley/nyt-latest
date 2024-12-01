@@ -1,3 +1,7 @@
+**NFL Week 13 inactives and fantasy tips: Brock Purdy active, Keon Coleman out for SNF**\
+`Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5956931/2024/12/01/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/
+
 **Falcons sticking with, and standing up for, Kirk Cousins after ugly day in Atlanta**\
 `The Falcons lost their third straight game as Cousins threw four interceptions against the Chargers on Sunday.`\
 https://nytimes.com/athletic/5961244/2024/12/01/falcons-kirk-cousins-four-interceptions-chargers/

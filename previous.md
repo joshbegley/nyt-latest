@@ -1,3 +1,7 @@
+**NFL Week 13 inactives and fantasy tips: Brock Purdy active, Keon Coleman out for SNF**\
+`Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5956931/2024/12/01/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/
+
 **Falcons sticking with, and standing up for, Kirk Cousins after ugly day in Atlanta**\
 `The Falcons lost their third straight game as Cousins threw four interceptions against the Chargers on Sunday.`\
 https://nytimes.com/athletic/5961244/2024/12/01/falcons-kirk-cousins-four-interceptions-chargers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960127/2024/12/01/steelers-bengals-score-result-ta
 **F1's Qatar penalty drama will increase scrutiny on the FIA after recent upheaval**\
 `After another F1 race where penalties influenced the outcome (and potentially a title), focus returns to the sport's governing body.`\
 https://nytimes.com/athletic/5960926/2024/12/01/f1-qatar-gp-penalties-fia-norris-verstappen-russell/
-
-**Wayne Northrop, ‘Days of Our Lives’ Actor, Dies at 77**\
-`He was best known for playing two characters, Roman Brady and Dr. Alex North, in more than 1,000 episodes on the daytime soap opera.`\
-https://nytimes.com/2024/12/01/arts/television/wayne-northrop-dead.html
 
