@@ -1,3 +1,15 @@
+**When A.I. and Doctors Make the Diagnosis**\
+`Readers discuss artificial intelligence in medicine. Also: Toxins in water; breasts on billboards; the $6.2 million banana; a deportation question.`\
+https://nytimes.com/2024/12/01/opinion/ai-doctors-diagnosis.html
+
+**Sardine Pasta Puttanesca, Plenty Punchy**\
+`Sohla El-Waylly’s recipe is about as far from Thanksgiving as you can get. And on the Sunday after Thanksgiving, that’s exactly what’s required.`\
+https://nytimes.com/2024/12/01/dining/sardine-pasta-puttanesca-more-recipes.html
+
+**The Briefing: Chelsea 3 Aston Villa 0 - the Palmer press, Fofana concern... and are Chelsea contenders?**\
+`Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
+https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
+
 **The Briefing: Chelsea 3 Aston Villa 0 - the Palmer press, Fofana concern and are Chelsea contenders?**\
 `Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
 https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
