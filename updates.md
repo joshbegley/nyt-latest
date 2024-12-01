@@ -38,6 +38,11 @@ https://nytimes.com/athletic/5959424/2024/11/30/maple-leafs-lightning-nick-rober
 `\
 https://nytimes.com/athletic/5959424/2024/11/30/maple-leafs-lightning-nick-robertson-goal/
 
+**Maple Leafs' Nick Robertson gets monkey off his back — and hopes it's only the beginning**\
+`The 23-year-old left winger snapped his 12-game goal drought in the Maple Leafs' 5-3 win over the Lightning.
+`\
+https://nytimes.com/athletic/5959424/2024/11/30/maple-leafs-lightning-nick-robertson-goal/
+
 **Lou Carnesecca, St. John’s Basketball Coach Who Notched 526 Wins, Dies at 99**\
 `Known for his quick wit and garish sweaters, Carnesecca took the New York City university to national basketball prominence.`\
 https://nytimes.com/2024/11/30/sports/basketball/lou-carnesecca-dead.html
