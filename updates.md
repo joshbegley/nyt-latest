@@ -1,3 +1,7 @@
+**Wisconsin exit interview: Leon Lowery on decision to transfer and thoughts on Badgers' future**\
+`Lowery started 11 games at linebacker in his one season at Wisconsin but failed to have as big of an impact as expected. `\
+https://nytimes.com/athletic/5960745/2024/12/01/wisconsin-leon-lowery-transfer-linebacker/
+
 **Jack Doohan poised to replace Esteban Ocon at Alpine F1 for Abu Dhabi GP**\
 `Doohan was already set to drive for Alpine in 2025, replacing the Haas-bound Ocon.`\
 https://nytimes.com/athletic/5960589/2024/12/01/jack-doohan-esteban-ocon-alpine-f1-abu-dhabi-gp/

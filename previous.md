@@ -1,3 +1,7 @@
+**Wisconsin exit interview: Leon Lowery on decision to transfer and thoughts on Badgers' future**\
+`Lowery started 11 games at linebacker in his one season at Wisconsin but failed to have as big of an impact as expected. `\
+https://nytimes.com/athletic/5960745/2024/12/01/wisconsin-leon-lowery-transfer-linebacker/
+
 **Jack Doohan poised to replace Esteban Ocon at Alpine F1 for Abu Dhabi GP**\
 `Doohan was already set to drive for Alpine in 2025, replacing the Haas-bound Ocon.`\
 https://nytimes.com/athletic/5960589/2024/12/01/jack-doohan-esteban-ocon-alpine-f1-abu-dhabi-gp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958168/2024/12/01/david-jiricek-trade-blue-jackets
 **Trump Offers Massad Boulos Middle East Adviser Role**\
 `The announcement on Sunday was the second time this weekend that President-elect Donald J. Trump offered an influential post to an in-law.`\
 https://nytimes.com/2024/12/01/us/politics/trump-massad-boulos-middle-east.html
-
-**Relatives of Subway Choking Victim Must Relive His Death Daily**\
-`In life, Jordan Neely’s family lost him to mental illness. After his death, his father and uncle have steeled themselves to attend the manslaughter trial of Daniel Penny each day.`\
-https://nytimes.com/2024/12/01/nyregion/subway-choking-jordan-neely-relatives.html
 
