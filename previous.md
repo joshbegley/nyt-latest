@@ -1,3 +1,8 @@
+**'It's an investment': Wild content with price paid for David Jiricek**\
+`While some may see the price for Jiricek as a haul, the Wild got a player they've long coveted.
+`\
+https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
+
 **Trump Picks a Florida Sheriff as D.E.A. Administrator**\
 `The announcement of Sheriff Chad Chronister came after President-elect Donald J. Trump said that he would impose tariffs that would stay in place until Canada, Mexico and China halted the flow of drugs and migrants.`\
 https://nytimes.com/2024/11/30/us/politics/chad-chronister-dea.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/5959083/2024/11/30/michigan-ohio-state-ryan-day-she
 **Rexrode: Tennessee isn’t just College Football Playoff-bound, it’s bound to be CFP trouble**\
 `Tennessee's defense has carried it through offensive lulls, but the Vols are improving, especially at the QB position. `\
 https://nytimes.com/athletic/5959056/2024/11/30/tennessee-vanderbilt-result-college-football-playoff/
-
-**Does Alabama have a Playoff case after beating Auburn? Key Iron Bowl takeaways**\
-`No. 13 Alabama beat Auburn 28-14 in the Iron Bowl Saturday, giving the Tide postseason hope while knocking Auburn out of bowl contention.`\
-https://nytimes.com/athletic/5958996/2024/11/30/alabama-auburn-iron-bowl-score-recap/
 
