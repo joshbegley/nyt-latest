@@ -1,3 +1,7 @@
+**The USWNT needs 'to build better connections'. Fortunately, that may be straightforward**\
+`Against England, the USWNT failed to score for the second time under Emma Hayes, but there are reasons to be positive about the attack`\
+https://nytimes.com/athletic/5959670/2024/12/01/england-women-uswnt-reaction/
+
 **Former Defense Minister Accuses Israel of Committing War Crimes in Gaza**\
 `The comments by Moshe Yaalon were swiftly denied and condemned by allies of Prime Minister Benjamin Netanyahu of Israel, who said that they would hurt the country and help its enemies.`\
 https://nytimes.com/2024/12/01/world/middleeast/israel-gaza-yaalon.html
