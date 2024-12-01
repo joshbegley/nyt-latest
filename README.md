@@ -1,5 +1,5 @@
 **The Briefing: Liverpool 2 Man City 0 - Slot's side dominate struggling City to go nine points clear**\
-`Our writers break down the action from Anfield as Salah again proves crucial for Liverpool and City's poor run continues.`\
+`Our writers break down the action from Anfield as Salah again proves crucial for Liverpool and City's poor run continues`\
 https://nytimes.com/athletic/5955206/2024/12/01/liverpool-man-city-premier-league/
 
 **Republicans Stand Behind Trump’s Choice of Kash Patel to Lead F.B.I.**\
