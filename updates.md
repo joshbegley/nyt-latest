@@ -1,3 +1,7 @@
+**AP Top 25: Ohio State drops to No. 7, Miami to No. 14**\
+`The Big Ten (No. 1 Oregon vs. No. 3 Penn State) and SEC (No. 2 Texas vs. No. 5 Georgia) are set for top-five title matchups in the AP poll.`\
+https://nytimes.com/athletic/5960522/2024/12/01/ap-top-25-rankings-ohio-state-miami/
+
 **Guardiola says he didn't expect 'sacked in the morning' chants from Anfield**\
 `Manchester City manager Pep Guardiola says he did not expect to hear “sacked in the morning” chants from Liverpool fans during his side’s 2-0 defeat at Anfield.`\
 https://nytimes.com/athletic/5960609/2024/12/01/pep-guardiola-anfield-six-liverpool-manchester-city/
