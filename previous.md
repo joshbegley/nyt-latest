@@ -1,40 +1,40 @@
+**Blackburn 1 Leeds 0: Familiar issues, and should Farke be more proactive with his subs?**\
+`Daniel Farke's side succumbed to a first-half penalty at Ewood Park to sap some of the momentum out of a previously rousing week`\
+https://nytimes.com/athletic/5959272/2024/12/01/leeds-farke-substitutes-gnonto-blackburn-briefing/
+
+**What we learned about the College Football Playoff: Who’s in? Who’s safe? Who’s on bubble?**\
+`We have some clarity on the CFP field going into championship weekend. Ohio State, Georgia appear safe. Indiana, Miami should root for SMU.`\
+https://nytimes.com/athletic/5959606/2024/12/01/college-football-playoff-week-14-sec-big-12-clemson/
+
+**Matt Campbell, Iowa State reach new heights after working through 'gut-wrenching' process**\
+`The Cyclones (10-2) will face Arizona State (10-2) next Saturday for the Big 12 championship and a shot at the College Football Playoff.`\
+https://nytimes.com/athletic/5959656/2024/12/01/iowa-state-kansas-state-big-12-championship-game/
+
+**I Viewed the Rise of ‘Barstool Conservatism’ With Alarm. And Rightly So.**\
+`This year Donald Trump took social conservatives for granted.`\
+https://nytimes.com/2024/12/01/opinion/trump-barstool-young-men.html
+
+**Wordle Review No. 1,262**\
+`Scroll down for hints and conversation about the puzzle for Monday, Dec. 2, 2024.`\
+https://nytimes.com/2024/12/01/crosswords/wordle-review-1262.html
+
+**Republicans Would Regret Letting Elon Musk Ax Weather Forecasting**\
+`Everyone benefits from government weather forecasting. Republicans have the chance to make it better.`\
+https://nytimes.com/2024/12/01/opinion/doge-musk-ramaswamy-noaa.html
+
+**‘I Was a Stranger and You Invited Me In’**\
+`I won’t forget the first time I volunteered at Room in the Inn.`\
+https://nytimes.com/2024/12/01/opinion/charity-holiday-gift-homeless.html
+
+**Mary Is the Bennet Sister We Need**\
+`Jane Austen, one of the most beloved novelists in the English language, must have had some sympathy for a girl who liked a good book.`\
+https://nytimes.com/2024/12/01/opinion/pride-prejudice-jane-austen.html
+
+**Misogyny and Antisemitism Are a Toxic Brew**\
+`Stereotyping Jewish women is dangerously common.`\
+https://nytimes.com/2024/12/01/opinion/jewish-women-misogyny-antisemitism.html
+
 **Alabama's Playoff fate is out of its hands. How should Kalen DeBoer's debut be judged?**\
 `Beating Auburn gave Alabama a satisfying end to an up-and-down regular season under Kalen DeBoer. What's next? It's not up to the Tide.`\
 https://nytimes.com/athletic/5959364/2024/12/01/alabama-iron-bowl-auburn-playoff-deboer/
-
-**A Power Vacuum in Gaza Could Empower Warlords and Gangs**\
-`Hamas’s weakened position could leave the territory without any governing institutions.`\
-https://nytimes.com/2024/12/01/world/middleeast/a-power-vacuum-in-gaza-could-empower-warlords-and-gangs.html
-
-**Wisconsin Democratic Chair Says He Is the One to Revive a Distressed Party**\
-`Ben Wikler, who has led the Wisconsin Democratic Party since 2019, announced a bid to be national party chair with a platform to “unite, fight, win.”`\
-https://nytimes.com/2024/12/01/us/politics/ben-wikler-democratic-national-committee-wisconsin.html
-
-**Behind the Scenes With Our Thanksgiving Day Parade Reporter**\
-`Sarah Maslin Nir has covered the annual event in New York City through freezing temperatures, gusting winds and always crowded sidewalks.`\
-https://nytimes.com/2024/12/01/insider/macys-thanksgiving-parade.html
-
-**The ‘Wicked’ Practice of Taking Pictures of the Movie Screen**\
-`Why are so many people snapping photos and taking videos at the movies? Will this trend ever go away?`\
-https://nytimes.com/2024/12/01/movies/wicked-movie-screen-cellphone-pictures.html
-
-**Chargers at Falcons: How to watch, odds, expert picks for near pick'em in Atlanta**\
-`Both the Falcons and Chargers look to bounce back on Sunday, in one of the week's closest games by the odds.`\
-https://nytimes.com/athletic/5953642/2024/12/01/chargers-falcons-how-to-watch-odds-picks-betting/
-
-**Super Mega 2024 Clues**\
-`This year’s Super Mega has 720 entries.`\
-https://nytimes.com/2024/12/01/crosswords/super-mega-2024-clues.html
-
-**49ers at Bills: How to watch, odds, picks with Buffalo as touchdown favorites on SNF**\
-`San Francisco is in desperation mode after back-to-back losses and find itself as a touchdown underdog in Buffalo.`\
-https://nytimes.com/athletic/5954028/2024/12/01/49ers-bills-how-to-watch-odds-picks-betting/
-
-**More Than a Dozen Drafts From Dallas on One November Day**\
-`An article budget from Nov. 22, 1963, shows the scramble to explain President John F. Kennedy’s assassination.`\
-https://nytimes.com/2024/12/01/insider/jfk-assassination-copy-desk.html
-
-**Giant Redheaded Centipedes Are Venom Mixologists**\
-`The arthropods can tailor their toxins depending on whether they are hunting prey or defending themselves from predators, according to a new study.`\
-https://nytimes.com/2024/12/01/science/giant-centipede-venom.html
 
