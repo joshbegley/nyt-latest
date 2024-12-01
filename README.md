@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/01/college-football-playoff-projections-odds/
+
 **Live Q&A: Week 13 fantasy football start/sit chat with Jay Felicio, Sunday 12/1at 11 a.m. ET**\
 `Submit your Week 13 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5957160/2024/12/01/live-qa-week-13-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-1at-11-a-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5959670/2024/12/01/england-women-uswnt-reaction/
 **Fighting Rages in Syria as Rebels Advance**\
 `Forces opposed to President Bashar al-Assad have captured the Aleppo airport and are attacking the western city of Hama, according to local officials and a Britain-based war monitor.`\
 https://nytimes.com/2024/12/01/world/middleeast/syria-war-aleppo-rebels-government.html
-
-**What does the return of Texas-Texas A&M mean? Here's what I saw before, during and after**\
-`Scenes from the long-awaited renewal of the Texas-Texas A&M rivalry, which ended in Longhorns jubilation after days of Aggies anticipation.`\
-https://nytimes.com/athletic/5959705/2024/12/01/texas-longhorns-aggies-rivalry-kyle-field/
 
