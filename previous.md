@@ -1,3 +1,15 @@
+**Where is USC football headed under Lincoln Riley? The road foward is hazy**\
+`It’s on the staff to maximize the talent on the roster. Three years into the Riley era, that’s still a problem.`\
+https://nytimes.com/athletic/5959331/2024/11/30/usc-football-lincoln-riley-3/
+
+**Lloyd: Rivalry games emotional enough without planting flags. Winners must show class, too**\
+`The NCAA should fine teams and suspend players who attempt to denigrate emblems and logos. It has been a firestarter for years. `\
+https://nytimes.com/athletic/5959315/2024/11/30/college-football-flag-planting-rivalry-weekend/
+
+**Texas retains upper hand in Texas A&M rivalry, secures SEC title game trip**\
+`Texas used big plays from both of its big-name quarterbacks to take a halftime lead over Texas A&M.`\
+https://nytimes.com/athletic/5959174/2024/11/30/texas-longhorns-aggies-score-highlights-sec-championship/
+
 **Maple Leafs report cards: Good effort, but too-close-for-comfort result**\
 `The Maple Leafs held on for a 5-3 victory after going up 4-0 and allowing three goals in the third period to the Lightning.`\
 https://nytimes.com/athletic/5959282/2024/11/30/maple-leafs-lightning-grades-analysis/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5959189/2024/11/30/arizona-state-arizona-cam-skatte
 `Though some might see the price for Jiricek as a haul, the Wild got a player they've long coveted.
 `\
 https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
-
-**Trump Picks a Florida Sheriff as D.E.A. Administrator**\
-`The announcement of Sheriff Chad Chronister came after President-elect Donald J. Trump said that he would impose tariffs that would stay in place until Canada, Mexico and China halted the flow of drugs and migrants.`\
-https://nytimes.com/2024/11/30/us/politics/chad-chronister-dea.html
-
-**Texas retains upper hand in Texas A&M rivalry, secures SEC title game trip**\
-`Texas used big plays from both of its big-name quarterbacks to take a halftime lead over Texas A&M.`\
-https://nytimes.com/athletic/5959174/2024/11/30/texas-longhorns-aggies-score-highlights-sec-championship/
-
-**Ryan Day went all in on beating Michigan — except it when it mattered most**\
-`Ohio State brought back a ton of talent, invested in NIL and added key transfers with the goal of beating Michigan. Ryan Day failed again.`\
-https://nytimes.com/athletic/5959175/2024/11/30/ryan-day-ohio-state-michigan-losses/
 

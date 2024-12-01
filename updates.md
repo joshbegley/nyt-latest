@@ -1,3 +1,16 @@
+**Where is USC football headed under Lincoln Riley? The road foward is hazy**\
+`It’s on the staff to maximize the talent on the roster. Three years into the Riley era, that’s still a problem.`\
+https://nytimes.com/athletic/5959331/2024/11/30/usc-football-lincoln-riley-3/
+
+**Lloyd: Rivalry games emotional enough without planting flags. Winners must show class, too**\
+`The NCAA should fine teams and suspend players who attempt to denigrate emblems and logos. It has been a firestarter for years. `\
+https://nytimes.com/athletic/5959315/2024/11/30/college-football-flag-planting-rivalry-weekend/
+
+**'It's an investment': Wild content with price paid for David Jiricek**\
+`Though some might see the price for Jiricek as a haul, the Wild got a player they've long coveted.
+`\
+https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
+
 **'It's an investment': Wild content with price paid for David Jiricek**\
 `Though some might see the price for Jiricek as a haul, the Wild got a player they've long coveted.
 `\
