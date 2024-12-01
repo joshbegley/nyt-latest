@@ -1,3 +1,11 @@
+**Red Bulls advance to MLS Cup final with 1-0 win vs. Orlando City**\
+`The Red Bulls return to the MLS Cup for the first time since 2008.`\
+https://nytimes.com/athletic/5959275/2024/11/30/new-york-red-bulls-orlando-city-mls-eastern-conference-final-score/
+
+**Five Things to Know About Kash Patel, Trump’s Pick to Lead the F.B.I.**\
+`President-elect Donald J. Trump has long seen his bombastic national security operative as a political “enforcer.” But former colleagues question his fitness for the job.`\
+https://nytimes.com/2024/11/30/us/politics/kash-patel.html
+
 **Long shot ASU, championed by an overlooked star, deserves your attention**\
 `Like his team, Skattebo began the season as an incredible long shot. Also like his team, Skattebo has shown he belongs.`\
 https://nytimes.com/athletic/5959189/2024/11/30/arizona-state-arizona-cam-skattebo-heisman-big-12/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5959028/2024/11/30/david-jiricek-blue-jackets-trade
 **College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-projections-odds/
-
-**Miami upset at Syracuse propels Clemson into ACC title game**\
-`Syracuse’s first win over a top-10 opponent since 2017 shook up the ACC Championship Game matchup.`\
-https://nytimes.com/athletic/5958916/2024/11/30/miami-syracuse-clemson-smu-acc-championship/
-
-**Michigan's mastery over Ohio State and Ryan Day continues: 'We own you'**\
-`The Wolverines' mental edge over the Buckeyes is worth at least 14 points. Or maybe 21, which was the pregame point spread.`\
-https://nytimes.com/athletic/5959083/2024/11/30/michigan-ohio-state-ryan-day-sherrone-moore/
 
