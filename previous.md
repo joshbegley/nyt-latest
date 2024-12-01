@@ -1,9 +1,21 @@
+**Miami upset at Syracuse propels Clemson into ACC title game**\
+`Syracuse’s first win over a top-10 opponent since 2017 shook up the ACC Championship Game matchup.`\
+https://nytimes.com/athletic/5958916/2024/11/30/miami-syracuse-clemson-smu-acc-championship/
+
+**Michigan's mastery over Ohio State and Ryan Day continues: 'We own you'**\
+`Michigan’s mental edge over the Buckeyes is worth at least 14 points. Or maybe 21, which was the pregame point spread.`\
+https://nytimes.com/athletic/5959083/2024/11/30/michigans-ohio-state-ryan-day-sherrone-moore/
+
+**Rexrode: Tennessee isn’t just College Football Playoff-bound, it’s bound to be CFP trouble**\
+`Tennessee's defense has carried it through offensive lulls, but the Vols are improving, especially at the QB position. `\
+https://nytimes.com/athletic/5959056/2024/11/30/tennessee-vanderbilt-result-college-football-playoff/
+
 **Does Alabama have a Playoff case after beating Auburn? Key Iron Bowl takeaways**\
 `No. 13 Alabama beat Auburn 28-14 in the Iron Bowl Saturday, giving the Tide postseason hope while knocking Auburn out of bowl contention.`\
 https://nytimes.com/athletic/5958996/2024/11/30/alabama-auburn-iron-bowl-score-recap/
 
 **Canadiens need to digest a bad beat and not let it derail their positive process**\
-`The Canadiens are playing a winning style of hockey and the fact it is not always leading to wins needs to be secondary right now.`\
+`The Canadiens are playing a winning style of hockey, and the fact it is not always leading to wins needs to be secondary right now.`\
 https://nytimes.com/athletic/5958953/2024/11/30/canadiens-rangers-mike-matheson-kirby-dach/
 
 **Notre Dame holds off USC: Takeaways from a Playoff-clinching win for the Fighting Irish**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/11/30/us/politics/trump-replace-christopher-wray.html
 **NHL trade grades: David Jiricek deal is a poor return on investment for Blue Jackets**\
 `The main asset Columbus gets back is a 2025 first-rounder over Daemon Hunt, even if it seems likely it will be a late first-round pick.`\
 https://nytimes.com/athletic/5958993/2024/11/30/david-jiricek-trade-blue-jackets-wild-grades/
-
-**Commanders release Forbes, put Ekeler on IR in flurry of roster moves**\
-`Emmanuel Forbes is the third first-round selection released or traded by the new Commanders’ staff since August.`\
-https://nytimes.com/athletic/5958960/2024/11/30/commanders-roster-emmanuel-forbes-release/
-
-**Tax Preparers Charged in Scheme to Defraud Covid Relief of $65 Million**\
-`The preparers filed for pandemic-related tax credits on behalf of ineligible clients and then netted hefty filing fees, officials said.`\
-https://nytimes.com/2024/11/30/us/tax-preparers-fraud-covid-relief.html
-
-**South Carolina's Beamer: 'Name a player' who's done more than QB Sellers**\
-`Behind South Carolina's 'magic' quarterback, the Gamecocks are coming for the Playoff — even if it might be another year.`\
-https://nytimes.com/athletic/5958963/2024/11/30/south-carolina-clemson-lanorris-sellers/
 
