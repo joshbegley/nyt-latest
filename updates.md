@@ -1,3 +1,11 @@
+**Lawrence concussed after late hit, triggering fight between Texans, Jags**\
+`Sunday marked Lawrence's first game back since Week 9 as he recovered from a shoulder injury.`\
+https://nytimes.com/athletic/5960630/2024/12/01/trevor-lawrence-hit-azeez-al-shaair-texans/
+
+**Lions signing safety Jamal Adams to practice squad: Source**\
+`The signing comes with an understanding that Adams will be elevated to Detroit's active roster.`\
+https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
+
 **AP Top 25: Ohio State drops to No. 7, Miami to No. 14**\
 `The Big Ten (No. 1 Oregon vs. No. 3 Penn State) and SEC (No. 2 Texas vs. No. 5 Georgia) are set for top-five title matchups in the AP poll.`\
 https://nytimes.com/athletic/5960522/2024/12/01/ap-top-25-rankings-ohio-state-miami/

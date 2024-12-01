@@ -1,3 +1,7 @@
+**Lawrence concussed after late hit, triggering fight between Texans, Jags**\
+`Sunday marked Lawrence's first game back since Week 9 as he recovered from a shoulder injury.`\
+https://nytimes.com/athletic/5960630/2024/12/01/trevor-lawrence-hit-azeez-al-shaair-texans/
+
 **AP Top 25: Ohio State drops to No. 7, Miami to No. 14**\
 `The Big Ten (No. 1 Oregon vs. No. 3 Penn State) and SEC (No. 2 Texas vs. No. 5 Georgia) are set for top-five title matchups in the AP poll.`\
 https://nytimes.com/athletic/5960522/2024/12/01/ap-top-25-rankings-ohio-state-miami/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5960522/2024/12/01/ap-top-25-rankings-ohio-state-mi
 `Manchester City manager Pep Guardiola says he did not expect to hear “sacked in the morning” chants from Liverpool fans during his side’s 2-0 defeat at Anfield.`\
 https://nytimes.com/athletic/5960609/2024/12/01/pep-guardiola-anfield-six-liverpool-manchester-city/
 
-**Lions signing S Jamal Adams to practice squad: Source**\
+**Lions signing safety Jamal Adams to practice squad: Source**\
 `The signing comes with an understanding that Adams will be elevated to Detroit's active roster.`\
 https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5955206/2024/12/01/liverpool-man-city-premier-leagu
 **Republicans Stand Behind Trump’s Choice of Kash Patel to Lead F.B.I.**\
 `Several lawmakers expressed support on Sunday for the president-elect’s plan to install a loyalist who has vowed to use the position to exact revenge on adversaries.`\
 https://nytimes.com/2024/12/01/us/politics/trump-kash-patel-fbi-republicans.html
-
-**Purdue fires coach Ryan Walters after 66-0 thrashing to rival Indiana**\
-`Purdue has struggled mightily under Walters, compiling a 5-14 record and not finding any success.`\
-https://nytimes.com/athletic/5854543/2024/12/01/purdue-fires-ryan-walters/
 
