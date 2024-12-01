@@ -1,3 +1,11 @@
+**Trump Offers Massad Boulos Middle East Adviser Role**\
+`The announcement on Sunday was the second time this weekend that Mr. Trump offered an influential post to an in-law.`\
+https://nytimes.com/2024/12/01/us/politics/trump-massad-boulos-middle-east.html
+
+**Relatives of Subway Choking Victim Must Relive His Death Daily**\
+`In life, Jordan Neely’s family lost him to mental illness. After his death, his father and uncle have steeled themselves to attend the manslaughter trial of Daniel Penny each day.`\
+https://nytimes.com/2024/12/01/nyregion/subway-choking-jordan-neely-relatives.html
+
 **Stewart Mandel's 12-team Playoff projections after Week 14**\
 `Ohio State’s inexplicable home loss to Michigan and Miami’s loss at Syracuse certainly shook up the seeding heading into league title games.`\
 https://nytimes.com/athletic/5960482/2024/12/01/college-football-playoff-bracket-projections-week-14/
