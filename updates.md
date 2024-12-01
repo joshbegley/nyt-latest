@@ -1,3 +1,11 @@
+**Fiorentina-Inter suspended after Bove appears to collapse during Serie A game**\
+`The Fiorentina midfielder was taken to hospital after falling to the ground during the first half of the match.`\
+https://nytimes.com/athletic/5960393/2024/12/01/edoardo-bove-fiorentina-inter/
+
+**Ireland’s Main Parties Edge Out Sinn Féin, Early Election Results Show**\
+`At one level, the vote was an endorsement of continuity, but the stability in Ireland’s political center ground masked volatility on the fringes.`\
+https://nytimes.com/2024/12/01/world/europe/ireland-election-results.html
+
 **Nations Fail to Reach an Agreement on Plastic Pollution**\
 `Talks on the world’s first treaty to tackle plastic pollution will continue in coming months, delegates said.`\
 https://nytimes.com/2024/12/01/climate/united-nations-plastic-pollution.html
