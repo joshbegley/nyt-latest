@@ -1,3 +1,7 @@
+**Kash Patel Would Bring Bravado and Baggage to F.B.I. Role**\
+`President-elect Donald J. Trump’s choice to run the F.B.I. has a record in and out of government that is likely to raise questions during his Senate confirmation hearings.`\
+https://nytimes.com/2024/12/01/us/politics/kash-patel-bravado-baggage-fbi.html
+
 **Big Ten fines Ohio State, Michigan $100K each for postgame brawl**\
 `No players will receive individual discipline, although the conference could have doled out suspensions for postseason games.`\
 https://nytimes.com/athletic/5961212/2024/12/01/ohio-state-michigan-fight-fines-big-ten/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/5960819/2024/12/01/max-verstappen-qualifying-penalt
 https://nytimes.com/athletic/5961147/2024/12/01/nfl-week-13-scores-takeaways-chargers-russell-wilson-steelers/
 
 **Steelers force three turnovers, Wilson has career day in 44-38 win over Bengals: Key takeaways**\
-`Wilson posted the second-best performance of his career, while Burrow loses his third straight game with 300 yards and three touchdowns. `\
+`Wilson had the second-best passing performance of his career, while Burrow lost his third straight game with 300 yards and three touchdowns.`\
 https://nytimes.com/athletic/5960127/2024/12/01/steelers-bengals-score-result-takeaways/
 
 **F1's Qatar penalty drama will increase scrutiny on the FIA after recent upheaval**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960164/2024/12/01/seahawks-jets-score-result-takea
 **SEC vibes rankings: Who would deserve a fourth SEC Playoff bid?**\
 `Which SEC team should get a fourth College Football Playoff bid if the conference gets it?`\
 https://nytimes.com/athletic/5960893/2024/12/01/week-14-sec-rankings-college-football-playoff/
-
-**Oxford’s 2024 Word of the Year Is…**\
-`A slang term for supposed mental damage done by overconsumption of trivial online content triumphed over a shortlist that also included “lore,” “demure” and “slop.”`\
-https://nytimes.com/2024/12/01/arts/brain-rot-oxford-word.html
 

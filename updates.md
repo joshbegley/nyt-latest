@@ -1,3 +1,11 @@
+**Kash Patel Would Bring Bravado and Baggage to F.B.I. Role**\
+`President-elect Donald J. Trump’s choice to run the F.B.I. has a record in and out of government that is likely to raise questions during his Senate confirmation hearings.`\
+https://nytimes.com/2024/12/01/us/politics/kash-patel-bravado-baggage-fbi.html
+
+**Steelers force three turnovers, Wilson has career day in 44-38 win over Bengals: Key takeaways**\
+`Wilson had the second-best passing performance of his career, while Burrow lost his third straight game with 300 yards and three touchdowns.`\
+https://nytimes.com/athletic/5960127/2024/12/01/steelers-bengals-score-result-takeaways/
+
 **Big Ten fines Ohio State, Michigan $100K each for postgame brawl**\
 `No players will receive individual discipline, although the conference could have doled out suspensions for postseason games.`\
 https://nytimes.com/athletic/5961212/2024/12/01/ohio-state-michigan-fight-fines-big-ten/
