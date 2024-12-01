@@ -1,3 +1,11 @@
+**Ryan Day went all in on beating Michigan — except it when it mattered most**\
+`Ohio State brought back a ton of talent, invested in NIL and added key transfers with the goal of beating Michigan. Ryan Day failed again.`\
+https://nytimes.com/athletic/5959175/2024/11/30/ryan-day-ohio-state-michigan-losses/
+
+**College football rivalry weekend heats up with fights, chaotic flag plants**\
+`Ohio State-Michigan, Auburn-Alabama and UNC-NC State were among the heated rivalry games that featured skirmishes.`\
+https://nytimes.com/athletic/5959050/2024/11/30/fights-flag-plant-ohio-state-michigan-auburn-alabama/
+
 **Portzline: David Jiricek's skating concerns were enough for Blue Jackets to trade him**\
 `Blue Jackets general manager Don Waddell was wise to move Jiricek now, before his inability to crack the NHL became a bigger concern.`\
 https://nytimes.com/athletic/5959028/2024/11/30/david-jiricek-blue-jackets-trade/
