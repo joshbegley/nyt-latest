@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-projections-odds/
+
 **Miami upset at Syracuse propels Clemson into ACC title game**\
 `Syracuse’s first win over a top-10 opponent since 2017 shook up the ACC Championship Game matchup.`\
 https://nytimes.com/athletic/5958916/2024/11/30/miami-syracuse-clemson-smu-acc-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958979/2024/11/30/penn-state-big-ten-championship-
 **Trump Says He Will Nominate Kash Patel to Run F.B.I.**\
 `President-elect Donald J. Trump turned to a firebrand loyalist to become director of the bureau, which he sees as part of a ‘deep state’ conspiracy against him.`\
 https://nytimes.com/2024/11/30/us/politics/trump-replace-christopher-wray.html
-
-**NHL trade grades: David Jiricek deal is a poor return on investment for Blue Jackets**\
-`The main asset Columbus gets back is a 2025 first-rounder over Daemon Hunt, even if it seems likely it will be a late first-round pick.`\
-https://nytimes.com/athletic/5958993/2024/11/30/david-jiricek-trade-blue-jackets-wild-grades/
 

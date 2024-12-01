@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-projections-odds/
+
 **Miami upset at Syracuse propels Clemson into ACC title game**\
 `Syracuse’s first win over a top-10 opponent since 2017 shook up the ACC Championship Game matchup.`\
 https://nytimes.com/athletic/5958916/2024/11/30/miami-syracuse-clemson-smu-acc-championship/
