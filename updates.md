@@ -123,6 +123,11 @@ https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-ja
 `\
 https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
 
+**'It's an investment': Wild content with price paid for David Jiricek**\
+`Though some might see the price for Jiricek as a haul, the Wild got a player they've long coveted.
+`\
+https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
+
 **Maple Leafs report cards: Good effort, but too-close-for-comfort result**\
 `The Maple Leafs held on for a 5-3 victory after going up 4-0 and allowing three goals in the third period to the Lightning.`\
 https://nytimes.com/athletic/5959282/2024/11/30/maple-leafs-lightning-grades-analysis/
