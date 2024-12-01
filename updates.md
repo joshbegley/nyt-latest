@@ -1,3 +1,15 @@
+**The Briefing: Liverpool 2 Man City 0 - Slot's side dominate struggling City to go nine points clear**\
+`Our writers break down the action from Anfield as Salah again proves crucial for Liverpool and City's poor run continues`\
+https://nytimes.com/athletic/5955206/2024/12/01/liverpool-man-city-premier-league/
+
+**Chaotic F1 Qatar GP ends with Max Verstappen win, sets up season finale showdown**\
+`Lando Norris' penalty up-ended McLaren's title bid and sets up a last-ditch fight for the constructors' championship in Abu Dhabi.`\
+https://nytimes.com/athletic/5960354/2024/12/01/max-verstappen-wins-qatar-gp-f1-championship-mclaren-ferrari/
+
+**Fiorentina-Inter abandoned after Bove appears to collapse during Serie A game**\
+`The Fiorentina midfielder was taken to hospital after falling to the ground during the first half of the match.`\
+https://nytimes.com/athletic/5960393/2024/12/01/edoardo-bove-fiorentina-inter/
+
 **Republicans Stand Behind Trump’s Choice of Kash Patel to Lead F.B.I.**\
 `Several lawmakers expressed support on Sunday for the president-elect’s plan to install a loyalist who has vowed to use the position to exact revenge on adversaries.`\
 https://nytimes.com/2024/12/01/us/politics/trump-kash-patel-fbi-republicans.html
