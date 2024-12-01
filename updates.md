@@ -1,3 +1,7 @@
+**Michigan's mastery over Ohio State and Ryan Day continues: 'We own you'**\
+`Michigan’s mental edge over the Buckeyes is worth at least 14 points. Or maybe 21, which was the pregame point spread.`\
+https://nytimes.com/athletic/5959083/2024/11/30/michigan-ohio-state-ryan-day-sherrone-moore/
+
 **College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/11/30/college-football-playoff-projections-odds/

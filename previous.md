@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5958916/2024/11/30/miami-syracuse-clemson-smu-acc-c
 
 **Michigan's mastery over Ohio State and Ryan Day continues: 'We own you'**\
 `Michigan’s mental edge over the Buckeyes is worth at least 14 points. Or maybe 21, which was the pregame point spread.`\
-https://nytimes.com/athletic/5959083/2024/11/30/michigans-ohio-state-ryan-day-sherrone-moore/
+https://nytimes.com/athletic/5959083/2024/11/30/michigan-ohio-state-ryan-day-sherrone-moore/
 
 **Rexrode: Tennessee isn’t just College Football Playoff-bound, it’s bound to be CFP trouble**\
 `Tennessee's defense has carried it through offensive lulls, but the Vols are improving, especially at the QB position. `\
