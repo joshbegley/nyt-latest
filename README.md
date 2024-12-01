@@ -1,3 +1,7 @@
+**Marshall Brickman, Woody Allen’s Co-Writer on Hit Films, Dies at 85**\
+`The duo won an Oscar for “Annie Hall.” Mr. Brickman went on to write Broadway shows, including “Jersey Boys,” and make movies of his own.`\
+https://nytimes.com/2024/12/01/movies/marshall-brickman-dead.html
+
 **LA Galaxy outlast Seattle Sounders to earn first MLS Cup berth since 2014**\
 `LA will now host MLS Cup next Saturday against the New York Red Bulls.`\
 https://nytimes.com/athletic/5959519/2024/12/01/la-galaxy-seattle-sounders-results-score/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5959323/2024/12/01/lou-carnesecca-death-st-johns/
 **France’s Prime Minister Is on the Block, and Marine Le Pen Holds the Blade**\
 `The end of Michel Barnier’s government looks inevitable, even imminent, and would add to the country’s political malaise. The only question seems to be: How long he can last?`\
 https://nytimes.com/2024/12/01/world/europe/france-barnier-prime-minister-le-pen.html
-
-**Quote of the Day: Bittersweet Homecoming for Displaced Lebanese**\
-`Quotation of the Day for Sunday, December 1, 2024.`\
-https://nytimes.com/2024/12/01/pageoneplus/quote-of-the-day-bittersweet-homecoming-for-displaced-lebanese.html
 
