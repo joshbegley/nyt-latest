@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
 
+**'It's an investment': Wild content with price paid for David Jiricek**\
+`Though some might see the price for Jiricek as a haul, the Wild got a player they've long coveted.
+`\
+https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
+
 **Texas retains upper hand in Texas A&M rivalry, secures SEC title game trip**\
 `Texas used big plays from both of its big-name quarterbacks to take a halftime lead over Texas A&M.`\
 https://nytimes.com/athletic/5959174/2024/11/30/texas-longhorns-aggies-score-highlights-sec-championship/
