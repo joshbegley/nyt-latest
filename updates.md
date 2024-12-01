@@ -1,3 +1,7 @@
+**Manning, Ewers each provide TDs as Texas leads Texas A&M at halftime**\
+`Texas used big plays from both of its big-name quarterbacks to take a halftime lead over Texas A&M.`\
+https://nytimes.com/athletic/5959174/2024/11/30/texas-longhorns-aggies-score-highlights-sec-championship/
+
 **Ryan Day went all in on beating Michigan — except it when it mattered most**\
 `Ohio State brought back a ton of talent, invested in NIL and added key transfers with the goal of beating Michigan. Ryan Day failed again.`\
 https://nytimes.com/athletic/5959175/2024/11/30/ryan-day-ohio-state-michigan-losses/
