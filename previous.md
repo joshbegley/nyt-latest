@@ -1,3 +1,7 @@
+**The Lake-Effect Snowstorm Enveloping the Northeast and Midwest: What We Know**\
+`The storm dumped several feet of snow and disrupted post-Thanksgiving travel in the Great Lakes states and New York. More snow is expected in the coming days.`\
+https://nytimes.com/2024/12/01/us/lake-effect-snowstorm-weather-what-to-know.html
+
 **'Our chemistry has been incredible': Giannis Antetokounmpo, Damian Lillard key Bucks' win streak**\
 `For the third time, Antetokounmpo and Lillard had 25-plus points and 10-plus assists in the same game, the most by any duo in NBA history.`\
 https://nytimes.com/athletic/5959764/2024/12/01/milwaukee-bucks-giannis-antetokounmpo-damian-lillard/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/dining/sardine-pasta-puttanesca-more-recipes.html
 **The Pulse: Upset of the year! And a lesson**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5960119/2024/12/01/ohio-state-michigan-ryan-day-the-pulse/
-
-**Lowetide: Which defencemen should the Oilers target in a trade?**\
-`Depth on defence is a strong need for Edmonton if the goal of winning the Stanley Cup is to be realized.`\
-https://nytimes.com/athletic/5957782/2024/12/01/oilers-defence-trade-targets-2024/
 

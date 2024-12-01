@@ -1,3 +1,7 @@
+**The Lake-Effect Snowstorm Enveloping the Northeast and Midwest: What We Know**\
+`The storm dumped several feet of snow and disrupted post-Thanksgiving travel in the Great Lakes states and New York. More snow is expected in the coming days.`\
+https://nytimes.com/2024/12/01/us/lake-effect-snowstorm-weather-what-to-know.html
+
 **'Our chemistry has been incredible': Giannis Antetokounmpo, Damian Lillard key Bucks' win streak**\
 `For the third time, Antetokounmpo and Lillard had 25-plus points and 10-plus assists in the same game, the most by any duo in NBA history.`\
 https://nytimes.com/athletic/5959764/2024/12/01/milwaukee-bucks-giannis-antetokounmpo-damian-lillard/
