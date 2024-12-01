@@ -1,3 +1,15 @@
+**Kirk Cousins tosses 4 INTs as Chargers beat Falcons 17-13: Takeaways**\
+`The Chargers scored 10 points off turnovers in the second four-interception game of Kirk Cousins' 13-year NFL career.`\
+https://nytimes.com/athletic/5960116/2024/12/01/chargers-falcons-score-result-takeaways/
+
+**FIU firing Mike MacIntyre after third straight 4-8 season: Source**\
+`The news comes 10 days after a former player alleged that MacIntyre threw a chair that hit a player during halftime of a 2022 game.`\
+https://nytimes.com/athletic/5943881/2024/12/01/fiu-mike-macintyre-firing/
+
+**Jerry Mack hired as second Kennesaw State head coach**\
+`Mack is the second coach in Kennesaw State football history, following Brian Bohannon.`\
+https://nytimes.com/athletic/5960883/2024/12/01/jerry-mack-hired-kennesaw-state-football/
+
 **Real Madrid 2 Getafe 0: Mbappe heals, the Bellingham show and Garcia's role**\
 `After the disappointment of the midweek defeat to Liverpool, Madrid were back to winning ways in La Liga`\
 https://nytimes.com/athletic/5960761/2024/12/01/real-madrid-bellingham-mbappe/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/01/us/politics/trump-chad-chronister-dea.html
 **Peter Westbrook, Pathbreaking Olympic Fencer, Dies at 72**\
 `As the first African American to win a medal in a sport long dominated by white Europeans, he was compared to Jackie Robinson and Arthur Ashe.`\
 https://nytimes.com/2024/12/01/obituaries/peter-westbrook-dead.html
-
-**Stowaway on Flight to Paris Disrupts a Return Flight to New York**\
-`The same passenger who stowed away on a Delta Air Lines flight to Paris caused a disturbance on a flight to New York on Saturday, an aviation official said.`\
-https://nytimes.com/2024/12/01/world/europe/stowaway-return-cdg-jfk-airport.html
-
-**C.E.O. of Stellantis, Owner of Chrysler and Jeep, Resigns**\
-`The company, facing slumping sales, announced that Carlos Tavares would step down immediately and that a search for a new chief was underway.`\
-https://nytimes.com/2024/12/01/business/stellantis-ceo-resigns.html
-
-**Wisconsin exit interview: Leon Lowery on decision to transfer and thoughts on Badgers' future**\
-`Lowery started 11 games at linebacker in his one season at Wisconsin but failed to have as big of an impact as expected. `\
-https://nytimes.com/athletic/5960745/2024/12/01/wisconsin-leon-lowery-transfer-linebacker/
 
