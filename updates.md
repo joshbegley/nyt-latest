@@ -1,3 +1,7 @@
+**Long a ‘Crown Jewel’ of Government, N.I.H. Is Now a Target**\
+`The agency long benefited from broad bipartisan support. But Republican criticism has intensified, and new choices for top health posts hope to upend the organization.`\
+https://nytimes.com/2024/12/01/health/nih-trump-kennedy-bhattacharya.html
+
 **Review: This Is the First Must-See of the Met Opera’s Season**\
 `“Die Frau Ohne Schatten,” a dense ode to fertility, may not sound appealing at first. But in this performance, the fairy tale comes movingly to life.`\
 https://nytimes.com/2024/12/01/arts/music/strauss-frau-ohne-schatten-met-opera.html
