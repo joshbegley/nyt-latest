@@ -1,3 +1,15 @@
+**Fighting Rages in Syria as Rebels Advance**\
+`Forces opposed to President Bashar al-Assad have captured the Aleppo airport and are attacking the western city of Hama, according to local officials and a Britain-based war monitor.`\
+https://nytimes.com/2024/12/01/world/middleeast/syria-war-aleppo-rebels-government.html
+
+**What does the return of Texas-Texas A&M mean? Here's what I saw before, during and after**\
+`Scenes from the long-awaited renewal of the Texas-Texas A&M rivalry, which ended in Longhorns jubilation after days of Aggies anticipation.`\
+https://nytimes.com/athletic/5959705/2024/12/01/texas-longhorns-aggies-rivalry-kyle-field/
+
+**Kane out of Bayern's DFB-Pokal match against Leverkusen with thigh injury**\
+`Harry Kane will miss Bayern Munich&#8217;s DFB-Pokal match against Bayer Leverkusen on Tuesday with a thigh muscle injury.`\
+https://nytimes.com/athletic/5959757/2024/12/01/harry-kane-injury-update-bayern-munich/
+
 **SJSU volleyball's controversial season ends with loss in championship**\
 `The Spartans lost to top-seeded Colorado State in four sets.`\
 https://nytimes.com/athletic/5959244/2024/12/01/san-jose-state-volleyball-mountain-west-tournament/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/01/opinion/trump-barstool-young-men.html
 **Wordle Review No. 1,262**\
 `Scroll down for hints and conversation about the puzzle for Monday, Dec. 2, 2024.`\
 https://nytimes.com/2024/12/01/crosswords/wordle-review-1262.html
-
-**Republicans Would Regret Letting Elon Musk Ax Weather Forecasting**\
-`Everyone benefits from government weather forecasting. Republicans have the chance to make it better.`\
-https://nytimes.com/2024/12/01/opinion/doge-musk-ramaswamy-noaa.html
-
-**‘I Was a Stranger and You Invited Me In’**\
-`I won’t forget the first time I volunteered at Room in the Inn.`\
-https://nytimes.com/2024/12/01/opinion/charity-holiday-gift-homeless.html
-
-**Mary Is the Bennet Sister We Need**\
-`Jane Austen, one of the most beloved novelists in the English language, must have had some sympathy for a girl who liked a good book.`\
-https://nytimes.com/2024/12/01/opinion/pride-prejudice-jane-austen.html
 
