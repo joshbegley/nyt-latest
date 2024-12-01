@@ -1,3 +1,8 @@
+**Maple Leafs' Nick Robertson gets monkey off his back — and hopes it's only the beginning**\
+`The 23-year-old left winger snapped his 12-game goal drought in the Maple Leafs' 5-3 win over the Lightning.
+`\
+https://nytimes.com/athletic/5959424/2024/11/30/maple-leafs-lightning-nick-robertson-goal/
+
 **Lou Carnesecca, St. John’s Basketball Coach Who Notched 526 Wins, Dies at 99**\
 `Known for his quick wit and garish sweaters, Carnesecca took the New York City university to national basketball prominence.`\
 https://nytimes.com/2024/11/30/sports/basketball/lou-carnesecca-dead.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/5959275/2024/11/30/new-york-red-bulls-orlando-city-
 **Five Things to Know About Kash Patel, Trump’s Pick to Lead the F.B.I.**\
 `President-elect Donald J. Trump has long seen his bombastic national security operative as a political “enforcer.” But former colleagues question his fitness for the job.`\
 https://nytimes.com/2024/11/30/us/politics/kash-patel.html
-
-**Long shot ASU, championed by an overlooked star, deserves your attention**\
-`Like his team, Skattebo began the season as an incredible long shot. Also like his team, Skattebo has shown he belongs.`\
-https://nytimes.com/athletic/5959189/2024/11/30/arizona-state-arizona-cam-skattebo-heisman-big-12/
 
