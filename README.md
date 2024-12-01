@@ -1,3 +1,7 @@
+**Manning, Ewers each provide TDs as Texas leads Texas A&M at halftime**\
+`Texas used big plays from both of its big-name quarterbacks to take a halftime lead over Texas A&M.`\
+https://nytimes.com/athletic/5959174/2024/11/30/texas-longhorns-aggies-score-highlights-sec-championship/
+
 **Ryan Day went all in on beating Michigan — except it when it mattered most**\
 `Ohio State brought back a ton of talent, invested in NIL and added key transfers with the goal of beating Michigan. Ryan Day failed again.`\
 https://nytimes.com/athletic/5959175/2024/11/30/ryan-day-ohio-state-michigan-losses/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958996/2024/11/30/alabama-auburn-iron-bowl-score-r
 **Canadiens need to digest a bad beat and not let it derail their positive process**\
 `The Canadiens are playing a winning style of hockey, and the fact it is not always leading to wins needs to be secondary right now.`\
 https://nytimes.com/athletic/5958953/2024/11/30/canadiens-rangers-mike-matheson-kirby-dach/
-
-**Notre Dame holds off USC: Takeaways from a Playoff-clinching win for the Fighting Irish**\
-`USC made Notre Dame sweat, but the Irish made big plays at the right time and will end the regular season with 10 consecutive wins. `\
-https://nytimes.com/athletic/5958950/2024/11/30/notre-dame-usc-college-football-playoff/
 
