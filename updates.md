@@ -1,3 +1,7 @@
+**Real Madrid 2 Getafe 0: Mbappe heals, the Bellingham show and Garcia's role**\
+`After the disappointment of the midweek defeat to Liverpool, Madrid were back to winning ways in La Liga`\
+https://nytimes.com/athletic/5960761/2024/12/01/real-madrid-bellingham-mbappe/
+
 **Temple expected to hire Sam Houston's K.C. Keeler as next coach**\
 `The 65-year-old Keeler began his head coaching career at Division III Rowan in New Jersey.`\
 https://nytimes.com/athletic/5960928/2024/12/01/temple-football-kc-keeler-head-coach/
