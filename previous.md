@@ -1,3 +1,7 @@
+**Long shot ASU, championed by an overlooked star, deserves your attention**\
+`Like his team, Skattebo began the season as an incredible long shot. Also like his team, Skattebo has shown he belongs.`\
+https://nytimes.com/athletic/5959189/2024/11/30/arizona-state-arizona-cam-skattebo-heisman-big-12/
+
 **'It's an investment': Wild content with price paid for David Jiricek**\
 `While some may see the price for Jiricek as a haul, the Wild got a player they've long coveted.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5958916/2024/11/30/miami-syracuse-clemson-smu-acc-c
 **Michigan's mastery over Ohio State and Ryan Day continues: 'We own you'**\
 `The Wolverines' mental edge over the Buckeyes is worth at least 14 points. Or maybe 21, which was the pregame point spread.`\
 https://nytimes.com/athletic/5959083/2024/11/30/michigan-ohio-state-ryan-day-sherrone-moore/
-
-**Rexrode: Tennessee isn’t just College Football Playoff-bound, it’s bound to be CFP trouble**\
-`Tennessee's defense has carried it through offensive lulls, but the Vols are improving, especially at the QB position. `\
-https://nytimes.com/athletic/5959056/2024/11/30/tennessee-vanderbilt-result-college-football-playoff/
 

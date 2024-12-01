@@ -1,3 +1,12 @@
+**Long shot ASU, championed by an overlooked star, deserves your attention**\
+`Like his team, Skattebo began the season as an incredible long shot. Also like his team, Skattebo has shown he belongs.`\
+https://nytimes.com/athletic/5959189/2024/11/30/arizona-state-arizona-cam-skattebo-heisman-big-12/
+
+**'It's an investment': Wild content with price paid for David Jiricek**\
+`While some may see the price for Jiricek as a haul, the Wild got a player they've long coveted.
+`\
+https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
+
 **'It's an investment': Wild content with price paid for David Jiricek**\
 `While some may see the price for Jiricek as a haul, the Wild got a player they've long coveted.
 `\
