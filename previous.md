@@ -1,3 +1,11 @@
+**Oxford’s 2024 Word of the Year Is…**\
+`A slang term for supposed mental damage done by overconsumption of trivial online content triumphed over a shortlist that also included “lore,” “demure” and “slop.”`\
+https://nytimes.com/2024/12/01/arts/brain-rot-oxford-word.html
+
+**Biden’s Visit to Africa Will Focus on History and Economic Hope**\
+`In Angola on likely his last overseas trip in office, the president will tour a slavery museum and spotlight a rail corridor that is part of his administration’s strategy in the region.`\
+https://nytimes.com/2024/12/01/us/politics/biden-africa-angola-economic-strategy.html
+
 **Aaron Jones' late TD lifts Vikings past Cardinals 23-22: Takeaways**\
 `Justin Jefferson crosses 1,000 receiving yards for the fifth straight season and joins an elite club to do so in his first five years.`\
 https://nytimes.com/athletic/5960143/2024/12/01/cardinals-vikings-score-result-takeaways/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5960761/2024/12/01/real-madrid-bellingham-mbappe/
 **Temple expected to hire Sam Houston's K.C. Keeler as next coach**\
 `The 65-year-old Keeler began his head coaching career at Division III Rowan in New Jersey.`\
 https://nytimes.com/athletic/5960928/2024/12/01/temple-football-kc-keeler-head-coach/
-
-**West Virginia fires coach Neal Brown after 6-6 season**\
-`Since his arrival in Morgantown in 2019, Brown has helped the team to a 37-35 overall record but is 25-28 in the Big 12 over that span.`\
-https://nytimes.com/athletic/5958530/2024/12/01/neal-brown-fired-west-virginia-football-news/
-
-**Monday Briefing: Rebels Advance in Syria**\
-`Plus, the vast network of undersea internet cables.`\
-https://nytimes.com/2024/12/01/briefing/syria-trump-fbi-mexico.html
 
