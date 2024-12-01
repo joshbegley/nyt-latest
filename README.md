@@ -1,3 +1,7 @@
+**Alabama's Playoff fate is out of its hands. How should Kalen DeBoer's debut be judged?**\
+`Beating Auburn gave Alabama a satisfying end to an up-and-down regular season under Kalen DeBoer. What's next? It's not up to the Tide.`\
+https://nytimes.com/athletic/5959364/2024/12/01/alabama-iron-bowl-auburn-playoff-deboer/
+
 **A Power Vacuum in Gaza Could Empower Warlords and Gangs**\
 `Hamas’s weakened position could leave the territory without any governing institutions.`\
 https://nytimes.com/2024/12/01/world/middleeast/a-power-vacuum-in-gaza-could-empower-warlords-and-gangs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/insider/jfk-assassination-copy-desk.html
 **Giant Redheaded Centipedes Are Venom Mixologists**\
 `The arthropods can tailor their toxins depending on whether they are hunting prey or defending themselves from predators, according to a new study.`\
 https://nytimes.com/2024/12/01/science/giant-centipede-venom.html
-
-**A Second Trump Term Poses a Crucial Test of the Senate’s Independence**\
-`President-elect Donald J. Trump is threatening to challenge the institution’s historic role, and the Constitution, with his prospective nominees and threats to push the boundaries of executive authority.`\
-https://nytimes.com/2024/12/01/us/politics/trump-senate-independence.html
 
