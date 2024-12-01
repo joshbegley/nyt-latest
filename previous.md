@@ -1,3 +1,19 @@
+**Does Alabama have a Playoff case after beating Auburn? Key Iron Bowl takeaways**\
+`No. 13 Alabama beat Auburn 28-14 in the Iron Bowl Saturday, giving the Tide postseason hope while knocking Auburn out of bowl contention.`\
+https://nytimes.com/athletic/5958996/2024/11/30/alabama-auburn-iron-bowl-score-recap/
+
+**Canadiens need to digest a bad beat and not let it derail their positive process**\
+`The Canadiens are playing a winning style of hockey and the fact it is not always leading to wins needs to be secondary right now.`\
+https://nytimes.com/athletic/5958953/2024/11/30/canadiens-rangers-mike-matheson-kirby-dach/
+
+**Notre Dame holds off USC: Takeaways from a Playoff-clinching win for the Fighting Irish**\
+`USC made Notre Dame sweat, but the Irish made big plays at the right time and will end the regular season with 10 consecutive wins. `\
+https://nytimes.com/athletic/5958950/2024/11/30/notre-dame-usc-college-football-playoff/
+
+**A College Volleyball Team’s Season in the Spotlight Comes to an End**\
+`The San Jose State women’s team, which has a transgender player, lost to the tournament favorite Colorado State, concluding a season that transcended sports.`\
+https://nytimes.com/2024/11/30/us/transgender-san-jose-state-volleyball.html
+
 **Penn State to play for Big Ten title after handling Maryland, Ohio State loss: Takeaways**\
 `After beating Maryland, Penn State has a chance to prove this team can punch up and hang with the best team in the country.`\
 https://nytimes.com/athletic/5958979/2024/11/30/penn-state-big-ten-championship-oregon-maryland/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/11/30/us/tax-preparers-fraud-covid-relief.html
 **South Carolina's Beamer: 'Name a player' who's done more than QB Sellers**\
 `Behind South Carolina's 'magic' quarterback, the Gamecocks are coming for the Playoff — even if it might be another year.`\
 https://nytimes.com/athletic/5958963/2024/11/30/south-carolina-clemson-lanorris-sellers/
-
-**Jacob Trouba's fight, Kaapo Kakko's late goal and a better start: 6 Rangers takeaways**\
-`The Rangers gave the dressing room, and perhaps management, an exhale-worthy 4-3 win against Montreal.`\
-https://nytimes.com/athletic/5958894/2024/11/30/rangers-jacob-trouba-kaapo-kakko-takeaways/
-
-**Drive Around the Block**\
-`John Lieb makes a nice Sunday debut.`\
-https://nytimes.com/2024/11/30/crosswords/daily-puzzle-2024-12-01.html
-
-**Heavy Snowfall Blankets Parts of the Great Lakes Region**\
-`States braced for more whiteout conditions in the coming days as a lake-effect storm dropped several feet of snow in parts of the region by the early weekend.`\
-https://nytimes.com/video/weather/100000009852706/great-lakes-snow-storm.html
-
-**Blue Jackets trade David Jiricek to Wild for Daemon Hunt, draft picks**\
-`Jiricek, 21, was selected with the No. 6 pick in the 2022 NHL Draft but was unable to grab a regular spot in the Blue Jackets lineup.`\
-https://nytimes.com/athletic/5953370/2024/11/30/david-jiricek-trade-blue-jackets-wild/
 

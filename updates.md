@@ -1,3 +1,19 @@
+**Does Alabama have a Playoff case after beating Auburn? Key Iron Bowl takeaways**\
+`No. 13 Alabama beat Auburn 28-14 in the Iron Bowl Saturday, giving the Tide postseason hope while knocking Auburn out of bowl contention.`\
+https://nytimes.com/athletic/5958996/2024/11/30/alabama-auburn-iron-bowl-score-recap/
+
+**Canadiens need to digest a bad beat and not let it derail their positive process**\
+`The Canadiens are playing a winning style of hockey and the fact it is not always leading to wins needs to be secondary right now.`\
+https://nytimes.com/athletic/5958953/2024/11/30/canadiens-rangers-mike-matheson-kirby-dach/
+
+**Notre Dame holds off USC: Takeaways from a Playoff-clinching win for the Fighting Irish**\
+`USC made Notre Dame sweat, but the Irish made big plays at the right time and will end the regular season with 10 consecutive wins. `\
+https://nytimes.com/athletic/5958950/2024/11/30/notre-dame-usc-college-football-playoff/
+
+**A College Volleyball Team’s Season in the Spotlight Comes to an End**\
+`The San Jose State women’s team, which has a transgender player, lost to the tournament favorite Colorado State, concluding a season that transcended sports.`\
+https://nytimes.com/2024/11/30/us/transgender-san-jose-state-volleyball.html
+
 **Heavy Snowfall Blankets Parts of the Great Lakes Region**\
 `States braced for more whiteout conditions in the coming days as a lake-effect storm dropped several feet of snow in parts of the region by the early weekend.`\
 https://nytimes.com/video/weather/100000009852706/great-lakes-snow-storm.html
