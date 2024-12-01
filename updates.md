@@ -1,3 +1,7 @@
+**Georgia's Julian Humphrey to enter transfer portal: What it means for Bulldogs**\
+`This isn’t the first time Humphrey has announced plans to enter the portal. He did so during last year’s winter window.`\
+https://nytimes.com/athletic/5960674/2024/12/01/julian-humphrey-transfer-portal-georgia-football/
+
 **Lawrence concussed after late hit, triggering fight between Texans, Jags**\
 `Sunday marked Lawrence's first game back since Week 9 as he recovered from a shoulder injury.`\
 https://nytimes.com/athletic/5960630/2024/12/01/trevor-lawrence-hit-azeez-al-shaair-texans/
