@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/01/arts/brain-rot-oxford-word.html
 https://nytimes.com/2024/12/01/us/politics/biden-africa-angola-economic-strategy.html
 
 **Aaron Jones' late TD lifts Vikings past Cardinals 23-22: Takeaways**\
-`Justin Jefferson crosses 1,000 receiving yards for the fifth straight season and joins an elite club to do so in his first five years.`\
+`Justin Jefferson crossed 1,000 receiving yards for the fifth straight season, joining an elite club in the process.`\
 https://nytimes.com/athletic/5960143/2024/12/01/cardinals-vikings-score-result-takeaways/
 
 **Jayden Daniels, Commanders pick up 42-19 win against Titans: Takeaways**\
