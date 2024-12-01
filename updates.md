@@ -1,3 +1,11 @@
+**Pittsburgh, Nebraska among top regional seeds in NCAA volleyball tournament**\
+`The national championship game will be played on Dec. 22 in Louisville and televised by ABC.`\
+https://nytimes.com/athletic/5961258/2024/12/01/ncaa-womens-volleyball-tournament-regional-seeds/
+
+**NC State wide receiver KC Concepcion to enter transfer portal**\
+`In his two seasons at NC State, Concepcion caught 125 balls for 1,305 yards and 16 touchdowns.`\
+https://nytimes.com/athletic/5961219/2024/12/01/kevin-kc-concepcion-nc-state-transfer-portal/
+
 **NFL Week 13 inactives and fantasy tips: Brock Purdy active, Keon Coleman out for SNF**\
 `Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/5956931/2024/12/01/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/

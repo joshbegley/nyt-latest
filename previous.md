@@ -1,3 +1,11 @@
+**Pittsburgh, Nebraska among top regional seeds in NCAA volleyball tournament**\
+`The national championship game will be played on Dec. 22 in Louisville and televised by ABC.`\
+https://nytimes.com/athletic/5961258/2024/12/01/ncaa-womens-volleyball-tournament-regional-seeds/
+
+**NC State wide receiver KC Concepcion to enter transfer portal**\
+`In his two seasons at NC State, Concepcion caught 125 balls for 1,305 yards and 16 touchdowns.`\
+https://nytimes.com/athletic/5961219/2024/12/01/kevin-kc-concepcion-nc-state-transfer-portal/
+
 **NFL Week 13 inactives and fantasy tips: Brock Purdy active, Keon Coleman out for SNF**\
 `Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/5956931/2024/12/01/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5960819/2024/12/01/max-verstappen-qualifying-penalt
 **NFL Week 13 takeaways: Are Chargers a Super Bowl threat? Is Russell Wilson the Steelers’ long-term answer?**\
 `Plus, what to make of good teams’ close wins over bad opponents.`\
 https://nytimes.com/athletic/5961147/2024/12/01/nfl-week-13-scores-takeaways-chargers-russell-wilson-steelers/
-
-**Steelers force three turnovers, Wilson has career day in 44-38 win over Bengals: Key takeaways**\
-`Wilson had the second-best passing performance of his career, while Burrow lost his third straight game with 300 yards and three touchdowns.`\
-https://nytimes.com/athletic/5960127/2024/12/01/steelers-bengals-score-result-takeaways/
-
-**F1's Qatar penalty drama will increase scrutiny on the FIA after recent upheaval**\
-`After another F1 race where penalties influenced the outcome (and potentially a title), focus returns to the sport's governing body.`\
-https://nytimes.com/athletic/5960926/2024/12/01/f1-qatar-gp-penalties-fia-norris-verstappen-russell/
 
