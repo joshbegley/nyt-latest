@@ -1,3 +1,7 @@
+**LA Galaxy outlast Seattle Sounders to earn first MLS Cup berth since 2014**\
+`LA will now host MLS Cup next Saturday against the New York Red Bulls.`\
+https://nytimes.com/athletic/5959519/2024/12/01/la-galaxy-seattle-sounders-results-score/
+
 **Jose Sa, some angry Wolves fans, and an incredibly fraught afternoon at Molineux**\
 `Goalkeeper Jose Sa remonstrated with angry supporters during a 4-2 defeat to Bournemouth that life at Molineux remains incredibly fraught`\
 https://nytimes.com/athletic/5958756/2024/12/01/wolves-bournemouth-jose-sa-fan/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/world/europe/france-barnier-prime-minister-le-pen
 **Quote of the Day: Bittersweet Homecoming for Displaced Lebanese**\
 `Quotation of the Day for Sunday, December 1, 2024.`\
 https://nytimes.com/2024/12/01/pageoneplus/quote-of-the-day-bittersweet-homecoming-for-displaced-lebanese.html
-
-**Mexican Cartels Lure Chemistry Students to Make Fentanyl**\
-`Criminals turn college campuses into recruitment hubs, recruiting chemistry students in Mexico with big paydays.`\
-https://nytimes.com/2024/12/01/world/americas/mexico-fentanyl-chemistry-students.html
 

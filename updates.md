@@ -1,3 +1,7 @@
+**LA Galaxy outlast Seattle Sounders to earn first MLS Cup berth since 2014**\
+`LA will now host MLS Cup next Saturday against the New York Red Bulls.`\
+https://nytimes.com/athletic/5959519/2024/12/01/la-galaxy-seattle-sounders-results-score/
+
 **Jared Spurgeon's heroics continue as Wild tie for most points in NHL: 3 takeaways**\
 `After their 3-2 overtime win over the Predators, the Wild tied the Jets for the league lead in the standings with 36 points in 24 games.`\
 https://nytimes.com/athletic/5959216/2024/12/01/wild-predators-jared-spurgeon-nhl/
