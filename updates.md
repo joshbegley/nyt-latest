@@ -1,3 +1,11 @@
+**Chargers at Falcons: How to watch, odds, expert picks for near pick'em in Atlanta**\
+`Both the Falcons and Chargers look to bounce back on Sunday, in one of the week's closest games by the odds.`\
+https://nytimes.com/athletic/5953642/2024/12/01/chargers-falcons-how-to-watch-odds-picks-betting/
+
+**49ers at Bills: How to watch, odds, picks with Buffalo as touchdown favorites on SNF**\
+`San Francisco is in desperation mode after back-to-back losses and find itself as a touchdown underdog in Buffalo.`\
+https://nytimes.com/athletic/5954028/2024/12/01/49ers-bills-how-to-watch-odds-picks-betting/
+
 **A Power Vacuum in Gaza Could Empower Warlords and Gangs**\
 `Hamas’s weakened position could leave the territory without any governing institutions.`\
 https://nytimes.com/2024/12/01/world/middleeast/a-power-vacuum-in-gaza-could-empower-warlords-and-gangs.html
