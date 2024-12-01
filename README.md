@@ -1,3 +1,7 @@
+**Long a ‘Crown Jewel’ of Government, N.I.H. Is Now a Target**\
+`The agency long benefited from broad bipartisan support. But Republican criticism has intensified, and new choices for top health posts hope to upend the organization.`\
+https://nytimes.com/2024/12/01/health/nih-trump-kennedy-bhattacharya.html
+
 **Review: This Is the First Must-See of the Met Opera’s Season**\
 `“Die Frau Ohne Schatten,” a dense ode to fertility, may not sound appealing at first. But in this performance, the fairy tale comes movingly to life.`\
 https://nytimes.com/2024/12/01/arts/music/strauss-frau-ohne-schatten-met-opera.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5955164/2024/12/01/manchester-united-4-everton-0-th
 **The Briefing: Chelsea 3 Aston Villa 0 - the Palmer press, Fofana concern... and are Chelsea contenders?**\
 `Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
 https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
-
-**College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/12/01/college-football-playoff-projections-odds/
 
