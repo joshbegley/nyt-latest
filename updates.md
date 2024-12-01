@@ -1,3 +1,8 @@
+**'It's an investment': Wild content with price paid for David Jiricek**\
+`While some may see the price for Jiricek as a haul, the Wild got a player they've long coveted.
+`\
+https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-jackets/
+
 **Red Bulls advance to MLS Cup final with 1-0 win vs. Orlando City**\
 `The Red Bulls return to the MLS Cup for the first time since 2008.`\
 https://nytimes.com/athletic/5959275/2024/11/30/new-york-red-bulls-orlando-city-mls-eastern-conference-final-score/
