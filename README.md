@@ -1,3 +1,8 @@
+**Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
+`Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
+`\
+https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
+
 **Kirk Cousins tosses 4 INTs as Chargers beat Falcons 17-13: Takeaways**\
 `The Chargers scored 10 points off turnovers in the second four-interception game of Kirk Cousins' 13-year NFL career.`\
 https://nytimes.com/athletic/5960116/2024/12/01/chargers-falcons-score-result-takeaways/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/5960390/2024/12/01/canucks-red-wings-jake-debrusk-o
 **D.E.A. Pick Has Trump Connections but Is Rooted in Local Law Enforcement**\
 `Sheriff Chad Chronister, who has spent decades in Hillsborough County, Fla., is likely to face an array of challenges should he be confirmed as the agency’s administrator.`\
 https://nytimes.com/2024/12/01/us/politics/trump-chad-chronister-dea.html
-
-**Peter Westbrook, Pathbreaking Olympic Fencer, Dies at 72**\
-`As the first African American to win a medal in a sport long dominated by white Europeans, he was compared to Jackie Robinson and Arthur Ashe.`\
-https://nytimes.com/2024/12/01/obituaries/peter-westbrook-dead.html
 
