@@ -1,3 +1,7 @@
+**Nations Fail to Reach an Agreement on Plastic Pollution**\
+`Talks on the world’s first treaty to tackle plastic pollution will continue in coming months, delegates said.`\
+https://nytimes.com/2024/12/01/climate/united-nations-plastic-pollution.html
+
 **Kash Patel’s Threat to the Rule of Law**\
 `In the new administration, loyalty will come before experience or moral judgment.`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/patel-trump-fbi-loyalty
