@@ -1,3 +1,7 @@
+**Fighting Rages in Syria as Rebels Advance**\
+`Forces opposed to President Bashar al-Assad have captured the Aleppo airport and are attacking the western city of Hama, according to local officials and a Britain-based war monitor.`\
+https://nytimes.com/2024/12/01/world/middleeast/syria-war-aleppo-rebels-government.html
+
 **The Briefing: Chelsea 3 Aston Villa 0 - The Palmer press, Fofana concern and are Chelsea contenders?**\
 `Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
 https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
