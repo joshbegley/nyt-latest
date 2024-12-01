@@ -1,3 +1,11 @@
+**Greenwood and Carter switching positions gives England's defence better balance**\
+`Something strange happened at the start of England’s draw with USA at Wembley on Saturday - two of England's defenders swapped positions`\
+https://nytimes.com/athletic/5958726/2024/12/01/alex-greenwood-and-jess-carter-switching-positions-gives-englands-defence-better-balance/
+
+**'I am here as a head coach, not as a celebrity' - Frank Lampard's first day at Coventry**\
+`After 18 months out the game, the former Chelsea and England star was given a reminder of how tough the Championship can be`\
+https://nytimes.com/athletic/5958762/2024/12/01/frank-lampard-coventry-cardiff-manager/
+
 **Maple Leafs' Nick Robertson gets monkey off his back — and hopes it's only the beginning**\
 `The 23-year-old left winger snapped his 12-game goal drought in the Maple Leafs' 5-3 win over the Lightning.
 `\
