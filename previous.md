@@ -1,3 +1,19 @@
+**Lowetide: Which defencemen should the Oilers target in a trade?**\
+`Depth on defence is a strong need for Edmonton if the goal of winning the Stanley Cup is to be realized.`\
+https://nytimes.com/athletic/5957782/2024/12/01/oilers-defence-trade-targets-2024/
+
+**The Briefing: Tottenham Hotspur 1 Fulham 1 - Inconsistent Tottenham fail to beat 10-man Fulham**\
+`Jack Pitt-Brooke and Jay Harris break down the key moments from Tottenham's game against Fulham`\
+https://nytimes.com/athletic/5955176/2024/12/01/tottenham-fulham-draw-briefing/
+
+**The Briefing: Manchester United 4 Everton 0 - Amorim's rotation pays off and Zirkzee ends drought**\
+`Our writers analyse and evaluate the key talking points from Manchester United's comfortable victory over Everton`\
+https://nytimes.com/athletic/5955164/2024/12/01/manchester-united-4-everton-0-the-briefing/
+
+**The Briefing: Chelsea 3 Aston Villa 0 - The Palmer press, Fofana concern and are Chelsea contenders?**\
+`Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
+https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
+
 **College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/01/college-football-playoff-projections-odds/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5958867/2024/12/01/jamie-gittens-borussia-dortmund-
 **Police and Protesters Clash in Georgian Capital**\
 `The government’s decision to suspend its bid for European Union membership has driven thousands of protesters onto the streets.`\
 https://nytimes.com/2024/12/01/world/europe/georgia-tbilisi-protest.html
-
-**Botafogo win first Copa Libertadores title, finalise Club World Cup qualification**\
-`Brazilian club Botafogo won the Copa Libertadores — South America&#8217;s equivalent of the Champions League — for the first time in their 123-year history, despite having a player sent-off in the first minute of Saturday&#8217;s final against Atletico Mineiro.`\
-https://nytimes.com/athletic/5959770/2024/12/01/botafogo-copa-libertadores-club-world-cup/
-
-**A Unique Night at the Opera**\
-`At the Metropolitan Opera with Angelina Jolie.`\
-https://nytimes.com/2024/12/01/briefing/opera-maria-angelina-jolie.html
-
-**The USWNT needs 'to build better connections'. Fortunately, that may be straightforward**\
-`Against England, the USWNT failed to score for the second time under Emma Hayes, but there are reasons to be positive about the attack`\
-https://nytimes.com/athletic/5959670/2024/12/01/england-women-uswnt-reaction/
-
-**Fighting Rages in Syria as Rebels Advance**\
-`Forces opposed to President Bashar al-Assad have captured the Aleppo airport and are attacking the western city of Hama, according to local officials and a Britain-based war monitor.`\
-https://nytimes.com/2024/12/01/world/middleeast/syria-war-aleppo-rebels-government.html
 
