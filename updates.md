@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-take
 `\
 https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
 
+**Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
+`Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
+`\
+https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
+
 **SEC vibes rankings: Who would deserve a fourth SEC Playoff bid?**\
 `Which SEC team should get a fourth College Football Playoff bid if the conference gets it?`\
 https://nytimes.com/athletic/5960893/2024/12/01/week-14-sec-rankings-college-football-playoff/
