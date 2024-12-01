@@ -1,3 +1,7 @@
+**Max Verstappen responds to penalty following incident with George Russell**\
+`Verstappen was unhappy with the role Russell, who rose from second to first on the grid, had played in the decision.`\
+https://nytimes.com/athletic/5960819/2024/12/01/max-verstappen-qualifying-penalty-george-russell-comments/
+
 **NFL Week 13 takeaways: Are Chargers a Super Bowl threat? Is Russell Wilson the Steelers’ long-term answer?**\
 `Plus, what to make of good teams’ close wins over bad opponents.`\
 https://nytimes.com/athletic/5961147/2024/12/01/nfl-week-13-scores-takeaways-chargers-russell-wilson-steelers/

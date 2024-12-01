@@ -1,3 +1,7 @@
+**Max Verstappen responds to penalty following incident with George Russell**\
+`Verstappen was unhappy with the role Russell, who rose from second to first on the grid, had played in the decision.`\
+https://nytimes.com/athletic/5960819/2024/12/01/max-verstappen-qualifying-penalty-george-russell-comments/
+
 **NFL Week 13 takeaways: Are Chargers a Super Bowl threat? Is Russell Wilson the Steelers’ long-term answer?**\
 `Plus, what to make of good teams’ close wins over bad opponents.`\
 https://nytimes.com/athletic/5961147/2024/12/01/nfl-week-13-scores-takeaways-chargers-russell-wilson-steelers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/us/politics/biden-africa-angola-economic-strategy
 **Aaron Jones' late TD lifts Vikings past Cardinals 23-22: Takeaways**\
 `Justin Jefferson crossed 1,000 receiving yards for the fifth straight season, joining an elite club in the process.`\
 https://nytimes.com/athletic/5960143/2024/12/01/cardinals-vikings-score-result-takeaways/
-
-**Jayden Daniels, Commanders pick up 42-19 win against Titans: Takeaways**\
-`The Washington Commanders had about as perfect of a half a team could have in Sunday's 42-19 win against the Tennessee Titans.`\
-https://nytimes.com/athletic/5960176/2024/12/01/titans-commanders-score-result-takeaways/
 
