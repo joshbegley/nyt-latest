@@ -1,3 +1,11 @@
+**Republicans Stand Behind Trump’s Choice of Kash Patel to Lead F.B.I.**\
+`Several lawmakers expressed support on Sunday for the president-elect’s plan to install a loyalist who has vowed to use the position to exact revenge on adversaries.`\
+https://nytimes.com/2024/12/01/us/politics/trump-kash-patel-fbi-republicans.html
+
+**Purdue fires coach Ryan Walters after 66-0 thrashing to rival Indiana**\
+`Purdue has struggled mightily under Walters, compiling a 5-14 record and not finding any success.`\
+https://nytimes.com/athletic/5854543/2024/12/01/purdue-fires-ryan-walters/
+
 **Purdue fires coach Ryan Walters after 66-0 thrashing to rival Indiana**\
 `Purdue has struggled mightily under Walters, compiling a 5-14 record and not finding any success.`\
 https://nytimes.com/athletic/5854543/2024/12/01/purdue-fires-ryan-walter/

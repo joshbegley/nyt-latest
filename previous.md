@@ -1,6 +1,10 @@
+**Republicans Stand Behind Trump’s Choice of Kash Patel to Lead F.B.I.**\
+`Several lawmakers expressed support on Sunday for the president-elect’s plan to install a loyalist who has vowed to use the position to exact revenge on adversaries.`\
+https://nytimes.com/2024/12/01/us/politics/trump-kash-patel-fbi-republicans.html
+
 **Purdue fires coach Ryan Walters after 66-0 thrashing to rival Indiana**\
 `Purdue has struggled mightily under Walters, compiling a 5-14 record and not finding any success.`\
-https://nytimes.com/athletic/5854543/2024/12/01/purdue-fires-ryan-walter/
+https://nytimes.com/athletic/5854543/2024/12/01/purdue-fires-ryan-walters/
 
 **Chaotic F1 Qatar GP ends with Max Verstappen win, sets up season finale showdown**\
 `Lando Norris' penalty up-ended McLaren's title bid and sets up `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960272/2024/12/01/will-ryan-day-be-fired-ohio-stat
 **Until Saturday: Fight-filled Saturday shakes up CFP race: Plus, the upside-down Big 12**\
 `Welcome to Until Saturday, the five-star college football newsletter: Fight-filled Saturday shakes up College Football Playoff race.`\
 https://nytimes.com/athletic/5954034/2024/12/01/college-football-fights-week-14-until-saturday/
-
-**The Lake-Effect Snowstorm Enveloping the Northeast and Midwest: What We Know**\
-`The storm dumped several feet of snow and disrupted post-Thanksgiving travel in the Great Lakes states and New York. More snow is expected in the coming days.`\
-https://nytimes.com/2024/12/01/us/lake-effect-snowstorm-weather-what-to-know.html
 
