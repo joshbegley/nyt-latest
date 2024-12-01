@@ -1,3 +1,15 @@
+**Kirk Cousins tosses 4 INTs as Chargers beat Falcons 17-13: Takeaways**\
+`The Chargers scored 10 points off turnovers in the second four-interception game of Kirk Cousins' 13-year NFL career.`\
+https://nytimes.com/athletic/5960116/2024/12/01/chargers-falcons-score-result-takeaways/
+
+**FIU firing Mike MacIntyre after third straight 4-8 season: Source**\
+`The news comes 10 days after a former player alleged that MacIntyre threw a chair that hit a player during halftime of a 2022 game.`\
+https://nytimes.com/athletic/5943881/2024/12/01/fiu-mike-macintyre-firing/
+
+**Jerry Mack hired as second Kennesaw State head coach**\
+`Mack is the second coach in Kennesaw State football history, following Brian Bohannon.`\
+https://nytimes.com/athletic/5960883/2024/12/01/jerry-mack-hired-kennesaw-state-football/
+
 **Real Madrid 2 Getafe 0: Mbappe heals, the Bellingham show and Garcia's role**\
 `After the disappointment of the midweek defeat to Liverpool, Madrid were back to winning ways in La Liga`\
 https://nytimes.com/athletic/5960761/2024/12/01/real-madrid-bellingham-mbappe/
