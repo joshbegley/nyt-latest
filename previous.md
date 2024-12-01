@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5955176/2024/12/01/tottenham-fulham-draw-briefing/
 `Our writers analyse and evaluate the key talking points from Manchester United's comfortable victory over Everton`\
 https://nytimes.com/athletic/5955164/2024/12/01/manchester-united-4-everton-0-the-briefing/
 
-**The Briefing: Chelsea 3 Aston Villa 0 - The Palmer press, Fofana concern and are Chelsea contenders?**\
+**The Briefing: Chelsea 3 Aston Villa 0 - the Palmer press, Fofana concern and are Chelsea contenders?**\
 `Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
 https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
 

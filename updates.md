@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 3 Aston Villa 0 - the Palmer press, Fofana concern and are Chelsea contenders?**\
+`Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
+https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
+
 **The Pulse: Upset of the year! And a lesson**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5960119/2024/12/01/ohio-state-michigan-ryan-day-the-pulse/
