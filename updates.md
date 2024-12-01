@@ -1,3 +1,7 @@
+**Stowaway on Flight to Paris Disrupts a Return Flight to New York**\
+`The same passenger who stowed away on a Delta Air Lines flight to Paris caused a disturbance on a flight to New York on Saturday, an aviation official said.`\
+https://nytimes.com/2024/12/01/world/europe/stowaway-return-cdg-jfk-airport.html
+
 **C.E.O. of Stellantis, Owner of Chrysler and Jeep, Resigns**\
 `The company, facing slumping sales, announced that Carlos Tavares would step down immediately and that a search for a new chief was underway.`\
 https://nytimes.com/2024/12/01/business/stellantis-ceo-resigns.html

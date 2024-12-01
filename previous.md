@@ -1,3 +1,7 @@
+**Stowaway on Flight to Paris Disrupts a Return Flight to New York**\
+`The same passenger who stowed away on a Delta Air Lines flight to Paris caused a disturbance on a flight to New York on Saturday, an aviation official said.`\
+https://nytimes.com/2024/12/01/world/europe/stowaway-return-cdg-jfk-airport.html
+
 **C.E.O. of Stellantis, Owner of Chrysler and Jeep, Resigns**\
 `The company, facing slumping sales, announced that Carlos Tavares would step down immediately and that a search for a new chief was underway.`\
 https://nytimes.com/2024/12/01/business/stellantis-ceo-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960609/2024/12/01/pep-guardiola-anfield-six-liverp
 **Lions signing safety Jamal Adams to practice squad: Source**\
 `The signing comes with an understanding that Adams will be elevated to Detroit's active roster.`\
 https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
-
-**Blue Jackets Sunday Gathering: Don Waddell discusses value of picks in David Jiricek trade**\
-`The Blue Jackets GM breaks down the Jiricek trade with the Wild and the value of the draft picks the club got in return.`\
-https://nytimes.com/athletic/5958168/2024/12/01/david-jiricek-trade-blue-jackets/
 
