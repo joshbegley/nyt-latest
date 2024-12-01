@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 3 Aston Villa 0 - The Palmer press, Fofana concern and are Chelsea contenders?**\
+`Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
+https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
+
+**How Dortmund's 'golden boy' Jamie Gittens is becoming one of Europe's most destructive players**\
+`Dortmund's 20-year-old English forward is at an exciting moment in his career, with each match revealing something new about his game`\
+https://nytimes.com/athletic/5958867/2024/12/01/jamie-gittens-borussia-dortmund-bayern-munich/
+
 **College Football Playoff 2024 projections: What now for Ohio State after Michigan upset?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/01/college-football-playoff-projections-odds/
