@@ -1,3 +1,7 @@
+**F1's Qatar penalty drama will increase scrutiny on the FIA after recent upheaval**\
+`After another F1 race where penalties influenced the outcome (and potentially a title), focus returns to the sport's governing body.`\
+https://nytimes.com/athletic/5960926/2024/12/01/f1-qatar-gp-penalties-fia-norris-verstappen-russell/
+
 **Wayne Northrop, ‘Days of Our Lives’ Actor, Dies at 77**\
 `He was best known for playing two characters, Roman Brady and Dr. Alex North, in more than 1,000 episodes on the daytime soap opera.`\
 https://nytimes.com/2024/12/01/arts/television/wayne-northrop-dead.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-take
 **Kirk Cousins tosses 4 INTs as Chargers beat Falcons 17-13: Takeaways**\
 `The Chargers scored 10 points off turnovers in the second four-interception game of Kirk Cousins' 13-year NFL career.`\
 https://nytimes.com/athletic/5960116/2024/12/01/chargers-falcons-score-result-takeaways/
-
-**FIU firing Mike MacIntyre after third straight 4-8 season: Source**\
-`The news comes 10 days after a former player alleged that MacIntyre threw a chair that hit a player during halftime of a 2022 game.`\
-https://nytimes.com/athletic/5943881/2024/12/01/fiu-mike-macintyre-firing/
 

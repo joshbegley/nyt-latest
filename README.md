@@ -1,3 +1,7 @@
+**Steelers force three turnovers, Wilson has career day in 44-38 win over Bengals: Key takeaways**\
+`Wilson posted the second-best performance of his career, while Burrow loses his third straight game with 300 yards and three touchdowns. `\
+https://nytimes.com/athletic/5960127/2024/12/01/steelers-bengals-score-result-takeaways/
+
 **F1's Qatar penalty drama will increase scrutiny on the FIA after recent upheaval**\
 `After another F1 race where penalties influenced the outcome (and potentially a title), focus returns to the sport's governing body.`\
 https://nytimes.com/athletic/5960926/2024/12/01/f1-qatar-gp-penalties-fia-norris-verstappen-russell/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5960176/2024/12/01/titans-commanders-score-result-t
 `Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
 `\
 https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
-
-**Kirk Cousins tosses 4 INTs as Chargers beat Falcons 17-13: Takeaways**\
-`The Chargers scored 10 points off turnovers in the second four-interception game of Kirk Cousins' 13-year NFL career.`\
-https://nytimes.com/athletic/5960116/2024/12/01/chargers-falcons-score-result-takeaways/
 
