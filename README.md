@@ -1,3 +1,7 @@
+**Live Q&A: Week 13 fantasy football start/sit chat with Jay Felicio, Sunday 12/1at 11 a.m. ET**\
+`Submit your Week 13 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5957160/2024/12/01/live-qa-week-13-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-1at-11-a-m-et/
+
 **Former Defense Minister Accuses Israel of Committing War Crimes in Gaza**\
 `The comments by Moshe Yaalon were swiftly denied and condemned by allies of Prime Minister Benjamin Netanyahu of Israel, who said that they would hurt the country and help its enemies.`\
 https://nytimes.com/2024/12/01/world/middleeast/israel-gaza-yaalon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/world/middleeast/syria-war-aleppo-rebels-governme
 **What does the return of Texas-Texas A&M mean? Here's what I saw before, during and after**\
 `Scenes from the long-awaited renewal of the Texas-Texas A&M rivalry, which ended in Longhorns jubilation after days of Aggies anticipation.`\
 https://nytimes.com/athletic/5959705/2024/12/01/texas-longhorns-aggies-rivalry-kyle-field/
-
-**Kane out of Bayern's DFB-Pokal match against Leverkusen with thigh injury**\
-`Harry Kane will miss Bayern Munich&#8217;s DFB-Pokal match against Bayer Leverkusen on Tuesday with a thigh muscle injury.`\
-https://nytimes.com/athletic/5959757/2024/12/01/harry-kane-injury-update-bayern-munich/
 
