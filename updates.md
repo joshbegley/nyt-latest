@@ -1,3 +1,7 @@
+**Lions signing S Jamal Adams to practice squad: Source**\
+`The signing comes with an understanding that Adams will be elevated to Detroit's active roster.`\
+https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
+
 **Blue Jackets Sunday Gathering: Don Waddell discusses value of picks in David Jiricek trade**\
 `The Blue Jackets GM breaks down the Jiricek trade with the Wild and the value of the draft picks the club got in return.`\
 https://nytimes.com/athletic/5958168/2024/12/01/david-jiricek-trade-blue-jackets/

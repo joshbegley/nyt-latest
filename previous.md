@@ -1,3 +1,7 @@
+**Lions signing S Jamal Adams to practice squad: Source**\
+`The signing comes with an understanding that Adams will be elevated to Detroit's active roster.`\
+https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
+
 **Blue Jackets Sunday Gathering: Don Waddell discusses value of picks in David Jiricek trade**\
 `The Blue Jackets GM breaks down the Jiricek trade with the Wild and the value of the draft picks the club got in return.`\
 https://nytimes.com/athletic/5958168/2024/12/01/david-jiricek-trade-blue-jackets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960354/2024/12/01/max-verstappen-wins-qatar-gp-f1-
 **Fiorentina-Inter abandoned after Bove appears to collapse during Serie A game**\
 `The Fiorentina midfielder was taken to hospital after falling to the ground during the first half of the match.`\
 https://nytimes.com/athletic/5960393/2024/12/01/edoardo-bove-fiorentina-inter/
-
-**Ireland’s Main Parties Edge Out Sinn Féin, Early Election Results Show**\
-`At one level, the vote was an endorsement of continuity, but the stability in Ireland’s political center ground masked volatility on the fringes.`\
-https://nytimes.com/2024/12/01/world/europe/ireland-election-results.html
 
