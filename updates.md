@@ -1,3 +1,7 @@
+**Max Verstappen responds to Qatar qualifying penalty: "I lost all respect"**\
+`Verstappen was unhappy with the role Russell, who rose from second to first on the grid, had played in the decision.`\
+https://nytimes.com/athletic/5960819/2024/12/01/max-verstappen-qualifying-penalty-george-russell-comments/
+
 **Max Verstappen responds to penalty following incident with George Russell**\
 `Verstappen was unhappy with the role Russell, who rose from second to first on the grid, had played in the decision.`\
 https://nytimes.com/athletic/5960819/2024/12/01/max-verstappen-qualifying-penalty-george-russell-comments/
