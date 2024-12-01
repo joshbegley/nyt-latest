@@ -1,3 +1,7 @@
+**Running Away From Trump’s America Is Complicated. I Should Know.**\
+`For Americans declaring they want to leave a Trump-led America, the best approach is to understand what you are running to, not from.`\
+https://nytimes.com/2024/12/01/opinion/trump-election-leaving-expat.html
+
 **Marshall Brickman, Woody Allen’s Co-Writer on Hit Films, Dies at 85**\
 `The duo won an Oscar for “Annie Hall.” Mr. Brickman went on to write Broadway shows, including “Jersey Boys,” and make movies of his own.`\
 https://nytimes.com/2024/12/01/movies/marshall-brickman-dead.html

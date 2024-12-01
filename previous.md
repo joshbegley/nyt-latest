@@ -1,3 +1,7 @@
+**Running Away From Trump’s America Is Complicated. I Should Know.**\
+`For Americans declaring they want to leave a Trump-led America, the best approach is to understand what you are running to, not from.`\
+https://nytimes.com/2024/12/01/opinion/trump-election-leaving-expat.html
+
 **Marshall Brickman, Woody Allen’s Co-Writer on Hit Films, Dies at 85**\
 `The duo won an Oscar for “Annie Hall.” Mr. Brickman went on to write Broadway shows, including “Jersey Boys,” and make movies of his own.`\
 https://nytimes.com/2024/12/01/movies/marshall-brickman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5948946/2024/12/01/biggest-premier-league-title-rac
 **Legendary St. John's coach Lou Carnesecca dies at 99**\
 `Carnesecca won 526 games and lost just 200 in his 24 years at St. John’s, leading the team to 18 NCAA Tournaments.`\
 https://nytimes.com/athletic/5959323/2024/12/01/lou-carnesecca-death-st-johns/
-
-**France’s Prime Minister Is on the Block, and Marine Le Pen Holds the Blade**\
-`The end of Michel Barnier’s government looks inevitable, even imminent, and would add to the country’s political malaise. The only question seems to be: How long he can last?`\
-https://nytimes.com/2024/12/01/world/europe/france-barnier-prime-minister-le-pen.html
 
