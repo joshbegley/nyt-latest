@@ -1,3 +1,16 @@
+**Wayne Northrop, ‘Days of Our Lives’ Actor, Dies at 77**\
+`He was best known for playing two characters, Roman Brady and Dr. Alex North, in more than 1,000 episodes on the daytime soap opera.`\
+https://nytimes.com/2024/12/01/arts/television/wayne-northrop-dead.html
+
+**Aaron Jones' late TD lifts Vikings past Cardinals 23-22: Takeaways**\
+`Justin Jefferson crossed 1,000 receiving yards for the fifth straight season, joining an elite club in the process.`\
+https://nytimes.com/athletic/5960143/2024/12/01/cardinals-vikings-score-result-takeaways/
+
+**Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
+`Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
+`\
+https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
+
 **Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
 `Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
 `\
