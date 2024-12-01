@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-take
 `\
 https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
 
+**Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
+`Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
+`\
+https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
+
 **Steelers force three turnovers, Wilson has career day in 44-38 win over Bengals: Key takeaways**\
 `Wilson posted the second-best performance of his career, while Burrow loses his third straight game with 300 yards and three touchdowns. `\
 https://nytimes.com/athletic/5960127/2024/12/01/steelers-bengals-score-result-takeaways/
