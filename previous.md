@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5959204/2024/11/30/wild-david-jiricek-trade-blue-ja
 `The announcement of Sheriff Chad Chronister came after President-elect Donald J. Trump said that he would impose tariffs that would stay in place until Canada, Mexico and China halted the flow of drugs and migrants.`\
 https://nytimes.com/2024/11/30/us/politics/chad-chronister-dea.html
 
-**Manning, Ewers each provide TDs as Texas leads Texas A&M at halftime**\
+**Texas retains upper hand in Texas A&M rivalry, secures SEC title game trip**\
 `Texas used big plays from both of its big-name quarterbacks to take a halftime lead over Texas A&M.`\
 https://nytimes.com/athletic/5959174/2024/11/30/texas-longhorns-aggies-score-highlights-sec-championship/
 
