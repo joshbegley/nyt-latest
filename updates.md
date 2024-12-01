@@ -1,3 +1,7 @@
+**What changes are needed to the Warriors' suddenly struggling 13-man rotation?**\
+`Coach Steve Kerr found a way to use 13 players in the first 15 minutes against Phoenix in his search for answers, without much success.`\
+https://nytimes.com/athletic/5959219/2024/12/01/warriors-struggle-13-man-rotation/
+
 **Big 12 Championship Game set: Arizona State vs. Iowa State for CFP spot**\
 `Arizona State was picked last in the preseason Big 12 media poll. Iowa State’s last league title came in 1912.`\
 https://nytimes.com/athletic/5959538/2024/12/01/big-12-championship-iowa-state-arizona-state/
