@@ -1,3 +1,7 @@
+**The Pulse: Upset of the year! And a lesson**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5960119/2024/12/01/ohio-state-michigan-ryan-day-the-pulse/
+
 **Lowetide: Which defencemen should the Oilers target in a trade?**\
 `Depth on defence is a strong need for Edmonton if the goal of winning the Stanley Cup is to be realized.`\
 https://nytimes.com/athletic/5957782/2024/12/01/oilers-defence-trade-targets-2024/
