@@ -1,3 +1,11 @@
+**Trump Offers Massad Boulos Middle East Adviser Role**\
+`The announcement on Sunday was the second time this weekend that Mr. Trump offered an influential post to an in-law.`\
+https://nytimes.com/2024/12/01/us/politics/trump-massad-boulos-middle-east.html
+
+**Relatives of Subway Choking Victim Must Relive His Death Daily**\
+`In life, Jordan Neely’s family lost him to mental illness. After his death, his father and uncle have steeled themselves to attend the manslaughter trial of Daniel Penny each day.`\
+https://nytimes.com/2024/12/01/nyregion/subway-choking-jordan-neely-relatives.html
+
 **Stewart Mandel's 12-team Playoff projections after Week 14**\
 `Ohio State’s inexplicable home loss to Michigan and Miami’s loss at Syracuse certainly shook up the seeding heading into league title games.`\
 https://nytimes.com/athletic/5960482/2024/12/01/college-football-playoff-bracket-projections-week-14/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/01/world/europe/ireland-election-results.html
 **Nations Fail to Reach an Agreement on Plastic Pollution**\
 `Talks on the world’s first treaty to tackle plastic pollution will continue in coming months, delegates said.`\
 https://nytimes.com/2024/12/01/climate/united-nations-plastic-pollution.html
-
-**Kash Patel’s Threat to the Rule of Law**\
-`In the new administration, loyalty will come before experience or moral judgment.`\
-https://nytimes.com/live/2024/11/26/opinion/thepoint/patel-trump-fbi-loyalty
-
-**Dyche on Everton's loss at Man Utd: 'Difficult with such glaring individual mistakes'**\
-`Everton manager Sean Dyche says “individual mistakes” cost his side as they suffered a 4-0 defeat against Manchester United at Old Trafford.`\
-https://nytimes.com/athletic/5960368/2024/12/01/everton-manchester-united-sean-dyche/
 
