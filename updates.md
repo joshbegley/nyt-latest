@@ -1,3 +1,11 @@
+**Jack Doohan poised to replace Esteban Ocon at Alpine F1 for Abu Dhabi GP**\
+`Doohan was already set to drive for Alpine in 2025, replacing the Haas-bound Ocon.`\
+https://nytimes.com/athletic/5960589/2024/12/01/jack-doohan-esteban-ocon-alpine-f1-abu-dhabi-gp/
+
+**Virginia Lawmakers Want to Know Why 6 Inmates Have Burned Themselves**\
+`The state’s top prison official criticized reports that the self-burnings at Red Onion State Prison, which has had a history of complaints, were in protest of poor conditions.`\
+https://nytimes.com/2024/12/01/us/virginia-prisoners-burns-protest.html
+
 **Georgia's Julian Humphrey to enter transfer portal: What it means for Bulldogs**\
 `This isn’t the first time Humphrey has announced plans to enter the portal. He did so during last year’s winter window.`\
 https://nytimes.com/athletic/5960674/2024/12/01/julian-humphrey-transfer-portal-georgia-football/
