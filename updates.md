@@ -1,3 +1,7 @@
+**Jared Spurgeon's heroics continue as Wild tie for most points in NHL: 3 takeaways**\
+`After their 3-2 overtime win over the Predators, the Wild tied the Jets for the league lead in the standings with 36 points in 24 games.`\
+https://nytimes.com/athletic/5959216/2024/12/01/wild-predators-jared-spurgeon-nhl/
+
 **Jose Sa, some angry Wolves fans, and an incredibly fraught afternoon at Molineux**\
 `Goalkeeper Jose Sa remonstrated with angry supporters during a 4-2 defeat to Bournemouth that life at Molineux remains incredibly fraught`\
 https://nytimes.com/athletic/5958756/2024/12/01/wolves-bournemouth-jose-sa-fan/
