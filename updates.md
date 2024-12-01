@@ -1,3 +1,7 @@
+**How Jake DeBrusk powered Canucks' comeback win in Detroit: 3 takeaways**\
+`DeBrusk continued his hot streak with a hat trick that included the overtime winner.`\
+https://nytimes.com/athletic/5960390/2024/12/01/canucks-red-wings-jake-debrusk-overtime/
+
 **West Virginia fires coach Neal Brown after 6-6 season**\
 `Since his arrival in Morgantown in 2019, Brown has helped the team to a 37-35 overall record but is 25-28 in the Big 12 over that span.`\
 https://nytimes.com/athletic/5958530/2024/12/01/neal-brown-fired-west-virginia-football-news/

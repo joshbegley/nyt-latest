@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5958530/2024/12/01/neal-brown-fired-west-virginia-f
 https://nytimes.com/2024/12/01/briefing/syria-trump-fbi-mexico.html
 
 **How Jake DeBrusk powered Canucks' comeback win in Detroit: 3 takeaways**\
-`DeBrusk continued his hot streak with a hat trick in Detroit that included the overtime winner.`\
+`DeBrusk continued his hot streak with a hat trick that included the overtime winner.`\
 https://nytimes.com/athletic/5960390/2024/12/01/canucks-red-wings-jake-debrusk-overtime/
 
 **D.E.A. Pick Has Trump Connections but Is Rooted in Local Law Enforcement**\
