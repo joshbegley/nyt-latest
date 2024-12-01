@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-take
 `\
 https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
 
+**Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
+`Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
+`\
+https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
+
 **F1's Qatar penalty drama will increase scrutiny on the FIA after recent upheaval**\
 `After another F1 race where penalties influenced the outcome (and potentially a title), focus returns to the sport's governing body.`\
 https://nytimes.com/athletic/5960926/2024/12/01/f1-qatar-gp-penalties-fia-norris-verstappen-russell/
