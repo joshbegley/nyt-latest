@@ -1,3 +1,7 @@
+**Trump Picks a Florida Sheriff as D.E.A. Administrator**\
+`The announcement of Sheriff Chad Chronister came after President-elect Donald J. Trump said that he would impose tariffs that would stay in place until Canada, Mexico and China halted the flow of drugs and migrants.`\
+https://nytimes.com/2024/11/30/us/politics/chad-chronister-dea.html
+
 **Manning, Ewers each provide TDs as Texas leads Texas A&M at halftime**\
 `Texas used big plays from both of its big-name quarterbacks to take a halftime lead over Texas A&M.`\
 https://nytimes.com/athletic/5959174/2024/11/30/texas-longhorns-aggies-score-highlights-sec-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5959056/2024/11/30/tennessee-vanderbilt-result-coll
 **Does Alabama have a Playoff case after beating Auburn? Key Iron Bowl takeaways**\
 `No. 13 Alabama beat Auburn 28-14 in the Iron Bowl Saturday, giving the Tide postseason hope while knocking Auburn out of bowl contention.`\
 https://nytimes.com/athletic/5958996/2024/11/30/alabama-auburn-iron-bowl-score-recap/
-
-**Canadiens need to digest a bad beat and not let it derail their positive process**\
-`The Canadiens are playing a winning style of hockey, and the fact it is not always leading to wins needs to be secondary right now.`\
-https://nytimes.com/athletic/5958953/2024/11/30/canadiens-rangers-mike-matheson-kirby-dach/
 
