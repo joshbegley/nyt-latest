@@ -1,3 +1,11 @@
+**When A.I. and Doctors Make the Diagnosis**\
+`Readers discuss artificial intelligence in medicine. Also: Toxins in water; breasts on billboards; the $6.2 million banana; a deportation question.`\
+https://nytimes.com/2024/12/01/opinion/ai-doctors-diagnosis.html
+
+**Sardine Pasta Puttanesca, Plenty Punchy**\
+`Sohla El-Waylly’s recipe is about as far from Thanksgiving as you can get. And on the Sunday after Thanksgiving, that’s exactly what’s required.`\
+https://nytimes.com/2024/12/01/dining/sardine-pasta-puttanesca-more-recipes.html
+
 **The Pulse: Upset of the year! And a lesson**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5960119/2024/12/01/ohio-state-michigan-ryan-day-the-pulse/
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/5955176/2024/12/01/tottenham-fulham-draw-briefing/
 `Our writers analyse and evaluate the key talking points from Manchester United's comfortable victory over Everton`\
 https://nytimes.com/athletic/5955164/2024/12/01/manchester-united-4-everton-0-the-briefing/
 
-**The Briefing: Chelsea 3 Aston Villa 0 - The Palmer press, Fofana concern and are Chelsea contenders?**\
+**The Briefing: Chelsea 3 Aston Villa 0 - the Palmer press, Fofana concern and are Chelsea contenders?**\
 `Enzo Maresca's side maintained their impressive progress this season with their attacking play continuing to thrill Stamford Bridge`\
 https://nytimes.com/athletic/5955133/2024/12/01/chelsea-fofana-palmer-jackson-villa/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5957160/2024/12/01/live-qa-week-13-fantasy-football
 **Former Defense Minister Accuses Israel of Committing War Crimes in Gaza**\
 `The comments by Moshe Yaalon were swiftly denied and condemned by allies of Prime Minister Benjamin Netanyahu of Israel, who said that they would hurt the country and help its enemies.`\
 https://nytimes.com/2024/12/01/world/middleeast/israel-gaza-yaalon.html
-
-**How the New York Times Makes the Super Mega Crossword**\
-`The centerpiece of the annual Puzzle Mania print section requires a big helping of teamwork, with a side order of patience.`\
-https://nytimes.com/2024/12/01/crosswords/puzzle-mania-super-mega.html
-
-**How Dortmund's 'golden boy' Jamie Gittens is becoming one of Europe's most destructive players**\
-`Dortmund's 20-year-old English forward is at an exciting moment in his career, with each match revealing something new about his game`\
-https://nytimes.com/athletic/5958867/2024/12/01/jamie-gittens-borussia-dortmund-bayern-munich/
 
