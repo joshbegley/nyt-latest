@@ -1,3 +1,7 @@
+**C.E.O. of Stellantis, Owner of Chrysler and Jeep, Resigns**\
+`The company, facing slumping sales, announced that Carlos Tavares would step down immediately and that a search for a new chief was underway.`\
+https://nytimes.com/2024/12/01/business/stellantis-ceo-resigns.html
+
 **Wisconsin exit interview: Leon Lowery on decision to transfer and thoughts on Badgers' future**\
 `Lowery started 11 games at linebacker in his one season at Wisconsin but failed to have as big of an impact as expected. `\
 https://nytimes.com/athletic/5960745/2024/12/01/wisconsin-leon-lowery-transfer-linebacker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
 **Blue Jackets Sunday Gathering: Don Waddell discusses value of picks in David Jiricek trade**\
 `The Blue Jackets GM breaks down the Jiricek trade with the Wild and the value of the draft picks the club got in return.`\
 https://nytimes.com/athletic/5958168/2024/12/01/david-jiricek-trade-blue-jackets/
-
-**Trump Offers Massad Boulos Middle East Adviser Role**\
-`The announcement on Sunday was the second time this weekend that President-elect Donald J. Trump offered an influential post to an in-law.`\
-https://nytimes.com/2024/12/01/us/politics/trump-massad-boulos-middle-east.html
 

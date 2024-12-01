@@ -1,3 +1,7 @@
+**C.E.O. of Stellantis, Owner of Chrysler and Jeep, Resigns**\
+`The company, facing slumping sales, announced that Carlos Tavares would step down immediately and that a search for a new chief was underway.`\
+https://nytimes.com/2024/12/01/business/stellantis-ceo-resigns.html
+
 **Wisconsin exit interview: Leon Lowery on decision to transfer and thoughts on Badgers' future**\
 `Lowery started 11 games at linebacker in his one season at Wisconsin but failed to have as big of an impact as expected. `\
 https://nytimes.com/athletic/5960745/2024/12/01/wisconsin-leon-lowery-transfer-linebacker/
