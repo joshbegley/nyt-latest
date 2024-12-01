@@ -1,7 +1,3 @@
-**College football rivalry weekend heats up with fights, chaotic flag plants**\
-`Ohio State-Michigan, Auburn-Alabama and UNC-NC State were among the heated rivalry games that featured skirmishes.`\
-https://nytimes.com/athletic/5959050/2024/11/30/fights-flag-plant-ohio-state-michigan-auburn-alabama/
-
 **Portzline: David Jiricek's skating concerns were enough for Blue Jackets to trade him**\
 `Blue Jackets general manager Don Waddell was wise to move Jiricek now, before his inability to crack the NHL became a bigger concern.`\
 https://nytimes.com/athletic/5959028/2024/11/30/david-jiricek-blue-jackets-trade/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5958950/2024/11/30/notre-dame-usc-college-football-
 **A College Volleyball Team’s Season in the Spotlight Comes to an End**\
 `The San Jose State women’s team, which has a transgender player, lost to the tournament favorite Colorado State, concluding a season that transcended sports.`\
 https://nytimes.com/2024/11/30/us/transgender-san-jose-state-volleyball.html
+
+**Penn State to play for Big Ten title after handling Maryland, Ohio State loss: Takeaways**\
+`After beating Maryland, Penn State has a chance to prove this team can punch up and hang with the best team in the country.`\
+https://nytimes.com/athletic/5958979/2024/11/30/penn-state-big-ten-championship-oregon-maryland/
 
