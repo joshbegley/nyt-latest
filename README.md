@@ -1,3 +1,7 @@
+**Syria’s Rebels Struck When Assad’s Allies Were Weakened and Distracted**\
+`Diminished support for the Syrian government from Iran, Hezbollah and Russia enabled opposition forces to take the initiative and seize new territory.`\
+https://nytimes.com/2024/12/01/world/middleeast/syria-rebels-bashar-al-assad.html
+
 **Kash Patel Would Bring Bravado and Baggage to F.B.I. Role**\
 `President-elect Donald J. Trump’s choice to run the F.B.I. has a record in and out of government that is likely to raise questions during his Senate confirmation hearings.`\
 https://nytimes.com/2024/12/01/us/politics/kash-patel-bravado-baggage-fbi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/arts/television/wayne-northrop-dead.html
 **Seahawks rally past Jets 26-21 for third consecutive win: Takeaways**\
 `The game-winning score was Seattle’s best short-yardage play of the day — an 8-yard run by Charbonnet on third-and-1.`\
 https://nytimes.com/athletic/5960164/2024/12/01/seahawks-jets-score-result-takeaways/
-
-**SEC vibes rankings: Who would deserve a fourth SEC Playoff bid?**\
-`Which SEC team should get a fourth College Football Playoff bid if the conference gets it?`\
-https://nytimes.com/athletic/5960893/2024/12/01/week-14-sec-rankings-college-football-playoff/
 
