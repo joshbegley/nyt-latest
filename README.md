@@ -1,3 +1,15 @@
+**Greenwood and Carter switching positions gives England's defence better balance**\
+`Something strange happened at the start of England’s draw with USA at Wembley on Saturday - two of England's defenders swapped positions`\
+https://nytimes.com/athletic/5958726/2024/12/01/alex-greenwood-and-jess-carter-switching-positions-gives-englands-defence-better-balance/
+
+**'I am here as a head coach, not as a celebrity' - Frank Lampard's first day at Coventry**\
+`After 18 months out the game, the former Chelsea and England star was given a reminder of how tough the Championship can be`\
+https://nytimes.com/athletic/5958762/2024/12/01/frank-lampard-coventry-cardiff-manager/
+
+**What are the biggest leads to be overturned in a Premier League title race?**\
+`What some of the Premier League's great title comebacks tell us about Liverpool's current lead`\
+https://nytimes.com/athletic/5948946/2024/12/01/biggest-premier-league-title-race-leads-overturned/
+
 **Legendary St. John's coach Lou Carnesecca dies at 99**\
 `Carnesecca won 526 games and lost just 200 in his 24 years at St. John’s, leading the team to 18 NCAA Tournaments.`\
 https://nytimes.com/athletic/5959323/2024/12/01/lou-carnesecca-death-st-johns/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/5956971/2024/12/01/liverpool-manchester-city-previe
 **From Pong to Pokémon: A History of Holiday ‘It’ Toys**\
 `A look back at 70-plus years of gadgetry, innovation and Mr. Potato Head.`\
 https://nytimes.com/2024/12/01/style/from-pong-to-pokemon-a-history-of-holiday-it-toys.html
-
-**Chelsea vs Aston Villa preview, odds, prediction: Blues hope to continue climb the table**\
-`Chelsea began the weekend third in the Premier League. With Manchester City slumping, the Blues are aiming for higher.`\
-https://nytimes.com/athletic/5956990/2024/12/01/chelsea-aston-villa-preview-odds-prediction/
-
-**Maple Leafs' Nick Robertson gets monkey off his back — and hopes it's only the beginning**\
-`The 23-year-old left winger snapped his 12-game goal drought in the Maple Leafs' 5-3 win over the Lightning.
-`\
-https://nytimes.com/athletic/5959424/2024/11/30/maple-leafs-lightning-nick-robertson-goal/
-
-**Lou Carnesecca, St. John’s Basketball Coach Who Notched 526 Wins, Dies at 99**\
-`Known for his quick wit and garish sweaters, Carnesecca took the New York City university to national basketball prominence.`\
-https://nytimes.com/2024/11/30/sports/basketball/lou-carnesecca-dead.html
 
