@@ -1,3 +1,11 @@
+**Aaron Jones' late TD lifts Vikings past Cardinals 23-22: Takeaways**\
+`Justin Jefferson crosses 1,000 receiving yards for the fifth straight season and joins an elite club to do so in his first five years.`\
+https://nytimes.com/athletic/5960143/2024/12/01/cardinals-vikings-score-result-takeaways/
+
+**Jayden Daniels, Commanders pick up 42-19 win against Titans: Takeaways**\
+`The Washington Commanders had about as perfect of a half a team could have in Sunday's 42-19 win against the Tennessee Titans.`\
+https://nytimes.com/athletic/5960176/2024/12/01/titans-commanders-score-result-takeaways/
+
 **Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
 `Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5958530/2024/12/01/neal-brown-fired-west-virginia-f
 **Monday Briefing: Rebels Advance in Syria**\
 `Plus, the vast network of undersea internet cables.`\
 https://nytimes.com/2024/12/01/briefing/syria-trump-fbi-mexico.html
-
-**How Jake DeBrusk powered Canucks' comeback win in Detroit: 3 takeaways**\
-`DeBrusk continued his hot streak with a hat trick that included the overtime winner.`\
-https://nytimes.com/athletic/5960390/2024/12/01/canucks-red-wings-jake-debrusk-overtime/
-
-**D.E.A. Pick Has Trump Connections but Is Rooted in Local Law Enforcement**\
-`Sheriff Chad Chronister, who has spent decades in Hillsborough County, Fla., is likely to face an array of challenges should he be confirmed as the agency’s administrator.`\
-https://nytimes.com/2024/12/01/us/politics/trump-chad-chronister-dea.html
 
