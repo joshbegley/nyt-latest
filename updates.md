@@ -1,3 +1,15 @@
+**Police and Protesters Clash in Georgian Capital**\
+`The government’s decision to suspend its bid for European Union membership has driven thousands of protesters onto the streets.`\
+https://nytimes.com/2024/12/01/world/europe/georgia-tbilisi-protest.html
+
+**Botafogo win first Copa Libertadores title, finalise Club World Cup qualification**\
+`Brazilian club Botafogo won the Copa Libertadores — South America&#8217;s equivalent of the Champions League — for the first time in their 123-year history, despite having a player sent-off in the first minute of Saturday&#8217;s final against Atletico Mineiro.`\
+https://nytimes.com/athletic/5959770/2024/12/01/botafogo-copa-libertadores-club-world-cup/
+
+**The USWNT needs 'to build better connections'. Fortunately, doing that may be straightforward**\
+`Against England, the USWNT failed to score for the second time under Emma Hayes, but there are reasons to be positive about the attack`\
+https://nytimes.com/athletic/5959670/2024/12/01/england-women-uswnt-reaction/
+
 **A Unique Night at the Opera**\
 `At the Metropolitan Opera with Angelina Jolie.`\
 https://nytimes.com/2024/12/01/briefing/opera-maria-angelina-jolie.html

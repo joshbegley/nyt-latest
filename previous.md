@@ -1,8 +1,16 @@
+**Police and Protesters Clash in Georgian Capital**\
+`The government’s decision to suspend its bid for European Union membership has driven thousands of protesters onto the streets.`\
+https://nytimes.com/2024/12/01/world/europe/georgia-tbilisi-protest.html
+
+**Botafogo win first Copa Libertadores title, finalise Club World Cup qualification**\
+`Brazilian club Botafogo won the Copa Libertadores — South America&#8217;s equivalent of the Champions League — for the first time in their 123-year history, despite having a player sent-off in the first minute of Saturday&#8217;s final against Atletico Mineiro.`\
+https://nytimes.com/athletic/5959770/2024/12/01/botafogo-copa-libertadores-club-world-cup/
+
 **A Unique Night at the Opera**\
 `At the Metropolitan Opera with Angelina Jolie.`\
 https://nytimes.com/2024/12/01/briefing/opera-maria-angelina-jolie.html
 
-**The USWNT need 'to build better connections'. Fortunately, doing that may be straightforward**\
+**The USWNT needs 'to build better connections'. Fortunately, doing that may be straightforward**\
 `Against England, the USWNT failed to score for the second time under Emma Hayes, but there are reasons to be positive about the attack`\
 https://nytimes.com/athletic/5959670/2024/12/01/england-women-uswnt-reaction/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5959272/2024/12/01/leeds-farke-substitutes-gnonto-b
 **What we learned about the College Football Playoff: Who’s in? Who’s safe? Who’s on bubble?**\
 `We have some clarity on the CFP field going into championship weekend. Ohio State, Georgia appear safe. Indiana, Miami should root for SMU.`\
 https://nytimes.com/athletic/5959606/2024/12/01/college-football-playoff-week-14-sec-big-12-clemson/
-
-**Matt Campbell, Iowa State reach new heights after working through 'gut-wrenching' process**\
-`The Cyclones (10-2) will face Arizona State (10-2) next Saturday for the Big 12 championship and a shot at the College Football Playoff.`\
-https://nytimes.com/athletic/5959656/2024/12/01/iowa-state-kansas-state-big-12-championship-game/
-
-**Snyder: Everything Penn State wants is suddenly right here — including a path to No. 1 seed**\
-`The focus for PSU has been on getting to host a first-round game. But with a win over Oregon, it could end up getting a first-round bye.`\
-https://nytimes.com/athletic/5959466/2024/12/01/penn-state-college-football-playoff-host-oregon-big-ten/
 
