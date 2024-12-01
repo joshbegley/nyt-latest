@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5960522/2024/12/01/ap-top-25-rankings-ohio-state-mi
 `Manchester City manager Pep Guardiola says he did not expect to hear “sacked in the morning” chants from Liverpool fans during his side’s 2-0 defeat at Anfield.`\
 https://nytimes.com/athletic/5960609/2024/12/01/pep-guardiola-anfield-six-liverpool-manchester-city/
 
-**Lions signing S Jamal Adams to practice squad: Source**\
+**Lions signing safety Jamal Adams to practice squad: Source**\
 `The signing comes with an understanding that Adams will be elevated to Detroit's active roster.`\
 https://nytimes.com/athletic/5960526/2024/12/01/jamal-adams-lions-signing/
 
