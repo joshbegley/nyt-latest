@@ -1,3 +1,7 @@
+**Portzline: David Jiricek's skating concerns were enough for Blue Jackets to trade him**\
+`Blue Jackets general manager Don Waddell was wise to move Jiricek now, before his inability to crack the NHL became a bigger concern.`\
+https://nytimes.com/athletic/5959028/2024/11/30/david-jiricek-blue-jackets-trade/
+
 **Michigan's mastery over Ohio State and Ryan Day continues: 'We own you'**\
 `The Wolverines' mental edge over the Buckeyes is worth at least 14 points. Or maybe 21, which was the pregame point spread.`\
 https://nytimes.com/athletic/5959083/2024/11/30/michigan-ohio-state-ryan-day-sherrone-moore/
