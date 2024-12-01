@@ -1,3 +1,7 @@
+**Until Saturday: Fight-filled Saturday shakes up CFP race: Plus, the upside-down Big 12**\
+`Welcome to Until Saturday, the five-star college football newsletter: Fight-filled Saturday shakes up College Football Playoff race.`\
+https://nytimes.com/athletic/5954034/2024/12/01/college-football-fights-week-14-until-saturday/
+
 **The Lake-Effect Snowstorm Enveloping the Northeast and Midwest: What We Know**\
 `The storm dumped several feet of snow and disrupted post-Thanksgiving travel in the Great Lakes states and New York. More snow is expected in the coming days.`\
 https://nytimes.com/2024/12/01/us/lake-effect-snowstorm-weather-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/opinion/ai-doctors-diagnosis.html
 **Sardine Pasta Puttanesca, Plenty Punchy**\
 `Sohla El-Waylly’s recipe is about as far from Thanksgiving as you can get. And on the Sunday after Thanksgiving, that’s exactly what’s required.`\
 https://nytimes.com/2024/12/01/dining/sardine-pasta-puttanesca-more-recipes.html
-
-**The Pulse: Upset of the year! And a lesson**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/5960119/2024/12/01/ohio-state-michigan-ryan-day-the-pulse/
 
