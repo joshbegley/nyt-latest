@@ -1,3 +1,7 @@
+**NFL Week 13 takeaways: Are Chargers a Super Bowl threat? Is Russell Wilson the Steelers’ long-term answer?**\
+`Plus, what to make of good teams’ close wins over bad opponents.`\
+https://nytimes.com/athletic/5961147/2024/12/01/nfl-week-13-scores-takeaways-chargers-russell-wilson-steelers/
+
 **Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
 `Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
 `\
