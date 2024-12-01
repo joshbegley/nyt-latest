@@ -1,3 +1,11 @@
+**Heavy Snowfall Blankets Parts of the Great Lakes Region**\
+`States braced for more whiteout conditions in the coming days as a lake-effect storm dropped several feet of snow in parts of the region by the early weekend.`\
+https://nytimes.com/video/weather/100000009852706/great-lakes-snow-storm.html
+
+**Blue Jackets trade David Jiricek to Wild for Daemon Hunt, draft picks**\
+`Jiricek, 21, was selected with the No. 6 pick in the 2022 NHL Draft but was unable to grab a regular spot in the Blue Jackets lineup.`\
+https://nytimes.com/athletic/5953370/2024/11/30/david-jiricek-trade-blue-jackets-wild/
+
 **Notre Dame holds off USC: Takeaways from a Playoff-clinching win for the Fighting Irish**\
 `USC made Notre Dame sweat, but the Irish made big plays at the right time and will end the regular season with 10 consecutive wins. `\
 https://nytimes.com/athletic/5958950/2024/11/30/notre-dame-usc-college-football-playoff/
