@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
 
+**Colts, Richardson rally late to beat Patriots 25-24: Key takeaways**\
+`Indianapolis improved its shot at the postseason with a wild win over New England at Gillette Stadium.
+`\
+https://nytimes.com/athletic/5960155/2024/12/01/colts-patriots-score-result-takeaways/
+
 **Seahawks rally past Jets 26-21 for third consecutive win: Takeaways**\
 `The game-winning score was Seattle’s best short-yardage play of the day — an 8-yard run by Charbonnet on third-and-1.`\
 https://nytimes.com/athletic/5960164/2024/12/01/seahawks-jets-score-result-takeaways/
