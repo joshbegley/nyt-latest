@@ -1,3 +1,11 @@
+**Jose Sa, some angry Wolves fans, and an incredibly fraught afternoon at Molineux**\
+`Goalkeeper Jose Sa remonstrated with angry supporters during a 4-2 defeat to Bournemouth that life at Molineux remains incredibly fraught`\
+https://nytimes.com/athletic/5958756/2024/12/01/wolves-bournemouth-jose-sa-fan/
+
+**Jared Spurgeon's heroics continue as Wild tie for most points in NHL: 3 takeaways vs. Predators**\
+`After their 3-2 overtime win over the Predators, the Wild tied the Jets for the league lead in the standings with 36 points in 24 games.`\
+https://nytimes.com/athletic/5959216/2024/12/01/wild-predators-jared-spurgeon-nhl/
+
 **Liverpool vs Man City dissected: The rivalry, key battles - and our predictions**\
 `What's the state of the rivalry? Which players are most feared? And who will win? Our experts debate the big questions`\
 https://nytimes.com/athletic/5957001/2024/12/01/liverpool-manchester-city-prediction-tactics/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/01/pageoneplus/quote-of-the-day-bittersweet-homecomi
 **Mexican Cartels Lure Chemistry Students to Make Fentanyl**\
 `Criminals turn college campuses into recruitment hubs, recruiting chemistry students in Mexico with big paydays.`\
 https://nytimes.com/2024/12/01/world/americas/mexico-fentanyl-chemistry-students.html
-
-**80 Years After Killings, Senegal Wants the Facts From France**\
-`The mass slaying of West African soldiers by colonial forces at the end of World War II in Senegal remains shrouded in secrecy. But Senegal’s new government won’t abide the mystery.`\
-https://nytimes.com/2024/12/01/world/africa/france-senegal-thiaroye-massacre.html
-
-**Liverpool vs Man City preview, odds, prediction: Reds aim for massive blow in title race**\
-`Liverpool already has an eight-point lead in the Premier League. Can the Reds extend that and put the title away in December?`\
-https://nytimes.com/athletic/5956971/2024/12/01/liverpool-manchester-city-preview-odds-prediction/
 
