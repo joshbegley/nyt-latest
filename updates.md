@@ -1,3 +1,7 @@
+**Big 12 Championship Game set: Arizona State vs. Iowa State for CFP spot**\
+`Arizona State was picked last in the preseason Big 12 media poll. Iowa State’s last league title came in 1912.`\
+https://nytimes.com/athletic/5959538/2024/12/01/big-12-championship-iowa-state-arizona-state/
+
 **Running Away From Trump’s America Is Complicated. I Should Know.**\
 `For Americans declaring they want to leave a Trump-led America, the best approach is to understand what you are running to, not from.`\
 https://nytimes.com/2024/12/01/opinion/trump-election-leaving-expat.html
