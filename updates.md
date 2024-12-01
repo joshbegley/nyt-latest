@@ -1,3 +1,7 @@
+**Review: This Is the First Must-See of the Met Opera’s Season**\
+`“Die Frau Ohne Schatten,” a dense ode to fertility, may not sound appealing at first. But in this performance, the fairy tale comes movingly to life.`\
+https://nytimes.com/2024/12/01/arts/music/strauss-frau-ohne-schatten-met-opera.html
+
 **Mikaela Shiffrin out indefinitely after injury while seeking 100th World Cup win**\
 `Shiffrin's "return to snow is TBD" after sustaining an injury Saturday during the giant slalom at a World Cup event in Vermont.`\
 https://nytimes.com/athletic/5960019/2024/12/01/star-skier-mikaela-shiffrin-out-indefinitely-after-injury-while-seeking-100th-world-cup-win/
