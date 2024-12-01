@@ -1,3 +1,8 @@
+**Maple Leafs' Nick Robertson gets monkey off his back — and hopes it's only the beginning**\
+`The 23-year-old left winger snapped his 12-game goal drought in the Maple Leafs' 5-3 win over the Lightning.
+`\
+https://nytimes.com/athletic/5959424/2024/11/30/maple-leafs-lightning-nick-robertson-goal/
+
 **What are the biggest leads to be overturned in a Premier League title race?**\
 `What some of the Premier League's great title comebacks tell us about Liverpool's current lead`\
 https://nytimes.com/athletic/5948946/2024/12/01/biggest-premier-league-title-race-leads-overturned/
