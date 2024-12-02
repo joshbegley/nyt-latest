@@ -1,3 +1,7 @@
+**Clashes at Soccer Match Kill Dozens in Guinea**\
+`It was unclear on Sunday how many people were killed, but at least one estimate neared 100 people.`\
+https://nytimes.com/2024/12/01/world/africa/guinea-soccer-match-violence-deaths.html
+
 **The extraordinary action comes in the final weeks of Biden’s presidency.**\
 `The pardon comes weeks before President Biden leaves office and transfers power to President-elect Donald J. Trump, who spent years attacking Hunter Biden over his legal and personal issues.`\
 https://nytimes.com/live/2024/12/01/us/hunter-biden-pardon-live/biden-pardon-son

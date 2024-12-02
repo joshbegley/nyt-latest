@@ -1,3 +1,7 @@
+**Clashes at Soccer Match Kill Dozens in Guinea**\
+`It was unclear on Sunday how many people were killed, but at least one estimate neared 100 people.`\
+https://nytimes.com/2024/12/01/world/africa/guinea-soccer-match-violence-deaths.html
+
 **Despite Patriots' loss, it's OK to be recklessly optimistic about rookie QB Drake Maye**\
 `Even as the losses mount for the Patriots, Maye continues to shine. Because the franchise got that pick right, the future is bright.`\
 https://nytimes.com/athletic/5961293/2024/12/01/drake-maye-patriots-colts-optimism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5961244/2024/12/01/falcons-kirk-cousins-four-interc
 **Syria’s Rebels Struck When Assad’s Allies Were Weakened and Distracted**\
 `Diminished support for the Syrian government from Iran, Hezbollah and Russia enabled opposition forces to take the initiative and seize new territory.`\
 https://nytimes.com/2024/12/01/world/middleeast/syria-rebels-bashar-al-assad.html
-
-**Kash Patel Would Bring Bravado and Baggage to F.B.I. Role**\
-`President-elect Donald J. Trump’s choice to run the F.B.I. has a record in and out of government that is likely to raise questions during his Senate confirmation hearings.`\
-https://nytimes.com/2024/12/01/us/politics/kash-patel-bravado-baggage-fbi.html
 
