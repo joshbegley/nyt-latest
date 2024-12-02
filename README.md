@@ -30,8 +30,8 @@ https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinal
 `In a game the Colts had to have to keep their postseason dreams alive, Richardson marched them 80 yards on 19 plays and pulled out a win.`\
 https://nytimes.com/athletic/5961674/2024/12/01/anthony-richardson-colts-win-drive-patriots/
 
-**49ers' Christian McCaffrey (knee) questionable to return vs. Bills**\
-`McCaffrey had seven carries for 53 yards before exiting Sunday night's game.`\
+**49ers' Christian McCaffrey out vs. Bills with knee injury**\
+`McCaffrey had seven carries for 53 yards before exiting Sunday night's game in the second quarter.`\
 https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injury-49ers-bills/
 
 **Hunter Biden Faced Prison Time for Tax and Gun Charges**\

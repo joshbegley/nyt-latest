@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5961497/2024/12/01/jayden-daniels-commanders-win-ti
 `Six different Columbus players scored against the Blackhawks on the second game of the road trip for a 6-3 win.`\
 https://nytimes.com/athletic/5961443/2024/12/01/blue-jackets-rout-werenski-blackhawks/
 
-**Vikings latest victory against Cardinals conjures thoughts of 2022 playoff team**\
+**Vikings' latest victory against Cardinals conjures thoughts of 2022 playoff team**\
 `With the Vikings' penchant for narrow victories, it's easy to draw connections to the team of two years ago. But this group is better.`\
 https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinals/
 

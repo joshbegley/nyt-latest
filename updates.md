@@ -1,3 +1,7 @@
+**Vikings' latest victory against Cardinals conjures thoughts of 2022 playoff team**\
+`With the Vikings' penchant for narrow victories, it's easy to draw connections to the team of two years ago. But this group is better.`\
+https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinals/
+
 **If Aaron Rodgers just played his last game for the Jets, it might have been his worst**\
 `The quarterback was at the center of yet another inexplicable loss.`\
 https://nytimes.com/athletic/5961469/2024/12/01/aaron-rodgers-possible-benching-seahawks-loss/
