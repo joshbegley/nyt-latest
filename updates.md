@@ -1,3 +1,7 @@
+**The Friendship Behind ‘Annie Hall’ and ‘Manhattan’**\
+`In a Q&A, Woody Allen describes the years spent collaborating with his friend Marshall Brickman on beloved movies. Mr. Brickman died on Friday.`\
+https://nytimes.com/2024/12/02/movies/woody-allen-marshall-brickman-q-and-a.html
+
 **Elon Musk’s $50 Billion Tesla Pay Can’t Be Reinstated, Delaware Judge Rules**\
 `The judge said she would not reverse her decision to strike down the compensation package after Tesla shareholders approved Mr. Musk’s pay a second time.`\
 https://nytimes.com/2024/12/02/business/elon-musk-tesla-pay-ruling.html
