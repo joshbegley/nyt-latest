@@ -1,3 +1,7 @@
+**49ers' Christian McCaffrey out vs. Bills with knee injury**\
+`McCaffrey had seven carries for 53 yards before exiting Sunday night's game in the second quarter.`\
+https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injury-49ers-bills/
+
 **Vikings' latest victory against Cardinals conjures thoughts of 2022 playoff team**\
 `With the Vikings' penchant for narrow victories, it's easy to draw connections to the team of two years ago. But this group is better.`\
 https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinals/
