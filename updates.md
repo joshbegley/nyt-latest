@@ -1,3 +1,11 @@
+**Kelly and Kirby withdraw from England squad**\
+`England’s Chloe Kelly and Fran Kirby will be unavailable for the Lionesses’ friendly against Switzerland at Bramall Lane on Tuesday.`\
+https://nytimes.com/athletic/5962712/2024/12/02/chloe-kelly-fran-kirby-england-squad/
+
+**Qatar Grand Prix: Submit your questions for our F1 mailbag**\
+`Twenty-three races in, Formula One still finds ways to keep us talking.`\
+https://nytimes.com/athletic/5962711/2024/12/02/qatar-grand-prix-submit-your-questions-for-our-f1-mailbag/
+
 **The Athletic FC: Can anyone catch Liverpool? Fiorentina's Bove in intensive care**\
 `Today in TAFC: Liverpool go nine points clear at Premier League's summit, Bove loses consciousness in Fiorentina match against Inter.`\
 https://nytimes.com/athletic/5962542/2024/12/02/liverpool-man-city-title-race-bove-fiorentina/
