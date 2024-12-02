@@ -18,8 +18,8 @@ https://nytimes.com/2024/12/01/us/politics/hunter-biden-pardon-recommendation.ht
 `Hudson's lack of playing time and production was a stark contrast to the expectations that surrounded him when he arrived.`\
 https://nytimes.com/athletic/5961791/2024/12/01/micah-hudson-transfer-portal-texas-tech/
 
-**In Pardoning His Son, Biden Sounds a Lot Like Trump**\
-`The president complained about selective prosecution and political pressure in a system he has spent his political life defending.`\
+**In Pardoning His Son, Biden Echoes Some of Trump’s Complaints**\
+`President Biden complained about selective prosecution and political pressure in a system he has spent his public life defending.`\
 https://nytimes.com/2024/12/01/us/politics/biden-hunter-pardon-politics.html
 
 **Commanders get back to having fun in blowout of Titans: 'Winning helps a lot'**\

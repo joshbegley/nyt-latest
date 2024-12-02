@@ -1,3 +1,7 @@
+**In Pardoning His Son, Biden Echoes Some of Trump’s Complaints**\
+`President Biden complained about selective prosecution and political pressure in a system he has spent his public life defending.`\
+https://nytimes.com/2024/12/01/us/politics/biden-hunter-pardon-politics.html
+
 **Canadiens continue to counter progress with steps back to their former generous selves**\
 `Allowing three goals in 70 seconds doesn't erase the Canadiens' improvements, but serves as a reminder they are still learning how to win.`\
 https://nytimes.com/athletic/5961958/2024/12/01/canadiens-guhle-defensive-breakdowns-bruins/
