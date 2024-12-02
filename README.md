@@ -1,3 +1,7 @@
+**Mayfield expected to play in Week 14 after injury scare**\
+`Tampa Bay is tied for the lead in the NFC South as Mayfield looks to guide the team to a fourth consecutive division title. `\
+https://nytimes.com/athletic/5964030/2024/12/02/baker-mayfield-leg-injury-update-buccaneers/
+
 **New York Philharmonic Looks to Philadelphia for Its Next Leader**\
 `Matías Tarnopolsky, who manages the Philadelphia Orchestra, will come to New York as the Philharmonic works to recover from a trying period.`\
 https://nytimes.com/2024/12/02/arts/music/new-york-philharmonic-leader-matias-tarnopolsky.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/12/02/arts/music/new-york-philharmonic-leader-matias-ta
 `Market forces aren’t enough. These three organizations help get more people into good jobs.`\
 https://nytimes.com/2024/12/02/opinion/charity-holiday-gift-jobs-employment.html
 
-**When Is Great Lakes Snow Going to End?**\
+**When Is the Great Lakes Snow Going to End?**\
 `Lake-effect snow has been piling up for days. It was winding down for many on Monday, but not everywhere.`\
 https://nytimes.com/2024/12/02/weather/snow-forecast.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/world/middleeast/hezbollah-israel-lebanon.html
 **WNBA releases 2025 schedule: matchups to watch**\
 `WNBA teams will play a record 44 games during the 2025 regular season, up from 40 in 2024.`\
 https://nytimes.com/athletic/5963889/2024/12/02/wnba-2025-schedule-released/
-
-**Stream These 6 Titles Before They Leave Netflix This Month**\
-`A bunch of movies and TV shows are leaving for U.S. subscribers by the end of December. Here’s a roundup of the best.`\
-https://nytimes.com/2024/12/02/arts/television/netflix-expiring-december.html
 
