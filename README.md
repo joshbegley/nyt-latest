@@ -1,40 +1,40 @@
-**The Athletic 134: Notre Dame vs. Penn State, and other resume toss-ups that matter**\
-`Figuring out the 12 CFP teams has become mostly pretty easy, but seeding those teams remains completely up in the air.`\
-https://nytimes.com/athletic/5962215/2024/12/02/college-football-team-fbs-rankings-regular-season/
+**Schumer Presses for F.B.I. Checks and Senate Consideration of Trump Nominees**\
+`In a letter, the Democratic leader said members of his party would work with Republicans to consider the president-elect’s nominees — but asserted they should undergo traditional Senate vetting.`\
+https://nytimes.com/2024/12/02/us/schumer-senate-fbi-checks-trump-nominees.html
 
-**Alpine confirms Doohan to make F1 debut in Abu Dhabi after Esteban Ocon exit**\
-`Alpine has announced that Jack Doohan will make his Formula One debut this weekend in Abu Dhabi, replacing Esteban Ocon.`\
-https://nytimes.com/athletic/5962464/2024/12/02/alpine-doohan-f1-abu-dhabi-esteban-ocon/
+**What Can the World’s Top Court Do About Climate Change?**\
+`The International Court of Justice, the United Nations’ highest judicial body, is beginning landmark hearings on global warming. Here’s a guide.`\
+https://nytimes.com/2024/12/02/world/icj-climate-change-opinion-hearings.html
 
-**James Harden is getting back to dominating games for the Clippers**\
-`Harden scored 39 points in LA's win over Denver while being a part of the offense instead of always being the driver of it.`\
-https://nytimes.com/athletic/5962383/2024/12/02/clippers-james-harden-dominating-games/
+**Trump Doubles Down on Defiance After the Collapse of the Matt Gaetz Selection**\
+`President-elect Donald J. Trump’s decision to install Kash Patel as F.B.I. director indicates that he remains undaunted by Washington resistance as he appoints ideological warriors, conspiracy theorists and even relatives.`\
+https://nytimes.com/2024/12/02/us/politics/trump-defiance-appointees.html
 
-**Closing Arguments to Begin in Subway Chokehold Trial**\
-`Daniel Penny was charged with manslaughter in the choking death of Jordan Neely, a homeless man who was shouting in a subway car, last year.`\
-https://nytimes.com/2024/12/02/nyregion/penny-trial-closings.html
+**Biden Targets China’s Chip Industry With Wider Trade Bans**\
+`New rules prohibit the sale of certain types of chips and equipment to China, in an effort to close loopholes and cement the Biden administration’s legacy in countering the U.S. rival.`\
+https://nytimes.com/2024/12/02/business/economy/biden-china-chips-exports.html
 
-**How a Right-Wing Schools Activist Started a Culture War in Manhattan**\
-`In March, Maud Maron introduced a resolution about transgender students’ participation in sports. The fallout has derailed a parent council in an overwhelmingly liberal district.`\
-https://nytimes.com/2024/12/02/nyregion/maud-maron-transgender-nyc-school-council.html
+**How Many Pairs of Black Pants Is Too Many?**\
+`A reader asks about the ideal number of black pants to own. Our fashion critic provides guidance on how many essential wardrobe pieces one should have.`\
+https://nytimes.com/2024/12/02/style/black-pants-wardrobe-basics.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/02/crosswords/spelling-bee-forum.html
+**The Artist Who Remembered Everything**\
+`The New York City writer and painter Joe Brainard comes alive in a new collection of letters.`\
+https://nytimes.com/2024/12/02/books/review/joe-brainard-letters.html
 
-**Liverpool near perfection as Manchester City continue to be engulfed by a perfect storm**\
-`It's too early for the title race to be over, but Liverpool's serenity and control under Arne Slot makes them huge favourites `\
-https://nytimes.com/athletic/5962112/2024/12/02/liverpool-manchester-city-premier-league-title-race/
+**Distrustful of Health Agencies, These Voters Cheer Trump’s Picks to Run Them**\
+`Some voters galvanized by Robert F. Kennedy Jr.’s pledge to “Make America Healthy Again” said they believed the health establishment was dismissive and even corrupt.`\
+https://nytimes.com/2024/12/02/us/distrustful-of-health-agencies-these-voters-cheer-trumps-picks-to-run-them.html
 
-**Word of the Day: equable**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/02/learning/word-of-the-day-equable.html
+**Momma Rose’s Many Faces, From Ethel Merman to Audra McDonald**\
+`In her various incarnations, the “Gypsy” character is always loud, always scary, but so different. Ben Brantley reflects on all the onstage Roses he has known.`\
+https://nytimes.com/2024/12/02/theater/gypsy-audra-mcdonald-broadway.html
 
-**Arne Slot's calm authority has taken Liverpool to another level**\
-`Liverpool haven't outclassed Manchester City so comprehensively throughout a contest quite like they did on Sunday`\
-https://nytimes.com/athletic/5960853/2024/12/02/arne-slot-liverpool-perfect-week/
+**Chilling Out in Coral Bay, Where Even Flip-Flops Are Optional**\
+`On the east side of St. John, it’s still possible to experience the quiet, backwater vibe that this Caribbean island has long been known for, even after two devastating hurricanes and a surge in tourism.`\
+https://nytimes.com/2024/12/02/travel/st-john-caribbean-usvi.html
 
-**I’m One of the Last Doctors in This Hospital in Gaza. I’m Begging the World for Help.**\
-`Most of the medical staff at Kamal Adwan Hospital is gone. One of the last doctors working there shares his story.`\
-https://nytimes.com/2024/12/02/opinion/gaza-hospital-kamal-adwan.html
+**How Do You Like That Filibuster Now?**\
+`The Senate can take steps to remain an independent power center in Trump’s Washington.`\
+https://nytimes.com/2024/12/02/opinion/donald-trump-senate.html
 
