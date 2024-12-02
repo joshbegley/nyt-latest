@@ -1,3 +1,11 @@
+**Greenberg: Kevin Warren shows he's in charge as Bears try to find latest coaching savior**\
+`As GM Ryan Poles sat quietly, the team's president/CEO said they'll work diligently and "in tandem" to determine the Bears' next head coach.`\
+https://nytimes.com/athletic/5964353/2024/12/02/chicago-bears-coach-kevin-warren-ryan-poles/
+
+**Clay Holmes could start, Luis Robert Jr.'s trade market and other rumblings**\
+`If Holmes decides to pursue a starting job, he will join former relievers such as Seth Lugo, Reynaldo López and Jordan Hicks.`\
+https://nytimes.com/athletic/5964631/2024/12/02/clay-holmes-mlb-offseason-news/
+
 **Kash Patel Has Plan to Remake the F.B.I. Into a Tool of Trump**\
 `President-elect Donald Trump’s pick to lead the F.B.I. has called for firing the agency’s top officials, shutting down its Washington headquarters and prosecuting leakers and journalists.`\
 https://nytimes.com/2024/12/02/us/politics/kash-patel-fbi.html
