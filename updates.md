@@ -1,3 +1,15 @@
+**Salah open to one-year Liverpool contract extension, frustrated at club's handling of talks**\
+`Mohamed Salah would accept a new one-year contract at Liverpool but is growing increasingly exasperated at the club’s handling of negotiations.`\
+https://nytimes.com/athletic/5962924/2024/12/02/liverpool-mohamed-salah-contract-new/
+
+**An Arctic Hamlet is Sinking Into the Thawing Permafrost**\
+`Canada is losing its permafrost to climate change. The Indigenous residents of Tuktoyaktuk know they’ll have to move but don’t agree on when.`\
+https://nytimes.com/2024/12/02/world/americas/canada-arctic-permafrost-thawing.html
+
+**Scoop City: Risers and fallers after Week 13**\
+`A quick look at the MVP-level performances of Josh Allen and Joe Burrow, while the Steelers, Eagles and Vikings continue to rise.`\
+https://nytimes.com/athletic/5963153/2024/12/02/week-13-risers-fallers-nfl-takeaways-scoop-city/
+
 **Jewish Museum Acquires Never-Shown Entry to Venice Biennale**\
 `Ruth Patir refused to display her video installation at the Israel pavilion until a cease-fire and hostage agreement was reached. “(M)otherland” will debut in Tel Aviv.`\
 https://nytimes.com/2024/12/02/arts/design/ruth-patir-jewish-museum-israel-pavilion.html
