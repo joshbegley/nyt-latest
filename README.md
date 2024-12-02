@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5961534/2024/12/01/bruins-marchand-centennial-game-
 https://nytimes.com/athletic/5961527/2024/12/01/chargers-win-tarheeb-still-derwin-james-falcons/
 
 **No choice remains: Bengals must blow up everything on defense**\
-`A 44-38 loss to the Steelers Sunday was was possibly the death knell in a season of high hopes and the defense is once again to blame.`\
+`A 44-38 loss to the Steelers on Sunday was possibly the death knell in a season of high hopes, and the defense was once again to blame.`\
 https://nytimes.com/athletic/5961472/2024/12/01/bengals-loss-defense-steelers/
 
 **LA Galaxy's Riqui Puig will miss MLS Cup with torn ACL**\
