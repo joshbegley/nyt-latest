@@ -1,3 +1,7 @@
+**Long throws, a sloping pitch and a portacabin: What Spurs can expect from Tamworth**\
+`The Athletic's Leicester City reporter Rob Tanner previously covered Tamworth. He explains what awaits Tottenham and their fans`\
+https://nytimes.com/athletic/5964354/2024/12/02/tamworth-tottenham-fa-cup/
+
 **David Jiricek makes a big first impression on Wild teammates: 'Holy s---, he’s tall'**\
 `“I’m excited,” Jiricek said. “I heard it’s a hockey state, so that’s the first thing I know. And the second is it’s frickin’ cold out here."`\
 https://nytimes.com/athletic/5964517/2024/12/02/david-jiricek-wild-trade-first-impression/
