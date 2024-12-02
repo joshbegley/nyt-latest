@@ -1,3 +1,15 @@
+**Steelers' George Pickens must 'grow up' after Week 13 penalties: Tomlin**\
+`Officials penalized the Steelers wide receiver twice for unsportsmanlike conduct in the team's win vs. Cincinnati.`\
+https://nytimes.com/athletic/5963193/2024/12/02/george-pickens-mike-tomlin-penalties-steelers/
+
+**Aaron Rodgers to remain Jets starting QB, Jeff Ulbrich says**\
+`When asked if that meant permanently or if it's a week-to-week decision, Jeff Ulbrich would only say: "He's our quarterback." `\
+https://nytimes.com/athletic/5963071/2024/12/02/aaron-rodgers-jets-qb-starter-season/
+
+**Elton John, After Eye Infection, Says He Couldn’t See His Own Musical**\
+`After a performance of “The Devil Wears Prada” in London, John told the crowd that the effects of an eye infection were continuing to limit his eyesight.`\
+https://nytimes.com/2024/12/02/arts/music/elton-john-eyesight.html
+
 **The Bounce: What's wrong with the Timberwolves?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5962868/2024/12/02/anthony-edwards-timberwolves-giannis-antetokounmpo-bucks-nba-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/02/arts/design/ruth-patir-jewish-museum-israel-pavil
 **Cubs sign pitcher Matthew Boyd to a two-year, $29 million contract: Source**\
 `Boyd is more of an upside play for the Cubs than a guarantee of quality innings. When he’s healthy and on the mound, he's been effective.`\
 https://nytimes.com/athletic/5963096/2024/12/02/cubs-matthew-boyd-free-agent-contract/
-
-**What you may have missed over the holiday weekend.**\
-`By Daniel Victor`\
-https://nytimes.com/live/2024/12/02/us/trump-news/what-you-may-have-missed-over-the-holiday-weekend
-
-**With ‘Sunset Boulevard,’ One Look Wasn’t Enough**\
-`A bare-bones revival of the Broadway musical grew on me with subsequent viewings, and the additional details I noticed bolstered my reporting.`\
-https://nytimes.com/2024/12/02/insider/sunset-boulevard-broadway-outdoor.html
-
-**Texans' Azeez Al-Shaair apologizes for late hit on Jaguars' Trevor Lawrence**\
-`The Texans linebacker said, "I genuinely didn’t see him sliding until it was too late. And it all happens in the blink of an eye."`\
-https://nytimes.com/athletic/5963004/2024/12/02/texans-azeez-al-shaair-apology-trevor-lawrence-jaguars/
 
