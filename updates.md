@@ -1,3 +1,7 @@
+**FIA explains decisions behind Norris’ Qatar F1 penalty, safety car timing**\
+`The FIA has explained the reasons behind Lando Norris’ severe penalty during Sunday’s Qatar Grand Prix and the delay in deploying the safety car.`\
+https://nytimes.com/athletic/5962528/2024/12/02/lando-norris-penalty-qatar-grand-prix/
+
 **Lions defensive depth chart: Key helpers, possible returners, notable injuries**\
 `The Lions keep losing defensive players to injury, but have acquired players to help fill the need.`\
 https://nytimes.com/athletic/5961781/2024/12/02/detroit-lions-defensive-depth-chart-injuries/

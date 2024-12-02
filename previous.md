@@ -1,3 +1,7 @@
+**FIA explains decisions behind Norris’ Qatar F1 penalty, safety car timing**\
+`The FIA has explained the reasons behind Lando Norris’ severe penalty during Sunday’s Qatar Grand Prix and the delay in deploying the safety car.`\
+https://nytimes.com/athletic/5962528/2024/12/02/lando-norris-penalty-qatar-grand-prix/
+
 **Lions defensive depth chart: Key helpers, possible returners, notable injuries**\
 `The Lions keep losing defensive players to injury, but have acquired players to help fill the need.`\
 https://nytimes.com/athletic/5961781/2024/12/02/detroit-lions-defensive-depth-chart-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5961238/2024/12/02/penn-state-oregon-college-footba
 **Trump Doubles Down on Defiance After the Collapse of the Matt Gaetz Selection**\
 `President-elect Donald J. Trump’s decision to install Kash Patel as F.B.I. director indicates that he remains undaunted by Washington resistance as he appoints ideological warriors, conspiracy theorists and even relatives.`\
 https://nytimes.com/2024/12/02/us/politics/trump-defiance-appointees.html
-
-**Biden Targets China’s Chip Industry With Wider Trade Bans**\
-`New rules prohibit the sale of certain types of chips and equipment to China, in an effort to close loopholes and cement the Biden administration’s legacy in countering the U.S. rival.`\
-https://nytimes.com/2024/12/02/business/economy/biden-china-chips-exports.html
 
