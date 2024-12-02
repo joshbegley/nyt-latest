@@ -1,3 +1,11 @@
+**Oklahoma hiring away Washington State's 29-year-old OC**\
+`Arbuckle has spent the last two seasons at Washington State, directing offenses that ranked in the top 20 nationally in yards per play.`\
+https://nytimes.com/athletic/5964537/2024/12/02/oklahoma-hiring-washington-states-ben-arbuckle-29-as-new-offensive-coordinator/
+
+**A Question No One Was Asking: What if Elon Musk Was on the Bulls?**\
+`Scottie Pippen, a basketball star turned crypto fanatic, posted about how many championships Chicago would have won with Mr. Musk. The answers weren’t kind.`\
+https://nytimes.com/2024/12/02/style/scottie-pippen-elon-musk-bulls.html
+
 **FAU expected to hire Texas Tech OC Zach Kittley as coach: Source**\
 `Zach Kittley will replace Tom Herman as head coach of FAU after three seasons as Texas Tech's offensive coordinator.`\
 https://nytimes.com/athletic/5964064/2024/12/02/zach-kittley-florida-atlantic-football-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/briefing/biden-pardon-syria-france.html
 **Giants' Dexter Lawrence out for rest of season with elbow injury**\
 `The 2019 first-round pick has lived up to the lucrative contract he garnered this offseason picking up nine sacks in 2024.`\
 https://nytimes.com/athletic/5964338/2024/12/02/dexter-lawrence-giants-ir/
-
-**Mikaela Shiffrin out 'a few weeks minimum' after fall during World Cup race**\
-`Shiffrin said Monday she was thankful to avoid worse after her fall Saturday during the giant slalom at a World Cup event in Vermont.`\
-https://nytimes.com/athletic/5960019/2024/12/02/star-skier-mikaela-shiffrin-out-indefinitely-after-injury-while-seeking-100th-world-cup-win/
-
-**G.M. Will Sell Stake in E.V. Battery Plant to Its Partner LG**\
-`LG Energy Solution will now solely own a factory in Michigan that it had planned to operate through a joint venture with General Motors.`\
-https://nytimes.com/2024/12/02/business/gm-ev-batteries-lg.html
 
