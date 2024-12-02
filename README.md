@@ -1,3 +1,7 @@
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`After a disappointing performance and draw at the weekend, post your Newcastle-related questions to Chris`\
+https://nytimes.com/athletic/5962489/2024/12/02/inside-newcastle-q-and-a/
+
 **Kelly and Kirby withdraw from England squad**\
 `England’s Chloe Kelly and Fran Kirby will be unavailable for the Lionesses’ friendly against Switzerland at Bramall Lane on Tuesday.`\
 https://nytimes.com/athletic/5962712/2024/12/02/chloe-kelly-fran-kirby-england-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960258/2024/12/02/fantasy-premier-league-gameweek-
 **U.N. Suspends Aid Deliveries Through Key Crossing in Gaza**\
 `The head of the United Nations agency for Palestinian refugees said it was pausing deliveries through the Kerem Shalom crossing because of safety concerns.`\
 https://nytimes.com/2024/12/02/world/middleeast/unrwa-aid-gaza.html
-
-**Weekend NHL rankings: Rangers, Kraken, a November blockbuster and a new Top 5 team**\
-`The Blue Jackets and Wild added a bit of unexpected spice to late November with the David Jiricek trade. Let’s dive into it a little deeper.`\
-https://nytimes.com/athletic/5961765/2024/12/02/nhl-weekend-rankings-rangers-kraken-jiricek/
 
