@@ -1,3 +1,11 @@
+**Trump Says There Will Be ‘Hell to Pay’ Unless Hostages in Gaza Are Released**\
+`President-elect Donald J. Trump said in a social media post on Monday that the hostages must be released  before his inauguration in January.`\
+https://nytimes.com/2024/12/02/world/middleeast/trump-gaza-hostages-inauguration.html
+
+**A Second-Rate Crime Gets a Second-Rate Pardon**\
+`At least Joe didn’t make Hunter ambassador to a major international ally.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/hunter-biden-pardon
+
 **Prime Tire: F1's season finale showdown**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/5964178/2024/12/02/abu-dhabi-grand-prix-f1-prime-tire/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5964030/2024/12/02/baker-mayfield-leg-injury-update
 **New York Philharmonic Looks to Philadelphia for Its Next Leader**\
 `Matías Tarnopolsky, who manages the Philadelphia Orchestra, will come to New York as the Philharmonic works to recover from a trying period.`\
 https://nytimes.com/2024/12/02/arts/music/new-york-philharmonic-leader-matias-tarnopolsky.html
-
-**How You Can Help People Get Good Jobs**\
-`Market forces aren’t enough. These three organizations help get more people into good jobs.`\
-https://nytimes.com/2024/12/02/opinion/charity-holiday-gift-jobs-employment.html
-
-**When Is the Great Lakes Snow Going to End?**\
-`Lake-effect snow has been piling up for days. It was winding down for many on Monday, but not everywhere.`\
-https://nytimes.com/2024/12/02/weather/snow-forecast.html
 
