@@ -1,3 +1,7 @@
+**Helping Students Find Their Way to College**\
+`One Goal is a resource for students who are entering college without the benefits of family wealth.`\
+https://nytimes.com/2024/12/02/opinion/communities-fund-one-goal.html
+
 **A Pardon for Hunter Biden**\
 `President Biden and President-elect Donald Trump now agree on one thing: The Justice Department has been politicized.`\
 https://nytimes.com/2024/12/02/briefing/a-pardon-for-hunter-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/podcasts/hunter-biden-pardon-trump-fbi-syria-civi
 **Are the Dolphins soft? The answer might be hiding in plain sight**\
 `Miami is 1-10 in its last 11 games against winning teams, including some blowout losses, but that doesn't tell the full picture.`\
 https://nytimes.com/athletic/5962454/2024/12/02/dolphins-loss-mike-mcdaniel-tua-tagovailoa/
-
-**Russell Wilson and the Steelers offense's sensational day (and the immense implications)**\
-`Wilson's success raises questions about his future as a pending free agent, and that's not the only possible change in Pittsburgh.`\
-https://nytimes.com/athletic/5962443/2024/12/02/russell-wilson-steelers-bengals-arthur-smith/
 
