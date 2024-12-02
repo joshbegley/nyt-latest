@@ -1,3 +1,7 @@
+**Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
+`What are your thoughts on the coaching staff? Drake Maye's ceiling? Submit your Patriots questions here.`\
+https://nytimes.com/athletic/5963568/2024/12/02/patriots-bye-week-mailbag-drake-maye/
+
 **FA Cup third-round draw: Arsenal vs Man Utd, Tamworth vs Spurs**\
 `FA Cup holders Manchester United will play away to Arsenal in the third round of the 2024-25 competition.`\
 https://nytimes.com/athletic/5963546/2024/12/02/fa-cup-third-round-draw-arsenal-manchester-united/

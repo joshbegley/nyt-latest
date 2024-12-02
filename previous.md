@@ -1,3 +1,7 @@
+**Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
+`What are your thoughts on the coaching staff? Drake Maye's ceiling? Submit your Patriots questions here.`\
+https://nytimes.com/athletic/5963568/2024/12/02/patriots-bye-week-mailbag-drake-maye/
+
 **FA Cup third-round draw: Arsenal vs Man Utd, Tamworth vs Spurs**\
 `FA Cup holders Manchester United will play away to Arsenal in the third round of the 2024-25 competition.`\
 https://nytimes.com/athletic/5963546/2024/12/02/fa-cup-third-round-draw-arsenal-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5961422/2024/12/02/watch-nba-warriors-nuggets-knick
 **UConn drops from No. 2 to No. 25 in AP Top 25 after winless Maui trip**\
 `Kansas held onto the No. 1 spot in the Top 25 on the strength of a tightly contested win over Duke in Las Vegas.`\
 https://nytimes.com/athletic/5963257/2024/12/02/ap-mens-basketball-top-25-rankings-uconn/
-
-**Bob Bryar, Former Drummer for My Chemical Romance, Dies at 44**\
-`Mr. Bryar joined the band in 2004 and played drums on the pop-punk band’s most popular record. He left the band in 2010.`\
-https://nytimes.com/2024/12/02/arts/music/bob-bryar-dead-my-chemical-romance.html
 
