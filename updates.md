@@ -1,3 +1,7 @@
+**Hunter Biden Faced Prison Time for Tax and Gun Charges**\
+`The president’s son had pleaded guilty to nine federal tax charges and was convicted of three felony counts for lying on a federal firearms application.`\
+https://nytimes.com/2024/12/01/us/politics/hunter-biden-crimes.html
+
 **The Steelers needed their offense to carry them. Russell Wilson answered the call**\
 `Despite a bad break early, Wilson outdueled Joe Burrow and the Bengals offense with one of the best games of his career.`\
 https://nytimes.com/athletic/5961511/2024/12/01/steelers-win-russell-wilson-bengals/

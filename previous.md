@@ -1,3 +1,7 @@
+**Hunter Biden Faced Prison Time for Tax and Gun Charges**\
+`The president’s son had pleaded guilty to nine federal tax charges and was convicted of three felony counts for lying on a federal firearms application.`\
+https://nytimes.com/2024/12/01/us/politics/hunter-biden-crimes.html
+
 **Donovan Mitchell's red-hot fourth quarter leads Cavaliers past Celtics**\
 `Mitchell scored a streak of 11 points in a row down the stretch as the Cavs overcame a 14-point deficit to beat the Celtics 115-111.`\
 https://nytimes.com/athletic/5961451/2024/12/01/cavaliers-celtics-donovan-mitchell-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5961472/2024/12/01/bengals-loss-defense-steelers/
 **LA Galaxy's Riqui Puig will miss MLS Cup with torn ACL**\
 `Puig suffered the injury in the second half of Saturday’s conference final and continued to play for over 30 minutes.`\
 https://nytimes.com/athletic/5961466/2024/12/01/riqui-puig-injury-mls-cup-galaxy/
-
-**Read Joe Biden’s Statement and His Grant of Clemency**\
-`President Biden issued the statement after signing a pardon for Hunter Biden Sunday night.`\
-https://nytimes.com/2024/12/01/us/politics/biden-pardon-hunter-statement.html
 
