@@ -1,3 +1,7 @@
+**Paqueta available vs Leicester, not set to give evidence in Brazil betting inquiry**\
+`West Ham United midfielder Lucas Paqueta is set to be available to face Leicester City on Tuesday as the club no longer expect him to give evidence to the Brazilian parliament for an inquiry into sports betting.`\
+https://nytimes.com/athletic/5963165/2024/12/02/lucas-paqueta-west-ham-leicester-availability/
+
 **The Windup: Snell's second chance**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/5963360/2024/12/02/blake-snell-dodgers-signed-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/health/hysterectomy-ovaries-women.html
 **Italy will host Davis Cup Finals from 2025 until 2028**\
 `The defending Davis Cup and Billie Jean King Cup champions will stage the finals of the men's event.`\
 https://nytimes.com/athletic/5963156/2024/12/02/davis-cup-finals-italy-host/
-
-**Steelers' George Pickens must 'grow up' after Week 13 penalties: Tomlin**\
-`Officials penalized the Steelers wide receiver twice for unsportsmanlike conduct in the team's win vs. Cincinnati.`\
-https://nytimes.com/athletic/5963193/2024/12/02/george-pickens-mike-tomlin-penalties-steelers/
 
