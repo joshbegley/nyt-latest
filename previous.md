@@ -32,7 +32,7 @@ https://nytimes.com/athletic/5963479/2024/12/02/canada-world-juniors-roster-sele
 
 **So Much for Trump’s Fantasy of a Quieter Middle East**\
 `If anything, old conflicts are heating up.`\
-https://nytimes.com/live/2024/11/26/opinion/thepoint/trump-mideast-syria-conflicts
+https://nytimes.com/2024/12/02/opinion/trump-mideast-syria-conflicts.html
 
 **LPGA commissioner Mollie Marcoux Samaan stepping down in January**\
 `Liz Moore, the LPGA’s chief legal and technology and corporate secretary, will be the interim commissioner.`\

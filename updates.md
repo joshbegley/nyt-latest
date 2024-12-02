@@ -1,3 +1,7 @@
+**So Much for Trump’s Fantasy of a Quieter Middle East**\
+`If anything, old conflicts are heating up.`\
+https://nytimes.com/2024/12/02/opinion/trump-mideast-syria-conflicts.html
+
 **FSU in talks with Nebraska's Tony White for defensive coordinator role**\
 `Florida State is in the midst of a total staff overhaul.`\
 https://nytimes.com/athletic/5963562/2024/12/02/florida-state-tony-white-defensive-coordinator/
