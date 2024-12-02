@@ -1,3 +1,11 @@
+**5 Women Win Reparations From Belgium for Crimes Under Colonial Rule**\
+`In a landmark case, a court ruled that the women, now in their 70s and 80s, who were taken from their parents in Belgian Congo, were victims of a crime against humanity.`\
+https://nytimes.com/2024/12/02/world/europe/5-women-win-reparations-from-belgium-for-crimes-under-colonial-rule.html
+
+**Trump Threatens ‘Hell to Pay’ Unless Gaza Hostages Are Freed Before Inauguration**\
+`President-elect Donald J. Trump said in a social media post on Monday that the hostages must be released before his inauguration in January.`\
+https://nytimes.com/2024/12/02/world/middleeast/trump-gaza-hostages-inauguration.html
+
 **Trump Says There Will Be ‘Hell to Pay’ Unless Hostages in Gaza Are Released**\
 `President-elect Donald J. Trump said in a social media post on Monday that the hostages must be released  before his inauguration in January.`\
 https://nytimes.com/2024/12/02/world/middleeast/trump-gaza-hostages-inauguration.html
