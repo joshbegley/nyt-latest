@@ -1,3 +1,7 @@
+**James Harden is getting back to dominating games for the Clippers**\
+`Harden scored 39 points in LA's win over Denver while being a part of the offense instead of always being the driver of it.`\
+https://nytimes.com/athletic/5962383/2024/12/02/clippers-james-harden-dominating-games/
+
 **Closing Arguments to Begin in Subway Chokehold Trial**\
 `Daniel Penny was charged with manslaughter in the choking death of Jordan Neely, a homeless man who was shouting in a subway car, last year.`\
 https://nytimes.com/2024/12/02/nyregion/penny-trial-closings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/arts/television/christmas-specials-plus-4-things-
 **West Ham's defence is porous. Julen Lopetegui must find solutions quickly**\
 `West Ham have kept three clean sheets in 13 league games. With a packed fixture list this month, the defence must improve`\
 https://nytimes.com/athletic/5958360/2024/12/02/west-ham-arsenal-lopetegui/
-
-**Toothless Newcastle need answers to scoring problem**\
-`If Newcastle had beaten Palace, it would have been a smash-and-grab win. They didn't have a shot on target. So where is it going wrong?`\
-https://nytimes.com/athletic/5958588/2024/12/02/newcastle-toothless-palace-premier-league/
 

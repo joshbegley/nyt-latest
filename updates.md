@@ -1,3 +1,7 @@
+**James Harden is getting back to dominating games for the Clippers**\
+`Harden scored 39 points in LA's win over Denver while being a part of the offense instead of always being the driver of it.`\
+https://nytimes.com/athletic/5962383/2024/12/02/clippers-james-harden-dominating-games/
+
 **I’m One of the Last Doctors in This Hospital in Gaza. I’m Begging the World for Help.**\
 `Most of the medical staff at Kamal Adwan Hospital is gone. One of the last doctors working there shares his story.`\
 https://nytimes.com/2024/12/02/opinion/gaza-hospital-kamal-adwan.html
