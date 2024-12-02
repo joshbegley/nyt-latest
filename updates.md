@@ -1,3 +1,11 @@
+**Trump Says There Will Be ‘Hell to Pay’ Unless Hostages in Gaza Are Released**\
+`President-elect Donald J. Trump said in a social media post on Monday that the hostages must be released  before his inauguration in January.`\
+https://nytimes.com/2024/12/02/world/middleeast/trump-gaza-hostages-inauguration.html
+
+**A Second-Rate Crime Gets a Second-Rate Pardon**\
+`At least Joe didn’t make Hunter ambassador to a major international ally.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/hunter-biden-pardon
+
 **What’s Behind the Protests in the Country of Georgia?**\
 `For days, pro-Western Georgians have clashed with police over the government’s plan to suspend plans for European Union membership.`\
 https://nytimes.com/2024/12/02/world/europe/protests-georgia-tbilisi.html
