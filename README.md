@@ -1,6 +1,14 @@
+**FSU in talks with Nebraska's Tony White for defensive coordinator role**\
+`Florida State is in the midst of a total staff overhaul.`\
+https://nytimes.com/athletic/5963562/2024/12/02/florida-state-tony-white-defensive-coordinator/
+
 **Director of ‘2000 Mules’ Acknowledges the Conspiratorial Film Was Flawed**\
 `The director, Dinesh D’Souza, who is facing a lawsuit over the documentary, admitted that an analysis used to make claims about election fraud that were later debunked had been faulty.`\
 https://nytimes.com/2024/12/02/us/politics/dinesh-dsouza-2000-mules-apology-trump.html
+
+**College Football Playoff 2024 projections: What now for Ohio State? No. 3 seed Boise State?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/02/college-football-playoff-projections-odds/
 
 **Syrian and Russian Fighter Jets Strike Areas Held by Rebel Forces**\
 `The airstrikes came as the rebel forces continued advancing in the west and northwest of Syria.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/26/opinion/thepoint/trump-mideast-syria-conflic
 **LPGA commissioner Mollie Marcoux Samaan stepping down in January**\
 `Liz Moore, the LPGA’s chief legal and technology and corporate secretary, will be the interim commissioner.`\
 https://nytimes.com/athletic/5963738/2024/12/02/lpga-mollie-marcoux-samaan-commissioner-departure/
-
-**A one-year contract for Salah is a no-brainer for FSG**\
-`If the Egyptian is ready to sign for another 12 months - even for vast wages - it feels a perfect solution for Liverpool`\
-https://nytimes.com/athletic/5963434/2024/12/02/mohamed-salah-liverpool-fsg-contract/
-
-**Dozens Killed at Soccer Match After Clashes in Guinea**\
-`The violence took place after some fans were unhappy with the referee’s decision and stormed the pitch, according to witnesses.`\
-https://nytimes.com/video/world/africa/100000009854141/guinea-soccer-match-violence.html
 
