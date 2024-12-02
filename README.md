@@ -1,3 +1,11 @@
+**Kelly and Kirby withdraw from England squad**\
+`England’s Chloe Kelly and Fran Kirby will be unavailable for the Lionesses’ friendly against Switzerland at Bramall Lane on Tuesday.`\
+https://nytimes.com/athletic/5962712/2024/12/02/chloe-kelly-fran-kirby-england-squad/
+
+**Qatar Grand Prix: Submit your questions for our F1 mailbag**\
+`Twenty-three races in, Formula One still finds ways to keep us talking.`\
+https://nytimes.com/athletic/5962711/2024/12/02/qatar-grand-prix-submit-your-questions-for-our-f1-mailbag/
+
 **The Athletic FC: Can anyone catch Liverpool? Fiorentina's Bove in intensive care**\
 `Today in TAFC: Liverpool go nine points clear at Premier League's summit, Bove loses consciousness in Fiorentina match against Inter.`\
 https://nytimes.com/athletic/5962542/2024/12/02/liverpool-man-city-title-race-bove-fiorentina/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/world/middleeast/unrwa-aid-gaza.html
 **Weekend NHL rankings: Rangers, Kraken, a November blockbuster and a new Top 5 team**\
 `The Blue Jackets and Wild added a bit of unexpected spice to late November with the David Jiricek trade. Let’s dive into it a little deeper.`\
 https://nytimes.com/athletic/5961765/2024/12/02/nhl-weekend-rankings-rangers-kraken-jiricek/
-
-**The Pulse: You have to see this touchdown**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5961805/2024/12/02/bills-49ers-josh-allen-snow-the-pulse/
-
-**Helping Students Find Their Way to College**\
-`One Goal is a resource for students who are entering college without the benefits of family wealth.`\
-https://nytimes.com/2024/12/02/opinion/communities-fund-one-goal.html
 
