@@ -1,3 +1,7 @@
+**Who Are the Rebels Leading the Offensive in Syria?**\
+`The group now advancing, Hayat Tahrir al-Sham, says it wants to replace the Assad government with one inspired by Islamic principles.`\
+https://nytimes.com/2024/12/02/world/middleeast/syria-rebels-hts-who-what.html
+
 **Coaching volatility, Rangers collapsing: What we learned about the NHL in November**\
 `It's no secret an NHL head coach isn't guaranteed much job security, but how does that compare to the other major leagues?`\
 https://nytimes.com/athletic/5961468/2024/12/02/nhl-coach-rangers-capitals-2024/
