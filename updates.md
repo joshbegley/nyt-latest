@@ -1,3 +1,7 @@
+**Tarheeb Still, Derwin James Jr. lift Chargers ever closer to playoff contention**\
+`The Chargers now have a 93 percent chance to make the playoffs, according to The Athletic's projection model. `\
+https://nytimes.com/athletic/5961527/2024/12/01/chargers-win-tarheeb-still-derwin-james-falcons/
+
 **Vikings latest victory against Cardinals conjures thoughts of 2022 playoff team**\
 `With the Vikings' penchant for narrow victories, it's easy to draw connections to the team of two years ago. But this group is better.`\
 https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinals/

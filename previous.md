@@ -1,7 +1,3 @@
-**Vikings latest victory against Cardinals conjures thoughts of 2022 playoff team**\
-`With the Vikings' penchant for narrow victories, it's easy to draw connections to the team of two years ago. But this group is better.`\
-https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinals/
-
 **Colts QB Anthony Richardson was 'special': Inside the drive that saved Indy's season**\
 `In a game the Colts had to have to keep their postseason dreams alive, Richardson marched them 80 yards on 19 plays and pulled out a win.`\
 https://nytimes.com/athletic/5961674/2024/12/01/anthony-richardson-colts-win-drive-patriots/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/01/us/politics/biden-pardon-political-pressure.html
 **Brad Marchand understands the stress and power of 100 years of Bruins history**\
 `The Bruins celebrated 100 years with a 6-3 victory over the Canadiens, and the gravity of the moment was not lost on the Boston captain.`\
 https://nytimes.com/athletic/5961534/2024/12/01/bruins-marchand-centennial-game-mcavoy-montreal/
+
+**Tarheeb Still, Derwin James Jr. lift Chargers ever closer to playoff contention**\
+`The Chargers now have a 93 percent chance to make the playoffs, according to The Athletic's projection model. `\
+https://nytimes.com/athletic/5961527/2024/12/01/chargers-win-tarheeb-still-derwin-james-falcons/
 
