@@ -1,3 +1,7 @@
+**David Jiricek makes a big first impression on Wild teammates: 'Holy s---, he’s tall'**\
+`“I’m excited,” Jiricek said. “I heard it’s a hockey state, so that’s the first thing I know. And the second is it’s frickin’ cold out here."`\
+https://nytimes.com/athletic/5964517/2024/12/02/david-jiricek-wild-trade-first-impression/
+
 **Ex-Kansas Police Detective Found Dead on First Day of His Trial**\
 `Roger Golubski, who had been accused of raping and terrorizing Black women, was found dead on his back porch on Monday as his federal trial was set to begin.`\
 https://nytimes.com/2024/12/02/us/kansas-detective-roger-golubski-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/style/scottie-pippen-elon-musk-bulls.html
 **FAU expected to hire Texas Tech OC Zach Kittley as coach: Source**\
 `Zach Kittley will replace Tom Herman as head coach of FAU after three seasons as Texas Tech's offensive coordinator.`\
 https://nytimes.com/athletic/5964064/2024/12/02/zach-kittley-florida-atlantic-football-coach/
-
-**Bruce Feldman's West Virginia coaching candidates: RichRod, Jimbo or the field?**\
-`This search could get very interesting thanks to a couple of West Virginians who figure to get consideration and could have strong support.`\
-https://nytimes.com/athletic/5963982/2024/12/02/west-virginia-football-coaching-search-candidates/
 

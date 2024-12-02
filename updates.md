@@ -1,3 +1,7 @@
+**David Jiricek makes a big first impression on Wild teammates: 'Holy s---, he’s tall'**\
+`“I’m excited,” Jiricek said. “I heard it’s a hockey state, so that’s the first thing I know. And the second is it’s frickin’ cold out here."`\
+https://nytimes.com/athletic/5964517/2024/12/02/david-jiricek-wild-trade-first-impression/
+
 **Ex-Kansas Police Detective Found Dead on First Day of His Trial**\
 `Roger Golubski, who had been accused of raping and terrorizing Black women, was found dead on his back porch on Monday as his federal trial was set to begin.`\
 https://nytimes.com/2024/12/02/us/kansas-detective-roger-golubski-dead.html
