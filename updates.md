@@ -1,3 +1,7 @@
+**FPL Gameweek 14 preview: Essential Arsenal and a Liverpool defensive bargain**\
+`Abdul Rehman reviews the main talking points from Gameweek 13 and looks ahead to a midweek Gameweek 14`\
+https://nytimes.com/athletic/5960258/2024/12/02/fantasy-premier-league-gameweek-14-preview-saka-gomez-isak/
+
 **Kelly and Kirby withdraw from England squad**\
 `England’s Chloe Kelly and Fran Kirby will be unavailable for the Lionesses’ friendly against Switzerland at Bramall Lane on Tuesday.`\
 https://nytimes.com/athletic/5962712/2024/12/02/chloe-kelly-fran-kirby-england-squad/
