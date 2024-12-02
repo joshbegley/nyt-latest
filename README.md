@@ -1,3 +1,11 @@
+**Brad Marchand understands the stress and power of 100 years of Bruins history**\
+`The Bruins celebrated 100 years with a 6-3 victory over the Canadiens, and the gravity of the moment was not lost on the Boston captain.`\
+https://nytimes.com/athletic/5961534/2024/12/01/bruins-marchand-centennial-game-mcavoy-montreal/
+
+**Tarheeb Still, Derwin James Jr. lift Chargers ever closer to playoff contention**\
+`The Chargers now have a 93 percent chance to make the playoffs, according to The Athletic's projection model. `\
+https://nytimes.com/athletic/5961527/2024/12/01/chargers-win-tarheeb-still-derwin-james-falcons/
+
 **No choice remains: Bengals must blow up everything on defense**\
 `A 44-38 loss to the Steelers Sunday was was possibly the death knell in a season of high hopes and the defense is once again to blame.`\
 https://nytimes.com/athletic/5961472/2024/12/01/bengals-loss-defense-steelers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5961293/2024/12/01/patriots-loss-drake-maye-colts/
 **Leonard Williams helps Seahawks escape Jets, bolstering playoff hopes**\
 `The Seahawks put themselves in a hole with a comedy of errors early, but Williams wouldn't let them lose to his former team.`\
 https://nytimes.com/athletic/5961319/2024/12/01/seahawks-win-leonard-williams-jets/
-
-**Rams overcome first-half shutout to beat Saints 21-14: Takeaways**\
-`Stafford tossed two touchdown passes in the final frame after the Rams were shut out 6-0 in the first half in New Orleans.`\
-https://nytimes.com/athletic/5960190/2024/12/01/rams-saints-score-result-takeaways-2/
-
-**The extraordinary action comes in the final weeks of Biden’s presidency.**\
-`The pardon comes weeks before President Biden leaves office and transfers power to President-elect Donald J. Trump, who spent years attacking Hunter Biden over his legal and personal issues.`\
-https://nytimes.com/live/2024/12/01/us/hunter-biden-pardon-live/biden-pardon-son
 
