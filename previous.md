@@ -1,3 +1,7 @@
+**WNBA releases 2025 schedule: matchups to watch**\
+`WNBA teams will play a record 44 games during the 2025 regular season, up from 40 in 2024.`\
+https://nytimes.com/athletic/5963889/2024/12/02/wnba-2025-schedule-released/
+
 **Stream These 6 Titles Before They Leave Netflix This Month**\
 `A bunch of movies and TV shows are leaving for U.S. subscribers by the end of December. Here’s a roundup of the best.`\
 https://nytimes.com/2024/12/02/arts/television/netflix-expiring-december.html
