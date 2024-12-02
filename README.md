@@ -1,3 +1,7 @@
+**Centrist Party Edges Out Far-Right Challengers in Romania**\
+`The center-left Social Democrats won the most votes in a parliamentary election but a strong nationalist showing could make it difficult to form a stable Western-oriented government.`\
+https://nytimes.com/2024/12/02/world/europe/romania-election-centrist-far-right.html
+
 **FIA explains decisions behind Norris’ Qatar F1 penalty, safety car timing**\
 `The FIA has explained the reasons behind Lando Norris’ severe penalty during Sunday’s Qatar Grand Prix and the delay in deploying the safety car.`\
 https://nytimes.com/athletic/5962528/2024/12/02/lando-norris-penalty-qatar-grand-prix/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/world/icj-climate-change-opinion-hearings.html
 **December madness is here: Initial thoughts on Penn State's matchup with Oregon for Big Ten title**\
 `Penn State has the star power to hang around with the No. 1 team in the country. But will it?`\
 https://nytimes.com/athletic/5961238/2024/12/02/penn-state-oregon-college-football-big-ten-championship/
-
-**Trump Doubles Down on Defiance After the Collapse of the Matt Gaetz Selection**\
-`President-elect Donald J. Trump’s decision to install Kash Patel as F.B.I. director indicates that he remains undaunted by Washington resistance as he appoints ideological warriors, conspiracy theorists and even relatives.`\
-https://nytimes.com/2024/12/02/us/politics/trump-defiance-appointees.html
 
