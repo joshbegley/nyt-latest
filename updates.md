@@ -1,3 +1,7 @@
+**Canadiens continue to counter progress with steps back to their former generous selves**\
+`Allowing three goals in 70 seconds doesn't erase the Canadiens' improvements, but serves as a reminder they are still learning how to win.`\
+https://nytimes.com/athletic/5961958/2024/12/01/canadiens-guhle-defensive-breakdowns-bruins/
+
 **‘Dune: Prophecy’ Season 1 Episode 3 Recap: The Meaning of Sacrifice**\
 `“Sisterhood above all” is the motto of Valya and Tula’s secretive organization, but its meaning seems to depend on which sister is saying it.`\
 https://nytimes.com/2024/12/01/arts/television/dune-prophecy-recap-season-1-episode-3.html
