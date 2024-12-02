@@ -1,3 +1,7 @@
+**How Biden Changed His Mind on Pardoning Hunter: ‘Time to End All of This’**\
+`The threat of a retribution-focused Trump administration and his son’s looming sentencings prompted the president to abandon a promise not to get involved in Hunter Biden’s legal problems.`\
+https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-decision.html
+
 **If Anyone Can Save the Democrats, It’s Ben Wikler**\
 `This Wisconsinite is the obvious choice for D.N.C. chair.`\
 https://nytimes.com/2024/12/02/opinion/ben-wikler-dnc-chair.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/us/politics/kash-patel-fbi.html
 **Shohei Ohtani to recover baseball cards seized from former interpreter Ippei Mizuhara**\
 `The cards were likely part of numerous ploys by Mizuhara to steal from Ohtani.`\
 https://nytimes.com/athletic/5964721/2024/12/02/shohei-ohtani-baseball-cards-recovery-ippei-mizuhara/
-
-**How Lou Anarumo and Zac Taylor are dissecting the Bengals' defensive downfall**\
-`The defensive coordinator and head coach say it's their responsibility but also that their message is still getting through to players.`\
-https://nytimes.com/athletic/5964621/2024/12/02/bengals-lou-anarumo-zac-taylor-defense/
 
