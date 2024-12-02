@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Well, it&#8217;s come to this. One more set of games to enjoy, one more set of committee rankings to be angry about.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5964906/2024/12/02/submit-a-question-for-stewart-mandels-college-football-mailbag-284/
+
 **How Biden Changed His Mind on Pardoning Hunter: ‘Time to End All of This’**\
 `The threat of a retribution-focused Trump administration and his son’s looming sentencings prompted the president to abandon a promise not to get involved in Hunter Biden’s legal problems.`\
 https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-decision.html
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/5964631/2024/12/02/clay-holmes-mlb-offseason-news/
 **Kash Patel Has Plan to Remake the F.B.I. Into a Tool of Trump**\
 `President-elect Donald Trump’s pick to lead the F.B.I. has called for firing the agency’s top officials, shutting down its Washington headquarters and prosecuting journalists.`\
 https://nytimes.com/2024/12/02/us/politics/kash-patel-fbi.html
-
-**Shohei Ohtani to recover baseball cards seized from former interpreter Ippei Mizuhara**\
-`The cards were likely part of numerous ploys by Mizuhara to steal from Ohtani.`\
-https://nytimes.com/athletic/5964721/2024/12/02/shohei-ohtani-baseball-cards-recovery-ippei-mizuhara/
 

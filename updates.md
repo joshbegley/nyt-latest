@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Well, it&#8217;s come to this. One more set of games to enjoy, one more set of committee rankings to be angry about.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5964906/2024/12/02/submit-a-question-for-stewart-mandels-college-football-mailbag-284/
+
 **How Biden Changed His Mind on Pardoning Hunter: ‘Time to End All of This’**\
 `The threat of a retribution-focused Trump administration and his son’s looming sentencings prompted the president to abandon a promise not to get involved in Hunter Biden’s legal problems.`\
 https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-decision.html
