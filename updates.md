@@ -1,3 +1,11 @@
+**Ex-Kansas Police Detective Found Dead on First Day of His Trial**\
+`Roger Golubski, who had been accused of raping and terrorizing Black women, was found dead on his back porch on Monday as his federal trial was set to begin.`\
+https://nytimes.com/2024/12/02/us/kansas-detective-roger-golubski-dead.html
+
+**49ers to place RBs McCaffrey, Mason on injured reserve**\
+`Rookie Isaac Guerendo is now atop the depth chart for San Francisco with the team's top backs all out.`\
+https://nytimes.com/athletic/5964497/2024/12/02/christian-mccaffrey-jordan-mason-49ers-ir/
+
 **The Friendship Behind ‘Annie Hall’ and ‘Manhattan’**\
 `In a Q&A, Woody Allen describes the years spent collaborating with his friend Marshall Brickman on beloved movies. Mr. Brickman died on Friday.`\
 https://nytimes.com/2024/12/02/movies/woody-allen-marshall-brickman-q-and-a.html
