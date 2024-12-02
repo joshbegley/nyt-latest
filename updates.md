@@ -1,3 +1,11 @@
+**The Bears need to hire the right head coach this time. Five tips for their search**\
+`The Bears are in good position with a franchise quarterback on a rookie contract and a solid roster. Now they need the right coach.`\
+https://nytimes.com/athletic/5960958/2024/12/02/bears-head-coach-search-tips/
+
+**The NFC North keeps marching toward history**\
+`With Packers and Vikings winning, the "Black and Blue" division is pushing its dominance to levels not seen since the 1970 NFL-AFL merger.`\
+https://nytimes.com/athletic/5962448/2024/12/02/packers-vikings-lions-bears-nfc-north/
+
 **Biden Pardons His Son Hunter in U-Turn, and Syrian Rebels’ Surprise Advance**\
 `Plus, Oxford’s word of the year is …`\
 https://nytimes.com/2024/12/02/podcasts/hunter-biden-pardon-trump-fbi-syria-civil-war.html

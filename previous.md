@@ -1,3 +1,11 @@
+**The Bears need to hire the right head coach this time. Five tips for their search**\
+`The Bears are in good position with a franchise quarterback on a rookie contract and a solid roster. Now they need the right coach.`\
+https://nytimes.com/athletic/5960958/2024/12/02/bears-head-coach-search-tips/
+
+**The NFC North keeps marching toward history**\
+`With Packers and Vikings winning, the "Black and Blue" division is pushing its dominance to levels not seen since the 1970 NFL-AFL merger.`\
+https://nytimes.com/athletic/5962448/2024/12/02/packers-vikings-lions-bears-nfc-north/
+
 **Biden Pardons His Son Hunter in U-Turn, and Syrian Rebels’ Surprise Advance**\
 `Plus, Oxford’s word of the year is …`\
 https://nytimes.com/2024/12/02/podcasts/hunter-biden-pardon-trump-fbi-syria-civil-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5958392/2024/12/02/flyers-travis-konecny-sanheim-fr
 **It’s Tariff Time, Again**\
 `President-elect Donald J. Trump sees tariffs as his primary tool for bringing back millions of American manufacturing jobs.`\
 https://nytimes.com/2024/12/02/podcasts/the-daily/its-tariff-time-again.html
-
-**Wordle Review No. 1,263**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 3, 2024.`\
-https://nytimes.com/2024/12/02/crosswords/wordle-review-1263.html
-
-**After 2 years of missed basketball, Lonzo Ball might be the Bulls’ most impactful player**\
-`Returning from a career-threatening knee injury and playing on a minutes restriction, Ball has surprised everybody with his progress.`\
-https://nytimes.com/athletic/5962047/2024/12/02/lonzo-ball-bulls-comeback/
 
