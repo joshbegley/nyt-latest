@@ -1,3 +1,7 @@
+**Celtics fail to hold late double-digit lead against Cavs' creative use of fouls**\
+`Cleveland fouled Boston repeatedly down the stretch, denying several attempts to tie the score and the chance to win the game.`\
+https://nytimes.com/athletic/5962030/2024/12/01/celtics-lose-cavaliers/
+
 **NFL playoff picture, Week 13: Steelers seize control of AFC North, Bills clinch AFC East**\
 `Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
 https://nytimes.com/athletic/5947479/2024/12/01/nfl-playoff-picture-week-13/
