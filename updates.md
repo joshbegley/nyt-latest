@@ -1,3 +1,11 @@
+**After 2 years of missed basketball, Lonzo Ball might be the Bulls’ most impactful player**\
+`Returning from a career-threatening knee injury and playing on a minutes restriction, Ball has surprised everybody with his progress.`\
+https://nytimes.com/athletic/5962047/2024/12/02/lonzo-ball-bulls-comeback/
+
+**'It was dope': Josh Allen scores four touchdowns on three plays to snowplow 49ers**\
+`Josh Allen's latest highlight presented a puzzler for the record books.`\
+https://nytimes.com/athletic/5962399/2024/12/02/josh-allen-four-touchdowns-49ers/
+
 **Centrist Party Edges Out Far-Right Challengers in Romania**\
 `The center-left Social Democrats won the most votes in a parliamentary election but a strong nationalist showing could make it difficult to form a stable Western-oriented government.`\
 https://nytimes.com/2024/12/02/world/europe/romania-election-centrist-far-right.html

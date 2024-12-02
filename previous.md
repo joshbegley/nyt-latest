@@ -1,3 +1,11 @@
+**After 2 years of missed basketball, Lonzo Ball might be the Bulls’ most impactful player**\
+`Returning from a career-threatening knee injury and playing on a minutes restriction, Ball has surprised everybody with his progress.`\
+https://nytimes.com/athletic/5962047/2024/12/02/lonzo-ball-bulls-comeback/
+
+**'It was dope': Josh Allen scores four touchdowns on three plays to snowplow 49ers**\
+`Josh Allen's latest highlight presented a puzzler for the record books.`\
+https://nytimes.com/athletic/5962399/2024/12/02/josh-allen-four-touchdowns-49ers/
+
 **Centrist Party Edges Out Far-Right Challengers in Romania**\
 `The center-left Social Democrats won the most votes in a parliamentary election but a strong nationalist showing could make it difficult to form a stable Western-oriented government.`\
 https://nytimes.com/2024/12/02/world/europe/romania-election-centrist-far-right.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/us/politics/china-secret-deal-uyghurs.html
 **Schumer Presses for F.B.I. Checks and Senate Consideration of Trump Nominees**\
 `In a letter, the Democratic leader said members of his party would work with Republicans to consider the president-elect’s nominees — but asserted they should undergo traditional Senate vetting.`\
 https://nytimes.com/2024/12/02/us/schumer-senate-fbi-checks-trump-nominees.html
-
-**What Can the World’s Top Court Do About Climate Change?**\
-`The International Court of Justice, the United Nations’ highest judicial body, is beginning landmark hearings on global warming. Here’s a guide.`\
-https://nytimes.com/2024/12/02/world/icj-climate-change-opinion-hearings.html
-
-**December madness is here: Initial thoughts on Penn State's matchup with Oregon for Big Ten title**\
-`Penn State has the star power to hang around with the No. 1 team in the country. But will it?`\
-https://nytimes.com/athletic/5961238/2024/12/02/penn-state-oregon-college-football-big-ten-championship/
 
