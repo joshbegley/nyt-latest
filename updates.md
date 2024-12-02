@@ -1,3 +1,11 @@
+**The Bounce: What's wrong with the Timberwolves?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5962868/2024/12/02/anthony-edwards-timberwolves-giannis-antetokounmpo-bucks-nba-the-bounce/
+
+**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in December**\
+`“Pop Culture Jeopardy!,” “Laid,” “Star Wars: Skeleton Crew,” “Christmas Eve in Miller’s Point” and “Sugarcane” are arriving.`\
+https://nytimes.com/2024/12/02/arts/television/december-streaming-movies-shows.html
+
 **Salah open to one-year Liverpool contract extension, frustrated at club's handling of talks**\
 `Mohamed Salah would accept a new one-year contract at Liverpool but is growing increasingly exasperated at the club’s handling of negotiations.`\
 https://nytimes.com/athletic/5962924/2024/12/02/liverpool-mohamed-salah-contract-new/

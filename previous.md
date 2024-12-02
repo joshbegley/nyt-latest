@@ -1,3 +1,11 @@
+**The Bounce: What's wrong with the Timberwolves?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5962868/2024/12/02/anthony-edwards-timberwolves-giannis-antetokounmpo-bucks-nba-the-bounce/
+
+**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in December**\
+`“Pop Culture Jeopardy!,” “Laid,” “Star Wars: Skeleton Crew,” “Christmas Eve in Miller’s Point” and “Sugarcane” are arriving.`\
+https://nytimes.com/2024/12/02/arts/television/december-streaming-movies-shows.html
+
 **Salah open to one-year Liverpool contract extension, frustrated at club's handling of talks**\
 `Mohamed Salah would accept a new one-year contract at Liverpool but is growing increasingly exasperated at the club’s handling of negotiations.`\
 https://nytimes.com/athletic/5962924/2024/12/02/liverpool-mohamed-salah-contract-new/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/insider/sunset-boulevard-broadway-outdoor.html
 **Texans' Azeez Al-Shaair apologizes for late hit on Jaguars' Trevor Lawrence**\
 `The Texans linebacker said, "I genuinely didn’t see him sliding until it was too late. And it all happens in the blink of an eye."`\
 https://nytimes.com/athletic/5963004/2024/12/02/texans-azeez-al-shaair-apology-trevor-lawrence-jaguars/
-
-**France’s Prime Minister Pushes Through Budget Bill; No-Confidence Vote Could Follow**\
-`A collapse of the government could further unnerve financial markets since it would put a quick passage of the budget at risk.`\
-https://nytimes.com/2024/12/02/world/europe/france-budget-no-confidence-vote.html
-
-**Submit questions for Aaron Gleeman's Twins mailbag**\
-`With the Winter Meetings a week away, it's a good time for another edition of Aaron Gleeman's subscriber mailbag.`\
-https://nytimes.com/athletic/5963065/2024/12/02/submit-questions-for-aaron-gleemans-twins-mailbag/
 
