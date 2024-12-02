@@ -1,3 +1,7 @@
+**The Athletic 134: Notre Dame vs. Penn State, and other resume toss-ups that matter**\
+`Figuring out the 12 CFP teams has become mostly pretty easy, but seeding those teams remains completely up in the air.`\
+https://nytimes.com/athletic/5962215/2024/12/02/college-football-team-fbs-rankings-regular-season/
+
 **Alpine confirms Doohan to make F1 debut in Abu Dhabi after Esteban Ocon exit**\
 `Alpine has announced that Jack Doohan will make his Formula One debut this weekend in Abu Dhabi, replacing Esteban Ocon.`\
 https://nytimes.com/athletic/5962464/2024/12/02/alpine-doohan-f1-abu-dhabi-esteban-ocon/
