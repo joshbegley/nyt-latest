@@ -1,3 +1,11 @@
+**Allen, Bills clinch AFC East while 49ers' woes continue: Key takeaways**\
+`Allen became the seventh player in the Super Bowl era to throw for, run and catch touchdowns in the same game.`\
+https://nytimes.com/athletic/5961877/2024/12/01/49ers-bills-score-result-takeaways/
+
+**Donovan Mitchell leads Cavaliers past Celtics in battle of NBA's best**\
+`Mitchell scored 11 points in a row down the stretch as the Cavs overcame a 14-point deficit to maintain the NBA's best record.`\
+https://nytimes.com/athletic/5961451/2024/12/01/cavaliers-celtics-donovan-mitchell-score-result/
+
 **NFL playoff picture, Week 13: Steelers seize control of AFC North, Falcons fading**\
 `Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
 https://nytimes.com/athletic/5947479/2024/12/01/nfl-playoff-picture-week-13/

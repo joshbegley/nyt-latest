@@ -1,9 +1,13 @@
+**Allen, Bills clinch AFC East while 49ers' woes continue: Key takeaways**\
+`Allen became the seventh player in the Super Bowl era to throw for, run and catch touchdowns in the same game.`\
+https://nytimes.com/athletic/5961877/2024/12/01/49ers-bills-score-result-takeaways/
+
 **NFL playoff picture, Week 13: Steelers seize control of AFC North, Falcons fading**\
 `Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
 https://nytimes.com/athletic/5947479/2024/12/01/nfl-playoff-picture-week-13/
 
 **Donovan Mitchell leads Cavaliers past Celtics in battle of NBA's best**\
-`Mitchell scored a streak of 11 points in a row down the stretch as the Cavs overcame a 14-point deficit to maintain the NBA's best record.`\
+`Mitchell scored 11 points in a row down the stretch as the Cavs overcame a 14-point deficit to maintain the NBA's best record.`\
 https://nytimes.com/athletic/5961451/2024/12/01/cavaliers-celtics-donovan-mitchell-score-result/
 
 **Jared Verse and Kyren Williams buoy Rams to win after week of energy, accountability**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5961791/2024/12/01/micah-hudson-transfer-portal-tex
 **In Pardoning His Son, Biden Echoes Some of Trump’s Complaints**\
 `President Biden complained about selective prosecution and political pressure in a system he has spent his public life defending.`\
 https://nytimes.com/2024/12/01/us/politics/biden-hunter-pardon-politics.html
-
-**Commanders get back to having fun in blowout of Titans: 'Winning helps a lot'**\
-`Washington snapped its three-game losing streak and enters the bye with a 1 1/2 game lead for the final wild-card spot in the NFC. `\
-https://nytimes.com/athletic/5961497/2024/12/01/jayden-daniels-commanders-win-titans/
 
