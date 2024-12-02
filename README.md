@@ -1,3 +1,7 @@
+**Tony White's departure is just the first domino to fall in a long month ahead for Nebraska**\
+`White turned down at least one opportunity to leave Nebraska after last season. And now, Matt Rhule's best hire is officially moving on. `\
+https://nytimes.com/athletic/5964525/2024/12/02/tony-white-florida-state-nebraska-defensive-coordinator/
+
 **Backlash to Biden’s Pardon**\
 `Also, Russian strikes in Syria. Here's the latest at the end of Monday.`\
 https://nytimes.com/2024/12/02/briefing/backlash-to-bidens-pardon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/crosswords/super-mega-forum-puzzle-mania.html
 **College football national title odds: Oregon is new favorite after Ohio State's loss**\
 `Oregon is the new betting favorite to win the national title following Ohio State's loss to Michigan. OSU, Texas and Georgia are next.`\
 https://nytimes.com/athletic/5964312/2024/12/02/college-football-national-title-odds-oregon-ohio-state/
-
-**Oklahoma hiring away Washington State's 29-year-old OC**\
-`Arbuckle has spent the last two seasons at Washington State, directing offenses that ranked in the top 20 nationally in yards per play.`\
-https://nytimes.com/athletic/5964537/2024/12/02/oklahoma-hiring-washington-states-ben-arbuckle-29-as-new-offensive-coordinator/
 
