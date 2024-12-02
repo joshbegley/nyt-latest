@@ -1,3 +1,7 @@
+**Lions' Dan Campbell says Jahmyr Gibbs' leak of calls 'won’t affect us'**\
+`Gibbs, 22, accidentally revealed Detroit's protections, visible on a whiteboard at the team facility, in a Snapchat video.`\
+https://nytimes.com/athletic/5964704/2024/12/02/dan-campbell-jahmyr-gibbs-photo-lions/
+
 **Greenberg: Kevin Warren shows he's in charge as Bears try to find latest coaching savior**\
 `As GM Ryan Poles sat quietly, the team's president/CEO said they'll work diligently and "in tandem" to determine the Bears' next head coach.`\
 https://nytimes.com/athletic/5964353/2024/12/02/chicago-bears-coach-kevin-warren-ryan-poles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5964525/2024/12/02/tony-white-florida-state-nebrask
 **Backlash to Biden’s Pardon**\
 `Also, Russian strikes in Syria. Here's the latest at the end of Monday.`\
 https://nytimes.com/2024/12/02/briefing/backlash-to-bidens-pardon.html
-
-**Long throws, a sloping pitch and a portacabin: What Spurs can expect from Tamworth**\
-`The Athletic's Leicester City reporter Rob Tanner previously covered Tamworth. He explains what awaits Tottenham and their fans`\
-https://nytimes.com/athletic/5964354/2024/12/02/tamworth-tottenham-fa-cup/
 
