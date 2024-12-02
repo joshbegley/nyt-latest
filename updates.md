@@ -1,3 +1,7 @@
+**Tony White's departure is just the first domino to fall in a long month ahead for Nebraska**\
+`White turned down at least one opportunity to leave Nebraska after last season. And now, Matt Rhule's best hire is officially moving on. `\
+https://nytimes.com/athletic/5964525/2024/12/02/tony-white-florida-state-nebraska-defensive-coordinator/
+
 **Backlash to Biden’s Pardon**\
 `Also, Russian strikes in Syria. Here's the latest at the end of Monday.`\
 https://nytimes.com/2024/12/02/briefing/backlash-to-bidens-pardon.html
