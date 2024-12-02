@@ -1,3 +1,11 @@
+**Jazz have 'you live and you learn' moment thanks to controversial timeout in loss to Lakers**\
+`Regardless of wins and losses, the Jazz need to establish a culture going forward, and a loss Sunday to the Lakers tested their character.`\
+https://nytimes.com/athletic/5961602/2024/12/02/jazz-collin-sexton-will-hardy-timeout/
+
+**Ipswich captain Morsy chooses not to wear rainbow armband for religious reasons**\
+`Ipswich Town captain Sam Morsy chose not to wear a rainbow armband during Saturday&#8217;s defeat to Nottingham Forest due to his religious beliefs.`\
+https://nytimes.com/athletic/5962871/2024/12/02/sam-morsy-ipswich-rainbow-armband/
+
 **NFL Week 13 inactives and fantasy tips: Cedric Tillman out for Monday Night Football**\
 `Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/5956931/2024/12/02/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/

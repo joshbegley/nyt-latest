@@ -1,3 +1,11 @@
+**Jazz have 'you live and you learn' moment thanks to controversial timeout in loss to Lakers**\
+`Regardless of wins and losses, the Jazz need to establish a culture going forward, and a loss Sunday to the Lakers tested their character.`\
+https://nytimes.com/athletic/5961602/2024/12/02/jazz-collin-sexton-will-hardy-timeout/
+
+**Ipswich captain Morsy chooses not to wear rainbow armband for religious reasons**\
+`Ipswich Town captain Sam Morsy chose not to wear a rainbow armband during Saturday&#8217;s defeat to Nottingham Forest due to his religious beliefs.`\
+https://nytimes.com/athletic/5962871/2024/12/02/sam-morsy-ipswich-rainbow-armband/
+
 **California Lawmakers to Propose $25 Million Fund to Litigate Trump Administration**\
 `The state’s Democratic leaders had announced within days of the election that they would meet early this month on plans to defend California’s liberal policies.`\
 https://nytimes.com/2024/12/02/us/politics/california-fund-litigation-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5961468/2024/12/02/nhl-coach-rangers-capitals-2024/
 **Trump’s choice of Kash Patel to lead the F.B.I. draws some early Republican support.**\
 `By Devlin Barrett, Maggie Haberman and Michael D. Shear`\
 https://nytimes.com/live/2024/12/02/us/trump-news/trumps-choice-of-kash-patel-to-lead-the-fbi-draws-some-early-republican-support
-
-**Trump’s pick to lead the D.E.A. has limited experience with international investigations.**\
-`By Mark Walker and Alan Feuer`\
-https://nytimes.com/live/2024/12/02/us/trump-news/trumps-pick-to-lead-the-dea-has-limited-experience-with-international-investigations
-
-**The Trump team isn’t legally bound to adhere to the transition promises it has made.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/12/02/us/trump-news/the-trump-team-isnt-legally-bound-to-adhere-to-the-transition-promises-it-has-made
 
