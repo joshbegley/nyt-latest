@@ -1,3 +1,11 @@
+**Mayfield expected to play in Week 14 after injury scare**\
+`Tampa Bay is tied for the lead in the NFC South as Mayfield looks to guide the team to a fourth consecutive division title. `\
+https://nytimes.com/athletic/5964030/2024/12/02/baker-mayfield-leg-injury-update-buccaneers/
+
+**When Is the Great Lakes Snow Going to End?**\
+`Lake-effect snow has been piling up for days. It was winding down for many on Monday, but not everywhere.`\
+https://nytimes.com/2024/12/02/weather/snow-forecast.html
+
 **New York Philharmonic Looks to Philadelphia for Its Next Leader**\
 `Matías Tarnopolsky, who manages the Philadelphia Orchestra, will come to New York as the Philharmonic works to recover from a trying period.`\
 https://nytimes.com/2024/12/02/arts/music/new-york-philharmonic-leader-matias-tarnopolsky.html
