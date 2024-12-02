@@ -1,3 +1,7 @@
+**How I Learned to Shave**\
+`Things our dads taught us, whether they intended to or not.`\
+https://nytimes.com/2024/12/02/podcasts/how-i-learned-to-shave-this-american-life-nyt-audio.html
+
 **'We need to worry about us': Lamar Jackson resolute after Ravens' loss to Eagles**\
 `Baltimore dropped its second game in the last three weeks as it again struggled to put together four complete quarters. `\
 https://nytimes.com/athletic/5962042/2024/12/02/ravens-loss-eagles-lamar-jackson/
