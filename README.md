@@ -1,3 +1,7 @@
+**Judge Steps Aside in ‘Shaken Baby’ Death Penalty Case in Texas**\
+`The judge who issued a death warrant for Robert Roberson voluntarily recused herself, adding the latest legal complication to a case that has drawn national scrutiny.`\
+https://nytimes.com/2024/12/02/us/texas-roberson-shaken-baby-judge.html
+
 **A Consummate Act of Nepotism Stains Biden’s Presidency**\
 `With the pardon of his son, President Biden added his name to the roll call of presidents who dishonored their office by misusing the pardon power.`\
 https://nytimes.com/2024/12/02/opinion/joe-hunter-biden-pardon-dishonor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5964126/2024/12/02/luther-burden-nfl-draft-missouri
 **What’s Behind the Protests in the Country of Georgia?**\
 `For days, pro-Western Georgians have clashed with police over the government’s plan to suspend plans for European Union membership.`\
 https://nytimes.com/2024/12/02/world/europe/protests-georgia-tbilisi.html
-
-**Protesters Clash With Police Outside Georgia’s Parliament**\
-`Thousands protested outside of the Georgian parliament in Tbilisi for a fifth straight night after the government suspended plans to join the European Union.`\
-https://nytimes.com/video/world/europe/100000009853945/georgia-government-protests-european-union.html
 
