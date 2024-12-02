@@ -1,3 +1,7 @@
+**College football national title odds: Oregon is new favorite after Ohio State's loss**\
+`Oregon is the new betting favorite to win the national title following Ohio State's loss to Michigan. OSU, Texas and Georgia are next.`\
+https://nytimes.com/athletic/5964312/2024/12/02/college-football-national-title-odds-oregon-ohio-state/
+
 **Oklahoma hiring away Washington State's 29-year-old OC**\
 `Arbuckle has spent the last two seasons at Washington State, directing offenses that ranked in the top 20 nationally in yards per play.`\
 https://nytimes.com/athletic/5964537/2024/12/02/oklahoma-hiring-washington-states-ben-arbuckle-29-as-new-offensive-coordinator/

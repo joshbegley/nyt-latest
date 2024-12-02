@@ -1,3 +1,7 @@
+**College football national title odds: Oregon is new favorite after Ohio State's loss**\
+`Oregon is the new betting favorite to win the national title following Ohio State's loss to Michigan. OSU, Texas and Georgia are next.`\
+https://nytimes.com/athletic/5964312/2024/12/02/college-football-national-title-odds-oregon-ohio-state/
+
 **Oklahoma hiring away Washington State's 29-year-old OC**\
 `Arbuckle has spent the last two seasons at Washington State, directing offenses that ranked in the top 20 nationally in yards per play.`\
 https://nytimes.com/athletic/5964537/2024/12/02/oklahoma-hiring-washington-states-ben-arbuckle-29-as-new-offensive-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/us/wisconsin-court-decision-unions.html
 **Tuesday Briefing: A Presidential Pardon**\
 `Plus, Free North Korea Radio.`\
 https://nytimes.com/2024/12/02/briefing/biden-pardon-syria-france.html
-
-**Giants' Dexter Lawrence out for rest of season with elbow injury**\
-`The 2019 first-round pick has lived up to the lucrative contract he garnered this offseason picking up nine sacks in 2024.`\
-https://nytimes.com/athletic/5964338/2024/12/02/dexter-lawrence-giants-ir/
 
