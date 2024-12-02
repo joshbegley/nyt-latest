@@ -1,3 +1,11 @@
+**Giants' Dexter Lawrence out for rest of season with elbow injury**\
+`The 2019 first-round pick has lived up to the lucrative contract he garnered this offseason picking up nine sacks in 2024.`\
+https://nytimes.com/athletic/5964338/2024/12/02/dexter-lawrence-giants-ir/
+
+**Mikaela Shiffrin out 'a few weeks minimum' after fall during World Cup race**\
+`Shiffrin said Monday she was thankful to avoid worse after her fall Saturday during the giant slalom at a World Cup event in Vermont.`\
+https://nytimes.com/athletic/5960019/2024/12/02/star-skier-mikaela-shiffrin-out-indefinitely-after-injury-while-seeking-100th-world-cup-win/
+
 **G.M. Will Sell Stake in E.V. Battery Plant to Its Partner LG**\
 `LG Energy Solution will now solely own a factory in Michigan that it had planned to operate through a joint venture with General Motors.`\
 https://nytimes.com/2024/12/02/business/gm-ev-batteries-lg.html
