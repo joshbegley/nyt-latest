@@ -1,3 +1,7 @@
+**NFL playoff picture, Week 13: Steelers seize control of AFC North, Bills clinch AFC East**\
+`Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
+https://nytimes.com/athletic/5947479/2024/12/01/nfl-playoff-picture-week-13/
+
 **Allen, Bills clinch AFC East while 49ers' woes continue: Key takeaways**\
 `Allen became the seventh player in the Super Bowl era to throw for, run and catch touchdowns in the same game.`\
 https://nytimes.com/athletic/5961877/2024/12/01/49ers-bills-score-result-takeaways/

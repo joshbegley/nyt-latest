@@ -1,3 +1,7 @@
+**Celtics fail to hold late double-digit lead against Cavs' creative use of fouls**\
+`Cleveland fouled Boston repeatedly down the stretch, denying several attempts to tie the score and the chance to win the game.`\
+https://nytimes.com/athletic/5962030/2024/12/01/celtics-lose-cavaliers/
+
 **Allen, Bills clinch AFC East while 49ers' woes continue: Key takeaways**\
 `Allen became the seventh player in the Super Bowl era to throw for, run and catch touchdowns in the same game.`\
 https://nytimes.com/athletic/5961877/2024/12/01/49ers-bills-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/us/politics/hunter-biden-pardon-recommendation.ht
 **Texas Tech WR Micah Hudson, program's first 5-star, plans to transfer**\
 `Hudson's lack of playing time and production was a stark contrast to the expectations that surrounded him when he arrived.`\
 https://nytimes.com/athletic/5961791/2024/12/01/micah-hudson-transfer-portal-texas-tech/
-
-**In Pardoning His Son, Biden Echoes Some of Trump’s Complaints**\
-`President Biden complained about selective prosecution and political pressure in a system he has spent his public life defending.`\
-https://nytimes.com/2024/12/01/us/politics/biden-hunter-pardon-politics.html
 
