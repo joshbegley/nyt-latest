@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Artturi Lehkonen is in good company; Ryan Donato is a light-night target**\
+`Shayna Goldman identifies the best of this week's fantasy hockey waiver wire, and she offers a simple reason for adding Artturi Lehkonen.`\
+https://nytimes.com/athletic/5961978/2024/12/02/fantasy-hockey-trends-gems-artturi-lehkonen-ryan-donato/
+
 **Fantasy football Week 13 takeaways: Sam Darnold is making history; Joe Burrow is Jacob deGrom**\
 `Among his Week 13 takes, Michael Salfino says Joe Burrow is putting up elite numbers for a losing team, à la MLB ace Jacob deGrom.`\
 https://nytimes.com/athletic/5961188/2024/12/02/fantasy-football-week-13-takeaways-sam-darnold-is-making-history-joe-burrow-is-jacob-degrom/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5962069/2024/12/01/panthers-loss-adam-thielen-catch
 **49ers' McCaffrey suffers PCL injury in loss to Bills**\
 `McCaffrey had seven carries for 53 yards before exiting Sunday night's game in the second quarter.`\
 https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injury-49ers-bills/
-
-**Celtics fail to hold late double-digit lead against Cavs' creative use of fouls**\
-`Cleveland fouled Boston repeatedly down the stretch, denying several attempts to tie the score and the chance to win the game.`\
-https://nytimes.com/athletic/5962030/2024/12/01/celtics-lose-cavaliers/
 
