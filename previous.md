@@ -1,3 +1,11 @@
+**App State fires HC Clark after first losing season since 2013**\
+`Clark went 40-24 in five seasons, but Appalachian State missed a bowl game in two of the past three years.`\
+https://nytimes.com/athletic/5963929/2024/12/02/appalachian-state-fires-shawn-clark-football-coach/
+
+**Supreme Court Hears Case on Flavored Vapes Popular With Teenagers**\
+`The question for the justices was whether the Food and Drug Administration had acted lawfully in rejecting applications from makers of flavored liquids used in e-cigarettes.`\
+https://nytimes.com/2024/12/02/us/supreme-court-vapes-e-cigarettes.html
+
 **FSU in talks with Nebraska's Tony White for defensive coordinator role**\
 `Florida State is in the midst of a total staff overhaul.`\
 https://nytimes.com/athletic/5963562/2024/12/02/florida-state-tony-white-defensive-coordinator/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5963090/2024/12/02/bears-head-coach-opening-kevin-w
 **The omissions, big decisions and a roster projection from Canada's World Junior selection camp**\
 `Canada has announced its 32-player selection camp for the 2025 World Junior Championship in Ottawa.`\
 https://nytimes.com/athletic/5963479/2024/12/02/canada-world-juniors-roster-selection-camp-2024/
-
-**So Much for Trump’s Fantasy of a Quieter Middle East**\
-`If anything, old conflicts are heating up.`\
-https://nytimes.com/2024/12/02/opinion/trump-mideast-syria-conflicts.html
-
-**LPGA commissioner Mollie Marcoux Samaan stepping down in January**\
-`Liz Moore, the LPGA’s chief legal and technology and corporate secretary, will be the interim commissioner.`\
-https://nytimes.com/athletic/5963738/2024/12/02/lpga-mollie-marcoux-samaan-commissioner-departure/
 

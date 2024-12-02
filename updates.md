@@ -1,3 +1,11 @@
+**App State fires HC Clark after first losing season since 2013**\
+`Clark went 40-24 in five seasons, but Appalachian State missed a bowl game in two of the past three years.`\
+https://nytimes.com/athletic/5963929/2024/12/02/appalachian-state-fires-shawn-clark-football-coach/
+
+**Supreme Court Hears Case on Flavored Vapes Popular With Teenagers**\
+`The question for the justices was whether the Food and Drug Administration had acted lawfully in rejecting applications from makers of flavored liquids used in e-cigarettes.`\
+https://nytimes.com/2024/12/02/us/supreme-court-vapes-e-cigarettes.html
+
 **So Much for Trump’s Fantasy of a Quieter Middle East**\
 `If anything, old conflicts are heating up.`\
 https://nytimes.com/2024/12/02/opinion/trump-mideast-syria-conflicts.html
