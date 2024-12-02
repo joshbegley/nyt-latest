@@ -1,3 +1,11 @@
+**'We need to worry about us': Lamar Jackson resolute after Ravens' loss to Eagles**\
+`Baltimore dropped its second game in the last three weeks as it again struggled to put together four complete quarters. `\
+https://nytimes.com/athletic/5962042/2024/12/02/ravens-loss-eagles-lamar-jackson/
+
+**Eight thoughts on how Michigan beat Ohio State, the state of the rivalry and what's next**\
+`For Michigan, finishing 7-5 doesn't sting nearly as much now that the Wolverines have added to Ohio State's rivalry misery.`\
+https://nytimes.com/athletic/5960851/2024/12/02/michigan-football-ohio-state-takeaways/
+
 **Inside a Secret Plan to Bring Uyghurs Trapped in China to the United States**\
 `On Thanksgiving eve, U.S. diplomats reunited family members who had not seen each other in years because of China’s harsh policies on the ethnic group.`\
 https://nytimes.com/2024/12/02/us/politics/china-secret-deal-uyghurs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/style/black-pants-wardrobe-basics.html
 **The Artist Who Remembered Everything**\
 `The New York City writer and painter Joe Brainard comes alive in a new collection of letters.`\
 https://nytimes.com/2024/12/02/books/review/joe-brainard-letters.html
-
-**Distrustful of Health Agencies, These Voters Cheer Trump’s Picks to Run Them**\
-`Some voters galvanized by Robert F. Kennedy Jr.’s pledge to “Make America Healthy Again” said they believed the health establishment was dismissive and even corrupt.`\
-https://nytimes.com/2024/12/02/us/distrustful-of-health-agencies-these-voters-cheer-trumps-picks-to-run-them.html
-
-**Momma Rose’s Many Faces, From Ethel Merman to Audra McDonald**\
-`In her various incarnations, the “Gypsy” character is always loud, always scary, but so different. Ben Brantley reflects on all the onstage Roses he has known.`\
-https://nytimes.com/2024/12/02/theater/gypsy-audra-mcdonald-broadway.html
 
