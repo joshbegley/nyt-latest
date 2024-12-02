@@ -1,3 +1,7 @@
+**G.M. Will Sell Stake in E.V. Battery Plant to Its Partner LG**\
+`LG Energy Solution will now solely own a factory in Michigan that it had planned to operate through a joint venture with General Motors.`\
+https://nytimes.com/2024/12/02/business/gm-ev-batteries-lg.html
+
 **A Final, Whimsical Holiday for the Bidens**\
 `For her last Christmas in the White House, Jill Biden chose the theme, a “Season of Peace and Light.”`\
 https://nytimes.com/card/2024/12/02/us/politics/white-house-holiday-decorations-photos
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/5964274/2024/12/02/smu-college-football-playoff-acc
 `The judge who issued a death warrant for Robert Roberson voluntarily recused herself, adding the latest legal complication to a case that has drawn national scrutiny.`\
 https://nytimes.com/2024/12/02/us/texas-roberson-shaken-baby-judge.html
 
-**A Consummate Act of Nepotism Stains Biden’s Presidency**\
+**Biden’s Pardon for His Son Dishonors the Office**\
 `With the pardon of his son, President Biden added his name to the roll call of presidents who dishonored their office by misusing the pardon power.`\
 https://nytimes.com/2024/12/02/opinion/joe-hunter-biden-pardon-dishonor.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/world/middleeast/trump-gaza-hostages-inauguration
 **A Second-Rate Crime Gets a Second-Rate Pardon**\
 `At least Joe didn’t make Hunter ambassador to a major international ally.`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/hunter-biden-pardon
-
-**Prime Tire: F1's season finale showdown**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/5964178/2024/12/02/abu-dhabi-grand-prix-f1-prime-tire/
 

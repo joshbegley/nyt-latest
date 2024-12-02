@@ -1,3 +1,11 @@
+**Giants' Dexter Lawrence out for rest of season with elbow injury**\
+`The 2019 first-round pick has lived up to the lucrative contract he garnered this offseason picking up nine sacks in 2024.`\
+https://nytimes.com/athletic/5964338/2024/12/02/dexter-lawrence-giants-ir/
+
+**Mikaela Shiffrin out 'a few weeks minimum' after fall during World Cup race**\
+`Shiffrin said Monday she was thankful to avoid worse after her fall Saturday during the giant slalom at a World Cup event in Vermont.`\
+https://nytimes.com/athletic/5960019/2024/12/02/star-skier-mikaela-shiffrin-out-indefinitely-after-injury-while-seeking-100th-world-cup-win/
+
 **G.M. Will Sell Stake in E.V. Battery Plant to Its Partner LG**\
 `LG Energy Solution will now solely own a factory in Michigan that it had planned to operate through a joint venture with General Motors.`\
 https://nytimes.com/2024/12/02/business/gm-ev-batteries-lg.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/opinion/joe-hunter-biden-pardon-dishonor.html
 **5 Women Win Reparations From Belgium for Crimes Under Colonial Rule**\
 `In a landmark case, a court ruled that the women, now in their 70s and 80s, who were taken from their parents in Belgian Congo, were victims of a crime against humanity.`\
 https://nytimes.com/2024/12/02/world/europe/5-women-win-reparations-from-belgium-for-crimes-under-colonial-rule.html
-
-**Trump Threatens ‘Hell to Pay’ Unless Gaza Hostages Are Freed Before Inauguration**\
-`President-elect Donald J. Trump said in a social media post on Monday that the hostages must be released before his inauguration in January.`\
-https://nytimes.com/2024/12/02/world/middleeast/trump-gaza-hostages-inauguration.html
-
-**A Second-Rate Crime Gets a Second-Rate Pardon**\
-`At least Joe didn’t make Hunter ambassador to a major international ally.`\
-https://nytimes.com/live/2024/11/26/opinion/thepoint/hunter-biden-pardon
 

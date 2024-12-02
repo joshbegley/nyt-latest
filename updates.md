@@ -1,3 +1,11 @@
+**G.M. Will Sell Stake in E.V. Battery Plant to Its Partner LG**\
+`LG Energy Solution will now solely own a factory in Michigan that it had planned to operate through a joint venture with General Motors.`\
+https://nytimes.com/2024/12/02/business/gm-ev-batteries-lg.html
+
+**Biden’s Pardon for His Son Dishonors the Office**\
+`With the pardon of his son, President Biden added his name to the roll call of presidents who dishonored their office by misusing the pardon power.`\
+https://nytimes.com/2024/12/02/opinion/joe-hunter-biden-pardon-dishonor.html
+
 **A Final, Whimsical Holiday for the Bidens**\
 `For her last Christmas in the White House, Jill Biden chose the theme, a “Season of Peace and Light.”`\
 https://nytimes.com/card/2024/12/02/us/politics/white-house-holiday-decorations-photos
