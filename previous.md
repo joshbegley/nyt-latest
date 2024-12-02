@@ -1,3 +1,11 @@
+**Read Joe Biden’s Statement About Pardoning Hunter**\
+`President Biden issued the following statement on Sunday night.`\
+https://nytimes.com/2024/12/01/us/politics/biden-pardon-hunter-statement.html
+
+**Barkley outplays Henry as Eagles beat Ravens 24-19: Takeaways**\
+`The Eagles' eighth straight victory keeps Philadelphia one back of Detroit for the top spot in the NFC. `\
+https://nytimes.com/athletic/5960200/2024/12/01/eagles-ravens-score-result-takeaways/
+
 **Clashes at Soccer Match Kill Dozens in Guinea**\
 `It was unclear on Sunday how many people were killed, but at least one estimate neared 100 people.`\
 https://nytimes.com/2024/12/01/world/africa/guinea-soccer-match-violence-deaths.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5961219/2024/12/01/kevin-kc-concepcion-nc-state-tra
 **NFL Week 13 inactives and fantasy tips: Brock Purdy active, Keon Coleman out for SNF**\
 `Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/5956931/2024/12/01/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/
-
-**Falcons sticking with, and standing up for, Kirk Cousins after ugly day in Atlanta**\
-`The Falcons lost their third straight game as Cousins threw four interceptions against the Chargers on Sunday.`\
-https://nytimes.com/athletic/5961244/2024/12/01/falcons-kirk-cousins-four-interceptions-chargers/
-
-**Syria’s Rebels Struck When Assad’s Allies Were Weakened and Distracted**\
-`Diminished support for the Syrian government from Iran, Hezbollah and Russia enabled opposition forces to take the initiative and seize new territory.`\
-https://nytimes.com/2024/12/01/world/middleeast/syria-rebels-bashar-al-assad.html
 

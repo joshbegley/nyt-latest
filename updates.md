@@ -1,3 +1,11 @@
+**Read Joe Biden’s Statement About Pardoning Hunter**\
+`President Biden issued the following statement on Sunday night.`\
+https://nytimes.com/2024/12/01/us/politics/biden-pardon-hunter-statement.html
+
+**Barkley outplays Henry as Eagles beat Ravens 24-19: Takeaways**\
+`The Eagles' eighth straight victory keeps Philadelphia one back of Detroit for the top spot in the NFC. `\
+https://nytimes.com/athletic/5960200/2024/12/01/eagles-ravens-score-result-takeaways/
+
 **Clashes at Soccer Match Kill Dozens in Guinea**\
 `It was unclear on Sunday how many people were killed, but at least one estimate neared 100 people.`\
 https://nytimes.com/2024/12/01/world/africa/guinea-soccer-match-violence-deaths.html
