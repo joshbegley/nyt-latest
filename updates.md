@@ -1,3 +1,7 @@
+**Jewish Museum Acquires Never-Shown Entry to Venice Biennale**\
+`Ruth Patir refused to display her video installation at the Israel pavilion until a cease-fire and hostage agreement was reached. “(M)otherland” will debut in Tel Aviv.`\
+https://nytimes.com/2024/12/02/arts/design/ruth-patir-jewish-museum-israel-pavilion.html
+
 **Cubs sign pitcher Matthew Boyd to a two-year, $29 million contract: Source**\
 `Boyd is more of an upside play for the Cubs than a guarantee of quality innings. When he’s healthy and on the mound, he's been effective.`\
 https://nytimes.com/athletic/5963096/2024/12/02/cubs-matthew-boyd-free-agent-contract/

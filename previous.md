@@ -1,3 +1,7 @@
+**Jewish Museum Acquires Never-Shown Entry to Venice Biennale**\
+`Ruth Patir refused to display her video installation at the Israel pavilion until a cease-fire and hostage agreement was reached. “(M)otherland” will debut in Tel Aviv.`\
+https://nytimes.com/2024/12/02/arts/design/ruth-patir-jewish-museum-israel-pavilion.html
+
 **Cubs sign pitcher Matthew Boyd to a two-year, $29 million contract: Source**\
 `Boyd is more of an upside play for the Cubs than a guarantee of quality innings. When he’s healthy and on the mound, he's been effective.`\
 https://nytimes.com/athletic/5963096/2024/12/02/cubs-matthew-boyd-free-agent-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/business/intel-ceo-pat-gelsinger.html
 **The Connections Companion No. 541**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 3, 2024.`\
 https://nytimes.com/2024/12/02/crosswords/connections-companion-541.html
-
-**Submit your Cowboys mailbag questions to Saad Yousuf**\
-`<p>Happy December! With just about one month left in the regular season, the Cowboys are on a two-game winning streak but sitting outside of the playoff picture, while still remaining “in the hunt.`\
-https://nytimes.com/athletic/5963057/2024/12/02/dallas-cowboys-mailbag-questions/
 
