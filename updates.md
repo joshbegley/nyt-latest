@@ -1,3 +1,19 @@
+**Cole Palmer's defensive diligence under Enzo Maresca deserves more acclaim**\
+`Playmaker’s hard work is helping Chelsea become a team who look closer to being the sum of its expensive parts`\
+https://nytimes.com/athletic/5962502/2024/12/02/cole-palmer-off-ball-defensive-improvement/
+
+**Who Is Massad Boulos, the Lebanese American Tycoon and Trump Adviser?**\
+`President-elect Donald J. Trump has selected Mr. Boulos, the businessman and father-in-law of Mr. Trump’s daughter, as a senior adviser on Arab and Middle Eastern affairs.`\
+https://nytimes.com/article/massad-boulos-trump-middle-east.html
+
+**Man Utd's Yoro closing in on return to fitness ahead of Arsenal**\
+`Leny Yoro is in contention to be part of the Manchester United squad to play Arsenal on Wednesday, Ruben Amorim has said.`\
+https://nytimes.com/athletic/5963666/2024/12/02/leny-yoro-fitness-manchester-united-arsenal/
+
+**USC's Miller Moss leads a group of college quarterbacks entering transfer portal**\
+`Moss, a former top-100 national recruit, went 4-5 as the starter at USC this season. `\
+https://nytimes.com/athletic/5963577/2024/12/02/miller-moss-transfer-portal-quarterback-usc/
+
 **'I'm not a romantic', 3-box-3, experience - Van Nistelrooy's first Leicester press conference**\
 `The Dutchman spoke confidently to the media after his appointment as Leicester manager. We look at what he said and what it all means...`\
 https://nytimes.com/athletic/5963211/2024/12/02/analysing-ruud-van-nistelrooys-first-leicester-press-conference/
