@@ -1,3 +1,19 @@
+**ASU star WR Tyson out for Big 12 title game**\
+`Like the 10-2 Sun Devils, Tyson had enjoyed a breakout season, establishing himself as one of the country’s top receivers.`\
+https://nytimes.com/athletic/5963571/2024/12/02/jordyn-tyson-injury-arizona-state-iowa-state/
+
+**Missouri WR Burden, potential top-15 pick, enters NFL Draft**\
+`In the right situation, he’s an explosive play waiting to happen and will be one of the top offensive playmakers on many NFL draft boards.`\
+https://nytimes.com/athletic/5964126/2024/12/02/luther-burden-nfl-draft-missouri/
+
+**What’s Behind the Protests in the Caucasus Country of Georgia?**\
+`For days, pro-Western Georgians have clashed with police over the government’s plan to suspend plans for European Union membership.`\
+https://nytimes.com/2024/12/02/world/europe/protests-georgia-tbilisi.html
+
+**Protesters Clash With Police Outside Georgia’s Parliament**\
+`Thousands protested outside of the Georgian parliament in Tbilisi for a fifth straight night after the government suspended plans to join the European Union.`\
+https://nytimes.com/video/world/europe/100000009853945/georgia-government-protests-european-union.html
+
 **Mayfield expected to play in Week 14 after injury scare**\
 `Tampa Bay is tied for the lead in the NFC South as Mayfield looks to guide the team to a fourth consecutive division title. `\
 https://nytimes.com/athletic/5964030/2024/12/02/baker-mayfield-leg-injury-update-buccaneers/

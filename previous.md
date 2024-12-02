@@ -1,3 +1,19 @@
+**ASU star WR Tyson out for Big 12 title game**\
+`Like the 10-2 Sun Devils, Tyson had enjoyed a breakout season, establishing himself as one of the country’s top receivers.`\
+https://nytimes.com/athletic/5963571/2024/12/02/jordyn-tyson-injury-arizona-state-iowa-state/
+
+**Missouri WR Burden, potential top-15 pick, enters NFL Draft**\
+`In the right situation, he’s an explosive play waiting to happen and will be one of the top offensive playmakers on many NFL draft boards.`\
+https://nytimes.com/athletic/5964126/2024/12/02/luther-burden-nfl-draft-missouri/
+
+**What’s Behind the Protests in the Caucasus Country of Georgia?**\
+`For days, pro-Western Georgians have clashed with police over the government’s plan to suspend plans for European Union membership.`\
+https://nytimes.com/2024/12/02/world/europe/protests-georgia-tbilisi.html
+
+**Protesters Clash With Police Outside Georgia’s Parliament**\
+`Thousands protested outside of the Georgian parliament in Tbilisi for a fifth straight night after the government suspended plans to join the European Union.`\
+https://nytimes.com/video/world/europe/100000009853945/georgia-government-protests-european-union.html
+
 **Mayfield expected to play in Week 14 after injury scare**\
 `Tampa Bay is tied for the lead in the NFC South as Mayfield looks to guide the team to a fourth consecutive division title. `\
 https://nytimes.com/athletic/5964030/2024/12/02/baker-mayfield-leg-injury-update-buccaneers/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/02/arts/music/kendrick-lamar-gnx-billboard-charts.ht
 **San Francisco Giants free-agent profile: Corbin Burnes, RHP**\
 `I&#8217;ve been off social media for almost a month now, and I highly recommend it.`\
 https://nytimes.com/athletic/5963552/2024/12/02/corbin-burnes-sf-giants-free-agent-profile/
-
-**Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
-`What are your thoughts on the coaching staff? Drake Maye's ceiling? Submit your Patriots questions here.`\
-https://nytimes.com/athletic/5963568/2024/12/02/patriots-bye-week-mailbag-drake-maye/
-
-**FA Cup third-round draw: Arsenal vs Man Utd, Tamworth vs Spurs**\
-`FA Cup holders Manchester United will play away to Arsenal in the third round of the 2024-25 competition.`\
-https://nytimes.com/athletic/5963546/2024/12/02/fa-cup-third-round-draw-arsenal-manchester-united/
-
-**Hezbollah and Israel Trade Fire, Further Testing Cease-Fire**\
-`Both sides have accused each other of violating the deal;  Hezbollah fired into Israel for the first time since the truce took effect, and Israel responded with airstrikes.`\
-https://nytimes.com/2024/12/02/world/middleeast/hezbollah-israel-lebanon.html
-
-**WNBA releases 2025 schedule: matchups to watch**\
-`WNBA teams will play a record 44 games during the 2025 regular season, up from 40 in 2024.`\
-https://nytimes.com/athletic/5963889/2024/12/02/wnba-2025-schedule-released/
 
