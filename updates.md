@@ -1,3 +1,11 @@
+**Kane will 'definitely miss a few games' with thigh injury**\
+`Harry Kane will &#8220;definitely miss a few games&#8221; after picking up a thigh injury in Bayern Munich&#8217;s draw with Borussia Dortmund on Saturday.`\
+https://nytimes.com/athletic/5962615/2024/12/02/harry-kane-injury-latest-bayern-munich/
+
+**What will committee do with Alabama and Miami? College Football Playoff Bubble Watch**\
+`The bubble isn't very big, but the arguments for the final spots could get heated. `\
+https://nytimes.com/athletic/5961378/2024/12/02/college-football-playoff-bubble-watch-alabama-smu-miami/
+
 **The Bears need to hire the right head coach this time. Five tips for their search**\
 `The Bears are in good position with a franchise quarterback on a rookie contract and a solid roster. Now they need the right coach.`\
 https://nytimes.com/athletic/5960958/2024/12/02/bears-head-coach-search-tips/
