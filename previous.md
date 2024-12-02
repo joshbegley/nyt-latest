@@ -1,3 +1,11 @@
+**Kash Patel Has Plan to Remake the F.B.I. Into a Tool of Trump**\
+`President-elect Donald Trump’s pick to lead the F.B.I. has called for firing the agency’s top officials, shutting down its Washington headquarters and prosecuting leakers and journalists.`\
+https://nytimes.com/2024/12/02/us/politics/kash-patel-fbi.html
+
+**Shohei Ohtani to recover baseball cards seized from former interpreter Ippei Mizuhara**\
+`The cards were likely part of numerous ploys by Mizuhara to steal from Ohtani.`\
+https://nytimes.com/athletic/5964721/2024/12/02/shohei-ohtani-baseball-cards-recovery-ippei-mizuhara/
+
 **How Lou Anarumo and Zac Taylor are dissecting the Bengals' defensive downfall**\
 `The defensive coordinator and head coach say it's their responsibility but claim their message is still getting through to players.`\
 https://nytimes.com/athletic/5964621/2024/12/02/bengals-lou-anarumo-zac-taylor-defense/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5964517/2024/12/02/david-jiricek-wild-trade-first-i
 **Ex-Kansas Police Detective Found Dead on First Day of His Trial**\
 `Roger Golubski, who had been accused of raping and terrorizing Black women, was found dead on his back porch on Monday as his federal trial was set to begin.`\
 https://nytimes.com/2024/12/02/us/kansas-detective-roger-golubski-dead.html
-
-**49ers to place RBs McCaffrey, Mason on injured reserve**\
-`Rookie Isaac Guerendo is now atop the depth chart for San Francisco with the team's top backs all out.`\
-https://nytimes.com/athletic/5964497/2024/12/02/christian-mccaffrey-jordan-mason-49ers-ir/
-
-**The Friendship Behind ‘Annie Hall’ and ‘Manhattan’**\
-`In a Q&A, Woody Allen describes the years spent collaborating with his friend Marshall Brickman on beloved movies. Mr. Brickman died on Friday.`\
-https://nytimes.com/2024/12/02/movies/woody-allen-marshall-brickman-q-and-a.html
 
