@@ -1,3 +1,11 @@
+**Despite Patriots' loss, it's OK to be recklessly optimistic about rookie QB Drake Maye**\
+`Even as the losses mount for the Patriots, Maye continues to shine. Because the franchise got that pick right, the future is bright.`\
+https://nytimes.com/athletic/5961293/2024/12/01/drake-maye-patriots-colts-optimism/
+
+**Biden Issues a ‘Full and Unconditional Pardon’ of His Son Hunter Biden**\
+`The pardon comes weeks before President Biden leaves office and transfers power to President-elect Donald J. Trump, who spent years attacking Hunter Biden over his legal and personal issues.`\
+https://nytimes.com/2024/12/01/us/politics/biden-pardon-son.html
+
 **Rams overcome first-half shutout to beat Saints 21-14: Takeaways**\
 `Stafford tossed two touchdown passes in the final frame after the Rams were shut out 6-0 in the first half in New Orleans.`\
 https://nytimes.com/athletic/5960190/2024/12/01/rams-saints-score-result-takeaways-2/
