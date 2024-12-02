@@ -1,3 +1,7 @@
+**Stars Like Wayne Northrop Remembered as Mainstays of Daytime TV**\
+`These soap stars played various characters, sometimes on more than one program, and formed connections with viewers who followed their stories for years.`\
+https://nytimes.com/2024/12/02/arts/soap-opera-stars-dead.html
+
 **Six ways the short-handed Canucks have held the fort on a crucial road trip**\
 `Despite key absences, the Canucks have gone 4-1-0 on a critical road swing, gaining ground on most of their Pacific Division rivals.`\
 https://nytimes.com/athletic/5962211/2024/12/02/canucks-nhl-win-lankinen-suter/
