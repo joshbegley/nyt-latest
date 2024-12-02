@@ -1,3 +1,7 @@
+**Lions defensive depth chart: Key helpers, possible returners, notable injuries**\
+`The Lions keep losing defensive players to injury, but have acquired players to help fill the need.`\
+https://nytimes.com/athletic/5961781/2024/12/02/detroit-lions-defensive-depth-chart-injuries/
+
 **How I Learned to Shave**\
 `Things our dads taught us, whether they intended to or not.`\
 https://nytimes.com/2024/12/02/podcasts/how-i-learned-to-shave-this-american-life-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/us/politics/trump-defiance-appointees.html
 **Biden Targets China’s Chip Industry With Wider Trade Bans**\
 `New rules prohibit the sale of certain types of chips and equipment to China, in an effort to close loopholes and cement the Biden administration’s legacy in countering the U.S. rival.`\
 https://nytimes.com/2024/12/02/business/economy/biden-china-chips-exports.html
-
-**How Many Pairs of Black Pants Is Too Many?**\
-`A reader asks about the ideal number of black pants to own. Our fashion critic provides guidance on how many essential wardrobe pieces one should have.`\
-https://nytimes.com/2024/12/02/style/black-pants-wardrobe-basics.html
 
