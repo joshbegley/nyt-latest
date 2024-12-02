@@ -1,3 +1,7 @@
+**The Athletic 134: Notre Dame vs. Penn State, and other resume toss-ups that matter**\
+`Figuring out the 12 CFP teams has become mostly pretty easy, but seeding those teams remains completely up in the air.`\
+https://nytimes.com/athletic/5962215/2024/12/02/college-football-team-fbs-rankings-regular-season/
+
 **Alpine confirms Doohan to make F1 debut in Abu Dhabi after Esteban Ocon exit**\
 `Alpine has announced that Jack Doohan will make his Formula One debut this weekend in Abu Dhabi, replacing Esteban Ocon.`\
 https://nytimes.com/athletic/5962464/2024/12/02/alpine-doohan-f1-abu-dhabi-esteban-ocon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960853/2024/12/02/arne-slot-liverpool-perfect-week
 **I’m One of the Last Doctors in This Hospital in Gaza. I’m Begging the World for Help.**\
 `Most of the medical staff at Kamal Adwan Hospital is gone. One of the last doctors working there shares his story.`\
 https://nytimes.com/2024/12/02/opinion/gaza-hospital-kamal-adwan.html
-
-**Christmas Specials, Plus 4 Things to Watch on TV This Week**\
-`Get in the holiday spirit with Sabrina Carpenter, Jimmy Fallon or a Christmas tree lighting. Catch up on reality television and heists.`\
-https://nytimes.com/2024/12/02/arts/television/christmas-specials-plus-4-things-to-watch-on-tv-this-week.html
 
