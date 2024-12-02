@@ -1,3 +1,11 @@
+**What's up with Mikal Bridges? Will KAT and Mitchell Robinson work? A Knicks discussion**\
+`James L. Edwards III and Fred Katz dive into key talking points from the Knicks' season thus far. `\
+https://nytimes.com/athletic/5961693/2024/12/02/mikal-bridges-karl-anthony-towns-knicks-nba/
+
+**Who Are the Rebels Leading the Offensive in Syria?**\
+`The group now advancing, Hayat Tahrir al-Sham, says it wants to replace the Assad government with one inspired by Islamic principles.`\
+https://nytimes.com/2024/12/02/world/middleeast/syria-rebels-hts-who-what.html
+
 **Rebels’ Advance Appears to Buoy Syrian Opposition in Exile**\
 `In just a few days, a patchwork of forces has seized control of a broad stretch of land in the west and northwest of Syria.`\
 https://nytimes.com/2024/12/02/world/middleeast/syria-aleppo-assad.html
