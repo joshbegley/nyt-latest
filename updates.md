@@ -1,3 +1,15 @@
+**Closing Arguments to Begin in Subway Chokehold Trial**\
+`Daniel Penny was charged with manslaughter in the choking death of Jordan Neely, a homeless man who was shouting in a subway car, last year.`\
+https://nytimes.com/2024/12/02/nyregion/penny-trial-closings.html
+
+**How a Right-Wing Schools Activist Started a Culture War in Manhattan**\
+`In March, Maud Maron introduced a resolution about transgender students’ participation in sports. The fallout has derailed a parent council in an overwhelmingly liberal district.`\
+https://nytimes.com/2024/12/02/nyregion/maud-maron-transgender-nyc-school-council.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/02/crosswords/spelling-bee-forum.html
+
 **Liverpool near perfection as Manchester City continue to be engulfed by a perfect storm**\
 `It's too early for the title race to be over, but Liverpool's serenity and control under Arne Slot makes them huge favourites `\
 https://nytimes.com/athletic/5962112/2024/12/02/liverpool-manchester-city-premier-league-title-race/

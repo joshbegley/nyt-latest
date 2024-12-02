@@ -1,3 +1,15 @@
+**Closing Arguments to Begin in Subway Chokehold Trial**\
+`Daniel Penny was charged with manslaughter in the choking death of Jordan Neely, a homeless man who was shouting in a subway car, last year.`\
+https://nytimes.com/2024/12/02/nyregion/penny-trial-closings.html
+
+**How a Right-Wing Schools Activist Started a Culture War in Manhattan**\
+`In March, Maud Maron introduced a resolution about transgender students’ participation in sports. The fallout has derailed a parent council in an overwhelmingly liberal district.`\
+https://nytimes.com/2024/12/02/nyregion/maud-maron-transgender-nyc-school-council.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/02/crosswords/spelling-bee-forum.html
+
 **Liverpool near perfection as Manchester City continue to be engulfed by a perfect storm**\
 `It's too early for the title race to be over, but Liverpool's serenity and control under Arne Slot makes them huge favourites `\
 https://nytimes.com/athletic/5962112/2024/12/02/liverpool-manchester-city-premier-league-title-race/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5958360/2024/12/02/west-ham-arsenal-lopetegui/
 **Toothless Newcastle need answers to scoring problem**\
 `If Newcastle had beaten Palace, it would have been a smash-and-grab win. They didn't have a shot on target. So where is it going wrong?`\
 https://nytimes.com/athletic/5958588/2024/12/02/newcastle-toothless-palace-premier-league/
-
-**Nuno's Forest have rediscovered their identity at just the right time**\
-`Being able to defend well and having a prolific goalscorer is key, but there are other factors involved in Forest's success.`\
-https://nytimes.com/athletic/5959692/2024/12/02/nuno-forest-identity-defensive-record/
-
-**What do we expect of this Manchester City team? Perfection, really**\
-`City's dreadful recent run shows the extent of what this side have achieved - as Guardiola's gesture to the Anfield crowd reminded us `\
-https://nytimes.com/athletic/5960673/2024/12/02/manchester-city-premier-league-guardiola-six/
-
-**How Arsenal found their 'flow' again**\
-`There has not been a mid-season break to kickstart their season this time, but Odegaard's return has helped Arsenal find their quality`\
-https://nytimes.com/athletic/5958858/2024/12/02/arsenal-west-ham-goals-flow-result/
 
