@@ -1,3 +1,7 @@
+**Inside a Secret Plan to Bring Uyghurs Trapped in China to the United States**\
+`On Thanksgiving eve, U.S. diplomats reunited family members who had not seen each other in years because of China’s harsh policies on the ethnic group.`\
+https://nytimes.com/2024/12/02/us/politics/china-secret-deal-uyghurs.html
+
 **Schumer Presses for F.B.I. Checks and Senate Consideration of Trump Nominees**\
 `In a letter, the Democratic leader said members of his party would work with Republicans to consider the president-elect’s nominees — but asserted they should undergo traditional Senate vetting.`\
 https://nytimes.com/2024/12/02/us/schumer-senate-fbi-checks-trump-nominees.html
@@ -5,6 +9,10 @@ https://nytimes.com/2024/12/02/us/schumer-senate-fbi-checks-trump-nominees.html
 **What Can the World’s Top Court Do About Climate Change?**\
 `The International Court of Justice, the United Nations’ highest judicial body, is beginning landmark hearings on global warming. Here’s a guide.`\
 https://nytimes.com/2024/12/02/world/icj-climate-change-opinion-hearings.html
+
+**December madness is here: Initial thoughts on Penn State's matchup with Oregon for Big Ten title**\
+`Penn State has the star power to hang around with the No. 1 team in the country. But will it?`\
+https://nytimes.com/athletic/5961238/2024/12/02/penn-state-oregon-college-football-big-ten-championship/
 
 **Trump Doubles Down on Defiance After the Collapse of the Matt Gaetz Selection**\
 `President-elect Donald J. Trump’s decision to install Kash Patel as F.B.I. director indicates that he remains undaunted by Washington resistance as he appoints ideological warriors, conspiracy theorists and even relatives.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/us/distrustful-of-health-agencies-these-voters-ch
 **Momma Rose’s Many Faces, From Ethel Merman to Audra McDonald**\
 `In her various incarnations, the “Gypsy” character is always loud, always scary, but so different. Ben Brantley reflects on all the onstage Roses he has known.`\
 https://nytimes.com/2024/12/02/theater/gypsy-audra-mcdonald-broadway.html
-
-**Chilling Out in Coral Bay, Where Even Flip-Flops Are Optional**\
-`On the east side of St. John, it’s still possible to experience the quiet, backwater vibe that this Caribbean island has long been known for, even after two devastating hurricanes and a surge in tourism.`\
-https://nytimes.com/2024/12/02/travel/st-john-caribbean-usvi.html
-
-**How Do You Like That Filibuster Now?**\
-`The Senate can take steps to remain an independent power center in Trump’s Washington.`\
-https://nytimes.com/2024/12/02/opinion/donald-trump-senate.html
 
