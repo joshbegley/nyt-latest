@@ -1,3 +1,11 @@
+**The Artist Calida Rawles and Her Subjects Find Hope in the Water**\
+`For her first solo museum show, Rawles invited residents of a historically Black neighborhood in Miami into the pool and ocean — and ultimately, the museum.`\
+https://nytimes.com/2024/12/02/arts/design/calida-rawles-overtown-miami-portraits.html
+
+**At Art Basel, a Famed Poem as an Allegory for the Environment**\
+`Gallery Baton of South Korea is drawing inspiration from Dylan Thomas with artworks that reflect on the challenges of climate change.`\
+https://nytimes.com/2024/12/02/arts/design/gallery-baton-art-basel-miami-beach-environment.html
+
 **$825,000 Homes in California**\
 `A three-bedroom house with a pool in Palm Springs, a cute Victorian-era house in Nevada City, and a three-bedroom bungalow from 1925 in Torrance.`\
 https://nytimes.com/2024/12/02/realestate/825000-homes-in-california.html
