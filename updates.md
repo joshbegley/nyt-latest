@@ -1,3 +1,7 @@
+**What’s Behind the Protests in the Country of Georgia?**\
+`For days, pro-Western Georgians have clashed with police over the government’s plan to suspend plans for European Union membership.`\
+https://nytimes.com/2024/12/02/world/europe/protests-georgia-tbilisi.html
+
 **Prime Tire: F1's season finale showdown**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/5964178/2024/12/02/abu-dhabi-grand-prix-f1-prime-tire/

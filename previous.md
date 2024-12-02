@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5963571/2024/12/02/jordyn-tyson-injury-arizona-stat
 `In the right situation, he’s an explosive play waiting to happen and will be one of the top offensive playmakers on many NFL draft boards.`\
 https://nytimes.com/athletic/5964126/2024/12/02/luther-burden-nfl-draft-missouri/
 
-**What’s Behind the Protests in the Caucasus Country of Georgia?**\
+**What’s Behind the Protests in the Country of Georgia?**\
 `For days, pro-Western Georgians have clashed with police over the government’s plan to suspend plans for European Union membership.`\
 https://nytimes.com/2024/12/02/world/europe/protests-georgia-tbilisi.html
 
