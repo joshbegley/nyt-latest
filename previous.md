@@ -1,3 +1,7 @@
+**Word of the Day: equable**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/02/learning/word-of-the-day-equable.html
+
 **Arne Slot's calm authority has taken Liverpool to another level**\
 `Liverpool haven't outclassed Manchester City so comprehensively throughout a contest quite like they did on Sunday`\
 https://nytimes.com/athletic/5960853/2024/12/02/arne-slot-liverpool-perfect-week/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5958858/2024/12/02/arsenal-west-ham-goals-flow-resu
 **Aston Villa's data shows the defence has been rocking for some time**\
 `Little has changed structurally to Villa's defence since last season, so why is their back line struggling so badly in the Premier League?`\
 https://nytimes.com/athletic/5959788/2024/12/02/aston-villa-are-in-decline-and-the-data-shows-the-defence-has-been-rocking-for-some-time/
-
-**Chelsea unveil their blueprint to weaponise Enzo Fernandez**\
-`The Argentina midfielder was omitted earlier this season but Enzo Maresca has now unearthed a system that better taps into his talents`\
-https://nytimes.com/athletic/5960392/2024/12/02/enzo-fernandez-chelsea-maresca-caicedo/
 

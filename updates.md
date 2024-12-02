@@ -1,3 +1,7 @@
+**Word of the Day: equable**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/02/learning/word-of-the-day-equable.html
+
 **Arne Slot's calm authority has taken Liverpool to another level**\
 `Liverpool haven't outclassed Manchester City so comprehensively throughout a contest quite like they did on Sunday`\
 https://nytimes.com/athletic/5960853/2024/12/02/arne-slot-liverpool-perfect-week/
