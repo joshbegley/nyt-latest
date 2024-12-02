@@ -1,6 +1,6 @@
 **If Aaron Rodgers just played his last game for the Jets, it might have been his worst**\
 `The quarterback was at the center of yet another inexplicable loss.`\
-https://nytimes.com/athletic/5961469/2024/12/01/if-aaron-rodgers-just-played-his-last-game-for-the-jets-it-might-have-been-his-worst/
+https://nytimes.com/athletic/5961469/2024/12/01/aaron-rodgers-possible-benching-seahawks-loss/
 
 **Hunter Biden Likely Wouldn’t Qualify for a Pardon Recommendation Under Justice Dept. Criteria**\
 `The Office of the Pardon Attorney mostly recommends full pardons for people who have already served their sentences. Hunter Biden has not been sentenced.`\
