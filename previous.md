@@ -1,3 +1,11 @@
+**Dozens Killed at Soccer Match After Clashes in Guinea**\
+`The violence took place after some fans were unhappy with the referee’s decision and stormed the pitch, according to witnesses.`\
+https://nytimes.com/video/world/africa/100000009854141/guinea-soccer-match-violence.html
+
+**Mushrooms, Long a Supporting Player, Find the Leading Role**\
+`As restaurants around the country make the humble mushroom an essential main dish, home cooks can learn a few tricks for dinner, too.`\
+https://nytimes.com/2024/12/02/dining/mushroom-main-dish-recipes.html
+
 **Cole Palmer's defensive diligence under Enzo Maresca deserves more acclaim**\
 `Playmaker’s hard work is helping Chelsea become a team who look closer to being the sum of its expensive parts`\
 https://nytimes.com/athletic/5962502/2024/12/02/cole-palmer-off-ball-defensive-improvement/
@@ -30,8 +38,3 @@ https://nytimes.com/athletic/5963329/2024/12/02/paige-bueckers-college-basketbal
 `The Dutchman scored twice against Everton but it was his movement to open up lanes for his team-mates that stood out most`\
 https://nytimes.com/athletic/5962311/2024/12/02/joshua-zirkzee-manchester-united-analysis/
 
-**The Hunter Biden Pardon: Mercy, or the Wrong Message?**\
-`Readers understand a father’s desire to help his son but diverge from there. Also: A pick as envoy to France; overdose deaths; 5 days in the office.`\
-https://nytimes.com/2024/12/02/opinion/hunter-biden-pardon.html
-
-**gws-caleb-simpson-apartments-new-york**\

@@ -1,3 +1,11 @@
+**Dozens Killed at Soccer Match After Clashes in Guinea**\
+`The violence took place after some fans were unhappy with the referee’s decision and stormed the pitch, according to witnesses.`\
+https://nytimes.com/video/world/africa/100000009854141/guinea-soccer-match-violence.html
+
+**Mushrooms, Long a Supporting Player, Find the Leading Role**\
+`As restaurants around the country make the humble mushroom an essential main dish, home cooks can learn a few tricks for dinner, too.`\
+https://nytimes.com/2024/12/02/dining/mushroom-main-dish-recipes.html
+
 **Cole Palmer's defensive diligence under Enzo Maresca deserves more acclaim**\
 `Playmaker’s hard work is helping Chelsea become a team who look closer to being the sum of its expensive parts`\
 https://nytimes.com/athletic/5962502/2024/12/02/cole-palmer-off-ball-defensive-improvement/
