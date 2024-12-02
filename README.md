@@ -1,3 +1,7 @@
+**Arne Slot's calm authority has taken Liverpool to another level**\
+`Liverpool haven't outclassed Manchester City so comprehensively throughout a contest quite like they did on Sunday`\
+https://nytimes.com/athletic/5960853/2024/12/02/arne-slot-liverpool-perfect-week/
+
 **‘The Human Mind Cannot Imagine All the Death’: Scenes From One of Gaza’s Last Hospitals**\
 `Most of the medical staff at Kamal Adwan Hospital is gone. One of the last doctors working there shares his story.`\
 https://nytimes.com/2024/12/02/opinion/gaza-hospital-kamal-adwan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5959788/2024/12/02/aston-villa-are-in-decline-and-t
 **Chelsea unveil their blueprint to weaponise Enzo Fernandez**\
 `The Argentina midfielder was omitted earlier this season but Enzo Maresca has now unearthed a system that better taps into his talents`\
 https://nytimes.com/athletic/5960392/2024/12/02/enzo-fernandez-chelsea-maresca-caicedo/
-
-**Can Fabio Carvalho break in at Brentford?**\
-`The west London club are flying up front, particularly at home - and Carvalho is not getting chances after his £27.5m move from Liverpool`\
-https://nytimes.com/athletic/5958575/2024/12/02/fabio-carvalho-brentford-premier-league/
 
