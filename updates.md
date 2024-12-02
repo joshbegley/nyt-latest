@@ -1,3 +1,15 @@
+**Germany Pledges Extra $680 Million to Ukraine in Effort at Reassurance**\
+`Chancellor Olaf Scholz visited Kyiv on Monday. Amid fears that U.S. support could dry up, Ukrainian officials had criticized him for a recent phone call with President Vladimir V. Putin.`\
+https://nytimes.com/2024/12/02/world/europe/scholz-germany-ukraine-aid.html
+
+**Amick: Victor Wembanyama's 'problems' are tiny compared to huge things he's already doing**\
+`The possibilities for the second-year French unicorn seem so vast that you can miss the early great stuff — like Sunday's triple-double.`\
+https://nytimes.com/athletic/5962467/2024/12/02/victor-wembanyamas-spurs-kings-development/
+
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`After a disappointing performance and draw at the weekend, post your Newcastle-related questions to Chris`\
+https://nytimes.com/athletic/5962489/2024/12/02/inside-newcastle-q-and-a/
+
 **FPL Gameweek 14 preview: Essential Arsenal and a Liverpool defensive bargain**\
 `Abdul Rehman reviews the main talking points from Gameweek 13 and looks ahead to a midweek Gameweek 14`\
 https://nytimes.com/athletic/5960258/2024/12/02/fantasy-premier-league-gameweek-14-preview-saka-gomez-isak/
