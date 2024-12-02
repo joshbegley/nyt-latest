@@ -1,3 +1,11 @@
+**U.S. Dual Citizen Thought to Be Alive in Gaza Died on Oct. 7, Israel Says**\
+`Omer Neutra, who had Israeli and American citizenship, was doing military service in Israel when Hamas invaded. His parents have been high-profile campaigners for the hostages.`\
+https://nytimes.com/2024/12/02/world/middleeast/omer-neutra-israel-oct-7-gaza-hamas-hostage.html
+
+**A Disgraceful Pardon**\
+`Biden’s act will fuel public cynicism and excuse Trump’s plans to politicize justice.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/biden-hunter-pardon-trump
+
 **Which Oilers will join Connor McDavid at the 4 Nations Face-Off?**\
 `The Oilers have a few players in the running for the Canadian and Swedish squads at the upcoming tournament.`\
 https://nytimes.com/athletic/5959605/2024/12/02/oilers-nhl-team-canada-sweden-mcdavid/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/opinion/communities-fund-one-goal.html
 **A Pardon for Hunter Biden**\
 `President Biden and President-elect Donald Trump now agree on one thing: The Justice Department has been politicized.`\
 https://nytimes.com/2024/12/02/briefing/a-pardon-for-hunter-biden.html
-
-**Biden Opens the Only Trip of His Presidency to Sub-Saharan Africa**\
-`The president stopped in Cape Verde on his way to Angola, where he will highlight American commitment to Africa in the economic competition against China.`\
-https://nytimes.com/2024/12/02/world/africa/biden-africa-trip-angola-cape-verde.html
-
-**Dozens Killed as Violence Erupts Following Soccer Match in Guinea**\
-`The clashes occurred during a game between the Labe and Nzerekore soccer teams in Nzerekore, the second-largest city in the West African nation.`\
-https://nytimes.com/video/world/africa/100000009853791/dozens-killed-as-violence-erupts-following-soccer-match-in-guinea.html
 
