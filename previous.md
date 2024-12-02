@@ -1,3 +1,7 @@
+**How Lou Anarumo and Zac Taylor are dissecting the Bengals' defensive downfall**\
+`The defensive coordinator and head coach say it's their responsibility but claim their message is still getting through to players.`\
+https://nytimes.com/athletic/5964621/2024/12/02/bengals-lou-anarumo-zac-taylor-defense/
+
 **What now for the LPGA? Its next commissioner will face significant tests**\
 `Key events don't have title sponsors. Some tournaments are on TV tape delay. And there's a potential legal fight brewing.`\
 https://nytimes.com/athletic/5964477/2024/12/02/lpga-commissioner-tv-sponsor-transgender-rights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5964497/2024/12/02/christian-mccaffrey-jordan-mason
 **The Friendship Behind ‘Annie Hall’ and ‘Manhattan’**\
 `In a Q&A, Woody Allen describes the years spent collaborating with his friend Marshall Brickman on beloved movies. Mr. Brickman died on Friday.`\
 https://nytimes.com/2024/12/02/movies/woody-allen-marshall-brickman-q-and-a.html
-
-**Elon Musk’s $50 Billion Tesla Pay Can’t Be Reinstated, Delaware Judge Rules**\
-`The judge said she would not reverse her decision to strike down the compensation package after Tesla shareholders approved Mr. Musk’s pay a second time.`\
-https://nytimes.com/2024/12/02/business/elon-musk-tesla-pay-ruling.html
 

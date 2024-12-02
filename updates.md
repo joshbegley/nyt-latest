@@ -1,3 +1,7 @@
+**How Lou Anarumo and Zac Taylor are dissecting the Bengals' defensive downfall**\
+`The defensive coordinator and head coach say it's their responsibility but claim their message is still getting through to players.`\
+https://nytimes.com/athletic/5964621/2024/12/02/bengals-lou-anarumo-zac-taylor-defense/
+
 **What now for the LPGA? Its next commissioner will face significant tests**\
 `Key events don't have title sponsors. Some tournaments are on TV tape delay. And there's a potential legal fight brewing.`\
 https://nytimes.com/athletic/5964477/2024/12/02/lpga-commissioner-tv-sponsor-transgender-rights/
