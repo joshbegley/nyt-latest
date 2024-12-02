@@ -1,3 +1,11 @@
+**The Briefing: How is Slot making it look so easy? Do Arsenal's hopes rest on two men?**\
+`Nick Miller answers the big talking points after the weekend's Premier League action`\
+https://nytimes.com/athletic/5960770/2024/12/02/liverpool-slot-arsenal-villa-premier-league/
+
+**Why England's attacking 'experiment' didn't work against the United States**\
+`No big chances, an xG of 0.07 and too few runs in behind left England fans with little to cheer against the U.S. Clarity is needed.`\
+https://nytimes.com/athletic/5959721/2024/12/02/uswnt-england-wembley-experiment/
+
 **The Business of Football: Premier League global TV deals up 27%, World Cup 'acclamation'**\
 `What Matt Slater is hearing in the corridors of power - from the global game to the latest goings-on in the Premier League and EFL`\
 https://nytimes.com/athletic/5955354/2024/12/02/premier-league-world-cup-football-soccer-news/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/dining/can-you-find-awe-in-christmas-cookies.html
 **Mets sign starter Frankie Montas to short-term deal: Source**\
 `Montas' deal includes a player option for 2026. He pitched 150 2/3 innings for the Reds and Brewers in 2024.`\
 https://nytimes.com/athletic/5962162/2024/12/01/mets-frankie-montas-contract/
-
-**The Eagles captured momentum in their eighth straight win — or did they?**\
-`Philadelphia effectively shut down Lamar Jackson and Derrick Henry.`\
-https://nytimes.com/athletic/5960980/2024/12/01/eagles-win-saquon-barkley-jalen-hurts-ravens/
-
-**Alternate ending: How Panthers' latest last-second L could have turned out differently**\
-`The Panthers had their chances, but a near TD catch, two missed kicks and an overtime fumble kept them from beating the Bucs.`\
-https://nytimes.com/athletic/5962069/2024/12/01/panthers-loss-adam-thielen-catch-overtime-bucs/
 
