@@ -1,5 +1,5 @@
-**Trump Says There Will Be ‘Hell to Pay’ Unless Hostages in Gaza Are Released**\
-`President-elect Donald J. Trump said in a social media post on Monday that the hostages must be released  before his inauguration in January.`\
+**Trump Threatens ‘Hell to Pay’ Unless Gaza Hostages Are Freed Before Inauguration**\
+`President-elect Donald J. Trump said in a social media post on Monday that the hostages must be released before his inauguration in January.`\
 https://nytimes.com/2024/12/02/world/middleeast/trump-gaza-hostages-inauguration.html
 
 **A Second-Rate Crime Gets a Second-Rate Pardon**\
