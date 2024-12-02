@@ -1,3 +1,7 @@
+**FAU expected to hire Texas Tech OC Zach Kittley as coach: Source**\
+`Zach Kittley will replace Tom Herman as head coach of FAU after three seasons as Texas Tech's offensive coordinator.`\
+https://nytimes.com/athletic/5964064/2024/12/02/zach-kittley-florida-atlantic-football-coach/
+
 **Bruce Feldman's West Virginia coaching candidates: RichRod, Jimbo or the field?**\
 `This search could get very interesting thanks to a couple of West Virginians who figure to get consideration and could have strong support.`\
 https://nytimes.com/athletic/5963982/2024/12/02/west-virginia-football-coaching-search-candidates/
