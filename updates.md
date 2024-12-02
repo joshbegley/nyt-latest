@@ -1,3 +1,15 @@
+**For Iranian Women, Can a Revolution Take Place at Home?**\
+`Inspired by the movement for women’s rights in Iran, Elahe Esmaili returns to her hometown to start her own resistance.`\
+https://nytimes.com/2024/12/02/opinion/iran-women-hijab.html
+
+**A Move**\
+`Inspired by the movement for women’s rights in Iran, Elahe Esmaili returns to her hometown to start her own resistance.`\
+https://nytimes.com/video/opinion/100000009567320/a-move.html
+
+**Broad Pardon for Hunter Biden Troubles Experts**\
+`President Biden granted blanket clemency to stop his son from being prosecuted by the Trump administration for his foreign business. Experts reached for historical parallels.`\
+https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-president.html
+
 **How Lou Anarumo and Zac Taylor are dissecting the Bengals' defensive downfall**\
 `The defensive coordinator and head coach say it's their responsibility but also that their message is still getting through to players.`\
 https://nytimes.com/athletic/5964621/2024/12/02/bengals-lou-anarumo-zac-taylor-defense/
