@@ -1,3 +1,19 @@
+**How Daniel Munoz personifies Crystal Palace's ups and down this season**\
+`The Colombian wing-back had played every game for Palace since joining from Genk in January and failed to score, but this was his moment`\
+https://nytimes.com/athletic/5956737/2024/12/02/palace-munoz-glasner-newcastle/
+
+**If Everton can't even defend anymore, then what next for Dyche?**\
+`The solidity at the back that the manager usually guarantees from his teams looks to be crumbling — piling further pressure on the club`\
+https://nytimes.com/athletic/5960331/2024/12/02/everton-defence-dyche-premier-league/
+
+**Amorim has options aplenty at centre-forward - but who will be his first choice?**\
+`Joshua Zirkzee, Rasmus Hojlund and Marcus Rashford have all delivered in the No 9 role, leaving the new manager with a decision to make`\
+https://nytimes.com/athletic/5960640/2024/12/02/amorim-manchester-united-centre-forward/
+
+**Tottenham's injury problems have blunted their edge - and there is no respite ahead**\
+`Spurs were unrecognisable from the riotous win at Manchester City but, as Ange Postecoglu pointed out, their options have been decimated`\
+https://nytimes.com/athletic/5955721/2024/12/02/tottenham-postecoglu-injuries-fulham/
+
 **The Briefing: How is Slot making it look so easy? Do Arsenal's hopes rest on two men?**\
 `Nick Miller answers the big talking points after the weekend's Premier League action`\
 https://nytimes.com/athletic/5960770/2024/12/02/liverpool-slot-arsenal-villa-premier-league/
