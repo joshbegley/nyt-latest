@@ -1,3 +1,7 @@
+**Director of ‘2000 Mules’ Acknowledges the Conspiratorial Film Was Flawed**\
+`The director, Dinesh D’Souza, who is facing a lawsuit over the documentary, admitted that an analysis used to make claims about election fraud that were later debunked had been faulty.`\
+https://nytimes.com/2024/12/02/us/politics/dinesh-dsouza-2000-mules-apology-trump.html
+
 **Syrian and Russian Fighter Jets Strike Areas Held by Rebel Forces**\
 `The airstrikes came as the rebel forces continued advancing in the west and northwest of Syria.`\
 https://nytimes.com/video/world/middleeast/100000009853959/syria-russia-airstrikes-rebels-aleppo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963434/2024/12/02/mohamed-salah-liverpool-fsg-cont
 **Dozens Killed at Soccer Match After Clashes in Guinea**\
 `The violence took place after some fans were unhappy with the referee’s decision and stormed the pitch, according to witnesses.`\
 https://nytimes.com/video/world/africa/100000009854141/guinea-soccer-match-violence.html
-
-**Mushrooms, Long a Supporting Player, Find the Leading Role**\
-`As restaurants around the country make the humble mushroom an essential main dish, home cooks can learn a few tricks for dinner, too.`\
-https://nytimes.com/2024/12/02/dining/mushroom-main-dish-recipes.html
 
