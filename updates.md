@@ -1,3 +1,11 @@
+**U.N. Suspends Aid Deliveries Through Key Crossing in Gaza**\
+`The head of the United Nations agency for Palestinian refugees said it was pausing deliveries through the Kerem Shalom crossing because of safety concerns.`\
+https://nytimes.com/2024/12/02/world/middleeast/unrwa-aid-gaza.html
+
+**Weekend NHL rankings: Rangers, Kraken, a November blockbuster and a new Top 5 team**\
+`The Blue Jackets and Wild added a bit of unexpected spice to late November with the David Jiricek trade. Let’s dive into it a little deeper.`\
+https://nytimes.com/athletic/5961765/2024/12/02/nhl-weekend-rankings-rangers-kraken-jiricek/
+
 **The Pulse: You have to see this touchdown**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5961805/2024/12/02/bills-49ers-josh-allen-snow-the-pulse/
