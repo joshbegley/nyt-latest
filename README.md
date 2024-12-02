@@ -8,7 +8,7 @@ https://nytimes.com/video/opinion/100000009567320/a-move.html
 
 **Broad Pardon for Hunter Biden Troubles Experts**\
 `President Biden granted blanket clemency to stop his son from being prosecuted by the Trump administration for his foreign business. Experts reached for historical parallels.`\
-https://nytimes.com/2024/12/02/us/politics/broad-pardon-for-hunter-biden-troubles-experts.html
+https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-president.html
 
 **Lions' Dan Campbell says Jahmyr Gibbs' leak of calls 'won’t affect us'**\
 `Gibbs, 22, accidentally revealed Detroit's protections, visible on a whiteboard at the team facility, in a Snapchat video.`\
