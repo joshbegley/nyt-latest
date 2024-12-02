@@ -1,3 +1,7 @@
+**Stars Like Wayne Northrop Remembered as Mainstays of Daytime TV**\
+`These soap stars played various characters, sometimes on more than one program, and formed connections with viewers who followed their stories for years.`\
+https://nytimes.com/2024/12/02/arts/soap-opera-stars-dead.html
+
 **Six ways the short-handed Canucks have held the fort on a crucial road trip**\
 `Despite key absences, the Canucks have gone 4-1-0 on a critical road swing, gaining ground on most of their Pacific Division rivals.`\
 https://nytimes.com/athletic/5962211/2024/12/02/canucks-nhl-win-lankinen-suter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5962868/2024/12/02/anthony-edwards-timberwolves-gia
 **The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in December**\
 `“Pop Culture Jeopardy!,” “Laid,” “Star Wars: Skeleton Crew,” “Christmas Eve in Miller’s Point” and “Sugarcane” are arriving.`\
 https://nytimes.com/2024/12/02/arts/television/december-streaming-movies-shows.html
-
-**Salah open to one-year Liverpool contract extension, frustrated at club's handling of talks**\
-`Mohamed Salah would accept a new one-year contract at Liverpool but is growing increasingly exasperated at the club’s handling of negotiations.`\
-https://nytimes.com/athletic/5962924/2024/12/02/liverpool-mohamed-salah-contract-new/
 
