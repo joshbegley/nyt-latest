@@ -1,3 +1,7 @@
+**Alpine confirms Doohan to make F1 debut in Abu Dhabi after Esteban Ocon exit**\
+`Alpine has announced that Jack Doohan will make his Formula One debut this weekend in Abu Dhabi, replacing Esteban Ocon.`\
+https://nytimes.com/athletic/5962464/2024/12/02/alpine-doohan-f1-abu-dhabi-esteban-ocon/
+
 **James Harden is getting back to dominating games for the Clippers**\
 `Harden scored 39 points in LA's win over Denver while being a part of the offense instead of always being the driver of it.`\
 https://nytimes.com/athletic/5962383/2024/12/02/clippers-james-harden-dominating-games/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/opinion/gaza-hospital-kamal-adwan.html
 **Christmas Specials, Plus 4 Things to Watch on TV This Week**\
 `Get in the holiday spirit with Sabrina Carpenter, Jimmy Fallon or a Christmas tree lighting. Catch up on reality television and heists.`\
 https://nytimes.com/2024/12/02/arts/television/christmas-specials-plus-4-things-to-watch-on-tv-this-week.html
-
-**West Ham's defence is porous. Julen Lopetegui must find solutions quickly**\
-`West Ham have kept three clean sheets in 13 league games. With a packed fixture list this month, the defence must improve`\
-https://nytimes.com/athletic/5958360/2024/12/02/west-ham-arsenal-lopetegui/
 
