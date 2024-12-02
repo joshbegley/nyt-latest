@@ -22,7 +22,7 @@ https://nytimes.com/2024/12/02/learning/word-of-the-day-equable.html
 `Liverpool haven't outclassed Manchester City so comprehensively throughout a contest quite like they did on Sunday`\
 https://nytimes.com/athletic/5960853/2024/12/02/arne-slot-liverpool-perfect-week/
 
-**‘The Human Mind Cannot Imagine All the Death’: Scenes From One of Gaza’s Last Hospitals**\
+**I’m One of the Last Doctors in This Hospital in Gaza. I’m Begging the World for Help.**\
 `Most of the medical staff at Kamal Adwan Hospital is gone. One of the last doctors working there shares his story.`\
 https://nytimes.com/2024/12/02/opinion/gaza-hospital-kamal-adwan.html
 
