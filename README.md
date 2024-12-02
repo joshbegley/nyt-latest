@@ -1,4 +1,4 @@
-**Colts QB Anthony Richardson was 'special': Inside the drive the saved Indy's season**\
+**Colts QB Anthony Richardson was 'special': Inside the drive that saved Indy's season**\
 `In a game the Colts had to have to keep their postseason dreams alive, Richardson marched them 80 yards on 19 plays and pulled out a win.`\
 https://nytimes.com/athletic/5961674/2024/12/01/anthony-richardson-colts-win-drive-patriots/
 
@@ -28,7 +28,7 @@ https://nytimes.com/athletic/5960181/2024/12/01/buccaneers-panthers-score-result
 
 **A judge, not political pressure, scuttled Hunter Biden’s plea deal.**\
 `By Devlin Barrett`\
-https://nytimes.com/live/2024/12/01/us/hunter-biden-pardon-live/a-judge-not-political-pressure-scuttled-hunter-bidens-plea-deal
+https://nytimes.com/2024/12/01/us/politics/a-judge-not-political-pressure-scuttled-hunter-bidens-plea-deal.html
 
 **Brad Marchand understands the stress and power of 100 years of Bruins history**\
 `The Bruins celebrated 100 years with a 6-3 victory over the Canadiens, and the gravity of the moment was not lost on the Boston captain.`\
