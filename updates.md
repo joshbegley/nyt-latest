@@ -1,3 +1,23 @@
+**The Connections Companion No. 541**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 3, 2024.`\
+https://nytimes.com/2024/12/02/crosswords/connections-companion-541.html
+
+**Submit your Cowboys mailbag questions to Saad Yousuf**\
+`<p>Happy December! With just about one month left in the regular season, the Cowboys are on a two-game winning streak but sitting outside of the playoff picture, while still remaining “in the hunt.`\
+https://nytimes.com/athletic/5963057/2024/12/02/dallas-cowboys-mailbag-questions/
+
+**The Connections Companion No. 540**\
+`Scroll down for hints and conversation about the puzzle for Monday, Dec. 2, 2024.`\
+https://nytimes.com/2024/12/02/crosswords/connections-companion-540.html
+
+**Volkswagen Unions Begin Short Strikes and Threaten More**\
+`Workers at nine of the automaker’s German factories walked off their jobs for several hours, and warned they would escalate the action if their demands went unmet.`\
+https://nytimes.com/2024/12/02/business/volkswagen-strikes.html
+
+**Fantasy football Week 13: The best (and worst) player schedules for the stretch run**\
+`Believe in ... the Titans?`\
+https://nytimes.com/athletic/5962883/2024/12/02/fantasy-football-week-13-the-best-and-worst-player-schedules-for-the-stretch-run/
+
 **Jazz have 'you live and you learn' moment thanks to controversial timeout in loss to Lakers**\
 `Regardless of wins and losses, the Jazz need to establish a culture going forward, and a loss Sunday to the Lakers tested their character.`\
 https://nytimes.com/athletic/5961602/2024/12/02/jazz-collin-sexton-will-hardy-timeout/
