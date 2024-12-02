@@ -1,6 +1,6 @@
 **FA Cup third-round draw: Arsenal vs Man Utd, Tamworth vs Spurs**\
 `FA Cup holders Manchester United will play away to Arsenal in the third round of the 2024-25 competition.`\
-https://nytimes.com/athletic/5963546/2024/12/02/fa-cup-third-round-draw-arsenal-vs-manchester-united-tamworth-vs-tottenham-hotspur/
+https://nytimes.com/athletic/5963546/2024/12/02/fa-cup-third-round-draw-arsenal-manchester-united/
 
 **Hezbollah and Israel Trade Fire, Further Testing Cease-Fire**\
 `Both sides have accused each other of violating the deal;  Hezbollah fired into Israel for the first time since the truce took effect, and Israel responded with airstrikes.`\
