@@ -1,3 +1,7 @@
+**Broad Pardon for Hunter Biden Troubles Experts**\
+`President Biden granted blanket clemency to stop his son from being prosecuted by the Trump administration for his foreign business. Experts reached for historical parallels.`\
+https://nytimes.com/2024/12/02/us/politics/broad-pardon-for-hunter-biden-troubles-experts.html
+
 **Lions' Dan Campbell says Jahmyr Gibbs' leak of calls 'won’t affect us'**\
 `Gibbs, 22, accidentally revealed Detroit's protections, visible on a whiteboard at the team facility, in a Snapchat video.`\
 https://nytimes.com/athletic/5964704/2024/12/02/dan-campbell-jahmyr-gibbs-photo-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/us/politics/biden-father-politics-hunter-pardon.h
 **Tony White's departure is just the first domino to fall in a long month ahead for Nebraska**\
 `White turned down at least one opportunity to leave Nebraska after last season. And now, Matt Rhule's best hire is officially moving on. `\
 https://nytimes.com/athletic/5964525/2024/12/02/tony-white-florida-state-nebraska-defensive-coordinator/
-
-**Backlash to Biden’s Pardon**\
-`Also, Russian strikes in Syria. Here's the latest at the end of Monday.`\
-https://nytimes.com/2024/12/02/briefing/backlash-to-bidens-pardon.html
 
