@@ -1,3 +1,7 @@
+**The Friendship Behind ‘Annie Hall’ and ‘Manhattan’**\
+`In a Q&A, Woody Allen describes the years spent collaborating with his friend Marshall Brickman on beloved movies. Mr. Brickman died on Friday.`\
+https://nytimes.com/2024/12/02/movies/woody-allen-marshall-brickman-q-and-a.html
+
 **Elon Musk’s $50 Billion Tesla Pay Can’t Be Reinstated, Delaware Judge Rules**\
 `The judge said she would not reverse her decision to strike down the compensation package after Tesla shareholders approved Mr. Musk’s pay a second time.`\
 https://nytimes.com/2024/12/02/business/elon-musk-tesla-pay-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5964360/2024/12/02/ilona-maher-rugby-bristol-bears/
 **Were Hunter Biden’s Prosecutions a Result of Political Pressure? A Look at the Facts**\
 `The gun case federal prosecutors brought against Hunter Biden was relatively rare, but the tax charges he pleaded guilty to may have been less unusual.`\
 https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-charges.html
-
-**Puzzle Mania 2024 Variety Puzzle Answers**\
-`Check your puzzle answers.`\
-https://nytimes.com/interactive/2024/12/02/crosswords/02puzzle-mania-answers.html
 
