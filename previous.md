@@ -22,8 +22,8 @@ https://nytimes.com/athletic/5961472/2024/12/01/bengals-loss-defense-steelers/
 `Puig suffered the injury in the second half of Saturday’s conference final and continued to play for over 30 minutes.`\
 https://nytimes.com/athletic/5961466/2024/12/01/riqui-puig-injury-mls-cup-galaxy/
 
-**Read Joe Biden’s Statement About Pardoning Hunter**\
-`President Biden issued the following statement on Sunday night.`\
+**Read Joe Biden’s Statement and His Grant of Clemency**\
+`President Biden issued the statement after signing a pardon for Hunter Biden Sunday night.`\
 https://nytimes.com/2024/12/01/us/politics/biden-pardon-hunter-statement.html
 
 **Barkley outplays Henry as Eagles beat Ravens 24-19: Takeaways**\

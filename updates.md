@@ -1,3 +1,7 @@
+**Read Joe Biden’s Statement and His Grant of Clemency**\
+`President Biden issued the statement after signing a pardon for Hunter Biden Sunday night.`\
+https://nytimes.com/2024/12/01/us/politics/biden-pardon-hunter-statement.html
+
 **Bucs beat Panthers in OT, tie Falcons for first in NFC South: Key takeaways**\
 `The Buccaneers improved to 6-6 thanks to a pair of crunchtime field goals by Chase McLaughlin.`\
 https://nytimes.com/athletic/5960181/2024/12/01/buccaneers-panthers-score-result-takeaways/
