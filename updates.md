@@ -1,3 +1,11 @@
+**‘The Human Mind Cannot Imagine All the Death’: Scenes From One of Gaza’s Last Hospitals**\
+`Most of the medical staff at Kamal Adwan Hospital is gone. One of the last doctors working there shares his story.`\
+https://nytimes.com/2024/12/02/opinion/gaza-hospital-kamal-adwan.html
+
+**Christmas Specials, Plus 4 Things to Watch on TV This Week**\
+`Get in the holiday spirit with Sabrina Carpenter, Jimmy Fallon or a Christmas tree lighting. Catch up on reality television and heists.`\
+https://nytimes.com/2024/12/02/arts/television/christmas-specials-plus-4-things-to-watch-on-tv-this-week.html
+
 **West Ham's defence is porous. Julen Lopetegui must find solutions quickly**\
 `West Ham have kept three clean sheets in 13 league games. With a packed fixture list this month, the defence must improve`\
 https://nytimes.com/athletic/5958360/2024/12/02/west-ham-arsenal-lopetegui/
