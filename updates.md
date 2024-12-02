@@ -1,3 +1,7 @@
+**If Anyone Can Save the Democrats, It’s Ben Wikler**\
+`This Wisconsinite is the obvious choice for D.N.C. chair.`\
+https://nytimes.com/2024/12/02/opinion/ben-wikler-dnc-chair.html
+
 **For Iranian Women, Can a Revolution Take Place at Home?**\
 `Inspired by the movement for women’s rights in Iran, Elahe Esmaili returns to her hometown to start her own resistance.`\
 https://nytimes.com/2024/12/02/opinion/iran-women-hijab.html

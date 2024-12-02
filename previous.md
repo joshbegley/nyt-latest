@@ -1,3 +1,7 @@
+**If Anyone Can Save the Democrats, It’s Ben Wikler**\
+`This Wisconsinite is the obvious choice for D.N.C. chair.`\
+https://nytimes.com/2024/12/02/opinion/ben-wikler-dnc-chair.html
+
 **For Iranian Women, Can a Revolution Take Place at Home?**\
 `Inspired by the movement for women’s rights in Iran, Elahe Esmaili returns to her hometown to start her own resistance.`\
 https://nytimes.com/2024/12/02/opinion/iran-women-hijab.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5964721/2024/12/02/shohei-ohtani-baseball-cards-rec
 **How Lou Anarumo and Zac Taylor are dissecting the Bengals' defensive downfall**\
 `The defensive coordinator and head coach say it's their responsibility but also that their message is still getting through to players.`\
 https://nytimes.com/athletic/5964621/2024/12/02/bengals-lou-anarumo-zac-taylor-defense/
-
-**What now for the LPGA? Its next commissioner will face significant tests**\
-`Key events don't have title sponsors. Some tournaments are on TV tape delay. And there's a potential legal fight brewing.`\
-https://nytimes.com/athletic/5964477/2024/12/02/lpga-commissioner-tv-sponsor-transgender-rights/
 
