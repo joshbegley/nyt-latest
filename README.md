@@ -1,3 +1,11 @@
+**Kendrick Lamar’s ‘GNX’ Rockets to No. 1 on the Charts**\
+`The rapper’s surprise LP tops Billboard’s album and singles charts, where “Squabble Up” blocked Shaboozey’s “A Bar Song (Tipsy)” from a historic 20th week of dominance.`\
+https://nytimes.com/2024/12/02/arts/music/kendrick-lamar-gnx-billboard-charts.html
+
+**San Francisco Giants free-agent profile: Corbin Burnes, RHP**\
+`I&#8217;ve been off social media for almost a month now, and I highly recommended it.`\
+https://nytimes.com/athletic/5963552/2024/12/02/corbin-burnes-sf-giants-free-agent-profile/
+
 **Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
 `What are your thoughts on the coaching staff? Drake Maye's ceiling? Submit your Patriots questions here.`\
 https://nytimes.com/athletic/5963568/2024/12/02/patriots-bye-week-mailbag-drake-maye/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/us/politics/raskin-trump-judiciary-committee.html
 **NFL Week 14 odds, spreads, schedule: Lions host Packers to kick off potential spoiler week**\
 `Six divisional matchups stud the Week 14 slate with several teams playing for their postseason lives. `\
 https://nytimes.com/athletic/5963298/2024/12/02/nfl-week-14-odds-spreads-schedule-lions-packers-spoiler/
-
-**What to watch this week in NBA: Triple serving of Warriors and last group stage games**\
-`Here's what to watch — and why to watch — across the NBA this week.`\
-https://nytimes.com/athletic/5961422/2024/12/02/watch-nba-warriors-nuggets-knicks-magic-tv/
-
-**UConn drops from No. 2 to No. 25 in AP Top 25 after winless Maui trip**\
-`Kansas held onto the No. 1 spot in the Top 25 on the strength of a tightly contested win over Duke in Las Vegas.`\
-https://nytimes.com/athletic/5963257/2024/12/02/ap-mens-basketball-top-25-rankings-uconn/
 
