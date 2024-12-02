@@ -1,3 +1,7 @@
+**Clay Holmes could start, Luis Robert Jr.'s trade market and other rumblings**\
+`If Holmes decides to pursue a starting job, he will join former relievers such as Seth Lugo, Reynaldo López and Jordan Hicks.`\
+https://nytimes.com/athletic/5964631/2024/12/02/clay-holmes-mlb-offseason-news/
+
 **Kash Patel Has Plan to Remake the F.B.I. Into a Tool of Trump**\
 `President-elect Donald Trump’s pick to lead the F.B.I. has called for firing the agency’s top officials, shutting down its Washington headquarters and prosecuting leakers and journalists.`\
 https://nytimes.com/2024/12/02/us/politics/kash-patel-fbi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5964354/2024/12/02/tamworth-tottenham-fa-cup/
 **David Jiricek makes a big first impression on Wild teammates: 'Holy s---, he’s tall'**\
 `“I’m excited,” Jiricek said. “I heard it’s a hockey state, so that’s the first thing I know. And the second is it’s frickin’ cold out here."`\
 https://nytimes.com/athletic/5964517/2024/12/02/david-jiricek-wild-trade-first-impression/
-
-**Ex-Kansas Police Detective Found Dead on First Day of His Trial**\
-`Roger Golubski, who had been accused of raping and terrorizing Black women, was found dead on his back porch on Monday as his federal trial was set to begin.`\
-https://nytimes.com/2024/12/02/us/kansas-detective-roger-golubski-dead.html
 
