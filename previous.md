@@ -1,3 +1,11 @@
+**A Final, Whimsical Holiday for the Bidens**\
+`For her last Christmas in the White House, Jill Biden chose the theme, a “Season of Peace and Light.”`\
+https://nytimes.com/card/2024/12/02/us/politics/white-house-holiday-decorations-photos
+
+**Democrats Sharply Criticize Biden’s Pardon of His Son**\
+`Lawmakers in the president’s own party, many of them moderates, said his decision to pardon his son was selfish and would further damage Americans’ waning faith in democracy and the rule of law.`\
+https://nytimes.com/2024/12/02/us/politics/biden-pardon-hunter-democrats-reaction.html
+
 **Marc Lasry no longer in talks to purchase North Carolina Courage**\
 `Earlier this year, Lasry was negotiating with current owner Steve Malik for a 60 percent stake in the team, valued at about $108 million.`\
 https://nytimes.com/athletic/5964110/2024/12/02/marc-lasry-north-carolina-courage-ownership-nwsl/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/11/26/opinion/thepoint/hunter-biden-pardon
 **Prime Tire: F1's season finale showdown**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/5964178/2024/12/02/abu-dhabi-grand-prix-f1-prime-tire/
-
-**Maternity Leave and Ongoing Consent: New Rights for Belgium’s Sex Workers**\
-`A groundbreaking law, which gives some sex workers greater labor protections and social benefits than similar legislation elsewhere in the world, in now in effect in the European country.`\
-https://nytimes.com/2024/12/02/world/europe/belgium-sex-work-social-protections.html
-
-**ASU star WR Tyson out for Big 12 title game**\
-`Like the 10-2 Sun Devils, Tyson had enjoyed a breakout season, establishing himself as one of the country’s top receivers.`\
-https://nytimes.com/athletic/5963571/2024/12/02/jordyn-tyson-injury-arizona-state-iowa-state/
 

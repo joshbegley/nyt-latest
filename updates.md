@@ -1,3 +1,11 @@
+**A Final, Whimsical Holiday for the Bidens**\
+`For her last Christmas in the White House, Jill Biden chose the theme, a “Season of Peace and Light.”`\
+https://nytimes.com/card/2024/12/02/us/politics/white-house-holiday-decorations-photos
+
+**Democrats Sharply Criticize Biden’s Pardon of His Son**\
+`Lawmakers in the president’s own party, many of them moderates, said his decision to pardon his son was selfish and would further damage Americans’ waning faith in democracy and the rule of law.`\
+https://nytimes.com/2024/12/02/us/politics/biden-pardon-hunter-democrats-reaction.html
+
 **Marc Lasry no longer in talks to purchase North Carolina Courage**\
 `Earlier this year, Lasry was negotiating with current owner Steve Malik for a 60 percent stake in the team, valued at about $108 million.`\
 https://nytimes.com/athletic/5964110/2024/12/02/marc-lasry-north-carolina-courage-ownership-nwsl/
