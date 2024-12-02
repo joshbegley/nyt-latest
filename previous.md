@@ -23,7 +23,7 @@ https://nytimes.com/2024/12/02/us/politics/kash-patel-fbi.html
 https://nytimes.com/athletic/5964721/2024/12/02/shohei-ohtani-baseball-cards-recovery-ippei-mizuhara/
 
 **How Lou Anarumo and Zac Taylor are dissecting the Bengals' defensive downfall**\
-`The defensive coordinator and head coach say it's their responsibility but claim their message is still getting through to players.`\
+`The defensive coordinator and head coach say it's their responsibility but also that their message is still getting through to players.`\
 https://nytimes.com/athletic/5964621/2024/12/02/bengals-lou-anarumo-zac-taylor-defense/
 
 **What now for the LPGA? Its next commissioner will face significant tests**\
