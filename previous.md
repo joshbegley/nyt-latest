@@ -1,3 +1,11 @@
+**The omissions, big decisions and a roster projection from Canada's World Junior selection camp**\
+`Canada has announced its 32-player selection camp for the 2025 World Junior Championship in Ottawa.`\
+https://nytimes.com/athletic/5963479/2024/12/02/canada-world-juniors-roster-selection-camp-2024/
+
+**So Much for Trump’s Fantasy of a Quieter Middle East**\
+`If anything, old conflicts are heating up.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/trump-mideast-syria-conflicts
+
 **LPGA commissioner Mollie Marcoux Samaan stepping down in January**\
 `Liz Moore, the LPGA’s chief legal and technology and corporate secretary, will be the interim commissioner.`\
 https://nytimes.com/athletic/5963738/2024/12/02/lpga-mollie-marcoux-samaan-commissioner-departure/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5963666/2024/12/02/leny-yoro-fitness-manchester-uni
 **USC's Miller Moss leads a group of college quarterbacks entering transfer portal**\
 `Moss, a former top-100 national recruit, went 4-5 as the starter at USC this season. `\
 https://nytimes.com/athletic/5963577/2024/12/02/miller-moss-transfer-portal-quarterback-usc/
-
-**'I'm not a romantic', 3-box-3, experience - Van Nistelrooy's first Leicester press conference**\
-`The Dutchman spoke confidently to the media after his appointment as Leicester manager. We look at what he said and what it all means...`\
-https://nytimes.com/athletic/5963211/2024/12/02/analysing-ruud-van-nistelrooys-first-leicester-press-conference/
-
-**College football conference championship games odds, schedule: Texas, Oregon open as favorites**\
-`There are nine college football conference title games this weekend and all nine spreads are less than a touchdown.`\
-https://nytimes.com/athletic/5963463/2024/12/02/college-football-conference-championship-games-odds-schedule/
 

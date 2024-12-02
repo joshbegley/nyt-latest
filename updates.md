@@ -1,3 +1,11 @@
+**The omissions, big decisions and a roster projection from Canada's World Junior selection camp**\
+`Canada has announced its 32-player selection camp for the 2025 World Junior Championship in Ottawa.`\
+https://nytimes.com/athletic/5963479/2024/12/02/canada-world-juniors-roster-selection-camp-2024/
+
+**So Much for Trump’s Fantasy of a Quieter Middle East**\
+`If anything, old conflicts are heating up.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/trump-mideast-syria-conflicts
+
 **LPGA commissioner Mollie Marcoux Samaan stepping down in January**\
 `Liz Moore, the LPGA’s chief legal and technology and corporate secretary, will be the interim commissioner.`\
 https://nytimes.com/athletic/5963738/2024/12/02/lpga-mollie-marcoux-samaan-commissioner-departure/
