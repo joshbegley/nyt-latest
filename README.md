@@ -1,3 +1,15 @@
+**Ilona Maher: U.S. rugby star joins Bristol Bears**\
+`Ilona Maher, the world&#8217;s most-followed rugby player on social media, has joined Premiership Women’s Rugby club Bristol Bears on a three-month contract.`\
+https://nytimes.com/athletic/5964360/2024/12/02/ilona-maher-rugby-bristol-bears/
+
+**Were Hunter Biden’s Prosecutions a Result of Political Pressure? A Look at the Facts**\
+`The gun case federal prosecutors brought against Hunter Biden was relatively rare, but the tax charges he pleaded guilty to may have been less unusual.`\
+https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-charges.html
+
+**Puzzle Mania 2024 Variety Puzzle Answers**\
+`Check your puzzle answers.`\
+https://nytimes.com/interactive/2024/12/02/crosswords/02puzzle-mania-answers.html
+
 **Wisconsin Judge Strikes Down Limits on Public Sector Unions**\
 `The 2011 law stripped most government workers in the state of collective bargaining rights and set off protests that lasted weeks.`\
 https://nytimes.com/2024/12/02/us/wisconsin-court-decision-unions.html
@@ -25,16 +37,4 @@ https://nytimes.com/card/2024/12/02/us/politics/white-house-holiday-decorations-
 **Democrats Sharply Criticize Biden’s Pardon of His Son**\
 `Lawmakers in the president’s own party, many of them moderates, said his decision to pardon his son was selfish and would further damage Americans’ waning faith in democracy and the rule of law.`\
 https://nytimes.com/2024/12/02/us/politics/biden-pardon-hunter-democrats-reaction.html
-
-**Marc Lasry no longer in talks to purchase North Carolina Courage**\
-`Earlier this year, Lasry was negotiating with current owner Steve Malik for a 60 percent stake in the team, valued at about $108 million.`\
-https://nytimes.com/athletic/5964110/2024/12/02/marc-lasry-north-carolina-courage-ownership-nwsl/
-
-**Jim Phillips: SMU should make CFP field even if it loses ACC title game**\
-`Phillips also said Monday that Miami (Fla.) should be in the field as an at-large team. `\
-https://nytimes.com/athletic/5964274/2024/12/02/smu-college-football-playoff-acc-jim-phillips/
-
-**Judge Steps Aside in ‘Shaken Baby’ Death Penalty Case in Texas**\
-`The judge who issued a death warrant for Robert Roberson voluntarily recused herself, adding the latest legal complication to a case that has drawn national scrutiny.`\
-https://nytimes.com/2024/12/02/us/texas-roberson-shaken-baby-judge.html
 
