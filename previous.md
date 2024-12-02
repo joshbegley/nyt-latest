@@ -1,3 +1,7 @@
+**Blackhawks are leaning on Petr Mrázek too heavily, and it's bad for him and bad for them**\
+`The Blackhawks need to accept their three-goalie conundrum before they run Mrázek into the ground or, worse, get him injured.`\
+https://nytimes.com/athletic/5961345/2024/12/01/blackhawks-petr-mrazek-blue-jackets-loss/
+
 **Pittsburgh, Nebraska among top regional seeds in NCAA volleyball tournament**\
 `The national championship game will be played on Dec. 22 in Louisville and televised by ABC.`\
 https://nytimes.com/athletic/5961258/2024/12/01/ncaa-womens-volleyball-tournament-regional-seeds/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/crosswords/daily-puzzle-2024-12-02.html
 **Max Verstappen responds to Qatar qualifying penalty: "I lost all respect"**\
 `Verstappen was unhappy with the role Russell, who rose from second to first on the grid, had played in the decision.`\
 https://nytimes.com/athletic/5960819/2024/12/01/max-verstappen-qualifying-penalty-george-russell-comments/
-
-**NFL Week 13 takeaways: Are Chargers a Super Bowl threat? Is Russell Wilson the Steelers’ long-term answer?**\
-`Plus, what to make of good teams’ close wins over bad opponents.`\
-https://nytimes.com/athletic/5961147/2024/12/01/nfl-week-13-scores-takeaways-chargers-russell-wilson-steelers/
 

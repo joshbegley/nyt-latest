@@ -1,3 +1,7 @@
+**Blackhawks are leaning on Petr Mrázek too heavily, and it's bad for him and bad for them**\
+`The Blackhawks need to accept their three-goalie conundrum before they run Mrázek into the ground or, worse, get him injured.`\
+https://nytimes.com/athletic/5961345/2024/12/01/blackhawks-petr-mrazek-blue-jackets-loss/
+
 **Pittsburgh, Nebraska among top regional seeds in NCAA volleyball tournament**\
 `The national championship game will be played on Dec. 22 in Louisville and televised by ABC.`\
 https://nytimes.com/athletic/5961258/2024/12/01/ncaa-womens-volleyball-tournament-regional-seeds/
