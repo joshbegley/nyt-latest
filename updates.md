@@ -1,3 +1,11 @@
+**What now for the LPGA? Its next commissioner will face significant tests**\
+`Key events don't have title sponsors. Some tournaments are on TV tape delay. And there's a potential legal fight brewing.`\
+https://nytimes.com/athletic/5964477/2024/12/02/lpga-commissioner-tv-sponsor-transgender-rights/
+
+**Biden the Father vs. Biden the Institutionalist**\
+`A tension between parenthood and politics has defined the Biden presidency.`\
+https://nytimes.com/2024/12/02/us/politics/biden-father-politics-hunter-pardon.html
+
 **Tony White's departure is just the first domino to fall in a long month ahead for Nebraska**\
 `White turned down at least one opportunity to leave Nebraska after last season. And now, Matt Rhule's best hire is officially moving on. `\
 https://nytimes.com/athletic/5964525/2024/12/02/tony-white-florida-state-nebraska-defensive-coordinator/
