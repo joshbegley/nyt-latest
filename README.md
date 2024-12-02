@@ -1,3 +1,11 @@
+**‘The Human Mind Cannot Imagine All the Death’: Scenes From One of Gaza’s Last Hospitals**\
+`Most of the medical staff at Kamal Adwan Hospital is gone. One of the last doctors working there shares his story.`\
+https://nytimes.com/2024/12/02/opinion/gaza-hospital-kamal-adwan.html
+
+**Christmas Specials, Plus 4 Things to Watch on TV This Week**\
+`Get in the holiday spirit with Sabrina Carpenter, Jimmy Fallon or a Christmas tree lighting. Catch up on reality television and heists.`\
+https://nytimes.com/2024/12/02/arts/television/christmas-specials-plus-4-things-to-watch-on-tv-this-week.html
+
 **West Ham's defence is porous. Julen Lopetegui must find solutions quickly**\
 `West Ham have kept three clean sheets in 13 league games. With a packed fixture list this month, the defence must improve`\
 https://nytimes.com/athletic/5958360/2024/12/02/west-ham-arsenal-lopetegui/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5960392/2024/12/02/enzo-fernandez-chelsea-maresca-c
 **Can Fabio Carvalho break in at Brentford?**\
 `The west London club are flying up front, particularly at home - and Carvalho is not getting chances after his £27.5m move from Liverpool`\
 https://nytimes.com/athletic/5958575/2024/12/02/fabio-carvalho-brentford-premier-league/
-
-**How Daniel Munoz personifies Crystal Palace's ups and down this season**\
-`The Colombian wing-back had played every game for Palace since joining from Genk in January and failed to score, but this was his moment`\
-https://nytimes.com/athletic/5956737/2024/12/02/palace-munoz-glasner-newcastle/
-
-**If Everton can't even defend anymore, then what next for Dyche?**\
-`The solidity at the back that the manager usually guarantees from his teams looks to be crumbling — piling further pressure on the club`\
-https://nytimes.com/athletic/5960331/2024/12/02/everton-defence-dyche-premier-league/
 
