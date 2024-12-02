@@ -1,3 +1,11 @@
+**Prime Tire: F1's season finale showdown**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/5964178/2024/12/02/abu-dhabi-grand-prix-f1-prime-tire/
+
+**Maternity Leave and Ongoing Consent: New Rights for Belgium’s Sex Workers**\
+`A groundbreaking law, which gives some sex workers greater labor protections and social benefits than similar legislation elsewhere in the world, in now in effect in the European country.`\
+https://nytimes.com/2024/12/02/world/europe/belgium-sex-work-social-protections.html
+
 **ASU star WR Tyson out for Big 12 title game**\
 `Like the 10-2 Sun Devils, Tyson had enjoyed a breakout season, establishing himself as one of the country’s top receivers.`\
 https://nytimes.com/athletic/5963571/2024/12/02/jordyn-tyson-injury-arizona-state-iowa-state/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/opinion/charity-holiday-gift-jobs-employment.html
 **When Is the Great Lakes Snow Going to End?**\
 `Lake-effect snow has been piling up for days. It was winding down for many on Monday, but not everywhere.`\
 https://nytimes.com/2024/12/02/weather/snow-forecast.html
-
-**Kendrick Lamar’s ‘GNX’ Rockets to No. 1 on the Charts**\
-`The rapper’s surprise LP tops Billboard’s album and singles charts, where “Squabble Up” blocked Shaboozey’s “A Bar Song (Tipsy)” from a historic 20th week of dominance.`\
-https://nytimes.com/2024/12/02/arts/music/kendrick-lamar-gnx-billboard-charts.html
-
-**San Francisco Giants free-agent profile: Corbin Burnes, RHP**\
-`I&#8217;ve been off social media for almost a month now, and I highly recommend it.`\
-https://nytimes.com/athletic/5963552/2024/12/02/corbin-burnes-sf-giants-free-agent-profile/
 
