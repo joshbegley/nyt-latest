@@ -1,3 +1,7 @@
+**A Pardon for Hunter Biden**\
+`President Biden and President-elect Donald Trump now agree on one thing: The Justice Department has been politicized.`\
+https://nytimes.com/2024/12/02/briefing/a-pardon-for-hunter-biden.html
+
 **Biden Opens the Only Trip of His Presidency to Sub-Saharan Africa**\
 `The president stopped in Cape Verde on his way to Angola, where he will highlight American commitment to Africa in the economic competition against China.`\
 https://nytimes.com/2024/12/02/world/africa/biden-africa-trip-angola-cape-verde.html

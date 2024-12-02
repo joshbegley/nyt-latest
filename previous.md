@@ -1,3 +1,7 @@
+**A Pardon for Hunter Biden**\
+`President Biden and President-elect Donald Trump now agree on one thing: The Justice Department has been politicized.`\
+https://nytimes.com/2024/12/02/briefing/a-pardon-for-hunter-biden.html
+
 **Biden Opens the Only Trip of His Presidency to Sub-Saharan Africa**\
 `The president stopped in Cape Verde on his way to Angola, where he will highlight American commitment to Africa in the economic competition against China.`\
 https://nytimes.com/2024/12/02/world/africa/biden-africa-trip-angola-cape-verde.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5962454/2024/12/02/dolphins-loss-mike-mcdaniel-tua-
 **Russell Wilson and the Steelers offense's sensational day (and the immense implications)**\
 `Wilson's success raises questions about his future as a pending free agent, and that's not the only possible change in Pittsburgh.`\
 https://nytimes.com/athletic/5962443/2024/12/02/russell-wilson-steelers-bengals-arthur-smith/
-
-**Brandon McManus has finally given the Packers an answer at kicker**\
-`McManus has made 10-of-11 field-goal attempt and all 16 extra-point tries in his six games with the Packers.`\
-https://nytimes.com/athletic/5961523/2024/12/02/brandon-mcmanus-packers-kicker/
 
