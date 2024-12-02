@@ -1,11 +1,3 @@
-**Colts QB Anthony Richardson was 'special': Inside the drive that saved Indy's season**\
-`In a game the Colts had to have to keep their postseason dreams alive, Richardson marched them 80 yards on 19 plays and pulled out a win.`\
-https://nytimes.com/athletic/5961674/2024/12/01/anthony-richardson-colts-win-drive-patriots/
-
-**49ers' Christian McCaffrey (knee) questionable to return vs. Bills**\
-`McCaffrey had seven carries for 53 yards before exiting Sunday night's game.`\
-https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injury-49ers-bills/
-
 **Hunter Biden Faced Prison Time for Tax and Gun Charges**\
 `The president’s son had pleaded guilty to nine federal tax charges and was convicted of three felony counts for lying on a federal firearms application.`\
 https://nytimes.com/2024/12/01/us/politics/hunter-biden-crimes.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5961534/2024/12/01/bruins-marchand-centennial-game-
 **Tarheeb Still, Derwin James Jr. lift Chargers ever closer to playoff contention**\
 `The Chargers now have a 93 percent chance to make the playoffs, according to The Athletic's projection model. `\
 https://nytimes.com/athletic/5961527/2024/12/01/chargers-win-tarheeb-still-derwin-james-falcons/
+
+**No choice remains: Bengals must blow up everything on defense**\
+`A 44-38 loss to the Steelers on Sunday was possibly the death knell in a season of high hopes, and the defense was once again to blame.`\
+https://nytimes.com/athletic/5961472/2024/12/01/bengals-loss-defense-steelers/
+
+**LA Galaxy's Riqui Puig will miss MLS Cup with torn ACL**\
+`Puig suffered the injury in the second half of Saturday’s conference final and continued to play for over 30 minutes.`\
+https://nytimes.com/athletic/5961466/2024/12/01/riqui-puig-injury-mls-cup-galaxy/
 
