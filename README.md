@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5962502/2024/12/02/cole-palmer-off-ball-defensive-i
 `President-elect Donald J. Trump has selected Mr. Boulos, the businessman and father-in-law of Mr. Trump’s daughter, as a senior adviser on Arab and Middle Eastern affairs.`\
 https://nytimes.com/article/massad-boulos-trump-middle-east.html
 
-**Man Utd's Yoro closing in on return to fitness ahead of Arsenal**\
+**Man Utd's Yoro closing in on return to fitness ahead of Arsenal game**\
 `Leny Yoro is in contention to be part of the Manchester United squad to play Arsenal on Wednesday, Ruben Amorim has said.`\
 https://nytimes.com/athletic/5963666/2024/12/02/leny-yoro-fitness-manchester-united-arsenal/
 

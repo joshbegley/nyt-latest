@@ -1,3 +1,7 @@
+**A one-year contract for Salah is a no-brainer for FSG**\
+`If the Egyptian is ready to sign for another 12 months - even for vast wages - it feels a perfect solution for Liverpool`\
+https://nytimes.com/athletic/5963434/2024/12/02/mohamed-salah-liverpool-fsg-contract/
+
 **Dozens Killed at Soccer Match After Clashes in Guinea**\
 `The violence took place after some fans were unhappy with the referee’s decision and stormed the pitch, according to witnesses.`\
 https://nytimes.com/video/world/africa/100000009854141/guinea-soccer-match-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963463/2024/12/02/college-football-conference-cham
 **Paige Bueckers becomes first NIL athlete to launch Nike player edition sneaker**\
 `The brand will debut Bueckers’ Nike G.T. Hustle 3 on Dec. 7.`\
 https://nytimes.com/athletic/5963329/2024/12/02/paige-bueckers-college-basketball-nil-nike-sneaker/
-
-**Joshua Zirkzee and the value of a space interpreter**\
-`The Dutchman scored twice against Everton but it was his movement to open up lanes for his team-mates that stood out most`\
-https://nytimes.com/athletic/5962311/2024/12/02/joshua-zirkzee-manchester-united-analysis/
 

@@ -1,3 +1,7 @@
+**A one-year contract for Salah is a no-brainer for FSG**\
+`If the Egyptian is ready to sign for another 12 months - even for vast wages - it feels a perfect solution for Liverpool`\
+https://nytimes.com/athletic/5963434/2024/12/02/mohamed-salah-liverpool-fsg-contract/
+
 **Dozens Killed at Soccer Match After Clashes in Guinea**\
 `The violence took place after some fans were unhappy with the referee’s decision and stormed the pitch, according to witnesses.`\
 https://nytimes.com/video/world/africa/100000009854141/guinea-soccer-match-violence.html
