@@ -1,3 +1,7 @@
+**Jim Phillips: SMU should make CFP field even if it loses ACC title game**\
+`Phillips also said Monday that Miami (Fla.) should be in the field as an at-large team. `\
+https://nytimes.com/athletic/5964274/2024/12/02/smu-college-football-playoff-acc-jim-phillips/
+
 **Judge Steps Aside in ‘Shaken Baby’ Death Penalty Case in Texas**\
 `The judge who issued a death warrant for Robert Roberson voluntarily recused herself, adding the latest legal complication to a case that has drawn national scrutiny.`\
 https://nytimes.com/2024/12/02/us/texas-roberson-shaken-baby-judge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963571/2024/12/02/jordyn-tyson-injury-arizona-stat
 **Missouri WR Burden, potential top-15 pick, enters NFL Draft**\
 `In the right situation, he’s an explosive play waiting to happen and will be one of the top offensive playmakers on many NFL draft boards.`\
 https://nytimes.com/athletic/5964126/2024/12/02/luther-burden-nfl-draft-missouri/
-
-**What’s Behind the Protests in the Country of Georgia?**\
-`For days, pro-Western Georgians have clashed with police over the government’s plan to suspend plans for European Union membership.`\
-https://nytimes.com/2024/12/02/world/europe/protests-georgia-tbilisi.html
 
