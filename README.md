@@ -1,3 +1,7 @@
+**Bears president: Head coach opening 'will be the most coveted job' in the NFL**\
+`Ryan Poles will remain as general manager and will be the point person in the team's search for a new head coach.`\
+https://nytimes.com/athletic/5963090/2024/12/02/bears-head-coach-opening-kevin-warren/
+
 **The omissions, big decisions and a roster projection from Canada's World Junior selection camp**\
 `Canada has announced its 32-player selection camp for the 2025 World Junior Championship in Ottawa.`\
 https://nytimes.com/athletic/5963479/2024/12/02/canada-world-juniors-roster-selection-camp-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/article/massad-boulos-trump-middle-east.html
 **Man Utd's Yoro closing in on return to fitness ahead of Arsenal game**\
 `Leny Yoro is in contention to be part of the Manchester United squad to play Arsenal on Wednesday, Ruben Amorim has said.`\
 https://nytimes.com/athletic/5963666/2024/12/02/leny-yoro-fitness-manchester-united-arsenal/
-
-**USC's Miller Moss leads a group of college quarterbacks entering transfer portal**\
-`Moss, a former top-100 national recruit, went 4-5 as the starter at USC this season. `\
-https://nytimes.com/athletic/5963577/2024/12/02/miller-moss-transfer-portal-quarterback-usc/
 
