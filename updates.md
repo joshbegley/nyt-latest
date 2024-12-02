@@ -1,3 +1,15 @@
+**California Lawmakers to Propose $25 Million Fund to Litigate Trump Administration**\
+`The state’s Democratic leaders had announced within days of the election that they would meet early this month on plans to defend California’s liberal policies.`\
+https://nytimes.com/2024/12/02/us/politics/california-fund-litigation-trump.html
+
+**Do You Know These Tween and Teen Books That Became Movies?**\
+`Novels for young adults often become films for young adults. Test yourself on these five books and their adaptations with this short quiz.`\
+https://nytimes.com/interactive/2024/12/02/books/review/teen-books-movies.html
+
+**Baking Show’s ‘Jack Sparrow’ Is More Artist Than Pirate**\
+`Dylan Bachelet lost in the finals of “The Great British Baking Show,” but he was a breakout star for his fashion as well as his baking. Now, he’s a professional chef.`\
+https://nytimes.com/2024/12/02/style/dylan-bachelet-british-baking-show.html
+
 **NBA Rewind: Can the Timberwolves be saved? And NBA Cup group play concludes**\
 `Who's up (Hawks and Grizzlies) and down (Kings and Warriors) in Zach Harper's latest NBA stock report?`\
 https://nytimes.com/athletic/5957894/2024/12/02/nba-rewind-timberwolves-nba-cup/

@@ -1,3 +1,15 @@
+**California Lawmakers to Propose $25 Million Fund to Litigate Trump Administration**\
+`The state’s Democratic leaders had announced within days of the election that they would meet early this month on plans to defend California’s liberal policies.`\
+https://nytimes.com/2024/12/02/us/politics/california-fund-litigation-trump.html
+
+**Do You Know These Tween and Teen Books That Became Movies?**\
+`Novels for young adults often become films for young adults. Test yourself on these five books and their adaptations with this short quiz.`\
+https://nytimes.com/interactive/2024/12/02/books/review/teen-books-movies.html
+
+**Baking Show’s ‘Jack Sparrow’ Is More Artist Than Pirate**\
+`Dylan Bachelet lost in the finals of “The Great British Baking Show,” but he was a breakout star for his fashion as well as his baking. Now, he’s a professional chef.`\
+https://nytimes.com/2024/12/02/style/dylan-bachelet-british-baking-show.html
+
 **NBA Rewind: Can the Timberwolves be saved? And NBA Cup group play concludes**\
 `Who's up (Hawks and Grizzlies) and down (Kings and Warriors) in Zach Harper's latest NBA stock report?`\
 https://nytimes.com/athletic/5957894/2024/12/02/nba-rewind-timberwolves-nba-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/02/us/trump-news/the-trump-team-isnt-legally-bo
 **Cowboys Today: After months of challenges, Dallas' defense finally getting healthy**\
 `The Cowboys are going to need their defense at full strength to continue winning. DeMarcus Lawrence and Trevon Diggs could be returning.`\
 https://nytimes.com/athletic/5961002/2024/12/02/cowboys-today-tv-ratings-defense-healthy/
-
-**Raiders' Aidan O'Connell shows he might have something to say about team's plans at QB**\
-`O'Connell delivered the first 300-yard passing game of his career and nearly led a comeback win over the Chiefs in Arrowhead Stadium.`\
-https://nytimes.com/athletic/5958903/2024/12/02/raiders-aidan-oconnell-quarterbacks-plans/
-
-**City win showed Slot's Liverpool still have the Klopp-era press in their locker when it's needed**\
-`With aggression in advanced positions, and near-flawless defending, Liverpool increasingly look like the complete side`\
-https://nytimes.com/athletic/5962563/2024/12/02/arne-slot-liverpool-press-jurgen-klopp/
-
-**Stellantis and Samsung Will Get $7 Billion to Build Battery Factories**\
-`The loan, from the Biden administration, was designed to withstand Republican attacks and will be used to make electric-car batteries in Indiana.`\
-https://nytimes.com/2024/12/02/business/stellantis-samsung-biden-loans-ev.html
 
