@@ -1,7 +1,3 @@
-**Bucs beat Panthers in OT, tie Falcons for first in NFC South: Key takeaways**\
-`The Buccaneers improved to 6-6 thanks to a pair of crunchtime field goals by Chase McLaughlin.`\
-https://nytimes.com/athletic/5960181/2024/12/01/buccaneers-panthers-score-result-takeaways/
-
 **A judge, not political pressure, scuttled Hunter Biden’s plea deal.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2024/12/01/us/hunter-biden-pardon-live/a-judge-not-political-pressure-scuttled-hunter-bidens-plea-deal
@@ -22,8 +18,8 @@ https://nytimes.com/athletic/5961472/2024/12/01/bengals-loss-defense-steelers/
 `Puig suffered the injury in the second half of Saturday’s conference final and continued to play for over 30 minutes.`\
 https://nytimes.com/athletic/5961466/2024/12/01/riqui-puig-injury-mls-cup-galaxy/
 
-**Read Joe Biden’s Statement About Pardoning Hunter**\
-`President Biden issued the following statement on Sunday night.`\
+**Read Joe Biden’s Statement and His Grant of Clemency**\
+`President Biden issued the statement after signing a pardon for Hunter Biden Sunday night.`\
 https://nytimes.com/2024/12/01/us/politics/biden-pardon-hunter-statement.html
 
 **Barkley outplays Henry as Eagles beat Ravens 24-19: Takeaways**\
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/01/world/africa/guinea-soccer-match-violence-deaths.
 **Updated 2025 NFL Draft order: How picks 1-32 stand after early Week 13 games**\
 `Which teams will be picking top 10 in the NFL Draft? Who's going to hold the No. 1 pick? Track all the latest movement here. `\
 https://nytimes.com/athletic/5950815/2024/12/01/nfl-draft-order-2025-round-1-full/
+
+**Despite Patriots' loss, it's OK to be recklessly optimistic about rookie QB Drake Maye**\
+`Even as the losses mount for the Patriots, Maye continues to shine. Because the franchise got that pick right, the future is bright.`\
+https://nytimes.com/athletic/5961293/2024/12/01/patriots-loss-drake-maye-colts/
 

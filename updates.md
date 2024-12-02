@@ -1,3 +1,7 @@
+**Bucs beat Panthers in OT, tie Falcons for first in NFC South: Key takeaways**\
+`The Buccaneers improved to 6-6 thanks to a pair of crunchtime field goals by Chase McLaughlin.`\
+https://nytimes.com/athletic/5960181/2024/12/01/buccaneers-panthers-score-result-takeaways/
+
 **A judge, not political pressure, scuttled Hunter Biden’s plea deal.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2024/12/01/us/hunter-biden-pardon-live/a-judge-not-political-pressure-scuttled-hunter-bidens-plea-deal
