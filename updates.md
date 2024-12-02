@@ -1,3 +1,7 @@
+**A Consummate Act of Nepotism Stains Biden’s Presidency**\
+`With the pardon of his son, President Biden added his name to the roll call of presidents who dishonored their office by misusing the pardon power.`\
+https://nytimes.com/2024/12/02/opinion/joe-hunter-biden-pardon-dishonor.html
+
 **5 Women Win Reparations From Belgium for Crimes Under Colonial Rule**\
 `In a landmark case, a court ruled that the women, now in their 70s and 80s, who were taken from their parents in Belgian Congo, were victims of a crime against humanity.`\
 https://nytimes.com/2024/12/02/world/europe/5-women-win-reparations-from-belgium-for-crimes-under-colonial-rule.html

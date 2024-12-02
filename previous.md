@@ -1,3 +1,7 @@
+**A Consummate Act of Nepotism Stains Biden’s Presidency**\
+`With the pardon of his son, President Biden added his name to the roll call of presidents who dishonored their office by misusing the pardon power.`\
+https://nytimes.com/2024/12/02/opinion/joe-hunter-biden-pardon-dishonor.html
+
 **5 Women Win Reparations From Belgium for Crimes Under Colonial Rule**\
 `In a landmark case, a court ruled that the women, now in their 70s and 80s, who were taken from their parents in Belgian Congo, were victims of a crime against humanity.`\
 https://nytimes.com/2024/12/02/world/europe/5-women-win-reparations-from-belgium-for-crimes-under-colonial-rule.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/world/europe/protests-georgia-tbilisi.html
 **Protesters Clash With Police Outside Georgia’s Parliament**\
 `Thousands protested outside of the Georgian parliament in Tbilisi for a fifth straight night after the government suspended plans to join the European Union.`\
 https://nytimes.com/video/world/europe/100000009853945/georgia-government-protests-european-union.html
-
-**Mayfield expected to play in Week 14 after injury scare**\
-`Tampa Bay is tied for the lead in the NFC South as Mayfield looks to guide the team to a fourth consecutive division title. `\
-https://nytimes.com/athletic/5964030/2024/12/02/baker-mayfield-leg-injury-update-buccaneers/
 
