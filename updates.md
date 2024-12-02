@@ -1,3 +1,11 @@
+**Rams overcome first-half shutout to beat Saints 21-14: Takeaways**\
+`Stafford tossed two touchdown passes in the final frame after the Rams were shut out 6-0 in the first half in New Orleans.`\
+https://nytimes.com/athletic/5960190/2024/12/01/rams-saints-score-result-takeaways-2/
+
+**Biden Issues a ‘Full and Unconditional Pardon’ of His Son Hunter Biden**\
+`The pardon comes weeks before President Biden leaves office and transfers power to President-elect Donald J. Trump, who spent years attacking Hunter Biden over his legal and personal issues.`\
+https://nytimes.com/2024/12/01/us/politics/biden-pardon-son-hunter.html
+
 **Blackhawks are leaning on Petr Mrázek too heavily, and it's bad for him and bad for them**\
 `The Blackhawks need to accept their three-goalie conundrum before they run Mrázek into the ground or, worse, get him injured.`\
 https://nytimes.com/athletic/5961345/2024/12/01/blackhawks-petr-mrazek-blue-jackets-loss/

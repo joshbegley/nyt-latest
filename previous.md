@@ -1,3 +1,11 @@
+**Rams overcome first-half shutout to beat Saints 21-14: Takeaways**\
+`Stafford tossed two touchdown passes in the final frame after the Rams were shut out 6-0 in the first half in New Orleans.`\
+https://nytimes.com/athletic/5960190/2024/12/01/rams-saints-score-result-takeaways-2/
+
+**Biden Issues a ‘Full and Unconditional Pardon’ of His Son Hunter Biden**\
+`The pardon comes weeks before President Biden leaves office and transfers power to President-elect Donald J. Trump, who spent years attacking Hunter Biden over his legal and personal issues.`\
+https://nytimes.com/2024/12/01/us/politics/biden-pardon-son-hunter.html
+
 **Blackhawks are leaning on Petr Mrázek too heavily, and it's bad for him and bad for them**\
 `The Blackhawks need to accept their three-goalie conundrum before they run Mrázek into the ground or, worse, get him injured.`\
 https://nytimes.com/athletic/5961345/2024/12/01/blackhawks-petr-mrazek-blue-jackets-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/01/us/politics/kash-patel-bravado-baggage-fbi.html
 **Big Ten fines Ohio State, Michigan $100K each for postgame brawl**\
 `No players will receive individual discipline, although the conference could have doled out suspensions for postseason games.`\
 https://nytimes.com/athletic/5961212/2024/12/01/ohio-state-michigan-fight-fines-big-ten/
-
-**The Lion’s Share**\
-`Andrea Carla Michaels and Kevin Christian go for a run.`\
-https://nytimes.com/2024/12/01/crosswords/daily-puzzle-2024-12-02.html
-
-**Max Verstappen responds to Qatar qualifying penalty: "I lost all respect"**\
-`Verstappen was unhappy with the role Russell, who rose from second to first on the grid, had played in the decision.`\
-https://nytimes.com/athletic/5960819/2024/12/01/max-verstappen-qualifying-penalty-george-russell-comments/
 
