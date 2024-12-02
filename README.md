@@ -1,3 +1,7 @@
+**FA Cup third-round draw: Arsenal vs Man Utd, Tamworth vs Spurs**\
+`FA Cup holders Manchester United will play away to Arsenal in the third round of the 2024-25 competition.`\
+https://nytimes.com/athletic/5963546/2024/12/02/fa-cup-third-round-draw-arsenal-vs-manchester-united-tamworth-vs-tottenham-hotspur/
+
 **Hezbollah and Israel Trade Fire, Further Testing Cease-Fire**\
 `Both sides have accused each other of violating the deal;  Hezbollah fired into Israel for the first time since the truce took effect, and Israel responded with airstrikes.`\
 https://nytimes.com/2024/12/02/world/middleeast/hezbollah-israel-lebanon.html
@@ -34,4 +38,3 @@ https://nytimes.com/athletic/5963257/2024/12/02/ap-mens-basketball-top-25-rankin
 `Mr. Bryar joined the band in 2004 and played drums on the pop-punk band’s most popular record. He left the band in 2010.`\
 https://nytimes.com/2024/12/02/arts/music/bob-bryar-dead-my-chemical-romance.html
 
-**gws-robert-smith-cure-songs-of-a-lost-world-ticketmaster**\
