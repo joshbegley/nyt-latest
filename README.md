@@ -1,7 +1,3 @@
-**Iowa RB Kaleb Johnson to skip bowl game, prepare for NFL Draft**\
-`Johnson is the first Iowa player to score a touchdown in every game of a season.`\
-https://nytimes.com/athletic/5961563/2024/12/01/kaleb-johnson-nfl-draft-iowa-hawkeyes/
-
 **Bucs beat Panthers in OT, tie Falcons for first in NFC South: Key takeaways**\
 `The Buccaneers improved to 6-6 thanks to a pair of crunchtime field goals by Chase McLaughlin.`\
 https://nytimes.com/athletic/5960181/2024/12/01/buccaneers-panthers-score-result-takeaways/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5960200/2024/12/01/eagles-ravens-score-result-takea
 **Clashes at Soccer Match Kill Dozens in Guinea**\
 `It was unclear on Sunday how many people were killed, but at least one estimate neared 100 people.`\
 https://nytimes.com/2024/12/01/world/africa/guinea-soccer-match-violence-deaths.html
+
+**Updated 2025 NFL Draft order: How picks 1-32 stand after early Week 13 games**\
+`Which teams will be picking top 10 in the NFL Draft? Who's going to hold the No. 1 pick? Track all the latest movement here. `\
+https://nytimes.com/athletic/5950815/2024/12/01/nfl-draft-order-2025-round-1-full/
 
