@@ -1,6 +1,6 @@
 **Read Joe Biden’s Statement About Pardoning Hunter**\
 `President Biden issued the following statement on Sunday night.`\
-https://nytimes.com/2024/12/01/us/politics/here-is-president-bidens-statement-announcing-that-he-is-pardoning-his-son-hunter.html
+https://nytimes.com/2024/12/01/us/politics/biden-pardon-hunter-statement.html
 
 **Barkley outplays Henry as Eagles beat Ravens 24-19: Takeaways**\
 `The Eagles' eighth straight victory keeps Philadelphia one back of Detroit for the top spot in the NFC. `\
