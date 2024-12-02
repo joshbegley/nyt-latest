@@ -1,3 +1,7 @@
+**The Athletic FC: Can anyone catch Liverpool? Fiorentina's Bove in intensive care**\
+`Today in TAFC: Liverpool go nine points clear at Premier League's summit, Bove loses consciousness in Fiorentina match against Inter.`\
+https://nytimes.com/athletic/5962542/2024/12/02/liverpool-man-city-title-race-bove-fiorentina/
+
 **U.S. Dual Citizen Thought to Be Alive in Gaza Died on Oct. 7, Israel Says**\
 `Omer Neutra, who had Israeli and American citizenship, was doing military service in Israel when Hamas invaded. His parents have been high-profile campaigners for the hostages.`\
 https://nytimes.com/2024/12/02/world/middleeast/omer-neutra-israel-oct-7-gaza-hamas-hostage.html

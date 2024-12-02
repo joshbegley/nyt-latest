@@ -1,3 +1,7 @@
+**The Athletic FC: Can anyone catch Liverpool? Fiorentina's Bove in intensive care**\
+`Today in TAFC: Liverpool go nine points clear at Premier League's summit, Bove loses consciousness in Fiorentina match against Inter.`\
+https://nytimes.com/athletic/5962542/2024/12/02/liverpool-man-city-title-race-bove-fiorentina/
+
 **U.S. Dual Citizen Thought to Be Alive in Gaza Died on Oct. 7, Israel Says**\
 `Omer Neutra, who had Israeli and American citizenship, was doing military service in Israel when Hamas invaded. His parents have been high-profile campaigners for the hostages.`\
 https://nytimes.com/2024/12/02/world/middleeast/omer-neutra-israel-oct-7-gaza-hamas-hostage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5961805/2024/12/02/bills-49ers-josh-allen-snow-the-
 **Helping Students Find Their Way to College**\
 `One Goal is a resource for students who are entering college without the benefits of family wealth.`\
 https://nytimes.com/2024/12/02/opinion/communities-fund-one-goal.html
-
-**A Pardon for Hunter Biden**\
-`President Biden and President-elect Donald Trump now agree on one thing: The Justice Department has been politicized.`\
-https://nytimes.com/2024/12/02/briefing/a-pardon-for-hunter-biden.html
 
