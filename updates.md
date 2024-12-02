@@ -1,3 +1,7 @@
+**Helping Students Find Their Way to College**\
+`One Goal is a resource for students who are entering college without the benefits of family wealth.`\
+https://nytimes.com/2024/12/02/opinion/communities-fund-one-goal.html
+
 **A Pardon for Hunter Biden**\
 `President Biden and President-elect Donald Trump now agree on one thing: The Justice Department has been politicized.`\
 https://nytimes.com/2024/12/02/briefing/a-pardon-for-hunter-biden.html
