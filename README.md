@@ -1,6 +1,10 @@
+**Elon Musk’s $50 Billion Tesla Pay Can’t Be Reinstated, Delaware Judge Rules**\
+`The judge said she would not reverse her decision to strike down the compensation package after Tesla shareholders approved Mr. Musk’s pay a second time.`\
+https://nytimes.com/2024/12/02/business/elon-musk-tesla-pay-ruling.html
+
 **The Super Mega Support Group**\
 `A crossword so large you might need to talk about it in therapy.`\
-https://nytimes.com/2024/12/02/crosswords/super-mega-puzzle-mania.html
+https://nytimes.com/2024/12/02/crosswords/super-mega-forum-puzzle-mania.html
 
 **College football national title odds: Oregon is new favorite after Ohio State's loss**\
 `Oregon is the new betting favorite to win the national title following Ohio State's loss to Michigan. OSU, Texas and Georgia are next.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-charges.html
 **Puzzle Mania 2024 Variety Puzzle Answers**\
 `Check your puzzle answers.`\
 https://nytimes.com/interactive/2024/12/02/crosswords/02puzzle-mania-answers.html
-
-**Wisconsin Judge Strikes Down Limits on Public Sector Unions**\
-`The 2011 law stripped most government workers in the state of collective bargaining rights and set off protests that lasted weeks.`\
-https://nytimes.com/2024/12/02/us/wisconsin-court-decision-unions.html
 
