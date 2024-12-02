@@ -1,3 +1,7 @@
+**Hezbollah and Israel Trade Fire, Further Testing Cease-Fire**\
+`Both sides have accused each other of violating the deal;  Hezbollah fired into Israel for the first time since the truce took effect, and Israel responded with airstrikes.`\
+https://nytimes.com/2024/12/02/world/middleeast/hezbollah-israel-lebanon.html
+
 **WNBA releases 2025 schedule: matchups to watch**\
 `WNBA teams will play a record 44 games during the 2025 regular season, up from 40 in 2024.`\
 https://nytimes.com/athletic/5963889/2024/12/02/wnba-2025-schedule-released/
