@@ -1,3 +1,23 @@
+**No choice remains: Bengals must blow up everything on defense**\
+`A 44-38 loss to the Steelers Sunday was was possibly the death knell in a season of high hopes and the defense is once again to blame.`\
+https://nytimes.com/athletic/5961472/2024/12/01/bengals-loss-defense-steelers/
+
+**LA Galaxy's Riqui Puig will miss MLS Cup with torn ACL**\
+`Puig suffered the injury in the second half of Saturday’s conference final and continued to play for over 30 minutes.`\
+https://nytimes.com/athletic/5961466/2024/12/01/riqui-puig-injury-mls-cup-galaxy/
+
+**Updated 2025 NFL Draft order: How picks 1-32 stand after early Week 13 games**\
+`Which teams will be picking top 10 in the NFL Draft? Who's going to hold the No. 1 pick? Track all the latest movement here. `\
+https://nytimes.com/athletic/5950815/2024/12/01/nfl-draft-order-2025-round-1-full/
+
+**Despite Patriots' loss, it's OK to be recklessly optimistic about rookie QB Drake Maye**\
+`Even as the losses mount for the Patriots, Maye continues to shine. Because the franchise got that pick right, the future is bright.`\
+https://nytimes.com/athletic/5961293/2024/12/01/patriots-loss-drake-maye-colts/
+
+**Leonard Williams helps Seahawks escape Jets, bolstering playoff hopes**\
+`The Seahawks put themselves in a hole with a comedy of errors early, but Williams wouldn't let them lose to his former team.`\
+https://nytimes.com/athletic/5961319/2024/12/01/seahawks-win-leonard-williams-jets/
+
 **Read Joe Biden’s Statement About Pardoning Hunter**\
 `President Biden issued the following statement on Sunday night.`\
 https://nytimes.com/2024/12/01/us/politics/biden-pardon-hunter-statement.html
