@@ -1,3 +1,11 @@
+**U.N. Suspends Aid Deliveries Through Key Crossing in Gaza**\
+`The head of the United Nations agency for Palestinian refugees said it was pausing deliveries through the Kerem Shalom crossing because of safety concerns.`\
+https://nytimes.com/2024/12/02/world/middleeast/unrwa-aid-gaza.html
+
+**Weekend NHL rankings: Rangers, Kraken, a November blockbuster and a new Top 5 team**\
+`The Blue Jackets and Wild added a bit of unexpected spice to late November with the David Jiricek trade. Let’s dive into it a little deeper.`\
+https://nytimes.com/athletic/5961765/2024/12/02/nhl-weekend-rankings-rangers-kraken-jiricek/
+
 **The Pulse: You have to see this touchdown**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5961805/2024/12/02/bills-49ers-josh-allen-snow-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5961378/2024/12/02/college-football-playoff-bubble-
 **The Bears need to hire the right head coach this time. Five tips for their search**\
 `The Bears are in good position with a franchise quarterback on a rookie contract and a solid roster. Now they need the right coach.`\
 https://nytimes.com/athletic/5960958/2024/12/02/bears-head-coach-search-tips/
-
-**The NFC North keeps marching toward history**\
-`With Packers and Vikings winning, the "Black and Blue" division is pushing its dominance to levels not seen since the 1970 NFL-AFL merger.`\
-https://nytimes.com/athletic/5962448/2024/12/02/packers-vikings-lions-bears-nfc-north/
-
-**Biden Pardons His Son Hunter in U-Turn, and Syrian Rebels’ Surprise Advance**\
-`Plus, Oxford’s word of the year is …`\
-https://nytimes.com/2024/12/02/podcasts/hunter-biden-pardon-trump-fbi-syria-civil-war.html
 
