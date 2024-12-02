@@ -1,3 +1,7 @@
+**Centrist Party Edges Out Far-Right Challengers in Romania**\
+`The center-left Social Democrats won the most votes in a parliamentary election but a strong nationalist showing could make it difficult to form a stable Western-oriented government.`\
+https://nytimes.com/2024/12/02/world/europe/romania-election-centrist-far-right.html
+
 **FIA explains decisions behind Norris’ Qatar F1 penalty, safety car timing**\
 `The FIA has explained the reasons behind Lando Norris’ severe penalty during Sunday’s Qatar Grand Prix and the delay in deploying the safety car.`\
 https://nytimes.com/athletic/5962528/2024/12/02/lando-norris-penalty-qatar-grand-prix/
