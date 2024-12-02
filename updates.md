@@ -1,3 +1,19 @@
+**Vikings latest victory against Cardinals conjures thoughts of 2022 playoff team**\
+`With the Vikings' penchant for narrow victories, it's easy to draw connections to the team of two years ago. But this group is better.`\
+https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinals/
+
+**Colts QB Anthony Richardson was 'special': Inside the drive that saved Indy's season**\
+`In a game the Colts had to have to keep their postseason dreams alive, Richardson marched them 80 yards on 19 plays and pulled out a win.`\
+https://nytimes.com/athletic/5961674/2024/12/01/anthony-richardson-colts-win-drive-patriots/
+
+**49ers' Christian McCaffrey (knee) questionable to return vs. Bills**\
+`McCaffrey had seven carries for 53 yards before exiting Sunday night's game.`\
+https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injury-49ers-bills/
+
+**Judge Scuttled Hunter Biden Plea Deal, Not Political Pressure**\
+`Mr. Biden’s plea deal did fall apart at the last minute last year. But it did so after the judge overseeing the case raised issues.`\
+https://nytimes.com/2024/12/01/us/politics/biden-pardon-political-pressure.html
+
 **Hunter Biden Faced Prison Time for Tax and Gun Charges**\
 `The president’s son had pleaded guilty to nine federal tax charges and was convicted of three felony counts for lying on a federal firearms application.`\
 https://nytimes.com/2024/12/01/us/politics/hunter-biden-crimes.html
