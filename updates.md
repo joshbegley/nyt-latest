@@ -1,3 +1,19 @@
+**Italy will host Davis Cup Finals from 2025 until 2028**\
+`The defending Davis Cup and Billie Jean King Cup champions will stage the finals of the men's event.`\
+https://nytimes.com/athletic/5963156/2024/12/02/davis-cup-finals-italy-host/
+
+**Steelers' George Pickens must 'grow up' after Week 13 penalties: Tomlin**\
+`Officials penalized the Steelers wide receiver twice for unsportsmanlike conduct in the team's win vs. Cincinnati.`\
+https://nytimes.com/athletic/5963193/2024/12/02/george-pickens-mike-tomlin-penalties-steelers/
+
+**Aaron Rodgers to remain Jets starting QB, Jeff Ulbrich says**\
+`When asked if that meant permanently or if it's a week-to-week decision, Jeff Ulbrich would only say: "He's our quarterback." `\
+https://nytimes.com/athletic/5963071/2024/12/02/aaron-rodgers-jets-qb-starter-season/
+
+**Elton John, After Eye Infection, Says He Couldn’t See His Own Musical**\
+`After a performance of “The Devil Wears Prada” in London, John told the crowd that the effects of an eye infection were continuing to limit his eyesight.`\
+https://nytimes.com/2024/12/02/arts/music/elton-john-eyesight.html
+
 **The Bounce: What's wrong with the Timberwolves?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5962868/2024/12/02/anthony-edwards-timberwolves-giannis-antetokounmpo-bucks-nba-the-bounce/
