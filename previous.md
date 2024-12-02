@@ -1,3 +1,7 @@
+**Marc Lasry no longer in talks to purchase North Carolina Courage**\
+`Earlier this year, Lasry was negotiating with current owner Steve Malik for a 60 percent stake in the team, valued at about $108 million.`\
+https://nytimes.com/athletic/5964110/2024/12/02/marc-lasry-north-carolina-courage-ownership-nwsl/
+
 **Jim Phillips: SMU should make CFP field even if it loses ACC title game**\
 `Phillips also said Monday that Miami (Fla.) should be in the field as an at-large team. `\
 https://nytimes.com/athletic/5964274/2024/12/02/smu-college-football-playoff-acc-jim-phillips/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/world/europe/belgium-sex-work-social-protections.
 **ASU star WR Tyson out for Big 12 title game**\
 `Like the 10-2 Sun Devils, Tyson had enjoyed a breakout season, establishing himself as one of the country’s top receivers.`\
 https://nytimes.com/athletic/5963571/2024/12/02/jordyn-tyson-injury-arizona-state-iowa-state/
-
-**Missouri WR Burden, potential top-15 pick, enters NFL Draft**\
-`In the right situation, he’s an explosive play waiting to happen and will be one of the top offensive playmakers on many NFL draft boards.`\
-https://nytimes.com/athletic/5964126/2024/12/02/luther-burden-nfl-draft-missouri/
 

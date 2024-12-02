@@ -1,3 +1,7 @@
+**Marc Lasry no longer in talks to purchase North Carolina Courage**\
+`Earlier this year, Lasry was negotiating with current owner Steve Malik for a 60 percent stake in the team, valued at about $108 million.`\
+https://nytimes.com/athletic/5964110/2024/12/02/marc-lasry-north-carolina-courage-ownership-nwsl/
+
 **Jim Phillips: SMU should make CFP field even if it loses ACC title game**\
 `Phillips also said Monday that Miami (Fla.) should be in the field as an at-large team. `\
 https://nytimes.com/athletic/5964274/2024/12/02/smu-college-football-playoff-acc-jim-phillips/
