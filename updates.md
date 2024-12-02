@@ -1,3 +1,7 @@
+**Lions defensive depth chart: Key helpers, possible returners, notable injuries**\
+`The Lions keep losing defensive players to injury, but have acquired players to help fill the need.`\
+https://nytimes.com/athletic/5961781/2024/12/02/detroit-lions-defensive-depth-chart-injuries/
+
 **How I Learned to Shave**\
 `Things our dads taught us, whether they intended to or not.`\
 https://nytimes.com/2024/12/02/podcasts/how-i-learned-to-shave-this-american-life-nyt-audio.html
