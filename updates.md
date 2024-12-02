@@ -1,3 +1,11 @@
+**LPGA commissioner Mollie Marcoux Samaan stepping down in January**\
+`Liz Moore, the LPGA’s chief legal and technology and corporate secretary, will be the interim commissioner.`\
+https://nytimes.com/athletic/5963738/2024/12/02/lpga-mollie-marcoux-samaan-commissioner-departure/
+
+**Man Utd's Yoro closing in on return to fitness ahead of Arsenal game**\
+`Leny Yoro is in contention to be part of the Manchester United squad to play Arsenal on Wednesday, Ruben Amorim has said.`\
+https://nytimes.com/athletic/5963666/2024/12/02/leny-yoro-fitness-manchester-united-arsenal/
+
 **A one-year contract for Salah is a no-brainer for FSG**\
 `If the Egyptian is ready to sign for another 12 months - even for vast wages - it feels a perfect solution for Liverpool`\
 https://nytimes.com/athletic/5963434/2024/12/02/mohamed-salah-liverpool-fsg-contract/

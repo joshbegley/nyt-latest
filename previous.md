@@ -1,3 +1,7 @@
+**LPGA commissioner Mollie Marcoux Samaan stepping down in January**\
+`Liz Moore, the LPGA’s chief legal and technology and corporate secretary, will be the interim commissioner.`\
+https://nytimes.com/athletic/5963738/2024/12/02/lpga-mollie-marcoux-samaan-commissioner-departure/
+
 **A one-year contract for Salah is a no-brainer for FSG**\
 `If the Egyptian is ready to sign for another 12 months - even for vast wages - it feels a perfect solution for Liverpool`\
 https://nytimes.com/athletic/5963434/2024/12/02/mohamed-salah-liverpool-fsg-contract/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/5962502/2024/12/02/cole-palmer-off-ball-defensive-i
 `President-elect Donald J. Trump has selected Mr. Boulos, the businessman and father-in-law of Mr. Trump’s daughter, as a senior adviser on Arab and Middle Eastern affairs.`\
 https://nytimes.com/article/massad-boulos-trump-middle-east.html
 
-**Man Utd's Yoro closing in on return to fitness ahead of Arsenal**\
+**Man Utd's Yoro closing in on return to fitness ahead of Arsenal game**\
 `Leny Yoro is in contention to be part of the Manchester United squad to play Arsenal on Wednesday, Ruben Amorim has said.`\
 https://nytimes.com/athletic/5963666/2024/12/02/leny-yoro-fitness-manchester-united-arsenal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963211/2024/12/02/analysing-ruud-van-nistelrooys-f
 **College football conference championship games odds, schedule: Texas, Oregon open as favorites**\
 `There are nine college football conference title games this weekend and all nine spreads are less than a touchdown.`\
 https://nytimes.com/athletic/5963463/2024/12/02/college-football-conference-championship-games-odds-schedule/
-
-**Paige Bueckers becomes first NIL athlete to launch Nike player edition sneaker**\
-`The brand will debut Bueckers’ Nike G.T. Hustle 3 on Dec. 7.`\
-https://nytimes.com/athletic/5963329/2024/12/02/paige-bueckers-college-basketball-nil-nike-sneaker/
 
