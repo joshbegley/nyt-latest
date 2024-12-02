@@ -1,3 +1,7 @@
+**‘Dune: Prophecy’ Season 1 Episode 3 Recap: The Meaning of Sacrifice**\
+`“Sisterhood above all” is the motto of Valya and Tula’s secretive organization, but its meaning seems to depend on which sister is saying it.`\
+https://nytimes.com/2024/12/01/arts/television/dune-prophecy-recap-season-1-episode-3.html
+
 **49ers' Christian McCaffrey out vs. Bills with knee injury**\
 `McCaffrey had seven carries for 53 yards before exiting Sunday night's game in the second quarter.`\
 https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injury-49ers-bills/
