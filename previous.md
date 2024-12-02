@@ -1,3 +1,11 @@
+**Biden Opens the Only Trip of His Presidency to Sub-Saharan Africa**\
+`The president stopped in Cape Verde on his way to Angola, where he will highlight American commitment to Africa in the economic competition against China.`\
+https://nytimes.com/2024/12/02/world/africa/biden-africa-trip-angola-cape-verde.html
+
+**Dozens Killed as Violence Erupts Following Soccer Match in Guinea**\
+`The clashes occurred during a game between the Labe and Nzerekore soccer teams in Nzerekore, the second-largest city in the West African nation.`\
+https://nytimes.com/video/world/africa/100000009853791/dozens-killed-as-violence-erupts-following-soccer-match-in-guinea.html
+
 **Kane will 'definitely miss a few games' with thigh injury**\
 `Harry Kane will &#8220;definitely miss a few games&#8221; after picking up a thigh injury in Bayern Munich&#8217;s draw with Borussia Dortmund on Saturday.`\
 https://nytimes.com/athletic/5962615/2024/12/02/harry-kane-injury-latest-bayern-munich/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5962443/2024/12/02/russell-wilson-steelers-bengals-
 **Brandon McManus has finally given the Packers an answer at kicker**\
 `McManus has made 10-of-11 field-goal attempt and all 16 extra-point tries in his six games with the Packers.`\
 https://nytimes.com/athletic/5961523/2024/12/02/brandon-mcmanus-packers-kicker/
-
-**Josh Allen, Saquon Barkley, Lamar Jackson and a sizzling MVP race: Sando’s Pick Six**\
-`Allen is the favorite. Barkley has a compelling case to break the RB MVP drought. But Jackson stands apart, despite the Ravens' 1-2 rut.`\
-https://nytimes.com/athletic/5958013/2024/12/02/nfl-mvp-lamar-jackson-josh-allen-saquon-barkley/
-
-**Trouba's ice time cut, 4 Nations roster speculation, more: 9 Rangers observations**\
-`Trouba, who has played significant minutes his entire career, is seeing his lowest per-game ice time this season, and it could drop further.`\
-https://nytimes.com/athletic/5961262/2024/12/02/rangers-trouba-ice-time-4-nations/
 

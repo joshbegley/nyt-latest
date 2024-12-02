@@ -1,3 +1,11 @@
+**Biden Opens the Only Trip of His Presidency to Sub-Saharan Africa**\
+`The president stopped in Cape Verde on his way to Angola, where he will highlight American commitment to Africa in the economic competition against China.`\
+https://nytimes.com/2024/12/02/world/africa/biden-africa-trip-angola-cape-verde.html
+
+**Dozens Killed as Violence Erupts Following Soccer Match in Guinea**\
+`The clashes occurred during a game between the Labe and Nzerekore soccer teams in Nzerekore, the second-largest city in the West African nation.`\
+https://nytimes.com/video/world/africa/100000009853791/dozens-killed-as-violence-erupts-following-soccer-match-in-guinea.html
+
 **Kane will 'definitely miss a few games' with thigh injury**\
 `Harry Kane will &#8220;definitely miss a few games&#8221; after picking up a thigh injury in Bayern Munich&#8217;s draw with Borussia Dortmund on Saturday.`\
 https://nytimes.com/athletic/5962615/2024/12/02/harry-kane-injury-latest-bayern-munich/
