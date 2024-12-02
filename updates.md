@@ -1,3 +1,11 @@
+**The Briefing: How is Slot making it look so easy? Do Arsenal's hopes rest on two men?**\
+`Nick Miller answers the big talking points after the weekend's Premier League action`\
+https://nytimes.com/athletic/5960770/2024/12/02/liverpool-slot-arsenal-villa-premier-league/
+
+**Why England's attacking 'experiment' didn't work against the United States**\
+`No big chances, an xG of 0.07 and too few runs in behind left England fans with little to cheer against the U.S. Clarity is needed.`\
+https://nytimes.com/athletic/5959721/2024/12/02/uswnt-england-wembley-experiment/
+
 **The Business of Football: Premier League global TV deals up 27%, World Cup 'acclamation'**\
 `What Matt Slater is hearing in the corridors of power - from the global game to the latest goings-on in the Premier League and EFL`\
 https://nytimes.com/athletic/5955354/2024/12/02/premier-league-world-cup-football-soccer-news/
