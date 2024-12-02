@@ -1,3 +1,11 @@
+**FSU in talks with Nebraska's Tony White for defensive coordinator role**\
+`Florida State is in the midst of a total staff overhaul.`\
+https://nytimes.com/athletic/5963562/2024/12/02/florida-state-tony-white-defensive-coordinator/
+
+**College Football Playoff 2024 projections: How many teams are locks? Can Bama get in?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/02/college-football-playoff-projections-odds/
+
 **Director of ‘2000 Mules’ Acknowledges the Conspiratorial Film Was Flawed**\
 `The director, Dinesh D’Souza, who is facing a lawsuit over the documentary, admitted that an analysis used to make claims about election fraud that were later debunked had been faulty.`\
 https://nytimes.com/2024/12/02/us/politics/dinesh-dsouza-2000-mules-apology-trump.html
