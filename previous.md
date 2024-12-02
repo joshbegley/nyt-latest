@@ -1,3 +1,11 @@
+**Wisconsin Judge Strikes Down Limits on Public Sector Unions**\
+`The 2011 law stripped most government workers in the state of collective bargaining rights and set off protests that lasted weeks.`\
+https://nytimes.com/2024/12/02/us/wisconsin-court-decision-unions.html
+
+**Tuesday Briefing: A Presidential Pardon**\
+`Plus, Free North Korea Radio.`\
+https://nytimes.com/2024/12/02/briefing/biden-pardon-syria-france.html
+
 **Giants' Dexter Lawrence out for rest of season with elbow injury**\
 `The 2019 first-round pick has lived up to the lucrative contract he garnered this offseason picking up nine sacks in 2024.`\
 https://nytimes.com/athletic/5964338/2024/12/02/dexter-lawrence-giants-ir/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5964274/2024/12/02/smu-college-football-playoff-acc
 **Judge Steps Aside in ‘Shaken Baby’ Death Penalty Case in Texas**\
 `The judge who issued a death warrant for Robert Roberson voluntarily recused herself, adding the latest legal complication to a case that has drawn national scrutiny.`\
 https://nytimes.com/2024/12/02/us/texas-roberson-shaken-baby-judge.html
-
-**Biden’s Pardon for His Son Dishonors the Office**\
-`With the pardon of his son, President Biden added his name to the roll call of presidents who dishonored their office by misusing the pardon power.`\
-https://nytimes.com/2024/12/02/opinion/joe-hunter-biden-pardon-dishonor.html
-
-**5 Women Win Reparations From Belgium for Crimes Under Colonial Rule**\
-`In a landmark case, a court ruled that the women, now in their 70s and 80s, who were taken from their parents in Belgian Congo, were victims of a crime against humanity.`\
-https://nytimes.com/2024/12/02/world/europe/5-women-win-reparations-from-belgium-for-crimes-under-colonial-rule.html
 
