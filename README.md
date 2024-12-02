@@ -1,3 +1,19 @@
+**How Daniel Munoz personifies Crystal Palace's ups and down this season**\
+`The Colombian wing-back had played every game for Palace since joining from Genk in January and failed to score, but this was his moment`\
+https://nytimes.com/athletic/5956737/2024/12/02/palace-munoz-glasner-newcastle/
+
+**If Everton can't even defend anymore, then what next for Dyche?**\
+`The solidity at the back that the manager usually guarantees from his teams looks to be crumbling — piling further pressure on the club`\
+https://nytimes.com/athletic/5960331/2024/12/02/everton-defence-dyche-premier-league/
+
+**Amorim has options aplenty at centre-forward - but who will be his first choice?**\
+`Joshua Zirkzee, Rasmus Hojlund and Marcus Rashford have all delivered in the No 9 role, leaving the new manager with a decision to make`\
+https://nytimes.com/athletic/5960640/2024/12/02/amorim-manchester-united-centre-forward/
+
+**Tottenham's injury problems have blunted their edge - and there is no respite ahead**\
+`Spurs were unrecognisable from the riotous win at Manchester City but, as Ange Postecoglu pointed out, their options have been decimated`\
+https://nytimes.com/athletic/5955721/2024/12/02/tottenham-postecoglu-injuries-fulham/
+
 **The Briefing: How is Slot making it look so easy? Do Arsenal's hopes rest on two men?**\
 `Nick Miller answers the big talking points after the weekend's Premier League action`\
 https://nytimes.com/athletic/5960770/2024/12/02/liverpool-slot-arsenal-villa-premier-league/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5961188/2024/12/02/fantasy-football-week-13-takeawa
 **A North Korean Voice That Kim Jong-un Would Like to Silence**\
 `Kim Seongmin, who fled to South Korea in the 1990s, broadcasts to his homeland twice a day, delivering the kind of information Pyongyang is trying hard to suppress.`\
 https://nytimes.com/2024/12/02/world/asia/north-korea-radio-station-defector.html
-
-**Monday Briefing**\
-`A presidential pardon for Hunter Biden.`\
-https://nytimes.com/2024/12/02/briefing/biden-pardon-syria.html
-
-**Quote of the Day: Valor and Anguish for a Brigade Taking the Fight Across a River**\
-`Quotation of the Day for Monday, December 2, 2024.`\
-https://nytimes.com/2024/12/02/pageoneplus/quote-of-the-day-valor-and-anguish-for-a-brigade-taking-the-fight-across-a-river.html
-
-**Can You Find Awe in Christmas Cookies?**\
-`Adding a jeweled element to them helps. So does baking them with friends and family.`\
-https://nytimes.com/2024/12/02/dining/can-you-find-awe-in-christmas-cookies.html
-
-**Mets sign starter Frankie Montas to short-term deal: Source**\
-`Montas' deal includes a player option for 2026. He pitched 150 2/3 innings for the Reds and Brewers in 2024.`\
-https://nytimes.com/athletic/5962162/2024/12/01/mets-frankie-montas-contract/
 
