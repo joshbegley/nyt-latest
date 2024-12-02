@@ -1,3 +1,11 @@
+**The Steelers needed their offense to carry them. Russell Wilson answered the call**\
+`Despite a bad break early, Wilson outdueled Joe Burrow and the Bengals' offense with one of the best games of his career.`\
+https://nytimes.com/athletic/5961511/2024/12/01/steelers-win-russell-wilson-bengals/
+
+**Iowa RB Kaleb Johnson to skip bowl game, prepare for NFL Draft**\
+`Johnson is the first Iowa player to score a touchdown in every game of a season.`\
+https://nytimes.com/athletic/5961563/2024/12/01/kaleb-johnson-nfl-draft-iowa-hawkeyes/
+
 **Read Joe Biden’s Statement and His Grant of Clemency**\
 `President Biden issued the statement after signing a pardon for Hunter Biden Sunday night.`\
 https://nytimes.com/2024/12/01/us/politics/biden-pardon-hunter-statement.html
