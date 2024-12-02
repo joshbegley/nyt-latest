@@ -1,3 +1,11 @@
+**$825,000 Homes in California**\
+`A three-bedroom house with a pool in Palm Springs, a cute Victorian-era house in Nevada City, and a three-bedroom bungalow from 1925 in Torrance.`\
+https://nytimes.com/2024/12/02/realestate/825000-homes-in-california.html
+
+**Ohio State still has national title talent but wasted it against Michigan: Final thoughts**\
+`Looking back at all that went wrong for Ryan Day, Chip Kelly and Ohio State against Michigan, plus thoughts on the Playoff path ahead.`\
+https://nytimes.com/athletic/5962929/2024/12/02/ohio-state-michigan-ryan-day-chip-kelly/
+
 **Paqueta available vs Leicester, not set to give evidence in Brazil betting inquiry**\
 `West Ham United midfielder Lucas Paqueta is set to be available to face Leicester City on Tuesday as the club no longer expect him to give evidence to the Brazilian parliament for an inquiry into sports betting.`\
 https://nytimes.com/athletic/5963165/2024/12/02/lucas-paqueta-west-ham-leicester-availability/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5962211/2024/12/02/canucks-nhl-win-lankinen-suter/
 **Five Questions to Ask Your Doctor When Weighing a Hysterectomy**\
 `Many patients are confused about what their surgeons are planning. Here’s how to get the details.`\
 https://nytimes.com/2024/12/02/health/hysterectomy-questions-answers.html
-
-**You Had a Hysterectomy. What Did the Doctor Leave Behind?**\
-`Patients often are in the dark about which organs remain and which were removed — particularly the ovaries, which profoundly influence lifelong health.`\
-https://nytimes.com/2024/12/02/health/hysterectomy-ovaries-women.html
-
-**Italy will host Davis Cup Finals from 2025 until 2028**\
-`The defending Davis Cup and Billie Jean King Cup champions will stage the finals of the men's event.`\
-https://nytimes.com/athletic/5963156/2024/12/02/davis-cup-finals-italy-host/
 
