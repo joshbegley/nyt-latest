@@ -1,3 +1,7 @@
+**Backlash to Biden’s Pardon**\
+`Also, Russian strikes in Syria. Here's the latest at the end of Monday.`\
+https://nytimes.com/2024/12/02/briefing/backlash-to-bidens-pardon.html
+
 **Long throws, a sloping pitch and a portacabin: What Spurs can expect from Tamworth**\
 `The Athletic's Leicester City reporter Rob Tanner previously covered Tamworth. He explains what awaits Tottenham and their fans`\
 https://nytimes.com/athletic/5964354/2024/12/02/tamworth-tottenham-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5964312/2024/12/02/college-football-national-title-
 **Oklahoma hiring away Washington State's 29-year-old OC**\
 `Arbuckle has spent the last two seasons at Washington State, directing offenses that ranked in the top 20 nationally in yards per play.`\
 https://nytimes.com/athletic/5964537/2024/12/02/oklahoma-hiring-washington-states-ben-arbuckle-29-as-new-offensive-coordinator/
-
-**A Question No One Was Asking: What if Elon Musk Was on the Bulls?**\
-`Scottie Pippen, a basketball star turned crypto fanatic, posted about how many championships Chicago would have won with Mr. Musk. The answers weren’t kind.`\
-https://nytimes.com/2024/12/02/style/scottie-pippen-elon-musk-bulls.html
 
