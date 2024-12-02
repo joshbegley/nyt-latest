@@ -1,3 +1,7 @@
+**NFL playoff picture, Week 13: Steelers seize control of AFC North, Falcons fading**\
+`Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
+https://nytimes.com/athletic/5947479/2024/12/01/nfl-playoff-picture-week-13/
+
 **Donovan Mitchell leads Cavaliers past Celtics in battle of NBA's best**\
 `Mitchell scored a streak of 11 points in a row down the stretch as the Cavs overcame a 14-point deficit to maintain the NBA's best record.`\
 https://nytimes.com/athletic/5961451/2024/12/01/cavaliers-celtics-donovan-mitchell-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/01/us/politics/biden-hunter-pardon-politics.html
 **Commanders get back to having fun in blowout of Titans: 'Winning helps a lot'**\
 `Washington snapped its three-game losing streak and enters the bye with a 1 1/2 game lead for the final wild-card spot in the NFC. `\
 https://nytimes.com/athletic/5961497/2024/12/01/jayden-daniels-commanders-win-titans/
-
-**Blue Jackets' rout of Blackhawks suggests this five-game road trip may go better**\
-`Six different Columbus players scored against the Blackhawks on the second game of the road trip for a 6-3 win.`\
-https://nytimes.com/athletic/5961443/2024/12/01/blue-jackets-rout-werenski-blackhawks/
 

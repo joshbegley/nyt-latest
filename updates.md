@@ -1,3 +1,7 @@
+**NFL playoff picture, Week 13: Steelers seize control of AFC North, Falcons fading**\
+`Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
+https://nytimes.com/athletic/5947479/2024/12/01/nfl-playoff-picture-week-13/
+
 **Jared Verse and Kyren Williams buoy Rams to win after week of energy, accountability**\
 `The D-line's stand late in the game and the reliance on the rushing attack in the second half lifted the Rams to their sixth win.`\
 https://nytimes.com/athletic/5961912/2024/12/01/rams-beat-saints-kyren-williams-jared-verse-analysis/
