@@ -1,3 +1,7 @@
+**The Pulse: You have to see this touchdown**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5961805/2024/12/02/bills-49ers-josh-allen-snow-the-pulse/
+
 **Helping Students Find Their Way to College**\
 `One Goal is a resource for students who are entering college without the benefits of family wealth.`\
 https://nytimes.com/2024/12/02/opinion/communities-fund-one-goal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5962448/2024/12/02/packers-vikings-lions-bears-nfc-
 **Biden Pardons His Son Hunter in U-Turn, and Syrian Rebels’ Surprise Advance**\
 `Plus, Oxford’s word of the year is …`\
 https://nytimes.com/2024/12/02/podcasts/hunter-biden-pardon-trump-fbi-syria-civil-war.html
-
-**Are the Dolphins soft? The answer might be hiding in plain sight**\
-`Miami is 1-10 in its last 11 games against winning teams, including some blowout losses, but that doesn't tell the full picture.`\
-https://nytimes.com/athletic/5962454/2024/12/02/dolphins-loss-mike-mcdaniel-tua-tagovailoa/
 
