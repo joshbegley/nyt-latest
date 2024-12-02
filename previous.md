@@ -1,3 +1,19 @@
+**The Windup: Snell's second chance**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/5963360/2024/12/02/blake-snell-dodgers-signed-the-windup/
+
+**The Statue of an Emperor That Lost Its Head Is Getting It Back**\
+`A Danish museum is returning the bronze head of Septimius Severus to Turkey after agreeing that it was probably looted from a shrine honoring Roman leaders.`\
+https://nytimes.com/2024/12/02/arts/the-statue-of-an-emperor-that-lost-its-head-is-getting-it-back.html
+
+**Time to Eat a Salad**\
+`Specifically this taverna salad, a five-star recipe from Lidey Heuck that’s colorful and crunchy, sustaining and light.`\
+https://nytimes.com/2024/12/02/dining/taverna-salad.html
+
+**Hollinger's Week That Was: NBA Cup could get wild on the final day of group play**\
+`Plus: After his return from injury and move into the starting lineup, Raptors rookie Ja'Kobe Walter is showing flashes of what could be.`\
+https://nytimes.com/athletic/5962725/2024/12/02/nba-cup-scenarios-ja-kobe-walter-raptors/
+
 **Stars Like Wayne Northrop Remembered as Mainstays of Daytime TV**\
 `These soap stars played various characters, sometimes on more than one program, and formed connections with viewers who followed their stories for years.`\
 https://nytimes.com/2024/12/02/arts/soap-opera-stars-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5963156/2024/12/02/davis-cup-finals-italy-host/
 **Steelers' George Pickens must 'grow up' after Week 13 penalties: Tomlin**\
 `Officials penalized the Steelers wide receiver twice for unsportsmanlike conduct in the team's win vs. Cincinnati.`\
 https://nytimes.com/athletic/5963193/2024/12/02/george-pickens-mike-tomlin-penalties-steelers/
-
-**Aaron Rodgers to remain Jets starting QB, Jeff Ulbrich says**\
-`When asked if that meant permanently or if it's a week-to-week decision, Jeff Ulbrich would only say: "He's our quarterback." `\
-https://nytimes.com/athletic/5963071/2024/12/02/aaron-rodgers-jets-qb-starter-season/
-
-**Elton John, After Eye Infection, Says He Couldn’t See His Own Musical**\
-`After a performance of “The Devil Wears Prada” in London, John told the crowd that the effects of an eye infection were continuing to limit his eyesight.`\
-https://nytimes.com/2024/12/02/arts/music/elton-john-eyesight.html
-
-**The Bounce: What's wrong with the Timberwolves?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5962868/2024/12/02/anthony-edwards-timberwolves-giannis-antetokounmpo-bucks-nba-the-bounce/
-
-**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in December**\
-`“Pop Culture Jeopardy!,” “Laid,” “Star Wars: Skeleton Crew,” “Christmas Eve in Miller’s Point” and “Sugarcane” are arriving.`\
-https://nytimes.com/2024/12/02/arts/television/december-streaming-movies-shows.html
 

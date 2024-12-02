@@ -1,3 +1,19 @@
+**The Windup: Snell's second chance**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/5963360/2024/12/02/blake-snell-dodgers-signed-the-windup/
+
+**The Statue of an Emperor That Lost Its Head Is Getting It Back**\
+`A Danish museum is returning the bronze head of Septimius Severus to Turkey after agreeing that it was probably looted from a shrine honoring Roman leaders.`\
+https://nytimes.com/2024/12/02/arts/the-statue-of-an-emperor-that-lost-its-head-is-getting-it-back.html
+
+**Time to Eat a Salad**\
+`Specifically this taverna salad, a five-star recipe from Lidey Heuck that’s colorful and crunchy, sustaining and light.`\
+https://nytimes.com/2024/12/02/dining/taverna-salad.html
+
+**Hollinger's Week That Was: NBA Cup could get wild on the final day of group play**\
+`Plus: After his return from injury and move into the starting lineup, Raptors rookie Ja'Kobe Walter is showing flashes of what could be.`\
+https://nytimes.com/athletic/5962725/2024/12/02/nba-cup-scenarios-ja-kobe-walter-raptors/
+
 **Stars Like Wayne Northrop Remembered as Mainstays of Daytime TV**\
 `These soap stars played various characters, sometimes on more than one program, and formed connections with viewers who followed their stories for years.`\
 https://nytimes.com/2024/12/02/arts/soap-opera-stars-dead.html
