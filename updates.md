@@ -1,3 +1,7 @@
+**Alpine confirms Doohan to make F1 debut in Abu Dhabi after Esteban Ocon exit**\
+`Alpine has announced that Jack Doohan will make his Formula One debut this weekend in Abu Dhabi, replacing Esteban Ocon.`\
+https://nytimes.com/athletic/5962464/2024/12/02/alpine-doohan-f1-abu-dhabi-esteban-ocon/
+
 **James Harden is getting back to dominating games for the Clippers**\
 `Harden scored 39 points in LA's win over Denver while being a part of the offense instead of always being the driver of it.`\
 https://nytimes.com/athletic/5962383/2024/12/02/clippers-james-harden-dominating-games/
