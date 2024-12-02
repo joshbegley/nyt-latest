@@ -1,3 +1,15 @@
+**Syrian and Russian Fighter Jets Strike Areas Held by Rebel Forces**\
+`The airstrikes came as the rebel forces continued advancing in the west and northwest of Syria.`\
+https://nytimes.com/video/world/middleeast/100000009853959/syria-russia-airstrikes-rebels-aleppo.html
+
+**Saints' Taysom Hill out for season with torn ACL: Reports**\
+`Jack-of-all-trades offensive weapon was injured in New Orleans' Week 13 loss to the Los Angeles Rams. `\
+https://nytimes.com/athletic/5963782/2024/12/02/saints-nfl-taysom-hill-acl-injury/
+
+**Broadway, Seeking Growth and Facing Challenges, Has a New Representative**\
+`The Broadway League, an industry trade organization, named Jason Laks as its new president. “I think our mission has to be more than to make it 2019 again,” Laks said.`\
+https://nytimes.com/2024/12/02/theater/broadway-league-jason-laks.html
+
 **Bears president: Head coach opening 'will be the most coveted job' in the NFL**\
 `Ryan Poles will remain as general manager and will be the point person in the team's search for a new head coach.`\
 https://nytimes.com/athletic/5963090/2024/12/02/bears-head-coach-opening-kevin-warren/
