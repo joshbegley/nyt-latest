@@ -1,3 +1,7 @@
+**NFL Week 13 inactives and fantasy tips: Cedric Tillman out for Monday Night Football**\
+`Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5956931/2024/12/02/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/
+
 **California Lawmakers to Propose $25 Million Fund to Litigate Trump Administration**\
 `The state’s Democratic leaders had announced within days of the election that they would meet early this month on plans to defend California’s liberal policies.`\
 https://nytimes.com/2024/12/02/us/politics/california-fund-litigation-trump.html

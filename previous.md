@@ -10,6 +10,10 @@ https://nytimes.com/interactive/2024/12/02/books/review/teen-books-movies.html
 `Dylan Bachelet lost in the finals of “The Great British Baking Show,” but he was a breakout star for his fashion as well as his baking. Now, he’s a professional chef.`\
 https://nytimes.com/2024/12/02/style/dylan-bachelet-british-baking-show.html
 
+**NFL Week 13 inactives and fantasy tips: Cedric Tillman out for Monday Night Football**\
+`Check out who's in and who's out for Week 13. Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5956931/2024/12/02/nfl-week-13-inactives-and-fantasy-tips-trevor-lawrence-trending-toward-return/
+
 **NBA Rewind: Can the Timberwolves be saved? And NBA Cup group play concludes**\
 `Who's up (Hawks and Grizzlies) and down (Kings and Warriors) in Zach Harper's latest NBA stock report?`\
 https://nytimes.com/athletic/5957894/2024/12/02/nba-rewind-timberwolves-nba-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/02/us/trump-news/trumps-pick-to-lead-the-dea-ha
 **The Trump team isn’t legally bound to adhere to the transition promises it has made.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/12/02/us/trump-news/the-trump-team-isnt-legally-bound-to-adhere-to-the-transition-promises-it-has-made
-
-**Cowboys Today: After months of challenges, Dallas' defense finally getting healthy**\
-`The Cowboys are going to need their defense at full strength to continue winning. DeMarcus Lawrence and Trevon Diggs could be returning.`\
-https://nytimes.com/athletic/5961002/2024/12/02/cowboys-today-tv-ratings-defense-healthy/
 
