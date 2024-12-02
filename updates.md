@@ -1,3 +1,7 @@
+**Backlash to Biden’s Pardon**\
+`Also, Russian strikes in Syria. Here's the latest at the end of Monday.`\
+https://nytimes.com/2024/12/02/briefing/backlash-to-bidens-pardon.html
+
 **Long throws, a sloping pitch and a portacabin: What Spurs can expect from Tamworth**\
 `The Athletic's Leicester City reporter Rob Tanner previously covered Tamworth. He explains what awaits Tottenham and their fans`\
 https://nytimes.com/athletic/5964354/2024/12/02/tamworth-tottenham-fa-cup/
