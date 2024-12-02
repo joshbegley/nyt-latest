@@ -1,3 +1,23 @@
+**A North Korean Voice That Kim Jong-un Would Like to Silence**\
+`Kim Seongmin, who fled to South Korea in the 1990s, broadcasts to his homeland twice a day, delivering the kind of information Pyongyang is trying hard to suppress.`\
+https://nytimes.com/2024/12/02/world/asia/north-korea-radio-station-defector.html
+
+**Monday Briefing**\
+`A presidential pardon for Hunter Biden.`\
+https://nytimes.com/2024/12/02/briefing/biden-pardon-syria.html
+
+**Quote of the Day: Valor and Anguish for a Brigade Taking the Fight Across a River**\
+`Quotation of the Day for Monday, December 2, 2024.`\
+https://nytimes.com/2024/12/02/pageoneplus/quote-of-the-day-valor-and-anguish-for-a-brigade-taking-the-fight-across-a-river.html
+
+**Can You Find Awe in Christmas Cookies?**\
+`Adding a jeweled element to them helps. So does baking them with friends and family.`\
+https://nytimes.com/2024/12/02/dining/can-you-find-awe-in-christmas-cookies.html
+
+**Mets sign starter Frankie Montas to short-term deal: Source**\
+`Montas' deal includes a player option for 2026. He pitched 150 2/3 innings for the Reds and Brewers in 2024.`\
+https://nytimes.com/athletic/5962162/2024/12/01/mets-frankie-montas-contract/
+
 **The Eagles captured momentum in their eighth straight win — or did they?**\
 `Philadelphia effectively shut down Lamar Jackson and Derrick Henry.`\
 https://nytimes.com/athletic/5960980/2024/12/01/eagles-win-saquon-barkley-jalen-hurts-ravens/
@@ -6,6 +26,10 @@ https://nytimes.com/athletic/5960980/2024/12/01/eagles-win-saquon-barkley-jalen-
 `The Panthers had their chances, but a near TD catch, two missed kicks and an overtime fumble kept them from beating the Bucs.`\
 https://nytimes.com/athletic/5962069/2024/12/01/panthers-loss-adam-thielen-catch-overtime-bucs/
 
+**49ers' McCaffrey suffers PCL injury in loss to Bills**\
+`McCaffrey had seven carries for 53 yards before exiting Sunday night's game in the second quarter.`\
+https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injury-49ers-bills/
+
 **Celtics fail to hold late double-digit lead against Cavs' creative use of fouls**\
 `Cleveland fouled Boston repeatedly down the stretch, denying several attempts to tie the score and the chance to win the game.`\
 https://nytimes.com/athletic/5962030/2024/12/01/celtics-lose-cavaliers/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5962030/2024/12/01/celtics-lose-cavaliers/
 **Allen, Bills clinch AFC East while 49ers' woes continue: Key takeaways**\
 `Allen became the seventh player in the Super Bowl era to throw for, run and catch touchdowns in the same game.`\
 https://nytimes.com/athletic/5961877/2024/12/01/49ers-bills-score-result-takeaways/
-
-**NFL playoff picture, Week 13: Steelers seize control of AFC North, Bills clinch AFC East**\
-`Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
-https://nytimes.com/athletic/5947479/2024/12/01/nfl-playoff-picture-week-13/
-
-**Donovan Mitchell leads Cavaliers past Celtics in battle of NBA's best**\
-`Mitchell scored 11 points in a row down the stretch as the Cavs overcame a 14-point deficit to maintain the NBA's best record.`\
-https://nytimes.com/athletic/5961451/2024/12/01/cavaliers-celtics-donovan-mitchell-score-result/
-
-**Jared Verse and Kyren Williams buoy Rams to win after week of energy, accountability**\
-`The D-line's stand late in the game and the reliance on the rushing attack in the second half lifted the Rams to their sixth win.`\
-https://nytimes.com/athletic/5961912/2024/12/01/rams-beat-saints-kyren-williams-jared-verse-analysis/
-
-**Canadiens continue to counter progress with steps back to their former generous selves**\
-`Allowing three goals in 70 seconds doesn't erase the Canadiens' improvements but serves as a reminder they are still learning how to win.`\
-https://nytimes.com/athletic/5961958/2024/12/01/canadiens-guhle-defensive-breakdowns-bruins/
-
-**‘Dune: Prophecy’ Season 1 Episode 3 Recap: The Meaning of Sacrifice**\
-`“Sisterhood above all” is the motto of Valya and Tula’s secretive organization, but its meaning seems to depend on which sister is saying it.`\
-https://nytimes.com/2024/12/01/arts/television/dune-prophecy-recap-season-1-episode-3.html
-
-**If Aaron Rodgers just played his last game for the Jets, it might have been his worst**\
-`The quarterback was at the center of yet another inexplicable loss.`\
-https://nytimes.com/athletic/5961469/2024/12/01/aaron-rodgers-possible-benching-seahawks-loss/
 

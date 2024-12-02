@@ -1,3 +1,7 @@
+**Fantasy football Week 13 takeaways: Sam Darnold is making history; Joe Burrow is Jacob deGrom**\
+`Among his Week 13 takes, Michael Salfino says Joe Burrow is putting up elite numbers for a losing team, à la MLB ace Jacob deGrom.`\
+https://nytimes.com/athletic/5961188/2024/12/02/fantasy-football-week-13-takeaways-sam-darnold-is-making-history-joe-burrow-is-jacob-degrom/
+
 **A North Korean Voice That Kim Jong-un Would Like to Silence**\
 `Kim Seongmin, who fled to South Korea in the 1990s, broadcasts to his homeland twice a day, delivering the kind of information Pyongyang is trying hard to suppress.`\
 https://nytimes.com/2024/12/02/world/asia/north-korea-radio-station-defector.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injur
 **Celtics fail to hold late double-digit lead against Cavs' creative use of fouls**\
 `Cleveland fouled Boston repeatedly down the stretch, denying several attempts to tie the score and the chance to win the game.`\
 https://nytimes.com/athletic/5962030/2024/12/01/celtics-lose-cavaliers/
-
-**Allen, Bills clinch AFC East while 49ers' woes continue: Key takeaways**\
-`Allen became the seventh player in the Super Bowl era to throw for, run and catch touchdowns in the same game.`\
-https://nytimes.com/athletic/5961877/2024/12/01/49ers-bills-score-result-takeaways/
 
