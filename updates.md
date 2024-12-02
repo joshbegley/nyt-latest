@@ -1,3 +1,7 @@
+**I’m One of the Last Doctors in This Hospital in Gaza. I’m Begging the World for Help.**\
+`Most of the medical staff at Kamal Adwan Hospital is gone. One of the last doctors working there shares his story.`\
+https://nytimes.com/2024/12/02/opinion/gaza-hospital-kamal-adwan.html
+
 **Closing Arguments to Begin in Subway Chokehold Trial**\
 `Daniel Penny was charged with manslaughter in the choking death of Jordan Neely, a homeless man who was shouting in a subway car, last year.`\
 https://nytimes.com/2024/12/02/nyregion/penny-trial-closings.html
