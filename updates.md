@@ -1,3 +1,7 @@
+**Broad Pardon for Hunter Biden Troubles Experts**\
+`President Biden granted blanket clemency to stop his son from being prosecuted by the Trump administration for his foreign business. Experts reached for historical parallels.`\
+https://nytimes.com/2024/12/02/us/politics/broad-pardon-for-hunter-biden-troubles-experts.html
+
 **Kash Patel Has Plan to Remake the F.B.I. Into a Tool of Trump**\
 `President-elect Donald Trump’s pick to lead the F.B.I. has called for firing the agency’s top officials, shutting down its Washington headquarters and prosecuting journalists.`\
 https://nytimes.com/2024/12/02/us/politics/kash-patel-fbi.html
