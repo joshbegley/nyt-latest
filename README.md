@@ -1,3 +1,7 @@
+**A judge, not political pressure, scuttled Hunter Biden’s plea deal.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2024/12/01/us/hunter-biden-pardon-live/a-judge-not-political-pressure-scuttled-hunter-bidens-plea-deal
+
 **Brad Marchand understands the stress and power of 100 years of Bruins history**\
 `The Bruins celebrated 100 years with a 6-3 victory over the Canadiens, and the gravity of the moment was not lost on the Boston captain.`\
 https://nytimes.com/athletic/5961534/2024/12/01/bruins-marchand-centennial-game-mcavoy-montreal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5950815/2024/12/01/nfl-draft-order-2025-round-1-ful
 **Despite Patriots' loss, it's OK to be recklessly optimistic about rookie QB Drake Maye**\
 `Even as the losses mount for the Patriots, Maye continues to shine. Because the franchise got that pick right, the future is bright.`\
 https://nytimes.com/athletic/5961293/2024/12/01/patriots-loss-drake-maye-colts/
-
-**Leonard Williams helps Seahawks escape Jets, bolstering playoff hopes**\
-`The Seahawks put themselves in a hole with a comedy of errors early, but Williams wouldn't let them lose to his former team.`\
-https://nytimes.com/athletic/5961319/2024/12/01/seahawks-win-leonard-williams-jets/
 
