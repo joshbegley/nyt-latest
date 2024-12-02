@@ -1,3 +1,7 @@
+**FAU expected to hire Texas Tech OC Zach Kittley as coach: Source**\
+`Zach Kittley will replace Tom Herman as head coach of FAU after three seasons as Texas Tech's offensive coordinator.`\
+https://nytimes.com/athletic/5964064/2024/12/02/zach-kittley-florida-atlantic-football-coach/
+
 **Bruce Feldman's West Virginia coaching candidates: RichRod, Jimbo or the field?**\
 `This search could get very interesting thanks to a couple of West Virginians who figure to get consideration and could have strong support.`\
 https://nytimes.com/athletic/5963982/2024/12/02/west-virginia-football-coaching-search-candidates/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960019/2024/12/02/star-skier-mikaela-shiffrin-out-
 **G.M. Will Sell Stake in E.V. Battery Plant to Its Partner LG**\
 `LG Energy Solution will now solely own a factory in Michigan that it had planned to operate through a joint venture with General Motors.`\
 https://nytimes.com/2024/12/02/business/gm-ev-batteries-lg.html
-
-**A Final, Whimsical Holiday for the Bidens**\
-`For her last Christmas in the White House, Jill Biden chose the theme, a “Season of Peace and Light.”`\
-https://nytimes.com/card/2024/12/02/us/politics/white-house-holiday-decorations-photos
 
