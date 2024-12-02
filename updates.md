@@ -1,3 +1,7 @@
+**Donovan Mitchell leads Cavaliers past Celtics in battle of NBA's best**\
+`Mitchell scored a streak of 11 points in a row down the stretch as the Cavs overcame a 14-point deficit to maintain the NBA's best record.`\
+https://nytimes.com/athletic/5961451/2024/12/01/cavaliers-celtics-donovan-mitchell-score-result/
+
 **Jared Verse and Kyren Williams buoyed Rams to win after week of energy, accountability**\
 `The D-line's stand late in the game and the reliance on the rushing attack in the second half lifted the Rams to their sixth win.`\
 https://nytimes.com/athletic/5961912/2024/12/01/rams-beat-saints-kyren-williams-jared-verse-analysis/

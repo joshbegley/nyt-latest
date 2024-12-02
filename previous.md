@@ -1,3 +1,7 @@
+**Donovan Mitchell leads Cavaliers past Celtics in battle of NBA's best**\
+`Mitchell scored a streak of 11 points in a row down the stretch as the Cavs overcame a 14-point deficit to maintain the NBA's best record.`\
+https://nytimes.com/athletic/5961451/2024/12/01/cavaliers-celtics-donovan-mitchell-score-result/
+
 **Jared Verse and Kyren Williams buoyed Rams to win after week of energy, accountability**\
 `The D-line's stand late in the game and the reliance on the rushing attack in the second half lifted the Rams to their sixth win.`\
 https://nytimes.com/athletic/5961912/2024/12/01/rams-beat-saints-kyren-williams-jared-verse-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5961497/2024/12/01/jayden-daniels-commanders-win-ti
 **Blue Jackets' rout of Blackhawks suggests this five-game road trip may go better**\
 `Six different Columbus players scored against the Blackhawks on the second game of the road trip for a 6-3 win.`\
 https://nytimes.com/athletic/5961443/2024/12/01/blue-jackets-rout-werenski-blackhawks/
-
-**Vikings' latest victory against Cardinals conjures thoughts of 2022 playoff team**\
-`With the Vikings' penchant for narrow victories, it's easy to draw connections to the team of two years ago. But this group is better.`\
-https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinals/
 
