@@ -1,3 +1,7 @@
+**Rebels’ Advance Appears to Buoy Syrian Opposition in Exile**\
+`In just a few days, a patchwork of forces has seized control of a broad stretch of land in the west and northwest of Syria.`\
+https://nytimes.com/2024/12/02/world/middleeast/syria-aleppo-assad.html
+
 **Germany Pledges Extra $680 Million to Ukraine in Effort at Reassurance**\
 `Chancellor Olaf Scholz visited Kyiv on Monday. Amid fears that U.S. support could dry up, Ukrainian officials had criticized him for a recent phone call with President Vladimir V. Putin.`\
 https://nytimes.com/2024/12/02/world/europe/scholz-germany-ukraine-aid.html
