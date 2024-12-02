@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5961319/2024/12/01/seahawks-win-leonard-williams-je
 `Stafford tossed two touchdown passes in the final frame after the Rams were shut out 6-0 in the first half in New Orleans.`\
 https://nytimes.com/athletic/5960190/2024/12/01/rams-saints-score-result-takeaways-2/
 
-**Biden says he granted clemency because the cases against his son were politically motivated.**\
+**The extraordinary action comes in the final weeks of Biden’s presidency.**\
 `The pardon comes weeks before President Biden leaves office and transfers power to President-elect Donald J. Trump, who spent years attacking Hunter Biden over his legal and personal issues.`\
 https://nytimes.com/live/2024/12/01/us/hunter-biden-pardon-live/biden-pardon-son
 
