@@ -3,7 +3,7 @@
 https://nytimes.com/2024/12/02/arts/music/kendrick-lamar-gnx-billboard-charts.html
 
 **San Francisco Giants free-agent profile: Corbin Burnes, RHP**\
-`I&#8217;ve been off social media for almost a month now, and I highly recommended it.`\
+`I&#8217;ve been off social media for almost a month now, and I highly recommend it.`\
 https://nytimes.com/athletic/5963552/2024/12/02/corbin-burnes-sf-giants-free-agent-profile/
 
 **Patriots mailbag: Submit your bye week questions for reporter Chad Graff**\
