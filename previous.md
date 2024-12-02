@@ -1,3 +1,11 @@
+**Fiorentina's Bove 'awake and alert' after collapse in abandoned Serie A match**\
+`Fiorentina midfielder Edoardo Bove is &#8220;awake and alert&#8221; and has spoken to his coach and team-mates following his collapse during Sunday&#8217;s abandoned Serie A match against Inter.`\
+https://nytimes.com/athletic/5960814/2024/12/02/edoardo-bove-fiorentina-update/
+
+**Intel’s Chief Executive Is Out Amid Chipmaker’s Struggles**\
+`Pat Gelsinger stepped down after nearly four years at the helm of the company, Intel said Monday.`\
+https://nytimes.com/2024/12/02/business/intel-ceo-pat-gelsinger.html
+
 **The Connections Companion No. 541**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 3, 2024.`\
 https://nytimes.com/2024/12/02/crosswords/connections-companion-541.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5962871/2024/12/02/sam-morsy-ipswich-rainbow-armban
 **California Lawmakers to Propose $25 Million Fund to Litigate Trump Administration**\
 `The state’s Democratic leaders had announced within days of the election that they would meet early this month on plans to defend California’s liberal policies.`\
 https://nytimes.com/2024/12/02/us/politics/california-fund-litigation-trump.html
-
-**Do You Know These Tween and Teen Books That Became Movies?**\
-`Novels for young adults often become films for young adults. Test yourself on these five books and their adaptations with this short quiz.`\
-https://nytimes.com/interactive/2024/12/02/books/review/teen-books-movies.html
-
-**Baking Show’s ‘Jack Sparrow’ Is More Artist Than Pirate**\
-`Dylan Bachelet lost in the finals of “The Great British Baking Show,” but he was a breakout star for his fashion as well as his baking. Now, he’s a professional chef.`\
-https://nytimes.com/2024/12/02/style/dylan-bachelet-british-baking-show.html
 

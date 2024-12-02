@@ -1,3 +1,11 @@
+**Fiorentina's Bove 'awake and alert' after collapse in abandoned Serie A match**\
+`Fiorentina midfielder Edoardo Bove is &#8220;awake and alert&#8221; and has spoken to his coach and team-mates following his collapse during Sunday&#8217;s abandoned Serie A match against Inter.`\
+https://nytimes.com/athletic/5960814/2024/12/02/edoardo-bove-fiorentina-update/
+
+**Intel’s Chief Executive Is Out Amid Chipmaker’s Struggles**\
+`Pat Gelsinger stepped down after nearly four years at the helm of the company, Intel said Monday.`\
+https://nytimes.com/2024/12/02/business/intel-ceo-pat-gelsinger.html
+
 **The Connections Companion No. 541**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 3, 2024.`\
 https://nytimes.com/2024/12/02/crosswords/connections-companion-541.html
