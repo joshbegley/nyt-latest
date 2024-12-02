@@ -1,3 +1,7 @@
+**Liverpool near perfection as Manchester City continue to be engulfed by a perfect storm**\
+`It's too early for the title race to be over, but Liverpool's serenity and control under Arne Slot makes them huge favourites `\
+https://nytimes.com/athletic/5962112/2024/12/02/liverpool-manchester-city-premier-league-title-race/
+
 **Word of the Day: equable**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/02/learning/word-of-the-day-equable.html

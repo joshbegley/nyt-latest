@@ -1,3 +1,7 @@
+**Liverpool near perfection as Manchester City continue to be engulfed by a perfect storm**\
+`It's too early for the title race to be over, but Liverpool's serenity and control under Arne Slot makes them huge favourites `\
+https://nytimes.com/athletic/5962112/2024/12/02/liverpool-manchester-city-premier-league-title-race/
+
 **Word of the Day: equable**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/02/learning/word-of-the-day-equable.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960673/2024/12/02/manchester-city-premier-league-g
 **How Arsenal found their 'flow' again**\
 `There has not been a mid-season break to kickstart their season this time, but Odegaard's return has helped Arsenal find their quality`\
 https://nytimes.com/athletic/5958858/2024/12/02/arsenal-west-ham-goals-flow-result/
-
-**Aston Villa's data shows the defence has been rocking for some time**\
-`Little has changed structurally to Villa's defence since last season, so why is their back line struggling so badly in the Premier League?`\
-https://nytimes.com/athletic/5959788/2024/12/02/aston-villa-are-in-decline-and-the-data-shows-the-defence-has-been-rocking-for-some-time/
 
