@@ -1,3 +1,19 @@
+**In Pardoning His Son, Biden Sounds a Lot Like Trump**\
+`The president complained about selective prosecution and political pressure in a system he has spent his political life defending.`\
+https://nytimes.com/2024/12/01/us/politics/biden-hunter-pardon-politics.html
+
+**Commanders get back to having fun in blowout of Titans: 'Winning helps a lot'**\
+`Washington snapped its three-game losing streak and enters the bye with a 1 1/2 game lead for the final wild-card spot in the NFC. `\
+https://nytimes.com/athletic/5961497/2024/12/01/jayden-daniels-commanders-win-titans/
+
+**Blue Jackets' rout of Blackhawks suggests this five-game road trip may go better**\
+`Six different Columbus players scored against the Blackhawks on the second game of the road trip for a 6-3 win.`\
+https://nytimes.com/athletic/5961443/2024/12/01/blue-jackets-rout-werenski-blackhawks/
+
+**Vikings latest victory against Cardinals conjures thoughts of 2022 playoff team**\
+`With the Vikings' penchant for narrow victories, it's easy to draw connections to the team of two years ago. But this group is better.`\
+https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinals/
+
 **Colts QB Anthony Richardson was 'special': Inside the drive that saved Indy's season**\
 `In a game the Colts had to have to keep their postseason dreams alive, Richardson marched them 80 yards on 19 plays and pulled out a win.`\
 https://nytimes.com/athletic/5961674/2024/12/01/anthony-richardson-colts-win-drive-patriots/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5961511/2024/12/01/steelers-win-russell-wilson-beng
 **Iowa RB Kaleb Johnson to skip bowl game, prepare for NFL Draft**\
 `Johnson is the first Iowa player to score a touchdown in every game of a season.`\
 https://nytimes.com/athletic/5961563/2024/12/01/kaleb-johnson-nfl-draft-iowa-hawkeyes/
-
-**Bucs beat Panthers in OT, tie Falcons for first in NFC South: Key takeaways**\
-`The Buccaneers improved to 6-6 thanks to a pair of crunchtime field goals by Chase McLaughlin.`\
-https://nytimes.com/athletic/5960181/2024/12/01/buccaneers-panthers-score-result-takeaways/
-
-**Judge Scuttled Hunter Biden Plea Deal, Not Political Pressure**\
-`Mr. Biden’s plea deal did fall apart at the last minute last year. But it did so after the judge overseeing the case raised issues.`\
-https://nytimes.com/2024/12/01/us/politics/biden-pardon-political-pressure.html
-
-**Brad Marchand understands the stress and power of 100 years of Bruins history**\
-`The Bruins celebrated 100 years with a 6-3 victory over the Canadiens, and the gravity of the moment was not lost on the Boston captain.`\
-https://nytimes.com/athletic/5961534/2024/12/01/bruins-marchand-centennial-game-mcavoy-montreal/
-
-**Tarheeb Still, Derwin James Jr. lift Chargers ever closer to playoff contention**\
-`The Chargers now have a 93 percent chance to make the playoffs, according to The Athletic's projection model. `\
-https://nytimes.com/athletic/5961527/2024/12/01/chargers-win-tarheeb-still-derwin-james-falcons/
 
