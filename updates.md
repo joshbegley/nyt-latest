@@ -1,3 +1,7 @@
+**West Ham's defence is porous. Julen Lopetegui must find solutions quickly**\
+`West Ham have kept three clean sheets in 13 league games. With a packed fixture list this month, the defence must improve`\
+https://nytimes.com/athletic/5958360/2024/12/02/west-ham-arsenal-lopetegui/
+
 **Toothless Newcastle need answers to scoring problem**\
 `If Newcastle had beaten Palace, it would have been a smash-and-grab win. They didn't have a shot on target. So where is it going wrong?`\
 https://nytimes.com/athletic/5958588/2024/12/02/newcastle-toothless-palace-premier-league/
