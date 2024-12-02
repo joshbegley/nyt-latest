@@ -1,3 +1,7 @@
+**Canadiens continue to counter progress with steps back to their former generous selves**\
+`Allowing three goals in 70 seconds doesn't erase the Canadiens' improvements, but serves as a reminder they are still learning how to win.`\
+https://nytimes.com/athletic/5961958/2024/12/01/canadiens-guhle-defensive-breakdowns-bruins/
+
 **‘Dune: Prophecy’ Season 1 Episode 3 Recap: The Meaning of Sacrifice**\
 `“Sisterhood above all” is the motto of Valya and Tula’s secretive organization, but its meaning seems to depend on which sister is saying it.`\
 https://nytimes.com/2024/12/01/arts/television/dune-prophecy-recap-season-1-episode-3.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinal
 **Colts QB Anthony Richardson was 'special': Inside the drive that saved Indy's season**\
 `In a game the Colts had to have to keep their postseason dreams alive, Richardson marched them 80 yards on 19 plays and pulled out a win.`\
 https://nytimes.com/athletic/5961674/2024/12/01/anthony-richardson-colts-win-drive-patriots/
-
-**49ers' Christian McCaffrey out vs. Bills with knee injury**\
-`McCaffrey had seven carries for 53 yards before exiting Sunday night's game in the second quarter.`\
-https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injury-49ers-bills/
 
