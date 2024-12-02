@@ -1,3 +1,15 @@
+**If Aaron Rodgers just played his last game for the Jets, it might have been his worst**\
+`The quarterback was at the center of yet another inexplicable loss.`\
+https://nytimes.com/athletic/5961469/2024/12/01/aaron-rodgers-possible-benching-seahawks-loss/
+
+**Hunter Biden Likely Wouldn’t Qualify for a Pardon Recommendation Under Justice Dept. Criteria**\
+`The Office of the Pardon Attorney mostly recommends full pardons for people who have already served their sentences. Hunter Biden has not been sentenced.`\
+https://nytimes.com/2024/12/01/us/politics/hunter-biden-pardon-recommendation.html
+
+**Texas Tech WR Micah Hudson, program's first 5-star, plans to transfer**\
+`Hudson's lack of playing time and production was a stark contrast to the expectations that surrounded him when he arrived.`\
+https://nytimes.com/athletic/5961791/2024/12/01/micah-hudson-transfer-portal-texas-tech/
+
 **In Pardoning His Son, Biden Sounds a Lot Like Trump**\
 `The president complained about selective prosecution and political pressure in a system he has spent his political life defending.`\
 https://nytimes.com/2024/12/01/us/politics/biden-hunter-pardon-politics.html
