@@ -1,3 +1,15 @@
+**If Aaron Rodgers just played his last game for the Jets, it might have been his worst**\
+`The quarterback was at the center of yet another inexplicable loss.`\
+https://nytimes.com/athletic/5961469/2024/12/01/if-aaron-rodgers-just-played-his-last-game-for-the-jets-it-might-have-been-his-worst/
+
+**Hunter Biden Likely Wouldn’t Qualify for a Pardon Recommendation Under Justice Dept. Criteria**\
+`The Office of the Pardon Attorney mostly recommends full pardons for people who have already served their sentences. Hunter Biden has not been sentenced.`\
+https://nytimes.com/2024/12/01/us/politics/hunter-biden-pardon-recommendation.html
+
+**Texas Tech WR Micah Hudson, program's first 5-star, plans to transfer**\
+`Hudson's lack of playing time and production was a stark contrast to the expectations that surrounded him when he arrived.`\
+https://nytimes.com/athletic/5961791/2024/12/01/micah-hudson-transfer-portal-texas-tech/
+
 **In Pardoning His Son, Biden Sounds a Lot Like Trump**\
 `The president complained about selective prosecution and political pressure in a system he has spent his political life defending.`\
 https://nytimes.com/2024/12/01/us/politics/biden-hunter-pardon-politics.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injur
 **Hunter Biden Faced Prison Time for Tax and Gun Charges**\
 `The president’s son had pleaded guilty to nine federal tax charges and was convicted of three felony counts for lying on a federal firearms application.`\
 https://nytimes.com/2024/12/01/us/politics/hunter-biden-crimes.html
-
-**Donovan Mitchell's red-hot fourth quarter leads Cavaliers past Celtics**\
-`Mitchell scored a streak of 11 points in a row down the stretch as the Cavs overcame a 14-point deficit to beat the Celtics 115-111.`\
-https://nytimes.com/athletic/5961451/2024/12/01/cavaliers-celtics-donovan-mitchell-score-result/
-
-**The Steelers needed their offense to carry them. Russell Wilson answered the call**\
-`Despite a bad break early, Wilson outdueled Joe Burrow and the Bengals offense with one of the best games of his career.`\
-https://nytimes.com/athletic/5961511/2024/12/01/steelers-win-russell-wilson-bengals/
-
-**Iowa RB Kaleb Johnson to skip bowl game, prepare for NFL Draft**\
-`Johnson is the first Iowa player to score a touchdown in every game of a season.`\
-https://nytimes.com/athletic/5961563/2024/12/01/kaleb-johnson-nfl-draft-iowa-hawkeyes/
 
