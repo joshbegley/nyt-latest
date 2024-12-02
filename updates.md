@@ -1,3 +1,7 @@
+**Donovan Mitchell's red-hot fourth quarter leads Cavaliers past Celtics**\
+`Mitchell scored a streak of 11 points in a row down the stretch as the Cavs overcame a 14-point deficit to beat the Celtics 115-111.`\
+https://nytimes.com/athletic/5961451/2024/12/01/cavaliers-celtics-donovan-mitchell-score-result/
+
 **The Steelers needed their offense to carry them. Russell Wilson answered the call**\
 `Despite a bad break early, Wilson outdueled Joe Burrow and the Bengals' offense with one of the best games of his career.`\
 https://nytimes.com/athletic/5961511/2024/12/01/steelers-win-russell-wilson-bengals/
