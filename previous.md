@@ -1,3 +1,31 @@
+**Toothless Newcastle need answers to scoring problem**\
+`If Newcastle had beaten Palace, it would have been a smash-and-grab win. They didn't have a shot on target. So where is it going wrong?`\
+https://nytimes.com/athletic/5958588/2024/12/02/newcastle-toothless-palace-premier-league/
+
+**Nuno's Forest have rediscovered their identity at just the right time**\
+`Being able to defend well and having a prolific goalscorer is key, but there are other factors involved in Forest's success.`\
+https://nytimes.com/athletic/5959692/2024/12/02/nuno-forest-identity-defensive-record/
+
+**What do we expect of this Manchester City team? Perfection, really**\
+`City's dreadful recent run shows the extent of what this side have achieved - as Guardiola's gesture to the Anfield crowd reminded us `\
+https://nytimes.com/athletic/5960673/2024/12/02/manchester-city-premier-league-guardiola-six/
+
+**How Arsenal found their 'flow' again**\
+`There has not been a mid-season break to kickstart their season this time, but Odegaard's return has helped Arsenal find their quality`\
+https://nytimes.com/athletic/5958858/2024/12/02/arsenal-west-ham-goals-flow-result/
+
+**Aston Villa's data shows the defence has been rocking for some time**\
+`Little has changed structurally to Villa's defence since last season, so why is their back line struggling so badly in the Premier League?`\
+https://nytimes.com/athletic/5959788/2024/12/02/aston-villa-are-in-decline-and-the-data-shows-the-defence-has-been-rocking-for-some-time/
+
+**Chelsea unveil their blueprint to weaponise Enzo Fernandez**\
+`The Argentina midfielder was omitted earlier this season but Enzo Maresca has now unearthed a system that better taps into his talents`\
+https://nytimes.com/athletic/5960392/2024/12/02/enzo-fernandez-chelsea-maresca-caicedo/
+
+**Can Fabio Carvalho break in at Brentford?**\
+`The west London club are flying up front, particularly at home - and Carvalho is not getting chances after his £27.5m move from Liverpool`\
+https://nytimes.com/athletic/5958575/2024/12/02/fabio-carvalho-brentford-premier-league/
+
 **How Daniel Munoz personifies Crystal Palace's ups and down this season**\
 `The Colombian wing-back had played every game for Palace since joining from Genk in January and failed to score, but this was his moment`\
 https://nytimes.com/athletic/5956737/2024/12/02/palace-munoz-glasner-newcastle/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5960331/2024/12/02/everton-defence-dyche-premier-le
 **Amorim has options aplenty at centre-forward - but who will be his first choice?**\
 `Joshua Zirkzee, Rasmus Hojlund and Marcus Rashford have all delivered in the No 9 role, leaving the new manager with a decision to make`\
 https://nytimes.com/athletic/5960640/2024/12/02/amorim-manchester-united-centre-forward/
-
-**Tottenham's injury problems have blunted their edge - and there is no respite ahead**\
-`Spurs were unrecognisable from the riotous win at Manchester City but, as Ange Postecoglu pointed out, their options have been decimated`\
-https://nytimes.com/athletic/5955721/2024/12/02/tottenham-postecoglu-injuries-fulham/
-
-**The Briefing: How is Slot making it look so easy? Do Arsenal's hopes rest on two men?**\
-`Nick Miller answers the big talking points after the weekend's Premier League action`\
-https://nytimes.com/athletic/5960770/2024/12/02/liverpool-slot-arsenal-villa-premier-league/
-
-**Why England's attacking 'experiment' didn't work against the United States**\
-`No big chances, an xG of 0.07 and too few runs in behind left England fans with little to cheer against the U.S. Clarity is needed.`\
-https://nytimes.com/athletic/5959721/2024/12/02/uswnt-england-wembley-experiment/
-
-**The Business of Football: Premier League global TV deals up 27%, World Cup 'acclamation'**\
-`What Matt Slater is hearing in the corridors of power - from the global game to the latest goings-on in the Premier League and EFL`\
-https://nytimes.com/athletic/5955354/2024/12/02/premier-league-world-cup-football-soccer-news/
-
-**Fantasy trends and hidden gems: Artturi Lehkonen is in good company; Ryan Donato is a light-night target**\
-`Shayna Goldman identifies the best of this week's fantasy hockey waiver wire, and she offers a simple reason for adding Artturi Lehkonen.`\
-https://nytimes.com/athletic/5961978/2024/12/02/fantasy-hockey-trends-gems-artturi-lehkonen-ryan-donato/
-
-**Fantasy football Week 13 takeaways: Sam Darnold is making history; Joe Burrow is Jacob deGrom**\
-`Among his Week 13 takes, Michael Salfino says Joe Burrow is putting up elite numbers for a losing team, à la MLB ace Jacob deGrom.`\
-https://nytimes.com/athletic/5961188/2024/12/02/fantasy-football-week-13-takeaways-sam-darnold-is-making-history-joe-burrow-is-jacob-degrom/
-
-**A North Korean Voice That Kim Jong-un Would Like to Silence**\
-`Kim Seongmin, who fled to South Korea in the 1990s, broadcasts to his homeland twice a day, delivering the kind of information Pyongyang is trying hard to suppress.`\
-https://nytimes.com/2024/12/02/world/asia/north-korea-radio-station-defector.html
 

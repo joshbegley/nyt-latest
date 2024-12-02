@@ -1,3 +1,31 @@
+**Toothless Newcastle need answers to scoring problem**\
+`If Newcastle had beaten Palace, it would have been a smash-and-grab win. They didn't have a shot on target. So where is it going wrong?`\
+https://nytimes.com/athletic/5958588/2024/12/02/newcastle-toothless-palace-premier-league/
+
+**Nuno's Forest have rediscovered their identity at just the right time**\
+`Being able to defend well and having a prolific goalscorer is key, but there are other factors involved in Forest's success.`\
+https://nytimes.com/athletic/5959692/2024/12/02/nuno-forest-identity-defensive-record/
+
+**What do we expect of this Manchester City team? Perfection, really**\
+`City's dreadful recent run shows the extent of what this side have achieved - as Guardiola's gesture to the Anfield crowd reminded us `\
+https://nytimes.com/athletic/5960673/2024/12/02/manchester-city-premier-league-guardiola-six/
+
+**How Arsenal found their 'flow' again**\
+`There has not been a mid-season break to kickstart their season this time, but Odegaard's return has helped Arsenal find their quality`\
+https://nytimes.com/athletic/5958858/2024/12/02/arsenal-west-ham-goals-flow-result/
+
+**Aston Villa's data shows the defence has been rocking for some time**\
+`Little has changed structurally to Villa's defence since last season, so why is their back line struggling so badly in the Premier League?`\
+https://nytimes.com/athletic/5959788/2024/12/02/aston-villa-are-in-decline-and-the-data-shows-the-defence-has-been-rocking-for-some-time/
+
+**Chelsea unveil their blueprint to weaponise Enzo Fernandez**\
+`The Argentina midfielder was omitted earlier this season but Enzo Maresca has now unearthed a system that better taps into his talents`\
+https://nytimes.com/athletic/5960392/2024/12/02/enzo-fernandez-chelsea-maresca-caicedo/
+
+**Can Fabio Carvalho break in at Brentford?**\
+`The west London club are flying up front, particularly at home - and Carvalho is not getting chances after his £27.5m move from Liverpool`\
+https://nytimes.com/athletic/5958575/2024/12/02/fabio-carvalho-brentford-premier-league/
+
 **How Daniel Munoz personifies Crystal Palace's ups and down this season**\
 `The Colombian wing-back had played every game for Palace since joining from Genk in January and failed to score, but this was his moment`\
 https://nytimes.com/athletic/5956737/2024/12/02/palace-munoz-glasner-newcastle/
