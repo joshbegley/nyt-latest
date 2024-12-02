@@ -1,3 +1,7 @@
+**Italy will host Davis Cup Finals from 2025 until 2028**\
+`The defending Davis Cup and Billie Jean King Cup champions will stage the finals of the men's event.`\
+https://nytimes.com/athletic/5963156/2024/12/02/davis-cup-finals-italy-host/
+
 **Steelers' George Pickens must 'grow up' after Week 13 penalties: Tomlin**\
 `Officials penalized the Steelers wide receiver twice for unsportsmanlike conduct in the team's win vs. Cincinnati.`\
 https://nytimes.com/athletic/5963193/2024/12/02/george-pickens-mike-tomlin-penalties-steelers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963153/2024/12/02/week-13-risers-fallers-nfl-takea
 **Jewish Museum Acquires Never-Shown Entry to Venice Biennale**\
 `Ruth Patir refused to display her video installation at the Israel pavilion until a cease-fire and hostage agreement was reached. “(M)otherland” will debut in Tel Aviv.`\
 https://nytimes.com/2024/12/02/arts/design/ruth-patir-jewish-museum-israel-pavilion.html
-
-**Cubs sign pitcher Matthew Boyd to a two-year, $29 million contract: Source**\
-`Boyd is more of an upside play for the Cubs than a guarantee of quality innings. When he’s healthy and on the mound, he's been effective.`\
-https://nytimes.com/athletic/5963096/2024/12/02/cubs-matthew-boyd-free-agent-contract/
 
