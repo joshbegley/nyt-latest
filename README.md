@@ -1,3 +1,7 @@
+**The Super Mega Support Group**\
+`A crossword so large you might need to talk about it in therapy.`\
+https://nytimes.com/2024/12/02/crosswords/super-mega-puzzle-mania.html
+
 **College football national title odds: Oregon is new favorite after Ohio State's loss**\
 `Oregon is the new betting favorite to win the national title following Ohio State's loss to Michigan. OSU, Texas and Georgia are next.`\
 https://nytimes.com/athletic/5964312/2024/12/02/college-football-national-title-odds-oregon-ohio-state/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/02/crosswords/02puzzle-mania-answers.htm
 **Wisconsin Judge Strikes Down Limits on Public Sector Unions**\
 `The 2011 law stripped most government workers in the state of collective bargaining rights and set off protests that lasted weeks.`\
 https://nytimes.com/2024/12/02/us/wisconsin-court-decision-unions.html
-
-**Tuesday Briefing: A Presidential Pardon**\
-`Plus, Free North Korea Radio.`\
-https://nytimes.com/2024/12/02/briefing/biden-pardon-syria-france.html
 
