@@ -1,3 +1,7 @@
+**Bears president: Head coach opening 'will be the most coveted job' in the NFL**\
+`Ryan Poles will remain as general manager and will be the point person in the team's search for a new head coach.`\
+https://nytimes.com/athletic/5963090/2024/12/02/bears-head-coach-opening-kevin-warren/
+
 **The omissions, big decisions and a roster projection from Canada's World Junior selection camp**\
 `Canada has announced its 32-player selection camp for the 2025 World Junior Championship in Ottawa.`\
 https://nytimes.com/athletic/5963479/2024/12/02/canada-world-juniors-roster-selection-camp-2024/
