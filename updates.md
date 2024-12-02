@@ -1,3 +1,11 @@
+**U.S. Dual Citizen Thought to Be Alive in Gaza Died on Oct. 7, Israel Says**\
+`Omer Neutra, who had Israeli and American citizenship, was doing military service in Israel when Hamas invaded. His parents have been high-profile campaigners for the hostages.`\
+https://nytimes.com/2024/12/02/world/middleeast/omer-neutra-israel-oct-7-gaza-hamas-hostage.html
+
+**A Disgraceful Pardon**\
+`Biden’s act will fuel public cynicism and excuse Trump’s plans to politicize justice.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/biden-hunter-pardon-trump
+
 **Which Oilers will join Connor McDavid at the 4 Nations Face-Off?**\
 `The Oilers have a few players in the running for the Canadian and Swedish squads at the upcoming tournament.`\
 https://nytimes.com/athletic/5959605/2024/12/02/oilers-nhl-team-canada-sweden-mcdavid/
