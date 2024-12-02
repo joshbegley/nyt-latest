@@ -1,3 +1,7 @@
+**'I'm not a romantic', 3-box-3, experience - Van Nistelrooy's first Leicester press conference**\
+`The Dutchman spoke confidently to the media after his appointment as Leicester manager. We look at what he said and what it all means...`\
+https://nytimes.com/athletic/5963211/2024/12/02/analysing-ruud-van-nistelrooys-first-leicester-press-conference/
+
 **College football conference championship games odds, schedule: Texas, Oregon open as favorites**\
 `There are nine college football conference title games this weekend and all nine spreads are less than a touchdown.`\
 https://nytimes.com/athletic/5963463/2024/12/02/college-football-conference-championship-games-odds-schedule/
