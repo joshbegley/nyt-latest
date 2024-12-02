@@ -1,3 +1,7 @@
+**Judge Steps Aside in ‘Shaken Baby’ Death Penalty Case in Texas**\
+`The judge who issued a death warrant for Robert Roberson voluntarily recused herself, adding the latest legal complication to a case that has drawn national scrutiny.`\
+https://nytimes.com/2024/12/02/us/texas-roberson-shaken-baby-judge.html
+
 **A Consummate Act of Nepotism Stains Biden’s Presidency**\
 `With the pardon of his son, President Biden added his name to the roll call of presidents who dishonored their office by misusing the pardon power.`\
 https://nytimes.com/2024/12/02/opinion/joe-hunter-biden-pardon-dishonor.html
