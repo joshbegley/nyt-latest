@@ -1,3 +1,11 @@
+**The Eagles captured momentum in their eighth straight win — or did they?**\
+`Philadelphia effectively shut down Lamar Jackson and Derrick Henry.`\
+https://nytimes.com/athletic/5960980/2024/12/01/eagles-win-saquon-barkley-jalen-hurts-ravens/
+
+**Alternate ending: How Panthers' latest last-second L could have turned out differently**\
+`The Panthers had their chances, but a near TD catch, two missed kicks and an overtime fumble kept them from beating the Bucs.`\
+https://nytimes.com/athletic/5962069/2024/12/01/panthers-loss-adam-thielen-catch-overtime-bucs/
+
 **Celtics fail to hold late double-digit lead against Cavs' creative use of fouls**\
 `Cleveland fouled Boston repeatedly down the stretch, denying several attempts to tie the score and the chance to win the game.`\
 https://nytimes.com/athletic/5962030/2024/12/01/celtics-lose-cavaliers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/01/arts/television/dune-prophecy-recap-season-1-epis
 **If Aaron Rodgers just played his last game for the Jets, it might have been his worst**\
 `The quarterback was at the center of yet another inexplicable loss.`\
 https://nytimes.com/athletic/5961469/2024/12/01/aaron-rodgers-possible-benching-seahawks-loss/
-
-**Hunter Biden Likely Wouldn’t Qualify for a Pardon Recommendation Under Justice Dept. Criteria**\
-`The Office of the Pardon Attorney mostly recommends full pardons for people who have already served their sentences. Hunter Biden has not been sentenced.`\
-https://nytimes.com/2024/12/01/us/politics/hunter-biden-pardon-recommendation.html
-
-**Texas Tech WR Micah Hudson, program's first 5-star, plans to transfer**\
-`Hudson's lack of playing time and production was a stark contrast to the expectations that surrounded him when he arrived.`\
-https://nytimes.com/athletic/5961791/2024/12/01/micah-hudson-transfer-portal-texas-tech/
 

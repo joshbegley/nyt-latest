@@ -1,3 +1,11 @@
+**The Eagles captured momentum in their eighth straight win — or did they?**\
+`Philadelphia effectively shut down Lamar Jackson and Derrick Henry.`\
+https://nytimes.com/athletic/5960980/2024/12/01/eagles-win-saquon-barkley-jalen-hurts-ravens/
+
+**Alternate ending: How Panthers' latest last-second L could have turned out differently**\
+`The Panthers had their chances, but a near TD catch, two missed kicks and an overtime fumble kept them from beating the Bucs.`\
+https://nytimes.com/athletic/5962069/2024/12/01/panthers-loss-adam-thielen-catch-overtime-bucs/
+
 **Celtics fail to hold late double-digit lead against Cavs' creative use of fouls**\
 `Cleveland fouled Boston repeatedly down the stretch, denying several attempts to tie the score and the chance to win the game.`\
 https://nytimes.com/athletic/5962030/2024/12/01/celtics-lose-cavaliers/
