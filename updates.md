@@ -1,3 +1,7 @@
+**Arne Slot's calm authority has taken Liverpool to another level**\
+`Liverpool haven't outclassed Manchester City so comprehensively throughout a contest quite like they did on Sunday`\
+https://nytimes.com/athletic/5960853/2024/12/02/arne-slot-liverpool-perfect-week/
+
 **‘The Human Mind Cannot Imagine All the Death’: Scenes From One of Gaza’s Last Hospitals**\
 `Most of the medical staff at Kamal Adwan Hospital is gone. One of the last doctors working there shares his story.`\
 https://nytimes.com/2024/12/02/opinion/gaza-hospital-kamal-adwan.html
