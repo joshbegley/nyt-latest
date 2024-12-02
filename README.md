@@ -1,3 +1,11 @@
+**Kane will 'definitely miss a few games' with thigh injury**\
+`Harry Kane will &#8220;definitely miss a few games&#8221; after picking up a thigh injury in Bayern Munich&#8217;s draw with Borussia Dortmund on Saturday.`\
+https://nytimes.com/athletic/5962615/2024/12/02/harry-kane-injury-latest-bayern-munich/
+
+**What will committee do with Alabama and Miami? College Football Playoff Bubble Watch**\
+`The bubble isn't very big, but the arguments for the final spots could get heated. `\
+https://nytimes.com/athletic/5961378/2024/12/02/college-football-playoff-bubble-watch-alabama-smu-miami/
+
 **The Bears need to hire the right head coach this time. Five tips for their search**\
 `The Bears are in good position with a franchise quarterback on a rookie contract and a solid roster. Now they need the right coach.`\
 https://nytimes.com/athletic/5960958/2024/12/02/bears-head-coach-search-tips/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5958013/2024/12/02/nfl-mvp-lamar-jackson-josh-allen
 **Trouba's ice time cut, 4 Nations roster speculation, more: 9 Rangers observations**\
 `Trouba, who has played significant minutes his entire career, is seeing his lowest per-game ice time this season, and it could drop further.`\
 https://nytimes.com/athletic/5961262/2024/12/02/rangers-trouba-ice-time-4-nations/
-
-**Travis Konecny, Travis Sanheim's special friendship sets tone for Flyers**\
-`From a house fire to trying to make Canada's 4 Nations roster, the Flyers' two best players have been through a lot together.`\
-https://nytimes.com/athletic/5958392/2024/12/02/flyers-travis-konecny-sanheim-friendship/
-
-**It’s Tariff Time, Again**\
-`President-elect Donald J. Trump sees tariffs as his primary tool for bringing back millions of American manufacturing jobs.`\
-https://nytimes.com/2024/12/02/podcasts/the-daily/its-tariff-time-again.html
 
