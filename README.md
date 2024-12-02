@@ -1,3 +1,7 @@
+**The Business of Football: Premier League global TV deals up 27%, World Cup 'acclamation'**\
+`What Matt Slater is hearing in the corridors of power - from the global game to the latest goings-on in the Premier League and EFL`\
+https://nytimes.com/athletic/5955354/2024/12/02/premier-league-world-cup-football-soccer-news/
+
 **Fantasy trends and hidden gems: Artturi Lehkonen is in good company; Ryan Donato is a light-night target**\
 `Shayna Goldman identifies the best of this week's fantasy hockey waiver wire, and she offers a simple reason for adding Artturi Lehkonen.`\
 https://nytimes.com/athletic/5961978/2024/12/02/fantasy-hockey-trends-gems-artturi-lehkonen-ryan-donato/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960980/2024/12/01/eagles-win-saquon-barkley-jalen-
 **Alternate ending: How Panthers' latest last-second L could have turned out differently**\
 `The Panthers had their chances, but a near TD catch, two missed kicks and an overtime fumble kept them from beating the Bucs.`\
 https://nytimes.com/athletic/5962069/2024/12/01/panthers-loss-adam-thielen-catch-overtime-bucs/
-
-**49ers' McCaffrey suffers PCL injury in loss to Bills**\
-`McCaffrey had seven carries for 53 yards before exiting Sunday night's game in the second quarter.`\
-https://nytimes.com/athletic/5961780/2024/12/01/christian-mccaffrey-status-injury-49ers-bills/
 
