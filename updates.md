@@ -1,3 +1,7 @@
+**Jim Phillips: SMU should make CFP field even if it loses ACC title game**\
+`Phillips also said Monday that Miami (Fla.) should be in the field as an at-large team. `\
+https://nytimes.com/athletic/5964274/2024/12/02/smu-college-football-playoff-acc-jim-phillips/
+
 **Judge Steps Aside in ‘Shaken Baby’ Death Penalty Case in Texas**\
 `The judge who issued a death warrant for Robert Roberson voluntarily recused herself, adding the latest legal complication to a case that has drawn national scrutiny.`\
 https://nytimes.com/2024/12/02/us/texas-roberson-shaken-baby-judge.html
