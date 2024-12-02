@@ -1,3 +1,7 @@
+**Kash Patel Has Plan to Remake the F.B.I. Into a Tool of Trump**\
+`President-elect Donald Trump’s pick to lead the F.B.I. has called for firing the agency’s top officials, shutting down its Washington headquarters and prosecuting journalists.`\
+https://nytimes.com/2024/12/02/us/politics/kash-patel-fbi.html
+
 **Lions' Dan Campbell says Jahmyr Gibbs' leak of calls 'won’t affect us'**\
 `Gibbs, 22, accidentally revealed Detroit's protections, visible on a whiteboard at the team facility, in a Snapchat video.`\
 https://nytimes.com/athletic/5964704/2024/12/02/dan-campbell-jahmyr-gibbs-photo-lions/
