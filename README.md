@@ -1,3 +1,7 @@
+**Bruce Feldman's West Virginia coaching candidates: RichRod, Jimbo or the field?**\
+`This search could get very interesting thanks to a couple of West Virginians who figure to get consideration and could have strong support.`\
+https://nytimes.com/athletic/5963982/2024/12/02/west-virginia-football-coaching-search-candidates/
+
 **Ilona Maher: U.S. rugby star joins Bristol Bears**\
 `Ilona Maher, the world&#8217;s most-followed rugby player on social media, has joined Premiership Women’s Rugby club Bristol Bears on a three-month contract.`\
 https://nytimes.com/athletic/5964360/2024/12/02/ilona-maher-rugby-bristol-bears/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/business/gm-ev-batteries-lg.html
 **A Final, Whimsical Holiday for the Bidens**\
 `For her last Christmas in the White House, Jill Biden chose the theme, a “Season of Peace and Light.”`\
 https://nytimes.com/card/2024/12/02/us/politics/white-house-holiday-decorations-photos
-
-**Democrats Sharply Criticize Biden’s Pardon of His Son**\
-`Lawmakers in the president’s own party, many of them moderates, said his decision to pardon his son was selfish and would further damage Americans’ waning faith in democracy and the rule of law.`\
-https://nytimes.com/2024/12/02/us/politics/biden-pardon-hunter-democrats-reaction.html
 
