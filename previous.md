@@ -1,3 +1,15 @@
+**Six ways the short-handed Canucks have held the fort on a crucial road trip**\
+`Despite key absences, the Canucks have gone 4-1-0 on a critical road swing, gaining ground on most of their Pacific Division rivals.`\
+https://nytimes.com/athletic/5962211/2024/12/02/canucks-nhl-win-lankinen-suter/
+
+**Five Questions to Ask Your Doctor When Weighing a Hysterectomy**\
+`Many patients are confused about what their surgeons are planning. Here’s how to get the details.`\
+https://nytimes.com/2024/12/02/health/hysterectomy-questions-answers.html
+
+**You Had a Hysterectomy. What Did the Doctor Leave Behind?**\
+`Patients often are in the dark about which organs remain and which were removed — particularly the ovaries, which profoundly influence lifelong health.`\
+https://nytimes.com/2024/12/02/health/hysterectomy-ovaries-women.html
+
 **Italy will host Davis Cup Finals from 2025 until 2028**\
 `The defending Davis Cup and Billie Jean King Cup champions will stage the finals of the men's event.`\
 https://nytimes.com/athletic/5963156/2024/12/02/davis-cup-finals-italy-host/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/02/arts/television/december-streaming-movies-shows.h
 **Salah open to one-year Liverpool contract extension, frustrated at club's handling of talks**\
 `Mohamed Salah would accept a new one-year contract at Liverpool but is growing increasingly exasperated at the club’s handling of negotiations.`\
 https://nytimes.com/athletic/5962924/2024/12/02/liverpool-mohamed-salah-contract-new/
-
-**An Arctic Hamlet is Sinking Into the Thawing Permafrost**\
-`Canada is losing its permafrost to climate change. The Indigenous residents of Tuktoyaktuk know they’ll have to move but don’t agree on when.`\
-https://nytimes.com/2024/12/02/world/americas/canada-arctic-permafrost-thawing.html
-
-**Scoop City: Risers and fallers after Week 13**\
-`A quick look at the MVP-level performances of Josh Allen and Joe Burrow, while the Steelers, Eagles and Vikings continue to rise.`\
-https://nytimes.com/athletic/5963153/2024/12/02/week-13-risers-fallers-nfl-takeaways-scoop-city/
-
-**Jewish Museum Acquires Never-Shown Entry to Venice Biennale**\
-`Ruth Patir refused to display her video installation at the Israel pavilion until a cease-fire and hostage agreement was reached. “(M)otherland” will debut in Tel Aviv.`\
-https://nytimes.com/2024/12/02/arts/design/ruth-patir-jewish-museum-israel-pavilion.html
 

@@ -1,3 +1,15 @@
+**Six ways the short-handed Canucks have held the fort on a crucial road trip**\
+`Despite key absences, the Canucks have gone 4-1-0 on a critical road swing, gaining ground on most of their Pacific Division rivals.`\
+https://nytimes.com/athletic/5962211/2024/12/02/canucks-nhl-win-lankinen-suter/
+
+**Five Questions to Ask Your Doctor When Weighing a Hysterectomy**\
+`Many patients are confused about what their surgeons are planning. Here’s how to get the details.`\
+https://nytimes.com/2024/12/02/health/hysterectomy-questions-answers.html
+
+**You Had a Hysterectomy. What Did the Doctor Leave Behind?**\
+`Patients often are in the dark about which organs remain and which were removed — particularly the ovaries, which profoundly influence lifelong health.`\
+https://nytimes.com/2024/12/02/health/hysterectomy-ovaries-women.html
+
 **Italy will host Davis Cup Finals from 2025 until 2028**\
 `The defending Davis Cup and Billie Jean King Cup champions will stage the finals of the men's event.`\
 https://nytimes.com/athletic/5963156/2024/12/02/davis-cup-finals-italy-host/
