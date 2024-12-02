@@ -1,5 +1,9 @@
+**Jared Verse and Kyren Williams buoyed Rams to win after week of energy, accountability**\
+`The D-line's stand late in the game and the reliance on the rushing attack in the second half lifted the Rams to their sixth win.`\
+https://nytimes.com/athletic/5961912/2024/12/01/rams-beat-saints-kyren-williams-jared-verse-analysis/
+
 **Canadiens continue to counter progress with steps back to their former generous selves**\
-`Allowing three goals in 70 seconds doesn't erase the Canadiens' improvements, but serves as a reminder they are still learning how to win.`\
+`Allowing three goals in 70 seconds doesn't erase the Canadiens' improvements but serves as a reminder they are still learning how to win.`\
 https://nytimes.com/athletic/5961958/2024/12/01/canadiens-guhle-defensive-breakdowns-bruins/
 
 **‘Dune: Prophecy’ Season 1 Episode 3 Recap: The Meaning of Sacrifice**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5961443/2024/12/01/blue-jackets-rout-werenski-black
 **Vikings' latest victory against Cardinals conjures thoughts of 2022 playoff team**\
 `With the Vikings' penchant for narrow victories, it's easy to draw connections to the team of two years ago. But this group is better.`\
 https://nytimes.com/athletic/5961594/2024/12/01/vikings-win-sam-darnold-cardinals/
-
-**Colts QB Anthony Richardson was 'special': Inside the drive that saved Indy's season**\
-`In a game the Colts had to have to keep their postseason dreams alive, Richardson marched them 80 yards on 19 plays and pulled out a win.`\
-https://nytimes.com/athletic/5961674/2024/12/01/anthony-richardson-colts-win-drive-patriots/
 
