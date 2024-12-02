@@ -1,3 +1,7 @@
+**How I Learned to Shave**\
+`Things our dads taught us, whether they intended to or not.`\
+https://nytimes.com/2024/12/02/podcasts/how-i-learned-to-shave-this-american-life-nyt-audio.html
+
 **'We need to worry about us': Lamar Jackson resolute after Ravens' loss to Eagles**\
 `Baltimore dropped its second game in the last three weeks as it again struggled to put together four complete quarters. `\
 https://nytimes.com/athletic/5962042/2024/12/02/ravens-loss-eagles-lamar-jackson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/business/economy/biden-china-chips-exports.html
 **How Many Pairs of Black Pants Is Too Many?**\
 `A reader asks about the ideal number of black pants to own. Our fashion critic provides guidance on how many essential wardrobe pieces one should have.`\
 https://nytimes.com/2024/12/02/style/black-pants-wardrobe-basics.html
-
-**The Artist Who Remembered Everything**\
-`The New York City writer and painter Joe Brainard comes alive in a new collection of letters.`\
-https://nytimes.com/2024/12/02/books/review/joe-brainard-letters.html
 
