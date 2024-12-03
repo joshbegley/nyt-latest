@@ -1,3 +1,7 @@
+**Frame Job**\
+`Henry Lin-David makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/12/02/crosswords/daily-puzzle-2024-12-03.html
+
 **After Biden Pardons His Son, Prison Inmates Hope They’re Next**\
 `President Biden has pardoned people convicted of some marijuana offenses, but advocates for prisoners say he has been slow to grant other requests.`\
 https://nytimes.com/2024/12/02/us/biden-pardons-clemency-prisoners.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/us/politics/biden-pardon-criticized-democrats.htm
 **For U.K. Ambassador, Trump Picks Billionaire Who Supported His Rivals**\
 `Warren Stephens, an investment banker, gave $2 million in 2016 to a group aiming to block Donald J. Trump’s political rise. More recently, he backed Asa Hutchinson, Chris Christie, Mike Pence and Nikki Haley before donating to the Trump campaign.`\
 https://nytimes.com/2024/12/02/us/politics/britain-ambassador-trump-stephens.html
-
-**2025 WNBA schedule release: Why doesn't the winner earn more? Plus, crypto as prize pool money?**\
-`Some noteworthy numbers were released Monday afternoon when the WNBA dropped its 2025 schedule. `\
-https://nytimes.com/athletic/5964328/2024/12/02/2025-wnba-schedule-release-winner-earnings-crypto/
 
