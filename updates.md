@@ -1,3 +1,11 @@
+**How Gravenberch became one of Liverpool's 'untouchables'**\
+`The Dutch midfielder's blend of grit and guile has turned a problem position into an area of strength for Liverpool`\
+https://nytimes.com/athletic/5962721/2024/12/03/ryan-gravenberch-liverpool-untouchable/
+
+**Jota interview: A force of nature and his route from serious injury to the Premier League**\
+`Nottingham Forest's winger on the broken leg that nearly ended his career, playing with his idol Ronaldo and dreaming of a move to England`\
+https://nytimes.com/athletic/5962678/2024/12/03/jota-silva-nottingham-forest-interview/
+
 **Visiting Upton Park on a matchday: 'Are West Ham at home? No, they're away at Stratford'**\
 `Ahead of the Arsenal game, The Athletic went to West Ham’s old home to see what happens in the area ahead of a Premier League fixture`\
 https://nytimes.com/athletic/5961351/2024/12/03/west-ham-upton-park-matchday/
