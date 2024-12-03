@@ -1,3 +1,11 @@
+**Dan Campbell is the favorite to win NFL Coach of the Year, but the race is heating up**\
+`Dan Campbell is the current favorite to win the NFL Coach of the Year award, but a couple of big names are rising up the betting board.`\
+https://nytimes.com/athletic/5967208/2024/12/03/nfl-coach-of-year-race-odds-dan-campbell/
+
+**Ruud van Nistelrooy's fine Leicester start - dropping Faes, Vardy's run, celebratory beer**\
+`A bold selection call and a celebratory beer bookended Ruud Van Nistelrooy's successful first game as Leicester manager`\
+https://nytimes.com/athletic/5967494/2024/12/03/van-nistelrooy-leicester-west-ham-highlights/
+
 **Children Worked Dangerous Shifts at Iowa Slaughterhouse, Inquiry Finds**\
 `Qvest Sanitation was ordered to pay nearly $172,000 after the Labor Department found it had employed 11 children to clean equipment on overnight shifts at a pork processing plant in Sioux City, Iowa.`\
 https://nytimes.com/2024/12/03/business/iowa-pork-plant-child-labor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5967323/2024/12/03/michigan-offensive-coordinator-k
 **Farhan Zaidi talking to Dodgers about front office role: Sources**\
 `The Giants' former president of baseball operations would return to the team where he served as general manager from 2014-2018.`\
 https://nytimes.com/athletic/5966353/2024/12/03/farhan-zaidi-dodgers-front-office/
-
-**Retired Louisiana Priest Pleads Guilty to Rape and Kidnapping Charges**\
-`Lawrence Hecker, who was indicted last year on charges related to a sexual assault in the 1970s, pleaded guilty on Tuesday just before jury selection for his trial was set to begin.`\
-https://nytimes.com/2024/12/03/us/louisiana-catholic-priest-rape-guilty.html
-
-**Trump’s Pick to Lead D.E.A. Withdraws, Citing ‘Gravity’ of Job**\
-`The announcement by Chad Chronister, a Florida sheriff with virtually no experience in the kinds of complex international investigations the agency handles, comes just three days after his selection.`\
-https://nytimes.com/2024/12/03/us/politics/chad-chronister-dea-trump.html
 

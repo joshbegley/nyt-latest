@@ -1,3 +1,11 @@
+**Dan Campbell is the favorite to win NFL Coach of the Year, but the race is heating up**\
+`Dan Campbell is the current favorite to win the NFL Coach of the Year award, but a couple of big names are rising up the betting board.`\
+https://nytimes.com/athletic/5967208/2024/12/03/nfl-coach-of-year-race-odds-dan-campbell/
+
+**Ruud van Nistelrooy's fine Leicester start - dropping Faes, Vardy's run, celebratory beer**\
+`A bold selection call and a celebratory beer bookended Ruud Van Nistelrooy's successful first game as Leicester manager`\
+https://nytimes.com/athletic/5967494/2024/12/03/van-nistelrooy-leicester-west-ham-highlights/
+
 **South Korea President Declares Martial Law, Then Backs Down**\
 `Soon after President Yoon Suk Yeol’s declaration on Tuesday, lawmakers voted to defy him, prompting the president to say he was lifting his order.`\
 https://nytimes.com/2024/12/03/world/asia/south-korea-martial-law.html
