@@ -1,3 +1,7 @@
+**Chaos Plays Out at South Korea’s Legislature Building**\
+`Soldiers wearing helmets and carrying long guns pushed back against people who tried to enter the National Assembly after President Yoon Suk Yeol declared martial law.`\
+https://nytimes.com/2024/12/03/world/asia/south-korea-legislature-chaos.html
+
 **Who sits on the mysterious and powerful College Football Playoff committee?**\
 `There are 13 members on the College Football Playoff committee. Who are they, and what is their background in the sport?`\
 https://nytimes.com/athletic/5965850/2024/12/03/college-football-playoff-committee-members/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/weather/weather-snow-cold-forecast.html
 **Explained: Javier Mascherno's role in the Premier League's most controversial transfer**\
 `When Inter Miami's new head coach first moved to Europe, he quickly became embroiled in a controversy that rocked the Premier League`\
 https://nytimes.com/athletic/5948977/2024/12/03/mascherano-inter-miami-west-ham-premier-league/
-
-**President Yoon’s Speech Declaring Martial Law**\
-`President Yoon Suk Yeol made the extraordinary declaration in an unannounced speech to the nation on Tuesday night.`\
-https://nytimes.com/2024/12/03/world/asia/president-yoon-speech-martial-law.html
 
