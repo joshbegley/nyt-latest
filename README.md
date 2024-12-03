@@ -1,3 +1,7 @@
+**49ers minutia minute: Two little-used players shined in the snow; young RB added**\
+`Guard Ben Bartch and defensive tackle Evan Anderson got their first-ever starts for the 49ers and both played well in snowy Buffalo.`\
+https://nytimes.com/athletic/5967305/2024/12/03/49ers-isaac-guerendo-evan-anderson/
+
 **Dan Campbell is the favorite to win NFL Coach of the Year, but the race is heating up**\
 `Dan Campbell is the current favorite to win the NFL Coach of the Year award, but a couple of big names are rising up the betting board.`\
 https://nytimes.com/athletic/5967208/2024/12/03/nfl-coach-of-year-race-odds-dan-campbell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5962488/2024/12/03/wrexham-barnsley-cosm-danny-devi
 **Michigan fires offensive coordinator Kirk Campbell**\
 `Campbell just finished his first season as Michigan’s play caller and quarterbacks coach.`\
 https://nytimes.com/athletic/5967323/2024/12/03/michigan-offensive-coordinator-kirk-campbell-part-ways/
-
-**Farhan Zaidi talking to Dodgers about front office role: Sources**\
-`The Giants' former president of baseball operations would return to the team where he served as general manager from 2014-2018.`\
-https://nytimes.com/athletic/5966353/2024/12/03/farhan-zaidi-dodgers-front-office/
 
