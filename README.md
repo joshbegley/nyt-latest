@@ -1,3 +1,11 @@
+**The Ultimate Yacht Rock Playlist**\
+`Gain a deeper appreciation of music from Michael McDonald, Toto and Christopher Cross.`\
+https://nytimes.com/2024/12/03/arts/music/amplifier-newsletter-yacht-rock.html
+
+**Drought in the Northeast: The Causes and Consequences**\
+`Readers discuss what one calls a “boom-or-bust precipitation cycle.” Also: Pete Hegseth’s mother’s accusation; what opera needs; Elon Musk and Mars.`\
+https://nytimes.com/2024/12/03/opinion/northeast-drought.html
+
 **A West Palm Beach Show Spotlights the Beauty and Tragedy of Boxing**\
 `Through paintings, photographs, sculptures, and even bejeweled boxing gloves, the show examines prizefighting as a metaphor for human struggle.`\
 https://nytimes.com/2024/12/03/arts/design/prizefighting-show-west-palm-beach.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/us/politics/south-korea-martial-law-united-states
 **Beyond the Art Basel Miami Beach Fair**\
 `Although the fair is a huge attraction, there are many other exhibitions to visit nearby.`\
 https://nytimes.com/2024/12/03/arts/design/art-basel-miami-beach-see.html
-
-**Keeping a Dance Alive, Even After the Show Ends**\
-`At Art Basel Miami Beach, the Mexican choreographer Diego Vega Solorza explores masculinity in a new work and his gallery sells objects from performances.`\
-https://nytimes.com/2024/12/03/arts/design/diego-vega-solorza-art-basel-miami-beach.html
-
-**5 Art Fairs to See in 2025**\
-`From San Francisco to Tokyo and beyond, these art fairs offer something for everyone.`\
-https://nytimes.com/2024/12/03/arts/design/art-fairs.html
 
