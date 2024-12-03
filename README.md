@@ -1,3 +1,11 @@
+**South Korea’s Obstacles to Parenthood**\
+`Korean women have always been resilient, but they alone cannot overcome a culture of misogyny and a lack of economic security.`\
+https://nytimes.com/2024/12/03/special-series/korea-fertility-rates-family.html
+
+**Antidoping Agency Froze Out Investigators Who Warned About China**\
+`The World Anti-Doping Agency’s investigative unit highlighted intelligence about Chinese athletes possibly using a banned medication, but were kept out of the loop when 23 swimmers tested positive for it.`\
+https://nytimes.com/2024/12/03/us/politics/wada-china-doping-olympics.html
+
 **Amid Pro-Palestinian Protests, Turner Prize Goes to Jasleen Kaur**\
 `The artist, who has supported the protests against the Tate group of museums, won the prestigious British award for an installation that includes a car covered by a giant doily.`\
 https://nytimes.com/2024/12/03/arts/design/turner-prize-jasleen-kaur.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/arts/design/electric-dreams-tate-modern.html
 **NATO Chief Urges More Weapons for Ukraine Ahead of Any Peace Talks**\
 `Mark Rutte said it was up to Ukraine to decide when it was ready to begin negotiations with Russia — and that the West should help strengthen Kyiv’s position beforehand.`\
 https://nytimes.com/2024/12/03/world/europe/nato-chief-urges-more-weapons-for-ukraine-ahead-of-any-peace-talks.html
-
-**The Ultimate Yacht Rock Playlist**\
-`Gain a deeper appreciation of music from Michael McDonald, Toto and Christopher Cross.`\
-https://nytimes.com/2024/12/03/arts/music/amplifier-newsletter-yacht-rock.html
-
-**Drought in the Northeast: The Causes and Consequences**\
-`Readers discuss what one calls a “boom-or-bust precipitation cycle.” Also: Pete Hegseth’s mother’s accusation; what opera needs; Elon Musk and Mars.`\
-https://nytimes.com/2024/12/03/opinion/northeast-drought.html
 
