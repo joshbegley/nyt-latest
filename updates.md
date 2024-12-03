@@ -1,3 +1,11 @@
+**Live Updates: South Korean Leader Declares Martial Law**\
+`President Yoon Suk Yeol evoked a threat posed by “anti-state” forces, and criticized attempts by the opposition to impeach him.`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law
+
+**South Korean Leader Declares Martial Law, Saying Opponents Imperil Democracy**\
+`President Yoon Suk Yeol evoked a threat posed by ‘anti-state’ forces and criticized attempts to impeach him.`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/south-korea-martial-law-yoon
+
 **NFL suspends Texans' Al-Shaair 3 games following late hit on Lawrence**\
 `Al-Shaair apologized Monday for his shot on Trevor Lawrence, who left Sunday's game with a concussion after the blow on a slide.`\
 https://nytimes.com/athletic/5963576/2024/12/03/azeez-al-shaair-suspension-texans/
