@@ -1,3 +1,11 @@
+**Quote of the Day: Russia’s Elites Feeling Pinched By Slow Growth**\
+`Quotation of the Day for Tuesday, December 3, 2024.`\
+https://nytimes.com/2024/12/02/pageoneplus/quote-of-the-day-russias-elites-feeling-pinched-by-slow-growth.html
+
+**Does Fraser Minten have a chance to stick with the Leafs?**\
+`The 20-year-old center is quickly winning his coaches and teammates over with four points in five games.`\
+https://nytimes.com/athletic/5965275/2024/12/02/maple-leafs-fraser-minten-centre-blackhawks/
+
 **NFL playoff picture, Week 13: Steelers seize control of AFC North, Bills clinch AFC East**\
 `Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
 https://nytimes.com/athletic/5947479/2024/12/02/nfl-playoff-picture-week-13-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/02/us/biden-pardons-clemency-prisoners.html
 **Corrections: Dec. 3, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 3, 2024.`\
 https://nytimes.com/2024/12/02/pageoneplus/corrections-dec-3-2024.html
-
-**Trump to Attend Notre-Dame Cathedral Reopening in Paris**\
-`The trip will be Donald J. Trump’s first foreign trip since last month’s election and offers a sign that global leaders are turning the page on the Biden presidency.`\
-https://nytimes.com/2024/12/02/us/politics/trump-notre-dame-cathedral-paris.html
-
-**U.S. Coast Guard Suspends Search for 5 People Missing in Alaska Waters**\
-`The Coast Guard received a mayday call from a fishing boat on Sunday just after midnight. Search crews looked for its passengers for almost 24 hours.`\
-https://nytimes.com/2024/12/02/us/alaska-fishing-boat-capsized-search.html
 
