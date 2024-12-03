@@ -1,3 +1,7 @@
+**Neale Fraser, Australian tennis legend and Davis Cup captain, dies at 91**\
+`Fraser won 19 major titles and found particular success in doubles.`\
+https://nytimes.com/athletic/5965501/2024/12/03/neale-fraser-tennis-obituary/
+
 **The White House Goes on the Defense, and Israel and Hezbollah Trade Fire**\
 `Plus, mail trucks get a “goofy” upgrade.`\
 https://nytimes.com/2024/12/03/podcasts/biden-pardon-defend-supreme-court-ethics-israel-hezbollah-truce.html
