@@ -1,3 +1,7 @@
+**Patrik Laine set to make debut Tuesday vs. Islanders**\
+`This will be Laine’s first NHL game since he faced the Maple Leafs with the Blue Jackets on Dec. 14, 2023.`\
+https://nytimes.com/athletic/5966499/2024/12/03/patrik-laine-debut-canadiens-islanders/
+
 **War Doesn’t Work Anymore**\
 `In a nuclear conflict, total victory is not an option. We might as well stop pretending it is.`\
 https://nytimes.com/2024/12/03/special-series/oppenheimer-nuclear-bombs-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/us/politics/general-christopher-donahue-promotion
 **Red Sox, Aroldis Chapman in agreement on one-year deal: Source**\
 `The veteran lefty adds more experience to the back end of the Red Sox bullpen.`\
 https://nytimes.com/athletic/5966327/2024/12/03/aroldis-chapman-contract-red-sox-mlb-free-agency/
-
-**Stephen King to Shut Down His 3 Radio Stations in Maine**\
-`The author, who owns the small independent stations in Bangor, said that the decision was prompted by a desire to get his business affairs in order.`\
-https://nytimes.com/2024/12/03/arts/stephen-king-maine-radio-stations.html
 
