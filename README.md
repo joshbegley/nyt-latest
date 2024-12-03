@@ -1,3 +1,7 @@
+**Live Updates: South Korean Leader Declares Martial Law**\
+`President Yoon Suk Yeol evoked a threat posed by “anti-state” forces, and criticized attempts by the opposition to impeach him.`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law
+
 **NFL suspends Texans' Al-Shaair 3 games following late hit on Lawrence**\
 `Al-Shaair apologized Monday for his shot on Trevor Lawrence, who left Sunday's game with a concussion after the blow on a slide.`\
 https://nytimes.com/athletic/5963576/2024/12/03/azeez-al-shaair-suspension-texans/
@@ -10,9 +14,9 @@ https://nytimes.com/2024/12/03/style/rihanna-fashion-awards-best-dressed.html
 `Wolves boss Gary O’Neil says he is ready to let results determine his future and insists he has “zero concerns” about the possibility of the sack.`\
 https://nytimes.com/athletic/5965843/2024/12/03/wolves-oneil-future-sack/
 
-**South Korean Leader Declares Martial Law in Fight With Political Opposition**\
-`President Yoon Suk Yeol evoked a threat posed by ‘anti-state’ forces, and criticized attempts by the opposition to impeach him.`\
-https://nytimes.com/2024/12/03/world/asia/south-korea-martial-law-yoon.html
+**South Korean Leader Declares Martial Law, Saying Opponents Imperil Democracy**\
+`President Yoon Suk Yeol evoked a threat posed by ‘anti-state’ forces and criticized attempts to impeach him.`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/south-korea-martial-law-yoon
 
 **The Okinawan Tried-and-Tested Recipe for Longevity**\
 ` `\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/movies/gotham-awards-winners-a-different-man-seba
 **What we're seeing with the Bucks: Screening for Giannis, Taurean Prince's availability and more**\
 `Setting a screen for the two-time NBA MVP means sacrificing your body and taking some lumps, but it can lead to easy buckets for the Bucks.`\
 https://nytimes.com/athletic/5961369/2024/12/03/giannis-antetokounmpo-taurean-prince-bucks/
-
-**NBA Power Rankings: Hey, how's the new guy doing?**\
-`Other risers this week include the Bucks, Mavericks and Hawks, while the teams at the top have benefited from continuity.`\
-https://nytimes.com/athletic/5965547/2024/12/03/nba-power-rankings-celtics-cavs-rockets-lakers/
 
