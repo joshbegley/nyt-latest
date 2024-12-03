@@ -1,3 +1,11 @@
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/5966347/2024/12/03/st-louis-blues-jeremy-rutherford-mailbag-december-2024/
+
+**The Furious Contest to Unseat Nvidia as King of A.I. Chips**\
+`Amazon, Advanced Micro Devices and several start-ups are beginning to offer credible alternatives to Nvidia’s chips, especially for a phase of A.I. development known as “inferencing.”`\
+https://nytimes.com/2024/12/03/technology/nvidia-ai-chips.html
+
 **South Korea’s President Declares Martial Law: What to Know**\
 `President Yoon Suk Yeol has been locked in a bitter fight with the opposition, which controls Parliament`\
 https://nytimes.com/2024/12/03/world/asia/what-is-martial-law-south-korea.html
