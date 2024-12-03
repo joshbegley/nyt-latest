@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Surrendered and Played Along’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/12/03/style/tiny-modern-love-stories-i-surrendered-and-played-along.html
+
 **What Latrell Wrightsell's injury means for him, Alabama**\
 `Wrightsell, a fifth-year senior, sustained a ruptured Achilles injury that will end his 2024-25 season.`\
 https://nytimes.com/athletic/5966528/2024/12/03/latrell-wrightsell-injury-alabama-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/world/africa/angola-biden-slavery.html
 **Frieze Fair Further Cements Los Angeles as an International Art Capital**\
 `The sixth edition of the fair in February will have considerably more attendees from Latin America, Europe and Asia.`\
 https://nytimes.com/2024/12/03/arts/design/frieze-los-angeles-art-scene.html
-
-**Venice Biennale Names Koyo Kouoh as Next Curator**\
-`Kouoh, who was born in Cameroon and currently leads one of Africa’s most important art museums, will organize the 61st edition, in 2026.`\
-https://nytimes.com/2024/12/03/arts/design/venice-biennale-curator-koyo-kouoh.html
 

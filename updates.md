@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Surrendered and Played Along’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/12/03/style/tiny-modern-love-stories-i-surrendered-and-played-along.html
+
 **What Latrell Wrightsell's injury means for him, Alabama**\
 `Wrightsell, a fifth-year senior, sustained a ruptured Achilles injury that will end his 2024-25 season.`\
 https://nytimes.com/athletic/5966528/2024/12/03/latrell-wrightsell-injury-alabama-basketball/
