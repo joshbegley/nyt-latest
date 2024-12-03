@@ -1,3 +1,7 @@
+**Brooklyn Museum Shows Off All the Glitter, Glam and Greed**\
+`The new “Solid Gold” exhibition is a celebration of bling through the ages and around the world. But is eye candy enough?`\
+https://nytimes.com/2024/12/03/arts/design/solid-gold-brooklyn-museum.html
+
 **Cowboys Today: Fans' feelings are showing during Dallas' disappointing season**\
 `The Cowboys have won two in a row, but are 5-7, are lagging in Pro Bowl voting and fan enthusiasm has dwindled.`\
 https://nytimes.com/athletic/5966223/2024/12/03/cowboys-today-playoff-loss-packers-pro-bowl-voting/
