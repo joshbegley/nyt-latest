@@ -1,3 +1,7 @@
+**Trump Says He Will Block Acquisition of U.S. Steel by Japanese Firm**\
+`The announcement reiterated sentiments the president-elect expressed on the campaign trail, and further imperiled a deal that had already run into widespread political opposition.`\
+https://nytimes.com/2024/12/02/us/politics/trump-nippon-steel-us-merger.html
+
 **Frame Job**\
 `Henry Lin-David makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/12/02/crosswords/daily-puzzle-2024-12-03.html
