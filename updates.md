@@ -1,3 +1,7 @@
+**Mike McCarthy's status, playoff chances, wide receiver depth chart: Cowboys mailbag**\
+`With the Cowboys' schedule, is there a sliver of playoff hope and how might that affect Mike McCarthy's future?`\
+https://nytimes.com/athletic/5965389/2024/12/03/cowboys-mike-mccarthy-playoff-chances-mailbag/
+
 **Broncos' lessons in 'ugly' moments vs. Browns may prove valuable in playoff chase**\
 `Rookie Bo Nix led a go-ahead drive after a fourth-quarter interception and a defense that had been battered closed with a pick.`\
 https://nytimes.com/athletic/5965375/2024/12/03/broncos-browns-playoff-chase/
