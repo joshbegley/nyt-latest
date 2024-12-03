@@ -1,3 +1,11 @@
+**Canada 4 Nations roster: What we’re hearing about who made the cut and why**\
+`In speaking to dozens of sources across the NHL early this week, The Athletic has gotten a good sense of the roster — and the final debates.`\
+https://nytimes.com/athletic/5966939/2024/12/03/canada-roster-debates-4-nations-face-off/
+
+**Where things stand for the Blue Jays ahead of the Winter Meetings**\
+`The latest on the team's pursuit of Juan Soto, the chances of a Jordan Romano reunion, a coaching staff update and more.`\
+https://nytimes.com/athletic/5967210/2024/12/03/blue-jays-winter-meetings-outlook/
+
 **Amorim confident over new Amad contract: 'We will find a solution'**\
 `Ruben Amorim is confident Amad will sign a new contract at Manchester United.`\
 https://nytimes.com/athletic/5967336/2024/12/03/manchester-united-amad-contract-amorim/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/world/asia/south-korea-yoon-martial-law.html
 **Biden Said U.S. Targeted His Son. Eric Adams Suggests He Can Relate.**\
 `The mayor has argued that he was indicted because he criticized border policies. He also said that he has rights that migrants do not because “the Constitution is for Americans.”`\
 https://nytimes.com/2024/12/03/nyregion/adams-pardon-biden-trump.html
-
-**Guardiola: No fall out with De Bruyne**\
-`Pep Guardiola has dismissed the idea that he has fallen out with Manchester City midfielder Kevin De Bruyne.`\
-https://nytimes.com/athletic/5965802/2024/12/03/manchester-city-guardiola-de-bruyne/
-
-**Commanders name Mark Clouse team president**\
-`Clouse has been the president and chief executive officer of The Campbell's Company since 2019.`\
-https://nytimes.com/athletic/5967207/2024/12/03/washington-commanders-team-president-mark-clouse/
 
