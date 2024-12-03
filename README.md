@@ -1,3 +1,15 @@
+**Retired Louisiana Priest Pleads Guilty to Rape and Kidnapping Charges**\
+`Lawrence Hecker, who was indicted last year on charges related to a sexual assault in the 1970s, pleaded guilty on Tuesday just before jury selection for his trial was set to begin.`\
+https://nytimes.com/2024/12/03/us/louisiana-catholic-priest-rape-guilty.html
+
+**Trump’s Pick to Lead D.E.A. Withdraws, Citing ‘Gravity’ of Job**\
+`The announcement by Chad Chronister, a Florida sheriff with virtually no experience in the kinds of complex international investigations the agency handles, comes just three days after his selection.`\
+https://nytimes.com/2024/12/03/us/politics/chad-chronister-dea-trump.html
+
+**Republican Lawmakers in Georgia Press Case for Fani Willis Testimony**\
+`Ms. Willis, who charged Mr. Trump in connection with his efforts to cling to power after the 2020 election, came under scrutiny over her relationship with a lawyer she hired to lead the case.`\
+https://nytimes.com/2024/12/03/us/fani-willis-trump-georgia-case.html
+
 **Canada 4 Nations roster: What we’re hearing about who made the cut and why**\
 `In speaking to dozens of sources across the NHL early this week, The Athletic has gotten a good sense of the roster — and the final debates.`\
 https://nytimes.com/athletic/5966939/2024/12/03/canada-roster-decisions-4-nations-face-off/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/03/health/ecoli-mcdonalds-onions.html
 **South Korea’s President Imposed Martial Law, Then Lifted It**\
 `Also, China banned rare mineral exports to the U.S. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/12/03/briefing/south-korea-martial-law-best-books-of-2024.html
-
-**Morton I. Abramowitz, Diplomat Who Made Refugees a Priority, Dies at 91**\
-`As ambassador to Thailand and Turkey, and later as president of the Carnegie Endowment, he pushed for making human rights central to foreign policy.`\
-https://nytimes.com/2024/12/03/us/morton-i-abramowitz-dead.html
-
-**How Polarized Politics Led South Korea to a Plunge Into Martial Law**\
-`Yoon Suk Yeol’s decree, and his reversal under pressure from lawmakers, were the culmination of years of feuding between the country’s two main political camps.`\
-https://nytimes.com/2024/12/03/world/asia/south-korea-yoon-martial-law.html
-
-**Biden Said U.S. Targeted His Son. Eric Adams Suggests He Can Relate.**\
-`The mayor has argued that he was indicted because he criticized border policies. He also said that he has rights that migrants do not because “the Constitution is for Americans.”`\
-https://nytimes.com/2024/12/03/nyregion/adams-pardon-biden-trump.html
 
