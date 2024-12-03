@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5960524/2024/12/03/emi-martinez-injury-aston-villa/
 https://nytimes.com/athletic/5965856/2024/12/03/jill-ellis-fifa-san-diego-wave/
 
 **Live Updates: South Korean Leader Declares Martial Law**\
-`President Yoon Suk Yeol referred to a threat posed by “anti-state” forces, and criticized attempts by the opposition to impeach him.`\
+`President Yoon Suk Yeol made the extraordinary declaration after months of being deadlocked with his political opposition.`\
 https://nytimes.com/live/2024/12/03/world/south-korea-martial-law
 
 **NFL suspends Texans' Al-Shaair 3 games following late hit on Lawrence**\
