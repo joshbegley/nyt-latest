@@ -1,3 +1,11 @@
+**U.S. Moves to End a Minimum Wage Waiver for Disabled Workers**\
+`A plan by the Biden administration would end a provision that allowed employers to pay workers with disabilities less than the federal minimum wage.`\
+https://nytimes.com/2024/12/03/business/economy/labor-disability-pay.html
+
+**Tiger: Ryder Cup should give more to players' charities**\
+`Woods, who is still recovering from back surgery, said American players should get as much as "$5 million each" but then "donate it all."`\
+https://nytimes.com/athletic/5965971/2024/12/03/tiger-woods-ryder-cup-pay-charity/
+
 **Can college football really stop flag-planting?**\
 `For college sports leaders, the focus after a emotional final weekend is on how to stop the extracurriculars from happening again.`\
 https://nytimes.com/athletic/5965942/2024/12/03/college-football-fights-flag-planting-penalties/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/special-series/patagonia-ceo-sustainability-green
 **Fantasy football Week 14 drops: Sever ties with Kirk Cousins, Gus Edwards**\
 `Gary Davenport helps you trim the fat to prepare for the fantasy football playoffs.`\
 https://nytimes.com/athletic/5965849/2024/12/03/fantasy-football-week-14-drops-kirk-cousins-gus-edwards/
-
-**Israel Vázquez, 3-time boxing world champion, dies at 46**\
-`Vázquez rose to prominence in the early 2000s and is best known for his rivalry with compatriot Rafael Marquez.`\
-https://nytimes.com/athletic/5965792/2024/12/03/israel-vazquez-boxing-champion-dies-cancer/
-
-**Biden Turns to an Unlikely Ally to Help Protect His Legacy: Republicans**\
-`President Biden wants to make it more difficult for President-elect Donald J. Trump to repeal his signature legislation, which sent money flowing to Republican districts nationwide.`\
-https://nytimes.com/2024/12/03/us/politics/biden-trump-legislation-republicans.html
 
