@@ -1,3 +1,7 @@
+**Brooklyn Museum Shows Off All the Glitter, Glam and Greed**\
+`The new “Solid Gold” exhibition is a celebration of bling through the ages and around the world. But is eye candy enough?`\
+https://nytimes.com/2024/12/03/arts/design/solid-gold-brooklyn-museum.html
+
 **Cowboys Today: Fans' feelings are showing during Dallas' disappointing season**\
 `The Cowboys have won two in a row, but are 5-7, are lagging in Pro Bowl voting and fan enthusiasm has dwindled.`\
 https://nytimes.com/athletic/5966223/2024/12/03/cowboys-today-playoff-loss-packers-pro-bowl-voting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965993/2024/12/03/super-bowl-2025-odds-week-14-bil
 **Former UTEP coach, K-State assistant Dimel dies at 62**\
 `A former All-American offensive tackle at Kansas State in the 1980s, Dimel spent 19 seasons as a K-State assistant.`\
 https://nytimes.com/athletic/5966216/2024/12/03/dana-dimel-death-illinois-kansas-state/
-
-**Pro-Government Airstrikes Damage Hospitals in Rebel-Held Syrian City**\
-`The director of Idlib University Hospital said his facility was one of two knocked out of service by Monday’s strikes.`\
-https://nytimes.com/video/world/middleeast/100000009855922/syrian-russian-warplanes-hospitals-idlib-airstrikes.html
 
