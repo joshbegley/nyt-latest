@@ -1,3 +1,15 @@
+**What Latrell Wrightsell's injury means for him, Alabama**\
+`Wrightsell, a fifth-year senior, sustained a ruptured Achilles injury that will end his 2024-25 season.`\
+https://nytimes.com/athletic/5966528/2024/12/03/latrell-wrightsell-injury-alabama-basketball/
+
+**The Electric Dreams of a More Analog Age**\
+`An ambitious show at Tate Modern looks at how artists used technology from the postwar tech boom until the dawn of the internet age.`\
+https://nytimes.com/2024/12/03/arts/design/electric-dreams-tate-modern.html
+
+**NATO Chief Urges More Weapons for Ukraine Ahead of Any Peace Talks**\
+`Mark Rutte said it was up to Ukraine to decide when it was ready to begin negotiations with Russia — and that the West should help strengthen Kyiv’s position beforehand.`\
+https://nytimes.com/2024/12/03/world/europe/nato-chief-urges-more-weapons-for-ukraine-ahead-of-any-peace-talks.html
+
 **The Ultimate Yacht Rock Playlist**\
 `Gain a deeper appreciation of music from Michael McDonald, Toto and Christopher Cross.`\
 https://nytimes.com/2024/12/03/arts/music/amplifier-newsletter-yacht-rock.html
@@ -14,8 +26,8 @@ https://nytimes.com/2024/12/03/arts/design/prizefighting-show-west-palm-beach.ht
 `In 2012, Esther Kim Varet founded the gallery Various Small Fires out of her home. It has since gone multinational, and Kim Varet is still pushing the envelope.`\
 https://nytimes.com/2024/12/03/arts/design/los-angeles-gallery-art-basel-miami-beach.html
 
-**In Angola, Biden Recalls Bitter Legacy of Slavery While Touting Better Times Ahead**\
-`In becoming the first American leader to visit Angola, President Biden said it was important not to forget the ugly legacy of the human trade that originally defined relations with Africa.`\
+**In Angola, Biden Warns That Slavery’s History Should Not be Erased**\
+`In becoming the first American leader to visit Angola, President Biden said it was important not to forget the ugly legacy that originally defined relations with Africa.`\
 https://nytimes.com/2024/12/03/world/africa/angola-biden-slavery.html
 
 **Frieze Fair Further Cements Los Angeles as an International Art Capital**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/03/arts/design/frieze-los-angeles-art-scene.html
 **Venice Biennale Names Koyo Kouoh as Next Curator**\
 `Kouoh, who was born in Cameroon and currently leads one of Africa’s most important art museums, will organize the 61st edition, in 2026.`\
 https://nytimes.com/2024/12/03/arts/design/venice-biennale-curator-koyo-kouoh.html
-
-**Trump Will Have Enormous Power Over Climate Action. Here’s Why.**\
-`Presidents have extraordinary control over climate policy, in part, because it’s been decades since Congress has passed a comprehensive environmental bill.`\
-https://nytimes.com/2024/12/03/climate/donald-trump-climate-change-policy-power.html
-
-**Martial Law in South Korea Tests Biden and a Key U.S. Alliance**\
-`The Biden administration has hailed South Korea as a model democracy and bolstered military ties as it relies on the country as a bulwark against North Korea, China and Russia.`\
-https://nytimes.com/2024/12/03/us/politics/south-korea-martial-law-united-states.html
-
-**Beyond the Art Basel Miami Beach Fair**\
-`Although the fair is a huge attraction, there are many other exhibitions to visit nearby.`\
-https://nytimes.com/2024/12/03/arts/design/art-basel-miami-beach-see.html
 
