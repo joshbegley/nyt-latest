@@ -1,3 +1,19 @@
+**Amorim confident over new Amad contract: 'We will find a solution'**\
+`Ruben Amorim is confident Amad will sign a new contract at Manchester United.`\
+https://nytimes.com/athletic/5967336/2024/12/03/manchester-united-amad-contract-amorim/
+
+**Bronze misses England's Switzerland friendly after team sheet error**\
+`Lucy Bronze was unable to come on as a substitute during England&#8217;s friendly victory over Switzerland on Tuesday after mistakenly not being listed on the official team sheet.`\
+https://nytimes.com/athletic/5967255/2024/12/03/lucy-bronze-substitute-england-switzerland/
+
+**South Korea’s President Lifts Martial Law After Order Sparked Protests**\
+`Protests broke out in Seoul after President Yoon Suk Yeol temporarily declared an emergency martial law on Tuesday. Hours later, the National Assembly swiftly rebuked the order and voted to lift it.`\
+https://nytimes.com/video/world/asia/100000009856421/south-korea-emergency-martial-law.html
+
+**McDonald’s E. Coli Outbreak Declared Over**\
+`Federal health agencies closed their investigations into the bacterial outbreak that sickened 104 people and was linked to onions on the fast-food chain’s signature Quarter Pounders.`\
+https://nytimes.com/2024/12/03/health/ecoli-mcdonalds-onions.html
+
 **South Korea’s President Imposed Martial Law, Then Lifted It**\
 `Also, China banned rare mineral exports to the U.S. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/12/03/briefing/south-korea-martial-law-best-books-of-2024.html
