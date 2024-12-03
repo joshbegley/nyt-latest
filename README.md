@@ -1,8 +1,12 @@
+**Guehi wears second religious message on rainbow armband despite FA reminder**\
+`Crystal Palace captain Marc Guehi wrote a religious message on his rainbow armband for a second successive Premier League game despite the Football Association saying it would remind him of its rules on the matter.`\
+https://nytimes.com/athletic/5966987/2024/12/03/marc-guehi-rainbow-armband-fa/
+
 **What to watch in college basketball this week: SEC, ACC and Big East, Big 12 showdowns**\
 `What to watch in college basketball this week, headlined by Auburn-Duke and Alabama-UNC.`\
 https://nytimes.com/athletic/5964193/2024/12/03/watch-college-basketball-auburn-duke-sec-acc/
 
-**Namibia Elects Its First Woman President as Ruling Party Keeps Power**\
+**Namibia Elects First Woman as President as Ruling Party Keeps Power**\
 `Across southern Africa, political parties that have led their countries since the end of colonialism have ceded power to the opposition in recent months. Namibia bucked the trend.`\
 https://nytimes.com/2024/12/03/world/africa/namibia-election-results.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966930/2024/12/03/luke-shaw-manchester-united-inju
 **Indiana Man Looks Out His Window and Finds 2 Babies Left in a Ditch**\
 `Robert Deane was waiting for a package when he discovered 4- and 5-month-old girls in car seats abandoned in the cold across the street from his house.`\
 https://nytimes.com/2024/12/03/us/indianapolis-babies-found-ditch.html
-
-**Justice Dept.’s Apolitical Tradition Is Challenged by 2 Presidents**\
-`The post-Watergate norm that political leaders should steer clear of criminal cases is being tested from opposite ends of the political spectrum.`\
-https://nytimes.com/2024/12/03/us/politics/justice-department-independence.html
 
