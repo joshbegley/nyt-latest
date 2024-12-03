@@ -1,3 +1,15 @@
+**Broncos' lessons in 'ugly' moments vs. Browns may prove valuable in playoff chase**\
+`Rookie Bo Nix led a go-ahead drive after a fourth-quarter interception and a defense that had been battered closed with a pick.`\
+https://nytimes.com/athletic/5965375/2024/12/03/broncos-browns-playoff-chase/
+
+**What Blues players are saying about new head coach Jim Montgomery so far**\
+`Montgomery says he'd like players to say "that I'm a teacher and that I care." Here's what eight players actually did say about him.`\
+https://nytimes.com/athletic/5963730/2024/12/03/blues-players-jim-montgomery-early-impressions/
+
+**Jeff Berding interview: Caitlin Clark, Cincinnati’s expansion bid and taking NWSL to a new level**\
+`The co-lead of Cincinnati’s NWSL expansion bid discusses getting WNBA star Clark on board and what they could bring to the league`\
+https://nytimes.com/athletic/5965028/2024/12/03/caitlin-clark-jeff-berding-cincinnati-nwsl-expansion/
+
 **Seniors Need Our Help to Stay in the Homes They Love**\
 `Habitat for Humanity helps older people who can’t afford to make their homes safe and workable as they age.`\
 https://nytimes.com/2024/12/03/opinion/charity-holiday-gift-seniors-habitat-for-humanity.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5953784/2024/12/03/fred-vanvleet-raptors-rockets-ex
 **NFL interim coaches rarely last. Can the Bears' Thomas Brown be different?**\
 `Brown has a connection with Caleb Williams, buy-in from the locker room and an endorsement from Sean McVay. Will it be enough?`\
 https://nytimes.com/athletic/5964645/2024/12/03/bears-interim-coach-thomas-brown-matt-eberflus/
-
-**The White House Goes on the Defense, and Israel and Hezbollah Trade Fire**\
-`Plus, mail trucks get a “goofy” upgrade.`\
-https://nytimes.com/2024/12/03/podcasts/biden-pardon-defend-supreme-court-ethics-israel-hezbollah-truce.html
-
-**White-hot Sam Darnold has Vikings in position to do some damage: 'It's winning football'**\
-`Could the Vikings aim to re-sign the 27-year-old quarterback, who has played so well in leading them to a 10-2 record, this offseason?`\
-https://nytimes.com/athletic/5964565/2024/12/03/sam-darnolds-vikings-free-agency-offseason/
-
-**The best Mike Tomlin stories: Love, callouts and 'spittin' gold nuggets'**\
-`Players call Tomlin a "philosopher" and "preacher," but that's not why they love him. "You buy in because you can tell he cares," one said.`\
-https://nytimes.com/athletic/5954230/2024/12/03/mike-tomlin-steelers-players-oral-history/
 
