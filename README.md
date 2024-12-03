@@ -1,3 +1,15 @@
+**The Bounce: How the NBA Cup's next phase is taking shape**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5965631/2024/12/03/nba-cup-spurs-victor-wembanyama-nba-the-bounce/
+
+**Arteta: Manchester clubs not yet out of title race**\
+`Arsenal manager Mikel Arteta said “anything is possible” when asked whether Ruben Amorim can lead Manchester United into the title picture this season.`\
+https://nytimes.com/athletic/5965845/2024/12/03/arsenal-manchester-united-city-arteta/
+
+**Developing Countries Face Record Debt Costs Amid Interest Rate Surge**\
+`The World Bank warned in a new report that poor countries will be stuck in economic “purgatory” without debt relief.`\
+https://nytimes.com/2024/12/03/business/developing-countries-debt-world-bank.html
+
 **How good is the West Virginia job? The headwinds Neal Brown's replacement will inherit**\
 `There is deep fan support and a proud history here, but can reality line up to expectations in Morgantown?`\
 https://nytimes.com/athletic/5965742/2024/12/03/west-virginia-football-job-profile-candidates/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/03/style/rihanna-fashion-awards-best-dressed.html
 **O'Neil has 'zero concerns' over Wolves future: 'We aren't too far away'**\
 `Wolves boss Gary O’Neil says he is ready to let results determine his future and insists he has “zero concerns” about the possibility of the sack.`\
 https://nytimes.com/athletic/5965843/2024/12/03/wolves-oneil-future-sack/
-
-**Here are the latest developments in South Korea.**\
-`President Yoon Suk Yeol claimed ‘anti-state’ forces were at work, and he criticized attempts to impeach him.`\
-https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/south-korea-martial-law-yoon
-
-**The Okinawan Tried-and-Tested Recipe for Longevity**\
-` `\
-https://nytimes.com/paidpost/the-okinawan-tried-and-tested-recipe-for-longevity/the-okinawan-tried-and-tested-recipe-for-longevity.html
-
-**Bloomberg Says Kennedy Would Be ‘Beyond Dangerous’ as Health Secretary**\
-`Michael R. Bloomberg, the former New York City mayor and a public health advocate, is asking Senate Republicans to persuade President-elect Donald J. Trump to “rethink” Kennedy’s nomination.`\
-https://nytimes.com/2024/12/03/us/politics/bloomberg-says-kennedy-would-be-beyond-dangerous-as-health-secretary.html
 
