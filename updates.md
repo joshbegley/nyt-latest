@@ -1,3 +1,7 @@
+**South Korea’s President Declares Martial Law: What to Know**\
+`President Yoon Suk Yeol has been locked in a bitter fight with the opposition, which controls Parliament`\
+https://nytimes.com/2024/12/03/world/asia/what-is-martial-law-south-korea.html
+
 **She Met Hunter Biden One Night at a Club. Then She Fell in Love.**\
 `A chance meeting in December 2017 plunged Zoë Kestan, a downtown “it” girl and social media star, headlong into an unpredictable affair.`\
 https://nytimes.com/2024/12/03/style/zoe-kestan-hunter-biden.html
