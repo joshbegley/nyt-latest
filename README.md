@@ -15,7 +15,7 @@ https://nytimes.com/2024/12/03/opinion/democrats-rahm-emanuel-china.html
 https://nytimes.com/2024/12/03/business/blackrock-hbs-private-credit.html
 
 **South Korea President Declares Martial Law, Then Backs Down**\
-`Soon after President Yoon Suk Yeol’s declaration on Tuesday, lawmakers voted to defy him, prompting the president to say he was lifting his order, just hours after issuing it.`\
+`Soon after President Yoon Suk Yeol’s declaration on Tuesday, lawmakers voted to defy him, prompting the president to say he was lifting his order.`\
 https://nytimes.com/2024/12/03/world/asia/south-korea-martial-law.html
 
 **Wrexham 1 Barnsley 0: A '100-year-old' goalkeeper, Danny DeVito and a vital win**\
