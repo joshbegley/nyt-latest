@@ -1,3 +1,11 @@
+**U.S. Coast Guard Suspends Search for 5 People Missing in Alaska Waters**\
+`The Coast Guard received a mayday call from a fishing boat on Sunday just after midnight. Search crews looked for its passengers for almost 24 hours.`\
+https://nytimes.com/2024/12/02/us/alaska-fishing-boat-capsized-search.html
+
+**Dana Holgorsen signs 2-year deal to remain Nebraska's new offensive coordinator**\
+`The Huskers will pay Holgorsen $1.2 million annually.`\
+https://nytimes.com/athletic/5965021/2024/12/02/dana-holgorsen-nebraska-offensive-coordinator-hire/
+
 **49ers' Trent Williams, wife announce death of son after losing twin earlier in pregnancy**\
 `Trent Williams' wife, Sondra, gave birth to their stillborn son, Trenton Jr., at 35 weeks on Nov. 24.`\
 https://nytimes.com/athletic/5964975/2024/12/02/trent-williams-son-sf-49ers/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/5964906/2024/12/02/submit-a-question-for-stewart-ma
 **How Biden Changed His Mind on Pardoning Hunter: ‘Time to End All of This’**\
 `The threat of a retribution-focused Trump administration and his son’s looming sentencings prompted the president to abandon a promise not to get involved in Hunter Biden’s legal problems.`\
 https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-decision.html
-
-**If Anyone Can Save the Democrats, It’s Ben Wikler**\
-`This Wisconsinite is the obvious choice for D.N.C. chair.`\
-https://nytimes.com/2024/12/02/opinion/ben-wikler-dnc-chair.html
-
-**For Iranian Women, Can a Revolution Take Place at Home?**\
-`Inspired by the movement for women’s rights in Iran, Elahe Esmaili returns to her hometown to start her own resistance.`\
-https://nytimes.com/2024/12/02/opinion/iran-women-hijab.html
 

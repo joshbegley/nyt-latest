@@ -1,3 +1,11 @@
+**U.S. Coast Guard Suspends Search for 5 People Missing in Alaska Waters**\
+`The Coast Guard received a mayday call from a fishing boat on Sunday just after midnight. Search crews looked for its passengers for almost 24 hours.`\
+https://nytimes.com/2024/12/02/us/alaska-fishing-boat-capsized-search.html
+
+**Dana Holgorsen signs 2-year deal to remain Nebraska's new offensive coordinator**\
+`The Huskers will pay Holgorsen $1.2 million annually.`\
+https://nytimes.com/athletic/5965021/2024/12/02/dana-holgorsen-nebraska-offensive-coordinator-hire/
+
 **U.S. Sending $725 Million in Arms to Ukraine, Including More Land Mines**\
 `The package, the largest since April, comes amid deep concerns in Ukraine that the Trump administration may cut off aid. The president-elect has vowed to end the war quickly, but has not said how.`\
 https://nytimes.com/2024/12/02/us/politics/ukraine-weapons-shipments.html
