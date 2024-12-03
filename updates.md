@@ -1,3 +1,11 @@
+**Inside the crisis derailing Manchester City's season**\
+`A game in training in which first-team players were outshone by youngsters is one example of the effect a long winless run is having on City`\
+https://nytimes.com/athletic/5946660/2024/12/03/manchester-city-pep-guardiola-liverpool/
+
+**Another Spain women controversy - Why have Hermoso, Paredes and Rodriguez been left out?**\
+`The surprise omission of three of Spain's World Cup winners has led to more debate around the national team`\
+https://nytimes.com/athletic/5962950/2024/12/03/spain-women-hermoso-paredes-rodriguez/
+
 **Edoardo Bove is awake, talking and 'just wants to play' again. His Fiorentina team-mates are waiting**\
 `The midfielder was taken to hospital after losing consciousness during the match against Inter on Sunday. Fiorentina are united behind him`\
 https://nytimes.com/athletic/5962547/2024/12/03/edoardo-bove-fiorentina-serie-a/
