@@ -1,3 +1,7 @@
+**For U.K. Ambassador, Trump Picks Billionaire Who Supported His Rivals**\
+`Warren Stephens, an investment banker, gave $2 million in 2016 to a group aiming to block Donald J. Trump’s political rise. More recently, he backed Asa Hutchinson, Chris Christie, Mike Pence and Nikki Haley before donating to the Trump campaign.`\
+https://nytimes.com/2024/12/02/us/politics/britain-ambassador-trump-stephens.html
+
 **2025 WNBA schedule release: Why doesn't the winner earn more? Plus, crypto as prize pool money?**\
 `Some noteworthy numbers were released Monday afternoon when the WNBA dropped its 2025 schedule. `\
 https://nytimes.com/athletic/5964328/2024/12/02/2025-wnba-schedule-release-winner-earnings-crypto/
@@ -35,8 +39,4 @@ https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-president.html
 **Lions' Dan Campbell says Jahmyr Gibbs' leak of calls 'won’t affect us'**\
 `Gibbs, 22, accidentally revealed Detroit's protections, visible on a whiteboard at the team facility, in a Snapchat video.`\
 https://nytimes.com/athletic/5964704/2024/12/02/dan-campbell-jahmyr-gibbs-photo-lions/
-
-**Greenberg: Kevin Warren shows he's in charge as Bears try to find latest coaching savior**\
-`As GM Ryan Poles sat quietly, the team's president/CEO said they'll work diligently and "in tandem" to determine the Bears' next head coach.`\
-https://nytimes.com/athletic/5964353/2024/12/02/chicago-bears-coach-kevin-warren-ryan-poles/
 
