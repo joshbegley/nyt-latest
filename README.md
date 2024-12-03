@@ -1,3 +1,7 @@
+**NFL playoff picture, Week 13: Steelers seize control of AFC North, Bills clinch AFC East**\
+`Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
+https://nytimes.com/athletic/5947479/2024/12/02/nfl-playoff-picture-week-13-update/
+
 **Rangers pushback not enough after early breakdowns in Devils drubbing: 3 takeaways**\
 `The Rangers got off to yet another slow start, with two Devils goals before the halfway mark of the first period.`\
 https://nytimes.com/athletic/5965200/2024/12/02/rangers-early-breakdowns-devils/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/us/politics/trump-notre-dame-cathedral-paris.html
 **U.S. Coast Guard Suspends Search for 5 People Missing in Alaska Waters**\
 `The Coast Guard received a mayday call from a fishing boat on Sunday just after midnight. Search crews looked for its passengers for almost 24 hours.`\
 https://nytimes.com/2024/12/02/us/alaska-fishing-boat-capsized-search.html
-
-**Dana Holgorsen signs 2-year deal to remain Nebraska's new offensive coordinator**\
-`The Huskers will pay Holgorsen $1.2 million annually.`\
-https://nytimes.com/athletic/5965021/2024/12/02/dana-holgorsen-nebraska-offensive-coordinator-hire/
 
