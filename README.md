@@ -1,3 +1,15 @@
+**What to watch in college basketball this week: SEC, ACC and Big East, Big 12 showdowns**\
+`What to watch in college basketball this week, headlined by Auburn-Duke and Alabama-UNC.`\
+https://nytimes.com/athletic/5964193/2024/12/03/watch-college-basketball-auburn-duke-sec-acc/
+
+**Namibia Elects Its First Woman President as Ruling Party Keeps Power**\
+`Across southern Africa, political parties that have led their countries since the end of colonialism have ceded power to the opposition in recent months. Namibia bucked the trend.`\
+https://nytimes.com/2024/12/03/world/africa/namibia-election-results.html
+
+**Trump Team Signs Agreement to Allow F.B.I. Background Checks for Nominees**\
+`President-elect Donald J. Trump let weeks pass before signing the agreement as his team considered using private investigators instead.`\
+https://nytimes.com/2024/12/03/us/trump-fbi-background-checks.html
+
 **Scoop City: Key injury returns and updated playoff picture**\
 `14 reinforcements for the current playoff teams, plus a look at why Ben Johnson remains in Detroit and Week 14 fantasy prep.`\
 https://nytimes.com/athletic/5966975/2024/12/03/nfl-key-injury-returns-current-playoff-bracket-scoop-city/
@@ -26,12 +38,3 @@ https://nytimes.com/2024/12/03/us/indianapolis-babies-found-ditch.html
 `The post-Watergate norm that political leaders should steer clear of criminal cases is being tested from opposite ends of the political spectrum.`\
 https://nytimes.com/2024/12/03/us/politics/justice-department-independence.html
 
-**Korean Americans are trying to make sense of events in Seoul.**\
-`By Amy Qin`\
-https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/korean-americans-are-trying-to-make-sense-of-events-in-seoul
-
-**An Imaginative Treat for ‘Adventure Time’ Fans**\
-`From the creator of that series comes “Mystery Cuddlers,” on Adult Swim, about a retired couple who have taken up private investigating.`\
-https://nytimes.com/2024/12/03/arts/television/mystery-cuddlers-adventure-time-creators-adult-swim.html
-
-**New York Area’s Top November Sales and Listings**\
