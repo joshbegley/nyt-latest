@@ -1,3 +1,7 @@
+**Ravens' John Harbaugh mum on Diontae Johnson's status with team**\
+`Since joining Baltimore via trade in October, Johnson has just one catch in five games.`\
+https://nytimes.com/athletic/5965768/2024/12/03/diontae-johnson-ravens-john-harbaugh/
+
 **LeBron James' slump and 'nasty' Lakers offense hit new lows in loss to Minnesota**\
 `James is in one of the worst shooting skids of his career and has LA rethinking his goal of playing in all 82 games.`\
 https://nytimes.com/athletic/5965032/2024/12/03/lakers-lebron-james-offense-loss/
