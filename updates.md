@@ -1,3 +1,19 @@
+**You Want That Gift to Arrive Today? This Is What It Takes.**\
+`Retailers like Amazon, Walmart and Target have figured out that if they get you your online order today, you will probably spend more tomorrow.`\
+https://nytimes.com/2024/12/03/business/amazon-same-day-delivery.html
+
+**Double gold medal cyclist Evenepoel sustains fractures in crash with postal van**\
+`Evenepoel had been riding a custom-made gold bike, whose frame was split in two by the impact.`\
+https://nytimes.com/athletic/5966167/2024/12/03/remco-evenepoel-crash-van/
+
+**With Million-Dollar Paintings at Stake, What Does the Art Doctor Say?**\
+`The conservator Suzanne Siano analyzes the health of artworks. She frequents art fairs from Paris to Miami Beach providing advice to both buyers and sellers.`\
+https://nytimes.com/2024/12/03/arts/design/art-fair-art-conservator.html
+
+**NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
+`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
+https://nytimes.com/athletic/5966084/2024/12/03/nfl-draft-2025-underclassmen-tracker-early-entrants/
+
 **How the Colts make the playoffs: Standings, remaining games and the overall picture**\
 `During the bye, the Colts will prepare for a monster game in Denver. Win, and their playoff hopes are alive. Lose, and their season is over.`\
 https://nytimes.com/athletic/5965989/2024/12/03/indianapolis-colts-playoff-odds-anthony-richardson/

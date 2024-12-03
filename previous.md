@@ -1,3 +1,19 @@
+**You Want That Gift to Arrive Today? This Is What It Takes.**\
+`Retailers like Amazon, Walmart and Target have figured out that if they get you your online order today, you will probably spend more tomorrow.`\
+https://nytimes.com/2024/12/03/business/amazon-same-day-delivery.html
+
+**Double gold medal cyclist Evenepoel sustains fractures in crash with postal van**\
+`Evenepoel had been riding a custom-made gold bike, whose frame was split in two by the impact.`\
+https://nytimes.com/athletic/5966167/2024/12/03/remco-evenepoel-crash-van/
+
+**With Million-Dollar Paintings at Stake, What Does the Art Doctor Say?**\
+`The conservator Suzanne Siano analyzes the health of artworks. She frequents art fairs from Paris to Miami Beach providing advice to both buyers and sellers.`\
+https://nytimes.com/2024/12/03/arts/design/art-fair-art-conservator.html
+
+**NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
+`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
+https://nytimes.com/athletic/5966084/2024/12/03/nfl-draft-2025-underclassmen-tracker-early-entrants/
+
 **How the Colts make the playoffs: Standings, remaining games and the overall picture**\
 `During the bye, the Colts will prepare for a monster game in Denver. Win, and their playoff hopes are alive. Lose, and their season is over.`\
 https://nytimes.com/athletic/5965989/2024/12/03/indianapolis-colts-playoff-odds-anthony-richardson/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/03/arts/design/arts-organization-galas-donors.html
 **Maple-Miso Salmon, Lemony Chicken Breasts and Broccoli Pesto**\
 `Light-but-satisfying dinners to fuel you for all that cookie-making.`\
 https://nytimes.com/2024/12/03/dining/salmon-chicken-pesto-recipes.html
-
-**U.S. Moves to End a Minimum Wage Waiver for Disabled Workers**\
-`A plan by the Biden administration would end a provision that allowed employers to pay workers with disabilities less than the federal minimum wage.`\
-https://nytimes.com/2024/12/03/business/economy/labor-disability-pay.html
-
-**Tiger: Ryder Cup should give more to players' charities**\
-`Woods, who is still recovering from back surgery, said American players should get as much as "$5 million each" but then "donate it all."`\
-https://nytimes.com/athletic/5965971/2024/12/03/tiger-woods-ryder-cup-pay-charity/
-
-**Can college football really stop flag-planting?**\
-`For college sports leaders, the focus after a emotional final weekend is on how to stop the extracurriculars from happening again.`\
-https://nytimes.com/athletic/5965942/2024/12/03/college-football-fights-flag-planting-penalties/
-
-**A Week of Arctic Cold Air and Lake-Effect Snow Is Ahead**\
-`Here’s a day-by-day look at the winter weather forecast.`\
-https://nytimes.com/2024/12/03/weather/weather-snow-cold-forecast.html
 
