@@ -1,3 +1,5 @@
+**New York Area’s Top November Sales and Listings**\
+
 **Italian Man Given Life Sentence for Brutal Murder of Ex-Girlfriend**\
 `The killing ignited national outrage and provoked calls for stronger measures to protect women.`\
 https://nytimes.com/2024/12/03/world/europe/giulia-cecchettin-murder-conviction-italy.html
