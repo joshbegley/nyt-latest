@@ -1,3 +1,11 @@
+**Explained: Javier Mascherno's role in the Premier League's most controversial transfer**\
+`When Inter Miami's new head coach first moved to Europe, he quickly became embroiled in a controversy that rocked the Premier League`\
+https://nytimes.com/athletic/5948977/2024/12/03/mascherano-inter-miami-west-ham-premier-league/
+
+**NHL Playoff Report: Leafs and Devils on the rise, Rangers and Senators falling off**\
+`As it stands, there are probably two spots up for grabs in the East, while in the West it'd be a surprise if the eight spots weren’t set.`\
+https://nytimes.com/athletic/5964067/2024/12/03/nhl-playoff-report-november-leafs-devils-rangers-senators/
+
 **President Yoon’s Speech Declaring Martial Law**\
 `President Yoon Suk Yeol made the extraordinary declaration in an unannounced speech to the nation on Tuesday night.`\
 https://nytimes.com/2024/12/03/world/asia/president-yoon-speech-martial-law.html
