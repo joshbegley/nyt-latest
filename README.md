@@ -1,3 +1,7 @@
+**Alyssa Naeher comes up big in her final game for United States**\
+`Naeher helps the U.S. close 2024 with a victory over the Netherlands. `\
+https://nytimes.com/athletic/5967116/2024/12/03/uswnt-netherlands-alyssa-naeher/
+
 **Without a Law, the Government Can’t Protect Your Privacy**\
 `Don’t get your hopes up.`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/privacy-ftc-rule
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/world/africa/namibia-election-results.html
 **Trump Team Signs Agreement to Allow F.B.I. Background Checks for Nominees**\
 `President-elect Donald J. Trump let weeks pass before signing the agreement as his team considered using private investigators instead.`\
 https://nytimes.com/2024/12/03/us/trump-fbi-background-checks.html
-
-**Scoop City: Key injury returns and updated playoff picture**\
-`14 reinforcements for the current playoff teams, plus a look at why Ben Johnson remains in Detroit and Week 14 fantasy prep.`\
-https://nytimes.com/athletic/5966975/2024/12/03/nfl-key-injury-returns-current-playoff-bracket-scoop-city/
 
