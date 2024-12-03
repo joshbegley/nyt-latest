@@ -1,3 +1,11 @@
+**The Okinawan Tried-and-Tested Recipe for Longevity**\
+` `\
+https://nytimes.com/paidpost/the-okinawan-tried-and-tested-recipe-for-longevity/the-okinawan-tried-and-tested-recipe-for-longevity.html
+
+**Bloomberg Says Kennedy Would Be ‘Beyond Dangerous’ as Health Secretary**\
+`Michael R. Bloomberg, the former New York City mayor and a public health advocate, is asking Senate Republicans to persuade President-elect Donald J. Trump to “rethink” Kennedy’s nomination.`\
+https://nytimes.com/2024/12/03/us/politics/bloomberg-says-kennedy-would-be-beyond-dangerous-as-health-secretary.html
+
 **Israeli Officials Welcome Trump’s Demand to Free Hostages Before Inauguration**\
 `President-elect Donald J. Trump has threatened to take unspecified action unless the hostages held in Gaza are released before he takes office in January.`\
 https://nytimes.com/2024/12/03/world/middleeast/israel-trump-hostages.html
