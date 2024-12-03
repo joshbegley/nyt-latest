@@ -1,3 +1,11 @@
+**Ancelotti: Tchouameni ready to start against Athletic Club**\
+`Real Madrid head coach Carlo Ancelotti says Aurelien Tchouameni is ready to return from an ankle injury.`\
+https://nytimes.com/athletic/5965643/2024/12/03/aurelien-tchouameni-real-madrid-injury-return/
+
+**Moviegoing Storms Back, Thanks to Sequels**\
+`Reports of the demise of Hollywood may be greatly exaggerated.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/thanksgiving-movie-moana-wicked
+
 **Investigation Into Forced Adoptions From Ukraine Points Finger at Putin**\
 `Yale researchers traced hundreds of children taken to Russia in the war, finding what they described as “a higher level of crime than first understood.”`\
 https://nytimes.com/2024/12/03/world/europe/russia-ukraine-children-deportation-adoption.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5965587/2024/12/03/lesley-ugochukwu-southampton-che
 **Why Turnout Wasn’t the Democrats’ Problem**\
 `We explore the data behind that assumption.`\
 https://nytimes.com/2024/12/03/briefing/why-turnout-wasnt-the-democrats-problem.html
-
-**Neale Fraser, Australian tennis legend and Davis Cup captain, dies at 91**\
-`Fraser won 19 major titles and found particular success in doubles.`\
-https://nytimes.com/athletic/5965501/2024/12/03/neale-fraser-tennis-obituary/
-
-**Mike McCarthy's status, playoff chances, wide receiver depth chart: Cowboys mailbag**\
-`With the Cowboys' schedule, is there a sliver of playoff hope and how might that affect Mike McCarthy's future?`\
-https://nytimes.com/athletic/5965389/2024/12/03/cowboys-mike-mccarthy-playoff-chances-mailbag/
 
