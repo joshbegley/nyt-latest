@@ -4,7 +4,7 @@ https://nytimes.com/2024/12/03/style/zoe-kestan-hunter-biden.html
 
 **South Korea’s President Declares Martial Law: What to Know**\
 `President Yoon Suk Yeol has been locked in a bitter fight with the opposition, which controls Parliament`\
-https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/what-is-martial-law-south-korea
+https://nytimes.com/2024/12/03/world/asia/what-is-martial-law-south-korea.html
 
 **Wisconsin exit interview: Curt Neal's transfer decision, thoughts on Badgers' future**\
 `Neal becomes the second defensive starter to declare he’ll enter the transfer portal, joining outside linebacker Leon Lowery.`\

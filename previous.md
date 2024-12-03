@@ -1,3 +1,19 @@
+**She Met Hunter Biden One Night at a Club. Then She Fell in Love.**\
+`A chance meeting in December 2017 plunged Zoë Kestan, a downtown “it” girl and social media star, headlong into an unpredictable affair.`\
+https://nytimes.com/2024/12/03/style/zoe-kestan-hunter-biden.html
+
+**South Korea’s President Declares Martial Law: What to Know**\
+`President Yoon Suk Yeol has been locked in a bitter fight with the opposition, which controls Parliament`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/what-is-martial-law-south-korea
+
+**Wisconsin exit interview: Curt Neal's transfer decision, thoughts on Badgers' future**\
+`Neal becomes the second defensive starter to declare he’ll enter the transfer portal, joining outside linebacker Leon Lowery.`\
+https://nytimes.com/athletic/5966242/2024/12/03/curt-neal-wisconsin-college-football-transfer/
+
+**Super Bowl 2025 odds: Bills, Eagles, Chiefs in a dead heat behind Lions**\
+`A new tier has emerged in Super Bowl odds with the Eagles and Bills trending upward. `\
+https://nytimes.com/athletic/5965993/2024/12/03/super-bowl-2025-odds-week-14-bills-eagles-chiefs-tied/
+
 **Former UTEP coach, K-State assistant Dimel dies at 62**\
 `A former All-American offensive tackle at Kansas State in the 1980s, Dimel spent 19 seasons as a K-State assistant.`\
 https://nytimes.com/athletic/5966216/2024/12/03/dana-dimel-death-illinois-kansas-state/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/03/business/amazon-same-day-delivery.html
 **Double gold medal cyclist Evenepoel sustains fractures in crash with postal van**\
 `Evenepoel had been riding a custom-made gold bike, whose frame was split in two by the impact.`\
 https://nytimes.com/athletic/5966167/2024/12/03/remco-evenepoel-crash-van/
-
-**With Million-Dollar Paintings at Stake, What Does the Art Doctor Say?**\
-`The conservator Suzanne Siano analyzes the health of artworks. She frequents art fairs from Paris to Miami Beach providing advice to both buyers and sellers.`\
-https://nytimes.com/2024/12/03/arts/design/art-fair-art-conservator.html
-
-**NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
-`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
-https://nytimes.com/athletic/5966084/2024/12/03/nfl-draft-2025-underclassmen-tracker-early-entrants/
-
-**How the Colts make the playoffs: Standings, remaining games and the overall picture**\
-`During the bye, the Colts will prepare for a monster game in Denver. Win, and their playoff hopes are alive. Lose, and their season is over.`\
-https://nytimes.com/athletic/5965989/2024/12/03/indianapolis-colts-playoff-odds-anthony-richardson/
-
-**Chaos Plays Out at South Korea’s Legislature Building**\
-`Soldiers wearing helmets and carrying long guns pushed back against people who tried to enter the National Assembly after President Yoon Suk Yeol declared martial law.`\
-https://nytimes.com/2024/12/03/world/asia/south-korea-legislature-chaos.html
 
