@@ -1,3 +1,11 @@
+**‘A Different Man’ and ‘Sing Sing’ Rule the Gotham Awards**\
+`The kickoff to awards season has a mixed record but can help lift small films like the two surprise winners.`\
+https://nytimes.com/2024/12/03/movies/gotham-awards-winners-a-different-man-sebastian-stan.html
+
+**What we're seeing with the Bucks: Screening for Giannis, Taurean Prince's availability and more**\
+`Setting a screen for the two-time NBA MVP means sacrificing your body and taking some lumps, but it can lead to easy buckets for the Bucks.`\
+https://nytimes.com/athletic/5961369/2024/12/03/giannis-antetokounmpo-taurean-prince-bucks/
+
 **NBA Power Rankings: Hey, how's the new guy doing?**\
 `Other risers this week include the Bucks, Mavericks and Hawks, while the teams at the top have benefited from continuity.`\
 https://nytimes.com/athletic/5965547/2024/12/03/nba-power-rankings-celtics-cavs-rockets-lakers/

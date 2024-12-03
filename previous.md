@@ -1,3 +1,11 @@
+**‘A Different Man’ and ‘Sing Sing’ Rule the Gotham Awards**\
+`The kickoff to awards season has a mixed record but can help lift small films like the two surprise winners.`\
+https://nytimes.com/2024/12/03/movies/gotham-awards-winners-a-different-man-sebastian-stan.html
+
+**What we're seeing with the Bucks: Screening for Giannis, Taurean Prince's availability and more**\
+`Setting a screen for the two-time NBA MVP means sacrificing your body and taking some lumps, but it can lead to easy buckets for the Bucks.`\
+https://nytimes.com/athletic/5961369/2024/12/03/giannis-antetokounmpo-taurean-prince-bucks/
+
 **NBA Power Rankings: Hey, how's the new guy doing?**\
 `Other risers this week include the Bucks, Mavericks and Hawks, while the teams at the top have benefited from continuity.`\
 https://nytimes.com/athletic/5965547/2024/12/03/nba-power-rankings-celtics-cavs-rockets-lakers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5965605/2024/12/03/john-stones-injury-man-city-guar
 **The Athletic FC: Europe's most wanted, Salah open to extra year at Liverpool, Slot's City joke**\
 `Today in TAFC: We analyse the hottest players in Europe who could move in 2025, plus Salah open to an extra year at Liverpool`\
 https://nytimes.com/athletic/5965513/2024/12/03/euro-transfer-deals-salah-liverpool-deal/
-
-**Weekly Student News Quiz: Cease-Fire, Trump Transition, Presidential Pardon**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/12/03/learning/03StudentNewsQuiz.html
-
-**Will Elon Musk Ever Collect His Full Tesla Pay Package?**\
-`The electric vehicle maker vowed to appeal after a Delaware judge rejected the tech mogul’s massive compensation deal for a second time.`\
-https://nytimes.com/2024/12/03/business/dealbook/musk-tesla-pay-delaware.html
 
