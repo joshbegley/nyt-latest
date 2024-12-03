@@ -1,3 +1,11 @@
+**Thirman Milner, Hartford Mayor Who Broke Race Barrier, Dies at 91**\
+`He grudgingly transitioned from civil rights to politics and became the first popularly elected Black mayor in New England.`\
+https://nytimes.com/2024/12/03/nyregion/thirman-milner-dead.html
+
+**Who is Lee Jae-myung, the South Korean opposition leader?**\
+`The opposition leader rallied lawmakers to vote down President Yoon Suk Yeol’s martial law decree.`\
+https://nytimes.com/2024/12/03/world/asia/lee-jae-myung-opposition-leader.html
+
 **Alyssa Naeher comes up big in her final game for United States**\
 `Naeher helps the U.S. close 2024 with a victory over the Netherlands. `\
 https://nytimes.com/athletic/5967116/2024/12/03/uswnt-netherlands-alyssa-naeher/
@@ -28,13 +36,5 @@ https://nytimes.com/athletic/5966987/2024/12/03/marc-guehi-rainbow-armband-fa/
 
 **What to watch in college basketball this week: SEC, ACC and Big East, Big 12 showdowns**\
 `What to watch in college basketball this week, headlined by Auburn-Duke and Alabama-UNC.`\
-https://nytimes.com/athletic/5964193/2024/12/03/watch-college-basketball-auburn-duke-sec-acc/
-
-**Namibia Elects First Woman as President as Ruling Party Keeps Power**\
-`Across southern Africa, political parties that have led their countries since the end of colonialism have ceded power to the opposition in recent months. Namibia bucked the trend.`\
-https://nytimes.com/2024/12/03/world/africa/namibia-election-results.html
-
-**Trump Team Signs Agreement to Allow F.B.I. Background Checks for Nominees**\
-`President-elect Donald J. Trump let weeks pass before signing the agreement as his team considered using private investigators instead.`\
-https://nytimes.com/2024/12/03/us/trump-fbi-background-checks.html
+https://nytimes.com/athletic/5964193/2024/12/03/college-basketball-auburn-duke-sec-acc-big-12-big-east/
 
