@@ -1,3 +1,7 @@
+**Wales reach first major tournament; Wilkinson: 'A generation that's going to change everything'**\
+`Wales Women&#8217;s head coach Rhian Wilkinson said her side have provided &#8220;a generation of football that&#8217;s going to change everything&#8221; after qualifying for their first major tournament.`\
+https://nytimes.com/athletic/5967162/2024/12/03/wales-women-european-championship-qualify/
+
 **Grandmother Looking for Cat May Have Fallen Into Sinkhole, Authorities Say**\
 `The authorities in Pennsylvania said they had been searching the sinkhole for the 64-year-old woman, and would continue until she is found.`\
 https://nytimes.com/2024/12/03/us/pennsylvania-woman-sinkhole-missing-cat.html
@@ -18,6 +22,10 @@ https://nytimes.com/2024/12/03/world/asia/lee-jae-myung-opposition-leader.html
 `Naeher helps the U.S. close 2024 with a victory over the Netherlands. `\
 https://nytimes.com/athletic/5967116/2024/12/03/uswnt-netherlands-alyssa-naeher/
 
+**Canucks D Filip Hronek out approximately 8 weeks**\
+`Hronek appeared to get hurt at the end of Vancouver's game against the Pittsburgh Penguins on Wednesday.`\
+https://nytimes.com/athletic/5955605/2024/12/03/canucks-filip-hronek-injury/
+
 **Without a Law, the Government Can’t Protect Your Privacy**\
 `Don’t get your hopes up.`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/privacy-ftc-rule
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/nyregion/what-was-your-most-successful-new-years-
 **What Holiday Tradition Do You Cherish Most?**\
 `Tell us about it.`\
 https://nytimes.com/2024/12/03/nyregion/what-holiday-tradition-do-you-cherish-most.html
-
-**How the Flyers survived — and thrived — without No. 1 goalie Sam Ersson**\
-`The Flyers not only survived without Ersson, but they thrived to the tune of a 6-2-1 mark while he was out with an injury.`\
-https://nytimes.com/athletic/5966682/2024/12/03/flyers-sam-ersson-injury/
-
-**The Best Wine Books of 2024**\
-`A tome on the totality of wine from a New York sommelier, a tale of six months in a French village and more books for the wine lovers in your life.`\
-https://nytimes.com/2024/12/03/dining/drinks/the-best-wine-books-of-2024.html
 
