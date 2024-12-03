@@ -1,3 +1,15 @@
+**In a First, Transgender Woman Wins Model of the Year**\
+`Alex Consani is a star, on TikTok and on the runway. In her speech at the Fashion Awards in London, she acknowledged the struggles of other pioneers.`\
+https://nytimes.com/2024/12/03/style/alex-consani-model-of-the-year.html
+
+**President Yoon’s speech walking back his martial law order.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/president-yoon-speech-reversal-martial-law-order
+
+**USWNT star Carli Lloyd headlines 2025 National Soccer Hall of Fame class**\
+`The quintet will be inducted into the hall in a ceremony at Toyota Stadium in Frisco, Texas, in May.`\
+https://nytimes.com/athletic/5966769/2024/12/03/national-soccer-hall-of-fame-uswnt-carli-lloyd/
+
 **South Korea’s Obstacles to Parenthood**\
 `Korean women have always been resilient, but they alone cannot overcome a culture of misogyny and a lack of economic security.`\
 https://nytimes.com/2024/12/03/special-series/korea-fertility-rates-family.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/western-allies
 **Tiny Love Stories: ‘I Surrendered and Played Along’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/12/03/style/tiny-modern-love-stories-i-surrendered-and-played-along.html
-
-**What Latrell Wrightsell's injury means for him, Alabama**\
-`Wrightsell, a fifth-year senior, sustained a ruptured Achilles injury that will end his 2024-25 season.`\
-https://nytimes.com/athletic/5966528/2024/12/03/latrell-wrightsell-injury-alabama-basketball/
-
-**The Electric Dreams of a More Analog Age**\
-`An ambitious show at Tate Modern looks at how artists used technology from the postwar tech boom until the dawn of the internet age.`\
-https://nytimes.com/2024/12/03/arts/design/electric-dreams-tate-modern.html
-
-**NATO Chief Urges More Weapons for Ukraine Ahead of Any Peace Talks**\
-`Mark Rutte said it was up to Ukraine to decide when it was ready to begin negotiations with Russia — and that the West should help strengthen Kyiv’s position beforehand.`\
-https://nytimes.com/2024/12/03/world/europe/nato-chief-urges-more-weapons-for-ukraine-ahead-of-any-peace-talks.html
 
