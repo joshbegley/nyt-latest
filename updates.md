@@ -1,3 +1,11 @@
+**Veteran catcher Kyle Higashioka signs with Texas Rangers**\
+`The deal is worth a total of $12.5 million ($5.75 million in 2025, $6.75 million in 2026), according to MLB.com.`\
+https://nytimes.com/athletic/5965822/2024/12/03/kyle-higashioka-contract-rangers-mlb-free-agency/
+
+**Ellis leaving San Diego Wave role to become FIFA's chief football officer**\
+`Ellis, 58, won two World Cups with the U.S. and has been Wave president since 2021.`\
+https://nytimes.com/athletic/5965856/2024/12/03/jill-ellis-fifa-san-diego-wave/
+
 **The Bounce: How the NBA Cup's next phase is taking shape**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5965631/2024/12/03/nba-cup-spurs-victor-wembanyama-nba-the-bounce/

@@ -1,3 +1,7 @@
+**Veteran catcher Kyle Higashioka signs with Texas Rangers**\
+`The deal is worth a total of $12.5 million ($5.75 million in 2025, $6.75 million in 2026), according to MLB.com.`\
+https://nytimes.com/athletic/5965822/2024/12/03/kyle-higashioka-contract-rangers-mlb-free-agency/
+
 **The Bounce: How the NBA Cup's next phase is taking shape**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5965631/2024/12/03/nba-cup-spurs-victor-wembanyama-nba-the-bounce/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5965742/2024/12/03/west-virginia-football-job-profi
 https://nytimes.com/athletic/5960524/2024/12/03/emi-martinez-injury-aston-villa/
 
 **Ellis leaving San Diego Wave role to become FIFA's chief football officer**\
-`Former United States head coach Jill Ellis is leaving her role as San Diego Wave FC president to become chief football officer at FIFA.`\
+`Ellis, 58, won two World Cups with the U.S. and has been Wave president since 2021.`\
 https://nytimes.com/athletic/5965856/2024/12/03/jill-ellis-fifa-san-diego-wave/
 
 **Live Updates: South Korean Leader Declares Martial Law**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963576/2024/12/03/azeez-al-shaair-suspension-texan
 **Rihanna Steals the Fashion Awards**\
 `And a dozen other looks that made news at Britain’s Met Gala of style.`\
 https://nytimes.com/2024/12/03/style/rihanna-fashion-awards-best-dressed.html
-
-**O'Neil has 'zero concerns' over Wolves future: 'We aren't too far away'**\
-`Wolves boss Gary O’Neil says he is ready to let results determine his future and insists he has “zero concerns” about the possibility of the sack.`\
-https://nytimes.com/athletic/5965843/2024/12/03/wolves-oneil-future-sack/
 
