@@ -1,3 +1,11 @@
+**The Okinawan Tried-and-Tested Recipe for Longevity**\
+` `\
+https://nytimes.com/paidpost/the-okinawan-tried-and-tested-recipe-for-longevity/the-okinawan-tried-and-tested-recipe-for-longevity.html
+
+**Bloomberg Says Kennedy Would Be ‘Beyond Dangerous’ as Health Secretary**\
+`Michael R. Bloomberg, the former New York City mayor and a public health advocate, is asking Senate Republicans to persuade President-elect Donald J. Trump to “rethink” Kennedy’s nomination.`\
+https://nytimes.com/2024/12/03/us/politics/bloomberg-says-kennedy-would-be-beyond-dangerous-as-health-secretary.html
+
 **Israeli Officials Welcome Trump’s Demand to Free Hostages Before Inauguration**\
 `President-elect Donald J. Trump has threatened to take unspecified action unless the hostages held in Gaza are released before he takes office in January.`\
 https://nytimes.com/2024/12/03/world/middleeast/israel-trump-hostages.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/world/middleeast/syria-civil-war-rebels-aleppo.ht
 **The Chargers passing offense isn't producing, so why isn't DJ Chark getting a shot?**\
 `Chark has been off injured reserve for a month now but has only played three offensive snaps since his return. `\
 https://nytimes.com/athletic/5964977/2024/12/03/chargers-dj-chark-offense-struggling/
-
-**The 10 Best Books of 2024**\
-`The staff of The New York Times Book Review choose the year’s top fiction and nonfiction.`\
-https://nytimes.com/2024/12/03/books/best-books-2024.html
-
-**Stones 'not close' to return from injury - Guardiola**\
-`Pep Guardiola says that John Stones is “not close” to a Manchester City return due to a foot problem.`\
-https://nytimes.com/athletic/5965605/2024/12/03/john-stones-injury-man-city-guardiola/
 
