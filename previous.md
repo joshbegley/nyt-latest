@@ -1,3 +1,7 @@
+**Why Israel and Hezbollah Are Still Firing Amid a Cease-Fire**\
+`Some violations of the truce, and some amount of violence, are to be expected, analysts say, and do not necessarily mean the deal will collapse and war will resume anytime soon.`\
+https://nytimes.com/2024/12/03/world/middleeast/israel-hezbollah-cease-fire-violations.html
+
 **Patriots inside the numbers: 14 key statistics that tell the team's story at the bye**\
 `Where do the Patriots rank in key areas heading into the bye? And how do they compare to last year? Let's look at the advanced statistics.`\
 https://nytimes.com/athletic/5964004/2024/12/03/patriots-stats-bye-week/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/opinion/ezra-klein-podcast-rahm-emanuel.html
 **It Can’t Be Assumed That Higher Turnout Would Have Helped Harris**\
 `Voting records suggest Democrats who stayed home were less likely to support her, with no equivalent drop-off in Trump support among Republicans.`\
 https://nytimes.com/2024/12/03/upshot/election-turnout-harris-trump.html
-
-**Five Opinion Writers on What Biden Should Do in His Final Days as President**\
-`Protecting land and appointing judges could go a long way toward bolstering Biden’s legacy.`\
-https://nytimes.com/2024/12/03/opinion/bidens-finals-days-in-office.html
 

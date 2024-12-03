@@ -1,3 +1,7 @@
+**Why Israel and Hezbollah Are Still Firing Amid a Cease-Fire**\
+`Some violations of the truce, and some amount of violence, are to be expected, analysts say, and do not necessarily mean the deal will collapse and war will resume anytime soon.`\
+https://nytimes.com/2024/12/03/world/middleeast/israel-hezbollah-cease-fire-violations.html
+
 **Patriots inside the numbers: 14 key statistics that tell the team's story at the bye**\
 `Where do the Patriots rank in key areas heading into the bye? And how do they compare to last year? Let's look at the advanced statistics.`\
 https://nytimes.com/athletic/5964004/2024/12/03/patriots-stats-bye-week/
