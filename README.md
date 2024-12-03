@@ -1,3 +1,7 @@
+**Word of the Day: chutzpah**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/03/learning/word-of-the-day-chutzpah.html
+
 **‘Look Out for Your Own’: Two Columnists on Why Biden’s Pardon Reeks of Privilege**\
 `While the pardon is legal, the rule of law isn’t maintained by merely keeping to the letter of the law.`\
 https://nytimes.com/2024/12/03/opinion/hunter-biden-pardon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963960/2024/12/03/broncos-browns-mnf-score-result-
 **Inside the crisis derailing Manchester City's season**\
 `A game in training in which first-team players were outshone by youngsters is one example of the effect a long winless run is having on City`\
 https://nytimes.com/athletic/5946660/2024/12/03/manchester-city-pep-guardiola-liverpool/
-
-**Another Spain women controversy - Why have Hermoso, Paredes and Rodriguez been left out?**\
-`The surprise omission of three of Spain's World Cup winners has led to more debate around the national team`\
-https://nytimes.com/athletic/5962950/2024/12/03/spain-women-hermoso-paredes-rodriguez/
 
