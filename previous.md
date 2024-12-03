@@ -1,3 +1,7 @@
+**Corrections: Dec. 3, 2024**\
+`Corrections that appeared in print on Tuesday, Dec. 3, 2024.`\
+https://nytimes.com/2024/12/02/pageoneplus/corrections-dec-3-2024.html
+
 **Trump to Attend Notre-Dame Cathedral Reopening in Paris**\
 `The trip will be Donald J. Trump’s first foreign trip since last month’s election and offers a sign that global leaders are turning the page on the Biden presidency.`\
 https://nytimes.com/2024/12/02/us/politics/trump-notre-dame-cathedral-paris.html
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/5964328/2024/12/02/2025-wnba-schedule-release-winne
 **LeBrun rumblings: What the Devils, Panthers and Hurricanes are looking for early in the trade market**\
 `Devils' Tom Fitzgerald: "You can’t have enough depth. I’ve been in touch with teams. I’m looking for utility players … guys who can skate."`\
 https://nytimes.com/athletic/5964808/2024/12/02/devils-panthers-hurricanes-nhl-rumblings/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Well, it&#8217;s come to this. One more set of games to enjoy, one more set of committee rankings to be angry about.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/5964906/2024/12/02/submit-a-question-for-stewart-mandels-college-football-mailbag-284/
 

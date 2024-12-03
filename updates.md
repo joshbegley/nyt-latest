@@ -1,3 +1,7 @@
+**Corrections: Dec. 3, 2024**\
+`Corrections that appeared in print on Tuesday, Dec. 3, 2024.`\
+https://nytimes.com/2024/12/02/pageoneplus/corrections-dec-3-2024.html
+
 **Trump to Attend Notre-Dame Cathedral Reopening in Paris**\
 `The trip will be Donald J. Trump’s first foreign trip since last month’s election and offers a sign that global leaders are turning the page on the Biden presidency.`\
 https://nytimes.com/2024/12/02/us/politics/trump-notre-dame-cathedral-paris.html
