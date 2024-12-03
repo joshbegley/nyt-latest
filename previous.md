@@ -1,3 +1,7 @@
+**Why Turnout Wasn’t the Democrats’ Problem**\
+`We explore the data behind that assumption.`\
+https://nytimes.com/2024/12/03/briefing/why-turnout-wasnt-the-democrats-problem.html
+
 **Neale Fraser, Australian tennis legend and Davis Cup captain, dies at 91**\
 `Fraser won 19 major titles and found particular success in doubles.`\
 https://nytimes.com/athletic/5965501/2024/12/03/neale-fraser-tennis-obituary/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963445/2024/12/03/blackhawks-taylor-hall-nhl-mvp/
 **Which 2025 NFL Draft prospects most improved their stock this season?**\
 `Several players likely made themselves a ton of money (be it in the NFL or via NIL) with how they performed over the past three months.`\
 https://nytimes.com/athletic/5963267/2024/12/03/nfl-draft-2025-risers-cam-ward-kaleb-johnson/
-
-**Will the Cardinals trade Nolan Arenado? A potential deal will likely have to wait**\
-`The Cardinals and Arenado could get a better idea of whether a trade can take place at next week's Winter Meetings.`\
-https://nytimes.com/athletic/5964129/2024/12/03/st-louis-cardinals-nolan-arenado-trade/
 

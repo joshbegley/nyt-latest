@@ -1,3 +1,7 @@
+**Why Turnout Wasn’t the Democrats’ Problem**\
+`We explore the data behind that assumption.`\
+https://nytimes.com/2024/12/03/briefing/why-turnout-wasnt-the-democrats-problem.html
+
 **Neale Fraser, Australian tennis legend and Davis Cup captain, dies at 91**\
 `Fraser won 19 major titles and found particular success in doubles.`\
 https://nytimes.com/athletic/5965501/2024/12/03/neale-fraser-tennis-obituary/

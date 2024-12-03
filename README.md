@@ -1,3 +1,15 @@
+**Seniors Need Our Help to Stay in the Homes They Love**\
+`Habitat for Humanity helps older people who can’t afford to make their homes safe and workable as they age.`\
+https://nytimes.com/2024/12/03/opinion/charity-holiday-gift-seniors-habitat-for-humanity.html
+
+**The Pulse: One of Jameis Winston's wildest games**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5963909/2024/12/03/browns-broncos-jameis-winston-the-pulse/
+
+**Chelsea yet to decide on Ugochukwu recall, says Maresca**\
+`Enzo Maresca says Chelsea have yet to make a decision over whether to recall midfielder Lesley Ugochukwu from his loan spell at Southampton next month.`\
+https://nytimes.com/athletic/5965587/2024/12/03/lesley-ugochukwu-southampton-chelsea-transfer/
+
 **Why Turnout Wasn’t the Democrats’ Problem**\
 `We explore the data behind that assumption.`\
 https://nytimes.com/2024/12/03/briefing/why-turnout-wasnt-the-democrats-problem.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5964565/2024/12/03/sam-darnolds-vikings-free-agency
 **The best Mike Tomlin stories: Love, callouts and 'spittin' gold nuggets'**\
 `Players call Tomlin a "philosopher" and "preacher," but that's not why they love him. "You buy in because you can tell he cares," one said.`\
 https://nytimes.com/athletic/5954230/2024/12/03/mike-tomlin-steelers-players-oral-history/
-
-**Maybe Salah knows Man City verdict, jokes Slot over forward’s ‘last game’**\
-`Arne Slot has joked that Mohamed Salah&#8217;s hint that he had played against Manchester City for the final time at Anfield was because the forward believes Liverpool&#8217;s rivals will be relegated, rather than because he will leave at the end of the season when his contract expires.`\
-https://nytimes.com/athletic/5965525/2024/12/03/mohamed-salah-manchester-city-arne-slot/
-
-**Former MVP Taylor Hall reinventing his game, recalibrating his expectations with Blackhawks**\
-`At 33, Hall hopes to bring some of his veteran experience to the Blackhawks' young group and to become the team's most valuable role player.`\
-https://nytimes.com/athletic/5963445/2024/12/03/blackhawks-taylor-hall-nhl-mvp/
-
-**Which 2025 NFL Draft prospects most improved their stock this season?**\
-`Several players likely made themselves a ton of money (be it in the NFL or via NIL) with how they performed over the past three months.`\
-https://nytimes.com/athletic/5963267/2024/12/03/nfl-draft-2025-risers-cam-ward-kaleb-johnson/
 
