@@ -1,3 +1,7 @@
+**How the Colts make the playoffs: Standings, remaining games and the overall picture**\
+`During the bye, the Colts will prepare for a monster game in Denver. Win, and their playoff hopes are alive. Lose, and their season is over.`\
+https://nytimes.com/athletic/5965989/2024/12/03/indianapolis-colts-playoff-odds-anthony-richardson/
+
 **Chaos Plays Out at South Korea’s Legislature Building**\
 `Soldiers wearing helmets and carrying long guns pushed back against people who tried to enter the National Assembly after President Yoon Suk Yeol declared martial law.`\
 https://nytimes.com/2024/12/03/world/asia/south-korea-legislature-chaos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965942/2024/12/03/college-football-fights-flag-pla
 **A Week of Arctic Cold Air and Lake-Effect Snow Is Ahead**\
 `Here’s a day-by-day look at the winter weather forecast.`\
 https://nytimes.com/2024/12/03/weather/weather-snow-cold-forecast.html
-
-**Explained: Javier Mascherno's role in the Premier League's most controversial transfer**\
-`When Inter Miami's new head coach first moved to Europe, he quickly became embroiled in a controversy that rocked the Premier League`\
-https://nytimes.com/athletic/5948977/2024/12/03/mascherano-inter-miami-west-ham-premier-league/
 
