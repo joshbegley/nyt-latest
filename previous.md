@@ -1,3 +1,7 @@
+**49ers' Trent Williams, wife announce death of son after losing twin earlier in pregnancy**\
+`Trent Williams' wife, Sondra, gave birth to their stillborn son, Trenton Jr., at 35 weeks on Nov. 24.`\
+https://nytimes.com/athletic/5964975/2024/12/02/trent-williams-son-sf-49ers/
+
 **U.S. Sending $725 Million in Arms to Ukraine, Including More Land Mines**\
 `The package of military hardware is the largest since a $1 billion drawdown from Pentagon stockpiles was announced in late April.`\
 https://nytimes.com/2024/12/02/us/politics/ukraine-weapons-shipments.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/12/02/opinion/ben-wikler-dnc-chair.html
 **For Iranian Women, Can a Revolution Take Place at Home?**\
 `Inspired by the movement for women’s rights in Iran, Elahe Esmaili returns to her hometown to start her own resistance.`\
 https://nytimes.com/2024/12/02/opinion/iran-women-hijab.html
-
-**A Move**\
-`Inspired by the movement for women’s rights in Iran, Elahe Esmaili returns to her hometown to start her own resistance.`\
-https://nytimes.com/video/opinion/100000009567320/a-move.html
 

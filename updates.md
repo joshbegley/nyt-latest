@@ -1,3 +1,7 @@
+**49ers' Trent Williams, wife announce death of son after losing twin earlier in pregnancy**\
+`Trent Williams' wife, Sondra, gave birth to their stillborn son, Trenton Jr., at 35 weeks on Nov. 24.`\
+https://nytimes.com/athletic/5964975/2024/12/02/trent-williams-son-sf-49ers/
+
 **U.S. Sending $725 Million in Arms to Ukraine, Including More Land Mines**\
 `The package of military hardware is the largest since a $1 billion drawdown from Pentagon stockpiles was announced in late April.`\
 https://nytimes.com/2024/12/02/us/politics/ukraine-weapons-shipments.html
