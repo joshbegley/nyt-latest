@@ -1,3 +1,11 @@
+**Inside the crisis derailing Manchester City's season**\
+`A game in training in which first-team players were outshone by youngsters is one example of the effect a long winless run is having on City`\
+https://nytimes.com/athletic/5946660/2024/12/03/manchester-city-pep-guardiola-liverpool/
+
+**Another Spain women controversy - Why have Hermoso, Paredes and Rodriguez been left out?**\
+`The surprise omission of three of Spain's World Cup winners has led to more debate around the national team`\
+https://nytimes.com/athletic/5962950/2024/12/03/spain-women-hermoso-paredes-rodriguez/
+
 **Edoardo Bove is awake, talking and 'just wants to play' again. His Fiorentina team-mates are waiting**\
 `The midfielder was taken to hospital after losing consciousness during the match against Inter on Sunday. Fiorentina are united behind him`\
 https://nytimes.com/athletic/5962547/2024/12/03/edoardo-bove-fiorentina-serie-a/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/style/holiday-donations.html
 **Quote of the Day: Russia’s Elites Feeling Pinched By Slow Growth**\
 `Quotation of the Day for Tuesday, December 3, 2024.`\
 https://nytimes.com/2024/12/02/pageoneplus/quote-of-the-day-russias-elites-feeling-pinched-by-slow-growth.html
-
-**Does Fraser Minten have a chance to stick with the Leafs?**\
-`The 20-year-old centre is quickly winning his coaches and teammates over with 4 points in five games.`\
-https://nytimes.com/athletic/5965275/2024/12/02/maple-leafs-fraser-minten-centre-blackhawks/
-
-**NFL playoff picture, Week 13: Steelers seize control of AFC North, Bills clinch AFC East**\
-`Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
-https://nytimes.com/athletic/5947479/2024/12/02/nfl-playoff-picture-week-13-update/
 
