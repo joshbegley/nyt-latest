@@ -1,3 +1,11 @@
+**2025 NBA Draft Big Board: Does Cooper Flagg have competition for No. 1 spot?**\
+`Flagg remains at the head of the class, but a flashy point guard from BYU is moving up my top 100 list.`\
+https://nytimes.com/athletic/5948361/2024/12/03/nba-draft-2025-big-board-cooper-flagg-ace-bailey/
+
+**Plymouth not considering sacking Rooney, says chairman**\
+`Plymouth Argyle chairman Simon Hallett has insisted there are “no conversations going on” about replacing Wayne Rooney as manager.`\
+https://nytimes.com/athletic/5965471/2024/12/03/wayne-rooney-plymouth-future/
+
 **Kelleher's form means Alisson won't be rushed back, Slot says**\
 `Arne Slot says he does not need to rush Alisson Becker back from injury due to the form of Caoimhin Kelleher.`\
 https://nytimes.com/athletic/5965495/2024/12/03/alisson-liverpool-kelleher-arne-slot/
