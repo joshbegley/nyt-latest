@@ -1,3 +1,7 @@
+**‘This Is the Land of Wolves Now’: Two Columnists Get to the Heart of Biden’s Pardon**\
+`While the pardon is legal, the rule of law isn’t maintained by merely keeping to the letter of the law.`\
+https://nytimes.com/2024/12/03/opinion/hunter-biden-pardon.html
+
 **New Leicester boss Van Nistelrooy says Man United exit 'hurt'**\
 `Ruud van Nistelrooy says it hurt to leave Manchester United in November after an interim period in charge of the side.`\
 https://nytimes.com/athletic/5965409/2024/12/03/van-nistelrooy-man-united-leicester-exit/
