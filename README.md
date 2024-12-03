@@ -1,3 +1,7 @@
+**Red Sox, Aroldis Chapman in agreement on one-year deal: Source**\
+`The veteran lefty adds more experience to the back end of the Red Sox bullpen.`\
+https://nytimes.com/athletic/5966327/2024/12/03/aroldis-chapman-contract-red-sox-mlb-free-agency/
+
 **Stephen King to Shut Down His 3 Radio Stations in Maine**\
 `The author, who owns the small independent stations in Bangor, said that the decision was prompted by a desire to get his business affairs in order.`\
 https://nytimes.com/2024/12/03/arts/stephen-king-maine-radio-stations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/world/asia/what-is-martial-law-south-korea.html
 **Wisconsin exit interview: Curt Neal's transfer decision, thoughts on Badgers' future**\
 `Neal becomes the second defensive starter to declare he’ll enter the transfer portal, joining outside linebacker Leon Lowery.`\
 https://nytimes.com/athletic/5966242/2024/12/03/curt-neal-wisconsin-college-football-transfer/
-
-**Super Bowl 2025 odds: Bills, Eagles, Chiefs in a dead heat behind Lions**\
-`A new tier has emerged in Super Bowl odds with the Eagles and Bills trending upward. `\
-https://nytimes.com/athletic/5965993/2024/12/03/super-bowl-2025-odds-week-14-bills-eagles-chiefs-tied/
 
