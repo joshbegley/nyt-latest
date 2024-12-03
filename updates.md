@@ -1,3 +1,19 @@
+**The Bounce: How the NBA Cup's next phase is taking shape**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5965631/2024/12/03/nba-cup-spurs-victor-wembanyama-nba-the-bounce/
+
+**Arteta: Manchester clubs not yet out of title race**\
+`Arsenal manager Mikel Arteta said “anything is possible” when asked whether Ruben Amorim can lead Manchester United into the title picture this season.`\
+https://nytimes.com/athletic/5965845/2024/12/03/arsenal-manchester-united-city-arteta/
+
+**Developing Countries Face Record Debt Costs Amid Interest Rate Surge**\
+`The World Bank warned in a new report that poor countries will be stuck in economic “purgatory” without debt relief.`\
+https://nytimes.com/2024/12/03/business/developing-countries-debt-world-bank.html
+
+**Live Updates: South Korean Leader Declares Martial Law**\
+`President Yoon Suk Yeol referred to a threat posed by “anti-state” forces, and criticized attempts by the opposition to impeach him.`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law
+
 **How good is the West Virginia job? The headwinds Neal Brown's replacement will inherit**\
 `There is deep fan support and a proud history here, but can reality line up to expectations in Morgantown?`\
 https://nytimes.com/athletic/5965742/2024/12/03/west-virginia-football-job-profile-candidates/
