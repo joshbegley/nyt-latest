@@ -1,3 +1,11 @@
+**The French Fare at Zimmi’s Is Anything But Routine**\
+`Plus Sal Tang’s brings Cantonese American to Cobble Hill, Dilli Dilli serves Old and New Delhi cuisine, and more restaurant news.`\
+https://nytimes.com/2024/12/03/dining/nyc-restaurant-news.html
+
+**Senate Confirms General’s Promotion After Republican Senator Lifts Hold**\
+`Lt. Gen. Christopher T. Donahue commanded U.S. troops in the final days of the withdrawal from Afghanistan.`\
+https://nytimes.com/2024/12/03/us/politics/general-christopher-donahue-promotion.html
+
 **Red Sox, Aroldis Chapman in agreement on one-year deal: Source**\
 `The veteran lefty adds more experience to the back end of the Red Sox bullpen.`\
 https://nytimes.com/athletic/5966327/2024/12/03/aroldis-chapman-contract-red-sox-mlb-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/technology/nvidia-ai-chips.html
 **She Met Hunter Biden One Night at a Club. Then She Fell in Love.**\
 `A chance meeting in December 2017 plunged Zoë Kestan, a downtown “it” girl and social media star, headlong into an unpredictable affair.`\
 https://nytimes.com/2024/12/03/style/zoe-kestan-hunter-biden.html
-
-**South Korea’s President Declares Martial Law: What to Know**\
-`President Yoon Suk Yeol has been locked in a bitter fight with the opposition, which controls Parliament`\
-https://nytimes.com/2024/12/03/world/asia/what-is-martial-law-south-korea.html
-
-**Wisconsin exit interview: Curt Neal's transfer decision, thoughts on Badgers' future**\
-`Neal becomes the second defensive starter to declare he’ll enter the transfer portal, joining outside linebacker Leon Lowery.`\
-https://nytimes.com/athletic/5966242/2024/12/03/curt-neal-wisconsin-college-football-transfer/
 

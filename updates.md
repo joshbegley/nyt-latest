@@ -1,3 +1,11 @@
+**The French Fare at Zimmi’s Is Anything But Routine**\
+`Plus Sal Tang’s brings Cantonese American to Cobble Hill, Dilli Dilli serves Old and New Delhi cuisine, and more restaurant news.`\
+https://nytimes.com/2024/12/03/dining/nyc-restaurant-news.html
+
+**Senate Confirms General’s Promotion After Republican Senator Lifts Hold**\
+`Lt. Gen. Christopher T. Donahue commanded U.S. troops in the final days of the withdrawal from Afghanistan.`\
+https://nytimes.com/2024/12/03/us/politics/general-christopher-donahue-promotion.html
+
 **Red Sox, Aroldis Chapman in agreement on one-year deal: Source**\
 `The veteran lefty adds more experience to the back end of the Red Sox bullpen.`\
 https://nytimes.com/athletic/5966327/2024/12/03/aroldis-chapman-contract-red-sox-mlb-free-agency/
