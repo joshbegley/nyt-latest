@@ -1,3 +1,11 @@
+**Heat Today: Pat Riley gave us a window into team-building. What does it mean for Heat?**\
+`How does Pat Riley's insight into his front-office philosophy apply to this season’s struggling Heat?`\
+https://nytimes.com/athletic/5965826/2024/12/03/pat-riley-miami-heat-jimmy-butler-tyler-herro-bam-adebayo-nba/
+
+**Western allies and the U.N. are keeping a worried eye on the crisis.**\
+`In Washington, London and New York, officials voiced concern over the power struggle between the president and lawmakers in South Korea.`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/western-allies-and-the-un-are-keeping-a-worried-eye-on-the-crisis
+
 **Tiny Love Stories: ‘I Surrendered and Played Along’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/12/03/style/tiny-modern-love-stories-i-surrendered-and-played-along.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/arts/design/prizefighting-show-west-palm-beach.ht
 **A Los Angeles Gallery Brings Bold Art, and Vision, to Miami Beach**\
 `In 2012, Esther Kim Varet founded the gallery Various Small Fires out of her home. It has since gone multinational, and Kim Varet is still pushing the envelope.`\
 https://nytimes.com/2024/12/03/arts/design/los-angeles-gallery-art-basel-miami-beach.html
-
-**In Angola, Biden Warns That Slavery’s History Should Not be Erased**\
-`In becoming the first American leader to visit Angola, President Biden said it was important not to forget the ugly legacy that originally defined relations with Africa.`\
-https://nytimes.com/2024/12/03/world/africa/angola-biden-slavery.html
-
-**Frieze Fair Further Cements Los Angeles as an International Art Capital**\
-`The sixth edition of the fair in February will have considerably more attendees from Latin America, Europe and Asia.`\
-https://nytimes.com/2024/12/03/arts/design/frieze-los-angeles-art-scene.html
 
