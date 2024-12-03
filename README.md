@@ -1,3 +1,7 @@
+**Venice Biennale Names Koyo Kouoh as Next Curator**\
+`Kouoh, who was born in Cameroon and currently leads one of Africa’s most important art museums, will organize the 61st edition, in 2026.`\
+https://nytimes.com/2024/12/03/arts/design/venice-biennale-curator-koyo-kouoh.html
+
 **Trump Will Have Enormous Power Over Climate Action. Here’s Why.**\
 `Presidents have extraordinary control over climate policy, in part, because it’s been decades since Congress has passed a comprehensive environmental bill.`\
 https://nytimes.com/2024/12/03/climate/donald-trump-climate-change-policy-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966499/2024/12/03/patrik-laine-debut-canadiens-isl
 **War Doesn’t Work Anymore**\
 `In a nuclear conflict, total victory is not an option. We might as well stop pretending it is.`\
 https://nytimes.com/2024/12/03/special-series/oppenheimer-nuclear-bombs-war.html
-
-**Amazon to air documentary about Real Madrid's 2023-24 Champions League win**\
-`A documentary about Real Madrid’s Champions League triumph in the 2023-24 season will be released on Amazon Prime in the near future.`\
-https://nytimes.com/athletic/5966403/2024/12/03/real-madrid-amazon-documentary/
 
