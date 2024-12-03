@@ -1,3 +1,7 @@
+**Ravens' John Harbaugh mum on Diontae Johnson's status with team**\
+`Since joining Baltimore via trade in October, Johnson has just one catch in five games.`\
+https://nytimes.com/athletic/5965768/2024/12/03/diontae-johnson-ravens-john-harbaugh/
+
 **LeBron James' slump and 'nasty' Lakers offense hit new lows in loss to Minnesota**\
 `James is in one of the worst shooting skids of his career and has LA rethinking his goal of playing in all 82 games.`\
 https://nytimes.com/athletic/5965032/2024/12/03/lakers-lebron-james-offense-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/business/dealbook/musk-tesla-pay-delaware.html
 **College football bowl projections: For Alabama and Miami, it's the CFP or Orlando**\
 `How much will Tuesday night's rankings differ from Sunday's final bracket? Teams are mere days from learning their destinations.`\
 https://nytimes.com/athletic/5915859/2024/12/03/college-football-bowl-projections-9/
-
-**Ancelotti: Tchouameni ready to start against Athletic Club**\
-`Real Madrid head coach Carlo Ancelotti says Aurelien Tchouameni is ready to return from an ankle injury.`\
-https://nytimes.com/athletic/5965643/2024/12/03/aurelien-tchouameni-real-madrid-injury-return/
 
