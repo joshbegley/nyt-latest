@@ -1,3 +1,15 @@
+**Pro-Government Airstrikes Damage Hospitals in Rebel-Held Syrian City**\
+`The director of Idlib University Hospital said his facility was one of two knocked out of service by Monday’s strikes.`\
+https://nytimes.com/video/world/middleeast/100000009855922/syrian-russian-warplanes-hospitals-idlib-airstrikes.html
+
+**Dai Yongge rejects Reading takeover bid from ex chairman Roger Smee**\
+`Reading owner Dai Yongge has rejected a bid for the League One club from former chairman Roger Smee in a move that raises serious doubts about his desire to sell the club.`\
+https://nytimes.com/athletic/5966198/2024/12/03/smee-dai-reading-bid-rejected/
+
+**A Geopolitical Cauldron Simmers in Syria After Rebel Attacks**\
+`Iran and Russia, both stretched by conflicts of their own, have experienced setbacks in Syria after a rebel offensive in the northwest of the country.`\
+https://nytimes.com/2024/12/03/world/middleeast/syria-rebel-offensive-iran-russia.html
+
 **You Want That Gift to Arrive Today? This Is What It Takes.**\
 `Retailers like Amazon, Walmart and Target have figured out that if they get you your online order today, you will probably spend more tomorrow.`\
 https://nytimes.com/2024/12/03/business/amazon-same-day-delivery.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/03/world/asia/south-korea-legislature-chaos.html
 **Who sits on the mysterious and powerful College Football Playoff committee?**\
 `There are 13 members on the College Football Playoff committee. Who are they, and what is their background in the sport?`\
 https://nytimes.com/athletic/5965850/2024/12/03/college-football-playoff-committee-members/
-
-**Final Defendants in YSL Trial Are Acquitted of Murder and Gang Charges**\
-`The winding, yearslong case against the star Atlanta rapper Young Thug, who recently pleaded guilty to gang charges, and five others concluded on Tuesday.`\
-https://nytimes.com/2024/12/03/arts/music/ysl-trial-defendants-aquitted.html
-
-**Arts Galas Show That Extravagance Never Goes Out of Style**\
-`They are costly, labor-intensive and seemingly dated, but cultural organizations say black-tie dinners remain essential to pleasing donors and paying the bills.`\
-https://nytimes.com/2024/12/03/arts/design/arts-organization-galas-donors.html
-
-**Maple-Miso Salmon, Lemony Chicken Breasts and Broccoli Pesto**\
-`Light-but-satisfying dinners to fuel you for all that cookie-making.`\
-https://nytimes.com/2024/12/03/dining/salmon-chicken-pesto-recipes.html
 
