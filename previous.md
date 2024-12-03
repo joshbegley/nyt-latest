@@ -1,3 +1,11 @@
+**Children Worked Dangerous Shifts at Iowa Slaughterhouse, Inquiry Finds**\
+`Qvest Sanitation was ordered to pay nearly $172,000 after the Labor Department found it had employed 11 children to clean equipment on overnight shifts at a pork processing plant in Sioux City, Iowa.`\
+https://nytimes.com/2024/12/03/business/iowa-pork-plant-child-labor.html
+
+**How good is the UCF job? What's next for the Knights with Gus Malzahn gone to FSU**\
+`UCF has experienced high highs and low lows over the past 20 years. How can it unlock its potential in the revamped Big 12?`\
+https://nytimes.com/athletic/5967157/2024/12/03/ucf-football-job-profile-candidates/
+
 **Can Rahm Emanuel Flip the Script Again?**\
 `The former Clinton and Obama aide has a gift for constructing winning coalitions.`\
 https://nytimes.com/2024/12/03/opinion/democrats-rahm-emanuel-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/us/louisiana-catholic-priest-rape-guilty.html
 **Trump’s Pick to Lead D.E.A. Withdraws, Citing ‘Gravity’ of Job**\
 `The announcement by Chad Chronister, a Florida sheriff with virtually no experience in the kinds of complex international investigations the agency handles, comes just three days after his selection.`\
 https://nytimes.com/2024/12/03/us/politics/chad-chronister-dea-trump.html
-
-**Republican Lawmakers in Georgia Press Case for Fani Willis Testimony**\
-`Ms. Willis, who charged Mr. Trump in connection with his efforts to cling to power after the 2020 election, came under scrutiny over her relationship with a lawyer she hired to lead the case.`\
-https://nytimes.com/2024/12/03/us/fani-willis-trump-georgia-case.html
-
-**Canada 4 Nations roster: What we’re hearing about who made the cut and why**\
-`In speaking to dozens of sources across the NHL early this week, The Athletic has gotten a good sense of the roster — and the final debates.`\
-https://nytimes.com/athletic/5966939/2024/12/03/canada-roster-decisions-4-nations-face-off/
 

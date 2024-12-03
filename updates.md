@@ -1,3 +1,11 @@
+**Children Worked Dangerous Shifts at Iowa Slaughterhouse, Inquiry Finds**\
+`Qvest Sanitation was ordered to pay nearly $172,000 after the Labor Department found it had employed 11 children to clean equipment on overnight shifts at a pork processing plant in Sioux City, Iowa.`\
+https://nytimes.com/2024/12/03/business/iowa-pork-plant-child-labor.html
+
+**How good is the UCF job? What's next for the Knights with Gus Malzahn gone to FSU**\
+`UCF has experienced high highs and low lows over the past 20 years. How can it unlock its potential in the revamped Big 12?`\
+https://nytimes.com/athletic/5967157/2024/12/03/ucf-football-job-profile-candidates/
+
 **Can Rahm Emanuel Flip the Script Again?**\
 `The former Clinton and Obama aide has a gift for constructing winning coalitions.`\
 https://nytimes.com/2024/12/03/opinion/democrats-rahm-emanuel-china.html
