@@ -1,3 +1,11 @@
+**U.S. Moves to End a Minimum Wage Waiver for Disabled Workers**\
+`A plan by the Biden administration would end a provision that allowed employers to pay workers with disabilities less than the federal minimum wage.`\
+https://nytimes.com/2024/12/03/business/economy/labor-disability-pay.html
+
+**Tiger: Ryder Cup should give more to players' charities**\
+`Woods, who is still recovering from back surgery, said American players should get as much as "$5 million each" but then "donate it all."`\
+https://nytimes.com/athletic/5965971/2024/12/03/tiger-woods-ryder-cup-pay-charity/
+
 **Can college football really stop flag-planting?**\
 `For college sports leaders, the focus after a emotional final weekend is on how to stop the extracurriculars from happening again.`\
 https://nytimes.com/athletic/5965942/2024/12/03/college-football-fights-flag-planting-penalties/
