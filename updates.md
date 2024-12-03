@@ -1,3 +1,15 @@
+**Seniors Need Our Help to Stay in the Homes They Love**\
+`Habitat for Humanity helps older people who can’t afford to make their homes safe and workable as they age.`\
+https://nytimes.com/2024/12/03/opinion/charity-holiday-gift-seniors-habitat-for-humanity.html
+
+**The Pulse: One of Jameis Winston's wildest games**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5963909/2024/12/03/browns-broncos-jameis-winston-the-pulse/
+
+**Chelsea yet to decide on Ugochukwu recall, says Maresca**\
+`Enzo Maresca says Chelsea have yet to make a decision over whether to recall midfielder Lesley Ugochukwu from his loan spell at Southampton next month.`\
+https://nytimes.com/athletic/5965587/2024/12/03/lesley-ugochukwu-southampton-chelsea-transfer/
+
 **Why Turnout Wasn’t the Democrats’ Problem**\
 `We explore the data behind that assumption.`\
 https://nytimes.com/2024/12/03/briefing/why-turnout-wasnt-the-democrats-problem.html
