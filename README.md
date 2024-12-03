@@ -1,3 +1,19 @@
+**NFL suspends Texans' Al-Shaair 3 games following late hit on Lawrence**\
+`Al-Shaair apologized Monday for his shot on Trevor Lawrence, who left Sunday's game with a concussion after the blow on a slide.`\
+https://nytimes.com/athletic/5963576/2024/12/03/azeez-al-shaair-suspension-texans/
+
+**Rihanna Steals the Fashion Awards**\
+`And a dozen other looks that made news at Britain’s Met Gala of style.`\
+https://nytimes.com/2024/12/03/style/rihanna-fashion-awards-best-dressed.html
+
+**O'Neil has 'zero concerns' over Wolves future: 'We aren't too far away'**\
+`Wolves boss Gary O’Neil says he is ready to let results determine his future and insists he has “zero concerns” about the possibility of the sack.`\
+https://nytimes.com/athletic/5965843/2024/12/03/wolves-oneil-future-sack/
+
+**South Korean Leader Declares Martial Law in Fight With Political Opposition**\
+`President Yoon Suk Yeol evoked a threat posed by ‘anti-state’ forces, and criticized attempts by the opposition to impeach him.`\
+https://nytimes.com/2024/12/03/world/asia/south-korea-martial-law-yoon.html
+
 **The Okinawan Tried-and-Tested Recipe for Longevity**\
 ` `\
 https://nytimes.com/paidpost/the-okinawan-tried-and-tested-recipe-for-longevity/the-okinawan-tried-and-tested-recipe-for-longevity.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5961369/2024/12/03/giannis-antetokounmpo-taurean-pr
 **NBA Power Rankings: Hey, how's the new guy doing?**\
 `Other risers this week include the Bucks, Mavericks and Hawks, while the teams at the top have benefited from continuity.`\
 https://nytimes.com/athletic/5965547/2024/12/03/nba-power-rankings-celtics-cavs-rockets-lakers/
-
-**Ravens' John Harbaugh mum on Diontae Johnson's status with team**\
-`Since joining Baltimore via trade in October, Johnson has just one catch in five games.`\
-https://nytimes.com/athletic/5965768/2024/12/03/diontae-johnson-ravens-john-harbaugh/
-
-**LeBron James' slump and 'nasty' Lakers offense hit new lows in loss to Minnesota**\
-`James is in one of the worst shooting skids of his career and has LA rethinking his goal of playing in all 82 games.`\
-https://nytimes.com/athletic/5965032/2024/12/03/lakers-lebron-james-offense-loss/
-
-**Fighting Worsens Already Dire Conditions in Northwestern Syria**\
-`Years of war and a powerful earthquake had led to crushing poverty, displacement and breakdowns in services. But over the last several days, the region’s misery deepened.`\
-https://nytimes.com/2024/12/03/world/middleeast/syria-civil-war-rebels-aleppo.html
-
-**The Chargers passing offense isn't producing, so why isn't DJ Chark getting a shot?**\
-`Chark has been off injured reserve for a month now but has only played three offensive snaps since his return. `\
-https://nytimes.com/athletic/5964977/2024/12/03/chargers-dj-chark-offense-struggling/
 
