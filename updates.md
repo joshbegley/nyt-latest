@@ -1,3 +1,7 @@
+**Keeping a Dance Alive, Even After the Show Ends**\
+`At Art Basel Miami Beach, the Mexican choreographer Diego Vega Solorza explores masculinity in a new work and his gallery sells objects from performances.`\
+https://nytimes.com/2024/12/03/arts/design/diego-vega-solorza-art-basel-miami-beach.html
+
 **5 Art Fairs to See in 2025**\
 `From San Francisco to Tokyo and beyond, these art fairs offer something for everyone.`\
 https://nytimes.com/2024/12/03/arts/design/art-fairs.html
