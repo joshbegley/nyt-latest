@@ -1,3 +1,11 @@
+**Cowboys Today: Fans' feelings are showing during Dallas' disappointing season**\
+`The Cowboys have won two in a row, but are 5-7, are lagging in Pro Bowl voting and fan enthusiasm has dwindled.`\
+https://nytimes.com/athletic/5966223/2024/12/03/cowboys-today-playoff-loss-packers-pro-bowl-voting/
+
+**Tennis Briefing: Is there a ranking point racket? What next for Patrick Mouratoglou's UTS?**\
+`Ranking points cause controversy on the Challenger Tour as the off-season begins`\
+https://nytimes.com/athletic/5962481/2024/12/03/tennis-rankings-atp-challenger-karue-sell/
+
 **Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
 `Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/5966347/2024/12/03/st-louis-blues-jeremy-rutherford-mailbag-december-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5966216/2024/12/03/dana-dimel-death-illinois-kansas
 **Pro-Government Airstrikes Damage Hospitals in Rebel-Held Syrian City**\
 `The director of Idlib University Hospital said his facility was one of two knocked out of service by Monday’s strikes.`\
 https://nytimes.com/video/world/middleeast/100000009855922/syrian-russian-warplanes-hospitals-idlib-airstrikes.html
-
-**Dai Yongge rejects Reading takeover bid from ex chairman Roger Smee**\
-`Reading owner Dai Yongge has rejected a bid for the League One club from former chairman Roger Smee in a move that raises serious doubts about his desire to sell the club.`\
-https://nytimes.com/athletic/5966198/2024/12/03/smee-dai-reading-bid-rejected/
-
-**A Geopolitical Cauldron Simmers in Syria After Rebel Attacks**\
-`Iran and Russia, both stretched by conflicts of their own, have experienced setbacks in Syria after a rebel offensive in the northwest of the country.`\
-https://nytimes.com/2024/12/03/world/middleeast/syria-rebel-offensive-iran-russia.html
 
