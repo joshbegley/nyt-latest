@@ -1,3 +1,11 @@
+**Heat Today: Pat Riley gave us a window into team-building. What does it mean for Heat?**\
+`How does Pat Riley's insight into his front-office philosophy apply to this season’s struggling Heat?`\
+https://nytimes.com/athletic/5965826/2024/12/03/pat-riley-miami-heat-jimmy-butler-tyler-herro-bam-adebayo-nba/
+
+**Western allies and the U.N. are keeping a worried eye on the crisis.**\
+`In Washington, London and New York, officials voiced concern over the power struggle between the president and lawmakers in South Korea.`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/western-allies-and-the-un-are-keeping-a-worried-eye-on-the-crisis
+
 **Tiny Love Stories: ‘I Surrendered and Played Along’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/12/03/style/tiny-modern-love-stories-i-surrendered-and-played-along.html
