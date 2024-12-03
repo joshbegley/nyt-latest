@@ -1,3 +1,7 @@
+**LeBron James' slump and 'nasty' Lakers offense hit new lows in loss to Minnesota**\
+`James is in one of the worst shooting skids of his career and has LA rethinking his goal of playing in all 82 games.`\
+https://nytimes.com/athletic/5965032/2024/12/03/lakers-lebron-james-offense-loss/
+
 **Fighting Worsens Already Dire Conditions in Northwestern Syria**\
 `Years of war and a powerful earthquake had led to crushing poverty, displacement and breakdowns in services. But over the last several days, the region’s misery deepened.`\
 https://nytimes.com/2024/12/03/world/middleeast/syria-civil-war-rebels-aleppo.html
