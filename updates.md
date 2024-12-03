@@ -1,3 +1,11 @@
+**Venice Biennale Names Koyo Kouoh as Next Curator**\
+`Kouoh, who was born in Cameroon and currently leads one of Africa’s most important art museums, will organize the 61st edition, in 2026.`\
+https://nytimes.com/2024/12/03/arts/design/venice-biennale-curator-koyo-kouoh.html
+
+**Trump Will Have Enormous Power Over Climate Action. Here’s Why.**\
+`Presidents have extraordinary control over climate policy, in part, because it’s been decades since Congress has passed a comprehensive environmental bill.`\
+https://nytimes.com/2024/12/03/climate/donald-trump-climate-change-policy-power.html
+
 **Martial Law in South Korea Tests Biden and a Key U.S. Alliance**\
 `The Biden administration has hailed South Korea as a model democracy and bolstered military ties as it relies on the country as a bulwark against North Korea, China and Russia.`\
 https://nytimes.com/2024/12/03/us/politics/south-korea-martial-law-united-states.html
