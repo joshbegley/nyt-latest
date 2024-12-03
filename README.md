@@ -1,3 +1,15 @@
+**Final Defendants in YSL Trial Are Acquitted of Murder and Gang Charges**\
+`The winding, yearslong case against the star Atlanta rapper Young Thug, who recently pleaded guilty to gang charges, and five others concluded on Tuesday.`\
+https://nytimes.com/2024/12/03/arts/music/ysl-trial-defendants-aquitted.html
+
+**Arts Galas Show That Extravagance Never Goes Out of Style**\
+`They are costly, labor-intensive and seemingly dated, but cultural organizations say black-tie dinners remain essential to pleasing donors and paying the bills.`\
+https://nytimes.com/2024/12/03/arts/design/arts-organization-galas-donors.html
+
+**Maple-Miso Salmon, Lemony Chicken Breasts and Broccoli Pesto**\
+`Light-but-satisfying dinners to fuel you for all that cookie-making.`\
+https://nytimes.com/2024/12/03/dining/salmon-chicken-pesto-recipes.html
+
 **U.S. Moves to End a Minimum Wage Waiver for Disabled Workers**\
 `A plan by the Biden administration would end a provision that allowed employers to pay workers with disabilities less than the federal minimum wage.`\
 https://nytimes.com/2024/12/03/business/economy/labor-disability-pay.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/03/world/asia/president-yoon-speech-martial-law.html
 **Ex-Giants are thriving around NFL. It's more pain for fans, more reason to question GM Joe Schoen**\
 `As the Giants bottom out in Year 3 of Schoen’s regime, it’s hard to reconcile why he’s let a handful of his best players leave.`\
 https://nytimes.com/athletic/5965221/2024/12/03/giants-joe-schoen-saquon-barkley-xavier-mckinney-nfl/
-
-**NHL Playoff Report: Leafs and Devils on the rise, Rangers and Senators falling off**\
-`As it stands, there are probably two spots up for grabs in the East, while in the West it'd be a surprise if the eight spots weren’t set.`\
-https://nytimes.com/athletic/5964067/2024/12/03/nhl-playoff-report-november-leafs-devils-rangers-senators/
-
-**The Climate Crisis Is Bigger Than Any News Cycle**\
-`Companies continue to invest in sustainability, though many are no longer broadcasting it.`\
-https://nytimes.com/2024/12/03/special-series/patagonia-ceo-sustainability-greenwashing.html
-
-**Fantasy football Week 14 drops: Sever ties with Kirk Cousins, Gus Edwards**\
-`Gary Davenport helps you trim the fat to prepare for the fantasy football playoffs.`\
-https://nytimes.com/athletic/5965849/2024/12/03/fantasy-football-week-14-drops-kirk-cousins-gus-edwards/
 
