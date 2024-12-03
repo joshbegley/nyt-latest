@@ -1,5 +1,5 @@
 **New Leicester boss Van Nistelrooy says Man United exit 'hurt'**\
-`Ruud van Nistelrooy says it hurt to leave Manchester United in November after an interim period in charge of the side.`\
+`Ruud van Nistelrooy says it hurt to leave Manchester United in November after an interim period in charge.`\
 https://nytimes.com/athletic/5965409/2024/12/03/van-nistelrooy-man-united-leicester-exit/
 
 **Jurors Set to Weigh Penny’s Fate in Choking Case That Divided New York**\
