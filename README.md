@@ -1,3 +1,15 @@
+**How Fred VanVleet's lessons with Raptors are paving way for Rockets renaissance**\
+`"I didn’t want to make that same mistake here,” VanVleet said of coming to Houston with a new mindset after leaving Toronto. `\
+https://nytimes.com/athletic/5953784/2024/12/03/fred-vanvleet-raptors-rockets-exclusive/
+
+**White House Defends Pardon, and Israel and Hezbollah Trade Fire**\
+`Plus, mail trucks get a “goofy” upgrade.`\
+https://nytimes.com/2024/12/03/podcasts/biden-pardon-defend-supreme-court-ethics-israel-hezbollah-truce.html
+
+**White-hot Sam Darnold has Vikings in position to do some damage: 'It's winning football'**\
+`Could the Vikings aim to re-sign the 27-year-old quarterback, who has played so well in leading them to a 10-2 record, this offseason?`\
+https://nytimes.com/athletic/5964565/2024/12/03/sam-darnolds-vikings-free-agency-offseason/
+
 **The best Mike Tomlin stories: Love, callouts and 'spittin' gold nuggets'**\
 `Players call Tomlin a "philosopher" and "preacher," but that's not why they love him. "You buy in because you can tell he cares," one said.`\
 https://nytimes.com/athletic/5954230/2024/12/03/mike-tomlin-steelers-players-oral-history/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/03/crosswords/connections-companion-542.html
 **When the President Pardons His Son**\
 `It has never happened before.`\
 https://nytimes.com/2024/12/03/podcasts/the-daily/when-the-president-pardons-his-son.html
-
-**Stock watch: Are Miami's Playoff hopes gone? What now for Ohio State?**\
-`Why Tennessee is rising, Miami is falling and Ohio State, Texas and Clemson are steady in the College Football Playoff race.`\
-https://nytimes.com/athletic/5964140/2024/12/03/college-football-playoff-odds-osu-miami-tennessee/
-
-**Wordle Review No. 1,264**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 4, 2024.`\
-https://nytimes.com/2024/12/03/crosswords/wordle-review-1264.html
-
-**China Bans Rare Mineral Exports to the U.S.**\
-`The move comes a day after the Biden administration expanded curbs on the sale of advanced American technology to China.`\
-https://nytimes.com/2024/12/03/world/asia/china-minerals-semiconductors.html
 
