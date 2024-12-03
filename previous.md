@@ -1,3 +1,7 @@
+**Former UTEP coach, K-State assistant Dimel dies at 62**\
+`A former All-American offensive tackle at Kansas State in the 1980s, Dimel spent 19 seasons as a K-State assistant.`\
+https://nytimes.com/athletic/5966216/2024/12/03/dana-dimel-death-illinois-kansas-state/
+
 **Pro-Government Airstrikes Damage Hospitals in Rebel-Held Syrian City**\
 `The director of Idlib University Hospital said his facility was one of two knocked out of service by Monday’s strikes.`\
 https://nytimes.com/video/world/middleeast/100000009855922/syrian-russian-warplanes-hospitals-idlib-airstrikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965989/2024/12/03/indianapolis-colts-playoff-odds-
 **Chaos Plays Out at South Korea’s Legislature Building**\
 `Soldiers wearing helmets and carrying long guns pushed back against people who tried to enter the National Assembly after President Yoon Suk Yeol declared martial law.`\
 https://nytimes.com/2024/12/03/world/asia/south-korea-legislature-chaos.html
-
-**Who sits on the mysterious and powerful College Football Playoff committee?**\
-`There are 13 members on the College Football Playoff committee. Who are they, and what is their background in the sport?`\
-https://nytimes.com/athletic/5965850/2024/12/03/college-football-playoff-committee-members/
 

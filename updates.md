@@ -1,3 +1,7 @@
+**Former UTEP coach, K-State assistant Dimel dies at 62**\
+`A former All-American offensive tackle at Kansas State in the 1980s, Dimel spent 19 seasons as a K-State assistant.`\
+https://nytimes.com/athletic/5966216/2024/12/03/dana-dimel-death-illinois-kansas-state/
+
 **Pro-Government Airstrikes Damage Hospitals in Rebel-Held Syrian City**\
 `The director of Idlib University Hospital said his facility was one of two knocked out of service by Monday’s strikes.`\
 https://nytimes.com/video/world/middleeast/100000009855922/syrian-russian-warplanes-hospitals-idlib-airstrikes.html
