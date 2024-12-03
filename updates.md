@@ -1,3 +1,19 @@
+**Morton I. Abramowitz, Diplomat Who Made Refugees a Priority, Dies at 91**\
+`As ambassador to Thailand and Turkey, and later as president of the Carnegie Endowment, he pushed for making human rights central to foreign policy.`\
+https://nytimes.com/2024/12/03/us/morton-i-abramowitz-dead.html
+
+**How Polarized Politics Led South Korea to a Plunge Into Martial Law**\
+`Yoon Suk Yeol’s decree, and his reversal under pressure from lawmakers, were the culmination of years of feuding between the country’s two main political camps.`\
+https://nytimes.com/2024/12/03/world/asia/south-korea-yoon-martial-law.html
+
+**Biden Said U.S. Targeted His Son. Eric Adams Suggests He Can Relate.**\
+`The mayor has argued that he was indicted because he criticized border policies. He also said that he has rights that migrants do not because “the Constitution is for Americans.”`\
+https://nytimes.com/2024/12/03/nyregion/adams-pardon-biden-trump.html
+
+**Guardiola: No fall out with De Bruyne**\
+`Pep Guardiola has dismissed the idea that he has fallen out with Manchester City midfielder Kevin De Bruyne.`\
+https://nytimes.com/athletic/5965802/2024/12/03/manchester-city-guardiola-de-bruyne/
+
 **Commanders name Mark Clouse team president**\
 `Clouse has been the president and chief executive officer of The Campbell's Company since 2019.`\
 https://nytimes.com/athletic/5967207/2024/12/03/washington-commanders-team-president-mark-clouse/
