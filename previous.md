@@ -1,3 +1,7 @@
+**After Biden Pardons His Son, Prison Inmates Hope They’re Next**\
+`President Biden has pardoned people convicted of some marijuana offenses, but advocates for prisoners say he has been slow to grant other requests.`\
+https://nytimes.com/2024/12/02/us/biden-pardons-clemency-prisoners.html
+
 **Corrections: Dec. 3, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 3, 2024.`\
 https://nytimes.com/2024/12/02/pageoneplus/corrections-dec-3-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/02/us/politics/britain-ambassador-trump-stephens.htm
 **2025 WNBA schedule release: Why doesn't the winner earn more? Plus, crypto as prize pool money?**\
 `Some noteworthy numbers were released Monday afternoon when the WNBA dropped its 2025 schedule. `\
 https://nytimes.com/athletic/5964328/2024/12/02/2025-wnba-schedule-release-winner-earnings-crypto/
-
-**LeBrun rumblings: What the Devils, Panthers and Hurricanes are looking for early in the trade market**\
-`Devils' Tom Fitzgerald: "You can’t have enough depth. I’ve been in touch with teams. I’m looking for utility players … guys who can skate."`\
-https://nytimes.com/athletic/5964808/2024/12/02/devils-panthers-hurricanes-nhl-rumblings/
 
