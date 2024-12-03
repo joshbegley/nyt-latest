@@ -1,3 +1,7 @@
+**NFL interim coaches rarely last. Can the Bears' Thomas Brown be different?**\
+`Brown has a connection with Caleb Williams, buy-in from the locker room and an endorsement from Sean McVay. Will it be enough?`\
+https://nytimes.com/athletic/5964645/2024/12/03/bears-interim-coach-thomas-brown-matt-eberflus/
+
 **How Fred VanVleet's lessons with Raptors are paving way for Rockets renaissance**\
 `"I didn’t want to make that same mistake here,” VanVleet said of coming to Houston with a new mindset after leaving Toronto. `\
 https://nytimes.com/athletic/5953784/2024/12/03/fred-vanvleet-raptors-rockets-exclusive/
