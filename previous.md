@@ -1,3 +1,15 @@
+**Kelleher's form means Alisson won't be rushed back, Slot says**\
+`Arne Slot says he does not need to rush Alisson Becker back from injury due to the form of Caoimhin Kelleher.`\
+https://nytimes.com/athletic/5965495/2024/12/03/alisson-liverpool-kelleher-arne-slot/
+
+**Juan Martin del Potro shows tennis how to say goodbye**\
+`Del Potro's last dance with Djokovic was not the last search for glory we've seenin recent times from some of his contemporaries`\
+https://nytimes.com/athletic/5964322/2024/12/03/juan-martin-del-potro-tennis-retirement-last-match-djokovic/
+
+**'No conversations' to replace Rooney says Plymouth Argyle chairman**\
+`Plymouth Argyle chairman Simon Hallett has insisted there are “no conversations going on” about replacing Wayne Rooney as manager.`\
+https://nytimes.com/athletic/5965471/2024/12/03/wayne-rooney-plymouth-future/
+
 **The Jameis Winston roller coaster was on full display in Browns' loss to Broncos**\
 `An offensive explosion by Winston and WR Jerry Jeudy wasn't enough as Cleveland lost its fifth straight road game. `\
 https://nytimes.com/athletic/5965373/2024/12/03/browns-loss-jameis-winston-jerry-jeudy-broncos/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/03/opinion/nyt-communities-fund.html
 **What Kash Patel Could Do to the F.B.I.**\
 `The true danger is almost less about the pick and more about what it says about Trump’s approach to his second term.`\
 https://nytimes.com/2024/12/03/opinion/kash-patel-trump-fbi.html
-
-**Project 2025, Mar-a-Lago and Fox News: What Connects Trump’s New Staff Picks**\
-`See the<strong> links between </strong>more than 60 figures the president-elect wants for cabinet and other senior positions: billionaires, lobbyists, Fox personalities and more.`\
-https://nytimes.com/interactive/2024/12/03/us/politics/trump-cabinet-administration-picks.html
-
-**‘Politics Failed’: Top U.N. Envoy Says Gaza War Followed Years of Weak Diplomacy**\
-`World leaders failed to focus on a permanent solution to the Israeli-Palestinian conflict and risk making the same mistake again, the departing United Nations’ envoy in the region says.`\
-https://nytimes.com/2024/12/03/world/middleeast/israel-gaza-palestinian-state-un-envoy.html
-
-**Rahm Emanuel’s Plan for a Democratic Comeback in 2026**\
-`The politician discusses what lessons he thinks Democrats have forgotten.`\
-https://nytimes.com/2024/12/03/opinion/ezra-klein-podcast-rahm-emanuel.html
 
