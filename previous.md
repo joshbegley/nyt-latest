@@ -1,3 +1,7 @@
+**The Jameis Winston roller coaster was on full display in Browns' loss to Broncos**\
+`An offensive explosion by Winston and WR Jerry Jeudy wasn't enough as Cleveland lost its fifth straight road game. `\
+https://nytimes.com/athletic/5965373/2024/12/03/browns-loss-jameis-winston-jerry-jeudy-broncos/
+
 **Why Israel and Hezbollah Are Still Firing Amid a Cease-Fire**\
 `Some violations of the truce, and some amount of violence, are to be expected, analysts say, and do not necessarily mean the deal will collapse and war will resume anytime soon.`\
 https://nytimes.com/2024/12/03/world/middleeast/israel-hezbollah-cease-fire-violations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/world/middleeast/israel-gaza-palestinian-state-un
 **Rahm Emanuel’s Plan for a Democratic Comeback in 2026**\
 `The politician discusses what lessons he thinks Democrats have forgotten.`\
 https://nytimes.com/2024/12/03/opinion/ezra-klein-podcast-rahm-emanuel.html
-
-**It Can’t Be Assumed That Higher Turnout Would Have Helped Harris**\
-`Voting records suggest Democrats who stayed home were less likely to support her, with no equivalent drop-off in Trump support among Republicans.`\
-https://nytimes.com/2024/12/03/upshot/election-turnout-harris-trump.html
 
