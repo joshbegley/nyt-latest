@@ -1,3 +1,11 @@
+**How the Colts make the playoffs: Standings, remaining games and the overall picture**\
+`During the bye, the Colts will prepare for a monster game in Denver. Win, and their playoff hopes are alive. Lose, and their season is over.`\
+https://nytimes.com/athletic/5965989/2024/12/03/indianapolis-colts-playoff-odds-anthony-richardson/
+
+**Chaos Plays Out at South Korea’s Legislature Building**\
+`Soldiers wearing helmets and carrying long guns pushed back against people who tried to enter the National Assembly after President Yoon Suk Yeol declared martial law.`\
+https://nytimes.com/2024/12/03/world/asia/south-korea-legislature-chaos.html
+
 **Who sits on the mysterious and powerful College Football Playoff committee?**\
 `There are 13 members on the College Football Playoff committee. Who are they, and what is their background in the sport?`\
 https://nytimes.com/athletic/5965850/2024/12/03/college-football-playoff-committee-members/
