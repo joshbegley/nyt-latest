@@ -1,3 +1,7 @@
+**Who sits on the mysterious and powerful College Football Playoff committee?**\
+`There are 13 members on the College Football Playoff committee. Who are they, and what is their background in the sport?`\
+https://nytimes.com/athletic/5965850/2024/12/03/college-football-playoff-committee-members/
+
 **Final Defendants in YSL Trial Are Acquitted of Murder and Gang Charges**\
 `The winding, yearslong case against the star Atlanta rapper Young Thug, who recently pleaded guilty to gang charges, and five others concluded on Tuesday.`\
 https://nytimes.com/2024/12/03/arts/music/ysl-trial-defendants-aquitted.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5948977/2024/12/03/mascherano-inter-miami-west-ham-
 **President Yoon’s Speech Declaring Martial Law**\
 `President Yoon Suk Yeol made the extraordinary declaration in an unannounced speech to the nation on Tuesday night.`\
 https://nytimes.com/2024/12/03/world/asia/president-yoon-speech-martial-law.html
-
-**Ex-Giants are thriving around NFL. It's more pain for fans, more reason to question GM Joe Schoen**\
-`As the Giants bottom out in Year 3 of Schoen’s regime, it’s hard to reconcile why he’s let a handful of his best players leave.`\
-https://nytimes.com/athletic/5965221/2024/12/03/giants-joe-schoen-saquon-barkley-xavier-mckinney-nfl/
 
