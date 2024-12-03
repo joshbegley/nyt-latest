@@ -1,3 +1,15 @@
+**Eight things I saw and learned at the star-studded Players Era Vegas showcase**\
+`A loaded Thanksgiving week tournament offered an up-close look at multiple Top 25 teams and ended with a surprise champion.`\
+https://nytimes.com/athletic/5964620/2024/12/03/players-era-festival-oregon-alabama/
+
+**Guehi at risk of FA punishment over religious message on rainbow armband**\
+`Crystal Palace defender Marc Guehi is at risk of punishment by the Football Association (FA) after displaying a religious message on his rainbow captain&#8217;s armband.`\
+https://nytimes.com/athletic/5963832/2024/12/03/marc-guehi-rainbow-armband-crystal-palace/
+
+**What's at stake on final night of NBA Cup group-stage play?**\
+`Who will advance to the quarterfinals of the second NBA Cup? Here's what you need to know before Tuesday's final set of games.`\
+https://nytimes.com/athletic/5964484/2024/12/03/nba-cup-2024-standings-group-stage/
+
 **New Leicester boss Van Nistelrooy says Man United exit 'hurt'**\
 `Ruud van Nistelrooy says it hurt to leave Manchester United in November after an interim period in charge.`\
 https://nytimes.com/athletic/5965409/2024/12/03/van-nistelrooy-man-united-leicester-exit/
