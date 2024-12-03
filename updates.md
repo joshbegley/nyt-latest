@@ -1,3 +1,15 @@
+**A Los Angeles Gallery Brings Bold Art, and Vision, to Miami Beach**\
+`In 2012, Esther Kim Varet founded the gallery Various Small Fires out of her home. It has since gone multinational, and Kim Varet is still pushing the envelope.`\
+https://nytimes.com/2024/12/03/arts/design/los-angeles-gallery-art-basel-miami-beach.html
+
+**In Angola, Biden Recalls Bitter Legacy of Slavery While Touting Better Times Ahead**\
+`In becoming the first American leader to visit Angola, President Biden said it was important not to forget the ugly legacy of the human trade that originally defined relations with Africa.`\
+https://nytimes.com/2024/12/03/world/africa/angola-biden-slavery.html
+
+**Frieze Fair Further Cements Los Angeles as an International Art Capital**\
+`The sixth edition of the fair in February will have considerably more attendees from Latin America, Europe and Asia.`\
+https://nytimes.com/2024/12/03/arts/design/frieze-los-angeles-art-scene.html
+
 **Venice Biennale Names Koyo Kouoh as Next Curator**\
 `Kouoh, who was born in Cameroon and currently leads one of Africa’s most important art museums, will organize the 61st edition, in 2026.`\
 https://nytimes.com/2024/12/03/arts/design/venice-biennale-curator-koyo-kouoh.html
