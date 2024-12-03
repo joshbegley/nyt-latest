@@ -1,3 +1,7 @@
+**NBA Power Rankings: Hey, how's the new guy doing?**\
+`Other risers this week include the Bucks, Mavericks and Hawks, while the teams at the top have benefited from continuity.`\
+https://nytimes.com/athletic/5965547/2024/12/03/nba-power-rankings-celtics-cavs-rockets-lakers/
+
 **Live Updates: South Korean Leader Declares Martial Law**\
 `President Yoon Suk Yeol evoked a threat posed by “anti-state” forces, and criticized attempts by the opposition to impeach him.`\
 https://nytimes.com/live/2024/12/03/world/south-korea-martial-law
