@@ -1,3 +1,11 @@
+**3 Climbers Missing After Attempt to Scale New Zealand’s Tallest Mountain**\
+`Two Americans and a Canadian were climbing Mount Cook before failing to show up to a prearranged flight on Monday.`\
+https://nytimes.com/2024/12/03/world/australia/climbers-missing-new-zealand.html
+
+**The Transfer Radar 2025: The Athletic's ultimate guide to players who could be on the move**\
+`Focused on transfers across 2025, we look at the situations of Salah, Wirtz, Zubimendi, Davies, Gyokeres, Alexander-Arnold and more...`\
+https://nytimes.com/athletic/5936155/2024/12/03/transfer-radar-window-signings-guide/
+
 **Jon Stewart Thinks Biden Could Have Timed That Pardon Better**\
 `“Normally, you drop a controversial pardon like the way you buy porn at a gas station: in a flurry of other distracting purchases,” the “Late Night” host said.`\
 https://nytimes.com/2024/12/03/arts/television/jon-stewart-hunter-biden-pardon.html

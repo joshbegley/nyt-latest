@@ -1,3 +1,11 @@
+**3 Climbers Missing After Attempt to Scale New Zealand’s Tallest Mountain**\
+`Two Americans and a Canadian were climbing Mount Cook before failing to show up to a prearranged flight on Monday.`\
+https://nytimes.com/2024/12/03/world/australia/climbers-missing-new-zealand.html
+
+**The Transfer Radar 2025: The Athletic's ultimate guide to players who could be on the move**\
+`Focused on transfers across 2025, we look at the situations of Salah, Wirtz, Zubimendi, Davies, Gyokeres, Alexander-Arnold and more...`\
+https://nytimes.com/athletic/5936155/2024/12/03/transfer-radar-window-signings-guide/
+
 **Jon Stewart Thinks Biden Could Have Timed That Pardon Better**\
 `“Normally, you drop a controversial pardon like the way you buy porn at a gas station: in a flurry of other distracting purchases,” the “Late Night” host said.`\
 https://nytimes.com/2024/12/03/arts/television/jon-stewart-hunter-biden-pardon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5963037/2024/12/03/chelsea-enzo-maresca-column/
 **Yankuba Minteh's return from injury comes at the perfect moment for Brighton**\
 `Brighton play six matches this month, starting with Thursday's game at Fulham. Having Minteh back will help them break down opponents`\
 https://nytimes.com/athletic/5842648/2024/12/03/how-yankuba-mintehs-return-from-injury-will-help-brighton-break-down-opponents/
-
-**Inside Newcastle Q&A: Is Howe still the right coach? Is 4-3-3 the problem? Will January bring solutions?**\
-`Chris Waugh answers questions on transfers, stadium plans, and why he'd bring back Nobby Solano`\
-https://nytimes.com/athletic/5954994/2024/12/03/inside-newcastle-qa-is-eddie-howe-the-right-coach-is-4-3-3-the-problem-will-january-bring-solutions/
-
-**Broncos respond late in shootout vs. Browns for 41-32 win: Takeaways**\
-`The Broncos are 8-5, their best record this late in the season since 2016.`\
-https://nytimes.com/athletic/5963960/2024/12/03/broncos-browns-mnf-score-result-takeaways/
 
