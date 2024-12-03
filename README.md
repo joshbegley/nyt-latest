@@ -1,3 +1,7 @@
+**Stephen King to Shut Down His 3 Radio Stations in Maine**\
+`The author, who owns the small independent stations in Bangor, said that the decision was prompted by a desire to get his business affairs in order.`\
+https://nytimes.com/2024/12/03/arts/stephen-king-maine-radio-stations.html
+
 **Brooklyn Museum Shows Off All the Glitter, Glam and Greed**\
 `The new “Solid Gold” exhibition is a celebration of bling through the ages and around the world. But is eye candy enough?`\
 https://nytimes.com/2024/12/03/arts/design/solid-gold-brooklyn-museum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966242/2024/12/03/curt-neal-wisconsin-college-foot
 **Super Bowl 2025 odds: Bills, Eagles, Chiefs in a dead heat behind Lions**\
 `A new tier has emerged in Super Bowl odds with the Eagles and Bills trending upward. `\
 https://nytimes.com/athletic/5965993/2024/12/03/super-bowl-2025-odds-week-14-bills-eagles-chiefs-tied/
-
-**Former UTEP coach, K-State assistant Dimel dies at 62**\
-`A former All-American offensive tackle at Kansas State in the 1980s, Dimel spent 19 seasons as a K-State assistant.`\
-https://nytimes.com/athletic/5966216/2024/12/03/dana-dimel-death-illinois-kansas-state/
 
