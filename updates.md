@@ -1,3 +1,7 @@
+**Patrik Laine set to make debut Tuesday vs. Islanders**\
+`This will be Laine’s first NHL game since he faced the Maple Leafs with the Blue Jackets on Dec. 14, 2023.`\
+https://nytimes.com/athletic/5966499/2024/12/03/patrik-laine-debut-canadiens-islanders/
+
 **War Doesn’t Work Anymore**\
 `In a nuclear conflict, total victory is not an option. We might as well stop pretending it is.`\
 https://nytimes.com/2024/12/03/special-series/oppenheimer-nuclear-bombs-war.html
