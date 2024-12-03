@@ -1,3 +1,19 @@
+**NFL suspends Texans' Al-Shaair 3 games following late hit on Lawrence**\
+`Al-Shaair apologized Monday for his shot on Trevor Lawrence, who left Sunday's game with a concussion after the blow on a slide.`\
+https://nytimes.com/athletic/5963576/2024/12/03/azeez-al-shaair-suspension-texans/
+
+**Rihanna Steals the Fashion Awards**\
+`And a dozen other looks that made news at Britain’s Met Gala of style.`\
+https://nytimes.com/2024/12/03/style/rihanna-fashion-awards-best-dressed.html
+
+**O'Neil has 'zero concerns' over Wolves future: 'We aren't too far away'**\
+`Wolves boss Gary O’Neil says he is ready to let results determine his future and insists he has “zero concerns” about the possibility of the sack.`\
+https://nytimes.com/athletic/5965843/2024/12/03/wolves-oneil-future-sack/
+
+**South Korean Leader Declares Martial Law in Fight With Political Opposition**\
+`President Yoon Suk Yeol evoked a threat posed by ‘anti-state’ forces, and criticized attempts by the opposition to impeach him.`\
+https://nytimes.com/2024/12/03/world/asia/south-korea-martial-law-yoon.html
+
 **The Okinawan Tried-and-Tested Recipe for Longevity**\
 ` `\
 https://nytimes.com/paidpost/the-okinawan-tried-and-tested-recipe-for-longevity/the-okinawan-tried-and-tested-recipe-for-longevity.html
