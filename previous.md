@@ -1,3 +1,7 @@
+**A Week of Arctic Cold Air and Lake-Effect Snow Is Ahead**\
+`Here’s a day-by-day look at the winter weather forecast.`\
+https://nytimes.com/2024/12/03/weather/weather-snow-cold-forecast.html
+
 **Explained: Javier Mascherno's role in the Premier League's most controversial transfer**\
 `When Inter Miami's new head coach first moved to Europe, he quickly became embroiled in a controversy that rocked the Premier League`\
 https://nytimes.com/athletic/5948977/2024/12/03/mascherano-inter-miami-west-ham-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/us/politics/biden-trump-legislation-republicans.h
 **Veteran catcher Kyle Higashioka signs with Texas Rangers**\
 `The deal is worth a total of $12.5 million ($5.75 million in 2025, $6.75 million in 2026), according to MLB.com.`\
 https://nytimes.com/athletic/5965822/2024/12/03/kyle-higashioka-contract-rangers-mlb-free-agency/
-
-**The Bounce: How the NBA Cup's next phase is taking shape**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5965631/2024/12/03/nba-cup-spurs-victor-wembanyama-nba-the-bounce/
 

@@ -1,3 +1,7 @@
+**A Week of Arctic Cold Air and Lake-Effect Snow Is Ahead**\
+`Here’s a day-by-day look at the winter weather forecast.`\
+https://nytimes.com/2024/12/03/weather/weather-snow-cold-forecast.html
+
 **Explained: Javier Mascherno's role in the Premier League's most controversial transfer**\
 `When Inter Miami's new head coach first moved to Europe, he quickly became embroiled in a controversy that rocked the Premier League`\
 https://nytimes.com/athletic/5948977/2024/12/03/mascherano-inter-miami-west-ham-premier-league/
