@@ -1,3 +1,7 @@
+**Rangers pushback not enough after early breakdowns in Devils drubbing: 3 takeaways**\
+`The Rangers got off to yet another slow start, with two Devils goals before the halfway mark of the first period.`\
+https://nytimes.com/athletic/5965200/2024/12/02/rangers-early-breakdowns-devils/
+
 **Maple Leafs report cards: Stolarz's excellent night carries Toronto in lackluster win**\
 `Auston Matthews scored his first goal since returning from injury, but the Blackhawks drove play for much of the night.`\
 https://nytimes.com/athletic/5964922/2024/12/02/maple-leafs-report-cards-stolarz-blackhawks/
