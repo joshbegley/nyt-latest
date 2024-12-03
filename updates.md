@@ -1,3 +1,7 @@
+**Frame Job**\
+`Henry Lin-David makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/12/02/crosswords/daily-puzzle-2024-12-03.html
+
 **After Biden Pardons His Son, Prison Inmates Hope They’re Next**\
 `President Biden has pardoned people convicted of some marijuana offenses, but advocates for prisoners say he has been slow to grant other requests.`\
 https://nytimes.com/2024/12/02/us/biden-pardons-clemency-prisoners.html
