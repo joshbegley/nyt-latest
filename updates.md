@@ -1,3 +1,7 @@
+**Paull Millsap retires after 16 NBA seasons**\
+`Millsap played a key role on each team he played for, eventually becoming an experienced leader.`\
+https://nytimes.com/athletic/5966836/2024/12/03/paul-millsap-nba-retirement/
+
 **Premier League asks clubs to send letter to MPs in attempt to limit independent regulator**\
 `The Premier League has asked its clubs to send a template letter to their local MPs as part of a lobbying effort to dramatically limit the powers of the proposed independent football regulator.`\
 https://nytimes.com/athletic/5966869/2024/12/03/premier-league-regulator-mps-letter/
