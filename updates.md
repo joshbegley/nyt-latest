@@ -1,3 +1,11 @@
+**Martial Law in South Korea Tests Biden and a Key U.S. Alliance**\
+`The Biden administration has hailed South Korea as a model democracy and bolstered military ties as it relies on the country as a bulwark against North Korea, China and Russia.`\
+https://nytimes.com/2024/12/03/us/politics/south-korea-martial-law-united-states.html
+
+**Beyond the Art Basel Miami Beach Fair**\
+`Although the fair is a huge attraction, there are many other exhibitions to visit nearby.`\
+https://nytimes.com/2024/12/03/arts/design/art-basel-miami-beach-see.html
+
 **Keeping a Dance Alive, Even After the Show Ends**\
 `At Art Basel Miami Beach, the Mexican choreographer Diego Vega Solorza explores masculinity in a new work and his gallery sells objects from performances.`\
 https://nytimes.com/2024/12/03/arts/design/diego-vega-solorza-art-basel-miami-beach.html
