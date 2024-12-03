@@ -1,3 +1,15 @@
+**The Climate Crisis Is Bigger Than Any News Cycle**\
+`Companies continue to invest in sustainability, though many are no longer broadcasting it.`\
+https://nytimes.com/2024/12/03/special-series/patagonia-ceo-sustainability-greenwashing.html
+
+**Fantasy football Week 14 drops: Sever ties with Kirk Cousins, Gus Edwards**\
+`Gary Davenport helps you trim the fat to prepare for the fantasy football playoffs.`\
+https://nytimes.com/athletic/5965849/2024/12/03/fantasy-football-week-14-drops-kirk-cousins-gus-edwards/
+
+**Israel Vázquez, 3-time boxing world champion, dies at 46**\
+`Vázquez rose to prominence in the early 2000s and is best known for his rivalry with compatriot Rafael Marquez.`\
+https://nytimes.com/athletic/5965792/2024/12/03/israel-vazquez-boxing-champion-dies-cancer/
+
 **Biden Turns to an Unlikely Ally to Help Protect His Legacy: Republicans**\
 `President Biden wants to make it more difficult for President-elect Donald J. Trump to repeal his signature legislation, which sent money flowing to Republican districts nationwide.`\
 https://nytimes.com/2024/12/03/us/politics/biden-trump-legislation-republicans.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5965742/2024/12/03/west-virginia-football-job-profi
 **Martinez a doubt for Aston Villa vs Brentford with hand injury**\
 `Unai Emery says Emiliano Martinez is a doubt for Aston Villa&#8217;s match against Brentford with a hand injury.`\
 https://nytimes.com/athletic/5960524/2024/12/03/emi-martinez-injury-aston-villa/
-
-**Ellis leaving San Diego Wave role to become FIFA's chief football officer**\
-`Ellis, 58, won two World Cups with the U.S. and has been Wave president since 2021.`\
-https://nytimes.com/athletic/5965856/2024/12/03/jill-ellis-fifa-san-diego-wave/
-
-**NFL suspends Texans' Al-Shaair 3 games following late hit on Lawrence**\
-`Al-Shaair apologized Monday for his shot on Trevor Lawrence, who left Sunday's game with a concussion after the blow on a slide.`\
-https://nytimes.com/athletic/5963576/2024/12/03/azeez-al-shaair-suspension-texans/
-
-**Rihanna Steals the Fashion Awards**\
-`And a dozen other looks that made news at Britain’s Met Gala of style.`\
-https://nytimes.com/2024/12/03/style/rihanna-fashion-awards-best-dressed.html
 
