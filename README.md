@@ -1,3 +1,7 @@
+**Commanders name Mark Clouse team president**\
+`Clouse has been the president and chief executive officer of The Campbell's Company since 2019.`\
+https://nytimes.com/athletic/5967207/2024/12/03/washington-commanders-team-president-mark-clouse/
+
 **Wales reach first major tournament; Wilkinson: 'A generation that's going to change everything'**\
 `Wales Women&#8217;s head coach Rhian Wilkinson said her side have provided &#8220;a generation of football that&#8217;s going to change everything&#8221; after qualifying for their first major tournament.`\
 https://nytimes.com/athletic/5967162/2024/12/03/wales-women-european-championship-qualify/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/11/26/opinion/thepoint/privacy-ftc-rule
 **What Was Your Most Successful New Year’s Resolution?**\
 `Tell us about how you were able to keep it.`\
 https://nytimes.com/2024/12/03/nyregion/what-was-your-most-successful-new-years-resolution.html
-
-**What Holiday Tradition Do You Cherish Most?**\
-`Tell us about it.`\
-https://nytimes.com/2024/12/03/nyregion/what-holiday-tradition-do-you-cherish-most.html
 
