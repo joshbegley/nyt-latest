@@ -1,3 +1,11 @@
+**Amid Pro-Palestinian Protests, Turner Prize Goes to Jasleen Kaur**\
+`The artist, who has supported the protests against the Tate group of museums, won the prestigious British award for an installation that includes a car covered by a giant doily.`\
+https://nytimes.com/2024/12/03/arts/design/turner-prize-jasleen-kaur.html
+
+**Ryan Reaves defends record: 'Gonna keep playing hard, if not harder now'**\
+`Commenting for the first time since his five-game suspension, Ryan Reaves spoke with regret about the result of his hit on Darnell Nurse.`\
+https://nytimes.com/athletic/5966785/2024/12/03/maple-leafs-ryan-reaves-suspension-comments/
+
 **Heat Today: Pat Riley gave us a window into team-building. What does it mean for Heat?**\
 `How does Pat Riley's insight into his front-office philosophy apply to this season’s struggling Heat?`\
 https://nytimes.com/athletic/5965826/2024/12/03/pat-riley-miami-heat-jimmy-butler-tyler-herro-bam-adebayo-nba/
