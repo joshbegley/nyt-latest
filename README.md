@@ -1,3 +1,11 @@
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/5966347/2024/12/03/st-louis-blues-jeremy-rutherford-mailbag-december-2024/
+
+**The Furious Contest to Unseat Nvidia as King of A.I. Chips**\
+`Amazon, Advanced Micro Devices and several start-ups are beginning to offer credible alternatives to Nvidia’s chips, especially for a phase of A.I. development known as “inferencing.”`\
+https://nytimes.com/2024/12/03/technology/nvidia-ai-chips.html
+
 **She Met Hunter Biden One Night at a Club. Then She Fell in Love.**\
 `A chance meeting in December 2017 plunged Zoë Kestan, a downtown “it” girl and social media star, headlong into an unpredictable affair.`\
 https://nytimes.com/2024/12/03/style/zoe-kestan-hunter-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5966198/2024/12/03/smee-dai-reading-bid-rejected/
 **A Geopolitical Cauldron Simmers in Syria After Rebel Attacks**\
 `Iran and Russia, both stretched by conflicts of their own, have experienced setbacks in Syria after a rebel offensive in the northwest of the country.`\
 https://nytimes.com/2024/12/03/world/middleeast/syria-rebel-offensive-iran-russia.html
-
-**You Want That Gift to Arrive Today? This Is What It Takes.**\
-`Retailers like Amazon, Walmart and Target have figured out that if they get you your online order today, you will probably spend more tomorrow.`\
-https://nytimes.com/2024/12/03/business/amazon-same-day-delivery.html
-
-**Double gold medal cyclist Evenepoel sustains fractures in crash with postal van**\
-`Evenepoel had been riding a custom-made gold bike, whose frame was split in two by the impact.`\
-https://nytimes.com/athletic/5966167/2024/12/03/remco-evenepoel-crash-van/
 
