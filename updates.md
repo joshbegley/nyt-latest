@@ -1,3 +1,7 @@
+**South Korea President Declares Martial Law, Then Backs Down**\
+`Soon after President Yoon Suk Yeol’s declaration on Tuesday, lawmakers voted to defy him, prompting the president to say he was lifting his order.`\
+https://nytimes.com/2024/12/03/world/asia/south-korea-martial-law.html
+
 **Children Worked Dangerous Shifts at Iowa Slaughterhouse, Inquiry Finds**\
 `Qvest Sanitation was ordered to pay nearly $172,000 after the Labor Department found it had employed 11 children to clean equipment on overnight shifts at a pork processing plant in Sioux City, Iowa.`\
 https://nytimes.com/2024/12/03/business/iowa-pork-plant-child-labor.html
