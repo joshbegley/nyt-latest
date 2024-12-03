@@ -1,3 +1,7 @@
+**O'Neil has 'zero concerns' over Wolves future: 'We aren't too far away'**\
+`Wolves boss Gary O’Neil says he is ready to let results determine his future and insists he has “zero concerns” about the possibility of the sack.`\
+https://nytimes.com/athletic/5965843/2024/12/03/wolves-oneil-future-sack/
+
 **Veteran catcher Kyle Higashioka signs with Texas Rangers**\
 `The deal is worth a total of $12.5 million ($5.75 million in 2025, $6.75 million in 2026), according to MLB.com.`\
 https://nytimes.com/athletic/5965822/2024/12/03/kyle-higashioka-contract-rangers-mlb-free-agency/

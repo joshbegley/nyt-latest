@@ -26,10 +26,6 @@ https://nytimes.com/athletic/5960524/2024/12/03/emi-martinez-injury-aston-villa/
 `Ellis, 58, won two World Cups with the U.S. and has been Wave president since 2021.`\
 https://nytimes.com/athletic/5965856/2024/12/03/jill-ellis-fifa-san-diego-wave/
 
-**Live Updates: South Korean Leader Declares Martial Law**\
-`President Yoon Suk Yeol referred to a threat posed by “anti-state” forces, and criticized attempts by the opposition to impeach him.`\
-https://nytimes.com/live/2024/12/03/world/south-korea-martial-law
-
 **NFL suspends Texans' Al-Shaair 3 games following late hit on Lawrence**\
 `Al-Shaair apologized Monday for his shot on Trevor Lawrence, who left Sunday's game with a concussion after the blow on a slide.`\
 https://nytimes.com/athletic/5963576/2024/12/03/azeez-al-shaair-suspension-texans/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5963576/2024/12/03/azeez-al-shaair-suspension-texan
 **Rihanna Steals the Fashion Awards**\
 `And a dozen other looks that made news at Britain’s Met Gala of style.`\
 https://nytimes.com/2024/12/03/style/rihanna-fashion-awards-best-dressed.html
+
+**O'Neil has 'zero concerns' over Wolves future: 'We aren't too far away'**\
+`Wolves boss Gary O’Neil says he is ready to let results determine his future and insists he has “zero concerns” about the possibility of the sack.`\
+https://nytimes.com/athletic/5965843/2024/12/03/wolves-oneil-future-sack/
 
