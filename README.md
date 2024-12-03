@@ -1,3 +1,7 @@
+**Farhan Zaidi talking to Dodgers about front office role: Sources**\
+`The Giants' former president of baseball operations would return to the team where he served as general manager from 2014-2018.`\
+https://nytimes.com/athletic/5966353/2024/12/03/farhan-zaidi-dodgers-front-office/
+
 **Retired Louisiana Priest Pleads Guilty to Rape and Kidnapping Charges**\
 `Lawrence Hecker, who was indicted last year on charges related to a sexual assault in the 1970s, pleaded guilty on Tuesday just before jury selection for his trial was set to begin.`\
 https://nytimes.com/2024/12/03/us/louisiana-catholic-priest-rape-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009856421/south-korea-emergency-marti
 **McDonald’s E. Coli Outbreak Declared Over**\
 `Federal health agencies closed their investigations into the bacterial outbreak that sickened 104 people and was linked to onions on the fast-food chain’s signature Quarter Pounders.`\
 https://nytimes.com/2024/12/03/health/ecoli-mcdonalds-onions.html
-
-**South Korea’s President Imposed Martial Law, Then Lifted It**\
-`Also, China banned rare mineral exports to the U.S. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/12/03/briefing/south-korea-martial-law-best-books-of-2024.html
 
