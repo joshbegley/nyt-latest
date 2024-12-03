@@ -1,3 +1,7 @@
+**Amorim confident over new Amad contract: 'We will find a solution'**\
+`Ruben Amorim is confident Amad will sign a new contract at Manchester United.`\
+https://nytimes.com/athletic/5967336/2024/12/03/manchester-united-amad-contract-amorim/
+
 **Bronze misses England's Switzerland friendly after team sheet error**\
 `Lucy Bronze was unable to come on as a substitute during England&#8217;s friendly victory over Switzerland on Tuesday after mistakenly not being listed on the official team sheet.`\
 https://nytimes.com/athletic/5967255/2024/12/03/lucy-bronze-substitute-england-switzerland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965802/2024/12/03/manchester-city-guardiola-de-bru
 **Commanders name Mark Clouse team president**\
 `Clouse has been the president and chief executive officer of The Campbell's Company since 2019.`\
 https://nytimes.com/athletic/5967207/2024/12/03/washington-commanders-team-president-mark-clouse/
-
-**Wales reach first major tournament; Wilkinson: 'A generation that's going to change everything'**\
-`Wales Women&#8217;s head coach Rhian Wilkinson said her side have provided &#8220;a generation of football that&#8217;s going to change everything&#8221; after qualifying for their first major tournament.`\
-https://nytimes.com/athletic/5967162/2024/12/03/wales-women-european-championship-qualify/
 
