@@ -1,3 +1,7 @@
+**NFL MVP odds: You can't get Josh Allen for plus-money anymore**\
+`Josh Allen slid below even odds after Week 13, but Saquon Barkley isn't far behind. `\
+https://nytimes.com/athletic/5966238/2024/12/03/nfl-mvp-odds-week-13-josh-allen-saquon-barkley/
+
 **The French Fare at Zimmi’s Is Anything But Routine**\
 `Plus Sal Tang’s brings Cantonese American to Cobble Hill, Dilli Dilli serves Old and New Delhi cuisine, and more restaurant news.`\
 https://nytimes.com/2024/12/03/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966347/2024/12/03/st-louis-blues-jeremy-rutherford
 **The Furious Contest to Unseat Nvidia as King of A.I. Chips**\
 `Amazon, Advanced Micro Devices and several start-ups are beginning to offer credible alternatives to Nvidia’s chips, especially for a phase of A.I. development known as “inferencing.”`\
 https://nytimes.com/2024/12/03/technology/nvidia-ai-chips.html
-
-**She Met Hunter Biden One Night at a Club. Then She Fell in Love.**\
-`A chance meeting in December 2017 plunged Zoë Kestan, a downtown “it” girl and social media star, headlong into an unpredictable affair.`\
-https://nytimes.com/2024/12/03/style/zoe-kestan-hunter-biden.html
 
