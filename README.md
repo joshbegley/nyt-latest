@@ -1,3 +1,7 @@
+**South Korean Leader Declares Martial Law in Fight With Political Opposition**\
+`President Yoon Suk Yeol evoked a threat posed by North Korea’s “communist forces” but then criticized attempts by the opposition to impeach him.`\
+https://nytimes.com/2024/12/03/world/asia/south-korea-martial-law-yoon.html
+
 **The Okinawan Tried-and-Tested Recipe for Longevity**\
 ` `\
 https://nytimes.com/paidpost/the-okinawan-tried-and-tested-recipe-for-longevity/the-okinawan-tried-and-tested-recipe-for-longevity.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965032/2024/12/03/lakers-lebron-james-offense-loss
 **Fighting Worsens Already Dire Conditions in Northwestern Syria**\
 `Years of war and a powerful earthquake had led to crushing poverty, displacement and breakdowns in services. But over the last several days, the region’s misery deepened.`\
 https://nytimes.com/2024/12/03/world/middleeast/syria-civil-war-rebels-aleppo.html
-
-**The Chargers passing offense isn't producing, so why isn't DJ Chark getting a shot?**\
-`Chark has been off injured reserve for a month now but has only played three offensive snaps since his return. `\
-https://nytimes.com/athletic/5964977/2024/12/03/chargers-dj-chark-offense-struggling/
 
