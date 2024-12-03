@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5960524/2024/12/03/emi-martinez-injury-aston-villa/
 https://nytimes.com/athletic/5965856/2024/12/03/jill-ellis-fifa-san-diego-wave/
 
 **Live Updates: South Korean Leader Declares Martial Law**\
-`President Yoon Suk Yeol evoked a threat posed by “anti-state” forces, and criticized attempts by the opposition to impeach him.`\
+`President Yoon Suk Yeol referred to a threat posed by “anti-state” forces, and criticized attempts by the opposition to impeach him.`\
 https://nytimes.com/live/2024/12/03/world/south-korea-martial-law
 
 **NFL suspends Texans' Al-Shaair 3 games following late hit on Lawrence**\
@@ -26,8 +26,8 @@ https://nytimes.com/2024/12/03/style/rihanna-fashion-awards-best-dressed.html
 `Wolves boss Gary O’Neil says he is ready to let results determine his future and insists he has “zero concerns” about the possibility of the sack.`\
 https://nytimes.com/athletic/5965843/2024/12/03/wolves-oneil-future-sack/
 
-**South Korean Leader Declares Martial Law, Saying Opponents Imperil Democracy**\
-`President Yoon Suk Yeol evoked a threat posed by ‘anti-state’ forces and criticized attempts to impeach him.`\
+**Here are the latest developments in South Korea.**\
+`President Yoon Suk Yeol claimed ‘anti-state’ forces were at work, and he criticized attempts to impeach him.`\
 https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/south-korea-martial-law-yoon
 
 **The Okinawan Tried-and-Tested Recipe for Longevity**\
