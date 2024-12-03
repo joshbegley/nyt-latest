@@ -1,3 +1,7 @@
+**Explained: Javier Mascherno's role in the Premier League's most controversial transfer**\
+`When Inter Miami's new head coach first moved to Europe, he quickly became embroiled in a controversy that rocked the Premier League`\
+https://nytimes.com/athletic/5948977/2024/12/03/mascherano-inter-miami-west-ham-premier-league/
+
 **President Yoon’s Speech Declaring Martial Law**\
 `President Yoon Suk Yeol made the extraordinary declaration in an unannounced speech to the nation on Tuesday night.`\
 https://nytimes.com/2024/12/03/world/asia/president-yoon-speech-martial-law.html
@@ -5,6 +9,10 @@ https://nytimes.com/2024/12/03/world/asia/president-yoon-speech-martial-law.html
 **Ex-Giants are thriving around NFL. It's more pain for fans, more reason to question GM Joe Schoen**\
 `As the Giants bottom out in Year 3 of Schoen’s regime, it’s hard to reconcile why he’s let a handful of his best players leave.`\
 https://nytimes.com/athletic/5965221/2024/12/03/giants-joe-schoen-saquon-barkley-xavier-mckinney-nfl/
+
+**NHL Playoff Report: Leafs and Devils on the rise, Rangers and Senators falling off**\
+`As it stands, there are probably two spots up for grabs in the East, while in the West it'd be a surprise if the eight spots weren’t set.`\
+https://nytimes.com/athletic/5964067/2024/12/03/nhl-playoff-report-november-leafs-devils-rangers-senators/
 
 **The Climate Crisis Is Bigger Than Any News Cycle**\
 `Companies continue to invest in sustainability, though many are no longer broadcasting it.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5965822/2024/12/03/kyle-higashioka-contract-rangers
 **The Bounce: How the NBA Cup's next phase is taking shape**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5965631/2024/12/03/nba-cup-spurs-victor-wembanyama-nba-the-bounce/
-
-**Arteta: Manchester clubs not yet out of title race**\
-`Arsenal manager Mikel Arteta said “anything is possible” when asked whether Ruben Amorim can lead Manchester United into the title picture this season.`\
-https://nytimes.com/athletic/5965845/2024/12/03/arsenal-manchester-united-city-arteta/
-
-**Developing Countries Face Record Debt Costs Amid Interest Rate Surge**\
-`The World Bank warned in a new report that poor countries will be stuck in economic “purgatory” without debt relief.`\
-https://nytimes.com/2024/12/03/business/developing-countries-debt-world-bank.html
 
