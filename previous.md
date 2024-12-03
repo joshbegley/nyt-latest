@@ -1,3 +1,19 @@
+**How good is the West Virginia job? The headwinds Neal Brown's replacement will inherit**\
+`There is deep fan support and a proud history here, but can reality line up to expectations in Morgantown?`\
+https://nytimes.com/athletic/5965742/2024/12/03/west-virginia-football-job-profile-candidates/
+
+**Martinez a doubt for Aston Villa vs Brentford with hand injury**\
+`Unai Emery says Emiliano Martinez is a doubt for Aston Villa&#8217;s match against Brentford with a hand injury.`\
+https://nytimes.com/athletic/5960524/2024/12/03/emi-martinez-injury-aston-villa/
+
+**Ellis leaving San Diego Wave role to become FIFA's chief football officer**\
+`Former United States head coach Jill Ellis is leaving her role as San Diego Wave FC president to become chief football officer at FIFA.`\
+https://nytimes.com/athletic/5965856/2024/12/03/jill-ellis-fifa-san-diego-wave/
+
+**Live Updates: South Korean Leader Declares Martial Law**\
+`President Yoon Suk Yeol evoked a threat posed by “anti-state” forces, and criticized attempts by the opposition to impeach him.`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law
+
 **NFL suspends Texans' Al-Shaair 3 games following late hit on Lawrence**\
 `Al-Shaair apologized Monday for his shot on Trevor Lawrence, who left Sunday's game with a concussion after the blow on a slide.`\
 https://nytimes.com/athletic/5963576/2024/12/03/azeez-al-shaair-suspension-texans/
@@ -21,20 +37,4 @@ https://nytimes.com/paidpost/the-okinawan-tried-and-tested-recipe-for-longevity/
 **Bloomberg Says Kennedy Would Be ‘Beyond Dangerous’ as Health Secretary**\
 `Michael R. Bloomberg, the former New York City mayor and a public health advocate, is asking Senate Republicans to persuade President-elect Donald J. Trump to “rethink” Kennedy’s nomination.`\
 https://nytimes.com/2024/12/03/us/politics/bloomberg-says-kennedy-would-be-beyond-dangerous-as-health-secretary.html
-
-**Israeli Officials Welcome Trump’s Demand to Free Hostages Before Inauguration**\
-`President-elect Donald J. Trump has threatened to take unspecified action unless the hostages held in Gaza are released before he takes office in January.`\
-https://nytimes.com/2024/12/03/world/middleeast/israel-trump-hostages.html
-
-**‘A Different Man’ and ‘Sing Sing’ Rule the Gotham Awards**\
-`The kickoff to awards season has a mixed record but can help lift small films like the two surprise winners.`\
-https://nytimes.com/2024/12/03/movies/gotham-awards-winners-a-different-man-sebastian-stan.html
-
-**What we're seeing with the Bucks: Screening for Giannis, Taurean Prince's availability and more**\
-`Setting a screen for the two-time NBA MVP means sacrificing your body and taking some lumps, but it can lead to easy buckets for the Bucks.`\
-https://nytimes.com/athletic/5961369/2024/12/03/giannis-antetokounmpo-taurean-prince-bucks/
-
-**NBA Power Rankings: Hey, how's the new guy doing?**\
-`Other risers this week include the Bucks, Mavericks and Hawks, while the teams at the top have benefited from continuity.`\
-https://nytimes.com/athletic/5965547/2024/12/03/nba-power-rankings-celtics-cavs-rockets-lakers/
 

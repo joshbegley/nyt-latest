@@ -1,3 +1,19 @@
+**How good is the West Virginia job? The headwinds Neal Brown's replacement will inherit**\
+`There is deep fan support and a proud history here, but can reality line up to expectations in Morgantown?`\
+https://nytimes.com/athletic/5965742/2024/12/03/west-virginia-football-job-profile-candidates/
+
+**Martinez a doubt for Aston Villa vs Brentford with hand injury**\
+`Unai Emery says Emiliano Martinez is a doubt for Aston Villa&#8217;s match against Brentford with a hand injury.`\
+https://nytimes.com/athletic/5960524/2024/12/03/emi-martinez-injury-aston-villa/
+
+**Ellis leaving San Diego Wave role to become FIFA's chief football officer**\
+`Former United States head coach Jill Ellis is leaving her role as San Diego Wave FC president to become chief football officer at FIFA.`\
+https://nytimes.com/athletic/5965856/2024/12/03/jill-ellis-fifa-san-diego-wave/
+
+**Live Updates: South Korean Leader Declares Martial Law**\
+`President Yoon Suk Yeol evoked a threat posed by “anti-state” forces, and criticized attempts by the opposition to impeach him.`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law
+
 **NBA Power Rankings: Hey, how's the new guy doing?**\
 `Other risers this week include the Bucks, Mavericks and Hawks, while the teams at the top have benefited from continuity.`\
 https://nytimes.com/athletic/5965547/2024/12/03/nba-power-rankings-celtics-cavs-rockets-lakers/
