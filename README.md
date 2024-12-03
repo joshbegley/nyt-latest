@@ -1,3 +1,7 @@
+**‘Look Out for Your Own’: Two Columnists on Why Biden’s Pardon Reeks of Privilege**\
+`While the pardon is legal, the rule of law isn’t maintained by merely keeping to the letter of the law.`\
+https://nytimes.com/2024/12/03/opinion/hunter-biden-pardon.html
+
 **How Gravenberch became one of Liverpool's 'untouchables'**\
 `The Dutch midfielder's blend of grit and guile has turned a problem position into an area of strength for Liverpool`\
 https://nytimes.com/athletic/5962721/2024/12/03/ryan-gravenberch-liverpool-untouchable/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5946660/2024/12/03/manchester-city-pep-guardiola-li
 **Another Spain women controversy - Why have Hermoso, Paredes and Rodriguez been left out?**\
 `The surprise omission of three of Spain's World Cup winners has led to more debate around the national team`\
 https://nytimes.com/athletic/5962950/2024/12/03/spain-women-hermoso-paredes-rodriguez/
-
-**Edoardo Bove is awake, talking and 'just wants to play' again. His Fiorentina team-mates are waiting**\
-`The midfielder was taken to hospital after losing consciousness during the match against Inter on Sunday. Fiorentina are united behind him`\
-https://nytimes.com/athletic/5962547/2024/12/03/edoardo-bove-fiorentina-serie-a/
 
