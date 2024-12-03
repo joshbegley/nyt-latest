@@ -1,3 +1,7 @@
+**Alyssa Naeher comes up big in her final game for United States**\
+`Naeher helps the U.S. close 2024 with a victory over the Netherlands. `\
+https://nytimes.com/athletic/5967116/2024/12/03/uswnt-netherlands-alyssa-naeher/
+
 **Without a Law, the Government Can’t Protect Your Privacy**\
 `Don’t get your hopes up.`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/privacy-ftc-rule
