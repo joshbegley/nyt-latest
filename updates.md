@@ -1,3 +1,11 @@
+**Red Sox, Aroldis Chapman in agreement on one-year deal: Source**\
+`The veteran lefty adds more experience to the back end of the Red Sox bullpen.`\
+https://nytimes.com/athletic/5966327/2024/12/03/aroldis-chapman-contract-red-sox-mlb-free-agency/
+
+**Stephen King to Shut Down His 3 Radio Stations in Maine**\
+`The author, who owns the small independent stations in Bangor, said that the decision was prompted by a desire to get his business affairs in order.`\
+https://nytimes.com/2024/12/03/arts/stephen-king-maine-radio-stations.html
+
 **Brooklyn Museum Shows Off All the Glitter, Glam and Greed**\
 `The new “Solid Gold” exhibition is a celebration of bling through the ages and around the world. But is eye candy enough?`\
 https://nytimes.com/2024/12/03/arts/design/solid-gold-brooklyn-museum.html
