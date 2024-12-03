@@ -1,3 +1,15 @@
+**5 Art Fairs to See in 2025**\
+`From San Francisco to Tokyo and beyond, these art fairs offer something for everyone.`\
+https://nytimes.com/2024/12/03/arts/design/art-fairs.html
+
+**Talking About the Best Books of 2024**\
+`A group of editors on the year’s most extraordinary novels and nonfiction.`\
+https://nytimes.com/2024/12/03/books/review/best-books-podcast.html
+
+**A Wave of Galleries Will Debut at Art Basel Miami Beach This Year**\
+`Thirty-four galleries are joining the fray, bringing glass tongues, giant paintings and deceptively pink assemblages.`\
+https://nytimes.com/2024/12/03/arts/design/art-basel-miami-beach-new-galleries.html
+
 **Patrik Laine set to make debut Tuesday vs. Islanders**\
 `This will be Laine’s first NHL game since he faced the Maple Leafs with the Blue Jackets on Dec. 14, 2023.`\
 https://nytimes.com/athletic/5966499/2024/12/03/patrik-laine-debut-canadiens-islanders/
