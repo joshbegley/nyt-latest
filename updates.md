@@ -1,5 +1,9 @@
 **South Koreans Stood Up for Their Democracy**\
 `Widespread protests helped lift a decree of martial law.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/south-korea-martial-law-democracy
+
+**South Koreans Stood Up for Their Democracy**\
+`Widespread protests helped lift a decree of martial law.`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/south-koreans-stood-up-for-their-democracy
 
 **In a First, Transgender Woman Wins Model of the Year**\
