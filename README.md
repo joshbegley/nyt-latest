@@ -2,6 +2,10 @@
 `"I didn’t want to make that same mistake here,” VanVleet said of coming to Houston with a new mindset after leaving Toronto. `\
 https://nytimes.com/athletic/5953784/2024/12/03/fred-vanvleet-raptors-rockets-exclusive/
 
+**NFL interim coaches rarely last. Can the Bears' Thomas Brown be different?**\
+`Brown has a connection with Caleb Williams, buy-in from the locker room and an endorsement from Sean McVay. Will it be enough?`\
+https://nytimes.com/athletic/5964645/2024/12/03/bears-interim-coach-thomas-brown-matt-eberflus/
+
 **White House Defends Pardon, and Israel and Hezbollah Trade Fire**\
 `Plus, mail trucks get a “goofy” upgrade.`\
 https://nytimes.com/2024/12/03/podcasts/biden-pardon-defend-supreme-court-ethics-israel-hezbollah-truce.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5964129/2024/12/03/st-louis-cardinals-nolan-arenado
 **The Connections Companion No. 542**\
 `Scroll down for hints and conversation about the puzzle for TK Day, Month, Year.`\
 https://nytimes.com/2024/12/03/crosswords/connections-companion-542.html
-
-**When the President Pardons His Son**\
-`It has never happened before.`\
-https://nytimes.com/2024/12/03/podcasts/the-daily/when-the-president-pardons-his-son.html
 
