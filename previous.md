@@ -1,40 +1,40 @@
-**Eight things I saw and learned at the star-studded Players Era Vegas showcase**\
-`A loaded Thanksgiving week tournament offered an up-close look at multiple Top 25 teams and ended with a surprise champion.`\
-https://nytimes.com/athletic/5964620/2024/12/03/players-era-festival-oregon-alabama/
+**A Worthy Cause (Actually, Many of Them) This Giving Tuesday**\
+`Highlighting nonprofits doing good work in New York and beyond.`\
+https://nytimes.com/2024/12/03/opinion/nyt-communities-fund.html
 
-**Guehi at risk of FA punishment over religious message on rainbow armband**\
-`Crystal Palace defender Marc Guehi is at risk of punishment by the Football Association (FA) after displaying a religious message on his rainbow captain&#8217;s armband.`\
-https://nytimes.com/athletic/5963832/2024/12/03/marc-guehi-rainbow-armband-crystal-palace/
+**What Kash Patel Could Do to the F.B.I.**\
+`The true danger is almost less about the pick and more about what it says about Trump’s approach to his second term.`\
+https://nytimes.com/2024/12/03/opinion/kash-patel-trump-fbi.html
 
-**What's at stake on final night of NBA Cup group-stage play?**\
-`Who will advance to the quarterfinals of the second NBA Cup? Here's what you need to know before Tuesday's final set of games.`\
-https://nytimes.com/athletic/5964484/2024/12/03/nba-cup-2024-standings-group-stage/
+**Project 2025, Mar-a-Lago and Fox News: What Connects Trump’s New Staff Picks**\
+`See the<strong> links between </strong>more than 60 figures the president-elect wants for cabinet and other senior positions: billionaires, lobbyists, Fox personalities and more.`\
+https://nytimes.com/interactive/2024/12/03/us/politics/trump-cabinet-administration-picks.html
 
-**New Leicester boss Van Nistelrooy says Man United exit 'hurt'**\
-`Ruud van Nistelrooy says it hurt to leave Manchester United in November after an interim period in charge.`\
-https://nytimes.com/athletic/5965409/2024/12/03/van-nistelrooy-man-united-leicester-exit/
+**‘Politics Failed’: Top U.N. Envoy Says Gaza War Followed Years of Weak Diplomacy**\
+`World leaders failed to focus on a permanent solution to the Israeli-Palestinian conflict and risk making the same mistake again, the departing United Nations’ envoy in the region says.`\
+https://nytimes.com/2024/12/03/world/middleeast/israel-gaza-palestinian-state-un-envoy.html
 
-**Jurors Set to Weigh Penny’s Fate in Choking Case That Divided New York**\
-`Prosecutors in Daniel Penny’s manslaughter trial are to finish closing arguments Tuesday. The trial has touched on fears about crime and the city’s failure to help its most troubled residents.`\
-https://nytimes.com/2024/12/03/nyregion/daniel-penny-subway-chokehold-trial.html
+**Rahm Emanuel’s Plan for a Democratic Comeback in 2026**\
+`The politician discusses what lessons he thinks Democrats have forgotten.`\
+https://nytimes.com/2024/12/03/opinion/ezra-klein-podcast-rahm-emanuel.html
 
-**What’s Next for Google’s Search Monopoly**\
-`The federal judge who ruled Google was a monopolist in search is weighing the U.S. government’s proposal to force the company to sell its Chrome browser. Here’s what happens now.`\
-https://nytimes.com/2024/12/03/technology/google-search-antitrust-judge.html
+**It Can’t Be Assumed That Higher Turnout Would Have Helped Harris**\
+`Voting records suggest Democrats who stayed home were less likely to support her, with no equivalent drop-off in Trump support among Republicans.`\
+https://nytimes.com/2024/12/03/upshot/election-turnout-harris-trump.html
 
-**Earn $800,000? You Might Get Financial Aid at an Elite N.Y.C. School.**\
-`The average tuition of $65,000 a year at private schools has separated New York’s truly rich, who can afford to pay full tuition, from its merely wealthy.`\
-https://nytimes.com/2024/12/03/nyregion/nyc-private-school-tuition.html
+**Five Opinion Writers on What Biden Should Do in His Final Days as President**\
+`Protecting land and appointing judges could go a long way toward bolstering Biden’s legacy.`\
+https://nytimes.com/2024/12/03/opinion/bidens-finals-days-in-office.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/03/crosswords/spelling-bee-forum.html
+**The Art of Decorating Holiday Mantels**\
+`The interior designer Bunny Williams shares tips on how she styles the five fireplaces in her Connecticut home.`\
+https://nytimes.com/2024/12/03/realestate/bunny-williams-holiday-decorating.html
 
-**3 Climbers Missing After Attempt to Scale New Zealand’s Tallest Mountain**\
-`Two Americans and a Canadian were climbing Mount Cook before failing to show up to a prearranged flight on Monday.`\
-https://nytimes.com/2024/12/03/world/australia/climbers-missing-new-zealand.html
+**Supreme Court Returns to a Culture War Battleground: Transgender Rights**\
+`On Wednesday, the justices will hear the marquee case of the term, a challenge to a Tennessee law banning several forms of medical care for transgender youths.`\
+https://nytimes.com/2024/12/03/us/supreme-court-transgender-rights-hearing.html
 
-**The Transfer Radar 2025: The Athletic's ultimate guide to players who could be on the move**\
-`Focused on transfers across 2025, we look at the situations of Salah, Wirtz, Zubimendi, Davies, Gyokeres, Alexander-Arnold and more...`\
-https://nytimes.com/athletic/5936155/2024/12/03/transfer-radar-window-signings-guide/
+**6 Warm Getaways That Will Lift Your Spirits**\
+`Looking to take a break from the cold without traveling too far or spending too much? Here are some sunny, easy-to-reach places to beat the winter blahs.`\
+https://nytimes.com/2024/12/03/travel/winter-getaways-escapes.html
 
