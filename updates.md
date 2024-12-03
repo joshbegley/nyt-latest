@@ -1,3 +1,23 @@
+**Can Rahm Emanuel Flip the Script Again?**\
+`The former Clinton and Obama aide has a gift for constructing winning coalitions.`\
+https://nytimes.com/2024/12/03/opinion/democrats-rahm-emanuel-china.html
+
+**BlackRock Jumps Deeper Into the Private Markets**\
+`The world’s largest investor is buying HPS, a major provider of private credit, for $12 billion.`\
+https://nytimes.com/2024/12/03/business/blackrock-hbs-private-credit.html
+
+**South Korea President Declares Martial Law, Then Backs Down**\
+`Soon after President Yoon Suk Yeol’s declaration on Tuesday, lawmakers voted to defy him, prompting the president to say he was lifting his order, just hours after issuing it.`\
+https://nytimes.com/2024/12/03/world/asia/south-korea-martial-law.html
+
+**Wrexham 1 Barnsley 0: A '100-year-old' goalkeeper, Danny DeVito and a vital win**\
+`The big talking points dominating discussion of another vital victory for Phil Parkinson's side`\
+https://nytimes.com/athletic/5962488/2024/12/03/wrexham-barnsley-cosm-danny-devito/
+
+**Michigan fires offensive coordinator Kirk Campbell**\
+`Campbell just finished his first season as Michigan’s play caller and quarterbacks coach.`\
+https://nytimes.com/athletic/5967323/2024/12/03/michigan-offensive-coordinator-kirk-campbell-part-ways/
+
 **Farhan Zaidi talking to Dodgers about front office role: Sources**\
 `The Giants' former president of baseball operations would return to the team where he served as general manager from 2014-2018.`\
 https://nytimes.com/athletic/5966353/2024/12/03/farhan-zaidi-dodgers-front-office/
