@@ -1,4 +1,4 @@
-**NHL rumblings: What the Devils, Panthers and Hurricanes are looking for in the early trade market**\
+**LeBrun rumblings: What the Devils, Panthers and Hurricanes are looking for early in the trade market**\
 `Devils' Tom Fitzgerald: "You can’t have enough depth. I’ve been in touch with teams. I’m looking for utility players … guys who can skate."`\
 https://nytimes.com/athletic/5964808/2024/12/02/devils-panthers-hurricanes-nhl-rumblings/
 
