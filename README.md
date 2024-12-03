@@ -1,3 +1,7 @@
+**Israeli Officials Welcome Trump’s Demand to Free Hostages Before Inauguration**\
+`President-elect Donald J. Trump has threatened to take unspecified action unless the hostages held in Gaza are released before he takes office in January.`\
+https://nytimes.com/2024/12/03/world/middleeast/israel-trump-hostages.html
+
 **‘A Different Man’ and ‘Sing Sing’ Rule the Gotham Awards**\
 `The kickoff to awards season has a mixed record but can help lift small films like the two surprise winners.`\
 https://nytimes.com/2024/12/03/movies/gotham-awards-winners-a-different-man-sebastian-stan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/books/best-books-2024.html
 **Stones 'not close' to return from injury - Guardiola**\
 `Pep Guardiola says that John Stones is “not close” to a Manchester City return due to a foot problem.`\
 https://nytimes.com/athletic/5965605/2024/12/03/john-stones-injury-man-city-guardiola/
-
-**The Athletic FC: Europe's most wanted, Salah open to extra year at Liverpool, Slot's City joke**\
-`Today in TAFC: We analyse the hottest players in Europe who could move in 2025, plus Salah open to an extra year at Liverpool`\
-https://nytimes.com/athletic/5965513/2024/12/03/euro-transfer-deals-salah-liverpool-deal/
 
