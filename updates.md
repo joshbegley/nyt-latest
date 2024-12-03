@@ -1,3 +1,15 @@
+**Final Defendants in YSL Trial Are Acquitted of Murder and Gang Charges**\
+`The winding, yearslong case against the star Atlanta rapper Young Thug, who recently pleaded guilty to gang charges, and five others concluded on Tuesday.`\
+https://nytimes.com/2024/12/03/arts/music/ysl-trial-defendants-aquitted.html
+
+**Arts Galas Show That Extravagance Never Goes Out of Style**\
+`They are costly, labor-intensive and seemingly dated, but cultural organizations say black-tie dinners remain essential to pleasing donors and paying the bills.`\
+https://nytimes.com/2024/12/03/arts/design/arts-organization-galas-donors.html
+
+**Maple-Miso Salmon, Lemony Chicken Breasts and Broccoli Pesto**\
+`Light-but-satisfying dinners to fuel you for all that cookie-making.`\
+https://nytimes.com/2024/12/03/dining/salmon-chicken-pesto-recipes.html
+
 **U.S. Moves to End a Minimum Wage Waiver for Disabled Workers**\
 `A plan by the Biden administration would end a provision that allowed employers to pay workers with disabilities less than the federal minimum wage.`\
 https://nytimes.com/2024/12/03/business/economy/labor-disability-pay.html
