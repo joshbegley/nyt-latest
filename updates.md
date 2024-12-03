@@ -1,3 +1,7 @@
+**Who sits on the mysterious and powerful College Football Playoff committee?**\
+`There are 13 members on the College Football Playoff committee. Who are they, and what is their background in the sport?`\
+https://nytimes.com/athletic/5965850/2024/12/03/college-football-playoff-committee-members/
+
 **Final Defendants in YSL Trial Are Acquitted of Murder and Gang Charges**\
 `The winding, yearslong case against the star Atlanta rapper Young Thug, who recently pleaded guilty to gang charges, and five others concluded on Tuesday.`\
 https://nytimes.com/2024/12/03/arts/music/ysl-trial-defendants-aquitted.html
