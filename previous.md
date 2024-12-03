@@ -1,3 +1,7 @@
+**Investigation Into Forced Adoptions From Ukraine Points Finger at Putin**\
+`Yale researchers traced hundreds of children taken to Russia in the war, finding what they described as “a higher level of crime than first understood.”`\
+https://nytimes.com/2024/12/03/world/europe/russia-ukraine-children-deportation-adoption.html
+
 **Broncos' lessons in 'ugly' moments vs. Browns may prove valuable in playoff chase**\
 `Rookie Bo Nix led a go-ahead drive after a fourth-quarter interception and a defense that had been battered closed with a pick.`\
 https://nytimes.com/athletic/5965375/2024/12/03/broncos-browns-playoff-chase/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965501/2024/12/03/neale-fraser-tennis-obituary/
 **Mike McCarthy's status, playoff chances, wide receiver depth chart: Cowboys mailbag**\
 `With the Cowboys' schedule, is there a sliver of playoff hope and how might that affect Mike McCarthy's future?`\
 https://nytimes.com/athletic/5965389/2024/12/03/cowboys-mike-mccarthy-playoff-chances-mailbag/
-
-**How Fred VanVleet's lessons with Raptors are paving way for Rockets renaissance**\
-`"I didn’t want to make that same mistake here,” VanVleet said of coming to Houston with a new mindset after leaving Toronto. `\
-https://nytimes.com/athletic/5953784/2024/12/03/fred-vanvleet-raptors-rockets-exclusive/
 
