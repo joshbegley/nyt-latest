@@ -1,3 +1,11 @@
+**U.S. Sending $725 Million in Arms to Ukraine, Including More Land Mines**\
+`The package of military hardware is the largest since a $1 billion drawdown from Pentagon stockpiles was announced in late April.`\
+https://nytimes.com/2024/12/02/us/politics/ukraine-weapons-shipments.html
+
+**Pardoning Hunter Complicates the Legacy That Biden Envisioned**\
+`President Biden is facing criticism for absolving his son after insisting he would not and, according to some critics in his own party, paving the way for Donald Trump’s return to office.`\
+https://nytimes.com/2024/12/02/us/politics/biden-pardon-criticized-democrats.html
+
 **For U.K. Ambassador, Trump Picks Billionaire Who Supported His Rivals**\
 `Warren Stephens, an investment banker, gave $2 million in 2016 to a group aiming to block Donald J. Trump’s political rise. More recently, he backed Asa Hutchinson, Chris Christie, Mike Pence and Nikki Haley before donating to the Trump campaign.`\
 https://nytimes.com/2024/12/02/us/politics/britain-ambassador-trump-stephens.html
@@ -31,12 +39,4 @@ https://nytimes.com/2024/12/02/opinion/iran-women-hijab.html
 **A Move**\
 `Inspired by the movement for women’s rights in Iran, Elahe Esmaili returns to her hometown to start her own resistance.`\
 https://nytimes.com/video/opinion/100000009567320/a-move.html
-
-**Broad Pardon for Hunter Biden Troubles Experts**\
-`President Biden granted blanket clemency to stop his son from being prosecuted by the Trump administration for his foreign business. Experts reached for historical parallels.`\
-https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-president.html
-
-**Lions' Dan Campbell says Jahmyr Gibbs' leak of calls 'won’t affect us'**\
-`Gibbs, 22, accidentally revealed Detroit's protections, visible on a whiteboard at the team facility, in a Snapchat video.`\
-https://nytimes.com/athletic/5964704/2024/12/02/dan-campbell-jahmyr-gibbs-photo-lions/
 

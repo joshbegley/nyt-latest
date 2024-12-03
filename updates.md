@@ -1,3 +1,11 @@
+**U.S. Sending $725 Million in Arms to Ukraine, Including More Land Mines**\
+`The package of military hardware is the largest since a $1 billion drawdown from Pentagon stockpiles was announced in late April.`\
+https://nytimes.com/2024/12/02/us/politics/ukraine-weapons-shipments.html
+
+**Pardoning Hunter Complicates the Legacy That Biden Envisioned**\
+`President Biden is facing criticism for absolving his son after insisting he would not and, according to some critics in his own party, paving the way for Donald Trump’s return to office.`\
+https://nytimes.com/2024/12/02/us/politics/biden-pardon-criticized-democrats.html
+
 **For U.K. Ambassador, Trump Picks Billionaire Who Supported His Rivals**\
 `Warren Stephens, an investment banker, gave $2 million in 2016 to a group aiming to block Donald J. Trump’s political rise. More recently, he backed Asa Hutchinson, Chris Christie, Mike Pence and Nikki Haley before donating to the Trump campaign.`\
 https://nytimes.com/2024/12/02/us/politics/britain-ambassador-trump-stephens.html
