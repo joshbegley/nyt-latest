@@ -1,3 +1,11 @@
+**China Bans Rare Mineral Exports to the U.S.**\
+`The move comes a day after the Biden administration expanded curbs on the sale of advanced American technology to China.`\
+https://nytimes.com/2024/12/03/world/asia/china-minerals-semiconductors.html
+
+**Trials of VAR alternative with 'coach's challenge' extended by IFAB**\
+`Trials of Football Video Support (FVS), a Video Assistant Referee (VAR) alternative which sees managers able to make two ‘coach’s challenges’ in a game, have been expanded by the International Football Association Board (IFAB).`\
+https://nytimes.com/athletic/5965465/2024/12/03/football-video-support-coachs-challenge-var/
+
 **2025 NBA Draft Big Board: Does Cooper Flagg have competition for No. 1 spot?**\
 `Flagg remains at the head of the class, but a flashy point guard from BYU is moving up my top 100 list.`\
 https://nytimes.com/athletic/5948361/2024/12/03/nba-draft-2025-big-board-cooper-flagg-ace-bailey/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5964004/2024/12/03/patriots-stats-bye-week/
 **USC recruiting primer: 5 thoughts on the Trojans' 2025 class as signing day nears**\
 `The Trojans' class is safely inside the top 20 in the national rankings. That's solid, but USC needs to add some more top-end talent. `\
 https://nytimes.com/athletic/5962912/2024/12/03/usc-football-recruiting-lincoln-riley-2/
-
-**Fantasy football playoffs strategy: Add Colts, drop Bears and more team defense guidance**\
-`Dane Martinez identifies the available defenses that managers should consider adding ahead of the fantasy playoffs, and a few to drop.`\
-https://nytimes.com/athletic/5963456/2024/12/03/fantasy-football-team-defense-playoffs-streaming-guide/
-
-**A Worthy Cause (Actually, Many of Them) This Giving Tuesday**\
-`Highlighting nonprofits doing good work in New York and beyond.`\
-https://nytimes.com/2024/12/03/opinion/nyt-communities-fund.html
 
