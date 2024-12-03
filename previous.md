@@ -1,3 +1,7 @@
+**2025 WNBA schedule release: Why doesn't the winner earn more? Plus, crypto as prize pool money?**\
+`Some noteworthy numbers were released Monday afternoon when the WNBA dropped its 2025 schedule. `\
+https://nytimes.com/athletic/5964328/2024/12/02/2025-wnba-schedule-release-winner-earnings-crypto/
+
 **LeBrun rumblings: What the Devils, Panthers and Hurricanes are looking for early in the trade market**\
 `Devils' Tom Fitzgerald: "You can’t have enough depth. I’ve been in touch with teams. I’m looking for utility players … guys who can skate."`\
 https://nytimes.com/athletic/5964808/2024/12/02/devils-panthers-hurricanes-nhl-rumblings/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5964704/2024/12/02/dan-campbell-jahmyr-gibbs-photo-
 **Greenberg: Kevin Warren shows he's in charge as Bears try to find latest coaching savior**\
 `As GM Ryan Poles sat quietly, the team's president/CEO said they'll work diligently and "in tandem" to determine the Bears' next head coach.`\
 https://nytimes.com/athletic/5964353/2024/12/02/chicago-bears-coach-kevin-warren-ryan-poles/
-
-**Clay Holmes could start, Luis Robert Jr.'s trade market and other rumblings**\
-`If Holmes decides to pursue a starting job, he will join former relievers such as Seth Lugo, Reynaldo López and Jordan Hicks.`\
-https://nytimes.com/athletic/5964631/2024/12/02/clay-holmes-mlb-offseason-news/
 

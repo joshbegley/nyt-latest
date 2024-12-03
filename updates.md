@@ -1,3 +1,7 @@
+**2025 WNBA schedule release: Why doesn't the winner earn more? Plus, crypto as prize pool money?**\
+`Some noteworthy numbers were released Monday afternoon when the WNBA dropped its 2025 schedule. `\
+https://nytimes.com/athletic/5964328/2024/12/02/2025-wnba-schedule-release-winner-earnings-crypto/
+
 **LeBrun rumblings: What the Devils, Panthers and Hurricanes are looking for early in the trade market**\
 `Devils' Tom Fitzgerald: "You can’t have enough depth. I’ve been in touch with teams. I’m looking for utility players … guys who can skate."`\
 https://nytimes.com/athletic/5964808/2024/12/02/devils-panthers-hurricanes-nhl-rumblings/
