@@ -1,3 +1,7 @@
+**Commanders name Mark Clouse team president**\
+`Clouse has been the president and chief executive officer of The Campbell's Company since 2019.`\
+https://nytimes.com/athletic/5967207/2024/12/03/washington-commanders-team-president-mark-clouse/
+
 **Wales reach first major tournament; Wilkinson: 'A generation that's going to change everything'**\
 `Wales Women&#8217;s head coach Rhian Wilkinson said her side have provided &#8220;a generation of football that&#8217;s going to change everything&#8221; after qualifying for their first major tournament.`\
 https://nytimes.com/athletic/5967162/2024/12/03/wales-women-european-championship-qualify/
