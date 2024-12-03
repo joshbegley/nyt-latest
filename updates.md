@@ -1,3 +1,11 @@
+**Ancelotti: Tchouameni ready to start against Athletic Club**\
+`Real Madrid head coach Carlo Ancelotti says Aurelien Tchouameni is ready to return from an ankle injury.`\
+https://nytimes.com/athletic/5965643/2024/12/03/aurelien-tchouameni-real-madrid-injury-return/
+
+**Moviegoing Storms Back, Thanks to Sequels**\
+`Reports of the demise of Hollywood may be greatly exaggerated.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/thanksgiving-movie-moana-wicked
+
 **Investigation Into Forced Adoptions From Ukraine Points Finger at Putin**\
 `Yale researchers traced hundreds of children taken to Russia in the war, finding what they described as “a higher level of crime than first understood.”`\
 https://nytimes.com/2024/12/03/world/europe/russia-ukraine-children-deportation-adoption.html
