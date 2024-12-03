@@ -1,3 +1,11 @@
+**Maple Leafs report cards: Stolarz's excellent night carries Toronto in lackluster win**\
+`Auston Matthews scored his first goal since returning from injury, but the Blackhawks drove play for much of the night.`\
+https://nytimes.com/athletic/5964922/2024/12/02/maple-leafs-report-cards-stolarz-blackhawks/
+
+**Full Time: Takeaways from a tepid Wembley showing**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5965177/2024/12/02/uswnt-england-wembley-yohannes-full-time/
+
 **Trump Says He Will Block Acquisition of U.S. Steel by Japanese Firm**\
 `The announcement reiterated sentiments the president-elect expressed on the campaign trail, and further imperiled a deal that had already run into widespread political opposition.`\
 https://nytimes.com/2024/12/02/us/politics/trump-nippon-steel-us-merger.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5965021/2024/12/02/dana-holgorsen-nebraska-offensiv
 **49ers' Trent Williams, wife announce death of son after losing twin earlier in pregnancy**\
 `Trent Williams' wife, Sondra, gave birth to their stillborn son, Trenton Jr., at 35 weeks on Nov. 24.`\
 https://nytimes.com/athletic/5964975/2024/12/02/trent-williams-son-sf-49ers/
-
-**U.S. Sending $725 Million in Arms to Ukraine, Including More Land Mines**\
-`The package, the largest since April, comes amid deep concerns in Ukraine that the Trump administration may cut off aid. The president-elect has vowed to end the war quickly, but has not said how.`\
-https://nytimes.com/2024/12/02/us/politics/ukraine-weapons-shipments.html
-
-**Pardoning Hunter Complicates the Legacy That Biden Envisioned**\
-`President Biden is facing criticism for absolving his son after insisting he would not and, according to some critics in his own party, paving the way for Donald Trump’s return to office.`\
-https://nytimes.com/2024/12/02/us/politics/biden-pardon-criticized-democrats.html
 
