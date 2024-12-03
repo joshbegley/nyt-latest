@@ -1,3 +1,7 @@
+**Word of the Day: chutzpah**\
+`This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/03/learning/word-of-the-day-chutzpah.html
+
 **‘Look Out for Your Own’: Two Columnists on Why Biden’s Pardon Reeks of Privilege**\
 `While the pardon is legal, the rule of law isn’t maintained by merely keeping to the letter of the law.`\
 https://nytimes.com/2024/12/03/opinion/hunter-biden-pardon.html
