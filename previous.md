@@ -1,3 +1,7 @@
+**Biden Turns to an Unlikely Ally to Help Protect His Legacy: Republicans**\
+`President Biden wants to make it more difficult for President-elect Donald J. Trump to repeal his signature legislation, which sent money flowing to Republican districts nationwide.`\
+https://nytimes.com/2024/12/03/us/politics/biden-trump-legislation-republicans.html
+
 **Veteran catcher Kyle Higashioka signs with Texas Rangers**\
 `The deal is worth a total of $12.5 million ($5.75 million in 2025, $6.75 million in 2026), according to MLB.com.`\
 https://nytimes.com/athletic/5965822/2024/12/03/kyle-higashioka-contract-rangers-mlb-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963576/2024/12/03/azeez-al-shaair-suspension-texan
 **Rihanna Steals the Fashion Awards**\
 `And a dozen other looks that made news at Britain’s Met Gala of style.`\
 https://nytimes.com/2024/12/03/style/rihanna-fashion-awards-best-dressed.html
-
-**O'Neil has 'zero concerns' over Wolves future: 'We aren't too far away'**\
-`Wolves boss Gary O’Neil says he is ready to let results determine his future and insists he has “zero concerns” about the possibility of the sack.`\
-https://nytimes.com/athletic/5965843/2024/12/03/wolves-oneil-future-sack/
 

@@ -1,3 +1,7 @@
+**Biden Turns to an Unlikely Ally to Help Protect His Legacy: Republicans**\
+`President Biden wants to make it more difficult for President-elect Donald J. Trump to repeal his signature legislation, which sent money flowing to Republican districts nationwide.`\
+https://nytimes.com/2024/12/03/us/politics/biden-trump-legislation-republicans.html
+
 **O'Neil has 'zero concerns' over Wolves future: 'We aren't too far away'**\
 `Wolves boss Gary O’Neil says he is ready to let results determine his future and insists he has “zero concerns” about the possibility of the sack.`\
 https://nytimes.com/athletic/5965843/2024/12/03/wolves-oneil-future-sack/
