@@ -1,3 +1,7 @@
+**Neale Fraser, Australian tennis legend and Davis Cup captain, dies at 91**\
+`Fraser won 19 major titles and found particular success in doubles.`\
+https://nytimes.com/athletic/5965501/2024/12/03/neale-fraser-tennis-obituary/
+
 **How Fred VanVleet's lessons with Raptors are paving way for Rockets renaissance**\
 `"I didn’t want to make that same mistake here,” VanVleet said of coming to Houston with a new mindset after leaving Toronto. `\
 https://nytimes.com/athletic/5953784/2024/12/03/fred-vanvleet-raptors-rockets-exclusive/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963267/2024/12/03/nfl-draft-2025-risers-cam-ward-k
 **Will the Cardinals trade Nolan Arenado? A potential deal will likely have to wait**\
 `The Cardinals and Arenado could get a better idea of whether a trade can take place at next week's Winter Meetings.`\
 https://nytimes.com/athletic/5964129/2024/12/03/st-louis-cardinals-nolan-arenado-trade/
-
-**The Connections Companion No. 542**\
-`Scroll down for hints and conversation about the puzzle for TK Day, Month, Year.`\
-https://nytimes.com/2024/12/03/crosswords/connections-companion-542.html
 
