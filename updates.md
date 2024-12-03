@@ -1,3 +1,7 @@
+**Scoop City: Key injury returns and updated playoff picture**\
+`14 reinforcements for the current playoff teams, plus a look at why Ben Johnson remains in Detroit and Week 14 fantasy prep.`\
+https://nytimes.com/athletic/5966975/2024/12/03/nfl-key-injury-returns-current-playoff-bracket-scoop-city/
+
 **Paull Millsap retires after 16 NBA seasons**\
 `Millsap played a key role on each team he played for, eventually becoming an experienced leader.`\
 https://nytimes.com/athletic/5966836/2024/12/03/paul-millsap-nba-retirement/
