@@ -1,3 +1,11 @@
+**The Ultimate Yacht Rock Playlist**\
+`Gain a deeper appreciation of music from Michael McDonald, Toto and Christopher Cross.`\
+https://nytimes.com/2024/12/03/arts/music/amplifier-newsletter-yacht-rock.html
+
+**Drought in the Northeast: The Causes and Consequences**\
+`Readers discuss what one calls a “boom-or-bust precipitation cycle.” Also: Pete Hegseth’s mother’s accusation; what opera needs; Elon Musk and Mars.`\
+https://nytimes.com/2024/12/03/opinion/northeast-drought.html
+
 **A West Palm Beach Show Spotlights the Beauty and Tragedy of Boxing**\
 `Through paintings, photographs, sculptures, and even bejeweled boxing gloves, the show examines prizefighting as a metaphor for human struggle.`\
 https://nytimes.com/2024/12/03/arts/design/prizefighting-show-west-palm-beach.html
