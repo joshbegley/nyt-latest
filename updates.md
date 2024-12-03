@@ -1,3 +1,7 @@
+**College football bowl projections: For Alabama and Miami, it's the CFP or Orlando**\
+`How much will Tuesday night's rankings differ from Sunday's final bracket? Teams are mere days from learning their destinations.`\
+https://nytimes.com/athletic/5915859/2024/12/03/college-football-bowl-projections-9/
+
 **The Athletic FC: Europe's most wanted, Salah open to extra year at Liverpool, Slot's City joke**\
 `Today in TAFC: We analyse the hottest players in Europe who could move in 2025, plus Salah open to an extra year at Liverpool`\
 https://nytimes.com/athletic/5965513/2024/12/03/euro-transfer-deals-salah-liverpool-deal/

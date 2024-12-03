@@ -10,7 +10,7 @@ https://nytimes.com/interactive/2024/12/03/learning/03StudentNewsQuiz.html
 `The electric vehicle maker vowed to appeal after a Delaware judge rejected the tech mogul’s massive compensation deal for a second time.`\
 https://nytimes.com/2024/12/03/business/dealbook/musk-tesla-pay-delaware.html
 
-**College football bowl projections: For Alabama and Miami, it's the CFP or Florida**\
+**College football bowl projections: For Alabama and Miami, it's the CFP or Orlando**\
 `How much will Tuesday night's rankings differ from Sunday's final bracket? Teams are mere days from learning their destinations.`\
 https://nytimes.com/athletic/5915859/2024/12/03/college-football-bowl-projections-9/
 
