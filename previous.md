@@ -1,3 +1,15 @@
+**Patriots inside the numbers: 14 key statistics that tell the team's story at the bye**\
+`Where do the Patriots rank in key areas heading into the bye? And how do they compare to last year? Let's look at the advanced statistics.`\
+https://nytimes.com/athletic/5964004/2024/12/03/patriots-stats-bye-week/
+
+**USC recruiting primer: 5 thoughts on the Trojans' 2025 class as signing day nears**\
+`The Trojans' class is safely inside the top 20 in the national rankings. That's solid, but USC needs to add some more top-end talent. `\
+https://nytimes.com/athletic/5962912/2024/12/03/usc-football-recruiting-lincoln-riley-2/
+
+**Fantasy football playoffs strategy: Add Colts, drop Bears and more team defense guidance**\
+`Dane Martinez identifies the available defenses that managers should consider adding ahead of the fantasy playoffs, and a few to drop.`\
+https://nytimes.com/athletic/5963456/2024/12/03/fantasy-football-team-defense-playoffs-streaming-guide/
+
 **A Worthy Cause (Actually, Many of Them) This Giving Tuesday**\
 `Highlighting nonprofits doing good work in New York and beyond.`\
 https://nytimes.com/2024/12/03/opinion/nyt-communities-fund.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/03/upshot/election-turnout-harris-trump.html
 **Five Opinion Writers on What Biden Should Do in His Final Days as President**\
 `Protecting land and appointing judges could go a long way toward bolstering Biden’s legacy.`\
 https://nytimes.com/2024/12/03/opinion/bidens-finals-days-in-office.html
-
-**The Art of Decorating Holiday Mantels**\
-`The interior designer Bunny Williams shares tips on how she styles the five fireplaces in her Connecticut home.`\
-https://nytimes.com/2024/12/03/realestate/bunny-williams-holiday-decorating.html
-
-**Supreme Court Returns to a Culture War Battleground: Transgender Rights**\
-`On Wednesday, the justices will hear the marquee case of the term, a challenge to a Tennessee law banning several forms of medical care for transgender youths.`\
-https://nytimes.com/2024/12/03/us/supreme-court-transgender-rights-hearing.html
-
-**6 Warm Getaways That Will Lift Your Spirits**\
-`Looking to take a break from the cold without traveling too far or spending too much? Here are some sunny, easy-to-reach places to beat the winter blahs.`\
-https://nytimes.com/2024/12/03/travel/winter-getaways-escapes.html
 
