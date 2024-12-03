@@ -1,3 +1,7 @@
+**Can college football really stop flag-planting?**\
+`For college sports leaders, the focus after a emotional final weekend is on how to stop the extracurriculars from happening again.`\
+https://nytimes.com/athletic/5965942/2024/12/03/college-football-fights-flag-planting-penalties/
+
 **A Week of Arctic Cold Air and Lake-Effect Snow Is Ahead**\
 `Here’s a day-by-day look at the winter weather forecast.`\
 https://nytimes.com/2024/12/03/weather/weather-snow-cold-forecast.html
