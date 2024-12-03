@@ -1,3 +1,11 @@
+**Maple Leafs report cards: Stolarz's excellent night carries Toronto in lackluster win**\
+`Auston Matthews scored his first goal since returning from injury, but the Blackhawks drove play for much of the night.`\
+https://nytimes.com/athletic/5964922/2024/12/02/maple-leafs-report-cards-stolarz-blackhawks/
+
+**Full Time: Takeaways from a tepid Wembley showing**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5965177/2024/12/02/uswnt-england-wembley-yohannes-full-time/
+
 **Trump Says He Will Block Acquisition of U.S. Steel by Japanese Firm**\
 `The announcement reiterated sentiments the president-elect expressed on the campaign trail, and further imperiled a deal that had already run into widespread political opposition.`\
 https://nytimes.com/2024/12/02/us/politics/trump-nippon-steel-us-merger.html
