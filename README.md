@@ -1,3 +1,11 @@
+**Grandmother Looking for Cat May Have Fallen Into Sinkhole, Authorities Say**\
+`The authorities in Pennsylvania said they had been searching the sinkhole for the 64-year-old woman, and would continue until she is found.`\
+https://nytimes.com/2024/12/03/us/pennsylvania-woman-sinkhole-missing-cat.html
+
+**Fantasy football market share report: A Plan B if you miss out on Isaac Guerendo**\
+`In this week's fantasy football market report, Michael Salfino offers a Sincere (McCormick) backup plan if you miss out on Isaac Guerendo.`\
+https://nytimes.com/athletic/5967029/2024/12/03/fantasy-football-market-share-report-sincere-mccormick-isaac-guerendo/
+
 **Thirman Milner, Hartford Mayor Who Broke Race Barrier, Dies at 91**\
 `He grudgingly transitioned from civil rights to politics and became the first popularly elected Black mayor in New England.`\
 https://nytimes.com/2024/12/03/nyregion/thirman-milner-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5966682/2024/12/03/flyers-sam-ersson-injury/
 **The Best Wine Books of 2024**\
 `A tome on the totality of wine from a New York sommelier, a tale of six months in a French village and more books for the wine lovers in your life.`\
 https://nytimes.com/2024/12/03/dining/drinks/the-best-wine-books-of-2024.html
-
-**Guehi wears second religious message on rainbow armband despite FA reminder**\
-`Crystal Palace captain Marc Guehi wrote a religious message on his rainbow armband for a second successive Premier League game despite the Football Association saying it would remind him of its rules on the matter.`\
-https://nytimes.com/athletic/5966987/2024/12/03/marc-guehi-rainbow-armband-fa/
-
-**What to watch in college basketball this week: SEC, ACC and Big East, Big 12 showdowns**\
-`What to watch in college basketball this week, headlined by Auburn-Duke and Alabama-UNC.`\
-https://nytimes.com/athletic/5964193/2024/12/03/college-basketball-auburn-duke-sec-acc-big-12-big-east/
 
