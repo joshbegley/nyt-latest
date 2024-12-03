@@ -1,6 +1,6 @@
 **Canada 4 Nations roster: What we’re hearing about who made the cut and why**\
 `In speaking to dozens of sources across the NHL early this week, The Athletic has gotten a good sense of the roster — and the final debates.`\
-https://nytimes.com/athletic/5966939/2024/12/03/canada-roster-debates-4-nations-face-off/
+https://nytimes.com/athletic/5966939/2024/12/03/canada-roster-decisions-4-nations-face-off/
 
 **Where things stand for the Blue Jays ahead of the Winter Meetings**\
 `The latest on the team's pursuit of Juan Soto, the chances of a Jordan Romano reunion, a coaching staff update and more.`\
