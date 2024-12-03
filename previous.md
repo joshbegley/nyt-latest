@@ -1,3 +1,11 @@
+**President Yoon’s Speech Declaring Martial Law**\
+`President Yoon Suk Yeol made the extraordinary declaration in an unannounced speech to the nation on Tuesday night.`\
+https://nytimes.com/2024/12/03/world/asia/president-yoon-speech-martial-law.html
+
+**Ex-Giants are thriving around NFL. It's more pain for fans, more reason to question GM Joe Schoen**\
+`As the Giants bottom out in Year 3 of Schoen’s regime, it’s hard to reconcile why he’s let a handful of his best players leave.`\
+https://nytimes.com/athletic/5965221/2024/12/03/giants-joe-schoen-saquon-barkley-xavier-mckinney-nfl/
+
 **The Climate Crisis Is Bigger Than Any News Cycle**\
 `Companies continue to invest in sustainability, though many are no longer broadcasting it.`\
 https://nytimes.com/2024/12/03/special-series/patagonia-ceo-sustainability-greenwashing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5965845/2024/12/03/arsenal-manchester-united-city-a
 **Developing Countries Face Record Debt Costs Amid Interest Rate Surge**\
 `The World Bank warned in a new report that poor countries will be stuck in economic “purgatory” without debt relief.`\
 https://nytimes.com/2024/12/03/business/developing-countries-debt-world-bank.html
-
-**How good is the West Virginia job? The headwinds Neal Brown's replacement will inherit**\
-`There is deep fan support and a proud history here, but can reality line up to expectations in Morgantown?`\
-https://nytimes.com/athletic/5965742/2024/12/03/west-virginia-football-job-profile-candidates/
-
-**Martinez a doubt for Aston Villa vs Brentford with hand injury**\
-`Unai Emery says Emiliano Martinez is a doubt for Aston Villa&#8217;s match against Brentford with a hand injury.`\
-https://nytimes.com/athletic/5960524/2024/12/03/emi-martinez-injury-aston-villa/
 

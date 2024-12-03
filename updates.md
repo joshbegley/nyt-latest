@@ -1,3 +1,11 @@
+**President Yoon’s Speech Declaring Martial Law**\
+`President Yoon Suk Yeol made the extraordinary declaration in an unannounced speech to the nation on Tuesday night.`\
+https://nytimes.com/2024/12/03/world/asia/president-yoon-speech-martial-law.html
+
+**Ex-Giants are thriving around NFL. It's more pain for fans, more reason to question GM Joe Schoen**\
+`As the Giants bottom out in Year 3 of Schoen’s regime, it’s hard to reconcile why he’s let a handful of his best players leave.`\
+https://nytimes.com/athletic/5965221/2024/12/03/giants-joe-schoen-saquon-barkley-xavier-mckinney-nfl/
+
 **The Climate Crisis Is Bigger Than Any News Cycle**\
 `Companies continue to invest in sustainability, though many are no longer broadcasting it.`\
 https://nytimes.com/2024/12/03/special-series/patagonia-ceo-sustainability-greenwashing.html
