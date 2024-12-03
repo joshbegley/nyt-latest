@@ -1,7 +1,3 @@
-**What's at stake on final night of NBA Cup group-stage play?**\
-`Who will advance to the quarterfinals of the second NBA Cup? Here's what you need to know before Tuesday's final set of games.`\
-https://nytimes.com/athletic/5964484/2024/12/03/nba-cup-2024-standings-group-stage/
-
 **New Leicester boss Van Nistelrooy says Man United exit 'hurt'**\
 `Ruud van Nistelrooy says it hurt to leave Manchester United in November after an interim period in charge.`\
 https://nytimes.com/athletic/5965409/2024/12/03/van-nistelrooy-man-united-leicester-exit/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/03/arts/television/jon-stewart-hunter-biden-pardon.h
 **Word of the Day: chutzpah**\
 `This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/03/learning/word-of-the-day-chutzpah.html
+
+**‘This Is the Land of Wolves Now’: Two Columnists Get to the Heart of Biden’s Pardon**\
+`While the pardon is legal, the rule of law isn’t maintained by merely keeping to the letter of the law.`\
+https://nytimes.com/2024/12/03/opinion/hunter-biden-pardon.html
 
