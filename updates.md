@@ -1,3 +1,19 @@
+**What Was Your Most Successful New Year’s Resolution?**\
+`Tell us about how you were able to keep it.`\
+https://nytimes.com/2024/12/03/nyregion/what-was-your-most-successful-new-years-resolution.html
+
+**What Holiday Tradition Do You Cherish Most?**\
+`Tell us about it.`\
+https://nytimes.com/2024/12/03/nyregion/what-holiday-tradition-do-you-cherish-most.html
+
+**How the Flyers survived — and thrived — without No. 1 goalie Sam Ersson**\
+`The Flyers not only survived without Ersson, but they thrived to the tune of a 6-2-1 mark while he was out with an injury.`\
+https://nytimes.com/athletic/5966682/2024/12/03/flyers-sam-ersson-injury/
+
+**The Best Wine Books of 2024**\
+`A tome on the totality of wine from a New York sommelier, a tale of six months in a French village and more books for the wine lovers in your life.`\
+https://nytimes.com/2024/12/03/dining/drinks/the-best-wine-books-of-2024.html
+
 **Guehi wears second religious message on rainbow armband despite FA reminder**\
 `Crystal Palace captain Marc Guehi wrote a religious message on his rainbow armband for a second successive Premier League game despite the Football Association saying it would remind him of its rules on the matter.`\
 https://nytimes.com/athletic/5966987/2024/12/03/marc-guehi-rainbow-armband-fa/

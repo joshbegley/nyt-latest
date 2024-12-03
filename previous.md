@@ -1,3 +1,19 @@
+**What Was Your Most Successful New Year’s Resolution?**\
+`Tell us about how you were able to keep it.`\
+https://nytimes.com/2024/12/03/nyregion/what-was-your-most-successful-new-years-resolution.html
+
+**What Holiday Tradition Do You Cherish Most?**\
+`Tell us about it.`\
+https://nytimes.com/2024/12/03/nyregion/what-holiday-tradition-do-you-cherish-most.html
+
+**How the Flyers survived — and thrived — without No. 1 goalie Sam Ersson**\
+`The Flyers not only survived without Ersson, but they thrived to the tune of a 6-2-1 mark while he was out with an injury.`\
+https://nytimes.com/athletic/5966682/2024/12/03/flyers-sam-ersson-injury/
+
+**The Best Wine Books of 2024**\
+`A tome on the totality of wine from a New York sommelier, a tale of six months in a French village and more books for the wine lovers in your life.`\
+https://nytimes.com/2024/12/03/dining/drinks/the-best-wine-books-of-2024.html
+
 **Guehi wears second religious message on rainbow armband despite FA reminder**\
 `Crystal Palace captain Marc Guehi wrote a religious message on his rainbow armband for a second successive Premier League game despite the Football Association saying it would remind him of its rules on the matter.`\
 https://nytimes.com/athletic/5966987/2024/12/03/marc-guehi-rainbow-armband-fa/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5966975/2024/12/03/nfl-key-injury-returns-current-p
 **Paull Millsap retires after 16 NBA seasons**\
 `Millsap played a key role on each team he played for, eventually becoming an experienced leader.`\
 https://nytimes.com/athletic/5966836/2024/12/03/paul-millsap-nba-retirement/
-
-**Premier League asks clubs to send letter to MPs in attempt to limit independent regulator**\
-`The Premier League has asked its clubs to send a template letter to their local MPs as part of a lobbying effort to dramatically limit the powers of the proposed independent football regulator.`\
-https://nytimes.com/athletic/5966869/2024/12/03/premier-league-regulator-mps-letter/
-
-**Wednesday Briefing: A Brief Martial Law in South Korea**\
-`Plus, become a gladiator for a day.`\
-https://nytimes.com/2024/12/03/briefing/south-korea-china-minerals-ukraine-forced-adoptions.html
-
-**Shaw set for weeks out after suffering new muscular injury**\
-`Manchester United defender Luke Shaw is set to be sidelined for a number of weeks after suffering a new muscular injury.`\
-https://nytimes.com/athletic/5966930/2024/12/03/luke-shaw-manchester-united-injury-update/
-
-**Indiana Man Looks Out His Window and Finds 2 Babies Left in a Ditch**\
-`Robert Deane was waiting for a package when he discovered 4- and 5-month-old girls in car seats abandoned in the cold across the street from his house.`\
-https://nytimes.com/2024/12/03/us/indianapolis-babies-found-ditch.html
 
