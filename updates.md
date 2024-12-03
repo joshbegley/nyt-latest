@@ -1,3 +1,7 @@
+**Discounts and Deals Led to a Holiday Weekend That ‘Exceeded Expectations’**\
+`An estimated 197 million people shopped from Black Friday to Cyber Monday, the National Retail Federation said, fewer than last year but surpassing the group’s expectations.`\
+https://nytimes.com/2024/12/03/business/black-friday-cyber-monday-shopping.html
+
 **NFL MVP odds: You can't get Josh Allen for plus-money anymore**\
 `Josh Allen slid below even odds after Week 13, but Saquon Barkley isn't far behind. `\
 https://nytimes.com/athletic/5966238/2024/12/03/nfl-mvp-odds-week-13-josh-allen-saquon-barkley/

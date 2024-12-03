@@ -1,3 +1,19 @@
+**War Doesn’t Work Anymore**\
+`In a nuclear conflict, total victory is not an option. We might as well stop pretending it is.`\
+https://nytimes.com/2024/12/03/special-series/oppenheimer-nuclear-bombs-war.html
+
+**Amazon to air documentary about Real Madrid's 2023-24 Champions League win**\
+`A documentary about Real Madrid’s Champions League triumph in the 2023-24 season will be released on Amazon Prime in the near future.`\
+https://nytimes.com/athletic/5966403/2024/12/03/real-madrid-amazon-documentary/
+
+**Who Is Yoon Suk Yeol, South Korea’s Leader?**\
+`A conservative, Mr. Yoon won the presidency in 2022 by a slim margin, promising a more confrontational stance against North Korea. He quickly became unpopular and divisive at home.`\
+https://nytimes.com/2024/12/03/world/asia/yoon-suk-yeol-south-korea-president.html
+
+**F1 Academy’s Vegas GP presence underscored its role as a movement, not a moment**\
+`Managing director Susie Wolff says F1 Academy needs exposure outside traditional F1 channels. Its strategy was on display in Las Vegas.`\
+https://nytimes.com/athletic/5941130/2024/12/03/f1-academy-las-vegas-gp/
+
 **Discounts and Deals Led to a Holiday Weekend That ‘Exceeded Expectations’**\
 `An estimated 197 million people shopped from Black Friday to Cyber Monday, the National Retail Federation said, fewer than last year but surpassing the group’s expectations.`\
 https://nytimes.com/2024/12/03/business/black-friday-cyber-monday-shopping.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5966327/2024/12/03/aroldis-chapman-contract-red-sox
 **Stephen King to Shut Down His 3 Radio Stations in Maine**\
 `The author, who owns the small independent stations in Bangor, said that the decision was prompted by a desire to get his business affairs in order.`\
 https://nytimes.com/2024/12/03/arts/stephen-king-maine-radio-stations.html
-
-**Brooklyn Museum Shows Off All the Glitter, Glam and Greed**\
-`The new “Solid Gold” exhibition is a celebration of bling through the ages and around the world. But is eye candy enough?`\
-https://nytimes.com/2024/12/03/arts/design/solid-gold-brooklyn-museum.html
-
-**Cowboys Today: Fans' feelings are showing during Dallas' disappointing season**\
-`The Cowboys have won two in a row, but are 5-7, are lagging in Pro Bowl voting and fan enthusiasm has dwindled.`\
-https://nytimes.com/athletic/5966223/2024/12/03/cowboys-today-playoff-loss-packers-pro-bowl-voting/
-
-**Tennis Briefing: Is there a ranking point racket? What next for Patrick Mouratoglou's UTS?**\
-`Ranking points cause controversy on the Challenger Tour as the off-season begins`\
-https://nytimes.com/athletic/5962481/2024/12/03/tennis-rankings-atp-challenger-karue-sell/
-
-**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
-`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/5966347/2024/12/03/st-louis-blues-jeremy-rutherford-mailbag-december-2024/
 
