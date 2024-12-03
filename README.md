@@ -1,3 +1,15 @@
+**5 Art Fairs to See in 2025**\
+`From San Francisco to Tokyo and beyond, these art fairs offer something for everyone.`\
+https://nytimes.com/2024/12/03/arts/design/art-fairs.html
+
+**Talking About the Best Books of 2024**\
+`A group of editors on the year’s most extraordinary novels and nonfiction.`\
+https://nytimes.com/2024/12/03/books/review/best-books-podcast.html
+
+**A Wave of Galleries Will Debut at Art Basel Miami Beach This Year**\
+`Thirty-four galleries are joining the fray, bringing glass tongues, giant paintings and deceptively pink assemblages.`\
+https://nytimes.com/2024/12/03/arts/design/art-basel-miami-beach-new-galleries.html
+
 **Patrik Laine set to make debut Tuesday vs. Islanders**\
 `This will be Laine’s first NHL game since he faced the Maple Leafs with the Blue Jackets on Dec. 14, 2023.`\
 https://nytimes.com/athletic/5966499/2024/12/03/patrik-laine-debut-canadiens-islanders/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/03/business/black-friday-cyber-monday-shopping.html
 **NFL MVP odds: You can't get Josh Allen for plus-money anymore**\
 `Josh Allen slid below even odds after Week 13, but Saquon Barkley isn't far behind. `\
 https://nytimes.com/athletic/5966238/2024/12/03/nfl-mvp-odds-week-13-josh-allen-saquon-barkley/
-
-**The French Fare at Zimmi’s Is Anything But Routine**\
-`Plus Sal Tang’s brings Cantonese American to Cobble Hill, Dilli Dilli serves Old and New Delhi cuisine, and more restaurant news.`\
-https://nytimes.com/2024/12/03/dining/nyc-restaurant-news.html
-
-**Senate Confirms General’s Promotion After Republican Senator Lifts Hold**\
-`Lt. Gen. Christopher T. Donahue commanded U.S. troops in the final days of the withdrawal from Afghanistan.`\
-https://nytimes.com/2024/12/03/us/politics/general-christopher-donahue-promotion.html
-
-**Red Sox, Aroldis Chapman in agreement on one-year deal: Source**\
-`The veteran lefty adds more experience to the back end of the Red Sox bullpen.`\
-https://nytimes.com/athletic/5966327/2024/12/03/aroldis-chapman-contract-red-sox-mlb-free-agency/
 
