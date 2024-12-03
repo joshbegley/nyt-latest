@@ -1,3 +1,7 @@
+**South Koreans Stood Up for Their Democracy**\
+`Widespread protests helped lift a decree of martial law.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/south-koreans-stood-up-for-their-democracy
+
 **In a First, Transgender Woman Wins Model of the Year**\
 `Alex Consani is a star, on TikTok and on the runway. In her speech at the Fashion Awards in London, she acknowledged the struggles of other pioneers.`\
 https://nytimes.com/2024/12/03/style/alex-consani-model-of-the-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965826/2024/12/03/pat-riley-miami-heat-jimmy-butle
 **Western allies and the U.N. are keeping a worried eye on the crisis.**\
 `In Washington, London and New York, officials voiced concern over the power struggle between the president and lawmakers in South Korea.`\
 https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/western-allies-and-the-un-are-keeping-a-worried-eye-on-the-crisis
-
-**Tiny Love Stories: ‘I Surrendered and Played Along’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/12/03/style/tiny-modern-love-stories-i-surrendered-and-played-along.html
 
