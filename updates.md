@@ -1,3 +1,7 @@
+**Without a Law, the Government Can’t Protect Your Privacy**\
+`Don’t get your hopes up.`\
+https://nytimes.com/live/2024/11/26/opinion/thepoint/privacy-ftc-rule
+
 **What Was Your Most Successful New Year’s Resolution?**\
 `Tell us about how you were able to keep it.`\
 https://nytimes.com/2024/12/03/nyregion/what-was-your-most-successful-new-years-resolution.html
