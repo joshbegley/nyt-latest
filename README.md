@@ -1,3 +1,11 @@
+**Martial Law in South Korea Tests Biden and a Key U.S. Alliance**\
+`The Biden administration has hailed South Korea as a model democracy and bolstered military ties as it relies on the country as a bulwark against North Korea, China and Russia.`\
+https://nytimes.com/2024/12/03/us/politics/south-korea-martial-law-united-states.html
+
+**Beyond the Art Basel Miami Beach Fair**\
+`Although the fair is a huge attraction, there are many other exhibitions to visit nearby.`\
+https://nytimes.com/2024/12/03/arts/design/art-basel-miami-beach-see.html
+
 **Keeping a Dance Alive, Even After the Show Ends**\
 `At Art Basel Miami Beach, the Mexican choreographer Diego Vega Solorza explores masculinity in a new work and his gallery sells objects from performances.`\
 https://nytimes.com/2024/12/03/arts/design/diego-vega-solorza-art-basel-miami-beach.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5966403/2024/12/03/real-madrid-amazon-documentary/
 **Who Is Yoon Suk Yeol, South Korea’s Leader?**\
 `A conservative, Mr. Yoon won the presidency in 2022 by a slim margin, promising a more confrontational stance against North Korea. He quickly became unpopular and divisive at home.`\
 https://nytimes.com/2024/12/03/world/asia/yoon-suk-yeol-south-korea-president.html
-
-**F1 Academy’s Vegas GP presence underscored its role as a movement, not a moment**\
-`Managing director Susie Wolff says F1 Academy needs exposure outside traditional F1 channels. Its strategy was on display in Las Vegas.`\
-https://nytimes.com/athletic/5941130/2024/12/03/f1-academy-las-vegas-gp/
-
-**Discounts and Deals Led to a Holiday Weekend That ‘Exceeded Expectations’**\
-`An estimated 197 million people shopped from Black Friday to Cyber Monday, the National Retail Federation said, fewer than last year but surpassing the group’s expectations.`\
-https://nytimes.com/2024/12/03/business/black-friday-cyber-monday-shopping.html
 
