@@ -1,3 +1,7 @@
+**‘Look Out for Your Own’: Two Columnists on Why Biden’s Pardon Reeks of Privilege**\
+`While the pardon is legal, the rule of law isn’t maintained by merely keeping to the letter of the law.`\
+https://nytimes.com/2024/12/03/opinion/hunter-biden-pardon.html
+
 **How Gravenberch became one of Liverpool's 'untouchables'**\
 `The Dutch midfielder's blend of grit and guile has turned a problem position into an area of strength for Liverpool`\
 https://nytimes.com/athletic/5962721/2024/12/03/ryan-gravenberch-liverpool-untouchable/
