@@ -1,3 +1,15 @@
+**In a First, Transgender Woman Wins Model of the Year**\
+`Alex Consani is a star, on TikTok and on the runway. In her speech at the Fashion Awards in London, she acknowledged the struggles of other pioneers.`\
+https://nytimes.com/2024/12/03/style/alex-consani-model-of-the-year.html
+
+**President Yoon’s speech walking back his martial law order.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/president-yoon-speech-reversal-martial-law-order
+
+**USWNT star Carli Lloyd headlines 2025 National Soccer Hall of Fame class**\
+`The quintet will be inducted into the hall in a ceremony at Toyota Stadium in Frisco, Texas, in May.`\
+https://nytimes.com/athletic/5966769/2024/12/03/national-soccer-hall-of-fame-uswnt-carli-lloyd/
+
 **South Korea’s Obstacles to Parenthood**\
 `Korean women have always been resilient, but they alone cannot overcome a culture of misogyny and a lack of economic security.`\
 https://nytimes.com/2024/12/03/special-series/korea-fertility-rates-family.html
