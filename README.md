@@ -1,3 +1,11 @@
+**Amid Pro-Palestinian Protests, Turner Prize Goes to Jasleen Kaur**\
+`The artist, who has supported the protests against the Tate group of museums, won the prestigious British award for an installation that includes a car covered by a giant doily.`\
+https://nytimes.com/2024/12/03/arts/design/turner-prize-jasleen-kaur.html
+
+**Ryan Reaves defends record: 'Gonna keep playing hard, if not harder now'**\
+`Commenting for the first time since his five-game suspension, Ryan Reaves spoke with regret about the result of his hit on Darnell Nurse.`\
+https://nytimes.com/athletic/5966785/2024/12/03/maple-leafs-ryan-reaves-suspension-comments/
+
 **Heat Today: Pat Riley gave us a window into team-building. What does it mean for Heat?**\
 `How does Pat Riley's insight into his front-office philosophy apply to this season’s struggling Heat?`\
 https://nytimes.com/athletic/5965826/2024/12/03/pat-riley-miami-heat-jimmy-butler-tyler-herro-bam-adebayo-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/arts/music/amplifier-newsletter-yacht-rock.html
 **Drought in the Northeast: The Causes and Consequences**\
 `Readers discuss what one calls a “boom-or-bust precipitation cycle.” Also: Pete Hegseth’s mother’s accusation; what opera needs; Elon Musk and Mars.`\
 https://nytimes.com/2024/12/03/opinion/northeast-drought.html
-
-**A West Palm Beach Show Spotlights the Beauty and Tragedy of Boxing**\
-`Through paintings, photographs, sculptures, and even bejeweled boxing gloves, the show examines prizefighting as a metaphor for human struggle.`\
-https://nytimes.com/2024/12/03/arts/design/prizefighting-show-west-palm-beach.html
-
-**A Los Angeles Gallery Brings Bold Art, and Vision, to Miami Beach**\
-`In 2012, Esther Kim Varet founded the gallery Various Small Fires out of her home. It has since gone multinational, and Kim Varet is still pushing the envelope.`\
-https://nytimes.com/2024/12/03/arts/design/los-angeles-gallery-art-basel-miami-beach.html
 
