@@ -1,3 +1,19 @@
+**Jurors Set to Weigh Penny’s Fate in Choking Case That Divided New York**\
+`Prosecutors in Daniel Penny’s manslaughter trial are to finish closing arguments Tuesday. The trial has touched on fears about crime and the city’s failure to help its most troubled residents.`\
+https://nytimes.com/2024/12/03/nyregion/daniel-penny-subway-chokehold-trial.html
+
+**What’s Next for Google’s Search Monopoly**\
+`The federal judge who ruled Google was a monopolist in search is weighing the U.S. government’s proposal to force the company to sell its Chrome browser. Here’s what happens now.`\
+https://nytimes.com/2024/12/03/technology/google-search-antitrust-judge.html
+
+**Earn $800,000? You Might Get Financial Aid at an Elite N.Y.C. School.**\
+`The average tuition of $65,000 a year at private schools has separated New York’s truly rich, who can afford to pay full tuition, from its merely wealthy.`\
+https://nytimes.com/2024/12/03/nyregion/nyc-private-school-tuition.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/03/crosswords/spelling-bee-forum.html
+
 **3 Climbers Missing After Attempt to Scale New Zealand’s Tallest Mountain**\
 `Two Americans and a Canadian were climbing Mount Cook before failing to show up to a prearranged flight on Monday.`\
 https://nytimes.com/2024/12/03/world/australia/climbers-missing-new-zealand.html
