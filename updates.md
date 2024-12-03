@@ -1,3 +1,7 @@
+**A West Palm Beach Show Spotlights the Beauty and Tragedy of Boxing**\
+`Through paintings, photographs, sculptures, and even bejeweled boxing gloves, the show examines prizefighting as a metaphor for human struggle.`\
+https://nytimes.com/2024/12/03/arts/design/prizefighting-show-west-palm-beach.html
+
 **A Los Angeles Gallery Brings Bold Art, and Vision, to Miami Beach**\
 `In 2012, Esther Kim Varet founded the gallery Various Small Fires out of her home. It has since gone multinational, and Kim Varet is still pushing the envelope.`\
 https://nytimes.com/2024/12/03/arts/design/los-angeles-gallery-art-basel-miami-beach.html
