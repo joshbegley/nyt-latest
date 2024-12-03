@@ -34,7 +34,7 @@ https://nytimes.com/2024/12/03/arts/television/jon-stewart-hunter-biden-pardon.h
 `This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/03/learning/word-of-the-day-chutzpah.html
 
-**‘Look Out for Your Own’: Two Columnists on Why Biden’s Pardon Reeks of Privilege**\
+**‘This Is the Land of Wolves Now’: Two Columnists Get to the Heart of Biden’s Pardon**\
 `While the pardon is legal, the rule of law isn’t maintained by merely keeping to the letter of the law.`\
 https://nytimes.com/2024/12/03/opinion/hunter-biden-pardon.html
 
