@@ -1,3 +1,7 @@
+**2025 NBA Draft Big Board: Does Cooper Flagg have competition for No. 1 spot?**\
+`Flagg remains at the head of the class, but a flashy point guard from BYU is moving up my top 100 list.`\
+https://nytimes.com/athletic/5948361/2024/12/03/nba-draft-2025-big-board-cooper-flagg-ace-bailey/
+
 **Kelleher's form means Alisson won't be rushed back, Slot says**\
 `Arne Slot says he does not need to rush Alisson Becker back from injury due to the form of Caoimhin Kelleher.`\
 https://nytimes.com/athletic/5965495/2024/12/03/alisson-liverpool-kelleher-arne-slot/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5965495/2024/12/03/alisson-liverpool-kelleher-arne-
 `Del Potro's last dance with Djokovic was not the last search for glory we've seenin recent times from some of his contemporaries`\
 https://nytimes.com/athletic/5964322/2024/12/03/juan-martin-del-potro-tennis-retirement-last-match-djokovic/
 
-**'No conversations' to replace Rooney says Plymouth Argyle chairman**\
+**Plymouth not considering sacking Rooney, says chairman**\
 `Plymouth Argyle chairman Simon Hallett has insisted there are “no conversations going on” about replacing Wayne Rooney as manager.`\
 https://nytimes.com/athletic/5965471/2024/12/03/wayne-rooney-plymouth-future/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963456/2024/12/03/fantasy-football-team-defense-pl
 **A Worthy Cause (Actually, Many of Them) This Giving Tuesday**\
 `Highlighting nonprofits doing good work in New York and beyond.`\
 https://nytimes.com/2024/12/03/opinion/nyt-communities-fund.html
-
-**What Kash Patel Could Do to the F.B.I.**\
-`The true danger is almost less about the pick and more about what it says about Trump’s approach to his second term.`\
-https://nytimes.com/2024/12/03/opinion/kash-patel-trump-fbi.html
 
