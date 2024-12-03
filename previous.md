@@ -1,3 +1,7 @@
+**Trump to Attend Notre-Dame Cathedral Reopening in Paris**\
+`The trip will be Donald J. Trump’s first foreign trip since last month’s election and offers a sign that global leaders are turning the page on the Biden presidency.`\
+https://nytimes.com/2024/12/02/us/politics/trump-notre-dame-cathedral-paris.html
+
 **U.S. Coast Guard Suspends Search for 5 People Missing in Alaska Waters**\
 `The Coast Guard received a mayday call from a fishing boat on Sunday just after midnight. Search crews looked for its passengers for almost 24 hours.`\
 https://nytimes.com/2024/12/02/us/alaska-fishing-boat-capsized-search.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5964808/2024/12/02/devils-panthers-hurricanes-nhl-r
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/5964906/2024/12/02/submit-a-question-for-stewart-mandels-college-football-mailbag-284/
-
-**How Biden Changed His Mind on Pardoning Hunter: ‘Time to End All of This’**\
-`The threat of a retribution-focused Trump administration and his son’s looming sentencings prompted the president to abandon a promise not to get involved in Hunter Biden’s legal problems.`\
-https://nytimes.com/2024/12/02/us/politics/hunter-biden-pardon-decision.html
 

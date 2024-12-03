@@ -1,3 +1,7 @@
+**Trump to Attend Notre-Dame Cathedral Reopening in Paris**\
+`The trip will be Donald J. Trump’s first foreign trip since last month’s election and offers a sign that global leaders are turning the page on the Biden presidency.`\
+https://nytimes.com/2024/12/02/us/politics/trump-notre-dame-cathedral-paris.html
+
 **U.S. Coast Guard Suspends Search for 5 People Missing in Alaska Waters**\
 `The Coast Guard received a mayday call from a fishing boat on Sunday just after midnight. Search crews looked for its passengers for almost 24 hours.`\
 https://nytimes.com/2024/12/02/us/alaska-fishing-boat-capsized-search.html
