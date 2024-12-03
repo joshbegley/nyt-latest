@@ -1,3 +1,7 @@
+**Jon Stewart Thinks Biden Could Have Timed That Pardon Better**\
+`“Normally, you drop a controversial pardon like the way you buy porn at a gas station: in a flurry of other distracting purchases,” the “Late Night” host said.`\
+https://nytimes.com/2024/12/03/arts/television/jon-stewart-hunter-biden-pardon.html
+
 **Word of the Day: chutzpah**\
 `This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/03/learning/word-of-the-day-chutzpah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5954994/2024/12/03/inside-newcastle-qa-is-eddie-how
 **Broncos respond late in shootout vs. Browns for 41-32 win: Takeaways**\
 `The Broncos are 8-5, their best record this late in the season since 2016.`\
 https://nytimes.com/athletic/5963960/2024/12/03/broncos-browns-mnf-score-result-takeaways/
-
-**Inside the crisis derailing Manchester City's season**\
-`A game in training in which first-team players were outshone by youngsters is one example of the effect a long winless run is having on City`\
-https://nytimes.com/athletic/5946660/2024/12/03/manchester-city-pep-guardiola-liverpool/
 

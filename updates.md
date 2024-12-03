@@ -1,3 +1,7 @@
+**Jon Stewart Thinks Biden Could Have Timed That Pardon Better**\
+`“Normally, you drop a controversial pardon like the way you buy porn at a gas station: in a flurry of other distracting purchases,” the “Late Night” host said.`\
+https://nytimes.com/2024/12/03/arts/television/jon-stewart-hunter-biden-pardon.html
+
 **Word of the Day: chutzpah**\
 `This word has appeared in 53 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/03/learning/word-of-the-day-chutzpah.html
