@@ -1,3 +1,7 @@
+**NHL rumblings: What the Devils, Panthers and Hurricanes are looking for in the early trade market**\
+`Devils' Tom Fitzgerald: "You can’t have enough depth. I’ve been in touch with teams. I’m looking for utility players … guys who can skate."`\
+https://nytimes.com/athletic/5964808/2024/12/02/devils-panthers-hurricanes-nhl-rumblings/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Well, it&#8217;s come to this. One more set of games to enjoy, one more set of committee rankings to be angry about.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5964353/2024/12/02/chicago-bears-coach-kevin-warren
 **Clay Holmes could start, Luis Robert Jr.'s trade market and other rumblings**\
 `If Holmes decides to pursue a starting job, he will join former relievers such as Seth Lugo, Reynaldo López and Jordan Hicks.`\
 https://nytimes.com/athletic/5964631/2024/12/02/clay-holmes-mlb-offseason-news/
-
-**Kash Patel Has Plan to Remake the F.B.I. Into a Tool of Trump**\
-`President-elect Donald Trump’s pick to lead the F.B.I. has called for firing the agency’s top officials, shutting down its Washington headquarters and prosecuting journalists.`\
-https://nytimes.com/2024/12/02/us/politics/kash-patel-fbi.html
 
