@@ -1,3 +1,11 @@
+**Debbie Nelson, Eminem’s Mother, Dies at 69**\
+`The two had a fraught relationship that was immortalized in many of Eminem’s earliest hits.`\
+https://nytimes.com/2024/12/03/arts/debbie-nelson-eminem-mother-dead.html
+
+**Biden Acknowledges Slave Trade in Angola and Pledges $1 Billion in Aid**\
+`President Biden became the first U.S. president to travel to Angola and delivered remarks at the National Museum of Slavery in Luanda.`\
+https://nytimes.com/video/world/africa/100000009856678/biden-angola.html
+
 **South Koreans Stood Up for Their Democracy**\
 `Widespread protests helped lift a decree of martial law.`\
 https://nytimes.com/live/2024/11/26/opinion/thepoint/south-korea-martial-law-democracy
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/arts/design/turner-prize-jasleen-kaur.html
 **Ryan Reaves defends record: 'Gonna keep playing hard, if not harder now'**\
 `Commenting for the first time since his five-game suspension, Ryan Reaves spoke with regret about the result of his hit on Darnell Nurse.`\
 https://nytimes.com/athletic/5966785/2024/12/03/maple-leafs-ryan-reaves-suspension-comments/
-
-**Heat Today: Pat Riley gave us a window into team-building. What does it mean for Heat?**\
-`How does Pat Riley's insight into his front-office philosophy apply to this season’s struggling Heat?`\
-https://nytimes.com/athletic/5965826/2024/12/03/pat-riley-miami-heat-jimmy-butler-tyler-herro-bam-adebayo-nba/
-
-**Western allies and the U.N. are keeping a worried eye on the crisis.**\
-`In Washington, London and New York, officials voiced concern over the power struggle between the president and lawmakers in South Korea.`\
-https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/western-allies-and-the-un-are-keeping-a-worried-eye-on-the-crisis
 
