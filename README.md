@@ -30,11 +30,11 @@ https://nytimes.com/2024/12/03/briefing/why-turnout-wasnt-the-democrats-problem.
 `Fraser won 19 major titles and found particular success in doubles.`\
 https://nytimes.com/athletic/5965501/2024/12/03/neale-fraser-tennis-obituary/
 
+**Mike McCarthy's status, playoff chances, wide receiver depth chart: Cowboys mailbag**\
+`With the Cowboys' schedule, is there a sliver of playoff hope and how might that affect Mike McCarthy's future?`\
+https://nytimes.com/athletic/5965389/2024/12/03/cowboys-mike-mccarthy-playoff-chances-mailbag/
+
 **How Fred VanVleet's lessons with Raptors are paving way for Rockets renaissance**\
 `"I didn’t want to make that same mistake here,” VanVleet said of coming to Houston with a new mindset after leaving Toronto. `\
 https://nytimes.com/athletic/5953784/2024/12/03/fred-vanvleet-raptors-rockets-exclusive/
-
-**NFL interim coaches rarely last. Can the Bears' Thomas Brown be different?**\
-`Brown has a connection with Caleb Williams, buy-in from the locker room and an endorsement from Sean McVay. Will it be enough?`\
-https://nytimes.com/athletic/5964645/2024/12/03/bears-interim-coach-thomas-brown-matt-eberflus/
 
