@@ -1,3 +1,7 @@
+**The White House Goes on the Defense, and Israel and Hezbollah Trade Fire**\
+`Plus, mail trucks get a “goofy” upgrade.`\
+https://nytimes.com/2024/12/03/podcasts/biden-pardon-defend-supreme-court-ethics-israel-hezbollah-truce.html
+
 **NFL interim coaches rarely last. Can the Bears' Thomas Brown be different?**\
 `Brown has a connection with Caleb Williams, buy-in from the locker room and an endorsement from Sean McVay. Will it be enough?`\
 https://nytimes.com/athletic/5964645/2024/12/03/bears-interim-coach-thomas-brown-matt-eberflus/
