@@ -1,3 +1,7 @@
+**New Leicester boss Van Nistelrooy says Man United exit 'hurt'**\
+`Ruud van Nistelrooy says it hurt to leave Manchester United in November after an interim period in charge of the side.`\
+https://nytimes.com/athletic/5965409/2024/12/03/van-nistelrooy-man-united-leicester-exit/
+
 **Jurors Set to Weigh Penny’s Fate in Choking Case That Divided New York**\
 `Prosecutors in Daniel Penny’s manslaughter trial are to finish closing arguments Tuesday. The trial has touched on fears about crime and the city’s failure to help its most troubled residents.`\
 https://nytimes.com/2024/12/03/nyregion/daniel-penny-subway-chokehold-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/learning/word-of-the-day-chutzpah.html
 **‘Look Out for Your Own’: Two Columnists on Why Biden’s Pardon Reeks of Privilege**\
 `While the pardon is legal, the rule of law isn’t maintained by merely keeping to the letter of the law.`\
 https://nytimes.com/2024/12/03/opinion/hunter-biden-pardon.html
-
-**How Gravenberch became one of Liverpool's 'untouchables'**\
-`The Dutch midfielder's blend of grit and guile has turned a problem position into an area of strength for Liverpool`\
-https://nytimes.com/athletic/5962721/2024/12/03/ryan-gravenberch-liverpool-untouchable/
 

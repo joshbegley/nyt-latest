@@ -1,3 +1,7 @@
+**New Leicester boss Van Nistelrooy says Man United exit 'hurt'**\
+`Ruud van Nistelrooy says it hurt to leave Manchester United in November after an interim period in charge of the side.`\
+https://nytimes.com/athletic/5965409/2024/12/03/van-nistelrooy-man-united-leicester-exit/
+
 **Jurors Set to Weigh Penny’s Fate in Choking Case That Divided New York**\
 `Prosecutors in Daniel Penny’s manslaughter trial are to finish closing arguments Tuesday. The trial has touched on fears about crime and the city’s failure to help its most troubled residents.`\
 https://nytimes.com/2024/12/03/nyregion/daniel-penny-subway-chokehold-trial.html
