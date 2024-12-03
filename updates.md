@@ -1,3 +1,7 @@
+**NFL playoff picture, Week 13: Steelers seize control of AFC North, Bills clinch AFC East**\
+`Who's in and who's out? Take a look at the NFL playoff picture as it stands with one game left in Week 13. `\
+https://nytimes.com/athletic/5947479/2024/12/02/nfl-playoff-picture-week-13-update/
+
 **Rangers pushback not enough after early breakdowns in Devils drubbing: 3 takeaways**\
 `The Rangers got off to yet another slow start, with two Devils goals before the halfway mark of the first period.`\
 https://nytimes.com/athletic/5965200/2024/12/02/rangers-early-breakdowns-devils/
