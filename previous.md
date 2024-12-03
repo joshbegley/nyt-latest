@@ -1,3 +1,7 @@
+**South Korea’s President Imposed Martial Law, Then Lifted It**\
+`Also, China banned rare mineral exports to the U.S. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/12/03/briefing/south-korea-martial-law-best-books-of-2024.html
+
 **Morton I. Abramowitz, Diplomat Who Made Refugees a Priority, Dies at 91**\
 `As ambassador to Thailand and Turkey, and later as president of the Carnegie Endowment, he pushed for making human rights central to foreign policy.`\
 https://nytimes.com/2024/12/03/us/morton-i-abramowitz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5967029/2024/12/03/fantasy-football-market-share-re
 **Thirman Milner, Hartford Mayor Who Broke Race Barrier, Dies at 91**\
 `He grudgingly transitioned from civil rights to politics and became the first popularly elected Black mayor in New England.`\
 https://nytimes.com/2024/12/03/nyregion/thirman-milner-dead.html
-
-**Who is Lee Jae-myung, the South Korean opposition leader?**\
-`The opposition leader rallied lawmakers to vote down President Yoon Suk Yeol’s martial law decree.`\
-https://nytimes.com/2024/12/03/world/asia/lee-jae-myung-opposition-leader.html
 
