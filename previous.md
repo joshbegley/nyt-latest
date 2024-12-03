@@ -1,3 +1,11 @@
+**Italian Man Given Life Sentence for Brutal Murder of Ex-Girlfriend**\
+`The killing ignited national outrage and provoked calls for stronger measures to protect women.`\
+https://nytimes.com/2024/12/03/world/europe/giulia-cecchettin-murder-conviction-italy.html
+
+**Carli Lloyd undoubtedly earned her Hall of Fame induction, and few will argue**\
+`Lloyd's long list of on-field accomplishments earned her a spot in the class of 2025.`\
+https://nytimes.com/athletic/5966678/2024/12/03/carli-lloyd-hall-of-fame-induction/
+
 **Debbie Nelson, Eminem’s Mother, Dies at 69**\
 `The two had a fraught relationship that was immortalized in many of Eminem’s earliest hits.`\
 https://nytimes.com/2024/12/03/arts/debbie-nelson-eminem-mother-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/03/special-series/korea-fertility-rates-family.html
 **Antidoping Agency Froze Out Investigators Who Warned About China**\
 `The World Anti-Doping Agency’s investigative unit highlighted intelligence about Chinese athletes possibly using a banned medication, but were kept out of the loop when 23 swimmers tested positive for it.`\
 https://nytimes.com/2024/12/03/us/politics/wada-china-doping-olympics.html
-
-**Amid Pro-Palestinian Protests, Turner Prize Goes to Jasleen Kaur**\
-`The artist, who has supported the protests against the Tate group of museums, won the prestigious British award for an installation that includes a car covered by a giant doily.`\
-https://nytimes.com/2024/12/03/arts/design/turner-prize-jasleen-kaur.html
-
-**Ryan Reaves defends record: 'Gonna keep playing hard, if not harder now'**\
-`Commenting for the first time since his five-game suspension, Ryan Reaves spoke with regret about the result of his hit on Darnell Nurse.`\
-https://nytimes.com/athletic/5966785/2024/12/03/maple-leafs-ryan-reaves-suspension-comments/
 

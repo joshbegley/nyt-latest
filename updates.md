@@ -1,3 +1,11 @@
+**Italian Man Given Life Sentence for Brutal Murder of Ex-Girlfriend**\
+`The killing ignited national outrage and provoked calls for stronger measures to protect women.`\
+https://nytimes.com/2024/12/03/world/europe/giulia-cecchettin-murder-conviction-italy.html
+
+**Carli Lloyd undoubtedly earned her Hall of Fame induction, and few will argue**\
+`Lloyd's long list of on-field accomplishments earned her a spot in the class of 2025.`\
+https://nytimes.com/athletic/5966678/2024/12/03/carli-lloyd-hall-of-fame-induction/
+
 **Debbie Nelson, Eminem’s Mother, Dies at 69**\
 `The two had a fraught relationship that was immortalized in many of Eminem’s earliest hits.`\
 https://nytimes.com/2024/12/03/arts/debbie-nelson-eminem-mother-dead.html
