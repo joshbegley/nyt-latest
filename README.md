@@ -1,3 +1,23 @@
+**Visiting Upton Park on a matchday: 'Are West Ham at home? No, they're away at Stratford'**\
+`Ahead of the Arsenal game, The Athletic went to West Ham’s old home to see what happens in the area ahead of a Premier League fixture`\
+https://nytimes.com/athletic/5961351/2024/12/03/west-ham-upton-park-matchday/
+
+**Chelsea were questioned for appointing Maresca - six months on, the doubts have vanished**\
+`He was far from a popular choice in the summer but Chelsea have started the season well under new coach Maresca`\
+https://nytimes.com/athletic/5963037/2024/12/03/chelsea-enzo-maresca-column/
+
+**Yankuba Minteh's return from injury comes at the perfect moment for Brighton**\
+`Brighton play six matches this month, starting with Thursday's game at Fulham. Having Minteh back will help them break down opponents`\
+https://nytimes.com/athletic/5842648/2024/12/03/how-yankuba-mintehs-return-from-injury-will-help-brighton-break-down-opponents/
+
+**Inside Newcastle Q&A: Is Howe still the right coach? Is 4-3-3 the problem? Will January bring solutions?**\
+`Chris Waugh answers questions on transfers, stadium plans, and why he'd bring back Nobby Solano`\
+https://nytimes.com/athletic/5954994/2024/12/03/inside-newcastle-qa-is-eddie-howe-the-right-coach-is-4-3-3-the-problem-will-january-bring-solutions/
+
+**Broncos respond late in shootout vs. Browns for 41-32 win: Takeaways**\
+`The Broncos are 8-5, their best record this late in the season since 2016.`\
+https://nytimes.com/athletic/5963960/2024/12/03/broncos-browns-mnf-score-result-takeaways/
+
 **Inside the crisis derailing Manchester City's season**\
 `A game in training in which first-team players were outshone by youngsters is one example of the effect a long winless run is having on City`\
 https://nytimes.com/athletic/5946660/2024/12/03/manchester-city-pep-guardiola-liverpool/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5963646/2024/12/03/winning-penalties-as-creativity-
 **Remembering David de Gea's 2017 Emirates Stadium masterclass - and exploring the psychology behind it**\
 `Why great goalkeeping performances are reliant on a difficult combination of technical, mental and physical excellence `\
 https://nytimes.com/athletic/5827988/2024/12/03/david-de-gea-arsenal-saving-streaks/
-
-**Inside the deal: Why Leicester wanted Ruud van Nistelrooy**\
-`Former United man does not have a wealth of managerial experience, but Leicester see him as someone who can unite the club, players and fans`\
-https://nytimes.com/athletic/5962455/2024/12/03/inside-the-deal-why-leicester-wanted-ruud-van-nistelrooy/
-
-**Tuesday Briefing**\
-`Russian and Iranian support for Syria.`\
-https://nytimes.com/2024/12/03/briefing/russia-iran-france-gaza.html
-
-**France’s Looming Dilemma: No Confidence, No Government, No Budget**\
-`A vote by Parliament could force the prime minister to resign, leaving his budget legislation in limbo.`\
-https://nytimes.com/2024/12/03/world/europe/france-budget-michel-barnier.html
-
-**Where You Should Donate This Holiday Season**\
-`The return of Times Opinion’s annual giving guide.`\
-https://nytimes.com/2024/12/03/style/holiday-donations.html
-
-**Quote of the Day: Russia’s Elites Feeling Pinched By Slow Growth**\
-`Quotation of the Day for Tuesday, December 3, 2024.`\
-https://nytimes.com/2024/12/02/pageoneplus/quote-of-the-day-russias-elites-feeling-pinched-by-slow-growth.html
 
