@@ -1,3 +1,7 @@
+**NBA Power Rankings: Hey, how's the new guy doing?**\
+`Other risers this week include the Bucks, Mavericks and Hawks, while the teams at the top have benefited from continuity.`\
+https://nytimes.com/athletic/5965547/2024/12/03/nba-power-rankings-celtics-cavs-rockets-lakers/
+
 **Ravens' John Harbaugh mum on Diontae Johnson's status with team**\
 `Since joining Baltimore via trade in October, Johnson has just one catch in five games.`\
 https://nytimes.com/athletic/5965768/2024/12/03/diontae-johnson-ravens-john-harbaugh/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/03/learning/03StudentNewsQuiz.html
 **Will Elon Musk Ever Collect His Full Tesla Pay Package?**\
 `The electric vehicle maker vowed to appeal after a Delaware judge rejected the tech mogul’s massive compensation deal for a second time.`\
 https://nytimes.com/2024/12/03/business/dealbook/musk-tesla-pay-delaware.html
-
-**College football bowl projections: For Alabama and Miami, it's the CFP or Orlando**\
-`How much will Tuesday night's rankings differ from Sunday's final bracket? Teams are mere days from learning their destinations.`\
-https://nytimes.com/athletic/5915859/2024/12/03/college-football-bowl-projections-9/
 

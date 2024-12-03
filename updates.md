@@ -1,3 +1,7 @@
+**NBA Power Rankings: Hey, how's the new guy doing?**\
+`Other risers this week include the Bucks, Mavericks and Hawks, while the teams at the top have benefited from continuity.`\
+https://nytimes.com/athletic/5965547/2024/12/03/nba-power-rankings-celtics-cavs-rockets-lakers/
+
 **Ravens' John Harbaugh mum on Diontae Johnson's status with team**\
 `Since joining Baltimore via trade in October, Johnson has just one catch in five games.`\
 https://nytimes.com/athletic/5965768/2024/12/03/diontae-johnson-ravens-john-harbaugh/
