@@ -1,3 +1,15 @@
+**Pro-Government Airstrikes Damage Hospitals in Rebel-Held Syrian City**\
+`The director of Idlib University Hospital said his facility was one of two knocked out of service by Monday’s strikes.`\
+https://nytimes.com/video/world/middleeast/100000009855922/syrian-russian-warplanes-hospitals-idlib-airstrikes.html
+
+**Dai Yongge rejects Reading takeover bid from ex chairman Roger Smee**\
+`Reading owner Dai Yongge has rejected a bid for the League One club from former chairman Roger Smee in a move that raises serious doubts about his desire to sell the club.`\
+https://nytimes.com/athletic/5966198/2024/12/03/smee-dai-reading-bid-rejected/
+
+**A Geopolitical Cauldron Simmers in Syria After Rebel Attacks**\
+`Iran and Russia, both stretched by conflicts of their own, have experienced setbacks in Syria after a rebel offensive in the northwest of the country.`\
+https://nytimes.com/2024/12/03/world/middleeast/syria-rebel-offensive-iran-russia.html
+
 **You Want That Gift to Arrive Today? This Is What It Takes.**\
 `Retailers like Amazon, Walmart and Target have figured out that if they get you your online order today, you will probably spend more tomorrow.`\
 https://nytimes.com/2024/12/03/business/amazon-same-day-delivery.html
