@@ -1,3 +1,7 @@
+**Israeli Officials Welcome Trump’s Demand to Free Hostages Before Inauguration**\
+`President-elect Donald J. Trump has threatened to take unspecified action unless the hostages held in Gaza are released before he takes office in January.`\
+https://nytimes.com/2024/12/03/world/middleeast/israel-trump-hostages.html
+
 **‘A Different Man’ and ‘Sing Sing’ Rule the Gotham Awards**\
 `The kickoff to awards season has a mixed record but can help lift small films like the two surprise winners.`\
 https://nytimes.com/2024/12/03/movies/gotham-awards-winners-a-different-man-sebastian-stan.html
