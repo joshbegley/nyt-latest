@@ -1,3 +1,11 @@
+**FIFA agrees Club World Cup broadcast deal with DAZN**\
+`FIFA has agreed a deal with DAZN to broadcast next year’s Club World Cup in the United States.`\
+https://nytimes.com/athletic/5969129/2024/12/04/club-world-cup-tv-deal-fifa-dazn/
+
+**John Elway gets Topps baseball card, stars in ad with Larry David's 'George Steinbrenner'**\
+`Tom Brady served as the top non-prospect chase card in the 2023 Bowman Draft set.`\
+https://nytimes.com/athletic/5968926/2024/12/04/john-elway-larry-david-seinfeld-baseball-cards/
+
 **Crises and scandals have plagued President Yoon Suk Yeol’s time in office.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law-news/crises-and-scandals-have-plagued-president-yoon-suk-yeols-time-in-office
