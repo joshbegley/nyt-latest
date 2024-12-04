@@ -1,3 +1,15 @@
+**Tom Brady on late-hit against Azeez Al-Shaair: ‘I have mixed emotions’**\
+`Brady’s comments came after the NFL suspended Houston Texans linebacker Al-Shaair for three games for the hit that concussed Trevor Lawrence`\
+https://nytimes.com/athletic/5969391/2024/12/04/tom-brady-late-hit-azeez-al-shaair/
+
+**What happens next? The court will probably not issue a decision until June.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june
+
+**Heat Today: Tyler Herro is still a bucket-getter, even when the buckets aren't his**\
+`Herro's shooting efficiency has dipped after a hot start, but he's expanded his playmaking.`\
+https://nytimes.com/athletic/5968981/2024/12/04/tyler-herro-jimmy-butler-lebron-james-dwyane-wademiami-heat/
+
 **Lawmakers Move to Impeach South Korean Leader After Failed Martial Law Bid**\
 `President Yoon Suk Yeol’s attempt to break a political deadlock by imposing military rule collapsed within hours, leaving him with few defenders. A vote to impeach him could come as soon as Friday.`\
 https://nytimes.com/2024/12/04/world/asia/south-korea-impach-yoon.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/bans-on-me
 **What I'm seeing from the Islanders: Loser points, Bo Horvat's slump, injury timelines**\
 `Tuesday&#8217;s 2-1 overtime loss in Montreal left the New York Islanders at 9-10-7 and 5-5-5 on the road.`\
 https://nytimes.com/athletic/5968081/2024/12/04/islanders-loser-points-horvat-injuries/
-
-**The Debate Over the Hunter Biden Pardon**\
-`Readers discuss the ongoing political and legal debate over whether the pardon was justified. Also: South Korea’s crisis; tariffs; crosswords.`\
-https://nytimes.com/2024/12/04/opinion/hunter-biden-pardon.html
-
-**Review: Feeling Frazzled? This Dance Reacts to an Age of Anxiety**\
-`In “Dear Lord, Make Me Beautiful,” the choreographer Kyle Abraham experiments with expressing his emotions about the current moment.`\
-https://nytimes.com/2024/12/04/arts/dance/review-kyle-abraham-park-avenue-armory.html
-
-**Sam Altman Says Artificial General Intelligence Is on the Horizon**\
-`Speaking at The New York Times DealBook Summit, Sam Altman, the chief executive of OpenAI, said that the arrival of artificial general intelligence would “matter much less” to the average person than currently thought.`\
-https://nytimes.com/video/business/100000009858580/sam-altman-openai-dealbook.html
 
