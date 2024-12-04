@@ -1,3 +1,11 @@
+**The Bounce: It's time to grade the Eastern Conference! Plus, LeBron James vs. Father Time?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5968723/2024/12/04/eastern-conference-cavaliers-donovan-mitchell-lebron-james-lakers-nba-the-bounce/
+
+**C.E.O. of UnitedHealthcare Is Shot in Midtown Manhattan**\
+`The executive, Brian Johnson, was shot in the chest in what people briefed on the investigations said appeared to be a targeted attack.`\
+https://nytimes.com/2024/12/04/nyregion/shooting-midtown-nyc-united-healthcare-brian-thompson.html
+
 **Jeff Bezos, Serena Williams and Sam Altman are among the guests at this year’s DealBook Summit.**\
 `By Sarah Kessler`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/jeff-bezos-serena-williams-and-sam-altman-are-among-the-guests-at-this-years-dealbook-summit
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care
 **Ball State hires Mike Uremovich from Butler as coach**\
 `Uremovich went 23-11 in three seasons at Butler in the FCS and replaces Mike Neu, who Ball State fired after nine seasons.`\
 https://nytimes.com/athletic/5968863/2024/12/04/mike-uremovich-ball-state-football-coach/
-
-**Who will win the NBA Cup? Predicting the knockout rounds and beyond**\
-`Here's how the Magic, Bucks, Hawks, Knicks, Mavericks, Thunder, Warriors and Rockets measure up to each other, and how the NBA Cup could go.`\
-https://nytimes.com/athletic/5968516/2024/12/04/nba-cup-knockout-round-predictions-winner/
-
-**DealBook Summit Live Updates: Day of Discussions With Business and Global Leaders Begins**\
-`Andrew Ross Sorkin will sit down with nearly a dozen leading figures, including Sam Altman, Jerome Powell, Serena Williams, Jeff Bezos, Bill Clinton and Sundar Pichai.`\
-https://nytimes.com/live/2024/12/04/business/dealbook-summit-news
 
