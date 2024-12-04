@@ -1,3 +1,7 @@
+**How Can I Show My Boyfriend My Parents’ Filthy Home?**\
+`A reader dreads the thought of her partner seeing her squalid childhood home, but being honest with her parents about her embarrassment is a nonstarter.`\
+https://nytimes.com/2024/12/04/style/childhood-home-visit-partner.html
+
 **Chanel’s Answer to the China Question**\
 `The house goes all out for its V.I.C.’s.`\
 https://nytimes.com/2024/12/04/style/chanel-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/04/business/dealbook-summit-news
 **Here’s what to expect at the 2024 DealBook Summit.**\
 `By Lauren Hirsch`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/heres-what-to-expect-at-the-2024-dealbook-summit
-
-**Last Year’s DealBook Summit Was Headlined by a Memorable Elon Musk Discussion**\
-`Mr. Musk caught even Andrew Ross Sorkin off guard, as the Tesla and SpaceX leader accused advertisers that had pulled their money from X of trying to “blackmail” him.`\
-https://nytimes.com/2024/12/04/business/dealbook/elon-musk-dealbook-summit-2023.html
 
