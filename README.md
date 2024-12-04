@@ -1,7 +1,3 @@
-**Fresno State targeting USC linebacker coach Matt Entz for head job: Source**\
-`Matt Entz was wildly successful at North Dakota State. `\
-https://nytimes.com/athletic/5969340/2024/12/04/fresno-state-head-coach-usc-matt-entz/
-
 **Matt Rice, Tennessee’s solicitor general, is defending the state’s ban on gender affirming care.**\
 `Mr. Rice, who was once a clerk for Justice Clarence Thomas, is expected to argue that the ban does not violate constitutional rights.`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/matt-rice-tennessees-solicitor-general-is-defending-the-states-ban-on-gender-affirming-care
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/04/world/sumo-wrestling-tournament-uk.html
 **Police Search for Suspect in Killing of UnitedHealthcare C.E.O.**\
 `Brian Thompson, the chief executive of UnitedHealthcare, was fatally shot outside a hotel in Midtown Manhattan as he arrived for the company’s annual investor conference.`\
 https://nytimes.com/video/nyregion/100000009858309/police-search-for-suspect-in-killing-of-unitedhealthcare-ceo.html
+
+**Is It Fair to Assume a Best Friend Is Bad and Selfish if She Supported Trump?**\
+`The magazine’s Ethicist columnist on friendship, suspicion and character assessment.`\
+https://nytimes.com/2024/12/04/magazine/best-friend-selfish-trump-ethics.html
 
