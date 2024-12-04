@@ -1,3 +1,15 @@
+**Georgia Tumbles Deeper Into Crisis as Opposition Leader is Detained**\
+`In a sign of a widening crackdown, security agents have searched the offices and homes of prominent activists and opposition leaders who fear the country is turning closer to Russia.`\
+https://nytimes.com/2024/12/04/world/europe/georgia-russia-protests-gvaramia.html
+
+**Elite Sumo Wrestlers Will Compete in London, a Rarity Outside Japan**\
+`A five-day event in October will be the Japan Sumo Association’s first competition in Britain in more than three decades.`\
+https://nytimes.com/2024/12/04/world/sumo-wrestling-tournament-uk.html
+
+**Police Search for Suspect in Killing of UnitedHealthcare C.E.O.**\
+`Brian Thompson, the chief executive of UnitedHealthcare, was fatally shot outside a hotel in Midtown Manhattan as he arrived for the company’s annual investor conference.`\
+https://nytimes.com/video/nyregion/100000009858309/police-search-for-suspect-in-killing-of-unitedhealthcare-ceo.html
+
 **Is It Fair to Assume a Best Friend Is Bad and Selfish if She Supported Trump?**\
 `The magazine’s Ethicist columnist on friendship, suspicion and character assessment.`\
 https://nytimes.com/2024/12/04/magazine/best-friend-selfish-trump-ethics.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5968338/2024/12/04/cowboys-today-jerry-jones-number
 **These Lemon Bars Are a Little Luxe**\
 `My lemon bars with olive oil and sea salt are softer in texture and more bracing in flavor than the usual citrus treat.`\
 https://nytimes.com/2024/12/04/dining/these-lemon-bars-are-a-little-luxe.html
-
-**Most Rural Hospitals Have Closed Their Maternity Wards, Study Finds**\
-`Labor and delivery units are losing money and struggling to find staff, in rural areas and large cities alike.`\
-https://nytimes.com/2024/12/04/health/maternity-wards-closing.html
-
-**Google Introduces A.I. Agent That Aces 15-Day Weather Forecasts**\
-`GenCast, from the company’s DeepMind division, outperformed the world’s best predictions of deadly storms as well as everyday weather.`\
-https://nytimes.com/2024/12/04/science/google-ai-weather-forecast.html
-
-**This Year’s Hottest Holiday Movies**\
-`Want a holiday movie? Elisabeth Vincentelli of The New York Times has some favorites of 2024.`\
-https://nytimes.com/video/arts/television/100000009858352/this-years-hottest-holiday-movies.html
 
