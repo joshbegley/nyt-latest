@@ -1,7 +1,3 @@
-**Alex Cooper Said Her Team Spoke With Trump’s About an Interview**\
-`Alex Cooper, the host of “Call Her Daddy” and founder of the Unwell Network, said her team had a Zoom call that she did not attend with Donald Trump’s campaign about a potential interview.`\
-https://nytimes.com/video/business/dealbook/100000009859494/dealbook-alex-cooper-media-podcasts.html
-
 **The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca rotating and some hair-pulling**\
 `Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southampton`\
 https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurella-nkunku-madueke/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/04/us/politics/durbin-austin-guantanamo-sept-11.html
 **Ravens suspend Diontae Johnson after refusing to take field vs. Eagles**\
 `Johnson, who has one catch on five targets for six yards since joining Baltimore, will miss the Ravens' game against the New York Giants. `\
 https://nytimes.com/athletic/5969975/2024/12/04/ravens-suspend-diontae-johnson-take-field/
+
+**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
+`Let us know what's on your mind during Denver's bye week.`\
+https://nytimes.com/athletic/5969757/2024/12/04/broncos-mailbag-bye-week/
 
