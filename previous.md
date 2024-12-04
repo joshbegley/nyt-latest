@@ -1,3 +1,19 @@
+**UCF has made inquiries about USC coach Lincoln Riley**\
+`Riliey is three seasons into a reported 10-year contract that pays him about $10 million per year. `\
+https://nytimes.com/athletic/5969395/2024/12/04/lincoln-riley-ucf-usc-coaching/
+
+**South Korea’s Turmoil Is the Latest Threat to a Three-Way Pacific Alliance**\
+`Donald J. Trump had been seen as the main risk factor for the partnership between Tokyo, Seoul and Washington. Then came martial law in South Korea.`\
+https://nytimes.com/2024/12/04/world/asia/south-korea-martial-law-japan.html
+
+**Before the shooting, a hack that rocked United Healthcare.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2024/12/04/nyregion/brian-thompson-uhc-ceo-shot/before-the-shooting-a-hack-that-rocked-united-healthcare
+
+**Map: Where Rebels Have Advanced in Syria**\
+`Syrian opposition fighters have rapidly expanded the territory under their control in northwestern Syria. `\
+https://nytimes.com/2024/12/04/world/middleeast/syria-map-control.html
+
 **FIFA Secures $1 Billion Broadcast Deal for Its Club World Cup**\
 `An agreement with the London-based streaming company DAZN came just a day before the draw for the inaugural event and after other networks balked at FIFA’s demands.`\
 https://nytimes.com/2024/12/04/business/fifa-dazn-club-world-cup.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/what-happe
 **Heat Today: Tyler Herro is still a bucket-getter, even when the buckets aren't his**\
 `Herro's shooting efficiency has dipped after a hot start, but he's expanded his playmaking.`\
 https://nytimes.com/athletic/5968981/2024/12/04/tyler-herro-jimmy-butler-lebron-james-dwyane-wademiami-heat/
-
-**Lawmakers Move to Impeach South Korean Leader After Failed Martial Law Bid**\
-`President Yoon Suk Yeol’s attempt to break a political deadlock by imposing military rule collapsed within hours, leaving him with few defenders. A vote to impeach him could come as soon as Friday.`\
-https://nytimes.com/2024/12/04/world/asia/south-korea-impach-yoon.html
-
-**E.P.A. Again Seeks Limits on a Harmful Pesticide**\
-`After a court overturned a ban, the agency has proposed restricting chlorpyrifos to 11 food crops, illustrating the limits of federal regulation.`\
-https://nytimes.com/2024/12/04/health/epa-chlorpyrifos-kennedy.html
-
-**Sam Altman Downplays the Dangers of A.I. and Musk**\
-`The chief executive of OpenAI said the technology would boost productivity and rejected worries that his rival mogul could use his political influence to harm competitors.`\
-https://nytimes.com/2024/12/04/business/dealbook/sam-altman-openai-elon-musk.html
-
-**Trump Picks Jared Isaacman, an Entrepreneur and Private Astronaut, to Lead NASA**\
-`Mr. Isaacman’s company Shift4 Payments made him a billionaire, and he has financed two trips to orbit on SpaceX vehicles, including a daring spacewalk in September.`\
-https://nytimes.com/2024/12/04/science/jared-isaacman-trump-nasa.html
 
