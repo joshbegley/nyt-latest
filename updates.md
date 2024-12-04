@@ -1,3 +1,15 @@
+**Sam Altman Downplays the Dangers of A.I. and Musk**\
+`The chief executive of OpenAI said the technology would boost productivity and rejected worries that his rival mogul could use his political influence to harm competitors.`\
+https://nytimes.com/2024/12/04/business/dealbook/sam-altman-openai-elon-musk.html
+
+**Trump Picks Jared Isaacman, an Entrepreneur and Private Astronaut, to Lead NASA**\
+`Mr. Isaacman’s company Shift4 Payments made him a billionaire, and he has financed two trips to orbit on SpaceX vehicles, including a daring spacewalk in September.`\
+https://nytimes.com/2024/12/04/science/jared-isaacman-trump-nasa.html
+
+**Patriots to begin construction on new team facility to open in spring 2026**\
+`A new standalone facility for the Patriots will be built next to Gillette Stadium to house the day-to-day operations of the football team.`\
+https://nytimes.com/athletic/5969363/2024/12/04/patriots-gillette-stadium-team-facility/
+
 **Bans on medical care affect thousands of young trans people, one estimate says.**\
 `The estimate was included in court documents as the Supreme Court considers a challenge to a Tennessee law that prohibits some medical treatments for transgender minors.`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/bans-on-medical-care-affect-thousands-of-young-trans-people-one-estimate-says
