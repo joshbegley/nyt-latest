@@ -1,3 +1,7 @@
+**Fatal Shooting of Brian Thompson, UnitedHealthcare C.E.O.: What We Know**\
+`Mr. Thompson was on his way to an investors’ gathering when he was killed by a masked shooter who fled on an electric Citi Bike, the police said.`\
+https://nytimes.com/live/2024/12/04/nyregion/brian-thompson-uhc-ceo-shot/unitedhealthcare-ceo-brian-thompson-shooting
+
 **Canada announces roster for 4 Nations: Snubs, surprises and expectations**\
 `The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
 https://nytimes.com/athletic/5966363/2024/12/04/canada-4-nations-face-off-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009858797/unitedhealthcare-ceo-midtown-
 **Experts Say GLP-1 Drugs Have Potential Use Beyond Weight Loss**\
 `Speaking at The New York Times’s DealBook Summit, Eli Lilly’s chief executive and an obesity medicine specialist discussed the potential for wildly popular weight-loss drugs to be used to treat many other conditions.`\
 https://nytimes.com/video/business/100000009859991/obesity-glp-1-dealbook.html
-
-**Google C.E.O. Comments On Landmark Monopoly Ruling**\
-`Andrew Ross Sorkin, the DealBook editor-at-large, asked the C.E.O. of Google, Sundar Pichai, about the August antitrust ruling that labeled Google as an illegal monopoly.`\
-https://nytimes.com/video/business/dealbook/100000009859994/dealbook-google-monopoly.html
 
