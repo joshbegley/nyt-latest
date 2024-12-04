@@ -1,3 +1,7 @@
+**College Football Playoff rankings: Alabama holds final at-large bid**\
+`Oregon remained No. 1 in the penultimate Top 25, followed by No. 2 Texas, No. 3 Penn State, No. 4 Notre Dame and No. 5 Georgia.`\
+https://nytimes.com/athletic/5967563/2024/12/03/college-football-playoff-rankings-miami-alabama/
+
 **Juan Soto bidding reaches $600M, MLB sources say; process of eliminating teams underway**\
 `The expectation within the industry is that Soto will make his decision by the end of the Winter Meetings next week.`\
 https://nytimes.com/athletic/5967592/2024/12/03/juan-soto-signing-update-600-million/
