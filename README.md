@@ -1,3 +1,11 @@
+**Justice Thomas is a reliable vote against transgender rights.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-thomas-is-a-reliable-vote-against-transgender-rights
+
+**Chase Strangio, the first openly transgender lawyer to argue before the Supreme Court, is speaking against the ban.**\
+`By Amy Harmon`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/chase-strangio-the-first-openly-transgender-lawyer-to-argue-before-the-supreme-court-is-speaking-against-the-ban
+
 **On the Border, Texas Shows Trump the Way**\
 `The incoming Trump administration’s new border czar said that Texas provided a “model” for border enforcement. State officials have offered to be a staging ground for mass deportations.`\
 https://nytimes.com/2024/12/04/us/texas-abbott-trump-border.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5968557/2024/12/04/mlb-trade-proposals-winter-meeti
 **Canucks report cards: Grading every forward’s November performance**\
 `Amid injuries, absences and off-ice intrigue, the Canucks won games, accumulated points and kept pace in the Pacific Division last month.`\
 https://nytimes.com/athletic/5968382/2024/12/04/canucks-report-cards-forwards-november-2024/
-
-**Pete Hegseth’s Mother Defends Her Son’s Character on Fox Show**\
-`The mother of President-elect Donald J. Trump’s choice to be defense secretary appeared on the network where her son worked to say that he was a changed man.`\
-https://nytimes.com/2024/12/04/us/pete-hegseth-mother-fox-trump.html
-
-**Ken Griffin Says America Is Open for Business Following Elections**\
-`Mr. Griffin, who had previously derided Donald J. Trump as a “three-time loser,” said he voted for the president-elect.`\
-https://nytimes.com/2024/12/04/business/dealbook/ken-griffin-trump-election.html
 
