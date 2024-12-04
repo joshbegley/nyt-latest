@@ -1,3 +1,15 @@
+**For Some Koreans, Martial Law Brings Back Frightening Memories**\
+`“I immediately thought of 1980, and the fear and desperation we felt,” said a 60-year-old lawmaker who lived through the massacre of protesters in Gwangju.`\
+https://nytimes.com/2024/12/04/world/asia/south-korea-martial-law-gwangju-1980.html
+
+**Gomez is the low-key troubleshooter Liverpool cannot live without**\
+`Versatile defender is set for an extended run in the team - and history suggests he will not let Arne Slot down`\
+https://nytimes.com/athletic/5965815/2024/12/04/joe-gomez-liverpool-newcastle/
+
+**Tyrese Haliburton calls out Pacers’ ‘embarrassing’ play and his own leadership**\
+`The reigning Eastern Conference finalists are struggling, and their leader said it's time for self-examination.`\
+https://nytimes.com/athletic/5968166/2024/12/04/tyrese-haliburton-pacers-raptors/
+
 **How the Sabres hit new low in panic-filled, historic collapse against Avalanche**\
 `“We’ve had enough wake-up calls,” Tage Thompson said. “It’s terrible. That’s all there is to it.”`\
 https://nytimes.com/athletic/5968252/2024/12/04/sabres-collapse-new-low-avalanche/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5966073/2024/12/04/manchester-city-decline-data-ana
 **Here are the latest developments.**\
 `By Victoria Kim, Minho Kim, John Yoon and Choe Sang-Hun`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law/here-are-the-latest-developments
-
-**Live Updates: Fury in South Korea After President Imposes Martial Law**\
-`President Yoon Suk Yeol’s top aides offered to resign hours after he rescinded his extraordinary order. Protesters are calling for his resignation as lawmakers prepare to meet.`\
-https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law
-
-**Chido Obi - The under-18 record goalscorer who left Arsenal for Manchester United**\
-`Chido Obi was spotted and signed by Arsenal but just became the U18 Premier League's all-time record goalscorer playing for Man Utd`\
-https://nytimes.com/athletic/5880274/2024/12/04/chido-obi-manchester-united-arsenal/
-
-**California Democrat Flips Seat in the Last House Race to Be Decided**\
-`Adam Gray, a former state lawmaker, defeated Representative John Duarte, a Republican, in a reversal of their 2022 race.`\
-https://nytimes.com/2024/12/04/us/politics/california-house-gray-duarte.html
 

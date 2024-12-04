@@ -1,3 +1,15 @@
+**For Some Koreans, Martial Law Brings Back Frightening Memories**\
+`“I immediately thought of 1980, and the fear and desperation we felt,” said a 60-year-old lawmaker who lived through the massacre of protesters in Gwangju.`\
+https://nytimes.com/2024/12/04/world/asia/south-korea-martial-law-gwangju-1980.html
+
+**Gomez is the low-key troubleshooter Liverpool cannot live without**\
+`Versatile defender is set for an extended run in the team - and history suggests he will not let Arne Slot down`\
+https://nytimes.com/athletic/5965815/2024/12/04/joe-gomez-liverpool-newcastle/
+
+**Tyrese Haliburton calls out Pacers’ ‘embarrassing’ play and his own leadership**\
+`The reigning Eastern Conference finalists are struggling, and their leader said it's time for self-examination.`\
+https://nytimes.com/athletic/5968166/2024/12/04/tyrese-haliburton-pacers-raptors/
+
 **How the Sabres hit new low in panic-filled, historic collapse against Avalanche**\
 `“We’ve had enough wake-up calls,” Tage Thompson said. “It’s terrible. That’s all there is to it.”`\
 https://nytimes.com/athletic/5968252/2024/12/04/sabres-collapse-new-low-avalanche/
