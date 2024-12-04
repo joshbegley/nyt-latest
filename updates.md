@@ -1,3 +1,7 @@
+**Crises and scandals have plagued President Yoon Suk Yeol’s time in office.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law-news/crises-and-scandals-have-plagued-president-yoon-suk-yeols-time-in-office
+
 **A 2020 decision protecting transgender workers is a major precedent.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/a-2020-decision-protecting-transgender-workers-is-a-major-precedent
