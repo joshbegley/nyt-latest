@@ -1,3 +1,11 @@
+**Mario Cristobal makes case for Miami to be reconsidered in CFP rankings**\
+`As it stands now, Alabama would be the last at-large team to make the cut and Miami the first one out.`\
+https://nytimes.com/athletic/5969819/2024/12/04/miami-mario-cristobal-college-football-playoff/
+
+**Bettor beware: Why the Eagles' reliance on Saquon Barkley makes them a risky postseason bet**\
+`Michael Salfino looks at how past running backs with historic seasons fared in the postseason, and he sees a unfavorable trend for Philly.`\
+https://nytimes.com/athletic/5969359/2024/12/04/betting-saquon-barkley-eagles-postseason-super-bowl/
+
 **A meeting with Senator Joni Ernst is a pivotal test for Hegseth.**\
 `The Iowa Republican, a veteran who has worked to address sexual assault in the military, has signaled she is skeptical of the would-be defense secretary.`\
 https://nytimes.com/live/2024/12/04/us/trump-news/a-meeting-with-senator-joni-ernst-is-a-pivotal-test-for-hegseth
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/business/france-economy-government-collapse.html
 **France’s Prime Minister Loses No-Confidence Vote and Is Expected to Resign**\
 `Prime Minister Michel Barnier will most likely remain as a caretaker until a replacement is named. But the vote could further unsettle credit markets and create a wider opening for the far right.`\
 https://nytimes.com/2024/12/04/world/europe/france-no-confidence-barnier.html
-
-**Detroit’s Mayor, a Democrat, Will Run for Michigan Governor as an Independent**\
-`Mike Duggan is shedding the label of his longtime party to seek the state’s highest office, as the term-limited Gretchen Whitmer departs in early 2027.`\
-https://nytimes.com/2024/12/04/us/politics/mike-duggan-michigan-governor-detroit-mayor.html
-
-**USC signs 5-star defensive lineman Jahkeem Stewart,**\
-`The Louisiana native is the No. 16 prospect in the 247Sports Composite in the 2025 recruiting cycle.`\
-https://nytimes.com/athletic/5966964/2024/12/04/usc-recruiting-jahkeem-stewart-five-star/
 
