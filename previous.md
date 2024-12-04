@@ -1,3 +1,7 @@
+**MLS commissioner Garber to stay through 2027 season**\
+`Garber, 67, marked 25 years as MLS commissioner in August.`\
+https://nytimes.com/athletic/5968466/2024/12/04/mls-don-garber-contract/
+
 **West Ham board discussing Lopetegui's future after run of poor results**\
 `West Ham United&#8217;s board are discussing the future of head coach Julen Lopetegui.`\
 https://nytimes.com/athletic/5783500/2024/12/04/julen-lopetegui-west-ham-united/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/us/politics/hegseth-trump-defense.html
 **Could WR be in play for Cowboys in first round of April's NFL Draft?**\
 `While the Cowboys have plenty of holes to fill, The Athletic's Dane Brugler projects Missouri WR Luther Burden III to the Cowboys. `\
 https://nytimes.com/athletic/5967942/2024/12/04/cowboys-nfl-draft-projection-receiver-luther-burden/
-
-**Why South Korea’s Leader, Desperate and Frustrated, Made a Fateful Decision**\
-`​A day after he declared — and then withdrew — martial law, President Yoon Suk Yeol was politically isolated as observers pondered his future in leadership.`\
-https://nytimes.com/2024/12/04/world/asia/south-korea-yoon-martial-law.html
 

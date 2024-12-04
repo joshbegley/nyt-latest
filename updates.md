@@ -1,3 +1,7 @@
+**MLS commissioner Garber to stay through 2027 season**\
+`Garber, 67, marked 25 years as MLS commissioner in August.`\
+https://nytimes.com/athletic/5968466/2024/12/04/mls-don-garber-contract/
+
 **West Ham board discussing Lopetegui's future after run of poor results**\
 `West Ham United&#8217;s board are discussing the future of head coach Julen Lopetegui.`\
 https://nytimes.com/athletic/5783500/2024/12/04/julen-lopetegui-west-ham-united/
