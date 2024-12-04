@@ -1,3 +1,15 @@
+**App State coaching job profile: Expectations, ceiling high on The Mountain**\
+`This place has always done best with a coach who helps players and the program overachieve.`\
+https://nytimes.com/athletic/5969119/2024/12/04/appalachian-state-football-job-profile-pluses-minuses-and-candidates-to-replace-shawn-clark/
+
+**Citadel’s Ken Griffin Said He Voted for Trump**\
+`Ken Griffin, the founder and chief executive of Citadel, celebrated President-elect Donald Trump’s win and said, “America is open for business again.”`\
+https://nytimes.com/video/business/dealbook/100000009858367/dealbook-ken-griffin-citadel-trump.html
+
+**Rebels Push Toward Hama, a Major City Held by Syria’s Government**\
+`The rebel command said on Wednesday, it captured a number of towns and villages outside the city. A Britain-based war monitor said government artillery and airstrikes had pushed the rebels back.`\
+https://nytimes.com/video/world/middleeast/100000009858240/rebels-battle-hama-syria-government.html
+
 **Georgia Tumbles Deeper Into Crisis as Opposition Leader is Detained**\
 `In a sign of a widening crackdown, security agents have searched the offices and homes of prominent activists and opposition leaders who fear the country is turning closer to Russia.`\
 https://nytimes.com/2024/12/04/world/europe/georgia-russia-protests-gvaramia.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-th
 **Chase Strangio, the first openly transgender lawyer to argue before the Supreme Court, is speaking against the ban.**\
 `By Amy Harmon`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/chase-strangio-the-first-openly-transgender-lawyer-to-argue-before-the-supreme-court-is-speaking-against-the-ban
-
-**On the Border, Texas Shows Trump the Way**\
-`The incoming Trump administration’s new border czar said that Texas provided a “model” for border enforcement. State officials have offered to be a staging ground for mass deportations.`\
-https://nytimes.com/2024/12/04/us/texas-abbott-trump-border.html
-
-**Cowboys Today: Jerry Jones' logic on Rowdy and No. 0; Dak Prescott on Mike McCarthy**\
-`Why can't DeMarvion Overshown wear No. 0? It's no surprise that Dak Prescott feels Mike McCarthy deserves to keep coaching the Cowboys.`\
-https://nytimes.com/athletic/5968338/2024/12/04/cowboys-today-jerry-jones-number-zero-dak-mike-mccarthy/
-
-**These Lemon Bars Are a Little Luxe**\
-`My lemon bars with olive oil and sea salt are softer in texture and more bracing in flavor than the usual citrus treat.`\
-https://nytimes.com/2024/12/04/dining/these-lemon-bars-are-a-little-luxe.html
 
