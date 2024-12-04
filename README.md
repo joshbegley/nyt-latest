@@ -1,3 +1,7 @@
+**How the Cavaliers offense is tearing up the NBA, even if it doesn't make sense**\
+`The Cavs didn't understand what new coach Keny Atkinson had in store for them when he arrived, but now they have the NBA's best record.`\
+https://nytimes.com/athletic/5967355/2024/12/04/cavs-offense-nba-best-record/
+
 **How the Impeachment of South Korea’s President Could Unfold**\
 `A detailed look at each stage of the impeachment process, and what is to come for President Yoon.`\
 https://nytimes.com/interactive/2024/12/04/world/asia/south-korea-impeachment-vote-president-yoon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/style/childhood-home-visit-partner.html
 **Chanel’s Answer to the China Question**\
 `The house goes all out for its V.I.C.’s.`\
 https://nytimes.com/2024/12/04/style/chanel-china.html
-
-**DealBook has covered Wall Street and the world for nearly a quarter century.**\
-`Started in 2001 by Andrew Ross Sorkin, the daily newsletter has generated scoops and in-depth features on the power brokers in Washington, on Wall Street and beyond.`\
-https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/dealbook-has-covered-wall-street-and-the-world-for-nearly-a-quarter-century
 
