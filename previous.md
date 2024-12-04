@@ -1,3 +1,15 @@
+**Powell Not Concerned About the Fed’s Independence Under Trump**\
+`Speaking at The New York Times DealBook Summit, the chair of the Federal Reserve, Jerome H. Powell, said there was strong bipartisan support on Capitol Hill for the central bank’s independence.`\
+https://nytimes.com/video/business/100000009859476/jerome-powell-trump-fed-dealbook.html
+
+**Sam Houston job profile: A relative FBS newbie resets after K.C. Keeler**\
+`The prime recruiting location and recent winning tradition provide a road map for success as this relative FBS newcomer looks ahead.`\
+https://nytimes.com/athletic/5969402/2024/12/04/sam-houston-football-job-profile-coaching-candidates/
+
+**Texas or Georgia? How the battle for college football's top recruiting class is shaping up**\
+`Texas holds the top spot, but Georgia is positioned to jump ahead with a key five-star target expected to pick the Bulldogs on Friday. `\
+https://nytimes.com/athletic/5969951/2024/12/04/eorgia-texas-college-football-recruiting-best-class/
+
 **Investors, and the Fed’s chair, are being cautious about crypto.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/investors-and-the-feds-chair-are-being-cautious-about-crypto
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5969806/2024/12/04/federico-chiesa-injury-liverpool
 **Nadler to Relinquish Democrats’ Top Judiciary Post, Bowing to Calls for Change**\
 `Democrats’ longtime leader on the panel faced a challenge from Representative Jamie Raskin, and pressure from colleagues who wanted a younger, more strategic figure at the helm.`\
 https://nytimes.com/2024/12/04/us/politics/nadler-raskin-judiciary-committee.html
-
-**Mary McGee, Motorcycle Racing Pioneer, Is Dead at 87**\
-`Her most remarkable achievement came in 1975, when she became the first person, man or woman, to complete the Baja 500 race solo.`\
-https://nytimes.com/2024/12/04/sports/autoracing/mary-mcgee-dead.html
-
-**Finding a Sense of Purpose and Harmony Onstage**\
-`In a world frequently defined by polarization and isolation, music offers an opportunity to bridge divides and find common ground.`\
-https://nytimes.com/2024/12/04/special-series/gustavo-dudamel-youth-orchestra.html
-
-**Rockefeller Christmas Tree Lighting in Midtown to Go On as Planned**\
-`An official with the N.Y.P.D. said there would be a “massive police presence” for the event on Wednesday night, including aviation and canine units.`\
-https://nytimes.com/2024/12/04/nyregion/rockefeller-christmas-tree-lighting-midtown-shooting.html
 

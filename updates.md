@@ -1,3 +1,15 @@
+**Powell Not Concerned About the Fed’s Independence Under Trump**\
+`Speaking at The New York Times DealBook Summit, the chair of the Federal Reserve, Jerome H. Powell, said there was strong bipartisan support on Capitol Hill for the central bank’s independence.`\
+https://nytimes.com/video/business/100000009859476/jerome-powell-trump-fed-dealbook.html
+
+**Sam Houston job profile: A relative FBS newbie resets after K.C. Keeler**\
+`The prime recruiting location and recent winning tradition provide a road map for success as this relative FBS newcomer looks ahead.`\
+https://nytimes.com/athletic/5969402/2024/12/04/sam-houston-football-job-profile-coaching-candidates/
+
+**Texas or Georgia? How the battle for college football's top recruiting class is shaping up**\
+`Texas holds the top spot, but Georgia is positioned to jump ahead with a key five-star target expected to pick the Bulldogs on Friday. `\
+https://nytimes.com/athletic/5969951/2024/12/04/eorgia-texas-college-football-recruiting-best-class/
+
 **Model projections for all 9 college football conference title games**\
 `Austin Mock's projection model has projected point differentials and point totals for all nine college football conference title games.`\
 https://nytimes.com/athletic/5969839/2024/12/04/college-football-title-game-model-projections/
