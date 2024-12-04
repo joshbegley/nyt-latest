@@ -1,3 +1,7 @@
+**Memphis Police Used Excessive Force and Discriminated Against Black Residents, Justice Dept. Finds**\
+`The Police Department had been under scrutiny since January 2023, when officers fatally beat Tyre Nichols, a 29-year-old Black man, after pulling him over on his way home from work.`\
+https://nytimes.com/2024/12/04/us/politics/memphis-police-justice-department-report.html
+
 **Pete Hegseth’s Troubles at Work Raise Questions About Leadership**\
 `President-elect Donald J. Trump’s choice for defense secretary led two nonprofits into debt, and episodes of drinking continued into his days as a Fox News personality.`\
 https://nytimes.com/2024/12/04/us/politics/pete-hegseth-workplace.html

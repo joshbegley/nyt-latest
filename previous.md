@@ -1,3 +1,7 @@
+**Memphis Police Used Excessive Force and Discriminated Against Black Residents, Justice Dept. Finds**\
+`The Police Department had been under scrutiny since January 2023, when officers fatally beat Tyre Nichols, a 29-year-old Black man, after pulling him over on his way home from work.`\
+https://nytimes.com/2024/12/04/us/politics/memphis-police-justice-department-report.html
+
 **Pete Hegseth’s Troubles at Work Raise Questions About Leadership**\
 `President-elect Donald J. Trump’s choice for defense secretary led two nonprofits into debt, and episodes of drinking continued into his days as a Fox News personality.`\
 https://nytimes.com/2024/12/04/us/politics/pete-hegseth-workplace.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/us/politics/billy-long-irs-trump.html
 **Richard Hamilton, Who Helped Solve a Mathematical Mystery, Dies at 81**\
 `He came up with an innovative equation called the Ricci flow that helped mathematicians explore fundamental questions that were once out of reach.`\
 https://nytimes.com/2024/12/04/science/richard-hamilton-dead.html
-
-**U.S. announces roster for 4 Nations: Snubs, surprises and expectations**\
-`The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
-https://nytimes.com/athletic/5966362/2024/12/04/united-states-4-nations-face-off-roster/
 
