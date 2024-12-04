@@ -1,3 +1,7 @@
+**Crystal Palace seek one moment of magic to coax Eberechi Eze back to his best**\
+`The England forward offered flashes of his quality in the win at Ipswich, but is still weighed down by expectation and needs more support`\
+https://nytimes.com/athletic/5958885/2024/12/04/palace-eze-glasner-mateta/
+
 **Patrik Laine's storybook Bell Centre debut eclipsed by Canadiens' bigger story**\
 `Laine's second-period goal shook the arena, but that moment's meaning to the greater Canadiens story was more significant.`\
 https://nytimes.com/athletic/5968340/2024/12/04/patrik-laine-debut-canadiens-bigger-story/
