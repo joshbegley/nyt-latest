@@ -1,3 +1,7 @@
+**Serena Williams, from tennis star to ‘person who loves investing.’**\
+`By Remy Tumin`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/serena-williams-from-tennis-star-to-person-who-loves-investing
+
 **Tom Brady on late-hit against Azeez Al-Shaair: ‘I have mixed emotions’**\
 `Brady’s comments came after the NFL suspended Houston Texans linebacker Al-Shaair for three games for the hit that concussed Trevor Lawrence`\
 https://nytimes.com/athletic/5969391/2024/12/04/tom-brady-late-hit-azeez-al-shaair/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5969363/2024/12/04/patriots-gillette-stadium-team-f
 **Bans on medical care affect thousands of young trans people, one estimate says.**\
 `The estimate was included in court documents as the Supreme Court considers a challenge to a Tennessee law that prohibits some medical treatments for transgender minors.`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/bans-on-medical-care-affect-thousands-of-young-trans-people-one-estimate-says
-
-**What I'm seeing from the Islanders: Loser points, Bo Horvat's slump, injury timelines**\
-`Tuesday&#8217;s 2-1 overtime loss in Montreal left the New York Islanders at 9-10-7 and 5-5-5 on the road.`\
-https://nytimes.com/athletic/5968081/2024/12/04/islanders-loser-points-horvat-injuries/
 
