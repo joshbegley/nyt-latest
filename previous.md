@@ -1,3 +1,7 @@
+**Ding dong, Miami’s dead, but did Ole Miss deserve the CFP rankings nod over Alabama?**\
+`It’s not Miami’s fault that it didn’t play Clemson and SMU this season, but it’s not to Miami’s credit either.`\
+https://nytimes.com/athletic/5967796/2024/12/03/college-football-playoff-miami-alabama-smu/
+
 **South Korean History Is Scarred by Martial Law**\
 `The president’s short-lived declaration of a military emergency late Tuesday was young South Koreans’ first exposure to a state of affairs their elders remember well.`\
 https://nytimes.com/2024/12/03/world/asia/martial-law-south-korea-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/us/montana-transgender-bathrooms-zooey-zephyr.htm
 **49ers minutia minute: Two little-used players shined in the snow; young RB added**\
 `Guard Ben Bartch and defensive tackle Evan Anderson got their first-ever starts for the 49ers and both played well in snowy Buffalo.`\
 https://nytimes.com/athletic/5967305/2024/12/03/49ers-isaac-guerendo-evan-anderson/
-
-**Dan Campbell is the favorite to win NFL Coach of the Year, but the race is heating up**\
-`Dan Campbell is the current favorite to win the NFL Coach of the Year award, but a couple of big names are rising up the betting board.`\
-https://nytimes.com/athletic/5967208/2024/12/03/nfl-coach-of-year-race-odds-dan-campbell/
 

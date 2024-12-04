@@ -1,3 +1,7 @@
+**Ding dong, Miami’s dead, but did Ole Miss deserve the CFP rankings nod over Alabama?**\
+`It’s not Miami’s fault that it didn’t play Clemson and SMU this season, but it’s not to Miami’s credit either.`\
+https://nytimes.com/athletic/5967796/2024/12/03/college-football-playoff-miami-alabama-smu/
+
 **South Korean History Is Scarred by Martial Law**\
 `The president’s short-lived declaration of a military emergency late Tuesday was young South Koreans’ first exposure to a state of affairs their elders remember well.`\
 https://nytimes.com/2024/12/03/world/asia/martial-law-south-korea-history.html
