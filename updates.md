@@ -1,3 +1,7 @@
+**C.E.O. of UnitedHealthcare Is Fatally Shot in Midtown Manhattan**\
+`The executive, Brian Thompson, was shot in the chest in what people briefed on the investigations said appeared to be a targeted attack.`\
+https://nytimes.com/2024/12/04/nyregion/shooting-midtown-nyc-united-healthcare-brian-thompson.html
+
 **How the Impeachment of South Korea’s President Could Unfold**\
 `A detailed look at each stage of the impeachment process, and what is to come for President Yoon.`\
 https://nytimes.com/interactive/2024/12/04/world/asia/south-korea-impeachment-vote-president-yoon.html
