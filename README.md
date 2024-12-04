@@ -1,3 +1,7 @@
+**The briefing: Mallorca 1 Barcelona 5: Yamal's trivela, Torres' travails, and is this Raphinha's Barca?**\
+`The league leaders stopped the rot with a convincing second-half performance at Mallorca to regain some momentum in their title pursuit`\
+https://nytimes.com/athletic/5967611/2024/12/04/barcelona-raphinha-yamal-torres-jong-mallorca/
+
 **Alyssa Naeher stays true to her stoic ways in final game, but U.S. teammates are full of emotion**\
 `Naeher savored her final game with the USWNT, a win against the Netherlands`\
 https://nytimes.com/athletic/5967823/2024/12/04/uswnt-alyssa-naeher-final-game/
@@ -22,6 +26,10 @@ https://nytimes.com/2024/12/04/learning/giving.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/04/crosswords/spelling-bee-forum.html
 
+**England spy promise in Ruby Mace as they seek long-term back up for Keira Walsh**\
+`The former Arsenal and Manchester City midfielder, now at Leicester City, made her senior debut in the 1-0 win over Switzerland in Sheffield`\
+https://nytimes.com/athletic/5967848/2024/12/04/england-mace-wiegman-walsh-leicester-switzerland/
+
 **Kevin Durant's latest sprain is not a huge deal for the Suns, but it keeps happening**\
 `Sprains are the only thing that's stopped Durant in months. And, in many cases, the Phoenix Suns as well.`\
 https://nytimes.com/athletic/5968327/2024/12/04/kevin-durant-another-sprain-suns-spurs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5968327/2024/12/04/kevin-durant-another-sprain-suns
 **Late Night Razzes Trump Over His Upcoming Visit to Notre-Dame**\
 `“If all goes according to plan, he would like to buy it and turn it into a casino,” Jimmy Kimmel said of the Paris cathedral on Tuesday.`\
 https://nytimes.com/2024/12/04/arts/television/late-night-trump-notre-dame.html
-
-**'Sacked in the morning' chants for Lopetegui after West Ham hit 31 shots but lose again**\
-`Lopetegui says the only thing he's ‘worried’ about is preparing for the next game against Wolves. It's not certain he makes it that far`\
-https://nytimes.com/athletic/5966812/2024/12/04/sacked-chants-lopetegui-west-ham/
-
-**Word of the Day: umber**\
-`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/04/learning/word-of-the-day-umber.html
 
