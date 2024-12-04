@@ -1,5 +1,5 @@
 **The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca rotating and some hair-pulling**\
-`Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southamptona`\
+`Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southampton`\
 https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurella-nkunku-madueke/
 
 **The Best Movies and TV Shows Coming to Netflix in December**\
