@@ -1,3 +1,19 @@
+**Jaguars place Lawrence on IR for concussion, likely ending QB's season**\
+`Lawrence's season is likely over after sustaining a concussion on a late hit from Texans linebacker Azeez Al-Shaair.`\
+https://nytimes.com/athletic/5970122/2024/12/04/jaguars-trevor-lawrence-concussion-injured-reserve/
+
+**The Briefing: Arsenal 2 Man Utd 0 - Coping with Gabriel absence, Yoro debut, corner**\
+`Arsenal overcame Manchester United on Wednesday night at the Emirates Stadium`\
+https://nytimes.com/athletic/5957343/2024/12/04/arsenal-manchester-united-results-report-analysis/
+
+**Trump Has ‘Lost Faith’ in N.R.A., Says Gun Group Official**\
+`In a new letter, an N.R.A. vice president said the troubled group needed to rebuild trust with Donald J. Trump and his inner circle.`\
+https://nytimes.com/2024/12/04/us/politics/donald-trump-national-rifle-association.html
+
+**Brian Thompson, Health Insurance Executive, Dies at 50**\
+`He was “a truly extraordinary person who touched the lives of countless people,” the chief executive of UnitedHealth Group said.`\
+https://nytimes.com/2024/12/04/nyregion/brian-thompson-dead.html
+
 **Prince Harry Vows to Maintain Fight Against Murdoch Tabloids**\
 `The British royal says his legal battle against parts of the media is about “accountability” and defending legitimate journalism.`\
 https://nytimes.com/2024/12/04/business/dealbook/prince-harry-rupert-murdoch-tabloids.html
