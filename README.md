@@ -1,3 +1,11 @@
+**FIFA agrees Club World Cup broadcast deal with DAZN**\
+`FIFA has agreed a deal with DAZN to broadcast next year’s Club World Cup in the United States.`\
+https://nytimes.com/athletic/5969129/2024/12/04/club-world-cup-tv-deal-fifa-dazn/
+
+**John Elway gets Topps baseball card, stars in ad with Larry David's 'George Steinbrenner'**\
+`Tom Brady served as the top non-prospect chase card in the 2023 Bowman Draft set.`\
+https://nytimes.com/athletic/5968926/2024/12/04/john-elway-larry-david-seinfeld-baseball-cards/
+
 **Crises and scandals have plagued President Yoon Suk Yeol’s time in office.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law-news/crises-and-scandals-have-plagued-president-yoon-suk-yeols-time-in-office
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-al
 **Justices’ past comments on bathrooms, sports and dress codes offer hints about where they stand on transgender issues.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-comments-transgendcer
-
-**Penguins Today: A Pettersson dilemma and a convergence of Pittsburgh’s Stanley Cup GMs**\
-`It’s time to talk about Marcus Pettersson. Plus: Another Penguins hockey ops hire and a homecoming for Pittsburgh's management greats.`\
-https://nytimes.com/athletic/5968905/2024/12/04/penguins-marcus-pettersson-nhl-stanley-cup/
-
-**A Year Among My Fellow Banned Writers**\
-`Removing books from schools robs us of important opportunities to understand each other, and ourselves.`\
-https://nytimes.com/2024/12/04/special-series/sandra-cisneros-banned-books.html
 
