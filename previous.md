@@ -1,3 +1,15 @@
+**Ja Morant 'not trying to dunk' as Grizzlies star prioritizes health**\
+`"I'm not trying to dunk at all," Morant said. "Y'all think I'm lying. I'm dead serious."`\
+https://nytimes.com/athletic/5969594/2024/12/04/ja-morant-dunk-grizzlies/
+
+**Now a free agent, a lighter Lance Lynn looks to extend his MLB career into a 15th season**\
+`Since his debut in 2011, Lynn ranks sixth in the majors with 2,006 1/3 innings pitched.`\
+https://nytimes.com/athletic/5969624/2024/12/04/lance-lynn-free-agent-mlb/
+
+**Serena Williams Said She Learned From Every Loss**\
+`Serena Williams said every tennis match loss helped her “become Serena,” and that she’s applied the mindset of learning from losses to her investment decisions.`\
+https://nytimes.com/video/business/dealbook/100000009858748/serena-williams-dealbook.html
+
 **A Storied New York Hilton Adds a Grim Chapter to Its History**\
 `The hotel, on West 54th Street, was where journalists examined the Pentagon Papers and where Donald Trump delivered a 2016 victory speech.`\
 https://nytimes.com/2024/12/04/nyregion/hilton-hotel-midtown-shooting.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/04/opinion/pete-hegseth-trump-pentagon.html
 **Bill Clinton Defends Joe Biden’s Decision to Pardon His Son Hunter**\
 `Speaking at The New York Times DealBook Summit, former President Bill Clinton argued that President Biden had reason to issue the pardon, but wished Mr. Biden had not repeatedly said he would not do so.`\
 https://nytimes.com/video/business/100000009859058/bill-clinton-biden-pardon-dealbook.html
-
-**The court’s decision could affect other trans rights cases, experts say.**\
-`By Amy Harmon`\
-https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/the-courts-decision-could-affect-other-trans-rights-cases-experts-say
-
-**They Were the Last of Their Kind, in Captivity. Can 5 Survive the Wild?**\
-`Researchers are trying a new strategy to reintroduce Hawaiian crows, which have been extinct in the wild for two decades.`\
-https://nytimes.com/2024/12/04/climate/hawaiian-crows-alala.html
-
-**Double Olympic champion Tom Pidcock to leave INEOS Grenadiers**\
-`Double Olympic gold-medallist Tom Pidcock is to leave cycling team INEOS Grenadiers at the end of this season.`\
-https://nytimes.com/athletic/5969610/2024/12/04/tom-pidcock-ineos-grenadiers-exit/
 

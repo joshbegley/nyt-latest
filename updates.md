@@ -1,3 +1,15 @@
+**Ja Morant 'not trying to dunk' as Grizzlies star prioritizes health**\
+`"I'm not trying to dunk at all," Morant said. "Y'all think I'm lying. I'm dead serious."`\
+https://nytimes.com/athletic/5969594/2024/12/04/ja-morant-dunk-grizzlies/
+
+**Now a free agent, a lighter Lance Lynn looks to extend his MLB career into a 15th season**\
+`Since his debut in 2011, Lynn ranks sixth in the majors with 2,006 1/3 innings pitched.`\
+https://nytimes.com/athletic/5969624/2024/12/04/lance-lynn-free-agent-mlb/
+
+**Serena Williams Said She Learned From Every Loss**\
+`Serena Williams said every tennis match loss helped her “become Serena,” and that she’s applied the mindset of learning from losses to her investment decisions.`\
+https://nytimes.com/video/business/dealbook/100000009858748/serena-williams-dealbook.html
+
 **A Storied New York Hilton Adds a Grim Chapter to Its History**\
 `The hotel, on West 54th Street, was where journalists examined the Pentagon Papers and where Donald Trump delivered a 2016 victory speech.`\
 https://nytimes.com/2024/12/04/nyregion/hilton-hotel-midtown-shooting.html
