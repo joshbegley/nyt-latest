@@ -1,3 +1,11 @@
+**Sweden announces roster for 4 Nations: Snubs, surprises and expectations**\
+`The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
+https://nytimes.com/athletic/5966365/2024/12/04/sweden-4-nations-face-off-roster/
+
+**Citi Bikes Leave ‘Digital Exhaust’ That Could Help Track a Killer**\
+`The police said the gunman who shot an insurance executive pedaled away after the crime.`\
+https://nytimes.com/2024/12/04/nyregion/citi-bike-records-uhc-shooting.html
+
 **Mary McGee, Motorcycle Racing Pioneer, Is Dead at 87**\
 `Her most remarkable achievement came in 1975, when she became the first person, man or woman, to complete the Baja 500 race solo.`\
 https://nytimes.com/2024/12/04/sports/autoracing/mary-mcgee-dead.html
