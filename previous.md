@@ -1,3 +1,7 @@
+**Nebraska coach Matt Rhule on his program after national signing day**\
+`Rhule addresses Nebraska's signing day class, his staff and the transfer portal during a busy time for the Huskers. `\
+https://nytimes.com/athletic/5970100/2024/12/04/nebraska-football-national-signing-day/
+
 **What to Know About Hannah Kobayashi, Who Was Reported Missing in California**\
 `The search drew national attention after she flew from Maui to Los Angeles and did not board a connecting flight to New York. The police later said she had crossed into Mexico on foot.`\
 https://nytimes.com/article/hannah-kobayashi-missing-mexico.html
@@ -30,11 +34,7 @@ https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/obesity-is-jus
 `Alex Cooper, the host of “Call Her Daddy” and founder of the Unwell Network, said her team had a Zoom call that she did not attend with Donald Trump’s campaign about a potential interview.`\
 https://nytimes.com/video/business/dealbook/100000009859494/dealbook-alex-cooper-media-podcasts.html
 
-**The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca rotating and some hair-pulling**\
+**The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca's rotating and some hair-pulling**\
 `Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southampton`\
 https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurella-nkunku-madueke/
-
-**The Best Movies and TV Shows Coming to Netflix in December**\
-`This month has a ton of new titles arriving for U.S. subscribers, including a Nate Bargatze special and the return of “Squid Game.”`\
-https://nytimes.com/2024/12/04/arts/television/new-netflix-movies-shows-december.html
 

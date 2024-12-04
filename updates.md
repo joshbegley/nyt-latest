@@ -1,3 +1,11 @@
+**Nebraska coach Matt Rhule on his program after national signing day**\
+`Rhule addresses Nebraska's signing day class, his staff and the transfer portal during a busy time for the Huskers. `\
+https://nytimes.com/athletic/5970100/2024/12/04/nebraska-football-national-signing-day/
+
+**The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca's rotating and some hair-pulling**\
+`Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southampton`\
+https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurella-nkunku-madueke/
+
 **What to Know About Hannah Kobayashi, Who Was Reported Missing in California**\
 `The search drew national attention after she flew from Maui to Los Angeles and did not board a connecting flight to New York. The police later said she had crossed into Mexico on foot.`\
 https://nytimes.com/article/hannah-kobayashi-missing-mexico.html
