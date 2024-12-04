@@ -1,40 +1,40 @@
-**Solanke to train ahead of Bournemouth trip, 'still not 100 per cent'**\
-`Dominic Solanke is set to train ahead of Tottenham Hotspur&#8217;s trip to Bournemouth on Thursday but Ange Postecoglou says the striker is &#8220;still not 100 per cent&#8221;.`\
-https://nytimes.com/athletic/5968583/2024/12/04/dominic-solanke-fitness-update-tottenham/
+**New York Giants survey results: Fans have lost faith in Brian Daboll, Joe Schoen**\
+`Last year, Giants fans were nearly unanimous in wanting Schoen and Daboll back for another season. Things have certainly changed. `\
+https://nytimes.com/athletic/5964192/2024/12/04/giants-brian-daboll-joe-schoen-fans-survey/
 
-**Man Utd scrapped plan for pro-LGBTQ+ walk-out jacket after Mazraoui refusal**\
-`Manchester United players abandoned the club’s plans to wear an Adidas jacket in support of the LGBTQ+ community ahead of Sunday’s Premier League match against Everton after defender Noussair Mazraoui refused to join the initiative.`\
-https://nytimes.com/athletic/5966168/2024/12/04/manchester-united-lgbtq-mazraoui/
+**How this summer's stunning offer-sheet saga has worked out for Oilers and Blues**\
+`Philip Broberg and Dylan Holloway are set to return to Edmonton for the first time as the Oilers host the Blues on Saturday.`\
+https://nytimes.com/athletic/5967871/2024/12/04/oilers-blues-philip-broberg-dylan-holloway/
 
-**With Assad Challenged, a Push to Cut Syria’s Ties to Iran Grows More Unlikely**\
-`Even as Israel bombarded Syria, officials say the U.S. and Gulf countries were working to weaken its president’s alliance with Tehran. Rebels’ shock advance has dampened those hopes.`\
-https://nytimes.com/2024/12/04/world/middleeast/syria-assad-israel-iran.html
+**What to Know About the Chaos in South Korea, and a Major Trans Rights Case**\
+`Plus, how money to protect pandas is really spent.`\
+https://nytimes.com/2024/12/04/podcasts/south-korea-trans-rights.html
 
-**From Ichiro then to Roki Sasaki now, Pacific Rim scouting has evolved but remains smaller-scale**\
-`The process of scouting players in Japan, Korea and Taiwan is streamlined, but the number of players coming to MLB remains relatively low.`\
-https://nytimes.com/athletic/5967098/2024/12/04/scouting-japan-korea-mlb-roki-sasaki/
+**As MLB's Winter Meetings loom, the Astros are still in search of a direction**\
+`The Astros' aging major-league roster and fallow farm system prompts legitimate concerns about their long-term sustainability. `\
+https://nytimes.com/athletic/5967631/2024/12/04/houston-astros-2024-mlb-winter-meetings-direction/
 
-**Will Donte DiVincenzo's response to 'outside noise' with breakout game fuel Wolves' optimism?**\
-`The Timberwolves have a long way to go, but a few signs of positivity are a welcome departure from the frustration that has stewed.`\
-https://nytimes.com/athletic/5964997/2024/12/04/donte-divincenzo-breakout-timberwolves-optimism/
+**Why Matt LaFleur, Jeff Hafley are angry with this Packers' mistake: 'It's infuriating'**\
+`The Packers are either first or tied for first in the NFL in offsides penalties, neutral zone infractions and encroachment penalties.`\
+https://nytimes.com/athletic/5966704/2024/12/04/packers-offsides-encroachment-penalties/
 
-**David and Sybil Yurman on Art and Amagansett**\
-`Step into the Hamptons house that the artists and jewelers have renovated through the years.`\
-https://nytimes.com/interactive/2024/12/04/realestate/luxury/david-sybil-yurman-house-jewelry-marriage.html
+**NWSL missed a chance to help Barbra Banda amid bad-faith attacks. More are inevitable**\
+`The Athletic's Meg Linehan writes that the NWSL should have done more to protect one of its own players.`\
+https://nytimes.com/athletic/5967730/2024/12/04/nwsl-barbra-banda-bad-faith-attacks/
 
-**‘What Does Illegal Mean at This Point?’ We’re About to Find Out.**\
-`Trump’s version of Project 2025 may not be what it seemed. It’s worse.`\
-https://nytimes.com/2024/12/04/opinion/trump-patel-vought-project-2025.html
+**The Connections Companion No. 543**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 5, 2024.`\
+https://nytimes.com/2024/12/04/crosswords/connections-companion-543.html
 
-**Human Interaction Is Now a Luxury Good**\
-`We’re increasingly becoming a society where very wealthy people get human care, like concierge medicine and private schools with tiny class sizes.`\
-https://nytimes.com/2024/12/04/opinion/ai-tech-human-interaction.html
+**Two Billionaires’ Big Plan to Shrink Government**\
+`What Elon Musk and Vivek Ramaswamy aim to do to the federal government — and what it would look like if their ideas were carried out.`\
+https://nytimes.com/2024/12/04/podcasts/the-daily/musk-doge-trump.html
 
-**Will ‘Constitutional Republicans’ Save the Senate?**\
-`Only a handful of Republicans are needed to stand up for the Senate’s right to advise and consent on nominations.`\
-https://nytimes.com/2024/12/04/opinion/senate-republicans-nominations-trump.html
+**Blackhawks prospect Oliver Moore learning to influence game with or without production**\
+`The Blackhawks weren't surprised to see Moore struggle with point production, and they're pleased with his evolution.`\
+https://nytimes.com/athletic/5964496/2024/12/04/oliver-moore-blackhawks-prospect/
 
-**University of Michigan Weighs Changes to Its Diversity Program**\
-`The school is one of higher education’s biggest supporters of D.E.I. Now it’s considering a new approach as critics question the program’s success and impact on campus life.`\
-https://nytimes.com/2024/12/04/us/university-of-michigan-dei.html
+**Wordle Review No. 1,265**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 5, 2024.`\
+https://nytimes.com/2024/12/04/crosswords/wordle-review-1265.html
 
