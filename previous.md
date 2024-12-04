@@ -1,3 +1,7 @@
+**How the Impeachment of South Korea’s President Could Unfold**\
+`A detailed look at each stage of the impeachment process, and what is to come for President Yoon.`\
+https://nytimes.com/interactive/2024/12/04/world/asia/south-korea-impeachment-vote-president-yoon.html
+
 **Giannis, Damian Lillard lock in as Bucks breeze past Pistons and into NBA Cup knockout rounds**\
 `All season, Bucks players have talked about putting together a complete 48-minute performance. On Tuesday in Detroit, they got one.`\
 https://nytimes.com/athletic/5968194/2024/12/04/giannis-antetokounmpo-damian-lliard-bucks-pistons-nba-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/style/chanel-china.html
 **DealBook has covered Wall Street and the world for nearly a quarter century.**\
 `Started in 2001 by Andrew Ross Sorkin, the daily newsletter has generated scoops and in-depth features on the power brokers in Washington, on Wall Street and beyond.`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/dealbook-has-covered-wall-street-and-the-world-for-nearly-a-quarter-century
-
-**What is ‘heightened scrutiny,’ and why does it matter?**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-transgender-heightened-scrutiny
 
