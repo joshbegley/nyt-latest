@@ -18,7 +18,7 @@ https://nytimes.com/2024/12/04/us/gender-transition-bans-states.html
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5968723/2024/12/04/eastern-conference-cavaliers-donovan-mitchell-lebron-james-lakers-nba-the-bounce/
 
-**C.E.O. of UnitedHealthcare Is Killed in Midtown Manhattan**\
+**C.E.O. of UnitedHealthcare Is Fatally Shot in Midtown Manhattan**\
 `The executive, Brian Thompson, was shot in the chest in what people briefed on the investigations said appeared to be a targeted attack.`\
 https://nytimes.com/2024/12/04/nyregion/shooting-midtown-nyc-united-healthcare-brian-thompson.html
 
