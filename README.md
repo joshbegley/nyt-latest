@@ -1,6 +1,6 @@
 **South Korean history is scarred by martial law.**\
 `By Ephrat Livni`\
-https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/south-korean-history-is-scarred-by-martial-law
+https://nytimes.com/2024/12/03/world/asia/martial-law-south-korea-history.html
 
 **Ekeler details memory loss, neck pain in first interview since Week 12 concussion**\
 `"I didn't even remember how I got off the field," Ekeler said in his first media appearance since the concussion and IR placement.`\

@@ -1,3 +1,7 @@
+**South Korean history is scarred by martial law.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/south-korean-history-is-scarred-by-martial-law
+
 **Ekeler details memory loss, neck pain in first interview since Week 12 concussion**\
 `"I didn't even remember how I got off the field," Ekeler said in his first media appearance since the concussion and IR placement.`\
 https://nytimes.com/athletic/5967785/2024/12/03/austin-ekeler-commanders-concussion-injured-reserve/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5967305/2024/12/03/49ers-isaac-guerendo-evan-anders
 **Dan Campbell is the favorite to win NFL Coach of the Year, but the race is heating up**\
 `Dan Campbell is the current favorite to win the NFL Coach of the Year award, but a couple of big names are rising up the betting board.`\
 https://nytimes.com/athletic/5967208/2024/12/03/nfl-coach-of-year-race-odds-dan-campbell/
-
-**Ruud van Nistelrooy's fine Leicester start - dropping Faes, Vardy's run, celebratory beer**\
-`A bold selection call and a celebratory beer bookended Ruud Van Nistelrooy's successful first game as Leicester manager`\
-https://nytimes.com/athletic/5967494/2024/12/03/van-nistelrooy-leicester-west-ham-highlights/
 
