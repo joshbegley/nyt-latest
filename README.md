@@ -1,3 +1,11 @@
+**Sam Altman Says Artificial General Intelligence Is on the Horizon**\
+`Speaking at The New York Times DealBook Summit, Sam Altman, the chief executive of OpenAI, said that the arrival of artificial general intelligence would “matter much less” to the average person than currently thought.`\
+https://nytimes.com/video/business/100000009858580/sam-altman-openai-dealbook.html
+
+**2 in Critical Condition and Dozens Displaced After Senior Center Fire**\
+`More than 95 firefighters responded on Tuesday night to a four-alarm fire at a senior housing facility in Edison, N.J., according to officials.`\
+https://nytimes.com/2024/12/04/nyregion/edison-nj-senior-center-fire.html
+
 **Brian Thompson Was a Veteran Executive at UnitedHealthcare**\
 `Mr. Thompson managed a division that employs about 140,000 people and offers insurance plans to employers and individuals.`\
 https://nytimes.com/2024/12/04/nyregion/brian-thompson-unitedhealthcare.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5969119/2024/12/04/appalachian-state-football-job-p
 **Citadel’s Ken Griffin Said He Voted for Trump**\
 `Ken Griffin, the founder and chief executive of Citadel, celebrated President-elect Donald Trump’s win and said, “America is open for business again.”`\
 https://nytimes.com/video/business/dealbook/100000009858367/dealbook-ken-griffin-citadel-trump.html
-
-**Rebels Push Toward Hama, a Major City Held by Syria’s Government**\
-`The rebel command said on Wednesday, it captured a number of towns and villages outside the city. A Britain-based war monitor said government artillery and airstrikes had pushed the rebels back.`\
-https://nytimes.com/video/world/middleeast/100000009858240/rebels-battle-hama-syria-government.html
-
-**Georgia Tumbles Deeper Into Crisis as Opposition Leader is Detained**\
-`In a sign of a widening crackdown, security agents have searched the offices and homes of prominent activists and opposition leaders who fear the country is turning closer to Russia.`\
-https://nytimes.com/2024/12/04/world/europe/georgia-russia-protests-gvaramia.html
 
