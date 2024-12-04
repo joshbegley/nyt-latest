@@ -1,3 +1,7 @@
+**Texas or Georgia? How the battle for college football's top recruiting class is shaping up**\
+`Texas holds the top spot, but Georgia is positioned to jump ahead with a key five-star target expected to pick the Bulldogs on Friday. `\
+https://nytimes.com/athletic/5969951/2024/12/04/eorgia-texas-college-football-recruiting-best-class/
+
 **Investors, and the Fed’s chair, are being cautious about crypto.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/investors-and-the-feds-chair-are-being-cautious-about-crypto
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/sports/autoracing/mary-mcgee-dead.html
 **Finding a Sense of Purpose and Harmony Onstage**\
 `In a world frequently defined by polarization and isolation, music offers an opportunity to bridge divides and find common ground.`\
 https://nytimes.com/2024/12/04/special-series/gustavo-dudamel-youth-orchestra.html
-
-**Rockefeller Christmas Tree Lighting in Midtown to Go On as Planned**\
-`An official with the N.Y.P.D. said there would be a “massive police presence” for the event on Wednesday night, including aviation and canine units.`\
-https://nytimes.com/2024/12/04/nyregion/rockefeller-christmas-tree-lighting-midtown-shooting.html
 
