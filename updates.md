@@ -1,3 +1,11 @@
+**Texas A&M QB Conner Weigman to enter transfer portal**\
+`Weigman never had a chance to be a full-time starter for more than four consecutive games during his A&M career.`\
+https://nytimes.com/athletic/5967672/2024/12/03/conner-weigman-transfer-portal-texas-am/
+
+**ESPN, Stephen A. Smith negotiating historic 6 year, $120 million deal**\
+`ESPN’s initial offer was for $18 million per year. The two sides also discussed both five- and six-year options for the length of contract.`\
+https://nytimes.com/athletic/5967493/2024/12/03/espn-stephen-a-smith-negotiations-contract/
+
 **College Football Playoff rankings: Miami out, Alabama in as ACC implications linger**\
 `Oregon remained No. 1 in the penultimate Top 25, followed by No. 2 Texas, No. 3 Penn State, No. 4 Notre Dame and No. 5 Georgia.`\
 https://nytimes.com/athletic/5967563/2024/12/03/college-football-playoff-rankings-miami-alabama/
