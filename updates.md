@@ -1,3 +1,7 @@
+**Trump Donors Who Give at Least $1 Million or Raise $2 Million Get Inaugural Access**\
+`Perks being offered to the top donors to the president-elect’s inaugural committee include dinners with Melania Trump and the next vice president, JD Vance.`\
+https://nytimes.com/live/2024/12/03/us/trump-biden-news/trump-donors-inaugural-access
+
 **Texas A&M QB Conner Weigman to enter transfer portal**\
 `Weigman never had a chance to be a full-time starter for more than four consecutive games during his A&M career.`\
 https://nytimes.com/athletic/5967672/2024/12/03/conner-weigman-transfer-portal-texas-am/

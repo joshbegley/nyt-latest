@@ -1,3 +1,7 @@
+**Trump Donors Who Give at Least $1 Million or Raise $2 Million Get Inaugural Access**\
+`Perks being offered to the top donors to the president-elect’s inaugural committee include dinners with Melania Trump and the next vice president, JD Vance.`\
+https://nytimes.com/live/2024/12/03/us/trump-biden-news/trump-donors-inaugural-access
+
 **Texas A&M QB Conner Weigman to enter transfer portal**\
 `Weigman never had a chance to be a full-time starter for more than four consecutive games during his A&M career.`\
 https://nytimes.com/athletic/5967672/2024/12/03/conner-weigman-transfer-portal-texas-am/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5967494/2024/12/03/van-nistelrooy-leicester-west-ha
 **Children Worked Dangerous Shifts at Iowa Slaughterhouse, Inquiry Finds**\
 `Qvest Sanitation was ordered to pay nearly $172,000 after the Labor Department found it had employed 11 children to clean equipment on overnight shifts at a pork processing plant in Sioux City, Iowa.`\
 https://nytimes.com/2024/12/03/business/iowa-pork-plant-child-labor.html
-
-**How good is the UCF job? What's next for the Knights with Gus Malzahn gone to FSU**\
-`UCF has experienced high highs and low lows over the past 20 years. How can it unlock its potential in the revamped Big 12?`\
-https://nytimes.com/athletic/5967157/2024/12/03/ucf-football-job-profile-candidates/
 
