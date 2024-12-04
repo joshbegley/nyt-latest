@@ -1,3 +1,15 @@
+**Canada announces roster for 4 Nations: Snubs, surprises and expectations**\
+`The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
+https://nytimes.com/athletic/5966363/2024/12/04/canada-4-nations-face-off-roster/
+
+**Sundar Pichai Hits Back at Criticism of Company’s A.I. Leadership**\
+`Google’s chief executive rejected the idea that rivals were set to eat into the company’s dominance in search, despite antitrust fights that could force it to break up.`\
+https://nytimes.com/2024/12/04/business/dealbook/google-ai-sundar-pichai.html
+
+**Trump Picks Former Representative Billy Long to Lead I.R.S.**\
+`The move would effectively fire the current I.R.S. commissioner, whose term was set to last to 2027, and shake up an agency that the Biden administration has been spending billions to beef up.`\
+https://nytimes.com/2024/12/04/us/politics/billy-long-irs-trump.html
+
 **Richard Hamilton, Who Helped Solve a Mathematical Mystery, Dies at 81**\
 `He came up with an innovative equation called the Ricci flow that helped mathematicians explore fundamental questions that were once out of reach.`\
 https://nytimes.com/2024/12/04/science/richard-hamilton-dead.html
