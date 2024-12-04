@@ -1,3 +1,7 @@
+**Patrik Laine's storybook Bell Centre debut eclipsed by Canadiens' bigger story**\
+`Laine's second-period goal shook the arena, but that moment's meaning to the greater Canadiens story was more significant.`\
+https://nytimes.com/athletic/5968340/2024/12/04/patrik-laine-debut-canadiens-bigger-story/
+
 **On an emotional night in Calgary, Blue Jackets suffer their first shutout loss of the season**\
 `Rarely has a final score meant less. But the Flames rode two power-play goals and a stifling defensive effort to a 3-0 win over the Jackets.`\
 https://nytimes.com/athletic/5968280/2024/12/04/blue-jackets-first-shutout-loss-flames/

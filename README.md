@@ -1,3 +1,7 @@
+**Crystal Palace seek one moment of magic to coax Eberechi Eze back to his best**\
+`The England forward offered flashes of his quality in the win at Ipswich, but is still weighed down by expectation and needs more support`\
+https://nytimes.com/athletic/5958885/2024/12/04/palace-eze-glasner-mateta/
+
 **On an emotional night in Calgary, Blue Jackets suffer their first shutout loss of the season**\
 `Rarely has a final score meant less. But the Flames rode two power-play goals and a stifling defensive effort to a 3-0 win over the Jackets.`\
 https://nytimes.com/athletic/5968280/2024/12/04/blue-jackets-first-shutout-loss-flames/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965815/2024/12/04/joe-gomez-liverpool-newcastle/
 **Tyrese Haliburton calls out Pacers’ ‘embarrassing’ play and his own leadership**\
 `The reigning Eastern Conference finalists are struggling, and their leader said it's time for self-examination.`\
 https://nytimes.com/athletic/5968166/2024/12/04/tyrese-haliburton-pacers-raptors/
-
-**How the Sabres hit new low in panic-filled, historic collapse against Avalanche**\
-`"We've had enough wake-up calls," Tage Thompson said. "It's terrible. That's all there is to it."`\
-https://nytimes.com/athletic/5968252/2024/12/04/sabres-collapse-new-low-avalanche/
 
