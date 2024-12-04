@@ -1,3 +1,7 @@
+**West Ham board discussing Lopetegui's future after run of poor results**\
+`West Ham United&#8217;s board are discussing the future of head coach Julen Lopetegui.`\
+https://nytimes.com/athletic/5783500/2024/12/04/julen-lopetegui-west-ham-united/
+
 **Djokovic will start 2025 season in Brisbane ahead of Australian Open**\
 `Djokovic's new coach Andy Murray is not planning to join him for the Australian Open warm-up, Murray's team said.`\
 https://nytimes.com/athletic/5968572/2024/12/04/novak-djokovic-2025-tennis-season-murray-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5967942/2024/12/04/cowboys-nfl-draft-projection-rec
 **Why South Korea’s Leader, Desperate and Frustrated, Made a Fateful Decision**\
 `​A day after he declared — and then withdrew — martial law, President Yoon Suk Yeol was politically isolated as observers pondered his future in leadership.`\
 https://nytimes.com/2024/12/04/world/asia/south-korea-yoon-martial-law.html
-
-**Twins mailbag: Trade odds, Roki Sasaki vs. Rihanna, lacking lefties and T.C. Bear**\
-`Plus how the Christian Vázquez and Chris Paddack trade markets could be tied to early signings, and a possible non-tendered outfield fit.`\
-https://nytimes.com/athletic/5963144/2024/12/04/twins-mailbag-trade-odds-roki-sasaki-vs-rihanna-lacking-lefties-and-t-c-bear/
 
