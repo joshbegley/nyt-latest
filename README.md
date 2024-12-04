@@ -1,3 +1,11 @@
+**The Pulse: The Playoff committee's imminent snubs**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5966702/2024/12/04/cfp-rankings-alabama-miami-ole-miss-the-pulse/
+
+**Syrian Forces Battle Rebels Outside Key City of Hama**\
+`The rebels have set their sights on an area where President Bashar al-Assad’s government has long maintained strength.`\
+https://nytimes.com/2024/12/04/world/middleeast/syria-hama-assad-rebels.html
+
 **As Pelicans’ season continues to crumble, will there be anything left to salvage?**\
 `“Willie ain’t out there getting scored on. He ain’t missing shots. He ain’t turning the ball over,” says CJ McCollum on criticism of coach. `\
 https://nytimes.com/athletic/5965423/2024/12/04/pelicans-season-crumbling-nba-issues/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5966932/2024/12/04/jonathan-greenard-vikings-nfl-pa
 **New York Giants survey results: Fans have lost faith in Brian Daboll, Joe Schoen**\
 `Last year, Giants fans were nearly unanimous in wanting Schoen and Daboll back for another season. Things have certainly changed. `\
 https://nytimes.com/athletic/5964192/2024/12/04/giants-brian-daboll-joe-schoen-fans-survey/
-
-**How this summer's stunning offer-sheet saga has worked out for Oilers and Blues**\
-`Philip Broberg and Dylan Holloway are set to return to Edmonton for the first time as the Oilers host the Blues on Saturday.`\
-https://nytimes.com/athletic/5967871/2024/12/04/oilers-blues-philip-broberg-dylan-holloway/
-
-**What to Know About the Chaos in South Korea, and a Major Trans Rights Case**\
-`Plus, how money to protect pandas is really spent.`\
-https://nytimes.com/2024/12/04/podcasts/south-korea-trans-rights.html
 
