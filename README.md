@@ -1,3 +1,7 @@
+**Alex Cooper Says She’s Not the ‘Next Howard Stern’**\
+`“I don’t care if people consider me a journalist or a podcaster, or just a girl that talks online every week,” Ms. Cooper said at the DealBook Summit.`\
+https://nytimes.com/2024/12/04/business/dealbook/alex-cooper-call-her-daddy-unwell.html
+
 **Ryan Day expects to continue at Ohio State, takes blame for Michigan upset**\
 `Ohio State coach Ryan Day said Wednesday that he has no plans to coach elsewhere, and he also broke down what went wrong vs. Michigan.`\
 https://nytimes.com/athletic/5969944/2024/12/04/ryan-day-ohio-state-future-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/us/politics/russian-general-call.html
 **Wild's Joel Eriksson Ek sidelined week to week with lower-body injury**\
 `Eriksson Ek was injured in overtime Tuesday night when he was checked by the Vancouver Canucks’ Jake DeBrusk.`\
 https://nytimes.com/athletic/5969966/2024/12/04/wild-joel-eriksson-ek-lower-body-injury-out/
-
-**Read Representative Jerrold Nadler’s Letter**\
-`Mr. Nadler told his Democratic colleagues that he planned to step down as the top Democrat on the House Judiciary Committee next term.`\
-https://nytimes.com/interactive/2024/12/04/us/jn-december-4-2024-letter.html
 
