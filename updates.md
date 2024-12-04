@@ -1,3 +1,15 @@
+**The Briefing: Newcastle 3-3 Liverpool - Kelleher's late error costly as Isak and Co shine again**\
+`Newcastle and Liverpool served up a 3-3 draw in keeping with their history of thrilling Premier League matches`\
+https://nytimes.com/athletic/5957341/2024/12/04/newcastle-3-liverpool-3-kelleher-isak/
+
+**Fantasy football brain games: Calling on Caleb Williams, fading Rachaad White in Week 14**\
+`Renee Miller explains her decision-making process for some interesting lineup scenarios in Week 14 — like Geno Smith vs. Caleb Williams.`\
+https://nytimes.com/athletic/5969841/2024/12/04/fantasy-football-brain-games-week-14-lineup-decisions/
+
+**Obesity is just the start for the new weight-loss drugs, says Eli Lilly’s chief.**\
+`He predicts as many as 20 percent of Americans ma`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/obesity-is-just-the-start-for-the-new-weight-loss-drugs-says-eli-lillys-chief
+
 **Alex Cooper Said Her Team Spoke With Trump’s About an Interview**\
 `Alex Cooper, the host of “Call Her Daddy” and founder of the Unwell Network, said her team had a Zoom call that she did not attend with Donald Trump’s campaign about a potential interview.`\
 https://nytimes.com/video/business/dealbook/100000009859494/dealbook-alex-cooper-media-podcasts.html
