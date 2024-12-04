@@ -1,7 +1,3 @@
-**Kelly Powers, Fox News Commentator Who Shared Her Health Crises With Viewers, Dies at 45**\
-`She was diagnosed with glioblastoma, an aggressive form of brain cancer, in 2020, and used her platform to talk about cancer research.`\
-https://nytimes.com/2024/12/04/business/media/kelly-powers-dead.html
-
 **Jaguars place Lawrence on IR for concussion, likely ending QB's season**\
 `Lawrence's season is likely over after sustaining a concussion on a late hit from Texans linebacker Azeez Al-Shaair.`\
 https://nytimes.com/athletic/5970122/2024/12/04/jaguars-trevor-lawrence-concussion-injured-reserve/
@@ -37,4 +33,8 @@ https://nytimes.com/article/hannah-kobayashi-missing-mexico.html
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `Matt Eberflus is gone, Thomas Brown is in charge and the Bears hope to snap a six-game losing streak when they face the 49ers on Sunday.`\
 https://nytimes.com/athletic/5970244/2024/12/04/bears-mailbag-questions-41/
+
+**Chief Executive of Insurance Giant Is Gunned Down Outside Midtown Hotel**\
+`Brian Thompson, the head of UnitedHealthcare, was the victim of what the police said was a targeted shooting. His killer shot him in the back, then walked coolly away.`\
+https://nytimes.com/2024/12/04/nyregion/unitedhealthcare-ceo-brian-thompson-shooting.html
 
