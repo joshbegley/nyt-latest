@@ -1,3 +1,15 @@
+**O'Neil vows to fight on at Wolves after heavy Everton defeat**\
+`Beleaguered Wolves boss Gary O’Neil pledged to fight on after a 4-0 thrashing at Everton that left travelling fans demanding his sacking.`\
+https://nytimes.com/athletic/5970312/2024/12/04/wolves-everton-gary-oneil/
+
+**Colorado’s signing class headlined by top-40 QB Julian Lewis**\
+`Lewis, the No. 6 QB in the class, is one of six blue-chip prospects for Deion Sanders' Buffaloes. `\
+https://nytimes.com/athletic/5970028/2024/12/04/colorado-football-julian-lewis-signing-class/
+
+**Brian Thompson, Chief Executive of UnitedHealthcare, Dies at 50**\
+`Mr. Thompson, who was fatally shot in Midtown Manhattan, rose to the top of one of the world’s biggest insurance companies.`\
+https://nytimes.com/2024/12/04/nyregion/brian-thompson-dead.html
+
 **Ake injury 'doesn't look good' - Guardiola**\
 `Pep Guardiola says Nathan Ake&#8217;s injury &#8220;doesn&#8217;t look good&#8221; after Manchester City&#8217;s first win in eight games was marred by more fitness problems.`\
 https://nytimes.com/athletic/5970371/2024/12/04/man-city-nathan-ake-injury-2/
