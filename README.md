@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5966886/2024/12/04/bears-coaching-search-bill-belic
 `How are things going for Cal at Arkansas, anyway? And why didn't we see Pitt coming in the ACC?`\
 https://nytimes.com/athletic/5967350/2024/12/04/college-basketball-surprises-disappointments/
 
+**'He affects every player around him': How the Chiefs defense revolves around Chris Jones**\
+`Jones has a pass-rushing grade of 90.8, the highest among NFL defensive tackles, according to Pro Football Focus.`\
+https://nytimes.com/athletic/5966101/2024/12/04/chris-jones-chiefs-defense/
+
 **Why the Vikings' Jonathan Greenard has earned a place among the NFL's top pass rushers**\
 `"We're lucky to have him," defensive coordinator Brian Flores said of Greenard, who has 10 sacks and leads the NFL with 60 QB pressures.`\
 https://nytimes.com/athletic/5966932/2024/12/04/jonathan-greenard-vikings-nfl-pass-rusher/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966704/2024/12/04/packers-offsides-encroachment-pe
 **NWSL missed a chance to help Barbra Banda amid bad-faith attacks. More are inevitable**\
 `The Athletic's Meg Linehan writes that the NWSL should have done more to protect one of its own players.`\
 https://nytimes.com/athletic/5967730/2024/12/04/nwsl-barbra-banda-bad-faith-attacks/
-
-**The Connections Companion No. 543**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 5, 2024.`\
-https://nytimes.com/2024/12/04/crosswords/connections-companion-543.html
 
