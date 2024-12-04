@@ -1,3 +1,7 @@
+**College Football Playoff rankings: Alabama holds final at-large bid**\
+`Oregon remained No. 1 in the penultimate Top 25, followed by No. 2 Texas, No. 3 Penn State, No. 4 Notre Dame and No. 5 Georgia.`\
+https://nytimes.com/athletic/5967563/2024/12/03/college-football-playoff-rankings-miami-alabama/
+
 **Juan Soto bidding reaches $600M, MLB sources say; process of eliminating teams underway**\
 `The expectation within the industry is that Soto will make his decision by the end of the Winter Meetings next week.`\
 https://nytimes.com/athletic/5967592/2024/12/03/juan-soto-signing-update-600-million/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/opinion/democrats-rahm-emanuel-china.html
 **BlackRock Jumps Deeper Into the Private Markets**\
 `The world’s largest investor is buying HPS, a major provider of private credit, for $12 billion.`\
 https://nytimes.com/2024/12/03/business/blackrock-hbs-private-credit.html
-
-**South Korea President Declares Martial Law, Then Backs Down**\
-`Soon after President Yoon Suk Yeol’s declaration on Tuesday, lawmakers voted to defy him, prompting the president to say he was lifting his order.`\
-https://nytimes.com/2024/12/03/world/asia/south-korea-martial-law.html
 
