@@ -1,3 +1,7 @@
+**Matt Rhule on captains' handshake refusal with Iowa: ‘That’s not what we want to do’**\
+`Nebraska game captains declined to extend their hands before kickoff for a traditional handshake with Iowa players.`\
+https://nytimes.com/athletic/5970577/2024/12/04/nebraska-iowa-handshake-matt-rhule/
+
 **Rohit Bal, Exuberant Star of Indian Fashion, Dies at 63**\
 `Known as “the bad boy of fashion,” he was among a wave of designers who created modern Indian couture by updating traditional garments.`\
 https://nytimes.com/2024/12/04/style/rohit-bal-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/well/eat/dark-chocolate-diabetes-study.html
 **Gunman Shoots 2 Students at Rural California School, Officials Say**\
 `The gunman at the Feather River Adventist School in Oroville, Calif., later died of what appeared to have been a self-inflicted gunshot wound, the authorities said.`\
 https://nytimes.com/2024/12/04/us/school-shooting-oroville-california.html
-
-**UnitedHealthcare C.E.O. Killed in ‘Brazen, Targeted Attack,’ Police Say**\
-`The police are searching for the suspect in the fatal shooting of Brian Thompson, the chief executive of UnitedHealthcare, near a Midtown Manhattan hotel on Wednesday morning.`\
-https://nytimes.com/video/nyregion/100000009858797/unitedhealthcare-ceo-midtown-manhattan-shooting.html
 
