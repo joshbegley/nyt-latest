@@ -1,3 +1,23 @@
+**How many games can Leeds afford to lose and still win promotion?**\
+`Leeds lost against Blackburn on Saturday — how bad of a blow is that to promotion hopes?`\
+https://nytimes.com/athletic/5962699/2024/12/04/leeds-loss-defeat-championship-promotion/
+
+**Gordon, the search for top form and the aftermath of an 'unsettling' summer**\
+`A deep dive into Newcastle and England winger Gordon's drop in form this season - what's to blame?`\
+https://nytimes.com/athletic/5954651/2024/12/04/whats-wrong-with-anthony-gordon-form-newcastle-contract-liverpool-interest/
+
+**Angeball is relentlessly physical. Is it compatible with Spurs playing twice a week?**\
+`When Spurs run more, they win more. But it poses the question of whether they can keep doing that with their injuries and schedule`\
+https://nytimes.com/athletic/5960341/2024/12/04/angeball-playing-twice-a-week/
+
+**Fofana’s injury presents a problem for Chelsea. Who will Maresca turn to?**\
+`Maresca’s comments after the Villa win made it clear he considers Fofana to be an upgrade on all three centre-back alternatives in his squad`\
+https://nytimes.com/athletic/5965565/2024/12/04/chelsea-wesley-fofana-injury-analysis/
+
+**Analysing the numbers behind Manchester City’s shocking defensive decline**\
+`A combination of an inefficient high press, a high line, and difficulty defending crosses have all played a part in City's slump`\
+https://nytimes.com/athletic/5966073/2024/12/04/manchester-city-decline-data-analysis-premier-league/
+
 **Here are the latest developments.**\
 `By Victoria Kim, Minho Kim, John Yoon and Choe Sang-Hun`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law/here-are-the-latest-developments
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/04/us/politics/california-house-gray-duarte.html
 **Guardiola, Anfield and the grounds that Premier League title winning managers fear most**\
 `Pep Guardiola lost again at Anfield on Sunday — but where do other title-winning managers struggle the most?`\
 https://nytimes.com/athletic/5965970/2024/12/04/premier-league-managerial-hoodoos-title-analysis/
-
-**The startup multi-club network platforming new talent - led by two ex-Manchester United scouts**\
-`Slovenia is the unlikely starting point for a new network that wants to help bring South American and African talents to Europe`\
-https://nytimes.com/athletic/5934628/2024/12/04/multi-club-tabor-sezana-man-utd-scouts/
-
-**Fantasy basketball roundup: Can Dyson Daniels and Nikola Vucevic stay hot?**\
-`Stan Son evaluates which early-season trends are sustainable and which are mirages. `\
-https://nytimes.com/athletic/5966690/2024/12/04/fantasy-basketball-roundup-daniels-vucevic/
-
-**How Germany preserves its proud football heritage - even when clubs move stadiums**\
-`While English clubs barely recognise their former homes - some of Germany's biggest sides fully embrace the past `\
-https://nytimes.com/athletic/5885265/2024/12/04/how-germany-preserves-its-proud-football-heritage-even-when-clubs-move-stadiums/
-
-**How Brentford lost their best player and became more fun**\
-`Brentford's evolution was delayed last season, but with Toney gone, it's underway again`\
-https://nytimes.com/athletic/5965996/2024/12/04/brentford-lose-ivan-toney-improve-tactics/
-
-**Week 14 fantasy football rankings: Sleepers, projections, starts, sits | Caleb Williams, Jordan Addison and more**\
-`Can Caleb Williams lead you to the playoffs? He's a sleeper for Jake Ciely, who breaks down the matchups and ranks the players for Week 14.`\
-https://nytimes.com/athletic/5967386/2024/12/04/week-14-fantasy-football-rankings-sleepers-projections-starts-sits/
 
