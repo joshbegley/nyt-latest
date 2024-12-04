@@ -1,3 +1,11 @@
+**Ancelotti backs Mbappe after latest penalty miss: 'He can do better'**\
+`Kylian Mbappe “can do better” manager Carlo Ancelotti insisted after the Real Madrid forward missed another penalty during his side’s loss to Athletic Club.`\
+https://nytimes.com/athletic/5970438/2024/12/04/mbappe-penalty-real-madrid-ancelotti/
+
+**Prince Harry Says Murdoch Tabloid Lawsuit Is About Accountability**\
+`Prince Harry, the Duke of Sussex, vowed to continue his legal battle against Rupert Murdoch’s British tabloids for hacking his phone, in part because he believed that the misconduct of some journalists was calling into question trust in all.`\
+https://nytimes.com/video/business/dealbook/100000009859921/prince-harry-dealbook-murdoch.html
+
 **Finland's game plan for 4 Nations glory: 'You have to be ready right away'**\
 `Why coach Antti Pennanen and GM Jere Lehtinen think they've built a team that will compete — despite the tourney's smallest player pool.`\
 https://nytimes.com/athletic/5970303/2024/12/04/finland-4-nations-game-plan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5970291/2024/12/04/florida-recruiting-billy-napier/
 **U.S. Defends Climate Accord as Nations Call for Stronger Global Action**\
 `In a landmark international hearing on climate change, a U.S. representative backed the Paris Agreement, but left unanswered questions about U.S. commitments in a Trump presidency.`\
 https://nytimes.com/2024/12/04/climate/paris-agreement-international-court-justice.html
-
-**Kelly Powers, Fox News Commentator Who Shared Her Health Crises With Viewers, Dies at 45**\
-`She was diagnosed with glioblastoma, an aggressive form of brain cancer, in 2020, and used her platform to talk about cancer research.`\
-https://nytimes.com/2024/12/04/business/media/kelly-powers-dead.html
-
-**Jaguars place Lawrence on IR for concussion, likely ending QB's season**\
-`Lawrence's season is likely over after sustaining a concussion on a late hit from Texans linebacker Azeez Al-Shaair.`\
-https://nytimes.com/athletic/5970122/2024/12/04/jaguars-trevor-lawrence-concussion-injured-reserve/
 
