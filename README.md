@@ -1,8 +1,12 @@
+**Giannis, Damian Lillard lock in as Bucks breeze past Pistons and into NBA Cup knockout rounds**\
+`All season, Bucks players have talked about putting together a complete 48-minute performance. On Tuesday in Detroit, they got one.`\
+https://nytimes.com/athletic/5968194/2024/12/04/giannis-antetokounmpo-damian-lliard-bucks-pistons-nba-cup/
+
 **Saudi Arabia in talks about place at men's Gold Cup in North America**\
 `Qatar, South Korea and Brazil are among the teams from outside North America to compete in the CONCACAF tournament.`\
 https://nytimes.com/athletic/5968617/2024/12/04/saudi-arabia-gold-cup-concacaf/
 
-**These 26 States Have Restricted Gender-Transition Treatments for Minors Since 2021.**\
+**These 26 States Have Restricted Gender-Transition Treatments for Minors Since 2021**\
 `Transgender minors and their parents, guardians and doctors have challenged bans in 18 states, with mixed results.`\
 https://nytimes.com/2024/12/04/us/gender-transition-bans-states.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/dealbook-has-c
 **What is ‘heightened scrutiny,’ and why does it matter?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-transgender-heightened-scrutiny
-
-**Amazon Sued Over Slow Deliveries to Low-Income Areas**\
-`The District of Columbia’s attorney general said the company deliberately outsourced Prime member deliveries in certain ZIP codes.`\
-https://nytimes.com/2024/12/04/technology/amazon-prime-delivery-lawsuit.html
 
