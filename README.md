@@ -1,6 +1,10 @@
+**Pardon Backlash Reflects Fraught Breakup Between Democrats and Biden**\
+`The criticism of the president’s pardon of his son from within his own party underscores how far gone his relationship with Democrats in Congress already was.`\
+https://nytimes.com/2024/12/04/us/politics/biden-pardon-democrats.html
+
 **Real Madrid hire new nutritionist in bid to address injury crisis**\
 `Real Madrid have hired nutritionist Itziar Gonzalez de Arriba in a bid to address the extensive injury problems they have encountered this season.`\
-https://nytimes.com/athletic/5968619/2024/12/04/real-madrid-hire-new-nutritionist-in-bid-to-address-injury-crisis/
+https://nytimes.com/athletic/5968619/2024/12/04/real-madrid-nutritionist-injuries/
 
 **Explaining the Premier League's Rainbow Laces controversy and what comes next**\
 `The Premier League's LGBTQ+ initiative has been overshadowed this week - what has happened and why?`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5969609/2024/12/04/micah-hyde-buffalo-bills-practic
 **In Global Finale, Biden Hopes Rail Project Defines Africa Legacy**\
 `In his last announced trip abroad as president, Mr. Biden relished touring a U.S.-financed train line in Angola intended to transport goods and critical minerals to port.`\
 https://nytimes.com/2024/12/04/world/africa/biden-angola-africa-lobito-train-corridor.html
-
-**Ja Morant 'not trying to dunk' as Grizzlies star prioritizes health**\
-`"I'm not trying to dunk at all," Morant said. "Y'all think I'm lying. I'm dead serious."`\
-https://nytimes.com/athletic/5969594/2024/12/04/ja-morant-dunk-grizzlies/
 
