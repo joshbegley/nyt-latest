@@ -1,3 +1,11 @@
+**Richard Hamilton, Who Helped Solve a Mathematical Mystery, Dies at 81**\
+`He came up with an innovative equation called the Ricci flow that helped mathematicians explore fundamental questions that were once out of reach.`\
+https://nytimes.com/2024/12/04/science/richard-hamilton-dead.html
+
+**U.S. announces roster for 4 Nations: Snubs, surprises and expectations**\
+`The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
+https://nytimes.com/athletic/5966362/2024/12/04/united-states-4-nations-face-off-roster/
+
 **Could Dark Chocolate Reduce Your Risk of Diabetes?**\
 `A new study suggests that it might. We asked experts if that’s too good to be true.`\
 https://nytimes.com/2024/12/04/well/eat/dark-chocolate-diabetes-study.html
