@@ -1,3 +1,7 @@
+**Kaprizov does it again in OT during one intense hockey game: 3 takeaways vs. Canucks**\
+`Kaprizov capped a tightly contested, physical game with an overlong OT shift, a mishap and a game-winner.`\
+https://nytimes.com/athletic/5968222/2024/12/04/wild-kaprizov-overtime-canucks-gustavsson/
+
 **Wednesday Briefing**\
 `A political crisis in South Korea.`\
 https://nytimes.com/2024/12/04/briefing/south-korea-ukraine-nato.html
