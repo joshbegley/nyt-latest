@@ -1,3 +1,23 @@
+**Le Normand in contention for Atletico Madrid return after brain injury**\
+`Atletico Madrid coach Diego Simeone says Robin Le Normand is ready to return to action in Thursday&#8217;s Copa del Rey fixture two months on from suffering a traumatic brain injury.`\
+https://nytimes.com/athletic/5969489/2024/12/04/robin-le-normand-injury-return/
+
+**How Many Clubs Does One Jet Set Need?**\
+`Jeff Klein, the hotelier who turned Tower Bar into a Los Angeles institution, has opened a $40 million private club at the beach.`\
+https://nytimes.com/2024/12/04/style/jeff-klein-san-vicente-santa-monica-club.html
+
+**To Save Refugees and Migrants Is to Save Ourselves**\
+`The psychology of fear, blame and scarcity keeps us from solving the crisis of displaced people.`\
+https://nytimes.com/2024/12/04/special-series/refugees-migrants-crisis.html
+
+**Trump Picks Paul Atkins to Run the S.E.C.**\
+`Mr. Atkins, a pro-business conservative, would likely take a lighter regulatory approach than the current chair of the Securities and Exchange Commission.`\
+https://nytimes.com/2024/12/04/business/trump-sec-paul-atkins.html
+
+**Justice Gorsuch, who wrote a 2020 opinion on transgender rights, was silent on Wednesday.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-gorsuch-who-wrote-a-2020-opinion-on-transgender-rights-was-silent-on-wednesday
+
 **UCF has made inquiries about USC coach Lincoln Riley**\
 `Riliey is three seasons into a reported 10-year contract that pays him about $10 million per year. `\
 https://nytimes.com/athletic/5969395/2024/12/04/lincoln-riley-ucf-usc-coaching/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/04/world/middleeast/syria-map-control.html
 **FIFA Secures $1 Billion Broadcast Deal for Its Club World Cup**\
 `An agreement with the London-based streaming company DAZN came just a day before the draw for the inaugural event and after other networks balked at FIFA’s demands.`\
 https://nytimes.com/2024/12/04/business/fifa-dazn-club-world-cup.html
-
-**Trump’s Trade Adviser Pick, a China Hawk, Was Jailed Over Jan. 6.**\
-`Mr. Navarro was a thorn in the side of Wall Street and a loyalist in Mr. Trump’s first term.`\
-https://nytimes.com/2024/12/04/us/politics/peter-navarro-trump-trade.html
-
-**Serena Williams, from tennis star to ‘person who loves investing.’**\
-`By Remy Tumin`\
-https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/serena-williams-from-tennis-star-to-person-who-loves-investing
-
-**Tom Brady on late-hit against Azeez Al-Shaair: ‘I have mixed emotions’**\
-`Brady’s comments came after the NFL suspended Houston Texans linebacker Al-Shaair for three games for the hit that concussed Trevor Lawrence`\
-https://nytimes.com/athletic/5969391/2024/12/04/tom-brady-late-hit-azeez-al-shaair/
-
-**What happens next? The court will probably not issue a decision until June.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june
-
-**Heat Today: Tyler Herro is still a bucket-getter, even when the buckets aren't his**\
-`Herro's shooting efficiency has dipped after a hot start, but he's expanded his playmaking.`\
-https://nytimes.com/athletic/5968981/2024/12/04/tyler-herro-jimmy-butler-lebron-james-dwyane-wademiami-heat/
 
