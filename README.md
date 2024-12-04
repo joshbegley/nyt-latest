@@ -1,9 +1,13 @@
+**Miami AD defends Canes: Committee 'really' put in Bama instead?**\
+`Dan Radakovich sounded off on the Canes' exclusion from the Playoff field this week. Is he right or wrong?`\
+https://nytimes.com/athletic/5968023/2024/12/03/miami-athletic-director-alabama-cfp-comments/
+
 **Tickled Pink**\
 `Daniel Raymon’s puzzle earns top marks.`\
 https://nytimes.com/2024/12/03/crosswords/daily-puzzle-2024-12-04.html
 
 **What to know about Jesper Wallstedt's Iowa reset, David Jiricek's Wild debut and injuries**\
-`Wallstedt's thoughts on his development timeline, when Jiricek might make his debut and injury updates on Jonas Brodin and more.`\
+`When Jiricek might make his debut, Wallstedt's thoughts on his development timeline, injury updates on Jonas Brodin and more.`\
 https://nytimes.com/athletic/5967925/2024/12/03/wild-injuries-david-jiricek-jesper-wallstedt/
 
 **South Korea’s Markets Wobble as Investors Assess Its Political Turmoil**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/world/asia/martial-law-south-korea-history.html
 **Commanders' Ekeler details memory loss, neck pain after Week 12 concussion**\
 `"I didn't even remember how I got off the field," the Commanders RB said in his first media appearance since suffering the injury.`\
 https://nytimes.com/athletic/5967785/2024/12/03/austin-ekeler-commanders-concussion-injured-reserve/
-
-**Trump Donors Who Give at Least $1 Million or Raise $2 Million Get Inaugural Access**\
-`Perks being offered to the top donors to the president-elect’s inaugural committee include dinners with Melania Trump and the next vice president, JD Vance.`\
-https://nytimes.com/2024/12/03/us/politics/trump-donors-inauguration-access.html
 
