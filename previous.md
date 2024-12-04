@@ -1,9 +1,13 @@
+**How the Canucks fell just short of Kirill Kaprizov and the Wild: 3 takeaways**\
+`The Canucks showed a lot of grit in their six-game road swing, but it ended with a 3-2 overtime loss to the Wild.`\
+https://nytimes.com/athletic/5968094/2024/12/03/canucks-wild-kirill-kaprizov-takeaways/
+
 **In signing Blake Snell, the Dodgers continue to operate in a different financial ballpark**\
 `Snell put on a Dodgers uniform for the first time and said: "It's just something you want to be a part of."`\
 https://nytimes.com/athletic/5968096/2024/12/03/dodgers-blake-snell-contract/
 
 **‘We’re playing with passion’: Timely plays make the difference on a so-so night for Bruins**\
-`The Bruins weren't at their best Tuesday night, but banking two winnable points against Detroit marked an improvement.`\
+`The Bruins weren't at their best Tuesday night, but banking 2 winnable points against the Red Wings marked an improvement.`\
 https://nytimes.com/athletic/5968143/2024/12/03/bruins-red-wings-pastrnak-sacco-montgomery/
 
 **Nearly 300 Troops Stormed South Korean Legislature, Official Says**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/pageoneplus/corrections-dec-4-2024.html
 **Breaking down NBA Cup implications for all 12 teams alive**\
 `There are as many as six games in the Western Conference with NBA Cup implications that all began after 8 p.m. ET.`\
 https://nytimes.com/athletic/5967826/2024/12/03/nba-cup-seeding-players-schedule-2024/
-
-**Is Ohio State a lock to host a Playoff game? What we learned from Tuesday's rankings**\
-`The committee chose Ohio State in a debate against Tennessee, which could determine the final first-round host on Sunday.`\
-https://nytimes.com/athletic/5967763/2024/12/03/ohio-state-college-football-playoff-rankings-home/
 

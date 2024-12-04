@@ -1,3 +1,11 @@
+**How the Canucks fell just short of Kirill Kaprizov and the Wild: 3 takeaways**\
+`The Canucks showed a lot of grit in their six-game road swing, but it ended with a 3-2 overtime loss to the Wild.`\
+https://nytimes.com/athletic/5968094/2024/12/03/canucks-wild-kirill-kaprizov-takeaways/
+
+**‘We’re playing with passion’: Timely plays make the difference on a so-so night for Bruins**\
+`The Bruins weren't at their best Tuesday night, but banking 2 winnable points against the Red Wings marked an improvement.`\
+https://nytimes.com/athletic/5968143/2024/12/03/bruins-red-wings-pastrnak-sacco-montgomery/
+
 **In signing Blake Snell, the Dodgers continue to operate in a different financial ballpark**\
 `Snell put on a Dodgers uniform for the first time and said: "It's just something you want to be a part of."`\
 https://nytimes.com/athletic/5968096/2024/12/03/dodgers-blake-snell-contract/
