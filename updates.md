@@ -1,3 +1,11 @@
+**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
+`Let us know what's on your mind during Denver's bye week.`\
+https://nytimes.com/athletic/5969757/2024/12/04/broncos-mailbag-bye-week/
+
+**Thursday Briefing: An Impeachment Motion in South Korea**\
+`Plus, what’s your favorite holiday tradition?`\
+https://nytimes.com/2024/12/04/briefing/south-korea-france-trump.html
+
 **Alex Cooper Says She’s Not the ‘Next Howard Stern’**\
 `“I don’t care if people consider me a journalist or a podcaster, or just a girl that talks online every week,” Ms. Cooper said at the DealBook Summit.`\
 https://nytimes.com/2024/12/04/business/dealbook/alex-cooper-call-her-daddy-unwell.html
