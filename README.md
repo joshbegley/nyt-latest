@@ -1,3 +1,7 @@
+**Ekeler details memory loss, neck pain in first interview since Week 12 concussion**\
+`"I didn't even remember how I got off the field," Ekeler said in his first media appearance since the concussion and IR placement.`\
+https://nytimes.com/athletic/5967785/2024/12/03/austin-ekeler-commanders-concussion-injured-reserve/
+
 **Trump Donors Who Give at Least $1 Million or Raise $2 Million Get Inaugural Access**\
 `Perks being offered to the top donors to the president-elect’s inaugural committee include dinners with Melania Trump and the next vice president, JD Vance.`\
 https://nytimes.com/2024/12/03/us/politics/trump-donors-inauguration-access.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5967208/2024/12/03/nfl-coach-of-year-race-odds-dan-
 **Ruud van Nistelrooy's fine Leicester start - dropping Faes, Vardy's run, celebratory beer**\
 `A bold selection call and a celebratory beer bookended Ruud Van Nistelrooy's successful first game as Leicester manager`\
 https://nytimes.com/athletic/5967494/2024/12/03/van-nistelrooy-leicester-west-ham-highlights/
-
-**Children Worked Dangerous Shifts at Iowa Slaughterhouse, Inquiry Finds**\
-`Qvest Sanitation was ordered to pay nearly $172,000 after the Labor Department found it had employed 11 children to clean equipment on overnight shifts at a pork processing plant in Sioux City, Iowa.`\
-https://nytimes.com/2024/12/03/business/iowa-pork-plant-child-labor.html
 
