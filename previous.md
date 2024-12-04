@@ -1,3 +1,11 @@
+**How much does the CFP committee punish losing a conference title game?**\
+`The 47 teams that lost power-conference title games in the CFP’s first decade dropped an average of two spots in the final CFP Top 25.`\
+https://nytimes.com/athletic/5968384/2024/12/04/cfp-rankings-selection-committee-conference-championship-games/
+
+**Liverpool have made contract offer to Van Dijk in attempt to keep captain**\
+`Liverpool have made a contract offer to Virgil van Dijk as they attempt to end uncertainty over his future by tying the Netherlands defender to a new agreement.`\
+https://nytimes.com/athletic/5968543/2024/12/04/virgil-van-dijk-contract-liverpool/
+
 **The Athletic FC: Mascherano's fine line with Messi, Man Utd scrap pro-LGBTQ+ plan**\
 `Today in TAFC: Why Mascherano is walking a fine line, Man Utd scrap a pro-LGBTQ+ plan and Yamal steals show with audacious assist.`\
 https://nytimes.com/athletic/5968616/2024/12/04/mascherano-messi-miami-man-utd-lgbtq/
@@ -10,7 +18,7 @@ https://nytimes.com/live/2024/12/04/us/trump-news
 `Garber, 67, marked 25 years as MLS commissioner in August.`\
 https://nytimes.com/athletic/5968466/2024/12/04/mls-don-garber-contract/
 
-**West Ham board discussing Lopetegui's future after run of poor results**\
+**West Ham board discussing Lopetegui's future with head coach fighting to save job**\
 `West Ham United&#8217;s board are discussing the future of head coach Julen Lopetegui.`\
 https://nytimes.com/athletic/5783500/2024/12/04/julen-lopetegui-west-ham-united/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5968722/2024/12/04/mandels-mailbag-alabama-miami-co
 **Steve Kerr rips Brandin Podziemski for late mistakes in Denver: 'He can not be that guy'**\
 `Podziemski's growing pains were on full display as Golden State blew a late lead on the road against the Nuggets.`\
 https://nytimes.com/athletic/5968059/2024/12/04/brandin-podziemski-warriors-steve-kerr-criticism/
-
-**'We deserve our rights': How LGBTQ+ fans feel about Rainbow Laces controversy**\
-`While debate over the campaign intensifies, supporters affected explain why they feel more marginalised than ever`\
-https://nytimes.com/athletic/5967557/2024/12/04/rainbow-laces-lgbtq-fans/
-
-**Behind Nikola Jokić's scoring, the Nuggets streak to finish line against Warriors**\
-`Trailing by seven with under three minutes left, Denver made all the effort plays down the stretch and got 38 points its three-time MVP.`\
-https://nytimes.com/athletic/5968306/2024/12/04/nikola-jokic-nuggets-warriors-win/
 

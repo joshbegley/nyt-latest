@@ -1,3 +1,15 @@
+**How much does the CFP committee punish losing a conference title game?**\
+`The 47 teams that lost power-conference title games in the CFP’s first decade dropped an average of two spots in the final CFP Top 25.`\
+https://nytimes.com/athletic/5968384/2024/12/04/cfp-rankings-selection-committee-conference-championship-games/
+
+**Liverpool have made contract offer to Van Dijk in attempt to keep captain**\
+`Liverpool have made a contract offer to Virgil van Dijk as they attempt to end uncertainty over his future by tying the Netherlands defender to a new agreement.`\
+https://nytimes.com/athletic/5968543/2024/12/04/virgil-van-dijk-contract-liverpool/
+
+**West Ham board discussing Lopetegui's future with head coach fighting to save job**\
+`West Ham United&#8217;s board are discussing the future of head coach Julen Lopetegui.`\
+https://nytimes.com/athletic/5783500/2024/12/04/julen-lopetegui-west-ham-united/
+
 **The Athletic FC: Mascherano's fine line with Messi, Man Utd scrap pro-LGBTQ+ plan**\
 `Today in TAFC: Why Mascherano is walking a fine line, Man Utd scrap a pro-LGBTQ+ plan and Yamal steals show with audacious assist.`\
 https://nytimes.com/athletic/5968616/2024/12/04/mascherano-messi-miami-man-utd-lgbtq/
