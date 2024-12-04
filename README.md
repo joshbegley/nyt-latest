@@ -1,3 +1,15 @@
+**South Koreans try to process six hours of martial law.**\
+`By John Yoon`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law/korea-voices
+
+**Iran Releases Narges Mohammadi, Nobel Laureate, From Prison for 21 Days**\
+`The activist, whose health has deteriorated, had bone surgery last month.`\
+https://nytimes.com/2024/12/04/world/middleeast/iran-narges-mohammadi-prison-surgery.html
+
+**Adversity strikes: What I'm seeing as the Jets lose 7 of their last 10 games**\
+`Why are the Jets struggling after a record-setting start? What's happening and what can they do about it?`\
+https://nytimes.com/athletic/5963873/2024/12/04/winnipeg-jets-losses-nhl/
+
 **How much does the CFP committee punish losing a conference title game?**\
 `The 47 teams that lost power-conference title games in the CFP’s first decade dropped an average of two spots in the final CFP Top 25.`\
 https://nytimes.com/athletic/5968384/2024/12/04/cfp-rankings-selection-committee-conference-championship-games/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5783500/2024/12/04/julen-lopetegui-west-ham-united/
 **Djokovic will start 2025 season in Brisbane ahead of Australian Open**\
 `Djokovic's new coach Andy Murray is not planning to join him for the Australian Open warm-up, Murray's team said.`\
 https://nytimes.com/athletic/5968572/2024/12/04/novak-djokovic-2025-tennis-season-murray-coach/
-
-**Shai Gilgeous-Alexander is sneakily becoming an all-time NBA scorer**\
-`You know how Kevin Durant makes putting the ball in the basket feel like breathing? Shai Gilgeous-Alexander is of that ilk.`\
-https://nytimes.com/athletic/5967981/2024/12/04/shai-gilgeous-alexander-kevin-durant-thunder-nba/
-
-**Mandel's Mailbag: Another year, another Playoff mulligan for Alabama**\
-`Want to make sense of the CFP committee's logic? It's 'Bama, stupid!`\
-https://nytimes.com/athletic/5968722/2024/12/04/mandels-mailbag-alabama-miami-college-football-playoff/
-
-**Steve Kerr rips Brandin Podziemski for late mistakes in Denver: 'He can not be that guy'**\
-`Podziemski's growing pains were on full display as Golden State blew a late lead on the road against the Nuggets.`\
-https://nytimes.com/athletic/5968059/2024/12/04/brandin-podziemski-warriors-steve-kerr-criticism/
 
