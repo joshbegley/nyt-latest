@@ -1,3 +1,15 @@
+**Connecticut Sun hire Rachid Meziane as next head coach**\
+`Meziane joins the Sun after most recently coaching the Belgium national team and the French professional club Villeneuve d’Ascq.`\
+https://nytimes.com/athletic/5969266/2024/12/04/connecticut-sun-coaching-hire-rachid-meziane/
+
+**Israel’s Military Says Hostages Were Likely Killed by Hamas as Airstrike Hit**\
+`The six hostages, whose bodies were found in Gaza over the summer, were probably shot in February by their captors as an Israeli strike hit close to the tunnel where they were held, the military said.`\
+https://nytimes.com/2024/12/04/world/middleeast/israel-gaza-hamas-hostages.html
+
+**Elon Musk Is on a Lot of Billionaires’ Minds**\
+`At the DealBook summit, some billionaires and political leaders marveled at the tech mogul’s reach, access to the levers of power, and staggering wealth.`\
+https://nytimes.com/2024/12/04/business/dealbook/elon-musk-trump-sam-altman.html
+
 **Le Normand in contention for Atletico Madrid return after brain injury**\
 `Atletico Madrid coach Diego Simeone says Robin Le Normand is ready to return to action in Thursday&#8217;s Copa del Rey fixture two months on from suffering a traumatic brain injury.`\
 https://nytimes.com/athletic/5969489/2024/12/04/robin-le-normand-injury-return/
