@@ -1,3 +1,23 @@
+**This Year’s Hottest Holiday Movies**\
+`Want a holiday movie? Elisabeth Vincentelli of The New York Times has some favorites of 2024.`\
+https://nytimes.com/video/arts/television/100000009858352/this-years-hottest-holiday-movies.html
+
+**Bowden: 7 trades I'd like to see happen at MLB's Winter Meetings**\
+`There's nothing better than blockbuster trades and everything that comes with them. Here are seven deals Bowden would like to see in Dallas.`\
+https://nytimes.com/athletic/5968557/2024/12/04/mlb-trade-proposals-winter-meetings/
+
+**Canucks report cards: Grading every forward’s November performance**\
+`Amid injuries, absences and off-ice intrigue, the Canucks won games, accumulated points and kept pace in the Pacific Division last month.`\
+https://nytimes.com/athletic/5968382/2024/12/04/canucks-report-cards-forwards-november-2024/
+
+**Pete Hegseth’s Mother Defends Her Son’s Character on Fox Show**\
+`The mother of President-elect Donald J. Trump’s choice to be defense secretary appeared on the network where her son worked to say that he was a changed man.`\
+https://nytimes.com/2024/12/04/us/pete-hegseth-mother-fox-trump.html
+
+**Ken Griffin Says America Is Open for Business Following Elections**\
+`Mr. Griffin, who had previously derided Donald J. Trump as a “three-time loser,” said he voted for the president-elect.`\
+https://nytimes.com/2024/12/04/business/dealbook/ken-griffin-trump.html
+
 **How good is the FIU job? What's next for the Panthers after Mike MacIntyre's firing**\
 `FIU’s program was founded in 2002, first played FBS games three years later and has had only four winning seasons.`\
 https://nytimes.com/athletic/5968910/2024/12/04/fiu-football-job-profile-candidates/

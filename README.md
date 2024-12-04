@@ -1,3 +1,19 @@
+**Cowboys Today: Jerry Jones' logic on Rowdy and No. 0; Dak Prescott on Mike McCarthy**\
+`Why can't DeMarvion Overshown wear No. 0? It's no surprise that Dak Prescott feels Mike McCarthy deserves to keep coaching the Cowboys.`\
+https://nytimes.com/athletic/5968338/2024/12/04/cowboys-today-jerry-jones-number-zero-dak-mike-mccarthy/
+
+**These Lemon Bars Are a Little Luxe**\
+`My lemon bars with olive oil and sea salt are softer in texture and more bracing in flavor than the usual citrus treat.`\
+https://nytimes.com/2024/12/04/dining/these-lemon-bars-are-a-little-luxe.html
+
+**Most Rural Hospitals Have Closed Their Maternity Wards, Study Finds**\
+`Labor and delivery units are losing money and struggling to find staff, in rural areas and large cities alike.`\
+https://nytimes.com/2024/12/04/health/maternity-wards-closing.html
+
+**Google Introduces A.I. Agent That Aces 15-Day Weather Forecasts**\
+`GenCast, from the company’s DeepMind division, outperformed the world’s best predictions of deadly storms as well as everyday weather.`\
+https://nytimes.com/2024/12/04/science/google-ai-weather-forecast.html
+
 **This Year’s Hottest Holiday Movies**\
 `Want a holiday movie? Elisabeth Vincentelli of The New York Times has some favorites of 2024.`\
 https://nytimes.com/video/arts/television/100000009858352/this-years-hottest-holiday-movies.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/04/business/dealbook/ken-griffin-trump.html
 **How good is the FIU job? What's next for the Panthers after Mike MacIntyre's firing**\
 `FIU’s program was founded in 2002, first played FBS games three years later and has had only four winning seasons.`\
 https://nytimes.com/athletic/5968910/2024/12/04/fiu-football-job-profile-candidates/
-
-**UMass expected to hire Rutgers DC Harasymiak as head coach**\
-`The 38-year-old Harasymiak is a New Jersey native who played college football at Springfield in Massachusetts.`\
-https://nytimes.com/athletic/5969140/2024/12/04/umass-football-joe-harasmyiak-head-coach/
-
-**Rangers trade tiers: Who's untouchable, and who could be part of a shake-up**\
-`With the Rangers trying to pull out of a funk, a look at who is most likely to be included in a trade.`\
-https://nytimes.com/athletic/5969000/2024/12/04/rangers-trade-tiers/
-
-**FIFA agrees Club World Cup broadcast deal with DAZN**\
-`FIFA has agreed a deal with DAZN to broadcast next year’s Club World Cup in the United States.`\
-https://nytimes.com/athletic/5969129/2024/12/04/club-world-cup-tv-deal-fifa-dazn/
-
-**John Elway gets Topps baseball card, stars in ad with Larry David's 'George Steinbrenner'**\
-`Tom Brady served as the top non-prospect chase card in the 2023 Bowman Draft set.`\
-https://nytimes.com/athletic/5968926/2024/12/04/john-elway-larry-david-seinfeld-baseball-cards/
 
