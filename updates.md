@@ -1,3 +1,11 @@
+**Dutch GP to leave F1 calendar after 2026**\
+`Formula One has announced the Dutch Grand Prix at Zandvoort will drop off the calendar after its final running in 2026.`\
+https://nytimes.com/athletic/5968480/2024/12/04/dutch-grand-prix-f1/
+
+**'Sacked in the morning' chants for Lopetegui after West Ham hit 31 shots but lose again**\
+`Lopetegui says the only thing he's ‘worried’ about is preparing for the next game against Wolves. It's not certain he makes it that far`\
+https://nytimes.com/athletic/5966812/2024/12/04/sacked-chants-lopetegui-west-ham/
+
 **'Sacked in the morning' chants for Lopetegui after West Ham hit 31 shots but lose again**\
 `Lopetegui says the only thing he's "worried" about is preparing for the next game against Wolves. It's not certain he makes it that far`\
 https://nytimes.com/athletic/5966812/2024/12/04/sacked-chants-lopetegui-west-ham/
