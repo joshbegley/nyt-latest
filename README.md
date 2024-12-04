@@ -1,3 +1,11 @@
+**Ryan Day expects to continue at Ohio State, takes blame for Michigan upset**\
+`Ohio State coach Ryan Day said Wednesday that he has no plans to coach elsewhere, and he also broke down what went wrong vs. Michigan.`\
+https://nytimes.com/athletic/5969944/2024/12/04/ryan-day-ohio-state-future-playoff/
+
+**Ranking the free agent hitters the Giants might target based on player skills**\
+`If you're less concerned with the names of the free agents than the skills they'll bring to the lineup and defense, here's a cheat sheet.`\
+https://nytimes.com/athletic/5966950/2024/12/04/sf-giants-free-agent-shopping-list-position-players/
+
 **Powell Not Concerned About the Fed’s Independence Under Trump**\
 `Speaking at The New York Times DealBook Summit, the chair of the Federal Reserve, Jerome H. Powell, said there was strong bipartisan support on Capitol Hill for the central bank’s independence.`\
 https://nytimes.com/video/business/100000009859476/jerome-powell-trump-fed-dealbook.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5969966/2024/12/04/wild-joel-eriksson-ek-lower-body
 **Read Representative Jerrold Nadler’s Letter**\
 `Mr. Nadler told his Democratic colleagues that he planned to step down as the top Democrat on the House Judiciary Committee next term.`\
 https://nytimes.com/interactive/2024/12/04/us/jn-december-4-2024-letter.html
-
-**Chiesa plays and scores for Liverpool U21s as injury recovery continues**\
-`Federico Chiesa stepped up his return to full fitness by playing and scoring for Liverpool&#8217;s Under-21s on Wednesday night.`\
-https://nytimes.com/athletic/5969806/2024/12/04/federico-chiesa-injury-liverpool-under-21s/
-
-**Nadler to Relinquish Democrats’ Top Judiciary Post, Bowing to Calls for Change**\
-`Democrats’ longtime leader on the panel faced a challenge from Representative Jamie Raskin, and pressure from colleagues who wanted a younger, more strategic figure at the helm.`\
-https://nytimes.com/2024/12/04/us/politics/nadler-raskin-judiciary-committee.html
 
