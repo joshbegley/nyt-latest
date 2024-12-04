@@ -1,3 +1,11 @@
+**Coming Up This Morning: Ken Griffin, founder of Citadel; Sam Altman, co-founder of OpenAI; Serena Williams; and former President Bill Clinton**\
+`Who will be speaking at the DealBook Summit`\
+https://nytimes.com/2024/12/04/business/dealbook/summitpromo.html
+
+**'He affects every player around him': How the Chiefs defense revolves around Chris Jones**\
+`Jones has a pass-rushing grade of 90.8, the highest among NFL defensive tackles, according to Pro Football Focus.`\
+https://nytimes.com/athletic/5966101/2024/12/04/chris-jones-chiefs-defense/
+
 **How the Bears could make an unprecedented head-coaching hire: It starts with Bill Belichick**\
 `If the Bears want to do something different, they could hire the most coveted coordinator, hire their interim pick or trade for a coach.`\
 https://nytimes.com/athletic/5966886/2024/12/04/bears-coaching-search-bill-belichick/
