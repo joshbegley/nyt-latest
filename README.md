@@ -1,3 +1,7 @@
+**Crises and scandals have plagued President Yoon Suk Yeol’s time in office.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law-news/crises-and-scandals-have-plagued-president-yoon-suk-yeols-time-in-office
+
 **A 2020 decision protecting transgender workers is a major precedent.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/a-2020-decision-protecting-transgender-workers-is-a-major-precedent
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5968905/2024/12/04/penguins-marcus-pettersson-nhl-s
 **A Year Among My Fellow Banned Writers**\
 `Removing books from schools robs us of important opportunities to understand each other, and ourselves.`\
 https://nytimes.com/2024/12/04/special-series/sandra-cisneros-banned-books.html
-
-**Guardian Journalists Strike Over Planned Sale of Sister Publication**\
-`Workers have begun a 48-hour walkout, the first in 50 years for the outlet, over a proposal to sell The Observer to Tortoise Media, a digital media start-up.`\
-https://nytimes.com/2024/12/04/business/guardian-strike-observer.html
 
