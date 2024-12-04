@@ -1,3 +1,15 @@
+**Chiesa plays and scores for Liverpool U21s as injury recovery continues**\
+`Federico Chiesa stepped up his return to full fitness by playing and scoring for Liverpool&#8217;s Under-21s on Wednesday night.`\
+https://nytimes.com/athletic/5969806/2024/12/04/federico-chiesa-injury-liverpool-under-21s/
+
+**Nadler to Relinquish Top Judiciary Post, Bowing to Calls for Change**\
+`Democrats’ longtime leader on the panel faced a challenge from Representative Jamie Raskin, and pressure from colleagues who wanted a younger, more strategic figure at the helm.`\
+https://nytimes.com/2024/12/04/us/politics/nadler-raskin-judiciary-committee.html
+
+**Mary McGee, Motorcycle Racing Pioneer, Is Dead at 87**\
+`Her most remarkable achievement came in 1975, when she became the first person, man or woman, to complete the Baja 500 race solo.`\
+https://nytimes.com/2024/12/04/sports/autoracing/mary-mcgee-dead.html
+
 **Sweden announces roster for 4 Nations: Snubs, surprises and expectations**\
 `The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
 https://nytimes.com/athletic/5966365/2024/12/04/sweden-4-nations-face-off-roster/
