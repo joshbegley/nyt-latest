@@ -1,3 +1,7 @@
+**Pistons' NBA Cup experience was a 'great opportunity,' despite losing to the Bucks**\
+`The Pistons went 3-1 in Cup play and had their Vegas dreams crushed, but the experience provided Detroit with something to strive for.`\
+https://nytimes.com/athletic/5968225/2024/12/04/pistons-bucks-nba-cup-experience/
+
 **Dutch GP to leave F1 calendar after 2026**\
 `Formula One has announced the Dutch Grand Prix at Zandvoort will drop off the calendar after its final running in 2026.`\
 https://nytimes.com/athletic/5968480/2024/12/04/dutch-grand-prix-f1/
