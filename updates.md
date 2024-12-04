@@ -1,3 +1,11 @@
+**Adversity strikes: What I'm seeing as the Jets lose 7 of their last 10 games**\
+`Why are the Jets struggling after a record-setting start? What's happening and what can they do about it?`\
+https://nytimes.com/athletic/5963873/2024/12/04/winnipeg-jets-losses-nhl/
+
+**How much does the CFP committee punish losing a conference title game?**\
+`The 47 teams that lost power-conference title games in the CFP’s first decade dropped an average of two spots in the final CFP Top 25.`\
+https://nytimes.com/athletic/5968384/2024/12/04/cfp-rankings-selection-committee-conference-championship-games/
+
 **What is ‘heightened scrutiny,’ and why does it matter?**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-transgender-heightened-scrutiny
