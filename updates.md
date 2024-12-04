@@ -1,3 +1,7 @@
+**Martial Law Didn’t Silence South Korea’s Media. It Empowered Them.**\
+`Journalists criticized the president’s attempt to place the press under military control, hardened by years of challenges to press freedoms by the country’s political leaders.`\
+https://nytimes.com/2024/12/04/business/south-korea-news-media-martial-law.html
+
 **Pistons' NBA Cup experience was a 'great opportunity,' despite losing to the Bucks**\
 `The Pistons went 3-1 in Cup play and had their Vegas dreams crushed, but the experience provided Detroit with something to strive for.`\
 https://nytimes.com/athletic/5968225/2024/12/04/pistons-bucks-nba-cup-experience/
