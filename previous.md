@@ -14,9 +14,9 @@ https://nytimes.com/2024/12/04/climate/hawaiian-crows-alala.html
 `Double Olympic gold-medallist Tom Pidcock is to leave cycling team INEOS Grenadiers at the end of this season.`\
 https://nytimes.com/athletic/5969610/2024/12/04/tom-pidcock-ineos-grenadiers-exit/
 
-**Trump nominates Gail Slater to head Justice Department’s antitrust efforts.**\
-`T`\
-https://nytimes.com/live/2024/12/04/us/trump-news/trump-gail-slater-antitrust-justice-department
+**Trump to Nominate Gail Slater to Head Justice Department’s Antitrust Efforts**\
+`If confirmed as assistant attorney general for the antitrust division, she would inherit lawsuits to break up Google’s search monopoly and ad tech dominance, as well as a case accusing Apple of making it hard for consumers to switch software and hardware.`\
+https://nytimes.com/2024/12/04/us/politics/trump-gail-slater-antitrust-justice-department.html
 
 **The Last Time Alcohol Poisoned a Defense Nomination**\
 `Pete Hegseth is not the first.`\

@@ -1,3 +1,7 @@
+**Trump to Nominate Gail Slater to Head Justice Department’s Antitrust Efforts**\
+`If confirmed as assistant attorney general for the antitrust division, she would inherit lawsuits to break up Google’s search monopoly and ad tech dominance, as well as a case accusing Apple of making it hard for consumers to switch software and hardware.`\
+https://nytimes.com/2024/12/04/us/politics/trump-gail-slater-antitrust-justice-department.html
+
 **Bill Clinton Defends Joe Biden’s Decision to Pardon His Son Hunter**\
 `Speaking at The New York Times DealBook Summit, former President Bill Clinton argued that President Biden had reason to issue the pardon, but wished Mr. Biden had not repeatedly said he would not do so.`\
 https://nytimes.com/video/business/100000009859058/bill-clinton-biden-pardon-dealbook.html
