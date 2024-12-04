@@ -1,3 +1,7 @@
+**Jaguars place Lawrence on IR for concussion, likely ending QB's season**\
+`Lawrence's season is likely over after sustaining a concussion on a late hit from Texans linebacker Azeez Al-Shaair.`\
+https://nytimes.com/athletic/5970122/2024/12/04/jaguars-trevor-lawrence-concussion-injured-reserve/
+
 **The Briefing: Arsenal 2 Man Utd 0 - Coping with Gabriel absence, Yoro debut, corner**\
 `Arsenal overcame Manchester United on Wednesday night at the Emirates Stadium`\
 https://nytimes.com/athletic/5957343/2024/12/04/arsenal-manchester-united-results-report-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5970244/2024/12/04/bears-mailbag-questions-41/
 **Chief Executive of Insurance Giant Is Gunned Down Outside Midtown Hotel**\
 `Brian Thompson, the head of UnitedHealthcare, was the victim of what the police said was a targeted shooting. His killer shot him in the back, then walked coolly away.`\
 https://nytimes.com/2024/12/04/nyregion/unitedhealthcare-ceo-brian-thompson-shooting.html
-
-**Sooners QB carousel continues; starter Arnold announces intent to transfer**\
-`The announcement comes two days after Oklahoma poached Washington State OC Ben Arbuckle for the same role with the Sooners. `\
-https://nytimes.com/athletic/5970198/2024/12/04/oklahoma-sooners-quarterback-jackson-arnold-tranfer-portal/
 
