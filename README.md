@@ -1,3 +1,11 @@
+**Pete Hegseth’s Troubles at Work Raise Questions About Leadership**\
+`President-elect Donald J. Trump’s choice for defense secretary led two nonprofits into debt, and episodes of drinking continued into his days as a Fox News personality.`\
+https://nytimes.com/2024/12/04/us/politics/pete-hegseth-workplace.html
+
+**Jeff Bezos, a Past Trump Foe, Is Optimistic About a Second Term**\
+`The Amazon founder said he saw signs of a “calmer” Donald J. Trump on the eve of his return to the White House.`\
+https://nytimes.com/2024/12/04/business/dealbook/jeff-bezos-trump-amazon-washington-post.html
+
 **Matt Rhule on captains' handshake refusal with Iowa: ‘That’s not what we want to do’**\
 `Nebraska game captains declined to extend their hands before kickoff for a traditional handshake with Iowa players.`\
 https://nytimes.com/athletic/5970577/2024/12/04/nebraska-iowa-handshake-matt-rhule/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/science/richard-hamilton-dead.html
 **U.S. announces roster for 4 Nations: Snubs, surprises and expectations**\
 `The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
 https://nytimes.com/athletic/5966362/2024/12/04/united-states-4-nations-face-off-roster/
-
-**Could Dark Chocolate Reduce Your Risk of Diabetes?**\
-`A new study suggests that it might. We asked experts if that’s too good to be true.`\
-https://nytimes.com/2024/12/04/well/eat/dark-chocolate-diabetes-study.html
-
-**Gunman Shoots 2 Students at Rural California School, Officials Say**\
-`The gunman at the Feather River Adventist School in Oroville, Calif., later died of what appeared to have been a self-inflicted gunshot wound, the authorities said.`\
-https://nytimes.com/2024/12/04/us/school-shooting-oroville-california.html
 

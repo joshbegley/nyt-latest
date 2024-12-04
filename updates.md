@@ -1,3 +1,7 @@
+**Matt Rhule on captains' handshake refusal with Iowa: ‘That’s not what we want to do’**\
+`Nebraska game captains declined to extend their hands before kickoff for a traditional handshake with Iowa players.`\
+https://nytimes.com/athletic/5970577/2024/12/04/nebraska-iowa-handshake-matt-rhule/
+
 **Rohit Bal, Exuberant Star of Indian Fashion, Dies at 63**\
 `Known as “the bad boy of fashion,” he was among a wave of designers who created modern Indian couture by updating traditional garments.`\
 https://nytimes.com/2024/12/04/style/rohit-bal-dead.html
