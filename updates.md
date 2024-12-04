@@ -1,3 +1,11 @@
+**The Athletic FC: Mascherano's fine line with Messi, Man Utd scrap pro-LGBTQ+ plan**\
+`Today in TAFC: Why Mascherano is walking a fine line, Man Utd scrap a pro-LGBTQ+ plan and Yamal steals show with audacious assist.`\
+https://nytimes.com/athletic/5968616/2024/12/04/mascherano-messi-miami-man-utd-lgbtq/
+
+**Trump Transition Live Updates: Big Donors Are Courted With Inaugural Perks**\
+``\
+https://nytimes.com/live/2024/12/04/us/trump-news
+
 **MLS commissioner Garber to stay through 2027 season**\
 `Garber, 67, marked 25 years as MLS commissioner in August.`\
 https://nytimes.com/athletic/5968466/2024/12/04/mls-don-garber-contract/
