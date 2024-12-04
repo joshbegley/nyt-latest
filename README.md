@@ -1,3 +1,11 @@
+**G.M.’s Ailing China Business Will Deal It a $5 Billion Blow**\
+`General Motors and other foreign automakers are selling fewer cars and losing lots of money in China, where domestic electric and hybrid cars have taken off.`\
+https://nytimes.com/2024/12/04/business/general-motors-china-electric-vehicles.html
+
+**How South Korea Plunged Into Political Crisis**\
+`After President Yoon Suk Yeol declared martial law, protesters gathered in front of the National Assembly and lawmakers voted overwhelmingly to rescind the order.`\
+https://nytimes.com/video/world/asia/100000009857213/how-south-korea-plunged-into-political-crisis.html
+
 **The Pulse: The Playoff committee's imminent snubs**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5966702/2024/12/04/cfp-rankings-alabama-miami-ole-miss-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5967350/2024/12/04/college-basketball-surprises-dis
 **'He affects every player around him': How the Chiefs defense revolves around Chris Jones**\
 `Jones has a pass-rushing grade of 90.8, the highest among NFL defensive tackles, according to Pro Football Focus.`\
 https://nytimes.com/athletic/5966101/2024/12/04/chris-jones-chiefs-defense/
-
-**Why the Vikings' Jonathan Greenard has earned a place among the NFL's top pass rushers**\
-`"We're lucky to have him," defensive coordinator Brian Flores said of Greenard, who has 10 sacks and leads the NFL with 60 QB pressures.`\
-https://nytimes.com/athletic/5966932/2024/12/04/jonathan-greenard-vikings-nfl-pass-rusher/
-
-**New York Giants survey results: Fans have lost faith in Brian Daboll, Joe Schoen**\
-`Last year, Giants fans were nearly unanimous in wanting Schoen and Daboll back for another season. Things have certainly changed. `\
-https://nytimes.com/athletic/5964192/2024/12/04/giants-brian-daboll-joe-schoen-fans-survey/
 
