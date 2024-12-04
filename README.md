@@ -2,8 +2,8 @@
 `Speaking at The New York Times’s DealBook Summit, Eli Lilly’s chief executive and an obesity medicine specialist discussed the potential for wildly popular weight-loss drugs to be used to treat many other conditions.`\
 https://nytimes.com/video/business/100000009859991/obesity-glp-1-dealbook.html
 
-**Google C.E.O Comments On Landmark Monopoly Ruling**\
-`Andrew Ross Sorkin, the DealBook Editor-at-Large, asked the C.E.O of Google, Sundar Pichai, about the August antitrust ruling that labeled Google as an illegal monopoly.`\
+**Google C.E.O. Comments On Landmark Monopoly Ruling**\
+`Andrew Ross Sorkin, the DealBook editor-at-large, asked the C.E.O. of Google, Sundar Pichai, about the August antitrust ruling that labeled Google as an illegal monopoly.`\
 https://nytimes.com/video/business/dealbook/100000009859994/dealbook-google-monopoly.html
 
 **How Kash Patel, Trump’s F.B.I. Pick, Plans to Reshape the Bureau**\
