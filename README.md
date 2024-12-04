@@ -1,3 +1,7 @@
+**Bill Clinton Defends Joe Biden’s Decision to Pardon His Son Hunter**\
+`Speaking at The New York Times DealBook Summit, former President Bill Clinton argued that President Biden had reason to issue the pardon, but wished Mr. Biden had not repeatedly said he would not do so.`\
+https://nytimes.com/video/business/100000009859058/bill-clinton-biden-pardon-dealbook.html
+
 **The court’s decision could affect other trans rights cases, experts say.**\
 `By Amy Harmon`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/the-courts-decision-could-affect-other-trans-rights-cases-experts-say
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/us/trump-supreme-court-transgender-rights.html
 **Bill Clinton Defends the Hunter Biden Pardon, but Suggests It Was Mishandled**\
 `The former president, speaking at the DealBook Summit, suggested that he understood the move but that he wished President Biden “hadn’t said he wasn’t going to do it.”`\
 https://nytimes.com/2024/12/04/business/dealbook/bill-clinton-hunter-biden-pardon.html
-
-**FIFA exploring expanding Women's World Cup to 48 teams**\
-`FIFA is open to exploring expanding the Women&#8217;s World Cup to 48 teams — with some member associations lobbying for it to happen.`\
-https://nytimes.com/athletic/5968956/2024/12/04/womens-world-cup-48-teams/
 
