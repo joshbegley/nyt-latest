@@ -1,3 +1,11 @@
+**Justice Thomas is a reliable vote against transgender rights.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-thomas-is-a-reliable-vote-against-transgender-rights
+
+**Chase Strangio, the first openly transgender lawyer to argue before the Supreme Court, is speaking against the ban.**\
+`By Amy Harmon`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/chase-strangio-the-first-openly-transgender-lawyer-to-argue-before-the-supreme-court-is-speaking-against-the-ban
+
 **On the Border, Texas Shows Trump the Way**\
 `The incoming Trump administration’s new border czar said that Texas provided a “model” for border enforcement. State officials have offered to be a staging ground for mass deportations.`\
 https://nytimes.com/2024/12/04/us/texas-abbott-trump-border.html
