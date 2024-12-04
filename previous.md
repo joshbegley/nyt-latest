@@ -1,40 +1,40 @@
-**The briefing: Mallorca 1 Barcelona 5: Yamal's trivela, Torres' travails, and is this Raphinha's Barca?**\
-`The league leaders stopped the rot with a convincing second-half performance at Mallorca to regain some momentum in their title pursuit`\
-https://nytimes.com/athletic/5967611/2024/12/04/barcelona-raphinha-yamal-torres-jong-mallorca/
+**New Year’s Eve Fireworks in the Parks Are Canceled**\
+`Because of the drought, the traditional celebration in Prospect and Central Parks won’t happen. Prospect Park plans a light show with drones.`\
+https://nytimes.com/2024/12/04/nyregion/new-years-eve-fireworks-parks.html
 
-**Alyssa Naeher stays true to her stoic ways in final game, but U.S. teammates are full of emotion**\
-`Naeher savored her final game with the USWNT, a win against the Netherlands`\
-https://nytimes.com/athletic/5967823/2024/12/04/uswnt-alyssa-naeher-final-game/
+**A Brazilian Artist Movement That Uses Paintings to Save Indigenous Culture**\
+`After the Venice Biennale, the members of MAHKU are taking their social mission to Miami Art Basel.`\
+https://nytimes.com/2024/12/04/arts/design/brazil-art-mahku-miami-basel-indigenous.html
 
-**Martial Law Didn’t Silence South Korea’s Media. It Empowered Them.**\
-`Journalists criticized the president’s attempt to place the press under military control, hardened by years of challenges to press freedoms by the country’s political leaders.`\
-https://nytimes.com/2024/12/04/business/south-korea-news-media-martial-law.html
+**The Midwestern Roots, and Woods, of N.B.A. Courts**\
+`Connor Sports, in the tiny mill town of Amasa, Mich., is one of the leading maker of hardwood floors for top professional and college teams.`\
+https://nytimes.com/2024/12/04/business/nba-basketball-courts-manufacturing.html
 
-**Pistons' NBA Cup experience was a 'great opportunity,' despite losing to the Bucks**\
-`The Pistons went 3-1 in Cup play and had their Vegas dreams crushed, but the experience provided Detroit with something to strive for.`\
-https://nytimes.com/athletic/5968225/2024/12/04/pistons-bucks-nba-cup-experience/
+**We Wish You a Streaming Christmas**\
+`From “Our Little Secret” to “The Merry Gentlemen,” a roundup of several holiday movies to stream this season.`\
+https://nytimes.com/2024/12/04/movies/new-holiday-movies-streaming.html
 
-**Dutch GP to leave F1 calendar after 2026**\
-`Formula One has announced the Dutch Grand Prix at Zandvoort will drop off the calendar after its final running in 2026.`\
-https://nytimes.com/athletic/5968480/2024/12/04/dutch-grand-prix-f1/
+**Spy Dramas Are Getting in Touch With Their Feelings**\
+`‘The Agency’ and ‘Black Doves’ are part of a new crop of espionage series whose biggest battles take place within the hearts and minds of their agents.`\
+https://nytimes.com/2024/12/04/arts/television/the-agency-black-doves-the-day-of-the-jackal.html
 
-**Giving**\
-`To what causes and organizations would you most like to donate? Why?`\
-https://nytimes.com/2024/12/04/learning/giving.html
+**The Anarchist With Big Ideas and a Silver Tongue**\
+`A posthumous collection of essays by the anthropologist and activist David Graeber shows a bold thinker whose original arguments could strain credibility.`\
+https://nytimes.com/2024/12/04/books/review/david-graeber-the-ultimate-hidden-truth-of-the-world.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/04/crosswords/spelling-bee-forum.html
+**‘Let’s Make a Dance.’ At Nature Theater, the Body Rules.**\
+`In “No President,” Nature Theater of Oklahoma creates its version of a story ballet, one burpee at a time.`\
+https://nytimes.com/2024/12/04/arts/dance/lets-make-a-dance-at-nature-theater-the-body-rules.html
 
-**England spy promise in Ruby Mace as they seek long-term backup for Keira Walsh**\
-`The former Arsenal and Manchester City midfielder, now at Leicester City, made her senior debut in the 1-0 win over Switzerland in Sheffield`\
-https://nytimes.com/athletic/5967848/2024/12/04/england-mace-wiegman-walsh-leicester-switzerland/
+**5 Minutes That Will Make You Love Brazilian Jazz**\
+`It’s bossa nova and samba, but so much more — funky, soulful and esoteric. Listen to these songs chosen by Joyce Moreno, Marcos Valle, Amaro Freitas and more lovers of Brazilian rhythms.`\
+https://nytimes.com/2024/12/04/arts/music/brazil-jazz-music.html
 
-**Kevin Durant's latest sprain is not a huge deal for the Suns, but it keeps happening**\
-`Sprains are the only thing that's stopped Durant in months. And, in many cases, the Phoenix Suns as well.`\
-https://nytimes.com/athletic/5968327/2024/12/04/kevin-durant-another-sprain-suns-spurs/
+**What Will Trump Do for ‘Vice Voters’?**\
+`Moderation on pot and other vices appears to have been part of a calculated effort to turn out young men for the G.O.P. — but it may come with consequences.`\
+https://nytimes.com/2024/12/04/opinion/donald-trump-vice-voters.html
 
-**Late Night Razzes Trump Over His Upcoming Visit to Notre-Dame**\
-`“If all goes according to plan, he would like to buy it and turn it into a casino,” Jimmy Kimmel said of the Paris cathedral on Tuesday.`\
-https://nytimes.com/2024/12/04/arts/television/late-night-trump-notre-dame.html
+**Is the Awkward ‘Diversity Era’ of Hollywood Behind Us?**\
+`The past decade’s clumsiest attempts to cram new faces into old stories now feel like a moment, and a genre, of their own.`\
+https://nytimes.com/2024/12/04/magazine/diversity-era-movies.html
 
