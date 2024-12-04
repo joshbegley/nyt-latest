@@ -1,3 +1,11 @@
+**In signing Blake Snell, the Dodgers continue to operate in a different financial ballpark**\
+`Snell put on a Dodgers uniform for the first time and said: "It's just something you want to be a part of."`\
+https://nytimes.com/athletic/5968096/2024/12/03/dodgers-blake-snell-contract/
+
+**‘We’re playing with passion’: Timely plays make the difference on a so-so night for Bruins**\
+`The Bruins weren't at their best Tuesday night, but banking two winnable points against Detroit marked an improvement.`\
+https://nytimes.com/athletic/5968143/2024/12/03/bruins-red-wings-pastrnak-sacco-montgomery/
+
 **Nearly 300 Troops Stormed South Korean Legislature, Official Says**\
 `The National Assembly’s secretary general, Kim Min-ki, condemned what he called the “illegal, unconstitutional actions of the military.”`\
 https://nytimes.com/2024/12/03/world/asia/south-korea-national-assembly-troops.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5967826/2024/12/03/nba-cup-seeding-players-schedule
 **Is Ohio State a lock to host a Playoff game? What we learned from Tuesday's rankings**\
 `The committee chose Ohio State in a debate against Tennessee, which could determine the final first-round host on Sunday.`\
 https://nytimes.com/athletic/5967763/2024/12/03/ohio-state-college-football-playoff-rankings-home/
-
-**Ding dong, Miami’s dead, but did Ole Miss deserve the CFP rankings nod over Alabama?**\
-`It’s not Miami’s fault that it didn’t play Clemson and SMU this season, but it’s not to Miami’s credit either.`\
-https://nytimes.com/athletic/5967796/2024/12/03/college-football-playoff-miami-alabama-smu/
-
-**South Korean History Is Scarred by Martial Law**\
-`The president’s short-lived declaration of a military emergency late Tuesday was young South Koreans’ first exposure to a state of affairs their elders remember well.`\
-https://nytimes.com/2024/12/03/world/asia/martial-law-south-korea-history.html
 

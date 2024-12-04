@@ -1,3 +1,11 @@
+**In signing Blake Snell, the Dodgers continue to operate in a different financial ballpark**\
+`Snell put on a Dodgers uniform for the first time and said: "It's just something you want to be a part of."`\
+https://nytimes.com/athletic/5968096/2024/12/03/dodgers-blake-snell-contract/
+
+**‘We’re playing with passion’: Timely plays make the difference on a so-so night for Bruins**\
+`The Bruins weren't at their best Tuesday night, but banking two winnable points against Detroit marked an improvement.`\
+https://nytimes.com/athletic/5968143/2024/12/03/bruins-red-wings-pastrnak-sacco-montgomery/
+
 **Miami AD, ACC commish defend Canes: Committee 'really' put in Bama instead?**\
 `Dan Radakovich sounded off on the Canes' exclusion from the Playoff field this week. Is he right or wrong?`\
 https://nytimes.com/athletic/5968023/2024/12/03/miami-athletic-director-alabama-cfp-comments/
