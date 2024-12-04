@@ -1,3 +1,11 @@
+**FIFA Secures $1 Billion Broadcast Deal for Its Club World Cup**\
+`An agreement with the London-based streaming company DAZN came just a day before the draw for the inaugural event and after other networks balked at FIFA’s demands.`\
+https://nytimes.com/2024/12/04/business/fifa-dazn-club-world-cup.html
+
+**Trump’s Trade Adviser Pick, a China Hawk, Was Jailed Over Jan. 6.**\
+`Mr. Navarro was a thorn in the side of Wall Street and a loyalist in Mr. Trump’s first term.`\
+https://nytimes.com/2024/12/04/us/politics/peter-navarro-trump-trade.html
+
 **Serena Williams, from tennis star to ‘person who loves investing.’**\
 `By Remy Tumin`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/serena-williams-from-tennis-star-to-person-who-loves-investing
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/business/dealbook/sam-altman-openai-elon-musk.htm
 **Trump Picks Jared Isaacman, an Entrepreneur and Private Astronaut, to Lead NASA**\
 `Mr. Isaacman’s company Shift4 Payments made him a billionaire, and he has financed two trips to orbit on SpaceX vehicles, including a daring spacewalk in September.`\
 https://nytimes.com/2024/12/04/science/jared-isaacman-trump-nasa.html
-
-**Patriots to begin construction on new team facility to open in spring 2026**\
-`A new standalone facility for the Patriots will be built next to Gillette Stadium to house the day-to-day operations of the football team.`\
-https://nytimes.com/athletic/5969363/2024/12/04/patriots-gillette-stadium-team-facility/
-
-**Bans on medical care affect thousands of young trans people, one estimate says.**\
-`The estimate was included in court documents as the Supreme Court considers a challenge to a Tennessee law that prohibits some medical treatments for transgender minors.`\
-https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/bans-on-medical-care-affect-thousands-of-young-trans-people-one-estimate-says
 
