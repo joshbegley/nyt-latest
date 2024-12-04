@@ -1,3 +1,7 @@
+**Saudi Arabia in talks about place at men's Gold Cup in North America**\
+`Qatar, South Korea and Brazil are among the teams from outside North America to compete in the CONCACAF tournament.`\
+https://nytimes.com/athletic/5968617/2024/12/04/saudi-arabia-gold-cup-concacaf/
+
 **These 26 States Have Restricted Gender-Transition Treatments for Minors Since 2021.**\
 `Transgender minors and their parents, guardians and doctors have challenged bans in 18 states, with mixed results.`\
 https://nytimes.com/2024/12/04/us/gender-transition-bans-states.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/12/04/us/gender-transition-bans-states.html
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5968723/2024/12/04/eastern-conference-cavaliers-donovan-mitchell-lebron-james-lakers-nba-the-bounce/
 
-**C.E.O. of UnitedHealthcare Is Shot in Midtown Manhattan**\
+**C.E.O. of UnitedHealthcare Is Killed in Midtown Manhattan**\
 `The executive, Brian Thompson, was shot in the chest in what people briefed on the investigations said appeared to be a targeted attack.`\
 https://nytimes.com/2024/12/04/nyregion/shooting-midtown-nyc-united-healthcare-brian-thompson.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-co
 **Amazon Sued Over Slow Deliveries to Low-Income Areas**\
 `The District of Columbia’s attorney general said the company deliberately outsourced Prime member deliveries in certain ZIP codes.`\
 https://nytimes.com/2024/12/04/technology/amazon-prime-delivery-lawsuit.html
-
-**Live Updates: Supreme Court to Hear Major Trans Rights Case**\
-`Families and a doctor are challenging a Tennessee ban on some forms of medical care for transgender youth. Laws in more than 20 states could be affected.`\
-https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care
 
