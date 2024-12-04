@@ -1,3 +1,11 @@
+**Prince Harry Vows to Maintain Fight Against Murdoch Tabloids**\
+`The British royal says his legal battle against parts of the media is about “accountability” and defending legitimate journalism.`\
+https://nytimes.com/2024/12/04/business/dealbook/prince-harry-rupert-murdoch-tabloids.html
+
+**Mexican Authorities Seize 20 Million Doses of Fentanyl in Record Haul**\
+`The operation comes after President-elect Donald J. Trump threatened tariffs on Mexico if the country did not crack down on fentanyl.`\
+https://nytimes.com/2024/12/04/world/americas/mexico-fentanyl-seizure.html
+
 **Nebraska coach Matt Rhule on his program after national signing day**\
 `Rhule addresses Nebraska's signing day class, his staff and the transfer portal during a busy time for the Huskers. `\
 https://nytimes.com/athletic/5970100/2024/12/04/nebraska-football-national-signing-day/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5969841/2024/12/04/fantasy-football-brain-games-wee
 **Obesity is just the start for the new weight-loss drugs, says Eli Lilly’s chief.**\
 `He predicts as many as 20 percent of Americans ma`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/obesity-is-just-the-start-for-the-new-weight-loss-drugs-says-eli-lillys-chief
-
-**Alex Cooper Said Her Team Spoke With Trump’s About an Interview**\
-`Alex Cooper, the host of “Call Her Daddy” and founder of the Unwell Network, said her team had a Zoom call that she did not attend with Donald Trump’s campaign about a potential interview.`\
-https://nytimes.com/video/business/dealbook/100000009859494/dealbook-alex-cooper-media-podcasts.html
-
-**The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca's rotating and some hair-pulling**\
-`Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southampton`\
-https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurella-nkunku-madueke/
 

@@ -1,3 +1,15 @@
+**The Briefing: Arsenal 2 Man Utd 0 - Coping with Gabriel absence, Yoro debut, corner**\
+`Arsenal overcame Manchester United on Wednesday night at the Emirates Stadium`\
+https://nytimes.com/athletic/5957343/2024/12/04/arsenal-manchester-united-results-report-analysis/
+
+**Trump Has ‘Lost Faith’ in N.R.A., Says Gun Group Official**\
+`In a new letter, an N.R.A. vice president said the troubled group needed to rebuild trust with Donald J. Trump and his inner circle.`\
+https://nytimes.com/2024/12/04/us/politics/donald-trump-national-rifle-association.html
+
+**Brian Thompson, Health Insurance Executive, Dies at 50**\
+`He was “a truly extraordinary person who touched the lives of countless people,” the chief executive of UnitedHealth Group said.`\
+https://nytimes.com/2024/12/04/nyregion/brian-thompson-dead.html
+
 **Prince Harry Vows to Maintain Fight Against Murdoch Tabloids**\
 `The British royal says his legal battle against parts of the media is about “accountability” and defending legitimate journalism.`\
 https://nytimes.com/2024/12/04/business/dealbook/prince-harry-rupert-murdoch-tabloids.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/04/nyregion/unitedhealthcare-ceo-brian-thompson-shoo
 **Sooners QB carousel continues; starter Arnold announces intent to transfer**\
 `The announcement comes two days after Oklahoma poached Washington State OC Ben Arbuckle for the same role with the Sooners. `\
 https://nytimes.com/athletic/5970198/2024/12/04/oklahoma-sooners-quarterback-jackson-arnold-tranfer-portal/
-
-**The Briefing: Newcastle 3-3 Liverpool - Kelleher's late error costly as Isak and Co shine again**\
-`Newcastle and Liverpool served up a 3-3 draw in keeping with their history of thrilling Premier League matches`\
-https://nytimes.com/athletic/5957341/2024/12/04/newcastle-3-liverpool-3-kelleher-isak/
-
-**Fantasy football brain games: Calling on Caleb Williams, fading Rachaad White in Week 14**\
-`Renee Miller explains her decision-making process for some interesting lineup scenarios in Week 14 — like Geno Smith vs. Caleb Williams.`\
-https://nytimes.com/athletic/5969841/2024/12/04/fantasy-football-brain-games-week-14-lineup-decisions/
-
-**Obesity is just the start for the new weight-loss drugs, says Eli Lilly’s chief.**\
-`He predicts as many as 20 percent of Americans ma`\
-https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/obesity-is-just-the-start-for-the-new-weight-loss-drugs-says-eli-lillys-chief
 

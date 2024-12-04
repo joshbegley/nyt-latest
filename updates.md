@@ -1,3 +1,11 @@
+**Prince Harry Vows to Maintain Fight Against Murdoch Tabloids**\
+`The British royal says his legal battle against parts of the media is about “accountability” and defending legitimate journalism.`\
+https://nytimes.com/2024/12/04/business/dealbook/prince-harry-rupert-murdoch-tabloids.html
+
+**Mexican Authorities Seize 20 Million Doses of Fentanyl in Record Haul**\
+`The operation comes after President-elect Donald J. Trump threatened tariffs on Mexico if the country did not crack down on fentanyl.`\
+https://nytimes.com/2024/12/04/world/americas/mexico-fentanyl-seizure.html
+
 **Nebraska coach Matt Rhule on his program after national signing day**\
 `Rhule addresses Nebraska's signing day class, his staff and the transfer portal during a busy time for the Huskers. `\
 https://nytimes.com/athletic/5970100/2024/12/04/nebraska-football-national-signing-day/
