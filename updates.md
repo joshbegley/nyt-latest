@@ -1,3 +1,11 @@
+**Ancelotti backs Mbappe after latest penalty miss: 'He can do better'**\
+`Kylian Mbappe “can do better” manager Carlo Ancelotti insisted after the Real Madrid forward missed another penalty during his side’s loss to Athletic Club.`\
+https://nytimes.com/athletic/5970438/2024/12/04/mbappe-penalty-real-madrid-ancelotti/
+
+**Prince Harry Says Murdoch Tabloid Lawsuit Is About Accountability**\
+`Prince Harry, the Duke of Sussex, vowed to continue his legal battle against Rupert Murdoch’s British tabloids for hacking his phone, in part because he believed that the misconduct of some journalists was calling into question trust in all.`\
+https://nytimes.com/video/business/dealbook/100000009859921/prince-harry-dealbook-murdoch.html
+
 **Finland's game plan for 4 Nations glory: 'You have to be ready right away'**\
 `Why coach Antti Pennanen and GM Jere Lehtinen think they've built a team that will compete — despite the tourney's smallest player pool.`\
 https://nytimes.com/athletic/5970303/2024/12/04/finland-4-nations-game-plan/
