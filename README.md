@@ -1,3 +1,11 @@
+**Rockets' Tari Eason held back from running after heckling fan in stands after loss**\
+`The incident with Eason came not long after Rockets coach Ime Udoka had been ejected from the game.`\
+https://nytimes.com/athletic/5968337/2024/12/04/rockets-tari-eason-fan-incident/
+
+**Who Steps In if South Korea’s President Is Forced Out?**\
+`Prime Minister Han Duck-soo would take over if President Yoon Suk Yeol steps down or is impeached.`\
+https://nytimes.com/2024/12/04/world/asia/south-korea-yoon-impeachment-successor.html
+
 **Kaprizov does it again in OT during one intense hockey game: 3 takeaways vs. Canucks**\
 `Kaprizov capped a tightly contested, physical game with an overlong OT shift, a mishap and a game winner.`\
 https://nytimes.com/athletic/5968222/2024/12/04/wild-kaprizov-overtime-canucks-gustavsson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5962699/2024/12/04/leeds-loss-defeat-championship-p
 **Gordon, the search for top form and the aftermath of an 'unsettling' summer**\
 `A deep dive into Newcastle and England winger Gordon's drop in form this season - what's to blame?`\
 https://nytimes.com/athletic/5954651/2024/12/04/whats-wrong-with-anthony-gordon-form-newcastle-contract-liverpool-interest/
-
-**Angeball is relentlessly physical. Is it compatible with Spurs playing twice a week?**\
-`When Spurs run more, they win more. But it poses the question of whether they can keep doing that with their injuries and schedule`\
-https://nytimes.com/athletic/5960341/2024/12/04/angeball-playing-twice-a-week/
-
-**Fofana’s injury presents a problem for Chelsea. Who will Maresca turn to?**\
-`Maresca’s comments after the Villa win made it clear he considers Fofana to be an upgrade on all three centre-back alternatives in his squad`\
-https://nytimes.com/athletic/5965565/2024/12/04/chelsea-wesley-fofana-injury-analysis/
 
