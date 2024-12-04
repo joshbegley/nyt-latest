@@ -1,3 +1,7 @@
+**The Last Time Alcohol Poisoned a Defense Nomination**\
+`Pete Hegseth is not the first.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/hegseth-alcohol-defense-tower
+
 **Trump Replaces His White House Counsel Before He Even Started the Job**\
 `The shake-up is a sign that the new administration may see the same chaos and infighting that so often plagued President-elect Donald J. Trump’s first term in office.`\
 https://nytimes.com/2024/12/04/us/politics/trump-replaces-white-house-counsel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/business/dealbook/elon-musk-trump-sam-altman.html
 **Le Normand in contention for Atletico Madrid return after brain injury**\
 `Atletico Madrid coach Diego Simeone says Robin Le Normand is ready to return to action in Thursday&#8217;s Copa del Rey fixture two months on from suffering a traumatic brain injury.`\
 https://nytimes.com/athletic/5969489/2024/12/04/robin-le-normand-injury-return/
-
-**How Many Clubs Does One Jet Set Need?**\
-`Jeff Klein, the hotelier who turned Tower Bar into a Los Angeles institution, has opened a $40 million private club at the beach.`\
-https://nytimes.com/2024/12/04/style/jeff-klein-san-vicente-santa-monica-club.html
 
