@@ -14,7 +14,7 @@ https://nytimes.com/2024/12/04/nyregion/rockefeller-christmas-tree-lighting-midt
 `Under indictment and facing re-election, Mr. Adams has turned his attention to the city’s affordability crisis.`\
 https://nytimes.com/2024/12/04/nyregion/adams-income-tax-cut-nyc.html
 
-**Sweden announces roster for 4 Nations**\
+**Sweden announces roster for 4 Nations: Snubs, surprises and expectations**\
 `The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
 https://nytimes.com/athletic/5966365/2024/12/04/sweden-4-nations-face-off-roster/
 
