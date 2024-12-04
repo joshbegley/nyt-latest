@@ -1,3 +1,23 @@
+**Chanel’s Answer to the China Question**\
+`The house goes all out for its V.I.C.’s.`\
+https://nytimes.com/2024/12/04/style/chanel-china.html
+
+**DealBook has covered Wall Street and the world for nearly a quarter century.**\
+`Started in 2001 by Andrew Ross Sorkin, the daily newsletter has generated scoops and in-depth features on the power brokers in Washington, on Wall Street and beyond.`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/dealbook-has-covered-wall-street-and-the-world-for-nearly-a-quarter-century
+
+**What is ‘heightened scrutiny,’ and why does it matter?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-transgender-heightened-scrutiny
+
+**Amazon Sued Over Slow Deliveries to Low-Income Areas**\
+`The District of Columbia’s attorney general said the company deliberately outsourced Prime member deliveries in certain ZIP codes.`\
+https://nytimes.com/2024/12/04/technology/amazon-prime-delivery-lawsuit.html
+
+**Live Updates: Supreme Court to Hear Major Trans Rights Case**\
+`Families and a doctor are challenging a Tennessee ban on some forms of medical care for transgender youth. Laws in more than 20 states could be affected.`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care
+
 **Adversity strikes: What I'm seeing as the Jets lose 7 of their last 10 games**\
 `Why are the Jets struggling after a record-setting start? What's happening and what can they do about it?`\
 https://nytimes.com/athletic/5963873/2024/12/04/winnipeg-jets-losses-nhl/

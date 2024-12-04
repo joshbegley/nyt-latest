@@ -1,3 +1,23 @@
+**Chanel’s Answer to the China Question**\
+`The house goes all out for its V.I.C.’s.`\
+https://nytimes.com/2024/12/04/style/chanel-china.html
+
+**DealBook has covered Wall Street and the world for nearly a quarter century.**\
+`Started in 2001 by Andrew Ross Sorkin, the daily newsletter has generated scoops and in-depth features on the power brokers in Washington, on Wall Street and beyond.`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/dealbook-has-covered-wall-street-and-the-world-for-nearly-a-quarter-century
+
+**What is ‘heightened scrutiny,’ and why does it matter?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-transgender-heightened-scrutiny
+
+**Amazon Sued Over Slow Deliveries to Low-Income Areas**\
+`The District of Columbia’s attorney general said the company deliberately outsourced Prime member deliveries in certain ZIP codes.`\
+https://nytimes.com/2024/12/04/technology/amazon-prime-delivery-lawsuit.html
+
+**Live Updates: Supreme Court to Hear Major Trans Rights Case**\
+`Families and a doctor are challenging a Tennessee ban on some forms of medical care for transgender youth. Laws in more than 20 states could be affected.`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care
+
 **Ball State hires Mike Uremovich from Butler as coach**\
 `Uremovich went 23-11 in three seasons at Butler in the FCS and replaces Mike Neu, who Ball State fired after nine seasons.`\
 https://nytimes.com/athletic/5968863/2024/12/04/mike-uremovich-ball-state-football-coach/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/heres-what-to-
 **Last Year’s DealBook Summit Was Headlined by a Memorable Elon Musk Discussion**\
 `Mr. Musk caught even Andrew Ross Sorkin off guard, as the Tesla and SpaceX leader accused advertisers that had pulled their money from X of trying to “blackmail” him.`\
 https://nytimes.com/2024/12/04/business/dealbook/elon-musk-dealbook-summit-2023.html
-
-**Handing Out Grants, Zelensky Tries to Win Over War-Weary Ukrainians**\
-`Citizens will be entitled to a $24 one-off payment this winter, President Volodymyr Zelensky announced, in a move apparently intended to soften the blow of a tax rise to help fund the war effort.`\
-https://nytimes.com/2024/12/04/world/europe/ukraine-war-grants-zelensky.html
-
-**South Koreans try to process six hours of martial law.**\
-`By John Yoon`\
-https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law-news/korea-voices
-
-**Iran Releases Narges Mohammadi, Nobel Laureate, From Prison for 21 Days**\
-`The activist, whose health has deteriorated, had bone surgery last month.`\
-https://nytimes.com/2024/12/04/world/middleeast/iran-narges-mohammadi-prison-surgery.html
-
-**Adversity strikes: What I'm seeing as the Jets lose 7 of their last 10 games**\
-`Why are the Jets struggling after a record-setting start? What's happening and what can they do about it?`\
-https://nytimes.com/athletic/5963873/2024/12/04/winnipeg-jets-losses-nhl/
-
-**How much does the CFP committee punish losing a conference title game?**\
-`The 47 teams that lost power-conference title games in the CFP’s first decade dropped an average of two spots in the final CFP Top 25.`\
-https://nytimes.com/athletic/5968384/2024/12/04/cfp-rankings-selection-committee-conference-championship-games/
 
