@@ -1,3 +1,7 @@
+**Read Representative Jerrold Nadler’s Letter**\
+`Mr. Nadler told his Democratic colleagues that he plans to step down as the top Democrat on the House Judiciary Committee next term.`\
+https://nytimes.com/interactive/2024/12/04/us/jn-december-4-2024-letter.html
+
 **Chiesa plays and scores for Liverpool U21s as injury recovery continues**\
 `Federico Chiesa stepped up his return to full fitness by playing and scoring for Liverpool&#8217;s Under-21s on Wednesday night.`\
 https://nytimes.com/athletic/5969806/2024/12/04/federico-chiesa-injury-liverpool-under-21s/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5969688/2024/12/04/week-14-playoff-clinch-berth/
 **Mario Cristobal makes case for Miami to be reconsidered in CFP rankings**\
 `As it stands now, Alabama would be the last at-large team to make the cut and Miami the first one out.`\
 https://nytimes.com/athletic/5969819/2024/12/04/miami-mario-cristobal-college-football-playoff/
-
-**Bettor beware: Why the Eagles' reliance on Saquon Barkley makes them a risky postseason bet**\
-`Michael Salfino looks at how past running backs with historic seasons fared in the postseason, and he sees a unfavorable trend for Philly.`\
-https://nytimes.com/athletic/5969359/2024/12/04/betting-saquon-barkley-eagles-postseason-super-bowl/
 
