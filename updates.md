@@ -1,3 +1,7 @@
+**Notre Dame made a signing day splash in California to change perception of its class**\
+`The Irish beat out perceived favorite USC and former finalist Texas for Faraimo.`\
+https://nytimes.com/athletic/5970091/2024/12/04/notre-dame-recruiting-class-2025-madden-faraimo/
+
 **Ancelotti backs Mbappe after latest penalty miss: 'He can do better'**\
 `Kylian Mbappe “can do better” manager Carlo Ancelotti insisted after the Real Madrid forward missed another penalty during his side’s loss to Athletic Club.`\
 https://nytimes.com/athletic/5970438/2024/12/04/mbappe-penalty-real-madrid-ancelotti/

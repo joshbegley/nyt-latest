@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5970303/2024/12/04/finland-4-nations-game-plan/
 https://nytimes.com/2024/12/04/briefing/new-york-shooting-supreme-court-transgender-law.html
 
 **Notre Dame made a signing day splash in California to change perception of its class**\
-`How big is Notre Dame landing Madden Faraimo on Wednesday? Eight thoughts on Marcus Freeman's 2025 recruiting class and what's next.`\
+`The Irish beat out perceived favorite USC and former finalist Texas for Faraimo.`\
 https://nytimes.com/athletic/5970091/2024/12/04/notre-dame-recruiting-class-2025-madden-faraimo/
 
 **O'Neil vows to fight on at Wolves after heavy Everton defeat**\
