@@ -1,3 +1,7 @@
+**Analysing the numbers behind Manchester City’s shocking defensive decline**\
+`A combination of an inefficient high press, a high line, and difficulty defending crosses have all played a part in City's slump`\
+https://nytimes.com/athletic/5966073/2024/12/04/manchester-city-decline-data-analysis-premier-league/
+
 **Here are the latest developments.**\
 `By Victoria Kim, Minho Kim, John Yoon and Choe Sang-Hun`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5885265/2024/12/04/how-germany-preserves-its-proud-
 **How Brentford lost their best player and became more fun**\
 `Brentford's evolution was delayed last season, but with Toney gone, it's underway again`\
 https://nytimes.com/athletic/5965996/2024/12/04/brentford-lose-ivan-toney-improve-tactics/
-
-**Week 14 fantasy football rankings: Sleepers, projections, starts, sits | Caleb Williams, Jordan Addison and more**\
-`Can Caleb Williams lead you to the playoffs? He's a sleeper for Jake Ciely, who breaks down the matchups and ranks the players for Week 14.`\
-https://nytimes.com/athletic/5967386/2024/12/04/week-14-fantasy-football-rankings-sleepers-projections-starts-sits/
 
