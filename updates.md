@@ -1,3 +1,7 @@
+**West Ham board discussing Lopetegui's future after run of poor results**\
+`West Ham United&#8217;s board are discussing the future of head coach Julen Lopetegui.`\
+https://nytimes.com/athletic/5783500/2024/12/04/julen-lopetegui-west-ham-united/
+
 **Djokovic will start 2025 season in Brisbane ahead of Australian Open**\
 `Djokovic's new coach Andy Murray is not planning to join him for the Australian Open warm-up, Murray's team said.`\
 https://nytimes.com/athletic/5968572/2024/12/04/novak-djokovic-2025-tennis-season-murray-coach/
