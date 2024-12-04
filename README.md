@@ -24,7 +24,7 @@ https://nytimes.com/athletic/5968723/2024/12/04/eastern-conference-cavaliers-don
 
 **C.E.O. of UnitedHealthcare Is Fatally Shot in Midtown Manhattan**\
 `The executive, Brian Thompson, was shot in the chest in what people briefed on the investigations said appeared to be a targeted attack.`\
-https://nytimes.com/2024/12/04/nyregion/shooting-midtown-nyc-united-healthcare-brian-thompson.html
+https://nytimes.com/live/2024/12/04/nyregion/brian-thompson-uhc-ceo-shot/shooting-midtown-nyc-united-healthcare-brian-thompson
 
 **Jeff Bezos, Serena Williams and Sam Altman are among the guests at this year’s DealBook Summit.**\
 `By Sarah Kessler`\

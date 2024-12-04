@@ -1,3 +1,7 @@
+**How the Cavaliers offense is tearing up the NBA, even if it doesn't make sense**\
+`The Cavs didn't understand what new coach Keny Atkinson had in store for them when he arrived, but now they have the NBA's best record.`\
+https://nytimes.com/athletic/5967355/2024/12/04/cavs-offense-nba-best-record/
+
 **C.E.O. of UnitedHealthcare Is Fatally Shot in Midtown Manhattan**\
 `The executive, Brian Thompson, was shot in the chest in what people briefed on the investigations said appeared to be a targeted attack.`\
 https://nytimes.com/2024/12/04/nyregion/shooting-midtown-nyc-united-healthcare-brian-thompson.html
