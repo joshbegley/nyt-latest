@@ -1,3 +1,15 @@
+**Finland's game plan for 4 Nations glory: 'You have to be ready right away'**\
+`Why coach Antti Pennanen and GM Jere Lehtinen think they've built a team that will compete — despite the tourney's smallest player pool.`\
+https://nytimes.com/athletic/5970303/2024/12/04/finland-4-nations-game-plan/
+
+**A Health Insurance C.E.O. Was Gunned Down in Manhattan**\
+`Also, the Supreme Court appeared inclined to uphold a Tennessee law on trans care. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/12/04/briefing/new-york-shooting-supreme-court-transgender-law.html
+
+**Notre Dame made a signing day splash in California to change perception of its class**\
+`How big is Notre Dame landing Madden Faraimo on Wednesday? Eight thoughts on Marcus Freeman's 2025 recruiting class and what's next.`\
+https://nytimes.com/athletic/5970091/2024/12/04/notre-dame-recruiting-class-2025-madden-faraimo/
+
 **O'Neil vows to fight on at Wolves after heavy Everton defeat**\
 `Beleaguered Wolves boss Gary O’Neil pledged to fight on after a 4-0 thrashing at Everton that left travelling fans demanding his sacking.`\
 https://nytimes.com/athletic/5970312/2024/12/04/wolves-everton-gary-oneil/
