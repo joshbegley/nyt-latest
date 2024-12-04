@@ -1,3 +1,23 @@
+**Trump Replaces His White House Counsel Before He Even Started the Job**\
+`The shake-up is a sign that the new administration may see the same chaos and infighting that so often plagued President-elect Donald J. Trump’s first term in office.`\
+https://nytimes.com/2024/12/04/us/politics/trump-replaces-white-house-counsel.html
+
+**MLS refs claim in-game interference means they are 'no longer in control'**\
+`It is claimed that interference from PRO has become a habitual problem in MLS and NWSL games`\
+https://nytimes.com/athletic/5965237/2024/12/04/mls-refs-claim-in-game-interference-means-they-are-no-longer-in-control/
+
+**What Happens to the Case if the Trump Administration Switches Sides?**\
+`Since the federal government brought the challenge, the change in administration could affect its future before the Supreme Court.`\
+https://nytimes.com/2024/12/04/us/trump-supreme-court-transgender-rights.html
+
+**Bill Clinton Defends the Hunter Biden Pardon, but Suggests It Was Mishandled**\
+`The former president, speaking at the DealBook Summit, suggested that he understood the move but that he wished President Biden “hadn’t said he wasn’t going to do it.”`\
+https://nytimes.com/2024/12/04/business/dealbook/bill-clinton-hunter-biden-pardon.html
+
+**FIFA exploring expanding Women's World Cup to 48 teams**\
+`FIFA is open to exploring expanding the Women&#8217;s World Cup to 48 teams — with some member associations lobbying for it to happen.`\
+https://nytimes.com/athletic/5968956/2024/12/04/womens-world-cup-48-teams/
+
 **Connecticut Sun hire Rachid Meziane as next head coach**\
 `Meziane joins the Sun after most recently coaching the Belgium national team and the French professional club Villeneuve d’Ascq.`\
 https://nytimes.com/athletic/5969266/2024/12/04/connecticut-sun-coaching-hire-rachid-meziane/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5969489/2024/12/04/robin-le-normand-injury-return/
 **How Many Clubs Does One Jet Set Need?**\
 `Jeff Klein, the hotelier who turned Tower Bar into a Los Angeles institution, has opened a $40 million private club at the beach.`\
 https://nytimes.com/2024/12/04/style/jeff-klein-san-vicente-santa-monica-club.html
-
-**To Save Refugees and Migrants Is to Save Ourselves**\
-`The psychology of fear, blame and scarcity keeps us from solving the crisis of displaced people.`\
-https://nytimes.com/2024/12/04/special-series/refugees-migrants-crisis.html
-
-**Trump Picks Paul Atkins to Run the S.E.C.**\
-`Mr. Atkins, a pro-business conservative, would likely take a lighter regulatory approach than the current chair of the Securities and Exchange Commission.`\
-https://nytimes.com/2024/12/04/business/trump-sec-paul-atkins.html
-
-**Justice Gorsuch, who wrote a 2020 opinion on transgender rights, was silent on Wednesday.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-gorsuch-who-wrote-a-2020-opinion-on-transgender-rights-was-silent-on-wednesday
-
-**UCF has made inquiries about USC coach Lincoln Riley**\
-`Riliey is three seasons into a reported 10-year contract that pays him about $10 million per year. `\
-https://nytimes.com/athletic/5969395/2024/12/04/lincoln-riley-ucf-usc-coaching/
-
-**South Korea’s Turmoil Is the Latest Threat to a Three-Way Pacific Alliance**\
-`Donald J. Trump had been seen as the main risk factor for the partnership between Tokyo, Seoul and Washington. Then came martial law in South Korea.`\
-https://nytimes.com/2024/12/04/world/asia/south-korea-martial-law-japan.html
 
