@@ -1,3 +1,19 @@
+**DealBook Summit Live Updates: Business and Global Leaders Set for Day of Discussions**\
+`Andrew Ross Sorkin will sit down with nearly a dozen leading figures, including Sam Altman, Jerome Powell, Serena Williams, Jeff Bezos, Bill Clinton and Sundar Pichai.`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news
+
+**Here’s what to expect at the 2024 DealBook Summit.**\
+`By Lauren Hirsch`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/heres-what-to-expect-at-the-2024-dealbook-summit
+
+**Last Year’s DealBook Summit Was Headlined by a Memorable Elon Musk Discussion**\
+`Mr. Musk caught even Andrew Ross Sorkin off guard, as the Tesla and SpaceX leader accused advertisers that had pulled their money from X of trying to “blackmail” him.`\
+https://nytimes.com/2024/12/04/business/dealbook/elon-musk-dealbook-summit-2023.html
+
+**Handing Out Grants, Zelensky Tries to Win Over War-Weary Ukrainians**\
+`Citizens will be entitled to a $24 one-off payment this winter, President Volodymyr Zelensky announced, in a move apparently intended to soften the blow of a tax rise to help fund the war effort.`\
+https://nytimes.com/2024/12/04/world/europe/ukraine-war-grants-zelensky.html
+
 **South Koreans try to process six hours of martial law.**\
 `By John Yoon`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law/korea-voices
