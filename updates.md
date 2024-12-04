@@ -1,3 +1,11 @@
+**Miami AD defends Canes: Committee 'really' put in Bama instead?**\
+`Dan Radakovich sounded off on the Canes' exclusion from the Playoff field this week. Is he right or wrong?`\
+https://nytimes.com/athletic/5968023/2024/12/03/miami-athletic-director-alabama-cfp-comments/
+
+**What to know about Jesper Wallstedt's Iowa reset, David Jiricek's Wild debut and injuries**\
+`When Jiricek might make his debut, Wallstedt's thoughts on his development timeline, injury updates on Jonas Brodin and more.`\
+https://nytimes.com/athletic/5967925/2024/12/03/wild-injuries-david-jiricek-jesper-wallstedt/
+
 **Tickled Pink**\
 `Daniel Raymon’s puzzle earns top marks.`\
 https://nytimes.com/2024/12/03/crosswords/daily-puzzle-2024-12-04.html
