@@ -1,3 +1,7 @@
+**Justices’ past comments on bathrooms, sports and dress codes offer hints about where they stand on transgender issues.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-comments-transgendcer
+
 **Penguins Today: A Pettersson dilemma and a convergence of Pittsburgh’s Stanley Cup GMs**\
 `It’s time to talk about Marcus Pettersson. Plus: Another Penguins hockey ops hire and a homecoming for Pittsburgh's management greats.`\
 https://nytimes.com/athletic/5968905/2024/12/04/penguins-marcus-pettersson-nhl-stanley-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5967355/2024/12/04/cavs-offense-nba-best-record/
 **How the Impeachment of South Korea’s President Could Unfold**\
 `A detailed look at each stage of the impeachment process, and what is to come for President Yoon.`\
 https://nytimes.com/interactive/2024/12/04/world/asia/south-korea-impeachment-vote-president-yoon.html
-
-**Giannis, Damian Lillard lock in as Bucks breeze past Pistons and into NBA Cup knockout rounds**\
-`All season, Bucks players have talked about putting together a complete 48-minute performance. On Tuesday in Detroit, they got one.`\
-https://nytimes.com/athletic/5968194/2024/12/04/giannis-antetokounmpo-damian-lliard-bucks-pistons-nba-cup/
 
