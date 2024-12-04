@@ -1,3 +1,7 @@
+**Bans on medical care affect thousands of young trans people, one estimate says.**\
+`The estimate was included in court documents as the Supreme Court considers a challenge to a Tennessee law that prohibits some medical treatments for transgender minors.`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/bans-on-medical-care-affect-thousands-of-young-trans-people-one-estimate-says
+
 **What I'm seeing from the Islanders: Loser points, Bo Horvat's slump, injury timelines**\
 `Tuesday&#8217;s 2-1 overtime loss in Montreal left the New York Islanders at 9-10-7 and 5-5-5 on the road.`\
 https://nytimes.com/athletic/5968081/2024/12/04/islanders-loser-points-horvat-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/12/04/college-football-playoff-project
 **Fresno State targeting USC linebackers coach Matt Entz for head job: Source**\
 `Matt Entz was wildly successful at North Dakota State. `\
 https://nytimes.com/athletic/5969340/2024/12/04/fresno-state-head-coach-usc-matt-entz/
-
-**Matt Rice, Tennessee’s solicitor general, is defending the state’s ban on gender affirming care.**\
-`Mr. Rice, who was once a clerk for Justice Clarence Thomas, is expected to argue that the ban does not violate constitutional rights.`\
-https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/matt-rice-tennessees-solicitor-general-is-defending-the-states-ban-on-gender-affirming-care
 
