@@ -1,3 +1,7 @@
+**A 2020 decision protecting transgender workers is a major precedent.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/a-2020-decision-protecting-transgender-workers-is-a-major-precedent
+
 **Reading give Selles permission to speak to Hull City**\
 `Reading manager Ruben Selles has been granted permission to speak to Hull City regarding their head coach vacancy.`\
 https://nytimes.com/athletic/5968939/2024/12/04/ruben-selles-hull-reading/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/special-series/sandra-cisneros-banned-books.html
 **Guardian Journalists Strike Over Planned Sale of Sister Publication**\
 `Workers have begun a 48-hour walkout, the first in 50 years for the outlet, over a proposal to sell The Observer to Tortoise Media, a digital media start-up.`\
 https://nytimes.com/2024/12/04/business/guardian-strike-observer.html
-
-**Live Updates: C.E.O. of UnitedHealthcare Is Fatally Shot in Midtown Manhattan**\
-`The executive, Brian Thompson, was shot in the chest in what people briefed on the investigations said appeared to be a targeted attack.`\
-https://nytimes.com/live/2024/12/04/nyregion/brian-thompson-uhc-ceo-shot
 

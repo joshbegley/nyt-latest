@@ -1,3 +1,7 @@
+**A 2020 decision protecting transgender workers is a major precedent.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/a-2020-decision-protecting-transgender-workers-is-a-major-precedent
+
 **Reading give Selles permission to speak to Hull City**\
 `Reading manager Ruben Selles has been granted permission to speak to Hull City regarding their head coach vacancy.`\
 https://nytimes.com/athletic/5968939/2024/12/04/ruben-selles-hull-reading/
