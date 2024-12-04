@@ -1,3 +1,11 @@
+**Giving**\
+`To what causes and organizations would you most like to donate? Why?`\
+https://nytimes.com/2024/12/04/learning/giving.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/04/crosswords/spelling-bee-forum.html
+
 **Kevin Durant's latest sprain is not a huge deal for the Suns, but it keeps happening**\
 `Sprains are the only thing that's stopped Durant in months. And, in many cases, the Phoenix Suns as well.`\
 https://nytimes.com/athletic/5968327/2024/12/04/kevin-durant-another-sprain-suns-spurs/
