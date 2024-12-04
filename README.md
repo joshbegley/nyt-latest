@@ -1,3 +1,7 @@
+**From Ichiro then to Roki Sasaki now, Pacific Rim scouting has evolved but remains smaller-scale**\
+`The process of scouting players in Japan, Korea and Taiwan is streamlined, but the number of players coming to MLB remains relatively low.`\
+https://nytimes.com/athletic/5967098/2024/12/04/scouting-japan-korea-mlb-roki-sasaki/
+
 **Will Donte DiVincenzo's response to 'outside noise' with breakout game fuel Wolves' optimism?**\
 `The Timberwolves have a long way to go, but a few signs of positivity are a welcome departure from the frustration that has stewed.`\
 https://nytimes.com/athletic/5964997/2024/12/04/donte-divincenzo-breakout-timberwolves-optimism/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/style/camera-girl-book-polaroid-photography.html
 **Should All Children Under 16 Be Barred From Social Media?**\
 `Australia recently passed a law that does just that. Should other countries do the same?`\
 https://nytimes.com/2024/12/04/learning/should-all-children-under-16-be-barred-from-social-media.html
-
-**New Year’s Eve Fireworks in the Parks Are Canceled**\
-`Because of the drought, the traditional celebration in Prospect and Central Parks won’t happen. Prospect Park plans a light show with drones.`\
-https://nytimes.com/2024/12/04/nyregion/new-years-eve-fireworks-parks.html
 
