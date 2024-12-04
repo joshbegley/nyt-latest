@@ -1,3 +1,19 @@
+**What to Know About Hannah Kobayashi, Who Was Reported Missing in California**\
+`The search drew national attention after she flew from Maui to Los Angeles and did not board a connecting flight to New York. The police later said she had crossed into Mexico on foot.`\
+https://nytimes.com/article/hannah-kobayashi-missing-mexico.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`Matt Eberflus is gone, Thomas Brown is in charge and the Bears hope to snap a six-game losing streak when they face the 49ers on Sunday.`\
+https://nytimes.com/athletic/5970244/2024/12/04/bears-mailbag-questions-41/
+
+**Chief Executive of Insurance Giant Is Gunned Down Outside Midtown Hotel**\
+`Brian Thompson, the head of UnitedHealthcare, was the victim of what the police said was a targeted shooting. His killer shot him in the back, then walked coolly away.`\
+https://nytimes.com/2024/12/04/nyregion/unitedhealthcare-ceo-brian-thompson-shooting.html
+
+**Sooners QB carousel continues; starter Arnold announces intent to transfer**\
+`The announcement comes two days after Oklahoma poached Washington State OC Ben Arbuckle for the same role with the Sooners. `\
+https://nytimes.com/athletic/5970198/2024/12/04/oklahoma-sooners-quarterback-jackson-arnold-tranfer-portal/
+
 **The Briefing: Newcastle 3-3 Liverpool - Kelleher's late error costly as Isak and Co shine again**\
 `Newcastle and Liverpool served up a 3-3 draw in keeping with their history of thrilling Premier League matches`\
 https://nytimes.com/athletic/5957341/2024/12/04/newcastle-3-liverpool-3-kelleher-isak/
