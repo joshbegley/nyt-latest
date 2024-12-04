@@ -1,3 +1,15 @@
+**Finland's game plan for 4 Nations glory: 'You have to be ready right away'**\
+`Why coach Antti Pennanen and GM Jere Lehtinen think they've built a team that will compete — despite the tourney's smallest player pool.`\
+https://nytimes.com/athletic/5970303/2024/12/04/finland-4-nations-game-plan/
+
+**A Health Insurance C.E.O. Was Gunned Down in Manhattan**\
+`Also, the Supreme Court appeared inclined to uphold a Tennessee law on trans care. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/12/04/briefing/new-york-shooting-supreme-court-transgender-law.html
+
+**Notre Dame made a signing day splash in California to change perception of its class**\
+`How big is Notre Dame landing Madden Faraimo on Wednesday? Eight thoughts on Marcus Freeman's 2025 recruiting class and what's next.`\
+https://nytimes.com/athletic/5970091/2024/12/04/notre-dame-recruiting-class-2025-madden-faraimo/
+
 **O'Neil vows to fight on at Wolves after heavy Everton defeat**\
 `Beleaguered Wolves boss Gary O’Neil pledged to fight on after a 4-0 thrashing at Everton that left travelling fans demanding his sacking.`\
 https://nytimes.com/athletic/5970312/2024/12/04/wolves-everton-gary-oneil/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/04/business/media/kelly-powers-dead.html
 **Jaguars place Lawrence on IR for concussion, likely ending QB's season**\
 `Lawrence's season is likely over after sustaining a concussion on a late hit from Texans linebacker Azeez Al-Shaair.`\
 https://nytimes.com/athletic/5970122/2024/12/04/jaguars-trevor-lawrence-concussion-injured-reserve/
-
-**The Briefing: Arsenal 2 Man Utd 0 - Coping with Gabriel absence, Yoro debut, corner**\
-`Arsenal overcame Manchester United on Wednesday night at the Emirates Stadium`\
-https://nytimes.com/athletic/5957343/2024/12/04/arsenal-manchester-united-results-report-analysis/
-
-**Trump Has ‘Lost Faith’ in N.R.A., Says Gun Group Official**\
-`In a new letter, an N.R.A. vice president said the troubled group needed to rebuild trust with Donald J. Trump and his inner circle.`\
-https://nytimes.com/2024/12/04/us/politics/donald-trump-national-rifle-association.html
-
-**Brian Thompson, Chief Executive of UnitedHealthcare, Dies at 50**\
-`Mr. Thompson, who was fatally shot in Midtown Manhattan, rose to the top of one of the world’s biggest insurance companies.`\
-https://nytimes.com/2024/12/04/nyregion/brian-thompson-dead.html
 
