@@ -1,3 +1,11 @@
+**Experts Say GLP-1 Drugs Have Potential Use Beyond Weight Loss**\
+`Speaking at The New York Times’s DealBook Summit, Eli Lilly’s chief executive and an obesity medicine specialist discussed the potential for wildly popular weight-loss drugs to be used to treat many other conditions.`\
+https://nytimes.com/video/business/100000009859991/obesity-glp-1-dealbook.html
+
+**Google C.E.O Comments On Landmark Monopoly Ruling**\
+`Andrew Ross Sorkin, the DealBook Editor-at-Large, asked the C.E.O of Google, Sundar Pichai, about the August antitrust ruling that labeled Google as an illegal monopoly.`\
+https://nytimes.com/video/business/dealbook/100000009859994/dealbook-google-monopoly.html
+
 **How Kash Patel, Trump’s F.B.I. Pick, Plans to Reshape the Bureau**\
 `Donald Trump’s pick to lead the F.B.I. has called for firing the agency’s top officials, shutting down its Washington headquarters and has vowed to investigate the president-elect’s political adversaries.`\
 https://nytimes.com/video/us/politics/100000009856793/kash-patel-fbi-chief.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/briefing/new-york-shooting-supreme-court-transgen
 **Notre Dame made a signing day splash in California to change perception of its class**\
 `The Irish beat out perceived favorite USC and former finalist Texas for Faraimo.`\
 https://nytimes.com/athletic/5970091/2024/12/04/notre-dame-recruiting-class-2025-madden-faraimo/
-
-**O'Neil vows to fight on at Wolves after heavy Everton defeat**\
-`Beleaguered Wolves boss Gary O’Neil pledged to fight on after a 4-0 thrashing at Everton that left travelling fans demanding his sacking.`\
-https://nytimes.com/athletic/5970312/2024/12/04/wolves-everton-gary-oneil/
-
-**Colorado’s signing class headlined by top-40 QB Julian Lewis**\
-`Lewis, the No. 6 QB in the class, is one of six blue-chip prospects for Deion Sanders' Buffaloes. `\
-https://nytimes.com/athletic/5970028/2024/12/04/colorado-football-julian-lewis-signing-class/
 
