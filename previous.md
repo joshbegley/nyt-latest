@@ -1,3 +1,19 @@
+**Pardon Backlash Reflects Fraught Breakup Between Democrats and Biden**\
+`The criticism of the president’s pardon of his son from within his own party underscores how far gone his relationship with Democrats in Congress already was.`\
+https://nytimes.com/2024/12/04/us/politics/biden-pardon-democrats.html
+
+**Real Madrid hire new nutritionist in bid to address injury crisis**\
+`Real Madrid have hired nutritionist Itziar Gonzalez de Arriba in a bid to address the extensive injury problems they have encountered this season.`\
+https://nytimes.com/athletic/5968619/2024/12/04/real-madrid-nutritionist-injuries/
+
+**Explaining the Premier League's Rainbow Laces controversy and what comes next**\
+`The Premier League's LGBTQ+ initiative has been overshadowed this week - what has happened and why?`\
+https://nytimes.com/athletic/5969162/2024/12/04/rainbow-laces-premier-league-explained/
+
+**The judge in Hunter Biden’s tax case rejects President Biden’s claims of a political prosecution.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2024/12/04/us/trump-news/joe-biden-pardon-hunter
+
 **U.S. Students Posted Dire Math Declines on an International Test**\
 `On the test, American fourth and eighth graders posted results similar to scores from 1995. It was a sign of notable stagnation, even as other countries saw improvements.`\
 https://nytimes.com/2024/12/04/us/us-math-students-pandemic.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5969609/2024/12/04/micah-hyde-buffalo-bills-practic
 **In Global Finale, Biden Hopes Rail Project Defines Africa Legacy**\
 `In his last announced trip abroad as president, Mr. Biden relished touring a U.S.-financed train line in Angola intended to transport goods and critical minerals to port.`\
 https://nytimes.com/2024/12/04/world/africa/biden-angola-africa-lobito-train-corridor.html
-
-**Ja Morant 'not trying to dunk' as Grizzlies star prioritizes health**\
-`"I'm not trying to dunk at all," Morant said. "Y'all think I'm lying. I'm dead serious."`\
-https://nytimes.com/athletic/5969594/2024/12/04/ja-morant-dunk-grizzlies/
-
-**Now a free agent, a lighter Lance Lynn looks to extend his MLB career into a 15th season**\
-`Since his debut in 2011, Lynn ranks sixth in the majors with 2,006 1/3 innings pitched.`\
-https://nytimes.com/athletic/5969624/2024/12/04/lance-lynn-free-agent-mlb/
-
-**Serena Williams Said She Learned From Every Loss**\
-`Serena Williams said every tennis match loss helped her “become Serena,” and that she’s applied the mindset of learning from losses to her investment decisions.`\
-https://nytimes.com/video/business/dealbook/100000009858748/serena-williams-dealbook.html
-
-**A Storied New York Hilton Adds a Grim Chapter to Its History**\
-`The hotel, on West 54th Street, was where journalists examined the Pentagon Papers and where Donald Trump delivered a 2016 victory speech.`\
-https://nytimes.com/2024/12/04/nyregion/hilton-hotel-midtown-shooting.html
 

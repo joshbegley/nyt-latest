@@ -1,3 +1,19 @@
+**Pardon Backlash Reflects Fraught Breakup Between Democrats and Biden**\
+`The criticism of the president’s pardon of his son from within his own party underscores how far gone his relationship with Democrats in Congress already was.`\
+https://nytimes.com/2024/12/04/us/politics/biden-pardon-democrats.html
+
+**Real Madrid hire new nutritionist in bid to address injury crisis**\
+`Real Madrid have hired nutritionist Itziar Gonzalez de Arriba in a bid to address the extensive injury problems they have encountered this season.`\
+https://nytimes.com/athletic/5968619/2024/12/04/real-madrid-nutritionist-injuries/
+
+**Explaining the Premier League's Rainbow Laces controversy and what comes next**\
+`The Premier League's LGBTQ+ initiative has been overshadowed this week - what has happened and why?`\
+https://nytimes.com/athletic/5969162/2024/12/04/rainbow-laces-premier-league-explained/
+
+**The judge in Hunter Biden’s tax case rejects President Biden’s claims of a political prosecution.**\
+`By Devlin Barrett`\
+https://nytimes.com/live/2024/12/04/us/trump-news/joe-biden-pardon-hunter
+
 **U.S. Students Posted Dire Math Declines on an International Test**\
 `On the test, American fourth and eighth graders posted results similar to scores from 1995. It was a sign of notable stagnation, even as other countries saw improvements.`\
 https://nytimes.com/2024/12/04/us/us-math-students-pandemic.html
