@@ -1,3 +1,11 @@
+**Ball State hires Mike Uremovich from Butler as coach**\
+`Uremovich went 23-11 in three seasons at Butler in the FCS and replaces Mike Neu, who Ball State fired after nine seasons.`\
+https://nytimes.com/athletic/5968863/2024/12/04/mike-uremovich-ball-state-football-coach/
+
+**Who will win the NBA Cup? Predicting the knockout rounds and beyond**\
+`Here's how the Magic, Bucks, Hawks, Knicks, Mavericks, Thunder, Warriors and Rockets measure up to each other, and how the NBA Cup could go.`\
+https://nytimes.com/athletic/5968516/2024/12/04/nba-cup-knockout-round-predictions-winner/
+
 **DealBook Summit Live Updates: Business and Global Leaders Set for Day of Discussions**\
 `Andrew Ross Sorkin will sit down with nearly a dozen leading figures, including Sam Altman, Jerome Powell, Serena Williams, Jeff Bezos, Bill Clinton and Sundar Pichai.`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news
@@ -16,7 +24,7 @@ https://nytimes.com/2024/12/04/world/europe/ukraine-war-grants-zelensky.html
 
 **South Koreans try to process six hours of martial law.**\
 `By John Yoon`\
-https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law/korea-voices
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law-news/korea-voices
 
 **Iran Releases Narges Mohammadi, Nobel Laureate, From Prison for 21 Days**\
 `The activist, whose health has deteriorated, had bone surgery last month.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5963873/2024/12/04/winnipeg-jets-losses-nhl/
 **How much does the CFP committee punish losing a conference title game?**\
 `The 47 teams that lost power-conference title games in the CFP’s first decade dropped an average of two spots in the final CFP Top 25.`\
 https://nytimes.com/athletic/5968384/2024/12/04/cfp-rankings-selection-committee-conference-championship-games/
-
-**Liverpool have made contract offer to Van Dijk in attempt to keep captain**\
-`Liverpool have made a contract offer to Virgil van Dijk as they attempt to end uncertainty over his future by tying the Netherlands defender to a new agreement.`\
-https://nytimes.com/athletic/5968543/2024/12/04/virgil-van-dijk-contract-liverpool/
-
-**The Athletic FC: Mascherano's fine line with Messi, Man Utd scrap pro-LGBTQ+ plan**\
-`Today in TAFC: Why Mascherano is walking a fine line, Man Utd scrap a pro-LGBTQ+ plan and Yamal steals show with audacious assist.`\
-https://nytimes.com/athletic/5968616/2024/12/04/mascherano-messi-miami-man-utd-lgbtq/
 
