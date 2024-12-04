@@ -1,3 +1,7 @@
+**USC signs 5-star defensive lineman Jahkeem Stewart,**\
+`The Louisiana native is the No. 16 prospect in the 247Sports Composite in the 2025 recruiting cycle.`\
+https://nytimes.com/athletic/5966964/2024/12/04/usc-recruiting-jahkeem-stewart-five-star/
+
 **Pardon Backlash Reflects Fraught Breakup Between Democrats and Biden**\
 `The criticism of the president’s pardon of his son from within his own party underscores how far gone his relationship with Democrats in Congress already was.`\
 https://nytimes.com/2024/12/04/us/politics/biden-pardon-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/science/mammoth-extinction-human-hunting.html
 **Micah Hyde re-joins Buffalo Bills after signing to practice squad**\
 `Hyde joins the Bills just in time for a playoff push but expects to take on a practice squad role in the regular season. `\
 https://nytimes.com/athletic/5969609/2024/12/04/micah-hyde-buffalo-bills-practice-squad/
-
-**In Global Finale, Biden Hopes Rail Project Defines Africa Legacy**\
-`In his last announced trip abroad as president, Mr. Biden relished touring a U.S.-financed train line in Angola intended to transport goods and critical minerals to port.`\
-https://nytimes.com/2024/12/04/world/africa/biden-angola-africa-lobito-train-corridor.html
 
