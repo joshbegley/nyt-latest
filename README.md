@@ -1,3 +1,11 @@
+**As Pelicans’ season continues to crumble, will there be anything left to salvage?**\
+`“Willie ain’t out there getting scored on. He ain’t missing shots. He ain’t turning the ball over,” says CJ McCollum on criticism of coach. `\
+https://nytimes.com/athletic/5965423/2024/12/04/pelicans-season-crumbling-nba-issues/
+
+**F1 post-Qatar mailbag: The constructors’ championship, potential Cadillac drivers**\
+`Plus: Making sense of the recent news around the FIA. `\
+https://nytimes.com/athletic/5966707/2024/12/04/f1-mailbag-constructors-championship-fia-cadillac/
+
 **Coming Up This Morning: Ken Griffin, founder of Citadel; Sam Altman, co-founder of OpenAI; Serena Williams; and former President Bill Clinton**\
 `Who will be speaking at the DealBook Summit`\
 https://nytimes.com/2024/12/04/business/dealbook/summitpromo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5967871/2024/12/04/oilers-blues-philip-broberg-dyla
 **What to Know About the Chaos in South Korea, and a Major Trans Rights Case**\
 `Plus, how money to protect pandas is really spent.`\
 https://nytimes.com/2024/12/04/podcasts/south-korea-trans-rights.html
-
-**As MLB's Winter Meetings loom, the Astros are still in search of a direction**\
-`The Astros' aging major-league roster and fallow farm system prompts legitimate concerns about their long-term sustainability. `\
-https://nytimes.com/athletic/5967631/2024/12/04/houston-astros-2024-mlb-winter-meetings-direction/
-
-**Why Matt LaFleur, Jeff Hafley are angry with this Packers mistake: 'It's infuriating'**\
-`The Packers are either first or tied for first in the NFL in offsides penalties, neutral zone infractions and encroachment penalties.`\
-https://nytimes.com/athletic/5966704/2024/12/04/packers-offsides-encroachment-penalties/
 
