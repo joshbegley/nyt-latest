@@ -1,3 +1,7 @@
+**Fed Chair Powell Acknowledges Inflation Is a ‘Little Higher’ Than Expected**\
+`Jerome H. Powell, the chair of the Federal Reserve, said it was too early for the central bank to start reacting to the tariffs that President-elect Trump had been promising.`\
+https://nytimes.com/2024/12/04/business/dealbook/jerome-powell-federal-reserve-inflation.html
+
 **What’s in Our Queue? ‘Girls Will Be Girls’ and More**\
 `By Priya Krishna`\
 https://nytimes.com/card/2024/12/04/arts/editors-recommendations-girlswillbegirls
