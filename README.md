@@ -1,4 +1,4 @@
-**Dealbook Summit Live Updates: Business and Global Leaders Set for Day of Discussions**\
+**DealBook Summit Live Updates: Business and Global Leaders Set for Day of Discussions**\
 `Andrew Ross Sorkin will sit down with nearly a dozen leading figures, including Sam Altman, Jerome Powell, Serena Williams, Jeff Bezos, Bill Clinton and Sundar Pichai.`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news
 
