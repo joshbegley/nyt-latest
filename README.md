@@ -1,3 +1,15 @@
+**Could Dark Chocolate Reduce Your Risk of Diabetes?**\
+`A new study suggests that it might. We asked experts if that’s too good to be true.`\
+https://nytimes.com/2024/12/04/well/eat/dark-chocolate-diabetes-study.html
+
+**Gunman Shoots 2 Students at Rural California School, Officials Say**\
+`The gunman at the Feather River Adventist School in Oroville, Calif., later died of what appeared to have been a self-inflicted gunshot wound, the authorities said.`\
+https://nytimes.com/2024/12/04/us/school-shooting-oroville-california.html
+
+**UnitedHealthcare C.E.O. Killed in ‘Brazen, Targeted Attack,’ Police Say**\
+`The police are searching for the suspect in the fatal shooting of Brian Thompson, the chief executive of UnitedHealthcare, near a Midtown Manhattan hotel on Wednesday morning.`\
+https://nytimes.com/video/nyregion/100000009858797/unitedhealthcare-ceo-midtown-manhattan-shooting.html
+
 **Experts Say GLP-1 Drugs Have Potential Use Beyond Weight Loss**\
 `Speaking at The New York Times’s DealBook Summit, Eli Lilly’s chief executive and an obesity medicine specialist discussed the potential for wildly popular weight-loss drugs to be used to treat many other conditions.`\
 https://nytimes.com/video/business/100000009859991/obesity-glp-1-dealbook.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5970438/2024/12/04/mbappe-penalty-real-madrid-ancel
 **Prince Harry Says Murdoch Tabloid Lawsuit Is About Accountability**\
 `Prince Harry, the Duke of Sussex, vowed to continue his legal battle against Rupert Murdoch’s British tabloids for hacking his phone, in part because he believed that the misconduct of some journalists was calling into question trust in all.`\
 https://nytimes.com/video/business/dealbook/100000009859921/prince-harry-dealbook-murdoch.html
-
-**Finland's game plan for 4 Nations glory: 'You have to be ready right away'**\
-`Why coach Antti Pennanen and GM Jere Lehtinen think they've built a team that will compete — despite the tourney's smallest player pool.`\
-https://nytimes.com/athletic/5970303/2024/12/04/finland-4-nations-game-plan/
-
-**A Health Insurance C.E.O. Was Gunned Down in Manhattan**\
-`Also, the Supreme Court appeared inclined to uphold a Tennessee law on trans care. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/12/04/briefing/new-york-shooting-supreme-court-transgender-law.html
-
-**Notre Dame made a signing day splash in California to change perception of its class**\
-`The Irish beat out perceived favorite USC and former finalist Texas for Faraimo.`\
-https://nytimes.com/athletic/5970091/2024/12/04/notre-dame-recruiting-class-2025-madden-faraimo/
 
