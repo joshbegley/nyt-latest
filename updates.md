@@ -1,3 +1,11 @@
+**Why South Korea’s Leader, Desperate and Frustrated, Made a Fateful Decision**\
+`​A day after he declared — and then withdrew — martial law, President Yoon Suk Yeol was politically isolated as observers pondered his future in leadership.`\
+https://nytimes.com/2024/12/04/world/asia/south-korea-yoon-martial-law.html
+
+**Twins mailbag: Trade odds, Roki Sasaki vs. Rihanna, lacking lefties and T.C. Bear**\
+`Plus how the Christian Vázquez and Chris Paddack trade markets could be tied to early signings, and a possible non-tendered outfield fit.`\
+https://nytimes.com/athletic/5963144/2024/12/04/twins-mailbag-trade-odds-roki-sasaki-vs-rihanna-lacking-lefties-and-t-c-bear/
+
 **Cardinals add directors to player development staff: sources**\
 `Cardinals tabbed Larry Day as the new farm director and will name Carl Kochan the team's director of performance.`\
 https://nytimes.com/athletic/5967851/2024/12/04/stl-cardinals-mlb-development-larry-day/
