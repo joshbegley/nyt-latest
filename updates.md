@@ -1,3 +1,7 @@
+**Rohit Bal, an Exuberant Star of Indian Fashion, Dies at 63**\
+`Known as “the bad boy of fashion,” he was among a wave of designers who created modern Indian couture by updating traditional garments.`\
+https://nytimes.com/2024/12/04/style/rohit-bal-dead.html
+
 **Fatal Shooting of Brian Thompson, UnitedHealthcare C.E.O.: What We Know**\
 `Mr. Thompson was on his way to an investors’ gathering when he was killed by a masked shooter who fled on an electric Citi Bike, the police said.`\
 https://nytimes.com/2024/12/04/nyregion/unitedhealthcare-brian-thompson-shooting.html
