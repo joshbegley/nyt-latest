@@ -30,7 +30,7 @@ https://nytimes.com/2024/12/04/science/google-ai-weather-forecast.html
 `Want a holiday movie? Elisabeth Vincentelli of The New York Times has some favorites of 2024.`\
 https://nytimes.com/video/arts/television/100000009858352/this-years-hottest-holiday-movies.html
 
-**Bowden: 7 trades I'd like to see happen at MLB's Winter Meetings**\
+**Bowden: 7 big trades I'd like to see happen at MLB's Winter Meetings**\
 `There's nothing better than blockbuster trades and everything that comes with them. Here are seven deals Bowden would like to see in Dallas.`\
 https://nytimes.com/athletic/5968557/2024/12/04/mlb-trade-proposals-winter-meetings/
 
