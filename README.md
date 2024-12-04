@@ -1,3 +1,7 @@
+**Detroit’s Mayor, a Democrat, Will Run for Michigan Governor as an Independent**\
+`Mike Duggan is shedding the label of his longtime party to seek the state’s highest office, as the term-limited Gretchen Whitmer departs in early 2027.`\
+https://nytimes.com/2024/12/04/us/politics/mike-duggan-michigan-governor-detroit-mayor.html
+
 **USC signs 5-star defensive lineman Jahkeem Stewart,**\
 `The Louisiana native is the No. 16 prospect in the 247Sports Composite in the 2025 recruiting cycle.`\
 https://nytimes.com/athletic/5966964/2024/12/04/usc-recruiting-jahkeem-stewart-five-star/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966301/2024/12/04/edmonton-oilers-janmark-brown-he
 **Mammoth — It’s What Was for Dinner**\
 `A study of a 12,800-year-old skull of a toddler offers a glimpse at how early Americans found food, and how their hunts may have led to a mass extinction.`\
 https://nytimes.com/2024/12/04/science/mammoth-extinction-human-hunting.html
-
-**Micah Hyde re-joins Buffalo Bills after signing to practice squad**\
-`Hyde joins the Bills just in time for a playoff push but expects to take on a practice squad role in the regular season. `\
-https://nytimes.com/athletic/5969609/2024/12/04/micah-hyde-buffalo-bills-practice-squad/
 

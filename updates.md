@@ -1,3 +1,7 @@
+**USC signs 5-star defensive lineman Jahkeem Stewart,**\
+`The Louisiana native is the No. 16 prospect in the 247Sports Composite in the 2025 recruiting cycle.`\
+https://nytimes.com/athletic/5966964/2024/12/04/usc-recruiting-jahkeem-stewart-five-star/
+
 **Pardon Backlash Reflects Fraught Breakup Between Democrats and Biden**\
 `The criticism of the president’s pardon of his son from within his own party underscores how far gone his relationship with Democrats in Congress already was.`\
 https://nytimes.com/2024/12/04/us/politics/biden-pardon-democrats.html
