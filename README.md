@@ -1,3 +1,7 @@
+**For Some Koreans, Martial Law Brings Back Frightening Memories**\
+`“I immediately thought of 1980, and the fear and desperation we felt,” said a 60-year-old lawmaker who lived through the massacre of protesters in Gwangju.`\
+https://nytimes.com/2024/12/04/world/asia/south-korea-martial-law-gwangju-1980.html
+
 **Gomez is the low-key troubleshooter Liverpool cannot live without**\
 `Versatile defender is set for an extended run in the team - and history suggests he will not let Arne Slot down`\
 https://nytimes.com/athletic/5965815/2024/12/04/joe-gomez-liverpool-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966073/2024/12/04/manchester-city-decline-data-ana
 **Here are the latest developments.**\
 `By Victoria Kim, Minho Kim, John Yoon and Choe Sang-Hun`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law/here-are-the-latest-developments
-
-**Live Updates: Fury in South Korea After President Imposes Martial Law**\
-`President Yoon Suk Yeol’s top aides offered to resign hours after he rescinded his extraordinary order. Protesters are calling for his resignation as lawmakers prepare to meet.`\
-https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law
 
