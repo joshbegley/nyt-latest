@@ -1,3 +1,11 @@
+**U.S. Defends Climate Accord as Nations Call for Stronger Global Action**\
+`In a landmark international hearing on climate change, a U.S. representative backed the Paris accord, but left unanswered questions about U.S. commitments in a Trump presidency.`\
+https://nytimes.com/2024/12/04/climate/paris-agreement-international-court-justice.html
+
+**Kelly Powers, Fox News Commentator Who Shared Her Health Crises With Viewers, Dies at 45**\
+`She was diagnosed with glioblastoma, an aggressive form of brain cancer, in 2020, and used her platform to talk about cancer research.`\
+https://nytimes.com/2024/12/04/business/media/kelly-powers-dead.html
+
 **Jaguars place Lawrence on IR for concussion, likely ending QB's season**\
 `Lawrence's season is likely over after sustaining a concussion on a late hit from Texans linebacker Azeez Al-Shaair.`\
 https://nytimes.com/athletic/5970122/2024/12/04/jaguars-trevor-lawrence-concussion-injured-reserve/
