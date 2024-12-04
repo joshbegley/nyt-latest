@@ -1,3 +1,19 @@
+**Bans on medical care affect thousands of young trans people, one estimate says.**\
+`The estimate was included in court documents as the Supreme Court considers a challenge to a Tennessee law that prohibits some medical treatments for transgender minors.`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/bans-on-medical-care-affect-thousands-of-young-trans-people-one-estimate-says
+
+**What I'm seeing from the Islanders: Loser points, Bo Horvat's slump, injury timelines**\
+`Tuesday&#8217;s 2-1 overtime loss in Montreal left the New York Islanders at 9-10-7 and 5-5-5 on the road.`\
+https://nytimes.com/athletic/5968081/2024/12/04/islanders-loser-points-horvat-injuries/
+
+**The Debate Over the Hunter Biden Pardon**\
+`Readers discuss the ongoing political and legal debate over whether the pardon was justified. Also: South Korea’s crisis; tariffs; crosswords.`\
+https://nytimes.com/2024/12/04/opinion/hunter-biden-pardon.html
+
+**Review: Feeling Frazzled? This Dance Reacts to an Age of Anxiety**\
+`In “Dear Lord, Make Me Beautiful,” the choreographer Kyle Abraham experiments with expressing his emotions about the current moment.`\
+https://nytimes.com/2024/12/04/arts/dance/review-kyle-abraham-park-avenue-armory.html
+
 **Sam Altman Says Artificial General Intelligence Is on the Horizon**\
 `Speaking at The New York Times DealBook Summit, Sam Altman, the chief executive of OpenAI, said that the arrival of artificial general intelligence would “matter much less” to the average person than currently thought.`\
 https://nytimes.com/video/business/100000009858580/sam-altman-openai-dealbook.html
