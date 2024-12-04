@@ -1,3 +1,23 @@
+**A Storied New York Hilton Adds a Grim Chapter to Its History**\
+`The hotel, on West 54th Street, was where journalists examined the Pentagon Papers and where Donald Trump delivered a 2016 victory speech.`\
+https://nytimes.com/2024/12/04/nyregion/hilton-hotel-midtown-shooting.html
+
+**Israel’s Military Says Hostages Were Likely Killed by Hamas as Airstrike Hit**\
+`The six hostages, whose bodies were found in Gaza over the summer, were probably shot in February by their captors as an Israeli strike hit close to the tunnel where they were held, the military said.`\
+https://nytimes.com/2024/12/04/world/middleeast/israel-gaza-hamas-hostages.html
+
+**Across the aisle, executives and politicians say inflation is still a top concern.**\
+`Inflation, though cooling, remains top of mind for Americans, and a key concern for executives and politicians who spoke at the DealBook Summit.`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/across-the-aisle-executives-and-politicians-say-inflation-is-still-a-top-concern
+
+**LPGA, USGA restrict gender policies, citing 'competitive advantages'**\
+`Only athletes assigned female at birth or assigned male at birth who did not undergo male puberty can compete in events next year.`\
+https://nytimes.com/athletic/5969612/2024/12/04/lpga-usga-gender-policy-changes-2025/
+
+**49ers’ Christian McCaffrey suffered ‘textbook’ PCL tear on shoestring tackle, surgeon says**\
+`McCaffrey should be fine long term, though it's hard to say whether he'd be able to play again this season if the 49ers made the playoffs.`\
+https://nytimes.com/athletic/5969542/2024/12/04/christian-mccaffrey-49ers-pcl-surgeon/
+
 **Donald Trump and Pete Hegseth Have the Same Enemies**\
 `He, too, wants to fight the “enemy within.”`\
 https://nytimes.com/2024/12/04/opinion/pete-hegseth-trump-pentagon.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/04/climate/hawaiian-crows-alala.html
 **Double Olympic champion Tom Pidcock to leave INEOS Grenadiers**\
 `Double Olympic gold-medallist Tom Pidcock is to leave cycling team INEOS Grenadiers at the end of this season.`\
 https://nytimes.com/athletic/5969610/2024/12/04/tom-pidcock-ineos-grenadiers-exit/
-
-**Trump to Nominate Gail Slater to Head Justice Department’s Antitrust Efforts**\
-`If confirmed as assistant attorney general for the antitrust division, she would inherit lawsuits to break up Google’s search monopoly and ad tech dominance, as well as a case accusing Apple of making it hard for consumers to switch software and hardware.`\
-https://nytimes.com/2024/12/04/us/politics/trump-gail-slater-antitrust-justice-department.html
-
-**The Last Time Alcohol Poisoned a Defense Nomination**\
-`Pete Hegseth is not the first.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/hegseth-alcohol-defense-tower
-
-**Trump Replaces His White House Counsel Before He Even Started the Job**\
-`The shake-up is a sign that the new administration may see the same chaos and infighting that so often plagued President-elect Donald J. Trump’s first term in office.`\
-https://nytimes.com/2024/12/04/us/politics/trump-replaces-white-house-counsel.html
-
-**MLS refs claim in-game interference means they are 'no longer in control'**\
-`It is claimed that interference from PRO has become a habitual problem in MLS and NWSL games`\
-https://nytimes.com/athletic/5965237/2024/12/04/mls-refs-claim-in-game-interference-means-they-are-no-longer-in-control/
-
-**What Happens to the Case if the Trump Administration Switches Sides?**\
-`Since the federal government brought the challenge, the change in administration could affect its future before the Supreme Court.`\
-https://nytimes.com/2024/12/04/us/trump-supreme-court-transgender-rights.html
 
