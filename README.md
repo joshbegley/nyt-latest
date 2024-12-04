@@ -1,3 +1,7 @@
+**O'Neil vows to fight on at Wolves after heavy Everton defeat**\
+`Beleaguered Wolves boss Gary O’Neil pledged to fight on after a 4-0 thrashing at Everton that left travelling fans demanding his sacking.`\
+https://nytimes.com/athletic/5970312/2024/12/04/wolves-everton-gary-oneil/
+
 **Colorado’s signing class headlined by top-40 QB Julian Lewis**\
 `Lewis, the No. 6 QB in the class, is one of six blue-chip prospects for Deion Sanders' Buffaloes. `\
 https://nytimes.com/athletic/5970028/2024/12/04/colorado-football-julian-lewis-signing-class/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/us/politics/donald-trump-national-rifle-associati
 **Brian Thompson, Chief Executive of UnitedHealthcare, Dies at 50**\
 `Mr. Thompson, who was fatally shot in Midtown Manhattan, rose to the top of one of the world’s biggest insurance companies.`\
 https://nytimes.com/2024/12/04/nyregion/brian-thompson-dead.html
-
-**Prince Harry Vows to Maintain Fight Against Murdoch Tabloids**\
-`The British royal says his legal battle against parts of the media is about “accountability” and defending legitimate journalism.`\
-https://nytimes.com/2024/12/04/business/dealbook/prince-harry-rupert-murdoch-tabloids.html
 
