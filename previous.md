@@ -1,3 +1,7 @@
+**What to know about Jesper Wallstedt's Iowa reset, David Jiricek's Wild debut and injuries**\
+`Wallstedt's thoughts on his development timeline, when Jiricek might make his debut and injury updates on Jonas Brodin and more.`\
+https://nytimes.com/athletic/5967925/2024/12/03/wild-injuries-david-jiricek-jesper-wallstedt/
+
 **South Korea’s Markets Wobble as Investors Assess Its Political Turmoil**\
 `Officials pledged “unlimited” support to markets as traders digested the implications of South Korea’s brief declaration of martial law.`\
 https://nytimes.com/2024/12/03/world/asia/south-korea-markets-stocks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/us/politics/trump-donors-inauguration-access.html
 **Texas A&M QB Conner Weigman to enter transfer portal**\
 `Weigman never had a chance to be a full-time starter for more than four consecutive games during his A&M career.`\
 https://nytimes.com/athletic/5967672/2024/12/03/conner-weigman-transfer-portal-texas-am/
-
-**ESPN, Stephen A. Smith negotiating historic 6 year, $120 million deal**\
-`ESPN’s initial offer was for $18 million per year. The two sides also discussed both five- and six-year options for the length of contract.`\
-https://nytimes.com/athletic/5967493/2024/12/03/espn-stephen-a-smith-negotiations-contract/
 

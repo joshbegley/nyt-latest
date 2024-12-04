@@ -1,3 +1,7 @@
+**What to know about Jesper Wallstedt's Iowa reset, David Jiricek's Wild debut and injuries**\
+`Wallstedt's thoughts on his development timeline, when Jiricek might make his debut and injury updates on Jonas Brodin and more.`\
+https://nytimes.com/athletic/5967925/2024/12/03/wild-injuries-david-jiricek-jesper-wallstedt/
+
 **South Korea’s Markets Wobble as Investors Assess Its Political Turmoil**\
 `Officials pledged “unlimited” support to markets as traders digested the implications of South Korea’s brief declaration of martial law.`\
 https://nytimes.com/2024/12/03/world/asia/south-korea-markets-stocks.html
