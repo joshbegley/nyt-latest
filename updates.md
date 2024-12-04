@@ -1,3 +1,15 @@
+**These 26 States Have Restricted Gender-Transition Treatments for Minors Since 2021.**\
+`Transgender minors and their parents, guardians and doctors have challenged bans in 18 states, with mixed results.`\
+https://nytimes.com/2024/12/04/us/gender-transition-bans-states.html
+
+**The Bounce: It's time to grade the Eastern Conference! Plus, LeBron James vs. Father Time?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5968723/2024/12/04/eastern-conference-cavaliers-donovan-mitchell-lebron-james-lakers-nba-the-bounce/
+
+**C.E.O. of UnitedHealthcare Is Shot in Midtown Manhattan**\
+`The executive, Brian Thompson, was shot in the chest in what people briefed on the investigations said appeared to be a targeted attack.`\
+https://nytimes.com/2024/12/04/nyregion/shooting-midtown-nyc-united-healthcare-brian-thompson.html
+
 **Jeff Bezos, Serena Williams and Sam Altman are among the guests at this year’s DealBook Summit.**\
 `By Sarah Kessler`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/jeff-bezos-serena-williams-and-sam-altman-are-among-the-guests-at-this-years-dealbook-summit
