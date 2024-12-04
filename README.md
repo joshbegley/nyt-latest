@@ -2,6 +2,10 @@
 `By Adam Liptak`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-transgender-heightened-scrutiny
 
+**Amazon Sued Over Slow Deliveries to Low-Income Areas**\
+`The District of Columbia’s attorney general said the company deliberately outsourced Prime member deliveries in certain ZIP codes.`\
+https://nytimes.com/2024/12/04/technology/amazon-suit-delivery-dc.html
+
 **Live Updates: Supreme Court to Hear Major Trans Rights Case**\
 `Families and a doctor are challenging a Tennessee ban on some forms of medical care for transgender youth. Laws in more than 20 states could be affected.`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/world/europe/ukraine-war-grants-zelensky.html
 **South Koreans try to process six hours of martial law.**\
 `By John Yoon`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law-news/korea-voices
-
-**Iran Releases Narges Mohammadi, Nobel Laureate, From Prison for 21 Days**\
-`The activist, whose health has deteriorated, had bone surgery last month.`\
-https://nytimes.com/2024/12/04/world/middleeast/iran-narges-mohammadi-prison-surgery.html
 

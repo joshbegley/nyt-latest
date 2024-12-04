@@ -1,3 +1,23 @@
+**What is ‘heightened scrutiny,’ and why does it matter?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-transgender-heightened-scrutiny
+
+**Live Updates: Supreme Court to Hear Major Trans Rights Case**\
+`Families and a doctor are challenging a Tennessee ban on some forms of medical care for transgender youth. Laws in more than 20 states could be affected.`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care
+
+**Ball State hires Mike Uremovich from Butler as coach**\
+`Uremovich went 23-11 in three seasons at Butler in the FCS and replaces Mike Neu, who Ball State fired after nine seasons.`\
+https://nytimes.com/athletic/5968863/2024/12/04/mike-uremovich-ball-state-football-coach/
+
+**Who will win the NBA Cup? Predicting the knockout rounds and beyond**\
+`Here's how the Magic, Bucks, Hawks, Knicks, Mavericks, Thunder, Warriors and Rockets measure up to each other, and how the NBA Cup could go.`\
+https://nytimes.com/athletic/5968516/2024/12/04/nba-cup-knockout-round-predictions-winner/
+
+**South Koreans try to process six hours of martial law.**\
+`By John Yoon`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law-news/korea-voices
+
 **DealBook Summit Live Updates: Business and Global Leaders Set for Day of Discussions**\
 `Andrew Ross Sorkin will sit down with nearly a dozen leading figures, including Sam Altman, Jerome Powell, Serena Williams, Jeff Bezos, Bill Clinton and Sundar Pichai.`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news
