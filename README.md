@@ -1,3 +1,7 @@
+**U.S. Defends Climate Accord as Nations Call for Stronger Global Action**\
+`In a landmark international hearing on climate change, a U.S. representative backed the Paris accord, but left unanswered questions about U.S. commitments in a Trump presidency.`\
+https://nytimes.com/2024/12/04/climate/paris-agreement-international-court-justice.html
+
 **Kelly Powers, Fox News Commentator Who Shared Her Health Crises With Viewers, Dies at 45**\
 `She was diagnosed with glioblastoma, an aggressive form of brain cancer, in 2020, and used her platform to talk about cancer research.`\
 https://nytimes.com/2024/12/04/business/media/kelly-powers-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5970100/2024/12/04/nebraska-football-national-signi
 **What to Know About Hannah Kobayashi, Who Was Reported Missing in California**\
 `The search drew national attention after she flew from Maui to Los Angeles and did not board a connecting flight to New York. The police later said she had crossed into Mexico on foot.`\
 https://nytimes.com/article/hannah-kobayashi-missing-mexico.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`Matt Eberflus is gone, Thomas Brown is in charge and the Bears hope to snap a six-game losing streak when they face the 49ers on Sunday.`\
-https://nytimes.com/athletic/5970244/2024/12/04/bears-mailbag-questions-41/
 
