@@ -1,3 +1,15 @@
+**Alex Cooper Said Her Team Spoke With Trump’s About an Interview**\
+`Alex Cooper, the host of “Call Her Daddy” and founder of the Unwell Network, said her team had a Zoom call that she did not attend with Donald Trump’s campaign about a potential interview.`\
+https://nytimes.com/video/business/dealbook/100000009859494/dealbook-alex-cooper-media-podcasts.html
+
+**The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca rotating and some hair-pulling**\
+`Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southampton`\
+https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurella-nkunku-madueke/
+
+**The Briefing: Man City 3 Nottingham Forest 0 - De Bruyne's welcome return and are City back?**\
+`Our writers analyse the game from the Etihad as Pep Guardiola's side end their seven-game winless run`\
+https://nytimes.com/athletic/5957340/2024/12/04/manchester-city-de-bruyne-grealish/
+
 **The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca rotating and some hair-pulling**\
 `Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southamptona`\
 https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurella-nkunku-madueke/
