@@ -1,3 +1,15 @@
+**How the Bears could make an unprecedented head-coaching hire: It starts with Bill Belichick**\
+`If the Bears want to do something different, they could hire the most coveted coordinator, hire their interim pick or trade for a coach.`\
+https://nytimes.com/athletic/5966886/2024/12/04/bears-coaching-search-bill-belichick/
+
+**College basketball's 5 early-season surprise teams — and the 5 biggest disappointments**\
+`How are things going for Cal at Arkansas, anyway? And why didn't we see Pitt coming in the ACC?`\
+https://nytimes.com/athletic/5967350/2024/12/04/college-basketball-surprises-disappointments/
+
+**Why the Vikings' Jonathan Greenard has earned a place among the NFL's top pass rushers**\
+`"We're lucky to have him," defensive coordinator Brian Flores said of Greenard, who has 10 sacks and leads the NFL with 60 QB pressures.`\
+https://nytimes.com/athletic/5966932/2024/12/04/jonathan-greenard-vikings-nfl-pass-rusher/
+
 **New York Giants survey results: Fans have lost faith in Brian Daboll, Joe Schoen**\
 `Last year, Giants fans were nearly unanimous in wanting Schoen and Daboll back for another season. Things have certainly changed. `\
 https://nytimes.com/athletic/5964192/2024/12/04/giants-brian-daboll-joe-schoen-fans-survey/
