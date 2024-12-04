@@ -1,3 +1,15 @@
+**A meeting with Senator Joni Ernst is a pivotal test for Hegseth.**\
+`The Iowa Republican, a veteran who has worked to address sexual assault in the military, has signaled she is skeptical of the would-be defense secretary.`\
+https://nytimes.com/live/2024/12/04/us/trump-news/a-meeting-with-senator-joni-ernst-is-a-pivotal-test-for-hegseth
+
+**Giants' Drew Lock remains starting quarterback for Week 14**\
+`After a short-notice start, Lock will now have a full week of preparation for the Giants' upcoming game against the New Orleans Saints`\
+https://nytimes.com/athletic/5969554/2024/12/04/giants-drew-lock-starter-tommy-devito-saints/
+
+**Citi Bikes Leave ‘Digital Exhaust’ That Could Help Track a Killer**\
+`The police said the gunman who shot an insurance executive pedaled away after the crime.`\
+https://nytimes.com/2024/12/04/nyregion/citi-bike-records-uhc-shooting.html
+
 **Fed Chair Powell Acknowledges Inflation Is a ‘Little Higher’ Than Expected**\
 `Jerome H. Powell, the chair of the Federal Reserve, said it was too early for the central bank to start reacting to the tariffs that President-elect Trump had been promising.`\
 https://nytimes.com/2024/12/04/business/dealbook/jerome-powell-federal-reserve-inflation.html
