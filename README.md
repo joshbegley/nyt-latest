@@ -26,7 +26,7 @@ https://nytimes.com/2024/12/04/learning/giving.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/04/crosswords/spelling-bee-forum.html
 
-**England spy promise in Ruby Mace as they seek long-term back up for Keira Walsh**\
+**England spy promise in Ruby Mace as they seek long-term backup for Keira Walsh**\
 `The former Arsenal and Manchester City midfielder, now at Leicester City, made her senior debut in the 1-0 win over Switzerland in Sheffield`\
 https://nytimes.com/athletic/5967848/2024/12/04/england-mace-wiegman-walsh-leicester-switzerland/
 
