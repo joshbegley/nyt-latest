@@ -1,6 +1,6 @@
 **Fatal Shooting of Brian Thompson, UnitedHealthcare C.E.O.: What We Know**\
 `Mr. Thompson was on his way to an investors’ gathering when he was killed by a masked shooter who fled on an electric Citi Bike, the police said.`\
-https://nytimes.com/live/2024/12/04/nyregion/brian-thompson-uhc-ceo-shot/unitedhealthcare-ceo-brian-thompson-shooting
+https://nytimes.com/2024/12/04/nyregion/unitedhealthcare-brian-thompson-shooting.html
 
 **Canada announces roster for 4 Nations: Snubs, surprises and expectations**\
 `The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
