@@ -1,3 +1,11 @@
+**As Pelicans’ season continues to crumble, will there be anything left to salvage?**\
+`“Willie ain’t out there getting scored on. He ain’t missing shots. He ain’t turning the ball over,” says CJ McCollum on criticism of coach. `\
+https://nytimes.com/athletic/5965423/2024/12/04/pelicans-season-crumbling-nba-issues/
+
+**F1 post-Qatar mailbag: The constructors’ championship, potential Cadillac drivers**\
+`Plus: Making sense of the recent news around the FIA. `\
+https://nytimes.com/athletic/5966707/2024/12/04/f1-mailbag-constructors-championship-fia-cadillac/
+
 **Why Matt LaFleur, Jeff Hafley are angry with this Packers mistake: 'It's infuriating'**\
 `The Packers are either first or tied for first in the NFL in offsides penalties, neutral zone infractions and encroachment penalties.`\
 https://nytimes.com/athletic/5966704/2024/12/04/packers-offsides-encroachment-penalties/
