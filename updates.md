@@ -1,3 +1,7 @@
+**Is It Fair to Assume a Best Friend Is Bad and Selfish if She Supported Trump?**\
+`The magazine’s Ethicist columnist on friendship, suspicion and character assessment.`\
+https://nytimes.com/2024/12/04/magazine/best-friend-selfish-trump-ethics.html
+
 **Until Saturday: Bama vs. the CFP bid-stealers**\
 `Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
 https://nytimes.com/athletic/5969246/2024/12/04/college-football-playoff-rankings-alabama-clemson-until-saturday/
