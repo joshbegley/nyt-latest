@@ -1,3 +1,11 @@
+**Penguins Today: A Pettersson dilemma and a convergence of Pittsburgh’s Stanley Cup GMs**\
+`It’s time to talk about Marcus Pettersson. Plus: Another Penguins hockey ops hire and a homecoming for Pittsburgh's management greats.`\
+https://nytimes.com/athletic/5968905/2024/12/04/penguins-marcus-pettersson-nhl-stanley-cup/
+
+**A Year Among My Fellow Banned Writers**\
+`Removing books from schools robs us of important opportunities to understand each other, and ourselves.`\
+https://nytimes.com/2024/12/04/special-series/sandra-cisneros-banned-books.html
+
 **Guardian Journalists Strike Over Planned Sale of Sister Publication**\
 `Workers have begun a 48-hour walkout, the first in 50 years for the outlet, over a proposal to sell The Observer to Tortoise Media, a digital media start-up.`\
 https://nytimes.com/2024/12/04/business/guardian-strike-observer.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/12/04/world/asia/south-korea-impeachment-vo
 **Giannis, Damian Lillard lock in as Bucks breeze past Pistons and into NBA Cup knockout rounds**\
 `All season, Bucks players have talked about putting together a complete 48-minute performance. On Tuesday in Detroit, they got one.`\
 https://nytimes.com/athletic/5968194/2024/12/04/giannis-antetokounmpo-damian-lliard-bucks-pistons-nba-cup/
-
-**Saudi Arabia in talks about place at men's Gold Cup in North America**\
-`Qatar, South Korea and Brazil are among the teams from outside North America to compete in the CONCACAF tournament.`\
-https://nytimes.com/athletic/5968617/2024/12/04/saudi-arabia-gold-cup-concacaf/
-
-**These 26 States Have Restricted Gender-Transition Treatments for Minors Since 2021**\
-`Transgender minors and their parents, guardians and doctors have challenged bans in 18 states, with mixed results.`\
-https://nytimes.com/2024/12/04/us/gender-transition-bans-states.html
 
