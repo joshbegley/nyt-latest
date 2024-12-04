@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5968863/2024/12/04/mike-uremovich-ball-state-footba
 `Here's how the Magic, Bucks, Hawks, Knicks, Mavericks, Thunder, Warriors and Rockets measure up to each other, and how the NBA Cup could go.`\
 https://nytimes.com/athletic/5968516/2024/12/04/nba-cup-knockout-round-predictions-winner/
 
-**DealBook Summit Live Updates: Business and Global Leaders Set for Day of Discussions**\
+**DealBook Summit Live Updates: Day of Discussions With Business and Global Leaders Begins**\
 `Andrew Ross Sorkin will sit down with nearly a dozen leading figures, including Sam Altman, Jerome Powell, Serena Williams, Jeff Bezos, Bill Clinton and Sundar Pichai.`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news
 
