@@ -1,3 +1,7 @@
+**Kaprizov does it again in OT during one intense hockey game: 3 takeaways vs. Canucks**\
+`Kaprizov capped a tightly contested, physical game with an overlong OT shift, a mishap and a game winner.`\
+https://nytimes.com/athletic/5968222/2024/12/04/wild-kaprizov-overtime-canucks-gustavsson/
+
 **How the Sabres hit new low in panic-filled, historic collapse against Avalanche**\
 `"We've had enough wake-up calls," Tage Thompson said. "It's terrible. That's all there is to it."`\
 https://nytimes.com/athletic/5968252/2024/12/04/sabres-collapse-new-low-avalanche/
