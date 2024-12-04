@@ -1,3 +1,7 @@
+**Tickled Pink**\
+`Daniel Raymon’s puzzle earns top marks.`\
+https://nytimes.com/2024/12/03/crosswords/daily-puzzle-2024-12-04.html
+
 **What to know about Jesper Wallstedt's Iowa reset, David Jiricek's Wild debut and injuries**\
 `Wallstedt's thoughts on his development timeline, when Jiricek might make his debut and injury updates on Jonas Brodin and more.`\
 https://nytimes.com/athletic/5967925/2024/12/03/wild-injuries-david-jiricek-jesper-wallstedt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5967785/2024/12/03/austin-ekeler-commanders-concuss
 **Trump Donors Who Give at Least $1 Million or Raise $2 Million Get Inaugural Access**\
 `Perks being offered to the top donors to the president-elect’s inaugural committee include dinners with Melania Trump and the next vice president, JD Vance.`\
 https://nytimes.com/2024/12/03/us/politics/trump-donors-inauguration-access.html
-
-**Texas A&M QB Conner Weigman to enter transfer portal**\
-`Weigman never had a chance to be a full-time starter for more than four consecutive games during his A&M career.`\
-https://nytimes.com/athletic/5967672/2024/12/03/conner-weigman-transfer-portal-texas-am/
 
