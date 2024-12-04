@@ -1,7 +1,3 @@
-**Mary McGee, Motorcycle Racing Pioneer, Is Dead at 87**\
-`Her most remarkable achievement came in 1975, when she became the first person, man or woman, to complete the Baja 500 race solo.`\
-https://nytimes.com/2024/12/04/sports/autoracing/mary-mcgee-dead.html
-
 **Finding a Sense of Purpose and Harmony Onstage**\
 `In a world frequently defined by polarization and isolation, music offers an opportunity to bridge divides and find common ground.`\
 https://nytimes.com/2024/12/04/special-series/gustavo-dudamel-youth-orchestra.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/12/04/us/trump-news/a-meeting-with-senator-joni-er
 **Giants' Drew Lock remains starting quarterback for Week 14**\
 `After a short-notice start, Lock will now have a full week of preparation for the Giants' upcoming game against the New Orleans Saints`\
 https://nytimes.com/athletic/5969554/2024/12/04/giants-drew-lock-starter-tommy-devito-saints/
+
+**Citi Bikes Leave ‘Digital Exhaust’ That Could Help Track a Killer**\
+`The police said the gunman who shot an insurance executive pedaled away after the crime.`\
+https://nytimes.com/2024/12/04/nyregion/citi-bike-records-uhc-shooting.html
 
