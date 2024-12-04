@@ -1,3 +1,27 @@
+**California Democrat Flips Seat in the Last House Race to Be Decided**\
+`Adam Gray, a former state lawmaker, defeated Representative John Duarte, a Republican, in a reversal of their 2022 race.`\
+https://nytimes.com/2024/12/04/us/politics/california-house-gray-duarte.html
+
+**Guardiola, Anfield and the grounds that Premier League title winning managers fear most**\
+`Pep Guardiola lost again at Anfield on Sunday — but where do other title-winning managers struggle the most?`\
+https://nytimes.com/athletic/5965970/2024/12/04/premier-league-managerial-hoodoos-title-analysis/
+
+**The startup multi-club network platforming new talent - led by two ex-Manchester United scouts**\
+`Slovenia is the unlikely starting point for a new network that wants to help bring South American and African talents to Europe`\
+https://nytimes.com/athletic/5934628/2024/12/04/multi-club-tabor-sezana-man-utd-scouts/
+
+**Fantasy basketball roundup: Can Dyson Daniels and Nikola Vucevic stay hot?**\
+`Stan Son evaluates which early-season trends are sustainable and which are mirages. `\
+https://nytimes.com/athletic/5966690/2024/12/04/fantasy-basketball-roundup-daniels-vucevic/
+
+**How Germany preserves its proud football heritage - even when clubs move stadiums**\
+`While English clubs barely recognise their former homes - some of Germany's biggest sides fully embrace the past `\
+https://nytimes.com/athletic/5885265/2024/12/04/how-germany-preserves-its-proud-football-heritage-even-when-clubs-move-stadiums/
+
+**How Brentford lost their best player and became more fun**\
+`Brentford's evolution was delayed last season, but with Toney gone, it's underway again`\
+https://nytimes.com/athletic/5965996/2024/12/04/brentford-lose-ivan-toney-improve-tactics/
+
 **Week 14 fantasy football rankings: Sleepers, projections, starts, sits | Caleb Williams, Jordan Addison and more**\
 `Can Caleb Williams lead you to the playoffs? He's a sleeper for Jake Ciely, who breaks down the matchups and ranks the players for Week 14.`\
 https://nytimes.com/athletic/5967386/2024/12/04/week-14-fantasy-football-rankings-sleepers-projections-starts-sits/
@@ -13,29 +37,4 @@ https://nytimes.com/2024/12/04/business/bangladesh-banks.html
 **Arsenal vs Manchester United preview, odds, prediction: Amorim's first tough test**\
 `Ruben Amorim's first league match went well. How will the Red Devils fare in his first tough test?`\
 https://nytimes.com/athletic/5966171/2024/12/04/arsenal-manchester-united-preview-odds-prediction/
-
-**The Art of the Gift: Samin Nosrat**\
-`One of the chef and author’s favorite gifts is homemade apricot jam, which she makes “specifically to be able to share it with people.”`\
-https://nytimes.com/2024/12/04/style/samin-nosrat-holiday-gifts.html
-
-**Quote of the Day: In Angola, Biden Warns That Slavery’s History Should Not Be Erased**\
-`Quotation of the Day for Wednesday, December 4, 2024.`\
-https://nytimes.com/2024/12/03/pageoneplus/quote-of-the-day-in-angola-biden-warns-that-slaverys-history-should-not-be-erased.html
-
-**A Brand-New Checklist for Japan’s Seasoned Travelers**\
-`Think you’ve seen most of Japan? Think again. The country’s lesser-known gems, from Hokuriku, Matsumoto and Takayama to Aso and Okinawa, promise pristine natural beauty, authentic cultural richness and remarkable adventures. `\
-https://nytimes.com/paidpost/japan-tourism-agency/a-brand-new-checklist-for-japans-seasoned-travelers.html
-
-**Have You Really Been to Japan if You Haven’t Been to These Places? **\
-`Japan’s appeal to tourists is indisputable, but most visitors flock to Tokyo, Kyoto and Osaka. For a more discerning and immersive experience, an extraordinary escape to the south — where spirituality and culture blend in harmony — may be the answer. 
-`\
-https://nytimes.com/paidpost/japan-tourism-agency/have-you-really-been-to-japan-if-you-havent-been-to-these-places.html
-
-**How the Canucks fell just short of Kirill Kaprizov and the Wild: 3 takeaways**\
-`The Canucks showed a lot of grit in their six-game road swing, but it ended with a 3-2 overtime loss to the Wild.`\
-https://nytimes.com/athletic/5968094/2024/12/03/canucks-wild-kirill-kaprizov-takeaways/
-
-**In signing Blake Snell, the Dodgers continue to operate in a different financial ballpark**\
-`Snell put on a Dodgers uniform for the first time and said: "It's just something you want to be a part of."`\
-https://nytimes.com/athletic/5968096/2024/12/03/dodgers-blake-snell-contract/
 
