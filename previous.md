@@ -1,3 +1,15 @@
+**Here are the latest developments.**\
+`By Victoria Kim, Minho Kim, John Yoon and Choe Sang-Hun`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law/here-are-the-latest-developments
+
+**Live Updates: Fury in South Korea After President Imposes Martial Law**\
+`President Yoon Suk Yeol’s top aides offered to resign hours after he rescinded his extraordinary order. Protesters are calling for his resignation as lawmakers prepare to meet.`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law
+
+**Chido Obi - The under-18 record goalscorer who left Arsenal for Manchester United**\
+`Chido Obi was spotted and signed by Arsenal but just became the U18 Premier League's all-time record goalscorer playing for Man Utd`\
+https://nytimes.com/athletic/5880274/2024/12/04/chido-obi-manchester-united-arsenal/
+
 **California Democrat Flips Seat in the Last House Race to Be Decided**\
 `Adam Gray, a former state lawmaker, defeated Representative John Duarte, a Republican, in a reversal of their 2022 race.`\
 https://nytimes.com/2024/12/04/us/politics/california-house-gray-duarte.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5965996/2024/12/04/brentford-lose-ivan-toney-improv
 **Week 14 fantasy football rankings: Sleepers, projections, starts, sits | Caleb Williams, Jordan Addison and more**\
 `Can Caleb Williams lead you to the playoffs? He's a sleeper for Jake Ciely, who breaks down the matchups and ranks the players for Week 14.`\
 https://nytimes.com/athletic/5967386/2024/12/04/week-14-fantasy-football-rankings-sleepers-projections-starts-sits/
-
-**Newcastle vs Liverpool preview, odds, prediction: Reds hope to extend league lead**\
-`Newcastle are still in contention for a top-four place, but will have a tough test with league-leading Liverpool coming for a visit.`\
-https://nytimes.com/athletic/5966250/2024/12/04/newcastle-liverpool-preview-odds-prediction/
-
-**How a Country’s Economy Was Siphoned Dry**\
-`Bangladesh’s currency was battered by what the new head of the central bank says was the looting of the banks under the deposed prime minister.`\
-https://nytimes.com/2024/12/04/business/bangladesh-banks.html
-
-**Arsenal vs Manchester United preview, odds, prediction: Amorim's first tough test**\
-`Ruben Amorim's first league match went well. How will the Red Devils fare in his first tough test?`\
-https://nytimes.com/athletic/5966171/2024/12/04/arsenal-manchester-united-preview-odds-prediction/
 
