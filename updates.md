@@ -1,3 +1,11 @@
+**Penguins Today: A Pettersson dilemma and a convergence of Pittsburgh’s Stanley Cup GMs**\
+`It’s time to talk about Marcus Pettersson. Plus: Another Penguins hockey ops hire and a homecoming for Pittsburgh's management greats.`\
+https://nytimes.com/athletic/5968905/2024/12/04/penguins-marcus-pettersson-nhl-stanley-cup/
+
+**A Year Among My Fellow Banned Writers**\
+`Removing books from schools robs us of important opportunities to understand each other, and ourselves.`\
+https://nytimes.com/2024/12/04/special-series/sandra-cisneros-banned-books.html
+
 **Guardian Journalists Strike Over Planned Sale of Sister Publication**\
 `Workers have begun a 48-hour walkout, the first in 50 years for the outlet, over a proposal to sell The Observer to Tortoise Media, a digital media start-up.`\
 https://nytimes.com/2024/12/04/business/guardian-strike-observer.html
