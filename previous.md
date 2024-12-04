@@ -1,3 +1,11 @@
+**The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca rotating and some hair-pulling**\
+`Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southamptona`\
+https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurella-nkunku-madueke/
+
+**The Best Movies and TV Shows Coming to Netflix in December**\
+`This month has a ton of new titles arriving for U.S. subscribers, including a Nate Bargatze special and the return of “Squid Game.”`\
+https://nytimes.com/2024/12/04/arts/television/new-netflix-movies-shows-december.html
+
 **The Briefing: Man City 3-0 N Forest - De Bruyne's welcome return and are City back, or still shaky?**\
 `Our writers analyse the game from the Etihad as Pep Guardiola's side end their seven-game winless run.`\
 https://nytimes.com/athletic/5957340/2024/12/04/manchester-city-de-bruyne-grealish/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5969975/2024/12/04/ravens-suspend-diontae-johnson-t
 **Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
 `Let us know what's on your mind during Denver's bye week.`\
 https://nytimes.com/athletic/5969757/2024/12/04/broncos-mailbag-bye-week/
-
-**Thursday Briefing: An Impeachment Motion in South Korea**\
-`Plus, what’s your favorite holiday tradition?`\
-https://nytimes.com/2024/12/04/briefing/south-korea-france-trump.html
-
-**Alex Cooper Says She’s Not the ‘Next Howard Stern’**\
-`“I don’t care if people consider me a journalist or a podcaster, or just a girl that talks online every week,” Ms. Cooper said at the DealBook Summit.`\
-https://nytimes.com/2024/12/04/business/dealbook/alex-cooper-call-her-daddy-unwell.html
 

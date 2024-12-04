@@ -1,3 +1,11 @@
+**The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca rotating and some hair-pulling**\
+`Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southamptona`\
+https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurella-nkunku-madueke/
+
+**The Best Movies and TV Shows Coming to Netflix in December**\
+`This month has a ton of new titles arriving for U.S. subscribers, including a Nate Bargatze special and the return of “Squid Game.”`\
+https://nytimes.com/2024/12/04/arts/television/new-netflix-movies-shows-december.html
+
 **The Briefing: Man City 3-0 N Forest - De Bruyne's welcome return and are City back, or still shaky?**\
 `Our writers analyse the game from the Etihad as Pep Guardiola's side end their seven-game winless run.`\
 https://nytimes.com/athletic/5957340/2024/12/04/manchester-city-de-bruyne-grealish/
