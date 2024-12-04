@@ -1,3 +1,11 @@
+**Lawmakers Move to Impeach South Korean Leader After Failed Martial Law Bid**\
+`President Yoon Suk Yeol’s attempt to break a political deadlock by imposing military rule collapsed within hours, leaving him with few defenders. A vote to impeach him could come as soon as Friday.`\
+https://nytimes.com/2024/12/04/world/asia/south-korea-impach-yoon.html
+
+**E.P.A. Again Seeks Limits on a Harmful Pesticide**\
+`After a court overturned a ban, the agency has proposed restricting chlorpyrifos to 11 food crops, illustrating the limits of federal regulation.`\
+https://nytimes.com/2024/12/04/health/epa-chlorpyrifos-kennedy.html
+
 **Sam Altman Downplays the Dangers of A.I. and Musk**\
 `The chief executive of OpenAI said the technology would boost productivity and rejected worries that his rival mogul could use his political influence to harm competitors.`\
 https://nytimes.com/2024/12/04/business/dealbook/sam-altman-openai-elon-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/arts/dance/review-kyle-abraham-park-avenue-armory
 **Sam Altman Says Artificial General Intelligence Is on the Horizon**\
 `Speaking at The New York Times DealBook Summit, Sam Altman, the chief executive of OpenAI, said that the arrival of artificial general intelligence would “matter much less” to the average person than currently thought.`\
 https://nytimes.com/video/business/100000009858580/sam-altman-openai-dealbook.html
-
-**2 in Critical Condition and Dozens Displaced After Senior Center Fire**\
-`More than 95 firefighters responded on Tuesday night to a four-alarm fire at a senior housing facility in Edison, N.J., according to officials.`\
-https://nytimes.com/2024/12/04/nyregion/edison-nj-senior-center-fire.html
-
-**Brian Thompson Was a Veteran Executive at UnitedHealthcare**\
-`Mr. Thompson managed a division that employs about 140,000 people and offers insurance plans to employers and individuals.`\
-https://nytimes.com/2024/12/04/nyregion/brian-thompson-unitedhealthcare.html
 

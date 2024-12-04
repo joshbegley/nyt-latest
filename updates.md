@@ -1,3 +1,11 @@
+**Lawmakers Move to Impeach South Korean Leader After Failed Martial Law Bid**\
+`President Yoon Suk Yeol’s attempt to break a political deadlock by imposing military rule collapsed within hours, leaving him with few defenders. A vote to impeach him could come as soon as Friday.`\
+https://nytimes.com/2024/12/04/world/asia/south-korea-impach-yoon.html
+
+**E.P.A. Again Seeks Limits on a Harmful Pesticide**\
+`After a court overturned a ban, the agency has proposed restricting chlorpyrifos to 11 food crops, illustrating the limits of federal regulation.`\
+https://nytimes.com/2024/12/04/health/epa-chlorpyrifos-kennedy.html
+
 **Sam Altman Downplays the Dangers of A.I. and Musk**\
 `The chief executive of OpenAI said the technology would boost productivity and rejected worries that his rival mogul could use his political influence to harm competitors.`\
 https://nytimes.com/2024/12/04/business/dealbook/sam-altman-openai-elon-musk.html
