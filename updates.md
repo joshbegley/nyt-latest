@@ -1,3 +1,15 @@
+**Behind Nikola Jokić's scoring, the Nuggets streak to finish line against Warriors**\
+`Trailing by seven with under three minutes left, Denver made all the effort plays down the stretch and got 38 points its three-time MVP.`\
+https://nytimes.com/athletic/5968306/2024/12/04/nikola-jokic-nuggets-warriors-win/
+
+**Hegseth’s Support With Trump Teeters as He Faces a Series of Critical Tests**\
+`President-elect Donald Trump’s pick to become defense secretary will meet with senators and appear on television as accusations of past misconduct threaten his nomination.`\
+https://nytimes.com/2024/12/04/us/politics/hegseth-trump-defense.html
+
+**Could WR be in play for Cowboys in first round of April's NFL Draft?**\
+`While the Cowboys have plenty of holes to fill, The Athletic's Dane Brugler projects Missouri WR Luther Burden III to the Cowboys. `\
+https://nytimes.com/athletic/5967942/2024/12/04/cowboys-nfl-draft-projection-receiver-luther-burden/
+
 **Why South Korea’s Leader, Desperate and Frustrated, Made a Fateful Decision**\
 `​A day after he declared — and then withdrew — martial law, President Yoon Suk Yeol was politically isolated as observers pondered his future in leadership.`\
 https://nytimes.com/2024/12/04/world/asia/south-korea-yoon-martial-law.html
