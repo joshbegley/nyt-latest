@@ -1,3 +1,7 @@
+**Is Ohio State a lock to host a Playoff game? What we learned from Tuesday's rankings**\
+`The committee chose Ohio State in a debate against Tennessee, which could determine the final first-round host on Sunday.`\
+https://nytimes.com/athletic/5967763/2024/12/03/ohio-state-college-football-playoff-rankings-home/
+
 **Ding dong, Miami’s dead, but did Ole Miss deserve the CFP rankings nod over Alabama?**\
 `It’s not Miami’s fault that it didn’t play Clemson and SMU this season, but it’s not to Miami’s credit either.`\
 https://nytimes.com/athletic/5967796/2024/12/03/college-football-playoff-miami-alabama-smu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5967592/2024/12/03/juan-soto-signing-update-600-mil
 **Montana Lawmakers Reject Bid to Restrict Bathroom Use for Trans Legislators**\
 `The proposal would have effectively barred transgender women from using the State Capitol restroom for female lawmakers. Some Republicans joined Democrats in voting it down.`\
 https://nytimes.com/2024/12/03/us/montana-transgender-bathrooms-zooey-zephyr.html
-
-**49ers minutia minute: Two little-used players shined in the snow; young RB added**\
-`Guard Ben Bartch and defensive tackle Evan Anderson got their first-ever starts for the 49ers and both played well in snowy Buffalo.`\
-https://nytimes.com/athletic/5967305/2024/12/03/49ers-isaac-guerendo-evan-anderson/
 
