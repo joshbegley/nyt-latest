@@ -1,3 +1,7 @@
+**How Can I Show My Boyfriend My Parents’ Filthy Home?**\
+`A reader dreads the thought of her partner seeing her squalid childhood home, but being honest with her parents about her embarrassment is a nonstarter.`\
+https://nytimes.com/2024/12/04/style/childhood-home-visit-partner.html
+
 **Chanel’s Answer to the China Question**\
 `The house goes all out for its V.I.C.’s.`\
 https://nytimes.com/2024/12/04/style/chanel-china.html
