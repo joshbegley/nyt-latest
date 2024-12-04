@@ -1,3 +1,7 @@
+**Rohit Bal, an Exuberant Star of Indian Fashion, Dies at 63**\
+`Known as “the bad boy of fashion,” he was among a wave of designers who created modern Indian couture by updating traditional garments.`\
+https://nytimes.com/2024/12/04/style/rohit-bal-dead.html
+
 **Fatal Shooting of Brian Thompson, UnitedHealthcare C.E.O.: What We Know**\
 `Mr. Thompson was on his way to an investors’ gathering when he was killed by a masked shooter who fled on an electric Citi Bike, the police said.`\
 https://nytimes.com/2024/12/04/nyregion/unitedhealthcare-brian-thompson-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/us/school-shooting-oroville-california.html
 **UnitedHealthcare C.E.O. Killed in ‘Brazen, Targeted Attack,’ Police Say**\
 `The police are searching for the suspect in the fatal shooting of Brian Thompson, the chief executive of UnitedHealthcare, near a Midtown Manhattan hotel on Wednesday morning.`\
 https://nytimes.com/video/nyregion/100000009858797/unitedhealthcare-ceo-midtown-manhattan-shooting.html
-
-**Experts Say GLP-1 Drugs Have Potential Use Beyond Weight Loss**\
-`Speaking at The New York Times’s DealBook Summit, Eli Lilly’s chief executive and an obesity medicine specialist discussed the potential for wildly popular weight-loss drugs to be used to treat many other conditions.`\
-https://nytimes.com/video/business/100000009859991/obesity-glp-1-dealbook.html
 
