@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`A political crisis in South Korea.`\
+https://nytimes.com/2024/12/04/briefing/south-korea-ukraine-nato.html
+
 **For Some Koreans, Martial Law Brings Back Frightening Memories**\
 `“I immediately thought of 1980, and the fear and desperation we felt,” said a 60-year-old lawmaker who lived through the massacre of protesters in Gwangju.`\
 https://nytimes.com/2024/12/04/world/asia/south-korea-martial-law-gwangju-1980.html
