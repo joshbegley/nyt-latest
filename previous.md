@@ -1,3 +1,23 @@
+**Bill Clinton Defends Joe Biden’s Decision to Pardon His Son Hunter**\
+`Speaking at The New York Times DealBook Summit, former President Bill Clinton argued that President Biden had reason to issue the pardon, but wished Mr. Biden had not repeatedly said he would not do so.`\
+https://nytimes.com/video/business/100000009859058/bill-clinton-biden-pardon-dealbook.html
+
+**The court’s decision could affect other trans rights cases, experts say.**\
+`By Amy Harmon`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/the-courts-decision-could-affect-other-trans-rights-cases-experts-say
+
+**They Were the Last of Their Kind, in Captivity. Can 5 Survive the Wild?**\
+`Researchers are trying a new strategy to reintroduce Hawaiian crows, which have been extinct in the wild for two decades.`\
+https://nytimes.com/2024/12/04/climate/hawaiian-crows-alala.html
+
+**Double Olympic champion Tom Pidcock to leave INEOS Grenadiers**\
+`Double Olympic gold-medallist Tom Pidcock is to leave cycling team INEOS Grenadiers at the end of this season.`\
+https://nytimes.com/athletic/5969610/2024/12/04/tom-pidcock-ineos-grenadiers-exit/
+
+**Trump nominates Gail Slater to head Justice Department’s antitrust efforts.**\
+`T`\
+https://nytimes.com/live/2024/12/04/us/trump-news/trump-gail-slater-antitrust-justice-department
+
 **The Last Time Alcohol Poisoned a Defense Nomination**\
 `Pete Hegseth is not the first.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/hegseth-alcohol-defense-tower
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/04/us/trump-supreme-court-transgender-rights.html
 **Bill Clinton Defends the Hunter Biden Pardon, but Suggests It Was Mishandled**\
 `The former president, speaking at the DealBook Summit, suggested that he understood the move but that he wished President Biden “hadn’t said he wasn’t going to do it.”`\
 https://nytimes.com/2024/12/04/business/dealbook/bill-clinton-hunter-biden-pardon.html
-
-**FIFA exploring expanding Women's World Cup to 48 teams**\
-`FIFA is open to exploring expanding the Women&#8217;s World Cup to 48 teams — with some member associations lobbying for it to happen.`\
-https://nytimes.com/athletic/5968956/2024/12/04/womens-world-cup-48-teams/
-
-**Connecticut Sun hire Rachid Meziane as next head coach**\
-`Meziane joins the Sun after most recently coaching the Belgium national team and the French professional club Villeneuve d’Ascq.`\
-https://nytimes.com/athletic/5969266/2024/12/04/connecticut-sun-coaching-hire-rachid-meziane/
-
-**Israel’s Military Says Hostages Were Likely Killed by Hamas as Airstrike Hit**\
-`The six hostages, whose bodies were found in Gaza over the summer, were probably shot in February by their captors as an Israeli strike hit close to the tunnel where they were held, the military said.`\
-https://nytimes.com/2024/12/04/world/middleeast/israel-gaza-hamas-hostages.html
-
-**Elon Musk Is on a Lot of Billionaires’ Minds**\
-`At the DealBook summit, some billionaires and political leaders marveled at the tech mogul’s reach, access to the levers of power, and staggering wealth.`\
-https://nytimes.com/2024/12/04/business/dealbook/elon-musk-trump-sam-altman.html
-
-**Le Normand in contention for Atletico Madrid return after brain injury**\
-`Atletico Madrid coach Diego Simeone says Robin Le Normand is ready to return to action in Thursday&#8217;s Copa del Rey fixture two months on from suffering a traumatic brain injury.`\
-https://nytimes.com/athletic/5969489/2024/12/04/robin-le-normand-injury-return/
 

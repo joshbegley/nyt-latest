@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5969610/2024/12/04/tom-pidcock-ineos-grenadiers-exi
 
 **Trump nominates Gail Slater to head Justice Department’s antitrust efforts.**\
 `T`\
-https://nytimes.com/live/2024/12/04/us/trump-news/trump-gail-slater-antitrust-justice-department
+https://nytimes.com/2024/12/04/us/politics/trump-gail-slater-antitrust-justice-department.html
 
 **The Last Time Alcohol Poisoned a Defense Nomination**\
 `Pete Hegseth is not the first.`\
