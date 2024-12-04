@@ -1,3 +1,15 @@
+**Late Night Razzes Trump Over His Upcoming Visit to Notre-Dame**\
+`“If all goes according to plan, he would like to buy it and turn it into a casino,” Jimmy Kimmel said of the Paris cathedral on Tuesday.`\
+https://nytimes.com/2024/12/04/arts/television/late-night-trump-notre-dame.html
+
+**'Sacked in the morning' chants for Lopetegui after West Ham hit 31 shots but lose again**\
+`Lopetegui says the only thing he's "worried" about is preparing for the next game against Wolves. It's not certain he makes it that far`\
+https://nytimes.com/athletic/5966812/2024/12/04/sacked-in-the-morning-chants-for-lopetegui-after-west-ham-hit-31-shots-but-lose-again/
+
+**Word of the Day: umber**\
+`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/04/learning/word-of-the-day-umber.html
+
 **Crystal Palace seek one moment of magic to coax Eberechi Eze back to his best**\
 `The England forward offered flashes of his quality in the win at Ipswich, but is still weighed down by expectation and needs more support`\
 https://nytimes.com/athletic/5958885/2024/12/04/palace-eze-glasner-mateta/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5968222/2024/12/04/wild-kaprizov-overtime-canucks-g
 **Wednesday Briefing**\
 `A political crisis in South Korea.`\
 https://nytimes.com/2024/12/04/briefing/south-korea-ukraine-nato.html
-
-**For Some Koreans, Martial Law Brings Back Frightening Memories**\
-`“I immediately thought of 1980, and the fear and desperation we felt,” said a 60-year-old lawmaker who lived through the massacre of protesters in Gwangju.`\
-https://nytimes.com/2024/12/04/world/asia/south-korea-martial-law-gwangju-1980.html
-
-**Gomez is the low-key troubleshooter Liverpool cannot live without**\
-`Versatile defender is set for an extended run in the team - and history suggests he will not let Arne Slot down`\
-https://nytimes.com/athletic/5965815/2024/12/04/joe-gomez-liverpool-newcastle/
-
-**Tyrese Haliburton calls out Pacers’ ‘embarrassing’ play and his own leadership**\
-`The reigning Eastern Conference finalists are struggling, and their leader said it's time for self-examination.`\
-https://nytimes.com/athletic/5968166/2024/12/04/tyrese-haliburton-pacers-raptors/
 
