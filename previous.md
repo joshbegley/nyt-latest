@@ -1,3 +1,15 @@
+**Investors, and the Fed’s chair, are being cautious about crypto.**\
+`By Danielle Kaye`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/investors-and-the-feds-chair-are-being-cautious-about-crypto
+
+**College football conference title game model projections for all 9 games**\
+`Austin Mock's projection model has projected point differentials and point totals for all nine college football conference title games.`\
+https://nytimes.com/athletic/5969839/2024/12/04/college-football-title-game-model-projections/
+
+**Russian General Calls U.S. Chairman of Joint Chiefs**\
+`In a highly unusual call, the two men “discussed a number of global and regional security issues, to include the ongoing conflict in Ukraine,” a spokesman said.`\
+https://nytimes.com/2024/12/04/us/politics/russian-general-call.html
+
 **Wild's Joel Eriksson Ek sidelined week to week with lower-body injury**\
 `Eriksson Ek was injured in overtime Tuesday night when he was checked by the Vancouver Canucks’ Jake DeBrusk.`\
 https://nytimes.com/athletic/5969966/2024/12/04/wild-joel-eriksson-ek-lower-body-injury-out/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/04/special-series/gustavo-dudamel-youth-orchestra.ht
 **Rockefeller Christmas Tree Lighting in Midtown to Go On as Planned**\
 `An official with the N.Y.P.D. said there would be a “massive police presence” for the event on Wednesday night, including aviation and canine units.`\
 https://nytimes.com/2024/12/04/nyregion/rockefeller-christmas-tree-lighting-midtown-shooting.html
-
-**Eric Adams Proposes Tax Cut for More Than 500,000 New Yorkers**\
-`Under indictment and facing re-election, Mr. Adams has turned his attention to the city’s affordability crisis.`\
-https://nytimes.com/2024/12/04/nyregion/adams-income-tax-cut-nyc.html
-
-**Sweden announces roster for 4 Nations: Snubs, surprises and expectations**\
-`The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
-https://nytimes.com/athletic/5966365/2024/12/04/sweden-4-nations-face-off-roster/
-
-**NFL Week 14 playoff scenarios: How 3 more teams can clinch playoff spots**\
-`As the Chiefs look to close the book on the AFC West, the Lions, Vikings and Eagles look to be the first NFC teams to clinch playoff berths.`\
-https://nytimes.com/athletic/5969688/2024/12/04/week-14-playoff-clinch-berth/
 

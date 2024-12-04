@@ -1,3 +1,15 @@
+**Investors, and the Fed’s chair, are being cautious about crypto.**\
+`By Danielle Kaye`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/investors-and-the-feds-chair-are-being-cautious-about-crypto
+
+**College football conference title game model projections for all 9 games**\
+`Austin Mock's projection model has projected point differentials and point totals for all nine college football conference title games.`\
+https://nytimes.com/athletic/5969839/2024/12/04/college-football-title-game-model-projections/
+
+**Russian General Calls U.S. Chairman of Joint Chiefs**\
+`In a highly unusual call, the two men “discussed a number of global and regional security issues, to include the ongoing conflict in Ukraine,” a spokesman said.`\
+https://nytimes.com/2024/12/04/us/politics/russian-general-call.html
+
 **Wild's Joel Eriksson Ek sidelined week to week with lower-body injury**\
 `Eriksson Ek was injured in overtime Tuesday night when he was checked by the Vancouver Canucks’ Jake DeBrusk.`\
 https://nytimes.com/athletic/5969966/2024/12/04/wild-joel-eriksson-ek-lower-body-injury-out/
