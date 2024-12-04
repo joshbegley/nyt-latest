@@ -1,3 +1,7 @@
+**Donald Trump and Pete Hegseth Have the Same Enemies**\
+`He, too, wants to fight the “enemy within.”`\
+https://nytimes.com/2024/12/04/opinion/pete-hegseth-trump-pentagon.html
+
 **Trump to Nominate Gail Slater to Head Justice Department’s Antitrust Efforts**\
 `If confirmed as assistant attorney general for the antitrust division, she would inherit lawsuits to break up Google’s search monopoly and ad tech dominance, as well as a case accusing Apple of making it hard for consumers to switch software and hardware.`\
 https://nytimes.com/2024/12/04/us/politics/trump-gail-slater-antitrust-justice-department.html
