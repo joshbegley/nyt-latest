@@ -1,3 +1,15 @@
+**Sam Altman Says Artificial General Intelligence Is on the Horizon**\
+`Speaking at The New York Times DealBook Summit, Sam Altman, the chief executive of OpenAI, said that the arrival of artificial general intelligence would “matter much less” to the average person than currently thought.`\
+https://nytimes.com/video/business/100000009858580/sam-altman-openai-dealbook.html
+
+**2 in Critical Condition and Dozens Displaced After Senior Center Fire**\
+`More than 95 firefighters responded on Tuesday night to a four-alarm fire at a senior housing facility in Edison, N.J., according to officials.`\
+https://nytimes.com/2024/12/04/nyregion/edison-nj-senior-center-fire.html
+
+**College Football Playoff 2024 projections: What will Sunday's final bracket look like?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/04/college-football-playoff-projections-odds/
+
 **Brian Thompson Was a Veteran Executive at UnitedHealthcare**\
 `Mr. Thompson managed a division that employs about 140,000 people and offers insurance plans to employers and individuals.`\
 https://nytimes.com/2024/12/04/nyregion/brian-thompson-unitedhealthcare.html
