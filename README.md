@@ -1,3 +1,19 @@
+**What to Know About Hannah Kobayashi, Who Was Reported Missing in California**\
+`The search drew national attention after she flew from Maui to Los Angeles and did not board a connecting flight to New York. The police later said she had crossed into Mexico on foot.`\
+https://nytimes.com/article/hannah-kobayashi-missing-mexico.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`Matt Eberflus is gone, Thomas Brown is in charge and the Bears hope to snap a six-game losing streak when they face the 49ers on Sunday.`\
+https://nytimes.com/athletic/5970244/2024/12/04/bears-mailbag-questions-41/
+
+**Chief Executive of Insurance Giant Is Gunned Down Outside Midtown Hotel**\
+`Brian Thompson, the head of UnitedHealthcare, was the victim of what the police said was a targeted shooting. His killer shot him in the back, then walked coolly away.`\
+https://nytimes.com/2024/12/04/nyregion/unitedhealthcare-ceo-brian-thompson-shooting.html
+
+**Sooners QB carousel continues; starter Arnold announces intent to transfer**\
+`The announcement comes two days after Oklahoma poached Washington State OC Ben Arbuckle for the same role with the Sooners. `\
+https://nytimes.com/athletic/5970198/2024/12/04/oklahoma-sooners-quarterback-jackson-arnold-tranfer-portal/
+
 **The Briefing: Newcastle 3-3 Liverpool - Kelleher's late error costly as Isak and Co shine again**\
 `Newcastle and Liverpool served up a 3-3 draw in keeping with their history of thrilling Premier League matches`\
 https://nytimes.com/athletic/5957341/2024/12/04/newcastle-3-liverpool-3-kelleher-isak/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurell
 **The Best Movies and TV Shows Coming to Netflix in December**\
 `This month has a ton of new titles arriving for U.S. subscribers, including a Nate Bargatze special and the return of “Squid Game.”`\
 https://nytimes.com/2024/12/04/arts/television/new-netflix-movies-shows-december.html
-
-**The Briefing: Man City 3 Nottingham Forest 0 - De Bruyne's welcome return and are City back?**\
-`Our writers analyse the game from the Etihad as Pep Guardiola's side end their seven-game winless run`\
-https://nytimes.com/athletic/5957340/2024/12/04/manchester-city-de-bruyne-grealish/
-
-**Mike Johnson’s Newest Headache: the Smallest House Majority in History**\
-`The Republican speaker held on to control of the House, but will preside over an even smaller majority at a time when President-elect Donald J. Trump will need his help to achieve major agenda items.`\
-https://nytimes.com/2024/12/04/us/politics/mike-johnson-smallest-house-majority.html
-
-**Eli Lilly Chief Says He Will Fight for the F.D.A., Challenging Kennedy’s Stance**\
-`The health care giant’s David Ricks defended the agency’s role in reviewing data and ensuring drug safety.`\
-https://nytimes.com/2024/12/04/business/dealbook/eli-lilly-fda-rfk-jr.html
-
-**The Dangerous Precedent of Biden’s Pardon**\
-`It sends a signal that Trump’s abuse of the pardon system was not an aberration.`\
-https://nytimes.com/2024/12/04/opinion/editorials/dangerous-precedent-biden-pardon.html
 
