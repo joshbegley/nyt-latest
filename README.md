@@ -1,3 +1,7 @@
+**Kevin Durant's latest sprain is not a huge deal for the Suns, but it keeps happening**\
+`Sprains are the only thing that's stopped Durant in months. And, in many cases, the Phoenix Suns as well.`\
+https://nytimes.com/athletic/5968327/2024/12/04/kevin-durant-another-sprain-suns-spurs/
+
 **Late Night Razzes Trump Over His Upcoming Visit to Notre-Dame**\
 `“If all goes according to plan, he would like to buy it and turn it into a casino,” Jimmy Kimmel said of the Paris cathedral on Tuesday.`\
 https://nytimes.com/2024/12/04/arts/television/late-night-trump-notre-dame.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/world/asia/south-korea-yoon-impeachment-successor
 **Kaprizov does it again in OT during one intense hockey game: 3 takeaways vs. Canucks**\
 `Kaprizov capped a tightly contested, physical game with an overlong OT shift, a mishap and a game winner.`\
 https://nytimes.com/athletic/5968222/2024/12/04/wild-kaprizov-overtime-canucks-gustavsson/
-
-**Wednesday Briefing**\
-`A political crisis in South Korea.`\
-https://nytimes.com/2024/12/04/briefing/south-korea-ukraine-nato.html
 
