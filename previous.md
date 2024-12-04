@@ -16,7 +16,7 @@ https://nytimes.com/2024/12/04/arts/television/late-night-trump-notre-dame.html
 
 **'Sacked in the morning' chants for Lopetegui after West Ham hit 31 shots but lose again**\
 `Lopetegui says the only thing he's "worried" about is preparing for the next game against Wolves. It's not certain he makes it that far`\
-https://nytimes.com/athletic/5966812/2024/12/04/sacked-in-the-morning-chants-for-lopetegui-after-west-ham-hit-31-shots-but-lose-again/
+https://nytimes.com/athletic/5966812/2024/12/04/sacked-chants-lopetegui-west-ham/
 
 **Word of the Day: umber**\
 `This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\

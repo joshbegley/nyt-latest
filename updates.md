@@ -1,3 +1,7 @@
+**'Sacked in the morning' chants for Lopetegui after West Ham hit 31 shots but lose again**\
+`Lopetegui says the only thing he's "worried" about is preparing for the next game against Wolves. It's not certain he makes it that far`\
+https://nytimes.com/athletic/5966812/2024/12/04/sacked-chants-lopetegui-west-ham/
+
 **Giving**\
 `To what causes and organizations would you most like to donate? Why?`\
 https://nytimes.com/2024/12/04/learning/giving.html
