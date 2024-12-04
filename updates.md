@@ -1,3 +1,15 @@
+**Could Dark Chocolate Reduce Your Risk of Diabetes?**\
+`A new study suggests that it might. We asked experts if that’s too good to be true.`\
+https://nytimes.com/2024/12/04/well/eat/dark-chocolate-diabetes-study.html
+
+**Gunman Shoots 2 Students at Rural California School, Officials Say**\
+`The gunman at the Feather River Adventist School in Oroville, Calif., later died of what appeared to have been a self-inflicted gunshot wound, the authorities said.`\
+https://nytimes.com/2024/12/04/us/school-shooting-oroville-california.html
+
+**UnitedHealthcare C.E.O. Killed in ‘Brazen, Targeted Attack,’ Police Say**\
+`The police are searching for the suspect in the fatal shooting of Brian Thompson, the chief executive of UnitedHealthcare, near a Midtown Manhattan hotel on Wednesday morning.`\
+https://nytimes.com/video/nyregion/100000009858797/unitedhealthcare-ceo-midtown-manhattan-shooting.html
+
 **Google C.E.O. Comments On Landmark Monopoly Ruling**\
 `Andrew Ross Sorkin, the DealBook editor-at-large, asked the C.E.O. of Google, Sundar Pichai, about the August antitrust ruling that labeled Google as an illegal monopoly.`\
 https://nytimes.com/video/business/dealbook/100000009859994/dealbook-google-monopoly.html
