@@ -1,3 +1,7 @@
+**Juan Soto bidding reaches $600M, MLB sources say; process of eliminating teams underway**\
+`The expectation within the industry is that Soto will make his decision by the end of the Winter Meetings next week.`\
+https://nytimes.com/athletic/5967592/2024/12/03/juan-soto-signing-update-600-million/
+
 **Montana Lawmakers Reject Bid to Restrict Bathroom Use for Trans Legislators**\
 `The proposal would have effectively barred transgender women from using the State Capitol restroom for female lawmakers. Some Republicans joined Democrats in voting it down.`\
 https://nytimes.com/2024/12/03/us/montana-transgender-bathrooms-zooey-zephyr.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/03/business/blackrock-hbs-private-credit.html
 **South Korea President Declares Martial Law, Then Backs Down**\
 `Soon after President Yoon Suk Yeol’s declaration on Tuesday, lawmakers voted to defy him, prompting the president to say he was lifting his order.`\
 https://nytimes.com/2024/12/03/world/asia/south-korea-martial-law.html
-
-**Wrexham 1 Barnsley 0: A '100-year-old' goalkeeper, Danny DeVito and a vital win**\
-`The big talking points dominating discussion of another vital victory for Phil Parkinson's side`\
-https://nytimes.com/athletic/5962488/2024/12/03/wrexham-barnsley-cosm-danny-devito/
 

@@ -1,3 +1,7 @@
+**Juan Soto bidding reaches $600M, MLB sources say; process of eliminating teams underway**\
+`The expectation within the industry is that Soto will make his decision by the end of the Winter Meetings next week.`\
+https://nytimes.com/athletic/5967592/2024/12/03/juan-soto-signing-update-600-million/
+
 **Montana Lawmakers Reject Bid to Restrict Bathroom Use for Trans Legislators**\
 `The proposal would have effectively barred transgender women from using the State Capitol restroom for female lawmakers. Some Republicans joined Democrats in voting it down.`\
 https://nytimes.com/2024/12/03/us/montana-transgender-bathrooms-zooey-zephyr.html
