@@ -1,3 +1,7 @@
+**How the Cavaliers offense is tearing up the NBA, even if it doesn't make sense**\
+`The Cavs didn't understand what new coach Keny Atkinson had in store for them when he arrived, but now they have the league's best record.`\
+https://nytimes.com/athletic/5967355/2024/12/04/cavs-offense-nba-best-record/
+
 **Penguins Today: A Pettersson dilemma and a convergence of Pittsburgh’s Stanley Cup GMs**\
 `It’s time to talk about Marcus Pettersson. Plus: Another Penguins hockey ops hire and a homecoming for Pittsburgh's management greats.`\
 https://nytimes.com/athletic/5968905/2024/12/04/penguins-marcus-pettersson-nhl-stanley-cup/

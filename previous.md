@@ -27,7 +27,7 @@ https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/how-do-med
 https://nytimes.com/2024/12/04/us/transgender-care-ban-tennessee.html
 
 **How the Cavaliers offense is tearing up the NBA, even if it doesn't make sense**\
-`The Cavs didn't understand what new coach Keny Atkinson had in store for them when he arrived, but now they have the NBA's best record.`\
+`The Cavs didn't understand what new coach Keny Atkinson had in store for them when he arrived, but now they have the league's best record.`\
 https://nytimes.com/athletic/5967355/2024/12/04/cavs-offense-nba-best-record/
 
 **How the Impeachment of South Korea’s President Could Unfold**\
