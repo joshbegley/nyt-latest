@@ -1,5 +1,9 @@
 **South Korean history is scarred by martial law.**\
 `By Ephrat Livni`\
+https://nytimes.com/2024/12/03/world/asia/martial-law-south-korea-history.html
+
+**South Korean history is scarred by martial law.**\
+`By Ephrat Livni`\
 https://nytimes.com/live/2024/12/03/world/south-korea-martial-law/south-korean-history-is-scarred-by-martial-law
 
 **Ekeler details memory loss, neck pain in first interview since Week 12 concussion**\
