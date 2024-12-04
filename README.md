@@ -1,3 +1,15 @@
+**What I'm seeing from the Islanders: Loser points, Bo Horvat's slump, injury timelines**\
+`Tuesday&#8217;s 2-1 overtime loss in Montreal left the New York Islanders at 9-10-7 and 5-5-5 on the road.`\
+https://nytimes.com/athletic/5968081/2024/12/04/islanders-loser-points-horvat-injuries/
+
+**The Debate Over the Hunter Biden Pardon**\
+`Readers discuss the ongoing political and legal debate over whether the pardon was justified. Also: South Korea’s crisis; tariffs; crosswords.`\
+https://nytimes.com/2024/12/04/opinion/hunter-biden-pardon.html
+
+**Review: Feeling Frazzled? This Dance Reacts to an Age of Anxiety**\
+`In “Dear Lord, Make Me Beautiful,” the choreographer Kyle Abraham experiments with expressing his emotions about the current moment.`\
+https://nytimes.com/2024/12/04/arts/dance/review-kyle-abraham-park-avenue-armory.html
+
 **Sam Altman Says Artificial General Intelligence Is on the Horizon**\
 `Speaking at The New York Times DealBook Summit, Sam Altman, the chief executive of OpenAI, said that the arrival of artificial general intelligence would “matter much less” to the average person than currently thought.`\
 https://nytimes.com/video/business/100000009858580/sam-altman-openai-dealbook.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5969340/2024/12/04/fresno-state-head-coach-usc-matt
 **Matt Rice, Tennessee’s solicitor general, is defending the state’s ban on gender affirming care.**\
 `Mr. Rice, who was once a clerk for Justice Clarence Thomas, is expected to argue that the ban does not violate constitutional rights.`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/matt-rice-tennessees-solicitor-general-is-defending-the-states-ban-on-gender-affirming-care
-
-**China Just Showed Washington How It Plans to Fight the Next Trade War**\
-`Faltering U.S. industrial leadership has allowed China to take a harder trade stance as President-elect Donald Trump prepares to take office.`\
-https://nytimes.com/2024/12/04/business/china-us-trade-export-controls.html
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2024/12/04/opinion/thepoint
-
-**App State coaching job profile: Expectations, ceiling high on The Mountain**\
-`This place has always done best with a coach who helps players and the program overachieve.`\
-https://nytimes.com/athletic/5969119/2024/12/04/appalachian-state-football-job-profile-pluses-minuses-and-candidates-to-replace-shawn-clark/
 
