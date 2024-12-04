@@ -1,3 +1,15 @@
+**Wild's Joel Eriksson Ek sidelined week to week with lower-body injury**\
+`Eriksson Ek was injured in overtime Tuesday night when he was checked by the Vancouver Canucks’ Jake DeBrusk.`\
+https://nytimes.com/athletic/5969966/2024/12/04/wild-joel-eriksson-ek-lower-body-injury-out/
+
+**Read Representative Jerrold Nadler’s Letter**\
+`Mr. Nadler told his Democratic colleagues that he planned to step down as the top Democrat on the House Judiciary Committee next term.`\
+https://nytimes.com/interactive/2024/12/04/us/jn-december-4-2024-letter.html
+
+**Nadler to Relinquish Democrats’ Top Judiciary Post, Bowing to Calls for Change**\
+`Democrats’ longtime leader on the panel faced a challenge from Representative Jamie Raskin, and pressure from colleagues who wanted a younger, more strategic figure at the helm.`\
+https://nytimes.com/2024/12/04/us/politics/nadler-raskin-judiciary-committee.html
+
 **Read Representative Jerrold Nadler’s Letter**\
 `Mr. Nadler told his Democratic colleagues that he plans to step down as the top Democrat on the House Judiciary Committee next term.`\
 https://nytimes.com/interactive/2024/12/04/us/jn-december-4-2024-letter.html
