@@ -1,3 +1,7 @@
+**Real Madrid hire new nutritionist in bid to address injury crisis**\
+`Real Madrid have hired nutritionist Itziar Gonzalez de Arriba in a bid to address the extensive injury problems they have encountered this season.`\
+https://nytimes.com/athletic/5968619/2024/12/04/real-madrid-hire-new-nutritionist-in-bid-to-address-injury-crisis/
+
 **Explaining the Premier League's Rainbow Laces controversy and what comes next**\
 `The Premier League's LGBTQ+ initiative has been overshadowed this week - what has happened and why?`\
 https://nytimes.com/athletic/5969162/2024/12/04/rainbow-laces-premier-league-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/world/africa/biden-angola-africa-lobito-train-cor
 **Ja Morant 'not trying to dunk' as Grizzlies star prioritizes health**\
 `"I'm not trying to dunk at all," Morant said. "Y'all think I'm lying. I'm dead serious."`\
 https://nytimes.com/athletic/5969594/2024/12/04/ja-morant-dunk-grizzlies/
-
-**Now a free agent, a lighter Lance Lynn looks to extend his MLB career into a 15th season**\
-`Since his debut in 2011, Lynn ranks sixth in the majors with 2,006 1/3 innings pitched.`\
-https://nytimes.com/athletic/5969624/2024/12/04/lance-lynn-free-agent-mlb/
 
