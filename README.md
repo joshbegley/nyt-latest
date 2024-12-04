@@ -1,12 +1,16 @@
+**Wild's Joel Eriksson Ek sidelined week to week with lower-body injury**\
+`Eriksson Ek was injured in overtime Tuesday night when he was checked by the Vancouver Canucks’ Jake DeBrusk.`\
+https://nytimes.com/athletic/5969966/2024/12/04/wild-joel-eriksson-ek-lower-body-injury-out/
+
 **Read Representative Jerrold Nadler’s Letter**\
-`Mr. Nadler told his Democratic colleagues that he plans to step down as the top Democrat on the House Judiciary Committee next term.`\
+`Mr. Nadler told his Democratic colleagues that he planned to step down as the top Democrat on the House Judiciary Committee next term.`\
 https://nytimes.com/interactive/2024/12/04/us/jn-december-4-2024-letter.html
 
 **Chiesa plays and scores for Liverpool U21s as injury recovery continues**\
 `Federico Chiesa stepped up his return to full fitness by playing and scoring for Liverpool&#8217;s Under-21s on Wednesday night.`\
 https://nytimes.com/athletic/5969806/2024/12/04/federico-chiesa-injury-liverpool-under-21s/
 
-**Nadler to Relinquish Top Judiciary Post, Bowing to Calls for Change**\
+**Nadler to Relinquish Democrats’ Top Judiciary Post, Bowing to Calls for Change**\
 `Democrats’ longtime leader on the panel faced a challenge from Representative Jamie Raskin, and pressure from colleagues who wanted a younger, more strategic figure at the helm.`\
 https://nytimes.com/2024/12/04/us/politics/nadler-raskin-judiciary-committee.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966365/2024/12/04/sweden-4-nations-face-off-roster
 **NFL Week 14 playoff scenarios: How 3 more teams can clinch playoff spots**\
 `As the Chiefs look to close the book on the AFC West, the Lions, Vikings and Eagles look to be the first NFC teams to clinch playoff berths.`\
 https://nytimes.com/athletic/5969688/2024/12/04/week-14-playoff-clinch-berth/
-
-**Mario Cristobal makes case for Miami to be reconsidered in CFP rankings**\
-`As it stands now, Alabama would be the last at-large team to make the cut and Miami the first one out.`\
-https://nytimes.com/athletic/5969819/2024/12/04/miami-mario-cristobal-college-football-playoff/
 
