@@ -1,5 +1,5 @@
-**South Korean history is scarred by martial law.**\
-`By Ephrat Livni`\
+**South Korean History Is Scarred by Martial Law**\
+`The president’s short-lived declaration of a military emergency late Tuesday was young South Koreans’ first exposure to a state of affairs their elders remember well.`\
 https://nytimes.com/2024/12/03/world/asia/martial-law-south-korea-history.html
 
 **Commanders' Ekeler details memory loss, neck pain after Week 12 concussion**\
