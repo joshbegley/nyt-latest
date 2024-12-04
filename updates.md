@@ -1,3 +1,7 @@
+**Why Matt LaFleur, Jeff Hafley are angry with this Packers mistake: 'It's infuriating'**\
+`The Packers are either first or tied for first in the NFL in offsides penalties, neutral zone infractions and encroachment penalties.`\
+https://nytimes.com/athletic/5966704/2024/12/04/packers-offsides-encroachment-penalties/
+
 **Coming Up This Morning: Ken Griffin, founder of Citadel; Sam Altman, co-founder of OpenAI; Serena Williams; and former President Bill Clinton**\
 `Who will be speaking at the DealBook Summit`\
 https://nytimes.com/2024/12/04/business/dealbook/summitpromo.html

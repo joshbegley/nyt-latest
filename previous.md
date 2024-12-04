@@ -34,7 +34,7 @@ https://nytimes.com/2024/12/04/podcasts/south-korea-trans-rights.html
 `The Astros' aging major-league roster and fallow farm system prompts legitimate concerns about their long-term sustainability. `\
 https://nytimes.com/athletic/5967631/2024/12/04/houston-astros-2024-mlb-winter-meetings-direction/
 
-**Why Matt LaFleur, Jeff Hafley are angry with this Packers' mistake: 'It's infuriating'**\
+**Why Matt LaFleur, Jeff Hafley are angry with this Packers mistake: 'It's infuriating'**\
 `The Packers are either first or tied for first in the NFL in offsides penalties, neutral zone infractions and encroachment penalties.`\
 https://nytimes.com/athletic/5966704/2024/12/04/packers-offsides-encroachment-penalties/
 
