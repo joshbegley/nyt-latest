@@ -1,3 +1,15 @@
+**How good is the FIU job? What's next for the Panthers with Mike MacIntyre gone to FSU**\
+`FIU’s program was founded in 2002, first played FBS games three years later and has had only four winning seasons.`\
+https://nytimes.com/athletic/5968910/2024/12/04/fiu-football-job-profile-candidates/
+
+**UMass expected to hire Rutgers DC Harasymiak as head coach**\
+`The 38-year-old Harasymiak is a New Jersey native who played college football at Springfield in Massachusetts.`\
+https://nytimes.com/athletic/5969140/2024/12/04/umass-football-joe-harasmyiak-head-coach/
+
+**Rangers trade tiers: Who's untouchable, and who could be part of a shake-up**\
+`With the Rangers trying to pull out of a funk, a look at who is most likely to be included in a trade.`\
+https://nytimes.com/athletic/5969000/2024/12/04/rangers-trade-tiers/
+
 **FIFA agrees Club World Cup broadcast deal with DAZN**\
 `FIFA has agreed a deal with DAZN to broadcast next year’s Club World Cup in the United States.`\
 https://nytimes.com/athletic/5969129/2024/12/04/club-world-cup-tv-deal-fifa-dazn/
