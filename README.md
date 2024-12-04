@@ -1,3 +1,15 @@
+**Trump Tax Cuts Won’t Help the Economy Grow, Budget Office Finds**\
+`A larger debt and higher interest rates would cancel out the boost from keeping individual taxes lower, the nonpartisan Congressional Budget Office found.`\
+https://nytimes.com/2024/12/04/business/trump-tax-cuts-economy.html
+
+**Lowetide: Why the Oilers' third line is a productive and underrated unit**\
+`Few teams have depth forwards who can sustain excellence on a line. This year's Oilers appear to be the exception to the rule.`\
+https://nytimes.com/athletic/5966301/2024/12/04/edmonton-oilers-janmark-brown-henrique/
+
+**Mammoth — It’s What Was for Dinner**\
+`A study of a 12,800-year-old skull of a toddler offers a glimpse at how early Americans found food, and how their hunts may have led to a mass extinction.`\
+https://nytimes.com/2024/12/04/science/mammoth-extinction-human-hunting.html
+
 **Micah Hyde re-joins Buffalo Bills after signing to practice squad**\
 `Hyde joins the Bills just in time for a playoff push but expects to take on a practice squad role in the regular season. `\
 https://nytimes.com/athletic/5969609/2024/12/04/micah-hyde-buffalo-bills-practice-squad/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/04/nyregion/hilton-hotel-midtown-shooting.html
 **Israel’s Military Says Hostages Were Likely Killed by Hamas as Airstrike Hit**\
 `The six hostages, whose bodies were found in Gaza over the summer, were probably shot in February by their captors as an Israeli strike hit close to the tunnel where they were held, the military said.`\
 https://nytimes.com/2024/12/04/world/middleeast/israel-gaza-hamas-hostages.html
-
-**Across the aisle, executives and politicians say inflation is still a top concern.**\
-`Inflation, though cooling, remains top of mind for Americans, and a key concern for executives and politicians who spoke at the DealBook Summit.`\
-https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/across-the-aisle-executives-and-politicians-say-inflation-is-still-a-top-concern
-
-**LPGA, USGA restrict gender policies, citing 'competitive advantages'**\
-`Only athletes assigned female at birth or assigned male at birth who did not undergo male puberty can compete in events next year.`\
-https://nytimes.com/athletic/5969612/2024/12/04/lpga-usga-gender-policy-changes-2025/
-
-**49ers’ Christian McCaffrey suffered ‘textbook’ PCL tear on shoestring tackle, surgeon says**\
-`McCaffrey should be fine long term, though it's hard to say whether he'd be able to play again this season if the 49ers made the playoffs.`\
-https://nytimes.com/athletic/5969542/2024/12/04/christian-mccaffrey-49ers-pcl-surgeon/
 
