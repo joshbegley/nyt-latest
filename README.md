@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5968280/2024/12/04/blue-jackets-first-shutout-loss-flames/
 
 **Patrik Laine's storybook Bell Centre debut eclipsed by Canadiens' bigger story**\
-`Laine's second period goal shook the arena, but that moment's meaning to the greater Canadiens story was more significant.`\
+`Laine's second-period goal shook the arena, but that moment's meaning to the greater Canadiens story was more significant.`\
 https://nytimes.com/athletic/5968340/2024/12/04/patrik-laine-debut-canadiens-bigger-story/
 
 **Rockets' Tari Eason held back from running after heckling fan in stands after loss**\
