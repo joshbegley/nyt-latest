@@ -1,3 +1,7 @@
+**Justices’ past comments on bathrooms, sports and dress codes offer hints about where they stand on transgender issues.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-comments-transgendcer
+
 **How the Cavaliers offense is tearing up the NBA, even if it doesn't make sense**\
 `The Cavs didn't understand what new coach Keny Atkinson had in store for them when he arrived, but now they have the league's best record.`\
 https://nytimes.com/athletic/5967355/2024/12/04/cavs-offense-nba-best-record/
