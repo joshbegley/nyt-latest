@@ -14,6 +14,10 @@ https://nytimes.com/2024/12/04/nyregion/brian-thompson-unitedhealthcare.html
 `The draw for next year's Club World Cup takes place on Thursday. This is what you need to know about the controversial new competition`\
 https://nytimes.com/athletic/5952020/2024/12/04/club-world-cup-2025-explainer/
 
+**College Football Playoff 2024 projections: What will Sunday's final bracket look like?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/04/college-football-playoff-projections-odds/
+
 **Fresno State targeting USC linebackers coach Matt Entz for head job: Source**\
 `Matt Entz was wildly successful at North Dakota State. `\
 https://nytimes.com/athletic/5969340/2024/12/04/fresno-state-head-coach-usc-matt-entz/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/04/opinion/thepoint
 **App State coaching job profile: Expectations, ceiling high on The Mountain**\
 `This place has always done best with a coach who helps players and the program overachieve.`\
 https://nytimes.com/athletic/5969119/2024/12/04/appalachian-state-football-job-profile-pluses-minuses-and-candidates-to-replace-shawn-clark/
-
-**Citadel’s Ken Griffin Said He Voted for Trump**\
-`Ken Griffin, the founder and chief executive of Citadel, celebrated President-elect Donald Trump’s win and said, “America is open for business again.”`\
-https://nytimes.com/video/business/dealbook/100000009858367/dealbook-ken-griffin-citadel-trump.html
 
