@@ -1,3 +1,12 @@
+**A Brand-New Checklist for Japan’s Seasoned Travelers**\
+`Think you’ve seen most of Japan? Think again. The country’s lesser-known gems, from Hokuriku, Matsumoto and Takayama to Aso and Okinawa, promise pristine natural beauty, authentic cultural richness and remarkable adventures. `\
+https://nytimes.com/paidpost/japan-tourism-agency/a-brand-new-checklist-for-japans-seasoned-travelers.html
+
+**Have You Really Been to Japan if You Haven’t Been to These Places? **\
+`Japan’s appeal to tourists is indisputable, but most visitors flock to Tokyo, Kyoto and Osaka. For a more discerning and immersive experience, an extraordinary escape to the south — where spirituality and culture blend in harmony — may be the answer. 
+`\
+https://nytimes.com/paidpost/japan-tourism-agency/have-you-really-been-to-japan-if-you-havent-been-to-these-places.html
+
 **How the Canucks fell just short of Kirill Kaprizov and the Wild: 3 takeaways**\
 `The Canucks showed a lot of grit in their six-game road swing, but it ended with a 3-2 overtime loss to the Wild.`\
 https://nytimes.com/athletic/5968094/2024/12/03/canucks-wild-kirill-kaprizov-takeaways/
