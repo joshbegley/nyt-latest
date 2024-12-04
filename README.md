@@ -1,3 +1,7 @@
+**Alyssa Naeher stays true to her stoic ways in final game, but U.S. teammates are full of emotion**\
+`Naeher savored her final game with the USWNT, a win against the Netherlands`\
+https://nytimes.com/athletic/5967823/2024/12/04/uswnt-alyssa-naeher-final-game/
+
 **Martial Law Didn’t Silence South Korea’s Media. It Empowered Them.**\
 `Journalists criticized the president’s attempt to place the press under military control, hardened by years of challenges to press freedoms by the country’s political leaders.`\
 https://nytimes.com/2024/12/04/business/south-korea-news-media-martial-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966812/2024/12/04/sacked-chants-lopetegui-west-ham
 **Word of the Day: umber**\
 `This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/04/learning/word-of-the-day-umber.html
-
-**Crystal Palace seek one moment of magic to coax Eberechi Eze back to his best**\
-`The England forward offered flashes of his quality in the win at Ipswich, but is still weighed down by expectation and needs more support`\
-https://nytimes.com/athletic/5958885/2024/12/04/palace-eze-glasner-mateta/
 
