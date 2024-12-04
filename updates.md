@@ -1,3 +1,7 @@
+**Is Ohio State a lock to host a Playoff game? What we learned from Tuesday's rankings**\
+`The committee chose Ohio State in a debate against Tennessee, which could determine the final first-round host on Sunday.`\
+https://nytimes.com/athletic/5967763/2024/12/03/ohio-state-college-football-playoff-rankings-home/
+
 **Ding dong, Miami’s dead, but did Ole Miss deserve the CFP rankings nod over Alabama?**\
 `It’s not Miami’s fault that it didn’t play Clemson and SMU this season, but it’s not to Miami’s credit either.`\
 https://nytimes.com/athletic/5967796/2024/12/03/college-football-playoff-miami-alabama-smu/
