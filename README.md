@@ -1,3 +1,7 @@
+**On the Border, Texas Shows Trump the Way**\
+`The incoming Trump administration’s new border czar said that Texas provided a “model” for border enforcement. State officials have offered to be a staging ground for mass deportations.`\
+https://nytimes.com/2024/12/04/us/texas-abbott-trump-border.html
+
 **Cowboys Today: Jerry Jones' logic on Rowdy and No. 0; Dak Prescott on Mike McCarthy**\
 `Why can't DeMarvion Overshown wear No. 0? It's no surprise that Dak Prescott feels Mike McCarthy deserves to keep coaching the Cowboys.`\
 https://nytimes.com/athletic/5968338/2024/12/04/cowboys-today-jerry-jones-number-zero-dak-mike-mccarthy/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/us/pete-hegseth-mother-fox-trump.html
 **Ken Griffin Says America Is Open for Business Following Elections**\
 `Mr. Griffin, who had previously derided Donald J. Trump as a “three-time loser,” said he voted for the president-elect.`\
 https://nytimes.com/2024/12/04/business/dealbook/ken-griffin-trump-election.html
-
-**How good is the FIU job? What's next for the Panthers after Mike MacIntyre's firing**\
-`FIU’s program was founded in 2002, first played FBS games three years later and has had only four winning seasons.`\
-https://nytimes.com/athletic/5968910/2024/12/04/fiu-football-job-profile-candidates/
 
