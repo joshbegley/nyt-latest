@@ -1,3 +1,7 @@
+**Tickled Pink**\
+`Daniel Raymon’s puzzle earns top marks.`\
+https://nytimes.com/2024/12/03/crosswords/daily-puzzle-2024-12-04.html
+
 **What to know about Jesper Wallstedt's Iowa reset, David Jiricek's Wild debut and injuries**\
 `Wallstedt's thoughts on his development timeline, when Jiricek might make his debut and injury updates on Jonas Brodin and more.`\
 https://nytimes.com/athletic/5967925/2024/12/03/wild-injuries-david-jiricek-jesper-wallstedt/
