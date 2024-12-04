@@ -1,3 +1,15 @@
+**Solanke to train ahead of Bournemouth trip, 'still not 100 per cent'**\
+`Dominic Solanke is set to train ahead of Tottenham Hotspur&#8217;s trip to Bournemouth on Thursday but Ange Postecoglou says the striker is &#8220;still not 100 per cent&#8221;.`\
+https://nytimes.com/athletic/5968583/2024/12/04/dominic-solanke-fitness-update-tottenham/
+
+**Man Utd scrapped plan for pro-LGBTQ+ walk-out jacket after Mazraoui refusal**\
+`Manchester United players abandoned the club’s plans to wear an Adidas jacket in support of the LGBTQ+ community ahead of Sunday’s Premier League match against Everton after defender Noussair Mazraoui refused to join the initiative.`\
+https://nytimes.com/athletic/5966168/2024/12/04/manchester-united-lgbtq-mazraoui/
+
+**With Assad Challenged, a Push to Cut Syria’s Ties to Iran Grows More Unlikely**\
+`Even as Israel bombarded Syria, officials say the U.S. and Gulf countries were working to weaken its president’s alliance with Tehran. Rebels’ shock advance has dampened those hopes.`\
+https://nytimes.com/2024/12/04/world/middleeast/syria-assad-israel-iran.html
+
 **From Ichiro then to Roki Sasaki now, Pacific Rim scouting has evolved but remains smaller-scale**\
 `The process of scouting players in Japan, Korea and Taiwan is streamlined, but the number of players coming to MLB remains relatively low.`\
 https://nytimes.com/athletic/5967098/2024/12/04/scouting-japan-korea-mlb-roki-sasaki/
