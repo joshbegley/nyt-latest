@@ -1,3 +1,7 @@
+**Miami AD, ACC commish defend Canes: Committee 'really' put in Bama instead?**\
+`Dan Radakovich sounded off on the Canes' exclusion from the Playoff field this week. Is he right or wrong?`\
+https://nytimes.com/athletic/5968023/2024/12/03/miami-athletic-director-alabama-cfp-comments/
+
 **Nearly 300 Troops Stormed South Korean Legislature, Official Says**\
 `The National Assembly’s secretary general, Kim Min-ki, condemned what he called the “illegal, unconstitutional actions of the military.”`\
 https://nytimes.com/2024/12/03/world/asia/south-korea-national-assembly-troops.html
