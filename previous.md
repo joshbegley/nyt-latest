@@ -1,3 +1,7 @@
+**How the Sabres hit new low in panic-filled, historic collapse against Avalanche**\
+`“We’ve had enough wake-up calls,” Tage Thompson said. “It’s terrible. That’s all there is to it.”`\
+https://nytimes.com/athletic/5968252/2024/12/04/sabres-collapse-new-low-avalanche/
+
 **How many games can Leeds afford to lose and still win promotion?**\
 `Leeds lost against Blackburn on Saturday — how bad of a blow is that to promotion hopes?`\
 https://nytimes.com/athletic/5962699/2024/12/04/leeds-loss-defeat-championship-promotion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5880274/2024/12/04/chido-obi-manchester-united-arse
 **California Democrat Flips Seat in the Last House Race to Be Decided**\
 `Adam Gray, a former state lawmaker, defeated Representative John Duarte, a Republican, in a reversal of their 2022 race.`\
 https://nytimes.com/2024/12/04/us/politics/california-house-gray-duarte.html
-
-**Guardiola, Anfield and the grounds that Premier League title winning managers fear most**\
-`Pep Guardiola lost again at Anfield on Sunday — but where do other title-winning managers struggle the most?`\
-https://nytimes.com/athletic/5965970/2024/12/04/premier-league-managerial-hoodoos-title-analysis/
 
