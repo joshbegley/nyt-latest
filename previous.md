@@ -1,3 +1,7 @@
+**Jeff Bezos, Serena Williams and Sam Altman are among the guests at this year’s DealBook Summit.**\
+`By Sarah Kessler`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/jeff-bezos-serena-williams-and-sam-altman-are-among-the-guests-at-this-years-dealbook-summit
+
 **How Can I Show My Boyfriend My Parents’ Filthy Home?**\
 `A reader dreads the thought of her partner seeing her squalid childhood home, but being honest with her parents about her embarrassment is a nonstarter.`\
 https://nytimes.com/2024/12/04/style/childhood-home-visit-partner.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5968863/2024/12/04/mike-uremovich-ball-state-footba
 `Here's how the Magic, Bucks, Hawks, Knicks, Mavericks, Thunder, Warriors and Rockets measure up to each other, and how the NBA Cup could go.`\
 https://nytimes.com/athletic/5968516/2024/12/04/nba-cup-knockout-round-predictions-winner/
 
-**DealBook Summit Live Updates: Business and Global Leaders Set for Day of Discussions**\
+**DealBook Summit Live Updates: Day of Discussions With Business and Global Leaders Begins**\
 `Andrew Ross Sorkin will sit down with nearly a dozen leading figures, including Sam Altman, Jerome Powell, Serena Williams, Jeff Bezos, Bill Clinton and Sundar Pichai.`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news
-
-**Here’s what to expect at the 2024 DealBook Summit.**\
-`By Lauren Hirsch`\
-https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/heres-what-to-expect-at-the-2024-dealbook-summit
 

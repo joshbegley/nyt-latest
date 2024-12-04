@@ -1,3 +1,11 @@
+**Jeff Bezos, Serena Williams and Sam Altman are among the guests at this year’s DealBook Summit.**\
+`By Sarah Kessler`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/jeff-bezos-serena-williams-and-sam-altman-are-among-the-guests-at-this-years-dealbook-summit
+
+**DealBook Summit Live Updates: Day of Discussions With Business and Global Leaders Begins**\
+`Andrew Ross Sorkin will sit down with nearly a dozen leading figures, including Sam Altman, Jerome Powell, Serena Williams, Jeff Bezos, Bill Clinton and Sundar Pichai.`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news
+
 **How Can I Show My Boyfriend My Parents’ Filthy Home?**\
 `A reader dreads the thought of her partner seeing her squalid childhood home, but being honest with her parents about her embarrassment is a nonstarter.`\
 https://nytimes.com/2024/12/04/style/childhood-home-visit-partner.html
