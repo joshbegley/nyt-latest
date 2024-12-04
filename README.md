@@ -1,7 +1,3 @@
-**What’s in Our Queue? ‘Girls Will Be Girls’ and More**\
-`By Priya Krishna`\
-https://nytimes.com/card/2024/12/04/arts/editors-recommendations-girlswillbegirls
-
 **Finland announces roster for 4 Nations: Snubs, surprises and expectations**\
 `The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
 https://nytimes.com/athletic/5966366/2024/12/04/finland-4-nations-face-off-roster/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5969162/2024/12/04/rainbow-laces-premier-league-exp
 **The judge in Hunter Biden’s tax case rejects President Biden’s claims of a political prosecution.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2024/12/04/us/trump-news/joe-biden-pardon-hunter
+
+**U.S. Students Posted Dire Math Declines on an International Test**\
+`On the test, American fourth and eighth graders posted results similar to scores from 1995. It was a sign of notable stagnation, even as other countries saw improvements.`\
+https://nytimes.com/2024/12/04/us/us-math-students-pandemic.html
 

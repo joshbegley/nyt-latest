@@ -1,3 +1,23 @@
+**What’s in Our Queue? ‘Girls Will Be Girls’ and More**\
+`By Priya Krishna`\
+https://nytimes.com/card/2024/12/04/arts/editors-recommendations-girlswillbegirls
+
+**Finland announces roster for 4 Nations: Snubs, surprises and expectations**\
+`The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
+https://nytimes.com/athletic/5966366/2024/12/04/finland-4-nations-face-off-roster/
+
+**Collapse of France’s Government Further Burdens Its Weak Economy**\
+`Already struggling with flat growth and a large debt and deficit, the country faces a new period of instability without a functioning government or a budget.`\
+https://nytimes.com/2024/12/04/business/france-economy-government-collapse.html
+
+**France’s Prime Minister Loses No-Confidence Vote and Is Expected to Resign**\
+`Prime Minister Michel Barnier will most likely remain as a caretaker until a replacement is named. But the vote could further unsettle credit markets and create a wider opening for the far right.`\
+https://nytimes.com/2024/12/04/world/europe/france-no-confidence-barnier.html
+
+**Detroit’s Mayor, a Democrat, Will Run for Michigan Governor as an Independent**\
+`Mike Duggan is shedding the label of his longtime party to seek the state’s highest office, as the term-limited Gretchen Whitmer departs in early 2027.`\
+https://nytimes.com/2024/12/04/us/politics/mike-duggan-michigan-governor-detroit-mayor.html
+
 **USC signs 5-star defensive lineman Jahkeem Stewart,**\
 `The Louisiana native is the No. 16 prospect in the 247Sports Composite in the 2025 recruiting cycle.`\
 https://nytimes.com/athletic/5966964/2024/12/04/usc-recruiting-jahkeem-stewart-five-star/

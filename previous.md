@@ -1,3 +1,23 @@
+**What’s in Our Queue? ‘Girls Will Be Girls’ and More**\
+`By Priya Krishna`\
+https://nytimes.com/card/2024/12/04/arts/editors-recommendations-girlswillbegirls
+
+**Finland announces roster for 4 Nations: Snubs, surprises and expectations**\
+`The tournament between the U.S., Canada, Sweden and Finland will take place in Montreal and Boston from Feb. 12 to 20.`\
+https://nytimes.com/athletic/5966366/2024/12/04/finland-4-nations-face-off-roster/
+
+**Collapse of France’s Government Further Burdens Its Weak Economy**\
+`Already struggling with flat growth and a large debt and deficit, the country faces a new period of instability without a functioning government or a budget.`\
+https://nytimes.com/2024/12/04/business/france-economy-government-collapse.html
+
+**France’s Prime Minister Loses No-Confidence Vote and Is Expected to Resign**\
+`Prime Minister Michel Barnier will most likely remain as a caretaker until a replacement is named. But the vote could further unsettle credit markets and create a wider opening for the far right.`\
+https://nytimes.com/2024/12/04/world/europe/france-no-confidence-barnier.html
+
+**Detroit’s Mayor, a Democrat, Will Run for Michigan Governor as an Independent**\
+`Mike Duggan is shedding the label of his longtime party to seek the state’s highest office, as the term-limited Gretchen Whitmer departs in early 2027.`\
+https://nytimes.com/2024/12/04/us/politics/mike-duggan-michigan-governor-detroit-mayor.html
+
 **USC signs 5-star defensive lineman Jahkeem Stewart,**\
 `The Louisiana native is the No. 16 prospect in the 247Sports Composite in the 2025 recruiting cycle.`\
 https://nytimes.com/athletic/5966964/2024/12/04/usc-recruiting-jahkeem-stewart-five-star/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5969162/2024/12/04/rainbow-laces-premier-league-exp
 **The judge in Hunter Biden’s tax case rejects President Biden’s claims of a political prosecution.**\
 `By Devlin Barrett`\
 https://nytimes.com/live/2024/12/04/us/trump-news/joe-biden-pardon-hunter
-
-**U.S. Students Posted Dire Math Declines on an International Test**\
-`On the test, American fourth and eighth graders posted results similar to scores from 1995. It was a sign of notable stagnation, even as other countries saw improvements.`\
-https://nytimes.com/2024/12/04/us/us-math-students-pandemic.html
-
-**Trump Tax Cuts Won’t Help the Economy Grow, Budget Office Finds**\
-`A larger debt and higher interest rates would cancel out the boost from keeping individual taxes lower, the nonpartisan Congressional Budget Office found.`\
-https://nytimes.com/2024/12/04/business/trump-tax-cuts-economy.html
-
-**Lowetide: Why the Oilers' third line is a productive and underrated unit**\
-`Few teams have depth forwards who can sustain excellence on a line. This year's Oilers appear to be the exception to the rule.`\
-https://nytimes.com/athletic/5966301/2024/12/04/edmonton-oilers-janmark-brown-henrique/
-
-**Mammoth — It’s What Was for Dinner**\
-`A study of a 12,800-year-old skull of a toddler offers a glimpse at how early Americans found food, and how their hunts may have led to a mass extinction.`\
-https://nytimes.com/2024/12/04/science/mammoth-extinction-human-hunting.html
-
-**Micah Hyde re-joins Buffalo Bills after signing to practice squad**\
-`Hyde joins the Bills just in time for a playoff push but expects to take on a practice squad role in the regular season. `\
-https://nytimes.com/athletic/5969609/2024/12/04/micah-hyde-buffalo-bills-practice-squad/
 
