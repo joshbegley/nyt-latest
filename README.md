@@ -1,3 +1,15 @@
+**Chiesa plays and scores for Liverpool U21s as injury recovery continues**\
+`Federico Chiesa stepped up his return to full fitness by playing and scoring for Liverpool&#8217;s Under-21s on Wednesday night.`\
+https://nytimes.com/athletic/5969806/2024/12/04/federico-chiesa-injury-liverpool-under-21s/
+
+**Nadler to Relinquish Top Judiciary Post, Bowing to Calls for Change**\
+`Democrats’ longtime leader on the panel faced a challenge from Representative Jamie Raskin, and pressure from colleagues who wanted a younger, more strategic figure at the helm.`\
+https://nytimes.com/2024/12/04/us/politics/nadler-raskin-judiciary-committee.html
+
+**Mary McGee, Motorcycle Racing Pioneer, Is Dead at 87**\
+`Her most remarkable achievement came in 1975, when she became the first person, man or woman, to complete the Baja 500 race solo.`\
+https://nytimes.com/2024/12/04/sports/autoracing/mary-mcgee-dead.html
+
 **Finding a Sense of Purpose and Harmony Onstage**\
 `In a world frequently defined by polarization and isolation, music offers an opportunity to bridge divides and find common ground.`\
 https://nytimes.com/2024/12/04/special-series/gustavo-dudamel-youth-orchestra.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5969819/2024/12/04/miami-mario-cristobal-college-fo
 **Bettor beware: Why the Eagles' reliance on Saquon Barkley makes them a risky postseason bet**\
 `Michael Salfino looks at how past running backs with historic seasons fared in the postseason, and he sees a unfavorable trend for Philly.`\
 https://nytimes.com/athletic/5969359/2024/12/04/betting-saquon-barkley-eagles-postseason-super-bowl/
-
-**A meeting with Senator Joni Ernst is a pivotal test for Hegseth.**\
-`The Iowa Republican, a veteran who has worked to address sexual assault in the military, has signaled she is skeptical of the would-be defense secretary.`\
-https://nytimes.com/live/2024/12/04/us/trump-news/a-meeting-with-senator-joni-ernst-is-a-pivotal-test-for-hegseth
-
-**Giants' Drew Lock remains starting quarterback for Week 14**\
-`After a short-notice start, Lock will now have a full week of preparation for the Giants' upcoming game against the New Orleans Saints`\
-https://nytimes.com/athletic/5969554/2024/12/04/giants-drew-lock-starter-tommy-devito-saints/
-
-**Citi Bikes Leave ‘Digital Exhaust’ That Could Help Track a Killer**\
-`The police said the gunman who shot an insurance executive pedaled away after the crime.`\
-https://nytimes.com/2024/12/04/nyregion/citi-bike-records-uhc-shooting.html
 
