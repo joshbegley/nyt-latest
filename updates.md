@@ -1,3 +1,7 @@
+**College Football Playoff rankings: Miami out, Alabama in as ACC implications linger**\
+`Oregon remained No. 1 in the penultimate Top 25, followed by No. 2 Texas, No. 3 Penn State, No. 4 Notre Dame and No. 5 Georgia.`\
+https://nytimes.com/athletic/5967563/2024/12/03/college-football-playoff-rankings-miami-alabama/
+
 **College Football Playoff rankings: Alabama holds final at-large bid**\
 `Oregon remained No. 1 in the penultimate Top 25, followed by No. 2 Texas, No. 3 Penn State, No. 4 Notre Dame and No. 5 Georgia.`\
 https://nytimes.com/athletic/5967563/2024/12/03/college-football-playoff-rankings-miami-alabama/
