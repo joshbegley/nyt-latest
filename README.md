@@ -1,3 +1,7 @@
+**Colorado’s signing class headlined by top-40 QB Julian Lewis**\
+`Lewis, the No. 6 QB in the class, is one of six blue-chip prospects for Deion Sanders' Buffaloes. `\
+https://nytimes.com/athletic/5970028/2024/12/04/colorado-football-julian-lewis-signing-class/
+
 **Ake injury 'doesn't look good' - Guardiola**\
 `Pep Guardiola says Nathan Ake&#8217;s injury &#8220;doesn&#8217;t look good&#8221; after Manchester City&#8217;s first win in eight games was marred by more fitness problems.`\
 https://nytimes.com/athletic/5970371/2024/12/04/man-city-nathan-ake-injury-2/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5957343/2024/12/04/arsenal-manchester-united-result
 `In a new letter, an N.R.A. vice president said the troubled group needed to rebuild trust with Donald J. Trump and his inner circle.`\
 https://nytimes.com/2024/12/04/us/politics/donald-trump-national-rifle-association.html
 
-**Brian Thompson, Health Insurance Executive, Dies at 50**\
-`He was “a truly extraordinary person who touched the lives of countless people,” the chief executive of UnitedHealth Group said.`\
+**Brian Thompson, Chief Executive of UnitedHealthcare, Dies at 50**\
+`Mr. Thompson, who was fatally shot in Midtown Manhattan, rose to the top of one of the world’s biggest insurance companies.`\
 https://nytimes.com/2024/12/04/nyregion/brian-thompson-dead.html
 
 **Prince Harry Vows to Maintain Fight Against Murdoch Tabloids**\
 `The British royal says his legal battle against parts of the media is about “accountability” and defending legitimate journalism.`\
 https://nytimes.com/2024/12/04/business/dealbook/prince-harry-rupert-murdoch-tabloids.html
-
-**Mexican Authorities Seize 20 Million Doses of Fentanyl in Record Haul**\
-`The operation comes after President-elect Donald J. Trump threatened tariffs on Mexico if the country did not crack down on fentanyl.`\
-https://nytimes.com/2024/12/04/world/americas/mexico-fentanyl-seizure.html
 

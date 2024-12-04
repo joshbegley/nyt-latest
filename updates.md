@@ -1,3 +1,15 @@
+**Ake injury 'doesn't look good' - Guardiola**\
+`Pep Guardiola says Nathan Ake&#8217;s injury &#8220;doesn&#8217;t look good&#8221; after Manchester City&#8217;s first win in eight games was marred by more fitness problems.`\
+https://nytimes.com/athletic/5970371/2024/12/04/man-city-nathan-ake-injury-2/
+
+**Florida's furious finish on the recruiting trail caps stellar month for Billy Napier**\
+`Napier has put Florida in position to sign its first top-10 class since it finished No. 9 in 2019 and 2020 under Dan Mullen.`\
+https://nytimes.com/athletic/5970291/2024/12/04/florida-recruiting-billy-napier/
+
+**U.S. Defends Climate Accord as Nations Call for Stronger Global Action**\
+`In a landmark international hearing on climate change, a U.S. representative backed the Paris Agreement, but left unanswered questions about U.S. commitments in a Trump presidency.`\
+https://nytimes.com/2024/12/04/climate/paris-agreement-international-court-justice.html
+
 **U.S. Defends Climate Accord as Nations Call for Stronger Global Action**\
 `In a landmark international hearing on climate change, a U.S. representative backed the Paris accord, but left unanswered questions about U.S. commitments in a Trump presidency.`\
 https://nytimes.com/2024/12/04/climate/paris-agreement-international-court-justice.html

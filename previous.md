@@ -1,5 +1,13 @@
+**Ake injury 'doesn't look good' - Guardiola**\
+`Pep Guardiola says Nathan Ake&#8217;s injury &#8220;doesn&#8217;t look good&#8221; after Manchester City&#8217;s first win in eight games was marred by more fitness problems.`\
+https://nytimes.com/athletic/5970371/2024/12/04/man-city-nathan-ake-injury-2/
+
+**Florida's furious finish on the recruiting trail caps stellar month for Billy Napier**\
+`Napier has put Florida in position to sign its first top-10 class since it finished No. 9 in 2019 and 2020 under Dan Mullen.`\
+https://nytimes.com/athletic/5970291/2024/12/04/florida-recruiting-billy-napier/
+
 **U.S. Defends Climate Accord as Nations Call for Stronger Global Action**\
-`In a landmark international hearing on climate change, a U.S. representative backed the Paris accord, but left unanswered questions about U.S. commitments in a Trump presidency.`\
+`In a landmark international hearing on climate change, a U.S. representative backed the Paris Agreement, but left unanswered questions about U.S. commitments in a Trump presidency.`\
 https://nytimes.com/2024/12/04/climate/paris-agreement-international-court-justice.html
 
 **Kelly Powers, Fox News Commentator Who Shared Her Health Crises With Viewers, Dies at 45**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/business/dealbook/prince-harry-rupert-murdoch-tab
 **Mexican Authorities Seize 20 Million Doses of Fentanyl in Record Haul**\
 `The operation comes after President-elect Donald J. Trump threatened tariffs on Mexico if the country did not crack down on fentanyl.`\
 https://nytimes.com/2024/12/04/world/americas/mexico-fentanyl-seizure.html
-
-**Nebraska coach Matt Rhule on his program after national signing day**\
-`Rhule addresses Nebraska's signing day class, his staff and the transfer portal during a busy time for the Huskers. `\
-https://nytimes.com/athletic/5970100/2024/12/04/nebraska-football-national-signing-day/
-
-**What to Know About Hannah Kobayashi, Who Was Reported Missing in California**\
-`The search drew national attention after she flew from Maui to Los Angeles and did not board a connecting flight to New York. The police later said she had crossed into Mexico on foot.`\
-https://nytimes.com/article/hannah-kobayashi-missing-mexico.html
 
