@@ -1,3 +1,7 @@
+**Kaprizov does it again in OT during one intense hockey game: 3 takeaways vs. Canucks**\
+`Kaprizov capped a tightly contested, physical game with an overlong OT shift, a mishap and a game-winner.`\
+https://nytimes.com/athletic/5968222/2024/12/04/wild-kaprizov-overtime-canucks-gustavsson/
+
 **Wednesday Briefing**\
 `A political crisis in South Korea.`\
 https://nytimes.com/2024/12/04/briefing/south-korea-ukraine-nato.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960341/2024/12/04/angeball-playing-twice-a-week/
 **Fofana’s injury presents a problem for Chelsea. Who will Maresca turn to?**\
 `Maresca’s comments after the Villa win made it clear he considers Fofana to be an upgrade on all three centre-back alternatives in his squad`\
 https://nytimes.com/athletic/5965565/2024/12/04/chelsea-wesley-fofana-injury-analysis/
-
-**Analysing the numbers behind Manchester City’s shocking defensive decline**\
-`A combination of an inefficient high press, a high line, and difficulty defending crosses have all played a part in City's slump`\
-https://nytimes.com/athletic/5966073/2024/12/04/manchester-city-decline-data-analysis-premier-league/
 
