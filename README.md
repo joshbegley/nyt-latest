@@ -18,7 +18,7 @@ https://nytimes.com/live/2024/12/04/us/trump-news
 `Garber, 67, marked 25 years as MLS commissioner in August.`\
 https://nytimes.com/athletic/5968466/2024/12/04/mls-don-garber-contract/
 
-**West Ham board discussing Lopetegui's future after run of poor results**\
+**West Ham board discussing Lopetegui's future with head coach fighting to save job**\
 `West Ham United&#8217;s board are discussing the future of head coach Julen Lopetegui.`\
 https://nytimes.com/athletic/5783500/2024/12/04/julen-lopetegui-west-ham-united/
 
