@@ -1,3 +1,11 @@
+**The briefing: Mallorca 1 Barcelona 5: Yamal's trivela, Torres' travails, and is this Raphinha's Barca?**\
+`The league leaders stopped the rot with a convincing second-half performance at Mallorca to regain some momentum in their title pursuit`\
+https://nytimes.com/athletic/5967611/2024/12/04/barcelona-raphinha-yamal-torres-jong-mallorca/
+
+**England spy promise in Ruby Mace as they seek long-term backup for Keira Walsh**\
+`The former Arsenal and Manchester City midfielder, now at Leicester City, made her senior debut in the 1-0 win over Switzerland in Sheffield`\
+https://nytimes.com/athletic/5967848/2024/12/04/england-mace-wiegman-walsh-leicester-switzerland/
+
 **Alyssa Naeher stays true to her stoic ways in final game, but U.S. teammates are full of emotion**\
 `Naeher savored her final game with the USWNT, a win against the Netherlands`\
 https://nytimes.com/athletic/5967823/2024/12/04/uswnt-alyssa-naeher-final-game/
