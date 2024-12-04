@@ -1,3 +1,15 @@
+**How Kash Patel, Trump’s F.B.I. Pick, Plans to Reshape the Bureau**\
+`Donald Trump’s pick to lead the F.B.I. has called for firing the agency’s top officials, shutting down its Washington headquarters and has vowed to investigate the president-elect’s political adversaries.`\
+https://nytimes.com/video/us/politics/100000009856793/kash-patel-fbi-chief.html
+
+**Outside the Supreme Court, America’s culture wars play out.**\
+`By Minho Kim and Aishvarya Kavi`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/outside-the-supreme-court-americas-culture-wars-play-out
+
+**‘Junk Fees’ or ‘Unbundling’? Airlines and Senators Battle Over Added Costs.**\
+`At a congressional hearing on Wednesday, senators framed the tacked-on fees for passenger seats or bags as akin to extortion. Airline executives pushed back, saying they gave customers options.`\
+https://nytimes.com/2024/12/04/travel/airline-fees-senate.html
+
 **Ancelotti backs Mbappe after latest penalty miss: 'He can do better'**\
 `Kylian Mbappe “can do better” manager Carlo Ancelotti insisted after the Real Madrid forward missed another penalty during his side’s loss to Athletic Club.`\
 https://nytimes.com/athletic/5970438/2024/12/04/mbappe-penalty-real-madrid-ancelotti/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5970312/2024/12/04/wolves-everton-gary-oneil/
 **Colorado’s signing class headlined by top-40 QB Julian Lewis**\
 `Lewis, the No. 6 QB in the class, is one of six blue-chip prospects for Deion Sanders' Buffaloes. `\
 https://nytimes.com/athletic/5970028/2024/12/04/colorado-football-julian-lewis-signing-class/
-
-**Ake injury 'doesn't look good' - Guardiola**\
-`Pep Guardiola says Nathan Ake&#8217;s injury &#8220;doesn&#8217;t look good&#8221; after Manchester City&#8217;s first win in eight games was marred by more fitness problems.`\
-https://nytimes.com/athletic/5970371/2024/12/04/man-city-nathan-ake-injury-2/
-
-**Florida's furious finish on the recruiting trail caps stellar month for Billy Napier**\
-`Napier has put Florida in position to sign its first top-10 class since it finished No. 9 in 2019 and 2020 under Dan Mullen.`\
-https://nytimes.com/athletic/5970291/2024/12/04/florida-recruiting-billy-napier/
-
-**U.S. Defends Climate Accord as Nations Call for Stronger Global Action**\
-`In a landmark international hearing on climate change, a U.S. representative backed the Paris Agreement, but left unanswered questions about U.S. commitments in a Trump presidency.`\
-https://nytimes.com/2024/12/04/climate/paris-agreement-international-court-justice.html
 

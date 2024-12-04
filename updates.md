@@ -1,3 +1,15 @@
+**How Kash Patel, Trump’s F.B.I. Pick, Plans to Reshape the Bureau**\
+`Donald Trump’s pick to lead the F.B.I. has called for firing the agency’s top officials, shutting down its Washington headquarters and has vowed to investigate the president-elect’s political adversaries.`\
+https://nytimes.com/video/us/politics/100000009856793/kash-patel-fbi-chief.html
+
+**Outside the Supreme Court, America’s culture wars play out.**\
+`By Minho Kim and Aishvarya Kavi`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/outside-the-supreme-court-americas-culture-wars-play-out
+
+**‘Junk Fees’ or ‘Unbundling’? Airlines and Senators Battle Over Added Costs.**\
+`At a congressional hearing on Wednesday, senators framed the tacked-on fees for passenger seats or bags as akin to extortion. Airline executives pushed back, saying they gave customers options.`\
+https://nytimes.com/2024/12/04/travel/airline-fees-senate.html
+
 **Notre Dame made a signing day splash in California to change perception of its class**\
 `The Irish beat out perceived favorite USC and former finalist Texas for Faraimo.`\
 https://nytimes.com/athletic/5970091/2024/12/04/notre-dame-recruiting-class-2025-madden-faraimo/
