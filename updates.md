@@ -1,3 +1,7 @@
+**Bowden: 7 big trades I'd like to see happen at MLB's Winter Meetings**\
+`There's nothing better than blockbuster trades and everything that comes with them. Here are seven deals Bowden would like to see in Dallas.`\
+https://nytimes.com/athletic/5968557/2024/12/04/mlb-trade-proposals-winter-meetings/
+
 **Justice Thomas is a reliable vote against transgender rights.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-thomas-is-a-reliable-vote-against-transgender-rights
