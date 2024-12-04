@@ -32,7 +32,7 @@ https://nytimes.com/2024/12/04/us/pete-hegseth-mother-fox-trump.html
 
 **Ken Griffin Says America Is Open for Business Following Elections**\
 `Mr. Griffin, who had previously derided Donald J. Trump as a “three-time loser,” said he voted for the president-elect.`\
-https://nytimes.com/2024/12/04/business/dealbook/ken-griffin-trump.html
+https://nytimes.com/2024/12/04/business/dealbook/ken-griffin-trump-election.html
 
 **How good is the FIU job? What's next for the Panthers after Mike MacIntyre's firing**\
 `FIU’s program was founded in 2002, first played FBS games three years later and has had only four winning seasons.`\
