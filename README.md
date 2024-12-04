@@ -2,7 +2,7 @@
 `By Danielle Kaye`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/investors-and-the-feds-chair-are-being-cautious-about-crypto
 
-**College football conference title game model projections for all 9 games**\
+**Model projections for all 9 college football conference title games**\
 `Austin Mock's projection model has projected point differentials and point totals for all nine college football conference title games.`\
 https://nytimes.com/athletic/5969839/2024/12/04/college-football-title-game-model-projections/
 
