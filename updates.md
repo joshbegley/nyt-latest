@@ -1,3 +1,15 @@
+**Brian Thompson Was a Veteran Executive at UnitedHealthcare**\
+`Mr. Thompson managed a division that employs about 140,000 people and offers insurance plans to employers and individuals.`\
+https://nytimes.com/2024/12/04/nyregion/brian-thompson-unitedhealthcare.html
+
+**Club World Cup 2025: Who is competing and how to watch the draw**\
+`The draw for next year's Club World Cup takes place on Thursday. This is what you need to know about the controversial new competition`\
+https://nytimes.com/athletic/5952020/2024/12/04/club-world-cup-2025-explainer/
+
+**Fresno State targeting USC linebackers coach Matt Entz for head job: Source**\
+`Matt Entz was wildly successful at North Dakota State. `\
+https://nytimes.com/athletic/5969340/2024/12/04/fresno-state-head-coach-usc-matt-entz/
+
 **Fresno State targeting USC linebacker coach Matt Entz for head job: Source**\
 `Matt Entz was wildly successful at North Dakota State. `\
 https://nytimes.com/athletic/5969340/2024/12/04/fresno-state-head-coach-usc-matt-entz/

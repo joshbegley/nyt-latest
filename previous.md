@@ -1,4 +1,12 @@
-**Fresno State targeting USC linebacker coach Matt Entz for head job: Source**\
+**Brian Thompson Was a Veteran Executive at UnitedHealthcare**\
+`Mr. Thompson managed a division that employs about 140,000 people and offers insurance plans to employers and individuals.`\
+https://nytimes.com/2024/12/04/nyregion/brian-thompson-unitedhealthcare.html
+
+**Club World Cup 2025: Who is competing and how to watch the draw**\
+`The draw for next year's Club World Cup takes place on Thursday. This is what you need to know about the controversial new competition`\
+https://nytimes.com/athletic/5952020/2024/12/04/club-world-cup-2025-explainer/
+
+**Fresno State targeting USC linebackers coach Matt Entz for head job: Source**\
 `Matt Entz was wildly successful at North Dakota State. `\
 https://nytimes.com/athletic/5969340/2024/12/04/fresno-state-head-coach-usc-matt-entz/
 
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009858240/rebels-battle-hama-sy
 **Georgia Tumbles Deeper Into Crisis as Opposition Leader is Detained**\
 `In a sign of a widening crackdown, security agents have searched the offices and homes of prominent activists and opposition leaders who fear the country is turning closer to Russia.`\
 https://nytimes.com/2024/12/04/world/europe/georgia-russia-protests-gvaramia.html
-
-**Elite Sumo Wrestlers Will Compete in London, a Rarity Outside Japan**\
-`A five-day event in October will be the Japan Sumo Association’s first competition in Britain in more than three decades.`\
-https://nytimes.com/2024/12/04/world/sumo-wrestling-tournament-uk.html
-
-**Police Search for Suspect in Killing of UnitedHealthcare C.E.O.**\
-`Brian Thompson, the chief executive of UnitedHealthcare, was fatally shot outside a hotel in Midtown Manhattan as he arrived for the company’s annual investor conference.`\
-https://nytimes.com/video/nyregion/100000009858309/police-search-for-suspect-in-killing-of-unitedhealthcare-ceo.html
 
