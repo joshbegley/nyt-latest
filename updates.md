@@ -1,3 +1,11 @@
+**North Carolina Town Sues Duke Energy Over Climate Change**\
+`Carrboro accused Duke, one the nation’s largest utility companies, of ignoring data about climate change while increasing use of fossil fuels.`\
+https://nytimes.com/2024/12/04/business/energy-environment/duke-energy-climate-change-lawsuit.html
+
+**Justice Alito is a committed opponent of transgender rights.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-alito-is-a-committed-opponent-of-transgender-rights
+
 **Justices’ past comments on bathrooms, sports and dress codes offer hints about where they stand on transgender issues.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-comments-transgendcer

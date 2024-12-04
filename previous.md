@@ -1,3 +1,11 @@
+**North Carolina Town Sues Duke Energy Over Climate Change**\
+`Carrboro accused Duke, one the nation’s largest utility companies, of ignoring data about climate change while increasing use of fossil fuels.`\
+https://nytimes.com/2024/12/04/business/energy-environment/duke-energy-climate-change-lawsuit.html
+
+**Justice Alito is a committed opponent of transgender rights.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-alito-is-a-committed-opponent-of-transgender-rights
+
 **Justices’ past comments on bathrooms, sports and dress codes offer hints about where they stand on transgender issues.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-comments-transgendcer
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/how-do-med
 **Here Is What Led to Tennessee’s Ban on Gender-Affirming Care**\
 `Vanderbilt University Medical Center announced the opening of a new transgender care clinic in 2018. Years later, conservatives called for an investigation.`\
 https://nytimes.com/2024/12/04/us/transgender-care-ban-tennessee.html
-
-**How the Cavaliers offense is tearing up the NBA, even if it doesn't make sense**\
-`The Cavs didn't understand what new coach Keny Atkinson had in store for them when he arrived, but now they have the league's best record.`\
-https://nytimes.com/athletic/5967355/2024/12/04/cavs-offense-nba-best-record/
-
-**How the Impeachment of South Korea’s President Could Unfold**\
-`A detailed look at each stage of the impeachment process, and what is to come for President Yoon.`\
-https://nytimes.com/interactive/2024/12/04/world/asia/south-korea-impeachment-vote-president-yoon.html
 
