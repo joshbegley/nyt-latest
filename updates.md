@@ -1,3 +1,11 @@
+**Pete Hegseth’s Troubles at Work Raise Questions About Leadership**\
+`President-elect Donald J. Trump’s choice for defense secretary led two nonprofits into debt, and episodes of drinking continued into his days as a Fox News personality.`\
+https://nytimes.com/2024/12/04/us/politics/pete-hegseth-workplace.html
+
+**Jeff Bezos, a Past Trump Foe, Is Optimistic About a Second Term**\
+`The Amazon founder said he saw signs of a “calmer” Donald J. Trump on the eve of his return to the White House.`\
+https://nytimes.com/2024/12/04/business/dealbook/jeff-bezos-trump-amazon-washington-post.html
+
 **Matt Rhule on captains' handshake refusal with Iowa: ‘That’s not what we want to do’**\
 `Nebraska game captains declined to extend their hands before kickoff for a traditional handshake with Iowa players.`\
 https://nytimes.com/athletic/5970577/2024/12/04/nebraska-iowa-handshake-matt-rhule/
