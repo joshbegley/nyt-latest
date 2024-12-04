@@ -1,3 +1,7 @@
+**Rohit Bal, Exuberant Star of Indian Fashion, Dies at 63**\
+`Known as “the bad boy of fashion,” he was among a wave of designers who created modern Indian couture by updating traditional garments.`\
+https://nytimes.com/2024/12/04/style/rohit-bal-dead.html
+
 **Rohit Bal, an Exuberant Star of Indian Fashion, Dies at 63**\
 `Known as “the bad boy of fashion,” he was among a wave of designers who created modern Indian couture by updating traditional garments.`\
 https://nytimes.com/2024/12/04/style/rohit-bal-dead.html
