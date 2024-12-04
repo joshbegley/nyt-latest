@@ -1,3 +1,7 @@
+**Patrik Laine's storybook Bell Centre debut eclipsed by Canadiens' bigger story**\
+`Laine's second period goal shook the arena, but that moment's meaning to the greater Canadiens story was more significant.`\
+https://nytimes.com/athletic/5968340/2024/12/04/patrik-laine-debut-canadiens-bigger-story/
+
 **Rockets' Tari Eason held back from running after heckling fan in stands after loss**\
 `The incident with Eason came not long after Rockets coach Ime Udoka had been ejected from the game.`\
 https://nytimes.com/athletic/5968337/2024/12/04/rockets-tari-eason-fan-incident/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5968252/2024/12/04/sabres-collapse-new-low-avalanch
 **How many games can Leeds afford to lose and still win promotion?**\
 `Leeds lost against Blackburn on Saturday — how bad of a blow is that to promotion hopes?`\
 https://nytimes.com/athletic/5962699/2024/12/04/leeds-loss-defeat-championship-promotion/
-
-**Gordon, the search for top form and the aftermath of an 'unsettling' summer**\
-`A deep dive into Newcastle and England winger Gordon's drop in form this season - what's to blame?`\
-https://nytimes.com/athletic/5954651/2024/12/04/whats-wrong-with-anthony-gordon-form-newcastle-contract-liverpool-interest/
 

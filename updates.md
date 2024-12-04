@@ -1,3 +1,7 @@
+**Patrik Laine's storybook Bell Centre debut eclipsed by Canadiens' bigger story**\
+`Laine's second period goal shook the arena, but that moment's meaning to the greater Canadiens story was more significant.`\
+https://nytimes.com/athletic/5968340/2024/12/04/patrik-laine-debut-canadiens-bigger-story/
+
 **Rockets' Tari Eason held back from running after heckling fan in stands after loss**\
 `The incident with Eason came not long after Rockets coach Ime Udoka had been ejected from the game.`\
 https://nytimes.com/athletic/5968337/2024/12/04/rockets-tari-eason-fan-incident/
