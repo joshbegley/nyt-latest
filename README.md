@@ -1,3 +1,7 @@
+**What is ‘heightened scrutiny,’ and why does it matter?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/supreme-court-transgender-heightened-scrutiny
+
 **Live Updates: Supreme Court to Hear Major Trans Rights Case**\
 `Families and a doctor are challenging a Tennessee ban on some forms of medical care for transgender youth. Laws in more than 20 states could be affected.`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law-news/kore
 **Iran Releases Narges Mohammadi, Nobel Laureate, From Prison for 21 Days**\
 `The activist, whose health has deteriorated, had bone surgery last month.`\
 https://nytimes.com/2024/12/04/world/middleeast/iran-narges-mohammadi-prison-surgery.html
-
-**Adversity strikes: What I'm seeing as the Jets lose 7 of their last 10 games**\
-`Why are the Jets struggling after a record-setting start? What's happening and what can they do about it?`\
-https://nytimes.com/athletic/5963873/2024/12/04/winnipeg-jets-losses-nhl/
 
