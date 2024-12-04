@@ -1,3 +1,15 @@
+**The Briefing: Man City 3-0 N Forest - De Bruyne's welcome return and are City back, or still shaky?**\
+`Our writers analyse the game from the Etihad as Pep Guardiola's side end their seven-game winless run.`\
+https://nytimes.com/athletic/5957340/2024/12/04/manchester-city-de-bruyne-grealish/
+
+**Mike Johnson’s Newest Headache: the Smallest House Majority in History**\
+`The Republican speaker held on to control of the House, but will preside over an even smaller majority at a time when President-elect Donald J. Trump will need his help to achieve major agenda items.`\
+https://nytimes.com/2024/12/04/us/politics/mike-johnson-smallest-house-majority.html
+
+**Eli Lilly Chief Says He Will Fight for the F.D.A., Challenging Kennedy’s Stance**\
+`The health care giant’s David Ricks defended the agency’s role in reviewing data and ensuring drug safety.`\
+https://nytimes.com/2024/12/04/business/dealbook/eli-lilly-fda-rfk-jr.html
+
 **The Dangerous Precedent of Biden’s Pardon**\
 `It sends a signal that Trump’s abuse of the pardon system was not an aberration.`\
 https://nytimes.com/2024/12/04/opinion/editorials/dangerous-precedent-biden-pardon.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/04/briefing/south-korea-france-trump.html
 **Alex Cooper Says She’s Not the ‘Next Howard Stern’**\
 `“I don’t care if people consider me a journalist or a podcaster, or just a girl that talks online every week,” Ms. Cooper said at the DealBook Summit.`\
 https://nytimes.com/2024/12/04/business/dealbook/alex-cooper-call-her-daddy-unwell.html
-
-**Ryan Day expects to continue at Ohio State, takes blame for Michigan upset**\
-`Ohio State coach Ryan Day said Wednesday that he has no plans to coach elsewhere, and he also broke down what went wrong vs. Michigan.`\
-https://nytimes.com/athletic/5969944/2024/12/04/ryan-day-ohio-state-future-playoff/
-
-**Ranking the free agent hitters the Giants might target based on player skills**\
-`If you're less concerned with the names of the free agents than the skills they'll bring to the lineup and defense, here's a cheat sheet.`\
-https://nytimes.com/athletic/5966950/2024/12/04/sf-giants-free-agent-shopping-list-position-players/
-
-**Powell Not Concerned About the Fed’s Independence Under Trump**\
-`Speaking at The New York Times DealBook Summit, the chair of the Federal Reserve, Jerome H. Powell, said there was strong bipartisan support on Capitol Hill for the central bank’s independence.`\
-https://nytimes.com/video/business/100000009859476/jerome-powell-trump-fed-dealbook.html
 

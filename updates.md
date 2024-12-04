@@ -1,3 +1,15 @@
+**The Briefing: Man City 3-0 N Forest - De Bruyne's welcome return and are City back, or still shaky?**\
+`Our writers analyse the game from the Etihad as Pep Guardiola's side end their seven-game winless run.`\
+https://nytimes.com/athletic/5957340/2024/12/04/manchester-city-de-bruyne-grealish/
+
+**Mike Johnson’s Newest Headache: the Smallest House Majority in History**\
+`The Republican speaker held on to control of the House, but will preside over an even smaller majority at a time when President-elect Donald J. Trump will need his help to achieve major agenda items.`\
+https://nytimes.com/2024/12/04/us/politics/mike-johnson-smallest-house-majority.html
+
+**Eli Lilly Chief Says He Will Fight for the F.D.A., Challenging Kennedy’s Stance**\
+`The health care giant’s David Ricks defended the agency’s role in reviewing data and ensuring drug safety.`\
+https://nytimes.com/2024/12/04/business/dealbook/eli-lilly-fda-rfk-jr.html
+
 **The Dangerous Precedent of Biden’s Pardon**\
 `It sends a signal that Trump’s abuse of the pardon system was not an aberration.`\
 https://nytimes.com/2024/12/04/opinion/editorials/dangerous-precedent-biden-pardon.html
