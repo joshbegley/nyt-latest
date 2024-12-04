@@ -1,3 +1,19 @@
+**The Briefing: Newcastle 3-3 Liverpool - Kelleher's late error costly as Isak and Co shine again**\
+`Newcastle and Liverpool served up a 3-3 draw in keeping with their history of thrilling Premier League matches`\
+https://nytimes.com/athletic/5957341/2024/12/04/newcastle-3-liverpool-3-kelleher-isak/
+
+**Fantasy football brain games: Calling on Caleb Williams, fading Rachaad White in Week 14**\
+`Renee Miller explains her decision-making process for some interesting lineup scenarios in Week 14 — like Geno Smith vs. Caleb Williams.`\
+https://nytimes.com/athletic/5969841/2024/12/04/fantasy-football-brain-games-week-14-lineup-decisions/
+
+**Obesity is just the start for the new weight-loss drugs, says Eli Lilly’s chief.**\
+`He predicts as many as 20 percent of Americans ma`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/obesity-is-just-the-start-for-the-new-weight-loss-drugs-says-eli-lillys-chief
+
+**Alex Cooper Said Her Team Spoke With Trump’s About an Interview**\
+`Alex Cooper, the host of “Call Her Daddy” and founder of the Unwell Network, said her team had a Zoom call that she did not attend with Donald Trump’s campaign about a potential interview.`\
+https://nytimes.com/video/business/dealbook/100000009859494/dealbook-alex-cooper-media-podcasts.html
+
 **The Briefing: Southampton 1-5 Chelsea - South-coast cruising, Maresca rotating and some hair-pulling**\
 `Dan Sheldon breaks down the main talking points from Chelsea's 5-1 win at Southampton`\
 https://nytimes.com/athletic/5957342/2024/12/04/southampton-1-chelsea-5-cucurella-nkunku-madueke/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/04/business/dealbook/eli-lilly-fda-rfk-jr.html
 **The Dangerous Precedent of Biden’s Pardon**\
 `It sends a signal that Trump’s abuse of the pardon system was not an aberration.`\
 https://nytimes.com/2024/12/04/opinion/editorials/dangerous-precedent-biden-pardon.html
-
-**Witness Montenegro's Scenic Vistas With Capital One**\
-`Venture X cardholders who book through Capital One Travel enjoy exclusive benefits at One&Only Portonovi, a stunning Adriatic destination.`\
-https://nytimes.com/paidpost/capital-one/witness-montenegros-scenic-vistas-with-capital-one.html
-
-**Durbin Urges Settlement for Accused 9/11 Plotters**\
-`Senator Richard J. Durbin wants Defense Secretary Lloyd J. Austin III to accept a plea deal with the man accused of planning the attacks, a deal that Mr. Austin had revoked.`\
-https://nytimes.com/2024/12/04/us/politics/durbin-austin-guantanamo-sept-11.html
-
-**Ravens suspend Diontae Johnson after refusing to take field vs. Eagles**\
-`Johnson, who has one catch on five targets for six yards since joining Baltimore, will miss the Ravens' game against the New York Giants. `\
-https://nytimes.com/athletic/5969975/2024/12/04/ravens-suspend-diontae-johnson-take-field/
-
-**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
-`Let us know what's on your mind during Denver's bye week.`\
-https://nytimes.com/athletic/5969757/2024/12/04/broncos-mailbag-bye-week/
 
