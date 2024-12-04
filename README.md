@@ -1,7 +1,3 @@
-**Pistons' NBA Cup experience was a 'great opportunity,' despite losing to the Bucks**\
-`The Pistons went 3-1 in Cup play and had their Vegas dreams crushed, but the experience provided Detroit with something to strive for.`\
-https://nytimes.com/athletic/5968225/2024/12/04/pistons-bucks-nba-cup-experience/
-
 **Dutch GP to leave F1 calendar after 2026**\
 `Formula One has announced the Dutch Grand Prix at Zandvoort will drop off the calendar after its final running in 2026.`\
 https://nytimes.com/athletic/5968480/2024/12/04/dutch-grand-prix-f1/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5958885/2024/12/04/palace-eze-glasner-mateta/
 **On an emotional night in Calgary, Blue Jackets suffer their first shutout loss of the season**\
 `Rarely has a final score meant less. But the Flames rode two power-play goals and a stifling defensive effort to a 3-0 win over the Jackets.`\
 https://nytimes.com/athletic/5968280/2024/12/04/blue-jackets-first-shutout-loss-flames/
+
+**Patrik Laine's storybook Bell Centre debut eclipsed by Canadiens' bigger story**\
+`Laine's second-period goal shook the arena, but that moment's meaning to the greater Canadiens story was more significant.`\
+https://nytimes.com/athletic/5968340/2024/12/04/patrik-laine-debut-canadiens-bigger-story/
 
