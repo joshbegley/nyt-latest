@@ -1,3 +1,7 @@
+**U.S. Students Posted Dire Math Declines on an International Test**\
+`On the test, American fourth and eighth graders posted results similar to scores from 1995. It was a sign of notable stagnation, even as other countries saw improvements.`\
+https://nytimes.com/2024/12/04/us/us-math-students-pandemic.html
+
 **Trump Tax Cuts Won’t Help the Economy Grow, Budget Office Finds**\
 `A larger debt and higher interest rates would cancel out the boost from keeping individual taxes lower, the nonpartisan Congressional Budget Office found.`\
 https://nytimes.com/2024/12/04/business/trump-tax-cuts-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/business/dealbook/100000009858748/serena-williams-deal
 **A Storied New York Hilton Adds a Grim Chapter to Its History**\
 `The hotel, on West 54th Street, was where journalists examined the Pentagon Papers and where Donald Trump delivered a 2016 victory speech.`\
 https://nytimes.com/2024/12/04/nyregion/hilton-hotel-midtown-shooting.html
-
-**Israel’s Military Says Hostages Were Likely Killed by Hamas as Airstrike Hit**\
-`The six hostages, whose bodies were found in Gaza over the summer, were probably shot in February by their captors as an Israeli strike hit close to the tunnel where they were held, the military said.`\
-https://nytimes.com/2024/12/04/world/middleeast/israel-gaza-hamas-hostages.html
 
