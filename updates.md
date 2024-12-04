@@ -1,3 +1,19 @@
+**Serena Williams, from tennis star to ‘person who loves investing.’**\
+`By Remy Tumin`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/serena-williams-from-tennis-star-to-person-who-loves-investing
+
+**Tom Brady on late-hit against Azeez Al-Shaair: ‘I have mixed emotions’**\
+`Brady’s comments came after the NFL suspended Houston Texans linebacker Al-Shaair for three games for the hit that concussed Trevor Lawrence`\
+https://nytimes.com/athletic/5969391/2024/12/04/tom-brady-late-hit-azeez-al-shaair/
+
+**What happens next? The court will probably not issue a decision until June.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/what-happens-next-the-court-will-probably-not-issue-a-decision-until-june
+
+**Heat Today: Tyler Herro is still a bucket-getter, even when the buckets aren't his**\
+`Herro's shooting efficiency has dipped after a hot start, but he's expanded his playmaking.`\
+https://nytimes.com/athletic/5968981/2024/12/04/tyler-herro-jimmy-butler-lebron-james-dwyane-wademiami-heat/
+
 **Lawmakers Move to Impeach South Korean Leader After Failed Martial Law Bid**\
 `President Yoon Suk Yeol’s attempt to break a political deadlock by imposing military rule collapsed within hours, leaving him with few defenders. A vote to impeach him could come as soon as Friday.`\
 https://nytimes.com/2024/12/04/world/asia/south-korea-impach-yoon.html
