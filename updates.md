@@ -1,3 +1,11 @@
+**FIFA Secures $1 Billion Broadcast Deal for Its Club World Cup**\
+`An agreement with the London-based streaming company DAZN came just a day before the draw for the inaugural event and after other networks balked at FIFA’s demands.`\
+https://nytimes.com/2024/12/04/business/fifa-dazn-club-world-cup.html
+
+**Trump’s Trade Adviser Pick, a China Hawk, Was Jailed Over Jan. 6.**\
+`Mr. Navarro was a thorn in the side of Wall Street and a loyalist in Mr. Trump’s first term.`\
+https://nytimes.com/2024/12/04/us/politics/peter-navarro-trump-trade.html
+
 **Serena Williams, from tennis star to ‘person who loves investing.’**\
 `By Remy Tumin`\
 https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/serena-williams-from-tennis-star-to-person-who-loves-investing

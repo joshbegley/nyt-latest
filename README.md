@@ -1,3 +1,11 @@
+**Before the shooting, a hack that rocked United Healthcare.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2024/12/04/nyregion/brian-thompson-uhc-ceo-shot/before-the-shooting-a-hack-that-rocked-united-healthcare
+
+**Map: Where Rebels Have Advanced in Syria**\
+`Where Syrian opposition fighters have rapidly expanded the territory under their control in northwestern Syria. `\
+https://nytimes.com/2024/12/04/world/middleeast/syria-map-control.html
+
 **FIFA Secures $1 Billion Broadcast Deal for Its Club World Cup**\
 `An agreement with the London-based streaming company DAZN came just a day before the draw for the inaugural event and after other networks balked at FIFA’s demands.`\
 https://nytimes.com/2024/12/04/business/fifa-dazn-club-world-cup.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/world/asia/south-korea-impach-yoon.html
 **E.P.A. Again Seeks Limits on a Harmful Pesticide**\
 `After a court overturned a ban, the agency has proposed restricting chlorpyrifos to 11 food crops, illustrating the limits of federal regulation.`\
 https://nytimes.com/2024/12/04/health/epa-chlorpyrifos-kennedy.html
-
-**Sam Altman Downplays the Dangers of A.I. and Musk**\
-`The chief executive of OpenAI said the technology would boost productivity and rejected worries that his rival mogul could use his political influence to harm competitors.`\
-https://nytimes.com/2024/12/04/business/dealbook/sam-altman-openai-elon-musk.html
-
-**Trump Picks Jared Isaacman, an Entrepreneur and Private Astronaut, to Lead NASA**\
-`Mr. Isaacman’s company Shift4 Payments made him a billionaire, and he has financed two trips to orbit on SpaceX vehicles, including a daring spacewalk in September.`\
-https://nytimes.com/2024/12/04/science/jared-isaacman-trump-nasa.html
 
