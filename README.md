@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5965815/2024/12/04/joe-gomez-liverpool-newcastle/
 https://nytimes.com/athletic/5968166/2024/12/04/tyrese-haliburton-pacers-raptors/
 
 **How the Sabres hit new low in panic-filled, historic collapse against Avalanche**\
-`“We’ve had enough wake-up calls,” Tage Thompson said. “It’s terrible. That’s all there is to it.”`\
+`"We've had enough wake-up calls," Tage Thompson said. "It's terrible. That's all there is to it."`\
 https://nytimes.com/athletic/5968252/2024/12/04/sabres-collapse-new-low-avalanche/
 
 **How many games can Leeds afford to lose and still win promotion?**\
