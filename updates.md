@@ -1,3 +1,7 @@
+**How good is the FIU job? What's next for the Panthers after Mike MacIntyre's firing**\
+`FIU’s program was founded in 2002, first played FBS games three years later and has had only four winning seasons.`\
+https://nytimes.com/athletic/5968910/2024/12/04/fiu-football-job-profile-candidates/
+
 **How good is the FIU job? What's next for the Panthers with Mike MacIntyre gone to FSU**\
 `FIU’s program was founded in 2002, first played FBS games three years later and has had only four winning seasons.`\
 https://nytimes.com/athletic/5968910/2024/12/04/fiu-football-job-profile-candidates/
