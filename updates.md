@@ -1,3 +1,7 @@
+**Ekeler details memory loss, neck pain in first interview since Week 12 concussion**\
+`"I didn't even remember how I got off the field," Ekeler said in his first media appearance since the concussion and IR placement.`\
+https://nytimes.com/athletic/5967785/2024/12/03/austin-ekeler-commanders-concussion-injured-reserve/
+
 **Trump Donors Who Give at Least $1 Million or Raise $2 Million Get Inaugural Access**\
 `Perks being offered to the top donors to the president-elect’s inaugural committee include dinners with Melania Trump and the next vice president, JD Vance.`\
 https://nytimes.com/2024/12/03/us/politics/trump-donors-inauguration-access.html
