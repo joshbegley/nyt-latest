@@ -1,3 +1,7 @@
+**Until Saturday: Bama vs. the CFP bid-stealers**\
+`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
+https://nytimes.com/athletic/5969246/2024/12/04/college-football-playoff-rankings-alabama-clemson-until-saturday/
+
 **Justice Thomas is a reliable vote against transgender rights.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-thomas-is-a-reliable-vote-against-transgender-rights
@@ -33,8 +37,4 @@ https://nytimes.com/video/arts/television/100000009858352/this-years-hottest-hol
 **Bowden: 7 big trades I'd like to see happen at MLB's Winter Meetings**\
 `There's nothing better than blockbuster trades and everything that comes with them. Here are seven deals Bowden would like to see in Dallas.`\
 https://nytimes.com/athletic/5968557/2024/12/04/mlb-trade-proposals-winter-meetings/
-
-**Canucks report cards: Grading every forward’s November performance**\
-`Amid injuries, absences and off-ice intrigue, the Canucks won games, accumulated points and kept pace in the Pacific Division last month.`\
-https://nytimes.com/athletic/5968382/2024/12/04/canucks-report-cards-forwards-november-2024/
 
