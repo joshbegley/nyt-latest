@@ -1,3 +1,19 @@
+**Dealbook Summit Live Updates: Business and Global Leaders Set for Day of Discussions**\
+`Andrew Ross Sorkin will sit down with nearly a dozen leading figures, including Sam Altman, Jerome Powell, Serena Williams, Jeff Bezos, Bill Clinton and Sundar Pichai.`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news
+
+**Here’s what to expect at the 2024 DealBook Summit.**\
+`By Lauren Hirsch`\
+https://nytimes.com/live/2024/12/04/business/dealbook-summit-news/heres-what-to-expect-at-the-2024-dealbook-summit
+
+**Last Year’s DealBook Summit Was Headlined by a Memorable Elon Musk Discussion**\
+`Mr. Musk caught even Andrew Ross Sorkin off guard, as the Tesla and SpaceX leader accused advertisers that had pulled their money from X of trying to “blackmail” him.`\
+https://nytimes.com/2024/12/04/business/dealbook/elon-musk-dealbook-summit-2023.html
+
+**Handing Out Grants, Zelensky Tries to Win Over War-Weary Ukrainians**\
+`Citizens will be entitled to a $24 one-off payment this winter, President Volodymyr Zelensky announced, in a move apparently intended to soften the blow of a tax rise to help fund the war effort.`\
+https://nytimes.com/2024/12/04/world/europe/ukraine-war-grants-zelensky.html
+
 **South Koreans try to process six hours of martial law.**\
 `By John Yoon`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-martial-law/korea-voices
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5968543/2024/12/04/virgil-van-dijk-contract-liverpo
 **The Athletic FC: Mascherano's fine line with Messi, Man Utd scrap pro-LGBTQ+ plan**\
 `Today in TAFC: Why Mascherano is walking a fine line, Man Utd scrap a pro-LGBTQ+ plan and Yamal steals show with audacious assist.`\
 https://nytimes.com/athletic/5968616/2024/12/04/mascherano-messi-miami-man-utd-lgbtq/
-
-**Trump Transition Live Updates: Big Donors Are Courted With Inaugural Perks**\
-``\
-https://nytimes.com/live/2024/12/04/us/trump-news
-
-**MLS commissioner Garber to stay through 2027 season**\
-`Garber, 67, marked 25 years as MLS commissioner in August.`\
-https://nytimes.com/athletic/5968466/2024/12/04/mls-don-garber-contract/
-
-**West Ham board discussing Lopetegui's future with head coach fighting to save job**\
-`West Ham United&#8217;s board are discussing the future of head coach Julen Lopetegui.`\
-https://nytimes.com/athletic/5783500/2024/12/04/julen-lopetegui-west-ham-united/
-
-**Djokovic will start 2025 season in Brisbane ahead of Australian Open**\
-`Djokovic's new coach Andy Murray is not planning to join him for the Australian Open warm-up, Murray's team said.`\
-https://nytimes.com/athletic/5968572/2024/12/04/novak-djokovic-2025-tennis-season-murray-coach/
 
