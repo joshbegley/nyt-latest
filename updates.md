@@ -1,3 +1,19 @@
+**Fresno State targeting USC linebacker coach Matt Entz for head job: Source**\
+`Matt Entz was wildly successful at North Dakota State. `\
+https://nytimes.com/athletic/5969340/2024/12/04/fresno-state-head-coach-usc-matt-entz/
+
+**Matt Rice, Tennessee’s solicitor general, is defending the state’s ban on gender affirming care.**\
+`Mr. Rice, who was once a clerk for Justice Clarence Thomas, is expected to argue that the ban does not violate constitutional rights.`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/matt-rice-tennessees-solicitor-general-is-defending-the-states-ban-on-gender-affirming-care
+
+**China Just Showed Washington How It Plans to Fight the Next Trade War**\
+`Faltering U.S. industrial leadership has allowed China to take a harder trade stance as President-elect Donald Trump prepares to take office.`\
+https://nytimes.com/2024/12/04/business/china-us-trade-export-controls.html
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/12/04/opinion/thepoint
+
 **App State coaching job profile: Expectations, ceiling high on The Mountain**\
 `This place has always done best with a coach who helps players and the program overachieve.`\
 https://nytimes.com/athletic/5969119/2024/12/04/appalachian-state-football-job-profile-pluses-minuses-and-candidates-to-replace-shawn-clark/

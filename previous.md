@@ -1,3 +1,19 @@
+**Fresno State targeting USC linebacker coach Matt Entz for head job: Source**\
+`Matt Entz was wildly successful at North Dakota State. `\
+https://nytimes.com/athletic/5969340/2024/12/04/fresno-state-head-coach-usc-matt-entz/
+
+**Matt Rice, Tennessee’s solicitor general, is defending the state’s ban on gender affirming care.**\
+`Mr. Rice, who was once a clerk for Justice Clarence Thomas, is expected to argue that the ban does not violate constitutional rights.`\
+https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/matt-rice-tennessees-solicitor-general-is-defending-the-states-ban-on-gender-affirming-care
+
+**China Just Showed Washington How It Plans to Fight the Next Trade War**\
+`Faltering U.S. industrial leadership has allowed China to take a harder trade stance as President-elect Donald Trump prepares to take office.`\
+https://nytimes.com/2024/12/04/business/china-us-trade-export-controls.html
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/12/04/opinion/thepoint
+
 **App State coaching job profile: Expectations, ceiling high on The Mountain**\
 `This place has always done best with a coach who helps players and the program overachieve.`\
 https://nytimes.com/athletic/5969119/2024/12/04/appalachian-state-football-job-profile-pluses-minuses-and-candidates-to-replace-shawn-clark/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/04/world/sumo-wrestling-tournament-uk.html
 **Police Search for Suspect in Killing of UnitedHealthcare C.E.O.**\
 `Brian Thompson, the chief executive of UnitedHealthcare, was fatally shot outside a hotel in Midtown Manhattan as he arrived for the company’s annual investor conference.`\
 https://nytimes.com/video/nyregion/100000009858309/police-search-for-suspect-in-killing-of-unitedhealthcare-ceo.html
-
-**Is It Fair to Assume a Best Friend Is Bad and Selfish if She Supported Trump?**\
-`The magazine’s Ethicist columnist on friendship, suspicion and character assessment.`\
-https://nytimes.com/2024/12/04/magazine/best-friend-selfish-trump-ethics.html
-
-**Until Saturday: Bama vs. the CFP bid-stealers**\
-`Until Saturday Newsletter 🏈 | This is The Athletic’s college football newsletter.`\
-https://nytimes.com/athletic/5969246/2024/12/04/college-football-playoff-rankings-alabama-clemson-until-saturday/
-
-**Justice Thomas is a reliable vote against transgender rights.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/justice-thomas-is-a-reliable-vote-against-transgender-rights
-
-**Chase Strangio, the first openly transgender lawyer to argue before the Supreme Court, is speaking against the ban.**\
-`By Amy Harmon`\
-https://nytimes.com/live/2024/12/04/us/supreme-court-transgender-care/chase-strangio-the-first-openly-transgender-lawyer-to-argue-before-the-supreme-court-is-speaking-against-the-ban
 
