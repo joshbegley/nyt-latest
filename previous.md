@@ -1,3 +1,7 @@
+**The NBA (un)-Panic meter: The Bucks, Knicks, Grizzlies and others who eased early fears**\
+`Teams like the Magic and Mavericks have managed to win despite their stars missing time.`\
+https://nytimes.com/athletic/5971428/2024/12/05/nba-bucks-knicks-magic-no-panic/
+
 **Musk, Trump, A.I. and Other DealBook Summit Highlights**\
 `The economy, inflation, tariffs, the future of media, pardon politics and other big topics that made headlines this year.`\
 https://nytimes.com/2024/12/05/business/dealbook/musk-trump-dealbook-summit-highlights.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965980/2024/12/05/nfl-week-14-fantasy-football-che
 **As Dany Heatley returns to Ottawa, remember the highs and lows of his tenure**\
 `A look back at what brought Dany Heatley to Ottawa, his best Senators moments, why he left and how he'll be received in his return.`\
 https://nytimes.com/athletic/5956988/2024/12/05/heatley-alfredsson-spezza-pizza-line/
-
-**This Holiday Season, Give Someone a Second Chance**\
-`New Jersey Re-entry Corporation helps people stay out of prison once they’ve been in.`\
-https://nytimes.com/2024/12/05/opinion/charity-holiday-gift-incarceration-former-convicts.html
 

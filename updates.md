@@ -1,3 +1,7 @@
+**The NBA (un)-Panic meter: The Bucks, Knicks, Grizzlies and others who eased early fears**\
+`Teams like the Magic and Mavericks have managed to win despite their stars missing time.`\
+https://nytimes.com/athletic/5971428/2024/12/05/nba-bucks-knicks-magic-no-panic/
+
 **Musk, Trump, A.I. and Other DealBook Summit Highlights**\
 `The economy, inflation, tariffs, the future of media, pardon politics and other big topics that made headlines this year.`\
 https://nytimes.com/2024/12/05/business/dealbook/musk-trump-dealbook-summit-highlights.html
