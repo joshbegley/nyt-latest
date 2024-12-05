@@ -1,3 +1,7 @@
+**Live pre-Winter Meetings chat with Red Sox beat writer Jen McCaffrey**\
+`Jen McCaffrey will be chatting live on the site at 1pm ET on Friday, Dec. 6.`\
+https://nytimes.com/athletic/5972637/2024/12/05/live-chat-jen-mccaffrey-red-sox/
+
 **Texas Man Who Killed and Dismembered 3 Is Sentenced to Death**\
 `Jason Alan Thornburg, who lured his victims to a motel room, told the police he was “being called to commit sacrifices,” according to an arrest warrant.`\
 https://nytimes.com/2024/12/05/us/jason-alan-thornburg-death-sentence-texas.html
