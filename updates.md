@@ -1,3 +1,7 @@
+**Eric Bieniemy out as UCLA offensive coordinator: Sources**\
+`UCLA is parting ways with offensive coordinator Eric Bieniemy after one season with the former Kansas City Chiefs assistant leading UCLA&#8217;s offense, two people involved in the decision told The Athletic on Thursday.`\
+https://nytimes.com/athletic/5972435/2024/12/05/eric-bieniemy-ucla-offensive-coordinator-out/
+
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/12/05/books/review/new-books-recommendations.html
