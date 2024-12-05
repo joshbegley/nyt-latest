@@ -1,3 +1,11 @@
+**Here are the latest developments in South Korea.**\
+`By Choe Sang-Hun and Qasim Nauman`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment/here-are-the-latest-developments-in-south-korea
+
+**Live Updates: South Korean Lawmakers Question Military Leaders After Failed Crackdown**\
+`South Korea’s defense minister resigned, apologizing for the crisis after President Yoon Suk Yeol imposed martial law. Lawmakers questioned the military for the first time about its role.`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment
+
 **Loyd requests trade from Storm, Seattle investigation finds no wrongdoing**\
 `Loyd was Seattle’s No. 1 pick in the 2015 WNBA Draft and is the last member of the franchise’s two-time title-winning Big 3.`\
 https://nytimes.com/athletic/5970951/2024/12/04/jewell-loyd-trade-request-seattle-storm-investigation/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/nyregion/brian-thompson-shooting-gunman-cameras.h
 **5 Takeaways From the 2024 DealBook Summit**\
 `Trumponomics, inflation, artificial intelligence, the changing media landscape, and the Elon Musk effect — these were the big themes covered at the annual event.`\
 https://nytimes.com/2024/12/04/business/dealbook/dealbook-summit-takeaways.html
-
-**Corporate security officers from around the world meet in the wake of the Midtown shooting.**\
-`By Jordyn Holman`\
-https://nytimes.com/live/2024/12/04/nyregion/brian-thompson-uhc-ceo-shot/ceo-security-uhc-shooting
-
-**Aaron Rodgers dishes on lack of public backing for Jets coaches from ownership**\
-`The Jets have dismissed both head coach Robert Saleh and general manager Joe Douglas.`\
-https://nytimes.com/athletic/5970470/2024/12/04/jets-qb-aaron-rodgers-woody-johnson-comments/
 
