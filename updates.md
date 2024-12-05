@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Auston Matthews, Mitch Marner rekindle magic for comeback**\
+`Matthews scored two goals and Marner recorded three assists in an electric third-period comeback win for Toronto.`\
+https://nytimes.com/athletic/5971135/2024/12/04/maple-leafs-predators-matthews-marner/
+
 **Here are the latest developments in South Korea.**\
 `By Choe Sang-Hun, John Yoon and Qasim Nauman`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment/here-are-the-latest-developments-in-south-korea
