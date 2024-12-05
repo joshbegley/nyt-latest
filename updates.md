@@ -1,3 +1,7 @@
+**Memphis Says It Will Not Yet Agree to Federal Oversight of Police Department**\
+`The city’s mayor reiterated his reluctance to enter a consent decree after the Justice Department found a pattern of discrimination and excessive force by its officers.`\
+https://nytimes.com/2024/12/05/us/politics/memphis-justice-oversight-police-department.html
+
 **Live Updates: 7.0 Earthquake Rattles Northern California and Prompts Tsunami Warning**\
 `The authorities said they were surveying for signs of damage.`\
 https://nytimes.com/live/2024/12/05/us/earthquake-california
