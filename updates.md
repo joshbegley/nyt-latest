@@ -1,3 +1,11 @@
+**Taylor Swift’s ‘Eras Tour Book’ Sold 814,000 Copies in One Week**\
+`The first week print sales nearly matched Barack Obama’s “A Promised Land,” and put her well ahead of Prince Harry’s “Spare.” And she did it while selling only at Target, avoiding Amazon and bookstores.`\
+https://nytimes.com/2024/12/05/books/taylor-swift-eras-tour-book.html
+
+**The Windup: $600 million and rising**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/5972211/2024/12/05/juan-soto-free-agency-the-windup/
+
 **Lopetegui set to be in charge for West Ham vs Wolves**\
 `Julen Lopetegui is set to be in charge of West Ham United when they play Wolverhampton Wanderers on Monday night despite continued speculation over his long-term future at the club.`\
 https://nytimes.com/athletic/5972090/2024/12/05/julen-lopetegui-west-ham-wolves/
