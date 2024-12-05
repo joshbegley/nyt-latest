@@ -1,3 +1,7 @@
+**Trump’s Threats Over the Dollar Could Accelerate Push for Alternatives**\
+`President-elect Donald J. Trump threatened to impose tariffs on countries that seek to replace the dollar in trade or undermine its global reserve currency status.`\
+https://nytimes.com/2024/12/05/us/politics/trump-dollar-trade-china-russia.html
+
 **French Prime Minister Resigns After No Confidence Vote**\
 `French lawmakers voted to oust Prime Minister Michel Barnier, making his three-month-old government the shortest in modern French history.`\
 https://nytimes.com/video/world/europe/100000009860745/france-prime-minister-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/learning/my-list-a-different-kind-of-review-conte
 **The Satchel: Bills stadium, Josh Allen's left hand, December dilemmas**\
 `Plus, why Kaiir Elam is always a healthy scratch and advice on buying a jersey. `\
 https://nytimes.com/athletic/5971630/2024/12/05/the-satchel-bills-stadium-josh-allens-left-hand-december-dilemmas/
-
-**Trump’s Cabinet Will Be an Embarrassment of Wretches**\
-`The onslaught of awful makes bad look good.`\
-https://nytimes.com/2024/12/05/opinion/trump-cabinet-hegseth-patel.html
 
