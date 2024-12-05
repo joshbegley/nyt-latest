@@ -1,3 +1,11 @@
+**Senate G.O.P. Super PAC Chief Follows McConnell and Steps Down**\
+`Steven J. Law’s departure represents a changing of the guard for the super PAC and coincides with a new leader for Senate Republicans.`\
+https://nytimes.com/2024/12/05/us/politics/senate-gop-super-pac.html
+
+**McKinsey Agrees to Pay $122 Million to Settle South Africa Bribery Case**\
+`The global consultancy was accused of bribing foreign government officials. A former senior partner pleaded guilty to a conspiracy charge.`\
+https://nytimes.com/2024/12/05/world/africa/mckinsey-bribery-case-south-africa.html
+
 **U.S. Is Closing California Prison Plagued by Sexual Abuse**\
 `The Bureau of Prisons said in a memo that it was grappling with “a very difficult budget situation along with significant repair and maintenance backlogs.”`\
 https://nytimes.com/2024/12/05/us/politics/dublin-california-prison-closure.html
