@@ -1,3 +1,11 @@
+**The Bounce: It's time to grade the Western Conference!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5971682/2024/12/05/zion-williamson-pelicans-nba-the-bounce-2/
+
+**The Allure of ‘Microdosing’ Ozempic**\
+`Some people are taking tiny amounts of weight loss medications, hoping to drop pounds while avoiding side effects. Does it work?`\
+https://nytimes.com/2024/12/05/well/ozempic-microdose-weight-loss.html
+
 **Is It Time to Worry About Benzene?**\
 `The carcinogen has been found in sunscreen, deodorants, acne creams and other personal care products. Here’s what to know.`\
 https://nytimes.com/2024/12/05/well/benzene-health-sunscreen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/business/opec-plus-oil-production-delay.html
 **Canucks report cards: Grading every defender and goalie’s November performance**\
 `Standout performances along the blue line and in goal have helped the Canucks' early-season success.`\
 https://nytimes.com/athletic/5971334/2024/12/05/canucks-report-cards-defense-goalie-quinn-hughes/
-
-**How Trump Targeted Undecided Voters Without Breaking the Bank**\
-`The Trump team had a huge financial disadvantage. It made up for it with a strategic innovation that allowed it to narrow the focus of its ad dollars.`\
-https://nytimes.com/2024/12/05/us/politics/trump-streaming-ads-strategy.html
-
-**World’s Priciest Dinosaur Fossil Comes to Museum of Natural History**\
-`The billionaire Kenneth C. Griffin, who bought the stegosaurus fossil for $44.6 million, is loaning it to the American Museum of Natural History in New York for four years.`\
-https://nytimes.com/2024/12/05/arts/most-expensive-stegosaurus-american-museum-of-natural-history.html
 
