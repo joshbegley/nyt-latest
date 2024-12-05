@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in December**\
+`This week in Newly Reviewed, Travis Diehl covers Luis Fernando Benedit’s pop-psychedelic pieces, Andres Serrano and Benjamin Bertocci’s rough paintings, Michael Iveson’s reverse A.I. and Martina Cox’s watercolor bodices. `\
+https://nytimes.com/2024/12/05/arts/nyc-galleries-december.html
+
 **No Food, Water or Power for Opponents Hiding From Venezuelan Government**\
 `Six leading opposition activists and advisers have taken refuge at the Argentine diplomatic residence for eight months. Now, the police are cutting off basic services.`\
 https://nytimes.com/2024/12/05/world/americas/venezuelan-embassy-opposition-activists.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/t-magazine/sparkly-flat-shoes.html
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/12/05/books/review/new-books-recommendations.html
-
-**Eric Bieniemy out as UCLA offensive coordinator: Sources**\
-`The Bruins ranked near the bottom of the Big Ten in total offense and last in rushing at 3.07 yards per carry.`\
-https://nytimes.com/athletic/5972435/2024/12/05/eric-bieniemy-ucla-offensive-coordinator-out/
 
