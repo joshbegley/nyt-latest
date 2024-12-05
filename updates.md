@@ -1,3 +1,11 @@
+**Jets QB Aaron Rodgers: Coaches 'need the backing of the ownership' for success**\
+`The Jets have dismissed both head coach Robert Saleh and general manager Joe Douglas.`\
+https://nytimes.com/athletic/5970470/2024/12/04/jets-qb-aaron-rodgers-woody-johnson-comments/
+
+**Yormark: 'No way should a Group of 5 champion' get CFP bye over Big 12 winner**\
+`Yormark highlighted that Arizona State and Iowa State each played 10 of 12 games against Power 4 opponents this season.`\
+https://nytimes.com/athletic/5970562/2024/12/04/big-12-college-football-playoff-brett-yormark-boise-state/
+
 **NFL upholds Azeez Al-Shaair's three-game suspension on Trevor Lawrence late hit**\
 `Al-Shaair will miss games against the Miami Dolphins, Kansas City Chiefs and Baltimore Ravens during his suspension.`\
 https://nytimes.com/athletic/5969230/2024/12/04/azeez-al-shaair-suspended-concussion-texans/
