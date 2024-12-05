@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5971318/2024/12/05/jaylen-brown-playmaker-celtics-d
 https://nytimes.com/2024/12/05/world/asia/photos-1980-south-korea-martial-law.html
 
 **The Briefing - Athletic 2 Madrid 1: Another Mbappe penalty miss, Ancelotti's headache, Bellingham can't save them**\
-`Madrid looked to be improving in La Liga after a humiliating defeat to Barcelona, but this latest defeat brought them down to earth`\
+`Madrid looked to be improving in La Liga after a humiliating defeat to Barcelona, but this latest loss brought them down to earth`\
 https://nytimes.com/athletic/5970945/2024/12/05/athletic-club-real-madrid-kylian-mbappe/
 
 **Wolves' players look lost and the support has turned - Gary O'Neil is a manager on the brink**\
