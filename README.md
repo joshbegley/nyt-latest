@@ -2,9 +2,9 @@
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/12/05/books/review/new-books-recommendations.html
 
-**UCLA's Eric Bieniemy out as offensive coordinator: Sources**\
+**Eric Bieniemy out as UCLA offensive coordinator: Sources**\
 `UCLA is parting ways with offensive coordinator Eric Bieniemy after one season with the former Kansas City Chiefs assistant leading UCLA&#8217;s offense, two people involved in the decision told The Athletic on Thursday.`\
-https://nytimes.com/athletic/5972435/2024/12/05/uclas-eric-bieniemy-out-as-offensive-coordinator-sources/
+https://nytimes.com/athletic/5972435/2024/12/05/eric-bieniemy-ucla-offensive-coordinator-out/
 
 **'The Michael Kay Show' will move off afternoons, ending an era in New York radio**\
 `The final afternoon show is expected to be next Friday, Dec. 13.`\
