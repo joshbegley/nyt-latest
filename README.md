@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5956988/2024/12/05/heatley-alfredsson-spezza-pizza-
 https://nytimes.com/2024/12/05/opinion/charity-holiday-gift-incarceration-former-convicts.html
 
 **Verstappen threatened to ‘put me in the wall’ after stewards’ meeting, Russell claims**\
-`ABU DHABI, United Arab Emirates — Mercedes F1 driver George Russell claims Red Bull’s Max Verstappen threatened to crash into him and “put you on your f***ing head in the wall” after their stewards hearing ahead of the Qatar Grand Prix and that “people have been bullied by Max for years now.`\
+`ABU DHABI, United Arab Emirates — Mercedes F1 driver George Russell claims Red Bull’s Max Verstappen threatened to crash into him and “put you on your f***ing head in the wall” after their stewards&#8217; hearing ahead of the Qatar Grand Prix and that “people have been bullied by Max for years now.`\
 https://nytimes.com/athletic/5971607/2024/12/05/verstappen-russell-qatar-f1-grand-prix/
 
 **Rebels in Syria Have a New Face**\
