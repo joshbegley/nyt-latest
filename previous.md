@@ -1,3 +1,7 @@
+**Rams DT Kobie Turner revealed as 'Goo' in 'Masked Singer' quarterfinals**\
+`Kobie "The Conductor" Turner has a long history with music, one he alluded to several times during tonight's competition.`\
+https://nytimes.com/athletic/5970526/2024/12/04/rams-kobie-turner-goo-masked-singer/
+
 **Corrections: Dec. 5, 2024**\
 `Corrections that appeared in print on Thursday, Dec. 5, 2024.`\
 https://nytimes.com/2024/12/04/pageoneplus/corrections-dec-5-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5970470/2024/12/04/jets-qb-aaron-rodgers-woody-john
 **NFL upholds Azeez Al-Shaair's three-game suspension on Trevor Lawrence late hit**\
 `Al-Shaair will miss games against the Miami Dolphins, Kansas City Chiefs and Baltimore Ravens during his suspension.`\
 https://nytimes.com/athletic/5969230/2024/12/04/azeez-al-shaair-suspended-concussion-texans/
-
-**Ranking the 4 Nations Face-Off rosters: America's golden era is here**\
-`This is America’s golden era and it's their tournament to lose. Team USA grades out slightly higher than Canada in our roster analysis.`\
-https://nytimes.com/athletic/5967989/2024/12/04/ranking-4-nations-face-off-rosters/
 
