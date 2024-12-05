@@ -1,3 +1,7 @@
+**Corrections: Dec. 5, 2024**\
+`Corrections that appeared in print on Thursday, Dec. 5, 2024.`\
+https://nytimes.com/2024/12/04/pageoneplus/corrections-dec-5-2024.html
+
 **Players linked to MLBPA mutiny attempt depart from top committee in latest election**\
 `Jack Flaherty, Ian Happ and Lucas Giolito were all involved in a push for leadership change in the MLBPA earlier this year. `\
 https://nytimes.com/athletic/5970793/2024/12/04/mlb-players-association-committee-election/

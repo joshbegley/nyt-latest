@@ -1,3 +1,7 @@
+**Corrections: Dec. 5, 2024**\
+`Corrections that appeared in print on Thursday, Dec. 5, 2024.`\
+https://nytimes.com/2024/12/04/pageoneplus/corrections-dec-5-2024.html
+
 **Players linked to MLBPA mutiny attempt depart from top committee in latest election**\
 `Jack Flaherty, Ian Happ and Lucas Giolito were all involved in a push for leadership change in the MLBPA earlier this year. `\
 https://nytimes.com/athletic/5970793/2024/12/04/mlb-players-association-committee-election/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5969230/2024/12/04/azeez-al-shaair-suspended-concus
 **Ranking the 4 Nations Face-Off rosters: America's golden era is here**\
 `This is America’s golden era and it's their tournament to lose. Team USA grades out slightly higher than Canada in our roster analysis.`\
 https://nytimes.com/athletic/5967989/2024/12/04/ranking-4-nations-face-off-rosters/
-
-**South Korea’s Defense Minister Steps Down Over Martial Law Decree**\
-`President Yoon Suk Yeol accepted the resignation of Kim Yong-hyun, who said he considered himself responsible for the short-lived decision to impose military rule.`\
-https://nytimes.com/2024/12/04/world/asia/south-korea-yoon-defense-minister-resigns.html
 
