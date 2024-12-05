@@ -6,9 +6,9 @@ https://nytimes.com/2024/12/05/us/politics/peter-b-teeley-dead.html
 `The Iowa Republican indicated that her private meeting on Wednesday with President-elect Donald J. Trump’s choice to serve as secretary of defense failed to persuade her he was worthy of confirmation.`\
 https://nytimes.com/live/2024/12/05/us/trump-news/senator-joni-ernst-holds-out-on-hegseth-as-his-candidacy-teeters
 
-**The Manhattan shooter used a silencer. There are nearly 5 million registered in the U.S.**\
-`By Mike McIntire`\
-https://nytimes.com/2024/12/05/nyregion/the-manhattan-shooter-used-a-silencer-there-are-nearly-5-million-registered-in-the-us.html
+**Manhattan Shooter Used a Silencer. Nearly 5 Million Are Registered in the U.S.**\
+`The tightly regulated firearm accessory has long been associated with Hollywood hit men but is rarely seen in real-life murders.`\
+https://nytimes.com/2024/12/05/nyregion/unitedhealthcare-shooting-suspect-gun-silencer.html
 
 **Who Is Tech Really For?**\
 `As Silicon Valley chases military tech and funding, it’s losing sight of what inspires its workers.`\
