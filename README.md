@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5971318/2024/12/05/jaylen-brown-playmaker-celtics-d
 `Clashes during President Yoon Suk Yeol’s brief imposition of martial law echoed the military’s actions during an earlier political crisis that lasted longer and turned deadly.`\
 https://nytimes.com/2024/12/05/world/asia/photos-1980-south-korea-martial-law.html
 
-**Athletic 2 Madrid 1: Another Mbappe penalty miss, Ancelotti's headache, Bellingham can't save them**\
+**The Briefing - Athletic 2 Madrid 1: Another Mbappe penalty miss, Ancelotti's headache, Bellingham can't save them**\
 `Madrid looked to be improving in La Liga after a humiliating defeat to Barcelona, but this latest defeat brought them down to earth`\
 https://nytimes.com/athletic/5970945/2024/12/05/athletic-club-real-madrid-kylian-mbappe/
 
