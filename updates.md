@@ -1,3 +1,7 @@
+**General Motors F1 appoints Graeme Lowdon as Cadillac team principal in 2026**\
+`Lowdon has served as an adviser on the project for two years and is currently Sauber driver Zhou Guanyu’s manager.`\
+https://nytimes.com/athletic/5972741/2024/12/05/graeme-lowdon-gm-f1-cadillac-team-principal/
+
 **Remembering Peter Westbrook, Fencing Legend and Father Figure**\
 `He inspired several generations of Black fencers and other athletes.`\
 https://nytimes.com/2024/12/05/opinion/westbrook-black-fencers-inspiration.html

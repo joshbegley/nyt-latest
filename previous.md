@@ -1,3 +1,7 @@
+**General Motors F1 appoints Graeme Lowdon as Cadillac team principal in 2026**\
+`Lowdon has served as an adviser on the project for two years and is currently Sauber driver Zhou Guanyu’s manager.`\
+https://nytimes.com/athletic/5972741/2024/12/05/graeme-lowdon-gm-f1-cadillac-team-principal/
+
 **Remembering Peter Westbrook, Fencing Legend and Father Figure**\
 `He inspired several generations of Black fencers and other athletes.`\
 https://nytimes.com/2024/12/05/opinion/westbrook-black-fencers-inspiration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/learning/whats-going-on-in-this-graph-dec-11-2024
 **‘The Sticky’ Is a Taut and Tasty Heist Thriller**\
 `Starring Margo Martindale, the six-episode Amazon series, based loosely on a true story, tells a gonzo tale of a maple syrup heist.`\
 https://nytimes.com/2024/12/05/arts/television/the-sticky-amazon-prime-video.html
-
-**Memphis Says It Will Not Yet Agree to Federal Oversight of Police Department**\
-`The city’s mayor reiterated his reluctance to enter a consent decree after the Justice Department found a pattern of discrimination and excessive force by its officers.`\
-https://nytimes.com/2024/12/05/us/politics/memphis-justice-oversight-police-department.html
 
