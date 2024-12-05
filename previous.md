@@ -1,3 +1,19 @@
+**Rosenthal: What I'm hearing about the Cardinals and Ryan Helsley, the baffling Blue Jays and more**\
+`Plus more on the Brewers' willingness to trade Devin Williams, the Guardians' trade options and more free agency possibilities. `\
+https://nytimes.com/athletic/5971884/2024/12/05/mlb-what-im-hearing-cardinals-blue-jays/
+
+**My List: A Different Kind of Review Contest**\
+`Choose three to five works of art or culture to group in some way, then tell us why we should — or shouldn’t — check them out. Contest dates: Jan. 15-Feb. 12, 2025.`\
+https://nytimes.com/2024/12/05/learning/my-list-a-different-kind-of-review-contest.html
+
+**The Satchel: Bills stadium, Josh Allen's left hand, December dilemmas**\
+`Plus, why Kaiir Elam is always a healthy scratch and advice on buying a jersey. `\
+https://nytimes.com/athletic/5971630/2024/12/05/the-satchel-bills-stadium-josh-allens-left-hand-december-dilemmas/
+
+**Trump’s Cabinet Will Be an Embarrassment of Wretches**\
+`The onslaught of awful makes bad look good.`\
+https://nytimes.com/2024/12/05/opinion/trump-cabinet-hegseth-patel.html
+
 **Prince Johnson, Warlord Who Executed Liberia’s President, Dies at 72**\
 `A rebel leader in Liberia’s civil wars, he was accused of numerous atrocities. The most notorious was the videotaped mutilation and killing of President Samuel Doe.`\
 https://nytimes.com/2024/12/05/world/africa/prince-johnson-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5957296/2024/12/05/khris-middleton-bucks-return-ank
 **Poking Fun at Classical Music, With Wigs, Hula-Hoops and Puns**\
 `After 11 years, Eddy Chen and Brett Yang are moving on from their beloved, enormously popular comedy duo TwoSet Violin.`\
 https://nytimes.com/2024/12/05/arts/music/twoset-violin-farewell.html
-
-**Historic LeBron and Bronny James jerseys sell for $102,000**\
-`The jerseys were from a unique event in NBA history, so should they have sold for more? `\
-https://nytimes.com/athletic/5970930/2024/12/05/jerseys-worn-by-lebron-and-bronny-james-in-historic-first-nba-game-together-sell-for-102000/
-
-**Taylor Swift’s ‘Eras Tour Book’ Sold 814,000 Copies in One Week**\
-`The first week print sales nearly matched Barack Obama’s “A Promised Land,” and put her well ahead of Prince Harry’s “Spare.” And she did it while selling only at Target, avoiding Amazon and bookstores.`\
-https://nytimes.com/2024/12/05/books/taylor-swift-eras-tour-book.html
-
-**The Windup: $600 million and rising**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/5972211/2024/12/05/juan-soto-free-agency-the-windup/
-
-**Lopetegui set to be in charge for West Ham vs Wolves**\
-`Julen Lopetegui is set to be in charge of West Ham United when they play Wolverhampton Wanderers on Monday night despite continued speculation over his long-term future at the club.`\
-https://nytimes.com/athletic/5972090/2024/12/05/julen-lopetegui-west-ham-wolves/
 

@@ -1,3 +1,19 @@
+**Rosenthal: What I'm hearing about the Cardinals and Ryan Helsley, the baffling Blue Jays and more**\
+`Plus more on the Brewers' willingness to trade Devin Williams, the Guardians' trade options and more free agency possibilities. `\
+https://nytimes.com/athletic/5971884/2024/12/05/mlb-what-im-hearing-cardinals-blue-jays/
+
+**My List: A Different Kind of Review Contest**\
+`Choose three to five works of art or culture to group in some way, then tell us why we should — or shouldn’t — check them out. Contest dates: Jan. 15-Feb. 12, 2025.`\
+https://nytimes.com/2024/12/05/learning/my-list-a-different-kind-of-review-contest.html
+
+**The Satchel: Bills stadium, Josh Allen's left hand, December dilemmas**\
+`Plus, why Kaiir Elam is always a healthy scratch and advice on buying a jersey. `\
+https://nytimes.com/athletic/5971630/2024/12/05/the-satchel-bills-stadium-josh-allens-left-hand-december-dilemmas/
+
+**Trump’s Cabinet Will Be an Embarrassment of Wretches**\
+`The onslaught of awful makes bad look good.`\
+https://nytimes.com/2024/12/05/opinion/trump-cabinet-hegseth-patel.html
+
 **Prince Johnson, Warlord Who Executed Liberia’s President, Dies at 72**\
 `A rebel leader in Liberia’s civil wars, he was accused of numerous atrocities. The most notorious was the videotaped mutilation and killing of President Samuel Doe.`\
 https://nytimes.com/2024/12/05/world/africa/prince-johnson-dead.html
