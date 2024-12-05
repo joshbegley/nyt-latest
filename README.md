@@ -1,3 +1,11 @@
+**St. Pete City Council votes to approve bonds for new Rays stadium, county vote next**\
+`The council’s decision puts the onus on the Pinellas County Board of County Commissioners, who will vote to approve funding on Dec. 17.`\
+https://nytimes.com/athletic/5973030/2024/12/05/new-rays-stadium-council-vote-approval/
+
+**Hegseth Is Fighting to Keep His Nomination Alive**\
+`Also, the police are chasing several leads in New York manhunt. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/12/05/briefing/hegseth-capitol-hill-new-york-city-manhunt.html
+
 **Micah Parsons: Zack Martin would retire before he plays for another team**\
 `“​​This is not the time to have those discussions,” Zack Martin said in regards to playing beyond this season. `\
 https://nytimes.com/athletic/5973019/2024/12/05/cowboys-zack-martin-future-ankle-surgery/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/world/europe/estonia-vandalism-russia-sabotage.ht
 **Listen: Sample 4 Best Books of 2024**\
 `You’ve read our list of the year’s best fiction and nonfiction. Now start listening to them.`\
 https://nytimes.com/2024/12/05/podcasts/best-books-2024-listen.html
-
-**The Briefing: Bournemouth 1 Tottenham 0: Set-piece struggles and away day woes strike Spurs again**\
-`Tottenham Hotspur added to their growing collection of poor results against the Premier League's less glamourous clubs`\
-https://nytimes.com/athletic/5957344/2024/12/05/bournemouth-1-tottenham-0/
-
-**Think You Know How to Brush Your Teeth?**\
-`Dentists would like a word.`\
-https://nytimes.com/interactive/2024/12/05/well/eat/how-to-brush-teeth.html
 
