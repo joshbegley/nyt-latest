@@ -1,4 +1,4 @@
-**Lance Morrow, 85, Award-Winning Essayist for Time Magazine, Dies**\
+**Lance Morrow, 85, Award-Winning Essayist for Time Magazine, Is Dead**\
 `His voice carried weight on the influential back page and as the writer of many “Man of the Year” cover articles. As a memoirist he chronicled his heart attacks.`\
 https://nytimes.com/2024/12/05/business/media/lance-morrow-dead.html
 
