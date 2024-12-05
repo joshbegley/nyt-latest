@@ -1,3 +1,7 @@
+**Lopetegui set to be in charge for West Ham vs Wolves**\
+`Julen Lopetegui is set to be in charge of West Ham United when they play Wolverhampton Wanderers on Monday night despite continued speculation over his long-term future at the club.`\
+https://nytimes.com/athletic/5972090/2024/12/05/julen-lopetegui-west-ham-wolves/
+
 **The Bounce: It's time to grade the Western Conference!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5971682/2024/12/05/zion-williamson-pelicans-nba-the-bounce-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5971015/2024/12/05/jameis-winston-browns-quarterbac
 **OPEC Plus Postpones Plan to Increase Oil Output for Three Months**\
 `The oil cartel had aimed to start opening the taps in January, but delayed in the face of weak demand and plans by other countries to raise production.`\
 https://nytimes.com/2024/12/05/business/opec-plus-oil-production-delay.html
-
-**Canucks report cards: Grading every defender and goalie’s November performance**\
-`Standout performances along the blue line and in goal have helped the Canucks' early-season success.`\
-https://nytimes.com/athletic/5971334/2024/12/05/canucks-report-cards-defense-goalie-quinn-hughes/
 
