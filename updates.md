@@ -1,3 +1,7 @@
+**Word of the Day: incapacitated**\
+`This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/05/learning/word-of-the-day-incapacitated.html
+
 **Chelsea bask in their new-found status as the Premier League's great entertainers**\
 `Enzo Maresca's side having already wracked up 57 goals this season and fans chanted 'Chelsea are back' as Southampton were brushed aside`\
 https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertainers/

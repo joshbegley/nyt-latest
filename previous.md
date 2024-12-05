@@ -1,3 +1,7 @@
+**Word of the Day: incapacitated**\
+`This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/05/learning/word-of-the-day-incapacitated.html
+
 **Chelsea bask in their new-found status as the Premier League's great entertainers**\
 `Enzo Maresca's side having already wracked up 57 goals this season and fans chanted 'Chelsea are back' as Southampton were brushed aside`\
 https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertainers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5969335/2024/12/05/josh-keeley-orient-spurs-goal-fa
 **Nuno's setup showed where Forest want to be, but unfamiliar failings let him down**\
 `Defeat at the Etihad contained some wasteful finishing and defensive lapses, but Nuno's positive approach should be praised.`\
 https://nytimes.com/athletic/5970478/2024/12/05/nuno-nottingham-forest-man-city/
-
-**Club World Cup: From Inter to Chelsea to Auckland City, all 32 teams at 2025 tournament profiled**\
-`We take a look at the teams taking part in the 2025 Club World Cup, including past performances, stats, Opta ranking and players to watch`\
-https://nytimes.com/athletic/5969278/2024/12/05/club-world-cup-team-preview/
 
