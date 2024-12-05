@@ -1,3 +1,15 @@
+**A City of Cameras: How New York Police Will Hunt a Killer**\
+`The prelude, the crime and the aftermath were all caught on video. But investigators will need to use human intelligence to find the person who gunned down an insurance company’s chief executive.`\
+https://nytimes.com/2024/12/04/nyregion/brian-thompson-shooting-gunman-cameras.html
+
+**5 Takeaways From the 2024 DealBook Summit**\
+`Trumponomics, inflation, artificial intelligence, the changing media landscape, and the Elon Musk effect — these were the big themes covered at the annual event.`\
+https://nytimes.com/2024/12/04/business/dealbook/dealbook-summit-takeaways.html
+
+**Corporate security officers from around the world meet in the wake of the Midtown shooting.**\
+`By Jordyn Holman`\
+https://nytimes.com/live/2024/12/04/nyregion/brian-thompson-uhc-ceo-shot/ceo-security-uhc-shooting
+
 **Aaron Rodgers dishes on lack of public backing for Jets coaches from ownership**\
 `The Jets have dismissed both head coach Robert Saleh and general manager Joe Douglas.`\
 https://nytimes.com/athletic/5970470/2024/12/04/jets-qb-aaron-rodgers-woody-johnson-comments/
@@ -25,16 +37,4 @@ https://nytimes.com/video/business/dealbook/100000009860058/jeff-bezos-trump-dea
 **Read the Justice Department’s Report**\
 `The agency released the results of its investigation into the Memphis Police Department, finding that the department used excessive force, treated Black people more harshly than white people, and mistreated people with mental health issues.`\
 https://nytimes.com/interactive/2024/12/04/us/memphis-police-justice-department-report.html
-
-**Luke Fickell takes stock in Wisconsin program as Badgers add 24 recruits**\
-`Wisconsin's class includes eight four-star prospects and ranks No. 24 nationally in the 247Sports Composite. `\
-https://nytimes.com/athletic/5970550/2024/12/04/wisconsin-recruiting-signing-day-fickell/
-
-**Trump Selects Kelly Loeffler, a Top Donor, to Head the Small Business Administration**\
-`During a brief stint as a senator from Georgia, she became a fervent supporter of the president-elect’s agenda near the end of his first term.`\
-https://nytimes.com/2024/12/04/us/politics/kelly-loeffler-trump-small-business-administration.html
-
-**Yormark: 'No way should a Group of 5 champion' get CFP bye over Big 12 winner**\
-`Yormark highlighted that Arizona State and Iowa State each played 10 of 12 games against Power 4 opponents this season.`\
-https://nytimes.com/athletic/5970562/2024/12/04/big-12-college-football-playoff-brett-yormark-boise-state/
 
