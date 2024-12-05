@@ -1,3 +1,19 @@
+**The quake occurred where 3 major tectonic plates meet under the Pacific Ocean.**\
+`By Thomas Fuller`\
+https://nytimes.com/live/2024/12/05/us/earthquake-california/the-quake-occurred-where-3-major-tectonic-plates-meet-under-the-pacific-ocean
+
+**Shalom Nagar Dies; Reluctant Executioner of Adolf Eichmann**\
+`He was the hangman chosen to carry out the sentence on the fugitive Nazi war criminal, in Israel’s only case of capital punishment.`\
+https://nytimes.com/2024/12/05/world/middleeast/shalom-nagar-dead.html
+
+**Aston Villa's Mings says ACL injury could have ended his career**\
+`Aston Villa defender Tyrone Mings has admitted his recovery back from a long-term knee injury was &#8220;awful&#8221; and led to doubts as to whether he would ever return to play.`\
+https://nytimes.com/athletic/5971766/2024/12/05/aston-villa-mings-injury-return-career/
+
+**Hurzeler plays down Enciso social media post after being left out of Brighton squad**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler has played down a message on social media by Julio Enciso after he was left out of the squad for the 3-1 defeat at Fulham.`\
+https://nytimes.com/athletic/5972758/2024/12/05/julio-enciso-brighton-future/
+
 **Who's next man up for each 4 Nations team? A look at the top potential injury replacements**\
 `Canada coach Jon Cooper says "I bet you there will be 10 new players minimum" in the tournament by the time it begins. Who will they be?`\
 https://nytimes.com/athletic/5972629/2024/12/05/4-nations-face-off-subs/
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/12/05/well/eat/how-to-brush-teeth.html
 **Club World Cup predictions: Which players will star and how can the tournament succeed?**\
 `Our experts debate the big issues around FIFA's latest global tournament after today's group stage draw in Miami`\
 https://nytimes.com/athletic/5972093/2024/12/05/fifa-club-world-cup-predictions-analysis/
-
-**Motherhood at 74: World’s Oldest Known Wild Bird Lays Egg**\
-`The U.S. Fish and Wildlife Service announced on Tuesday that Wisdom, a 74-year-old Laysan albatross, had laid an egg at Midway Atoll National Wildlife Refuge at the northwestern edge of the Hawaiian Archipelago.`\
-https://nytimes.com/video/science/earth/100000009861659/worlds-oldest-albatross-egg.html
-
-**A Defiant Macron Says He Won’t Resign as France’s Leader**\
-`A day after his chosen prime minister was forced to resign, President Emmanuel Macron denounced his political opponents.`\
-https://nytimes.com/2024/12/05/world/europe/macron-france-prime-minister.html
-
-**Until Saturday: Will conference championship games cause Playoff chaos?**\
-`Welcome to Until Saturday, the five-star college football newsletter: Will conference championship games cause Playoff chaos?`\
-https://nytimes.com/athletic/5972270/2024/12/05/conference-championship-games-college-football-playoff-until-saturday/
-
-**Images of Unmasked Suspect Emerge as the Police Track C.E.O.’s Killer**\
-`The man sought in the killing of Brian Thompson wore a hood and a smile in surveillance photos. Investigators visited a hostel on the Upper West Side as they mapped his movements.`\
-https://nytimes.com/2024/12/05/nyregion/brian-thompson-uhc-shooting-suspect-search.html
 

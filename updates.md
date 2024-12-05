@@ -1,3 +1,19 @@
+**The quake occurred where 3 major tectonic plates meet under the Pacific Ocean.**\
+`By Thomas Fuller`\
+https://nytimes.com/live/2024/12/05/us/earthquake-california/the-quake-occurred-where-3-major-tectonic-plates-meet-under-the-pacific-ocean
+
+**Shalom Nagar Dies; Reluctant Executioner of Adolf Eichmann**\
+`He was the hangman chosen to carry out the sentence on the fugitive Nazi war criminal, in Israel’s only case of capital punishment.`\
+https://nytimes.com/2024/12/05/world/middleeast/shalom-nagar-dead.html
+
+**Aston Villa's Mings says ACL injury could have ended his career**\
+`Aston Villa defender Tyrone Mings has admitted his recovery back from a long-term knee injury was &#8220;awful&#8221; and led to doubts as to whether he would ever return to play.`\
+https://nytimes.com/athletic/5971766/2024/12/05/aston-villa-mings-injury-return-career/
+
+**Hurzeler plays down Enciso social media post after being left out of Brighton squad**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler has played down a message on social media by Julio Enciso after he was left out of the squad for the 3-1 defeat at Fulham.`\
+https://nytimes.com/athletic/5972758/2024/12/05/julio-enciso-brighton-future/
+
 **Who's next man up for each 4 Nations team? A look at the top potential injury replacements**\
 `Canada coach Jon Cooper says "I bet you there will be 10 new players minimum" in the tournament by the time it begins. Who will they be?`\
 https://nytimes.com/athletic/5972629/2024/12/05/4-nations-face-off-subs/
