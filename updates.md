@@ -1,3 +1,11 @@
+**Bucks' seven-game win streak snapped as old problems return in loss to Hawks**\
+`The issues that plagued the Bucks during their 2-8 start — transition defense, turnovers, defensive rebounding — returned against Atlanta.`\
+https://nytimes.com/athletic/5971577/2024/12/05/giannis-bucks-hawks-streak-snapped/
+
+**Amnesty International Accuses Israel of Genocide in Gaza**\
+`Israel rejected the charge — the first of its kind by a major human rights organization — saying it was “based on lies.”`\
+https://nytimes.com/2024/12/05/world/middleeast/israel-amnesty-international-genocide-gaza.html
+
 **Meet the Toronto Tempo: WNBA's 14th team unveils name, logo**\
 `The Toronto Tempo will begin play in the 2026 WNBA season.`\
 https://nytimes.com/athletic/5971787/2024/12/05/wnba-toronto-tempo-new-team-branding/
