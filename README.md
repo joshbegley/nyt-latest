@@ -1,3 +1,7 @@
+**Reminders of Penn State's 2016 conference crown are all around this week**\
+`The Nittany Lions won the conference crown eight years ago and finally have a chance to reclaim it this Saturday against Oregon.`\
+https://nytimes.com/athletic/5971741/2024/12/05/penn-state-big-ten-championship-college-football-james-franklin/
+
 **BOS Nation FC hire former FC Barcelona executive as new general manager**\
 `The NWSL team will start play in 2026 with Domènec Guasch as its GM.`\
 https://nytimes.com/athletic/5970135/2024/12/05/bos-nation-fc-nwsl-domenec-guasch-fc-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5971235/2024/12/05/kansas-creighton-greg-mcdermott/
 **How Global Conflicts Helped Reignite Syria’s Civil War**\
 `Rebels launched sweeping assaults against the forces of President Bashar al-Assad in northwestern Syria, taking control of large portions of territory, including much of the city of Aleppo.`\
 https://nytimes.com/video/world/middleeast/100000009856457/syria-war-explainer.html
-
-**No Gabriel, no problem: How Arsenal adapted their corners to beat Manchester United**\
-`Arsenal hadn’t scored a corner goal in a Premier League match without Gabriel since he joined - now they look like they don't even need him`\
-https://nytimes.com/athletic/5971488/2024/12/05/arsenal-corners-gabriel-manchester-united/
 
