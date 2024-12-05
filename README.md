@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/05/world/asia/philippines-kidnapping-american-elliot
 `By Alyce McFadden`\
 https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-united-healthcare-news/a-manhunt-continues-heres-the-latest
 
-**Live Updates: Suspect Still at Large in Killing of United Healthcare C.E.O. in Manhattan**\
+**Live Updates: Suspect Still at Large in Killing of UnitedHealthcare C.E.O. in Manhattan**\
 `The police are using dogs, drones and New York City’s vast array of private and city cameras to track down the person who shot Brian Thompson outside a Midtown hotel.`\
 https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-united-healthcare-news
 
