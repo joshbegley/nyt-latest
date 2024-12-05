@@ -1,3 +1,7 @@
+**BOS Nation FC hire former FC Barcelona executive as new general manager**\
+`The NWSL team will start play in 2026 with Domènec Guasch as its GM.`\
+https://nytimes.com/athletic/5970135/2024/12/05/bos-nation-fc-nwsl-domenec-guasch-fc-barcelona/
+
 **The rise of Arizona State's Sam Leavitt, as told by the Sun Devils' other 10-win QBs**\
 `Sam Leavitt joined the ASU 10-win club in his first season, establishing himself as one of the top young quarterbacks in college football.`\
 https://nytimes.com/athletic/5970979/2024/12/05/sam-leavitt-arizona-state-sun-devils-quarterback-growth/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009856457/syria-war-explainer.h
 **No Gabriel, no problem: How Arsenal adapted their corners to beat Manchester United**\
 `Arsenal hadn’t scored a corner goal in a Premier League match without Gabriel since he joined - now they look like they don't even need him`\
 https://nytimes.com/athletic/5971488/2024/12/05/arsenal-corners-gabriel-manchester-united/
-
-**Deadly Israeli Strike Hits Gaza Humanitarian Zone**\
-`The Israeli military said it was targeting senior Hamas militants in the area. Video from the scene showed the charred remains of tents.`\
-https://nytimes.com/2024/12/05/world/middleeast/israel-strike-gaza-al-mawasi.html
 
