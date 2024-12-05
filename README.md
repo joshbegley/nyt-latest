@@ -1,3 +1,7 @@
+**Wolves' players look lost and the support has turned - Gary O'Neil is a manager on the brink**\
+`The away fans at Goodison Park made their feelings clear as Wolves' spluttering campaign plumbed new depths, with change feeling inevitable`\
+https://nytimes.com/athletic/5970727/2024/12/05/wolves-oneil-manager-support-everton/
+
 **Penguin on a Beach**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/12/05/learning/penguin-on-a-beach.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5970408/2024/12/05/liverpool-newcastle-slot-salah/
 **Everton really needed this**\
 `It has been a while since Dyche and his team have had a match as positive as this. He made changes - the players and Goodison responded`\
 https://nytimes.com/athletic/5970666/2024/12/05/everton-sean-dyche-needed-this/
-
-**Word of the Day: incapacitated**\
-`This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/05/learning/word-of-the-day-incapacitated.html
 
