@@ -1,3 +1,11 @@
+**Duke notches needed statement win over No. 2 Auburn as Cooper Flagg stars**\
+`Flagg scored 16 of his game-high 22 points in the second half, to go along with 11 rebounds, four steals, three assists and two blocks.`\
+https://nytimes.com/athletic/5971199/2024/12/05/duke-auburn-cooper-flagg/
+
+**Spurs 'keeper Josh Keeley: 'I didn't expect to score, I've never practised that header'**\
+`The young Spurs 'keeper - on loan at Leyton Orient - scored in the FA Cup on Saturday, but has longer-term goals at his parent club`\
+https://nytimes.com/athletic/5969335/2024/12/05/josh-keeley-orient-spurs-goal-fa-cup/
+
 **Nuno's setup showed where Forest want to be, but unfamiliar failings let him down**\
 `Defeat at the Etihad contained some wasteful finishing and defensive lapses, but Nuno's positive approach should be praised.`\
 https://nytimes.com/athletic/5970478/2024/12/05/nuno-nottingham-forest-man-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/pageoneplus/quote-of-the-day-jolted-by-war-ukrain
 **Maple Leafs report cards: Auston Matthews, Mitch Marner rekindle magic for comeback**\
 `Matthews scored two goals and Marner recorded three assists in an electric third-period comeback win for Toronto.`\
 https://nytimes.com/athletic/5971135/2024/12/04/maple-leafs-predators-matthews-marner/
-
-**NFL, NFLPA agree to policy changes on substance abuse and PEDs**\
-`Players will be fined $15,000 for recording and posting PED testing process on social media. `\
-https://nytimes.com/athletic/5971049/2024/12/04/nfl-nflpa-policy-ped-substance-abuse/
-
-**Trump Picks Banking Executive to Lead Social Security Administration**\
-`Frank Bisignano has spent his career at major Wall Street banks. He has a long history of political giving, mainly to Republicans.`\
-https://nytimes.com/2024/12/04/us/politics/frank-bisignano-social-security.html
 
