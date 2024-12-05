@@ -1,3 +1,7 @@
+**Former Proud Boys Leader Testifies in Defense of Officer Accused of Aiding Him**\
+`Enrique Tarrio appeared in court for the first time since being sentenced to 22 years in prison for seditious conspiracy over his role in the Jan. 6, 2021, attack on the Capitol.`\
+https://nytimes.com/2024/12/05/us/politics/enrique-tarrio-proud-boys-testimony.html
+
 **Friday Briefing: Syrian Rebels Storm Another City**\
 `Plus, a celebration of art in Dakar.`\
 https://nytimes.com/2024/12/05/briefing/syria-manhunt-south-korea.html
