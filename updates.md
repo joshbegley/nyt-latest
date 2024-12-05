@@ -1,3 +1,11 @@
+**Images of Unmasked Suspect Emerge as the Police Track C.E.O.’s Killer**\
+`The man sought in the killing of Brian Thompson wore a hood and a smile in surveillance photos. Investigators visited a hostel on the Upper West Side as they mapped his movements.`\
+https://nytimes.com/2024/12/05/nyregion/brian-thompson-uhc-shooting-suspect-search.html
+
+**No fans punished in Georgia-Texas bottle-throwing incident**\
+`SEC commissioner Greg Sankey indicated league stadiums will adjust “where there need to be cameras.” `\
+https://nytimes.com/athletic/5972822/2024/12/05/georgia-texas-water-bottle-investigation-sec/
+
 **Why did Connor Bedard miss the 4 Nations cut? GM Don Sweeney explains — and hints at Olympic plans**\
 `Canada coach Jon Cooper said the team must approach 4 Nations like it's "three Game 7s" and that experience in those situations matters.`\
 https://nytimes.com/athletic/5972760/2024/12/05/connor-bedard-4-nations-cut/

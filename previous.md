@@ -1,3 +1,11 @@
+**Images of Unmasked Suspect Emerge as the Police Track C.E.O.’s Killer**\
+`The man sought in the killing of Brian Thompson wore a hood and a smile in surveillance photos. Investigators visited a hostel on the Upper West Side as they mapped his movements.`\
+https://nytimes.com/2024/12/05/nyregion/brian-thompson-uhc-shooting-suspect-search.html
+
+**No fans punished in Georgia-Texas bottle-throwing incident**\
+`SEC commissioner Greg Sankey indicated league stadiums will adjust “where there need to be cameras.” `\
+https://nytimes.com/athletic/5972822/2024/12/05/georgia-texas-water-bottle-investigation-sec/
+
 **Defiant Hegseth Vows to Keep Fighting as Votes Remain Uncertain**\
 `Donald J. Trump’s choice to lead the Pentagon said he would try to earn every vote so long as he remained the president-elect’s pick, despite continued concern among Republican senators about his past conduct.`\
 https://nytimes.com/2024/12/05/us/politics/pete-hegseth-defense-secretary-fight.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/us/politics/enrique-tarrio-proud-boys-testimony.h
 **Friday Briefing: Syrian Rebels Storm Another City**\
 `Plus, a celebration of art in Dakar.`\
 https://nytimes.com/2024/12/05/briefing/syria-manhunt-south-korea.html
-
-**Giants add coaches Oscar Bernard, Damon Minor to major-league hitting staff**\
-`Bernard was part of Bob Melvin’s staff in San Diego in 2023. Minor spent eight seasons as the Giants’ Triple-A hitting coach.`\
-https://nytimes.com/athletic/5972756/2024/12/05/sf-giants-coaching-changes-oscar-bernard-damon-minor/
-
-**We Answer Your Very Specific Restaurant Questions**\
-`Neighborhood gems, Mexican bacchanals and more reader requests.`\
-https://nytimes.com/2024/12/05/dining/we-answer-your-very-specific-restaurant-questions.html
 
