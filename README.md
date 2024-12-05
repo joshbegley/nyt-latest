@@ -1,3 +1,7 @@
+**Motherhood at 74: World’s Oldest Known Wild Bird Lays Egg**\
+`The U.S. Fish and Wildlife Service announced on Tuesday that Wisdom, a 74-year-old Laysan albatross, had laid an egg at Midway Atoll National Wildlife Refuge at the northwestern edge of the Hawaiian Archipelago.`\
+https://nytimes.com/video/science/earth/100000009861659/worlds-oldest-albatross-egg.html
+
 **A Defiant Macron Says He Won’t Resign as France’s Leader**\
 `A day after his chosen prime minister was forced to resign, President Emmanuel Macron denounced his political opponents.`\
 https://nytimes.com/2024/12/05/world/europe/macron-france-prime-minister.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972775/2024/12/05/sec-championship-texas-georgia-g
 **Why did Connor Bedard miss the 4 Nations cut? GM Don Sweeney explains — and hints at Olympic plans**\
 `Canada coach Jon Cooper said the team must approach 4 Nations like it's "three Game 7s" and that experience in those situations matters.`\
 https://nytimes.com/athletic/5972760/2024/12/05/connor-bedard-4-nations-cut/
-
-**NBA fines Ime Udoka, Tari Eason, Alperen Sengun in Rockets' loss to Kings**\
-`Udoka was fined $50,000, Eason was fined $35,000 and Sengun was fined $15,000`\
-https://nytimes.com/athletic/5972670/2024/12/05/nba-fines-ime-udoka-tari-eason-alperen-sengun-for-actions-in-rockets-loss-to-kings/
 
