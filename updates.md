@@ -1,3 +1,11 @@
+**A Backpack Maker Believes He Identified the Shooting Suspect’s Bag**\
+`Peter Dering, the founder and chief executive of Peak Design, says he called the N.Y.P.D. tip line on Wednesday after receiving a wave of messages showing the suspect carrying a distinctive backpack.`\
+https://nytimes.com/2024/12/05/nyregion/peak-design-backpack-brian-thompson-shooting.html
+
+**Cowboys' Zack Martin to undergo season-ending ankle surgery**\
+`Martin had missed only 11 games throughout his first 10 NFL seasons.`\
+https://nytimes.com/athletic/5972380/2024/12/05/zack-martin-cowboys-season-ending-ankle-injury/
+
 **Manhattan Shooter Used a Silencer. Nearly 5 Million Are Registered in the U.S.**\
 `The tightly regulated firearm accessory has long been associated with Hollywood hit men but is rarely seen in real-life murders.`\
 https://nytimes.com/2024/12/05/nyregion/unitedhealthcare-shooting-suspect-gun-silencer.html
