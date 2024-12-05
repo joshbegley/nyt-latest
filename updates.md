@@ -1,3 +1,19 @@
+**Lance Morrow, 85, Award-Winning Essayist for Time Magazine, Dies**\
+`His voice carried weight on the influential back page and as the writer of many “Man of the Year” cover articles. As a memoirist he chronicled his heart attacks.`\
+https://nytimes.com/2024/12/05/business/media/lance-morrow-dead.html
+
+**Angel City FC parts ways with general manager Angela Hucles**\
+`Hucles and president Julie Uhrman were previously suspended after the NWSL found Angel City in violation of salary cap procedures`\
+https://nytimes.com/athletic/5972564/2024/12/05/angel-city-parts-ways-angela-hucles/
+
+**6.6 Earthquake Rattles Northern California and Prompts Tsunami Warning**\
+`The authorities said they were surveying for signs of damage.`\
+https://nytimes.com/2024/12/05/us/earthquake-california.html
+
+**What Know About a Landmark Court Case**\
+`Judges in The Hague are weighing what, exactly, international law requires countries to do about global warming.`\
+https://nytimes.com/2024/12/05/climate/icj-climate-case-hague.html
+
 **The Best Sparkly Flats, From $60 to $1,850**\
 `For holiday party season, easy ballerinas and Mary Janes that catch the light.`\
 https://nytimes.com/2024/12/05/t-magazine/sparkly-flat-shoes.html
