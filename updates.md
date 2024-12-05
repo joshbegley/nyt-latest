@@ -1,3 +1,15 @@
+**University of Michigan Ends Required Diversity Statements**\
+`The school, a bastion of D.E.I., will no longer require the statements in hiring decisions and is considering a broader shift in its policies.`\
+https://nytimes.com/2024/12/05/us/university-of-michigan-dei-diversity-statemements.html
+
+**Roommate Murdered Kenyan Gay Rights Activist, Court Finds**\
+`Edwin Chiloba’s body was found stuffed inside a metal box by the roadside last year. A high court judge did not give a motive but said his roommate carried out the murder.`\
+https://nytimes.com/2024/12/05/world/africa/kenya-edwin-chiloba-murder.html
+
+**NASA Missions to Return to the Moon Delayed Until 2026 and 2027**\
+`It is unclear where the program, known as Artemis, will head after President-elect Donald J. Trump returns to the White House in January.`\
+https://nytimes.com/2024/12/05/science/nasa-moon-artemis-delayed-2027.html
+
 **A Backpack Maker Believes He Identified the Shooting Suspect’s Bag**\
 `Peter Dering, the founder and chief executive of Peak Design, says he called the N.Y.P.D. tip line on Wednesday after receiving a wave of messages showing the suspect carrying a distinctive backpack.`\
 https://nytimes.com/2024/12/05/nyregion/peak-design-backpack-brian-thompson-shooting.html
