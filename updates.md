@@ -1,3 +1,7 @@
+**‘Like a violent elevator ride’: Residents closest to the epicenter describe the quake.**\
+`By Shawn Hubler and Corina Knoll`\
+https://nytimes.com/live/2024/12/05/us/earthquake-california/like-a-violent-elevator-ride-residents-closest-to-the-epicenter-describe-the-quake
+
 **4 Nations brings Wild locker room a friendly Sweden-U.S. rivalry: 'I would love to score on him'**\
 `Brock Faber and Matt Boldy were named to the U.S. roster and Filip Gustavsson, Joel Eriksson Ek and Jonas Brodin were named to Sweden's.`\
 https://nytimes.com/athletic/5973007/2024/12/05/wild-locker-room-rivalry-4-nations/
