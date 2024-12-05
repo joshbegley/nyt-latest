@@ -1,3 +1,11 @@
+**Nevada man sentenced to prison for fraud scheme involving Jackie Robinson contracts**\
+`Mykalai Kontilai leveraged his claim to the Robinson contracts to raise over $20 million as a key part of a fraudulent business plan. `\
+https://nytimes.com/athletic/5972525/2024/12/05/jackie-robinson-contracts-fraud-sentencing/
+
+**Map: 7.0-Magnitude Earthquake Shakes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/12/05/us/quake-tracker-california.html
+
 **What to See in N.Y.C. Galleries in December**\
 `This week in Newly Reviewed, Travis Diehl covers Luis Fernando Benedit’s pop-psychedelic pieces, Andres Serrano and Benjamin Bertocci’s rough paintings, Michael Iveson’s reverse A.I. and Martina Cox’s watercolor bodices. `\
 https://nytimes.com/2024/12/05/arts/nyc-galleries-december.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/climate/icj-climate-case-hague.html
 **7.0 Earthquake Rattles Northern California and Prompts Tsunami Warning**\
 `The authorities said they were surveying for signs of damage.`\
 https://nytimes.com/2024/12/05/us/earthquake-california.html
-
-**The Best Sparkly Flats, From $60 to $1,850**\
-`For holiday party season, easy ballerinas and Mary Janes that catch the light.`\
-https://nytimes.com/2024/12/05/t-magazine/sparkly-flat-shoes.html
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/12/05/books/review/new-books-recommendations.html
 
