@@ -1,3 +1,7 @@
+**The Best Sparkly Flats, From $60 to $1,850**\
+`For holiday party season, easy ballerinas and Mary Janes that catch the light.`\
+https://nytimes.com/2024/12/05/t-magazine/sparkly-flat-shoes.html
+
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/12/05/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/us/university-of-michigan-dei-diversity-statememe
 **Roommate Murdered Kenyan Gay Rights Activist, Court Finds**\
 `Edwin Chiloba’s body was found stuffed inside a metal box by the roadside last year. A high court judge did not give a motive but said his roommate carried out the murder.`\
 https://nytimes.com/2024/12/05/world/africa/kenya-edwin-chiloba-murder.html
-
-**NASA Missions to Return to the Moon Delayed Until 2026 and 2027**\
-`It is unclear where the program, known as Artemis, will head after President-elect Donald J. Trump returns to the White House in January.`\
-https://nytimes.com/2024/12/05/science/nasa-moon-artemis-delayed-2027.html
 

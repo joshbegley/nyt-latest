@@ -1,3 +1,7 @@
+**The Best Sparkly Flats, From $60 to $1,850**\
+`For holiday party season, easy ballerinas and Mary Janes that catch the light.`\
+https://nytimes.com/2024/12/05/t-magazine/sparkly-flat-shoes.html
+
 **Eric Bieniemy out as UCLA offensive coordinator: Sources**\
 `UCLA is parting ways with offensive coordinator Eric Bieniemy after one season with the former Kansas City Chiefs assistant leading UCLA&#8217;s offense, two people involved in the decision told The Athletic on Thursday.`\
 https://nytimes.com/athletic/5972435/2024/12/05/eric-bieniemy-ucla-offensive-coordinator-out/
