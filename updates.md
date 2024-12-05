@@ -1,3 +1,7 @@
+**Why did Connor Bedard miss the 4 Nations cut? GM Don Sweeney explains — and hints at Olympic plans**\
+`Canada coach Jon Cooper said the team must approach 4 Nations like it's "three Game 7s" and that experience in those situations matters.`\
+https://nytimes.com/athletic/5972760/2024/12/05/connor-bedard-4-nations-cut/
+
 **Defiant Hegseth Vows to Keep Fighting as Votes Remain Uncertain**\
 `Donald J. Trump’s choice to lead the Pentagon said he would try to earn every vote so long as he remained the president-elect’s pick, despite continued concern among Republican senators about his past conduct.`\
 https://nytimes.com/2024/12/05/us/politics/pete-hegseth-defense-secretary-fight.html
