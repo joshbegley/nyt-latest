@@ -10,7 +10,7 @@ https://nytimes.com/2024/12/05/world/europe/estonia-vandalism-russia-sabotage.ht
 `You’ve read our list of the year’s best fiction and nonfiction. Now start listening to them.`\
 https://nytimes.com/2024/12/05/podcasts/best-books-2024-listen.html
 
-**The Briefing: Bournemouth 1 Tottenham 0: Set-piece struggles and away day woe strike again**\
+**The Briefing: Bournemouth 1 Tottenham 0: Set-piece struggles and away day woe strike Spurs again**\
 `Tottenham Hotspur added to their growing collection of poor results against the Premier League's less glamourous clubs`\
 https://nytimes.com/athletic/5957344/2024/12/05/bournemouth-1-tottenham-0/
 
