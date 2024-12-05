@@ -1,3 +1,7 @@
+**Newcastle United: Wildly unpredictable, thrilling on transition, utterly headache inducing**\
+`Eddie Howe's side continue to threaten and thrive against the Premier League's best, while labouring against those they might expect to beat`\
+https://nytimes.com/athletic/5968513/2024/12/05/newcastle-liverpool-isak-howe-transition/
+
 **Liverpool showed a rare vulnerability at Newcastle but Slot should not be overly worried**\
 `The league leaders were shaky in defence, have injury problems and wasted chances as, for once, they dropped below their best level`\
 https://nytimes.com/athletic/5970408/2024/12/05/liverpool-newcastle-slot-salah/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertaine
 `Both of Arsenal's goals against Manchester United came from set pieces and their routines caused all sorts of problems once again`\
 https://nytimes.com/athletic/5970917/2024/12/05/nicolas-jover-arsenal-set-pieces/
 
-**Amorim has started to ring the changes at United - first defeat won't deter him**\
+**Amorim has started to ring the changes at United - his first defeat won't deter him**\
 `Despite his first defeat, the rest of the Premier League should expect Amorim to keep the carousel on personnel going during his reign`\
 https://nytimes.com/athletic/5970865/2024/12/05/ruben-amorim-manchester-united-changes/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/05/opinion/nuclear-weapons-space.html
 **FPL: Fantasy Premier League: How the teams with the busiest winter schedules affect your plans**\
 `A number of clubs will play multiple midweek games in several competitions before the year ends. Here's who you need to keep an eye on`\
 https://nytimes.com/athletic/5968531/2024/12/05/fantasy-premier-league-fixtures-gameweeks-december-christmas/
-
-**Duke notches needed statement win over No. 2 Auburn as Cooper Flagg stars**\
-`Flagg scored 16 of his game-high 22 points in the second half, to go along with 11 rebounds, four steals, three assists and two blocks.`\
-https://nytimes.com/athletic/5971199/2024/12/05/duke-auburn-cooper-flagg/
 
