@@ -1,3 +1,19 @@
+**No Gabriel, no problem: How Arsenal adapted their corners to beat Manchester United**\
+`Arsenal hadn’t scored a corner goal in a Premier League match without Gabriel since he joined - now they look like they don't even need him`\
+https://nytimes.com/athletic/5971488/2024/12/05/arsenal-corners-gabriel-manchester-united/
+
+**Deadly Israeli Strike Hits Gaza Humanitarian Zone**\
+`The Israeli military said it was targeting senior Hamas militants in the area. Video from the scene showed the charred remains of tents.`\
+https://nytimes.com/2024/12/05/world/middleeast/israel-strike-gaza-al-mawasi.html
+
+**NFL Week 14 fantasy football, betting cheat sheet: Trevor Lawrence hits injured reserve**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5965980/2024/12/05/nfl-week-14-fantasy-football-cheat-sheet-betting-injuries/
+
+**As Dany Heatley returns to Ottawa, remember the highs and lows of his tenure**\
+`A look back at what brought Dany Heatley to Ottawa, his best Senators moments, why he left and how he'll be received in his return.`\
+https://nytimes.com/athletic/5956988/2024/12/05/heatley-alfredsson-spezza-pizza-line/
+
 **This Holiday Season, Give Someone a Second Chance**\
 `New Jersey Re-entry Corporation helps people stay out of prison once they’ve been in.`\
 https://nytimes.com/2024/12/05/opinion/charity-holiday-gift-incarceration-former-convicts.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-united-healthcare-ne
 **Live Updates: Suspect Still at Large in Killing of UnitedHealthcare C.E.O. in Manhattan**\
 `The police are using dogs, drones and New York City’s vast array of private and city cameras to track down the person who shot Brian Thompson outside a Midtown hotel.`\
 https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-united-healthcare-news
-
-**Raiders RB Sincere McCormick ready to take advantage of his opportunity and run with it**\
-`With Zamir White and Alexander Mattison injured, McCormick shined against the Chiefs. Will he get more playing time?`\
-https://nytimes.com/athletic/5970207/2024/12/05/sincere-mccormick-raiders-running-back/
-
-**Inside the Oilers' lessons from losing Broberg and Holloway and how they're applying it to future development**\
-`Oilers hockey operations CEO Jeff Jackson is vowing to change the way the Oilers manage their prospects.`\
-https://nytimes.com/athletic/5970535/2024/12/05/oilers-broberg-holloway-prospects-lessons/
-
-**How Kelly Chase's 'dry-rotted, cracked' shoulder pads became the Blues' postgame MVP award**\
-`After every Blues win, players bestow a pair of Kelly Chase's old shoulder pads to the team MVP. Here's the story behind the new tradition.`\
-https://nytimes.com/athletic/5958371/2024/12/05/blues-mvp-kelly-chase-shoulder-pads/
-
-**Silver: 49ers are clinging for hope while enduring a 'season from hell'**\
-`Mathematically, the 49ers are alive in the playoff picture. Realistically, they're having trouble putting one foot in front of the other.`\
-https://nytimes.com/athletic/5970987/2024/12/05/san-francisco-49ers-season-from-hell/
 
