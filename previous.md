@@ -1,3 +1,7 @@
+**What Students Are Saying About Teachers Using A.I. to Grade**\
+`Teenagers and educators weigh in on a recent question from The Ethicist.`\
+https://nytimes.com/2024/12/05/learning/what-students-are-saying-about-teachers-using-ai-to-grade.html
+
 **General Motors F1 appoints Graeme Lowdon as Cadillac team principal in 2026**\
 `Lowdon has served as an adviser on the project for two years and is currently Sauber driver Zhou Guanyu’s manager.`\
 https://nytimes.com/athletic/5972741/2024/12/05/graeme-lowdon-gm-f1-cadillac-team-principal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/learning/whats-going-on-in-this-picture-dec-9-202
 **What’s Going On in This Graph? | Dec. 11, 2024**\
 `Should football players eat Uncrustables to become champions?`\
 https://nytimes.com/2024/12/05/learning/whats-going-on-in-this-graph-dec-11-2024.html
-
-**‘The Sticky’ Is a Taut and Tasty Heist Thriller**\
-`Starring Margo Martindale, the six-episode Amazon series, based loosely on a true story, tells a gonzo tale of a maple syrup heist.`\
-https://nytimes.com/2024/12/05/arts/television/the-sticky-amazon-prime-video.html
 
