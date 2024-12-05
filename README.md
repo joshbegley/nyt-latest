@@ -14,7 +14,7 @@ https://nytimes.com/2024/12/05/nyregion/jordan-neely-father-daniel-penny-lawsuit
 `What effect will Georgia and Texas facing off in the SEC Championship Game have on the teams in the College Football Playoff?`\
 https://nytimes.com/athletic/5972775/2024/12/05/sec-championship-texas-georgia-greg-sankey/
 
-**Why did Connor Bedard miss the 4 Nations cut? GM Don Sweeney explains — and hints Olympic plans**\
+**Why did Connor Bedard miss the 4 Nations cut? GM Don Sweeney explains — and hints at Olympic plans**\
 `Canada coach Jon Cooper said the team must approach 4 Nations like it's "three Game 7s" and that experience in those situations matters.`\
 https://nytimes.com/athletic/5972760/2024/12/05/connor-bedard-4-nations-cut/
 
