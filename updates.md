@@ -1,3 +1,7 @@
+**Club World Cup: From Inter to Chelsea to Auckland City, all 32 teams at 2025 tournament profiled**\
+`We take a look at the teams taking part in the 2025 Club World Cup, including past performances, stats, Opta ranking and players to watch`\
+https://nytimes.com/athletic/5969278/2024/12/05/club-world-cup-team-preview/
+
 **Blackhawks paid Tyler Bertuzzi to provide offense. So far, he isn't delivering**\
 `With a lot of the roster, the Blackhawks weren't exactly sure what they'd get this season. With Bertuzzi, they thought they knew.`\
 https://nytimes.com/athletic/5971018/2024/12/05/blackhawks-tyler-bertuzzi-offense-bruins/

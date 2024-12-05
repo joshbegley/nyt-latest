@@ -1,3 +1,7 @@
+**Club World Cup: From Inter to Chelsea to Auckland City, all 32 teams at 2025 tournament profiled**\
+`We take a look at the teams taking part in the 2025 Club World Cup, including past performances, stats, Opta ranking and players to watch`\
+https://nytimes.com/athletic/5969278/2024/12/05/club-world-cup-team-preview/
+
 **Blackhawks paid Tyler Bertuzzi to provide offense. So far, he isn't delivering**\
 `With a lot of the roster, the Blackhawks weren't exactly sure what they'd get this season. With Bertuzzi, they thought they knew.`\
 https://nytimes.com/athletic/5971018/2024/12/05/blackhawks-tyler-bertuzzi-offense-bruins/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/us/politics/frank-bisignano-social-security.html
 **Like Something a Rabbit Might Say**\
 `Garrett Chalfin turns us every which way and teaches us an important lesson.`\
 https://nytimes.com/2024/12/04/crosswords/daily-puzzle-2024-12-05.html
-
-**Bitcoin Hits a Milestone: $100,000**\
-`The price of a single Bitcoin rose to six figures for the first time, an extraordinary level for a 16-year-old cryptocurrency once dismissed as a sideshow.`\
-https://nytimes.com/2024/12/04/technology/bitcoin-price-record.html
 
