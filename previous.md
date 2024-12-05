@@ -1,4 +1,4 @@
-**Trumps Picks Banking Executive to Lead Social Security Administration**\
+**Trump Picks Banking Executive to Lead Social Security Administration**\
 `Frank Bisignano has spent his career at major Wall Street banks. He has a long history of political giving, mainly to Republicans.`\
 https://nytimes.com/2024/12/04/us/politics/frank-bisignano-social-security.html
 
