@@ -1,3 +1,11 @@
+**A Backpack Maker Believes He Identified the Shooting Suspect’s Bag**\
+`Peter Dering, the founder and chief executive of Peak Design, says he called the N.Y.P.D. tip line on Wednesday after receiving a wave of messages showing the suspect carrying a distinctive backpack.`\
+https://nytimes.com/2024/12/05/nyregion/peak-design-backpack-brian-thompson-shooting.html
+
+**Cowboys' Zack Martin to undergo season-ending ankle surgery**\
+`Martin had missed only 11 games throughout his first 10 NFL seasons.`\
+https://nytimes.com/athletic/5972380/2024/12/05/zack-martin-cowboys-season-ending-ankle-injury/
+
 **Peter B. Teeley, Who Coined the Term ‘Voodoo Economics,’ Dies at 84**\
 `As press secretary for George H.W. Bush, he came up with the expression to attack Ronald Reagan’s economic plan. The term took on a life of its own.`\
 https://nytimes.com/2024/12/05/us/politics/peter-b-teeley-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/realestate/manhattan-upper-west-side-eric-abrams-
 **Luis Severino agrees to three-year, $67 million deal with the Athletics**\
 `The A's make an early move by signing the former Mets starter, who is the No. 23 player on The Athletic's free agent big board.`\
 https://nytimes.com/athletic/5965778/2024/12/05/luis-severino-contract-athletics-mlb-free-agency/
-
-**Historic, emotional F1 practice awaits Leclerc brothers at Abu Dhabi GP**\
-`Charles and Arthur Leclerc will become the first brothers to take part in an F1 session as teammates on Friday.`\
-https://nytimes.com/athletic/5972372/2024/12/05/charles-leclerc-brother-f1-abu-dhabi-practice/
-
-**Trump’s Threats Over the Dollar Could Accelerate Push for Alternatives**\
-`President-elect Donald J. Trump threatened to impose tariffs on countries that seek to replace the dollar in trade or undermine its global reserve currency status.`\
-https://nytimes.com/2024/12/05/us/politics/trump-dollar-trade-china-russia.html
 
