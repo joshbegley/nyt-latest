@@ -1,3 +1,19 @@
+**Lance Morrow, 85, Award-Winning Essayist for Time Magazine, Dies**\
+`His voice carried weight on the influential back page and as the writer of many “Man of the Year” cover articles. As a memoirist he chronicled his heart attacks.`\
+https://nytimes.com/2024/12/05/business/media/lance-morrow-dead.html
+
+**Angel City FC parts ways with general manager Angela Hucles**\
+`Hucles and president Julie Uhrman were previously suspended after the NWSL found Angel City in violation of salary cap procedures`\
+https://nytimes.com/athletic/5972564/2024/12/05/angel-city-parts-ways-angela-hucles/
+
+**6.6 Earthquake Rattles Northern California and Prompts Tsunami Warning**\
+`The authorities said they were surveying for signs of damage.`\
+https://nytimes.com/2024/12/05/us/earthquake-california.html
+
+**What Know About a Landmark Court Case**\
+`Judges in The Hague are weighing what, exactly, international law requires countries to do about global warming.`\
+https://nytimes.com/2024/12/05/climate/icj-climate-case-hague.html
+
 **The Best Sparkly Flats, From $60 to $1,850**\
 `For holiday party season, easy ballerinas and Mary Janes that catch the light.`\
 https://nytimes.com/2024/12/05/t-magazine/sparkly-flat-shoes.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5972335/2024/12/05/football-betting-dummies-bears-m
 **‘Hard Truths’ Review: Mike Leigh’s Brutal Comedy**\
 `The British director casts the superb Marianne Jean-Baptiste in the role of an excruciatingly lonely character whose pain reveals hidden depths.`\
 https://nytimes.com/2024/12/05/movies/hard-truths-review-mike-leigh.html
-
-**Greenberg: Can the Bears find a 'leader of men' as their next head coach?**\
-`The current best examples of “leader of men” coaches are Mike Tomlin and Dan Campbell, who happen to be the favorites for Coach of the Year.`\
-https://nytimes.com/athletic/5972062/2024/12/05/can-the-bears-find-a-leader-of-men-as-their-next-head-coach/
-
-**Federal Judge Rejects Boeing’s Guilty Plea Related to 737 Max Crashes**\
-`The agreement, opposed by some victims’ families, would have required the aviation company to pay a fine of up to $487 million and invest in additional safety measures.`\
-https://nytimes.com/2024/12/05/us/politics/boeing-max-guilty-plea-rejected.html
-
-**University of Michigan Ends Required Diversity Statements**\
-`The school, a bastion of D.E.I., will no longer require the statements in hiring decisions and is considering a broader shift in its policies.`\
-https://nytimes.com/2024/12/05/us/university-of-michigan-dei-diversity-statemements.html
-
-**Roommate Murdered Kenyan Gay Rights Activist, Court Finds**\
-`Edwin Chiloba’s body was found stuffed inside a metal box by the roadside last year. A high court judge did not give a motive but said his roommate carried out the murder.`\
-https://nytimes.com/2024/12/05/world/africa/kenya-edwin-chiloba-murder.html
 
