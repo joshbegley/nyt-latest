@@ -1,3 +1,7 @@
+**The Briefing - Athletic 2 Madrid 1: Another Mbappe penalty miss, Ancelotti's headache, Bellingham can't save them**\
+`Madrid looked to be improving in La Liga after a humiliating defeat to Barcelona, but this latest defeat brought them down to earth`\
+https://nytimes.com/athletic/5970945/2024/12/05/athletic-club-real-madrid-kylian-mbappe/
+
 **Late Night Weighs In on Pete Hegseth’s ‘Teetering’ Nomination Prospects**\
 `Hosts riff on Trump’s possible swap of his secretary of defense nominee amid excessive-drinking claims against Hegseth.`\
 https://nytimes.com/2024/12/05/arts/television/ronny-chieng-pete-hegseth-drinking.html
