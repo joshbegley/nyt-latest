@@ -1,3 +1,7 @@
+**Elon and Vivek’s DOGE Goes to Congress**\
+`The tycoons in charge of President-elect Donald J. Trump’s amorphous government efficiency initiative made the rounds on Capitol Hill, bashing debt but revealing little about how they will tackle it.`\
+https://nytimes.com/2024/12/05/us/politics/elon-musk-vivek-ramaswamy-doge-congress.html
+
 **Biden Team Considers Blanket Pardons Before Trump’s Promised ‘Retribution’**\
 `White House officials believe President-elect Donald J. Trump’s selection of partisan warriors for top law enforcement jobs indicates that he will pursue revenge against his perceived enemies.`\
 https://nytimes.com/2024/12/05/us/politics/biden-trump-pardons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972922/2024/12/05/bill-belichick-unc-football-coac
 **How a Stowaway at J.F.K. Airport Made It All the Way to Paris**\
 `Prosecutors accused Svetlana Dali, 57, of hiding among other travelers during a busy travel day before Thanksgiving.`\
 https://nytimes.com/2024/12/05/nyregion/stowaway-delta-flight-ny-paris-court.html
-
-**Postecoglou has 'no issue' with criticism after fans incident following loss**\
-`Ange Postecoglou said he had no issue with the &#8220;direct feedback&#8221; from Tottenham Hotspur supporters after their 1-0 defeat at Bournemouth.`\
-https://nytimes.com/athletic/5972925/2024/12/05/ange-postecoglou-tottenham-fans/
 
