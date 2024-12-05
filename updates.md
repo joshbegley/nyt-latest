@@ -1,3 +1,11 @@
+**The Bounce: It's time to grade the Western Conference!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5971682/2024/12/05/zion-williamson-pelicans-nba-the-bounce-2/
+
+**The Allure of ‘Microdosing’ Ozempic**\
+`Some people are taking tiny amounts of weight loss medications, hoping to drop pounds while avoiding side effects. Does it work?`\
+https://nytimes.com/2024/12/05/well/ozempic-microdose-weight-loss.html
+
 **Is It Time to Worry About Benzene?**\
 `The carcinogen has been found in sunscreen, deodorants, acne creams and other personal care products. Here’s what to know.`\
 https://nytimes.com/2024/12/05/well/benzene-health-sunscreen.html
