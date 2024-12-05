@@ -1,3 +1,7 @@
+**Elon and Vivek’s DOGE Goes to Congress**\
+`The tycoons in charge of President-elect Donald J. Trump’s amorphous government efficiency initiative made the rounds on Capitol Hill, bashing debt but revealing little about how they will tackle it.`\
+https://nytimes.com/2024/12/05/us/politics/elon-musk-vivek-ramaswamy-doge-congress.html
+
 **Biden Team Considers Blanket Pardons Before Trump’s Promised ‘Retribution’**\
 `White House officials believe President-elect Donald J. Trump’s selection of partisan warriors for top law enforcement jobs indicates that he will pursue revenge against his perceived enemies.`\
 https://nytimes.com/2024/12/05/us/politics/biden-trump-pardons.html
