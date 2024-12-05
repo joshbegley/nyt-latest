@@ -1,3 +1,7 @@
+**Three ways the Yankees could save on salary if they re-sign Juan Soto**\
+`Hal Steinbrenner has spoken about exercising some payroll restraint many times. If the Yankees re-sign Soto, here's how they can.`\
+https://nytimes.com/athletic/5970283/2024/12/05/yankees-payroll-juan-soto/
+
 **China Slaps Sanctions on 13 U.S. Defense Firms**\
 `The largely symbolic move is in response to the Biden administration’s latest arms sales to Taiwan, the island democracy that China considers its own.`\
 https://nytimes.com/2024/12/05/world/asia/china-us-sanctions-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5970803/2024/12/05/ohio-state-recruiting-class-offo
 **Michigan signed the nation's No. 1 recruit, and Sherrone Moore's success didn't stop there**\
 `Moore's first recruiting class at Michigan is up there with Jim Harbaugh's best, starting with five-star quarterback Bryce Underwood.`\
 https://nytimes.com/athletic/5970963/2024/12/05/michigan-recruiting-2025-class-bryce-underwood/
-
-**Can Martial Law Happen Here?**\
-`Events in South Korea have people thinking.`\
-https://nytimes.com/2024/12/05/opinion/trump-south-korea-martial-law.html
 
