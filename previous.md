@@ -1,3 +1,11 @@
+**Head of Secret Service and Congressman Get Into Shouting Match at Hearing**\
+`The agency’s acting director took offense when a Texas representative questioned him about where he was standing in a photo commemorating the Sept. 11 attacks.`\
+https://nytimes.com/live/2024/12/05/us/trump-news/ronald-rowe-pat-fallon-trump-assassination
+
+**Lazerus: Luke Richardson's firing won't stop the Blackhawks' slow slide into irrelevance**\
+`The Blackhawks are unwatchable these days, and not just because of their poor play. Things aren't likely to get better soon.`\
+https://nytimes.com/athletic/5973247/2024/12/05/blackhawks-richardson-fired-last-place/
+
 **Elon and Vivek’s DOGE Goes to Congress**\
 `The tycoons in charge of President-elect Donald J. Trump’s amorphous government efficiency initiative made the rounds on Capitol Hill, bashing debt but revealing little about how they will tackle it.`\
 https://nytimes.com/2024/12/05/us/politics/elon-musk-vivek-ramaswamy-doge-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009862237/secret-service-hearing-sho
 **A Visual Timeline of the UnitedHealthcare C.E.O. Shooting**\
 `A gunman killed Brian Thompson in Midtown Manhattan on Wednesday. Maps, surveillance footage and photos show how the shooting unfolded and how the suspect fled.`\
 https://nytimes.com/interactive/2024/12/05/nyregion/unitedhealthcare-brian-thompson-shooting-maps-photos.html
-
-**Bill Belichick interviews for North Carolina head-coaching job: Sources**\
-`Belichick has spent time inside a major college football program this year at Washington, where his son is defensive coordinator.`\
-https://nytimes.com/athletic/5972922/2024/12/05/bill-belichick-unc-football-coach-candidates/
-
-**How a Stowaway at J.F.K. Airport Made It All the Way to Paris**\
-`Prosecutors accused Svetlana Dali, 57, of hiding among other travelers during a busy travel day before Thanksgiving.`\
-https://nytimes.com/2024/12/05/nyregion/stowaway-delta-flight-ny-paris-court.html
 
