@@ -1,3 +1,7 @@
+**Dodgers' Freddie Freeman undergoes ankle surgery**\
+`Freeman injured his ankle in September on the night the Dodgers clinched the National League West.`\
+https://nytimes.com/athletic/5973242/2024/12/05/dodgers-freddie-freeman-ankle-surgery/
+
 **‘You Are Out of Line’: Acting Secret Service Director Clashes With Congressman**\
 `A congressional hearing on Thursday erupted into a shouting match. Ronald L. Rowe Jr., the acting Secret Service director, accused Representative Pat Fallon, Republican of Texas, of politicizing a 9/11 memorial event.`\
 https://nytimes.com/video/us/politics/100000009862237/secret-service-hearing-shouting.html

@@ -1,3 +1,7 @@
+**Dodgers' Freddie Freeman undergoes ankle surgery**\
+`Freeman injured his ankle in September on the night the Dodgers clinched the National League West.`\
+https://nytimes.com/athletic/5973242/2024/12/05/dodgers-freddie-freeman-ankle-surgery/
+
 **‘Like a violent elevator ride’: Residents closest to the epicenter describe the quake.**\
 `By Shawn Hubler and Corina Knoll`\
 https://nytimes.com/live/2024/12/05/us/earthquake-california/like-a-violent-elevator-ride-residents-closest-to-the-epicenter-describe-the-quake
