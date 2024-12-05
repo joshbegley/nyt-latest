@@ -1,3 +1,7 @@
+**A Harris Ally Says Biden Broke a Promise**\
+`An interview with Senator Laphonza Butler, Democrat of California, during her final week in the Senate.`\
+https://nytimes.com/2024/12/04/us/politics/laphonza-butler-biden-harris.html
+
 **Jets QB Aaron Rodgers: Coaches 'need the backing of the ownership' for success**\
 `The Jets have dismissed both head coach Robert Saleh and general manager Joe Douglas.`\
 https://nytimes.com/athletic/5970470/2024/12/04/jets-qb-aaron-rodgers-woody-johnson-comments/
