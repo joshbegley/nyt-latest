@@ -1,6 +1,6 @@
 **Players linked to MLBPA mutiny attempt depart from top committee in latest election**\
 `Jack Flaherty, Ian Happ and Lucas Giolito were all involved in a push for leadership change in the MLBPA earlier this year. `\
-https://nytimes.com/athletic/5970793/2024/12/04/mlb-players-association-committee-elections/
+https://nytimes.com/athletic/5970793/2024/12/04/mlb-players-association-committee-election/
 
 **Pete Hegseth faces questions about his leadership style after troubles in past workplaces.**\
 `By Sharon LaFraniere, David A. Fahrenthold, Dave Philipps and Kate Kelly`\
