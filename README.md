@@ -1,3 +1,7 @@
+**Read the Justice Department’s Report**\
+`The agency released the results of its investigation into the Memphis Police Department, finding that the department used excessive force, treated Black people more harshly than white people, and mistreated people with mental health issues.`\
+https://nytimes.com/interactive/2024/12/04/us/memphis-police-justice-department-report.html
+
 **Luke Fickell takes stock in Wisconsin program as Badgers add 24 recruits**\
 `Wisconsin's class includes eight four-star prospects and ranks No. 24 nationally in the 247Sports Composite. `\
 https://nytimes.com/athletic/5970550/2024/12/04/wisconsin-recruiting-signing-day-fickell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5970577/2024/12/04/nebraska-iowa-handshake-matt-rhu
 **Rohit Bal, Exuberant Star of Indian Fashion, Dies at 63**\
 `Known as “the bad boy of fashion,” he was among a wave of designers who created modern Indian couture by updating traditional garments.`\
 https://nytimes.com/2024/12/04/style/rohit-bal-dead.html
-
-**Fatal Shooting of Brian Thompson, UnitedHealthcare C.E.O.: What We Know**\
-`Mr. Thompson was on his way to an investors’ gathering when he was killed by a masked shooter who fled on an electric Citi Bike, the police said.`\
-https://nytimes.com/2024/12/04/nyregion/unitedhealthcare-brian-thompson-shooting.html
 
