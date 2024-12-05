@@ -1,3 +1,7 @@
+**The Pulse: Two massive college basketball upsets**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5969137/2024/12/05/duke-auburn-cooper-flagg-the-pulse/
+
 **Death and Taxes**\
 `We explain why the estate tax isn’t working.`\
 https://nytimes.com/2024/12/05/briefing/estate-taxes.html

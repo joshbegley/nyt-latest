@@ -1,3 +1,7 @@
+**The Pulse: Two massive college basketball upsets**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5969137/2024/12/05/duke-auburn-cooper-flagg-the-pulse/
+
 **Death and Taxes**\
 `We explain why the estate tax isn’t working.`\
 https://nytimes.com/2024/12/05/briefing/estate-taxes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5970965/2024/12/05/conference-championship-week-sch
 **A Manhunt in Manhattan, and Another Trump Pick in Trouble**\
 `Plus, the A.I. that aces weather forecasts.`\
 https://nytimes.com/2024/12/05/podcasts/manhattan-shooting-hegseth-trouble.html
-
-**The Connections Companion No. 544**\
-`Scroll down for hints and conversation about the puzzle for Friday, Dec. 6, 2024.`\
-https://nytimes.com/2024/12/05/crosswords/connections-companion-544.html
 
