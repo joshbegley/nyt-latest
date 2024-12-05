@@ -1,3 +1,11 @@
+**Remembering Peter Westbrook, Fencing Legend and Father Figure**\
+`He inspired several generations of Black fencers and other athletes.`\
+https://nytimes.com/2024/12/05/opinion/westbrook-black-fencers-inspiration.html
+
+**Where does the N.Y.P.D. get its reward money?**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-unitedhealthcare-news/where-does-the-nypd-get-its-reward-money
+
 **Tsunami warnings were briefly in effect for hundreds of miles along the California and Oregon coast.**\
 `By Mike Baker`\
 https://nytimes.com/live/2024/12/05/us/earthquake-california/tsunami-warnings-were-briefly-in-effect-for-hundreds-of-miles-along-the-california-and-oregon-coast

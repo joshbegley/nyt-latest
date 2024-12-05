@@ -1,3 +1,11 @@
+**Remembering Peter Westbrook, Fencing Legend and Father Figure**\
+`He inspired several generations of Black fencers and other athletes.`\
+https://nytimes.com/2024/12/05/opinion/westbrook-black-fencers-inspiration.html
+
+**Where does the N.Y.P.D. get its reward money?**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-unitedhealthcare-news/where-does-the-nypd-get-its-reward-money
+
 **Tsunami warnings were briefly in effect for hundreds of miles along the California and Oregon coast.**\
 `By Mike Baker`\
 https://nytimes.com/live/2024/12/05/us/earthquake-california/tsunami-warnings-were-briefly-in-effect-for-hundreds-of-miles-along-the-california-and-oregon-coast
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/arts/television/the-sticky-amazon-prime-video.htm
 **Memphis Says It Will Not Yet Agree to Federal Oversight of Police Department**\
 `The city’s mayor reiterated his reluctance to enter a consent decree after the Justice Department found a pattern of discrimination and excessive force by its officers.`\
 https://nytimes.com/2024/12/05/us/politics/memphis-justice-oversight-police-department.html
-
-**Live Updates: 7.0 Earthquake Rattles Northern California and Prompts Brief Tsunami Warning**\
-`The authorities said they were surveying for signs of damage, but the National Weather Service has canceled the tsunami warning that had been issued for the West coast.`\
-https://nytimes.com/live/2024/12/05/us/earthquake-california
-
-**Club World Cup draw: Inter Miami vs Al Ahly opens tournament, Man City to face Juventus**\
-`The 32 teams playing in the 2025 Club World Cup found out their groups and opponents in the draw in Miami on Thursday.`\
-https://nytimes.com/athletic/5972076/2024/12/05/fifa-club-world-cup-draw-results/
 
