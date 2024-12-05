@@ -1,3 +1,19 @@
+**No Food, Water or Power for Opponents Hiding From Venezuelan Government**\
+`Six leading opposition activists and advisers have taken refuge at the Argentine diplomatic residence for eight months. Now, the police are cutting off basic services.`\
+https://nytimes.com/2024/12/05/world/americas/venezuelan-embassy-opposition-activists.html
+
+**Justice Neil Gorsuch Recuses From Case That Could Benefit Colorado Billionaire**\
+`The justice had been under pressure to step aside from the matter because of his myriad ties to Philip Anschutz, an oil and gas magnate.`\
+https://nytimes.com/2024/12/05/us/politics/justice-gorsuch-recusal-philip-anschutz.html
+
+**UnitedHealthcare Has Faced Scrutiny Over Denying Claims**\
+`The company has been accused of using algorithms to deny treatments and refusing coverage of nursing care to stroke patients.`\
+https://nytimes.com/2024/12/05/nyregion/delay-deny-defend-united-health-care-insurance-claims.html
+
+**Eric Bieniemy out as UCLA offensive coordinator: Sources**\
+`The Bruins ranked near the bottom of the Big Ten in total offense and last in rushing at 3.07 yards per carry.`\
+https://nytimes.com/athletic/5972435/2024/12/05/eric-bieniemy-ucla-offensive-coordinator-out/
+
 **Lance Morrow, 85, Award-Winning Essayist for Time Magazine, Is Dead**\
 `His voice carried weight on the influential back page and as the writer of many “Man of the Year” cover articles. As a memoirist he chronicled his heart attacks.`\
 https://nytimes.com/2024/12/05/business/media/lance-morrow-dead.html
