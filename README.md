@@ -1,3 +1,7 @@
+**South Korean General Gives a Confused Account of a Failed Crackdown**\
+`The military has spent decades trying to rehabilitate its image and win public trust after a brutal past. Its role in President Yoon’s martial law raised a specter from that era.`\
+https://nytimes.com/2024/12/05/world/asia/south-korea-martial-law.html
+
 **The NBA (un)-Panic meter: The Bucks, Knicks, Grizzlies and others who eased early fears**\
 `Teams like the Magic and Mavericks have managed to win despite their stars missing time.`\
 https://nytimes.com/athletic/5971428/2024/12/05/nba-bucks-knicks-magic-no-panic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/world/middleeast/israel-strike-gaza-al-mawasi.htm
 **NFL Week 14 fantasy football, betting cheat sheet: Trevor Lawrence hits injured reserve**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/5965980/2024/12/05/nfl-week-14-fantasy-football-cheat-sheet-betting-injuries/
-
-**As Dany Heatley returns to Ottawa, remember the highs and lows of his tenure**\
-`A look back at what brought Dany Heatley to Ottawa, his best Senators moments, why he left and how he'll be received in his return.`\
-https://nytimes.com/athletic/5956988/2024/12/05/heatley-alfredsson-spezza-pizza-line/
 
