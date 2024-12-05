@@ -1,3 +1,7 @@
+**When a Baby Killer Isn’t a Straightforward Villain**\
+`The real-life murderer who inspired “The Girl With the Needle” was “a monster,” said the actress who plays her, “but the movie is also about showing you her struggles.”`\
+https://nytimes.com/2024/12/05/movies/the-girl-with-the-needle-trine-dyrholm.html
+
 **Maresca dropped Madueke over training performance: 'He must work more'**\
 `Enzo Maresca said he left Noni Madueke out of his Chelsea team over his performances in training and told him &#8220;he must work more&#8221; to keep a regular place.`\
 https://nytimes.com/athletic/5971418/2024/12/05/noni-madueke-chelsea-training/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/nyregion/bronx-coach-killed-hit-run.html
 **New York City Is Set to Approve a Plan to Create 80,000 New Homes**\
 `The City Council is expected to pass a major housing plan known as “City of Yes.” Housing experts and elected officials say it is only a first step.`\
 https://nytimes.com/2024/12/05/nyregion/nyc-housing-city-of-yes.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/05/crosswords/spelling-bee-forum.html
 
