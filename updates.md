@@ -1,3 +1,7 @@
+**Bitcoin Hits a Milestone: $100,000**\
+`The price of a single Bitcoin rose to six figures for the first time, an extraordinary level for a 16-year-old cryptocurrency once dismissed as a sideshow.`\
+https://nytimes.com/2024/12/04/technology/bitcoin-price-record.html
+
 **Here are the latest developments in South Korea.**\
 `By Choe Sang-Hun and Qasim Nauman`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment/here-are-the-latest-developments-in-south-korea

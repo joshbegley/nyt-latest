@@ -1,3 +1,7 @@
+**Bitcoin Hits a Milestone: $100,000**\
+`The price of a single Bitcoin rose to six figures for the first time, an extraordinary level for a 16-year-old cryptocurrency once dismissed as a sideshow.`\
+https://nytimes.com/2024/12/04/technology/bitcoin-price-record.html
+
 **Here are the latest developments in South Korea.**\
 `By Choe Sang-Hun and Qasim Nauman`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment/here-are-the-latest-developments-in-south-korea
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5970677/2024/12/04/49ers-isaac-guerendo-future-runn
 **A City of Cameras: How New York Police Will Hunt a Killer**\
 `The prelude, the crime and the aftermath were all caught on video. But investigators will need to use human intelligence to find the person who gunned down an insurance company’s chief executive.`\
 https://nytimes.com/2024/12/04/nyregion/brian-thompson-shooting-gunman-cameras.html
-
-**5 Takeaways From the 2024 DealBook Summit**\
-`Trumponomics, inflation, artificial intelligence, the changing media landscape, and the Elon Musk effect — these were the big themes covered at the annual event.`\
-https://nytimes.com/2024/12/04/business/dealbook/dealbook-summit-takeaways.html
 
