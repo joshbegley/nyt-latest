@@ -1,3 +1,7 @@
+**Rebels Storm Another Major City in Syria**\
+`In another startling setback for President Bashar al-Assad, government forces retreated from the city of Hama after rebels advanced.`\
+https://nytimes.com/2024/12/05/world/middleeast/syria-rebel-offensive-hama.html
+
 **Danish clubs fined €1340 for snowball fight between fans**\
 `Danish football clubs Nordsjaelland and AGF have been fined 5,000 kroner (€670, £555) each for a snowball fight involving supporters in a league match.`\
 https://nytimes.com/athletic/5971749/2024/12/05/snowball-fight-nordsjaelland-agf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5970135/2024/12/05/bos-nation-fc-nwsl-domenec-guasc
 **The rise of Arizona State's Sam Leavitt, as told by the Sun Devils' other 10-win QBs**\
 `Sam Leavitt joined the ASU 10-win club in his first season, establishing himself as one of the top young quarterbacks in college football.`\
 https://nytimes.com/athletic/5970979/2024/12/05/sam-leavitt-arizona-state-sun-devils-quarterback-growth/
-
-**South Korean General Gives a Confused Account of a Failed Crackdown**\
-`The military has spent decades trying to rehabilitate its image and win public trust after a brutal past. Its role in President Yoon’s martial law raised a specter from that era.`\
-https://nytimes.com/2024/12/05/world/asia/south-korea-martial-law.html
 
