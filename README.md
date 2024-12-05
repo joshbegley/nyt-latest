@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5972220/2024/12/05/emma-hayes-uswnt-2024-rebuild/
 https://nytimes.com/athletic/5972221/2024/12/05/kelel-ware-miami-heat-g-league-bam-adebayo-nba/
 
 **The Bundesliga's new €4.48bn TV deal: The details, the view in Germany and how it compares**\
-`The Bundesliga have announced the terms of their new TV rights deal for the next four years`\
+`The Bundesliga have announced the terms of its new TV rights deal for the next four years`\
 https://nytimes.com/athletic/5972169/2024/12/05/bundesliga-tv-contract-analysis/
 
 **Ukraine Makes a Case to Trump’s Team as Its Officials Visit U.S.**\
