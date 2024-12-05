@@ -1,3 +1,7 @@
+**Biden Team Considers Blanket Pardons Before Trump’s Promised ‘Retribution’**\
+`White House officials believe President-elect Donald J. Trump’s selection of partisan warriors for top law enforcement jobs indicates that he will pursue revenge against his perceived enemies.`\
+https://nytimes.com/2024/12/05/us/politics/biden-trump-pardons.html
+
 **‘Mary’ Review: An Epic Biopic for the Mother of God**\
 `No genre gesture goes untapped in this Netflix film, a coming-of-age saga about the Virgin Mary featuring Anthony Hopkins as King Herod.`\
 https://nytimes.com/2024/12/05/movies/mary-review-an-epic-biopic-for-the-mother-of-god.html
