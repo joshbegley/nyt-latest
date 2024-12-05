@@ -1,3 +1,7 @@
+**A Spate of Vandalism Rattled Estonia. Russia Was to Blame, Officials Say.**\
+`Several people were convicted in connection with small acts of vandalism carried out at the behest of Russia’s military intelligence service, prosecutors announced Thursday.`\
+https://nytimes.com/2024/12/05/world/europe/estonia-vandalism-russia-sabotage.html
+
 **Listen: Sample 4 Best Books of 2024**\
 `You’ve read our list of the year’s best fiction and nonfiction. Now start listening to them.`\
 https://nytimes.com/2024/12/05/podcasts/best-books-2024-listen.html
