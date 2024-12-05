@@ -1,3 +1,11 @@
+**Liverpool showed a rare vulnerability at Newcastle but Slot should not be overly worried**\
+`The league leaders were shaky in defence, have injury problems and wasted chances as, for once, they dropped below their best level`\
+https://nytimes.com/athletic/5970408/2024/12/05/liverpool-newcastle-slot-salah/
+
+**Everton really needed this**\
+`It has been a while since Dyche and his team have had a match as positive as this. He made changes - the players and Goodison responded`\
+https://nytimes.com/athletic/5970666/2024/12/05/everton-sean-dyche-needed-this/
+
 **Word of the Day: incapacitated**\
 `This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/05/learning/word-of-the-day-incapacitated.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5968531/2024/12/05/fantasy-premier-league-fixtures-
 **Duke notches needed statement win over No. 2 Auburn as Cooper Flagg stars**\
 `Flagg scored 16 of his game-high 22 points in the second half, to go along with 11 rebounds, four steals, three assists and two blocks.`\
 https://nytimes.com/athletic/5971199/2024/12/05/duke-auburn-cooper-flagg/
-
-**Spurs 'keeper Josh Keeley: 'I didn't expect to score, I've never practised that header'**\
-`The young Spurs 'keeper - on loan at Leyton Orient - scored in the FA Cup on Saturday, but has longer-term goals at his parent club`\
-https://nytimes.com/athletic/5969335/2024/12/05/josh-keeley-orient-spurs-goal-fa-cup/
-
-**Nuno's setup showed where Forest want to be, but unfamiliar failings let him down**\
-`Defeat at the Etihad contained some wasteful finishing and defensive lapses, but Nuno's positive approach should be praised.`\
-https://nytimes.com/athletic/5970478/2024/12/05/nuno-nottingham-forest-man-city/
 

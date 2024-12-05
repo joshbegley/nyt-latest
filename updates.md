@@ -1,3 +1,11 @@
+**Liverpool showed a rare vulnerability at Newcastle but Slot should not be overly worried**\
+`The league leaders were shaky in defence, have injury problems and wasted chances as, for once, they dropped below their best level`\
+https://nytimes.com/athletic/5970408/2024/12/05/liverpool-newcastle-slot-salah/
+
+**Everton really needed this**\
+`It has been a while since Dyche and his team have had a match as positive as this. He made changes - the players and Goodison responded`\
+https://nytimes.com/athletic/5970666/2024/12/05/everton-sean-dyche-needed-this/
+
 **Word of the Day: incapacitated**\
 `This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/05/learning/word-of-the-day-incapacitated.html
