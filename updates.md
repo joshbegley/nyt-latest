@@ -1,3 +1,7 @@
+**Canucks report cards: Grading every defender and goalie’s November performance**\
+`Standout performances along the blue line and in goal have helped the Canucks' early-season success.`\
+https://nytimes.com/athletic/5971334/2024/12/05/canucks-report-cards-defense-goalie-quinn-hughes/
+
 **How Trump Targeted Undecided Voters Without Breaking the Bank**\
 `The Trump team had a huge financial disadvantage. It made up for it with a strategic innovation that allowed it to narrow the focus of its ad dollars.`\
 https://nytimes.com/2024/12/05/us/politics/trump-streaming-ads-strategy.html
