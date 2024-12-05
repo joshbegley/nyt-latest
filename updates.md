@@ -1,3 +1,11 @@
+**A Defiant Macron Says He Won’t Resign as France’s Leader**\
+`A day after his chosen prime minister was forced to resign, President Emmanuel Macron denounced his political opponents.`\
+https://nytimes.com/2024/12/05/world/europe/macron-france-prime-minister.html
+
+**Until Saturday: Will conference championship games cause Playoff chaos?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Will conference championship games cause Playoff chaos?`\
+https://nytimes.com/athletic/5972270/2024/12/05/conference-championship-games-college-football-playoff-until-saturday/
+
 **Images of Unmasked Suspect Emerge as the Police Track C.E.O.’s Killer**\
 `The man sought in the killing of Brian Thompson wore a hood and a smile in surveillance photos. Investigators visited a hostel on the Upper West Side as they mapped his movements.`\
 https://nytimes.com/2024/12/05/nyregion/brian-thompson-uhc-shooting-suspect-search.html

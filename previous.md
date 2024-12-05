@@ -1,3 +1,11 @@
+**A Defiant Macron Says He Won’t Resign as France’s Leader**\
+`A day after his chosen prime minister was forced to resign, President Emmanuel Macron denounced his political opponents.`\
+https://nytimes.com/2024/12/05/world/europe/macron-france-prime-minister.html
+
+**Until Saturday: Will conference championship games cause Playoff chaos?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Will conference championship games cause Playoff chaos?`\
+https://nytimes.com/athletic/5972270/2024/12/05/conference-championship-games-college-football-playoff-until-saturday/
+
 **Images of Unmasked Suspect Emerge as the Police Track C.E.O.’s Killer**\
 `The man sought in the killing of Brian Thompson wore a hood and a smile in surveillance photos. Investigators visited a hostel on the Upper West Side as they mapped his movements.`\
 https://nytimes.com/2024/12/05/nyregion/brian-thompson-uhc-shooting-suspect-search.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5972760/2024/12/05/connor-bedard-4-nations-cut/
 **NBA fines Ime Udoka, Tari Eason, Alperen Sengun in Rockets' loss to Kings**\
 `Udoka was fined $50,000, Eason was fined $35,000 and Sengun was fined $15,000`\
 https://nytimes.com/athletic/5972670/2024/12/05/nba-fines-ime-udoka-tari-eason-alperen-sengun-for-actions-in-rockets-loss-to-kings/
-
-**Former Proud Boys Leader Testifies in Defense of Officer Accused of Aiding Him**\
-`Enrique Tarrio appeared in court for the first time since being sentenced to 22 years in prison for seditious conspiracy over his role in the Jan. 6, 2021, attack on the Capitol.`\
-https://nytimes.com/2024/12/05/us/politics/enrique-tarrio-proud-boys-testimony.html
-
-**Friday Briefing: Syrian Rebels Storm Another City**\
-`Plus, a celebration of art in Dakar.`\
-https://nytimes.com/2024/12/05/briefing/syria-manhunt-south-korea.html
 
