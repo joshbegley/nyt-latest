@@ -1,3 +1,7 @@
+**American Kidnapped in Philippines Is Believed to Be Dead, Police Say**\
+`The police said they believed Elliot Eastman, 26, from Vermont, was killed during the abduction in October. They cited testimony from a suspect in custody.`\
+https://nytimes.com/2024/12/05/world/asia/philippines-kidnapping-american-elliot-eastman-dead.html
+
 **A manhunt continues. Here’s the latest.**\
 `By Alyce McFadden`\
 https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-united-healthcare-news/a-manhunt-continues-heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/movies/the-return-review.html
 **‘The Order’ Review: Catch Him if You Can**\
 `The thriller, about a white supremacist (Nicholas Hoult) and the killing of a real-life radio host, among other crimes, hits familiar genre beats.`\
 https://nytimes.com/2024/12/05/movies/the-order-review.html
-
-**‘Lake George’ Review: An Odd Couple Crime Comedy**\
-`A stoic former convict reluctantly teams up with his would-be victim in this off-kilter film by Jeffrey Reiner.`\
-https://nytimes.com/2024/12/05/movies/lake-george-review.html
 
