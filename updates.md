@@ -1,3 +1,7 @@
+**FPL: Fantasy Premier League: How the teams with the busiest winter schedules affect your plans**\
+`A number of clubs will play multiple midweek games in several competitions before the year ends. Here's who you need to keep an eye on`\
+https://nytimes.com/athletic/5968531/2024/12/05/fantasy-premier-league-fixtures-gameweeks-december-christmas/
+
 **Duke notches needed statement win over No. 2 Auburn as Cooper Flagg stars**\
 `Flagg scored 16 of his game-high 22 points in the second half, to go along with 11 rebounds, four steals, three assists and two blocks.`\
 https://nytimes.com/athletic/5971199/2024/12/05/duke-auburn-cooper-flagg/
