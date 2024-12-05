@@ -1,3 +1,7 @@
+**Players linked to MLBPA mutiny attempt depart from top committee in latest election**\
+`Jack Flaherty, Ian Happ and Lucas Giolito were all involved in a push for leadership change in the MLBPA earlier this year. `\
+https://nytimes.com/athletic/5970793/2024/12/04/mlb-players-association-committee-elections/
+
 **Pete Hegseth faces questions about his leadership style after troubles in past workplaces.**\
 `By Sharon LaFraniere, David A. Fahrenthold, Dave Philipps and Kate Kelly`\
 https://nytimes.com/live/2024/12/04/us/trump-news/pete-hegseth-faces-questions-about-his-leadership-style-after-troubles-in-past-workplaces
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5967989/2024/12/04/ranking-4-nations-face-off-roste
 **South Korea’s Defense Minister Steps Down Over Martial Law Decree**\
 `President Yoon Suk Yeol accepted the resignation of Kim Yong-hyun, who said he considered himself responsible for the short-lived decision to impose military rule.`\
 https://nytimes.com/2024/12/04/world/asia/south-korea-yoon-defense-minister-resigns.html
-
-**Why Alabama's strong class is light on in-state talent**\
-`DeBoer on Alabama's class, quarterback Keelon Russell and the transfer portal.`\
-https://nytimes.com/athletic/5970545/2024/12/04/alabama-football-national-signing-day/
 

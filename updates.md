@@ -1,3 +1,7 @@
+**Players linked to MLBPA mutiny attempt depart from top committee in latest election**\
+`Jack Flaherty, Ian Happ and Lucas Giolito were all involved in a push for leadership change in the MLBPA earlier this year. `\
+https://nytimes.com/athletic/5970793/2024/12/04/mlb-players-association-committee-elections/
+
 **49ers will get a peek into the future Sunday when Isaac Guerendo starts at RB**\
 `Should Guerendo start as expected Sunday, it will be just his second start as a running back since he was in the fourth grade.`\
 https://nytimes.com/athletic/5970677/2024/12/04/49ers-isaac-guerendo-future-running-back/
