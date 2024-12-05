@@ -1,5 +1,5 @@
 **NFL, NFLPA agree to policy changes on substance abuse and PEDs**\
-`Players will be fined $15,000 fine for recording and posting PED testing process on social media. `\
+`Players will be fined $15,000 for recording and posting PED testing process on social media. `\
 https://nytimes.com/athletic/5971049/2024/12/04/nfl-nflpa-policy-ped-substance-abuse/
 
 **Trump Picks Banking Executive to Lead Social Security Administration**\
