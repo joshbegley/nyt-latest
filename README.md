@@ -1,3 +1,7 @@
+**University of Michigan Ends Required Diversity Statements**\
+`The school, a bastion of D.E.I., will no longer require the statements in hiring decisions and is considering a broader shift in its policies.`\
+https://nytimes.com/2024/12/05/us/university-of-michigan-dei-diversity-statemements.html
+
 **Roommate Murdered Kenyan Gay Rights Activist, Court Finds**\
 `Edwin Chiloba’s body was found stuffed inside a metal box by the roadside last year. A high court judge did not give a motive but said his roommate carried out the murder.`\
 https://nytimes.com/2024/12/05/world/africa/kenya-edwin-chiloba-murder.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/special-series/tech-protest-gaza-artificial-intel
 **Veggie Recipe Matchmaker, Part 1**\
 `“My mom is a very picky eater.” “I’m stumped for future dinners.” “I’ve recently discovered that I’m gluten-intolerant.” Let’s go.`\
 https://nytimes.com/2024/12/05/dining/veggie-recipe-matchmaker-part-1.html
-
-**Arsenal assistant manager Stuivenberg agrees new deal until 2027**\
-`Arsenal assistant manager Albert Stuivenberg has agreed a contract until 2027.`\
-https://nytimes.com/athletic/5972431/2024/12/05/arsenal-albert-stuivenberg-new-contract-2/
 
