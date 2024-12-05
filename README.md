@@ -1,3 +1,7 @@
+**Maresca dropped Madueke over training performance: 'He must work more'**\
+`Enzo Maresca said he left Noni Madueke out of his Chelsea team over his performances in training and told him &#8220;he must work more&#8221; to keep a regular place.`\
+https://nytimes.com/athletic/5971418/2024/12/05/noni-madueke-chelsea-training/
+
 **Late Night Weighs In on Pete Hegseth’s ‘Teetering’ Nomination Prospects**\
 `Hosts riff on Trump’s possible swap of his secretary of defense nominee amid excessive-drinking claims against Hegseth.`\
 https://nytimes.com/2024/12/05/arts/television/ronny-chieng-pete-hegseth-drinking.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/nyregion/nyc-housing-city-of-yes.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/05/crosswords/spelling-bee-forum.html
-
-**Grealish in a central role provides plenty of food for thought for Guardiola**\
-`The England international has generally operated from the left but was used in a deeper, more central role against Nottingham Forest`\
-https://nytimes.com/athletic/5970861/2024/12/05/jack-grealish-midfield-manchester-city/
 
