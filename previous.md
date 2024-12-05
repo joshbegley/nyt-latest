@@ -1,3 +1,7 @@
+**Aston Villa and the basketball style that could shake them from their stasis**\
+`Villa are at their best when they attack quickly - following the pace of a basketball game could be the way forward for Unai Emery's squad`\
+https://nytimes.com/athletic/5970034/2024/12/05/aston-villa-unai-emery-basketball/
+
 **Newcastle United: Wildly unpredictable, thrilling on transition, utterly headache inducing**\
 `Eddie Howe's side continue to threaten and thrive against the Premier League's best, while labouring against those they might expect to beat`\
 https://nytimes.com/athletic/5968513/2024/12/05/newcastle-liverpool-isak-howe-transition/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/opinion/france-marine-le-pen.html
 **The Warning**\
 `No shockwave. No mushroom cloud. But a space nuke would change life on Earth forever.`\
 https://nytimes.com/interactive/2024/12/05/opinion/nuclear-weapons-space.html
-
-**FPL: Fantasy Premier League: How the teams with the busiest winter schedules affect your plans**\
-`A number of clubs will play multiple midweek games in several competitions before the year ends. Here's who you need to keep an eye on`\
-https://nytimes.com/athletic/5968531/2024/12/05/fantasy-premier-league-fixtures-gameweeks-december-christmas/
 

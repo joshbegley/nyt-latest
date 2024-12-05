@@ -1,3 +1,7 @@
+**Aston Villa and the basketball style that could shake them from their stasis**\
+`Villa are at their best when they attack quickly - following the pace of a basketball game could be the way forward for Unai Emery's squad`\
+https://nytimes.com/athletic/5970034/2024/12/05/aston-villa-unai-emery-basketball/
+
 **Chelsea bask in their new-found status as the Premier League's great entertainers**\
 `Enzo Maresca's side having already wracked up 57 goals this season. Fans chanted 'Chelsea are back' as Southampton were brushed aside`\
 https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertainers/
