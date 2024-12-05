@@ -1,3 +1,7 @@
+**‘Mary’ Review: An Epic Biopic for the Mother of God**\
+`No genre gesture goes untapped in this Netflix film, a coming-of-age saga about the Virgin Mary featuring Anthony Hopkins as King Herod.`\
+https://nytimes.com/2024/12/05/movies/mary-review-an-epic-biopic-for-the-mother-of-god.html
+
 **Dodgers' Freddie Freeman undergoes ankle surgery**\
 `Freeman injured his ankle in September on the night the Dodgers clinched the National League West.`\
 https://nytimes.com/athletic/5973242/2024/12/05/dodgers-freddie-freeman-ankle-surgery/
