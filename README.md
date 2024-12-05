@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5970562/2024/12/04/big-12-college-football-playoff-
 https://nytimes.com/2024/12/04/us/politics/laphonza-butler-biden-harris.html
 
 **Memphis Police Used Excessive Force and Discriminated Against Black Residents, Justice Dept. Finds**\
-`The Police Department had been under scrutiny since January 2023, when officers fatally beat Tyre Nichols, a 29-year-old Black man, after pulling him over on his way home from work.`\
+`The Police Department has been under scrutiny since January 2023, when officers fatally beat Tyre Nichols, a 29-year-old Black man, after pulling him over on his way home from work.`\
 https://nytimes.com/2024/12/04/us/politics/memphis-police-justice-department-report.html
 
 **Pete Hegseth’s Troubles at Work Raise Questions About Leadership**\
