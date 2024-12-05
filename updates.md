@@ -1,3 +1,11 @@
+**Listen: Sample 4 Best Books of 2024**\
+`You’ve read our list of the year’s best fiction and nonfiction. Now start listening to them.`\
+https://nytimes.com/2024/12/05/podcasts/best-books-2024-listen.html
+
+**The Briefing: Bournemouth 1 Tottenham 0: Set-piece struggles and away day woe strike again**\
+`Tottenham Hotspur added to their growing collection of poor results against the Premier League's less glamourous clubs`\
+https://nytimes.com/athletic/5957344/2024/12/05/bournemouth-1-tottenham-0/
+
 **Think You Know How to Brush Your Teeth?**\
 `Dentists would like a word.`\
 https://nytimes.com/interactive/2024/12/05/well/eat/how-to-brush-teeth.html

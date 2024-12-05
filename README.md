@@ -1,3 +1,7 @@
+**A Spate of Vandalism Rattled Estonia. Russia Was to Blame, Officials Say.**\
+`Several people were convicted in connection with small acts of vandalism carried out at the behest of Russia’s military intelligence service, prosecutors announced Thursday.`\
+https://nytimes.com/2024/12/05/world/europe/estonia-vandalism-russia-sabotage.html
+
 **Listen: Sample 4 Best Books of 2024**\
 `You’ve read our list of the year’s best fiction and nonfiction. Now start listening to them.`\
 https://nytimes.com/2024/12/05/podcasts/best-books-2024-listen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/nyregion/brian-thompson-uhc-shooting-suspect-sear
 **No fans punished in Georgia-Texas bottle-throwing incident**\
 `SEC commissioner Greg Sankey indicated league stadiums will adjust “where there need to be cameras.” `\
 https://nytimes.com/athletic/5972822/2024/12/05/georgia-texas-water-bottle-investigation-sec/
-
-**Defiant Hegseth Vows to Keep Fighting as Votes Remain Uncertain**\
-`Donald J. Trump’s choice to lead the Pentagon said he would try to earn every vote so long as he remained the president-elect’s pick, despite continued concern among Republican senators about his past conduct.`\
-https://nytimes.com/2024/12/05/us/politics/pete-hegseth-defense-secretary-fight.html
 
