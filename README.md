@@ -1,3 +1,15 @@
+**Friday Briefing: Syrian Rebels Storm Another City**\
+`Plus, a celebration of art in Dakar.`\
+https://nytimes.com/2024/12/05/briefing/syria-manhunt-south-korea.html
+
+**Giants add coaches Oscar Bernard, Damon Minor to major league hitting staff**\
+`Bernard was part of Bob Melvin’s staff in San Diego in 2023. Minor spent eight seasons as the Giants’ Triple-A hitting coach.`\
+https://nytimes.com/athletic/5972756/2024/12/05/sf-giants-coaching-changes-oscar-bernard-damon-minor/
+
+**We Answer Your Very Specific Restaurant Questions**\
+`Neighborhood gems, Mexican bacchanals and more reader requests.`\
+https://nytimes.com/2024/12/05/dining/we-answer-your-very-specific-restaurant-questions.html
+
 **Here’s How Earthquakes Are Measured**\
 `What does “moment magnitude” mean, and how do scientists determine the strength of a rupture in the earth?`\
 https://nytimes.com/2024/12/05/us/earthquakes-measured-magnitude-richter-scale.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/05/us/earthquake-california/tsunami-warnings-we
 **What to Do When There’s a Tsunami Warning**\
 `Tsunamis can’t be predicted, but there are steps you can take to stay safe.`\
 https://nytimes.com/article/tsunami-warning-what-to-do.html
-
-**Who Are You Calling ‘You Guys’? Everyone, Actually.**\
-`The story of how a gendered word became a universal pronoun says a lot about how language evolves.`\
-https://nytimes.com/2024/12/05/opinion/you-guys-everyone.html
-
-**The Big Question: What Is Underrated?**\
-`Experts from the worlds of music, food, film, etiquette and relationships each reveal something that — up until now — has been underrated.`\
-https://nytimes.com/2024/12/05/special-series/big-question-what-is-underrated.html
-
-**What’s Going On in This Picture? | Dec. 9, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/12/05/learning/whats-going-on-in-this-picture-dec-9-2024.html
 
