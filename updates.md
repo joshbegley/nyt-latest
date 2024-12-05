@@ -1,3 +1,19 @@
+**Heat Today: Why Kel'el Ware's G League assignment can prepare him for Miami's rotation**\
+`The rookie 7-footer has attributes the team could use, but Miami prefers to stay patient with its development process.`\
+https://nytimes.com/athletic/5972221/2024/12/05/kelel-ware-miami-heat-g-league-bam-adebayo-nba/
+
+**The Bundesliga's new €4.48bn TV deal: The details, the view in Germany and how it compares**\
+`The Bundesliga have announced the terms of their new TV rights deal for the next four years`\
+https://nytimes.com/athletic/5972169/2024/12/05/bundesliga-tv-contract-analysis/
+
+**Ukraine Makes a Case to Trump’s Team as Its Officials Visit U.S.**\
+`Kyiv is feeling a sense of urgency leading up to the Jan. 20 inauguration, given the American president-elect’s vow to end the war quickly.`\
+https://nytimes.com/2024/12/05/world/europe/ukraine-russia-war-trump.html
+
+**Torrent of Hate for Health Insurance Industry Follows C.E.O.’s Killing**\
+`The shooting death of a UnitedHealthcare executive in Manhattan has unleashed Americans’ frustrations with an industry that often denies coverage and reimbursement for medical claims.`\
+https://nytimes.com/2024/12/05/nyregion/social-media-insurance-industry-brian-thompson.html
+
 **Rosenthal: What I'm hearing about the Cardinals and Ryan Helsley, the baffling Blue Jays and more**\
 `Plus more on the Brewers' willingness to trade Devin Williams, the Guardians' trade options and more free agency possibilities. `\
 https://nytimes.com/athletic/5971884/2024/12/05/mlb-what-im-hearing-cardinals-blue-jays/
