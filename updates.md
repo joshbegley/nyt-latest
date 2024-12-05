@@ -1,3 +1,7 @@
+**U.S. Is Closing California Prison Plagued by Sexual Abuse**\
+`The Bureau of Prisons said in a memo that it was grappling with “a very difficult budget situation along with significant repair and maintenance backlogs.”`\
+https://nytimes.com/2024/12/05/us/politics/dublin-california-prison-closure.html
+
 **St. Pete City Council votes to approve bonds for new Rays stadium, county vote next**\
 `The council’s decision puts the onus on the Pinellas County Board of County Commissioners, who will vote to approve funding on Dec. 17.`\
 https://nytimes.com/athletic/5973030/2024/12/05/new-rays-stadium-council-vote-approval/
