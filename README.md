@@ -1,3 +1,7 @@
+**Think You Know How to Brush Your Teeth?**\
+`Dentists would like a word.`\
+https://nytimes.com/interactive/2024/12/05/well/eat/how-to-brush-teeth.html
+
 **Club World Cup predictions: Which players will star and how can the tournament succeed?**\
 `Our experts debate the big issues around FIFA's latest global tournament after today's group stage draw in Miami`\
 https://nytimes.com/athletic/5972093/2024/12/05/fifa-club-world-cup-predictions-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/dining/chef-ashleigh-shanti-cookbook.html
 **Jordan Neely’s Father Sues Daniel Penny, Accusing Him of Assault**\
 `Andre Zachery claims that Mr. Penny, who put Mr. Neely in a chokehold on a subway train last year, caused his son’s death through “negligence, carelessness and recklessness.”`\
 https://nytimes.com/2024/12/05/nyregion/jordan-neely-father-daniel-penny-lawsuit-assault.html
-
-**Could playing in SEC title game be a detriment? Texas and Georgia will soon find out**\
-`What effect will Georgia and Texas facing off in the SEC Championship Game have on the teams in the College Football Playoff?`\
-https://nytimes.com/athletic/5972775/2024/12/05/sec-championship-texas-georgia-greg-sankey/
 
