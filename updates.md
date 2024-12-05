@@ -1,3 +1,7 @@
+**World’s Priciest Dinosaur Fossil Comes to Museum of Natural History**\
+`The billionaire Kenneth C. Griffin, who bought the stegosaurus fossil for $44.6 million, is loaning it to the American Museum of Natural History in New York for four years.`\
+https://nytimes.com/2024/12/05/arts/most-expensive-stegosaurus-american-museum-of-natural-history.html
+
 **Wolves boss O'Neil ignoring talk over his future ahead of West Ham trip**\
 `Wolverhampton Wanderers head coach Gary O&#8217;Neil says he is ignoring talk over his future and is fully focused on Monday night&#8217;s match at West Ham United.`\
 https://nytimes.com/athletic/5971902/2024/12/05/gary-oneil-wolves-manager-future/
