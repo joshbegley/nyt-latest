@@ -1,3 +1,7 @@
+**4 Nations brings Wild locker room a friendly Sweden-U.S. rivalry: 'I would love to score on him'**\
+`Brock Faber and Matt Boldy were named to the U.S. roster and Filip Gustavsson, Joel Eriksson Ek and Jonas Brodin were named to Sweden's.`\
+https://nytimes.com/athletic/5973007/2024/12/05/wild-locker-room-rivalry-4-nations/
+
 **‘You Are Out of Line’: Acting Secret Service Director Clashes With Congressman**\
 `A congressional task force hearing on assassination attempts against Donald Trump erupted into a shouting match on Thursday. Ronald Rowe Jr., the acting Secret Service director, accused Representative Pat Fallon, Republican of Texas, of politicizing a 9/11 memorial event.`\
 https://nytimes.com/video/us/politics/100000009862237/secret-service-hearing-shouting.html
