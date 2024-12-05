@@ -1,3 +1,7 @@
+**Vic's Picks, Week 14: Justin Jefferson's scoreless streak will end vs. Falcons**\
+`Jefferson hasn't scored in six straight games but he'll do the Griddy when old friend Kirk Cousins comes to town Sunday.`\
+https://nytimes.com/athletic/5968216/2024/12/05/nfl-week-14-picks-predictions-betting/
+
 **When a Baby Killer Isn’t a Straightforward Villain**\
 `The real-life murderer who inspired “The Girl With the Needle” was “a monster,” said the actress who plays her, “but the movie is also about showing you her struggles.”`\
 https://nytimes.com/2024/12/05/movies/the-girl-with-the-needle-trine-dyrholm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/learning/penguin-on-a-beach.html
 **A Coach Complained About a Dangerous Intersection. Then He Was Killed There.**\
 `A high school football coach was fatally struck by a driver in the Bronx. He was one of three pedestrians killed in traffic over the weekend.`\
 https://nytimes.com/2024/12/05/nyregion/bronx-coach-killed-hit-run.html
-
-**New York City Is Set to Approve a Plan to Create 80,000 New Homes**\
-`The City Council is expected to pass a major housing plan known as “City of Yes.” Housing experts and elected officials say it is only a first step.`\
-https://nytimes.com/2024/12/05/nyregion/nyc-housing-city-of-yes.html
 
