@@ -1,3 +1,11 @@
+**A manhunt continues. Here’s the latest.**\
+`By Alyce McFadden`\
+https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-unitedhealthcare-news/a-manhunt-continues-heres-the-latest
+
+**Live Updates: Suspect Still at Large in Killing of UnitedHealthcare C.E.O. in Manhattan**\
+`The police are using dogs, drones and New York City’s vast array of private and city cameras to track down the person who shot Brian Thompson outside a Midtown hotel.`\
+https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-unitedhealthcare-news
+
 **No Gabriel, no problem: How Arsenal adapted their corners to beat Manchester United**\
 `Arsenal hadn’t scored a corner goal in a Premier League match without Gabriel since he joined - now they look like they don't even need him`\
 https://nytimes.com/athletic/5971488/2024/12/05/arsenal-corners-gabriel-manchester-united/
