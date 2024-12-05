@@ -1,3 +1,7 @@
+**Loyd requests trade from Storm, Seattle investigation finds no wrongdoing**\
+`Loyd was Seattle’s No. 1 pick in the 2015 WNBA Draft and is the last member of the franchise’s two-time title-winning Big 3.`\
+https://nytimes.com/athletic/5970951/2024/12/04/jewell-loyd-trade-request-seattle-storm-investigation/
+
 **Rams DT Kobie Turner revealed as 'Goo' in 'Masked Singer' quarterfinals**\
 `Kobie "The Conductor" Turner has a long history with music, one he alluded to several times during tonight's competition.`\
 https://nytimes.com/athletic/5970526/2024/12/04/rams-kobie-turner-goo-masked-singer/
