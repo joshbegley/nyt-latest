@@ -1,3 +1,7 @@
+**The Briefing: Bournemouth 1 Tottenham 0: Set-piece struggles and away day woes strike Spurs again**\
+`Tottenham Hotspur added to their growing collection of poor results against the Premier League's less glamourous clubs`\
+https://nytimes.com/athletic/5957344/2024/12/05/bournemouth-1-tottenham-0/
+
 **The quake occurred where 3 major tectonic plates meet under the Pacific Ocean.**\
 `By Thomas Fuller`\
 https://nytimes.com/live/2024/12/05/us/earthquake-california/the-quake-occurred-where-3-major-tectonic-plates-meet-under-the-pacific-ocean

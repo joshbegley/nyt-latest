@@ -1,3 +1,7 @@
+**Micah Parsons: Zack Martin would retire before he plays for another team**\
+`“​​This is not the time to have those discussions,” Zack Martin said in regards to playing beyond this season. `\
+https://nytimes.com/athletic/5973019/2024/12/05/cowboys-zack-martin-future-ankle-surgery/
+
 **The quake occurred where 3 major tectonic plates meet under the Pacific Ocean.**\
 `By Thomas Fuller`\
 https://nytimes.com/live/2024/12/05/us/earthquake-california/the-quake-occurred-where-3-major-tectonic-plates-meet-under-the-pacific-ocean
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5957344/2024/12/05/bournemouth-1-tottenham-0/
 **Think You Know How to Brush Your Teeth?**\
 `Dentists would like a word.`\
 https://nytimes.com/interactive/2024/12/05/well/eat/how-to-brush-teeth.html
-
-**Club World Cup predictions: Which players will star and how can the tournament succeed?**\
-`Our experts debate the big issues around FIFA's latest global tournament after today's group stage draw in Miami`\
-https://nytimes.com/athletic/5972093/2024/12/05/fifa-club-world-cup-predictions-analysis/
 
