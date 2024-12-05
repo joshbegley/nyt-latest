@@ -1,3 +1,7 @@
+**Meet the Toronto Tempo: WNBA's 14th team unveils name, logo**\
+`The Toronto Tempo will begin play in the 2026 WNBA season.`\
+https://nytimes.com/athletic/5971787/2024/12/05/wnba-toronto-tempo-new-team-branding/
+
 **Korean All-Star infielder Hyeseong Kim made available to MLB teams**\
 `Kim, ranked No. 41 on Keith Law's list of the top 50 free agents this offseason, is a second baseman who hit .326/.383/.458 last year.`\
 https://nytimes.com/athletic/5971802/2024/12/05/hyeseong-kim-korean-infielder-posted-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5962164/2024/12/05/nba-lookahead-thunder-celtics-ca
 **If Cooper Flagg, Duke can come this far in a month, how high can they rise by March?**\
 `Duke’s 84-78 win Wednesday over Auburn showed Jon Scheyer's team did, in fact, learn from its late-game miscues against Kentucky and Kansas.`\
 https://nytimes.com/athletic/5971785/2024/12/05/duke-auburn-cooper-flagg-result/
-
-**Reminders of Penn State's 2016 conference crown are all around this week**\
-`The Nittany Lions won the conference crown eight years ago and finally have a chance to reclaim it this Saturday against Oregon.`\
-https://nytimes.com/athletic/5971741/2024/12/05/penn-state-big-ten-championship-college-football-james-franklin/
 

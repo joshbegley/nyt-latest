@@ -1,3 +1,7 @@
+**Meet the Toronto Tempo: WNBA's 14th team unveils name, logo**\
+`The Toronto Tempo will begin play in the 2026 WNBA season.`\
+https://nytimes.com/athletic/5971787/2024/12/05/wnba-toronto-tempo-new-team-branding/
+
 **Korean All-Star infielder Hyeseong Kim made available to MLB teams**\
 `Kim, ranked No. 41 on Keith Law's list of the top 50 free agents this offseason, is a second baseman who hit .326/.383/.458 last year.`\
 https://nytimes.com/athletic/5971802/2024/12/05/hyeseong-kim-korean-infielder-posted-mlb/
