@@ -1,3 +1,11 @@
+**Here are the latest developments in South Korea.**\
+`By Choe Sang-Hun and Qasim Nauman`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment/here-are-the-latest-developments-in-south-korea
+
+**Live Updates: South Korean Lawmakers Question Military Leaders After Failed Crackdown**\
+`South Korea’s defense minister resigned, apologizing for the crisis after President Yoon Suk Yeol imposed martial law. Lawmakers questioned the military for the first time about its role.`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment
+
 **Loyd requests trade from Storm, Seattle investigation finds no wrongdoing**\
 `Loyd was Seattle’s No. 1 pick in the 2015 WNBA Draft and is the last member of the franchise’s two-time title-winning Big 3.`\
 https://nytimes.com/athletic/5970951/2024/12/04/jewell-loyd-trade-request-seattle-storm-investigation/
