@@ -1,3 +1,31 @@
+**‘Super/Man: The Christopher Reeve Story’ Review: A Legend and His Kryptonite**\
+`The original Superman actor gets a comprehensive, if narrow-mindedly celebratory, tribute in this traditional talking-heads-style doc.`\
+https://nytimes.com/2024/12/05/movies/super-man-the-christopher-reeve-story-review.html
+
+**‘The Return’ Review: Homer, for the Holidays**\
+`Ralph Fiennes and Juliette Binoche burn through the screen in this grim take on the homecoming of Odysseus.`\
+https://nytimes.com/2024/12/05/movies/the-return-review.html
+
+**‘The Order’ Review: Catch Him if You Can**\
+`The thriller, about a white supremacist (Nicholas Hoult) and the killing of a real-life radio host, among other crimes, hits familiar genre beats.`\
+https://nytimes.com/2024/12/05/movies/the-order-review.html
+
+**‘Lake George’ Review: An Odd Couple Crime Comedy**\
+`A stoic former convict reluctantly teams up with his would-be victim in this off-kilter film by Jeffrey Reiner.`\
+https://nytimes.com/2024/12/05/movies/lake-george-review.html
+
+**‘The Girl With the Needle’ Review: A Series of Unfortunate Events**\
+`This grim and exceptionally stylish film centers on a Danish woman who becomes tied up in the black-market baby trade.`\
+https://nytimes.com/2024/12/05/movies/the-girl-with-the-needle-review.html
+
+**‘Day of the Fight’ Review: Innovating an Old Cliché**\
+`Revisiting a boxing classic, and honoring a filmmaking legend.`\
+https://nytimes.com/2024/12/05/movies/day-of-the-fight-review.html
+
+**‘Bona’: A Filipina Superstar Wreaks Vengeance in a Two-Fisted Melodrama**\
+`Recently rediscovered and now digitally restored, Lino Brocka’s 1980 movie, starring Nora Aunor, opens for a week at Metrograph.`\
+https://nytimes.com/2024/12/05/movies/bona-lino-brocka-metrograph.html
+
 **The Pulse: Two massive college basketball upsets**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5969137/2024/12/05/duke-auburn-cooper-flagg-the-pulse/
@@ -9,32 +37,4 @@ https://nytimes.com/2024/12/05/briefing/estate-taxes.html
 **'He’s playing backyard football': Chiefs benefit from Travis Kelce's love of the lateral**\
 `Kelce laterals more than most NFL teams, and Chiefs coach Andy Reid says he's OK with that — "just as long as you complete them.”`\
 https://nytimes.com/athletic/5970634/2024/12/05/chiefs-travis-kelce-lateral/
-
-**Kirk Cousins' return to Minnesota means more than the Vikings are saying**\
-`Buried beneath the Falcons-Vikings pleasantries are six years of memories affecting this team, this town and Cousins himself.`\
-https://nytimes.com/athletic/5970674/2024/12/05/kirk-cousins-falcons-minnesota-vikings-return/
-
-**2025 NFL Draft: Projection model ranks 6 teams most likely to pick No. 1**\
-`The Raiders and Giants have the inside track to the No. 1 pick but don't count out the Patriots and Jets just yet. `\
-https://nytimes.com/athletic/5968994/2024/12/05/nfl-draft-top-pick-giants-raiders-patriots-jets/
-
-**Two women lived with the secret of an assault by the same tennis coach. Then they found each other**\
-`Carrying their stories, decades apart, left Caroline Ullring and Karen Clark feeling isolated — until they learned they were not alone.`\
-https://nytimes.com/athletic/5969459/2024/12/05/wake-forest-womens-tennis-coach-sexual-assault-lew-gerard/
-
-**When is enough enough? Rangers' Filip Chytil and the ongoing concussion question facing NHLers**\
-`The Athletic spoke to Pat Lafontaine, Rick Nash and Kyle Okposo about their experience with concussions and career decisions.`\
-https://nytimes.com/athletic/5969997/2024/12/05/new-york-rangers-filip-chytil-return-concussion/
-
-**Schneidman: Why I think the Packers will beat the Lions in Detroit on Thursday night**\
-`Green Bay and Detroit have key players who will miss Thursday night's game due to injury.`\
-https://nytimes.com/athletic/5970214/2024/12/05/packers-lions-thursday-night-football/
-
-**Ranking conference championship games by Playoff implications**\
-`Of the nine games, none has a spread larger than 5.5 points. Some will have more impact on Sunday's final CFP rankings than others.`\
-https://nytimes.com/athletic/5970965/2024/12/05/conference-championship-week-schedule-top-games/
-
-**A Manhunt in Manhattan, and Another Trump Pick in Trouble**\
-`Plus, the A.I. that aces weather forecasts.`\
-https://nytimes.com/2024/12/05/podcasts/manhattan-shooting-hegseth-trouble.html
 
