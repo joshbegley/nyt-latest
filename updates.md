@@ -1,3 +1,7 @@
+**NBA fines Ime Udoka, Tari Eason, Alperen Sengun in Rockets' loss to Kings**\
+`Udoka was fined $50,000, Eason was fined $35,000 and Sengun was fined $15,000`\
+https://nytimes.com/athletic/5972670/2024/12/05/nba-fines-ime-udoka-tari-eason-alperen-sengun-for-actions-in-rockets-loss-to-kings/
+
 **Former Proud Boys Leader Testifies in Defense of Officer Accused of Aiding Him**\
 `Enrique Tarrio appeared in court for the first time since being sentenced to 22 years in prison for seditious conspiracy over his role in the Jan. 6, 2021, attack on the Capitol.`\
 https://nytimes.com/2024/12/05/us/politics/enrique-tarrio-proud-boys-testimony.html
