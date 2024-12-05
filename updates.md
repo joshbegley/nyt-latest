@@ -1,3 +1,11 @@
+**The rise of Arizona State's Sam Leavitt, as told by the Sun Devils' other 10-win QBs**\
+`Sam Leavitt joined the ASU 10-win club in his first season, establishing himself as one of the top young quarterbacks in college football.`\
+https://nytimes.com/athletic/5970979/2024/12/05/sam-leavitt-arizona-state-sun-devils-quarterback-growth/
+
+**South Korean General Gives a Confused Account of a Failed Crackdown**\
+`The military has spent decades trying to rehabilitate its image and win public trust after a brutal past. Its role in President Yoon’s martial law raised a specter from that era.`\
+https://nytimes.com/2024/12/05/world/asia/south-korea-martial-law.html
+
 **The NBA (un)-Panic meter: The Bucks, Knicks, Grizzlies and others who eased early fears**\
 `Teams like the Magic and Mavericks have managed to win despite their stars missing time.`\
 https://nytimes.com/athletic/5971428/2024/12/05/nba-bucks-knicks-magic-no-panic/

@@ -1,3 +1,11 @@
+**The rise of Arizona State's Sam Leavitt, as told by the Sun Devils' other 10-win QBs**\
+`Sam Leavitt joined the ASU 10-win club in his first season, establishing himself as one of the top young quarterbacks in college football.`\
+https://nytimes.com/athletic/5970979/2024/12/05/sam-leavitt-arizona-state-sun-devils-quarterback-growth/
+
+**South Korean General Gives a Confused Account of a Failed Crackdown**\
+`The military has spent decades trying to rehabilitate its image and win public trust after a brutal past. Its role in President Yoon’s martial law raised a specter from that era.`\
+https://nytimes.com/2024/12/05/world/asia/south-korea-martial-law.html
+
 **The NBA (un)-Panic meter: The Bucks, Knicks, Grizzlies and others who eased early fears**\
 `Teams like the Magic and Mavericks have managed to win despite their stars missing time.`\
 https://nytimes.com/athletic/5971428/2024/12/05/nba-bucks-knicks-magic-no-panic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5971488/2024/12/05/arsenal-corners-gabriel-manchest
 **Deadly Israeli Strike Hits Gaza Humanitarian Zone**\
 `The Israeli military said it was targeting senior Hamas militants in the area. Video from the scene showed the charred remains of tents.`\
 https://nytimes.com/2024/12/05/world/middleeast/israel-strike-gaza-al-mawasi.html
-
-**NFL Week 14 fantasy football, betting cheat sheet: Trevor Lawrence hits injured reserve**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5965980/2024/12/05/nfl-week-14-fantasy-football-cheat-sheet-betting-injuries/
-
-**As Dany Heatley returns to Ottawa, remember the highs and lows of his tenure**\
-`A look back at what brought Dany Heatley to Ottawa, his best Senators moments, why he left and how he'll be received in his return.`\
-https://nytimes.com/athletic/5956988/2024/12/05/heatley-alfredsson-spezza-pizza-line/
 
