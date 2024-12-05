@@ -1,3 +1,11 @@
+**'He’s playing backyard football': Chiefs benefit from Travis Kelce's love of the lateral**\
+`Kelce laterals more than most NFL teams, and Chiefs coach Andy Reid says he's OK with that — "just as long as you complete them.”`\
+https://nytimes.com/athletic/5970634/2024/12/05/chiefs-travis-kelce-lateral/
+
+**Kirk Cousins' return to Minnesota means more than the Vikings are saying**\
+`Buried beneath the Falcons-Vikings pleasantries are six years of memories affecting this team, this town and Cousins himself.`\
+https://nytimes.com/athletic/5970674/2024/12/05/kirk-cousins-falcons-minnesota-vikings-return/
+
 **2025 NFL Draft: Projection model ranks 6 teams most likely to pick No. 1**\
 `The Raiders and Giants have the inside track to the No. 1 pick but don't count out the Patriots and Jets just yet. `\
 https://nytimes.com/athletic/5968994/2024/12/05/nfl-draft-top-pick-giants-raiders-patriots-jets/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/crosswords/connections-companion-544.html
 **The Supreme Court Takes On Transgender Care for Minors**\
 `The justices are posed to rule on a ban in Tennessee, with consequences across the country.`\
 https://nytimes.com/2024/12/05/podcasts/the-daily/supreme-court-transgender-care-minors.html
-
-**QB future for all 32 NFL teams: Russell Wilson, Aaron Rodgers and other intriguing questions**\
-`Wilson's production has been great as he approaches free agency, while Rodgers and Kirk Cousins could have tenuous futures with their teams.`\
-https://nytimes.com/athletic/5968090/2024/12/05/nfl-quarterback-futures-wilson-rodgers-cousins/
-
-**Wordle Review No. 1,266**\
-`Scroll down for hints and conversation about the puzzle for Friday, Dec. 6, 2024.`\
-https://nytimes.com/2024/12/05/crosswords/wordle-review-1266.html
 

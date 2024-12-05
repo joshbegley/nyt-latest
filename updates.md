@@ -1,3 +1,11 @@
+**'He’s playing backyard football': Chiefs benefit from Travis Kelce's love of the lateral**\
+`Kelce laterals more than most NFL teams, and Chiefs coach Andy Reid says he's OK with that — "just as long as you complete them.”`\
+https://nytimes.com/athletic/5970634/2024/12/05/chiefs-travis-kelce-lateral/
+
+**Kirk Cousins' return to Minnesota means more than the Vikings are saying**\
+`Buried beneath the Falcons-Vikings pleasantries are six years of memories affecting this team, this town and Cousins himself.`\
+https://nytimes.com/athletic/5970674/2024/12/05/kirk-cousins-falcons-minnesota-vikings-return/
+
 **2025 NFL Draft: Projection model ranks 6 teams most likely to pick No. 1**\
 `The Raiders and Giants have the inside track to the No. 1 pick but don't count out the Patriots and Jets just yet. `\
 https://nytimes.com/athletic/5968994/2024/12/05/nfl-draft-top-pick-giants-raiders-patriots-jets/
