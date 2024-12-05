@@ -1,3 +1,19 @@
+**How the Messy Process of Milking Cows Can Spread Bird Flu**\
+`On America’s large dairy farms, milking is a vast operation, and the potential for disease transmission is worrying, health experts say.`\
+https://nytimes.com/2024/12/05/science/bird-flu-milk-dairy-h5n1.html
+
+**What Did You Think of This? Please Leave a Review**\
+`Dentists, doctors, professors, dry cleaners: What can’t you rate anymore?`\
+https://nytimes.com/2024/12/05/style/reviews-ratings-online.html
+
+**Can You Copyright a Vibe?**\
+`One influencer is suing another, accusing her of copying her minimalist aesthetic on social media. It turns out there is a lot of gray area in shades of beige.`\
+https://nytimes.com/2024/12/05/style/clean-girl-aesthetic-influencer-lawsuit.html
+
+**Vic's Picks, Week 14: Justin Jefferson's scoreless streak will end vs. Falcons**\
+`Jefferson hasn't scored in six straight games but he'll do the Griddy when old friend Kirk Cousins comes to town Sunday.`\
+https://nytimes.com/athletic/5968216/2024/12/05/nfl-week-14-picks-predictions-betting/
+
 **When a Baby Killer Isn’t a Straightforward Villain**\
 `The real-life murderer who inspired “The Girl With the Needle” was “a monster,” said the actress who plays her, “but the movie is also about showing you her struggles.”`\
 https://nytimes.com/2024/12/05/movies/the-girl-with-the-needle-trine-dyrholm.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/05/world/asia/photos-1980-south-korea-martial-law.ht
 **The Briefing - Athletic 2 Madrid 1: Another Mbappe penalty miss, Ancelotti's headache, Bellingham can't save them**\
 `Madrid looked to be improving in La Liga after a humiliating defeat to Barcelona, but this latest loss brought them down to earth`\
 https://nytimes.com/athletic/5970945/2024/12/05/athletic-club-real-madrid-kylian-mbappe/
-
-**Wolves' players look lost and the support has turned - Gary O'Neil is a manager on the brink**\
-`The away fans at Goodison Park made their feelings clear as Wolves' spluttering campaign plumbed new depths, with change feeling inevitable`\
-https://nytimes.com/athletic/5970727/2024/12/05/wolves-oneil-manager-support-everton/
-
-**Penguin on a Beach**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/12/05/learning/penguin-on-a-beach.html
-
-**A Coach Complained About a Dangerous Intersection. Then He Was Killed There.**\
-`A high school football coach was fatally struck by a driver in the Bronx. He was one of three pedestrians killed in traffic over the weekend.`\
-https://nytimes.com/2024/12/05/nyregion/bronx-coach-killed-hit-run.html
-
-**New York City Is Set to Approve a Plan to Create 80,000 New Homes**\
-`The City Council is expected to pass a major housing plan known as “City of Yes.” Housing experts and elected officials say it is only a first step.`\
-https://nytimes.com/2024/12/05/nyregion/nyc-housing-city-of-yes.html
 

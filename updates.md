@@ -1,3 +1,19 @@
+**How the Messy Process of Milking Cows Can Spread Bird Flu**\
+`On America’s large dairy farms, milking is a vast operation, and the potential for disease transmission is worrying, health experts say.`\
+https://nytimes.com/2024/12/05/science/bird-flu-milk-dairy-h5n1.html
+
+**What Did You Think of This? Please Leave a Review**\
+`Dentists, doctors, professors, dry cleaners: What can’t you rate anymore?`\
+https://nytimes.com/2024/12/05/style/reviews-ratings-online.html
+
+**Can You Copyright a Vibe?**\
+`One influencer is suing another, accusing her of copying her minimalist aesthetic on social media. It turns out there is a lot of gray area in shades of beige.`\
+https://nytimes.com/2024/12/05/style/clean-girl-aesthetic-influencer-lawsuit.html
+
+**Vic's Picks, Week 14: Justin Jefferson's scoreless streak will end vs. Falcons**\
+`Jefferson hasn't scored in six straight games but he'll do the Griddy when old friend Kirk Cousins comes to town Sunday.`\
+https://nytimes.com/athletic/5968216/2024/12/05/nfl-week-14-picks-predictions-betting/
+
 **When a Baby Killer Isn’t a Straightforward Villain**\
 `The real-life murderer who inspired “The Girl With the Needle” was “a monster,” said the actress who plays her, “but the movie is also about showing you her struggles.”`\
 https://nytimes.com/2024/12/05/movies/the-girl-with-the-needle-trine-dyrholm.html
