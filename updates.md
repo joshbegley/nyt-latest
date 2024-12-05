@@ -1,3 +1,15 @@
+**A City of Cameras: How New York Police Will Hunt a Killer**\
+`The prelude, the crime and the aftermath were all caught on video. But investigators will need to use human intelligence to find the person who gunned down an insurance company’s chief executive.`\
+https://nytimes.com/2024/12/04/nyregion/brian-thompson-shooting-gunman-cameras.html
+
+**5 Takeaways From the 2024 DealBook Summit**\
+`Trumponomics, inflation, artificial intelligence, the changing media landscape, and the Elon Musk effect — these were the big themes covered at the annual event.`\
+https://nytimes.com/2024/12/04/business/dealbook/dealbook-summit-takeaways.html
+
+**Corporate security officers from around the world meet in the wake of the Midtown shooting.**\
+`By Jordyn Holman`\
+https://nytimes.com/live/2024/12/04/nyregion/brian-thompson-uhc-ceo-shot/ceo-security-uhc-shooting
+
 **Aaron Rodgers dishes on lack of public backing for Jets coaches from ownership**\
 `The Jets have dismissed both head coach Robert Saleh and general manager Joe Douglas.`\
 https://nytimes.com/athletic/5970470/2024/12/04/jets-qb-aaron-rodgers-woody-johnson-comments/
