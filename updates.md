@@ -1,3 +1,19 @@
+**St. Pete City Council votes to approve bonds for new Rays stadium, county vote next**\
+`The council’s decision puts the onus on the Pinellas County Board of County Commissioners, who will vote to approve funding on Dec. 17.`\
+https://nytimes.com/athletic/5973030/2024/12/05/new-rays-stadium-council-vote-approval/
+
+**Hegseth Is Fighting to Keep His Nomination Alive**\
+`Also, the police are chasing several leads in New York manhunt. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/12/05/briefing/hegseth-capitol-hill-new-york-city-manhunt.html
+
+**Micah Parsons: Zack Martin would retire before he plays for another team**\
+`“​​This is not the time to have those discussions,” Zack Martin said in regards to playing beyond this season. `\
+https://nytimes.com/athletic/5973019/2024/12/05/cowboys-zack-martin-future-ankle-surgery/
+
+**Who's the next man up for each 4 Nations team? A look at the top potential injury replacements**\
+`Canada coach Jon Cooper says "I bet you there will be 10 new players minimum" in the tournament by the time it begins. Who will they be?`\
+https://nytimes.com/athletic/5972629/2024/12/05/4-nations-face-off-subs/
+
 **The Briefing: Bournemouth 1 Tottenham 0: Set-piece struggles and away day woes strike Spurs again**\
 `Tottenham Hotspur added to their growing collection of poor results against the Premier League's less glamourous clubs`\
 https://nytimes.com/athletic/5957344/2024/12/05/bournemouth-1-tottenham-0/

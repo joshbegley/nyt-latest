@@ -1,3 +1,15 @@
+**St. Pete City Council votes to approve bonds for new Rays stadium, county vote next**\
+`The council’s decision puts the onus on the Pinellas County Board of County Commissioners, who will vote to approve funding on Dec. 17.`\
+https://nytimes.com/athletic/5973030/2024/12/05/new-rays-stadium-council-vote-approval/
+
+**Hegseth Is Fighting to Keep His Nomination Alive**\
+`Also, the police are chasing several leads in New York manhunt. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/12/05/briefing/hegseth-capitol-hill-new-york-city-manhunt.html
+
+**Micah Parsons: Zack Martin would retire before he plays for another team**\
+`“​​This is not the time to have those discussions,” Zack Martin said in regards to playing beyond this season. `\
+https://nytimes.com/athletic/5973019/2024/12/05/cowboys-zack-martin-future-ankle-surgery/
+
 **The quake occurred where 3 major tectonic plates meet under the Pacific Ocean.**\
 `By Thomas Fuller`\
 https://nytimes.com/live/2024/12/05/us/earthquake-california/the-quake-occurred-where-3-major-tectonic-plates-meet-under-the-pacific-ocean
@@ -14,7 +26,7 @@ https://nytimes.com/athletic/5971766/2024/12/05/aston-villa-mings-injury-return-
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler has played down a message on social media by Julio Enciso after he was left out of the squad for the 3-1 defeat at Fulham.`\
 https://nytimes.com/athletic/5972758/2024/12/05/julio-enciso-brighton-future/
 
-**Who's next man up for each 4 Nations team? A look at the top potential injury replacements**\
+**Who's the next man up for each 4 Nations team? A look at the top potential injury replacements**\
 `Canada coach Jon Cooper says "I bet you there will be 10 new players minimum" in the tournament by the time it begins. Who will they be?`\
 https://nytimes.com/athletic/5972629/2024/12/05/4-nations-face-off-subs/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/05/world/europe/estonia-vandalism-russia-sabotage.ht
 **Listen: Sample 4 Best Books of 2024**\
 `You’ve read our list of the year’s best fiction and nonfiction. Now start listening to them.`\
 https://nytimes.com/2024/12/05/podcasts/best-books-2024-listen.html
-
-**The Briefing: Bournemouth 1 Tottenham 0: Set-piece struggles and away day woes strike Spurs again**\
-`Tottenham Hotspur added to their growing collection of poor results against the Premier League's less glamourous clubs`\
-https://nytimes.com/athletic/5957344/2024/12/05/bournemouth-1-tottenham-0/
-
-**Think You Know How to Brush Your Teeth?**\
-`Dentists would like a word.`\
-https://nytimes.com/interactive/2024/12/05/well/eat/how-to-brush-teeth.html
-
-**Club World Cup predictions: Which players will star and how can the tournament succeed?**\
-`Our experts debate the big issues around FIFA's latest global tournament after today's group stage draw in Miami`\
-https://nytimes.com/athletic/5972093/2024/12/05/fifa-club-world-cup-predictions-analysis/
 
