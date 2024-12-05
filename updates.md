@@ -1,3 +1,11 @@
+**Reminders of Penn State's 2016 conference crown are all around this week**\
+`The Nittany Lions won the conference crown eight years ago and finally have a chance to reclaim it this Saturday against Oregon.`\
+https://nytimes.com/athletic/5971741/2024/12/05/penn-state-big-ten-championship-college-football-james-franklin/
+
+**BOS Nation FC hire former FC Barcelona executive as new general manager**\
+`The NWSL team will start play in 2026 with Domènec Guasch as its GM.`\
+https://nytimes.com/athletic/5970135/2024/12/05/bos-nation-fc-nwsl-domenec-guasch-fc-barcelona/
+
 **The rise of Arizona State's Sam Leavitt, as told by the Sun Devils' other 10-win QBs**\
 `Sam Leavitt joined the ASU 10-win club in his first season, establishing himself as one of the top young quarterbacks in college football.`\
 https://nytimes.com/athletic/5970979/2024/12/05/sam-leavitt-arizona-state-sun-devils-quarterback-growth/
