@@ -1,3 +1,7 @@
+**Canucks report cards: Grading every defender and goalie’s November performance**\
+`Standout performances along the blue line and in goal have helped the Canucks' early-season success.`\
+https://nytimes.com/athletic/5971334/2024/12/05/canucks-report-cards-defense-goalie-quinn-hughes/
+
 **How Trump Targeted Undecided Voters Without Breaking the Bank**\
 `The Trump team had a huge financial disadvantage. It made up for it with a strategic innovation that allowed it to narrow the focus of its ad dollars.`\
 https://nytimes.com/2024/12/05/us/politics/trump-streaming-ads-strategy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5971251/2024/12/05/cowboys-today-mike-mccarthy-jerr
 **Meet the Toronto Tempo: WNBA's 14th team unveils name, logo**\
 `The Toronto Tempo will begin play in the 2026 WNBA season.`\
 https://nytimes.com/athletic/5971787/2024/12/05/wnba-toronto-tempo-new-team-branding/
-
-**Korean All-Star infielder Hyeseong Kim made available to MLB teams**\
-`Kim, ranked No. 41 on Keith Law's list of the top 50 free agents this offseason, is a second baseman who hit .326/.383/.458 last year.`\
-https://nytimes.com/athletic/5971802/2024/12/05/hyeseong-kim-korean-infielder-posted-mlb/
 
