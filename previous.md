@@ -1,3 +1,11 @@
+**What effect will 12-team College Football Playoff have on SEC Championship Game?**\
+`What effect will Georgia and Texas facing off in the SEC Championship Game have on the teams in the College Football Playoff?`\
+https://nytimes.com/athletic/5972775/2024/12/05/sec-championship-texas-georgia-greg-sankey/
+
+**Why did Connor Bedard miss the 4 Nations cut? GM Don Sweeney explains — and gives hint at Olympic plans**\
+`Canada coach Jon Cooper said the team must approach 4 Nations like it's "three Game 7s" and that experience in those situations matters.`\
+https://nytimes.com/athletic/5972760/2024/12/05/connor-bedard-4-nations-cut/
+
 **NBA fines Ime Udoka, Tari Eason, Alperen Sengun in Rockets' loss to Kings**\
 `Udoka was fined $50,000, Eason was fined $35,000 and Sengun was fined $15,000`\
 https://nytimes.com/athletic/5972670/2024/12/05/nba-fines-ime-udoka-tari-eason-alperen-sengun-for-actions-in-rockets-loss-to-kings/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/learning/what-students-are-saying-about-teachers-
 **General Motors F1 appoints Graeme Lowdon as Cadillac team principal in 2026**\
 `Lowdon has served as an adviser on the project for two years and is currently Sauber driver Zhou Guanyu’s manager.`\
 https://nytimes.com/athletic/5972741/2024/12/05/graeme-lowdon-gm-f1-cadillac-team-principal/
-
-**Remembering Peter Westbrook, Fencing Legend and Father Figure**\
-`He inspired several generations of Black fencers and other athletes.`\
-https://nytimes.com/2024/12/05/opinion/westbrook-black-fencers-inspiration.html
-
-**Where does the N.Y.P.D. get its reward money?**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-unitedhealthcare-news/where-does-the-nypd-get-its-reward-money
 

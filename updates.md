@@ -1,3 +1,11 @@
+**What effect will 12-team College Football Playoff have on SEC Championship Game?**\
+`What effect will Georgia and Texas facing off in the SEC Championship Game have on the teams in the College Football Playoff?`\
+https://nytimes.com/athletic/5972775/2024/12/05/sec-championship-texas-georgia-greg-sankey/
+
+**Why did Connor Bedard miss the 4 Nations cut? GM Don Sweeney explains — and gives hint at Olympic plans**\
+`Canada coach Jon Cooper said the team must approach 4 Nations like it's "three Game 7s" and that experience in those situations matters.`\
+https://nytimes.com/athletic/5972760/2024/12/05/connor-bedard-4-nations-cut/
+
 **Giants add coaches Oscar Bernard, Damon Minor to major-league hitting staff**\
 `Bernard was part of Bob Melvin’s staff in San Diego in 2023. Minor spent eight seasons as the Giants’ Triple-A hitting coach.`\
 https://nytimes.com/athletic/5972756/2024/12/05/sf-giants-coaching-changes-oscar-bernard-damon-minor/
