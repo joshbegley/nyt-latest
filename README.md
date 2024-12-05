@@ -1,3 +1,11 @@
+**France Is Being Held Hostage**\
+`The government’s fall shows the strength of the far right.`\
+https://nytimes.com/2024/12/05/opinion/france-marine-le-pen.html
+
+**The Warning**\
+`No shockwave. No mushroom cloud. But a space nuke would change life on Earth forever.`\
+https://nytimes.com/interactive/2024/12/05/opinion/nuclear-weapons-space.html
+
 **FPL: Fantasy Premier League: How the teams with the busiest winter schedules affect your plans**\
 `A number of clubs will play multiple midweek games in several competitions before the year ends. Here's who you need to keep an eye on`\
 https://nytimes.com/athletic/5968531/2024/12/05/fantasy-premier-league-fixtures-gameweeks-december-christmas/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5971095/2024/12/05/los-angeles-lakers-41-point-loss
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/12/05/briefing/france-south-korea-assassination.html
-
-**Listen to Jennifer Hudson’s Festive Holiday Playlist**\
-`The singer, actress and TV host shares songs from her new holiday album, as well as favorites by other artists.`\
-https://nytimes.com/2024/12/05/arts/jennifer-hudson-music-holiday-songs.html
-
-**Quote of the Day: Jolted by War, Ukrainians Are Reclaiming Their Literary Heritage**\
-`Quotation of the Day for Thursday, December 5, 2024.`\
-https://nytimes.com/2024/12/04/pageoneplus/quote-of-the-day-jolted-by-war-ukrainians-are-reclaiming-their-literary-heritage.html
 
