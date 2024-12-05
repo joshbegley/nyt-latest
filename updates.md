@@ -1,3 +1,7 @@
+**Listen: ‘My Senior Year’**\
+`What can the story of an exchange student from Gaza tell us about senior year in an American high school?`\
+https://nytimes.com/2024/12/05/learning/listen-my-senior-year.html
+
 **Three ways the Yankees could save on salary if they re-sign Juan Soto**\
 `Hal Steinbrenner has spoken about exercising some payroll restraint many times. If the Yankees re-sign Soto, here's how they can.`\
 https://nytimes.com/athletic/5970283/2024/12/05/yankees-payroll-juan-soto/
