@@ -1,3 +1,19 @@
+**Pantone’s 2025 Color of the Year Is Mocha Mousse**\
+`Is this shade of dusty brown a repudiation of “Brat” green?`\
+https://nytimes.com/2024/12/05/style/pantone-color-mocha-mousse-2025.html
+
+**DealBook Summit: 2024’s Speakers**\
+`Hear from Jeff Bezos, Sam Altman, Jerome Powell, President Bill Clinton, Alex Cooper, Ken Griffin, Prince Harry and Serena Williams, among others.`\
+https://nytimes.com/2024/12/05/podcasts/dealbook-summit-2024s-speakers.html
+
+**NBA Lookahead: First-quarter grades for each team and your weekend slate**\
+`Plus, a look back at Klay Thompson's incredibly efficient 60-point game. `\
+https://nytimes.com/athletic/5962164/2024/12/05/nba-lookahead-thunder-celtics-cavaliers/
+
+**If Cooper Flagg, Duke can come this far in a month, how high can they rise by March?**\
+`Duke’s 84-78 win Wednesday over Auburn showed Jon Scheyer's team did, in fact, learn from its late-game miscues against Kentucky and Kansas.`\
+https://nytimes.com/athletic/5971785/2024/12/05/duke-auburn-cooper-flagg-result/
+
 **Reminders of Penn State's 2016 conference crown are all around this week**\
 `The Nittany Lions won the conference crown eight years ago and finally have a chance to reclaim it this Saturday against Oregon.`\
 https://nytimes.com/athletic/5971741/2024/12/05/penn-state-big-ten-championship-college-football-james-franklin/

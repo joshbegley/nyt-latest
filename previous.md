@@ -1,3 +1,19 @@
+**Pantone’s 2025 Color of the Year Is Mocha Mousse**\
+`Is this shade of dusty brown a repudiation of “Brat” green?`\
+https://nytimes.com/2024/12/05/style/pantone-color-mocha-mousse-2025.html
+
+**DealBook Summit: 2024’s Speakers**\
+`Hear from Jeff Bezos, Sam Altman, Jerome Powell, President Bill Clinton, Alex Cooper, Ken Griffin, Prince Harry and Serena Williams, among others.`\
+https://nytimes.com/2024/12/05/podcasts/dealbook-summit-2024s-speakers.html
+
+**NBA Lookahead: First-quarter grades for each team and your weekend slate**\
+`Plus, a look back at Klay Thompson's incredibly efficient 60-point game. `\
+https://nytimes.com/athletic/5962164/2024/12/05/nba-lookahead-thunder-celtics-cavaliers/
+
+**If Cooper Flagg, Duke can come this far in a month, how high can they rise by March?**\
+`Duke’s 84-78 win Wednesday over Auburn showed Jon Scheyer's team did, in fact, learn from its late-game miscues against Kentucky and Kansas.`\
+https://nytimes.com/athletic/5971785/2024/12/05/duke-auburn-cooper-flagg-result/
+
 **Reminders of Penn State's 2016 conference crown are all around this week**\
 `The Nittany Lions won the conference crown eight years ago and finally have a chance to reclaim it this Saturday against Oregon.`\
 https://nytimes.com/athletic/5971741/2024/12/05/penn-state-big-ten-championship-college-football-james-franklin/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5971428/2024/12/05/nba-bucks-knicks-magic-no-panic/
 **Musk, Trump, A.I. and Other DealBook Summit Highlights**\
 `The economy, inflation, tariffs, the future of media, pardon politics and other big topics that made headlines this year.`\
 https://nytimes.com/2024/12/05/business/dealbook/musk-trump-dealbook-summit-highlights.html
-
-**Trump Transition Live Updates: Another Dozen-Plus Picks Fill Ranks of New Team**\
-``\
-https://nytimes.com/live/2024/12/05/us/trump-news
-
-**The Chargers are seeing more man coverage. Do they have the receivers to overcome it?**\
-`Ladd McConkey has been great against man coverage. Someone else has to step up, or the Chargers’ passing game problems will not go away.`\
-https://nytimes.com/athletic/5970817/2024/12/05/chargers-receivers-man-coverage/
-
-**How Creighton used an extreme gameplan to down No. 1 Kansas**\
-`It was the second time in 11 months the Bluejays have taken down the nation's No. 1 team inside CHI Health Center Omaha.`\
-https://nytimes.com/athletic/5971235/2024/12/05/kansas-creighton-greg-mcdermott/
-
-**How Global Conflicts Helped Reignite Syria’s Civil War**\
-`Rebels launched sweeping assaults against the forces of President Bashar al-Assad in northwestern Syria, taking control of large portions of territory, including much of the city of Aleppo.`\
-https://nytimes.com/video/world/middleeast/100000009856457/syria-war-explainer.html
 
