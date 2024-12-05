@@ -1,3 +1,7 @@
+**Motherhood at 74: World’s Oldest Known Wild Bird Lays Egg**\
+`The U.S. Fish and Wildlife Service announced on Tuesday that Wisdom, a 74-year-old Laysan albatross, had laid an egg at Midway Atoll National Wildlife Refuge at the northwestern edge of the Hawaiian Archipelago.`\
+https://nytimes.com/video/science/earth/100000009861659/worlds-oldest-albatross-egg.html
+
 **A Defiant Macron Says He Won’t Resign as France’s Leader**\
 `A day after his chosen prime minister was forced to resign, President Emmanuel Macron denounced his political opponents.`\
 https://nytimes.com/2024/12/05/world/europe/macron-france-prime-minister.html
