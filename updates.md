@@ -1,3 +1,7 @@
+**Read the Justice Department’s Report**\
+`The agency released the results of its investigation into the Memphis Police Department, finding that the department used excessive force, treated Black people more harshly than white people, and mistreated people with mental health issues.`\
+https://nytimes.com/interactive/2024/12/04/us/memphis-police-justice-department-report.html
+
 **Luke Fickell takes stock in Wisconsin program as Badgers add 24 recruits**\
 `Wisconsin's class includes eight four-star prospects and ranks No. 24 nationally in the 247Sports Composite. `\
 https://nytimes.com/athletic/5970550/2024/12/04/wisconsin-recruiting-signing-day-fickell/
