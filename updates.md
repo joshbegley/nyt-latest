@@ -1,3 +1,11 @@
+**Danish clubs fined €1340 for snowball fight between fans**\
+`Danish football clubs Nordsjaelland and AGF have been fined 5,000 kroner (€670, £555) each for a snowball fight involving supporters in a league match.`\
+https://nytimes.com/athletic/5971749/2024/12/05/snowball-fight-nordsjaelland-agf/
+
+**LA Galaxy back in MLS Cup, a decade on from the glory days**\
+`The Beckham and Donovan years seem a long time ago for the LA Galaxy. In Saturday's MLS Cup final, they can turn back the clock`\
+https://nytimes.com/athletic/5967317/2024/12/05/la-galaxy-mls-cup-decade/
+
 **Pantone’s 2025 Color of the Year Is Mocha Mousse**\
 `Is this shade of dusty brown a repudiation of “Brat” green?`\
 https://nytimes.com/2024/12/05/style/pantone-color-mocha-mousse-2025.html
