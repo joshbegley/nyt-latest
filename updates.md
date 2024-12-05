@@ -1,3 +1,7 @@
+**Giants add coaches Oscar Bernard, Damon Minor to major-league hitting staff**\
+`Bernard was part of Bob Melvin’s staff in San Diego in 2023. Minor spent eight seasons as the Giants’ Triple-A hitting coach.`\
+https://nytimes.com/athletic/5972756/2024/12/05/sf-giants-coaching-changes-oscar-bernard-damon-minor/
+
 **NBA fines Ime Udoka, Tari Eason, Alperen Sengun in Rockets' loss to Kings**\
 `Udoka was fined $50,000, Eason was fined $35,000 and Sengun was fined $15,000`\
 https://nytimes.com/athletic/5972670/2024/12/05/nba-fines-ime-udoka-tari-eason-alperen-sengun-for-actions-in-rockets-loss-to-kings/

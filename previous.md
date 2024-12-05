@@ -10,7 +10,7 @@ https://nytimes.com/2024/12/05/us/politics/enrique-tarrio-proud-boys-testimony.h
 `Plus, a celebration of art in Dakar.`\
 https://nytimes.com/2024/12/05/briefing/syria-manhunt-south-korea.html
 
-**Giants add coaches Oscar Bernard, Damon Minor to major league hitting staff**\
+**Giants add coaches Oscar Bernard, Damon Minor to major-league hitting staff**\
 `Bernard was part of Bob Melvin’s staff in San Diego in 2023. Minor spent eight seasons as the Giants’ Triple-A hitting coach.`\
 https://nytimes.com/athletic/5972756/2024/12/05/sf-giants-coaching-changes-oscar-bernard-damon-minor/
 
