@@ -1,3 +1,11 @@
+**Live Updates: 7.0 Earthquake Rattles Northern California and Prompts Tsunami Warning**\
+`The authorities said they were surveying for signs of damage.`\
+https://nytimes.com/live/2024/12/05/us/earthquake-california
+
+**Club World Cup draw: Inter Miami vs Al Ahly opens tournament, Man City to face Juventus**\
+`The 32 teams playing in the 2025 Club World Cup found out their groups and opponents in the draw in Miami on Thursday.`\
+https://nytimes.com/athletic/5972076/2024/12/05/fifa-club-world-cup-draw-results/
+
 **Live pre-Winter Meetings chat with Red Sox beat writer Jen McCaffrey**\
 `Jen McCaffrey will be chatting live on the site at 1pm ET on Friday, Dec. 6.`\
 https://nytimes.com/athletic/5972637/2024/12/05/live-chat-jen-mccaffrey-red-sox/
