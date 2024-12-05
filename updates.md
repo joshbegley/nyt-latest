@@ -1,3 +1,15 @@
+**Nevada man sentenced to prison for fraud scheme involving Jackie Robinson contracts**\
+`Mykalai Kontilai leveraged his claim to the Robinson contracts to raise over $20 million as a key part of a fraudulent business plan. `\
+https://nytimes.com/athletic/5972525/2024/12/05/jackie-robinson-contracts-fraud-sentencing/
+
+**Map: 7.0-Magnitude Earthquake Shakes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/12/05/us/quake-tracker-california.html
+
+**What to See in N.Y.C. Galleries in December**\
+`This week in Newly Reviewed, Travis Diehl covers Luis Fernando Benedit’s pop-psychedelic pieces, Andres Serrano and Benjamin Bertocci’s rough paintings, Michael Iveson’s reverse A.I. and Martina Cox’s watercolor bodices. `\
+https://nytimes.com/2024/12/05/arts/nyc-galleries-december.html
+
 **No Food, Water or Power for Opponents Hiding From Venezuelan Government**\
 `Six leading opposition activists and advisers have taken refuge at the Argentine diplomatic residence for eight months. Now, the police are cutting off basic services.`\
 https://nytimes.com/2024/12/05/world/americas/venezuelan-embassy-opposition-activists.html
