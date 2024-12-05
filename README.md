@@ -1,3 +1,7 @@
+**Like Something a Rabbit Might Say**\
+`Garrett Chalfin turns us every which way and teaches us an important lesson.`\
+https://nytimes.com/2024/12/04/crosswords/daily-puzzle-2024-12-05.html
+
 **Bitcoin Hits a Milestone: $100,000**\
 `The price of a single Bitcoin rose to six figures for the first time, an extraordinary level for a 16-year-old cryptocurrency once dismissed as a sideshow.`\
 https://nytimes.com/2024/12/04/technology/bitcoin-price-record.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/04/us/trump-news/pete-hegseth-faces-questions-a
 **49ers will get a peek into the future Sunday when Isaac Guerendo starts at RB**\
 `Should Guerendo start as expected Sunday, it will be just his second start as a running back since he was in the fourth grade.`\
 https://nytimes.com/athletic/5970677/2024/12/04/49ers-isaac-guerendo-future-running-back/
-
-**A City of Cameras: How New York Police Will Hunt a Killer**\
-`The prelude, the crime and the aftermath were all caught on video. But investigators will need to use human intelligence to find the person who gunned down an insurance company’s chief executive.`\
-https://nytimes.com/2024/12/04/nyregion/brian-thompson-shooting-gunman-cameras.html
 
