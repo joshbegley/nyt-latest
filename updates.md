@@ -1,3 +1,15 @@
+**‘Hard Truths’ Review: Mike Leigh’s Brutal Comedy**\
+`The British director casts the superb Marianne Jean-Baptiste in the role of an excruciatingly lonely character whose pain reveals hidden depths.`\
+https://nytimes.com/2024/12/05/movies/hard-truths-review-mike-leigh.html
+
+**Greenberg: Can the Bears find a 'leader of men' as their next head coach?**\
+`The current best examples of “leader of men” coaches are Mike Tomlin and Dan Campbell, who happen to be the favorites for Coach of the Year.`\
+https://nytimes.com/athletic/5972062/2024/12/05/can-the-bears-find-a-leader-of-men-as-their-next-head-coach/
+
+**Federal Judge Rejects Boeing’s Guilty Plea Related to 737 Max Crashes**\
+`The agreement, opposed by some victims’ families, would have required the aviation company to pay a fine of up to $487 million and invest in additional safety measures.`\
+https://nytimes.com/2024/12/05/us/politics/boeing-max-guilty-plea-rejected.html
+
 **University of Michigan Ends Required Diversity Statements**\
 `The school, a bastion of D.E.I., will no longer require the statements in hiring decisions and is considering a broader shift in its policies.`\
 https://nytimes.com/2024/12/05/us/university-of-michigan-dei-diversity-statemements.html

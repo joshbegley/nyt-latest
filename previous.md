@@ -1,3 +1,15 @@
+**‘Hard Truths’ Review: Mike Leigh’s Brutal Comedy**\
+`The British director casts the superb Marianne Jean-Baptiste in the role of an excruciatingly lonely character whose pain reveals hidden depths.`\
+https://nytimes.com/2024/12/05/movies/hard-truths-review-mike-leigh.html
+
+**Greenberg: Can the Bears find a 'leader of men' as their next head coach?**\
+`The current best examples of “leader of men” coaches are Mike Tomlin and Dan Campbell, who happen to be the favorites for Coach of the Year.`\
+https://nytimes.com/athletic/5972062/2024/12/05/can-the-bears-find-a-leader-of-men-as-their-next-head-coach/
+
+**Federal Judge Rejects Boeing’s Guilty Plea Related to 737 Max Crashes**\
+`The agreement, opposed by some victims’ families, would have required the aviation company to pay a fine of up to $487 million and invest in additional safety measures.`\
+https://nytimes.com/2024/12/05/us/politics/boeing-max-guilty-plea-rejected.html
+
 **University of Michigan Ends Required Diversity Statements**\
 `The school, a bastion of D.E.I., will no longer require the statements in hiring decisions and is considering a broader shift in its policies.`\
 https://nytimes.com/2024/12/05/us/university-of-michigan-dei-diversity-statemements.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/05/us/politics/peter-b-teeley-dead.html
 **Senator Joni Ernst holds out on Hegseth as his candidacy teeters.**\
 `The Iowa Republican indicated that her private meeting on Wednesday with President-elect Donald J. Trump’s choice to serve as secretary of defense failed to persuade her he was worthy of confirmation.`\
 https://nytimes.com/live/2024/12/05/us/trump-news/senator-joni-ernst-holds-out-on-hegseth-as-his-candidacy-teeters
-
-**Manhattan Shooter Used a Silencer. Nearly 5 Million Are Registered in the U.S.**\
-`The tightly regulated firearm accessory has long been associated with Hollywood hit men but is rarely seen in real-life murders.`\
-https://nytimes.com/2024/12/05/nyregion/unitedhealthcare-shooting-suspect-gun-silencer.html
-
-**Who Is Tech Really For?**\
-`As Silicon Valley chases military tech and funding, it’s losing sight of what inspires its workers.`\
-https://nytimes.com/2024/12/05/special-series/tech-protest-gaza-artificial-intelligence.html
-
-**Veggie Recipe Matchmaker, Part 1**\
-`“My mom is a very picky eater.” “I’m stumped for future dinners.” “I’ve recently discovered that I’m gluten-intolerant.” Let’s go.`\
-https://nytimes.com/2024/12/05/dining/veggie-recipe-matchmaker-part-1.html
 
