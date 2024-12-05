@@ -1,3 +1,15 @@
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/12/05/briefing/france-south-korea-assassination.html
+
+**Listen to Jennifer Hudson’s Festive Holiday Playlist**\
+`The singer, actress and TV host shares songs from her new holiday album, as well as favorites by other artists.`\
+https://nytimes.com/2024/12/05/arts/jennifer-hudson-music-holiday-songs.html
+
+**Quote of the Day: Jolted by War, Ukrainians Are Reclaiming Their Literary Heritage**\
+`Quotation of the Day for Thursday, December 5, 2024.`\
+https://nytimes.com/2024/12/04/pageoneplus/quote-of-the-day-jolted-by-war-ukrainians-are-reclaiming-their-literary-heritage.html
+
 **Maple Leafs report cards: Auston Matthews, Mitch Marner rekindle magic for comeback**\
 `Matthews scored two goals and Marner recorded three assists in an electric third-period comeback win for Toronto.`\
 https://nytimes.com/athletic/5971135/2024/12/04/maple-leafs-predators-matthews-marner/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment/here-are-
 **Live Updates: South Korean Lawmakers Question Military Leaders After Failed Crackdown**\
 `South Korea’s defense minister resigned, apologizing for the crisis after President Yoon Suk Yeol imposed martial law. Lawmakers questioned the military for the first time about its role.`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment
-
-**Loyd requests trade from Storm, Seattle investigation finds no wrongdoing**\
-`Loyd was Seattle’s No. 1 pick in the 2015 WNBA Draft and is the last member of the franchise’s two-time title-winning Big 3.`\
-https://nytimes.com/athletic/5970951/2024/12/04/jewell-loyd-trade-request-seattle-storm-investigation/
-
-**Rams DT Kobie Turner revealed as 'Goo' in 'Masked Singer' quarterfinals**\
-`Kobie "The Conductor" Turner has a long history with music, one he alluded to several times during tonight's competition.`\
-https://nytimes.com/athletic/5970526/2024/12/04/rams-kobie-turner-goo-masked-singer/
-
-**Corrections: Dec. 5, 2024**\
-`Corrections that appeared in print on Thursday, Dec. 5, 2024.`\
-https://nytimes.com/2024/12/04/pageoneplus/corrections-dec-5-2024.html
 
