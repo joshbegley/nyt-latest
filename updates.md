@@ -1,3 +1,11 @@
+**Korean All-Star infielder Hyeseong Kim made available to MLB teams**\
+`Kim, ranked No. 41 on Keith Law's list of the top 50 free agents this offseason, is a second baseman who hit .326/.383/.458 last year.`\
+https://nytimes.com/athletic/5971802/2024/12/05/hyeseong-kim-korean-infielder-posted-mlb/
+
+**Frigid, Snowy Storm Blasts the Northern United States**\
+`Temperatures are expected to plunge after another round of wet, messy, windy weather moves through the Mid-Atlantic, the Northeast and the Upper Midwest on Thursday.`\
+https://nytimes.com/2024/12/05/weather/cold-snow-squall-forecast-updates.html
+
 **Rebels Storm Another Major City in Syria**\
 `In another startling setback for President Bashar al-Assad, government forces retreated from the city of Hama after rebels advanced.`\
 https://nytimes.com/2024/12/05/world/middleeast/syria-rebel-offensive-hama.html

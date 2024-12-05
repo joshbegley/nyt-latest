@@ -1,3 +1,11 @@
+**Korean All-Star infielder Hyeseong Kim made available to MLB teams**\
+`Kim, ranked No. 41 on Keith Law's list of the top 50 free agents this offseason, is a second baseman who hit .326/.383/.458 last year.`\
+https://nytimes.com/athletic/5971802/2024/12/05/hyeseong-kim-korean-infielder-posted-mlb/
+
+**Frigid, Snowy Storm Blasts the Northern United States**\
+`Temperatures are expected to plunge after another round of wet, messy, windy weather moves through the Mid-Atlantic, the Northeast and the Upper Midwest on Thursday.`\
+https://nytimes.com/2024/12/05/weather/cold-snow-squall-forecast-updates.html
+
 **Rebels Storm Another Major City in Syria**\
 `In another startling setback for President Bashar al-Assad, government forces retreated from the city of Hama after rebels advanced.`\
 https://nytimes.com/2024/12/05/world/middleeast/syria-rebel-offensive-hama.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5971785/2024/12/05/duke-auburn-cooper-flagg-result/
 **Reminders of Penn State's 2016 conference crown are all around this week**\
 `The Nittany Lions won the conference crown eight years ago and finally have a chance to reclaim it this Saturday against Oregon.`\
 https://nytimes.com/athletic/5971741/2024/12/05/penn-state-big-ten-championship-college-football-james-franklin/
-
-**BOS Nation FC hire former FC Barcelona executive as new general manager**\
-`The NWSL team will start play in 2026 with Domènec Guasch as its GM.`\
-https://nytimes.com/athletic/5970135/2024/12/05/bos-nation-fc-nwsl-domenec-guasch-fc-barcelona/
-
-**The rise of Arizona State's Sam Leavitt, as told by the Sun Devils' other 10-win QBs**\
-`Sam Leavitt joined the ASU 10-win club in his first season, establishing himself as one of the top young quarterbacks in college football.`\
-https://nytimes.com/athletic/5970979/2024/12/05/sam-leavitt-arizona-state-sun-devils-quarterback-growth/
 
