@@ -1,3 +1,7 @@
+**How Trump Targeted Undecided Voters Without Breaking the Bank**\
+`The Trump team had a huge financial disadvantage. It made up for it with a strategic innovation that allowed it to narrow the focus of its ad dollars.`\
+https://nytimes.com/2024/12/05/us/politics/trump-streaming-ads-strategy.html
+
 **World’s Priciest Dinosaur Fossil Comes to Museum of Natural History**\
 `The billionaire Kenneth C. Griffin, who bought the stegosaurus fossil for $44.6 million, is loaning it to the American Museum of Natural History in New York for four years.`\
 https://nytimes.com/2024/12/05/arts/most-expensive-stegosaurus-american-museum-of-natural-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5971787/2024/12/05/wnba-toronto-tempo-new-team-bran
 **Korean All-Star infielder Hyeseong Kim made available to MLB teams**\
 `Kim, ranked No. 41 on Keith Law's list of the top 50 free agents this offseason, is a second baseman who hit .326/.383/.458 last year.`\
 https://nytimes.com/athletic/5971802/2024/12/05/hyeseong-kim-korean-infielder-posted-mlb/
-
-**Frigid, Snowy Storm Blasts the Northern United States**\
-`Temperatures are expected to plunge after another round of wet, messy, windy weather moves through the Mid-Atlantic, the Northeast and the Upper Midwest on Thursday.`\
-https://nytimes.com/2024/12/05/weather/cold-snow-squall-forecast-updates.html
 

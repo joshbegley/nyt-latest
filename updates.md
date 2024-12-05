@@ -1,3 +1,7 @@
+**How Trump Targeted Undecided Voters Without Breaking the Bank**\
+`The Trump team had a huge financial disadvantage. It made up for it with a strategic innovation that allowed it to narrow the focus of its ad dollars.`\
+https://nytimes.com/2024/12/05/us/politics/trump-streaming-ads-strategy.html
+
 **World’s Priciest Dinosaur Fossil Comes to Museum of Natural History**\
 `The billionaire Kenneth C. Griffin, who bought the stegosaurus fossil for $44.6 million, is loaning it to the American Museum of Natural History in New York for four years.`\
 https://nytimes.com/2024/12/05/arts/most-expensive-stegosaurus-american-museum-of-natural-history.html
