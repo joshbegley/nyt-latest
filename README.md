@@ -1,3 +1,11 @@
+**Late Night Weighs In on Pete Hegseth’s ‘Teetering’ Nomination Prospects**\
+`Hosts riff on Trump’s possible swap of his secretary of defense nominee amid excessive-drinking claims against Hegseth.`\
+https://nytimes.com/2024/12/05/arts/television/ronny-chieng-pete-hegseth-drinking.html
+
+**Jaylen Brown initiates the offense for short-handed Celtics in 130-120 win over Pistons**\
+`Once prone to reckless drives and tunnel vision, Brown has become more trustworthy with the ball and his ability to read a game has evolved.`\
+https://nytimes.com/athletic/5971318/2024/12/05/jaylen-brown-playmaker-celtics-defeat-pistons/
+
 **Old Photos Evoke the Chaos of South Korea’s 1980 Unrest**\
 `Clashes during President Yoon Suk Yeol’s brief imposition of martial law echoed the military’s actions during an earlier political crisis that lasted longer and turned deadly.`\
 https://nytimes.com/2024/12/05/world/asia/photos-1980-south-korea-martial-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/crosswords/spelling-bee-forum.html
 **Grealish in a central role provides plenty of food for thought for Guardiola**\
 `The England international has generally operated from the left but was used in a deeper, more central role against Nottingham Forest`\
 https://nytimes.com/athletic/5970861/2024/12/05/jack-grealish-midfield-manchester-city/
-
-**Aston Villa and the basketball style that could shake them from their stasis**\
-`Villa are at their best when they attack quickly - following the pace of a basketball game could be the way forward for Unai Emery's squad`\
-https://nytimes.com/athletic/5970034/2024/12/05/aston-villa-unai-emery-basketball/
-
-**Newcastle United: Wildly unpredictable, thrilling on transition, utterly headache inducing**\
-`Eddie Howe's side continue to threaten and thrive against the Premier League's best, while labouring against those they might expect to beat`\
-https://nytimes.com/athletic/5968513/2024/12/05/newcastle-liverpool-isak-howe-transition/
 
