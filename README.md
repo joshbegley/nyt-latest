@@ -1,3 +1,15 @@
+**This Holiday Season, Give Someone a Second Chance**\
+`New Jersey Re-entry Corporation helps people stay out of prison once they’ve been in.`\
+https://nytimes.com/2024/12/05/opinion/charity-holiday-gift-incarceration-former-convicts.html
+
+**Verstappen threatened to ‘put me in the wall’ after stewards’ meeting, Russell claims**\
+`ABU DHABI, United Arab Emirates — Mercedes F1 driver George Russell claims Red Bull’s Max Verstappen threatened to crash into him and “put you on your f***ing head in the wall” after their stewards hearing ahead of the Qatar Grand Prix and that “people have been bullied by Max for years now.`\
+https://nytimes.com/athletic/5971607/2024/12/05/verstappen-russell-qatar-f1-grand-prix/
+
+**Rebels in Syria Have a New Face**\
+`The rebel group H.T.S. was born as an Islamic State branch. But since pivoting from international jihad, it became dominant in Syria’s northwest.`\
+https://nytimes.com/2024/12/05/opinion/syrian-rebels-hts-assad-civil-war.html
+
 **American Kidnapped in Philippines Is Believed to Be Dead, Police Say**\
 `The police said they believed Elliot Eastman, 26, from Vermont, was killed during the abduction in October. They cited testimony from a suspect in custody.`\
 https://nytimes.com/2024/12/05/world/asia/philippines-kidnapping-american-elliot-eastman-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5958371/2024/12/05/blues-mvp-kelly-chase-shoulder-p
 **Silver: 49ers are clinging for hope while enduring a 'season from hell'**\
 `Mathematically, the 49ers are alive in the playoff picture. Realistically, they're having trouble putting one foot in front of the other.`\
 https://nytimes.com/athletic/5970987/2024/12/05/san-francisco-49ers-season-from-hell/
-
-**‘Super/Man: The Christopher Reeve Story’ Review: A Legend and His Kryptonite**\
-`The original Superman actor gets a comprehensive, if narrow-mindedly celebratory, tribute in this traditional talking-heads-style doc.`\
-https://nytimes.com/2024/12/05/movies/super-man-the-christopher-reeve-story-review.html
-
-**‘The Return’ Review: Homer, for the Holidays**\
-`Ralph Fiennes and Juliette Binoche burn through the screen in this grim take on the homecoming of Odysseus.`\
-https://nytimes.com/2024/12/05/movies/the-return-review.html
-
-**‘The Order’ Review: Catch Him if You Can**\
-`The thriller, about a white supremacist (Nicholas Hoult) and the killing of a real-life radio host, among other crimes, hits familiar genre beats.`\
-https://nytimes.com/2024/12/05/movies/the-order-review.html
 
