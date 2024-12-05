@@ -1,3 +1,7 @@
+**Nuno's setup showed where Forest want to be, but unfamiliar failings let him down**\
+`Defeat at the Etihad contained some wasteful finishing and defensive lapses, but Nuno's positive approach should be praised.`\
+https://nytimes.com/athletic/5970478/2024/12/05/nuno-nottingham-forest-man-city/
+
 **Club World Cup: From Inter to Chelsea to Auckland City, all 32 teams at 2025 tournament profiled**\
 `We take a look at the teams taking part in the 2025 Club World Cup, including past performances, stats, Opta ranking and players to watch`\
 https://nytimes.com/athletic/5969278/2024/12/05/club-world-cup-team-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5971049/2024/12/04/nfl-nflpa-policy-ped-substance-a
 **Trump Picks Banking Executive to Lead Social Security Administration**\
 `Frank Bisignano has spent his career at major Wall Street banks. He has a long history of political giving, mainly to Republicans.`\
 https://nytimes.com/2024/12/04/us/politics/frank-bisignano-social-security.html
-
-**Like Something a Rabbit Might Say**\
-`Garrett Chalfin turns us every which way and teaches us an important lesson.`\
-https://nytimes.com/2024/12/04/crosswords/daily-puzzle-2024-12-05.html
 
