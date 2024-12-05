@@ -1,3 +1,7 @@
+**Lopetegui set to be in charge for West Ham vs Wolves**\
+`Julen Lopetegui is set to be in charge of West Ham United when they play Wolverhampton Wanderers on Monday night despite continued speculation over his long-term future at the club.`\
+https://nytimes.com/athletic/5972090/2024/12/05/julen-lopetegui-west-ham-wolves/
+
 **The Bounce: It's time to grade the Western Conference!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5971682/2024/12/05/zion-williamson-pelicans-nba-the-bounce-2/
