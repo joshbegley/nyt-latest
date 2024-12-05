@@ -1,3 +1,7 @@
+**49ers will get a peek into the future Sunday when Isaac Guerendo starts at RB**\
+`Should Guerendo start as expected Sunday, it will be just his second start as a running back since he was in the fourth grade.`\
+https://nytimes.com/athletic/5970677/2024/12/04/49ers-isaac-guerendo-future-running-back/
+
 **Pete Hegseth faces questions about his leadership style after troubles in past workplaces.**\
 `By Sharon LaFraniere, David A. Fahrenthold, Dave Philipps and Kate Kelly`\
 https://nytimes.com/live/2024/12/04/us/trump-news/pete-hegseth-faces-questions-about-his-leadership-style-after-troubles-in-past-workplaces
