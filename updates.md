@@ -1,3 +1,7 @@
+**Maresca dropped Madueke over training performance: 'He must work more'**\
+`Enzo Maresca said he left Noni Madueke out of his Chelsea team over his performances in training and told him &#8220;he must work more&#8221; to keep a regular place.`\
+https://nytimes.com/athletic/5971418/2024/12/05/noni-madueke-chelsea-training/
+
 **The Briefing - Athletic 2 Madrid 1: Another Mbappe penalty miss, Ancelotti's headache, Bellingham can't save them**\
 `Madrid looked to be improving in La Liga after a humiliating defeat to Barcelona, but this latest defeat brought them down to earth`\
 https://nytimes.com/athletic/5970945/2024/12/05/athletic-club-real-madrid-kylian-mbappe/
