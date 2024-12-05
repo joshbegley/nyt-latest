@@ -1,3 +1,11 @@
+**French Prime Minister Resigns After No Confidence Vote**\
+`French lawmakers voted to oust Prime Minister Michel Barnier, making his three-month-old government the shortest in modern French history.`\
+https://nytimes.com/video/world/europe/100000009860745/france-prime-minister-resigns.html
+
+**Emma Hayes was chief architect of the USWNT rebuild in 2024**\
+`After delivering Olympic gold in the summer, Hayes now turns her focus to the future of the USWNT and trying to win the 2027 World Cup`\
+https://nytimes.com/athletic/5972220/2024/12/05/emma-hayes-uswnt-2024-rebuild/
+
 **Heat Today: Why Kel'el Ware's G League assignment can prepare him for Miami's rotation**\
 `The rookie 7-footer has attributes the team could use, but Miami prefers to stay patient with its development process.`\
 https://nytimes.com/athletic/5972221/2024/12/05/kelel-ware-miami-heat-g-league-bam-adebayo-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5971630/2024/12/05/the-satchel-bills-stadium-josh-a
 **Trump’s Cabinet Will Be an Embarrassment of Wretches**\
 `The onslaught of awful makes bad look good.`\
 https://nytimes.com/2024/12/05/opinion/trump-cabinet-hegseth-patel.html
-
-**Prince Johnson, Warlord Who Executed Liberia’s President, Dies at 72**\
-`A rebel leader in Liberia’s civil wars, he was accused of numerous atrocities. The most notorious was the videotaped mutilation and killing of President Samuel Doe.`\
-https://nytimes.com/2024/12/05/world/africa/prince-johnson-dead.html
-
-**Inside F1's extraordinary Abu Dhabi media day as Verstappen, Russell feud erupts**\
-`A normal media day turned into a war of words, re-igniting the Red Bull vs. Mercedes rivalry just as the F1 season wraps up. `\
-https://nytimes.com/athletic/5972035/2024/12/05/max-verstappen-george-russell-f1-abu-dhabi-gp-media-day/
 
