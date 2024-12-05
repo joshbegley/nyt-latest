@@ -1,3 +1,7 @@
+**Like Something a Rabbit Might Say**\
+`Garrett Chalfin turns us every which way and teaches us an important lesson.`\
+https://nytimes.com/2024/12/04/crosswords/daily-puzzle-2024-12-05.html
+
 **Bitcoin Hits a Milestone: $100,000**\
 `The price of a single Bitcoin rose to six figures for the first time, an extraordinary level for a 16-year-old cryptocurrency once dismissed as a sideshow.`\
 https://nytimes.com/2024/12/04/technology/bitcoin-price-record.html
