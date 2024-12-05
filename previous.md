@@ -1,3 +1,11 @@
+**Pete Hegseth faces questions about his leadership style after troubles in past workplaces.**\
+`By Sharon LaFraniere, David A. Fahrenthold, Dave Philipps and Kate Kelly`\
+https://nytimes.com/live/2024/12/04/us/trump-news/pete-hegseth-faces-questions-about-his-leadership-style-after-troubles-in-past-workplaces
+
+**49ers will get a peek into the future Sunday when Isaac Guerendo starts at RB**\
+`Should Guerendo start as expected on Sunday, it will be just his second start as a running back since he was in the fourth grade.`\
+https://nytimes.com/athletic/5970677/2024/12/04/49ers-isaac-guerendo-future-running-back/
+
 **A City of Cameras: How New York Police Will Hunt a Killer**\
 `The prelude, the crime and the aftermath were all caught on video. But investigators will need to use human intelligence to find the person who gunned down an insurance company’s chief executive.`\
 https://nytimes.com/2024/12/04/nyregion/brian-thompson-shooting-gunman-cameras.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/world/asia/south-korea-yoon-defense-minister-resi
 **Why Alabama's strong class is light on in-state talent**\
 `DeBoer on Alabama's class, quarterback Keelon Russell and the transfer portal.`\
 https://nytimes.com/athletic/5970545/2024/12/04/alabama-football-national-signing-day/
-
-**Bezos Is ‘Very Optimistic’ About a Second Trump Term**\
-`During an interview at the DealBook Summit on Wednesday, Jeff Bezos, the Amazon and Blue Origin founder, said President-elect Donald J. Trump was calmer and more confident now.`\
-https://nytimes.com/video/business/dealbook/100000009860058/jeff-bezos-trump-dealbook.html
-
-**Read the Justice Department’s Report**\
-`The agency released the results of its investigation into the Memphis Police Department, finding that the department used excessive force, treated Black people more harshly than white people, and mistreated people with mental health issues.`\
-https://nytimes.com/interactive/2024/12/04/us/memphis-police-justice-department-report.html
 
