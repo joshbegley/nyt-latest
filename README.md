@@ -1,3 +1,7 @@
+**Former Proud Boys Leader Testifies in Defense of Officer Accused of Aiding Him**\
+`Enrique Tarrio appeared in court for the first time since being sentenced to 22 years in prison for seditious conspiracy over his role in the Jan. 6, 2021, attack on the Capitol.`\
+https://nytimes.com/2024/12/05/us/politics/enrique-tarrio-proud-boys-testimony.html
+
 **Friday Briefing: Syrian Rebels Storm Another City**\
 `Plus, a celebration of art in Dakar.`\
 https://nytimes.com/2024/12/05/briefing/syria-manhunt-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-unitedhealthcare-new
 **Tsunami warnings were briefly in effect for hundreds of miles along the California and Oregon coast.**\
 `By Mike Baker`\
 https://nytimes.com/live/2024/12/05/us/earthquake-california/tsunami-warnings-were-briefly-in-effect-for-hundreds-of-miles-along-the-california-and-oregon-coast
-
-**What to Do When There’s a Tsunami Warning**\
-`Tsunamis can’t be predicted, but there are steps you can take to stay safe.`\
-https://nytimes.com/article/tsunami-warning-what-to-do.html
 
