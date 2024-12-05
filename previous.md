@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5970666/2024/12/05/everton-sean-dyche-needed-this/
 https://nytimes.com/2024/12/05/learning/word-of-the-day-incapacitated.html
 
 **Chelsea bask in their new-found status as the Premier League's great entertainers**\
-`Enzo Maresca's side having already wracked up 57 goals this season and fans chanted 'Chelsea are back' as Southampton were brushed aside`\
+`Enzo Maresca's side having already wracked up 57 goals this season. Fans chanted 'Chelsea are back' as Southampton were brushed aside`\
 https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertainers/
 
 **Set-piece coach Jover's stats are off the chart - so how much is he worth to Arsenal?**\

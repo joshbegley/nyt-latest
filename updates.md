@@ -1,3 +1,7 @@
+**Chelsea bask in their new-found status as the Premier League's great entertainers**\
+`Enzo Maresca's side having already wracked up 57 goals this season. Fans chanted 'Chelsea are back' as Southampton were brushed aside`\
+https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertainers/
+
 **Newcastle United: Wildly unpredictable, thrilling on transition, utterly headache inducing**\
 `Eddie Howe's side continue to threaten and thrive against the Premier League's best, while labouring against those they might expect to beat`\
 https://nytimes.com/athletic/5968513/2024/12/05/newcastle-liverpool-isak-howe-transition/
