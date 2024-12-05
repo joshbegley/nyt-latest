@@ -1,3 +1,11 @@
+**Blackhawks paid Tyler Bertuzzi to provide offense. So far, he isn't delivering**\
+`With a lot of the roster, the Blackhawks weren't exactly sure what they'd get this season. With Bertuzzi, they thought they knew.`\
+https://nytimes.com/athletic/5971018/2024/12/05/blackhawks-tyler-bertuzzi-offense-bruins/
+
+**'We're all embarrassed': Skidding Lakers lose by 41 in drubbing to Heat**\
+`The loss dropped the Lakers to 12-10. They're ninth in the Western Conference after opening the season 10-4.`\
+https://nytimes.com/athletic/5971095/2024/12/05/los-angeles-lakers-41-point-loss-miami-heat/
+
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/12/05/briefing/france-south-korea-assassination.html
