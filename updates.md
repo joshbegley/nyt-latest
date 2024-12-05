@@ -1,3 +1,7 @@
+**‘You Are Out of Line’: Acting Secret Service Director Clashes With Congressman**\
+`A congressional hearing on Thursday erupted into a shouting match. Ronald L. Rowe Jr., the acting Secret Service director, accused Representative Pat Fallon, Republican of Texas, of politicizing a 9/11 memorial event.`\
+https://nytimes.com/video/us/politics/100000009862237/secret-service-hearing-shouting.html
+
 **‘Like a violent elevator ride’: Residents closest to the epicenter describe the quake.**\
 `By Shawn Hubler and Corina Knoll`\
 https://nytimes.com/live/2024/12/05/us/earthquake-california/like-a-violent-elevator-ride-residents-closest-to-the-epicenter-describe-the-quake
