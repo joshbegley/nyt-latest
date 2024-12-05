@@ -1,4 +1,4 @@
-**Lance Morrow, 85, Award-Winning Essayist for Time Magazine, Dies**\
+**Lance Morrow, 85, Award-Winning Essayist for Time Magazine, Is Dead**\
 `His voice carried weight on the influential back page and as the writer of many “Man of the Year” cover articles. As a memoirist he chronicled his heart attacks.`\
 https://nytimes.com/2024/12/05/business/media/lance-morrow-dead.html
 
@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/05/business/media/lance-morrow-dead.html
 `Hucles and president Julie Uhrman were previously suspended after the NWSL found Angel City in violation of salary cap procedures`\
 https://nytimes.com/athletic/5972564/2024/12/05/angel-city-parts-ways-angela-hucles/
 
-**6.6 Earthquake Rattles Northern California and Prompts Tsunami Warning**\
+**7.0 Earthquake Rattles Northern California and Prompts Tsunami Warning**\
 `The authorities said they were surveying for signs of damage.`\
 https://nytimes.com/2024/12/05/us/earthquake-california.html
 
