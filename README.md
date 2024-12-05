@@ -1,3 +1,7 @@
+**Death and Taxes**\
+`We explain why the estate tax isn’t working.`\
+https://nytimes.com/2024/12/05/briefing/estate-taxes.html
+
 **'He’s playing backyard football': Chiefs benefit from Travis Kelce's love of the lateral**\
 `Kelce laterals more than most NFL teams, and Chiefs coach Andy Reid says he's OK with that — "just as long as you complete them.”`\
 https://nytimes.com/athletic/5970634/2024/12/05/chiefs-travis-kelce-lateral/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/podcasts/manhattan-shooting-hegseth-trouble.html
 **The Connections Companion No. 544**\
 `Scroll down for hints and conversation about the puzzle for Friday, Dec. 6, 2024.`\
 https://nytimes.com/2024/12/05/crosswords/connections-companion-544.html
-
-**The Supreme Court Takes On Transgender Care for Minors**\
-`The justices are posed to rule on a ban in Tennessee, with consequences across the country.`\
-https://nytimes.com/2024/12/05/podcasts/the-daily/supreme-court-transgender-care-minors.html
 
