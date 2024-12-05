@@ -1,3 +1,11 @@
+**Roommate Murdered Kenyan Gay Rights Activist, Court Finds**\
+`Edwin Chiloba’s body was found stuffed inside a metal box by the roadside last year. A high court judge did not give a motive but said his roommate carried out the murder.`\
+https://nytimes.com/2024/12/05/world/africa/kenya-edwin-chiloba-murder.html
+
+**NASA Missions to Return to the Moon Delayed Until 2026 and 2027**\
+`It is unclear where the program, known as Artemis, will head after President-elect Donald J. Trump returns to the White House in January.`\
+https://nytimes.com/2024/12/05/science/nasa-moon-artemis-delayed-2027.html
+
 **A Backpack Maker Believes He Identified the Shooting Suspect’s Bag**\
 `Peter Dering, the founder and chief executive of Peak Design, says he called the N.Y.P.D. tip line on Wednesday after receiving a wave of messages showing the suspect carrying a distinctive backpack.`\
 https://nytimes.com/2024/12/05/nyregion/peak-design-backpack-brian-thompson-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/dining/veggie-recipe-matchmaker-part-1.html
 **Arsenal assistant manager Stuivenberg agrees new deal until 2027**\
 `Arsenal assistant manager Albert Stuivenberg has agreed a contract until 2027.`\
 https://nytimes.com/athletic/5972431/2024/12/05/arsenal-albert-stuivenberg-new-contract-2/
-
-**He Won’t Leave His Home. The Landlord Is Renovating Around Him.**\
-`A longtime tenant is locked in a standoff with the owner of his Upper West Side building.`\
-https://nytimes.com/2024/12/05/realestate/manhattan-upper-west-side-eric-abrams-landlord.html
-
-**Luis Severino agrees to three-year, $67 million deal with the Athletics**\
-`The A's make an early move by signing the former Mets starter, who is the No. 23 player on The Athletic's free agent big board.`\
-https://nytimes.com/athletic/5965778/2024/12/05/luis-severino-contract-athletics-mlb-free-agency/
 
