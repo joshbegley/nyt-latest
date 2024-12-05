@@ -1,3 +1,7 @@
+**When a Baby Killer Isn’t a Straightforward Villain**\
+`The real-life murderer who inspired “The Girl With the Needle” was “a monster,” said the actress who plays her, “but the movie is also about showing you her struggles.”`\
+https://nytimes.com/2024/12/05/movies/the-girl-with-the-needle-trine-dyrholm.html
+
 **The Briefing - Athletic 2 Madrid 1: Another Mbappe penalty miss, Ancelotti's headache, Bellingham can't save them**\
 `Madrid looked to be improving in La Liga after a humiliating defeat to Barcelona, but this latest loss brought them down to earth`\
 https://nytimes.com/athletic/5970945/2024/12/05/athletic-club-real-madrid-kylian-mbappe/
