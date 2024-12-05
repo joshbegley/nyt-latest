@@ -1,3 +1,7 @@
+**Memphis Police Used Excessive Force and Discriminated Against Black Residents, Justice Dept. Finds**\
+`The Police Department has been under scrutiny since January 2023, when officers fatally beat Tyre Nichols, a 29-year-old Black man, after pulling him over on his way home from work.`\
+https://nytimes.com/2024/12/04/us/politics/memphis-police-justice-department-report.html
+
 **Read the Justice Department’s Report**\
 `The agency released the results of its investigation into the Memphis Police Department, finding that the department used excessive force, treated Black people more harshly than white people, and mistreated people with mental health issues.`\
 https://nytimes.com/interactive/2024/12/04/us/memphis-police-justice-department-report.html
