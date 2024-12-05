@@ -1,3 +1,19 @@
+**Former Olympic champion Dujardin gets ban after horse whipping scandal**\
+`Team GB's Dujardin, 39, was provisionally suspended in July and withdrew from competing at the Paris Olympic Games.`\
+https://nytimes.com/athletic/5971449/2024/12/05/charlotte-dujardin-banned-equestrianism-whipping/
+
+**Notre-Dame Is Restored, but Macron’s Legacy Is in Jeopardy**\
+`The 860-year-old cathedral has been repaired in a time frame many thought impossible. But rather than basking in success, President Emmanuel Macron is mired in political crisis.`\
+https://nytimes.com/2024/12/05/world/europe/macron-france-government.html
+
+**Ohio State recruiting class a success despite 5-star's late flip to Oregon**\
+`Ohio State has the No. 5 recruiting class, signing five-star QB Tavien St. Clair and CB Devin Sanchez but losing CB Na'eem Offord late.`\
+https://nytimes.com/athletic/5970803/2024/12/05/ohio-state-recruiting-class-offord-flip/
+
+**Michigan signed the nation's No. 1 recruit, and Sherrone Moore's success didn't stop there**\
+`Moore's first recruiting class at Michigan is up there with Jim Harbaugh's best, starting with five-star quarterback Bryce Underwood.`\
+https://nytimes.com/athletic/5970963/2024/12/05/michigan-recruiting-2025-class-bryce-underwood/
+
 **Can Martial Law Happen Here?**\
 `Events in South Korea have people thinking.`\
 https://nytimes.com/2024/12/05/opinion/trump-south-korea-martial-law.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/12/05/realestate/sonoma-marin-county-califo
 **Trump Organization Plans an Ethics Policy Without Banning Foreign Deals**\
 `The family business of President-elect Donald J. Trump is expected to announce some restrictions on transactions but is not likely to accept as many limitations as it did eight years ago.`\
 https://nytimes.com/2024/12/05/us/politics/trump-organization-plans-an-ethics-policy-without-banning-foreign-deals.html
-
-**'It's a good story': Falcons hope Kirk Cousins' return to Minnesota has a happy ending**\
-`Cousins is a sucker for a comeback story. Can he snap out of his slump against a stout Vikings defense ideally suited to stop him?`\
-https://nytimes.com/athletic/5970374/2024/12/05/kirk-cousins-falcons-vikings-return/
-
-**Inside the summer getaway that helped unite the Raptors: 'The vibes were immaculate'**\
-`The Raptors had team-wide stops on both sides of the Atlantic, beginning a chemistry experiment. `\
-https://nytimes.com/athletic/5960594/2024/12/05/toronto-raptors-summer-vacation-team-chemistry/
-
-**Iowa's Kirk Ferentz: 'We would be fools' not to look at transfer portal QBs**\
-`Iowa's ground-acquisition style of play worked in the old Big Ten West, but an offense needs to throw to thrive in college football today.`\
-https://nytimes.com/athletic/5970809/2024/12/05/iowas-kirk-ferentz-we-would-be-fools-not-to-look-at-transfer-portal-quarterbacks/
-
-**Homes for Sale in New Jersey and New York**\
-`This week’s properties are a five-bedroom house in Millstone, N.J., and a four-bedroom in Huntington, N.Y.`\
-https://nytimes.com/2024/12/05/realestate/housing-market-near-nyc.html
 
