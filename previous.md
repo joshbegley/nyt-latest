@@ -1,3 +1,7 @@
+**NFL, NFLPA agree to policy changes on substance abuse and PEDs**\
+`Players will be fined $15,000 fine for recording and posting PED testing process on social media. `\
+https://nytimes.com/athletic/5971049/2024/12/04/nfl-nflpa-policy-ped-substance-abuse/
+
 **Trump Picks Banking Executive to Lead Social Security Administration**\
 `Frank Bisignano has spent his career at major Wall Street banks. He has a long history of political giving, mainly to Republicans.`\
 https://nytimes.com/2024/12/04/us/politics/frank-bisignano-social-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/04/pageoneplus/corrections-dec-5-2024.html
 **Players linked to MLBPA mutiny attempt depart from top committee in latest election**\
 `Jack Flaherty, Ian Happ and Lucas Giolito were all involved in a push for leadership change in the MLBPA earlier this year. `\
 https://nytimes.com/athletic/5970793/2024/12/04/mlb-players-association-committee-election/
-
-**Pete Hegseth faces questions about his leadership style after troubles in past workplaces.**\
-`By Sharon LaFraniere, David A. Fahrenthold, Dave Philipps and Kate Kelly`\
-https://nytimes.com/live/2024/12/04/us/trump-news/pete-hegseth-faces-questions-about-his-leadership-style-after-troubles-in-past-workplaces
 

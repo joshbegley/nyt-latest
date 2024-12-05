@@ -1,3 +1,7 @@
+**NFL, NFLPA agree to policy changes on substance abuse and PEDs**\
+`Players will be fined $15,000 fine for recording and posting PED testing process on social media. `\
+https://nytimes.com/athletic/5971049/2024/12/04/nfl-nflpa-policy-ped-substance-abuse/
+
 **Trump Picks Banking Executive to Lead Social Security Administration**\
 `Frank Bisignano has spent his career at major Wall Street banks. He has a long history of political giving, mainly to Republicans.`\
 https://nytimes.com/2024/12/04/us/politics/frank-bisignano-social-security.html
