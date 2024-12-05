@@ -1,3 +1,11 @@
+**He Won’t Leave His Home. The Landlord Is Renovating Around Him.**\
+`A longtime tenant is locked in a standoff with the owner of his Upper West Side building.`\
+https://nytimes.com/2024/12/05/realestate/manhattan-upper-west-side-eric-abrams-landlord.html
+
+**Historic, emotional F1 practice awaits Leclerc brothers at Abu Dhabi GP**\
+`Charles and Arthur Leclerc will become the first brothers to take part in an F1 session as teammates on Friday.`\
+https://nytimes.com/athletic/5972372/2024/12/05/charles-leclerc-brother-f1-abu-dhabi-practice/
+
 **Trump’s Threats Over the Dollar Could Accelerate Push for Alternatives**\
 `President-elect Donald J. Trump threatened to impose tariffs on countries that seek to replace the dollar in trade or undermine its global reserve currency status.`\
 https://nytimes.com/2024/12/05/us/politics/trump-dollar-trade-china-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/nyregion/social-media-insurance-industry-brian-th
 **Rosenthal: What I'm hearing about the Cardinals and Ryan Helsley, the baffling Blue Jays and more**\
 `Plus more on the Brewers' willingness to trade Devin Williams, the Guardians' trade options and more free agency possibilities. `\
 https://nytimes.com/athletic/5971884/2024/12/05/mlb-what-im-hearing-cardinals-blue-jays/
-
-**My List: A Different Kind of Review Contest**\
-`Choose three to five works of art or culture to group in some way, then tell us why we should — or shouldn’t — check them out. Contest dates: Jan. 15-Feb. 12, 2025.`\
-https://nytimes.com/2024/12/05/learning/my-list-a-different-kind-of-review-contest.html
-
-**The Satchel: Bills stadium, Josh Allen's left hand, December dilemmas**\
-`Plus, why Kaiir Elam is always a healthy scratch and advice on buying a jersey. `\
-https://nytimes.com/athletic/5971630/2024/12/05/the-satchel-bills-stadium-josh-allens-left-hand-december-dilemmas/
 
