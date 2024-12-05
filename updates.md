@@ -1,3 +1,15 @@
+**This Holiday Season, Give Someone a Second Chance**\
+`New Jersey Re-entry Corporation helps people stay out of prison once they’ve been in.`\
+https://nytimes.com/2024/12/05/opinion/charity-holiday-gift-incarceration-former-convicts.html
+
+**Verstappen threatened to ‘put me in the wall’ after stewards’ meeting, Russell claims**\
+`ABU DHABI, United Arab Emirates — Mercedes F1 driver George Russell claims Red Bull’s Max Verstappen threatened to crash into him and “put you on your f***ing head in the wall” after their stewards hearing ahead of the Qatar Grand Prix and that “people have been bullied by Max for years now.`\
+https://nytimes.com/athletic/5971607/2024/12/05/verstappen-russell-qatar-f1-grand-prix/
+
+**Rebels in Syria Have a New Face**\
+`The rebel group H.T.S. was born as an Islamic State branch. But since pivoting from international jihad, it became dominant in Syria’s northwest.`\
+https://nytimes.com/2024/12/05/opinion/syrian-rebels-hts-assad-civil-war.html
+
 **Live Updates: Suspect Still at Large in Killing of UnitedHealthcare C.E.O. in Manhattan**\
 `The police are using dogs, drones and New York City’s vast array of private and city cameras to track down the person who shot Brian Thompson outside a Midtown hotel.`\
 https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-united-healthcare-news
