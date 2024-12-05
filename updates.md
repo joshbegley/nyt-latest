@@ -1,3 +1,7 @@
+**The Bundesliga's new €4.48bn TV deal: The details, the view in Germany and how it compares**\
+`The Bundesliga have announced the terms of its new TV rights deal for the next four years`\
+https://nytimes.com/athletic/5972169/2024/12/05/bundesliga-tv-contract-analysis/
+
 **Trump’s Threats Over the Dollar Could Accelerate Push for Alternatives**\
 `President-elect Donald J. Trump threatened to impose tariffs on countries that seek to replace the dollar in trade or undermine its global reserve currency status.`\
 https://nytimes.com/2024/12/05/us/politics/trump-dollar-trade-china-russia.html
