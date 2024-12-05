@@ -1,10 +1,14 @@
+**Peter B. Teeley, Who Coined the Term ‘Voodoo Economics,’ Dies at 84**\
+`As press secretary for George H.W. Bush, he came up with the expression to attack Ronald Reagan’s economic plan. The term took on a life of its own.`\
+https://nytimes.com/2024/12/05/us/politics/peter-b-teeley-dead.html
+
 **Senator Joni Ernst holds out on Hegseth as his candidacy teeters.**\
 `The Iowa Republican indicated that her private meeting on Wednesday with President-elect Donald J. Trump’s choice to serve as secretary of defense failed to persuade her he was worthy of confirmation.`\
 https://nytimes.com/live/2024/12/05/us/trump-news/senator-joni-ernst-holds-out-on-hegseth-as-his-candidacy-teeters
 
 **The Manhattan shooter used a silencer. There are nearly 5 million registered in the U.S.**\
 `By Mike McIntire`\
-https://nytimes.com/live/2024/12/05/nyregion/brian-thompson-unitedhealthcare-news/the-manhattan-shooter-used-a-silencer-there-are-nearly-5-million-registered-in-the-us
+https://nytimes.com/2024/12/05/nyregion/the-manhattan-shooter-used-a-silencer-there-are-nearly-5-million-registered-in-the-us.html
 
 **Who Is Tech Really For?**\
 `As Silicon Valley chases military tech and funding, it’s losing sight of what inspires its workers.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972372/2024/12/05/charles-leclerc-brother-f1-abu-d
 **Trump’s Threats Over the Dollar Could Accelerate Push for Alternatives**\
 `President-elect Donald J. Trump threatened to impose tariffs on countries that seek to replace the dollar in trade or undermine its global reserve currency status.`\
 https://nytimes.com/2024/12/05/us/politics/trump-dollar-trade-china-russia.html
-
-**French Prime Minister Resigns After No Confidence Vote**\
-`French lawmakers voted to oust Prime Minister Michel Barnier, making his three-month-old government the shortest in modern French history.`\
-https://nytimes.com/video/world/europe/100000009860745/france-prime-minister-resigns.html
 
