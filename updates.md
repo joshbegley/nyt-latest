@@ -1,3 +1,7 @@
+**Death and Taxes**\
+`We explain why the estate tax isn’t working.`\
+https://nytimes.com/2024/12/05/briefing/estate-taxes.html
+
 **'He’s playing backyard football': Chiefs benefit from Travis Kelce's love of the lateral**\
 `Kelce laterals more than most NFL teams, and Chiefs coach Andy Reid says he's OK with that — "just as long as you complete them.”`\
 https://nytimes.com/athletic/5970634/2024/12/05/chiefs-travis-kelce-lateral/
