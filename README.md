@@ -1,3 +1,7 @@
+**Texas Man Who Killed and Dismembered 3 Is Sentenced to Death**\
+`Jason Alan Thornburg, who lured his victims to a motel room, told the police he was “being called to commit sacrifices,” according to an arrest warrant.`\
+https://nytimes.com/2024/12/05/us/jason-alan-thornburg-death-sentence-texas.html
+
 **Nevada man sentenced to prison for fraud scheme involving Jackie Robinson contracts**\
 `Mykalai Kontilai leveraged his claim to the Robinson contracts to raise over $20 million as a key part of a fraudulent business plan. `\
 https://nytimes.com/athletic/5972525/2024/12/05/jackie-robinson-contracts-fraud-sentencing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972564/2024/12/05/angel-city-parts-ways-angela-huc
 **What Know About a Landmark Court Case**\
 `Judges in The Hague are weighing what, exactly, international law requires countries to do about global warming.`\
 https://nytimes.com/2024/12/05/climate/icj-climate-case-hague.html
-
-**7.0 Earthquake Rattles Northern California and Prompts Tsunami Warning**\
-`The authorities said they were surveying for signs of damage.`\
-https://nytimes.com/2024/12/05/us/earthquake-california.html
 
