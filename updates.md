@@ -1,3 +1,7 @@
+**Here’s How Earthquakes Are Measured**\
+`What does “moment magnitude” mean, and how do scientists determine the strength of a rupture in the earth?`\
+https://nytimes.com/2024/12/05/us/earthquakes-measured-magnitude-richter-scale.html
+
 **What Students Are Saying About Teachers Using A.I. to Grade**\
 `Teenagers and educators weigh in on a recent question from The Ethicist.`\
 https://nytimes.com/2024/12/05/learning/what-students-are-saying-about-teachers-using-ai-to-grade.html

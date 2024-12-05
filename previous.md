@@ -1,3 +1,7 @@
+**Here’s How Earthquakes Are Measured**\
+`What does “moment magnitude” mean, and how do scientists determine the strength of a rupture in the earth?`\
+https://nytimes.com/2024/12/05/us/earthquakes-measured-magnitude-richter-scale.html
+
 **What Students Are Saying About Teachers Using A.I. to Grade**\
 `Teenagers and educators weigh in on a recent question from The Ethicist.`\
 https://nytimes.com/2024/12/05/learning/what-students-are-saying-about-teachers-using-ai-to-grade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/special-series/big-question-what-is-underrated.ht
 **What’s Going On in This Picture? | Dec. 9, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/12/05/learning/whats-going-on-in-this-picture-dec-9-2024.html
-
-**What’s Going On in This Graph? | Dec. 11, 2024**\
-`Should football players eat Uncrustables to become champions?`\
-https://nytimes.com/2024/12/05/learning/whats-going-on-in-this-graph-dec-11-2024.html
 
