@@ -1,3 +1,7 @@
+**Resetting the Phillies' offseason ahead of the Winter Meetings**\
+`Team and league sources have portrayed a club that's actively seeking to shuffle the roster, but without a clear path toward doing so.`\
+https://nytimes.com/athletic/5970142/2024/12/05/phillies-offseason-winter-meetings/
+
 **Caleb Williams sees opportunity to grow as he navigates Bears turmoil**\
 `Williams says he's not worried about his development despite the in-season firings of his first NFL offensive coordinator and head coach.`\
 https://nytimes.com/athletic/5970765/2024/12/05/bears-caleb-williams-coaching-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5969723/2024/12/05/mlb-college-baseball-nil-draft-c
 **Former Olympic champion Dujardin gets ban after horse whipping scandal**\
 `Team GB's Dujardin, 39, was provisionally suspended in July and withdrew from competing at the Paris Olympic Games.`\
 https://nytimes.com/athletic/5971449/2024/12/05/charlotte-dujardin-banned-equestrianism-whipping/
-
-**Notre-Dame Is Restored, but Macron’s Legacy Is in Jeopardy**\
-`The 860-year-old cathedral has been repaired in a time frame many thought impossible. But rather than basking in success, President Emmanuel Macron is mired in political crisis.`\
-https://nytimes.com/2024/12/05/world/europe/macron-france-government.html
 

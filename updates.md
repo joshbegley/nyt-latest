@@ -1,3 +1,7 @@
+**Resetting the Phillies' offseason ahead of the Winter Meetings**\
+`Team and league sources have portrayed a club that's actively seeking to shuffle the roster, but without a clear path toward doing so.`\
+https://nytimes.com/athletic/5970142/2024/12/05/phillies-offseason-winter-meetings/
+
 **Caleb Williams sees opportunity to grow as he navigates Bears turmoil**\
 `Williams says he's not worried about his development despite the in-season firings of his first NFL offensive coordinator and head coach.`\
 https://nytimes.com/athletic/5970765/2024/12/05/bears-caleb-williams-coaching-changes/
