@@ -1,3 +1,19 @@
+**Is It Time to Worry About Benzene?**\
+`The carcinogen has been found in sunscreen, deodorants, acne creams and other personal care products. Here’s what to know.`\
+https://nytimes.com/2024/12/05/well/benzene-health-sunscreen.html
+
+**It’s Easy Being Green Spaghetti**\
+`By Mia Leimkuhler`\
+https://nytimes.com/2024/12/05/dining/its-easy-being-green-spaghetti.html
+
+**Pete Hegseth and His ‘Battle Cry’ for a New Christian Crusade**\
+`The veteran picked to lead the Defense Department has praised the brutal religious military campaigns of the past and has called for a Christian approach to governing.`\
+https://nytimes.com/2024/12/05/us/hegseth-church-crusades.html
+
+**This Is Not a Beauty Podcast: The Social Mirror**\
+`Beauty and health have long overlapped — the ancient Egyptians used kohl eyeliner to keep the eyes clean, and the Greeks used olive oil to protect their skin from the sun.`\
+https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/the-social-mirror.html
+
 **Scoop City: Tom Brady's a hypocrite for his take on Trevor Lawrence**\
 `Rather than chastise offensive players and coaches, Brady should turn his quest for perfection toward the real culprit: the NFL rules. `\
 https://nytimes.com/athletic/5972112/2024/12/05/nfl-late-hits-trevor-lawrence-tom-brady-scoop-city/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/05/us/politics/trump-streaming-ads-strategy.html
 **World’s Priciest Dinosaur Fossil Comes to Museum of Natural History**\
 `The billionaire Kenneth C. Griffin, who bought the stegosaurus fossil for $44.6 million, is loaning it to the American Museum of Natural History in New York for four years.`\
 https://nytimes.com/2024/12/05/arts/most-expensive-stegosaurus-american-museum-of-natural-history.html
-
-**Wolves boss O'Neil ignoring talk over his future ahead of West Ham trip**\
-`Wolverhampton Wanderers head coach Gary O&#8217;Neil says he is ignoring talk over his future and is fully focused on Monday night&#8217;s match at West Ham United.`\
-https://nytimes.com/athletic/5971902/2024/12/05/gary-oneil-wolves-manager-future/
-
-**Penguins Today: The American influence that shaped Pittsburgh's NHL history**\
-`Following USA Hockey's Hall of Fame ceremony in Pittsburgh last night, let's go through the most important Americans in Penguins history.`\
-https://nytimes.com/athletic/5971911/2024/12/05/pittsburgh-penguins-nhl-usa-hockey/
-
-**How I Learned to Stop Worrying and Embrace the Horror**\
-`Fictional fear can be beautifully distracting from life’s real terrors.`\
-https://nytimes.com/2024/12/05/special-series/issa-lopez-fear-horror.html
-
-**Bucks' seven-game win streak snapped as old problems return in loss to Hawks**\
-`The issues that plagued the Bucks during their 2-8 start — transition defense, turnovers, defensive rebounding — returned against Atlanta.`\
-https://nytimes.com/athletic/5971577/2024/12/05/giannis-bucks-hawks-streak-snapped/
 
