@@ -1,5 +1,9 @@
 **Head of Secret Service and Congressman Get Into Shouting Match at Hearing**\
 `The agency’s acting director took offense when a Texas representative questioned him about where he was standing in a photo commemorating the Sept. 11 attacks.`\
+https://nytimes.com/2024/12/05/us/politics/ronald-rowe-pat-fallon-trump-assassination.html
+
+**Head of Secret Service and Congressman Get Into Shouting Match at Hearing**\
+`The agency’s acting director took offense when a Texas representative questioned him about where he was standing in a photo commemorating the Sept. 11 attacks.`\
 https://nytimes.com/live/2024/12/05/us/trump-news/ronald-rowe-pat-fallon-trump-assassination
 
 **Lazerus: Luke Richardson's firing won't stop the Blackhawks' slow slide into irrelevance**\
