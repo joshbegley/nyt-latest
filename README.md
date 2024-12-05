@@ -1,3 +1,11 @@
+**Danish clubs fined €1340 for snowball fight between fans**\
+`Danish football clubs Nordsjaelland and AGF have been fined 5,000 kroner (€670, £555) each for a snowball fight involving supporters in a league match.`\
+https://nytimes.com/athletic/5971749/2024/12/05/snowball-fight-nordsjaelland-agf/
+
+**LA Galaxy back in MLS Cup, a decade on from the glory days**\
+`The Beckham and Donovan years seem a long time ago for the LA Galaxy. In Saturday's MLS Cup final, they can turn back the clock`\
+https://nytimes.com/athletic/5967317/2024/12/05/la-galaxy-mls-cup-decade/
+
 **Pantone’s 2025 Color of the Year Is Mocha Mousse**\
 `Is this shade of dusty brown a repudiation of “Brat” green?`\
 https://nytimes.com/2024/12/05/style/pantone-color-mocha-mousse-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5970979/2024/12/05/sam-leavitt-arizona-state-sun-de
 **South Korean General Gives a Confused Account of a Failed Crackdown**\
 `The military has spent decades trying to rehabilitate its image and win public trust after a brutal past. Its role in President Yoon’s martial law raised a specter from that era.`\
 https://nytimes.com/2024/12/05/world/asia/south-korea-martial-law.html
-
-**The NBA (un)-Panic meter: The Bucks, Knicks, Grizzlies and others who eased early fears**\
-`Teams like the Magic and Mavericks have managed to win despite their stars missing time.`\
-https://nytimes.com/athletic/5971428/2024/12/05/nba-bucks-knicks-magic-no-panic/
-
-**Musk, Trump, A.I. and Other DealBook Summit Highlights**\
-`The economy, inflation, tariffs, the future of media, pardon politics and other big topics that made headlines this year.`\
-https://nytimes.com/2024/12/05/business/dealbook/musk-trump-dealbook-summit-highlights.html
 
