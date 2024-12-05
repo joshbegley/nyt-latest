@@ -1,3 +1,11 @@
+**Blackhawks paid Tyler Bertuzzi to provide offense. So far, he isn't delivering**\
+`With a lot of the roster, the Blackhawks weren't exactly sure what they'd get this season. With Bertuzzi, they thought they knew.`\
+https://nytimes.com/athletic/5971018/2024/12/05/blackhawks-tyler-bertuzzi-offense-bruins/
+
+**'We're all embarrassed': Skidding Lakers lose by 41 in drubbing to Heat**\
+`The loss dropped the Lakers to 12-10. They're ninth in the Western Conference after opening the season 10-4.`\
+https://nytimes.com/athletic/5971095/2024/12/05/los-angeles-lakers-41-point-loss-miami-heat/
+
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/12/05/briefing/france-south-korea-assassination.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/04/crosswords/daily-puzzle-2024-12-05.html
 **Bitcoin Hits a Milestone: $100,000**\
 `The price of a single Bitcoin rose to six figures for the first time, an extraordinary level for a 16-year-old cryptocurrency once dismissed as a sideshow.`\
 https://nytimes.com/2024/12/04/technology/bitcoin-price-record.html
-
-**Here are the latest developments in South Korea.**\
-`By Choe Sang-Hun, John Yoon and Qasim Nauman`\
-https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment/here-are-the-latest-developments-in-south-korea
-
-**Live Updates: South Korean Lawmakers Question Military Leaders After Failed Crackdown**\
-`South Korea’s defense minister resigned, apologizing for the crisis after President Yoon Suk Yeol imposed martial law. Lawmakers questioned the military for the first time about its role.`\
-https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment
 
