@@ -1,4 +1,4 @@
-**Jets QB Aaron Rodgers: Coaches 'need the backing of the ownership' for success**\
+**Aaron Rodgers dishes on lack of public backing for Jets coaches from ownership**\
 `The Jets have dismissed both head coach Robert Saleh and general manager Joe Douglas.`\
 https://nytimes.com/athletic/5970470/2024/12/04/jets-qb-aaron-rodgers-woody-johnson-comments/
 
