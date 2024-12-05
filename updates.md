@@ -1,3 +1,15 @@
+**Friday Briefing: Syrian Rebels Storm Another City**\
+`Plus, a celebration of art in Dakar.`\
+https://nytimes.com/2024/12/05/briefing/syria-manhunt-south-korea.html
+
+**Giants add coaches Oscar Bernard, Damon Minor to major league hitting staff**\
+`Bernard was part of Bob Melvin’s staff in San Diego in 2023. Minor spent eight seasons as the Giants’ Triple-A hitting coach.`\
+https://nytimes.com/athletic/5972756/2024/12/05/sf-giants-coaching-changes-oscar-bernard-damon-minor/
+
+**We Answer Your Very Specific Restaurant Questions**\
+`Neighborhood gems, Mexican bacchanals and more reader requests.`\
+https://nytimes.com/2024/12/05/dining/we-answer-your-very-specific-restaurant-questions.html
+
 **Here’s How Earthquakes Are Measured**\
 `What does “moment magnitude” mean, and how do scientists determine the strength of a rupture in the earth?`\
 https://nytimes.com/2024/12/05/us/earthquakes-measured-magnitude-richter-scale.html
