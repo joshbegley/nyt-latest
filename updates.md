@@ -1,3 +1,7 @@
+**Manhattan Shooter Used a Silencer. Nearly 5 Million Are Registered in the U.S.**\
+`The tightly regulated firearm accessory has long been associated with Hollywood hit men but is rarely seen in real-life murders.`\
+https://nytimes.com/2024/12/05/nyregion/unitedhealthcare-shooting-suspect-gun-silencer.html
+
 **Peter B. Teeley, Who Coined the Term ‘Voodoo Economics,’ Dies at 84**\
 `As press secretary for George H.W. Bush, he came up with the expression to attack Ronald Reagan’s economic plan. The term took on a life of its own.`\
 https://nytimes.com/2024/12/05/us/politics/peter-b-teeley-dead.html
