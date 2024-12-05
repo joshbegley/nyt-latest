@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/12/04/us/trump-news/pete-hegseth-faces-questions-about-his-leadership-style-after-troubles-in-past-workplaces
 
 **49ers will get a peek into the future Sunday when Isaac Guerendo starts at RB**\
-`Should Guerendo start as expected on Sunday, it will be just his second start as a running back since he was in the fourth grade.`\
+`Should Guerendo start as expected Sunday, it will be just his second start as a running back since he was in the fourth grade.`\
 https://nytimes.com/athletic/5970677/2024/12/04/49ers-isaac-guerendo-future-running-back/
 
 **A City of Cameras: How New York Police Will Hunt a Killer**\
