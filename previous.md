@@ -1,40 +1,40 @@
-**How the Messy Process of Milking Cows Can Spread Bird Flu**\
-`On America’s large dairy farms, milking is a vast operation, and the potential for disease transmission is worrying, health experts say.`\
-https://nytimes.com/2024/12/05/science/bird-flu-milk-dairy-h5n1.html
+**Can Martial Law Happen Here?**\
+`Events in South Korea have people thinking.`\
+https://nytimes.com/2024/12/05/opinion/trump-south-korea-martial-law.html
 
-**What Did You Think of This? Please Leave a Review**\
-`Dentists, doctors, professors, dry cleaners: What can’t you rate anymore?`\
-https://nytimes.com/2024/12/05/style/reviews-ratings-online.html
+**Anna Sui Shares Her Favorite Lipstick and Eyeliner**\
+`Plus: jewelry with a resilient spirit, a riverside hotel in Lisbon and more recommendations from T Magazine.`\
+https://nytimes.com/2024/12/05/t-magazine/anna-sui-beauty.html
 
-**Can You Copyright a Vibe?**\
-`One influencer is suing another, accusing her of copying her minimalist aesthetic on social media. It turns out there is a lot of gray area in shades of beige.`\
-https://nytimes.com/2024/12/05/style/clean-girl-aesthetic-influencer-lawsuit.html
+**‘Cinnamon Softcore Art Deco’? Spotify Wrapped Falls Flat for Some**\
+`The Sound Towns of 2023 have been replaced with features such as an A.I.-driven podcast about users’ listening habits and word-salad-like genre summaries.`\
+https://nytimes.com/2024/12/05/style/spotify-wrapped-2024.html
 
-**Vic's Picks, Week 14: Justin Jefferson's scoreless streak will end vs. Falcons**\
-`Jefferson hasn't scored in six straight games but he'll do the Griddy when old friend Kirk Cousins comes to town Sunday.`\
-https://nytimes.com/athletic/5968216/2024/12/05/nfl-week-14-picks-predictions-betting/
+**New York Democrats Begin Saying No to the NIMBYs**\
+`A new housing plan will finally stand up to neighborhood opposition.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/new-york-housing-council
 
-**When a Baby Killer Isn’t a Straightforward Villain**\
-`The real-life murderer who inspired “The Girl With the Needle” was “a monster,” said the actress who plays her, “but the movie is also about showing you her struggles.”`\
-https://nytimes.com/2024/12/05/movies/the-girl-with-the-needle-trine-dyrholm.html
+**Two San Francisco Renters Fled the City for a Quieter Life. Would They Find It in Sonoma or Marin?**\
+`Seeking city-style activities in a small-town setting, a young couple headed north out of San Francisco in search of a sunny place with character, preferably for less than $1 million. Here’s what they found.`\
+https://nytimes.com/interactive/2024/12/05/realestate/sonoma-marin-county-california-home-sale.html
 
-**Maresca dropped Madueke over training performance: 'He must work more'**\
-`Enzo Maresca said he left Noni Madueke out of his Chelsea team over his performances in training and told him &#8220;he must work more&#8221; to keep a regular place.`\
-https://nytimes.com/athletic/5971418/2024/12/05/noni-madueke-chelsea-training/
+**Trump Organization Plans an Ethics Policy Without Banning Foreign Deals**\
+`The family business of President-elect Donald J. Trump is expected to announce some restrictions on transactions but is not likely to accept as many limitations as it did eight years ago.`\
+https://nytimes.com/2024/12/05/us/politics/trump-organization-plans-an-ethics-policy-without-banning-foreign-deals.html
 
-**Late Night Weighs In on Pete Hegseth’s ‘Teetering’ Nomination Prospects**\
-`Hosts riff on Trump’s possible swap of his secretary of defense nominee amid excessive-drinking claims against Hegseth.`\
-https://nytimes.com/2024/12/05/arts/television/ronny-chieng-pete-hegseth-drinking.html
+**'It's a good story': Falcons hope Kirk Cousins' return to Minnesota has a happy ending**\
+`Cousins is a sucker for a comeback story. Can he snap out of his slump against a stout Vikings defense ideally suited to stop him?`\
+https://nytimes.com/athletic/5970374/2024/12/05/kirk-cousins-falcons-vikings-return/
 
-**Jaylen Brown initiates the offense for short-handed Celtics in 130-120 win over Pistons**\
-`Once prone to reckless drives and tunnel vision, Brown has become more trustworthy with the ball and his ability to read a game has evolved.`\
-https://nytimes.com/athletic/5971318/2024/12/05/jaylen-brown-playmaker-celtics-defeat-pistons/
+**Inside the summer getaway that helped unite the Raptors: 'The vibes were immaculate'**\
+`The Raptors had team-wide stops on both sides of the Atlantic, beginning a chemistry experiment. `\
+https://nytimes.com/athletic/5960594/2024/12/05/toronto-raptors-summer-vacation-team-chemistry/
 
-**Old Photos Evoke the Chaos of South Korea’s 1980 Unrest**\
-`Clashes during President Yoon Suk Yeol’s brief imposition of martial law echoed the military’s actions during an earlier political crisis that lasted longer and turned deadly.`\
-https://nytimes.com/2024/12/05/world/asia/photos-1980-south-korea-martial-law.html
+**Iowa's Kirk Ferentz: 'We would be fools' not to look at transfer portal QBs**\
+`Iowa's ground-acquisition style of play worked in the old Big Ten West, but an offense needs to throw to thrive in college football today.`\
+https://nytimes.com/athletic/5970809/2024/12/05/iowas-kirk-ferentz-we-would-be-fools-not-to-look-at-transfer-portal-quarterbacks/
 
-**The Briefing - Athletic 2 Madrid 1: Another Mbappe penalty miss, Ancelotti's headache, Bellingham can't save them**\
-`Madrid looked to be improving in La Liga after a humiliating defeat to Barcelona, but this latest loss brought them down to earth`\
-https://nytimes.com/athletic/5970945/2024/12/05/athletic-club-real-madrid-kylian-mbappe/
+**Homes for Sale in New Jersey and New York**\
+`This week’s properties are a five-bedroom house in Millstone, N.J., and a four-bedroom in Huntington, N.Y.`\
+https://nytimes.com/2024/12/05/realestate/housing-market-near-nyc.html
 
