@@ -1,3 +1,7 @@
+**Rebels Storm Another Major City in Syria**\
+`In another startling setback for President Bashar al-Assad, government forces retreated from the city of Hama after rebels advanced.`\
+https://nytimes.com/2024/12/05/world/middleeast/syria-rebel-offensive-hama.html
+
 **Danish clubs fined €1340 for snowball fight between fans**\
 `Danish football clubs Nordsjaelland and AGF have been fined 5,000 kroner (€670, £555) each for a snowball fight involving supporters in a league match.`\
 https://nytimes.com/athletic/5971749/2024/12/05/snowball-fight-nordsjaelland-agf/
