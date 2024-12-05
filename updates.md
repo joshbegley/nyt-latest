@@ -1,3 +1,7 @@
+**Caleb Williams sees opportunity to grow as he navigates Bears turmoil**\
+`Williams says he's not worried about his development despite the in-season firings of his first NFL offensive coordinator and head coach.`\
+https://nytimes.com/athletic/5970765/2024/12/05/bears-caleb-williams-coaching-changes/
+
 **Listen: ‘My Senior Year’**\
 `What can the story of an exchange student from Gaza tell us about senior year in an American high school?`\
 https://nytimes.com/2024/12/05/learning/listen-my-senior-year.html

@@ -1,3 +1,7 @@
+**Caleb Williams sees opportunity to grow as he navigates Bears turmoil**\
+`Williams says he's not worried about his development despite the in-season firings of his first NFL offensive coordinator and head coach.`\
+https://nytimes.com/athletic/5970765/2024/12/05/bears-caleb-williams-coaching-changes/
+
 **Listen: ‘My Senior Year’**\
 `What can the story of an exchange student from Gaza tell us about senior year in an American high school?`\
 https://nytimes.com/2024/12/05/learning/listen-my-senior-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5971449/2024/12/05/charlotte-dujardin-banned-equest
 **Notre-Dame Is Restored, but Macron’s Legacy Is in Jeopardy**\
 `The 860-year-old cathedral has been repaired in a time frame many thought impossible. But rather than basking in success, President Emmanuel Macron is mired in political crisis.`\
 https://nytimes.com/2024/12/05/world/europe/macron-france-government.html
-
-**Ohio State recruiting class a success despite 5-star's late flip to Oregon**\
-`Ohio State has the No. 5 recruiting class, signing five-star QB Tavien St. Clair and CB Devin Sanchez but losing CB Na'eem Offord late.`\
-https://nytimes.com/athletic/5970803/2024/12/05/ohio-state-recruiting-class-offord-flip/
 
