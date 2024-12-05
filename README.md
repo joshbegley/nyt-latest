@@ -1,3 +1,11 @@
+**Taylor Swift’s ‘Eras Tour Book’ Sold 814,000 Copies in One Week**\
+`The first week print sales nearly matched Barack Obama’s “A Promised Land,” and put her well ahead of Prince Harry’s “Spare.” And she did it while selling only at Target, avoiding Amazon and bookstores.`\
+https://nytimes.com/2024/12/05/books/taylor-swift-eras-tour-book.html
+
+**The Windup: $600 million and rising**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/5972211/2024/12/05/juan-soto-free-agency-the-windup/
+
 **Lopetegui set to be in charge for West Ham vs Wolves**\
 `Julen Lopetegui is set to be in charge of West Ham United when they play Wolverhampton Wanderers on Monday night despite continued speculation over his long-term future at the club.`\
 https://nytimes.com/athletic/5972090/2024/12/05/julen-lopetegui-west-ham-wolves/
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/the-soci
 **Scoop City: Tom Brady's a hypocrite for his take on Trevor Lawrence**\
 `Rather than chastise offensive players and coaches, Brady should turn his quest for perfection toward the real culprit: the NFL rules. `\
 https://nytimes.com/athletic/5972112/2024/12/05/nfl-late-hits-trevor-lawrence-tom-brady-scoop-city/
-
-**Jameis Winston has had ups and downs as a starter. Could he return to Browns in 2025?**\
-`Winston is 2-3 in five starts for Cleveland and has given the offense some life. Is it enough to earn the starting role for next season?`\
-https://nytimes.com/athletic/5971015/2024/12/05/jameis-winston-browns-quarterback-situation/
-
-**OPEC Plus Postpones Plan to Increase Oil Output for Three Months**\
-`The oil cartel had aimed to start opening the taps in January, but delayed in the face of weak demand and plans by other countries to raise production.`\
-https://nytimes.com/2024/12/05/business/opec-plus-oil-production-delay.html
 
