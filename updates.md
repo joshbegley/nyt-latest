@@ -1,3 +1,11 @@
+**Chelsea bask in their new-found role as the Premier League's great entertainers**\
+`Enzo Maresca's side having already wracked up 57 goals this season and fans chanted 'Chelsea are back' as Southampton were brushed aside`\
+https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertainers/
+
+**Amorim has started to ring the changes at United - first defeat won't deter him**\
+`Despite his first defeat, the rest of the Premier League should expect Amorim to keep the carousel on personnel going during his reign`\
+https://nytimes.com/athletic/5970865/2024/12/05/ruben-amorim-manchester-united-changes/
+
 **Set-piece coach Jover's stats are off the chart - so how much is he worth to Arsenal?**\
 `Both of Arsenal's goals against Manchester United came from set pieces and their routines caused all sorts of problems once again`\
 https://nytimes.com/athletic/5970917/2024/12/05/nicolas-jover-arsenal-set-pieces/

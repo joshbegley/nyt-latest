@@ -1,6 +1,14 @@
+**Chelsea bask in their new-found role as the Premier League's great entertainers**\
+`Enzo Maresca's side having already wracked up 57 goals this season and fans chanted 'Chelsea are back' as Southampton were brushed aside`\
+https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertainers/
+
 **Set-piece coach Jover's stats are off the chart - so how much is he worth to Arsenal?**\
 `Both of Arsenal's goals against Manchester United came from set pieces and their routines caused all sorts of problems once again`\
 https://nytimes.com/athletic/5970917/2024/12/05/nicolas-jover-arsenal-set-pieces/
+
+**Amorim has started to ring the changes at United - first defeat won't deter him**\
+`Despite his first defeat, the rest of the Premier League should expect Amorim to keep the carousel on personnel going during his reign`\
+https://nytimes.com/athletic/5970865/2024/12/05/ruben-amorim-manchester-united-changes/
 
 **France Is Being Held Hostage**\
 `The government’s fall shows the strength of the far right.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5970478/2024/12/05/nuno-nottingham-forest-man-city/
 **Club World Cup: From Inter to Chelsea to Auckland City, all 32 teams at 2025 tournament profiled**\
 `We take a look at the teams taking part in the 2025 Club World Cup, including past performances, stats, Opta ranking and players to watch`\
 https://nytimes.com/athletic/5969278/2024/12/05/club-world-cup-team-preview/
-
-**Blackhawks paid Tyler Bertuzzi to provide offense. So far, he isn't delivering**\
-`With a lot of the roster, the Blackhawks weren't exactly sure what they'd get this season. With Bertuzzi, they thought they knew.`\
-https://nytimes.com/athletic/5971018/2024/12/05/blackhawks-tyler-bertuzzi-offense-bruins/
-
-**'We're all embarrassed': Skidding Lakers lose by 41 in drubbing to Heat**\
-`The loss dropped the Lakers to 12-10. They're ninth in the Western Conference after opening the season 10-4.`\
-https://nytimes.com/athletic/5971095/2024/12/05/los-angeles-lakers-41-point-loss-miami-heat/
 
