@@ -1,3 +1,11 @@
+**Newcastle United: Wildly unpredictable, thrilling on transition, utterly headache inducing**\
+`Eddie Howe's side continue to threaten and thrive against the Premier League's best, while labouring against those they might expect to beat`\
+https://nytimes.com/athletic/5968513/2024/12/05/newcastle-liverpool-isak-howe-transition/
+
+**Amorim has started to ring the changes at United - his first defeat won't deter him**\
+`Despite his first defeat, the rest of the Premier League should expect Amorim to keep the carousel on personnel going during his reign`\
+https://nytimes.com/athletic/5970865/2024/12/05/ruben-amorim-manchester-united-changes/
+
 **Liverpool showed a rare vulnerability at Newcastle but Slot should not be overly worried**\
 `The league leaders were shaky in defence, have injury problems and wasted chances as, for once, they dropped below their best level`\
 https://nytimes.com/athletic/5970408/2024/12/05/liverpool-newcastle-slot-salah/
