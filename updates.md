@@ -1,3 +1,11 @@
+**He Won’t Leave His Home. The Landlord Is Renovating Around Him.**\
+`A longtime tenant is locked in a standoff with the owner of his Upper West Side building.`\
+https://nytimes.com/2024/12/05/realestate/manhattan-upper-west-side-eric-abrams-landlord.html
+
+**Historic, emotional F1 practice awaits Leclerc brothers at Abu Dhabi GP**\
+`Charles and Arthur Leclerc will become the first brothers to take part in an F1 session as teammates on Friday.`\
+https://nytimes.com/athletic/5972372/2024/12/05/charles-leclerc-brother-f1-abu-dhabi-practice/
+
 **The Bundesliga's new €4.48bn TV deal: The details, the view in Germany and how it compares**\
 `The Bundesliga have announced the terms of its new TV rights deal for the next four years`\
 https://nytimes.com/athletic/5972169/2024/12/05/bundesliga-tv-contract-analysis/
