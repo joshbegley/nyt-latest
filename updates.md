@@ -1,3 +1,7 @@
+**Chelsea bask in their new-found status as the Premier League's great entertainers**\
+`Enzo Maresca's side having already wracked up 57 goals this season and fans chanted 'Chelsea are back' as Southampton were brushed aside`\
+https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertainers/
+
 **Chelsea bask in their new-found role as the Premier League's great entertainers**\
 `Enzo Maresca's side having already wracked up 57 goals this season and fans chanted 'Chelsea are back' as Southampton were brushed aside`\
 https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertainers/
