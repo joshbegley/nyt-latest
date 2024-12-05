@@ -1,3 +1,23 @@
+**Penguin on a Beach**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/12/05/learning/penguin-on-a-beach.html
+
+**A Coach Complained About a Dangerous Intersection. Then He Was Killed There.**\
+`A high school football coach was fatally struck by a driver in the Bronx. He was one of three pedestrians killed in traffic over the weekend.`\
+https://nytimes.com/2024/12/05/nyregion/bronx-coach-killed-hit-run.html
+
+**New York City Is Set to Approve a Plan to Create 80,000 New Homes**\
+`The City Council is expected to pass a major housing plan known as “City of Yes.” Housing experts and elected officials say it is only a first step.`\
+https://nytimes.com/2024/12/05/nyregion/nyc-housing-city-of-yes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/05/crosswords/spelling-bee-forum.html
+
+**Grealish in a central role provides plenty of food for thought for Guardiola**\
+`The England international has generally operated from the left but was used in a deeper, more central role against Nottingham Forest`\
+https://nytimes.com/athletic/5970861/2024/12/05/jack-grealish-midfield-manchester-city/
+
 **Aston Villa and the basketball style that could shake them from their stasis**\
 `Villa are at their best when they attack quickly - following the pace of a basketball game could be the way forward for Unai Emery's squad`\
 https://nytimes.com/athletic/5970034/2024/12/05/aston-villa-unai-emery-basketball/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5970666/2024/12/05/everton-sean-dyche-needed-this/
 **Word of the Day: incapacitated**\
 `This word has appeared in 62 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/05/learning/word-of-the-day-incapacitated.html
-
-**Chelsea bask in their new-found status as the Premier League's great entertainers**\
-`Enzo Maresca's side having already wracked up 57 goals this season. Fans chanted 'Chelsea are back' as Southampton were brushed aside`\
-https://nytimes.com/athletic/5970759/2024/12/05/chelsea-maresca-goals-entertainers/
-
-**Set-piece coach Jover's stats are off the chart - so how much is he worth to Arsenal?**\
-`Both of Arsenal's goals against Manchester United came from set pieces and their routines caused all sorts of problems once again`\
-https://nytimes.com/athletic/5970917/2024/12/05/nicolas-jover-arsenal-set-pieces/
-
-**Amorim has started to ring the changes at United - his first defeat won't deter him**\
-`Despite his first defeat, the rest of the Premier League should expect Amorim to keep the carousel on personnel going during his reign`\
-https://nytimes.com/athletic/5970865/2024/12/05/ruben-amorim-manchester-united-changes/
-
-**France Is Being Held Hostage**\
-`The government’s fall shows the strength of the far right.`\
-https://nytimes.com/2024/12/05/opinion/france-marine-le-pen.html
-
-**The Warning**\
-`No shockwave. No mushroom cloud. But a space nuke would change life on Earth forever.`\
-https://nytimes.com/interactive/2024/12/05/opinion/nuclear-weapons-space.html
 
