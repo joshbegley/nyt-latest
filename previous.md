@@ -1,40 +1,40 @@
-**Resetting the Phillies' offseason ahead of the Winter Meetings**\
-`Team and league sources have portrayed a club that's actively seeking to shuffle the roster, but without a clear path toward doing so.`\
-https://nytimes.com/athletic/5970142/2024/12/05/phillies-offseason-winter-meetings/
+**2025 NFL Draft: Projection model ranks 6 teams most likely to pick No. 1**\
+`The Raiders and Giants have the inside track to the No. 1 pick but don't count out the Patriots and Jets just yet. `\
+https://nytimes.com/athletic/5968994/2024/12/05/nfl-draft-top-pick-giants-raiders-patriots-jets/
 
-**Caleb Williams sees opportunity to grow as he navigates Bears turmoil**\
-`Williams says he's not worried about his development despite the in-season firings of his first NFL offensive coordinator and head coach.`\
-https://nytimes.com/athletic/5970765/2024/12/05/bears-caleb-williams-coaching-changes/
+**Two women lived with the secret of an assault by the same tennis coach. Then they found each other**\
+`Carrying their stories, decades apart, left Caroline Ullring and Karen Clark feeling isolated — until they learned they were not alone.`\
+https://nytimes.com/athletic/5969459/2024/12/05/wake-forest-womens-tennis-coach-sexual-assault-lew-gerard/
 
-**Listen: ‘My Senior Year’**\
-`What can the story of an exchange student from Gaza tell us about senior year in an American high school?`\
-https://nytimes.com/2024/12/05/learning/listen-my-senior-year.html
+**When is enough enough? Rangers' Filip Chytil and the ongoing concussion question facing NHLers**\
+`The Athletic spoke to Pat Lafontaine, Rick Nash and Kyle Okposo about their experience with concussions and career decisions.`\
+https://nytimes.com/athletic/5969997/2024/12/05/new-york-rangers-filip-chytil-return-concussion/
 
-**Three ways the Yankees could save on salary if they re-sign Juan Soto**\
-`Hal Steinbrenner has spoken about exercising some payroll restraint many times. If the Yankees re-sign Soto, here's how they can.`\
-https://nytimes.com/athletic/5970283/2024/12/05/yankees-payroll-juan-soto/
+**Schneidman: Why I think the Packers will beat the Lions in Detroit on Thursday night**\
+`Green Bay and Detroit have key players who will miss Thursday night's game due to injury.`\
+https://nytimes.com/athletic/5970214/2024/12/05/packers-lions-thursday-night-football/
 
-**China Slaps Sanctions on 13 U.S. Defense Firms**\
-`The largely symbolic move is in response to the Biden administration’s latest arms sales to Taiwan, the island democracy that China considers its own.`\
-https://nytimes.com/2024/12/05/world/asia/china-us-sanctions-defense.html
+**Ranking conference championship games by Playoff implications**\
+`Of the nine games, none has a spread larger than 5.5 points. Some will have more impact on Sunday's final CFP rankings than others.`\
+https://nytimes.com/athletic/5970965/2024/12/05/conference-championship-week-schedule-top-games/
 
-**It's true: The College Football Playoff committee is not rewarding tough schedules**\
-`It's not a conspiracy. The committee this year has been wildly inconsistent when factoring in strength of schedule, one way or the other.`\
-https://nytimes.com/athletic/5970959/2024/12/05/college-football-playoff-rankings-strength-of-schedule-boise-state/
+**A Manhunt in Manhattan, and Another Trump Pick in Trouble**\
+`Plus, the A.I. that aces weather forecasts.`\
+https://nytimes.com/2024/12/05/podcasts/manhattan-shooting-hegseth-trouble.html
 
-**How Commanders' overlooked tight end room could offer a winning identity**\
-`Washington found success lining up in 12 personnel packages in its beatdown of Tennessee in Week 13.`\
-https://nytimes.com/athletic/5969926/2024/12/05/commanders-tight-ends-zach-ertz/
+**The Connections Companion No. 544**\
+`Scroll down for hints and conversation about the puzzle for Friday, Dec. 6, 2024.`\
+https://nytimes.com/2024/12/05/crosswords/connections-companion-544.html
 
-**Bye week comes ahead of critical stretch for John Harbaugh and Ravens**\
-`Poor recent performances against Pittsburgh and Philadelphia haven't left a ton of margin for error entering the final four games. `\
-https://nytimes.com/athletic/5969741/2024/12/05/ravens-john-harbaugh-bye-week/
+**The Supreme Court Takes On Transgender Care for Minors**\
+`The justices are posed to rule on a ban in Tennessee, with consequences across the country.`\
+https://nytimes.com/2024/12/05/podcasts/the-daily/supreme-court-transgender-care-minors.html
 
-**MLB teams now face new competition for talent — college programs awash with money**\
-`The NIL era of college sports has begun to impact the MLB draft in a major way, with teams now competing with college programs for players.`\
-https://nytimes.com/athletic/5969723/2024/12/05/mlb-college-baseball-nil-draft-competition/
+**QB future for all 32 NFL teams: Russell Wilson, Aaron Rodgers and other intriguing questions**\
+`Wilson's production has been great as he approaches free agency, while Rodgers and Kirk Cousins could have tenuous futures with their teams.`\
+https://nytimes.com/athletic/5968090/2024/12/05/nfl-quarterback-futures-wilson-rodgers-cousins/
 
-**Former Olympic champion Dujardin gets ban after horse whipping scandal**\
-`Team GB's Dujardin, 39, was provisionally suspended in July and withdrew from competing at the Paris Olympic Games.`\
-https://nytimes.com/athletic/5971449/2024/12/05/charlotte-dujardin-banned-equestrianism-whipping/
+**Wordle Review No. 1,266**\
+`Scroll down for hints and conversation about the puzzle for Friday, Dec. 6, 2024.`\
+https://nytimes.com/2024/12/05/crosswords/wordle-review-1266.html
 
