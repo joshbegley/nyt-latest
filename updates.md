@@ -1,3 +1,11 @@
+**Club World Cup predictions: Which players will star and how can the tournament succeed?**\
+`Our experts debate the big issues around FIFA's latest global tournament after today's group stage draw in Miami`\
+https://nytimes.com/athletic/5972093/2024/12/05/fifa-club-world-cup-predictions-analysis/
+
+**Could playing in SEC title game be a detriment? Texas and Georgia will soon find out**\
+`What effect will Georgia and Texas facing off in the SEC Championship Game have on the teams in the College Football Playoff?`\
+https://nytimes.com/athletic/5972775/2024/12/05/sec-championship-texas-georgia-greg-sankey/
+
 **Motherhood at 74: World’s Oldest Known Wild Bird Lays Egg**\
 `The U.S. Fish and Wildlife Service announced on Tuesday that Wisdom, a 74-year-old Laysan albatross, had laid an egg at Midway Atoll National Wildlife Refuge at the northwestern edge of the Hawaiian Archipelago.`\
 https://nytimes.com/video/science/earth/100000009861659/worlds-oldest-albatross-egg.html
