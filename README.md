@@ -1,3 +1,7 @@
+**Hurzeler plays down Enciso social media post after being left out of Brighton squad**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler has played down a message on social media by Julio Enciso after he was left out of the squad for the 3-1 defeat at Fulham.`\
+https://nytimes.com/athletic/5972758/2024/12/05/julio-enciso-brighton-future/
+
 **Who's next man up for each 4 Nations team? A look at the top potential injury replacements**\
 `Canada coach Jon Cooper says "I bet you there will be 10 new players minimum" in the tournament by the time it begins. Who will they be?`\
 https://nytimes.com/athletic/5972629/2024/12/05/4-nations-face-off-subs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/world/europe/macron-france-prime-minister.html
 **Until Saturday: Will conference championship games cause Playoff chaos?**\
 `Welcome to Until Saturday, the five-star college football newsletter: Will conference championship games cause Playoff chaos?`\
 https://nytimes.com/athletic/5972270/2024/12/05/conference-championship-games-college-football-playoff-until-saturday/
-
-**Images of Unmasked Suspect Emerge as the Police Track C.E.O.’s Killer**\
-`The man sought in the killing of Brian Thompson wore a hood and a smile in surveillance photos. Investigators visited a hostel on the Upper West Side as they mapped his movements.`\
-https://nytimes.com/2024/12/05/nyregion/brian-thompson-uhc-shooting-suspect-search.html
 
