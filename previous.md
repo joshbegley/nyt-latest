@@ -1,3 +1,15 @@
+**Wolves boss O'Neil ignoring talk over his future ahead of West Ham trip**\
+`Wolverhampton Wanderers head coach Gary O&#8217;Neil says he is ignoring talk over his future and is fully focused on Monday night&#8217;s match at West Ham United.`\
+https://nytimes.com/athletic/5971902/2024/12/05/gary-oneil-wolves-manager-future/
+
+**Penguins Today: The American influence that shaped Pittsburgh's NHL history**\
+`Following USA Hockey's Hall of Fame ceremony in Pittsburgh last night, let's go through the most important Americans in Penguins history.`\
+https://nytimes.com/athletic/5971911/2024/12/05/pittsburgh-penguins-nhl-usa-hockey/
+
+**How I Learned to Stop Worrying and Embrace the Horror**\
+`Fictional fear can be beautifully distracting from life’s real terrors.`\
+https://nytimes.com/2024/12/05/special-series/issa-lopez-fear-horror.html
+
 **Bucks' seven-game win streak snapped as old problems return in loss to Hawks**\
 `The issues that plagued the Bucks during their 2-8 start — transition defense, turnovers, defensive rebounding — returned against Atlanta.`\
 https://nytimes.com/athletic/5971577/2024/12/05/giannis-bucks-hawks-streak-snapped/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/05/weather/cold-snow-squall-forecast-updates.html
 **Rebels Storm Another Major City in Syria**\
 `In another startling setback for President Bashar al-Assad, government forces retreated from the city of Hama after rebels advanced.`\
 https://nytimes.com/2024/12/05/world/middleeast/syria-rebel-offensive-hama.html
-
-**Danish clubs fined €1340 for snowball fight between fans**\
-`Danish football clubs Nordsjaelland and AGF have been fined 5,000 kroner (€670, £555) each for a snowball fight involving supporters in a league match.`\
-https://nytimes.com/athletic/5971749/2024/12/05/snowball-fight-nordsjaelland-agf/
-
-**LA Galaxy back in MLS Cup, a decade on from the glory days**\
-`The Beckham and Donovan years seem a long time ago for the LA Galaxy. In Saturday's MLS Cup final, they can turn back the clock`\
-https://nytimes.com/athletic/5967317/2024/12/05/la-galaxy-mls-cup-decade/
-
-**Pantone’s 2025 Color of the Year Is Mocha Mousse**\
-`Is this shade of dusty brown a repudiation of “Brat” green?`\
-https://nytimes.com/2024/12/05/style/pantone-color-mocha-mousse-2025.html
 

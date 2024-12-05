@@ -1,3 +1,15 @@
+**Wolves boss O'Neil ignoring talk over his future ahead of West Ham trip**\
+`Wolverhampton Wanderers head coach Gary O&#8217;Neil says he is ignoring talk over his future and is fully focused on Monday night&#8217;s match at West Ham United.`\
+https://nytimes.com/athletic/5971902/2024/12/05/gary-oneil-wolves-manager-future/
+
+**Penguins Today: The American influence that shaped Pittsburgh's NHL history**\
+`Following USA Hockey's Hall of Fame ceremony in Pittsburgh last night, let's go through the most important Americans in Penguins history.`\
+https://nytimes.com/athletic/5971911/2024/12/05/pittsburgh-penguins-nhl-usa-hockey/
+
+**How I Learned to Stop Worrying and Embrace the Horror**\
+`Fictional fear can be beautifully distracting from life’s real terrors.`\
+https://nytimes.com/2024/12/05/special-series/issa-lopez-fear-horror.html
+
 **Cowboys Today: Mike McCarthy discusses his influence in Dallas; comparing Lamb and Chase**\
 `In response to Dak Prescott's comments about him, Mike McCarthy said, "This is the most input I've ever been a part of as a head coach."`\
 https://nytimes.com/athletic/5971251/2024/12/05/cowboys-today-mike-mccarthy-jerry-jones-ceedee-lamb-jamarr-chase/
