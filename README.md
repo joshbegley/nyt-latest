@@ -1,3 +1,19 @@
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/12/05/books/review/new-books-recommendations.html
+
+**UCLA's Eric Bieniemy out as offensive coordinator: Sources**\
+`UCLA is parting ways with offensive coordinator Eric Bieniemy after one season with the former Kansas City Chiefs assistant leading UCLA&#8217;s offense, two people involved in the decision told The Athletic on Thursday.`\
+https://nytimes.com/athletic/5972435/2024/12/05/uclas-eric-bieniemy-out-as-offensive-coordinator-sources/
+
+**'The Michael Kay Show' will move off afternoons, ending an era in New York radio**\
+`The final afternoon show is expected to be next Friday, Dec. 13.`\
+https://nytimes.com/athletic/5972432/2024/12/05/michael-kay-show-new-york-radio-espn/
+
+**Betting for (by) dummies: Finding new faith in the Bears and picking the MAC title game**\
+`Jon Greenberg and Zac Jackson are focused on the MAC title game, of course, but also have newfound faith in the Bears and Panthers.`\
+https://nytimes.com/athletic/5972335/2024/12/05/football-betting-dummies-bears-miami-ohio/
+
 **‘Hard Truths’ Review: Mike Leigh’s Brutal Comedy**\
 `The British director casts the superb Marianne Jean-Baptiste in the role of an excruciatingly lonely character whose pain reveals hidden depths.`\
 https://nytimes.com/2024/12/05/movies/hard-truths-review-mike-leigh.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/05/world/africa/kenya-edwin-chiloba-murder.html
 **NASA Missions to Return to the Moon Delayed Until 2026 and 2027**\
 `It is unclear where the program, known as Artemis, will head after President-elect Donald J. Trump returns to the White House in January.`\
 https://nytimes.com/2024/12/05/science/nasa-moon-artemis-delayed-2027.html
-
-**A Backpack Maker Believes He Identified the Shooting Suspect’s Bag**\
-`Peter Dering, the founder and chief executive of Peak Design, says he called the N.Y.P.D. tip line on Wednesday after receiving a wave of messages showing the suspect carrying a distinctive backpack.`\
-https://nytimes.com/2024/12/05/nyregion/peak-design-backpack-brian-thompson-shooting.html
-
-**Cowboys' Zack Martin to undergo season-ending ankle surgery**\
-`Martin had missed only 11 games throughout his first 10 NFL seasons.`\
-https://nytimes.com/athletic/5972380/2024/12/05/zack-martin-cowboys-season-ending-ankle-injury/
-
-**Peter B. Teeley, Who Coined the Term ‘Voodoo Economics,’ Dies at 84**\
-`As press secretary for George H.W. Bush, he came up with the expression to attack Ronald Reagan’s economic plan. The term took on a life of its own.`\
-https://nytimes.com/2024/12/05/us/politics/peter-b-teeley-dead.html
-
-**Senator Joni Ernst holds out on Hegseth as his candidacy teeters.**\
-`The Iowa Republican indicated that her private meeting on Wednesday with President-elect Donald J. Trump’s choice to serve as secretary of defense failed to persuade her he was worthy of confirmation.`\
-https://nytimes.com/live/2024/12/05/us/trump-news/senator-joni-ernst-holds-out-on-hegseth-as-his-candidacy-teeters
 
