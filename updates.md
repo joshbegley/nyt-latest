@@ -1,3 +1,11 @@
+**Tsunami warnings were briefly in effect for hundreds of miles along the California and Oregon coast.**\
+`By Mike Baker`\
+https://nytimes.com/live/2024/12/05/us/earthquake-california/tsunami-warnings-were-briefly-in-effect-for-hundreds-of-miles-along-the-california-and-oregon-coast
+
+**What to Do When There’s a Tsunami Warning**\
+`Tsunamis can’t be predicted, but there are steps you can take to stay safe.`\
+https://nytimes.com/article/tsunami-warning-what-to-do.html
+
 **Who Are You Calling ‘You Guys’? Everyone, Actually.**\
 `The story of how a gendered word became a universal pronoun says a lot about how language evolves.`\
 https://nytimes.com/2024/12/05/opinion/you-guys-everyone.html

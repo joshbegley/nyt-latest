@@ -1,3 +1,11 @@
+**Tsunami warnings were briefly in effect for hundreds of miles along the California and Oregon coast.**\
+`By Mike Baker`\
+https://nytimes.com/live/2024/12/05/us/earthquake-california/tsunami-warnings-were-briefly-in-effect-for-hundreds-of-miles-along-the-california-and-oregon-coast
+
+**What to Do When There’s a Tsunami Warning**\
+`Tsunamis can’t be predicted, but there are steps you can take to stay safe.`\
+https://nytimes.com/article/tsunami-warning-what-to-do.html
+
 **Who Are You Calling ‘You Guys’? Everyone, Actually.**\
 `The story of how a gendered word became a universal pronoun says a lot about how language evolves.`\
 https://nytimes.com/2024/12/05/opinion/you-guys-everyone.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/05/us/earthquake-california
 **Club World Cup draw: Inter Miami vs Al Ahly opens tournament, Man City to face Juventus**\
 `The 32 teams playing in the 2025 Club World Cup found out their groups and opponents in the draw in Miami on Thursday.`\
 https://nytimes.com/athletic/5972076/2024/12/05/fifa-club-world-cup-draw-results/
-
-**Live pre-Winter Meetings chat with Red Sox beat writer Jen McCaffrey**\
-`Jen McCaffrey will be chatting live on the site at 1pm ET on Friday, Dec. 6.`\
-https://nytimes.com/athletic/5972637/2024/12/05/live-chat-jen-mccaffrey-red-sox/
-
-**Texas Man Who Killed and Dismembered 3 Is Sentenced to Death**\
-`Jason Alan Thornburg, who lured his victims to a motel room, told the police he was “being called to commit sacrifices,” according to an arrest warrant.`\
-https://nytimes.com/2024/12/05/us/jason-alan-thornburg-death-sentence-texas.html
 
