@@ -1,3 +1,7 @@
+**Here are the latest developments in South Korea.**\
+`By Choe Sang-Hun, John Yoon and Qasim Nauman`\
+https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment/here-are-the-latest-developments-in-south-korea
+
 **NFL, NFLPA agree to policy changes on substance abuse and PEDs**\
 `Players will be fined $15,000 for recording and posting PED testing process on social media. `\
 https://nytimes.com/athletic/5971049/2024/12/04/nfl-nflpa-policy-ped-substance-abuse/

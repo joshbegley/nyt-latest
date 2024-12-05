@@ -15,7 +15,7 @@ https://nytimes.com/2024/12/04/crosswords/daily-puzzle-2024-12-05.html
 https://nytimes.com/2024/12/04/technology/bitcoin-price-record.html
 
 **Here are the latest developments in South Korea.**\
-`By Choe Sang-Hun and Qasim Nauman`\
+`By Choe Sang-Hun, John Yoon and Qasim Nauman`\
 https://nytimes.com/live/2024/12/04/world/south-korea-yoon-impeachment/here-are-the-latest-developments-in-south-korea
 
 **Live Updates: South Korean Lawmakers Question Military Leaders After Failed Crackdown**\
