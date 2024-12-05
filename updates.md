@@ -1,3 +1,11 @@
+**Duke notches needed statement win over No. 2 Auburn as Cooper Flagg stars**\
+`Flagg scored 16 of his game-high 22 points in the second half, to go along with 11 rebounds, four steals, three assists and two blocks.`\
+https://nytimes.com/athletic/5971199/2024/12/05/duke-auburn-cooper-flagg/
+
+**Spurs 'keeper Josh Keeley: 'I didn't expect to score, I've never practised that header'**\
+`The young Spurs 'keeper - on loan at Leyton Orient - scored in the FA Cup on Saturday, but has longer-term goals at his parent club`\
+https://nytimes.com/athletic/5969335/2024/12/05/josh-keeley-orient-spurs-goal-fa-cup/
+
 **Nuno's setup showed where Forest want to be, but unfamiliar failings let him down**\
 `Defeat at the Etihad contained some wasteful finishing and defensive lapses, but Nuno's positive approach should be praised.`\
 https://nytimes.com/athletic/5970478/2024/12/05/nuno-nottingham-forest-man-city/
