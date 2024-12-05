@@ -1,3 +1,7 @@
+**Trumps Picks Banking Executive to Lead Social Security Administration**\
+`Frank Bisignano has spent his career at major Wall Street banks. He has a long history of political giving, mainly to Republicans.`\
+https://nytimes.com/2024/12/04/us/politics/frank-bisignano-social-security.html
+
 **Like Something a Rabbit Might Say**\
 `Garrett Chalfin turns us every which way and teaches us an important lesson.`\
 https://nytimes.com/2024/12/04/crosswords/daily-puzzle-2024-12-05.html
