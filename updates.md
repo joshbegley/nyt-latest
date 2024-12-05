@@ -1,3 +1,15 @@
+**Defiant Hegseth Vows to Keep Fighting as Votes Remain Uncertain**\
+`Donald J. Trump’s choice to lead the Pentagon said he would try to earn every vote so long as he remained the president-elect’s pick, despite continued concern among Republican senators about his past conduct.`\
+https://nytimes.com/2024/12/05/us/politics/pete-hegseth-defense-secretary-fight.html
+
+**Taking a Closer Look at Southern Cooking, One Region at a Time**\
+`With her cookbook, “Our South,” Ashleigh Shanti is one of a few chefs who are focusing closely on regional cuisine — and redefining it in the process.`\
+https://nytimes.com/2024/12/05/dining/chef-ashleigh-shanti-cookbook.html
+
+**Jordan Neely’s Father Sues Daniel Penny, Accusing Him of Assault**\
+`Andre Zachery claims that Mr. Penny, who put Mr. Neely in a chokehold on a subway train last year, caused his son’s death through “negligence, carelessness and recklessness.”`\
+https://nytimes.com/2024/12/05/nyregion/jordan-neely-father-daniel-penny-lawsuit-assault.html
+
 **What effect will 12-team College Football Playoff have on SEC Championship Game?**\
 `What effect will Georgia and Texas facing off in the SEC Championship Game have on the teams in the College Football Playoff?`\
 https://nytimes.com/athletic/5972775/2024/12/05/sec-championship-texas-georgia-greg-sankey/

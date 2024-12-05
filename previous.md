@@ -1,3 +1,15 @@
+**Defiant Hegseth Vows to Keep Fighting as Votes Remain Uncertain**\
+`Donald J. Trump’s choice to lead the Pentagon said he would try to earn every vote so long as he remained the president-elect’s pick, despite continued concern among Republican senators about his past conduct.`\
+https://nytimes.com/2024/12/05/us/politics/pete-hegseth-defense-secretary-fight.html
+
+**Taking a Closer Look at Southern Cooking, One Region at a Time**\
+`With her cookbook, “Our South,” Ashleigh Shanti is one of a few chefs who are focusing closely on regional cuisine — and redefining it in the process.`\
+https://nytimes.com/2024/12/05/dining/chef-ashleigh-shanti-cookbook.html
+
+**Jordan Neely’s Father Sues Daniel Penny, Accusing Him of Assault**\
+`Andre Zachery claims that Mr. Penny, who put Mr. Neely in a chokehold on a subway train last year, caused his son’s death through “negligence, carelessness and recklessness.”`\
+https://nytimes.com/2024/12/05/nyregion/jordan-neely-father-daniel-penny-lawsuit-assault.html
+
 **What effect will 12-team College Football Playoff have on SEC Championship Game?**\
 `What effect will Georgia and Texas facing off in the SEC Championship Game have on the teams in the College Football Playoff?`\
 https://nytimes.com/athletic/5972775/2024/12/05/sec-championship-texas-georgia-greg-sankey/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5972756/2024/12/05/sf-giants-coaching-changes-oscar
 **We Answer Your Very Specific Restaurant Questions**\
 `Neighborhood gems, Mexican bacchanals and more reader requests.`\
 https://nytimes.com/2024/12/05/dining/we-answer-your-very-specific-restaurant-questions.html
-
-**Here’s How Earthquakes Are Measured**\
-`What does “moment magnitude” mean, and how do scientists determine the strength of a rupture in the earth?`\
-https://nytimes.com/2024/12/05/us/earthquakes-measured-magnitude-richter-scale.html
-
-**What Students Are Saying About Teachers Using A.I. to Grade**\
-`Teenagers and educators weigh in on a recent question from The Ethicist.`\
-https://nytimes.com/2024/12/05/learning/what-students-are-saying-about-teachers-using-ai-to-grade.html
-
-**General Motors F1 appoints Graeme Lowdon as Cadillac team principal in 2026**\
-`Lowdon has served as an adviser on the project for two years and is currently Sauber driver Zhou Guanyu’s manager.`\
-https://nytimes.com/athletic/5972741/2024/12/05/graeme-lowdon-gm-f1-cadillac-team-principal/
 
