@@ -1,3 +1,7 @@
+**Old Photos Evoke the Chaos of South Korea’s 1980 Unrest**\
+`Clashes during President Yoon Suk Yeol’s brief imposition of martial law echoed the military’s actions during an earlier political crisis that lasted longer and turned deadly.`\
+https://nytimes.com/2024/12/05/world/asia/photos-1980-south-korea-martial-law.html
+
 **Athletic 2 Madrid 1: Another Mbappe penalty miss, Ancelotti's headache, Bellingham can't save them**\
 `Madrid looked to be improving in La Liga after a humiliating defeat to Barcelona, but this latest defeat brought them down to earth`\
 https://nytimes.com/athletic/5970945/2024/12/05/athletic-club-real-madrid-kylian-mbappe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5970034/2024/12/05/aston-villa-unai-emery-basketbal
 **Newcastle United: Wildly unpredictable, thrilling on transition, utterly headache inducing**\
 `Eddie Howe's side continue to threaten and thrive against the Premier League's best, while labouring against those they might expect to beat`\
 https://nytimes.com/athletic/5968513/2024/12/05/newcastle-liverpool-isak-howe-transition/
-
-**Liverpool showed a rare vulnerability at Newcastle but Slot should not be overly worried**\
-`The league leaders were shaky in defence, have injury problems and wasted chances as, for once, they dropped below their best level`\
-https://nytimes.com/athletic/5970408/2024/12/05/liverpool-newcastle-slot-salah/
 
