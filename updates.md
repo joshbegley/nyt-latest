@@ -1,3 +1,15 @@
+**Bucks' Khris Middleton to make season debut Friday against Celtics**\
+`After offseason procedures on both of his ankles, Middleton missed the first 21 games of the season.`\
+https://nytimes.com/athletic/5957296/2024/12/05/khris-middleton-bucks-return-ankle-injuries-2024/
+
+**Poking Fun at Classical Music, With Wigs, Hula-Hoops and Puns**\
+`After 11 years, Eddy Chen and Brett Yang are moving on from their beloved, enormously popular comedy duo TwoSet Violin.`\
+https://nytimes.com/2024/12/05/arts/music/twoset-violin-farewell.html
+
+**Historic LeBron and Bronny James jerseys sell for $102,000**\
+`The jerseys were from a unique event in NBA history, so should they have sold for more? `\
+https://nytimes.com/athletic/5970930/2024/12/05/jerseys-worn-by-lebron-and-bronny-james-in-historic-first-nba-game-together-sell-for-102000/
+
 **Taylor Swift’s ‘Eras Tour Book’ Sold 814,000 Copies in One Week**\
 `The first week print sales nearly matched Barack Obama’s “A Promised Land,” and put her well ahead of Prince Harry’s “Spare.” And she did it while selling only at Target, avoiding Amazon and bookstores.`\
 https://nytimes.com/2024/12/05/books/taylor-swift-eras-tour-book.html
