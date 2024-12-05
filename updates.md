@@ -1,3 +1,7 @@
+**Cowboys Today: Mike McCarthy discusses his influence in Dallas; comparing Lamb and Chase**\
+`In response to Dak Prescott's comments about him, Mike McCarthy said, "This is the most input I've ever been a part of as a head coach."`\
+https://nytimes.com/athletic/5971251/2024/12/05/cowboys-today-mike-mccarthy-jerry-jones-ceedee-lamb-jamarr-chase/
+
 **Bucks' seven-game win streak snapped as old problems return in loss to Hawks**\
 `The issues that plagued the Bucks during their 2-8 start — transition defense, turnovers, defensive rebounding — returned against Atlanta.`\
 https://nytimes.com/athletic/5971577/2024/12/05/giannis-bucks-hawks-streak-snapped/

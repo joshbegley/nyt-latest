@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5971577/2024/12/05/giannis-bucks-hawks-streak-snapp
 `Israel rejected the charge — the first of its kind by a major human rights organization — saying it was “based on lies.”`\
 https://nytimes.com/2024/12/05/world/middleeast/israel-amnesty-international-genocide-gaza.html
 
+**Cowboys Today: Mike McCarthy discusses his influence in Dallas; comparing Lamb and Chase**\
+`In response to Dak Prescott's comments about him, Mike McCarthy said, "This is the most input I've ever been a part of as a head coach."`\
+https://nytimes.com/athletic/5971251/2024/12/05/cowboys-today-mike-mccarthy-jerry-jones-ceedee-lamb-jamarr-chase/
+
 **Meet the Toronto Tempo: WNBA's 14th team unveils name, logo**\
 `The Toronto Tempo will begin play in the 2026 WNBA season.`\
 https://nytimes.com/athletic/5971787/2024/12/05/wnba-toronto-tempo-new-team-branding/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5967317/2024/12/05/la-galaxy-mls-cup-decade/
 **Pantone’s 2025 Color of the Year Is Mocha Mousse**\
 `Is this shade of dusty brown a repudiation of “Brat” green?`\
 https://nytimes.com/2024/12/05/style/pantone-color-mocha-mousse-2025.html
-
-**DealBook Summit: 2024’s Speakers**\
-`Hear from Jeff Bezos, Sam Altman, Jerome Powell, President Bill Clinton, Alex Cooper, Ken Griffin, Prince Harry and Serena Williams, among others.`\
-https://nytimes.com/2024/12/05/podcasts/dealbook-summit-2024s-speakers.html
 
