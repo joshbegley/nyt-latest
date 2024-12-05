@@ -1,3 +1,7 @@
+**Heat Today: Why Kel'el Ware's G League assignment can prepare him for Miami's rotation**\
+`The rookie 7-footer has attributes the team could use, but Miami prefers to stay patient with its development process.`\
+https://nytimes.com/athletic/5972221/2024/12/05/kelel-ware-miami-heat-g-league-bam-adebayo-nba/
+
 **The Bundesliga's new €4.48bn TV deal: The details, the view in Germany and how it compares**\
 `The Bundesliga have announced the terms of their new TV rights deal for the next four years`\
 https://nytimes.com/athletic/5972169/2024/12/05/bundesliga-tv-contract-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/world/africa/prince-johnson-dead.html
 **Inside F1's extraordinary Abu Dhabi media day as Verstappen, Russell feud erupts**\
 `A normal media day turned into a war of words, re-igniting the Red Bull vs. Mercedes rivalry just as the F1 season wraps up. `\
 https://nytimes.com/athletic/5972035/2024/12/05/max-verstappen-george-russell-f1-abu-dhabi-gp-media-day/
-
-**Kennedy’s Scary Ideas, and Ones Worth Considering**\
-`Readers worry that “our lives are at stake” if he becomes health secretary but also find areas of agreement. Also: Unity, not revenge; criminal justice in New York.`\
-https://nytimes.com/2024/12/05/opinion/robert-f-kennedy-jr-health.html
 
