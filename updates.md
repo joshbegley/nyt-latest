@@ -1,3 +1,7 @@
+**Is Milk Safe? Your Questions About Bird Flu and Dairy, Answered**\
+`Federal officials will soon begin testing the country’s milk supply for the virus. Here’s what to know.`\
+https://nytimes.com/2024/12/06/well/bird-flu-milk.html
+
 **Frankie Montas takes inspiration from Mets' pitching success stories**\
 `Sean Manaea and Luis Severino told their old teammate that New York is a great destination for pitchers looking to rebound.`\
 https://nytimes.com/athletic/5975514/2024/12/06/mets-frankie-montas-free-agency/
