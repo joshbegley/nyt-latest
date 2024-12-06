@@ -1,3 +1,7 @@
+**As Trump Threatens Tariffs, Europe and South America Strengthen Ties**\
+`The European Union and five South American countries have reached an agreement to establish one of the largest trade zones in the world.`\
+https://nytimes.com/2024/12/06/world/europe/eu-trade-deal-mercosur-latin-america.html
+
 **Firefighters Battle Large Lumberyard Fire in Baltimore**\
 `No one was injured or evacuated in the fire, but it prompted the cancellation of Friday classes at two nearby schools.`\
 https://nytimes.com/video/us/100000009862940/lumberyard-fire-baltimore.html

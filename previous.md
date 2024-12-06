@@ -1,3 +1,7 @@
+**As Trump Threatens Tariffs, Europe and South America Strengthen Ties**\
+`The European Union and five South American countries have reached an agreement to establish one of the largest trade zones in the world.`\
+https://nytimes.com/2024/12/06/world/europe/eu-trade-deal-mercosur-latin-america.html
+
 **Firefighters Battle Large Lumberyard Fire in Baltimore**\
 `No one was injured or evacuated in the fire, but it prompted the cancellation of Friday classes at two nearby schools.`\
 https://nytimes.com/video/us/100000009862940/lumberyard-fire-baltimore.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974264/2024/12/06/newcastle-dan-burn-bruno-guimara
 **Raiders’ K’Lavon Chaisson seizing his fresh start, flashing ‘first-round traits’**\
 `Chaisson was a disappointment as a first-round pick in Jacksonville but is playing well in Las Vegas and had a career game on Black Friday.`\
 https://nytimes.com/athletic/5972951/2024/12/06/raiders-klavon-chaisson-fresh-start/
-
-**Fantasy Trends and Hidden Gems: How to handle Gibson, Quick and Demko**\
-`John Gibson is getting more minutes in Anaheim, while Thatcher Demko's return looms for the Canucks.`\
-https://nytimes.com/athletic/5973711/2024/12/06/fantasy-trends-and-hidden-gems-how-to-handle-gibson-quick-and-demko/
 
