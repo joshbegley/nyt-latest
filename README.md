@@ -1,3 +1,7 @@
+**NFL closes probe of latest sexual assault lawsuit against Deshaun Watson**\
+`The Browns quarterback will not face discipline over a lawsuit filed one day after Cleveland's season opener.`\
+https://nytimes.com/athletic/5975419/2024/12/06/nfl-review-deshaun-watson-lawsuit/
+
 **Shane Bieber returns to Cleveland Guardians: Source**\
 `Bieber's contract includes a player option for 2026. He pitched 12 scoreless innings in 2024 before undergoing Tommy John surgery.`\
 https://nytimes.com/athletic/5944046/2024/12/06/shane-bieber-cleveland-guardians-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/us/politics/trump-trade-alliances.html
 **Braves' to-do list entering Winter Meetings seems more urgent than in recent years**\
 `With Spencer Strider not expected back until May, the Braves will be in the market for a proven starting pitcher.`\
 https://nytimes.com/athletic/5975407/2024/12/06/braves-winter-meetings-outlook/
-
-**Rangers and Igor Shesterkin agree to record-setting 8-year, $92 million deal**\
-`Carey Price ($10.5 million average annual value) previously held the record for the largest goalie contract.`\
-https://nytimes.com/athletic/5890691/2024/12/06/igor-shesterkin-contract-extension-ny-rangers-goalie/
 
