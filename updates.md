@@ -1,3 +1,11 @@
+**Firefighters Battle Large Lumberyard Fire in Baltimore**\
+`No one was injured or evacuated in the fire, but it prompted the cancellation of Friday classes at two nearby schools.`\
+https://nytimes.com/video/us/100000009862940/lumberyard-fire-baltimore.html
+
+**Chelsea don't expect Kerr return from injury until February or March**\
+`Chelsea do not expect to have Sam Kerr back for &#8220;at least two or three more months&#8221; as she continues her recovery from an anterior cruciate ligament (ACL) injury.`\
+https://nytimes.com/athletic/5974395/2024/12/06/chelsea-sam-kerr-injury-acl-update/
+
 **Trump Transition Live Updates: Latest Picks Focus on Border and Immigration**\
 ``\
 https://nytimes.com/live/2024/12/06/us/trump-hegseth-news

@@ -1,3 +1,11 @@
+**Firefighters Battle Large Lumberyard Fire in Baltimore**\
+`No one was injured or evacuated in the fire, but it prompted the cancellation of Friday classes at two nearby schools.`\
+https://nytimes.com/video/us/100000009862940/lumberyard-fire-baltimore.html
+
+**Chelsea don't expect Kerr return from injury until February or March**\
+`Chelsea do not expect to have Sam Kerr back for &#8220;at least two or three more months&#8221; as she continues her recovery from an anterior cruciate ligament (ACL) injury.`\
+https://nytimes.com/athletic/5974395/2024/12/06/chelsea-sam-kerr-injury-acl-update/
+
 **Trump Transition Live Updates: Latest Picks Focus on Border and Immigration**\
 ``\
 https://nytimes.com/live/2024/12/06/us/trump-hegseth-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5972951/2024/12/06/raiders-klavon-chaisson-fresh-st
 **Fantasy Trends and Hidden Gems: How to handle Gibson, Quick and Demko**\
 `John Gibson is getting more minutes in Anaheim, while Thatcher Demko's return looms for the Canucks.`\
 https://nytimes.com/athletic/5973711/2024/12/06/fantasy-trends-and-hidden-gems-how-to-handle-gibson-quick-and-demko/
-
-**The Athletic FC: Trump, Infantino combine in Club World Cup draw, Postecoglou confronts fans**\
-`Today in TAFC: The Club World Cup circus, Postecoglou confronts fans after Tottenham's loss to Bournemouth and memories of Goodison Park...`\
-https://nytimes.com/athletic/5974237/2024/12/06/trump-infantino-club-world-cup-postecoglou/
-
-**Heat Today: Bam Adebayo is adjusting to shooting more 3s, but his all-around impact remains**\
-`"He’s a big-time, multiple-effort player that has now added experience to all his skill, and I think that goes a long way.”`\
-https://nytimes.com/athletic/5972481/2024/12/06/bam-adebayo-tyler-herro-miami-heat/
 
