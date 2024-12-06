@@ -1,3 +1,11 @@
+**Wisconsin targeting Jeff Grimes as next offensive coordinator: Source**\
+`Grimes, who spent 2024 at Kansas, is a 30-year veteran who could help Wisconsin return to emphasizing the running game.`\
+https://nytimes.com/athletic/5975570/2024/12/06/wisconsin-targeting-kansas-jeff-grimes-as-badgers-next-offensive-coordinator/
+
+**Major League Soccer to pause games during 2026 World Cup**\
+`Garber confirmed the league will also take off “for a portion” of the Club World Cup in 2025.`\
+https://nytimes.com/athletic/5975519/2024/12/06/major-league-soccer-pause-games-2026-world-cup/
+
 **As Jan. 6 Criminal Cases Against Trump Fizzle, Civil Cases Plod Ahead**\
 `Donald J. Trump has successfully defeated or impeded many legal challenges against him over the storming of the Capitol, but eight lawsuits on the matter remain in the courts.`\
 https://nytimes.com/2024/12/06/us/politics/trump-jan-6-civil-cases.html
