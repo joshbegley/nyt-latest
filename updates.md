@@ -1,3 +1,20 @@
+**FPL: The best Liverpool players to own over the festive period**\
+`Beyond Mohamed Salah, which of the Premier League leaders' defenders and other attackers are worth owning right now?`\
+https://nytimes.com/athletic/5969214/2024/12/06/fantasy-premier-league-liverpool/
+
+**Jackson is Chelsea's presser-in-chief - he has been crucial to their fine start**\
+`Nicolas Jackson leads the pressing for Chelsea — and plays a crucial role in their recent results`\
+https://nytimes.com/athletic/5971510/2024/12/06/nicolas-jackson-chelsea-pressing-analysis/
+
+**Amad at wing-back is a source of joy - for Man Utd fans and Ruben Amorim‌**\
+`Why the young Ivory Coast international could be an ideal solution for the new tactical setup at Manchester United`\
+https://nytimes.com/athletic/5971614/2024/12/06/amad-wing-back-manchester-united/
+
+**Sabres thoughts: How Lindy Ruff is handling losing streak, Thompson's 4 Nations snub and more**\
+`After a 3-2 OT loss to the Jets, the Sabres extend their winless streak to five games and can’t afford to let it get any longer.
+`\
+https://nytimes.com/athletic/5973807/2024/12/06/sabres-lindy-ruff-thompson-injuries/
+
 **Lions top Packers 34-31 after gutsy fourth down conversion: Takeaways**\
 `The Lions picked up their 11th-straight win after quarterback Jared Goff led the Detroit on an 11-play, 53-yard game-winning drive.`\
 https://nytimes.com/athletic/5973539/2024/12/06/packers-lions-tnf-score-result-takeaways/
