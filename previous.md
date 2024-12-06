@@ -1,3 +1,11 @@
+**Israeli Attacks Around Gaza Hospital Kill or Wound Scores, Doctors Say**\
+`Airstrikes, gunfire, panic and orders to evacuate in the dark of night combined to cause heavy casualties in the area of Kamal Adwan, one of the last hospitals still operating in northern Gaza.`\
+https://nytimes.com/2024/12/06/world/middleeast/israeli-attack-gaza-kamal-adwan-hospital.html
+
+**Randy Moss taking leave of absence from 'NFL Countdown' due to health issue**\
+`Moss’ exact diagnosis is unknown. He addressed his issues on Countdown while sporting sunglasses`\
+https://nytimes.com/athletic/5974864/2024/12/06/randy-moss-espn-health-issue-leave-of-absence/
+
 **A One-of-a-Kind Card Fuels a Treasure Hunt for the Ages**\
 `The Pittsburgh Pirates offered 30 years of season tickets in exchange for a Paul Skenes rookie card, and collectors say it could sell for $1 million. First, someone has to find it.`\
 https://nytimes.com/2024/12/06/style/paul-skenes-topps-card.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5961001/2024/12/06/premier-league-predicted-line-up
 **Five Horror Movies to Stream Now**\
 `This month’s picks include a sneaky serial killer, a boy’s vengeance quest and a holiday house of horrors.`\
 https://nytimes.com/2024/12/06/movies/five-horror-movies-to-stream-now.html
-
-**Maitake au Poivre, Peruvian Roast Chicken, Pork Noodle Soup**\
-`Now’s the time for dinners that are simple and delicious and just for you.`\
-https://nytimes.com/2024/12/06/dining/maitake-au-poivre-peruvian-roast-chicken-pork-noodle-soup.html
-
-**NHL Power Rankings: A new No. 1, plus all the 4 Nations snub talk you can handle**\
-`Finding one 4 Nations Face-Off omission from every NHL team.`\
-https://nytimes.com/athletic/5973834/2024/12/06/nhl-power-rankings-4-nations-face-off/
 

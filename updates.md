@@ -1,3 +1,11 @@
+**Israeli Attacks Around Gaza Hospital Kill or Wound Scores, Doctors Say**\
+`Airstrikes, gunfire, panic and orders to evacuate in the dark of night combined to cause heavy casualties in the area of Kamal Adwan, one of the last hospitals still operating in northern Gaza.`\
+https://nytimes.com/2024/12/06/world/middleeast/israeli-attack-gaza-kamal-adwan-hospital.html
+
+**Randy Moss taking leave of absence from 'NFL Countdown' due to health issue**\
+`Moss’ exact diagnosis is unknown. He addressed his issues on Countdown while sporting sunglasses`\
+https://nytimes.com/athletic/5974864/2024/12/06/randy-moss-espn-health-issue-leave-of-absence/
+
 **A One-of-a-Kind Card Fuels a Treasure Hunt for the Ages**\
 `The Pittsburgh Pirates offered 30 years of season tickets in exchange for a Paul Skenes rookie card, and collectors say it could sell for $1 million. First, someone has to find it.`\
 https://nytimes.com/2024/12/06/style/paul-skenes-topps-card.html
