@@ -1,3 +1,7 @@
+**The Pulse: The Super Bowl favorite**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5972355/2024/12/06/lions-packers-the-pulse/
+
 **Arsonists Set Fire to Melbourne Synagogue**\
 `Witnesses saw two people pouring accelerant in the synagogue early Friday, the police said. Australia’s prime minister condemned the attack as antisemitism.`\
 https://nytimes.com/2024/12/06/world/australia/synagogue-fire-melbourne.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972847/2024/12/06/toronto-raptors-tank-nba/
 **NBA All-Disappointment Team: LeBron James, most of the 76ers and more**\
 `Why have the Lakers struggled so much? Well, it seems like the soon-to-be 40-year-old isn't as superhuman as he used to be.`\
 https://nytimes.com/athletic/5973502/2024/12/06/lebron-james-philadelphia-sixers-nba-biggest-disappointments/
-
-**Baggy nets and blue undershirts: 6 more things I miss from the NHL's ancient days**\
-`Let's remember some stuff from the old days of the NHL and lament having lost them.`\
-https://nytimes.com/athletic/5972331/2024/12/06/things-i-miss-from-the-nhl-ancient-days/
 
