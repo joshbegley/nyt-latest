@@ -1,3 +1,7 @@
+**Vitor Roque faces Barcelona courtesy of 'fear clause' absence - but can he prove a point?**\
+`Vitor Roque will face his parent club Barcelona on Saturday afternoon with loan club Real Betis`\
+https://nytimes.com/athletic/5973386/2024/12/06/vitor-roque-barcelona-real-betis/
+
 **Stay or Go Chart**\
 `This is part of a chart that appeared in The New York Times this week. Do you know what it is about?`\
 https://nytimes.com/2024/12/06/learning/stay-or-go-chart.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973473/2024/12/06/tottenham-hotspur-ange-postecogl
 **Word of the Day: schwa**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/06/learning/word-of-the-day-schwa.html
-
-**Brighton are a good team - they need to stop conceding bad goals**\
-`Brighton lost against Fulham on Thursday night, conceding some bad goals in the process`\
-https://nytimes.com/athletic/5965464/2024/12/06/brighton-goals-against-analysis/
 

@@ -1,3 +1,7 @@
+**Vitor Roque faces Barcelona courtesy of 'fear clause' absence - but can he prove a point?**\
+`Vitor Roque will face his parent club Barcelona on Saturday afternoon with loan club Real Betis`\
+https://nytimes.com/athletic/5973386/2024/12/06/vitor-roque-barcelona-real-betis/
+
 **Stay or Go Chart**\
 `This is part of a chart that appeared in The New York Times this week. Do you know what it is about?`\
 https://nytimes.com/2024/12/06/learning/stay-or-go-chart.html
