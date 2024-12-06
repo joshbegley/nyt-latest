@@ -1,3 +1,7 @@
+**Five areas interim coach Anders Sorensen can improve the Blackhawks**\
+`There are some changes Sorensen can make quickly and others that will need more time to improve the Blackhawks.`\
+https://nytimes.com/athletic/5975231/2024/12/06/blackhawks-coach-anders-sorensen/
+
 **MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and, possibly, Roki Sasaki `\
 https://nytimes.com/athletic/5891633/2024/12/06/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
