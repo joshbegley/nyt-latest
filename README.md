@@ -1,3 +1,7 @@
+**How in sync are the Knicks? Look no further than Karl-Anthony Towns' bloody shorts**\
+`The Knicks move the ball with the best of them, and it's easy on the eyes. `\
+https://nytimes.com/athletic/5973782/2024/12/06/knicks-hornets-karl-anthony-towns/
+
 **Flyers and Matvei Michkov show their resiliency, but team must learn from late mistakes**\
 `After digging themselves out of a 3-0 hole against the Panthers, the Flyers let things slip away late in a 7-5 loss.`\
 https://nytimes.com/athletic/5973801/2024/12/06/flyers-resilient-panthers-michkov-farabee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973539/2024/12/06/packers-lions-tnf-score-result-t
 **Jackson is Chelsea's presser-in-chief - he has been crucial to their fine start**\
 `Nicolas Jackson leads the pressing for Chelsea — and plays a crucial role in their recent results`\
 https://nytimes.com/athletic/5971510/2024/12/06/nicolas-jackson-chelsea-pressing-analysis/
-
-**Amad at wing-back is a source of joy - for Man Utd fans and Ruben Amorim‌**\
-`Why the young Ivory Coast international could be an ideal solution for the new tactical setup at Manchester United`\
-https://nytimes.com/athletic/5971614/2024/12/06/amad-wing-back-manchester-united/
 
