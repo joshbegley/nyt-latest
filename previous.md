@@ -1,3 +1,7 @@
+**In First Post-Election Speech, Obama Calls for ‘Forging Alliances and Building Coalitions’**\
+`“Purity tests are not a recipe for long-term success,” the former president said in the speech in Chicago.`\
+https://nytimes.com/2024/12/05/us/obama-speech-chicago.html
+
 **A Miracle: Notre-Dame’s Astonishing Rebirth From the Ashes**\
 `Five years after a fire nearly felled the cathedral that has dazzled visitors for almost 900 years, the heart of Paris beats anew.`\
 https://nytimes.com/interactive/2024/12/05/arts/design/notre-dame-reopens-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973372/2024/12/05/matt-chapman-giants-shortstop-ha
 **Avett Brothers Musical ‘Swept Away’ to Close on Broadway After Short Run**\
 `The new musical, about a shipwreck and its aftermath, opened Nov. 19 at the Longacre Theater.`\
 https://nytimes.com/2024/12/05/theater/swept-away-broadway-closing.html
-
-**Head of Secret Service and Congressman Get Into Shouting Match at Hearing**\
-`The agency’s acting director took offense when a Texas representative questioned him about where he was standing in a photo commemorating the Sept. 11 attacks.`\
-https://nytimes.com/2024/12/05/us/politics/ronald-rowe-pat-fallon-trump-assassination.html
 

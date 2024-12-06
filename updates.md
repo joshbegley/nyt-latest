@@ -1,3 +1,7 @@
+**In First Post-Election Speech, Obama Calls for ‘Forging Alliances and Building Coalitions’**\
+`“Purity tests are not a recipe for long-term success,” the former president said in the speech in Chicago.`\
+https://nytimes.com/2024/12/05/us/obama-speech-chicago.html
+
 **A Miracle: Notre-Dame’s Astonishing Rebirth From the Ashes**\
 `Five years after a fire nearly felled the cathedral that has dazzled visitors for almost 900 years, the heart of Paris beats anew.`\
 https://nytimes.com/interactive/2024/12/05/arts/design/notre-dame-reopens-paris.html
