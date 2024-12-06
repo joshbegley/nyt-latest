@@ -1,3 +1,7 @@
+**Braves' to-do list entering Winter Meetings seems more urgent than in recent years**\
+`With Spencer Strider not expected back until May, the Braves will be in the market for a proven starting pitcher.`\
+https://nytimes.com/athletic/5975407/2024/12/06/braves-winter-meetings-outlook/
+
 **Rangers, Igor Shesterkin agree to record-setting deal**\
 `Carey Price ($10.5 million average annual value) previously held the record for the largest goalie contract.`\
 https://nytimes.com/athletic/5890691/2024/12/06/igor-shesterkin-contract-extension-ny-rangers-goalie/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/world/middleeast/syrias-frozen-conflict-is-now-re
 **As Syrian Rebel Advance Accelerates, Nervous Neighbors Close Their Borders**\
 `The rebels’ gains prompted Lebanon and Jordan to close border crossings and Israel to reinforce its forces in the Golan Heights.`\
 https://nytimes.com/2024/12/06/world/middleeast/syria-rebels-damascus-iran.html
-
-**Review: William Kentridge’s Collaged Fever Dream of Shostakovich**\
-`Kentridge’s film played over Shostakovich’s 10th symphony at a New York Philharmonic concert led by Keri-Lynn Wilson.`\
-https://nytimes.com/2024/12/06/arts/dance/review-william-kentridge-shostakovich-new-york-philharmonic.html
 
