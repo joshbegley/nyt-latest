@@ -1,3 +1,7 @@
+**Trump Transition Live Updates: Latest Picks Focus on Border and Immigration**\
+``\
+https://nytimes.com/live/2024/12/06/us/trump-hegseth-news
+
 **Why the Seahawks are searching for short-yardage success amid playoff push**\
 `If Seattle wants to stay atop the NFC West, it needs better production in short-yardage situations.`\
 https://nytimes.com/athletic/5973139/2024/12/06/seattle-seahawks-arizona-cardinals-week-14-geno-smith/
