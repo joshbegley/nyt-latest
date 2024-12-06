@@ -1,3 +1,15 @@
+**Lewis Hamilton’s final F1 lap with Mercedes: A year of challenges, a decade of triumphs**\
+`Lewis Hamilton's Mercedes era closes this weekend. At the end of a tough 2024, driver and team are committed to a warm ending. `\
+https://nytimes.com/athletic/5974648/2024/12/06/lewis-hamilton-final-mercedes-race-f1-ferrari/
+
+**Fantasy football flex fliers: Elijah Moore, MVS look good for Week 14**\
+`Scott Engel gives last-minute lineup advice for anyone wondering who to grab in free agency for Week 14. `\
+https://nytimes.com/athletic/5974510/2024/12/06/nfl-fantasy-football-flex-fliers-week-14/
+
+**In Japan, Designers Fit Big Ideas Into Tiny Homes**\
+`Some newer houses around the country are barely wider than a common family car.`\
+https://nytimes.com/2024/12/06/realestate/tiny-homes-japan.html
+
 **The Consumer Bureau Is Likely Here to Stay, but Big Changes Await**\
 `Republicans are unlikely to abolish the Consumer Financial Protection Bureau, but they will drastically rework its rules and activities.`\
 https://nytimes.com/2024/12/06/us/politics/cfpb-republicans-rohit-chopra.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5974864/2024/12/06/randy-moss-espn-health-issue-lea
 **A One-of-a-Kind Card Fuels a Treasure Hunt for the Ages**\
 `The Pittsburgh Pirates offered 30 years of season tickets in exchange for a Paul Skenes rookie card, and collectors say it could sell for $1 million. First, someone has to find it.`\
 https://nytimes.com/2024/12/06/style/paul-skenes-topps-card.html
-
-**Melania Trump Credits Barron Trump With Helping His Father Win**\
-`“He was very vocal” in advising his father on appearing with media personalities popular with young people, Melania Trump said on the morning show “Fox & Friends.”`\
-https://nytimes.com/2024/12/06/us/politics/melania-trump-barron-trump-election-win.html
-
-**The Stewards of Czech Musical Heritage Return to Carnegie Hall**\
-`Over three nights, the Czech Philharmonic presented Dvorak’s concertos and more, including a rare performance of Janacek’s “Glagolitic Mass.”`\
-https://nytimes.com/2024/12/06/arts/music/czech-philharmonic-carnegie-hall.html
-
-**Is a Stars spending spree coming with Tyler Seguin out long-term? Catching up with GM Jim Nill**\
-`If the Stars determine Seguin will be out for the rest of the regular season, they can put him and his $9.85 million cap hit on LTIR.`\
-https://nytimes.com/athletic/5974445/2024/12/06/stars-trades-tyler-seguin-jim-nill/
 
