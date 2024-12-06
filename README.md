@@ -1,3 +1,7 @@
+**The true wonder of Wemby, managing Jokic's minutes and big games, big leads: NBA notebook**\
+`Can the Nuggets afford to play Jokić this much? Can they afford not to?`\
+https://nytimes.com/athletic/5970276/2024/12/06/victor-wembanyama-nikola-jokic-nba-notebook/
+
 **The Pulse: The Super Bowl favorite**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5972355/2024/12/06/lions-packers-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973048/2024/12/06/vikings-falcons-preview-predicti
 **Koreen: Raptors rebuild is about more than just tanking and draft position**\
 `High draft picks are important for rebuilding teams, but so are chances at evaluation and building cohesion.`\
 https://nytimes.com/athletic/5972847/2024/12/06/toronto-raptors-tank-nba/
-
-**NBA All-Disappointment Team: LeBron James, most of the 76ers and more**\
-`Why have the Lakers struggled so much? Well, it seems like the soon-to-be 40-year-old isn't as superhuman as he used to be.`\
-https://nytimes.com/athletic/5973502/2024/12/06/lebron-james-philadelphia-sixers-nba-biggest-disappointments/
 
