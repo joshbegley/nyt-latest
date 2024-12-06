@@ -1,3 +1,7 @@
+**Rangers and Igor Shesterkin agree to record-setting 8-year, $92 million deal**\
+`Carey Price ($10.5 million average annual value) previously held the record for the largest goalie contract.`\
+https://nytimes.com/athletic/5890691/2024/12/06/igor-shesterkin-contract-extension-ny-rangers-goalie/
+
 **Shuntaro Tanikawa, Poet and Translator of ‘Peanuts,’ Dies at 92**\
 `A perennial front-runner for the Nobel Prize in Literature, he was a revered figure in Japan, not just in literary circles but also among casual readers.`\
 https://nytimes.com/2024/12/06/books/shuntaro-tanikawa-dead.html

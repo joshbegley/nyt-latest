@@ -10,7 +10,7 @@ https://nytimes.com/2024/12/06/us/politics/trump-trade-alliances.html
 `With Spencer Strider not expected back until May, the Braves will be in the market for a proven starting pitcher.`\
 https://nytimes.com/athletic/5975407/2024/12/06/braves-winter-meetings-outlook/
 
-**Rangers, Igor Shesterkin agree to record-setting deal**\
+**Rangers and Igor Shesterkin agree to record-setting 8-year, $92 million deal**\
 `Carey Price ($10.5 million average annual value) previously held the record for the largest goalie contract.`\
 https://nytimes.com/athletic/5890691/2024/12/06/igor-shesterkin-contract-extension-ny-rangers-goalie/
 
