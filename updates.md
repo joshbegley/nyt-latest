@@ -1,3 +1,11 @@
+**The Growing Cost of Making C.E.O.s Safe**\
+`The tragic killing of UnitedHealthCare’s Brian Thompson has spurred companies to ratchet up security for their most senior executives.`\
+https://nytimes.com/2024/12/06/business/dealbook/cost-anxiety-ceo-safety.html
+
+**Syrian Rebels Push South, Despite Efforts to Slow Them**\
+`Government forces are trying to cut off the road that connects the major cities of Hama, which the insurgents have captured, and Homs, which lies on a crucial land corridor.`\
+https://nytimes.com/2024/12/06/world/middleeast/syria-rebels-hama-homs.html
+
 **The Athletic’s Friday football quiz question #33**\
 `Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/5974322/2024/12/06/the-athletic-friday-football-quiz-question-33/
