@@ -1,3 +1,7 @@
+**As Syrian Rebel Advance Accelerates, Nervous Neighbors Close Their Borders**\
+`The rebels’ gains prompted Lebanon and Jordan to close border crossings and Israel to reinforce its forces in the Golan Heights.`\
+https://nytimes.com/2024/12/06/world/middleeast/syria-rebels-damascus-iran.html
+
 **Review: William Kentridge’s Collaged Fever Dream of Shostakovich**\
 `Kentridge’s film played over Shostakovich’s 10th symphony at a New York Philharmonic concert led by Keri-Lynn Wilson.`\
 https://nytimes.com/2024/12/06/arts/dance/review-william-kentridge-shostakovich-new-york-philharmonic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/us/texas-house-speaker-dade-phelan.html
 **How Much Did Trump, Biden and Harris Raise? A Stunning $4.7 Billion.**\
 `That figure, which includes totals from the three presidential contenders’ main allied groups, emerged in the final federal filings of a staggeringly expensive campaign.`\
 https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-fundraising.html
-
-**Rays agree to 1-year deal with Danny Jansen**\
-`Jansen will reportedly receive $8.5 million in 2025, with a mutual option for the 2026 season. `\
-https://nytimes.com/athletic/5975197/2024/12/06/danny-jansen-tampa-bay-rays-deal/
 
