@@ -1,3 +1,11 @@
+**Logan Webb attends sentencing for drug dealer convicted of murdering his cousin**\
+`We hope our family's story can help save lives," said Logan Webb, who is using his platform to teach about the dangers of fentanyl.`\
+https://nytimes.com/athletic/5973413/2024/12/05/sf-giants-logan-webb-drug-dealer-sentencing/
+
+**Tsunami Warning in San Francisco ‘Felt Like a Science Fiction Movie’**\
+`Many Bay Area residents raced away from the ocean after a jolting cellphone alert warned, “You are in danger.” Others raced toward it.`\
+https://nytimes.com/2024/12/05/us/tsunami-warning-san-francisco.html
+
 **Why Was a Tsunami Warning Issued, and Then Canceled? A Forecaster Explains.**\
 `The warning was sent in response to a 7.0-magnitude that struck off the coast of Northern California. A tsunami warning coordinator described the process.`\
 https://nytimes.com/2024/12/05/us/california-tsunami-warning.html
