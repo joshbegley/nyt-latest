@@ -1,3 +1,7 @@
+**Trump and Infantino: Club World Cup draw becomes a tale of two presidents**\
+`If its draw ceremony is any indicator, the Club World Cup might get a little weird`\
+https://nytimes.com/athletic/5973331/2024/12/06/trump-infantino-club-world-cup/
+
 **Blue Jackets' goal challenge backfires as penalty-kill woes spell doom again**\
 `Columbus thought it was 100 percent correct on its challenge. Instead, it allowed a power-play goal for the 11th straight game.`\
 https://nytimes.com/athletic/5973755/2024/12/06/blue-jackets-goal-challenge-penalty-kill/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973899/2024/12/06/utah-state-bronco-mendenhall-hir
 **FPL: The best Liverpool players to own over the festive period**\
 `Beyond Mohamed Salah, which of the Premier League leaders' defenders and other attackers are worth owning right now?`\
 https://nytimes.com/athletic/5969214/2024/12/06/fantasy-premier-league-liverpool/
-
-**Lions top Packers 34-31 after gutsy fourth down conversion: Takeaways**\
-`The Lions picked up their 11th-straight win after quarterback Jared Goff led the Detroit on an 11-play, 53-yard game-winning drive.`\
-https://nytimes.com/athletic/5973539/2024/12/06/packers-lions-tnf-score-result-takeaways/
 
