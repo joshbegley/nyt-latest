@@ -1,3 +1,11 @@
+**NHL trade grades: Jacob Trouba deal is a no-brainer for Rangers, an opportunity for Ducks**\
+`Did the Ducks make a mistake in taking on Trouba's full salary, or will this turn into a wise move later?`\
+https://nytimes.com/athletic/5975311/2024/12/06/nhl-trade-grades-jacob-trouba-deal-is-a-no-brainer-for-rangers-an-opportunity-for-ducks/
+
+**A House Where Every Republican Will Be in Charge**\
+`And you thought this congressional term was a little nuts?`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/johnson-house-majority-narrow
+
 **Leader of Syria’s Resurgent Rebels Lays Out Strategy to Oust Assad**\
 `In an interview, Abu Mohammad al-Jolani, the Islamist rebel heading an offensive moving toward Damascus, said the operation was a long time coming.`\
 https://nytimes.com/2024/12/06/world/middleeast/syria-rebel-leader-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5975129/2024/12/06/jets-cj-mosley-breece-hall-sauce
 **'Holy Grail' Wayne Gretzky rookie card case sells for record $2.52 million**\
 `An unopened case of vintage hockey cards has been sold for a second time this year, but there may be more yet to come`\
 https://nytimes.com/athletic/5975028/2024/12/06/wayne-gretzky-rookie-card-auction-sale/
-
-**Trump’s Treasury Pick Isn’t Alarming, but He Is Unusual**\
-`Some of Scott Bessent’s economic views are outside the mainstream. But at least he’s qualified.`\
-https://nytimes.com/2024/12/06/opinion/scott-bessent-treasury-trump.html
-
-**Fact-Checkers Cannot Save Us**\
-`In our interconnected modern world, education is critical in the fight against disinformation.`\
-https://nytimes.com/2024/12/06/special-series/disinformation-social-media-facts.html
 
