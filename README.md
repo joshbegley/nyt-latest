@@ -1,6 +1,10 @@
+**Political Turmoil Adds to South Korea’s Economic Woes**\
+`Even before a short-lived declaration of martial law thrust the country into crisis, the economy faced grim prospects.`\
+https://nytimes.com/2024/12/06/business/south-korea-economy-martial-law.html
+
 **'It's starting to get real': Cleveland Cavaliers' dream season a straight shot**\
 `The Cavs just gave up 76 points in the paint … and won comfortably. They made 22 3s to the Nuggets' six in a 126-114 triumph.`\
-https://nytimes.com/athletic/5973720/2024/12/06/cleveland-cavaliers-dream-season-starting-to-get-real/
+https://nytimes.com/athletic/5973720/2024/12/06/cleveland-cavaliers-dream-season-denver-nuggets/
 
 **United, Forest and a youth record 8,342 games in the making**\
 `Two clubs with a proud history of promoting youth meet at Old Trafford tomorrow, but how long can their records sustain?`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972226/2024/12/06/arsenal-stoke-dimitar-berbatov-a
 **Britain’s Starmer Is Trying to Fight Populism From the Lonely Center**\
 `One of the last centrist leaders left on the global stage, Prime Minister Keir Starmer this week outlined his plan to deliver change for people in the U.K. Will it be enough?`\
 https://nytimes.com/2024/12/06/world/europe/uk-starmer-populism-labour-farage.html
-
-**Inside ‘Rail Force One’: The Trains That Take World Leaders to Ukraine**\
-`With airspace closed and missiles flying, visiting Kyiv typically means 10 hours on bumpy tracks — even for presidents, prime ministers and business magnates. It’s plenty of time to reflect.`\
-https://nytimes.com/2024/12/06/world/europe/inside-rail-force-one-the-trains-that-take-world-leaders-to-ukraine.html
 
