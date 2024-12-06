@@ -1,3 +1,7 @@
+**Jokić records 139th triple-double, breaking tie with Magic for third-most**\
+`Nikola Jokić was temporarily tied with Magic Johnson but now stands alone behind only Oscar Robertson and teammate Russell Westbrook.`\
+https://nytimes.com/athletic/5963504/2024/12/05/nikola-jokic-triple-double-record-nba/
+
 **In First Post-Election Speech, Obama Calls for ‘Forging Alliances and Building Coalitions’**\
 `“Purity tests are not a recipe for long-term success,” the former president said in the speech in Chicago.`\
 https://nytimes.com/2024/12/05/us/obama-speech-chicago.html
