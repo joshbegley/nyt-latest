@@ -1,3 +1,11 @@
+**Cash App Wades Into the Exclusive World of Presale Concert Tickets**\
+`Legacy credit cards and banks aren’t the only banking options to come with perks for premium access to events anymore.`\
+https://nytimes.com/2024/12/06/business/kendrick-lamar-sza-tour-cash-app.html
+
+**Syria’s ‘Frozen Conflict’ Is Now Red Hot**\
+`When equilibriums are disrupted, chaos can ensue.`\
+https://nytimes.com/2024/12/06/world/middleeast/syrias-frozen-conflict-is-now-red-hot.html
+
 **As Syrian Rebel Advance Accelerates, Nervous Neighbors Close Their Borders**\
 `The rebels’ gains prompted Lebanon and Jordan to close border crossings and Israel to reinforce its forces in the Golan Heights.`\
 https://nytimes.com/2024/12/06/world/middleeast/syria-rebels-damascus-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/world/middleeast/syria-rebel-leader-interview.htm
 **Ron O’Brien, 86, Dies; Coached Louganis and Other Diving Champs**\
 `His divers won more than 300 medals at major domestic and international competitions, including a dozen at the Olympics.`\
 https://nytimes.com/2024/12/06/sports/ron-obrien-dead.html
-
-**Texas House Speaker, Targeted by the Right, Drops Bid for Another Term**\
-`In the long-running war inside the Texas G.O.P., Dade Phelan survived a primary against a Trump-backed novice. But his increasingly conservative caucus turned against him.`\
-https://nytimes.com/2024/12/06/us/texas-house-speaker-dade-phelan.html
-
-**How Much Did Trump, Biden and Harris Raise? A Stunning $4.7 Billion.**\
-`That figure, which includes totals from the three presidential contenders’ main allied groups, emerged in the final federal filings of a staggeringly expensive campaign.`\
-https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-fundraising.html
 
