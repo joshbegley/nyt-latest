@@ -1,3 +1,7 @@
+**Why Was a Tsunami Warning Issued, and Then Canceled? A Forecaster Explains.**\
+`The warning was sent in response to a 7.0-magnitude that struck off the coast of Northern California. A tsunami warning coordinator described the process.`\
+https://nytimes.com/2024/12/05/us/california-tsunami-warning.html
+
 **Giants' Matt Chapman open to temporary move to shortstop**\
 `Kim, a free-agent shortstop, is expected to miss at least the early part of the 2025 season and possibly the entire first half.`\
 https://nytimes.com/athletic/5973372/2024/12/05/matt-chapman-giants-shortstop-ha-seong-kim/
