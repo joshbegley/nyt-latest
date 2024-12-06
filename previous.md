@@ -1,3 +1,7 @@
+**A One-of-a-Kind Card Fuels a Treasure Hunt for the Ages**\
+`The Pittsburgh Pirates offered 30 years of season tickets in exchange for a Paul Skenes rookie card, and collectors say it could sell for $1 million. First, someone has to find it.`\
+https://nytimes.com/2024/12/06/style/paul-skenes-topps-card.html
+
 **Melania Trump Credits Barron Trump With Helping His Father Win**\
 `“He was very vocal” in advising his father on appearing with media personalities popular with young people, Melania Trump said on the morning show “Fox & Friends.”`\
 https://nytimes.com/2024/12/06/us/politics/melania-trump-barron-trump-election-win.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/dining/maitake-au-poivre-peruvian-roast-chicken-p
 **NHL Power Rankings: A new No. 1, plus all the 4 Nations snub talk you can handle**\
 `Finding one 4 Nations Face-Off omission from every NHL team.`\
 https://nytimes.com/athletic/5973834/2024/12/06/nhl-power-rankings-4-nations-face-off/
-
-**Texas mascot Bevo won't attend SEC championship game**\
-`Bevo XV weighs over 1,700 pounds and has a horn span of 58 inches, though his horns will continue to grow throughout his life.`\
-https://nytimes.com/athletic/5974606/2024/12/06/texas-mascot-bevo-sec-championship/
 
