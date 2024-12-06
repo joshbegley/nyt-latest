@@ -1,3 +1,7 @@
+**Arsonists Set Fire to Melbourne Synagogue**\
+`Witnesses saw two people pouring accelerant in the synagogue early Friday, the police said. Australia’s prime minister condemned the attack as antisemitism.`\
+https://nytimes.com/2024/12/06/world/australia/synagogue-fire-melbourne.html
+
 **Court Vision: Crown SEC as nation's top league. Big picture is bleak for ACC**\
 `Four of the top five teams lost in one week? That means there doesn't seem to be an elite tier this season.`\
 https://nytimes.com/athletic/5973352/2024/12/06/court-vision-college-basketball-sec-acc-top-conference/

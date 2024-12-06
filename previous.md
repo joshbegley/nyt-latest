@@ -1,3 +1,7 @@
+**Arsonists Set Fire to Melbourne Synagogue**\
+`Witnesses saw two people pouring accelerant in the synagogue early Friday, the police said. Australia’s prime minister condemned the attack as antisemitism.`\
+https://nytimes.com/2024/12/06/world/australia/synagogue-fire-melbourne.html
+
 **Court Vision: Crown SEC as nation's top league. Big picture is bleak for ACC**\
 `Four of the top five teams lost in one week? That means there doesn't seem to be an elite tier this season.`\
 https://nytimes.com/athletic/5973352/2024/12/06/court-vision-college-basketball-sec-acc-top-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973502/2024/12/06/lebron-james-philadelphia-sixers
 **Baggy nets and blue undershirts: 6 more things I miss from the NHL's ancient days**\
 `Let's remember some stuff from the old days of the NHL and lament having lost them.`\
 https://nytimes.com/athletic/5972331/2024/12/06/things-i-miss-from-the-nhl-ancient-days/
-
-**Jay Woodcroft? Todd McLellan? Bruce Boudreau? 10 possible candidates to be the Blackhawks' next coach**\
-`Interim coach Anders Sorensen likely will have a chance to earn the full-time job, but these coaches might also be considered.`\
-https://nytimes.com/athletic/5973630/2024/12/06/blackhawks-next-coach-woodcroft-mclellan-boudreau/
 
