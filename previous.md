@@ -1,3 +1,7 @@
+**Woman Who Fell Into Sinkhole Is Found Dead**\
+`After searching since Tuesday, the authorities in Unity Township, Pa., on Friday found the body of Elizabeth Pollard, 64, who disappeared while searching for her cat.`\
+https://nytimes.com/2024/12/06/us/elizabeth-pollard-sinkhole-dead.html
+
 **Eric Adams Doesn’t Rule Out Becoming a Republican Again**\
 `The Democratic mayor of New York City has embraced President-elect Donald J. Trump lately. He was a registered Republican in the 1990s.`\
 https://nytimes.com/2024/12/06/nyregion/eric-adams-republican.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974753/2024/12/06/emma-raducanu-tennis-team-fitnes
 **The Rage and Glee That Followed a C.E.O.’s Killing Should Ring All Alarms**\
 `It echoes another era of extreme inequality and extreme violence.`\
 https://nytimes.com/2024/12/06/opinion/united-health-care-ceo-shooting.html
-
-**Eight takeaways after Blackhawks GM Kyle Davidson explains Luke Richardson firing**\
-`When did Davidson make the decision to change coaches, and what feedback did he get from ownership?`\
-https://nytimes.com/athletic/5974962/2024/12/06/blackhawks-gm-davidson-richardson/
 
