@@ -1,3 +1,7 @@
+**On Georgia's recruiting, CFP scenarios, the SEC championship and the transfer portal**\
+`What to make of Georgia's big week with recruiting, the SEC Championship Game, the College Football Playoff and the transfer portal.`\
+https://nytimes.com/athletic/5975000/2024/12/06/georgia-football-sec-championship-cfp-transfer-portal/
+
 **Woman Who Fell Into Sinkhole Is Found Dead**\
 `After searching since Tuesday, the authorities in Unity Township, Pa., on Friday found the body of Elizabeth Pollard, 64, who disappeared while searching for her cat.`\
 https://nytimes.com/2024/12/06/us/elizabeth-pollard-sinkhole-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/special-series/impressionism-art-beatriz-milhazes
 **'I can become one of the best athletes in tennis': Emma Raducanu confirms new fitness coach**\
 `The 2021 U.S. Open champion is bidding for a first injury-free season since her Grand Slam breakthrough.`\
 https://nytimes.com/athletic/5974753/2024/12/06/emma-raducanu-tennis-team-fitness-coach/
-
-**The Rage and Glee That Followed a C.E.O.’s Killing Should Ring All Alarms**\
-`It echoes another era of extreme inequality and extreme violence.`\
-https://nytimes.com/2024/12/06/opinion/united-health-care-ceo-shooting.html
 
