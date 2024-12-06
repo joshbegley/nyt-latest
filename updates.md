@@ -1,3 +1,15 @@
+**The Athletic’s Friday football quiz question #33**\
+`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/5974322/2024/12/06/the-athletic-friday-football-quiz-question-33/
+
+**Live Q&A: FPL Gameweek 15 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 15 Q&A between 4-5pm UK time `\
+https://nytimes.com/athletic/5969810/2024/12/06/fantasy-premier-league-live-qa-fpl-gameweek-15-advice-from-ben-dinnery/
+
+**Why Michael Thornbjornsen reminds one insider of Dustin Johnson**\
+`Thorbjornsen, who has full tour status through PGA Tour U, finished up the fall with a pair of top 10s to build momentum into 2025.`\
+https://nytimes.com/athletic/5972959/2024/12/06/michael-thorbjornsen-pga-tour-stanford-golf/
+
 **Was Brian Thompson’s Killer a Hit Man? Unlikely, Experts Say.**\
 `The murder of Brian Thompson did not appear to have been committed by a coldly calculating professional, according to people who study criminal behavior.`\
 https://nytimes.com/2024/12/06/nyregion/brian-thompson-killer-hit-man.html
