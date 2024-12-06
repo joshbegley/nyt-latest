@@ -1,3 +1,23 @@
+**Court Vision: Crown SEC as nation's top league. Big picture is bleak for ACC**\
+`Four of the top five teams lost in one week? That means there doesn't seem to be an elite tier this season.`\
+https://nytimes.com/athletic/5973352/2024/12/06/court-vision-college-basketball-sec-acc-top-conference/
+
+**Fed officials are likely to closely watch the unemployment rate.**\
+`Central bankers are trying to figure out whether to cut interest rates in December. This is one of the last big data points they will see.`\
+https://nytimes.com/live/2024/12/06/business/jobs-report-november-economy/fed-officials-are-likely-to-closely-watch-the-unemployment-rate
+
+**November Jobs Report: What to Watch For**\
+`Economists expect the data to show a gain of 215,000 jobs, a big rebound from October, when storms in the Southeast and a major strike disrupted work.`\
+https://nytimes.com/live/2024/12/06/business/jobs-report-november-economy
+
+**Charles Omenihu is back from injury and vowing to return to form for Chiefs defense**\
+`Returning from a torn ACL, Omenihu helped the Chiefs defense get a fourth-down stop and three sacks on Sunday.`\
+https://nytimes.com/athletic/5973012/2024/12/06/chiefs-charles-omenihu-return-from-injury/
+
+**Thomas Brown's chances to stay? Trade for a coach? Bears mailbag, plus Week 14 picks**\
+`What would it take for Brown to be the Bears' head coach? What's Keenan Allen's future in Chicago? Mailbag, plus our Sunday picks.`\
+https://nytimes.com/athletic/5973230/2024/12/06/bears-mailbag-thomas-brown-49ers/
+
 **Vikings-Falcons preview, predictions: Can Minnesota spoil Kirk Cousins' return?**\
 `Can the talented Vikings defense keep Cousins, Bijan Robinson and Drake London in check for 60 minutes on Sunday? `\
 https://nytimes.com/athletic/5973048/2024/12/06/vikings-falcons-preview-predictions-kirk-cousins/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5972331/2024/12/06/things-i-miss-from-the-nhl-ancie
 **Jay Woodcroft? Todd McLellan? Bruce Boudreau? 10 possible candidates to be the Blackhawks' next coach**\
 `Interim coach Anders Sorensen likely will have a chance to earn the full-time job, but these coaches might also be considered.`\
 https://nytimes.com/athletic/5973630/2024/12/06/blackhawks-next-coach-woodcroft-mclellan-boudreau/
-
-**NBA trends we're watching: LeBron's struggles, Hawks' bet, The Moussa Diabaté Show**\
-`We're tracking a struggling four-time MVP, a forgotten draft pick gaining importance and a little-known rebounding menace.`\
-https://nytimes.com/athletic/5973596/2024/12/06/nba-lakers-struggles-hawks-moussa-diabate/
-
-**Packers drop 'clash of the titans' to Lions on a night the defense faltered**\
-`Green Bay fell to 9-4 on Thursday night after a 34-31 loss to the Lions in Detroit.`\
-https://nytimes.com/athletic/5974079/2024/12/06/packers-lions-nfc-north-tnf/
-
-**Who will be the next Chicago Bears head coach? The money's on ...**\
-`Who would you bet on to be coaching the Bears in 2025? Ben Fawkes breaks down the odds and Jon Greenberg discusses how he would wager on it.`\
-https://nytimes.com/athletic/5972203/2024/12/06/bears-head-coach-betting-odds-predictions/
-
-**Steelers CB Joey Porter Jr. looks to limit flags without sacrificing strengths**\
-`Second-year cornerback has confidence of Coach Mike Tomlin as he continues to refine his skills for AFC North-leading Pittsburgh.`\
-https://nytimes.com/athletic/5972492/2024/12/06/steelers-joey-porter-jr-reducing-flags/
-
-**Michigan landing Bryce Underwood took a billionaire, an aggressive plan — and a new approach**\
-`Even a year ago, the idea of Michigan pulling out the financial stops to land the top recruit would have seemed preposterous.`\
-https://nytimes.com/athletic/5972995/2024/12/06/michigan-football-bryce-underood-recruiting/
 
