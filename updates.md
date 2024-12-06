@@ -1,3 +1,11 @@
+**Ocasio-Cortez Seeks House Post That Would Make Her a Top Foil to Trump**\
+`Representative Alexandria Ocasio-Cortez, a New York Democrat, announced a bid to join the party’s leadership ranks in Congress.`\
+https://nytimes.com/2024/12/06/nyregion/aoc-house-oversight-committee.html
+
+**Falling in Love With Nora Ephron**\
+`Ilana Kaplan’s new coffee table book pays tribute to the godmother of the modern rom-com.`\
+https://nytimes.com/2024/12/06/books/nora-ephron-movies.html
+
 **Dick Van Dyke, Approaching 99, Dances in Coldplay’s Latest Video**\
 `In the clip, which was filmed in October, Van Dyke sings, dances barefoot and offers meditations on aging, family and love.`\
 https://nytimes.com/2024/12/06/arts/music/dick-van-dyke-coldplay-all-my-love-video.html
