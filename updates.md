@@ -1,3 +1,11 @@
+**Texas House Speaker, Targeted by the Right, Drops Bid for Another Term**\
+`In the long-running war inside the Texas G.O.P., Dade Phelan survived a primary against a Trump-backed novice. But his increasingly conservative caucus turned against him.`\
+https://nytimes.com/2024/12/06/us/texas-house-speaker-dade-phelan.html
+
+**How Much Did Trump, Biden and Harris Raise? A Stunning $4.7 Billion.**\
+`That figure, which includes totals from the three presidential contenders’ main allied groups, emerged in the final federal filings of a staggeringly expensive campaign.`\
+https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-fundraising.html
+
 **What's a valkyrie? How WNBA teams got their names**\
 `What a Norse specialist thinks about the Golden State Valkyries, and how other teams got their names.
 `\
