@@ -1,6 +1,18 @@
+**FPL: The best Liverpool players to own over the festive period**\
+`Beyond Mohamed Salah, which of the Premier League leaders' defenders and other attackers are worth owning right now?`\
+https://nytimes.com/athletic/5969214/2024/12/06/fantasy-premier-league-liverpool/
+
 **Lions top Packers 34-31 after gutsy fourth down conversion: Takeaways**\
 `The Lions picked up their 11th-straight win after quarterback Jared Goff led the Detroit on an 11-play, 53-yard game-winning drive.`\
 https://nytimes.com/athletic/5973539/2024/12/06/packers-lions-tnf-score-result-takeaways/
+
+**Jackson is Chelsea's presser-in-chief - he has been crucial to their fine start**\
+`Nicolas Jackson leads the pressing for Chelsea — and plays a crucial role in their recent results`\
+https://nytimes.com/athletic/5971510/2024/12/06/nicolas-jackson-chelsea-pressing-analysis/
+
+**Amad at wing-back is a source of joy - for Man Utd fans and Ruben Amorim‌**\
+`Why the young Ivory Coast international could be an ideal solution for the new tactical setup at Manchester United`\
+https://nytimes.com/athletic/5971614/2024/12/06/amad-wing-back-manchester-united/
 
 **Jon Moss exclusive: How to improve VAR, Coote controversy and Klopp's 'gamechanging' call**\
 `Ex-Premier League referee believes the job has never been harder - but is still happy for his sons to follow him into the industry`\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5973720/2024/12/06/cleveland-cavaliers-dream-season
 **United, Forest and a youth record 8,342 games in the making**\
 `Two clubs with a proud history of promoting youth meet at Old Trafford tomorrow, but how long can their records sustain?`\
 https://nytimes.com/athletic/5963089/2024/12/06/manchester-united-nottingham-forest-youth-development/
-
-**Tyler Dibling: Southampton's standout star - and his route (via Chelsea) to the Premier League**\
-`Tyler Dibling has shone for Southampton this season — this is the story of how he made it to the Premier League`\
-https://nytimes.com/athletic/5971753/2024/12/06/tyler-dibling-southamptons-standout-star-and-his-route-via-chelsea-to-the-premier-league/
-
-**What an unusually congested table tells us about the state of the relegation battle in the WSL**\
-`There is a bigger gap between the top two teams than the bottom seven, with the relegation picture much less clear than it has often been`\
-https://nytimes.com/athletic/5971730/2024/12/06/the-wsl-relegation-battle-where-two-points-separate-the-bottom-six-teams/
-
-**Watching Newcastle vs Liverpool with football's first substitutes coach - did Slot and Howe get it right?**\
-`The world's first substitutes coach analyses the changes of two Premier League coaches during a match`\
-https://nytimes.com/athletic/5969652/2024/12/06/watching-liverpool-vs-newcastle-with-a-substitutes-coach/
 
