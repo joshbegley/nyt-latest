@@ -1,3 +1,11 @@
+**An Art Movement’s Lasting Impression**\
+`Lessons from the past continue to influence and inspire today’s globalized art world.`\
+https://nytimes.com/2024/12/06/special-series/impressionism-art-beatriz-milhazes.html
+
+**'I can become one of the best athletes in tennis': Emma Raducanu confirms new fitness coach**\
+`The 2021 U.S. Open champion is bidding for a first injury-free season since her Grand Slam breakthrough.`\
+https://nytimes.com/athletic/5974753/2024/12/06/emma-raducanu-tennis-team-fitness-coach/
+
 **The Rage and Glee That Followed a C.E.O.’s Killing Should Ring All Alarms**\
 `It echoes another era of extreme inequality and extreme violence.`\
 https://nytimes.com/2024/12/06/opinion/the-rage-and-glee-that-followed-a-ceos-killing-should-ring-all-alarms.html
