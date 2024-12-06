@@ -1,3 +1,7 @@
+**Dick Van Dyke, Approaching 99, Dances in Coldplay’s Latest Video**\
+`In the clip, which was filmed in October, Van Dyke sings, dances barefoot and offers meditations on aging, family and love.`\
+https://nytimes.com/2024/12/06/arts/music/dick-van-dyke-coldplay-all-my-love-video.html
+
 **Ghana’s Voters Look for Leader to Fix a Broken Economy**\
 `Ghanaians voting on Saturday are confronted with a choice familiar to Americans: Return a one-term former president to office, or promote the vice president, at a time when anger over the economy is widespread.`\
 https://nytimes.com/2024/12/06/world/africa/ghana-election-ndc-npp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/us/elizabeth-pollard-sinkhole-dead.html
 **Eric Adams Doesn’t Rule Out Becoming a Republican Again**\
 `The Democratic mayor of New York City has embraced President-elect Donald J. Trump lately. He was a registered Republican in the 1990s.`\
 https://nytimes.com/2024/12/06/nyregion/eric-adams-republican.html
-
-**Hundreds of tips are coming in. The police say they want more.**\
-`By Maria Cramer`\
-https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson/hundreds-of-tips-are-coming-in-the-police-say-they-want-more
 

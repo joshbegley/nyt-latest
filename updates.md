@@ -1,3 +1,7 @@
+**Dick Van Dyke, Approaching 99, Dances in Coldplay’s Latest Video**\
+`In the clip, which was filmed in October, Van Dyke sings, dances barefoot and offers meditations on aging, family and love.`\
+https://nytimes.com/2024/12/06/arts/music/dick-van-dyke-coldplay-all-my-love-video.html
+
 **Ghana’s Voters Look for Leader to Fix a Broken Economy**\
 `Ghanaians voting on Saturday are confronted with a choice familiar to Americans: Return a one-term former president to office, or promote the vice president, at a time when anger over the economy is widespread.`\
 https://nytimes.com/2024/12/06/world/africa/ghana-election-ndc-npp.html
