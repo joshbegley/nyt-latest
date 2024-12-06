@@ -1,3 +1,15 @@
+**Tim Walz Says He Was ‘a Little Surprised’ Trump Won**\
+`In his first interviews since the election, Kamala Harris’s running mate told Minnesota television stations that he had thought the country would embrace the Democratic ticket’s positive message.`\
+https://nytimes.com/2024/12/06/us/politics/tim-walz-trump-harris-election.html
+
+**‘The Piano Lesson’ | Anatomy of a Scene**\
+`The director Malcolm Washington narrates a sequence from his film, featuring Danielle Deadwyler.`\
+https://nytimes.com/video/movies/100000009863051/the-piano-lesson-scene.html
+
+**The Bounce: How much do triple-doubles matter in the NBA now? Plus, will your over/under bets hit?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5974356/2024/12/06/nikola-jokic-nuggets-nba-the-bounce/
+
 **A Washington Institution Delays Its Transition: the Kennedy Center**\
 `As the nation’s capital prepares for a second Trump administration, the performing arts center announced that its chairman would not step down in January as planned.`\
 https://nytimes.com/2024/12/06/arts/music/kennedy-center-chairman-transition.html
