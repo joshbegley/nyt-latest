@@ -1,3 +1,19 @@
+**The Consumer Bureau Is Likely Here to Stay, but Big Changes Await**\
+`Republicans are unlikely to abolish the Consumer Financial Protection Bureau, but they will drastically rework its rules and activities.`\
+https://nytimes.com/2024/12/06/us/politics/cfpb-republicans-rohit-chopra.html
+
+**Owner of Los Angeles Times Plans ‘Bias Meter’ Next to Coverage**\
+`Dr. Patrick Soon-Shiong said that he planned to introduce the tool, which he said would appear next to the paper’s news articles and opinion pieces, in January.`\
+https://nytimes.com/2024/12/06/business/media/la-times-owner-bias-meter.html
+
+**Jury in Subway Chokehold Trial Struggles to Agree on Manslaughter Charge**\
+`It was unclear whether the case would result in a mistrial or if jurors would be able to consider the second charge against Daniel Penny in the killing of Jordan Neely last year.`\
+https://nytimes.com/2024/12/06/nyregion/daniel-penny-jordan-neely-chokehold-trial.html
+
+**Syrian Rebels Celebrate Capture of Hama**\
+`Syrian rebels took the city of Hama on Thursday, before continuing to push south in a march toward Homs, a major city, and Damascus, the capital.`\
+https://nytimes.com/video/world/middleeast/100000009863023/syria-hama-rebels.html
+
 **Israeli Attacks Around Gaza Hospital Kill or Wound Scores, Doctors Say**\
 `Airstrikes, gunfire, panic and orders to evacuate in the dark of night combined to cause heavy casualties in the area of Kamal Adwan, one of the last hospitals still operating in northern Gaza.`\
 https://nytimes.com/2024/12/06/world/middleeast/israeli-attack-gaza-kamal-adwan-hospital.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/06/arts/music/czech-philharmonic-carnegie-hall.html
 **Is a Stars spending spree coming with Tyler Seguin out long-term? Catching up with GM Jim Nill**\
 `If the Stars determine Seguin will be out for the rest of the regular season, they can put him and his $9.85 million cap hit on LTIR.`\
 https://nytimes.com/athletic/5974445/2024/12/06/stars-trades-tyler-seguin-jim-nill/
-
-**The Transgender Case, and the Role of Activists**\
-`Readers discuss the Supreme Court case and the threats trans people face. Also: Recess appointments; Social Security; pardons; brain injuries and crime.`\
-https://nytimes.com/2024/12/06/opinion/transgender-activists-supreme-court.html
-
-**Fantasy football injury report: Quad concerns in Chicago; CeeDee Lamb could use a break**\
-`Greg Scholz runs through the most notable injuries that could impact fantasy football in Week 14, including a pair of Bears.`\
-https://nytimes.com/athletic/5974527/2024/12/06/fantasy-football-injury-report-quad-concerns-in-chicago-ceedee-lamb-could-use-a-break/
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 15?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/5961001/2024/12/06/premier-league-predicted-line-ups-gameweek-15/
-
-**Five Horror Movies to Stream Now**\
-`This month’s picks include a sneaky serial killer, a boy’s vengeance quest and a holiday house of horrors.`\
-https://nytimes.com/2024/12/06/movies/five-horror-movies-to-stream-now.html
 
