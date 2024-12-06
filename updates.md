@@ -1,3 +1,7 @@
+**MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and, possibly, Roki Sasaki `\
+https://nytimes.com/athletic/5891633/2024/12/06/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **NFL closes probe of latest sexual assault lawsuit against Deshaun Watson**\
 `The Browns quarterback will not face discipline over a lawsuit filed one day after Cleveland's season opener.`\
 https://nytimes.com/athletic/5975419/2024/12/06/nfl-review-deshaun-watson-lawsuit/
