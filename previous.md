@@ -1,3 +1,7 @@
+**Rays agree to 1-year deal with Danny Jansen**\
+`Jansen will reportedly receive $8.5 million in 2025, with a mutual option for the 2026 season. `\
+https://nytimes.com/athletic/5975197/2024/12/06/danny-jansen-tampa-bay-rays-deal/
+
 **The Regimes of the Post-Post-Cold War World**\
 `The liberal world order, remixed.`\
 https://nytimes.com/2024/12/06/opinion/south-korea-liberalism-nationalism.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-team
 **Rangers trade Jacob Trouba to Ducks for Urho Vaakanainen, conditional draft pick**\
 `Trouba waived his no-trade clause for the deal after a standoff with the Rangers and a looming threat of being placed on waivers.`\
 https://nytimes.com/athletic/5975180/2024/12/06/rangers-ducks-jacob-trouba-trade/
-
-**Rice OT Ethan Onianwa entering transfer portal**\
-`Prior to this season, Onianwa had started the two previous years for Rice at right tackle.`\
-https://nytimes.com/athletic/5975125/2024/12/06/rice-ethan-onianwa-right-tackle-transfer-portal/
 
