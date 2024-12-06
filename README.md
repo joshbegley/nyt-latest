@@ -1,3 +1,19 @@
+**Employers added 227,000 jobs in November.**\
+`Hiring bounced back after disruptions from storms and a major strike.`\
+https://nytimes.com/live/2024/12/06/business/jobs-report-november-economy/employers-added-227000-jobs-in-november
+
+**Rangers to scratch captain Jacob Trouba with trade or waivers placement looming**\
+`Whether through a trade or waivers, it appears the team’s captain is done as a Ranger, effective immediately.`\
+https://nytimes.com/athletic/5974640/2024/12/06/jacob-trouba-rangers-waivers-trade/
+
+**Penguins Today: When does a winning streak become a season-shifting run?**\
+`A regulation win in New York could propel the Penguins into the Eastern Conference’s second wild-card slot.`\
+https://nytimes.com/athletic/5974565/2024/12/06/penguins-today-rangers-msg-win-streak/
+
+**We Cannot Forget the World’s Political Prisoners**\
+`No mission is more important than preserving the lives of those who have been jailed for their principles.`\
+https://nytimes.com/2024/12/06/special-series/dmitry-muratov-political-prisoners.html
+
 **Scoop City: Reader answers on how to fix dangerous running QB hits**\
 `Everyone's got an opinion on the Trevor Lawrence hit, and today, we're sharing some of yours. Plus: a potential Belichick move.`\
 https://nytimes.com/athletic/5974615/2024/12/06/how-to-fix-qb-running-trevor-lawrence-scoop-city/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/06/us/david-mayer-chatgpt-openai.html
 **Is it better to be No. 5 than No. 1? College Football Playoff scenarios to watch**\
 `There's a lot on the line with College Football Playoff seeding in conference title games. Be prepared for selection committee controversy.`\
 https://nytimes.com/athletic/5973462/2024/12/06/college-football-playoff-seeding-scenarios-odds/
-
-**Alisson Liverpool return 'very soon', Jota and Chiesa 'close'**\
-`Caoimhin Kelleher will continue in goal for Liverpool with Alisson close to returning but not available for Saturday&#8217;s Merseyside derby.`\
-https://nytimes.com/athletic/5974479/2024/12/06/alisson-jota-chiesa-liverpool-injury-update/
-
-**Foden, Stones, Kovacic and Ake all set to miss Man City's trip to Palace**\
-`Phil Foden, John Stones, Mateo Kovacic and Nathan Ake are all set to miss Manchester City&#8217;s game against Crystal Palace on Saturday.`\
-https://nytimes.com/athletic/5974468/2024/12/06/man-city-team-news-foden-stones-kovacic-ake/
-
-**Chelsea yet to decide on pre-season plans amid Club World Cup participation**\
-`Enzo Maresca admits Chelsea have yet to make a decision on their pre-season plans with the team also participating in the FIFA Club World Cup next summer.`\
-https://nytimes.com/athletic/5974531/2024/12/06/chelsea-club-world-cup-preseason/
-
-**Next week’s waiver wire: Will Levis, Travis Homer and more players to add before the Week 15 rush**\
-`John Laghezza shares his top expected future waiver values, including Will Levis, who faces a generous Jaguars pass defense in Week 14.`\
-https://nytimes.com/athletic/5972265/2024/12/06/next-weeks-waiver-wire-will-levis-travis-homer-and-more-players-to-add-before-the-week-15-rush/
 
