@@ -1,3 +1,15 @@
+**NHL contract grades: Igor Shesterkin's 8-year deal is risky for Rangers, but he's worth it**\
+`The back half of Shesterkin's contract could be scary, given his age, but the Rangers had to do it.`\
+https://nytimes.com/athletic/5975610/2024/12/06/igor-shesterkin-rangers-contract-grade/
+
+**Iran Makes ‘Dramatic’ Leap to Produce Near-Bomb-Grade Fuel, but to What End?**\
+`The United Nations chief inspector says production has quadrupled. But it is not clear whether Iran is trying to touch off a crisis or gather bargaining chips for negotiations with the United States.`\
+https://nytimes.com/2024/12/06/us/politics/iran-nuclear-fuel.html
+
+**Police in Central Park Find Backpack Like the One the Gunman Carried**\
+`Crime scene technicians came to a wooded area where officers were searching for the gunman’s bag and weapon.`\
+https://nytimes.com/2024/12/06/nyregion/unitedhealthcare-ceo-gunman-backpack.html
+
 **Musk Cost-Cutting Effort Is Being Guided by Health Entrepreneur**\
 `The inclusion of Brad Smith in Trump’s efficiency panel suggests that the team is preparing to focus particularly on the nation’s health care system.`\
 https://nytimes.com/2024/12/06/us/politics/elon-musk-doge-brad-smith-trump.html
