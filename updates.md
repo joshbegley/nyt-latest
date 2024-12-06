@@ -1,3 +1,7 @@
+**On Georgia's recruiting, CFP scenarios, the SEC championship and the transfer portal**\
+`What to make of Georgia's big week with recruiting, the SEC Championship Game, the College Football Playoff and the transfer portal.`\
+https://nytimes.com/athletic/5975000/2024/12/06/georgia-football-sec-championship-cfp-transfer-portal/
+
 **Woman Who Fell Into Sinkhole Is Found Dead**\
 `After searching since Tuesday, the authorities in Unity Township, Pa., on Friday found the body of Elizabeth Pollard, 64, who disappeared while searching for her cat.`\
 https://nytimes.com/2024/12/06/us/elizabeth-pollard-sinkhole-dead.html
