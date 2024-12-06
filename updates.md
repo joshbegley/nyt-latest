@@ -1,3 +1,7 @@
+**Frankie Montas takes inspiration from Mets' pitching success stories**\
+`Sean Manaea and Luis Severino told their old teammate that New York is a great destination for pitchers looking to rebound.`\
+https://nytimes.com/athletic/5975514/2024/12/06/mets-frankie-montas-free-agency/
+
 **MLS commissioner Don Garber eyes changes, faces challenges**\
 `On the eve of the MLS Cup final, league commissioner Don Garber revealed some impending changes - and new opportunities`\
 https://nytimes.com/athletic/5975576/2024/12/06/mls-commissioner-don-garber-apple-messi/

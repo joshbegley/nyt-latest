@@ -10,6 +10,10 @@ https://nytimes.com/athletic/5975610/2024/12/06/igor-shesterkin-rangers-contract
 `The United Nations chief inspector says production has quadrupled. But it is not clear whether Iran is trying to touch off a crisis or gather bargaining chips for negotiations with the United States.`\
 https://nytimes.com/2024/12/06/us/politics/iran-nuclear-fuel.html
 
+**Frankie Montas takes inspiration from Mets' pitching success stories**\
+`Sean Manaea and Luis Severino told their old teammate that New York is a great destination for pitchers looking to rebound.`\
+https://nytimes.com/athletic/5975514/2024/12/06/mets-frankie-montas-free-agency/
+
 **Police in Central Park Find Backpack Like the One the Gunman Carried**\
 `Crime scene technicians came to a wooded area where officers were searching for the gunman’s bag and weapon.`\
 https://nytimes.com/2024/12/06/nyregion/unitedhealthcare-ceo-gunman-backpack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975570/2024/12/06/wisconsin-offensive-coordinator-
 **Major League Soccer to pause games during 2026 World Cup**\
 `Garber confirmed the league will also take off “for a portion” of the Club World Cup in 2025.`\
 https://nytimes.com/athletic/5975519/2024/12/06/major-league-soccer-pause-games-2026-world-cup/
-
-**As Jan. 6 Criminal Cases Against Trump Fizzle, Civil Cases Plod Ahead**\
-`Donald J. Trump has successfully defeated or impeded many legal challenges against him over the storming of the Capitol, but eight lawsuits on the matter remain in the courts.`\
-https://nytimes.com/2024/12/06/us/politics/trump-jan-6-civil-cases.html
 
