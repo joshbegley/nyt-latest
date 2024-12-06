@@ -1,3 +1,7 @@
+**What We Know About the 7.0 Earthquake That Struck Northern California**\
+`State and local officials were working to assess the full scope of the damage, but early reports appeared to show that the quake did not cause major destruction.`\
+https://nytimes.com/2024/12/05/us/california-oregon-earthquake-explainer.html
+
 **Connor Bedard's development must be Blackhawks interim coach Anders Sorensen's top priority**\
 `There are obvious changes Sorensen can make, but what could ultimately determine how long he is in charge is how Bedard fares under him.`\
 https://nytimes.com/athletic/5973282/2024/12/05/blackhawks-coach-anders-sorensen-connor-bedard/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/us/politics/ronald-rowe-pat-fallon-trump-assassin
 **Lazerus: Luke Richardson's firing won't stop the Blackhawks' slow slide into irrelevance**\
 `The Blackhawks are unwatchable these days, and not just because of their poor play. Things aren't likely to get better soon.`\
 https://nytimes.com/athletic/5973247/2024/12/05/blackhawks-richardson-fired-last-place/
-
-**Elon and Vivek’s DOGE Goes to Congress**\
-`The tycoons in charge of President-elect Donald J. Trump’s amorphous government efficiency initiative made the rounds on Capitol Hill, bashing debt but revealing little about how they will tackle it.`\
-https://nytimes.com/2024/12/05/us/politics/elon-musk-vivek-ramaswamy-doge-congress.html
 
