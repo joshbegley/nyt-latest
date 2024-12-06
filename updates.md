@@ -1,3 +1,7 @@
+**How in sync are the Knicks? Look no further than Karl-Anthony Towns' bloody shorts**\
+`The Knicks move the ball with the best of them, and it's easy on the eyes. `\
+https://nytimes.com/athletic/5973782/2024/12/06/knicks-hornets-karl-anthony-towns/
+
 **Flyers and Matvei Michkov show their resiliency, but team must learn from late mistakes**\
 `After digging themselves out of a 3-0 hole against the Panthers, the Flyers let things slip away late in a 7-5 loss.`\
 https://nytimes.com/athletic/5973801/2024/12/06/flyers-resilient-panthers-michkov-farabee/
