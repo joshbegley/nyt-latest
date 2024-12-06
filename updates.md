@@ -1,3 +1,7 @@
+**Turning Point**\
+`We wish you a merry Robyn Weintraub Day.`\
+https://nytimes.com/2024/12/05/crosswords/turning-point.html
+
 **Head of South Korean President’s Party Calls for His Impeachment**\
 `The statement by Han Dong-hoon makes it more likely that President Yoon Suk Yeol will be impeached in a parliamentary vote on Saturday.`\
 https://nytimes.com/2024/12/05/world/asia/south-korea-yoon-impeachment.html
