@@ -1,3 +1,11 @@
+**South Korean Who Grabbed Soldier’s Rifle: ‘I Couldn’t Back Down’**\
+`An Gwi-ryeong, a spokeswoman for a political party, went viral after confronting troops during South Korea’s night of martial law. “My first thought was that I just needed to stop the soldiers,” she said.`\
+https://nytimes.com/video/world/asia/100000009862693/south-korea-politician-soldiers-rifle-martial-law.html
+
+**Utah State to hire Bronco Mendenhall after 1 year with New Mexico: Sources**\
+`Mendenhall, the former BYU and Virginia coach, went 5-7 in his lone season leading the Lobos.`\
+https://nytimes.com/athletic/5973899/2024/12/06/utah-state-bronco-mendenhall-hired-coach/
+
 **FPL: The best Liverpool players to own over the festive period**\
 `Beyond Mohamed Salah, which of the Premier League leaders' defenders and other attackers are worth owning right now?`\
 https://nytimes.com/athletic/5969214/2024/12/06/fantasy-premier-league-liverpool/
@@ -30,12 +38,4 @@ https://nytimes.com/2024/12/06/business/south-korea-economy-martial-law.html
 **Merseyside derby memories at Goodison Park: Passion, poignancy, ecstasy, agony and a Tic Tac ad**\
 `Goodison Park is an iconic stadium - and is often at its best when Everton welcome Liverpool. It is set to host a final derby`\
 https://nytimes.com/athletic/5966452/2024/12/06/merseyside-derby-final-goodison-park-liverpool-everton/
-
-**'It's starting to get real': Cleveland Cavaliers' dream season a straight shot**\
-`The Cavs just gave up 76 points in the paint … and won comfortably. They made 22 3s to the Nuggets' six in a 126-114 triumph.`\
-https://nytimes.com/athletic/5973720/2024/12/06/cleveland-cavaliers-dream-season-denver-nuggets/
-
-**United, Forest and a youth record 8,342 games in the making**\
-`Two clubs with a proud history of promoting youth meet at Old Trafford tomorrow, but how long can their records sustain?`\
-https://nytimes.com/athletic/5963089/2024/12/06/manchester-united-nottingham-forest-youth-development/
 
