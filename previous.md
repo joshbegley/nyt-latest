@@ -1,3 +1,7 @@
+**Fantasy Trends and Hidden Gems: How to handle Gibson, Quick and Demko**\
+`John Gibson is getting more minutes in Anaheim, while Thatcher Demko's return looms for the Canucks.`\
+https://nytimes.com/athletic/5973711/2024/12/06/fantasy-trends-and-hidden-gems-how-to-handle-gibson-quick-and-demko/
+
 **The Athletic FC: Trump, Infantino combine in Club World Cup draw, Postecoglou confronts fans**\
 `Today in TAFC: The Club World Cup circus, Postecoglou confronts fans after Tottenham's loss to Bournemouth and memories of Goodison Park...`\
 https://nytimes.com/athletic/5974237/2024/12/06/trump-infantino-club-world-cup-postecoglou/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972959/2024/12/06/michael-thorbjornsen-pga-tour-st
 **Was Brian Thompson’s Killer a Hit Man? Unlikely, Experts Say.**\
 `The murder of Brian Thompson did not appear to have been committed by a coldly calculating professional, according to people who study criminal behavior.`\
 https://nytimes.com/2024/12/06/nyregion/brian-thompson-killer-hit-man.html
-
-**This is the Pelicans team (minus Zion) we've been waiting to see**\
-`Brandon Ingram and Herb Jones returned to the lineup and made an immediate impact as New Orleans snapped a nine-game losing streak.`\
-https://nytimes.com/athletic/5974146/2024/12/06/pelicans-win-brandon-ingram-herb-jones/
 

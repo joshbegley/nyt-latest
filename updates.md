@@ -1,3 +1,7 @@
+**Fantasy Trends and Hidden Gems: How to handle Gibson, Quick and Demko**\
+`John Gibson is getting more minutes in Anaheim, while Thatcher Demko's return looms for the Canucks.`\
+https://nytimes.com/athletic/5973711/2024/12/06/fantasy-trends-and-hidden-gems-how-to-handle-gibson-quick-and-demko/
+
 **The Athletic FC: Trump, Infantino combine in Club World Cup draw, Postecoglou confronts fans**\
 `Today in TAFC: The Club World Cup circus, Postecoglou confronts fans after Tottenham's loss to Bournemouth and memories of Goodison Park...`\
 https://nytimes.com/athletic/5974237/2024/12/06/trump-infantino-club-world-cup-postecoglou/
