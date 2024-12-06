@@ -1,3 +1,7 @@
+**Where the Cardinals stand ahead of Winter Meetings: 'A different profile'**\
+`John Mozeliak says the Cardinals' reset is not a full-fledged rebuild: "We have every intention of fielding a good baseball team."`\
+https://nytimes.com/athletic/5972559/2024/12/06/cardlnals-mlb-winter-meetings-mozeliak/
+
 **Who do you want Notre Dame to host in the Playoff? Here are the scenarios**\
 `Who Notre Dame will welcome to South Bend in the College Football Playoff depends on these conference championship results.`\
 https://nytimes.com/athletic/5974294/2024/12/06/notre-dame-playoff-opponent-scenarios/
