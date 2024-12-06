@@ -1,3 +1,7 @@
+**Review: William Kentridge’s Collaged Fever Dream of Shostakovich**\
+`Kentridge’s film played over Shostakovich’s 10th symphony at a New York Philharmonic concert led by Keri-Lynn Wilson.`\
+https://nytimes.com/2024/12/06/arts/dance/review-william-kentridge-shostakovich-new-york-philharmonic.html
+
 **GM Kevyn Adams dismissive, defensive in face of questions about Sabres' struggles**\
 `If Adams can't turn Buffalo into "a destination city," the Sabres should find someone who can.`\
 https://nytimes.com/athletic/5975236/2024/12/06/buffalo-sabres-kevyn-adams-destination-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-fundraising.htm
 **Rays agree to 1-year deal with Danny Jansen**\
 `Jansen will reportedly receive $8.5 million in 2025, with a mutual option for the 2026 season. `\
 https://nytimes.com/athletic/5975197/2024/12/06/danny-jansen-tampa-bay-rays-deal/
-
-**The Regimes of the Post-Post-Cold War World**\
-`The liberal world order, remixed.`\
-https://nytimes.com/2024/12/06/opinion/south-korea-liberalism-nationalism.html
 
