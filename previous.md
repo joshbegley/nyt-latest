@@ -1,3 +1,7 @@
+**Oilers' Zach Hyman proves a little luck can go a long way**\
+`A change of fortune was long overdue for Hyman, and the timing was perfect to boot.`\
+https://nytimes.com/athletic/5974048/2024/12/06/oilers-blue-jackets-zach-hyman-luck/
+
 **Fire at Baltimore Lumberyard Closes Highway and Schools**\
 `No one was injured or evacuated in the fire, which was made more challenging by the wind, the authorities said.`\
 https://nytimes.com/2024/12/06/us/baltimore-brush-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973782/2024/12/06/knicks-hornets-karl-anthony-town
 **Flyers and Matvei Michkov show their resiliency, but team must learn from late mistakes**\
 `After digging themselves out of a 3-0 hole against the Panthers, the Flyers let things slip away late in a 7-5 loss.`\
 https://nytimes.com/athletic/5973801/2024/12/06/flyers-resilient-panthers-michkov-farabee/
-
-**How Notre-Dame Was Reborn**\
-`It took about 250 companies, 2,000 workers, about $900 million, a tight deadline and a lot of national pride.`\
-https://nytimes.com/2024/12/06/world/europe/notre-dame-paris-france.html
 

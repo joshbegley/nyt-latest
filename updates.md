@@ -1,3 +1,7 @@
+**Oilers' Zach Hyman proves a little luck can go a long way**\
+`A change of fortune was long overdue for Hyman, and the timing was perfect to boot.`\
+https://nytimes.com/athletic/5974048/2024/12/06/oilers-blue-jackets-zach-hyman-luck/
+
 **Fire at Baltimore Lumberyard Closes Highway and Schools**\
 `No one was injured or evacuated in the fire, which was made more challenging by the wind, the authorities said.`\
 https://nytimes.com/2024/12/06/us/baltimore-brush-fire.html
