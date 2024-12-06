@@ -1,3 +1,15 @@
+**Tim Walz Says He Was ‘a Little Surprised’ Trump Won**\
+`In his first interviews since the election, Kamala Harris’s running mate told Minnesota television stations that he had thought the country would embrace the Democratic ticket’s positive message.`\
+https://nytimes.com/2024/12/06/us/politics/tim-walz-trump-harris-election.html
+
+**‘The Piano Lesson’ | Anatomy of a Scene**\
+`The director Malcolm Washington narrates a sequence from his film, featuring Danielle Deadwyler.`\
+https://nytimes.com/video/movies/100000009863051/the-piano-lesson-scene.html
+
+**The Bounce: How much do triple-doubles matter in the NBA now? Plus, will your over/under bets hit?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5974356/2024/12/06/nikola-jokic-nuggets-nba-the-bounce/
+
 **A Washington Institution Delays Its Transition: the Kennedy Center**\
 `As the nation’s capital prepares for a second Trump administration, the performing arts center announced that its chairman would not step down in January as planned.`\
 https://nytimes.com/2024/12/06/arts/music/kennedy-center-chairman-transition.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/06/special-series/dmitry-muratov-political-prisoners
 **Scoop City: Reader answers on how to fix dangerous running QB hits**\
 `Everyone's got an opinion on the Trevor Lawrence hit, and today, we're sharing some of yours. Plus: a potential Belichick move.`\
 https://nytimes.com/athletic/5974615/2024/12/06/how-to-fix-qb-running-trevor-lawrence-scoop-city/
-
-**Slegers to stay in interim charge of Arsenal until winter break**\
-`Renee Slegers will continue her role as interim head coach of Arsenal for their next block of games until the Women&#8217;s Super League&#8217;s winter break.`\
-https://nytimes.com/athletic/5974620/2024/12/06/renee-slegers-arsenal-women-future/
-
-**Trump Defends His Imperiled Pick for Defense Secretary, Pete Hegseth**\
-`The post amounted to a public dare to Republican senators, a number of whom have expressed private concerns about Mr. Hegseth, to vote against Mr. Trump’s wishes.`\
-https://nytimes.com/2024/12/06/us/politics/trump-defends-hegseth.html
-
-**Romanian Court Annuls Presidential Election Results and Orders a New Vote**\
-`The decision came days after the government asserted it had found an online campaign that promoted a little-known ultranationalist candidate, who emerged as a front-runner in the vote.`\
-https://nytimes.com/2024/12/06/world/europe/romania-election-court.html
 
