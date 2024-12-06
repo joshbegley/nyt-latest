@@ -1,3 +1,31 @@
+**The Transgender Case, and the Role of Activists**\
+`Readers discuss the Supreme Court case and the threats trans people face. Also: Recess appointments; Social Security; pardons; brain injuries and crime.`\
+https://nytimes.com/2024/12/06/opinion/transgender-activists-supreme-court.html
+
+**Fantasy football injury report: Quad concerns in Chicago; CeeDee Lamb could use a break**\
+`Greg Scholz runs through the most notable injuries that could impact fantasy football in Week 14, including a pair of Bears.`\
+https://nytimes.com/athletic/5974527/2024/12/06/fantasy-football-injury-report-quad-concerns-in-chicago-ceedee-lamb-could-use-a-break/
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 15?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/5961001/2024/12/06/premier-league-predicted-line-ups-gameweek-15/
+
+**Five Horror Movies to Stream Now**\
+`This month’s picks include a sneaky serial killer, a boy’s vengeance quest and a holiday house of horrors.`\
+https://nytimes.com/2024/12/06/movies/five-horror-movies-to-stream-now.html
+
+**Maitake au Poivre, Peruvian Roast Chicken, Pork Noodle Soup**\
+`Now’s the time for dinners that are simple and delicious and just for you.`\
+https://nytimes.com/2024/12/06/dining/maitake-au-poivre-peruvian-roast-chicken-pork-noodle-soup.html
+
+**NHL Power Rankings: A new No. 1, plus all the 4 Nations snub talk you can handle**\
+`Finding one 4 Nations Face-Off omission from every NHL team.`\
+https://nytimes.com/athletic/5973834/2024/12/06/nhl-power-rankings-4-nations-face-off/
+
+**Texas mascot Bevo won't attend SEC championship game**\
+`Bevo XV weighs over 1,700 pounds and has a horn span of 58 inches, though his horns will continue to grow throughout his life.`\
+https://nytimes.com/athletic/5974606/2024/12/06/texas-mascot-bevo-sec-championship/
+
 **Trump’s Allies Go Global: ‘Make Argentina Great Again’**\
 `At its international conferences, CPAC is giving a stage to right-wing politicians and hunting for ideas for use back home.`\
 https://nytimes.com/2024/12/06/us/politics/cpac-argentina-trump-milei.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/12/06/business/media/tiktok-ban-court-decision.html
 **Watch the Stirring Climax of ‘The Piano Lesson’**\
 `The director Malcolm Washington narrates a sequence from the film featuring Danielle Deadwyler.`\
 https://nytimes.com/2024/12/06/movies/the-piano-lesson-clip.html
-
-**Tim Walz Says He Was ‘a Little Surprised’ Trump Won**\
-`In his first interviews since the election, Kamala Harris’s running mate told Minnesota television stations that he had thought the country would embrace the Democratic ticket’s positive message.`\
-https://nytimes.com/2024/12/06/us/politics/tim-walz-trump-harris-election.html
-
-**‘The Piano Lesson’ | Anatomy of a Scene**\
-`The director Malcolm Washington narrates a sequence from his film, featuring Danielle Deadwyler.`\
-https://nytimes.com/video/movies/100000009863051/the-piano-lesson-scene.html
-
-**The Bounce: How much do triple-doubles matter in the NBA now? Plus, will your over/under bets hit?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5974356/2024/12/06/nikola-jokic-nuggets-nba-the-bounce/
-
-**A Washington Institution Delays Its Transition: the Kennedy Center**\
-`As the nation’s capital prepares for a second Trump administration, the performing arts center announced that its chairman would not step down in January as planned.`\
-https://nytimes.com/2024/12/06/arts/music/kennedy-center-chairman-transition.html
-
-**Arteta on Arsenal's corner success: 'We want to be kings of everything'**\
-`Mikel Arteta is embracing comparisons with Stoke City&#8217;s set-piece prowess as he challenged his side to become the &#8220;kings of everything&#8221;.`\
-https://nytimes.com/athletic/5974651/2024/12/06/mikel-arteta-on-arsenals-corner-success-we-want-to-be-kings-of-everything/
-
-**Employers added 227,000 jobs in November.**\
-`Hiring bounced back after disruptions from storms and a major strike.`\
-https://nytimes.com/live/2024/12/06/business/jobs-report-november-economy/employers-added-227000-jobs-in-november
-
-**Rangers to scratch captain Jacob Trouba with trade or waivers placement looming**\
-`Whether through a trade or waivers, it appears the team’s captain is done as a Ranger, effective immediately.`\
-https://nytimes.com/athletic/5974640/2024/12/06/jacob-trouba-rangers-waivers-trade/
 
