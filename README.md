@@ -8,7 +8,7 @@ https://nytimes.com/2024/12/06/dining/quick-easy-holiday-menu.html
 
 **NHL trade grades: Jacob Trouba deal is a no-brainer for Rangers, an opportunity for Ducks**\
 `Did the Ducks make a mistake in taking on Trouba's full salary, or will this turn into a wise move later?`\
-https://nytimes.com/athletic/5975311/2024/12/06/nhl-trade-grades-jacob-trouba-deal-is-a-no-brainer-for-rangers-an-opportunity-for-ducks/
+https://nytimes.com/athletic/5975311/2024/12/06/jacob-trouba-nhl-trade-grade/
 
 **A House Where Every Republican Will Be in Charge**\
 `And you thought this congressional term was a little nuts?`\
