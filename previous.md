@@ -1,6 +1,6 @@
 **Wisconsin targeting Jeff Grimes as next offensive coordinator: Source**\
 `Grimes, who spent 2024 at Kansas, is a 30-year veteran who could help Wisconsin return to emphasizing the running game.`\
-https://nytimes.com/athletic/5975570/2024/12/06/wisconsin-targeting-kansas-jeff-grimes-as-badgers-next-offensive-coordinator/
+https://nytimes.com/athletic/5975570/2024/12/06/wisconsin-offensive-coordinator-jeff-grimes-kansas/
 
 **Major League Soccer to pause games during 2026 World Cup**\
 `Garber confirmed the league will also take off “for a portion” of the Club World Cup in 2025.`\
