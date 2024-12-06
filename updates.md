@@ -1,3 +1,11 @@
+**Man Who Kidnapped Woman From Bloomberg’s Colorado Ranch Gets 22 Years in Prison**\
+`Joseph Beecher was intent on killing the media mogul and inquired about his family before taking a housekeeper hostage, officials said.`\
+https://nytimes.com/2024/12/06/us/colorado-man-sentenced-bloomberg-housekeeper-kidnapping.html
+
+**Rebels Advance in Syria as Iran Steps Back**\
+`Also, judges rejected TikTok’s effort to avoid a U.S. ban. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/12/06/briefing/syria-rebels-tiktok-us-ban-appeals-court.html
+
 **Wisconsin targeting Jeff Grimes as next offensive coordinator: Source**\
 `Grimes, who spent 2024 at Kansas, is a 30-year veteran who could help Wisconsin return to emphasizing the running game.`\
 https://nytimes.com/athletic/5975570/2024/12/06/wisconsin-offensive-coordinator-jeff-grimes-kansas/
