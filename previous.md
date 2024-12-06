@@ -1,3 +1,7 @@
+**Atrocities Made a South Korean City Infamous. A Novelist Made It Immortal.**\
+`The last time South Korea imposed martial law, Gwangju endured a deadly crackdown. Han Kang, the Nobel Prize-winning author, told its story in “Human Acts.”`\
+https://nytimes.com/2024/12/06/world/asia/gwangju-massacre-human-acts-han-kang.html
+
 **Spurs have become a team that makes the same mistakes over and over again**\
 `Away defeats typically carry the same hallmarks for Spurs and Thursday's loss to Bournemouth was a chastening moment for their head coach`\
 https://nytimes.com/athletic/5973473/2024/12/06/tottenham-hotspur-ange-postecoglou-bournemouth-defeat/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/world/europe/notre-dame-paris-france.html
 **Trump Could Take Us to War With Iran. But He Could Also Broker Peace.**\
 `Over the next four years, the toxic and seemingly unending psychodrama between the United States and Iran may very well see its final act.`\
 https://nytimes.com/2024/12/06/opinion/trump-iran-war-peace.html
-
-**Climbers Who Went Missing on New Zealand’s Tallest Peak Are Believed Dead**\
-`The police suspended their search for two Americans and a Canadian who went missing while trying to reach the summit of Aoraki/Mount Cook.`\
-https://nytimes.com/2024/12/06/world/asia/new-zealand-climbers-presumed-dead.html
 
