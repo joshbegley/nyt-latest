@@ -1,3 +1,7 @@
+**Blue Jackets' goal challenge backfires as penalty-kill woes spell doom again**\
+`Columbus thought it was 100 percent correct on its challenge. Instead, it allowed a power-play goal for the 11th straight game.`\
+https://nytimes.com/athletic/5973755/2024/12/06/blue-jackets-goal-challenge-penalty-kill/
+
 **How in sync are the Knicks? Look no further than Karl-Anthony Towns' bloody shorts**\
 `The Knicks move the ball with the best of them, and it's easy on the eyes. `\
 https://nytimes.com/athletic/5973782/2024/12/06/knicks-hornets-karl-anthony-towns/
