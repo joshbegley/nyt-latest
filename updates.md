@@ -1,3 +1,11 @@
+**Judge John Hodgman on Shelf-Stable Parmesan**\
+`Can an Italian American use “shaky cheese” if he’s cooking for a toddler?`\
+https://nytimes.com/2024/12/05/magazine/judge-john-hodgman-on-shelf-stable-parmesan.html
+
+**Elon Musk Spent Over $250 Million to Help Elect Trump**\
+`The enormous spending from the world’s richest man quietly fueled allied groups and was revealed only now, as Mr. Musk plays a key role in the presidential transition.`\
+https://nytimes.com/2024/12/05/us/politics/elon-musk-trump-rbg-election.html
+
 **Turning Point**\
 `We wish you a merry Robyn Weintraub Day.`\
 https://nytimes.com/2024/12/05/crosswords/turning-point.html
