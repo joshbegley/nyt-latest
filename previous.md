@@ -1,3 +1,7 @@
+**Barbara Bowman Dies at 96; Visionary Educator for Preschoolers**\
+`She devoted her career to teaching teachers how to prepare the youngest and most vulnerable children to fulfill their potential.`\
+https://nytimes.com/2024/12/06/us/barbara-bowman-dead.html
+
 **Valkyries pick Kate Martin, Kayla Thompson in 2025 WNBA expansion draft**\
 `The full results of the draft will be announced today at 6:30 p.m. ET on ESPN`\
 https://nytimes.com/athletic/5975410/2024/12/06/wnba-expansion-draft-valkyries-kate-martin-kayla-thornton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/arts/dance/review-william-kentridge-shostakovich-
 **GM Kevyn Adams dismissive, defensive in face of questions about Sabres' struggles**\
 `If Adams can't turn Buffalo into "a destination city," the Sabres should find someone who can.`\
 https://nytimes.com/athletic/5975236/2024/12/06/buffalo-sabres-kevyn-adams-destination-city/
-
-**3 Quick and Easy Recipes for the Best-Ever Holiday Spread**\
-`Melissa Clark’s three filling, colorful and festive snacks are perfect for especially effortless entertaining.`\
-https://nytimes.com/2024/12/06/dining/quick-easy-holiday-menu.html
 

@@ -2,7 +2,7 @@
 `She devoted her career to teaching teachers how to prepare the youngest and most vulnerable children to fulfill their potential.`\
 https://nytimes.com/2024/12/06/us/barbara-bowman-dead.html
 
-**Valkyries pick Kate Martin, Kayla Thompson in 2025 WNBA expansion draft**\
+**Valkyries to pick Kate Martin, Kayla Thornton in Friday's expansion draft**\
 `The full results of the draft will be announced today at 6:30 p.m. ET on ESPN`\
 https://nytimes.com/athletic/5975410/2024/12/06/wnba-expansion-draft-valkyries-kate-martin-kayla-thornton/
 
