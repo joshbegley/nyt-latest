@@ -1,3 +1,7 @@
+**Trump Transition Live Updates: Latest Picks Focus on Border and Immigration**\
+``\
+https://nytimes.com/live/2024/12/06/us/trump-hegseth-news
+
 **Why the Seahawks are searching for short-yardage success amid playoff push**\
 `If Seattle wants to stay atop the NFC West, it needs better production in short-yardage situations.`\
 https://nytimes.com/athletic/5973139/2024/12/06/seattle-seahawks-arizona-cardinals-week-14-geno-smith/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974237/2024/12/06/trump-infantino-club-world-cup-p
 **Heat Today: Bam Adebayo is adjusting to shooting more 3s, but his all-around impact remains**\
 `"He’s a big-time, multiple-effort player that has now added experience to all his skill, and I think that goes a long way.”`\
 https://nytimes.com/athletic/5972481/2024/12/06/bam-adebayo-tyler-herro-miami-heat/
-
-**A free-agent fit for each of the 30 MLB teams as the Winter Meetings near**\
-`As we wait for the floodgates to open, Bowden plays matchmaker, proposing a free-agent fit that could make sense for each of the 30 teams.`\
-https://nytimes.com/athletic/5973590/2024/12/06/mlb-free-agent-team-fits-hot-stove/
 
