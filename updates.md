@@ -1,3 +1,7 @@
+**At Truth Social, Kash Patel Investigated Trump’s Estranged Co-Founders**\
+`Mr. Patel was directly involved in building a case that two co-founders of Trump Media & Technology mismanaged the debut of Truth Social in 2022. He was paid about $130,000 as a consultant.`\
+https://nytimes.com/2024/12/06/business/kash-patel-trump-media-truth-social.html
+
 **Rosé Sets Herself Free, and 8 More New Songs**\
 `Hear tracks by Sky Ferreira, Bad Bunny, Sakura Tsuruta and others.`\
 https://nytimes.com/2024/12/06/arts/music/playlist-rose-sky-ferreira-bad-bunny.html

@@ -1,3 +1,7 @@
+**At Truth Social, Kash Patel Investigated Trump’s Estranged Co-Founders**\
+`Mr. Patel was directly involved in building a case that two co-founders of Trump Media & Technology mismanaged the debut of Truth Social in 2022. He was paid about $130,000 as a consultant.`\
+https://nytimes.com/2024/12/06/business/kash-patel-trump-media-truth-social.html
+
 **Rosé Sets Herself Free, and 8 More New Songs**\
 `Hear tracks by Sky Ferreira, Bad Bunny, Sakura Tsuruta and others.`\
 https://nytimes.com/2024/12/06/arts/music/playlist-rose-sky-ferreira-bad-bunny.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009863023/syria-hama-rebels.htm
 **Israeli Attacks Around Gaza Hospital Kill or Wound Scores, Doctors Say**\
 `Airstrikes, gunfire, panic and orders to evacuate in the dark of night combined to cause heavy casualties in the area of Kamal Adwan, one of the last hospitals still operating in northern Gaza.`\
 https://nytimes.com/2024/12/06/world/middleeast/israeli-attack-gaza-kamal-adwan-hospital.html
-
-**Randy Moss taking leave of absence from 'NFL Countdown' due to health issue**\
-`Moss’ exact diagnosis is unknown. He addressed his issues on Countdown while sporting sunglasses`\
-https://nytimes.com/athletic/5974864/2024/12/06/randy-moss-espn-health-issue-leave-of-absence/
 
