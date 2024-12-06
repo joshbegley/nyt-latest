@@ -1,40 +1,40 @@
-**Amazon apologises to Liverpool and Slot over comment about half-time referee visit**\
-`Liverpool and Arne Slot have received an apology from Amazon Prime after it was claimed that Slot had visited the referee&#8217;s room at half-time of the 3-3 draw with Newcastle United on Wednesday.`\
-https://nytimes.com/athletic/5972914/2024/12/06/amazon-liverpool-arne-slot-apology/
+**Falcons say surprise defensive effort 'repeatable,' but Vikings offer tough test: 5 factors**\
+`Kyle Pitts has disappeared again, Michael Penix Jr. is ready, Bijan Robinson doesn't feel overworked, plus the Falcons' playoff chances.`\
+https://nytimes.com/athletic/5972864/2024/12/06/falcons-defense-vikings-kyle-pitts/
 
-**Vinicius Jr aiming for Real Madrid return ahead of schedule**\
-`Real Madrid forward Vinicius Junior is ahead of schedule in his recovery from a hamstring injury and is targeting a return to action against Atalanta or Rayo Vallecano.`\
-https://nytimes.com/athletic/5974184/2024/12/06/vinicius-junior-injury-return/
+**The Supreme Court Just Gave Us a Bitter Taste of What’s Coming**\
+`In the case involving medical care for transgender adolescents, ignoring doctors is part of the point. `\
+https://nytimes.com/2024/12/06/opinion/supreme-court-trans-teens.html
 
-**Jimmy Kimmel Thinks Pete Hegseth Cameo Videos Could Soon Be a Thing**\
-`The late-night host wondered if the embattled pick for secretary of defense could end up appearing on the online platform in time for Christmas.`\
-https://nytimes.com/2024/12/06/arts/television/jimmy-kimmel-pete-hegseth.html
+**He Promised Huge Tax Refunds. Now Trump Wants Him to Lead the I.R.S.**\
+`Since leaving Congress in 2023, Billy Long has peddled a pandemic-era tax credit that the I.R.S. has warned is a magnet for fraud.`\
+https://nytimes.com/2024/12/06/us/politics/billy-long-trump-irs-tax-credit.html
 
-**Vitor Roque faces Barcelona courtesy of 'fear clause' absence - but can he prove a point?**\
-`Vitor Roque will face his parent club Barcelona on Saturday afternoon with loan club Real Betis`\
-https://nytimes.com/athletic/5973386/2024/12/06/vitor-roque-barcelona-real-betis/
+**Houseplants Can Make You Healthier**\
+`You don’t need a green thumb to reap the benefits.`\
+https://nytimes.com/2024/12/06/well/plants-gardening-health-benefits.html
 
-**Stay or Go Chart**\
-`This is part of a chart that appeared in The New York Times this week. Do you know what it is about?`\
-https://nytimes.com/2024/12/06/learning/stay-or-go-chart.html
+**Trump’s F.B.I. Pick Has an Enemies List. Biden Should Pardon Everyone on It.**\
+`The president has a chance to save innocent people from MAGA persecution.`\
+https://nytimes.com/2024/12/06/opinion/kash-patel-biden-pardon.html
 
-**In the ’90s, She Was a Surprise Oscar Nominee. It May Happen Again.**\
-`Marianne Jean-Baptiste’s lead role in “Hard Truths,” directed by Mike Leigh, is her most substantial onscreen role since “Secrets and Lies” earned them Academy Award nominations in 1997.`\
-https://nytimes.com/2024/12/06/movies/marianne-jean-baptiste-mike-leigh-oscars.html
+**The New York Times News Quiz, Dec. 6, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/12/06/briefing/biden-trump-south-korea-brian-thompson-news-quiz.html
 
-**He Mocked the Rich on TikTok for Fun. Now He Can Get $30,000 Per Post.**\
-`Aris Yeager’s “European Kid” videos have been an unexpected hit. Wealthy people and luxury brands have noticed.`\
-https://nytimes.com/2024/12/06/nyregion/european-kid-new-york-tiktok.html
+**The ‘Chilling’ Fatal Shooting of a C.E.O. Has Business Leaders on Edge**\
+`After Brian Thompson of UnitedHealthcare was killed in Manhattan, the phones at corporate security firms were “ringing off the hook.”`\
+https://nytimes.com/2024/12/06/business/brian-thompson-insurance-executives-threats.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/06/crosswords/spelling-bee-forum.html
+**World’s Oldest Known Wild Bird Lays an Egg at 74**\
+`Wisdom, a Laysan albatross, has outlived at least three mates and the researcher who outfitted her with a tracking band in 1956.`\
+https://nytimes.com/2024/12/06/science/wisdom-albatross-bird-egg.html
 
-**Oilers' Zach Hyman proves a little luck can go a long way**\
-`A change of fortune was long overdue for Hyman, and the timing was perfect to boot.`\
-https://nytimes.com/athletic/5974048/2024/12/06/oilers-blue-jackets-zach-hyman-luck/
+**November’s Jobs Report Is Expected to Show a Rebound in Hiring**\
+`The resolution of the Boeing strike, and recovery from storms in the Southeast, are predicted to produce a gain in monthly payroll data.`\
+https://nytimes.com/2024/12/06/business/economy/november-jobs-report.html
 
-**Fire at Baltimore Lumberyard Closes Highway and Schools**\
-`No one was injured or evacuated in the fire, which was made more challenging by the wind, the authorities said.`\
-https://nytimes.com/2024/12/06/us/baltimore-brush-fire.html
+**What Is Your Choice for Word of the Year?**\
+`The Oxford English Dictionary picked “brain rot” as its 2024 Word of the Year. Do you agree?`\
+https://nytimes.com/2024/12/06/learning/what-is-your-choice-for-word-of-the-year.html
 
