@@ -1,3 +1,11 @@
+**The Growing Cost of Making C.E.O.s Safe**\
+`The tragic killing of UnitedHealthCare’s Brian Thompson has spurred companies to ratchet up security for their most senior executives.`\
+https://nytimes.com/2024/12/06/business/dealbook/cost-anxiety-ceo-safety.html
+
+**Syrian Rebels Push South, Despite Efforts to Slow Them**\
+`Government forces are trying to cut off the road that connects the major cities of Hama, which the insurgents have captured, and Homs, which lies on a crucial land corridor.`\
+https://nytimes.com/2024/12/06/world/middleeast/syria-rebels-hama-homs.html
+
 **The Athletic’s Friday football quiz question #33**\
 `Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/5974322/2024/12/06/the-athletic-friday-football-quiz-question-33/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5974294/2024/12/06/notre-dame-playoff-opponent-scen
 **Here’s the latest on the investigation.**\
 `By Alyce McFadden and Corey Kilgannon`\
 https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson/heres-the-latest-on-the-investigation
-
-**Live Updates: Manhunt for Suspect in Killing of Insurance C.E.O. Enters Third Day**\
-`The authorities have collected a number of details about the suspect in the fatal shooting of the UnitedHealthcare leader, but there have been no arrests.`\
-https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson
-
-**Lowetide: How Oilers star Leon Draisaitl is becoming a more complete player**\
-`Draisaitl's recent improvement in a key area of the game is paying off for the Oilers.`\
-https://nytimes.com/athletic/5969321/2024/12/06/edmonton-oilers-leon-draisaitl-stats-player/
 
