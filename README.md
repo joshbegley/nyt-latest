@@ -1,3 +1,15 @@
+**Woman Who Fell Into Sinkhole Is Found Dead**\
+`After searching since Tuesday, the authorities in Unity Township, Pa., on Friday found the body of Elizabeth Pollard, 64, who disappeared while searching for her cat.`\
+https://nytimes.com/2024/12/06/us/elizabeth-pollard-sinkhole-dead.html
+
+**Eric Adams Doesn’t Rule Out Becoming a Republican Again**\
+`The Democratic mayor of New York City has embraced President-elect Donald J. Trump lately. He was a registered Republican in the 1990s.`\
+https://nytimes.com/2024/12/06/nyregion/eric-adams-republican.html
+
+**Hundreds of tips are coming in. The police say they want more.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson/hundreds-of-tips-are-coming-in-the-police-say-they-want-more
+
 **Cubs adding Jose Javier from Yankees as new first-base coach: Sources**\
 `Javier spent this past season as a defensive coach for the New York Yankees’ Triple-A affiliate`\
 https://nytimes.com/athletic/5974997/2024/12/06/cubs-jose-javier-yankees-coaching-staff/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5974753/2024/12/06/emma-raducanu-tennis-team-fitnes
 **The Rage and Glee That Followed a C.E.O.’s Killing Should Ring All Alarms**\
 `It echoes another era of extreme inequality and extreme violence.`\
 https://nytimes.com/2024/12/06/opinion/united-health-care-ceo-shooting.html
-
-**Eight takeaways after Blackhawks GM Kyle Davidson explains Luke Richardson firing**\
-`When did Davidson make the decision to change coaches, and what feedback did he get from ownership?`\
-https://nytimes.com/athletic/5974962/2024/12/06/blackhawks-gm-davidson-richardson/
-
-**Boston City Councilor Indicted on Federal Charges**\
-`The council member, Tania Fernandes Anderson, was arrested on public corruption charges involving an alleged kickback.`\
-https://nytimes.com/2024/12/06/us/boston-city-councilor-indicted-on-federal-charges.html
-
-**Could Facial Recognition Help Find Man Sought in C.E.O.’s Killing?**\
-`Experts disagreed on whether running surveillance camera images released by the police through a facial recognition system would produce a reliable lead.`\
-https://nytimes.com/2024/12/06/technology/united-healthcare-ceo-shooting-facial-recognition.html
 
