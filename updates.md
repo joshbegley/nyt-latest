@@ -1,3 +1,11 @@
+**The Head of South Korean President Yoon’s Party Calls for His Impeachment**\
+`The statement by Han Dong-hoon makes it more likely that President Yoon Suk Yeol will be impeached in a parliamentary vote on Saturday.`\
+https://nytimes.com/2024/12/05/world/asia/south-korea-yoon-impeachment.html
+
+**Insurer Reverses Policy That Would Have Limited Anesthesia Periods**\
+`Anthem Blue Cross Blue Shield officials had planned to roll out the changes nationwide but said they were misunderstood.`\
+https://nytimes.com/2024/12/05/health/anesthesia-anthem.html
+
 **Trump Names Top Silicon Valley Conservative to Oversee Crypto and A.I.**\
 `David Sacks, a venture capitalist who hosts a hit podcast, has generally called for a looser hand in regulating both emerging technologies.`\
 https://nytimes.com/2024/12/05/us/politics/david-sacks-crypto-ai-trump.html
