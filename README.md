@@ -1,3 +1,7 @@
+**What Is Happening in Syria**\
+`We explain the latest updates in the country’s civil war.`\
+https://nytimes.com/2024/12/06/briefing/what-is-happening-in-syria.html
+
 **The true wonder of Wemby, managing Jokic's minutes and big games, big leads: NBA notebook**\
 `Can the Nuggets afford to play Jokić this much? Can they afford not to?`\
 https://nytimes.com/athletic/5970276/2024/12/06/victor-wembanyama-nikola-jokic-nba-notebook/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973230/2024/12/06/bears-mailbag-thomas-brown-49ers
 **Vikings-Falcons preview, predictions: Can Minnesota spoil Kirk Cousins' return?**\
 `Can the talented Vikings defense keep Cousins, Bijan Robinson and Drake London in check for 60 minutes on Sunday? `\
 https://nytimes.com/athletic/5973048/2024/12/06/vikings-falcons-preview-predictions-kirk-cousins/
-
-**Koreen: Raptors rebuild is about more than just tanking and draft position**\
-`High draft picks are important for rebuilding teams, but so are chances at evaluation and building cohesion.`\
-https://nytimes.com/athletic/5972847/2024/12/06/toronto-raptors-tank-nba/
 

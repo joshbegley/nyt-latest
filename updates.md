@@ -1,3 +1,7 @@
+**The true wonder of Wemby, managing Jokic's minutes and big games, big leads: NBA notebook**\
+`Can the Nuggets afford to play Jokić this much? Can they afford not to?`\
+https://nytimes.com/athletic/5970276/2024/12/06/victor-wembanyama-nikola-jokic-nba-notebook/
+
 **The Pulse: The Super Bowl favorite**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5972355/2024/12/06/lions-packers-the-pulse/
