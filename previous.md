@@ -1,3 +1,11 @@
+**The Stewards of Czech Musical Heritage Return to Carnegie Hall**\
+`Over three nights, the Czech Philharmonic presented Dvorak’s concertos and more, including a rare performance of Janacek’s “Glagolitic Mass.”`\
+https://nytimes.com/2024/12/06/arts/music/czech-philharmonic-carnegie-hall.html
+
+**Is a Stars spending spree coming with Tyler Seguin out long-term? Catching up with GM Jim Nill**\
+`If the Stars determine Seguin will be out for the rest of the regular season, they can put him and his $9.85 million cap hit on LTIR.`\
+https://nytimes.com/athletic/5974445/2024/12/06/stars-trades-tyler-seguin-jim-nill/
+
 **The Transgender Case, and the Role of Activists**\
 `Readers discuss the Supreme Court case and the threats trans people face. Also: Recess appointments; Social Security; pardons; brain injuries and crime.`\
 https://nytimes.com/2024/12/06/opinion/transgender-activists-supreme-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5974606/2024/12/06/texas-mascot-bevo-sec-championsh
 **Trump’s Allies Go Global: ‘Make Argentina Great Again’**\
 `At its international conferences, CPAC is giving a stage to right-wing politicians and hunting for ideas for use back home.`\
 https://nytimes.com/2024/12/06/us/politics/cpac-argentina-trump-milei.html
-
-**Court Upholds Law Forcing a Ban or Sale of TikTok**\
-`The law will ban the video app in the United States by Jan. 19 if its owner, ByteDance, does not sell it to a non-Chinese company.`\
-https://nytimes.com/2024/12/06/business/media/tiktok-ban-court-decision.html
-
-**Watch the Stirring Climax of ‘The Piano Lesson’**\
-`The director Malcolm Washington narrates a sequence from the film featuring Danielle Deadwyler.`\
-https://nytimes.com/2024/12/06/movies/the-piano-lesson-clip.html
 
