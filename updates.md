@@ -1,3 +1,11 @@
+**Cash App Wades Into the Exclusive World of Presale Concert Tickets**\
+`Legacy credit cards and banks aren’t the only banking options to come with perks for premium access to events anymore.`\
+https://nytimes.com/2024/12/06/business/kendrick-lamar-sza-tour-cash-app.html
+
+**Syria’s ‘Frozen Conflict’ Is Now Red Hot**\
+`When equilibriums are disrupted, chaos can ensue.`\
+https://nytimes.com/2024/12/06/world/middleeast/syrias-frozen-conflict-is-now-red-hot.html
+
 **As Syrian Rebel Advance Accelerates, Nervous Neighbors Close Their Borders**\
 `The rebels’ gains prompted Lebanon and Jordan to close border crossings and Israel to reinforce its forces in the Golan Heights.`\
 https://nytimes.com/2024/12/06/world/middleeast/syria-rebels-damascus-iran.html
