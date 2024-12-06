@@ -1,3 +1,11 @@
+**Boston City Councilor Indicted on Federal Charges**\
+`The council member, Tania Fernandes Anderson, was arrested on public corruption charges involving an alleged kickback.`\
+https://nytimes.com/2024/12/06/us/boston-city-councilor-indicted-on-federal-charges.html
+
+**Could Facial Recognition Help Find Man Sought in C.E.O.’s Killing?**\
+`Experts disagreed on whether running surveillance camera images released by the police through a facial recognition system would produce a reliable lead.`\
+https://nytimes.com/2024/12/06/technology/united-healthcare-ceo-shooting-facial-recognition.html
+
 **Federal Judge Upholds Racial Preferences in Naval Academy Admissions**\
 `A group that won a Supreme Court case challenging affirmative action at Harvard and the University of North Carolina had also sued the military academies.`\
 https://nytimes.com/2024/12/06/us/racial-preferences-naval-academy-admissions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/realestate/tiny-homes-japan.html
 **The Consumer Bureau Is Likely Here to Stay, but Big Changes Await**\
 `Republicans are unlikely to abolish the Consumer Financial Protection Bureau, but they will drastically rework its rules and activities.`\
 https://nytimes.com/2024/12/06/us/politics/cfpb-republicans-rohit-chopra.html
-
-**Owner of Los Angeles Times Plans ‘Bias Meter’ Next to Coverage**\
-`Dr. Patrick Soon-Shiong said that he planned to introduce the tool, which he said would appear next to the paper’s news articles and opinion pieces, in January.`\
-https://nytimes.com/2024/12/06/business/media/la-times-owner-bias-meter.html
-
-**Jury in Subway Chokehold Trial Struggles to Agree on Manslaughter Charge**\
-`It was unclear whether the case would result in a mistrial or if jurors would be able to consider the second charge against Daniel Penny in the killing of Jordan Neely last year.`\
-https://nytimes.com/2024/12/06/nyregion/daniel-penny-jordan-neely-chokehold-trial.html
 
