@@ -1,3 +1,7 @@
+**As India-Bangladesh Tensions Rise, So Do Fears of Tit-for-Tat Violence**\
+`A diplomatic dispute over claims of persecution of Bangladeshi Hindus threatens to upend Bangladesh’s interim government.`\
+https://nytimes.com/2024/12/06/world/asia/india-bangladesh-tensions.html
+
 **At Truth Social, Kash Patel Investigated Trump’s Estranged Co-Founders**\
 `Mr. Patel was directly involved in building a case that two co-founders of Trump Media & Technology mismanaged the debut of Truth Social in 2022. He was paid about $130,000 as a consultant.`\
 https://nytimes.com/2024/12/06/business/kash-patel-trump-media-truth-social.html

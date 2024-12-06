@@ -1,3 +1,7 @@
+**As India-Bangladesh Tensions Rise, So Do Fears of Tit-for-Tat Violence**\
+`A diplomatic dispute over claims of persecution of Bangladeshi Hindus threatens to upend Bangladesh’s interim government.`\
+https://nytimes.com/2024/12/06/world/asia/india-bangladesh-tensions.html
+
 **At Truth Social, Kash Patel Investigated Trump’s Estranged Co-Founders**\
 `Mr. Patel was directly involved in building a case that two co-founders of Trump Media & Technology mismanaged the debut of Truth Social in 2022. He was paid about $130,000 as a consultant.`\
 https://nytimes.com/2024/12/06/business/kash-patel-trump-media-truth-social.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/nyregion/daniel-penny-jordan-neely-chokehold-tria
 **Syrian Rebels Celebrate Capture of Hama**\
 `Syrian rebels took the city of Hama on Thursday, before continuing to push south in a march toward Homs, a major city, and Damascus, the capital.`\
 https://nytimes.com/video/world/middleeast/100000009863023/syria-hama-rebels.html
-
-**Israeli Attacks Around Gaza Hospital Kill or Wound Scores, Doctors Say**\
-`Airstrikes, gunfire, panic and orders to evacuate in the dark of night combined to cause heavy casualties in the area of Kamal Adwan, one of the last hospitals still operating in northern Gaza.`\
-https://nytimes.com/2024/12/06/world/middleeast/israeli-attack-gaza-kamal-adwan-hospital.html
 
