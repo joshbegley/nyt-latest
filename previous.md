@@ -1,3 +1,7 @@
+**Fire at Baltimore Lumberyard Closes Highway and Schools**\
+`No one was injured or evacuated in the fire, which was made more challenging by the wind, the authorities said.`\
+https://nytimes.com/2024/12/06/us/baltimore-brush-fire.html
+
 **Atrocities Made a South Korean City Infamous. A Novelist Made It Immortal.**\
 `The last time South Korea imposed martial law, Gwangju endured a deadly crackdown. Han Kang, the Nobel Prize-winning author, told its story in “Human Acts.”`\
 https://nytimes.com/2024/12/06/world/asia/gwangju-massacre-human-acts-han-kang.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973801/2024/12/06/flyers-resilient-panthers-michko
 **How Notre-Dame Was Reborn**\
 `It took about 250 companies, 2,000 workers, about $900 million, a tight deadline and a lot of national pride.`\
 https://nytimes.com/2024/12/06/world/europe/notre-dame-paris-france.html
-
-**Trump Could Take Us to War With Iran. But He Could Also Broker Peace.**\
-`Over the next four years, the toxic and seemingly unending psychodrama between the United States and Iran may very well see its final act.`\
-https://nytimes.com/2024/12/06/opinion/trump-iran-war-peace.html
 

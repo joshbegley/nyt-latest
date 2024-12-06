@@ -1,3 +1,7 @@
+**Fire at Baltimore Lumberyard Closes Highway and Schools**\
+`No one was injured or evacuated in the fire, which was made more challenging by the wind, the authorities said.`\
+https://nytimes.com/2024/12/06/us/baltimore-brush-fire.html
+
 **Atrocities Made a South Korean City Infamous. A Novelist Made It Immortal.**\
 `The last time South Korea imposed martial law, Gwangju endured a deadly crackdown. Han Kang, the Nobel Prize-winning author, told its story in “Human Acts.”`\
 https://nytimes.com/2024/12/06/world/asia/gwangju-massacre-human-acts-han-kang.html
