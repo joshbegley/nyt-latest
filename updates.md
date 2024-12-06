@@ -1,3 +1,7 @@
+**Trump and Infantino: Club World Cup draw becomes a tale of two presidents**\
+`If its draw ceremony is any indicator, the Club World Cup might get a little weird`\
+https://nytimes.com/athletic/5973331/2024/12/06/trump-infantino-club-world-cup/
+
 **Blue Jackets' goal challenge backfires as penalty-kill woes spell doom again**\
 `Columbus thought it was 100 percent correct on its challenge. Instead, it allowed a power-play goal for the 11th straight game.`\
 https://nytimes.com/athletic/5973755/2024/12/06/blue-jackets-goal-challenge-penalty-kill/
