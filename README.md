@@ -1,3 +1,11 @@
+**Ghana’s Voters Look for Leader to Fix a Broken Economy**\
+`Ghanaians voting on Saturday are confronted with a choice familiar to Americans: Return a one-term former president to office, or promote the vice president, at a time when anger over the economy is widespread.`\
+https://nytimes.com/2024/12/06/world/africa/ghana-election-ndc-npp.html
+
+**Texas beats Georgia for 5-star DL Justus Terry, wraps up No. 1 class in 2025 cycle**\
+`Texas' class includes five five-star prospects and 11 players ranked in the top 100 of the 247Sports Composite.`\
+https://nytimes.com/athletic/5975038/2024/12/06/texas-no-1-recruiting-class-justus-terry/
+
 **How Childhood Tragedy Shaped the Doctor Trump Picked for Surgeon General**\
 `At the age of 13, Dr. Janette Nesheiwat said she accidentally knocked over a box in a darkened room. A handgun went off, leaving her father dead.`\
 https://nytimes.com/2024/12/06/nyregion/janette-nesheiwat-surgeon-general-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/nyregion/eric-adams-republican.html
 **Hundreds of tips are coming in. The police say they want more.**\
 `By Maria Cramer`\
 https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson/hundreds-of-tips-are-coming-in-the-police-say-they-want-more
-
-**Cubs adding Jose Javier from Yankees as new first-base coach: Sources**\
-`Javier spent this past season as a defensive coach for the New York Yankees’ Triple-A affiliate`\
-https://nytimes.com/athletic/5974997/2024/12/06/cubs-jose-javier-yankees-coaching-staff/
-
-**49ers mock draft reaction: Derrick Harmon's a great fit, but is there a tackle to pursue?**\
-`Harmon would help what's been a punch-less defensive line this season. But what other positions could the 49ers target in the first round?`\
-https://nytimes.com/athletic/5974984/2024/12/06/49ers-mock-draft-derrick-harmon/
 
