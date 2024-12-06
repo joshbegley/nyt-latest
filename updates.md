@@ -1,3 +1,11 @@
+**Alisson Liverpool return 'very soon', Jota and Chiesa 'close'**\
+`Caoimhin Kelleher will continue in goal for Liverpool with Alisson close to returning but not available for Saturday&#8217;s Merseyside derby.`\
+https://nytimes.com/athletic/5974479/2024/12/06/alisson-jota-chiesa-liverpool-injury-update/
+
+**Foden, Stones, Kovacic and Ake all set to miss Man City's trip to Palace**\
+`Phil Foden, John Stones, Mateo Kovacic and Nathan Ake are all set to miss Manchester City&#8217;s game against Crystal Palace on Saturday.`\
+https://nytimes.com/athletic/5974468/2024/12/06/man-city-team-news-foden-stones-kovacic-ake/
+
 **Chelsea yet to decide on pre-season plans amid Club World Cup participation**\
 `Enzo Maresca admits Chelsea have yet to make a decision on their pre-season plans with the team also participating in the FIFA Club World Cup next summer.`\
 https://nytimes.com/athletic/5974531/2024/12/06/chelsea-club-world-cup-preseason/

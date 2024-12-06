@@ -1,3 +1,11 @@
+**Alisson Liverpool return 'very soon', Jota and Chiesa 'close'**\
+`Caoimhin Kelleher will continue in goal for Liverpool with Alisson close to returning but not available for Saturday&#8217;s Merseyside derby.`\
+https://nytimes.com/athletic/5974479/2024/12/06/alisson-jota-chiesa-liverpool-injury-update/
+
+**Foden, Stones, Kovacic and Ake all set to miss Man City's trip to Palace**\
+`Phil Foden, John Stones, Mateo Kovacic and Nathan Ake are all set to miss Manchester City&#8217;s game against Crystal Palace on Saturday.`\
+https://nytimes.com/athletic/5974468/2024/12/06/man-city-team-news-foden-stones-kovacic-ake/
+
 **Chelsea yet to decide on pre-season plans amid Club World Cup participation**\
 `Enzo Maresca admits Chelsea have yet to make a decision on their pre-season plans with the team also participating in the FIFA Club World Cup next summer.`\
 https://nytimes.com/athletic/5974531/2024/12/06/chelsea-club-world-cup-preseason/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/world/europe/eu-trade-deal-mercosur-latin-america
 **Firefighters Battle Large Lumberyard Fire in Baltimore**\
 `No one was injured or evacuated in the fire, but it prompted the cancellation of Friday classes at two nearby schools.`\
 https://nytimes.com/video/us/100000009862940/lumberyard-fire-baltimore.html
-
-**Chelsea don't expect Kerr return from injury until February or March**\
-`Chelsea do not expect to have Sam Kerr back for &#8220;at least two or three more months&#8221; as she continues her recovery from an anterior cruciate ligament (ACL) injury.`\
-https://nytimes.com/athletic/5974395/2024/12/06/chelsea-sam-kerr-injury-acl-update/
-
-**Trump Transition Live Updates: Latest Picks Focus on Border and Immigration**\
-``\
-https://nytimes.com/live/2024/12/06/us/trump-hegseth-news
 
