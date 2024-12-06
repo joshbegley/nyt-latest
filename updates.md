@@ -1,3 +1,11 @@
+**Eric Adams Doesn’t Rule Out Becoming a Republican Again**\
+`The Democratic mayor of New York City has embraced President-elect Donald J. Trump lately. He was a registered Republican in the 1990s.`\
+https://nytimes.com/2024/12/06/nyregion/eric-adams-republican.html
+
+**Hundreds of tips are coming in. The police say they want more.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson/hundreds-of-tips-are-coming-in-the-police-say-they-want-more
+
 **The Rage and Glee That Followed a C.E.O.’s Killing Should Ring All Alarms**\
 `It echoes another era of extreme inequality and extreme violence.`\
 https://nytimes.com/2024/12/06/opinion/united-health-care-ceo-shooting.html
