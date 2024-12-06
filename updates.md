@@ -1,3 +1,7 @@
+**Climbers Who Went Missing on New Zealand’s Tallest Peak Are Believed Dead**\
+`The police suspended their search for two Americans and a Canadian who went missing while trying to reach the summit of Aoraki/Mount Cook.`\
+https://nytimes.com/2024/12/06/world/asia/new-zealand-climbers-presumed-dead.html
+
 **Sabres thoughts: How Lindy Ruff is handling losing streak, Tage Thompson's 4 Nations snub, more**\
 `After a 3-2 OT loss to the Jets, the Sabres extend their winless streak to five games and can't afford to let it get any longer.`\
 https://nytimes.com/athletic/5973807/2024/12/06/sabres-lindy-ruff-thompson-injuries/

@@ -1,3 +1,7 @@
+**Climbers Who Went Missing on New Zealand’s Tallest Peak Are Believed Dead**\
+`The police suspended their search for two Americans and a Canadian who went missing while trying to reach the summit of Aoraki/Mount Cook.`\
+https://nytimes.com/2024/12/06/world/asia/new-zealand-climbers-presumed-dead.html
+
 **South Korean Who Grabbed Soldier’s Rifle: ‘I Couldn’t Back Down’**\
 `An Gwi-ryeong, a spokeswoman for a political party, went viral after confronting troops during South Korea’s night of martial law. “My first thought was that I just needed to stop the soldiers,” she said.`\
 https://nytimes.com/video/world/asia/100000009862693/south-korea-politician-soldiers-rifle-martial-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973807/2024/12/06/sabres-lindy-ruff-thompson-injur
 **Political Turmoil Adds to South Korea’s Economic Woes**\
 `Even before a short-lived declaration of martial law thrust the country into crisis, the economy faced grim prospects.`\
 https://nytimes.com/2024/12/06/business/south-korea-economy-martial-law.html
-
-**Merseyside derby memories at Goodison Park: Passion, poignancy, ecstasy, agony and a Tic Tac ad**\
-`Goodison Park is an iconic stadium - and is often at its best when Everton welcome Liverpool. It is set to host a final derby`\
-https://nytimes.com/athletic/5966452/2024/12/06/merseyside-derby-final-goodison-park-liverpool-everton/
 
