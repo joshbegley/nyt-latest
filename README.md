@@ -1,3 +1,7 @@
+**Ronaldo's 1998 World Cup final shirt, Maradona lock of hair on sale at auction**\
+`The shirt won by Brazilian striker Ronaldo in the 1998 World Cup final and a lock of Diego Maradona&#8217;s hair are among over 200 items to be auctioned in Paris on December 15.`\
+https://nytimes.com/athletic/5975269/2024/12/06/ronaldo-world-cup-final-brazil/
+
 **Public cost to renovate home for Boston's new NWSL team balloons**\
 `The cost to renovate White Stadium in Boston, where the NWSL’s 15th franchise is expected to play in 2026, has ballooned to $91 million in public spending, nearly doubling from earlier estimates.`\
 https://nytimes.com/athletic/5975394/2024/12/06/boston-nation-nwsl-white-stadium-renovation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975311/2024/12/06/jacob-trouba-nhl-trade-grade/
 **A House Where Every Republican Will Be in Charge**\
 `And you thought this congressional term was a little nuts?`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/johnson-house-majority-narrow
-
-**Leader of Syria’s Resurgent Rebels Lays Out Strategy to Oust Assad**\
-`In an interview, Abu Mohammad al-Jolani, the Islamist rebel heading an offensive moving toward Damascus, said the operation was a long time coming.`\
-https://nytimes.com/2024/12/06/world/middleeast/syria-rebel-leader-interview.html
 

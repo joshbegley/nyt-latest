@@ -1,3 +1,7 @@
+**Public cost to renovate home for Boston's new NWSL team balloons**\
+`The cost to renovate White Stadium in Boston, where the NWSL’s 15th franchise is expected to play in 2026, has ballooned to $91 million in public spending, nearly doubling from earlier estimates.`\
+https://nytimes.com/athletic/5975394/2024/12/06/boston-nation-nwsl-white-stadium-renovation/
+
 **Cash App Wades Into the Exclusive World of Presale Concert Tickets**\
 `Legacy credit cards and banks aren’t the only banking options to come with perks for premium access to events anymore.`\
 https://nytimes.com/2024/12/06/business/kendrick-lamar-sza-tour-cash-app.html

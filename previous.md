@@ -1,3 +1,7 @@
+**Public cost to renovate home for Boston's new NWSL team balloons**\
+`The cost to renovate White Stadium in Boston, where the NWSL’s 15th franchise is expected to play in 2026, has ballooned to $91 million in public spending, nearly doubling from earlier estimates.`\
+https://nytimes.com/athletic/5975394/2024/12/06/boston-nation-nwsl-white-stadium-renovation/
+
 **Cash App Wades Into the Exclusive World of Presale Concert Tickets**\
 `Legacy credit cards and banks aren’t the only banking options to come with perks for premium access to events anymore.`\
 https://nytimes.com/2024/12/06/business/kendrick-lamar-sza-tour-cash-app.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/04/opinion/thepoint/johnson-house-majority-narr
 **Leader of Syria’s Resurgent Rebels Lays Out Strategy to Oust Assad**\
 `In an interview, Abu Mohammad al-Jolani, the Islamist rebel heading an offensive moving toward Damascus, said the operation was a long time coming.`\
 https://nytimes.com/2024/12/06/world/middleeast/syria-rebel-leader-interview.html
-
-**Ron O’Brien, 86, Dies; Coached Louganis and Other Diving Champs**\
-`His divers won more than 300 medals at major domestic and international competitions, including a dozen at the Olympics.`\
-https://nytimes.com/2024/12/06/sports/ron-obrien-dead.html
 
