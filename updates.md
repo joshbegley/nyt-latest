@@ -1,3 +1,11 @@
+**Valkyries pick Kate Martin, Kayla Thompson in 2025 WNBA expansion draft**\
+`The full results of the draft will be announced today at 6:30 p.m. ET on ESPN`\
+https://nytimes.com/athletic/5975410/2024/12/06/wnba-expansion-draft-valkyries-kate-martin-kayla-thornton/
+
+**With Vegas stadium agreements, record free-agent contract, A's gain some positive momentum**\
+`The Las Vegas Stadium Authority this week approved key agreements that move the A’s closer to a groundbreaking.`\
+https://nytimes.com/athletic/5975393/2024/12/06/las-vegas-as-stadium-agreement-severino/
+
 **Ronaldo's 1998 World Cup final shirt, Maradona lock of hair on sale at auction**\
 `The shirt won by Brazilian striker Ronaldo in the 1998 World Cup final and a lock of Diego Maradona&#8217;s hair are among over 200 items to be auctioned in Paris on December 15.`\
 https://nytimes.com/athletic/5975269/2024/12/06/ronaldo-world-cup-final-brazil/
