@@ -1,3 +1,11 @@
+**NHL trade grades: Jacob Trouba deal is a no-brainer for Rangers, an opportunity for Ducks**\
+`Did the Ducks make a mistake in taking on Trouba's full salary, or will this turn into a wise move later?`\
+https://nytimes.com/athletic/5975311/2024/12/06/nhl-trade-grades-jacob-trouba-deal-is-a-no-brainer-for-rangers-an-opportunity-for-ducks/
+
+**A House Where Every Republican Will Be in Charge**\
+`And you thought this congressional term was a little nuts?`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/johnson-house-majority-narrow
+
 **Leader of Syria’s Resurgent Rebels Lays Out Strategy to Oust Assad**\
 `In an interview, Abu Mohammad al-Jolani, the Islamist rebel heading an offensive moving toward Damascus, said the operation was a long time coming.`\
 https://nytimes.com/2024/12/06/world/middleeast/syria-rebel-leader-interview.html
