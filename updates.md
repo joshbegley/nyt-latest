@@ -1,3 +1,15 @@
+**Political Turmoil Adds to South Korea’s Economic Woes**\
+`Even before a short-lived declaration of martial law thrust the country into crisis, the economy faced grim prospects.`\
+https://nytimes.com/2024/12/06/business/south-korea-economy-martial-law.html
+
+**'It's starting to get real': Cleveland Cavaliers' dream season a straight shot**\
+`The Cavs just gave up 76 points in the paint … and won comfortably. They made 22 3s to the Nuggets' six in a 126-114 triumph.`\
+https://nytimes.com/athletic/5973720/2024/12/06/cleveland-cavaliers-dream-season-denver-nuggets/
+
+**United, Forest and a youth record 8,342 games in the making**\
+`Two clubs with a proud history of promoting youth meet at Old Trafford tomorrow, but how long can their records sustain?`\
+https://nytimes.com/athletic/5963089/2024/12/06/manchester-united-nottingham-forest-youth-development/
+
 **Tyler Dibling: Southampton's standout star - and his route (via Chelsea) to the Premier League**\
 `Tyler Dibling has shone for Southampton this season — this is the story of how he made it to the Premier League`\
 https://nytimes.com/athletic/5971753/2024/12/06/tyler-dibling-southamptons-standout-star-and-his-route-via-chelsea-to-the-premier-league/

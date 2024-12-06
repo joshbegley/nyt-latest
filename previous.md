@@ -1,3 +1,15 @@
+**Political Turmoil Adds to South Korea’s Economic Woes**\
+`Even before a short-lived declaration of martial law thrust the country into crisis, the economy faced grim prospects.`\
+https://nytimes.com/2024/12/06/business/south-korea-economy-martial-law.html
+
+**'It's starting to get real': Cleveland Cavaliers' dream season a straight shot**\
+`The Cavs just gave up 76 points in the paint … and won comfortably. They made 22 3s to the Nuggets' six in a 126-114 triumph.`\
+https://nytimes.com/athletic/5973720/2024/12/06/cleveland-cavaliers-dream-season-denver-nuggets/
+
+**United, Forest and a youth record 8,342 games in the making**\
+`Two clubs with a proud history of promoting youth meet at Old Trafford tomorrow, but how long can their records sustain?`\
+https://nytimes.com/athletic/5963089/2024/12/06/manchester-united-nottingham-forest-youth-development/
+
 **Tyler Dibling: Southampton's standout star - and his route (via Chelsea) to the Premier League**\
 `Tyler Dibling has shone for Southampton this season — this is the story of how he made it to the Premier League`\
 https://nytimes.com/athletic/5971753/2024/12/06/tyler-dibling-southamptons-standout-star-and-his-route-via-chelsea-to-the-premier-league/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5972226/2024/12/06/arsenal-stoke-dimitar-berbatov-a
 **Britain’s Starmer Is Trying to Fight Populism From the Lonely Center**\
 `One of the last centrist leaders left on the global stage, Prime Minister Keir Starmer this week outlined his plan to deliver change for people in the U.K. Will it be enough?`\
 https://nytimes.com/2024/12/06/world/europe/uk-starmer-populism-labour-farage.html
-
-**Inside ‘Rail Force One’: The Trains That Take World Leaders to Ukraine**\
-`With airspace closed and missiles flying, visiting Kyiv typically means 10 hours on bumpy tracks — even for presidents, prime ministers and business magnates. It’s plenty of time to reflect.`\
-https://nytimes.com/2024/12/06/world/europe/inside-rail-force-one-the-trains-that-take-world-leaders-to-ukraine.html
-
-**Notre-Dame Reopens: Here’s What to Know**\
-`Millions of visitors will flock to the Parisian cathedral after it reopens in December for the first time since a destructive fire in 2019.`\
-https://nytimes.com/2024/12/06/world/europe/notre-dame-cathedral-paris-opening.html
-
-**My Son Is Gone. Our Conversation Goes On.**\
-`Three days before my child unexpectedly died, he primed me to keep living.`\
-https://nytimes.com/2024/12/06/style/modern-love-my-son-is-gone-our-conversation-goes-on.html
 
