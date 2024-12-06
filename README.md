@@ -1,3 +1,7 @@
+**Was Brian Thompson’s Killer a Hit Man? Unlikely, Experts Say.**\
+`The murder of Brian Thompson did not appear to have been committed by a coldly calculating professional, according to people who study criminal behavior.`\
+https://nytimes.com/2024/12/06/nyregion/brian-thompson-killer-hit-man.html
+
 **This is the Pelicans team (minus Zion) we've been waiting to see**\
 `Brandon Ingram and Herb Jones returned to the lineup and made an immediate impact as New Orleans snapped a nine-game losing streak.`\
 https://nytimes.com/athletic/5974146/2024/12/06/pelicans-win-brandon-ingram-herb-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5971983/2024/12/06/nfl-draft-2025-discussion-ashton
 **Arsenal, Fulham and the familiar faces that reflect well on the Hale End youth system**\
 `Emile Smith Rowe, Reiss Nelson and Alex Iwobi have all left Arsenal to pursue chances elsewhere and all are impressing this season`\
 https://nytimes.com/athletic/5971432/2024/12/06/arsenal-fulham-and-the-familiar-faces-that-reflect-well-on-the-hale-end-youth-system/
-
-**Broncos' playoff scenarios, RB conundrum and Garett Bolles' future: Mailbag**\
-`Also, secondary concerns, and did Mike Shanahan get snubbed by losing out on the Hall of Fame in 2025?`\
-https://nytimes.com/athletic/5972854/2024/12/06/broncos-mailbag-playoff-scenarios/
 
