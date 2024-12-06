@@ -1,3 +1,7 @@
+**Jokić records 139th triple-double, breaking tie with Magic for third-most**\
+`Nikola Jokić was temporarily tied with Magic Johnson but now stands alone behind only Oscar Robertson and teammate Russell Westbrook.`\
+https://nytimes.com/athletic/5963504/2024/12/05/nikola-jokic-triple-double-record-nba/
+
 **In First Post-Election Speech, Obama Calls for ‘Forging Alliances and Building Coalitions’**\
 `“Purity tests are not a recipe for long-term success,” the former president said in the speech in Chicago.`\
 https://nytimes.com/2024/12/05/us/obama-speech-chicago.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/us/politics/matt-gaetz-ethics-report-blocked-hous
 **Giants' Matt Chapman open to temporary move to shortstop**\
 `Kim, a free-agent shortstop, is expected to miss at least the early part of the 2025 season and possibly the entire first half.`\
 https://nytimes.com/athletic/5973372/2024/12/05/matt-chapman-giants-shortstop-ha-seong-kim/
-
-**Avett Brothers Musical ‘Swept Away’ to Close on Broadway After Short Run**\
-`The new musical, about a shipwreck and its aftermath, opened Nov. 19 at the Longacre Theater.`\
-https://nytimes.com/2024/12/05/theater/swept-away-broadway-closing.html
 
