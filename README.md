@@ -1,3 +1,11 @@
+**Buckley: With Bill Belichick, follow history, not money. Consider North Carolina Plan B**\
+`For Belichick, the all-time victories record would attach the family name to coaching greatness. After 50 years in the NFL, that's job one.`\
+https://nytimes.com/athletic/5973653/2024/12/05/bill-belichick-north-carolina-job/
+
+**Trump Picks Former Senator and Election Denier to Be Ambassador to China**\
+`David Perdue would serve in the role at a time when the U.S.-China relationship is considered to be the most consequential in the world.`\
+https://nytimes.com/2024/12/05/us/politics/david-perdue-trump-china-ambassador.html
+
 **Judge John Hodgman on Shelf-Stable Parmesan**\
 `Can an Italian American use “shaky cheese” if he’s cooking for a toddler?`\
 https://nytimes.com/2024/12/05/magazine/judge-john-hodgman-on-shelf-stable-parmesan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/05/pageoneplus/corrections-dec-6-2024.html
 **Jokić records 139th triple-double, breaking tie with Magic for third-most**\
 `Nikola Jokić was temporarily tied with Magic Johnson but now stands alone behind only Oscar Robertson and teammate Russell Westbrook.`\
 https://nytimes.com/athletic/5963504/2024/12/05/nikola-jokic-triple-double-record-nba/
-
-**In First Post-Election Speech, Obama Calls for ‘Forging Alliances and Building Coalitions’**\
-`“Purity tests are not a recipe for long-term success,” the former president said in the speech in Chicago.`\
-https://nytimes.com/2024/12/05/us/obama-speech-chicago.html
-
-**A Miracle: Notre-Dame’s Astonishing Rebirth From the Ashes**\
-`Five years after a fire nearly felled the cathedral that has dazzled visitors for almost 900 years, the heart of Paris beats anew.`\
-https://nytimes.com/interactive/2024/12/05/arts/design/notre-dame-reopens-paris.html
 
