@@ -1,3 +1,7 @@
+**What Is Happening in Syria**\
+`We explain the latest updates in the country’s civil war.`\
+https://nytimes.com/2024/12/06/briefing/what-is-happening-in-syria.html
+
 **The true wonder of Wemby, managing Jokic's minutes and big games, big leads: NBA notebook**\
 `Can the Nuggets afford to play Jokić this much? Can they afford not to?`\
 https://nytimes.com/athletic/5970276/2024/12/06/victor-wembanyama-nikola-jokic-nba-notebook/
