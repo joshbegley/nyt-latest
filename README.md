@@ -1,3 +1,7 @@
+**GM Kevyn Adams dismissive, defensive in face of questions about Sabres' struggles**\
+`If Adams can't turn Buffalo into "a destination city," the Sabres should find someone who can.`\
+https://nytimes.com/athletic/5975236/2024/12/06/buffalo-sabres-kevyn-adams-destination-city/
+
 **3 Quick and Easy Recipes for the Best-Ever Holiday Spread**\
 `Melissa Clark’s three filling, colorful and festive snacks are perfect for especially effortless entertaining.`\
 https://nytimes.com/2024/12/06/dining/quick-easy-holiday-menu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975197/2024/12/06/danny-jansen-tampa-bay-rays-deal
 **The Regimes of the Post-Post-Cold War World**\
 `The liberal world order, remixed.`\
 https://nytimes.com/2024/12/06/opinion/south-korea-liberalism-nationalism.html
-
-**Jets placing Mosley on IR, Hall and Gardner doubtful vs. Dolphins**\
-`Mosley is the Jets' defensive captain, but it wouldn’t be a surprise if he has played his final snaps with the team.`\
-https://nytimes.com/athletic/5975129/2024/12/06/jets-cj-mosley-breece-hall-sauce-gardner-injury-updates/
 
