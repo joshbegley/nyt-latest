@@ -1,3 +1,7 @@
+**The Athletic FC: Trump, Infantino combine in Club World Cup draw, Postecoglou confronts fans**\
+`Today in TAFC: The Club World Cup circus, Postecoglou confronts fans after Tottenham's loss to Bournemouth and memories of Goodison Park...`\
+https://nytimes.com/athletic/5974237/2024/12/06/trump-infantino-club-world-cup-postecoglou/
+
 **Heat Today: Bam Adebayo is adjusting to shooting more 3s, but his all-around impact remains**\
 `"He’s a big-time, multiple-effort player that has now added experience to all his skill, and I think that goes a long way.”`\
 https://nytimes.com/athletic/5972481/2024/12/06/bam-adebayo-tyler-herro-miami-heat/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/nyregion/brian-thompson-killer-hit-man.html
 **This is the Pelicans team (minus Zion) we've been waiting to see**\
 `Brandon Ingram and Herb Jones returned to the lineup and made an immediate impact as New Orleans snapped a nine-game losing streak.`\
 https://nytimes.com/athletic/5974146/2024/12/06/pelicans-win-brandon-ingram-herb-jones/
-
-**Jonathan Kuminga makes claim as crunch-time option in Warriors' win over Rockets**\
-`With Steph Curry and Draymond Green out and the team struggling to score late in games, Steve Kerr turned to Kuminga. He delivered.`\
-https://nytimes.com/athletic/5973918/2024/12/06/jonathan-kuminga-warriors-rockets/
 
