@@ -1,3 +1,7 @@
+**Melania Trump Credits Barron Trump With Helping His Father Win**\
+`“He was very vocal” in advising his father on appearing with media personalities popular with young people, Melania Trump said on the morning show “Fox & Friends.”`\
+https://nytimes.com/2024/12/06/us/politics/melania-trump-barron-trump-election-win.html
+
 **The Stewards of Czech Musical Heritage Return to Carnegie Hall**\
 `Over three nights, the Czech Philharmonic presented Dvorak’s concertos and more, including a rare performance of Janacek’s “Glagolitic Mass.”`\
 https://nytimes.com/2024/12/06/arts/music/czech-philharmonic-carnegie-hall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973834/2024/12/06/nhl-power-rankings-4-nations-fac
 **Texas mascot Bevo won't attend SEC championship game**\
 `Bevo XV weighs over 1,700 pounds and has a horn span of 58 inches, though his horns will continue to grow throughout his life.`\
 https://nytimes.com/athletic/5974606/2024/12/06/texas-mascot-bevo-sec-championship/
-
-**Trump’s Allies Go Global: ‘Make Argentina Great Again’**\
-`At its international conferences, CPAC is giving a stage to right-wing politicians and hunting for ideas for use back home.`\
-https://nytimes.com/2024/12/06/us/politics/cpac-argentina-trump-milei.html
 
