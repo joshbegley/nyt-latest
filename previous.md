@@ -1,3 +1,7 @@
+**Amazon apologises to Liverpool and Slot over comment about half-time referee visit**\
+`Liverpool and Arne Slot have received an apology from Amazon Prime after it was claimed that Slot had visited the referee&#8217;s room at half-time of the 3-3 draw with Newcastle United on Wednesday.`\
+https://nytimes.com/athletic/5972914/2024/12/06/amazon-liverpool-arne-slot-apology/
+
 **Vinicius Jr aiming for Real Madrid return ahead of schedule**\
 `Real Madrid forward Vinicius Junior is ahead of schedule in his recovery from a hamstring injury and is targeting a return to action against Atalanta or Rayo Vallecano.`\
 https://nytimes.com/athletic/5974184/2024/12/06/vinicius-junior-injury-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974048/2024/12/06/oilers-blue-jackets-zach-hyman-l
 **Fire at Baltimore Lumberyard Closes Highway and Schools**\
 `No one was injured or evacuated in the fire, which was made more challenging by the wind, the authorities said.`\
 https://nytimes.com/2024/12/06/us/baltimore-brush-fire.html
-
-**Atrocities Made a South Korean City Infamous. A Novelist Made It Immortal.**\
-`The last time South Korea imposed martial law, Gwangju endured a deadly crackdown. Han Kang, the Nobel Prize-winning author, told its story in “Human Acts.”`\
-https://nytimes.com/2024/12/06/world/asia/gwangju-massacre-human-acts-han-kang.html
 
