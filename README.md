@@ -1,3 +1,7 @@
+**Rangers trade Jacob Trouba to Ducks**\
+`Trouba waived his no-trade clause for the deal after a standoff with the Rangers and a looming threat of being placed on waivers.`\
+https://nytimes.com/athletic/5975180/2024/12/06/rangers-ducks-jacob-trouba-trade/
+
 **Rice OT Ethan Onianwa entering transfer portal**\
 `Prior to this season, Onianwa had started the two previous years for Rice at right tackle.`\
 https://nytimes.com/athletic/5975125/2024/12/06/rice-ethan-onianwa-right-tackle-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/arts/music/amplifier-newsletter-1984-songs.html
 **Air Force Not Ready to Stop Buying Human-Piloted Jets**\
 `Elon Musk has mocked the Air Force for continuing to purchase expensive traditional fighter jets instead of drones. But military officials say human pilots are still needed.`\
 https://nytimes.com/2024/12/06/us/politics/air-force-fighter-jets-ai.html
-
-**Bucks' Khris Middleton 'a little anxious' ahead of season debut in Boston**\
-`The three-time All-Star, who has missed Milwaukee's first 21 games, is "just happy to be back on the floor again, playing with my guys."`\
-https://nytimes.com/athletic/5974976/2024/12/06/khris-middleton-bucks-debut-celtics/
 
