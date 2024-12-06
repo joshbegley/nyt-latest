@@ -1,3 +1,7 @@
+**The Regimes of the Post-Post-Cold War World**\
+`The liberal world order, remixed.`\
+https://nytimes.com/2024/12/06/opinion/south-korea-liberalism-nationalism.html
+
 **Jets placing Mosley on IR, Hall and Gardner doubtful vs. Dolphins**\
 `Mosley is the Jets' defensive captain, but it wouldn’t be a surprise if he has played his final snaps with the team.`\
 https://nytimes.com/athletic/5975129/2024/12/06/jets-cj-mosley-breece-hall-sauce-gardner-injury-updates/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5975180/2024/12/06/rangers-ducks-jacob-trouba-trade
 **Rice OT Ethan Onianwa entering transfer portal**\
 `Prior to this season, Onianwa had started the two previous years for Rice at right tackle.`\
 https://nytimes.com/athletic/5975125/2024/12/06/rice-ethan-onianwa-right-tackle-transfer-portal/
-
-**Ocasio-Cortez Seeks House Post That Would Make Her a Top Foil to Trump**\
-`Representative Alexandria Ocasio-Cortez, a New York Democrat, announced a bid to join the party’s leadership ranks in Congress.`\
-https://nytimes.com/2024/12/06/nyregion/aoc-house-oversight-committee.html
 
