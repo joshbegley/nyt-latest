@@ -1,40 +1,40 @@
-**For Those in Need of a Job, Landing One Might Still Be a Challenge**\
-`Layoffs remain relatively low, but people who lose their jobs could be struggling to find new ones.`\
-https://nytimes.com/2024/12/06/business/economy/layoffs-jobs-unemployment.html
+**Here’s the latest on the investigation.**\
+`By Alyce McFadden and Corey Kilgannon`\
+https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson/heres-the-latest-on-the-investigation
 
-**What Is Happening in Syria**\
-`We explain the latest updates in the country’s civil war.`\
-https://nytimes.com/2024/12/06/briefing/what-is-happening-in-syria.html
+**Live Updates: Manhunt for Suspect in Killing of Insurance C.E.O. Enters Third Day**\
+`The authorities have collected a number of details about the suspect in the fatal shooting of the UnitedHealthcare leader, but there have been no arrests.`\
+https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson
 
-**The true wonder of Wemby, managing Jokic's minutes and big games, big leads: NBA notebook**\
-`Can the Nuggets afford to play Jokić this much? Can they afford not to?`\
-https://nytimes.com/athletic/5970276/2024/12/06/victor-wembanyama-nikola-jokic-nba-notebook/
+**Lowetide: How Oilers star Leon Draisaitl is becoming a more complete player**\
+`Draisaitl's recent improvement in a key area of the game is paying off for the Oilers.`\
+https://nytimes.com/athletic/5969321/2024/12/06/edmonton-oilers-leon-draisaitl-stats-player/
 
-**The Pulse: The Super Bowl favorite**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5972355/2024/12/06/lions-packers-the-pulse/
+**Seven Bruins stats signaling Joe Sacco’s influence**\
+`The Boston Bruins are back in business. They are 6-2-0 under interim coach Joe Sacco. These numbers show why.`\
+https://nytimes.com/athletic/5972631/2024/12/06/bruins-turnaround-sacco-numbers/
 
-**Arsonists Set Fire to Melbourne Synagogue**\
-`Witnesses saw two people pouring accelerant in the synagogue early Friday, the police said. Australia’s prime minister condemned the attack as antisemitism.`\
-https://nytimes.com/2024/12/06/world/australia/synagogue-fire-melbourne.html
+**The NFL Draft prospects whose stock can rise in conference championship showcases**\
+`There are nine conference championship games this weekend, most of them loaded with potential NFL talent. `\
+https://nytimes.com/athletic/5971983/2024/12/06/nfl-draft-2025-discussion-ashton-jeanty-malaki-starks/
 
-**Court Vision: Crown SEC as nation's top league. Big picture is bleak for ACC**\
-`Four of the top five teams lost in one week? That means there doesn't seem to be an elite tier this season.`\
-https://nytimes.com/athletic/5973352/2024/12/06/court-vision-college-basketball-sec-acc-top-conference/
+**Arsenal, Fulham and the familiar faces that reflect well on the Hale End youth system**\
+`Emile Smith Rowe, Reiss Nelson and Alex Iwobi have all left Arsenal to pursue chances elsewhere and all are impressing this season`\
+https://nytimes.com/athletic/5971432/2024/12/06/arsenal-fulham-and-the-familiar-faces-that-reflect-well-on-the-hale-end-youth-system/
 
-**Fed officials are likely to closely watch the unemployment rate.**\
-`Central bankers are trying to figure out whether to cut interest rates in December. This is one of the last big data points they will see.`\
-https://nytimes.com/live/2024/12/06/business/jobs-report-november-economy/fed-officials-are-likely-to-closely-watch-the-unemployment-rate
+**Broncos' playoff scenarios, RB conundrum and Garett Bolles' future: Mailbag**\
+`Also, secondary concerns, and did Mike Shanahan get snubbed by losing out on the Hall of Fame in 2025?`\
+https://nytimes.com/athletic/5972854/2024/12/06/broncos-mailbag-playoff-scenarios/
 
-**November Jobs Report: What to Watch For**\
-`Economists expect the data to show a gain of 215,000 jobs, a big rebound from October, when storms in the Southeast and a major strike disrupted work.`\
-https://nytimes.com/live/2024/12/06/business/jobs-report-november-economy
+**Raiders mock draft reaction: Is QB Cam Ward a good fit for Las Vegas?**\
+`The Raiders could well go after a quarterback near the top of the first round, but would it be Ward or Colorado's Shedeur Sanders?`\
+https://nytimes.com/athletic/5969091/2024/12/06/raiders-mock-draft-cam-ward/
 
-**Charles Omenihu is back from injury and vowing to return to form for Chiefs defense**\
-`Returning from a torn ACL, Omenihu helped the Chiefs defense get a fourth-down stop and three sacks on Sunday.`\
-https://nytimes.com/athletic/5973012/2024/12/06/chiefs-charles-omenihu-return-from-injury/
+**Is Intel Cooked? + What’s Your P(Dyson Sphere)? + Hard Fork Gift Guide**\
+`The sudden departure of Intel’s C.E.O. reignites concerns about U.S. dependence on foreign manufacturing.`\
+https://nytimes.com/2024/12/06/podcasts/is-intel-cooked-whats-your-p-dyson-sphere-hard-fork-gift-guide.html
 
-**Thomas Brown's chances to stay? Trade for a coach? Bears mailbag, plus Week 14 picks**\
-`What would it take for Brown to be the Bears' head coach? What's Keenan Allen's future in Chicago? Mailbag, plus our Sunday picks.`\
-https://nytimes.com/athletic/5973230/2024/12/06/bears-mailbag-thomas-brown-49ers/
+**Where the Cardinals stand ahead of Winter Meetings: 'A different profile'**\
+`John Mozeliak says the Cardinals' reset is not a full-fledged rebuild: "We have every intention of fielding a good baseball team."`\
+https://nytimes.com/athletic/5972559/2024/12/06/cardlnals-mlb-winter-meetings-mozeliak/
 
