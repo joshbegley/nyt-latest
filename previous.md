@@ -1,4 +1,8 @@
-**Rangers trade Jacob Trouba to Ducks**\
+**What's a valkyrie? How WNBA teams got their names**\
+`And how the other WNBA teams got their names.`\
+https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-teams-names/
+
+**Rangers trade Jacob Trouba to Ducks for Urho Vaakanainen, conditional draft pick**\
 `Trouba waived his no-trade clause for the deal after a standoff with the Rangers and a looming threat of being placed on waivers.`\
 https://nytimes.com/athletic/5975180/2024/12/06/rangers-ducks-jacob-trouba-trade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/nyregion/janette-nesheiwat-surgeon-general-shooti
 **Beyond the Blockbusters, 7 Key Songs From 1984**\
 `The Pointer Sisters, Minutemen and more sounds from a landmark year in pop music.`\
 https://nytimes.com/2024/12/06/arts/music/amplifier-newsletter-1984-songs.html
-
-**Air Force Not Ready to Stop Buying Human-Piloted Jets**\
-`Elon Musk has mocked the Air Force for continuing to purchase expensive traditional fighter jets instead of drones. But military officials say human pilots are still needed.`\
-https://nytimes.com/2024/12/06/us/politics/air-force-fighter-jets-ai.html
 

@@ -1,3 +1,11 @@
+**What's a valkyrie? How WNBA teams got their names**\
+`And how the other WNBA teams got their names.`\
+https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-teams-names/
+
+**Rangers trade Jacob Trouba to Ducks for Urho Vaakanainen, conditional draft pick**\
+`Trouba waived his no-trade clause for the deal after a standoff with the Rangers and a looming threat of being placed on waivers.`\
+https://nytimes.com/athletic/5975180/2024/12/06/rangers-ducks-jacob-trouba-trade/
+
 **Rangers trade Jacob Trouba to Ducks**\
 `Trouba waived his no-trade clause for the deal after a standoff with the Rangers and a looming threat of being placed on waivers.`\
 https://nytimes.com/athletic/5975180/2024/12/06/rangers-ducks-jacob-trouba-trade/
