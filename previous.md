@@ -1,8 +1,16 @@
+**Braves' to-do list entering Winter Meetings seems more urgent than in recent years**\
+`With Spencer Strider not expected back until May, the Braves will be in the market for a proven starting pitcher.`\
+https://nytimes.com/athletic/5975407/2024/12/06/braves-winter-meetings-outlook/
+
+**Rangers, Igor Shesterkin agree to record-setting deal**\
+`Carey Price ($10.5 million average annual value) previously held the record for the largest goalie contract.`\
+https://nytimes.com/athletic/5890691/2024/12/06/igor-shesterkin-contract-extension-ny-rangers-goalie/
+
 **Barbara Bowman Dies at 96; Visionary Educator for Preschoolers**\
 `She devoted her career to teaching teachers how to prepare the youngest and most vulnerable children to fulfill their potential.`\
 https://nytimes.com/2024/12/06/us/barbara-bowman-dead.html
 
-**Valkyries pick Kate Martin, Kayla Thompson in 2025 WNBA expansion draft**\
+**Valkyries to pick Kate Martin, Kayla Thornton in Friday's expansion draft**\
 `The full results of the draft will be announced today at 6:30 p.m. ET on ESPN`\
 https://nytimes.com/athletic/5975410/2024/12/06/wnba-expansion-draft-valkyries-kate-martin-kayla-thornton/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/world/middleeast/syrias-frozen-conflict-is-now-re
 **As Syrian Rebel Advance Accelerates, Nervous Neighbors Close Their Borders**\
 `The rebels’ gains prompted Lebanon and Jordan to close border crossings and Israel to reinforce its forces in the Golan Heights.`\
 https://nytimes.com/2024/12/06/world/middleeast/syria-rebels-damascus-iran.html
-
-**Review: William Kentridge’s Collaged Fever Dream of Shostakovich**\
-`Kentridge’s film played over Shostakovich’s 10th symphony at a New York Philharmonic concert led by Keri-Lynn Wilson.`\
-https://nytimes.com/2024/12/06/arts/dance/review-william-kentridge-shostakovich-new-york-philharmonic.html
-
-**GM Kevyn Adams dismissive, defensive in face of questions about Sabres' struggles**\
-`If Adams can't turn Buffalo into "a destination city," the Sabres should find someone who can.`\
-https://nytimes.com/athletic/5975236/2024/12/06/buffalo-sabres-kevyn-adams-destination-city/
 

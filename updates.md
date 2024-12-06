@@ -1,3 +1,15 @@
+**Braves' to-do list entering Winter Meetings seems more urgent than in recent years**\
+`With Spencer Strider not expected back until May, the Braves will be in the market for a proven starting pitcher.`\
+https://nytimes.com/athletic/5975407/2024/12/06/braves-winter-meetings-outlook/
+
+**Rangers, Igor Shesterkin agree to record-setting deal**\
+`Carey Price ($10.5 million average annual value) previously held the record for the largest goalie contract.`\
+https://nytimes.com/athletic/5890691/2024/12/06/igor-shesterkin-contract-extension-ny-rangers-goalie/
+
+**Valkyries to pick Kate Martin, Kayla Thornton in Friday's expansion draft**\
+`The full results of the draft will be announced today at 6:30 p.m. ET on ESPN`\
+https://nytimes.com/athletic/5975410/2024/12/06/wnba-expansion-draft-valkyries-kate-martin-kayla-thornton/
+
 **Barbara Bowman Dies at 96; Visionary Educator for Preschoolers**\
 `She devoted her career to teaching teachers how to prepare the youngest and most vulnerable children to fulfill their potential.`\
 https://nytimes.com/2024/12/06/us/barbara-bowman-dead.html
