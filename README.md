@@ -1,6 +1,19 @@
+**Jon Moss exclusive: How to improve VAR, Coote controversy and Klopp's 'gamechanging' call**\
+`Ex-Premier League referee believes the job has never been harder - but is still happy for his sons to follow him into the industry`\
+https://nytimes.com/athletic/5971561/2024/12/06/jon-moss-interview-referee-coote-klopp/
+
+**Sabres thoughts: How Lindy Ruff is handling losing streak, Thompson's 4 Nations snub and more**\
+`After a 3-2 OT loss to the Jets, the Sabres extend their winless streak to five games and can’t afford to let it get any longer.
+`\
+https://nytimes.com/athletic/5973807/2024/12/06/sabres-lindy-ruff-thompson-injuries/
+
 **Political Turmoil Adds to South Korea’s Economic Woes**\
 `Even before a short-lived declaration of martial law thrust the country into crisis, the economy faced grim prospects.`\
 https://nytimes.com/2024/12/06/business/south-korea-economy-martial-law.html
+
+**Merseyside derby memories at Goodison Park: Passion, poignancy, ecstasy, agony and a Tic Tac ad**\
+`Goodison Park is an iconic stadium - and is often at its best when Everton welcome Liverpool. It is set to host a final derby`\
+https://nytimes.com/athletic/5966452/2024/12/06/merseyside-derby-final-goodison-park-liverpool-everton/
 
 **'It's starting to get real': Cleveland Cavaliers' dream season a straight shot**\
 `The Cavs just gave up 76 points in the paint … and won comfortably. They made 22 3s to the Nuggets' six in a 126-114 triumph.`\
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5969652/2024/12/06/watching-liverpool-vs-newcastle-
 **Alex Baena may be Europe's most creative player - but his numbers should be even better**\
 `Baena leads La Liga in assists via open-play crosses, set-pieces and through balls over the past two seasons - yet the best is yet to come`\
 https://nytimes.com/athletic/5899820/2024/12/06/alex-baena-villarreal-spain-creative-unlucky/
-
-**Friday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/12/06/briefing/manhunt-manhattan-macron.html
-
-**Berbatov joked Arsenal are like Stoke - they're pragmatic, but their set pieces are not the same**\
-`Arsenal scored from two set-pieces against Manchester United on Wednesday, leading to TV pundit Berbatov's comments`\
-https://nytimes.com/athletic/5972226/2024/12/06/arsenal-stoke-dimitar-berbatov-analysis/
-
-**Britain’s Starmer Is Trying to Fight Populism From the Lonely Center**\
-`One of the last centrist leaders left on the global stage, Prime Minister Keir Starmer this week outlined his plan to deliver change for people in the U.K. Will it be enough?`\
-https://nytimes.com/2024/12/06/world/europe/uk-starmer-populism-labour-farage.html
 
