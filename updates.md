@@ -1,3 +1,7 @@
+**Spurs have become a team that makes the same mistakes over and over again**\
+`Away defeats typically carry the same hallmarks for Spurs and Thursday's loss to Bournemouth was a chastening moment for their head coach`\
+https://nytimes.com/athletic/5973473/2024/12/06/tottenham-hotspur-ange-postecoglou-bournemouth-defeat/
+
 **Word of the Day: schwa**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/06/learning/word-of-the-day-schwa.html
