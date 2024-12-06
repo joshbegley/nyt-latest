@@ -1,3 +1,7 @@
+**Corrections: Dec. 6, 2024**\
+`Corrections that appeared in print on Friday, Dec. 6, 2024.`\
+https://nytimes.com/2024/12/05/pageoneplus/corrections-dec-6-2024.html
+
 **Jokić records 139th triple-double, breaking tie with Magic for third-most**\
 `Nikola Jokić was temporarily tied with Magic Johnson but now stands alone behind only Oscar Robertson and teammate Russell Westbrook.`\
 https://nytimes.com/athletic/5963504/2024/12/05/nikola-jokic-triple-double-record-nba/

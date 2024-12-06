@@ -1,3 +1,7 @@
+**Corrections: Dec. 6, 2024**\
+`Corrections that appeared in print on Friday, Dec. 6, 2024.`\
+https://nytimes.com/2024/12/05/pageoneplus/corrections-dec-6-2024.html
+
 **Jokić records 139th triple-double, breaking tie with Magic for third-most**\
 `Nikola Jokić was temporarily tied with Magic Johnson but now stands alone behind only Oscar Robertson and teammate Russell Westbrook.`\
 https://nytimes.com/athletic/5963504/2024/12/05/nikola-jokic-triple-double-record-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/us/california-tsunami-warning.html
 **House Blocks Release of Ethics Report on Gaetz as Republicans Close Ranks**\
 `In largely party-line votes, the House turned back two measures that would have forced the Ethics Committee to make public the results of its investigation into allegations of sexual misconduct and drug use.`\
 https://nytimes.com/2024/12/05/us/politics/matt-gaetz-ethics-report-blocked-house.html
-
-**Giants' Matt Chapman open to temporary move to shortstop**\
-`Kim, a free-agent shortstop, is expected to miss at least the early part of the 2025 season and possibly the entire first half.`\
-https://nytimes.com/athletic/5973372/2024/12/05/matt-chapman-giants-shortstop-ha-seong-kim/
 
