@@ -1,3 +1,7 @@
+**Who do you want Notre Dame to host in the Playoff? Here are the scenarios**\
+`Who Notre Dame will welcome to South Bend in the College Football Playoff depends on these conference championship results.`\
+https://nytimes.com/athletic/5974294/2024/12/06/notre-dame-playoff-opponent-scenarios/
+
 **Here’s the latest on the investigation.**\
 `By Alyce McFadden and Corey Kilgannon`\
 https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson/heres-the-latest-on-the-investigation
