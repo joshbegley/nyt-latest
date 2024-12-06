@@ -1,3 +1,7 @@
+**A Miracle: Notre-Dame’s Astonishing Rebirth From the Ashes**\
+`Five years after a fire nearly felled the cathedral that has dazzled visitors for almost 900 years, the heart of Paris beats anew.`\
+https://nytimes.com/interactive/2024/12/05/arts/design/notre-dame-reopens-paris.html
+
 **What We Know About the 7.0 Earthquake That Struck Northern California**\
 `State and local officials were working to assess the full scope of the damage, but early reports appeared to show that the quake did not cause major destruction.`\
 https://nytimes.com/2024/12/05/us/california-oregon-earthquake-explainer.html

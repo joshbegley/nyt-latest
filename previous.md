@@ -1,3 +1,7 @@
+**A Miracle: Notre-Dame’s Astonishing Rebirth From the Ashes**\
+`Five years after a fire nearly felled the cathedral that has dazzled visitors for almost 900 years, the heart of Paris beats anew.`\
+https://nytimes.com/interactive/2024/12/05/arts/design/notre-dame-reopens-paris.html
+
 **What We Know About the 7.0 Earthquake That Struck Northern California**\
 `State and local officials were working to assess the full scope of the damage, but early reports appeared to show that the quake did not cause major destruction.`\
 https://nytimes.com/2024/12/05/us/california-oregon-earthquake-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/theater/swept-away-broadway-closing.html
 **Head of Secret Service and Congressman Get Into Shouting Match at Hearing**\
 `The agency’s acting director took offense when a Texas representative questioned him about where he was standing in a photo commemorating the Sept. 11 attacks.`\
 https://nytimes.com/2024/12/05/us/politics/ronald-rowe-pat-fallon-trump-assassination.html
-
-**Lazerus: Luke Richardson's firing won't stop the Blackhawks' slow slide into irrelevance**\
-`The Blackhawks are unwatchable these days, and not just because of their poor play. Things aren't likely to get better soon.`\
-https://nytimes.com/athletic/5973247/2024/12/05/blackhawks-richardson-fired-last-place/
 
