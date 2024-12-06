@@ -1,3 +1,7 @@
+**The Rage and Glee That Followed a C.E.O.’s Killing Should Ring All Alarms**\
+`It echoes another era of extreme inequality and extreme violence.`\
+https://nytimes.com/2024/12/06/opinion/the-rage-and-glee-that-followed-a-ceos-killing-should-ring-all-alarms.html
+
 **Eight takeaways after Blackhawks GM Kyle Davidson explains Luke Richardson firing**\
 `When did Davidson make the decision to change coaches, and what feedback did he get from ownership?`\
 https://nytimes.com/athletic/5974962/2024/12/06/blackhawks-gm-davidson-richardson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974648/2024/12/06/lewis-hamilton-final-mercedes-ra
 **Fantasy football flex fliers: Elijah Moore, MVS look good for Week 14**\
 `Scott Engel gives last-minute lineup advice for anyone wondering who to grab in free agency for Week 14. `\
 https://nytimes.com/athletic/5974510/2024/12/06/nfl-fantasy-football-flex-fliers-week-14/
-
-**In Japan, Designers Fit Big Ideas Into Tiny Homes**\
-`Some newer houses around the country are barely wider than a common family car.`\
-https://nytimes.com/2024/12/06/realestate/tiny-homes-japan.html
 
