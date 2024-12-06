@@ -1,3 +1,24 @@
+**Trump’s Treasury Pick Isn’t Alarming, but He Is Unusual**\
+`Some of Scott Bessent’s economic views are outside the mainstream. But at least he’s qualified.`\
+https://nytimes.com/2024/12/06/opinion/scott-bessent-treasury-trump.html
+
+**Fact-Checkers Cannot Save Us**\
+`In our interconnected modern world, education is critical in the fight against disinformation.`\
+https://nytimes.com/2024/12/06/special-series/disinformation-social-media-facts.html
+
+**Rocket Mortgage Sues HUD Over Its Inclusion in Appraisal Lawsuit**\
+`The nation’s largest lender says the government tied its hands with regulations that prevented it from exerting control over appraisal values.`\
+https://nytimes.com/2024/12/06/realestate/rocket-mortgage-lawsuit-appraisals.html
+
+**In Mexico, Heat Waves Are Even Killing Younger Adults**\
+`It’s not the just the elderly. More than three-quarters of heat-related deaths in Mexico occurred among people younger than 35, researchers reported.`\
+https://nytimes.com/2024/12/06/health/heat-deaths-young-adults.html
+
+**What's a valkyrie? How WNBA teams got their names**\
+`What a Norse specialist thinks about the Golden State Valkyries, and how other teams got their names.
+`\
+https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-teams-names/
+
 **What's a valkyrie? How WNBA teams got their names**\
 `And how the other WNBA teams got their names.`\
 https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-teams-names/

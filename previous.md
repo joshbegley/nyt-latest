@@ -1,5 +1,22 @@
+**Trump’s Treasury Pick Isn’t Alarming, but He Is Unusual**\
+`Some of Scott Bessent’s economic views are outside the mainstream. But at least he’s qualified.`\
+https://nytimes.com/2024/12/06/opinion/scott-bessent-treasury-trump.html
+
+**Fact-Checkers Cannot Save Us**\
+`In our interconnected modern world, education is critical in the fight against disinformation.`\
+https://nytimes.com/2024/12/06/special-series/disinformation-social-media-facts.html
+
+**Rocket Mortgage Sues HUD Over Its Inclusion in Appraisal Lawsuit**\
+`The nation’s largest lender says the government tied its hands with regulations that prevented it from exerting control over appraisal values.`\
+https://nytimes.com/2024/12/06/realestate/rocket-mortgage-lawsuit-appraisals.html
+
+**In Mexico, Heat Waves Are Even Killing Younger Adults**\
+`It’s not the just the elderly. More than three-quarters of heat-related deaths in Mexico occurred among people younger than 35, researchers reported.`\
+https://nytimes.com/2024/12/06/health/heat-deaths-young-adults.html
+
 **What's a valkyrie? How WNBA teams got their names**\
-`And how the other WNBA teams got their names.`\
+`What a Norse specialist thinks about the Golden State Valkyries, and how other teams got their names.
+`\
 https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-teams-names/
 
 **Rangers trade Jacob Trouba to Ducks for Urho Vaakanainen, conditional draft pick**\
@@ -21,20 +38,4 @@ https://nytimes.com/2024/12/06/books/nora-ephron-movies.html
 **Dick Van Dyke, Approaching 99, Dances in Coldplay’s Latest Video**\
 `In the clip, which was filmed in October, Van Dyke sings, dances barefoot and offers meditations on aging, family and love.`\
 https://nytimes.com/2024/12/06/arts/music/dick-van-dyke-coldplay-all-my-love-video.html
-
-**Ghana’s Voters Look for Leader to Fix a Broken Economy**\
-`Ghanaians voting on Saturday are confronted with a choice familiar to Americans: Return a one-term former president to office, or promote the vice president, at a time when anger over the economy is widespread.`\
-https://nytimes.com/2024/12/06/world/africa/ghana-election-ndc-npp.html
-
-**Texas beats Georgia for 5-star DL Justus Terry, wraps up No. 1 class in 2025 cycle**\
-`Texas' class includes five five-star prospects and 11 players ranked in the top 100 of the 247Sports Composite.`\
-https://nytimes.com/athletic/5975038/2024/12/06/texas-no-1-recruiting-class-justus-terry/
-
-**How Childhood Tragedy Shaped the Doctor Trump Picked for Surgeon General**\
-`At the age of 13, Dr. Janette Nesheiwat said she accidentally knocked over a box in a darkened room. A handgun went off, leaving her father dead.`\
-https://nytimes.com/2024/12/06/nyregion/janette-nesheiwat-surgeon-general-shooting.html
-
-**Beyond the Blockbusters, 7 Key Songs From 1984**\
-`The Pointer Sisters, Minutemen and more sounds from a landmark year in pop music.`\
-https://nytimes.com/2024/12/06/arts/music/amplifier-newsletter-1984-songs.html
 
