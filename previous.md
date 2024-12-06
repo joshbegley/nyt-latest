@@ -1,3 +1,7 @@
+**Eight takeaways after Blackhawks GM Kyle Davidson explains Luke Richardson firing**\
+`When did Davidson make the decision to change coaches, and what feedback did he get from ownership?`\
+https://nytimes.com/athletic/5974962/2024/12/06/blackhawks-gm-davidson-richardson/
+
 **Boston City Councilor Indicted on Federal Charges**\
 `The council member, Tania Fernandes Anderson, was arrested on public corruption charges involving an alleged kickback.`\
 https://nytimes.com/2024/12/06/us/boston-city-councilor-indicted-on-federal-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974510/2024/12/06/nfl-fantasy-football-flex-fliers
 **In Japan, Designers Fit Big Ideas Into Tiny Homes**\
 `Some newer houses around the country are barely wider than a common family car.`\
 https://nytimes.com/2024/12/06/realestate/tiny-homes-japan.html
-
-**The Consumer Bureau Is Likely Here to Stay, but Big Changes Await**\
-`Republicans are unlikely to abolish the Consumer Financial Protection Bureau, but they will drastically rework its rules and activities.`\
-https://nytimes.com/2024/12/06/us/politics/cfpb-republicans-rohit-chopra.html
 

@@ -1,3 +1,7 @@
+**Eight takeaways after Blackhawks GM Kyle Davidson explains Luke Richardson firing**\
+`When did Davidson make the decision to change coaches, and what feedback did he get from ownership?`\
+https://nytimes.com/athletic/5974962/2024/12/06/blackhawks-gm-davidson-richardson/
+
 **Boston City Councilor Indicted on Federal Charges**\
 `The council member, Tania Fernandes Anderson, was arrested on public corruption charges involving an alleged kickback.`\
 https://nytimes.com/2024/12/06/us/boston-city-councilor-indicted-on-federal-charges.html
