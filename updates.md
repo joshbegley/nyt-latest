@@ -1,3 +1,7 @@
+**As Jan. 6 Criminal Cases Against Trump Fizzle, Civil Cases Plod Ahead**\
+`Donald J. Trump has successfully defeated or impeded many legal challenges against him over the storming of the Capitol, but eight lawsuits on the matter remain in the courts.`\
+https://nytimes.com/2024/12/06/us/politics/trump-jan-6-civil-cases.html
+
 **Five areas interim coach Anders Sorensen can improve the Blackhawks**\
 `There are some changes Sorensen can make quickly and others that will need more time to improve the Blackhawks.`\
 https://nytimes.com/athletic/5975231/2024/12/06/blackhawks-coach-anders-sorensen/
