@@ -1,3 +1,7 @@
+**Musk Cost-Cutting Effort Is Being Guided by Health Entrepreneur**\
+`The inclusion of Brad Smith in Trump’s efficiency panel suggests that the team is preparing to focus particularly on the nation’s health care system.`\
+https://nytimes.com/2024/12/06/us/politics/elon-musk-doge-brad-smith-trump.html
+
 **Man Who Kidnapped Woman From Bloomberg’s Colorado Ranch Gets 22 Years in Prison**\
 `Joseph Beecher was intent on killing the media mogul and inquired about his family before taking a housekeeper hostage, officials said.`\
 https://nytimes.com/2024/12/06/us/colorado-man-sentenced-bloomberg-housekeeper-kidnapping.html
