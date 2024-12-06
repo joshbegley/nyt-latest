@@ -1,3 +1,7 @@
+**Federal Judge Upholds Racial Preferences in Naval Academy Admissions**\
+`A group that won a Supreme Court case challenging affirmative action at Harvard and the University of North Carolina had also sued the military academies.`\
+https://nytimes.com/2024/12/06/us/racial-preferences-naval-academy-admissions.html
+
 **As India-Bangladesh Tensions Rise, So Do Fears of Tit-for-Tat Violence**\
 `A diplomatic dispute over claims of persecution of Bangladeshi Hindus threatens to upend Bangladesh’s interim government.`\
 https://nytimes.com/2024/12/06/world/asia/india-bangladesh-tensions.html
