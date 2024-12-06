@@ -1,3 +1,7 @@
+**Why the Seahawks are searching for short-yardage success amid playoff push**\
+`If Seattle wants to stay atop the NFC West, it needs better production in short-yardage situations.`\
+https://nytimes.com/athletic/5973139/2024/12/06/seattle-seahawks-arizona-cardinals-week-14-geno-smith/
+
 **Inside the Chargers' showdown vs. Chiefs: Has the gap narrowed between AFC West rivals?**\
 `The Chiefs are likely going to win their ninth straight AFC West title. A Chargers win would keep their slim hopes alive. `\
 https://nytimes.com/athletic/5973510/2024/12/06/chargers-chiefs-matchups-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972481/2024/12/06/bam-adebayo-tyler-herro-miami-he
 **A free-agent fit for each of the 30 MLB teams as the Winter Meetings near**\
 `As we wait for the floodgates to open, Bowden plays matchmaker, proposing a free-agent fit that could make sense for each of the 30 teams.`\
 https://nytimes.com/athletic/5973590/2024/12/06/mlb-free-agent-team-fits-hot-stove/
-
-**The Growing Cost of Making C.E.O.s Safe**\
-`The tragic killing of UnitedHealthCare’s Brian Thompson has spurred companies to ratchet up security for their most senior executives.`\
-https://nytimes.com/2024/12/06/business/dealbook/cost-anxiety-ceo-safety.html
 

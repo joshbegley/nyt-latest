@@ -1,3 +1,7 @@
+**Why the Seahawks are searching for short-yardage success amid playoff push**\
+`If Seattle wants to stay atop the NFC West, it needs better production in short-yardage situations.`\
+https://nytimes.com/athletic/5973139/2024/12/06/seattle-seahawks-arizona-cardinals-week-14-geno-smith/
+
 **Inside the Chargers' showdown vs. Chiefs: Has the gap narrowed between AFC West rivals?**\
 `The Chiefs are likely going to win their ninth straight AFC West title. A Chargers win would keep their slim hopes alive. `\
 https://nytimes.com/athletic/5973510/2024/12/06/chargers-chiefs-matchups-preview/
