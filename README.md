@@ -1,5 +1,9 @@
-**TikTok Loses Bid to Overturn Law Forcing a Ban or Sale**\
-`A federal court on Friday upheld a law that will ban the video app in the United States by Jan. 19 if its owner, ByteDance, does not sell it to a non-Chinese company.`\
+**Trump’s Allies Go Global: ‘Make Argentina Great Again’**\
+`At its international conferences, CPAC is giving a stage to right-wing politicians and hunting for ideas for use back home.`\
+https://nytimes.com/2024/12/06/us/politics/cpac-argentina-trump-milei.html
+
+**Court Upholds Law Forcing a Ban or Sale of TikTok**\
+`The law will ban the video app in the United States by Jan. 19 if its owner, ByteDance, does not sell it to a non-Chinese company.`\
 https://nytimes.com/2024/12/06/business/media/tiktok-ban-court-decision.html
 
 **Watch the Stirring Climax of ‘The Piano Lesson’**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/06/business/jobs-report-november-economy/employ
 **Rangers to scratch captain Jacob Trouba with trade or waivers placement looming**\
 `Whether through a trade or waivers, it appears the team’s captain is done as a Ranger, effective immediately.`\
 https://nytimes.com/athletic/5974640/2024/12/06/jacob-trouba-rangers-waivers-trade/
-
-**Lionel Messi crowned MLS MVP for 2024 season**\
-`Inter Miami forward Lionel Messi has been voted as Major League Soccer&#8217;s MVP for the 2024 season.`\
-https://nytimes.com/athletic/5974716/2024/12/06/lionel-messi-mls-mvp-2024/
 
