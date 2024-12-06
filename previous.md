@@ -1,3 +1,23 @@
+**Inside the Chargers' showdown vs. Chiefs: Has the gap narrowed between AFC West rivals?**\
+`The Chiefs are likely going to win their ninth straight AFC West title. A Chargers win would keep their slim hopes alive. `\
+https://nytimes.com/athletic/5973510/2024/12/06/chargers-chiefs-matchups-preview/
+
+**Ranking the free-agent starting pitchers the Giants could target**\
+`The Giants best options are either to swing big on an ace or take a chance on a rebound candidate coming off an injury.`\
+https://nytimes.com/athletic/5969695/2024/12/06/sf-giants-free-agent-pitching-targets/
+
+**Barrows: 49ers have a personnel issue on defense, not a Nick Sorensen issue**\
+`Kyle Shanahan's support of Sorensen this week sounded like what he said about Robert Saleh in 2018. There were changes after that season.`\
+https://nytimes.com/athletic/5973318/2024/12/06/49ers-defense-nick-sorensen/
+
+**Dan Burn and Bruno Guimaraes: Newcastle's centurions, eras and endings**\
+`Dan Burn and Bruno Guimaraes hit 100 games for Newcastle against Liverpool on Wednesday night`\
+https://nytimes.com/athletic/5974264/2024/12/06/newcastle-dan-burn-bruno-guimaraes/
+
+**Raiders’ K’Lavon Chaisson seizing his fresh start, flashing ‘first-round traits’**\
+`Chaisson was a disappointment as a first-round pick in Jacksonville but is playing well in Las Vegas and had a career game on Black Friday.`\
+https://nytimes.com/athletic/5972951/2024/12/06/raiders-klavon-chaisson-fresh-start/
+
 **Fantasy Trends and Hidden Gems: How to handle Gibson, Quick and Demko**\
 `John Gibson is getting more minutes in Anaheim, while Thatcher Demko's return looms for the Canucks.`\
 https://nytimes.com/athletic/5973711/2024/12/06/fantasy-trends-and-hidden-gems-how-to-handle-gibson-quick-and-demko/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5973590/2024/12/06/mlb-free-agent-team-fits-hot-sto
 **The Growing Cost of Making C.E.O.s Safe**\
 `The tragic killing of UnitedHealthCare’s Brian Thompson has spurred companies to ratchet up security for their most senior executives.`\
 https://nytimes.com/2024/12/06/business/dealbook/cost-anxiety-ceo-safety.html
-
-**Syrian Rebels Push South, Despite Efforts to Slow Them**\
-`Government forces are trying to cut off the road that connects the major cities of Hama, which the insurgents have captured, and Homs, which lies on a crucial land corridor.`\
-https://nytimes.com/2024/12/06/world/middleeast/syria-rebels-hama-homs.html
-
-**The Athletic’s Friday football quiz question #33**\
-`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/5974322/2024/12/06/the-athletic-friday-football-quiz-question-33/
-
-**Live Q&A: FPL Gameweek 15 advice from Ben Dinnery**\
-`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 15 Q&A between 4-5pm UK time `\
-https://nytimes.com/athletic/5969810/2024/12/06/fantasy-premier-league-live-qa-fpl-gameweek-15-advice-from-ben-dinnery/
-
-**Why Michael Thornbjornsen reminds one insider of Dustin Johnson**\
-`Thorbjornsen, who has full tour status through PGA Tour U, finished up the fall with a pair of top 10s to build momentum into 2025.`\
-https://nytimes.com/athletic/5972959/2024/12/06/michael-thorbjornsen-pga-tour-stanford-golf/
-
-**Was Brian Thompson’s Killer a Hit Man? Unlikely, Experts Say.**\
-`The murder of Brian Thompson did not appear to have been committed by a coldly calculating professional, according to people who study criminal behavior.`\
-https://nytimes.com/2024/12/06/nyregion/brian-thompson-killer-hit-man.html
 
