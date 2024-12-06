@@ -1,3 +1,7 @@
+**Connor Bedard's development must be Blackhawks interim coach Anders Sorensen's top priority**\
+`There are obvious changes Sorensen can make, but what could ultimately determine how long he is in charge is how Bedard fares under him.`\
+https://nytimes.com/athletic/5973282/2024/12/05/blackhawks-coach-anders-sorensen-connor-bedard/
+
 **Logan Webb attends sentencing for drug dealer convicted of murdering his cousin**\
 `We hope our family's story can help save lives," said Logan Webb, who is using his platform to teach about the dangers of fentanyl.`\
 https://nytimes.com/athletic/5973413/2024/12/05/sf-giants-logan-webb-drug-dealer-sentencing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973247/2024/12/05/blackhawks-richardson-fired-last
 **Elon and Vivek’s DOGE Goes to Congress**\
 `The tycoons in charge of President-elect Donald J. Trump’s amorphous government efficiency initiative made the rounds on Capitol Hill, bashing debt but revealing little about how they will tackle it.`\
 https://nytimes.com/2024/12/05/us/politics/elon-musk-vivek-ramaswamy-doge-congress.html
-
-**Biden Team Considers Blanket Pardons Before Trump’s Promised ‘Retribution’**\
-`White House officials believe President-elect Donald J. Trump’s selection of partisan warriors for top law enforcement jobs indicates that he will pursue revenge against his perceived enemies.`\
-https://nytimes.com/2024/12/05/us/politics/biden-trump-pardons.html
 
