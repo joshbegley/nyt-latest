@@ -1,3 +1,7 @@
+**Melania Trump Credits Barron Trump With Helping His Father Win**\
+`“He was very vocal” in advising his father on appearing with media personalities popular with young people, Melania Trump said on the morning show “Fox & Friends.”`\
+https://nytimes.com/2024/12/06/us/politics/melania-trump-barron-trump-election-win.html
+
 **The Stewards of Czech Musical Heritage Return to Carnegie Hall**\
 `Over three nights, the Czech Philharmonic presented Dvorak’s concertos and more, including a rare performance of Janacek’s “Glagolitic Mass.”`\
 https://nytimes.com/2024/12/06/arts/music/czech-philharmonic-carnegie-hall.html
