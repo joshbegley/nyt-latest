@@ -1,3 +1,7 @@
+**Slegers to stay in interim charge of Arsenal until winter break**\
+`Renee Slegers will continue her role as interim head coach of Arsenal for their next block of games until the Women&#8217;s Super League&#8217;s winter break.`\
+https://nytimes.com/athletic/5974620/2024/12/06/renee-slegers-arsenal-women-future/
+
 **Trump Defends His Imperiled Pick for Defense Secretary, Pete Hegseth**\
 `The post amounted to a public dare to Republican senators, a number of whom have expressed private concerns about Mr. Hegseth, to vote against Mr. Trump’s wishes.`\
 https://nytimes.com/2024/12/06/us/politics/trump-defends-hegseth.html

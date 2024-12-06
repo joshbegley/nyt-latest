@@ -1,3 +1,7 @@
+**Slegers to stay in interim charge of Arsenal until winter break**\
+`Renee Slegers will continue her role as interim head coach of Arsenal for their next block of games until the Women&#8217;s Super League&#8217;s winter break.`\
+https://nytimes.com/athletic/5974620/2024/12/06/renee-slegers-arsenal-women-future/
+
 **Trump Defends His Imperiled Pick for Defense Secretary, Pete Hegseth**\
 `The post amounted to a public dare to Republican senators, a number of whom have expressed private concerns about Mr. Hegseth, to vote against Mr. Trump’s wishes.`\
 https://nytimes.com/2024/12/06/us/politics/trump-defends-hegseth.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972265/2024/12/06/next-weeks-waiver-wire-will-levi
 **Canada Moves to Protect Arctic From Threats by Russia and China**\
 `Ottawa says its focus on the Arctic comes after Russia’s invasion of Ukraine “has shaken the foundations” of international cooperation in the northern region.`\
 https://nytimes.com/2024/12/06/world/canada/canada-arctic-russia-china.html
-
-**It’s Not Too Late to Rein In Holiday Spending**\
-`Research suggests that you’ll spend less than you otherwise would by setting a strict budget — even if you go over the budget.`\
-https://nytimes.com/2024/12/06/your-money/holiday-spending-limits.html
 
