@@ -1,3 +1,7 @@
+**As Jan. 6 Criminal Cases Against Trump Fizzle, Civil Cases Plod Ahead**\
+`Donald J. Trump has successfully defeated or impeded many legal challenges against him over the storming of the Capitol, but eight lawsuits on the matter remain in the courts.`\
+https://nytimes.com/2024/12/06/us/politics/trump-jan-6-civil-cases.html
+
 **Five areas interim coach Anders Sorensen can improve the Blackhawks**\
 `There are some changes Sorensen can make quickly and others that will need more time to improve the Blackhawks.`\
 https://nytimes.com/athletic/5975231/2024/12/06/blackhawks-coach-anders-sorensen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974927/2024/12/06/pep-guardiola-jose-mourinho-trop
 **OSU coach Gundy's job status, contract in question after 3-9 season**\
 `Oklahoma State finished 3-9 in 2024, including 0-9 in Big 12 play, ending the season last Friday with a 52-0 loss to Colorado.`\
 https://nytimes.com/athletic/5975412/2024/12/06/mike-gundy-oklahoma-state-contract/
-
-**Shuntaro Tanikawa, Poet and Translator of ‘Peanuts,’ Dies at 92**\
-`A perennial front-runner for the Nobel Prize in Literature, he was a revered figure in Japan, not just in literary circles but also among casual readers.`\
-https://nytimes.com/2024/12/06/books/shuntaro-tanikawa-dead.html
 
