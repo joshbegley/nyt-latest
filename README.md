@@ -1,3 +1,7 @@
+**Blue Jackets' goal challenge backfires as penalty-kill woes spell doom again**\
+`Columbus thought it was 100 percent correct on its challenge. Instead, it allowed a power-play goal for the 11th straight game.`\
+https://nytimes.com/athletic/5973755/2024/12/06/blue-jackets-goal-challenge-penalty-kill/
+
 **How in sync are the Knicks? Look no further than Karl-Anthony Towns' bloody shorts**\
 `The Knicks move the ball with the best of them, and it's easy on the eyes. `\
 https://nytimes.com/athletic/5973782/2024/12/06/knicks-hornets-karl-anthony-towns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5969214/2024/12/06/fantasy-premier-league-liverpool
 **Lions top Packers 34-31 after gutsy fourth down conversion: Takeaways**\
 `The Lions picked up their 11th-straight win after quarterback Jared Goff led the Detroit on an 11-play, 53-yard game-winning drive.`\
 https://nytimes.com/athletic/5973539/2024/12/06/packers-lions-tnf-score-result-takeaways/
-
-**Jackson is Chelsea's presser-in-chief - he has been crucial to their fine start**\
-`Nicolas Jackson leads the pressing for Chelsea — and plays a crucial role in their recent results`\
-https://nytimes.com/athletic/5971510/2024/12/06/nicolas-jackson-chelsea-pressing-analysis/
 
