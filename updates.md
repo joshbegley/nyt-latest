@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-team
 `\
 https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-teams-names/
 
+**What's a valkyrie? How WNBA teams got their names**\
+`What a Norse specialist thinks about the Golden State Valkyries, and how other teams got their names.
+`\
+https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-teams-names/
+
 **Rays agree to 1-year deal with Danny Jansen**\
 `Jansen will reportedly receive $8.5 million in 2025, with a mutual option for the 2026 season. `\
 https://nytimes.com/athletic/5975197/2024/12/06/danny-jansen-tampa-bay-rays-deal/
