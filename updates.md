@@ -1,3 +1,11 @@
+**Trump’s Allies Go Global: ‘Make Argentina Great Again’**\
+`At its international conferences, CPAC is giving a stage to right-wing politicians and hunting for ideas for use back home.`\
+https://nytimes.com/2024/12/06/us/politics/cpac-argentina-trump-milei.html
+
+**Court Upholds Law Forcing a Ban or Sale of TikTok**\
+`The law will ban the video app in the United States by Jan. 19 if its owner, ByteDance, does not sell it to a non-Chinese company.`\
+https://nytimes.com/2024/12/06/business/media/tiktok-ban-court-decision.html
+
 **TikTok Loses Bid to Overturn Law Forcing a Ban or Sale**\
 `A federal court on Friday upheld a law that will ban the video app in the United States by Jan. 19 if its owner, ByteDance, does not sell it to a non-Chinese company.`\
 https://nytimes.com/2024/12/06/business/media/tiktok-ban-court-decision.html
