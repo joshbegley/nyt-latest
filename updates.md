@@ -1,3 +1,7 @@
+**Avett Brothers Musical ‘Swept Away’ to Close on Broadway After Short Run**\
+`The new musical, about a shipwreck and its aftermath, opened Nov. 19 at the Longacre Theater.`\
+https://nytimes.com/2024/12/05/theater/swept-away-broadway-closing.html
+
 **Head of Secret Service and Congressman Get Into Shouting Match at Hearing**\
 `The agency’s acting director took offense when a Texas representative questioned him about where he was standing in a photo commemorating the Sept. 11 attacks.`\
 https://nytimes.com/2024/12/05/us/politics/ronald-rowe-pat-fallon-trump-assassination.html
