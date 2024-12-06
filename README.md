@@ -1,3 +1,7 @@
+**It’s Not Too Late to Rein In Holiday Spending**\
+`Research suggests that you’ll spend less than you otherwise would by setting a strict budget — even if you go over the budget.`\
+https://nytimes.com/2024/12/06/your-money/holiday-spending-limits.html
+
 **The Guardian Sells U.K.’s Oldest Sunday Paper to a Media Start-Up**\
 `The Guardian Media Group said it had struck a deal to sell The Observer to Tortoise Media, shortly after a 48-hour strike by journalists had ended.`\
 https://nytimes.com/2024/12/06/business/guardian-observer-sale.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973510/2024/12/06/chargers-chiefs-matchups-preview
 **Ranking the free-agent starting pitchers the Giants could target**\
 `The Giants best options are either to swing big on an ace or take a chance on a rebound candidate coming off an injury.`\
 https://nytimes.com/athletic/5969695/2024/12/06/sf-giants-free-agent-pitching-targets/
-
-**Barrows: 49ers have a personnel issue on defense, not a Nick Sorensen issue**\
-`Kyle Shanahan's support of Sorensen this week sounded like what he said about Robert Saleh in 2018. There were changes after that season.`\
-https://nytimes.com/athletic/5973318/2024/12/06/49ers-defense-nick-sorensen/
 
