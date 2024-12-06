@@ -1,3 +1,15 @@
+**Flyers and Matvei Michkov show their resiliency, but team must learn from late mistakes**\
+`After digging themselves out of a 3-0 hole against the Panthers, the Flyers let things slip away late in a 7-5 loss.`\
+https://nytimes.com/athletic/5973801/2024/12/06/flyers-resilient-panthers-michkov-farabee/
+
+**How Notre-Dame Was Reborn**\
+`It took about 250 companies, 2,000 workers, about $900 million, a tight deadline and a lot of national pride.`\
+https://nytimes.com/2024/12/06/world/europe/notre-dame-paris-france.html
+
+**Trump Could Take Us to War With Iran. But He Could Also Broker Peace.**\
+`Over the next four years, the toxic and seemingly unending psychodrama between the United States and Iran may very well see its final act.`\
+https://nytimes.com/2024/12/06/opinion/trump-iran-war-peace.html
+
 **Climbers Who Went Missing on New Zealand’s Tallest Peak Are Believed Dead**\
 `The police suspended their search for two Americans and a Canadian who went missing while trying to reach the summit of Aoraki/Mount Cook.`\
 https://nytimes.com/2024/12/06/world/asia/new-zealand-climbers-presumed-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5971510/2024/12/06/nicolas-jackson-chelsea-pressing
 **Amad at wing-back is a source of joy - for Man Utd fans and Ruben Amorim‌**\
 `Why the young Ivory Coast international could be an ideal solution for the new tactical setup at Manchester United`\
 https://nytimes.com/athletic/5971614/2024/12/06/amad-wing-back-manchester-united/
-
-**Jon Moss exclusive: How to improve VAR, Coote controversy and Klopp's 'gamechanging' call**\
-`Ex-Premier League referee believes the job has never been harder - but is still happy for his sons to follow him into the industry`\
-https://nytimes.com/athletic/5971561/2024/12/06/jon-moss-interview-referee-coote-klopp/
-
-**Sabres thoughts: How Lindy Ruff is handling losing streak, Tage Thompson's 4 Nations snub, more**\
-`After a 3-2 OT loss to the Jets, the Sabres extend their winless streak to five games and can't afford to let it get any longer.`\
-https://nytimes.com/athletic/5973807/2024/12/06/sabres-lindy-ruff-thompson-injuries/
-
-**Political Turmoil Adds to South Korea’s Economic Woes**\
-`Even before a short-lived declaration of martial law thrust the country into crisis, the economy faced grim prospects.`\
-https://nytimes.com/2024/12/06/business/south-korea-economy-martial-law.html
 
