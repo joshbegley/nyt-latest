@@ -1,3 +1,11 @@
+**An Art Movement’s Lasting Impression**\
+`Lessons from the past continue to influence and inspire today’s globalized art world.`\
+https://nytimes.com/2024/12/06/special-series/impressionism-art-beatriz-milhazes.html
+
+**'I can become one of the best athletes in tennis': Emma Raducanu confirms new fitness coach**\
+`The 2021 U.S. Open champion is bidding for a first injury-free season since her Grand Slam breakthrough.`\
+https://nytimes.com/athletic/5974753/2024/12/06/emma-raducanu-tennis-team-fitness-coach/
+
 **The Rage and Glee That Followed a C.E.O.’s Killing Should Ring All Alarms**\
 `It echoes another era of extreme inequality and extreme violence.`\
 https://nytimes.com/2024/12/06/opinion/the-rage-and-glee-that-followed-a-ceos-killing-should-ring-all-alarms.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/business/kash-patel-trump-media-truth-social.html
 **Rosé Sets Herself Free, and 8 More New Songs**\
 `Hear tracks by Sky Ferreira, Bad Bunny, Sakura Tsuruta and others.`\
 https://nytimes.com/2024/12/06/arts/music/playlist-rose-sky-ferreira-bad-bunny.html
-
-**Lewis Hamilton’s final F1 lap with Mercedes: A year of challenges, a decade of triumphs**\
-`Lewis Hamilton's Mercedes era closes this weekend. At the end of a tough 2024, driver and team are committed to a warm ending. `\
-https://nytimes.com/athletic/5974648/2024/12/06/lewis-hamilton-final-mercedes-race-f1-ferrari/
-
-**Fantasy football flex fliers: Elijah Moore, MVS look good for Week 14**\
-`Scott Engel gives last-minute lineup advice for anyone wondering who to grab in free agency for Week 14. `\
-https://nytimes.com/athletic/5974510/2024/12/06/nfl-fantasy-football-flex-fliers-week-14/
 
