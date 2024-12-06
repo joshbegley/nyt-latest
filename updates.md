@@ -1,3 +1,11 @@
+**Shuntaro Tanikawa, Poet and Translator of ‘Peanuts,’ Dies at 92**\
+`A perennial front-runner for the Nobel Prize in Literature, he was a revered figure in Japan, not just in literary circles but also among casual readers.`\
+https://nytimes.com/2024/12/06/books/shuntaro-tanikawa-dead.html
+
+**A Second Trump Term Is Set to Scramble Trade Alliances**\
+`Europe’s new pact with South America, its largest deal to date, could be a sign of how countries will diversify trade relationships as Donald Trump threatens tariffs.`\
+https://nytimes.com/2024/12/06/us/politics/trump-trade-alliances.html
+
 **Braves' to-do list entering Winter Meetings seems more urgent than in recent years**\
 `With Spencer Strider not expected back until May, the Braves will be in the market for a proven starting pitcher.`\
 https://nytimes.com/athletic/5975407/2024/12/06/braves-winter-meetings-outlook/
