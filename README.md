@@ -1,3 +1,11 @@
+**A Washington Institution Delays Its Transition: the Kennedy Center**\
+`As the nation’s capital prepares for a second Trump administration, the performing arts center announced that its chairman would not step down in January as planned.`\
+https://nytimes.com/2024/12/06/arts/music/kennedy-center-chairman-transition.html
+
+**Arteta on Arsenal's corner success: 'We want to be kings of everything'**\
+`Mikel Arteta is embracing comparisons with Stoke City&#8217;s set-piece prowess as he challenged his side to become the &#8220;kings of everything&#8221;.`\
+https://nytimes.com/athletic/5974651/2024/12/06/mikel-arteta-on-arsenals-corner-success-we-want-to-be-kings-of-everything/
+
 **Employers added 227,000 jobs in November.**\
 `Hiring bounced back after disruptions from storms and a major strike.`\
 https://nytimes.com/live/2024/12/06/business/jobs-report-november-economy/employers-added-227000-jobs-in-november
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/us/politics/trump-defends-hegseth.html
 **Romanian Court Annuls Presidential Election Results and Orders a New Vote**\
 `The decision came days after the government asserted it had found an online campaign that promoted a little-known ultranationalist candidate, who emerged as a front-runner in the vote.`\
 https://nytimes.com/2024/12/06/world/europe/romania-election-court.html
-
-**Why Wouldn’t ChatGPT Say This Dead Professor’s Name?**\
-`A bizarre saga in which users noticed the chatbot refused to say “David Mayer” raised questions about privacy and A.I., with few clear answers.`\
-https://nytimes.com/2024/12/06/us/david-mayer-chatgpt-openai.html
-
-**Is it better to be No. 5 than No. 1? College Football Playoff scenarios to watch**\
-`There's a lot on the line with College Football Playoff seeding in conference title games. Be prepared for selection committee controversy.`\
-https://nytimes.com/athletic/5973462/2024/12/06/college-football-playoff-seeding-scenarios-odds/
 
