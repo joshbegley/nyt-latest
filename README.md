@@ -1,3 +1,11 @@
+**Jets placing Mosley on IR, Hall and Gardner doubtful vs. Dolphins**\
+`Mosley is the Jets' defensive captain, but it wouldn’t be a surprise if he has played his final snaps with the team.`\
+https://nytimes.com/athletic/5975129/2024/12/06/jets-cj-mosley-breece-hall-sauce-gardner-injury-updates/
+
+**'Holy Grail' Wayne Gretzky rookie card case sells for record $2.52 million**\
+`An unopened case of vintage hockey cards has been sold for a second time this year, but there may be more yet to come`\
+https://nytimes.com/athletic/5975028/2024/12/06/wayne-gretzky-rookie-card-auction-sale/
+
 **Trump’s Treasury Pick Isn’t Alarming, but He Is Unusual**\
 `Some of Scott Bessent’s economic views are outside the mainstream. But at least he’s qualified.`\
 https://nytimes.com/2024/12/06/opinion/scott-bessent-treasury-trump.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5975125/2024/12/06/rice-ethan-onianwa-right-tackle-
 **Ocasio-Cortez Seeks House Post That Would Make Her a Top Foil to Trump**\
 `Representative Alexandria Ocasio-Cortez, a New York Democrat, announced a bid to join the party’s leadership ranks in Congress.`\
 https://nytimes.com/2024/12/06/nyregion/aoc-house-oversight-committee.html
-
-**Falling in Love With Nora Ephron**\
-`Ilana Kaplan’s new coffee table book pays tribute to the godmother of the modern rom-com.`\
-https://nytimes.com/2024/12/06/books/nora-ephron-movies.html
-
-**Dick Van Dyke, Approaching 99, Dances in Coldplay’s Latest Video**\
-`In the clip, which was filmed in October, Van Dyke sings, dances barefoot and offers meditations on aging, family and love.`\
-https://nytimes.com/2024/12/06/arts/music/dick-van-dyke-coldplay-all-my-love-video.html
 
