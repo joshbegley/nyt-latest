@@ -1,3 +1,11 @@
+**How a Minnesota historian shaped a barnstorming, negro leagues legend's Hall of Fame case**\
+`John Donaldson will be considered by a Hall of Fame committee this weekend. That he's on the precipice at all is a minor miracle. `\
+https://nytimes.com/athletic/5973638/2024/12/06/john-donaldson-baseball-hall-of-fame-case/
+
+**Is the Urban Shift Toward Trump Really About Democratic Cities in Disarray?**\
+`Big cities have faced serious problems lately. But there’s little evidence those problems are what drove voters to the right in November.`\
+https://nytimes.com/2024/12/06/upshot/urban-vote-shift-trump.html
+
 **Howe on Newcastle PSR January impact: 'Nothing is absolutely fixed'**\
 `Eddie Howe insists that everyone inside Newcastle United wants to improve the squad in January but &#8220;nothing is absolutely fixed&#8221; and he cannot confirm yet whether they must sell in order to buy.`\
 https://nytimes.com/athletic/5974203/2024/12/06/newcastle-transfer-january-howe-psr/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/well/plants-gardening-health-benefits.html
 **Trump’s F.B.I. Pick Has an Enemies List. Biden Should Pardon Everyone on It.**\
 `The president has a chance to save innocent people from MAGA persecution.`\
 https://nytimes.com/2024/12/06/opinion/kash-patel-biden-pardon.html
-
-**The New York Times News Quiz, Dec. 6, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/12/06/briefing/biden-trump-south-korea-brian-thompson-news-quiz.html
-
-**The ‘Chilling’ Fatal Shooting of a C.E.O. Has Business Leaders on Edge**\
-`After Brian Thompson of UnitedHealthcare was killed in Manhattan, the phones at corporate security firms were “ringing off the hook.”`\
-https://nytimes.com/2024/12/06/business/brian-thompson-insurance-executives-threats.html
 
