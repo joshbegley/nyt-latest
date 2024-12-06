@@ -24,7 +24,7 @@ https://nytimes.com/athletic/5974753/2024/12/06/emma-raducanu-tennis-team-fitnes
 
 **The Rage and Glee That Followed a C.E.O.’s Killing Should Ring All Alarms**\
 `It echoes another era of extreme inequality and extreme violence.`\
-https://nytimes.com/2024/12/06/opinion/the-rage-and-glee-that-followed-a-ceos-killing-should-ring-all-alarms.html
+https://nytimes.com/2024/12/06/opinion/united-health-care-ceo-shooting.html
 
 **Eight takeaways after Blackhawks GM Kyle Davidson explains Luke Richardson firing**\
 `When did Davidson make the decision to change coaches, and what feedback did he get from ownership?`\

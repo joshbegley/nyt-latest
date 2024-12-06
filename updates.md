@@ -1,3 +1,7 @@
+**The Rage and Glee That Followed a C.E.O.’s Killing Should Ring All Alarms**\
+`It echoes another era of extreme inequality and extreme violence.`\
+https://nytimes.com/2024/12/06/opinion/united-health-care-ceo-shooting.html
+
 **Cubs adding Jose Javier from Yankees as new first-base coach: Sources**\
 `Javier spent this past season as a defensive coach for the New York Yankees’ Triple-A affiliate`\
 https://nytimes.com/athletic/5974997/2024/12/06/cubs-jose-javier-yankees-coaching-staff/
