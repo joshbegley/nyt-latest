@@ -1,3 +1,7 @@
+**Chelsea yet to decide on pre-season plans amid Club World Cup participation**\
+`Enzo Maresca admits Chelsea have yet to make a decision on their pre-season plans with the team also participating in the FIFA Club World Cup next summer.`\
+https://nytimes.com/athletic/5974531/2024/12/06/chelsea-club-world-cup-preseason/
+
 **Next week’s waiver wire: Will Levis, Travis Homer and more players to add before the Week 15 rush**\
 `John Laghezza shares his top expected future waiver values, including Will Levis, who faces a generous Jaguars pass defense in Week 14.`\
 https://nytimes.com/athletic/5972265/2024/12/06/next-weeks-waiver-wire-will-levis-travis-homer-and-more-players-to-add-before-the-week-15-rush/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974395/2024/12/06/chelsea-sam-kerr-injury-acl-upda
 **Trump Transition Live Updates: Latest Picks Focus on Border and Immigration**\
 ``\
 https://nytimes.com/live/2024/12/06/us/trump-hegseth-news
-
-**Why the Seahawks are searching for short-yardage success amid playoff push**\
-`If Seattle wants to stay atop the NFC West, it needs better production in short-yardage situations.`\
-https://nytimes.com/athletic/5973139/2024/12/06/seattle-seahawks-arizona-cardinals-week-14-geno-smith/
 
