@@ -1,3 +1,7 @@
+**Lions top Packers 34-31 after gutsy fourth down conversion: Takeaways**\
+`The Lions picked up their 11th-straight win after quarterback Jared Goff led the Detroit on an 11-play, 53-yard game-winning drive.`\
+https://nytimes.com/athletic/5973539/2024/12/06/packers-lions-tnf-score-result-takeaways/
+
 **Jon Moss exclusive: How to improve VAR, Coote controversy and Klopp's 'gamechanging' call**\
 `Ex-Premier League referee believes the job has never been harder - but is still happy for his sons to follow him into the industry`\
 https://nytimes.com/athletic/5971561/2024/12/06/jon-moss-interview-referee-coote-klopp/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5971730/2024/12/06/the-wsl-relegation-battle-where-
 **Watching Newcastle vs Liverpool with football's first substitutes coach - did Slot and Howe get it right?**\
 `The world's first substitutes coach analyses the changes of two Premier League coaches during a match`\
 https://nytimes.com/athletic/5969652/2024/12/06/watching-liverpool-vs-newcastle-with-a-substitutes-coach/
-
-**Alex Baena may be Europe's most creative player - but his numbers should be even better**\
-`Baena leads La Liga in assists via open-play crosses, set-pieces and through balls over the past two seasons - yet the best is yet to come`\
-https://nytimes.com/athletic/5899820/2024/12/06/alex-baena-villarreal-spain-creative-unlucky/
 
