@@ -1,3 +1,19 @@
+**Was Brian Thompson’s Killer a Hit Man? Unlikely, Experts Say.**\
+`The murder of Brian Thompson did not appear to have been committed by a coldly calculating professional, according to people who study criminal behavior.`\
+https://nytimes.com/2024/12/06/nyregion/brian-thompson-killer-hit-man.html
+
+**This is the Pelicans team (minus Zion) we've been waiting to see**\
+`Brandon Ingram and Herb Jones returned to the lineup and made an immediate impact as New Orleans snapped a nine-game losing streak.`\
+https://nytimes.com/athletic/5974146/2024/12/06/pelicans-win-brandon-ingram-herb-jones/
+
+**Jonathan Kuminga makes claim as crunch-time option in Warriors' win over Rockets**\
+`With Steph Curry and Draymond Green out and the team struggling to score late in games, Steve Kerr turned to Kuminga. He delivered.`\
+https://nytimes.com/athletic/5973918/2024/12/06/jonathan-kuminga-warriors-rockets/
+
+**Who do you want Notre Dame to host in the Playoff? Here are the scenarios**\
+`Who Notre Dame will welcome to South Bend in the College Football Playoff depends on these conference championship results.`\
+https://nytimes.com/athletic/5974294/2024/12/06/notre-dame-playoff-opponent-scenarios/
+
 **Where the Cardinals stand ahead of Winter Meetings: 'A different profile'**\
 `John Mozeliak says the Cardinals' reset is not a full-fledged rebuild: "We have every intention of fielding a good baseball team."`\
 https://nytimes.com/athletic/5972559/2024/12/06/cardlnals-mlb-winter-meetings-mozeliak/
