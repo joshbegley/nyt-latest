@@ -1,3 +1,7 @@
+**Police in Central Park Find Backpack Like the One the Gunman Carried**\
+`Crime scene technicians came to a wooded area where officers were searching for the gunman’s bag and weapon.`\
+https://nytimes.com/2024/12/06/nyregion/unitedhealthcare-ceo-gunman-backpack.html
+
 **Musk Cost-Cutting Effort Is Being Guided by Health Entrepreneur**\
 `The inclusion of Brad Smith in Trump’s efficiency panel suggests that the team is preparing to focus particularly on the nation’s health care system.`\
 https://nytimes.com/2024/12/06/us/politics/elon-musk-doge-brad-smith-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891633/2024/12/06/2024-25-mlb-top-40-free-agmlb-to
 **NFL closes probe of latest sexual assault lawsuit against Deshaun Watson**\
 `The Browns quarterback will not face discipline over a lawsuit filed one day after Cleveland's season opener.`\
 https://nytimes.com/athletic/5975419/2024/12/06/nfl-review-deshaun-watson-lawsuit/
-
-**Shane Bieber returns to Cleveland Guardians: Source**\
-`Bieber's contract includes a player option for 2026. He pitched 12 scoreless innings in 2024 before undergoing Tommy John surgery.`\
-https://nytimes.com/athletic/5944046/2024/12/06/shane-bieber-cleveland-guardians-return/
 
