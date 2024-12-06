@@ -1,3 +1,7 @@
+**Trump Names Top Silicon Valley Conservative to Oversee Crypto and A.I.**\
+`David Sacks, a venture capitalist who hosts a hit podcast, has generally called for a looser hand in regulating both emerging technologies.`\
+https://nytimes.com/2024/12/05/us/politics/david-sacks-crypto-ai-trump.html
+
 **Corrections: Dec. 6, 2024**\
 `Corrections that appeared in print on Friday, Dec. 6, 2024.`\
 https://nytimes.com/2024/12/05/pageoneplus/corrections-dec-6-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/us/tsunami-warning-san-francisco.html
 **Why Was a Tsunami Warning Issued, and Then Canceled? A Forecaster Explains.**\
 `The warning was sent in response to a 7.0-magnitude that struck off the coast of Northern California. A tsunami warning coordinator described the process.`\
 https://nytimes.com/2024/12/05/us/california-tsunami-warning.html
-
-**House Blocks Release of Ethics Report on Gaetz as Republicans Close Ranks**\
-`In largely party-line votes, the House turned back two measures that would have forced the Ethics Committee to make public the results of its investigation into allegations of sexual misconduct and drug use.`\
-https://nytimes.com/2024/12/05/us/politics/matt-gaetz-ethics-report-blocked-house.html
 
