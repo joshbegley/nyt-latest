@@ -1,3 +1,15 @@
+**This is the Pelicans team (minus Zion) we've been waiting to see**\
+`Brandon Ingram and Herb Jones returned to the lineup and made an immediate impact as New Orleans snapped a nine-game losing streak.`\
+https://nytimes.com/athletic/5974146/2024/12/06/pelicans-win-brandon-ingram-herb-jones/
+
+**Jonathan Kuminga makes claim as crunch-time option in Warriors' win over Rockets**\
+`With Steph Curry and Draymond Green out and the team struggling to score late in games, Steve Kerr turned to Kuminga. He delivered.`\
+https://nytimes.com/athletic/5973918/2024/12/06/jonathan-kuminga-warriors-rockets/
+
+**Who do you want Notre Dame to host in the Playoff? Here are the scenarios**\
+`Who Notre Dame will welcome to South Bend in the College Football Playoff depends on these conference championship results.`\
+https://nytimes.com/athletic/5974294/2024/12/06/notre-dame-playoff-opponent-scenarios/
+
 **Here’s the latest on the investigation.**\
 `By Alyce McFadden and Corey Kilgannon`\
 https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson/heres-the-latest-on-the-investigation
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5971432/2024/12/06/arsenal-fulham-and-the-familiar-
 **Broncos' playoff scenarios, RB conundrum and Garett Bolles' future: Mailbag**\
 `Also, secondary concerns, and did Mike Shanahan get snubbed by losing out on the Hall of Fame in 2025?`\
 https://nytimes.com/athletic/5972854/2024/12/06/broncos-mailbag-playoff-scenarios/
-
-**Raiders mock draft reaction: Is QB Cam Ward a good fit for Las Vegas?**\
-`The Raiders could well go after a quarterback near the top of the first round, but would it be Ward or Colorado's Shedeur Sanders?`\
-https://nytimes.com/athletic/5969091/2024/12/06/raiders-mock-draft-cam-ward/
-
-**Is Intel Cooked? + What’s Your P(Dyson Sphere)? + Hard Fork Gift Guide**\
-`The sudden departure of Intel’s C.E.O. reignites concerns about U.S. dependence on foreign manufacturing.`\
-https://nytimes.com/2024/12/06/podcasts/is-intel-cooked-whats-your-p-dyson-sphere-hard-fork-gift-guide.html
-
-**Where the Cardinals stand ahead of Winter Meetings: 'A different profile'**\
-`John Mozeliak says the Cardinals' reset is not a full-fledged rebuild: "We have every intention of fielding a good baseball team."`\
-https://nytimes.com/athletic/5972559/2024/12/06/cardlnals-mlb-winter-meetings-mozeliak/
 
