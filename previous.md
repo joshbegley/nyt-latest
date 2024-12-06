@@ -1,3 +1,7 @@
+**MLS commissioner Don Garber eyes changes, faces challenges**\
+`On the eve of the MLS Cup final, league commissioner Don Garber revealed some impending changes - and new opportunities`\
+https://nytimes.com/athletic/5975576/2024/12/06/mls-commissioner-don-garber-apple-messi/
+
 **NHL contract grades: Igor Shesterkin's 8-year deal is risky for Rangers, but he's worth it**\
 `The back half of Shesterkin's contract could be scary, given his age, but the Rangers had to do it.`\
 https://nytimes.com/athletic/5975610/2024/12/06/igor-shesterkin-rangers-contract-grade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975519/2024/12/06/major-league-soccer-pause-games-
 **As Jan. 6 Criminal Cases Against Trump Fizzle, Civil Cases Plod Ahead**\
 `Donald J. Trump has successfully defeated or impeded many legal challenges against him over the storming of the Capitol, but eight lawsuits on the matter remain in the courts.`\
 https://nytimes.com/2024/12/06/us/politics/trump-jan-6-civil-cases.html
-
-**Five areas interim coach Anders Sorensen can improve the Blackhawks**\
-`There are some changes Sorensen can make quickly and others that will need more time to improve the Blackhawks.`\
-https://nytimes.com/athletic/5975231/2024/12/06/blackhawks-coach-anders-sorensen/
 

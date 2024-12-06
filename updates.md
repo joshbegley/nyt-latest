@@ -1,3 +1,7 @@
+**MLS commissioner Don Garber eyes changes, faces challenges**\
+`On the eve of the MLS Cup final, league commissioner Don Garber revealed some impending changes - and new opportunities`\
+https://nytimes.com/athletic/5975576/2024/12/06/mls-commissioner-don-garber-apple-messi/
+
 **NHL contract grades: Igor Shesterkin's 8-year deal is risky for Rangers, but he's worth it**\
 `The back half of Shesterkin's contract could be scary, given his age, but the Rangers had to do it.`\
 https://nytimes.com/athletic/5975610/2024/12/06/igor-shesterkin-rangers-contract-grade/
