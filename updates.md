@@ -1,3 +1,7 @@
+**The Athletic FC: Trump, Infantino combine in Club World Cup draw, Postecoglou confronts fans**\
+`Today in TAFC: The Club World Cup circus, Postecoglou confronts fans after Tottenham's loss to Bournemouth and memories of Goodison Park...`\
+https://nytimes.com/athletic/5974237/2024/12/06/trump-infantino-club-world-cup-postecoglou/
+
 **Heat Today: Bam Adebayo is adjusting to shooting more 3s, but his all-around impact remains**\
 `"He’s a big-time, multiple-effort player that has now added experience to all his skill, and I think that goes a long way.”`\
 https://nytimes.com/athletic/5972481/2024/12/06/bam-adebayo-tyler-herro-miami-heat/
