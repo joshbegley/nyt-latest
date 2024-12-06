@@ -1,4 +1,4 @@
-**Why Was the Tsunami Warning Issued, and Then Canceled? A Forecaster Explains.**\
+**Why Was a Tsunami Warning Issued, and Then Canceled? A Forecaster Explains.**\
 `The warning was sent in response to a 7.0-magnitude that struck off the coast of Northern California. A tsunami warning coordinator described the process.`\
 https://nytimes.com/2024/12/05/us/california-tsunami-warning.html
 
