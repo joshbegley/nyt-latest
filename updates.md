@@ -1,3 +1,7 @@
+**Rangers trade Jacob Trouba to Ducks**\
+`Trouba waived his no-trade clause for the deal after a standoff with the Rangers and a looming threat of being placed on waivers.`\
+https://nytimes.com/athletic/5975180/2024/12/06/rangers-ducks-jacob-trouba-trade/
+
 **Rice OT Ethan Onianwa entering transfer portal**\
 `Prior to this season, Onianwa had started the two previous years for Rice at right tackle.`\
 https://nytimes.com/athletic/5975125/2024/12/06/rice-ethan-onianwa-right-tackle-transfer-portal/
