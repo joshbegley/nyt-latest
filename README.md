@@ -1,3 +1,7 @@
+**For Those in Need of a Job, Landing One Might Still Be a Challenge**\
+`Layoffs remain relatively low, but people who lose their jobs could be struggling to find new ones.`\
+https://nytimes.com/2024/12/06/business/economy/layoffs-jobs-unemployment.html
+
 **What Is Happening in Syria**\
 `We explain the latest updates in the country’s civil war.`\
 https://nytimes.com/2024/12/06/briefing/what-is-happening-in-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5973012/2024/12/06/chiefs-charles-omenihu-return-fr
 **Thomas Brown's chances to stay? Trade for a coach? Bears mailbag, plus Week 14 picks**\
 `What would it take for Brown to be the Bears' head coach? What's Keenan Allen's future in Chicago? Mailbag, plus our Sunday picks.`\
 https://nytimes.com/athletic/5973230/2024/12/06/bears-mailbag-thomas-brown-49ers/
-
-**Vikings-Falcons preview, predictions: Can Minnesota spoil Kirk Cousins' return?**\
-`Can the talented Vikings defense keep Cousins, Bijan Robinson and Drake London in check for 60 minutes on Sunday? `\
-https://nytimes.com/athletic/5973048/2024/12/06/vikings-falcons-preview-predictions-kirk-cousins/
 
