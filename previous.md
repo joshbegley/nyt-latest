@@ -1,3 +1,7 @@
+**Jimmy Kimmel Thinks Pete Hegseth Cameo Videos Could Soon Be a Thing**\
+`The late-night host wondered if the embattled pick for secretary of defense could end up appearing on the online platform in time for Christmas.`\
+https://nytimes.com/2024/12/06/arts/television/jimmy-kimmel-pete-hegseth.html
+
 **Vitor Roque faces Barcelona courtesy of 'fear clause' absence - but can he prove a point?**\
 `Vitor Roque will face his parent club Barcelona on Saturday afternoon with loan club Real Betis`\
 https://nytimes.com/athletic/5973386/2024/12/06/vitor-roque-barcelona-real-betis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/world/asia/gwangju-massacre-human-acts-han-kang.h
 **Spurs have become a team that makes the same mistakes over and over again**\
 `Away defeats typically carry the same hallmarks for Spurs and Thursday's loss to Bournemouth was a chastening moment for their head coach`\
 https://nytimes.com/athletic/5973473/2024/12/06/tottenham-hotspur-ange-postecoglou-bournemouth-defeat/
-
-**Word of the Day: schwa**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/06/learning/word-of-the-day-schwa.html
 

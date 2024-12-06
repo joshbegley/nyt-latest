@@ -1,3 +1,7 @@
+**Jimmy Kimmel Thinks Pete Hegseth Cameo Videos Could Soon Be a Thing**\
+`The late-night host wondered if the embattled pick for secretary of defense could end up appearing on the online platform in time for Christmas.`\
+https://nytimes.com/2024/12/06/arts/television/jimmy-kimmel-pete-hegseth.html
+
 **Vitor Roque faces Barcelona courtesy of 'fear clause' absence - but can he prove a point?**\
 `Vitor Roque will face his parent club Barcelona on Saturday afternoon with loan club Real Betis`\
 https://nytimes.com/athletic/5973386/2024/12/06/vitor-roque-barcelona-real-betis/
