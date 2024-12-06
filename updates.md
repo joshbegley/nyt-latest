@@ -1,3 +1,11 @@
+**Trump Defends His Imperiled Pick for Defense Secretary, Pete Hegseth**\
+`The post amounted to a public dare to Republican senators, a number of whom have expressed private concerns about Mr. Hegseth, to vote against Mr. Trump’s wishes.`\
+https://nytimes.com/2024/12/06/us/politics/trump-defends-hegseth.html
+
+**Romanian Court Annuls Presidential Election Results and Orders a New Vote**\
+`The decision came days after the government asserted it had found an online campaign that promoted a little-known ultranationalist candidate, who emerged as a front-runner in the vote.`\
+https://nytimes.com/2024/12/06/world/europe/romania-election-court.html
+
 **Why Wouldn’t ChatGPT Say This Dead Professor’s Name?**\
 `A bizarre saga in which users noticed the chatbot refused to say “David Mayer” raised questions about privacy and A.I., with few clear answers.`\
 https://nytimes.com/2024/12/06/us/david-mayer-chatgpt-openai.html
