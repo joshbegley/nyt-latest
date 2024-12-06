@@ -1,3 +1,11 @@
+**Next week’s waiver wire: Will Levis, Travis Homer and more players to add before the Week 15 rush**\
+`John Laghezza shares his top expected future waiver values, including Will Levis, who faces a generous Jaguars pass defense in Week 14.`\
+https://nytimes.com/athletic/5972265/2024/12/06/next-weeks-waiver-wire-will-levis-travis-homer-and-more-players-to-add-before-the-week-15-rush/
+
+**Canada Moves to Protect Arctic From Threats by Russia and China**\
+`Ottawa says its focus on the Arctic comes after Russia’s invasion of Ukraine “has shaken the foundations” of international cooperation in the northern region.`\
+https://nytimes.com/2024/12/06/world/canada/canada-arctic-russia-china.html
+
 **It’s Not Too Late to Rein In Holiday Spending**\
 `Research suggests that you’ll spend less than you otherwise would by setting a strict budget — even if you go over the budget.`\
 https://nytimes.com/2024/12/06/your-money/holiday-spending-limits.html
