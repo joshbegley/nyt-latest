@@ -1,3 +1,7 @@
+**Trump Names 2 Officials to Help Carry Out Immigration Crackdown**\
+`The president-elect picked Rodney S. Scott, an outspoken Border Patrol chief from his first term, to run Customs and Border Protection. And he chose Caleb Vitello to head Immigration and Customs Enforcement.`\
+https://nytimes.com/2024/12/05/us/politics/rodney-scott-cbp-caleb-vitello-ice-trump.html
+
 **NBA returning to China in 2025 for 2 preseason games: Reports**\
 `The Nets are owned by Joe Tsai, who was born in Taiwan and is the chairman of Alibaba, the Chinese e-commerce company.`\
 https://nytimes.com/athletic/5973665/2024/12/05/suns-nets-nba-china-2025-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/health/anesthesia-anthem.html
 **Trump Names Top Silicon Valley Conservative to Oversee Crypto and A.I.**\
 `David Sacks, a venture capitalist who hosts a hit podcast, has generally called for a looser hand in regulating both emerging technologies.`\
 https://nytimes.com/2024/12/05/us/politics/david-sacks-crypto-ai-trump.html
-
-**Corrections: Dec. 6, 2024**\
-`Corrections that appeared in print on Friday, Dec. 6, 2024.`\
-https://nytimes.com/2024/12/05/pageoneplus/corrections-dec-6-2024.html
 
