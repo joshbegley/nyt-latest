@@ -1,3 +1,7 @@
+**Rice OT Ethan Onianwa entering transfer portal**\
+`Prior to this season, Onianwa had started the two previous years for Rice at right tackle.`\
+https://nytimes.com/athletic/5975125/2024/12/06/rice-ethan-onianwa-right-tackle-transfer-portal/
+
 **Ocasio-Cortez Seeks House Post That Would Make Her a Top Foil to Trump**\
 `Representative Alexandria Ocasio-Cortez, a New York Democrat, announced a bid to join the party’s leadership ranks in Congress.`\
 https://nytimes.com/2024/12/06/nyregion/aoc-house-oversight-committee.html
