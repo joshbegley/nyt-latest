@@ -1,3 +1,11 @@
+**The Guardian Sells U.K.’s Oldest Sunday Paper to a Media Start-Up**\
+`The Guardian Media Group said it had struck a deal to sell The Observer to Tortoise Media, shortly after a 48-hour strike by journalists had ended.`\
+https://nytimes.com/2024/12/06/business/guardian-observer-sale.html
+
+**German FA officially endorse Saudi Arabian 2034 World Cup bid**\
+`The German Football Association (DFB) has announced that it will be voting in favour of the 2030 World Cup, due to be held between Spain, Portugal and Morocco, and the awarding of the 2034 tournament in Saudi Arabia.`\
+https://nytimes.com/athletic/5974438/2024/12/06/germany-saudi-arabia-world-cup-2034/
+
 **As Trump Threatens Tariffs, Europe and South America Strengthen Ties**\
 `The European Union and five South American countries have reached an agreement to establish one of the largest trade zones in the world.`\
 https://nytimes.com/2024/12/06/world/europe/eu-trade-deal-mercosur-latin-america.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5969695/2024/12/06/sf-giants-free-agent-pitching-ta
 **Barrows: 49ers have a personnel issue on defense, not a Nick Sorensen issue**\
 `Kyle Shanahan's support of Sorensen this week sounded like what he said about Robert Saleh in 2018. There were changes after that season.`\
 https://nytimes.com/athletic/5973318/2024/12/06/49ers-defense-nick-sorensen/
-
-**Dan Burn and Bruno Guimaraes: Newcastle's centurions, eras and endings**\
-`Dan Burn and Bruno Guimaraes hit 100 games for Newcastle against Liverpool on Wednesday night`\
-https://nytimes.com/athletic/5974264/2024/12/06/newcastle-dan-burn-bruno-guimaraes/
-
-**Raiders’ K’Lavon Chaisson seizing his fresh start, flashing ‘first-round traits’**\
-`Chaisson was a disappointment as a first-round pick in Jacksonville but is playing well in Las Vegas and had a career game on Black Friday.`\
-https://nytimes.com/athletic/5972951/2024/12/06/raiders-klavon-chaisson-fresh-start/
 

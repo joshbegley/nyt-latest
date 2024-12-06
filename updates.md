@@ -1,3 +1,11 @@
+**The Guardian Sells U.K.’s Oldest Sunday Paper to a Media Start-Up**\
+`The Guardian Media Group said it had struck a deal to sell The Observer to Tortoise Media, shortly after a 48-hour strike by journalists had ended.`\
+https://nytimes.com/2024/12/06/business/guardian-observer-sale.html
+
+**German FA officially endorse Saudi Arabian 2034 World Cup bid**\
+`The German Football Association (DFB) has announced that it will be voting in favour of the 2030 World Cup, due to be held between Spain, Portugal and Morocco, and the awarding of the 2034 tournament in Saudi Arabia.`\
+https://nytimes.com/athletic/5974438/2024/12/06/germany-saudi-arabia-world-cup-2034/
+
 **As Trump Threatens Tariffs, Europe and South America Strengthen Ties**\
 `The European Union and five South American countries have reached an agreement to establish one of the largest trade zones in the world.`\
 https://nytimes.com/2024/12/06/world/europe/eu-trade-deal-mercosur-latin-america.html
