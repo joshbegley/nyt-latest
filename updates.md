@@ -1,3 +1,11 @@
+**Watch the Stirring Climax of ‘The Piano Lesson’**\
+`The director Malcolm Washington narrates a sequence from the film featuring Danielle Deadwyler.`\
+https://nytimes.com/2024/12/06/movies/the-piano-lesson-clip.html
+
+**Lionel Messi crowned MLS MVP for 2024 season**\
+`Inter Miami forward Lionel Messi has been voted as Major League Soccer&#8217;s MVP for the 2024 season.`\
+https://nytimes.com/athletic/5974716/2024/12/06/lionel-messi-mls-mvp-2024/
+
 **Tim Walz Says He Was ‘a Little Surprised’ Trump Won**\
 `In his first interviews since the election, Kamala Harris’s running mate told Minnesota television stations that he had thought the country would embrace the Democratic ticket’s positive message.`\
 https://nytimes.com/2024/12/06/us/politics/tim-walz-trump-harris-election.html
