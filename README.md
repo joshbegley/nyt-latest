@@ -1,3 +1,7 @@
+**Rangers, Igor Shesterkin agree to record-setting deal**\
+`Carey Price ($10.5 million average annual value) previously held the record for the largest goalie contract.`\
+https://nytimes.com/athletic/5890691/2024/12/06/igor-shesterkin-contract-extension-ny-rangers-goalie/
+
 **Barbara Bowman Dies at 96; Visionary Educator for Preschoolers**\
 `She devoted her career to teaching teachers how to prepare the youngest and most vulnerable children to fulfill their potential.`\
 https://nytimes.com/2024/12/06/us/barbara-bowman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/world/middleeast/syria-rebels-damascus-iran.html
 **Review: William Kentridge’s Collaged Fever Dream of Shostakovich**\
 `Kentridge’s film played over Shostakovich’s 10th symphony at a New York Philharmonic concert led by Keri-Lynn Wilson.`\
 https://nytimes.com/2024/12/06/arts/dance/review-william-kentridge-shostakovich-new-york-philharmonic.html
-
-**GM Kevyn Adams dismissive, defensive in face of questions about Sabres' struggles**\
-`If Adams can't turn Buffalo into "a destination city," the Sabres should find someone who can.`\
-https://nytimes.com/athletic/5975236/2024/12/06/buffalo-sabres-kevyn-adams-destination-city/
 
