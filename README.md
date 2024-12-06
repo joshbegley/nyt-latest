@@ -1,3 +1,11 @@
+**Ocasio-Cortez Seeks House Post That Would Make Her a Top Foil to Trump**\
+`Representative Alexandria Ocasio-Cortez, a New York Democrat, announced a bid to join the party’s leadership ranks in Congress.`\
+https://nytimes.com/2024/12/06/nyregion/aoc-house-oversight-committee.html
+
+**Falling in Love With Nora Ephron**\
+`Ilana Kaplan’s new coffee table book pays tribute to the godmother of the modern rom-com.`\
+https://nytimes.com/2024/12/06/books/nora-ephron-movies.html
+
 **Dick Van Dyke, Approaching 99, Dances in Coldplay’s Latest Video**\
 `In the clip, which was filmed in October, Van Dyke sings, dances barefoot and offers meditations on aging, family and love.`\
 https://nytimes.com/2024/12/06/arts/music/dick-van-dyke-coldplay-all-my-love-video.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5974976/2024/12/06/khris-middleton-bucks-debut-celt
 **On Georgia's recruiting, CFP scenarios, the SEC championship and the transfer portal**\
 `What to make of Georgia's big week with recruiting, the SEC Championship Game, the College Football Playoff and the transfer portal.`\
 https://nytimes.com/athletic/5975000/2024/12/06/georgia-football-sec-championship-cfp-transfer-portal/
-
-**Woman Who Fell Into Sinkhole Is Found Dead**\
-`After searching since Tuesday, the authorities in Unity Township, Pa., on Friday found the body of Elizabeth Pollard, 64, who disappeared while searching for her cat.`\
-https://nytimes.com/2024/12/06/us/elizabeth-pollard-sinkhole-dead.html
-
-**Eric Adams Doesn’t Rule Out Becoming a Republican Again**\
-`The Democratic mayor of New York City has embraced President-elect Donald J. Trump lately. He was a registered Republican in the 1990s.`\
-https://nytimes.com/2024/12/06/nyregion/eric-adams-republican.html
 
