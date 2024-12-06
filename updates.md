@@ -1,3 +1,11 @@
+**Boston City Councilor Indicted on Federal Charges**\
+`The council member, Tania Fernandes Anderson, was arrested on public corruption charges involving an alleged kickback.`\
+https://nytimes.com/2024/12/06/us/boston-city-councilor-indicted-on-federal-charges.html
+
+**Could Facial Recognition Help Find Man Sought in C.E.O.’s Killing?**\
+`Experts disagreed on whether running surveillance camera images released by the police through a facial recognition system would produce a reliable lead.`\
+https://nytimes.com/2024/12/06/technology/united-healthcare-ceo-shooting-facial-recognition.html
+
 **Federal Judge Upholds Racial Preferences in Naval Academy Admissions**\
 `A group that won a Supreme Court case challenging affirmative action at Harvard and the University of North Carolina had also sued the military academies.`\
 https://nytimes.com/2024/12/06/us/racial-preferences-naval-academy-admissions.html
