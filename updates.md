@@ -1,3 +1,7 @@
+**What We Know About the 7.0 Earthquake That Struck Northern California**\
+`State and local officials were working to assess the full scope of the damage, but early reports appeared to show that the quake did not cause major destruction.`\
+https://nytimes.com/2024/12/05/us/california-oregon-earthquake-explainer.html
+
 **Connor Bedard's development must be Blackhawks interim coach Anders Sorensen's top priority**\
 `There are obvious changes Sorensen can make, but what could ultimately determine how long he is in charge is how Bedard fares under him.`\
 https://nytimes.com/athletic/5973282/2024/12/05/blackhawks-coach-anders-sorensen-connor-bedard/
