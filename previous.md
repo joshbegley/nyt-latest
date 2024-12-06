@@ -1,3 +1,15 @@
+**Howe on Newcastle PSR January impact: 'Nothing is absolutely fixed'**\
+`Eddie Howe insists that everyone inside Newcastle United wants to improve the squad in January but &#8220;nothing is absolutely fixed&#8221; and he cannot confirm yet whether they must sell in order to buy.`\
+https://nytimes.com/athletic/5974203/2024/12/06/newcastle-transfer-january-howe-psr/
+
+**AFC North Whiparound: Russell Wilson's rebound, bungling Bengals top stunning storylines**\
+`Our writers give their thoughts on what's most important for each team in the final five weeks of the season.`\
+https://nytimes.com/athletic/5972511/2024/12/06/afc-north-whiparound-week-14-ravens-bengals-browns-steelers/
+
+**NBA Panic Meter: Lakers, Pacers, Wolves and others that should be alarmed**\
+`We've passed the first-quarter mark of the season, and for more than a few teams, it might be time to worry.`\
+https://nytimes.com/athletic/5973272/2024/12/06/nba-lakers-sixers-nuggets-timberwolves-panic/
+
 **Falcons say surprise defensive effort 'repeatable,' but Vikings offer tough test: 5 factors**\
 `Kyle Pitts has disappeared again, Michael Penix Jr. is ready, Bijan Robinson doesn't feel overworked, plus the Falcons' playoff chances.`\
 https://nytimes.com/athletic/5972864/2024/12/06/falcons-defense-vikings-kyle-pitts/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/12/06/briefing/biden-trump-south-korea-bria
 **The ‘Chilling’ Fatal Shooting of a C.E.O. Has Business Leaders on Edge**\
 `After Brian Thompson of UnitedHealthcare was killed in Manhattan, the phones at corporate security firms were “ringing off the hook.”`\
 https://nytimes.com/2024/12/06/business/brian-thompson-insurance-executives-threats.html
-
-**World’s Oldest Known Wild Bird Lays an Egg at 74**\
-`Wisdom, a Laysan albatross, has outlived at least three mates and the researcher who outfitted her with a tracking band in 1956.`\
-https://nytimes.com/2024/12/06/science/wisdom-albatross-bird-egg.html
-
-**November’s Jobs Report Is Expected to Show a Rebound in Hiring**\
-`The resolution of the Boeing strike, and recovery from storms in the Southeast, are predicted to produce a gain in monthly payroll data.`\
-https://nytimes.com/2024/12/06/business/economy/november-jobs-report.html
-
-**What Is Your Choice for Word of the Year?**\
-`The Oxford English Dictionary picked “brain rot” as its 2024 Word of the Year. Do you agree?`\
-https://nytimes.com/2024/12/06/learning/what-is-your-choice-for-word-of-the-year.html
 
