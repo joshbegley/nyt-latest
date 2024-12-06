@@ -1,3 +1,8 @@
+**What's a valkyrie? How WNBA teams got their names**\
+`What a Norse specialist thinks about the Golden State Valkyries, and how other teams got their names.
+`\
+https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-teams-names/
+
 **Trump’s Treasury Pick Isn’t Alarming, but He Is Unusual**\
 `Some of Scott Bessent’s economic views are outside the mainstream. But at least he’s qualified.`\
 https://nytimes.com/2024/12/06/opinion/scott-bessent-treasury-trump.html
