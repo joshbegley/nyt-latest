@@ -1,3 +1,7 @@
+**Is Milk Safe? Your Questions About Bird Flu and Dairy, Answered**\
+`Federal officials will soon begin testing the country’s milk supply for the virus. Here’s what to know.`\
+https://nytimes.com/2024/12/06/well/bird-flu-milk.html
+
 **MLS commissioner Don Garber eyes changes, faces challenges**\
 `On the eve of the MLS Cup final, league commissioner Don Garber revealed some impending changes - and new opportunities`\
 https://nytimes.com/athletic/5975576/2024/12/06/mls-commissioner-don-garber-apple-messi/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/briefing/syria-rebels-tiktok-us-ban-appeals-court
 **Wisconsin targeting Jeff Grimes as next offensive coordinator: Source**\
 `Grimes, who spent 2024 at Kansas, is a 30-year veteran who could help Wisconsin return to emphasizing the running game.`\
 https://nytimes.com/athletic/5975570/2024/12/06/wisconsin-offensive-coordinator-jeff-grimes-kansas/
-
-**Major League Soccer to pause games during 2026 World Cup**\
-`Garber confirmed the league will also take off “for a portion” of the Club World Cup in 2025.`\
-https://nytimes.com/athletic/5975519/2024/12/06/major-league-soccer-pause-games-2026-world-cup/
 
