@@ -1,3 +1,11 @@
+**Shuntaro Tanikawa, Poet and Translator of ‘Peanuts,’ Dies at 92**\
+`A perennial front-runner for the Nobel Prize in Literature, he was a revered figure in Japan, not just in literary circles but also among casual readers.`\
+https://nytimes.com/2024/12/06/books/shuntaro-tanikawa-dead.html
+
+**A Second Trump Term Is Set to Scramble Trade Alliances**\
+`Europe’s new pact with South America, its largest deal to date, could be a sign of how countries will diversify trade relationships as Donald Trump threatens tariffs.`\
+https://nytimes.com/2024/12/06/us/politics/trump-trade-alliances.html
+
 **Braves' to-do list entering Winter Meetings seems more urgent than in recent years**\
 `With Spencer Strider not expected back until May, the Braves will be in the market for a proven starting pitcher.`\
 https://nytimes.com/athletic/5975407/2024/12/06/braves-winter-meetings-outlook/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5975394/2024/12/06/boston-nation-nwsl-white-stadium
 **Cash App Wades Into the Exclusive World of Presale Concert Tickets**\
 `Legacy credit cards and banks aren’t the only banking options to come with perks for premium access to events anymore.`\
 https://nytimes.com/2024/12/06/business/kendrick-lamar-sza-tour-cash-app.html
-
-**Syria’s ‘Frozen Conflict’ Is Now Red Hot**\
-`When equilibriums are disrupted, chaos can ensue.`\
-https://nytimes.com/2024/12/06/world/middleeast/syrias-frozen-conflict-is-now-red-hot.html
-
-**As Syrian Rebel Advance Accelerates, Nervous Neighbors Close Their Borders**\
-`The rebels’ gains prompted Lebanon and Jordan to close border crossings and Israel to reinforce its forces in the Golan Heights.`\
-https://nytimes.com/2024/12/06/world/middleeast/syria-rebels-damascus-iran.html
 
