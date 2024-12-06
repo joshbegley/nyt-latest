@@ -1,3 +1,15 @@
+**Lewis Hamilton’s final F1 lap with Mercedes: A year of challenges, a decade of triumphs**\
+`Lewis Hamilton's Mercedes era closes this weekend. At the end of a tough 2024, driver and team are committed to a warm ending. `\
+https://nytimes.com/athletic/5974648/2024/12/06/lewis-hamilton-final-mercedes-race-f1-ferrari/
+
+**Fantasy football flex fliers: Elijah Moore, MVS look good for Week 14**\
+`Scott Engel gives last-minute lineup advice for anyone wondering who to grab in free agency for Week 14. `\
+https://nytimes.com/athletic/5974510/2024/12/06/nfl-fantasy-football-flex-fliers-week-14/
+
+**In Japan, Designers Fit Big Ideas Into Tiny Homes**\
+`Some newer houses around the country are barely wider than a common family car.`\
+https://nytimes.com/2024/12/06/realestate/tiny-homes-japan.html
+
 **The Consumer Bureau Is Likely Here to Stay, but Big Changes Await**\
 `Republicans are unlikely to abolish the Consumer Financial Protection Bureau, but they will drastically rework its rules and activities.`\
 https://nytimes.com/2024/12/06/us/politics/cfpb-republicans-rohit-chopra.html
