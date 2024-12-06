@@ -1,3 +1,11 @@
+**Heat Today: Bam Adebayo is adjusting to shooting more 3s, but his all-around impact remains**\
+`"He’s a big-time, multiple-effort player that has now added experience to all his skill, and I think that goes a long way.”`\
+https://nytimes.com/athletic/5972481/2024/12/06/bam-adebayo-tyler-herro-miami-heat/
+
+**A free-agent fit for each of the 30 MLB teams as the Winter Meetings near**\
+`As we wait for the floodgates to open, Bowden plays matchmaker, proposing a free-agent fit that could make sense for each of the 30 teams.`\
+https://nytimes.com/athletic/5973590/2024/12/06/mlb-free-agent-team-fits-hot-stove/
+
 **The Growing Cost of Making C.E.O.s Safe**\
 `The tragic killing of UnitedHealthCare’s Brian Thompson has spurred companies to ratchet up security for their most senior executives.`\
 https://nytimes.com/2024/12/06/business/dealbook/cost-anxiety-ceo-safety.html

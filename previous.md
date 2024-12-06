@@ -1,3 +1,11 @@
+**Heat Today: Bam Adebayo is adjusting to shooting more 3s, but his all-around impact remains**\
+`"He’s a big-time, multiple-effort player that has now added experience to all his skill, and I think that goes a long way.”`\
+https://nytimes.com/athletic/5972481/2024/12/06/bam-adebayo-tyler-herro-miami-heat/
+
+**A free-agent fit for each of the 30 MLB teams as the Winter Meetings near**\
+`As we wait for the floodgates to open, Bowden plays matchmaker, proposing a free-agent fit that could make sense for each of the 30 teams.`\
+https://nytimes.com/athletic/5973590/2024/12/06/mlb-free-agent-team-fits-hot-stove/
+
 **The Growing Cost of Making C.E.O.s Safe**\
 `The tragic killing of UnitedHealthCare’s Brian Thompson has spurred companies to ratchet up security for their most senior executives.`\
 https://nytimes.com/2024/12/06/business/dealbook/cost-anxiety-ceo-safety.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5974146/2024/12/06/pelicans-win-brandon-ingram-herb
 **Jonathan Kuminga makes claim as crunch-time option in Warriors' win over Rockets**\
 `With Steph Curry and Draymond Green out and the team struggling to score late in games, Steve Kerr turned to Kuminga. He delivered.`\
 https://nytimes.com/athletic/5973918/2024/12/06/jonathan-kuminga-warriors-rockets/
-
-**Who do you want Notre Dame to host in the Playoff? Here are the scenarios**\
-`Who Notre Dame will welcome to South Bend in the College Football Playoff depends on these conference championship results.`\
-https://nytimes.com/athletic/5974294/2024/12/06/notre-dame-playoff-opponent-scenarios/
-
-**Here’s the latest on the investigation.**\
-`By Alyce McFadden and Corey Kilgannon`\
-https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson/heres-the-latest-on-the-investigation
 
