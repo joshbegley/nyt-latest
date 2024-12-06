@@ -1,3 +1,7 @@
+**Bucks' Khris Middleton 'a little anxious' ahead of season debut in Boston**\
+`The three-time All-Star, who has missed Milwaukee's first 21 games, is "just happy to be back on the floor again, playing with my guys."`\
+https://nytimes.com/athletic/5974976/2024/12/06/khris-middleton-bucks-debut-celtics/
+
 **On Georgia's recruiting, CFP scenarios, the SEC championship and the transfer portal**\
 `What to make of Georgia's big week with recruiting, the SEC Championship Game, the College Football Playoff and the transfer portal.`\
 https://nytimes.com/athletic/5975000/2024/12/06/georgia-football-sec-championship-cfp-transfer-portal/

@@ -1,3 +1,7 @@
+**Bucks' Khris Middleton 'a little anxious' ahead of season debut in Boston**\
+`The three-time All-Star, who has missed Milwaukee's first 21 games, is "just happy to be back on the floor again, playing with my guys."`\
+https://nytimes.com/athletic/5974976/2024/12/06/khris-middleton-bucks-debut-celtics/
+
 **On Georgia's recruiting, CFP scenarios, the SEC championship and the transfer portal**\
 `What to make of Georgia's big week with recruiting, the SEC Championship Game, the College Football Playoff and the transfer portal.`\
 https://nytimes.com/athletic/5975000/2024/12/06/georgia-football-sec-championship-cfp-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/health/usda-bird-flu-milk-testing.html
 **An Art Movement’s Lasting Impression**\
 `Lessons from the past continue to influence and inspire today’s globalized art world.`\
 https://nytimes.com/2024/12/06/special-series/impressionism-art-beatriz-milhazes.html
-
-**'I can become one of the best athletes in tennis': Emma Raducanu confirms new fitness coach**\
-`The 2021 U.S. Open champion is bidding for a first injury-free season since her Grand Slam breakthrough.`\
-https://nytimes.com/athletic/5974753/2024/12/06/emma-raducanu-tennis-team-fitness-coach/
 
