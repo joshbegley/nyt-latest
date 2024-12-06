@@ -1,3 +1,11 @@
+**Texas House Speaker, Targeted by the Right, Drops Bid for Another Term**\
+`In the long-running war inside the Texas G.O.P., Dade Phelan survived a primary against a Trump-backed novice. But his increasingly conservative caucus turned against him.`\
+https://nytimes.com/2024/12/06/us/texas-house-speaker-dade-phelan.html
+
+**How Much Did Trump, Biden and Harris Raise? A Stunning $4.7 Billion.**\
+`That figure, which includes totals from the three presidential contenders’ main allied groups, emerged in the final federal filings of a staggeringly expensive campaign.`\
+https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-fundraising.html
+
 **Rays agree to 1-year deal with Danny Jansen**\
 `Jansen will reportedly receive $8.5 million in 2025, with a mutual option for the 2026 season. `\
 https://nytimes.com/athletic/5975197/2024/12/06/danny-jansen-tampa-bay-rays-deal/
@@ -29,13 +37,4 @@ https://nytimes.com/2024/12/06/realestate/rocket-mortgage-lawsuit-appraisals.htm
 **In Mexico, Heat Waves Are Even Killing Younger Adults**\
 `It’s not the just the elderly. More than three-quarters of heat-related deaths in Mexico occurred among people younger than 35, researchers reported.`\
 https://nytimes.com/2024/12/06/health/heat-deaths-young-adults.html
-
-**What's a valkyrie? How WNBA teams got their names**\
-`What a Norse specialist thinks about the Golden State Valkyries, and how other teams got their names.
-`\
-https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-teams-names/
-
-**Rangers trade Jacob Trouba to Ducks for Urho Vaakanainen, conditional draft pick**\
-`Trouba waived his no-trade clause for the deal after a standoff with the Rangers and a looming threat of being placed on waivers.`\
-https://nytimes.com/athletic/5975180/2024/12/06/rangers-ducks-jacob-trouba-trade/
 
