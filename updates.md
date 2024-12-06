@@ -1,3 +1,7 @@
+**Vinicius Jr aiming for Real Madrid return ahead of schedule**\
+`Real Madrid forward Vinicius Junior is ahead of schedule in his recovery from a hamstring injury and is targeting a return to action against Atalanta or Rayo Vallecano.`\
+https://nytimes.com/athletic/5974184/2024/12/06/vinicius-junior-injury-return/
+
 **Jimmy Kimmel Thinks Pete Hegseth Cameo Videos Could Soon Be a Thing**\
 `The late-night host wondered if the embattled pick for secretary of defense could end up appearing on the online platform in time for Christmas.`\
 https://nytimes.com/2024/12/06/arts/television/jimmy-kimmel-pete-hegseth.html
