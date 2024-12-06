@@ -1,3 +1,11 @@
+**Leader of Syria’s Resurgent Rebels Lays Out Strategy to Oust Assad**\
+`In an interview, Abu Mohammad al-Jolani, the Islamist rebel heading an offensive moving toward Damascus, said the operation was a long time coming.`\
+https://nytimes.com/2024/12/06/world/middleeast/syria-rebel-leader-interview.html
+
+**Ron O’Brien, 86, Dies; Coached Louganis and Other Diving Champs**\
+`His divers won more than 300 medals at major domestic and international competitions, including a dozen at the Olympics.`\
+https://nytimes.com/2024/12/06/sports/ron-obrien-dead.html
+
 **Texas House Speaker, Targeted by the Right, Drops Bid for Another Term**\
 `In the long-running war inside the Texas G.O.P., Dade Phelan survived a primary against a Trump-backed novice. But his increasingly conservative caucus turned against him.`\
 https://nytimes.com/2024/12/06/us/texas-house-speaker-dade-phelan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/opinion/scott-bessent-treasury-trump.html
 **Fact-Checkers Cannot Save Us**\
 `In our interconnected modern world, education is critical in the fight against disinformation.`\
 https://nytimes.com/2024/12/06/special-series/disinformation-social-media-facts.html
-
-**Rocket Mortgage Sues HUD Over Its Inclusion in Appraisal Lawsuit**\
-`The nation’s largest lender says the government tied its hands with regulations that prevented it from exerting control over appraisal values.`\
-https://nytimes.com/2024/12/06/realestate/rocket-mortgage-lawsuit-appraisals.html
-
-**In Mexico, Heat Waves Are Even Killing Younger Adults**\
-`It’s not the just the elderly. More than three-quarters of heat-related deaths in Mexico occurred among people younger than 35, researchers reported.`\
-https://nytimes.com/2024/12/06/health/heat-deaths-young-adults.html
 
