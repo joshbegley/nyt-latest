@@ -26,9 +26,8 @@ https://nytimes.com/athletic/5971614/2024/12/06/amad-wing-back-manchester-united
 `Ex-Premier League referee believes the job has never been harder - but is still happy for his sons to follow him into the industry`\
 https://nytimes.com/athletic/5971561/2024/12/06/jon-moss-interview-referee-coote-klopp/
 
-**Sabres thoughts: How Lindy Ruff is handling losing streak, Thompson's 4 Nations snub and more**\
-`After a 3-2 OT loss to the Jets, the Sabres extend their winless streak to five games and can’t afford to let it get any longer.
-`\
+**Sabres thoughts: How Lindy Ruff is handling losing streak, Tage Thompson's 4 Nations snub, more**\
+`After a 3-2 OT loss to the Jets, the Sabres extend their winless streak to five games and can't afford to let it get any longer.`\
 https://nytimes.com/athletic/5973807/2024/12/06/sabres-lindy-ruff-thompson-injuries/
 
 **Political Turmoil Adds to South Korea’s Economic Woes**\
