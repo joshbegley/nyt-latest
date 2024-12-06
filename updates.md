@@ -1,3 +1,7 @@
+**The Pulse: The Super Bowl favorite**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5972355/2024/12/06/lions-packers-the-pulse/
+
 **Arsonists Set Fire to Melbourne Synagogue**\
 `Witnesses saw two people pouring accelerant in the synagogue early Friday, the police said. Australia’s prime minister condemned the attack as antisemitism.`\
 https://nytimes.com/2024/12/06/world/australia/synagogue-fire-melbourne.html
