@@ -1,3 +1,7 @@
+**Rosé Sets Herself Free, and 8 More New Songs**\
+`Hear tracks by Sky Ferreira, Bad Bunny, Sakura Tsuruta and others.`\
+https://nytimes.com/2024/12/06/arts/music/playlist-rose-sky-ferreira-bad-bunny.html
+
 **Lewis Hamilton’s final F1 lap with Mercedes: A year of challenges, a decade of triumphs**\
 `Lewis Hamilton's Mercedes era closes this weekend. At the end of a tough 2024, driver and team are committed to a warm ending. `\
 https://nytimes.com/athletic/5974648/2024/12/06/lewis-hamilton-final-mercedes-race-f1-ferrari/
