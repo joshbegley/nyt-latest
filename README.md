@@ -1,3 +1,7 @@
+**Federal Judge Upholds Racial Preferences in Naval Academy Admissions**\
+`A group that won a Supreme Court case challenging affirmative action at Harvard and the University of North Carolina had also sued the military academies.`\
+https://nytimes.com/2024/12/06/us/racial-preferences-naval-academy-admissions.html
+
 **As India-Bangladesh Tensions Rise, So Do Fears of Tit-for-Tat Violence**\
 `A diplomatic dispute over claims of persecution of Bangladeshi Hindus threatens to upend Bangladesh’s interim government.`\
 https://nytimes.com/2024/12/06/world/asia/india-bangladesh-tensions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/business/media/la-times-owner-bias-meter.html
 **Jury in Subway Chokehold Trial Struggles to Agree on Manslaughter Charge**\
 `It was unclear whether the case would result in a mistrial or if jurors would be able to consider the second charge against Daniel Penny in the killing of Jordan Neely last year.`\
 https://nytimes.com/2024/12/06/nyregion/daniel-penny-jordan-neely-chokehold-trial.html
-
-**Syrian Rebels Celebrate Capture of Hama**\
-`Syrian rebels took the city of Hama on Thursday, before continuing to push south in a march toward Homs, a major city, and Damascus, the capital.`\
-https://nytimes.com/video/world/middleeast/100000009863023/syria-hama-rebels.html
 
