@@ -1,3 +1,7 @@
+**NBA returning to China in 2025 for 2 preseason games: Reports**\
+`The Nets are owned by Joe Tsai, who was born in Taiwan and is the chairman of Alibaba, the Chinese e-commerce company.`\
+https://nytimes.com/athletic/5973665/2024/12/05/suns-nets-nba-china-2025-preseason/
+
 **Buckley: With Bill Belichick, follow history, not money. Consider North Carolina Plan B**\
 `For Belichick, the all-time victories record would attach the family name to coaching greatness. After 50 years in the NFL, that's job one.`\
 https://nytimes.com/athletic/5973653/2024/12/05/bill-belichick-north-carolina-job/

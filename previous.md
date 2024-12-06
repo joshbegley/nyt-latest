@@ -1,3 +1,7 @@
+**NBA returning to China in 2025 for 2 preseason games: Reports**\
+`The Nets are owned by Joe Tsai, who was born in Taiwan and is the chairman of Alibaba, the Chinese e-commerce company.`\
+https://nytimes.com/athletic/5973665/2024/12/05/suns-nets-nba-china-2025-preseason/
+
 **Buckley: With Bill Belichick, follow history, not money. Consider North Carolina Plan B**\
 `For Belichick, the all-time victories record would attach the family name to coaching greatness. After 50 years in the NFL, that's job one.`\
 https://nytimes.com/athletic/5973653/2024/12/05/bill-belichick-north-carolina-job/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/us/politics/david-sacks-crypto-ai-trump.html
 **Corrections: Dec. 6, 2024**\
 `Corrections that appeared in print on Friday, Dec. 6, 2024.`\
 https://nytimes.com/2024/12/05/pageoneplus/corrections-dec-6-2024.html
-
-**Jokić records 139th triple-double, breaking tie with Magic for third-most**\
-`Nikola Jokić was temporarily tied with Magic Johnson but now stands alone behind only Oscar Robertson and teammate Russell Westbrook.`\
-https://nytimes.com/athletic/5963504/2024/12/05/nikola-jokic-triple-double-record-nba/
 
