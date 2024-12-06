@@ -1,3 +1,15 @@
+**Why Was the Tsunami Warning Issued, and Then Canceled? A Forecaster Explains.**\
+`The warning was sent in response to a 7.0-magnitude that struck off the coast of Northern California. A tsunami warning coordinator described the process.`\
+https://nytimes.com/2024/12/05/us/california-tsunami-warning.html
+
+**House Blocks Release of Ethics Report on Gaetz as Republicans Close Ranks**\
+`In largely party-line votes, the House turned back two measures that would have forced the Ethics Committee to make public the results of its investigation into allegations of sexual misconduct and drug use.`\
+https://nytimes.com/2024/12/05/us/politics/matt-gaetz-ethics-report-blocked-house.html
+
+**Matt Chapman open to temporarily moving to shortstop if Giants sign Ha-Seong Kim: Sources**\
+`Kim, a free-agent shortstop, is expected to miss at least the early part of the 2025 season and possibly the entire first half.`\
+https://nytimes.com/athletic/5973372/2024/12/05/matt-chapman-giants-shortstop-ha-seong-kim/
+
 **Avett Brothers Musical ‘Swept Away’ to Close on Broadway After Short Run**\
 `The new musical, about a shipwreck and its aftermath, opened Nov. 19 at the Longacre Theater.`\
 https://nytimes.com/2024/12/05/theater/swept-away-broadway-closing.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/05/movies/mary-review-an-epic-biopic-for-the-mother-
 **Dodgers' Freddie Freeman undergoes ankle surgery**\
 `Freeman injured his ankle in September on the night the Dodgers clinched the National League West.`\
 https://nytimes.com/athletic/5973242/2024/12/05/dodgers-freddie-freeman-ankle-surgery/
-
-**‘Like a violent elevator ride’: Residents closest to the epicenter describe the quake.**\
-`By Shawn Hubler and Corina Knoll`\
-https://nytimes.com/live/2024/12/05/us/earthquake-california/like-a-violent-elevator-ride-residents-closest-to-the-epicenter-describe-the-quake
-
-**4 Nations brings Wild locker room a friendly Sweden-U.S. rivalry: 'I would love to score on him'**\
-`Brock Faber and Matt Boldy were named to the U.S. roster and Filip Gustavsson, Joel Eriksson Ek and Jonas Brodin were named to Sweden's.`\
-https://nytimes.com/athletic/5973007/2024/12/05/wild-locker-room-rivalry-4-nations/
-
-**‘You Are Out of Line’: Acting Secret Service Director Clashes With Congressman**\
-`A congressional hearing on Thursday erupted into a shouting match. Ronald L. Rowe Jr., the acting Secret Service director, accused Representative Pat Fallon, Republican of Texas, of politicizing a 9/11 memorial event.`\
-https://nytimes.com/video/us/politics/100000009862237/secret-service-hearing-shouting.html
 
