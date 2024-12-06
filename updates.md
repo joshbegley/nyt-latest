@@ -1,3 +1,7 @@
+**TikTok Loses Bid to Overturn Law Forcing a Ban or Sale**\
+`A federal court on Friday upheld a law that will ban the video app in the United States by Jan. 19 if its owner, ByteDance, does not sell it to a non-Chinese company.`\
+https://nytimes.com/2024/12/06/business/media/tiktok-ban-court-decision.html
+
 **Watch the Stirring Climax of ‘The Piano Lesson’**\
 `The director Malcolm Washington narrates a sequence from the film featuring Danielle Deadwyler.`\
 https://nytimes.com/2024/12/06/movies/the-piano-lesson-clip.html
