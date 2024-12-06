@@ -1,3 +1,7 @@
+**It’s Not Too Late to Rein In Holiday Spending**\
+`Research suggests that you’ll spend less than you otherwise would by setting a strict budget — even if you go over the budget.`\
+https://nytimes.com/2024/12/06/your-money/holiday-spending-limits.html
+
 **The Guardian Sells U.K.’s Oldest Sunday Paper to a Media Start-Up**\
 `The Guardian Media Group said it had struck a deal to sell The Observer to Tortoise Media, shortly after a 48-hour strike by journalists had ended.`\
 https://nytimes.com/2024/12/06/business/guardian-observer-sale.html
