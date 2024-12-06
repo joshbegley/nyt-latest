@@ -1,3 +1,11 @@
+**How a Minnesota historian shaped a barnstorming, negro leagues legend's Hall of Fame case**\
+`John Donaldson will be considered by a Hall of Fame committee this weekend. That he's on the precipice at all is a minor miracle. `\
+https://nytimes.com/athletic/5973638/2024/12/06/john-donaldson-baseball-hall-of-fame-case/
+
+**Is the Urban Shift Toward Trump Really About Democratic Cities in Disarray?**\
+`Big cities have faced serious problems lately. But there’s little evidence those problems are what drove voters to the right in November.`\
+https://nytimes.com/2024/12/06/upshot/urban-vote-shift-trump.html
+
 **Howe on Newcastle PSR January impact: 'Nothing is absolutely fixed'**\
 `Eddie Howe insists that everyone inside Newcastle United wants to improve the squad in January but &#8220;nothing is absolutely fixed&#8221; and he cannot confirm yet whether they must sell in order to buy.`\
 https://nytimes.com/athletic/5974203/2024/12/06/newcastle-transfer-january-howe-psr/
