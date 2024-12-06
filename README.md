@@ -1,3 +1,7 @@
+**Rosé Sets Herself Free, and 8 More New Songs**\
+`Hear tracks by Sky Ferreira, Bad Bunny, Sakura Tsuruta and others.`\
+https://nytimes.com/2024/12/06/arts/music/playlist-rose-sky-ferreira-bad-bunny.html
+
 **Lewis Hamilton’s final F1 lap with Mercedes: A year of challenges, a decade of triumphs**\
 `Lewis Hamilton's Mercedes era closes this weekend. At the end of a tough 2024, driver and team are committed to a warm ending. `\
 https://nytimes.com/athletic/5974648/2024/12/06/lewis-hamilton-final-mercedes-race-f1-ferrari/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/world/middleeast/israeli-attack-gaza-kamal-adwan-
 **Randy Moss taking leave of absence from 'NFL Countdown' due to health issue**\
 `Moss’ exact diagnosis is unknown. He addressed his issues on Countdown while sporting sunglasses`\
 https://nytimes.com/athletic/5974864/2024/12/06/randy-moss-espn-health-issue-leave-of-absence/
-
-**A One-of-a-Kind Card Fuels a Treasure Hunt for the Ages**\
-`The Pittsburgh Pirates offered 30 years of season tickets in exchange for a Paul Skenes rookie card, and collectors say it could sell for $1 million. First, someone has to find it.`\
-https://nytimes.com/2024/12/06/style/paul-skenes-topps-card.html
 
