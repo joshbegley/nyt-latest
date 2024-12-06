@@ -1,3 +1,7 @@
+**Scoop City: Reader answers on how to fix dangerous running QB hits**\
+`Everyone's got an opinion on the Trevor Lawrence hit, and today, we're sharing some of yours. Plus: a potential Belichick move.`\
+https://nytimes.com/athletic/5974615/2024/12/06/how-to-fix-qb-running-trevor-lawrence-scoop-city/
+
 **Slegers to stay in interim charge of Arsenal until winter break**\
 `Renee Slegers will continue her role as interim head coach of Arsenal for their next block of games until the Women&#8217;s Super League&#8217;s winter break.`\
 https://nytimes.com/athletic/5974620/2024/12/06/renee-slegers-arsenal-women-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974531/2024/12/06/chelsea-club-world-cup-preseason
 **Next week’s waiver wire: Will Levis, Travis Homer and more players to add before the Week 15 rush**\
 `John Laghezza shares his top expected future waiver values, including Will Levis, who faces a generous Jaguars pass defense in Week 14.`\
 https://nytimes.com/athletic/5972265/2024/12/06/next-weeks-waiver-wire-will-levis-travis-homer-and-more-players-to-add-before-the-week-15-rush/
-
-**Canada Moves to Protect Arctic From Threats by Russia and China**\
-`Ottawa says its focus on the Arctic comes after Russia’s invasion of Ukraine “has shaken the foundations” of international cooperation in the northern region.`\
-https://nytimes.com/2024/12/06/world/canada/canada-arctic-russia-china.html
 

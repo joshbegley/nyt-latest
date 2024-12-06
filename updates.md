@@ -1,3 +1,7 @@
+**Scoop City: Reader answers on how to fix dangerous running QB hits**\
+`Everyone's got an opinion on the Trevor Lawrence hit, and today, we're sharing some of yours. Plus: a potential Belichick move.`\
+https://nytimes.com/athletic/5974615/2024/12/06/how-to-fix-qb-running-trevor-lawrence-scoop-city/
+
 **Slegers to stay in interim charge of Arsenal until winter break**\
 `Renee Slegers will continue her role as interim head coach of Arsenal for their next block of games until the Women&#8217;s Super League&#8217;s winter break.`\
 https://nytimes.com/athletic/5974620/2024/12/06/renee-slegers-arsenal-women-future/
