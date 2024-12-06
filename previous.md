@@ -1,3 +1,11 @@
+**Word of the Day: schwa**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/06/learning/word-of-the-day-schwa.html
+
+**Brighton are a good team - they need to stop conceding bad goals**\
+`Brighton lost against Fulham on Thursday night, conceding some bad goals in the process`\
+https://nytimes.com/athletic/5965464/2024/12/06/brighton-goals-against-analysis/
+
 **Trump and Infantino: Club World Cup draw becomes a tale of two presidents**\
 `If its draw ceremony is any indicator, the Club World Cup might get a little weird`\
 https://nytimes.com/athletic/5973331/2024/12/06/trump-infantino-club-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/world/asia/new-zealand-climbers-presumed-dead.htm
 **South Korean Who Grabbed Soldier’s Rifle: ‘I Couldn’t Back Down’**\
 `An Gwi-ryeong, a spokeswoman for a political party, went viral after confronting troops during South Korea’s night of martial law. “My first thought was that I just needed to stop the soldiers,” she said.`\
 https://nytimes.com/video/world/asia/100000009862693/south-korea-politician-soldiers-rifle-martial-law.html
-
-**Utah State to hire Bronco Mendenhall after 1 year with New Mexico: Sources**\
-`Mendenhall, the former BYU and Virginia coach, went 5-7 in his lone season leading the Lobos.`\
-https://nytimes.com/athletic/5973899/2024/12/06/utah-state-bronco-mendenhall-hired-coach/
-
-**FPL: The best Liverpool players to own over the festive period**\
-`Beyond Mohamed Salah, which of the Premier League leaders' defenders and other attackers are worth owning right now?`\
-https://nytimes.com/athletic/5969214/2024/12/06/fantasy-premier-league-liverpool/
 
