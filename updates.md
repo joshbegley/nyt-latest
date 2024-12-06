@@ -1,3 +1,7 @@
+**Ronaldo's 1998 World Cup final shirt, Maradona lock of hair on sale at auction**\
+`The shirt won by Brazilian striker Ronaldo in the 1998 World Cup final and a lock of Diego Maradona&#8217;s hair are among over 200 items to be auctioned in Paris on December 15.`\
+https://nytimes.com/athletic/5975269/2024/12/06/ronaldo-world-cup-final-brazil/
+
 **Public cost to renovate home for Boston's new NWSL team balloons**\
 `The cost to renovate White Stadium in Boston, where the NWSL’s 15th franchise is expected to play in 2026, has ballooned to $91 million in public spending, nearly doubling from earlier estimates.`\
 https://nytimes.com/athletic/5975394/2024/12/06/boston-nation-nwsl-white-stadium-renovation/
