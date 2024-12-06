@@ -1,40 +1,40 @@
-**Tyler Skaggs wrongful death civil suit against Angels set for court after judge rejects postponement**\
-`Both Angels star Mike Trout and owner Arte Moreno could be called as witnesses in the case. `\
-https://nytimes.com/athletic/5973594/2024/12/06/tyler-skaggs-wrongful-death-civil-suit/
+**Vikings-Falcons preview, predictions: Can Minnesota spoil Kirk Cousins' return?**\
+`Can the talented Vikings defense keep Cousins, Bijan Robinson and Drake London in check for 60 minutes on Sunday? `\
+https://nytimes.com/athletic/5973048/2024/12/06/vikings-falcons-preview-predictions-kirk-cousins/
 
-**Bengals' final 5 games can determine the offseason's degree of difficulty**\
-`A handful of young players have an opportunity to prove they can be part of Cincinnati's foundation.`\
-https://nytimes.com/athletic/5973324/2024/12/06/bengals-final-5-games-offseason/
+**Koreen: Raptors rebuild is about more than just tanking and draft position**\
+`High draft picks are important for rebuilding teams, but so are chances at evaluation and building cohesion.`\
+https://nytimes.com/athletic/5972847/2024/12/06/toronto-raptors-tank-nba/
 
-**How a Minnesota historian shaped a barnstorming, negro leagues legend's Hall of Fame case**\
-`John Donaldson will be considered by a Hall of Fame committee this weekend. That he's on the precipice at all is a minor miracle. `\
-https://nytimes.com/athletic/5973638/2024/12/06/john-donaldson-baseball-hall-of-fame-case/
+**NBA All-Disappointment Team: LeBron James, most of the 76ers and more**\
+`Why have the Lakers struggled so much? Well, it seems like the soon-to-be 40-year-old isn't as superhuman as he used to be.`\
+https://nytimes.com/athletic/5973502/2024/12/06/lebron-james-philadelphia-sixers-nba-biggest-disappointments/
 
-**Is the Urban Shift Toward Trump Really About Democratic Cities in Disarray?**\
-`Big cities have faced serious problems lately. But there’s little evidence those problems are what drove voters to the right in November.`\
-https://nytimes.com/2024/12/06/upshot/urban-vote-shift-trump.html
+**Baggy nets and blue undershirts: 6 more things I miss from the NHL's ancient days**\
+`Let's remember some stuff from the old days of the NHL and lament having lost them.`\
+https://nytimes.com/athletic/5972331/2024/12/06/things-i-miss-from-the-nhl-ancient-days/
 
-**Howe on Newcastle PSR January impact: 'Nothing is absolutely fixed'**\
-`Eddie Howe insists that everyone inside Newcastle United wants to improve the squad in January but &#8220;nothing is absolutely fixed&#8221; and he cannot confirm yet whether they must sell in order to buy.`\
-https://nytimes.com/athletic/5974203/2024/12/06/newcastle-transfer-january-howe-psr/
+**Jay Woodcroft? Todd McLellan? Bruce Boudreau? 10 possible candidates to be the Blackhawks' next coach**\
+`Interim coach Anders Sorensen likely will have a chance to earn the full-time job, but these coaches might also be considered.`\
+https://nytimes.com/athletic/5973630/2024/12/06/blackhawks-next-coach-woodcroft-mclellan-boudreau/
 
-**AFC North Whiparound: Russell Wilson's rebound, bungling Bengals top stunning storylines**\
-`Our writers give their thoughts on what's most important for each team in the final five weeks of the season.`\
-https://nytimes.com/athletic/5972511/2024/12/06/afc-north-whiparound-week-14-ravens-bengals-browns-steelers/
+**NBA trends we're watching: LeBron's struggles, Hawks' bet, The Moussa Diabaté Show**\
+`We're tracking a struggling four-time MVP, a forgotten draft pick gaining importance and a little-known rebounding menace.`\
+https://nytimes.com/athletic/5973596/2024/12/06/nba-lakers-struggles-hawks-moussa-diabate/
 
-**NBA Panic Meter: Lakers, Pacers, Wolves and others that should be alarmed**\
-`We've passed the first-quarter mark of the season, and for more than a few teams, it might be time to worry.`\
-https://nytimes.com/athletic/5973272/2024/12/06/nba-lakers-sixers-nuggets-timberwolves-panic/
+**Packers drop 'clash of the titans' to Lions on a night the defense faltered**\
+`Green Bay fell to 9-4 on Thursday night after a 34-31 loss to the Lions in Detroit.`\
+https://nytimes.com/athletic/5974079/2024/12/06/packers-lions-nfc-north-tnf/
 
-**Falcons say surprise defensive effort 'repeatable,' but Vikings offer tough test: 5 factors**\
-`Kyle Pitts has disappeared again, Michael Penix Jr. is ready, Bijan Robinson doesn't feel overworked, plus the Falcons' playoff chances.`\
-https://nytimes.com/athletic/5972864/2024/12/06/falcons-defense-vikings-kyle-pitts/
+**Who will be the next Chicago Bears head coach? The money's on ...**\
+`Who would you bet on to be coaching the Bears in 2025? Ben Fawkes breaks down the odds and Jon Greenberg discusses how he would wager on it.`\
+https://nytimes.com/athletic/5972203/2024/12/06/bears-head-coach-betting-odds-predictions/
 
-**The Supreme Court Just Gave Us a Bitter Taste of What’s Coming**\
-`In the case involving medical care for transgender adolescents, ignoring doctors is part of the point. `\
-https://nytimes.com/2024/12/06/opinion/supreme-court-trans-teens.html
+**Steelers CB Joey Porter Jr. looks to limit flags without sacrificing strengths**\
+`Second-year cornerback has confidence of Coach Mike Tomlin as he continues to refine his skills for AFC North-leading Pittsburgh.`\
+https://nytimes.com/athletic/5972492/2024/12/06/steelers-joey-porter-jr-reducing-flags/
 
-**He Promised Huge Tax Refunds. Now Trump Wants Him to Lead the I.R.S.**\
-`Since leaving Congress in 2023, Billy Long has peddled a pandemic-era tax credit that the I.R.S. has warned is a magnet for fraud.`\
-https://nytimes.com/2024/12/06/us/politics/billy-long-trump-irs-tax-credit.html
+**Michigan landing Bryce Underwood took a billionaire, an aggressive plan — and a new approach**\
+`Even a year ago, the idea of Michigan pulling out the financial stops to land the top recruit would have seemed preposterous.`\
+https://nytimes.com/athletic/5972995/2024/12/06/michigan-football-bryce-underood-recruiting/
 
