@@ -1,7 +1,3 @@
-**Who do you want Notre Dame to host in the Playoff? Here are the scenarios**\
-`Who Notre Dame will welcome to South Bend in the College Football Playoff depends on these conference championship results.`\
-https://nytimes.com/athletic/5974294/2024/12/06/notre-dame-playoff-opponent-scenarios/
-
 **Here’s the latest on the investigation.**\
 `By Alyce McFadden and Corey Kilgannon`\
 https://nytimes.com/live/2024/12/06/nyregion/unitedhealthcare-ceo-brian-thompson/heres-the-latest-on-the-investigation
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5969091/2024/12/06/raiders-mock-draft-cam-ward/
 **Is Intel Cooked? + What’s Your P(Dyson Sphere)? + Hard Fork Gift Guide**\
 `The sudden departure of Intel’s C.E.O. reignites concerns about U.S. dependence on foreign manufacturing.`\
 https://nytimes.com/2024/12/06/podcasts/is-intel-cooked-whats-your-p-dyson-sphere-hard-fork-gift-guide.html
+
+**Where the Cardinals stand ahead of Winter Meetings: 'A different profile'**\
+`John Mozeliak says the Cardinals' reset is not a full-fledged rebuild: "We have every intention of fielding a good baseball team."`\
+https://nytimes.com/athletic/5972559/2024/12/06/cardlnals-mlb-winter-meetings-mozeliak/
 
