@@ -1,3 +1,15 @@
+**How Childhood Tragedy Shaped the Doctor Trump Picked for Surgeon General**\
+`At the age of 13, Dr. Janette Nesheiwat said she accidentally knocked over a box in a darkened room. A handgun went off, leaving her father dead.`\
+https://nytimes.com/2024/12/06/nyregion/janette-nesheiwat-surgeon-general-shooting.html
+
+**Beyond the Blockbusters, 7 Key Songs From 1984**\
+`The Pointer Sisters, Minutemen and more sounds from a landmark year in pop music.`\
+https://nytimes.com/2024/12/06/arts/music/amplifier-newsletter-1984-songs.html
+
+**Air Force Not Ready to Stop Buying Human-Piloted Jets**\
+`Elon Musk has mocked the Air Force for continuing to purchase expensive traditional fighter jets instead of drones. But military officials say human pilots are still needed.`\
+https://nytimes.com/2024/12/06/us/politics/air-force-fighter-jets-ai.html
+
 **Bucks' Khris Middleton 'a little anxious' ahead of season debut in Boston**\
 `The three-time All-Star, who has missed Milwaukee's first 21 games, is "just happy to be back on the floor again, playing with my guys."`\
 https://nytimes.com/athletic/5974976/2024/12/06/khris-middleton-bucks-debut-celtics/
