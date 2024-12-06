@@ -1,3 +1,7 @@
+**For Those in Need of a Job, Landing One Might Still Be a Challenge**\
+`Layoffs remain relatively low, but people who lose their jobs could be struggling to find new ones.`\
+https://nytimes.com/2024/12/06/business/economy/layoffs-jobs-unemployment.html
+
 **What Is Happening in Syria**\
 `We explain the latest updates in the country’s civil war.`\
 https://nytimes.com/2024/12/06/briefing/what-is-happening-in-syria.html
