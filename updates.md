@@ -1,3 +1,16 @@
+**Jets placing Mosley on IR, Hall and Gardner doubtful vs. Dolphins**\
+`Mosley is the Jets' defensive captain, but it wouldn’t be a surprise if he has played his final snaps with the team.`\
+https://nytimes.com/athletic/5975129/2024/12/06/jets-cj-mosley-breece-hall-sauce-gardner-injury-updates/
+
+**'Holy Grail' Wayne Gretzky rookie card case sells for record $2.52 million**\
+`An unopened case of vintage hockey cards has been sold for a second time this year, but there may be more yet to come`\
+https://nytimes.com/athletic/5975028/2024/12/06/wayne-gretzky-rookie-card-auction-sale/
+
+**What's a valkyrie? How WNBA teams got their names**\
+`What a Norse specialist thinks about the Golden State Valkyries, and how other teams got their names.
+`\
+https://nytimes.com/athletic/5972266/2024/12/06/golden-state-valkyries-wnba-teams-names/
+
 **What's a valkyrie? How WNBA teams got their names**\
 `What a Norse specialist thinks about the Golden State Valkyries, and how other teams got their names.
 `\
