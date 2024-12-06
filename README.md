@@ -1,3 +1,7 @@
+**Turning Point**\
+`We wish you a merry Robyn Weintraub Day.`\
+https://nytimes.com/2024/12/05/crosswords/turning-point.html
+
 **Head of South Korean President’s Party Calls for His Impeachment**\
 `The statement by Han Dong-hoon makes it more likely that President Yoon Suk Yeol will be impeached in a parliamentary vote on Saturday.`\
 https://nytimes.com/2024/12/05/world/asia/south-korea-yoon-impeachment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/05/us/california-oregon-earthquake-explainer.html
 **Connor Bedard's development must be Blackhawks interim coach Anders Sorensen's top priority**\
 `There are obvious changes Sorensen can make, but what could ultimately determine how long he is in charge is how Bedard fares under him.`\
 https://nytimes.com/athletic/5973282/2024/12/05/blackhawks-coach-anders-sorensen-connor-bedard/
-
-**Logan Webb attends sentencing for drug dealer convicted of murdering his cousin**\
-`We hope our family's story can help save lives," said Logan Webb, who is using his platform to teach about the dangers of fentanyl.`\
-https://nytimes.com/athletic/5973413/2024/12/05/sf-giants-logan-webb-drug-dealer-sentencing/
 
