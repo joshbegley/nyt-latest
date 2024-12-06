@@ -1,3 +1,11 @@
+**Tyler Skaggs wrongful death civil suit against Angels set for court after judge rejects postponement**\
+`Both Angels star Mike Trout and owner Arte Moreno could be called as witnesses in the case. `\
+https://nytimes.com/athletic/5973594/2024/12/06/tyler-skaggs-wrongful-death-civil-suit/
+
+**Bengals' final 5 games can determine the offseason's degree of difficulty**\
+`A handful of young players have an opportunity to prove they can be part of Cincinnati's foundation.`\
+https://nytimes.com/athletic/5973324/2024/12/06/bengals-final-5-games-offseason/
+
 **How a Minnesota historian shaped a barnstorming, negro leagues legend's Hall of Fame case**\
 `John Donaldson will be considered by a Hall of Fame committee this weekend. That he's on the precipice at all is a minor miracle. `\
 https://nytimes.com/athletic/5973638/2024/12/06/john-donaldson-baseball-hall-of-fame-case/
