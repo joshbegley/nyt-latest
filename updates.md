@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5973807/2024/12/06/sabres-lindy-ruff-thompson-injur
 `\
 https://nytimes.com/athletic/5973807/2024/12/06/sabres-lindy-ruff-thompson-injuries/
 
+**Sabres thoughts: How Lindy Ruff is handling losing streak, Thompson's 4 Nations snub and more**\
+`After a 3-2 OT loss to the Jets, the Sabres extend their winless streak to five games and can’t afford to let it get any longer.
+`\
+https://nytimes.com/athletic/5973807/2024/12/06/sabres-lindy-ruff-thompson-injuries/
+
 **Lions top Packers 34-31 after gutsy fourth down conversion: Takeaways**\
 `The Lions picked up their 11th-straight win after quarterback Jared Goff led the Detroit on an 11-play, 53-yard game-winning drive.`\
 https://nytimes.com/athletic/5973539/2024/12/06/packers-lions-tnf-score-result-takeaways/
