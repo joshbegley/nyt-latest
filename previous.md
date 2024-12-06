@@ -1,3 +1,11 @@
+**Why Wouldn’t ChatGPT Say This Dead Professor’s Name?**\
+`A bizarre saga in which users noticed the chatbot refused to say “David Mayer” raised questions about privacy and A.I., with few clear answers.`\
+https://nytimes.com/2024/12/06/us/david-mayer-chatgpt-openai.html
+
+**Is it better to be No. 5 than No. 1? College Football Playoff scenarios to watch**\
+`There's a lot on the line with College Football Playoff seeding in conference title games. Be prepared for selection committee controversy.`\
+https://nytimes.com/athletic/5973462/2024/12/06/college-football-playoff-seeding-scenarios-odds/
+
 **Alisson Liverpool return 'very soon', Jota and Chiesa 'close'**\
 `Caoimhin Kelleher will continue in goal for Liverpool with Alisson close to returning but not available for Saturday&#8217;s Merseyside derby.`\
 https://nytimes.com/athletic/5974479/2024/12/06/alisson-jota-chiesa-liverpool-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/business/guardian-observer-sale.html
 **German FA officially endorse Saudi Arabian 2034 World Cup bid**\
 `The German Football Association (DFB) has announced that it will be voting in favour of the 2030 World Cup, due to be held between Spain, Portugal and Morocco, and the awarding of the 2034 tournament in Saudi Arabia.`\
 https://nytimes.com/athletic/5974438/2024/12/06/germany-saudi-arabia-world-cup-2034/
-
-**As Trump Threatens Tariffs, Europe and South America Strengthen Ties**\
-`The European Union and five South American countries have reached an agreement to establish one of the largest trade zones in the world.`\
-https://nytimes.com/2024/12/06/world/europe/eu-trade-deal-mercosur-latin-america.html
-
-**Firefighters Battle Large Lumberyard Fire in Baltimore**\
-`No one was injured or evacuated in the fire, but it prompted the cancellation of Friday classes at two nearby schools.`\
-https://nytimes.com/video/us/100000009862940/lumberyard-fire-baltimore.html
 

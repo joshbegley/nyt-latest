@@ -1,3 +1,11 @@
+**Why Wouldn’t ChatGPT Say This Dead Professor’s Name?**\
+`A bizarre saga in which users noticed the chatbot refused to say “David Mayer” raised questions about privacy and A.I., with few clear answers.`\
+https://nytimes.com/2024/12/06/us/david-mayer-chatgpt-openai.html
+
+**Is it better to be No. 5 than No. 1? College Football Playoff scenarios to watch**\
+`There's a lot on the line with College Football Playoff seeding in conference title games. Be prepared for selection committee controversy.`\
+https://nytimes.com/athletic/5973462/2024/12/06/college-football-playoff-seeding-scenarios-odds/
+
 **Alisson Liverpool return 'very soon', Jota and Chiesa 'close'**\
 `Caoimhin Kelleher will continue in goal for Liverpool with Alisson close to returning but not available for Saturday&#8217;s Merseyside derby.`\
 https://nytimes.com/athletic/5974479/2024/12/06/alisson-jota-chiesa-liverpool-injury-update/
