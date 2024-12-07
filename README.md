@@ -1,3 +1,7 @@
+**How Protesters Filled the Streets in South Korea’s Center of Power**\
+`Aerial photos show how tens of thousands of South Koreans gathered in the streets in Seoul to protest.`\
+https://nytimes.com/interactive/2024/12/07/world/asia/south-korea-protests-seoul-yoon.html
+
 **Salty, Sweet, Spicy, Smoky Mie Goreng**\
 `These versatile Indonesian stir-fried noodles strike a perfect balance of flavors that you’ll want to eat again and again (speaking from experience).`\
 https://nytimes.com/2024/12/07/dining/salty-sweet-spicy-smoky-mie-goreng.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/07/world/syria-war-damascus
 **FIU hires Willie Simmons as next head football coach**\
 `Tim Harris Jr., most recently the offensive coordinator at UCF, was a finalist for the job.`\
 https://nytimes.com/athletic/5976300/2024/12/07/fiu-football-coach-willie-simmons/
-
-**Here’s what is happening in Syria.**\
-`aHoms sits at a key crossroads in the country, controlling access to the Mediterranean to the west and Damascus to the south.`\
-https://nytimes.com/2024/12/07/world/middleeast/syria-damascus-withdraw.html
 
