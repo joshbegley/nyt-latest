@@ -1,3 +1,11 @@
+**The Silicon Valley Billionaires Steering Trump’s Transition**\
+`The involvement of wealthy investors has made this presidential transition one of the most potentially conflict-ridden in modern history.`\
+https://nytimes.com/2024/12/06/us/politics/trump-elon-musk-silicon-valley.html
+
+**Iran Begins to Evacuate Military Officials and Personnel From Syria**\
+`The withdrawals by one of President Bashar al-Assad’s key backers comes amid a resurgent rebel offensive.`\
+https://nytimes.com/2024/12/06/world/middleeast/iran-syria-evacuation.html
+
 **'I chose my family': Jacob Trouba reacts to trade after waivers 'threat' from Rangers**\
 `"It’s a rite of passage to get fired from MSG," Trouba said after being dealt to the Anaheim Ducks.`\
 https://nytimes.com/athletic/5975660/2024/12/06/trouba-rangers-threat-trade-ducks/
