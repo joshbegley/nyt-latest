@@ -1,3 +1,7 @@
+**A Times reporter got a look inside Notre-Dame before its grand unveiling.**\
+`By Aurelien Breeden`\
+https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/a-times-reporter-got-a-look-inside-notre-dame-before-its-grand-unveiling
+
 **The Briefing: Manchester United 2 Nottingham Forest 3 - Set-piece pain, haphazard defending and a humbling loss**\
 `Laurie Whitwell and Charlotte Harpur break down the main talking points from Manchester United's home loss to Nottingham Forest`\
 https://nytimes.com/athletic/5965660/2024/12/07/manchester-united-2-nottingham-forest-3-hojlund-fernandes-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976601/2024/12/07/russell-martin-southampton-mista
 **Howe apologises to Newcastle fans after Brentford defeat**\
 `Eddie Howe apologised to Newcastle United&#8217;s travelling support for his side&#8217;s performance during their 4-2 defeat at Brentford on Saturday.`\
 https://nytimes.com/athletic/5976581/2024/12/07/eddie-howe-newcastle-fans-apology/
-
-**A.I. Will Transform the Global Economy — if Humans Let It**\
-`We asked a group of business leaders to consider how businesses can benefit from artificial intelligence.`\
-https://nytimes.com/2024/12/07/special-series/ai-transform-global-economy.html
 
