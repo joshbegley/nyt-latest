@@ -1,3 +1,7 @@
+**LA Galaxy and New York Red Bulls: Two originals go head-to-head in MLS Cup**\
+`Major League Soccer is so often fixated by the shiny new thing but with no Inter Miami and no Lionel Messi, this is a compelling match-up`\
+https://nytimes.com/athletic/5972679/2024/12/07/mls-cup-la-galaxy-new-york-red-bulls/
+
 **Remembering Kath Phipps: 'She treated everyone at Man United like royalty. She was royalty herself'**\
 `United's receptionist for 56 years, her death was announced this week, aged 85. Here, players and managers pay tribute to a club legend`\
 https://nytimes.com/athletic/5971680/2024/12/07/kath-phipps-man-united-receptionist-tribute/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/12/07/style/parols-filipino-decoration-stars.html
 **Quote of the Day: New Starring Role for a Lamb Of ’90s TV: Dog’s Best Friend**\
 `Quotation of the Day for Saturday, December 7, 2024`\
 https://nytimes.com/2024/12/06/pageoneplus/quote-of-the-day-new-starring-role-for-a-lamb-of-90s-tv-dogs-best-friend.html
-
-**Staple: Rangers have to hope the cost is worth the trouble as they take care of business**\
-`In trading Jacob Trouba, the Rangers got the result they wanted, but they also burned some people on the way there.`\
-https://nytimes.com/athletic/5975817/2024/12/06/rangers-jacob-trouba-trade-igor-shesterkin/
 
