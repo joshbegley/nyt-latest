@@ -1,3 +1,23 @@
+**Louisiana Constitutional Amendment Election Results**\
+`Get live results and maps from the 2024 Louisiana elections on constitutional amendments.`\
+https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana.html
+
+**Louisiana Amendment 4 Election Results: Property Tax Sales Administration**\
+`Get live results and maps from the 2024 Louisiana general election.`\
+https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendment-4-property-tax-sales-administration.html
+
+**Louisiana Amendment 2 Election Results: Waiting Period for Concurrence on Appropriations**\
+`Get live results and maps from the 2024 Louisiana general election.`\
+https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendment-2-waiting-period-for-concurrence-on-appropriations.html
+
+**Louisiana Amendment 3 Election Results: Extend Sessions for Appropriations**\
+`Get live results and maps from the 2024 Louisiana general election.`\
+https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendment-3-extend-sessions-for-appropriations.html
+
+**Louisiana Amendment 1 Election Results: Expand Judiciary Commission**\
+`Get live results and maps from the 2024 Louisiana general election.`\
+https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendment-1-expand-judiciary-commission.html
+
 **How A.I. Can Revive a Love of Learning**\
 `Modern technology offers new possibilities for transforming teaching.`\
 https://nytimes.com/2024/12/07/special-series/artificial-intelligence-schools-education.html

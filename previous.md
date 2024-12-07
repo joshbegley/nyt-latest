@@ -1,3 +1,23 @@
+**Louisiana Constitutional Amendment Election Results**\
+`Get live results and maps from the 2024 Louisiana elections on constitutional amendments.`\
+https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana.html
+
+**Louisiana Amendment 4 Election Results: Property Tax Sales Administration**\
+`Get live results and maps from the 2024 Louisiana general election.`\
+https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendment-4-property-tax-sales-administration.html
+
+**Louisiana Amendment 2 Election Results: Waiting Period for Concurrence on Appropriations**\
+`Get live results and maps from the 2024 Louisiana general election.`\
+https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendment-2-waiting-period-for-concurrence-on-appropriations.html
+
+**Louisiana Amendment 3 Election Results: Extend Sessions for Appropriations**\
+`Get live results and maps from the 2024 Louisiana general election.`\
+https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendment-3-extend-sessions-for-appropriations.html
+
+**Louisiana Amendment 1 Election Results: Expand Judiciary Commission**\
+`Get live results and maps from the 2024 Louisiana general election.`\
+https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendment-1-expand-judiciary-commission.html
+
 **How A.I. Can Revive a Love of Learning**\
 `Modern technology offers new possibilities for transforming teaching.`\
 https://nytimes.com/2024/12/07/special-series/artificial-intelligence-schools-education.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5976559/2024/12/07/13-insights-fantasy-football-wee
 **Thompson: Warriors arrive at the only conclusion left: The Jonathan Kuminga era is here**\
 `With their offense sputtering, the Warriors need to know what they have in their 2021 first-round pick. So begins the Jonathan Kuminga era.`\
 https://nytimes.com/athletic/5976655/2024/12/07/golden-state-warriors-jonathan-kuminga-era/
-
-**The leader of Syria’s rebels told The Times that their aim is to oust al-Assad.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/12/07/world/syria-war-damascus/the-leader-of-syrias-rebels-told-the-times-that-their-aim-is-to-oust-al-assad
-
-**Impeachment Bid Against South Korea’s President Fails**\
-`The country was thrown into deeper uncertainty after the governing party refused to oust President Yoon Suk Yeol. Protesters filled the streets of Seoul and vowed to keep the pressure on.`\
-https://nytimes.com/video/world/asia/100000009864900/south-korea-impeachment-vote-fails.html
-
-**F1 Abu Dhabi preview: McLaren on the cusp of glory, Hamilton's Mercedes farewell**\
-`The season finale will wrap up the constructors' championship and (possibly) a few F1 careers.`\
-https://nytimes.com/athletic/5976429/2024/12/07/f1-abu-dhabi-gp-preview-mclaren-championship-ferrari-lewis-hamilton/
-
-**Padres head to Winter Meetings facing questions of financial constraints**\
-`The Padres will have to get creative as they look to solidify multiple positions during another winter with restrictive spending limits.`\
-https://nytimes.com/athletic/5975789/2024/12/07/padres-winter-meetings-payroll-constraints/
-
-**Martin says Southampton mistakes are 'madness' after loss at Villa**\
-`Russell Martin labelled Southampton&#8217;s display as &#8220;madness&#8221; following their 1-0 defeat to Aston Villa on Saturday.`\
-https://nytimes.com/athletic/5976601/2024/12/07/russell-martin-southampton-mistakes-madness/
 
