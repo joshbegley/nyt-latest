@@ -1,3 +1,16 @@
+**How Teddy Blueger and Canucks staged dramatic comeback win over Blue Jackets: 3 takeaways**\
+`The Canucks picked up 2 points Friday night, winning for the fifth time in their past seven games.`\
+https://nytimes.com/athletic/5975885/2024/12/07/canucks-comeback-win-blue-jackets-teddy-blueger/
+
+**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
+`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
+`\
+https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
+
+**A Filipino Holiday Tradition, Perhaps Best Not Made at Home**\
+`This year, I found a new way to celebrate my heritage through parols, colorful star-shaped lanterns.`\
+https://nytimes.com/2024/12/07/style/parols-filipino-decoration-stars.html
+
 **The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
 `The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
 `\
