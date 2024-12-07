@@ -1,3 +1,7 @@
+**Syria’s Assad Regime Fights to Survive Rebel Onslaught**\
+`The longtime Syrian dictator Bashar al-Assad is facing threats from rebellions on multiple fronts and his key ally, Iran, is paring back support.`\
+https://nytimes.com/2024/12/07/world/middleeast/syria-assad-homs-damascus-rebels.html
+
 **Oregon vs. Penn State: How to watch, picks, odds for Big Ten Championship Game**\
 `Can Oregon stay undefeated and get the first-round bye in the College Football Playoff? The Ducks are favored against Penn State.`\
 https://nytimes.com/athletic/5974657/2024/12/07/oregon-penn-state-how-to-watch-picks-odds-big-ten-championship-game/
