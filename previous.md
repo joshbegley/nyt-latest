@@ -1,3 +1,11 @@
+**Despite scrutiny, Gundy set to return to OK State with restructured deal: Source**\
+`Amid some drama in Stillwater, head coach Mike Gundy is set to return to coach the Cowboys. `\
+https://nytimes.com/athletic/5976490/2024/12/07/mike-gundy-oklahoma-state-returning-2025/
+
+**Zelensky Meets With Trump in Paris to Press Ukraine’s Case**\
+`The Ukrainian leader planned to use the grand reopening of Notre-Dame Cathedral to lobby the president-elect and other world leaders attending the ceremony.`\
+https://nytimes.com/2024/12/07/world/europe/zelensky-trump-macron-notre-dame.html
+
 **The Briefing: Brentford 4 Newcastle 2 - What's going on in defence? Barnes an enigma, away form a worry**\
 `Newcastle shipped four more goals in defeat to Brentford - The Athletic analyses the key themes from the Gtech Stadium`\
 https://nytimes.com/athletic/5965637/2024/12/07/brentford-4-newcastle-2-howe-barnes-defending/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5965637/2024/12/07/brentford-4-newcastle-2-howe-bar
 https://nytimes.com/athletic/5965636/2024/12/07/crystal-palace-2-manchester-city-2-haaland-lewis-guardiola/
 
 **South Korea’s Leader Survives Impeachment Vote After His Power Grab**\
-`The country is thrown into deeper uncertainty after the governing party changes its stance and refuses to oust him. Protesters vowed to keep the pressure on.`\
+`The country was thrown into deeper uncertainty after the governing party changed its stance and refused to oust him. Protesters vowed to keep the pressure on.`\
 https://nytimes.com/2024/12/07/world/asia/south-korea-yoon-impeach.html
 
 **West Ham's Antonio involved in car accident**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/07/world/asia/south-korea-yoon-impeachment-analysis.
 **See images of the fire and the restoration.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/see-images-of-the-fire-and-the-restoration
-
-**Assad did little to support the military ranks, analysts say.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/12/07/world/syria-war-damascus/assad-did-little-to-support-the-military-ranks-analysts-say
-
-**Japanese star Roki Sasaki to be posted at next week’s Winter Meetings**\
-`The Dodgers remain among the perceived frontrunners for the services of Sasaki, whose youth and talent make him a top free agent.`\
-https://nytimes.com/athletic/5976411/2024/12/07/roki-sasaki-posting-winter-meetings/
 

@@ -1,3 +1,15 @@
+**Despite scrutiny, Gundy set to return to OK State with restructured deal: Source**\
+`Amid some drama in Stillwater, head coach Mike Gundy is set to return to coach the Cowboys. `\
+https://nytimes.com/athletic/5976490/2024/12/07/mike-gundy-oklahoma-state-returning-2025/
+
+**Zelensky Meets With Trump in Paris to Press Ukraine’s Case**\
+`The Ukrainian leader planned to use the grand reopening of Notre-Dame Cathedral to lobby the president-elect and other world leaders attending the ceremony.`\
+https://nytimes.com/2024/12/07/world/europe/zelensky-trump-macron-notre-dame.html
+
+**South Korea’s Leader Survives Impeachment Vote After His Power Grab**\
+`The country was thrown into deeper uncertainty after the governing party changed its stance and refused to oust him. Protesters vowed to keep the pressure on.`\
+https://nytimes.com/2024/12/07/world/asia/south-korea-yoon-impeach.html
+
 **The Briefing: Brentford 4 Newcastle 2 - What's going on in defence? Barnes an enigma, away form a worry**\
 `Newcastle shipped four more goals in defeat to Brentford - The Athletic analyses the key themes from the Gtech Stadium`\
 https://nytimes.com/athletic/5965637/2024/12/07/brentford-4-newcastle-2-howe-barnes-defending/
