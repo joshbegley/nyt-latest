@@ -1,3 +1,7 @@
+**MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
+https://nytimes.com/athletic/5891633/2024/12/07/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Should the Bruins trade or re-sign Trent Frederic?**\
 `Frederic does not have job security past this season, and if a deal doesn't look realistic, Boston should make him available.`\
 https://nytimes.com/athletic/5976874/2024/12/07/bruins-trent-frederic-trade-contract/
