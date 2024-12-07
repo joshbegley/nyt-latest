@@ -1,4 +1,4 @@
-**Notre-Dame, in flames and reborn: a memory**\
+**Notre-Dame, in flames and reborn: a memory.**\
 `A reporter looks back on the shared`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/notre-dame-in-flames-and-reborn-a-memory
 
