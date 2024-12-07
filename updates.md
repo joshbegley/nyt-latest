@@ -1,3 +1,7 @@
+**Everton vs Liverpool called off on safety grounds**\
+`Saturday’s Premier League fixture between Everton and Liverpool has been called off due to safety concerns.`\
+https://nytimes.com/athletic/5976025/2024/12/07/everton-liverpool-merseyside-derby-off/
+
 **Detectives Scour Thousands of Hours of Video for Clues in C.E.O. Killing**\
 `Cameras are everywhere in Manhattan and they helped lead investigators to a distinctive backpack in Central Park that could be a key piece of physical evidence.`\
 https://nytimes.com/2024/12/07/nyregion/ceo-brian-thompson-gunman-video.html
