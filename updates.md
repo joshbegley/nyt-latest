@@ -1,3 +1,7 @@
+**Russia, an Assad ally, is unlikely to come to his aid.**\
+`By Anton Troianovski`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus/russia-an-assad-ally-is-unlikely-to-come-to-his-aid
+
 **How Protesters Filled the Streets in South Korea’s Center of Power**\
 `Aerial photos show how tens of thousands of South Koreans gathered in the streets in Seoul to protest.`\
 https://nytimes.com/interactive/2024/12/07/world/asia/south-korea-protests-seoul-yoon.html
