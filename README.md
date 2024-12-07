@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5976481/2024/12/07/edmonton-oilers-2024-ahl-bakersf
 https://nytimes.com/athletic/5976834/2024/12/07/mlb-free-agency-orioles-mets/
 
 **Ilia Malinin, U.S. figure skating star, caps a perfect year and eyes Olympic glory**\
-`Behold the "Quad God," Ilia Malinin: The U.S. figure skating star just finished an undefeated 2024 and enters 2025 as the king of the sport.`\
+`Behold the "Quad God": The U.S. figure skating star just finished an undefeated 2024 and enters 2025 as the king of the sport.`\
 https://nytimes.com/athletic/5972398/2024/12/07/ilia-malinin-figure-skating-olympics-grand-prix-final/
 
 **Trump Attends Notre-Dame Ceremony in First Foreign Trip Since Election**\
