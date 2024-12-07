@@ -1,3 +1,15 @@
+**Special Education Services With a Catch: Parents Are Asked Not to Sue**\
+`New York City school officials want families seeking such services to waive their right to sue the Education Department in exchange for receiving them.`\
+https://nytimes.com/2024/12/06/nyregion/nyc-schools-education-department-lawsuits.html
+
+**Here are the latest developments in South Korea.**\
+`By Choe Sang-Hun and John Yoon`\
+https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
+
+**Live Updates: South Koreans Demand President’s Impeachment**\
+`Lawmakers are scheduled to vote later Saturday on President Yoon Suk Yeol’s political future. People took to the streets for a fourth night of protests.`\
+https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
+
 **The Silicon Valley Billionaires Steering Trump’s Transition**\
 `The involvement of wealthy investors has made this presidential transition one of the most potentially conflict-ridden in modern history.`\
 https://nytimes.com/2024/12/06/us/politics/trump-elon-musk-silicon-valley.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5975610/2024/12/06/igor-shesterkin-rangers-contract
 **Iran Makes ‘Dramatic’ Leap to Produce Near-Bomb-Grade Fuel, but to What End?**\
 `The United Nations chief inspector says production has quadrupled. But it is not clear whether Iran is trying to touch off a crisis or gather bargaining chips for negotiations with the United States.`\
 https://nytimes.com/2024/12/06/us/politics/iran-nuclear-fuel.html
-
-**Frankie Montas takes inspiration from Mets' pitching success stories**\
-`Sean Manaea and Luis Severino told their old teammate that New York is a great destination for pitchers looking to rebound.`\
-https://nytimes.com/athletic/5975514/2024/12/06/mets-frankie-montas-free-agency/
-
-**Police in Central Park Find Backpack Like the One the Gunman Carried**\
-`Crime scene technicians came to a wooded area where officers were searching for the gunman’s bag and weapon.`\
-https://nytimes.com/2024/12/06/nyregion/unitedhealthcare-ceo-gunman-backpack.html
-
-**Musk Cost-Cutting Effort Is Being Guided by Health Entrepreneur**\
-`The inclusion of Brad Smith in Trump’s efficiency panel suggests that the team is preparing to focus particularly on the nation’s health care system.`\
-https://nytimes.com/2024/12/06/us/politics/elon-musk-doge-brad-smith-trump.html
 
