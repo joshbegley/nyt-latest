@@ -83,6 +83,11 @@ https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-fut
 `\
 https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
 
+**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
+`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
+`\
+https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
+
 **How Teddy Blueger and Canucks staged dramatic comeback win over Blue Jackets: 3 takeaways**\
 `Friday night the Canucks picked up 2 points, winning for the fifth time in their past seven games.`\
 https://nytimes.com/athletic/5975885/2024/12/07/canucks-comeback-win-blue-jackets-teddy-blueger/
