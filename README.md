@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5976874/2024/12/07/bruins-trent-frederic-trade-contract/
 
 **2 Indianapolis Officers Are Acquitted of Manslaughter in 2022 Death**\
-`Herman Whitfield III had told officers “I’m dying” and that he couldn’t breath after one of the officers deployed a Taser, according to body camera footage.`\
+`Herman Whitfield III had told officers “I’m dying” and that he couldn’t breathe after one of the officers deployed a Taser, according to body camera footage.`\
 https://nytimes.com/2024/12/07/us/indianapolis-police-taser-acquitted-manslaughter.html
 
 **With Pageantry and Dignitaries, France Unveils a Reborn Notre-Dame**\
