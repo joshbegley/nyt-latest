@@ -11,7 +11,7 @@ https://nytimes.com/2024/12/06/nyregion/nyc-schools-education-department-lawsuit
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
 
 **Live Updates: South Korea’s President Apologizes for Martial Law Ahead of Impeachment Vote**\
-`President Yoon Suk Yeol’s faces growing calls to resign as massive demonstrations against him are scheduled to be held in Seoul on Saturday.`\
+`President Yoon Suk Yeol said he would not seek to impose martial law again and that he would leave his fate to his party. Lawmakers will vote to impeach him later on Saturday.`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
 
 **The Silicon Valley Billionaires Steering Trump’s Transition**\
