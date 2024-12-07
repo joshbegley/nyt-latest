@@ -1,3 +1,7 @@
+**Tilda Swinton Would Like a Word With Trump About His Mother**\
+`The Academy Award-winning actress discusses her lifelong quest for connection, humanity’s innate goodness and the point of being alive.`\
+https://nytimes.com/2024/12/07/magazine/tilda-swinton-interview.html
+
 **NFL Week 14 roundtable: Should Pittsburgh be on upset alert? Time for Michael Penix Jr.?**\
 `The future of the QB slide, Bears-49ers and 6-6 NFC teams are also among the topics in this week's roundtable previewing Week 14.`\
 https://nytimes.com/athletic/5974931/2024/12/07/nfl-week-14-browns-steelers-michael-penix/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/books/review/kingdom-of-no-tomorrow-fabienne-josa
 **Backers of Most U.S. Mortgages Have Done Little About Climate Risks**\
 `Fannie Mae and Freddie Mac know increasing floods and wildfires are a problem. Dealing with them, however, would require trade-offs.`\
 https://nytimes.com/2024/12/07/business/economy/mortgages-climate-risk-fannie-freddie.html
-
-**A Mississippi Teacher Created a School in an Empty Storefront. Students Showed Up.**\
-`The desks came out of a dumpster, and the computers are hand-me-downs. But students say Abundance Academy is a haven from bullying and crowded classes.`\
-https://nytimes.com/2024/12/07/us/a-mississippi-teacher-created-a-school-in-an-empty-storefront-students-showed-up.html
 
