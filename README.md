@@ -1,3 +1,7 @@
+**What to expect next from the Golden State Valkyries after WNBA expansion draft**\
+`The Valkyries drafted to win now, but expect many changes for the long-term future of the new franchise.`\
+https://nytimes.com/athletic/5975808/2024/12/06/what-to-expect-next-from-the-golden-state-valkyries-after-wnba-expansion-draft/
+
 **Maple Leafs report cards: A slow night for Toronto's top line**\
 `Washington held Toronto to a single goal and 21 shots in a tight-checking game with few scoring chances at both ends.`\
 https://nytimes.com/athletic/5975793/2024/12/06/maple-leafs-capitals-grades-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/world/asia/south-korea-president-yoon-speech.html
 **Is the Real ‘Wicked’ Movie the Press Tour?**\
 `A conversation about the musical’s transfer from stage to screen, and the lead actresses who are bringing new narratives to their roles.`\
 https://nytimes.com/2024/12/06/arts/music/wicked-movie-popcast-ariana-grande.html
-
-**The Police Offer a Detailed Timeline of the Gunman’s Movements**\
-`Investigators have begun to piece together the actions of a man they believe killed a health care executive on a city sidewalk early Wednesday morning.`\
-https://nytimes.com/2024/12/06/nyregion/brian-thompson-gunman-timeline.html
 
