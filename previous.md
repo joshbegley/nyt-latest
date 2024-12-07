@@ -1,3 +1,15 @@
+**Salty, Sweet, Spicy, Smoky Mie Goreng**\
+`These versatile Indonesian stir-fried noodles strike a perfect balance of flavors that you’ll want to eat again and again (speaking from experience).`\
+https://nytimes.com/2024/12/07/dining/salty-sweet-spicy-smoky-mie-goreng.html
+
+**Bash Brothers 2.0? With Trouba joining Gudas, Ducks opponents 'are not going to be enjoying their time'**\
+`Trouba certainly will bring a physical element to Anaheim, but can he offer more?`\
+https://nytimes.com/athletic/5976075/2024/12/07/trouba-gudas-anaheim-ducks-defense/
+
+**Trump and Prince William Headline Guest List at Notre-Dame Reopening**\
+`Dozens of officials have been invited to Paris as the rebuilt cathedral welcomes visitors five years after a devastating fire.`\
+https://nytimes.com/2024/12/07/world/europe/trump-and-prince-william-headline-guest-list-at-notre-dame-reopening.html
+
 **Notre-Dame Reopens: Photos**\
 `As Notre-Dame reopens after a 2019 fire, here is a selection of scenes from the famous Paris cathedral during a weekend of preparations and ceremonies.`\
 https://nytimes.com/2024/12/07/world/europe/notre-dame-reopening-photos.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5976300/2024/12/07/fiu-football-coach-willie-simmon
 **Here’s what is happening in Syria.**\
 `aHoms sits at a key crossroads in the country, controlling access to the Mediterranean to the west and Damascus to the south.`\
 https://nytimes.com/2024/12/07/world/middleeast/syria-damascus-withdraw.html
-
-**Trump Heads to Notre-Dame Ceremony in First Foreign Trip Since Election**\
-`The president-elect will be at the cathedral alongside dozens of world leaders. He was also meeting with President Emmanuel Macron of France, with whom he has had a rocky relationship.`\
-https://nytimes.com/2024/12/07/world/europe/trump-paris-france-notre-dame-macron.html
-
-**Lando Norris takes pole for F1 season finale, McLaren on verge of title**\
-`The team sits 21 points ahead of Ferrari in the constructors’ standings before Sunday's race. `\
-https://nytimes.com/athletic/5976330/2024/12/07/lando-norris-pole-abu-dhabi-gp-f1/
-
-**The end of Ferrari's 'C²': A genuine F1 partnership faces its sunset in Abu Dhabi**\
-`Sainz and Leclerc clicked quickly as teammates, but the fan-favorite driver duo will part ways after the 2024 season finale.`\
-https://nytimes.com/athletic/5976230/2024/12/07/ferrari-carlos-sainz-charles-leclerc-f1/
 

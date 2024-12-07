@@ -1,3 +1,15 @@
+**Salty, Sweet, Spicy, Smoky Mie Goreng**\
+`These versatile Indonesian stir-fried noodles strike a perfect balance of flavors that you’ll want to eat again and again (speaking from experience).`\
+https://nytimes.com/2024/12/07/dining/salty-sweet-spicy-smoky-mie-goreng.html
+
+**Bash Brothers 2.0? With Trouba joining Gudas, Ducks opponents 'are not going to be enjoying their time'**\
+`Trouba certainly will bring a physical element to Anaheim, but can he offer more?`\
+https://nytimes.com/athletic/5976075/2024/12/07/trouba-gudas-anaheim-ducks-defense/
+
+**Trump and Prince William Headline Guest List at Notre-Dame Reopening**\
+`Dozens of officials have been invited to Paris as the rebuilt cathedral welcomes visitors five years after a devastating fire.`\
+https://nytimes.com/2024/12/07/world/europe/trump-and-prince-william-headline-guest-list-at-notre-dame-reopening.html
+
 **Notre-Dame Reopens: Photos**\
 `As Notre-Dame reopens after a 2019 fire, here is a selection of scenes from the famous Paris cathedral during a weekend of preparations and ceremonies.`\
 https://nytimes.com/2024/12/07/world/europe/notre-dame-reopening-photos.html
