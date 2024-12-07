@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-fut
 `\
 https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
 
+**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
+`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
+`\
+https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
+
 **LA Galaxy and New York Red Bulls: Two originals go head-to-head in MLS Cup**\
 `Major League Soccer is so often fixated by the shiny new thing but with no Inter Miami and no Lionel Messi, this is a compelling match-up`\
 https://nytimes.com/athletic/5972679/2024/12/07/mls-cup-la-galaxy-new-york-red-bulls/
