@@ -1,3 +1,7 @@
+**Despite scrutiny, Gundy set to return to OK State with restructured deal**\
+`Amid some drama in Stillwater, head coach Mike Gundy is set to return to coach the Cowboys. `\
+https://nytimes.com/athletic/5976490/2024/12/07/mike-gundy-oklahoma-state-returning-2025/
+
 **Despite scrutiny, Gundy set to return to OK State with restructured deal: Source**\
 `Amid some drama in Stillwater, head coach Mike Gundy is set to return to coach the Cowboys. `\
 https://nytimes.com/athletic/5976490/2024/12/07/mike-gundy-oklahoma-state-returning-2025/
