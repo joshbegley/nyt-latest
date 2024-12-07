@@ -1,3 +1,11 @@
+**Should the Bruins trade or re-sign Trent Frederic?**\
+`Frederic does not have job security past this season and if a deal doesn't look realistic, Boston should make him available.`\
+https://nytimes.com/athletic/5976874/2024/12/07/bruins-trent-frederic-trade-contract/
+
+**2 Indianapolis Officers Are Acquitted of Manslaughter in 2022 Death**\
+`Herman Whitfield III had told officers “I’m dying” and that he couldn’t breath after one of the officers deployed a Taser, according to body camera footage.`\
+https://nytimes.com/2024/12/07/us/indianapolis-police-taser-acquitted-manslaughter.html
+
 **With Pageantry and Dignitaries, France Unveils a Reborn Notre-Dame**\
 `Five years after a ruinous fire, the reopening of the cathedral restored it in full glory to the Paris skyline and delivered a much-needed morale boost for France.`\
 https://nytimes.com/2024/12/07/world/europe/france-notre-dame-reopening.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/07/us/akron-police-shooting-jazmir-tucker.html
 **In a Romanian Village, Anger Fuels Support for an Ultranationalist ‘Messiah’**\
 `A presidential election has been called off, but the discontent that propelled the surging campaign of a rightist firebrand rages on.`\
 https://nytimes.com/2024/12/07/world/europe/romania-election-georgescu-nationalism.html
-
-**Damascus residents brace for an uncertain future as rebels advance toward the capital.**\
-`By Vivian Yee, Raja Abdulrahim and Hwaida Saad`\
-https://nytimes.com/live/2024/12/07/world/syria-war-damascus/damascus-residents-brace-for-an-uncertain-future-as-rebels-advance-toward-the-capital
-
-**Some on Social Media See Suspect in C.E.O. Killing as a Folk Hero**\
-`The authorities have pleaded for help in finding the person who killed Brian Thompson, the chief executive of UnitedHealthcare. But some seem more interested in rooting for the gunman.`\
-https://nytimes.com/2024/12/07/nyregion/unitedhealthcare-ceo-shooting-suspect.html
 

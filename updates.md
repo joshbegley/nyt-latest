@@ -1,3 +1,11 @@
+**Should the Bruins trade or re-sign Trent Frederic?**\
+`Frederic does not have job security past this season and if a deal doesn't look realistic, Boston should make him available.`\
+https://nytimes.com/athletic/5976874/2024/12/07/bruins-trent-frederic-trade-contract/
+
+**2 Indianapolis Officers Are Acquitted of Manslaughter in 2022 Death**\
+`Herman Whitfield III had told officers “I’m dying” and that he couldn’t breath after one of the officers deployed a Taser, according to body camera footage.`\
+https://nytimes.com/2024/12/07/us/indianapolis-police-taser-acquitted-manslaughter.html
+
 **With Pageantry and Dignitaries, France Unveils a Reborn Notre-Dame**\
 `Five years after a ruinous fire, the reopening of the cathedral restored it in full glory to the Paris skyline and delivered a much-needed morale boost for France.`\
 https://nytimes.com/2024/12/07/world/europe/france-notre-dame-reopening.html
