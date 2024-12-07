@@ -1,3 +1,11 @@
+**Sabres fans bring inflatable palm trees, chant 'Fire Kevyn!' as Buffalo loses sixth straight**\
+`As the Sabres’ winless streak grew to six games Saturday against Utah, you could hear the sounds of a fan base at its wits’ end.`\
+https://nytimes.com/athletic/5976919/2024/12/07/sabres-utah-kevyn-adams-palm-trees/
+
+**Notre-Dame Cathedral in Paris Reopens After Five-Year Renovation**\
+`World leaders and global dignitaries celebrated the cathedral’s reconstruction following a fire that devoured its roof in 2019.`\
+https://nytimes.com/video/world/europe/100000009865459/notre-dame-cathedral-paris.html
+
 **MLS Cup final briefing: LA Galaxy 2 New York Red Bulls 1 - No Puig, no problem as Vanney's team win sixth MLS Cup**\
 `Paintsil and Joveljic scored the goals as Galaxy made a blistering start on home soil to win their sixth MLS Cup title.`\
 https://nytimes.com/athletic/5976906/2024/12/07/la-galaxy-mls-cup-final-win-red-bulls/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-warily-eyes-syri
 **Is Joel Farabee part of the Flyers' future, or could he end up as trade bait?**\
 `Farabee could generate some trade interest on the market, and his future with the organization is a bit hazy.`\
 https://nytimes.com/athletic/5976873/2024/12/07/flyers-joel-farabee-trade/
-
-**Just for Fun**\
-`John Kugelman’s puzzle turns on solvers, with a switch of the flip.`\
-https://nytimes.com/2024/12/07/crosswords/daily-puzzle-2024-12-08.html
-
-**MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
-`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
-https://nytimes.com/athletic/5891633/2024/12/07/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
 
