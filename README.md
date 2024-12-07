@@ -1,3 +1,7 @@
+**Fighting Over a ‘Flawless’ Campaign**\
+`Leaders of the Trump and Harris campaigns met this week to talk tactics. It wasn’t pretty.`\
+https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-meeting.html
+
 **President Yoon’s Speech Apologizing for Martial Law**\
 `President Yoon Suk Yeol said his declaration of martial law was born out of “desperation,” and apologized for causing “anxiety.”`\
 https://nytimes.com/2024/12/06/world/asia/south-korea-president-yoon-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/us/politics/trump-elon-musk-silicon-valley.html
 **Iran Begins to Evacuate Military Officials and Personnel From Syria**\
 `The withdrawals by one of President Bashar al-Assad’s key backers come amid a resurgent rebel offensive.`\
 https://nytimes.com/2024/12/06/world/middleeast/iran-syria-evacuation.html
-
-**'I chose my family': Jacob Trouba reacts to trade after waivers 'threat' from Rangers**\
-`"It’s a rite of passage to get fired from MSG," Trouba said after being dealt to the Anaheim Ducks.`\
-https://nytimes.com/athletic/5975660/2024/12/06/trouba-rangers-threat-trade-ducks/
 
