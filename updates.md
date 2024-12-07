@@ -1,3 +1,7 @@
+**Howe apologises to Newcastle fans after Brentford defeat**\
+`Eddie Howe apologised to Newcastle United&#8217;s travelling support for his side&#8217;s performance during their 4-2 defeat at Brentford on Saturday.`\
+https://nytimes.com/athletic/5976581/2024/12/07/eddie-howe-newcastle-fans-apology/
+
 **A.I. Will Transform the Global Economy — if Humans Let It**\
 `We asked a group of business leaders to consider how businesses can benefit from artificial intelligence.`\
 https://nytimes.com/2024/12/07/special-series/ai-transform-global-economy.html
