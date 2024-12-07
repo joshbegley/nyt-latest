@@ -1,3 +1,7 @@
+**How to Understand Syria’s Rapidly Changing Civil War**\
+`Advances by a coalition of opposition groups have abruptly changed the landscape of Syria’s civil war after a long stalemate. Here’s a closer look at where things stand.`\
+https://nytimes.com/2024/12/07/world/middleeast/how-to-understand-syrias-rapidly-changing-civil-war.html
+
 **Year in Review**\
 `As critics issue their year-end lists, we want to know your personal favorites of 2024.`\
 https://nytimes.com/2024/12/07/briefing/year-in-review.html
