@@ -1,3 +1,7 @@
+**Mandel: It's fitting that Boise State is first G5 team to take advantage of expanded Playoff**\
+`The Broncos will be in on Sunday. There’s no overstating the significance of this moment, not just for Boise State but for college football.`\
+https://nytimes.com/athletic/5976172/2024/12/07/boise-state-unlv-mountain-west-college-football-playoff/
+
 **Club World Cup 2025: Group tables, how teams qualified and the full fixture list**\
 `The 32 teams were drawn into eight groups of four to discover their opponents for the tournament, which will be held across 11 U.S. cities`\
 https://nytimes.com/athletic/5972672/2024/12/07/club-world-cup-2025-groups-fixture-list/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974542/2024/12/07/frenkie-de-jong-barcelona-form-f
 **Teens Are Getting Botox. I’m Going Full Crone in 2025.**\
 `In pushing back against beauty standards, I’m trying to set an example for my girls.`\
 https://nytimes.com/2024/12/07/opinion/botox-teens.html
-
-**JD Vance, Elon Musk and the Future of America**\
-`How the two men’s visions for America come together, or clash, is a key to the new administration’s success.`\
-https://nytimes.com/2024/12/07/opinion/vance-musk-trump.html
 
