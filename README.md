@@ -1,3 +1,11 @@
+**Cam Skattebo strikes a pose and makes a statement: He belongs on the sport's biggest stage**\
+`Given a spotlight, Arizona State’s running back left no doubt, leading the Sun Devils to a 45-19 win over Iowa State and into the CFP. `\
+https://nytimes.com/athletic/5977011/2024/12/07/cam-skattebo-arizona-state-heisman-playoff/
+
+**Want a Job in the Trump Administration? Be Prepared for the Loyalty Test.**\
+`Applicants for government posts, including inside the Pentagon and the intelligence agencies, say they have been asked about their thoughts on Jan. 6 and who they believe won the 2020 election.`\
+https://nytimes.com/2024/12/07/us/politics/trump-administration-loyalty-test.html
+
 **Sabres fans bring inflatable palm trees, chant 'Fire Kevyn!' as Buffalo loses sixth straight**\
 `As the Sabres’ winless streak grew to six games Saturday against Utah, you could hear the sounds of a fan base at its wits’ end.`\
 https://nytimes.com/athletic/5976919/2024/12/07/sabres-utah-kevyn-adams-palm-trees/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976900/2024/12/07/arizona-state-cam-skattebo-big-1
 **UCF targeting Scott Frost for second stint as head coach: Source**\
 `Frost proved to be a great hire for UCF once, and the Knights are hoping he can be again.`\
 https://nytimes.com/athletic/5976946/2024/12/07/scott-frost-ucf-coaching-search/
-
-**U.S. warily eyes Syrian war, with spy agencies monitoring chemical weapons storage sites for signs of use.**\
-`“We are not going to insert ourselves to affect the outcome of this,” an them explained.`\
-https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-warily-eyes-syrian-war-with-spy-agencies-monitoring-chemical-weapons-storage-sites-for-signs-of-use
-
-**Is Joel Farabee part of the Flyers' future, or could he end up as trade bait?**\
-`Farabee could generate some trade interest on the market, and his future with the organization is a bit hazy.`\
-https://nytimes.com/athletic/5976873/2024/12/07/flyers-joel-farabee-trade/
 
