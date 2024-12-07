@@ -1,3 +1,7 @@
+**Amber Glenn wins U.S. women's figure skating's biggest title in 14 years**\
+`American Amber Glenn continued her surprising rise in women's figure skating, winning the Grand Prix Final title on Saturday.`\
+https://nytimes.com/athletic/5974368/2024/12/07/amber-glenn-figure-skating-grand-prix-final-gold/
+
 **Zak Brown reveals McLaren F1 was ‘on the brink’ financially before 2020 investment**\
 `McLaren is on the verge of winning its first F1 constructors’ championship since 1998 at the Abu Dhabi GP.`\
 https://nytimes.com/athletic/5976191/2024/12/07/mclaren-f1-zak-brown-2020-investment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976135/2024/12/07/rodrygo-real-madrid-injury-updat
 **How the Oilers' bets on Vasily Podkolzin and Ty Emberson are paying off**\
 `The Oilers added both players late in the offseason effectively to replace Dylan Holloway and Philip Brobeg.`\
 https://nytimes.com/athletic/5974132/2024/12/07/oilers-vasily-podkolzin-ty-emberson/
-
-**Does Frenkie de Jong have a future at Barcelona?**\
-`De Jong impressed in a cameo in his last game but the €80m signing has been booed by his own fans on multiple occasions this season`\
-https://nytimes.com/athletic/5974542/2024/12/07/frenkie-de-jong-barcelona-form-future/
 
