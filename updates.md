@@ -1,3 +1,7 @@
+**Live Updates: South Korea’s President Apologizes, But Doesn’t Resign Ahead of Impeachment Vote**\
+`President Yoon Suk Yeol said he would not seek to impose martial law again and that he would leave his fate to his party. Lawmakers will vote on whether to impeach him later on Saturday.`\
+https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
+
 **President Yoon’s Speech Apologizing for Martial Law**\
 `President Yoon Suk Yeol said his declaration of martial law was born out of “desperation,” and apologized for causing “anxiety.”`\
 https://nytimes.com/2024/12/06/world/asia/south-korea-president-yoon-speech.html
