@@ -1,3 +1,7 @@
+**Zak Brown reveals McLaren F1 was ‘on the brink’ financially before 2020 investment**\
+`McLaren is on the verge of winning its first F1 constructors’ championship since 1998 at the Abu Dhabi GP.`\
+https://nytimes.com/athletic/5976191/2024/12/07/mclaren-f1-zak-brown-2020-investment/
+
 **Mandel: It's fitting that Boise State is first G5 team to take advantage of expanded Playoff**\
 `The Broncos will be in on Sunday. There’s no overstating the significance of this moment, not just for Boise State but for college football.`\
 https://nytimes.com/athletic/5976172/2024/12/07/boise-state-unlv-mountain-west-college-football-playoff/

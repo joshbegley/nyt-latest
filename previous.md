@@ -1,3 +1,7 @@
+**Zak Brown reveals McLaren F1 was ‘on the brink’ financially before 2020 investment**\
+`McLaren is on the verge of winning its first F1 constructors’ championship since 1998 at the Abu Dhabi GP.`\
+https://nytimes.com/athletic/5976191/2024/12/07/mclaren-f1-zak-brown-2020-investment/
+
 **Mandel: It's fitting that Boise State is first G5 team to take advantage of expanded Playoff**\
 `The Broncos will be in on Sunday. There’s no overstating the significance of this moment, not just for Boise State but for college football.`\
 https://nytimes.com/athletic/5976172/2024/12/07/boise-state-unlv-mountain-west-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974132/2024/12/07/oilers-vasily-podkolzin-ty-ember
 **Does Frenkie de Jong have a future at Barcelona?**\
 `De Jong impressed in a cameo in his last game but the €80m signing has been booed by his own fans on multiple occasions this season`\
 https://nytimes.com/athletic/5974542/2024/12/07/frenkie-de-jong-barcelona-form-future/
-
-**Teens Are Getting Botox. I’m Going Full Crone in 2025.**\
-`In pushing back against beauty standards, I’m trying to set an example for my girls.`\
-https://nytimes.com/2024/12/07/opinion/botox-teens.html
 
