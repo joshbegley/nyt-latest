@@ -1,3 +1,7 @@
+**South Korea’s President Apologizes**\
+`With lawmakers set to vote Saturday on whether to impeach President Yoon Suk Yeol, he said in a televised address that he was deeply sorry that his martial law declaration caused “anxiety and discomfort.”`\
+https://nytimes.com/video/world/asia/100000009864642/south-korea-yoon-apology.html
+
 **Mets sign Clay Holmes to 3-year deal: Sources**\
 `The Mets plan to use Holmes, who is a right-hander, as a starter.`\
 https://nytimes.com/athletic/5975739/2024/12/06/mets-clay-holmes-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
 **Live Updates: South Korea’s President Apologizes, But Doesn’t Resign Ahead of Impeachment Vote**\
 `President Yoon Suk Yeol said he would not seek to impose martial law again and that he would leave his fate to his party. Lawmakers will vote on whether to impeach him later on Saturday.`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
-
-**The Silicon Valley Billionaires Steering Trump’s Transition**\
-`The involvement of wealthy investors has made this presidential transition one of the most potentially conflict-ridden in modern history.`\
-https://nytimes.com/2024/12/06/us/politics/trump-elon-musk-silicon-valley.html
 
