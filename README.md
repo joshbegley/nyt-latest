@@ -1,3 +1,7 @@
+**Analysing the managers who might be able to fix Wolves, West Ham and Southampton**\
+`We analyse the numbers to see who might be able to transform the fortunes of the Premier League's crisis clubs `\
+https://nytimes.com/athletic/5974772/2024/12/07/wolves-west-ham-southampton-manager-options/
+
 **Athens’s New Answer to a Water Supply Crunch: An Ancient Aqueduct**\
 `Hadrian’s Aqueduct supplied water to Greece’s capital for centuries but was then largely abandoned. It’s being revived to ease water scarcity amid global warming.`\
 https://nytimes.com/2024/12/07/world/europe/greece-athens-hadrians-aqueduct-water.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/style/tiktok-ban-reactions.html
 **Boise State, Ashton Jeanty steamroll UNLV to win Mountain West**\
 `In a final Heisman push, Jeanty passed USC’s Marcus Allen for fourth all-time on the FBS single-season rushing chart.`\
 https://nytimes.com/athletic/5975824/2024/12/06/boise-state-unlv-mountain-west-championship-score-results/
-
-**Penguins play loose and get cooled off by Rangers: 3 takeaways**\
-`The Rangers snapped the Penguins' four-game winning streak with a 4-2 win.`\
-https://nytimes.com/athletic/5975804/2024/12/06/penguins-rangers-takeaways-analysis/
 
