@@ -1,3 +1,7 @@
+**Maple Leafs report cards: A slow night for Toronto's top line**\
+`Washington held Toronto to a single goal and 21 shots in a tight-checking game with few scoring chances at both ends.`\
+https://nytimes.com/athletic/5975793/2024/12/06/maple-leafs-capitals-grades-analysis/
+
 **A Guy I Know Had a Liver Transplant. Now He’s Boozing Again.**\
 `The magazine’s Ethicist columnist on how to support someone with an addiction problem.`\
 https://nytimes.com/2024/12/06/magazine/liver-transplant-alcohol-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/arts/music/wicked-movie-popcast-ariana-grande.htm
 **The Police Offer a Detailed Timeline of the Gunman’s Movements**\
 `Investigators have begun to piece together the actions of a man they believe killed a health care executive on a city sidewalk early Wednesday morning.`\
 https://nytimes.com/2024/12/06/nyregion/brian-thompson-gunman-timeline.html
-
-**Golden State Valkyries inaugural roster announced as expansion draft concludes**\
-`The Valkyries will debut on May 16 against the Los Angeles Sparks.`\
-https://nytimes.com/athletic/5975678/2024/12/06/wnba-golden-state-valkyries-roster-expansion-draft/
 
