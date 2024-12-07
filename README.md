@@ -1,3 +1,7 @@
+**MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
+https://nytimes.com/athletic/5891633/2024/12/07/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Giants, Willy Adames agree to 7-year, $182 million deal: Source**\
 `The shortstop is set to join San Francisco after agreeing to the largest contract in franchise history.`\
 https://nytimes.com/athletic/5944038/2024/12/07/san-francisco-giants-willy-adames-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972398/2024/12/07/ilia-malinin-figure-skating-olym
 **Trump Attends Notre-Dame Ceremony in First Foreign Trip Since Election**\
 `At the ceremony, the president-elect took a seat next to President Emmanuel Macron of France, with whom he has had a rocky relationship.`\
 https://nytimes.com/2024/12/07/world/europe/trump-notre-dame-reopening-paris.html
-
-**Akron Police Face Questions After Officer Fatally Shoots Teenager**\
-`The Ohio city’s mayor and the family of the 15-year-old, Jazmir Tucker, raised concerns about how officers handled the incident.`\
-https://nytimes.com/2024/12/07/us/akron-police-shooting-jazmir-tucker.html
 
