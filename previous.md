@@ -10,7 +10,7 @@ https://nytimes.com/2024/12/06/nyregion/nyc-schools-education-department-lawsuit
 `By Choe Sang-Hun`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
 
-**Live Updates: South Korea’s President Apologizes for Martial Law Ahead of Impeachment Vote**\
+**Live Updates: South Korea’s President Apologizes, But Doesn’t Resign Ahead of Impeachment Vote**\
 `President Yoon Suk Yeol said he would not seek to impose martial law again and that he would leave his fate to his party. Lawmakers will vote to impeach him later on Saturday.`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
 
@@ -19,7 +19,7 @@ https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
 https://nytimes.com/2024/12/06/us/politics/trump-elon-musk-silicon-valley.html
 
 **Iran Begins to Evacuate Military Officials and Personnel From Syria**\
-`The withdrawals by one of President Bashar al-Assad’s key backers comes amid a resurgent rebel offensive.`\
+`The withdrawals by one of President Bashar al-Assad’s key backers come amid a resurgent rebel offensive.`\
 https://nytimes.com/2024/12/06/world/middleeast/iran-syria-evacuation.html
 
 **'I chose my family': Jacob Trouba reacts to trade after waivers 'threat' from Rangers**\
