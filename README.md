@@ -1,3 +1,11 @@
+**The end of Ferrari's 'C²': A genuine F1 partnership faces its sunset in Abu Dhabi**\
+`Sainz and Leclerc clicked quickly as teammates, but the fan-favorite driver duo will part ways after the 2024 season finale.`\
+https://nytimes.com/athletic/5976230/2024/12/07/ferrari-carlos-sainz-charles-leclerc-f1/
+
+**College Football Playoff 2024 projections: What will the 12-team bracket look like?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-projections-odds/
+
 **Why Are We So Obsessed With the Moon?**\
 `Lunar exploration in the 21st century offers a unique opportunity to unite us.`\
 https://nytimes.com/2024/12/07/special-series/moon-space-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/07/business/chi-chis-restaurant-mexican.html
 **Lakers' late-game lapses against Hawks cost them again, wrapping a rough road trip**\
 `While they put together a better effort in their overtime loss in Atlanta, the Lakers were 1-3 on a dreadful four-game road trip.`\
 https://nytimes.com/athletic/5975703/2024/12/07/lakers-lebron-james-anthony-davis-hawks/
-
-**Amber Glenn wins U.S. women's figure skating's biggest title in 14 years**\
-`American Amber Glenn continued her surprising rise in women's figure skating, winning the Grand Prix Final title on Saturday.`\
-https://nytimes.com/athletic/5974368/2024/12/07/amber-glenn-figure-skating-grand-prix-final-gold/
-
-**Zak Brown reveals McLaren F1 was ‘on the brink’ financially before 2020 investment**\
-`McLaren is on the verge of winning its first F1 constructors’ championship since 1998 at the Abu Dhabi GP.`\
-https://nytimes.com/athletic/5976191/2024/12/07/mclaren-f1-zak-brown-2020-investment/
 
