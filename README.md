@@ -1,3 +1,11 @@
+**Assad did little to support the military ranks, analysts say.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus/assad-did-little-to-support-the-military-ranks-analysts-say
+
+**Japanese star Roki Sasaki to be posted at next week’s Winter Meetings: Sources**\
+`The Dodgers remain among the perceived frontrunners for the services of Sasaki, whose youth and talent make him a top free agent.`\
+https://nytimes.com/athletic/5976411/2024/12/07/roki-sasaki-posting-winter-meetings/
+
 **Notre-Dame has been at the center of French culture and history for centuries.**\
 `By Richard Fausset`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/notre-dame-has-been-at-the-center-of-french-culture-and-history-for-centuries
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/07/world/europe/notre-dame-reopening-photos.html
 **Notre-Dame Reopening: Schedule of Events and How to Watch**\
 `A speech by President Emmanuel Macron and a religious service will precede the broadcast of a taped concert by French and international musical artists.`\
 https://nytimes.com/2024/12/07/world/europe/notre-dame-cathedral-reopen-watch-schedule.html
-
-**Here’s the latest as the cathedral reopens.**\
-`By Richard Fausset`\
-https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/heres-the-latest-as-the-cathedral-reopens
-
-**Live Updates: Notre-Dame Reopens, 5 Years After Devastating Fire**\
-`World leaders are in Paris for ceremonies as the 12th-century Gothic cathedral opens its doors after a monumental renovation.`\
-https://nytimes.com/live/2024/12/07/world/notre-dame-reopen
 
