@@ -1,3 +1,7 @@
+**F1 Abu Dhabi preview: McLaren on the cusp of glory, Hamilton's Mercedes farewell**\
+`Formula One's season finale will wrap up the constructors' championship and (possibly) a few careers.`\
+https://nytimes.com/athletic/5976429/2024/12/07/f1-abu-dhabi-gp-preview-mclaren-championship-ferrari-lewis-hamilton/
+
 **Padres head to Winter Meetings facing questions of financial constraints**\
 `The Padres will have to get creative as they look to solidify multiple positions during another winter with restrictive spending limits.`\
 https://nytimes.com/athletic/5975789/2024/12/07/padres-winter-meetings-payroll-constraints/

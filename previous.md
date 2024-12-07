@@ -1,3 +1,7 @@
+**F1 Abu Dhabi preview: McLaren on the cusp of glory, Hamilton's Mercedes farewell**\
+`Formula One's season finale will wrap up the constructors' championship and (possibly) a few careers.`\
+https://nytimes.com/athletic/5976429/2024/12/07/f1-abu-dhabi-gp-preview-mclaren-championship-ferrari-lewis-hamilton/
+
 **Padres head to Winter Meetings facing questions of financial constraints**\
 `The Padres will have to get creative as they look to solidify multiple positions during another winter with restrictive spending limits.`\
 https://nytimes.com/athletic/5975789/2024/12/07/padres-winter-meetings-payroll-constraints/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/thousands-of-donors-
 **Biggest NFL wager ever? Bettor places $3.1 million on the Eagles-Panthers game**\
 `A bettor in Kentucky has placed the largest reported NFL bet of the year, $3.1 million on the Eagles to defeat the Panthers on Sunday.`\
 https://nytimes.com/athletic/5976367/2024/12/07/nfl-big-bets-eagles-panthers/
-
-**Despite scrutiny, Gundy set to return to OK State with restructured deal**\
-`Amid some drama in Stillwater, head coach Mike Gundy is set to return to coach the Cowboys. `\
-https://nytimes.com/athletic/5976490/2024/12/07/mike-gundy-oklahoma-state-returning-2025/
 
