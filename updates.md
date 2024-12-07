@@ -1,3 +1,11 @@
+**Staple: Rangers have to hope the cost is worth the trouble as they take care of business**\
+`In trading Jacob Trouba, the Rangers got the result they wanted, but they also burned some people on the way there.`\
+https://nytimes.com/athletic/5975817/2024/12/06/rangers-jacob-trouba-trade-igor-shesterkin/
+
+**Boise State, Ashton Jeanty steamroll UNLV to win Mountain West**\
+`In a final Heisman push, Jeanty passed USC’s Marcus Allen for fourth all-time on the FBS single-season rushing chart.`\
+https://nytimes.com/athletic/5975824/2024/12/06/boise-state-unlv-mountain-west-championship-score-results/
+
 **Army routs Tulane to win first conference title in 134 years of football**\
 `Army (11-1) earned just the second 11-win season in program history, both under coach Jeff Monken, and still have two more games left.`\
 https://nytimes.com/athletic/5975866/2024/12/06/army-tulane-american-championship/
