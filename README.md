@@ -1,6 +1,6 @@
 **What to expect next from the Golden State Valkyries after WNBA expansion draft**\
 `The Valkyries drafted to win now, but expect many changes for the long-term future of the new franchise.`\
-https://nytimes.com/athletic/5975808/2024/12/06/what-to-expect-next-from-the-golden-state-valkyries-after-wnba-expansion-draft/
+https://nytimes.com/athletic/5975808/2024/12/06/golden-state-valkyries-wnba-expansion-draft/
 
 **Maple Leafs report cards: A slow night for Toronto's top line**\
 `Washington held Toronto to a single goal and 21 shots in a tight-checking game with few scoring chances at both ends.`\
