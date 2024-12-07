@@ -1,8 +1,16 @@
+**South Korean Leader’s Deal to Avoid Impeachment Risks Bigger Turmoil**\
+`President Yoon Suk Yeol survived an opposition-led attempt to remove him by getting his party members to back him. But his troubles could now become theirs too.`\
+https://nytimes.com/2024/12/07/world/asia/south-korea-yoon-impeachment-analysis.html
+
+**See images of the fire and the restoration.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/see-images-of-the-fire-and-the-restoration
+
 **Assad did little to support the military ranks, analysts say.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/assad-did-little-to-support-the-military-ranks-analysts-say
 
-**Japanese star Roki Sasaki to be posted at next week’s Winter Meetings: Sources**\
+**Japanese star Roki Sasaki to be posted at next week’s Winter Meetings**\
 `The Dodgers remain among the perceived frontrunners for the services of Sasaki, whose youth and talent make him a top free agent.`\
 https://nytimes.com/athletic/5976411/2024/12/07/roki-sasaki-posting-winter-meetings/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976075/2024/12/07/trouba-gudas-anaheim-ducks-defen
 **Trump and Prince William Headline Guest List at Notre-Dame Reopening**\
 `Dozens of officials have been invited to Paris as the rebuilt cathedral welcomes visitors five years after a devastating fire.`\
 https://nytimes.com/2024/12/07/world/europe/trump-and-prince-william-headline-guest-list-at-notre-dame-reopening.html
-
-**Notre-Dame Reopens: Photos**\
-`As Notre-Dame reopens after a 2019 fire, here is a selection of scenes from the famous Paris cathedral during a weekend of preparations and ceremonies.`\
-https://nytimes.com/2024/12/07/world/europe/notre-dame-reopening-photos.html
-
-**Notre-Dame Reopening: Schedule of Events and How to Watch**\
-`A speech by President Emmanuel Macron and a religious service will precede the broadcast of a taped concert by French and international musical artists.`\
-https://nytimes.com/2024/12/07/world/europe/notre-dame-cathedral-reopen-watch-schedule.html
 
