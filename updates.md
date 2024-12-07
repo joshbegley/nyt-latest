@@ -1,3 +1,7 @@
+**Ilia Malinin, U.S. figure skating star, caps a perfect year and eyes Olympic glory**\
+`Behold the "Quad God," Ilia Malinin: The U.S. figure skating star just finished an undefeated 2024 and enters 2025 as the king of the sport.`\
+https://nytimes.com/athletic/5972398/2024/12/07/ilia-malinin-figure-skating-olympics-grand-prix-final/
+
 **Trump Attends Notre-Dame Ceremony in First Foreign Trip Since Election**\
 `At the ceremony, the president-elect took a seat next to President Emmanuel Macron of France, with whom he has had a rocky relationship.`\
 https://nytimes.com/2024/12/07/world/europe/trump-notre-dame-reopening-paris.html
