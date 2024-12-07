@@ -1,3 +1,7 @@
+**Should the Bruins trade or re-sign Trent Frederic?**\
+`Frederic does not have job security past this season, and if a deal doesn't look realistic, Boston should make him available.`\
+https://nytimes.com/athletic/5976874/2024/12/07/bruins-trent-frederic-trade-contract/
+
 **Giants, Willy Adames agree to 7-year, $182 million deal: Source**\
 `The shortstop is set to join San Francisco after agreeing to the largest contract in franchise history.`\
 https://nytimes.com/athletic/5944038/2024/12/07/san-francisco-giants-willy-adames-contract/
