@@ -1,3 +1,11 @@
+**U.S. warily eyes Syrian war, with spy agencies monitoring chemical weapons storage sites for signs of use.**\
+`“We are not going to insert ourselves to affect the outcome of this,” an them explained.`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-warily-eyes-syrian-war-with-spy-agencies-monitoring-chemical-weapons-storage-sites-for-signs-of-use
+
+**Is Joel Farabee part of the Flyers' future, or could he end up as trade bait?**\
+`Farabee could generate some trade interest on the market and his future with the organization is a bit hazy.`\
+https://nytimes.com/athletic/5976873/2024/12/07/flyers-joel-farabee-trade/
+
 **Just for Fun**\
 `John Kugelman’s puzzle turns on solvers, with a switch of the flip.`\
 https://nytimes.com/2024/12/07/crosswords/daily-puzzle-2024-12-08.html

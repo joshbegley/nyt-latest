@@ -1,3 +1,7 @@
+**UCF targeting Scott Frost for second stint as head coach: Source**\
+`Frost proved to be a great hire for UCF once, and the Knights are hoping he can be again.`\
+https://nytimes.com/athletic/5976946/2024/12/07/scott-frost-ucf-coaching-search/
+
 **U.S. warily eyes Syrian war, with spy agencies monitoring chemical weapons storage sites for signs of use.**\
 `“We are not going to insert ourselves to affect the outcome of this,” an them explained.`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-warily-eyes-syrian-war-with-spy-agencies-monitoring-chemical-weapons-storage-sites-for-signs-of-use
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/world/europe/france-notre-dame-reopening.html
 **Magic's Franz Wagner suffers oblique injury, will be out indefinitely**\
 `Wagner will be re-evaluated in four weeks. The Magic are still without All-Star forward Paolo Banchero, who has the same injury.`\
 https://nytimes.com/athletic/5976817/2024/12/07/franz-wagner-injury-update-orlando-magic/
-
-**Lowetide: Why the Oilers' farmhands in AHL Bakersfield are a unique group**\
-`The Condors are possibly the most unusual team in the history of Oilers minor-league affiliates.`\
-https://nytimes.com/athletic/5976481/2024/12/07/edmonton-oilers-2024-ahl-bakersfield/
 
