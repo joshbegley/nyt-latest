@@ -1,4 +1,8 @@
 **Mets sign Clay Holmes to 3-year deal: Sources**\
+`The Mets plan to use Holmes, who is a right-hander, as a starter.`\
+https://nytimes.com/athletic/5975739/2024/12/06/mets-clay-holmes-contract/
+
+**Mets sign Clay Holmes to 3-year deal: Sources**\
 `The Mets plan to use Holmes, who closed for the Yankees, as a starter.`\
 https://nytimes.com/athletic/5975739/2024/12/06/mets-sign-former-yankees-closer-clay-holmes-to-3-year-deal-sources/
 
