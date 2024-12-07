@@ -1,3 +1,7 @@
+**A Guy I Know Had a Liver Transplant. Now He’s Boozing Again.**\
+`The magazine’s Ethicist columnist on how to support someone with an addiction problem.`\
+https://nytimes.com/2024/12/06/magazine/liver-transplant-alcohol-ethics.html
+
 **Siege Deterrents**\
 `Luke K. Schreiber makes a stone-cold Saturday puzzle debut.`\
 https://nytimes.com/2024/12/06/crosswords/daily-puzzle-2024-12-07.html
