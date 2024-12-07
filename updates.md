@@ -1,3 +1,7 @@
+**West Ham's Antonio involved in car accident**\
+`West Ham United forward Michail Antonio was involved in a car accident on Saturday.`\
+https://nytimes.com/athletic/5976413/2024/12/07/michail-antonio-car-crash-west-ham/
+
 **'Idiotic' team mistake leads to Q1 exit for Lewis Hamilton in final Mercedes race**\
 `"I rarely have been so down about what has happened," Toto Wolff said about the poor result ahead of Lewis Hamilton's Mercedes finale.`\
 https://nytimes.com/athletic/5976435/2024/12/07/toto-wolff-lewis-hamilton-mercedes-qualifying-exit/

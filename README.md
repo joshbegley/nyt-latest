@@ -1,3 +1,15 @@
+**The Briefing: Brentford 4 Newcastle 2 - What's going on in defence? Barnes an enigma, away form a worry**\
+`Newcastle shipped four more goals in defeat to Brentford - The Athletic analyses the key themes from the Gtech Stadium`\
+https://nytimes.com/athletic/5965637/2024/12/07/brentford-4-newcastle-2-howe-barnes-defending/
+
+**The Briefing: Crystal Palace 2 Manchester City 2 - Guardiola's setup falters as City suffer another title blow**\
+`Thom Harris breaks down the main talking points from Manchester City's 2-2 draw with Crystal Palace`\
+https://nytimes.com/athletic/5965636/2024/12/07/crystal-palace-2-manchester-city-2-haaland-lewis-guardiola/
+
+**South Korea’s Leader Survives Impeachment Vote After His Power Grab**\
+`The country is thrown into deeper uncertainty after the governing party changes its stance and refuses to oust him. Protesters vowed to keep the pressure on.`\
+https://nytimes.com/2024/12/07/world/asia/south-korea-yoon-impeach.html
+
 **West Ham's Antonio involved in car accident**\
 `West Ham United forward Michail Antonio was involved in a car accident on Saturday.`\
 https://nytimes.com/athletic/5976413/2024/12/07/michail-antonio-car-crash-west-ham/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/07/world/syria-war-damascus/assad-did-little-to
 **Japanese star Roki Sasaki to be posted at next week’s Winter Meetings**\
 `The Dodgers remain among the perceived frontrunners for the services of Sasaki, whose youth and talent make him a top free agent.`\
 https://nytimes.com/athletic/5976411/2024/12/07/roki-sasaki-posting-winter-meetings/
-
-**Notre-Dame has been at the center of French culture and history for centuries.**\
-`By Richard Fausset`\
-https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/notre-dame-has-been-at-the-center-of-french-culture-and-history-for-centuries
-
-**Russia, an Assad ally, is unlikely to come to his aid.**\
-`By Anton Troianovski`\
-https://nytimes.com/live/2024/12/07/world/syria-war-damascus/russia-an-assad-ally-is-unlikely-to-come-to-his-aid
-
-**How Protesters Filled the Streets in South Korea’s Center of Power**\
-`Aerial photos show how tens of thousands of South Koreans gathered in the streets in Seoul to protest.`\
-https://nytimes.com/interactive/2024/12/07/world/asia/south-korea-protests-seoul-yoon.html
 
