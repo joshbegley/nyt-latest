@@ -1,3 +1,7 @@
+**Lando Norris takes pole for F1 season finale, McLaren on verge of title**\
+`The team sits 21 points ahead of Ferrari in the constructors’ standings before Sunday's race. `\
+https://nytimes.com/athletic/5976330/2024/12/07/lando-norris-pole-abu-dhabi-gp-f1/
+
 **The end of Ferrari's 'C²': A genuine F1 partnership faces its sunset in Abu Dhabi**\
 `Sainz and Leclerc clicked quickly as teammates, but the fan-favorite driver duo will part ways after the 2024 season finale.`\
 https://nytimes.com/athletic/5976230/2024/12/07/ferrari-carlos-sainz-charles-leclerc-f1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975800/2024/12/07/anthony-edwards-patience-streaki
 **Chi-Chi’s, the Former Mexican Restaurant Chain, Plans a Comeback**\
 `The chain, which closed in 2004, is poised for a revival next year after the son of one of the founders reached a deal with Hormel Foods.`\
 https://nytimes.com/2024/12/07/business/chi-chis-restaurant-mexican.html
-
-**Lakers' late-game lapses against Hawks cost them again, wrapping a rough road trip**\
-`While they put together a better effort in their overtime loss in Atlanta, the Lakers were 1-3 on a dreadful four-game road trip.`\
-https://nytimes.com/athletic/5975703/2024/12/07/lakers-lebron-james-anthony-davis-hawks/
 
