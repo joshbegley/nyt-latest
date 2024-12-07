@@ -1,3 +1,7 @@
+**Brazil extend kit partnership with Nike until 2038**\
+`The Brazil Football Federation (CBF) has signed a contract renewal with kit provider Nike that runs until 2038.`\
+https://nytimes.com/athletic/5976130/2024/12/07/brazil-kit-deal-nike/
+
 **Rodrygo out of Real Madrid's Girona trip with muscular injury**\
 `Real Madrid forward Rodrygo will miss Saturday&#8217;s La Liga fixture against Girona as a precaution due to a muscular problem.`\
 https://nytimes.com/athletic/5976135/2024/12/07/rodrygo-real-madrid-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/opinion/men-fiction-novels.html
 **Bluesky Is Different From X. For Now.**\
 `Users are looking for a more curated experience on a platform that is not constantly trying to get them to interact with brands.`\
 https://nytimes.com/2024/12/07/opinion/bluesky-x-social-media.html
-
-**Why Running the Government Like a Business Would Be a Disaster**\
-`A lot of what the government does is hard to quantify and involves complicated tasks that inevitably require bureaucratic coordination and, yes, inefficiency.`\
-https://nytimes.com/2024/12/07/opinion/doge-musk-ramaswamy-business-efficiency.html
 
