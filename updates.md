@@ -1,3 +1,7 @@
+**Just for Fun**\
+`John Kugelman’s puzzle turns on solvers, with a switch of the flip.`\
+https://nytimes.com/2024/12/07/crosswords/daily-puzzle-2024-12-08.html
+
 **MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
 https://nytimes.com/athletic/5891633/2024/12/07/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
