@@ -26,8 +26,8 @@ https://nytimes.com/athletic/5965636/2024/12/07/crystal-palace-2-manchester-city
 `The country was thrown into deeper uncertainty after the governing party changed its stance and refused to oust him. Protesters vowed to keep the pressure on.`\
 https://nytimes.com/2024/12/07/world/asia/south-korea-yoon-impeach.html
 
-**West Ham's Antonio involved in car accident**\
-`West Ham United forward Michail Antonio was involved in a car accident on Saturday.`\
+**West Ham's Antonio in stable condition after being involved in car accident**\
+`West Ham United forward Michail Antonio is in a stable condition in hospital after being involved in a car accident on Saturday.`\
 https://nytimes.com/athletic/5976413/2024/12/07/michail-antonio-car-crash-west-ham/
 
 **'Idiotic' team mistake leads to Q1 exit for Lewis Hamilton in final Mercedes race**\

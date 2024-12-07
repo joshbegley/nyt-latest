@@ -1,3 +1,7 @@
+**West Ham's Antonio in stable condition after being involved in car accident**\
+`West Ham United forward Michail Antonio is in a stable condition in hospital after being involved in a car accident on Saturday.`\
+https://nytimes.com/athletic/5976413/2024/12/07/michail-antonio-car-crash-west-ham/
+
 **Thousands of donors helped fund the reconstruction effort.**\
 `By Aurelien Breeden and Richard Fausset`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/thousands-of-donors-helped-fund-the-reconstruction-effort
