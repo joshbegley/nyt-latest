@@ -1,3 +1,11 @@
+**‘Wizard of Oz’ Slippers Sell at Auction for a Record $28 Million**\
+`The slippers worn by Judy Garland in “The Wizard of Oz” were stolen from the museum that bears her name in 2005 before investigators recovered them in 2018.`\
+https://nytimes.com/2024/12/07/us/wizard-oz-garland-ruby-slippers-auction.html
+
+**U.S. national security adviser says Syria has been abandoned by its key allies.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-national-security-adviser-says-syria-has-been-abandoned-by-its-key-allies
+
 **An N.Y.P.D. Manhunt Caught a Subway Shooter. This Time, It’s Different.**\
 `Capturing a suspect who slips away from a crime scene requires solid police work, help from the public and a little luck, experts say. So far, it’s not working.`\
 https://nytimes.com/2024/12/07/nyregion/uhc-ceo-manhunt-frank-james.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976978/2024/12/07/carson-beck-injury-update-georgi
 **Ancelotti plays down Bellingham injury concern but Mendy suffers setback**\
 `Jude Bellingham is &#8220;fine&#8221; despite asking to be substituted after suffering discomfort in Real Madrid&#8217;s win at Girona but Ferland Mendy has suffered an injury setback, Carlo Ancelotti has confirmed.`\
 https://nytimes.com/athletic/5976994/2024/12/07/jude-bellingham-injury-real-madrid-mendy/
-
-**Appalachian State names Dowell Loggains next head coach**\
-`The 14th-ranked Gamecocks are 9-3 this season and rank third in the SEC in rushing at 188 yards per game.`\
-https://nytimes.com/athletic/5976948/2024/12/07/appalachian-state-dowell-loggains-head-coach/
-
-**Unthinkable? A storybook season keeps getting better for surprise Big 12 champ Arizona State**\
-`From one week to the next, a good team has become great. And a storybook season keeps getting better.`\
-https://nytimes.com/athletic/5976900/2024/12/07/arizona-state-cam-skattebo-big-12-champs/
 
