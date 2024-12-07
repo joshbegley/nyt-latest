@@ -1,3 +1,11 @@
+**Trump Heads to Notre-Dame Ceremony in First Foreign Trip Since Election**\
+`The president-elect will be at the cathedral alongside dozens of world leaders. He was also set to meet with President Emmanuel Macron of France, with whom he has had a rocky relationship.`\
+https://nytimes.com/2024/12/07/world/europe/trump-paris-france-notre-dame-macron.html
+
+**Russini’s what I’m hearing: Cousins’ past and future, Belichick’s interest in college is real**\
+`Plus, the Al-Shaair debate rages on, how head-coaching candidates view the Bears and more.`\
+https://nytimes.com/athletic/5976024/2024/12/07/nfl-week-14-news-kirk-cousins-michael-penix-bill-belichick-north-carolina/
+
 **Lando Norris takes pole for F1 season finale, McLaren on verge of title**\
 `The team sits 21 points ahead of Ferrari in the constructors’ standings before Sunday's race. `\
 https://nytimes.com/athletic/5976330/2024/12/07/lando-norris-pole-abu-dhabi-gp-f1/
