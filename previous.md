@@ -1,3 +1,11 @@
+**Notre-Dame, in flames and reborn: a memory**\
+`A reporter looks back on the shared`\
+https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/notre-dame-in-flames-and-reborn-a-memory
+
+**In the Syrian Regime’s Hour of Need, Its Patron Iran Hits the Exits**\
+`The collapse of a partnership built over four decades would reshape the balance of power in the Middle East.`\
+https://nytimes.com/2024/12/07/world/middleeast/iran-syria-rebels.html
+
 **Nuno 'proud' of Forest team after victory at Man Utd**\
 `Nuno Espirito Santo says he is ‘proud of these moments’, after seeing his Nottingham Forest side secure their first win over Manchester United at Old Trafford in 30 years.`\
 https://nytimes.com/athletic/5976783/2024/12/07/nuno-nottingham-forest-anfield-old-trafford/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendm
 **Louisiana Amendment 3 Election Results: Extend Sessions for Appropriations**\
 `Get live results and maps from the 2024 Louisiana general election.`\
 https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendment-3-extend-sessions-for-appropriations.html
-
-**Louisiana Amendment 1 Election Results: Expand Judiciary Commission**\
-`Get live results and maps from the 2024 Louisiana general election.`\
-https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendment-1-expand-judiciary-commission.html
-
-**How A.I. Can Revive a Love of Learning**\
-`Modern technology offers new possibilities for transforming teaching.`\
-https://nytimes.com/2024/12/07/special-series/artificial-intelligence-schools-education.html
 

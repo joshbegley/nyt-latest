@@ -1,3 +1,11 @@
+**Notre-Dame, in flames and reborn: a memory**\
+`A reporter looks back on the shared`\
+https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/notre-dame-in-flames-and-reborn-a-memory
+
+**In the Syrian Regime’s Hour of Need, Its Patron Iran Hits the Exits**\
+`The collapse of a partnership built over four decades would reshape the balance of power in the Middle East.`\
+https://nytimes.com/2024/12/07/world/middleeast/iran-syria-rebels.html
+
 **Nuno 'proud' of Forest team after victory at Man Utd**\
 `Nuno Espirito Santo says he is ‘proud of these moments’, after seeing his Nottingham Forest side secure their first win over Manchester United at Old Trafford in 30 years.`\
 https://nytimes.com/athletic/5976783/2024/12/07/nuno-nottingham-forest-anfield-old-trafford/
