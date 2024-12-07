@@ -1,3 +1,11 @@
+**Chi-Chi’s, the Former Mexican Restaurant Chain, Plans a Comeback**\
+`The chain, which closed in 2004, is poised for a revival next year after the son of one of the founders reached a deal with Hormel Foods.`\
+https://nytimes.com/2024/12/07/business/chi-chis-restaurant-mexican.html
+
+**Lakers' late-game lapses against Hawks cost them again, wrapping a rough road trip**\
+`While they put together a better effort in their overtime loss in Atlanta, the Lakers were 1-3 on a dreadful four-game road trip.`\
+https://nytimes.com/athletic/5975703/2024/12/07/lakers-lebron-james-anthony-davis-hawks/
+
 **Amber Glenn wins U.S. women's figure skating's biggest title in 14 years**\
 `American Amber Glenn continued her surprising rise in women's figure skating, winning the Grand Prix Final title on Saturday.`\
 https://nytimes.com/athletic/5974368/2024/12/07/amber-glenn-figure-skating-grand-prix-final-gold/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/07/books/read-like-wind-recommendations.html
 **Brazil extend kit partnership with Nike until 2038**\
 `The Brazil Football Federation (CBF) has signed a contract renewal with kit provider Nike that runs until 2038.`\
 https://nytimes.com/athletic/5976130/2024/12/07/brazil-kit-deal-nike/
-
-**Rodrygo out of Real Madrid's Girona trip with muscular injury**\
-`Real Madrid forward Rodrygo will miss Saturday&#8217;s La Liga fixture against Girona as a precaution due to a muscular problem.`\
-https://nytimes.com/athletic/5976135/2024/12/07/rodrygo-real-madrid-injury-update/
-
-**How the Oilers' bets on Vasily Podkolzin and Ty Emberson are paying off**\
-`The Oilers added both players late in the offseason effectively to replace Dylan Holloway and Philip Brobeg.`\
-https://nytimes.com/athletic/5974132/2024/12/07/oilers-vasily-podkolzin-ty-emberson/
 
