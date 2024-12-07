@@ -1,3 +1,7 @@
+**A Times reporter got a look inside Notre-Dame before its grand unveiling.**\
+`By Aurelien Breeden`\
+https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/a-times-reporter-got-a-look-inside-notre-dame-before-its-grand-unveiling
+
 **F1 Abu Dhabi preview: McLaren on the cusp of glory, Hamilton's Mercedes farewell**\
 `The season finale will wrap up the constructors' championship and (possibly) a few F1 careers.`\
 https://nytimes.com/athletic/5976429/2024/12/07/f1-abu-dhabi-gp-preview-mclaren-championship-ferrari-lewis-hamilton/
