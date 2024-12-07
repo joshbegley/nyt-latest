@@ -1,3 +1,11 @@
+**Unidentified Drones Light Up New Jersey’s Skies, Baffling Residents**\
+`People across the state have reported seeing scores of large, low-flying objects in recent weeks. Officials haven’t said where they’re coming from, or why they’re here.`\
+https://nytimes.com/2024/12/07/nyregion/new-jersey-drones.html
+
+**Orioles, Tyler O'Neill agree to 3-year, $49.5 million deal: Source**\
+`O'Neill's pact with Baltimore contains an opt-out after the 2025 season. He hit 31 home runs in 2024 for the Red Sox.`\
+https://nytimes.com/athletic/5977115/2024/12/07/orioles-tyler-oneill-contract/
+
 **MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
 https://nytimes.com/athletic/5891633/2024/12/07/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/

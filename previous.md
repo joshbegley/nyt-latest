@@ -1,3 +1,11 @@
+**Unidentified Drones Light Up New Jersey’s Skies, Baffling Residents**\
+`People across the state have reported seeing scores of large, low-flying objects in recent weeks. Officials haven’t said where they’re coming from, or why they’re here.`\
+https://nytimes.com/2024/12/07/nyregion/new-jersey-drones.html
+
+**Orioles, Tyler O'Neill agree to 3-year, $49.5 million deal: Source**\
+`O'Neill's pact with Baltimore contains an opt-out after the 2025 season. He hit 31 home runs in 2024 for the Red Sox.`\
+https://nytimes.com/athletic/5977115/2024/12/07/orioles-tyler-oneill-contract/
+
 **MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
 https://nytimes.com/athletic/5891633/2024/12/07/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976919/2024/12/07/sabres-utah-kevyn-adams-palm-tre
 **Notre-Dame Cathedral in Paris Reopens After Five-Year Renovation**\
 `World leaders and global dignitaries celebrated the cathedral’s reconstruction following a fire that devoured its roof in 2019.`\
 https://nytimes.com/video/world/europe/100000009865459/notre-dame-cathedral-paris.html
-
-**MLS Cup final briefing: LA Galaxy 2 New York Red Bulls 1 - No Puig, no problem as Vanney's team win sixth MLS Cup**\
-`Paintsil and Joveljic scored the goals as Galaxy made a blistering start on home soil to win their sixth MLS Cup title.`\
-https://nytimes.com/athletic/5976906/2024/12/07/la-galaxy-mls-cup-final-win-red-bulls/
-
-**Georgia's Carson Beck ruled out of SEC championship before second half**\
-`Beck went 7-for-13 for 56 yards in the first two frames. He lost 15 yards on the ground.`\
-https://nytimes.com/athletic/5976978/2024/12/07/carson-beck-injury-update-georgia-qb/
 
