@@ -1,3 +1,15 @@
+**Canada’s 988 Crisis Hotline, a ‘Pathway to Survival,’ One Year Later**\
+`The hotline responded to more than 300,000 calls and texts in its inaugural year, reinforcing appeals for Canada to establish a national suicide prevention strategy.`\
+https://nytimes.com/2024/12/07/world/canada/canada-988-hotline-suicide-prevention.html
+
+**Wordle Review No. 1,268**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 8, 2024.`\
+https://nytimes.com/2024/12/07/crosswords/wordle-review-1268.html
+
+**The Connections Companion No. 546**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 8, 2024.`\
+https://nytimes.com/2024/12/07/crosswords/connections-companion-546.html
+
 **Syria’s Assad Regime Fights to Survive Rebel Onslaught**\
 `The longtime Syrian dictator Bashar al-Assad is facing threats from rebellions on multiple fronts and his key ally, Iran, is paring back support.`\
 https://nytimes.com/2024/12/07/world/middleeast/syria-assad-homs-damascus-rebels.html

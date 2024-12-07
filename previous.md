@@ -1,3 +1,15 @@
+**Canada’s 988 Crisis Hotline, a ‘Pathway to Survival,’ One Year Later**\
+`The hotline responded to more than 300,000 calls and texts in its inaugural year, reinforcing appeals for Canada to establish a national suicide prevention strategy.`\
+https://nytimes.com/2024/12/07/world/canada/canada-988-hotline-suicide-prevention.html
+
+**Wordle Review No. 1,268**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 8, 2024.`\
+https://nytimes.com/2024/12/07/crosswords/wordle-review-1268.html
+
+**The Connections Companion No. 546**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 8, 2024.`\
+https://nytimes.com/2024/12/07/crosswords/connections-companion-546.html
+
 **Syria’s Assad Regime Fights to Survive Rebel Onslaught**\
 `The longtime Syrian dictator Bashar al-Assad is facing threats from rebellions on multiple fronts and his key ally, Iran, is paring back support.`\
 https://nytimes.com/2024/12/07/world/middleeast/syria-assad-homs-damascus-rebels.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/07/style/holiday-gift-guide-fatigue.html
 **Sex, a Hex and a Sick Child Offer Clues to an Epidemic’s Birth**\
 `In a remote Congolese town, a medical mystery led to the discovery of alarming changes in the mpox virus and, eventually, to a global health emergency.`\
 https://nytimes.com/2024/12/07/health/mpox-virus-congo.html
-
-**How Alarmed Harris Staffers Went Rogue to Reach Black and Latino Voters**\
-`Worried that the campaign was neglecting voters of color in Philadelphia and other battleground cities, organizers secretly gathered at a Dunkin’ Donuts and elsewhere to get out the vote.`\
-https://nytimes.com/2024/12/07/us/politics/harris-philadelphia-black-latino-voters.html
-
-**Payments Are Going Digital, but Many Seniors Still Rely on Cash**\
-`“We’re putting another burden on the elderly that we don’t have to,” one researcher said.`\
-https://nytimes.com/2024/12/07/health/elderly-cash-electronic-payments.html
-
-**To Show His Health Credentials, Kennedy Ditches His Shirt**\
-`Robert F. Kennedy Jr., President-elect Trump’s choice to lead the Department of Health and Human Services, has repeatedly showed off his physique on social media.`\
-https://nytimes.com/2024/12/07/style/rfk-jr-shirtless-videos.html
 
