@@ -1,3 +1,7 @@
+**Mets sign Clay Holmes to 3-year deal: Sources**\
+`The Mets plan to use Holmes, who closed for the Yankees, as a starter.`\
+https://nytimes.com/athletic/5975739/2024/12/06/mets-sign-former-yankees-closer-clay-holmes-to-3-year-deal-sources/
+
 **Fighting Over a ‘Flawless’ Campaign**\
 `Leaders of the Trump and Harris campaigns met this week to talk tactics. It wasn’t pretty.`\
 https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
 **The Silicon Valley Billionaires Steering Trump’s Transition**\
 `The involvement of wealthy investors has made this presidential transition one of the most potentially conflict-ridden in modern history.`\
 https://nytimes.com/2024/12/06/us/politics/trump-elon-musk-silicon-valley.html
-
-**Iran Begins to Evacuate Military Officials and Personnel From Syria**\
-`The withdrawals by one of President Bashar al-Assad’s key backers come amid a resurgent rebel offensive.`\
-https://nytimes.com/2024/12/06/world/middleeast/iran-syria-evacuation.html
 
