@@ -1,3 +1,7 @@
+**Nuno 'proud' of Forest team after victory at Man Utd**\
+`Nuno Espirito Santo says he is ‘proud of these moments’, after seeing his Nottingham Forest side secure their first win over Manchester United at Old Trafford in 30 years.`\
+https://nytimes.com/athletic/5976783/2024/12/07/nuno-nottingham-forest-anfield-old-trafford/
+
 **Amorim 'not surprised' by Manchester United's back-to-back defeats**\
 `Manchester United head coach Ruben Amorim has said he is not surprised by his side losing successive Premier League matches against Arsenal and Nottingham Forest.`\
 https://nytimes.com/athletic/5976789/2024/12/07/ruben-amorim-manchester-united-defeats/
