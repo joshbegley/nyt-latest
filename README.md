@@ -1,3 +1,7 @@
+**An N.Y.P.D. Manhunt Caught a Subway Shooter. This Time, It’s Different.**\
+`Capturing a suspect who slips away from a crime scene requires solid police work, help from the public and a little luck, experts say. So far, it’s not working.`\
+https://nytimes.com/2024/12/07/nyregion/uhc-ceo-manhunt-frank-james.html
+
 **Cam Skattebo strikes a pose and makes a statement: He belongs on the sport's biggest stage**\
 `Given a spotlight, Arizona State’s running back left no doubt, leading the Sun Devils to a 45-19 win over Iowa State and into the CFP. `\
 https://nytimes.com/athletic/5977011/2024/12/07/cam-skattebo-arizona-state-heisman-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976948/2024/12/07/appalachian-state-dowell-loggain
 **Unthinkable? A storybook season keeps getting better for surprise Big 12 champ Arizona State**\
 `From one week to the next, a good team has become great. And a storybook season keeps getting better.`\
 https://nytimes.com/athletic/5976900/2024/12/07/arizona-state-cam-skattebo-big-12-champs/
-
-**UCF targeting Scott Frost for second stint as head coach: Source**\
-`Frost proved to be a great hire for UCF once, and the Knights are hoping he can be again.`\
-https://nytimes.com/athletic/5976946/2024/12/07/scott-frost-ucf-coaching-search/
 
