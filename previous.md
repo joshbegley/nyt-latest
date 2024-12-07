@@ -1,3 +1,7 @@
+**Oregon vs. Penn State: How to watch, picks, odds for Big Ten Championship Game**\
+`Can Oregon stay undefeated and get the first-round bye in the College Football Playoff? The Ducks are favored against Penn State.`\
+https://nytimes.com/athletic/5974657/2024/12/07/oregon-penn-state-how-to-watch-picks-odds-big-ten-championship-game/
+
 **Tilda Swinton Would Like a Word With Trump About His Mother**\
 `The Academy Award-winning actress discusses her lifelong quest for connection, humanity’s innate goodness and the point of being alive.`\
 https://nytimes.com/2024/12/07/magazine/tilda-swinton-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/style/rfk-jr-shirtless-videos.html
 **Lust and Loss in the Upper Ranks of the Black Panther Party**\
 `Fabienne Josaphat’s novel “Kingdom of No Tomorrow” sets a love triangle amid late-1960s Oakland and Chicago.`\
 https://nytimes.com/2024/12/07/books/review/kingdom-of-no-tomorrow-fabienne-josaphat.html
-
-**Backers of Most U.S. Mortgages Have Done Little About Climate Risks**\
-`Fannie Mae and Freddie Mac know increasing floods and wildfires are a problem. Dealing with them, however, would require trade-offs.`\
-https://nytimes.com/2024/12/07/business/economy/mortgages-climate-risk-fannie-freddie.html
 
