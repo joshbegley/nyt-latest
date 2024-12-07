@@ -1,5 +1,5 @@
 **The Briefing: Manchester United 2 Nottingham Forest 3 - Set-piece pain, haphazard defending and a humbling loss**\
-`Laurie Whitwell and Charlotte Harpur break down the main talking points from Manchester United's 3-2 loss to Nottingham Forest`\
+`Laurie Whitwell and Charlotte Harpur break down the main talking points from Manchester United's home loss to Nottingham Forest`\
 https://nytimes.com/athletic/5965660/2024/12/07/manchester-united-2-nottingham-forest-3-hojlund-fernandes-loss/
 
 **13 insights fantasy football managers need to know ahead of Week 14**\
