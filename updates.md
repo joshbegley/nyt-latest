@@ -1,3 +1,11 @@
+**The end of Ferrari's 'C²': A genuine F1 partnership faces its sunset in Abu Dhabi**\
+`Sainz and Leclerc clicked quickly as teammates, but the fan-favorite driver duo will part ways after the 2024 season finale.`\
+https://nytimes.com/athletic/5976230/2024/12/07/ferrari-carlos-sainz-charles-leclerc-f1/
+
+**College Football Playoff 2024 projections: What will the 12-team bracket look like?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-projections-odds/
+
 **Why Are We So Obsessed With the Moon?**\
 `Lunar exploration in the 21st century offers a unique opportunity to unite us.`\
 https://nytimes.com/2024/12/07/special-series/moon-space-law.html
