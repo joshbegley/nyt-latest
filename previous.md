@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5976874/2024/12/07/bruins-trent-frederic-trade-contract/
 
 **2 Indianapolis Officers Are Acquitted of Manslaughter in 2022 Death**\
-`Herman Whitfield III had told officers “I’m dying” and that he couldn’t breath after one of the officers deployed a Taser, according to body camera footage.`\
+`Herman Whitfield III had told officers “I’m dying” and that he couldn’t breathe after one of the officers deployed a Taser, according to body camera footage.`\
 https://nytimes.com/2024/12/07/us/indianapolis-police-taser-acquitted-manslaughter.html
 
 **With Pageantry and Dignitaries, France Unveils a Reborn Notre-Dame**\
@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5976481/2024/12/07/edmonton-oilers-2024-ahl-bakersf
 https://nytimes.com/athletic/5976834/2024/12/07/mlb-free-agency-orioles-mets/
 
 **Ilia Malinin, U.S. figure skating star, caps a perfect year and eyes Olympic glory**\
-`Behold the "Quad God," Ilia Malinin: The U.S. figure skating star just finished an undefeated 2024 and enters 2025 as the king of the sport.`\
+`Behold the "Quad God": The U.S. figure skating star just finished an undefeated 2024 and enters 2025 as the king of the sport.`\
 https://nytimes.com/athletic/5972398/2024/12/07/ilia-malinin-figure-skating-olympics-grand-prix-final/
 
 **Trump Attends Notre-Dame Ceremony in First Foreign Trip Since Election**\
