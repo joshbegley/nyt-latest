@@ -1,3 +1,19 @@
+**A.I. Will Transform the Global Economy — if Humans Let It**\
+`We asked a group of business leaders to consider how businesses can benefit from artificial intelligence.`\
+https://nytimes.com/2024/12/07/special-series/ai-transform-global-economy.html
+
+**What's next for the Rangers after the Trouba trade and Shesterkin extension?**\
+`New York has cap space to make short-term moves after moving Trouba — and a better sense of future after locking up Shesterkin.`\
+https://nytimes.com/athletic/5976482/2024/12/07/trouba-trade-shesterkin-extension-rangers-future/
+
+**The reopening gives an embattled Macron a rare public triumph.**\
+`By Adam Nossiter, Aurelien Breeden and Richard Fausset`\
+https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/the-reopening-gives-an-embattled-macron-a-rare-public-triumph
+
+**Lindsey Vonn, at 40, returns to competitive skiing with two downhill races**\
+`Lindsey Vonn's unlikely bid to get back to the top of skiing started Saturday, with two downhill races in Colorado she used as "training."`\
+https://nytimes.com/athletic/5976478/2024/12/07/lindsey-vonn-returns-skiing-downhill-world-cup-olympics/
+
 **West Ham's Antonio in stable condition after being involved in car accident**\
 `West Ham United forward Michail Antonio is in a stable condition in hospital after being involved in a car accident on Saturday.`\
 https://nytimes.com/athletic/5976413/2024/12/07/michail-antonio-car-crash-west-ham/
