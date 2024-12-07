@@ -1,3 +1,7 @@
+**With chippy play and a competitive edge, Celtics down Bucks despite cold shooting**\
+`Most teams don’t thrive on their worst shooting nights. Boston did in its rivalry game.`\
+https://nytimes.com/athletic/5975942/2024/12/07/celtics-bucks-al-horford-compete/
+
 **How Teddy Blueger and Canucks staged dramatic comeback win over Blue Jackets: 3 takeaways**\
 `Friday night the Canucks picked up 2 points, winning for the fifth time in their past seven games.`\
 https://nytimes.com/athletic/5975885/2024/12/07/canucks-comeback-win-blue-jackets-teddy-blueger/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5974818/2024/12/07/everton-liverpool-preview-odds-p
 **Iowa State vs. Arizona State: How to watch, picks, odds for Pac-12 Championship Game**\
 `Arizona State and Iowa State meet in the Big 12 Championship Game with a spot in the College Football Playoff on the line.`\
 https://nytimes.com/athletic/5974549/2024/12/07/iowa-state-arizona-state-how-to-watch-picks-odds-pac-12-championship-game/
-
-**A Filipino Holiday Tradition, Perhaps Best Not Made at Home**\
-`This year, I found a new way to celebrate my heritage through parols, colorful star-shaped lanterns.`\
-https://nytimes.com/2024/12/07/style/parols-filipino-decoration-stars.html
 
