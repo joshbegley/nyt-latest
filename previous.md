@@ -1,3 +1,19 @@
+**Detectives Scour Thousands of Hours of Video for Clues in C.E.O. Killing**\
+`Cameras are everywhere in Manhattan and they helped lead investigators to a distinctive backpack in Central Park that could be a key piece of physical evidence.`\
+https://nytimes.com/2024/12/07/nyregion/ceo-brian-thompson-gunman-video.html
+
+**How Catherine Russell, of ‘Perfect Crime,’ Spends Her Sundays**\
+`Ms. Russell, who hasn’t missed a performance of her Off Broadway show in nearly 30 years, fills her day with pets, church, teaching and two shows.`\
+https://nytimes.com/2024/12/07/nyregion/catherine-russell-perfect-crime.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/07/crosswords/spelling-bee-forum.html
+
+**Brighton head coach Hurzeler opens door to January loan exits**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler says it is &#8220;possible&#8221; there will be further attacking loan departures in the January transfer window.`\
+https://nytimes.com/athletic/5974841/2024/12/07/brighton-january-transfer-window-exits/
+
 **Critical error by goalie Elvis Merzlikins drains Blue Jackets after fast start**\
 `"That hurt, right?" coach Dean Evason said. "It's a nothing play and it ends up in our net."`\
 https://nytimes.com/athletic/5975959/2024/12/07/elvis-merzlikins-mistake-blue-jackets-provorov/
@@ -21,21 +37,4 @@ https://nytimes.com/athletic/5975885/2024/12/07/canucks-comeback-win-blue-jacket
 **LA Galaxy and New York Red Bulls: Two originals go head-to-head in MLS Cup**\
 `Major League Soccer is so often fixated by the shiny new thing but with no Inter Miami and no Lionel Messi, this is a compelling match-up`\
 https://nytimes.com/athletic/5972679/2024/12/07/mls-cup-la-galaxy-new-york-red-bulls/
-
-**Remembering Kath Phipps: 'She treated everyone at Man United like royalty. She was royalty herself'**\
-`United's receptionist for 56 years, her death was announced this week, aged 85. Here, players and managers pay tribute to a club legend`\
-https://nytimes.com/athletic/5971680/2024/12/07/kath-phipps-man-united-receptionist-tribute/
-
-**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
-`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
-`\
-https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
-
-**Rangers get much-needed win after busy, 'tough' day: 4 takeaways**\
-`The Rangers earned their second victory in the past eight days as they adjust to playing without their former captain. `\
-https://nytimes.com/athletic/5975863/2024/12/07/rangers-penguins-jacob-trouba-trade/
-
-**Analysing the managers who might be able to fix Wolves, West Ham and Southampton**\
-`We analyse the numbers to see who might be able to transform the fortunes of the Premier League's crisis clubs `\
-https://nytimes.com/athletic/5974772/2024/12/07/wolves-west-ham-southampton-manager-options/
 

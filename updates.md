@@ -1,3 +1,19 @@
+**Detectives Scour Thousands of Hours of Video for Clues in C.E.O. Killing**\
+`Cameras are everywhere in Manhattan and they helped lead investigators to a distinctive backpack in Central Park that could be a key piece of physical evidence.`\
+https://nytimes.com/2024/12/07/nyregion/ceo-brian-thompson-gunman-video.html
+
+**How Catherine Russell, of ‘Perfect Crime,’ Spends Her Sundays**\
+`Ms. Russell, who hasn’t missed a performance of her Off Broadway show in nearly 30 years, fills her day with pets, church, teaching and two shows.`\
+https://nytimes.com/2024/12/07/nyregion/catherine-russell-perfect-crime.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/07/crosswords/spelling-bee-forum.html
+
+**Brighton head coach Hurzeler opens door to January loan exits**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler says it is &#8220;possible&#8221; there will be further attacking loan departures in the January transfer window.`\
+https://nytimes.com/athletic/5974841/2024/12/07/brighton-january-transfer-window-exits/
+
 **The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
 `The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
 `\
