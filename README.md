@@ -2,10 +2,6 @@
 `Hadrian’s Aqueduct supplied water to Greece’s capital for centuries but was then largely abandoned. It’s being revived to ease water scarcity amid global warming.`\
 https://nytimes.com/2024/12/07/world/europe/greece-athens-hadrians-aqueduct-water.html
 
-**Everton vs Liverpool preview: Storylines, odds, prediction for Merseyside derby**\
-`Liverpool is coming off a draw away from home and faces a Merseyside derby at Everton on Saturday.`\
-https://nytimes.com/athletic/5974818/2024/12/07/everton-liverpool-preview-odds-prediction/
-
 **Iowa State vs. Arizona State: How to watch, picks, odds for Pac-12 Championship Game**\
 `Arizona State and Iowa State meet in the Big 12 Championship Game with a spot in the College Football Playoff on the line.`\
 https://nytimes.com/athletic/5974549/2024/12/07/iowa-state-arizona-state-how-to-watch-picks-odds-pac-12-championship-game/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5975824/2024/12/06/boise-state-unlv-mountain-west-c
 **Penguins play loose and get cooled off by Rangers: 3 takeaways**\
 `The Rangers snapped the Penguins' four-game winning streak with a 4-2 win.`\
 https://nytimes.com/athletic/5975804/2024/12/06/penguins-rangers-takeaways-analysis/
+
+**What to expect next from the Golden State Valkyries after WNBA expansion draft**\
+`The Valkyries drafted to win now, but expect many changes for the long-term future of the new franchise.`\
+https://nytimes.com/athletic/5975808/2024/12/06/golden-state-valkyries-wnba-expansion-draft/
 
