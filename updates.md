@@ -1,3 +1,7 @@
+**Rodrygo out of Real Madrid's Girona trip with muscular injury**\
+`Real Madrid forward Rodrygo will miss Saturday&#8217;s La Liga fixture against Girona as a precaution due to a muscular problem.`\
+https://nytimes.com/athletic/5976135/2024/12/07/rodrygo-real-madrid-injury-update/
+
 **How the Oilers' bets on Vasily Podkolzin and Ty Emberson are paying off**\
 `The Oilers added both players late in the offseason effectively to replace Dylan Holloway and Philip Brobeg.`\
 https://nytimes.com/athletic/5974132/2024/12/07/oilers-vasily-podkolzin-ty-emberson/
