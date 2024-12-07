@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
 
+**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
+`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
+`\
+https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
+
 **Critical error by goalie Elvis Merzlikins drains Blue Jackets after fast start**\
 `"That hurt, right?" coach Dean Evason said. "It's a nothing play and it ends up in our net."`\
 https://nytimes.com/athletic/5975959/2024/12/07/elvis-merzlikins-mistake-blue-jackets-provorov/
