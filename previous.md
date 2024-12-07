@@ -1,3 +1,7 @@
+**Why Jeff Bezos Likes ‘Messy’ Meetings**\
+`The billionaire founder of Amazon spoke with Andrew Ross Sorkin at the DealBook Summit.`\
+https://nytimes.com/2024/12/07/business/dealbook/why-jeff-bezos-likes-messy-meetings.html
+
 **Short, Sweet Reads for Fans of the American Absurd**\
 `A Don DeLillo novel; a Joy Williams short story.`\
 https://nytimes.com/2024/12/07/books/read-like-wind-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972813/2024/12/07/nhl-season-bold-predictions-anal
 **What Republicans and Democrats Get Wrong About Crime**\
 `An evidence-based approach to criminal justice would tell us that policing works and long prison sentences do not.`\
 https://nytimes.com/2024/12/07/opinion/crime-prison-police-republicans-democrats.html
-
-**The Disappearance of Literary Men Should Worry Everyone**\
-`What happens if half the population is no longer involved in reading and writing?`\
-https://nytimes.com/2024/12/07/opinion/men-fiction-novels.html
 

@@ -1,3 +1,7 @@
+**Why Jeff Bezos Likes ‘Messy’ Meetings**\
+`The billionaire founder of Amazon spoke with Andrew Ross Sorkin at the DealBook Summit.`\
+https://nytimes.com/2024/12/07/business/dealbook/why-jeff-bezos-likes-messy-meetings.html
+
 **Short, Sweet Reads for Fans of the American Absurd**\
 `A Don DeLillo novel; a Joy Williams short story.`\
 https://nytimes.com/2024/12/07/books/read-like-wind-recommendations.html
