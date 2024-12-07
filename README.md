@@ -1,3 +1,7 @@
+**Russia, an Assad ally, is unlikely to come to his aid.**\
+`By Anton Troianovski`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus/russia-an-assad-ally-is-unlikely-to-come-to-his-aid
+
 **How Protesters Filled the Streets in South Korea’s Center of Power**\
 `Aerial photos show how tens of thousands of South Koreans gathered in the streets in Seoul to protest.`\
 https://nytimes.com/interactive/2024/12/07/world/asia/south-korea-protests-seoul-yoon.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/07/world/notre-dame-reopen
 **Syria Live Updates: Government Forces Withdraw From Damascus Suburbs, Monitors Say**\
 `Two war monitoring groups said Syria’s military had pulled out of a number of Damascus suburbs where anti-government protests erupted. The movements could not immediately be confirmed.`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus
-
-**FIU hires Willie Simmons as next head football coach**\
-`Tim Harris Jr., most recently the offensive coordinator at UCF, was a finalist for the job.`\
-https://nytimes.com/athletic/5976300/2024/12/07/fiu-football-coach-willie-simmons/
 
