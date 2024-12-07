@@ -1,3 +1,11 @@
+**Will ASU get a bye? What we're learning about the Playoff from conference title games**\
+`College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
+https://nytimes.com/athletic/5976722/2024/12/07/college-football-playoff-bracket-conference-championship-games/
+
+**Silvia Pinal, Golden Age Star of Mexican Cinema, Is Dead**\
+`She found outsize success in her native land and gained international recognition for her work with the acclaimed Spanish surrealist director Luis Buñuel.`\
+https://nytimes.com/2024/12/07/movies/silvia-pinal-dead.html
+
 **Louisiana Constitutional Amendment Election Results**\
 `Get live results and maps from the 2024 Louisiana elections on constitutional amendments.`\
 https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana.html
