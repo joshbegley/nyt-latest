@@ -1,3 +1,11 @@
+**Why Are We So Obsessed With the Moon?**\
+`Lunar exploration in the 21st century offers a unique opportunity to unite us.`\
+https://nytimes.com/2024/12/07/special-series/moon-space-law.html
+
+**Analysing Sir Jim Ratcliffe's interview about Man Utd's ticket prices, recruitment, morale and more**\
+`Manchester United's co-owner has spoken about where the club is going wrong and how he plans to fix it`\
+https://nytimes.com/athletic/5975254/2024/12/07/sir-jim-ratcliffe-interview-manchester-united/
+
 **Former Roma CEO Souloukou to join Marinakis' multi-club model**\
 `Former Roma chief executive officer Lina Souloukou is set to be appointed CEO of Nottingham Forest owner Evangelos Marinakis&#8217; multi-club model.`\
 https://nytimes.com/athletic/5976268/2024/12/07/lina-souloukou-evangelos-marinakis-ceo/

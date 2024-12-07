@@ -1,3 +1,11 @@
+**Why Are We So Obsessed With the Moon?**\
+`Lunar exploration in the 21st century offers a unique opportunity to unite us.`\
+https://nytimes.com/2024/12/07/special-series/moon-space-law.html
+
+**Analysing Sir Jim Ratcliffe's interview about Man Utd's ticket prices, recruitment, morale and more**\
+`Manchester United's co-owner has spoken about where the club is going wrong and how he plans to fix it`\
+https://nytimes.com/athletic/5975254/2024/12/07/sir-jim-ratcliffe-interview-manchester-united/
+
 **Former Roma CEO Souloukou to join Marinakis' multi-club model**\
 `Former Roma chief executive officer Lina Souloukou is set to be appointed CEO of Nottingham Forest owner Evangelos Marinakis&#8217; multi-club model.`\
 https://nytimes.com/athletic/5976268/2024/12/07/lina-souloukou-evangelos-marinakis-ceo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5974368/2024/12/07/amber-glenn-figure-skating-grand
 **Zak Brown reveals McLaren F1 was ‘on the brink’ financially before 2020 investment**\
 `McLaren is on the verge of winning its first F1 constructors’ championship since 1998 at the Abu Dhabi GP.`\
 https://nytimes.com/athletic/5976191/2024/12/07/mclaren-f1-zak-brown-2020-investment/
-
-**Mandel: It's fitting that Boise State is first G5 team to take advantage of expanded Playoff**\
-`The Broncos will be in on Sunday. There’s no overstating the significance of this moment, not just for Boise State but for college football.`\
-https://nytimes.com/athletic/5976172/2024/12/07/boise-state-unlv-mountain-west-college-football-playoff/
-
-**Club World Cup 2025: Group tables, how teams qualified and the full fixture list**\
-`The 32 teams were drawn into eight groups of four to discover their opponents for the tournament, which will be held across 11 U.S. cities`\
-https://nytimes.com/athletic/5972672/2024/12/07/club-world-cup-2025-groups-fixture-list/
 
