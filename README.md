@@ -7,10 +7,10 @@ https://nytimes.com/athletic/5975678/2024/12/06/wnba-golden-state-valkyries-rost
 https://nytimes.com/2024/12/06/nyregion/nyc-schools-education-department-lawsuits.html
 
 **Here are the latest developments in South Korea.**\
-`By Choe Sang-Hun and John Yoon`\
+`By Choe Sang-Hun`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
 
-**Live Updates: South Korea’s President Addresses Nation Ahead of Impeachment Vote**\
+**Live Updates: South Korea’s President Apologizes for Martial Law Ahead of Impeachment Vote**\
 `President Yoon Suk Yeol’sfaces growing calls to resign as massive demonstrations against him are scheduled to be held in Seoul on Saturday.`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
 
