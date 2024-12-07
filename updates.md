@@ -1,3 +1,11 @@
+**Corrections: Dec. 7, 2024**\
+`Corrections that appeared in print on Saturday, Dec. 7, 2024.`\
+https://nytimes.com/2024/12/06/pageoneplus/corrections-dec-7-2024.html
+
+**South Korea’s President Apologizes**\
+`With lawmakers set to vote Saturday on whether to impeach President Yoon Suk Yeol, he said in a televised address that he was deeply sorry that his martial law declaration caused “anxiety and discomfort.”`\
+https://nytimes.com/video/world/asia/100000009864642/south-korea-yoon-apology.html
+
 **Mets sign Clay Holmes to 3-year deal: Sources**\
 `The Mets plan to use Holmes, who is a right-hander, as a starter.`\
 https://nytimes.com/athletic/5975739/2024/12/06/mets-clay-holmes-contract/
