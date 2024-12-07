@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-fut
 `\
 https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
 
+**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
+`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
+`\
+https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
+
 **Large Protests in Seoul Call for South Korean President’s Impeachment**\
 `Demonstrations in the city and around the country have intensified since President Yoon Suk Yeol’s audacious, though short-lived, declaration of martial law.`\
 https://nytimes.com/2024/12/07/world/asia/south-korea-protests-president-impeach.html
