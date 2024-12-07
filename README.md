@@ -1,3 +1,7 @@
+**The leader of Syria’s rebels told The Times that their aim is to oust al-Assad.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus/the-leader-of-syrias-rebels-told-the-times-that-their-aim-is-to-oust-al-assad
+
 **Impeachment Bid Against South Korea’s President Fails**\
 `The country was thrown into deeper uncertainty after the governing party refused to oust President Yoon Suk Yeol. Protesters filled the streets of Seoul and vowed to keep the pressure on.`\
 https://nytimes.com/video/world/asia/100000009864900/south-korea-impeachment-vote-fails.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/the-reopening-gives-
 **Lindsey Vonn, at 40, returns to competitive skiing with two downhill races**\
 `Lindsey Vonn's unlikely bid to get back to the top of skiing started Saturday, with two downhill races in Colorado she used as "training."`\
 https://nytimes.com/athletic/5976478/2024/12/07/lindsey-vonn-returns-skiing-downhill-world-cup-olympics/
-
-**Thousands of donors helped fund the reconstruction effort.**\
-`By Aurelien Breeden and Richard Fausset`\
-https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/thousands-of-donors-helped-fund-the-reconstruction-effort
 
