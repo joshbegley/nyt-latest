@@ -1,3 +1,11 @@
+**Army routs Tulane to win first conference title in 134 years of football**\
+`Army (11-1) earned just the second 11-win season in program history, both under coach Jeff Monken, and still have two more games left.`\
+https://nytimes.com/athletic/5975866/2024/12/06/army-tulane-american-championship/
+
+**‘It’s for Real This Time’: TikTok Creators React to Potential Ban**\
+`The social media service was flooded with videos on Friday after a panel of judges upheld a law that could shutter the app in the United States.`\
+https://nytimes.com/2024/12/06/style/tiktok-ban-reactions.html
+
 **Boise State, Ashton Jeanty steamroll UNLV to win Mountain West**\
 `In the second quarter, Jeanty passed USC’s Marcus Allen for fourth all-time on the FBS single-season rushing chart.`\
 https://nytimes.com/athletic/5975824/2024/12/06/boise-state-unlv-mountain-west-championship-score-results/

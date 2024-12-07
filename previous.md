@@ -1,3 +1,11 @@
+**Army routs Tulane to win first conference title in 134 years of football**\
+`Army (11-1) earned just the second 11-win season in program history, both under coach Jeff Monken, and still have two more games left.`\
+https://nytimes.com/athletic/5975866/2024/12/06/army-tulane-american-championship/
+
+**‘It’s for Real This Time’: TikTok Creators React to Potential Ban**\
+`The social media service was flooded with videos on Friday after a panel of judges upheld a law that could shutter the app in the United States.`\
+https://nytimes.com/2024/12/06/style/tiktok-ban-reactions.html
+
 **Boise State, Ashton Jeanty steamroll UNLV to win Mountain West**\
 `In the second quarter, Jeanty passed USC’s Marcus Allen for fourth all-time on the FBS single-season rushing chart.`\
 https://nytimes.com/athletic/5975824/2024/12/06/boise-state-unlv-mountain-west-championship-score-results/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/06/pageoneplus/corrections-dec-7-2024.html
 **South Korea’s President Apologizes**\
 `With lawmakers set to vote Saturday on whether to impeach President Yoon Suk Yeol, he said in a televised address that he was deeply sorry that his martial law declaration caused “anxiety and discomfort.”`\
 https://nytimes.com/video/world/asia/100000009864642/south-korea-yoon-apology.html
-
-**Mets sign Clay Holmes to 3-year deal: Sources**\
-`The Mets plan to use Holmes, who is a right-hander, as a starter.`\
-https://nytimes.com/athletic/5975739/2024/12/06/mets-clay-holmes-contract/
-
-**Fighting Over a ‘Flawless’ Campaign**\
-`Leaders of the Trump and Harris campaigns met this week to talk tactics. It wasn’t pretty.`\
-https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-meeting.html
 
