@@ -1,3 +1,7 @@
+**13 insights fantasy football managers need to know ahead of Week 14**\
+`Among Theo Gremminger's latest fantasy football insights, he says Jonnu Smith is the surprise star of the Miami passing game.`\
+https://nytimes.com/athletic/5976559/2024/12/07/13-insights-fantasy-football-week-14/
+
 **Thompson: Warriors arrive at the only conclusion left: The Jonathan Kuminga era is here**\
 `With their offense sputtering, the Warriors need to know what they have in their 2021 first-round pick. So begins the Jonathan Kuminga era.`\
 https://nytimes.com/athletic/5976655/2024/12/07/golden-state-warriors-jonathan-kuminga-era/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/special-series/ai-transform-global-economy.html
 **What's next for the Rangers after the Trouba trade and Shesterkin extension?**\
 `New York has cap space to make short-term moves after moving Trouba — and a better sense of future after locking up Shesterkin.`\
 https://nytimes.com/athletic/5976482/2024/12/07/trouba-trade-shesterkin-extension-rangers-future/
-
-**The reopening gives an embattled Macron a rare public triumph.**\
-`By Adam Nossiter, Aurelien Breeden and Richard Fausset`\
-https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/the-reopening-gives-an-embattled-macron-a-rare-public-triumph
 
