@@ -1,3 +1,7 @@
+**Amber Glenn wins U.S. women's figure skating's biggest title in 14 years**\
+`American Amber Glenn continued her surprising rise in women's figure skating, winning the Grand Prix Final title on Saturday.`\
+https://nytimes.com/athletic/5974368/2024/12/07/amber-glenn-figure-skating-grand-prix-final-gold/
+
 **Zak Brown reveals McLaren F1 was ‘on the brink’ financially before 2020 investment**\
 `McLaren is on the verge of winning its first F1 constructors’ championship since 1998 at the Abu Dhabi GP.`\
 https://nytimes.com/athletic/5976191/2024/12/07/mclaren-f1-zak-brown-2020-investment/
