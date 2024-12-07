@@ -1,3 +1,7 @@
+**Notre-Dame has been at the center of French culture and history for centuries.**\
+`By Richard Fausset`\
+https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/notre-dame-has-been-at-the-center-of-french-culture-and-history-for-centuries
+
 **Russia, an Assad ally, is unlikely to come to his aid.**\
 `By Anton Troianovski`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/russia-an-assad-ally-is-unlikely-to-come-to-his-aid
