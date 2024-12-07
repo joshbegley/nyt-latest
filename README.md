@@ -19,7 +19,7 @@ https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
 https://nytimes.com/2024/12/06/us/politics/trump-elon-musk-silicon-valley.html
 
 **Iran Begins to Evacuate Military Officials and Personnel From Syria**\
-`The withdrawals by one of President Bashar al-Assad’s key backers comes amid a resurgent rebel offensive.`\
+`The withdrawals by one of President Bashar al-Assad’s key backers come amid a resurgent rebel offensive.`\
 https://nytimes.com/2024/12/06/world/middleeast/iran-syria-evacuation.html
 
 **'I chose my family': Jacob Trouba reacts to trade after waivers 'threat' from Rangers**\
