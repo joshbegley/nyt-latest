@@ -1,3 +1,11 @@
+**Ancelotti plays down Bellingham injury concern but Mendy suffers setback**\
+`Jude Bellingham is &#8220;fine&#8221; despite asking to be substituted after suffering discomfort in Real Madrid&#8217;s win at Girona but Ferland Mendy has suffered an injury setback, Carlo Ancelotti has confirmed.`\
+https://nytimes.com/athletic/5976994/2024/12/07/jude-bellingham-injury-real-madrid-mendy/
+
+**Is Joel Farabee part of the Flyers' future, or could he end up as trade bait?**\
+`Farabee could generate some trade interest on the market, and his future with the organization is a bit hazy.`\
+https://nytimes.com/athletic/5976873/2024/12/07/flyers-joel-farabee-trade/
+
 **Appalachian State names Dowell Loggains next head coach**\
 `The 14th-ranked Gamecocks are 9-3 this season and rank third in the SEC in rushing at 188 yards per game.`\
 https://nytimes.com/athletic/5976948/2024/12/07/appalachian-state-dowell-loggains-head-coach/
