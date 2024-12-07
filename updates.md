@@ -1,3 +1,11 @@
+**Is the Real ‘Wicked’ Movie the Press Tour?**\
+`A conversation about the musical’s transfer from stage to screen, and the lead actresses who are bringing new narratives to their roles.`\
+https://nytimes.com/2024/12/06/arts/music/wicked-movie-popcast-ariana-grande.html
+
+**The Police Offer a Detailed Timeline of the Gunman’s Movements**\
+`Investigators have begun to piece together the actions of a man they believe killed a health care executive on a city sidewalk early Wednesday morning.`\
+https://nytimes.com/2024/12/06/nyregion/brian-thompson-gunman-timeline.html
+
 **MLS commissioner Don Garber eyes changes, faces challenges**\
 `On the eve of the MLS Cup final, league commissioner Don Garber revealed some impending changes - and new opportunities`\
 https://nytimes.com/athletic/5975576/2024/12/06/mls-commissioner-don-garber-apple-messi/
