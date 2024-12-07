@@ -1,3 +1,7 @@
+**Penguins play loose and get cooled off by Rangers: 3 takeaways**\
+`The Rangers snapped the Penguins' four-game winning streak with a 4-2 win.`\
+https://nytimes.com/athletic/5975804/2024/12/06/penguins-rangers-takeaways-analysis/
+
 **What to expect next from the Golden State Valkyries after WNBA expansion draft**\
 `The Valkyries drafted to win now, but expect many changes for the long-term future of the new franchise.`\
 https://nytimes.com/athletic/5975808/2024/12/06/golden-state-valkyries-wnba-expansion-draft/
