@@ -1,3 +1,7 @@
+**Pulisic to undergo scan on suspected calf injury**\
+`Milan and USMNT forward Christian Pulisic is set to undergo a scan on a suspected calf injury that forced him off in the first half of Friday&#8217;s defeat to Atalanta.`\
+https://nytimes.com/athletic/5976125/2024/12/07/christian-pulisic-injury-update/
+
 **Why Jeff Bezos Likes ‘Messy’ Meetings**\
 `The billionaire founder of Amazon spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://nytimes.com/2024/12/07/business/dealbook/why-jeff-bezos-likes-messy-meetings.html
