@@ -1,3 +1,7 @@
+**Fighting Over a ‘Flawless’ Campaign**\
+`Leaders of the Trump and Harris campaigns met this week to talk tactics. It wasn’t pretty.`\
+https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-meeting.html
+
 **Live Updates: South Korea’s President Apologizes, But Doesn’t Resign Ahead of Impeachment Vote**\
 `President Yoon Suk Yeol said he would not seek to impose martial law again and that he would leave his fate to his party. Lawmakers will vote on whether to impeach him later on Saturday.`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
