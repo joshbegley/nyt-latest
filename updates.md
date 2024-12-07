@@ -1,3 +1,11 @@
+**FIU hires Willie Simmons as next head football coach**\
+`Tim Harris Jr., most recently the offensive coordinator at UCF, was a finalist for the job.`\
+https://nytimes.com/athletic/5976300/2024/12/07/fiu-football-coach-willie-simmons/
+
+**Syrian Government Forces Withdraw From Damascus Suburbs, Monitors Say**\
+`Two war monitoring groups said Syria’s military had pulled out of a number of Damascus suburbs where anti-government protests erupted. The movements could not immediately be confirmed.`\
+https://nytimes.com/2024/12/07/world/middleeast/syria-damascus-withdraw.html
+
 **Trump Heads to Notre-Dame Ceremony in First Foreign Trip Since Election**\
 `The president-elect will be at the cathedral alongside dozens of world leaders. He was also set to meet with President Emmanuel Macron of France, with whom he has had a rocky relationship.`\
 https://nytimes.com/2024/12/07/world/europe/trump-paris-france-notre-dame-macron.html

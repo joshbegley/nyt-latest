@@ -1,3 +1,11 @@
+**FIU hires Willie Simmons as next head football coach**\
+`Tim Harris Jr., most recently the offensive coordinator at UCF, was a finalist for the job.`\
+https://nytimes.com/athletic/5976300/2024/12/07/fiu-football-coach-willie-simmons/
+
+**Syrian Government Forces Withdraw From Damascus Suburbs, Monitors Say**\
+`Two war monitoring groups said Syria’s military had pulled out of a number of Damascus suburbs where anti-government protests erupted. The movements could not immediately be confirmed.`\
+https://nytimes.com/2024/12/07/world/middleeast/syria-damascus-withdraw.html
+
 **Trump Heads to Notre-Dame Ceremony in First Foreign Trip Since Election**\
 `The president-elect will be at the cathedral alongside dozens of world leaders. He was also set to meet with President Emmanuel Macron of France, with whom he has had a rocky relationship.`\
 https://nytimes.com/2024/12/07/world/europe/trump-paris-france-notre-dame-macron.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976268/2024/12/07/lina-souloukou-evangelos-marinak
 **Russini’s what I’m hearing: Cousins’ past and future, Belichick’s interest in college is real**\
 `Plus, the Al-Shaair debate rages on, how head-coaching candidates view the Bears and more.`\
 https://nytimes.com/athletic/5976024/2024/12/07/nfl-week-14-news-kirk-cousins-michael-penix-bill-belichick-north-carolina/
-
-**Draymond Green, Steph Curry in support of Jonathan Kuminga's leap to starter**\
-`Kuminga's leap to the Warriors' starting lineup doesn't bother Green one bit.`\
-https://nytimes.com/athletic/5975991/2024/12/07/draymond-green-jonathan-kuminga-steve-kerr-warriors/
-
-**The patience of Anthony Edwards is paying off for streaking Timberwolves**\
-`"People don't understand how much I love to pass it to my teammates and they get a dunk or hit the shot," Edwards said.`\
-https://nytimes.com/athletic/5975800/2024/12/07/anthony-edwards-patience-streaking-timberwolves/
 
