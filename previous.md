@@ -1,40 +1,40 @@
-**How to Understand Syria’s Rapidly Changing Civil War**\
-`Advances by a coalition of opposition groups have abruptly changed the landscape of Syria’s civil war after a long stalemate. Here’s a closer look at where things stand.`\
-https://nytimes.com/2024/12/07/world/middleeast/how-to-understand-syrias-rapidly-changing-civil-war.html
+**How the Oilers' bets on Vasily Podkolzin and Ty Emberson are paying off**\
+`The Oilers added both players late in the offseason effectively to replace Dylan Holloway and Philip Brobeg.`\
+https://nytimes.com/athletic/5974132/2024/12/07/oilers-vasily-podkolzin-ty-emberson/
 
-**Year in Review**\
-`As critics issue their year-end lists, we want to know your personal favorites of 2024.`\
-https://nytimes.com/2024/12/07/briefing/year-in-review.html
+**Does Frenkie de Jong have a future at Barcelona?**\
+`De Jong impressed in a cameo in his last game but the €80m signing has been booed by his own fans on multiple occasions this season`\
+https://nytimes.com/athletic/5974542/2024/12/07/frenkie-de-jong-barcelona-form-future/
 
-**Cubs continue search for ways to improve as market for starting pitching soars**\
-`Even after signing Matthew Boyd Cubs may not be out of pitching market; a Cody Bellinger trade likely won't happen until Juan Soto signs`\
-https://nytimes.com/athletic/5975755/2024/12/07/cubs-winter-meetings-starting-pitching/
+**Teens Are Getting Botox. I’m Going Full Crone in 2025.**\
+`In pushing back against beauty standards, I’m trying to set an example for my girls.`\
+https://nytimes.com/2024/12/07/opinion/botox-teens.html
 
-**Clemson vs. SMU: How to watch, picks, odds for ACC Championship Game**\
-`Despite three losses, Clemson can still get in the CFP with a win against SMU in the ACC Championship Game. SMU is a small favorite.`\
-https://nytimes.com/athletic/5974727/2024/12/07/clemson-smu-how-to-watch-picks-odds-acc-championship-game/
+**JD Vance, Elon Musk and the Future of America**\
+`How the two men’s visions for America come together, or clash, is a key to the new administration’s success.`\
+https://nytimes.com/2024/12/07/opinion/vance-musk-trump.html
 
-**Jets prospect tiers: Reviewing the top-10 players in Winnipeg's pipeline**\
-`From blue-chip prospects to those who have long-shot odds of playing in the NHL, what does Winnipeg have to look forward to?`\
-https://nytimes.com/athletic/5969432/2024/12/07/winnipeg-jets-top-prospects-brad-lambert/
+**NHL 2024-25 bold predictions: Revisiting our preseason prognostications**\
+`Here’s a progress report on each of our bold preseason predictions, from the writers taking a victory lap to the many who need a mulligan.`\
+https://nytimes.com/athletic/5972813/2024/12/07/nhl-season-bold-predictions-analysis-2024-25/
 
-**Canada’s 988 Crisis Hotline, a ‘Pathway to Survival,’ One Year Later**\
-`The hotline responded to more than 300,000 calls and texts in its inaugural year, reinforcing appeals for Canada to establish a national suicide prevention strategy.`\
-https://nytimes.com/2024/12/07/world/canada/canada-988-hotline-suicide-prevention.html
+**What Republicans and Democrats Get Wrong About Crime**\
+`An evidence-based approach to criminal justice would tell us that policing works and long prison sentences do not.`\
+https://nytimes.com/2024/12/07/opinion/crime-prison-police-republicans-democrats.html
 
-**Wordle Review No. 1,268**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 8, 2024.`\
-https://nytimes.com/2024/12/07/crosswords/wordle-review-1268.html
+**The Disappearance of Literary Men Should Worry Everyone**\
+`What happens if half the population is no longer involved in reading and writing?`\
+https://nytimes.com/2024/12/07/opinion/men-fiction-novels.html
 
-**The Connections Companion No. 546**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 8, 2024.`\
-https://nytimes.com/2024/12/07/crosswords/connections-companion-546.html
+**Bluesky Is Different From X. For Now.**\
+`Users are looking for a more curated experience on a platform that is not constantly trying to get them to interact with brands.`\
+https://nytimes.com/2024/12/07/opinion/bluesky-x-social-media.html
 
-**Syria’s Assad Regime Fights to Survive Rebel Onslaught**\
-`The longtime Syrian dictator Bashar al-Assad is facing threats from rebellions on multiple fronts and his key ally, Iran, is paring back support.`\
-https://nytimes.com/2024/12/07/world/middleeast/syria-assad-homs-damascus-rebels.html
+**Why Running the Government Like a Business Would Be a Disaster**\
+`A lot of what the government does is hard to quantify and involves complicated tasks that inevitably require bureaucratic coordination and, yes, inefficiency.`\
+https://nytimes.com/2024/12/07/opinion/doge-musk-ramaswamy-business-efficiency.html
 
-**Oregon vs. Penn State: How to watch, picks, odds for Big Ten Championship Game**\
-`Can Oregon stay undefeated and get the first-round bye in the College Football Playoff? The Ducks are favored against Penn State.`\
-https://nytimes.com/athletic/5974657/2024/12/07/oregon-penn-state-how-to-watch-picks-odds-big-ten-championship-game/
+**Orli’s Gift, in Her Life and Death**\
+`Readers respond to Sarah Wildman’s essay about her daughter’s lessons in facing mortality.`\
+https://nytimes.com/2024/12/07/opinion/orli-wildman-halpern-death.html
 
