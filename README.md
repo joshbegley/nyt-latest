@@ -1,3 +1,7 @@
+**Corrections: Dec. 7, 2024**\
+`Corrections that appeared in print on Saturday, Dec. 7, 2024.`\
+https://nytimes.com/2024/12/06/pageoneplus/corrections-dec-7-2024.html
+
 **South Korea’s President Apologizes**\
 `With lawmakers set to vote Saturday on whether to impeach President Yoon Suk Yeol, he said in a televised address that he was deeply sorry that his martial law declaration caused “anxiety and discomfort.”`\
 https://nytimes.com/video/world/asia/100000009864642/south-korea-yoon-apology.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/nyregion/nyc-schools-education-department-lawsuit
 **Here are the latest developments in South Korea.**\
 `By Choe Sang-Hun, Victoria Kim and Lee Su-Hyun`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
-
-**Live Updates: South Korea’s President Apologizes, But Doesn’t Resign Ahead of Impeachment Vote**\
-`President Yoon Suk Yeol said he would not seek to impose martial law again and that he would leave his fate to his party. Lawmakers will vote on whether to impeach him later on Saturday.`\
-https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
 
