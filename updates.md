@@ -1,3 +1,15 @@
+**UCF targeting Scott Frost for second stint as head coach: Source**\
+`Frost proved to be a great hire for UCF once, and the Knights are hoping he can be again.`\
+https://nytimes.com/athletic/5976946/2024/12/07/scott-frost-ucf-coaching-search/
+
+**U.S. warily eyes Syrian war, with spy agencies monitoring chemical weapons storage sites for signs of use.**\
+`“We are not going to insert ourselves to affect the outcome of this,” an them explained.`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-warily-eyes-syrian-war-with-spy-agencies-monitoring-chemical-weapons-storage-sites-for-signs-of-use
+
+**Is Joel Farabee part of the Flyers' future, or could he end up as trade bait?**\
+`Farabee could generate some trade interest on the market, and his future with the organization is a bit hazy.`\
+https://nytimes.com/athletic/5976873/2024/12/07/flyers-joel-farabee-trade/
+
 **An N.Y.P.D. Manhunt Caught a Subway Shooter. This Time, It’s Different.**\
 `Capturing a suspect who slips away from a crime scene requires solid police work, help from the public and a little luck, experts say. So far, it’s not working.`\
 https://nytimes.com/2024/12/07/nyregion/uhc-ceo-manhunt-frank-james.html
