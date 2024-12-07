@@ -1,3 +1,11 @@
+**Thousands of donors helped fund the reconstruction effort.**\
+`By Aurelien Breeden and Richard Fausset`\
+https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/thousands-of-donors-helped-fund-the-reconstruction-effort
+
+**Biggest NFL wager ever? Bettor places $3.1 million on the Eagles-Panthers game**\
+`A bettor in Kentucky has placed the largest reported NFL bet of the year, $3.1 million on the Eagles to defeat the Panthers on Sunday.`\
+https://nytimes.com/athletic/5976367/2024/12/07/nfl-big-bets-eagles-panthers/
+
 **Despite scrutiny, Gundy set to return to OK State with restructured deal**\
 `Amid some drama in Stillwater, head coach Mike Gundy is set to return to coach the Cowboys. `\
 https://nytimes.com/athletic/5976490/2024/12/07/mike-gundy-oklahoma-state-returning-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976435/2024/12/07/toto-wolff-lewis-hamilton-merced
 **'We're going to get better': Bucks are still a work in progress after another loss to Celtics**\
 `After their third loss in as many games to the Celtics, the Bucks are still chasing the standard the defending champions have set.`\
 https://nytimes.com/athletic/5976102/2024/12/07/giannis-antetokounmpo-khris-middleton-bucks-celtics/
-
-**South Korean Leader’s Deal to Avoid Impeachment Risks Bigger Turmoil**\
-`President Yoon Suk Yeol survived an opposition-led attempt to remove him by getting his party members to back him. But his troubles could now become theirs too.`\
-https://nytimes.com/2024/12/07/world/asia/south-korea-yoon-impeachment-analysis.html
-
-**See images of the fire and the restoration.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/see-images-of-the-fire-and-the-restoration
 

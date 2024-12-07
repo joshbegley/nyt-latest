@@ -1,3 +1,11 @@
+**Thousands of donors helped fund the reconstruction effort.**\
+`By Aurelien Breeden and Richard Fausset`\
+https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/thousands-of-donors-helped-fund-the-reconstruction-effort
+
+**Biggest NFL wager ever? Bettor places $3.1 million on the Eagles-Panthers game**\
+`A bettor in Kentucky has placed the largest reported NFL bet of the year, $3.1 million on the Eagles to defeat the Panthers on Sunday.`\
+https://nytimes.com/athletic/5976367/2024/12/07/nfl-big-bets-eagles-panthers/
+
 **Despite scrutiny, Gundy set to return to OK State with restructured deal**\
 `Amid some drama in Stillwater, head coach Mike Gundy is set to return to coach the Cowboys. `\
 https://nytimes.com/athletic/5976490/2024/12/07/mike-gundy-oklahoma-state-returning-2025/
