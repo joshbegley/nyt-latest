@@ -1,3 +1,7 @@
+**Wild's new top line of Kaprizov-Rossi-Boldy lights up Ducks: 3 takeaways**\
+`The Kirill Kaprizov-Marco Rossi-Matt Boldy line connected for four goals and 9 points in yet another win over the Ducks.`\
+https://nytimes.com/athletic/5975819/2024/12/07/wild-kaprizov-rossi-boldy-ducks/
+
 **With chippy play and a competitive edge, Celtics down Bucks despite cold shooting**\
 `Most teams don’t thrive on their worst shooting nights. Boston did in its rivalry game.`\
 https://nytimes.com/athletic/5975942/2024/12/07/celtics-bucks-al-horford-compete/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/12/07/world/europe/greece-athens-hadrians-aqueduct-wate
 **Everton vs Liverpool preview: Storylines, odds, prediction for Merseyside derby**\
 `Liverpool is coming off a draw away from home and faces a Merseyside derby at Everton on Saturday.`\
 https://nytimes.com/athletic/5974818/2024/12/07/everton-liverpool-preview-odds-prediction/
-
-**Iowa State vs. Arizona State: How to watch, picks, odds for Pac-12 Championship Game**\
-`Arizona State and Iowa State meet in the Big 12 Championship Game with a spot in the College Football Playoff on the line.`\
-https://nytimes.com/athletic/5974549/2024/12/07/iowa-state-arizona-state-how-to-watch-picks-odds-pac-12-championship-game/
 
