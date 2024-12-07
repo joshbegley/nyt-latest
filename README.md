@@ -1,40 +1,40 @@
-**FIFA places onus on Club World Cup teams to solve deals for out-of-contract players**\
-`FIFA has put the onus on clubs competing in next summer’s Club World Cup in the United States to resolve any outstanding player contract issues.`\
-https://nytimes.com/athletic/5975131/2024/12/07/club-world-cup-player-contracts/
+**It’s Our Wedding, and You’ll Run if We Want To**\
+`Some couples choose to kick off their big day with a group 5K. Sometimes guests join them.`\
+https://nytimes.com/2024/12/07/style/5k-run-wedding-guests.html
 
-**Everton vs Liverpool called off on safety grounds**\
-`Saturday’s Premier League fixture between Everton and Liverpool has been called off due to safety concerns.`\
-https://nytimes.com/athletic/5976025/2024/12/07/everton-liverpool-merseyside-derby-off/
+**On These Apps, the Dark Promise of Mothers Sexually Abusing Children**\
+`Smartphone apps downloaded from Apple and Google can allow parents and other abusers to connect with pedophiles who pay to watch — and direct — criminal behavior.`\
+https://nytimes.com/2024/12/07/us/child-abuse-apple-google-apps.html
 
-**Detectives Scour Thousands of Hours of Video for Clues in C.E.O. Killing**\
-`Cameras are everywhere in Manhattan and they helped lead investigators to a distinctive backpack in Central Park that could be a key piece of physical evidence.`\
-https://nytimes.com/2024/12/07/nyregion/ceo-brian-thompson-gunman-video.html
+**I Want to Renovate My Rental. How Much Trouble Can I Get Into?**\
+`Tenants typically cannot make alterations or improvements to an apartment without permission. Unauthorized upgrades could lead to eviction.`\
+https://nytimes.com/2024/12/07/realestate/i-want-to-renovate-my-rental-how-much-trouble-can-i-get-into.html
 
-**How Catherine Russell, of ‘Perfect Crime,’ Spends Her Sundays**\
-`Ms. Russell, who hasn’t missed a performance of her Off Broadway show in nearly 30 years, fills her day with pets, church, teaching and two shows.`\
-https://nytimes.com/2024/12/07/nyregion/catherine-russell-perfect-crime.html
+**A Wrong Turn in Mississippi**\
+`The winding road of tracking down a family tree.`\
+https://nytimes.com/2024/12/07/style/a-wrong-turn-in-mississippi.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/07/crosswords/spelling-bee-forum.html
+**Which Colleges Offer Free Tuition?**\
+`Dozens of schools say they provide free tuition to students whose families earn under a certain income. How does it work?`\
+https://nytimes.com/article/which-colleges-offer-free-tuition.html
 
-**Brighton head coach Hurzeler opens door to January loan exits**\
-`Brighton &amp; Hove Albion head coach Fabian Hurzeler says it is &#8220;possible&#8221; there will be further attacking loan departures in the January transfer window.`\
-https://nytimes.com/athletic/5974841/2024/12/07/brighton-january-transfer-window-exits/
+**You Don’t Have to Be Injured to Benefit from Physical Therapy**\
+`A good P.T. can help you improve your strength and mobility. Here’s how to find the right fit.`\
+https://nytimes.com/2024/12/07/well/move/physical-therapy-fitness.html
 
-**Critical error by goalie Elvis Merzlikins drains Blue Jackets after fast start**\
-`"That hurt, right?" coach Dean Evason said. "It's a nothing play and it ends up in our net."`\
-https://nytimes.com/athletic/5975959/2024/12/07/elvis-merzlikins-mistake-blue-jackets-provorov/
+**What I Learned at Shiz University: How ‘Wicked’ Changed the Lives of Its Stars**\
+`Only the women who’ve played Elphaba and Glinda in the show’s two decades onstage understand why the roles are so taxing — and so rewarding, too.`\
+https://nytimes.com/2024/12/07/theater/wicked-glinda-elphaba-shiz-university.html
 
-**Large Protests in Seoul Call for South Korean President’s Impeachment**\
-`Demonstrations in the city and around the country have intensified since President Yoon Suk Yeol’s audacious, though short-lived, declaration of martial law.`\
-https://nytimes.com/2024/12/07/world/asia/south-korea-protests-president-impeach.html
+**Luke Wilson Finds Inspiration in Michael Heizer’s Desert ‘City’**\
+`“Probably the coolest thing I’ve seen in person,” said the actor, one of the stars of the Netflix TV series “No Good Deed.”`\
+https://nytimes.com/2024/12/07/arts/television/luke-wilson-no-good-deed.html
 
-**Wild's new top line of Kaprizov-Rossi-Boldy lights up Ducks: 3 takeaways**\
-`The Kirill Kaprizov-Marco Rossi-Matt Boldy line connected for four goals and 9 points in yet another win over the Ducks.`\
-https://nytimes.com/athletic/5975819/2024/12/07/wild-kaprizov-rossi-boldy-ducks/
+**What if Charity Shouldn’t Be Optimized?**\
+`The recent trend in philanthropy has been to look for the most bang for your buck. Maybe you don’t have to.`\
+https://nytimes.com/2024/12/07/business/charity-holiday-giving-optimized.html
 
-**With chippy play and a competitive edge, Celtics down Bucks despite cold shooting**\
-`Most teams don’t thrive on their worst shooting nights. Boston did in its rivalry game.`\
-https://nytimes.com/athletic/5975942/2024/12/07/celtics-bucks-al-horford-compete/
+**How Easy Rawlins Built a Real Estate Empire, One Crime Novel at a Time**\
+`Walter Mosley talks about how his fictional hero frees himself from wage labor through America’s favorite side hustle: landlording.`\
+https://nytimes.com/2024/12/07/business/economy/walter-mosley-easy-rawlins-real-estate.html
 
