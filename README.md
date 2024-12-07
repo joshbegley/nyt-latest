@@ -1,3 +1,7 @@
+**Rodrygo out of Real Madrid's Girona trip with muscular injury**\
+`Real Madrid forward Rodrygo will miss Saturday&#8217;s La Liga fixture against Girona as a precaution due to a muscular problem.`\
+https://nytimes.com/athletic/5976135/2024/12/07/rodrygo-real-madrid-injury-update/
+
 **How the Oilers' bets on Vasily Podkolzin and Ty Emberson are paying off**\
 `The Oilers added both players late in the offseason effectively to replace Dylan Holloway and Philip Brobeg.`\
 https://nytimes.com/athletic/5974132/2024/12/07/oilers-vasily-podkolzin-ty-emberson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/opinion/bluesky-x-social-media.html
 **Why Running the Government Like a Business Would Be a Disaster**\
 `A lot of what the government does is hard to quantify and involves complicated tasks that inevitably require bureaucratic coordination and, yes, inefficiency.`\
 https://nytimes.com/2024/12/07/opinion/doge-musk-ramaswamy-business-efficiency.html
-
-**Orli’s Gift, in Her Life and Death**\
-`Readers respond to Sarah Wildman’s essay about her daughter’s lessons in facing mortality.`\
-https://nytimes.com/2024/12/07/opinion/orli-wildman-halpern-death.html
 
