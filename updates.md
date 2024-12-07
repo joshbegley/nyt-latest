@@ -1,3 +1,7 @@
+**Draymond Green, Steph Curry in support of Jonathan Kuminga's leap to starter**\
+`Kuminga's leap to the Warriors' starting lineup doesn't bother Green one bit.`\
+https://nytimes.com/athletic/5975991/2024/12/07/draymond-green-jonathan-kuminga-steve-kerr-warriors/
+
 **The patience of Anthony Edwards is paying off for streaking Timberwolves**\
 `"People don't understand how much I love to pass it to my teammates and they get a dunk or hit the shot," Edwards said.`\
 https://nytimes.com/athletic/5975800/2024/12/07/anthony-edwards-patience-streaking-timberwolves/

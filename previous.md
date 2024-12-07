@@ -1,3 +1,7 @@
+**Draymond Green, Steph Curry in support of Jonathan Kuminga's leap to starter**\
+`Kuminga's leap to the Warriors' starting lineup doesn't bother Green one bit.`\
+https://nytimes.com/athletic/5975991/2024/12/07/draymond-green-jonathan-kuminga-steve-kerr-warriors/
+
 **The patience of Anthony Edwards is paying off for streaking Timberwolves**\
 `"People don't understand how much I love to pass it to my teammates and they get a dunk or hit the shot," Edwards said.`\
 https://nytimes.com/athletic/5975800/2024/12/07/anthony-edwards-patience-streaking-timberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976125/2024/12/07/christian-pulisic-injury-update/
 **Why Jeff Bezos Likes ‘Messy’ Meetings**\
 `The billionaire founder of Amazon spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://nytimes.com/2024/12/07/business/dealbook/why-jeff-bezos-likes-messy-meetings.html
-
-**Short, Sweet Reads for Fans of the American Absurd**\
-`A Don DeLillo novel; a Joy Williams short story.`\
-https://nytimes.com/2024/12/07/books/read-like-wind-recommendations.html
 
