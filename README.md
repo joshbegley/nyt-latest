@@ -1,3 +1,7 @@
+**Everton vs Liverpool called off on safety grounds**\
+`Saturday’s Premier League fixture between Everton and Liverpool has been called off due to safety concerns.`\
+https://nytimes.com/athletic/5976025/2024/12/07/everton-liverpool-merseyside-derby-off/
+
 **Detectives Scour Thousands of Hours of Video for Clues in C.E.O. Killing**\
 `Cameras are everywhere in Manhattan and they helped lead investigators to a distinctive backpack in Central Park that could be a key piece of physical evidence.`\
 https://nytimes.com/2024/12/07/nyregion/ceo-brian-thompson-gunman-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975942/2024/12/07/celtics-bucks-al-horford-compete
 **How Teddy Blueger and Canucks staged dramatic comeback win over Blue Jackets: 3 takeaways**\
 `The Canucks picked up 2 points Friday night, winning for the fifth time in their past seven games.`\
 https://nytimes.com/athletic/5975885/2024/12/07/canucks-comeback-win-blue-jackets-teddy-blueger/
-
-**LA Galaxy and New York Red Bulls: Two originals go head-to-head in MLS Cup**\
-`Major League Soccer is so often fixated by the shiny new thing but with no Inter Miami and no Lionel Messi, this is a compelling match-up`\
-https://nytimes.com/athletic/5972679/2024/12/07/mls-cup-la-galaxy-new-york-red-bulls/
 
