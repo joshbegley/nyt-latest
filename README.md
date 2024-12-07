@@ -1,3 +1,7 @@
+**Syrian Government Forces Withdraw From Damascus Suburbs, Monitors Say**\
+`Two war monitoring groups said Syria’s military had pulled out of a number of Damascus suburbs where anti-government protests erupted. The movements could not immediately be confirmed.`\
+https://nytimes.com/2024/12/07/world/middleeast/syrian-government-forces-withdraw-from-damascus-suburbs-monitors-say.html
+
 **Trump Heads to Notre-Dame Ceremony in First Foreign Trip Since Election**\
 `The president-elect will be at the cathedral alongside dozens of world leaders. He was also set to meet with President Emmanuel Macron of France, with whom he has had a rocky relationship.`\
 https://nytimes.com/2024/12/07/world/europe/trump-paris-france-notre-dame-macron.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976024/2024/12/07/nfl-week-14-news-kirk-cousins-mi
 **Draymond Green, Steph Curry in support of Jonathan Kuminga's leap to starter**\
 `Kuminga's leap to the Warriors' starting lineup doesn't bother Green one bit.`\
 https://nytimes.com/athletic/5975991/2024/12/07/draymond-green-jonathan-kuminga-steve-kerr-warriors/
-
-**The patience of Anthony Edwards is paying off for streaking Timberwolves**\
-`"People don't understand how much I love to pass it to my teammates and they get a dunk or hit the shot," Edwards said.`\
-https://nytimes.com/athletic/5975800/2024/12/07/anthony-edwards-patience-streaking-timberwolves/
 
