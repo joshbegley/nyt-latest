@@ -1,3 +1,15 @@
+**Appalachian State names Dowell Loggains next head coach**\
+`The 14th-ranked Gamecocks are 9-3 this season and rank third in the SEC in rushing at 188 yards per game.`\
+https://nytimes.com/athletic/5976948/2024/12/07/appalachian-state-dowell-loggains-head-coach/
+
+**Unthinkable? A storybook season keeps getting better for surprise Big 12 champ Arizona State**\
+`From one week to the next, a good team has become great. And a storybook season keeps getting better.`\
+https://nytimes.com/athletic/5976900/2024/12/07/arizona-state-cam-skattebo-big-12-champs/
+
+**UCF targeting Scott Frost for second stint as head coach: Source**\
+`Frost proved to be a great hire for UCF once, and the Knights are hoping he can be again.`\
+https://nytimes.com/athletic/5976946/2024/12/07/scott-frost-ucf-coaching-search/
+
 **U.S. warily eyes Syrian war, with spy agencies monitoring chemical weapons storage sites for signs of use.**\
 `“We are not going to insert ourselves to affect the outcome of this,” an them explained.`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-warily-eyes-syrian-war-with-spy-agencies-monitoring-chemical-weapons-storage-sites-for-signs-of-use

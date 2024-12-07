@@ -1,3 +1,15 @@
+**Appalachian State names Dowell Loggains next head coach**\
+`The 14th-ranked Gamecocks are 9-3 this season and rank third in the SEC in rushing at 188 yards per game.`\
+https://nytimes.com/athletic/5976948/2024/12/07/appalachian-state-dowell-loggains-head-coach/
+
+**Unthinkable? A storybook season keeps getting better for surprise Big 12 champ Arizona State**\
+`From one week to the next, a good team has become great. And a storybook season keeps getting better.`\
+https://nytimes.com/athletic/5976900/2024/12/07/arizona-state-cam-skattebo-big-12-champs/
+
+**UCF targeting Scott Frost for second stint as head coach: Source**\
+`Frost proved to be a great hire for UCF once, and the Knights are hoping he can be again.`\
+https://nytimes.com/athletic/5976946/2024/12/07/scott-frost-ucf-coaching-search/
+
 **U.S. warily eyes Syrian war, with spy agencies monitoring chemical weapons storage sites for signs of use.**\
 `“We are not going to insert ourselves to affect the outcome of this,” an them explained.`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-warily-eyes-syrian-war-with-spy-agencies-monitoring-chemical-weapons-storage-sites-for-signs-of-use
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5976874/2024/12/07/bruins-trent-frederic-trade-cont
 **2 Indianapolis Officers Are Acquitted of Manslaughter in 2022 Death**\
 `Herman Whitfield III had told officers “I’m dying” and that he couldn’t breathe after one of the officers deployed a Taser, according to body camera footage.`\
 https://nytimes.com/2024/12/07/us/indianapolis-police-taser-acquitted-manslaughter.html
-
-**With Pageantry and Dignitaries, France Unveils a Reborn Notre-Dame**\
-`Five years after a ruinous fire, the reopening of the cathedral restored it in full glory to the Paris skyline and delivered a much-needed morale boost for France.`\
-https://nytimes.com/2024/12/07/world/europe/france-notre-dame-reopening.html
-
-**Magic's Franz Wagner suffers oblique injury, will be out indefinitely**\
-`Wagner will be re-evaluated in four weeks. The Magic are still without All-Star forward Paolo Banchero, who has the same injury.`\
-https://nytimes.com/athletic/5976817/2024/12/07/franz-wagner-injury-update-orlando-magic/
-
-**Lowetide: Why the Oilers' farmhands in AHL Bakersfield are a unique group**\
-`The Condors are possibly the most unusual team in the history of Oilers minor-league affiliates.`\
-https://nytimes.com/athletic/5976481/2024/12/07/edmonton-oilers-2024-ahl-bakersfield/
 
