@@ -1,3 +1,7 @@
+**Howe apologises to Newcastle fans after Brentford defeat**\
+`Eddie Howe apologised to Newcastle United&#8217;s travelling support for his side&#8217;s performance during their 4-2 defeat at Brentford on Saturday.`\
+https://nytimes.com/athletic/5976581/2024/12/07/eddie-howe-newcastle-fans-apology/
+
 **A.I. Will Transform the Global Economy — if Humans Let It**\
 `We asked a group of business leaders to consider how businesses can benefit from artificial intelligence.`\
 https://nytimes.com/2024/12/07/special-series/ai-transform-global-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/world/europe/zelensky-trump-macron-notre-dame.htm
 **The Briefing: Brentford 4 Newcastle 2 - What's going on in defence? Barnes an enigma, away form a worry**\
 `Newcastle shipped four more goals in defeat to Brentford - The Athletic analyses the key themes from the Gtech Stadium`\
 https://nytimes.com/athletic/5965637/2024/12/07/brentford-4-newcastle-2-howe-barnes-defending/
-
-**The Briefing: Crystal Palace 2 Manchester City 2 - Guardiola's setup falters as City suffer another title blow**\
-`Thom Harris breaks down the main talking points from Manchester City's 2-2 draw with Crystal Palace`\
-https://nytimes.com/athletic/5965636/2024/12/07/crystal-palace-2-manchester-city-2-haaland-lewis-guardiola/
 
