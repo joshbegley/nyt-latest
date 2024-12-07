@@ -1,3 +1,11 @@
+**Chi-Chi’s, the Former Mexican Restaurant Chain, Plans a Comeback**\
+`The chain, which closed in 2004, is poised for a revival next year after the son of one of the founders reached a deal with Hormel Foods.`\
+https://nytimes.com/2024/12/07/business/chi-chis-restaurant-mexican.html
+
+**Lakers' late-game lapses against Hawks cost them again, wrapping a rough road trip**\
+`While they put together a better effort in their overtime loss in Atlanta, the Lakers were 1-3 on a dreadful four-game road trip.`\
+https://nytimes.com/athletic/5975703/2024/12/07/lakers-lebron-james-anthony-davis-hawks/
+
 **Amber Glenn wins U.S. women's figure skating's biggest title in 14 years**\
 `American Amber Glenn continued her surprising rise in women's figure skating, winning the Grand Prix Final title on Saturday.`\
 https://nytimes.com/athletic/5974368/2024/12/07/amber-glenn-figure-skating-grand-prix-final-gold/
