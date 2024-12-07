@@ -1,3 +1,7 @@
+**Amorim 'not surprised' by Manchester United's back-to-back defeats**\
+`Manchester United head coach Ruben Amorim has said he is not surprised by his side losing successive Premier League matches against Arsenal and Nottingham Forest.`\
+https://nytimes.com/athletic/5976789/2024/12/07/ruben-amorim-manchester-united-defeats/
+
 **Will ASU get a bye? What we're learning about the Playoff from conference title games**\
 `College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
 https://nytimes.com/athletic/5976722/2024/12/07/college-football-playoff-bracket-conference-championship-games/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/special-series/artificial-intelligence-schools-ed
 **A Times reporter got a look inside Notre-Dame before its grand unveiling.**\
 `By Aurelien Breeden`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/a-times-reporter-got-a-look-inside-notre-dame-before-its-grand-unveiling
-
-**The Briefing: Manchester United 2 Nottingham Forest 3 - Set-piece pain, haphazard defending and a humbling loss**\
-`Laurie Whitwell and Charlotte Harpur break down the main talking points from Manchester United's home loss to Nottingham Forest`\
-https://nytimes.com/athletic/5965660/2024/12/07/manchester-united-2-nottingham-forest-3-hojlund-fernandes-loss/
 
