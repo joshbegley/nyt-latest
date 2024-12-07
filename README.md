@@ -1,11 +1,3 @@
-**Government Forces Withdraw From Damascus Suburbs, Monitors Say**\
-`Two war monitoring groups said Syria’s military had pulled out of a number of Damascus suburbs where anti-government protests erupted. The movements could not immediately be confirmed.`\
-https://nytimes.com/live/2024/12/07/world/syria
-
-**FIU hires Willie Simmons as next head football coach**\
-`Tim Harris Jr., most recently the offensive coordinator at UCF, was a finalist for the job.`\
-https://nytimes.com/athletic/5976300/2024/12/07/fiu-football-coach-willie-simmons/
-
 **Here’s what is happening in Syria.**\
 `aHoms sits at a key crossroads in the country, controlling access to the Mediterranean to the west and Damascus to the south.`\
 https://nytimes.com/2024/12/07/world/middleeast/syria-damascus-withdraw.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5975254/2024/12/07/sir-jim-ratcliffe-interview-manc
 **Former Roma CEO Souloukou to join Marinakis' multi-club model**\
 `Former Roma chief executive officer Lina Souloukou is set to be appointed CEO of Nottingham Forest owner Evangelos Marinakis&#8217; multi-club model.`\
 https://nytimes.com/athletic/5976268/2024/12/07/lina-souloukou-evangelos-marinakis-ceo/
+
+**Russini’s what I’m hearing: Cousins’ past and future, Belichick’s interest in college is real**\
+`Plus, the Al-Shaair debate rages on, how head-coaching candidates view the Bears and more.`\
+https://nytimes.com/athletic/5976024/2024/12/07/nfl-week-14-news-kirk-cousins-michael-penix-bill-belichick-north-carolina/
+
+**Draymond Green, Steph Curry in support of Jonathan Kuminga's leap to starter**\
+`Kuminga's leap to the Warriors' starting lineup doesn't bother Green one bit.`\
+https://nytimes.com/athletic/5975991/2024/12/07/draymond-green-jonathan-kuminga-steve-kerr-warriors/
 
