@@ -1,3 +1,7 @@
+**Lindsey Vonn, at 40, returns to competitive skiing with two downhill races**\
+`Lindsey Vonn's unlikely bid to get back to the top of skiing started Saturday, with two downhill races in Colorado she used as "training."`\
+https://nytimes.com/athletic/5976478/2024/12/07/lindsey-vonn-returns-skiing-downhill-world-cup-olympics/
+
 **Thousands of donors helped fund the reconstruction effort.**\
 `By Aurelien Breeden and Richard Fausset`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/thousands-of-donors-helped-fund-the-reconstruction-effort
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5965636/2024/12/07/crystal-palace-2-manchester-city
 `The country was thrown into deeper uncertainty after the governing party changed its stance and refused to oust him. Protesters vowed to keep the pressure on.`\
 https://nytimes.com/2024/12/07/world/asia/south-korea-yoon-impeach.html
 
-**West Ham's Antonio involved in car accident**\
-`West Ham United forward Michail Antonio was involved in a car accident on Saturday.`\
+**West Ham's Antonio in stable condition after being involved in car accident**\
+`West Ham United forward Michail Antonio is in a stable condition in hospital after being involved in a car accident on Saturday.`\
 https://nytimes.com/athletic/5976413/2024/12/07/michail-antonio-car-crash-west-ham/
 
 **'Idiotic' team mistake leads to Q1 exit for Lewis Hamilton in final Mercedes race**\
 `"I rarely have been so down about what has happened," Toto Wolff said about the poor result ahead of Lewis Hamilton's Mercedes finale.`\
 https://nytimes.com/athletic/5976435/2024/12/07/toto-wolff-lewis-hamilton-mercedes-qualifying-exit/
-
-**'We're going to get better': Bucks are still a work in progress after another loss to Celtics**\
-`After their third loss in as many games to the Celtics, the Bucks are still chasing the standard the defending champions have set.`\
-https://nytimes.com/athletic/5976102/2024/12/07/giannis-antetokounmpo-khris-middleton-bucks-celtics/
 
