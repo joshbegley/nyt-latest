@@ -1,3 +1,11 @@
+**Here’s what is happening in Syria.**\
+`aHoms sits at a key crossroads in the country, controlling access to the Mediterranean to the west and Damascus to the south.`\
+https://nytimes.com/2024/12/07/world/middleeast/syria-damascus-withdraw.html
+
+**Draymond Green, Steph Curry in support of Jonathan Kuminga's leap to starter**\
+`Kuminga's leap to the Warriors' starting lineup doesn't bother Green one bit.`\
+https://nytimes.com/athletic/5975991/2024/12/07/draymond-green-jonathan-kuminga-steve-kerr-warriors/
+
 **FIU hires Willie Simmons as next head football coach**\
 `Tim Harris Jr., most recently the offensive coordinator at UCF, was a finalist for the job.`\
 https://nytimes.com/athletic/5976300/2024/12/07/fiu-football-coach-willie-simmons/
