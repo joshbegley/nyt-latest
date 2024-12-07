@@ -1,3 +1,7 @@
+**Giants, Willy Adames agree to 7-year, $182 million deal: Source**\
+`The shortstop is set to join San Francisco after agreeing to the largest contract in franchise history.`\
+https://nytimes.com/athletic/5944038/2024/12/07/san-francisco-giants-willy-adames-contract/
+
 **Should the Bruins trade or re-sign Trent Frederic?**\
 `Frederic does not have job security past this season and if a deal doesn't look realistic, Boston should make him available.`\
 https://nytimes.com/athletic/5976874/2024/12/07/bruins-trent-frederic-trade-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/world/europe/trump-notre-dame-reopening-paris.htm
 **Akron Police Face Questions After Officer Fatally Shoots Teenager**\
 `The Ohio city’s mayor and the family of the 15-year-old, Jazmir Tucker, raised concerns about how officers handled the incident.`\
 https://nytimes.com/2024/12/07/us/akron-police-shooting-jazmir-tucker.html
-
-**In a Romanian Village, Anger Fuels Support for an Ultranationalist ‘Messiah’**\
-`A presidential election has been called off, but the discontent that propelled the surging campaign of a rightist firebrand rages on.`\
-https://nytimes.com/2024/12/07/world/europe/romania-election-georgescu-nationalism.html
 
