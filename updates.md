@@ -53,6 +53,11 @@ https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-fut
 `\
 https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
 
+**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
+`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
+`\
+https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
+
 **Wild's new top line of Kaprizov-Rossi-Boldy lights up Ducks: 3 takeaways**\
 `The Kirill Kaprizov-Marco Rossi-Matt Boldy line connected for four goals and 9 points in yet another win over the Ducks.`\
 https://nytimes.com/athletic/5975819/2024/12/07/wild-kaprizov-rossi-boldy-ducks/
