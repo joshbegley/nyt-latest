@@ -1,3 +1,7 @@
+**Year in Review**\
+`As critics issue their year-end lists, we want to know your personal favorites of 2024.`\
+https://nytimes.com/2024/12/07/briefing/year-in-review.html
+
 **Cubs continue search for ways to improve as market for starting pitching soars**\
 `Even after signing Matthew Boyd Cubs may not be out of pitching market; a Cody Bellinger trade likely won't happen until Juan Soto signs`\
 https://nytimes.com/athletic/5975755/2024/12/07/cubs-winter-meetings-starting-pitching/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974657/2024/12/07/oregon-penn-state-how-to-watch-p
 **Tilda Swinton Would Like a Word With Trump About His Mother**\
 `The Academy Award-winning actress discusses her lifelong quest for connection, humanity’s innate goodness and the point of being alive.`\
 https://nytimes.com/2024/12/07/magazine/tilda-swinton-interview.html
-
-**NFL Week 14 roundtable: Should Pittsburgh be on upset alert? Time for Michael Penix Jr.?**\
-`The future of the QB slide, Bears-49ers and 6-6 NFC teams are also among the topics in this week's roundtable previewing Week 14.`\
-https://nytimes.com/athletic/5974931/2024/12/07/nfl-week-14-browns-steelers-michael-penix/
 
