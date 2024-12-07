@@ -1,3 +1,11 @@
+**Former Roma CEO Souloukou to join Marinakis' multi-club model**\
+`Former Roma chief executive officer Lina Souloukou is set to be appointed CEO of Nottingham Forest owner Evangelos Marinakis&#8217; multi-club model.`\
+https://nytimes.com/athletic/5976268/2024/12/07/lina-souloukou-evangelos-marinakis-ceo/
+
+**Russini’s what I’m hearing: Cousins’ past and future, Belichick’s interest in college is real**\
+`Plus, the Al-Shaair debate rages on, how head-coaching candidates view the Bears, and more.`\
+https://nytimes.com/athletic/5976024/2024/12/07/nfl-week-14-news-kirk-cousins-michael-penix-bill-belichick-north-carolina/
+
 **Draymond Green, Steph Curry in support of Jonathan Kuminga's leap to starter**\
 `Kuminga's leap to the Warriors' starting lineup doesn't bother Green one bit.`\
 https://nytimes.com/athletic/5975991/2024/12/07/draymond-green-jonathan-kuminga-steve-kerr-warriors/
