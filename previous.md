@@ -1,3 +1,7 @@
+**Critical error by goalie Elvis Merzlikins drains Blue Jackets after fast start**\
+`"That hurt, right?" coach Dean Evason said. "It's a nothing play and it ends up in our net."`\
+https://nytimes.com/athletic/5975959/2024/12/07/elvis-merzlikins-mistake-blue-jackets-provorov/
+
 **Large Protests in Seoul Call for South Korean President’s Impeachment**\
 `Demonstrations in the city and around the country have intensified since President Yoon Suk Yeol’s audacious, though short-lived, declaration of martial law.`\
 https://nytimes.com/2024/12/07/world/asia/south-korea-protests-president-impeach.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5975863/2024/12/07/rangers-penguins-jacob-trouba-tr
 **Analysing the managers who might be able to fix Wolves, West Ham and Southampton**\
 `We analyse the numbers to see who might be able to transform the fortunes of the Premier League's crisis clubs `\
 https://nytimes.com/athletic/5974772/2024/12/07/wolves-west-ham-southampton-manager-options/
-
-**Athens’s New Answer to a Water Supply Crunch: An Ancient Aqueduct**\
-`Hadrian’s Aqueduct supplied water to Greece’s capital for centuries but was then largely abandoned. It’s being revived to ease water scarcity amid global warming.`\
-https://nytimes.com/2024/12/07/world/europe/greece-athens-hadrians-aqueduct-water.html
 
