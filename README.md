@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5976946/2024/12/07/scott-frost-ucf-coaching-search/
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-warily-eyes-syrian-war-with-spy-agencies-monitoring-chemical-weapons-storage-sites-for-signs-of-use
 
 **Is Joel Farabee part of the Flyers' future, or could he end up as trade bait?**\
-`Farabee could generate some trade interest on the market and his future with the organization is a bit hazy.`\
+`Farabee could generate some trade interest on the market, and his future with the organization is a bit hazy.`\
 https://nytimes.com/athletic/5976873/2024/12/07/flyers-joel-farabee-trade/
 
 **Just for Fun**\
