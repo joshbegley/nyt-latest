@@ -1,3 +1,7 @@
+**Trump and Prince William Headline Guest List at Notre-Dame Reopening**\
+`Dozens of officials have been invited to Paris as the rebuilt cathedral welcomes visitors five years after a devastating fire.`\
+https://nytimes.com/2024/12/07/world/europe/trump-and-prince-william-headline-guest-list-at-notre-dame-reopening.html
+
 **Notre-Dame Reopens: Photos**\
 `As Notre-Dame reopens after a 2019 fire, here is a selection of scenes from the famous Paris cathedral during a weekend of preparations and ceremonies.`\
 https://nytimes.com/2024/12/07/world/europe/notre-dame-reopening-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/world/europe/trump-paris-france-notre-dame-macron
 **Lando Norris takes pole for F1 season finale, McLaren on verge of title**\
 `The team sits 21 points ahead of Ferrari in the constructors’ standings before Sunday's race. `\
 https://nytimes.com/athletic/5976330/2024/12/07/lando-norris-pole-abu-dhabi-gp-f1/
-
-**The end of Ferrari's 'C²': A genuine F1 partnership faces its sunset in Abu Dhabi**\
-`Sainz and Leclerc clicked quickly as teammates, but the fan-favorite driver duo will part ways after the 2024 season finale.`\
-https://nytimes.com/athletic/5976230/2024/12/07/ferrari-carlos-sainz-charles-leclerc-f1/
 
