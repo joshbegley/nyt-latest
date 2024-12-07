@@ -1,3 +1,7 @@
+**MLB free agency notes: What we're hearing about the Orioles and Mets' pitching pursuits**\
+`Plus the latest information on the Tigers, Royals, Rays and more.`\
+https://nytimes.com/athletic/5976834/2024/12/07/mlb-free-agency-orioles-mets/
+
 **Ilia Malinin, U.S. figure skating star, caps a perfect year and eyes Olympic glory**\
 `Behold the "Quad God," Ilia Malinin: The U.S. figure skating star just finished an undefeated 2024 and enters 2025 as the king of the sport.`\
 https://nytimes.com/athletic/5972398/2024/12/07/ilia-malinin-figure-skating-olympics-grand-prix-final/
