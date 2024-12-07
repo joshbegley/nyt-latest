@@ -1,3 +1,7 @@
+**Club World Cup 2025: Group tables, how teams qualified and the full fixture list**\
+`The 32 teams were drawn into eight groups of four to discover their opponents for the tournament, which will be held across 11 U.S. cities`\
+https://nytimes.com/athletic/5972672/2024/12/07/club-world-cup-2025-groups-fixture-list/
+
 **Pulisic to undergo scan on suspected calf injury**\
 `Milan and USMNT forward Christian Pulisic is set to undergo a scan on a suspected calf injury that forced him off in the first half of Friday&#8217;s defeat to Atalanta.`\
 https://nytimes.com/athletic/5976125/2024/12/07/christian-pulisic-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/opinion/botox-teens.html
 **JD Vance, Elon Musk and the Future of America**\
 `How the two men’s visions for America come together, or clash, is a key to the new administration’s success.`\
 https://nytimes.com/2024/12/07/opinion/vance-musk-trump.html
-
-**NHL 2024-25 bold predictions: Revisiting our preseason prognostications**\
-`Here’s a progress report on each of our bold preseason predictions, from the writers taking a victory lap to the many who need a mulligan.`\
-https://nytimes.com/athletic/5972813/2024/12/07/nhl-season-bold-predictions-analysis-2024-25/
 
