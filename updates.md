@@ -1,3 +1,7 @@
+**Year in Review**\
+`As critics issue their year-end lists, we want to know your personal favorites of 2024.`\
+https://nytimes.com/2024/12/07/briefing/year-in-review.html
+
 **Cubs continue search for ways to improve as market for starting pitching soars**\
 `Even after signing Matthew Boyd Cubs may not be out of pitching market; a Cody Bellinger trade likely won't happen until Juan Soto signs`\
 https://nytimes.com/athletic/5975755/2024/12/07/cubs-winter-meetings-starting-pitching/
