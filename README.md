@@ -1,3 +1,11 @@
+**U.S. warily eyes Syrian war, with spy agencies monitoring chemical weapons storage sites for signs of use.**\
+`“We are not going to insert ourselves to affect the outcome of this,” an them explained.`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-warily-eyes-syrian-war-with-spy-agencies-monitoring-chemical-weapons-storage-sites-for-signs-of-use
+
+**Is Joel Farabee part of the Flyers' future, or could he end up as trade bait?**\
+`Farabee could generate some trade interest on the market and his future with the organization is a bit hazy.`\
+https://nytimes.com/athletic/5976873/2024/12/07/flyers-joel-farabee-trade/
+
 **Just for Fun**\
 `John Kugelman’s puzzle turns on solvers, with a switch of the flip.`\
 https://nytimes.com/2024/12/07/crosswords/daily-puzzle-2024-12-08.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976817/2024/12/07/franz-wagner-injury-update-orlan
 **Lowetide: Why the Oilers' farmhands in AHL Bakersfield are a unique group**\
 `The Condors are possibly the most unusual team in the history of Oilers minor-league affiliates.`\
 https://nytimes.com/athletic/5976481/2024/12/07/edmonton-oilers-2024-ahl-bakersfield/
-
-**MLB free agency notes: What we're hearing about the Orioles and Mets' pitching pursuits**\
-`Plus the latest information on the Tigers, Royals, Rays and more.`\
-https://nytimes.com/athletic/5976834/2024/12/07/mlb-free-agency-orioles-mets/
-
-**Ilia Malinin, U.S. figure skating star, caps a perfect year and eyes Olympic glory**\
-`Behold the "Quad God": The U.S. figure skating star just finished an undefeated 2024 and enters 2025 as the king of the sport.`\
-https://nytimes.com/athletic/5972398/2024/12/07/ilia-malinin-figure-skating-olympics-grand-prix-final/
 
