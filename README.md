@@ -14,7 +14,7 @@ https://nytimes.com/2024/12/07/world/europe/romania-election-georgescu-nationali
 `By Vivian Yee, Raja Abdulrahim and Hwaida Saad`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/damascus-residents-brace-for-an-uncertain-future-as-rebels-advance-toward-the-capital
 
-**In Grim Twist, Some See Suspect in C.E.O. Killing as Hero or Heartthrob**\
+**Some on Social Media See Suspect in C.E.O. Killing as a Folk Hero**\
 `The authorities have pleaded for help in finding the person who killed Brian Thompson, the chief executive of UnitedHealthcare. But some seem more interested in rooting for the gunman.`\
 https://nytimes.com/2024/12/07/nyregion/unitedhealthcare-ceo-shooting-suspect.html
 
