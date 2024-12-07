@@ -1,3 +1,7 @@
+**Pulisic to undergo scan on suspected calf injury**\
+`Milan and USMNT forward Christian Pulisic is set to undergo a scan on a suspected calf injury that forced him off in the first half of Friday&#8217;s defeat to Atalanta.`\
+https://nytimes.com/athletic/5976125/2024/12/07/christian-pulisic-injury-update/
+
 **Why Jeff Bezos Likes ‘Messy’ Meetings**\
 `The billionaire founder of Amazon spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://nytimes.com/2024/12/07/business/dealbook/why-jeff-bezos-likes-messy-meetings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/opinion/vance-musk-trump.html
 **NHL 2024-25 bold predictions: Revisiting our preseason prognostications**\
 `Here’s a progress report on each of our bold preseason predictions, from the writers taking a victory lap to the many who need a mulligan.`\
 https://nytimes.com/athletic/5972813/2024/12/07/nhl-season-bold-predictions-analysis-2024-25/
-
-**What Republicans and Democrats Get Wrong About Crime**\
-`An evidence-based approach to criminal justice would tell us that policing works and long prison sentences do not.`\
-https://nytimes.com/2024/12/07/opinion/crime-prison-police-republicans-democrats.html
 
