@@ -1,3 +1,7 @@
+**Short, Sweet Reads for Fans of the American Absurd**\
+`A Don DeLillo novel; a Joy Williams short story.`\
+https://nytimes.com/2024/12/07/books/read-like-wind-recommendations.html
+
 **Brazil extend kit partnership with Nike until 2038**\
 `The Brazil Football Federation (CBF) has signed a contract renewal with kit provider Nike that runs until 2038.`\
 https://nytimes.com/athletic/5976130/2024/12/07/brazil-kit-deal-nike/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/opinion/crime-prison-police-republicans-democrats
 **The Disappearance of Literary Men Should Worry Everyone**\
 `What happens if half the population is no longer involved in reading and writing?`\
 https://nytimes.com/2024/12/07/opinion/men-fiction-novels.html
-
-**Bluesky Is Different From X. For Now.**\
-`Users are looking for a more curated experience on a platform that is not constantly trying to get them to interact with brands.`\
-https://nytimes.com/2024/12/07/opinion/bluesky-x-social-media.html
 
