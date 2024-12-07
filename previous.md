@@ -1,3 +1,7 @@
+**FIFA places onus on Club World Cup clubs to solve deals for out-of-contract players**\
+`FIFA has put the onus on clubs competing in next summer’s Club World Cup in the United States to resolve any outstanding player contract issues.`\
+https://nytimes.com/athletic/5975131/2024/12/07/club-world-cup-player-contracts/
+
 **Everton vs Liverpool called off on safety grounds**\
 `Saturday’s Premier League fixture between Everton and Liverpool has been called off due to safety concerns.`\
 https://nytimes.com/athletic/5976025/2024/12/07/everton-liverpool-merseyside-derby-off/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975819/2024/12/07/wild-kaprizov-rossi-boldy-ducks/
 **With chippy play and a competitive edge, Celtics down Bucks despite cold shooting**\
 `Most teams don’t thrive on their worst shooting nights. Boston did in its rivalry game.`\
 https://nytimes.com/athletic/5975942/2024/12/07/celtics-bucks-al-horford-compete/
-
-**How Teddy Blueger and Canucks staged dramatic comeback win over Blue Jackets: 3 takeaways**\
-`The Canucks picked up 2 points Friday night, winning for the fifth time in their past seven games.`\
-https://nytimes.com/athletic/5975885/2024/12/07/canucks-comeback-win-blue-jackets-teddy-blueger/
 

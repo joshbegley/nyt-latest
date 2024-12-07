@@ -1,3 +1,7 @@
+**FIFA places onus on Club World Cup clubs to solve deals for out-of-contract players**\
+`FIFA has put the onus on clubs competing in next summer’s Club World Cup in the United States to resolve any outstanding player contract issues.`\
+https://nytimes.com/athletic/5975131/2024/12/07/club-world-cup-player-contracts/
+
 **Everton vs Liverpool called off on safety grounds**\
 `Saturday’s Premier League fixture between Everton and Liverpool has been called off due to safety concerns.`\
 https://nytimes.com/athletic/5976025/2024/12/07/everton-liverpool-merseyside-derby-off/
