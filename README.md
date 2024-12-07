@@ -1,3 +1,15 @@
+**Cubs continue search for ways to improve as market for starting pitching soars**\
+`Even after signing Matthew Boyd Cubs may not be out of pitching market; a Cody Bellinger trade likely won't happen until Juan Soto signs`\
+https://nytimes.com/athletic/5975755/2024/12/07/cubs-winter-meetings-starting-pitching/
+
+**Clemson vs. SMU: How to watch, picks, odds for ACC Championship Game**\
+`Despite three losses, Clemson can still get in the CFP with a win against SMU in the ACC Championship Game. SMU is a small favorite.`\
+https://nytimes.com/athletic/5974727/2024/12/07/clemson-smu-how-to-watch-picks-odds-acc-championship-game/
+
+**Jets prospect tiers: Reviewing the top-10 players in Winnipeg's pipeline**\
+`From blue-chip prospects to those who have long-shot odds of playing in the NHL, what does Winnipeg have to look forward to?`\
+https://nytimes.com/athletic/5969432/2024/12/07/winnipeg-jets-top-prospects-brad-lambert/
+
 **Canada’s 988 Crisis Hotline, a ‘Pathway to Survival,’ One Year Later**\
 `The hotline responded to more than 300,000 calls and texts in its inaugural year, reinforcing appeals for Canada to establish a national suicide prevention strategy.`\
 https://nytimes.com/2024/12/07/world/canada/canada-988-hotline-suicide-prevention.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/07/magazine/tilda-swinton-interview.html
 **NFL Week 14 roundtable: Should Pittsburgh be on upset alert? Time for Michael Penix Jr.?**\
 `The future of the QB slide, Bears-49ers and 6-6 NFC teams are also among the topics in this week's roundtable previewing Week 14.`\
 https://nytimes.com/athletic/5974931/2024/12/07/nfl-week-14-browns-steelers-michael-penix/
-
-**In Fight for Syria, a Battle for Domination of the Entire Middle East**\
-`In a region “already on fire,” analysts say, rebels’ advance toward Damascus is a barometer of the shifting power dynamics that also affect nations like Iran, Turkey, Russia and the United States.`\
-https://nytimes.com/2024/12/07/world/middleeast/syria-opposition-forces-domination.html
-
-**How Many Gift Guides Does a Person Need?**\
-`These days, everyone fancies themselves a curator of covetable items. Some find it exhausting.`\
-https://nytimes.com/2024/12/07/style/holiday-gift-guide-fatigue.html
-
-**Sex, a Hex and a Sick Child Offer Clues to an Epidemic’s Birth**\
-`In a remote Congolese town, a medical mystery led to the discovery of alarming changes in the mpox virus and, eventually, to a global health emergency.`\
-https://nytimes.com/2024/12/07/health/mpox-virus-congo.html
 
