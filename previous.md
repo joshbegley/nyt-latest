@@ -1,3 +1,16 @@
+**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
+`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
+`\
+https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
+
+**Rangers get much-needed win after busy, 'tough' day: 4 takeaways**\
+`The Rangers earned their second victory in the past eight days as they adjust to playing without their former captain. `\
+https://nytimes.com/athletic/5975863/2024/12/07/rangers-penguins-jacob-trouba-trade/
+
+**Analysing the managers who might be able to fix Wolves, West Ham and Southampton**\
+`We analyse the numbers to see who might be able to transform the fortunes of the Premier League's crisis clubs `\
+https://nytimes.com/athletic/5974772/2024/12/07/wolves-west-ham-southampton-manager-options/
+
 **Athens’s New Answer to a Water Supply Crunch: An Ancient Aqueduct**\
 `Hadrian’s Aqueduct supplied water to Greece’s capital for centuries but was then largely abandoned. It’s being revived to ease water scarcity amid global warming.`\
 https://nytimes.com/2024/12/07/world/europe/greece-athens-hadrians-aqueduct-water.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5975817/2024/12/06/rangers-jacob-trouba-trade-igor-
 **Army routs Tulane to win first conference title in 134 years of football**\
 `Army (11-1) earned just the second 11-win season in program history, both under coach Jeff Monken, and still have two more games left.`\
 https://nytimes.com/athletic/5975866/2024/12/06/army-tulane-american-championship/
-
-**‘It’s for Real This Time’: TikTok Creators React to Potential Ban**\
-`The social media service was flooded with videos on Friday after a panel of judges upheld a law that could shutter the app in the United States.`\
-https://nytimes.com/2024/12/06/style/tiktok-ban-reactions.html
-
-**Boise State, Ashton Jeanty steamroll UNLV to win Mountain West**\
-`In a final Heisman push, Jeanty passed USC’s Marcus Allen for fourth all-time on the FBS single-season rushing chart.`\
-https://nytimes.com/athletic/5975824/2024/12/06/boise-state-unlv-mountain-west-championship-score-results/
-
-**Penguins play loose and get cooled off by Rangers: 3 takeaways**\
-`The Rangers snapped the Penguins' four-game winning streak with a 4-2 win.`\
-https://nytimes.com/athletic/5975804/2024/12/06/penguins-rangers-takeaways-analysis/
 

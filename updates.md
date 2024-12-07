@@ -1,3 +1,16 @@
+**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
+`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
+`\
+https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
+
+**Rangers get much-needed win after busy, 'tough' day: 4 takeaways**\
+`The Rangers earned their second victory in the past eight days as they adjust to playing without their former captain. `\
+https://nytimes.com/athletic/5975863/2024/12/07/rangers-penguins-jacob-trouba-trade/
+
+**Analysing the managers who might be able to fix Wolves, West Ham and Southampton**\
+`We analyse the numbers to see who might be able to transform the fortunes of the Premier League's crisis clubs `\
+https://nytimes.com/athletic/5974772/2024/12/07/wolves-west-ham-southampton-manager-options/
+
 **Athens’s New Answer to a Water Supply Crunch: An Ancient Aqueduct**\
 `Hadrian’s Aqueduct supplied water to Greece’s capital for centuries but was then largely abandoned. It’s being revived to ease water scarcity amid global warming.`\
 https://nytimes.com/2024/12/07/world/europe/greece-athens-hadrians-aqueduct-water.html
