@@ -1,3 +1,11 @@
+**Is the Real ‘Wicked’ Movie the Press Tour?**\
+`A conversation about the musical’s transfer from stage to screen, and the lead actresses who are bringing new narratives to their roles.`\
+https://nytimes.com/2024/12/06/arts/music/wicked-movie-popcast-ariana-grande.html
+
+**The Police Offer a Detailed Timeline of the Gunman’s Movements**\
+`Investigators have begun to piece together the actions of a man they believe killed a health care executive on a city sidewalk early Wednesday morning.`\
+https://nytimes.com/2024/12/06/nyregion/brian-thompson-gunman-timeline.html
+
 **Golden State Valkyries inaugural roster announced as expansion draft concludes**\
 `The Valkyries will debut on May 16 against the Los Angeles Sparks.`\
 https://nytimes.com/athletic/5975678/2024/12/06/wnba-golden-state-valkyries-roster-expansion-draft/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5975678/2024/12/06/wnba-golden-state-valkyries-rost
 https://nytimes.com/2024/12/06/nyregion/nyc-schools-education-department-lawsuits.html
 
 **Here are the latest developments in South Korea.**\
-`By Choe Sang-Hun`\
+`By Choe Sang-Hun, Victoria Kim and Lee Su-Hyun`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
 
 **Live Updates: South Korea’s President Apologizes, But Doesn’t Resign Ahead of Impeachment Vote**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5975660/2024/12/06/trouba-rangers-threat-trade-duck
 **Is Milk Safe? Your Questions About Bird Flu and Dairy, Answered**\
 `Federal officials will soon begin testing the country’s milk supply for the virus. Here’s what to know.`\
 https://nytimes.com/2024/12/06/well/bird-flu-milk.html
-
-**MLS commissioner Don Garber eyes changes, faces challenges**\
-`On the eve of the MLS Cup final, league commissioner Don Garber revealed some impending changes - and new opportunities`\
-https://nytimes.com/athletic/5975576/2024/12/06/mls-commissioner-don-garber-apple-messi/
-
-**NHL contract grades: Igor Shesterkin's 8-year deal is risky for Rangers, but he's worth it**\
-`The back half of Shesterkin's contract could be scary, given his age, but the Rangers had to do it.`\
-https://nytimes.com/athletic/5975610/2024/12/06/igor-shesterkin-rangers-contract-grade/
 

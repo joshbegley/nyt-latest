@@ -1,3 +1,15 @@
+**Is the Real ‘Wicked’ Movie the Press Tour?**\
+`A conversation about the musical’s transfer from stage to screen, and the lead actresses who are bringing new narratives to their roles.`\
+https://nytimes.com/2024/12/06/arts/music/wicked-movie-popcast-ariana-grande.html
+
+**The Police Offer a Detailed Timeline of the Gunman’s Movements**\
+`Investigators have begun to piece together the actions of a man they believe killed a health care executive on a city sidewalk early Wednesday morning.`\
+https://nytimes.com/2024/12/06/nyregion/brian-thompson-gunman-timeline.html
+
+**Here are the latest developments in South Korea.**\
+`By Choe Sang-Hun, Victoria Kim and Lee Su-Hyun`\
+https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
+
 **Live Updates: South Korea’s President Apologizes, But Doesn’t Resign Ahead of Impeachment Vote**\
 `President Yoon Suk Yeol said he would not seek to impose martial law again and that he would leave his fate to his party. Lawmakers will vote to impeach him later on Saturday.`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
