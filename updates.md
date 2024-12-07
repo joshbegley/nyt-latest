@@ -1,3 +1,7 @@
+**Mets sign Clay Holmes to 3-year deal: Sources**\
+`The Mets plan to use Holmes, who closed for the Yankees, as a starter.`\
+https://nytimes.com/athletic/5975739/2024/12/06/mets-sign-former-yankees-closer-clay-holmes-to-3-year-deal-sources/
+
 **Fighting Over a ‘Flawless’ Campaign**\
 `Leaders of the Trump and Harris campaigns met this week to talk tactics. It wasn’t pretty.`\
 https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-meeting.html
