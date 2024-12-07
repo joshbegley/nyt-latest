@@ -1,3 +1,15 @@
+**The Briefing: Brentford 4 Newcastle 2 - What's going on in defence? Barnes an enigma, away form a worry**\
+`Newcastle shipped four more goals in defeat to Brentford - The Athletic analyses the key themes from the Gtech Stadium`\
+https://nytimes.com/athletic/5965637/2024/12/07/brentford-4-newcastle-2-howe-barnes-defending/
+
+**The Briefing: Crystal Palace 2 Manchester City 2 - Guardiola's setup falters as City suffer another title blow**\
+`Thom Harris breaks down the main talking points from Manchester City's 2-2 draw with Crystal Palace`\
+https://nytimes.com/athletic/5965636/2024/12/07/crystal-palace-2-manchester-city-2-haaland-lewis-guardiola/
+
+**South Korea’s Leader Survives Impeachment Vote After His Power Grab**\
+`The country is thrown into deeper uncertainty after the governing party changes its stance and refuses to oust him. Protesters vowed to keep the pressure on.`\
+https://nytimes.com/2024/12/07/world/asia/south-korea-yoon-impeach.html
+
 **West Ham's Antonio involved in car accident**\
 `West Ham United forward Michail Antonio was involved in a car accident on Saturday.`\
 https://nytimes.com/athletic/5976413/2024/12/07/michail-antonio-car-crash-west-ham/
