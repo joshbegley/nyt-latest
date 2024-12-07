@@ -1,3 +1,7 @@
+**Notre-Dame has been at the center of French culture and history for centuries.**\
+`By Richard Fausset`\
+https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/notre-dame-has-been-at-the-center-of-french-culture-and-history-for-centuries
+
 **Russia, an Assad ally, is unlikely to come to his aid.**\
 `By Anton Troianovski`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/russia-an-assad-ally-is-unlikely-to-come-to-his-aid
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/heres-the-latest-as-
 **Live Updates: Notre-Dame Reopens, 5 Years After Devastating Fire**\
 `World leaders are in Paris for ceremonies as the 12th-century Gothic cathedral opens its doors after a monumental renovation.`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen
-
-**Syria Live Updates: Government Forces Withdraw From Damascus Suburbs, Monitors Say**\
-`Two war monitoring groups said Syria’s military had pulled out of a number of Damascus suburbs where anti-government protests erupted. The movements could not immediately be confirmed.`\
-https://nytimes.com/live/2024/12/07/world/syria-war-damascus
 
