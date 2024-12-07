@@ -1,3 +1,7 @@
+**The patience of Anthony Edwards is paying off for streaking Timberwolves**\
+`"People don't understand how much I love to pass it to my teammates and they get a dunk or hit the shot," Edwards said.`\
+https://nytimes.com/athletic/5975800/2024/12/07/anthony-edwards-patience-streaking-timberwolves/
+
 **Chi-Chi’s, the Former Mexican Restaurant Chain, Plans a Comeback**\
 `The chain, which closed in 2004, is poised for a revival next year after the son of one of the founders reached a deal with Hormel Foods.`\
 https://nytimes.com/2024/12/07/business/chi-chis-restaurant-mexican.html

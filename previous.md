@@ -1,3 +1,7 @@
+**The patience of Anthony Edwards is paying off for streaking Timberwolves**\
+`"People don't understand how much I love to pass it to my teammates and they get a dunk or hit the shot," Edwards said.`\
+https://nytimes.com/athletic/5975800/2024/12/07/anthony-edwards-patience-streaking-timberwolves/
+
 **Chi-Chi’s, the Former Mexican Restaurant Chain, Plans a Comeback**\
 `The chain, which closed in 2004, is poised for a revival next year after the son of one of the founders reached a deal with Hormel Foods.`\
 https://nytimes.com/2024/12/07/business/chi-chis-restaurant-mexican.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/business/dealbook/why-jeff-bezos-likes-messy-meet
 **Short, Sweet Reads for Fans of the American Absurd**\
 `A Don DeLillo novel; a Joy Williams short story.`\
 https://nytimes.com/2024/12/07/books/read-like-wind-recommendations.html
-
-**Brazil extend kit partnership with Nike until 2038**\
-`The Brazil Football Federation (CBF) has signed a contract renewal with kit provider Nike that runs until 2038.`\
-https://nytimes.com/athletic/5976130/2024/12/07/brazil-kit-deal-nike/
 
