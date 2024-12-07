@@ -1,3 +1,7 @@
+**FIFA places onus on Club World Cup teams to solve deals for out-of-contract players**\
+`FIFA has put the onus on clubs competing in next summer’s Club World Cup in the United States to resolve any outstanding player contract issues.`\
+https://nytimes.com/athletic/5975131/2024/12/07/club-world-cup-player-contracts/
+
 **FIFA places onus on Club World Cup clubs to solve deals for out-of-contract players**\
 `FIFA has put the onus on clubs competing in next summer’s Club World Cup in the United States to resolve any outstanding player contract issues.`\
 https://nytimes.com/athletic/5975131/2024/12/07/club-world-cup-player-contracts/
