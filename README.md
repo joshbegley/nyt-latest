@@ -1,3 +1,11 @@
+**Former Roma CEO Souloukou to join Marinakis' multi-club model**\
+`Former Roma chief executive officer Lina Souloukou is set to be appointed CEO of Nottingham Forest owner Evangelos Marinakis&#8217; multi-club model.`\
+https://nytimes.com/athletic/5976268/2024/12/07/lina-souloukou-evangelos-marinakis-ceo/
+
+**Russini’s what I’m hearing: Cousins’ past and future, Belichick’s interest in college is real**\
+`Plus, the Al-Shaair debate rages on, how head-coaching candidates view the Bears, and more.`\
+https://nytimes.com/athletic/5976024/2024/12/07/nfl-week-14-news-kirk-cousins-michael-penix-bill-belichick-north-carolina/
+
 **Draymond Green, Steph Curry in support of Jonathan Kuminga's leap to starter**\
 `Kuminga's leap to the Warriors' starting lineup doesn't bother Green one bit.`\
 https://nytimes.com/athletic/5975991/2024/12/07/draymond-green-jonathan-kuminga-steve-kerr-warriors/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976172/2024/12/07/boise-state-unlv-mountain-west-c
 **Club World Cup 2025: Group tables, how teams qualified and the full fixture list**\
 `The 32 teams were drawn into eight groups of four to discover their opponents for the tournament, which will be held across 11 U.S. cities`\
 https://nytimes.com/athletic/5972672/2024/12/07/club-world-cup-2025-groups-fixture-list/
-
-**Pulisic to undergo scan on suspected calf injury**\
-`Milan and USMNT forward Christian Pulisic is set to undergo a scan on a suspected calf injury that forced him off in the first half of Friday&#8217;s defeat to Atalanta.`\
-https://nytimes.com/athletic/5976125/2024/12/07/christian-pulisic-injury-update/
-
-**Why Jeff Bezos Likes ‘Messy’ Meetings**\
-`The billionaire founder of Amazon spoke with Andrew Ross Sorkin at the DealBook Summit.`\
-https://nytimes.com/2024/12/07/business/dealbook/why-jeff-bezos-likes-messy-meetings.html
 
