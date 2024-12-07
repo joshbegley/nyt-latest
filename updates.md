@@ -1,3 +1,7 @@
+**Brazil extend kit partnership with Nike until 2038**\
+`The Brazil Football Federation (CBF) has signed a contract renewal with kit provider Nike that runs until 2038.`\
+https://nytimes.com/athletic/5976130/2024/12/07/brazil-kit-deal-nike/
+
 **Rodrygo out of Real Madrid's Girona trip with muscular injury**\
 `Real Madrid forward Rodrygo will miss Saturday&#8217;s La Liga fixture against Girona as a precaution due to a muscular problem.`\
 https://nytimes.com/athletic/5976135/2024/12/07/rodrygo-real-madrid-injury-update/
