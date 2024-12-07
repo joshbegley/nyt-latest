@@ -1,17 +1,13 @@
-**Golden State Valkyries inaugural roster announced as expansion draft concludes**\
-`The Valkyries will debut on May 16 against the Los Angeles Sparks.`\
-https://nytimes.com/athletic/5975678/2024/12/06/wnba-golden-state-valkyries-roster-expansion-draft/
-
 **Special Education Services With a Catch: Parents Are Asked Not to Sue**\
 `New York City school officials want families seeking such services to waive their right to sue the Education Department in exchange for receiving them.`\
 https://nytimes.com/2024/12/06/nyregion/nyc-schools-education-department-lawsuits.html
 
 **Here are the latest developments in South Korea.**\
-`By Choe Sang-Hun and John Yoon`\
+`By Choe Sang-Hun`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
 
-**Live Updates: South Korea’s President Addresses Nation Ahead of Impeachment Vote**\
-`President Yoon Suk Yeol’sfaces growing calls to resign as massive demonstrations against him are scheduled to be held in Seoul on Saturday.`\
+**Live Updates: South Korea’s President Apologizes for Martial Law Ahead of Impeachment Vote**\
+`President Yoon Suk Yeol’s faces growing calls to resign as massive demonstrations against him are scheduled to be held in Seoul on Saturday.`\
 https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
 
 **The Silicon Valley Billionaires Steering Trump’s Transition**\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5975576/2024/12/06/mls-commissioner-don-garber-appl
 **NHL contract grades: Igor Shesterkin's 8-year deal is risky for Rangers, but he's worth it**\
 `The back half of Shesterkin's contract could be scary, given his age, but the Rangers had to do it.`\
 https://nytimes.com/athletic/5975610/2024/12/06/igor-shesterkin-rangers-contract-grade/
+
+**Iran Makes ‘Dramatic’ Leap to Produce Near-Bomb-Grade Fuel, but to What End?**\
+`The United Nations chief inspector says production has quadrupled. But it is not clear whether Iran is trying to touch off a crisis or gather bargaining chips for negotiations with the United States.`\
+https://nytimes.com/2024/12/06/us/politics/iran-nuclear-fuel.html
 

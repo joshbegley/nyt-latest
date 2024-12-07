@@ -1,3 +1,15 @@
+**Here are the latest developments in South Korea.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
+
+**Live Updates: South Korea’s President Apologizes for Martial Law Ahead of Impeachment Vote**\
+`President Yoon Suk Yeol’s faces growing calls to resign as massive demonstrations against him are scheduled to be held in Seoul on Saturday.`\
+https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
+
+**Iran Makes ‘Dramatic’ Leap to Produce Near-Bomb-Grade Fuel, but to What End?**\
+`The United Nations chief inspector says production has quadrupled. But it is not clear whether Iran is trying to touch off a crisis or gather bargaining chips for negotiations with the United States.`\
+https://nytimes.com/2024/12/06/us/politics/iran-nuclear-fuel.html
+
 **Golden State Valkyries inaugural roster announced as expansion draft concludes**\
 `The Valkyries will debut on May 16 against the Los Angeles Sparks.`\
 https://nytimes.com/athletic/5975678/2024/12/06/wnba-golden-state-valkyries-roster-expansion-draft/
