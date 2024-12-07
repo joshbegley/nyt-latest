@@ -1,3 +1,7 @@
+**Large Protests in Seoul Call for South Korean President’s Impeachment**\
+`Demonstrations in the city and around the country have intensified since President Yoon Suk Yeol’s audacious, though short-lived, declaration of martial law.`\
+https://nytimes.com/2024/12/07/world/asia/south-korea-protests-president-impeach.html
+
 **Wild's new top line of Kaprizov-Rossi-Boldy lights up Ducks: 3 takeaways**\
 `The Kirill Kaprizov-Marco Rossi-Matt Boldy line connected for four goals and 9 points in yet another win over the Ducks.`\
 https://nytimes.com/athletic/5975819/2024/12/07/wild-kaprizov-rossi-boldy-ducks/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5974772/2024/12/07/wolves-west-ham-southampton-mana
 **Athens’s New Answer to a Water Supply Crunch: An Ancient Aqueduct**\
 `Hadrian’s Aqueduct supplied water to Greece’s capital for centuries but was then largely abandoned. It’s being revived to ease water scarcity amid global warming.`\
 https://nytimes.com/2024/12/07/world/europe/greece-athens-hadrians-aqueduct-water.html
-
-**Everton vs Liverpool preview: Storylines, odds, prediction for Merseyside derby**\
-`Liverpool is coming off a draw away from home and faces a Merseyside derby at Everton on Saturday.`\
-https://nytimes.com/athletic/5974818/2024/12/07/everton-liverpool-preview-odds-prediction/
 
