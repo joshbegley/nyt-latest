@@ -1,3 +1,7 @@
+**Siege Deterrents**\
+`Luke K. Schreiber makes a stone-cold Saturday puzzle debut.`\
+https://nytimes.com/2024/12/06/crosswords/daily-puzzle-2024-12-07.html
+
 **Corrections: Dec. 7, 2024**\
 `Corrections that appeared in print on Saturday, Dec. 7, 2024.`\
 https://nytimes.com/2024/12/06/pageoneplus/corrections-dec-7-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975678/2024/12/06/wnba-golden-state-valkyries-rost
 **Special Education Services With a Catch: Parents Are Asked Not to Sue**\
 `New York City school officials want families seeking such services to waive their right to sue the Education Department in exchange for receiving them.`\
 https://nytimes.com/2024/12/06/nyregion/nyc-schools-education-department-lawsuits.html
-
-**Here are the latest developments in South Korea.**\
-`By Choe Sang-Hun, Victoria Kim and Lee Su-Hyun`\
-https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
 
