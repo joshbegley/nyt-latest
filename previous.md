@@ -1,3 +1,7 @@
+**Remembering Kath Phipps: 'She treated everyone at Man United like royalty. She was royalty herself'**\
+`United's receptionist for 56 years, her death was announced this week, aged 85. Here, players and managers pay tribute to a club legend`\
+https://nytimes.com/athletic/5971680/2024/12/07/kath-phipps-man-united-receptionist-tribute/
+
 **The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
 `The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2024/12/06/pageoneplus/quote-of-the-day-new-starring-role-fo
 **Staple: Rangers have to hope the cost is worth the trouble as they take care of business**\
 `In trading Jacob Trouba, the Rangers got the result they wanted, but they also burned some people on the way there.`\
 https://nytimes.com/athletic/5975817/2024/12/06/rangers-jacob-trouba-trade-igor-shesterkin/
-
-**Army routs Tulane to win first conference title in 134 years of football**\
-`Army (11-1) earned just the second 11-win season in program history, both under coach Jeff Monken, and still have two more games left.`\
-https://nytimes.com/athletic/5975866/2024/12/06/army-tulane-american-championship/
 
