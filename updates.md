@@ -38,6 +38,11 @@ https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-fut
 `\
 https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
 
+**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
+`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
+`\
+https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
+
 **Remembering Kath Phipps: 'She treated everyone at Man United like royalty. She was royalty herself'**\
 `United's receptionist for 56 years, her death was announced this week, aged 85. Here, players and managers pay tribute to a club legend`\
 https://nytimes.com/athletic/5971680/2024/12/07/kath-phipps-man-united-receptionist-tribute/
