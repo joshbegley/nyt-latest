@@ -1,3 +1,15 @@
+**Damascus residents brace for an uncertain future as rebels advance toward the capital.**\
+`By Vivian Yee, Raja Abdulrahim and Hwaida Saad`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus/damascus-residents-brace-for-an-uncertain-future-as-rebels-advance-toward-the-capital
+
+**In Grim Twist, Some See Suspect in C.E.O. Killing as Hero or Heartthrob**\
+`The authorities have pleaded for help in finding the person who killed Brian Thompson, the chief executive of UnitedHealthcare. But some seem more interested in rooting for the gunman.`\
+https://nytimes.com/2024/12/07/nyregion/unitedhealthcare-ceo-shooting-suspect.html
+
+**In the Syrian Regime’s Hour of Need, Its Patron Iran Heads for the Exits**\
+`The collapse of a partnership built over four decades would reshape the balance of power in the Middle East.`\
+https://nytimes.com/2024/12/07/world/middleeast/iran-syria-rebels.html
+
 **Notre-Dame, in flames and reborn: a memory.**\
 `A reporter looks back on the shared`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/notre-dame-in-flames-and-reborn-a-memory
