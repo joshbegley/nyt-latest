@@ -1,3 +1,7 @@
+**How Teddy Blueger and Canucks staged dramatic comeback win over Blue Jackets: 3 takeaways**\
+`Friday night the Canucks picked up 2 points, winning for the fifth time in their past seven games.`\
+https://nytimes.com/athletic/5975885/2024/12/07/canucks-comeback-win-blue-jackets-teddy-blueger/
+
 **LA Galaxy and New York Red Bulls: Two originals go head-to-head in MLS Cup**\
 `Major League Soccer is so often fixated by the shiny new thing but with no Inter Miami and no Lionel Messi, this is a compelling match-up`\
 https://nytimes.com/athletic/5972679/2024/12/07/mls-cup-la-galaxy-new-york-red-bulls/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5974549/2024/12/07/iowa-state-arizona-state-how-to-
 **A Filipino Holiday Tradition, Perhaps Best Not Made at Home**\
 `This year, I found a new way to celebrate my heritage through parols, colorful star-shaped lanterns.`\
 https://nytimes.com/2024/12/07/style/parols-filipino-decoration-stars.html
-
-**Quote of the Day: New Starring Role for a Lamb Of ’90s TV: Dog’s Best Friend**\
-`Quotation of the Day for Saturday, December 7, 2024`\
-https://nytimes.com/2024/12/06/pageoneplus/quote-of-the-day-new-starring-role-for-a-lamb-of-90s-tv-dogs-best-friend.html
 
