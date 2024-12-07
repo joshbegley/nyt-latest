@@ -1,3 +1,7 @@
+**NFL Week 14 roundtable: Should Pittsburgh be on upset alert? Time for Michael Penix Jr.?**\
+`The future of the QB slide, Bears-49ers and 6-6 NFC teams are also among the topics in this week's roundtable previewing Week 14.`\
+https://nytimes.com/athletic/5974931/2024/12/07/nfl-week-14-browns-steelers-michael-penix/
+
 **In Fight for Syria, a Battle for Domination of the Entire Middle East**\
 `In a region “already on fire,” analysts say, rebels’ advance toward Damascus is a barometer of the shifting power dynamics that also affect nations like Iran, Turkey, Russia and the United States.`\
 https://nytimes.com/2024/12/07/world/middleeast/syria-opposition-forces-domination.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/business/economy/mortgages-climate-risk-fannie-fr
 **A Mississippi Teacher Created a School in an Empty Storefront. Students Showed Up.**\
 `The desks came out of a dumpster, and the computers are hand-me-downs. But students say Abundance Academy is a haven from bullying and crowded classes.`\
 https://nytimes.com/2024/12/07/us/a-mississippi-teacher-created-a-school-in-an-empty-storefront-students-showed-up.html
-
-**TeamLab, Art’s Greatest Sugar Rush, Is Building an Empire**\
-`The art collective behind teamLab, which started in Japan, has expanded across the world, developing partnerships to pay for its immersive technology.`\
-https://nytimes.com/2024/12/07/arts/design/teamlab-tokyo-abu-dhabi-digital-art.html
 
