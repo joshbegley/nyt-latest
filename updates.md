@@ -1,3 +1,11 @@
+**Assad did little to support the military ranks, analysts say.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus/assad-did-little-to-support-the-military-ranks-analysts-say
+
+**Japanese star Roki Sasaki to be posted at next week’s Winter Meetings: Sources**\
+`The Dodgers remain among the perceived frontrunners for the services of Sasaki, whose youth and talent make him a top free agent.`\
+https://nytimes.com/athletic/5976411/2024/12/07/roki-sasaki-posting-winter-meetings/
+
 **Notre-Dame has been at the center of French culture and history for centuries.**\
 `By Richard Fausset`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/notre-dame-has-been-at-the-center-of-french-culture-and-history-for-centuries
