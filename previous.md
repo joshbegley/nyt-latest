@@ -1,3 +1,7 @@
+**With Pageantry and Dignitaries, France Unveils a Reborn Notre-Dame**\
+`Five years after a ruinous fire, the reopening of the cathedral restored it in full glory to the Paris skyline and delivered a much-needed morale boost for France.`\
+https://nytimes.com/2024/12/07/world/europe/france-notre-dame-reopening.html
+
 **Magic's Franz Wagner suffers oblique injury, will be out indefinitely**\
 `Wagner will be re-evaluated in four weeks. The Magic are still without All-Star forward Paolo Banchero, who has the same injury.`\
 https://nytimes.com/athletic/5976817/2024/12/07/franz-wagner-injury-update-orlando-magic/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/07/world/syria-war-damascus/damascus-residents-
 **Some on Social Media See Suspect in C.E.O. Killing as a Folk Hero**\
 `The authorities have pleaded for help in finding the person who killed Brian Thompson, the chief executive of UnitedHealthcare. But some seem more interested in rooting for the gunman.`\
 https://nytimes.com/2024/12/07/nyregion/unitedhealthcare-ceo-shooting-suspect.html
-
-**College Football Playoff 2024 projections: Boise State, Arizona State lock up bids**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-projections-odds/
 

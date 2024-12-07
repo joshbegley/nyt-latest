@@ -1,3 +1,7 @@
+**With Pageantry and Dignitaries, France Unveils a Reborn Notre-Dame**\
+`Five years after a ruinous fire, the reopening of the cathedral restored it in full glory to the Paris skyline and delivered a much-needed morale boost for France.`\
+https://nytimes.com/2024/12/07/world/europe/france-notre-dame-reopening.html
+
 **Magic's Franz Wagner suffers oblique injury, will be out indefinitely**\
 `Wagner will be re-evaluated in four weeks. The Magic are still without All-Star forward Paolo Banchero, who has the same injury.`\
 https://nytimes.com/athletic/5976817/2024/12/07/franz-wagner-injury-update-orlando-magic/
