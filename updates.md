@@ -1,3 +1,7 @@
+**President Yoon’s Speech Apologizing for Martial Law**\
+`President Yoon Suk Yeol said his declaration of martial law was born out of “desperation,” and apologized for causing “anxiety.”`\
+https://nytimes.com/2024/12/06/world/asia/south-korea-president-yoon-speech.html
+
 **Is the Real ‘Wicked’ Movie the Press Tour?**\
 `A conversation about the musical’s transfer from stage to screen, and the lead actresses who are bringing new narratives to their roles.`\
 https://nytimes.com/2024/12/06/arts/music/wicked-movie-popcast-ariana-grande.html

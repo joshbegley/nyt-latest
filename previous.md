@@ -1,3 +1,7 @@
+**President Yoon’s Speech Apologizing for Martial Law**\
+`President Yoon Suk Yeol said his declaration of martial law was born out of “desperation,” and apologized for causing “anxiety.”`\
+https://nytimes.com/2024/12/06/world/asia/south-korea-president-yoon-speech.html
+
 **Is the Real ‘Wicked’ Movie the Press Tour?**\
 `A conversation about the musical’s transfer from stage to screen, and the lead actresses who are bringing new narratives to their roles.`\
 https://nytimes.com/2024/12/06/arts/music/wicked-movie-popcast-ariana-grande.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/world/middleeast/iran-syria-evacuation.html
 **'I chose my family': Jacob Trouba reacts to trade after waivers 'threat' from Rangers**\
 `"It’s a rite of passage to get fired from MSG," Trouba said after being dealt to the Anaheim Ducks.`\
 https://nytimes.com/athletic/5975660/2024/12/06/trouba-rangers-threat-trade-ducks/
-
-**Is Milk Safe? Your Questions About Bird Flu and Dairy, Answered**\
-`Federal officials will soon begin testing the country’s milk supply for the virus. Here’s what to know.`\
-https://nytimes.com/2024/12/06/well/bird-flu-milk.html
 
