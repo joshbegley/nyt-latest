@@ -1,3 +1,15 @@
+**Special Education Services With a Catch: Parents Are Asked Not to Sue**\
+`New York City school officials want families seeking such services to waive their right to sue the Education Department in exchange for receiving them.`\
+https://nytimes.com/2024/12/06/nyregion/nyc-schools-education-department-lawsuits.html
+
+**Here are the latest developments in South Korea.**\
+`By Choe Sang-Hun and John Yoon`\
+https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment/here-are-the-latest-developments-in-south-korea
+
+**Live Updates: South Koreans Demand President’s Impeachment**\
+`Lawmakers are scheduled to vote later Saturday on President Yoon Suk Yeol’s political future. People took to the streets for a fourth night of protests.`\
+https://nytimes.com/live/2024/12/06/world/south-korea-president-yoon-impeachment
+
 **The Silicon Valley Billionaires Steering Trump’s Transition**\
 `The involvement of wealthy investors has made this presidential transition one of the most potentially conflict-ridden in modern history.`\
 https://nytimes.com/2024/12/06/us/politics/trump-elon-musk-silicon-valley.html
