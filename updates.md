@@ -1,3 +1,7 @@
+**F1 Abu Dhabi preview: McLaren on the cusp of glory, Hamilton's Mercedes farewell**\
+`The season finale will wrap up the constructors' championship and (possibly) a few F1 careers.`\
+https://nytimes.com/athletic/5976429/2024/12/07/f1-abu-dhabi-gp-preview-mclaren-championship-ferrari-lewis-hamilton/
+
 **The Briefing: Manchester United 2 Nottingham Forest 3 - Set-piece pain, haphazard defending and a humbling loss**\
 `Laurie Whitwell and Charlotte Harpur break down the main talking points from Manchester United's home loss to Nottingham Forest`\
 https://nytimes.com/athletic/5965660/2024/12/07/manchester-united-2-nottingham-forest-3-hojlund-fernandes-loss/

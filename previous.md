@@ -19,7 +19,7 @@ https://nytimes.com/live/2024/12/07/world/syria-war-damascus/the-leader-of-syria
 https://nytimes.com/video/world/asia/100000009864900/south-korea-impeachment-vote-fails.html
 
 **F1 Abu Dhabi preview: McLaren on the cusp of glory, Hamilton's Mercedes farewell**\
-`Formula One's season finale will wrap up the constructors' championship and (possibly) a few careers.`\
+`The season finale will wrap up the constructors' championship and (possibly) a few F1 careers.`\
 https://nytimes.com/athletic/5976429/2024/12/07/f1-abu-dhabi-gp-preview-mclaren-championship-ferrari-lewis-hamilton/
 
 **Padres head to Winter Meetings facing questions of financial constraints**\
