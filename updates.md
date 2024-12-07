@@ -1,3 +1,7 @@
+**13 insights fantasy football managers need to know ahead of Week 14**\
+`Among Theo Gremminger's latest fantasy football insights, he says Jonnu Smith is the surprise star of the Miami passing game.`\
+https://nytimes.com/athletic/5976559/2024/12/07/13-insights-fantasy-football-week-14/
+
 **Thompson: Warriors arrive at the only conclusion left: The Jonathan Kuminga era is here**\
 `With their offense sputtering, the Warriors need to know what they have in their 2021 first-round pick. So begins the Jonathan Kuminga era.`\
 https://nytimes.com/athletic/5976655/2024/12/07/golden-state-warriors-jonathan-kuminga-era/
