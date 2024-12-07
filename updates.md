@@ -1,3 +1,11 @@
+**How Protesters Filled the Streets in South Korea’s Center of Power**\
+`Aerial photos show how tens of thousands of South Koreans gathered in the streets in Seoul to protest.`\
+https://nytimes.com/interactive/2024/12/07/world/asia/south-korea-protests-seoul-yoon.html
+
+**Syria Live Updates: Government Forces Withdraw From Damascus Suburbs, Monitors Say**\
+`Two war monitoring groups said Syria’s military had pulled out of a number of Damascus suburbs where anti-government protests erupted. The movements could not immediately be confirmed.`\
+https://nytimes.com/live/2024/12/07/world/syria-war-damascus
+
 **Salty, Sweet, Spicy, Smoky Mie Goreng**\
 `These versatile Indonesian stir-fried noodles strike a perfect balance of flavors that you’ll want to eat again and again (speaking from experience).`\
 https://nytimes.com/2024/12/07/dining/salty-sweet-spicy-smoky-mie-goreng.html
