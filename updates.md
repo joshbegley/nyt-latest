@@ -1,3 +1,7 @@
+**How A.I. Can Revive a Love of Learning**\
+`Modern technology offers new possibilities for transforming teaching.`\
+https://nytimes.com/2024/12/07/special-series/artificial-intelligence-schools-education.html
+
 **A Times reporter got a look inside Notre-Dame before its grand unveiling.**\
 `By Aurelien Breeden`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/a-times-reporter-got-a-look-inside-notre-dame-before-its-grand-unveiling
