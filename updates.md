@@ -1,3 +1,7 @@
+**Giants, Willy Adames agree to 7-year, $182 million deal: Source**\
+`The shortstop is set to join San Francisco after agreeing to the largest contract in franchise history.`\
+https://nytimes.com/athletic/5944038/2024/12/07/san-francisco-giants-willy-adames-contract/
+
 **2 Indianapolis Officers Are Acquitted of Manslaughter in 2022 Death**\
 `Herman Whitfield III had told officers “I’m dying” and that he couldn’t breathe after one of the officers deployed a Taser, according to body camera footage.`\
 https://nytimes.com/2024/12/07/us/indianapolis-police-taser-acquitted-manslaughter.html
