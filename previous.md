@@ -1,3 +1,7 @@
+**Boise State, Ashton Jeanty steamroll UNLV to win Mountain West**\
+`In the second quarter, Jeanty passed USC’s Marcus Allen for fourth all-time on the FBS single-season rushing chart.`\
+https://nytimes.com/athletic/5975824/2024/12/06/boise-state-unlv-mountain-west-championship-score-results/
+
 **Penguins play loose and get cooled off by Rangers: 3 takeaways**\
 `The Rangers snapped the Penguins' four-game winning streak with a 4-2 win.`\
 https://nytimes.com/athletic/5975804/2024/12/06/penguins-rangers-takeaways-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975739/2024/12/06/mets-clay-holmes-contract/
 **Fighting Over a ‘Flawless’ Campaign**\
 `Leaders of the Trump and Harris campaigns met this week to talk tactics. It wasn’t pretty.`\
 https://nytimes.com/2024/12/06/us/politics/trump-harris-campaign-meeting.html
-
-**President Yoon’s Speech Apologizing for Martial Law**\
-`President Yoon Suk Yeol said his declaration of martial law was born out of “desperation,” and apologized for causing “anxiety.”`\
-https://nytimes.com/2024/12/06/world/asia/south-korea-president-yoon-speech.html
 

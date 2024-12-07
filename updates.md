@@ -1,3 +1,7 @@
+**Boise State, Ashton Jeanty steamroll UNLV to win Mountain West**\
+`In the second quarter, Jeanty passed USC’s Marcus Allen for fourth all-time on the FBS single-season rushing chart.`\
+https://nytimes.com/athletic/5975824/2024/12/06/boise-state-unlv-mountain-west-championship-score-results/
+
 **Penguins play loose and get cooled off by Rangers: 3 takeaways**\
 `The Rangers snapped the Penguins' four-game winning streak with a 4-2 win.`\
 https://nytimes.com/athletic/5975804/2024/12/06/penguins-rangers-takeaways-analysis/
