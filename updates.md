@@ -1,3 +1,11 @@
+**MLS Cup final briefing: LA Galaxy 2 New York Red Bulls 1 - No Puig, no problem as Vanney's team win sixth MLS Cup**\
+`Paintsil and Joveljic scored the goals as Galaxy made a blistering start on home soil to win their sixth MLS Cup title.`\
+https://nytimes.com/athletic/5976906/2024/12/07/la-galaxy-mls-cup-final-win-red-bulls/
+
+**Georgia's Carson Beck ruled out of SEC championship before second half**\
+`Beck went 7-for-13 for 56 yards in the first two frames. He lost 15 yards on the ground.`\
+https://nytimes.com/athletic/5976978/2024/12/07/carson-beck-injury-update-georgia-qb/
+
 **Ancelotti plays down Bellingham injury concern but Mendy suffers setback**\
 `Jude Bellingham is &#8220;fine&#8221; despite asking to be substituted after suffering discomfort in Real Madrid&#8217;s win at Girona but Ferland Mendy has suffered an injury setback, Carlo Ancelotti has confirmed.`\
 https://nytimes.com/athletic/5976994/2024/12/07/jude-bellingham-injury-real-madrid-mendy/
