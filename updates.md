@@ -1,3 +1,15 @@
+**An N.Y.P.D. Manhunt Caught a Subway Shooter. This Time, It’s Different.**\
+`Capturing a suspect who slips away from a crime scene requires solid police work, help from the public and a little luck, experts say. So far, it’s not working.`\
+https://nytimes.com/2024/12/07/nyregion/uhc-ceo-manhunt-frank-james.html
+
+**Cam Skattebo strikes a pose and makes a statement: He belongs on the sport's biggest stage**\
+`Given a spotlight, Arizona State’s running back left no doubt, leading the Sun Devils to a 45-19 win over Iowa State and into the CFP. `\
+https://nytimes.com/athletic/5977011/2024/12/07/cam-skattebo-arizona-state-heisman-playoff/
+
+**Want a Job in the Trump Administration? Be Prepared for the Loyalty Test.**\
+`Applicants for government posts, including inside the Pentagon and the intelligence agencies, say they have been asked about their thoughts on Jan. 6 and who they believe won the 2020 election.`\
+https://nytimes.com/2024/12/07/us/politics/trump-administration-loyalty-test.html
+
 **Sabres fans bring inflatable palm trees, chant 'Fire Kevyn!' as Buffalo loses sixth straight**\
 `As the Sabres’ winless streak grew to six games Saturday against Utah, you could hear the sounds of a fan base at its wits’ end.`\
 https://nytimes.com/athletic/5976919/2024/12/07/sabres-utah-kevyn-adams-palm-trees/
