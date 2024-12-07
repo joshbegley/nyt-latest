@@ -1,3 +1,7 @@
+**'I chose my family': Jacob Trouba reacts to trade after waivers 'threat' from Rangers**\
+`"It’s a rite of passage to get fired from MSG," Trouba said after being dealt to the Anaheim Ducks.`\
+https://nytimes.com/athletic/5975660/2024/12/06/trouba-rangers-threat-trade-ducks/
+
 **Is Milk Safe? Your Questions About Bird Flu and Dairy, Answered**\
 `Federal officials will soon begin testing the country’s milk supply for the virus. Here’s what to know.`\
 https://nytimes.com/2024/12/06/well/bird-flu-milk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/06/us/colorado-man-sentenced-bloomberg-housekeeper-k
 **Rebels Advance in Syria as Iran Steps Back**\
 `Also, judges rejected TikTok’s effort to avoid a U.S. ban. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/12/06/briefing/syria-rebels-tiktok-us-ban-appeals-court.html
-
-**Wisconsin targeting Jeff Grimes as next offensive coordinator: Source**\
-`Grimes, who spent 2024 at Kansas, is a 30-year veteran who could help Wisconsin return to emphasizing the running game.`\
-https://nytimes.com/athletic/5975570/2024/12/06/wisconsin-offensive-coordinator-jeff-grimes-kansas/
 
