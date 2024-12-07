@@ -1,3 +1,11 @@
+**Padres head to Winter Meetings facing questions of financial constraints**\
+`The Padres will have to get creative as they look to solidify multiple positions during another winter with restrictive spending limits.`\
+https://nytimes.com/athletic/5975789/2024/12/07/padres-winter-meetings-payroll-constraints/
+
+**Martin says Southampton mistakes are 'madness' after loss at Villa**\
+`Russell Martin labelled Southampton&#8217;s display as &#8220;madness&#8221; following their 1-0 defeat to Aston Villa on Saturday.`\
+https://nytimes.com/athletic/5976601/2024/12/07/russell-martin-southampton-mistakes-madness/
+
 **Howe apologises to Newcastle fans after Brentford defeat**\
 `Eddie Howe apologised to Newcastle United&#8217;s travelling support for his side&#8217;s performance during their 4-2 defeat at Brentford on Saturday.`\
 https://nytimes.com/athletic/5976581/2024/12/07/eddie-howe-newcastle-fans-apology/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976367/2024/12/07/nfl-big-bets-eagles-panthers/
 **Despite scrutiny, Gundy set to return to OK State with restructured deal**\
 `Amid some drama in Stillwater, head coach Mike Gundy is set to return to coach the Cowboys. `\
 https://nytimes.com/athletic/5976490/2024/12/07/mike-gundy-oklahoma-state-returning-2025/
-
-**Zelensky Meets With Trump in Paris to Press Ukraine’s Case**\
-`The Ukrainian leader planned to use the grand reopening of Notre-Dame Cathedral to lobby the president-elect and other world leaders attending the ceremony.`\
-https://nytimes.com/2024/12/07/world/europe/zelensky-trump-macron-notre-dame.html
-
-**The Briefing: Brentford 4 Newcastle 2 - What's going on in defence? Barnes an enigma, away form a worry**\
-`Newcastle shipped four more goals in defeat to Brentford - The Athletic analyses the key themes from the Gtech Stadium`\
-https://nytimes.com/athletic/5965637/2024/12/07/brentford-4-newcastle-2-howe-barnes-defending/
 
