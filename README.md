@@ -1,3 +1,7 @@
+**How to Understand Syria’s Rapidly Changing Civil War**\
+`Advances by a coalition of opposition groups have abruptly changed the landscape of Syria’s civil war after a long stalemate. Here’s a closer look at where things stand.`\
+https://nytimes.com/2024/12/07/world/middleeast/how-to-understand-syrias-rapidly-changing-civil-war.html
+
 **Year in Review**\
 `As critics issue their year-end lists, we want to know your personal favorites of 2024.`\
 https://nytimes.com/2024/12/07/briefing/year-in-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/world/middleeast/syria-assad-homs-damascus-rebels
 **Oregon vs. Penn State: How to watch, picks, odds for Big Ten Championship Game**\
 `Can Oregon stay undefeated and get the first-round bye in the College Football Playoff? The Ducks are favored against Penn State.`\
 https://nytimes.com/athletic/5974657/2024/12/07/oregon-penn-state-how-to-watch-picks-odds-big-ten-championship-game/
-
-**Tilda Swinton Would Like a Word With Trump About His Mother**\
-`The Academy Award-winning actress discusses her lifelong quest for connection, humanity’s innate goodness and the point of being alive.`\
-https://nytimes.com/2024/12/07/magazine/tilda-swinton-interview.html
 
