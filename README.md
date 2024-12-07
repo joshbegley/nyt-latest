@@ -1,3 +1,7 @@
+**Syria’s Assad Regime Fights to Survive Rebel Onslaught**\
+`The longtime Syrian dictator Bashar al-Assad is facing threats from rebellions on multiple fronts and his key ally, Iran, is paring back support.`\
+https://nytimes.com/2024/12/07/world/middleeast/syria-assad-homs-damascus-rebels.html
+
 **Oregon vs. Penn State: How to watch, picks, odds for Big Ten Championship Game**\
 `Can Oregon stay undefeated and get the first-round bye in the College Football Playoff? The Ducks are favored against Penn State.`\
 https://nytimes.com/athletic/5974657/2024/12/07/oregon-penn-state-how-to-watch-picks-odds-big-ten-championship-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/health/elderly-cash-electronic-payments.html
 **To Show His Health Credentials, Kennedy Ditches His Shirt**\
 `Robert F. Kennedy Jr., President-elect Trump’s choice to lead the Department of Health and Human Services, has repeatedly showed off his physique on social media.`\
 https://nytimes.com/2024/12/07/style/rfk-jr-shirtless-videos.html
-
-**Lust and Loss in the Upper Ranks of the Black Panther Party**\
-`Fabienne Josaphat’s novel “Kingdom of No Tomorrow” sets a love triangle amid late-1960s Oakland and Chicago.`\
-https://nytimes.com/2024/12/07/books/review/kingdom-of-no-tomorrow-fabienne-josaphat.html
 
