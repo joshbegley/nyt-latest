@@ -1,3 +1,11 @@
+**Magic's Franz Wagner suffers oblique injury, will be out indefinitely**\
+`Wagner will be re-evaluated in four weeks. The Magic are still without All-Star forward Paolo Banchero, who has the same injury.`\
+https://nytimes.com/athletic/5976817/2024/12/07/franz-wagner-injury-update-orlando-magic/
+
+**Lowetide: Why the Oilers' farmhands in AHL Bakersfield are a unique group**\
+`The Condors are possibly the most unusual team in the history of Oilers minor-league affiliates.`\
+https://nytimes.com/athletic/5976481/2024/12/07/edmonton-oilers-2024-ahl-bakersfield/
+
 **MLB free agency notes: What we're hearing about the Orioles and Mets' pitching pursuits**\
 `Plus the latest information on the Tigers, Royals, Rays and more.`\
 https://nytimes.com/athletic/5976834/2024/12/07/mlb-free-agency-orioles-mets/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/07/nyregion/unitedhealthcare-ceo-shooting-suspect.ht
 **College Football Playoff 2024 projections: Boise State, Arizona State lock up bids**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-projections-odds/
-
-**Notre-Dame, in flames and reborn: a memory.**\
-`A reporter looks back on the shared`\
-https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/notre-dame-in-flames-and-reborn-a-memory
-
-**In the Syrian Regime’s Hour of Need, Its Patron Iran Heads for the Exits**\
-`The collapse of a partnership built over four decades would reshape the balance of power in the Middle East.`\
-https://nytimes.com/2024/12/07/world/middleeast/iran-syria-rebels.html
 

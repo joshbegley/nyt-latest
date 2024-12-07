@@ -1,3 +1,11 @@
+**Magic's Franz Wagner suffers oblique injury, will be out indefinitely**\
+`Wagner will be re-evaluated in four weeks. The Magic are still without All-Star forward Paolo Banchero, who has the same injury.`\
+https://nytimes.com/athletic/5976817/2024/12/07/franz-wagner-injury-update-orlando-magic/
+
+**Lowetide: Why the Oilers' farmhands in AHL Bakersfield are a unique group**\
+`The Condors are possibly the most unusual team in the history of Oilers minor-league affiliates.`\
+https://nytimes.com/athletic/5976481/2024/12/07/edmonton-oilers-2024-ahl-bakersfield/
+
 **MLB free agency notes: What we're hearing about the Orioles and Mets' pitching pursuits**\
 `Plus the latest information on the Tigers, Royals, Rays and more.`\
 https://nytimes.com/athletic/5976834/2024/12/07/mlb-free-agency-orioles-mets/
