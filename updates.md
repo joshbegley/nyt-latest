@@ -53,6 +53,11 @@ https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-fut
 `\
 https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
 
+**The Rainbow Laces campaign was an easy win for the Premier League. Now for the test of its convictions**\
+`The campaign had met little or no resistance until now — and that presents intensely difficult questions for the Premier League
+`\
+https://nytimes.com/athletic/5971644/2024/12/07/premier-league-rainbow-laces-future/
+
 **With chippy play and a competitive edge, Celtics down Bucks despite cold shooting**\
 `Most teams don’t thrive on their worst shooting nights. Boston did in its rivalry game.`\
 https://nytimes.com/athletic/5975942/2024/12/07/celtics-bucks-al-horford-compete/
