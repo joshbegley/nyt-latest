@@ -1,3 +1,7 @@
+**Ancelotti plays down Bellingham injury concern but Mendy suffers setback**\
+`Jude Bellingham is &#8220;fine&#8221; despite asking to be substituted after suffering discomfort in Real Madrid&#8217;s win at Girona but Ferland Mendy has suffered an injury setback, Carlo Ancelotti has confirmed.`\
+https://nytimes.com/athletic/5976994/2024/12/07/jude-bellingham-injury-real-madrid-mendy/
+
 **Appalachian State names Dowell Loggains next head coach**\
 `The 14th-ranked Gamecocks are 9-3 this season and rank third in the SEC in rushing at 188 yards per game.`\
 https://nytimes.com/athletic/5976948/2024/12/07/appalachian-state-dowell-loggains-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5944038/2024/12/07/san-francisco-giants-willy-adame
 **Should the Bruins trade or re-sign Trent Frederic?**\
 `Frederic does not have job security past this season, and if a deal doesn't look realistic, Boston should make him available.`\
 https://nytimes.com/athletic/5976874/2024/12/07/bruins-trent-frederic-trade-contract/
-
-**2 Indianapolis Officers Are Acquitted of Manslaughter in 2022 Death**\
-`Herman Whitfield III had told officers “I’m dying” and that he couldn’t breathe after one of the officers deployed a Taser, according to body camera footage.`\
-https://nytimes.com/2024/12/07/us/indianapolis-police-taser-acquitted-manslaughter.html
 
