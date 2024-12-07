@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5944038/2024/12/07/san-francisco-giants-willy-adames-contract/
 
 **Should the Bruins trade or re-sign Trent Frederic?**\
-`Frederic does not have job security past this season and if a deal doesn't look realistic, Boston should make him available.`\
+`Frederic does not have job security past this season, and if a deal doesn't look realistic, Boston should make him available.`\
 https://nytimes.com/athletic/5976874/2024/12/07/bruins-trent-frederic-trade-contract/
 
 **2 Indianapolis Officers Are Acquitted of Manslaughter in 2022 Death**\
