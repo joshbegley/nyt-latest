@@ -1,3 +1,7 @@
+**Nuno 'proud' of Forest team after victory at Man Utd**\
+`Nuno Espirito Santo says he is ‘proud of these moments’, after seeing his Nottingham Forest side secure their first win over Manchester United at Old Trafford in 30 years.`\
+https://nytimes.com/athletic/5976783/2024/12/07/nuno-nottingham-forest-anfield-old-trafford/
+
 **Amorim 'not surprised' by Manchester United's back-to-back defeats**\
 `Manchester United head coach Ruben Amorim has said he is not surprised by his side losing successive Premier League matches against Arsenal and Nottingham Forest.`\
 https://nytimes.com/athletic/5976789/2024/12/07/ruben-amorim-manchester-united-defeats/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/07/us/elections/results-louisiana-amendm
 **How A.I. Can Revive a Love of Learning**\
 `Modern technology offers new possibilities for transforming teaching.`\
 https://nytimes.com/2024/12/07/special-series/artificial-intelligence-schools-education.html
-
-**A Times reporter got a look inside Notre-Dame before its grand unveiling.**\
-`By Aurelien Breeden`\
-https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/a-times-reporter-got-a-look-inside-notre-dame-before-its-grand-unveiling
 
