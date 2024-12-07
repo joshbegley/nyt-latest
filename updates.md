@@ -1,3 +1,7 @@
+**Thompson: Warriors arrive at the only conclusion left: The Jonathan Kuminga era is here**\
+`With their offense sputtering, the Warriors need to know what they have in their 2021 first-round pick. So begins the Jonathan Kuminga era.`\
+https://nytimes.com/athletic/5976655/2024/12/07/golden-state-warriors-jonathan-kuminga-era/
+
 **The leader of Syria’s rebels told The Times that their aim is to oust al-Assad.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/the-leader-of-syrias-rebels-told-the-times-that-their-aim-is-to-oust-al-assad

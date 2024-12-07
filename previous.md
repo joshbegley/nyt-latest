@@ -1,3 +1,7 @@
+**Thompson: Warriors arrive at the only conclusion left: The Jonathan Kuminga era is here**\
+`With their offense sputtering, the Warriors need to know what they have in their 2021 first-round pick. So begins the Jonathan Kuminga era.`\
+https://nytimes.com/athletic/5976655/2024/12/07/golden-state-warriors-jonathan-kuminga-era/
+
 **The leader of Syria’s rebels told The Times that their aim is to oust al-Assad.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/the-leader-of-syrias-rebels-told-the-times-that-their-aim-is-to-oust-al-assad
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976482/2024/12/07/trouba-trade-shesterkin-extensio
 **The reopening gives an embattled Macron a rare public triumph.**\
 `By Adam Nossiter, Aurelien Breeden and Richard Fausset`\
 https://nytimes.com/live/2024/12/07/world/notre-dame-reopen/the-reopening-gives-an-embattled-macron-a-rare-public-triumph
-
-**Lindsey Vonn, at 40, returns to competitive skiing with two downhill races**\
-`Lindsey Vonn's unlikely bid to get back to the top of skiing started Saturday, with two downhill races in Colorado she used as "training."`\
-https://nytimes.com/athletic/5976478/2024/12/07/lindsey-vonn-returns-skiing-downhill-world-cup-olympics/
 
