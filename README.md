@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5975866/2024/12/06/army-tulane-american-championshi
 https://nytimes.com/2024/12/06/style/tiktok-ban-reactions.html
 
 **Boise State, Ashton Jeanty steamroll UNLV to win Mountain West**\
-`In the second quarter, Jeanty passed USC’s Marcus Allen for fourth all-time on the FBS single-season rushing chart.`\
+`In a final Heisman push, Jeanty passed USC’s Marcus Allen for fourth all-time on the FBS single-season rushing chart.`\
 https://nytimes.com/athletic/5975824/2024/12/06/boise-state-unlv-mountain-west-championship-score-results/
 
 **Penguins play loose and get cooled off by Rangers: 3 takeaways**\
