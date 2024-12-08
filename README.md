@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Boise State, Arizona State lock up bids**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-projections-odds/
+
 **Miho Nakayama, Japanese Music and Movie Star, Dies at 54**\
 `A top-selling pop singer as a teenager in the 1980s, she also had an award-winning career as a dramatic actress.`\
 https://nytimes.com/2024/12/07/arts/music/miho-nakayama-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/us/wizard-oz-garland-ruby-slippers-auction.html
 **U.S. national security adviser says Syria has been abandoned by its key allies.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-national-security-adviser-says-syria-has-been-abandoned-by-its-key-allies
-
-**An N.Y.P.D. Manhunt Caught a Subway Shooter. This Time, It’s Different.**\
-`Capturing a suspect who slips away from a crime scene requires solid police work, help from the public and a little luck, experts say. So far, it’s not working.`\
-https://nytimes.com/2024/12/07/nyregion/uhc-ceo-manhunt-frank-james.html
 
