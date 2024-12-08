@@ -1,3 +1,7 @@
+**Ashworth leaves role as Man United sporting director after five months**\
+`Dan Ashworth has left his role as Manchester United sporting director after just five months.`\
+https://nytimes.com/athletic/5972334/2024/12/08/manchester-united-dan-ashworth-leaves/
+
 **Syrians Celebrate as Rebel Forces Take Control of Damascus**\
 `Gunfire and cheering erupted in the Syrian capital after rebels pushed out the military while President Bashar al-Assad was nowhere to be seen.`\
 https://nytimes.com/video/world/middleeast/100000009865736/syria-damascus-assad-rebels.html
