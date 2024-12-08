@@ -1,3 +1,7 @@
+**After winning Sun Belt, Marshall coach Huff expected to take Southern Miss job**\
+`Huff did not have a contract at Marshall beyond this season.`\
+https://nytimes.com/athletic/5976639/2024/12/08/charles-huff-marshall-southern-miss-coach/
+
 **The top 90 remaining MLB free agents**\
 `With the Hot Stove warming up and the Winter Meetings finally here, let's pull back and survey the free-agent field. `\
 https://nytimes.com/athletic/5976787/2024/12/08/top-remaining-mlb-free-agents-hot-stove/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/briefing/syria-rebels-assad.html
 **College Football Playoff 2024 projections: SMU favored over Alabama for final spot**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-projections-odds/
-
-**Bayern retire No 5 shirt in honour of Beckenbauer**\
-`Bayern Munich members have voted to retire the club&#8217;s No 5 shirt in honour of their former player and manager Franz Beckenbauer, who died in January this year aged 78.`\
-https://nytimes.com/athletic/5977719/2024/12/08/bayern-munich-retire-5-franz-beckenbauer/
 
