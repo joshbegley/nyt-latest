@@ -1,3 +1,7 @@
+**Clemson's improbable ACC championship sets up Playoff berth: 'Anything can happen'**\
+`The Tigers beat SMU 34-31 for the ACC championship and won their way into the College Football Playoff.`\
+https://nytimes.com/athletic/5977530/2024/12/08/clemson-acc-championship-smu-college-football/
+
 **Here are the latest developments.**\
 `By Raja Abdulrahim, Hwaida Saad and Farnaz Fassihi`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/opinion/marco-rubio-secretary-of-state.html
 **College Football Playoff 2024 projections: SMU favored over Alabama for final spot**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-projections-odds/
-
-**The star quality of Leeds' four wingers could prove their driving force**\
-`Dan James, Manor Solomon, Willy Gnonto and Largie Ramazani are all fit - and that makes Farke's front line the envy of the Championship`\
-https://nytimes.com/athletic/5976111/2024/12/08/leeds-united-james-solomon-gnonto-ramazani/
 
