@@ -1,3 +1,11 @@
+**NFL Week 14 inactives and fantasy tips: Breece Hall out, Allen Lazard activated from IR**\
+`Check out who's in and who's out for Week 14. Plus last-minute free agency options and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5976512/2024/12/08/nfl-week-14-inactives-and-fantasy-tips/
+
+**Bill Clinton on the Election, D.E.I. and One of His Regrets**\
+`The former president spoke with Andrew Ross Sorkin at the DealBook Summit.`\
+https://nytimes.com/2024/12/08/business/dealbook/bill-clinton-dealbook.html
+
 **The location of Bashar al-Assad remains unclear.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-location-of-bashar-al-assad-remains-unclear
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/world/africa/ghana-presidential-election.html
 **Conor McGregor lost a civil rape case. Will it harm his earnings or UFC career?**\
 `While the life of a woman is in tatters, will there be any impact beyond paying damages for the UFC star?`\
 https://nytimes.com/athletic/5950977/2024/12/08/conor-mcgregor-ufc-earnings/
-
-**Mandel's Final Thoughts: Winners and losers of championship weekend's wild swings**\
-`No definitive predictions here, but Saturday's action left the selection committee with some decisions we'll be talking about for years.`\
-https://nytimes.com/athletic/5977599/2024/12/08/cfp-rankings-smu-alabama-final-thoughts/
-
-**Jameson Taillon’s perspective on free agency, trade rumors and next moves for the Cubs**\
-`Taillon gave his thoughts on the Cubs' recent addition of Matthew Boyd: "I think there’s upside there."`\
-https://nytimes.com/athletic/5977085/2024/12/08/cubs-jameson-taillon-free-agency-trade-rumors/
 
