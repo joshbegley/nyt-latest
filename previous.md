@@ -1,3 +1,7 @@
+**The location of Bashar al-Assad remains unclear.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-location-of-bashar-al-assad-remains-unclear
+
 **Assad’s Rule Ends**\
 `We explain the latest developments in Syria.`\
 https://nytimes.com/2024/12/08/briefing/syria-rebels-assad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977599/2024/12/08/cfp-rankings-smu-alabama-final-t
 **Jameson Taillon’s perspective on free agency, trade rumors and next moves for the Cubs**\
 `Taillon gave his thoughts on the Cubs' recent addition of Matthew Boyd: "I think there’s upside there."`\
 https://nytimes.com/athletic/5977085/2024/12/08/cubs-jameson-taillon-free-agency-trade-rumors/
-
-**What Doctors Like Myself Know About Americans’ Health Care Anger**\
-`As a doctor, I’ve been on both sides of frustrating health care debacles.`\
-https://nytimes.com/2024/12/08/opinion/health-care-anger.html
 

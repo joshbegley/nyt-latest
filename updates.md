@@ -1,3 +1,7 @@
+**The location of Bashar al-Assad remains unclear.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-location-of-bashar-al-assad-remains-unclear
+
 **Assad’s Rule Ends**\
 `We explain the latest developments in Syria.`\
 https://nytimes.com/2024/12/08/briefing/syria-rebels-assad.html
