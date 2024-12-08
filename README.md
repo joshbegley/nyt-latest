@@ -1,3 +1,11 @@
+**Wild off their game in rare poor road outing against stingy opponent: 3 takeaways vs. Kings**\
+`The Wild's 4-1 loss to the Kings was their second regulation loss in 16 road games and first regulation loss in their past 10 road games.`\
+https://nytimes.com/athletic/5977298/2024/12/08/wild-kings-takeaways-road-record/
+
+**Explained: FIFA and DAZN's $1billion broadcast deal for the 2025 Club World Cup**\
+`The Athletic breaks down FIFA’s agreement with DAZN and what the $1billion deal means for the clubs participating next summer…`\
+https://nytimes.com/athletic/5976385/2024/12/08/club-world-cup-dazn-1billion-broadcast-deal/
+
 **Premier League games cost millions to stage - what happens when they are called off?**\
 `The final Premier League derby between Everton and Liverpool fell victim to the weather. But some good came of the postponement`\
 https://nytimes.com/athletic/5976287/2024/12/08/everton-liverpool-merseyside-derby-postponed-storm-darragh/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5977323/2024/12/07/nuggets-nikola-jokic-highlights-
 **A backup QB, of all people, comes to Georgia's rescue — not detriment**\
 `"Gunner is him. He's that guy," Trevor Etienne said of the backup quarterback who led Georgia to the SEC title. `\
 https://nytimes.com/athletic/5977359/2024/12/07/georgia-football-sec-championship-gunner-stockton/
-
-**Maple Leafs report cards: Luck and the result not on Toronto's side — again**\
-`For the first time since the end of October, the Maple Leafs lost back-to-back games in regulation.`\
-https://nytimes.com/athletic/5977282/2024/12/07/maple-leafs-penguins-grades-analysis/
-
-**Conference title games make no sense in the 12-team College Football Playoff era**\
-`Even Kirby Smart admitted that this year's SEC title game lacked the "same juice and atmosphere" as in previous seasons. `\
-https://nytimes.com/athletic/5977321/2024/12/07/sec-championship-game-georgia-texas-carson-beck/
 
