@@ -1,3 +1,15 @@
+**Clemson's improbable ACC championship sets up Playoff berth: 'Anything can happen'**\
+`The Tigers beat SMU 34-31 for the ACC championship and won their way into the College Football Playoff.`\
+https://nytimes.com/athletic/5977530/2024/12/08/clemson-acc-championship-smu-college-football/
+
+**Here are the latest developments.**\
+`By Raja Abdulrahim, Hwaida Saad and Farnaz Fassihi`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/here-are-the-latest-developments
+
+**Syria Live Updates: Rebels Declare Damascus Free of al-Assad**\
+`After just a few days of rapid advances, the rebels appeared to control Syria’s capital. They said they would work with a top official in President Bashar al-Assad’s government. Mr. al-Assad’s location was unclear.`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus
+
 **Canadiens then and now: Another third-period loss to the Capitals feels far different**\
 `The Canadiens allowed three third-period goals to lose to the Capitals, just like they did on Halloween night, but so much has changed.`\
 https://nytimes.com/athletic/5977512/2024/12/08/montreal-canadiens-washington-capitals/
