@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: SMU favored over Alabama for final spot**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-projections-odds/
+
 **SMU vs. Bama on the bubble: What we learned about the Playoff from conference title games**\
 `College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
 https://nytimes.com/athletic/5976722/2024/12/08/college-football-playoff-bracket-conference-championship-games/
