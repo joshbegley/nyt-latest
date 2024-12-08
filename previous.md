@@ -1,3 +1,7 @@
+**Quotation of the Day: At Stake in Syria Fight: Domination of Mideast**\
+`Quotation of the Day for Sunday, December 8, 2024.`\
+https://nytimes.com/2024/12/07/pageoneplus/quotation-of-the-day-at-stake-in-syria-fight-domination-of-mideast.html
+
 **South Korea’s Ex-Defense Chief Is Detained Over Martial Law Episode**\
 `Prosecutors are investigating whether President Yoon Suk Yeol and his followers committed insurrection when they briefly put South Korea under martial law.`\
 https://nytimes.com/2024/12/07/world/asia/south-korea-martial-law-defense-minister-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/arts/music/miho-nakayama-dead.html
 **How far will Texas fall? What we're learning about the Playoff from conference title games**\
 `College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
 https://nytimes.com/athletic/5976722/2024/12/07/college-football-playoff-bracket-conference-championship-games/
-
-**Blackhawks goalie Petr Mrázek to miss time after lower-body injury**\
-`Mrázek left Saturday's game against the Jets after making an awkward save along the post in the first period and did not return.`\
-https://nytimes.com/athletic/5977129/2024/12/07/blackhawks-petr-mrazek-injury/
 

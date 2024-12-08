@@ -1,3 +1,7 @@
+**Quotation of the Day: At Stake in Syria Fight: Domination of Mideast**\
+`Quotation of the Day for Sunday, December 8, 2024.`\
+https://nytimes.com/2024/12/07/pageoneplus/quotation-of-the-day-at-stake-in-syria-fight-domination-of-mideast.html
+
 **South Korea’s Ex-Defense Chief Is Detained Over Martial Law Episode**\
 `Prosecutors are investigating whether President Yoon Suk Yeol and his followers committed insurrection when they briefly put South Korea under martial law.`\
 https://nytimes.com/2024/12/07/world/asia/south-korea-martial-law-defense-minister-arrest.html
