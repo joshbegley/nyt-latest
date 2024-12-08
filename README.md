@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5977423/2024/12/08/kentucky-gonzaga-mark-pope/
 `Thoughts of loved ones dead or missing complicate joyous relief at the prospect of an end to the rule of Bashar al-Assad.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-damascus-eyewitness-assad.html
 
-**Navarro: Skipping the ACC title game might have been the smarter play for SMU**\
-`After loss to Clemson, the Mustangs are hoping the CFP committee still thinks they deserve an at-large spot. The ACC h reason to be worried.`\
+**Navarro: SMU left wondering whether it should have called in sick for ACC title game**\
+`After loss to Clemson, the Mustangs hope the CFP committee still thinks they deserve an at-large spot. They have reason to be concerned.`\
 https://nytimes.com/athletic/5977425/2024/12/08/smu-clemson-acc-championship-college-football-playoff/
 
 **'A Celtic for life': Marcus Smart feels the love, shows off his son in return to Boston**\
