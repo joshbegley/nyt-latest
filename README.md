@@ -1,3 +1,7 @@
+**Corrections: Dec. 8, 2024**\
+`Corrections that appeared in print on Sunday, Dec. 8, 2024.`\
+https://nytimes.com/2024/12/07/pageoneplus/corrections-dec-8-2024.html
+
 **How will the Playoff handle Georgia QB Carson Beck's injury? Why it's not like FSU**\
 `Florida State was left out of a four-team Playoff last year after losing Jordan Travis. Georgia faces no such concern after Beck's injury.`\
 https://nytimes.com/athletic/5977244/2024/12/07/carson-beck-injury-georgia-playoff-fsu-jordan-travis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977121/2024/12/07/sf-giants-willy-adames-signing-b
 **Unidentified Drones Light Up New Jersey’s Skies, Baffling Residents**\
 `People across the state have reported seeing scores of large, low-flying objects in recent weeks. Officials haven’t said where they’re coming from, or why they’re here.`\
 https://nytimes.com/2024/12/07/nyregion/new-jersey-drones.html
-
-**Orioles, Tyler O'Neill agree to 3-year, $49.5 million deal: Source**\
-`O'Neill's pact with Baltimore contains an opt-out after the 2025 season. He hit 31 home runs in 2024 for the Red Sox.`\
-https://nytimes.com/athletic/5977115/2024/12/07/orioles-tyler-oneill-contract/
 
