@@ -1,3 +1,7 @@
+**Charlotte hiring Ohio coach Tim Albin, who led Bobcats to MAC crown: Source**\
+`Albin would take over a young Charlotte program that began play in 2013 and has reached one bowl game in its history.`\
+https://nytimes.com/athletic/5977202/2024/12/07/tim-albin-charlotte-coach-ohio-bobcats/
+
 **College Football Playoff 2024 projections: Georgia vaults to No. 2 seed after SEC title**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891633/2024/12/07/2024-25-mlb-top-40-free-agmlb-to
 **‘Wizard of Oz’ Ruby Slippers Sell at Auction for a Record $28 Million**\
 `The slippers, worn by Judy Garland in “The Wizard of Oz,” were stolen from the museum that bears her name in 2005 before investigators recovered them in 2018.`\
 https://nytimes.com/2024/12/07/us/wizard-oz-garland-ruby-slippers-auction.html
-
-**U.S. national security adviser says Syria has been abandoned by its key allies.**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-national-security-adviser-says-syria-has-been-abandoned-by-its-key-allies
 
