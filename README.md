@@ -1,3 +1,7 @@
+**AP Top 25: Alabama 1 point ahead of SMU in poll**\
+`Oregon, Georgia, Notre Dame, Texas and Penn State make up the top five of the AP poll, while Alabama moved past SMU.`\
+https://nytimes.com/athletic/5978100/2024/12/08/ap-top-25-rankings-playoff-alabama-smu/
+
 **Angela Alvarez, Great-Grandmother Who Won a Latin Grammy, Dies at 97**\
 `Her only album made her a media star after she had raised four children and worked as a house cleaner — proving, she said, that “it’s never too late.”`\
 https://nytimes.com/2024/12/08/arts/music/angela-alvarez-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/world/europe/ukrainian-war-dead.html
 **Apple Sued for Failing to Curtail Child Sexual Abuse Material on iCloud**\
 `Victims of abuse are seeking more than $1.2 billion in damages, arguing that the company abandoned a 2021 system it developed to find abusive material.`\
 https://nytimes.com/2024/12/08/technology/apple-child-sexual-abuse-material-lawsuit.html
-
-**Family Renews Appeal to Find U.S. Journalist Missing in Syria**\
-`Relatives of Austin Tice, who disappeared in 2012 near the Syrian capital, said they believe that he is alive.`\
-https://nytimes.com/2024/12/08/world/middleeast/austin-tice-syria-journalist.html
 
