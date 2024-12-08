@@ -26,8 +26,8 @@ https://nytimes.com/athletic/5977115/2024/12/07/orioles-tyler-oneill-contract/
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
 https://nytimes.com/athletic/5891633/2024/12/07/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
 
-**‘Wizard of Oz’ Slippers Sell at Auction for a Record $28 Million**\
-`The slippers worn by Judy Garland in “The Wizard of Oz” were stolen from the museum that bears her name in 2005 before investigators recovered them in 2018.`\
+**‘Wizard of Oz’ Ruby Slippers Sell at Auction for a Record $28 Million**\
+`The slippers, worn by Judy Garland in “The Wizard of Oz,” were stolen from the museum that bears her name in 2005 before investigators recovered them in 2018.`\
 https://nytimes.com/2024/12/07/us/wizard-oz-garland-ruby-slippers-auction.html
 
 **U.S. national security adviser says Syria has been abandoned by its key allies.**\
