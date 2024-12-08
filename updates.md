@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins rebound impressively and shut down Maple Leafs**\
+`The Penguins played perhaps their best game of the season in a 5-2 win against the Maple Leafs on Saturday. `\
+https://nytimes.com/athletic/5975629/2024/12/07/penguins-maple-leafs-rust-bunting/
+
 **Nuggets waste Nikola Jokić's career night in inexplicable loss to woeful Wizards**\
 `"We all have to start participating in our own recovery," Michael Malone said after Denver dropped to 11-10 with a loss to lowly Washington.`\
 https://nytimes.com/athletic/5977323/2024/12/07/nuggets-nikola-jokic-highlights-wizards-loss/
