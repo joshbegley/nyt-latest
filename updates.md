@@ -1,3 +1,7 @@
+**Biden Says U.S. Conducted Airstrikes Against ISIS in Syria**\
+`President Biden hailed the fall of President Bashar al-Assad’s government and said U.S. forces took action to wipe out pockets of the Islamic State on Sunday.`\
+https://nytimes.com/video/us/100000009866432/biden-syria-assad.html
+
 **Government soldiers put up little resistance when the rebels stormed Damascus, video shows.**\
 `By Raja Abdulrahim, Nailah Morgan and Aritz Parra`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/government-soldiers-put-up-little-resistance-when-the-rebels-stormed-damascus-video-shows

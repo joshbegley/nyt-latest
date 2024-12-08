@@ -1,3 +1,7 @@
+**Biden Says U.S. Conducted Airstrikes Against ISIS in Syria**\
+`President Biden hailed the fall of President Bashar al-Assad’s government and said U.S. forces took action to wipe out pockets of the Islamic State on Sunday.`\
+https://nytimes.com/video/us/100000009866432/biden-syria-assad.html
+
 **Government soldiers put up little resistance when the rebels stormed Damascus, video shows.**\
 `By Raja Abdulrahim, Nailah Morgan and Aritz Parra`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/government-soldiers-put-up-little-resistance-when-the-rebels-stormed-damascus-video-shows
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/world/middleeast/syria-army-assad-fall.html
 **Who will win the College Football Playoff? Bruce Feldman fills out his bracket**\
 `Predictions for how the first 12-team College Football Playoff bracket will play out, ending with Oregon beating Georgia for the title.`\
 https://nytimes.com/athletic/5978565/2024/12/08/college-football-playoff-bracket-predictions-picks-feldman/
-
-**Postecoglou: Not a gamble to play Van de Ven and Romero against Chelsea**\
-`Tottenham Hotspur head coach Ange Postecoglou says it was not a gamble to play Micky van de Ven and Cristian Romero against Chelsea despite the defenders going off injured during Sunday’s 4-3 loss.`\
-https://nytimes.com/athletic/5978725/2024/12/08/van-de-ven-romero-tottenham-injury-postecoglou/
 
