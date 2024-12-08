@@ -1,3 +1,7 @@
+**The Campaign by Syrian Rebels to Topple al-Assad Was Swift**\
+`President Bashar al-Assad had kept opposition forces at bay for a decade with help from Russia and Iran. But rebels struck at a moment of weakness for those countries.`\
+https://nytimes.com/2024/12/08/world/middleeast/assad-syria.html
+
 **Bogged Down in Ukraine, Russia Pays a Price in Syria**\
 `With the fall of President Bashar al-Assad of Syria, Vladimir V. Putin has suffered one of the biggest geopolitical setbacks of his quarter-century in power.`\
 https://nytimes.com/2024/12/08/world/europe/russia-syria-assad-putin.html
