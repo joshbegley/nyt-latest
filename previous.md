@@ -1,3 +1,7 @@
+**Trump Says He Does Not Have Plans to Replace Fed Chair**\
+`Donald J. Trump, the president-elect, said he doesn’t “see it” when asked if he would try to oust the head of America’s central bank.`\
+https://nytimes.com/2024/12/08/us/politics/trump-federal-reserve-jerome-powell.html
+
 **Assad’s fall deprives Hezbollah of a key ally.**\
 `By Ben Hubbard`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/assads-fall-deprives-hezbollah-of-a-key-ally
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977870/2024/12/08/lando-norris-mclaren-win-2024-f1
 **Until Saturday: Who will make the Playoff after a wild weekend?**\
 `Welcome to Until Saturday, the five-star college football newsletter: Who will make the College Football Playoff field?`\
 https://nytimes.com/athletic/5977672/2024/12/08/college-football-playoff-field-until-saturday/
-
-**How McLaren, F1 champions again after 26 years, went from last to first in 18 months**\
-`Led by talented drivers and a serene team principal, McLaren rapidly grew into the champion it has so longed to become again. `\
-https://nytimes.com/athletic/5960099/2024/12/08/mclaren-f1-2024-championship-season/
 

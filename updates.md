@@ -1,3 +1,7 @@
+**Trump Says He Does Not Have Plans to Replace Fed Chair**\
+`Donald J. Trump, the president-elect, said he doesn’t “see it” when asked if he would try to oust the head of America’s central bank.`\
+https://nytimes.com/2024/12/08/us/politics/trump-federal-reserve-jerome-powell.html
+
 **Assad’s fall deprives Hezbollah of a key ally.**\
 `By Ben Hubbard`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/assads-fall-deprives-hezbollah-of-a-key-ally
