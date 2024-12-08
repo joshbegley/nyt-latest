@@ -1,3 +1,11 @@
+**Saints beat Giants on blocked field goal, lose Carr to injury: Takeaways**\
+`New Orleans now faces questions about the health of its quarterback after a wild win in New York.`\
+https://nytimes.com/athletic/5978168/2024/12/08/saints-giants-score-result-takeaways/
+
+**Monday Briefing: Al-Assad Flees Syria as Rebels Claim Power**\
+`Plus, Notre-Dame reopens.`\
+https://nytimes.com/2024/12/08/briefing/syria-south-korea-trump.html
+
 **Initial thoughts on Ohio State's tough draw in College Football Playoff field**\
 `The Buckeyes earned the No. 8 seed and will host No. 9 seed Tennessee in the first round. Can Ohio State make a run?`\
 https://nytimes.com/athletic/5978976/2024/12/08/ohio-state-college-football-playoff-path/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/us/linda-mcmahon-sexual-abuse-lawsuit.html
 **Buccaneers take NFC South lead with 28-13 win over Raiders: Takeaways**\
 `For the first time in his career, Rachaad White scored a rushing touchdown and receiving touchdown in the same game.`\
 https://nytimes.com/athletic/5978204/2024/12/08/raiders-buccaneers-score-result-takeaways/
-
-**With Carson Beck injured, Georgia may turn to Gunner Stockton for Playoff**\
-`Beck had an MRI done on his right throwing arm Sunday morning after getting injured on Saturday vs. Texas. `\
-https://nytimes.com/athletic/5978857/2024/12/08/carson-beck-injury-georgia-football-cfp/
-
-**Biden Says U.S. Conducted Airstrikes Against ISIS in Syria**\
-`President Biden hailed the fall of President Bashar al-Assad’s government and said U.S. forces took action to wipe out pockets of the Islamic State on Sunday.`\
-https://nytimes.com/video/us/100000009866432/biden-syria-assad.html
 
