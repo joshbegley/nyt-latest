@@ -1,3 +1,11 @@
+**Wrexham's outrageous winner does not mask goalscoring struggles away from home**\
+`With their third away win of the season in the league, Wrexham's performance at Burton was a step in the right direction`\
+https://nytimes.com/athletic/5974319/2024/12/08/wrexham-corner-away-form/
+
+**After Failed Martial Law, South Koreans Ask: Who’s in Charge?**\
+`President Yoon Suk Yeol’s ill-fated bid to impose martial law has created a power vacuum in his governing camp, pushing the country deeper into what analysts call a constitutional crisis.`\
+https://nytimes.com/2024/12/08/world/asia/south-korea-martial-law-yoon.html
+
 **A President Rejected by Voters Eight Years Ago Wins Election Again in Ghana**\
 `John Dramani Mahama, who served as president from 2012 to 2017, is set to return to office after his main opponent, Mahamudu Bawumia, conceded defeat.`\
 https://nytimes.com/2024/12/08/world/africa/ghana-presidential-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/opinion/nightbitch-amy-adams-motherhood.html
 **Climate Activists Need to Radically Change Their Approach Under Trump**\
 `Climate purity is a recipe for failure.`\
 https://nytimes.com/2024/12/08/opinion/climate-clean-energy-trump.html
-
-**Wordle Review No. 1,269**\
-`Scroll down for hints and conversation about the puzzle for Monday, Dec. 9, 2024.`\
-https://nytimes.com/2024/12/08/crosswords/wordle-review-1269.html
-
-**Commerce Dept. Is on the Front Lines of China Policy**\
-`Over the past four years, the department has confronted the challenge of China by restricting key exports, a policy that is likely to continue in the Trump administration.`\
-https://nytimes.com/2024/12/08/us/politics/commerce-dept-is-on-the-front-lines-of-china-policy.html
 
