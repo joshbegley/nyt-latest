@@ -1,3 +1,7 @@
+**Nations and Leaders React to Toppling of Syria Regime**\
+`The U.N. special envoy called it a “watershed moment” on Sunday as world leaders reckoned with the news.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-global-reactions-world-leaders.html
+
 **Syrians Also Have Israel to Thank for Their Liberation**\
 `Israel’s actions diminished Assad’s ability to resist the rebels.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/syria-liberation-israel-assad

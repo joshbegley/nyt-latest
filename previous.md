@@ -1,3 +1,7 @@
+**Nations and Leaders React to Toppling of Syria Regime**\
+`The U.N. special envoy called it a “watershed moment” on Sunday as world leaders reckoned with the news.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-global-reactions-world-leaders.html
+
 **Syrians Also Have Israel to Thank for Their Liberation**\
 `Israel’s actions diminished Assad’s ability to resist the rebels.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/syria-liberation-israel-assad
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/world/middleeast/syria-prisons-sednaya-assad.html
 **AP Top 25: Alabama 1 point ahead of SMU in poll**\
 `Oregon, Georgia, Notre Dame, Texas and Penn State make up the top five of the AP poll, while Alabama moved past SMU.`\
 https://nytimes.com/athletic/5978100/2024/12/08/ap-top-25-rankings-playoff-alabama-smu/
-
-**Angela Alvarez, Great-Grandmother Who Won a Latin Grammy, Dies at 97**\
-`Her only album made her a media star after she had raised four children and worked as a house cleaner — proving, she said, that “it’s never too late.”`\
-https://nytimes.com/2024/12/08/arts/music/angela-alvarez-dead.html
 
