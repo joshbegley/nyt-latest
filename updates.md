@@ -1,3 +1,7 @@
+**Liverpool make opening contract offer to Salah**\
+`Liverpool have made an opening contract offer to Mohamed Salah.`\
+https://nytimes.com/athletic/5976974/2024/12/08/mohamed-salah-contract-liverpool/
+
 **College Football Playoff odds: Home teams open as big favorites in first round**\
 `The home teams are the betting favorites in all four first-round games of the College Football Playoff.`\
 https://nytimes.com/athletic/5978321/2024/12/08/college-football-playoff-betting-odds-first-round/

@@ -1,3 +1,7 @@
+**Liverpool make opening contract offer to Salah**\
+`Liverpool have made an opening contract offer to Mohamed Salah.`\
+https://nytimes.com/athletic/5976974/2024/12/08/mohamed-salah-contract-liverpool/
+
 **College Football Playoff odds: Home teams open as big favorites in first round**\
 `The home teams are the betting favorites in all four first-round games of the College Football Playoff.`\
 https://nytimes.com/athletic/5978321/2024/12/08/college-football-playoff-betting-odds-first-round/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978314/2024/12/08/college-football-national-title-
 **Space Age Blues and the ‘Dancing Spirit’ of Judith Jamison**\
 `Alvin Ailey American Dance Theater returns for its annual December season with an enigmatic premiere by Jamar Roberts and the revival of “Grace.”`\
 https://nytimes.com/2024/12/08/arts/dance/alvin-ailey-jamar-roberts-al-andalus-blues.html
-
-**Trump Suggests Kennedy Will Examine Debunked Link Between Vaccines and Autism**\
-`The president-elect has promoted the theory for more than a decade and said on Sunday that he was “open to anything” to address a nationwide rise in autism.`\
-https://nytimes.com/2024/12/08/us/politics/trump-rfk-jr-vaccines-autism.html
 
