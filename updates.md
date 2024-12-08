@@ -1,3 +1,7 @@
+**How far will Texas fall? What we're learning about the Playoff from conference title games**\
+`College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
+https://nytimes.com/athletic/5976722/2024/12/07/college-football-playoff-bracket-conference-championship-games/
+
 **Blackhawks goalie Petr Mrázek to miss time after lower-body injury**\
 `Mrázek left Saturday's game against the Jets after making an awkward save along the post in the second period and did not return.`\
 https://nytimes.com/athletic/5977129/2024/12/07/blackhawks-petr-mrazek-injury/
