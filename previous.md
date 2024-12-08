@@ -1,3 +1,7 @@
+**Assad’s fall deprives Hezbollah of a key ally.**\
+`By Ben Hubbard`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/assads-fall-deprives-hezbollah-of-a-key-ally
+
 **Formula 1 mailbag: Submit your end-of-season questions for our writers**\
 `Reflecting on 2024 or looking ahead to 2025? It was a phenomenal season, and we'd like to hear from you.`\
 https://nytimes.com/athletic/5978046/2024/12/08/formula-1-mailbag-season-finale-abu-dhabi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977672/2024/12/08/college-football-playoff-field-u
 **How McLaren, F1 champions again after 26 years, went from last to first in 18 months**\
 `Led by talented drivers and a serene team principal, McLaren rapidly grew into the champion it has so longed to become again. `\
 https://nytimes.com/athletic/5960099/2024/12/08/mclaren-f1-2024-championship-season/
-
-**The Streets of My Country Are Full of Fury**\
-`Georgia is lurching toward authoritarianism. This may be our last chance to pull it back.`\
-https://nytimes.com/2024/12/08/opinion/georgia-protests.html
 

@@ -1,3 +1,7 @@
+**Assad’s fall deprives Hezbollah of a key ally.**\
+`By Ben Hubbard`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/assads-fall-deprives-hezbollah-of-a-key-ally
+
 **Formula 1 mailbag: Submit your end-of-season questions for our writers**\
 `Reflecting on 2024 or looking ahead to 2025? It was a phenomenal season, and we'd like to hear from you.`\
 https://nytimes.com/athletic/5978046/2024/12/08/formula-1-mailbag-season-finale-abu-dhabi/
