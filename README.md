@@ -1,40 +1,40 @@
-**Israel says it has entered the demilitarized buffer zone in the Golan Heights.**\
-`By Ronen Bergman and Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/12/08/world/syria-war-damascus/israel-says-it-has-entered-the-demilitarized-buffer-zone-in-the-golan-heights
+**Scrubbing Up for a Peek at the Resuscitated Notre-Dame Cathedral**\
+`Michael Kimmelman, the architecture critic for The New York Times, visited the Paris landmark last summer amid the restoration.`\
+https://nytimes.com/2024/12/08/insider/notre-dame-behind-scenes.html
 
-**Ashworth leaves role as Man United sporting director after five months**\
-`Dan Ashworth has left his role as Manchester United sporting director after just five months.`\
-https://nytimes.com/athletic/5972334/2024/12/08/manchester-united-dan-ashworth-leaves/
+**From Tarot Cards to Streamlined Design, We Can’t Stop Predicting the Future**\
+`In “A Century of Tomorrows,” Glenn Adamson offers a hurtling history of the art, science and big business of looking ahead.`\
+https://nytimes.com/2024/12/08/books/review/a-century-of-tomorrows-glenn-adamson.html
 
-**Syrians Celebrate as Rebel Forces Take Control of Damascus**\
-`Gunfire and cheering erupted in the Syrian capital after rebels pushed out the military while President Bashar al-Assad was nowhere to be seen.`\
-https://nytimes.com/video/world/middleeast/100000009865736/syria-damascus-assad-rebels.html
+**Nick Cave Will Take a Selfie With You, if You Insist**\
+`Back out on the road, and after working through his extreme grief, the longtime rocker is connecting with more fans than ever.`\
+https://nytimes.com/2024/12/08/style/nick-cave-will-take-a-selfie-with-you-if-you-insist.html
 
-**How seriously should we take Penn State after hanging with Oregon in Big Ten title match?**\
-`After the loss, there was no politicking from Penn State’s players about what seed they want when the CFP bracket is revealed.`\
-https://nytimes.com/athletic/5977571/2024/12/08/penn-state-oregon-big-ten-championship-college-football/
+**What Alice Munro Knew**\
+`The Nobel-winning author’s husband was a pedophile who targeted her daughter and other children. Why did she stay silent?`\
+https://nytimes.com/2024/12/08/magazine/alice-munro-andrea-skinner-abuse.html
 
-**Oregon goes unbeaten (with swagger) in first Big Ten season. And the Ducks aren't finished**\
-`With victory over Penn State, Oregon secured the No. 1 spot in the College Football Playoff and a national quarterfinal in the Rose Bowl,`\
-https://nytimes.com/athletic/5977544/2024/12/08/oregon-penn-state-big-ten-championship/
+**They Love France. So When Notre-Dame Burned, They Wanted to Help.**\
+`A couple from North Carolina are part of the second-largest group of donors to the huge fund-raising effort to restore the famous cathedral: Americans.`\
+https://nytimes.com/2024/12/08/world/europe/notre-dame-restoration-american-donors.html
 
-**The Glorious, Behind-the-Scenes Mess That Is Cookie Week**\
-`A weeklong celebration of cookies takes months of planning and baking, not to mention various photo and video shoots.`\
-https://nytimes.com/2024/12/08/insider/behind-the-scenes-times-cookie-week.html
+**He Was Shot in the Face. Now Ukraine Wants to Draft Him.**\
+`After being left for dead by Russian soldiers, Mykola Kulichenko doesn’t think he should be forced to serve. His experience highlights the vagaries of Ukraine’s aggressive mobilization.`\
+https://nytimes.com/2024/12/08/world/europe/ukraine-army-draft-mykola-kulichenko.html
 
-**At Daniel Penny’s Trial, the Moment May Matter as Much as the Evidence**\
-`Jordan Neely’s death on the subway would once have prompted persistent protests. But when it comes to the perception of threat, context is everything.`\
-https://nytimes.com/2024/12/08/nyregion/daniel-penny-jordan-neely-chokehold-trial.html
+**Inside the Four-Day Workweek Experiment**\
+`A British group is pushing for more companies to offer their workers shorter hours. Here’s what it looks like for two companies willing to test it out.`\
+https://nytimes.com/2024/12/08/business/four-day-work-week-uk.html
 
-**Must I Share My Story?**\
-`A reader asks whether she needs to let her new colleagues, most of whom work remotely, know that she is undergoing chemotherapy treatments.`\
-https://nytimes.com/2024/12/08/business/bad-manager-work-advice.html
+**Did Trump Drain Democrats’ Energy? These Races Will Be the First Test.**\
+`As Democrats try to fire up their fatigued base, two contests for the Virginia legislature will serve as the first measure of partisan enthusiasm since Donald J. Trump’s victory.`\
+https://nytimes.com/2024/12/08/us/politics/virginia-special-elections.html
 
-**‘I Was So Absorbed in My Notes That I Had Forgotten to Have Lunch’**\
-`A forbidden snack while studying, exercise to start the day and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/12/08/nyregion/metropolitan-diary.html
+**A Mural, and the Heroic Efforts to Save It**\
+`When Pfizer moved to a new building in Manhattan last year, it left behind artwork that had hung in its lobby for 63 years. Not everyone was pleased.`\
+https://nytimes.com/2024/12/08/realestate/pfizer-mural-nikos-bel-jon.html
 
-**How a Never-Ending Home Renovation Project Is Fighting Climate Change**\
-`Forrest Meggers, a professor at Princeton University, has turned his home into a live-in laboratory that pushes the boundaries of sustainability.`\
-https://nytimes.com/2024/12/08/nyregion/forrest-meggers-princeton-green-home.html
+**Top-Gun Navy Pilots Fly at the Extremes. Their Brains May Suffer.**\
+`A confidential Navy program is studying whether intense fighter jet operations can cause devastating brain injuries in flight crews.`\
+https://nytimes.com/2024/12/08/us/navy-pilot-brain-injury-topgun.html
 

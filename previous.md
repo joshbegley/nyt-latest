@@ -1,3 +1,7 @@
+**Israel says it has entered the demilitarized buffer zone in the Golan Heights.**\
+`By Ronen Bergman and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/israel-says-it-has-entered-the-demilitarized-buffer-zone-in-the-golan-heights
+
 **Ashworth leaves role as Man United sporting director after five months**\
 `Dan Ashworth has left his role as Manchester United sporting director after just five months.`\
 https://nytimes.com/athletic/5972334/2024/12/08/manchester-united-dan-ashworth-leaves/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/nyregion/metropolitan-diary.html
 **How a Never-Ending Home Renovation Project Is Fighting Climate Change**\
 `Forrest Meggers, a professor at Princeton University, has turned his home into a live-in laboratory that pushes the boundaries of sustainability.`\
 https://nytimes.com/2024/12/08/nyregion/forrest-meggers-princeton-green-home.html
-
-**For 8 Months, Traffic Enforcement on New Jersey’s Highways Plummeted**\
-`After a report found racial bias in traffic enforcement, state troopers were warned by a union leader that “every stop” would be scrutinized. They started making fewer.`\
-https://nytimes.com/2024/12/08/nyregion/new-jersey-state-police-slowdown.html
 

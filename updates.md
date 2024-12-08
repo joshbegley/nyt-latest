@@ -1,3 +1,7 @@
+**Israel says it has entered the demilitarized buffer zone in the Golan Heights.**\
+`By Ronen Bergman and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/israel-says-it-has-entered-the-demilitarized-buffer-zone-in-the-golan-heights
+
 **Ashworth leaves role as Man United sporting director after five months**\
 `Dan Ashworth has left his role as Manchester United sporting director after just five months.`\
 https://nytimes.com/athletic/5972334/2024/12/08/manchester-united-dan-ashworth-leaves/
