@@ -1,3 +1,11 @@
+**CFP bracket revealed: Oregon No. 1 overall, SMU gets in over Alabama**\
+`Oregon, Georgia, Boise State and Arizona State claimed first-round byes to the quarterfinals. `\
+https://nytimes.com/athletic/5978174/2024/12/08/college-football-playoff-bracket-field-rankings/
+
+**College Football Playoff 2024 projections: Who are the national championship favorites?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-projections-odds/
+
 **Fact-Checking Trump on ‘Meet the Press’: Tariffs, Immigration and More**\
 `The president-elect repeated several false and inaccurate claims on a range of topics that were staples of his 2024 campaign.`\
 https://nytimes.com/2024/12/08/us/politics/trump-nbc-interview-fact-check.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/nyregion/uhc-ceo-shooting-suspect-photos.html
 **Lindsey Vonn, at 40, returns to competitive skiing, eyeing World Cup races**\
 `Lindsey Vonn's unlikely bid to get back to the top of skiing started this weekend, with four races in Colorado she used as "training."`\
 https://nytimes.com/athletic/5976478/2024/12/08/lindsey-vonn-returns-skiing-downhill-world-cup-olympics/
-
-**With Assad’s Fall, Iran’s ‘Axis of Resistance’ Unravels**\
-`Tehran’s main regional allies are weakened or collapsing: Syria’s president, Bashar al-Assad, has fled his country, Hezbollah is battered by conflict with Israel, and Hamas is still at war.`\
-https://nytimes.com/2024/12/08/world/middleeast/irans-syria-axis-of-resistance.html
-
-**Records Seized by Israel Show Hamas Presence in U.N. Schools**\
-`While Israel asserts that the United Nations has tried to minimize the problem, the global organization says Israeli officials are waging an unfair campaign to discredit it.`\
-https://nytimes.com/2024/12/08/world/middleeast/hamas-unrwa-schools.html
 
