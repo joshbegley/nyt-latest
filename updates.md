@@ -1,3 +1,7 @@
+**S.N.L. Resurrects Church Lady: Isn’t That Special!**\
+`Playing his old familiar character, Dana Carvey talks about Jesus, tweaks celebrities for their sins and skewers Satan.`\
+https://nytimes.com/2024/12/08/arts/television/saturday-night-live-recap.html
+
 **After winning Sun Belt, Marshall coach Huff expected to take Southern Miss job**\
 `Huff did not have a contract at Marshall beyond this season.`\
 https://nytimes.com/athletic/5976639/2024/12/08/charles-huff-marshall-southern-miss-coach/

@@ -1,3 +1,7 @@
+**S.N.L. Resurrects Church Lady: Isn’t That Special!**\
+`Playing his old familiar character, Dana Carvey talks about Jesus, tweaks celebrities for their sins and skewers Satan.`\
+https://nytimes.com/2024/12/08/arts/television/saturday-night-live-recap.html
+
 **After winning Sun Belt, Marshall coach Huff expected to take Southern Miss job**\
 `Huff did not have a contract at Marshall beyond this season.`\
 https://nytimes.com/athletic/5976639/2024/12/08/charles-huff-marshall-southern-miss-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-location-of-bas
 **Assad’s Rule Ends**\
 `We explain the latest developments in Syria.`\
 https://nytimes.com/2024/12/08/briefing/syria-rebels-assad.html
-
-**College Football Playoff 2024 projections: SMU favored over Alabama for final spot**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-projections-odds/
 
