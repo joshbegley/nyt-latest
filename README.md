@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Raja Abdulrahim, Hwaida Saad and Farnaz Fassihi`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/here-are-the-latest-developments
+
+**Syria Live Updates: Rebels Declare Damascus Free of al-Assad**\
+`After just a few days of rapid advances, the rebels appeared to control Syria’s capital. They said they would work with a top official in President Bashar al-Assad’s government. Mr. al-Assad’s location was unclear.`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus
+
 **Canadiens then and now: Another third-period loss to the Capitals feels far different**\
 `The Canadiens allowed three third-period goals to lose to the Capitals, just like they did on Halloween night, but so much has changed.`\
 https://nytimes.com/athletic/5977512/2024/12/08/montreal-canadiens-washington-capitals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-project
 **The star quality of Leeds' four wingers could prove their driving force**\
 `Dan James, Manor Solomon, Willy Gnonto and Largie Ramazani are all fit - and that makes Farke's front line the envy of the Championship`\
 https://nytimes.com/athletic/5976111/2024/12/08/leeds-united-james-solomon-gnonto-ramazani/
-
-**Washington Wizards show their teeth as they end 16-game skid**\
-`With a big scoring night from Jordan Poole and some big blocks by Bilal Coulibaly, Washington won for the first time since Oct. 30. `\
-https://nytimes.com/athletic/5977406/2024/12/08/washington-wizards-end-losing-streak-beat-jokic/
-
-**SMU vs. Bama on the bubble: What we learned about the Playoff from conference title games**\
-`College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
-https://nytimes.com/athletic/5976722/2024/12/08/college-football-playoff-bracket-conference-championship-games/
 

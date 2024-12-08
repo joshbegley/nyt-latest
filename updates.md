@@ -1,4 +1,12 @@
 **Canadiens then and now: Another third-period loss to the Capitals feels far different**\
+`The Canadiens allowed three third-period goals to lose to the Capitals, just like they did on Halloween night, but so much has changed.`\
+https://nytimes.com/athletic/5977512/2024/12/08/montreal-canadiens-washington-capitals/
+
+**Navarro: SMU left wondering whether it should have called in sick for ACC title game**\
+`After loss to Clemson, the Mustangs hope the CFP committee still thinks they deserve an at-large spot. They have reason to be concerned.`\
+https://nytimes.com/athletic/5977425/2024/12/08/smu-clemson-acc-championship-college-football-playoff/
+
+**Canadiens then and now: Another third-period loss to the Capitals feels far different**\
 `The Canadiens allowed three third-period goals to lose to the Capitals, just like they did Halloween night, but so much has changed.`\
 https://nytimes.com/athletic/5977512/2024/12/08/montreal-canadiens-washington-capitals/
 
