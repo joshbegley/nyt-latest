@@ -1,3 +1,11 @@
+**Judge Pauses Sexual Abuse Lawsuit Against Trump’s Education Secretary Pick**\
+`Linda McMahon is accused of failing to stop abuse in the 1980s within W.W.E., which she led at the time. The suit is on hold pending a ruling over a state law related to such cases.`\
+https://nytimes.com/2024/12/08/us/linda-mcmahon-sexual-abuse-lawsuit.html
+
+**Buccaneers take NFC South lead with 28-13 win over Raiders: Takeaways**\
+`For the first time in his career, Rachaad White scores a rushing touchdown and receiving touchdown in the same game.`\
+https://nytimes.com/athletic/5978204/2024/12/08/raiders-buccaneers-score-result-takeaways/
+
 **With Carson Beck injured, Georgia may turn to Gunner Stockton for Playoff**\
 `Beck had an MRI done on his right throwing arm Sunday morning after getting injured on Saturday vs. Texas. `\
 https://nytimes.com/athletic/5978857/2024/12/08/carson-beck-injury-georgia-football-cfp/

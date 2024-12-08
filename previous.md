@@ -1,3 +1,11 @@
+**Judge Pauses Sexual Abuse Lawsuit Against Trump’s Education Secretary Pick**\
+`Linda McMahon is accused of failing to stop abuse in the 1980s within W.W.E., which she led at the time. The suit is on hold pending a ruling over a state law related to such cases.`\
+https://nytimes.com/2024/12/08/us/linda-mcmahon-sexual-abuse-lawsuit.html
+
+**Buccaneers take NFC South lead with 28-13 win over Raiders: Takeaways**\
+`For the first time in his career, Rachaad White scores a rushing touchdown and receiving touchdown in the same game.`\
+https://nytimes.com/athletic/5978204/2024/12/08/raiders-buccaneers-score-result-takeaways/
+
 **With Carson Beck injured, Georgia may turn to Gunner Stockton for Playoff**\
 `Beck had an MRI done on his right throwing arm Sunday morning after getting injured on Saturday vs. Texas. `\
 https://nytimes.com/athletic/5978857/2024/12/08/carson-beck-injury-georgia-football-cfp/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/crosswords/connections-companion-547.html
 **Inside Dan Ashworth’s shock Man United exit: What irritated Ratcliffe and how it ended**\
 `Ashworth was United sporting director for only five months. After all the attention on securing his services, this was not part of the plan`\
 https://nytimes.com/athletic/5978018/2024/12/08/dan-ashworth-manchester-united-exit-reasons/
-
-**Rooney adds Phelan to Plymouth coaching staff**\
-`Former Manchester United assistant manager Mike Phelan has joined Wayne Rooney’s coaching staff at Plymouth Argyle.`\
-https://nytimes.com/athletic/5978786/2024/12/08/mike-phelan-plymouth-rooney-man-utd/
-
-**Syria’s Army Was Hollowing Out Long Before Rebels’ Advance**\
-`While multiple factors contributed to the fall of President Bashar al-Assad, corrosion inside his own military did not help, analysts say.`\
-https://nytimes.com/2024/12/08/world/middleeast/syria-army-assad-fall.html
 
