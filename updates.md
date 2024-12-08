@@ -1,3 +1,7 @@
+**SMU vs. Bama on the bubble: What we learned about the Playoff from conference title games**\
+`College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
+https://nytimes.com/athletic/5976722/2024/12/08/college-football-playoff-bracket-conference-championship-games/
+
 **The star quality of Leeds' four wingers could prove their driving force**\
 `Dan James, Manor Solomon, Willy Gnonto and Largie Ramazani are all fit - and that makes Farke's front line the envy of the Championship`\
 https://nytimes.com/athletic/5976111/2024/12/08/leeds-united-james-solomon-gnonto-ramazani/

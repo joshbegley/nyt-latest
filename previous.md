@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5976111/2024/12/08/leeds-united-james-solomon-gnont
 `With a big scoring night from Jordan Poole and some big blocks by Bilal Coulibaly, Washington won for the first time since Oct. 30. `\
 https://nytimes.com/athletic/5977406/2024/12/08/washington-wizards-end-losing-streak-beat-jokic/
 
+**SMU vs. Bama on the bubble: What we learned about the Playoff from conference title games**\
+`College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
+https://nytimes.com/athletic/5976722/2024/12/08/college-football-playoff-bracket-conference-championship-games/
+
 **Why a postponed Merseyside derby might prove a blessing in disguise for Liverpool**\
 `Arne Slot's side have six matches in the space of 19 days coming up - Saturday's postponed derby might just keep them fresh`\
 https://nytimes.com/athletic/5976092/2024/12/08/liverpool-everton-derby-postponement-fixtures/
@@ -21,10 +25,6 @@ https://nytimes.com/athletic/5976385/2024/12/08/club-world-cup-dazn-1billion-bro
 **Premier League games cost millions to stage - what happens when they are called off?**\
 `The final Premier League derby between Everton and Liverpool fell victim to the weather. But some good came of the postponement`\
 https://nytimes.com/athletic/5976287/2024/12/08/everton-liverpool-merseyside-derby-postponed-storm-darragh/
-
-**What we learned about the College Football Playoff from conference championship games**\
-`College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
-https://nytimes.com/athletic/5976722/2024/12/08/college-football-playoff-bracket-conference-championship-games/
 
 **Tottenham Hotspur vs Chelsea: Mood at clubs, key players, aims for season and prediction**\
 `Tottenham and Chelsea face one another in the Premier League on Sunday afternoon`\
