@@ -1,3 +1,7 @@
+**The Connections Companion No. 547**\
+`Scroll down for hints and conversation about the puzzle for Monday, Dec. 9, 2024.`\
+https://nytimes.com/2024/12/08/crosswords/connections-companion-547.html
+
 **Inside Dan Ashworth’s shock Man United exit: What irritated Ratcliffe and how it ended**\
 `Ashworth was United sporting director for only five months. After all the attention on securing his services, this was not part of the plan`\
 https://nytimes.com/athletic/5978018/2024/12/08/dan-ashworth-manchester-united-exit-reasons/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-us-has-been-in-
 **Liverpool make opening contract offer to Salah**\
 `Liverpool have made an opening contract offer to Mohamed Salah.`\
 https://nytimes.com/athletic/5976974/2024/12/08/mohamed-salah-contract-liverpool/
-
-**College Football Playoff odds: Home teams open as big favorites in first round**\
-`The home teams are the betting favorites in all four first-round games of the College Football Playoff.`\
-https://nytimes.com/athletic/5978321/2024/12/08/college-football-playoff-betting-odds-first-round/
 
