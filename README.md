@@ -1,3 +1,7 @@
+**Five Quick Takes on Regime Change in Syria**\
+`Assad’s fall creates vast dangers and opportunities that everyone in the region will seize upon.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/friedman-syria-iran-future
+
 **The Connections Companion No. 547**\
 `Scroll down for hints and conversation about the puzzle for Monday, Dec. 9, 2024.`\
 https://nytimes.com/2024/12/08/crosswords/connections-companion-547.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978218/2024/12/08/mclaren-f1-championship-2024-lan
 **The U.S. has been in contact with rebel groups through Turkey and is debating how extensively to engage them.**\
 `By Adam Entous`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-us-has-been-in-contact-with-rebel-groups-through-turkey-and-is-debating-how-extensively-to-engage-them
-
-**Liverpool make opening contract offer to Salah**\
-`Liverpool have made an opening contract offer to Mohamed Salah.`\
-https://nytimes.com/athletic/5976974/2024/12/08/mohamed-salah-contract-liverpool/
 
