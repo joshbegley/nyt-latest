@@ -1,3 +1,19 @@
+**Threatened With Jail, Cheney Decries Trump’s ‘Assault on the Rule of Law’**\
+`Liz Cheney, the former Republican representative, said President-elect Donald J. Trump “lied about” the bipartisan House committee that investigated his role in the Jan. 6, 2021, attack.`\
+https://nytimes.com/2024/12/08/us/politics/liz-cheney-donald-trump.html
+
+**With Assad Gone, a Brutal Dictatorship Ends. But the New Risks Are Huge.**\
+`The overthrow of the Assad government could mean Russia’s bases in Syria are closed and Iran’s pathway to Hezbollah is cut off. Now Iran, newly vulnerable, will have to decide between negotiation and the bomb.`\
+https://nytimes.com/2024/12/08/us/politics/syria-assad-iran-risks.html
+
+**Kirk Herbstreit's son commits to Michigan to play QB**\
+`Chase Herbstreit, a quarterback in the Class of 2025 and the son of ESPN analyst Kirk Herbstreit, has committed to Michigan.`\
+https://nytimes.com/athletic/5978975/2024/12/08/chase-herbstreit-michigan-commitment-kirk-son/
+
+**Raiders QB Aidan O'Connell carted off with knee injury**\
+`Desmond Ridder took over as Raiders quarterback with O'Connell, a second-year player, ruled out. `\
+https://nytimes.com/athletic/5978823/2024/12/08/aidan-oconnell-knee-injury-raiders/
+
 **Judge Pauses Sexual Abuse Lawsuit Against Trump’s Education Secretary Pick**\
 `Linda McMahon is accused of failing to stop abuse in the 1980s within W.W.E., which she led at the time. The suit is on hold pending a ruling over a state law related to such cases.`\
 https://nytimes.com/2024/12/08/us/linda-mcmahon-sexual-abuse-lawsuit.html

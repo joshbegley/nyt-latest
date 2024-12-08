@@ -1,3 +1,15 @@
+**Threatened With Jail, Cheney Decries Trump’s ‘Assault on the Rule of Law’**\
+`Liz Cheney, the former Republican representative, said President-elect Donald J. Trump “lied about” the bipartisan House committee that investigated his role in the Jan. 6, 2021, attack.`\
+https://nytimes.com/2024/12/08/us/politics/liz-cheney-donald-trump.html
+
+**With Assad Gone, a Brutal Dictatorship Ends. But the New Risks Are Huge.**\
+`The overthrow of the Assad government could mean Russia’s bases in Syria are closed and Iran’s pathway to Hezbollah is cut off. Now Iran, newly vulnerable, will have to decide between negotiation and the bomb.`\
+https://nytimes.com/2024/12/08/us/politics/syria-assad-iran-risks.html
+
+**Kirk Herbstreit's son commits to Michigan to play QB**\
+`Chase Herbstreit, a quarterback in the Class of 2025 and the son of ESPN analyst Kirk Herbstreit, has committed to Michigan.`\
+https://nytimes.com/athletic/5978975/2024/12/08/chase-herbstreit-michigan-commitment-kirk-son/
+
 **Judge Pauses Sexual Abuse Lawsuit Against Trump’s Education Secretary Pick**\
 `Linda McMahon is accused of failing to stop abuse in the 1980s within W.W.E., which she led at the time. The suit is on hold pending a ruling over a state law related to such cases.`\
 https://nytimes.com/2024/12/08/us/linda-mcmahon-sexual-abuse-lawsuit.html
@@ -23,18 +35,6 @@ https://nytimes.com/live/2024/12/08/world/syria-war-damascus/government-soldiers
 https://nytimes.com/2024/12/08/arts/music/marvin-laird-dead.html
 
 **Raiders QB Aidan O'Connell carted off with knee injury**\
-`Desmond Ridder took over as the Raiders quarterback with second-year player ruled out. `\
+`Desmond Ridder took over as Raiders quarterback with O'Connell, a second-year player, ruled out. `\
 https://nytimes.com/athletic/5978823/2024/12/08/aidan-oconnell-knee-injury-raiders/
-
-**Five Quick Takes on Regime Change in Syria**\
-`Assad’s fall creates vast dangers and opportunities that everyone in the region will seize upon.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/friedman-syria-iran-future
-
-**The Connections Companion No. 547**\
-`Scroll down for hints and conversation about the puzzle for Monday, Dec. 9, 2024.`\
-https://nytimes.com/2024/12/08/crosswords/connections-companion-547.html
-
-**Inside Dan Ashworth’s shock Man United exit: What irritated Ratcliffe and how it ended**\
-`Ashworth was United sporting director for only five months. After all the attention on securing his services, this was not part of the plan`\
-https://nytimes.com/athletic/5978018/2024/12/08/dan-ashworth-manchester-united-exit-reasons/
 
