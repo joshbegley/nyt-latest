@@ -1,3 +1,7 @@
+**Art and A.I.: Parallel Worlds, Bound Together**\
+`Artificial intelligence, though shrouded in risk, promises a revolution in how we see the world.`\
+https://nytimes.com/2024/12/08/special-series/art-creativity-artificial-intelligence.html
+
 **Canada's Davies out indefinitely after suffering injury in Bayern game**\
 `Bayern Munich have confirmed that Alphonso Davies and Kingsley Coman sustained muscular injuries in Saturday&#8217;s Bundesliga victory over Heidenheim.`\
 https://nytimes.com/athletic/5977861/2024/12/08/alphonso-davies-injury-bayern-munich/
