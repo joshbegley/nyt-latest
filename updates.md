@@ -1,3 +1,15 @@
+**College Football Playoff 12-team debut season verdict: The football is good, my friends**\
+`There are still issues with the sport, but the 2024 season and the 12-team Playoff to come have given us bacon. Let’s do it. Let's eat. `\
+https://nytimes.com/athletic/5978349/2024/12/08/college-football-playoff-2024-season/
+
+**With F1 championship at stake, McLaren and Lando Norris master the moment**\
+`After a season of growing and winning, Norris and his team finally achieved perfection when it mattered most in Abu Dhabi.`\
+https://nytimes.com/athletic/5978218/2024/12/08/mclaren-f1-championship-2024-lando-norris/
+
+**The U.S. has been in contact with rebel groups through Turkey and is debating how extensively to engage them.**\
+`By Adam Entous`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-us-has-been-in-contact-with-rebel-groups-through-turkey-and-is-debating-how-extensively-to-engage-them
+
 **Liverpool make opening contract offer to Salah**\
 `Liverpool have made an opening contract offer to Mohamed Salah.`\
 https://nytimes.com/athletic/5976974/2024/12/08/mohamed-salah-contract-liverpool/
