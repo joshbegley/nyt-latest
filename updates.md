@@ -1,3 +1,11 @@
+**Saints beat Giants on blocked field goal, lose Carr to injury: Takeaways**\
+`New Orleans now faces questions about the health of its quarterback after a wild win in New York.`\
+https://nytimes.com/athletic/5978168/2024/12/08/saints-giants-score-result-takeaways/
+
+**Monday Briefing: Al-Assad Flees Syria as Rebels Claim Power**\
+`Plus, Notre-Dame reopens.`\
+https://nytimes.com/2024/12/08/briefing/syria-south-korea-trump.html
+
 **Initial thoughts on Ohio State's tough draw in College Football Playoff field**\
 `The Buckeyes earned the No. 8 seed and will host No. 9 seed Tennessee in the first round. Can Ohio State make a run?`\
 https://nytimes.com/athletic/5978976/2024/12/08/ohio-state-college-football-playoff-path/
