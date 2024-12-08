@@ -1,3 +1,11 @@
+**Dolphins keep playoff hopes alive with 32-26 OT win vs. Jets: Takeaways**\
+`Miami picks up its fourth win in five weeks after a 2-6 start, while the Jets extend longest playoff drought in men's professional sports. `\
+https://nytimes.com/athletic/5978160/2024/12/08/jets-dolphins-score-result-takeaways/
+
+**Darnold's 5 TDs lead Vikings to 42-21 win over Cousins' Falcons: Takeaways**\
+`Darnold is the first Vikings QB to throw for more than 300 yards and five touchdowns in a game since Daunte Culpepper in 2004.`\
+https://nytimes.com/athletic/5978165/2024/12/08/falcons-vikings-score-result-takeaways/
+
 **Saints beat Giants on blocked field goal, lose Carr to injury: Takeaways**\
 `New Orleans now faces questions about the health of its quarterback after a wild win in New York.`\
 https://nytimes.com/athletic/5978168/2024/12/08/saints-giants-score-result-takeaways/

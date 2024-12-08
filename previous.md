@@ -1,3 +1,7 @@
+**Dolphins keep playoff hopes alive with 32-26 OT win vs. Jets: Takeaways**\
+`Miami picks up its fourth win in five weeks after a 2-6 start, while the Jets extend longest playoff drought in men's professional sports. `\
+https://nytimes.com/athletic/5978160/2024/12/08/jets-dolphins-score-result-takeaways/
+
 **Saints beat Giants on blocked field goal, lose Carr to injury: Takeaways**\
 `New Orleans now faces questions about the health of its quarterback after a wild win in New York.`\
 https://nytimes.com/athletic/5978168/2024/12/08/saints-giants-score-result-takeaways/
@@ -9,6 +13,10 @@ https://nytimes.com/2024/12/08/briefing/syria-south-korea-trump.html
 **Initial thoughts on Ohio State's tough draw in College Football Playoff field**\
 `The Buckeyes earned the No. 8 seed and will host No. 9 seed Tennessee in the first round. Can Ohio State make a run?`\
 https://nytimes.com/athletic/5978976/2024/12/08/ohio-state-college-football-playoff-path/
+
+**Darnold's 5 TDs lead Vikings to 42-21 win over Cousins' Falcons: Takeaways**\
+`Darnold is the first Vikings QB to throw for more than 300 yards and five touchdowns in a game since Daunte Culpepper in 2004.`\
+https://nytimes.com/athletic/5978165/2024/12/08/falcons-vikings-score-result-takeaways/
 
 **Russell Wilson, Steelers shake off Browns 27-14: Takeaways**\
 `Third quarter touchdowns and fourth quarter takeaways seal the win for Pittsburgh.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/us/politics/syria-assad-iran-risks.html
 **Kirk Herbstreit's son commits to Michigan to play QB**\
 `Chase Herbstreit, a quarterback in the Class of 2025 and the son of ESPN analyst Kirk Herbstreit, has committed to Michigan.`\
 https://nytimes.com/athletic/5978975/2024/12/08/chase-herbstreit-michigan-commitment-kirk-son/
-
-**Judge Pauses Sexual Abuse Lawsuit Against Trump’s Education Secretary Pick**\
-`Linda McMahon is accused of failing to stop abuse in the 1980s within W.W.E., which she led at the time. The suit is on hold pending a ruling over a state law related to such cases.`\
-https://nytimes.com/2024/12/08/us/linda-mcmahon-sexual-abuse-lawsuit.html
-
-**Buccaneers take NFC South lead with 28-13 win over Raiders: Takeaways**\
-`For the first time in his career, Rachaad White scored a rushing touchdown and receiving touchdown in the same game.`\
-https://nytimes.com/athletic/5978204/2024/12/08/raiders-buccaneers-score-result-takeaways/
 
