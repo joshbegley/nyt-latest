@@ -1,3 +1,15 @@
+**College Football Playoff 12-team debut season verdict: The football is good, my friends**\
+`There are still issues with the sport, but the 2024 season and the 12-team Playoff to come have given us bacon. Let’s do it. Let's eat. `\
+https://nytimes.com/athletic/5978349/2024/12/08/college-football-playoff-2024-season/
+
+**With F1 championship at stake, McLaren and Lando Norris master the moment**\
+`After a season of growing and winning, Norris and his team finally achieved perfection when it mattered most in Abu Dhabi.`\
+https://nytimes.com/athletic/5978218/2024/12/08/mclaren-f1-championship-2024-lando-norris/
+
+**The U.S. has been in contact with rebel groups through Turkey and is debating how extensively to engage them.**\
+`By Adam Entous`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-us-has-been-in-contact-with-rebel-groups-through-turkey-and-is-debating-how-extensively-to-engage-them
+
 **Liverpool make opening contract offer to Salah**\
 `Liverpool have made an opening contract offer to Mohamed Salah.`\
 https://nytimes.com/athletic/5976974/2024/12/08/mohamed-salah-contract-liverpool/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5978383/2024/12/08/pelicans-brandon-ingram-ankle-in
 **Syrians in Lebanon Start to Head Home, With Both Joy and Worry**\
 `Thousands who fled during the country’s civil war celebrated the toppling of the Assad government — and their long-awaited return home — at the Syria-Lebanon border crossing.`\
 https://nytimes.com/2024/12/08/world/middleeast/syrians-return-home.html
-
-**Penn State has the most favorable path through the College Football Playoff**\
-`Penn State earned the No. 6 seed in the College Football Playoff bracket and will host 11-seed SMU for a first-round game.`\
-https://nytimes.com/athletic/5978575/2024/12/08/penn-state-college-football-playoff-path/
-
-**College football national title odds: Oregon, Georgia favored after earning byes**\
-`Oregon and Georgia earned byes in the College Football Playoff and are the betting favorites to win the national title.`\
-https://nytimes.com/athletic/5978314/2024/12/08/college-football-national-title-odds-oregon-georgia/
-
-**Space Age Blues and the ‘Dancing Spirit’ of Judith Jamison**\
-`Alvin Ailey American Dance Theater returns for its annual December season with an enigmatic premiere by Jamar Roberts and the revival of “Grace.”`\
-https://nytimes.com/2024/12/08/arts/dance/alvin-ailey-jamar-roberts-al-andalus-blues.html
 
