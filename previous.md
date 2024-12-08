@@ -1,3 +1,11 @@
+**43,000 Ukrainian Soldiers Killed Since Russia Invaded, Zelensky Says**\
+`The tally differs sharply from estimates by U.S. officials and military analysts, who have said the number is closer to 70,000.`\
+https://nytimes.com/2024/12/08/world/europe/ukrainian-war-dead.html
+
+**Apple Sued for Failing to Curtail Child Sexual Abuse Material on iCloud**\
+`Victims of abuse are seeking more than $1.2 billion in damages, arguing that the company abandoned a 2021 system it developed to find abusive material.`\
+https://nytimes.com/2024/12/08/technology/apple-child-sexual-abuse-material-lawsuit.html
+
 **Family Renews Appeal to Find U.S. Journalist Missing in Syria**\
 `Relatives of Austin Tice, who disappeared in 2012 near the Syrian capital, said they believe that he is alive.`\
 https://nytimes.com/2024/12/08/world/middleeast/austin-tice-syria-journalist.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5978032/2024/12/08/purdue-barry-odom-unlv-coach-hir
 **Art and A.I.: Parallel Worlds, Bound Together**\
 `Artificial intelligence, though shrouded in risk, promises a revolution in how we see the world.`\
 https://nytimes.com/2024/12/08/special-series/art-creativity-artificial-intelligence.html
-
-**Canada's Davies out indefinitely after suffering injury in Bayern game**\
-`Bayern Munich have confirmed that Alphonso Davies and Kingsley Coman sustained muscular injuries in Saturday&#8217;s Bundesliga victory over Heidenheim.`\
-https://nytimes.com/athletic/5977861/2024/12/08/alphonso-davies-injury-bayern-munich/
-
-**Live Q&A: Week 14 fantasy football start/sit chat with Jay Felicio, Sunday 12/8 at 11 a.m. ET**\
-`Submit your Week 14 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5977972/2024/12/08/live-qa-week-14-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-8-at-11-a-m-et/
 
