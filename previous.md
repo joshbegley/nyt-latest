@@ -1,3 +1,7 @@
+**Syrians in New York City celebrate the fall of Assad.**\
+`By Sabir Hasko`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syrians-in-new-york-city-celebrate-the-fall-of-assad
+
 **Steve Mensch, President of Tyler Perry Studios, Dies at 62**\
 `Mr. Mensch, a longtime supporter of the film industry in Georgia, died in a plane crash on Friday in Florida, according to officials.`\
 https://nytimes.com/2024/12/08/arts/television/steve-mensch-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978177/2024/12/08/panthers-eagles-score-result-tak
 **Israeli Ground Forces Cross into Syria, Officials Say**\
 `Israeli ground forces have overtly crossed into Syrian territory for the first time since the 1973 October War, passing the demilitarized border zone, two Israeli officials said.`\
 https://nytimes.com/2024/12/08/world/middleeast/israel-demilitarized-zone-syria.html
-
-**NFL Week 14 takeaways: Should Falcons bench Cousins for Penix? Aaron Rodgers’ outlook for 2025**\
-`Plus, are the Panthers on the rise heading into 2025?`\
-https://nytimes.com/athletic/5979022/2024/12/08/nfl-week-14-scores-takeaways-kirk-cousins-falcons-aaron-rodgers/
 

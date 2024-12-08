@@ -1,3 +1,7 @@
+**Syrians in New York City celebrate the fall of Assad.**\
+`By Sabir Hasko`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syrians-in-new-york-city-celebrate-the-fall-of-assad
+
 **Steve Mensch, President of Tyler Perry Studios, Dies at 62**\
 `Mr. Mensch, a longtime supporter of the film industry in Georgia, died in a plane crash on Friday in Florida, according to officials.`\
 https://nytimes.com/2024/12/08/arts/television/steve-mensch-dead.html
