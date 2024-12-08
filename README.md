@@ -1,3 +1,7 @@
+**How seriously should we take Penn State after hanging with Oregon in Big Ten title match?**\
+`After the loss, there was no politicking from Penn State’s players about what seed they want when the CFP bracket is revealed.`\
+https://nytimes.com/athletic/5977571/2024/12/08/penn-state-oregon-big-ten-championship-college-football/
+
 **Oregon goes unbeaten (with swagger) in first Big Ten season. And the Ducks aren't finished**\
 `With victory over Penn State, Oregon secured the No. 1 spot in the College Football Playoff and a national quarterfinal in the Rose Bowl,`\
 https://nytimes.com/athletic/5977544/2024/12/08/oregon-penn-state-big-ten-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/crosswords/spelling-bee-forum.html
 **College football bowl projections: Final predictions for complete '24-25 schedule**\
 `The conference champions have been crowned. Who will make the 12-team Playoff, and how will it affect the non-CFP bowl pairings?`\
 https://nytimes.com/athletic/5915859/2024/12/08/college-football-bowl-projections-9/
-
-**Clemson's improbable ACC championship sets up Playoff berth: 'Anything can happen'**\
-`The Tigers beat SMU 34-31 for the ACC championship and won their way into the College Football Playoff.`\
-https://nytimes.com/athletic/5977530/2024/12/08/clemson-acc-championship-smu-college-football/
 
