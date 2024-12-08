@@ -1,3 +1,7 @@
+**After winning Sun Belt, Marshall coach Huff expected to take Southern Miss job**\
+`Huff did not have a contract at Marshall beyond this season.`\
+https://nytimes.com/athletic/5976639/2024/12/08/charles-huff-marshall-southern-miss-coach/
+
 **The top 90 remaining MLB free agents**\
 `With the Hot Stove warming up and the Winter Meetings finally here, let's pull back and survey the free-agent field. `\
 https://nytimes.com/athletic/5976787/2024/12/08/top-remaining-mlb-free-agents-hot-stove/
