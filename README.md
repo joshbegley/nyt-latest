@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins rebound impressively and shut down Maple Leafs**\
+`The Penguins played perhaps their best game of the season in a 5-2 win against the Maple Leafs on Saturday. `\
+https://nytimes.com/athletic/5975629/2024/12/07/penguins-maple-leafs-rust-bunting/
+
 **Nuggets waste Nikola Jokić's career night in inexplicable loss to woeful Wizards**\
 `"We all have to start participating in our own recovery," Michael Malone said after Denver dropped to 11-10 with a loss to lowly Washington.`\
 https://nytimes.com/athletic/5977323/2024/12/07/nuggets-nikola-jokic-highlights-wizards-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977192/2024/12/07/la-galaxy-mls-cup-2024-warning/
 **Corrections: Dec. 8, 2024**\
 `Corrections that appeared in print on Sunday, Dec. 8, 2024.`\
 https://nytimes.com/2024/12/07/pageoneplus/corrections-dec-8-2024.html
-
-**How will the Playoff handle Georgia QB Carson Beck's injury? Why it's not like FSU**\
-`Florida State was left out of a four-team Playoff last year after losing Jordan Travis. Georgia faces no such concern after Beck's injury.`\
-https://nytimes.com/athletic/5977244/2024/12/07/carson-beck-injury-georgia-playoff-fsu-jordan-travis/
 
