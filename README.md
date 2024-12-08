@@ -1,3 +1,7 @@
+**Here's how LA Galaxy won MLS Cup - and why it brings a warning to their rivals**\
+`A beautifully worked goal ended the LA Galaxy's decade-long MLS Cup drought, while potentially sparking a new era of success.`\
+https://nytimes.com/athletic/5977192/2024/12/07/la-galaxy-mls-cup-2024-warning/
+
 **Corrections: Dec. 8, 2024**\
 `Corrections that appeared in print on Sunday, Dec. 8, 2024.`\
 https://nytimes.com/2024/12/07/pageoneplus/corrections-dec-8-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977129/2024/12/07/blackhawks-petr-mrazek-injury/
 **Giants' record-setting Willy Adames deal shows Buster Posey means business**\
 `In signing Adames, Posey did as a team president what he did as a player: cut through the noise and find the best solution to a problem.`\
 https://nytimes.com/athletic/5977121/2024/12/07/sf-giants-willy-adames-signing-buster-posey/
-
-**Unidentified Drones Light Up New Jersey’s Skies, Baffling Residents**\
-`People across the state have reported seeing scores of large, low-flying objects in recent weeks. Officials haven’t said where they’re coming from, or why they’re here.`\
-https://nytimes.com/2024/12/07/nyregion/new-jersey-drones.html
 
