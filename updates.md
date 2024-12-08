@@ -1,3 +1,7 @@
+**Tottenham Hotspur vs Chelsea: Mood at clubs, key players, aims for season and prediction**\
+`Tottenham and Chelsea face one another in the Premier League on Sunday afternoon`\
+https://nytimes.com/athletic/5974529/2024/12/08/tottenham-hotspur-chelsea-preview-premier-league/
+
 **She Sued Over Transgender ‘Conversion Therapy,’ a First for China**\
 `Ling’er won a settlement payout from the hospital where she was held for three months against her will and subjected to electroshock therapy.`\
 https://nytimes.com/2024/12/08/world/asia/transgender-conversion-china.html

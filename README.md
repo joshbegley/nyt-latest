@@ -1,7 +1,3 @@
-**Tottenham Hotspur vs Chelsea: Mood at clubs, key players, aims for season and prediction**\
-`Tottenham and Chelsea face one another in the Premier League on Sunday afternoon`\
-https://nytimes.com/athletic/5974529/2024/12/08/tottenham-hotspur-chelsea-preview-premier-league/
-
 **She Sued Over Transgender ‘Conversion Therapy,’ a First for China**\
 `Ling’er won a settlement payout from the hospital where she was held for three months against her will and subjected to electroshock therapy.`\
 https://nytimes.com/2024/12/08/world/asia/transgender-conversion-china.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5977233/2024/12/07/galaxy-legend-robbie-keane-tease
 **Quotation of the Day: At Stake in Syria Fight: Domination of Mideast**\
 `Quotation of the Day for Sunday, December 8, 2024.`\
 https://nytimes.com/2024/12/07/pageoneplus/quotation-of-the-day-at-stake-in-syria-fight-domination-of-mideast.html
+
+**South Korea’s Ex-Defense Chief Is Detained Over Martial Law Episode**\
+`Prosecutors are investigating whether President Yoon Suk Yeol and his followers committed insurrection when they briefly put South Korea under martial law.`\
+https://nytimes.com/2024/12/07/world/asia/south-korea-martial-law-defense-minister-arrest.html
 
