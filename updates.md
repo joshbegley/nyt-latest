@@ -1,3 +1,11 @@
+**Canada's Davies out indefinitely after suffering injury in Bayern game**\
+`Bayern Munich have confirmed that Alphonso Davies and Kingsley Coman sustained muscular injuries in Saturday&#8217;s Bundesliga victory over Heidenheim.`\
+https://nytimes.com/athletic/5977861/2024/12/08/alphonso-davies-injury-bayern-munich/
+
+**Live Q&A: Week 14 fantasy football start/sit chat with Jay Felicio, Sunday 12/8 at 11 a.m. ET**\
+`Submit your Week 14 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5977972/2024/12/08/live-qa-week-14-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-8-at-11-a-m-et/
+
 **Lando Norris captures F1 constructors' championship for McLaren at Abu Dhabi**\
 `Opening-lap chaos required a near-perfect race from Norris, who delivered McLaren its first team title in 26 years. `\
 https://nytimes.com/athletic/5977870/2024/12/08/lando-norris-mclaren-win-2024-f1-championship-abu-dhabi-gp/
