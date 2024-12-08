@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 3 Chelsea 4: Sancho shines as Spurs crumble and Maresca's side go second in table**\
+`Cucurella's boot drama and yet more injuries for Tottenham. Our writers analyse all the talking points from Chelsea's stunning comeback`\
+https://nytimes.com/athletic/5974241/2024/12/08/tottenham-chelsea-comeback-sancho-palmer/
+
 **In defense of the College Football Playoff's funky seeding format**\
 `Is that the most fair process? Maybe not. Is it better for the sport, providing more compelling storylines? Absolutely.`\
 https://nytimes.com/athletic/5978429/2024/12/08/college-football-playoff-seeding-format-byes/
