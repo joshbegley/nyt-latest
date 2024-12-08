@@ -1,3 +1,7 @@
+**Raiders QB Aidan O'Connell carted off with knee injury**\
+`Desmond Ridder took over as the Raiders quarterback with second-year player ruled out. `\
+https://nytimes.com/athletic/5978823/2024/12/08/aidan-oconnell-knee-injury-raiders/
+
 **Five Quick Takes on Regime Change in Syria**\
 `Assad’s fall creates vast dangers and opportunities that everyone in the region will seize upon.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/friedman-syria-iran-future
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978349/2024/12/08/college-football-playoff-2024-se
 **With F1 championship at stake, McLaren and Lando Norris master the moment**\
 `After a season of growing and winning, Norris and his team finally achieved perfection when it mattered most in Abu Dhabi.`\
 https://nytimes.com/athletic/5978218/2024/12/08/mclaren-f1-championship-2024-lando-norris/
-
-**The U.S. has been in contact with rebel groups through Turkey and is debating how extensively to engage them.**\
-`By Adam Entous`\
-https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-us-has-been-in-contact-with-rebel-groups-through-turkey-and-is-debating-how-extensively-to-engage-them
 
