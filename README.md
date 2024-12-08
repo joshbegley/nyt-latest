@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: What GM Don Waddell's pursuit of Jacob Trouba means**\
+`The Blue Jackets were among the clubs that pressed hard to acquire defenseman Jacob Trouba from the Rangers last week.`\
+https://nytimes.com/athletic/5976275/2024/12/08/blue-jackets-jacob-trouba-trade-rangers/
+
 **Biden Says U.S. Conducted Airstrikes Against Islamic State Targets in Syria**\
 `President Biden hailed the fall of President Bashar al-Assad as a “fundamental act of justice” but warned of “a moment of risk and uncertainty.”`\
 https://nytimes.com/2024/12/08/us/politics/biden-syria-assad-isis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/world/middleeast/syria-assad-rebels-what-next.htm
 **Lewis Hamilton ends Mercedes F1 career with fight, emotion: ‘I've got no more tears'**\
 `F1's all-time winningest driver delivered a memorable comeback to sign off at Mercedes in Abu Dhabi.`\
 https://nytimes.com/athletic/5978189/2024/12/08/lewis-hamilton-final-mercedes-race-f1-abu-dhabi/
-
-**The Winners and Losers Following the Fall of Assad**\
-`Two cheers for the end of the regime, but be wary of what happens next.`\
-https://nytimes.com/2024/12/08/opinion/assad-syria-winners-losers.html
 
