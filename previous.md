@@ -1,3 +1,7 @@
+**Blackhawks goalie Petr Mrázek to miss time after lower-body injury**\
+`Mrázek left Saturday's game against the Jets after making an awkward save along the post in the second period and did not return.`\
+https://nytimes.com/athletic/5977129/2024/12/07/blackhawks-petr-mrazek-injury/
+
 **Giants' record-setting Willy Adames deal shows Buster Posey means business**\
 `In signing Adames, Posey did as a team president what he did as a player: cut through the noise and find the best solution to a problem.`\
 https://nytimes.com/athletic/5977121/2024/12/07/sf-giants-willy-adames-signing-buster-posey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977011/2024/12/07/cam-skattebo-arizona-state-heism
 **Want a Job in the Trump Administration? Be Prepared for the Loyalty Test.**\
 `Applicants for government posts, including inside the Pentagon and the intelligence agencies, say they have been asked about their thoughts on Jan. 6 and who they believe won the 2020 election.`\
 https://nytimes.com/2024/12/07/us/politics/trump-administration-loyalty-test.html
-
-**Sabres fans bring inflatable palm trees, chant 'Fire Kevyn!' as Buffalo loses sixth straight**\
-`As the Sabres’ winless streak grew to six games Saturday against Utah, you could hear the sounds of a fan base at its wits’ end.`\
-https://nytimes.com/athletic/5976919/2024/12/07/sabres-utah-kevyn-adams-palm-trees/
 
