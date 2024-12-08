@@ -1,3 +1,7 @@
+**Miho Nakayama, Japanese Music and Movie Star, Dies at 54**\
+`A top-selling pop singer as a teenager in the 1980s, she also had an award-winning career as a dramatic actress.`\
+https://nytimes.com/2024/12/07/arts/music/miho-nakayama-dead.html
+
 **How far will Texas fall? What we're learning about the Playoff from conference title games**\
 `College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
 https://nytimes.com/athletic/5976722/2024/12/07/college-football-playoff-bracket-conference-championship-games/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/07/world/syria-war-damascus/us-national-securit
 **An N.Y.P.D. Manhunt Caught a Subway Shooter. This Time, It’s Different.**\
 `Capturing a suspect who slips away from a crime scene requires solid police work, help from the public and a little luck, experts say. So far, it’s not working.`\
 https://nytimes.com/2024/12/07/nyregion/uhc-ceo-manhunt-frank-james.html
-
-**Cam Skattebo strikes a pose and makes a statement: He belongs on the sport's biggest stage**\
-`Given a spotlight, Arizona State’s running back left no doubt, leading the Sun Devils to a 45-19 win over Iowa State and into the CFP. `\
-https://nytimes.com/athletic/5977011/2024/12/07/cam-skattebo-arizona-state-heisman-playoff/
 
