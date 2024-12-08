@@ -1,3 +1,7 @@
+**The tweak that helped Kentucky beat Gonzaga in top-10 OT shootout**\
+`After a loss at Clemson earlier this week in the SEC/ACC Men's Challenge, this was a huge bounceback win for the Wildcats.`\
+https://nytimes.com/athletic/5977423/2024/12/08/kentucky-gonzaga-mark-pope/
+
 **Syrians Mourn All They Have Lost, Even as They Celebrate**\
 `Thoughts of loved ones dead or missing complicate joyous relief at the prospect of an end to the rule of Bashar al-Assad.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-damascus-eyewitness-assad.html

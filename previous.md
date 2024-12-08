@@ -1,3 +1,7 @@
+**The tweak that helped Kentucky beat Gonzaga in top-10 OT shootout**\
+`After a loss at Clemson earlier this week in the SEC/ACC Men's Challenge, this was a huge bounceback win for the Wildcats.`\
+https://nytimes.com/athletic/5977423/2024/12/08/kentucky-gonzaga-mark-pope/
+
 **Syrians Mourn All They Have Lost, Even as They Celebrate**\
 `Thoughts of loved ones dead or missing complicate joyous relief at the prospect of an end to the rule of Bashar al-Assad.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-damascus-eyewitness-assad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976722/2024/12/08/college-football-playoff-bracket
 **Why a postponed Merseyside derby might prove a blessing in disguise for Liverpool**\
 `Arne Slot's side have six matches in the space of 19 days coming up - Saturday's postponed derby might just keep them fresh`\
 https://nytimes.com/athletic/5976092/2024/12/08/liverpool-everton-derby-postponement-fixtures/
-
-**Wild off their game in rare poor road outing against stingy opponent: 3 takeaways vs. Kings**\
-`The Wild's 4-1 loss to the Kings was their second regulation loss in 16 road games and first regulation loss in their past 10 road games.`\
-https://nytimes.com/athletic/5977298/2024/12/08/wild-kings-takeaways-road-record/
 
