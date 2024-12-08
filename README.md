@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: SMU favored over Alabama for final spot**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-projections-odds/
+
 **The star quality of Leeds' four wingers could prove their driving force**\
 `Dan James, Manor Solomon, Willy Gnonto and Largie Ramazani are all fit - and that makes Farke's front line the envy of the Championship`\
 https://nytimes.com/athletic/5976111/2024/12/08/leeds-united-james-solomon-gnonto-ramazani/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974529/2024/12/08/tottenham-hotspur-chelsea-previe
 **She Sued Over Transgender ‘Conversion Therapy,’ a First for China**\
 `Ling’er won a settlement payout from the hospital where she was held for three months against her will and subjected to electroshock therapy.`\
 https://nytimes.com/2024/12/08/world/asia/transgender-conversion-china.html
-
-**Tottenham vs Chelsea preview, odds, prediction as Blues look to start a title push**\
-`Chelsea are chasing Liverpool for the title, but to truly be a contender, the Blues have to win games like Sunday's at Tottenham.`\
-https://nytimes.com/athletic/5974825/2024/12/08/tottenham-chelsea-preview-odds-prediction/
 
