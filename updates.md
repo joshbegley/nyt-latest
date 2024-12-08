@@ -1,3 +1,11 @@
+**CFP bracket revealed: Oregon No. 1 overall, SMU gets in over Alabama**\
+`Oregon, Georgia, Boise State and Arizona State claimed first-round byes to the quarterfinals. `\
+https://nytimes.com/athletic/5978174/2024/12/08/college-football-playoff-bracket-field-rankings/
+
+**College Football Playoff 2024 projections: Who are the national championship favorites?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-projections-odds/
+
 **Fact-Checking Trump on ‘Meet the Press’: Tariffs, Immigration and More**\
 `The president-elect repeated several false and inaccurate claims on a range of topics that were staples of his 2024 campaign.`\
 https://nytimes.com/2024/12/08/us/politics/trump-nbc-interview-fact-check.html
