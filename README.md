@@ -1,3 +1,7 @@
+**Navarro: Skipping the ACC title game might have been the smarter play for SMU**\
+`After loss to Clemson, the Mustangs are hoping the CFP committee still thinks they deserve an at-large spot. The ACC h reason to be worried.`\
+https://nytimes.com/athletic/5977425/2024/12/08/smu-clemson-acc-championship-college-football-playoff/
+
 **'A Celtic for life': Marcus Smart feels the love, shows off his son in return to Boston**\
 `As much as Smart gave the Celtics on the court, his connection with the city of Boston extended far beyond his athletic accomplishments.`\
 https://nytimes.com/athletic/5977435/2024/12/08/marcus-smart-celtics-grizzlies-son/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977298/2024/12/08/wild-kings-takeaways-road-record
 **Explained: FIFA and DAZN's $1billion broadcast deal for the 2025 Club World Cup**\
 `The Athletic breaks down FIFA’s agreement with DAZN and what the $1billion deal means for the clubs participating next summer…`\
 https://nytimes.com/athletic/5976385/2024/12/08/club-world-cup-dazn-1billion-broadcast-deal/
-
-**Premier League games cost millions to stage - what happens when they are called off?**\
-`The final Premier League derby between Everton and Liverpool fell victim to the weather. But some good came of the postponement`\
-https://nytimes.com/athletic/5976287/2024/12/08/everton-liverpool-merseyside-derby-postponed-storm-darragh/
 
