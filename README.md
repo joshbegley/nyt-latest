@@ -1,3 +1,11 @@
+**Israeli Ground Forces Cross into Syria, Officials Say**\
+`Israeli ground forces have overtly crossed into Syrian territory for the first time since the 1973 October War, passing the demilitarized border zone, two Israeli officials said.`\
+https://nytimes.com/2024/12/08/world/middleeast/israel-demilitarized-zone-syria.html
+
+**NFL Week 14 takeaways: Should Falcons bench Cousins for Penix? Aaron Rodgers’ outlook for 2025**\
+`Plus, are the Panthers on the rise heading into 2025?`\
+https://nytimes.com/athletic/5979022/2024/12/08/nfl-week-14-scores-takeaways-kirk-cousins-falcons-aaron-rodgers/
+
 **Rangers lament breakdowns in collapse against Kraken: 3 takeaways**\
 `New York allowed three goals in a disastrous six-minute stretch and eventually fell 7-5, dropping to 2-7-0 in its past nine games.`\
 https://nytimes.com/athletic/5979062/2024/12/08/rangers-kraken-loss-nhl-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5978186/2024/12/08/browns-steelers-score-result-tak
 **FA to investigate object-throwing by Spurs fans during Chelsea game**\
 `The FA will investigate after objects were thrown onto the pitch during Tottenham Hotspur’s 4-3 home defeat by Chelsea on Sunday.`\
 https://nytimes.com/athletic/5978951/2024/12/08/tottenham-objects-chelsea-fa/
-
-**Threatened With Jail, Cheney Condemns Trump’s ‘Assault on the Rule of Law’**\
-`Liz Cheney, the former Republican representative, said President-elect Donald J. Trump “lied about” the bipartisan House committee that investigated his role in the Jan. 6, 2021, attack.`\
-https://nytimes.com/2024/12/08/us/politics/liz-cheney-donald-trump.html
-
-**With Assad Gone, a Brutal Dictatorship Ends. But the New Risks Are Huge.**\
-`The overthrow of the Assad government could mean Russia’s bases in Syria are closed and Iran’s pathway to Hezbollah is cut off. Now Iran, newly vulnerable, will have to decide between negotiation and the bomb.`\
-https://nytimes.com/2024/12/08/us/politics/syria-assad-iran-risks.html
 
