@@ -1,3 +1,11 @@
+**The star quality of Leeds' four wingers could prove their driving force**\
+`Dan James, Manor Solomon, Willy Gnonto and Largie Ramazani are all fit - and that makes Farke's front line the envy of the Championship`\
+https://nytimes.com/athletic/5976111/2024/12/08/leeds-united-james-solomon-gnonto-ramazani/
+
+**Washington Wizards show their teeth as they end 16-game skid**\
+`With a big scoring night from Jordan Poole and some big blocks by Bilal Coulibaly, Washington won for the first time since Oct. 30. `\
+https://nytimes.com/athletic/5977406/2024/12/08/washington-wizards-end-losing-streak-beat-jokic/
+
 **Why a postponed Merseyside derby might prove a blessing in disguise for Liverpool**\
 `Arne Slot's side have six matches in the space of 19 days coming up - Saturday's postponed derby might just keep them fresh`\
 https://nytimes.com/athletic/5976092/2024/12/08/liverpool-everton-derby-postponement-fixtures/

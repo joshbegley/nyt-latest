@@ -1,3 +1,11 @@
+**The star quality of Leeds' four wingers could prove their driving force**\
+`Dan James, Manor Solomon, Willy Gnonto and Largie Ramazani are all fit - and that makes Farke's front line the envy of the Championship`\
+https://nytimes.com/athletic/5976111/2024/12/08/leeds-united-james-solomon-gnonto-ramazani/
+
+**Washington Wizards show their teeth as they end 16-game skid**\
+`With a big scoring night from Jordan Poole and some big blocks by Bilal Coulibaly, Washington won for the first time since Oct. 30. `\
+https://nytimes.com/athletic/5977406/2024/12/08/washington-wizards-end-losing-streak-beat-jokic/
+
 **Why a postponed Merseyside derby might prove a blessing in disguise for Liverpool**\
 `Arne Slot's side have six matches in the space of 19 days coming up - Saturday's postponed derby might just keep them fresh`\
 https://nytimes.com/athletic/5976092/2024/12/08/liverpool-everton-derby-postponement-fixtures/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/world/asia/transgender-conversion-china.html
 **Tottenham vs Chelsea preview, odds, prediction as Blues look to start a title push**\
 `Chelsea are chasing Liverpool for the title, but to truly be a contender, the Blues have to win games like Sunday's at Tottenham.`\
 https://nytimes.com/athletic/5974825/2024/12/08/tottenham-chelsea-preview-odds-prediction/
-
-**Yohe's 10 observations: Penguins rebound impressively and shut down Maple Leafs**\
-`The Penguins played perhaps their best game of the season in a 5-2 win against the Maple Leafs on Saturday. `\
-https://nytimes.com/athletic/5975629/2024/12/07/penguins-maple-leafs-rust-bunting/
-
-**Nuggets waste Nikola Jokić's career night in inexplicable loss to woeful Wizards**\
-`"We all have to start participating in our own recovery," Michael Malone said after Denver dropped to 11-10 with a loss to lowly Washington.`\
-https://nytimes.com/athletic/5977323/2024/12/07/nuggets-nikola-jokic-highlights-wizards-loss/
 
