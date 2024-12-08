@@ -1,3 +1,19 @@
+**Trump Suggests Kennedy Will Examine Debunked Link Between Vaccines and Autism**\
+`The president-elect has promoted the theory for more than a decade and said on Sunday that he was “open to anything” to address a nationwide rise in autism.`\
+https://nytimes.com/2024/12/08/us/politics/trump-rfk-jr-vaccines-autism.html
+
+**What’s Next for Syria After the Collapse of Assad’s Government?**\
+`Predicting Syria’s future is challenging, as the government’s sudden demise took many people who have watched the region for years by surprise.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-assad-rebels-what-next.html
+
+**Lewis Hamilton ends Mercedes F1 career with fight, emotion: ‘I've got no more tears'**\
+`F1's all-time winningest driver delivered a memorable comeback to sign off at Mercedes in Abu Dhabi.`\
+https://nytimes.com/athletic/5978189/2024/12/08/lewis-hamilton-final-mercedes-race-f1-abu-dhabi/
+
+**The Winners and Losers Following the Fall of Assad**\
+`Two cheers for the end of the regime, but be wary of what happens next.`\
+https://nytimes.com/2024/12/08/opinion/assad-syria-winners-losers.html
+
 **Aleppo gives a hint of what is to come in Syria, at least in the immediate future.**\
 `The northern city of Aleppo, which rebels captured on Nov. 30 just fours days into their surprise offensive, suggests that big changes won’t come immediately.`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syria-rebels-assad-aleppo
