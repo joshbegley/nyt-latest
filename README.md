@@ -1,3 +1,15 @@
+**The Glorious, Behind-the-Scenes Mess That Is Cookie Week**\
+`A weeklong celebration of cookies takes months of planning and baking, not to mention various photo and video shoots.`\
+https://nytimes.com/2024/12/08/insider/behind-the-scenes-times-cookie-week.html
+
+**At Daniel Penny’s Trial, the Moment May Matter as Much as the Evidence**\
+`Jordan Neely’s death on the subway would once have prompted persistent protests. But when it comes to the perception of threat, context is everything.`\
+https://nytimes.com/2024/12/08/nyregion/daniel-penny-jordan-neely-chokehold-trial.html
+
+**Must I Share My Story?**\
+`A reader asks whether she needs to let her new colleagues, most of whom work remotely, know that she is undergoing chemotherapy treatments.`\
+https://nytimes.com/2024/12/08/business/bad-manager-work-advice.html
+
 **‘I Was So Absorbed in My Notes That I Had Forgotten to Have Lunch’**\
 `A forbidden snack while studying, exercise to start the day and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/12/08/nyregion/metropolitan-diary.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5977530/2024/12/08/clemson-acc-championship-smu-col
 **Here are the latest developments.**\
 `By Raja Abdulrahim, Hwaida Saad and Farnaz Fassihi`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/here-are-the-latest-developments
-
-**Syria Live Updates: Rebels Declare Damascus Free of al-Assad**\
-`After just a few days of rapid advances, the rebels appeared to control Syria’s capital. They said they would work with a top official in President Bashar al-Assad’s government. Mr. al-Assad’s location was unclear.`\
-https://nytimes.com/live/2024/12/08/world/syria-war-damascus
-
-**Canadiens then and now: Another third-period loss to the Capitals feels far different**\
-`The Canadiens allowed three third-period goals to lose to the Capitals, just like they did on Halloween night, but so much has changed.`\
-https://nytimes.com/athletic/5977512/2024/12/08/montreal-canadiens-washington-capitals/
-
-**The tweak that helped Kentucky beat Gonzaga in top-10 OT shootout**\
-`After a loss at Clemson earlier this week in the SEC/ACC Men's Challenge, this was a huge bounceback win for the Wildcats.`\
-https://nytimes.com/athletic/5977423/2024/12/08/kentucky-gonzaga-mark-pope/
 
