@@ -1,3 +1,7 @@
+**South Korea’s Ex-Defense Chief Is Detained Over Martial Law Episode**\
+`Prosecutors are investigating whether President Yoon Suk Yeol and his followers committed insurrection when they briefly put South Korea under martial law.`\
+https://nytimes.com/2024/12/07/world/asia/south-korea-martial-law-defense-minister-arrest.html
+
 **Here's how LA Galaxy won MLS Cup - and why it brings a warning to their rivals**\
 `A beautifully worked goal ended the LA Galaxy's decade-long MLS Cup drought, while potentially sparking a new era of success.`\
 https://nytimes.com/athletic/5977192/2024/12/07/la-galaxy-mls-cup-2024-warning/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976722/2024/12/07/college-football-playoff-bracket
 **Blackhawks goalie Petr Mrázek to miss time after lower-body injury**\
 `Mrázek left Saturday's game against the Jets after making an awkward save along the post in the first period and did not return.`\
 https://nytimes.com/athletic/5977129/2024/12/07/blackhawks-petr-mrazek-injury/
-
-**Giants' record-setting Willy Adames deal shows Buster Posey means business**\
-`In signing Adames, Posey did as a team president what he did as a player: cut through the noise and find the best solution to a problem.`\
-https://nytimes.com/athletic/5977121/2024/12/07/sf-giants-willy-adames-signing-buster-posey/
 
