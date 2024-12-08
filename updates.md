@@ -1,3 +1,7 @@
+**A backup QB, of all people, comes to Georgia's rescue — not detriment**\
+`"Gunner is him. He's that guy," Trevor Etienne said of the backup quarterback who led Georgia to the SEC title. `\
+https://nytimes.com/athletic/5977359/2024/12/07/georgia-football-sec-championship-gunner-stockton/
+
 **Yohe's 10 observations: Penguins rebound impressively and shut down Maple Leafs**\
 `The Penguins played perhaps their best game of the season in a 5-2 win against the Maple Leafs on Saturday. `\
 https://nytimes.com/athletic/5975629/2024/12/07/penguins-maple-leafs-rust-bunting/

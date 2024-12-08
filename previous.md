@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5975629/2024/12/07/penguins-maple-leafs-rust-buntin
 https://nytimes.com/athletic/5977323/2024/12/07/nuggets-nikola-jokic-highlights-wizards-loss/
 
 **A backup QB, of all people, comes to Georgia's rescue — not detriment**\
-`"Gunner is him. He's that guy," said Travis Etienne of the backup quarterback who led Georgia to the SEC title. `\
+`"Gunner is him. He's that guy," Trevor Etienne said of the backup quarterback who led Georgia to the SEC title. `\
 https://nytimes.com/athletic/5977359/2024/12/07/georgia-football-sec-championship-gunner-stockton/
 
 **Maple Leafs report cards: Luck and the result not on Toronto's side — again**\
