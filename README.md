@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5979022/2024/12/08/nfl-week-14-scores-takeaways-kir
 https://nytimes.com/athletic/5979062/2024/12/08/rangers-kraken-loss-nhl-analysis/
 
 **Dolphins keep playoff hopes alive with 32-26 OT win vs. Jets: Takeaways**\
-`Miami picks up its fourth win in five weeks after a 2-6 start, while the Jets extend longest playoff drought in men's professional sports. `\
+`Miami picked up its fourth win in five weeks after a 2-6 start, while the Jets extended the longest playoff drought in men's pro sports. `\
 https://nytimes.com/athletic/5978160/2024/12/08/jets-dolphins-score-result-takeaways/
 
 **Saints beat Giants on blocked field goal, lose Carr to injury: Takeaways**\
