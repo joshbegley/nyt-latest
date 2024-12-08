@@ -1,3 +1,7 @@
+**Conference title games make no sense in the 12-team College Football Playoff era**\
+`Even Kirby Smart admitted that this year's SEC title game lacked the "same juice and atmosphere" as in previous seasons. `\
+https://nytimes.com/athletic/5977321/2024/12/07/sec-championship-game-georgia-texas-carson-beck/
+
 **Galaxy legend Robbie Keane teases 'conversations' about MLS return as head coach**\
 `Robbie Keane could be on the verge of an MLS comeback as a head coach — and his trademark rolling goal celebration might even follow him into the technical area.`\
 https://nytimes.com/athletic/5977233/2024/12/07/galaxy-legend-robbie-keane-teases-conversations-about-mls-return-as-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977202/2024/12/07/tim-albin-charlotte-coach-ohio-b
 **College Football Playoff 2024 projections: Georgia vaults to No. 2 seed after SEC title**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-projections-odds/
-
-**Miho Nakayama, Japanese Music and Movie Star, Dies at 54**\
-`A top-selling pop singer as a teenager in the 1980s, she also had an award-winning career as a dramatic actress.`\
-https://nytimes.com/2024/12/07/arts/music/miho-nakayama-dead.html
 

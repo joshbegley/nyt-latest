@@ -1,3 +1,7 @@
+**Conference title games make no sense in the 12-team College Football Playoff era**\
+`Even Kirby Smart admitted that this year's SEC title game lacked the "same juice and atmosphere" as in previous seasons. `\
+https://nytimes.com/athletic/5977321/2024/12/07/sec-championship-game-georgia-texas-carson-beck/
+
 **Galaxy legend Robbie Keane teases 'conversations' about MLS return as head coach**\
 `Robbie Keane could be on the verge of an MLS comeback as a head coach — and his trademark rolling goal celebration might even follow him into the technical area.`\
 https://nytimes.com/athletic/5977233/2024/12/07/galaxy-legend-robbie-keane-teases-conversations-about-mls-return-as-head-coach/
