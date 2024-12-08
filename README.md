@@ -2,7 +2,7 @@
 `A reckoning emerged in Iran on Sunday as officials and commentators swiftly moved to distance the government from a tyrant it had supported.`\
 https://nytimes.com/2024/12/08/world/middleeast/iran-reaction-assad-syria.html
 
-**In race for No. 1 NFL Draft pick, there are two clear favorites amid Week 14 play**\
+**In race for No. 1 NFL Draft pick, there are two favorites in Week 14**\
 `Jacksonville's win Sunday makes the battle for first overall a two-team race between the New York Giants and Las Vegas Raiders.`\
 https://nytimes.com/athletic/5978876/2024/12/08/race-to-no-1-draft-pick-nfl/
 
