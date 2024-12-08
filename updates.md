@@ -1,3 +1,11 @@
+**West Ham's Antonio has surgery after car accident**\
+`West Ham United have confirmed that forward Michail Antonio has had surgery on a &#8220;lower limb fracture&#8221; after being involved in a car accident on Saturday.`\
+https://nytimes.com/athletic/5978015/2024/12/08/west-ham-michail-antonio-surgery-car-acciddent/
+
+**Purdue close to hiring UNLV's Odom: Source**\
+`Odom went 19-8 the past two seasons at UNLV, taking the long downtrodden program to its first two Mountain West championship games.`\
+https://nytimes.com/athletic/5978032/2024/12/08/purdue-barry-odom-unlv-coach-hire/
+
 **Art and A.I.: Parallel Worlds, Bound Together**\
 `Artificial intelligence, though shrouded in risk, promises a revolution in how we see the world.`\
 https://nytimes.com/2024/12/08/special-series/art-creativity-artificial-intelligence.html
