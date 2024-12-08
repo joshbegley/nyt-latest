@@ -1,3 +1,11 @@
+**Fact-Checking Trump on ‘Meet the Press’: Tariffs, Immigration and More**\
+`The president-elect repeated several false and inaccurate claims on a range of topics that were staples of his 2024 campaign.`\
+https://nytimes.com/2024/12/08/us/politics/trump-nbc-interview-fact-check.html
+
+**Aleppo gives a hint of what is to come in Syria, at least in the immediate future.**\
+`The northern city of Aleppo, which rebels captured on Nov. 30 just fours days into their surprise offensive, suggests that big changes won’t come immediately.`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syria-rebels-assad-aleppo
+
 **Nations and Leaders React to Toppling of Syria Regime**\
 `The U.N. special envoy called it a “watershed moment” on Sunday as world leaders reckoned with the news.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-global-reactions-world-leaders.html

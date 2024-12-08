@@ -1,3 +1,11 @@
+**Fact-Checking Trump on ‘Meet the Press’: Tariffs, Immigration and More**\
+`The president-elect repeated several false and inaccurate claims on a range of topics that were staples of his 2024 campaign.`\
+https://nytimes.com/2024/12/08/us/politics/trump-nbc-interview-fact-check.html
+
+**Aleppo gives a hint of what is to come in Syria, at least in the immediate future.**\
+`The northern city of Aleppo, which rebels captured on Nov. 30 just fours days into their surprise offensive, suggests that big changes won’t come immediately.`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syria-rebels-assad-aleppo
+
 **Nations and Leaders React to Toppling of Syria Regime**\
 `The U.N. special envoy called it a “watershed moment” on Sunday as world leaders reckoned with the news.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-global-reactions-world-leaders.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/world/middleeast/irans-syria-axis-of-resistance.h
 **Records Seized by Israel Show Hamas Presence in U.N. Schools**\
 `While Israel asserts that the United Nations has tried to minimize the problem, the global organization says Israeli officials are waging an unfair campaign to discredit it.`\
 https://nytimes.com/2024/12/08/world/middleeast/hamas-unrwa-schools.html
-
-**As Syrian Rebels Take Charge, Freeing Prisoners of Assad Is a Priority**\
-`Many people want to determine the fates of loved ones who disappeared into a notorious military prison that was a symbol of human rights abuses under the rule of President Bashar al-Assad.`\
-https://nytimes.com/2024/12/08/world/middleeast/syria-prisons-sednaya-assad.html
-
-**AP Top 25: Alabama 1 point ahead of SMU in poll**\
-`Oregon, Georgia, Notre Dame, Texas and Penn State make up the top five of the AP poll, while Alabama moved past SMU.`\
-https://nytimes.com/athletic/5978100/2024/12/08/ap-top-25-rankings-playoff-alabama-smu/
 
