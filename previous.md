@@ -1,3 +1,7 @@
+**Nuggets waste Nikola Jokić's career night in inexplicable loss to woeful Wizards**\
+`"We all have to start participating in our own recovery," Michael Malone said after Denver dropped to 11-10 with a loss to lowly Washington.`\
+https://nytimes.com/athletic/5977323/2024/12/07/nuggets-nikola-jokic-highlights-wizards-loss/
+
 **A backup QB, of all people, comes to Georgia's rescue — not detriment**\
 `"Gunner is him. He's that guy," said Travis Etienne of the backup quarterback who led Georgia to the SEC title. `\
 https://nytimes.com/athletic/5977359/2024/12/07/georgia-football-sec-championship-gunner-stockton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/pageoneplus/corrections-dec-8-2024.html
 **How will the Playoff handle Georgia QB Carson Beck's injury? Why it's not like FSU**\
 `Florida State was left out of a four-team Playoff last year after losing Jordan Travis. Georgia faces no such concern after Beck's injury.`\
 https://nytimes.com/athletic/5977244/2024/12/07/carson-beck-injury-georgia-playoff-fsu-jordan-travis/
-
-**A work in progress, Blackhawks lose in interim coach Anders Sorensen's debut: Observations**\
-`One practice under Sorensen wasn't going to fix the Blackhawks, and we were all reminded of that in their 4-2 loss to the Jets.`\
-https://nytimes.com/athletic/5977162/2024/12/07/blackhawks-coach-anders-sorensen-debut/
 

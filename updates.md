@@ -1,3 +1,7 @@
+**Nuggets waste Nikola Jokić's career night in inexplicable loss to woeful Wizards**\
+`"We all have to start participating in our own recovery," Michael Malone said after Denver dropped to 11-10 with a loss to lowly Washington.`\
+https://nytimes.com/athletic/5977323/2024/12/07/nuggets-nikola-jokic-highlights-wizards-loss/
+
 **A backup QB, of all people, comes to Georgia's rescue — not detriment**\
 `"Gunner is him. He's that guy," said Travis Etienne of the backup quarterback who led Georgia to the SEC title. `\
 https://nytimes.com/athletic/5977359/2024/12/07/georgia-football-sec-championship-gunner-stockton/
