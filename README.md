@@ -1,3 +1,11 @@
+**Who will win the College Football Playoff? Bruce Feldman fills out his bracket**\
+`Predictions for how the first 12-team College Football Playoff bracket will play out, ending with Oregon beating Georgia for the title.`\
+https://nytimes.com/athletic/5978565/2024/12/08/college-football-playoff-bracket-predictions-picks-feldman/
+
+**Postecoglou: Not a gamble to play Van de Ven and Romero against Chelsea**\
+`Tottenham Hotspur head coach Ange Postecoglou says it was not a gamble to play Micky van de Ven and Cristian Romero against Chelsea despite the defenders going off injured during Sunday’s 4-3 loss.`\
+https://nytimes.com/athletic/5978725/2024/12/08/van-de-ven-romero-tottenham-injury-postecoglou/
+
 **College Football Playoff 12-team debut season verdict: The football is good, my friends**\
 `There are still issues with the sport, but the 2024 season and the 12-team Playoff to come have given us bacon. Let’s do it. Let's eat. `\
 https://nytimes.com/athletic/5978349/2024/12/08/college-football-playoff-2024-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976275/2024/12/08/blue-jackets-jacob-trouba-trade-
 **Biden Says U.S. Conducted Airstrikes Against Islamic State Targets in Syria**\
 `President Biden hailed the fall of President Bashar al-Assad as a “fundamental act of justice” but warned of “a moment of risk and uncertainty.”`\
 https://nytimes.com/2024/12/08/us/politics/biden-syria-assad-isis.html
-
-**Pelicans' Brandon Ingram out indefinitely with high-grade left ankle sprain**\
-`Ingram suffered the injury on his first shot attempt of the second half in Saturday’s loss to the Oklahoma City Thunder.`\
-https://nytimes.com/athletic/5978383/2024/12/08/pelicans-brandon-ingram-ankle-injury/
-
-**Syrians in Lebanon Start to Head Home, With Both Joy and Worry**\
-`Thousands who fled during the country’s civil war celebrated the toppling of the Assad government — and their long-awaited return home — at the Syria-Lebanon border crossing.`\
-https://nytimes.com/2024/12/08/world/middleeast/syrians-return-home.html
 
