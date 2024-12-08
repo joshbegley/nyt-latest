@@ -1,4 +1,4 @@
-**Barkley, Eagles extend streak with close 22-16 win over Panthers: Takeaways**\
+**Barkley, Eagles extend streak with 22-16 win vs. Panthers: Takeaways**\
 `Barkley set the franchise record for most rushing yards in a single season.`\
 https://nytimes.com/athletic/5978177/2024/12/08/panthers-eagles-score-result-takeaways/
 
