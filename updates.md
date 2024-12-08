@@ -1,3 +1,11 @@
+**The Briefing: Fulham 1 Arsenal 1: How much of a blow will VAR decision be? Did wind impact corners?**\
+`Arsenal were held to a 1-1 draw by Fulham on Sunday afternoon after a late VAR decision ruled out a Bukayo Saka goal`\
+https://nytimes.com/athletic/5974240/2024/12/08/fulham-arsenal-result-report-analysis/
+
+**Why the Giants gave Willy Adames the largest contract in franchise history**\
+`Adames has already had several seasons that would sit amongst the top 10 for Giants' shortstops. And he's still only 29.`\
+https://nytimes.com/athletic/5977118/2024/12/08/sf-giants-willy-adames-signing-analysis/
+
 **Will We Ever Elect a Woman as President?**\
 `Readers react to a column by Gail Collins. Also: Advice for immigrants; presidential immunity; words of the year.`\
 https://nytimes.com/2024/12/08/opinion/woman-president-kamala-harris.html

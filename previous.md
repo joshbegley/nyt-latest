@@ -1,3 +1,11 @@
+**The Briefing: Fulham 1 Arsenal 1: How much of a blow will VAR decision be? Did wind impact corners?**\
+`Arsenal were held to a 1-1 draw by Fulham on Sunday afternoon after a late VAR decision ruled out a Bukayo Saka goal`\
+https://nytimes.com/athletic/5974240/2024/12/08/fulham-arsenal-result-report-analysis/
+
+**Why the Giants gave Willy Adames the largest contract in franchise history**\
+`Adames has already had several seasons that would sit amongst the top 10 for Giants' shortstops. And he's still only 29.`\
+https://nytimes.com/athletic/5977118/2024/12/08/sf-giants-willy-adames-signing-analysis/
+
 **Will We Ever Elect a Woman as President?**\
 `Readers react to a column by Gail Collins. Also: Advice for immigrants; presidential immunity; words of the year.`\
 https://nytimes.com/2024/12/08/opinion/woman-president-kamala-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/world/middleeast/austin-tice-syria-journalist.htm
 **Chiung Yao, Influential Taiwanese Romance Novelist, Dies at 86**\
 `One of the most successful writers in the Chinese-speaking world, she filled her plots with twists and turns, but love always transcended all.`\
 https://nytimes.com/2024/12/08/books/chiung-yao-dead.html
-
-**Trump Says He Does Not Have Plans to Replace Fed Chair**\
-`Donald J. Trump, the president-elect, said he doesn’t “see it” when asked if he would try to oust the head of America’s central bank.`\
-https://nytimes.com/2024/12/08/us/politics/trump-federal-reserve-jerome-powell.html
-
-**Assad’s fall deprives Hezbollah of a key ally.**\
-`By Ben Hubbard`\
-https://nytimes.com/live/2024/12/08/world/syria-war-damascus/assads-fall-deprives-hezbollah-of-a-key-ally
 
