@@ -1,3 +1,11 @@
+**Until Saturday: Who will make the Playoff after a wild weekend?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Who will make the College Football Playoff field?`\
+https://nytimes.com/athletic/5977672/2024/12/08/college-football-playoff-field-until-saturday/
+
+**How McLaren, F1 champions again after 26 years, went from last to first in 18 months**\
+`Led by talented drivers and a serene team principal, McLaren rapidly grew into the champion it has so longed to become again. `\
+https://nytimes.com/athletic/5960099/2024/12/08/mclaren-f1-2024-championship-season/
+
 **The Streets of My Country Are Full of Fury**\
 `Georgia is lurching toward authoritarianism. This may be our last chance to pull it back.`\
 https://nytimes.com/2024/12/08/opinion/georgia-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5977776/2024/12/08/caitlin-clark-card-record-wnba/
 **Who Is the Leader of Syria’s Rebel Offensive?**\
 `Mr. al-Jolani, 42, spearheaded a lightning assault that led to the fall of President Bashar al-Assad.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-hts-jolani.html
-
-**NFL Week 14 inactives and fantasy tips: Breece Hall out, Allen Lazard activated from IR**\
-`Check out who's in and who's out for Week 14. Plus last-minute free agency options and Jake Ciely's fantasy rankings.`\
-https://nytimes.com/athletic/5976512/2024/12/08/nfl-week-14-inactives-and-fantasy-tips/
-
-**Bill Clinton on the Election, D.E.I. and One of His Regrets**\
-`The former president spoke with Andrew Ross Sorkin at the DealBook Summit.`\
-https://nytimes.com/2024/12/08/business/dealbook/bill-clinton-dealbook.html
 
