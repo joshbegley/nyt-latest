@@ -1,3 +1,7 @@
+**Who Is the Leader of Syria’s Rebel Offensive?**\
+`Mr. al-Jolani, 42, spearheaded a lightning assault that led to the fall of President Bashar al-Assad.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-hts-jolani.html
+
 **NFL Week 14 inactives and fantasy tips: Breece Hall out, Allen Lazard activated from IR**\
 `Check out who's in and who's out for Week 14. Plus last-minute free agency options and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/5976512/2024/12/08/nfl-week-14-inactives-and-fantasy-tips/
