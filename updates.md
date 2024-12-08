@@ -1,3 +1,7 @@
+**With Syria in Flux, Turkey Attacks U.S.-Backed Forces**\
+`Rebels supported by Turkish air power fired on a Kurdish-controlled city in northern Syria, pitting proxies of the U.S. and Turkey — NATO allies — against each other.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-turkey-kurds.html
+
 **Stunned Iranian Officials Try to Distance Their Country From Assad**\
 `A reckoning emerged in Iran on Sunday as officials and commentators swiftly moved to distance the government from a tyrant it had supported.`\
 https://nytimes.com/2024/12/08/world/middleeast/iran-reaction-assad-syria.html
