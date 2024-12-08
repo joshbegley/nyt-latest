@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5978975/2024/12/08/chase-herbstreit-michigan-commit
 https://nytimes.com/2024/12/08/us/linda-mcmahon-sexual-abuse-lawsuit.html
 
 **Buccaneers take NFC South lead with 28-13 win over Raiders: Takeaways**\
-`For the first time in his career, Rachaad White scores a rushing touchdown and receiving touchdown in the same game.`\
+`For the first time in his career, Rachaad White scored a rushing touchdown and receiving touchdown in the same game.`\
 https://nytimes.com/athletic/5978204/2024/12/08/raiders-buccaneers-score-result-takeaways/
 
 **With Carson Beck injured, Georgia may turn to Gunner Stockton for Playoff**\
