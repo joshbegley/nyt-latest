@@ -1,3 +1,7 @@
+**Chiung Yao, Influential Taiwanese Romance Novelist, Dies at 86**\
+`One of the most successful writers in the Chinese-speaking world, she filled her plots with twists and turns, but love always transcended all.`\
+https://nytimes.com/2024/12/08/books/chiung-yao-dead.html
+
 **Trump Says He Does Not Have Plans to Replace Fed Chair**\
 `Donald J. Trump, the president-elect, said he doesn’t “see it” when asked if he would try to oust the head of America’s central bank.`\
 https://nytimes.com/2024/12/08/us/politics/trump-federal-reserve-jerome-powell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977972/2024/12/08/live-qa-week-14-fantasy-football
 **Lando Norris captures F1 constructors' championship for McLaren at Abu Dhabi**\
 `Opening-lap chaos required a near-perfect race from Norris, who delivered McLaren its first team title in 26 years. `\
 https://nytimes.com/athletic/5977870/2024/12/08/lando-norris-mclaren-win-2024-f1-championship-abu-dhabi-gp/
-
-**Until Saturday: Who will make the Playoff after a wild weekend?**\
-`Welcome to Until Saturday, the five-star college football newsletter: Who will make the College Football Playoff field?`\
-https://nytimes.com/athletic/5977672/2024/12/08/college-football-playoff-field-until-saturday/
 
