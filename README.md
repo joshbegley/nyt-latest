@@ -1,3 +1,19 @@
+**Steve Mensch, President of Tyler Perry Studios, Dies at 62**\
+`Mr. Mensch, a longtime supporter of the film industry in Georgia, died in a plane crash on Friday in Florida, according to officials.`\
+https://nytimes.com/2024/12/08/arts/television/steve-mensch-dead.html
+
+**Notre-Dame Holds First Public Mass in Years: ‘Fire Has Not Conquered Stone’**\
+`Sunday was the first opportunity for worshipers to return to the cathedral, beloved by the faithful and secular alike, since the 2019 fire that devastated it. “Despair has not conquered life,” its rector said.`\
+https://nytimes.com/2024/12/08/world/europe/notre-dame-reopened-mass.html
+
+**Utah coach Kyle Whittingham announces return for 21st season in 2025**\
+`On the heels of a disappointing 5-7 season, questions arose regarding Whittingham’s immediate future.`\
+https://nytimes.com/athletic/5979308/2024/12/08/utah-kyle-whittingham-return/
+
+**Explosions and fires erupted around Damascus on Sunday.**\
+`Visual e`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/explosions-and-fires-erupted-around-damascus-on-sunday
+
 **Nebraska to face Boston College in Pinstripe Bowl: 10 thoughts on Huskers' postseason return**\
 `This year marks the 10th consecutive Pinstripe Bowl featuring a Big Ten team. It's also the first matchup between the Huskers and Eagles.`\
 https://nytimes.com/athletic/5979267/2024/12/08/nebraska-pinstripe-bowl-college-football-boston-college/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/08/world/middleeast/israel-demilitarized-zone-syria.
 **NFL Week 14 takeaways: Should Falcons bench Cousins for Penix? Aaron Rodgers’ outlook for 2025**\
 `Plus, are the Panthers on the rise heading into 2025?`\
 https://nytimes.com/athletic/5979022/2024/12/08/nfl-week-14-scores-takeaways-kirk-cousins-falcons-aaron-rodgers/
-
-**Rangers lament breakdowns in collapse against Kraken: 3 takeaways**\
-`New York allowed three goals in a disastrous six-minute stretch, falling 7-5 to Seattle and dropping to 2-7-0 in its past nine games.`\
-https://nytimes.com/athletic/5979062/2024/12/08/rangers-kraken-loss-nhl-analysis/
-
-**Dolphins keep playoff hopes alive with 32-26 OT win vs. Jets: Takeaways**\
-`Miami picked up its fourth win in five weeks after a 2-6 start, while the Jets extended the longest playoff drought in men's pro sports. `\
-https://nytimes.com/athletic/5978160/2024/12/08/jets-dolphins-score-result-takeaways/
-
-**Saints beat Giants on blocked field goal, lose Carr to injury: Takeaways**\
-`New Orleans now faces questions about the health of its quarterback after a wild win in New York.`\
-https://nytimes.com/athletic/5978168/2024/12/08/saints-giants-score-result-takeaways/
-
-**Monday Briefing: Al-Assad Flees Syria as Rebels Claim Power**\
-`Plus, Notre-Dame reopens.`\
-https://nytimes.com/2024/12/08/briefing/syria-south-korea-trump.html
 
