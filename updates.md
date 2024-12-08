@@ -1,3 +1,11 @@
+**Who will win the College Football Playoff? Bruce Feldman fills out his bracket**\
+`Predictions for how the first 12-team College Football Playoff bracket will play out, ending with Oregon beating Georgia for the title.`\
+https://nytimes.com/athletic/5978565/2024/12/08/college-football-playoff-bracket-predictions-picks-feldman/
+
+**Postecoglou: Not a gamble to play Van de Ven and Romero against Chelsea**\
+`Tottenham Hotspur head coach Ange Postecoglou says it was not a gamble to play Micky van de Ven and Cristian Romero against Chelsea despite the defenders going off injured during Sunday’s 4-3 loss.`\
+https://nytimes.com/athletic/5978725/2024/12/08/van-de-ven-romero-tottenham-injury-postecoglou/
+
 **College Football Playoff 12-team debut season verdict: The football is good, my friends**\
 `There are still issues with the sport, but the 2024 season and the 12-team Playoff to come have given us bacon. Let’s do it. Let's eat. `\
 https://nytimes.com/athletic/5978349/2024/12/08/college-football-playoff-2024-season/
