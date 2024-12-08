@@ -1,3 +1,7 @@
+**Lando Norris captures F1 constructors' championship for McLaren at Abu Dhabi**\
+`Opening-lap chaos required a near-perfect race from Norris, who delivered McLaren its first team title in 26 years. `\
+https://nytimes.com/athletic/5977870/2024/12/08/lando-norris-mclaren-win-2024-f1-championship-abu-dhabi-gp/
+
 **Until Saturday: Who will make the Playoff after a wild weekend?**\
 `Welcome to Until Saturday, the five-star college football newsletter: Who will make the College Football Playoff field?`\
 https://nytimes.com/athletic/5977672/2024/12/08/college-football-playoff-field-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977501/2024/12/08/real-madrid-girona-jude-bellingh
 **Caitlin Clark trading card sells for $234,850, shattering previous record**\
 `Clark keeps breaking records, even in the offseason. `\
 https://nytimes.com/athletic/5977776/2024/12/08/caitlin-clark-card-record-wnba/
-
-**Who Is the Leader of Syria’s Rebel Offensive?**\
-`Mr. al-Jolani, 42, spearheaded a lightning assault that led to the fall of President Bashar al-Assad.`\
-https://nytimes.com/2024/12/08/world/middleeast/syria-hts-jolani.html
 
