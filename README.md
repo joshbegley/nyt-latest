@@ -1,3 +1,7 @@
+**A backup QB, of all people, comes to Georgia's rescue — not detriment**\
+`"Gunner is him. He's that guy," said Travis Etienne of the backup quarterback who led Georgia to the SEC title. `\
+https://nytimes.com/athletic/5977359/2024/12/07/georgia-football-sec-championship-gunner-stockton/
+
 **Maple Leafs report cards: Luck and the result not on Toronto's side — again**\
 `For the first time since the end of October, the Maple Leafs lost back-to-back games in regulation.`\
 https://nytimes.com/athletic/5977282/2024/12/07/maple-leafs-penguins-grades-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977244/2024/12/07/carson-beck-injury-georgia-playo
 **A work in progress, Blackhawks lose in interim coach Anders Sorensen's debut: Observations**\
 `One practice under Sorensen wasn't going to fix the Blackhawks, and we were all reminded of that in their 4-2 loss to the Jets.`\
 https://nytimes.com/athletic/5977162/2024/12/07/blackhawks-coach-anders-sorensen-debut/
-
-**Charlotte hiring Ohio coach Tim Albin, who led Bobcats to MAC crown: Source**\
-`Albin would take over a young Charlotte program that began play in 2013 and has reached one bowl game in its history.`\
-https://nytimes.com/athletic/5977202/2024/12/07/tim-albin-charlotte-coach-ohio-bobcats/
 
