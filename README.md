@@ -1,3 +1,7 @@
+**Syria’s Army Was Hollowing Out Long Before Rebels’ Advance**\
+`While multiple factors contributed to the fall of President Bashar al-Assad, corrosion inside his own military did not help, analysts say.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-army-assad-fall.html
+
 **Who will win the College Football Playoff? Bruce Feldman fills out his bracket**\
 `Predictions for how the first 12-team College Football Playoff bracket will play out, ending with Oregon beating Georgia for the title.`\
 https://nytimes.com/athletic/5978565/2024/12/08/college-football-playoff-bracket-predictions-picks-feldman/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/world/middleeast/assad-family-legacy-syria.html
 **Blue Jackets Sunday Gathering: What GM Don Waddell's pursuit of Jacob Trouba means**\
 `The Blue Jackets were among the clubs that pressed hard to acquire defenseman Jacob Trouba from the Rangers last week.`\
 https://nytimes.com/athletic/5976275/2024/12/08/blue-jackets-jacob-trouba-trade-rangers/
-
-**Biden Says U.S. Conducted Airstrikes Against Islamic State Targets in Syria**\
-`President Biden hailed the fall of President Bashar al-Assad as a “fundamental act of justice” but warned of “a moment of risk and uncertainty.”`\
-https://nytimes.com/2024/12/08/us/politics/biden-syria-assad-isis.html
 
