@@ -1,3 +1,15 @@
+**The Glorious, Behind-the-Scenes Mess That Is Cookie Week**\
+`A weeklong celebration of cookies takes months of planning and baking, not to mention various photo and video shoots.`\
+https://nytimes.com/2024/12/08/insider/behind-the-scenes-times-cookie-week.html
+
+**At Daniel Penny’s Trial, the Moment May Matter as Much as the Evidence**\
+`Jordan Neely’s death on the subway would once have prompted persistent protests. But when it comes to the perception of threat, context is everything.`\
+https://nytimes.com/2024/12/08/nyregion/daniel-penny-jordan-neely-chokehold-trial.html
+
+**Must I Share My Story?**\
+`A reader asks whether she needs to let her new colleagues, most of whom work remotely, know that she is undergoing chemotherapy treatments.`\
+https://nytimes.com/2024/12/08/business/bad-manager-work-advice.html
+
 **‘I Was So Absorbed in My Notes That I Had Forgotten to Have Lunch’**\
 `A forbidden snack while studying, exercise to start the day and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/12/08/nyregion/metropolitan-diary.html
