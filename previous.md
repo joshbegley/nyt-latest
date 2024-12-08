@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/08/crosswords/daily-puzzle-2024-12-09.html
 `The SEC and Alabama don’t make for the most sympathetic victims, nor should they be viewed that way. But there's logic in their gripes.`\
 https://nytimes.com/athletic/5979083/2024/12/08/alabama-snubbed-college-football-playoff-smu/
 
-**Barkley, Eagles extend streak with 22-16 win vs. Panthers: Takeaways**\
+**Barkley, Hurts help Eagles edge Panthers 22-16: Takeaways**\
 `Barkley set the franchise record for most rushing yards in a single season.`\
 https://nytimes.com/athletic/5978177/2024/12/08/panthers-eagles-score-result-takeaways/
 

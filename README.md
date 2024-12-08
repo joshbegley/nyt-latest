@@ -1,3 +1,7 @@
+**Nebraska to face Boston College in Pinstripe Bowl: 10 thoughts on Huskers' postseason return**\
+`This year marks the 10th consecutive Pinstripe Bowl featuring a Big Ten team. It's also the first matchup between the Huskers and Eagles.`\
+https://nytimes.com/athletic/5979267/2024/12/08/nebraska-pinstripe-bowl-college-football-boston-college/
+
 **Humdrum Routines**\
 `Elliot Caroll makes her New York Times Crossword debut.`\
 https://nytimes.com/2024/12/08/crosswords/daily-puzzle-2024-12-09.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978168/2024/12/08/saints-giants-score-result-takea
 **Monday Briefing: Al-Assad Flees Syria as Rebels Claim Power**\
 `Plus, Notre-Dame reopens.`\
 https://nytimes.com/2024/12/08/briefing/syria-south-korea-trump.html
-
-**Initial thoughts on Ohio State's tough draw in College Football Playoff field**\
-`The Buckeyes earned the No. 8 seed and will host No. 9 seed Tennessee in the first round. Can Ohio State make a run?`\
-https://nytimes.com/athletic/5978976/2024/12/08/ohio-state-college-football-playoff-path/
 

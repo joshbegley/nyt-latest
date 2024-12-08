@@ -1,3 +1,7 @@
+**Barkley, Hurts help Eagles edge Panthers 22-16: Takeaways**\
+`Barkley set the franchise record for most rushing yards in a single season.`\
+https://nytimes.com/athletic/5978177/2024/12/08/panthers-eagles-score-result-takeaways/
+
 **Humdrum Routines**\
 `Elliot Caroll makes her New York Times Crossword debut.`\
 https://nytimes.com/2024/12/08/crosswords/daily-puzzle-2024-12-09.html
