@@ -1,3 +1,7 @@
+**Assad’s Rule Ends**\
+`We explain the latest developments in Syria.`\
+https://nytimes.com/2024/12/08/briefing/syria-rebels-assad.html
+
 **Bayern retire No 5 shirt in honour of Beckenbauer**\
 `Bayern Munich members have voted to retire the club&#8217;s No 5 shirt in honour of their former player and manager Franz Beckenbauer, who died in January this year aged 78.`\
 https://nytimes.com/athletic/5977719/2024/12/08/bayern-munich-retire-5-franz-beckenbauer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977085/2024/12/08/cubs-jameson-taillon-free-agency
 **What Doctors Like Myself Know About Americans’ Health Care Anger**\
 `As a doctor, I’ve been on both sides of frustrating health care debacles.`\
 https://nytimes.com/2024/12/08/opinion/health-care-anger.html
-
-**The Tennessee Trans Treatment Case Is About Age, Not Sex**\
-`The state’s ban on gender-affirming medical care for minors passes the constitutional test.`\
-https://nytimes.com/2024/12/08/opinion/tennessee-trans-supreme-court-case.html
 
