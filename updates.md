@@ -1,3 +1,15 @@
+**Quinn Hughes’ offensive evolution, Canucks' defensive woes vs. Lightning: 3 takeaways**\
+`Vancouver was competitive and close at even strength with sharp goaltending but fell 4-2 to Tampa Bay's elite forwards.`\
+https://nytimes.com/athletic/5978996/2024/12/08/quinn-hughes-canucks-lightning-loss/
+
+**Tulsa hiring East Tennessee State's Tre Lamb as head coach**\
+`Lamb will take over for Kevin Wilson, who the program fired after going 7-16 in less than two seasons at TU.`\
+https://nytimes.com/athletic/5979397/2024/12/08/tulsa-hiring-tre-lamb-coach/
+
+**The CFP answers an existential question correctly by letting SMU in**\
+`This year was always going to set a precedent, and the committee's siding with the Mustangs' resume has staved off a postseason overhaul.`\
+https://nytimes.com/athletic/5979299/2024/12/08/smu-college-football-playoff-committee-resume/
+
 **With Syria in Flux, Turkey Attacks U.S.-Backed Forces**\
 `Rebels supported by Turkish air power fired on a Kurdish-controlled city in northern Syria, pitting proxies of the U.S. and Turkey — NATO allies — against each other.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-turkey-kurds.html
