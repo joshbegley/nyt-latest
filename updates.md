@@ -1,3 +1,15 @@
+**Israeli Ground Forces Cross into Syria, Officials Say**\
+`Israeli ground forces have overtly crossed into Syrian territory for the first time since the 1973 October War, passing the demilitarized border zone, two Israeli officials said.`\
+https://nytimes.com/2024/12/08/world/middleeast/israel-demilitarized-zone-syria.html
+
+**NFL Week 14 takeaways: Should Falcons bench Cousins for Penix? Aaron Rodgers’ outlook for 2025**\
+`Plus, are the Panthers on the rise heading into 2025?`\
+https://nytimes.com/athletic/5979022/2024/12/08/nfl-week-14-scores-takeaways-kirk-cousins-falcons-aaron-rodgers/
+
+**Rangers lament breakdowns in collapse against Kraken: 3 takeaways**\
+`New York allowed three goals in a disastrous six-minute stretch and eventually fell 7-5, dropping to 2-7-0 in its past nine games.`\
+https://nytimes.com/athletic/5979062/2024/12/08/rangers-kraken-loss-nhl-analysis/
+
 **Dolphins keep playoff hopes alive with 32-26 OT win vs. Jets: Takeaways**\
 `Miami picks up its fourth win in five weeks after a 2-6 start, while the Jets extend longest playoff drought in men's professional sports. `\
 https://nytimes.com/athletic/5978160/2024/12/08/jets-dolphins-score-result-takeaways/
