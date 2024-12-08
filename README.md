@@ -1,3 +1,11 @@
+**Inside Dan Ashworth’s shock Man United exit: What irritated Ratcliffe and how it ended**\
+`Ashworth was United sporting director for only five months. After all the attention on securing his services, this was not part of the plan`\
+https://nytimes.com/athletic/5978018/2024/12/08/dan-ashworth-manchester-united-exit-reasons/
+
+**Rooney adds Phelan to Plymouth coaching staff**\
+`Former Manchester United assistant manager Mike Phelan has joined Wayne Rooney’s coaching staff at Plymouth Argyle.`\
+https://nytimes.com/athletic/5978786/2024/12/08/mike-phelan-plymouth-rooney-man-utd/
+
 **Syria’s Army Was Hollowing Out Long Before Rebels’ Advance**\
 `While multiple factors contributed to the fall of President Bashar al-Assad, corrosion inside his own military did not help, analysts say.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-army-assad-fall.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976974/2024/12/08/mohamed-salah-contract-liverpool
 **College Football Playoff odds: Home teams open as big favorites in first round**\
 `The home teams are the betting favorites in all four first-round games of the College Football Playoff.`\
 https://nytimes.com/athletic/5978321/2024/12/08/college-football-playoff-betting-odds-first-round/
-
-**The al-Assad Family’s Legacy Is One of Savage Oppression**\
-`A dynasty bombed and detained thousands of opponents, building fearsome internal security agencies to quash unrest.`\
-https://nytimes.com/2024/12/08/world/middleeast/assad-family-legacy-syria.html
-
-**Blue Jackets Sunday Gathering: What GM Don Waddell's pursuit of Jacob Trouba means**\
-`The Blue Jackets were among the clubs that pressed hard to acquire defenseman Jacob Trouba from the Rangers last week.`\
-https://nytimes.com/athletic/5976275/2024/12/08/blue-jackets-jacob-trouba-trade-rangers/
 
