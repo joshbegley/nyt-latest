@@ -1,3 +1,7 @@
+**Ashworth leaves role as Man United sporting director after five months**\
+`Dan Ashworth has left his role as Manchester United sporting director after just five months.`\
+https://nytimes.com/athletic/5972334/2024/12/08/manchester-united-dan-ashworth-leaves/
+
 **Syrians Celebrate as Rebel Forces Take Control of Damascus**\
 `Gunfire and cheering erupted in the Syrian capital after rebels pushed out the military while President Bashar al-Assad was nowhere to be seen.`\
 https://nytimes.com/video/world/middleeast/100000009865736/syria-damascus-assad-rebels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/nyregion/forrest-meggers-princeton-green-home.htm
 **For 8 Months, Traffic Enforcement on New Jersey’s Highways Plummeted**\
 `After a report found racial bias in traffic enforcement, state troopers were warned by a union leader that “every stop” would be scrutinized. They started making fewer.`\
 https://nytimes.com/2024/12/08/nyregion/new-jersey-state-police-slowdown.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/08/crosswords/spelling-bee-forum.html
 
