@@ -1,3 +1,7 @@
+**Lindsey Vonn, at 40, returns to competitive skiing, eyeing World Cup races**\
+`Lindsey Vonn's unlikely bid to get back to the top of skiing started this weekend, with four races in Colorado she used as "training."`\
+https://nytimes.com/athletic/5976478/2024/12/08/lindsey-vonn-returns-skiing-downhill-world-cup-olympics/
+
 **With Assad’s Fall, Iran’s ‘Axis of Resistance’ Unravels**\
 `Tehran’s main regional allies are weakened or collapsing: Syria’s president, Bashar al-Assad, has fled his country, Hezbollah is battered by conflict with Israel, and Hamas is still at war.`\
 https://nytimes.com/2024/12/08/world/middleeast/irans-syria-axis-of-resistance.html
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/5978100/2024/12/08/ap-top-25-rankings-playoff-alaba
 `Her only album made her a media star after she had raised four children and worked as a house cleaner — proving, she said, that “it’s never too late.”`\
 https://nytimes.com/2024/12/08/arts/music/angela-alvarez-dead.html
 
-**The Briefing: Fulham 1 Arsenal 1: How much of a blow will VAR decision be? Did wind impact corners?**\
+**The Briefing - Fulham 1 Arsenal 1: How much of a blow will VAR decision be? Did wind impact corners?**\
 `Arsenal were held to a 1-1 draw by Fulham on Sunday afternoon after a late VAR decision ruled out a Bukayo Saka winner`\
 https://nytimes.com/athletic/5974240/2024/12/08/fulham-arsenal-result-report-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/opinion/woman-president-kamala-harris.html
 **Cacio e Pepe, Then Cacio e Pepe Again**\
 `This classic Roman pasta dish is a great thing to cook often, so the technique enters your muscle memory.`\
 https://nytimes.com/2024/12/08/dining/cacio-e-pepe-then-cacio-e-pepe-again.html
-
-**Trump Signals an Aggressive Opening for His New Term**\
-`In his first sit-down broadcast network interview since winning re-election, President-elect Donald J. Trump vowed to pardon Capitol attackers and to try to end automatic citizenship for children of immigrants.`\
-https://nytimes.com/2024/12/08/us/politics/trump-interview-meet-the-press.html
 
