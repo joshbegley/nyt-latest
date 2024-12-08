@@ -1,3 +1,7 @@
+**How will the Playoff handle Georgia QB Carson Beck's injury? Why it's not like FSU**\
+`Florida State was left out of a four-team Playoff last year after losing Jordan Travis. Georgia faces no such concern after Beck's injury.`\
+https://nytimes.com/athletic/5977244/2024/12/07/carson-beck-injury-georgia-playoff-fsu-jordan-travis/
+
 **A work in progress, Blackhawks lose in interim coach Anders Sorensen's debut: Observations**\
 `One practice under Sorensen wasn't going to fix the Blackhawks, and we were all reminded of that in their 4-2 loss to the Jets.`\
 https://nytimes.com/athletic/5977162/2024/12/07/blackhawks-coach-anders-sorensen-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/nyregion/new-jersey-drones.html
 **Orioles, Tyler O'Neill agree to 3-year, $49.5 million deal: Source**\
 `O'Neill's pact with Baltimore contains an opt-out after the 2025 season. He hit 31 home runs in 2024 for the Red Sox.`\
 https://nytimes.com/athletic/5977115/2024/12/07/orioles-tyler-oneill-contract/
-
-**MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
-`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
-https://nytimes.com/athletic/5891633/2024/12/07/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
 
