@@ -1,3 +1,15 @@
+**Inside Dan Ashworth’s shock Man United exit: What irritated Ratcliffe and how it ended**\
+`Ashworth was United sporting director for only five months. After all the attention on securing his services, this was not part of the plan`\
+https://nytimes.com/athletic/5978018/2024/12/08/dan-ashworth-manchester-united-exit-reasons/
+
+**Rooney adds Phelan to Plymouth coaching staff**\
+`Former Manchester United assistant manager Mike Phelan has joined Wayne Rooney’s coaching staff at Plymouth Argyle.`\
+https://nytimes.com/athletic/5978786/2024/12/08/mike-phelan-plymouth-rooney-man-utd/
+
+**Syria’s Army Was Hollowing Out Long Before Rebels’ Advance**\
+`While multiple factors contributed to the fall of President Bashar al-Assad, corrosion inside his own military did not help, analysts say.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-army-assad-fall.html
+
 **Who will win the College Football Playoff? Bruce Feldman fills out his bracket**\
 `Predictions for how the first 12-team College Football Playoff bracket will play out, ending with Oregon beating Georgia for the title.`\
 https://nytimes.com/athletic/5978565/2024/12/08/college-football-playoff-bracket-predictions-picks-feldman/
