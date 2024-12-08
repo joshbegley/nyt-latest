@@ -1,4 +1,8 @@
-**In race for No. 1 NFL Draft pick, there are two clear favorites after Week 14**\
+**Stunned Iranian Officials Try to Distance Their Country From Assad**\
+`A reckoning emerged in Iran on Sunday as officials and commentators swiftly moved to distance the government from a tyrant it had supported.`\
+https://nytimes.com/2024/12/08/world/middleeast/iran-reaction-assad-syria.html
+
+**In race for No. 1 NFL Draft pick, there are two favorites in Week 14**\
 `Jacksonville's win Sunday makes the battle for first overall a two-team race between the New York Giants and Las Vegas Raiders.`\
 https://nytimes.com/athletic/5978876/2024/12/08/race-to-no-1-draft-pick-nfl/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/crosswords/daily-puzzle-2024-12-09.html
 **Alabama snubbed? The Crimson Tide's case for Playoff inclusion**\
 `The SEC and Alabama don’t make for the most sympathetic victims, nor should they be viewed that way. But there's logic in their gripes.`\
 https://nytimes.com/athletic/5979083/2024/12/08/alabama-snubbed-college-football-playoff-smu/
-
-**Barkley, Hurts help Eagles edge Panthers 22-16: Takeaways**\
-`Barkley set the franchise record for most rushing yards in a single season.`\
-https://nytimes.com/athletic/5978177/2024/12/08/panthers-eagles-score-result-takeaways/
 
