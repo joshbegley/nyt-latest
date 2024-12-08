@@ -1,3 +1,7 @@
+**Humdrum Routines**\
+`Elliot Caroll makes her New York Times Crossword debut.`\
+https://nytimes.com/2024/12/08/crosswords/daily-puzzle-2024-12-09.html
+
 **Alabama snubbed? The Crimson Tide's case for Playoff inclusion**\
 `The SEC and Alabama don’t make for the most sympathetic victims, nor should they be viewed that way. But there's logic in their gripes.`\
 https://nytimes.com/athletic/5979083/2024/12/08/alabama-snubbed-college-football-playoff-smu/
