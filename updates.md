@@ -1,3 +1,7 @@
+**A backup QB, of all people, comes to Georgia's rescue — not detriment**\
+`"Gunner is him. He's that guy," said Travis Etienne of the backup quarterback who led Georgia to the SEC title. `\
+https://nytimes.com/athletic/5977359/2024/12/07/georgia-football-sec-championship-gunner-stockton/
+
 **Maple Leafs report cards: Luck and the result not on Toronto's side — again**\
 `For the first time since the end of October, the Maple Leafs lost back-to-back games in regulation.`\
 https://nytimes.com/athletic/5977282/2024/12/07/maple-leafs-penguins-grades-analysis/
