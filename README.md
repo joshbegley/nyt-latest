@@ -1,3 +1,15 @@
+**Biden Says U.S. Conducted Airstrikes Against Islamic State Targets in Syria**\
+`President Biden hailed the fall of President Bashar al-Assad as a “fundamental act of justice” but warned of “a moment of risk and uncertainty.”`\
+https://nytimes.com/2024/12/08/us/politics/biden-syria-assad-isis.html
+
+**Pelicans' Brandon Ingram out indefinitely with high-grade left ankle sprain**\
+`Ingram suffered the injury on his first shot attempt of the second half in Saturday’s loss to the Oklahoma City Thunder.`\
+https://nytimes.com/athletic/5978383/2024/12/08/pelicans-brandon-ingram-ankle-injury/
+
+**Syrians in Lebanon Start to Head Home, With Both Joy and Worry**\
+`Thousands who fled during the country’s civil war celebrated the toppling of the Assad government — and their long-awaited return home — at the Syria-Lebanon border crossing.`\
+https://nytimes.com/2024/12/08/world/middleeast/syrians-return-home.html
+
 **Penn State has the most favorable path through the College Football Playoff**\
 `Penn State earned the No. 6 seed in the College Football Playoff bracket and will host 11-seed SMU for a first-round game.`\
 https://nytimes.com/athletic/5978575/2024/12/08/penn-state-college-football-playoff-path/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5978189/2024/12/08/lewis-hamilton-final-mercedes-ra
 **The Winners and Losers Following the Fall of Assad**\
 `Two cheers for the end of the regime, but be wary of what happens next.`\
 https://nytimes.com/2024/12/08/opinion/assad-syria-winners-losers.html
-
-**The Briefing: Tottenham 3 Chelsea 4: Sancho shines as Spurs crumble and Maresca's side go second in table**\
-`Cucurella's boot drama and yet more injuries for Tottenham. Our writers analyse all the talking points from Chelsea's stunning comeback`\
-https://nytimes.com/athletic/5974241/2024/12/08/tottenham-chelsea-comeback-sancho-palmer/
-
-**In defense of the College Football Playoff's funky seeding format**\
-`Is that the most fair process? Maybe not. Is it better for the sport, providing more compelling storylines? Absolutely.`\
-https://nytimes.com/athletic/5978429/2024/12/08/college-football-playoff-seeding-format-byes/
-
-**College Football Playoff guide: 12-team format, important dates, game locations**\
-`How will the 12 teams be selected? When is the national championship? The answers to all your frequently asked questions about the CFP.`\
-https://nytimes.com/athletic/5726745/2024/12/08/college-football-playoff-2024-format-guide/
 
