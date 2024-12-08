@@ -1,3 +1,19 @@
+**Commerce Dept. Is on the Front Lines of China Policy**\
+`Over the past four years, the department has confronted the challenge of China by restricting key exports, a policy that is likely to continue in the Trump administration.`\
+https://nytimes.com/2024/12/08/us/politics/commerce-dept-is-on-the-front-lines-of-china-policy.html
+
+**How Will Donald Trump’s Comeback Look on the Wall?**\
+`Portraits of the presidents hang outside the boardroom at The New York Times Building.`\
+https://nytimes.com/2024/12/08/insider/presidents-board-room.html
+
+**How I Aged Into the Bad Christmas Movie**\
+`One December morning, a millennial critic awoke to discover that she had been begrudgingly charmed by an onslaught of Hallmark and Netflix holiday films.`\
+https://nytimes.com/2024/12/08/arts/christmas-movies-hallmark-lohan.html
+
+**For Taylor Swift, It’s the End of the ‘Eras’**\
+`A two-year tour that permeated the culture plays one last night in the Canadian city of Vancouver.`\
+https://nytimes.com/2024/12/08/arts/music/for-taylor-swift-its-the-end-of-the-eras.html
+
 **Scrubbing Up for a Peek at the Resuscitated Notre-Dame Cathedral**\
 `Michael Kimmelman, the architecture critic for The New York Times, visited the Paris landmark last summer amid the restoration.`\
 https://nytimes.com/2024/12/08/insider/notre-dame-behind-scenes.html
@@ -5,6 +21,10 @@ https://nytimes.com/2024/12/08/insider/notre-dame-behind-scenes.html
 **From Tarot Cards to Streamlined Design, We Can’t Stop Predicting the Future**\
 `In “A Century of Tomorrows,” Glenn Adamson offers a hurtling history of the art, science and big business of looking ahead.`\
 https://nytimes.com/2024/12/08/books/review/a-century-of-tomorrows-glenn-adamson.html
+
+**NFL Week 14 top storylines: Kirk Cousins returns to Minnesota; another Chiefs AFC West crown?**\
+`Also, can the Browns beat the Steelers again? And with the Bears and 49ers struggling, who wins the Sunday afternoon matchup?`\
+https://nytimes.com/athletic/5972653/2024/12/08/nfl-week-14-top-storylines-kirk-cousins-vikings-chiefs/
 
 **Nick Cave Will Take a Selfie With You, if You Insist**\
 `Back out on the road, and after working through his extreme grief, the longtime rocker is connecting with more fans than ever.`\
@@ -14,27 +34,7 @@ https://nytimes.com/2024/12/08/style/nick-cave-will-take-a-selfie-with-you-if-yo
 `The Nobel-winning author’s husband was a pedophile who targeted her daughter and other children. Why did she stay silent?`\
 https://nytimes.com/2024/12/08/magazine/alice-munro-andrea-skinner-abuse.html
 
-**They Love France. So When Notre-Dame Burned, They Wanted to Help.**\
-`A couple from North Carolina are part of the second-largest group of donors to the huge fund-raising effort to restore the famous cathedral: Americans.`\
-https://nytimes.com/2024/12/08/world/europe/notre-dame-restoration-american-donors.html
-
-**He Was Shot in the Face. Now Ukraine Wants to Draft Him.**\
-`After being left for dead by Russian soldiers, Mykola Kulichenko doesn’t think he should be forced to serve. His experience highlights the vagaries of Ukraine’s aggressive mobilization.`\
-https://nytimes.com/2024/12/08/world/europe/ukraine-army-draft-mykola-kulichenko.html
-
-**Inside the Four-Day Workweek Experiment**\
-`A British group is pushing for more companies to offer their workers shorter hours. Here’s what it looks like for two companies willing to test it out.`\
-https://nytimes.com/2024/12/08/business/four-day-work-week-uk.html
-
-**Did Trump Drain Democrats’ Energy? These Races Will Be the First Test.**\
-`As Democrats try to fire up their fatigued base, two contests for the Virginia legislature will serve as the first measure of partisan enthusiasm since Donald J. Trump’s victory.`\
-https://nytimes.com/2024/12/08/us/politics/virginia-special-elections.html
-
-**A Mural, and the Heroic Efforts to Save It**\
-`When Pfizer moved to a new building in Manhattan last year, it left behind artwork that had hung in its lobby for 63 years. Not everyone was pleased.`\
-https://nytimes.com/2024/12/08/realestate/pfizer-mural-nikos-bel-jon.html
-
-**Top-Gun Navy Pilots Fly at the Extremes. Their Brains May Suffer.**\
-`A confidential Navy program is studying whether intense fighter jet operations can cause devastating brain injuries in flight crews.`\
-https://nytimes.com/2024/12/08/us/navy-pilot-brain-injury-topgun.html
+**MLS Cup gives Galaxy sentimental triumph - and puts a jersey in the spotlight**\
+`Raul Vargas has been the LA Galaxy's equipment manager for 29 years. Saturday's MLS Cup final might have been his proudest hour`\
+https://nytimes.com/athletic/5977529/2024/12/08/mls-cup-gives-galaxy-sentimental-triumph-and-puts-a-jersey-in-the-spotlight/
 
