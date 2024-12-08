@@ -1,3 +1,11 @@
+**Alabama snubbed? The Crimson Tide's case for Playoff inclusion**\
+`The SEC and Alabama don’t make for the most sympathetic victims, nor should they be viewed that way. But there's logic in their gripes.`\
+https://nytimes.com/athletic/5979083/2024/12/08/alabama-snubbed-college-football-playoff-smu/
+
+**Rangers lament breakdowns in collapse against Kraken: 3 takeaways**\
+`New York allowed three goals in a disastrous six-minute stretch, falling 7-5 to Seattle and dropping to 2-7-0 in its past nine games.`\
+https://nytimes.com/athletic/5979062/2024/12/08/rangers-kraken-loss-nhl-analysis/
+
 **Dolphins keep playoff hopes alive with 32-26 OT win vs. Jets: Takeaways**\
 `Miami picked up its fourth win in five weeks after a 2-6 start, while the Jets extended the longest playoff drought in men's pro sports. `\
 https://nytimes.com/athletic/5978160/2024/12/08/jets-dolphins-score-result-takeaways/
