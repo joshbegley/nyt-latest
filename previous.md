@@ -1,3 +1,7 @@
+**Cade Cunningham's MSG triple-double grows All-Star case as Pistons down Knicks**\
+`Cade Cunningham is amid the best stretch of his professional career and making a case for his first All-Star bid.`\
+https://nytimes.com/athletic/5977410/2024/12/08/cade-cunningham-triple-double-pistons-knicks-nba/
+
 **Wrexham's outrageous winner does not mask goalscoring struggles away from home**\
 `With their third away win of the season in the league, Wrexham's performance at Burton was a step in the right direction`\
 https://nytimes.com/athletic/5974319/2024/12/08/wrexham-corner-away-form/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/opinion/tennessee-trans-supreme-court-case.html
 **A New Movie Dares to Suggest that Motherhood Might Be (Gasp) Fun**\
 `“Nightbitch” seems like a horror film about the transformations demanded by motherhood, but its underlying message is much more radical than that.`\
 https://nytimes.com/2024/12/08/opinion/nightbitch-amy-adams-motherhood.html
-
-**Climate Activists Need to Radically Change Their Approach Under Trump**\
-`Climate purity is a recipe for failure.`\
-https://nytimes.com/2024/12/08/opinion/climate-clean-energy-trump.html
 
