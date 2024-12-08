@@ -1,3 +1,7 @@
+**As Syrian Rebels Take Charge, Freeing Prisoners of Assad Is a Priority**\
+`Many people want to determine the fates of loved ones who disappeared into a notorious military prison that was a symbol of human rights abuses under the rule of President Bashar al-Assad.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-prisons-sednaya-assad.html
+
 **AP Top 25: Alabama 1 point ahead of SMU in poll**\
 `Oregon, Georgia, Notre Dame, Texas and Penn State make up the top five of the AP poll, while Alabama moved past SMU.`\
 https://nytimes.com/athletic/5978100/2024/12/08/ap-top-25-rankings-playoff-alabama-smu/
