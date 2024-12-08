@@ -1,3 +1,7 @@
+**How will the Playoff handle Georgia QB Carson Beck's injury? Why it's not like FSU**\
+`Florida State was left out of a four-team Playoff last year after losing Jordan Travis. Georgia faces no such concern after Beck's injury.`\
+https://nytimes.com/athletic/5977244/2024/12/07/carson-beck-injury-georgia-playoff-fsu-jordan-travis/
+
 **A work in progress, Blackhawks lose in interim coach Anders Sorensen's debut: Observations**\
 `One practice under Sorensen wasn't going to fix the Blackhawks, and we were all reminded of that in their 4-2 loss to the Jets.`\
 https://nytimes.com/athletic/5977162/2024/12/07/blackhawks-coach-anders-sorensen-debut/
