@@ -1,3 +1,11 @@
+**Wrexham's outrageous winner does not mask goalscoring struggles away from home**\
+`With their third away win of the season in the league, Wrexham's performance at Burton was a step in the right direction`\
+https://nytimes.com/athletic/5974319/2024/12/08/wrexham-corner-away-form/
+
+**After Failed Martial Law, South Koreans Ask: Who’s in Charge?**\
+`President Yoon Suk Yeol’s ill-fated bid to impose martial law has created a power vacuum in his governing camp, pushing the country deeper into what analysts call a constitutional crisis.`\
+https://nytimes.com/2024/12/08/world/asia/south-korea-martial-law-yoon.html
+
 **A President Rejected by Voters Eight Years Ago Wins Election Again in Ghana**\
 `John Dramani Mahama, who served as president from 2012 to 2017, is set to return to office after his main opponent, Mahamudu Bawumia, conceded defeat.`\
 https://nytimes.com/2024/12/08/world/africa/ghana-presidential-election.html
