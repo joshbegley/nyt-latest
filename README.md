@@ -15,7 +15,7 @@ https://nytimes.com/2024/12/08/world/middleeast/israel-demilitarized-zone-syria.
 https://nytimes.com/athletic/5979022/2024/12/08/nfl-week-14-scores-takeaways-kirk-cousins-falcons-aaron-rodgers/
 
 **Rangers lament breakdowns in collapse against Kraken: 3 takeaways**\
-`New York allowed three goals in a disastrous six-minute stretch and eventually fell 7-5, dropping to 2-7-0 in its past nine games.`\
+`New York allowed three goals in a disastrous six-minute stretch, falling 7-5 to Seattle and dropping to 2-7-0 in its past nine games.`\
 https://nytimes.com/athletic/5979062/2024/12/08/rangers-kraken-loss-nhl-analysis/
 
 **Dolphins keep playoff hopes alive with 32-26 OT win vs. Jets: Takeaways**\
