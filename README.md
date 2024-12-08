@@ -1,3 +1,7 @@
+**New Image Shows Suspect in C.E.O. Shooting in Back of Taxi**\
+`The New York Police Department released two images as the manhunt for the gunman who fatally shot Brian Thompson, chief executive of UnitedHealthcare, continued.`\
+https://nytimes.com/2024/12/08/nyregion/uhc-ceo-shooting-suspect-photos.html
+
 **Lindsey Vonn, at 40, returns to competitive skiing, eyeing World Cup races**\
 `Lindsey Vonn's unlikely bid to get back to the top of skiing started this weekend, with four races in Colorado she used as "training."`\
 https://nytimes.com/athletic/5976478/2024/12/08/lindsey-vonn-returns-skiing-downhill-world-cup-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977118/2024/12/08/sf-giants-willy-adames-signing-a
 **Will We Ever Elect a Woman as President?**\
 `Readers react to a column by Gail Collins. Also: Advice for immigrants; presidential immunity; words of the year.`\
 https://nytimes.com/2024/12/08/opinion/woman-president-kamala-harris.html
-
-**Cacio e Pepe, Then Cacio e Pepe Again**\
-`This classic Roman pasta dish is a great thing to cook often, so the technique enters your muscle memory.`\
-https://nytimes.com/2024/12/08/dining/cacio-e-pepe-then-cacio-e-pepe-again.html
 
