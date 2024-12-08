@@ -1,3 +1,7 @@
+**Navarro: Skipping the ACC title game might have been the smarter play for SMU**\
+`After loss to Clemson, the Mustangs are hoping the CFP committee still thinks they deserve an at-large spot. The ACC h reason to be worried.`\
+https://nytimes.com/athletic/5977425/2024/12/08/smu-clemson-acc-championship-college-football-playoff/
+
 **'A Celtic for life': Marcus Smart feels the love, shows off his son in return to Boston**\
 `As much as Smart gave the Celtics on the court, his connection with the city of Boston extended far beyond his athletic accomplishments.`\
 https://nytimes.com/athletic/5977435/2024/12/08/marcus-smart-celtics-grizzlies-son/
