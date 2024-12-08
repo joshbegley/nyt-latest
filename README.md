@@ -1,3 +1,7 @@
+**Rangers lament breakdowns in collapse against Kraken: 3 takeaways**\
+`New York allowed three goals in a disastrous six-minute stretch and eventually fell 7-5, dropping to 2-7-0 in its past nine games.`\
+https://nytimes.com/athletic/5979062/2024/12/08/rangers-kraken-loss-nhl-analysis/
+
 **Dolphins keep playoff hopes alive with 32-26 OT win vs. Jets: Takeaways**\
 `Miami picks up its fourth win in five weeks after a 2-6 start, while the Jets extend longest playoff drought in men's professional sports. `\
 https://nytimes.com/athletic/5978160/2024/12/08/jets-dolphins-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/us/politics/liz-cheney-donald-trump.html
 **With Assad Gone, a Brutal Dictatorship Ends. But the New Risks Are Huge.**\
 `The overthrow of the Assad government could mean Russia’s bases in Syria are closed and Iran’s pathway to Hezbollah is cut off. Now Iran, newly vulnerable, will have to decide between negotiation and the bomb.`\
 https://nytimes.com/2024/12/08/us/politics/syria-assad-iran-risks.html
-
-**Kirk Herbstreit's son commits to Michigan to play QB**\
-`Chase Herbstreit, a quarterback in the Class of 2025 and the son of ESPN analyst Kirk Herbstreit, has committed to Michigan.`\
-https://nytimes.com/athletic/5978975/2024/12/08/chase-herbstreit-michigan-commitment-kirk-son/
 
