@@ -1,3 +1,15 @@
+**The Briefing: Girona 0 Real Madrid 3 - Bellingham shines, Mbappe and Guler ease the pressure**\
+`Madrid are one victory from going top of La Liga and with Jude Bellingham in fine form there are plenty of reasons to be positive`\
+https://nytimes.com/athletic/5977501/2024/12/08/real-madrid-girona-jude-bellingham/
+
+**Caitlin Clark trading card sells for $234,850, shattering previous record**\
+`Clark keeps breaking records, even in the offseason. `\
+https://nytimes.com/athletic/5977776/2024/12/08/caitlin-clark-card-record-wnba/
+
+**College Football Playoff 2024 projections: SMU favored over Alabama for final spot**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-projections-odds/
+
 **Who Is the Leader of Syria’s Rebel Offensive?**\
 `Mr. al-Jolani, 42, spearheaded a lightning assault that led to the fall of President Bashar al-Assad.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-hts-jolani.html
