@@ -1,3 +1,7 @@
+**Syrians Celebrate as Rebel Forces Take Control of Damascus**\
+`Gunfire and cheering erupted in the Syrian capital after rebels pushed out the military while President Bashar al-Assad was nowhere to be seen.`\
+https://nytimes.com/video/world/middleeast/100000009865736/syria-damascus-assad-rebels.html
+
 **How seriously should we take Penn State after hanging with Oregon in Big Ten title match?**\
 `After the loss, there was no politicking from Penn State’s players about what seed they want when the CFP bracket is revealed.`\
 https://nytimes.com/athletic/5977571/2024/12/08/penn-state-oregon-big-ten-championship-college-football/
