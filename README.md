@@ -1,3 +1,7 @@
+**Giants' record-setting Willy Adames deal shows Buster Posey means business**\
+`In signing Adames, Posey did as a team president what he did as a player: cut through the noise and find the best solution to a problem.`\
+https://nytimes.com/athletic/5977121/2024/12/07/sf-giants-willy-adames-signing-buster-posey/
+
 **Unidentified Drones Light Up New Jersey’s Skies, Baffling Residents**\
 `People across the state have reported seeing scores of large, low-flying objects in recent weeks. Officials haven’t said where they’re coming from, or why they’re here.`\
 https://nytimes.com/2024/12/07/nyregion/new-jersey-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/us/politics/trump-administration-loyalty-test.htm
 **Sabres fans bring inflatable palm trees, chant 'Fire Kevyn!' as Buffalo loses sixth straight**\
 `As the Sabres’ winless streak grew to six games Saturday against Utah, you could hear the sounds of a fan base at its wits’ end.`\
 https://nytimes.com/athletic/5976919/2024/12/07/sabres-utah-kevyn-adams-palm-trees/
-
-**Notre-Dame Cathedral in Paris Reopens After Five-Year Renovation**\
-`World leaders and global dignitaries celebrated the cathedral’s reconstruction following a fire that devoured its roof in 2019.`\
-https://nytimes.com/video/world/europe/100000009865459/notre-dame-cathedral-paris.html
 
