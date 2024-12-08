@@ -1,3 +1,7 @@
+**Lando Norris captures F1 constructors' championship for McLaren at Abu Dhabi**\
+`Opening-lap chaos required a near-perfect race from Norris, who delivered McLaren its first team title in 26 years. `\
+https://nytimes.com/athletic/5977870/2024/12/08/lando-norris-mclaren-win-2024-f1-championship-abu-dhabi-gp/
+
 **Until Saturday: Who will make the Playoff after a wild weekend?**\
 `Welcome to Until Saturday, the five-star college football newsletter: Who will make the College Football Playoff field?`\
 https://nytimes.com/athletic/5977672/2024/12/08/college-football-playoff-field-until-saturday/
