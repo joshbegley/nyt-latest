@@ -1,3 +1,15 @@
+**Initial thoughts on Ohio State's tough draw in College Football Playoff field**\
+`The Buckeyes earned the No. 8 seed and will host No. 9 seed Tennessee in the first round. Can Ohio State make a run?`\
+https://nytimes.com/athletic/5978976/2024/12/08/ohio-state-college-football-playoff-path/
+
+**Russell Wilson, Steelers shake off Browns 27-14: Takeaways**\
+`Third quarter touchdowns and fourth quarter takeaways seal the win for Pittsburgh.`\
+https://nytimes.com/athletic/5978186/2024/12/08/browns-steelers-score-result-takeaways/
+
+**FA to investigate object-throwing by Spurs fans during Chelsea game**\
+`The FA will investigate after objects were thrown onto the pitch during Tottenham Hotspur’s 4-3 home defeat by Chelsea on Sunday.`\
+https://nytimes.com/athletic/5978951/2024/12/08/tottenham-objects-chelsea-fa/
+
 **Threatened With Jail, Cheney Condemns Trump’s ‘Assault on the Rule of Law’**\
 `Liz Cheney, the former Republican representative, said President-elect Donald J. Trump “lied about” the bipartisan House committee that investigated his role in the Jan. 6, 2021, attack.`\
 https://nytimes.com/2024/12/08/us/politics/liz-cheney-donald-trump.html
@@ -15,7 +27,7 @@ https://nytimes.com/athletic/5978975/2024/12/08/chase-herbstreit-michigan-commit
 https://nytimes.com/2024/12/08/us/linda-mcmahon-sexual-abuse-lawsuit.html
 
 **Buccaneers take NFC South lead with 28-13 win over Raiders: Takeaways**\
-`For the first time in his career, Rachaad White scores a rushing touchdown and receiving touchdown in the same game.`\
+`For the first time in his career, Rachaad White scored a rushing touchdown and receiving touchdown in the same game.`\
 https://nytimes.com/athletic/5978204/2024/12/08/raiders-buccaneers-score-result-takeaways/
 
 **With Carson Beck injured, Georgia may turn to Gunner Stockton for Playoff**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5978857/2024/12/08/carson-beck-injury-georgia-footb
 **Biden Says U.S. Conducted Airstrikes Against ISIS in Syria**\
 `President Biden hailed the fall of President Bashar al-Assad’s government and said U.S. forces took action to wipe out pockets of the Islamic State on Sunday.`\
 https://nytimes.com/video/us/100000009866432/biden-syria-assad.html
-
-**Government soldiers put up little resistance when the rebels stormed Damascus, video shows.**\
-`By Raja Abdulrahim, Nailah Morgan and Aritz Parra`\
-https://nytimes.com/live/2024/12/08/world/syria-war-damascus/government-soldiers-put-up-little-resistance-when-the-rebels-stormed-damascus-video-shows
-
-**Marvin Laird, Musical Presence on and Off Broadway, Dies at 85**\
-`He conducted Broadway shows and worked with Bernadette Peters. But he was probably best known for writing the music for the darkly comic “Ruthless!”`\
-https://nytimes.com/2024/12/08/arts/music/marvin-laird-dead.html
-
-**Raiders QB Aidan O'Connell carted off with knee injury**\
-`Desmond Ridder took over as Raiders quarterback with O'Connell, a second-year player, ruled out. `\
-https://nytimes.com/athletic/5978823/2024/12/08/aidan-oconnell-knee-injury-raiders/
 

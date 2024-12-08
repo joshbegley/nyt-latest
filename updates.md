@@ -1,3 +1,19 @@
+**Initial thoughts on Ohio State's tough draw in College Football Playoff field**\
+`The Buckeyes earned the No. 8 seed and will host No. 9 seed Tennessee in the first round. Can Ohio State make a run?`\
+https://nytimes.com/athletic/5978976/2024/12/08/ohio-state-college-football-playoff-path/
+
+**Russell Wilson, Steelers shake off Browns 27-14: Takeaways**\
+`Third quarter touchdowns and fourth quarter takeaways seal the win for Pittsburgh.`\
+https://nytimes.com/athletic/5978186/2024/12/08/browns-steelers-score-result-takeaways/
+
+**FA to investigate object-throwing by Spurs fans during Chelsea game**\
+`The FA will investigate after objects were thrown onto the pitch during Tottenham Hotspur’s 4-3 home defeat by Chelsea on Sunday.`\
+https://nytimes.com/athletic/5978951/2024/12/08/tottenham-objects-chelsea-fa/
+
+**Buccaneers take NFC South lead with 28-13 win over Raiders: Takeaways**\
+`For the first time in his career, Rachaad White scored a rushing touchdown and receiving touchdown in the same game.`\
+https://nytimes.com/athletic/5978204/2024/12/08/raiders-buccaneers-score-result-takeaways/
+
 **Threatened With Jail, Cheney Condemns Trump’s ‘Assault on the Rule of Law’**\
 `Liz Cheney, the former Republican representative, said President-elect Donald J. Trump “lied about” the bipartisan House committee that investigated his role in the Jan. 6, 2021, attack.`\
 https://nytimes.com/2024/12/08/us/politics/liz-cheney-donald-trump.html
