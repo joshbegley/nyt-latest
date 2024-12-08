@@ -1,3 +1,7 @@
+**'A Celtic for life': Marcus Smart feels the love, shows off his son in return to Boston**\
+`As much as Smart gave the Celtics on the court, his connection with the city of Boston extended far beyond his athletic accomplishments.`\
+https://nytimes.com/athletic/5977435/2024/12/08/marcus-smart-celtics-grizzlies-son/
+
 **Which Marco Rubio Will Serve President Trump?**\
 `Rubio, the choice for secretary of state, has evolved from a hawkish optimist to a more inward-looking, antiglobalist pessimist.`\
 https://nytimes.com/2024/12/08/opinion/marco-rubio-secretary-of-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976385/2024/12/08/club-world-cup-dazn-1billion-bro
 **Premier League games cost millions to stage - what happens when they are called off?**\
 `The final Premier League derby between Everton and Liverpool fell victim to the weather. But some good came of the postponement`\
 https://nytimes.com/athletic/5976287/2024/12/08/everton-liverpool-merseyside-derby-postponed-storm-darragh/
-
-**Tottenham Hotspur vs Chelsea: Mood at clubs, key players, aims for season and prediction**\
-`Tottenham and Chelsea face one another in the Premier League on Sunday afternoon`\
-https://nytimes.com/athletic/5974529/2024/12/08/tottenham-hotspur-chelsea-preview-premier-league/
 
