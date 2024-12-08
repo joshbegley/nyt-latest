@@ -1,3 +1,7 @@
+**What’s Next for Syria After the Collapse of Assad’s Government?**\
+`Predicting Syria’s future is challenging, as the government’s sudden demise took many people who have watched the region for years by surprise.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-assad-rebels-what-next.html
+
 **Lewis Hamilton ends Mercedes F1 career with fight, emotion: ‘I've got no more tears'**\
 `F1's all-time winningest driver delivered a memorable comeback to sign off at Mercedes in Abu Dhabi.`\
 https://nytimes.com/athletic/5978189/2024/12/08/lewis-hamilton-final-mercedes-race-f1-abu-dhabi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978174/2024/12/08/college-football-playoff-bracket
 **College Football Playoff 2024 projections: Who are the national championship favorites?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-projections-odds/
-
-**Fact-Checking Trump on ‘Meet the Press’: Tariffs, Immigration and More**\
-`The president-elect repeated several false and inaccurate claims on a range of topics that were staples of his 2024 campaign.`\
-https://nytimes.com/2024/12/08/us/politics/trump-nbc-interview-fact-check.html
 
