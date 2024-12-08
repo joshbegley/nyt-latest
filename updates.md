@@ -1,3 +1,7 @@
+**Threatened With Jail, Cheney Condemns Trump’s ‘Assault on the Rule of Law’**\
+`Liz Cheney, the former Republican representative, said President-elect Donald J. Trump “lied about” the bipartisan House committee that investigated his role in the Jan. 6, 2021, attack.`\
+https://nytimes.com/2024/12/08/us/politics/liz-cheney-donald-trump.html
+
 **Threatened With Jail, Cheney Decries Trump’s ‘Assault on the Rule of Law’**\
 `Liz Cheney, the former Republican representative, said President-elect Donald J. Trump “lied about” the bipartisan House committee that investigated his role in the Jan. 6, 2021, attack.`\
 https://nytimes.com/2024/12/08/us/politics/liz-cheney-donald-trump.html
