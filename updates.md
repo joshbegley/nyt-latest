@@ -1,3 +1,15 @@
+**AP Top 25: Alabama 1 point ahead of SMU in poll**\
+`Oregon, Georgia, Notre Dame, Texas and Penn State make up the top five of the AP poll, while Alabama moved past SMU.`\
+https://nytimes.com/athletic/5978100/2024/12/08/ap-top-25-rankings-playoff-alabama-smu/
+
+**Angela Alvarez, Great-Grandmother Who Won a Latin Grammy, Dies at 97**\
+`Her only album made her a media star after she had raised four children and worked as a house cleaner — proving, she said, that “it’s never too late.”`\
+https://nytimes.com/2024/12/08/arts/music/angela-alvarez-dead.html
+
+**The Briefing: Fulham 1 Arsenal 1: How much of a blow will VAR decision be? Did wind impact corners?**\
+`Arsenal were held to a 1-1 draw by Fulham on Sunday afternoon after a late VAR decision ruled out a Bukayo Saka winner`\
+https://nytimes.com/athletic/5974240/2024/12/08/fulham-arsenal-result-report-analysis/
+
 **The Briefing: Fulham 1 Arsenal 1: How much of a blow will VAR decision be? Did wind impact corners?**\
 `Arsenal were held to a 1-1 draw by Fulham on Sunday afternoon after a late VAR decision ruled out a Bukayo Saka goal`\
 https://nytimes.com/athletic/5974240/2024/12/08/fulham-arsenal-result-report-analysis/
