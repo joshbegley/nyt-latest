@@ -1,3 +1,15 @@
+**Lindsey Vonn, at 40, returns to competitive skiing, eyeing World Cup races**\
+`Lindsey Vonn's unlikely bid to get back to the top of skiing started this weekend, with four races in Colorado she used as "training."`\
+https://nytimes.com/athletic/5976478/2024/12/08/lindsey-vonn-returns-skiing-downhill-world-cup-olympics/
+
+**With Assad’s Fall, Iran’s ‘Axis of Resistance’ Unravels**\
+`Tehran’s main regional allies are weakened or collapsing: Syria’s president, Bashar al-Assad, has fled his country, Hezbollah is battered by conflict with Israel, and Hamas is still at war.`\
+https://nytimes.com/2024/12/08/world/middleeast/irans-syria-axis-of-resistance.html
+
+**Records Seized by Israel Show Hamas Presence in U.N. Schools**\
+`While Israel asserts that the United Nations has tried to minimize the problem, the global organization says Israeli officials are waging an unfair campaign to discredit it.`\
+https://nytimes.com/2024/12/08/world/middleeast/hamas-unrwa-schools.html
+
 **As Syrian Rebels Take Charge, Freeing Prisoners of Assad Is a Priority**\
 `Many people want to determine the fates of loved ones who disappeared into a notorious military prison that was a symbol of human rights abuses under the rule of President Bashar al-Assad.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-prisons-sednaya-assad.html
@@ -10,7 +22,7 @@ https://nytimes.com/athletic/5978100/2024/12/08/ap-top-25-rankings-playoff-alaba
 `Her only album made her a media star after she had raised four children and worked as a house cleaner — proving, she said, that “it’s never too late.”`\
 https://nytimes.com/2024/12/08/arts/music/angela-alvarez-dead.html
 
-**The Briefing: Fulham 1 Arsenal 1: How much of a blow will VAR decision be? Did wind impact corners?**\
+**The Briefing - Fulham 1 Arsenal 1: How much of a blow will VAR decision be? Did wind impact corners?**\
 `Arsenal were held to a 1-1 draw by Fulham on Sunday afternoon after a late VAR decision ruled out a Bukayo Saka winner`\
 https://nytimes.com/athletic/5974240/2024/12/08/fulham-arsenal-result-report-analysis/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/08/opinion/woman-president-kamala-harris.html
 **Cacio e Pepe, Then Cacio e Pepe Again**\
 `This classic Roman pasta dish is a great thing to cook often, so the technique enters your muscle memory.`\
 https://nytimes.com/2024/12/08/dining/cacio-e-pepe-then-cacio-e-pepe-again.html
-
-**Trump Signals an Aggressive Opening for His New Term**\
-`In his first sit-down broadcast network interview since winning re-election, President-elect Donald J. Trump vowed to pardon Capitol attackers and to try to end automatic citizenship for children of immigrants.`\
-https://nytimes.com/2024/12/08/us/politics/trump-interview-meet-the-press.html
-
-**The Pulse: Hours away from a CFP decision**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/5978114/2024/12/08/college-football-playoff-bracket-the-pulse/
-
-**43,000 Ukrainian Soldiers Killed Since Russia Invaded, Zelensky Says**\
-`The tally differs sharply from estimates by U.S. officials and military analysts, who have said the number is closer to 70,000.`\
-https://nytimes.com/2024/12/08/world/europe/ukrainian-war-dead.html
 
