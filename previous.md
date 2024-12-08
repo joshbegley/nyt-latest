@@ -1,3 +1,7 @@
+**Oregon goes unbeaten (with swagger) in first Big Ten season. And the Ducks aren't finished**\
+`With victory over Penn State, Oregon secured the No. 1 spot in the College Football Playoff and a national quarterfinal in the Rose Bowl,`\
+https://nytimes.com/athletic/5977544/2024/12/08/oregon-penn-state-big-ten-championship/
+
 **The Glorious, Behind-the-Scenes Mess That Is Cookie Week**\
 `A weeklong celebration of cookies takes months of planning and baking, not to mention various photo and video shoots.`\
 https://nytimes.com/2024/12/08/insider/behind-the-scenes-times-cookie-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5915859/2024/12/08/college-football-bowl-projection
 **Clemson's improbable ACC championship sets up Playoff berth: 'Anything can happen'**\
 `The Tigers beat SMU 34-31 for the ACC championship and won their way into the College Football Playoff.`\
 https://nytimes.com/athletic/5977530/2024/12/08/clemson-acc-championship-smu-college-football/
-
-**Here are the latest developments.**\
-`By Raja Abdulrahim, Hwaida Saad and Farnaz Fassihi`\
-https://nytimes.com/live/2024/12/08/world/syria-war-damascus/here-are-the-latest-developments
 
