@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Luck and the result not on Toronto's side — again**\
+`For the first time since the end of October, the Maple Leafs lost back-to-back games in regulation.`\
+https://nytimes.com/athletic/5977282/2024/12/07/maple-leafs-penguins-grades-analysis/
+
 **Conference title games make no sense in the 12-team College Football Playoff era**\
 `Even Kirby Smart admitted that this year's SEC title game lacked the "same juice and atmosphere" as in previous seasons. `\
 https://nytimes.com/athletic/5977321/2024/12/07/sec-championship-game-georgia-texas-carson-beck/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977162/2024/12/07/blackhawks-coach-anders-sorensen
 **Charlotte hiring Ohio coach Tim Albin, who led Bobcats to MAC crown: Source**\
 `Albin would take over a young Charlotte program that began play in 2013 and has reached one bowl game in its history.`\
 https://nytimes.com/athletic/5977202/2024/12/07/tim-albin-charlotte-coach-ohio-bobcats/
-
-**College Football Playoff 2024 projections: Georgia vaults to No. 2 seed after SEC title**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-projections-odds/
 

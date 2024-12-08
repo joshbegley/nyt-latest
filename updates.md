@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Luck and the result not on Toronto's side — again**\
+`For the first time since the end of October, the Maple Leafs lost back-to-back games in regulation.`\
+https://nytimes.com/athletic/5977282/2024/12/07/maple-leafs-penguins-grades-analysis/
+
 **Conference title games make no sense in the 12-team College Football Playoff era**\
 `Even Kirby Smart admitted that this year's SEC title game lacked the "same juice and atmosphere" as in previous seasons. `\
 https://nytimes.com/athletic/5977321/2024/12/07/sec-championship-game-georgia-texas-carson-beck/
