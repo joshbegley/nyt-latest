@@ -1,3 +1,7 @@
+**Family Renews Appeal to Find U.S. Journalist Missing in Syria**\
+`Relatives of Austin Tice, who disappeared in 2012 near the Syrian capital, said they believe that he is alive.`\
+https://nytimes.com/2024/12/08/world/middleeast/austin-tice-syria-journalist.html
+
 **Chiung Yao, Influential Taiwanese Romance Novelist, Dies at 86**\
 `One of the most successful writers in the Chinese-speaking world, she filled her plots with twists and turns, but love always transcended all.`\
 https://nytimes.com/2024/12/08/books/chiung-yao-dead.html
