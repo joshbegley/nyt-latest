@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 3 Chelsea 4: Sancho shines as Spurs crumble and Maresca's side go second in table**\
+`Cucurella's boot drama and yet more injuries for Tottenham. Our writers analyse all the talking points from Chelsea's stunning comeback`\
+https://nytimes.com/athletic/5974241/2024/12/08/tottenham-chelsea-comeback-sancho-palmer/
+
 **In defense of the College Football Playoff's funky seeding format**\
 `Is that the most fair process? Maybe not. Is it better for the sport, providing more compelling storylines? Absolutely.`\
 https://nytimes.com/athletic/5978429/2024/12/08/college-football-playoff-seeding-format-byes/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syria-rebels-assad-
 **Nations and Leaders React to Toppling of Syria Regime**\
 `The U.N. special envoy called it a “watershed moment” on Sunday as world leaders reckoned with the news.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-global-reactions-world-leaders.html
-
-**Syrians Also Have Israel to Thank for Their Liberation**\
-`Israel’s actions diminished Assad’s ability to resist the rebels.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/syria-liberation-israel-assad
 
