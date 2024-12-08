@@ -1,3 +1,7 @@
+**In race for No. 1 NFL draft pick, there are two clear favorites after Week 14**\
+`Jacksonville's win Sunday makes the battle for first overall a two-team race between the New York Giants and Las Vegas Raiders.`\
+https://nytimes.com/athletic/5978876/2024/12/08/race-to-no-1-draft-pick-nfl/
+
 **Syrians in New York City celebrate the fall of Assad.**\
 `By Sabir Hasko`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syrians-in-new-york-city-celebrate-the-fall-of-assad
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5979083/2024/12/08/alabama-snubbed-college-football
 **Barkley, Hurts help Eagles edge Panthers 22-16: Takeaways**\
 `Barkley set the franchise record for most rushing yards in a single season.`\
 https://nytimes.com/athletic/5978177/2024/12/08/panthers-eagles-score-result-takeaways/
-
-**Israeli Ground Forces Cross into Syria, Officials Say**\
-`Israeli ground forces have overtly crossed into Syrian territory for the first time since the 1973 October War, passing the demilitarized border zone, two Israeli officials said.`\
-https://nytimes.com/2024/12/08/world/middleeast/israel-demilitarized-zone-syria.html
 
