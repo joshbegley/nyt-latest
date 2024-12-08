@@ -1,3 +1,7 @@
+**The Connections Companion No. 547**\
+`Scroll down for hints and conversation about the puzzle for Monday, Dec. 9, 2024.`\
+https://nytimes.com/2024/12/08/crosswords/connections-companion-547.html
+
 **Inside Dan Ashworth’s shock Man United exit: What irritated Ratcliffe and how it ended**\
 `Ashworth was United sporting director for only five months. After all the attention on securing his services, this was not part of the plan`\
 https://nytimes.com/athletic/5978018/2024/12/08/dan-ashworth-manchester-united-exit-reasons/
