@@ -1,3 +1,7 @@
+**Lewis Hamilton ends Mercedes F1 career with fight, emotion: ‘I've got no more tears'**\
+`F1's all-time winningest driver delivered a memorable comeback to sign off at Mercedes in Abu Dhabi.`\
+https://nytimes.com/athletic/5978189/2024/12/08/lewis-hamilton-final-mercedes-race-f1-abu-dhabi/
+
 **The Winners and Losers Following the Fall of Assad**\
 `Two cheers for the end of the regime, but be wary of what happens next.`\
 https://nytimes.com/2024/12/08/opinion/assad-syria-winners-losers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-project
 **Fact-Checking Trump on ‘Meet the Press’: Tariffs, Immigration and More**\
 `The president-elect repeated several false and inaccurate claims on a range of topics that were staples of his 2024 campaign.`\
 https://nytimes.com/2024/12/08/us/politics/trump-nbc-interview-fact-check.html
-
-**Aleppo gives a hint of what is to come in Syria, at least in the immediate future.**\
-`The northern city of Aleppo, which rebels captured on Nov. 30 just fours days into their surprise offensive, suggests that big changes won’t come immediately.`\
-https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syria-rebels-assad-aleppo
 
