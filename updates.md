@@ -1,3 +1,11 @@
+**College Football Playoff 2024 projections: Georgia vaults to No. 2 seed after SEC title**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-projections-odds/
+
+**Blackhawks goalie Petr Mrázek to miss time after lower-body injury**\
+`Mrázek left Saturday's game against the Jets after making an awkward save along the post in the first period and did not return.`\
+https://nytimes.com/athletic/5977129/2024/12/07/blackhawks-petr-mrazek-injury/
+
 **Miho Nakayama, Japanese Music and Movie Star, Dies at 54**\
 `A top-selling pop singer as a teenager in the 1980s, she also had an award-winning career as a dramatic actress.`\
 https://nytimes.com/2024/12/07/arts/music/miho-nakayama-dead.html
