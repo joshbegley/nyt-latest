@@ -1,3 +1,7 @@
+**Five Quick Takes on Regime Change in Syria**\
+`Assad’s fall creates vast dangers and opportunities that everyone in the region will seize upon.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/friedman-syria-iran-future
+
 **The Connections Companion No. 547**\
 `Scroll down for hints and conversation about the puzzle for Monday, Dec. 9, 2024.`\
 https://nytimes.com/2024/12/08/crosswords/connections-companion-547.html
