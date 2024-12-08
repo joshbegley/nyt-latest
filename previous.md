@@ -1,4 +1,4 @@
-**College Football Playoff first-round odds: Home teams favored by at least a TD**\
+**College Football Playoff odds: Home teams open as big favorites in first round**\
 `The home teams are the betting favorites in all four first-round games of the College Football Playoff.`\
 https://nytimes.com/athletic/5978321/2024/12/08/college-football-playoff-betting-odds-first-round/
 
