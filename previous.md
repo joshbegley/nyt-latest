@@ -1,3 +1,7 @@
+**Bogged Down in Ukraine, Russia Pays a Price in Syria**\
+`With the fall of President Bashar al-Assad of Syria, Vladimir V. Putin has suffered one of the biggest geopolitical setbacks of his quarter-century in power.`\
+https://nytimes.com/2024/12/08/world/europe/russia-syria-assad-putin.html
+
 **CFP bracket revealed: Oregon No. 1 overall, SMU gets in over Alabama**\
 `Oregon, Georgia, Boise State and Arizona State claimed first-round byes to the quarterfinals. `\
 https://nytimes.com/athletic/5978174/2024/12/08/college-football-playoff-bracket-field-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/08/world/syria-war-damascus/our-hearts-are-danc
 **New Image Shows Suspect in C.E.O. Shooting in Back of Taxi**\
 `The New York Police Department released two images as the manhunt for the gunman who fatally shot Brian Thompson, chief executive of UnitedHealthcare, continued.`\
 https://nytimes.com/2024/12/08/nyregion/uhc-ceo-shooting-suspect-photos.html
-
-**Lindsey Vonn, at 40, returns to competitive skiing, eyeing World Cup races**\
-`Lindsey Vonn's unlikely bid to get back to the top of skiing started this weekend, with four races in Colorado she used as "training."`\
-https://nytimes.com/athletic/5976478/2024/12/08/lindsey-vonn-returns-skiing-downhill-world-cup-olympics/
 

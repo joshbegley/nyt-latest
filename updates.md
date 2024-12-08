@@ -1,3 +1,7 @@
+**Bogged Down in Ukraine, Russia Pays a Price in Syria**\
+`With the fall of President Bashar al-Assad of Syria, Vladimir V. Putin has suffered one of the biggest geopolitical setbacks of his quarter-century in power.`\
+https://nytimes.com/2024/12/08/world/europe/russia-syria-assad-putin.html
+
 **CFP bracket revealed: Oregon No. 1 overall, SMU gets in over Alabama**\
 `Oregon, Georgia, Boise State and Arizona State claimed first-round byes to the quarterfinals. `\
 https://nytimes.com/athletic/5978174/2024/12/08/college-football-playoff-bracket-field-rankings/
