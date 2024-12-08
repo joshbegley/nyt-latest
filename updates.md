@@ -1,3 +1,11 @@
+**She Sued Over Transgender ‘Conversion Therapy,’ a First for China**\
+`Ling’er won a settlement payout from the hospital where she was held for three months against her will and subjected to electroshock therapy.`\
+https://nytimes.com/2024/12/08/world/asia/transgender-conversion-china.html
+
+**Tottenham vs Chelsea preview, odds, prediction as Blues look to start a title push**\
+`Chelsea are chasing Liverpool for the title, but to truly be a contender, the Blues have to win games like Sunday's at Tottenham.`\
+https://nytimes.com/athletic/5974825/2024/12/08/tottenham-chelsea-preview-odds-prediction/
+
 **A backup QB, of all people, comes to Georgia's rescue — not detriment**\
 `"Gunner is him. He's that guy," Trevor Etienne said of the backup quarterback who led Georgia to the SEC title. `\
 https://nytimes.com/athletic/5977359/2024/12/07/georgia-football-sec-championship-gunner-stockton/

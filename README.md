@@ -1,11 +1,3 @@
-**She Sued Over Transgender ‘Conversion Therapy,’ a First for China**\
-`Ling’er won a settlement payout from the hospital where she was held for three months against her will and subjected to electroshock therapy.`\
-https://nytimes.com/2024/12/08/world/asia/transgender-conversion-china.html
-
-**Tottenham vs Chelsea preview, odds, prediction as Blues look to start a title push**\
-`Chelsea are chasing Liverpool for the title, but to truly be a contender, the Blues have to win games like Sunday's at Tottenham.`\
-https://nytimes.com/athletic/5974825/2024/12/08/tottenham-chelsea-preview-odds-prediction/
-
 **Yohe's 10 observations: Penguins rebound impressively and shut down Maple Leafs**\
 `The Penguins played perhaps their best game of the season in a 5-2 win against the Maple Leafs on Saturday. `\
 https://nytimes.com/athletic/5975629/2024/12/07/penguins-maple-leafs-rust-bunting/
@@ -37,4 +29,12 @@ https://nytimes.com/2024/12/07/pageoneplus/quotation-of-the-day-at-stake-in-syri
 **South Korea’s Ex-Defense Chief Is Detained Over Martial Law Episode**\
 `Prosecutors are investigating whether President Yoon Suk Yeol and his followers committed insurrection when they briefly put South Korea under martial law.`\
 https://nytimes.com/2024/12/07/world/asia/south-korea-martial-law-defense-minister-arrest.html
+
+**Here's how LA Galaxy won MLS Cup - and why it brings a warning to their rivals**\
+`A beautifully worked goal ended the LA Galaxy's decade-long MLS Cup drought, while potentially sparking a new era of success.`\
+https://nytimes.com/athletic/5977192/2024/12/07/la-galaxy-mls-cup-2024-warning/
+
+**Corrections: Dec. 8, 2024**\
+`Corrections that appeared in print on Sunday, Dec. 8, 2024.`\
+https://nytimes.com/2024/12/07/pageoneplus/corrections-dec-8-2024.html
 
