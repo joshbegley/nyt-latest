@@ -1,3 +1,7 @@
+**How seriously should we take Penn State after hanging with Oregon in Big Ten title match?**\
+`After the loss, there was no politicking from Penn State’s players about what seed they want when the CFP bracket is revealed.`\
+https://nytimes.com/athletic/5977571/2024/12/08/penn-state-oregon-big-ten-championship-college-football/
+
 **Oregon goes unbeaten (with swagger) in first Big Ten season. And the Ducks aren't finished**\
 `With victory over Penn State, Oregon secured the No. 1 spot in the College Football Playoff and a national quarterfinal in the Rose Bowl,`\
 https://nytimes.com/athletic/5977544/2024/12/08/oregon-penn-state-big-ten-championship/
