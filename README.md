@@ -1,3 +1,11 @@
+**Canada's Davies out indefinitely after suffering injury in Bayern game**\
+`Bayern Munich have confirmed that Alphonso Davies and Kingsley Coman sustained muscular injuries in Saturday&#8217;s Bundesliga victory over Heidenheim.`\
+https://nytimes.com/athletic/5977861/2024/12/08/alphonso-davies-injury-bayern-munich/
+
+**Live Q&A: Week 14 fantasy football start/sit chat with Jay Felicio, Sunday 12/8 at 11 a.m. ET**\
+`Submit your Week 14 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5977972/2024/12/08/live-qa-week-14-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-8-at-11-a-m-et/
+
 **Lando Norris captures F1 constructors' championship for McLaren at Abu Dhabi**\
 `Opening-lap chaos required a near-perfect race from Norris, who delivered McLaren its first team title in 26 years. `\
 https://nytimes.com/athletic/5977870/2024/12/08/lando-norris-mclaren-win-2024-f1-championship-abu-dhabi-gp/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5976639/2024/12/08/charles-huff-marshall-southern-m
 **The top 90 remaining MLB free agents**\
 `With the Hot Stove warming up and the Winter Meetings finally here, let's pull back and survey the free-agent field. `\
 https://nytimes.com/athletic/5976787/2024/12/08/top-remaining-mlb-free-agents-hot-stove/
-
-**The Briefing: Girona 0 Real Madrid 3 - Bellingham shines, Mbappe and Guler ease the pressure**\
-`Madrid are one victory from going top of La Liga and with Jude Bellingham in fine form there are plenty of reasons to be positive`\
-https://nytimes.com/athletic/5977501/2024/12/08/real-madrid-girona-jude-bellingham/
-
-**Caitlin Clark trading card sells for $234,850, shattering previous record**\
-`Clark keeps breaking records, even in the offseason. `\
-https://nytimes.com/athletic/5977776/2024/12/08/caitlin-clark-card-record-wnba/
 
