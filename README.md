@@ -1,3 +1,7 @@
+**How far will Texas fall? What we're learning about the Playoff from conference title games**\
+`College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
+https://nytimes.com/athletic/5976722/2024/12/07/college-football-playoff-bracket-conference-championship-games/
+
 **Blackhawks goalie Petr Mrázek to miss time after lower-body injury**\
 `Mrázek left Saturday's game against the Jets after making an awkward save along the post in the second period and did not return.`\
 https://nytimes.com/athletic/5977129/2024/12/07/blackhawks-petr-mrazek-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/07/nyregion/uhc-ceo-manhunt-frank-james.html
 **Cam Skattebo strikes a pose and makes a statement: He belongs on the sport's biggest stage**\
 `Given a spotlight, Arizona State’s running back left no doubt, leading the Sun Devils to a 45-19 win over Iowa State and into the CFP. `\
 https://nytimes.com/athletic/5977011/2024/12/07/cam-skattebo-arizona-state-heisman-playoff/
-
-**Want a Job in the Trump Administration? Be Prepared for the Loyalty Test.**\
-`Applicants for government posts, including inside the Pentagon and the intelligence agencies, say they have been asked about their thoughts on Jan. 6 and who they believe won the 2020 election.`\
-https://nytimes.com/2024/12/07/us/politics/trump-administration-loyalty-test.html
 
