@@ -1,3 +1,7 @@
+**As Syrian Rebels Take Charge, Freeing Prisoners of Assad Is a Priority**\
+`Many people want to determine the fates of loved ones who disappeared into a notorious military prison that was a symbol of human rights abuses under the rule of President Bashar al-Assad.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-prisons-sednaya-assad.html
+
 **AP Top 25: Alabama 1 point ahead of SMU in poll**\
 `Oregon, Georgia, Notre Dame, Texas and Penn State make up the top five of the AP poll, while Alabama moved past SMU.`\
 https://nytimes.com/athletic/5978100/2024/12/08/ap-top-25-rankings-playoff-alabama-smu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978114/2024/12/08/college-football-playoff-bracket
 **43,000 Ukrainian Soldiers Killed Since Russia Invaded, Zelensky Says**\
 `The tally differs sharply from estimates by U.S. officials and military analysts, who have said the number is closer to 70,000.`\
 https://nytimes.com/2024/12/08/world/europe/ukrainian-war-dead.html
-
-**Apple Sued for Failing to Curtail Child Sexual Abuse Material on iCloud**\
-`Victims of abuse are seeking more than $1.2 billion in damages, arguing that the company abandoned a 2021 system it developed to find abusive material.`\
-https://nytimes.com/2024/12/08/technology/apple-child-sexual-abuse-material-lawsuit.html
 
