@@ -1,3 +1,7 @@
+**Galaxy legend Robbie Keane teases 'conversations' about MLS return as head coach**\
+`Robbie Keane could be on the verge of an MLS comeback as a head coach — and his trademark rolling goal celebration might even follow him into the technical area.`\
+https://nytimes.com/athletic/5977233/2024/12/07/galaxy-legend-robbie-keane-teases-conversations-about-mls-return-as-head-coach/
+
 **Quotation of the Day: At Stake in Syria Fight: Domination of Mideast**\
 `Quotation of the Day for Sunday, December 8, 2024.`\
 https://nytimes.com/2024/12/07/pageoneplus/quotation-of-the-day-at-stake-in-syria-fight-domination-of-mideast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-project
 **Miho Nakayama, Japanese Music and Movie Star, Dies at 54**\
 `A top-selling pop singer as a teenager in the 1980s, she also had an award-winning career as a dramatic actress.`\
 https://nytimes.com/2024/12/07/arts/music/miho-nakayama-dead.html
-
-**How far will Texas fall? What we're learning about the Playoff from conference title games**\
-`College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
-https://nytimes.com/athletic/5976722/2024/12/07/college-football-playoff-bracket-conference-championship-games/
 
