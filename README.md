@@ -1,3 +1,7 @@
+**Marvin Laird, Musical Presence on and Off Broadway, Dies at 85**\
+`He conducted Broadway shows and worked with Bernadette Peters. But he was probably best known for writing the music for the darkly comic “Ruthless!”`\
+https://nytimes.com/2024/12/08/arts/music/marvin-laird-dead.html
+
 **Raiders QB Aidan O'Connell carted off with knee injury**\
 `Desmond Ridder took over as the Raiders quarterback with second-year player ruled out. `\
 https://nytimes.com/athletic/5978823/2024/12/08/aidan-oconnell-knee-injury-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978725/2024/12/08/van-de-ven-romero-tottenham-inju
 **College Football Playoff 12-team debut season verdict: The football is good, my friends**\
 `There are still issues with the sport, but the 2024 season and the 12-team Playoff to come have given us bacon. Let’s do it. Let's eat. `\
 https://nytimes.com/athletic/5978349/2024/12/08/college-football-playoff-2024-season/
-
-**With F1 championship at stake, McLaren and Lando Norris master the moment**\
-`After a season of growing and winning, Norris and his team finally achieved perfection when it mattered most in Abu Dhabi.`\
-https://nytimes.com/athletic/5978218/2024/12/08/mclaren-f1-championship-2024-lando-norris/
 
