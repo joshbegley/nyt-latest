@@ -1,3 +1,7 @@
+**Syrians Celebrate as Rebel Forces Take Control of Damascus**\
+`Gunfire and cheering erupted in the Syrian capital after rebels pushed out the military while President Bashar al-Assad was nowhere to be seen.`\
+https://nytimes.com/video/world/middleeast/100000009865736/syria-damascus-assad-rebels.html
+
 **How seriously should we take Penn State after hanging with Oregon in Big Ten title match?**\
 `After the loss, there was no politicking from Penn State’s players about what seed they want when the CFP bracket is revealed.`\
 https://nytimes.com/athletic/5977571/2024/12/08/penn-state-oregon-big-ten-championship-college-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/nyregion/new-jersey-state-police-slowdown.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/08/crosswords/spelling-bee-forum.html
-
-**College football bowl projections: Final predictions for complete '24-25 schedule**\
-`The conference champions have been crowned. Who will make the 12-team Playoff, and how will it affect the non-CFP bowl pairings?`\
-https://nytimes.com/athletic/5915859/2024/12/08/college-football-bowl-projections-9/
 
