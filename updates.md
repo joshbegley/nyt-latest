@@ -1,3 +1,11 @@
+**Lewis Hamilton ends Mercedes F1 career with fight, emotion: ‘I've got no more tears'**\
+`F1's all-time winningest driver delivered a memorable comeback to sign off at Mercedes in Abu Dhabi.`\
+https://nytimes.com/athletic/5978189/2024/12/08/lewis-hamilton-final-mercedes-race-f1-abu-dhabi/
+
+**The Winners and Losers Following the Fall of Assad**\
+`Two cheers for the end of the regime, but be wary of what happens next.`\
+https://nytimes.com/2024/12/08/opinion/assad-syria-winners-losers.html
+
 **The Briefing: Tottenham 3 Chelsea 4: Sancho shines as Spurs crumble and Maresca's side go second in table**\
 `Cucurella's boot drama and yet more injuries for Tottenham. Our writers analyse all the talking points from Chelsea's stunning comeback`\
 https://nytimes.com/athletic/5974241/2024/12/08/tottenham-chelsea-comeback-sancho-palmer/
