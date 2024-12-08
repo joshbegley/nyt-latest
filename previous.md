@@ -1,3 +1,19 @@
+**Will We Ever Elect a Woman as President?**\
+`Readers react to a column by Gail Collins. Also: Advice for immigrants; presidential immunity; words of the year.`\
+https://nytimes.com/2024/12/08/opinion/woman-president-kamala-harris.html
+
+**Cacio e Pepe, Then Cacio e Pepe Again**\
+`This classic Roman pasta dish is a great thing to cook often, so the technique enters your muscle memory.`\
+https://nytimes.com/2024/12/08/dining/cacio-e-pepe-then-cacio-e-pepe-again.html
+
+**Trump Signals an Aggressive Opening for His New Term**\
+`In his first sit-down broadcast network interview since winning re-election, President-elect Donald J. Trump vowed to pardon Capitol attackers and to try to end automatic citizenship for children of immigrants.`\
+https://nytimes.com/2024/12/08/us/politics/trump-interview-meet-the-press.html
+
+**The Pulse: Hours away from a CFP decision**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5978114/2024/12/08/college-football-playoff-bracket-the-pulse/
+
 **43,000 Ukrainian Soldiers Killed Since Russia Invaded, Zelensky Says**\
 `The tally differs sharply from estimates by U.S. officials and military analysts, who have said the number is closer to 70,000.`\
 https://nytimes.com/2024/12/08/world/europe/ukrainian-war-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/08/us/politics/trump-federal-reserve-jerome-powell.h
 **Assad’s fall deprives Hezbollah of a key ally.**\
 `By Ben Hubbard`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/assads-fall-deprives-hezbollah-of-a-key-ally
-
-**Formula 1 mailbag: Submit your end-of-season questions for our writers**\
-`Reflecting on 2024 or looking ahead to 2025? It was a phenomenal season, and we'd like to hear from you.`\
-https://nytimes.com/athletic/5978046/2024/12/08/formula-1-mailbag-season-finale-abu-dhabi/
-
-**West Ham's Antonio has surgery after car accident**\
-`West Ham United have confirmed that forward Michail Antonio has had surgery on a &#8220;lower limb fracture&#8221; after being involved in a car accident on Saturday.`\
-https://nytimes.com/athletic/5978015/2024/12/08/west-ham-michail-antonio-surgery-car/
-
-**Purdue close to hiring UNLV's Odom: Source**\
-`Odom went 19-8 the past two seasons at UNLV, taking the long downtrodden program to its first two Mountain West championship games.`\
-https://nytimes.com/athletic/5978032/2024/12/08/purdue-barry-odom-unlv-coach-hire/
-
-**Art and A.I.: Parallel Worlds, Bound Together**\
-`Artificial intelligence, though shrouded in risk, promises a revolution in how we see the world.`\
-https://nytimes.com/2024/12/08/special-series/art-creativity-artificial-intelligence.html
 

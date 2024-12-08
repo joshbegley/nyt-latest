@@ -1,3 +1,19 @@
+**Will We Ever Elect a Woman as President?**\
+`Readers react to a column by Gail Collins. Also: Advice for immigrants; presidential immunity; words of the year.`\
+https://nytimes.com/2024/12/08/opinion/woman-president-kamala-harris.html
+
+**Cacio e Pepe, Then Cacio e Pepe Again**\
+`This classic Roman pasta dish is a great thing to cook often, so the technique enters your muscle memory.`\
+https://nytimes.com/2024/12/08/dining/cacio-e-pepe-then-cacio-e-pepe-again.html
+
+**Trump Signals an Aggressive Opening for His New Term**\
+`In his first sit-down broadcast network interview since winning re-election, President-elect Donald J. Trump vowed to pardon Capitol attackers and to try to end automatic citizenship for children of immigrants.`\
+https://nytimes.com/2024/12/08/us/politics/trump-interview-meet-the-press.html
+
+**The Pulse: Hours away from a CFP decision**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5978114/2024/12/08/college-football-playoff-bracket-the-pulse/
+
 **43,000 Ukrainian Soldiers Killed Since Russia Invaded, Zelensky Says**\
 `The tally differs sharply from estimates by U.S. officials and military analysts, who have said the number is closer to 70,000.`\
 https://nytimes.com/2024/12/08/world/europe/ukrainian-war-dead.html
