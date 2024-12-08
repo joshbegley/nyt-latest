@@ -1,3 +1,7 @@
+**Barkley, Eagles extend streak with close 22-16 win over Panthers: Takeaways**\
+`Barkley set the franchise record for most rushing yards in a single season.`\
+https://nytimes.com/athletic/5978177/2024/12/08/panthers-eagles-score-result-takeaways/
+
 **Israeli Ground Forces Cross into Syria, Officials Say**\
 `Israeli ground forces have overtly crossed into Syrian territory for the first time since the 1973 October War, passing the demilitarized border zone, two Israeli officials said.`\
 https://nytimes.com/2024/12/08/world/middleeast/israel-demilitarized-zone-syria.html
