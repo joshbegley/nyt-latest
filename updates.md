@@ -1,3 +1,7 @@
+**Charlotte hiring Ohio coach Tim Albin, who led Bobcats to MAC crown: Source**\
+`Albin would take over a young Charlotte program that began play in 2013 and has reached one bowl game in its history.`\
+https://nytimes.com/athletic/5977202/2024/12/07/tim-albin-charlotte-coach-ohio-bobcats/
+
 **College Football Playoff 2024 projections: Georgia vaults to No. 2 seed after SEC title**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/07/college-football-playoff-projections-odds/
