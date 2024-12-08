@@ -1,3 +1,7 @@
+**Alabama snubbed? The Crimson Tide's case for Playoff inclusion**\
+`The SEC and Alabama don’t make for the most sympathetic victims, nor should they be viewed that way. But there's logic in their gripes.`\
+https://nytimes.com/athletic/5979083/2024/12/08/alabama-snubbed-college-football-playoff-smu/
+
 **Barkley, Eagles extend streak with 22-16 win vs. Panthers: Takeaways**\
 `Barkley set the franchise record for most rushing yards in a single season.`\
 https://nytimes.com/athletic/5978177/2024/12/08/panthers-eagles-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978976/2024/12/08/ohio-state-college-football-play
 **Darnold's 5 TDs lead Vikings to 42-21 win over Cousins' Falcons: Takeaways**\
 `Darnold is the first Vikings QB to throw for more than 300 yards and five touchdowns in a game since Daunte Culpepper in 2004.`\
 https://nytimes.com/athletic/5978165/2024/12/08/falcons-vikings-score-result-takeaways/
-
-**Russell Wilson, Steelers shake off Browns 27-14: Takeaways**\
-`Third quarter touchdowns and fourth quarter takeaways seal the win for Pittsburgh.`\
-https://nytimes.com/athletic/5978186/2024/12/08/browns-steelers-score-result-takeaways/
 
