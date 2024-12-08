@@ -1,3 +1,7 @@
+**Chiung Yao, Influential Taiwanese Romance Novelist, Dies at 86**\
+`One of the most successful writers in the Chinese-speaking world, she filled her plots with twists and turns, but love always transcended all.`\
+https://nytimes.com/2024/12/08/books/chiung-yao-dead.html
+
 **Trump Says He Does Not Have Plans to Replace Fed Chair**\
 `Donald J. Trump, the president-elect, said he doesn’t “see it” when asked if he would try to oust the head of America’s central bank.`\
 https://nytimes.com/2024/12/08/us/politics/trump-federal-reserve-jerome-powell.html
