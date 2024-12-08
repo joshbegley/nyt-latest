@@ -1,3 +1,11 @@
+**Hurzeler questions Brighton game management after Leicester draw**\
+`Head coach Fabian Hurzeler has bemoaned Brighton &amp; Hove Albion&#8217;s lack of game management after his side drew 2-2 at Leicester City having been 2-0 up until the 86th minute.`\
+https://nytimes.com/athletic/5978302/2024/12/08/fabian-hurzeler-brighton-game-management/
+
+**‘Our hearts are dancing with joy’: Damascus residents celebrate Assad government’s fall.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/our-hearts-are-dancing-with-joy-damascus-residents-celebrate-assad-governments-fall
+
 **New Image Shows Suspect in C.E.O. Shooting in Back of Taxi**\
 `The New York Police Department released two images as the manhunt for the gunman who fatally shot Brian Thompson, chief executive of UnitedHealthcare, continued.`\
 https://nytimes.com/2024/12/08/nyregion/uhc-ceo-shooting-suspect-photos.html

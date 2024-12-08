@@ -1,3 +1,11 @@
+**Hurzeler questions Brighton game management after Leicester draw**\
+`Head coach Fabian Hurzeler has bemoaned Brighton &amp; Hove Albion&#8217;s lack of game management after his side drew 2-2 at Leicester City having been 2-0 up until the 86th minute.`\
+https://nytimes.com/athletic/5978302/2024/12/08/fabian-hurzeler-brighton-game-management/
+
+**‘Our hearts are dancing with joy’: Damascus residents celebrate Assad government’s fall.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/our-hearts-are-dancing-with-joy-damascus-residents-celebrate-assad-governments-fall
+
 **New Image Shows Suspect in C.E.O. Shooting in Back of Taxi**\
 `The New York Police Department released two images as the manhunt for the gunman who fatally shot Brian Thompson, chief executive of UnitedHealthcare, continued.`\
 https://nytimes.com/2024/12/08/nyregion/uhc-ceo-shooting-suspect-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/arts/music/angela-alvarez-dead.html
 **The Briefing - Fulham 1 Arsenal 1: How much of a blow will VAR decision be? Did wind impact corners?**\
 `Arsenal were held to a 1-1 draw by Fulham on Sunday afternoon after a late VAR decision ruled out a Bukayo Saka winner`\
 https://nytimes.com/athletic/5974240/2024/12/08/fulham-arsenal-result-report-analysis/
-
-**Why the Giants gave Willy Adames the largest contract in franchise history**\
-`Adames has already had several seasons that would sit amongst the top 10 for Giants' shortstops. And he's still only 29.`\
-https://nytimes.com/athletic/5977118/2024/12/08/sf-giants-willy-adames-signing-analysis/
-
-**Will We Ever Elect a Woman as President?**\
-`Readers react to a column by Gail Collins. Also: Advice for immigrants; presidential immunity; words of the year.`\
-https://nytimes.com/2024/12/08/opinion/woman-president-kamala-harris.html
 
