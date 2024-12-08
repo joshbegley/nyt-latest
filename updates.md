@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: What GM Don Waddell's pursuit of Jacob Trouba means**\
+`The Blue Jackets were among the clubs that pressed hard to acquire defenseman Jacob Trouba from the Rangers last week.`\
+https://nytimes.com/athletic/5976275/2024/12/08/blue-jackets-jacob-trouba-trade-rangers/
+
 **Biden Says U.S. Conducted Airstrikes Against Islamic State Targets in Syria**\
 `President Biden hailed the fall of President Bashar al-Assad as a “fundamental act of justice” but warned of “a moment of risk and uncertainty.”`\
 https://nytimes.com/2024/12/08/us/politics/biden-syria-assad-isis.html
