@@ -1,3 +1,7 @@
+**Here's how LA Galaxy won MLS Cup - and why it brings a warning to their rivals**\
+`A beautifully worked goal ended the LA Galaxy's decade-long MLS Cup drought, while potentially sparking a new era of success.`\
+https://nytimes.com/athletic/5977192/2024/12/07/la-galaxy-mls-cup-2024-warning/
+
 **Corrections: Dec. 8, 2024**\
 `Corrections that appeared in print on Sunday, Dec. 8, 2024.`\
 https://nytimes.com/2024/12/07/pageoneplus/corrections-dec-8-2024.html
