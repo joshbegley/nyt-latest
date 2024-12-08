@@ -1,3 +1,7 @@
+**Which Marco Rubio Will Serve President Trump?**\
+`Rubio, the choice for secretary of state, has evolved from a hawkish optimist to a more inward-looking, antiglobalist pessimist.`\
+https://nytimes.com/2024/12/08/opinion/marco-rubio-secretary-of-state.html
+
 **College Football Playoff 2024 projections: SMU favored over Alabama for final spot**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-projections-odds/
