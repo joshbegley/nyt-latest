@@ -1,3 +1,7 @@
+**'A Celtic for life': Marcus Smart feels the love, shows off his son in return to Boston**\
+`As much as Smart gave the Celtics on the court, his connection with the city of Boston extended far beyond his athletic accomplishments.`\
+https://nytimes.com/athletic/5977435/2024/12/08/marcus-smart-celtics-grizzlies-son/
+
 **Which Marco Rubio Will Serve President Trump?**\
 `Rubio, the choice for secretary of state, has evolved from a hawkish optimist to a more inward-looking, antiglobalist pessimist.`\
 https://nytimes.com/2024/12/08/opinion/marco-rubio-secretary-of-state.html
