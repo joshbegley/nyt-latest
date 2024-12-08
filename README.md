@@ -1,3 +1,7 @@
+**The top 90 remaining MLB free agents**\
+`With the Hot Stove warming up and the Winter Meetings finally here, let's pull back and survey the free-agent field. `\
+https://nytimes.com/athletic/5976787/2024/12/08/top-remaining-mlb-free-agents-hot-stove/
+
 **The Briefing: Girona 0 Real Madrid 3 - Bellingham shines, Mbappe and Guler ease the pressure**\
 `Madrid are one victory from going top of La Liga and with Jude Bellingham in fine form there are plenty of reasons to be positive`\
 https://nytimes.com/athletic/5977501/2024/12/08/real-madrid-girona-jude-bellingham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/12/08/college-football-playoff-project
 **Bayern retire No 5 shirt in honour of Beckenbauer**\
 `Bayern Munich members have voted to retire the club&#8217;s No 5 shirt in honour of their former player and manager Franz Beckenbauer, who died in January this year aged 78.`\
 https://nytimes.com/athletic/5977719/2024/12/08/bayern-munich-retire-5-franz-beckenbauer/
-
-**Cade Cunningham's MSG triple-double grows All-Star case as Pistons down Knicks**\
-`Cade Cunningham is amid the best stretch of his professional career and making a case for his first All-Star bid.`\
-https://nytimes.com/athletic/5977410/2024/12/08/cade-cunningham-triple-double-pistons-knicks-nba/
 
