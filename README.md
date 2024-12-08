@@ -1,3 +1,7 @@
+**Why a postponed Merseyside derby might prove a blessing in disguise for Liverpool**\
+`Arne Slot's side have six matches in the space of 19 days coming up - Saturday's postponed derby might just keep them fresh`\
+https://nytimes.com/athletic/5976092/2024/12/08/liverpool-everton-derby-postponement-fixtures/
+
 **Wild off their game in rare poor road outing against stingy opponent: 3 takeaways vs. Kings**\
 `The Wild's 4-1 loss to the Kings was their second regulation loss in 16 road games and first regulation loss in their past 10 road games.`\
 https://nytimes.com/athletic/5977298/2024/12/08/wild-kings-takeaways-road-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975629/2024/12/07/penguins-maple-leafs-rust-buntin
 **Nuggets waste Nikola Jokić's career night in inexplicable loss to woeful Wizards**\
 `"We all have to start participating in our own recovery," Michael Malone said after Denver dropped to 11-10 with a loss to lowly Washington.`\
 https://nytimes.com/athletic/5977323/2024/12/07/nuggets-nikola-jokic-highlights-wizards-loss/
-
-**A backup QB, of all people, comes to Georgia's rescue — not detriment**\
-`"Gunner is him. He's that guy," Trevor Etienne said of the backup quarterback who led Georgia to the SEC title. `\
-https://nytimes.com/athletic/5977359/2024/12/07/georgia-football-sec-championship-gunner-stockton/
 
