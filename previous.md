@@ -1,3 +1,11 @@
+**College Football Playoff first-round odds: Home teams favored by at least a TD**\
+`The home teams are the betting favorites in all four first-round games of the College Football Playoff.`\
+https://nytimes.com/athletic/5978321/2024/12/08/college-football-playoff-betting-odds-first-round/
+
+**The al-Assad Family’s Legacy Is One of Savage Oppression**\
+`A dynasty bombed and detained thousands of opponents, building fearsome internal security agencies to quash unrest.`\
+https://nytimes.com/2024/12/08/world/middleeast/assad-family-legacy-syria.html
+
 **Blue Jackets Sunday Gathering: What GM Don Waddell's pursuit of Jacob Trouba means**\
 `The Blue Jackets were among the clubs that pressed hard to acquire defenseman Jacob Trouba from the Rangers last week.`\
 https://nytimes.com/athletic/5976275/2024/12/08/blue-jackets-jacob-trouba-trade-rangers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/08/arts/dance/alvin-ailey-jamar-roberts-al-andalus-b
 **Trump Suggests Kennedy Will Examine Debunked Link Between Vaccines and Autism**\
 `The president-elect has promoted the theory for more than a decade and said on Sunday that he was “open to anything” to address a nationwide rise in autism.`\
 https://nytimes.com/2024/12/08/us/politics/trump-rfk-jr-vaccines-autism.html
-
-**What’s Next for Syria After the Collapse of Assad’s Government?**\
-`Predicting Syria’s future is challenging, as the government’s sudden demise took many people who have watched the region for years by surprise.`\
-https://nytimes.com/2024/12/08/world/middleeast/syria-assad-rebels-what-next.html
-
-**Lewis Hamilton ends Mercedes F1 career with fight, emotion: ‘I've got no more tears'**\
-`F1's all-time winningest driver delivered a memorable comeback to sign off at Mercedes in Abu Dhabi.`\
-https://nytimes.com/athletic/5978189/2024/12/08/lewis-hamilton-final-mercedes-race-f1-abu-dhabi/
 
