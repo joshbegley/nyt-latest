@@ -1,3 +1,15 @@
+**Penn State has the most favorable path through the College Football Playoff**\
+`Penn State earned the No. 6 seed in the College Football Playoff bracket and will host 11-seed SMU for a first-round game.`\
+https://nytimes.com/athletic/5978575/2024/12/08/penn-state-college-football-playoff-path/
+
+**College football national title odds: Oregon, Georgia favored after earning byes**\
+`Oregon and Georgia earned byes in the College Football Playoff and are the betting favorites to win the national title.`\
+https://nytimes.com/athletic/5978314/2024/12/08/college-football-national-title-odds-oregon-georgia/
+
+**Space Age Blues and the ‘Dancing Spirit’ of Judith Jamison**\
+`Alvin Ailey American Dance Theater returns for its annual December season with an enigmatic premiere by Jamar Roberts and the revival of “Grace.”`\
+https://nytimes.com/2024/12/08/arts/dance/alvin-ailey-jamar-roberts-al-andalus-blues.html
+
 **Trump Suggests Kennedy Will Examine Debunked Link Between Vaccines and Autism**\
 `The president-elect has promoted the theory for more than a decade and said on Sunday that he was “open to anything” to address a nationwide rise in autism.`\
 https://nytimes.com/2024/12/08/us/politics/trump-rfk-jr-vaccines-autism.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5978429/2024/12/08/college-football-playoff-seeding
 **College Football Playoff guide: 12-team format, important dates, game locations**\
 `How will the 12 teams be selected? When is the national championship? The answers to all your frequently asked questions about the CFP.`\
 https://nytimes.com/athletic/5726745/2024/12/08/college-football-playoff-2024-format-guide/
-
-**The Campaign by Syrian Rebels to Topple al-Assad Was Swift**\
-`President Bashar al-Assad had kept opposition forces at bay for a decade with help from Russia and Iran. But rebels struck at a moment of weakness for those countries.`\
-https://nytimes.com/2024/12/08/world/middleeast/assad-syria.html
-
-**Bogged Down in Ukraine, Russia Pays a Price in Syria**\
-`With the fall of President Bashar al-Assad of Syria, Vladimir V. Putin has suffered one of the biggest geopolitical setbacks of his quarter-century in power.`\
-https://nytimes.com/2024/12/08/world/europe/russia-syria-assad-putin.html
-
-**CFP bracket revealed: Oregon No. 1 overall, SMU gets in over Alabama**\
-`Oregon, Georgia, Boise State and Arizona State claimed first-round byes to the quarterfinals. `\
-https://nytimes.com/athletic/5978174/2024/12/08/college-football-playoff-bracket-field-rankings/
 
