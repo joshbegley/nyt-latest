@@ -1,3 +1,7 @@
+**As Syrian Government Loses Control, the Skies Above Go Quiet**\
+`For years, people lived in terror of airstrikes by Syrian and Russian planes that helped keep the country’s authoritarian leader in power.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-quiet-skies.html
+
 **S.N.L. Resurrects Church Lady: Isn’t That Special!**\
 `Playing his old familiar character, Dana Carvey talks about Jesus, tweaks celebrities for their sins and skewers Satan.`\
 https://nytimes.com/2024/12/08/arts/television/saturday-night-live-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/business/dealbook/bill-clinton-dealbook.html
 **The location of Bashar al-Assad remains unclear.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-location-of-bashar-al-assad-remains-unclear
-
-**Assad’s Rule Ends**\
-`We explain the latest developments in Syria.`\
-https://nytimes.com/2024/12/08/briefing/syria-rebels-assad.html
 

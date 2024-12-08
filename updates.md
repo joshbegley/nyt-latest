@@ -1,3 +1,7 @@
+**As Syrian Government Loses Control, the Skies Above Go Quiet**\
+`For years, people lived in terror of airstrikes by Syrian and Russian planes that helped keep the country’s authoritarian leader in power.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-quiet-skies.html
+
 **S.N.L. Resurrects Church Lady: Isn’t That Special!**\
 `Playing his old familiar character, Dana Carvey talks about Jesus, tweaks celebrities for their sins and skewers Satan.`\
 https://nytimes.com/2024/12/08/arts/television/saturday-night-live-recap.html
