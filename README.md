@@ -1,3 +1,7 @@
+**The Campaign by Syrian Rebels to Topple al-Assad Was Swift**\
+`President Bashar al-Assad had kept opposition forces at bay for a decade with help from Russia and Iran. But rebels struck at a moment of weakness for those countries.`\
+https://nytimes.com/2024/12/08/world/middleeast/assad-syria.html
+
 **Bogged Down in Ukraine, Russia Pays a Price in Syria**\
 `With the fall of President Bashar al-Assad of Syria, Vladimir V. Putin has suffered one of the biggest geopolitical setbacks of his quarter-century in power.`\
 https://nytimes.com/2024/12/08/world/europe/russia-syria-assad-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978302/2024/12/08/fabian-hurzeler-brighton-game-ma
 **‘Our hearts are dancing with joy’: Damascus residents celebrate Assad government’s fall.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/our-hearts-are-dancing-with-joy-damascus-residents-celebrate-assad-governments-fall
-
-**New Image Shows Suspect in C.E.O. Shooting in Back of Taxi**\
-`The New York Police Department released two images as the manhunt for the gunman who fatally shot Brian Thompson, chief executive of UnitedHealthcare, continued.`\
-https://nytimes.com/2024/12/08/nyregion/uhc-ceo-shooting-suspect-photos.html
 
