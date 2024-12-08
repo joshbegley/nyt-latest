@@ -1,3 +1,19 @@
+**‘I Was So Absorbed in My Notes That I Had Forgotten to Have Lunch’**\
+`A forbidden snack while studying, exercise to start the day and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/12/08/nyregion/metropolitan-diary.html
+
+**How a Never-Ending Home Renovation Project Is Fighting Climate Change**\
+`Forrest Meggers, a professor at Princeton University, has turned his home into a live-in laboratory that pushes the boundaries of sustainability.`\
+https://nytimes.com/2024/12/08/nyregion/forrest-meggers-princeton-green-home.html
+
+**For 8 Months, Traffic Enforcement on New Jersey’s Highways Plummeted**\
+`After a report found racial bias in traffic enforcement, state troopers were warned by a union leader that “every stop” would be scrutinized. They started making fewer.`\
+https://nytimes.com/2024/12/08/nyregion/new-jersey-state-police-slowdown.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/08/crosswords/spelling-bee-forum.html
+
 **College football bowl projections: Final predictions for complete '24-25 schedule**\
 `The conference champions have been crowned. Who will make the 12-team Playoff, and how will it affect the non-CFP bowl pairings?`\
 https://nytimes.com/athletic/5915859/2024/12/08/college-football-bowl-projections-9/
