@@ -1,3 +1,11 @@
+**Marvin Laird, Musical Presence on and Off Broadway, Dies at 85**\
+`He conducted Broadway shows and worked with Bernadette Peters. But he was probably best known for writing the music for the darkly comic “Ruthless!”`\
+https://nytimes.com/2024/12/08/arts/music/marvin-laird-dead.html
+
+**Raiders QB Aidan O'Connell carted off with knee injury**\
+`Desmond Ridder took over as the Raiders quarterback with second-year player ruled out. `\
+https://nytimes.com/athletic/5978823/2024/12/08/aidan-oconnell-knee-injury-raiders/
+
 **Five Quick Takes on Regime Change in Syria**\
 `Assad’s fall creates vast dangers and opportunities that everyone in the region will seize upon.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/friedman-syria-iran-future
