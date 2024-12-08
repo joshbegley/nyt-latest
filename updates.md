@@ -1,3 +1,7 @@
+**Syrians Also Have Israel to Thank for Their Liberation**\
+`Israel’s actions diminished Assad’s ability to resist the rebels.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/syria-liberation-israel-assad
+
 **Hurzeler questions Brighton game management after Leicester draw**\
 `Head coach Fabian Hurzeler has bemoaned Brighton &amp; Hove Albion&#8217;s lack of game management after his side drew 2-2 at Leicester City having been 2-0 up until the 86th minute.`\
 https://nytimes.com/athletic/5978302/2024/12/08/fabian-hurzeler-brighton-game-management/
