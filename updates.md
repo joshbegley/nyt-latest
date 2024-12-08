@@ -1,3 +1,11 @@
+**Until Saturday: Who will make the Playoff after a wild weekend?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Who will make the College Football Playoff field?`\
+https://nytimes.com/athletic/5977672/2024/12/08/college-football-playoff-field-until-saturday/
+
+**How McLaren, F1 champions again after 26 years, went from last to first in 18 months**\
+`Led by talented drivers and a serene team principal, McLaren rapidly grew into the champion it has so longed to become again. `\
+https://nytimes.com/athletic/5960099/2024/12/08/mclaren-f1-2024-championship-season/
+
 **The Streets of My Country Are Full of Fury**\
 `Georgia is lurching toward authoritarianism. This may be our last chance to pull it back.`\
 https://nytimes.com/2024/12/08/opinion/georgia-protests.html
