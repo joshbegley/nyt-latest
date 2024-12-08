@@ -1,3 +1,7 @@
+**Family Renews Appeal to Find U.S. Journalist Missing in Syria**\
+`Relatives of Austin Tice, who disappeared in 2012 near the Syrian capital, said they believe that he is alive.`\
+https://nytimes.com/2024/12/08/world/middleeast/austin-tice-syria-journalist.html
+
 **Chiung Yao, Influential Taiwanese Romance Novelist, Dies at 86**\
 `One of the most successful writers in the Chinese-speaking world, she filled her plots with twists and turns, but love always transcended all.`\
 https://nytimes.com/2024/12/08/books/chiung-yao-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977861/2024/12/08/alphonso-davies-injury-bayern-mu
 **Live Q&A: Week 14 fantasy football start/sit chat with Jay Felicio, Sunday 12/8 at 11 a.m. ET**\
 `Submit your Week 14 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5977972/2024/12/08/live-qa-week-14-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-8-at-11-a-m-et/
-
-**Lando Norris captures F1 constructors' championship for McLaren at Abu Dhabi**\
-`Opening-lap chaos required a near-perfect race from Norris, who delivered McLaren its first team title in 26 years. `\
-https://nytimes.com/athletic/5977870/2024/12/08/lando-norris-mclaren-win-2024-f1-championship-abu-dhabi-gp/
 
