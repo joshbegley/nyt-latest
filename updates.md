@@ -1,3 +1,7 @@
+**Canadiens then and now: Another third-period loss to the Capitals feels far different**\
+`The Canadiens allowed three third-period goals to lose to the Capitals, just like they did Halloween night, but so much has changed.`\
+https://nytimes.com/athletic/5977512/2024/12/08/montreal-canadiens-washington-capitals/
+
 **The tweak that helped Kentucky beat Gonzaga in top-10 OT shootout**\
 `After a loss at Clemson earlier this week in the SEC/ACC Men's Challenge, this was a huge bounceback win for the Wildcats.`\
 https://nytimes.com/athletic/5977423/2024/12/08/kentucky-gonzaga-mark-pope/

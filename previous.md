@@ -1,3 +1,7 @@
+**Canadiens then and now: Another third-period loss to the Capitals feels far different**\
+`The Canadiens allowed three third-period goals to lose to the Capitals, just like they did Halloween night, but so much has changed.`\
+https://nytimes.com/athletic/5977512/2024/12/08/montreal-canadiens-washington-capitals/
+
 **The tweak that helped Kentucky beat Gonzaga in top-10 OT shootout**\
 `After a loss at Clemson earlier this week in the SEC/ACC Men's Challenge, this was a huge bounceback win for the Wildcats.`\
 https://nytimes.com/athletic/5977423/2024/12/08/kentucky-gonzaga-mark-pope/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977406/2024/12/08/washington-wizards-end-losing-st
 **SMU vs. Bama on the bubble: What we learned about the Playoff from conference title games**\
 `College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
 https://nytimes.com/athletic/5976722/2024/12/08/college-football-playoff-bracket-conference-championship-games/
-
-**Why a postponed Merseyside derby might prove a blessing in disguise for Liverpool**\
-`Arne Slot's side have six matches in the space of 19 days coming up - Saturday's postponed derby might just keep them fresh`\
-https://nytimes.com/athletic/5976092/2024/12/08/liverpool-everton-derby-postponement-fixtures/
 
