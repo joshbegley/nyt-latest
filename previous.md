@@ -1,3 +1,7 @@
+**With Carson Beck injured, Georgia may turn to Gunner Stockton for Playoff**\
+`Beck had an MRI done on his right throwing arm Sunday morning after getting injured on Saturday vs. Texas. `\
+https://nytimes.com/athletic/5978857/2024/12/08/carson-beck-injury-georgia-football-cfp/
+
 **Biden Says U.S. Conducted Airstrikes Against ISIS in Syria**\
 `President Biden hailed the fall of President Bashar al-Assad’s government and said U.S. forces took action to wipe out pockets of the Islamic State on Sunday.`\
 https://nytimes.com/video/us/100000009866432/biden-syria-assad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978786/2024/12/08/mike-phelan-plymouth-rooney-man-
 **Syria’s Army Was Hollowing Out Long Before Rebels’ Advance**\
 `While multiple factors contributed to the fall of President Bashar al-Assad, corrosion inside his own military did not help, analysts say.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-army-assad-fall.html
-
-**Who will win the College Football Playoff? Bruce Feldman fills out his bracket**\
-`Predictions for how the first 12-team College Football Playoff bracket will play out, ending with Oregon beating Georgia for the title.`\
-https://nytimes.com/athletic/5978565/2024/12/08/college-football-playoff-bracket-predictions-picks-feldman/
 

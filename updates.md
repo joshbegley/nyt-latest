@@ -1,3 +1,7 @@
+**With Carson Beck injured, Georgia may turn to Gunner Stockton for Playoff**\
+`Beck had an MRI done on his right throwing arm Sunday morning after getting injured on Saturday vs. Texas. `\
+https://nytimes.com/athletic/5978857/2024/12/08/carson-beck-injury-georgia-football-cfp/
+
 **Biden Says U.S. Conducted Airstrikes Against ISIS in Syria**\
 `President Biden hailed the fall of President Bashar al-Assad’s government and said U.S. forces took action to wipe out pockets of the Islamic State on Sunday.`\
 https://nytimes.com/video/us/100000009866432/biden-syria-assad.html
