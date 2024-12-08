@@ -1,3 +1,7 @@
+**Government soldiers put up little resistance when the rebels stormed Damascus, video shows.**\
+`By Raja Abdulrahim, Nailah Morgan and Aritz Parra`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/government-soldiers-put-up-little-resistance-when-the-rebels-stormed-damascus-video-shows
+
 **Marvin Laird, Musical Presence on and Off Broadway, Dies at 85**\
 `He conducted Broadway shows and worked with Bernadette Peters. But he was probably best known for writing the music for the darkly comic “Ruthless!”`\
 https://nytimes.com/2024/12/08/arts/music/marvin-laird-dead.html
