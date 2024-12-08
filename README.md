@@ -1,3 +1,35 @@
+**Conor McGregor lost a civil rape case. Will it harm his earnings or UFC career?**\
+`While the life of a woman is in tatters, will there be any impact beyond paying damages for the UFC star?`\
+https://nytimes.com/athletic/5950977/2024/12/08/conor-mcgregor-ufc-earnings/
+
+**Mandel's Final Thoughts: Winners and losers of championship weekend's wild swings**\
+`No definitive predictions here, but Saturday's action left the selection committee with some decisions we'll be talking about for years.`\
+https://nytimes.com/athletic/5977599/2024/12/08/cfp-rankings-smu-alabama-final-thoughts/
+
+**Jameson Taillon’s perspective on free agency, trade rumors and next moves for the Cubs**\
+`Taillon gave his thoughts on the Cubs' recent addition of Matthew Boyd: "I think there’s upside there."`\
+https://nytimes.com/athletic/5977085/2024/12/08/cubs-jameson-taillon-free-agency-trade-rumors/
+
+**What Doctors Like Myself Know About Americans’ Health Care Anger**\
+`As a doctor, I’ve been on both sides of frustrating health care debacles.`\
+https://nytimes.com/2024/12/08/opinion/health-care-anger.html
+
+**The Tennessee Trans Treatment Case Is About Age, Not Sex**\
+`The state’s ban on gender-affirming medical care for minors passes the constitutional test.`\
+https://nytimes.com/2024/12/08/opinion/tennessee-trans-supreme-court-case.html
+
+**A New Movie Dares to Suggest that Motherhood Might Be (Gasp) Fun**\
+`“Nightbitch” seems like a horror film about the transformations demanded by motherhood, but its underlying message is much more radical than that.`\
+https://nytimes.com/2024/12/08/opinion/nightbitch-amy-adams-motherhood.html
+
+**Climate Activists Need to Radically Change Their Approach Under Trump**\
+`Climate purity is a recipe for failure.`\
+https://nytimes.com/2024/12/08/opinion/climate-clean-energy-trump.html
+
+**Wordle Review No. 1,269**\
+`Scroll down for hints and conversation about the puzzle for Monday, Dec. 9, 2024.`\
+https://nytimes.com/2024/12/08/crosswords/wordle-review-1269.html
+
 **Commerce Dept. Is on the Front Lines of China Policy**\
 `Over the past four years, the department has confronted the challenge of China by restricting key exports, a policy that is likely to continue in the Trump administration.`\
 https://nytimes.com/2024/12/08/us/politics/commerce-dept-is-on-the-front-lines-of-china-policy.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/12/08/us/politics/commerce-dept-is-on-the-front-lines-o
 **How Will Donald Trump’s Comeback Look on the Wall?**\
 `Portraits of the presidents hang outside the boardroom at The New York Times Building.`\
 https://nytimes.com/2024/12/08/insider/presidents-board-room.html
-
-**How I Aged Into the Bad Christmas Movie**\
-`One December morning, a millennial critic awoke to discover that she had been begrudgingly charmed by an onslaught of Hallmark and Netflix holiday films.`\
-https://nytimes.com/2024/12/08/arts/christmas-movies-hallmark-lohan.html
-
-**For Taylor Swift, It’s the End of the ‘Eras’**\
-`A two-year tour that permeated the culture plays one last night in the Canadian city of Vancouver.`\
-https://nytimes.com/2024/12/08/arts/music/for-taylor-swift-its-the-end-of-the-eras.html
-
-**Scrubbing Up for a Peek at the Resuscitated Notre-Dame Cathedral**\
-`Michael Kimmelman, the architecture critic for The New York Times, visited the Paris landmark last summer amid the restoration.`\
-https://nytimes.com/2024/12/08/insider/notre-dame-behind-scenes.html
-
-**From Tarot Cards to Streamlined Design, We Can’t Stop Predicting the Future**\
-`In “A Century of Tomorrows,” Glenn Adamson offers a hurtling history of the art, science and big business of looking ahead.`\
-https://nytimes.com/2024/12/08/books/review/a-century-of-tomorrows-glenn-adamson.html
-
-**NFL Week 14 top storylines: Kirk Cousins returns to Minnesota; another Chiefs AFC West crown?**\
-`Also, can the Browns beat the Steelers again? And with the Bears and 49ers struggling, who wins the Sunday afternoon matchup?`\
-https://nytimes.com/athletic/5972653/2024/12/08/nfl-week-14-top-storylines-kirk-cousins-vikings-chiefs/
-
-**Nick Cave Will Take a Selfie With You, if You Insist**\
-`Back out on the road, and after working through his extreme grief, the longtime rocker is connecting with more fans than ever.`\
-https://nytimes.com/2024/12/08/style/nick-cave-will-take-a-selfie-with-you-if-you-insist.html
-
-**What Alice Munro Knew**\
-`The Nobel-winning author’s husband was a pedophile who targeted her daughter and other children. Why did she stay silent?`\
-https://nytimes.com/2024/12/08/magazine/alice-munro-andrea-skinner-abuse.html
-
-**MLS Cup gives Galaxy sentimental triumph - and puts a jersey in the spotlight**\
-`Raul Vargas has been the LA Galaxy's equipment manager for 29 years. Saturday's MLS Cup final might have been his proudest hour`\
-https://nytimes.com/athletic/5977529/2024/12/08/mls-cup-gives-galaxy-sentimental-triumph-and-puts-a-jersey-in-the-spotlight/
 
