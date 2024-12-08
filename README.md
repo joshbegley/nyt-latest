@@ -1,3 +1,7 @@
+**Art and A.I.: Parallel Worlds, Bound Together**\
+`Artificial intelligence, though shrouded in risk, promises a revolution in how we see the world.`\
+https://nytimes.com/2024/12/08/special-series/art-creativity-artificial-intelligence.html
+
 **Canada's Davies out indefinitely after suffering injury in Bayern game**\
 `Bayern Munich have confirmed that Alphonso Davies and Kingsley Coman sustained muscular injuries in Saturday&#8217;s Bundesliga victory over Heidenheim.`\
 https://nytimes.com/athletic/5977861/2024/12/08/alphonso-davies-injury-bayern-munich/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/arts/television/saturday-night-live-recap.html
 **After winning Sun Belt, Marshall coach Huff expected to take Southern Miss job**\
 `Huff did not have a contract at Marshall beyond this season.`\
 https://nytimes.com/athletic/5976639/2024/12/08/charles-huff-marshall-southern-miss-coach/
-
-**The top 90 remaining MLB free agents**\
-`With the Hot Stove warming up and the Winter Meetings finally here, let's pull back and survey the free-agent field. `\
-https://nytimes.com/athletic/5976787/2024/12/08/top-remaining-mlb-free-agents-hot-stove/
 
