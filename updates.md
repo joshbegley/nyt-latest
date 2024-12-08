@@ -1,3 +1,7 @@
+**New Image Shows Suspect in C.E.O. Shooting in Back of Taxi**\
+`The New York Police Department released two images as the manhunt for the gunman who fatally shot Brian Thompson, chief executive of UnitedHealthcare, continued.`\
+https://nytimes.com/2024/12/08/nyregion/uhc-ceo-shooting-suspect-photos.html
+
 **Lindsey Vonn, at 40, returns to competitive skiing, eyeing World Cup races**\
 `Lindsey Vonn's unlikely bid to get back to the top of skiing started this weekend, with four races in Colorado she used as "training."`\
 https://nytimes.com/athletic/5976478/2024/12/08/lindsey-vonn-returns-skiing-downhill-world-cup-olympics/
