@@ -1,3 +1,7 @@
+**Dolphins keep playoff hopes alive with 32-26 OT win vs. Jets: Takeaways**\
+`Miami picked up its fourth win in five weeks after a 2-6 start, while the Jets extended the longest playoff drought in men's pro sports. `\
+https://nytimes.com/athletic/5978160/2024/12/08/jets-dolphins-score-result-takeaways/
+
 **Barkley, Eagles extend streak with 22-16 win vs. Panthers: Takeaways**\
 `Barkley set the franchise record for most rushing yards in a single season.`\
 https://nytimes.com/athletic/5978177/2024/12/08/panthers-eagles-score-result-takeaways/
