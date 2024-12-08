@@ -1,3 +1,7 @@
+**Syrians Mourn All They Have Lost, Even as They Celebrate**\
+`Thoughts of loved ones dead or missing complicate joyous relief at the prospect of an end to the rule of Bashar al-Assad.`\
+https://nytimes.com/2024/12/08/world/middleeast/syria-damascus-eyewitness-assad.html
+
 **Navarro: Skipping the ACC title game might have been the smarter play for SMU**\
 `After loss to Clemson, the Mustangs are hoping the CFP committee still thinks they deserve an at-large spot. The ACC h reason to be worried.`\
 https://nytimes.com/athletic/5977425/2024/12/08/smu-clemson-acc-championship-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976092/2024/12/08/liverpool-everton-derby-postpone
 **Wild off their game in rare poor road outing against stingy opponent: 3 takeaways vs. Kings**\
 `The Wild's 4-1 loss to the Kings was their second regulation loss in 16 road games and first regulation loss in their past 10 road games.`\
 https://nytimes.com/athletic/5977298/2024/12/08/wild-kings-takeaways-road-record/
-
-**Explained: FIFA and DAZN's $1billion broadcast deal for the 2025 Club World Cup**\
-`The Athletic breaks down FIFA’s agreement with DAZN and what the $1billion deal means for the clubs participating next summer…`\
-https://nytimes.com/athletic/5976385/2024/12/08/club-world-cup-dazn-1billion-broadcast-deal/
 
