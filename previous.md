@@ -1,3 +1,7 @@
+**A President Rejected by Voters Eight Years Ago Wins Election Again in Ghana**\
+`John Dramani Mahama, who served as president from 2012 to 2017, is set to return to office after his main opponent, Mahamudu Bawumia, conceded defeat.`\
+https://nytimes.com/2024/12/08/world/africa/ghana-presidential-election.html
+
 **Conor McGregor lost a civil rape case. Will it harm his earnings or UFC career?**\
 `While the life of a woman is in tatters, will there be any impact beyond paying damages for the UFC star?`\
 https://nytimes.com/athletic/5950977/2024/12/08/conor-mcgregor-ufc-earnings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/crosswords/wordle-review-1269.html
 **Commerce Dept. Is on the Front Lines of China Policy**\
 `Over the past four years, the department has confronted the challenge of China by restricting key exports, a policy that is likely to continue in the Trump administration.`\
 https://nytimes.com/2024/12/08/us/politics/commerce-dept-is-on-the-front-lines-of-china-policy.html
-
-**How Will Donald Trump’s Comeback Look on the Wall?**\
-`Portraits of the presidents hang outside the boardroom at The New York Times Building.`\
-https://nytimes.com/2024/12/08/insider/presidents-board-room.html
 
