@@ -1,3 +1,11 @@
+**Miho Nakayama, Japanese Music and Movie Star, Dies at 54**\
+`A top-selling pop singer as a teenager in the 1980s, she also had an award-winning career as a dramatic actress.`\
+https://nytimes.com/2024/12/07/arts/music/miho-nakayama-dead.html
+
+**‘Wizard of Oz’ Ruby Slippers Sell at Auction for a Record $28 Million**\
+`The slippers, worn by Judy Garland in “The Wizard of Oz,” were stolen from the museum that bears her name in 2005 before investigators recovered them in 2018.`\
+https://nytimes.com/2024/12/07/us/wizard-oz-garland-ruby-slippers-auction.html
+
 **How far will Texas fall? What we're learning about the Playoff from conference title games**\
 `College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
 https://nytimes.com/athletic/5976722/2024/12/07/college-football-playoff-bracket-conference-championship-games/
