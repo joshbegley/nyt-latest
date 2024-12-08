@@ -1,3 +1,7 @@
+**A work in progress, Blackhawks lose in interim coach Anders Sorensen's debut: Observations**\
+`One practice under Sorensen wasn't going to fix the Blackhawks, and we were all reminded of that in their 4-2 loss to the Jets.`\
+https://nytimes.com/athletic/5977162/2024/12/07/blackhawks-coach-anders-sorensen-debut/
+
 **Charlotte hiring Ohio coach Tim Albin, who led Bobcats to MAC crown: Source**\
 `Albin would take over a young Charlotte program that began play in 2013 and has reached one bowl game in its history.`\
 https://nytimes.com/athletic/5977202/2024/12/07/tim-albin-charlotte-coach-ohio-bobcats/

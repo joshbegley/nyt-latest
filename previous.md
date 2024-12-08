@@ -1,3 +1,7 @@
+**A work in progress, Blackhawks lose in interim coach Anders Sorensen's debut: Observations**\
+`One practice under Sorensen wasn't going to fix the Blackhawks, and we were all reminded of that in their 4-2 loss to the Jets.`\
+https://nytimes.com/athletic/5977162/2024/12/07/blackhawks-coach-anders-sorensen-debut/
+
 **Charlotte hiring Ohio coach Tim Albin, who led Bobcats to MAC crown: Source**\
 `Albin would take over a young Charlotte program that began play in 2013 and has reached one bowl game in its history.`\
 https://nytimes.com/athletic/5977202/2024/12/07/tim-albin-charlotte-coach-ohio-bobcats/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977115/2024/12/07/orioles-tyler-oneill-contract/
 **MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
 https://nytimes.com/athletic/5891633/2024/12/07/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
-
-**‘Wizard of Oz’ Ruby Slippers Sell at Auction for a Record $28 Million**\
-`The slippers, worn by Judy Garland in “The Wizard of Oz,” were stolen from the museum that bears her name in 2005 before investigators recovered them in 2018.`\
-https://nytimes.com/2024/12/07/us/wizard-oz-garland-ruby-slippers-auction.html
 
