@@ -2,6 +2,10 @@
 `The final Premier League derby between Everton and Liverpool fell victim to the weather. But some good came of the postponement`\
 https://nytimes.com/athletic/5976287/2024/12/08/everton-liverpool-merseyside-derby-postponed-storm-darragh/
 
+**What we learned about the College Football Playoff from conference championship games**\
+`College Football Playoff takeaways from Saturday's four Power 4 conference championship games. Here's what you need to know.`\
+https://nytimes.com/athletic/5976722/2024/12/08/college-football-playoff-bracket-conference-championship-games/
+
 **Tottenham Hotspur vs Chelsea: Mood at clubs, key players, aims for season and prediction**\
 `Tottenham and Chelsea face one another in the Premier League on Sunday afternoon`\
 https://nytimes.com/athletic/5974529/2024/12/08/tottenham-hotspur-chelsea-preview-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977282/2024/12/07/maple-leafs-penguins-grades-anal
 **Conference title games make no sense in the 12-team College Football Playoff era**\
 `Even Kirby Smart admitted that this year's SEC title game lacked the "same juice and atmosphere" as in previous seasons. `\
 https://nytimes.com/athletic/5977321/2024/12/07/sec-championship-game-georgia-texas-carson-beck/
-
-**Galaxy legend Robbie Keane teases 'conversations' about MLS return as head coach**\
-`Robbie Keane could be on the verge of an MLS comeback as a head coach — and his trademark rolling goal celebration might even follow him into the technical area.`\
-https://nytimes.com/athletic/5977233/2024/12/07/galaxy-legend-robbie-keane-teases-conversations-about-mls-return-as-head-coach/
 

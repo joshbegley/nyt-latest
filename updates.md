@@ -1,3 +1,7 @@
+**Premier League games cost millions to stage - what happens when they are called off?**\
+`The final Premier League derby between Everton and Liverpool fell victim to the weather. But some good came of the postponement`\
+https://nytimes.com/athletic/5976287/2024/12/08/everton-liverpool-merseyside-derby-postponed-storm-darragh/
+
 **Tottenham Hotspur vs Chelsea: Mood at clubs, key players, aims for season and prediction**\
 `Tottenham and Chelsea face one another in the Premier League on Sunday afternoon`\
 https://nytimes.com/athletic/5974529/2024/12/08/tottenham-hotspur-chelsea-preview-premier-league/
