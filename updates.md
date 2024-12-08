@@ -1,3 +1,7 @@
+**The Streets of My Country Are Full of Fury**\
+`Georgia is lurching toward authoritarianism. This may be our last chance to pull it back.`\
+https://nytimes.com/2024/12/08/opinion/georgia-protests.html
+
 **As Syrian Government Loses Control, the Skies Above Go Quiet**\
 `For years, people lived in terror of airstrikes by Syrian and Russian planes that helped keep the country’s authoritarian leader in power.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-quiet-skies.html

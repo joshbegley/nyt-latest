@@ -1,3 +1,7 @@
+**The Streets of My Country Are Full of Fury**\
+`Georgia is lurching toward authoritarianism. This may be our last chance to pull it back.`\
+https://nytimes.com/2024/12/08/opinion/georgia-protests.html
+
 **As Syrian Government Loses Control, the Skies Above Go Quiet**\
 `For years, people lived in terror of airstrikes by Syrian and Russian planes that helped keep the country’s authoritarian leader in power.`\
 https://nytimes.com/2024/12/08/world/middleeast/syria-quiet-skies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5976512/2024/12/08/nfl-week-14-inactives-and-fantas
 **Bill Clinton on the Election, D.E.I. and One of His Regrets**\
 `The former president spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://nytimes.com/2024/12/08/business/dealbook/bill-clinton-dealbook.html
-
-**The location of Bashar al-Assad remains unclear.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/12/08/world/syria-war-damascus/the-location-of-bashar-al-assad-remains-unclear
 
