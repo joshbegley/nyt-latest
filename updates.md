@@ -1,3 +1,7 @@
+**Nebraska to face Boston College in Pinstripe Bowl: 10 thoughts on Huskers' postseason return**\
+`This year marks the 10th consecutive Pinstripe Bowl featuring a Big Ten team. It's also the first matchup between the Huskers and Eagles.`\
+https://nytimes.com/athletic/5979267/2024/12/08/nebraska-pinstripe-bowl-college-football-boston-college/
+
 **Barkley, Hurts help Eagles edge Panthers 22-16: Takeaways**\
 `Barkley set the franchise record for most rushing yards in a single season.`\
 https://nytimes.com/athletic/5978177/2024/12/08/panthers-eagles-score-result-takeaways/
