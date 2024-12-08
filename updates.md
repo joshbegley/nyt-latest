@@ -1,3 +1,7 @@
+**The top 90 remaining MLB free agents**\
+`With the Hot Stove warming up and the Winter Meetings finally here, let's pull back and survey the free-agent field. `\
+https://nytimes.com/athletic/5976787/2024/12/08/top-remaining-mlb-free-agents-hot-stove/
+
 **The Briefing: Girona 0 Real Madrid 3 - Bellingham shines, Mbappe and Guler ease the pressure**\
 `Madrid are one victory from going top of La Liga and with Jude Bellingham in fine form there are plenty of reasons to be positive`\
 https://nytimes.com/athletic/5977501/2024/12/08/real-madrid-girona-jude-bellingham/
