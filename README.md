@@ -1,5 +1,9 @@
+**Angela Alvarez, Great-Grandmother Who Won a Latin Grammy, Dies at 97**\
+`Her only album made her a media star after she had raised four children and worked as a house cleaner — proving, she said, that “it’s never too late.”`\
+https://nytimes.com/2024/12/08/arts/music/angela-alvarez-dead.html
+
 **The Briefing: Fulham 1 Arsenal 1: How much of a blow will VAR decision be? Did wind impact corners?**\
-`Arsenal were held to a 1-1 draw by Fulham on Sunday afternoon after a late VAR decision ruled out a Bukayo Saka goal`\
+`Arsenal were held to a 1-1 draw by Fulham on Sunday afternoon after a late VAR decision ruled out a Bukayo Saka winner`\
 https://nytimes.com/athletic/5974240/2024/12/08/fulham-arsenal-result-report-analysis/
 
 **Why the Giants gave Willy Adames the largest contract in franchise history**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/technology/apple-child-sexual-abuse-material-laws
 **Family Renews Appeal to Find U.S. Journalist Missing in Syria**\
 `Relatives of Austin Tice, who disappeared in 2012 near the Syrian capital, said they believe that he is alive.`\
 https://nytimes.com/2024/12/08/world/middleeast/austin-tice-syria-journalist.html
-
-**Chiung Yao, Influential Taiwanese Romance Novelist, Dies at 86**\
-`One of the most successful writers in the Chinese-speaking world, she filled her plots with twists and turns, but love always transcended all.`\
-https://nytimes.com/2024/12/08/books/chiung-yao-dead.html
 
