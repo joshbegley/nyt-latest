@@ -1,3 +1,7 @@
+**In race for No. 1 NFL draft pick, there are two clear favorites after Week 14**\
+`Jacksonville's win Sunday makes the battle for first overall a two-team race between the New York Giants and Las Vegas Raiders.`\
+https://nytimes.com/athletic/5978876/2024/12/08/race-to-no-1-draft-pick-nfl/
+
 **Syrians in New York City celebrate the fall of Assad.**\
 `By Sabir Hasko`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syrians-in-new-york-city-celebrate-the-fall-of-assad
