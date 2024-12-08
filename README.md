@@ -1,3 +1,7 @@
+**Bayern retire No 5 shirt in honour of Beckenbauer**\
+`Bayern Munich members have voted to retire the club&#8217;s No 5 shirt in honour of their former player and manager Franz Beckenbauer, who died in January this year aged 78.`\
+https://nytimes.com/athletic/5977719/2024/12/08/bayern-munich-retire-5-franz-beckenbauer/
+
 **Cade Cunningham's MSG triple-double grows All-Star case as Pistons down Knicks**\
 `Cade Cunningham is amid the best stretch of his professional career and making a case for his first All-Star bid.`\
 https://nytimes.com/athletic/5977410/2024/12/08/cade-cunningham-triple-double-pistons-knicks-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/08/opinion/health-care-anger.html
 **The Tennessee Trans Treatment Case Is About Age, Not Sex**\
 `The state’s ban on gender-affirming medical care for minors passes the constitutional test.`\
 https://nytimes.com/2024/12/08/opinion/tennessee-trans-supreme-court-case.html
-
-**A New Movie Dares to Suggest that Motherhood Might Be (Gasp) Fun**\
-`“Nightbitch” seems like a horror film about the transformations demanded by motherhood, but its underlying message is much more radical than that.`\
-https://nytimes.com/2024/12/08/opinion/nightbitch-amy-adams-motherhood.html
 
