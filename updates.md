@@ -1,3 +1,7 @@
+**College football bowl projections: Final predictions for complete '24-25 schedule**\
+`The conference champions have been crowned. Who will make the 12-team Playoff, and how will it affect the non-CFP bowl pairings?`\
+https://nytimes.com/athletic/5915859/2024/12/08/college-football-bowl-projections-9/
+
 **Clemson's improbable ACC championship sets up Playoff berth: 'Anything can happen'**\
 `The Tigers beat SMU 34-31 for the ACC championship and won their way into the College Football Playoff.`\
 https://nytimes.com/athletic/5977530/2024/12/08/clemson-acc-championship-smu-college-football/
