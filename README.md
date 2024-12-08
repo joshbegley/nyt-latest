@@ -1,3 +1,7 @@
+**Threatened With Jail, Cheney Decries Trump’s ‘Assault on the Rule of Law’**\
+`Liz Cheney, the former Republican representative, said President-elect Donald J. Trump “lied about” the bipartisan House committee that investigated his role in the Jan. 6, 2021, attack.`\
+https://nytimes.com/2024/12/08/us/politics/liz-cheney-donald-trump.html
+
 **With Assad Gone, a Brutal Dictatorship Ends. But the New Risks Are Huge.**\
 `The overthrow of the Assad government could mean Russia’s bases in Syria are closed and Iran’s pathway to Hezbollah is cut off. Now Iran, newly vulnerable, will have to decide between negotiation and the bomb.`\
 https://nytimes.com/2024/12/08/us/politics/syria-assad-iran-risks.html
@@ -31,10 +35,6 @@ https://nytimes.com/live/2024/12/08/world/syria-war-damascus/government-soldiers
 https://nytimes.com/2024/12/08/arts/music/marvin-laird-dead.html
 
 **Raiders QB Aidan O'Connell carted off with knee injury**\
-`Desmond Ridder took over as the Raiders quarterback with second-year player ruled out. `\
+`Desmond Ridder took over as Raiders quarterback with O'Connell, a second-year player, ruled out. `\
 https://nytimes.com/athletic/5978823/2024/12/08/aidan-oconnell-knee-injury-raiders/
-
-**Five Quick Takes on Regime Change in Syria**\
-`Assad’s fall creates vast dangers and opportunities that everyone in the region will seize upon.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/friedman-syria-iran-future
 
