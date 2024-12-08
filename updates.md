@@ -1,3 +1,11 @@
+**Formula 1 mailbag: Submit your end-of-season questions for our writers**\
+`Reflecting on 2024 or looking ahead to 2025? It was a phenomenal season, and we'd like to hear from you.`\
+https://nytimes.com/athletic/5978046/2024/12/08/formula-1-mailbag-season-finale-abu-dhabi/
+
+**West Ham's Antonio has surgery after car accident**\
+`West Ham United have confirmed that forward Michail Antonio has had surgery on a &#8220;lower limb fracture&#8221; after being involved in a car accident on Saturday.`\
+https://nytimes.com/athletic/5978015/2024/12/08/west-ham-michail-antonio-surgery-car/
+
 **West Ham's Antonio has surgery after car accident**\
 `West Ham United have confirmed that forward Michail Antonio has had surgery on a &#8220;lower limb fracture&#8221; after being involved in a car accident on Saturday.`\
 https://nytimes.com/athletic/5978015/2024/12/08/west-ham-michail-antonio-surgery-car-acciddent/

@@ -1,6 +1,10 @@
+**Formula 1 mailbag: Submit your end-of-season questions for our writers**\
+`Reflecting on 2024 or looking ahead to 2025? It was a phenomenal season, and we'd like to hear from you.`\
+https://nytimes.com/athletic/5978046/2024/12/08/formula-1-mailbag-season-finale-abu-dhabi/
+
 **West Ham's Antonio has surgery after car accident**\
 `West Ham United have confirmed that forward Michail Antonio has had surgery on a &#8220;lower limb fracture&#8221; after being involved in a car accident on Saturday.`\
-https://nytimes.com/athletic/5978015/2024/12/08/west-ham-michail-antonio-surgery-car-acciddent/
+https://nytimes.com/athletic/5978015/2024/12/08/west-ham-michail-antonio-surgery-car/
 
 **Purdue close to hiring UNLV's Odom: Source**\
 `Odom went 19-8 the past two seasons at UNLV, taking the long downtrodden program to its first two Mountain West championship games.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5960099/2024/12/08/mclaren-f1-2024-championship-sea
 **The Streets of My Country Are Full of Fury**\
 `Georgia is lurching toward authoritarianism. This may be our last chance to pull it back.`\
 https://nytimes.com/2024/12/08/opinion/georgia-protests.html
-
-**As Syrian Government Loses Control, the Skies Above Go Quiet**\
-`For years, people lived in terror of airstrikes by Syrian and Russian planes that helped keep the country’s authoritarian leader in power.`\
-https://nytimes.com/2024/12/08/world/middleeast/syria-quiet-skies.html
 
