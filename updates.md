@@ -1,3 +1,19 @@
+**Submit a question for Kelly Iko’s Southwest Division mailbag**\
+`Life is good in the Southwest Division, assuming you’re not a diehard Pelicans fan.`\
+https://nytimes.com/athletic/5981250/2024/12/09/rockets-grizzlies-spurs-mailbag/
+
+**Germany suspends asylum decisions for Syrians.**\
+`Nearly a million Syrians currently live in Germany, the vast majority having left during the civil war.`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/germany-asylum-syrians
+
+**As rebels rush to establish order, governments weigh recognizing a group they once shunned as extremist.**\
+`By Vivian Yee`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/as-rebels-rush-to-establish-order-governments-weigh-recognizing-a-group-they-once-shunned-as-extremist
+
+**Coote sacked by PGMOL over conduct**\
+`Premier League referee David Coote has had his contract terminated by the Professional Game Match Officials Limited (PGMOL) following an investigation into his conduct.`\
+https://nytimes.com/athletic/5917480/2024/12/09/david-coote-verdict-pgmol/
+
 **Fighting still rages in northern Syria as rebel groups vie for territory.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/fighting-still-rages-in-northern-syria-as-rebel-groups-vie-for-territory
