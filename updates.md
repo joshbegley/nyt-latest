@@ -1,3 +1,11 @@
+**Who Is Alina Habba, the Lawyer Trump Picked to Serve as Counselor to the President?**\
+`Ms. Habba, who has advised the president-elect on legal matters in recent years, offered fiery defenses of him during his civil fraud trial in New York.`\
+https://nytimes.com/2024/12/09/us/politics/alina-habba-trump-lawyer-counselor.html
+
+**Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
+`A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
+https://nytimes.com/2024/12/09/nyregion/uhc-ceo-murder-suspect.html
+
 **Heat Today: Miami is doing it again with Dru Smith**\
 `The Heat always seem to find reliable undrafted contributors to help them win. Here's the newest example.`\
 https://nytimes.com/athletic/5980974/2024/12/09/dru-smith-miami-heat-nba-jimmy-butler-tyler-herro-bam-adebayo/

@@ -1,3 +1,7 @@
+**Who Is Alina Habba, the Lawyer Trump Picked to Serve as Counselor to the President?**\
+`Ms. Habba, who has advised the president-elect on legal matters in recent years, offered fiery defenses of him during his civil fraud trial in New York.`\
+https://nytimes.com/2024/12/09/us/politics/alina-habba-trump-lawyer-counselor.html
+
 **Heat Today: Miami is doing it again with Dru Smith**\
 `The Heat always seem to find reliable undrafted contributors to help them win. Here's the newest example.`\
 https://nytimes.com/athletic/5980974/2024/12/09/dru-smith-miami-heat-nba-jimmy-butler-tyler-herro-bam-adebayo/
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/5981209/2024/12/09/chris-paul-spurs-assists-nba-mil
 
 **Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
 `A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
-https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect/uhc-ceo-murder-suspect
+https://nytimes.com/2024/12/09/nyregion/uhc-ceo-murder-suspect.html
 
 **The Windup: Inside Juan Soto’s $765M megadeal**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981464/2024/12/09/central-michigan-head-coach-matt
 **Daniel Penny Is Acquitted in Death of Jordan Neely on Subway**\
 `Mr. Penny choked Mr. Neely in a minutes-long struggle on the floor of an F train. The case reflected the pathologies of post-pandemic New York.`\
 https://nytimes.com/2024/12/09/nyregion/daniel-penny-not-guilty-jordan-neely.html
-
-**In Syria, an Image of Rebellion Embodied in a Hoodie**\
-`The quotidian uniforms of Syrian rebels, as they appeared on television, draws a powerful contrast to the image of President Bashar al-Assad.`\
-https://nytimes.com/2024/12/09/style/in-syria-an-image-of-rebellion-embodied-in-a-hoodie.html
 
