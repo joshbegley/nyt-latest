@@ -1,3 +1,11 @@
+**Lara Trump to Step Down as R.N.C. Co-Chair Amid Florida Senate Speculation**\
+`The daughter-in-law of President-elect Donald J. Trump, Ms. Trump gave no indication of her next move. Senator Marco Rubio’s seat would become open if he’s confirmed as secretary of state.`\
+https://nytimes.com/2024/12/09/us/politics/lara-trump-rnc-florida-senate.html
+
+**Texas A&M DL, top-15 prospect Shemar Stewart declares for 2025 NFL Draft**\
+`Stewart is one of the many decorated members of Texas A&M's record-setting 2022 recruiting class to move on this offseason.`\
+https://nytimes.com/athletic/5981269/2024/12/09/shemar-stewart-nfl-draft-texas-am/
+
 **Roebuck makes 'dream' return to football after stroke**\
 `Barcelona goalkeeper Ellie Roebuck has reflected on making her &#8220;dream&#8221; return to first-team action after recovering from a stroke.`\
 https://nytimes.com/athletic/5981294/2024/12/09/ellie-roebuck-barcelona-return-stroke/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5981086/2024/12/09/army-navy-game-cbs-extension/
 **Nobody Is Coming to Save Us**\
 `The fine artist and illustrator Oliver Jeffers on climate change, A.I. and the idea that maybe everything is pretty much our fault.`\
 https://nytimes.com/2024/12/09/special-series/oliver-jeffers-2024-reflections.html
-
-**Despite loss, Wolves believe they have found their identity: 'Good things will happen'**\
-`"It wasn't Christmas today," Rudy Gobert said after Sunday's loss to the Warriors. "It was Halloween today."`\
-https://nytimes.com/athletic/5979285/2024/12/09/timberwolves-identity/
-
-**‘Emilia Pérez’ Tops Golden Globe Nominations**\
-`The movie received 10 nods, leading the field. Angelina Jolie, Timothée Chalamet, Pamela Anderson and Zendaya drew acting nominations.`\
-https://nytimes.com/2024/12/09/movies/golden-globes-2025.html
 
