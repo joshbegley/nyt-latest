@@ -1,3 +1,7 @@
+**Cease-Fire Talks Between Israel and Hamas Gain Momentum, Officials Say**\
+`While a deal was not yet in hand, a crack in the stalemate comes after Israel and Hezbollah reached its own truce and President-elect Donald J. Trump ratcheted up the pressure for an agreement.`\
+https://nytimes.com/2024/12/09/world/middleeast/israel-hamas-cease-fire-talks.html
+
 **Wayne Gretzky on Alex Ovechkin's pursuit of goals record: 'He'll get a little bit nervous near the end'**\
 `Ovechkin is 26 goals shy of Gretzky's total of 894 and should have 48 to 52 games left this regular season when he returns from injury.`\
 https://nytimes.com/athletic/5982121/2024/12/09/wayne-gretzky-alex-ovechkin-goals-record/

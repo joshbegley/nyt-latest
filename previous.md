@@ -1,3 +1,7 @@
+**Cease-Fire Talks Between Israel and Hamas Gain Momentum, Officials Say**\
+`While a deal was not yet in hand, a crack in the stalemate comes after Israel and Hezbollah reached its own truce and President-elect Donald J. Trump ratcheted up the pressure for an agreement.`\
+https://nytimes.com/2024/12/09/world/middleeast/israel-hamas-cease-fire-talks.html
+
 **Wayne Gretzky on Alex Ovechkin's pursuit of goals record: 'He'll get a little bit nervous near the end'**\
 `Ovechkin is 26 goals shy of Gretzky's total of 894 and should have 48 to 52 games left this regular season when he returns from injury.`\
 https://nytimes.com/athletic/5982121/2024/12/09/wayne-gretzky-alex-ovechkin-goals-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/style/unitedhealthcare-ceo-suspect-social-media.h
 **Man Detained After C.E.O. Shooting Had a Manifesto, Police Say**\
 `The handwritten document found with Luigi Mangione described his “motivation and mind-set” and conveyed “ill will toward corporate America,” according to the authorities.`\
 https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-suspect-manifesto.html
-
-**Belichick confirms UNC conversations, makes pitch for college job**\
-`Belichick said if he were to coach an FBS team, it would be "an NFL program at a college level."`\
-https://nytimes.com/athletic/5981833/2024/12/09/bill-belichick-unc-football-pat-mcaffee-comments/
 
