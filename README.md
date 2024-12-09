@@ -1,7 +1,3 @@
-**How Yankees, Rays will handle temporary home ballpark in Tampa**\
-`The Rays will play at the Yankees' spring training ballpark for the 2025 season due to damage at Tropicana Field from Hurricane Milton.`\
-https://nytimes.com/athletic/5979402/2024/12/08/rays-temporary-home-ballpark-yankees/
-
 **Quinn Hughes’ offensive evolution, Canucks' defensive woes vs. Lightning: 3 takeaways**\
 `Vancouver was competitive and close at even strength with sharp goaltending but fell 4-2 to Tampa Bay's elite forwards.`\
 https://nytimes.com/athletic/5978996/2024/12/08/quinn-hughes-canucks-lightning-loss/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/08/arts/television/steve-mensch-dead.html
 **Notre-Dame Holds First Public Mass in Years: ‘Fire Has Not Conquered Stone’**\
 `Sunday was the first opportunity for worshipers to return to the cathedral, beloved by the faithful and secular alike, since the 2019 fire that devastated it.`\
 https://nytimes.com/2024/12/08/world/europe/notre-dame-reopened-mass.html
+
+**Utah coach Kyle Whittingham announces return for 21st season in 2025**\
+`On the heels of a disappointing 5-7 season, questions arose regarding Whittingham’s immediate future.`\
+https://nytimes.com/athletic/5979308/2024/12/08/utah-kyle-whittingham-return/
 
