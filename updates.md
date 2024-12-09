@@ -1,3 +1,15 @@
+**Minnesota Vikings Find Unlikely Muse for Celebration Dance: ‘White Chicks’**\
+`Not everyone loved the 2004 film “White Chicks.” But 20 years later, some N.F.L. players are paying homage to it in the end zone.`\
+https://nytimes.com/2024/12/08/sports/minnesota-vikings-white-chicks-dance.html
+
+**Dodgers to sign outfielder Michael Conforto to 1-year, $17 million deal: Sources**\
+`Adding Conforto gives the Dodgers at least some short-term stability for an outfield that was set to become much younger next season.`\
+https://nytimes.com/athletic/5980008/2024/12/08/dodgers-sign-michael-conforto-contract/
+
+**MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
+https://nytimes.com/athletic/5891633/2024/12/08/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Juan Soto to join New York Mets on 15-year, $765 million megadeal: Source**\
 `Soto, still just 26 years old, becomes the highest-paid player in baseball, eclipsing the contract of Shohei Ohtani.`\
 https://nytimes.com/athletic/5932790/2024/12/08/juan-soto-mets-free-agent-deal/
