@@ -1,3 +1,7 @@
+**Men’s college basketball Top 25: An all-SEC debate for the true No. 1**\
+`Auburn lost a slugfest at Duke, but the Tigers still deserve to lead a sizable group of the SEC's best teams vying for rankings supremacy.`\
+https://nytimes.com/athletic/5975620/2024/12/09/college-basketball-top-25-auburn-tennessee/
+
 **Pulisic set to miss at least two weeks with calf muscle tear**\
 `USMNT and Milan forward Christian Pulisic is set to be sidelined for at least two weeks after sustaining a minor tear to a muscle in his right calf.`\
 https://nytimes.com/athletic/5980722/2024/12/09/christian-pulisic-injury-update-milan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980610/2024/12/09/kawhi-leonard-return-clippers/
 **Dries Van Noten Names a New Dries Van Noten**\
 `Julian Klausner, who has been head of its women’s studio, is stepping into the founder’s shoes.`\
 https://nytimes.com/2024/12/09/style/dries-van-noten-new-designer-julian-klausner.html
-
-**FPL: What we learnt from Gameweek 15 – more Arsenal uncertainty and the rise of Fernandez**\
-`Abdul Rehman breaks down the main talking points from Gameweek 15 so far in Fantasy Premier League `\
-https://nytimes.com/athletic/5978435/2024/12/09/fantasy-premier-league-what-we-learnt-from-gameweek-15-more-arsenal-uncertainty-and-the-rise-of-enzo/
 
