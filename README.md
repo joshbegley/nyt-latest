@@ -1,3 +1,7 @@
+**College football bowl watch guide: Schedule and odds for every bowl game**\
+`It's bowl season! We have every matchup with kickoff time, TV info and betting odds. Plus, a look at a few games to watch.`\
+https://nytimes.com/athletic/5978829/2024/12/08/college-football-bowl-schedule-odds/
+
 **How Yankees, Rays will handle temporary home ballpark in Tampa**\
 `The Rays will play at the Yankees' spring training ballpark for the 2025 season due to damage at Tropicana Field from Hurricane Milton.`\
 https://nytimes.com/athletic/5979402/2024/12/08/rays-temporary-home-ballpark-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syrians-in-new-york
 **Steve Mensch, President of Tyler Perry Studios, Dies at 62**\
 `Mr. Mensch, a longtime supporter of the film industry in Georgia, died in a plane crash on Friday in Florida, according to officials.`\
 https://nytimes.com/2024/12/08/arts/television/steve-mensch-dead.html
-
-**Notre-Dame Holds First Public Mass in Years: ‘Fire Has Not Conquered Stone’**\
-`Sunday was the first opportunity for worshipers to return to the cathedral, beloved by the faithful and secular alike, since the 2019 fire that devastated it.`\
-https://nytimes.com/2024/12/08/world/europe/notre-dame-reopened-mass.html
 
