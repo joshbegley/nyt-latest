@@ -1,3 +1,11 @@
+**Eyes, Not Tech, Led Police to ‘Person of Interest’ in C.E.O. Killing**\
+`The key was not advanced facial recognition technology. An employee at a Pennsylvania McDonald’s reported the man after seeing a widely-circulated image of the suspect.`\
+https://nytimes.com/2024/12/09/nyregion/uhc-ceo-suspect-photos-facial-recognition.html
+
+**What we know about Bill Belichick and UNC's complicated coaching search**\
+`What has transpired behind the scenes since Mack Brown’s firing highlights how disagreements can turn a college coaching search messy.`\
+https://nytimes.com/athletic/5981891/2024/12/09/bill-belichick-unc-football-coaching-search/
+
 **Kirill Kaprizov, early favorite for the Hart Trophy, has also been all-heart for the Wild**\
 `Even with Kirill Kaprizov seemingly scoring at will, he lifts his teammates in other ways that don't appear on the scoresheet.`\
 https://nytimes.com/athletic/5982457/2024/12/09/wild-kaprizov-hart-trenin-linemates/
