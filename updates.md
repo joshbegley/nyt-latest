@@ -1,3 +1,7 @@
+**My Last Column: Finding Hope in an Age of Resentment**\
+`Where have all the good vibes gone?`\
+https://nytimes.com/2024/12/09/opinion/elites-euro-social-media.html
+
 **Josh Allen's best-ever QB fantasy performance and those he surpassed**\
 `Josh Allen had the best-ever fantasy performance by a QB in the history of the NFL. Comparing the other four QBs since 2004 who came close.`\
 https://nytimes.com/athletic/5982189/2024/12/09/josh-allen-best-ever-qb-nfl-fantasy-football-performance/
