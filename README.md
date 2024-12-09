@@ -1,10 +1,14 @@
+**Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
+`A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
+https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
+
 **Chris Paul, the ‘ultimate leader, ultimate competitor’, achieves another NBA milestone**\
 `Paul surpasses Jason Kidd for second place in career NBA assists with 12,099.`\
 https://nytimes.com/athletic/5981209/2024/12/09/chris-paul-spurs-assists-nba-milestone/
 
 **Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
 `A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
-https://nytimes.com/2024/12/09/nyregion/uhc-ceo-murder-suspect.html
+https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect/uhc-ceo-murder-suspect
 
 **The Windup: Inside Juan Soto’s $765M megadeal**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981383/2024/12/09/week-14-risers-fallers-nfl-rams-
 **What Syria Needs in Order to Rebuild**\
 `U.S. sanctions policy in the country must change.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/syria-us-sanctions
-
-**Expanding the Laws on Assisted Dying**\
-`Readers discuss the British vote on the issue and urge actions in the U.S. Also: Safeguarding our food; taxing cow burps in Denmark; a crossword tale.`\
-https://nytimes.com/2024/12/09/opinion/assisted-dying-uk.html
 
