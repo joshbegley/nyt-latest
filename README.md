@@ -1,3 +1,11 @@
+**Syrian Military Officials Charged With War Crimes as Government Falls**\
+`Jamil Hassan and Abdul Salam Mahmoud ran an infamous prison in Damascus and “sought to terrify, intimidate and repress any opposition, or perceived opposition, to the regime,” according to the indictment.`\
+https://nytimes.com/2024/12/09/us/politics/justice-department-syria-war-crimes.html
+
+**Police Arrested a ‘Strong Person of Interest’ in Killing of C.E.O.**\
+`Also, rebels asserted control in Syria. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/12/09/briefing/police-new-york-arrest-syria-rebels-government.html
+
 **49ers minutia minute: Isaac Guerendo iffy for Thursday; who's the next man up?**\
 `A 49ers' edge on Thursday: Most starters were on the sideline late in Week 14's lopsided win, while only one D-lineman played over 30 snaps.`\
 https://nytimes.com/athletic/5982312/2024/12/09/49ers-isaac-guerendo-injury-status-snap-counts/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/09/opinion/elites-euro-social-media.html
 **Trump Wants to Abolish Birthright Citizenship. Can He Do So?**\
 `The president-elect has revived his wish to do away with automatic citizenship for anyone born in the United States. The Constitution stands in his way.`\
 https://nytimes.com/article/trump-birthright-citizenship-constitution.html
-
-**How Netflix Made Magic Look Real in ‘One Hundred Years of Solitude’**\
-`The first-ever screen adaptation will be released this week — a feat even the author didn’t think possible. We traveled to the set in Colombia to see how it was done.`\
-https://nytimes.com/interactive/2024/12/09/books/one-hundred-years-of-solitude-netflix-magical-realism.html
-
-**Senator Grassley joins Trump in attacking the F.B.I. director.**\
-`By Maya C. Miller`\
-https://nytimes.com/live/2024/12/09/us/trump-news/senator-grassley-joins-trump-in-attacking-the-fbi-director
 
