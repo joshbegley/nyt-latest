@@ -1,3 +1,11 @@
+**What the 7 teams who lost Juan Soto should do next**\
+`The free-agent market is expected to heat up now that Soto is gone.`\
+https://nytimes.com/athletic/5963398/2024/12/08/what-the-7-teams-who-lost-juan-soto-should-do-next/
+
+**Dodgers, Blake Treinen agree to reunion with 2-year, $22 million deal: Sources**\
+`Over 50 appearances in 2024, Treinen posted a 1.93 ERA, with strong underlying numbers, along with some postseason heroics.`\
+https://nytimes.com/athletic/5941165/2024/12/08/blake-treinen-dodgers-free-agent-deal/
+
 **Mets land Juan Soto behind $765 million and Steve Cohen's personalized approach**\
 `In addition to paying top dollar, Cohen demonstrated his intentions to win and hit all the right notes in his pitch to Soto.`\
 https://nytimes.com/athletic/5969413/2024/12/08/juan-soto-mets-contract-steve-cohen/
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/5979969/2024/12/08/seahawks-win-playoff-hopes-cardi
 `In NFL's Week 14 game between the Bills and the Rams, Tom Brady had his best performance yet in the Fox broadcast booth.`\
 https://nytimes.com/athletic/5979996/2024/12/08/tom-brady-fox-sports-broadcast-tv-bills-rams-week-14-richard-deitsch-review/
 
-**Before dismantling Bears, the 49ers found their missing element: desperation**\
+**Before dismantling Bears, the 49ers found their missing element: Desperation**\
 `For the first time this season, the 49ers looked like their 2023 selves for a full game — even while missing many of their 2023 stars.
 `\
 https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5941131/2024/12/08/juan-soto-contract-mets-mlb-free
 **Mets sign Juan Soto: 3 biggest reasons it's a major disappointment for Yankees**\
 `Despite all of Soto's success with the Yankees in 2024, it will almost certainly end up being his lone season in pinstripes.`\
 https://nytimes.com/athletic/5961373/2024/12/08/yankees-juan-soto-free-agency-disappointment/
-
-**Minnesota Vikings Find Unlikely Muse for Celebration Dance: ‘White Chicks’**\
-`Not everyone loved the 2004 film “White Chicks.” But 20 years later, some N.F.L. players are paying homage to it in the end zone.`\
-https://nytimes.com/2024/12/08/sports/minnesota-vikings-white-chicks-dance.html
-
-**Juan Soto to join New York Mets on 15-year, $765 million megadeal: Source**\
-`Soto, still just 26 years old, becomes the highest-paid player in baseball, eclipsing the contract of Shohei Ohtani.`\
-https://nytimes.com/athletic/5932790/2024/12/08/juan-soto-mets-free-agent-deal/
 
