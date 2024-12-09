@@ -1,3 +1,11 @@
+**Tottenham sacking Ange Postecoglou now would be a mistake**\
+`Tottenham fell to a defeat against Chelsea and have struggled this season — but it is not time to make a change`\
+https://nytimes.com/athletic/5978853/2024/12/09/tottenham-ange-postecoglou-future/
+
+**Why Pep Guardiola is feeling the pressure - and how he is dealing with it**\
+`Pep Guardiola has visibly been struggling with City's difficult run of results`\
+https://nytimes.com/athletic/5977012/2024/12/09/pep-guardiola-pressure-manchester-city/
+
 **We've done a fact check and it's true: Chelsea are back**\
 `They're not title contenders yet, but it's a side fans can be proud of again`\
 https://nytimes.com/athletic/5978215/2024/12/09/chelsea-are-back-fans-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/09/briefing/syria-al-assad-trump-hamas.html
 **Revolutions Swept the Middle East in 2011. Will Syria’s End Differently?**\
 `Bashar al-Assad’s downfall evokes memories of uprisings in Egypt, Libya, Tunisia and Yemen, each of which brought civil war or authoritarian rule. Syrians hope for better.`\
 https://nytimes.com/2024/12/09/world/middleeast/syria-revolutions-middle-east.html
-
-**India’s Luxury Property Market Is a Boon to Trump’s Business**\
-`The Trump Organization finds a warm welcome in India, where status-hungry home buyers clamor for a famous American brand.`\
-https://nytimes.com/2024/12/09/business/trump-organization-india.html
-
-**Britain’s Flawed Jobs Reports Leave Economists ‘Second-Guessing’**\
-`Officials are grappling with an incomplete picture of Britain’s labor market as the national statistics agency strains to improve data quality.`\
-https://nytimes.com/2024/12/09/business/britain-jobs-data.html
 
