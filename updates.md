@@ -1,3 +1,7 @@
+**TikTok Asks Court to Temporarily Freeze Sale-or-Ban Law**\
+`The company is requesting a pause on a law that requires the app to be sold or face a ban in the United States by mid-January, aiming to buy time for the Supreme Court or the incoming Trump administration to rescue it.`\
+https://nytimes.com/2024/12/09/business/tiktok-temporary-pause-ban-supreme-court-trump.html
+
 **Saints' Derek Carr fractures left hand, could miss rest of season**\
 `The Saints are 5-5 with their starting quarterback in the lineup. Who will they turn to if he has to miss time?`\
 https://nytimes.com/athletic/5979386/2024/12/09/saints-derek-carr-hand-injury/
