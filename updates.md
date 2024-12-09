@@ -1,3 +1,19 @@
+**How to Apply Makeup That Lasts**\
+`Advice from Tinashe, Justin Vivian Bond and Yadim.`\
+https://nytimes.com/2024/12/09/t-magazine/makeup-that-lasts-tinashe.html
+
+**Quantum Computing Inches Closer to Reality After Another Google Breakthrough**\
+`Google unveiled an experimental machine capable of tasks that a traditional supercomputer could not master in 10 septillion years. (That’s older than the universe.)`\
+https://nytimes.com/2024/12/09/technology/google-quantum-computing.html
+
+**Give Your Salmon an Anchovy Butter Boost**\
+`In my five-star salmon dinner, anchovies lend their intense and pungent bite to the sweet pink fillets.`\
+https://nytimes.com/2024/12/09/dining/give-your-salmon-an-anchovy-butter-boost.html
+
+**To Become a Better Runner, Should You Adjust Your Form?**\
+`Many runners believe their natural stride could be improved. Here’s what to know before trying to change yours.`\
+https://nytimes.com/2024/12/09/well/move/running-form-fitness.html
+
 **Lara Trump to Step Down as R.N.C. Co-Chair Amid Florida Senate Speculation**\
 `The daughter-in-law of President-elect Donald J. Trump, Ms. Trump gave no indication of her next move. Senator Marco Rubio’s seat would become open if he’s confirmed as secretary of state.`\
 https://nytimes.com/2024/12/09/us/politics/lara-trump-rnc-florida-senate.html
