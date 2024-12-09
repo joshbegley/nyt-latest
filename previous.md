@@ -1,3 +1,7 @@
+**The Briefing: West Ham 2 Wolves 1 - Lopetegui relief, pressure increases on O'Neil and support for Antonio**\
+`Tim Spiers, Roshane Thomas and Steve Madeley analyse the key talking points from West Ham's victory over Wolves`\
+https://nytimes.com/athletic/5980913/2024/12/09/west-ham-wolves-analysis/
+
 **Finding Hope in an Age of Resentment**\
 `Where have all the good vibes gone?`\
 https://nytimes.com/2024/12/09/opinion/elites-euro-social-media.html
@@ -14,7 +18,7 @@ https://nytimes.com/interactive/2024/12/09/books/one-hundred-years-of-solitude-n
 `By Maya C. Miller`\
 https://nytimes.com/live/2024/12/09/us/trump-news/senator-grassley-joins-trump-in-attacking-the-fbi-director
 
-**Jay-Z Sued Lawyer As a ‘Celebrity’ John Doe Before Assault Accusation**\
+**Jay-Z Sued Lawyer as a ‘Celebrity’ John Doe Before Assault Accusation**\
 `Lawyers for the rapper accused Tony Buzbee of attempting to “extort exorbitant sums” from him by making false assault claims.`\
 https://nytimes.com/2024/12/09/arts/music/jay-z-diddy-lawsuit-buzbee.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-ceo-suspect-arrest-alto
 **The Mets Stole Juan Soto From the Yankees. Who’s the Big Spender Now?**\
 `The Yankees didn’t just lose a superstar; they lost him to the Mets. Is the balance of power shifting in New York?`\
 https://nytimes.com/2024/12/09/nyregion/juan-soto-new-york-yankees-mets.html
-
-**For Women in India, a Job Is More Than Just a Paycheck**\
-`A new film shows the barriers that women must overcome in order to work.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/indian-nurses-jobs-film
 

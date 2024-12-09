@@ -1,3 +1,11 @@
+**The Briefing: West Ham 2 Wolves 1 - Lopetegui relief, pressure increases on O'Neil and support for Antonio**\
+`Tim Spiers, Roshane Thomas and Steve Madeley analyse the key talking points from West Ham's victory over Wolves`\
+https://nytimes.com/athletic/5980913/2024/12/09/west-ham-wolves-analysis/
+
+**Jay-Z Sued Lawyer as a ‘Celebrity’ John Doe Before Assault Accusation**\
+`Lawyers for the rapper accused Tony Buzbee of attempting to “extort exorbitant sums” from him by making false assault claims.`\
+https://nytimes.com/2024/12/09/arts/music/jay-z-diddy-lawsuit-buzbee.html
+
 **Finding Hope in an Age of Resentment**\
 `Where have all the good vibes gone?`\
 https://nytimes.com/2024/12/09/opinion/elites-euro-social-media.html
