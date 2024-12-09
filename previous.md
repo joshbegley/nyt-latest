@@ -1,3 +1,11 @@
+**China Eases Overall Monetary Policy Stance for First Time in 14 Years**\
+`Faced with a faltering economy and falling prices, the Politburo loosened the policy approach of China’s central bank and called for “extraordinary” measures.`\
+https://nytimes.com/2024/12/09/business/china-monetary-policy.html
+
+**Inside Juan Soto landing the biggest contract in pro sports history from Steve Cohen’s Mets**\
+`“It’s so hard,” a friend recalled Juan Soto saying recently. “Everyone makes it sound so good.”`\
+https://nytimes.com/athletic/5980567/2024/12/09/juan-soto-steve-cohen-mets-free-agent/
+
 **Brandon Ingram's injury forces Pelicans to face big questions immediately**\
 `With competing this season going from unlikely to nearly impossible, the Pelicans must address major questions about their stars.`\
 https://nytimes.com/athletic/5979865/2024/12/09/pelicans-brandon-ingram-injury-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5979715/2024/12/09/michigan-bowl-game-alabama/
 **Why Street Vendors Are Upset About a Ballot Measure**\
 `Proposition 2, which gives the Sanitation Department more authority to conduct sweeps of vendors, will hit immigrant vendors hard, an advocacy group said.`\
 https://nytimes.com/2024/12/09/nyregion/street-vendors-proposition-2.html
-
-**A Century-Old Law’s Aftershocks Are Still Felt at the Supreme Court**\
-`In 1925, Congress let the justices choose the cases they would decide. That change “continues to prompt political contention and crisis,” a scholar argues.`\
-https://nytimes.com/2024/12/09/us/politics/supreme-court-judiciary-act.html
-
-**E.P.A. Bans Cancer-Causing Chemicals Used in Dry Cleaning**\
-`The two solvents, known as Perc and TCE, cause kidney cancer and other ailments, and have been the subject of years of controversy.`\
-https://nytimes.com/2024/12/09/climate/epa-dry-cleaning-chemical-ban-perc-tce.html
 
