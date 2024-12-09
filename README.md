@@ -1,3 +1,11 @@
+**Full Time: Is Angel City cleaning house?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5982583/2024/12/09/angel-city-nwsl-college-cup-full-time/
+
+**Map: 5.5-Magnitude Earthquake Strikes Nevada**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/12/09/us/quake-tracker-nevada.html
+
 **Moderate Earthquake Rattles Reno and Lake Tahoe**\
 `Preliminary estimates showed that the quake had a magnitude of 5.5, according to the U.S. Geological Survey.`\
 https://nytimes.com/2024/12/09/us/earthquake-reno-lake-tahoe-nevada.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5982186/2024/12/09/avalanche-mackenzie-blackwood-tr
 **Shock, Glee and Unease as Syrians Celebrate the Unthinkable**\
 `A day after the regime of President Bashar al-Assad fell, civilians poured into the streets of Damascus, weeping in disbelief. Many sought word of relatives held in a notorious prison on the outskirts of the city.`\
 https://nytimes.com/2024/12/09/world/middleeast/syria-assad-damascus.html
-
-**A Test for the System**\
-`Donald Trump will take office with weakened checks on his power.`\
-https://nytimes.com/2024/12/09/us/politics/a-test-for-the-system.html
-
-**Syrian Military Officials Charged With War Crimes as Government Falls**\
-`Jamil Hassan and Abdul Salam Mahmoud ran an infamous prison in Damascus and “sought to terrify, intimidate and repress any opposition, or perceived opposition, to the regime,” according to the indictment.`\
-https://nytimes.com/2024/12/09/us/politics/justice-department-syria-war-crimes.html
 
