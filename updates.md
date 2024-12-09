@@ -1,3 +1,7 @@
+**Road to Damascus Littered With Relics of Fallen Assad Government**\
+`Reporters for The New York Times entered Syria on Monday, finding remnants of former President Bashar al-Assad’s oppressive rule.`\
+https://nytimes.com/2024/12/09/world/middleeast/damascus-road-syria-assad.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/09/crosswords/spelling-bee-forum.html

@@ -1,3 +1,7 @@
+**Road to Damascus Littered With Relics of Fallen Assad Government**\
+`Reporters for The New York Times entered Syria on Monday, finding remnants of former President Bashar al-Assad’s oppressive rule.`\
+https://nytimes.com/2024/12/09/world/middleeast/damascus-road-syria-assad.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/09/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/here-are-the-latest
 **Live Updates: Rebels Who Toppled Assad Face Stark Challenges in Syria**\
 `People who fled during the civil war are considering whether to return, as the rebels who control Damascus try to unite Syria. New York Times reporters entering the country saw relics of the old regime on a highway from Lebanon.`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels
-
-**South Korea Bars President From Traveling Abroad**\
-`President Yoon Suk Yeol cannot leave the country as an investigation unfolds into whether he led an insurrection last week when he briefly imposed martial law.`\
-https://nytimes.com/2024/12/09/world/asia/south-korea-yoon-travel-ban.html
 
