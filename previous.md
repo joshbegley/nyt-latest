@@ -1,5 +1,9 @@
+**Moderate Earthquake Rattles Reno and Lake Tahoe**\
+`Preliminary estimates showed that the quake had a magnitude of 5.5, according to the U.S. Geological Survey.`\
+https://nytimes.com/2024/12/09/us/earthquake-reno-lake-tahoe-nevada.html
+
 **Eyes, Not Tech, Led Police to ‘Person of Interest’ in C.E.O. Killing**\
-`The key was not advanced facial recognition technology. An employee at a Pennsylvania McDonald’s reported the man after seeing a widely-circulated image of the suspect.`\
+`The key was not advanced facial recognition technology. An employee at a Pennsylvania McDonald’s reported the man after seeing a widely circulated image of the suspect.`\
 https://nytimes.com/2024/12/09/nyregion/uhc-ceo-suspect-photos-facial-recognition.html
 
 **What we know about Bill Belichick and UNC's complicated coaching search**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/us/politics/a-test-for-the-system.html
 **Syrian Military Officials Charged With War Crimes as Government Falls**\
 `Jamil Hassan and Abdul Salam Mahmoud ran an infamous prison in Damascus and “sought to terrify, intimidate and repress any opposition, or perceived opposition, to the regime,” according to the indictment.`\
 https://nytimes.com/2024/12/09/us/politics/justice-department-syria-war-crimes.html
-
-**Police Arrested a ‘Strong Person of Interest’ in Killing of C.E.O.**\
-`Also, rebels asserted control in Syria. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/12/09/briefing/police-new-york-arrest-syria-rebels-government.html
 
