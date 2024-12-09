@@ -1,3 +1,15 @@
+**Two Major Ad Agencies to Merge, Creating Global Giant**\
+`If they combine, Omnicom and Interpublic would become the largest advertising company in the world.`\
+https://nytimes.com/2024/12/09/business/omnicom-interpublic-merger.html
+
+**Trump Transition Live Updates: Cheney Condemns Trump’s ‘Assault on the Rule of Law’**\
+``\
+https://nytimes.com/live/2024/12/09/us/trump-news
+
+**China Opens Antitrust Investigation into Nvidia**\
+`The move by Chinese regulators came a week after the Biden administration expanded curbs on the sale of advanced U.S. technology to China.`\
+https://nytimes.com/2024/12/09/technology/china-nvidia-investigation-antitrust-ai.html
+
 **Kawhi Leonard appears to be nearing return at a perfect time in Clippers schedule**\
 `The Clippers get some breaks in the grind over the next month, and signals strongly point to Leonard approaching his season debut.`\
 https://nytimes.com/athletic/5980610/2024/12/09/kawhi-leonard-return-clippers/
