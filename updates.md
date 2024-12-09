@@ -1,3 +1,7 @@
+**Brandon Ingram's injury forces Pelicans to face big questions immediately**\
+`With competing this season going from unlikely to nearly impossible, the Pelicans must address major questions about their stars.`\
+https://nytimes.com/athletic/5979865/2024/12/09/pelicans-brandon-ingram-injury-future/
+
 **Dick Allen and Dave Parker, Hall of Famers at long last: What we learned from their election**\
 `What took so long? That was the question that echoed through the night Sunday, along with so many powerful emotions.`\
 https://nytimes.com/athletic/5980595/2024/12/09/dick-allen-dave-parker-hall-of-fame-takeaways/
