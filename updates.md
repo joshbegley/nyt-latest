@@ -1,3 +1,7 @@
+**Canadiens weekly notebook: Emil Heineman’s role is a big part of his success**\
+`Also in this edition of the notebook, the opportunity ahead of Sam Montembeault with Team Canada and some of his rituals explained.`\
+https://nytimes.com/athletic/5981665/2024/12/09/canadiens-emil-heineman-sam-montembeault-canada-nhl/
+
 **Supreme Court Turns Down Cases on Admissions, Gender Identity and Guns**\
 `Conservative justices voiced objections and concerns about the court’s failures to take up a series of cases on major social controversies.`\
 https://nytimes.com/2024/12/09/us/politics/supreme-court-admissions-gender-identity-guns.html
