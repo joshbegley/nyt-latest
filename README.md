@@ -1,7 +1,3 @@
-**TikTok Asks Court to Temporarily Freeze Sale-or-Ban Law**\
-`The company is requesting a pause on a law that requires the app to be sold or face a ban in the United States by mid-January, aiming to buy time for the Supreme Court or the incoming Trump administration to rescue it.`\
-https://nytimes.com/2024/12/09/business/tiktok-temporary-pause-ban-supreme-court-trump.html
-
 **Judge Denies Nadine Menendez’s Request to Postpone Trial Further**\
 `Ms. Menendez, the wife of New Jersey’s former senator, is scheduled to stand trial on Jan. 21, eight days before her husband is expected to be sentenced for taking bribes.`\
 https://nytimes.com/2024/12/09/nyregion/nadine-menendez-bribery-trial.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/09/us/nra-supreme-court.html
 **Activists Call on Biden to Clear Death Row Before Trump Takes Office**\
 `In a series of open letters, human rights activists, former corrections officials and families of crime victims noted that President Biden had campaigned on opposing capital punishment.`\
 https://nytimes.com/2024/12/09/us/politics/biden-death-row-clemency-pardons.html
+
+**What I'm hearing on Jaromir Jagr, Penguins' interest in Nils Höglander and much more**\
+`On a potential return to Pittsburgh for Jagr, Höglander speculation, Tristan Jarry's resurgence and more.`\
+https://nytimes.com/athletic/5975637/2024/12/09/penguins-jaromir-jagr-nils-hoglander-nhl/
 
