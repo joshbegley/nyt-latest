@@ -1,11 +1,3 @@
-**Senator Grassley joins Trump in attacking the F.B.I. director.**\
-`By Maya C. Miller`\
-https://nytimes.com/live/2024/12/09/us/trump-news/senator-grassley-joins-trump-in-attacking-the-fbi-director
-
-**Jay-Z Sued Lawyer As a ‘Celebrity’ John Doe Before Assault Accusation**\
-`Lawyers for the rapper accused Tony Buzbee of attempting to “extort exorbitant sums” from him by making false assault claims.`\
-https://nytimes.com/2024/12/09/arts/music/jay-z-diddy-lawsuit-buzbee.html
-
 **Read the Letter From Nobel Laureates Urging That Mr. Kennedy Not be Confirmed**\
 `More than 75 laureates have written an open letter describing Mr. Kennedy’s selection for H.H.S. secretary as detrimental to public health.`\
 https://nytimes.com/interactive/2024/12/09/health/rfkltr.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5982153/2024/12/09/nhl-trade-grades-avalanche-shark
 **58 Jazz Luminaries Assembled for This Photo. Only One Remains.**\
 `Art Kane’s “Harlem 1958” gathered giants of the music. Sonny Rollins, 94, looks back at the historic picture.`\
 https://nytimes.com/interactive/2024/12/09/arts/music/harlem-jazz-sonny-rollins.html
+
+**Thompson: Draymond Green's loud dunk put the Wolves to bed — and maybe woke the Warriors**\
+`SAN FRANCISCO — This &#8220;Night! Night!&#8221; celebration had some Saginaw swag on it.`\
+https://nytimes.com/athletic/5982066/2024/12/09/golden-state-warriors-draymond-green-dunk-timberwolves/
+
+**Former Wisconsin, Miami QB Tyler Van Dyke hits transfer portal: Source**\
+`Van Dyke started three games for the Badgers before a season-ending injury. He has one year of eligibility remaining. `\
+https://nytimes.com/athletic/5982223/2024/12/09/tyler-van-dyke-transfer-quarterback-wisconsin-miami/
 
