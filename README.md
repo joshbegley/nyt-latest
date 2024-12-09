@@ -1,3 +1,19 @@
+**How to Apply Makeup That Lasts**\
+`Advice from Tinashe, Justin Vivian Bond and Yadim.`\
+https://nytimes.com/2024/12/09/t-magazine/makeup-that-lasts-tinashe.html
+
+**Quantum Computing Inches Closer to Reality After Another Google Breakthrough**\
+`Google unveiled an experimental machine capable of tasks that a traditional supercomputer could not master in 10 septillion years. (That’s older than the universe.)`\
+https://nytimes.com/2024/12/09/technology/google-quantum-computing.html
+
+**Give Your Salmon an Anchovy Butter Boost**\
+`In my five-star salmon dinner, anchovies lend their intense and pungent bite to the sweet pink fillets.`\
+https://nytimes.com/2024/12/09/dining/give-your-salmon-an-anchovy-butter-boost.html
+
+**To Become a Better Runner, Should You Adjust Your Form?**\
+`Many runners believe their natural stride could be improved. Here’s what to know before trying to change yours.`\
+https://nytimes.com/2024/12/09/well/move/running-form-fitness.html
+
 **Lara Trump to Step Down as R.N.C. Co-Chair Amid Florida Senate Speculation**\
 `The daughter-in-law of President-elect Donald J. Trump, Ms. Trump gave no indication of her next move. Senator Marco Rubio’s seat would become open if he’s confirmed as secretary of state.`\
 https://nytimes.com/2024/12/09/us/politics/lara-trump-rnc-florida-senate.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/09/world/middleeast/syria-arab-israel.html
 **24 Things That Happened for the First Time in 2024**\
 `A series of surprising milestones, events and trends that were unprecedented until now.`\
 https://nytimes.com/2024/12/09/special-series/first-time-ever-2024.html
-
-**This Race Was Decided by 734 Votes. The G.O.P. Wants to Disqualify 60,000 Ballots.**\
-`One of the closest state elections in North Carolina history now hinges on the latest power struggle between state Republicans and Democrats — and a voter form dating back 20 years.`\
-https://nytimes.com/2024/12/09/us/north-carolina-election-ballots-republicans.html
-
-**Do You Know These Winter Holidays and Popular Books of the Season?**\
-`Celebrate the literature of this festive month with with a five-question quiz that comes with its own reading list.`\
-https://nytimes.com/interactive/2024/12/09/books/review/winter-holiday-books.html
-
-**Army-Navy game to remain on CBS through 2038**\
-`CBS has served as the home to the annual Army-Navy contest since 1996.`\
-https://nytimes.com/athletic/5981086/2024/12/09/army-navy-game-cbs-extension/
-
-**Nobody Is Coming to Save Us**\
-`The fine artist and illustrator Oliver Jeffers on climate change, A.I. and the idea that maybe everything is pretty much our fault.`\
-https://nytimes.com/2024/12/09/special-series/oliver-jeffers-2024-reflections.html
 
