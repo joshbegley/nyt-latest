@@ -1,3 +1,11 @@
+**Rosenthal: In landmark deal with the Mets, Juan Soto gets what he's wanted all along**\
+`The superstar outfielder agreed to a 15-year, $765 million contract with the Mets on Sunday night.`\
+https://nytimes.com/athletic/5941131/2024/12/08/juan-soto-contract-mets-mlb-free-agency-rosenthal/
+
+**Mets sign Juan Soto: 3 biggest reasons it's a major disappointment for Yankees**\
+`Despite all of Soto's success with the Yankees in 2024, it will almost certainly end up being his lone season in pinstripes.`\
+https://nytimes.com/athletic/5961373/2024/12/08/yankees-juan-soto-free-agency-disappointment/
+
 **Minnesota Vikings Find Unlikely Muse for Celebration Dance: ‘White Chicks’**\
 `Not everyone loved the 2004 film “White Chicks.” But 20 years later, some N.F.L. players are paying homage to it in the end zone.`\
 https://nytimes.com/2024/12/08/sports/minnesota-vikings-white-chicks-dance.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5891633/2024/12/08/2024-25-mlb-top-40-free-agmlb-to
 **For the Jets, anything that can go wrong will go wrong — and Garrett Wilson is sick of it**\
 `Another come-from-ahead loss, this one in Miami, has the star receiver's frustration at a boiling point.`\
 https://nytimes.com/athletic/5979458/2024/12/08/jets-loss-dolphins-garrett-wilson-contract/
-
-**Sam Darnold's 'special' performance vs. Falcons thrusts him into MVP discussion**\
-`Darnold outplays Kirk Cousins, throwing for 347 yards and five touchdowns in Vikings' 42-21 dismantling of Falcons.`\
-https://nytimes.com/athletic/5979570/2024/12/08/vikings-win-sam-darnold-mvp-discussion-falcons/
-
-**Mistake-riddled Browns officially eliminated from playoff contention after loss to Steelers**\
-`This Cleveland team, which lost its sixth straight road game this season, is filled with much uncertainty. `\
-https://nytimes.com/athletic/5979392/2024/12/08/browns-eliminated-playoffs-loss-steelers/
 

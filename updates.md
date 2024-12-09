@@ -1,3 +1,11 @@
+**Rosenthal: In landmark deal with the Mets, Juan Soto gets what he's wanted all along**\
+`The superstar outfielder agreed to a 15-year, $765 million contract with the Mets on Sunday night.`\
+https://nytimes.com/athletic/5941131/2024/12/08/juan-soto-contract-mets-mlb-free-agency-rosenthal/
+
+**Mets sign Juan Soto: 3 biggest reasons it's a major disappointment for Yankees**\
+`Despite all of Soto's success with the Yankees in 2024, it will almost certainly end up being his lone season in pinstripes.`\
+https://nytimes.com/athletic/5961373/2024/12/08/yankees-juan-soto-free-agency-disappointment/
+
 **Minnesota Vikings Find Unlikely Muse for Celebration Dance: ‘White Chicks’**\
 `Not everyone loved the 2004 film “White Chicks.” But 20 years later, some N.F.L. players are paying homage to it in the end zone.`\
 https://nytimes.com/2024/12/08/sports/minnesota-vikings-white-chicks-dance.html
