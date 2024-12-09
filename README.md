@@ -1,3 +1,7 @@
+**NFC West-leading Seahawks pick up 30-18 win over Cardinals: Takeaways**\
+`The Seahawks are rolling heading into another big game with the Packers coming to town in Week 15.`\
+https://nytimes.com/athletic/5978231/2024/12/08/seahawks-cardinals-score-result-takeaways/
+
 **No George Pickens, no problem for Steelers, as 'complementary' mindset prevails**\
 `The Steelers' offense started slowly without Pickens, but the whole team finished strong, showing the loss in Cleveland was just a hiccup.`\
 https://nytimes.com/athletic/5979544/2024/12/08/steelers-win-george-pickens-russell-wilson-browns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5979337/2024/12/08/chris-paul-assists-nba/
 **Falcons' problems go beyond Kirk Cousins: 'Nobody coming to save us'**\
 `The Falcons lost their fourth straight game and trail the Buccaneers by one game in the NFC South.`\
 https://nytimes.com/athletic/5979364/2024/12/08/falcons-problems-kirk-cousins-vikings/
-
-**College football bowl watch guide: Schedule and odds for every bowl game**\
-`It's bowl season! We have every matchup with kickoff time, TV info and betting odds. Plus, a look at a few games to watch.`\
-https://nytimes.com/athletic/5978829/2024/12/08/college-football-bowl-schedule-odds/
 
