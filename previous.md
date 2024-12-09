@@ -1,3 +1,7 @@
+**New York Taxpayers Could Get Refunds of Up to $500 Under Hochul Plan**\
+`The proposal, which Gov. Kathy Hochul intends to include in next year’s state budget, would send $3 billion in refunds to roughly 8.6 million New Yorkers.`\
+https://nytimes.com/2024/12/09/nyregion/tax-refund-ny-hochul.html
+
 **The factors that pushed the bidding for Juan Soto to unexpected heights**\
 `Soto landed on the open market with the right teams looking to make a splash.`\
 https://nytimes.com/athletic/5981844/2024/12/09/mets-juan-soto-contract-record/
@@ -30,11 +34,7 @@ https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/foreign-governments
 `Kansas went 0-2 this past week after falling to Creighton (76-63) on Wednesday and Missouri (76-67) on Sunday.`\
 https://nytimes.com/athletic/5981655/2024/12/09/ap-mens-basketball-top-25-kansas-tennessee/
 
-**Ghost Guns Have Been a Major Issue in Gun Control**\
+**Easy-to-Assemble Ghost Guns Have Been a Major Issue in Gun Control**\
 `The weapons do not have serial numbers and are sold online as do-it-yourself kits, making them popular among criminals barred from buying ordinary guns.`\
 https://nytimes.com/2024/12/09/nyregion/ghost-guns.html
-
-**How Old Is Too Old to Be President? Democrats Still Don’t Want to Say.**\
-`At a gathering of Democratic governors, many were reluctant to discuss the issue that sank President Biden’s campaign: age. Others are ready for a Gen X president.`\
-https://nytimes.com/2024/12/09/us/politics/president-age-democrats.html
 

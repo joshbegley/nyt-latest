@@ -1,3 +1,11 @@
+**New York Taxpayers Could Get Refunds of Up to $500 Under Hochul Plan**\
+`The proposal, which Gov. Kathy Hochul intends to include in next year’s state budget, would send $3 billion in refunds to roughly 8.6 million New Yorkers.`\
+https://nytimes.com/2024/12/09/nyregion/tax-refund-ny-hochul.html
+
+**Easy-to-Assemble Ghost Guns Have Been a Major Issue in Gun Control**\
+`The weapons do not have serial numbers and are sold online as do-it-yourself kits, making them popular among criminals barred from buying ordinary guns.`\
+https://nytimes.com/2024/12/09/nyregion/ghost-guns.html
+
 **Panthers' Jonathon Brooks tears right ACL again**\
 `The rookie running back tore his ACL at Texas last season and suffered the tear to the ligament in the same knee Sunday vs. the Eagles.`\
 https://nytimes.com/athletic/5981541/2024/12/09/panthers-jonathon-brooks-acl-injury-surgery/
