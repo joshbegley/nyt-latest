@@ -1,3 +1,11 @@
+**How Cole Palmer dominates games - whatever position he plays in**\
+`Palmer is a No 10 on paper, but he spends most of his time coming short and playing killer passes from deep`\
+https://nytimes.com/athletic/5980716/2024/12/09/cole-palmer-chelsea-panenka-penalty/
+
+**Weekend NHL rankings: Kings roll, Sabres spiral and a wild weekend in New York**\
+`The Rangers have been tumbling down the standings lately but have shot to the top of the rankings of the NHL's most interesting teams.`\
+https://nytimes.com/athletic/5979704/2024/12/09/weekend-nhl-rankings-kings-sabres-rangers/
+
 **For Mets fans, signing Juan Soto away from the Yankees is extra special**\
 `In the Juan Soto free agency sweepstakes, the "little brother" of the two New York franchises came out on top — a rare occurrence. `\
 https://nytimes.com/athletic/5980558/2024/12/09/juan-soto-mets-contract-yankees-fans/
