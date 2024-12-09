@@ -1,3 +1,7 @@
+**‘Person of Interest’ in C.E.O. Shooting Has Background in Games Industry**\
+`Luigi Mangione was passionate about game development and programming from a young age, teaching himself to code in high school.`\
+https://nytimes.com/2024/12/09/nyregion/uhc-suspect-video-games.html
+
 **Trump Tests Ethical Boundaries With Branded Merch. (And All Sales Are Final.)**\
 `Everything around President-elect Donald J. Trump has become something to monetize, including a moment of comity with Jill Biden at Notre-Dame over the weekend.`\
 https://nytimes.com/2024/12/09/us/politics/trump-perfumes-sneakers-licensing.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/09/health/rfkltr.html
 **Juan Soto to the Mets: 6 initial questions for card collectors **\
 `The first questions to consider as Soto embarks on a new chapter that's likely to alter his trading card market `\
 https://nytimes.com/athletic/5980193/2024/12/09/juan-soto-mets-baseball-cards/
-
-**Hunt for C.E.O.’s Killer Leads to Arrest in Pennsylvania**\
-`Luigi Mangione was arrested after a tip from a McDonald’s in Altoona. The police said they found him with fake identification and a gun that matched the assassin’s.`\
-https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-ceo-suspect-arrest-altoona.html
 
