@@ -1,3 +1,19 @@
+**Syria’s President Had Stocks of Chemical Weapons. What Happens to Them Now?**\
+`While experts believe that Syria has retained some stocks of chemical weapons, their quantities likely have been depleted and it would be hard for rogue actors to use them.`\
+https://nytimes.com/2024/12/09/world/middleeast/syria-chemical-weapons-arsenal.html
+
+**SMU at Penn State: Kickoff time, odds, storylines for CFP first-round game**\
+`Penn State is favored by more than a touchdown against SMU, which was the last team to get in the College Football Playoff field.`\
+https://nytimes.com/athletic/5981776/2024/12/09/smu-penn-state-time-odds-college-football-playoff/
+
+**Dodgers still looking to add relief pitching after re-signing Blake Treinen: Sources**\
+`Tanner Scott and Devin Williams rank among the top options as the Dodgers look to bolster a relief corps that proved crucial in 2024.`\
+https://nytimes.com/athletic/5981967/2024/12/09/dodgers-tanner-scott-devin-williams/
+
+**Clemson at Texas: Kickoff time, odds with Longhorns heavily favored in CFP game**\
+`The Longhorns are a double-digit favorite against Clemson, making Texas the biggest favorite in the College Football Playoff's first round.`\
+https://nytimes.com/athletic/5981899/2024/12/09/clemson-texas-time-odds-college-football-playoff/
+
 **Rupert Murdoch Fails in Bid to Change Family Trust**\
 `A Nevada commissioner ruled resoundingly against Mr. Murdoch, who was trying to give full control of his empire to his son Lachlan and lock in Fox News’s right-wing editorial slant.`\
 https://nytimes.com/2024/12/09/business/media/rupert-lachlan-murdoch-family-trust.html
