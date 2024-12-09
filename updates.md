@@ -1,3 +1,11 @@
+**Despite loss, Wolves believe they have found their identity: 'Good things will happen'**\
+`"It wasn't Christmas today," Rudy Gobert said after Sunday's loss to the Warriors. "It was Halloween today."`\
+https://nytimes.com/athletic/5979285/2024/12/09/timberwolves-identity/
+
+**‘Emilia Pérez’ Tops Golden Globe Nominations**\
+`The movie received 10 nominations, the most of any movie. “Conclave,” “Wicked” and “Anora” will be among the other films contending for the top prizes.`\
+https://nytimes.com/2024/12/09/movies/golden-globes-2025.html
+
 **‘Emilia Pérez’ Tops Golden Globe Nominations**\
 `The movie received 10 nominations, the most of any movie. “Conclave,” “Wicked” and “Anora” will be among the other films contending for the top prizes.`\
 https://nytimes.com/2024/12/09/movies/emilia-perez-tops-golden-globe-nominations.html
