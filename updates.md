@@ -1,3 +1,7 @@
+**‘The Daily’ podcast covers al-Assad’s fall.**\
+`By The Daily Team`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/the-daily-podcast-covers-al-assads-fall
+
 **'I wish I could tell him thank you': Goateed Lions fans gather for Dan Campbell look-alike contest**\
 `Many showed up, but only one could be crowned the winner.`\
 https://nytimes.com/athletic/5979989/2024/12/09/lions-dan-campbell-lookalike-contest/
