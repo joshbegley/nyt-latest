@@ -1,3 +1,11 @@
+**Syrian Military Officials Charged With War Crimes as Government Falls**\
+`Jamil Hassan and Abdul Salam Mahmoud ran an infamous prison in Damascus and “sought to terrify, intimidate and repress any opposition, or perceived opposition, to the regime,” according to the indictment.`\
+https://nytimes.com/2024/12/09/us/politics/justice-department-syria-war-crimes.html
+
+**Police Arrested a ‘Strong Person of Interest’ in Killing of C.E.O.**\
+`Also, rebels asserted control in Syria. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/12/09/briefing/police-new-york-arrest-syria-rebels-government.html
+
 **49ers minutia minute: Isaac Guerendo iffy for Thursday; who's the next man up?**\
 `A 49ers' edge on Thursday: Most starters were on the sideline late in Week 14's lopsided win, while only one D-lineman played over 30 snaps.`\
 https://nytimes.com/athletic/5982312/2024/12/09/49ers-isaac-guerendo-injury-status-snap-counts/
