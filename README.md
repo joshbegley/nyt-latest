@@ -1,3 +1,23 @@
+**Former Wisconsin, Miami QB Tyler Van Dyke hits transfer portal: Source**\
+`Van Dyke started three games for the Badgers before a season-ending injury. He has one year of eligibility remaining. `\
+https://nytimes.com/athletic/5982223/2024/12/09/tyler-van-dyke-transfer-quarterback-wisconsin-miami/
+
+**Nobel Laureates Urge Senate to Turn Down Kennedy’s Nomination**\
+`Elevating Mr. Kennedy to secretary of H.H.S. “would put the public’s health in jeopardy,” more than 75 laureates wrote.`\
+https://nytimes.com/2024/12/09/health/kennedy-hhs-nobel-laureates.html
+
+**U.S. Scrambles to Navigate Perils of a New Syria**\
+`The Biden administration is relying on Turkey to convey messages to Hayat Tahrir al-Sham, which toppled Bashar al-Assad but is designated by the U.S. as a terrorist organization.`\
+https://nytimes.com/2024/12/09/us/politics/us-syria.html
+
+**What is Carson Beck's status for Sugar Bowl?**\
+`Beck suffered the injury on the final play of the first half of the SEC championship against Texas.`\
+https://nytimes.com/athletic/5982047/2024/12/09/carson-beck-sugar-bowl-status/
+
+**What to watch this week in NBA: Trae Young in New York, Cup semifinals games in Las Vegas**\
+`What to watch — and why to watch it — around the NBA this week.`\
+https://nytimes.com/athletic/5980099/2024/12/09/nba-how-to-watch-trae-young-knicks-cup-semifinals/
+
 **Cease-Fire Talks Between Israel and Hamas Gain Momentum, Officials Say**\
 `While a deal was not yet in hand, a crack in the stalemate comes after Israel and Hezbollah reached its own truce and President-elect Donald J. Trump ratcheted up the pressure for an agreement.`\
 https://nytimes.com/2024/12/09/world/middleeast/israel-hamas-cease-fire-talks.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5981930/2024/12/09/college-football-playoff-sec-sch
 **Crowds Go to Syria’s Sednaya Prison In Search of Loved Ones**\
 `Rebel forces released many detainees from the notorious Sednaya military prison in Damascus. The government complex has a long history of human rights abuses under the rule of fallen President Bashar al-Assad.`\
 https://nytimes.com/video/world/middleeast/100000009867314/syria-sednaya-prison-damascus-.html
-
-**Why Chinese Americans Have Shifted Rightward**\
-`A growing number of Chinese Americans, especially naturalized immigrants, say Democrats have become too lenient on crime and homelessness.`\
-https://nytimes.com/2024/12/09/us/elections/chinese-americans-conservative-trump.html
-
-**The Most Memorable Things We Saw at Miami Art Week**\
-`And what the last art fairs of 2024 say about where the art world is going.`\
-https://nytimes.com/2024/12/09/t-magazine/art-basel-miami-beach-highlights.html
-
-**Review: Resistance and Struggle in a Dance of Private Rites**\
-`A solo by the choreographer Bintou Dembélé, the first showing of her work in the United States, explored the crossover between hip-hop and diasporic African ritual.`\
-https://nytimes.com/2024/12/09/arts/dance/review-bintou-dembele.html
-
-**Man Arrested After C.E.O. Killing Showed Interest on Social Media in Self-Improvement**\
-`Figures like Andrew Huberman, Tim Urban and the Unabomber feature in posts shared by accounts that appear to belong to the man arrested on Monday.`\
-https://nytimes.com/2024/12/09/style/unitedhealthcare-ceo-suspect-social-media.html
-
-**Man Detained After C.E.O. Shooting Had a Manifesto, Police Say**\
-`The handwritten document found with Luigi Mangione described his “motivation and mind-set” and conveyed “ill will toward corporate America,” according to the authorities.`\
-https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-suspect-manifesto.html
 
