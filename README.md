@@ -1,3 +1,7 @@
+**Saints' Derek Carr fractures left hand, could miss rest of season**\
+`The Saints are 5-5 with their starting quarterback in the lineup. Who will they turn to if he has to miss time?`\
+https://nytimes.com/athletic/5979386/2024/12/09/saints-derek-carr-hand-injury/
+
 **Foreign governments weigh recognizing rebels they once shunned as extremist.**\
 `By Vivian Yee`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/foreign-governments-weigh-recognizing-rebels-they-once-shunned-as-extremist
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980169/2024/12/09/jordan-romano-contract-phillies-
 **Brighton striker O'Mahony returns from Portsmouth loan for injury rehab**\
 `Brighton &amp; Hove Albion striker Mark O&#8217;Mahony has returned from a season-long loan with Championship side Portsmouth to recover from a side strain.`\
 https://nytimes.com/athletic/5981704/2024/12/09/brighton-mark-omahony-portsmouth-injury/
-
-**TikTok Asks Court to Temporarily Freeze Sale-or-Ban Law**\
-`The company is requesting a pause on a law that requires the app to be sold or face a ban in the United States by mid-January, aiming to buy time for the Supreme Court or the incoming Trump administration to rescue it.`\
-https://nytimes.com/2024/12/09/business/tiktok-temporary-pause-ban-supreme-court-trump.html
 
