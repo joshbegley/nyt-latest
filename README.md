@@ -1,6 +1,10 @@
+**Why Chinese Americans Have Shifted Rightward**\
+`A growing number of Chinese Americans, especially naturalized immigrants, say Democrats have become too lenient on crime and homelessness.`\
+https://nytimes.com/2024/12/09/us/elections/chinese-americans-conservative-trump.html
+
 **The Most Memorable Things We Saw at Miami Art Week**\
 `And what the last art fairs of 2024 say about where the art world is going.`\
-https://nytimes.com/2024/12/09/t-magazine/art-basel-miami-beach-highlights.html
+https://nytimes.com/2024/12/09/t-magazine/art/art-basel-miami-beach-highlights.html
 
 **Review: Resistance and Struggle in a Dance of Private Rites**\
 `A solo by the choreographer Bintou Dembélé, the first showing of her work in the United States, explored the crossover between hip-hop and diasporic African ritual.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981764/2024/12/09/aidan-oconnell-raiders-injury-up
 **The inside story of David Coote, PGMOL and the Premier League's biggest refereeing crisis**\
 `How the biggest refereeing scandal in English football's modern era played out... and what it could mean`\
 https://nytimes.com/athletic/5981479/2024/12/09/david-coote-referee-sack-pgmol/
-
-**Displaced Syrians Return to their Homes After Rebel Takeover**\
-`Thousands of Syrians who were forced to leave their homes in the war began traveling home after a rebel offensive drove President Bashar al-Assad out of power.`\
-https://nytimes.com/video/world/middleeast/100000009867321/syria-displaced-returning.html
 
