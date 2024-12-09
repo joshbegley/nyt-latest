@@ -1,3 +1,19 @@
+**Trump Wants to Abolish Birthright Citizenship. Can He Do So?**\
+`The president-elect has revived his wish to do away with automatic citizenship for anyone born in the United States. The Constitution stands in his way.`\
+https://nytimes.com/article/trump-birthright-citizenship-constitution.html
+
+**How Netflix Made Magic Look Real in ‘One Hundred Years of Solitude’**\
+`The first-ever screen adaptation will be released this week — a feat even the author didn’t think possible. We traveled to the set in Colombia to see how it was done.`\
+https://nytimes.com/interactive/2024/12/09/books/one-hundred-years-of-solitude-netflix-magical-realism.html
+
+**Senator Grassley joins Trump in attacking the F.B.I. director.**\
+`By Maya C. Miller`\
+https://nytimes.com/live/2024/12/09/us/trump-news/senator-grassley-joins-trump-in-attacking-the-fbi-director
+
+**Jay-Z Sued Lawyer As a ‘Celebrity’ John Doe Before Assault Accusation**\
+`Lawyers for the rapper accused Tony Buzbee of attempting to “extort exorbitant sums” from him by making false assault claims.`\
+https://nytimes.com/2024/12/09/arts/music/jay-z-diddy-lawsuit-buzbee.html
+
 **Read the Letter From Nobel Laureates Urging That Mr. Kennedy Not be Confirmed**\
 `More than 75 laureates have written an open letter describing Mr. Kennedy’s selection for H.H.S. secretary as detrimental to public health.`\
 https://nytimes.com/interactive/2024/12/09/health/rfkltr.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/12/04/opinion/thepoint/indian-nurses-jobs-film
 **Luigi Mangione, Arrested in Connection With C.E.O. Killing, Attended Elite Institutions**\
 `He grew up in Maryland, graduated from a private high school in Baltimore and went on to the University of Pennsylvania.`\
 https://nytimes.com/2024/12/09/nyregion/who-is-luigi-mangione.html
-
-**NHL trade grades: Mackenzie Blackwood is Avalanche's latest bet to improve goaltending**\
-`A Blackwood-Wedgewood crease may not be the flashiest, but it’s a solid upgrade for the Avalanche.`\
-https://nytimes.com/athletic/5982153/2024/12/09/nhl-trade-grades-avalanche-sharks-mackenzie-blackwood/
-
-**58 Jazz Luminaries Assembled for This Photo. Only One Remains.**\
-`Art Kane’s “Harlem 1958” gathered giants of the music. Sonny Rollins, 94, looks back at the historic picture.`\
-https://nytimes.com/interactive/2024/12/09/arts/music/harlem-jazz-sonny-rollins.html
-
-**Thompson: Draymond Green's loud dunk put the Wolves to bed — and maybe woke the Warriors**\
-`SAN FRANCISCO — This &#8220;Night! Night!&#8221; celebration had some Saginaw swag on it.`\
-https://nytimes.com/athletic/5982066/2024/12/09/golden-state-warriors-draymond-green-dunk-timberwolves/
-
-**Former Wisconsin, Miami QB Tyler Van Dyke hits transfer portal: Source**\
-`Van Dyke started three games for the Badgers before a season-ending injury. He has one year of eligibility remaining. `\
-https://nytimes.com/athletic/5982223/2024/12/09/tyler-van-dyke-transfer-quarterback-wisconsin-miami/
 
