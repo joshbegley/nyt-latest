@@ -1,3 +1,11 @@
+**Elaine May Makes a Rare Appearance to Talk About ‘Mikey and Nicky’**\
+`At a screening of the gangster tale starring Peter Falk and John Cassavetes, the director recalls her battle with Paramount to get the film released.`\
+https://nytimes.com/2024/12/09/movies/elaine-may-mikey-and-nicky.html
+
+**A rebel leader sheds his nom de guerre and speaks of the work ahead for Syria.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/a-rebel-leader-sheds-his-nom-de-guerre-and-speaks-of-the-work-ahead-for-syria
+
 **Hollinger's Week That Was: Teams ponder tough dilemmas in NBA's bye week**\
 `With minimal games this week, it's time for on-court practices, a little rest and some self-reflections.`\
 https://nytimes.com/athletic/5980440/2024/12/09/nba-bye-week-lakers-sixers-yves-missi-pelicans/
