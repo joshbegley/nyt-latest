@@ -1,3 +1,11 @@
+**The inside story of David Coote, PGMOL and the Premier League's biggest refereeing crisis**\
+`How the biggest refereeing scandal in English football's modern era played out... and what it could mean`\
+https://nytimes.com/athletic/5981479/2024/12/09/david-coote-referee-sack-pgmol/
+
+**Displaced Syrians Return to their Homes After Rebel Takeover**\
+`Thousands of Syrians who were forced to leave their homes in the war began traveling home after a rebel offensive drove President Bashar al-Assad out of power.`\
+https://nytimes.com/video/world/middleeast/100000009867321/syria-displaced-returning.html
+
 **Juan Soto signing skyrockets New York Mets' World series odds, Yankees fall**\
 `Juan Soto finding his new team has sent shockwaves through the MLB betting market. Read here for the odds impact on the Mets and Yankees.`\
 https://nytimes.com/athletic/5981941/2024/12/09/juan-soto-signing-skyrockets-new-york-mets-world-series-odds-yankees-fall/
