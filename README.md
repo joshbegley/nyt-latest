@@ -1,3 +1,7 @@
+**We've done a fact check and it's true: Chelsea are back**\
+`They're not title contenders yet, but it's a side fans can be proud of again`\
+https://nytimes.com/athletic/5978215/2024/12/09/chelsea-are-back-fans-tottenham/
+
 **Rafa Mir is back playing, and scoring, for Valencia - 93 days after arrest on suspicion of sexual assault**\
 `Mir was arrested in September after allegations of sexual assault and is under investigation. He scored on comeback from injury last week`\
 https://nytimes.com/athletic/5972607/2024/12/09/rafa-mir-sexual-assault-case-valencia/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/business/trump-organization-india.html
 **Britain’s Flawed Jobs Reports Leave Economists ‘Second-Guessing’**\
 `Officials are grappling with an incomplete picture of Britain’s labor market as the national statistics agency strains to improve data quality.`\
 https://nytimes.com/2024/12/09/business/britain-jobs-data.html
-
-**The Art of the Gift: Kristen Arnett**\
-`The author keeps a list on her phone of gift ideas. “During the year, if someone close to me mentioned something that they really like or really want, I put a note in right then.”`\
-https://nytimes.com/2024/12/09/style/kristen-arnett-holidays-gifts.html
 
