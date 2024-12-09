@@ -1,3 +1,7 @@
+**Fantasy football Week 14 takeaways: Puka Nacua is Anquan Boldin 2.0; Sam Darnold is going to get paid**\
+`Among his Week 14 takes, Michael Salfino worries about the punishment Puka Nacua takes, but his style reminds him of Anquan Boldin.`\
+https://nytimes.com/athletic/5979403/2024/12/09/fantasy-football-week-14-takeaways-nacua-darnold/
+
 **Tottenham sacking Ange Postecoglou now would be a mistake**\
 `Tottenham fell to a defeat against Chelsea and have struggled this season — but it is not time to make a change`\
 https://nytimes.com/athletic/5978853/2024/12/09/tottenham-ange-postecoglou-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980191/2024/12/09/rams-puka-nacua-matthew-stafford
 **Monday Briefing**\
 `A historic transition of power in Syria.`\
 https://nytimes.com/2024/12/09/briefing/syria-al-assad-trump-hamas.html
-
-**Revolutions Swept the Middle East in 2011. Will Syria’s End Differently?**\
-`Bashar al-Assad’s downfall evokes memories of uprisings in Egypt, Libya, Tunisia and Yemen, each of which brought civil war or authoritarian rule. Syrians hope for better.`\
-https://nytimes.com/2024/12/09/world/middleeast/syria-revolutions-middle-east.html
 
