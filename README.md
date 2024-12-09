@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5980974/2024/12/09/dru-smith-miami-heat-nba-jimmy-b
 `The Bengals are 4-8, but Joe Burrow is third in the NFL in passing yards and first in TD passes. The Cowboys look for third win in a row.`\
 https://nytimes.com/athletic/5981281/2024/12/09/cowboys-bengals-predictions-tv-joe-burrow/
 
-**Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
+**Live Updates: Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
 `A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
 https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
 
