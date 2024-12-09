@@ -1,3 +1,7 @@
+**Trump Tests Ethical Boundaries With Branded Merch. (And All Sales Are Final.)**\
+`Everything around President-elect Donald J. Trump has become something to monetize, including a moment of comity with Jill Biden at Notre-Dame over the weekend.`\
+https://nytimes.com/2024/12/09/us/politics/trump-perfumes-sneakers-licensing.html
+
 **The Briefing: West Ham 2 Wolves 1 - Lopetegui relief, pressure increases on O'Neil and support for Antonio**\
 `Tim Spiers, Roshane Thomas and Steve Madeley analyse the key talking points from West Ham's victory over Wolves`\
 https://nytimes.com/athletic/5980913/2024/12/09/west-ham-wolves-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980193/2024/12/09/juan-soto-mets-baseball-cards/
 **Hunt for C.E.O.’s Killer Leads to Arrest in Pennsylvania**\
 `Luigi Mangione was arrested after a tip from a McDonald’s in Altoona. The police said they found him with fake identification and a gun that matched the assassin’s.`\
 https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-ceo-suspect-arrest-altoona.html
-
-**The Mets Stole Juan Soto From the Yankees. Who’s the Big Spender Now?**\
-`The Yankees didn’t just lose a superstar; they lost him to the Mets. Is the balance of power shifting in New York?`\
-https://nytimes.com/2024/12/09/nyregion/juan-soto-new-york-yankees-mets.html
 
