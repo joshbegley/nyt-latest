@@ -27,14 +27,14 @@ https://nytimes.com/athletic/5980974/2024/12/09/dru-smith-miami-heat-nba-jimmy-b
 https://nytimes.com/athletic/5981281/2024/12/09/cowboys-bengals-predictions-tv-joe-burrow/
 
 **Live Updates: Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
-`A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
+`A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona, in western Pennsylvania.`\
 https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
 
 **Chris Paul, the ‘ultimate leader, ultimate competitor’, achieves another NBA milestone**\
 `Paul surpasses Jason Kidd for second place in career NBA assists with 12,099.`\
 https://nytimes.com/athletic/5981209/2024/12/09/chris-paul-spurs-assists-nba-milestone/
 
-**Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
-`A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
+**Here’s what to know about the manhunt.**\
+`A law enforcement officer said he was identified by`\
 https://nytimes.com/2024/12/09/nyregion/uhc-ceo-murder-suspect.html
 

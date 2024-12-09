@@ -1,3 +1,11 @@
+**Live Updates: Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
+`A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona, in western Pennsylvania.`\
+https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
+
+**Here’s what to know about the manhunt.**\
+`A law enforcement officer said he was identified by`\
+https://nytimes.com/2024/12/09/nyregion/uhc-ceo-murder-suspect.html
+
 **USMNT Player Tracker: Captain Robinson, Ledezma's rocket and Kochen extends Barcelona stay**\
 `Malik Tillman was also on the scoresheet as PSV ran riot against Twente, and features in our roundup from the weekend action`\
 https://nytimes.com/athletic/5980997/2024/12/09/usmnt-robinson-ledezma-kochen-tracker/
