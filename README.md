@@ -1,3 +1,11 @@
+**NFL playoff picture, Week 14: Bucs reclaim NFC South lead; Eagles clinch playoff berth**\
+`Miami stayed in the hunt with its OT victory over the Jets, while the Rams' upset of the Bills puts them one game back of Washington. `\
+https://nytimes.com/athletic/5966559/2024/12/08/nfl-playoff-picture-week-14/
+
+**Bills defense's woeful performance stunts comeback effort vs. Rams**\
+`The Bills imploded on defense and are likely to see another team like the Rams this season.`\
+https://nytimes.com/athletic/5980080/2024/12/08/bills-loss-defense-rams/
+
 **Rams' wild win over Bills shows they can be a problem — if they make the playoffs**\
 `Cooper Kupp: “We already knew it was just a matter of time, as a team, that we could put it all together."`\
 https://nytimes.com/athletic/5980179/2024/12/08/rams-win-bills-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5941165/2024/12/08/blake-treinen-dodgers-free-agent
 **Mets land Juan Soto behind $765 million and Steve Cohen's personalized approach**\
 `In addition to paying top dollar, Cohen demonstrated his intentions to win and hit all the right notes in his pitch to Soto.`\
 https://nytimes.com/athletic/5969413/2024/12/08/juan-soto-mets-contract-steve-cohen/
-
-**Ivan Provorov toughs it out, Kent Johnson scores twice in gutsy Blue Jackets win**\
-`Columbus mustered up the energy to knock off one of the NHL's top teams in one of the league's most difficult arenas.`\
-https://nytimes.com/athletic/5979861/2024/12/08/blue-jackets-win-jets-ivan-provorov-kent-johnson/
-
-**Massacre in Haiti’s Capital Leaves Over 100 Dead, Rights Group Says**\
-`The killings in a Port-au-Prince slum, which appeared to target practitioners of voodoo, were ordered by a gang leader, a human rights organization said.`\
-https://nytimes.com/2024/12/08/world/americas/haiti-gang-massacre.html
 
