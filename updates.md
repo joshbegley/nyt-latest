@@ -1,3 +1,7 @@
+**South Korea Bars President From Traveling Abroad**\
+`President Yoon Suk Yeol cannot leave the country as an investigation unfolds into whether he led an insurrection last week when he briefly imposed martial law.`\
+https://nytimes.com/2024/12/09/world/asia/south-korea-yoon-travel-ban.html
+
 **Prosecutors Seek Travel Ban for South Korea’s President**\
 `President Yoon Suk Yeol is being investigated for insurrection and other charges after briefly imposing martial law last week.`\
 https://nytimes.com/2024/12/09/world/asia/south-korea-yoon-travel-ban.html
