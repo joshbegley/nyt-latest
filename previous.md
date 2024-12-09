@@ -1,3 +1,11 @@
+**The factors that pushed the bidding for Juan Soto to unexpected heights**\
+`Soto landed on the open market with the right teams looking to make a splash.`\
+https://nytimes.com/athletic/5981844/2024/12/09/mets-juan-soto-contract-record/
+
+**Trump Says He Would Let ‘Dreamers’ Stay. But He Once Tried to Gut the Program.**\
+`President-elect Donald J. Trump’s stance on the immigrants who were brought to the country illegally as children is filled with contradictions.`\
+https://nytimes.com/2024/12/09/us/politics/trump-dreamers-daca.html
+
 **Southern California Braces for Another ‘Particularly Dangerous’ Fire Forecast**\
 `Wildfire risk is high in Southern California, where little rain has fallen recently. The threat will skyrocket this week as offshore winds pick up.`\
 https://nytimes.com/2024/12/09/weather/southern-california-wind-fire-weather-forecast.html
@@ -6,7 +14,7 @@ https://nytimes.com/2024/12/09/weather/southern-california-wind-fire-weather-for
 `Arne Slot admits Alisson has a tough act to follow as the Liverpool goalkeeper prepares to make his comeback in Wednesday’s Champions League clash away to Girona.`\
 https://nytimes.com/athletic/5981618/2024/12/09/alisson-return-liverpool-injury/
 
-**Panthers' Jonathon Brooks tears right ACL again**\
+**Panthers Jonathon Brooks tears right ACL again**\
 `The rookie running back tore his ACL at Texas last season and suffered the tear to the ligament in the same knee Sunday vs. the Eagles.`\
 https://nytimes.com/athletic/5981541/2024/12/09/panthers-jonathon-brooks-acl-injury-surgery/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/09/nyregion/ghost-guns.html
 **How Old Is Too Old to Be President? Democrats Still Don’t Want to Say.**\
 `At a gathering of Democratic governors, many were reluctant to discuss the issue that sank President Biden’s campaign: age. Others are ready for a Gen X president.`\
 https://nytimes.com/2024/12/09/us/politics/president-age-democrats.html
-
-**Canadiens weekly notebook: Emil Heineman’s role is a big part of his success**\
-`Also in this edition of the notebook, the opportunity ahead of Sam Montembeault with Team Canada and some of his rituals explained.`\
-https://nytimes.com/athletic/5981665/2024/12/09/canadiens-emil-heineman-sam-montembeault-canada-nhl/
-
-**Supreme Court Turns Down Cases on Admissions, Gender Identity and Guns**\
-`Conservative justices voiced objections and concerns about the court’s failures to take up a series of cases on major social controversies.`\
-https://nytimes.com/2024/12/09/us/politics/supreme-court-admissions-gender-identity-guns.html
 

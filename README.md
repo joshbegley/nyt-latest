@@ -14,7 +14,7 @@ https://nytimes.com/2024/12/09/weather/southern-california-wind-fire-weather-for
 `Arne Slot admits Alisson has a tough act to follow as the Liverpool goalkeeper prepares to make his comeback in Wednesday’s Champions League clash away to Girona.`\
 https://nytimes.com/athletic/5981618/2024/12/09/alisson-return-liverpool-injury/
 
-**Panthers Jonathon Brooks tears right ACL again**\
+**Panthers' Jonathon Brooks tears right ACL again**\
 `The rookie running back tore his ACL at Texas last season and suffered the tear to the ligament in the same knee Sunday vs. the Eagles.`\
 https://nytimes.com/athletic/5981541/2024/12/09/panthers-jonathon-brooks-acl-injury-surgery/
 

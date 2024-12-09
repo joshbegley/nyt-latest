@@ -1,3 +1,15 @@
+**The factors that pushed the bidding for Juan Soto to unexpected heights**\
+`Soto landed on the open market with the right teams looking to make a splash.`\
+https://nytimes.com/athletic/5981844/2024/12/09/mets-juan-soto-contract-record/
+
+**Trump Says He Would Let ‘Dreamers’ Stay. But He Once Tried to Gut the Program.**\
+`President-elect Donald J. Trump’s stance on the immigrants who were brought to the country illegally as children is filled with contradictions.`\
+https://nytimes.com/2024/12/09/us/politics/trump-dreamers-daca.html
+
+**Panthers Jonathon Brooks tears right ACL again**\
+`The rookie running back tore his ACL at Texas last season and suffered the tear to the ligament in the same knee Sunday vs. the Eagles.`\
+https://nytimes.com/athletic/5981541/2024/12/09/panthers-jonathon-brooks-acl-injury-surgery/
+
 **Southern California Braces for Another ‘Particularly Dangerous’ Fire Forecast**\
 `Wildfire risk is high in Southern California, where little rain has fallen recently. The threat will skyrocket this week as offshore winds pick up.`\
 https://nytimes.com/2024/12/09/weather/southern-california-wind-fire-weather-forecast.html
