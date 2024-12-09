@@ -1,40 +1,40 @@
-**Josh Allen's historic day not enough to overcome numerous Bills gaffes**\
-`The Bills defense had a brutal day against the physical Rams.`\
-https://nytimes.com/athletic/5980173/2024/12/09/josh-allen-history-rams-bills/
+**Recent woes made Red Sox longshots for Juan Soto. What is Plan B now that he's a Met?**\
+`If the Red Sox truly want to build on their pursuit of Soto and show they are spenders, they'd be wise to make a significant move quickly.`\
+https://nytimes.com/athletic/5980301/2024/12/09/red-sox-juan-soto-alternatives/
 
-**'What a hit, son! What a hit!': Gerrard's Olympiacos goal, 20 years on**\
-`It was the former Liverpool captain's most important goal for the club - those who were there share memories of a special Anfield night`\
-https://nytimes.com/athletic/5969286/2024/12/09/steven-gerrard-liverpool-olympiacos-20-years/
+**Barcelona's bench is not delivering - and it's costing them points**\
+`As proven in the 2-2 draw against Real Betis, Hansi Flick’s second unit needs to step up and start playing their part`\
+https://nytimes.com/athletic/5977124/2024/12/09/barcelonas-bench-is-not-delivering-and-its-costing-them-points/
 
-**Fantasy football Week 14 takeaways: Puka Nacua is Anquan Boldin 2.0; Sam Darnold is going to get paid**\
-`Among his Week 14 takes, Michael Salfino worries about the punishment Puka Nacua takes, but his style reminds him of Anquan Boldin.`\
-https://nytimes.com/athletic/5979403/2024/12/09/fantasy-football-week-14-takeaways-nacua-darnold/
+**Crystal Palace have finally found their rhythm - eradicate errors and they can climb the table**\
+`Glasner's line-up is more settled and players are regaining their sharpness — now they can build`\
+https://nytimes.com/athletic/5967865/2024/12/09/crystal-palace-have-finally-found-their-rhythm/
 
-**Tottenham sacking Ange Postecoglou now would be a mistake**\
-`Tottenham fell to a defeat against Chelsea and have struggled this season — but it is not time to make a change`\
-https://nytimes.com/athletic/5978853/2024/12/09/tottenham-ange-postecoglou-future/
+**Gary O'Neil needs to buy himself time by winning 'El Sackico' - but it may already be too late**\
+`Gary O'Neil and Julen Lopetegui face each other tonight in a battle for their jobs. Here's how things stand at Wolves`\
+https://nytimes.com/athletic/5975235/2024/12/09/gary-oneil-wolves-el-sackio-west-ham/
 
-**Why Pep Guardiola is feeling the pressure - and how he is dealing with it**\
-`Pep Guardiola has visibly been struggling with City's difficult run of results`\
-https://nytimes.com/athletic/5977012/2024/12/09/pep-guardiola-pressure-manchester-city/
+**Lopetegui faces key game for West Ham future - this is the state of play**\
+`West Ham take on Wolverhampton Wanderers on Monday evening — a big game for Lopetegui's future at the club`\
+https://nytimes.com/athletic/5974187/2024/12/09/west-ham-julen-lopetegui-future/
 
-**We've done a fact check and it's true: Chelsea are back**\
-`They're not title contenders yet, but it's a side fans can be proud of again`\
-https://nytimes.com/athletic/5978215/2024/12/09/chelsea-are-back-fans-tottenham/
+**Unai Emery relies on 'Super' John McGinn - he's integral to everything Aston Villa do**\
+`McGinn is Villa’s bellwether. At his best, hunched over and chest to the floor, he drives and presses the team upfield, cajoling the crowd`\
+https://nytimes.com/athletic/5940522/2024/12/09/aston-villa-john-mcginn-unai-emery/
 
-**Rafa Mir is back playing, and scoring, for Valencia - 93 days after arrest on suspicion of sexual assault**\
-`Mir was arrested in September after allegations of sexual assault and is under investigation. He scored on comeback from injury last week`\
-https://nytimes.com/athletic/5972607/2024/12/09/rafa-mir-sexual-assault-case-valencia/
+**Fabian Hurzeler's yet to see Brighton perform for a whole match - he must take some of the blame**\
+`Why Brighton are struggling to see out games against teams in the bottom five`\
+https://nytimes.com/athletic/5978472/2024/12/09/fabian-hurzeler-brighton-leicester-full-90/
 
-**Chiefs clinch 9th straight AFC West title with gritty win vs. Chargers**\
-`Patrick Mahomes faced an onslaught of hits from a relentless Chargers defense but his effort made the difference in the Chiefs 19-17 win.`\
-https://nytimes.com/athletic/5980005/2024/12/09/chiefs-chargers-snf-score-result-takeaways/
+**For all their endeavour, Bournemouth loss sums up Ipswich's problems at home**\
+`Despite losing to Bournemouth, Ipswich have plenty of reasons to believe they can end their wait for a Premier League home win `\
+https://nytimes.com/athletic/5978591/2024/12/09/ipswich-bournemouth-home-record/
 
-**Mikel Arteta wants Arsenal to be 'kings of everything' - but their rivals create more in open play**\
-`Arsenal are brilliant from set pieces, that is undeniable. But again, this time against Fulham, they struggled to create clear chances`\
-https://nytimes.com/athletic/5977795/2024/12/09/arsenal-open-play-chance-creation-fulham/
+**Kyler Murray's postgame walk reflects Cardinals' mood after third straight loss**\
+`The NFL is a cruel place. Greatness is hard to sustain. As Arizona slumped, the Murray MVP talk has faded, replaced by a familiar question.`\
+https://nytimes.com/athletic/5979857/2024/12/09/kyler-murray-arizona-cardinals-seahawks-loss-walk/
 
-**Fulham’s tactics have troubled Manchester City and Arsenal. It's Liverpool next**\
-`Marco Silva’s well-drilled side will have a serious test on Saturday away at Liverpool for, on paper at least, Fulham’s toughest game so far`\
-https://nytimes.com/athletic/5978417/2024/12/09/marco-silva-fulham-tactics-arsenal/
+**The Briefing: Is Chelsea's title challenge real? More questions for Man Utd over Ashworth exit?**\
+`Nick Miller answers the big talking points after the weekend's Premier League action`\
+https://nytimes.com/athletic/5978881/2024/12/09/manchester-united-chelsea-the-briefing/
 
