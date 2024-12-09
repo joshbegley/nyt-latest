@@ -1,3 +1,7 @@
+**Crowds Throng to Prison in Syria, Desperate to Find Relatives and Friends**\
+`The Assad regime ran a network of torture centers that swallowed up tens of thousands of Syrians. Now that the rebels have opened the gates, many see a chance to learn of the detainees’ fates.`\
+https://nytimes.com/2024/12/09/world/middleeast/syria-sednaya-prison-damascus.html
+
 **Explosion at Fuel Depot Near Florence Kills at Least Two**\
 `Officials said it would take time to determine the cause of the explosion. At least nine people were injured in the blast.`\
 https://nytimes.com/2024/12/09/world/europe/florence-fuel-depot-explosion.html

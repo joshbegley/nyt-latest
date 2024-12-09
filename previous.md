@@ -1,3 +1,7 @@
+**Crowds Throng to Prison in Syria, Desperate to Find Relatives and Friends**\
+`The Assad regime ran a network of torture centers that swallowed up tens of thousands of Syrians. Now that the rebels have opened the gates, many see a chance to learn of the detainees’ fates.`\
+https://nytimes.com/2024/12/09/world/middleeast/syria-sednaya-prison-damascus.html
+
 **Explosion at Fuel Depot Near Florence Kills at Least Two**\
 `Officials said it would take time to determine the cause of the explosion. At least nine people were injured in the blast.`\
 https://nytimes.com/2024/12/09/world/europe/florence-fuel-depot-explosion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/world/middleeast/syria-damascus-rebels-assad-vide
 **Men’s college basketball Top 25: An all-SEC debate for the true No. 1**\
 `Auburn lost a slugfest at Duke, but the Tigers still deserve to lead a sizable group of the SEC's best teams vying for rankings supremacy.`\
 https://nytimes.com/athletic/5975620/2024/12/09/college-basketball-top-25-auburn-tennessee/
-
-**Pulisic sidelined until 2025 with calf muscle tear**\
-`USMNT and Milan forward Christian Pulisic is set to be sidelined until early January after sustaining a minor tear to a muscle in his right calf.`\
-https://nytimes.com/athletic/5980722/2024/12/09/christian-pulisic-injury-update-milan/
 
