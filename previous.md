@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syrians-in-new-york
 https://nytimes.com/2024/12/08/arts/television/steve-mensch-dead.html
 
 **Notre-Dame Holds First Public Mass in Years: ‘Fire Has Not Conquered Stone’**\
-`Sunday was the first opportunity for worshipers to return to the cathedral, beloved by the faithful and secular alike, since the 2019 fire that devastated it. “Despair has not conquered life,” its rector said.`\
+`Sunday was the first opportunity for worshipers to return to the cathedral, beloved by the faithful and secular alike, since the 2019 fire that devastated it.`\
 https://nytimes.com/2024/12/08/world/europe/notre-dame-reopened-mass.html
 
 **Utah coach Kyle Whittingham announces return for 21st season in 2025**\

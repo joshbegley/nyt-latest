@@ -1,3 +1,7 @@
+**Notre-Dame Holds First Public Mass in Years: ‘Fire Has Not Conquered Stone’**\
+`Sunday was the first opportunity for worshipers to return to the cathedral, beloved by the faithful and secular alike, since the 2019 fire that devastated it.`\
+https://nytimes.com/2024/12/08/world/europe/notre-dame-reopened-mass.html
+
 **Quinn Hughes’ offensive evolution, Canucks' defensive woes vs. Lightning: 3 takeaways**\
 `Vancouver was competitive and close at even strength with sharp goaltending but fell 4-2 to Tampa Bay's elite forwards.`\
 https://nytimes.com/athletic/5978996/2024/12/08/quinn-hughes-canucks-lightning-loss/
