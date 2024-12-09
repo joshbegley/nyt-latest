@@ -1,3 +1,7 @@
+**New York City Council Sues Adams for Blocking Solitary Confinement Ban**\
+`The lawsuit charges that Mayor Eric Adams exceeded his authority when he declared a state of emergency to block a ban on the practice in city jails.`\
+https://nytimes.com/2024/12/09/nyregion/solitary-confinement-nyc-adams.html
+
 **Crowds Throng to Prison in Syria, Desperate to Find Relatives and Friends**\
 `The Assad regime ran a network of torture centers that swallowed up tens of thousands of Syrians. Now that the rebels have opened the gates, many see a chance to learn of the detainees’ fates.`\
 https://nytimes.com/2024/12/09/world/middleeast/syria-sednaya-prison-damascus.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/business/oil-prices-syria.html
 **A Surprise Advance to Damascus, Captured on Video**\
 `Bashar Al-Assad’s grip over Syria was visible everywhere in the capital. It was all dismantled in less than 24 hours.`\
 https://nytimes.com/2024/12/09/world/middleeast/syria-damascus-rebels-assad-video.html
-
-**Men’s college basketball Top 25: An all-SEC debate for the true No. 1**\
-`Auburn lost a slugfest at Duke, but the Tigers still deserve to lead a sizable group of the SEC's best teams vying for rankings supremacy.`\
-https://nytimes.com/athletic/5975620/2024/12/09/college-basketball-top-25-auburn-tennessee/
 

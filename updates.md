@@ -1,3 +1,7 @@
+**New York City Council Sues Adams for Blocking Solitary Confinement Ban**\
+`The lawsuit charges that Mayor Eric Adams exceeded his authority when he declared a state of emergency to block a ban on the practice in city jails.`\
+https://nytimes.com/2024/12/09/nyregion/solitary-confinement-nyc-adams.html
+
 **Crowds Throng to Prison in Syria, Desperate to Find Relatives and Friends**\
 `The Assad regime ran a network of torture centers that swallowed up tens of thousands of Syrians. Now that the rebels have opened the gates, many see a chance to learn of the detainees’ fates.`\
 https://nytimes.com/2024/12/09/world/middleeast/syria-sednaya-prison-damascus.html
