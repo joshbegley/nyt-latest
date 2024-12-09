@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
 `\
 https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
 
+**Before dismantling Bears, the 49ers found their missing element: desperation**\
+`For the first time this season, the 49ers looked like their 2023 selves for a full game — even while missing many of their 2023 stars.
+`\
+https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
+
 **Rosenthal: In landmark deal with the Mets, Juan Soto gets what he's wanted all along**\
 `The superstar outfielder agreed to a 15-year, $765 million contract with the Mets on Sunday night.`\
 https://nytimes.com/athletic/5941131/2024/12/08/juan-soto-contract-mets-mlb-free-agency-rosenthal/
