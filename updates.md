@@ -1,3 +1,11 @@
+**For Mets fans, signing Juan Soto away from the Yankees is extra special**\
+`In the Juan Soto free agency sweepstakes, the "little brother" of the two New York franchises came out on top — a rare occurrence. `\
+https://nytimes.com/athletic/5980558/2024/12/09/juan-soto-mets-contract-yankees-fans/
+
+**Pulisic sidelined until 2025 with calf muscle tear**\
+`USMNT and Milan forward Christian Pulisic is set to be sidelined until early January after sustaining a minor tear to a muscle in his right calf.`\
+https://nytimes.com/athletic/5980722/2024/12/09/christian-pulisic-injury-update-milan/
+
 **Oil Markets Shrug Off Overthrow of Syrian Ruler**\
 `Traders appeared to be more concerned about tepid global growth and an oversupply from other producers than about Bashar al-Assad’s ouster.`\
 https://nytimes.com/2024/12/09/business/oil-prices-syria.html
