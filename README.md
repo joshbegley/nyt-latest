@@ -1,3 +1,23 @@
+**Mets land Juan Soto behind $765 million and Steve Cohen's personalized approach**\
+`In addition to paying top dollar, Cohen demonstrated his intentions to win and hit all the right notes in his pitch to Soto.`\
+https://nytimes.com/athletic/5969413/2024/12/08/juan-soto-mets-contract-steve-cohen/
+
+**Ivan Provorov toughs it out, Kent Johnson scores twice in gutsy Blue Jackets win**\
+`Columbus mustered up the energy to knock off one of the NHL's top teams in one of the league's most difficult arenas 4-1 in Winnipeg.`\
+https://nytimes.com/athletic/5979861/2024/12/08/blue-jackets-win-jets-ivan-provorov-kent-johnson/
+
+**Massacre in Haiti’s Capital Leaves Over 100 Dead, Rights Group Says**\
+`The killings in a Port-au-Prince slum, which appeared to target practitioners of voodoo, were ordered by a gang leader, a human rights organization said.`\
+https://nytimes.com/2024/12/08/world/americas/haiti-gang-massacre.html
+
+**After their most complete win since October, the Seahawks have found a groove**\
+`The Seahawks have won four straight and remain atop the NFC West, as the offense, defense and special teams all contributed.`\
+https://nytimes.com/athletic/5979969/2024/12/08/seahawks-win-playoff-hopes-cardinals/
+
+**Tom Brady delivers his breakthrough TV analyst moment**\
+`In NFL's Week 14 game between the Bills and the Rams, Tom Brady had his best performance yet in the Fox broadcast booth.`\
+https://nytimes.com/athletic/5979996/2024/12/08/tom-brady-fox-sports-broadcast-tv-bills-rams-week-14-richard-deitsch-review/
+
 **Before dismantling Bears, the 49ers found their missing element: desperation**\
 `For the first time this season, the 49ers looked like their 2023 selves for a full game — even while missing many of their 2023 stars.
 `\
@@ -18,24 +38,4 @@ https://nytimes.com/2024/12/08/sports/minnesota-vikings-white-chicks-dance.html
 **Juan Soto to join New York Mets on 15-year, $765 million megadeal: Source**\
 `Soto, still just 26 years old, becomes the highest-paid player in baseball, eclipsing the contract of Shohei Ohtani.`\
 https://nytimes.com/athletic/5932790/2024/12/08/juan-soto-mets-free-agent-deal/
-
-**Coaching change can't cover up the truth: The Bears are a mess**\
-`There was no interim coach "bump" for the Bears on Sunday. They got embarrassed by the 49ers, losing their seventh straight game.`\
-https://nytimes.com/athletic/5979909/2024/12/08/bears-problems-thomas-brown-49ers/
-
-**Dodgers to sign outfielder Michael Conforto to 1-year, $17 million deal: Sources**\
-`Adding Conforto gives the Dodgers at least some short-term stability for an outfield that was set to become much younger next season.`\
-https://nytimes.com/athletic/5980008/2024/12/08/dodgers-sign-michael-conforto-contract/
-
-**‘Dune: Prophecy’: Travis Fimmel on His Character’s Fiery Rise to the Top**\
-`Desmond Hart has been a wild card since he burned a young prince alive with his mind. The actor who plays him talked about what motivates Desmond’s drive for power.`\
-https://nytimes.com/2024/12/08/arts/television/dune-prophecy-travis-fimmel.html
-
-**‘Dune: Prophecy’ Season 1, Episode 4 Recap: Ol’ Blue Eyes**\
-`The sisters have a terrifying vision. Desmond gives a terrifying display of his power and loyalty. Any connection?`\
-https://nytimes.com/2024/12/08/arts/television/dune-prophecy-recap-season-1-episode-4.html
-
-**MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
-`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
-https://nytimes.com/athletic/5891633/2024/12/08/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
 
