@@ -1,3 +1,11 @@
+**‘Emilia Pérez’ Tops Golden Globe Nominations**\
+`The movie received 10 nominations, the most of any movie. “Conclave,” “Wicked” and “Anora” will be among the other films contending for the top prizes.`\
+https://nytimes.com/2024/12/09/movies/emilia-perez-tops-golden-globe-nominations.html
+
+**Fantasy football playoffs strategy: Target Jameis Winston and WRs facing the Bengals**\
+`KC Joyner helps you prepare for the fantasy football playoffs utilizing vertical pass stats. `\
+https://nytimes.com/athletic/5981026/2024/12/09/fantasy-football-playoffs-strategy-target-jameis-winston-russell-wilson-wrs-facing-the-bengals/
+
 **New York City Council Sues Adams for Blocking Solitary Confinement Ban**\
 `The lawsuit charges that Mayor Eric Adams exceeded his authority when he declared a state of emergency to block a ban on the practice in city jails.`\
 https://nytimes.com/2024/12/09/nyregion/solitary-confinement-nyc-adams.html
