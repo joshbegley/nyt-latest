@@ -1,3 +1,7 @@
+**‘Person of Interest’ in C.E.O. Shooting Has Background in Games Industry**\
+`Luigi Mangione was passionate about game development and programming from a young age, teaching himself to code in high school.`\
+https://nytimes.com/2024/12/09/nyregion/uhc-suspect-video-games.html
+
 **Trump Tests Ethical Boundaries With Branded Merch. (And All Sales Are Final.)**\
 `Everything around President-elect Donald J. Trump has become something to monetize, including a moment of comity with Jill Biden at Notre-Dame over the weekend.`\
 https://nytimes.com/2024/12/09/us/politics/trump-perfumes-sneakers-licensing.html

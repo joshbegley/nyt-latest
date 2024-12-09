@@ -1,3 +1,7 @@
+**Josh Allen's best-ever QB fantasy performance and those he surpassed**\
+`Josh Allen had the best-ever fantasy performance by a QB in the history of the NFL. Comparing the other four QBs since 2004 who came close.`\
+https://nytimes.com/athletic/5982189/2024/12/09/josh-allen-best-ever-qb-nfl-fantasy-football-performance/
+
 **‘Person of Interest’ in C.E.O. Shooting Has Background in Games Industry**\
 `Luigi Mangione was passionate about game development and programming from a young age, teaching himself to code in high school.`\
 https://nytimes.com/2024/12/09/nyregion/uhc-suspect-video-games.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/arts/music/jay-z-diddy-lawsuit-buzbee.html
 **Read the Letter From Nobel Laureates Urging That Mr. Kennedy Not be Confirmed**\
 `More than 75 laureates have written an open letter describing Mr. Kennedy’s selection for H.H.S. secretary as detrimental to public health.`\
 https://nytimes.com/interactive/2024/12/09/health/rfkltr.html
-
-**Juan Soto to the Mets: 6 initial questions for card collectors **\
-`The first questions to consider as Soto embarks on a new chapter that's likely to alter his trading card market `\
-https://nytimes.com/athletic/5980193/2024/12/09/juan-soto-mets-baseball-cards/
 
