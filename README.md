@@ -1,3 +1,7 @@
+**What Syria Needs in Order to Rebuild**\
+`U.S. sanctions policy in the country must change.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/syria-us-sanctions
+
 **Expanding the Laws on Assisted Dying**\
 `Readers discuss the British vote on the issue and urge actions in the U.S. Also: Safeguarding our food; taxing cow burps in Denmark; a crossword tale.`\
 https://nytimes.com/2024/12/09/opinion/assisted-dying-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/as-rebels-rush-to-e
 **Coote sacked by PGMOL over conduct**\
 `Premier League referee David Coote has had his contract terminated by the Professional Game Match Officials Limited (PGMOL) following an investigation into his conduct.`\
 https://nytimes.com/athletic/5917480/2024/12/09/david-coote-verdict-pgmol/
-
-**Fighting still rages in northern Syria as rebel groups vie for territory.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/fighting-still-rages-in-northern-syria-as-rebel-groups-vie-for-territory
 
