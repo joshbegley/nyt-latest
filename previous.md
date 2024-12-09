@@ -1,3 +1,35 @@
+**Why Chinese Americans Have Shifted Rightward**\
+`A growing number of Chinese Americans, especially naturalized immigrants, say Democrats have become too lenient on crime and homelessness.`\
+https://nytimes.com/2024/12/09/us/elections/chinese-americans-conservative-trump.html
+
+**The Most Memorable Things We Saw at Miami Art Week**\
+`And what the last art fairs of 2024 say about where the art world is going.`\
+https://nytimes.com/2024/12/09/t-magazine/art-basel-miami-beach-highlights.html
+
+**Review: Resistance and Struggle in a Dance of Private Rites**\
+`A solo by the choreographer Bintou Dembélé, the first showing of her work in the United States, explored the crossover between hip-hop and diasporic African ritual.`\
+https://nytimes.com/2024/12/09/arts/dance/review-bintou-dembele.html
+
+**Man Held in C.E.O. Killing Showed Interest in Pop Science and Self-Improvement on Social Media**\
+`Figures like Andrew Huberman, Tim Urban and the Unabomber feature in posts shared by accounts that appear to belong to the man arrested on Monday.`\
+https://nytimes.com/2024/12/09/style/unitedhealthcare-ceo-suspect-social-media.html
+
+**The man detained in connection with the shooting had a handwritten manifesto.**\
+`The document described his “motivation and mind-set” and conveyed “ill will toward corporate America,” according to the authorities.`\
+https://nytimes.com/live/2024/12/09/nyregion/unitedhealthcare-ceo-shooting-news/the-man-detained-in-connection-with-the-shooting-had-a-handwritten-manifesto
+
+**Belichick confirms UNC conversations, makes pitch for college job**\
+`Belichick said if he were to coach an FBS team, it would be "an NFL program at a college level."`\
+https://nytimes.com/athletic/5981833/2024/12/09/bill-belichick-unc-football-pat-mcaffee-comments/
+
+**Where the Yankees stand: What should they do after their failed Juan Soto pursuit?**\
+`Juan Soto is a Met and Plan B is here for the Yankees. Writers Brendan Kuty and Chris Kirschner discuss the new path the Yankees must take.`\
+https://nytimes.com/athletic/5981950/2024/12/09/yankees-roster-whats-next-soto/
+
+**Events to Shake, or Gently Rattle, the World in 2025**\
+`Planning your calendar for next year? Here are some events to look out for.`\
+https://nytimes.com/2024/12/09/special-series/events-to-shake-the-world-2025.html
+
 **Raiders' O'Connell suffers bone bruise, will try to play in Week 15: Source**\
 `If O'Connell can't go, Las Vegas will turn to Desmond Ridder to start against his former team, the Atlanta Falcons. `\
 https://nytimes.com/athletic/5981764/2024/12/09/aidan-oconnell-raiders-injury-update/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/5981764/2024/12/09/aidan-oconnell-raiders-injury-up
 **The inside story of David Coote, PGMOL and the Premier League's biggest refereeing crisis**\
 `How the biggest refereeing scandal in English football's modern era played out... and what it could mean`\
 https://nytimes.com/athletic/5981479/2024/12/09/david-coote-referee-sack-pgmol/
-
-**Displaced Syrians Return to their Homes After Rebel Takeover**\
-`Thousands of Syrians who were forced to leave their homes in the war began traveling home after a rebel offensive drove President Bashar al-Assad out of power.`\
-https://nytimes.com/video/world/middleeast/100000009867321/syria-displaced-returning.html
-
-**Juan Soto signing skyrockets New York Mets' World series odds, Yankees fall**\
-`Juan Soto finding his new team has sent shockwaves through the MLB betting market. Read here for the odds impact on the Mets and Yankees.`\
-https://nytimes.com/athletic/5981941/2024/12/09/juan-soto-signing-skyrockets-new-york-mets-world-series-odds-yankees-fall/
-
-**‘Strong Person of Interest’ Is Arrested in Health Care C.E.O.’s Shooting**\
-`Luigi Mangione, 26, was arrested on gun charges and for questioning in connection with last week’s killing of a health insurance executive in Midtown Manhattan.`\
-https://nytimes.com/video/nyregion/100000009868177/unitedhealthcare-ceo-shooting-arrest.html
-
-**Syria’s President Had Stocks of Chemical Weapons. What Happens to Them Now?**\
-`While experts believe that Syria has retained some stocks of chemical weapons, their quantities likely have been depleted and it would be hard for rogue actors to use them.`\
-https://nytimes.com/2024/12/09/world/middleeast/syria-chemical-weapons-arsenal.html
-
-**SMU at Penn State: Kickoff time, odds, storylines for CFP first-round game**\
-`Penn State is favored by more than a touchdown against SMU, which was the last team to get in the College Football Playoff field.`\
-https://nytimes.com/athletic/5981776/2024/12/09/smu-penn-state-time-odds-college-football-playoff/
-
-**Dodgers still looking to add relief pitching after re-signing Blake Treinen: Sources**\
-`Tanner Scott and Devin Williams rank among the top options as the Dodgers look to bolster a relief corps that proved crucial in 2024.`\
-https://nytimes.com/athletic/5981967/2024/12/09/dodgers-tanner-scott-devin-williams/
-
-**Clemson at Texas: Kickoff time, odds with Longhorns heavily favored in CFP game**\
-`The Longhorns are a double-digit favorite against Clemson, making Texas the biggest favorite in the College Football Playoff's first round.`\
-https://nytimes.com/athletic/5981899/2024/12/09/clemson-texas-time-odds-college-football-playoff/
-
-**Rupert Murdoch Fails in Bid to Change Family Trust**\
-`A Nevada commissioner ruled resoundingly against Mr. Murdoch, who was trying to give full control of his empire to his son Lachlan and lock in Fox News’s right-wing editorial slant.`\
-https://nytimes.com/2024/12/09/business/media/rupert-lachlan-murdoch-family-trust.html
 
