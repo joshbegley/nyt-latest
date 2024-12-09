@@ -1,3 +1,19 @@
+**Chris Paul, the ‘ultimate leader, ultimate competitor’, achieves another NBA milestone**\
+`Paul surpasses Jason Kidd for second place in career NBA assists with 12,099.`\
+https://nytimes.com/athletic/5981209/2024/12/09/chris-paul-spurs-assists-nba-milestone/
+
+**Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
+`A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
+https://nytimes.com/2024/12/09/nyregion/uhc-ceo-murder-suspect.html
+
+**The Windup: Inside Juan Soto’s $765M megadeal**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/5981444/2024/12/09/juan-soto-mets-contract-the-windup/
+
+**USYNT goalkeeper Kochen signs new Barcelona deal**\
+`United States youth international Diego Kochen has signed a new contract at Barcelona that runs until 2028.`\
+https://nytimes.com/athletic/5980983/2024/12/09/diego-kochen-barcelona-contract/
+
 **Central Michigan tabs Army assistant Matt Drinkall as next head coach**\
 `Before his six-year stint as an Army assistant, Drinkall compiled a 42-17 record as the head coach at Kansas Wesleyan from 2014-18.`\
 https://nytimes.com/athletic/5981464/2024/12/09/central-michigan-head-coach-matt-drinkall-2/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/12/04/opinion/thepoint/syria-us-sanctions
 **Expanding the Laws on Assisted Dying**\
 `Readers discuss the British vote on the issue and urge actions in the U.S. Also: Safeguarding our food; taxing cow burps in Denmark; a crossword tale.`\
 https://nytimes.com/2024/12/09/opinion/assisted-dying-uk.html
-
-**NBA, FIBA in 'serious conversation' about new European league**\
-`There are about 60 European players in the NBA, or about 15 percent of the entire league.`\
-https://nytimes.com/athletic/5981348/2024/12/09/fiba-nba-european-league-andreas-zagklis/
-
-**What I saw in the PWHL this week: A controversial hit, Minnesota's Dominique Petrie shines**\
-`Plus: A sibling reunion in Ottawa, a revenge game, Boston's first win and more from the second week of the PWHL season.`\
-https://nytimes.com/athletic/5981163/2024/12/09/pwhl-hockey-minnesota-boston-toronto/
-
-**At the Kennedy Center, a Send-Off to Biden and Questions About the Future**\
-`A bipartisan crowd honored Francis Ford Coppola, the Grateful Dead, Bonnie Raitt, Arturo Sandoval and the Apollo Theater. Some wondered if Donald J. Trump would attend next year.`\
-https://nytimes.com/2024/12/09/arts/kennedy-center-honors.html
-
-**China’s Critical Minerals Embargo Is Even Tougher Than Expected**\
-`Beijing ordered companies around the world not to allow critical minerals mined in China to reach the U.S., while deepening its efforts to replace imports with domestic products.`\
-https://nytimes.com/2024/12/09/business/china-critical-minerals.html
 
