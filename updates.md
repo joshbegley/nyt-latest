@@ -1,3 +1,7 @@
+**Raiders' O'Connell suffers bone bruise, will try to play in Week 15: Source**\
+`If O'Connell can't go, Las Vegas will turn to Desmond Ridder to start against his former team, the Atlanta Falcons. `\
+https://nytimes.com/athletic/5981764/2024/12/09/aidan-oconnell-raiders-injury-update/
+
 **The inside story of David Coote, PGMOL and the Premier League's biggest refereeing crisis**\
 `How the biggest refereeing scandal in English football's modern era played out... and what it could mean`\
 https://nytimes.com/athletic/5981479/2024/12/09/david-coote-referee-sack-pgmol/
