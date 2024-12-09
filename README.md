@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/09/crosswords/spelling-bee-forum.html
+
+**Three-Quarters of Earth’s Land Got Drier in Recent Decades, U.N. Says**\
+`Human-caused global warming helped increase dry conditions on every continent, scientists said in a new report, as talks on halting desertification were underway in Saudi Arabia.`\
+https://nytimes.com/2024/12/09/climate/global-desertification.html
+
+**An Elite School and the Criminal It Hired to Teach Math**\
+`Saint Ann’s School hired Winston Nguyen knowing he had been imprisoned for fraud. Then someone began soliciting graphic sexual images from its students.`\
+https://nytimes.com/2024/12/09/nyregion/saint-anns-winston-nguyen-crime.html
+
+**How a Criminal With Close Ties to China Became a New York Power Broker**\
+`John Chan was a Chinatown gangster before remaking himself into a powerful force in New York politics — one closely aligned with the Chinese Communist Party.`\
+https://nytimes.com/2024/12/09/nyregion/chan-china-nyc-influence.html
+
 **Buddy system: Warriors' new starting lineup works as Hield takes down Timberwolves**\
 `Hield scored 27 points, including the dagger 3, while Gary Payton II carried Golden State on the defensive end.`\
 https://nytimes.com/athletic/5979882/2024/12/09/buddy-hield-warriors-gary-payton-timberwolves/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/12/09/world/syria-assad-rebels
 **South Korea Bars President From Traveling Abroad**\
 `President Yoon Suk Yeol cannot leave the country as an investigation unfolds into whether he led an insurrection last week when he briefly imposed martial law.`\
 https://nytimes.com/2024/12/09/world/asia/south-korea-yoon-travel-ban.html
-
-**Tulane's Sumrall intends to stay put; UNC remains in contact with Belichick**\
-`Sumrall appeared to be a strong candidate for the Tar Heels from the moment they fired Mack Brown.`\
-https://nytimes.com/athletic/5980439/2024/12/09/tulane-jon-sumrall-unc-interest/
-
-**Assad’s Syria Was Brutal. Will What Comes Next Be Better?**\
-`It is hard not to worry that Syrians’ sense of deep relief today could be followed by a new set of horrors tomorrow.`\
-https://nytimes.com/2024/12/09/opinion/assad-syria-whats-next.html
-
-**‘The Creep Tapes’ Finale, Plus 6 Things to Watch on TV This Week**\
-`Mark Duplass reprises his serial killer role in a new series. And reality TV royalty, Paris Hilton and Nicole Richie, reunite.`\
-https://nytimes.com/2024/12/09/arts/television/creep-tapes-finale.html
-
-**She Won Over Italy. Now She’s Bringing Trumpism to Europe.**\
-`Giorgia Meloni is ready to be the bridge between Donald Trump and Europe.`\
-https://nytimes.com/2024/12/09/opinion/meloni-trump-europe.html
 
