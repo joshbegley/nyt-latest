@@ -1,4 +1,8 @@
 **Bucks, Bobby Portis 'get it out the mud' in second half to escape with a win over Nets**\
+`With the offense stuck against Brooklyn, the Bucks found "better energy" in the fourth and got tough defense from an unlikely source.`\
+https://nytimes.com/athletic/5979645/2024/12/09/bucks-giannis-antetokounmpo-bobby-portis/
+
+**Bucks, Bobby Portis 'get it out the mud' in second half to escape with a win over Nets**\
 `With the offense stuck against Brooklyn, Milwaukee started moving late in the fourth quarter and got tough defense from an unlikely source.`\
 https://nytimes.com/athletic/5979645/2024/12/09/bucks-giannis-antetokounmpo-bobby-portis/
 
