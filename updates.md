@@ -1,3 +1,11 @@
+**Falcons' problems go beyond Kirk Cousins: 'Nobody coming to save us'**\
+`The Falcons lost their fourth straight game and now trail Tampa Bay by one game in the NFC South.`\
+https://nytimes.com/athletic/5979364/2024/12/08/falcons-problems-kirk-cousins-vikings/
+
+**How Yankees, Rays will handle temporary home ballpark in Tampa, Fla.**\
+`The Rays will play at the Yankees' spring training ballpark for the 2025 season due to damage at Tropicana Field from Hurricane Milton.`\
+https://nytimes.com/athletic/5979402/2024/12/08/rays-temporary-home-ballpark-yankees/
+
 **College football bowl watch guide: Schedule and odds for every bowl game**\
 `It's bowl season! We have every matchup with kickoff time, TV info and betting odds. Plus, a look at a few games to watch.`\
 https://nytimes.com/athletic/5978829/2024/12/08/college-football-bowl-schedule-odds/
