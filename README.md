@@ -1,3 +1,15 @@
+**Word of the Day: permafrost**\
+`This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/09/learning/word-of-the-day-permafrost.html
+
+**Here are the latest developments.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/here-are-the-latest-developments
+
+**Live Updates: Rebels Who Toppled Assad Face Stark Challenges in Syria**\
+`Syrians who fled during the 13-year civil war are considering whether to return, as the rebels who now control Damascus try to unite the country.`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels
+
 **South Korea Bars President From Traveling Abroad**\
 `President Yoon Suk Yeol cannot leave the country as an investigation unfolds into whether he led an insurrection last week when he briefly imposed martial law.`\
 https://nytimes.com/2024/12/09/world/asia/south-korea-yoon-travel-ban.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5979645/2024/12/09/bucks-giannis-antetokounmpo-bobb
 **Newcastle enter a crucial period and must start delivering**\
 `The fixture list over the next fortnight offers up some jeopardy for Newcastle United, but also presents the team with an opportunity `\
 https://nytimes.com/athletic/5976043/2024/12/09/newcastle-enter-a-crucial-period-of-their-season-and-must-start-delivering/
-
-**In win over Manchester United, Nottingham Forest show scale of growth under Nuno**\
-`Under manager Nuno Espirito Santo, Forest go into games believing they can win. At their best, they can go toe-to-toe with the big clubs`\
-https://nytimes.com/athletic/5977631/2024/12/09/chris-wood-nottingham-forest-manchester-united/
-
-**Jamie Vardy, aged 37 (and 11 months). Scoring goals. Setting records. Saving Leicester City.**\
-`Could the striker still be going when he's 40?`\
-https://nytimes.com/athletic/5978333/2024/12/09/jamie-vardy-37-leicester-setting-records/
-
-**Recent woes made Red Sox a long shot for Juan Soto. What is Plan B now that he's a Met?**\
-`If the Red Sox want to build on their pursuit of Soto and show they are spenders, they'd be wise to make a significant move quickly.`\
-https://nytimes.com/athletic/5980301/2024/12/09/red-sox-juan-soto-alternatives/
 
