@@ -1,3 +1,11 @@
+**24 Things That Happened for the First Time in 2024**\
+`A series of surprising milestones, events and trends that were unprecedented until now.`\
+https://nytimes.com/2024/12/09/special-series/first-time-ever-2024.html
+
+**This Race Was Decided by 734 Votes. The G.O.P. Wants to Disqualify 60,000 Ballots.**\
+`One of the closest state elections in North Carolina history now hinges on the latest power struggle between state Republicans and Democrats — and a voter form dating back 20 years.`\
+https://nytimes.com/2024/12/09/us/north-carolina-election-ballots-republicans.html
+
 **Do You Know These Winter Holidays and Popular Books of the Season?**\
 `Celebrate the literature of this festive month with with a five-question quiz that comes with its own reading list.`\
 https://nytimes.com/interactive/2024/12/09/books/review/winter-holiday-books.html

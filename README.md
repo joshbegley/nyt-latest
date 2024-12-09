@@ -1,3 +1,7 @@
+**A Quick Arab Pivot: From Welcoming al-Assad to Managing the Chaos**\
+`Only weeks ago, Arab nations had been working hard to bring Bashar al-Assad back into the fold, assuming he was there to last. They were badly mistaken.`\
+https://nytimes.com/2024/12/09/world/middleeast/syria-arab-israel.html
+
 **24 Things That Happened for the First Time in 2024**\
 `A series of surprising milestones, events and trends that were unprecedented until now.`\
 https://nytimes.com/2024/12/09/special-series/first-time-ever-2024.html
@@ -23,7 +27,7 @@ https://nytimes.com/2024/12/09/special-series/oliver-jeffers-2024-reflections.ht
 https://nytimes.com/athletic/5979285/2024/12/09/timberwolves-identity/
 
 **‘Emilia Pérez’ Tops Golden Globe Nominations**\
-`The movie received 10 nominations, the most of any movie. “Conclave,” “Wicked” and “Anora” will be among the other films contending for the top prizes.`\
+`The movie received 10 nods, leading the field. Angelina Jolie, Timothée Chalamet, Pamela Anderson and Zendaya drew acting nominations.`\
 https://nytimes.com/2024/12/09/movies/golden-globes-2025.html
 
 **Fantasy football playoffs strategy: Target Jameis Winston and WRs facing the Bengals**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981026/2024/12/09/fantasy-football-playoffs-strate
 **New York City Council Sues Adams for Blocking Solitary Confinement Ban**\
 `The lawsuit charges that Mayor Eric Adams exceeded his authority when he declared a state of emergency to block a ban on the practice in city jails.`\
 https://nytimes.com/2024/12/09/nyregion/solitary-confinement-nyc-adams.html
-
-**Crowds Throng to Prison in Syria, Desperate to Find Relatives and Friends**\
-`The Assad regime ran a network of torture centers that swallowed up tens of thousands of Syrians. Now that the rebels have opened the gates, many see a chance to learn of the detainees’ fates.`\
-https://nytimes.com/2024/12/09/world/middleeast/syria-sednaya-prison-damascus.html
 
