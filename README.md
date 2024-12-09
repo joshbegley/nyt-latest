@@ -1,3 +1,19 @@
+**Submit a question for Kelly Iko’s Southwest Division mailbag**\
+`Life is good in the Southwest Division, assuming you’re not a diehard Pelicans fan.`\
+https://nytimes.com/athletic/5981250/2024/12/09/rockets-grizzlies-spurs-mailbag/
+
+**Germany suspends asylum decisions for Syrians.**\
+`Nearly a million Syrians currently live in Germany, the vast majority having left during the civil war.`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/germany-asylum-syrians
+
+**As rebels rush to establish order, governments weigh recognizing a group they once shunned as extremist.**\
+`By Vivian Yee`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/as-rebels-rush-to-establish-order-governments-weigh-recognizing-a-group-they-once-shunned-as-extremist
+
+**Coote sacked by PGMOL over conduct**\
+`Premier League referee David Coote has had his contract terminated by the Professional Game Match Officials Limited (PGMOL) following an investigation into his conduct.`\
+https://nytimes.com/athletic/5917480/2024/12/09/david-coote-verdict-pgmol/
+
 **Fighting still rages in northern Syria as rebel groups vie for territory.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/fighting-still-rages-in-northern-syria-as-rebel-groups-vie-for-territory
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/09/dining/give-your-salmon-an-anchovy-butter-boost.h
 **To Become a Better Runner, Should You Adjust Your Form?**\
 `Many runners believe their natural stride could be improved. Here’s what to know before trying to change yours.`\
 https://nytimes.com/2024/12/09/well/move/running-form-fitness.html
-
-**Lara Trump to Step Down as R.N.C. Co-Chair Amid Florida Senate Speculation**\
-`The daughter-in-law of President-elect Donald J. Trump, Ms. Trump gave no indication of her next move. Senator Marco Rubio’s seat would become open if he’s confirmed as secretary of state.`\
-https://nytimes.com/2024/12/09/us/politics/lara-trump-rnc-florida-senate.html
-
-**Texas A&M DL, top-15 prospect Shemar Stewart declares for 2025 NFL Draft**\
-`Stewart is one of the many decorated members of Texas A&M's record-setting 2022 recruiting class to move on this offseason.`\
-https://nytimes.com/athletic/5981269/2024/12/09/shemar-stewart-nfl-draft-texas-am/
-
-**Roebuck makes 'dream' return to football after stroke**\
-`Barcelona goalkeeper Ellie Roebuck has reflected on making her &#8220;dream&#8221; return to first-team action after recovering from a stroke.`\
-https://nytimes.com/athletic/5981294/2024/12/09/ellie-roebuck-barcelona-return-stroke/
-
-**Golden Globes 2025 Snubs and Surprises: Danielle Deadwyler, ‘The Substance’ and More**\
-`Female directors were well-represented, while “Dune: Part Two” and “Sing Sing” didn’t do as well as expected.`\
-https://nytimes.com/2024/12/09/movies/golden-globes-snubs-surprises-2025.html
 
