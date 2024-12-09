@@ -1,3 +1,23 @@
+**Juan Soto signing skyrockets New York Mets' World series odds, Yankees fall**\
+`Juan Soto finding his new team has sent shockwaves through the MLB betting market. Read here for the odds impact on the Mets and Yankees.`\
+https://nytimes.com/athletic/5981941/2024/12/09/juan-soto-signing-skyrockets-new-york-mets-world-series-odds-yankees-fall/
+
+**‘Strong Person of Interest’ Is Arrested in Health Care C.E.O.’s Shooting**\
+`Luigi Mangione, 26, was arrested on gun charges and for questioning in connection with last week’s killing of a health insurance executive in Midtown Manhattan.`\
+https://nytimes.com/video/nyregion/100000009868177/unitedhealthcare-ceo-shooting-arrest.html
+
+**Syria’s President Had Stocks of Chemical Weapons. What Happens to Them Now?**\
+`While experts believe that Syria has retained some stocks of chemical weapons, their quantities likely have been depleted and it would be hard for rogue actors to use them.`\
+https://nytimes.com/2024/12/09/world/middleeast/syria-chemical-weapons-arsenal.html
+
+**SMU at Penn State: Kickoff time, odds, storylines for CFP first-round game**\
+`Penn State is favored by more than a touchdown against SMU, which was the last team to get in the College Football Playoff field.`\
+https://nytimes.com/athletic/5981776/2024/12/09/smu-penn-state-time-odds-college-football-playoff/
+
+**Dodgers still looking to add relief pitching after re-signing Blake Treinen: Sources**\
+`Tanner Scott and Devin Williams rank among the top options as the Dodgers look to bolster a relief corps that proved crucial in 2024.`\
+https://nytimes.com/athletic/5981967/2024/12/09/dodgers-tanner-scott-devin-williams/
+
 **Clemson at Texas: Kickoff time, odds with Longhorns heavily favored in CFP game**\
 `The Longhorns are a double-digit favorite against Clemson, making Texas the biggest favorite in the College Football Playoff's first round.`\
 https://nytimes.com/athletic/5981899/2024/12/09/clemson-texas-time-odds-college-football-playoff/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5981577/2024/12/09/indiana-notre-dame-how-to-watch-
 **NFL Week 15 odds, spreads, schedule: Two hypothetical Super Bowl previews**\
 `Two games this week feature Super Bowl-level matchups. One features the biggest spread of the season.`\
 https://nytimes.com/athletic/5981351/2024/12/09/nfl-week-15-odds-spreads-schedule-bills-lions-ravens/
-
-**New York Taxpayers Could Get Refunds of Up to $500 Under Hochul Plan**\
-`The proposal, which Gov. Kathy Hochul intends to include in next year’s state budget, would send $3 billion in refunds to roughly 8.6 million New Yorkers.`\
-https://nytimes.com/2024/12/09/nyregion/tax-refund-ny-hochul.html
-
-**The factors that pushed the bidding for Juan Soto to unexpected heights**\
-`Soto landed on the open market with the right teams looking to make a splash.`\
-https://nytimes.com/athletic/5981844/2024/12/09/mets-juan-soto-contract-record/
-
-**Trump Says He Would Let ‘Dreamers’ Stay. But He Once Tried to Gut the Program.**\
-`President-elect Donald J. Trump’s stance on the immigrants who were brought to the country illegally as children is filled with contradictions.`\
-https://nytimes.com/2024/12/09/us/politics/trump-dreamers-daca.html
-
-**Southern California Braces for Another ‘Particularly Dangerous’ Fire Forecast**\
-`Wildfire risk is high in Southern California, where little rain has fallen recently. The threat will skyrocket this week as offshore winds pick up.`\
-https://nytimes.com/2024/12/09/weather/southern-california-wind-fire-weather-forecast.html
-
-**Alisson to start against Girona following injury lay-off**\
-`Arne Slot admits Alisson has a tough act to follow as the Liverpool goalkeeper prepares to make his comeback in Wednesday’s Champions League clash away to Girona.`\
-https://nytimes.com/athletic/5981618/2024/12/09/alisson-return-liverpool-injury/
 
