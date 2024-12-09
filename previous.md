@@ -1,3 +1,15 @@
+**Rupert Murdoch Fails in Bid to Change Family Trust**\
+`A Nevada commissioner ruled resoundingly against Mr. Murdoch, who was trying to give full control of his empire to his son Lachlan and lock in Fox News’s right-wing editorial slant.`\
+https://nytimes.com/2024/12/09/business/media/rupert-lachlan-murdoch-family-trust.html
+
+**Why I Still Send Holiday Cards — and You Should, Too**\
+`They serve a social function that’s surprisingly important.`\
+https://nytimes.com/2024/12/09/opinion/holiday-christmas-cards.html
+
+**Indiana at Notre Dame: How to watch, odds, storylines for intrastate CFP game**\
+`Two 11-1 teams from the state of Indiana meet in the first round of the College Football Playoff. Notre Dame is favored against IU.`\
+https://nytimes.com/athletic/5981577/2024/12/09/indiana-notre-dame-how-to-watch-odds-college-football-playoff/
+
 **NFL Week 15 odds, spreads, schedule: Two hypothetical Super Bowl previews**\
 `Two games this week feature Super Bowl-level matchups. One features the biggest spread of the season.`\
 https://nytimes.com/athletic/5981351/2024/12/09/nfl-week-15-odds-spreads-schedule-bills-lions-ravens/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5981618/2024/12/09/alisson-return-liverpool-injury/
 **Panthers' Jonathon Brooks tears right ACL again**\
 `The rookie running back tore his ACL at Texas last season and suffered the tear to the ligament in the same knee Sunday vs. the Eagles.`\
 https://nytimes.com/athletic/5981541/2024/12/09/panthers-jonathon-brooks-acl-injury-surgery/
-
-**Saints' Derek Carr fractures left hand, could miss rest of season**\
-`The Saints are 5-5 with their starting quarterback in the lineup. Who will they turn to if he has to miss time?`\
-https://nytimes.com/athletic/5979386/2024/12/09/saints-derek-carr-hand-injury/
-
-**Foreign governments weigh recognizing rebels they once shunned as extremist.**\
-`By Vivian Yee`\
-https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/foreign-governments-weigh-recognizing-rebels-they-once-shunned-as-extremist
-
-**AP men's basketball Top 25: Kansas drops to No. 10 following 0-2 week**\
-`Kansas went 0-2 this past week after falling to Creighton (76-63) on Wednesday and Missouri (76-67) on Sunday.`\
-https://nytimes.com/athletic/5981655/2024/12/09/ap-mens-basketball-top-25-kansas-tennessee/
 

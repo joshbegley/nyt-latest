@@ -1,3 +1,15 @@
+**Rupert Murdoch Fails in Bid to Change Family Trust**\
+`A Nevada commissioner ruled resoundingly against Mr. Murdoch, who was trying to give full control of his empire to his son Lachlan and lock in Fox News’s right-wing editorial slant.`\
+https://nytimes.com/2024/12/09/business/media/rupert-lachlan-murdoch-family-trust.html
+
+**Why I Still Send Holiday Cards — and You Should, Too**\
+`They serve a social function that’s surprisingly important.`\
+https://nytimes.com/2024/12/09/opinion/holiday-christmas-cards.html
+
+**Indiana at Notre Dame: How to watch, odds, storylines for intrastate CFP game**\
+`Two 11-1 teams from the state of Indiana meet in the first round of the College Football Playoff. Notre Dame is favored against IU.`\
+https://nytimes.com/athletic/5981577/2024/12/09/indiana-notre-dame-how-to-watch-odds-college-football-playoff/
+
 **NFL Week 15 odds, spreads, schedule: Two hypothetical Super Bowl previews**\
 `Two games this week feature Super Bowl-level matchups. One features the biggest spread of the season.`\
 https://nytimes.com/athletic/5981351/2024/12/09/nfl-week-15-odds-spreads-schedule-bills-lions-ravens/
