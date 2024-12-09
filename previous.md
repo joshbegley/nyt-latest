@@ -1,4 +1,4 @@
-**8 free agents the Yankees can consider after losing Juan Soto to the TEAM TK**\
+**8 free agents the Yankees can consider after losing Juan Soto to the Mets**\
 `First baseman Christian Walker likely would have been an option for the Yankees even if Soto had re-signed with the team.`\
 https://nytimes.com/athletic/5950168/2024/12/08/juan-soto-yankees-free-agents/
 
@@ -31,7 +31,7 @@ https://nytimes.com/2024/12/08/world/americas/haiti-gang-massacre.html
 https://nytimes.com/athletic/5979969/2024/12/08/seahawks-win-playoff-hopes-cardinals/
 
 **Tom Brady delivers his breakthrough TV analyst moment**\
-`In NFL's Week 14 game between the Bills and the Rams, Tom Brady had his best performance yet in the Fox broadcast booth.`\
+`This is what Fox wanted when they gave Brady a 10-year, $375 million contract — what a Hall of Fame-to-be QB thinks about during the game.`\
 https://nytimes.com/athletic/5979996/2024/12/08/tom-brady-fox-sports-broadcast-tv-bills-rams-week-14-richard-deitsch-review/
 
 **Before dismantling Bears, the 49ers found their missing element: Desperation**\
