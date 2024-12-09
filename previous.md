@@ -1,3 +1,7 @@
+**Crowds Go to Syria’s Sednaya Prison In Search of Loved Ones**\
+`Rebel forces released many detainees from the notorious Sednaya military prison in Damascus. The government complex has a long history of human rights abuses under the rule of fallen President Bashar al-Assad.`\
+https://nytimes.com/video/world/middleeast/100000009867314/syria-sednaya-prison-damascus-.html
+
 **Why Chinese Americans Have Shifted Rightward**\
 `A growing number of Chinese Americans, especially naturalized immigrants, say Democrats have become too lenient on crime and homelessness.`\
 https://nytimes.com/2024/12/09/us/elections/chinese-americans-conservative-trump.html
@@ -10,7 +14,7 @@ https://nytimes.com/2024/12/09/t-magazine/art-basel-miami-beach-highlights.html
 `A solo by the choreographer Bintou Dembélé, the first showing of her work in the United States, explored the crossover between hip-hop and diasporic African ritual.`\
 https://nytimes.com/2024/12/09/arts/dance/review-bintou-dembele.html
 
-**Man Held in C.E.O. Killing Showed Interest in Pop Science and Self-Improvement on Social Media**\
+**Man Held in Connection to C.E.O. Killing Showed Interest on Social Media in Self-Improvement**\
 `Figures like Andrew Huberman, Tim Urban and the Unabomber feature in posts shared by accounts that appear to belong to the man arrested on Monday.`\
 https://nytimes.com/2024/12/09/style/unitedhealthcare-ceo-suspect-social-media.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/special-series/events-to-shake-the-world-2025.htm
 **Raiders' O'Connell suffers bone bruise, will try to play in Week 15: Source**\
 `If O'Connell can't go, Las Vegas will turn to Desmond Ridder to start against his former team, the Atlanta Falcons. `\
 https://nytimes.com/athletic/5981764/2024/12/09/aidan-oconnell-raiders-injury-update/
-
-**The inside story of David Coote, PGMOL and the Premier League's biggest refereeing crisis**\
-`How the biggest refereeing scandal in English football's modern era played out... and what it could mean`\
-https://nytimes.com/athletic/5981479/2024/12/09/david-coote-referee-sack-pgmol/
 

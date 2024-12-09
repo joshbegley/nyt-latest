@@ -20,7 +20,7 @@ https://nytimes.com/2024/12/09/style/unitedhealthcare-ceo-suspect-social-media.h
 
 **The man detained in connection with the shooting had a handwritten manifesto.**\
 `The document described his “motivation and mind-set” and conveyed “ill will toward corporate America,” according to the authorities.`\
-https://nytimes.com/live/2024/12/09/nyregion/unitedhealthcare-ceo-shooting-news/the-man-detained-in-connection-with-the-shooting-had-a-handwritten-manifesto
+https://nytimes.com/2024/12/09/nyregion/the-man-detained-in-connection-with-the-shooting-had-a-handwritten-manifesto.html
 
 **Belichick confirms UNC conversations, makes pitch for college job**\
 `Belichick said if he were to coach an FBS team, it would be "an NFL program at a college level."`\

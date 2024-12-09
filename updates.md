@@ -1,3 +1,11 @@
+**Crowds Go to Syria’s Sednaya Prison In Search of Loved Ones**\
+`Rebel forces released many detainees from the notorious Sednaya military prison in Damascus. The government complex has a long history of human rights abuses under the rule of fallen President Bashar al-Assad.`\
+https://nytimes.com/video/world/middleeast/100000009867314/syria-sednaya-prison-damascus-.html
+
+**Man Held in Connection to C.E.O. Killing Showed Interest on Social Media in Self-Improvement**\
+`Figures like Andrew Huberman, Tim Urban and the Unabomber feature in posts shared by accounts that appear to belong to the man arrested on Monday.`\
+https://nytimes.com/2024/12/09/style/unitedhealthcare-ceo-suspect-social-media.html
+
 **Why Chinese Americans Have Shifted Rightward**\
 `A growing number of Chinese Americans, especially naturalized immigrants, say Democrats have become too lenient on crime and homelessness.`\
 https://nytimes.com/2024/12/09/us/elections/chinese-americans-conservative-trump.html
