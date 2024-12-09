@@ -1,3 +1,15 @@
+**Central Michigan tabs Army assistant Matt Drinkall as next head coach**\
+`Before his six-year stint as an Army assistant, Drinkall compiled a 42-17 record as the head coach at Kansas Wesleyan from 2014-18.`\
+https://nytimes.com/athletic/5981464/2024/12/09/central-michigan-head-coach-matt-drinkall-2/
+
+**Daniel Penny Is Acquitted in Death of Jordan Neely on Subway**\
+`Mr. Penny choked Mr. Neely in a minutes-long struggle on the floor of an F train. The case reflected the pathologies of post-pandemic New York.`\
+https://nytimes.com/2024/12/09/nyregion/daniel-penny-not-guilty-jordan-neely.html
+
+**In Syria, an Image of Rebellion Embodied in a Hoodie**\
+`The quotidian uniforms of Syrian rebels, as they appeared on television, draws a powerful contrast to the image of President Bashar al-Assad.`\
+https://nytimes.com/2024/12/09/style/in-syria-an-image-of-rebellion-embodied-in-a-hoodie.html
+
 **Scoop City: Risers and fallers after Week 14**\
 `A quick look at the risers (Sam Darnold, the Rams), fallers (Kirk Cousins, Bills, Jets) and why Belichick could take the UNC job.`\
 https://nytimes.com/athletic/5981383/2024/12/09/week-14-risers-fallers-nfl-rams-vikings-scoop-city/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/09/arts/kennedy-center-honors.html
 **China’s Critical Minerals Embargo Is Even Tougher Than Expected**\
 `Beijing ordered companies around the world not to allow critical minerals mined in China to reach the U.S., while deepening its efforts to replace imports with domestic products.`\
 https://nytimes.com/2024/12/09/business/china-critical-minerals.html
-
-**Submit a question for Kelly Iko’s Southwest Division mailbag**\
-`Life is good in the Southwest Division, assuming you’re not a diehard Pelicans fan.`\
-https://nytimes.com/athletic/5981250/2024/12/09/rockets-grizzlies-spurs-mailbag/
-
-**Germany suspends asylum decisions for Syrians.**\
-`Nearly a million Syrians currently live in Germany, the vast majority having left during the civil war.`\
-https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/germany-asylum-syrians
-
-**As rebels rush to establish order, governments weigh recognizing a group they once shunned as extremist.**\
-`By Vivian Yee`\
-https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/as-rebels-rush-to-establish-order-governments-weigh-recognizing-a-group-they-once-shunned-as-extremist
 
