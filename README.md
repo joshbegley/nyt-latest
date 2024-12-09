@@ -1,40 +1,40 @@
-**The Athletic 134: How conference title games altered the FBS rankings**\
-`Coming off conference championship weekend and ahead of the postseason, there were some shakeups at the top of the rankings.`\
-https://nytimes.com/athletic/5979527/2024/12/09/college-football-rankings-fbs-teams-postseason/
+**Why Street Vendors Are Upset About a Ballot Measure**\
+`Proposition 2, which gives the Sanitation Department more authority to conduct sweeps of vendors, will hit immigrant vendors hard, an advocacy group said.`\
+https://nytimes.com/2024/12/09/nyregion/street-vendors-proposition-2.html
 
-**‘We Came Here Gloating’: Syrians Loot Assad’s Palace**\
-`Thrilled by the fall of President Bashar al-Assad, Syrians took furniture and appliances from his official residence. Some posed for photos.`\
-https://nytimes.com/video/world/middleeast/100000009866987/syria-assad-palace-loot.html
+**A Century-Old Law’s Aftershocks Are Still Felt at the Supreme Court**\
+`In 1925, Congress let the justices choose the cases they would decide. That change “continues to prompt political contention and crisis,” a scholar argues.`\
+https://nytimes.com/2024/12/09/us/politics/supreme-court-judiciary-act.html
 
-**Road to Damascus Littered With Relics of Fallen Assad Government**\
-`Reporters for The New York Times entered Syria on Monday, finding remnants of former President Bashar al-Assad’s oppressive rule.`\
-https://nytimes.com/2024/12/09/world/middleeast/damascus-road-syria-assad.html
+**E.P.A. Bans Cancer-Causing Chemicals Used in Dry Cleaning**\
+`The two solvents, known as Perc and TCE, cause kidney cancer and other ailments, and have been the subject of years of controversy.`\
+https://nytimes.com/2024/12/09/climate/epa-dry-cleaning-chemical-ban-perc-tce.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/09/crosswords/spelling-bee-forum.html
+**How to Keep Your Own Soul Safe in the Dark**\
+`Even at my lowest, I have never entirely given up my faith that good people working together can change the world for the better.`\
+https://nytimes.com/2024/12/09/opinion/environment-nature-hope.html
 
-**Three-Quarters of Earth’s Land Got Drier in Recent Decades, U.N. Says**\
-`Human-caused global warming helped increase dry conditions on every continent, scientists said in a new report, as talks on halting desertification were underway in Saudi Arabia.`\
-https://nytimes.com/2024/12/09/climate/global-desertification.html
+**How Can I Make Corduroy Look Cool?**\
+`A reader seeks advice on how to style corduroy in a modern fashion. Our critic offers guidance on wearing the highly versatile fabric.`\
+https://nytimes.com/2024/12/09/style/corduroy-cords-winter-fashion.html
 
-**An Elite School and the Criminal It Hired to Teach Math**\
-`Saint Ann’s School hired Winston Nguyen knowing he had been imprisoned for fraud. Then someone began soliciting graphic sexual images from its students.`\
-https://nytimes.com/2024/12/09/nyregion/saint-anns-winston-nguyen-crime.html
+**Should Lessons Based on the Bible Be Taught in Public Schools?**\
+`Texas has become the latest state to bring Christianity into the classroom. What is your reaction?`\
+https://nytimes.com/2024/12/09/learning/should-lessons-based-on-the-bible-be-taught-in-public-schools.html
 
-**How a Criminal With Close Ties to China Became a New York Power Broker**\
-`John Chan was a Chinatown gangster before remaking himself into a powerful force in New York politics — one closely aligned with the Chinese Communist Party.`\
-https://nytimes.com/2024/12/09/nyregion/chan-china-nyc-influence.html
+**Pardon You**\
+`Who among us deserves a get-out-of-jail-free card?`\
+https://nytimes.com/2024/12/09/opinion/biden-pardon-trump-cheney.html
 
-**Buddy system: Warriors' new starting lineup works as Hield takes down Timberwolves**\
-`Hield scored 27 points, including the dagger 3, while Gary Payton II carried Golden State on the defensive end.`\
-https://nytimes.com/athletic/5979882/2024/12/09/buddy-hield-warriors-gary-payton-timberwolves/
+**The Killings of Young Mothers**\
+`For women under 25, getting pregnant more than doubles their risk of homicide.`\
+https://nytimes.com/interactive/2024/12/09/opinion/pregnant-women-homicide.html
 
-**Red Bull F1 faces tough decisions as Sergio Pérez finally signals his looming exit**\
-`Red Bull will soon decide who will race alongside Verstappen ("the hardest teammate in the world") in 2025.`\
-https://nytimes.com/athletic/5978944/2024/12/09/sergio-perez-red-bull-f1-exit-lawson-tsunoda/
+**The Power Struggle Behind Trans Youth Health Care**\
+`And why the debate over gender-affirming care could have far-reaching implications.`\
+https://nytimes.com/2024/12/09/opinion/scotus-trans-youth-health-care.html
 
-**Word of the Day: permafrost**\
-`This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/09/learning/word-of-the-day-permafrost.html
+**A Comedian’s Path From Small-Town Tennessee to Breakout Fame**\
+`Leanne Morgan went from helping her husband sell mobile homes to sudden success in her 50s.`\
+https://nytimes.com/2024/12/09/books/review/leanne-morgan-what-in-the-world.html
 
