@@ -1,3 +1,7 @@
+**The Athletic 134: How conference title games altered the FBS rankings**\
+`Coming off conference championship weekend and ahead of the postseason, there were some shakeups at the top of the rankings.`\
+https://nytimes.com/athletic/5979527/2024/12/09/college-football-rankings-fbs-teams-postseason/
+
 **‘We Came Here Gloating’: Syrians Loot Assad’s Palace**\
 `Thrilled by the fall of President Bashar al-Assad, Syrians took furniture and appliances from his official residence. Some posed for photos.`\
 https://nytimes.com/video/world/middleeast/100000009866987/syria-assad-palace-loot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978944/2024/12/09/sergio-perez-red-bull-f1-exit-la
 **Word of the Day: permafrost**\
 `This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/09/learning/word-of-the-day-permafrost.html
-
-**Here are the latest developments.**\
-`By Mike Ives`\
-https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/here-are-the-latest-developments
 
