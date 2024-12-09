@@ -1,3 +1,15 @@
+**Bucs' Antoine Winfield Jr. to miss multiple games with knee sprain**\
+`Star defender left Sunday's win over Las Vegas with knee injury in second quarter.`\
+https://nytimes.com/athletic/5981651/2024/12/09/antoine-winfield-knee-injury-buccaneers/
+
+**Phillies add Jordan Romano to late-inning bullpen mix with 1-year deal**\
+`In a quest to fortify their bullpen, the Phillies have turned to Jordan Romano — an intriguing righty with upside who comes with some risk.`\
+https://nytimes.com/athletic/5980169/2024/12/09/jordan-romano-contract-phillies-mlb-free-agency/
+
+**Brighton striker O'Mahony returns from Portsmouth loan for injury rehab**\
+`Brighton &amp; Hove Albion striker Mark O&#8217;Mahony has returned from a season-long loan with Championship side Portsmouth to recover from a side strain.`\
+https://nytimes.com/athletic/5981704/2024/12/09/brighton-mark-omahony-portsmouth-injury/
+
 **TikTok Asks Court to Temporarily Freeze Sale-or-Ban Law**\
 `The company is requesting a pause on a law that requires the app to be sold or face a ban in the United States by mid-January, aiming to buy time for the Supreme Court or the incoming Trump administration to rescue it.`\
 https://nytimes.com/2024/12/09/business/tiktok-temporary-pause-ban-supreme-court-trump.html

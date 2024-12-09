@@ -1,3 +1,15 @@
+**Bucs' Antoine Winfield Jr. to miss multiple games with knee sprain**\
+`Star defender left Sunday's win over Las Vegas with knee injury in second quarter.`\
+https://nytimes.com/athletic/5981651/2024/12/09/antoine-winfield-knee-injury-buccaneers/
+
+**Phillies add Jordan Romano to late-inning bullpen mix with 1-year deal**\
+`In a quest to fortify their bullpen, the Phillies have turned to Jordan Romano — an intriguing righty with upside who comes with some risk.`\
+https://nytimes.com/athletic/5980169/2024/12/09/jordan-romano-contract-phillies-mlb-free-agency/
+
+**Brighton striker O'Mahony returns from Portsmouth loan for injury rehab**\
+`Brighton &amp; Hove Albion striker Mark O&#8217;Mahony has returned from a season-long loan with Championship side Portsmouth to recover from a side strain.`\
+https://nytimes.com/athletic/5981704/2024/12/09/brighton-mark-omahony-portsmouth-injury/
+
 **TikTok Asks Court to Temporarily Freeze Sale-or-Ban Law**\
 `The company is requesting a pause on a law that requires the app to be sold or face a ban in the United States by mid-January, aiming to buy time for the Supreme Court or the incoming Trump administration to rescue it.`\
 https://nytimes.com/2024/12/09/business/tiktok-temporary-pause-ban-supreme-court-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/09/movies/elaine-may-mikey-and-nicky.html
 **A rebel leader sheds his nom de guerre and speaks of the work ahead for Syria.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/a-rebel-leader-sheds-his-nom-de-guerre-and-speaks-of-the-work-ahead-for-syria
-
-**Hollinger's Week That Was: Teams ponder tough dilemmas in NBA's bye week**\
-`With minimal games this week, it's time for on-court practices, a little rest and some self-reflections.`\
-https://nytimes.com/athletic/5980440/2024/12/09/nba-bye-week-lakers-sixers-yves-missi-pelicans/
-
-**After N.R.A.’s Supreme Court Win, a Dispute Over Key Facts**\
-`The Supreme Court’s ruling in favor of the N.R.A. in May hinged on a secret meeting involving a New York regulator. The participants say it didn’t happen.`\
-https://nytimes.com/2024/12/09/us/nra-supreme-court.html
-
-**Activists Call on Biden to Clear Death Row Before Trump Takes Office**\
-`In a series of open letters, human rights activists, former corrections officials and families of crime victims noted that President Biden had campaigned on opposing capital punishment.`\
-https://nytimes.com/2024/12/09/us/politics/biden-death-row-clemency-pardons.html
 
