@@ -1,3 +1,7 @@
+**Hunt for C.E.O.’s Killer Leads to Arrest in Pennsylvania**\
+`Luigi Mangione was arrested after a tip from a McDonald’s in Altoona. The police said they found him with fake identification and a gun that matched the assassin’s.`\
+https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-ceo-suspect-arrest-altoona.html
+
 **Read the Letter From Nobel Laureates Urging That Mr. Kennedy Not be Confirmed**\
 `More than 75 laureates have written an open letter describing Mr. Kennedy’s selection for H.H.S. secretary as detrimental to public health.`\
 https://nytimes.com/interactive/2024/12/09/health/rfkltr.html

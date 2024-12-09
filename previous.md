@@ -6,7 +6,7 @@ https://nytimes.com/interactive/2024/12/09/health/rfkltr.html
 `The first questions to consider as Soto embarks on a new chapter that's likely to alter his trading card market `\
 https://nytimes.com/athletic/5980193/2024/12/09/juan-soto-mets-baseball-cards/
 
-**Suspect Is Arrested in Pennsylvania in Killing of C.E.O. in Midtown**\
+**Hunt for C.E.O.’s Killer Leads to Arrest in Pennsylvania**\
 `Luigi Mangione was arrested after a tip from a McDonald’s in Altoona. The police said they found him with fake identification and a gun that matched the assassin’s.`\
 https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-ceo-suspect-arrest-altoona.html
 
