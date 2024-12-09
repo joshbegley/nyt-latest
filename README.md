@@ -1,3 +1,7 @@
+**Saints' Derek Carr fractures left hand, could miss rest of season**\
+`The Saints are 5-5 with their starting quarterback in the lineup. Who will they turn to if he has to miss time?`\
+https://nytimes.com/athletic/5979386/2024/12/09/saints-derek-carr-hand-injury/
+
 **Foreign governments weigh recognizing rebels they once shunned as extremist.**\
 `By Vivian Yee`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/foreign-governments-weigh-recognizing-rebels-they-once-shunned-as-extremist
@@ -6,8 +10,8 @@ https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/foreign-governments
 `Kansas went 0-2 this past week after falling to Creighton (76-63) on Wednesday and Missouri (76-67) on Sunday.`\
 https://nytimes.com/athletic/5981655/2024/12/09/ap-mens-basketball-top-25-kansas-tennessee/
 
-**What to know about ghost guns.**\
-`By Corey Kilgannon`\
+**Ghost Guns Have Been a Major Issue in Gun Control**\
+`The weapons do not have serial numbers and are sold online as do-it-yourself kits, making them popular among criminals barred from buying ordinary guns.`\
 https://nytimes.com/2024/12/09/nyregion/what-to-know-ghost-guns.html
 
 **How Old Is Too Old to Be President? Democrats Still Don’t Want to Say.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980169/2024/12/09/jordan-romano-contract-phillies-
 **Brighton striker O'Mahony returns from Portsmouth loan for injury rehab**\
 `Brighton &amp; Hove Albion striker Mark O&#8217;Mahony has returned from a season-long loan with Championship side Portsmouth to recover from a side strain.`\
 https://nytimes.com/athletic/5981704/2024/12/09/brighton-mark-omahony-portsmouth-injury/
-
-**TikTok Asks Court to Temporarily Freeze Sale-or-Ban Law**\
-`The company is requesting a pause on a law that requires the app to be sold or face a ban in the United States by mid-January, aiming to buy time for the Supreme Court or the incoming Trump administration to rescue it.`\
-https://nytimes.com/2024/12/09/business/tiktok-temporary-pause-ban-supreme-court-trump.html
 
