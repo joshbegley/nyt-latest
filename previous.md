@@ -1,3 +1,7 @@
+**Sam Darnold's 'special' performance vs. Falcons thrusts him into MVP discussion**\
+`Darnold outplays Kirk Cousins, throwing for 347 yards and five touchdowns in Vikings' 42-21 dismantling of Falcons.`\
+https://nytimes.com/athletic/5979570/2024/12/08/vikings-win-sam-darnold-mvp-discussion-falcons/
+
 **Mistake-riddled Browns officially eliminated from playoff contention after loss to Steelers**\
 `This Cleveland team, which lost its sixth straight road game this season, is filled with much uncertainty going forward. `\
 https://nytimes.com/athletic/5979392/2024/12/08/browns-eliminated-playoffs-loss-steelers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978231/2024/12/08/seahawks-cardinals-score-result-
 **No George Pickens, no problem for Steelers as 'complementary' mindset prevails**\
 `The Steelers' offense started slowly without Pickens, but the whole team finished strong, showing the loss in Cleveland was just a hiccup.`\
 https://nytimes.com/athletic/5979544/2024/12/08/steelers-win-george-pickens-russell-wilson-browns/
-
-**Footage shows a chaotic scene after rebels capture a notorious prison.**\
-`By Haley Willis and Dmitriy Khavin`\
-https://nytimes.com/live/2024/12/08/world/syria-war-damascus/footage-shows-a-chaotic-scene-after-rebels-capture-a-notorious-prison
 
