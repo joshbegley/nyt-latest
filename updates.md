@@ -1,3 +1,7 @@
+**Judge Denies Nadine Menendez’s Request to Postpone Trial Further**\
+`Ms. Menendez, the wife of New Jersey’s former senator, is scheduled to stand trial on Jan. 21, eight days before her husband is expected to be sentenced for taking bribes.`\
+https://nytimes.com/2024/12/09/nyregion/nadine-menendez-bribery-trial.html
+
 **Senators owner Michael Andlauer suggests Rangers-Brady Tkachuk could be 'soft tampering'**\
 `Reached by The Athletic for comment, the Rangers via a spokesperson called Andlauer's comment "an irresponsible accusation."`\
 https://nytimes.com/athletic/5981606/2024/12/09/senators-rangers-brady-tkachuk-tampering/
