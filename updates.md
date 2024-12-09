@@ -1,3 +1,7 @@
+**Supreme Court Turns Down Cases on Admissions, Gender Identity and Guns**\
+`Conservative justices voiced objections and concerns about the court’s failures to take up a series of cases on major social controversies.`\
+https://nytimes.com/2024/12/09/us/politics/supreme-court-admissions-gender-identity-guns.html
+
 **Bucs' Antoine Winfield Jr. to miss multiple games with knee sprain**\
 `Star defender left Sunday's win over Las Vegas with knee injury in second quarter.`\
 https://nytimes.com/athletic/5981651/2024/12/09/antoine-winfield-knee-injury-buccaneers/
