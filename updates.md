@@ -1,3 +1,11 @@
+**Juan Soto to join New York Mets on 15-year, $765 million megadeal: Source**\
+`Soto, still just 26 years old, becomes the highest-paid player in baseball, eclipsing the contract of Shohei Ohtani.`\
+https://nytimes.com/athletic/5932790/2024/12/08/juan-soto-mets-free-agent-deal/
+
+**Coaching change can't cover up the truth: The Bears are a mess**\
+`There was no interim coach "bump" for the Bears on Sunday. They got embarrassed by the 49ers, losing their seventh straight game.`\
+https://nytimes.com/athletic/5979909/2024/12/08/bears-problems-thomas-brown-49ers/
+
 **Dodgers to sign outfielder Michael Conforto to 1-year, $17 million deal**\
 `Adding Conforto gives the Dodgers at least some short-term stability for an outfield that was set to become much younger next season.`\
 https://nytimes.com/athletic/5980008/2024/12/08/dodgers-sign-michael-conforto-contract/
