@@ -1,3 +1,7 @@
+**Dick Allen and Dave Parker, Hall of Famers at long last: What we learned from their election**\
+`What took so long? That was the question that echoed through the night Sunday, along with so many powerful emotions.`\
+https://nytimes.com/athletic/5980595/2024/12/09/dick-allen-dave-parker-hall-of-fame-takeaways/
+
 **Are the Celtics the same team as last season? Not quite and here's why**\
 `The Celtics brought back the same roster, but here are three ways they are different.`\
 https://nytimes.com/athletic/5978899/2024/12/09/celtics-change-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/climate/epa-dry-cleaning-chemical-ban-perc-tce.ht
 **How to Keep Your Own Soul Safe in the Dark**\
 `Even at my lowest, I have never entirely given up my faith that good people working together can change the world for the better.`\
 https://nytimes.com/2024/12/09/opinion/environment-nature-hope.html
-
-**How Can I Make Corduroy Look Cool?**\
-`A reader seeks advice on how to style corduroy in a modern fashion. Our critic offers guidance on wearing the highly versatile fabric.`\
-https://nytimes.com/2024/12/09/style/corduroy-cords-winter-fashion.html
 

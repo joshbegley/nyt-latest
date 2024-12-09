@@ -1,3 +1,7 @@
+**Dick Allen and Dave Parker, Hall of Famers at long last: What we learned from their election**\
+`What took so long? That was the question that echoed through the night Sunday, along with so many powerful emotions.`\
+https://nytimes.com/athletic/5980595/2024/12/09/dick-allen-dave-parker-hall-of-fame-takeaways/
+
 **Are the Celtics the same team as last season? Not quite and here's why**\
 `The Celtics brought back the same roster, but here are three ways they are different.`\
 https://nytimes.com/athletic/5978899/2024/12/09/celtics-change-season/
