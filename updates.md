@@ -1,3 +1,7 @@
+**What's the fallout for SEC scheduling after this year's Playoff selections?**\
+`A look at where things stand within the SEC on scheduling after this year's College Football Playoff announcement.`\
+https://nytimes.com/athletic/5981930/2024/12/09/college-football-playoff-sec-schedules/
+
 **The man detained in connection with the shooting had a handwritten manifesto.**\
 `The document described his “motivation and mind-set” and conveyed “ill will toward corporate America,” according to the authorities.`\
 https://nytimes.com/2024/12/09/nyregion/the-man-detained-in-connection-with-the-shooting-had-a-handwritten-manifesto.html

@@ -1,3 +1,7 @@
+**What's the fallout for SEC scheduling after this year's Playoff selections?**\
+`A look at where things stand within the SEC on scheduling after this year's College Football Playoff announcement.`\
+https://nytimes.com/athletic/5981930/2024/12/09/college-football-playoff-sec-schedules/
+
 **Crowds Go to Syria’s Sednaya Prison In Search of Loved Ones**\
 `Rebel forces released many detainees from the notorious Sednaya military prison in Damascus. The government complex has a long history of human rights abuses under the rule of fallen President Bashar al-Assad.`\
 https://nytimes.com/video/world/middleeast/100000009867314/syria-sednaya-prison-damascus-.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981950/2024/12/09/yankees-roster-whats-next-soto/
 **Events to Shake, or Gently Rattle, the World in 2025**\
 `Planning your calendar for next year? Here are some events to look out for.`\
 https://nytimes.com/2024/12/09/special-series/events-to-shake-the-world-2025.html
-
-**Raiders' O'Connell suffers bone bruise, will try to play in Week 15: Source**\
-`If O'Connell can't go, Las Vegas will turn to Desmond Ridder to start against his former team, the Atlanta Falcons. `\
-https://nytimes.com/athletic/5981764/2024/12/09/aidan-oconnell-raiders-injury-update/
 
