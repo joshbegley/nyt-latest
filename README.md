@@ -1,3 +1,7 @@
+**China’s Critical Minerals Embargo Is Even Tougher Than Expected**\
+`Beijing ordered companies around the world not to allow critical minerals mined in China to reach the U.S., while deepening its efforts to replace imports with domestic products.`\
+https://nytimes.com/2024/12/09/business/china-critical-minerals.html
+
 **Submit a question for Kelly Iko’s Southwest Division mailbag**\
 `Life is good in the Southwest Division, assuming you’re not a diehard Pelicans fan.`\
 https://nytimes.com/athletic/5981250/2024/12/09/rockets-grizzlies-spurs-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/technology/google-quantum-computing.html
 **Give Your Salmon an Anchovy Butter Boost**\
 `In my five-star salmon dinner, anchovies lend their intense and pungent bite to the sweet pink fillets.`\
 https://nytimes.com/2024/12/09/dining/give-your-salmon-an-anchovy-butter-boost.html
-
-**To Become a Better Runner, Should You Adjust Your Form?**\
-`Many runners believe their natural stride could be improved. Here’s what to know before trying to change yours.`\
-https://nytimes.com/2024/12/09/well/move/running-form-fitness.html
 
