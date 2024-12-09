@@ -14,7 +14,7 @@ https://nytimes.com/interactive/2024/12/09/books/one-hundred-years-of-solitude-n
 `By Maya C. Miller`\
 https://nytimes.com/live/2024/12/09/us/trump-news/senator-grassley-joins-trump-in-attacking-the-fbi-director
 
-**Jay-Z Sued Lawyer As a ‘Celebrity’ John Doe Before Assault Accusation**\
+**Jay-Z Sued Lawyer as a ‘Celebrity’ John Doe Before Assault Accusation**\
 `Lawyers for the rapper accused Tony Buzbee of attempting to “extort exorbitant sums” from him by making false assault claims.`\
 https://nytimes.com/2024/12/09/arts/music/jay-z-diddy-lawsuit-buzbee.html
 
