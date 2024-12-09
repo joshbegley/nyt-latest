@@ -1,3 +1,7 @@
+**Buddy system: Warriors' new starting lineup works as Hield takes down Timberwolves**\
+`Hield scored 27 points, including the dagger 3, while Gary Payton II carried Golden State on the defensive end.`\
+https://nytimes.com/athletic/5979882/2024/12/09/buddy-hield-warriors-gary-payton-timberwolves/
+
 **Red Bull F1 faces tough decisions as Sergio Pérez finally signals his looming exit**\
 `Red Bull will soon decide who will race alongside Verstappen ("the hardest teammate in the world") in 2025.`\
 https://nytimes.com/athletic/5978944/2024/12/09/sergio-perez-red-bull-f1-exit-lawson-tsunoda/
