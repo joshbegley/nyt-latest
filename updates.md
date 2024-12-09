@@ -1,3 +1,11 @@
+**NFL playoff picture, Week 14: Bucs reclaim NFC South lead; Eagles clinch playoff berth**\
+`Miami stayed in the hunt with its OT victory over the Jets, while the Rams' upset of the Bills puts them one game back of Washington. `\
+https://nytimes.com/athletic/5966559/2024/12/08/nfl-playoff-picture-week-14/
+
+**Bills defense's woeful performance stunts comeback effort vs. Rams**\
+`The Bills imploded on defense and are likely to see another team like the Rams this season.`\
+https://nytimes.com/athletic/5980080/2024/12/08/bills-loss-defense-rams/
+
 **Rams' wild win over Bills shows they can be a problem — if they make the playoffs**\
 `Cooper Kupp: “We already knew it was just a matter of time, as a team, that we could put it all together."`\
 https://nytimes.com/athletic/5980179/2024/12/08/rams-win-bills-playoffs/
