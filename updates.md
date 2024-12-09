@@ -1,3 +1,7 @@
+**Kawhi Leonard appears to be nearing return at a perfect time in Clippers schedule**\
+`The Clippers get some breaks in the grind over the next month, and signals strongly point to Leonard approaching his season debut.`\
+https://nytimes.com/athletic/5980610/2024/12/09/kawhi-leonard-return-clippers/
+
 **Dries Van Noten Names a New Dries Van Noten**\
 `Julian Klausner, who has been head of its women’s studio, is stepping into the founder’s shoes.`\
 https://nytimes.com/2024/12/09/style/dries-van-noten-new-designer-julian-klausner.html
