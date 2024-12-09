@@ -1,3 +1,11 @@
+**Patriots mailbag: Why should Jerod Mayo and Eliot Wolf keep their jobs?**\
+`In our latest Patriots mailbag, we take lots of questions on the futures of the head coach and the de facto general manager.`\
+https://nytimes.com/athletic/5966315/2024/12/09/patriots-mailbag-jerod-mayo-eliot-wolf/
+
+**Michigan eager to maintain late-season momentum: 3 thoughts on the matchup vs. Alabama**\
+`Michigan and Alabama have changed a lot since their game a year ago in Pasadena. That's why they are meeting in Tampa and not in the CFP.`\
+https://nytimes.com/athletic/5979715/2024/12/09/michigan-bowl-game-alabama/
+
 **Why Street Vendors Are Upset About a Ballot Measure**\
 `Proposition 2, which gives the Sanitation Department more authority to conduct sweeps of vendors, will hit immigrant vendors hard, an advocacy group said.`\
 https://nytimes.com/2024/12/09/nyregion/street-vendors-proposition-2.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/09/opinion/biden-pardon-trump-cheney.html
 **The Killings of Young Mothers**\
 `For women under 25, getting pregnant more than doubles their risk of homicide.`\
 https://nytimes.com/interactive/2024/12/09/opinion/pregnant-women-homicide.html
-
-**The Power Struggle Behind Trans Youth Health Care**\
-`And why the debate over gender-affirming care could have far-reaching implications.`\
-https://nytimes.com/2024/12/09/opinion/scotus-trans-youth-health-care.html
-
-**A Comedian’s Path From Small-Town Tennessee to Breakout Fame**\
-`Leanne Morgan went from helping her husband sell mobile homes to sudden success in her 50s.`\
-https://nytimes.com/2024/12/09/books/review/leanne-morgan-what-in-the-world.html
 
