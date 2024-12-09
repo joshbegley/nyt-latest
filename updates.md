@@ -1,3 +1,7 @@
+**NFL Week 15 odds, spreads, schedule: Two hypothetical Super Bowl previews**\
+`Two games this week feature Super Bowl-level matchups. One features the biggest spread of the season.`\
+https://nytimes.com/athletic/5981351/2024/12/09/nfl-week-15-odds-spreads-schedule-bills-lions-ravens/
+
 **New York Taxpayers Could Get Refunds of Up to $500 Under Hochul Plan**\
 `The proposal, which Gov. Kathy Hochul intends to include in next year’s state budget, would send $3 billion in refunds to roughly 8.6 million New Yorkers.`\
 https://nytimes.com/2024/12/09/nyregion/tax-refund-ny-hochul.html

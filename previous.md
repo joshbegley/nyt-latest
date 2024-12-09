@@ -1,3 +1,7 @@
+**NFL Week 15 odds, spreads, schedule: Two hypothetical Super Bowl previews**\
+`Two games this week feature Super Bowl-level matchups. One features the biggest spread of the season.`\
+https://nytimes.com/athletic/5981351/2024/12/09/nfl-week-15-odds-spreads-schedule-bills-lions-ravens/
+
 **New York Taxpayers Could Get Refunds of Up to $500 Under Hochul Plan**\
 `The proposal, which Gov. Kathy Hochul intends to include in next year’s state budget, would send $3 billion in refunds to roughly 8.6 million New Yorkers.`\
 https://nytimes.com/2024/12/09/nyregion/tax-refund-ny-hochul.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/foreign-governments
 **AP men's basketball Top 25: Kansas drops to No. 10 following 0-2 week**\
 `Kansas went 0-2 this past week after falling to Creighton (76-63) on Wednesday and Missouri (76-67) on Sunday.`\
 https://nytimes.com/athletic/5981655/2024/12/09/ap-mens-basketball-top-25-kansas-tennessee/
-
-**Easy-to-Assemble Ghost Guns Have Been a Major Issue in Gun Control**\
-`The weapons do not have serial numbers and are sold online as do-it-yourself kits, making them popular among criminals barred from buying ordinary guns.`\
-https://nytimes.com/2024/12/09/nyregion/ghost-guns.html
 
