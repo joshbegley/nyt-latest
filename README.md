@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5979458/2024/12/08/jets-loss-dolphins-garrett-wilso
 https://nytimes.com/athletic/5979570/2024/12/08/vikings-win-sam-darnold-mvp-discussion-falcons/
 
 **Mistake-riddled Browns officially eliminated from playoff contention after loss to Steelers**\
-`This Cleveland team, which lost its sixth straight road game this season, is filled with much uncertainty going forward. `\
+`This Cleveland team, which lost its sixth straight road game this season, is filled with much uncertainty. `\
 https://nytimes.com/athletic/5979392/2024/12/08/browns-eliminated-playoffs-loss-steelers/
 
 **Fans are fed up with Giants 'dumpster fire.' What will John Mara do once miserable season ends?**\
