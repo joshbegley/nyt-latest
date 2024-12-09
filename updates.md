@@ -1,3 +1,7 @@
+**What to know about ghost guns.**\
+`By Corey Kilgannon`\
+https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect/what-to-know-about-ghost-guns
+
 **How Old Is Too Old to Be President? Democrats Still Don’t Want to Say.**\
 `At a gathering of Democratic governors, many were reluctant to discuss the issue that sank President Biden’s campaign: age. Others are ready for a Gen X president.`\
 https://nytimes.com/2024/12/09/us/politics/president-age-democrats.html

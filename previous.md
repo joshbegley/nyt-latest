@@ -1,3 +1,7 @@
+**What to know about ghost guns.**\
+`By Corey Kilgannon`\
+https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect/what-to-know-about-ghost-guns
+
 **How Old Is Too Old to Be President? Democrats Still Don’t Want to Say.**\
 `At a gathering of Democratic governors, many were reluctant to discuss the issue that sank President Biden’s campaign: age. Others are ready for a Gen X president.`\
 https://nytimes.com/2024/12/09/us/politics/president-age-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/nyregion/nadine-menendez-bribery-trial.html
 **Senators owner Michael Andlauer suggests Rangers-Brady Tkachuk could be 'soft tampering'**\
 `Reached by The Athletic for comment, the Rangers via a spokesperson called Andlauer's comment "an irresponsible accusation."`\
 https://nytimes.com/athletic/5981606/2024/12/09/senators-rangers-brady-tkachuk-tampering/
-
-**Arts Patron Aims to Help Underrepresented Museum Professionals**\
-`Allison Berg has established a foundation to elevate the careers of six emerging visual arts curators, educators and administrators each year.`\
-https://nytimes.com/2024/12/09/arts/design/allison-berg-foundation.html
 
