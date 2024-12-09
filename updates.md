@@ -1,3 +1,7 @@
+**Panthers' Jonathon Brooks tears right ACL again**\
+`The rookie running back tore his ACL at Texas last season and suffered the tear to the ligament in the same knee Sunday vs. the Eagles.`\
+https://nytimes.com/athletic/5981541/2024/12/09/panthers-jonathon-brooks-acl-injury-surgery/
+
 **The factors that pushed the bidding for Juan Soto to unexpected heights**\
 `Soto landed on the open market with the right teams looking to make a splash.`\
 https://nytimes.com/athletic/5981844/2024/12/09/mets-juan-soto-contract-record/
