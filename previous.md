@@ -1,3 +1,7 @@
+**No George Pickens, no problem for Steelers, as 'complementary' mindset prevails**\
+`The Steelers' offense started slowly without Pickens, but the whole team finished strong, showing the loss in Cleveland was just a hiccup.`\
+https://nytimes.com/athletic/5979544/2024/12/08/steelers-win-george-pickens-russell-wilson-browns/
+
 **Footage shows a chaotic scene after rebels capture a notorious prison.**\
 `By Haley Willis and Dmitriy Khavin`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/footage-shows-a-chaotic-scene-after-rebels-capture-a-notorious-prison
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5979364/2024/12/08/falcons-problems-kirk-cousins-vi
 **College football bowl watch guide: Schedule and odds for every bowl game**\
 `It's bowl season! We have every matchup with kickoff time, TV info and betting odds. Plus, a look at a few games to watch.`\
 https://nytimes.com/athletic/5978829/2024/12/08/college-football-bowl-schedule-odds/
-
-**How Yankees, Rays will handle temporary home ballpark in Tampa, Fla.**\
-`The Rays will play at the Yankees' spring training ballpark for the 2025 season due to damage at Tropicana Field from Hurricane Milton.`\
-https://nytimes.com/athletic/5979402/2024/12/08/rays-temporary-home-ballpark-yankees/
 
