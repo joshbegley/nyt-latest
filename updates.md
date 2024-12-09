@@ -1,3 +1,7 @@
+**A Contemporary Music Festival Trolls for Aesthetics’ Sake**\
+`The directors of the London Contemporary Music Festival discuss this year’s edition, the event’s 10th anniversary.`\
+https://nytimes.com/2024/12/09/arts/music/london-contemporary-music-festival.html
+
 **Elaine May Makes a Rare Appearance to Talk About ‘Mikey and Nicky’**\
 `At a screening of the gangster tale starring Peter Falk and John Cassavetes, the director recalls her battle with Paramount to get the film released.`\
 https://nytimes.com/2024/12/09/movies/elaine-may-mikey-and-nicky.html
