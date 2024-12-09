@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5979364/2024/12/08/falcons-problems-kirk-cousins-vi
 `It's bowl season! We have every matchup with kickoff time, TV info and betting odds. Plus, a look at a few games to watch.`\
 https://nytimes.com/athletic/5978829/2024/12/08/college-football-bowl-schedule-odds/
 
-**How Yankees, Rays will handle temporary home ballpark in Tampa**\
+**How Yankees, Rays will handle temporary home ballpark in Tampa, Fla.**\
 `The Rays will play at the Yankees' spring training ballpark for the 2025 season due to damage at Tropicana Field from Hurricane Milton.`\
 https://nytimes.com/athletic/5979402/2024/12/08/rays-temporary-home-ballpark-yankees/
 
