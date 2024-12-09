@@ -1,3 +1,7 @@
+**Bucks, Bobby Portis 'get it out the mud' in second half to escape with a win over Nets**\
+`With the offense stuck against Brooklyn, Milwaukee started moving late in the fourth quarter and got tough defense from an unlikely source.`\
+https://nytimes.com/athletic/5979645/2024/12/09/bucks-giannis-antetokounmpo-bobby-portis/
+
 **Newcastle enter a crucial period and must start delivering**\
 `The fixture list over the next fortnight offers up some jeopardy for Newcastle United, but also presents the team with an opportunity `\
 https://nytimes.com/athletic/5976043/2024/12/09/newcastle-enter-a-crucial-period-of-their-season-and-must-start-delivering/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974187/2024/12/09/west-ham-julen-lopetegui-future/
 **Unai Emery relies on 'Super' John McGinn - he's integral to everything Aston Villa do**\
 `McGinn is Villa’s bellwether. At his best, hunched over and chest to the floor, he drives and presses the team upfield, cajoling the crowd`\
 https://nytimes.com/athletic/5940522/2024/12/09/aston-villa-john-mcginn-unai-emery/
-
-**Fabian Hurzeler's yet to see Brighton perform for a whole match - he must take some of the blame**\
-`Why Brighton are struggling to see out games against teams in the bottom five`\
-https://nytimes.com/athletic/5978472/2024/12/09/fabian-hurzeler-brighton-leicester-full-90/
 

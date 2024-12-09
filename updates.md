@@ -1,3 +1,7 @@
+**Bucks, Bobby Portis 'get it out the mud' in second half to escape with a win over Nets**\
+`With the offense stuck against Brooklyn, Milwaukee started moving late in the fourth quarter and got tough defense from an unlikely source.`\
+https://nytimes.com/athletic/5979645/2024/12/09/bucks-giannis-antetokounmpo-bobby-portis/
+
 **Newcastle enter a crucial period and must start delivering**\
 `The fixture list over the next fortnight offers up some jeopardy for Newcastle United, but also presents the team with an opportunity `\
 https://nytimes.com/athletic/5976043/2024/12/09/newcastle-enter-a-crucial-period-of-their-season-and-must-start-delivering/
