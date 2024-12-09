@@ -1,3 +1,7 @@
+**Mistake-riddled Browns officially eliminated from playoff contention after loss to Steelers**\
+`This Cleveland team, which lost its sixth straight road game this season, is filled with much uncertainty going forward. `\
+https://nytimes.com/athletic/5979392/2024/12/08/browns-eliminated-playoffs-loss-steelers/
+
 **Fans are fed up with Giants 'dumpster fire.' What will John Mara do once miserable season ends?**\
 `Mara doesn't want to make drastic changes, but off-field embarrassments like the plane stunt could push the team co-owner to do just that. `\
 https://nytimes.com/athletic/5979557/2024/12/08/giants-loss-john-mara-saints-plane-banner/
