@@ -1,3 +1,11 @@
+**Senators owner Michael Andlauer suggests Rangers-Brady Tkachuk could be 'soft tampering'**\
+`Reached by The Athletic for comment, the Rangers via a spokesperson called Andlauer's comment "an irresponsible accusation."`\
+https://nytimes.com/athletic/5981606/2024/12/09/senators-rangers-brady-tkachuk-tampering/
+
+**Arts Patron Aims to Help Underrepresented Museum Professionals**\
+`Allison Berg has established a foundation to elevate the careers of six emerging visual arts curators, educators and administrators each year.`\
+https://nytimes.com/2024/12/09/arts/design/allison-berg-foundation.html
+
 **A Contemporary Music Festival Trolls for Aesthetics’ Sake**\
 `The directors of the London Contemporary Music Festival discuss this year’s edition, the event’s 10th anniversary.`\
 https://nytimes.com/2024/12/09/arts/music/london-contemporary-music-festival.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5975637/2024/12/09/penguins-jaromir-jagr-nils-hogla
 **U.S. Investigating Child Labor Claim at HelloFresh Subsidiary**\
 `The Labor Department investigation focuses on a plant in Aurora, Ill., operated by Factor75, a meal kit delivery company that HelloFresh acquired in 2020.`\
 https://nytimes.com/2024/12/09/business/hello-fresh-child-labor.html
-
-**What does Juan Soto's record contract mean to the Mets' payroll?**\
-`The Mets handed out an epic contract, so luxury tax challenges are part of their future, too: “I keep them all in my mind.”`\
-https://nytimes.com/athletic/5981498/2024/12/09/mets-juan-soto-contract-payroll/
-
-**USMNT Player Tracker: Captain Robinson, Ledezma's rocket and Kochen extends Barcelona stay**\
-`Malik Tillman was also on the scoresheet as PSV ran riot against Twente, and features in our roundup from the weekend action`\
-https://nytimes.com/athletic/5980997/2024/12/09/usmnt-robinson-ledezma-kochen-tracker/
 
