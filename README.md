@@ -15,7 +15,7 @@ https://nytimes.com/2024/12/09/learning/word-of-the-day-permafrost.html
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/here-are-the-latest-developments
 
 **Live Updates: Rebels Who Toppled Assad Face Stark Challenges in Syria**\
-`Syrians who fled during the 13-year civil war are considering whether to return, as the rebels who now control Damascus try to unite the country.`\
+`People who fled during the civil war are considering whether to return, as the rebels who control Damascus try to unite Syria. New York Times reporters entering the country saw relics of the old regime on a highway from Lebanon.`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels
 
 **South Korea Bars President From Traveling Abroad**\
