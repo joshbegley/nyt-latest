@@ -1,3 +1,11 @@
+**How Cole Palmer dominates games - whatever position he plays in**\
+`Palmer is a No 10 on paper, but he spends most of his time coming short and playing killer passes from deep`\
+https://nytimes.com/athletic/5980716/2024/12/09/cole-palmer-chelsea-panenka-penalty/
+
+**Weekend NHL rankings: Kings roll, Sabres spiral and a wild weekend in New York**\
+`The Rangers have been tumbling down the standings lately but have shot to the top of the rankings of the NHL's most interesting teams.`\
+https://nytimes.com/athletic/5979704/2024/12/09/weekend-nhl-rankings-kings-sabres-rangers/
+
 **For Mets fans, signing Juan Soto away from the Yankees is extra special**\
 `In the Juan Soto free agency sweepstakes, the "little brother" of the two New York franchises came out on top — a rare occurrence. `\
 https://nytimes.com/athletic/5980558/2024/12/09/juan-soto-mets-contract-yankees-fans/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5979764/2024/12/09/college-football-playoff-champio
 **Trump Gives Powell a Reprieve, but Pledges Big Moves Elsewhere**\
 `The president-elect said he would not try to replace the Federal Reserve chair, but would seek to cut immigration, impose tariffs and more.`\
 https://nytimes.com/2024/12/09/business/dealbook/trump-powell-fed-tariffs-immigration.html
-
-**Golden Globes Nominations 2025: List of Nominees**\
-`The list of Golden Globe nominees for 2025.`\
-https://nytimes.com/2024/12/09/movies/golden-globes-nominations-list.html
-
-**Two Major Ad Agencies to Merge, Creating Global Giant**\
-`If they combine, Omnicom and Interpublic would become the largest advertising company in the world.`\
-https://nytimes.com/2024/12/09/business/omnicom-interpublic-merger.html
 
