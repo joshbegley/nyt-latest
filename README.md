@@ -1,3 +1,7 @@
+**Wayne Gretzky on Alex Ovechkin's pursuit of goals record: 'He'll get a little bit nervous near the end'**\
+`Ovechkin is 26 goals shy of Gretzky's total of 894 and should have 48 to 52 games left this regular season when he returns from injury.`\
+https://nytimes.com/athletic/5982121/2024/12/09/wayne-gretzky-alex-ovechkin-goals-record/
+
 **Tuesday Briefing: Syrian Rebels Rush to Establish Order**\
 `Plus, a lawsuit for trans rights in China.`\
 https://nytimes.com/2024/12/09/briefing/syria-haiti-france-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-suspect-manifesto.html
 **Belichick confirms UNC conversations, makes pitch for college job**\
 `Belichick said if he were to coach an FBS team, it would be "an NFL program at a college level."`\
 https://nytimes.com/athletic/5981833/2024/12/09/bill-belichick-unc-football-pat-mcaffee-comments/
-
-**Where the Yankees stand: What should they do after their failed Juan Soto pursuit?**\
-`Juan Soto is a Met and Plan B is here for the Yankees. Writers Brendan Kuty and Chris Kirschner discuss the new path the team must take.`\
-https://nytimes.com/athletic/5981950/2024/12/09/yankees-roster-whats-next-soto/
 
