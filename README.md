@@ -1,3 +1,7 @@
+**Chris Paul moves into second on NBA all-time assists list**\
+`Paul entered Sunday averaging 10.4 points, 8.5 assists and 3.9 rebounds through his first 23 games with the Spurs. `\
+https://nytimes.com/athletic/5979337/2024/12/08/chris-paul-assists-nba/
+
 **Falcons' problems go beyond Kirk Cousins: 'Nobody coming to save us'**\
 `The Falcons lost their fourth straight game and now trail Tampa Bay by one game in the NFC South.`\
 https://nytimes.com/athletic/5979364/2024/12/08/falcons-problems-kirk-cousins-vikings/
@@ -30,11 +34,7 @@ https://nytimes.com/2024/12/08/world/middleeast/syria-turkey-kurds.html
 `A reckoning emerged in Iran on Sunday as officials and commentators swiftly moved to distance the government from a tyrant it had supported.`\
 https://nytimes.com/2024/12/08/world/middleeast/iran-reaction-assad-syria.html
 
-**In race for No. 1 NFL Draft pick, there are two favorites in Week 14**\
+**In race for No. 1 NFL Draft pick, two teams are favorites in Week 14**\
 `Jacksonville's win Sunday makes the battle for first overall a two-team race between the New York Giants and Las Vegas Raiders.`\
 https://nytimes.com/athletic/5978876/2024/12/08/race-to-no-1-draft-pick-nfl/
-
-**Syrians in New York City celebrate the fall of Assad.**\
-`By Sabir Hasko`\
-https://nytimes.com/live/2024/12/08/world/syria-war-damascus/syrians-in-new-york-city-celebrate-the-fall-of-assad
 
