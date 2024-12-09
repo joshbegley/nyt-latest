@@ -1,3 +1,19 @@
+**Wayne Gretzky on Alex Ovechkin's pursuit of goals record: 'He'll get a little bit nervous near the end'**\
+`Ovechkin is 26 goals shy of Gretzky's total of 894 and should have 48 to 52 games left this regular season when he returns from injury.`\
+https://nytimes.com/athletic/5982121/2024/12/09/wayne-gretzky-alex-ovechkin-goals-record/
+
+**Tuesday Briefing: Syrian Rebels Rush to Establish Order**\
+`Plus, a lawsuit for trans rights in China.`\
+https://nytimes.com/2024/12/09/briefing/syria-haiti-france-trial.html
+
+**Man Arrested After C.E.O. Killing Showed Interest on Social Media in Self-Improvement**\
+`Figures like Andrew Huberman, Tim Urban and the Unabomber feature in posts shared by accounts that appear to belong to the man arrested on Monday.`\
+https://nytimes.com/2024/12/09/style/unitedhealthcare-ceo-suspect-social-media.html
+
+**Man Detained After C.E.O. Shooting Had a Manifesto, Police Say**\
+`The handwritten document found with Luigi Mangione described his “motivation and mind-set” and conveyed “ill will toward corporate America,” according to the authorities.`\
+https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-suspect-manifesto.html
+
 **What's the fallout for SEC scheduling after this year's Playoff selections?**\
 `A look at where things stand within the SEC on scheduling after this year's College Football Playoff announcement.`\
 https://nytimes.com/athletic/5981930/2024/12/09/college-football-playoff-sec-schedules/
