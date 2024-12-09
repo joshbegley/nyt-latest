@@ -1,3 +1,15 @@
+**Word of the Day: permafrost**\
+`This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/09/learning/word-of-the-day-permafrost.html
+
+**Here are the latest developments.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/here-are-the-latest-developments
+
+**Live Updates: Rebels Who Toppled Assad Face Stark Challenges in Syria**\
+`Syrians who fled during the 13-year civil war are considering whether to return, as the rebels who now control Damascus try to unite the country.`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels
+
 **South Korea Bars President From Traveling Abroad**\
 `President Yoon Suk Yeol cannot leave the country as an investigation unfolds into whether he led an insurrection last week when he briefly imposed martial law.`\
 https://nytimes.com/2024/12/09/world/asia/south-korea-yoon-travel-ban.html
