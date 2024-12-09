@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
 
+**Before dismantling Bears, the 49ers found their missing element: Desperation**\
+`For the first time this season, the 49ers looked like their 2023 selves for a full game — even while missing many of their 2023 stars.
+`\
+https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
+
 **What the 7 teams who lost Juan Soto should do next**\
 `The free-agent market is expected to heat up now that Soto is gone.`\
 https://nytimes.com/athletic/5963398/2024/12/08/what-the-7-teams-who-lost-juan-soto-should-do-next/
