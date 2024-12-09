@@ -1,3 +1,7 @@
+**8 free agents the Yankees can consider after losing Juan Soto to the TEAM TK**\
+`First baseman Christian Walker likely would have been an option for the Yankees even if Soto had re-signed with the team.`\
+https://nytimes.com/athletic/5950168/2024/12/08/juan-soto-yankees-free-agents/
+
 **What the 7 teams who lost Juan Soto should do next**\
 `The free-agent market is expected to heat up now that Soto is gone.`\
 https://nytimes.com/athletic/5963398/2024/12/08/what-the-7-teams-who-lost-juan-soto-should-do-next/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
 **Rosenthal: In landmark deal with the Mets, Juan Soto gets what he's wanted all along**\
 `The superstar outfielder agreed to a 15-year, $765 million contract with the Mets on Sunday night.`\
 https://nytimes.com/athletic/5941131/2024/12/08/juan-soto-contract-mets-mlb-free-agency-rosenthal/
-
-**Mets sign Juan Soto: 3 biggest reasons it's a major disappointment for Yankees**\
-`Despite all of Soto's success with the Yankees in 2024, it will almost certainly end up being his lone season in pinstripes.`\
-https://nytimes.com/athletic/5961373/2024/12/08/yankees-juan-soto-free-agency-disappointment/
 
