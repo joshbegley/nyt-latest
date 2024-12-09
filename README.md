@@ -14,7 +14,7 @@ https://nytimes.com/2024/12/09/t-magazine/art-basel-miami-beach-highlights.html
 `A solo by the choreographer Bintou Dembélé, the first showing of her work in the United States, explored the crossover between hip-hop and diasporic African ritual.`\
 https://nytimes.com/2024/12/09/arts/dance/review-bintou-dembele.html
 
-**Man Held in C.E.O. Killing Showed Interest in Pop Science and Self-Improvement on Social Media**\
+**Man Held in Connection to C.E.O. Killing Showed Interest on Social Media in Self-Improvement**\
 `Figures like Andrew Huberman, Tim Urban and the Unabomber feature in posts shared by accounts that appear to belong to the man arrested on Monday.`\
 https://nytimes.com/2024/12/09/style/unitedhealthcare-ceo-suspect-social-media.html
 
