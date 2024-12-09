@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5981655/2024/12/09/ap-mens-basketball-top-25-kansas
 
 **Ghost Guns Have Been a Major Issue in Gun Control**\
 `The weapons do not have serial numbers and are sold online as do-it-yourself kits, making them popular among criminals barred from buying ordinary guns.`\
-https://nytimes.com/2024/12/09/nyregion/what-to-know-ghost-guns.html
+https://nytimes.com/2024/12/09/nyregion/ghost-guns.html
 
 **How Old Is Too Old to Be President? Democrats Still Don’t Want to Say.**\
 `At a gathering of Democratic governors, many were reluctant to discuss the issue that sank President Biden’s campaign: age. Others are ready for a Gen X president.`\
