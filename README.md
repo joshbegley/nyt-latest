@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5941165/2024/12/08/blake-treinen-dodgers-free-agent
 https://nytimes.com/athletic/5969413/2024/12/08/juan-soto-mets-contract-steve-cohen/
 
 **Ivan Provorov toughs it out, Kent Johnson scores twice in gutsy Blue Jackets win**\
-`Columbus mustered up the energy to knock off one of the NHL's top teams in one of the league's most difficult arenas 4-1 in Winnipeg.`\
+`Columbus mustered up the energy to knock off one of the NHL's top teams in one of the league's most difficult arenas.`\
 https://nytimes.com/athletic/5979861/2024/12/08/blue-jackets-win-jets-ivan-provorov-kent-johnson/
 
 **Massacre in Haiti’s Capital Leaves Over 100 Dead, Rights Group Says**\
