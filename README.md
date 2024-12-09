@@ -1,3 +1,11 @@
+**‘Emilia Pérez’ Tops Golden Globe Nominations**\
+`The movie received 10 nominations, the most of any movie. “Conclave,” “Wicked” and “Anora” will be among the other films contending for the top prizes.`\
+https://nytimes.com/2024/12/09/movies/emilia-perez-tops-golden-globe-nominations.html
+
+**Fantasy football playoffs strategy: Target Jameis Winston and WRs facing the Bengals**\
+`KC Joyner helps you prepare for the fantasy football playoffs utilizing vertical pass stats. `\
+https://nytimes.com/athletic/5981026/2024/12/09/fantasy-football-playoffs-strategy-target-jameis-winston-russell-wilson-wrs-facing-the-bengals/
+
 **New York City Council Sues Adams for Blocking Solitary Confinement Ban**\
 `The lawsuit charges that Mayor Eric Adams exceeded his authority when he declared a state of emergency to block a ban on the practice in city jails.`\
 https://nytimes.com/2024/12/09/nyregion/solitary-confinement-nyc-adams.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5979704/2024/12/09/weekend-nhl-rankings-kings-sabre
 **For Mets fans, signing Juan Soto away from the Yankees is extra special**\
 `In the Juan Soto free agency sweepstakes, the "little brother" of the two New York franchises came out on top — a rare occurrence. `\
 https://nytimes.com/athletic/5980558/2024/12/09/juan-soto-mets-contract-yankees-fans/
-
-**Oil Markets Shrug Off Overthrow of Syrian Ruler**\
-`Traders appeared to be more concerned about tepid global growth and an oversupply from other producers than about Bashar al-Assad’s ouster.`\
-https://nytimes.com/2024/12/09/business/oil-prices-syria.html
-
-**A Surprise Advance to Damascus, Captured on Video**\
-`Bashar Al-Assad’s grip over Syria was visible everywhere in the capital. It was all dismantled in less than 24 hours.`\
-https://nytimes.com/2024/12/09/world/middleeast/syria-damascus-rebels-assad-video.html
 
