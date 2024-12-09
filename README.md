@@ -1,3 +1,11 @@
+**49ers minutia minute: Isaac Guerendo iffy for Thursday; who's the next man up?**\
+`A 49ers' edge on Thursday: Most starters were on the sideline late in Week 14's lopsided win, while only one D-lineman played over 30 snaps.`\
+https://nytimes.com/athletic/5982312/2024/12/09/49ers-isaac-guerendo-injury-status-snap-counts/
+
+**Ernst Hints That She Will Not Oppose Hegseth for Defense Secretary**\
+`Senator Joni Ernst, Republican of Iowa, said she would “support Pete through this process,” stopping short of promising to vote to confirm him but indicating a turnabout from her previous skepticism.`\
+https://nytimes.com/2024/12/09/us/politics/ernst-hegseth-defense-trump.html
+
 **Josh Allen's best-ever QB fantasy performance and those he surpassed**\
 `Josh Allen had the best-ever fantasy performance by a QB in the history of the NFL. Comparing the other four QBs since 2004 who came close.`\
 https://nytimes.com/athletic/5982189/2024/12/09/josh-allen-best-ever-qb-nfl-fantasy-football-performance/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/12/09/books/one-hundred-years-of-solitude-n
 **Senator Grassley joins Trump in attacking the F.B.I. director.**\
 `By Maya C. Miller`\
 https://nytimes.com/live/2024/12/09/us/trump-news/senator-grassley-joins-trump-in-attacking-the-fbi-director
-
-**Jay-Z Sued Lawyer as a ‘Celebrity’ John Doe Before Assault Accusation**\
-`Lawyers for the rapper accused Tony Buzbee of attempting to “extort exorbitant sums” from him by making false assault claims.`\
-https://nytimes.com/2024/12/09/arts/music/jay-z-diddy-lawsuit-buzbee.html
-
-**Read the Letter From Nobel Laureates Urging That Mr. Kennedy Not be Confirmed**\
-`More than 75 laureates have written an open letter describing Mr. Kennedy’s selection for H.H.S. secretary as detrimental to public health.`\
-https://nytimes.com/interactive/2024/12/09/health/rfkltr.html
 
