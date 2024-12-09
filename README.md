@@ -1,3 +1,7 @@
+**Supreme Court Turns Down Cases on Admissions, Gender Identity and Guns**\
+`Conservative justices voiced objections and concerns about the court’s failures to take up a series of cases on major social controversies.`\
+https://nytimes.com/2024/12/09/us/politics/supreme-court-admissions-gender-identity-guns.html
+
 **Bucs' Antoine Winfield Jr. to miss multiple games with knee sprain**\
 `Star defender left Sunday's win over Las Vegas with knee injury in second quarter.`\
 https://nytimes.com/athletic/5981651/2024/12/09/antoine-winfield-knee-injury-buccaneers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/arts/music/london-contemporary-music-festival.htm
 **Elaine May Makes a Rare Appearance to Talk About ‘Mikey and Nicky’**\
 `At a screening of the gangster tale starring Peter Falk and John Cassavetes, the director recalls her battle with Paramount to get the film released.`\
 https://nytimes.com/2024/12/09/movies/elaine-may-mikey-and-nicky.html
-
-**A rebel leader sheds his nom de guerre and speaks of the work ahead for Syria.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/a-rebel-leader-sheds-his-nom-de-guerre-and-speaks-of-the-work-ahead-for-syria
 
