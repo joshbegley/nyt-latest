@@ -1,3 +1,15 @@
+**Dodgers to sign outfielder Michael Conforto to 1-year, $17 million deal**\
+`Adding Conforto gives the Dodgers at least some short-term stability for an outfield that was set to become much younger next season.`\
+https://nytimes.com/athletic/5980008/2024/12/08/dodgers-sign-michael-conforto-contract/
+
+**‘Dune: Prophecy’: Travis Fimmel on His Character’s Fiery Rise to the Top**\
+`Desmond Hart has been a wild card since he burned a young prince alive with his mind. The actor who plays him talked about what motivates Desmond’s drive for power.`\
+https://nytimes.com/2024/12/08/arts/television/dune-prophecy-travis-fimmel.html
+
+**‘Dune: Prophecy’ Season 1, Episode 4 Recap: Ol’ Blue Eyes**\
+`The sisters have a terrifying vision. Desmond gives a terrifying display of his power and loyalty. Any connection?`\
+https://nytimes.com/2024/12/08/arts/television/dune-prophecy-recap-season-1-episode-4.html
+
 **Mistake-riddled Browns officially eliminated from playoff contention after loss to Steelers**\
 `This Cleveland team, which lost its sixth straight road game this season, is filled with much uncertainty. `\
 https://nytimes.com/athletic/5979392/2024/12/08/browns-eliminated-playoffs-loss-steelers/
