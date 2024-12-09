@@ -1,3 +1,15 @@
+**Two Major Ad Agencies to Merge, Creating Global Giant**\
+`If they combine, Omnicom and Interpublic would become the largest advertising company in the world.`\
+https://nytimes.com/2024/12/09/business/omnicom-interpublic-merger.html
+
+**Trump Transition Live Updates: Cheney Condemns Trump’s ‘Assault on the Rule of Law’**\
+``\
+https://nytimes.com/live/2024/12/09/us/trump-news
+
+**China Opens Antitrust Investigation into Nvidia**\
+`The move by Chinese regulators came a week after the Biden administration expanded curbs on the sale of advanced U.S. technology to China.`\
+https://nytimes.com/2024/12/09/technology/china-nvidia-investigation-antitrust-ai.html
+
 **Kawhi Leonard appears to be nearing return at a perfect time in Clippers schedule**\
 `The Clippers get some breaks in the grind over the next month, and signals strongly point to Leonard approaching his season debut.`\
 https://nytimes.com/athletic/5980610/2024/12/09/kawhi-leonard-return-clippers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5979989/2024/12/09/lions-dan-campbell-lookalike-con
 **Watching the Premier League from LA’s futuristic sports bar - or a restricted view seat**\
 `We sent one reporter to Cosm Los Angeles and one to Craven Cottage on Sunday to experience the same match in very different ways`\
 https://nytimes.com/athletic/5978726/2024/12/09/cosm-premier-league-fulham-arsenal/
-
-**Juan Soto through the years, as told by The Athletic**\
-`We've been chronicling Soto's journey from the start. Here is a collection of stories that tell the young phenom's story (so far).`\
-https://nytimes.com/athletic/5955264/2024/12/09/juan-soto-digest-mets-mlb/
-
-**Lowetide: The Oilers have uncovered a key strategy on defence**\
-`The Oilers found a solution with the team's defensive deployment, and are running hot because of it.`\
-https://nytimes.com/athletic/5978475/2024/12/09/edmonton-oilers-defence-depth-chart-nurse/
-
-**The really bad news for Tottenham: Things will get worse before they get better**\
-`The combination of growing injury problems and a relentless fixture schedule is a particularly challenging one for Ange Postecoglou`\
-https://nytimes.com/athletic/5979282/2024/12/09/tottenham-squad-injuries-postecoglou/
 
