@@ -1,3 +1,7 @@
+**China Opens Antitrust Investigation Into Nvidia**\
+`The move by Chinese regulators came a week after the Biden administration expanded curbs on the sale of advanced U.S. technology to China.`\
+https://nytimes.com/2024/12/09/technology/china-nvidia-investigation-antitrust-ai.html
+
 **Two Major Ad Agencies to Merge, Creating Global Giant**\
 `If they combine, Omnicom and Interpublic would become the largest advertising company in the world.`\
 https://nytimes.com/2024/12/09/business/omnicom-interpublic-merger.html

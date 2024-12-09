@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/09/business/omnicom-interpublic-merger.html
 ``\
 https://nytimes.com/live/2024/12/09/us/trump-news
 
-**China Opens Antitrust Investigation into Nvidia**\
+**China Opens Antitrust Investigation Into Nvidia**\
 `The move by Chinese regulators came a week after the Biden administration expanded curbs on the sale of advanced U.S. technology to China.`\
 https://nytimes.com/2024/12/09/technology/china-nvidia-investigation-antitrust-ai.html
 
