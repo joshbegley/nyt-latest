@@ -1,3 +1,11 @@
+**49ers minutia minute: Isaac Guerendo iffy for Thursday; who's the next man up?**\
+`A 49ers' edge on Thursday: Most starters were on the sideline late in Week 14's lopsided win, while only one D-lineman played over 30 snaps.`\
+https://nytimes.com/athletic/5982312/2024/12/09/49ers-isaac-guerendo-injury-status-snap-counts/
+
+**Ernst Hints That She Will Not Oppose Hegseth for Defense Secretary**\
+`Senator Joni Ernst, Republican of Iowa, said she would “support Pete through this process,” stopping short of promising to vote to confirm him but indicating a turnabout from her previous skepticism.`\
+https://nytimes.com/2024/12/09/us/politics/ernst-hegseth-defense-trump.html
+
 **My Last Column: Finding Hope in an Age of Resentment**\
 `Where have all the good vibes gone?`\
 https://nytimes.com/2024/12/09/opinion/elites-euro-social-media.html
