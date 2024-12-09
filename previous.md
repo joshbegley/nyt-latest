@@ -1,3 +1,11 @@
+**Read the Letter From Nobel Laureates Urging That Mr. Kennedy Not be Confirmed**\
+`More than 75 laureates have written an open letter describing Mr. Kennedy’s selection for H.H.S. secretary as detrimental to public health.`\
+https://nytimes.com/interactive/2024/12/09/health/rfkltr.html
+
+**Juan Soto to the Mets: 6 initial questions for card collectors **\
+`The first questions to consider as Soto embarks on a new chapter that's likely to alter his trading card market `\
+https://nytimes.com/athletic/5980193/2024/12/09/juan-soto-mets-baseball-cards/
+
 **Suspect Is Arrested in Pennsylvania in Killing of C.E.O. in Midtown**\
 `Luigi Mangione was arrested after a tip from a McDonald’s in Altoona. The police said they found him with fake identification and a gun that matched the assassin’s.`\
 https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-ceo-suspect-arrest-altoona.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5982066/2024/12/09/golden-state-warriors-draymond-g
 **Former Wisconsin, Miami QB Tyler Van Dyke hits transfer portal: Source**\
 `Van Dyke started three games for the Badgers before a season-ending injury. He has one year of eligibility remaining. `\
 https://nytimes.com/athletic/5982223/2024/12/09/tyler-van-dyke-transfer-quarterback-wisconsin-miami/
-
-**Nobel Laureates Urge Senate to Turn Down Kennedy’s Nomination**\
-`Elevating Mr. Kennedy to secretary of H.H.S. “would put the public’s health in jeopardy,” more than 75 laureates wrote.`\
-https://nytimes.com/2024/12/09/health/kennedy-hhs-nobel-laureates.html
-
-**U.S. Scrambles to Navigate Perils of a New Syria**\
-`The Biden administration is relying on Turkey to convey messages to Hayat Tahrir al-Sham, which toppled Bashar al-Assad but is designated by the U.S. as a terrorist organization.`\
-https://nytimes.com/2024/12/09/us/politics/us-syria.html
 
