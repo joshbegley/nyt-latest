@@ -1,3 +1,7 @@
+**Newcastle enter a crucial period and must start delivering**\
+`The fixture list over the next fortnight offers up some jeopardy for Newcastle United, but also presents the team with an opportunity `\
+https://nytimes.com/athletic/5976043/2024/12/09/newcastle-enter-a-crucial-period-of-their-season-and-must-start-delivering/
+
 **In win over Manchester United, Nottingham Forest show scale of growth under Nuno**\
 `Under manager Nuno Espirito Santo, Forest go into games believing they can win. At their best, they can go toe-to-toe with the big clubs`\
 https://nytimes.com/athletic/5977631/2024/12/09/chris-wood-nottingham-forest-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940522/2024/12/09/aston-villa-john-mcginn-unai-eme
 **Fabian Hurzeler's yet to see Brighton perform for a whole match - he must take some of the blame**\
 `Why Brighton are struggling to see out games against teams in the bottom five`\
 https://nytimes.com/athletic/5978472/2024/12/09/fabian-hurzeler-brighton-leicester-full-90/
-
-**For all their endeavour, Bournemouth loss sums up Ipswich's problems at home**\
-`Despite losing to Bournemouth, Ipswich have plenty of reasons to believe they can end their wait for a Premier League home win `\
-https://nytimes.com/athletic/5978591/2024/12/09/ipswich-bournemouth-home-record/
 
