@@ -1,3 +1,7 @@
+**Red Bull F1 faces tough decisions as Sergio Pérez finally signals his looming exit**\
+`Red Bull will soon decide who will race alongside Verstappen ("the hardest teammate in the world") in 2025.`\
+https://nytimes.com/athletic/5978944/2024/12/09/sergio-perez-red-bull-f1-exit-lawson-tsunoda/
+
 **Word of the Day: permafrost**\
 `This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/09/learning/word-of-the-day-permafrost.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/opinion/meloni-trump-europe.html
 **Bucks, Bobby Portis 'get it out the mud' in second half to escape with a win over Nets**\
 `With the offense stuck against Brooklyn, the Bucks found "better energy" in the fourth and got tough defense from an unlikely source.`\
 https://nytimes.com/athletic/5979645/2024/12/09/bucks-giannis-antetokounmpo-bobby-portis/
-
-**Newcastle enter a crucial period and must start delivering**\
-`The fixture list over the next fortnight offers up some jeopardy for Newcastle United, but also presents the team with an opportunity `\
-https://nytimes.com/athletic/5976043/2024/12/09/newcastle-enter-a-crucial-period-of-their-season-and-must-start-delivering/
 

@@ -1,3 +1,7 @@
+**Red Bull F1 faces tough decisions as Sergio Pérez finally signals his looming exit**\
+`Red Bull will soon decide who will race alongside Verstappen ("the hardest teammate in the world") in 2025.`\
+https://nytimes.com/athletic/5978944/2024/12/09/sergio-perez-red-bull-f1-exit-lawson-tsunoda/
+
 **Word of the Day: permafrost**\
 `This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/09/learning/word-of-the-day-permafrost.html
