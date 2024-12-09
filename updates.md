@@ -1,3 +1,7 @@
+**Notre Dame and Indiana are finally getting to know each other in an unlikely place**\
+`Notre Dame and Indiana are in-state neighbors, but they haven't met since 1991. Now they'll meet in the first game of the expanded Playoff.`\
+https://nytimes.com/athletic/5980815/2024/12/09/notre-dame-indiana-playoff-freeman-cignetti/
+
 **‘The Daily’ podcast covers al-Assad’s fall.**\
 `By The Daily Team`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/the-daily-podcast-covers-al-assads-fall
