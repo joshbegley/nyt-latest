@@ -1,3 +1,7 @@
+**Mistake-riddled Browns officially eliminated from playoff contention after loss to Steelers**\
+`This Cleveland team, which lost its sixth straight road game this season, is filled with much uncertainty going forward. `\
+https://nytimes.com/athletic/5979392/2024/12/08/browns-eliminated-playoffs-loss-steelers/
+
 **Fans are fed up with Giants 'dumpster fire.' What will John Mara do once miserable season ends?**\
 `Mara doesn't want to make drastic changes, but off-field embarrassments like the plane stunt could push the team co-owner to do just that. `\
 https://nytimes.com/athletic/5979557/2024/12/08/giants-loss-john-mara-saints-plane-banner/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5979544/2024/12/08/steelers-win-george-pickens-russ
 **Footage shows a chaotic scene after rebels capture a notorious prison.**\
 `By Haley Willis and Dmitriy Khavin`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/footage-shows-a-chaotic-scene-after-rebels-capture-a-notorious-prison
-
-**Panthers lose on Xavier Legette's drop, but Bryce Young resurgence rolls on**\
-`"Those are the plays that we’ve just gotta find a way to make to get back in the winning column,” Panthers coach Dave Canales said.`\
-https://nytimes.com/athletic/5979385/2024/12/08/panthers-xavier-legette-drop-bryce-young-eagles/
 
