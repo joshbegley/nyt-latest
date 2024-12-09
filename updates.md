@@ -1,3 +1,7 @@
+**In race for No. 1 NFL Draft pick, two teams are favorites in Week 14**\
+`Jacksonville's win Sunday makes the battle for first overall a two-team race between the New York Giants and Las Vegas Raiders.`\
+https://nytimes.com/athletic/5978876/2024/12/08/race-to-no-1-draft-pick-nfl/
+
 **The Call**\
 `One call to a very unusual hotline, and everything that followed.`\
 https://nytimes.com/2024/12/08/podcasts/the-call-this-american-life-nyt-audio.html

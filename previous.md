@@ -1,7 +1,3 @@
-**The Call**\
-`One call to a very unusual hotline, and everything that followed.`\
-https://nytimes.com/2024/12/08/podcasts/the-call-this-american-life-nyt-audio.html
-
 **Chris Paul moves into second on NBA all-time assists list**\
 `Paul entered Sunday averaging 10.4 points, 8.5 assists and 3.9 rebounds through his first 23 games with the Spurs. `\
 https://nytimes.com/athletic/5979337/2024/12/08/chris-paul-assists-nba/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/08/world/middleeast/syria-turkey-kurds.html
 **Stunned Iranian Officials Try to Distance Their Country From Assad**\
 `A reckoning emerged in Iran on Sunday as officials and commentators swiftly moved to distance the government from a tyrant it had supported.`\
 https://nytimes.com/2024/12/08/world/middleeast/iran-reaction-assad-syria.html
+
+**In race for No. 1 NFL Draft pick, two teams are favorites in Week 14**\
+`Jacksonville's win Sunday makes the battle for first overall a two-team race between the New York Giants and Las Vegas Raiders.`\
+https://nytimes.com/athletic/5978876/2024/12/08/race-to-no-1-draft-pick-nfl/
 
