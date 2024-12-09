@@ -1,3 +1,7 @@
+**The Art of the Gift: Kristen Arnett**\
+`The author keeps a list on her phone of gift ideas. “During the year, if someone close to me mentioned something that they really like or really want, I put a note in right then.”`\
+https://nytimes.com/2024/12/09/style/kristen-arnett-holidays-gifts.html
+
 **NFL playoff picture, Week 14: Bucs reclaim NFC South lead; Eagles clinch playoff berth**\
 `Miami stayed in the hunt with its OT victory over the Jets, while the Rams' upset of the Bills puts them one game back of Washington. `\
 https://nytimes.com/athletic/5966559/2024/12/08/nfl-playoff-picture-week-14/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5963398/2024/12/08/what-the-7-teams-who-lost-juan-s
 **Dodgers, Blake Treinen agree to reunion with 2-year, $22 million deal: Sources**\
 `Over 50 appearances in 2024, Treinen posted a 1.93 ERA, with strong underlying numbers, along with some postseason heroics.`\
 https://nytimes.com/athletic/5941165/2024/12/08/blake-treinen-dodgers-free-agent-deal/
-
-**Mets land Juan Soto behind $765 million and Steve Cohen's personalized approach**\
-`In addition to paying top dollar, Cohen demonstrated his intentions to win and hit all the right notes in his pitch to Soto.`\
-https://nytimes.com/athletic/5969413/2024/12/08/juan-soto-mets-contract-steve-cohen/
 
