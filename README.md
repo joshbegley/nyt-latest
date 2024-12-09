@@ -1,3 +1,7 @@
+**U.S. Investigating Child Labor Claim at HelloFresh Subsidiary**\
+`The Labor Department investigation focuses on a plant in Aurora, Ill., operated by Factor75, a meal kit delivery company that HelloFresh acquired in 2020.`\
+https://nytimes.com/2024/12/09/business/hello-fresh-child-labor.html
+
 **What does Juan Soto's record contract mean to the Mets' payroll?**\
 `The Mets handed out an epic contract, so luxury tax challenges are part of their future, too: “I keep them all in my mind.”`\
 https://nytimes.com/athletic/5981498/2024/12/09/mets-juan-soto-contract-payroll/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981281/2024/12/09/cowboys-bengals-predictions-tv-j
 **Live Updates: Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
 `A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona, in western Pennsylvania.`\
 https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
-
-**Chris Paul, the ‘ultimate leader, ultimate competitor’, achieves another NBA milestone**\
-`Paul surpasses Jason Kidd for second place in career NBA assists with 12,099.`\
-https://nytimes.com/athletic/5981209/2024/12/09/chris-paul-spurs-assists-nba-milestone/
 
