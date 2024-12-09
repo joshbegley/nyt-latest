@@ -26,8 +26,8 @@ https://nytimes.com/athletic/5977631/2024/12/09/chris-wood-nottingham-forest-man
 `Could the striker still be going when he's 40?`\
 https://nytimes.com/athletic/5978333/2024/12/09/jamie-vardy-37-leicester-setting-records/
 
-**Recent woes made Red Sox longshots for Juan Soto. What is Plan B now that he's a Met?**\
-`If the Red Sox truly want to build on their pursuit of Soto and show they are spenders, they'd be wise to make a significant move quickly.`\
+**Recent woes made Red Sox a long shot for Juan Soto. What is Plan B now that he's a Met?**\
+`If the Red Sox want to build on their pursuit of Soto and show they are spenders, they'd be wise to make a significant move quickly.`\
 https://nytimes.com/athletic/5980301/2024/12/09/red-sox-juan-soto-alternatives/
 
 **Barcelona's bench is not delivering - and it's costing them points**\

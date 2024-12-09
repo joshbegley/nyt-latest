@@ -1,3 +1,7 @@
+**Recent woes made Red Sox a long shot for Juan Soto. What is Plan B now that he's a Met?**\
+`If the Red Sox want to build on their pursuit of Soto and show they are spenders, they'd be wise to make a significant move quickly.`\
+https://nytimes.com/athletic/5980301/2024/12/09/red-sox-juan-soto-alternatives/
+
 **Assad’s Syria Was Brutal. Will What Comes Next Be Better?**\
 `It is hard not to worry that Syrians’ sense of deep relief today could be followed by a new set of horrors tomorrow.`\
 https://nytimes.com/2024/12/09/opinion/assad-syria-whats-next.html
