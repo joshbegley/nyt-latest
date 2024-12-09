@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
 `\
 https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
 
+**Before dismantling Bears, the 49ers found their missing element: Desperation**\
+`For the first time this season, the 49ers looked like their 2023 selves for a full game — even while missing many of their 2023 stars.
+`\
+https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
+
 **8 free agents the Yankees can consider after losing Juan Soto to the Mets**\
 `First baseman Christian Walker likely would have been an option for the Yankees even if Soto had re-signed with the team.`\
 https://nytimes.com/athletic/5950168/2024/12/08/juan-soto-yankees-free-agents/
