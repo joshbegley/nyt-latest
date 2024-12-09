@@ -1,3 +1,7 @@
+**Travis Hunter, Ashton Jeanty highlight Heisman Trophy finalists**\
+`The award will likely be one of the rare times in recent years where the winner plays a position other than quarterback.`\
+https://nytimes.com/athletic/5982578/2024/12/09/travis-hunter-ashton-jeanty-heisman-trophy-finalists/
+
 **Mirtle: Why the Maple Leafs aren't as dangerous offensively this year, and how to fix it**\
 `The Leafs were second in the league last season in goals per game and now sit 18th. Why, and what should they do about it?`\
 https://nytimes.com/athletic/5981982/2024/12/09/maple-leafs-offensive-production-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982457/2024/12/09/wild-kaprizov-hart-trenin-linema
 **Juan Soto transforms the Mets, who still need pitching, while the Yankees take a hit: Law**\
 `Soto improves the Mets significantly, but they still need a top starter. Can the rest of the AL East take advantage of the Yankees' loss?`\
 https://nytimes.com/athletic/5982409/2024/12/09/juan-soto-mets-yankees-signing-analysis/
-
-**Even after Severino, A’s have to spend more this winter or risk fight with players’ union**\
-`The A's may still need to spend another $25 million or more on next year’s roster before they’re in the clear. `\
-https://nytimes.com/athletic/5982452/2024/12/09/as-spending-union-grievance-severino/
 

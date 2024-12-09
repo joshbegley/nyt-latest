@@ -1,3 +1,7 @@
+**Travis Hunter, Ashton Jeanty highlight Heisman Trophy finalists**\
+`The award will likely be one of the rare times in recent years where the winner plays a position other than quarterback.`\
+https://nytimes.com/athletic/5982578/2024/12/09/travis-hunter-ashton-jeanty-heisman-trophy-finalists/
+
 **Mirtle: Why the Maple Leafs aren't as dangerous offensively this year, and how to fix it**\
 `The Leafs were second in the league last season in goals per game and now sit 18th. Why, and what should they do about it?`\
 https://nytimes.com/athletic/5981982/2024/12/09/maple-leafs-offensive-production-analysis/
