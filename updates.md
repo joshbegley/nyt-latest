@@ -1,3 +1,7 @@
+**Mistake-riddled Browns officially eliminated from playoff contention after loss to Steelers**\
+`This Cleveland team, which lost its sixth straight road game this season, is filled with much uncertainty. `\
+https://nytimes.com/athletic/5979392/2024/12/08/browns-eliminated-playoffs-loss-steelers/
+
 **For the Jets, anything that can go wrong will go wrong — and Garrett Wilson is sick of it**\
 `Another come-from-ahead loss, this one in Miami, has the star receiver's frustration at a boiling point.`\
 https://nytimes.com/athletic/5979458/2024/12/08/jets-loss-dolphins-garrett-wilson-contract/
