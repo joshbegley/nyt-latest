@@ -1,3 +1,8 @@
+**Before dismantling Bears, the 49ers found their missing element: desperation**\
+`For the first time this season, the 49ers looked like their 2023 selves for a full game — even while missing many of their 2023 stars.
+`\
+https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
+
 **Rosenthal: In landmark deal with the Mets, Juan Soto gets what he's wanted all along**\
 `The superstar outfielder agreed to a 15-year, $765 million contract with the Mets on Sunday night.`\
 https://nytimes.com/athletic/5941131/2024/12/08/juan-soto-contract-mets-mlb-free-agency-rosenthal/
@@ -33,8 +38,4 @@ https://nytimes.com/2024/12/08/arts/television/dune-prophecy-recap-season-1-epis
 **MLB Top 40 Free Agent Big Board: Welcome to the Juan Soto sweepstakes**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
 https://nytimes.com/athletic/5891633/2024/12/08/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
-
-**For the Jets, anything that can go wrong will go wrong — and Garrett Wilson is sick of it**\
-`Another come-from-ahead loss, this one in Miami, has the star receiver's frustration at a boiling point.`\
-https://nytimes.com/athletic/5979458/2024/12/08/jets-loss-dolphins-garrett-wilson-contract/
 
