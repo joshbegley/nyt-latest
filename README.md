@@ -1,3 +1,7 @@
+**For Mets fans, signing Juan Soto away from the Yankees is extra special**\
+`In the Juan Soto free agency sweepstakes, the "little brother" of the two New York franchises came out on top — a rare occurrence. `\
+https://nytimes.com/athletic/5980558/2024/12/09/juan-soto-mets-contract-yankees-fans/
+
 **Oil Markets Shrug Off Overthrow of Syrian Ruler**\
 `Traders appeared to be more concerned about tepid global growth and an oversupply from other producers than about Bashar al-Assad’s ouster.`\
 https://nytimes.com/2024/12/09/business/oil-prices-syria.html
@@ -10,8 +14,8 @@ https://nytimes.com/2024/12/09/world/middleeast/syria-damascus-rebels-assad-vide
 `Auburn lost a slugfest at Duke, but the Tigers still deserve to lead a sizable group of the SEC's best teams vying for rankings supremacy.`\
 https://nytimes.com/athletic/5975620/2024/12/09/college-basketball-top-25-auburn-tennessee/
 
-**Pulisic set to miss at least two weeks with calf muscle tear**\
-`USMNT and Milan forward Christian Pulisic is set to be sidelined for at least two weeks after sustaining a minor tear to a muscle in his right calf.`\
+**Pulisic sidelined until 2025 with calf muscle tear**\
+`USMNT and Milan forward Christian Pulisic is set to be sidelined until early January after sustaining a minor tear to a muscle in his right calf.`\
 https://nytimes.com/athletic/5980722/2024/12/09/christian-pulisic-injury-update-milan/
 
 **Blues mailbag, part 1: Bannister's raw deal, praise for Kyrou and Thomas' 4 Nations snub**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/movies/golden-globes-nominations-list.html
 **Two Major Ad Agencies to Merge, Creating Global Giant**\
 `If they combine, Omnicom and Interpublic would become the largest advertising company in the world.`\
 https://nytimes.com/2024/12/09/business/omnicom-interpublic-merger.html
-
-**Trump Transition Live Updates: Cheney Condemns Trump’s ‘Assault on the Rule of Law’**\
-``\
-https://nytimes.com/live/2024/12/09/us/trump-news
 
