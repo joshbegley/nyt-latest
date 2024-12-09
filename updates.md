@@ -1,3 +1,11 @@
+**What happened to the Bears' culture? Locker room keeps failing to bounce back**\
+`When given a chance to put together a good performance for the interim head coach against a banged-up 49ers team, the Bears failed — again.`\
+https://nytimes.com/athletic/5980054/2024/12/08/bears-culture-new-coach-49ers/
+
+**Ivan Provorov toughs it out, Kent Johnson scores twice in gutsy Blue Jackets win**\
+`Columbus mustered up the energy to knock off one of the NHL's top teams in one of the league's most difficult arenas.`\
+https://nytimes.com/athletic/5979861/2024/12/08/blue-jackets-win-jets-ivan-provorov-kent-johnson/
+
 **Before dismantling Bears, the 49ers found their missing element: Desperation**\
 `For the first time this season, the 49ers looked like their 2023 selves for a full game — even while missing many of their 2023 stars.
 `\

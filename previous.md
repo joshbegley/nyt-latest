@@ -1,3 +1,7 @@
+**What happened to the Bears' culture? Locker room keeps failing to bounce back**\
+`When given a chance to put together a good performance for the interim head coach against a banged-up 49ers team, the Bears failed — again.`\
+https://nytimes.com/athletic/5980054/2024/12/08/bears-culture-new-coach-49ers/
+
 **8 free agents the Yankees can consider after losing Juan Soto to the Mets**\
 `First baseman Christian Walker likely would have been an option for the Yankees even if Soto had re-signed with the team.`\
 https://nytimes.com/athletic/5950168/2024/12/08/juan-soto-yankees-free-agents/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5941165/2024/12/08/blake-treinen-dodgers-free-agent
 https://nytimes.com/athletic/5969413/2024/12/08/juan-soto-mets-contract-steve-cohen/
 
 **Ivan Provorov toughs it out, Kent Johnson scores twice in gutsy Blue Jackets win**\
-`Columbus mustered up the energy to knock off one of the NHL's top teams in one of the league's most difficult arenas 4-1 in Winnipeg.`\
+`Columbus mustered up the energy to knock off one of the NHL's top teams in one of the league's most difficult arenas.`\
 https://nytimes.com/athletic/5979861/2024/12/08/blue-jackets-win-jets-ivan-provorov-kent-johnson/
 
 **Massacre in Haiti’s Capital Leaves Over 100 Dead, Rights Group Says**\
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/5979969/2024/12/08/seahawks-win-playoff-hopes-cardi
 **Tom Brady delivers his breakthrough TV analyst moment**\
 `This is what Fox wanted when they gave Brady a 10-year, $375 million contract — what a Hall of Fame-to-be QB thinks about during the game.`\
 https://nytimes.com/athletic/5979996/2024/12/08/tom-brady-fox-sports-broadcast-tv-bills-rams-week-14-richard-deitsch-review/
-
-**Before dismantling Bears, the 49ers found their missing element: Desperation**\
-`For the first time this season, the 49ers looked like their 2023 selves for a full game — even while missing many of their 2023 stars.
-`\
-https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
 
