@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5950168/2024/12/08/juan-soto-yankees-free-agents/
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki `\
 https://nytimes.com/athletic/5891633/2024/12/08/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
 
-**What the 7 teams who lost Juan Soto should do next**\
+**What the 7 teams that lost Juan Soto should do next**\
 `The free-agent market is expected to heat up now that Soto is gone.`\
 https://nytimes.com/athletic/5963398/2024/12/08/what-the-7-teams-who-lost-juan-soto-should-do-next/
 
