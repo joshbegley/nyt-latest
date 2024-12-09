@@ -1,3 +1,11 @@
+**Fighting still rages in northern Syria as rebel groups vie for territory.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/fighting-still-rages-in-northern-syria-as-rebel-groups-vie-for-territory
+
+**QB TJ Finley enters transfer portal, seeking to play at fifth school in six seasons**\
+`Finley, who began his career at LSU, has a 14-13 record in 27 starts, including an 8-5 mark as the full-time starter at Texas State in 2023.`\
+https://nytimes.com/athletic/5981198/2024/12/09/tj-finley-transfer-portal-quarterback/
+
 **How to Apply Makeup That Lasts**\
 `Advice from Tinashe, Justin Vivian Bond and Yadim.`\
 https://nytimes.com/2024/12/09/t-magazine/makeup-that-lasts-tinashe.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5981294/2024/12/09/ellie-roebuck-barcelona-return-s
 **Golden Globes 2025 Snubs and Surprises: Danielle Deadwyler, ‘The Substance’ and More**\
 `Female directors were well-represented, while “Dune: Part Two” and “Sing Sing” didn’t do as well as expected.`\
 https://nytimes.com/2024/12/09/movies/golden-globes-snubs-surprises-2025.html
-
-**A Quick Arab Pivot: From Welcoming al-Assad to Managing the Chaos**\
-`Only weeks ago, Arab nations had been working hard to bring Bashar al-Assad back into the fold, assuming he was there to last. They were badly mistaken.`\
-https://nytimes.com/2024/12/09/world/middleeast/syria-arab-israel.html
-
-**24 Things That Happened for the First Time in 2024**\
-`A series of surprising milestones, events and trends that were unprecedented until now.`\
-https://nytimes.com/2024/12/09/special-series/first-time-ever-2024.html
 
