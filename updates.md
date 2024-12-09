@@ -1,3 +1,7 @@
+**Can Clay Holmes make transition from reliever to Mets starter? Scouts weigh in**\
+`One AL evaluator expressed skepticism: "Does he lose some velocity in a starter role?"`\
+https://nytimes.com/athletic/5979688/2024/12/09/mets-clay-holmes-reliever/
+
 **Cashman: Steinbrenner's Soto pursuit 'went above and beyond'**\
 `"There's a lot of different ways to figure this thing out, and so we're going to have to figure out a different way without Juan."`\
 https://nytimes.com/athletic/5982637/2024/12/09/yankees-juan-soto-brian-cashman-hal-steinbrenner/
