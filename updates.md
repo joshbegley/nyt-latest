@@ -1,3 +1,7 @@
+**Falcons' problems go beyond Kirk Cousins: 'Nobody coming to save us'**\
+`The Falcons lost their fourth straight game and trail the Buccaneers by one game in the NFC South.`\
+https://nytimes.com/athletic/5979364/2024/12/08/falcons-problems-kirk-cousins-vikings/
+
 **Footage shows a chaotic scene after rebels capture a notorious prison.**\
 `By Haley Willis and Dmitriy Khavin`\
 https://nytimes.com/live/2024/12/08/world/syria-war-damascus/footage-shows-a-chaotic-scene-after-rebels-capture-a-notorious-prison

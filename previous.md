@@ -27,7 +27,7 @@ https://nytimes.com/2024/12/08/podcasts/the-call-this-american-life-nyt-audio.ht
 https://nytimes.com/athletic/5979337/2024/12/08/chris-paul-assists-nba/
 
 **Falcons' problems go beyond Kirk Cousins: 'Nobody coming to save us'**\
-`The Falcons lost their fourth straight game and now trail Tampa Bay by one game in the NFC South.`\
+`The Falcons lost their fourth straight game and trail the Buccaneers by one game in the NFC South.`\
 https://nytimes.com/athletic/5979364/2024/12/08/falcons-problems-kirk-cousins-vikings/
 
 **College football bowl watch guide: Schedule and odds for every bowl game**\
