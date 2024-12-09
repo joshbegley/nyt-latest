@@ -1,3 +1,7 @@
+**Even after Severino, A’s have to spend more this winter or risk fight with players’ union**\
+`The A's may still need to spend another $25 million or more on next year’s roster before they’re in the clear. `\
+https://nytimes.com/athletic/5982452/2024/12/09/as-spending-union-grievance-severino/
+
 **Avalanche acquire MacKenzie Blackwood, Givani Smith in trade with Sharks**\
 `It’s the second trade in the last two weeks for Colorado, who has reshaped their crease after a disastrous start to the season in net`\
 https://nytimes.com/athletic/5982186/2024/12/09/avalanche-mackenzie-blackwood-trade-sharks/

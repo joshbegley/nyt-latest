@@ -1,3 +1,11 @@
+**Kirill Kaprizov, early favorite for the Hart Trophy, has also been all-heart for the Wild**\
+`Even with Kirill Kaprizov seemingly scoring at will, he lifts his teammates in other ways that don't appear on the scoresheet.`\
+https://nytimes.com/athletic/5982457/2024/12/09/wild-kaprizov-hart-trenin-linemates/
+
+**Juan Soto transforms the Mets, who still need pitching, while the Yankees take a hit: Law**\
+`Soto improves the Mets significantly, but they still need a top starter. Can the rest of the AL East take advantage of the Yankees' loss?`\
+https://nytimes.com/athletic/5982409/2024/12/09/juan-soto-mets-yankees-signing-analysis/
+
 **Even after Severino, A’s have to spend more this winter or risk fight with players’ union**\
 `The A's may still need to spend another $25 million or more on next year’s roster before they’re in the clear. `\
 https://nytimes.com/athletic/5982452/2024/12/09/as-spending-union-grievance-severino/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5982312/2024/12/09/49ers-isaac-guerendo-injury-stat
 **Ernst Hints That She Will Not Oppose Hegseth for Defense Secretary**\
 `Senator Joni Ernst, Republican of Iowa, said she would “support Pete through this process,” stopping short of promising to vote to confirm him but indicating a turnabout from her previous skepticism.`\
 https://nytimes.com/2024/12/09/us/politics/ernst-hegseth-defense-trump.html
-
-**Josh Allen's best-ever QB fantasy performance and those he surpassed**\
-`Josh Allen had the best-ever fantasy performance by a QB in the history of the NFL. Comparing the other four QBs since 2004 who came close.`\
-https://nytimes.com/athletic/5982189/2024/12/09/josh-allen-best-ever-qb-nfl-fantasy-football-performance/
-
-**‘Person of Interest’ in C.E.O. Shooting Has Background in Games Industry**\
-`Luigi Mangione was passionate about game development and programming from a young age, teaching himself to code in high school.`\
-https://nytimes.com/2024/12/09/nyregion/uhc-suspect-video-games.html
 
