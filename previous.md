@@ -1,3 +1,7 @@
+**The Athletic FC: Inside Ashworth's United exit, what now after Galaxy win MLS Cup?**\
+`Today in TAFC: Manchester United's u-turn on Ashworth five months after he joined, Galaxy win MLS Cup, assessing Chelsea's title propects`\
+https://nytimes.com/athletic/5980632/2024/12/09/manchester-united-ashworth-exit-galaxy-mls-cup/
+
 **Israel Claims Credit for al-Assad’s Ouster, but Sees Risk in His Absence**\
 `For Israel’s leaders, Bashar al-Assad’s downfall was made possible by their recent assaults on Hezbollah, Iran and Syria, all of which weakened the Iran-backed axis.`\
 https://nytimes.com/2024/12/09/world/middleeast/israel-assad-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980592/2024/12/09/chargers-loss-patrick-mahomes-ch
 **Why Bill Belichick coaching at UNC might be more realistic than you think**\
 `Many have laughed at the idea of Belichick coaching in college, but there several factors that make it at least plausible.`\
 https://nytimes.com/athletic/5980483/2024/12/09/bill-belichick-unc-coach/
-
-**Sam Darnold, Bryce Young and the path to QB redemption**\
-`Darnold's MVP odds have climbed into the top six, while Young is playing the best football of his career since returning from his benching.`\
-https://nytimes.com/athletic/5980379/2024/12/09/sam-darnold-vikings-bryce-young-panthers/
 

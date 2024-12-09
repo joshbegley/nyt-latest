@@ -1,3 +1,7 @@
+**The Athletic FC: Inside Ashworth's United exit, what now after Galaxy win MLS Cup?**\
+`Today in TAFC: Manchester United's u-turn on Ashworth five months after he joined, Galaxy win MLS Cup, assessing Chelsea's title propects`\
+https://nytimes.com/athletic/5980632/2024/12/09/manchester-united-ashworth-exit-galaxy-mls-cup/
+
 **Israel Claims Credit for al-Assad’s Ouster, but Sees Risk in His Absence**\
 `For Israel’s leaders, Bashar al-Assad’s downfall was made possible by their recent assaults on Hezbollah, Iran and Syria, all of which weakened the Iran-backed axis.`\
 https://nytimes.com/2024/12/09/world/middleeast/israel-assad-syria.html
