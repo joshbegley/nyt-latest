@@ -1,3 +1,7 @@
+**‘We Came Here Gloating’: Syrians Loot Assad’s Palace**\
+`Thrilled by the fall of President Bashar al-Assad, Syrians took furniture and appliances from his official residence. Some posed for photos.`\
+https://nytimes.com/video/world/middleeast/100000009866987/syria-assad-palace-loot.html
+
 **Road to Damascus Littered With Relics of Fallen Assad Government**\
 `Reporters for The New York Times entered Syria on Monday, finding remnants of former President Bashar al-Assad’s oppressive rule.`\
 https://nytimes.com/2024/12/09/world/middleeast/damascus-road-syria-assad.html

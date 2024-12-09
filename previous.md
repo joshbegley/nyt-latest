@@ -1,3 +1,7 @@
+**‘We Came Here Gloating’: Syrians Loot Assad’s Palace**\
+`Thrilled by the fall of President Bashar al-Assad, Syrians took furniture and appliances from his official residence. Some posed for photos.`\
+https://nytimes.com/video/world/middleeast/100000009866987/syria-assad-palace-loot.html
+
 **Road to Damascus Littered With Relics of Fallen Assad Government**\
 `Reporters for The New York Times entered Syria on Monday, finding remnants of former President Bashar al-Assad’s oppressive rule.`\
 https://nytimes.com/2024/12/09/world/middleeast/damascus-road-syria-assad.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/learning/word-of-the-day-permafrost.html
 **Here are the latest developments.**\
 `By Mike Ives`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/here-are-the-latest-developments
-
-**Live Updates: Rebels Who Toppled Assad Face Stark Challenges in Syria**\
-`People who fled during the civil war are considering whether to return, as the rebels who control Damascus try to unite Syria. New York Times reporters entering the country saw relics of the old regime on a highway from Lebanon.`\
-https://nytimes.com/live/2024/12/09/world/syria-assad-rebels
 
