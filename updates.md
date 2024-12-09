@@ -1,3 +1,7 @@
+**Cashman: Steinbrenner's Soto pursuit 'went above and beyond'**\
+`"There's a lot of different ways to figure this thing out, and so we're going to have to figure out a different way without Juan."`\
+https://nytimes.com/athletic/5982637/2024/12/09/yankees-juan-soto-brian-cashman-hal-steinbrenner/
+
 **Travis Hunter, Ashton Jeanty highlight Heisman Trophy finalists**\
 `The award will likely be one of the rare times in recent years where the winner plays a position other than quarterback.`\
 https://nytimes.com/athletic/5982578/2024/12/09/travis-hunter-ashton-jeanty-heisman-trophy-finalists/
