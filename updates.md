@@ -1,3 +1,15 @@
+**Heat Today: Miami is doing it again with Dru Smith**\
+`The Heat always seem to find reliable undrafted contributors to help them win. Here's the newest example.`\
+https://nytimes.com/athletic/5980974/2024/12/09/dru-smith-miami-heat-nba-jimmy-butler-tyler-herro-bam-adebayo/
+
+**Cowboys Today: Predictions vs. Bengals and why networks still want the Dallas Cowboys**\
+`The Bengals are 4-8, but Joe Burrow is third in the NFL in passing yards and first in TD passes. The Cowboys look for third win in a row.`\
+https://nytimes.com/athletic/5981281/2024/12/09/cowboys-bengals-predictions-tv-joe-burrow/
+
+**Live Updates: Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
+`A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
+https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
+
 **Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
 `A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
 https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
