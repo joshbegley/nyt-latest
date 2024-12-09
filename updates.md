@@ -1,3 +1,11 @@
+**Juan Soto signing skyrockets New York Mets' World series odds, Yankees fall**\
+`Juan Soto finding his new team has sent shockwaves through the MLB betting market. Read here for the odds impact on the Mets and Yankees.`\
+https://nytimes.com/athletic/5981941/2024/12/09/juan-soto-signing-skyrockets-new-york-mets-world-series-odds-yankees-fall/
+
+**‘Strong Person of Interest’ Is Arrested in Health Care C.E.O.’s Shooting**\
+`Luigi Mangione, 26, was arrested on gun charges and for questioning in connection with last week’s killing of a health insurance executive in Midtown Manhattan.`\
+https://nytimes.com/video/nyregion/100000009868177/unitedhealthcare-ceo-shooting-arrest.html
+
 **Syria’s President Had Stocks of Chemical Weapons. What Happens to Them Now?**\
 `While experts believe that Syria has retained some stocks of chemical weapons, their quantities likely have been depleted and it would be hard for rogue actors to use them.`\
 https://nytimes.com/2024/12/09/world/middleeast/syria-chemical-weapons-arsenal.html

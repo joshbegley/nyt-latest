@@ -1,3 +1,11 @@
+**Juan Soto signing skyrockets New York Mets' World series odds, Yankees fall**\
+`Juan Soto finding his new team has sent shockwaves through the MLB betting market. Read here for the odds impact on the Mets and Yankees.`\
+https://nytimes.com/athletic/5981941/2024/12/09/juan-soto-signing-skyrockets-new-york-mets-world-series-odds-yankees-fall/
+
+**‘Strong Person of Interest’ Is Arrested in Health Care C.E.O.’s Shooting**\
+`Luigi Mangione, 26, was arrested on gun charges and for questioning in connection with last week’s killing of a health insurance executive in Midtown Manhattan.`\
+https://nytimes.com/video/nyregion/100000009868177/unitedhealthcare-ceo-shooting-arrest.html
+
 **Syria’s President Had Stocks of Chemical Weapons. What Happens to Them Now?**\
 `While experts believe that Syria has retained some stocks of chemical weapons, their quantities likely have been depleted and it would be hard for rogue actors to use them.`\
 https://nytimes.com/2024/12/09/world/middleeast/syria-chemical-weapons-arsenal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5981577/2024/12/09/indiana-notre-dame-how-to-watch-
 **NFL Week 15 odds, spreads, schedule: Two hypothetical Super Bowl previews**\
 `Two games this week feature Super Bowl-level matchups. One features the biggest spread of the season.`\
 https://nytimes.com/athletic/5981351/2024/12/09/nfl-week-15-odds-spreads-schedule-bills-lions-ravens/
-
-**New York Taxpayers Could Get Refunds of Up to $500 Under Hochul Plan**\
-`The proposal, which Gov. Kathy Hochul intends to include in next year’s state budget, would send $3 billion in refunds to roughly 8.6 million New Yorkers.`\
-https://nytimes.com/2024/12/09/nyregion/tax-refund-ny-hochul.html
-
-**The factors that pushed the bidding for Juan Soto to unexpected heights**\
-`Soto landed on the open market with the right teams looking to make a splash.`\
-https://nytimes.com/athletic/5981844/2024/12/09/mets-juan-soto-contract-record/
 
