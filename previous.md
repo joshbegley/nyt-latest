@@ -1,3 +1,7 @@
+**Nobody Is Coming to Save Us**\
+`The fine artist and illustrator Oliver Jeffers on climate change, A.I. and the idea that maybe everything is pretty much our fault.`\
+https://nytimes.com/2024/12/09/special-series/oliver-jeffers-2024-reflections.html
+
 **Despite loss, Wolves believe they have found their identity: 'Good things will happen'**\
 `"It wasn't Christmas today," Rudy Gobert said after Sunday's loss to the Warriors. "It was Halloween today."`\
 https://nytimes.com/athletic/5979285/2024/12/09/timberwolves-identity/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/business/media/matea-gold-washington-editor-times
 **How Cole Palmer dominates games - whatever position he plays in**\
 `Palmer is a No 10 on paper, but he spends most of his time coming short and playing killer passes from deep`\
 https://nytimes.com/athletic/5980716/2024/12/09/cole-palmer-chelsea-panenka-penalty/
-
-**Weekend NHL rankings: Kings roll, Sabres spiral and a wild weekend in New York**\
-`The Rangers have been tumbling down the standings lately but have shot to the top of the rankings of the NHL's most interesting teams.`\
-https://nytimes.com/athletic/5979704/2024/12/09/weekend-nhl-rankings-kings-sabres-rangers/
 

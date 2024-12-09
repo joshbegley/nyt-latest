@@ -1,3 +1,7 @@
+**Nobody Is Coming to Save Us**\
+`The fine artist and illustrator Oliver Jeffers on climate change, A.I. and the idea that maybe everything is pretty much our fault.`\
+https://nytimes.com/2024/12/09/special-series/oliver-jeffers-2024-reflections.html
+
 **Despite loss, Wolves believe they have found their identity: 'Good things will happen'**\
 `"It wasn't Christmas today," Rudy Gobert said after Sunday's loss to the Warriors. "It was Halloween today."`\
 https://nytimes.com/athletic/5979285/2024/12/09/timberwolves-identity/
