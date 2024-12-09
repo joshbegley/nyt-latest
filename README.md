@@ -1,3 +1,7 @@
+**Clemson at Texas: Kickoff time, odds with Longhorns heavily favored in CFP game**\
+`The Longhorns are a double-digit favorite against Clemson, making Texas the biggest favorite in the College Football Playoff's first round.`\
+https://nytimes.com/athletic/5981899/2024/12/09/clemson-texas-time-odds-college-football-playoff/
+
 **Rupert Murdoch Fails in Bid to Change Family Trust**\
 `A Nevada commissioner ruled resoundingly against Mr. Murdoch, who was trying to give full control of his empire to his son Lachlan and lock in Fox News’s right-wing editorial slant.`\
 https://nytimes.com/2024/12/09/business/media/rupert-lachlan-murdoch-family-trust.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/weather/southern-california-wind-fire-weather-for
 **Alisson to start against Girona following injury lay-off**\
 `Arne Slot admits Alisson has a tough act to follow as the Liverpool goalkeeper prepares to make his comeback in Wednesday’s Champions League clash away to Girona.`\
 https://nytimes.com/athletic/5981618/2024/12/09/alisson-return-liverpool-injury/
-
-**Panthers' Jonathon Brooks tears right ACL again**\
-`The rookie running back tore his ACL at Texas last season and suffered the tear to the ligament in the same knee Sunday vs. the Eagles.`\
-https://nytimes.com/athletic/5981541/2024/12/09/panthers-jonathon-brooks-acl-injury-surgery/
 
