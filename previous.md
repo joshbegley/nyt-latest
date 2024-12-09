@@ -1,3 +1,11 @@
+**Dries Van Noten Names a New Dries Van Noten**\
+`Julian Klausner, who has been head of its women’s studio, is stepping into the founder’s shoes.`\
+https://nytimes.com/2024/12/09/style/dries-van-noten-new-designer-julian-klausner.html
+
+**FPL: What we learnt from Gameweek 15 – more Arsenal uncertainty and the rise of Fernandez**\
+`Abdul Rehman breaks down the main talking points from Gameweek 15 so far in Fantasy Premier League `\
+https://nytimes.com/athletic/5978435/2024/12/09/fantasy-premier-league-what-we-learnt-from-gameweek-15-more-arsenal-uncertainty-and-the-rise-of-enzo/
+
 **Notre Dame and Indiana are finally getting to know each other in an unlikely place**\
 `Notre Dame and Indiana are in-state neighbors, but they haven't met since 1991. Now they'll meet in the first game of the expanded Playoff.`\
 https://nytimes.com/athletic/5980815/2024/12/09/notre-dame-indiana-playoff-freeman-cignetti/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5979282/2024/12/09/tottenham-squad-injuries-posteco
 **WSL Briefing: Brighton press unsettles Chelsea, Manchester United shut out the noise**\
 `The intensity of the weekend's WSL schedule was matched by that of the matches, the best of which saw Brighton give Chelsea a scare`\
 https://nytimes.com/athletic/5979371/2024/12/09/wsl-briefing-chelsea-brighton-manchester-united/
-
-**Syrians Displaced by War Rush to Return Home**\
-`The 13-year conflict in Syria caused one of the “largest displacement crises in the world,” according to the United Nations. Now, an untold number are trying to go back.`\
-https://nytimes.com/2024/12/09/world/middleeast/syria-displaced.html
-
-**The Athletic FC: Inside Ashworth's United exit, what now after Galaxy win MLS Cup?**\
-`Today in TAFC: Manchester United's u-turn on Ashworth five months after he joined, Galaxy win MLS Cup, assessing Chelsea's title propects`\
-https://nytimes.com/athletic/5980632/2024/12/09/manchester-united-ashworth-exit-galaxy-mls-cup/
 

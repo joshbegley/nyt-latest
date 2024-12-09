@@ -1,3 +1,11 @@
+**Dries Van Noten Names a New Dries Van Noten**\
+`Julian Klausner, who has been head of its women’s studio, is stepping into the founder’s shoes.`\
+https://nytimes.com/2024/12/09/style/dries-van-noten-new-designer-julian-klausner.html
+
+**FPL: What we learnt from Gameweek 15 – more Arsenal uncertainty and the rise of Fernandez**\
+`Abdul Rehman breaks down the main talking points from Gameweek 15 so far in Fantasy Premier League `\
+https://nytimes.com/athletic/5978435/2024/12/09/fantasy-premier-league-what-we-learnt-from-gameweek-15-more-arsenal-uncertainty-and-the-rise-of-enzo/
+
 **Notre Dame and Indiana are finally getting to know each other in an unlikely place**\
 `Notre Dame and Indiana are in-state neighbors, but they haven't met since 1991. Now they'll meet in the first game of the expanded Playoff.`\
 https://nytimes.com/athletic/5980815/2024/12/09/notre-dame-indiana-playoff-freeman-cignetti/
