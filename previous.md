@@ -7,7 +7,7 @@ https://nytimes.com/2024/12/09/nyregion/uhc-ceo-suspect-photos-facial-recognitio
 https://nytimes.com/athletic/5981891/2024/12/09/bill-belichick-unc-football-coaching-search/
 
 **Kirill Kaprizov, early favorite for the Hart Trophy, has also been all-heart for the Wild**\
-`Even with Kirill Kaprizov seemingly scoring at will, he lifts his teammates in other ways that don't appear on the scoresheet.`\
+`Even with Kaprizov seemingly scoring at will, he lifts his teammates in other ways that don't appear on the scoresheet.`\
 https://nytimes.com/athletic/5982457/2024/12/09/wild-kaprizov-hart-trenin-linemates/
 
 **Juan Soto transforms the Mets, who still need pitching, while the Yankees take a hit: Law**\
