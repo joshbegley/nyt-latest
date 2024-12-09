@@ -1,3 +1,7 @@
+**Army-Navy game to remain on CBS through 2038**\
+`CBS has served as the home to the annual Army-Navy contest since 1996.`\
+https://nytimes.com/athletic/5981086/2024/12/09/army-navy-game-cbs-extension/
+
 **Nobody Is Coming to Save Us**\
 `The fine artist and illustrator Oliver Jeffers on climate change, A.I. and the idea that maybe everything is pretty much our fault.`\
 https://nytimes.com/2024/12/09/special-series/oliver-jeffers-2024-reflections.html

@@ -1,3 +1,7 @@
+**Army-Navy game to remain on CBS through 2038**\
+`CBS has served as the home to the annual Army-Navy contest since 1996.`\
+https://nytimes.com/athletic/5981086/2024/12/09/army-navy-game-cbs-extension/
+
 **Nobody Is Coming to Save Us**\
 `The fine artist and illustrator Oliver Jeffers on climate change, A.I. and the idea that maybe everything is pretty much our fault.`\
 https://nytimes.com/2024/12/09/special-series/oliver-jeffers-2024-reflections.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980804/2024/12/09/chris-paul-spurs-nba-the-bounce/
 **Matea Gold Named Washington Editor of The New York Times**\
 `Ms. Gold, a managing editor at The Washington Post, is the latest in a series of high-profile departures from the paper.`\
 https://nytimes.com/2024/12/09/business/media/matea-gold-washington-editor-times.html
-
-**How Cole Palmer dominates games - whatever position he plays in**\
-`Palmer is a No 10 on paper, but he spends most of his time coming short and playing killer passes from deep`\
-https://nytimes.com/athletic/5980716/2024/12/09/cole-palmer-chelsea-panenka-penalty/
 
