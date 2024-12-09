@@ -1,3 +1,11 @@
+**Activists Call on Biden to Clear Death Row Before Trump Takes Office**\
+`In a series of open letters, human rights activists, former corrections officials and families of crime victims noted that President Biden had campaigned on opposing capital punishment.`\
+https://nytimes.com/2024/12/09/us/politics/biden-death-row-clemency-pardons.html
+
+**What I'm hearing on Jaromir Jagr, Penguins' interest in Nils Höglander and much more**\
+`On a potential return to Pittsburgh for Jagr, Höglander speculation, Tristan Jarry's resurgence and more.`\
+https://nytimes.com/athletic/5975637/2024/12/09/penguins-jaromir-jagr-nils-hoglander-nhl/
+
 **U.S. Investigating Child Labor Claim at HelloFresh Subsidiary**\
 `The Labor Department investigation focuses on a plant in Aurora, Ill., operated by Factor75, a meal kit delivery company that HelloFresh acquired in 2020.`\
 https://nytimes.com/2024/12/09/business/hello-fresh-child-labor.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/09/us/politics/alina-habba-trump-lawyer-counselor.ht
 **Heat Today: Miami is doing it again with Dru Smith**\
 `The Heat always seem to find reliable undrafted contributors to help them win. Here's the newest example.`\
 https://nytimes.com/athletic/5980974/2024/12/09/dru-smith-miami-heat-nba-jimmy-butler-tyler-herro-bam-adebayo/
-
-**Cowboys Today: Predictions vs. Bengals and why networks still want the Dallas Cowboys**\
-`The Bengals are 4-8, but Joe Burrow is third in the NFL in passing yards and first in TD passes. The Cowboys look for third win in a row.`\
-https://nytimes.com/athletic/5981281/2024/12/09/cowboys-bengals-predictions-tv-joe-burrow/
-
-**Live Updates: Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
-`A law enforcement officer said a suspect had been identified by someone who spotted him in a McDonald’s in Altoona, in western Pennsylvania.`\
-https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
 
