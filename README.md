@@ -1,3 +1,7 @@
+**Notre Dame and Indiana are finally getting to know each other in an unlikely place**\
+`Notre Dame and Indiana are in-state neighbors, but they haven't met since 1991. Now they'll meet in the first game of the expanded Playoff.`\
+https://nytimes.com/athletic/5980815/2024/12/09/notre-dame-indiana-playoff-freeman-cignetti/
+
 **‘The Daily’ podcast covers al-Assad’s fall.**\
 `By The Daily Team`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/the-daily-podcast-covers-al-assads-fall
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/world/middleeast/syria-displaced.html
 **The Athletic FC: Inside Ashworth's United exit, what now after Galaxy win MLS Cup?**\
 `Today in TAFC: Manchester United's u-turn on Ashworth five months after he joined, Galaxy win MLS Cup, assessing Chelsea's title propects`\
 https://nytimes.com/athletic/5980632/2024/12/09/manchester-united-ashworth-exit-galaxy-mls-cup/
-
-**Israel Claims Credit for al-Assad’s Ouster, but Sees Risk in His Absence**\
-`For Israel’s leaders, Bashar al-Assad’s downfall was made possible by their recent assaults on Hezbollah, Iran and Syria, all of which weakened the Iran-backed axis.`\
-https://nytimes.com/2024/12/09/world/middleeast/israel-assad-syria.html
 
