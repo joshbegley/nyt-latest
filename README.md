@@ -1,3 +1,15 @@
+**Assad’s Syria Was Brutal. Will What Comes Next Be Better?**\
+`It is hard not to worry that Syrians’ sense of deep relief today could be followed by a new set of horrors tomorrow.`\
+https://nytimes.com/2024/12/09/opinion/assad-syria-whats-next.html
+
+**‘The Creep Tapes’ Finale, Plus 6 Things to Watch on TV This Week**\
+`Mark Duplass reprises his serial killer role in a new series. And reality TV royalty, Paris Hilton and Nicole Richie, reunite.`\
+https://nytimes.com/2024/12/09/arts/television/creep-tapes-finale.html
+
+**She Won Over Italy. Now She’s Bringing Trumpism to Europe.**\
+`Giorgia Meloni is ready to be the bridge between Donald Trump and Europe.`\
+https://nytimes.com/2024/12/09/opinion/meloni-trump-europe.html
+
 **Bucks, Bobby Portis 'get it out the mud' in second half to escape with a win over Nets**\
 `With the offense stuck against Brooklyn, the Bucks found "better energy" in the fourth and got tough defense from an unlikely source.`\
 https://nytimes.com/athletic/5979645/2024/12/09/bucks-giannis-antetokounmpo-bobby-portis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5977124/2024/12/09/barcelonas-bench-is-not-deliveri
 **Crystal Palace have finally found their rhythm - eradicate errors and they can climb the table**\
 `Glasner's line-up is more settled and players are regaining their sharpness — now they can build`\
 https://nytimes.com/athletic/5967865/2024/12/09/crystal-palace-have-finally-found-their-rhythm/
-
-**Gary O'Neil needs to buy himself time by winning 'El Sackico' - but it may already be too late**\
-`Gary O'Neil and Julen Lopetegui face each other tonight in a battle for their jobs. Here's how things stand at Wolves`\
-https://nytimes.com/athletic/5975235/2024/12/09/gary-oneil-wolves-el-sackio-west-ham/
-
-**Lopetegui faces key game for West Ham future - this is the state of play**\
-`West Ham take on Wolverhampton Wanderers on Monday evening — a big game for Lopetegui's future at the club`\
-https://nytimes.com/athletic/5974187/2024/12/09/west-ham-julen-lopetegui-future/
-
-**Unai Emery relies on 'Super' John McGinn - he's integral to everything Aston Villa do**\
-`McGinn is Villa’s bellwether. At his best, hunched over and chest to the floor, he drives and presses the team upfield, cajoling the crowd`\
-https://nytimes.com/athletic/5940522/2024/12/09/aston-villa-john-mcginn-unai-emery/
 
