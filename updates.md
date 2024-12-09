@@ -1,3 +1,11 @@
+**Activists Call on Biden to Clear Death Row Before Trump Takes Office**\
+`In a series of open letters, human rights activists, former corrections officials and families of crime victims noted that President Biden had campaigned on opposing capital punishment.`\
+https://nytimes.com/2024/12/09/us/politics/biden-death-row-clemency-pardons.html
+
+**What I'm hearing on Jaromir Jagr, Penguins' interest in Nils Höglander and much more**\
+`On a potential return to Pittsburgh for Jagr, Höglander speculation, Tristan Jarry's resurgence and more.`\
+https://nytimes.com/athletic/5975637/2024/12/09/penguins-jaromir-jagr-nils-hoglander-nhl/
+
 **Live Updates: Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
 `A law enforcement officer said a suspect had been identified by someone who spotted him in a McDonald’s in Altoona, in western Pennsylvania.`\
 https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
