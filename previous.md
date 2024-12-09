@@ -1,3 +1,11 @@
+**For residents of the Golan Heights, events in Syria offer relief and uncertainty.**\
+`By Gabby Sobelman`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/golan-heights-syria
+
+**France’s First Big #MeToo Case Goes to Trial**\
+`The actress Adèle Haenel has accused the director Christophe Ruggia of grooming and sexually assaulting her when she was 12. If found guilty, he faces up to a decade in prison.`\
+https://nytimes.com/2024/12/09/france-metoo-adele-haenel.html
+
 **China Eases Overall Monetary Policy Stance for First Time in 14 Years**\
 `Faced with a faltering economy and falling prices, the Politburo loosened the policy approach of China’s central bank and called for “extraordinary” measures.`\
 https://nytimes.com/2024/12/09/business/china-monetary-policy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5980577/2024/12/09/chiefs-matthew-wright-doink-char
 **Patriots mailbag: Why should Jerod Mayo and Eliot Wolf keep their jobs?**\
 `In our latest Patriots mailbag, we take lots of questions on the futures of the head coach and the de facto general manager.`\
 https://nytimes.com/athletic/5966315/2024/12/09/patriots-mailbag-jerod-mayo-eliot-wolf/
-
-**Michigan eager to maintain late-season momentum: 3 thoughts on the matchup vs. Alabama**\
-`Michigan and Alabama have changed a lot since their game a year ago in Pasadena. That's why they are meeting in Tampa and not in the CFP.`\
-https://nytimes.com/athletic/5979715/2024/12/09/michigan-bowl-game-alabama/
-
-**Why Street Vendors Are Upset About a Ballot Measure**\
-`Proposition 2, which gives the Sanitation Department more authority to conduct sweeps of vendors, will hit immigrant vendors hard, an advocacy group said.`\
-https://nytimes.com/2024/12/09/nyregion/street-vendors-proposition-2.html
 

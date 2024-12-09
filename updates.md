@@ -1,3 +1,11 @@
+**For residents of the Golan Heights, events in Syria offer relief and uncertainty.**\
+`By Gabby Sobelman`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/golan-heights-syria
+
+**France’s First Big #MeToo Case Goes to Trial**\
+`The actress Adèle Haenel has accused the director Christophe Ruggia of grooming and sexually assaulting her when she was 12. If found guilty, he faces up to a decade in prison.`\
+https://nytimes.com/2024/12/09/france-metoo-adele-haenel.html
+
 **China Eases Overall Monetary Policy Stance for First Time in 14 Years**\
 `Faced with a faltering economy and falling prices, the Politburo loosened the policy approach of China’s central bank and called for “extraordinary” measures.`\
 https://nytimes.com/2024/12/09/business/china-monetary-policy.html
