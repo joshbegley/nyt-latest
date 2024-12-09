@@ -1,3 +1,19 @@
+**Rafa Mir is back playing, and scoring, for Valencia - 93 days after arrest on suspicion of sexual assault**\
+`Mir was arrested in September after allegations of sexual assault and is under investigation. He scored on comeback from injury last week`\
+https://nytimes.com/athletic/5972607/2024/12/09/rafa-mir-sexual-assault-case-valencia/
+
+**Chiefs clinch 9th straight AFC West title with gritty win vs. Chargers**\
+`Patrick Mahomes faced an onslaught of hits from a relentless Chargers defense but his effort made the difference in the Chiefs 19-17 win.`\
+https://nytimes.com/athletic/5980005/2024/12/09/chiefs-chargers-snf-score-result-takeaways/
+
+**Mikel Arteta wants Arsenal to be 'kings of everything' - but their rivals create more in open play**\
+`Arsenal are brilliant from set pieces, that is undeniable. But again, this time against Fulham, they struggled to create clear chances`\
+https://nytimes.com/athletic/5977795/2024/12/09/arsenal-open-play-chance-creation-fulham/
+
+**Fulham’s tactics have troubled Manchester City and Arsenal. It's Liverpool next**\
+`Marco Silva’s well-drilled side will have a serious test on Saturday away at Liverpool for, on paper at least, Fulham’s toughest game so far`\
+https://nytimes.com/athletic/5978417/2024/12/09/marco-silva-fulham-tactics-arsenal/
+
 **How Puka Nacua, Matthew Stafford, Kyren Williams and Cooper Kupp fueled win over Bills**\
 `The Rams play each of their NFC West opponents in three of their last four regular-season games starting with the 49ers on Thursday.`\
 https://nytimes.com/athletic/5980191/2024/12/09/rams-puka-nacua-matthew-stafford-playoffs-bills/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/09/business/britain-jobs-data.html
 **The Art of the Gift: Kristen Arnett**\
 `The author keeps a list on her phone of gift ideas. “During the year, if someone close to me mentioned something that they really like or really want, I put a note in right then.”`\
 https://nytimes.com/2024/12/09/style/kristen-arnett-holidays-gifts.html
-
-**NFL playoff picture, Week 14: Bucs reclaim NFC South lead; Eagles clinch playoff berth**\
-`Miami stayed in the hunt with its OT victory over the Jets, while the Rams' upset of the Bills puts them one game back of Washington. `\
-https://nytimes.com/athletic/5966559/2024/12/08/nfl-playoff-picture-week-14/
-
-**Bills defense's woeful performance stunts comeback effort vs. Rams**\
-`The Bills imploded on defense and are likely to see another team like the Rams this season.`\
-https://nytimes.com/athletic/5980080/2024/12/08/bills-loss-defense-rams/
-
-**Rams' wild win over Bills shows they can be a problem — if they make the playoffs**\
-`Cooper Kupp: “We already knew it was just a matter of time, as a team, that we could put it all together."`\
-https://nytimes.com/athletic/5980179/2024/12/08/rams-win-bills-playoffs/
-
-**Braves' Alex Anthopoulos says luxury tax won't stop team from making moves**\
-`Anthopoulos said: "The tax and things like that, it's just a math equation. ... You just account for it."`\
-https://nytimes.com/athletic/5980071/2024/12/08/braves-winter-meetings-alex-anthopoulos/
 
