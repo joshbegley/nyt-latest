@@ -1,3 +1,11 @@
+**NFC West-leading Seahawks pick up 30-18 win over Cardinals: Takeaways**\
+`The Seahawks are rolling heading into another big game with the Packers coming to town in Week 15.`\
+https://nytimes.com/athletic/5978231/2024/12/08/seahawks-cardinals-score-result-takeaways/
+
+**No George Pickens, no problem for Steelers as 'complementary' mindset prevails**\
+`The Steelers' offense started slowly without Pickens, but the whole team finished strong, showing the loss in Cleveland was just a hiccup.`\
+https://nytimes.com/athletic/5979544/2024/12/08/steelers-win-george-pickens-russell-wilson-browns/
+
 **No George Pickens, no problem for Steelers, as 'complementary' mindset prevails**\
 `The Steelers' offense started slowly without Pickens, but the whole team finished strong, showing the loss in Cleveland was just a hiccup.`\
 https://nytimes.com/athletic/5979544/2024/12/08/steelers-win-george-pickens-russell-wilson-browns/
