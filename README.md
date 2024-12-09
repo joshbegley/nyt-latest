@@ -1,3 +1,7 @@
+**A Contemporary Music Festival Trolls for Aesthetics’ Sake**\
+`The directors of the London Contemporary Music Festival discuss this year’s edition, the event’s 10th anniversary.`\
+https://nytimes.com/2024/12/09/arts/music/london-contemporary-music-festival.html
+
 **Elaine May Makes a Rare Appearance to Talk About ‘Mikey and Nicky’**\
 `At a screening of the gangster tale starring Peter Falk and John Cassavetes, the director recalls her battle with Paramount to get the film released.`\
 https://nytimes.com/2024/12/09/movies/elaine-may-mikey-and-nicky.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981498/2024/12/09/mets-juan-soto-contract-payroll/
 **USMNT Player Tracker: Captain Robinson, Ledezma's rocket and Kochen extends Barcelona stay**\
 `Malik Tillman was also on the scoresheet as PSV ran riot against Twente, and features in our roundup from the weekend action`\
 https://nytimes.com/athletic/5980997/2024/12/09/usmnt-robinson-ledezma-kochen-tracker/
-
-**Ratcliffe's brand of ruthless ambition risks more errors like Ashworth's short Man United reign**\
-`Ratcliffe seems more determined to “fix” Manchester United than the Glazers have ever done but his record in football is proving... mediocre`\
-https://nytimes.com/athletic/5981142/2024/12/09/ratcliffe-ashworth-manchester-united-error/
 
