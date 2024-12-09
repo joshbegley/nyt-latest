@@ -1,3 +1,15 @@
+**Josh Allen's historic day not enough to overcome numerous Bills gaffes**\
+`The Bills defense had a brutal day against the physical Rams.`\
+https://nytimes.com/athletic/5980173/2024/12/09/josh-allen-history-rams-bills/
+
+**'What a hit, son! What a hit!': Gerrard's Olympiacos goal, 20 years on**\
+`It was the former Liverpool captain's most important goal for the club - those who were there share memories of a special Anfield night`\
+https://nytimes.com/athletic/5969286/2024/12/09/steven-gerrard-liverpool-olympiacos-20-years/
+
+**Fantasy football Week 14 takeaways: Puka Nacua is Anquan Boldin 2.0; Sam Darnold is going to get paid**\
+`Among his Week 14 takes, Michael Salfino worries about the punishment Puka Nacua takes, but his style reminds him of Anquan Boldin.`\
+https://nytimes.com/athletic/5979403/2024/12/09/fantasy-football-week-14-takeaways-nacua-darnold/
+
 **Tottenham sacking Ange Postecoglou now would be a mistake**\
 `Tottenham fell to a defeat against Chelsea and have struggled this season — but it is not time to make a change`\
 https://nytimes.com/athletic/5978853/2024/12/09/tottenham-ange-postecoglou-future/
