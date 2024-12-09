@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5980974/2024/12/09/dru-smith-miami-heat-nba-jimmy-b
 https://nytimes.com/athletic/5981281/2024/12/09/cowboys-bengals-predictions-tv-joe-burrow/
 
 **Live Updates: Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
-`A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona, in western Pennsylvania.`\
+`A law enforcement officer said a suspect had been identified by someone who spotted him in a McDonald’s in Altoona, in western Pennsylvania.`\
 https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
 

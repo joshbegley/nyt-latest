@@ -1,3 +1,7 @@
+**Live Updates: Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
+`A law enforcement officer said a suspect had been identified by someone who spotted him in a McDonald’s in Altoona, in western Pennsylvania.`\
+https://nytimes.com/live/2024/12/09/nyregion/uhc-ceo-murder-suspect
+
 **U.S. Investigating Child Labor Claim at HelloFresh Subsidiary**\
 `The Labor Department investigation focuses on a plant in Aurora, Ill., operated by Factor75, a meal kit delivery company that HelloFresh acquired in 2020.`\
 https://nytimes.com/2024/12/09/business/hello-fresh-child-labor.html
