@@ -1,3 +1,7 @@
+**Kawhi Leonard appears to be nearing return at a perfect time in Clippers schedule**\
+`The Clippers get some breaks in the grind over the next month, and signals strongly point to Leonard approaching his season debut.`\
+https://nytimes.com/athletic/5980610/2024/12/09/kawhi-leonard-return-clippers/
+
 **Dries Van Noten Names a New Dries Van Noten**\
 `Julian Klausner, who has been head of its women’s studio, is stepping into the founder’s shoes.`\
 https://nytimes.com/2024/12/09/style/dries-van-noten-new-designer-julian-klausner.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978475/2024/12/09/edmonton-oilers-defence-depth-ch
 **The really bad news for Tottenham: Things will get worse before they get better**\
 `The combination of growing injury problems and a relentless fixture schedule is a particularly challenging one for Ange Postecoglou`\
 https://nytimes.com/athletic/5979282/2024/12/09/tottenham-squad-injuries-postecoglou/
-
-**WSL Briefing: Brighton press unsettles Chelsea, Manchester United shut out the noise**\
-`The intensity of the weekend's WSL schedule was matched by that of the matches, the best of which saw Brighton give Chelsea a scare`\
-https://nytimes.com/athletic/5979371/2024/12/09/wsl-briefing-chelsea-brighton-manchester-united/
 
