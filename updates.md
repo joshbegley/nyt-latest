@@ -1,3 +1,19 @@
+**Trump Wants to Abolish Birthright Citizenship. Can He Do So?**\
+`The president-elect has revived his wish to do away with automatic citizenship for anyone born in the United States. The Constitution stands in his way.`\
+https://nytimes.com/article/trump-birthright-citizenship-constitution.html
+
+**How Netflix Made Magic Look Real in ‘One Hundred Years of Solitude’**\
+`The first-ever screen adaptation will be released this week — a feat even the author didn’t think possible. We traveled to the set in Colombia to see how it was done.`\
+https://nytimes.com/interactive/2024/12/09/books/one-hundred-years-of-solitude-netflix-magical-realism.html
+
+**Senator Grassley joins Trump in attacking the F.B.I. director.**\
+`By Maya C. Miller`\
+https://nytimes.com/live/2024/12/09/us/trump-news/senator-grassley-joins-trump-in-attacking-the-fbi-director
+
+**Jay-Z Sued Lawyer As a ‘Celebrity’ John Doe Before Assault Accusation**\
+`Lawyers for the rapper accused Tony Buzbee of attempting to “extort exorbitant sums” from him by making false assault claims.`\
+https://nytimes.com/2024/12/09/arts/music/jay-z-diddy-lawsuit-buzbee.html
+
 **Hunt for C.E.O.’s Killer Leads to Arrest in Pennsylvania**\
 `Luigi Mangione was arrested after a tip from a McDonald’s in Altoona. The police said they found him with fake identification and a gun that matched the assassin’s.`\
 https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-ceo-suspect-arrest-altoona.html
