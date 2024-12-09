@@ -1,3 +1,11 @@
+**The Call**\
+`One call to a very unusual hotline, and everything that followed.`\
+https://nytimes.com/2024/12/08/podcasts/the-call-this-american-life-nyt-audio.html
+
+**Chris Paul moves into second on NBA all-time assists list**\
+`Paul entered Sunday averaging 10.4 points, 8.5 assists and 3.9 rebounds through his first 23 games with the Spurs. `\
+https://nytimes.com/athletic/5979337/2024/12/08/chris-paul-assists-nba/
+
 **Falcons' problems go beyond Kirk Cousins: 'Nobody coming to save us'**\
 `The Falcons lost their fourth straight game and now trail Tampa Bay by one game in the NFC South.`\
 https://nytimes.com/athletic/5979364/2024/12/08/falcons-problems-kirk-cousins-vikings/
