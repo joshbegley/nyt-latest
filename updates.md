@@ -1,3 +1,15 @@
+**Assad’s Syria Was Brutal. Will What Comes Next Be Better?**\
+`It is hard not to worry that Syrians’ sense of deep relief today could be followed by a new set of horrors tomorrow.`\
+https://nytimes.com/2024/12/09/opinion/assad-syria-whats-next.html
+
+**‘The Creep Tapes’ Finale, Plus 6 Things to Watch on TV This Week**\
+`Mark Duplass reprises his serial killer role in a new series. And reality TV royalty, Paris Hilton and Nicole Richie, reunite.`\
+https://nytimes.com/2024/12/09/arts/television/creep-tapes-finale.html
+
+**She Won Over Italy. Now She’s Bringing Trumpism to Europe.**\
+`Giorgia Meloni is ready to be the bridge between Donald Trump and Europe.`\
+https://nytimes.com/2024/12/09/opinion/meloni-trump-europe.html
+
 **Bucks, Bobby Portis 'get it out the mud' in second half to escape with a win over Nets**\
 `With the offense stuck against Brooklyn, the Bucks found "better energy" in the fourth and got tough defense from an unlikely source.`\
 https://nytimes.com/athletic/5979645/2024/12/09/bucks-giannis-antetokounmpo-bobby-portis/
