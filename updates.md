@@ -1,3 +1,27 @@
+**Footage shows a chaotic scene after rebels capture a notorious prison.**\
+`By Haley Willis and Dmitriy Khavin`\
+https://nytimes.com/live/2024/12/08/world/syria-war-damascus/footage-shows-a-chaotic-scene-after-rebels-capture-a-notorious-prison
+
+**Panthers lose on Xavier Legette's drop, but Bryce Young resurgence rolls on**\
+`"Those are the plays that we’ve just gotta find a way to make to get back in the winning column,” Panthers coach Dave Canales said.`\
+https://nytimes.com/athletic/5979385/2024/12/08/panthers-xavier-legette-drop-bryce-young-eagles/
+
+**49ers end 3-game slide by dominating Bears 38-13: Takeaways**\
+`The 49ers returned to form on both sides of the ball Sunday, led by a season-high 151 receiving yards from George Kittle.`\
+https://nytimes.com/athletic/5978265/2024/12/08/bears-49ers-score-result-takeaways/
+
+**Raiders 'still believe' after 9th straight loss and another crushing injury**\
+`There was a thought the Raiders needed a couple more wins to save Antonio Pierce's job. Does Aidan O'Connell's injury change that? `\
+https://nytimes.com/athletic/5979440/2024/12/08/raiders-loss-aidan-oconnell-buccaneers/
+
+**Dick Allen, Dave Parker elected to Baseball Hall of Fame by era committee**\
+`The Hall welcomed two dominant sluggers to its gallery on Sunday, with Allen and Parker gaining election through an era committee vote.`\
+https://nytimes.com/athletic/5979358/2024/12/08/dick-allen-dave-parker-baseball-hall-of-fame/
+
+**The Call**\
+`One call to a very unusual hotline, and everything that followed.`\
+https://nytimes.com/2024/12/08/podcasts/the-call-this-american-life-nyt-audio.html
+
 **In race for No. 1 NFL Draft pick, two teams are favorites in Week 14**\
 `Jacksonville's win Sunday makes the battle for first overall a two-team race between the New York Giants and Las Vegas Raiders.`\
 https://nytimes.com/athletic/5978876/2024/12/08/race-to-no-1-draft-pick-nfl/
