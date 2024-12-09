@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: Teams ponder tough dilemmas in NBA's bye week**\
+`With minimal games this week, it's time for on-court practices, a little rest and some self-reflections.`\
+https://nytimes.com/athletic/5980440/2024/12/09/nba-bye-week-lakers-sixers-yves-missi-pelicans/
+
 **After N.R.A.’s Supreme Court Win, a Dispute Over Key Facts**\
 `The Supreme Court’s ruling in favor of the N.R.A. in May hinged on a secret meeting involving a New York regulator. The participants say it didn’t happen.`\
 https://nytimes.com/2024/12/09/us/nra-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981400/2024/12/09/becki-tweed-angel-city/
 **Realtors’ Nonprofit Is Politically Motivated, Some Say**\
 `The National Association of Realtors has created a nonprofit that gives more heavily to one side of the political aisle and to groups that have little to do with real estate and housing.`\
 https://nytimes.com/2024/12/09/realestate/nar-real-estate-politics.html
-
-**Who Is Alina Habba, the Lawyer Trump Picked to Serve as Counselor to the President?**\
-`Ms. Habba, who has advised the president-elect on legal matters in recent years, offered fiery defenses of him during his civil fraud trial in New York.`\
-https://nytimes.com/2024/12/09/us/politics/alina-habba-trump-lawyer-counselor.html
 
