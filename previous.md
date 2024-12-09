@@ -1,3 +1,11 @@
+**NHL trade grades: Mackenzie Blackwood is Avalanche's latest bet to improve goaltending**\
+`A Blackwood-Wedgewood crease may not be the flashiest, but it’s a solid upgrade for the Avalanche.`\
+https://nytimes.com/athletic/5982153/2024/12/09/nhl-trade-grades-avalanche-sharks-mackenzie-blackwood/
+
+**58 Jazz Luminaries Assembled for This Photo. Only One Remains.**\
+`Art Kane’s “Harlem 1958” gathered giants of the music. Sonny Rollins, 94, looks back at the historic picture.`\
+https://nytimes.com/interactive/2024/12/09/arts/music/harlem-jazz-sonny-rollins.html
+
 **Thompson: Draymond Green's loud dunk put the Wolves to bed — and maybe woke the Warriors**\
 `SAN FRANCISCO — This &#8220;Night! Night!&#8221; celebration had some Saginaw swag on it.`\
 https://nytimes.com/athletic/5982066/2024/12/09/golden-state-warriors-draymond-green-dunk-timberwolves/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/09/world/middleeast/israel-hamas-cease-fire-talks.ht
 **Wayne Gretzky on Alex Ovechkin's pursuit of goals record: 'He'll get a little bit nervous near the end'**\
 `Ovechkin is 26 goals shy of Gretzky's total of 894 and should have 48 to 52 games left this regular season when he returns from injury.`\
 https://nytimes.com/athletic/5982121/2024/12/09/wayne-gretzky-alex-ovechkin-goals-record/
-
-**Tuesday Briefing: Syrian Rebels Rush to Establish Order**\
-`Plus, a lawsuit for trans rights in China.`\
-https://nytimes.com/2024/12/09/briefing/syria-haiti-france-trial.html
-
-**What's the fallout for SEC scheduling after this year's Playoff selections?**\
-`A look at where things stand within the SEC on scheduling after this year's College Football Playoff announcement.`\
-https://nytimes.com/athletic/5981930/2024/12/09/college-football-playoff-sec-schedules/
 
