@@ -1,3 +1,7 @@
+**Josh Allen's best-ever QB fantasy performance and those he surpassed**\
+`Josh Allen had the best-ever fantasy performance by a QB in the history of the NFL. Comparing the other four QBs since 2004 who came close.`\
+https://nytimes.com/athletic/5982189/2024/12/09/josh-allen-best-ever-qb-nfl-fantasy-football-performance/
+
 **‘Person of Interest’ in C.E.O. Shooting Has Background in Games Industry**\
 `Luigi Mangione was passionate about game development and programming from a young age, teaching himself to code in high school.`\
 https://nytimes.com/2024/12/09/nyregion/uhc-suspect-video-games.html
