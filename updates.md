@@ -1,3 +1,15 @@
+**Explosion at Fuel Depot Near Florence Kills at Least Two**\
+`Officials said it would take time to determine the cause of the explosion. At least nine people were injured in the blast.`\
+https://nytimes.com/2024/12/09/world/europe/florence-fuel-depot-explosion.html
+
+**The Bounce: Chris Paul makes more NBA history, climbs assist charts**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5980804/2024/12/09/chris-paul-spurs-nba-the-bounce/
+
+**Matea Gold Named Washington Editor of The New York Times**\
+`Ms. Gold, a managing editor at The Washington Post, is the latest in a series of high-profile departures from the paper.`\
+https://nytimes.com/2024/12/09/business/media/matea-gold-washington-editor-times.html
+
 **How Cole Palmer dominates games - whatever position he plays in**\
 `Palmer is a No 10 on paper, but he spends most of his time coming short and playing killer passes from deep`\
 https://nytimes.com/athletic/5980716/2024/12/09/cole-palmer-chelsea-panenka-penalty/
