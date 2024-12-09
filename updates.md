@@ -1,3 +1,7 @@
+**Fans are fed up with Giants 'dumpster fire.' What will John Mara do once miserable season ends?**\
+`Mara doesn't want to make drastic changes, but off-field embarrassments like the plane stunt could push the team co-owner to do just that. `\
+https://nytimes.com/athletic/5979557/2024/12/08/giants-loss-john-mara-saints-plane-banner/
+
 **Quotation of the Day: Flying at Extremes May Hurt Navy Pilots’ Brains**\
 `Quotation of the Day for Monday, December 9, 2024.`\
 https://nytimes.com/2024/12/08/pageoneplus/quotation-of-the-day-flying-at-extremes-may-hurt-navy-pilots-brains.html
