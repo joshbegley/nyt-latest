@@ -1,3 +1,15 @@
+**Are the Celtics the same team as last season? Not quite and here's why**\
+`The Celtics brought back the same roster, but here are three ways they are different.`\
+https://nytimes.com/athletic/5978899/2024/12/09/celtics-change-season/
+
+**Ranking the 10 best non-CFP bowl games: Why Alabama-Michigan isn’t No. 1**\
+`All eyes will be on the College Football Playoff, but there are still plenty of intriguing bowl games. Here's a look at the 10 best. `\
+https://nytimes.com/athletic/5979437/2024/12/09/non-college-football-playoff-bowl-games/
+
+**How Patrick Mahomes, Chiefs pulled off another magic act, complete with a doink**\
+`In another weird ending, this one including a successful doink, the Chiefs have won 15 consecutive victories in games decided by one score.`\
+https://nytimes.com/athletic/5980577/2024/12/09/chiefs-matthew-wright-doink-chargers/
+
 **Patriots mailbag: Why should Jerod Mayo and Eliot Wolf keep their jobs?**\
 `In our latest Patriots mailbag, we take lots of questions on the futures of the head coach and the de facto general manager.`\
 https://nytimes.com/athletic/5966315/2024/12/09/patriots-mailbag-jerod-mayo-eliot-wolf/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/09/opinion/environment-nature-hope.html
 **How Can I Make Corduroy Look Cool?**\
 `A reader seeks advice on how to style corduroy in a modern fashion. Our critic offers guidance on wearing the highly versatile fabric.`\
 https://nytimes.com/2024/12/09/style/corduroy-cords-winter-fashion.html
-
-**Should Lessons Based on the Bible Be Taught in Public Schools?**\
-`Texas has become the latest state to bring Christianity into the classroom. What is your reaction?`\
-https://nytimes.com/2024/12/09/learning/should-lessons-based-on-the-bible-be-taught-in-public-schools.html
-
-**Pardon You**\
-`Who among us deserves a get-out-of-jail-free card?`\
-https://nytimes.com/2024/12/09/opinion/biden-pardon-trump-cheney.html
-
-**The Killings of Young Mothers**\
-`For women under 25, getting pregnant more than doubles their risk of homicide.`\
-https://nytimes.com/interactive/2024/12/09/opinion/pregnant-women-homicide.html
 
