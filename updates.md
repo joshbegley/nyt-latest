@@ -1,3 +1,15 @@
+**Iran’s Very Bad Year**\
+`We explain the country’s annus horribilis.`\
+https://nytimes.com/2024/12/09/briefing/irans-very-bad-year.html
+
+**Another Twins low-key winter is here. Where they stand as the Winter Meetings begin**\
+`The Twins receiving the type of value they’d seek for Carlos Correa in a trade seems unlikely. So what else might they do?`\
+https://nytimes.com/athletic/5978906/2024/12/09/minnesota-twins-winter-meetings-trades/
+
+**How did Juan Soto become Juan Soto?**\
+`Soto went from a low signing bonus as an international amateur to the richest contract in sports history. `\
+https://nytimes.com/athletic/5938159/2024/12/09/how-did-juan-soto-become-juan-soto/
+
 **Is there reason to believe this season will be different for Indiana and Mike Woodson?**\
 `After missing the NCAA Tournament last season and with IU threatening to become a football school, can Woodson restore positive momentum?`\
 https://nytimes.com/athletic/5978844/2024/12/09/indiana-basketball-mike-woodson-coach/

@@ -1,3 +1,15 @@
+**Iran’s Very Bad Year**\
+`We explain the country’s annus horribilis.`\
+https://nytimes.com/2024/12/09/briefing/irans-very-bad-year.html
+
+**Another Twins low-key winter is here. Where they stand as the Winter Meetings begin**\
+`The Twins receiving the type of value they’d seek for Carlos Correa in a trade seems unlikely. So what else might they do?`\
+https://nytimes.com/athletic/5978906/2024/12/09/minnesota-twins-winter-meetings-trades/
+
+**How did Juan Soto become Juan Soto?**\
+`Soto went from a low signing bonus as an international amateur to the richest contract in sports history. `\
+https://nytimes.com/athletic/5938159/2024/12/09/how-did-juan-soto-become-juan-soto/
+
 **Is there reason to believe this season will be different for Indiana and Mike Woodson?**\
 `After missing the NCAA Tournament last season and with IU threatening to become a football school, can Woodson restore positive momentum?`\
 https://nytimes.com/athletic/5978844/2024/12/09/indiana-basketball-mike-woodson-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5980543/2024/12/09/seahawks-mike-macdonald-ernest-j
 **What we're hearing about the Cubs on Day 1 of the Winter Meetings**\
 `A lot of what the Cubs will do at the Winter Meetings hinges on whether they decide to keep Cody Bellinger or trade him.`\
 https://nytimes.com/athletic/5979872/2024/12/09/cubs-winter-meetings-cody-bellinger/
-
-**As the transfer portal opens, here's where Wisconsin stands and may seek to add players**\
-`“You just leave no stone unturned,” Wisconsin director of recruiting Pat Lambert said. “You just know what you have to address."`\
-https://nytimes.com/athletic/5978064/2024/12/09/wisconsin-football-transfer-portal-needs-breakdown/
-
-**Blackhawks tiers of holiday joy and misery — from Frank Nazar to Connor Bedad to CHSN**\
-`Here are some reasons to be excited and disappointed about the Blackhawks — assuming you can watch them.`\
-https://nytimes.com/athletic/5972433/2024/12/09/blackhawks-nhl-connor-bedard-frank-nazar-chsn/
-
-**Josh Jacobs proving Packers were right to replace Aaron Jones with him**\
-`Jacobs has established himself once again as a premier running back in the NFL in his first year with Green Bay, `\
-https://nytimes.com/athletic/5979575/2024/12/09/josh-jacobs-packers-free-agent-aaron-jones/
 
