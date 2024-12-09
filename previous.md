@@ -1,3 +1,7 @@
+**For the Jets, anything that can go wrong will go wrong — and Garrett Wilson is sick of it**\
+`Another come-from-ahead loss, this one in Miami, has the star receiver's frustration at a boiling point.`\
+https://nytimes.com/athletic/5979458/2024/12/08/jets-loss-dolphins-garrett-wilson-contract/
+
 **Sam Darnold's 'special' performance vs. Falcons thrusts him into MVP discussion**\
 `Darnold outplays Kirk Cousins, throwing for 347 yards and five touchdowns in Vikings' 42-21 dismantling of Falcons.`\
 https://nytimes.com/athletic/5979570/2024/12/08/vikings-win-sam-darnold-mvp-discussion-falcons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978250/2024/12/08/bills-rams-score-result-takeaway
 **NFC West-leading Seahawks pick up 30-18 win over Cardinals: Takeaways**\
 `The Seahawks are rolling heading into another big game with the Packers coming to town in Week 15.`\
 https://nytimes.com/athletic/5978231/2024/12/08/seahawks-cardinals-score-result-takeaways/
-
-**No George Pickens, no problem for Steelers as 'complementary' mindset prevails**\
-`The Steelers' offense started slowly without Pickens, but the whole team finished strong, showing the loss in Cleveland was just a hiccup.`\
-https://nytimes.com/athletic/5979544/2024/12/08/steelers-win-george-pickens-russell-wilson-browns/
 

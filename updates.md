@@ -1,3 +1,7 @@
+**For the Jets, anything that can go wrong will go wrong — and Garrett Wilson is sick of it**\
+`Another come-from-ahead loss, this one in Miami, has the star receiver's frustration at a boiling point.`\
+https://nytimes.com/athletic/5979458/2024/12/08/jets-loss-dolphins-garrett-wilson-contract/
+
 **Sam Darnold's 'special' performance vs. Falcons thrusts him into MVP discussion**\
 `Darnold outplays Kirk Cousins, throwing for 347 yards and five touchdowns in Vikings' 42-21 dismantling of Falcons.`\
 https://nytimes.com/athletic/5979570/2024/12/08/vikings-win-sam-darnold-mvp-discussion-falcons/
