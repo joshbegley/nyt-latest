@@ -1,3 +1,19 @@
+**USMNT Player Tracker: Captain Robinson, Ledezma's rocket and Kochen extends Barcelona stay**\
+`Malik Tillman was also on the scoresheet as PSV ran riot against Twente, and features in our roundup from the weekend action`\
+https://nytimes.com/athletic/5980997/2024/12/09/usmnt-robinson-ledezma-kochen-tracker/
+
+**Ratcliffe's brand of ruthless ambition risks more errors like Ashworth's short Man United reign**\
+`Ratcliffe seems more determined to “fix” Manchester United than the Glazers have ever done but his record in football is proving... mediocre`\
+https://nytimes.com/athletic/5981142/2024/12/09/ratcliffe-ashworth-manchester-united-error/
+
+**Angel City FC parts ways with head coach Becki Tweed**\
+`Tweed joined initially as an assistant coach in 2023 and was promoted to interim head coach midway through that season.`\
+https://nytimes.com/athletic/5981400/2024/12/09/becki-tweed-angel-city/
+
+**Realtors’ Nonprofit Is Politically Motivated, Some Say**\
+`The National Association of Realtors has created a nonprofit that gives more heavily to one side of the political aisle and to groups that have little to do with real estate and housing.`\
+https://nytimes.com/2024/12/09/realestate/nar-real-estate-politics.html
+
 **Who Is Alina Habba, the Lawyer Trump Picked to Serve as Counselor to the President?**\
 `Ms. Habba, who has advised the president-elect on legal matters in recent years, offered fiery defenses of him during his civil fraud trial in New York.`\
 https://nytimes.com/2024/12/09/us/politics/alina-habba-trump-lawyer-counselor.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5981209/2024/12/09/chris-paul-spurs-assists-nba-mil
 **Investigators of C.E.O.’s Killing Are Questioning a Man in Pennsylvania**\
 `A law enforcement officer said a suspect had been identified by someone who spotted him in a restaurant in Altoona.`\
 https://nytimes.com/2024/12/09/nyregion/uhc-ceo-murder-suspect.html
-
-**The Windup: Inside Juan Soto’s $765M megadeal**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/5981444/2024/12/09/juan-soto-mets-contract-the-windup/
-
-**USYNT goalkeeper Kochen signs new Barcelona deal**\
-`United States youth international Diego Kochen has signed a new contract at Barcelona that runs until 2028.`\
-https://nytimes.com/athletic/5980983/2024/12/09/diego-kochen-barcelona-contract/
-
-**Central Michigan tabs Army assistant Matt Drinkall as next head coach**\
-`Before his six-year stint as an Army assistant, Drinkall compiled a 42-17 record as the head coach at Kansas Wesleyan from 2014-18.`\
-https://nytimes.com/athletic/5981464/2024/12/09/central-michigan-head-coach-matt-drinkall-2/
-
-**Daniel Penny Is Acquitted in Death of Jordan Neely on Subway**\
-`Mr. Penny choked Mr. Neely in a minutes-long struggle on the floor of an F train. The case reflected the pathologies of post-pandemic New York.`\
-https://nytimes.com/2024/12/09/nyregion/daniel-penny-not-guilty-jordan-neely.html
 
