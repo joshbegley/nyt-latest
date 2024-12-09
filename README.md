@@ -1,3 +1,11 @@
+**Juan Soto to join New York Mets on 15-year, $765 million megadeal: Source**\
+`Soto, still just 26 years old, becomes the highest-paid player in baseball, eclipsing the contract of Shohei Ohtani.`\
+https://nytimes.com/athletic/5932790/2024/12/08/juan-soto-mets-free-agent-deal/
+
+**Coaching change can't cover up the truth: The Bears are a mess**\
+`There was no interim coach "bump" for the Bears on Sunday. They got embarrassed by the 49ers, losing their seventh straight game.`\
+https://nytimes.com/athletic/5979909/2024/12/08/bears-problems-thomas-brown-49ers/
+
 **Dodgers to sign outfielder Michael Conforto to 1-year, $17 million deal**\
 `Adding Conforto gives the Dodgers at least some short-term stability for an outfield that was set to become much younger next season.`\
 https://nytimes.com/athletic/5980008/2024/12/08/dodgers-sign-michael-conforto-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5979557/2024/12/08/giants-loss-john-mara-saints-pla
 **Quotation of the Day: Flying at Extremes May Hurt Navy Pilots’ Brains**\
 `Quotation of the Day for Monday, December 9, 2024.`\
 https://nytimes.com/2024/12/08/pageoneplus/quotation-of-the-day-flying-at-extremes-may-hurt-navy-pilots-brains.html
-
-**Eagles express frustration with passing game after win against Panthers**\
-`Players on offense say they're not on the same page and don't have answers.`\
-https://nytimes.com/athletic/5978439/2024/12/08/eagles-win-passing-game-panthers/
-
-**Jay-Z, Accused in Suit of Raping Minor with Sean Combs, Calls It Blackmail**\
-`The entertainer said the suit, which accuses him of assaulting an unnamed 13-year-old girl in 2000, was an effort to gain settlement money by putting forward “idiotic” claims.`\
-https://nytimes.com/2024/12/08/arts/jay-z-accused-in-suit-of-raping-minor-with-sean-combs-calls-it-blackmail.html
 
