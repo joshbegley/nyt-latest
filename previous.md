@@ -1,3 +1,7 @@
+**Do You Know These Winter Holidays and Popular Books of the Season?**\
+`Celebrate the literature of this festive month with with a five-question quiz that comes with its own reading list.`\
+https://nytimes.com/interactive/2024/12/09/books/review/winter-holiday-books.html
+
 **Army-Navy game to remain on CBS through 2038**\
 `CBS has served as the home to the annual Army-Navy contest since 1996.`\
 https://nytimes.com/athletic/5981086/2024/12/09/army-navy-game-cbs-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/world/europe/florence-fuel-depot-explosion.html
 **The Bounce: Chris Paul makes more NBA history, climbs assist charts**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5980804/2024/12/09/chris-paul-spurs-nba-the-bounce/
-
-**Matea Gold Named Washington Editor of The New York Times**\
-`Ms. Gold, a managing editor at The Washington Post, is the latest in a series of high-profile departures from the paper.`\
-https://nytimes.com/2024/12/09/business/media/matea-gold-washington-editor-times.html
 

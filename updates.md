@@ -1,3 +1,7 @@
+**Do You Know These Winter Holidays and Popular Books of the Season?**\
+`Celebrate the literature of this festive month with with a five-question quiz that comes with its own reading list.`\
+https://nytimes.com/interactive/2024/12/09/books/review/winter-holiday-books.html
+
 **Army-Navy game to remain on CBS through 2038**\
 `CBS has served as the home to the annual Army-Navy contest since 1996.`\
 https://nytimes.com/athletic/5981086/2024/12/09/army-navy-game-cbs-extension/
