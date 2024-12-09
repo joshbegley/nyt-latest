@@ -1,8 +1,12 @@
+**Explosion at Fuel Depot Near Florence Kills at Least Two**\
+`Officials said it would take time to determine the cause of the explosion. At least nine people were injured in the blast.`\
+https://nytimes.com/2024/12/09/world/europe/florence-fuel-depot-explosion.html
+
 **The Bounce: Chris Paul makes more NBA history, climbs assist charts**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5980804/2024/12/09/chris-paul-spurs-nba-the-bounce/
 
-**Matea Gold Named Washington Editor of The Times**\
+**Matea Gold Named Washington Editor of The New York Times**\
 `Ms. Gold, a managing editor at The Washington Post, is the latest in a series of high-profile departures from the paper.`\
 https://nytimes.com/2024/12/09/business/media/matea-gold-washington-editor-times.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975620/2024/12/09/college-basketball-top-25-auburn
 **Pulisic sidelined until 2025 with calf muscle tear**\
 `USMNT and Milan forward Christian Pulisic is set to be sidelined until early January after sustaining a minor tear to a muscle in his right calf.`\
 https://nytimes.com/athletic/5980722/2024/12/09/christian-pulisic-injury-update-milan/
-
-**Blues mailbag, part 1: Bannister's raw deal, praise for Kyrou and Thomas' 4 Nations snub**\
-`As the Blues wrap up a four-game road trip, let's answer some of the questions fans are curious about in part 1 of the mailbag.`\
-https://nytimes.com/athletic/5976432/2024/12/09/blues-nhl-bannister-kyrou-thomas-4-nations/
 
