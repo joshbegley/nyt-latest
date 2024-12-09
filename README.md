@@ -1,3 +1,11 @@
+**Elaine May Makes a Rare Appearance to Talk About ‘Mikey and Nicky’**\
+`At a screening of the gangster tale starring Peter Falk and John Cassavetes, the director recalls her battle with Paramount to get the film released.`\
+https://nytimes.com/2024/12/09/movies/elaine-may-mikey-and-nicky.html
+
+**A rebel leader sheds his nom de guerre and speaks of the work ahead for Syria.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/a-rebel-leader-sheds-his-nom-de-guerre-and-speaks-of-the-work-ahead-for-syria
+
 **Hollinger's Week That Was: Teams ponder tough dilemmas in NBA's bye week**\
 `With minimal games this week, it's time for on-court practices, a little rest and some self-reflections.`\
 https://nytimes.com/athletic/5980440/2024/12/09/nba-bye-week-lakers-sixers-yves-missi-pelicans/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5980997/2024/12/09/usmnt-robinson-ledezma-kochen-tr
 **Ratcliffe's brand of ruthless ambition risks more errors like Ashworth's short Man United reign**\
 `Ratcliffe seems more determined to “fix” Manchester United than the Glazers have ever done but his record in football is proving... mediocre`\
 https://nytimes.com/athletic/5981142/2024/12/09/ratcliffe-ashworth-manchester-united-error/
-
-**Angel City FC parts ways with head coach Becki Tweed**\
-`Tweed joined initially as an assistant coach in 2023 and was promoted to interim head coach midway through that season.`\
-https://nytimes.com/athletic/5981400/2024/12/09/becki-tweed-angel-city/
-
-**Realtors’ Nonprofit Is Politically Motivated, Some Say**\
-`The National Association of Realtors has created a nonprofit that gives more heavily to one side of the political aisle and to groups that have little to do with real estate and housing.`\
-https://nytimes.com/2024/12/09/realestate/nar-real-estate-politics.html
 
