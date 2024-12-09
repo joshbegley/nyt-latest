@@ -1,3 +1,19 @@
+**Suspect Is Arrested in Pennsylvania in Killing of C.E.O. in Midtown**\
+`Luigi Mangione was arrested after a tip from a McDonald’s in Altoona. The police said they found him with fake identification and a gun that matched the assassin’s.`\
+https://nytimes.com/2024/12/09/nyregion/unitedhealthcare-ceo-suspect-arrest-altoona.html
+
+**The Mets Stole Juan Soto From the Yankees. Who’s the Big Spender Now?**\
+`The Yankees didn’t just lose a superstar; they lost him to the Mets. Is the balance of power shifting in New York?`\
+https://nytimes.com/2024/12/09/nyregion/juan-soto-new-york-yankees-mets.html
+
+**For Women in India, a Job Is More Than Just a Paycheck**\
+`A new film shows the barriers that women must overcome in order to work.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/indian-nurses-jobs-film
+
+**Luigi Mangione, Arrested in Connection With C.E.O. Killing, Attended Elite Institutions**\
+`He grew up in Maryland, graduated from a private high school in Baltimore and went on to the University of Pennsylvania.`\
+https://nytimes.com/2024/12/09/nyregion/who-is-luigi-mangione.html
+
 **NHL trade grades: Mackenzie Blackwood is Avalanche's latest bet to improve goaltending**\
 `A Blackwood-Wedgewood crease may not be the flashiest, but it’s a solid upgrade for the Avalanche.`\
 https://nytimes.com/athletic/5982153/2024/12/09/nhl-trade-grades-avalanche-sharks-mackenzie-blackwood/
