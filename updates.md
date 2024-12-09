@@ -1,3 +1,15 @@
+**Oil Markets Shrug Off Overthrow of Syrian Ruler**\
+`Traders appeared to be more concerned about tepid global growth and an oversupply from other producers than about Bashar al-Assad’s ouster.`\
+https://nytimes.com/2024/12/09/business/oil-prices-syria.html
+
+**A Surprise Advance to Damascus, Captured on Video**\
+`Bashar Al-Assad’s grip over Syria was visible everywhere in the capital. It was all dismantled in less than 24 hours.`\
+https://nytimes.com/2024/12/09/world/middleeast/syria-damascus-rebels-assad-video.html
+
+**Golden Globes Nominations 2025: List of Nominees**\
+`The list of Golden Globe nominees for 2025.`\
+https://nytimes.com/2024/12/09/movies/golden-globes-nominations-list.html
+
 **Men’s college basketball Top 25: An all-SEC debate for the true No. 1**\
 `Auburn lost a slugfest at Duke, but the Tigers still deserve to lead a sizable group of the SEC's best teams vying for rankings supremacy.`\
 https://nytimes.com/athletic/5975620/2024/12/09/college-basketball-top-25-auburn-tennessee/

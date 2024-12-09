@@ -1,3 +1,11 @@
+**Oil Markets Shrug Off Overthrow of Syrian Ruler**\
+`Traders appeared to be more concerned about tepid global growth and an oversupply from other producers than about Bashar al-Assad’s ouster.`\
+https://nytimes.com/2024/12/09/business/oil-prices-syria.html
+
+**A Surprise Advance to Damascus, Captured on Video**\
+`Bashar Al-Assad’s grip over Syria was visible everywhere in the capital. It was all dismantled in less than 24 hours.`\
+https://nytimes.com/2024/12/09/world/middleeast/syria-damascus-rebels-assad-video.html
+
 **Men’s college basketball Top 25: An all-SEC debate for the true No. 1**\
 `Auburn lost a slugfest at Duke, but the Tigers still deserve to lead a sizable group of the SEC's best teams vying for rankings supremacy.`\
 https://nytimes.com/athletic/5975620/2024/12/09/college-basketball-top-25-auburn-tennessee/
@@ -18,6 +26,10 @@ https://nytimes.com/athletic/5979764/2024/12/09/college-football-playoff-champio
 `The president-elect said he would not try to replace the Federal Reserve chair, but would seek to cut immigration, impose tariffs and more.`\
 https://nytimes.com/2024/12/09/business/dealbook/trump-powell-fed-tariffs-immigration.html
 
+**Golden Globes Nominations 2025: List of Nominees**\
+`The list of Golden Globe nominees for 2025.`\
+https://nytimes.com/2024/12/09/movies/golden-globes-nominations-list.html
+
 **Two Major Ad Agencies to Merge, Creating Global Giant**\
 `If they combine, Omnicom and Interpublic would become the largest advertising company in the world.`\
 https://nytimes.com/2024/12/09/business/omnicom-interpublic-merger.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/09/business/omnicom-interpublic-merger.html
 **Trump Transition Live Updates: Cheney Condemns Trump’s ‘Assault on the Rule of Law’**\
 ``\
 https://nytimes.com/live/2024/12/09/us/trump-news
-
-**China Opens Antitrust Investigation Into Nvidia**\
-`The move by Chinese regulators came a week after the Biden administration expanded curbs on the sale of advanced U.S. technology to China.`\
-https://nytimes.com/2024/12/09/technology/china-nvidia-investigation-antitrust-ai.html
-
-**Kawhi Leonard appears to be nearing return at a perfect time in Clippers schedule**\
-`The Clippers get some breaks in the grind over the next month, and signals strongly point to Leonard approaching his season debut.`\
-https://nytimes.com/athletic/5980610/2024/12/09/kawhi-leonard-return-clippers/
-
-**Dries Van Noten Names a New Dries Van Noten**\
-`Julian Klausner, who has been head of its women’s studio, is stepping into the founder’s shoes.`\
-https://nytimes.com/2024/12/09/style/dries-van-noten-new-designer-julian-klausner.html
 
