@@ -1,3 +1,7 @@
+**Prosecutors Seek Travel Ban for South Korea’s President**\
+`President Yoon Suk Yeol is being investigated for insurrection and other charges after briefly imposing martial law last week.`\
+https://nytimes.com/2024/12/09/world/asia/south-korea-yoon-travel-ban.html
+
 **Tulane's Sumrall intends to stay put; UNC remains in contact with Belichick**\
 `Sumrall appeared to be a strong candidate for the Tar Heels from the moment they fired Mack Brown.`\
 https://nytimes.com/athletic/5980439/2024/12/09/tulane-jon-sumrall-unc-interest/

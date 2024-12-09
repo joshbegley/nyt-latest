@@ -1,3 +1,7 @@
+**Prosecutors Seek Travel Ban for South Korea’s President**\
+`President Yoon Suk Yeol is being investigated for insurrection and other charges after briefly imposing martial law last week.`\
+https://nytimes.com/2024/12/09/world/asia/south-korea-yoon-travel-ban.html
+
 **Tulane's Sumrall intends to stay put; UNC remains in contact with Belichick**\
 `Sumrall appeared to be a strong candidate for the Tar Heels from the moment they fired Mack Brown.`\
 https://nytimes.com/athletic/5980439/2024/12/09/tulane-jon-sumrall-unc-interest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978333/2024/12/09/jamie-vardy-37-leicester-setting
 **Recent woes made Red Sox a long shot for Juan Soto. What is Plan B now that he's a Met?**\
 `If the Red Sox want to build on their pursuit of Soto and show they are spenders, they'd be wise to make a significant move quickly.`\
 https://nytimes.com/athletic/5980301/2024/12/09/red-sox-juan-soto-alternatives/
-
-**Barcelona's bench is not delivering - and it's costing them points**\
-`As proven in the 2-2 draw against Real Betis, Hansi Flick’s second unit needs to step up and start playing their part`\
-https://nytimes.com/athletic/5977124/2024/12/09/barcelonas-bench-is-not-delivering-and-its-costing-them-points/
 
