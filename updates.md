@@ -1,3 +1,15 @@
+**Central Michigan tabs Army assistant Matt Drinkall as next head coach**\
+`Before his six-year stint as an Army assistant, Drinkall compiled a 42-17 record as the head coach at Kansas Wesleyan from 2014-18.`\
+https://nytimes.com/athletic/5981464/2024/12/09/central-michigan-head-coach-matt-drinkall-2/
+
+**Daniel Penny Is Acquitted in Death of Jordan Neely on Subway**\
+`Mr. Penny choked Mr. Neely in a minutes-long struggle on the floor of an F train. The case reflected the pathologies of post-pandemic New York.`\
+https://nytimes.com/2024/12/09/nyregion/daniel-penny-not-guilty-jordan-neely.html
+
+**In Syria, an Image of Rebellion Embodied in a Hoodie**\
+`The quotidian uniforms of Syrian rebels, as they appeared on television, draws a powerful contrast to the image of President Bashar al-Assad.`\
+https://nytimes.com/2024/12/09/style/in-syria-an-image-of-rebellion-embodied-in-a-hoodie.html
+
 **Scoop City: Risers and fallers after Week 14**\
 `A quick look at the risers (Sam Darnold, the Rams), fallers (Kirk Cousins, Bills, Jets) and why Belichick could take the UNC job.`\
 https://nytimes.com/athletic/5981383/2024/12/09/week-14-risers-fallers-nfl-rams-vikings-scoop-city/
