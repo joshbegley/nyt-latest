@@ -1,3 +1,7 @@
+**Tulane's Sumrall intends to stay put; UNC remains in contact with Belichick**\
+`Sumrall appeared to be a strong candidate for the Tar Heels from the moment they fired Mack Brown.`\
+https://nytimes.com/athletic/5980439/2024/12/09/tulane-jon-sumrall-unc-interest/
+
 **Recent woes made Red Sox a long shot for Juan Soto. What is Plan B now that he's a Met?**\
 `If the Red Sox want to build on their pursuit of Soto and show they are spenders, they'd be wise to make a significant move quickly.`\
 https://nytimes.com/athletic/5980301/2024/12/09/red-sox-juan-soto-alternatives/
