@@ -1,3 +1,7 @@
+**Israel Claims Credit for al-Assad’s Ouster, but Sees Risk in His Absence**\
+`For Israel’s leaders, Bashar al-Assad’s downfall was made possible by their recent assaults on Hezbollah, Iran and Syria, all of which weakened the Iran-backed axis.`\
+https://nytimes.com/2024/12/09/world/middleeast/israel-assad-syria.html
+
 **The Pulse: The new biggest contract ever**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5980302/2024/12/09/juan-soto-765-million-mets-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980483/2024/12/09/bill-belichick-unc-coach/
 **Sam Darnold, Bryce Young and the path to QB redemption**\
 `Darnold's MVP odds have climbed into the top six, while Young is playing the best football of his career since returning from his benching.`\
 https://nytimes.com/athletic/5980379/2024/12/09/sam-darnold-vikings-bryce-young-panthers/
-
-**Is Mike Macdonald turning the Seahawks' defense into Ravens West?**\
-`The Seahawks have their best defense through Week 14 in seven years, and Macdonald has again found something in a newly acquired linebacker.`\
-https://nytimes.com/athletic/5980543/2024/12/09/seahawks-mike-macdonald-ernest-jones/
 
