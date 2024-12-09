@@ -1,3 +1,15 @@
+**Men’s college basketball Top 25: An all-SEC debate for the true No. 1**\
+`Auburn lost a slugfest at Duke, but the Tigers still deserve to lead a sizable group of the SEC's best teams vying for rankings supremacy.`\
+https://nytimes.com/athletic/5975620/2024/12/09/college-basketball-top-25-auburn-tennessee/
+
+**Pulisic set to miss at least two weeks with calf muscle tear**\
+`USMNT and Milan forward Christian Pulisic is set to be sidelined for at least two weeks after sustaining a minor tear to a muscle in his right calf.`\
+https://nytimes.com/athletic/5980722/2024/12/09/christian-pulisic-injury-update-milan/
+
+**Blues mailbag, part 1: Bannister's raw deal, praise for Kyrou and Thomas' 4 Nations snub**\
+`As the Blues wrap up a four-game road trip, let's answer some of the questions fans are curious about in part 1 of the mailbag.`\
+https://nytimes.com/athletic/5976432/2024/12/09/blues-nhl-bannister-kyrou-thomas-4-nations/
+
 **Ranking all 36 national championship matchup scenarios from most likely to Clemson vs. SMU**\
 `The expanded 12-team College Football Playoff gives us a lot more national title game possibilities. Some a lot more likely than others.`\
 https://nytimes.com/athletic/5979764/2024/12/09/college-football-playoff-championship-scenarios-likelihood/
