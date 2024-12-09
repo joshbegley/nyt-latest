@@ -1,3 +1,7 @@
+**Scoop City: Risers and fallers after Week 14**\
+`A quick look at the risers (Sam Darnold, the Rams), fallers (Kirk Cousins, Bills, Jets) and why Belichick could take the UNC job.`\
+https://nytimes.com/athletic/5981383/2024/12/09/week-14-risers-fallers-nfl-rams-vikings-scoop-city/
+
 **What Syria Needs in Order to Rebuild**\
 `U.S. sanctions policy in the country must change.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/syria-us-sanctions
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/germany-asylum-syri
 **As rebels rush to establish order, governments weigh recognizing a group they once shunned as extremist.**\
 `By Vivian Yee`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/as-rebels-rush-to-establish-order-governments-weigh-recognizing-a-group-they-once-shunned-as-extremist
-
-**Coote sacked by PGMOL over conduct**\
-`Premier League referee David Coote has had his contract terminated by the Professional Game Match Officials Limited (PGMOL) following an investigation into his conduct.`\
-https://nytimes.com/athletic/5917480/2024/12/09/david-coote-verdict-pgmol/
 
