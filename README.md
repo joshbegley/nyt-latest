@@ -1,3 +1,7 @@
+**Even after Severino, A’s have to spend more this winter or risk fight with players’ union**\
+`The A's may still need to spend another $25 million or more on next year’s roster before they’re in the clear. `\
+https://nytimes.com/athletic/5982452/2024/12/09/as-spending-union-grievance-severino/
+
 **Avalanche acquire MacKenzie Blackwood, Givani Smith in trade with Sharks**\
 `It’s the second trade in the last two weeks for Colorado, who has reshaped their crease after a disastrous start to the season in net`\
 https://nytimes.com/athletic/5982186/2024/12/09/avalanche-mackenzie-blackwood-trade-sharks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982189/2024/12/09/josh-allen-best-ever-qb-nfl-fant
 **‘Person of Interest’ in C.E.O. Shooting Has Background in Games Industry**\
 `Luigi Mangione was passionate about game development and programming from a young age, teaching himself to code in high school.`\
 https://nytimes.com/2024/12/09/nyregion/uhc-suspect-video-games.html
-
-**Trump Tests Ethical Boundaries With Branded Merch. (And All Sales Are Final.)**\
-`Everything around President-elect Donald J. Trump has become something to monetize, including a moment of comity with Jill Biden at Notre-Dame over the weekend.`\
-https://nytimes.com/2024/12/09/us/politics/trump-perfumes-sneakers-licensing.html
 

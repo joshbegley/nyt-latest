@@ -1,3 +1,15 @@
+**Avalanche acquire MacKenzie Blackwood, Givani Smith in trade with Sharks**\
+`It’s the second trade in the last two weeks for Colorado, who has reshaped their crease after a disastrous start to the season in net`\
+https://nytimes.com/athletic/5982186/2024/12/09/avalanche-mackenzie-blackwood-trade-sharks/
+
+**Shock, Glee and Unease as Syrians Celebrate the Unthinkable**\
+`A day after the regime of President Bashar al-Assad fell, civilians poured into the streets of Damascus, weeping in disbelief. Many sought word of relatives held in a notorious prison on the outskirts of the city.`\
+https://nytimes.com/2024/12/09/world/middleeast/syria-assad-damascus.html
+
+**A Test for the System**\
+`Donald Trump will take office with weakened checks on his power.`\
+https://nytimes.com/2024/12/09/us/politics/a-test-for-the-system.html
+
 **Syrian Military Officials Charged With War Crimes as Government Falls**\
 `Jamil Hassan and Abdul Salam Mahmoud ran an infamous prison in Damascus and “sought to terrify, intimidate and repress any opposition, or perceived opposition, to the regime,” according to the indictment.`\
 https://nytimes.com/2024/12/09/us/politics/justice-department-syria-war-crimes.html

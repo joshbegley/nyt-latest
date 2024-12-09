@@ -1,3 +1,15 @@
+**Avalanche acquire MacKenzie Blackwood, Givani Smith in trade with Sharks**\
+`It’s the second trade in the last two weeks for Colorado, who has reshaped their crease after a disastrous start to the season in net`\
+https://nytimes.com/athletic/5982186/2024/12/09/avalanche-mackenzie-blackwood-trade-sharks/
+
+**Shock, Glee and Unease as Syrians Celebrate the Unthinkable**\
+`A day after the regime of President Bashar al-Assad fell, civilians poured into the streets of Damascus, weeping in disbelief. Many sought word of relatives held in a notorious prison on the outskirts of the city.`\
+https://nytimes.com/2024/12/09/world/middleeast/syria-assad-damascus.html
+
+**A Test for the System**\
+`Donald Trump will take office with weakened checks on his power.`\
+https://nytimes.com/2024/12/09/us/politics/a-test-for-the-system.html
+
 **Syrian Military Officials Charged With War Crimes as Government Falls**\
 `Jamil Hassan and Abdul Salam Mahmoud ran an infamous prison in Damascus and “sought to terrify, intimidate and repress any opposition, or perceived opposition, to the regime,” according to the indictment.`\
 https://nytimes.com/2024/12/09/us/politics/justice-department-syria-war-crimes.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/09/nyregion/uhc-suspect-video-games.html
 **Trump Tests Ethical Boundaries With Branded Merch. (And All Sales Are Final.)**\
 `Everything around President-elect Donald J. Trump has become something to monetize, including a moment of comity with Jill Biden at Notre-Dame over the weekend.`\
 https://nytimes.com/2024/12/09/us/politics/trump-perfumes-sneakers-licensing.html
-
-**The Briefing: West Ham 2 Wolves 1 - Lopetegui relief, pressure increases on O'Neil and support for Antonio**\
-`Tim Spiers, Roshane Thomas and Steve Madeley analyse the key talking points from West Ham's victory over Wolves`\
-https://nytimes.com/athletic/5980913/2024/12/09/west-ham-wolves-analysis/
-
-**My Last Column: Finding Hope in an Age of Resentment**\
-`Where have all the good vibes gone?`\
-https://nytimes.com/2024/12/09/opinion/elites-euro-social-media.html
-
-**Trump Wants to Abolish Birthright Citizenship. Can He Do So?**\
-`The president-elect has revived his wish to do away with automatic citizenship for anyone born in the United States. The Constitution stands in his way.`\
-https://nytimes.com/article/trump-birthright-citizenship-constitution.html
 
