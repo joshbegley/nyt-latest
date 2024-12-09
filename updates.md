@@ -1,3 +1,7 @@
+**The man detained in connection with the shooting had a handwritten manifesto.**\
+`The document described his “motivation and mind-set” and conveyed “ill will toward corporate America,” according to the authorities.`\
+https://nytimes.com/2024/12/09/nyregion/the-man-detained-in-connection-with-the-shooting-had-a-handwritten-manifesto.html
+
 **Crowds Go to Syria’s Sednaya Prison In Search of Loved Ones**\
 `Rebel forces released many detainees from the notorious Sednaya military prison in Damascus. The government complex has a long history of human rights abuses under the rule of fallen President Bashar al-Assad.`\
 https://nytimes.com/video/world/middleeast/100000009867314/syria-sednaya-prison-damascus-.html
