@@ -1,3 +1,11 @@
+**Senators owner Michael Andlauer suggests Rangers-Brady Tkachuk could be 'soft tampering'**\
+`Reached by The Athletic for comment, the Rangers via a spokesperson called Andlauer's comment "an irresponsible accusation."`\
+https://nytimes.com/athletic/5981606/2024/12/09/senators-rangers-brady-tkachuk-tampering/
+
+**Arts Patron Aims to Help Underrepresented Museum Professionals**\
+`Allison Berg has established a foundation to elevate the careers of six emerging visual arts curators, educators and administrators each year.`\
+https://nytimes.com/2024/12/09/arts/design/allison-berg-foundation.html
+
 **A Contemporary Music Festival Trolls for Aesthetics’ Sake**\
 `The directors of the London Contemporary Music Festival discuss this year’s edition, the event’s 10th anniversary.`\
 https://nytimes.com/2024/12/09/arts/music/london-contemporary-music-festival.html
