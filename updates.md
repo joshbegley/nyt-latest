@@ -1,3 +1,7 @@
+**Is there reason to believe this season will be different for Indiana and Mike Woodson?**\
+`After missing the NCAA Tournament last season and with IU threatening to become a football school, can Woodson restore positive momentum?`\
+https://nytimes.com/athletic/5978844/2024/12/09/indiana-basketball-mike-woodson-coach/
+
 **NBA Rewind: Ja Morant reverses course, the Lakers' struggles grow and NBA Stock Report!**\
 `Ja Morant changing his mind about dunks is among Zach Harper's favorite things from the NBA weekend.`\
 https://nytimes.com/athletic/5973276/2024/12/09/ja-morant-grizzlies-celtics-lebron-james-lakers/

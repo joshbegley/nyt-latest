@@ -1,3 +1,7 @@
+**Is there reason to believe this season will be different for Indiana and Mike Woodson?**\
+`After missing the NCAA Tournament last season and with IU threatening to become a football school, can Woodson restore positive momentum?`\
+https://nytimes.com/athletic/5978844/2024/12/09/indiana-basketball-mike-woodson-coach/
+
 **NBA Rewind: Ja Morant reverses course, the Lakers' struggles grow and NBA Stock Report!**\
 `Ja Morant changing his mind about dunks is among Zach Harper's favorite things from the NBA weekend.`\
 https://nytimes.com/athletic/5973276/2024/12/09/ja-morant-grizzlies-celtics-lebron-james-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972433/2024/12/09/blackhawks-nhl-connor-bedard-fra
 **Josh Jacobs proving Packers were right to replace Aaron Jones with him**\
 `Jacobs has established himself once again as a premier running back in the NFL in his first year with Green Bay, `\
 https://nytimes.com/athletic/5979575/2024/12/09/josh-jacobs-packers-free-agent-aaron-jones/
-
-**NFL contender concerns: What might sink the Chiefs, Lions, Bills and Eagles? Sando’s Pick Six**\
-`The Bills' defense let them down in L.A. The Chiefs are struggling to protect Patrick Mahomes. What about the Lions and Eagles?`\
-https://nytimes.com/athletic/5975677/2024/12/09/nfl-chiefs-lions-bills-eagles-super-bowl/
 
