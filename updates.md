@@ -3,6 +3,19 @@
 `\
 https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
 
+**Minnesota Vikings Find Unlikely Muse for Celebration Dance: ‘White Chicks’**\
+`Not everyone loved the 2004 film “White Chicks.” But 20 years later, some N.F.L. players are paying homage to it in the end zone.`\
+https://nytimes.com/2024/12/08/sports/minnesota-vikings-white-chicks-dance.html
+
+**Juan Soto to join New York Mets on 15-year, $765 million megadeal: Source**\
+`Soto, still just 26 years old, becomes the highest-paid player in baseball, eclipsing the contract of Shohei Ohtani.`\
+https://nytimes.com/athletic/5932790/2024/12/08/juan-soto-mets-free-agent-deal/
+
+**Before dismantling Bears, the 49ers found their missing element: Desperation**\
+`For the first time this season, the 49ers looked like their 2023 selves for a full game — even while missing many of their 2023 stars.
+`\
+https://nytimes.com/athletic/5980030/2024/12/08/49ers-win-desperation-bears/
+
 **Before dismantling Bears, the 49ers found their missing element: Desperation**\
 `For the first time this season, the 49ers looked like their 2023 selves for a full game — even while missing many of their 2023 stars.
 `\
