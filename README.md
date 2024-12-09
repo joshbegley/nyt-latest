@@ -1,3 +1,7 @@
+**Raiders' O'Connell suffers bone bruise, will try to play in Week 15: Source**\
+`If O'Connell can't go, Las Vegas will turn to Desmond Ridder to start against his former team, the Atlanta Falcons. `\
+https://nytimes.com/athletic/5981764/2024/12/09/aidan-oconnell-raiders-injury-update/
+
 **The inside story of David Coote, PGMOL and the Premier League's biggest refereeing crisis**\
 `How the biggest refereeing scandal in English football's modern era played out... and what it could mean`\
 https://nytimes.com/athletic/5981479/2024/12/09/david-coote-referee-sack-pgmol/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981899/2024/12/09/clemson-texas-time-odds-college-
 **Rupert Murdoch Fails in Bid to Change Family Trust**\
 `A Nevada commissioner ruled resoundingly against Mr. Murdoch, who was trying to give full control of his empire to his son Lachlan and lock in Fox News’s right-wing editorial slant.`\
 https://nytimes.com/2024/12/09/business/media/rupert-lachlan-murdoch-family-trust.html
-
-**Why I Still Send Holiday Cards — and You Should, Too**\
-`They serve a social function that’s surprisingly important.`\
-https://nytimes.com/2024/12/09/opinion/holiday-christmas-cards.html
 
