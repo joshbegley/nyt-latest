@@ -1,3 +1,7 @@
+**Thompson: Draymond Green's loud dunk put the Wolves to bed — and maybe woke the Warriors**\
+`SAN FRANCISCO — This &#8220;Night! Night!&#8221; celebration had some Saginaw swag on it.`\
+https://nytimes.com/athletic/5982066/2024/12/09/golden-state-warriors-draymond-green-dunk-timberwolves/
+
 **Former Wisconsin, Miami QB Tyler Van Dyke hits transfer portal: Source**\
 `Van Dyke started three games for the Badgers before a season-ending injury. He has one year of eligibility remaining. `\
 https://nytimes.com/athletic/5982223/2024/12/09/tyler-van-dyke-transfer-quarterback-wisconsin-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/briefing/syria-haiti-france-trial.html
 **What's the fallout for SEC scheduling after this year's Playoff selections?**\
 `A look at where things stand within the SEC on scheduling after this year's College Football Playoff announcement.`\
 https://nytimes.com/athletic/5981930/2024/12/09/college-football-playoff-sec-schedules/
-
-**Crowds Go to Syria’s Sednaya Prison In Search of Loved Ones**\
-`Rebel forces released many detainees from the notorious Sednaya military prison in Damascus. The government complex has a long history of human rights abuses under the rule of fallen President Bashar al-Assad.`\
-https://nytimes.com/video/world/middleeast/100000009867314/syria-sednaya-prison-damascus-.html
 
