@@ -1,3 +1,7 @@
+**Finding Hope in an Age of Resentment**\
+`Where have all the good vibes gone?`\
+https://nytimes.com/2024/12/09/opinion/elites-euro-social-media.html
+
 **Trump Wants to Abolish Birthright Citizenship. Can He Do So?**\
 `The president-elect has revived his wish to do away with automatic citizenship for anyone born in the United States. The Constitution stands in his way.`\
 https://nytimes.com/article/trump-birthright-citizenship-constitution.html

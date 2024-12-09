@@ -1,3 +1,7 @@
+**Finding Hope in an Age of Resentment**\
+`Where have all the good vibes gone?`\
+https://nytimes.com/2024/12/09/opinion/elites-euro-social-media.html
+
 **Trump Wants to Abolish Birthright Citizenship. Can He Do So?**\
 `The president-elect has revived his wish to do away with automatic citizenship for anyone born in the United States. The Constitution stands in his way.`\
 https://nytimes.com/article/trump-birthright-citizenship-constitution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/nyregion/juan-soto-new-york-yankees-mets.html
 **For Women in India, a Job Is More Than Just a Paycheck**\
 `A new film shows the barriers that women must overcome in order to work.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/indian-nurses-jobs-film
-
-**Luigi Mangione, Arrested in Connection With C.E.O. Killing, Attended Elite Institutions**\
-`He grew up in Maryland, graduated from a private high school in Baltimore and went on to the University of Pennsylvania.`\
-https://nytimes.com/2024/12/09/nyregion/who-is-luigi-mangione.html
 
