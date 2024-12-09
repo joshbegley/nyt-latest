@@ -14,7 +14,7 @@ https://nytimes.com/2024/12/09/us/politics/trump-perfumes-sneakers-licensing.htm
 `Tim Spiers, Roshane Thomas and Steve Madeley analyse the key talking points from West Ham's victory over Wolves`\
 https://nytimes.com/athletic/5980913/2024/12/09/west-ham-wolves-analysis/
 
-**Finding Hope in an Age of Resentment**\
+**My Last Column: Finding Hope in an Age of Resentment**\
 `Where have all the good vibes gone?`\
 https://nytimes.com/2024/12/09/opinion/elites-euro-social-media.html
 
