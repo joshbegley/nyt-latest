@@ -1,3 +1,19 @@
+**Expanding the Laws on Assisted Dying**\
+`Readers discuss the British vote on the issue and urge actions in the U.S. Also: Safeguarding our food; taxing cow burps in Denmark; a crossword tale.`\
+https://nytimes.com/2024/12/09/opinion/assisted-dying-uk.html
+
+**NBA, FIBA in 'serious conversation' about new European league**\
+`There are about 60 European players in the NBA, or about 15 percent of the entire league.`\
+https://nytimes.com/athletic/5981348/2024/12/09/fiba-nba-european-league-andreas-zagklis/
+
+**What I saw in the PWHL this week: A controversial hit, Minnesota's Dominique Petrie shines**\
+`Plus: A sibling reunion in Ottawa, a revenge game, Boston's first win and more from the second week of the PWHL season.`\
+https://nytimes.com/athletic/5981163/2024/12/09/pwhl-hockey-minnesota-boston-toronto/
+
+**At the Kennedy Center, a Send-Off to Biden and Questions About the Future**\
+`A bipartisan crowd honored Francis Ford Coppola, the Grateful Dead, Bonnie Raitt, Arturo Sandoval and the Apollo Theater. Some wondered if Donald J. Trump would attend next year.`\
+https://nytimes.com/2024/12/09/arts/kennedy-center-honors.html
+
 **China’s Critical Minerals Embargo Is Even Tougher Than Expected**\
 `Beijing ordered companies around the world not to allow critical minerals mined in China to reach the U.S., while deepening its efforts to replace imports with domestic products.`\
 https://nytimes.com/2024/12/09/business/china-critical-minerals.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5917480/2024/12/09/david-coote-verdict-pgmol/
 **Fighting still rages in northern Syria as rebel groups vie for territory.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/fighting-still-rages-in-northern-syria-as-rebel-groups-vie-for-territory
-
-**QB TJ Finley enters transfer portal, seeking to play at fifth school in six seasons**\
-`Finley, who began his career at LSU, has a 14-13 record in 27 starts, including an 8-5 mark as the full-time starter at Texas State in 2023.`\
-https://nytimes.com/athletic/5981198/2024/12/09/tj-finley-transfer-portal-quarterback/
-
-**How to Apply Makeup That Lasts**\
-`Advice from Tinashe, Justin Vivian Bond and Yadim.`\
-https://nytimes.com/2024/12/09/t-magazine/makeup-that-lasts-tinashe.html
-
-**Quantum Computing Inches Closer to Reality After Another Google Breakthrough**\
-`Google unveiled an experimental machine capable of tasks that a traditional supercomputer could not master in 10 septillion years. (That’s older than the universe.)`\
-https://nytimes.com/2024/12/09/technology/google-quantum-computing.html
-
-**Give Your Salmon an Anchovy Butter Boost**\
-`In my five-star salmon dinner, anchovies lend their intense and pungent bite to the sweet pink fillets.`\
-https://nytimes.com/2024/12/09/dining/give-your-salmon-an-anchovy-butter-boost.html
 
