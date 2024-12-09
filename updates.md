@@ -1,3 +1,11 @@
+**Ranking all 36 national championship matchup scenarios from most likely to Clemson vs. SMU**\
+`The expanded 12-team College Football Playoff gives us a lot more national title game possibilities. Some a lot more likely than others.`\
+https://nytimes.com/athletic/5979764/2024/12/09/college-football-playoff-championship-scenarios-likelihood/
+
+**Trump Gives Powell a Reprieve, but Pledges Big Moves Elsewhere**\
+`The president-elect said he would not try to replace the Federal Reserve chair, but would seek to cut immigration, impose tariffs and more.`\
+https://nytimes.com/2024/12/09/business/dealbook/trump-powell-fed-tariffs-immigration.html
+
 **China Opens Antitrust Investigation Into Nvidia**\
 `The move by Chinese regulators came a week after the Biden administration expanded curbs on the sale of advanced U.S. technology to China.`\
 https://nytimes.com/2024/12/09/technology/china-nvidia-investigation-antitrust-ai.html

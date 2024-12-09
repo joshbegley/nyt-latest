@@ -1,3 +1,11 @@
+**Ranking all 36 national championship matchup scenarios from most likely to Clemson vs. SMU**\
+`The expanded 12-team College Football Playoff gives us a lot more national title game possibilities. Some a lot more likely than others.`\
+https://nytimes.com/athletic/5979764/2024/12/09/college-football-playoff-championship-scenarios-likelihood/
+
+**Trump Gives Powell a Reprieve, but Pledges Big Moves Elsewhere**\
+`The president-elect said he would not try to replace the Federal Reserve chair, but would seek to cut immigration, impose tariffs and more.`\
+https://nytimes.com/2024/12/09/business/dealbook/trump-powell-fed-tariffs-immigration.html
+
 **Two Major Ad Agencies to Merge, Creating Global Giant**\
 `If they combine, Omnicom and Interpublic would become the largest advertising company in the world.`\
 https://nytimes.com/2024/12/09/business/omnicom-interpublic-merger.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5980815/2024/12/09/notre-dame-indiana-playoff-freem
 **‘The Daily’ podcast covers al-Assad’s fall.**\
 `By The Daily Team`\
 https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/the-daily-podcast-covers-al-assads-fall
-
-**'I wish I could tell him thank you': Goateed Lions fans gather for Dan Campbell look-alike contest**\
-`Many showed up, but only one could be crowned the winner.`\
-https://nytimes.com/athletic/5979989/2024/12/09/lions-dan-campbell-lookalike-contest/
-
-**Watching the Premier League from LA’s futuristic sports bar - or a restricted view seat**\
-`We sent one reporter to Cosm Los Angeles and one to Craven Cottage on Sunday to experience the same match in very different ways`\
-https://nytimes.com/athletic/5978726/2024/12/09/cosm-premier-league-fulham-arsenal/
 
