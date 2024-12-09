@@ -1,3 +1,7 @@
+**NBA Rewind: Ja Morant reverses course, the Lakers' struggles grow and NBA Stock Report!**\
+`Ja Morant changing his mind about dunks is among Zach Harper's favorite things from the NBA weekend.`\
+https://nytimes.com/athletic/5973276/2024/12/09/ja-morant-grizzlies-celtics-lebron-james-lakers/
+
 **Chargers dealt another scar from Patrick Mahomes in loss to Chiefs**\
 `Mahomes delivered the magic on the game-winning drive as the Chiefs won their ninth straight AFC West title. `\
 https://nytimes.com/athletic/5980592/2024/12/09/chargers-loss-patrick-mahomes-chiefs-afc-west-title/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5979575/2024/12/09/josh-jacobs-packers-free-agent-a
 **NFL contender concerns: What might sink the Chiefs, Lions, Bills and Eagles? Sando’s Pick Six**\
 `The Bills' defense let them down in L.A. The Chiefs are struggling to protect Patrick Mahomes. What about the Lions and Eagles?`\
 https://nytimes.com/athletic/5975677/2024/12/09/nfl-chiefs-lions-bills-eagles-super-bowl/
-
-**Inside the Fall of Syria’s Brutal Dictator**\
-`Over the weekend, President Bashar al-Assad was ousted by rebel forces. What comes next?`\
-https://nytimes.com/2024/12/09/podcasts/the-daily/assad-syria.html
 
