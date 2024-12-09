@@ -1,3 +1,7 @@
+**How Old Is Too Old to Be President? Democrats Still Don’t Want to Say.**\
+`At a gathering of Democratic governors, many were reluctant to discuss the issue that sank President Biden’s campaign: age. Others are ready for a Gen X president.`\
+https://nytimes.com/2024/12/09/us/politics/president-age-democrats.html
+
 **Canadiens weekly notebook: Emil Heineman’s role is a big part of his success**\
 `Also in this edition of the notebook, the opportunity ahead of Sam Montembeault with Team Canada and some of his rituals explained.`\
 https://nytimes.com/athletic/5981665/2024/12/09/canadiens-emil-heineman-sam-montembeault-canada-nhl/
