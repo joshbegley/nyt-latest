@@ -1,3 +1,7 @@
+**Brandon Ingram's injury forces Pelicans to face big questions immediately**\
+`With competing this season going from unlikely to nearly impossible, the Pelicans must address major questions about their stars.`\
+https://nytimes.com/athletic/5979865/2024/12/09/pelicans-brandon-ingram-injury-future/
+
 **Dick Allen and Dave Parker, Hall of Famers at long last: What we learned from their election**\
 `What took so long? That was the question that echoed through the night Sunday, along with so many powerful emotions.`\
 https://nytimes.com/athletic/5980595/2024/12/09/dick-allen-dave-parker-hall-of-fame-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/us/politics/supreme-court-judiciary-act.html
 **E.P.A. Bans Cancer-Causing Chemicals Used in Dry Cleaning**\
 `The two solvents, known as Perc and TCE, cause kidney cancer and other ailments, and have been the subject of years of controversy.`\
 https://nytimes.com/2024/12/09/climate/epa-dry-cleaning-chemical-ban-perc-tce.html
-
-**How to Keep Your Own Soul Safe in the Dark**\
-`Even at my lowest, I have never entirely given up my faith that good people working together can change the world for the better.`\
-https://nytimes.com/2024/12/09/opinion/environment-nature-hope.html
 
