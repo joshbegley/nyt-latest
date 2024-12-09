@@ -1,3 +1,7 @@
+**Buddy system: Warriors' new starting lineup works as Hield takes down Timberwolves**\
+`Hield scored 27 points, including the dagger 3, while Gary Payton II carried Golden State on the defensive end.`\
+https://nytimes.com/athletic/5979882/2024/12/09/buddy-hield-warriors-gary-payton-timberwolves/
+
 **Red Bull F1 faces tough decisions as Sergio Pérez finally signals his looming exit**\
 `Red Bull will soon decide who will race alongside Verstappen ("the hardest teammate in the world") in 2025.`\
 https://nytimes.com/athletic/5978944/2024/12/09/sergio-perez-red-bull-f1-exit-lawson-tsunoda/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/arts/television/creep-tapes-finale.html
 **She Won Over Italy. Now She’s Bringing Trumpism to Europe.**\
 `Giorgia Meloni is ready to be the bridge between Donald Trump and Europe.`\
 https://nytimes.com/2024/12/09/opinion/meloni-trump-europe.html
-
-**Bucks, Bobby Portis 'get it out the mud' in second half to escape with a win over Nets**\
-`With the offense stuck against Brooklyn, the Bucks found "better energy" in the fourth and got tough defense from an unlikely source.`\
-https://nytimes.com/athletic/5979645/2024/12/09/bucks-giannis-antetokounmpo-bobby-portis/
 
