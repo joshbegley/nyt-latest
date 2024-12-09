@@ -1,3 +1,7 @@
+**NBA Rewind: Ja Morant reverses course, the Lakers' struggles grow and NBA Stock Report!**\
+`Ja Morant changing his mind about dunks is among Zach Harper's favorite things from the NBA weekend.`\
+https://nytimes.com/athletic/5973276/2024/12/09/ja-morant-grizzlies-celtics-lebron-james-lakers/
+
 **Chargers dealt another scar from Patrick Mahomes in loss to Chiefs**\
 `Mahomes delivered the magic on the game-winning drive as the Chiefs won their ninth straight AFC West title. `\
 https://nytimes.com/athletic/5980592/2024/12/09/chargers-loss-patrick-mahomes-chiefs-afc-west-title/
