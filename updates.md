@@ -1,3 +1,7 @@
+**The Pulse: The new biggest contract ever**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5980302/2024/12/09/juan-soto-765-million-mets-the-pulse/
+
 **Iran’s Very Bad Year**\
 `We explain the country’s annus horribilis.`\
 https://nytimes.com/2024/12/09/briefing/irans-very-bad-year.html
