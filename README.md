@@ -1,3 +1,7 @@
+**‘The Daily’ podcast covers al-Assad’s fall.**\
+`By The Daily Team`\
+https://nytimes.com/live/2024/12/09/world/syria-assad-rebels/the-daily-podcast-covers-al-assads-fall
+
 **'I wish I could tell him thank you': Goateed Lions fans gather for Dan Campbell look-alike contest**\
 `Many showed up, but only one could be crowned the winner.`\
 https://nytimes.com/athletic/5979989/2024/12/09/lions-dan-campbell-lookalike-contest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980632/2024/12/09/manchester-united-ashworth-exit-
 **Israel Claims Credit for al-Assad’s Ouster, but Sees Risk in His Absence**\
 `For Israel’s leaders, Bashar al-Assad’s downfall was made possible by their recent assaults on Hezbollah, Iran and Syria, all of which weakened the Iran-backed axis.`\
 https://nytimes.com/2024/12/09/world/middleeast/israel-assad-syria.html
-
-**The Pulse: The new biggest contract ever**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5980302/2024/12/09/juan-soto-765-million-mets-the-pulse/
 
