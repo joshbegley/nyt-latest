@@ -1,3 +1,15 @@
+**Ja'Marr Chase's TD lifts Bengals to 27-20 win vs. Cowboys: Takeaways**\
+`The Cowboys mishandled a blocked punt late in the game that proved costly.`\
+https://nytimes.com/athletic/5982188/2024/12/10/cowboys-bengals-mnf-score-result-takeaways/
+
+**Why Cole Palmer's penalty was a perfect Panenka**\
+`When it works, the taker looks like an insouciant genius. When it doesn’t, they look pretty silly`\
+https://nytimes.com/athletic/5981124/2024/12/10/cole-palmer-tottenham-chelsea-panenka/
+
+**Juventus, Man City and the far-reaching impact of a scandal that resulted in relegation**\
+`In 2006, Juventus were relegated and stripped of titles. This week they play City, a team facing 115 charges from the Premier League`\
+https://nytimes.com/athletic/5976120/2024/12/10/juventus-calciopoli-man-city-premier-league-charges/
+
 **Scottie Barnes' injury keeps RJ Barrett in the middle of things with Raptors**\
 `Questions persist about how Barrett would fit in a smaller role, but he has done all he can in a bigger one in Toronto.`\
 https://nytimes.com/athletic/5983159/2024/12/10/scottie-barnes-injury-keeps-rj-barrett-in-the-middle-of-things-with-raptors/
