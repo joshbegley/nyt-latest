@@ -1,3 +1,7 @@
+**Tampering, projected salary cap, CBA, Olympics, schedule changes, expansion and more: NHL BOG rumblings**\
+`NHL commissioner Gary Bettman gave updates on pressing topics facing the league after its Board of Governors meeting Tuesday.`\
+https://nytimes.com/athletic/5984581/2024/12/10/nhl-board-of-governors-rumblings/
+
 **Six Arrested in Connection With Deadly Accident that Killed Over 50 Migrants**\
 `U.S. and Guatemalan authorities said the arrests were linked to a human trafficking ring and a deadly 2021 traffic accident.`\
 https://nytimes.com/2024/12/10/world/americas/guatemalans-arrested-deadly-migrant-crash.html

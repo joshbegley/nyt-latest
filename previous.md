@@ -1,3 +1,7 @@
+**Tampering, projected salary cap, CBA, Olympics, schedule changes, expansion and more: NHL BOG rumblings**\
+`NHL commissioner Gary Bettman gave updates on pressing topics facing the league after its Board of Governors meeting Tuesday.`\
+https://nytimes.com/athletic/5984581/2024/12/10/nhl-board-of-governors-rumblings/
+
 **Six Arrested in Connection With Deadly Accident that Killed Over 50 Migrants**\
 `U.S. and Guatemalan authorities said the arrests were linked to a human trafficking ring and a deadly 2021 traffic accident.`\
 https://nytimes.com/2024/12/10/world/americas/guatemalans-arrested-deadly-migrant-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984758/2024/12/10/dodgers-nolan-arenado-trade-card
 **Dick Van Dyke and Cher Flee Their Malibu Homes as Franklin Fire Burns**\
 `Mr. Van Dyke, who turns 99 on Friday, said that he and his wife, Arlene, had fled their home with their pets as the Franklin fire threatened their community.`\
 https://nytimes.com/2024/12/10/us/malibu-fire-van-dyke-cher-streisand.html
-
-**McConnell Sprained Wrist During a Fall but Is ‘Fine’**\
-`Senator Mitch McConnell, the minority leader who sustained a concussion in a fall last year, was cleared to resume his work schedule, according to his office.`\
-https://nytimes.com/2024/12/10/us/politics/mitch-mcconnell-fall-sprained-wrist.html
 
