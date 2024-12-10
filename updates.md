@@ -1,3 +1,19 @@
+**Resist Trump? On Immigration, Top Democrats See Room for Compromise.**\
+`In interviews, a range of Democratic governors expressed some defiance toward the president-elect’s expected crackdown, but also showed a surprising willingness to work with him.`\
+https://nytimes.com/2024/12/10/us/politics/democrats-trump-immigration-crackdown.html
+
+**The Supreme Court Must Intervene in the TikTok Case**\
+`The First Amendment should not be used to cut Americans’ access to TikTok, and the Supreme Court should step in.`\
+https://nytimes.com/2024/12/10/opinion/tiktok-first-amendment-china-ban-bytedance.html
+
+**In northern Syria, Turkish-backed rebels advance on a town held by Kurdish-led, U.S.-backed forces.**\
+`The fall of Bashar al-Assad’s government in Damascus has set off a scramble for territory and power among fighters with competing interests.`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/in-northern-syria-turkish-backed-rebels-advance-on-a-town-held-by-kurdish-led-us-backed-forces
+
+**Why Gary O'Neil is likely to still be in charge for Wolves' next game**\
+`Gary O'Neil is likely to keep his job at Wolves until the Ipswich game — and a lack of options is one reason behind it`\
+https://nytimes.com/athletic/5984140/2024/12/10/gary-oneil-wolves-future-ipswich/
+
 **Cowboys Today: Jerry Jones still not interested in seeing Trey Lance over Cooper Rush**\
 `With the playoffs out of the picture, an offseason task becomes more obvious: The Cowboys need more playmakers on offense.`\
 https://nytimes.com/athletic/5984102/2024/12/10/cowboys-cooper-rush-trey-lance-jerry-jones-overshown-injury/

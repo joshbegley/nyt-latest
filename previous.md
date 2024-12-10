@@ -1,3 +1,19 @@
+**Resist Trump? On Immigration, Top Democrats See Room for Compromise.**\
+`In interviews, a range of Democratic governors expressed some defiance toward the president-elect’s expected crackdown, but also showed a surprising willingness to work with him.`\
+https://nytimes.com/2024/12/10/us/politics/democrats-trump-immigration-crackdown.html
+
+**The Supreme Court Must Intervene in the TikTok Case**\
+`The First Amendment should not be used to cut Americans’ access to TikTok, and the Supreme Court should step in.`\
+https://nytimes.com/2024/12/10/opinion/tiktok-first-amendment-china-ban-bytedance.html
+
+**In northern Syria, Turkish-backed rebels advance on a town held by Kurdish-led, U.S.-backed forces.**\
+`The fall of Bashar al-Assad’s government in Damascus has set off a scramble for territory and power among fighters with competing interests.`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/in-northern-syria-turkish-backed-rebels-advance-on-a-town-held-by-kurdish-led-us-backed-forces
+
+**Why Gary O'Neil is likely to still be in charge for Wolves' next game**\
+`Gary O'Neil is likely to keep his job at Wolves until the Ipswich game — and a lack of options is one reason behind it`\
+https://nytimes.com/athletic/5984140/2024/12/10/gary-oneil-wolves-future-ipswich/
+
 **Heat Today: How Erik Spoelstra's latest lineup tweak sparked a Miami turnaround**\
 `Miami had a slow start to the season, but Erik Spoelstra's savvy might have saved it`\
 https://nytimes.com/athletic/5983878/2024/12/10/miami-heat-erik-spoelstra-jimmy-butler-tyler-herro-bam-adebayo-nba/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/10/crosswords/wordle-review-1271.html
 **A Filmmaker, a Spy and France’s Richest Man Meet in a Paris Court**\
 `Bernard Arnault, the head of LVMH, squared off with a documentary maker in a case of espionage gone wrong, a showdown that had been brewing for years.`\
 https://nytimes.com/2024/12/10/business/lvmh-bernard-arnault-spy-trial.html
-
-**A Chic ’70s Vibe in the Desert, Complete With Gems and Crystals**\
-`Two brothers and a designer created a development company in Pioneertown, Calif., to bring the local natural beauty to the old places that needed it.`\
-https://nytimes.com/2024/12/10/realestate/small-desert-houses-pioneertown.html
-
-**Brighton confirm Diego Gomez signing from Inter Miami**\
-`Brighton &amp; Hove Albion have announced the signing of midfielder Diego Gomez from Inter Miami.`\
-https://nytimes.com/athletic/5984232/2024/12/10/diego-gomez-brighton-transfer-inter-miami/
-
-**Should Biden Issue Pre-emptive Pardons?**\
-`Readers discuss a column by Michelle Goldberg and an editorial. Also: Farewell, Paul Krugman; jeopardizing jobs; hating and fearing death.`\
-https://nytimes.com/2024/12/10/opinion/biden-pardons.html
-
-**Cowboys Today: Jerry Jones still not interested in seeing Trey Lance over Cooper Rush**\
-`With the playoffs out of the picture, an offseason task becomes more obvious: The Cowboys need more playmakers on offense.`\
-https://nytimes.com/athletic/5984102/2024/12/10/cowboys-cooper-rush-trey-lance-jerry-jones-overshown-injury/
 
