@@ -1,3 +1,7 @@
+**If That Manhunt Photo Looks Like a Loved One, Do You Have to Tell?**\
+`Photos of the suspect in the killing of the UnitedHealthcare C.E.O. were circulated by the police and viewed by millions of Americans, making it likely that at least a few people who saw them recognized him.`\
+https://nytimes.com/2024/12/09/nyregion/if-that-manhunt-photo-looks-like-a-loved-one-do-you-have-to-tell.html
+
 **Corrections: Dec. 10, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 10, 2024.`\
 https://nytimes.com/2024/12/09/pageoneplus/corrections-dec-10-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982740/2024/12/09/los-angeles-angels-arte-moreno-f
 **Reds manager Terry Francona back in his element after 'good year' away from baseball**\
 `Francona spent the past year working on his health and might get a scooter to ride to Great American Ball Park.`\
 https://nytimes.com/athletic/5982793/2024/12/09/reds-manager-terry-francona/
-
-**Brian Snitker on Braves' outlook, leadership after Travis d'Arnaud exit, and more**\
-`Snitker delivered his first public comments about some unexpected moves in the offseason.`\
-https://nytimes.com/athletic/5982729/2024/12/09/braves-brian-snitker-travis-darnaud/
 

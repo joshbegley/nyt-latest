@@ -1,3 +1,7 @@
+**If That Manhunt Photo Looks Like a Loved One, Do You Have to Tell?**\
+`Photos of the suspect in the killing of the UnitedHealthcare C.E.O. were circulated by the police and viewed by millions of Americans, making it likely that at least a few people who saw them recognized him.`\
+https://nytimes.com/2024/12/09/nyregion/if-that-manhunt-photo-looks-like-a-loved-one-do-you-have-to-tell.html
+
 **Corrections: Dec. 10, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 10, 2024.`\
 https://nytimes.com/2024/12/09/pageoneplus/corrections-dec-10-2024.html
