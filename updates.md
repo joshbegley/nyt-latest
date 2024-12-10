@@ -1,3 +1,7 @@
+**Keita joins Ferencvaros on loan**\
+`Former Liverpool midfielder Naby Keita has joined Hungarian club Ferencvaros on a loan deal from Werder Bremen.`\
+https://nytimes.com/athletic/5983484/2024/12/10/naby-keita-ferencvaros-transfer/
+
 **NFL QB stock report, Week 15: Does 'unstoppable' Josh Allen have MVP locked up?**\
 `Rival coaches and executives weigh in on what makes Allen so special and why they were never worried about Jayden Daniels' "slump."`\
 https://nytimes.com/athletic/5982072/2024/12/10/nfl-qb-stock-report-rankings-josh-allen-bills/

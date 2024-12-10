@@ -1,3 +1,7 @@
+**Keita joins Ferencvaros on loan**\
+`Former Liverpool midfielder Naby Keita has joined Hungarian club Ferencvaros on a loan deal from Werder Bremen.`\
+https://nytimes.com/athletic/5983484/2024/12/10/naby-keita-ferencvaros-transfer/
+
 **NFL QB stock report, Week 15: Does 'unstoppable' Josh Allen have MVP locked up?**\
 `Rival coaches and executives weigh in on what makes Allen so special and why they were never worried about Jayden Daniels' "slump."`\
 https://nytimes.com/athletic/5982072/2024/12/10/nfl-qb-stock-report-rankings-josh-allen-bills/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982451/2024/12/10/celtics-jrue-holiday-defensive-s
 **On Issue After Issue, Trump Promises the Moon. No Word on the Rocket.**\
 `The president-elect has made some of the most expansive campaign pledges in history. Some supporters fear that his bravado could undermine his ambitions.`\
 https://nytimes.com/2024/12/10/us/politics/trump-promises.html
-
-**Daniel Penny Is Acquitted in Death of Jordan Neely on Subway**\
-`Daniel Penny, a former Marine who choked a fellow subway rider on an uptown F train last year, was acquitted on a charge of criminally negligent homicide on Monday, ending a case that had come to exemplify New York City’s post-pandemic struggles.`\
-https://nytimes.com/video/nyregion/100000009868247/daniel-penny-is-acquitted-in-death-of-jordan-neely-on-subway.html
 
