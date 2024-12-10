@@ -1,3 +1,11 @@
+**Caleb Williams' toughness — physical and mental — stands out as Bears crumble**\
+`The Bears have lost seven games in a row and have fired multiple coaches, but it's clear that they haven't broken Williams.`\
+https://nytimes.com/athletic/5982795/2024/12/10/bears-caleb-williams-toughness/
+
+**Kevin O'Connell deserving of national praise as Vikings continue to ascend**\
+`Minnesota's head coach has earned credit for what he and his team have done during their 11-2 start — but also for how they've done it.`\
+https://nytimes.com/athletic/5982370/2024/12/10/kevin-oconnell-vikings-coach-of-the-year/
+
 **What would Team Europe look like for the 4 Nations Face-Off and how would it do?**\
 `A whole new infusion of skill would make Team Europe worth watching at the 4 Nations Face-Off.`\
 https://nytimes.com/athletic/5981672/2024/12/10/team-europe-4-nations-face-off/
