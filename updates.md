@@ -1,3 +1,7 @@
+**Mookie Betts is a shortstop again, and more from the Dodgers at the Winter Meetings**\
+`The Dodgers are still interested in a reunion with Teoscar Hernández, and they have a strong foothold in Japan, where there's Roki Sasaki.`\
+https://nytimes.com/athletic/5982735/2024/12/09/mookie-betts-shortstop-dodgers/
+
 **After missing out on top target Juan Soto, Blue Jays have to find way to bounce back better**\
 `A lot is riding on this offseason for the Blue Jays.`\
 https://nytimes.com/athletic/5982775/2024/12/09/blue-jays-juan-soto-failed-bid/
