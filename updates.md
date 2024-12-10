@@ -1,3 +1,15 @@
+**Willy Adames a strong fit for the Giants, but more is needed to compete in NL West: Law**\
+`Adames is an excellent fit for the Giants for at least the next three years, fitting their most likely timeline for playoff contention.`\
+https://nytimes.com/athletic/5983222/2024/12/10/sf-giants-willy-adames-signing-analysis-2/
+
+**Why have Japanese players become so attractive to Championship clubs?**\
+`Factors including work-permit rules, affordability and tactical fit have combined to make Japanese players worth investing in `\
+https://nytimes.com/athletic/5965548/2024/12/10/why-have-japanese-players-become-so-attractive-to-championship-clubs/
+
+**Alisson is back, which raises the question again – can Kelleher really just sit on Liverpool's bench?**\
+`Come next summer Liverpool could have three goalkeepers worthy of starting. Who's going to make way?`\
+https://nytimes.com/athletic/5981018/2024/12/10/alisson-kelleher-liverpool/
+
 **Ja'Marr Chase's TD lifts Bengals to 27-20 win vs. Cowboys: Takeaways**\
 `The Cowboys mishandled a blocked punt late in the game that proved costly.`\
 https://nytimes.com/athletic/5982188/2024/12/10/cowboys-bengals-mnf-score-result-takeaways/
