@@ -1,3 +1,15 @@
+**Jamie Foxx on His Stroke and Other Life-Changing Moments in ‘What Happened Was …’**\
+`The show is both an act of gratitude and a stand-up special. It’s one of four new comedy hours worth checking out.`\
+https://nytimes.com/2024/12/10/arts/television/jamie-foxx-what-happened-was-netflix-special.html
+
+**A Northern Gaza Hospital Lacks Food and Water for Patients, Officials Say**\
+`The health ministry in Gaza said dozens of patients are at risk of death because the Indonesian Hospital does not have enough water and food to keep them alive.`\
+https://nytimes.com/2024/12/10/world/middleeast/gaza-hospital-food-water-shortage.html
+
+**Cowboys LB DeMarvion Overshown could miss 2025 season due to knee injury**\
+`The rising star defender suffered the season-ending knee injury on "Monday Night Football" against the Bengals.`\
+https://nytimes.com/athletic/5984877/2024/12/10/demarvion-overshown-injury-knee-cowboys/
+
 **Explaining how BOS Nation's stadium lawsuit could derail the team's NWSL start**\
 `BOS Nation has faced multiple obstacles in the year since announcing it was joining the league. The latest hurdle could delay its debut.`\
 https://nytimes.com/athletic/5984817/2024/12/10/bos-nation-fc-nwsl-stadium-lawsuit/

@@ -1,3 +1,15 @@
+**Jamie Foxx on His Stroke and Other Life-Changing Moments in ‘What Happened Was …’**\
+`The show is both an act of gratitude and a stand-up special. It’s one of four new comedy hours worth checking out.`\
+https://nytimes.com/2024/12/10/arts/television/jamie-foxx-what-happened-was-netflix-special.html
+
+**A Northern Gaza Hospital Lacks Food and Water for Patients, Officials Say**\
+`The health ministry in Gaza said dozens of patients are at risk of death because the Indonesian Hospital does not have enough water and food to keep them alive.`\
+https://nytimes.com/2024/12/10/world/middleeast/gaza-hospital-food-water-shortage.html
+
+**Cowboys LB DeMarvion Overshown could miss 2025 season due to knee injury**\
+`The rising star defender suffered the season-ending knee injury on "Monday Night Football" against the Bengals.`\
+https://nytimes.com/athletic/5984877/2024/12/10/demarvion-overshown-injury-knee-cowboys/
+
 **Explaining how BOS Nation's stadium lawsuit could derail the team's NWSL start**\
 `BOS Nation has faced multiple obstacles in the year since announcing it was joining the league. The latest hurdle could delay its debut.`\
 https://nytimes.com/athletic/5984817/2024/12/10/bos-nation-fc-nwsl-stadium-lawsuit/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/10/us/salisbury-university-hate-crime-charges.html
 **Syria’s New Leaders Vow Punishment for Atrocities Under al-Assad**\
 `The rebels who seized Damascus are trying to get a new government up and running, even as foreign powers like Israel and Turkey, and armed Syrian groups, fight for power.`\
 https://nytimes.com/2024/12/10/world/middleeast/syria-rebels-justice.html
-
-**Nebraska fills defensive staff, promotes John Butler to DC: Source**\
-`Butler had been the interim DC since Tony White left the program for the same role at Florida State earlier this month.`\
-https://nytimes.com/athletic/5985013/2024/12/10/nebraska-defensive-coordinator-john-butler-college-football/
-
-**G.M. Will Stop Developing Self-Driving Taxis**\
-`The company said it would now focus its efforts on developing fully autonomous vehicles for personal use.`\
-https://nytimes.com/2024/12/10/business/gm-cruise-robotaxi.html
-
-**French Court Finds Writer Guilty of Denying Rwandan Genocide**\
-`Charles Onana and his publisher were fined for passages in a book that were found to have violated a French law making it illegal to deny an officially recognized genocide.`\
-https://nytimes.com/2024/12/10/world/europe/france-author-rwanda-genocide.html
 
