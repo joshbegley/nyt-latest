@@ -1,3 +1,7 @@
+**With Quick Vote and Little Fanfare, Saudi Arabia on Track to Get 2034 World Cup**\
+`Critics have objected to the bidding process, and human rights groups have raised concerns about workplace safety for the migrants who will build the stadiums needed to host the event.`\
+https://nytimes.com/2024/12/10/world/middleeast/saudi-world-cup-human-rights.html
+
 **Pepperdine Students Huddled in Library as Malibu Fire Raged Outside**\
 `About 3,000 people sheltered on the university’s campus in Malibu, Calif., overnight on Monday. Some of them watched the flames through the windows of a library.`\
 https://nytimes.com/2024/12/10/us/pepperdine-malibu-wildfire-shelter-in-place.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983878/2024/12/10/miami-heat-erik-spoelstra-jimmy-
 **Baseball Hall of Famer Ryne Sandberg reveals cancer recurrence**\
 `Sandberg shared the update on his Instagram account, where he first publicly revealed his metastatic prostate cancer diagnosis in January.`\
 https://nytimes.com/athletic/5984331/2024/12/10/ryne-sandberg-mlb-cancer-recurrence/
-
-**What to Know About Syria’s Notorious Sednaya Prison**\
-`Amnesty International described it as a “human slaughterhouse,” where, other rights groups say, tens of thousands of people were detained, tortured and killed during the 13-year civil war.`\
-https://nytimes.com/2024/12/10/world/middleeast/sednaya-prison-syria.html
 
