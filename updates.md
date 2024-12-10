@@ -1,3 +1,11 @@
+**Do I Really Need to Throw Out My Black Plastic Spatula?**\
+`A new study detected dangerous chemicals in a variety of household items. But experts say the health risks aren’t clear-cut.`\
+https://nytimes.com/2024/12/10/well/black-plastic-health.html
+
+**NASCAR president Steve Phelps on the charter situation, the playoff format and more**\
+`NASCAR president Steve Phelps talks about the season, schedule innovation, a playoff format under fire and much more.`\
+https://nytimes.com/athletic/5975206/2024/12/10/steve-phelps-nascar-charter-playoff-format-future/
+
 **How Murdoch Could Fight Back After a Big Legal Defeat**\
 `Rupert Murdoch lost a bid to rewrite a family trust to give his son Lachlan control of his empire after he dies. But the nonagenarian media titan plans to appeal.`\
 https://nytimes.com/2024/12/10/business/dealbook/murdoch-lachlan-trust-succession.html

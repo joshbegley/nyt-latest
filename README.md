@@ -1,3 +1,7 @@
+**What we learned in the first 24 hours of college football's transfer window**\
+`Everyone’s more prepared in Year 3, from players to agents to recruiting staffs, for the roughly 1,000 names that entered the portal Monday.`\
+https://nytimes.com/athletic/5983726/2024/12/10/college-football-transfer-portal-entries-quarterbacks/
+
 **Do I Really Need to Throw Out My Black Plastic Spatula?**\
 `A new study detected dangerous chemicals in a variety of household items. But experts say the health risks aren’t clear-cut.`\
 https://nytimes.com/2024/12/10/well/black-plastic-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/world/africa/kenya-femicide-protests.html
 **Wolves captain Lemina apologises for post-West Ham altercation**\
 `Wolverhampton Wanderers captain Mario Lemina has apologised to fans for the ill-tempered scenes in which he squared up to coach Shaun Derry and clashed with team-mates following the 2-1 defeat at West Ham United.`\
 https://nytimes.com/athletic/5983649/2024/12/10/mario-lemina-west-ham-wolves-apology/
-
-**Kylian Mbappe hasn’t looked himself at Real Madrid. Are things beginning to change?**\
-`Mbappe's first few months at Madrid have not gone to plan — is he showing signs of getting back on track?`\
-https://nytimes.com/athletic/5983513/2024/12/10/kylian-mbappe-real-madrid-confidence/
 
