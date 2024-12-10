@@ -1,3 +1,7 @@
+**The queasy, quirky, eerily quiet reality of an 'El Sackico'**\
+`Two struggling teams and two managers under pressure - Tim Spiers experiences the eerie malaise of West Ham against Wolves`\
+https://nytimes.com/athletic/5982016/2024/12/10/wolves-west-ham-lopetegui-oneil-manager/
+
 **With an Eye on China, Australia Strikes a Deal With Nauru**\
 `In return for financial support, the Pacific island nation of Nauru pledged not to enter any security pacts without Australia’s assent.`\
 https://nytimes.com/2024/12/10/world/australia/australia-treaty-nauru.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983155/2024/12/10/knicks-raptors-jalen-brunson/
 **Law: Willy Adames a strong fit for the Giants, but more is needed to compete in NL West**\
 `Adames is an excellent fit for the Giants for at least the next three years, fitting their most likely timeline for playoff contention.`\
 https://nytimes.com/athletic/5983222/2024/12/10/sf-giants-willy-adames-free-agent-analysis/
-
-**Why have Japanese players become so attractive to Championship clubs?**\
-`Factors including work-permit rules, affordability and tactical fit have combined to make Japanese players worth investing in `\
-https://nytimes.com/athletic/5965548/2024/12/10/why-have-japanese-players-become-so-attractive-to-championship-clubs/
 
