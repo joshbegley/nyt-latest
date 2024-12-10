@@ -1,3 +1,15 @@
+**Wildfire Breaks Out in Malibu, Forcing Evacuations**\
+`The Franklin fire started Monday night and began to spread quickly, as large parts of Southern California braced for dangerous wildfire conditions.`\
+https://nytimes.com/2024/12/10/us/franklin-fire-malibu-california.html
+
+**Sarah Jessica Parker Lands Her Dream Gig: Booker Prize Judge**\
+`The actress and publisher will help decide the 2025 winner of the prestigious British book award. It is “the thrill of a life,” she said.`\
+https://nytimes.com/2024/12/10/books/sarah-jessica-parker-booker-prize.html
+
+**Manuel Neuer ruled out until January with broken rib**\
+`Bayern Munich head coach Vincent Kompany has confirmed that goalkeeper Manuel Neuer has suffered a broken rib and will likely be out until 2025.`\
+https://nytimes.com/athletic/5983413/2024/12/10/manuel-neuer-injury-update-bayern/
+
 **Here are the latest developments.**\
 `By Qasim Nauman and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/here-are-the-latest-developments
