@@ -1,3 +1,11 @@
+**Hate Crime Charges Dropped Against Most Salisbury U. Students Who Were Arrested**\
+`Hate crime charges against at least 12 of the 15 Maryland students accused of assaulting a person because of his sexual orientation have been dismissed, court records show. They still face misdemeanor counts.`\
+https://nytimes.com/2024/12/10/us/salisbury-university-hate-crime-charges.html
+
+**Syria’s New Leaders Vow Punishment for Atrocities Under al-Assad**\
+`The rebels who seized Damascus are trying to get a new government up and running, even as foreign powers like Israel and Turkey, and armed Syrian groups, fight for power.`\
+https://nytimes.com/2024/12/10/world/middleeast/syria-rebels-justice.html
+
 **Nebraska fills defensive staff, promotes John Butler to DC: Source**\
 `Butler had been the interim DC since Tony White left the program for the same role at Florida State earlier this month.`\
 https://nytimes.com/athletic/5985013/2024/12/10/nebraska-defensive-coordinator-john-butler-college-football/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009869599/uncertainty-and-hope-
 **Nikki Giovanni: A Life in Pictures**\
 `The poet left a long visual record of a career in the public sphere.`\
 https://nytimes.com/2024/12/10/books/nikki-giovanni-photos.html
-
-**Fantasy football market share report: Addison is a must-start; Bigsby is noteworthy**\
-`In his fantasy football market report, Michael Salfino says that Jordan Addison is feasting off the attention paid to Justin Jefferson.`\
-https://nytimes.com/athletic/5984602/2024/12/10/fantasy-football-market-share-addison-bigsby-charbonnet/
-
-**Orioles have made incremental adds but need to take a big swing: Law**\
-`The Orioles have added two hitters who mash lefties but need bigger acquisitions to take advantage of their opportunity to win the AL East.`\
-https://nytimes.com/athletic/5984511/2024/12/10/orioles-offseason-outlook/
 
