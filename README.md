@@ -1,3 +1,7 @@
+**The Briefing: Atalanta 2 Real Madrid 3: Madrid's big hitters step up, but Lookman deserves fanfare**\
+`Atalanta and Real Madrid, as expected, served up a cracking Champions League match on Tuesday evening...`\
+https://nytimes.com/athletic/5974243/2024/12/10/atalanta-2-real-madrid-3-mbappe-bellingham-vinicius-lookman/
+
 **Hate Crime Charges Dropped Against Most Salisbury U. Students Who Were Arrested**\
 `Hate crime charges against at least 12 of the 15 Maryland students accused of assaulting a person because of his sexual orientation have been dismissed, court records show. They still face misdemeanor counts.`\
 https://nytimes.com/2024/12/10/us/salisbury-university-hate-crime-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/climate/climate-movement-trump-election.html
 **Uncertainty and Hope on the Road to and from Damascus**\
 `Thousands of Syrians have been traveling to and from the Lebanese border since the fall of Bashar al-Assad’s regime. Some families hoped to reunite with loved ones, while others are leaving amid an uncertain future.`\
 https://nytimes.com/video/world/middleeast/100000009869599/uncertainty-and-hope-on-the-road-to-and-from-damascus.html
-
-**Nikki Giovanni: A Life in Pictures**\
-`The poet left a long visual record of a career in the public sphere.`\
-https://nytimes.com/2024/12/10/books/nikki-giovanni-photos.html
 
