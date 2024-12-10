@@ -1,3 +1,7 @@
+**Why Gary O'Neil is likely to still be in charge for Wolves' next game**\
+`Gary O'Neil is likely to keep his job at Wolves until the Ipswich game - and a lack of options is one reason behind it`\
+https://nytimes.com/athletic/5984140/2024/12/10/gary-oneil-wolves-future-ipswich/
+
 **With Quick Vote and Little Fanfare, Saudi Arabia on Track to Get 2034 World Cup**\
 `Critics have objected to the bidding process, and human rights groups have raised concerns about workplace safety for the migrants who will build the stadiums needed to host the event.`\
 https://nytimes.com/2024/12/10/world/middleeast/saudi-world-cup-human-rights.html

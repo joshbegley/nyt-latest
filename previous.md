@@ -27,7 +27,7 @@ https://nytimes.com/2024/12/10/opinion/tiktok-first-amendment-china-ban-bytedanc
 https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/in-northern-syria-turkish-backed-rebels-advance-on-a-town-held-by-kurdish-led-us-backed-forces
 
 **Why Gary O'Neil is likely to still be in charge for Wolves' next game**\
-`Gary O'Neil is likely to keep his job at Wolves until the Ipswich game — and a lack of options is one reason behind it`\
+`Gary O'Neil is likely to keep his job at Wolves until the Ipswich game - and a lack of options is one reason behind it`\
 https://nytimes.com/athletic/5984140/2024/12/10/gary-oneil-wolves-future-ipswich/
 
 **Heat Today: How Erik Spoelstra's latest lineup tweak sparked a Miami turnaround**\
