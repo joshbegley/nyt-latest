@@ -1,3 +1,7 @@
+**Michigan DT Mason Graham, likely top-10 pick, declares for NFL Draft**\
+`A three-year star on the Michigan defensive line, Mason Graham will enter the 2025 NFL Draft. Here's where his stock stands.`\
+https://nytimes.com/athletic/5983832/2024/12/10/mason-graham-nfl-draft-michigan/
+
 **The Connections Companion No. 549**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
 https://nytimes.com/2024/12/10/crosswords/connections-companion-549.html
