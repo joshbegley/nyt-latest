@@ -1,3 +1,20 @@
+**With Roki Sasaki officially posted, agent Joel Wolfe discusses upcoming free agent process**\
+`On Tuesday, Wolfe offered new details about the posting process, which teams Sasaki might prefer to sign with and what’s important to him.`\
+https://nytimes.com/athletic/5984686/2024/12/10/roki-sasaki-signing-details-mlb-posting/
+
+**Read the Justice Department’s Report**\
+`A two-year investigation by the agency found patterns of “outrageous” conduct by the police in Worcester, Mass., including excessive use of force and sexual contact between undercover officers and women suspected of prostitution.`\
+https://nytimes.com/interactive/2024/12/10/us/worcester-police-sexual-misconduct-justice-department.html
+
+**75 years later...a new discussion about Jackie Robinson rookie cards?**\
+`What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
+`\
+https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
+
+**Police Say Suspect in UnitedHealthcare Shooting Saw Himself as a Hero**\
+`The suspect’s three-page manifesto, summarized by the police, described the killing as a “symbolic takedown.”`\
+https://nytimes.com/2024/12/10/nyregion/luigi-mangione-manifesto.html
+
 **75 years later...a new discussion about Jackie Robinson rookie cards?**\
 `What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
 `\

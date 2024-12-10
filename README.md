@@ -1,3 +1,11 @@
+**Police in Worcester, Mass., Engaged in Sexual Misconduct, Justice Dept. Says**\
+`The agency found that the Police Department used excessive force and allowed undercover officers to have sexual contact with women suspected of being prostitutes.`\
+https://nytimes.com/2024/12/10/us/worcester-police-sexual-misconduct-justice-department.html
+
+**U.S. Data Agency Blames Old Tech and Other Failures for Missteps**\
+`The Bureau of Labor Statistics, which tracks jobs and inflation, issued a report on what caused embarrassing episodes in which data was released improperly.`\
+https://nytimes.com/2024/12/10/business/economy/bls-data-report.html
+
 **With Roki Sasaki officially posted, agent Joel Wolfe discusses upcoming free agent process**\
 `On Tuesday, Wolfe offered new details about the posting process, which teams Sasaki might prefer to sign with and what’s important to him.`\
 https://nytimes.com/athletic/5984686/2024/12/10/roki-sasaki-signing-details-mlb-posting/
@@ -30,12 +38,4 @@ https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-ceo-luigi-mangione
 **Explaining why FIFA's Saudi Arabia World Cup 2034 vote is already a done deal**\
 `Today, the Gulf state will secure football's biggest prize. This is how Saudi did it`\
 https://nytimes.com/athletic/5983648/2024/12/10/saudi-arabia-world-cup-2034-explained-fifa/
-
-**Police Say Suspect in UnitedHealthcare Shooting Saw Himself as a Hero**\
-`The suspect’s three-page manifesto, summarized by the police, described the killing as a “symbolic takedown.”`\
-https://nytimes.com/2024/12/10/nyregion/luigi-mangione-manifesto.html
-
-**Going Deep Into The Permian Basin**\
-`In 2019, the journalist Christian Wallace created the “Boomtown” podcast, spotlighting the volatile world of West Texas oil. It has now inspired a new Taylor Sheridan TV series. "Landman"`\
-https://nytimes.com/paidpost/paramount/going-deep-into-the-permian-basin.html
 
