@@ -1,3 +1,7 @@
+**The Roki Sasaki sweepstakes are underway, a 'major priority' for the Dodgers**\
+`“We’re going to do whatever we can, and know that there are a lot of other teams that are going to do the exact same thing,” Friedman said.`\
+https://nytimes.com/athletic/5985497/2024/12/10/roki-sasaki-dodgers-interest/
+
 **‘We Thought We Would Be Executed’: Freed Prisoner on Life Inside Sednaya**\
 `Around 2,000 people emerged on Sunday from Sednaya, a facility used to detain, torture and kill tens of thousands of prisoners during Syria’s 13-year civil war. These prisoners were released after the Assad regime in Syria fell to conquering rebels last weekend.`\
 https://nytimes.com/video/world/middleeast/100000009869415/sednaya-prisoner-syria-civil-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/technology/trump-ftc-andrew-ferguson.html
 **Nationals win MLB Draft Lottery, land No. 1 pick in 2025 draft**\
 `In the past, the Nationals have selected both Stephen Strasburg (2009), as well as Bryce Harper (2010) with the No. 1 selection. `\
 https://nytimes.com/athletic/5985327/2024/12/10/mlb-2024-draft-lottery-washington-nationals-no-1-pick/
-
-**Biden Says Trump’s Tax Cuts and Tariffs Would Be ‘a Major Mistake’**\
-`The president also said his successor would face blowback from the Republican Party if he tried to unwind the Biden agenda.`\
-https://nytimes.com/2024/12/10/us/politics/biden-trump-tax-cuts-tariffs.html
 
