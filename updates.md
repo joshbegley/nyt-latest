@@ -1,3 +1,11 @@
+**Scottie Scheffler wins third consecutive PGA Tour Player of the Year award**\
+`Scheffler received 91 percent of the vote for the award and was selected over Xander Schauffele and Rory McIlroy.`\
+https://nytimes.com/athletic/5984953/2024/12/10/scottie-scheffler-pga-tour-player-of-the-year/
+
+**N.Y.P.D. Sergeant Is Charged With Shoplifting From Target**\
+`Sgt. Rayna Madho was charged with two counts of petty larceny for stealing from a store on Long Island on two different occasions.`\
+https://nytimes.com/2024/12/10/nyregion/nyc-police-officer-shoplifting.html
+
 **Andrés Giménez traded to Blue Jays from Guardians: Source**\
 `Giménez, 26, is a three-time Gold Glove winner and one time AL All-Star selection.`\
 https://nytimes.com/athletic/5985315/2024/12/10/andres-gimenez-toronto-blue-jays-trade/
