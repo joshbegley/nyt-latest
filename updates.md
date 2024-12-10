@@ -1,3 +1,7 @@
+**Kevin Korchinski shows how far he's come in Anders Sorensen's first Blackhawks victory**\
+`Korchinski's play in a 2-1 win over the Rangers was a beacon of hope for both Chicago's immediate future and the long-term outlook.`\
+https://nytimes.com/athletic/5983106/2024/12/09/blackhawks-korchinski-sorenson-rangers/
+
 **Nikki Giovanni, Poet Who Wrote of Black Joy, Dies at 81**\
 `Ms. Giovanni tackled race, gender, sex, politics and love. She was a celebrity poet and public intellectual who appeared on television and toured the country.`\
 https://nytimes.com/2024/12/09/obituaries/nikki-giovanni-poet-who-wrote-of-black-joy-dies-at-81.html
