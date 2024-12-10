@@ -1,3 +1,19 @@
+**Many Evacuated, but Some Malibu Residents Broke Out the Hoses**\
+`Thousands of people were told to flee their homes in Malibu, Calif., as the Franklin fire approached. But a few stayed behind, using garden hoses to protect their property and themselves.`\
+https://nytimes.com/2024/12/10/us/malibu-franklin-fire-residents.html
+
+**Champions League Briefing: Vintage Mbappe (for 35 mins), Liverpool march on, and how did Retegui miss?**\
+`Real Madrid scraped past Atalanta, Bayern's young and old starred, Liverpool marched on with flawless record and Brest won again - of course`\
+https://nytimes.com/athletic/5984499/2024/12/10/champions-league-mbappe-real-madrid-retegui-liverpool-bayern/
+
+**Trump Picks Andrew Ferguson to Lead Federal Trade Commission**\
+`Mr. Ferguson, a current Republican member of the agency, will replace Lina Khan, who had aggressively challenged mergers and the power of the biggest tech companies.`\
+https://nytimes.com/2024/12/10/technology/trump-ftc-andrew-ferguson.html
+
+**Nationals win MLB Draft Lottery, land No. 1 pick in 2025 draft**\
+`In the past, the Nationals have selected both Stephen Strasburg (2009), as well as Bryce Harper (2010) with the No. 1 selection. `\
+https://nytimes.com/athletic/5985327/2024/12/10/mlb-2024-draft-lottery-washington-nationals-no-1-pick/
+
 **Biden Says Trump’s Tax Cuts and Tariffs Would Be ‘a Major Mistake’**\
 `The president also said his successor would face blowback from the Republican Party if he tried to unwind the Biden agenda.`\
 https://nytimes.com/2024/12/10/us/politics/biden-trump-tax-cuts-tariffs.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/10/opinion/syria-assad-israel.html
 **Yankees to sign lefty Max Fried to 8-year, $218 million contract**\
 `Fried finished his Braves tenure as a two-time NL All Star, a three-time Gold Glove Award winner and the 2021 Silver Slugger winner.`\
 https://nytimes.com/athletic/5941194/2024/12/10/max-fried-yankees-free-agent-deal/
-
-**Mountain West Conference to add UC Davis as non-football member in 2026**\
-`It’s the latest addition for the MW following the upcoming defections of five schools for the rebuilding Pac-12 in summer 2026`\
-https://nytimes.com/athletic/5985143/2024/12/10/mountain-west-conference-to-add-uc-davis-as-full-non-sports-member-in-2026/
-
-**Suspect in C.E.O. Killing Fights Extradition**\
-`Also, a wildfire roared into Malibu. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/12/10/briefing/suspect-ceo-killing-california-fire-malibu.html
-
-**The White House says no decision has been made on blocking the U.S. Steel takeover.**\
-`By Alan Rappeport and Lauren Hirsch`\
-https://nytimes.com/live/2024/12/10/us/trump-news/the-white-house-says-no-decision-has-been-made-on-blocking-the-us-steel-takeover
-
-**Jamie Foxx on His Stroke and Other Life-Changing Moments in ‘What Happened Was …’**\
-`The show is both an act of gratitude and a stand-up special. It’s one of four new comedy hours worth checking out.`\
-https://nytimes.com/2024/12/10/arts/television/jamie-foxx-what-happened-was-netflix-special.html
 
