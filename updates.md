@@ -1,3 +1,15 @@
+**What we're hearing about trade interest in Devin Williams and more from MLB's winter meetings**\
+`The Orioles, Rangers and A's are all looking at free-agent starting pitchers, while the Marlins are open to trading lefty Jesús Luzardo.`\
+https://nytimes.com/athletic/5983167/2024/12/09/devin-williams-brewers-trade-mlb-winter-meetings/
+
+**NFL playoff picture after Week 14: Bucs reclaim NFC South lead; Eagles clinch playoff berth**\
+`Miami stayed in the hunt with its OT victory over the Jets, and the Rams' upset of the Bills puts them one game back of the Commanders. `\
+https://nytimes.com/athletic/5966559/2024/12/09/nfl-playoff-picture-week-14-updates/
+
+**Kevin Korchinski shows how far he's come in Anders Sorensen's first Blackhawks victory**\
+`Korchinski's play in a 2-1 win over the Rangers was a beacon of hope for Chicago's immediate future and long-term outlook.`\
+https://nytimes.com/athletic/5983106/2024/12/09/blackhawks-korchinski-sorenson-rangers/
+
 **Kevin Korchinski shows how far he's come in Anders Sorensen's first Blackhawks victory**\
 `Korchinski's play in a 2-1 win over the Rangers was a beacon of hope for both Chicago's immediate future and the long-term outlook.`\
 https://nytimes.com/athletic/5983106/2024/12/09/blackhawks-korchinski-sorenson-rangers/
