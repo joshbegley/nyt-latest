@@ -1,3 +1,11 @@
+**Will the Angels and Arte Moreno ever spend on a a top-flight free agent again?**\
+`The Angels' entire offseason strategy has centered around finding reclamation projects and strong role players, among others.`\
+https://nytimes.com/athletic/5982740/2024/12/09/los-angeles-angels-arte-moreno-free-agency/
+
+**Reds manager Terry Francona back in his element after 'good year' away from baseball**\
+`Francona spent the past year working on his health and might get a scooter to ride to Great American Ball Park.`\
+https://nytimes.com/athletic/5982793/2024/12/09/reds-manager-terry-francona/
+
 **Brian Snitker on Braves' outlook, leadership after Travis d'Arnaud exit, and more**\
 `Snitker delivered his first public comments about some unexpected moves in the offseason.`\
 https://nytimes.com/athletic/5982729/2024/12/09/braves-brian-snitker-travis-darnaud/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/5979688/2024/12/09/mets-clay-holmes-reliever/
 **Cashman: Steinbrenner's Soto pursuit 'went above and beyond'**\
 `"There's a lot of different ways to figure this thing out, and so we're going to have to figure out a different way without Juan."`\
 https://nytimes.com/athletic/5982637/2024/12/09/yankees-juan-soto-brian-cashman-hal-steinbrenner/
-
-**Travis Hunter, Ashton Jeanty highlight Heisman Trophy finalists**\
-`The award will likely be one of the rare times in recent years where the winner plays a position other than quarterback.`\
-https://nytimes.com/athletic/5982578/2024/12/09/travis-hunter-ashton-jeanty-heisman-trophy-finalists/
-
-**Mirtle: Why the Maple Leafs aren't as dangerous offensively this year, and how to fix it**\
-`The Leafs were second in the league last season in goals per game and now sit 18th. Why, and what should they do about it?`\
-https://nytimes.com/athletic/5981982/2024/12/09/maple-leafs-offensive-production-analysis/
 
