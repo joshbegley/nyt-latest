@@ -1,3 +1,19 @@
+**McConnell Sustained a Sprained Wrist During Fall but Is ‘Fine’**\
+`Senator Mitch McConnell, the minority leader who sustained a concussion in a fall last year, was cleared to resume his work schedule, according to his office.`\
+https://nytimes.com/2024/12/10/us/politics/mitch-mcconnell-fall-sprained-wrist.html
+
+**Eric Trump Promises the ‘Most Pro-Crypto President’ in History**\
+`Speaking at a Middle East conference, President-elect Donald J. Trump’s son said his family had embraced cryptocurrency because some banks stopped doing business with them after Jan. 6.`\
+https://nytimes.com/2024/12/10/us/politics/eric-trump-cryptocurrency-conference.html
+
+**Police in Worcester, Mass., Engaged in Sexual Misconduct, Justice Dept. Says**\
+`The agency found that the Police Department used excessive force and allowed undercover officers to have sexual contact with women suspected of being prostitutes.`\
+https://nytimes.com/2024/12/10/us/worcester-police-sexual-misconduct-justice-department.html
+
+**U.S. Data Agency Blames Old Tech and Other Failures for Missteps**\
+`The Bureau of Labor Statistics, which tracks jobs and inflation, issued a report on what caused embarrassing episodes in which data was released improperly.`\
+https://nytimes.com/2024/12/10/business/economy/bls-data-report.html
+
 **With Roki Sasaki officially posted, agent Joel Wolfe discusses upcoming free agent process**\
 `On Tuesday, Wolfe offered new details about the posting process, which teams Sasaki might prefer to sign with and what’s important to him.`\
 https://nytimes.com/athletic/5984686/2024/12/10/roki-sasaki-signing-details-mlb-posting/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-card
 **Super Bowl odds: How the Lions, Chiefs and Bills stack up after a week of close games**\
 `Super Bowl betting odds are on the move! While the Lions are still the favorites, the Chiefs and Bills saw their odds shift after Week 14.`\
 https://nytimes.com/athletic/5984412/2024/12/10/2025-super-bowl-2025-odds-lions-chiefs-bills/
-
-**In emails from Japan, the suspect talked politics and philosophy.**\
-`By Jacey Fortin`\
-https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-ceo-luigi-mangione/in-emails-from-japan-suspect-talked-politics-and-philosophy
-
-**Explaining why FIFA's Saudi Arabia World Cup 2034 vote is already a done deal**\
-`Today, the Gulf state will secure football's biggest prize. This is how Saudi did it`\
-https://nytimes.com/athletic/5983648/2024/12/10/saudi-arabia-world-cup-2034-explained-fifa/
-
-**Police Say Suspect in UnitedHealthcare Shooting Saw Himself as a Hero**\
-`The suspect’s three-page manifesto, summarized by the police, described the killing as a “symbolic takedown.”`\
-https://nytimes.com/2024/12/10/nyregion/luigi-mangione-manifesto.html
-
-**Going Deep Into The Permian Basin**\
-`In 2019, the journalist Christian Wallace created the “Boomtown” podcast, spotlighting the volatile world of West Texas oil. It has now inspired a new Taylor Sheridan TV series. "Landman"`\
-https://nytimes.com/paidpost/paramount/going-deep-into-the-permian-basin.html
 
