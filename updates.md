@@ -1,3 +1,24 @@
+**McConnell Sprained Wrist During a Fall but Is ‘Fine’**\
+`Senator Mitch McConnell, the minority leader who sustained a concussion in a fall last year, was cleared to resume his work schedule, according to his office.`\
+https://nytimes.com/2024/12/10/us/politics/mitch-mcconnell-fall-sprained-wrist.html
+
+**Eric Trump Promises the ‘Most Pro-Crypto President’ in History**\
+`Speaking at a Middle East conference, President-elect Donald J. Trump’s son said his family had embraced cryptocurrency because some banks stopped doing business with them after Jan. 6.`\
+https://nytimes.com/2024/12/10/us/politics/eric-trump-cryptocurrency-conference.html
+
+**Police in Worcester, Mass., Engaged in Sexual Misconduct, Justice Dept. Says**\
+`The agency found that the Police Department used excessive force and allowed undercover officers to have sexual contact with women suspected of being prostitutes.`\
+https://nytimes.com/2024/12/10/us/worcester-police-sexual-misconduct-justice-department.html
+
+**U.S. Data Agency Blames Old Tech and Other Failures for Missteps**\
+`The Bureau of Labor Statistics, which tracks jobs and inflation, issued a report on what caused embarrassing episodes in which data was released improperly.`\
+https://nytimes.com/2024/12/10/business/economy/bls-data-report.html
+
+**75 years later...a new discussion about Jackie Robinson rookie cards?**\
+`What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
+`\
+https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
+
 **75 years later...a new discussion about Jackie Robinson rookie cards?**\
 `What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
 `\
