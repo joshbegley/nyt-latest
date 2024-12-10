@@ -1,3 +1,15 @@
+**Fund-Raiser Who Pocketed Money Meant for Sick Kids and Vets Gets 10 Years in Prison**\
+`Richard Zeitlin, a telemarketing kingpin who kept 80 percent of the donations raised for charities, pleaded guilty to fraud in September.`\
+https://nytimes.com/2024/12/10/us/politics/richard-zeitlin-prison.html
+
+**How the Climate Movement Is Changing Tactics After Trump’s Win**\
+`Faced with a president-elect who has called global warming a “scam,” activists are changing their strategies and pushing a message of hope.`\
+https://nytimes.com/2024/12/10/climate/climate-movement-trump-election.html
+
+**Uncertainty and Hope on the Road to and from Damascus**\
+`Thousands of Syrians have been traveling to and from the Lebanese border since the fall of Bashar al-Assad’s regime. Some families hoped to reunite with loved ones, while others are leaving amid an uncertain future.`\
+https://nytimes.com/video/world/middleeast/100000009869599/uncertainty-and-hope-on-the-road-to-and-from-damascus.html
+
 **Nikki Giovanni: A Life in Pictures**\
 `The poet left a long visual record of a career in the public sphere.`\
 https://nytimes.com/2024/12/10/books/nikki-giovanni-a-life-in-pictures.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/10/world/middleeast/assad-presidential-palace.html
 **Lights Dim on the Friars Club as Landmark Home is Sold in Foreclosure**\
 `The six-story Manhattan townhouse, once the stomping ground of America’s comic legends, was sold at an auction on Tuesday for $17.2 million.`\
 https://nytimes.com/2024/12/10/arts/friars-club-home-sold-foreclosure.html
-
-**Tampering, projected salary cap, CBA, Olympics, schedule changes, expansion and more: NHL BOG rumblings**\
-`NHL commissioner Gary Bettman gave updates on pressing topics facing the league after its Board of Governors meeting Tuesday.`\
-https://nytimes.com/athletic/5984581/2024/12/10/nhl-board-of-governors-rumblings/
-
-**Six Arrested in Connection With Deadly Accident that Killed Over 50 Migrants**\
-`U.S. and Guatemalan authorities said the arrests were linked to a human trafficking ring and a deadly 2021 traffic accident.`\
-https://nytimes.com/2024/12/10/world/americas/guatemalans-arrested-deadly-migrant-crash.html
-
-**Federal Judge Blocks $25 Billion Kroger-Albertsons Grocery Merger**\
-`The Federal Trade Commission notched a victory in its efforts to block the supermarket merger over concerns about harm to shoppers and workers.`\
-https://nytimes.com/2024/12/10/business/kroger-albertsons-merger-ftc.html
 

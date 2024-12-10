@@ -1,3 +1,15 @@
+**Fund-Raiser Who Pocketed Money Meant for Sick Kids and Vets Gets 10 Years in Prison**\
+`Richard Zeitlin, a telemarketing kingpin who kept 80 percent of the donations raised for charities, pleaded guilty to fraud in September.`\
+https://nytimes.com/2024/12/10/us/politics/richard-zeitlin-prison.html
+
+**How the Climate Movement Is Changing Tactics After Trump’s Win**\
+`Faced with a president-elect who has called global warming a “scam,” activists are changing their strategies and pushing a message of hope.`\
+https://nytimes.com/2024/12/10/climate/climate-movement-trump-election.html
+
+**Uncertainty and Hope on the Road to and from Damascus**\
+`Thousands of Syrians have been traveling to and from the Lebanese border since the fall of Bashar al-Assad’s regime. Some families hoped to reunite with loved ones, while others are leaving amid an uncertain future.`\
+https://nytimes.com/video/world/middleeast/100000009869599/uncertainty-and-hope-on-the-road-to-and-from-damascus.html
+
 **Nikki Giovanni: A Life in Pictures**\
 `The poet left a long visual record of a career in the public sphere.`\
 https://nytimes.com/2024/12/10/books/nikki-giovanni-a-life-in-pictures.html
