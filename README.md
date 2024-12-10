@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5982809/2024/12/09/red-sox-winter-meetings-free-age
 `The Yankees, Astros and Red Sox rank as potential destinations depending how the rest of the offseason shakes out. `\
 https://nytimes.com/athletic/5982613/2024/12/09/cardinals-mlb-nolan-arenado-trade/
 
-**After missing out on top target Juan Soto, Blue Jays have to find way to bounce back better**\
+**After missing out on top target Juan Soto, Blue Jays need to bounce back better**\
 `A lot is riding on this offseason for the Blue Jays.`\
 https://nytimes.com/athletic/5982775/2024/12/09/blue-jays-juan-soto-failed-bid/
 
