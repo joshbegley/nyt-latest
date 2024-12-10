@@ -1,3 +1,7 @@
+**What to Know About Syria’s Notorious Sednaya Prison**\
+`Amnesty International described it as a “human slaughterhouse,” where, other rights groups say, tens of thousands of people were detained, tortured and killed during the 13-year civil war.`\
+https://nytimes.com/2024/12/10/world/middleeast/sednaya-prison-syria.html
+
 **Tracking the Franklin Wildfire in Malibu, Calif.**\
 `Maps and`\
 https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html

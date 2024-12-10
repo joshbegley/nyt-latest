@@ -1,3 +1,7 @@
+**What to Know About Syria’s Notorious Sednaya Prison**\
+`Amnesty International described it as a “human slaughterhouse,” where, other rights groups say, tens of thousands of people were detained, tortured and killed during the 13-year civil war.`\
+https://nytimes.com/2024/12/10/world/middleeast/sednaya-prison-syria.html
+
 **Tracking the Franklin Wildfire in Malibu, Calif.**\
 `Maps and`\
 https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/it-is-too-earl
 **Tierney ready to make Arsenal return - Arteta**\
 `Mikel Arteta says that Kieran Tierney &#8220;is ready&#8221; to make his Arsenal return if needed, with up to seven full-backs not training before their Champions League clash with Monaco.`\
 https://nytimes.com/athletic/5984011/2024/12/10/arsenal-injury-updates-monaco/
-
-**Trump Calls Trudeau the ‘Governor’ of ‘The Great State of Canada’**\
-`The president-elect’s mockery of Canada and its leader is the latest salvo after his promise to impose steep tariffs on Canadian exports.`\
-https://nytimes.com/2024/12/10/world/canada/trump-trudeau-canada-tariffs.html
 
