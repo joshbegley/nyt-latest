@@ -1,3 +1,7 @@
+**Word of the Day: connotation**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/10/learning/word-of-the-day-connotation.html
+
 **Volcanic Eruption Forces Mass Evacuation in the Philippines**\
 `Nearly 90,000 people on the island of Negros were ordered to seek shelter after Mount Kanlaon spewed deadly ash and lava.`\
 https://nytimes.com/2024/12/10/world/asia/philippines-volcano-kanlaon-eruption.html
