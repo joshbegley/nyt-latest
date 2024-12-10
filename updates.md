@@ -1,3 +1,11 @@
+**Wildfire Conditions are Expected to Ease by the End of the Week**\
+`Rising humidity and a breeze pushing moist air inland from the Pacific Ocean are expected lower the wildfire risk around Malibu, Calif., by Thursday, forecasters said.`\
+https://nytimes.com/2024/12/10/weather/fire-forecast-california.html
+
+**The Syria Opportunity**\
+`The end of al-Assad’s wretched regime unlocks many doors.`\
+https://nytimes.com/2024/12/10/opinion/syria-assad-israel.html
+
 **Yankees sign lefty Max Fried to eight-year, $218 million contract**\
 `Fried finished his Braves tenure as a two-time NL All Star, a three-time Gold Glove Award winner and the 2021 Silver Slugger winner.`\
 https://nytimes.com/athletic/5941194/2024/12/10/max-fried-yankees-free-agent-deal/
