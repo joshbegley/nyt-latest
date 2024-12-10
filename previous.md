@@ -1,3 +1,7 @@
+**Giant Migrant Shelter Complex in Brooklyn to Close by March**\
+`The imminent closure reflects concern from New York City officials that President-elect Donald J. Trump will target the shelter because it sits on federal land.`\
+https://nytimes.com/2024/12/10/nyregion/floyd-bennett-shelter-closing.html
+
 **Michigan DT Mason Graham, likely top-10 pick, declares for NFL Draft**\
 `A three-year star on the Michigan defensive line, Mason Graham will enter the 2025 NFL Draft. Here's where his stock stands.`\
 https://nytimes.com/athletic/5983832/2024/12/10/mason-graham-nfl-draft-michigan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983726/2024/12/10/college-football-transfer-portal
 **Do I Really Need to Throw Out My Black Plastic Spatula?**\
 `A new study detected dangerous chemicals in a variety of household items. But experts say the health risks aren’t clear-cut.`\
 https://nytimes.com/2024/12/10/well/black-plastic-health.html
-
-**NASCAR president Steve Phelps on the charter situation, the playoff format and more**\
-`NASCAR president Steve Phelps talks about the season, schedule innovation, a playoff format under fire and much more.`\
-https://nytimes.com/athletic/5975206/2024/12/10/steve-phelps-nascar-charter-playoff-format-future/
 
