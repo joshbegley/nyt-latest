@@ -1,3 +1,35 @@
+**What would Team Europe look like for the 4 Nations Face-Off and how would it do?**\
+`A whole new infusion of skill would make Team Europe worth watching at the 4 Nations Face-Off.`\
+https://nytimes.com/athletic/5981672/2024/12/10/team-europe-4-nations-face-off/
+
+**Inside the friendship that helped Anthony Richardson rebound and revive Colts season**\
+`Richardson's career was at a crossroads. As the noise around him grew, Ehlinger pulled the young QB closer when others pushed him away.`\
+https://nytimes.com/athletic/5972475/2024/12/10/colts-anthony-richardson-sam-ehlinger-friendship/
+
+**Yohe mailbag: Lemieux vs. Crosby, which Penguins will be traded and a 4 Nations prediction**\
+`We talk Sid vs. Mario, upcoming decisions for Kyle Dubas, the Penguins' plight and much more. `\
+https://nytimes.com/athletic/5975665/2024/12/10/penguins-crosby-trade-4-nations-nhl/
+
+**Beyond Shedeur Sanders and Cam Ward, has any QB emerged in the 2025 NFL Draft class?**\
+`The top two quarterbacks in this draft class appear clear. What will QB-needy teams do once Sanders and Ward are off the board, though?`\
+https://nytimes.com/athletic/5981545/2024/12/10/nfl-draft-2025-quarterbacks-drew-allar-jalen-milroe/
+
+**The 5-Day Manhunt for a C.E.O. Killer**\
+`What we know about the suspect arrested in the shooting of UnitedHealthcare’s chief executive.`\
+https://nytimes.com/2024/12/10/podcasts/the-daily/ceo-unitedhealthcare-murder.html
+
+**C.E.O. Shooting Suspect Arrested, and Netanyahu’s Corruption Trial**\
+`Plus, Google’s quantum computing breakthrough.`\
+https://nytimes.com/2024/12/10/podcasts/suspect-unitedhealthcare-shooting.html
+
+**Don't believe in Mackenzie Blackwood? Here's why the Avs' new goalie might be entering his 'superstar years'**\
+`Blackwood's underlying metrics suggest a goalie ready to break out, which is exactly what the otherwise strong Avalanche need.`\
+https://nytimes.com/athletic/5983078/2024/12/10/mackenzie-blackwood-avalanche-goalie/
+
+**On the Ground in Damascus as Syrians Chart a New Path**\
+`In a matter of days, Syria’s capital — once the stronghold of Bashar al-Assad’s government — became the epicenter of a new chapter in the country’s history after opposition forces overran the city.`\
+https://nytimes.com/video/world/middleeast/100000009866031/what-is-next-for-syria.html
+
 **Keita joins Ferencvaros on loan**\
 `Former Liverpool midfielder Naby Keita has joined Hungarian club Ferencvaros on a loan deal from Werder Bremen.`\
 https://nytimes.com/athletic/5983484/2024/12/10/naby-keita-ferencvaros-transfer/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/5983484/2024/12/10/naby-keita-ferencvaros-transfer/
 **NFL QB stock report, Week 15: Does 'unstoppable' Josh Allen have MVP locked up?**\
 `Rival coaches and executives weigh in on what makes Allen so special and why they were never worried about Jayden Daniels' "slump."`\
 https://nytimes.com/athletic/5982072/2024/12/10/nfl-qb-stock-report-rankings-josh-allen-bills/
-
-**Why Troy Aikman could be correct about Mike McCarthy being Cowboys coach in 2025**\
-`“He has an outstanding record. He’s got great experience," Jerry Jones said about Mike McCarthy after the Monday night loss to the Bengals.`\
-https://nytimes.com/athletic/5983376/2024/12/10/cowboys-mike-mccarthy-coach-future-jerry-jones/
-
-**Evaluating USC's portal losses and needs: 8 thoughts on the Trojans roster**\
-`This is shaping up to be another critical offseason for Lincoln Riley, who needs to upgrade his roster on both sides of the ball. `\
-https://nytimes.com/athletic/5982752/2024/12/10/usc-transfer-portal-needs-2/
-
-**What are Michigan's biggest transfer portal needs? WR, OL among top priorities**\
-`Sure, landing a veteran quarterback would be nice, but there are areas of bigger concern for the Wolverines in 2024. `\
-https://nytimes.com/athletic/5982056/2024/12/10/michigan-football-transfer-portal-needs/
-
-**A special teams touchdown and situational management were critical factors in Rams win**\
-`A first-half blocked punt returned for a touchdown provided the Rams important points in their high-scoring victory against the Bills.`\
-https://nytimes.com/athletic/5982090/2024/12/10/rams-special-teams-blocked-punt-touchdown-bills/
-
-**Patriots mock draft reaction: Should New England go Travis Hunter, O-line or trade down?**\
-`The Patriots look like they'll again have a top-five pick in the NFL Draft. Who are their best options? Or is a trade down the wise move?`\
-https://nytimes.com/athletic/5981814/2024/12/10/patriots-mock-draft-travis-hunter/
-
-**Studying to avoid 'silly fines': Jamahl Mosley's recipe for Magic's staunch defense**\
-`Orlando, in its best moments, turns basketball into rock fights. The Magic don’t score much but ensure whoever they’re playing scores less.`\
-https://nytimes.com/athletic/5982498/2024/12/10/orlando-magic-defense-jamahl-mosley-nba/
-
-**A new strategy to stop the Celtics? Why the Grizzlies left Jrue Holiday open all game**\
-`The Grizzlies left Jrue Holiday open all game — allowing him to shoot through a cold spell — and it worked. `\
-https://nytimes.com/athletic/5982451/2024/12/10/celtics-jrue-holiday-defensive-strategy/
-
-**On Issue After Issue, Trump Promises the Moon. No Word on the Rocket.**\
-`The president-elect has made some of the most expansive campaign pledges in history. Some supporters fear that his bravado could undermine his ambitions.`\
-https://nytimes.com/2024/12/10/us/politics/trump-promises.html
 
