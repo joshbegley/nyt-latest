@@ -1,3 +1,7 @@
+**Suspect in C.E.O. Killing Withdrew From a Life of Privilege and Promise**\
+`The suspect, Luigi Mangione, was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychological pain.`\
+https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-mangione.html
+
 **Giants focus on the next move after Willy Adames: 'He's just a unique connector of people'**\
 `The Giants are still considering free agents at the top of the market after agreeing to a deal with Adames.`\
 https://nytimes.com/athletic/5982967/2024/12/09/sf-giants-willy-adames-next-move/

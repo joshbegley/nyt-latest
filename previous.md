@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5983024/2024/12/09/garrett-crochet-white-sox-trade-
 https://nytimes.com/athletic/5982944/2024/12/09/detroit-tigers-winter-meetings-alex-cobb/
 
 **Suspect in C.E.O. Killing Withdrew From a Life of Privilege and Promise**\
-`The suspect, Luigi Mangione, was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychic pain.`\
+`The suspect, Luigi Mangione, was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychological pain.`\
 https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-mangione.html
 
 **That Manhunt Photo Looks Like a Loved One. Do You Have to Tell?**\
