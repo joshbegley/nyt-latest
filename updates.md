@@ -1,3 +1,11 @@
+**Don’t Worry About Whether Art Basel Is Cool**\
+`The annual global art fair in Miami featured a heady mélange of artists, gallerists, A-list celebrities, luxury brands and Mad Libs-esque collaborations among many of them.`\
+https://nytimes.com/2024/12/10/style/art-basel-scene-rihanna-gigi-hadid-asap-rocky.html
+
+**Health Panel Endorses New Option for Cervical Cancer Screening**\
+`Starting at 30, women can collect their own vaginal samples for HPV testing at a doctor’s office.`\
+https://nytimes.com/2024/12/10/health/cervical-cancer-screening.html
+
 **NBC agrees to deal with Jamal Crawford, has interest in Reggie Miller**\
 `Crawford's contract isn't signed yet, and Miller's talks are on-going, but no offers have been made yet.`\
 https://nytimes.com/athletic/5983978/2024/12/10/nba-coverage-nbc-jamal-crawford-reggie-miller/
