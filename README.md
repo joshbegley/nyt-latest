@@ -1,3 +1,11 @@
+**Do I Really Need to Throw Out My Black Plastic Spatula?**\
+`A new study detected dangerous chemicals in a variety of household items. But experts say the health risks aren’t clear-cut.`\
+https://nytimes.com/2024/12/10/well/black-plastic-health.html
+
+**NASCAR president Steve Phelps on the charter situation, the playoff format and more**\
+`NASCAR president Steve Phelps talks about the season, schedule innovation, a playoff format under fire and much more.`\
+https://nytimes.com/athletic/5975206/2024/12/10/steve-phelps-nascar-charter-playoff-format-future/
+
 **How Murdoch Could Fight Back After a Big Legal Defeat**\
 `Rupert Murdoch lost a bid to rewrite a family trust to give his son Lachlan control of his empire after he dies. But the nonagenarian media titan plans to appeal.`\
 https://nytimes.com/2024/12/10/business/dealbook/murdoch-lachlan-trust-succession.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5983649/2024/12/10/mario-lemina-west-ham-wolves-apo
 **Kylian Mbappe hasn’t looked himself at Real Madrid. Are things beginning to change?**\
 `Mbappe's first few months at Madrid have not gone to plan — is he showing signs of getting back on track?`\
 https://nytimes.com/athletic/5983513/2024/12/10/kylian-mbappe-real-madrid-confidence/
-
-**Inside one night of Canadiens centre Kirby Dach’s season-long confidence roller coaster**\
-`Dach's struggles this season have far-reaching consequences for the Canadiens, who have to hope a lucky goal can turn it all around.`\
-https://nytimes.com/athletic/5983353/2024/12/10/canadiens-kirby-dach-nhl-ducks-win/
-
-**The Athletic FC: Numbers behind Chelsea revival, the stigma that 'p***es off' Pulisic**\
-`Today in TAFC: The numbers that back a Chelsea title bid, Pulisic exclusive interview, can young teams win the Champions League?`\
-https://nytimes.com/athletic/5983550/2024/12/10/chelsea-title-bid-pulisic-stigma-interview/
 
