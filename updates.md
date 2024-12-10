@@ -1,3 +1,7 @@
+**Astros receiving trade inquiries on Kyle Tucker: Sources**\
+`Multiple people familiar with the club’s thinking said Astros GM Dana Brown is open to dealing one of Tucker or starter Framber Valdez.`\
+https://nytimes.com/athletic/5982648/2024/12/09/astros-kyle-tucker-trade-inquiries/
+
 **Can Clay Holmes make transition from reliever to Mets starter? Scouts weigh in**\
 `One AL evaluator expressed skepticism: "Does he lose some velocity in a starter role?"`\
 https://nytimes.com/athletic/5979688/2024/12/09/mets-clay-holmes-reliever/
