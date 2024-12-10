@@ -1,3 +1,7 @@
+**After not engaging in Juan Soto talks, Cubs should see Cody Bellinger's trade market form**\
+`The Cubs are unclear what return they can get for Bellinger. But they could market him to any team looking for outfield or first base help.`\
+https://nytimes.com/athletic/5982862/2024/12/09/cubs-cody-bellinger-trade-juan-soto/
+
 **How Juan Soto's agreement with Mets could affect Astros, Kyle Tucker**\
 `Tucker isn't Soto. But as one of the most productive outfielders in the game, he's in line for a huge payday after next season.`\
 https://nytimes.com/athletic/5982864/2024/12/09/juan-soto-astros-kyle-tucker-contract/
