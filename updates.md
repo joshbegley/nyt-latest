@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-card
 `\
 https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
 
+**75 years later...a new discussion about Jackie Robinson rookie cards?**\
+`What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
+`\
+https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
+
 **With Roki Sasaki officially posted, agent Joel Wolfe discusses upcoming free agent process**\
 `On Tuesday, Wolfe offered new details about the posting process, which teams Sasaki might prefer to sign with and what’s important to him.`\
 https://nytimes.com/athletic/5984686/2024/12/10/roki-sasaki-signing-details-mlb-posting/
