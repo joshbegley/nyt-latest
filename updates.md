@@ -1,3 +1,15 @@
+**Why the Yankees targeted Max Fried and how he fits in their rotation**\
+`The lefty agreed to an eight-year, $218 million contract with the Yankees on Tuesday.`\
+https://nytimes.com/athletic/5985258/2024/12/10/max-fried-yankees-rotation/
+
+**Leeds 1 Middlesbrough 0: Wober's woe, James relief and who will Ampadu replace?**\
+`The big talking points analysed from Elland Road as Leeds won yet another home game`\
+https://nytimes.com/athletic/5985124/2024/12/10/leeds-middlesbrough-result-analysis/
+
+**Mountain West Conference to add UC Davis as non-football member in 2026**\
+`It’s the latest addition for the MW following the upcoming defections of five schools for the rebuilding Pac-12 in summer 2026`\
+https://nytimes.com/athletic/5985143/2024/12/10/mountain-west-conference-to-add-uc-davis-as-full-non-sports-member-in-2026/
+
 **Wildfire Conditions are Expected to Ease by the End of the Week**\
 `Rising humidity and a breeze pushing moist air inland from the Pacific Ocean are expected lower the wildfire risk around Malibu, Calif., by Thursday, forecasters said.`\
 https://nytimes.com/2024/12/10/weather/fire-forecast-california.html
