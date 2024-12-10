@@ -1,3 +1,7 @@
+**Astros receiving trade inquiries on Kyle Tucker: Sources**\
+`Multiple people familiar with the club’s thinking said Astros GM Dana Brown is open to dealing one of Tucker or starter Framber Valdez.`\
+https://nytimes.com/athletic/5982648/2024/12/09/astros-kyle-tucker-trade-inquiries/
+
 **Can Clay Holmes make transition from reliever to Mets starter? Scouts weigh in**\
 `One AL evaluator expressed skepticism: "Does he lose some velocity in a starter role?"`\
 https://nytimes.com/athletic/5979688/2024/12/09/mets-clay-holmes-reliever/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/us/earthquake-reno-lake-tahoe-nevada.html
 **Eyes, Not Tech, Led Police to ‘Person of Interest’ in C.E.O. Killing**\
 `The key was not advanced facial recognition technology. An employee at a Pennsylvania McDonald’s reported the man after seeing a widely circulated image of the suspect.`\
 https://nytimes.com/2024/12/09/nyregion/uhc-ceo-suspect-photos-facial-recognition.html
-
-**What we know about Bill Belichick and UNC's complicated coaching search**\
-`What has transpired behind the scenes since Mack Brown’s firing highlights how disagreements can turn a college coaching search messy.`\
-https://nytimes.com/athletic/5981891/2024/12/09/bill-belichick-unc-football-coaching-search/
 
