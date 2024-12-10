@@ -1,3 +1,7 @@
+**Staple: No fight in New York — zero-effort Rangers loss is rock bottom**\
+`The Rangers did not look like a team motivated to escape their downward spiral in a 2-1 loss to Chicago at home.`\
+https://nytimes.com/athletic/5983019/2024/12/09/rangers-rock-bottom-blackhawks-drury/
+
 **Giants focus on the next move after Willy Adames: 'He's just a unique connector of people'**\
 `The Giants are still considering free agents at the top of the market after agreeing to a deal with Adames.`\
 https://nytimes.com/athletic/5982967/2024/12/09/sf-giants-willy-adames-next-move/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/5983024/2024/12/09/garrett-crochet-white-sox-trade-
 https://nytimes.com/athletic/5982944/2024/12/09/detroit-tigers-winter-meetings-alex-cobb/
 
 **Suspect in C.E.O. Killing Withdrew From a Life of Privilege and Promise**\
-`The suspect, Luigi Mangione, was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychological pain.`\
+`The suspect, Luigi Mangione was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychological pain.`\
 https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-mangione.html
 
 **That Manhunt Photo Looks Like a Loved One. Do You Have to Tell?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/nyregion/crime-reporting-loved-one.html
 **Corrections: Dec. 10, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 10, 2024.`\
 https://nytimes.com/2024/12/09/pageoneplus/corrections-dec-10-2024.html
-
-**After not engaging in Juan Soto talks, Cubs should see Cody Bellinger's trade market form**\
-`The Cubs are unclear what return they can get for Bellinger. But they could market him to any team looking for outfield or first base help.`\
-https://nytimes.com/athletic/5982862/2024/12/09/cubs-cody-bellinger-trade-juan-soto/
 

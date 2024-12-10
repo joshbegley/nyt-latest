@@ -1,3 +1,11 @@
+**Staple: No fight in New York — zero-effort Rangers loss is rock bottom**\
+`The Rangers did not look like a team motivated to escape their downward spiral in a 2-1 loss to Chicago at home.`\
+https://nytimes.com/athletic/5983019/2024/12/09/rangers-rock-bottom-blackhawks-drury/
+
+**Suspect in C.E.O. Killing Withdrew From a Life of Privilege and Promise**\
+`The suspect, Luigi Mangione was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychological pain.`\
+https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-mangione.html
+
 **Suspect in C.E.O. Killing Withdrew From a Life of Privilege and Promise**\
 `The suspect, Luigi Mangione, was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychological pain.`\
 https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-mangione.html
