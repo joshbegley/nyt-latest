@@ -1,7 +1,3 @@
-**Why the Yankees targeted Max Fried and how he fits in their rotation**\
-`The lefty agreed to an eight-year, $218 million contract with the Yankees on Tuesday.`\
-https://nytimes.com/athletic/5985258/2024/12/10/max-fried-yankees-rotation/
-
 **Leeds 1 Middlesbrough 0: Wober's woe, James relief and who will Ampadu replace?**\
 `The big talking points analysed from Elland Road as Leeds won yet another home game`\
 https://nytimes.com/athletic/5985124/2024/12/10/leeds-middlesbrough-result-analysis/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/10/arts/television/jamie-foxx-what-happened-was-netf
 **A Northern Gaza Hospital Lacks Food and Water for Patients, Officials Say**\
 `The health ministry in Gaza said dozens of patients are at risk of death because the Indonesian Hospital does not have enough water and food to keep them alive.`\
 https://nytimes.com/2024/12/10/world/middleeast/gaza-hospital-food-water-shortage.html
+
+**Cowboys LB DeMarvion Overshown could miss 2025 season due to knee injury**\
+`The rising star defender suffered the season-ending knee injury on "Monday Night Football" against the Bengals.`\
+https://nytimes.com/athletic/5984877/2024/12/10/demarvion-overshown-injury-knee-cowboys/
 
