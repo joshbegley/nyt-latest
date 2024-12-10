@@ -1,8 +1,8 @@
-**NBA agrees to deal with Jamal Crawford, has interest in Reggie Miller**\
+**NBC agrees to deal with Jamal Crawford, has interest in Reggie Miller**\
 `Crawford's contract isn't signed yet, and Miller's talks are on-going, but no offers have been made yet.`\
 https://nytimes.com/athletic/5983978/2024/12/10/nba-coverage-nbc-jamal-crawford-reggie-miller/
 
-**Scoop City: Week 15 fantasy prep, including Isaac Guerendo's status**\
+**Scoop City: Week 15 fantasy prep, including Isaac Guerendo scenarios**\
 `12 players to watch in the fantasy football playoffs, including Sincere McCormick, Braelon Allen and Isaiah Davis, Sean Tucker and more.`\
 https://nytimes.com/athletic/5983994/2024/12/10/week-15-fantasy-football-playoff-waiver-adds-scoop-city/
 
