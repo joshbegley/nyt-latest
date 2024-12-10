@@ -1,3 +1,15 @@
+**Monarch Butterflies Are Recommended for Protected Status**\
+`They would become the most commonly seen species to receive federal protection if the proposal is adopted.`\
+https://nytimes.com/2024/12/10/climate/monarch-butterflies-endangered-species-list.html
+
+**As Teenagers They Protested Trump’s Climate Policy. Now What?**\
+`Some young climate activists, who galvanized under Donald Trump’s first presidency, are taking a different approach to his second.`\
+https://nytimes.com/2024/12/10/climate/youth-climate-movement-sunrise.html
+
+**Hear the Best Albums and Songs of 2024**\
+`A playlist of 103 songs from our three critics’ lists to experience however you wish.`\
+https://nytimes.com/2024/12/10/arts/music/amplifier-newsletter-best-songs-albums-2024.html
+
 **Wall Street’s Titans Can’t Wait for Trump 2.0**\
 `The financial world sees plenty of opportunity in the return of President-elect Donald J. Trump. For now, Wall Streeters are looking past the risks.`\
 https://nytimes.com/2024/12/10/business/wall-street-trump.html
