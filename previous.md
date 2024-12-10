@@ -1,3 +1,11 @@
+**How Murdoch Could Fight Back After a Big Legal Defeat**\
+`Rupert Murdoch lost a bid to rewrite a family trust to give his son Lachlan control of his empire after he dies. But the nonagenarian media titan plans to appeal.`\
+https://nytimes.com/2024/12/10/business/dealbook/murdoch-lachlan-trust-succession.html
+
+**When can the postponed Merseyside derby be rearranged?**\
+`With a jam-packed schedule, finding a date for the rearranged Merseyside derby may not be straightforward`\
+https://nytimes.com/athletic/5983640/2024/12/10/everton-liverpool-rearranged-date-postponed/
+
 **Chargers were built to run, so why has Greg Roman's play calling abandoned it?**\
 `The Chargers rank ninth in rushing success rate since Week 10. They need Roman to call more designed run attempts.`\
 https://nytimes.com/athletic/5982669/2024/12/10/chargers-run-game-greg-roman/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5983353/2024/12/10/canadiens-kirby-dach-nhl-ducks-w
 **The Athletic FC: Numbers behind Chelsea revival, the stigma that 'p***es off' Pulisic**\
 `Today in TAFC: The numbers that back a Chelsea title bid, Pulisic exclusive interview, can young teams win the Champions League?`\
 https://nytimes.com/athletic/5983550/2024/12/10/chelsea-title-bid-pulisic-stigma-interview/
-
-**Commanders' playoff picture remains bright, but tackling Saints comes first**\
-`Washington currently occupies the third and final NFC wild-card spot, but much can change during the season's stretch run. `\
-https://nytimes.com/athletic/5982322/2024/12/10/commanders-nfc-playoff-picture/
-
-**Upheaval in the Middle East: A Place for Student Questions and Observations**\
-`Syrian rebel forces took Damascus this weekend, ending a decades-long regime and continuing a series of events that have shaken the region since Hamas’s Oct. 7 attack. Teenagers, tell us how you are making sense of the news.`\
-https://nytimes.com/2024/12/10/learning/upheaval-in-the-middle-east-a-place-for-student-questions-and-observations.html
 

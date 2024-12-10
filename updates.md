@@ -1,3 +1,11 @@
+**How Murdoch Could Fight Back After a Big Legal Defeat**\
+`Rupert Murdoch lost a bid to rewrite a family trust to give his son Lachlan control of his empire after he dies. But the nonagenarian media titan plans to appeal.`\
+https://nytimes.com/2024/12/10/business/dealbook/murdoch-lachlan-trust-succession.html
+
+**When can the postponed Merseyside derby be rearranged?**\
+`With a jam-packed schedule, finding a date for the rearranged Merseyside derby may not be straightforward`\
+https://nytimes.com/athletic/5983640/2024/12/10/everton-liverpool-rearranged-date-postponed/
+
 **Chargers were built to run, so why has Greg Roman's play calling abandoned it?**\
 `The Chargers rank ninth in rushing success rate since Week 10. They need Roman to call more designed run attempts.`\
 https://nytimes.com/athletic/5982669/2024/12/10/chargers-run-game-greg-roman/
