@@ -1,3 +1,7 @@
+**Fantasy football Week 15 drops: You can cut Deebo Samuel amid decline**\
+`Gary Davenport gives advice on who to drop for those heading into or vying for a spot in the fantasy football playoffs. `\
+https://nytimes.com/athletic/5983893/2024/12/10/fantasy-football-week-15-drops-the-end-of-the-line-for-deebo-samuel-tyler-lockett-and-more/
+
 **NBA Power Rankings: From A (Cavs) to F (Jazz), we hand out first-quarter grades**\
 `The Timberwolves are a big climber this week, while the Lakers continue to sink.`\
 https://nytimes.com/athletic/5983512/2024/12/10/nba-power-rankings-cavaliers-mavericks-lakers-celtics/

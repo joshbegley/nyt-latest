@@ -1,3 +1,7 @@
+**Fantasy football Week 15 drops: You can cut Deebo Samuel amid decline**\
+`Gary Davenport gives advice on who to drop for those heading into or vying for a spot in the fantasy football playoffs. `\
+https://nytimes.com/athletic/5983893/2024/12/10/fantasy-football-week-15-drops-the-end-of-the-line-for-deebo-samuel-tyler-lockett-and-more/
+
 **NBA Power Rankings: From A (Cavs) to F (Jazz), we hand out first-quarter grades**\
 `The Timberwolves are a big climber this week, while the Lakers continue to sink.`\
 https://nytimes.com/athletic/5983512/2024/12/10/nba-power-rankings-cavaliers-mavericks-lakers-celtics/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/crosswords/connections-companion-548.html
 **Are the Canucks contenders or pretenders? 3 thoughts on their struggles against top teams**\
 `So far this season, the Canucks demolish lower-ranked opponents but struggle against the best. How worried should fans be?`\
 https://nytimes.com/athletic/5981623/2024/12/10/canucks-playoffs-contender-pretender-analysis/
-
-**What we learned in the first 24 hours of college football's transfer window**\
-`Everyone’s more prepared in Year 3, from players to agents to recruiting staffs, for the roughly 1,000 names that entered the portal Monday.`\
-https://nytimes.com/athletic/5983726/2024/12/10/college-football-transfer-portal-entries-quarterbacks/
 
