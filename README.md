@@ -1,3 +1,7 @@
+**NBA Power Rankings: From A (Cavs) to F (Jazz), we hand out first-quarter grades**\
+`The Timberwolves are a big climber this week, while the Lakers continue to sink.`\
+https://nytimes.com/athletic/5983512/2024/12/10/nba-power-rankings-cavaliers-mavericks-lakers-celtics/
+
 **Giant Migrant Shelter Complex in Brooklyn to Close by March**\
 `The imminent closure reflects concern from New York City officials that President-elect Donald J. Trump will target the shelter because it sits on federal land.`\
 https://nytimes.com/2024/12/10/nyregion/floyd-bennett-shelter-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981623/2024/12/10/canucks-playoffs-contender-prete
 **What we learned in the first 24 hours of college football's transfer window**\
 `Everyone’s more prepared in Year 3, from players to agents to recruiting staffs, for the roughly 1,000 names that entered the portal Monday.`\
 https://nytimes.com/athletic/5983726/2024/12/10/college-football-transfer-portal-entries-quarterbacks/
-
-**Do I Really Need to Throw Out My Black Plastic Spatula?**\
-`A new study detected dangerous chemicals in a variety of household items. But experts say the health risks aren’t clear-cut.`\
-https://nytimes.com/2024/12/10/well/black-plastic-health.html
 
