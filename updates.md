@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-card
 `\
 https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
 
+**75 years later...a new discussion about Jackie Robinson rookie cards?**\
+`What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
+`\
+https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
+
 **Dick Van Dyke and Cher were evacuated from their Malibu homes.**\
 `By Matt Stevens and Derrick Bryson Taylor`\
 https://nytimes.com/2024/12/10/us/celebrities-van-dyke-cher-streisand.html
