@@ -1,3 +1,11 @@
+**Don’t Worry About Whether Art Basel Is Cool**\
+`The annual global art fair in Miami featured a heady mélange of artists, gallerists, A-list celebrities, luxury brands and Mad Libs-esque collaborations among many of them.`\
+https://nytimes.com/2024/12/10/style/art-basel-scene-rihanna-gigi-hadid-asap-rocky.html
+
+**Health Panel Endorses New Option for Cervical Cancer Screening**\
+`Starting at 30, women can collect their own vaginal samples for HPV testing at a doctor’s office.`\
+https://nytimes.com/2024/12/10/health/cervical-cancer-screening.html
+
 **NBC agrees to deal with Jamal Crawford, has interest in Reggie Miller**\
 `Crawford's contract isn't signed yet, and Miller's talks are on-going, but no offers have been made yet.`\
 https://nytimes.com/athletic/5983978/2024/12/10/nba-coverage-nbc-jamal-crawford-reggie-miller/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/gazans-feel-re
 **Fantasy football Week 15 drops: You can cut Deebo Samuel amid decline**\
 `Gary Davenport gives advice on who to drop for those heading into or vying for a spot in the fantasy football playoffs. `\
 https://nytimes.com/athletic/5983893/2024/12/10/fantasy-football-week-15-drops-the-end-of-the-line-for-deebo-samuel-tyler-lockett-and-more/
-
-**NBA Power Rankings: From A (Cavs) to F (Jazz), we hand out first-quarter grades**\
-`The Timberwolves are a big climber this week, while the Lakers continue to sink.`\
-https://nytimes.com/athletic/5983512/2024/12/10/nba-power-rankings-cavaliers-mavericks-lakers-celtics/
-
-**Giant Migrant Shelter Complex in Brooklyn to Close by March**\
-`The imminent closure reflects concern from New York City officials that President-elect Donald J. Trump will target the shelter because it sits on federal land.`\
-https://nytimes.com/2024/12/10/nyregion/floyd-bennett-shelter-closing.html
 
