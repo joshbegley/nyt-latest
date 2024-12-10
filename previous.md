@@ -1,3 +1,15 @@
+**The Briefing: Girona 0-1 Liverpool - Was it a penalty and what now for Nunez?**\
+`The major talking points analysed as Arne Slot's close in on the Champions League last 16`\
+https://nytimes.com/athletic/5974242/2024/12/10/girona-liverpool-champions-league-analysis/
+
+**NFL Week 15 playoff scenarios: How 4 teams can clinch playoff berths**\
+`Texans and Eagles can clinch division while three other teams can secure their spots in the postseason`\
+https://nytimes.com/athletic/5984519/2024/12/10/nfl-week-15-playoff-scenarios-2/
+
+**Frog Club Ends Life as It Began: Strangely**\
+`The lurid collapse of its chef’s previous project fueled a fascination that made the New York restaurant impossible to get into. Or so it seemed for a while.`\
+https://nytimes.com/2024/12/10/dining/frog-club-nyc-closes.html
+
 **Max Fried nearing free agency decision with Yankees, Red Sox, Blue Jays among teams in mix**\
 `Fried, the top remaining LHP starter on the free-agent market, is expected to choose his next team by Thursday, according to league sources.`\
 https://nytimes.com/athletic/5984497/2024/12/10/max-fried-free-agency-yankees-red-sox-blue-jays/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/10/climate/youth-climate-movement-sunrise.html
 **Hear the Best Albums and Songs of 2024**\
 `A playlist of 103 songs from our three critics’ lists to experience however you wish.`\
 https://nytimes.com/2024/12/10/arts/music/amplifier-newsletter-best-songs-albums-2024.html
-
-**Wall Street’s Titans Can’t Wait for Trump 2.0**\
-`The financial world sees plenty of opportunity in the return of President-elect Donald J. Trump. For now, Wall Streeters are looking past the risks.`\
-https://nytimes.com/2024/12/10/business/wall-street-trump.html
-
-**Steelers WR George Pickens likely out vs. Eagles with hamstring injury**\
-`“It is a little bit more significant than than what we imagined,” coach Mike Tomlin said.`\
-https://nytimes.com/athletic/5984347/2024/12/10/george-pickens-injury-steelers-eagles/
-
-**With Quick Vote and Little Fanfare, Saudi Arabia on Track to Get 2034 World Cup**\
-`Critics have objected to the bidding process, and human rights groups have raised concerns about workplace safety for the migrants who will build the stadiums needed to host the event.`\
-https://nytimes.com/2024/12/10/world/middleeast/saudi-world-cup-human-rights.html
 

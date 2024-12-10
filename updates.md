@@ -1,3 +1,15 @@
+**The Briefing: Girona 0-1 Liverpool - Was it a penalty and what now for Nunez?**\
+`The major talking points analysed as Arne Slot's close in on the Champions League last 16`\
+https://nytimes.com/athletic/5974242/2024/12/10/girona-liverpool-champions-league-analysis/
+
+**NFL Week 15 playoff scenarios: How 4 teams can clinch playoff berths**\
+`Texans and Eagles can clinch division while three other teams can secure their spots in the postseason`\
+https://nytimes.com/athletic/5984519/2024/12/10/nfl-week-15-playoff-scenarios-2/
+
+**Frog Club Ends Life as It Began: Strangely**\
+`The lurid collapse of its chef’s previous project fueled a fascination that made the New York restaurant impossible to get into. Or so it seemed for a while.`\
+https://nytimes.com/2024/12/10/dining/frog-club-nyc-closes.html
+
 **Max Fried nearing free agency decision with Yankees, Red Sox, Blue Jays among teams in mix**\
 `Fried, the top remaining LHP starter on the free-agent market, is expected to choose his next team by Thursday, according to league sources.`\
 https://nytimes.com/athletic/5984497/2024/12/10/max-fried-free-agency-yankees-red-sox-blue-jays/
