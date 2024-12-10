@@ -1,3 +1,19 @@
+**Six Arrested in Connection With Deadly Accident that Killed Over 50 Migrants**\
+`U.S. and Guatemalan authorities said the arrests were linked to a human trafficking ring and a deadly 2021 traffic accident.`\
+https://nytimes.com/2024/12/10/world/americas/guatemalans-arrested-deadly-migrant-crash.html
+
+**Federal Judge Blocks $25 Billion Kroger-Albertsons Grocery Merger**\
+`The Federal Trade Commission notched a victory in its efforts to block the supermarket merger over concerns about harm to shoppers and workers.`\
+https://nytimes.com/2024/12/10/business/kroger-albertsons-merger-ftc.html
+
+**What Can We Learn From the C.E.O. Shooting Suspect’s Goodreads History?**\
+`Like many Americans of his background, his bookish aspirations were defined by what everybody else was reading, or thought they should be reading.`\
+https://nytimes.com/2024/12/10/books/review/luigi-mangione-goodreads-history.html
+
+**Dick Van Dyke and Cher Flee Their Malibu Homes as Franklin Fire Burns**\
+`Mr. Van Dyke, who turns 99 on Friday, said that he and his wife, Arlene, had fled their home with their pets as the Franklin fire threatened their community.`\
+https://nytimes.com/2024/12/10/us/malibu-fire-van-dyke-cher-streisand.html
+
 **The Debilitating Toll of Back Pain**\
 `The suspect charged with killing the chief executive of UnitedHealthcare was said to have back issues, one of the most common medical problems nationwide.`\
 https://nytimes.com/2024/12/10/well/back-pain-mangione.html

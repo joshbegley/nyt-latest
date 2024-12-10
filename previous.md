@@ -1,3 +1,15 @@
+**Six Arrested in Connection With Deadly Accident that Killed Over 50 Migrants**\
+`U.S. and Guatemalan authorities said the arrests were linked to a human trafficking ring and a deadly 2021 traffic accident.`\
+https://nytimes.com/2024/12/10/world/americas/guatemalans-arrested-deadly-migrant-crash.html
+
+**Federal Judge Blocks $25 Billion Kroger-Albertsons Grocery Merger**\
+`The Federal Trade Commission notched a victory in its efforts to block the supermarket merger over concerns about harm to shoppers and workers.`\
+https://nytimes.com/2024/12/10/business/kroger-albertsons-merger-ftc.html
+
+**What Can We Learn From the C.E.O. Shooting Suspect’s Goodreads History?**\
+`Like many Americans of his background, his bookish aspirations were defined by what everybody else was reading, or thought they should be reading.`\
+https://nytimes.com/2024/12/10/books/review/luigi-mangione-goodreads-history.html
+
 **The Debilitating Toll of Back Pain**\
 `The suspect charged with killing the chief executive of UnitedHealthcare was said to have back issues, one of the most common medical problems nationwide.`\
 https://nytimes.com/2024/12/10/well/back-pain-mangione.html
@@ -18,23 +30,11 @@ https://nytimes.com/2024/12/10/us/politics/senate-republicans-women-hegseth.html
 `Arenado is an unlikely match given the production the reigning World Series champions have already gotten at third base, `\
 https://nytimes.com/athletic/5984758/2024/12/10/dodgers-nolan-arenado-trade-cardinals/
 
-**Dick Van Dyke and Cher were evacuated from their Malibu homes.**\
-`By Matt Stevens and Derrick Bryson Taylor`\
-https://nytimes.com/2024/12/10/us/celebrities-van-dyke-cher-streisand.html
+**Dick Van Dyke and Cher Flee Their Malibu Homes as Franklin Fire Burns**\
+`Mr. Van Dyke, who turns 99 on Friday, said that he and his wife, Arlene, had fled their home with their pets as the Franklin fire threatened their community.`\
+https://nytimes.com/2024/12/10/us/malibu-fire-van-dyke-cher-streisand.html
 
 **McConnell Sprained Wrist During a Fall but Is ‘Fine’**\
 `Senator Mitch McConnell, the minority leader who sustained a concussion in a fall last year, was cleared to resume his work schedule, according to his office.`\
 https://nytimes.com/2024/12/10/us/politics/mitch-mcconnell-fall-sprained-wrist.html
-
-**Eric Trump Promises the ‘Most Pro-Crypto President’ in History**\
-`Speaking at a Middle East conference, President-elect Donald J. Trump’s son said his family had embraced cryptocurrency because some banks stopped doing business with them after Jan. 6.`\
-https://nytimes.com/2024/12/10/us/politics/eric-trump-cryptocurrency-conference.html
-
-**Police in Worcester, Mass., Engaged in Sexual Misconduct, Justice Dept. Says**\
-`The agency found that the Police Department used excessive force and allowed undercover officers to have sexual contact with women suspected of being prostitutes.`\
-https://nytimes.com/2024/12/10/us/worcester-police-sexual-misconduct-justice-department.html
-
-**U.S. Data Agency Blames Old Tech and Other Failures for Missteps**\
-`The Bureau of Labor Statistics, which tracks jobs and inflation, issued a report on what caused embarrassing episodes in which data was released improperly.`\
-https://nytimes.com/2024/12/10/business/economy/bls-data-report.html
 
