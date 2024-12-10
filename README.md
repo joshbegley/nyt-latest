@@ -1,3 +1,11 @@
+**The Athletic FC: Numbers behind Chelsea revival, the stigma that 'p***es off' Pulisic**\
+`Today in TAFC: The numbers that back a Chelsea title bid, Pulisic exclusive interview, can young teams win the Champions League?`\
+https://nytimes.com/athletic/5983550/2024/12/10/chelsea-title-bid-pulisic-stigma-interview/
+
+**Commanders' playoff picture remains bright, but tackling Saints comes first**\
+`Washington currently occupies the third and final NFC wild-card spot, but much can change during the season's stretch run. `\
+https://nytimes.com/athletic/5982322/2024/12/10/commanders-nfc-playoff-picture/
+
 **Upheaval in the Middle East: A Place for Student Questions and Observations**\
 `Syrian rebel forces took Damascus this weekend, ending a decades-long regime and continuing a series of events that have shaken the region since Hamas’s Oct. 7 attack. Teenagers, tell us how you are making sense of the news.`\
 https://nytimes.com/2024/12/10/learning/upheaval-in-the-middle-east-a-place-for-student-questions-and-observations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5983611/2024/12/10/tennis-2024-season-review-questi
 **Whoever is the starter going forward, Raiders need something different at QB in 2025**\
 `The Raiders' quarterback play this season, from Gardner Minshew to Aidan O'Connell, has been bad. It's not likely to improve with Ridder.`\
 https://nytimes.com/athletic/5982224/2024/12/10/raiders-quarterback-situation-desmond-ridder-aidan-oconnell/
-
-**At the presidential palace in Damascus, rebels walk the halls.**\
-`By Ben Hubbard`\
-https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/at-the-presidential-palace-in-damascus-rebels-walk-the-halls
-
-**The Pulse: The Cowboys went full Homer**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5981688/2024/12/10/cowboys-bengals-simpsons-the-pulse/
 
