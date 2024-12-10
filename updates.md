@@ -1,3 +1,15 @@
+**Red Sox Winter Meetings notes: Pitching priorities, possible trade pool, pen news and more**\
+`"There's a lot of ways to accomplish what we set out to do,” manager Alex Cora said.`\
+https://nytimes.com/athletic/5982809/2024/12/09/red-sox-winter-meetings-free-agents/
+
+**Cardinals will try to trade Nolan Arenado: 'Not something we ever take lightly'**\
+`The Yankees, Astros and Red Sox rank as potential destinations depending how the rest of the offseason shakes out. `\
+https://nytimes.com/athletic/5982613/2024/12/09/cardinals-mlb-nolan-arenado-trade/
+
+**After missing out on top target Juan Soto, Blue Jays need to bounce back better**\
+`A lot is riding on this offseason for the Blue Jays.`\
+https://nytimes.com/athletic/5982775/2024/12/09/blue-jays-juan-soto-failed-bid/
+
 **Mookie Betts is a shortstop again, and more from the Dodgers at the Winter Meetings**\
 `The Dodgers are still interested in a reunion with Teoscar Hernández, and they have a strong foothold in Japan, where there's Roki Sasaki.`\
 https://nytimes.com/athletic/5982735/2024/12/09/mookie-betts-shortstop-dodgers/
