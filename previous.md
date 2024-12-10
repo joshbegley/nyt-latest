@@ -1,3 +1,7 @@
+**Taiwan Says China Has Deployed Largest Fleet of Ships in Decades**\
+`Taiwan is on high alert in response to China’s unannounced deployment of naval and Coast Guard ships, as tensions rise over U.S. support for the island.`\
+https://nytimes.com/2024/12/10/world/asia/taiwan-china-naval-largest.html
+
 **In Penny Verdict, a Flashpoint in the Debate Over Crime and Mental Illness**\
 `A New York jury acquitted Daniel Penny in the death of Jordan Neely. Republican politicians hailed the verdict. But some New Yorkers found it deeply disturbing.`\
 https://nytimes.com/2024/12/10/nyregion/daniel-penny-trial-jordan-neely.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/learning/word-of-the-day-connotation.html
 **Volcanic Eruption Forces Mass Evacuation in the Philippines**\
 `Nearly 90,000 people on the island of Negros were ordered to seek shelter after Mount Kanlaon spewed deadly ash and lava.`\
 https://nytimes.com/2024/12/10/world/asia/philippines-volcano-kanlaon-eruption.html
-
-**The Plight of the Palestinian Scientist**\
-`Four Palestinian researchers describe how conflict in Gaza and the West Bank has hindered their careers in science and medicine.`\
-https://nytimes.com/2024/12/10/science/the-plight-of-the-palestinian-scientist.html
 

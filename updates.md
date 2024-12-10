@@ -1,3 +1,7 @@
+**Taiwan Says China Has Deployed Largest Fleet of Ships in Decades**\
+`Taiwan is on high alert in response to China’s unannounced deployment of naval and Coast Guard ships, as tensions rise over U.S. support for the island.`\
+https://nytimes.com/2024/12/10/world/asia/taiwan-china-naval-largest.html
+
 **In Penny Verdict, a Flashpoint in the Debate Over Crime and Mental Illness**\
 `A New York jury acquitted Daniel Penny in the death of Jordan Neely. Republican politicians hailed the verdict. But some New Yorkers found it deeply disturbing.`\
 https://nytimes.com/2024/12/10/nyregion/daniel-penny-trial-jordan-neely.html
