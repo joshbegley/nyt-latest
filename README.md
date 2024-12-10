@@ -1,6 +1,6 @@
 **Dick Van Dyke and Cher were evacuated from their Malibu homes.**\
 `By Matt Stevens and Derrick Bryson Taylor`\
-https://nytimes.com/live/2024/12/10/us/malibu-wildfire/celebrities-van-dyke-cher-streisand
+https://nytimes.com/2024/12/10/us/celebrities-van-dyke-cher-streisand.html
 
 **McConnell Sprained Wrist During a Fall but Is ‘Fine’**\
 `Senator Mitch McConnell, the minority leader who sustained a concussion in a fall last year, was cleared to resume his work schedule, according to his office.`\
