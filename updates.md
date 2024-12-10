@@ -1,3 +1,23 @@
+**Review Finds Trump-Era Hunt for Leaks Extended Deep Into Congress**\
+`The issue may gain new urgency given that President-elect Donald J. Trump has vowed to pursue leakers in his second term.`\
+https://nytimes.com/2024/12/10/us/politics/trump-leaks-investigation-congress-justice-department.html
+
+**Arctic Tundra Has Long Helped Cool Earth. Now, It’s Fueling Warming.**\
+`Wildfires and thawing permafrost are causing the region to release more carbon dioxide than its plants remove, probably for the first time in thousands of years.`\
+https://nytimes.com/2024/12/10/climate/arctic-emissions-carbon-ice-warming.html
+
+**A Seven-Ingredient Supper That Sings**\
+`Eric Kim’s roast chicken with fish-sauce butter is simple magic. (Plus: croutons.)`\
+https://nytimes.com/2024/12/10/dining/a-seven-ingredient-supper-that-sings.html
+
+**Biden Administration Sprints to Tie Up Tech Loose Ends**\
+`Regulators are working around the clock to cement four years of tech policy ahead of the inauguration of President-elect Donald J. Trump.`\
+https://nytimes.com/2024/12/10/technology/biden-tech-regulation.html
+
+**Police Arrest 3 After Deadly Explosion in the Netherlands**\
+`The blast, which the mayor of The Hague called an “unprecedented disaster,” killed six people on Saturday morning.`\
+https://nytimes.com/2024/12/10/world/europe/hague-explosion-arrests-netherlands.html
+
 **NBC agrees to deal with Jamal Crawford, has interest in Reggie Miller**\
 `Crawford's contract isn't signed yet, and Miller's talks are on-going, but no offers have been made yet.`\
 https://nytimes.com/athletic/5983978/2024/12/10/nba-coverage-nbc-jamal-crawford-reggie-miller/
