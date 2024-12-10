@@ -1,3 +1,7 @@
+**NBA Power Rankings: From A (Cavs) to F (Jazz), we hand out first-quarter grades**\
+`The Timberwolves are a big climber this week, while the Lakers continue to sink.`\
+https://nytimes.com/athletic/5983512/2024/12/10/nba-power-rankings-cavaliers-mavericks-lakers-celtics/
+
 **Giant Migrant Shelter Complex in Brooklyn to Close by March**\
 `The imminent closure reflects concern from New York City officials that President-elect Donald J. Trump will target the shelter because it sits on federal land.`\
 https://nytimes.com/2024/12/10/nyregion/floyd-bennett-shelter-closing.html
