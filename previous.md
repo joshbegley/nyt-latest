@@ -1,3 +1,7 @@
+**Scoop City: Week 15 fantasy prep, including Isaac Guerendo's status**\
+`12 players to watch in the fantasy football playoffs, including Sincere McCormick, Braelon Allen and Isaiah Davis, Sean Tucker and more.`\
+https://nytimes.com/athletic/5983994/2024/12/10/week-15-fantasy-football-playoff-waiver-adds-scoop-city/
+
 **Met Museum Unveils Design for New Modern Wing**\
 `The architect Frida Escobedo has drawn on her Mexican heritage in reimagining the galleries for Modern and contemporary art.`\
 https://nytimes.com/2024/12/10/arts/design/met-museum-frida-escobedo-architecture-tang-wing-art.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/nyregion/floyd-bennett-shelter-closing.html
 **Michigan DT Mason Graham, likely top-10 pick, declares for NFL Draft**\
 `A three-year star on the Michigan defensive line, Mason Graham will enter the 2025 NFL Draft. Here's where his stock stands.`\
 https://nytimes.com/athletic/5983832/2024/12/10/mason-graham-nfl-draft-michigan/
-
-**The Connections Companion No. 549**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
-https://nytimes.com/2024/12/10/crosswords/connections-companion-549.html
 
