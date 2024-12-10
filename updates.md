@@ -1,3 +1,7 @@
+**The Pulse: The Cowboys went full Homer**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5981688/2024/12/10/cowboys-bengals-simpsons-the-pulse/
+
 **Martial Law Fallout Raises Questions South Korea Has Never Dealt With Before**\
 `The president faces an accusation of insurrection and, in a first for a sitting leader, the possibility of arrest. Here’s what to know about his political future.`\
 https://nytimes.com/2024/12/10/world/asia/south-korea-martial-law-yoon-explained.html
