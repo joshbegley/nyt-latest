@@ -1,3 +1,7 @@
+**Law: Willy Adames a strong fit for the Giants, but more is needed to compete in NL West**\
+`Adames is an excellent fit for the Giants for at least the next three years, fitting their most likely timeline for playoff contention.`\
+https://nytimes.com/athletic/5983222/2024/12/10/sf-giants-willy-adames-signing-analysis-2/
+
 **Willy Adames a strong fit for the Giants, but more is needed to compete in NL West: Law**\
 `Adames is an excellent fit for the Giants for at least the next three years, fitting their most likely timeline for playoff contention.`\
 https://nytimes.com/athletic/5983222/2024/12/10/sf-giants-willy-adames-signing-analysis-2/
