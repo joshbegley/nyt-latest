@@ -1,3 +1,7 @@
+**Cowboys Today: Jerry Jones still not interested in seeing Trey Lance over Cooper Rush**\
+`With the playoffs out of the picture, an offseason task becomes more obvious: The Cowboys need more playmakers on offense.`\
+https://nytimes.com/athletic/5984102/2024/12/10/cowboys-cooper-rush-trey-lance-jerry-jones-overshown-injury/
+
 **In northern Syria, Turkish-backed rebels advance on a town held by Kurdish-led, U.S.-backed forces.**\
 `The fall of Bashar al-Assad’s government in Damascus has set off a scramble for territory and power among fighters with competing interests.`\
 https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/in-northern-syria-turkish-backed-rebels-advance-on-a-town-held-by-kurdish-led-us-backed-forces
