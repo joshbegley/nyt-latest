@@ -1,3 +1,7 @@
+**Barcelona exploring 20-year VIP box sales at Camp Nou to register Olmo in January**\
+`Barcelona are exploring the sale of VIP boxes at the newly refurbished Camp Nou in 20-year commitments in a move to register first-team squad players in January.`\
+https://nytimes.com/athletic/5980904/2024/12/10/barcelona-camp-nou-player-registration-olmo/
+
 **Wildfire Breaks Out in Malibu, Forcing Evacuations**\
 `The Franklin fire started Monday night and began to spread quickly, as large parts of Southern California braced for dangerous wildfire conditions.`\
 https://nytimes.com/2024/12/10/us/franklin-fire-malibu-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/nyregion/daniel-penny-trial-jordan-neely.html
 **Notre Dame Reopens**\
 `Have you ever visited? Would you like to? What’s your favorite architectural masterpiece?`\
 https://nytimes.com/2024/12/10/learning/notre-dame-reopens.html
-
-**Mayor Adams’s Stance on Migrants Has Evolved, in Trump’s Direction**\
-`Mayor Eric Adams has become more outspoken about his desire to detain “dangerous” immigrants, a view more closely aligned with President-elect Donald J. Trump.`\
-https://nytimes.com/2024/12/10/nyregion/adams-migrants-sanctuary-nyc.html
 
