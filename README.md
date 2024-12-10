@@ -1,7 +1,3 @@
-**The Syria Opportunity**\
-`The end of al-Assad’s wretched regime unlocks many doors.`\
-https://nytimes.com/2024/12/10/opinion/syria-assad-israel.html
-
 **Yankees sign lefty Max Fried to eight-year, $218 million contract**\
 `Fried finished his Braves tenure as a two-time NL All Star, a three-time Gold Glove Award winner and the 2021 Silver Slugger winner.`\
 https://nytimes.com/athletic/5941194/2024/12/10/max-fried-yankees-free-agent-deal/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5984817/2024/12/10/bos-nation-fc-nwsl-stadium-lawsu
 **White House Threatens Biden Veto of Bipartisan Bill to Add New Judges**\
 `The legislation would create more than 60 new federal court seats over the next decade, giving the Trump White House a first shot at filling dozens of new vacancies.`\
 https://nytimes.com/2024/12/10/us/politics/biden-judges-veto-white-house.html
+
+**Picking Through a Ruined Palace, in the Name of Vengance**\
+`The debris of fallen tyrannies like al-Assad’s often carries a lingering fascination.`\
+https://nytimes.com/2024/12/10/opinion/syria-assad-palace-looting.html
 
