@@ -1,3 +1,15 @@
+**Monarch Butterflies Are Recommended for Protected Status**\
+`They would become the most commonly seen species to receive federal protection if the proposal is adopted.`\
+https://nytimes.com/2024/12/10/climate/monarch-butterflies-endangered-species-list.html
+
+**As Teenagers They Protested Trump’s Climate Policy. Now What?**\
+`Some young climate activists, who galvanized under Donald Trump’s first presidency, are taking a different approach to his second.`\
+https://nytimes.com/2024/12/10/climate/youth-climate-movement-sunrise.html
+
+**Hear the Best Albums and Songs of 2024**\
+`A playlist of 103 songs from our three critics’ lists to experience however you wish.`\
+https://nytimes.com/2024/12/10/arts/music/amplifier-newsletter-best-songs-albums-2024.html
+
 **Wall Street’s Titans Can’t Wait for Trump 2.0**\
 `The financial world sees plenty of opportunity in the return of President-elect Donald J. Trump. For now, Wall Streeters are looking past the risks.`\
 https://nytimes.com/2024/12/10/business/wall-street-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5984370/2024/12/10/nebraska-college-football-transf
 **Resist Trump? On Immigration, Top Democrats See Room for Compromise.**\
 `In interviews, a range of Democratic governors expressed some defiance toward the president-elect’s expected crackdown, but also showed a surprising willingness to work with him.`\
 https://nytimes.com/2024/12/10/us/politics/democrats-trump-immigration-crackdown.html
-
-**The Supreme Court Must Intervene in the TikTok Case**\
-`The First Amendment should not be used to cut Americans’ access to TikTok, and the Supreme Court should step in.`\
-https://nytimes.com/2024/12/10/opinion/tiktok-first-amendment-china-ban-bytedance.html
-
-**In northern Syria, Turkish-backed rebels advance on a town held by Kurdish-led, U.S.-backed forces.**\
-`The fall of Bashar al-Assad’s government in Damascus has set off a scramble for territory and power among fighters with competing interests.`\
-https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/in-northern-syria-turkish-backed-rebels-advance-on-a-town-held-by-kurdish-led-us-backed-forces
-
-**Why Gary O'Neil is likely to still be in charge for Wolves' next game**\
-`Gary O'Neil is likely to keep his job at Wolves until the Ipswich game - and a lack of options is one reason behind it`\
-https://nytimes.com/athletic/5984140/2024/12/10/gary-oneil-wolves-future-ipswich/
 
