@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5984331/2024/12/10/ryne-sandberg-mlb-cancer-recurre
 https://nytimes.com/2024/12/10/world/middleeast/sednaya-prison-syria.html
 
 **Tracking the Franklin Wildfire in Malibu, Calif.**\
-`See maps of the fire area and smoke forecast.`\
+`See maps and details about the Franklin fire near Los Angeles.`\
 https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html
 
 **Wordle Review No. 1,271**\
