@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-card
 `\
 https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
 
+**75 years later...a new discussion about Jackie Robinson rookie cards?**\
+`What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
+`\
+https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
+
 **Super Bowl odds: How the Lions, Chiefs and Bills stack up after a week of close games**\
 `Super Bowl betting odds are on the move! While the Lions are still the favorites, the Chiefs and Bills saw their odds shift after Week 14.`\
 https://nytimes.com/athletic/5984412/2024/12/10/2025-super-bowl-2025-odds-lions-chiefs-bills/
