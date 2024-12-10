@@ -1,3 +1,7 @@
+**Cossa's NHL debut brings a sorely-needed win: Five Red Wings thoughts**\
+`The 2021 first-round pick made his debut in tough circumstances, but came through with the win.`\
+https://nytimes.com/athletic/5983039/2024/12/09/red-wings-sebastian-cossa-nhl-debut/
+
 **What we're hearing about trade interest in Devin Williams and more from MLB's winter meetings**\
 `The Orioles, Rangers and A's are all looking at free-agent starting pitchers, while the Marlins are open to trading lefty Jesús Luzardo.`\
 https://nytimes.com/athletic/5983167/2024/12/09/devin-williams-brewers-trade-mlb-winter-meetings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982987/2024/12/09/padres-roki-sasaki-optimism/
 **Trunk of the Body**\
 `Brian Callahan and Geoffrey Schorkopf have their first Times collaboration.`\
 https://nytimes.com/2024/12/09/crosswords/daily-puzzle-2024-12-10.html
-
-**Yankees, Mets among teams vying for White Sox starter Garrett Crochet: Sources**\
-`The 25-year-old lefty is seen as the best starting pitcher available on the trade market.`\
-https://nytimes.com/athletic/5983024/2024/12/09/garrett-crochet-white-sox-trade-mets-yankees/
 
