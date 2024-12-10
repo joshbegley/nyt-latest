@@ -1,4 +1,4 @@
-**Will the Angels and Arte Moreno ever spend on a a top-flight free agent again?**\
+**Will the Angels and Arte Moreno ever spend on a top-flight free agent again?**\
 `The Angels' entire offseason strategy has centered around finding reclamation projects and strong role players, among others.`\
 https://nytimes.com/athletic/5982740/2024/12/09/los-angeles-angels-arte-moreno-free-agency/
 
@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5982793/2024/12/09/reds-manager-terry-francona/
 https://nytimes.com/athletic/5982729/2024/12/09/braves-brian-snitker-travis-darnaud/
 
 **Juan Soto agreement could lead to increased trade chatter for Twins on Carlos Correa**\
-`Soto is off the board and it could lead his spurned suitors to gauge whether the Twins would trade Correa. Falvey is open to listening.`\
+`Soto is off the board, and it could lead his spurned suitors to gauge whether the Twins would trade Correa. Falvey is open to listening.`\
 https://nytimes.com/athletic/5982759/2024/12/09/twins-carlos-correa-trade-talk-soto/
 
 **Mookie Betts is a shortstop again and more from the Dodgers at the Winter Meetings**\
