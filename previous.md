@@ -1,3 +1,11 @@
+**Pepperdine Students Huddled in Library as Malibu Fire Raged Outside**\
+`About 3,000 people sheltered on the university’s campus in Malibu, Calif., overnight on Monday. Some of them watched the flames through the windows of a library.`\
+https://nytimes.com/2024/12/10/us/pepperdine-malibu-wildfire-shelter-in-place.html
+
+**Bill Belichick weighing offer to become UNC coach, but hurdles remain: Sources**\
+`While a deal may still come together quickly, sources cautioned that nothing is imminent and the sides remain apart on multiple key terms.`\
+https://nytimes.com/athletic/5984362/2024/12/10/bill-belichick-unc-football-coach-update/
+
 **Ranking Nebraska's top 5 positions of need in the transfer portal**\
 `With a mix of transfer departures and graduating seniors, Nebraska must prioritize defensive linemen in the portal.`\
 https://nytimes.com/athletic/5984370/2024/12/10/nebraska-college-football-transfer-portal-needs-matt-rhule/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5984331/2024/12/10/ryne-sandberg-mlb-cancer-recurre
 **What to Know About Syria’s Notorious Sednaya Prison**\
 `Amnesty International described it as a “human slaughterhouse,” where, other rights groups say, tens of thousands of people were detained, tortured and killed during the 13-year civil war.`\
 https://nytimes.com/2024/12/10/world/middleeast/sednaya-prison-syria.html
-
-**Tracking the Franklin Wildfire in Malibu, Calif.**\
-`See maps and details about the Franklin fire near Los Angeles.`\
-https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html
-
-**Wordle Review No. 1,271**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
-https://nytimes.com/2024/12/10/crosswords/wordle-review-1271.html
 

@@ -1,3 +1,11 @@
+**Pepperdine Students Huddled in Library as Malibu Fire Raged Outside**\
+`About 3,000 people sheltered on the university’s campus in Malibu, Calif., overnight on Monday. Some of them watched the flames through the windows of a library.`\
+https://nytimes.com/2024/12/10/us/pepperdine-malibu-wildfire-shelter-in-place.html
+
+**Bill Belichick weighing offer to become UNC coach, but hurdles remain: Sources**\
+`While a deal may still come together quickly, sources cautioned that nothing is imminent and the sides remain apart on multiple key terms.`\
+https://nytimes.com/athletic/5984362/2024/12/10/bill-belichick-unc-football-coach-update/
+
 **Ranking Nebraska's top 5 positions of need in the transfer portal**\
 `With a mix of transfer departures and graduating seniors, Nebraska must prioritize defensive linemen in the portal.`\
 https://nytimes.com/athletic/5984370/2024/12/10/nebraska-college-football-transfer-portal-needs-matt-rhule/
