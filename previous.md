@@ -1,40 +1,40 @@
-**Cossa's NHL debut brings a sorely-needed win: Five Red Wings thoughts**\
-`The 2021 first-round pick made his debut in tough circumstances, but came through with the win.`\
-https://nytimes.com/athletic/5983039/2024/12/09/red-wings-sebastian-cossa-nhl-debut/
+**Scottie Barnes' injury keeps RJ Barrett in the middle of things with Raptors**\
+`Questions persist about how Barrett would fit in a smaller role, but he has done all he can in a bigger one in Toronto.`\
+https://nytimes.com/athletic/5983159/2024/12/10/scottie-barnes-injury-keeps-rj-barrett-in-the-middle-of-things-with-raptors/
 
-**What we're hearing about trade interest in Devin Williams and more from MLB's winter meetings**\
-`The Orioles, Rangers and A's are all looking at free-agent starting pitchers, while the Marlins are open to trading lefty Jesús Luzardo.`\
-https://nytimes.com/athletic/5983167/2024/12/09/devin-williams-brewers-trade-mlb-winter-meetings/
+**Ashworth's exit and Ratcliffe's comments are alarming for Man United's women's team**\
+`Ashworth helped United's women's team feel connected to the rest of his club, his exit and Ratcliffe's comments are a worrying combination`\
+https://nytimes.com/athletic/5981456/2024/12/10/ashworth-ratcliffe-manchester-united-women/
 
-**NFL playoff picture after Week 14: Bucs reclaim NFC South lead; Eagles clinch playoff berth**\
-`Miami stayed in the hunt with its OT victory over the Jets, and the Rams' upset of the Bills puts them one game back of the Commanders. `\
-https://nytimes.com/athletic/5966559/2024/12/09/nfl-playoff-picture-week-14-updates/
+**'The Simpsons' NFL alt-cast entertained with blend of football and fun**\
+`Lisa Simpson gave the Bengals a pre-game pep talk and scored the game-winning TD.`\
+https://nytimes.com/athletic/5983161/2024/12/10/simpsons-nfl-alt-cast-highlights/
 
-**Kevin Korchinski shows how far he's come in Anders Sorensen's first Blackhawks victory**\
-`Korchinski's play in a 2-1 win over the Rangers was a beacon of hope for Chicago's immediate future and long-term outlook.`\
-https://nytimes.com/athletic/5983106/2024/12/09/blackhawks-korchinski-sorenson-rangers/
+**Champions League projections: Analysing the key fixtures coming up in matchday six**\
+`Liverpool and Inter are nearing the last 16 already, but Real Madrid and Paris Saint-Germain continue to flounder as the new format heats up`\
+https://nytimes.com/athletic/5980795/2024/12/10/champions-league-projections-matchday-6/
 
-**Nikki Giovanni, Poet Who Wrote of Black Joy, Dies at 81**\
-`Ms. Giovanni tackled race, gender, sex, politics and love. She was a celebrity poet and public intellectual who appeared on television and toured the country.`\
-https://nytimes.com/2024/12/09/obituaries/nikki-giovanni-poet-who-wrote-of-black-joy-dies-at-81.html
+**Why youth won't win you the Champions League (or is Luis Enrique right that age doesn't matter?)**\
+`As PSG try to keep their Champions League hopes alive, is the age of their players holding them back?`\
+https://nytimes.com/athletic/5980875/2024/12/10/youth-experience-winning-the-champions-league/
 
-**Staple: No fight in New York — zero-effort Rangers loss is rock bottom**\
-`New York did not look like a team motivated to escape their downward spiral in a 2-1 loss to Chicago at home.`\
-https://nytimes.com/athletic/5983019/2024/12/09/rangers-rock-bottom-blackhawks-drury/
+**'Emery is a top coach. I think he was treated very unfairly at Arsenal' - Denis Suarez interview**\
+`The former Arsenal and Manchester City player on his regrets in English football and finding his niche back in La Liga`\
+https://nytimes.com/athletic/5968831/2024/12/10/denis-suarez-interview-arsenal-emery-celta-vigo-villarreal/
 
-**Giants focus on the next move after Willy Adames: 'He's just a unique connector of people'**\
-`The Giants are still considering free agents at the top of the market after agreeing to a deal with Adames.`\
-https://nytimes.com/athletic/5982967/2024/12/09/sf-giants-willy-adames-next-move/
+**12 Days That Changed Syria: The Rebel Offensive in Visuals**\
+`A visual timeline of the stunning rebel advance in Syria`\
+https://nytimes.com/2024/12/10/world/middleeast/syria-civil-war-rebels-timeline-assad.html
 
-**North Carolina women's soccer wins 23rd national title**\
-`The Tar Heels, who appeared in 28 national championships, had not lifted the trophy since 2012.`\
-https://nytimes.com/athletic/5982994/2024/12/09/north-carolina-soccer-ncaa-championship/
+**How to Understand the Factions Vying for Control in Syria**\
+`The fighters shared a desire to topple Bashar al-Assad’s government, but they don’t share much else.`\
+https://nytimes.com/2024/12/10/world/middleeast/syria-rebels-government-assad.html
 
-**Padres express optimism about Roki Sasaki, who could be key to staying competitive**\
-`The Padres have made considerable efforts preparing themselves for Sasaki's posting.`\
-https://nytimes.com/athletic/5982987/2024/12/09/padres-roki-sasaki-optimism/
+**What to Know About the Countries Still Fighting in Syria After al-Assad’s Ouster**\
+`Israel, Turkey and the United States are carrying out airstrikes.`\
+https://nytimes.com/2024/12/10/world/middleeast/syria-israel-turkey-us-strikes.html
 
-**Trunk of the Body**\
-`Brian Callahan and Geoffrey Schorkopf have their first Times collaboration.`\
-https://nytimes.com/2024/12/09/crosswords/daily-puzzle-2024-12-10.html
+**France’s Marine Le Pen Takes Aim at the Top**\
+`After helping to oust the prime minister last week, the far-right leader has made clear her next target is President Emmanuel Macron.`\
+https://nytimes.com/2024/12/10/world/europe/frances-marine-le-pen-takes-aim-at-the-top.html
 
