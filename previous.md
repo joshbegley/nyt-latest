@@ -1,3 +1,11 @@
+**Wall Street’s Titans Can’t Wait for Trump 2.0**\
+`The financial world sees plenty of opportunity in the return of President-elect Donald J. Trump. For now, Wall Streeters are looking past the risks.`\
+https://nytimes.com/2024/12/10/business/wall-street-trump.html
+
+**Steelers WR George Pickens likely out vs. Eagles with hamstring injury**\
+`“It is a little bit more significant than than what we imagined,” coach Mike Tomlin said.`\
+https://nytimes.com/athletic/5984347/2024/12/10/george-pickens-injury-steelers-eagles/
+
 **With Quick Vote and Little Fanfare, Saudi Arabia on Track to Get 2034 World Cup**\
 `Critics have objected to the bidding process, and human rights groups have raised concerns about workplace safety for the migrants who will build the stadiums needed to host the event.`\
 https://nytimes.com/2024/12/10/world/middleeast/saudi-world-cup-human-rights.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/in-northern-sy
 **Why Gary O'Neil is likely to still be in charge for Wolves' next game**\
 `Gary O'Neil is likely to keep his job at Wolves until the Ipswich game - and a lack of options is one reason behind it`\
 https://nytimes.com/athletic/5984140/2024/12/10/gary-oneil-wolves-future-ipswich/
-
-**Heat Today: How Erik Spoelstra's latest lineup tweak sparked a Miami turnaround**\
-`Miami had a slow start to the season, but Erik Spoelstra's savvy might have saved it`\
-https://nytimes.com/athletic/5983878/2024/12/10/miami-heat-erik-spoelstra-jimmy-butler-tyler-herro-bam-adebayo-nba/
-
-**Baseball Hall of Famer Ryne Sandberg reveals cancer recurrence**\
-`Sandberg shared the update on his Instagram account, where he first publicly revealed his metastatic prostate cancer diagnosis in January.`\
-https://nytimes.com/athletic/5984331/2024/12/10/ryne-sandberg-mlb-cancer-recurrence/
 

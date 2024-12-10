@@ -1,3 +1,11 @@
+**Wall Street’s Titans Can’t Wait for Trump 2.0**\
+`The financial world sees plenty of opportunity in the return of President-elect Donald J. Trump. For now, Wall Streeters are looking past the risks.`\
+https://nytimes.com/2024/12/10/business/wall-street-trump.html
+
+**Steelers WR George Pickens likely out vs. Eagles with hamstring injury**\
+`“It is a little bit more significant than than what we imagined,” coach Mike Tomlin said.`\
+https://nytimes.com/athletic/5984347/2024/12/10/george-pickens-injury-steelers-eagles/
+
 **Why Gary O'Neil is likely to still be in charge for Wolves' next game**\
 `Gary O'Neil is likely to keep his job at Wolves until the Ipswich game - and a lack of options is one reason behind it`\
 https://nytimes.com/athletic/5984140/2024/12/10/gary-oneil-wolves-future-ipswich/
