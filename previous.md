@@ -1,3 +1,15 @@
+**Chargers were built to run, so why has Greg Roman's play calling abandoned it?**\
+`The Chargers rank ninth in rushing success rate since Week 10. They need Roman to call more designed run attempts.`\
+https://nytimes.com/athletic/5982669/2024/12/10/chargers-run-game-greg-roman/
+
+**NFL Week 14 best and worst coaching decisions: Mike Macdonald's Seahawks now getting it**\
+`Also, Matthew Stafford and the Rams handled blitzes beautifully while the Chargers waited too long to exploit a Chiefs weakness.`\
+https://nytimes.com/athletic/5980469/2024/12/10/nfl-week-14-worst-best-coaching-decisions-nguyen/
+
+**He’s Gay, Absent on Social Media and a Quiet Presence in New York’s Social Scene. Who Is Scott Bessent?**\
+`President-elect Donald J. Trump’s pick for Treasury secretary doesn’t fit his loyalist mold.`\
+https://nytimes.com/2024/12/10/style/scott-bessent-trump-treasury.html
+
 **Rage Grows Over a Spate of Brutal Murders of Women in Kenya**\
 `Almost 100 women have been killed in the span of three months, the police say. Rights groups want President William Ruto to declare femicide a national crisis.`\
 https://nytimes.com/2024/12/10/world/africa/kenya-femicide-protests.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5982322/2024/12/10/commanders-nfc-playoff-picture/
 **Upheaval in the Middle East: A Place for Student Questions and Observations**\
 `Syrian rebel forces took Damascus this weekend, ending a decades-long regime and continuing a series of events that have shaken the region since Hamas’s Oct. 7 attack. Teenagers, tell us how you are making sense of the news.`\
 https://nytimes.com/2024/12/10/learning/upheaval-in-the-middle-east-a-place-for-student-questions-and-observations.html
-
-**Syrian rebels vow to punish senior officials in the Assad government.**\
-`By Qasim Nauman and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/syrian-rebels-vow-to-punish-senior-officials-in-the-assad-government
-
-**Israel Strikes Military Assets Across Syria to Keep Them Out of Rebel Hands**\
-`Photographs showed overnight damage at a research center and at a shipyard. The strikes have hit more than 300 targets since the Assad government fell on Sunday, an independent monitor said.`\
-https://nytimes.com/2024/12/10/world/middleeast/israel-strikes-syria.html
-
-**Jamaican Olympic champion Stona recruited for NFL's IPP program**\
-`Stona is the standout name among the 14 athletes to take part in the 10-week camp, which begins in January.`\
-https://nytimes.com/athletic/5983621/2024/12/10/roje-stona-nfl-player-pathway-football/
 

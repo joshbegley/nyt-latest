@@ -1,3 +1,15 @@
+**Chargers were built to run, so why has Greg Roman's play calling abandoned it?**\
+`The Chargers rank ninth in rushing success rate since Week 10. They need Roman to call more designed run attempts.`\
+https://nytimes.com/athletic/5982669/2024/12/10/chargers-run-game-greg-roman/
+
+**NFL Week 14 best and worst coaching decisions: Mike Macdonald's Seahawks now getting it**\
+`Also, Matthew Stafford and the Rams handled blitzes beautifully while the Chargers waited too long to exploit a Chiefs weakness.`\
+https://nytimes.com/athletic/5980469/2024/12/10/nfl-week-14-worst-best-coaching-decisions-nguyen/
+
+**He’s Gay, Absent on Social Media and a Quiet Presence in New York’s Social Scene. Who Is Scott Bessent?**\
+`President-elect Donald J. Trump’s pick for Treasury secretary doesn’t fit his loyalist mold.`\
+https://nytimes.com/2024/12/10/style/scott-bessent-trump-treasury.html
+
 **Rage Grows Over a Spate of Brutal Murders of Women in Kenya**\
 `Almost 100 women have been killed in the span of three months, the police say. Rights groups want President William Ruto to declare femicide a national crisis.`\
 https://nytimes.com/2024/12/10/world/africa/kenya-femicide-protests.html
