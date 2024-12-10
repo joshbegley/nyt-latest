@@ -1,3 +1,7 @@
+**Nevada OC Matt Lubick to return to Kansas as co-OC, tight ends coach**\
+`In 2023, the 52-year-old Lubick was instrumental as an analyst in leading KU's offense to its best season in 16 years.`\
+https://nytimes.com/athletic/5982966/2024/12/10/matt-lubick-kansas-offensive-coordinator/
+
 **How the Giants can add offense to a crowded lineup after the Willy Adames signing**\
 `The Giants still need to improve the offense even after adding Adames, but they don't have many spots in the lineup available.`\
 https://nytimes.com/athletic/5982942/2024/12/10/sf-giants-offseason-needs-offense/
