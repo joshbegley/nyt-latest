@@ -26,7 +26,7 @@ https://nytimes.com/video/world/middleeast/100000009869599/uncertainty-and-hope-
 `The poet left a long visual record of a career in the public sphere.`\
 https://nytimes.com/2024/12/10/books/nikki-giovanni-photos.html
 
-**Fantasy football market share report:**\
+**Fantasy football market share report: Addison is a must-start; Bigsby is noteworthy**\
 `In his fantasy football market report, Michael Salfino says that Jordan Addison is feasting off the attention paid to Justin Jefferson.`\
 https://nytimes.com/athletic/5984602/2024/12/10/fantasy-football-market-share-addison-bigsby-charbonnet/
 
