@@ -1,3 +1,11 @@
+**A Filmmaker, a Spy and France’s Richest Man Meet in a Paris Court**\
+`Bernard Arnault, the head of LVMH, squared off with a documentary maker in a case of espionage gone wrong, a showdown that had been brewing for years.`\
+https://nytimes.com/2024/12/10/business/lvmh-bernard-arnault-spy-trial.html
+
+**A Chic ’70s Vibe in the Desert, Complete With Gems and Crystals**\
+`Two brothers and a designer created a development company in Pioneertown, Calif., to bring the local natural beauty to the old places that needed it.`\
+https://nytimes.com/2024/12/10/realestate/small-desert-houses-pioneertown.html
+
 **Brighton confirm Diego Gomez signing from Inter Miami**\
 `Brighton &amp; Hove Albion have announced the signing of midfielder Diego Gomez from Inter Miami.`\
 https://nytimes.com/athletic/5984232/2024/12/10/diego-gomez-brighton-transfer-inter-miami/
@@ -5,6 +13,10 @@ https://nytimes.com/athletic/5984232/2024/12/10/diego-gomez-brighton-transfer-in
 **Should Biden Issue Pre-emptive Pardons?**\
 `Readers discuss a column by Michelle Goldberg and an editorial. Also: Farewell, Paul Krugman; jeopardizing jobs; hating and fearing death.`\
 https://nytimes.com/2024/12/10/opinion/biden-pardons.html
+
+**Cowboys Today: Jerry Jones still not interested in seeing Trey Lance over Cooper Rush**\
+`With the playoffs out of the picture, an offseason task becomes more obvious: The Cowboys need more playmakers on offense.`\
+https://nytimes.com/athletic/5984102/2024/12/10/cowboys-cooper-rush-trey-lance-jerry-jones-overshown-injury/
 
 **It is ‘too early’ to remove Syrian rebels from terror list, Britain says.**\
 `By Stephen Castle`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/10/weather/malibu-fire-weather-forecast.html
 **‘It’s Not Me’ Review: Entering the Mind of Leos Carax**\
 `This personal film is a dynamic, even chaotic, collage of moments that bring the director back to his beginnings.`\
 https://nytimes.com/2024/12/10/movies/its-not-me-review.html
-
-**Review Finds Trump-Era Hunt for Leaks Extended Deep Into Congress**\
-`The issue may gain new urgency given that President-elect Donald J. Trump has vowed to pursue leakers in his second term.`\
-https://nytimes.com/2024/12/10/us/politics/trump-leaks-investigation-congress-justice-department.html
-
-**Arctic Tundra Has Long Helped Cool Earth. Now, It’s Fueling Warming.**\
-`Wildfires and thawing permafrost are causing the region to release more carbon dioxide than its plants remove, probably for the first time in thousands of years.`\
-https://nytimes.com/2024/12/10/climate/arctic-emissions-carbon-ice-warming.html
-
-**A Seven-Ingredient Supper That Sings**\
-`Eric Kim’s roast chicken with fish-sauce butter is simple magic. (Plus: croutons.)`\
-https://nytimes.com/2024/12/10/dining/a-seven-ingredient-supper-that-sings.html
 

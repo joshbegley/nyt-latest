@@ -1,3 +1,15 @@
+**A Filmmaker, a Spy and France’s Richest Man Meet in a Paris Court**\
+`Bernard Arnault, the head of LVMH, squared off with a documentary maker in a case of espionage gone wrong, a showdown that had been brewing for years.`\
+https://nytimes.com/2024/12/10/business/lvmh-bernard-arnault-spy-trial.html
+
+**A Chic ’70s Vibe in the Desert, Complete With Gems and Crystals**\
+`Two brothers and a designer created a development company in Pioneertown, Calif., to bring the local natural beauty to the old places that needed it.`\
+https://nytimes.com/2024/12/10/realestate/small-desert-houses-pioneertown.html
+
+**Cowboys Today: Jerry Jones still not interested in seeing Trey Lance over Cooper Rush**\
+`With the playoffs out of the picture, an offseason task becomes more obvious: The Cowboys need more playmakers on offense.`\
+https://nytimes.com/athletic/5984102/2024/12/10/cowboys-cooper-rush-trey-lance-jerry-jones-overshown-injury/
+
 **Brighton confirm Diego Gomez signing from Inter Miami**\
 `Brighton &amp; Hove Albion have announced the signing of midfielder Diego Gomez from Inter Miami.`\
 https://nytimes.com/athletic/5984232/2024/12/10/diego-gomez-brighton-transfer-inter-miami/
