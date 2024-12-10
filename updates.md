@@ -1,3 +1,7 @@
+**The Connections Companion No. 548**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 10, 2024.`\
+https://nytimes.com/2024/12/09/crosswords/connections-companion-548.html
+
 **Norwegian FA criticises FIFA over 2030 and 2034 men's World Cup bidding process**\
 `The Norwegian Football Federation (NFF) has criticised the bidding process for the 2030 and 2034 men&#8217;s World Cups, which it says are &#8220;flawed and inconsistent with the principles of FIFA’s own reforms.`\
 https://nytimes.com/athletic/5983701/2024/12/10/world-cup-fifa-hosts-criticism-norway/
