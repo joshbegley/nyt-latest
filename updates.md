@@ -1,3 +1,7 @@
+**The queasy, quirky, eerily quiet reality of an 'El Sackico'**\
+`Two struggling teams and two managers under pressure - Tim Spiers experiences the eerie malaise of West Ham against Wolves`\
+https://nytimes.com/athletic/5982016/2024/12/10/wolves-west-ham-lopetegui-oneil-manager/
+
 **With an Eye on China, Australia Strikes a Deal With Nauru**\
 `In return for financial support, the Pacific island nation of Nauru pledged not to enter any security pacts without Australia’s assent.`\
 https://nytimes.com/2024/12/10/world/australia/australia-treaty-nauru.html
