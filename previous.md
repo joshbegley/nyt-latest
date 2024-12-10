@@ -1,3 +1,7 @@
+**Reaction to C.E.O. Killing Exposes Frustrations With Health System**\
+`In some quarters, the suspect in Brian Thompson’s murder is being defended and even applauded by Americans who share his outrage over the insurance industry.`\
+https://nytimes.com/2024/12/10/nyregion/uhc-shooting-luigi-mangione-brian-thompson.html
+
 **Scottie Scheffler wins third consecutive PGA Tour Player of the Year award**\
 `Scheffler received 91 percent of the vote for the award and was selected over Xander Schauffele and Rory McIlroy.`\
 https://nytimes.com/athletic/5984953/2024/12/10/scottie-scheffler-pga-tour-player-of-the-year/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/us/politics/biden-trump-tax-cuts-tariffs.html
 **Why the Yankees targeted Max Fried and how he fits in their rotation**\
 `The lefty agreed to an eight-year, $218 million contract with the Yankees on Tuesday.`\
 https://nytimes.com/athletic/5985258/2024/12/10/max-fried-yankees-rotation/
-
-**Leeds 3 Middlesbrough 1: Wober's woe, James relief and who will Ampadu replace?**\
-`The big talking points analysed from Elland Road as Leeds won yet another home game`\
-https://nytimes.com/athletic/5985124/2024/12/10/leeds-middlesbrough-result-analysis/
 
