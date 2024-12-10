@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-ceo-luigi-mangione
 `Today, the Gulf state will secure football's biggest prize. This is how Saudi did it`\
 https://nytimes.com/athletic/5983648/2024/12/10/saudi-arabia-world-cup-2034-explained-fifa/
 
-**Police Say Suspect in United Healthcare Shooting Saw Himself as a Hero**\
+**Police Say Suspect in UnitedHealthcare Shooting Saw Himself as a Hero**\
 `The suspect’s three-page manifesto, summarized by the police, described the killing as a “symbolic takedown.”`\
 https://nytimes.com/2024/12/10/nyregion/luigi-mangione-manifesto.html
 
