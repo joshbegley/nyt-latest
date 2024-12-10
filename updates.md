@@ -1,3 +1,7 @@
+**Map: 5.7-Magnitude Earthquake Strikes Nevada**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/12/09/us/quake-tracker-nevada.html
+
 **Trump Has a New Favorite Foreign Leader. He’s Known as ‘the Madman.’**\
 `Javier Milei and the rebirth of austerity for the needy.`\
 https://nytimes.com/2024/12/09/opinion/donald-trump-javier-milei.html
