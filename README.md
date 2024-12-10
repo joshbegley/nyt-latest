@@ -1,3 +1,7 @@
+**Mookie Betts is a shortstop again and more from the Dodgers at the Winter Meetings**\
+`The Dodgers are still interested in a reunion with Teoscar Hernández and they have a strong foothold in Japan, where there's Roki Sasaki.`\
+https://nytimes.com/athletic/5982735/2024/12/09/mookie-betts-shortstop-dodgers/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>The bracket is set. Are you filling one out for your CFP office pool?</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/2024/12/09/us/samuel-bateman-polygamist-sect-leader-sentenci
 **Full Time: Is Angel City cleaning house?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5982583/2024/12/09/angel-city-nwsl-college-cup-full-time/
-
-**Map: 5.8-Magnitude Earthquake Strikes Nevada**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/12/09/us/quake-tracker-nevada.html
 
