@@ -1,5 +1,13 @@
+**Levante raise more than €16k for flood victims with auction of mud-stained shirts**\
+`Spanish club Levante have raised €16,025 (£13,200, $16,833) for the victims of the recent flash floods in Valencia through the auction of mud-stained football shirts.`\
+https://nytimes.com/athletic/5983587/2024/12/10/levante-valencia-floods-dana-auction/
+
+**No. 1 basketball recruit AJ Dybantsa commits to BYU over UNC, Bama**\
+`Dybantsa is BYU’s highest-ranked recruit in program history.`\
+https://nytimes.com/athletic/5983910/2024/12/10/aj-dybantsa-byu-basketball-commitment/
+
 **FIFA considering U.S. as hosts for 2029 Club World Cup**\
-`The Club World Cup could be hosted by the United States for a second consecutive time as FIFA considers taking the tournament back there in 2029.`\
+`The U.S. is already hosting the 2025 edition of the tournament, which will be the first of its kind.`\
 https://nytimes.com/athletic/5983528/2024/12/10/club-world-cup-2029-us/
 
 **Don’t Worry About Whether Art Basel Is Cool**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/10/arts/design/storm-king-nora-lawrence-director.htm
 **The Bounce: Your NBA Cup matchups and picks**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5983666/2024/12/10/nba-cup-joel-embiid-76ers-nba-the-bounce/
-
-**The rebels in Syria seem to want a more inclusive government, a U.N. envoy says.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/the-rebels-in-syria-seem-to-want-a-more-inclusive-government-a-un-envoy-says
-
-**Gazans feel relief for Syrians, but fear that their suffering will be prolonged.**\
-`By Bilal Shbair and Hiba Yazbek`\
-https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/gazans-feel-relief-for-syrians-but-fear-that-their-suffering-will-be-prolonged
 

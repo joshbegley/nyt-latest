@@ -1,3 +1,15 @@
+**Levante raise more than €16k for flood victims with auction of mud-stained shirts**\
+`Spanish club Levante have raised €16,025 (£13,200, $16,833) for the victims of the recent flash floods in Valencia through the auction of mud-stained football shirts.`\
+https://nytimes.com/athletic/5983587/2024/12/10/levante-valencia-floods-dana-auction/
+
+**No. 1 basketball recruit AJ Dybantsa commits to BYU over UNC, Bama**\
+`Dybantsa is BYU’s highest-ranked recruit in program history.`\
+https://nytimes.com/athletic/5983910/2024/12/10/aj-dybantsa-byu-basketball-commitment/
+
+**FIFA considering U.S. as hosts for 2029 Club World Cup**\
+`The U.S. is already hosting the 2025 edition of the tournament, which will be the first of its kind.`\
+https://nytimes.com/athletic/5983528/2024/12/10/club-world-cup-2029-us/
+
 **FIFA considering U.S. as hosts for 2029 Club World Cup**\
 `The Club World Cup could be hosted by the United States for a second consecutive time as FIFA considers taking the tournament back there in 2029.`\
 https://nytimes.com/athletic/5983528/2024/12/10/club-world-cup-2029-us/
