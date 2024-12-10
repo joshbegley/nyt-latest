@@ -1,3 +1,7 @@
+**The White House says no decision has been made on blocking the U.S. Steel takeover.**\
+`By Alan Rappeport and Lauren Hirsch`\
+https://nytimes.com/live/2024/12/10/us/trump-news/the-white-house-says-no-decision-has-been-made-on-blocking-the-us-steel-takeover
+
 **Jamie Foxx on His Stroke and Other Life-Changing Moments in ‘What Happened Was …’**\
 `The show is both an act of gratitude and a stand-up special. It’s one of four new comedy hours worth checking out.`\
 https://nytimes.com/2024/12/10/arts/television/jamie-foxx-what-happened-was-netflix-special.html

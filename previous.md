@@ -1,3 +1,7 @@
+**The White House says no decision has been made on blocking the U.S. Steel takeover.**\
+`By Alan Rappeport and Lauren Hirsch`\
+https://nytimes.com/live/2024/12/10/us/trump-news/the-white-house-says-no-decision-has-been-made-on-blocking-the-us-steel-takeover
+
 **Jamie Foxx on His Stroke and Other Life-Changing Moments in ‘What Happened Was …’**\
 `The show is both an act of gratitude and a stand-up special. It’s one of four new comedy hours worth checking out.`\
 https://nytimes.com/2024/12/10/arts/television/jamie-foxx-what-happened-was-netflix-special.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974243/2024/12/10/atalanta-2-real-madrid-3-mbappe-
 **Hate Crime Charges Dropped Against Most Salisbury U. Students Who Were Arrested**\
 `Hate crime charges against at least 12 of the 15 Maryland students accused of assaulting a person because of his sexual orientation have been dismissed, court records show. They still face misdemeanor counts.`\
 https://nytimes.com/2024/12/10/us/salisbury-university-hate-crime-charges.html
-
-**Syria’s New Leaders Vow Punishment for Atrocities Under al-Assad**\
-`The rebels who seized Damascus are trying to get a new government up and running, even as foreign powers like Israel and Turkey, and armed Syrian groups, fight for power.`\
-https://nytimes.com/2024/12/10/world/middleeast/syria-rebels-justice.html
 
