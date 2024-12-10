@@ -1,3 +1,7 @@
+**Suspect in C.E.O. Killing Withdrew From a Life of Privilege and Promise**\
+`The suspect, Luigi Mangione, was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychic pain.`\
+https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-mangione.html
+
 **If That Manhunt Photo Looks Like a Loved One, Do You Have to Tell?**\
 `Photos of the suspect in the killing of the UnitedHealthcare C.E.O. were circulated by the police and viewed by millions of Americans, making it likely that at least a few people who saw them recognized him.`\
 https://nytimes.com/2024/12/09/nyregion/if-that-manhunt-photo-looks-like-a-loved-one-do-you-have-to-tell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982775/2024/12/09/blue-jays-juan-soto-failed-bid/
 **Will the Angels and Arte Moreno ever spend on a top-flight free agent again?**\
 `The Angels' entire offseason strategy has centered around finding reclamation projects and strong role players, among others.`\
 https://nytimes.com/athletic/5982740/2024/12/09/los-angeles-angels-arte-moreno-free-agency/
-
-**Reds manager Terry Francona back in his element after 'good year' away from baseball**\
-`Francona spent the past year working on his health and might get a scooter to ride to Great American Ball Park.`\
-https://nytimes.com/athletic/5982793/2024/12/09/reds-manager-terry-francona/
 

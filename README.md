@@ -2,7 +2,7 @@
 `The suspect, Luigi Mangione, was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychic pain.`\
 https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-mangione.html
 
-**If That Manhunt Photo Looks Like a Loved One, Do You Have to Tell?**\
+**That Manhunt Photo Looks Like a Loved One. Do You Have to Tell?**\
 `Photos of the suspect in the killing of the UnitedHealthcare C.E.O. were circulated by the police and viewed by millions of Americans, making it likely that at least a few people who saw them recognized him.`\
 https://nytimes.com/2024/12/09/nyregion/if-that-manhunt-photo-looks-like-a-loved-one-do-you-have-to-tell.html
 
