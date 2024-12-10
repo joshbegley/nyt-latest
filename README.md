@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Andy Newman, Michael Wilson and Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-luigi-mangione/heres-the-latest
+
+**Suspect in Health Care C.E.O.’s Killing Is Charged With Murder**\
+`The suspect, Luigi Mangione, 26, was charged by New York prosecutors. He was arrested and arraigned in Altoona, Pa., on Monday after being spotted at a McDonald’s.`\
+https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-luigi-mangione
+
+**Tennis mailbag: Ask your big questions about the 2024 ATP and WTA seasons**\
+`What stood out to you this year, and what do you want to know more about?`\
+https://nytimes.com/athletic/5983611/2024/12/10/tennis-2024-season-review-question-answer-mailbag/
+
 **Whoever is the starter going forward, Raiders need something different at QB in 2025**\
 `The Raiders' quarterback play this season, from Gardner Minshew to Aidan O'Connell, has been bad. It's not likely to improve with Ridder.`\
 https://nytimes.com/athletic/5982224/2024/12/10/raiders-quarterback-situation-desmond-ridder-aidan-oconnell/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/10/world/middleeast/israel-netanyahu-corruption-tria
 **What the Chicago Cubs are saying about Dansby Swanson's surgery and timeline  **\
 `The Cubs are monitoring the progress of two Gold Glove infielders, but Swanson is ahead of Nico Hoerner in the recovery process.`\
 https://nytimes.com/athletic/5983075/2024/12/10/cubs-dansby-swanson-sports-hernia-surgery/
-
-**What does history tell us about how Juan Soto will age?**\
-`Scouts are bullish on Soto’s bat aging well but the long-term outlook on defense could result in a position change to DH.`\
-https://nytimes.com/athletic/5982594/2024/12/10/juan-soto-mets-age-contract/
-
-**Caleb Williams' toughness — physical and mental — stands out as Bears crumble**\
-`The Bears have lost seven games in a row and have fired multiple coaches, but it's clear that they haven't broken Williams.`\
-https://nytimes.com/athletic/5982795/2024/12/10/bears-caleb-williams-toughness/
-
-**Kevin O'Connell deserving of national praise as Vikings continue to ascend**\
-`Minnesota's head coach has earned credit for what he and his team have done during their 11-2 start — but also for how they've done it.`\
-https://nytimes.com/athletic/5982370/2024/12/10/kevin-oconnell-vikings-coach-of-the-year/
 
