@@ -1,3 +1,15 @@
+**Jason Kelce investigation closed by Penn State police**\
+`University police said the individual in social media videos of the incident has not been identified.`\
+https://nytimes.com/athletic/5984466/2024/12/10/jason-kelce-phone-investigation-closed/
+
+**The suspect had discussed a series of debilitating health struggles on Reddit.**\
+`By Mike Baker, Mike Isaac and Aric Toler`\
+https://nytimes.com/2024/12/10/nyregion/the-suspect-had-discussed-a-series-of-debilitating-health-struggles-online.html
+
+**As Teenagers, They Protested Trump’s Climate Policy. Now What?**\
+`Some young climate activists who were galvanized under Donald Trump’s first presidency are taking a different approach to his second.`\
+https://nytimes.com/2024/12/10/climate/youth-climate-movement-sunrise.html
+
 **The suspect had discussed a series of debilitating health struggles online.**\
 `By Mike Baker, Mike Isaac and Aric Toler`\
 https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-ceo-luigi-mangione/the-suspect-had-discussed-a-series-of-debilitating-health-struggles-online
