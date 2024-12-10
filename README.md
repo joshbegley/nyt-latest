@@ -1,3 +1,7 @@
+**Leeds 1 Middlesbrough 0: Wober's woe, James relief and who will Ampadu replace?**\
+`The big talking points analysed from Elland Road as Leeds won yet another home game`\
+https://nytimes.com/athletic/5985124/2024/12/10/leeds-middlesbrough-result-analysis/
+
 **Wildfire Conditions are Expected to Ease by the End of the Week**\
 `Rising humidity and a breeze pushing moist air inland from the Pacific Ocean are expected lower the wildfire risk around Malibu, Calif., by Thursday, forecasters said.`\
 https://nytimes.com/2024/12/10/weather/fire-forecast-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/world/middleeast/gaza-hospital-food-water-shortag
 **Cowboys LB DeMarvion Overshown could miss 2025 season due to knee injury**\
 `The rising star defender suffered the season-ending knee injury on "Monday Night Football" against the Bengals.`\
 https://nytimes.com/athletic/5984877/2024/12/10/demarvion-overshown-injury-knee-cowboys/
-
-**Explaining how BOS Nation's stadium lawsuit could derail the team's NWSL start**\
-`BOS Nation has faced multiple obstacles in the year since announcing it was joining the league. The latest hurdle could delay its debut.`\
-https://nytimes.com/athletic/5984817/2024/12/10/bos-nation-fc-nwsl-stadium-lawsuit/
 
