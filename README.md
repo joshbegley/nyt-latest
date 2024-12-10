@@ -1,3 +1,15 @@
+**Yankees sign lefty Max Fried to eight-year, $218 million contract**\
+`Fried finished his Braves tenure as a two-time NL All Star, a three-time Gold Glove Award winner and the 2021 Silver Slugger winner.`\
+https://nytimes.com/athletic/5941194/2024/12/10/max-fried-yankees-free-agent-deal/
+
+**Mountain West Conference to add UC Davis as non-sports member in 2026**\
+`It’s the latest addition for the MW following the upcoming defections of five schools for the rebuilding Pac-12 in summer 2026`\
+https://nytimes.com/athletic/5985143/2024/12/10/mountain-west-conference-to-add-uc-davis-as-full-non-sports-member-in-2026/
+
+**Suspect in C.E.O. Killing Fights Extradition**\
+`Also, a wildfire roared into Malibu. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/12/10/briefing/suspect-ceo-killing-california-fire-malibu.html
+
 **The White House says no decision has been made on blocking the U.S. Steel takeover.**\
 `By Alan Rappeport and Lauren Hirsch`\
 https://nytimes.com/live/2024/12/10/us/trump-news/the-white-house-says-no-decision-has-been-made-on-blocking-the-us-steel-takeover
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/10/us/politics/biden-judges-veto-white-house.html
 **Picking Through a Ruined Palace, in the Name of Vengance**\
 `The debris of fallen tyrannies like al-Assad’s often carries a lingering fascination.`\
 https://nytimes.com/2024/12/10/opinion/syria-assad-palace-looting.html
-
-**Mbappe to undergo tests on thigh injury**\
-`Kylian Mbappe will undergo tests to determine the extent of a thigh injury after the forward was forced off during the first half of Real Madrid&#8217;s Champions League win over Atalanta on Tuesday night.`\
-https://nytimes.com/athletic/5984894/2024/12/10/mbappe-real-madrid-injury/
-
-**The Briefing: Atalanta 2 Real Madrid 3: Madrid's big hitters step up, but pain for Mbappe**\
-`Atalanta and Real Madrid, as expected, served up a cracking Champions League match on Tuesday evening...`\
-https://nytimes.com/athletic/5974243/2024/12/10/atalanta-2-real-madrid-3-mbappe-bellingham-vinicius-lookman/
-
-**Hate Crime Charges Dropped Against Most Salisbury U. Students Who Were Arrested**\
-`Hate crime charges against at least 12 of the 15 Maryland students accused of assaulting a person because of his sexual orientation have been dismissed, court records show. They still face misdemeanor counts.`\
-https://nytimes.com/2024/12/10/us/salisbury-university-hate-crime-charges.html
 
