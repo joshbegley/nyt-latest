@@ -1,3 +1,7 @@
+**Kevin Korchinski shows how far he's come in Anders Sorensen's first Blackhawks victory**\
+`Korchinski's play in a 2-1 win over the Rangers was a beacon of hope for both Chicago's immediate future and the long-term outlook.`\
+https://nytimes.com/athletic/5983106/2024/12/09/blackhawks-korchinski-sorenson-rangers/
+
 **Nikki Giovanni, Poet Who Wrote of Black Joy, Dies at 81**\
 `Ms. Giovanni tackled race, gender, sex, politics and love. She was a celebrity poet and public intellectual who appeared on television and toured the country.`\
 https://nytimes.com/2024/12/09/obituaries/nikki-giovanni-poet-who-wrote-of-black-joy-dies-at-81.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982944/2024/12/09/detroit-tigers-winter-meetings-a
 **Suspect in C.E.O. Killing Withdrew From a Life of Privilege and Promise**\
 `The suspect, Luigi Mangione was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychological pain.`\
 https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-mangione.html
-
-**That Manhunt Photo Looks Like a Loved One. Do You Have to Tell?**\
-`Photos of the suspect in the killing of the UnitedHealthcare C.E.O. were circulated by the police and viewed by millions of Americans, making it likely that at least a few people who saw them recognized him.`\
-https://nytimes.com/2024/12/09/nyregion/crime-reporting-loved-one.html
 
