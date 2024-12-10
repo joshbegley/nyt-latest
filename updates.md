@@ -1,3 +1,7 @@
+**Tracking the Franklin Wildfire in Malibu, Calif.**\
+`Maps and`\
+https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html
+
 **Wordle Review No. 1,271**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
 https://nytimes.com/2024/12/10/crosswords/wordle-review-1271.html
