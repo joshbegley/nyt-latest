@@ -1,3 +1,11 @@
+**Nebraska fills defensive staff, promotes John Butler to DC: Source**\
+`Butler had been the interim DC since Tony White left the program for the same role at Florida State earlier this month.`\
+https://nytimes.com/athletic/5985013/2024/12/10/nebraska-defensive-coordinator-john-butler-college-football/
+
+**Fund-Raiser Who Pocketed Money Meant for Sick Kids and Vets Gets 10 Years in Prison**\
+`Richard Zeitlin, a telemarketing kingpin who kept 80 percent of the donations raised for charities, pleaded guilty to conspiracy to commit wire fraud in September.`\
+https://nytimes.com/2024/12/10/us/politics/richard-zeitlin-prison.html
+
 **G.M. Will Stop Developing Self-Driving Taxis**\
 `The company said it would now focus its efforts on developing fully autonomous vehicles for personal use.`\
 https://nytimes.com/2024/12/10/business/gm-cruise-robotaxi.html
