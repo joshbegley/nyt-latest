@@ -1,3 +1,7 @@
+**Max Fried nearing free agency decision, with Yankees, Red Sox, Blue Jays among teams in mix**\
+`Fried, the top remaining LHP starter on the free-agent market, is expected to choose his next team by Thursday, according to league sources.`\
+https://nytimes.com/athletic/5984497/2024/12/10/max-fried-free-agency-yankees-red-sox-blue-jays/
+
 **Suspect in CEO’s Killing Had Discussed His Health Struggles on Reddit**\
 `In posts that stretch over years, he described debilitating back pain, “brain fog” in his college years and testing for irritable bowel syndrome.`\
 https://nytimes.com/2024/12/10/nyregion/luigi-mangione-health-issues-reddit.html
