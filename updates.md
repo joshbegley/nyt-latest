@@ -1,3 +1,7 @@
+**‘Nature of the Crime’ Review: Yearning for a Second Chance**\
+`Two incarcerated men navigate parole boards in a documentary that asks the question: Should the guiding principle of criminal justice be retribution or rehabilitation?`\
+https://nytimes.com/2024/12/10/movies/nature-of-the-crime-review.html
+
 **The Briefing: Girona 0-1 Liverpool - Was it a penalty and what now for Nunez?**\
 `The major talking points analysed as Arne Slot's close in on the Champions League last 16`\
 https://nytimes.com/athletic/5974242/2024/12/10/girona-liverpool-champions-league-analysis/
