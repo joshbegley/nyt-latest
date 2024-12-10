@@ -1,8 +1,16 @@
+**The suspect had discussed a series of debilitating health struggles online.**\
+`By Mike Baker, Mike Isaac and Aric Toler`\
+https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-ceo-luigi-mangione/the-suspect-had-discussed-a-series-of-debilitating-health-struggles-online
+
+**NFL MVP odds: It's Josh Allen's world and Barkley, Goff, Jackson, Mahomes are living in it**\
+`Josh Allen is looking uncatchable in the MVP odds. Other risers and fallers tell the story of the season so far.`\
+https://nytimes.com/athletic/5984153/2024/12/10/nfl-mvp-odds-week-14-josh-allen/
+
 **Monarch Butterflies Are Recommended for Protected Status**\
 `They would become the most commonly seen species to receive federal protection if the proposal is adopted.`\
 https://nytimes.com/2024/12/10/climate/monarch-butterflies-endangered-species-list.html
 
-**As Teenagers They Protested Trump’s Climate Policy. Now What?**\
+**As Teenagers, They Protested Trump’s Climate Policy. Now What?**\
 `Some young climate activists, who galvanized under Donald Trump’s first presidency, are taking a different approach to his second.`\
 https://nytimes.com/2024/12/10/climate/youth-climate-movement-sunrise.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/10/us/pepperdine-malibu-wildfire-shelter-in-place.ht
 **Bill Belichick weighing offer to become UNC coach, but hurdles remain: Sources**\
 `While a deal may still come together quickly, sources cautioned that nothing is imminent and the sides remain apart on multiple key terms.`\
 https://nytimes.com/athletic/5984362/2024/12/10/bill-belichick-unc-football-coach-update/
-
-**Ranking Nebraska's top 5 positions of need in the transfer portal**\
-`With a mix of transfer departures and graduating seniors, Nebraska must prioritize defensive linemen in the portal.`\
-https://nytimes.com/athletic/5984370/2024/12/10/nebraska-college-football-transfer-portal-needs-matt-rhule/
-
-**Resist Trump? On Immigration, Top Democrats See Room for Compromise.**\
-`In interviews, a range of Democratic governors expressed some defiance toward the president-elect’s expected crackdown, but also showed a surprising willingness to work with him.`\
-https://nytimes.com/2024/12/10/us/politics/democrats-trump-immigration-crackdown.html
 
