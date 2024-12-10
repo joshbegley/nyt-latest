@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>The bracket is set. Are you filling one out for your CFP office pool?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5982785/2024/12/09/submit-a-question-for-stewart-mandels-college-football-mailbag-285/
+
 **Trump Has a New Favorite Foreign Leader. He’s Known as ‘the Madman.’**\
 `Javier Milei and the rebirth of austerity for the needy.`\
 https://nytimes.com/2024/12/09/opinion/donald-trump-javier-milei.html
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/5982583/2024/12/09/angel-city-nwsl-college-cup-full
 **Map: 5.8-Magnitude Earthquake Strikes Nevada**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/12/09/us/quake-tracker-nevada.html
-
-**Moderate Earthquake Rattles Reno and Lake Tahoe**\
-`Preliminary estimates showed that the quake had a magnitude of 5.5, according to the U.S. Geological Survey.`\
-https://nytimes.com/2024/12/09/us/earthquake-reno-lake-tahoe-nevada.html
 
