@@ -1,3 +1,13 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>The bracket is set. Are you filling one out for your CFP office pool?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5982785/2024/12/09/submit-a-question-for-stewart-mandels-college-football-mailbag-285/
+
+**Map: 5.8-Magnitude Earthquake Strikes Nevada**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/12/09/us/quake-tracker-nevada.html
+
 **Map: 5.7-Magnitude Earthquake Strikes Nevada**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/12/09/us/quake-tracker-nevada.html
