@@ -1,3 +1,7 @@
+**Mookie Betts is a shortstop again and more from the Dodgers at the Winter Meetings**\
+`The Dodgers are still interested in a reunion with Teoscar Hernández and they have a strong foothold in Japan, where there's Roki Sasaki.`\
+https://nytimes.com/athletic/5982735/2024/12/09/mookie-betts-shortstop-dodgers/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>The bracket is set. Are you filling one out for your CFP office pool?</p>
 <p>Leave your questions here. Please include your city.</p>
