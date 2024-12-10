@@ -1,3 +1,7 @@
+**Nebraska fills defensive staff, promotes John Butler to DC: Source**\
+`Butler had been the interim DC since Tony White left the program for the same role at Florida State earlier this month.`\
+https://nytimes.com/athletic/5985013/2024/12/10/nebraska-defensive-coordinator-john-butler-college-football/
+
 **G.M. Will Stop Developing Self-Driving Taxis**\
 `The company said it would now focus its efforts on developing fully autonomous vehicles for personal use.`\
 https://nytimes.com/2024/12/10/business/gm-cruise-robotaxi.html
@@ -11,7 +15,7 @@ https://nytimes.com/2024/12/10/world/europe/france-author-rwanda-genocide.html
 https://nytimes.com/athletic/5984794/2024/12/10/browns-cut-kadarius-toney-greg-newsome-ir/
 
 **Fund-Raiser Who Pocketed Money Meant for Sick Kids and Vets Gets 10 Years in Prison**\
-`Richard Zeitlin, a telemarketing kingpin who kept 80 percent of the donations raised for charities, pleaded guilty to fraud in September.`\
+`Richard Zeitlin, a telemarketing kingpin who kept 80 percent of the donations raised for charities, pleaded guilty to conspiracy to commit wire fraud in September.`\
 https://nytimes.com/2024/12/10/us/politics/richard-zeitlin-prison.html
 
 **How the Climate Movement Is Changing Tactics After Trump’s Win**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984602/2024/12/10/fantasy-football-market-share-ad
 **Orioles have made incremental adds but need to take a big swing: Law**\
 `The Orioles have added two hitters who mash lefties but need bigger acquisitions to take advantage of their opportunity to win the AL East.`\
 https://nytimes.com/athletic/5984511/2024/12/10/orioles-offseason-outlook/
-
-**U.S. Transfers $20 Billion Loan to Ukraine Backed by Russian Assets**\
-`The economic lifeline ensures that Ukraine will have economic support after President-elect Donald J. Trump takes office.`\
-https://nytimes.com/2024/12/10/us/politics/20-billion-dollar-loan-ukraine.html
 
