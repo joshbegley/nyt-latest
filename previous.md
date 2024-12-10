@@ -1,3 +1,19 @@
+**Brighton confirm Diego Gomez signing from Inter Miami**\
+`Brighton &amp; Hove Albion have announced the signing of midfielder Diego Gomez from Inter Miami.`\
+https://nytimes.com/athletic/5984232/2024/12/10/diego-gomez-brighton-transfer-inter-miami/
+
+**Should Biden Issue Pre-emptive Pardons?**\
+`Readers discuss a column by Michelle Goldberg and an editorial. Also: Farewell, Paul Krugman; jeopardizing jobs; hating and fearing death.`\
+https://nytimes.com/2024/12/10/opinion/biden-pardons.html
+
+**It is ‘too early’ to remove Syrian rebels from terror list, Britain says.**\
+`By Stephen Castle`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/it-is-too-early-to-remove-syrian-rebels-from-terror-list-britain-says
+
+**Tierney ready to make Arsenal return - Arteta**\
+`Mikel Arteta says that Kieran Tierney &#8220;is ready&#8221; to make his Arsenal return if needed, with up to seven full-backs not training before their Champions League clash with Monaco.`\
+https://nytimes.com/athletic/5984011/2024/12/10/arsenal-injury-updates-monaco/
+
 **Trump Calls Trudeau the ‘Governor’ of ‘The Great State of Canada’**\
 `The president-elect’s mockery of Canada and its leader is the latest salvo after his promise to impose steep tariffs on Canadian exports.`\
 https://nytimes.com/2024/12/10/world/canada/trump-trudeau-canada-tariffs.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/10/climate/arctic-emissions-carbon-ice-warming.html
 **A Seven-Ingredient Supper That Sings**\
 `Eric Kim’s roast chicken with fish-sauce butter is simple magic. (Plus: croutons.)`\
 https://nytimes.com/2024/12/10/dining/a-seven-ingredient-supper-that-sings.html
-
-**Biden Administration Sprints to Tie Up Tech Loose Ends**\
-`Regulators are working around the clock to cement four years of tech policy ahead of the inauguration of President-elect Donald J. Trump.`\
-https://nytimes.com/2024/12/10/technology/biden-tech-regulation.html
-
-**Police Arrest 3 After Deadly Explosion in the Netherlands**\
-`The blast, which the mayor of The Hague called an “unprecedented disaster,” killed six people on Saturday morning.`\
-https://nytimes.com/2024/12/10/world/europe/hague-explosion-arrests-netherlands.html
-
-**Levante raise more than €16k for flood victims with auction of mud-stained shirts**\
-`Spanish club Levante have raised €16,025 (£13,200, $16,833) for the victims of the recent flash floods in Valencia through the auction of mud-stained football shirts.`\
-https://nytimes.com/athletic/5983587/2024/12/10/levante-valencia-floods-dana-auction/
-
-**No. 1 basketball recruit AJ Dybantsa commits to BYU over UNC, Bama**\
-`Dybantsa is BYU’s highest-ranked recruit in program history.`\
-https://nytimes.com/athletic/5983910/2024/12/10/aj-dybantsa-byu-basketball-commitment/
 
