@@ -1,3 +1,11 @@
+**Debate Over Hegseth’s Fitness Highlights a Gender Divide in the Senate**\
+`As many of the Senate’s Republican men dismiss allegations against President-elect Donald J. Trump’s pick to lead the Pentagon, only a small group of G.O.P. women have voiced even a hint of skepticism.`\
+https://nytimes.com/2024/12/10/us/politics/senate-republicans-women-hegseth.html
+
+**Dodgers aren't a fit for Nolan Arenado even as Cardinals look to trade him: Sources**\
+`Arenado is an unlikely match given the production the reigning World Series champions have already gotten at third base, `\
+https://nytimes.com/athletic/5984758/2024/12/10/dodgers-nolan-arenado-trade-cardinals/
+
 **Dick Van Dyke and Cher were evacuated from their Malibu homes.**\
 `By Matt Stevens and Derrick Bryson Taylor`\
 https://nytimes.com/2024/12/10/us/celebrities-van-dyke-cher-streisand.html
@@ -29,13 +37,4 @@ https://nytimes.com/interactive/2024/12/10/us/worcester-police-sexual-misconduct
 **Supreme Court Poised to Curb Scope of Environmental Reviews**\
 `Several justices indicated that a federal agency had complied with a federal law by issuing a 3,600-page report on the impact of a proposed railway in Utah.`\
 https://nytimes.com/2024/12/10/us/politics/supreme-court-environmental-reviews.html
-
-**When Nikki Giovanni Was Young, Brilliant and Unafraid**\
-`The poet set the course for her revolutionary career early, and charted it faithfully for decades by staying true to her vision and herself.`\
-https://nytimes.com/2024/12/10/books/nikki-giovanni-appraisal.html
-
-**75 years later...a new discussion about Jackie Robinson rookie cards?**\
-`What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
-`\
-https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
 

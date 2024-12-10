@@ -1,3 +1,11 @@
+**Debate Over Hegseth’s Fitness Highlights a Gender Divide in the Senate**\
+`As many of the Senate’s Republican men dismiss allegations against President-elect Donald J. Trump’s pick to lead the Pentagon, only a small group of G.O.P. women have voiced even a hint of skepticism.`\
+https://nytimes.com/2024/12/10/us/politics/senate-republicans-women-hegseth.html
+
+**Dodgers aren't a fit for Nolan Arenado even as Cardinals look to trade him: Sources**\
+`Arenado is an unlikely match given the production the reigning World Series champions have already gotten at third base, `\
+https://nytimes.com/athletic/5984758/2024/12/10/dodgers-nolan-arenado-trade-cardinals/
+
 **75 years later...a new discussion about Jackie Robinson rookie cards?**\
 `What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
 `\
