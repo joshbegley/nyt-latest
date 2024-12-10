@@ -1,3 +1,7 @@
+**Trump Has a New Favorite Foreign Leader. He’s Known as ‘the Madman.’**\
+`Javier Milei and the rebirth of austerity for the needy.`\
+https://nytimes.com/2024/12/09/opinion/donald-trump-javier-milei.html
+
 **Astros receiving trade inquiries on Kyle Tucker: Sources**\
 `Multiple people familiar with the club’s thinking said Astros GM Dana Brown is open to dealing one of Tucker or starter Framber Valdez.`\
 https://nytimes.com/athletic/5982648/2024/12/09/astros-kyle-tucker-trade-inquiries/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/09/us/quake-tracker-nevada.html
 **Moderate Earthquake Rattles Reno and Lake Tahoe**\
 `Preliminary estimates showed that the quake had a magnitude of 5.5, according to the U.S. Geological Survey.`\
 https://nytimes.com/2024/12/09/us/earthquake-reno-lake-tahoe-nevada.html
-
-**Eyes, Not Tech, Led Police to ‘Person of Interest’ in C.E.O. Killing**\
-`The key was not advanced facial recognition technology. An employee at a Pennsylvania McDonald’s reported the man after seeing a widely circulated image of the suspect.`\
-https://nytimes.com/2024/12/09/nyregion/uhc-ceo-suspect-photos-facial-recognition.html
 
