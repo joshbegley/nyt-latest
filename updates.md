@@ -1,3 +1,7 @@
+**Explaining how BOS Nation's stadium lawsuit could derail the team's NWSL start**\
+`BOS Nation has faced multiple obstacles in the year since announcing it was joining the league. The latest hurdle could delay its debut.`\
+https://nytimes.com/athletic/5984817/2024/12/10/bos-nation-fc-nwsl-stadium-lawsuit/
+
 **White House Threatens Biden Veto of Bipartisan Bill to Add New Judges**\
 `The legislation would create more than 60 new federal court seats over the next decade, giving the Trump White House a first shot at filling dozens of new vacancies.`\
 https://nytimes.com/2024/12/10/us/politics/biden-judges-veto-white-house.html
