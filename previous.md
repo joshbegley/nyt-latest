@@ -1,3 +1,7 @@
+**After missing out on top target Juan Soto, Blue Jays have to find way to bounce back better**\
+`A lot is riding on this offseason for the Blue Jays.`\
+https://nytimes.com/athletic/5982775/2024/12/09/blue-jays-juan-soto-failed-bid/
+
 **Will the Angels and Arte Moreno ever spend on a top-flight free agent again?**\
 `The Angels' entire offseason strategy has centered around finding reclamation projects and strong role players, among others.`\
 https://nytimes.com/athletic/5982740/2024/12/09/los-angeles-angels-arte-moreno-free-agency/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5982648/2024/12/09/astros-kyle-tucker-trade-inquiri
 **Can Clay Holmes make transition from reliever to Mets starter? Scouts weigh in**\
 `One AL evaluator expressed skepticism: "Does he lose some velocity in a starter role?"`\
 https://nytimes.com/athletic/5979688/2024/12/09/mets-clay-holmes-reliever/
-
-**Cashman: Steinbrenner's Soto pursuit 'went above and beyond'**\
-`"There's a lot of different ways to figure this thing out, and so we're going to have to figure out a different way without Juan."`\
-https://nytimes.com/athletic/5982637/2024/12/09/yankees-juan-soto-brian-cashman-hal-steinbrenner/
 

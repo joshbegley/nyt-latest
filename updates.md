@@ -1,3 +1,7 @@
+**After missing out on top target Juan Soto, Blue Jays have to find way to bounce back better**\
+`A lot is riding on this offseason for the Blue Jays.`\
+https://nytimes.com/athletic/5982775/2024/12/09/blue-jays-juan-soto-failed-bid/
+
 **Will the Angels and Arte Moreno ever spend on a top-flight free agent again?**\
 `The Angels' entire offseason strategy has centered around finding reclamation projects and strong role players, among others.`\
 https://nytimes.com/athletic/5982740/2024/12/09/los-angeles-angels-arte-moreno-free-agency/
