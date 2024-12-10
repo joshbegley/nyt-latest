@@ -1,3 +1,7 @@
+**Trump Picks Strident Supporter for Civil Rights Post at Justice Dept.**\
+`Harmeet K. Dhillon has been a conservative activist so devoted to the president-elect that she was willing to attack not only Democrats but also fellow Republicans.`\
+https://nytimes.com/2024/12/09/us/politics/trump-civil-rights-harmeet-dhillon.html
+
 **Red Sox Winter Meetings notes: Pitching priorities, possible trade pool, pen news and more**\
 `"There's a lot of ways to accomplish what we set out to do,” manager Alex Cora said.`\
 https://nytimes.com/athletic/5982809/2024/12/09/red-sox-winter-meetings-free-agents/
