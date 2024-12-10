@@ -1,3 +1,7 @@
+**Rage Grows Over a Spate of Brutal Murders of Women in Kenya**\
+`Almost 100 women have been killed in the span of three months, the police say. Rights groups want President William Ruto to declare femicide a national crisis.`\
+https://nytimes.com/2024/12/10/world/africa/kenya-femicide-protests.html
+
 **Wolves captain Lemina apologises for post-West Ham altercation**\
 `Wolverhampton Wanderers captain Mario Lemina has apologised to fans for the ill-tempered scenes in which he squared up to coach Shaun Derry and clashed with team-mates following the 2-1 defeat at West Ham United.`\
 https://nytimes.com/athletic/5983649/2024/12/10/mario-lemina-west-ham-wolves-apology/
