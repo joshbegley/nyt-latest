@@ -1,3 +1,7 @@
+**Nationals win MLB Draft Lottery, land No. 1 pick in 2025 draft**\
+`In the past, the Nationals have selected both Stephen Strasburg (2009), as well as Bryce Harper (2010) with the No. 1 selection. `\
+https://nytimes.com/athletic/5985327/2024/12/10/mlb-2024-draft-lottery-washington-nationals-no-1-pick/
+
 **Biden Says Trump’s Tax Cuts and Tariffs Would Be ‘a Major Mistake’**\
 `The president also said his successor would face blowback from the Republican Party if he tried to unwind the Biden agenda.`\
 https://nytimes.com/2024/12/10/us/politics/biden-trump-tax-cuts-tariffs.html
@@ -18,7 +22,7 @@ https://nytimes.com/2024/12/10/weather/fire-forecast-california.html
 `The end of al-Assad’s wretched regime unlocks many doors.`\
 https://nytimes.com/2024/12/10/opinion/syria-assad-israel.html
 
-**Yankees to sign lefty Max Fried to eight-year, $218 million contract**\
+**Yankees to sign lefty Max Fried to 8-year, $218 million contract**\
 `Fried finished his Braves tenure as a two-time NL All Star, a three-time Gold Glove Award winner and the 2021 Silver Slugger winner.`\
 https://nytimes.com/athletic/5941194/2024/12/10/max-fried-yankees-free-agent-deal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/briefing/suspect-ceo-killing-california-fire-mali
 **The White House says no decision has been made on blocking the U.S. Steel takeover.**\
 `By Alan Rappeport and Lauren Hirsch`\
 https://nytimes.com/live/2024/12/10/us/trump-news/the-white-house-says-no-decision-has-been-made-on-blocking-the-us-steel-takeover
-
-**Jamie Foxx on His Stroke and Other Life-Changing Moments in ‘What Happened Was …’**\
-`The show is both an act of gratitude and a stand-up special. It’s one of four new comedy hours worth checking out.`\
-https://nytimes.com/2024/12/10/arts/television/jamie-foxx-what-happened-was-netflix-special.html
 
