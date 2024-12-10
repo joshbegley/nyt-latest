@@ -1,5 +1,9 @@
+**Nikki Giovanni, Poet Who Wrote of Black Joy, Dies at 81**\
+`Ms. Giovanni tackled race, gender, sex, politics and love. She was a celebrity poet and public intellectual who appeared on television and toured the country.`\
+https://nytimes.com/2024/12/09/obituaries/nikki-giovanni-poet-who-wrote-of-black-joy-dies-at-81.html
+
 **Staple: No fight in New York — zero-effort Rangers loss is rock bottom**\
-`The Rangers did not look like a team motivated to escape their downward spiral in a 2-1 loss to Chicago at home.`\
+`New York did not look like a team motivated to escape their downward spiral in a 2-1 loss to Chicago at home.`\
 https://nytimes.com/athletic/5983019/2024/12/09/rangers-rock-bottom-blackhawks-drury/
 
 **Giants focus on the next move after Willy Adames: 'He's just a unique connector of people'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-man
 **That Manhunt Photo Looks Like a Loved One. Do You Have to Tell?**\
 `Photos of the suspect in the killing of the UnitedHealthcare C.E.O. were circulated by the police and viewed by millions of Americans, making it likely that at least a few people who saw them recognized him.`\
 https://nytimes.com/2024/12/09/nyregion/crime-reporting-loved-one.html
-
-**Corrections: Dec. 10, 2024**\
-`Corrections that appeared in print on Tuesday, Dec. 10, 2024.`\
-https://nytimes.com/2024/12/09/pageoneplus/corrections-dec-10-2024.html
 
