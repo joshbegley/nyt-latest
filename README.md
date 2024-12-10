@@ -1,3 +1,7 @@
+**Tracking the Franklin Wildfire in Malibu, Calif.**\
+`Maps and`\
+https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html
+
 **Wordle Review No. 1,271**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
 https://nytimes.com/2024/12/10/crosswords/wordle-review-1271.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984011/2024/12/10/arsenal-injury-updates-monaco/
 **Trump Calls Trudeau the ‘Governor’ of ‘The Great State of Canada’**\
 `The president-elect’s mockery of Canada and its leader is the latest salvo after his promise to impose steep tariffs on Canadian exports.`\
 https://nytimes.com/2024/12/10/world/canada/trump-trudeau-canada-tariffs.html
-
-**A ‘Particularly Dangerous Situation’ for Fire Weather Is Unfolding**\
-`Strong winds have created a fast-moving and hot blaze, forecasters said, and the conditions are expected to continue into the evening.`\
-https://nytimes.com/2024/12/10/weather/malibu-fire-weather-forecast.html
 
