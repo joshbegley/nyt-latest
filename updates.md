@@ -1,3 +1,7 @@
+**FIFA considering U.S. as hosts for 2029 Club World Cup**\
+`The Club World Cup could be hosted by the United States for a second consecutive time as FIFA considers taking the tournament back there in 2029.`\
+https://nytimes.com/athletic/5983528/2024/12/10/club-world-cup-2029-us/
+
 **Don’t Worry About Whether Art Basel Is Cool**\
 `The annual global art fair in Miami featured a heady mélange of artists, gallerists, A-list celebrities, luxury brands and Mad Libs-esque collaborations among many of them.`\
 https://nytimes.com/2024/12/10/style/art-basel-scene-rihanna-gigi-hadid-asap-rocky.html

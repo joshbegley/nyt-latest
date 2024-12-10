@@ -1,3 +1,7 @@
+**FIFA considering U.S. as hosts for 2029 Club World Cup**\
+`The Club World Cup could be hosted by the United States for a second consecutive time as FIFA considers taking the tournament back there in 2029.`\
+https://nytimes.com/athletic/5983528/2024/12/10/club-world-cup-2029-us/
+
 **Don’t Worry About Whether Art Basel Is Cool**\
 `The annual global art fair in Miami featured a heady mélange of artists, gallerists, A-list celebrities, luxury brands and Mad Libs-esque collaborations among many of them.`\
 https://nytimes.com/2024/12/10/style/art-basel-scene-rihanna-gigi-hadid-asap-rocky.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/the-rebels-in-
 **Gazans feel relief for Syrians, but fear that their suffering will be prolonged.**\
 `By Bilal Shbair and Hiba Yazbek`\
 https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/gazans-feel-relief-for-syrians-but-fear-that-their-suffering-will-be-prolonged
-
-**Fantasy football Week 15 drops: You can cut Deebo Samuel amid decline**\
-`Gary Davenport gives advice on who to drop for those heading into or vying for a spot in the fantasy football playoffs. `\
-https://nytimes.com/athletic/5983893/2024/12/10/fantasy-football-week-15-drops-the-end-of-the-line-for-deebo-samuel-tyler-lockett-and-more/
 
