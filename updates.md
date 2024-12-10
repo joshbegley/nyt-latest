@@ -1,3 +1,7 @@
+**The Connections Companion No. 549**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
+https://nytimes.com/2024/12/10/crosswords/connections-companion-549.html
+
 **Nevada OC Matt Lubick to return to Kansas as co-OC, tight ends coach**\
 `In 2023, the 52-year-old Lubick was instrumental as an analyst in leading KU's offense to its best season in 16 years.`\
 https://nytimes.com/athletic/5982966/2024/12/10/matt-lubick-kansas-offensive-coordinator/

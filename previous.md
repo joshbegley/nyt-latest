@@ -1,3 +1,7 @@
+**The Connections Companion No. 549**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
+https://nytimes.com/2024/12/10/crosswords/connections-companion-549.html
+
 **Nevada OC Matt Lubick to return to Kansas as co-OC, tight ends coach**\
 `In 2023, the 52-year-old Lubick was instrumental as an analyst in leading KU's offense to its best season in 16 years.`\
 https://nytimes.com/athletic/5982966/2024/12/10/matt-lubick-kansas-offensive-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5975206/2024/12/10/steve-phelps-nascar-charter-play
 **How Murdoch Could Fight Back After a Big Legal Defeat**\
 `Rupert Murdoch lost a bid to rewrite a family trust to give his son Lachlan control of his empire after he dies. But the nonagenarian media titan plans to appeal.`\
 https://nytimes.com/2024/12/10/business/dealbook/murdoch-lachlan-trust-succession.html
-
-**When can the postponed Merseyside derby be rearranged?**\
-`With a jam-packed schedule, finding a date for the rearranged Merseyside derby may not be straightforward`\
-https://nytimes.com/athletic/5983640/2024/12/10/everton-liverpool-rearranged-date-postponed/
 
