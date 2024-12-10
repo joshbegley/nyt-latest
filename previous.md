@@ -1,3 +1,23 @@
+**Met Museum Unveils Design for New Modern Wing**\
+`The architect Frida Escobedo has drawn on her Mexican heritage in reimagining the galleries for Modern and contemporary art.`\
+https://nytimes.com/2024/12/10/arts/design/met-museum-frida-escobedo-architecture-tang-wing-art.html
+
+**Storm King to Begin 2025 With Nora Lawrence as Executive Director**\
+`The family-run Hudson Valley sculpture park inaugurates its 65th anniversary year with fresh leadership, a $53-million upgrade and new acquisitions.`\
+https://nytimes.com/2024/12/10/arts/design/storm-king-nora-lawrence-director.html
+
+**The Bounce: Your NBA Cup matchups and picks**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5983666/2024/12/10/nba-cup-joel-embiid-76ers-nba-the-bounce/
+
+**The rebels in Syria seem to want a more inclusive government, a U.N. envoy says.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/the-rebels-in-syria-seem-to-want-a-more-inclusive-government-a-un-envoy-says
+
+**Gazans feel relief for Syrians, but fear that their suffering will be prolonged.**\
+`By Bilal Shbair and Hiba Yazbek`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/gazans-feel-relief-for-syrians-but-fear-that-their-suffering-will-be-prolonged
+
 **Fantasy football Week 15 drops: You can cut Deebo Samuel amid decline**\
 `Gary Davenport gives advice on who to drop for those heading into or vying for a spot in the fantasy football playoffs. `\
 https://nytimes.com/athletic/5983893/2024/12/10/fantasy-football-week-15-drops-the-end-of-the-line-for-deebo-samuel-tyler-lockett-and-more/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5983832/2024/12/10/mason-graham-nfl-draft-michigan/
 **The Connections Companion No. 549**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
 https://nytimes.com/2024/12/10/crosswords/connections-companion-549.html
-
-**Nevada OC Matt Lubick to return to Kansas as co-OC, tight ends coach**\
-`In 2023, the 52-year-old Lubick was instrumental as an analyst in leading KU's offense to its best season in 16 years.`\
-https://nytimes.com/athletic/5982966/2024/12/10/matt-lubick-kansas-offensive-coordinator/
-
-**How the Giants can add offense to a crowded lineup after the Willy Adames signing**\
-`The Giants still need to improve the offense even after adding Adames, but they don't have many spots in the lineup available.`\
-https://nytimes.com/athletic/5982942/2024/12/10/sf-giants-offseason-needs-offense/
-
-**Norwegian FA criticises FIFA over 2030 and 2034 men's World Cup bidding process**\
-`The Norwegian Football Federation (NFF) has criticised the bidding process for the 2030 and 2034 men&#8217;s World Cups, which it says are &#8220;flawed and inconsistent with the principles of FIFA’s own reforms.`\
-https://nytimes.com/athletic/5983701/2024/12/10/world-cup-fifa-hosts-criticism-norway/
-
-**The Connections Companion No. 548**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 10, 2024.`\
-https://nytimes.com/2024/12/09/crosswords/connections-companion-548.html
-
-**Are the Canucks contenders or pretenders? 3 thoughts on their struggles against top teams**\
-`So far this season, the Canucks demolish lower-ranked opponents but struggle against the best. How worried should fans be?`\
-https://nytimes.com/athletic/5981623/2024/12/10/canucks-playoffs-contender-pretender-analysis/
 
