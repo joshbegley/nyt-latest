@@ -1,3 +1,11 @@
+**NFL QB stock report, Week 15: Does 'unstoppable' Josh Allen have MVP locked up?**\
+`Rival coaches and executives weigh in on what makes Allen so special and why they were never worried about Jayden Daniels' "slump."`\
+https://nytimes.com/athletic/5982072/2024/12/10/nfl-qb-stock-report-rankings-josh-allen-bills/
+
+**Why Troy Aikman could be correct about Mike McCarthy being Cowboys coach in 2025**\
+`“He has an outstanding record. He’s got great experience," Jerry Jones said about Mike McCarthy after the Monday night loss to the Bengals.`\
+https://nytimes.com/athletic/5983376/2024/12/10/cowboys-mike-mccarthy-coach-future-jerry-jones/
+
 **Evaluating USC's portal losses and needs: 8 thoughts on the Trojans roster**\
 `This is shaping up to be another critical offseason for Lincoln Riley, who needs to upgrade his roster on both sides of the ball. `\
 https://nytimes.com/athletic/5982752/2024/12/10/usc-transfer-portal-needs-2/
