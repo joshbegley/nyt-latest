@@ -1,3 +1,11 @@
+**The Athletic FC: Numbers behind Chelsea revival, the stigma that 'p***es off' Pulisic**\
+`Today in TAFC: The numbers that back a Chelsea title bid, Pulisic exclusive interview, can young teams win the Champions League?`\
+https://nytimes.com/athletic/5983550/2024/12/10/chelsea-title-bid-pulisic-stigma-interview/
+
+**Commanders' playoff picture remains bright, but tackling Saints comes first**\
+`Washington currently occupies the third and final NFC wild-card spot, but much can change during the season's stretch run. `\
+https://nytimes.com/athletic/5982322/2024/12/10/commanders-nfc-playoff-picture/
+
 **Upheaval in the Middle East: A Place for Student Questions and Observations**\
 `Syrian rebel forces took Damascus this weekend, ending a decades-long regime and continuing a series of events that have shaken the region since Hamas’s Oct. 7 attack. Teenagers, tell us how you are making sense of the news.`\
 https://nytimes.com/2024/12/10/learning/upheaval-in-the-middle-east-a-place-for-student-questions-and-observations.html
