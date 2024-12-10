@@ -1,3 +1,7 @@
+**Ranking Nebraska's top 5 positions of need in the transfer portal**\
+`With a mix of transfer departures and graduating seniors, Nebraska must prioritize defensive linemen in the portal.`\
+https://nytimes.com/athletic/5984370/2024/12/10/nebraska-college-football-transfer-portal-needs-matt-rhule/
+
 **Resist Trump? On Immigration, Top Democrats See Room for Compromise.**\
 `In interviews, a range of Democratic governors expressed some defiance toward the president-elect’s expected crackdown, but also showed a surprising willingness to work with him.`\
 https://nytimes.com/2024/12/10/us/politics/democrats-trump-immigration-crackdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html
 **Wordle Review No. 1,271**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
 https://nytimes.com/2024/12/10/crosswords/wordle-review-1271.html
-
-**A Filmmaker, a Spy and France’s Richest Man Meet in a Paris Court**\
-`Bernard Arnault, the head of LVMH, squared off with a documentary maker in a case of espionage gone wrong, a showdown that had been brewing for years.`\
-https://nytimes.com/2024/12/10/business/lvmh-bernard-arnault-spy-trial.html
 

@@ -1,3 +1,7 @@
+**Ranking Nebraska's top 5 positions of need in the transfer portal**\
+`With a mix of transfer departures and graduating seniors, Nebraska must prioritize defensive linemen in the portal.`\
+https://nytimes.com/athletic/5984370/2024/12/10/nebraska-college-football-transfer-portal-needs-matt-rhule/
+
 **Resist Trump? On Immigration, Top Democrats See Room for Compromise.**\
 `In interviews, a range of Democratic governors expressed some defiance toward the president-elect’s expected crackdown, but also showed a surprising willingness to work with him.`\
 https://nytimes.com/2024/12/10/us/politics/democrats-trump-immigration-crackdown.html
