@@ -1,3 +1,7 @@
+**After not engaging in Juan Soto talks, Cubs should see Cody Bellinger's trade market form**\
+`The Cubs are unclear what return they can get for Bellinger. But they could market him to any team looking for outfield or first base help.`\
+https://nytimes.com/athletic/5982862/2024/12/09/cubs-cody-bellinger-trade-juan-soto/
+
 **How Juan Soto's agreement with Mets could affect Astros, Kyle Tucker**\
 `Tucker isn't Soto. But as one of the most productive outfielders in the game, he's in line for a huge payday after next season.`\
 https://nytimes.com/athletic/5982864/2024/12/09/juan-soto-astros-kyle-tucker-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982729/2024/12/09/braves-brian-snitker-travis-darn
 **Juan Soto agreement could lead to increased trade chatter for Twins on Carlos Correa**\
 `Soto is off the board, and it could lead his spurned suitors to gauge whether the Twins would trade Correa. Falvey is open to listening.`\
 https://nytimes.com/athletic/5982759/2024/12/09/twins-carlos-correa-trade-talk-soto/
-
-**Mookie Betts is a shortstop again, and more from the Dodgers at the Winter Meetings**\
-`The Dodgers are still interested in a reunion with Teoscar Hernández, and they have a strong foothold in Japan, where there's Roki Sasaki.`\
-https://nytimes.com/athletic/5982735/2024/12/09/mookie-betts-shortstop-dodgers/
 
