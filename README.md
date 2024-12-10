@@ -1,3 +1,7 @@
+**North Carolina women's soccer wins 23rd national title**\
+`The Tar Heels, who appeared in 28 national championships, had not lifted the trophy since 2012.`\
+https://nytimes.com/athletic/5982994/2024/12/09/north-carolina-soccer-ncaa-championship/
+
 **Padres express optimism about Roki Sasaki, who could be key to staying competitive**\
 `The Padres have made considerable efforts preparing themselves for Sasaki's posting.`\
 https://nytimes.com/athletic/5982987/2024/12/09/padres-roki-sasaki-optimism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982862/2024/12/09/cubs-cody-bellinger-trade-juan-s
 **How Juan Soto's agreement with Mets could affect Astros, Kyle Tucker**\
 `Tucker isn't Soto. But as one of the most productive outfielders in the game, he's in line for a huge payday after next season.`\
 https://nytimes.com/athletic/5982864/2024/12/09/juan-soto-astros-kyle-tucker-contract/
-
-**Trump Picks Strident Supporter for Civil Rights Post at Justice Dept.**\
-`Harmeet K. Dhillon has been a conservative activist so devoted to the president-elect that she was willing to attack not only Democrats but also fellow Republicans.`\
-https://nytimes.com/2024/12/09/us/politics/trump-civil-rights-harmeet-dhillon.html
 
