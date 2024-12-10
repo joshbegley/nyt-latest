@@ -1,4 +1,4 @@
-**McConnell Sustained a Sprained Wrist During Fall but Is ‘Fine’**\
+**McConnell Sprained Wrist During a Fall but Is ‘Fine’**\
 `Senator Mitch McConnell, the minority leader who sustained a concussion in a fall last year, was cleared to resume his work schedule, according to his office.`\
 https://nytimes.com/2024/12/10/us/politics/mitch-mcconnell-fall-sprained-wrist.html
 
