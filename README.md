@@ -1,3 +1,7 @@
+**The Pulse: The Cowboys went full Homer**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5981688/2024/12/10/cowboys-bengals-simpsons-the-pulse/
+
 **Martial Law Fallout Raises Questions South Korea Has Never Dealt With Before**\
 `The president faces an accusation of insurrection and, in a first for a sitting leader, the possibility of arrest. Here’s what to know about his political future.`\
 https://nytimes.com/2024/12/10/world/asia/south-korea-martial-law-yoon-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981672/2024/12/10/team-europe-4-nations-face-off/
 **Inside the friendship that helped Anthony Richardson rebound and revive Colts season**\
 `Richardson's career was at a crossroads. As the noise around him grew, Ehlinger pulled the young QB closer when others pushed him away.`\
 https://nytimes.com/athletic/5972475/2024/12/10/colts-anthony-richardson-sam-ehlinger-friendship/
-
-**Yohe mailbag: Lemieux vs. Crosby, which Penguins will be traded and a 4 Nations prediction**\
-`We talk Sid vs. Mario, upcoming decisions for Kyle Dubas, the Penguins' plight and much more. `\
-https://nytimes.com/athletic/5975665/2024/12/10/penguins-crosby-trade-4-nations-nhl/
 
