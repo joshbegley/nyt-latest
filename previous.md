@@ -1,3 +1,7 @@
+**Wolves captain Lemina apologises for post-West Ham altercation**\
+`Wolverhampton Wanderers captain Mario Lemina has apologised to fans for the ill-tempered scenes in which he squared up to coach Shaun Derry and clashed with team-mates following the 2-1 defeat at West Ham United.`\
+https://nytimes.com/athletic/5983649/2024/12/10/mario-lemina-west-ham-wolves-apology/
+
 **Kylian Mbappe hasn’t looked himself at Real Madrid. Are things beginning to change?**\
 `Mbappe's first few months at Madrid have not gone to plan — is he showing signs of getting back on track?`\
 https://nytimes.com/athletic/5983513/2024/12/10/kylian-mbappe-real-madrid-confidence/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983621/2024/12/10/roje-stona-nfl-player-pathway-fo
 **Here are the latest developments.**\
 `By Andy Newman, Michael Wilson and Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-luigi-mangione/heres-the-latest
-
-**Suspect in Health Care C.E.O.’s Killing Is Charged With Murder**\
-`The suspect, Luigi Mangione, 26, was charged by New York prosecutors. He was arrested and arraigned in Altoona, Pa., on Monday after being spotted at a McDonald’s.`\
-https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-luigi-mangione
 

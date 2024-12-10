@@ -1,3 +1,7 @@
+**Wolves captain Lemina apologises for post-West Ham altercation**\
+`Wolverhampton Wanderers captain Mario Lemina has apologised to fans for the ill-tempered scenes in which he squared up to coach Shaun Derry and clashed with team-mates following the 2-1 defeat at West Ham United.`\
+https://nytimes.com/athletic/5983649/2024/12/10/mario-lemina-west-ham-wolves-apology/
+
 **Kylian Mbappe hasn’t looked himself at Real Madrid. Are things beginning to change?**\
 `Mbappe's first few months at Madrid have not gone to plan — is he showing signs of getting back on track?`\
 https://nytimes.com/athletic/5983513/2024/12/10/kylian-mbappe-real-madrid-confidence/
