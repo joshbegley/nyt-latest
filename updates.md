@@ -1,3 +1,15 @@
+**Upheaval in the Middle East: A Place for Student Questions and Observations**\
+`Syrian rebel forces took Damascus this weekend, ending a decades-long regime and continuing a series of events that have shaken the region since Hamas’s Oct. 7 attack. Teenagers, tell us how you are making sense of the news.`\
+https://nytimes.com/2024/12/10/learning/upheaval-in-the-middle-east-a-place-for-student-questions-and-observations.html
+
+**Syrian rebels vow to punish senior officials in the Assad government.**\
+`By Qasim Nauman and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/syrian-rebels-vow-to-punish-senior-officials-in-the-assad-government
+
+**Israel Strikes Military Assets Across Syria to Keep Them Out of Rebel Hands**\
+`Photographs showed overnight damage at a research center and at a shipyard. The strikes have hit more than 300 targets since the Assad government fell on Sunday, an independent monitor said.`\
+https://nytimes.com/2024/12/10/world/middleeast/israel-strikes-syria.html
+
 **Jamaican Olympic champion Stona recruited for NFL's IPP program**\
 `Stona is the standout name among the 14 athletes to take part in the 10-week camp, which begins in January.`\
 https://nytimes.com/athletic/5983621/2024/12/10/roje-stona-nfl-player-pathway-football/
