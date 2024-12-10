@@ -1,3 +1,7 @@
+**‘We Thought We Would Be Executed’: Freed Prisoner on Life Inside Sednaya**\
+`Around 2,000 people emerged on Sunday from Sednaya, a facility used to detain, torture and kill tens of thousands of prisoners during Syria’s 13-year civil war. These prisoners were released after the Assad regime in Syria fell to conquering rebels last weekend.`\
+https://nytimes.com/video/world/middleeast/100000009869415/sednaya-prisoner-syria-civil-war.html
+
 **Reaction to C.E.O. Killing Exposes Frustrations With Health System**\
 `In some quarters, the suspect in Brian Thompson’s murder is being defended and even applauded by Americans who share his outrage over the insurance industry.`\
 https://nytimes.com/2024/12/10/nyregion/uhc-shooting-luigi-mangione-brian-thompson.html
