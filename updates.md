@@ -1,3 +1,7 @@
+**Cossa's NHL debut brings a sorely-needed win: Five Red Wings thoughts**\
+`The 2021 first-round pick made his debut in tough circumstances, but came through with the win.`\
+https://nytimes.com/athletic/5983039/2024/12/09/red-wings-sebastian-cossa-nhl-debut/
+
 **What we're hearing about trade interest in Devin Williams and more from MLB's winter meetings**\
 `The Orioles, Rangers and A's are all looking at free-agent starting pitchers, while the Marlins are open to trading lefty Jesús Luzardo.`\
 https://nytimes.com/athletic/5983167/2024/12/09/devin-williams-brewers-trade-mlb-winter-meetings/
