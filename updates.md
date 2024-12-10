@@ -1,3 +1,7 @@
+**The queasy, quirky, eerily quiet reality of an 'El Sackico'**\
+`Two struggling teams and two managers under pressure — Tim Spiers experiences the eerie malaise of West Ham against Wolves`\
+https://nytimes.com/athletic/5982016/2024/12/10/wolves-west-ham-lopetegui-oneil-manager/
+
 **Brazil’s Lula Undergoes Emergency Surgery for Bleeding in Skull**\
 `President Luiz Inácio Lula da Silva of Brazil was in the hospital recovering from the procedure. Doctors said the bleeding appeared to be linked to a fall in October.`\
 https://nytimes.com/2024/12/10/world/asia/brazil-lula-surgery.html
