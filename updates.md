@@ -1,3 +1,11 @@
+**Whoever is the starter going forward, Raiders need something different at QB in 2025**\
+`The Raiders' quarterback play this season, from Gardner Minshew to Aidan O'Connell, has been bad. It's not likely to improve with Ridder.`\
+https://nytimes.com/athletic/5982224/2024/12/10/raiders-quarterback-situation-desmond-ridder-aidan-oconnell/
+
+**At the presidential palace in Damascus, rebels walk the halls.**\
+`By Ben Hubbard`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/at-the-presidential-palace-in-damascus-rebels-walk-the-halls
+
 **The Pulse: The Cowboys went full Homer**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5981688/2024/12/10/cowboys-bengals-simpsons-the-pulse/

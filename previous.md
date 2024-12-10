@@ -1,3 +1,11 @@
+**Whoever is the starter going forward, Raiders need something different at QB in 2025**\
+`The Raiders' quarterback play this season, from Gardner Minshew to Aidan O'Connell, has been bad. It's not likely to improve with Ridder.`\
+https://nytimes.com/athletic/5982224/2024/12/10/raiders-quarterback-situation-desmond-ridder-aidan-oconnell/
+
+**At the presidential palace in Damascus, rebels walk the halls.**\
+`By Ben Hubbard`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/at-the-presidential-palace-in-damascus-rebels-walk-the-halls
+
 **The Pulse: The Cowboys went full Homer**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5981688/2024/12/10/cowboys-bengals-simpsons-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5982795/2024/12/10/bears-caleb-williams-toughness/
 **Kevin O'Connell deserving of national praise as Vikings continue to ascend**\
 `Minnesota's head coach has earned credit for what he and his team have done during their 11-2 start — but also for how they've done it.`\
 https://nytimes.com/athletic/5982370/2024/12/10/kevin-oconnell-vikings-coach-of-the-year/
-
-**What would Team Europe look like for the 4 Nations Face-Off and how would it do?**\
-`A whole new infusion of skill would make Team Europe worth watching at the 4 Nations Face-Off.`\
-https://nytimes.com/athletic/5981672/2024/12/10/team-europe-4-nations-face-off/
-
-**Inside the friendship that helped Anthony Richardson rebound and revive Colts season**\
-`Richardson's career was at a crossroads. As the noise around him grew, Ehlinger pulled the young QB closer when others pushed him away.`\
-https://nytimes.com/athletic/5972475/2024/12/10/colts-anthony-richardson-sam-ehlinger-friendship/
 
