@@ -1,3 +1,7 @@
+**How the Giants can add offense to a crowded lineup after the Willy Adames signing**\
+`The Giants still need to improve the offense even after adding Adames, but they don't have many spots in the lineup available.`\
+https://nytimes.com/athletic/5982942/2024/12/10/sf-giants-offseason-needs-offense/
+
 **The Connections Companion No. 548**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 10, 2024.`\
 https://nytimes.com/2024/12/09/crosswords/connections-companion-548.html
