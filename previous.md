@@ -1,3 +1,7 @@
+**Giants focus on the next move after Willy Adames: 'He's just a unique connector of people'**\
+`The Giants are still considering free agents at the top of the market after agreeing to a deal with Adames.`\
+https://nytimes.com/athletic/5982967/2024/12/09/sf-giants-willy-adames-next-move/
+
 **North Carolina women's soccer wins 23rd national title**\
 `The Tar Heels, who appeared in 28 national championships, had not lifted the trophy since 2012.`\
 https://nytimes.com/athletic/5982994/2024/12/09/north-carolina-soccer-ncaa-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/09/pageoneplus/corrections-dec-10-2024.html
 **After not engaging in Juan Soto talks, Cubs should see Cody Bellinger's trade market form**\
 `The Cubs are unclear what return they can get for Bellinger. But they could market him to any team looking for outfield or first base help.`\
 https://nytimes.com/athletic/5982862/2024/12/09/cubs-cody-bellinger-trade-juan-soto/
-
-**How Juan Soto's agreement with Mets could affect Astros, Kyle Tucker**\
-`Tucker isn't Soto. But as one of the most productive outfielders in the game, he's in line for a huge payday after next season.`\
-https://nytimes.com/athletic/5982864/2024/12/09/juan-soto-astros-kyle-tucker-contract/
 

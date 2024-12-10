@@ -1,3 +1,7 @@
+**Giants focus on the next move after Willy Adames: 'He's just a unique connector of people'**\
+`The Giants are still considering free agents at the top of the market after agreeing to a deal with Adames.`\
+https://nytimes.com/athletic/5982967/2024/12/09/sf-giants-willy-adames-next-move/
+
 **North Carolina women's soccer wins 23rd national title**\
 `The Tar Heels, who appeared in 28 national championships, had not lifted the trophy since 2012.`\
 https://nytimes.com/athletic/5982994/2024/12/09/north-carolina-soccer-ncaa-championship/
