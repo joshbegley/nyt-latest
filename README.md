@@ -18,9 +18,9 @@ https://nytimes.com/2024/12/10/us/politics/senate-republicans-women-hegseth.html
 `Arenado is an unlikely match given the production the reigning World Series champions have already gotten at third base, `\
 https://nytimes.com/athletic/5984758/2024/12/10/dodgers-nolan-arenado-trade-cardinals/
 
-**Dick Van Dyke and Cher were evacuated from their Malibu homes.**\
-`By Matt Stevens and Derrick Bryson Taylor`\
-https://nytimes.com/2024/12/10/us/celebrities-van-dyke-cher-streisand.html
+**Dick Van Dyke and Cher Flee Their Malibu Homes as Franklin Fire Burns**\
+`Mr. Van Dyke, who turns 99 on Friday, said that he and his wife, Arlene, had fled their home with their pets as the Franklin fire threatened their community.`\
+https://nytimes.com/2024/12/10/us/malibu-fire-van-dyke-cher-streisand.html
 
 **McConnell Sprained Wrist During a Fall but Is ‘Fine’**\
 `Senator Mitch McConnell, the minority leader who sustained a concussion in a fall last year, was cleared to resume his work schedule, according to his office.`\

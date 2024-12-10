@@ -1,3 +1,15 @@
+**The Debilitating Toll of Back Pain**\
+`The suspect charged with killing the chief executive of UnitedHealthcare was said to have back issues, one of the most common medical problems nationwide.`\
+https://nytimes.com/2024/12/10/well/back-pain-mangione.html
+
+**USMNT striker Balogun to undergo shoulder surgery**\
+`Folarin Balogun will undergo surgery on his injured shoulder as he faces an uncertain spell on the sidelines, said Monaco coach Adi Hutter.`\
+https://nytimes.com/athletic/5984779/2024/12/10/usmnt-folarin-balogun-surgery/
+
+**Seiya Suzuki's agent confirms Cubs engaged in trade talks, though a move is unlikely**\
+`Suzuki served as the Cubs' DH in 36 of his final 37 games after some key mistakes in right field.`\
+https://nytimes.com/athletic/5984787/2024/12/10/seiya-suzuki-chicago-cubs-trade-talks/
+
 **Debate Over Hegseth’s Fitness Highlights a Gender Divide in the Senate**\
 `As many of the Senate’s Republican men dismiss allegations against President-elect Donald J. Trump’s pick to lead the Pentagon, only a small group of G.O.P. women have voiced even a hint of skepticism.`\
 https://nytimes.com/2024/12/10/us/politics/senate-republicans-women-hegseth.html
