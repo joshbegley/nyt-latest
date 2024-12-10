@@ -1,3 +1,7 @@
+**Trump Calls Trudeau the ‘Governor’ of ‘The Great State of Canada’**\
+`The president-elect’s mockery of Canada and its leader is the latest salvo after his promise to impose steep tariffs on Canadian exports.`\
+https://nytimes.com/2024/12/10/world/canada/trump-trudeau-canada-tariffs.html
+
 **A ‘Particularly Dangerous Situation’ for Fire Weather Is Unfolding**\
 `Strong winds have created a fast-moving and hot blaze, forecasters said, and the conditions are expected to continue into the evening.`\
 https://nytimes.com/2024/12/10/weather/malibu-fire-weather-forecast.html

@@ -1,3 +1,7 @@
+**Trump Calls Trudeau the ‘Governor’ of ‘The Great State of Canada’**\
+`The president-elect’s mockery of Canada and its leader is the latest salvo after his promise to impose steep tariffs on Canadian exports.`\
+https://nytimes.com/2024/12/10/world/canada/trump-trudeau-canada-tariffs.html
+
 **A ‘Particularly Dangerous Situation’ for Fire Weather Is Unfolding**\
 `Strong winds have created a fast-moving and hot blaze, forecasters said, and the conditions are expected to continue into the evening.`\
 https://nytimes.com/2024/12/10/weather/malibu-fire-weather-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983587/2024/12/10/levante-valencia-floods-dana-auc
 **No. 1 basketball recruit AJ Dybantsa commits to BYU over UNC, Bama**\
 `Dybantsa is BYU’s highest-ranked recruit in program history.`\
 https://nytimes.com/athletic/5983910/2024/12/10/aj-dybantsa-byu-basketball-commitment/
-
-**FIFA considering U.S. as hosts for 2029 Club World Cup**\
-`The U.S. is already hosting the 2025 edition of the tournament, which will be the first of its kind.`\
-https://nytimes.com/athletic/5983528/2024/12/10/club-world-cup-2029-us/
 
