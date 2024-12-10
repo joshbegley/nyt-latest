@@ -1,3 +1,7 @@
+**With an Eye on China, Australia Strikes a Deal With Nauru**\
+`In return for financial support, the Pacific island nation of Nauru pledged not to enter any security pacts without Australia’s assent.`\
+https://nytimes.com/2024/12/10/world/australia/australia-treaty-nauru.html
+
 **Late Night Turns Up Its Nose at Trump’s Cologne Ad**\
 `The president-elect used a photo of Jill Biden smiling at him to promote his fragrances. Jimmy Kimmel thinks that’s because Melania has never smiled at him on camera.`\
 https://nytimes.com/2024/12/10/arts/television/late-night-trump-cologne.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983222/2024/12/10/sf-giants-willy-adames-free-agen
 **Why have Japanese players become so attractive to Championship clubs?**\
 `Factors including work-permit rules, affordability and tactical fit have combined to make Japanese players worth investing in `\
 https://nytimes.com/athletic/5965548/2024/12/10/why-have-japanese-players-become-so-attractive-to-championship-clubs/
-
-**Alisson is back, which raises the question again – can Kelleher really just sit on Liverpool's bench?**\
-`Come next summer Liverpool could have three goalkeepers worthy of starting. Who's going to make way?`\
-https://nytimes.com/athletic/5981018/2024/12/10/alisson-kelleher-liverpool/
 
