@@ -1,3 +1,16 @@
+**75 years later...a new discussion about Jackie Robinson rookie cards?**\
+`What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
+`\
+https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
+
+**Super Bowl odds: How the Lions, Chiefs and Bills stack up after a week of close games**\
+`Super Bowl betting odds are on the move! While the Lions are still the favorites, the Chiefs and Bills saw their odds shift after Week 14.`\
+https://nytimes.com/athletic/5984412/2024/12/10/2025-super-bowl-2025-odds-lions-chiefs-bills/
+
+**In emails from Japan, the suspect talked politics and philosophy.**\
+`By Jacey Fortin`\
+https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-ceo-luigi-mangione/in-emails-from-japan-suspect-talked-politics-and-philosophy
+
 **Police Say Suspect in United Healthcare Shooting Saw Himself as a Hero**\
 `The suspect’s three-page manifesto, summarized by the police, described the killing as a “symbolic takedown.”`\
 https://nytimes.com/2024/12/10/nyregion/luigi-mangione-manifesto.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5974242/2024/12/10/girona-liverpool-champions-leagu
 **NFL Week 15 playoff scenarios: How 4 teams can clinch playoff berths**\
 `Texans and Eagles can clinch division while three other teams can secure their spots in the postseason`\
 https://nytimes.com/athletic/5984519/2024/12/10/nfl-week-15-playoff-scenarios-2/
-
-**Frog Club Ends Life as It Began: Strangely**\
-`The lurid collapse of its chef’s previous project fueled a fascination that made the New York restaurant impossible to get into. Or so it seemed for a while.`\
-https://nytimes.com/2024/12/10/dining/frog-club-nyc-closes.html
-
-**Max Fried nearing free agency decision with Yankees, Red Sox, Blue Jays among teams in mix**\
-`Fried, the top remaining LHP starter on the free-agent market, is expected to choose his next team by Thursday, according to league sources.`\
-https://nytimes.com/athletic/5984497/2024/12/10/max-fried-free-agency-yankees-red-sox-blue-jays/
-
-**Jason Kelce investigation closed by Penn State police**\
-`University police said the individual in social media videos of the incident has not been identified.`\
-https://nytimes.com/athletic/5984466/2024/12/10/jason-kelce-phone-investigation-closed/
 
