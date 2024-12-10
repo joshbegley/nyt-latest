@@ -1,3 +1,7 @@
+**Browns waive Kadarius Toney, place Greg Newsome II on IR**\
+`Newsome has a hamstring injury and Toney was cut after a taunting penalty and a muffed fourth-quarter punt in Sunday's game.`\
+https://nytimes.com/athletic/5984794/2024/12/10/browns-cut-kadarius-toney-greg-newsome-ir/
+
 **Fund-Raiser Who Pocketed Money Meant for Sick Kids and Vets Gets 10 Years in Prison**\
 `Richard Zeitlin, a telemarketing kingpin who kept 80 percent of the donations raised for charities, pleaded guilty to fraud in September.`\
 https://nytimes.com/2024/12/10/us/politics/richard-zeitlin-prison.html
@@ -12,7 +16,7 @@ https://nytimes.com/video/world/middleeast/100000009869599/uncertainty-and-hope-
 
 **Nikki Giovanni: A Life in Pictures**\
 `The poet left a long visual record of a career in the public sphere.`\
-https://nytimes.com/2024/12/10/books/nikki-giovanni-a-life-in-pictures.html
+https://nytimes.com/2024/12/10/books/nikki-giovanni-photos.html
 
 **Fantasy football market share report:**\
 `In his fantasy football market report, Michael Salfino says that Jordan Addison is feasting off the attention paid to Justin Jefferson.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/briefing/syria-netanyahu-ceo-killing.html
 **A Tour of Assad’s Monumental Palace, With a Scruffy Rebel as a Guide**\
 `The televisions may be stripped away now, but a presidential residence still contains many remnants of a brutal reign.`\
 https://nytimes.com/2024/12/10/world/middleeast/assad-presidential-palace.html
-
-**Lights Dim on the Friars Club as Landmark Home is Sold in Foreclosure**\
-`The six-story Manhattan townhouse, once the stomping ground of America’s comic legends, was sold at an auction on Tuesday for $17.2 million.`\
-https://nytimes.com/2024/12/10/arts/friars-club-home-sold-foreclosure.html
 

@@ -1,3 +1,11 @@
+**Browns waive Kadarius Toney, place Greg Newsome II on IR**\
+`Newsome has a hamstring injury and Toney was cut after a taunting penalty and a muffed fourth-quarter punt in Sunday's game.`\
+https://nytimes.com/athletic/5984794/2024/12/10/browns-cut-kadarius-toney-greg-newsome-ir/
+
+**Nikki Giovanni: A Life in Pictures**\
+`The poet left a long visual record of a career in the public sphere.`\
+https://nytimes.com/2024/12/10/books/nikki-giovanni-photos.html
+
 **Fund-Raiser Who Pocketed Money Meant for Sick Kids and Vets Gets 10 Years in Prison**\
 `Richard Zeitlin, a telemarketing kingpin who kept 80 percent of the donations raised for charities, pleaded guilty to fraud in September.`\
 https://nytimes.com/2024/12/10/us/politics/richard-zeitlin-prison.html
