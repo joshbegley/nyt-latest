@@ -1,3 +1,11 @@
+**What the Chicago Cubs are saying about Dansby Swanson's surgery and timeline  **\
+`The Cubs are monitoring the progress of two Gold Glove infielders, but Swanson is ahead of Nico Hoerner in the recovery process.`\
+https://nytimes.com/athletic/5983075/2024/12/10/cubs-dansby-swanson-sports-hernia-surgery/
+
+**What does history tell us about how Juan Soto will age?**\
+`Scouts are bullish on Soto’s bat aging well but the long-term outlook on defense could result in a position change to DH.`\
+https://nytimes.com/athletic/5982594/2024/12/10/juan-soto-mets-age-contract/
+
 **Caleb Williams' toughness — physical and mental — stands out as Bears crumble**\
 `The Bears have lost seven games in a row and have fired multiple coaches, but it's clear that they haven't broken Williams.`\
 https://nytimes.com/athletic/5982795/2024/12/10/bears-caleb-williams-toughness/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/10/podcasts/the-daily/ceo-unitedhealthcare-murder.ht
 **Don't believe in Mackenzie Blackwood? Here's why the Avs' new goalie might be entering his 'superstar years'**\
 `Blackwood's underlying metrics suggest a goalie ready to break out, which is exactly what the otherwise strong Avalanche need.`\
 https://nytimes.com/athletic/5983078/2024/12/10/mackenzie-blackwood-avalanche-goalie/
-
-**C.E.O. Shooting Suspect Arrested, and Netanyahu’s Corruption Trial**\
-`Plus, Google’s quantum computing breakthrough.`\
-https://nytimes.com/2024/12/10/podcasts/suspect-unitedhealthcare-shooting.html
-
-**On the Ground in Damascus as Syrians Chart a New Path**\
-`In a matter of days, Syria’s capital — once the stronghold of Bashar al-Assad’s government — became the epicenter of a new chapter in the country’s history after opposition forces overran the city.`\
-https://nytimes.com/video/world/middleeast/100000009866031/what-is-next-for-syria.html
 
