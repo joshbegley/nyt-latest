@@ -1,3 +1,7 @@
+**Suspect in CEO’s Killing Had Discussed His Health Struggles on Reddit**\
+`In posts that stretch over years, he described debilitating back pain, “brain fog” in his college years and testing for irritable bowel syndrome.`\
+https://nytimes.com/2024/12/10/nyregion/luigi-mangione-health-issues-reddit.html
+
 **Jason Kelce investigation closed by Penn State police**\
 `University police said the individual in social media videos of the incident has not been identified.`\
 https://nytimes.com/athletic/5984466/2024/12/10/jason-kelce-phone-investigation-closed/
