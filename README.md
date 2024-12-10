@@ -1,3 +1,7 @@
+**Max Fried nearing free agency decision, with Yankees, Red Sox, Blue Jays among teams in mix**\
+`Fried, the top remaining LHP starter on the free-agent market, is expected to choose his next team by Thursday, according to league sources.`\
+https://nytimes.com/athletic/5984497/2024/12/10/max-fried-free-agency-yankees-red-sox-blue-jays/
+
 **Jason Kelce investigation closed by Penn State police**\
 `University police said the individual in social media videos of the incident has not been identified.`\
 https://nytimes.com/athletic/5984466/2024/12/10/jason-kelce-phone-investigation-closed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984347/2024/12/10/george-pickens-injury-steelers-e
 **With Quick Vote and Little Fanfare, Saudi Arabia on Track to Get 2034 World Cup**\
 `Critics have objected to the bidding process, and human rights groups have raised concerns about workplace safety for the migrants who will build the stadiums needed to host the event.`\
 https://nytimes.com/2024/12/10/world/middleeast/saudi-world-cup-human-rights.html
-
-**Pepperdine Students Huddled in Library as Malibu Fire Raged Outside**\
-`About 3,000 people sheltered on the university’s campus in Malibu, Calif., overnight on Monday. Some of them watched the flames through the windows of a library.`\
-https://nytimes.com/2024/12/10/us/pepperdine-malibu-wildfire-shelter-in-place.html
 
