@@ -1,3 +1,11 @@
+**Jamaican Olympic champion Stona recruited for NFL's IPP program**\
+`Stona is the standout name among the 14 athletes to take part in the 10-week camp, which begins in January.`\
+https://nytimes.com/athletic/5983621/2024/12/10/roje-stona-nfl-player-pathway-football/
+
+**Here are the latest developments.**\
+`By Andy Newman, Michael Wilson and Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-luigi-mangione/heres-the-latest
+
 **Here’s the latest.**\
 `By Andy Newman, Michael Wilson and Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-luigi-mangione/heres-the-latest

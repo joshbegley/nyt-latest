@@ -1,4 +1,8 @@
-**Here’s the latest.**\
+**Jamaican Olympic champion Stona recruited for NFL's IPP program**\
+`Stona is the standout name among the 14 athletes to take part in the 10-week camp, which begins in January.`\
+https://nytimes.com/athletic/5983621/2024/12/10/roje-stona-nfl-player-pathway-football/
+
+**Here are the latest developments.**\
 `By Andy Newman, Michael Wilson and Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-luigi-mangione/heres-the-latest
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/briefing/the-search-ends.html
 **Netanyahu Finally Takes the Stand in His Corruption Trial**\
 `Prime Minister Benjamin Netanyahu of Israel is accused of bribery, fraud and breach of trust in a trial that began four years ago. He has denied the charges.`\
 https://nytimes.com/2024/12/10/world/middleeast/israel-netanyahu-corruption-trial-testimony.html
-
-**What the Chicago Cubs are saying about Dansby Swanson's surgery and timeline  **\
-`The Cubs are monitoring the progress of two Gold Glove infielders, but Swanson is ahead of Nico Hoerner in the recovery process.`\
-https://nytimes.com/athletic/5983075/2024/12/10/cubs-dansby-swanson-sports-hernia-surgery/
 
