@@ -1,3 +1,11 @@
+**A ‘Particularly Dangerous Situation’ for Fire Weather Is Unfolding**\
+`Strong winds have created a fast-moving and hot blaze, forecasters said, and the conditions are expected to continue into the evening.`\
+https://nytimes.com/2024/12/10/weather/malibu-fire-weather-forecast.html
+
+**‘It’s Not Me’ Review: Entering the Mind of Leos Carax**\
+`This personal film is a dynamic, even chaotic, collage of moments that bring the director back to his beginnings.`\
+https://nytimes.com/2024/12/10/movies/its-not-me-review.html
+
 **Review Finds Trump-Era Hunt for Leaks Extended Deep Into Congress**\
 `The issue may gain new urgency given that President-elect Donald J. Trump has vowed to pursue leakers in his second term.`\
 https://nytimes.com/2024/12/10/us/politics/trump-leaks-investigation-congress-justice-department.html

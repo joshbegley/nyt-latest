@@ -1,3 +1,11 @@
+**A ‘Particularly Dangerous Situation’ for Fire Weather Is Unfolding**\
+`Strong winds have created a fast-moving and hot blaze, forecasters said, and the conditions are expected to continue into the evening.`\
+https://nytimes.com/2024/12/10/weather/malibu-fire-weather-forecast.html
+
+**‘It’s Not Me’ Review: Entering the Mind of Leos Carax**\
+`This personal film is a dynamic, even chaotic, collage of moments that bring the director back to his beginnings.`\
+https://nytimes.com/2024/12/10/movies/its-not-me-review.html
+
 **Review Finds Trump-Era Hunt for Leaks Extended Deep Into Congress**\
 `The issue may gain new urgency given that President-elect Donald J. Trump has vowed to pursue leakers in his second term.`\
 https://nytimes.com/2024/12/10/us/politics/trump-leaks-investigation-congress-justice-department.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5983910/2024/12/10/aj-dybantsa-byu-basketball-commi
 **FIFA considering U.S. as hosts for 2029 Club World Cup**\
 `The U.S. is already hosting the 2025 edition of the tournament, which will be the first of its kind.`\
 https://nytimes.com/athletic/5983528/2024/12/10/club-world-cup-2029-us/
-
-**Don’t Worry About Whether Art Basel Is Cool**\
-`The annual global art fair in Miami featured a heady mélange of artists, gallerists, A-list celebrities, luxury brands and Mad Libs-esque collaborations among many of them.`\
-https://nytimes.com/2024/12/10/style/art-basel-scene-rihanna-gigi-hadid-asap-rocky.html
-
-**Health Panel Endorses New Option for Cervical Cancer Screening**\
-`Starting at 30, women can collect their own vaginal samples for HPV testing at a doctor’s office.`\
-https://nytimes.com/2024/12/10/health/cervical-cancer-screening.html
 
