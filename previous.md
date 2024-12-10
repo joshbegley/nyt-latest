@@ -1,3 +1,7 @@
+**Corrections: Dec. 10, 2024**\
+`Corrections that appeared in print on Tuesday, Dec. 10, 2024.`\
+https://nytimes.com/2024/12/09/pageoneplus/corrections-dec-10-2024.html
+
 **After not engaging in Juan Soto talks, Cubs should see Cody Bellinger's trade market form**\
 `The Cubs are unclear what return they can get for Bellinger. But they could market him to any team looking for outfield or first base help.`\
 https://nytimes.com/athletic/5982862/2024/12/09/cubs-cody-bellinger-trade-juan-soto/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982793/2024/12/09/reds-manager-terry-francona/
 **Brian Snitker on Braves' outlook, leadership after Travis d'Arnaud exit, and more**\
 `Snitker delivered his first public comments about some unexpected moves in the offseason.`\
 https://nytimes.com/athletic/5982729/2024/12/09/braves-brian-snitker-travis-darnaud/
-
-**Juan Soto agreement could lead to increased trade chatter for Twins on Carlos Correa**\
-`Soto is off the board, and it could lead his spurned suitors to gauge whether the Twins would trade Correa. Falvey is open to listening.`\
-https://nytimes.com/athletic/5982759/2024/12/09/twins-carlos-correa-trade-talk-soto/
 

@@ -1,3 +1,7 @@
+**Corrections: Dec. 10, 2024**\
+`Corrections that appeared in print on Tuesday, Dec. 10, 2024.`\
+https://nytimes.com/2024/12/09/pageoneplus/corrections-dec-10-2024.html
+
 **After not engaging in Juan Soto talks, Cubs should see Cody Bellinger's trade market form**\
 `The Cubs are unclear what return they can get for Bellinger. But they could market him to any team looking for outfield or first base help.`\
 https://nytimes.com/athletic/5982862/2024/12/09/cubs-cody-bellinger-trade-juan-soto/
