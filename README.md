@@ -1,3 +1,11 @@
+**Supreme Court Poised to Curb Scope of Environmental Reviews**\
+`Several justices indicated that a federal agency had complied with a federal law by issuing a 3,600-page report on the impact of a proposed railway in Utah.`\
+https://nytimes.com/2024/12/10/us/politics/supreme-court-environmental-reviews.html
+
+**When Nikki Giovanni Was Young, Brilliant and Unafraid**\
+`The poet set the course for her revolutionary career early, and charted it faithfully for decades by staying true to her vision and herself.`\
+https://nytimes.com/2024/12/10/books/nikki-giovanni-appraisal.html
+
 **75 years later...a new discussion about Jackie Robinson rookie cards?**\
 `What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
 `\
@@ -10,6 +18,10 @@ https://nytimes.com/athletic/5984412/2024/12/10/2025-super-bowl-2025-odds-lions-
 **In emails from Japan, the suspect talked politics and philosophy.**\
 `By Jacey Fortin`\
 https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-ceo-luigi-mangione/in-emails-from-japan-suspect-talked-politics-and-philosophy
+
+**Explaining why FIFA's Saudi Arabia World Cup 2034 vote is already a done deal**\
+`Today, the Gulf state will secure football's biggest prize. This is how Saudi did it`\
+https://nytimes.com/athletic/5983648/2024/12/10/saudi-arabia-world-cup-2034-explained-fifa/
 
 **Police Say Suspect in United Healthcare Shooting Saw Himself as a Hero**\
 `The suspect’s three-page manifesto, summarized by the police, described the killing as a “symbolic takedown.”`\
@@ -26,16 +38,4 @@ https://nytimes.com/2024/12/10/world/australia/olympic-cyclist-death-guilty-roha
 **Caitlin Clark named Time's Athlete of the Year, shares reaction to Olympics roster omission**\
 `Making the 2028 U.S. Olympic team is a "huge, huge goal" for Clark, she said in the interview.`\
 https://nytimes.com/athletic/5984712/2024/12/10/https-www-nytimes-com-athletic-5984614-2024-12-10-caitlin-clark-wnte-olympics-time/
-
-**‘Nature of the Crime’ Review: Yearning for a Second Chance**\
-`Two incarcerated men navigate parole boards in a documentary that asks the question: Should the guiding principle of criminal justice be retribution or rehabilitation?`\
-https://nytimes.com/2024/12/10/movies/nature-of-the-crime-review.html
-
-**The Briefing: Girona 0-1 Liverpool - Was it a penalty and what now for Nunez?**\
-`The major talking points analysed as Arne Slot's close in on the Champions League last 16`\
-https://nytimes.com/athletic/5974242/2024/12/10/girona-liverpool-champions-league-analysis/
-
-**NFL Week 15 playoff scenarios: How 4 teams can clinch playoff berths**\
-`Texans and Eagles can clinch division while three other teams can secure their spots in the postseason`\
-https://nytimes.com/athletic/5984519/2024/12/10/nfl-week-15-playoff-scenarios-2/
 
