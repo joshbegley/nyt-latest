@@ -1,3 +1,7 @@
+**Explaining how BOS Nation's stadium lawsuit could derail the team's NWSL start**\
+`BOS Nation has faced multiple obstacles in the year since announcing it was joining the league. The latest hurdle could delay its debut.`\
+https://nytimes.com/athletic/5984817/2024/12/10/bos-nation-fc-nwsl-stadium-lawsuit/
+
 **White House Threatens Biden Veto of Bipartisan Bill to Add New Judges**\
 `The legislation would create more than 60 new federal court seats over the next decade, giving the Trump White House a first shot at filling dozens of new vacancies.`\
 https://nytimes.com/2024/12/10/us/politics/biden-judges-veto-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/business/gm-cruise-robotaxi.html
 **French Court Finds Writer Guilty of Denying Rwandan Genocide**\
 `Charles Onana and his publisher were fined for passages in a book that were found to have violated a French law making it illegal to deny an officially recognized genocide.`\
 https://nytimes.com/2024/12/10/world/europe/france-author-rwanda-genocide.html
-
-**Browns waive Kadarius Toney, place Greg Newsome II on IR**\
-`Newsome has a hamstring injury and Toney was cut after a taunting penalty and a muffed fourth-quarter punt in Sunday's game.`\
-https://nytimes.com/athletic/5984794/2024/12/10/browns-cut-kadarius-toney-greg-newsome-ir/
 
