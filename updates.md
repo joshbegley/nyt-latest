@@ -1,3 +1,7 @@
+**Mbappe to undergo tests on thigh injury**\
+`Kylian Mbappe will undergo tests to determine the extent of a thigh injury after the forward was forced off during the first half of Real Madrid&#8217;s Champions League win over Atalanta on Tuesday night.`\
+https://nytimes.com/athletic/5984894/2024/12/10/mbappe-real-madrid-injury/
+
 **The Briefing: Atalanta 2 Real Madrid 3: Madrid's big hitters step up, but Lookman deserves fanfare**\
 `Atalanta and Real Madrid, as expected, served up a cracking Champions League match on Tuesday evening...`\
 https://nytimes.com/athletic/5974243/2024/12/10/atalanta-2-real-madrid-3-mbappe-bellingham-vinicius-lookman/
