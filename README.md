@@ -1,40 +1,40 @@
-**Christmas, Every Day**\
-`Two preteen girls market fashion and beauty products to thousands of online fans from their Alabama home.`\
-https://nytimes.com/video/opinion/100000009326901/christmas-every-day.html
+**A special teams touchdown and situational management were critical factors in Rams win**\
+`A first-half blocked punt returned for a touchdown provided the Rams important points in their high-scoring victory against the Bills.`\
+https://nytimes.com/athletic/5982090/2024/12/10/rams-special-teams-blocked-punt-touchdown-bills/
 
-**Which College Football Playoff coaches are under the most pressure?**\
-`For some schools and their coaches, just getting into the field made their year. For others, simply being there is not good enough.`\
-https://nytimes.com/athletic/5982575/2024/12/10/college-football-playoff-coaches-ryan-day/
+**Patriots mock draft reaction: Should New England go Travis Hunter, O-line or trade down?**\
+`The Patriots look like they'll again have a top-five pick in the NFL Draft. Who are their best options? Or is a trade down the wise move?`\
+https://nytimes.com/athletic/5981814/2024/12/10/patriots-mock-draft-travis-hunter/
 
-**Barcelona exploring 20-year VIP box sales at Camp Nou to register Olmo in January**\
-`Barcelona are exploring the sale of VIP boxes at the newly refurbished Camp Nou in 20-year commitments in a move to register first-team squad players in January.`\
-https://nytimes.com/athletic/5980904/2024/12/10/barcelona-camp-nou-player-registration-olmo/
+**Studying to avoid 'silly fines': Jamahl Mosley's recipe for Magic's staunch defense**\
+`Orlando, in its best moments, turns basketball into rock fights. The Magic don’t score much but ensure whoever they’re playing scores less.`\
+https://nytimes.com/athletic/5982498/2024/12/10/orlando-magic-defense-jamahl-mosley-nba/
 
-**Wildfire Breaks Out in Malibu, Forcing Evacuations**\
-`The Franklin fire started Monday night and began to spread quickly, as large parts of Southern California braced for dangerous wildfire conditions.`\
-https://nytimes.com/2024/12/10/us/franklin-fire-malibu-california.html
+**A new strategy to stop the Celtics? Why the Grizzlies left Jrue Holiday open all game**\
+`The Grizzlies left Jrue Holiday open all game — allowing him to shoot through a cold spell — and it worked. `\
+https://nytimes.com/athletic/5982451/2024/12/10/celtics-jrue-holiday-defensive-strategy/
 
-**Sarah Jessica Parker Lands Her Dream Gig: Booker Prize Judge**\
-`The actress and publisher will help decide the 2025 winner of the prestigious British book award. It is “the thrill of a life,” she said.`\
-https://nytimes.com/2024/12/10/books/sarah-jessica-parker-booker-prize.html
+**On Issue After Issue, Trump Promises the Moon. No Word on the Rocket.**\
+`The president-elect has made some of the most expansive campaign pledges in history. Some supporters fear that his bravado could undermine his ambitions.`\
+https://nytimes.com/2024/12/10/us/politics/trump-promises.html
 
-**Manuel Neuer ruled out until January with broken rib**\
-`Bayern Munich head coach Vincent Kompany has confirmed that goalkeeper Manuel Neuer has suffered a broken rib and will likely be out until 2025.`\
-https://nytimes.com/athletic/5983413/2024/12/10/manuel-neuer-injury-update-bayern/
+**Daniel Penny Is Acquitted in Death of Jordan Neely on Subway**\
+`Daniel Penny, a former Marine who choked a fellow subway rider on an uptown F train last year, was acquitted on a charge of criminally negligent homicide on Monday, ending a case that had come to exemplify New York City’s post-pandemic struggles.`\
+https://nytimes.com/video/nyregion/100000009868247/daniel-penny-is-acquitted-in-death-of-jordan-neely-on-subway.html
 
-**Here are the latest developments.**\
-`By Qasim Nauman and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/here-are-the-latest-developments
+**Why Al-Assad Fell**\
+`Understanding the factors that led to the Syrian regime’s collapse is key to putting the pieces of the country back together.`\
+https://nytimes.com/2024/12/10/opinion/syria-assad-regime-collapse.html
 
-**Brad Pitt's F1 movie wraps filming as the F1 season concludes in Abu Dhabi**\
-`The paddock has embraced the project of filming within a living, breathing sporting environment.`\
-https://nytimes.com/athletic/5981550/2024/12/10/f1-movie-brad-pitt-filming-abu-dhabi/
+**It’s Ariana Grande vs. Selena Gomez at the Oscars, at Least in Fans’ Minds**\
+`Stan armies are waging war over which pop star is the “better” actor. Movie lovers used to awards-season maneuvering haven’t seen anything like this.`\
+https://nytimes.com/2024/12/10/movies/ariana-grande-selena-gomez-fans-oscars.html
 
-**Brazil’s Lula Undergoes Emergency Surgery for Bleeding in Skull**\
-`President Luiz Inácio Lula da Silva of Brazil was in the hospital recovering from the procedure. Doctors said the bleeding appeared to be linked to a fall in October.`\
-https://nytimes.com/2024/12/10/world/asia/brazil-lula-surgery.html
+**South Korea’s President Is Still in Office. This Man Intends to Push Him Out.**\
+`Lee Jae-myung, the main opposition leader, is leading efforts to impeach President Yoon Suk Yeol over his declaration of martial law. He could also be the next president.`\
+https://nytimes.com/2024/12/10/world/asia/south-korea-lee-jae-myung-martial-law.html
 
-**Taiwan Says China Has Deployed Largest Fleet of Ships in Decades**\
-`Taiwan is on high alert in response to China’s unannounced deployment of naval and Coast Guard ships, as tensions rise over U.S. support for the island.`\
-https://nytimes.com/2024/12/10/world/asia/taiwan-china-naval-largest.html
+**Where Beards Grow, Strong Feelings Follow**\
+`Whether on Prince William, JD Vance or Jacob Elordi, facial hair gets people talking.`\
+https://nytimes.com/2024/12/10/style/prince-william-beard.html
 
