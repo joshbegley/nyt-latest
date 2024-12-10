@@ -1,3 +1,7 @@
+**Volcanic Eruption Forces Mass Evacuation in the Philippines**\
+`Nearly 90,000 people on the island of Negros were ordered to seek shelter after Mount Kanlaon spewed deadly ash and lava.`\
+https://nytimes.com/2024/12/10/world/asia/philippines-volcano-kanlaon-eruption.html
+
 **The Plight of the Palestinian Scientist**\
 `Four Palestinian researchers describe how conflict in Gaza and the West Bank has hindered their careers in science and medicine.`\
 https://nytimes.com/2024/12/10/science/the-plight-of-the-palestinian-scientist.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982188/2024/12/10/cowboys-bengals-mnf-score-result
 **Why Cole Palmer's penalty was a perfect Panenka**\
 `When it works, the taker looks like an insouciant genius. When it doesn’t, they look pretty silly`\
 https://nytimes.com/athletic/5981124/2024/12/10/cole-palmer-tottenham-chelsea-panenka/
-
-**Juventus, Man City and the far-reaching impact of a scandal that resulted in relegation**\
-`In 2006, Juventus were relegated and stripped of titles. This week they play City, a team facing 115 charges from the Premier League`\
-https://nytimes.com/athletic/5976120/2024/12/10/juventus-calciopoli-man-city-premier-league-charges/
 

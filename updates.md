@@ -1,3 +1,7 @@
+**Volcanic Eruption Forces Mass Evacuation in the Philippines**\
+`Nearly 90,000 people on the island of Negros were ordered to seek shelter after Mount Kanlaon spewed deadly ash and lava.`\
+https://nytimes.com/2024/12/10/world/asia/philippines-volcano-kanlaon-eruption.html
+
 **The Plight of the Palestinian Scientist**\
 `Four Palestinian researchers describe how conflict in Gaza and the West Bank has hindered their careers in science and medicine.`\
 https://nytimes.com/2024/12/10/science/the-plight-of-the-palestinian-scientist.html
