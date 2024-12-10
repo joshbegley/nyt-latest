@@ -1,3 +1,11 @@
+**Tigers takeaways: After signing Alex Cobb, what’s next for Detroit?**\
+`Notes on what the Tigers like about Cobb, news on a couple of players taking grounders at first base and more.`\
+https://nytimes.com/athletic/5982944/2024/12/09/detroit-tigers-winter-meetings-alex-cobb/
+
+**That Manhunt Photo Looks Like a Loved One. Do You Have to Tell?**\
+`Photos of the suspect in the killing of the UnitedHealthcare C.E.O. were circulated by the police and viewed by millions of Americans, making it likely that at least a few people who saw them recognized him.`\
+https://nytimes.com/2024/12/09/nyregion/crime-reporting-loved-one.html
+
 **Suspect in C.E.O. Killing Withdrew From a Life of Privilege and Promise**\
 `The suspect, Luigi Mangione, was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychic pain.`\
 https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-mangione.html

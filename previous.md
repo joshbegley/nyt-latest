@@ -1,10 +1,14 @@
+**Tigers takeaways: After signing Alex Cobb, what’s next for Detroit?**\
+`Notes on what the Tigers like about Cobb, news on a couple of players taking grounders at first base and more.`\
+https://nytimes.com/athletic/5982944/2024/12/09/detroit-tigers-winter-meetings-alex-cobb/
+
 **Suspect in C.E.O. Killing Withdrew From a Life of Privilege and Promise**\
 `The suspect, Luigi Mangione, was an Ivy League tech graduate from a prominent Maryland family who in recent months had suffered physical and psychic pain.`\
 https://nytimes.com/2024/12/09/nyregion/united-healthcare-ceo-shooting-luigi-mangione.html
 
-**If That Manhunt Photo Looks Like a Loved One, Do You Have to Tell?**\
+**That Manhunt Photo Looks Like a Loved One. Do You Have to Tell?**\
 `Photos of the suspect in the killing of the UnitedHealthcare C.E.O. were circulated by the police and viewed by millions of Americans, making it likely that at least a few people who saw them recognized him.`\
-https://nytimes.com/2024/12/09/nyregion/if-that-manhunt-photo-looks-like-a-loved-one-do-you-have-to-tell.html
+https://nytimes.com/2024/12/09/nyregion/crime-reporting-loved-one.html
 
 **Corrections: Dec. 10, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 10, 2024.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982613/2024/12/09/cardinals-mlb-nolan-arenado-trad
 **After missing out on top target Juan Soto, Blue Jays need to bounce back better**\
 `A lot is riding on this offseason for the Blue Jays.`\
 https://nytimes.com/athletic/5982775/2024/12/09/blue-jays-juan-soto-failed-bid/
-
-**Will the Angels and Arte Moreno ever spend on a top-flight free agent again?**\
-`The Angels' entire offseason strategy has centered around finding reclamation projects and strong role players, among others.`\
-https://nytimes.com/athletic/5982740/2024/12/09/los-angeles-angels-arte-moreno-free-agency/
 
