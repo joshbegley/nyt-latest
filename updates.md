@@ -1,3 +1,7 @@
+**Late Night Turns Up Its Nose at Trump’s Cologne Ad**\
+`The president-elect used a photo of Jill Biden smiling at him to promote his fragrances. Jimmy Kimmel thinks that’s because Melania has never smiled at him on camera.`\
+https://nytimes.com/2024/12/10/arts/television/late-night-trump-cologne.html
+
 **Word of the Day: connotation**\
 `This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/10/learning/word-of-the-day-connotation.html
