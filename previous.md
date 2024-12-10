@@ -1,3 +1,11 @@
+**G.M. Will Stop Developing Self-Driving Taxis**\
+`The company said it would now focus its efforts on developing fully autonomous vehicles for personal use.`\
+https://nytimes.com/2024/12/10/business/gm-cruise-robotaxi.html
+
+**French Court Finds Writer Guilty of Denying Rwandan Genocide**\
+`Charles Onana and his publisher were fined for passages in a book that were found to have violated a French law making it illegal to deny an officially recognized genocide.`\
+https://nytimes.com/2024/12/10/world/europe/france-author-rwanda-genocide.html
+
 **Browns waive Kadarius Toney, place Greg Newsome II on IR**\
 `Newsome has a hamstring injury and Toney was cut after a taunting penalty and a muffed fourth-quarter punt in Sunday's game.`\
 https://nytimes.com/athletic/5984794/2024/12/10/browns-cut-kadarius-toney-greg-newsome-ir/
@@ -18,7 +26,7 @@ https://nytimes.com/video/world/middleeast/100000009869599/uncertainty-and-hope-
 `The poet left a long visual record of a career in the public sphere.`\
 https://nytimes.com/2024/12/10/books/nikki-giovanni-photos.html
 
-**Fantasy football market share report:**\
+**Fantasy football market share report: Addison is a must-start; Bigsby is noteworthy**\
 `In his fantasy football market report, Michael Salfino says that Jordan Addison is feasting off the attention paid to Justin Jefferson.`\
 https://nytimes.com/athletic/5984602/2024/12/10/fantasy-football-market-share-addison-bigsby-charbonnet/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5984511/2024/12/10/orioles-offseason-outlook/
 **U.S. Transfers $20 Billion Loan to Ukraine Backed by Russian Assets**\
 `The economic lifeline ensures that Ukraine will have economic support after President-elect Donald J. Trump takes office.`\
 https://nytimes.com/2024/12/10/us/politics/20-billion-dollar-loan-ukraine.html
-
-**Wednesday Briefing: A Wave of Post-Assad Attacks**\
-`Plus, how Netflix brought a magical town to life.`\
-https://nytimes.com/2024/12/10/briefing/syria-netanyahu-ceo-killing.html
-
-**A Tour of Assad’s Monumental Palace, With a Scruffy Rebel as a Guide**\
-`The televisions may be stripped away now, but a presidential residence still contains many remnants of a brutal reign.`\
-https://nytimes.com/2024/12/10/world/middleeast/assad-presidential-palace.html
 
