@@ -1,3 +1,19 @@
+**Police Say Suspect in United Healthcare Shooting Saw Himself as a Hero**\
+`The suspect’s three-page manifesto, summarized by the police, described the killing as a “symbolic takedown.”`\
+https://nytimes.com/2024/12/10/nyregion/luigi-mangione-manifesto.html
+
+**Going Deep Into The Permian Basin**\
+`In 2019, the journalist Christian Wallace created the “Boomtown” podcast, spotlighting the volatile world of West Texas oil. It has now inspired a new Taylor Sheridan TV series. "Landman"`\
+https://nytimes.com/paidpost/paramount/going-deep-into-the-permian-basin.html
+
+**Australian Cyclist Pleads Guilty in Death of Wife, a Fellow Olympian**\
+`Rohan Dennis pleaded guilty this week to a lesser charge in the death of Melissa Hoskins last year, after he drove with her on the hood of a vehicle, the authorities said.`\
+https://nytimes.com/2024/12/10/world/australia/olympic-cyclist-death-guilty-rohan-dennis.html
+
+**Caitlin Clark named Time's Athlete of the Year, shares reaction to Olympics roster omission**\
+`Making the 2028 U.S. Olympic team is a "huge, huge goal" for Clark, she said in the interview.`\
+https://nytimes.com/athletic/5984712/2024/12/10/https-www-nytimes-com-athletic-5984614-2024-12-10-caitlin-clark-wnte-olympics-time/
+
 **‘Nature of the Crime’ Review: Yearning for a Second Chance**\
 `Two incarcerated men navigate parole boards in a documentary that asks the question: Should the guiding principle of criminal justice be retribution or rehabilitation?`\
 https://nytimes.com/2024/12/10/movies/nature-of-the-crime-review.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5984497/2024/12/10/max-fried-free-agency-yankees-re
 **Jason Kelce investigation closed by Penn State police**\
 `University police said the individual in social media videos of the incident has not been identified.`\
 https://nytimes.com/athletic/5984466/2024/12/10/jason-kelce-phone-investigation-closed/
-
-**Suspect in CEO’s Killing Had Discussed His Health Struggles on Reddit**\
-`In posts that stretch over years, he described debilitating back pain, “brain fog” in his college years and testing for irritable bowel syndrome.`\
-https://nytimes.com/2024/12/10/nyregion/luigi-mangione-health-issues-reddit.html
-
-**NFL MVP odds: It's Josh Allen's world and Barkley, Goff, Jackson, Mahomes are living in it**\
-`Josh Allen is looking uncatchable in the MVP odds. Other risers and fallers tell the story of the season so far.`\
-https://nytimes.com/athletic/5984153/2024/12/10/nfl-mvp-odds-week-14-josh-allen/
-
-**Monarch Butterflies Are Recommended for Protected Status**\
-`They would become the most commonly seen species to receive federal protection if the proposal is adopted.`\
-https://nytimes.com/2024/12/10/climate/monarch-butterflies-endangered-species-list.html
-
-**As Teenagers, They Protested Trump’s Climate Policy. Now What?**\
-`Some young climate activists who were galvanized under Donald Trump’s first presidency are taking a different approach to his second.`\
-https://nytimes.com/2024/12/10/climate/youth-climate-movement-sunrise.html
 

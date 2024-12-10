@@ -1,3 +1,19 @@
+**Police Say Suspect in United Healthcare Shooting Saw Himself as a Hero**\
+`The suspect’s three-page manifesto, summarized by the police, described the killing as a “symbolic takedown.”`\
+https://nytimes.com/2024/12/10/nyregion/luigi-mangione-manifesto.html
+
+**Going Deep Into The Permian Basin**\
+`In 2019, the journalist Christian Wallace created the “Boomtown” podcast, spotlighting the volatile world of West Texas oil. It has now inspired a new Taylor Sheridan TV series. "Landman"`\
+https://nytimes.com/paidpost/paramount/going-deep-into-the-permian-basin.html
+
+**Australian Cyclist Pleads Guilty in Death of Wife, a Fellow Olympian**\
+`Rohan Dennis pleaded guilty this week to a lesser charge in the death of Melissa Hoskins last year, after he drove with her on the hood of a vehicle, the authorities said.`\
+https://nytimes.com/2024/12/10/world/australia/olympic-cyclist-death-guilty-rohan-dennis.html
+
+**Caitlin Clark named Time's Athlete of the Year, shares reaction to Olympics roster omission**\
+`Making the 2028 U.S. Olympic team is a "huge, huge goal" for Clark, she said in the interview.`\
+https://nytimes.com/athletic/5984712/2024/12/10/https-www-nytimes-com-athletic-5984614-2024-12-10-caitlin-clark-wnte-olympics-time/
+
 **‘Nature of the Crime’ Review: Yearning for a Second Chance**\
 `Two incarcerated men navigate parole boards in a documentary that asks the question: Should the guiding principle of criminal justice be retribution or rehabilitation?`\
 https://nytimes.com/2024/12/10/movies/nature-of-the-crime-review.html
