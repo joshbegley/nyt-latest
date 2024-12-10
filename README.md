@@ -30,7 +30,7 @@ https://nytimes.com/2024/12/09/us/samuel-bateman-polygamist-sect-leader-sentenci
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5982583/2024/12/09/angel-city-nwsl-college-cup-full-time/
 
-**Map: 5.5-Magnitude Earthquake Strikes Nevada**\
+**Map: 5.7-Magnitude Earthquake Strikes Nevada**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/12/09/us/quake-tracker-nevada.html
 
