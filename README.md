@@ -1,3 +1,7 @@
+**Brazil’s Lula Undergoes Emergency Surgery for Bleeding in Skull**\
+`President Luiz Inácio Lula da Silva of Brazil was in the hospital recovering from the procedure. Doctors said the bleeding appeared to be linked to a fall in October.`\
+https://nytimes.com/2024/12/10/world/asia/brazil-lula-surgery.html
+
 **Taiwan Says China Has Deployed Largest Fleet of Ships in Decades**\
 `Taiwan is on high alert in response to China’s unannounced deployment of naval and Coast Guard ships, as tensions rise over U.S. support for the island.`\
 https://nytimes.com/2024/12/10/world/asia/taiwan-china-naval-largest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/arts/television/late-night-trump-cologne.html
 **Word of the Day: connotation**\
 `This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/10/learning/word-of-the-day-connotation.html
-
-**Volcanic Eruption Forces Mass Evacuation in the Philippines**\
-`Nearly 90,000 people on the island of Negros were ordered to seek shelter after Mount Kanlaon spewed deadly ash and lava.`\
-https://nytimes.com/2024/12/10/world/asia/philippines-volcano-kanlaon-eruption.html
 
