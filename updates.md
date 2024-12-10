@@ -1,3 +1,11 @@
+**Hate Crime Charges Dropped Against Most Salisbury U. Students Who Were Arrested**\
+`Hate crime charges against at least 12 of the 15 Maryland students accused of assaulting a person because of his sexual orientation have been dismissed, court records show. They still face misdemeanor counts.`\
+https://nytimes.com/2024/12/10/us/salisbury-university-hate-crime-charges.html
+
+**Syria’s New Leaders Vow Punishment for Atrocities Under al-Assad**\
+`The rebels who seized Damascus are trying to get a new government up and running, even as foreign powers like Israel and Turkey, and armed Syrian groups, fight for power.`\
+https://nytimes.com/2024/12/10/world/middleeast/syria-rebels-justice.html
+
 **Nebraska fills defensive staff, promotes John Butler to DC: Source**\
 `Butler had been the interim DC since Tony White left the program for the same role at Florida State earlier this month.`\
 https://nytimes.com/athletic/5985013/2024/12/10/nebraska-defensive-coordinator-john-butler-college-football/
