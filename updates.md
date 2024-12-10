@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Qasim Nauman and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/here-are-the-latest-developments
+
+**Brad Pitt's F1 movie wraps filming as the F1 season concludes in Abu Dhabi**\
+`The paddock has embraced the project of filming within a living, breathing sporting environment.`\
+https://nytimes.com/athletic/5981550/2024/12/10/f1-movie-brad-pitt-filming-abu-dhabi/
+
 **The queasy, quirky, eerily quiet reality of an 'El Sackico'**\
 `Two struggling teams and two managers under pressure — Tim Spiers experiences the eerie malaise of West Ham against Wolves`\
 https://nytimes.com/athletic/5982016/2024/12/10/wolves-west-ham-lopetegui-oneil-manager/

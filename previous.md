@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Qasim Nauman and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/here-are-the-latest-developments
+
+**Brad Pitt's F1 movie wraps filming as the F1 season concludes in Abu Dhabi**\
+`The paddock has embraced the project of filming within a living, breathing sporting environment.`\
+https://nytimes.com/athletic/5981550/2024/12/10/f1-movie-brad-pitt-filming-abu-dhabi/
+
 **Brazil’s Lula Undergoes Emergency Surgery for Bleeding in Skull**\
 `President Luiz Inácio Lula da Silva of Brazil was in the hospital recovering from the procedure. Doctors said the bleeding appeared to be linked to a fall in October.`\
 https://nytimes.com/2024/12/10/world/asia/brazil-lula-surgery.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5982016/2024/12/10/wolves-west-ham-lopetegui-oneil-
 **With an Eye on China, Australia Strikes a Deal With Nauru**\
 `In return for financial support, the Pacific island nation of Nauru pledged not to enter any security pacts without Australia’s assent.`\
 https://nytimes.com/2024/12/10/world/australia/australia-treaty-nauru.html
-
-**Late Night Turns Up Its Nose at Trump’s Cologne Ad**\
-`The president-elect used a photo of Jill Biden smiling at him to promote his fragrances. Jimmy Kimmel thinks that’s because Melania has never smiled at him on camera.`\
-https://nytimes.com/2024/12/10/arts/television/late-night-trump-cologne.html
-
-**Word of the Day: connotation**\
-`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/10/learning/word-of-the-day-connotation.html
 
