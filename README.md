@@ -1,3 +1,15 @@
+**Wildfire Breaks Out in Malibu, Forcing Evacuations**\
+`The Franklin fire started Monday night and began to spread quickly, as large parts of Southern California braced for dangerous wildfire conditions.`\
+https://nytimes.com/2024/12/10/us/franklin-fire-malibu-california.html
+
+**Sarah Jessica Parker Lands Her Dream Gig: Booker Prize Judge**\
+`The actress and publisher will help decide the 2025 winner of the prestigious British book award. It is “the thrill of a life,” she said.`\
+https://nytimes.com/2024/12/10/books/sarah-jessica-parker-booker-prize.html
+
+**Manuel Neuer ruled out until January with broken rib**\
+`Bayern Munich head coach Vincent Kompany has confirmed that goalkeeper Manuel Neuer has suffered a broken rib and will likely be out until 2025.`\
+https://nytimes.com/athletic/5983413/2024/12/10/manuel-neuer-injury-update-bayern/
+
 **Here are the latest developments.**\
 `By Qasim Nauman and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/here-are-the-latest-developments
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/10/learning/notre-dame-reopens.html
 **Mayor Adams’s Stance on Migrants Has Evolved, in Trump’s Direction**\
 `Mayor Eric Adams has become more outspoken about his desire to detain “dangerous” immigrants, a view more closely aligned with President-elect Donald J. Trump.`\
 https://nytimes.com/2024/12/10/nyregion/adams-migrants-sanctuary-nyc.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/10/crosswords/spelling-bee-forum.html
-
-**The queasy, quirky, eerily quiet reality of an 'El Sackico'**\
-`Two struggling teams and two managers under pressure — Tim Spiers experiences the eerie malaise of West Ham against Wolves`\
-https://nytimes.com/athletic/5982016/2024/12/10/wolves-west-ham-lopetegui-oneil-manager/
-
-**With an Eye on China, Australia Strikes a Deal With Nauru**\
-`In return for financial support, the Pacific island nation of Nauru pledged not to enter any security pacts without Australia’s assent.`\
-https://nytimes.com/2024/12/10/world/australia/australia-treaty-nauru.html
 
