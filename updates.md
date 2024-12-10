@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-card
 `\
 https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
 
+**75 years later...a new discussion about Jackie Robinson rookie cards?**\
+`What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
+`\
+https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
+
 **Supreme Court Poised to Curb Scope of Environmental Reviews**\
 `Several justices indicated that a federal agency had complied with a federal law by issuing a 3,600-page report on the impact of a proposed railway in Utah.`\
 https://nytimes.com/2024/12/10/us/politics/supreme-court-environmental-reviews.html
