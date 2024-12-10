@@ -1,3 +1,11 @@
+**Kylian Mbappe hasn’t looked himself at Real Madrid. Are things beginning to change?**\
+`Mbappe's first few months at Madrid have not gone to plan — is he showing signs of getting back on track?`\
+https://nytimes.com/athletic/5983513/2024/12/10/kylian-mbappe-real-madrid-confidence/
+
+**Inside one night of Canadiens centre Kirby Dach’s season-long confidence roller coaster**\
+`Dach's struggles this season have far-reaching consequences for the Canadiens, who have to hope a lucky goal can turn it all around.`\
+https://nytimes.com/athletic/5983353/2024/12/10/canadiens-kirby-dach-nhl-ducks-win/
+
 **The Athletic FC: Numbers behind Chelsea revival, the stigma that 'p***es off' Pulisic**\
 `Today in TAFC: The numbers that back a Chelsea title bid, Pulisic exclusive interview, can young teams win the Champions League?`\
 https://nytimes.com/athletic/5983550/2024/12/10/chelsea-title-bid-pulisic-stigma-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-luigi-mangione/her
 **Suspect in Health Care C.E.O.’s Killing Is Charged With Murder**\
 `The suspect, Luigi Mangione, 26, was charged by New York prosecutors. He was arrested and arraigned in Altoona, Pa., on Monday after being spotted at a McDonald’s.`\
 https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-luigi-mangione
-
-**Tennis mailbag: Ask your big questions about the 2024 ATP and WTA seasons**\
-`What stood out to you this year, and what do you want to know more about?`\
-https://nytimes.com/athletic/5983611/2024/12/10/tennis-2024-season-review-question-answer-mailbag/
-
-**Whoever is the starter going forward, Raiders need something different at QB in 2025**\
-`The Raiders' quarterback play this season, from Gardner Minshew to Aidan O'Connell, has been bad. It's not likely to improve with Ridder.`\
-https://nytimes.com/athletic/5982224/2024/12/10/raiders-quarterback-situation-desmond-ridder-aidan-oconnell/
 
