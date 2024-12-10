@@ -1,3 +1,11 @@
+**With Roki Sasaki officially posted, agent Joel Wolfe discusses upcoming free agent process**\
+`On Tuesday, Wolfe offered new details about the posting process, which teams Sasaki might prefer to sign with and what’s important to him.`\
+https://nytimes.com/athletic/5984686/2024/12/10/roki-sasaki-signing-details-mlb-posting/
+
+**Read the Justice Department’s Report**\
+`A two-year investigation by the agency found patterns of “outrageous” conduct by the police in Worcester, Mass., including excessive use of force and sexual contact between undercover officers and women suspected of prostitution.`\
+https://nytimes.com/interactive/2024/12/10/us/worcester-police-sexual-misconduct-justice-department.html
+
 **Supreme Court Poised to Curb Scope of Environmental Reviews**\
 `Several justices indicated that a federal agency had complied with a federal law by issuing a 3,600-page report on the impact of a proposed railway in Utah.`\
 https://nytimes.com/2024/12/10/us/politics/supreme-court-environmental-reviews.html
@@ -30,12 +38,4 @@ https://nytimes.com/2024/12/10/nyregion/luigi-mangione-manifesto.html
 **Going Deep Into The Permian Basin**\
 `In 2019, the journalist Christian Wallace created the “Boomtown” podcast, spotlighting the volatile world of West Texas oil. It has now inspired a new Taylor Sheridan TV series. "Landman"`\
 https://nytimes.com/paidpost/paramount/going-deep-into-the-permian-basin.html
-
-**Australian Cyclist Pleads Guilty in Death of Wife, a Fellow Olympian**\
-`Rohan Dennis pleaded guilty this week to a lesser charge in the death of Melissa Hoskins last year, after he drove with her on the hood of a vehicle, the authorities said.`\
-https://nytimes.com/2024/12/10/world/australia/olympic-cyclist-death-guilty-rohan-dennis.html
-
-**Caitlin Clark named Time's Athlete of the Year, shares reaction to Olympics roster omission**\
-`Making the 2028 U.S. Olympic team is a "huge, huge goal" for Clark, she said in the interview.`\
-https://nytimes.com/athletic/5984712/2024/12/10/https-www-nytimes-com-athletic-5984614-2024-12-10-caitlin-clark-wnte-olympics-time/
 
