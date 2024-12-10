@@ -1,3 +1,11 @@
+**Christmas, Every Day**\
+`Two preteen girls market fashion and beauty products to thousands of online fans from their Alabama home.`\
+https://nytimes.com/video/opinion/100000009326901/christmas-every-day.html
+
+**Which College Football Playoff coaches are under the most pressure?**\
+`For some schools and their coaches, just getting into the field made their year. For others, simply being there is not good enough.`\
+https://nytimes.com/athletic/5982575/2024/12/10/college-football-playoff-coaches-ryan-day/
+
 **Barcelona exploring 20-year VIP box sales at Camp Nou to register Olmo in January**\
 `Barcelona are exploring the sale of VIP boxes at the newly refurbished Camp Nou in 20-year commitments in a move to register first-team squad players in January.`\
 https://nytimes.com/athletic/5980904/2024/12/10/barcelona-camp-nou-player-registration-olmo/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/10/world/asia/brazil-lula-surgery.html
 **Taiwan Says China Has Deployed Largest Fleet of Ships in Decades**\
 `Taiwan is on high alert in response to China’s unannounced deployment of naval and Coast Guard ships, as tensions rise over U.S. support for the island.`\
 https://nytimes.com/2024/12/10/world/asia/taiwan-china-naval-largest.html
-
-**In Penny Verdict, a Flashpoint in the Debate Over Crime and Mental Illness**\
-`A New York jury acquitted Daniel Penny in the death of Jordan Neely. Republican politicians hailed the verdict. But some New Yorkers found it deeply disturbing.`\
-https://nytimes.com/2024/12/10/nyregion/daniel-penny-trial-jordan-neely.html
-
-**Notre Dame Reopens**\
-`Have you ever visited? Would you like to? What’s your favorite architectural masterpiece?`\
-https://nytimes.com/2024/12/10/learning/notre-dame-reopens.html
 
