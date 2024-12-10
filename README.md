@@ -1,3 +1,11 @@
+**Brian Snitker on Braves' outlook, leadership after Travis d'Arnaud exit, and more**\
+`Snitker delivered his first public comments about some unexpected moves in the offseason.`\
+https://nytimes.com/athletic/5982729/2024/12/09/braves-brian-snitker-travis-darnaud/
+
+**Juan Soto agreement could lead to increased trade chatter for Twins on Carlos Correa**\
+`Soto is off the board and it could lead his spurned suitors to gauge whether the Twins would trade Correa. Falvey is open to listening.`\
+https://nytimes.com/athletic/5982759/2024/12/09/twins-carlos-correa-trade-talk-soto/
+
 **Mookie Betts is a shortstop again and more from the Dodgers at the Winter Meetings**\
 `The Dodgers are still interested in a reunion with Teoscar Hernández and they have a strong foothold in Japan, where there's Roki Sasaki.`\
 https://nytimes.com/athletic/5982735/2024/12/09/mookie-betts-shortstop-dodgers/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/5982578/2024/12/09/travis-hunter-ashton-jeanty-heis
 **Mirtle: Why the Maple Leafs aren't as dangerous offensively this year, and how to fix it**\
 `The Leafs were second in the league last season in goals per game and now sit 18th. Why, and what should they do about it?`\
 https://nytimes.com/athletic/5981982/2024/12/09/maple-leafs-offensive-production-analysis/
-
-**Leader of Polygamist Sect in Arizona Gets 50 Years in Child Sex Ring Case**\
-`Samuel R. Bateman, 48, of Colorado City, Ariz., who claimed to have more than 20 “wives” including 10 “brides” under 18, pleaded guilty in April to two felony conspiracy charges.`\
-https://nytimes.com/2024/12/09/us/samuel-bateman-polygamist-sect-leader-sentencing.html
-
-**Full Time: Is Angel City cleaning house?**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/5982583/2024/12/09/angel-city-nwsl-college-cup-full-time/
 
