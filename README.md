@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5983587/2024/12/10/levante-valencia-floods-dana-auc
 https://nytimes.com/athletic/5983910/2024/12/10/aj-dybantsa-byu-basketball-commitment/
 
 **FIFA considering U.S. as hosts for 2029 Club World Cup**\
-`The Club World Cup could be hosted by the United States for a second consecutive time as FIFA considers taking the tournament back there in 2029.`\
+`The U.S. is already hosting the 2025 edition of the tournament, which will be the first of its kind.`\
 https://nytimes.com/athletic/5983528/2024/12/10/club-world-cup-2029-us/
 
 **Don’t Worry About Whether Art Basel Is Cool**\
