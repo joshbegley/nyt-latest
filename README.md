@@ -1,3 +1,7 @@
+**Late Night Turns Up Its Nose at Trump’s Cologne Ad**\
+`The president-elect used a photo of Jill Biden smiling at him to promote his fragrances. Jimmy Kimmel thinks that’s because Melania has never smiled at him on camera.`\
+https://nytimes.com/2024/12/10/arts/television/late-night-trump-cologne.html
+
 **Word of the Day: connotation**\
 `This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/10/learning/word-of-the-day-connotation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965548/2024/12/10/why-have-japanese-players-become
 **Alisson is back, which raises the question again – can Kelleher really just sit on Liverpool's bench?**\
 `Come next summer Liverpool could have three goalkeepers worthy of starting. Who's going to make way?`\
 https://nytimes.com/athletic/5981018/2024/12/10/alisson-kelleher-liverpool/
-
-**Ja'Marr Chase's TD lifts Bengals to 27-20 win vs. Cowboys: Takeaways**\
-`The Cowboys mishandled a blocked punt late in the game that proved costly.`\
-https://nytimes.com/athletic/5982188/2024/12/10/cowboys-bengals-mnf-score-result-takeaways/
 
