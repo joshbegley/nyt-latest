@@ -1,3 +1,7 @@
+**How Juan Soto's agreement with Mets could affect Astros, Kyle Tucker**\
+`Tucker isn't Soto. But as one of the most productive outfielders in the game, he's in line for a huge payday after next season.`\
+https://nytimes.com/athletic/5982864/2024/12/09/juan-soto-astros-kyle-tucker-contract/
+
 **Trump Picks Strident Supporter for Civil Rights Post at Justice Dept.**\
 `Harmeet K. Dhillon has been a conservative activist so devoted to the president-elect that she was willing to attack not only Democrats but also fellow Republicans.`\
 https://nytimes.com/2024/12/09/us/politics/trump-civil-rights-harmeet-dhillon.html
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/5982759/2024/12/09/twins-carlos-correa-trade-talk-s
 **Mookie Betts is a shortstop again, and more from the Dodgers at the Winter Meetings**\
 `The Dodgers are still interested in a reunion with Teoscar Hernández, and they have a strong foothold in Japan, where there's Roki Sasaki.`\
 https://nytimes.com/athletic/5982735/2024/12/09/mookie-betts-shortstop-dodgers/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>The bracket is set. Are you filling one out for your CFP office pool?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/5982785/2024/12/09/submit-a-question-for-stewart-mandels-college-football-mailbag-285/
 

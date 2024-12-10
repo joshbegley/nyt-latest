@@ -1,3 +1,7 @@
+**How Juan Soto's agreement with Mets could affect Astros, Kyle Tucker**\
+`Tucker isn't Soto. But as one of the most productive outfielders in the game, he's in line for a huge payday after next season.`\
+https://nytimes.com/athletic/5982864/2024/12/09/juan-soto-astros-kyle-tucker-contract/
+
 **Trump Picks Strident Supporter for Civil Rights Post at Justice Dept.**\
 `Harmeet K. Dhillon has been a conservative activist so devoted to the president-elect that she was willing to attack not only Democrats but also fellow Republicans.`\
 https://nytimes.com/2024/12/09/us/politics/trump-civil-rights-harmeet-dhillon.html
