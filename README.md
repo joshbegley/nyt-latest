@@ -1,3 +1,7 @@
+**‘Nature of the Crime’ Review: Yearning for a Second Chance**\
+`Two incarcerated men navigate parole boards in a documentary that asks the question: Should the guiding principle of criminal justice be retribution or rehabilitation?`\
+https://nytimes.com/2024/12/10/movies/nature-of-the-crime-review.html
+
 **The Briefing: Girona 0-1 Liverpool - Was it a penalty and what now for Nunez?**\
 `The major talking points analysed as Arne Slot's close in on the Champions League last 16`\
 https://nytimes.com/athletic/5974242/2024/12/10/girona-liverpool-champions-league-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/climate/monarch-butterflies-endangered-species-li
 **As Teenagers, They Protested Trump’s Climate Policy. Now What?**\
 `Some young climate activists who were galvanized under Donald Trump’s first presidency are taking a different approach to his second.`\
 https://nytimes.com/2024/12/10/climate/youth-climate-movement-sunrise.html
-
-**Hear the Best Albums and Songs of 2024**\
-`A playlist of 103 songs from our three critics’ lists to experience however you wish.`\
-https://nytimes.com/2024/12/10/arts/music/amplifier-newsletter-best-songs-albums-2024.html
 
