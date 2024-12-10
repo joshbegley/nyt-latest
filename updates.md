@@ -1,3 +1,7 @@
+**Yankees to sign lefty Max Fried to 8-year, $218 million contract**\
+`Fried finished his Braves tenure as a two-time NL All Star, a three-time Gold Glove Award winner and the 2021 Silver Slugger winner.`\
+https://nytimes.com/athletic/5941194/2024/12/10/max-fried-yankees-free-agent-deal/
+
 **Leeds 3 Middlesbrough 1: Wober's woe, James relief and who will Ampadu replace?**\
 `The big talking points analysed from Elland Road as Leeds won yet another home game`\
 https://nytimes.com/athletic/5985124/2024/12/10/leeds-middlesbrough-result-analysis/
