@@ -1,3 +1,7 @@
+**Brazil’s Lula Undergoes Emergency Surgery for Bleeding in Skull**\
+`President Luiz Inácio Lula da Silva of Brazil was in the hospital recovering from the procedure. Doctors said the bleeding appeared to be linked to a fall in October.`\
+https://nytimes.com/2024/12/10/world/asia/brazil-lula-surgery.html
+
 **Taiwan Says China Has Deployed Largest Fleet of Ships in Decades**\
 `Taiwan is on high alert in response to China’s unannounced deployment of naval and Coast Guard ships, as tensions rise over U.S. support for the island.`\
 https://nytimes.com/2024/12/10/world/asia/taiwan-china-naval-largest.html
