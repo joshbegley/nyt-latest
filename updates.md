@@ -1,3 +1,15 @@
+**Will the Angels and Arte Moreno ever spend on a top-flight free agent again?**\
+`The Angels' entire offseason strategy has centered around finding reclamation projects and strong role players, among others.`\
+https://nytimes.com/athletic/5982740/2024/12/09/los-angeles-angels-arte-moreno-free-agency/
+
+**Reds manager Terry Francona back in his element after 'good year' away from baseball**\
+`Francona spent the past year working on his health and might get a scooter to ride to Great American Ball Park.`\
+https://nytimes.com/athletic/5982793/2024/12/09/reds-manager-terry-francona/
+
+**Juan Soto agreement could lead to increased trade chatter for Twins on Carlos Correa**\
+`Soto is off the board, and it could lead his spurned suitors to gauge whether the Twins would trade Correa. Falvey is open to listening.`\
+https://nytimes.com/athletic/5982759/2024/12/09/twins-carlos-correa-trade-talk-soto/
+
 **Brian Snitker on Braves' outlook, leadership after Travis d'Arnaud exit, and more**\
 `Snitker delivered his first public comments about some unexpected moves in the offseason.`\
 https://nytimes.com/athletic/5982729/2024/12/09/braves-brian-snitker-travis-darnaud/
