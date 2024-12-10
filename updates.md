@@ -1,3 +1,11 @@
+**Martial Law Fallout Raises Questions South Korea Has Never Dealt With Before**\
+`The president faces an accusation of insurrection and, in a first for a sitting leader, the possibility of arrest. Here’s what to know about his political future.`\
+https://nytimes.com/2024/12/10/world/asia/south-korea-martial-law-yoon-explained.html
+
+**The Search Ends**\
+`The police identified a suspect in the UnitedHealthcare killing. We explain what we know about him.`\
+https://nytimes.com/2024/12/10/briefing/the-search-ends.html
+
 **Netanyahu Finally Takes the Stand in His Corruption Trial**\
 `Prime Minister Benjamin Netanyahu of Israel is accused of bribery, fraud and breach of trust in a trial that began four years ago. He has denied the charges.`\
 https://nytimes.com/2024/12/10/world/middleeast/israel-netanyahu-corruption-trial-testimony.html

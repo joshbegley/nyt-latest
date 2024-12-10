@@ -1,3 +1,11 @@
+**Martial Law Fallout Raises Questions South Korea Has Never Dealt With Before**\
+`The president faces an accusation of insurrection and, in a first for a sitting leader, the possibility of arrest. Here’s what to know about his political future.`\
+https://nytimes.com/2024/12/10/world/asia/south-korea-martial-law-yoon-explained.html
+
+**The Search Ends**\
+`The police identified a suspect in the UnitedHealthcare killing. We explain what we know about him.`\
+https://nytimes.com/2024/12/10/briefing/the-search-ends.html
+
 **Netanyahu Finally Takes the Stand in His Corruption Trial**\
 `Prime Minister Benjamin Netanyahu of Israel is accused of bribery, fraud and breach of trust in a trial that began four years ago. He has denied the charges.`\
 https://nytimes.com/2024/12/10/world/middleeast/israel-netanyahu-corruption-trial-testimony.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5972475/2024/12/10/colts-anthony-richardson-sam-ehl
 **Yohe mailbag: Lemieux vs. Crosby, which Penguins will be traded and a 4 Nations prediction**\
 `We talk Sid vs. Mario, upcoming decisions for Kyle Dubas, the Penguins' plight and much more. `\
 https://nytimes.com/athletic/5975665/2024/12/10/penguins-crosby-trade-4-nations-nhl/
-
-**Beyond Shedeur Sanders and Cam Ward, has any QB emerged in the 2025 NFL Draft class?**\
-`The top two quarterbacks in this draft class appear clear. What will QB-needy teams do once Sanders and Ward are off the board, though?`\
-https://nytimes.com/athletic/5981545/2024/12/10/nfl-draft-2025-quarterbacks-drew-allar-jalen-milroe/
-
-**The 5-Day Manhunt for a C.E.O. Killer**\
-`What we know about the suspect arrested in the shooting of UnitedHealthcare’s chief executive.`\
-https://nytimes.com/2024/12/10/podcasts/the-daily/ceo-unitedhealthcare-murder.html
 
