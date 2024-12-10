@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5983167/2024/12/09/devin-williams-brewers-trade-mlb
 https://nytimes.com/athletic/5966559/2024/12/09/nfl-playoff-picture-week-14-updates/
 
 **Kevin Korchinski shows how far he's come in Anders Sorensen's first Blackhawks victory**\
-`Korchinski's play in a 2-1 win over the Rangers was a beacon of hope for both Chicago's immediate future and the long-term outlook.`\
+`Korchinski's play in a 2-1 win over the Rangers was a beacon of hope for Chicago's immediate future and long-term outlook.`\
 https://nytimes.com/athletic/5983106/2024/12/09/blackhawks-korchinski-sorenson-rangers/
 
 **Nikki Giovanni, Poet Who Wrote of Black Joy, Dies at 81**\
