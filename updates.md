@@ -1,3 +1,7 @@
+**Tracking the Franklin Wildfire in Malibu, Calif.**\
+`See maps of the fire area and smoke forecast.`\
+https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html
+
 **What to Know About Syria’s Notorious Sednaya Prison**\
 `Amnesty International described it as a “human slaughterhouse,” where, other rights groups say, tens of thousands of people were detained, tortured and killed during the 13-year civil war.`\
 https://nytimes.com/2024/12/10/world/middleeast/sednaya-prison-syria.html

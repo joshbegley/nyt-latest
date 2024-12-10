@@ -3,7 +3,7 @@
 https://nytimes.com/2024/12/10/world/middleeast/sednaya-prison-syria.html
 
 **Tracking the Franklin Wildfire in Malibu, Calif.**\
-`Maps and`\
+`See maps of the fire area and smoke forecast.`\
 https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html
 
 **Wordle Review No. 1,271**\
