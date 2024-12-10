@@ -1,3 +1,11 @@
+**Brian Snitker on Braves' outlook, leadership after Travis d'Arnaud exit, and more**\
+`Snitker delivered his first public comments about some unexpected moves in the offseason.`\
+https://nytimes.com/athletic/5982729/2024/12/09/braves-brian-snitker-travis-darnaud/
+
+**Juan Soto agreement could lead to increased trade chatter for Twins on Carlos Correa**\
+`Soto is off the board and it could lead his spurned suitors to gauge whether the Twins would trade Correa. Falvey is open to listening.`\
+https://nytimes.com/athletic/5982759/2024/12/09/twins-carlos-correa-trade-talk-soto/
+
 **Mookie Betts is a shortstop again and more from the Dodgers at the Winter Meetings**\
 `The Dodgers are still interested in a reunion with Teoscar Hernández and they have a strong foothold in Japan, where there's Roki Sasaki.`\
 https://nytimes.com/athletic/5982735/2024/12/09/mookie-betts-shortstop-dodgers/
