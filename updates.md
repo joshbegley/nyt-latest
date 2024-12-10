@@ -1,3 +1,7 @@
+**Wordle Review No. 1,271**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
+https://nytimes.com/2024/12/10/crosswords/wordle-review-1271.html
+
 **A Filmmaker, a Spy and France’s Richest Man Meet in a Paris Court**\
 `Bernard Arnault, the head of LVMH, squared off with a documentary maker in a case of espionage gone wrong, a showdown that had been brewing for years.`\
 https://nytimes.com/2024/12/10/business/lvmh-bernard-arnault-spy-trial.html
