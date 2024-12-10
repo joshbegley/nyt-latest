@@ -1,3 +1,7 @@
+**Biden Says Trump’s Tax Cuts and Tariffs Would Be ‘a Major Mistake’**\
+`The president also said his successor would face blowback from the Republican Party if he tried to unwind the Biden agenda.`\
+https://nytimes.com/2024/12/10/us/politics/biden-trump-tax-cuts-tariffs.html
+
 **Why the Yankees targeted Max Fried and how he fits in their rotation**\
 `The lefty agreed to an eight-year, $218 million contract with the Yankees on Tuesday.`\
 https://nytimes.com/athletic/5985258/2024/12/10/max-fried-yankees-rotation/

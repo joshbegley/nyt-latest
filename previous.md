@@ -1,3 +1,7 @@
+**Biden Says Trump’s Tax Cuts and Tariffs Would Be ‘a Major Mistake’**\
+`The president also said his successor would face blowback from the Republican Party if he tried to unwind the Biden agenda.`\
+https://nytimes.com/2024/12/10/us/politics/biden-trump-tax-cuts-tariffs.html
+
 **Why the Yankees targeted Max Fried and how he fits in their rotation**\
 `The lefty agreed to an eight-year, $218 million contract with the Yankees on Tuesday.`\
 https://nytimes.com/athletic/5985258/2024/12/10/max-fried-yankees-rotation/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/10/us/trump-news/the-white-house-says-no-decisi
 **Jamie Foxx on His Stroke and Other Life-Changing Moments in ‘What Happened Was …’**\
 `The show is both an act of gratitude and a stand-up special. It’s one of four new comedy hours worth checking out.`\
 https://nytimes.com/2024/12/10/arts/television/jamie-foxx-what-happened-was-netflix-special.html
-
-**A Northern Gaza Hospital Lacks Food and Water for Patients, Officials Say**\
-`The health ministry in Gaza said dozens of patients are at risk of death because the Indonesian Hospital does not have enough water and food to keep them alive.`\
-https://nytimes.com/2024/12/10/world/middleeast/gaza-hospital-food-water-shortage.html
 
