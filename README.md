@@ -1,3 +1,11 @@
+**Met Museum Unveils Design for New Modern Wing**\
+`The architect Frida Escobedo has drawn on her Mexican heritage in reimagining the galleries for Modern and contemporary art.`\
+https://nytimes.com/2024/12/10/arts/design/met-museum-frida-escobedo-architecture-tang-wing-art.html
+
+**Storm King to Begin 2025 With Nora Lawrence as Executive Director**\
+`The family-run Hudson Valley sculpture park inaugurates its 65th anniversary year with fresh leadership, a $53-million upgrade and new acquisitions.`\
+https://nytimes.com/2024/12/10/arts/design/storm-king-nora-lawrence-director.html
+
 **The Bounce: Your NBA Cup matchups and picks**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5983666/2024/12/10/nba-cup-joel-embiid-76ers-nba-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5983832/2024/12/10/mason-graham-nfl-draft-michigan/
 **The Connections Companion No. 549**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 11, 2024.`\
 https://nytimes.com/2024/12/10/crosswords/connections-companion-549.html
-
-**Nevada OC Matt Lubick to return to Kansas as co-OC, tight ends coach**\
-`In 2023, the 52-year-old Lubick was instrumental as an analyst in leading KU's offense to its best season in 16 years.`\
-https://nytimes.com/athletic/5982966/2024/12/10/matt-lubick-kansas-offensive-coordinator/
-
-**How the Giants can add offense to a crowded lineup after the Willy Adames signing**\
-`The Giants still need to improve the offense even after adding Adames, but they don't have many spots in the lineup available.`\
-https://nytimes.com/athletic/5982942/2024/12/10/sf-giants-offseason-needs-offense/
 
