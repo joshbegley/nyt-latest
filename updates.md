@@ -1,3 +1,11 @@
+**In northern Syria, Turkish-backed rebels advance on a town held by Kurdish-led, U.S.-backed forces.**\
+`The fall of Bashar al-Assad’s government in Damascus has set off a scramble for territory and power among fighters with competing interests.`\
+https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/in-northern-syria-turkish-backed-rebels-advance-on-a-town-held-by-kurdish-led-us-backed-forces
+
+**Tracking the Franklin Wildfire in Malibu, Calif.**\
+`See maps and details about the Franklin fire near Los Angeles.`\
+https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html
+
 **Heat Today: How Erik Spoelstra's latest lineup tweak sparked a Miami turnaround**\
 `Miami had a slow start to the season, but Erik Spoelstra's savvy might have saved it`\
 https://nytimes.com/athletic/5983878/2024/12/10/miami-heat-erik-spoelstra-jimmy-butler-tyler-herro-bam-adebayo-nba/

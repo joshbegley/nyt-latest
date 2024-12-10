@@ -1,7 +1,3 @@
-**In northern Syria, Turkish-backed rebels advance on a town held by Kurdish-led, U.S.-backed forces.**\
-`The fall of Bashar al-Assad’s government in Damascus has set off a scramble for territory and power among fighters with competing interests.`\
-https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/in-northern-syria-turkish-backed-rebels-advance-on-a-town-held-by-kurdish-led-us-backed-forces
-
 **Heat Today: How Erik Spoelstra's latest lineup tweak sparked a Miami turnaround**\
 `Miami had a slow start to the season, but Erik Spoelstra's savvy might have saved it`\
 https://nytimes.com/athletic/5983878/2024/12/10/miami-heat-erik-spoelstra-jimmy-butler-tyler-herro-bam-adebayo-nba/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5984232/2024/12/10/diego-gomez-brighton-transfer-in
 **Should Biden Issue Pre-emptive Pardons?**\
 `Readers discuss a column by Michelle Goldberg and an editorial. Also: Farewell, Paul Krugman; jeopardizing jobs; hating and fearing death.`\
 https://nytimes.com/2024/12/10/opinion/biden-pardons.html
+
+**Cowboys Today: Jerry Jones still not interested in seeing Trey Lance over Cooper Rush**\
+`With the playoffs out of the picture, an offseason task becomes more obvious: The Cowboys need more playmakers on offense.`\
+https://nytimes.com/athletic/5984102/2024/12/10/cowboys-cooper-rush-trey-lance-jerry-jones-overshown-injury/
 
