@@ -1,3 +1,7 @@
+**Word of the Day: connotation**\
+`This word has appeared in 37 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/10/learning/word-of-the-day-connotation.html
+
 **Volcanic Eruption Forces Mass Evacuation in the Philippines**\
 `Nearly 90,000 people on the island of Negros were ordered to seek shelter after Mount Kanlaon spewed deadly ash and lava.`\
 https://nytimes.com/2024/12/10/world/asia/philippines-volcano-kanlaon-eruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981018/2024/12/10/alisson-kelleher-liverpool/
 **Ja'Marr Chase's TD lifts Bengals to 27-20 win vs. Cowboys: Takeaways**\
 `The Cowboys mishandled a blocked punt late in the game that proved costly.`\
 https://nytimes.com/athletic/5982188/2024/12/10/cowboys-bengals-mnf-score-result-takeaways/
-
-**Why Cole Palmer's penalty was a perfect Panenka**\
-`When it works, the taker looks like an insouciant genius. When it doesn’t, they look pretty silly`\
-https://nytimes.com/athletic/5981124/2024/12/10/cole-palmer-tottenham-chelsea-panenka/
 
