@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/10/us/politics/biden-trump-tax-cuts-tariffs.html
 `The lefty agreed to an eight-year, $218 million contract with the Yankees on Tuesday.`\
 https://nytimes.com/athletic/5985258/2024/12/10/max-fried-yankees-rotation/
 
-**Leeds 1 Middlesbrough 0: Wober's woe, James relief and who will Ampadu replace?**\
+**Leeds 3 Middlesbrough 1: Wober's woe, James relief and who will Ampadu replace?**\
 `The big talking points analysed from Elland Road as Leeds won yet another home game`\
 https://nytimes.com/athletic/5985124/2024/12/10/leeds-middlesbrough-result-analysis/
 

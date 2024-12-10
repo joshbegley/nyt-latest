@@ -1,3 +1,7 @@
+**Yankees to sign lefty Max Fried to eight-year, $218 million contract**\
+`Fried finished his Braves tenure as a two-time NL All Star, a three-time Gold Glove Award winner and the 2021 Silver Slugger winner.`\
+https://nytimes.com/athletic/5941194/2024/12/10/max-fried-yankees-free-agent-deal/
+
 **Biden Says Trump’s Tax Cuts and Tariffs Would Be ‘a Major Mistake’**\
 `The president also said his successor would face blowback from the Republican Party if he tried to unwind the Biden agenda.`\
 https://nytimes.com/2024/12/10/us/politics/biden-trump-tax-cuts-tariffs.html
