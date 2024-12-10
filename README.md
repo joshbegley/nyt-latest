@@ -1,3 +1,7 @@
+**Resist Trump? On Immigration, Top Democrats See Room for Compromise.**\
+`In interviews, a range of Democratic governors expressed some defiance toward the president-elect’s expected crackdown, but also showed a surprising willingness to work with him.`\
+https://nytimes.com/2024/12/10/us/politics/democrats-trump-immigration-crackdown.html
+
 **The Supreme Court Must Intervene in the TikTok Case**\
 `The First Amendment should not be used to cut Americans’ access to TikTok, and the Supreme Court should step in.`\
 https://nytimes.com/2024/12/10/opinion/tiktok-first-amendment-china-ban-bytedance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/crosswords/wordle-review-1271.html
 **A Filmmaker, a Spy and France’s Richest Man Meet in a Paris Court**\
 `Bernard Arnault, the head of LVMH, squared off with a documentary maker in a case of espionage gone wrong, a showdown that had been brewing for years.`\
 https://nytimes.com/2024/12/10/business/lvmh-bernard-arnault-spy-trial.html
-
-**NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
-`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
-https://nytimes.com/athletic/5966084/2024/12/10/nfl-draft-2025-underclassmen-tracker-early-entrants/
 
