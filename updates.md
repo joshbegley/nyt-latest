@@ -1,3 +1,11 @@
+**Evaluating USC's portal losses and needs: 8 thoughts on the Trojans roster**\
+`This is shaping up to be another critical offseason for Lincoln Riley, who needs to upgrade his roster on both sides of the ball. `\
+https://nytimes.com/athletic/5982752/2024/12/10/usc-transfer-portal-needs-2/
+
+**What are Michigan's biggest transfer portal needs? WR, OL among top priorities**\
+`Sure, landing a veteran quarterback would be nice, but there are areas of bigger concern for the Wolverines in 2024. `\
+https://nytimes.com/athletic/5982056/2024/12/10/michigan-football-transfer-portal-needs/
+
 **A special teams touchdown and situational management were critical factors in Rams win**\
 `A first-half blocked punt returned for a touchdown provided the Rams important points in their high-scoring victory against the Bills.`\
 https://nytimes.com/athletic/5982090/2024/12/10/rams-special-teams-blocked-punt-touchdown-bills/
