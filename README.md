@@ -2,9 +2,9 @@
 `University police said the individual in social media videos of the incident has not been identified.`\
 https://nytimes.com/athletic/5984466/2024/12/10/jason-kelce-phone-investigation-closed/
 
-**The suspect had discussed a series of debilitating health struggles on Reddit.**\
-`By Mike Baker, Mike Isaac and Aric Toler`\
-https://nytimes.com/2024/12/10/nyregion/the-suspect-had-discussed-a-series-of-debilitating-health-struggles-online.html
+**Suspect in CEO’s Killing Had Discussed His Health Struggles on Reddit**\
+`In posts that stretch over years, he described debilitating back pain, “brain fog” in his college years and testing for irritable bowel syndrome.`\
+https://nytimes.com/2024/12/10/nyregion/luigi-mangione-health-issues-reddit.html
 
 **NFL MVP odds: It's Josh Allen's world and Barkley, Goff, Jackson, Mahomes are living in it**\
 `Josh Allen is looking uncatchable in the MVP odds. Other risers and fallers tell the story of the season so far.`\
