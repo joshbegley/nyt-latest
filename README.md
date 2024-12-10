@@ -1,4 +1,8 @@
-**The suspect had discussed a series of debilitating health struggles online.**\
+**Jason Kelce investigation closed by Penn State police**\
+`University police said the individual in social media videos of the incident has not been identified.`\
+https://nytimes.com/athletic/5984466/2024/12/10/jason-kelce-phone-investigation-closed/
+
+**The suspect had discussed a series of debilitating health struggles on Reddit.**\
 `By Mike Baker, Mike Isaac and Aric Toler`\
 https://nytimes.com/live/2024/12/10/nyregion/unitedhealthcare-ceo-luigi-mangione/the-suspect-had-discussed-a-series-of-debilitating-health-struggles-online
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/world/middleeast/saudi-world-cup-human-rights.htm
 **Pepperdine Students Huddled in Library as Malibu Fire Raged Outside**\
 `About 3,000 people sheltered on the university’s campus in Malibu, Calif., overnight on Monday. Some of them watched the flames through the windows of a library.`\
 https://nytimes.com/2024/12/10/us/pepperdine-malibu-wildfire-shelter-in-place.html
-
-**Bill Belichick weighing offer to become UNC coach, but hurdles remain: Sources**\
-`While a deal may still come together quickly, sources cautioned that nothing is imminent and the sides remain apart on multiple key terms.`\
-https://nytimes.com/athletic/5984362/2024/12/10/bill-belichick-unc-football-coach-update/
 
