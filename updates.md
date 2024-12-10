@@ -1,3 +1,20 @@
+**Supreme Court Poised to Curb Scope of Environmental Reviews**\
+`Several justices indicated that a federal agency had complied with a federal law by issuing a 3,600-page report on the impact of a proposed railway in Utah.`\
+https://nytimes.com/2024/12/10/us/politics/supreme-court-environmental-reviews.html
+
+**When Nikki Giovanni Was Young, Brilliant and Unafraid**\
+`The poet set the course for her revolutionary career early, and charted it faithfully for decades by staying true to her vision and herself.`\
+https://nytimes.com/2024/12/10/books/nikki-giovanni-appraisal.html
+
+**75 years later...a new discussion about Jackie Robinson rookie cards?**\
+`What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
+`\
+https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
+
+**Explaining why FIFA's Saudi Arabia World Cup 2034 vote is already a done deal**\
+`Today, the Gulf state will secure football's biggest prize. This is how Saudi did it`\
+https://nytimes.com/athletic/5983648/2024/12/10/saudi-arabia-world-cup-2034-explained-fifa/
+
 **75 years later...a new discussion about Jackie Robinson rookie cards?**\
 `What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
 `\
