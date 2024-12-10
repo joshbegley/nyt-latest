@@ -1,3 +1,7 @@
+**How the Giants can add offense to a crowded lineup after the Willy Adames signing**\
+`The Giants still need to improve the offense even after adding Adames, but they don't have many spots in the lineup available.`\
+https://nytimes.com/athletic/5982942/2024/12/10/sf-giants-offseason-needs-offense/
+
 **Norwegian FA criticises FIFA over 2030 and 2034 men's World Cup bidding process**\
 `The Norwegian Football Federation (NFF) has criticised the bidding process for the 2030 and 2034 men&#8217;s World Cups, which it says are &#8220;flawed and inconsistent with the principles of FIFA’s own reforms.`\
 https://nytimes.com/athletic/5983701/2024/12/10/world-cup-fifa-hosts-criticism-norway/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983640/2024/12/10/everton-liverpool-rearranged-dat
 **Chargers were built to run, so why has Greg Roman's play calling abandoned it?**\
 `The Chargers rank ninth in rushing success rate since Week 10. They need Roman to call more designed run attempts.`\
 https://nytimes.com/athletic/5982669/2024/12/10/chargers-run-game-greg-roman/
-
-**NFL Week 14 best and worst coaching decisions: Mike Macdonald's Seahawks now getting it**\
-`Also, Matthew Stafford and the Rams handled blitzes beautifully while the Chargers waited too long to exploit a Chiefs weakness.`\
-https://nytimes.com/athletic/5980469/2024/12/10/nfl-week-14-worst-best-coaching-decisions-nguyen/
 
