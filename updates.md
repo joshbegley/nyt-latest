@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-card
 `\
 https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
 
+**75 years later...a new discussion about Jackie Robinson rookie cards?**\
+`What happens when the release date of a baseball card set is reclassified 75 years later? Collecting chaos.
+`\
+https://nytimes.com/athletic/5984190/2024/12/10/jackie-robinson-leaf-rookie-cards/
+
 **McConnell Sprained Wrist During a Fall but Is ‘Fine’**\
 `Senator Mitch McConnell, the minority leader who sustained a concussion in a fall last year, was cleared to resume his work schedule, according to his office.`\
 https://nytimes.com/2024/12/10/us/politics/mitch-mcconnell-fall-sprained-wrist.html
