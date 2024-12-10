@@ -1,3 +1,11 @@
+**Nikki Giovanni, Poet Who Wrote of Black Joy, Dies at 81**\
+`Ms. Giovanni tackled race, gender, sex, politics and love. She was a celebrity poet and public intellectual who appeared on television and toured the country.`\
+https://nytimes.com/2024/12/09/obituaries/nikki-giovanni-poet-who-wrote-of-black-joy-dies-at-81.html
+
+**Staple: No fight in New York — zero-effort Rangers loss is rock bottom**\
+`New York did not look like a team motivated to escape their downward spiral in a 2-1 loss to Chicago at home.`\
+https://nytimes.com/athletic/5983019/2024/12/09/rangers-rock-bottom-blackhawks-drury/
+
 **Staple: No fight in New York — zero-effort Rangers loss is rock bottom**\
 `The Rangers did not look like a team motivated to escape their downward spiral in a 2-1 loss to Chicago at home.`\
 https://nytimes.com/athletic/5983019/2024/12/09/rangers-rock-bottom-blackhawks-drury/
