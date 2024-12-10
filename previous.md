@@ -1,3 +1,11 @@
+**Heat Today: How Erik Spoelstra's latest lineup tweak sparked a Miami turnaround**\
+`Miami had a slow start to the season, but Erik Spoelstra's savvy might have saved it`\
+https://nytimes.com/athletic/5983878/2024/12/10/miami-heat-erik-spoelstra-jimmy-butler-tyler-herro-bam-adebayo-nba/
+
+**Baseball Hall of Famer Ryne Sandberg reveals cancer recurrence**\
+`Sandberg shared the update on his Instagram account, where he first publicly revealed his metastatic prostate cancer diagnosis in January.`\
+https://nytimes.com/athletic/5984331/2024/12/10/ryne-sandberg-mlb-cancer-recurrence/
+
 **What to Know About Syria’s Notorious Sednaya Prison**\
 `Amnesty International described it as a “human slaughterhouse,” where, other rights groups say, tens of thousands of people were detained, tortured and killed during the 13-year civil war.`\
 https://nytimes.com/2024/12/10/world/middleeast/sednaya-prison-syria.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/10/opinion/biden-pardons.html
 **Cowboys Today: Jerry Jones still not interested in seeing Trey Lance over Cooper Rush**\
 `With the playoffs out of the picture, an offseason task becomes more obvious: The Cowboys need more playmakers on offense.`\
 https://nytimes.com/athletic/5984102/2024/12/10/cowboys-cooper-rush-trey-lance-jerry-jones-overshown-injury/
-
-**It is ‘too early’ to remove Syrian rebels from terror list, Britain says.**\
-`By Stephen Castle`\
-https://nytimes.com/live/2024/12/10/world/syria-news-assad-rebels/it-is-too-early-to-remove-syrian-rebels-from-terror-list-britain-says
-
-**Tierney ready to make Arsenal return - Arteta**\
-`Mikel Arteta says that Kieran Tierney &#8220;is ready&#8221; to make his Arsenal return if needed, with up to seven full-backs not training before their Champions League clash with Monaco.`\
-https://nytimes.com/athletic/5984011/2024/12/10/arsenal-injury-updates-monaco/
 

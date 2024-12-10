@@ -1,3 +1,11 @@
+**Heat Today: How Erik Spoelstra's latest lineup tweak sparked a Miami turnaround**\
+`Miami had a slow start to the season, but Erik Spoelstra's savvy might have saved it`\
+https://nytimes.com/athletic/5983878/2024/12/10/miami-heat-erik-spoelstra-jimmy-butler-tyler-herro-bam-adebayo-nba/
+
+**Baseball Hall of Famer Ryne Sandberg reveals cancer recurrence**\
+`Sandberg shared the update on his Instagram account, where he first publicly revealed his metastatic prostate cancer diagnosis in January.`\
+https://nytimes.com/athletic/5984331/2024/12/10/ryne-sandberg-mlb-cancer-recurrence/
+
 **Tracking the Franklin Wildfire in Malibu, Calif.**\
 `See maps of the fire area and smoke forecast.`\
 https://nytimes.com/2024/12/10/weather/malibu-franklin-fire-tracker.html
