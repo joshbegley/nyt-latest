@@ -1,3 +1,15 @@
+**The Debilitating Toll of Back Pain**\
+`The suspect charged with killing the chief executive of UnitedHealthcare was said to have back issues, one of the most common medical problems nationwide.`\
+https://nytimes.com/2024/12/10/well/back-pain-mangione.html
+
+**USMNT striker Balogun to undergo shoulder surgery**\
+`Folarin Balogun will undergo surgery on his injured shoulder as he faces an uncertain spell on the sidelines, said Monaco coach Adi Hutter.`\
+https://nytimes.com/athletic/5984779/2024/12/10/usmnt-folarin-balogun-surgery/
+
+**Seiya Suzuki's agent confirms Cubs engaged in trade talks, though a move is unlikely**\
+`Suzuki served as the Cubs' DH in 36 of his final 37 games after some key mistakes in right field.`\
+https://nytimes.com/athletic/5984787/2024/12/10/seiya-suzuki-chicago-cubs-trade-talks/
+
 **Debate Over Hegseth’s Fitness Highlights a Gender Divide in the Senate**\
 `As many of the Senate’s Republican men dismiss allegations against President-elect Donald J. Trump’s pick to lead the Pentagon, only a small group of G.O.P. women have voiced even a hint of skepticism.`\
 https://nytimes.com/2024/12/10/us/politics/senate-republicans-women-hegseth.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/10/us/worcester-police-sexual-misconduct-justice-dep
 **U.S. Data Agency Blames Old Tech and Other Failures for Missteps**\
 `The Bureau of Labor Statistics, which tracks jobs and inflation, issued a report on what caused embarrassing episodes in which data was released improperly.`\
 https://nytimes.com/2024/12/10/business/economy/bls-data-report.html
-
-**With Roki Sasaki officially posted, agent Joel Wolfe discusses upcoming free agent process**\
-`On Tuesday, Wolfe offered new details about the posting process, which teams Sasaki might prefer to sign with and what’s important to him.`\
-https://nytimes.com/athletic/5984686/2024/12/10/roki-sasaki-signing-details-mlb-posting/
-
-**Read the Justice Department’s Report**\
-`A two-year investigation by the agency found patterns of “outrageous” conduct by the police in Worcester, Mass., including excessive use of force and sexual contact between undercover officers and women suspected of prostitution.`\
-https://nytimes.com/interactive/2024/12/10/us/worcester-police-sexual-misconduct-justice-department.html
-
-**Supreme Court Poised to Curb Scope of Environmental Reviews**\
-`Several justices indicated that a federal agency had complied with a federal law by issuing a 3,600-page report on the impact of a proposed railway in Utah.`\
-https://nytimes.com/2024/12/10/us/politics/supreme-court-environmental-reviews.html
 
