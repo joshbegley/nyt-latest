@@ -1,3 +1,7 @@
+**Pistol Taken From Suspect Was a Fully Homemade Weapon, Officials Say**\
+`The ghost gun and suppressor found on a man the authorities have accused of killing the chief executive of UnitedHealthcare was made with the help of a 3-D printer, authorities said.`\
+https://nytimes.com/2024/12/10/nyregion/uhc-killing-ghost-gun-3d-printing.html
+
 **'A little frustrated, for sure’: 49ers' Deebo Samuel on his low-yield season**\
 `Isaac Guerendo didn't practice Tuesday, raising the prospect that Patrick Taylor Jr. could start Thursday against the Rams.`\
 https://nytimes.com/athletic/5985482/2024/12/10/49ers-deebo-samuel-yards-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5985350/2024/12/10/west-virginia-tucker-devries-out
 **The Roki Sasaki sweepstakes are underway, a 'major priority' for the Dodgers**\
 `"We're going to do whatever we can, and know that there are a lot of other teams that are going to do the exact same thing," Friedman said.`\
 https://nytimes.com/athletic/5985497/2024/12/10/roki-sasaki-dodgers-interest/
-
-**‘We Thought We Would Be Executed’: Freed Prisoner on Life Inside Sednaya**\
-`Around 2,000 people emerged on Sunday from Sednaya, a facility used to detain, torture and kill tens of thousands of prisoners during Syria’s 13-year civil war. These prisoners were released after the Assad regime in Syria fell to conquering rebels last weekend.`\
-https://nytimes.com/video/world/middleeast/100000009869415/sednaya-prisoner-syria-civil-war.html
 
