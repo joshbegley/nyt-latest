@@ -1,3 +1,7 @@
+**Darwin Nunez is wasting chances and running out of opportunities at Liverpool**\
+`Positive results have largely served to mask the striker's lack of output this season - but he has to improve `\
+https://nytimes.com/athletic/5985579/2024/12/11/darwin-nunez-form-liverpool-decision/
+
 **How Thatcher Demko looked like himself in long-awaited return: 3 takeaways**\
 `For most of the sloppily played, low-energy contest at Rogers Arena, the performance matched the stakes. The Blues won 4-3 in overtime.`\
 https://nytimes.com/athletic/5985923/2024/12/11/canucks-lose-blues-thatcher-demko-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983442/2024/12/11/five-things-we-learned-from-amor
 **Michael Cole, ‘Mod Squad’ Actor, Dies at 84**\
 `Mr. Cole, who played the wealthy Pete Cochran, had been the last of the show’s three stars still living.`\
 https://nytimes.com/2024/12/11/arts/michael-cole-dead.html
-
-**The resurgence of Will Hughes - a cult hero in waiting, if he can keep his spot**\
-`A run in the team has given the midfielder a new opportunity, and he's taken it`\
-https://nytimes.com/athletic/5976832/2024/12/11/palace-will-hughes-resurgence/
 
