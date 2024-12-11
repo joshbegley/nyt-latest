@@ -1,3 +1,7 @@
+**Astros, Cubs discuss possible trade involving Kyle Tucker, Seiya Suzuki**\
+`Cubs infielder Isaac Paredes has also been part of the discussions between Chicago and Houston. `\
+https://nytimes.com/athletic/5987064/2024/12/11/astros-cubs-kyle-tucker-seiya-suzuki-trade/
+
 **Prominent Real Estate Agents and Brothers Charged With Sex Trafficking**\
 `Oren and Tal Alexander, once stars of the real estate industry, had a precipitous fall after women filed lawsuits accusing them of sexual assault. Their brother Alon was also charged.`\
 https://nytimes.com/2024/12/11/realestate/alexander-brothers-arrested-charged-sexual-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986923/2024/12/11/will-johnson-michigan-nfl-draft/
 **Firefighters Begin Containing the Malibu Fire That Destroyed Several Homes**\
 `The Franklin fire grew to nearly 4,000 acres overnight as firefighters battled difficult conditions and steep terrain.`\
 https://nytimes.com/2024/12/11/us/franklin-fire-malibu-california.html
-
-**Everything we know about the Saudi Arabia World Cup 2034**\
-`What we know about the tournament after FIFA confirmed it will be heading to Saudi Arabia for the first time`\
-https://nytimes.com/athletic/5986423/2024/12/11/saudi-arabia-world-cup-dates-tickets-fifa-soccer/
 

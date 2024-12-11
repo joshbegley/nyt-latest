@@ -1,3 +1,7 @@
+**Prominent Real Estate Agents and Brothers Charged With Sex Trafficking**\
+`Oren and Tal Alexander, once stars of the real estate industry, had a precipitous fall after women filed lawsuits accusing them of sexual assault. Their brother Alon was also charged.`\
+https://nytimes.com/2024/12/11/realestate/alexander-brothers-arrested-charged-sexual-assault.html
+
 **F.D.A. Tries Last-Ditch Move to Slash Nicotine Levels in Cigarettes**\
 `The agency is asking the White House to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
 https://nytimes.com/2024/12/11/health/fda-low-nicotine-cigarettes-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/us/franklin-fire-malibu-california.html
 **Everything we know about the Saudi Arabia World Cup 2034**\
 `What we know about the tournament after FIFA confirmed it will be heading to Saudi Arabia for the first time`\
 https://nytimes.com/athletic/5986423/2024/12/11/saudi-arabia-world-cup-dates-tickets-fifa-soccer/
-
-**Dolphins, Bills sell stakes in team to private equity firms**\
-`For the first time in NFL history, private equity firms have bought into league ownership.`\
-https://nytimes.com/athletic/5986921/2024/12/11/dolphins-bills-team-stakes-sold/
 

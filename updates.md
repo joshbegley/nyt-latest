@@ -1,3 +1,7 @@
+**Prominent Real Estate Agents and Brothers Charged With Sex Trafficking**\
+`Oren and Tal Alexander, once stars of the real estate industry, had a precipitous fall after women filed lawsuits accusing them of sexual assault. Their brother Alon was also charged.`\
+https://nytimes.com/2024/12/11/realestate/alexander-brothers-arrested-charged-sexual-assault.html
+
 **F.D.A. Tries Last-Ditch Move to Slash Nicotine Levels in Cigarettes**\
 `The agency is asking the White House to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
 https://nytimes.com/2024/12/11/health/fda-low-nicotine-cigarettes-biden.html
