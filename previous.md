@@ -2,7 +2,7 @@
 `The Jays made their first big splash of the offseason, but this much is clear: Much work is ahead.`\
 https://nytimes.com/athletic/5985663/2024/12/10/blue-jays-andres-gimenez-offseason-plans/
 
-**Red Sox still on the sidelines pitching market heats up and options dwindle**\
+**Red Sox still on the sidelines as pitching market heats up and options dwindle**\
 `“In order to attract free-agent talent, you kind have to be willing to get uncomfortable,” chief baseball officer Craig Breslow said.`\
 https://nytimes.com/athletic/5985261/2024/12/10/red-sox-mlb-free-agent-pitching/
 
