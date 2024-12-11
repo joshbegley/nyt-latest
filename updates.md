@@ -1,3 +1,7 @@
+**Trump Wants Mass Deportations. He Will Need Jails and Sanctuary Cities to Help.**\
+`Immigration experts say the Trump administration would need cooperation from local law enforcement to deport millions of people.`\
+https://nytimes.com/2024/12/11/us/politics/trump-immigration-deportations.html
+
 **Commanders' Noah Brown could miss rest of season with 'internal' injury**\
 `Brown, Washington's No. 2 receiver, has 35 receptions for 453 yards and one touchdown in 11 games this season. `\
 https://nytimes.com/athletic/5987427/2024/12/11/commanders-noah-brown-injury/
