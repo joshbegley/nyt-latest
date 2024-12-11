@@ -1,3 +1,7 @@
+**Penguins Today: Sidney Crosby and Tristan Jarry's telling quotes**\
+`On the same night, Jarry showed some accountability, and Crosby showed some irritation with fans.`\
+https://nytimes.com/athletic/5986738/2024/12/11/penguins-today-sidney-crosby-fans-booing/
+
 **The Torlonia Marbles Are Coming to Museums in Chicago, Texas and Montreal**\
 `For the first time, the ancient marbles are traveling out of Europe to the United States and Canada, for a prolonged stint.`\
 https://nytimes.com/2024/12/11/arts/design/torlonia-marbles-art-institute-kimball-museum-italy-sculpture.html

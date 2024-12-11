@@ -1,3 +1,7 @@
+**Penguins Today: Sidney Crosby and Tristan Jarry's telling quotes**\
+`On the same night, Jarry showed some accountability, and Crosby showed some irritation with fans.`\
+https://nytimes.com/athletic/5986738/2024/12/11/penguins-today-sidney-crosby-fans-booing/
+
 **The Torlonia Marbles Are Coming to Museums in Chicago, Texas and Montreal**\
 `For the first time, the ancient marbles are traveling out of Europe to the United States and Canada, for a prolonged stint.`\
 https://nytimes.com/2024/12/11/arts/design/torlonia-marbles-art-institute-kimball-museum-italy-sculpture.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/business/albertsons-kroger-merger-deal.html
 **Wimbledon tennis expansion set for High Court battle on both sides**\
 `Plans to expand Wimbledon are set to go before the U.`\
 https://nytimes.com/athletic/5986571/2024/12/11/wimbledon-tennis-expansion-high-court-review/
-
-**With Patrick Williams set to return, will Bulls face lineup decisions with Matas Buzelis?**\
-`Williams is expected to return to action this week, but will the rising play of a teammate get in the way of game minutes?`\
-https://nytimes.com/athletic/5985977/2024/12/11/patrick-williams-chicago-bulls-matas-buzelis/
 
