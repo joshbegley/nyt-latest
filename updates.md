@@ -1,3 +1,15 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears have lost seven in a row, are coming off their most lopsided loss of the season and play the Vikings on Monday night.`\
+https://nytimes.com/athletic/5987784/2024/12/11/submit-your-questions-for-kevin-fishbains-bears-mailbag-17/
+
+**Thursday Briefing: The Struggle to Create Order in Syria**\
+`Plus, China’s surprising box office hit.`\
+https://nytimes.com/2024/12/11/briefing/syria-trump-fbi-sudan-gold.html
+
+**U.S. Strategy on Syria Risks ISIS Resurgence, Kurdish General Warns**\
+`Gen. Mazlum Kobani, commander of Kurdish forces in Syria, said recent decisions by the U.S. in Syria potentially “leaves a vacuum behind that can be taken advantage of by ISIS.”`\
+https://nytimes.com/2024/12/11/world/middleeast/syria-isis-united-states-kurds.html
+
 **U.S. Strategy on Syria Risks ISIS Resurgence, Kurdish General Warns**\
 `Gen. Mazlum Kobani, commander of Kurdish forces in Syria, said recent decisions by the U.S. in Syria potentially “leaves a vacuum behind that can be taken advantage of by ISIS.”`\
 https://nytimes.com/2024/12/11/world/middleeast/us-strategy-on-syria-risks-isis-resurgence-kurdish-general-warns.html
