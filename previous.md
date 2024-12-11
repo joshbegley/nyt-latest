@@ -1,3 +1,7 @@
+**Who Is Mohammed al-Bashir, Syria’s Caretaker Prime Minister?**\
+`Mr. al-Bashir previously headed a rebel-led administration in northwestern Syria. He has been tasked with running the country’s interim government until March.`\
+https://nytimes.com/2024/12/11/world/middleeast/syria-bashir-prime-minister.html
+
 **Michigan's Will Johnson declares for 2025 NFL Draft**\
 `Johnson is projected to be a top-10 pick, though injury concerns could impact his draft stock.`\
 https://nytimes.com/athletic/5986923/2024/12/11/will-johnson-michigan-nfl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984210/2024/12/11/edmonton-oilers-arvidsson-skinne
 **NFL owners approve 8 percent sale of Eagles to investment groups**\
 `NFL owners voted in August to expand the league’s rules to allow private equity firms to buy a limited amount of stakes in teams.`\
 https://nytimes.com/athletic/5986730/2024/12/11/nfl-approve-sale-eagles/
-
-**‘Maria’ Review: A Diva in Decline**\
-`Angelina Jolie plays the opera star Maria Callas in a movie that can’t figure her out.`\
-https://nytimes.com/2024/12/11/movies/maria-review-divas-decline.html
 
