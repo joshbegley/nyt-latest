@@ -1,3 +1,7 @@
+**Luka Dončić stifled by Thunder defense as Mavericks bow out of NBA Cup**\
+`"That’s probably one of the worst halves I’ve ever played," Dončić said of his first half in the 118-104 loss.`\
+https://nytimes.com/athletic/5986148/2024/12/11/mavericks-luka-doncic-nba-cup-okc/
+
 **Macy’s Details Multimillion-Dollar Accounting Error in Downbeat Report**\
 `Analysts see much bigger challenges for the retailer than lax accounting.`\
 https://nytimes.com/2024/12/11/business/macys-accounting-sales-profit.html
