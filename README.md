@@ -1,3 +1,11 @@
+**Dolphins, Bills sell stakes in team to private equity firms**\
+`For the first time in NFL history, private equity firms have bought into league ownership.`\
+https://nytimes.com/athletic/5986921/2024/12/11/dolphins-bills-team-stakes-sold/
+
+**‘I Think This Recipe Actually Cured My Depression’**\
+`Andy Baraghani’s sticky miso salmon bowl, and more of our most popular recipes from 2024.`\
+https://nytimes.com/2024/12/11/dining/i-think-this-recipe-actually-cured-my-depression.html
+
 **A.D.H.D. Diagnoses Are Surging Among Older Americans**\
 `Many say they are relieved to finally have an explanation after decades of struggle.`\
 https://nytimes.com/2024/12/11/well/mind/adhd-diagnosis-older-middle-age.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5981352/2024/12/11/fifa-world-cup-hosts-saudi-arabi
 **Who’s trending up or down for the Canucks after 27 games?**\
 `The Canucks have managed to tread water amidst some significant star-level absences from the lineup.`\
 https://nytimes.com/athletic/5986211/2024/12/11/canucks-stock-watch-hughes-suter-debrusk/
-
-**Tracking Tropical Cyclone Chido**\
-`See the likely path and wind arrival times for Chido.`\
-https://nytimes.com/interactive/2024/12/11/weather/chido-map-path-tracker.html
-
-**Google Unveils A.I. Agent That Can Use Websites on Its Own**\
-`The experimental tool can browse spreadsheets, shopping sites and other services, before taking action on behalf of the computer user.`\
-https://nytimes.com/2024/12/11/technology/google-ai-agent-gemini.html
 
