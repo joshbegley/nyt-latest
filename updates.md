@@ -1,3 +1,15 @@
+**Bronny James to play in first G League road game Thursday: Source**\
+`Bronny is averaging 8.7 points and 2.7 assists in three G League games this season. He’s appeared in seven contests with the Lakers.`\
+https://nytimes.com/athletic/5988088/2024/12/11/bronny-james-g-league-road-debut/
+
+**Goodell: NFL's relationship with Jay-Z not changing after rape allegation**\
+`"We know about the civil allegations and Jay-Z's very strong response to that," NFL commissioner Roger Goodell said at the league meetings.`\
+https://nytimes.com/athletic/5987792/2024/12/11/nfl-jay-z-allegations-roc-nation-relationship/
+
+**Did Bill Belichick abandon his quest for the NFL victories record? Never say never**\
+`There are plenty of scenarios in which Belichick could someday receive a call from a needy NFL team. He appears to be vigorous and focused. `\
+https://nytimes.com/athletic/5985682/2024/12/11/bill-belichick-north-carolina-nfl-record-patriots/
+
 **Syria’s New Leaders Balance Huge Struggles Amid Disorder**\
 `The rebels who seized control called for foreign help in prosecuting atrocities, while trying to restore order in a fractured country.`\
 https://nytimes.com/2024/12/11/world/middleeast/syria-rebels-retribution-fears.html
