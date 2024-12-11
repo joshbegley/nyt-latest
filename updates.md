@@ -1,3 +1,7 @@
+**Blue Jays trade for defensive whiz Andrés Giménez, but the bat is a question: Law**\
+`The Jays are paying a lot for an upgrade, but this is clearly a salary dump on the Cleveland side. Will they spend elsewhere?`\
+https://nytimes.com/athletic/5985478/2024/12/10/blue-jays-guardians-andres-gimenez-spencer-horowitz/
+
 **Michigan hiring Chip Lindsey from UNC as new OC: Source**\
 `Chip Lindsey, who was Troy's head coach from 2019-21, is expected to replace the fired Kirk Campbell as Michigan's offensive coordinator. `\
 https://nytimes.com/athletic/5985477/2024/12/10/chip-lindsey-michigan-offensive-coordinator/

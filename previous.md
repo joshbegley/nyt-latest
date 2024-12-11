@@ -1,3 +1,7 @@
+**Blue Jays trade for defensive whiz Andrés Giménez, but the bat is a question: Law**\
+`The Jays are paying a lot for an upgrade, but this is clearly a salary dump on the Cleveland side. Will they spend elsewhere?`\
+https://nytimes.com/athletic/5985478/2024/12/10/blue-jays-guardians-andres-gimenez-spencer-horowitz/
+
 **Michigan hiring Chip Lindsey from UNC as new OC: Source**\
 `Chip Lindsey, who was Troy's head coach from 2019-21, is expected to replace the fired Kirk Campbell as Michigan's offensive coordinator. `\
 https://nytimes.com/athletic/5985477/2024/12/10/chip-lindsey-michigan-offensive-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/nyregion/nyc-police-officer-shoplifting.html
 **Andrés Giménez traded to Blue Jays from Guardians: Source**\
 `Giménez, 26, is a three-time Gold Glove winner and one time AL All-Star selection.`\
 https://nytimes.com/athletic/5985315/2024/12/10/andres-gimenez-toronto-blue-jays-trade/
-
-**Many Evacuated, but Some Malibu Residents Broke Out the Hoses**\
-`Thousands of people were told to flee their homes in Malibu, Calif., as the Franklin fire approached. But a few stayed behind, using garden hoses to protect their property and themselves.`\
-https://nytimes.com/2024/12/10/us/malibu-franklin-fire-residents.html
 
