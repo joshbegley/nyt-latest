@@ -1,3 +1,7 @@
+**Jimmy Kimmel: America’s ‘Going Nuts’ Over a Murder Suspect’s Abs**\
+`Kimmel applauded people for “moving away from nonstop election coverage” to instead obsess over the looks of Luigi Mangione, who was charged with killing a C.E.O.`\
+https://nytimes.com/2024/12/11/arts/television/jimmy-kimmel-luigi-mangione.html
+
 **Alan Shearer: Newcastle are drifting and the ‘project’ is at a crossroads**\
 `After the takeover, there was an energy driving the club forward but that has gone. What now?`\
 https://nytimes.com/athletic/5983953/2024/12/11/newcastle-project-stalled-howe/

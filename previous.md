@@ -1,3 +1,7 @@
+**Jimmy Kimmel: America’s ‘Going Nuts’ Over a Murder Suspect’s Abs**\
+`Kimmel applauded people for “moving away from nonstop election coverage” to instead obsess over the looks of Luigi Mangione, who was charged with killing a C.E.O.`\
+https://nytimes.com/2024/12/11/arts/television/jimmy-kimmel-luigi-mangione.html
+
 **Alan Shearer: Newcastle are drifting and the ‘project’ is at a crossroads**\
 `After the takeover, there was an energy driving the club forward but that has gone. What now?`\
 https://nytimes.com/athletic/5983953/2024/12/11/newcastle-project-stalled-howe/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/world/asia/china-feminist-comedy-her-story.html
 **Marco Rossi's late-game heroics salvage point and save PK's bacon: 3 takeaways**\
 `After Utah took a 4-3 lead, Rossi scored on a six-on-five with 43 seconds remaining to force overtime.`\
 https://nytimes.com/athletic/5985687/2024/12/11/wild-utah-marco-rossi-takeaways/
-
-**Life Without al-Assad**\
-`On Sunday at 3 a.m. my mother woke me with a shaky voice. All our phones were ringing and the TV was loud. “He fell, Zaina, he fell. Assad fell.”`\
-https://nytimes.com/2024/12/11/opinion/al-assad-syria.html
 
