@@ -1,3 +1,7 @@
+**NFL winter meetings round-up: Injury rates down, kickoff returns up**\
+`Plus, there are more close games than ever, face mask penalties may get picked up on review and Damar Hamlin passes a bill in U.S. Senate.`\
+https://nytimes.com/athletic/5987507/2024/12/11/nfl-winter-owners-meetings-round-up/
+
 **The Briefing: Juventus 2 Man City 0 - Playoffs for Guardiola? Unlucky Ederson? De Bruyne lone bright spark**\
 `Sam Lee breaks down City's defeat in Turin which leaves them facing a two-legged playoff in the new format.`\
 https://nytimes.com/athletic/5980873/2024/12/11/man-city-juventus-ederson-guardiola/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/nyregion/new-jersey-drones.html
 **Red Sox try to knit together a contending rotation by adding Garrett Crochet: Law**\
 `The Red Sox got the best pitcher known to be available on the trade market but gave up their two last first-round picks.`\
 https://nytimes.com/athletic/5987499/2024/12/11/red-sox-white-sox-garrett-crochet/
-
-**New York Times and Tech Guild Reach Deal**\
-`The union, which represents some 600 tech workers at the publication, had been negotiating for a contract for more than two years. It will vote on ratifying the deal next week.`\
-https://nytimes.com/2024/12/11/business/media/new-york-times-tech-guild-deal.html
 
