@@ -1,3 +1,7 @@
+**The Roki Sasaki sweepstakes are underway, a 'major priority' for the Dodgers**\
+`“We’re going to do whatever we can, and know that there are a lot of other teams that are going to do the exact same thing,” Friedman said.`\
+https://nytimes.com/athletic/5985497/2024/12/10/roki-sasaki-dodgers-interest/
+
 **‘We Thought We Would Be Executed’: Freed Prisoner on Life Inside Sednaya**\
 `Around 2,000 people emerged on Sunday from Sednaya, a facility used to detain, torture and kill tens of thousands of prisoners during Syria’s 13-year civil war. These prisoners were released after the Assad regime in Syria fell to conquering rebels last weekend.`\
 https://nytimes.com/video/world/middleeast/100000009869415/sednaya-prisoner-syria-civil-war.html
