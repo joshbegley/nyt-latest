@@ -1,3 +1,23 @@
+**Blues 2025-26 line combos? Adam Jiricek injury update? Trade for Trent Frederic? Mailbag, part 2**\
+`Blues 2024 first-round pick Adam Jiricek may return to OHL Brantford's lineup soon after missing a month with an injury.`\
+https://nytimes.com/athletic/5976441/2024/12/11/blues-adam-jiricek-trent-frederic-trade/
+
+**Matthew Stafford turns back the clock, more Week 14 thoughts: Quick Outs**\
+`The Rams' veteran QB put together a vintage, dominant performance Sunday, while a trade-deadline acquisition helped lift the Seahawks again.`\
+https://nytimes.com/athletic/5985094/2024/12/11/nfl-week-14-matthew-stafford-ernest-jones/
+
+**Exxon Plans to Sell Electricity to Data Centers**\
+`The country’s largest oil company is designing a natural gas power plant outfitted with carbon capture technology to meet the voracious power demand of technology companies.`\
+https://nytimes.com/2024/12/11/business/energy-environment/exxon-mobil-data-centers-power-plant.html
+
+**Can Broncos navigate the toughest homestretch among AFC playoff hopefuls?**\
+`Coach Sean Payton has identified a reduction in penalties as a major focus during Denver's final push toward the postseason.`\
+https://nytimes.com/athletic/5984224/2024/12/11/broncos-afc-playoff-chances/
+
+**Cowboys in tough spot, but plan remains the same: 'Keep plugging away and fighting'**\
+`The Cowboys' postgame locker room was as emotional as any in recent memory after the loss Monday night.`\
+https://nytimes.com/athletic/5986178/2024/12/11/cowboys-tough-loss-demarvion-overshown-blocked-punt/
+
 **NHL season predictions 3.0: Coaches on the hot seat, the fall of the Rangers and more**\
 `Two months into the season, our staff's updated picks for Cup winner, dark horse, biggest disappointment, awards, playoff fields and more.`\
 https://nytimes.com/athletic/5983247/2024/12/11/nhl-season-predictions-december-rangers-coaching-hot-seat/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/11/world/middleeast/syria-civil-war-death-toll.html
 **Australian cyclist Dennis pleads guilty to charge relating to death of Olympian wife Hoskins**\
 `Australian cyclist Rohan Dennis has pleaded guilty to a lesser charge in relation to the death of his wife, fellow Olympian and former world champion Melissa Hoskins.`\
 https://nytimes.com/athletic/5986271/2024/12/11/rohan-dennis-melissa-hoskins-death-charge/
-
-**Trade Zion Williamson and start a rebuild? Assessing Pelicans' options**\
-`Changes are coming in New Orleans. What are the options for the Pelicans?`\
-https://nytimes.com/athletic/5985881/2024/12/11/pelicans-rebuild-options-zion-williamson-trade-nba/
-
-**Bears mock draft reaction: How would Kelvin Banks Jr. improve Caleb Williams' O-line?**\
-`The focus for the draft should be in the trenches for the Bears. How would Banks fit on the offensive line?`\
-https://nytimes.com/athletic/5984807/2024/12/11/bears-mock-draft-reaction-kelvin-banks/
-
-**Jaylen Wells' screen navigation, Alperen Şengün's improved footwork: The IkoSystem**\
-`Jaylen Wells is showing some strong defensive acumen in his development with the Grizzlies.`\
-https://nytimes.com/athletic/5984383/2024/12/11/jaylen-wells-alperen-sengun-ikosystem/
-
-**Trade Carlos Correa? No thanks. Rocco Baldelli wants 'tone-setting' shortstop with Twins**\
-`Correa’s name has generated a little buzz at the Winter Meetings as a possible fallback option for teams that missed out on Juan Soto.`\
-https://nytimes.com/athletic/5984755/2024/12/11/carlos-correa-twins-trade-rocco-baldelli/
-
-**John Hynes' in-game line adjustment once again sparks Wild**\
-`The one thing we've learned about John Hynes is that he's a heck of an in-game adjuster.`\
-https://nytimes.com/athletic/5986130/2024/12/11/wild-utah-john-hynes-line-adjustment/
 
