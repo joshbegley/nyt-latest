@@ -1,3 +1,7 @@
+**Special End-of-Year 2024 News Quiz for Students**\
+`See what you remember about this extraordinary year by taking our special 2024 news quiz.`\
+https://nytimes.com/interactive/2024/12/10/learning/2024StudentNewsQuiz.html
+
 **North Korea Says Yoon Has Caused ‘Pandemonium’ in South Korea**\
 `In its first statement about the turmoil over President Yoon Suk Yeol’s martial law decree, the North said nothing about how inter-Korean relations might be affected.`\
 https://nytimes.com/2024/12/10/world/asia/north-korea-martial-law-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/sports/baseball/rocky-colavito-dead.html
 **Saint Ann’s Protected Criminal Teacher at Students’ Expense, Report Says**\
 `The elite Brooklyn school commissioned an investigation after the arrest of Winston Nguyen, who is now accused of soliciting lewd photographs from students.`\
 https://nytimes.com/2024/12/10/nyregion/st-anns-report-winston-nguyen.html
-
-**Yankees pivot to bolster their rotation with Max Fried: Law**\
-`The Yankees can't replace Juan Soto but adding Fried gives them one of the best rotations in the AL on paper.`\
-https://nytimes.com/athletic/5985582/2024/12/10/yankees-max-fried-signing-analysis/
 
