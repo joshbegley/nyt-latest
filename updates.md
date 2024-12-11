@@ -1,3 +1,7 @@
+**Red Sox still on the sidelines pitching market heats up and options dwindle**\
+`“In order to attract free-agent talent, you kind have to be willing to get uncomfortable,” chief baseball officer Craig Breslow said.`\
+https://nytimes.com/athletic/5985261/2024/12/10/red-sox-mlb-free-agent-pitching/
+
 **Buster Posey sold new Giants shortstop Willy Adames on his vision: 'Just being authentic'**\
 `The Giants got their man in Adames but the rising price on starters may take them out of the Corbin Burnes market.`\
 https://nytimes.com/athletic/5985667/2024/12/10/willy-adames-buster-posey-free-agent-pitch/
