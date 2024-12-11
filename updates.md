@@ -1,3 +1,7 @@
+**Here’s what Kash Patel has said he would do to the F.B.I.**\
+`By Elizabeth Williamson and Charlie Savage`\
+https://nytimes.com/live/2024/12/11/us/trump-news/heres-what-kash-patel-has-said-he-would-do-to-the-fbi
+
 **Trump Wants Mass Deportations. He Will Need Jails and Sanctuary Cities to Help.**\
 `Immigration experts say the Trump administration would need cooperation from local law enforcement to deport millions of people.`\
 https://nytimes.com/2024/12/11/us/politics/trump-immigration-deportations.html
