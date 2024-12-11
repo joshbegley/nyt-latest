@@ -1,3 +1,11 @@
+**Paris Hilton and Nicole Richie Revisit ‘The Simple Life’**\
+`The celebutantes-turned-businesswomen are rebooting the show that provided a blueprint for the past 20 years of reality TV.`\
+https://nytimes.com/2024/12/11/arts/television/paris-and-nicole-encore.html
+
+**Defense, game management questions plague Bills as playoffs approach**\
+`The Bills had their poorest showing since losing to the Ravens earlier this season.`\
+https://nytimes.com/athletic/5985986/2024/12/11/bills-defense-play-call-josh-allen-playoffs/
+
 **The Bounce: Jimmy Butler to one of these three contenders?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5986457/2024/12/11/jimmy-butler-miami-heat-warriors-mavericks-rockets-nba-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed/what-to-know-abou
 **What's wrong with the Lakers? The biggest questions and concerns answered**\
 `As the Lakers attempt to resolve their recent woes with a much-needed break, here are some of the most important questions.`\
 https://nytimes.com/athletic/5985090/2024/12/11/lakers-struggles-concerns-nba-lebron-james/
-
-**Cowboys Today: Micah Parsons walking off after loss much ado about nothing**\
-`"You can't make everyone happy," Cowboys star Micah Parsons said on his podcast Tuesday.`\
-https://nytimes.com/athletic/5986151/2024/12/11/cowboys-today-micah-parsons-walkoff-bengals/
-
-**Vikings' defensive success highlights value of organizational continuity**\
-`The Vikings have found unique, versatile talent on defense via free agency, undrafted players and even the United Football League.`\
-https://nytimes.com/athletic/5984925/2024/12/11/vikings-defense-jalen-redmond/
 
