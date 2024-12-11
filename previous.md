@@ -1,5 +1,9 @@
+**Tracking Tropical Cyclone Chido**\
+`See the likely path and wind arrival times for Chido.`\
+https://nytimes.com/interactive/2024/12/11/weather/chido-map-path-tracker.html
+
 **Google Unveils A.I. Agent That Can Use Websites on Its Own**\
-`The experimental tool can browse spreadsheets, shopping sites and other services, before taking action on behalf on the computer user.`\
+`The experimental tool can browse spreadsheets, shopping sites and other services, before taking action on behalf of the computer user.`\
 https://nytimes.com/2024/12/11/technology/google-ai-agent-gemini.html
 
 **Miedema aiming for Man City return in early January - Taylor**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986771/2024/12/11/bromley-takeover-anthony-serafin
 **NFL announces Berlin to host regular season game in 2025**\
 `Berlin’s Olympiastadion will host its first NFL regular season game in 2025.`\
 https://nytimes.com/athletic/5986598/2024/12/11/nfl-berlin-germany-international-series/
-
-**Penguins Today: Sidney Crosby and Tristan Jarry's telling quotes**\
-`On the same night, Jarry showed some accountability, and Crosby showed some irritation with fans.`\
-https://nytimes.com/athletic/5986738/2024/12/11/penguins-today-sidney-crosby-fans-booing/
 
