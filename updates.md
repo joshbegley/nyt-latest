@@ -1,3 +1,11 @@
+**Andre Agassi on Everything — and Nothing — to Do With Tennis**\
+` The American eight-time major champion and self-professed “evolved philanthropist” shares the intricacies of his craft, mind-set and unorthodox approach, which have contributed to his success both on and off the court. `\
+https://nytimes.com/paidpost/ubs/craftofsport-andre-agassi.html
+
+**49ers’ Jauan Jennings, the king of grimy play, is excelling in more refined role**\
+`Jennings, who early in his career was best known for blocking for other receivers, clearly has been the 49ers' top wideout this season.`\
+https://nytimes.com/athletic/5987090/2024/12/11/jauan-jennings-49ers-top-receiver/
+
 **The Giants should prioritize innings in their search for a starting pitcher**\
 `The Giants rotation has to be more than Logan Webb and hoping for rain. They need more reliable innings-eaters.`\
 https://nytimes.com/athletic/5984783/2024/12/11/sf-giants-offseason-plan-starters/
