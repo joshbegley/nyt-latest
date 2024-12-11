@@ -1,3 +1,15 @@
+**Bronny James to play in first G League road game Thursday: Source**\
+`Bronny is averaging 8.7 points and 2.7 assists in three G League games this season. He’s appeared in seven contests with the Lakers.`\
+https://nytimes.com/athletic/5988088/2024/12/11/bronny-james-g-league-road-debut/
+
+**Goodell: NFL's relationship with Jay-Z not changing after rape allegation**\
+`"We know about the civil allegations and Jay-Z's very strong response to that," NFL commissioner Roger Goodell said at the league meetings.`\
+https://nytimes.com/athletic/5987792/2024/12/11/nfl-jay-z-allegations-roc-nation-relationship/
+
+**Did Bill Belichick abandon his quest for the NFL victories record? Never say never**\
+`There are plenty of scenarios in which Belichick could someday receive a call from a needy NFL team. He appears to be vigorous and focused. `\
+https://nytimes.com/athletic/5985682/2024/12/11/bill-belichick-north-carolina-nfl-record-patriots/
+
 **Syria’s New Leaders Balance Huge Struggles Amid Disorder**\
 `The rebels who seized control called for foreign help in prosecuting atrocities, while trying to restore order in a fractured country.`\
 https://nytimes.com/2024/12/11/world/middleeast/syria-rebels-retribution-fears.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5985593/2024/12/11/bill-belichick-north-carolina-co
 **Raiders owner Mark Davis to wait for offseason to decide on Antonio Pierce**\
 `The Raiders owner declined to commit to bringing Pierce back in 2025. "I don't even want to talk about that right now,” Davis said.`\
 https://nytimes.com/athletic/5987734/2024/12/11/raiders-mark-davis-antonio-pierce/
-
-**The ‘Ballad of Keiko’ Music Video**\
-`This is the story of the real-life whale from “Free Willy” and his odyssey back to the ocean. In Episode 5 of the “Good Whale” podcast, Keiko disappears in Icelandic waters. For four weeks, nobody knew what had happened to him. So we reimagined this mysterious time — as a musical.`\
-https://nytimes.com/video/podcasts/100000009872358/serial-good-whale-ballad-keiko.html
-
-**Bill Belichick agrees to deal to become UNC football head coach: Sources**\
-`Belichick, a six-time Super Bowl winner with the New England Patriots, will return to the sideline in the college ranks.`\
-https://nytimes.com/athletic/5982538/2024/12/11/bill-belichick-unc-coach-hiring/
-
-**Wray draws praise for his work from Democrats, and praise for quitting from Republicans.**\
-`By Noah Weiland`\
-https://nytimes.com/live/2024/12/11/us/trump-news/wray-draws-praise-for-his-work-from-democrats-and-praise-for-quitting-from-republicans
 
