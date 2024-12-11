@@ -1,3 +1,7 @@
+**Biden’s Top Aides Race to Middle East as Militias Wield Power in Syria**\
+`Secretary of State Antony J. Blinken plans to hold meetings in Jordan and Turkey. Jake Sullivan, the national security adviser, is visiting Israel.`\
+https://nytimes.com/2024/12/11/us/politics/biden-officials-syria-israel.html
+
 **Are Those Drones Over New Jersey? Sightings Mount, and Still No Answers.**\
 `Though officials say that the sightings pose no threat to the public, they have yet to provide any concrete information about the origin of the flying objects.`\
 https://nytimes.com/2024/12/11/nyregion/new-jersey-drones.html
@@ -18,7 +22,7 @@ https://nytimes.com/2024/12/11/world/middleeast/russia-syria-assad.html
 `Gerry Turner rose to prominence as a septuagenarian star of a reality dating show. In an interview with People, he said he has a type of non-Hodgkin lymphoma.`\
 https://nytimes.com/2024/12/11/style/golden-bachelor-gerry-turner-cancer.html
 
-**New Jersey Politician Fakes Spotify Wrapped to Resemble Springsteen Super Fan**\
+**New Jersey Politician Fakes Spotify Wrapped to Show All Springsteen Songs**\
 `Representative Josh Gottheimer, a Democrat who is running for governor, may well be a huge fan of the Boss. But his Spotify Wrapped was not real.`\
 https://nytimes.com/2024/12/11/us/politics/josh-gottheimer-spotify-wrapped.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/us/colleges-international-students-trump-travel-b
 **The Pistachio Martini Is Beloved. And Baffling.**\
 `The creamy, pastel green drink is an enigma, but that doesn’t stop bartenders across the country from adding it to their menus.`\
 https://nytimes.com/2024/12/11/dining/drinks/pistachio-martini.html
-
-**Hunt Continues for U.S. Journalist Who Disappeared in Syria**\
-`The U.S. has identified prisons of interest as it searches for clues about Austin Tice, who was abducted in 2012 and whose fate remains unknown.`\
-https://nytimes.com/2024/12/11/us/politics/austin-tice-search-syria.html
 

@@ -1,3 +1,11 @@
+**Biden’s Top Aides Race to Middle East as Militias Wield Power in Syria**\
+`Secretary of State Antony J. Blinken plans to hold meetings in Jordan and Turkey. Jake Sullivan, the national security adviser, is visiting Israel.`\
+https://nytimes.com/2024/12/11/us/politics/biden-officials-syria-israel.html
+
+**New Jersey Politician Fakes Spotify Wrapped to Show All Springsteen Songs**\
+`Representative Josh Gottheimer, a Democrat who is running for governor, may well be a huge fan of the Boss. But his Spotify Wrapped was not real.`\
+https://nytimes.com/2024/12/11/us/politics/josh-gottheimer-spotify-wrapped.html
+
 **Are Those Drones Over New Jersey? Sightings Mount, and Still No Answers.**\
 `Though officials say that the sightings pose no threat to the public, they have yet to provide any concrete information about the origin of the flying objects.`\
 https://nytimes.com/2024/12/11/nyregion/new-jersey-drones.html
