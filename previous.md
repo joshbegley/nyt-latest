@@ -1,3 +1,11 @@
+**Let's try some soft tampering: 10 potential trade targets for the struggling Rangers**\
+`GM Chris Drury is open for business, but who should the Rangers be looking at on the trade market, and what could the cost be?`\
+https://nytimes.com/athletic/5984123/2024/12/11/rangers-trade-targets-tampering/
+
+**Brian Callahan, Zac Taylor share rare football journey: 'Wouldn’t be here without you'**\
+`Tennessee's first-year head coach maintains a strong relationship with his mentor and former team as the Titans and Bengals face off Sunday.`\
+https://nytimes.com/athletic/5982643/2024/12/11/brian-callahan-zac-taylor-titans-bengals/
+
 **A California family feels hope and worry for relatives in Syria.**\
 `By Vik Jolly`\
 https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syria-little-arabia-california
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5984520/2024/12/11/patriots-jerod-mayo-offseason-qu
 **NFC North roundtable: Lions, Vikings, Packers dominating the NFL. Who'll rule the division?**\
 `Our Lions, Vikings and Packers reporters break down just how good their teams are and who has the best shot of reaching the Super Bowl.`\
 https://nytimes.com/athletic/5984483/2024/12/11/nfc-north-lions-vikings-packers-playoffs/
-
-**Storm Aid vs. Partisan Power: A Showdown Looms in North Carolina**\
-`As Republicans try to muscle through a bill that is nominally dedicated to hurricane relief but in fact erodes Democrats’ influence, residents of the areas hit hardest say they urgently need help.`\
-https://nytimes.com/2024/12/11/us/politics/storm-aid-vs-partisan-power-a-showdown-looms-in-north-carolina.html
-
-**Reckoning With the Scale of California Wildfires**\
-`The numbers should be eye-opening to anyone who hasn’t spent much time reckoning with the sheer scale of the challenge of managing California fire.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/california-wildfire-damage
 

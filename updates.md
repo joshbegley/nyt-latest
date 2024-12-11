@@ -1,3 +1,11 @@
+**Let's try some soft tampering: 10 potential trade targets for the struggling Rangers**\
+`GM Chris Drury is open for business, but who should the Rangers be looking at on the trade market, and what could the cost be?`\
+https://nytimes.com/athletic/5984123/2024/12/11/rangers-trade-targets-tampering/
+
+**Brian Callahan, Zac Taylor share rare football journey: 'Wouldn’t be here without you'**\
+`Tennessee's first-year head coach maintains a strong relationship with his mentor and former team as the Titans and Bengals face off Sunday.`\
+https://nytimes.com/athletic/5982643/2024/12/11/brian-callahan-zac-taylor-titans-bengals/
+
 **A California family feels hope and worry for relatives in Syria.**\
 `By Vik Jolly`\
 https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syria-little-arabia-california
