@@ -1,3 +1,7 @@
+**As Juan Soto embarks on $765M future, Ted Williams' shadow lingers: Where could he end up?**\
+`What hitter in all of baseball history is the most comparable to Soto through age 25? Ted Williams. So where could Soto end up — in 2040?`\
+https://nytimes.com/athletic/5985812/2024/12/11/juan-soto-ted-williams-765-million-future-mets/
+
 **Building Anthony Edwards' pretty jumper: 'Make 'em respect it'**\
 `Edwards has worked on his form until it's one fluid motion, capped with a portrait-worthy follow-through and a snap of the net.`\
 https://nytimes.com/athletic/5983477/2024/12/11/anthony-edwards-timberwolves-jumper-shot-3-pointers/
