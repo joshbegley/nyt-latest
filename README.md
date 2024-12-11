@@ -1,3 +1,11 @@
+**Bears mock draft reaction: How would Kelvin Banks Jr. improve Caleb Williams' O-line?**\
+`The focus for the draft should be in the trenches for the Bears. How would Banks fit on the offensive line?`\
+https://nytimes.com/athletic/5984807/2024/12/11/bears-mock-draft-reaction-kelvin-banks/
+
+**Jaylen Wells' screen navigation, Alperen Şengün's improved footwork: The IkoSystem**\
+`Jaylen Wells is showing some strong defensive acumen in his development with the Grizzlies.`\
+https://nytimes.com/athletic/5984383/2024/12/11/jaylen-wells-alperen-sengun-ikosystem/
+
 **Trade Carlos Correa? No thanks. Rocco Baldelli wants 'tone-setting' shortstop with Twins**\
 `Correa’s name has generated a little buzz at the Winter Meetings as a possible fallback option for teams that missed out on Juan Soto.`\
 https://nytimes.com/athletic/5984755/2024/12/11/carlos-correa-twins-trade-rocco-baldelli/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/11/crosswords/connections-companion-550.html
 **Wordle Review No. 1,272**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Dec. 12, 2024.`\
 https://nytimes.com/2024/12/11/crosswords/wordle-review-1272.html
-
-**Here are the latest developments.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/here-are-the-latest-developments
-
-**Let's try some soft tampering: 10 potential trade targets for the struggling Rangers**\
-`GM Chris Drury is open for business, but who should the Rangers be looking at on the trade market, and what could the cost be?`\
-https://nytimes.com/athletic/5984123/2024/12/11/rangers-trade-targets-tampering/
 
