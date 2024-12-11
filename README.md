@@ -2,6 +2,10 @@
 `The ghost gun and suppressor found on a man the authorities have accused of killing the chief executive of UnitedHealthcare was made with the help of a 3-D printer, authorities said.`\
 https://nytimes.com/2024/12/10/nyregion/uhc-killing-ghost-gun-3d-printing.html
 
+**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
+https://nytimes.com/athletic/5891633/2024/12/10/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **'A little frustrated, for sure’: 49ers' Deebo Samuel on his low-yield season**\
 `Isaac Guerendo didn't practice Tuesday, raising the prospect that Patrick Taylor Jr. could start Thursday against the Rams.`\
 https://nytimes.com/athletic/5985482/2024/12/10/49ers-deebo-samuel-yards-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/nyregion/unitedhealthcare-brian-thompson-funeral.
 **West Virginia forward Tucker DeVries out indefinitely with upper-body injury**\
 `DeVries has emerged as one of the best players in the Big 12, averaging 14.9 points, 4.9 rebounds and 2.8 assists per game`\
 https://nytimes.com/athletic/5985350/2024/12/10/west-virginia-tucker-devries-out-indefinitely/
-
-**The Roki Sasaki sweepstakes are underway, a 'major priority' for the Dodgers**\
-`"We're going to do whatever we can, and know that there are a lot of other teams that are going to do the exact same thing," Friedman said.`\
-https://nytimes.com/athletic/5985497/2024/12/10/roki-sasaki-dodgers-interest/
 
