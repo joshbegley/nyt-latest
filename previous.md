@@ -1,3 +1,7 @@
+**Fade the Chiefs? History says Kansas City's luck will run out in the playoffs**\
+`Can the Chiefs keep riding close, one-score wins to another Super Bowl? History says no.`\
+https://nytimes.com/athletic/5987603/2024/12/11/chiefs-super-bowl-odds-betting-clutch/
+
 **New Friends After 50? Yes, Please!**\
 `The people in our lives are a dynamic constellation.`\
 https://nytimes.com/2024/12/11/opinion/new-friends-happiness-love.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5988170/2024/12/11/cubs-isaac-paredes-trade-roki-sa
 **Bronny James to play in first G League road game Thursday: Source**\
 `Bronny is averaging 8.7 points and 2.7 assists in three G League games this season. He’s appeared in seven contests with the Lakers.`\
 https://nytimes.com/athletic/5988088/2024/12/11/bronny-james-g-league-road-debut/
-
-**Goodell: NFL's relationship with Jay-Z not changing after rape allegation**\
-`"We know about the civil allegations and Jay-Z's very strong response to that," NFL commissioner Roger Goodell said at the league meetings.`\
-https://nytimes.com/athletic/5987792/2024/12/11/nfl-jay-z-allegations-roc-nation-relationship/
 

@@ -1,3 +1,7 @@
+**Fade the Chiefs? History says Kansas City's luck will run out in the playoffs**\
+`Can the Chiefs keep riding close, one-score wins to another Super Bowl? History says no.`\
+https://nytimes.com/athletic/5987603/2024/12/11/chiefs-super-bowl-odds-betting-clutch/
+
 **New Friends After 50? Yes, Please!**\
 `The people in our lives are a dynamic constellation.`\
 https://nytimes.com/2024/12/11/opinion/new-friends-happiness-love.html
