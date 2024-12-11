@@ -1,3 +1,19 @@
+**Syria’s New Leaders Balance Huge Struggles Amid Disorder**\
+`The rebels who seized control called for foreign help in prosecuting atrocities, while trying to restore order in a fractured country.`\
+https://nytimes.com/2024/12/11/world/middleeast/syria-rebels-retribution-fears.html
+
+**Martin Benson, Regional Theater Impresario, Dies at 87**\
+`South Coast Repertory, which he founded with a partner, was a major force in Southern California theater. He directed more than 100 of its productions.`\
+https://nytimes.com/2024/12/11/theater/martin-benson-dead.html
+
+**So Much Losing**\
+`President-elect Donald Trump is stocking his administration with people who have lost elections.`\
+https://nytimes.com/2024/12/11/us/politics/trump-cabinet-picks-elections.html
+
+**Raiders owner Mark Davis to wait for offseason to decide on Antonio Pierce**\
+`The Raiders owner declined to commit to bringing Pierce back in 2025. "I don't even want to talk about that right now,” Davis said.`\
+https://nytimes.com/athletic/5987734/2024/12/11/raiders-mark-davis-antonio-pierce/
+
 **The F.B.I. Director Said He Would Resign**\
 `Also, A.D.H.D. diagnoses are surging among older Americans. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/12/11/briefing/fbi-director-step-down-search-dissapeared-syria.html
