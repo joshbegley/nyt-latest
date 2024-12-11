@@ -1,3 +1,7 @@
+**Live Updates: Inflation Ticks Up Slightly Ahead of Fed Meeting**\
+`Consumer prices rose 2.7 percent in the year through November, a slightly hotter rate than the previous month. The report comes as the Federal Reserve considers whether to cut interest rates next week.`\
+https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed
+
 **Luka Dončić stifled by Thunder defense as Mavericks bow out of NBA Cup**\
 `"That’s probably one of the worst halves I’ve ever played," Dončić said of his first half in the 118-104 loss.`\
 https://nytimes.com/athletic/5986148/2024/12/11/mavericks-luka-doncic-nba-cup-okc/

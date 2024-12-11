@@ -1,3 +1,19 @@
+**The Maple Leafs have issues. Goaltending won't mask them forever**\
+`Anthony Stolarz has been a revelation, but Leafs skaters are not controlling play like an elite team should, and it isn't sustainable.`\
+https://nytimes.com/athletic/5985932/2024/12/11/anthony-stolarz-maple-leafs-nhl-goaltending/
+
+**Police Have Suspect’s Notebook Describing Rationale for C.E.O. Killing**\
+`“It’s targeted, precise, and doesn’t risk innocents,” said a sentence in a spiral notebook belonging to the man charged with murdering Brian Thompson.`\
+https://nytimes.com/2024/12/11/nyregion/luigi-mangione-assassination-plan-notebook.html
+
+**Al Michaels expected to return to Amazon Prime after contract expires**\
+`Michaels, 80, has said many times in the past that he will know when it is time to hang up his headset.`\
+https://nytimes.com/athletic/5986580/2024/12/11/sports-broadcasting-al-michaels-amazon-contract/
+
+**Man United enter talks to sign teenage left-back Diego Leon**\
+`Manchester United have entered talks to sign Diego Leon from Paraguayan side Cerro Porteno.`\
+https://nytimes.com/athletic/5986507/2024/12/11/man-united-deigo-leon-transfer-talks/
+
 **Luka Dončić stifled by Thunder defense as Mavericks bow out of NBA Cup**\
 `"That’s probably one of the worst halves I’ve ever played," Dončić said of his first half in the 118-104 loss.`\
 https://nytimes.com/athletic/5986148/2024/12/11/mavericks-luka-doncic-nba-cup-okc/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5986435/2024/12/11/new-york-red-bulls-sports-illust
 **The Fed chair said that inflation is a ‘little higher’ than expected.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed/the-fed-chair-said-that-inflation-is-a-little-higher-than-expected
-
-**Live Updates: Inflation Ticks Up Slightly Ahead of Fed Meeting**\
-`Consumer prices rose 2.7 percent in the year through November, a slightly hotter rate than the previous month. The report comes as the Federal Reserve considers whether to cut interest rates next week.`\
-https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed
-
-**Can the Senators stop the constant Brady Tkachuk rumors? 'It's unfair to him'**\
-`Brady Tkachuk spoke for the first time since being the subject of a yet another trade report.`\
-https://nytimes.com/athletic/5982123/2024/12/11/brady-tkachuk-senators-trade-rangers-rumors/
-
-**Flick banned for two games after red card, will miss Atletico Madrid match**\
-`Barcelona head coach Hansi Flick has been given a two-game touchline ban following his red card during Saturday&#8217;s draw with Real Betis.`\
-https://nytimes.com/athletic/5986346/2024/12/11/hansi-flick-red-card-ban-barcelona/
-
-**The Athletic FC: Why Saudi Arabia is set to host 2034 World Cup, Mbappe rollercoaster**\
-`Today in TAFC: Explaining how Saudi went unopposed in their 2034 World Cup bid, Mbappe's goal and injury, Arsenal's corners playbook`\
-https://nytimes.com/athletic/5986311/2024/12/11/saudi-arabia-2034-world-cup-mbappe-injury/
 

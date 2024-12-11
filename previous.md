@@ -22,8 +22,8 @@ https://nytimes.com/athletic/5986435/2024/12/11/new-york-red-bulls-sports-illust
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed/the-fed-chair-said-that-inflation-is-a-little-higher-than-expected
 
-**Live Updates: Inflation in Focus Ahead of Fed Meeting**\
-`Policymakers will decide whether or not to cut interest rates next week, and Wednesday’s report could be a critical factor.`\
+**Live Updates: Inflation Ticks Up Slightly Ahead of Fed Meeting**\
+`Consumer prices rose 2.7 percent in the year through November, a slightly hotter rate than the previous month. The report comes as the Federal Reserve considers whether to cut interest rates next week.`\
 https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed
 
 **Can the Senators stop the constant Brady Tkachuk rumors? 'It's unfair to him'**\
