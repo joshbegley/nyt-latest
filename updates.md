@@ -1,3 +1,7 @@
+**Flick banned for two games after red card, will miss Atletico Madrid match**\
+`Barcelona head coach Hansi Flick has been given a two-game touchline ban following his red card during Saturday&#8217;s draw with Real Betis.`\
+https://nytimes.com/athletic/5986346/2024/12/11/hansi-flick-red-card-ban-barcelona/
+
 **The Athletic FC: Why Saudi Arabia is set to host 2034 World Cup, Mbappe rollercoaster**\
 `Today in TAFC: Explaining how Saudi went unopposed in their 2034 World Cup bid, Mbappe's goal and injury, Arsenal's corners playbook`\
 https://nytimes.com/athletic/5986311/2024/12/11/saudi-arabia-2034-world-cup-mbappe-injury/
