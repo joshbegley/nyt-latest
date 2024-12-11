@@ -1,3 +1,7 @@
+**Bucks' 'team basketball' has them in NBA Cup semis for second consecutive season**\
+`Giannis Antetokounmpo was dominant, Damian Lillard was clutch, Khris Middleton was connective and Bobby Portis stayed hot in the Bucks win.`\
+https://nytimes.com/athletic/5986339/2024/12/11/bucks-nba-cup-semifinals/
+
 **Scoop City: This week's 10 key playoff scenarios**\
 `A look at who can clinch a playoff spot, plus five 2025 free agents to watch, Brett Favre's confrontation, latest on Belichick and McCarthy.`\
 https://nytimes.com/athletic/5986833/2024/12/11/2024-nfl-playoff-bracket-wild-card-race-scoop-city/
