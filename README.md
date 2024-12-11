@@ -1,3 +1,35 @@
+**Trade Carlos Correa? No thanks. Rocco Baldelli wants 'tone-setting' shortstop with Twins**\
+`Correa’s name has generated a little buzz at the Winter Meetings as a possible fallback option for teams that missed out on Juan Soto.`\
+https://nytimes.com/athletic/5984755/2024/12/11/carlos-correa-twins-trade-rocco-baldelli/
+
+**John Hynes' in-game line adjustment once again sparks Wild**\
+`The one thing we've learned about John Hynes is that he's a heck of an in-game adjuster.`\
+https://nytimes.com/athletic/5986130/2024/12/11/wild-utah-john-hynes-line-adjustment/
+
+**A Search for Syria’s Disappeared, and New Details in C.E.O. Killing Investigation**\
+`Plus, another World Cup raises human rights fears.`\
+https://nytimes.com/2024/12/11/podcasts/syria-disappeared-ceo-killing.html
+
+**Pat Foley to call Blackhawks game at Wrigley Field, 15 years after missing out on first one**\
+`“If the phone rings and it’s something fun, the answer’s yes, every time,” Foley said of returning to the broadcast booth.`\
+https://nytimes.com/athletic/5983960/2024/12/11/pat-foley-blackhawks-wrigley/
+
+**USMNT connections link Liga MX's biggest game**\
+`A pair of Americans will face off for Mexican soccer's top domestic prize this week, while seeking to boost their USMNT prospects.`\
+https://nytimes.com/athletic/5985027/2024/12/11/usmnt-connections-link-liga-mxs-biggest-game/
+
+**Notre-Dame Rises From the Ashes**\
+`The Paris cathedral has reopened, five years after a devastating fire. The Times’s chief architecture critic tells its story.`\
+https://nytimes.com/2024/12/11/podcasts/the-daily/notre-dame-reopens.html
+
+**The Connections Companion No. 550**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 12, 2024.`\
+https://nytimes.com/2024/12/11/crosswords/connections-companion-550.html
+
+**Wordle Review No. 1,272**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 12, 2024.`\
+https://nytimes.com/2024/12/11/crosswords/wordle-review-1272.html
+
 **Here are the latest developments.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/here-are-the-latest-developments
@@ -5,36 +37,4 @@ https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/here-are-the-l
 **Let's try some soft tampering: 10 potential trade targets for the struggling Rangers**\
 `GM Chris Drury is open for business, but who should the Rangers be looking at on the trade market, and what could the cost be?`\
 https://nytimes.com/athletic/5984123/2024/12/11/rangers-trade-targets-tampering/
-
-**Brian Callahan, Zac Taylor share rare football journey: 'Wouldn’t be here without you'**\
-`Tennessee's first-year head coach maintains a strong relationship with his mentor and former team as the Titans and Bengals face off Sunday.`\
-https://nytimes.com/athletic/5982643/2024/12/11/brian-callahan-zac-taylor-titans-bengals/
-
-**A California family feels hope and worry for relatives in Syria.**\
-`By Vik Jolly`\
-https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syria-little-arabia-california
-
-**Kurdish-led forces say they reached a truce with Turkish-backed fighters in a city in northern Syria.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/kurdish-led-forces-say-they-reached-a-truce-with-turkish-backed-fighters-in-a-city-in-northern-syria
-
-**Syria Live Updates: U.S. Tries to Manage Fallout From al-Assad’s Ouster**\
-`U.S.-backed fighters said they had reached a truce with Turkish-supported forces in a northern Syrian town. The head of the U.S. military’s Central Command visited Syria and Iraq.`\
-https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels
-
-**Building Anthony Edwards' pretty jumper: 'Make 'em respect it'**\
-`Edwards has worked on his form until it's one fluid motion, capped with a portrait-worthy follow-through and a snap of the net.`\
-https://nytimes.com/athletic/5983477/2024/12/11/anthony-edwards-timberwolves-jumper-shot-3-pointers/
-
-**As Juan Soto embarks on $765M future, Ted Williams' shadow lingers: Where could he end up?**\
-`What hitter in all of baseball history is the most comparable to Soto through age 25? Ted Williams. So where could Soto end up — in 2040?`\
-https://nytimes.com/athletic/5985812/2024/12/11/juan-soto-ted-williams-765-million-future-mets/
-
-**Prince William’s Chat With Trump Shows Why Royals May Be Potent Diplomatic Tool**\
-`President-elect Donald J. Trump has a reverence, bordering on awe, for Britain’s royal family. British diplomats hope that may help safeguard the “special relationship” in a fractious political climate.`\
-https://nytimes.com/2024/12/11/world/europe/trump-uk-royals-prince-william-king-charles.html
-
-**Five enormous questions facing Jerod Mayo and the Patriots this offseason**\
-`Will Mayo make any changes to his coaching staff after a disappointing first season? How can they upgrade at both receiver and O-line?`\
-https://nytimes.com/athletic/5984520/2024/12/11/patriots-jerod-mayo-offseason-questions/
 
