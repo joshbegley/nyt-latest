@@ -1,3 +1,15 @@
+**The F.T.C.’s Next, More Deal-Friendly Leader**\
+`Andrew Ferguson is expected to go easier on mergers than the agency’s current chief, Lina Khan. But he could take a similarly tough approach to policing Big Tech.`\
+https://nytimes.com/2024/12/11/business/dealbook/ftc-trump-ferguson-khan.html
+
+**The Fed chair said that inflation is a ‘little higher’ than expected.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed/the-fed-chair-said-that-inflation-is-a-little-higher-than-expected
+
+**Live Updates: Inflation in Focus Ahead of Fed Meeting**\
+`Policymakers will decide whether or not to cut interest rates next week, and Wednesday’s report could be a critical factor.`\
+https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed
+
 **Can the Senators stop the constant Brady Tkachuk rumors? 'It's unfair to him'**\
 `Brady Tkachuk spoke for the first time since being the subject of a yet another trade report.`\
 https://nytimes.com/athletic/5982123/2024/12/11/brady-tkachuk-senators-trade-rangers-rumors/

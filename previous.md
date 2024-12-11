@@ -1,3 +1,15 @@
+**The F.T.C.’s Next, More Deal-Friendly Leader**\
+`Andrew Ferguson is expected to go easier on mergers than the agency’s current chief, Lina Khan. But he could take a similarly tough approach to policing Big Tech.`\
+https://nytimes.com/2024/12/11/business/dealbook/ftc-trump-ferguson-khan.html
+
+**The Fed chair said that inflation is a ‘little higher’ than expected.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed/the-fed-chair-said-that-inflation-is-a-little-higher-than-expected
+
+**Live Updates: Inflation in Focus Ahead of Fed Meeting**\
+`Policymakers will decide whether or not to cut interest rates next week, and Wednesday’s report could be a critical factor.`\
+https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed
+
 **Can the Senators stop the constant Brady Tkachuk rumors? 'It's unfair to him'**\
 `Brady Tkachuk spoke for the first time since being the subject of a yet another trade report.`\
 https://nytimes.com/athletic/5982123/2024/12/11/brady-tkachuk-senators-trade-rangers-rumors/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/11/world/asia/afghanistan-explosion-taliban-minister
 **Blues 2025-26 line combos? Adam Jiricek injury update? Trade for Trent Frederic? Mailbag, part 2**\
 `Blues 2024 first-round pick Adam Jiricek may return to OHL Brantford's lineup soon after missing a month with an injury.`\
 https://nytimes.com/athletic/5976441/2024/12/11/blues-adam-jiricek-trent-frederic-trade/
-
-**Matthew Stafford turns back the clock, more Week 14 thoughts: Quick Outs**\
-`The Rams' veteran QB put together a vintage, dominant performance Sunday, while a trade-deadline acquisition helped lift the Seahawks again.`\
-https://nytimes.com/athletic/5985094/2024/12/11/nfl-week-14-matthew-stafford-ernest-jones/
-
-**Exxon Plans to Sell Electricity to Data Centers**\
-`The country’s largest oil company is designing a natural gas power plant outfitted with carbon capture technology to meet the voracious power demand of technology companies.`\
-https://nytimes.com/2024/12/11/business/energy-environment/exxon-mobil-data-centers-power-plant.html
-
-**Can Broncos navigate the toughest homestretch among AFC playoff hopefuls?**\
-`Coach Sean Payton has identified a reduction in penalties as a major focus during Denver's final push toward the postseason.`\
-https://nytimes.com/athletic/5984224/2024/12/11/broncos-afc-playoff-chances/
 
