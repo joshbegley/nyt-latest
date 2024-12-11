@@ -1,3 +1,7 @@
+**Why Wimbledon wants 39 more tennis courts, and why campaigners are so opposed**\
+`What are the expansion plans for Wimbledon, and why is there so much opposition?`\
+https://nytimes.com/athletic/5827803/2024/12/11/wimbledon-tennis-expansion-explained/
+
 **Andre Agassi on Everything — and Nothing — to Do With Tennis**\
 ` The American eight-time major champion and self-professed “evolved philanthropist” shares the intricacies of his craft, mind-set and unorthodox approach, which have contributed to his success both on and off the court. `\
 https://nytimes.com/paidpost/ubs/craftofsport-andre-agassi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987065/2024/12/11/mantel-social-network-collecting
 **Syria’s new government tries to balance the need for order against a clamor for retaliation.**\
 `By Aryn Baker`\
 https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syrias-new-government-tries-to-balance-the-need-for-order-against-a-clamor-for-retaliation
-
-**Bipartisan Lawmakers Seek to Break Up Giant Health Care Conglomerates**\
-`New legislation would force UnitedHealth Group, CVS Health and Cigna to each sell their pharmacies within three years.`\
-https://nytimes.com/2024/12/11/business/warren-hawley-pharmacy-benefit-managers.html
 
