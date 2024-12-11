@@ -1,3 +1,11 @@
+**Why the Oilers claimed RHD Alec Regula off waivers**\
+`The 24-year-old has 22 NHL games to his name and has yet to play this season.`\
+https://nytimes.com/athletic/5987982/2024/12/11/oilers-alec-regula-waivers/
+
+**House Passes Defense Bill Denying Transgender Health Coverage for Minors**\
+`The $883.7 billion measure was approved over the opposition of most Democrats, who rejected a provision inserted by Republicans to deny the coverage to the minor children of military personnel.`\
+https://nytimes.com/2024/12/11/us/politics/house-defense-bill-transgender-care-minors.html
+
 **Blue Jays take Angel Bastardo — a 'high-impact arm' — in the Rule 5 draft**\
 `Bastardo is recovering from Tommy John surgery but was up to 97 mph before his injury.`\
 https://nytimes.com/athletic/5987719/2024/12/11/blue-jays-angel-bastardo-rule-5/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5980872/2024/12/11/borussia-dortmund-2-barcelona-3-
 **The Briefing: Arsenal 3 Monaco 0 - Lewis-Skelly's starring role, Saka at the double, wasteful Jesus**\
 `Mikel Arteta handed a full European debut to teenager Myles Lewis-Skelly and was rewarded as Arsenal comfortably saw off Monaco`\
 https://nytimes.com/athletic/5980871/2024/12/11/arsenal-3-monaco-0-lewis-skelly-saka-jesus/
-
-**NFL winter meetings round-up: Injury rates down, kickoff returns up**\
-`Plus, there are more close games than ever, face mask penalties may get picked up on review and Damar Hamlin passes a bill in U.S. Senate.`\
-https://nytimes.com/athletic/5987507/2024/12/11/nfl-winter-owners-meetings-round-up/
-
-**The Briefing: Juventus 2 Man City 0 - Playoffs for Guardiola? Unlucky Ederson? De Bruyne lone bright spark**\
-`Sam Lee breaks down City's defeat in Turin which leaves them facing a two-legged playoff in the new format.`\
-https://nytimes.com/athletic/5980873/2024/12/11/man-city-juventus-ederson-guardiola/
 
