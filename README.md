@@ -1,3 +1,23 @@
+**North Carolina G.O.P. Brushes Aside Democratic Governor to Expand Power**\
+`After cloaking a bill that strips key powers from Democrats as hurricane aid, the state’s Republican-controlled legislature overrode a veto from Gov. Roy Cooper, a Democrat, to pass it into law.`\
+https://nytimes.com/2024/12/11/us/politics/north-carolina-republicans-power.html
+
+**‘This Is Where They Brought Down the Regime’: Syrians Describe Life After Assad**\
+`Though excitement and frenzy were on full display in some parts of Aleppo, the city is still gripped by uncertainty after the sudden end of a 13-year civil war.`\
+https://nytimes.com/2024/12/11/world/middleeast/aleppo-syria-assad.html
+
+**The Giants aren't trading for Kyle Tucker, but here's why the idea isn't that wacky**\
+`If the Astros are willing to listen, the Giants should entertain a possible Tucker trade, though it would likely be a tough match.`\
+https://nytimes.com/athletic/5987463/2024/12/11/the-giants-arent-trading-for-kyle-tucker-but-heres-why-the-idea-isnt-that-wacky/
+
+**The Briefing: Borussia Dortmund 2 Barcelona 3 - Roaming Raphinha, Reyna's first start, Guirassy's strange night**\
+`Barca emerged victorious at Dortmund on a chaotic night of Champions League football`\
+https://nytimes.com/athletic/5980872/2024/12/11/borussia-dortmund-2-barcelona-3-raphinha-reyna-guirassy/
+
+**The Briefing: Arsenal 3 Monaco 0 - Lewis-Skelly's starring role, Saka at the double, wasteful Jesus**\
+`Mikel Arteta handed a full European debut to teenager Myles Lewis-Skelly and was rewarded as Arsenal comfortably saw off Monaco`\
+https://nytimes.com/athletic/5980871/2024/12/11/arsenal-3-monaco-0-lewis-skelly-saka-jesus/
+
 **NFL winter meetings round-up: Injury rates down, kickoff returns up**\
 `Plus, there are more close games than ever, face mask penalties may get picked up on review and Damar Hamlin passes a bill in U.S. Senate.`\
 https://nytimes.com/athletic/5987507/2024/12/11/nfl-winter-owners-meetings-round-up/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/11/technology/social-media-goodreads-reddit-tiktok.h
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears have lost seven in a row, are coming off their most lopsided loss of the season and play the Vikings on Monday night.`\
 https://nytimes.com/athletic/5987784/2024/12/11/submit-your-questions-for-kevin-fishbains-bears-mailbag-17/
-
-**Thursday Briefing: The Struggle to Create Order in Syria**\
-`Plus, China’s surprising box office hit.`\
-https://nytimes.com/2024/12/11/briefing/syria-trump-fbi-sudan-gold.html
-
-**U.S. Strategy on Syria Risks ISIS Resurgence, Kurdish General Warns**\
-`Gen. Mazlum Kobani, commander of Kurdish forces in Syria, said recent decisions by the U.S. in Syria potentially “leaves a vacuum behind that can be taken advantage of by ISIS.”`\
-https://nytimes.com/2024/12/11/world/middleeast/syria-isis-united-states-kurds.html
-
-**Biden’s Top Aides Race to Middle East as Militias Wield Power in Syria**\
-`Secretary of State Antony J. Blinken plans to hold meetings in Jordan and Turkey. Jake Sullivan, the national security adviser, is visiting Israel.`\
-https://nytimes.com/2024/12/11/us/politics/biden-officials-syria-israel.html
-
-**Are Those Drones Over New Jersey? Sightings Mount, and Still No Answers.**\
-`Though officials say that the sightings pose no threat to the public, they have yet to provide any concrete information about the origin of the flying objects.`\
-https://nytimes.com/2024/12/11/nyregion/new-jersey-drones.html
-
-**Red Sox try to knit together a contending rotation by adding Garrett Crochet: Law**\
-`The Red Sox got the best pitcher known to be available on the trade market but gave up their two last first-round picks.`\
-https://nytimes.com/athletic/5987499/2024/12/11/red-sox-white-sox-garrett-crochet/
 
