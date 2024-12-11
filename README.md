@@ -1,8 +1,20 @@
+**Red Sox try to knit together a contending rotation by adding Garrett Crochet: Law**\
+`The Red Sox got the best pitcher known to be available on the trade market but gave up their two last first-round picks.`\
+https://nytimes.com/athletic/5987499/2024/12/11/red-sox-white-sox-garrett-crochet/
+
+**New York Times and Tech Guild Reach Deal**\
+`The union, which represents some 600 tech workers at the publication, had been negotiating for a contract for more than two years. It will vote on ratifying the deal next week.`\
+https://nytimes.com/2024/12/11/business/media/new-york-times-tech-guild-deal.html
+
+**Russian Military and Commercial Activity Appears Halted at Key Syrian Port**\
+`Satellite images from last week and this week show that naval vessels docked at the port city of Tartus have left. According to marine tracking data, no cargo ships have entered or left Tartus since Monday.`\
+https://nytimes.com/2024/12/11/world/middleeast/russia-syria-assad.html
+
 **‘Golden Bachelor’ Star Announces Cancer Diagnosis**\
 `Gerry Turner rose to prominence as a septuagenarian star of a reality dating show. In an interview with People, he said he has a type of non-Hodgkin lymphoma.`\
 https://nytimes.com/2024/12/11/style/golden-bachelor-gerry-turner-cancer.html
 
-**New Jersey Politician Fakes Spotify Wrapped to Look Like a Springsteen Super Fan**\
+**New Jersey Politician Fakes Spotify Wrapped to Resemble Springsteen Super Fan**\
 `Representative Josh Gottheimer, a Democrat who is running for governor, may well be a huge fan of the Boss. But his Spotify Wrapped was not real.`\
 https://nytimes.com/2024/12/11/us/politics/josh-gottheimer-spotify-wrapped.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/11/us/politics/austin-tice-search-syria.html
 **Does ‘the Future’ Belong to Trump?**\
 `Under the influence of a coterie of tech boosters, it’s full speed ahead.`\
 https://nytimes.com/2024/12/11/opinion/trump-tech.html
-
-**Liverpool in talks over pre-season friendlies in Japan, Hong Kong**\
-`Liverpool are in talks about playing friendly matches in Japan and Hong Kong as part of a pre-season tour of Asia next summer.`\
-https://nytimes.com/athletic/5987570/2024/12/11/liverpool-pre-season-tour-japan-hong-kong/
-
-**White Sox select Shane Smith first in MLB portion of Rule 5 Draft, 15 players taken in all**\
-`Smith, 24, went 6-3 with a 3.05 ERA in 32 appearances and 16 starts between Double-A Biloxi and Triple-A Nashville last season.`\
-https://nytimes.com/athletic/5987426/2024/12/11/mlb-rule-5-draft-white-sox-shane-smith/
-
-**Here’s what Kash Patel has said he would do to the F.B.I.**\
-`By Elizabeth Williamson and Charlie Savage`\
-https://nytimes.com/live/2024/12/11/us/trump-news/heres-what-kash-patel-has-said-he-would-do-to-the-fbi
 
