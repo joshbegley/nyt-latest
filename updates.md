@@ -1,3 +1,11 @@
+**New Jersey Politician Fakes Spotify Wrapped to Look Like a Springsteen Super Fan**\
+`Representative Josh Gottheimer, a Democrat who is running for governor, may well be a huge fan of the Boss. But his Spotify Wrapped was not real.`\
+https://nytimes.com/2024/12/11/us/politics/josh-gottheimer-spotify-wrapped.html
+
+**Ashworth's Man Utd exit a 'bad situation' - Amorim**\
+`Ruben Amorim described Dan Ashworth’s departure from Manchester United as “a bad situation” before his club’s Europa League fixture against FC Viktoria Plzeň, but admitted such turnover can occur at football clubs.`\
+https://nytimes.com/athletic/5987612/2024/12/11/ruben-amorim-dan-ashworth/
+
 **Colleges Warn Foreign Students to Get to Campus Before Trump Takes Office**\
 `Harvard, Penn and U.S.C. were among the universities and colleges that issued advisories in anticipation of possible travel bans.`\
 https://nytimes.com/2024/12/11/us/colleges-international-students-trump-travel-ban.html
