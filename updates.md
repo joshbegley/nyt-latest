@@ -1,3 +1,7 @@
+**Hunt Continues for U.S. Journalist Who Disappeared in Syria**\
+`The U.S. has identified prisons of interest as it searches for clues about Austin Tice, who was abducted in 2012 and whose fate remains unknown.`\
+https://nytimes.com/2024/12/11/us/politics/austin-tice-search-syria.html
+
 **Does ‘the Future’ Belong to Trump?**\
 `Under the influence of a coterie of tech boosters, it’s full speed ahead.`\
 https://nytimes.com/2024/12/11/opinion/trump-tech.html
