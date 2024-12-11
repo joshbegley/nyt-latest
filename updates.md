@@ -1,3 +1,7 @@
+**How Thatcher Demko looked like himself in long-awaited return: 3 takeaways**\
+`For most of the sloppily played, low-energy contest at Rogers Arena, the performance matched the stakes. The Blues won 4-3 in overtime.`\
+https://nytimes.com/athletic/5985923/2024/12/11/canucks-lose-blues-thatcher-demko-return/
+
 **How a Feminist Comedy Came to Rule China’s Box Office**\
 `“Her Story” touches on sensitive topics in China, like censorship and gender inequality. But its humorous, nonconfrontational approach may have helped it pass censors.`\
 https://nytimes.com/2024/12/11/world/asia/china-feminist-comedy-her-story.html
