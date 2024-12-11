@@ -1,3 +1,7 @@
+**Who’s trending up or down for the Canucks after 27 games?**\
+`The Canucks have managed to tread water amidst some significant star-level absences from the lineup.`\
+https://nytimes.com/athletic/5986211/2024/12/11/canucks-stock-watch-hughes-suter-debrusk/
+
 **Tracking Tropical Cyclone Chido**\
 `See the likely path and wind arrival times for Chido.`\
 https://nytimes.com/interactive/2024/12/11/weather/chido-map-path-tracker.html
