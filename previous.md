@@ -1,3 +1,7 @@
+**Albertsons Backs Out of Merger Deal After Court Rulings**\
+`The supermarket chain had tried to join forces with Kroger, but judges sided with federal and state regulators who charged that the merger would reduce competition.`\
+https://nytimes.com/2024/12/11/business/albertsons-kroger-merger-deal.html
+
 **Wimbledon tennis expansion set for High Court battle on both sides**\
 `Plans to expand Wimbledon are set to go before the U.`\
 https://nytimes.com/athletic/5986571/2024/12/11/wimbledon-tennis-expansion-high-court-review/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/style/infidelity-intervening.html
 **Mandel's Mailbag: Explain Oregon's brutal route and Penn Sate's seeding**\
 `Plus: Best bowl games to watch and an NIT-style tournament for the rest of the field. `\
 https://nytimes.com/athletic/5986516/2024/12/11/college-football-playoff-oregon-ohio-state-penn-state-seeding/
-
-**What's next after Matt Rhule filled out Nebraska's staff with new hires, promotions?**\
-`On Tuesday, Nebraska announced three defensive hires that likely completes the Huskers staff.`\
-https://nytimes.com/athletic/5986604/2024/12/11/nebraska-college-football-staff-offensive-defensive-coordinators/
 
