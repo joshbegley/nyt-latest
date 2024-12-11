@@ -1,3 +1,7 @@
+**Michigan hiring Chip Lindsey from UNC as new OC: Source**\
+`Chip Lindsey, who was Troy's head coach from 2019-21, is expected to replace the fired Kirk Campbell as Michigan's offensive coordinator. `\
+https://nytimes.com/athletic/5985477/2024/12/10/chip-lindsey-michigan-offensive-coordinator/
+
 **UnitedHealthcare C.E.O. Laid to Rest as Family Mourns Privately**\
 `Brian Thompson was remembered in his Minnesota hometown as a devoted father to his two sons.`\
 https://nytimes.com/2024/12/10/nyregion/unitedhealthcare-brian-thompson-funeral.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5985315/2024/12/10/andres-gimenez-toronto-blue-jays
 **Many Evacuated, but Some Malibu Residents Broke Out the Hoses**\
 `Thousands of people were told to flee their homes in Malibu, Calif., as the Franklin fire approached. But a few stayed behind, using garden hoses to protect their property and themselves.`\
 https://nytimes.com/2024/12/10/us/malibu-franklin-fire-residents.html
-
-**Champions League Briefing: Vintage Mbappe (for 35 mins), Liverpool march on, and how did Retegui miss?**\
-`Real Madrid scraped past Atalanta, Bayern's young and old starred, Liverpool marched on with flawless record and Brest won again - of course`\
-https://nytimes.com/athletic/5984499/2024/12/10/champions-league-mbappe-real-madrid-retegui-liverpool-bayern/
 
