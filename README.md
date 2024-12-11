@@ -1,6 +1,10 @@
+**Trump’s Record on Syria: Airstrikes and Troop Moves in a Land of ‘Sand and Death’**\
+`The president-elect faces hard choices about the country’s post-Assad future. His vows not to get involved might be hard to keep.`\
+https://nytimes.com/2024/12/10/us/politics/trump-syria-rebels.html
+
 **Blue Jays trade for defensive whiz Andrés Giménez, but the bat is a question: Law**\
 `The Jays are paying a lot for an upgrade, but this is clearly a salary dump on the Cleveland side. Will they spend elsewhere?`\
-https://nytimes.com/athletic/5985478/2024/12/10/blue-jays-guardians-andres-gimenez-spencer-horowitz/
+https://nytimes.com/athletic/5985478/2024/12/10/blue-jays-guardians-andres-gimenez-spencer-horwitz/
 
 **Michigan hiring Chip Lindsey from UNC as new OC: Source**\
 `Chip Lindsey, who was Troy's head coach from 2019-21, is expected to replace the fired Kirk Campbell as Michigan's offensive coordinator. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984953/2024/12/10/scottie-scheffler-pga-tour-playe
 **N.Y.P.D. Sergeant Is Charged With Shoplifting From Target**\
 `Sgt. Rayna Madho was charged with two counts of petty larceny for stealing from a store on Long Island on two different occasions.`\
 https://nytimes.com/2024/12/10/nyregion/nyc-police-officer-shoplifting.html
-
-**Andrés Giménez traded to Blue Jays from Guardians: Source**\
-`Giménez, 26, is a three-time Gold Glove winner and one time AL All-Star selection.`\
-https://nytimes.com/athletic/5985315/2024/12/10/andres-gimenez-toronto-blue-jays-trade/
 
