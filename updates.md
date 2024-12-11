@@ -1,3 +1,11 @@
+**NFL best bets Week 15: Picking two sizable favorites and an under**\
+`Austin Mock has two solid home favorites among his best bets for Week 15 of the NFL season.`\
+https://nytimes.com/athletic/5987124/2024/12/11/nfl-best-bets-week-15-cardinals-vikings/
+
+**Jake Burger is unlikely to satisfy the Rangers' hunger for offense: Law**\
+`Burger has power but doesn't improve the Rangers at his positions. The Marlins did well to get three prospects with upside for him.`\
+https://nytimes.com/athletic/5987101/2024/12/11/jake-burger-texas-rangers-miami-marlins-trade-analysis/
+
 **120 Miles of Russian Forest Couldn’t Keep These Two Tigers Apart**\
 `Boris and Svetlaya were raised together as orphaned cubs, and then reintroduced to the wild separately. But Boris went on a trek that surprised the researchers who were monitoring him.`\
 https://nytimes.com/2024/12/11/science/siberian-tigers-russia.html

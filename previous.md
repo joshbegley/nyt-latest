@@ -1,3 +1,11 @@
+**NFL best bets Week 15: Picking two sizable favorites and an under**\
+`Austin Mock has two solid home favorites among his best bets for Week 15 of the NFL season.`\
+https://nytimes.com/athletic/5987124/2024/12/11/nfl-best-bets-week-15-cardinals-vikings/
+
+**Jake Burger is unlikely to satisfy the Rangers' hunger for offense: Law**\
+`Burger has power but doesn't improve the Rangers at his positions. The Marlins did well to get three prospects with upside for him.`\
+https://nytimes.com/athletic/5987101/2024/12/11/jake-burger-texas-rangers-miami-marlins-trade-analysis/
+
 **120 Miles of Russian Forest Couldn’t Keep These Two Tigers Apart**\
 `Boris and Svetlaya were raised together as orphaned cubs, and then reintroduced to the wild separately. But Boris went on a trek that surprised the researchers who were monitoring him.`\
 https://nytimes.com/2024/12/11/science/siberian-tigers-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5986628/2024/12/11/jimmy-butler-heat-lebron-james-d
 **Gomez on nearly leaving Liverpool: 'Things happen for a reason'**\
 `Joe Gomez admits he came close to leaving Liverpool last summer but is delighted that he ended up staying at Anfield.`\
 https://nytimes.com/athletic/5986719/2024/12/11/joe-gomez-liverpool-transfer-summer/
-
-**How a Soprano With Dyslexia Rose to the Heights of Opera**\
-`Elza van den Heever, a star of “Die Frau Ohne Schatten” at the Metropolitan Opera, no longer sees dyslexia as a hindrance — just a different way of learning.`\
-https://nytimes.com/2024/12/11/arts/music/elza-van-den-heever-dyslexia.html
-
-**Sundance Film Festival Unveils a Lineup Heavy on Politics**\
-`The annual event also makes room for a remake of the musical “Kiss of the Spider Woman” and the return of Justin Lin.`\
-https://nytimes.com/2024/12/11/movies/sundance-film-festival-kiss-of-the-spider-woman.html
 
