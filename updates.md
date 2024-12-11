@@ -1,3 +1,7 @@
+**Judge Refuses to Allow Sale of Infowars to The Onion**\
+`The Onion’s bid was supported by the families of the victims of the Sandy Hook shooting and Everytown for Gun Safety, a nonprofit focused on ending gun violence.`\
+https://nytimes.com/2024/12/10/business/media/the-onion-infowars-alex-jones.html
+
 **'We got what we deserved': Up-and-down Blue Jackets outworked, outplayed by Flyers**\
 `The whole team struggled to match the Flyers' effort as the Blue Jackets fell 5-3.`\
 https://nytimes.com/athletic/5985779/2024/12/10/blue-jackets-outworked-evason-flyers/
