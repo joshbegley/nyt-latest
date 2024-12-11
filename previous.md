@@ -1,3 +1,7 @@
+**Trade Zion Williamson and start a rebuild? Assessing Pelicans' options**\
+`Changes are coming in New Orleans. What are the options for the Pelicans?`\
+https://nytimes.com/athletic/5985881/2024/12/11/pelicans-rebuild-options-zion-williamson-trade-nba/
+
 **Bears mock draft reaction: How would Kelvin Banks Jr. improve Caleb Williams' O-line?**\
 `The focus for the draft should be in the trenches for the Bears. How would Banks fit on the offensive line?`\
 https://nytimes.com/athletic/5984807/2024/12/11/bears-mock-draft-reaction-kelvin-banks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/podcasts/the-daily/notre-dame-reopens.html
 **The Connections Companion No. 550**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Dec. 12, 2024.`\
 https://nytimes.com/2024/12/11/crosswords/connections-companion-550.html
-
-**Wordle Review No. 1,272**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 12, 2024.`\
-https://nytimes.com/2024/12/11/crosswords/wordle-review-1272.html
 

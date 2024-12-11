@@ -1,3 +1,7 @@
+**Trade Zion Williamson and start a rebuild? Assessing Pelicans' options**\
+`Changes are coming in New Orleans. What are the options for the Pelicans?`\
+https://nytimes.com/athletic/5985881/2024/12/11/pelicans-rebuild-options-zion-williamson-trade-nba/
+
 **Bears mock draft reaction: How would Kelvin Banks Jr. improve Caleb Williams' O-line?**\
 `The focus for the draft should be in the trenches for the Bears. How would Banks fit on the offensive line?`\
 https://nytimes.com/athletic/5984807/2024/12/11/bears-mock-draft-reaction-kelvin-banks/
