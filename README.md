@@ -1,3 +1,7 @@
+**Who’s trending up or down for the Canucks after 27 games?**\
+`The Canucks have managed to tread water amidst some significant star-level absences from the lineup.`\
+https://nytimes.com/athletic/5986211/2024/12/11/canucks-stock-watch-hughes-suter-debrusk/
+
 **Tracking Tropical Cyclone Chido**\
 `See the likely path and wind arrival times for Chido.`\
 https://nytimes.com/interactive/2024/12/11/weather/chido-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/us/politics/al-assad-ouster-us-israel.html
 **Anthony Serafino: Bromley's new American owner 'addicted to watching EFL'**\
 `Anthony Serafino has got a bad case of “footballitis” — although he would probably call it “socceritis” — and it is the particularly virulent English strain of the affliction that has taken hold.`\
 https://nytimes.com/athletic/5986771/2024/12/11/bromley-takeover-anthony-serafino-efl/
-
-**NFL announces Berlin to host regular season game in 2025**\
-`Berlin’s Olympiastadion will host its first NFL regular season game in 2025.`\
-https://nytimes.com/athletic/5986598/2024/12/11/nfl-berlin-germany-international-series/
 
