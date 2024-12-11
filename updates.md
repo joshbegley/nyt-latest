@@ -1,3 +1,11 @@
+**Blue Jays take Angel Bastardo — a 'high-impact arm' — in the Rule 5 draft**\
+`Bastardo is recovering from Tommy John surgery but was up to 97 mph before his injury.`\
+https://nytimes.com/athletic/5987719/2024/12/11/blue-jays-angel-bastardo-rule-5/
+
+**Luke Musgrave could give Packers boost as TE practices for first time since Week 6**\
+`The 2023 second-round pick has missed the last two months while rehabbing a torn ligament in his left ankle.`\
+https://nytimes.com/athletic/5987878/2024/12/11/luke-musgrave-packers-tight-end-injury/
+
 **What we learned about the Mets at the Winter Meetings**\
 `Here are the latest rumblings on Pete Alonso, Starling Marte, Roki Sasaki and more. `\
 https://nytimes.com/athletic/5987786/2024/12/11/mets-winter-meetings-free-agency/
