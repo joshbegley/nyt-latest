@@ -1,3 +1,7 @@
+**Until Saturday: CFP first-round upset watch**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/5985798/2024/12/10/college-football-playoff-upsets-heisman-until-saturday/
+
 **Why the Padres could end up trading starter Dylan Cease, plus more from A.J. Preller**\
 `Leaguewide demand for impact talent, including impact rental talent, like Cease, keeps climbing. `\
 https://nytimes.com/athletic/5985737/2024/12/10/san-diego-padres-2024-winter-meetings-dylan-cease/

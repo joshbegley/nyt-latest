@@ -1,7 +1,3 @@
-**Until Saturday: CFP first-round upset watch**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/5985798/2024/12/10/college-football-playoff-upsets-heisman-until-saturday/
-
 **Flyers capture perhaps their most important win of the season**\
 `Games like Philadelphia's win over Columbus on Tuesday could matter in a narrow playoff race in the spring. `\
 https://nytimes.com/athletic/5985794/2024/12/10/flyers-blue-jackets-nhl-season/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5985663/2024/12/10/blue-jays-andres-gimenez-offseas
 **Red Sox still on the sidelines as pitching market heats up and options dwindle**\
 `“In order to attract free-agent talent, you kind have to be willing to get uncomfortable,” chief baseball officer Craig Breslow said.`\
 https://nytimes.com/athletic/5985261/2024/12/10/red-sox-mlb-free-agent-pitching/
+
+**Buster Posey sold new Giants shortstop Willy Adames on his vision: 'Just being authentic'**\
+`The Giants got their man in Adames but the rising price on starters may take them out of the Corbin Burnes market.`\
+https://nytimes.com/athletic/5985667/2024/12/10/willy-adames-buster-posey-free-agent-pitch/
 
