@@ -1,3 +1,7 @@
+**Alexander Brothers Sex Trafficking Indictment**\
+`The federal indictment against Oren Alexander, Tal Alexander and Alon Alexander, on conspiracy to commit sex trafficking.`\
+https://nytimes.com/interactive/2024/12/11/nyregion/alexander-indictment.html
+
 **Guardians' Tom Hamilton wins broadcasting's Ford C. Frick Award**\
 `Hamilton has spent 35 years in Cleveland’s radio booth and called countless classic moments in franchise history.`\
 https://nytimes.com/athletic/5987170/2024/12/11/tom-hamilton-ford-c-frick-award-guardians/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987124/2024/12/11/nfl-best-bets-week-15-cardinals-
 **Jake Burger is unlikely to satisfy the Rangers' hunger for offense: Law**\
 `Burger has power but doesn't improve the Rangers at his positions. The Marlins did well to get three prospects with upside for him.`\
 https://nytimes.com/athletic/5987101/2024/12/11/jake-burger-texas-rangers-miami-marlins-trade-analysis/
-
-**120 Miles of Russian Forest Couldn’t Keep These Two Tigers Apart**\
-`Boris and Svetlaya were raised together as orphaned cubs, and then reintroduced to the wild separately. But Boris went on a trek that surprised the researchers who were monitoring him.`\
-https://nytimes.com/2024/12/11/science/siberian-tigers-russia.html
 
