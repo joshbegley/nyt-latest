@@ -1,3 +1,7 @@
+**FIFA confirms 2030, 2034 World Cup host nations: All you need to know**\
+`Both bids ran unopposed and were officially voted through at a FIFA Congress meeting on Wednesday.`\
+https://nytimes.com/athletic/5981352/2024/12/11/fifa-world-cup-hosts-saudi-arabia-europe-africa-south-america/
+
 **Who’s trending up or down for the Canucks after 27 games?**\
 `The Canucks have managed to tread water amidst some significant star-level absences from the lineup.`\
 https://nytimes.com/athletic/5986211/2024/12/11/canucks-stock-watch-hughes-suter-debrusk/
