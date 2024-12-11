@@ -1,3 +1,11 @@
+**Joe Burrow victim of home burglary during Bengals-Cowboys**\
+`Burrow is the latest pro athlete to be the target of a break-in after Patrick Mahomes and Bobby Portis also had their homes burglarized.`\
+https://nytimes.com/athletic/5986915/2024/12/11/joe-burrow-home-burglary/
+
+**Duke lands Tulane transfer Darian Mensah, top QB in transfer portal**\
+`News comes after Duke's starting QB from last season, Maalik Murphy, announced earlier this week that he was headed to the portal.`\
+https://nytimes.com/athletic/5986965/2024/12/11/duke-lands-tulane-transfer-darian-mensah-top-quarterback-in-transfer-portal-report/
+
 **Raptors' Scottie Barnes expected to miss multiple weeks**\
 `Barnes suffered the injury on Monday in the team’s loss against the New York Knicks as he tried to defend Karl-Anthony Towns in the paint`\
 https://nytimes.com/athletic/5984348/2024/12/11/raptors-scottie-barnes-sprained-ankle/
