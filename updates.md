@@ -1,3 +1,15 @@
+**Prince William’s Chat With Trump Shows Why Royals May Be Potent Diplomatic Tool**\
+`President-elect Donald J. Trump has a reverence, bordering on awe, for Britain’s royal family. British diplomats hope that may help safeguard the “special relationship” in a fractious political climate.`\
+https://nytimes.com/2024/12/11/world/europe/trump-uk-royals-prince-william-king-charles.html
+
+**Five enormous questions facing Jerod Mayo and the Patriots this offseason**\
+`Will Mayo make any changes to his coaching staff after a disappointing first season? How can they upgrade at both receiver and O-line?`\
+https://nytimes.com/athletic/5984520/2024/12/11/patriots-jerod-mayo-offseason-questions/
+
+**NFC North roundtable: Lions, Vikings, Packers dominating the NFL. Who'll rule the division?**\
+`Our Lions, Vikings and Packers reporters break down just how good their teams are and who has the best shot of reaching the Super Bowl.`\
+https://nytimes.com/athletic/5984483/2024/12/11/nfc-north-lions-vikings-packers-playoffs/
+
 **Storm Aid vs. Partisan Power: A Showdown Looms in North Carolina**\
 `As Republicans try to muscle through a bill that is nominally dedicated to hurricane relief but in fact erodes Democrats’ influence, residents of the areas hit hardest say they urgently need help.`\
 https://nytimes.com/2024/12/11/us/politics/storm-aid-vs-partisan-power-a-showdown-looms-in-north-carolina.html
