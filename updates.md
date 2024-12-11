@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/here-are-the-latest-developments
+
 **Let's try some soft tampering: 10 potential trade targets for the struggling Rangers**\
 `GM Chris Drury is open for business, but who should the Rangers be looking at on the trade market, and what could the cost be?`\
 https://nytimes.com/athletic/5984123/2024/12/11/rangers-trade-targets-tampering/
