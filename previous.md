@@ -1,3 +1,7 @@
+**Brighton's defensive instability - and injuries - are undermining European ambitions**\
+`Hurzeler is yet to name an unchanged starting line-up in the Premier League and it is at the back that his plans are being hit hardest`\
+https://nytimes.com/athletic/5978753/2024/12/11/brighton-defensive-instability-injuries/
+
 **Five things we learned from Amorim's first five Man Utd games**\
 `Looking for meaning in the new head coach's early reign - changing roles, squad weaknesses, and how he'll put things right`\
 https://nytimes.com/athletic/5983442/2024/12/11/five-things-we-learned-from-amorims-first-five-man-utd-games/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984311/2024/12/11/cole-palmer-penalty-record-chels
 **Wednesday Briefing**\
 `A wave of attacks on Syria.`\
 https://nytimes.com/2024/12/11/briefing/syria-attacks-israel-gaza.html
-
-**A Search in Syria for the Disappeared**\
-`Syrians raced to newly emptied prisons to reunite with loved ones snatched away by the brutal regime of Bashar al-Assad, but their quest sometimes took them to the morgue.`\
-https://nytimes.com/2024/12/11/world/middleeast/syria-prisoners-dead.html
 
