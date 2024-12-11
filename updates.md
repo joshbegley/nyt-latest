@@ -1,3 +1,7 @@
+**How Ruud van Nistelrooy is building on Leicester's box midfield foundations**\
+`It is early days but Van Nistelrooy is setting his stall out on how he wants Leicester to play - and it is on the front foot`\
+https://nytimes.com/athletic/5983549/2024/12/11/how-ruud-van-nistelrooy-is-building-on-leicesters-box-midfield-foundations/
+
 **The Arsenal Corner Playbook: Explaining the principles that make Arteta's side so menacing**\
 `Nicolas Jover has helped shape Arsenal into probably the best set-piece team in the world - this is how it all works`\
 https://nytimes.com/athletic/5969908/2024/12/11/arsenal-corner-playbook/
