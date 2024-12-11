@@ -1,3 +1,11 @@
+**Flyers capture perhaps their most important win of the season**\
+`Games like Philadelphia's win over Columbus on Tuesday could matter in a narrow playoff race in the spring. `\
+https://nytimes.com/athletic/5985794/2024/12/10/flyers-blue-jackets-nhl-season/
+
+**Maple Leafs report cards: Stolarz, PK rescue dreadful team effort for overtime win**\
+`The scoreline very much flattered Toronto in a game where the Devils controlled the run of play but ran up against a red-hot Stolarz.`\
+https://nytimes.com/athletic/5985445/2024/12/10/maple-leafs-report-cards-stolarz-pk-devils/
+
 **Why the Padres could end up trading starter Dylan Cease, plus more from A.J. Preller**\
 `Leaguewide demand for impact talent, including impact rental talent, like Dylan Cease, keeps climbing. `\
 https://nytimes.com/athletic/5985737/2024/12/10/san-diego-padres-2024-winter-meetings-dylan-cease/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5985261/2024/12/10/red-sox-mlb-free-agent-pitching/
 **Buster Posey sold new Giants shortstop Willy Adames on his vision: 'Just being authentic'**\
 `The Giants got their man in Adames but the rising price on starters may take them out of the Corbin Burnes market.`\
 https://nytimes.com/athletic/5985667/2024/12/10/willy-adames-buster-posey-free-agent-pitch/
-
-**Corrections: Dec. 11, 2024**\
-`Corrections that appeared in print on Wednesday, Dec. 11, 2024.`\
-https://nytimes.com/2024/12/10/pageoneplus/corrections-dec-11-2024.html
-
-**Why Kyle Tucker fits what the Chicago Cubs are looking for**\
-`The Cubs need more power in their lineup, and the Astros could make Tucker available in a trade.`\
-https://nytimes.com/athletic/5985653/2024/12/10/cubs-kyle-tucker/
 
