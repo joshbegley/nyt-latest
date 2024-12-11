@@ -1,3 +1,15 @@
+**Mandel: North Carolina is going to regret hiring Bill Belichick**\
+`What works in the NFL doesn’t necessarily work in college. Bill Belichick and North Carolina may find out the hard way.`\
+https://nytimes.com/athletic/5985593/2024/12/11/bill-belichick-north-carolina-college-coach/
+
+**Raiders owner Mark Davis to wait for offseason to decide on Antonio Pierce**\
+`IRVING, Texas — It’s no surprise that owner Mark Davis isn’t happy with his team right now.`\
+https://nytimes.com/athletic/5987734/2024/12/11/raiders-mark-davis-antonio-pierce/
+
+**Bill Belichick agrees to deal to become UNC football head coach: Sources**\
+`Belichick, a six-time Super Bowl winner with the New England Patriots, will return to the sideline in the college ranks.`\
+https://nytimes.com/athletic/5982538/2024/12/11/bill-belichick-unc-coach-hiring/
+
 **‘This Is Where They Brought Down the Regime’: Syrians Describe Life After Assad**\
 `Though excitement and frenzy were on full display in some parts of Aleppo, the city is still gripped by uncertainty after the sudden end of a 13-year civil war.`\
 https://nytimes.com/2024/12/11/world/middleeast/aleppo-syria-assad.html
