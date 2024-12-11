@@ -1,3 +1,11 @@
+**Joe Burrow victim of home burglary during Bengals-Cowboys**\
+`Burrow is the latest pro athlete to be the target of a break-in after Patrick Mahomes and Bobby Portis also had their homes burglarized.`\
+https://nytimes.com/athletic/5986915/2024/12/11/joe-burrow-home-burglary/
+
+**Duke lands Tulane transfer Darian Mensah, top QB in transfer portal**\
+`News comes after Duke's starting QB from last season, Maalik Murphy, announced earlier this week that he was headed to the portal.`\
+https://nytimes.com/athletic/5986965/2024/12/11/duke-lands-tulane-transfer-darian-mensah-top-quarterback-in-transfer-portal-report/
+
 **Raptors' Scottie Barnes expected to miss multiple weeks**\
 `Barnes suffered the injury on Monday in the team’s loss against the New York Knicks as he tried to defend Karl-Anthony Towns in the paint`\
 https://nytimes.com/athletic/5984348/2024/12/11/raptors-scottie-barnes-sprained-ankle/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/11/dining/i-think-this-recipe-actually-cured-my-depr
 **A.D.H.D. Diagnoses Are Surging Among Older Americans**\
 `Many say they are relieved to finally have an explanation after decades of struggle.`\
 https://nytimes.com/2024/12/11/well/mind/adhd-diagnosis-older-middle-age.html
-
-**Reflections on Motherhood, Careers and Identity**\
-`Readers respond to an essay by Daniela J. Lamas. Also: Andy Griffith’s Mayberry today; Donald Trump’s loyalty test; never an exile; choosing charities.`\
-https://nytimes.com/2024/12/11/opinion/motherhood-careers-identity.html
-
-**Lowetide: The Oilers' summer free-agent signings are showing a pulse**\
-`July 1 delivered the Oilers a series of value free-agent deals with established veterans. How are they performing?`\
-https://nytimes.com/athletic/5984210/2024/12/11/edmonton-oilers-arvidsson-skinner-henrique/
 
