@@ -1,3 +1,11 @@
+**New Jersey Politician Fakes Spotify Wrapped to Look Like a Springsteen Super Fan**\
+`Representative Josh Gottheimer, a Democrat who is running for governor, may well be a huge fan of the Boss. But his Spotify Wrapped was not real.`\
+https://nytimes.com/2024/12/11/us/politics/josh-gottheimer-spotify-wrapped.html
+
+**Ashworth's Man Utd exit a 'bad situation' - Amorim**\
+`Ruben Amorim described Dan Ashworth’s departure from Manchester United as “a bad situation” before his club’s Europa League fixture against FC Viktoria Plzeň, but admitted such turnover can occur at football clubs.`\
+https://nytimes.com/athletic/5987612/2024/12/11/ruben-amorim-dan-ashworth/
+
 **Colleges Warn Foreign Students to Get to Campus Before Trump Takes Office**\
 `Harvard, Penn and U.S.C. were among the universities and colleges that issued advisories in anticipation of possible travel bans.`\
 https://nytimes.com/2024/12/11/us/colleges-international-students-trump-travel-ban.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/11/us/trump-news/heres-what-kash-patel-has-said
 **Trump Wants Mass Deportations. He Will Need Jails and Sanctuary Cities to Help.**\
 `Immigration experts say the Trump administration would need cooperation from local law enforcement to deport millions of people.`\
 https://nytimes.com/2024/12/11/us/politics/trump-immigration-deportations.html
-
-**Commanders' Noah Brown could miss rest of season with 'internal' injury**\
-`Brown, Washington's No. 2 receiver, has 35 receptions for 453 yards and one touchdown in 11 games this season. `\
-https://nytimes.com/athletic/5987427/2024/12/11/commanders-noah-brown-injury/
-
-**Building Trust in an Age of Distrust**\
-`At this year’s DealBook Summit, there was a sense that trust was becoming harder to come by and that the rules for how people judge the truth had shifted.`\
-https://nytimes.com/2024/12/11/business/dealbook/summit-elected-officials-leaders.html
 
