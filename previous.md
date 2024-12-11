@@ -1,3 +1,7 @@
+**Did Christopher Wray Just Defy Donald Trump?**\
+`Now, the Senate has to do its job.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/chris-wray-fbi-trump-step-down
+
 **Why Was a Murder Suspect’s Instagram Taken Down, but Not His Goodreads?**\
 `Luigi Mangione’s social media accounts attracted swift attention after he was arrested in the killing of UnitedHealthcare’s chief executive. When do companies scrub a digital trail?`\
 https://nytimes.com/2024/12/11/technology/social-media-goodreads-reddit-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/business/media/new-york-times-tech-guild-deal.htm
 **Russian Military and Commercial Activity Appears Halted at Key Syrian Port**\
 `Satellite images from last week and this week show that naval vessels docked at the port city of Tartus have left. According to marine tracking data, no cargo ships have entered or left Tartus since Monday.`\
 https://nytimes.com/2024/12/11/world/middleeast/russia-syria-assad.html
-
-**‘Golden Bachelor’ Star Announces Cancer Diagnosis**\
-`Gerry Turner rose to prominence as a septuagenarian star of a reality dating show. In an interview with People, he said he has a type of non-Hodgkin lymphoma.`\
-https://nytimes.com/2024/12/11/style/golden-bachelor-gerry-turner-cancer.html
 

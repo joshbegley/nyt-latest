@@ -1,3 +1,7 @@
+**Did Christopher Wray Just Defy Donald Trump?**\
+`Now, the Senate has to do its job.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/chris-wray-fbi-trump-step-down
+
 **Why Was a Murder Suspect’s Instagram Taken Down, but Not His Goodreads?**\
 `Luigi Mangione’s social media accounts attracted swift attention after he was arrested in the killing of UnitedHealthcare’s chief executive. When do companies scrub a digital trail?`\
 https://nytimes.com/2024/12/11/technology/social-media-goodreads-reddit-tiktok.html
