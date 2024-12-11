@@ -1,3 +1,7 @@
+**Atalanta couldn't quite beat Real Madrid - but showed why the Serie A title is within reach**\
+`Going toe-to-toe with European royalty will also only add to Atalanta's conviction they can win Italy's biggest prize `\
+https://nytimes.com/athletic/5985255/2024/12/11/atalanta-real-madrid-serie-a-title-challenge/
+
 **The Aston Villa striker debate: Where Jhon Duran's emergence leaves Ollie Watkins**\
 `The strikers have yet to thrive in partnership, but the Colombian's contributions off the bench continue to prove spectacular`\
 https://nytimes.com/athletic/5983250/2024/12/11/aston-villa-watkins-duran-leipzig/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5985938/2024/12/11/spencer-horwitz-luis-ortiz-pirat
 **Marlins agree to trade infielder Jake Burger to Rangers: Source**\
 `Burger hit .250/.301/.460 with 29 home runs, 76 RBIs and a .761 OPS in 2024.`\
 https://nytimes.com/athletic/5986018/2024/12/11/jake-burger-rangers-marlins-trade/
-
-**Brighton's defensive instability - and injuries - are undermining European ambitions**\
-`Hurzeler is yet to name an unchanged starting line-up in the Premier League and it is at the back that his plans are being hit hardest`\
-https://nytimes.com/athletic/5978753/2024/12/11/brighton-defensive-instability-injuries/
 
