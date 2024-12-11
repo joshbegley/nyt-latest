@@ -1,3 +1,7 @@
+**Promoter of ‘Stop the Steal’ is Choice for Management and Budget Staff Chief**\
+`President-elect Donald J. Trump selected Ed Martin, a Missouri Republican with a long track record as an anti-abortion activist, for a top position in the agency that administers the budget.`\
+https://nytimes.com/2024/12/11/us/politics/ed-martin-trump-office-management-budget.html
+
 **Fade the Chiefs? History says Kansas City's luck will run out in the playoffs**\
 `Can the Chiefs keep riding close, one-score wins to another Super Bowl? History says no.`\
 https://nytimes.com/athletic/5987603/2024/12/11/chiefs-super-bowl-odds-betting-clutch/
