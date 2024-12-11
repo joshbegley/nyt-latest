@@ -1,13 +1,17 @@
+**USMNT milestone: Weston McKennie and Tim Weah combine for special Juventus strike**\
+`A big night for the USMNT's Champions League representatives was capped off by McKennie's fine goal for Juventus`\
+https://nytimes.com/athletic/5988062/2024/12/11/usmnt-juventus-mckennie-weah-champions-league/
+
 **Justin Herbert ruled out of Wednesday's practice with ankle injury, leg contusion**\
 `Herbert sustained the leg injuries during Los Angeles' loss to the Kansas City Chiefs on Sunday night`\
 https://nytimes.com/athletic/5988045/2024/12/11/justin-herbert-chargers-ankle-leg-contusion/
 
 **Phillies miss out on Garrett Crochet after offering top prospects at trade deadline**\
-`Major-league sources portrayed the Phillies and White Sox as near trade partners in July. The Phillies' calculus changed this offseason.`\
+`League sources portrayed the Phillies and White Sox as near trade partners in July. But this offseason, the Phillies' calculus changed.`\
 https://nytimes.com/athletic/5988070/2024/12/11/garrett-crochet-phillies-white-sox-trade-talks/
 
 **What we’re hearing about the Chicago Cubs: Win-now trades, pursuing Roki Sasaki and more**\
-`Why would the Cubs trade Isaac Paredes already, the latest on Sasaki and Cody Bellinger and more.`\
+`Why would the Cubs trade Isaac Paredes already, the latest on Sasaki and Cody Bellinger, and more.`\
 https://nytimes.com/athletic/5988170/2024/12/11/cubs-isaac-paredes-trade-roki-sasaki/
 
 **Bronny James to play in first G League road game Thursday: Source**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/theater/martin-benson-dead.html
 **So Much Losing**\
 `President-elect Donald Trump is stocking his administration with people who have lost elections.`\
 https://nytimes.com/2024/12/11/us/politics/trump-cabinet-picks-elections.html
-
-**The F.B.I. Director Said He Would Resign**\
-`Also, A.D.H.D. diagnoses are surging among older Americans. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/12/11/briefing/fbi-director-step-down-search-dissapeared-syria.html
 
