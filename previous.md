@@ -1,3 +1,15 @@
+**Five things we learned from Amorim's first five Man Utd games**\
+`Looking for meaning in the new head coach's early reign - changing roles, squad weaknesses, and how he'll put things right`\
+https://nytimes.com/athletic/5983442/2024/12/11/five-things-we-learned-from-amorims-first-five-man-utd-games/
+
+**Michael Cole, ‘Mod Squad’ Actor, Dies at 84**\
+`Mr. Cole, who played the wealthy Pete Cochran, had been the last of the show’s three stars still living.`\
+https://nytimes.com/2024/12/11/arts/michael-cole-dead.html
+
+**The resurgence of Will Hughes - a cult hero in waiting, if he can keep his spot**\
+`A run in the team has given the midfielder a new opportunity, and he's taken it`\
+https://nytimes.com/athletic/5976832/2024/12/11/palace-will-hughes-resurgence/
+
 **How Ruud van Nistelrooy is building on Leicester's box midfield foundations**\
 `It is early days but Van Nistelrooy is setting his stall out on how he wants Leicester to play - and it is on the front foot`\
 https://nytimes.com/athletic/5983549/2024/12/11/how-ruud-van-nistelrooy-is-building-on-leicesters-box-midfield-foundations/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/11/briefing/syria-attacks-israel-gaza.html
 **A Search in Syria for the Disappeared**\
 `Syrians raced to newly emptied prisons to reunite with loved ones snatched away by the brutal regime of Bashar al-Assad, but their quest sometimes took them to the morgue.`\
 https://nytimes.com/2024/12/11/world/middleeast/syria-prisoners-dead.html
-
-**A Tangled and Troubling Legacy Pushes Romanians Further to the Right**\
-`A ultranationalist politician’s surge in Romania shows how many people there would rather forget the country’s fascist past during World War II, experts say.`\
-https://nytimes.com/2024/12/11/world/europe/a-tangled-and-troubling-legacy-pushes-romanians-further-to-the-right.html
-
-**Juventus vs Manchester City preview: Storylines, odds, prediction as City hopes to get back on track**\
-`Juventus and Manchester City are in the middle of the Champions League table. A loss for either one makes things tight down the stretch.`\
-https://nytimes.com/athletic/5984371/2024/12/11/juventus-manchester-city-odds-prediction-champions-league/
-
-**Week 15 fantasy football rankings: Sleepers, projections, starts, sits | Rico Dowdle, Marvin Harrison**\
-`In his insightful rundown for the first round of the fantasy playoffs, Jake Ciely notes that Rico Dowdle has been on a RB1 level of late. `\
-https://nytimes.com/athletic/5985016/2024/12/11/week-15-fantasy-football-rankings-sleepers-projections-starts-sits-kirk-cousins-marvin-harrison/
 
