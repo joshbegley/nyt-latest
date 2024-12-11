@@ -1,4 +1,4 @@
-**Albertsons Backs Out of Merger Deal After Court Rulings**\
+**Albertsons Backs Out of Merger Deal and Sues Kroger After Court Rulings**\
 `The supermarket chain had tried to join forces with Kroger, but judges sided with federal and state regulators who charged that the merger would reduce competition.`\
 https://nytimes.com/2024/12/11/business/albertsons-kroger-merger-deal.html
 
