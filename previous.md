@@ -1,3 +1,15 @@
+**Syria’s new government tries to balance the need for order against a clamor for retaliation.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syrias-new-government-tries-to-balance-the-need-for-order-against-a-clamor-for-retaliation
+
+**Bipartisan Lawmakers Seek to Break Up Giant Health Care Conglomerates**\
+`New legislation would force UnitedHealth Group, CVS Health and Cigna to each sell their pharmacies within three years.`\
+https://nytimes.com/2024/12/11/business/warren-hawley-pharmacy-benefit-managers.html
+
+**Objectifying the Accused**\
+`What happens when violent crimes are overshadowed by appearances?`\
+https://nytimes.com/2024/12/11/style/luigi-mangione-uhc-social.html
+
 **Might Saudi Arabia actually be a good choice for a men's World Cup?**\
 `Awarding the tournament to Gulf state is controversial but there are positives, too, argues Matt Slater`\
 https://nytimes.com/athletic/5981357/2024/12/11/saudi-arabia-world-cup-fifa-choice/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/11/arts/music/die-frau-ohne-schatten-met-opera.html
 **The SEC reigns supreme in TV numbers this season**\
 `Four of the five most-watched college football teams this regular season are SEC teams. `\
 https://nytimes.com/athletic/5984665/2024/12/11/sec-football-viewership-georgia-alabama/
-
-**Astros, Cubs discuss possible trade involving Kyle Tucker, Seiya Suzuki**\
-`Cubs outfielder Seiya Suzuki has also been part of the discussions between Chicago and Houston. `\
-https://nytimes.com/athletic/5987064/2024/12/11/astros-cubs-kyle-tucker-seiya-suzuki-trade/
-
-**Prominent Real Estate Agents and Brothers Charged With Sex Trafficking**\
-`Oren and Tal Alexander, once stars of the real estate industry, had a precipitous fall after women filed lawsuits accusing them of sexual assault. Their brother Alon was also charged.`\
-https://nytimes.com/2024/12/11/realestate/alexander-brothers-arrested-charged-sexual-assault.html
-
-**F.D.A. Tries Last-Ditch Move to Slash Nicotine Levels in Cigarettes**\
-`The agency is asking the White House, in the final days of the Biden era, to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
-https://nytimes.com/2024/12/11/health/fda-low-nicotine-cigarettes-biden.html
 

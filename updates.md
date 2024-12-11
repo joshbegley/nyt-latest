@@ -1,3 +1,15 @@
+**Syria’s new government tries to balance the need for order against a clamor for retaliation.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syrias-new-government-tries-to-balance-the-need-for-order-against-a-clamor-for-retaliation
+
+**Bipartisan Lawmakers Seek to Break Up Giant Health Care Conglomerates**\
+`New legislation would force UnitedHealth Group, CVS Health and Cigna to each sell their pharmacies within three years.`\
+https://nytimes.com/2024/12/11/business/warren-hawley-pharmacy-benefit-managers.html
+
+**Objectifying the Accused**\
+`What happens when violent crimes are overshadowed by appearances?`\
+https://nytimes.com/2024/12/11/style/luigi-mangione-uhc-social.html
+
 **Might Saudi Arabia actually be a good choice for a men's World Cup?**\
 `Awarding the tournament to Gulf state is controversial but there are positives, too, argues Matt Slater`\
 https://nytimes.com/athletic/5981357/2024/12/11/saudi-arabia-world-cup-fifa-choice/
