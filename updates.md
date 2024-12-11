@@ -1,3 +1,11 @@
+**Bears mock draft reaction: How would Kelvin Banks Jr. improve Caleb Williams' O-line?**\
+`The focus for the draft should be in the trenches for the Bears. How would Banks fit on the offensive line?`\
+https://nytimes.com/athletic/5984807/2024/12/11/bears-mock-draft-reaction-kelvin-banks/
+
+**Jaylen Wells' screen navigation, Alperen Şengün's improved footwork: The IkoSystem**\
+`Jaylen Wells is showing some strong defensive acumen in his development with the Grizzlies.`\
+https://nytimes.com/athletic/5984383/2024/12/11/jaylen-wells-alperen-sengun-ikosystem/
+
 **Trade Carlos Correa? No thanks. Rocco Baldelli wants 'tone-setting' shortstop with Twins**\
 `Correa’s name has generated a little buzz at the Winter Meetings as a possible fallback option for teams that missed out on Juan Soto.`\
 https://nytimes.com/athletic/5984755/2024/12/11/carlos-correa-twins-trade-rocco-baldelli/
