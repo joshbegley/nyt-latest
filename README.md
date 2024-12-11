@@ -1,3 +1,7 @@
+**What we’re hearing about the Chicago Cubs: Win-now trades, pursuing Roki Sasaki and more**\
+`Why would the Cubs trade Isaac Paredes already, the latest on Sasaki and Cody Bellinger and more.`\
+https://nytimes.com/athletic/5988170/2024/12/11/cubs-isaac-paredes-trade-roki-sasaki/
+
 **Bronny James to play in first G League road game Thursday: Source**\
 `Bronny is averaging 8.7 points and 2.7 assists in three G League games this season. He’s appeared in seven contests with the Lakers.`\
 https://nytimes.com/athletic/5988088/2024/12/11/bronny-james-g-league-road-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987990/2024/12/11/cristian-romero-apologises-poste
 **Mandel: North Carolina is going to regret hiring Bill Belichick**\
 `What works in the NFL doesn’t necessarily work in college. Bill Belichick and North Carolina may find out the hard way.`\
 https://nytimes.com/athletic/5985593/2024/12/11/bill-belichick-north-carolina-college-coach/
-
-**Raiders owner Mark Davis to wait for offseason to decide on Antonio Pierce**\
-`The Raiders owner declined to commit to bringing Pierce back in 2025. "I don't even want to talk about that right now,” Davis said.`\
-https://nytimes.com/athletic/5987734/2024/12/11/raiders-mark-davis-antonio-pierce/
 
