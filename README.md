@@ -1,3 +1,7 @@
+**The Prominent Maryland Family of the Suspect in the C.E.O. Killing**\
+`Until the arrest this week of Luigi Mangione, the family was best known for building a business that has made them a force in local politics and charity.`\
+https://nytimes.com/2024/12/10/us/mangione-family-shooting-suspect.html
+
 **"We got what we deserved": Up-and-down Blue Jackets outworked, outplayed by Flyers**\
 `The whole team struggled to match the Flyers' effort as the Blue Jackets fell 5-3.`\
 https://nytimes.com/athletic/5985779/2024/12/10/blue-jackets-outworked-evason-flyers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/world/asia/north-korea-martial-law-reaction.html
 **Seemingly Forever**\
 `Kathy Bloomer and Jeff Chen have their first Times collaboration.`\
 https://nytimes.com/2024/12/10/crosswords/daily-puzzle-2024-12-11.html
-
-**Blue Jays' acquisition of Andrés Giménez has to set table for something more**\
-`The Jays made their first big splash of the offseason, but this much is clear: Much work is ahead.`\
-https://nytimes.com/athletic/5985663/2024/12/10/blue-jays-andres-gimenez-offseason-plans/
 
