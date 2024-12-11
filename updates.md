@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Sidney Crosby irked by boos from Penguins fans in loss to Avalanche**\
+`Crosby wasn't impressed that some Penguins fans turned on the team in the third period of a 6-2 loss against the Avalanche on Tuesday.`\
+https://nytimes.com/athletic/5985643/2024/12/10/penguins-avalanche-sidney-crosby/
+
 **The Prominent Maryland Family of the Suspect in the C.E.O. Killing**\
 `Until the arrest this week of Luigi Mangione, the family was best known for building a business that has made them a force in local politics and charity.`\
 https://nytimes.com/2024/12/10/us/mangione-family-shooting-suspect.html

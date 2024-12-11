@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Sidney Crosby irked by boos from Penguins fans in loss to Avalanche**\
+`Crosby wasn't impressed that some Penguins fans turned on the team in the third period of a 6-2 loss against the Avalanche on Tuesday.`\
+https://nytimes.com/athletic/5985643/2024/12/10/penguins-avalanche-sidney-crosby/
+
 **The Prominent Maryland Family of the Suspect in the C.E.O. Killing**\
 `Until the arrest this week of Luigi Mangione, the family was best known for building a business that has made them a force in local politics and charity.`\
 https://nytimes.com/2024/12/10/us/mangione-family-shooting-suspect.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/10/learning/2024StudentNewsQuiz.html
 **North Korea Says Yoon Has Caused ‘Pandemonium’ in South Korea**\
 `In its first statement about the turmoil over President Yoon Suk Yeol’s martial law decree, the North said nothing about how inter-Korean relations might be affected.`\
 https://nytimes.com/2024/12/10/world/asia/north-korea-martial-law-reaction.html
-
-**Seemingly Forever**\
-`Kathy Bloomer and Jeff Chen have their first Times collaboration.`\
-https://nytimes.com/2024/12/10/crosswords/daily-puzzle-2024-12-11.html
 
