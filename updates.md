@@ -1,3 +1,7 @@
+**Building Trust in an Age of Distrust**\
+`At this year’s DealBook Summit, there was a sense that trust was becoming harder to come by and that the rules for how people judge the truth had shifted.`\
+https://nytimes.com/2024/12/11/business/dealbook/summit-elected-officials-leaders.html
+
 **Here’s what Kash Patel has said he would do to the F.B.I.**\
 `By Elizabeth Williamson and Charlie Savage`\
 https://nytimes.com/live/2024/12/11/us/trump-news/heres-what-kash-patel-has-said-he-would-do-to-the-fbi

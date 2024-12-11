@@ -11,7 +11,7 @@ https://nytimes.com/2024/12/11/us/politics/trump-immigration-deportations.html
 https://nytimes.com/athletic/5987427/2024/12/11/commanders-noah-brown-injury/
 
 **Building Trust in an Age of Distrust**\
-`At this year’s DealBook Summit, there was a sense that trust was becoming harder to come by and that the rules of how people judge the truth had shifted.`\
+`At this year’s DealBook Summit, there was a sense that trust was becoming harder to come by and that the rules for how people judge the truth had shifted.`\
 https://nytimes.com/2024/12/11/business/dealbook/summit-elected-officials-leaders.html
 
 **Could Cats Become a Carrier of Bird Flu?**\
