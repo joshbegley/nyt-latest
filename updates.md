@@ -1,3 +1,43 @@
+**Storm Aid vs. Partisan Power: A Showdown Looms in North Carolina**\
+`As Republicans try to muscle through a bill that is nominally dedicated to hurricane relief but in fact erodes Democrats’ influence, residents of the areas hit hardest say they urgently need help.`\
+https://nytimes.com/2024/12/11/us/politics/storm-aid-vs-partisan-power-a-showdown-looms-in-north-carolina.html
+
+**Reckoning With the Scale of California Wildfires**\
+`The numbers should be eye-opening to anyone who hasn’t spent much time reckoning with the sheer scale of the challenge of managing California fire.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/california-wildfire-damage
+
+**What’s Your All-Time Favorite Toy?**\
+`Furbys, Nintendo Switch, Rubik’s Cube, American Girl dolls, or Squishmallows: What’s on your Mount Rushmore of toys?`\
+https://nytimes.com/2024/12/11/learning/whats-your-all-time-favorite-toy.html
+
+**The One Thing the U.S. Can Do to Help Syria Now**\
+`Editorial board writer Farah Stockman argues ending the sanctions on Syria is the best way for America to help stabilize the country following the collapse of the Assad regime.`\
+https://nytimes.com/2024/12/11/opinion/farah-stockman-syria-assad-sanctions.html
+
+**Suspect in C.E.O.’s Killing Fights Extradition to New York**\
+`Luigi Mangione, who was charged with murder in the fatal shooting of Brian Thompson, the chief executive of UnitedHealthcare, is a 26-year-old Ivy League graduate from a prominent Maryland family. Maria Cramer, a New York Times reporter covering crime, describes what else we know.`\
+https://nytimes.com/video/nyregion/100000009870002/suspect-in-ceos-killing-fights-extradition-to-new-york.html
+
+**In Aleppo, Rebels Give a Sense of What May Come in Syria**\
+`Rebel fighters who took control of Aleppo about two weeks ago have promised security and continuity. Prices have skyrocketed, but residents express some hope for the future.`\
+https://nytimes.com/2024/12/11/world/middleeast/aleppo-syria-rebel-government.html
+
+**What to Know About the Latest Inflation Report**\
+`Inflation has been cooling notably after peaking in 2022, but in recent months it has shown signs of stalling.`\
+https://nytimes.com/2024/12/11/business/inflation-cpi-november.html
+
+**Mock draft analysis: Panthers have plenty of needs and Abdul Carter could fill one of them**\
+`With Bryce Young's emergence, the Panthers could be in position to take the best player available with a likely top-10 draft pick.`\
+https://nytimes.com/athletic/5984883/2024/12/11/panthers-abdul-carter-penn-state-mock-draft-selection/
+
+**Biden Administration Looks to Reinforce U.S.-China Ties Ahead of Trump’s Return**\
+`Senior Treasury officials are holding a final round of talks with a new round of economic volatility on the horizon.`\
+https://nytimes.com/2024/12/11/us/politics/us-china-ties-trump.html
+
+**Prepare for Guacamole to Be a Luxury Item**\
+`Trump’s immigration and tariff plans will strain American farming and raise the prices you see at the store.`\
+https://nytimes.com/2024/12/11/opinion/trump-tariffs-immigration-inflation.html
+
 **Chelsea's Acheampong close to signing new contract - Maresca**\
 `Enzo Maresca has confirmed Chelsea academy graduate Josh Acheampong is close to signing a new contract and is set start his first senior game for the club against Astana tomorrow night.`\
 https://nytimes.com/athletic/5986239/2024/12/11/chelsea-josh-acheampong-contract/
