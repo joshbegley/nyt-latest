@@ -1,5 +1,9 @@
+**A.D.H.D. Diagnoses Are Surging Among Older Americans**\
+`Many say they are relieved to finally have an explanation after decades of struggle.`\
+https://nytimes.com/2024/12/11/well/mind/adhd-diagnosis-older-middle-age.html
+
 **Reflections on Motherhood, Careers and Identity**\
-`Readers respond to an essay by Daniela J. Lamas. Also: Andy Griffith’s Mayberry today; Donald Trump’s loyal test; never an exile; choosing charities.`\
+`Readers respond to an essay by Daniela J. Lamas. Also: Andy Griffith’s Mayberry today; Donald Trump’s loyalty test; never an exile; choosing charities.`\
 https://nytimes.com/2024/12/11/opinion/motherhood-careers-identity.html
 
 **Lowetide: The Oilers' summer free-agent signings are showing a pulse**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/11/weather/chido-map-path-tracker.html
 **Google Unveils A.I. Agent That Can Use Websites on Its Own**\
 `The experimental tool can browse spreadsheets, shopping sites and other services, before taking action on behalf of the computer user.`\
 https://nytimes.com/2024/12/11/technology/google-ai-agent-gemini.html
-
-**Miedema aiming for Man City return in early January - Taylor**\
-`Manchester City head coach Gareth Taylor says Vivianne Miedema is targeting a return to first-team action in January following knee surgery.`\
-https://nytimes.com/athletic/5986792/2024/12/11/vivianne-miedema-manchester-city-injury-return/
 

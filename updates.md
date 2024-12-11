@@ -1,3 +1,23 @@
+**Reflections on Motherhood, Careers and Identity**\
+`Readers respond to an essay by Daniela J. Lamas. Also: Andy Griffith’s Mayberry today; Donald Trump’s loyal test; never an exile; choosing charities.`\
+https://nytimes.com/2024/12/11/opinion/motherhood-careers-identity.html
+
+**Lowetide: The Oilers' summer free-agent signings are showing a pulse**\
+`July 1 delivered the Oilers a series of value free-agent deals with established veterans. How are they performing?`\
+https://nytimes.com/athletic/5984210/2024/12/11/edmonton-oilers-arvidsson-skinner-henrique/
+
+**NFL owners approve 8 percent sale of Eagles to investment groups**\
+`NFL owners voted in August to expand the league’s rules to allow private equity firms to buy a limited amount of stakes in teams.`\
+https://nytimes.com/athletic/5986730/2024/12/11/nfl-approve-sale-eagles/
+
+**‘Maria’ Review: A Diva in Decline**\
+`Angelina Jolie plays the opera star Maria Callas in a movie that can’t figure her out.`\
+https://nytimes.com/2024/12/11/movies/maria-review-divas-decline.html
+
+**NFL owners approve 15 percent sale of Raiders**\
+`Mark Davis is still the controlling owner of the Raiders, which means he’s who holds decision-making power.`\
+https://nytimes.com/athletic/5985015/2024/12/11/nfl-approve-raiders-sale/
+
 **FIFA confirms 2030, 2034 World Cup host nations: All you need to know**\
 `Both bids ran unopposed and were officially voted through at a FIFA Congress meeting on Wednesday.`\
 https://nytimes.com/athletic/5981352/2024/12/11/fifa-world-cup-hosts-saudi-arabia-europe-africa-south-america/

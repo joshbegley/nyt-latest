@@ -1,3 +1,23 @@
+**Reflections on Motherhood, Careers and Identity**\
+`Readers respond to an essay by Daniela J. Lamas. Also: Andy Griffith’s Mayberry today; Donald Trump’s loyal test; never an exile; choosing charities.`\
+https://nytimes.com/2024/12/11/opinion/motherhood-careers-identity.html
+
+**Lowetide: The Oilers' summer free-agent signings are showing a pulse**\
+`July 1 delivered the Oilers a series of value free-agent deals with established veterans. How are they performing?`\
+https://nytimes.com/athletic/5984210/2024/12/11/edmonton-oilers-arvidsson-skinner-henrique/
+
+**NFL owners approve 8 percent sale of Eagles to investment groups**\
+`NFL owners voted in August to expand the league’s rules to allow private equity firms to buy a limited amount of stakes in teams.`\
+https://nytimes.com/athletic/5986730/2024/12/11/nfl-approve-sale-eagles/
+
+**‘Maria’ Review: A Diva in Decline**\
+`Angelina Jolie plays the opera star Maria Callas in a movie that can’t figure her out.`\
+https://nytimes.com/2024/12/11/movies/maria-review-divas-decline.html
+
+**NFL owners approve 15 percent sale of Raiders**\
+`Mark Davis is still the controlling owner of the Raiders, which means he’s who holds decision-making power.`\
+https://nytimes.com/athletic/5985015/2024/12/11/nfl-approve-raiders-sale/
+
 **FIFA confirms 2030, 2034 World Cup host nations: All you need to know**\
 `Both bids ran unopposed and were officially voted through at a FIFA Congress meeting on Wednesday.`\
 https://nytimes.com/athletic/5981352/2024/12/11/fifa-world-cup-hosts-saudi-arabia-europe-africa-south-america/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/11/technology/google-ai-agent-gemini.html
 **Miedema aiming for Man City return in early January - Taylor**\
 `Manchester City head coach Gareth Taylor says Vivianne Miedema is targeting a return to first-team action in January following knee surgery.`\
 https://nytimes.com/athletic/5986792/2024/12/11/vivianne-miedema-manchester-city-injury-return/
-
-**Scoop City: This week's 10 key playoff scenarios**\
-`A look at who can clinch a playoff spot, plus five 2025 free agents to watch, Brett Favre's confrontation, latest on Belichick and McCarthy.`\
-https://nytimes.com/athletic/5986833/2024/12/11/2024-nfl-playoff-bracket-wild-card-race-scoop-city/
-
-**Supreme Court Won’t Decide Nvidia Securities Fraud Case After All**\
-`In an unsigned order, the justices dismissed the case against the tech giant as “improvidently granted,” meaning they had concluded that it had been a mistake to take it up.`\
-https://nytimes.com/2024/12/11/us/politics/supreme-court-nvidia-securities-fraud.html
-
-**Oilers' Stuart Skinner rebounds against Lightning: 'He’s been really solid'**\
-`Skinner kicked off a stretch against the NHL's best by stopping 21 of 22 shots, helping the Oilers to their sixth win in seven games.`\
-https://nytimes.com/athletic/5986162/2024/12/11/oilers-stuart-skinner-lightning-win-draisaitl/
-
-**Bucks' 'team basketball' has them in NBA Cup semis for second consecutive season**\
-`Giannis Antetokounmpo was dominant, Damian Lillard was clutch, Khris Middleton was connective and Bobby Portis stayed hot in the Bucks win.`\
-https://nytimes.com/athletic/5986339/2024/12/11/bucks-nba-cup-semifinals/
-
-**Who Set the Stage for al-Assad’s Ouster? There Are Different Answers in the U.S. and Israel.**\
-`President Biden says he weakened Russia, Iran and Hezbollah, laying the groundwork for Bashar al-Assad’s ouster. Prime Minister Benjamin Netanyahu says the Syrian leader would still be in power had he listened to American advice.`\
-https://nytimes.com/2024/12/11/us/politics/al-assad-ouster-us-israel.html
 
