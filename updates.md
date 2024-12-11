@@ -1,3 +1,15 @@
+**Building Trust in an Age of Distrust**\
+`At this year’s DealBook Summit, there was a sense that trust was becoming harder to come by and that the rules of how people judge the truth had shifted.`\
+https://nytimes.com/2024/12/11/business/dealbook/summit-elected-officials-leaders.html
+
+**Could Cats Become a Carrier of Bird Flu?**\
+`A new study highlights the need for public health officials to ramp up bird flu surveillance in our feline companions.`\
+https://nytimes.com/2024/12/11/health/bird-flu-h5n1-cats.html
+
+**From the DealBook Summit: Influential People Share Their Insights**\
+`Industry leaders attending the conference were asked about artificial intelligence, the economy, international relations and more.`\
+https://nytimes.com/2024/12/11/business/dealbook/leaders-advice-insights.html
+
 **Serena Williams Is Competing on a New Court: Investment**\
 `“I’ve learned to trust my instincts in any business venture or brand I’m championing,” the retired tennis star said in an interview at the DealBook Summit.`\
 https://nytimes.com/2024/12/11/business/dealbook/serena-williams-investment.html
