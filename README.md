@@ -1,8 +1,16 @@
+**"We got what we deserved": Up-and-down Blue Jackets outworked, outplayed by Flyers**\
+`The whole team struggled to match the Flyers' effort as the Blue Jackets fell 5-3.`\
+https://nytimes.com/athletic/5985779/2024/12/10/blue-jackets-outworked-evason-flyers/
+
+**Until Saturday: CFP first-round upset watch**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/5985798/2024/12/10/college-football-playoff-upsets-heisman-until-saturday/
+
 **Flyers capture perhaps their most important win of the season**\
 `Games like Philadelphia's win over Columbus on Tuesday could matter in a narrow playoff race in the spring. `\
 https://nytimes.com/athletic/5985794/2024/12/10/flyers-blue-jackets-nhl-season/
 
-**Maple Leafs report cards: Stolarz, PK rescue dreadful team effort for overtime win**\
+**Maple Leafs report cards: Anthony Stolarz, PK rescue dreadful team effort for overtime win**\
 `The scoreline very much flattered Toronto in a game where the Devils controlled the run of play but ran up against a red-hot Stolarz.`\
 https://nytimes.com/athletic/5985445/2024/12/10/maple-leafs-report-cards-stolarz-pk-devils/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/10/crosswords/daily-puzzle-2024-12-11.html
 **Blue Jays' acquisition of Andrés Giménez has to set table for something more**\
 `The Jays made their first big splash of the offseason, but this much is clear: Much work is ahead.`\
 https://nytimes.com/athletic/5985663/2024/12/10/blue-jays-andres-gimenez-offseason-plans/
-
-**Red Sox still on the sidelines as pitching market heats up and options dwindle**\
-`“In order to attract free-agent talent, you kind have to be willing to get uncomfortable,” chief baseball officer Craig Breslow said.`\
-https://nytimes.com/athletic/5985261/2024/12/10/red-sox-mlb-free-agent-pitching/
-
-**Buster Posey sold new Giants shortstop Willy Adames on his vision: 'Just being authentic'**\
-`The Giants got their man in Adames but the rising price on starters may take them out of the Corbin Burnes market.`\
-https://nytimes.com/athletic/5985667/2024/12/10/willy-adames-buster-posey-free-agent-pitch/
 
