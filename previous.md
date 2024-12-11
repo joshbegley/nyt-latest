@@ -1,3 +1,23 @@
+**Oilers' Stuart Skinner rebounds against Lightning: 'He’s been really solid'**\
+`Skinner kicked off a stretch against the NHL's best by stopping 21 of 22 shots, helping the Oilers to their sixth win in seven games.`\
+https://nytimes.com/athletic/5986162/2024/12/11/oilers-stuart-skinner-lightning-win-draisaitl/
+
+**Bucks' 'team basketball' has them in NBA Cup semis for second consecutive season**\
+`Giannis Antetokounmpo was dominant, Damian Lillard was clutch, Khris Middleton was connective and Bobby Portis stayed hot in the Bucks win.`\
+https://nytimes.com/athletic/5986339/2024/12/11/bucks-team-basketball-has-them-in-nba-cup-semis-for-second-consecutive-season/
+
+**Who Set the Stage for al-Assad’s Ouster? There Are Different Answers in the U.S. and Israel.**\
+`President Biden says he weakened Russia, Iran and Hezbollah, laying the groundwork for Bashar al-Assad’s ouster. Prime Minister Benjamin Netanyahu says the Syrian leader would still be in power had he listened to American advice.`\
+https://nytimes.com/2024/12/11/us/politics/al-assad-ouster-us-israel.html
+
+**Anthony Serafino: Bromley's new American owner 'addicted to watching EFL'**\
+`Anthony Serafino has got a bad case of “footballitis” — although he would probably call it “socceritis” — and it is the particularly virulent English strain of the affliction that has taken hold.`\
+https://nytimes.com/athletic/5986771/2024/12/11/bromley-takeover-anthony-serafino-efl/
+
+**NFL announces Berlin to host regular season game in 2025**\
+`Berlin’s Olympiastadion will host its first NFL regular season game in 2025.`\
+https://nytimes.com/athletic/5986598/2024/12/11/nfl-berlin-germany-international-series/
+
 **Penguins Today: Sidney Crosby and Tristan Jarry's telling quotes**\
 `On the same night, Jarry showed some accountability, and Crosby showed some irritation with fans.`\
 https://nytimes.com/athletic/5986738/2024/12/11/penguins-today-sidney-crosby-fans-booing/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/11/arts/television/paris-hilton-nicole-richie-encore
 **Defense, game management questions plague Bills as playoffs approach**\
 `The Bills had their poorest showing since losing to the Ravens earlier this season.`\
 https://nytimes.com/athletic/5985986/2024/12/11/bills-defense-play-call-josh-allen-playoffs/
-
-**The Bounce: Jimmy Butler to one of these three contenders?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5986457/2024/12/11/jimmy-butler-miami-heat-warriors-mavericks-rockets-nba-the-bounce/
-
-**Blinken will travel to Jordan and Turkey, the State Department says.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/blinken-will-travel-to-jordan-and-turkey-the-state-department-says
-
-**Tom Brady's collection of watches and memorabilia sells for $9m at auction**\
-`Tom Brady's collection included watches, jerseys and a football. The highest-selling of the 41 items was a $1.14 million Rolex watch. `\
-https://nytimes.com/athletic/5986459/2024/12/11/tom-brady-auction-watches-patriots-sothebys/
-
-**Albertsons Backs Out of Merger Deal and Sues Kroger After Court Rulings**\
-`The supermarket chain had tried to join forces with Kroger, but judges sided with federal and state regulators who charged that the merger would reduce competition.`\
-https://nytimes.com/2024/12/11/business/albertsons-kroger-merger-deal.html
-
-**Wimbledon tennis expansion set for High Court battle on both sides**\
-`Plans to expand Wimbledon are set to go before the U.`\
-https://nytimes.com/athletic/5986571/2024/12/11/wimbledon-tennis-expansion-high-court-review/
 

@@ -1,3 +1,23 @@
+**Oilers' Stuart Skinner rebounds against Lightning: 'He’s been really solid'**\
+`Skinner kicked off a stretch against the NHL's best by stopping 21 of 22 shots, helping the Oilers to their sixth win in seven games.`\
+https://nytimes.com/athletic/5986162/2024/12/11/oilers-stuart-skinner-lightning-win-draisaitl/
+
+**Bucks' 'team basketball' has them in NBA Cup semis for second consecutive season**\
+`Giannis Antetokounmpo was dominant, Damian Lillard was clutch, Khris Middleton was connective and Bobby Portis stayed hot in the Bucks win.`\
+https://nytimes.com/athletic/5986339/2024/12/11/bucks-team-basketball-has-them-in-nba-cup-semis-for-second-consecutive-season/
+
+**Who Set the Stage for al-Assad’s Ouster? There Are Different Answers in the U.S. and Israel.**\
+`President Biden says he weakened Russia, Iran and Hezbollah, laying the groundwork for Bashar al-Assad’s ouster. Prime Minister Benjamin Netanyahu says the Syrian leader would still be in power had he listened to American advice.`\
+https://nytimes.com/2024/12/11/us/politics/al-assad-ouster-us-israel.html
+
+**Anthony Serafino: Bromley's new American owner 'addicted to watching EFL'**\
+`Anthony Serafino has got a bad case of “footballitis” — although he would probably call it “socceritis” — and it is the particularly virulent English strain of the affliction that has taken hold.`\
+https://nytimes.com/athletic/5986771/2024/12/11/bromley-takeover-anthony-serafino-efl/
+
+**NFL announces Berlin to host regular season game in 2025**\
+`Berlin’s Olympiastadion will host its first NFL regular season game in 2025.`\
+https://nytimes.com/athletic/5986598/2024/12/11/nfl-berlin-germany-international-series/
+
 **Scholz Calls for Confidence Vote, in Step Toward German Elections**\
 `Chancellor Olaf Scholz, who had few alternatives after his three-party coalition broke up, is widely expected to lose when Parliament takes up the measure on Monday.`\
 https://nytimes.com/2024/12/11/world/europe/germany-scholz-no-confidence-vote.html
