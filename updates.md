@@ -1,3 +1,11 @@
+**The Amazing Kreskin, Mentalist and 1970s Television Star, Dies at 89**\
+`His display of mysterious mind-reading powers on TV made him a pop culture phenomenon in the 1970s.`\
+https://nytimes.com/2024/12/11/obituaries/the-amazing-kreskin-dead.html
+
+**Real Madrid's big three stars all stepped up against Atalanta. Is this the start of another trophy charge?**\
+`Not only did Mbappe, Vinicius Jr and Bellingham all score on Tuesday night, they showed a level of commitment that bodes well for the future`\
+https://nytimes.com/athletic/5985748/2024/12/11/real-madrid-mbappe-vinicius-bellingham-champions-league/
+
 **Real Madrid's big three stars all stepped up against Atalanta - is this the start of another trophy charge?**\
 `Not only did Mbappe, Vinicius and Bellingham all score on Tuesday night, they showed a level of commitment that augurs well for the future`\
 https://nytimes.com/athletic/5985748/2024/12/11/real-madrid-mbappe-vinicius-bellingham-champions-league/
