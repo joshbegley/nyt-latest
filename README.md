@@ -1,3 +1,7 @@
+**Chelsea's Acheampong close to signing new contract - Maresca**\
+`Enzo Maresca has confirmed Chelsea academy graduate Josh Acheampong is close to signing a new contract and is set start his first senior game for the club against Astana tomorrow night.`\
+https://nytimes.com/athletic/5986239/2024/12/11/chelsea-josh-acheampong-contract/
+
 **The Amazing Kreskin, Mentalist and 1970s Television Star, Dies at 89**\
 `His display of mysterious mind-reading powers on TV made him a pop culture phenomenon in the 1970s.`\
 https://nytimes.com/2024/12/11/obituaries/the-amazing-kreskin-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983953/2024/12/11/newcastle-project-stalled-howe/
 **Bayer Leverkusen buoyed by a late win more reminiscent of their former selves**\
 `Xabi Alonso's side have not quite scaled the heights of last season to date, but the victory over Inter may have tweaked the muscle memory`\
 https://nytimes.com/athletic/5985279/2024/12/11/leverkusen-alonso-mukiele-inter/
-
-**Atalanta couldn't quite beat Real Madrid - but showed why the Serie A title is within reach**\
-`Going toe-to-toe with European royalty will also only add to Atalanta's conviction they can win Italy's biggest prize `\
-https://nytimes.com/athletic/5985255/2024/12/11/atalanta-real-madrid-serie-a-title-challenge/
 
