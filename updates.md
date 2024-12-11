@@ -1,5 +1,9 @@
 **Paris Hilton and Nicole Richie Revisit ‘The Simple Life’**\
 `The celebutantes-turned-businesswomen are rebooting the show that provided a blueprint for the past 20 years of reality TV.`\
+https://nytimes.com/2024/12/11/arts/television/paris-hilton-nicole-richie-encore-simple-life.html
+
+**Paris Hilton and Nicole Richie Revisit ‘The Simple Life’**\
+`The celebutantes-turned-businesswomen are rebooting the show that provided a blueprint for the past 20 years of reality TV.`\
 https://nytimes.com/2024/12/11/arts/television/paris-and-nicole-encore.html
 
 **Defense, game management questions plague Bills as playoffs approach**\
