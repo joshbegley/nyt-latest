@@ -1,3 +1,7 @@
+**Macy’s Details Multimillion-Dollar Accounting Error in Downbeat Report**\
+`Analysts see much bigger challenges for the retailer than lax accounting.`\
+https://nytimes.com/2024/12/11/business/macys-accounting-sales-profit.html
+
 **Thunder get measure of revenge over Mavericks, advance to NBA Cup semifinals**\
 `With Chet Holmgren watching from the sidelines, Oklahoma City got a statement win over the team that knocked them out of the 2024 playoffs.`\
 https://nytimes.com/athletic/5986106/2024/12/11/thunder-mavs-gilgeous-alexander-nba-cup/

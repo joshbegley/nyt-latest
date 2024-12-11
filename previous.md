@@ -1,3 +1,7 @@
+**Macy’s Details Multimillion-Dollar Accounting Error in Downbeat Report**\
+`Analysts see much bigger challenges for the retailer than lax accounting.`\
+https://nytimes.com/2024/12/11/business/macys-accounting-sales-profit.html
+
 **Thunder get measure of revenge over Mavericks, advance to NBA Cup semifinals**\
 `With Chet Holmgren watching from the sidelines, Oklahoma City got a statement win over the team that knocked them out of the 2024 playoffs.`\
 https://nytimes.com/athletic/5986106/2024/12/11/thunder-mavs-gilgeous-alexander-nba-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986311/2024/12/11/saudi-arabia-2034-world-cup-mbap
 **Aston Villa assessing women's manager De Pauw's future**\
 `Aston Villa are considering the future of their women’s first-team manager Robert de Pauw.`\
 https://nytimes.com/athletic/5986252/2024/12/11/robert-de-pauw-aston-villa-future/
-
-**John Hynes' in-game line adjustment once again sparks Wild**\
-`The one thing we've learned about John Hynes is that he's a heck of an in-game adjuster.`\
-https://nytimes.com/athletic/5986130/2024/12/11/wild-utah-john-hynes-line-adjustment/
 

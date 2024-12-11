@@ -1,3 +1,7 @@
+**Luka Dončić stifled by Thunder defense as Mavericks bow out of NBA Cup**\
+`"That’s probably one of the worst halves I’ve ever played," Dončić said of his first half in the 118-104 loss.`\
+https://nytimes.com/athletic/5986148/2024/12/11/mavericks-luka-doncic-nba-cup-okc/
+
 **Macy’s Details Multimillion-Dollar Accounting Error in Downbeat Report**\
 `Analysts see much bigger challenges for the retailer than lax accounting.`\
 https://nytimes.com/2024/12/11/business/macys-accounting-sales-profit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986346/2024/12/11/hansi-flick-red-card-ban-barcelo
 **The Athletic FC: Why Saudi Arabia is set to host 2034 World Cup, Mbappe rollercoaster**\
 `Today in TAFC: Explaining how Saudi went unopposed in their 2034 World Cup bid, Mbappe's goal and injury, Arsenal's corners playbook`\
 https://nytimes.com/athletic/5986311/2024/12/11/saudi-arabia-2034-world-cup-mbappe-injury/
-
-**Aston Villa assessing women's manager De Pauw's future**\
-`Aston Villa are considering the future of their women’s first-team manager Robert de Pauw.`\
-https://nytimes.com/athletic/5986252/2024/12/11/robert-de-pauw-aston-villa-future/
 
