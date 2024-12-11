@@ -1,3 +1,11 @@
+**Might Saudi Arabia actually be a good choice for a men's World Cup?**\
+`Awarding the tournament to Gulf state is controversial but there are positives, too, argues Matt Slater`\
+https://nytimes.com/athletic/5981357/2024/12/11/saudi-arabia-world-cup-fifa-choice/
+
+**Heat Today: Jimmy Butler trade rumors swirl, but Heat history with star exits signals waiting game**\
+`Jimmy Butler's future in Miami remains uncertain, but the Heat have a history of applying the waiting game.`\
+https://nytimes.com/athletic/5986628/2024/12/11/jimmy-butler-heat-lebron-james-dwyane-wade-shaquille-o-neal-nba/
+
 **Gomez on nearly leaving Liverpool: 'Things happen for a reason'**\
 `Joe Gomez admits he came close to leaving Liverpool last summer but is delighted that he ended up staying at Anfield.`\
 https://nytimes.com/athletic/5986719/2024/12/11/joe-gomez-liverpool-transfer-summer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/11/realestate/alexander-brothers-arrested-charged-se
 **F.D.A. Tries Last-Ditch Move to Slash Nicotine Levels in Cigarettes**\
 `The agency is asking the White House, in the final days of the Biden era, to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
 https://nytimes.com/2024/12/11/health/fda-low-nicotine-cigarettes-biden.html
-
-**Wisconsin Man Who Faked Kayaking Death and Fled U.S. Is in Custody**\
-`Ryan Borgwardt returned to the United States on his own after faking his own drowning death and fleeing to Eastern Europe, the authorities said.`\
-https://nytimes.com/2024/12/11/us/ryan-borgwardt-wisconsin-custody.html
-
-**Joe Burrow victim of home burglary during Bengals-Cowboys**\
-`Burrow is the latest pro athlete to be the target of a break-in after Patrick Mahomes and Bobby Portis also had their homes burglarized.`\
-https://nytimes.com/athletic/5986915/2024/12/11/joe-burrow-home-burglary/
 

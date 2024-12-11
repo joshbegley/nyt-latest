@@ -1,3 +1,11 @@
+**Might Saudi Arabia actually be a good choice for a men's World Cup?**\
+`Awarding the tournament to Gulf state is controversial but there are positives, too, argues Matt Slater`\
+https://nytimes.com/athletic/5981357/2024/12/11/saudi-arabia-world-cup-fifa-choice/
+
+**Heat Today: Jimmy Butler trade rumors swirl, but Heat history with star exits signals waiting game**\
+`Jimmy Butler's future in Miami remains uncertain, but the Heat have a history of applying the waiting game.`\
+https://nytimes.com/athletic/5986628/2024/12/11/jimmy-butler-heat-lebron-james-dwyane-wade-shaquille-o-neal-nba/
+
 **Astros, Cubs discuss possible trade involving Kyle Tucker, Seiya Suzuki**\
 `Cubs outfielder Seiya Suzuki has also been part of the discussions between Chicago and Houston. `\
 https://nytimes.com/athletic/5987064/2024/12/11/astros-cubs-kyle-tucker-seiya-suzuki-trade/
