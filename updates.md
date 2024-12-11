@@ -1,3 +1,7 @@
+**Marlins agree to trade infielder Jake Burger to Rangers: Sources**\
+`Burger hit .250/.301/.460 with 29 home runs, 76 RBIs and a .761 OPS in 2024.`\
+https://nytimes.com/athletic/5986018/2024/12/11/jake-burger-rangers-marlins-trade/
+
 **Brighton's defensive instability - and injuries - are undermining European ambitions**\
 `Hurzeler is yet to name an unchanged starting line-up in the Premier League and it is at the back that his plans are being hit hardest`\
 https://nytimes.com/athletic/5978753/2024/12/11/brighton-defensive-instability-injuries/
