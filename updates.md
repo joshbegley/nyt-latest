@@ -1,3 +1,7 @@
+**Fantasy basketball roundup: Now's the time to trade for Booker, Edwards, George**\
+`Eric Wong expects Devin Booker, one of his top buy-low targets in fantasy basketball, to snap out of his cold-shooting spell soon.`\
+https://nytimes.com/athletic/5986878/2024/12/11/fantasy-basketball-buy-low-sell-high-booker-vucevic/
+
 **Why Wimbledon wants 39 more tennis courts, and why campaigners are so opposed**\
 `What are the expansion plans for Wimbledon, and why is there so much opposition?`\
 https://nytimes.com/athletic/5827803/2024/12/11/wimbledon-tennis-expansion-explained/
