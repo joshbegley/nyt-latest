@@ -1,3 +1,7 @@
+**Michigan's Will Johnson declares for 2025 NFL Draft**\
+`Johnson is projected to be a top-10 pick, though injury concerns could impact his draft stock.`\
+https://nytimes.com/athletic/5986923/2024/12/11/will-johnson-michigan-nfl-draft/
+
 **Firefighters Begin Containing the Malibu Fire That Destroyed Several Homes**\
 `The Franklin fire grew to nearly 4,000 acres overnight as firefighters battled difficult conditions and steep terrain.`\
 https://nytimes.com/2024/12/11/us/firefighters-malibu-fire-destroyed-homes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986730/2024/12/11/nfl-approve-sale-eagles/
 **‘Maria’ Review: A Diva in Decline**\
 `Angelina Jolie plays the opera star Maria Callas in a movie that can’t figure her out.`\
 https://nytimes.com/2024/12/11/movies/maria-review-divas-decline.html
-
-**NFL owners approve 15 percent sale of Raiders**\
-`Mark Davis is still the controlling owner of the Raiders, which means he’s who holds decision-making power.`\
-https://nytimes.com/athletic/5985015/2024/12/11/nfl-approve-raiders-sale/
 
