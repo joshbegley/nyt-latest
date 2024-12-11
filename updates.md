@@ -1,3 +1,7 @@
+**Pistol Taken From Suspect Was a Fully Homemade Weapon, Officials Say**\
+`The ghost gun and suppressor found on a man the authorities have accused of killing the chief executive of UnitedHealthcare was made with the help of a 3-D printer, authorities said.`\
+https://nytimes.com/2024/12/10/nyregion/uhc-killing-ghost-gun-3d-printing.html
+
 **'A little frustrated, for sure’: 49ers' Deebo Samuel on his low-yield season**\
 `Isaac Guerendo didn't practice Tuesday, raising the prospect that Patrick Taylor Jr. could start Thursday against the Rams.`\
 https://nytimes.com/athletic/5985482/2024/12/10/49ers-deebo-samuel-yards-season/
