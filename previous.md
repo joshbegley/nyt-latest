@@ -1,3 +1,11 @@
+**Marco Rossi's late-game heroics salvage point and save PK's bacon: 3 takeaways**\
+`After Utah took a 4-3 lead, Rossi scored on a six-on-five with 43 seconds remaining to force overtime.`\
+https://nytimes.com/athletic/5985687/2024/12/11/wild-utah-marco-rossi-takeaways/
+
+**Life Without al-Assad**\
+`On Sunday at 3 a.m. my mother woke me with a shaky voice. All our phones were ringing and the TV was loud. “He fell, Zaina, he fell. Assad fell.”`\
+https://nytimes.com/2024/12/11/opinion/al-assad-syria.html
+
 **Spencer Horwitz in demand as he's flipped from Cleveland to Pittsburgh in odd deal**\
 `Getting a solid swingman and two high-reward pitching prospects for Horwitz was a great deal for Cleveland.`\
 https://nytimes.com/athletic/5985938/2024/12/11/spencer-horwitz-luis-ortiz-pirates-guardians/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5983549/2024/12/11/how-ruud-van-nistelrooy-is-build
 **The Arsenal Corner Playbook: Explaining the principles that make Arteta's side so menacing**\
 `Nicolas Jover has helped shape Arsenal into probably the best set-piece team in the world - this is how it all works`\
 https://nytimes.com/athletic/5969908/2024/12/11/arsenal-corner-playbook/
-
-**Lamine Yamal's trademark trivela: Dissecting the Barcelona star's work of art**\
-`Yamal is fast making the outside-of-the-boot pass known as the trivela his trademark. Where does it come from and how does he do it?`\
-https://nytimes.com/athletic/5984174/2024/12/11/lamine-yamal-barcelona-trivela/
-
-**Why Saudi Arabia's 2034 World Cup is controversial**\
-`Host status for the 2034 World Cup is expected to be awarded to Saudi Arabia by FIFA today`\
-https://nytimes.com/athletic/5983670/2024/12/11/saudi-arabia-world-cup-2034-controversial/
 

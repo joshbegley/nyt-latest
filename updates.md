@@ -1,3 +1,11 @@
+**Marco Rossi's late-game heroics salvage point and save PK's bacon: 3 takeaways**\
+`After Utah took a 4-3 lead, Rossi scored on a six-on-five with 43 seconds remaining to force overtime.`\
+https://nytimes.com/athletic/5985687/2024/12/11/wild-utah-marco-rossi-takeaways/
+
+**Life Without al-Assad**\
+`On Sunday at 3 a.m. my mother woke me with a shaky voice. All our phones were ringing and the TV was loud. “He fell, Zaina, he fell. Assad fell.”`\
+https://nytimes.com/2024/12/11/opinion/al-assad-syria.html
+
 **Marlins agree to trade infielder Jake Burger to Rangers: Source**\
 `Burger hit .250/.301/.460 with 29 home runs, 76 RBIs and a .761 OPS in 2024.`\
 https://nytimes.com/athletic/5986018/2024/12/11/jake-burger-rangers-marlins-trade/
