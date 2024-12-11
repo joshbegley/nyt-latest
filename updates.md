@@ -1,3 +1,11 @@
+**Trump’s Record on Syria: Airstrikes and Troop Moves in a Land of ‘Sand and Death’**\
+`The president-elect faces hard choices about the country’s post-Assad future. His vows not to get involved might be hard to keep.`\
+https://nytimes.com/2024/12/10/us/politics/trump-syria-rebels.html
+
+**Blue Jays trade for defensive whiz Andrés Giménez, but the bat is a question: Law**\
+`The Jays are paying a lot for an upgrade, but this is clearly a salary dump on the Cleveland side. Will they spend elsewhere?`\
+https://nytimes.com/athletic/5985478/2024/12/10/blue-jays-guardians-andres-gimenez-spencer-horwitz/
+
 **Blue Jays trade for defensive whiz Andrés Giménez, but the bat is a question: Law**\
 `The Jays are paying a lot for an upgrade, but this is clearly a salary dump on the Cleveland side. Will they spend elsewhere?`\
 https://nytimes.com/athletic/5985478/2024/12/10/blue-jays-guardians-andres-gimenez-spencer-horowitz/
