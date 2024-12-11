@@ -1,3 +1,7 @@
+**Building Anthony Edwards' pretty jumper: 'Make 'em respect it'**\
+`Edwards has worked on his form until it's one fluid motion, capped with a portrait-worthy follow-through and a snap of the net.`\
+https://nytimes.com/athletic/5983477/2024/12/11/anthony-edwards-timberwolves-jumper-shot-3-pointers/
+
 **Prince William’s Chat With Trump Shows Why Royals May Be Potent Diplomatic Tool**\
 `President-elect Donald J. Trump has a reverence, bordering on awe, for Britain’s royal family. British diplomats hope that may help safeguard the “special relationship” in a fractious political climate.`\
 https://nytimes.com/2024/12/11/world/europe/trump-uk-royals-prince-william-king-charles.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009870002/suspect-in-ceos-killing-fight
 **In Aleppo, Rebels Give a Sense of What May Come in Syria**\
 `Rebel fighters who took control of Aleppo about two weeks ago have promised security and continuity. Prices have skyrocketed, but residents express some hope for the future.`\
 https://nytimes.com/2024/12/11/world/middleeast/aleppo-syria-rebel-government.html
-
-**What to Know About the Latest Inflation Report**\
-`Inflation has been cooling notably after peaking in 2022, but in recent months it has shown signs of stalling.`\
-https://nytimes.com/2024/12/11/business/inflation-cpi-november.html
 
