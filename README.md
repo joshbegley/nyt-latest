@@ -1,3 +1,7 @@
+**What's next after Matt Rhule filled out Nebraska's staff with new hires, promotions?**\
+`On Tuesday, Nebraska announced three defensive hires that likely completes the Huskers staff.`\
+https://nytimes.com/athletic/5986604/2024/12/11/nebraska-college-football-staff-offensive-defensive-coordinators/
+
 **Syria After al-Assad: What’s Happening and What Comes Next**\
 `Rebels are asserting control in Damascus as Israel and other countries carry out military operations.`\
 https://nytimes.com/2024/12/11/world/middleeast/syria-assad-whats-happening-next.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/5986148/2024/12/11/mavericks-luka-doncic-nba-cup-ok
 https://nytimes.com/2024/12/11/business/macys-accounting-sales-profit.html
 
 **Thunder get measure of revenge over Mavericks, advance to NBA Cup semifinals**\
-`With Chet Holmgren watching from the sidelines, Oklahoma City got a statement win over the team that knocked them out of the 2024 playoffs.`\
+`With Chet Holmgren watching from the sidelines, Oklahoma City got a statement win over the team that knocked it out of the 2024 playoffs.`\
 https://nytimes.com/athletic/5986106/2024/12/11/thunder-mavs-gilgeous-alexander-nba-cup/
 
 **The F.T.C.’s Next, More Deal-Friendly Leader**\
 `Andrew Ferguson is expected to go easier on mergers than the agency’s current chief, Lina Khan. But he could take a similarly tough approach to policing Big Tech.`\
 https://nytimes.com/2024/12/11/business/dealbook/ftc-trump-ferguson-khan.html
-
-**RBNY, Sports Illustrated agree 13-year stadium naming rights deal**\
-`The partnership marks the first stadium naming rights deal in Sports Illustrated’s 70-year history.`\
-https://nytimes.com/athletic/5986435/2024/12/11/new-york-red-bulls-sports-illustrated-stadium/
 
