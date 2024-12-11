@@ -1,3 +1,11 @@
+**"We got what we deserved": Up-and-down Blue Jackets outworked, outplayed by Flyers**\
+`The whole team struggled to match the Flyers' effort as the Blue Jackets fell 5-3.`\
+https://nytimes.com/athletic/5985779/2024/12/10/blue-jackets-outworked-evason-flyers/
+
+**Maple Leafs report cards: Anthony Stolarz, PK rescue dreadful team effort for overtime win**\
+`The scoreline very much flattered Toronto in a game where the Devils controlled the run of play but ran up against a red-hot Stolarz.`\
+https://nytimes.com/athletic/5985445/2024/12/10/maple-leafs-report-cards-stolarz-pk-devils/
+
 **Until Saturday: CFP first-round upset watch**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/5985798/2024/12/10/college-football-playoff-upsets-heisman-until-saturday/
