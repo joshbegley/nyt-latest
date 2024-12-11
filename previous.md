@@ -1,3 +1,15 @@
+**The Pulse: A Belichick-UNC reality check**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5984897/2024/12/11/bill-belichick-unc-the-pulse/
+
+**How Many People Have Died in Syria’s Civil War?**\
+`The United Nations and human rights organizations have faced challenges in counting all those killed and missing in the conflict that began in March 2011.`\
+https://nytimes.com/2024/12/11/world/middleeast/syria-civil-war-death-toll.html
+
+**Australian cyclist Dennis pleads guilty to charge relating to death of Olympian wife Hoskins**\
+`Australian cyclist Rohan Dennis has pleaded guilty to a lesser charge in relation to the death of his wife, fellow Olympian and former world champion Melissa Hoskins.`\
+https://nytimes.com/athletic/5986271/2024/12/11/rohan-dennis-melissa-hoskins-death-charge/
+
 **Trade Zion Williamson and start a rebuild? Assessing Pelicans' options**\
 `Changes are coming in New Orleans. What are the options for the Pelicans?`\
 https://nytimes.com/athletic/5985881/2024/12/11/pelicans-rebuild-options-zion-williamson-trade-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/11/podcasts/syria-disappeared-ceo-killing.html
 **Pat Foley to call Blackhawks game at Wrigley Field, 15 years after missing out on first one**\
 `“If the phone rings and it’s something fun, the answer’s yes, every time,” Foley said of returning to the broadcast booth.`\
 https://nytimes.com/athletic/5983960/2024/12/11/pat-foley-blackhawks-wrigley/
-
-**USMNT connections link Liga MX's biggest game**\
-`A pair of Americans will face off for Mexican soccer's top domestic prize this week, while seeking to boost their USMNT prospects.`\
-https://nytimes.com/athletic/5985027/2024/12/11/usmnt-connections-link-liga-mxs-biggest-game/
-
-**Notre-Dame Rises From the Ashes**\
-`The Paris cathedral has reopened, five years after a devastating fire. The Times’s chief architecture critic tells its story.`\
-https://nytimes.com/2024/12/11/podcasts/the-daily/notre-dame-reopens.html
-
-**The Connections Companion No. 550**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 12, 2024.`\
-https://nytimes.com/2024/12/11/crosswords/connections-companion-550.html
 
