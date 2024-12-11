@@ -1,3 +1,7 @@
+**The Prominent Maryland Family of the Suspect in the C.E.O. Killing**\
+`Until the arrest this week of Luigi Mangione, the family was best known for building a business that has made them a force in local politics and charity.`\
+https://nytimes.com/2024/12/10/us/mangione-family-shooting-suspect.html
+
 **"We got what we deserved": Up-and-down Blue Jackets outworked, outplayed by Flyers**\
 `The whole team struggled to match the Flyers' effort as the Blue Jackets fell 5-3.`\
 https://nytimes.com/athletic/5985779/2024/12/10/blue-jackets-outworked-evason-flyers/
