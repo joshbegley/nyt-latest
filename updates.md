@@ -1,3 +1,15 @@
+**Men in Caring Jobs Will Make Society More Equal**\
+`Less stigma against male caregivers is all to the good.`\
+https://nytimes.com/2024/12/11/opinion/male-nurses-equality.html
+
+**A Friend Saw My Daughter-in-Law Flirting With Another Man. What Should I Do?**\
+`A mother-in-law is unsure whether to say something to her son (or his wife) after hearing through the grapevine about an upsetting scene at a hotel bar.`\
+https://nytimes.com/2024/12/11/style/infidelity-intervening.html
+
+**Syria After al-Assad: What’s Happening and What Comes Next**\
+`Rebels are asserting control in Damascus as Israel and other countries carry out military operations.`\
+https://nytimes.com/2024/12/11/world/middleeast/syria-assad-israel-turkey.html
+
 **Mandel's Mailbag: Explain Oregon's brutal route and Penn Sate's seeding**\
 `Plus: Best bowl games to watch and an NIT-style tournament for the rest of the field. `\
 https://nytimes.com/athletic/5986516/2024/12/11/college-football-playoff-oregon-ohio-state-penn-state-seeding/
