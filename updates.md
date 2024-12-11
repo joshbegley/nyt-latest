@@ -1,3 +1,7 @@
+**Word of the Day: toboggan**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/11/learning/word-of-the-day-toboggan.html
+
 **Darwin Nunez is wasting chances and running out of opportunities at Liverpool**\
 `Positive results have largely served to mask the striker's lack of output this season - but he has to improve `\
 https://nytimes.com/athletic/5985579/2024/12/11/darwin-nunez-form-liverpool-decision/

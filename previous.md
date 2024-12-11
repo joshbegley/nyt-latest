@@ -1,3 +1,7 @@
+**Word of the Day: toboggan**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/11/learning/word-of-the-day-toboggan.html
+
 **Darwin Nunez is wasting chances and running out of opportunities at Liverpool**\
 `Positive results have largely served to mask the striker's lack of output this season - but he has to improve `\
 https://nytimes.com/athletic/5985579/2024/12/11/darwin-nunez-form-liverpool-decision/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978753/2024/12/11/brighton-defensive-instability-i
 **Five things we learned from Amorim's first five Man Utd games**\
 `Looking for meaning in the new head coach's early reign - changing roles, squad weaknesses, and how he'll put things right`\
 https://nytimes.com/athletic/5983442/2024/12/11/five-things-we-learned-from-amorims-first-five-man-utd-games/
-
-**Michael Cole, ‘Mod Squad’ Actor, Dies at 84**\
-`Mr. Cole, who played the wealthy Pete Cochran, had been the last of the show’s three stars still living.`\
-https://nytimes.com/2024/12/11/arts/michael-cole-dead.html
 
