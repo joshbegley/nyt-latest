@@ -1,3 +1,7 @@
+**What we learned about the Mets at the Winter Meetings**\
+`Here are the latest rumblings on Pete Alonso, Starling Marte, Roki Sasaki and more. `\
+https://nytimes.com/athletic/5987786/2024/12/11/mets-winter-meetings-free-agency/
+
 **North Carolina G.O.P. Brushes Aside Democratic Governor to Expand Power**\
 `After cloaking a bill that strips key powers from Democrats as hurricane aid, the state’s Republican-controlled legislature overrode a veto from Gov. Roy Cooper, a Democrat, to pass it into law.`\
 https://nytimes.com/2024/12/11/us/politics/north-carolina-republicans-power.html

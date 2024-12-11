@@ -1,3 +1,7 @@
+**What we learned about the Mets at the Winter Meetings**\
+`Here are the latest rumblings on Pete Alonso, Starling Marte, Roki Sasaki and more. `\
+https://nytimes.com/athletic/5987786/2024/12/11/mets-winter-meetings-free-agency/
+
 **North Carolina G.O.P. Brushes Aside Democratic Governor to Expand Power**\
 `After cloaking a bill that strips key powers from Democrats as hurricane aid, the state’s Republican-controlled legislature overrode a veto from Gov. Roy Cooper, a Democrat, to pass it into law.`\
 https://nytimes.com/2024/12/11/us/politics/north-carolina-republicans-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/04/opinion/thepoint/chris-wray-fbi-trump-step-d
 **Why Was a Murder Suspect’s Instagram Taken Down, but Not His Goodreads?**\
 `Luigi Mangione’s social media accounts attracted swift attention after he was arrested in the killing of UnitedHealthcare’s chief executive. When do companies scrub a digital trail?`\
 https://nytimes.com/2024/12/11/technology/social-media-goodreads-reddit-tiktok.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears have lost seven in a row, are coming off their most lopsided loss of the season and play the Vikings on Monday night.`\
-https://nytimes.com/athletic/5987784/2024/12/11/submit-your-questions-for-kevin-fishbains-bears-mailbag-17/
 
