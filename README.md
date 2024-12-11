@@ -1,3 +1,23 @@
+**Gomez on nearly leaving Liverpool: 'Things happen for a reason'**\
+`Joe Gomez admits he came close to leaving Liverpool last summer but is delighted that he ended up staying at Anfield.`\
+https://nytimes.com/athletic/5986719/2024/12/11/joe-gomez-liverpool-transfer-summer/
+
+**How a Soprano With Dyslexia Rose to the Heights of Opera**\
+`Elza van den Heever, a star of “Die Frau Ohne Schatten” at the Metropolitan Opera, no longer sees dyslexia as a hindrance — just a different way of learning.`\
+https://nytimes.com/2024/12/11/arts/music/elza-van-den-heever-dyslexia.html
+
+**Sundance Film Festival Unveils a Lineup Heavy on Politics**\
+`The annual event also makes room for a remake of the musical “Kiss of the Spider Woman” and the return of Justin Lin.`\
+https://nytimes.com/2024/12/11/movies/sundance-film-festival-kiss-of-the-spider-woman.html
+
+**Shadow of a Childless Woman: The Mythic Roots of Strauss’s ‘Frau’**\
+`What’s behind the strange emphasis on childlessness in “Die Frau ohne Schatten,” the Strauss-Hofmannsthal opera now at the Met? Look to the ancients.`\
+https://nytimes.com/2024/12/11/arts/music/die-frau-ohne-schatten-met-opera.html
+
+**The SEC reigns supreme in TV numbers this season**\
+`Four of the five most-watched college football teams this regular season are SEC teams. `\
+https://nytimes.com/athletic/5984665/2024/12/11/sec-football-viewership-georgia-alabama/
+
 **Astros, Cubs discuss possible trade involving Kyle Tucker, Seiya Suzuki**\
 `Cubs infielder Isaac Paredes has also been part of the discussions between Chicago and Houston. `\
 https://nytimes.com/athletic/5987064/2024/12/11/astros-cubs-kyle-tucker-seiya-suzuki-trade/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/11/us/ryan-borgwardt-wisconsin-custody.html
 **Joe Burrow victim of home burglary during Bengals-Cowboys**\
 `Burrow is the latest pro athlete to be the target of a break-in after Patrick Mahomes and Bobby Portis also had their homes burglarized.`\
 https://nytimes.com/athletic/5986915/2024/12/11/joe-burrow-home-burglary/
-
-**Duke lands Tulane transfer Darian Mensah, top QB in transfer portal**\
-`News comes after Duke's starting QB from last season, Maalik Murphy, announced earlier this week that he was headed to the portal.`\
-https://nytimes.com/athletic/5986965/2024/12/11/duke-lands-tulane-transfer-darian-mensah-top-quarterback-in-transfer-portal-report/
-
-**Raptors' Scottie Barnes expected to miss multiple weeks**\
-`Barnes suffered the injury on Monday in the team’s loss against the New York Knicks as he tried to defend Karl-Anthony Towns in the paint`\
-https://nytimes.com/athletic/5984348/2024/12/11/raptors-scottie-barnes-sprained-ankle/
-
-**Who Is Mohammed al-Bashir, Syria’s Caretaker Prime Minister?**\
-`Mr. al-Bashir previously headed a rebel-led administration in northwestern Syria. He has been tasked with running the country’s interim government until March.`\
-https://nytimes.com/2024/12/11/world/middleeast/syria-bashir-prime-minister.html
-
-**Michigan's Will Johnson declares for 2025 NFL Draft**\
-`Johnson is projected to be a top-10 pick, though injury concerns could impact his draft stock.`\
-https://nytimes.com/athletic/5986923/2024/12/11/will-johnson-michigan-nfl-draft/
-
-**Firefighters Begin Containing the Malibu Fire That Destroyed Several Homes**\
-`The Franklin fire grew to nearly 4,000 acres overnight as firefighters battled difficult conditions and steep terrain.`\
-https://nytimes.com/2024/12/11/us/franklin-fire-malibu-california.html
 
