@@ -1,3 +1,7 @@
+**How a Feminist Comedy Came to Rule China’s Box Office**\
+`“Her Story” touches on sensitive topics in China, like censorship and gender inequality. But its humorous, nonconfrontational approach may have helped it pass censors.`\
+https://nytimes.com/2024/12/11/world/asia/china-feminist-comedy-her-story.html
+
 **Marco Rossi's late-game heroics salvage point and save PK's bacon: 3 takeaways**\
 `After Utah took a 4-3 lead, Rossi scored on a six-on-five with 43 seconds remaining to force overtime.`\
 https://nytimes.com/athletic/5985687/2024/12/11/wild-utah-marco-rossi-takeaways/
