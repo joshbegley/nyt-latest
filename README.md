@@ -1,3 +1,7 @@
+**Judge Refuses to Allow Sale of Infowars to The Onion**\
+`The Onion’s bid was supported by the families of the victims of the Sandy Hook shooting and Everytown for Gun Safety, a nonprofit focused on ending gun violence.`\
+https://nytimes.com/2024/12/10/business/media/the-onion-infowars-alex-jones.html
+
 **Yohe's 10 observations: Sidney Crosby irked by boos from Penguins fans in loss to Avalanche**\
 `Crosby wasn't impressed that some Penguins fans turned on the team in the third period of a 6-2 loss against the Avalanche on Tuesday.`\
 https://nytimes.com/athletic/5985643/2024/12/10/penguins-avalanche-sidney-crosby/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5985529/2024/12/10/nba-cup-quarterfinals-scores-res
 **Special End-of-Year 2024 News Quiz for Students**\
 `See what you remember about this extraordinary year by taking our special 2024 news quiz.`\
 https://nytimes.com/interactive/2024/12/10/learning/2024StudentNewsQuiz.html
-
-**North Korea Says Yoon Has Caused ‘Pandemonium’ in South Korea**\
-`In its first statement about the turmoil over President Yoon Suk Yeol’s martial law decree, the North said nothing about how inter-Korean relations might be affected.`\
-https://nytimes.com/2024/12/10/world/asia/north-korea-martial-law-reaction.html
 
