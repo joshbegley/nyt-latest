@@ -1,3 +1,7 @@
+**Giants starting Tommy DeVito in Week 15; Drew Lock in walking boot**\
+`The Giants make yet another change at quarterback after Drew Lock suffered a heel injury that put him in a walking boot.`\
+https://nytimes.com/athletic/5987305/2024/12/11/tommy-devito-quarterback-giants-ravens/
+
 **Red Sox acquire Garrett Crochet; White Sox return highlighted by Kyle Teel**\
 `The Red Sox get a top starter, sending four prospects back to the White Sox.`\
 https://nytimes.com/athletic/5987414/2024/12/11/red-sox-garrett-crochet-white-sox-trade/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5987414/2024/12/11/red-sox-garrett-crochet-white-so
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/12/11/style/tiny-love-stories-the-two-of-you-are-sickening.html
 
-**Christopher Wray Says He’ll Step Down as F.B.I. Director**\
+**Wray told F.B.I. employees he wanted to keep the focus on the bureau’s work.**\
 `President-elect Donald J. Trump had already signaled his intention to replace Christopher A. Wray with a longtime loyalist, Kash Patel.`\
 https://nytimes.com/live/2024/12/11/us/trump-news/wray-trump-fbi-director
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/style/john-galliano-maison-margiela.html
 **130 versions later, how the Big Ten built its 2025 football schedule**\
 `From Penn State-Oregon in late September to Black Friday and beyond, the conference had to juggle competing interests, as always.`\
 https://nytimes.com/athletic/5986912/2024/12/11/big-ten-football-schedule-2025-travel/
-
-**Raygun Shuts Down Musical Inspired by Her Jeered Olympic Breaking**\
-`The comedian behind the parody about the Australian breaker who became a summer celebrity said she was willing to make some changes to avoid legal drama.`\
-https://nytimes.com/2024/12/11/theater/raygun-musical-olympic-breakdancer.html
 
