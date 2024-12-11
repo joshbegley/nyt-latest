@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5987064/2024/12/11/astros-cubs-kyle-tucker-seiya-su
 https://nytimes.com/2024/12/11/realestate/alexander-brothers-arrested-charged-sexual-assault.html
 
 **F.D.A. Tries Last-Ditch Move to Slash Nicotine Levels in Cigarettes**\
-`The agency is asking the White House to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
+`The agency is asking the White House, in the final days of the Biden era, to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
 https://nytimes.com/2024/12/11/health/fda-low-nicotine-cigarettes-biden.html
 
 **Wisconsin Man Who Faked Kayaking Death and Fled U.S. Is in Custody**\
