@@ -1,3 +1,15 @@
+**'A little frustrated, for sure’: 49ers' Deebo Samuel on his low-yield season**\
+`Isaac Guerendo didn't practice Tuesday, raising the prospect that Patrick Taylor Jr. could start Thursday against the Rams.`\
+https://nytimes.com/athletic/5985482/2024/12/10/49ers-deebo-samuel-yards-season/
+
+**Nathan Eovaldi in agreement with Rangers to return on 3-year deal: Source**\
+`Eovaldi spent the past two seasons with the Rangers and went 5-0 during Texas' postseason run in 2023.`\
+https://nytimes.com/athletic/5933007/2024/12/10/rangers-nathan-eovaldi-free-agent-deal/
+
+**Panic at Pepperdine University in Malibu as Wildfires Threaten City**\
+`No structures were damaged and no one was injured, but students spent a frantic night sheltering in place as thousands of nearby residents evacuated.`\
+https://nytimes.com/2024/12/10/us/franklin-fire-malibu-evacuations.html
+
 **Trump’s Record on Syria: Airstrikes and Troop Moves in a Land of ‘Sand and Death’**\
 `The president-elect faces hard choices about the country’s post-Assad future. His vows not to get involved might be hard to keep.`\
 https://nytimes.com/2024/12/10/us/politics/trump-syria-rebels.html
