@@ -1,3 +1,15 @@
+**F.D.A. Tries Last-Ditch Move to Slash Nicotine Levels in Cigarettes**\
+`The agency is asking the White House to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
+https://nytimes.com/2024/12/11/health/fda-low-nicotine-cigarettes-biden.html
+
+**Wisconsin Man Who Faked Kayaking Death and Fled U.S. Is in Custody**\
+`Ryan Borgwardt returned to the United States on his own after faking his own drowning death and fleeing to Eastern Europe, the authorities said.`\
+https://nytimes.com/2024/12/11/us/ryan-borgwardt-wisconsin-custody.html
+
+**Firefighters Begin Containing the Malibu Fire That Destroyed Several Homes**\
+`The Franklin fire grew to nearly 4,000 acres overnight as firefighters battled difficult conditions and steep terrain.`\
+https://nytimes.com/2024/12/11/us/franklin-fire-malibu-california.html
+
 **Joe Burrow victim of home burglary during Bengals-Cowboys**\
 `Burrow is the latest pro athlete to be the target of a break-in after Patrick Mahomes and Bobby Portis also had their homes burglarized.`\
 https://nytimes.com/athletic/5986915/2024/12/11/joe-burrow-home-burglary/
