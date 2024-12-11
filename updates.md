@@ -1,3 +1,7 @@
+**Building Anthony Edwards' pretty jumper: 'Make 'em respect it'**\
+`Edwards has worked on his form until it's one fluid motion, capped with a portrait-worthy follow-through and a snap of the net.`\
+https://nytimes.com/athletic/5983477/2024/12/11/anthony-edwards-timberwolves-jumper-shot-3-pointers/
+
 **Prince William’s Chat With Trump Shows Why Royals May Be Potent Diplomatic Tool**\
 `President-elect Donald J. Trump has a reverence, bordering on awe, for Britain’s royal family. British diplomats hope that may help safeguard the “special relationship” in a fractious political climate.`\
 https://nytimes.com/2024/12/11/world/europe/trump-uk-royals-prince-william-king-charles.html
