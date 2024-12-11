@@ -1,40 +1,40 @@
-**South Korean Police Raid President’s Office in Martial Law Investigation**\
-`The authorities are investigating whether President Yoon Suk Yeol committed an act of insurrection when he declared martial law last week, plunging the country into crisis.`\
-https://nytimes.com/2024/12/10/world/asia/south-korea-president-office-raid.html
+**Breaking down every one of Cole Palmer's record breaking 12 penalties for Chelsea**\
+`Chelsea's Palmer has beaten Yaya Toure's record for the most Premier League penalties scored in a row without a miss`\
+https://nytimes.com/athletic/5984311/2024/12/11/cole-palmer-penalty-record-chelsea/
 
-**Judge Refuses to Allow Sale of Infowars to The Onion**\
-`The Onion’s bid was supported by the families of the victims of the Sandy Hook shooting and Everytown for Gun Safety, a nonprofit focused on ending gun violence.`\
-https://nytimes.com/2024/12/10/business/media/the-onion-infowars-alex-jones.html
+**Wednesday Briefing**\
+`A wave of attacks on Syria.`\
+https://nytimes.com/2024/12/11/briefing/syria-attacks-israel-gaza.html
 
-**Yohe's 10 observations: Sidney Crosby irked by boos from Penguins fans in loss to Avalanche**\
-`Crosby wasn't impressed that some Penguins fans turned on the team in the third period of a 6-2 loss against the Avalanche on Tuesday.`\
-https://nytimes.com/athletic/5985643/2024/12/10/penguins-avalanche-sidney-crosby/
+**A Search in Syria for the Disappeared**\
+`Syrians raced to newly emptied prisons to reunite with loved ones snatched away by the brutal regime of Bashar al-Assad, but their quest sometimes took them to the morgue.`\
+https://nytimes.com/2024/12/11/world/middleeast/syria-prisoners-dead.html
 
-**The Prominent Maryland Family of the Suspect in the C.E.O. Killing**\
-`Until the arrest this week of Luigi Mangione, the family was best known for building a business that has made them a force in local politics and charity.`\
-https://nytimes.com/2024/12/10/us/mangione-family-shooting-suspect.html
+**A Tangled and Troubling Legacy Pushes Romanians Further to the Right**\
+`A ultranationalist politician’s surge in Romania shows how many people there would rather forget the country’s fascist past during World War II, experts say.`\
+https://nytimes.com/2024/12/11/world/europe/a-tangled-and-troubling-legacy-pushes-romanians-further-to-the-right.html
 
-**'We got what we deserved': Up-and-down Blue Jackets outworked, outplayed by Flyers**\
-`The whole team struggled to match the Flyers' effort as the Blue Jackets fell 5-3.`\
-https://nytimes.com/athletic/5985779/2024/12/10/blue-jackets-outworked-evason-flyers/
+**Juventus vs Manchester City preview: Storylines, odds, prediction as City hopes to get back on track**\
+`Juventus and Manchester City are in the middle of the Champions League table. A loss for either one makes things tight down the stretch.`\
+https://nytimes.com/athletic/5984371/2024/12/11/juventus-manchester-city-odds-prediction-champions-league/
 
-**Until Saturday: CFP first-round upset watch**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/5985798/2024/12/10/college-football-playoff-upsets-heisman-until-saturday/
+**Week 15 fantasy football rankings: Sleepers, projections, starts, sits | Rico Dowdle, Marvin Harrison**\
+`In his insightful rundown for the first round of the fantasy playoffs, Jake Ciely notes that Rico Dowdle has been on a RB1 level of late. `\
+https://nytimes.com/athletic/5985016/2024/12/11/week-15-fantasy-football-rankings-sleepers-projections-starts-sits-kirk-cousins-marvin-harrison/
 
-**Flyers capture perhaps their most important win of the season**\
-`Games like Philadelphia's win over Columbus on Tuesday could matter in a narrow playoff race in the spring. `\
-https://nytimes.com/athletic/5985794/2024/12/10/flyers-blue-jackets-nhl-season/
+**Borussia Dortmund vs Barcelona: Preview, odds, prediction for big Champions League match**\
+`Borussia Dortmund and Barcelona are both off to good starts in the Champions League and now they face off in Germany.`\
+https://nytimes.com/athletic/5984356/2024/12/11/borussia-dortmund-barcelona-odds-prediction-champions-league/
 
-**Maple Leafs report cards: Anthony Stolarz, PK rescue dreadful team effort for overtime win**\
-`The scoreline very much flattered Toronto in a game where the Devils controlled the run of play but ran up against a red-hot Stolarz.`\
-https://nytimes.com/athletic/5985445/2024/12/10/maple-leafs-report-cards-stolarz-pk-devils/
+**Britain’s Falling Oil Output Leaves Jobs and Skills at Risk**\
+`The government wants to rapidly replace oil and natural gas with clean energy, but offshore wind and other alternatives are still in their early stages.`\
+https://nytimes.com/2024/12/11/business/energy-environment/britain-oil-clean-energy-transition.html
 
-**Why the Padres could end up trading starter Dylan Cease, plus more from A.J. Preller**\
-`Leaguewide demand for impact talent, including impact rental talent, like Cease, keeps climbing. `\
-https://nytimes.com/athletic/5985737/2024/12/10/san-diego-padres-2024-winter-meetings-dylan-cease/
+**Houthi Attacks Turn Back the Clock for Shipping as Costs Pile Up**\
+`The transport route around the southern tip of Africa was once little used — but freighters are now forced to take it and are charging higher rates.`\
+https://nytimes.com/2024/12/11/business/houthi-red-sea-attacks-shipping-lanes-africa.html
 
-**Bucks beat Magic 114-109 to move on to semifinal: Takeaways**\
-`The Bucks will play the winner of Wednesday night’s quarterfinal between the Atlanta Hawks and New York Knicks.`\
-https://nytimes.com/athletic/5985529/2024/12/10/nba-cup-quarterfinals-scores-results-takeaways/
+**A Danish Christmas Tradition That Comes From the Heart**\
+`In the land of hygge, handmade paper decorations have long brought holiday cheer — and a chance to share the simple joys of crafting.`\
+https://nytimes.com/2024/12/11/style/denmark-crafts-holidays.html
 
