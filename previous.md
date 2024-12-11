@@ -1,3 +1,15 @@
+**Does ‘the Future’ Belong to Trump?**\
+`Under the influence of a coterie of tech boosters, it’s full speed ahead.`\
+https://nytimes.com/2024/12/11/opinion/trump-tech.html
+
+**Liverpool in talks over pre-season friendlies in Japan, Hong Kong**\
+`Liverpool are in talks about playing friendly matches in Japan and Hong Kong as part of a pre-season tour of Asia next summer.`\
+https://nytimes.com/athletic/5987570/2024/12/11/liverpool-pre-season-tour-japan-hong-kong/
+
+**White Sox select Shane Smith first in MLB portion of Rule 5 Draft, 15 players taken in all**\
+`Smith, 24, went 6-3 with a 3.05 ERA in 32 appearances and 16 starts between Double-A Biloxi and Triple-A Nashville last season.`\
+https://nytimes.com/athletic/5987426/2024/12/11/mlb-rule-5-draft-white-sox-shane-smith/
+
 **Here’s what Kash Patel has said he would do to the F.B.I.**\
 `By Elizabeth Williamson and Charlie Savage`\
 https://nytimes.com/live/2024/12/11/us/trump-news/heres-what-kash-patel-has-said-he-would-do-to-the-fbi
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/11/business/dealbook/leaders-advice-insights.html
 **Serena Williams Is Competing on a New Court: Investment**\
 `“I’ve learned to trust my instincts in any business venture or brand I’m championing,” the retired tennis star said in an interview at the DealBook Summit.`\
 https://nytimes.com/2024/12/11/business/dealbook/serena-williams-investment.html
-
-**Charlie Morton returning to Atlanta Braves seems unlikely given current situation**\
-`Morton could fit at the back end of the rotation, but the Braves might have more pressing needs. `\
-https://nytimes.com/athletic/5987404/2024/12/11/charlie-morton-braves-free-agency/
-
-**For Athletes, the Draw and the How of Branding**\
-`A task force at the DealBook Summit discussed how from college to pro sports, becoming a brand is a challenge.`\
-https://nytimes.com/2024/12/11/business/dealbook/athletes-brands-careers.html
-
-**Seismic Political Shifts Are Likely to Continue**\
-`A lively DealBook Summit task force agreed on little except that the electorate is restless.`\
-https://nytimes.com/2024/12/11/business/dealbook/election-task-force.html
 
