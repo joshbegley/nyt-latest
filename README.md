@@ -1,11 +1,3 @@
-**F.D.A. Tries Last-Ditch Move to Slash Nicotine Levels in Cigarettes**\
-`The agency is asking the White House to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
-https://nytimes.com/2024/12/11/health/fda-low-nicotine-cigarettes-biden.html
-
-**Wisconsin Man Who Faked Kayaking Death and Fled U.S. Is in Custody**\
-`Ryan Borgwardt returned to the United States on his own after faking his own drowning death and fleeing to Eastern Europe, the authorities said.`\
-https://nytimes.com/2024/12/11/us/ryan-borgwardt-wisconsin-custody.html
-
 **Joe Burrow victim of home burglary during Bengals-Cowboys**\
 `Burrow is the latest pro athlete to be the target of a break-in after Patrick Mahomes and Bobby Portis also had their homes burglarized.`\
 https://nytimes.com/athletic/5986915/2024/12/11/joe-burrow-home-burglary/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5986423/2024/12/11/saudi-arabia-world-cup-dates-tic
 **Dolphins, Bills sell stakes in team to private equity firms**\
 `For the first time in NFL history, private equity firms have bought into league ownership.`\
 https://nytimes.com/athletic/5986921/2024/12/11/dolphins-bills-team-stakes-sold/
+
+**‘I Think This Recipe Actually Cured My Depression’**\
+`Andy Baraghani’s sticky miso salmon bowl, and more of our most popular recipes from 2024.`\
+https://nytimes.com/2024/12/11/dining/i-think-this-recipe-actually-cured-my-depression.html
+
+**A.D.H.D. Diagnoses Are Surging Among Older Americans**\
+`Many say they are relieved to finally have an explanation after decades of struggle.`\
+https://nytimes.com/2024/12/11/well/mind/adhd-diagnosis-older-middle-age.html
 
