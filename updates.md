@@ -1,3 +1,11 @@
+**Paris Hilton and Nicole Richie Revisit ‘The Simple Life’**\
+`The celebutantes-turned-businesswomen are rebooting the show that provided a blueprint for the past 20 years of reality TV.`\
+https://nytimes.com/2024/12/11/arts/television/paris-and-nicole-encore.html
+
+**Defense, game management questions plague Bills as playoffs approach**\
+`The Bills had their poorest showing since losing to the Ravens earlier this season.`\
+https://nytimes.com/athletic/5985986/2024/12/11/bills-defense-play-call-josh-allen-playoffs/
+
 **The Bounce: Jimmy Butler to one of these three contenders?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5986457/2024/12/11/jimmy-butler-miami-heat-warriors-mavericks-rockets-nba-the-bounce/
