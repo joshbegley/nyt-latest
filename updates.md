@@ -1,3 +1,7 @@
+**U.S. Strategy on Syria Risks ISIS Resurgence, Kurdish General Warns**\
+`Gen. Mazlum Kobani, commander of Kurdish forces in Syria, said recent decisions by the U.S. in Syria potentially “leaves a vacuum behind that can be taken advantage of by ISIS.”`\
+https://nytimes.com/2024/12/11/world/middleeast/us-strategy-on-syria-risks-isis-resurgence-kurdish-general-warns.html
+
 **Biden’s Top Aides Race to Middle East as Militias Wield Power in Syria**\
 `Secretary of State Antony J. Blinken plans to hold meetings in Jordan and Turkey. Jake Sullivan, the national security adviser, is visiting Israel.`\
 https://nytimes.com/2024/12/11/us/politics/biden-officials-syria-israel.html

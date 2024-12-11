@@ -1,3 +1,7 @@
+**U.S. Strategy on Syria Risks ISIS Resurgence, Kurdish General Warns**\
+`Gen. Mazlum Kobani, commander of Kurdish forces in Syria, said recent decisions by the U.S. in Syria potentially “leaves a vacuum behind that can be taken advantage of by ISIS.”`\
+https://nytimes.com/2024/12/11/world/middleeast/us-strategy-on-syria-risks-isis-resurgence-kurdish-general-warns.html
+
 **Biden’s Top Aides Race to Middle East as Militias Wield Power in Syria**\
 `Secretary of State Antony J. Blinken plans to hold meetings in Jordan and Turkey. Jake Sullivan, the national security adviser, is visiting Israel.`\
 https://nytimes.com/2024/12/11/us/politics/biden-officials-syria-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987612/2024/12/11/ruben-amorim-dan-ashworth/
 **Colleges Warn Foreign Students to Get to Campus Before Trump Takes Office**\
 `Harvard, Penn and U.S.C. were among the universities and colleges that issued advisories in anticipation of possible travel bans.`\
 https://nytimes.com/2024/12/11/us/colleges-international-students-trump-travel-ban.html
-
-**The Pistachio Martini Is Beloved. And Baffling.**\
-`The creamy, pastel green drink is an enigma, but that doesn’t stop bartenders across the country from adding it to their menus.`\
-https://nytimes.com/2024/12/11/dining/drinks/pistachio-martini.html
 
