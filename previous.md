@@ -1,3 +1,7 @@
+**Commanders' Noah Brown could miss rest of season with 'internal' injury**\
+`Brown, Washington's No. 2 receiver, has 35 receptions for 453 yards and one touchdown in 11 games this season. `\
+https://nytimes.com/athletic/5987427/2024/12/11/commanders-noah-brown-injury/
+
 **Building Trust in an Age of Distrust**\
 `At this year’s DealBook Summit, there was a sense that trust was becoming harder to come by and that the rules of how people judge the truth had shifted.`\
 https://nytimes.com/2024/12/11/business/dealbook/summit-elected-officials-leaders.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/us/deobra-redden-judge-attack-sentenced.html
 **'It starts with us': Alex Tuch weighs in on Sabres' losing streak**\
 `Tuch said he thinks the Sabres have been nervous at times and too often playing like they’re “afraid to lose.”`\
 https://nytimes.com/athletic/5987322/2024/12/11/sabres-alex-tuch-kevyn-adams/
-
-**Women Need More Help to Rise in the Workplace**\
-`A DealBook Summit panel said a lack of helpful policies was hindering female advancement, while freezing eggs to postpone motherhood did not always work out.`\
-https://nytimes.com/2024/12/11/business/dealbook/women-workplace-advancement.html
 

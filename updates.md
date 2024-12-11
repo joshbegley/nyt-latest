@@ -1,3 +1,7 @@
+**Commanders' Noah Brown could miss rest of season with 'internal' injury**\
+`Brown, Washington's No. 2 receiver, has 35 receptions for 453 yards and one touchdown in 11 games this season. `\
+https://nytimes.com/athletic/5987427/2024/12/11/commanders-noah-brown-injury/
+
 **Building Trust in an Age of Distrust**\
 `At this year’s DealBook Summit, there was a sense that trust was becoming harder to come by and that the rules of how people judge the truth had shifted.`\
 https://nytimes.com/2024/12/11/business/dealbook/summit-elected-officials-leaders.html
