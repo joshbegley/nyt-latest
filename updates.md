@@ -1,3 +1,19 @@
+**Giants starting Tommy DeVito in Week 15; Drew Lock in walking boot**\
+`The Giants make yet another change at quarterback after Drew Lock suffered a heel injury that put him in a walking boot.`\
+https://nytimes.com/athletic/5987305/2024/12/11/tommy-devito-quarterback-giants-ravens/
+
+**Red Sox acquire Garrett Crochet; White Sox return highlighted by Kyle Teel**\
+`The Red Sox get a top starter, sending four prospects back to the White Sox.`\
+https://nytimes.com/athletic/5987414/2024/12/11/red-sox-garrett-crochet-white-sox-trade/
+
+**Tiny Love Stories: ‘The Two of You Are Sickening’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/12/11/style/tiny-love-stories-the-two-of-you-are-sickening.html
+
+**Wray told F.B.I. employees he wanted to keep the focus on the bureau’s work.**\
+`President-elect Donald J. Trump had already signaled his intention to replace Christopher A. Wray with a longtime loyalist, Kash Patel.`\
+https://nytimes.com/live/2024/12/11/us/trump-news/wray-trump-fbi-director
+
 **Christopher Wray says he will step down as F.B.I. director.**\
 `President-elect Donald J. Trump had already signaled his intention to replace Mr. Wray with a longtime loyalist, Kash Patel.`\
 https://nytimes.com/live/2024/12/11/us/trump-news/wray-trump-fbi-director
