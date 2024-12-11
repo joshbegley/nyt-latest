@@ -1,3 +1,15 @@
+**Prince William’s Chat With Trump Shows Why Royals May Be Potent Diplomatic Tool**\
+`President-elect Donald J. Trump has a reverence, bordering on awe, for Britain’s royal family. British diplomats hope that may help safeguard the special relationship in a fractious political climate.`\
+https://nytimes.com/2024/12/11/world/europe/trump-uk-royals-prince-william-king-charles.html
+
+**Five enormous questions facing Jerod Mayo and the Patriots this offseason**\
+`Will Mayo make any changes to his coaching staff after a disappointing first season? How can they upgrade at both receiver and O-line?`\
+https://nytimes.com/athletic/5984520/2024/12/11/patriots-jerod-mayo-offseason-questions/
+
+**NFC North roundtable: Lions, Vikings, Packers dominating the NFL. Who'll rule the division?**\
+`Our Lions, Vikings and Packers reporters break down just how good their teams are and who has the best shot of reaching the Super Bowl.`\
+https://nytimes.com/athletic/5984483/2024/12/11/nfc-north-lions-vikings-packers-playoffs/
+
 **Storm Aid vs. Partisan Power: A Showdown Looms in North Carolina**\
 `As Republicans try to muscle through a bill that is nominally dedicated to hurricane relief but in fact erodes Democrats’ influence, residents of the areas hit hardest say they urgently need help.`\
 https://nytimes.com/2024/12/11/us/politics/storm-aid-vs-partisan-power-a-showdown-looms-in-north-carolina.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/11/world/middleeast/aleppo-syria-rebel-government.ht
 **What to Know About the Latest Inflation Report**\
 `Inflation has been cooling notably after peaking in 2022, but in recent months it has shown signs of stalling.`\
 https://nytimes.com/2024/12/11/business/inflation-cpi-november.html
-
-**Mock draft analysis: Panthers have plenty of needs and Abdul Carter could fill one of them**\
-`With Bryce Young's emergence, the Panthers could be in position to take the best player available with a likely top-10 draft pick.`\
-https://nytimes.com/athletic/5984883/2024/12/11/panthers-abdul-carter-penn-state-mock-draft-selection/
-
-**Biden Administration Looks to Reinforce U.S.-China Ties Ahead of Trump’s Return**\
-`Senior Treasury officials are holding a final round of talks with a new round of economic volatility on the horizon.`\
-https://nytimes.com/2024/12/11/us/politics/us-china-ties-trump.html
-
-**Prepare for Guacamole to Be a Luxury Item**\
-`Trump’s immigration and tariff plans will strain American farming and raise the prices you see at the store.`\
-https://nytimes.com/2024/12/11/opinion/trump-tariffs-immigration-inflation.html
 
