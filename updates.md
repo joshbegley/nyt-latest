@@ -1,3 +1,7 @@
+**Alexander Brothers Sex Trafficking Indictment**\
+`The federal indictment against Oren Alexander, Tal Alexander and Alon Alexander, on conspiracy to commit sex trafficking.`\
+https://nytimes.com/interactive/2024/12/11/nyregion/alexander-indictment.html
+
 **Guardians' Tom Hamilton wins broadcasting's Ford C. Frick Award**\
 `Hamilton has spent 35 years in Cleveland’s radio booth and called countless classic moments in franchise history.`\
 https://nytimes.com/athletic/5987170/2024/12/11/tom-hamilton-ford-c-frick-award-guardians/
