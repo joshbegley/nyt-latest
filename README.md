@@ -1,3 +1,7 @@
+**The Giants should prioritize innings in their search for a starting pitcher**\
+`The Giants rotation has to be more than Logan Webb and hoping for rain. They need more reliable innings-eaters.`\
+https://nytimes.com/athletic/5984783/2024/12/11/sf-giants-offseason-plan-starters/
+
 **Like a Family Reunion, but With More Tears (and Tonys)**\
 `Members of the cast of the 2008 Tony-winning revival of “South Pacific,” including Matthew Morrison and Kelli O’Hara, reunited for a benefit performance. The emotions were the guest of honor.`\
 https://nytimes.com/2024/12/11/style/south-pacific-musical-reunion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/style/luigi-mangione-uhc-social.html
 **Might Saudi Arabia actually be a good choice for a men's World Cup?**\
 `Awarding the tournament to Gulf state is controversial but there are positives, too, argues Matt Slater`\
 https://nytimes.com/athletic/5981357/2024/12/11/saudi-arabia-world-cup-fifa-choice/
-
-**Heat Today: Jimmy Butler trade rumors swirl, but Heat history with star exits signals waiting game**\
-`Jimmy Butler's future in Miami remains uncertain, but the Heat have a history of applying the waiting game.`\
-https://nytimes.com/athletic/5986628/2024/12/11/jimmy-butler-heat-lebron-james-dwyane-wade-shaquille-o-neal-nba/
 
