@@ -1,3 +1,7 @@
+**Alan Shearer: Newcastle are drifting and the ‘project’ is at a crossroads**\
+`After the takeover, there was an energy driving the club forward but that has gone. What now?`\
+https://nytimes.com/athletic/5983953/2024/12/11/newcastle-project-stalled-howe/
+
 **Bayer Leverkusen buoyed by a late win more reminiscent of their former selves**\
 `Xabi Alonso's side have not quite scaled the heights of last season to date, but the victory over Inter may have tweaked the muscle memory`\
 https://nytimes.com/athletic/5985279/2024/12/11/leverkusen-alonso-mukiele-inter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5985687/2024/12/11/wild-utah-marco-rossi-takeaways/
 **Life Without al-Assad**\
 `On Sunday at 3 a.m. my mother woke me with a shaky voice. All our phones were ringing and the TV was loud. “He fell, Zaina, he fell. Assad fell.”`\
 https://nytimes.com/2024/12/11/opinion/al-assad-syria.html
-
-**Spencer Horwitz in demand as he's flipped from Cleveland to Pittsburgh in odd deal**\
-`Getting a solid swingman and two high-reward pitching prospects for Horwitz was a great deal for Cleveland.`\
-https://nytimes.com/athletic/5985938/2024/12/11/spencer-horwitz-luis-ortiz-pirates-guardians/
 
