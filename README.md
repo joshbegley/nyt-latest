@@ -1,7 +1,3 @@
-**Syria After al-Assad: What’s Happening and What Comes Next**\
-`Rebels are asserting control in Damascus as Israel and other countries carry out military operations.`\
-https://nytimes.com/2024/12/11/world/middleeast/syria-assad-whats-happening-next.html
-
 **The Maple Leafs have issues. Goaltending won't mask them forever**\
 `Anthony Stolarz has been a revelation, but Leafs skaters are not controlling play like an elite team should, and it isn't sustainable.`\
 https://nytimes.com/athletic/5985932/2024/12/11/anthony-stolarz-maple-leafs-nhl-goaltending/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/11/business/dealbook/ftc-trump-ferguson-khan.html
 **RBNY, Sports Illustrated agree 13-year stadium naming rights deal**\
 `The partnership marks the first stadium naming rights deal in Sports Illustrated’s 70-year history.`\
 https://nytimes.com/athletic/5986435/2024/12/11/new-york-red-bulls-sports-illustrated-stadium/
+
+**The Fed chair said that inflation is a ‘little higher’ than expected.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed/the-fed-chair-said-that-inflation-is-a-little-higher-than-expected
 
