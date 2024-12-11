@@ -1,3 +1,11 @@
+**120 Miles of Russian Forest Couldn’t Keep These Two Tigers Apart**\
+`Boris and Svetlaya were raised together as orphaned cubs, and then reintroduced to the wild separately. But Boris went on a trek that surprised the researchers who were monitoring him.`\
+https://nytimes.com/2024/12/11/science/siberian-tigers-russia.html
+
+**Mantel aims to create a safe social network for collectors of all kinds**\
+`Mantel looks to bring a troll-free social network to collecting communities `\
+https://nytimes.com/athletic/5987065/2024/12/11/mantel-social-network-collecting/
+
 **Syria’s new government tries to balance the need for order against a clamor for retaliation.**\
 `By Aryn Baker`\
 https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syrias-new-government-tries-to-balance-the-need-for-order-against-a-clamor-for-retaliation
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/11/arts/music/elza-van-den-heever-dyslexia.html
 **Sundance Film Festival Unveils a Lineup Heavy on Politics**\
 `The annual event also makes room for a remake of the musical “Kiss of the Spider Woman” and the return of Justin Lin.`\
 https://nytimes.com/2024/12/11/movies/sundance-film-festival-kiss-of-the-spider-woman.html
-
-**Shadow of a Childless Woman: The Mythic Roots of Strauss’s ‘Frau’**\
-`What’s behind the strange emphasis on childlessness in “Die Frau ohne Schatten,” the Strauss-Hofmannsthal opera now at the Met? Look to the ancients.`\
-https://nytimes.com/2024/12/11/arts/music/die-frau-ohne-schatten-met-opera.html
-
-**The SEC reigns supreme in TV numbers this season**\
-`Four of the five most-watched college football teams this regular season are SEC teams. `\
-https://nytimes.com/athletic/5984665/2024/12/11/sec-football-viewership-georgia-alabama/
 

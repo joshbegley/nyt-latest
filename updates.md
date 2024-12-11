@@ -1,3 +1,11 @@
+**120 Miles of Russian Forest Couldn’t Keep These Two Tigers Apart**\
+`Boris and Svetlaya were raised together as orphaned cubs, and then reintroduced to the wild separately. But Boris went on a trek that surprised the researchers who were monitoring him.`\
+https://nytimes.com/2024/12/11/science/siberian-tigers-russia.html
+
+**Mantel aims to create a safe social network for collectors of all kinds**\
+`Mantel looks to bring a troll-free social network to collecting communities `\
+https://nytimes.com/athletic/5987065/2024/12/11/mantel-social-network-collecting/
+
 **Syria’s new government tries to balance the need for order against a clamor for retaliation.**\
 `By Aryn Baker`\
 https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syrias-new-government-tries-to-balance-the-need-for-order-against-a-clamor-for-retaliation
