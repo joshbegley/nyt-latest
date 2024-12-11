@@ -1,3 +1,7 @@
+**The Giants should prioritize innings in their search for a starting pitcher**\
+`The Giants rotation has to be more than Logan Webb and hoping for rain. They need more reliable innings-eaters.`\
+https://nytimes.com/athletic/5984783/2024/12/11/sf-giants-offseason-plan-starters/
+
 **Like a Family Reunion, but With More Tears (and Tonys)**\
 `Members of the cast of the 2008 Tony-winning revival of “South Pacific,” including Matthew Morrison and Kelli O’Hara, reunited for a benefit performance. The emotions were the guest of honor.`\
 https://nytimes.com/2024/12/11/style/south-pacific-musical-reunion.html
