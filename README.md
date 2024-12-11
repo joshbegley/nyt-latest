@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5987734/2024/12/11/raiders-mark-davis-antonio-pierc
 `This is the story of the real-life whale from “Free Willy” and his odyssey back to the ocean. In Episode 5 of the “Good Whale” podcast, Keiko disappears in Icelandic waters. For four weeks, nobody knew what had happened to him. So we reimagined this mysterious time — as a musical.`\
 https://nytimes.com/video/podcasts/100000009872358/serial-good-whale-ballad-keiko.html
 
-**Bill Belichick agrees to deal to become UNC football head coach: Source**\
+**Bill Belichick agrees to deal to become UNC football head coach: Sources**\
 `Belichick, a six-time Super Bowl winner with the New England Patriots, will return to the sideline in the college ranks.`\
 https://nytimes.com/athletic/5982538/2024/12/11/bill-belichick-unc-coach-hiring/
 
