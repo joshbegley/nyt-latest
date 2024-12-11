@@ -1,3 +1,19 @@
+**What's next after Matt Rhule filled out Nebraska's staff with new hires, promotions?**\
+`On Tuesday, Nebraska announced three defensive hires that likely completes the Huskers staff.`\
+https://nytimes.com/athletic/5986604/2024/12/11/nebraska-college-football-staff-offensive-defensive-coordinators/
+
+**Syria After al-Assad: What’s Happening and What Comes Next**\
+`Rebels are asserting control in Damascus as Israel and other countries carry out military operations.`\
+https://nytimes.com/2024/12/11/world/middleeast/syria-assad-whats-happening-next.html
+
+**Man United enter talks to sign teenage left-back Diego Leon**\
+`Manchester United have entered talks to sign Diego Leon from Paraguayan side Cerro Porteno.`\
+https://nytimes.com/athletic/5986507/2024/12/11/man-united-diego-leon-transfer-talks/
+
+**Thunder get measure of revenge over Mavericks, advance to NBA Cup semifinals**\
+`With Chet Holmgren watching from the sidelines, Oklahoma City got a statement win over the team that knocked it out of the 2024 playoffs.`\
+https://nytimes.com/athletic/5986106/2024/12/11/thunder-mavs-gilgeous-alexander-nba-cup/
+
 **The Maple Leafs have issues. Goaltending won't mask them forever**\
 `Anthony Stolarz has been a revelation, but Leafs skaters are not controlling play like an elite team should, and it isn't sustainable.`\
 https://nytimes.com/athletic/5985932/2024/12/11/anthony-stolarz-maple-leafs-nhl-goaltending/
