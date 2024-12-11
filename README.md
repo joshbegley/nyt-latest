@@ -1,3 +1,7 @@
+**Marlins agree to trade infielder Jake Burger to Rangers: Sources**\
+`Burger hit .250/.301/.460 with 29 home runs, 76 RBIs and a .761 OPS in 2024.`\
+https://nytimes.com/athletic/5986018/2024/12/11/jake-burger-rangers-marlins-trade/
+
 **Brighton's defensive instability - and injuries - are undermining European ambitions**\
 `Hurzeler is yet to name an unchanged starting line-up in the Premier League and it is at the back that his plans are being hit hardest`\
 https://nytimes.com/athletic/5978753/2024/12/11/brighton-defensive-instability-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983670/2024/12/11/saudi-arabia-world-cup-2034-cont
 **Breaking down every one of Cole Palmer's record breaking 12 penalties for Chelsea**\
 `Chelsea's Palmer has beaten Yaya Toure's record for the most Premier League penalties scored in a row without a miss`\
 https://nytimes.com/athletic/5984311/2024/12/11/cole-palmer-penalty-record-chelsea/
-
-**Wednesday Briefing**\
-`A wave of attacks on Syria.`\
-https://nytimes.com/2024/12/11/briefing/syria-attacks-israel-gaza.html
 
