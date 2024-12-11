@@ -1,3 +1,11 @@
+**Syria’s New Leaders Balance Huge Struggles Amid Disorder**\
+`The rebels who seized control called for foreign help in prosecuting atrocities, while trying to restore order in a fractured country.`\
+https://nytimes.com/2024/12/11/world/middleeast/syria-rebels-retribution-fears.html
+
+**Martin Benson, Regional Theater Impresario, Dies at 87**\
+`South Coast Repertory, which he founded with a partner, was a major force in Southern California theater. He directed more than 100 of its productions.`\
+https://nytimes.com/2024/12/11/theater/martin-benson-dead.html
+
 **So Much Losing**\
 `President-elect Donald Trump is stocking his administration with people who have lost elections.`\
 https://nytimes.com/2024/12/11/us/politics/trump-cabinet-picks-elections.html
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/5987990/2024/12/11/cristian-romero-apologises-poste
 https://nytimes.com/athletic/5985593/2024/12/11/bill-belichick-north-carolina-college-coach/
 
 **Raiders owner Mark Davis to wait for offseason to decide on Antonio Pierce**\
-`IRVING, Texas — It’s no surprise that owner Mark Davis isn’t happy with his team right now.`\
+`The Raiders owner declined to commit to bringing Pierce back in 2025. "I don't even want to talk about that right now,” Davis said.`\
 https://nytimes.com/athletic/5987734/2024/12/11/raiders-mark-davis-antonio-pierce/
 
 **The ‘Ballad of Keiko’ Music Video**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5982538/2024/12/11/bill-belichick-unc-coach-hiring/
 **Wray draws praise for his work from Democrats, and praise for quitting from Republicans.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2024/12/11/us/trump-news/wray-draws-praise-for-his-work-from-democrats-and-praise-for-quitting-from-republicans
-
-**Why the Oilers claimed RHD Alec Regula off waivers**\
-`The 24-year-old has 22 NHL games to his name and has yet to play this season.`\
-https://nytimes.com/athletic/5987982/2024/12/11/oilers-alec-regula-waivers/
-
-**House Passes Defense Bill Denying Transgender Health Coverage for Minors**\
-`The $895 billion measure was approved over the opposition of most Democrats, who rejected a provision inserted by Republicans to deny the coverage to the minor children of military personnel.`\
-https://nytimes.com/2024/12/11/us/politics/house-defense-bill-transgender-care-minors.html
 
