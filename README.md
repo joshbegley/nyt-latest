@@ -1,3 +1,7 @@
+**Raygun Shuts Down Musical Inspired by Her Jeered Olympic Breaking**\
+`The comedian behind the parody about the Australian breaker who became a summer celebrity said she was willing to make some changes to avoid legal drama.`\
+https://nytimes.com/2024/12/11/theater/raygun-musical-olympic-breakdancer.html
+
 **Private Insurers Must Now Pay for Dyslexia Testing in New York**\
 `Gov. Kathy Hochul signed into law a first-in-the-nation bill requiring insurance companies to cover costs associated with dyslexia diagnoses.`\
 https://nytimes.com/2024/12/11/nyregion/dyslexia-new-york-insurance-coverage.html
@@ -20,7 +24,7 @@ https://nytimes.com/athletic/5986878/2024/12/11/fantasy-basketball-buy-low-sell-
 
 **Why Wimbledon wants 39 more tennis courts, and why campaigners are so opposed**\
 `What are the expansion plans for Wimbledon, and why is there so much opposition?`\
-https://nytimes.com/athletic/5827803/2024/12/11/wimbledon-tennis-expansion-explained/
+https://nytimes.com/athletic/5827803/2024/12/11/wimbledon-tennis-expansion-all-england-club-courts-explained/
 
 **Andre Agassi on Everything — and Nothing — to Do With Tennis**\
 ` The American eight-time major champion and self-professed “evolved philanthropist” shares the intricacies of his craft, mind-set and unorthodox approach, which have contributed to his success both on and off the court. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987090/2024/12/11/jauan-jennings-49ers-top-receive
 **The Giants should prioritize innings in their search for a starting pitcher**\
 `The Giants rotation has to be more than Logan Webb and hoping for rain. They need more reliable innings-eaters.`\
 https://nytimes.com/athletic/5984783/2024/12/11/sf-giants-offseason-plan-starters/
-
-**Like a Family Reunion, but With More Tears (and Tonys)**\
-`Members of the cast of the 2008 Tony-winning revival of “South Pacific,” including Matthew Morrison and Kelli O’Hara, reunited for a benefit performance. The emotions were the guest of honor.`\
-https://nytimes.com/2024/12/11/style/south-pacific-musical-reunion.html
 
