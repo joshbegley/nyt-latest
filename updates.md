@@ -1,3 +1,7 @@
+**South Korean Police Raid President’s Office in Martial Law Investigation**\
+`The authorities are investigating whether President Yoon Suk Yeol committed an act of insurrection when he declared martial law last week, plunging the country into crisis.`\
+https://nytimes.com/2024/12/10/world/asia/south-korea-president-office-raid.html
+
 **Judge Refuses to Allow Sale of Infowars to The Onion**\
 `The Onion’s bid was supported by the families of the victims of the Sandy Hook shooting and Everytown for Gun Safety, a nonprofit focused on ending gun violence.`\
 https://nytimes.com/2024/12/10/business/media/the-onion-infowars-alex-jones.html

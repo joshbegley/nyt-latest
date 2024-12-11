@@ -1,3 +1,7 @@
+**South Korean Police Raid President’s Office in Martial Law Investigation**\
+`The authorities are investigating whether President Yoon Suk Yeol committed an act of insurrection when he declared martial law last week, plunging the country into crisis.`\
+https://nytimes.com/2024/12/10/world/asia/south-korea-president-office-raid.html
+
 **Judge Refuses to Allow Sale of Infowars to The Onion**\
 `The Onion’s bid was supported by the families of the victims of the Sandy Hook shooting and Everytown for Gun Safety, a nonprofit focused on ending gun violence.`\
 https://nytimes.com/2024/12/10/business/media/the-onion-infowars-alex-jones.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5985737/2024/12/10/san-diego-padres-2024-winter-mee
 **Bucks beat Magic 114-109 to move on to semifinal: Takeaways**\
 `The Bucks will play the winner of Wednesday night’s quarterfinal between the Atlanta Hawks and New York Knicks.`\
 https://nytimes.com/athletic/5985529/2024/12/10/nba-cup-quarterfinals-scores-results-takeaways/
-
-**Special End-of-Year 2024 News Quiz for Students**\
-`See what you remember about this extraordinary year by taking our special 2024 news quiz.`\
-https://nytimes.com/interactive/2024/12/10/learning/2024StudentNewsQuiz.html
 
