@@ -1,3 +1,11 @@
+**NHL season predictions 3.0: Coaches on the hot seat, the fall of the Rangers and more**\
+`Two months into the season, our staff's updated picks for Cup winner, dark horse, biggest disappointment, awards, playoff fields and more.`\
+https://nytimes.com/athletic/5983247/2024/12/11/nhl-season-predictions-december-rangers-coaching-hot-seat/
+
+**The Largest Immigration Surge in U.S. History**\
+`We explain the scale of recent immigration to America.`\
+https://nytimes.com/2024/12/11/briefing/the-largest-immigration-surge-in-us-history.html
+
 **The Pulse: A Belichick-UNC reality check**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5984897/2024/12/11/bill-belichick-unc-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5984755/2024/12/11/carlos-correa-twins-trade-rocco-
 **John Hynes' in-game line adjustment once again sparks Wild**\
 `The one thing we've learned about John Hynes is that he's a heck of an in-game adjuster.`\
 https://nytimes.com/athletic/5986130/2024/12/11/wild-utah-john-hynes-line-adjustment/
-
-**A Search for Syria’s Disappeared, and New Details in C.E.O. Killing Investigation**\
-`Plus, another World Cup raises human rights fears.`\
-https://nytimes.com/2024/12/11/podcasts/syria-disappeared-ceo-killing.html
-
-**Pat Foley to call Blackhawks game at Wrigley Field, 15 years after missing out on first one**\
-`“If the phone rings and it’s something fun, the answer’s yes, every time,” Foley said of returning to the broadcast booth.`\
-https://nytimes.com/athletic/5983960/2024/12/11/pat-foley-blackhawks-wrigley/
 
