@@ -1,3 +1,15 @@
+**The Arsenal Corner Playbook: Explaining the principles that make Arteta's side so menacing**\
+`Nicolas Jover has helped shape Arsenal into probably the best set-piece team in the world - this is how it all works`\
+https://nytimes.com/athletic/5969908/2024/12/11/arsenal-corner-playbook/
+
+**Lamine Yamal's trademark trivela: Dissecting the Barcelona star's work of art**\
+`Yamal is fast making the outside-of-the-boot pass known as the trivela his trademark. Where does it come from and how does he do it?`\
+https://nytimes.com/athletic/5984174/2024/12/11/lamine-yamal-barcelona-trivela/
+
+**Why Saudi Arabia's 2034 World Cup is controversial**\
+`Host status for the 2034 World Cup is expected to be awarded to Saudi Arabia by FIFA today`\
+https://nytimes.com/athletic/5983670/2024/12/11/saudi-arabia-world-cup-2034-controversial/
+
 **Breaking down every one of Cole Palmer's record breaking 12 penalties for Chelsea**\
 `Chelsea's Palmer has beaten Yaya Toure's record for the most Premier League penalties scored in a row without a miss`\
 https://nytimes.com/athletic/5984311/2024/12/11/cole-palmer-penalty-record-chelsea/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5985016/2024/12/11/week-15-fantasy-football-ranking
 **Borussia Dortmund vs Barcelona: Preview, odds, prediction for big Champions League match**\
 `Borussia Dortmund and Barcelona are both off to good starts in the Champions League and now they face off in Germany.`\
 https://nytimes.com/athletic/5984356/2024/12/11/borussia-dortmund-barcelona-odds-prediction-champions-league/
-
-**Britain’s Falling Oil Output Leaves Jobs and Skills at Risk**\
-`The government wants to rapidly replace oil and natural gas with clean energy, but offshore wind and other alternatives are still in their early stages.`\
-https://nytimes.com/2024/12/11/business/energy-environment/britain-oil-clean-energy-transition.html
-
-**Houthi Attacks Turn Back the Clock for Shipping as Costs Pile Up**\
-`The transport route around the southern tip of Africa was once little used — but freighters are now forced to take it and are charging higher rates.`\
-https://nytimes.com/2024/12/11/business/houthi-red-sea-attacks-shipping-lanes-africa.html
-
-**A Danish Christmas Tradition That Comes From the Heart**\
-`In the land of hygge, handmade paper decorations have long brought holiday cheer — and a chance to share the simple joys of crafting.`\
-https://nytimes.com/2024/12/11/style/denmark-crafts-holidays.html
 
