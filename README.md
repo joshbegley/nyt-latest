@@ -26,7 +26,7 @@ https://nytimes.com/2024/12/10/nyregion/st-anns-report-winston-nguyen.html
 `The Yankees can't replace Juan Soto but adding Fried gives them one of the best rotations in the AL on paper.`\
 https://nytimes.com/athletic/5985582/2024/12/10/yankees-max-fried-signing-analysis/
 
-**The Tigers have interest in Roki Sasaki. But do they have a realistic shot? **\
+**Tigers have interest in Roki Sasaki. But do they have a realistic shot? **\
 `“Every team in baseball wants Sasaki,” Tigers president of baseball operations Scott Harris said. “We do, too."`\
 https://nytimes.com/athletic/5985631/2024/12/10/detroit-tigers-roki-sasaki/
 
