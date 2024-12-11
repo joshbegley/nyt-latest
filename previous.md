@@ -1,3 +1,7 @@
+**Like a Family Reunion, but With More Tears (and Tonys)**\
+`Members of the cast of the 2008 Tony-winning revival of “South Pacific,” including Matthew Morrison and Kelli O’Hara, reunited for a benefit performance. The emotions were the guest of honor.`\
+https://nytimes.com/2024/12/11/style/south-pacific-musical-reunion.html
+
 **NFL best bets Week 15: Picking two sizable favorites and an under**\
 `Austin Mock has two solid home favorites among his best bets for Week 15 of the NFL season.`\
 https://nytimes.com/athletic/5987124/2024/12/11/nfl-best-bets-week-15-cardinals-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981357/2024/12/11/saudi-arabia-world-cup-fifa-choi
 **Heat Today: Jimmy Butler trade rumors swirl, but Heat history with star exits signals waiting game**\
 `Jimmy Butler's future in Miami remains uncertain, but the Heat have a history of applying the waiting game.`\
 https://nytimes.com/athletic/5986628/2024/12/11/jimmy-butler-heat-lebron-james-dwyane-wade-shaquille-o-neal-nba/
-
-**Gomez on nearly leaving Liverpool: 'Things happen for a reason'**\
-`Joe Gomez admits he came close to leaving Liverpool last summer but is delighted that he ended up staying at Anfield.`\
-https://nytimes.com/athletic/5986719/2024/12/11/joe-gomez-liverpool-transfer-summer/
 

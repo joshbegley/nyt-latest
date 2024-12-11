@@ -1,3 +1,7 @@
+**Like a Family Reunion, but With More Tears (and Tonys)**\
+`Members of the cast of the 2008 Tony-winning revival of “South Pacific,” including Matthew Morrison and Kelli O’Hara, reunited for a benefit performance. The emotions were the guest of honor.`\
+https://nytimes.com/2024/12/11/style/south-pacific-musical-reunion.html
+
 **NFL best bets Week 15: Picking two sizable favorites and an under**\
 `Austin Mock has two solid home favorites among his best bets for Week 15 of the NFL season.`\
 https://nytimes.com/athletic/5987124/2024/12/11/nfl-best-bets-week-15-cardinals-vikings/
