@@ -1,3 +1,11 @@
+**New Friends After 50? Yes, Please!**\
+`The people in our lives are a dynamic constellation.`\
+https://nytimes.com/2024/12/11/opinion/new-friends-happiness-love.html
+
+**Guardiola's headache, USMNT stars align, Lewis-Skelly takes chance - Champions League Briefing**\
+`Troubles mount for Pep Guardiola and Manchester City while several USMNT players had a great night in the Champions League.`\
+https://nytimes.com/athletic/5986562/2024/12/11/guardiola-usmnt-champions-league/
+
 **Why Trump Soured on F.B.I. Director Christopher Wray**\
 `By the time Donald J. Trump left the White House, he was eager to fire Mr. Wray, but he held back. His antipathy only heightened in the years after his presidency.`\
 https://nytimes.com/2024/12/11/us/politics/christopher-wray-trump.html
