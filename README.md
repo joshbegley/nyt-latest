@@ -2,6 +2,10 @@
 `Edwards has worked on his form until it's one fluid motion, capped with a portrait-worthy follow-through and a snap of the net.`\
 https://nytimes.com/athletic/5983477/2024/12/11/anthony-edwards-timberwolves-jumper-shot-3-pointers/
 
+**As Juan Soto embarks on $765M future, Ted Williams' shadow lingers: Where could he end up?**\
+`What hitter in all of baseball history is the most comparable to Soto through age 25? Ted Williams. So where could Soto end up — in 2040?`\
+https://nytimes.com/athletic/5985812/2024/12/11/juan-soto-ted-williams-765-million-future-mets/
+
 **Prince William’s Chat With Trump Shows Why Royals May Be Potent Diplomatic Tool**\
 `President-elect Donald J. Trump has a reverence, bordering on awe, for Britain’s royal family. British diplomats hope that may help safeguard the “special relationship” in a fractious political climate.`\
 https://nytimes.com/2024/12/11/world/europe/trump-uk-royals-prince-william-king-charles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/opinion/farah-stockman-syria-assad-sanctions.html
 **Suspect in C.E.O.’s Killing Fights Extradition to New York**\
 `Luigi Mangione, who was charged with murder in the fatal shooting of Brian Thompson, the chief executive of UnitedHealthcare, is a 26-year-old Ivy League graduate from a prominent Maryland family. Maria Cramer, a New York Times reporter covering crime, describes what else we know.`\
 https://nytimes.com/video/nyregion/100000009870002/suspect-in-ceos-killing-fights-extradition-to-new-york.html
-
-**In Aleppo, Rebels Give a Sense of What May Come in Syria**\
-`Rebel fighters who took control of Aleppo about two weeks ago have promised security and continuity. Prices have skyrocketed, but residents express some hope for the future.`\
-https://nytimes.com/2024/12/11/world/middleeast/aleppo-syria-rebel-government.html
 
