@@ -1,3 +1,11 @@
+**Michigan hiring Chip Lindsey from UNC as new OC: Source**\
+`Chip Lindsey, who was Troy's head coach from 2019-21, is expected to replace the fired Kirk Campbell as Michigan's offensive coordinator. `\
+https://nytimes.com/athletic/5985477/2024/12/10/chip-lindsey-michigan-offensive-coordinator/
+
+**UnitedHealthcare C.E.O. Laid to Rest as Family Mourns Privately**\
+`Brian Thompson was remembered in his Minnesota hometown as a devoted father to his two sons.`\
+https://nytimes.com/2024/12/10/nyregion/unitedhealthcare-brian-thompson-funeral.html
+
 **West Virginia forward Tucker DeVries out indefinitely with upper-body injury**\
 `DeVries has emerged as one of the best players in the Big 12, averaging 14.9 points, 4.9 rebounds and 2.8 assists per game`\
 https://nytimes.com/athletic/5985350/2024/12/10/west-virginia-tucker-devries-out-indefinitely/
