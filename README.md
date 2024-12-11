@@ -1,3 +1,7 @@
+**How Thatcher Demko looked like himself in long-awaited return: 3 takeaways**\
+`For most of the sloppily played, low-energy contest at Rogers Arena, the performance matched the stakes. The Blues won 4-3 in overtime.`\
+https://nytimes.com/athletic/5985923/2024/12/11/canucks-lose-blues-thatcher-demko-return/
+
 **How a Feminist Comedy Came to Rule China’s Box Office**\
 `“Her Story” touches on sensitive topics in China, like censorship and gender inequality. But its humorous, nonconfrontational approach may have helped it pass censors.`\
 https://nytimes.com/2024/12/11/world/asia/china-feminist-comedy-her-story.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/arts/michael-cole-dead.html
 **The resurgence of Will Hughes - a cult hero in waiting, if he can keep his spot**\
 `A run in the team has given the midfielder a new opportunity, and he's taken it`\
 https://nytimes.com/athletic/5976832/2024/12/11/palace-will-hughes-resurgence/
-
-**How Ruud van Nistelrooy is building on Leicester's box midfield foundations**\
-`It is early days but Van Nistelrooy is setting his stall out on how he wants Leicester to play - and it is on the front foot`\
-https://nytimes.com/athletic/5983549/2024/12/11/how-ruud-van-nistelrooy-is-building-on-leicesters-box-midfield-foundations/
 
