@@ -1,3 +1,19 @@
+**Raygun Shuts Down Musical Inspired by Her Jeered Olympic Breaking**\
+`The comedian behind the parody about the Australian breaker who became a summer celebrity said she was willing to make some changes to avoid legal drama.`\
+https://nytimes.com/2024/12/11/theater/raygun-musical-olympic-breakdancer.html
+
+**Private Insurers Must Now Pay for Dyslexia Testing in New York**\
+`Gov. Kathy Hochul signed into law a first-in-the-nation bill requiring insurance companies to cover costs associated with dyslexia diagnoses.`\
+https://nytimes.com/2024/12/11/nyregion/dyslexia-new-york-insurance-coverage.html
+
+**Preet Bharara to Investigate State Police Slowdown in New Jersey**\
+`New Jersey’s attorney general has chosen Mr. Bharara, a former U.S. attorney, to investigate a steep dip in tickets for speeding and drunken driving.`\
+https://nytimes.com/2024/12/11/nyregion/trooper-slowdown-preet-bharara.html
+
+**Why Wimbledon wants 39 more tennis courts, and why campaigners are so opposed**\
+`What are the expansion plans for Wimbledon, and why is there so much opposition?`\
+https://nytimes.com/athletic/5827803/2024/12/11/wimbledon-tennis-expansion-all-england-club-courts-explained/
+
 **Alexander Brothers Sex Trafficking Indictment**\
 `The federal indictment against Oren Alexander, Tal Alexander and Alon Alexander, on conspiracy to commit sex trafficking.`\
 https://nytimes.com/interactive/2024/12/11/nyregion/alexander-indictment.html
