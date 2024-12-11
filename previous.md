@@ -1,3 +1,11 @@
+**North Korea Says Yoon Has Caused ‘Pandemonium’ in South Korea**\
+`In its first statement about the turmoil over President Yoon Suk Yeol’s martial law decree, the North said nothing about how inter-Korean relations might be affected.`\
+https://nytimes.com/2024/12/10/world/asia/north-korea-martial-law-reaction.html
+
+**Seemingly Forever**\
+`Kathy Bloomer and Jeff Chen have their first Times collaboration.`\
+https://nytimes.com/2024/12/10/crosswords/daily-puzzle-2024-12-11.html
+
 **Blue Jays acquisition of Andrés Giménez has to set table for something more**\
 `The Jays made their first big splash of the offseason, but this much is clear: Much work is ahead.`\
 https://nytimes.com/athletic/5985663/2024/12/10/blue-jays-andres-gimenez-offseason-plans/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/10/nyregion/st-anns-report-winston-nguyen.html
 **Yankees pivot to bolster their rotation with Max Fried: Law**\
 `The Yankees can't replace Juan Soto but adding Fried gives them one of the best rotations in the AL on paper.`\
 https://nytimes.com/athletic/5985582/2024/12/10/yankees-max-fried-signing-analysis/
-
-**Tigers have interest in Roki Sasaki. But do they have a realistic shot? **\
-`“Every team in baseball wants Sasaki,” Tigers president of baseball operations Scott Harris said. “We do, too."`\
-https://nytimes.com/athletic/5985631/2024/12/10/detroit-tigers-roki-sasaki/
-
-**Georgia Man Charged With 1985 Murders of Couple in Church**\
-`Erik Sparre was arrested earlier this week, more than two decades after Dennis Perry was wrongly sent to prison for the crime.`\
-https://nytimes.com/2024/12/10/us/erik-sparre-arrested-swain-murders.html
 

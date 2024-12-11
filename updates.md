@@ -1,3 +1,11 @@
+**North Korea Says Yoon Has Caused ‘Pandemonium’ in South Korea**\
+`In its first statement about the turmoil over President Yoon Suk Yeol’s martial law decree, the North said nothing about how inter-Korean relations might be affected.`\
+https://nytimes.com/2024/12/10/world/asia/north-korea-martial-law-reaction.html
+
+**Seemingly Forever**\
+`Kathy Bloomer and Jeff Chen have their first Times collaboration.`\
+https://nytimes.com/2024/12/10/crosswords/daily-puzzle-2024-12-11.html
+
 **Red Sox still on the sidelines as pitching market heats up and options dwindle**\
 `“In order to attract free-agent talent, you kind have to be willing to get uncomfortable,” chief baseball officer Craig Breslow said.`\
 https://nytimes.com/athletic/5985261/2024/12/10/red-sox-mlb-free-agent-pitching/
