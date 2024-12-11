@@ -1,3 +1,7 @@
+**Georgia Man Charged With 1985 Murders of Couple in Church**\
+`Erik Sparre was arrested earlier this week, more than two decades after Dennis Perry was wrongly sent to prison for the crime.`\
+https://nytimes.com/2024/12/10/us/erik-sparre-arrested-swain-murders.html
+
 **Rocky Colavito, Cleveland legend and 1-time AL home run king, dies at 91**\
 `A revered power hitter who was imprudently traded in the prime of his career, Colavito played for six teams across 14 major-league seasons.`\
 https://nytimes.com/athletic/5874958/2024/12/10/rocky-colavito-cleveland-obituary/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/us/politics/trump-syria-rebels.html
 **Blue Jays trade for defensive whiz Andrés Giménez, but the bat is a question: Law**\
 `The Jays are paying a lot for an upgrade, but this is clearly a salary dump on the Cleveland side. Will they spend elsewhere?`\
 https://nytimes.com/athletic/5985478/2024/12/10/blue-jays-guardians-andres-gimenez-spencer-horwitz/
-
-**Michigan hiring Chip Lindsey from UNC as new OC: Source**\
-`Chip Lindsey, who was Troy's head coach from 2019-21, is expected to replace the fired Kirk Campbell as Michigan's offensive coordinator. `\
-https://nytimes.com/athletic/5985477/2024/12/10/chip-lindsey-michigan-offensive-coordinator/
 
