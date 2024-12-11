@@ -1,3 +1,7 @@
+**FIFA confirms 2030, 2034 World Cup host nations: All you need to know**\
+`Both bids ran unopposed and were officially voted through at a FIFA Congress meeting on Wednesday.`\
+https://nytimes.com/athletic/5981352/2024/12/11/fifa-world-cup-hosts-saudi-arabia-europe-africa-south-america/
+
 **Who’s trending up or down for the Canucks after 27 games?**\
 `The Canucks have managed to tread water amidst some significant star-level absences from the lineup.`\
 https://nytimes.com/athletic/5986211/2024/12/11/canucks-stock-watch-hughes-suter-debrusk/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986339/2024/12/11/bucks-nba-cup-semifinals/
 **Who Set the Stage for al-Assad’s Ouster? There Are Different Answers in the U.S. and Israel.**\
 `President Biden says he weakened Russia, Iran and Hezbollah, laying the groundwork for Bashar al-Assad’s ouster. Prime Minister Benjamin Netanyahu says the Syrian leader would still be in power had he listened to American advice.`\
 https://nytimes.com/2024/12/11/us/politics/al-assad-ouster-us-israel.html
-
-**Anthony Serafino: Bromley's new American owner 'addicted to watching EFL'**\
-`Anthony Serafino has got a bad case of “footballitis” — although he would probably call it “socceritis” — and it is the particularly virulent English strain of the affliction that has taken hold.`\
-https://nytimes.com/athletic/5986771/2024/12/11/bromley-takeover-anthony-serafino-efl/
 
