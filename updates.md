@@ -1,3 +1,11 @@
+**A.D.H.D. Diagnoses Are Surging Among Older Americans**\
+`Many say they are relieved to finally have an explanation after decades of struggle.`\
+https://nytimes.com/2024/12/11/well/mind/adhd-diagnosis-older-middle-age.html
+
+**Reflections on Motherhood, Careers and Identity**\
+`Readers respond to an essay by Daniela J. Lamas. Also: Andy Griffith’s Mayberry today; Donald Trump’s loyalty test; never an exile; choosing charities.`\
+https://nytimes.com/2024/12/11/opinion/motherhood-careers-identity.html
+
 **Reflections on Motherhood, Careers and Identity**\
 `Readers respond to an essay by Daniela J. Lamas. Also: Andy Griffith’s Mayberry today; Donald Trump’s loyal test; never an exile; choosing charities.`\
 https://nytimes.com/2024/12/11/opinion/motherhood-careers-identity.html
