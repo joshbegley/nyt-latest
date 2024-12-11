@@ -36,5 +36,5 @@ https://nytimes.com/athletic/5986730/2024/12/11/nfl-approve-sale-eagles/
 
 **‘Maria’ Review: A Diva in Decline**\
 `Angelina Jolie plays the opera star Maria Callas in a movie that can’t figure her out.`\
-https://nytimes.com/2024/12/11/movies/maria-review-divas-decline.html
+https://nytimes.com/2024/12/11/movies/maria-review-angelina-jolie.html
 
