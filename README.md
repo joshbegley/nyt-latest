@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/11/arts/music/die-frau-ohne-schatten-met-opera.html
 https://nytimes.com/athletic/5984665/2024/12/11/sec-football-viewership-georgia-alabama/
 
 **Astros, Cubs discuss possible trade involving Kyle Tucker, Seiya Suzuki**\
-`Cubs infielder Isaac Paredes has also been part of the discussions between Chicago and Houston. `\
+`Cubs outfielder Seiya Suzuki has also been part of the discussions between Chicago and Houston. `\
 https://nytimes.com/athletic/5987064/2024/12/11/astros-cubs-kyle-tucker-seiya-suzuki-trade/
 
 **Prominent Real Estate Agents and Brothers Charged With Sex Trafficking**\
