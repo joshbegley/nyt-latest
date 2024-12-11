@@ -1,3 +1,7 @@
+**Georgia Man Charged With 1985 Murders of Couple in Church**\
+`Erik Sparre was arrested earlier this week, more than two decades after Dennis Perry was wrongly sent to prison for the crime.`\
+https://nytimes.com/2024/12/10/us/erik-sparre-arrested-swain-murders.html
+
 **Rocky Colavito, Cleveland legend and 1-time AL home run king, dies at 91**\
 `A revered power hitter who was imprudently traded in the prime of his career, Colavito played for six teams across 14 major-league seasons.`\
 https://nytimes.com/athletic/5874958/2024/12/10/rocky-colavito-cleveland-obituary/
