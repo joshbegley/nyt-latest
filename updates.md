@@ -1,3 +1,11 @@
+**Yankees notes: Roki Sasaki, Kyle Tucker, Spencer Jones**\
+`The Yankees don't know yet if they'll get a meeting with Sasaki, plus who the Astros might want in a Tucker deal.`\
+https://nytimes.com/athletic/5987377/2024/12/11/yankees-interest-roki-sasaki-kyle-tucker/
+
+**Collins Grills Hegseth and Declines to Endorse Him for Defense Secretary**\
+`Senator Susan Collins, Republican of Maine, said she questioned President-elect Donald J. Trump’s pick to lead the Pentagon on the misconduct allegations against him and other topics.`\
+https://nytimes.com/2024/12/11/us/politics/susan-collins-hegseth-trump-defense-secretary.html
+
 **Giants starting Tommy DeVito in Week 15; Drew Lock in walking boot**\
 `The Giants make yet another change at quarterback after Drew Lock suffered a heel injury that put him in a walking boot.`\
 https://nytimes.com/athletic/5987305/2024/12/11/tommy-devito-quarterback-giants-ravens/
