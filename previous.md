@@ -1,3 +1,7 @@
+**Christopher Wray says he will step down as F.B.I. director.**\
+`President-elect Donald J. Trump had already signaled his intention to replace Mr. Wray with a longtime loyalist, Kash Patel.`\
+https://nytimes.com/live/2024/12/11/us/trump-news/wray-trump-fbi-director
+
 **USC 2025 schedule analysis: Will Trojans be ready for Year 2 in Big Ten?**\
 `The Trojans need to prove they can win on the road after going 1-4 away from home in 2024. `\
 https://nytimes.com/athletic/5986532/2024/12/11/usc-football-2025-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/nyregion/dyslexia-new-york-insurance-coverage.htm
 **Preet Bharara to Investigate State Police Slowdown in New Jersey**\
 `New Jersey’s attorney general has chosen Mr. Bharara, a former U.S. attorney, to investigate a steep dip in tickets for speeding and drunken driving.`\
 https://nytimes.com/2024/12/11/nyregion/trooper-slowdown-preet-bharara.html
-
-**Alexander Brothers Sex Trafficking Indictment**\
-`The federal indictment against Oren Alexander, Tal Alexander and Alon Alexander, on conspiracy to commit sex trafficking.`\
-https://nytimes.com/interactive/2024/12/11/nyregion/alexander-indictment.html
 

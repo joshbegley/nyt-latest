@@ -1,3 +1,7 @@
+**Christopher Wray says he will step down as F.B.I. director.**\
+`President-elect Donald J. Trump had already signaled his intention to replace Mr. Wray with a longtime loyalist, Kash Patel.`\
+https://nytimes.com/live/2024/12/11/us/trump-news/wray-trump-fbi-director
+
 **USC 2025 schedule analysis: Will Trojans be ready for Year 2 in Big Ten?**\
 `The Trojans need to prove they can win on the road after going 1-4 away from home in 2024. `\
 https://nytimes.com/athletic/5986532/2024/12/11/usc-football-2025-schedule/
