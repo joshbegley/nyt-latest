@@ -1,3 +1,11 @@
+**Can the Senators stop the constant Brady Tkachuk rumors? 'It's unfair to him'**\
+`Brady Tkachuk spoke for the first time since being the subject of a yet another trade report.`\
+https://nytimes.com/athletic/5982123/2024/12/11/brady-tkachuk-senators-trade-rangers-rumors/
+
+**John Hynes' in-game line adjustment once again sparks Wild**\
+`The one thing we've learned about John Hynes is that he's a heck of an in-game adjuster.`\
+https://nytimes.com/athletic/5986130/2024/12/11/wild-utah-john-hynes-line-adjustment/
+
 **Flick banned for two games after red card, will miss Atletico Madrid match**\
 `Barcelona head coach Hansi Flick has been given a two-game touchline ban following his red card during Saturday&#8217;s draw with Real Betis.`\
 https://nytimes.com/athletic/5986346/2024/12/11/hansi-flick-red-card-ban-barcelona/
