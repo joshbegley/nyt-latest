@@ -1,3 +1,7 @@
+**Why Trump Soured on F.B.I. Director Christopher Wray**\
+`By the time Donald J. Trump left the White House, he was eager to fire Mr. Wray, but he held back. His antipathy only heightened in the years after his presidency.`\
+https://nytimes.com/2024/12/11/us/politics/christopher-wray-trump.html
+
 **What Is Extradition? Can Fighting It Help the Midtown Shooting Suspect?**\
 `Under the Constitution, states are obliged to hand over other states’ fugitives if requested. But the process can be challenged in court. Here’s what to know.`\
 https://nytimes.com/2024/12/11/us/extradition-mangione-altoona.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987792/2024/12/11/nfl-jay-z-allegations-roc-nation
 **Did Bill Belichick abandon his quest for the NFL victories record? Never say never**\
 `There are plenty of scenarios in which Belichick could someday receive a call from a needy NFL team. He appears to be vigorous and focused. `\
 https://nytimes.com/athletic/5985682/2024/12/11/bill-belichick-north-carolina-nfl-record-patriots/
-
-**Syria’s New Leaders Balance Huge Struggles Amid Disorder**\
-`The rebels who seized control called for foreign help in prosecuting atrocities, while trying to restore order in a fractured country.`\
-https://nytimes.com/2024/12/11/world/middleeast/syria-rebels-retribution-fears.html
 

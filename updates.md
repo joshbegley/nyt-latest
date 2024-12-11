@@ -1,3 +1,7 @@
+**Why Trump Soured on F.B.I. Director Christopher Wray**\
+`By the time Donald J. Trump left the White House, he was eager to fire Mr. Wray, but he held back. His antipathy only heightened in the years after his presidency.`\
+https://nytimes.com/2024/12/11/us/politics/christopher-wray-trump.html
+
 **What Is Extradition? Can Fighting It Help the Midtown Shooting Suspect?**\
 `Under the Constitution, states are obliged to hand over other states’ fugitives if requested. But the process can be challenged in court. Here’s what to know.`\
 https://nytimes.com/2024/12/11/us/extradition-mangione-altoona.html
