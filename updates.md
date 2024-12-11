@@ -1,3 +1,11 @@
+**West Virginia forward Tucker DeVries out indefinitely with upper-body injury**\
+`DeVries has emerged as one of the best players in the Big 12, averaging 14.9 points, 4.9 rebounds and 2.8 assists per game`\
+https://nytimes.com/athletic/5985350/2024/12/10/west-virginia-tucker-devries-out-indefinitely/
+
+**The Roki Sasaki sweepstakes are underway, a 'major priority' for the Dodgers**\
+`"We're going to do whatever we can, and know that there are a lot of other teams that are going to do the exact same thing," Friedman said.`\
+https://nytimes.com/athletic/5985497/2024/12/10/roki-sasaki-dodgers-interest/
+
 **The Roki Sasaki sweepstakes are underway, a 'major priority' for the Dodgers**\
 `“We’re going to do whatever we can, and know that there are a lot of other teams that are going to do the exact same thing,” Friedman said.`\
 https://nytimes.com/athletic/5985497/2024/12/10/roki-sasaki-dodgers-interest/

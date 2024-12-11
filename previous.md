@@ -1,5 +1,9 @@
+**West Virginia forward Tucker DeVries out indefinitely with upper-body injury**\
+`DeVries has emerged as one of the best players in the Big 12, averaging 14.9 points, 4.9 rebounds and 2.8 assists per game`\
+https://nytimes.com/athletic/5985350/2024/12/10/west-virginia-tucker-devries-out-indefinitely/
+
 **The Roki Sasaki sweepstakes are underway, a 'major priority' for the Dodgers**\
-`“We’re going to do whatever we can, and know that there are a lot of other teams that are going to do the exact same thing,” Friedman said.`\
+`"We're going to do whatever we can, and know that there are a lot of other teams that are going to do the exact same thing," Friedman said.`\
 https://nytimes.com/athletic/5985497/2024/12/10/roki-sasaki-dodgers-interest/
 
 **‘We Thought We Would Be Executed’: Freed Prisoner on Life Inside Sednaya**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984499/2024/12/10/champions-league-mbappe-real-mad
 **Trump Picks Andrew Ferguson to Lead Federal Trade Commission**\
 `Mr. Ferguson, a current Republican member of the agency, will replace Lina Khan, who had aggressively challenged mergers and the power of the biggest tech companies.`\
 https://nytimes.com/2024/12/10/technology/trump-ftc-andrew-ferguson.html
-
-**Nationals win MLB Draft Lottery, land No. 1 pick in 2025 draft**\
-`In the past, the Nationals have selected both Stephen Strasburg (2009), as well as Bryce Harper (2010) with the No. 1 selection. `\
-https://nytimes.com/athletic/5985327/2024/12/10/mlb-2024-draft-lottery-washington-nationals-no-1-pick/
 
