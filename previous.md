@@ -1,5 +1,5 @@
-**Bayer Leverkusen buoyed by a victory more reminiscent of their former selves**\
-`Xabi Alonso's side have not quite scaled the heights of last season to date, but their win over Inter may have tweaked the muscle memory`\
+**Bayer Leverkusen buoyed by a late win more reminiscent of their former selves**\
+`Xabi Alonso's side have not quite scaled the heights of last season to date, but the victory over Inter may have tweaked the muscle memory`\
 https://nytimes.com/athletic/5985279/2024/12/11/leverkusen-alonso-mukiele-inter/
 
 **Atalanta couldn't quite beat Real Madrid - but showed why the Serie A title is within reach**\
