@@ -1,3 +1,15 @@
+**A California family feels hope and worry for relatives in Syria.**\
+`By Vik Jolly`\
+https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syria-little-arabia-california
+
+**Kurdish-led forces say they reached a truce with Turkish-backed fighters in a city in northern Syria.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/kurdish-led-forces-say-they-reached-a-truce-with-turkish-backed-fighters-in-a-city-in-northern-syria
+
+**Syria Live Updates: U.S. Tries to Manage Fallout From al-Assad’s Ouster**\
+`U.S.-backed fighters said they had reached a truce with Turkish-supported forces in a northern Syrian town. The head of the U.S. military’s Central Command visited Syria and Iraq.`\
+https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels
+
 **Building Anthony Edwards' pretty jumper: 'Make 'em respect it'**\
 `Edwards has worked on his form until it's one fluid motion, capped with a portrait-worthy follow-through and a snap of the net.`\
 https://nytimes.com/athletic/5983477/2024/12/11/anthony-edwards-timberwolves-jumper-shot-3-pointers/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/11/us/politics/storm-aid-vs-partisan-power-a-showdow
 **Reckoning With the Scale of California Wildfires**\
 `The numbers should be eye-opening to anyone who hasn’t spent much time reckoning with the sheer scale of the challenge of managing California fire.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/california-wildfire-damage
-
-**What’s Your All-Time Favorite Toy?**\
-`Furbys, Nintendo Switch, Rubik’s Cube, American Girl dolls, or Squishmallows: What’s on your Mount Rushmore of toys?`\
-https://nytimes.com/2024/12/11/learning/whats-your-all-time-favorite-toy.html
-
-**The One Thing the U.S. Can Do to Help Syria Now**\
-`Editorial board writer Farah Stockman argues ending the sanctions on Syria is the best way for America to help stabilize the country following the collapse of the Assad regime.`\
-https://nytimes.com/2024/12/11/opinion/farah-stockman-syria-assad-sanctions.html
-
-**Suspect in C.E.O.’s Killing Fights Extradition to New York**\
-`Luigi Mangione, who was charged with murder in the fatal shooting of Brian Thompson, the chief executive of UnitedHealthcare, is a 26-year-old Ivy League graduate from a prominent Maryland family. Maria Cramer, a New York Times reporter covering crime, describes what else we know.`\
-https://nytimes.com/video/nyregion/100000009870002/suspect-in-ceos-killing-fights-extradition-to-new-york.html
 

@@ -1,3 +1,15 @@
+**A California family feels hope and worry for relatives in Syria.**\
+`By Vik Jolly`\
+https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syria-little-arabia-california
+
+**Kurdish-led forces say they reached a truce with Turkish-backed fighters in a city in northern Syria.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/kurdish-led-forces-say-they-reached-a-truce-with-turkish-backed-fighters-in-a-city-in-northern-syria
+
+**Syria Live Updates: U.S. Tries to Manage Fallout From al-Assad’s Ouster**\
+`U.S.-backed fighters said they had reached a truce with Turkish-supported forces in a northern Syrian town. The head of the U.S. military’s Central Command visited Syria and Iraq.`\
+https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels
+
 **As Juan Soto embarks on $765M future, Ted Williams' shadow lingers: Where could he end up?**\
 `What hitter in all of baseball history is the most comparable to Soto through age 25? Ted Williams. So where could Soto end up — in 2040?`\
 https://nytimes.com/athletic/5985812/2024/12/11/juan-soto-ted-williams-765-million-future-mets/
