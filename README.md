@@ -1,3 +1,11 @@
+**Blue Jays take Angel Bastardo — a 'high-impact arm' — in the Rule 5 draft**\
+`Bastardo is recovering from Tommy John surgery but was up to 97 mph before his injury.`\
+https://nytimes.com/athletic/5987719/2024/12/11/blue-jays-angel-bastardo-rule-5/
+
+**Luke Musgrave could give Packers boost as TE practices for first time since Week 6**\
+`The 2023 second-round pick has missed the last two months while rehabbing a torn ligament in his left ankle.`\
+https://nytimes.com/athletic/5987878/2024/12/11/luke-musgrave-packers-tight-end-injury/
+
 **What we learned about the Mets at the Winter Meetings**\
 `Here are the latest rumblings on Pete Alonso, Starling Marte, Roki Sasaki and more. `\
 https://nytimes.com/athletic/5987786/2024/12/11/mets-winter-meetings-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5987507/2024/12/11/nfl-winter-owners-meetings-round
 **The Briefing: Juventus 2 Man City 0 - Playoffs for Guardiola? Unlucky Ederson? De Bruyne lone bright spark**\
 `Sam Lee breaks down City's defeat in Turin which leaves them facing a two-legged playoff in the new format.`\
 https://nytimes.com/athletic/5980873/2024/12/11/man-city-juventus-ederson-guardiola/
-
-**Did Christopher Wray Just Defy Donald Trump?**\
-`Now, the Senate has to do its job.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/chris-wray-fbi-trump-step-down
-
-**Why Was a Murder Suspect’s Instagram Taken Down, but Not His Goodreads?**\
-`Luigi Mangione’s social media accounts attracted swift attention after he was arrested in the killing of UnitedHealthcare’s chief executive. When do companies scrub a digital trail?`\
-https://nytimes.com/2024/12/11/technology/social-media-goodreads-reddit-tiktok.html
 
