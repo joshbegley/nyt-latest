@@ -1,3 +1,11 @@
+**Why the Oilers claimed RHD Alec Regula off waivers**\
+`The 24-year-old has 22 NHL games to his name and has yet to play this season.`\
+https://nytimes.com/athletic/5987982/2024/12/11/oilers-alec-regula-waivers/
+
+**House Passes Defense Bill Denying Transgender Health Coverage for Minors**\
+`The $883.7 billion measure was approved over the opposition of most Democrats, who rejected a provision inserted by Republicans to deny the coverage to the minor children of military personnel.`\
+https://nytimes.com/2024/12/11/us/politics/house-defense-bill-transgender-care-minors.html
+
 **Blue Jays take Angel Bastardo — a 'high-impact arm' — in the Rule 5 draft**\
 `Bastardo is recovering from Tommy John surgery but was up to 97 mph before his injury.`\
 https://nytimes.com/athletic/5987719/2024/12/11/blue-jays-angel-bastardo-rule-5/
