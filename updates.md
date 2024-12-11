@@ -1,3 +1,7 @@
+**The Aston Villa striker debate: Where Jhon Duran's emergence leaves Ollie Watkins**\
+`The strikers have yet to thrive in partnership, but the Colombian's contributions off the bench continue to prove spectacular`\
+https://nytimes.com/athletic/5983250/2024/12/11/aston-villa-watkins-duran-leipzig/
+
 **Word of the Day: toboggan**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/11/learning/word-of-the-day-toboggan.html

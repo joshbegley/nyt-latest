@@ -1,3 +1,7 @@
+**The Aston Villa striker debate: Where Jhon Duran's emergence leaves Ollie Watkins**\
+`The strikers have yet to thrive in partnership, but the Colombian's contributions off the bench continue to prove spectacular`\
+https://nytimes.com/athletic/5983250/2024/12/11/aston-villa-watkins-duran-leipzig/
+
 **Word of the Day: toboggan**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/11/learning/word-of-the-day-toboggan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986018/2024/12/11/jake-burger-rangers-marlins-trad
 **Brighton's defensive instability - and injuries - are undermining European ambitions**\
 `Hurzeler is yet to name an unchanged starting line-up in the Premier League and it is at the back that his plans are being hit hardest`\
 https://nytimes.com/athletic/5978753/2024/12/11/brighton-defensive-instability-injuries/
-
-**Five things we learned from Amorim's first five Man Utd games**\
-`Looking for meaning in the new head coach's early reign - changing roles, squad weaknesses, and how he'll put things right`\
-https://nytimes.com/athletic/5983442/2024/12/11/five-things-we-learned-from-amorims-first-five-man-utd-games/
 
