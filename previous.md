@@ -1,3 +1,7 @@
+**The Tigers have interest in Roki Sasaki. But do they have a realistic shot? **\
+`“Every team in baseball wants Sasaki,” Tigers president of baseball operations Scott Harris said. “We do, too."`\
+https://nytimes.com/athletic/5985631/2024/12/10/detroit-tigers-roki-sasaki/
+
 **Georgia Man Charged With 1985 Murders of Couple in Church**\
 `Erik Sparre was arrested earlier this week, more than two decades after Dennis Perry was wrongly sent to prison for the crime.`\
 https://nytimes.com/2024/12/10/us/erik-sparre-arrested-swain-murders.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/us/franklin-fire-malibu-evacuations.html
 **Trump’s Record on Syria: Airstrikes and Troop Moves in a Land of ‘Sand and Death’**\
 `The president-elect faces hard choices about the country’s post-Assad future. His vows not to get involved might be hard to keep.`\
 https://nytimes.com/2024/12/10/us/politics/trump-syria-rebels.html
-
-**Blue Jays trade for defensive whiz Andrés Giménez, but the bat is a question: Law**\
-`The Jays are paying a lot for an upgrade, but this is clearly a salary dump on the Cleveland side. Will they spend elsewhere?`\
-https://nytimes.com/athletic/5985478/2024/12/10/blue-jays-guardians-andres-gimenez-spencer-horwitz/
 

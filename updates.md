@@ -1,3 +1,7 @@
+**The Tigers have interest in Roki Sasaki. But do they have a realistic shot? **\
+`“Every team in baseball wants Sasaki,” Tigers president of baseball operations Scott Harris said. “We do, too."`\
+https://nytimes.com/athletic/5985631/2024/12/10/detroit-tigers-roki-sasaki/
+
 **Georgia Man Charged With 1985 Murders of Couple in Church**\
 `Erik Sparre was arrested earlier this week, more than two decades after Dennis Perry was wrongly sent to prison for the crime.`\
 https://nytimes.com/2024/12/10/us/erik-sparre-arrested-swain-murders.html
