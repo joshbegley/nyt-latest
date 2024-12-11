@@ -1,3 +1,11 @@
+**Astros, Cubs discuss possible trade involving Kyle Tucker, Seiya Suzuki**\
+`Cubs outfielder Seiya Suzuki has also been part of the discussions between Chicago and Houston. `\
+https://nytimes.com/athletic/5987064/2024/12/11/astros-cubs-kyle-tucker-seiya-suzuki-trade/
+
+**F.D.A. Tries Last-Ditch Move to Slash Nicotine Levels in Cigarettes**\
+`The agency is asking the White House, in the final days of the Biden era, to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
+https://nytimes.com/2024/12/11/health/fda-low-nicotine-cigarettes-biden.html
+
 **Gomez on nearly leaving Liverpool: 'Things happen for a reason'**\
 `Joe Gomez admits he came close to leaving Liverpool last summer but is delighted that he ended up staying at Anfield.`\
 https://nytimes.com/athletic/5986719/2024/12/11/joe-gomez-liverpool-transfer-summer/

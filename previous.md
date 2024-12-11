@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/11/arts/music/die-frau-ohne-schatten-met-opera.html
 https://nytimes.com/athletic/5984665/2024/12/11/sec-football-viewership-georgia-alabama/
 
 **Astros, Cubs discuss possible trade involving Kyle Tucker, Seiya Suzuki**\
-`Cubs infielder Isaac Paredes has also been part of the discussions between Chicago and Houston. `\
+`Cubs outfielder Seiya Suzuki has also been part of the discussions between Chicago and Houston. `\
 https://nytimes.com/athletic/5987064/2024/12/11/astros-cubs-kyle-tucker-seiya-suzuki-trade/
 
 **Prominent Real Estate Agents and Brothers Charged With Sex Trafficking**\
@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5987064/2024/12/11/astros-cubs-kyle-tucker-seiya-su
 https://nytimes.com/2024/12/11/realestate/alexander-brothers-arrested-charged-sexual-assault.html
 
 **F.D.A. Tries Last-Ditch Move to Slash Nicotine Levels in Cigarettes**\
-`The agency is asking the White House to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
+`The agency is asking the White House, in the final days of the Biden era, to move ahead with plans to drastically reduce the addictive substance in traditional tobacco cigarettes.`\
 https://nytimes.com/2024/12/11/health/fda-low-nicotine-cigarettes-biden.html
 
 **Wisconsin Man Who Faked Kayaking Death and Fled U.S. Is in Custody**\
