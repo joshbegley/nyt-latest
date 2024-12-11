@@ -1,3 +1,15 @@
+**Blue Jays acquisition of Andrés Giménez has to set table for something more**\
+`The Jays made their first big splash of the offseason, but this much is clear: Much work is ahead.`\
+https://nytimes.com/athletic/5985663/2024/12/10/blue-jays-andres-gimenez-offseason-plans/
+
+**Why Kyle Tucker fits what the Chicago Cubs are looking for**\
+`The Cubs need more power in their lineup, and the Astros could make Tucker available in a trade.`\
+https://nytimes.com/athletic/5985653/2024/12/10/cubs-kyle-tucker/
+
+**Tigers have interest in Roki Sasaki. But do they have a realistic shot? **\
+`“Every team in baseball wants Sasaki,” Tigers president of baseball operations Scott Harris said. “We do, too."`\
+https://nytimes.com/athletic/5985631/2024/12/10/detroit-tigers-roki-sasaki/
+
 **Red Sox still on the sidelines pitching market heats up and options dwindle**\
 `“In order to attract free-agent talent, you kind have to be willing to get uncomfortable,” chief baseball officer Craig Breslow said.`\
 https://nytimes.com/athletic/5985261/2024/12/10/red-sox-mlb-free-agent-pitching/
