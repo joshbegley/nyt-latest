@@ -1,3 +1,15 @@
+**Buster Posey sold new Giants shortstop Willy Adames on his vision: 'Just being authentic'**\
+`The Giants got their man in Adames but the rising price on starters may take them out of the Corbin Burnes market.`\
+https://nytimes.com/athletic/5985667/2024/12/10/willy-adames-buster-posey-free-agent-pitch/
+
+**Corrections: Dec. 11, 2024**\
+`Corrections that appeared in print on Wednesday, Dec. 11, 2024.`\
+https://nytimes.com/2024/12/10/pageoneplus/corrections-dec-11-2024.html
+
+**Why Kyle Tucker fits what the Chicago Cubs are looking for**\
+`The Cubs need more power in their lineup and the Astros could make Tucker available in a trade.`\
+https://nytimes.com/athletic/5985653/2024/12/10/cubs-kyle-tucker/
+
 **Rocky Colavito, All-Star Slugger for Cleveland, Dies at 91**\
 `After he was traded in one of the most infamous deals in Cleveland’s history, the team floundered and “the curse of Rocky Colavito” was born.`\
 https://nytimes.com/2024/12/10/sports/baseball/rocky-colavito-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5874958/2024/12/10/rocky-colavito-cleveland-obituar
 **Amid Rumors of a Breakup, Kimberly Guilfoyle Is Appointed Ambassador to Greece**\
 `The announcement came as Donald Trump Jr. has been seen with the socialite Bettina Anderson in Florida.`\
 https://nytimes.com/2024/12/10/style/kimberly-guilfoyle-trump-greece-ambassador.html
-
-**Pistol Taken From Suspect Was a Fully Homemade Weapon, Officials Say**\
-`The ghost gun and suppressor found on a man the authorities have accused of killing the chief executive of UnitedHealthcare was made with the help of a 3-D printer, authorities said.`\
-https://nytimes.com/2024/12/10/nyregion/uhc-killing-ghost-gun-3d-printing.html
-
-**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
-`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
-https://nytimes.com/athletic/5891633/2024/12/10/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
-
-**'A little frustrated, for sure’: 49ers' Deebo Samuel on his low-yield season**\
-`Isaac Guerendo didn't practice Tuesday, raising the prospect that Patrick Taylor Jr. could start Thursday against the Rams.`\
-https://nytimes.com/athletic/5985482/2024/12/10/49ers-deebo-samuel-yards-season/
 
