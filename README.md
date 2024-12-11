@@ -1,6 +1,14 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears have lost seven in a row, are coming off their most lopsided loss of the season and play the Vikings on Monday night.`\
+https://nytimes.com/athletic/5987784/2024/12/11/submit-your-questions-for-kevin-fishbains-bears-mailbag-17/
+
+**Thursday Briefing: The Struggle to Create Order in Syria**\
+`Plus, China’s surprising box office hit.`\
+https://nytimes.com/2024/12/11/briefing/syria-trump-fbi-sudan-gold.html
+
 **U.S. Strategy on Syria Risks ISIS Resurgence, Kurdish General Warns**\
 `Gen. Mazlum Kobani, commander of Kurdish forces in Syria, said recent decisions by the U.S. in Syria potentially “leaves a vacuum behind that can be taken advantage of by ISIS.”`\
-https://nytimes.com/2024/12/11/world/middleeast/us-strategy-on-syria-risks-isis-resurgence-kurdish-general-warns.html
+https://nytimes.com/2024/12/11/world/middleeast/syria-isis-united-states-kurds.html
 
 **Biden’s Top Aides Race to Middle East as Militias Wield Power in Syria**\
 `Secretary of State Antony J. Blinken plans to hold meetings in Jordan and Turkey. Jake Sullivan, the national security adviser, is visiting Israel.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/11/style/golden-bachelor-gerry-turner-cancer.html
 **New Jersey Politician Fakes Spotify Wrapped to Show All Springsteen Songs**\
 `Representative Josh Gottheimer, a Democrat who is running for governor, may well be a huge fan of the Boss. But his Spotify Wrapped was not real.`\
 https://nytimes.com/2024/12/11/us/politics/josh-gottheimer-spotify-wrapped.html
-
-**Ashworth's Man Utd exit a 'bad situation' - Amorim**\
-`Ruben Amorim described Dan Ashworth’s departure from Manchester United as “a bad situation” before his club’s Europa League fixture against FC Viktoria Plzeň, but admitted such turnover can occur at football clubs.`\
-https://nytimes.com/athletic/5987612/2024/12/11/ruben-amorim-dan-ashworth/
-
-**Colleges Warn Foreign Students to Get to Campus Before Trump Takes Office**\
-`Harvard, Penn and U.S.C. were among the universities and colleges that issued advisories in anticipation of possible travel bans.`\
-https://nytimes.com/2024/12/11/us/colleges-international-students-trump-travel-ban.html
 
