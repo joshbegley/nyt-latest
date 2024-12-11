@@ -1,3 +1,11 @@
+**Aston Villa assessing women's manager De Pauw's future**\
+`Aston Villa are considering the future of their women’s first-team manager Robert de Pauw.`\
+https://nytimes.com/athletic/5986252/2024/12/11/robert-de-pauw-aston-villa-future/
+
+**Explosion Kills Minister in Highest-Profile Blast Since Taliban’s Return**\
+`Khalil Haqqani, Afghanistan’s refugee minister, died in an explosion inside the ministry, officials said.`\
+https://nytimes.com/2024/12/11/world/asia/afghanistan-explosion-taliban-minister.html
+
 **Blues 2025-26 line combos? Adam Jiricek injury update? Trade for Trent Frederic? Mailbag, part 2**\
 `Blues 2024 first-round pick Adam Jiricek may return to OHL Brantford's lineup soon after missing a month with an injury.`\
 https://nytimes.com/athletic/5976441/2024/12/11/blues-adam-jiricek-trent-frederic-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/11/briefing/the-largest-immigration-surge-in-us-hist
 **The Pulse: A Belichick-UNC reality check**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5984897/2024/12/11/bill-belichick-unc-the-pulse/
-
-**How Many People Have Died in Syria’s Civil War?**\
-`The United Nations and human rights organizations have faced challenges in counting all those killed and missing in the conflict that began in March 2011.`\
-https://nytimes.com/2024/12/11/world/middleeast/syria-civil-war-death-toll.html
-
-**Australian cyclist Dennis pleads guilty to charge relating to death of Olympian wife Hoskins**\
-`Australian cyclist Rohan Dennis has pleaded guilty to a lesser charge in relation to the death of his wife, fellow Olympian and former world champion Melissa Hoskins.`\
-https://nytimes.com/athletic/5986271/2024/12/11/rohan-dennis-melissa-hoskins-death-charge/
 
