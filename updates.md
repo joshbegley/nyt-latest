@@ -1,3 +1,11 @@
+**Scoop City: This week's 10 key playoff scenarios**\
+`A look at who can clinch a playoff spot, plus five 2025 free agents to watch, Brett Favre's confrontation, latest on Belichick and McCarthy.`\
+https://nytimes.com/athletic/5986833/2024/12/11/2024-nfl-playoff-bracket-wild-card-race-scoop-city/
+
+**Supreme Court Won’t Decide Nvidia Securities Fraud Case After All**\
+`In an unsigned order, the justices dismissed the case against the tech giant as “improvidently granted,” meaning they had concluded that it had been a mistake to take it up.`\
+https://nytimes.com/2024/12/11/us/politics/supreme-court-nvidia-securities-fraud.html
+
 **Oilers' Stuart Skinner rebounds against Lightning: 'He’s been really solid'**\
 `Skinner kicked off a stretch against the NHL's best by stopping 21 of 22 shots, helping the Oilers to their sixth win in seven games.`\
 https://nytimes.com/athletic/5986162/2024/12/11/oilers-stuart-skinner-lightning-win-draisaitl/
