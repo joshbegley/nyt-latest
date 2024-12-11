@@ -1,6 +1,14 @@
+**Thunder get measure of revenge over Mavericks, advance to NBA Cup semifinals**\
+`With Chet Holmgren watching from the sidelines, Oklahoma City got a statement win over the team that knocked them out of the 2024 playoffs.`\
+https://nytimes.com/athletic/5986106/2024/12/11/thunder-mavs-gilgeous-alexander-nba-cup/
+
 **The F.T.C.’s Next, More Deal-Friendly Leader**\
 `Andrew Ferguson is expected to go easier on mergers than the agency’s current chief, Lina Khan. But he could take a similarly tough approach to policing Big Tech.`\
 https://nytimes.com/2024/12/11/business/dealbook/ftc-trump-ferguson-khan.html
+
+**RBNY, Sports Illustrated agree 13-year stadium naming rights deal**\
+`The partnership marks the first stadium naming rights deal in Sports Illustrated’s 70-year history.`\
+https://nytimes.com/athletic/5986435/2024/12/11/new-york-red-bulls-sports-illustrated-stadium/
 
 **The Fed chair said that inflation is a ‘little higher’ than expected.**\
 `By Jeanna Smialek`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5986252/2024/12/11/robert-de-pauw-aston-villa-futur
 **John Hynes' in-game line adjustment once again sparks Wild**\
 `The one thing we've learned about John Hynes is that he's a heck of an in-game adjuster.`\
 https://nytimes.com/athletic/5986130/2024/12/11/wild-utah-john-hynes-line-adjustment/
-
-**Explosion Kills Minister in Highest-Profile Blast Since Taliban’s Return**\
-`Khalil Haqqani, Afghanistan’s refugee minister, died in an explosion inside the ministry, officials said.`\
-https://nytimes.com/2024/12/11/world/asia/afghanistan-explosion-taliban-minister.html
-
-**Blues 2025-26 line combos? Adam Jiricek injury update? Trade for Trent Frederic? Mailbag, part 2**\
-`Blues 2024 first-round pick Adam Jiricek may return to OHL Brantford's lineup soon after missing a month with an injury.`\
-https://nytimes.com/athletic/5976441/2024/12/11/blues-adam-jiricek-trent-frederic-trade/
 
