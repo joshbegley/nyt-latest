@@ -1,3 +1,7 @@
+**Why Was a Murder Suspect’s Instagram Taken Down, but Not His Goodreads?**\
+`Luigi Mangione’s social media accounts attracted swift attention after he was arrested in the killing of UnitedHealthcare’s chief executive. When do companies scrub a digital trail?`\
+https://nytimes.com/2024/12/11/technology/social-media-goodreads-reddit-tiktok.html
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears have lost seven in a row, are coming off their most lopsided loss of the season and play the Vikings on Monday night.`\
 https://nytimes.com/athletic/5987784/2024/12/11/submit-your-questions-for-kevin-fishbains-bears-mailbag-17/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/world/middleeast/russia-syria-assad.html
 **‘Golden Bachelor’ Star Announces Cancer Diagnosis**\
 `Gerry Turner rose to prominence as a septuagenarian star of a reality dating show. In an interview with People, he said he has a type of non-Hodgkin lymphoma.`\
 https://nytimes.com/2024/12/11/style/golden-bachelor-gerry-turner-cancer.html
-
-**New Jersey Politician Fakes Spotify Wrapped to Show All Springsteen Songs**\
-`Representative Josh Gottheimer, a Democrat who is running for governor, may well be a huge fan of the Boss. But his Spotify Wrapped was not real.`\
-https://nytimes.com/2024/12/11/us/politics/josh-gottheimer-spotify-wrapped.html
 
