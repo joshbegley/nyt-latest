@@ -1,3 +1,7 @@
+**Are Those Drones Over New Jersey? Sightings Mount, and Still No Answers.**\
+`Though officials say that the sightings pose no threat to the public, they have yet to provide any concrete information about the origin of the flying objects.`\
+https://nytimes.com/2024/12/11/nyregion/new-jersey-drones.html
+
 **Red Sox try to knit together a contending rotation by adding Garrett Crochet: Law**\
 `The Red Sox got the best pitcher known to be available on the trade market but gave up their two last first-round picks.`\
 https://nytimes.com/athletic/5987499/2024/12/11/red-sox-white-sox-garrett-crochet/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/dining/drinks/pistachio-martini.html
 **Hunt Continues for U.S. Journalist Who Disappeared in Syria**\
 `The U.S. has identified prisons of interest as it searches for clues about Austin Tice, who was abducted in 2012 and whose fate remains unknown.`\
 https://nytimes.com/2024/12/11/us/politics/austin-tice-search-syria.html
-
-**Does ‘the Future’ Belong to Trump?**\
-`Under the influence of a coterie of tech boosters, it’s full speed ahead.`\
-https://nytimes.com/2024/12/11/opinion/trump-tech.html
 
