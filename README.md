@@ -1,3 +1,11 @@
+**Men in Caring Jobs Will Make Society More Equal**\
+`Less stigma against male caregivers is all to the good.`\
+https://nytimes.com/2024/12/11/opinion/male-nurses-equality.html
+
+**A Friend Saw My Daughter-in-Law Flirting With Another Man. What Should I Do?**\
+`A mother-in-law is unsure whether to say something to her son (or his wife) after hearing through the grapevine about an upsetting scene at a hotel bar.`\
+https://nytimes.com/2024/12/11/style/infidelity-intervening.html
+
 **Mandel's Mailbag: Explain Oregon's brutal route and Penn Sate's seeding**\
 `Plus: Best bowl games to watch and an NIT-style tournament for the rest of the field. `\
 https://nytimes.com/athletic/5986516/2024/12/11/college-football-playoff-oregon-ohio-state-penn-state-seeding/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5986507/2024/12/11/man-united-diego-leon-transfer-t
 **Luka Dončić stifled by Thunder defense as Mavericks bow out of NBA Cup**\
 `"That’s probably one of the worst halves I’ve ever played," Dončić said of his first half in the 118-104 loss.`\
 https://nytimes.com/athletic/5986148/2024/12/11/mavericks-luka-doncic-nba-cup-okc/
-
-**Macy’s Details Multimillion-Dollar Accounting Error in Downbeat Report**\
-`Analysts see much bigger challenges for the retailer than lax accounting.`\
-https://nytimes.com/2024/12/11/business/macys-accounting-sales-profit.html
-
-**Thunder get measure of revenge over Mavericks, advance to NBA Cup semifinals**\
-`With Chet Holmgren watching from the sidelines, Oklahoma City got a statement win over the team that knocked it out of the 2024 playoffs.`\
-https://nytimes.com/athletic/5986106/2024/12/11/thunder-mavs-gilgeous-alexander-nba-cup/
 

@@ -1,3 +1,7 @@
+**Mandel's Mailbag: Explain Oregon's brutal route and Penn Sate's seeding**\
+`Plus: Best bowl games to watch and an NIT-style tournament for the rest of the field. `\
+https://nytimes.com/athletic/5986516/2024/12/11/college-football-playoff-oregon-ohio-state-penn-state-seeding/
+
 **What's next after Matt Rhule filled out Nebraska's staff with new hires, promotions?**\
 `On Tuesday, Nebraska announced three defensive hires that likely completes the Huskers staff.`\
 https://nytimes.com/athletic/5986604/2024/12/11/nebraska-college-football-staff-offensive-defensive-coordinators/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/business/macys-accounting-sales-profit.html
 **Thunder get measure of revenge over Mavericks, advance to NBA Cup semifinals**\
 `With Chet Holmgren watching from the sidelines, Oklahoma City got a statement win over the team that knocked it out of the 2024 playoffs.`\
 https://nytimes.com/athletic/5986106/2024/12/11/thunder-mavs-gilgeous-alexander-nba-cup/
-
-**The F.T.C.’s Next, More Deal-Friendly Leader**\
-`Andrew Ferguson is expected to go easier on mergers than the agency’s current chief, Lina Khan. But he could take a similarly tough approach to policing Big Tech.`\
-https://nytimes.com/2024/12/11/business/dealbook/ftc-trump-ferguson-khan.html
 

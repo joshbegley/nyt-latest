@@ -1,3 +1,7 @@
+**Mandel's Mailbag: Explain Oregon's brutal route and Penn Sate's seeding**\
+`Plus: Best bowl games to watch and an NIT-style tournament for the rest of the field. `\
+https://nytimes.com/athletic/5986516/2024/12/11/college-football-playoff-oregon-ohio-state-penn-state-seeding/
+
 **What's next after Matt Rhule filled out Nebraska's staff with new hires, promotions?**\
 `On Tuesday, Nebraska announced three defensive hires that likely completes the Huskers staff.`\
 https://nytimes.com/athletic/5986604/2024/12/11/nebraska-college-football-staff-offensive-defensive-coordinators/
