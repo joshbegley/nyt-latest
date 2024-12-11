@@ -1,3 +1,11 @@
+**Private Insurers Must Now Pay for Dyslexia Testing in New York**\
+`Gov. Kathy Hochul signed into law a first-in-the-nation bill requiring insurance companies to cover costs associated with dyslexia diagnoses.`\
+https://nytimes.com/2024/12/11/nyregion/dyslexia-new-york-insurance-coverage.html
+
+**Preet Bharara to Investigate State Police Slowdown in New Jersey**\
+`New Jersey’s attorney general has chosen Mr. Bharara, a former U.S. attorney, to investigate a steep dip in tickets for speeding and drunken driving.`\
+https://nytimes.com/2024/12/11/nyregion/trooper-slowdown-preet-bharara.html
+
 **Alexander Brothers Sex Trafficking Indictment**\
 `The federal indictment against Oren Alexander, Tal Alexander and Alon Alexander, on conspiracy to commit sex trafficking.`\
 https://nytimes.com/interactive/2024/12/11/nyregion/alexander-indictment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5984783/2024/12/11/sf-giants-offseason-plan-starter
 **Like a Family Reunion, but With More Tears (and Tonys)**\
 `Members of the cast of the 2008 Tony-winning revival of “South Pacific,” including Matthew Morrison and Kelli O’Hara, reunited for a benefit performance. The emotions were the guest of honor.`\
 https://nytimes.com/2024/12/11/style/south-pacific-musical-reunion.html
-
-**NFL best bets Week 15: Picking two sizable favorites and an under**\
-`Austin Mock has two solid home favorites among his best bets for Week 15 of the NFL season.`\
-https://nytimes.com/athletic/5987124/2024/12/11/nfl-best-bets-week-15-cardinals-vikings/
-
-**Jake Burger is unlikely to satisfy the Rangers' hunger for offense: Law**\
-`Burger has power but doesn't improve the Rangers at his positions. The Marlins did well to get three prospects with upside for him.`\
-https://nytimes.com/athletic/5987101/2024/12/11/jake-burger-texas-rangers-miami-marlins-trade-analysis/
 
