@@ -2,7 +2,7 @@
 `Getting a solid swingman and two high-reward pitching prospects for Horwitz was a great deal for Cleveland.`\
 https://nytimes.com/athletic/5985938/2024/12/11/spencer-horwitz-luis-ortiz-pirates-guardians/
 
-**Marlins agree to trade infielder Jake Burger to Rangers: Sources**\
+**Marlins agree to trade infielder Jake Burger to Rangers: Source**\
 `Burger hit .250/.301/.460 with 29 home runs, 76 RBIs and a .761 OPS in 2024.`\
 https://nytimes.com/athletic/5986018/2024/12/11/jake-burger-rangers-marlins-trade/
 
