@@ -1,3 +1,7 @@
+**The Briefing: Juventus 2 Man City 0 - Playoffs for Guardiola? Unlucky Ederson? De Bruyne lone bright spark**\
+`Sam Lee breaks down City's defeat in Turin which leaves them facing a two-legged playoff in the new format.`\
+https://nytimes.com/athletic/5980873/2024/12/11/man-city-juventus-ederson-guardiola/
+
 **Did Christopher Wray Just Defy Donald Trump?**\
 `Now, the Senate has to do its job.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/chris-wray-fbi-trump-step-down

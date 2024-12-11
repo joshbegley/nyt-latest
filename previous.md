@@ -1,3 +1,7 @@
+**The Briefing: Juventus 2 Man City 0 - Playoffs for Guardiola? Unlucky Ederson? De Bruyne lone bright spark**\
+`Sam Lee breaks down City's defeat in Turin which leaves them facing a two-legged playoff in the new format.`\
+https://nytimes.com/athletic/5980873/2024/12/11/man-city-juventus-ederson-guardiola/
+
 **Did Christopher Wray Just Defy Donald Trump?**\
 `Now, the Senate has to do its job.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/chris-wray-fbi-trump-step-down
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987499/2024/12/11/red-sox-white-sox-garrett-croche
 **New York Times and Tech Guild Reach Deal**\
 `The union, which represents some 600 tech workers at the publication, had been negotiating for a contract for more than two years. It will vote on ratifying the deal next week.`\
 https://nytimes.com/2024/12/11/business/media/new-york-times-tech-guild-deal.html
-
-**Russian Military and Commercial Activity Appears Halted at Key Syrian Port**\
-`Satellite images from last week and this week show that naval vessels docked at the port city of Tartus have left. According to marine tracking data, no cargo ships have entered or left Tartus since Monday.`\
-https://nytimes.com/2024/12/11/world/middleeast/russia-syria-assad.html
 
