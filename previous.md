@@ -1,3 +1,7 @@
+**Guardians' Tom Hamilton wins broadcasting's Ford C. Frick Award**\
+`Hamilton has spent 35 years in Cleveland’s radio booth and called countless classic moments in franchise history.`\
+https://nytimes.com/athletic/5987170/2024/12/11/tom-hamilton-ford-c-frick-award-guardians/
+
 **Fantasy basketball roundup: Now's the time to trade for Booker, Edwards, George**\
 `Eric Wong expects Devin Booker, one of his top buy-low targets in fantasy basketball, to snap out of his cold-shooting spell soon.`\
 https://nytimes.com/athletic/5986878/2024/12/11/fantasy-basketball-buy-low-sell-high-booker-vucevic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987101/2024/12/11/jake-burger-texas-rangers-miami-
 **120 Miles of Russian Forest Couldn’t Keep These Two Tigers Apart**\
 `Boris and Svetlaya were raised together as orphaned cubs, and then reintroduced to the wild separately. But Boris went on a trek that surprised the researchers who were monitoring him.`\
 https://nytimes.com/2024/12/11/science/siberian-tigers-russia.html
-
-**Mantel aims to create a safe social network for collectors of all kinds**\
-`Mantel looks to bring a troll-free social network to collecting communities `\
-https://nytimes.com/athletic/5987065/2024/12/11/mantel-social-network-collecting/
 

@@ -1,3 +1,7 @@
+**Guardians' Tom Hamilton wins broadcasting's Ford C. Frick Award**\
+`Hamilton has spent 35 years in Cleveland’s radio booth and called countless classic moments in franchise history.`\
+https://nytimes.com/athletic/5987170/2024/12/11/tom-hamilton-ford-c-frick-award-guardians/
+
 **Fantasy basketball roundup: Now's the time to trade for Booker, Edwards, George**\
 `Eric Wong expects Devin Booker, one of his top buy-low targets in fantasy basketball, to snap out of his cold-shooting spell soon.`\
 https://nytimes.com/athletic/5986878/2024/12/11/fantasy-basketball-buy-low-sell-high-booker-vucevic/
