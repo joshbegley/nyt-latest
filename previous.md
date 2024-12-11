@@ -1,3 +1,7 @@
+**‘Golden Bachelor’ Star Announces Cancer Diagnosis**\
+`Gerry Turner rose to prominence as a septuagenarian star of a reality dating show. In an interview with People, he said he has a type of non-Hodgkin lymphoma.`\
+https://nytimes.com/2024/12/11/style/golden-bachelor-gerry-turner-cancer.html
+
 **New Jersey Politician Fakes Spotify Wrapped to Look Like a Springsteen Super Fan**\
 `Representative Josh Gottheimer, a Democrat who is running for governor, may well be a huge fan of the Boss. But his Spotify Wrapped was not real.`\
 https://nytimes.com/2024/12/11/us/politics/josh-gottheimer-spotify-wrapped.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987426/2024/12/11/mlb-rule-5-draft-white-sox-shane
 **Here’s what Kash Patel has said he would do to the F.B.I.**\
 `By Elizabeth Williamson and Charlie Savage`\
 https://nytimes.com/live/2024/12/11/us/trump-news/heres-what-kash-patel-has-said-he-would-do-to-the-fbi
-
-**Trump Wants Mass Deportations. He Will Need Jails and Sanctuary Cities to Help.**\
-`Immigration experts say the Trump administration would need cooperation from local law enforcement to deport millions of people.`\
-https://nytimes.com/2024/12/11/us/politics/trump-immigration-deportations.html
 

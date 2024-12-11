@@ -1,3 +1,7 @@
+**‘Golden Bachelor’ Star Announces Cancer Diagnosis**\
+`Gerry Turner rose to prominence as a septuagenarian star of a reality dating show. In an interview with People, he said he has a type of non-Hodgkin lymphoma.`\
+https://nytimes.com/2024/12/11/style/golden-bachelor-gerry-turner-cancer.html
+
 **New Jersey Politician Fakes Spotify Wrapped to Look Like a Springsteen Super Fan**\
 `Representative Josh Gottheimer, a Democrat who is running for governor, may well be a huge fan of the Boss. But his Spotify Wrapped was not real.`\
 https://nytimes.com/2024/12/11/us/politics/josh-gottheimer-spotify-wrapped.html
