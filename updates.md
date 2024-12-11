@@ -1,3 +1,7 @@
+**‘This Is Where They Brought Down the Regime’: Syrians Describe Life After Assad**\
+`Though excitement and frenzy were on full display in some parts of Aleppo, the city is still gripped by uncertainty after the sudden end of a 13-year civil war.`\
+https://nytimes.com/2024/12/11/world/middleeast/aleppo-syria-assad.html
+
 **Raiders owner Mark Davis to wait for offseason to decide on Antonio Pierce**\
 `IRVING, Texas — It’s no surprise that owner Mark Davis isn’t happy with his team right now.`\
 https://nytimes.com/athletic/5987734/2024/12/11/raiders-mark-davis-antonio-pierce/
