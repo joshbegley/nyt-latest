@@ -1,3 +1,7 @@
+**The Bounce: Jimmy Butler to one of these three contenders?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5986457/2024/12/11/jimmy-butler-miami-heat-warriors-mavericks-rockets-nba-the-bounce/
+
 **Blinken will travel to Jordan and Turkey, the State Department says.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/blinken-will-travel-to-jordan-and-turkey-the-state-department-says
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986151/2024/12/11/cowboys-today-micah-parsons-walk
 **Vikings' defensive success highlights value of organizational continuity**\
 `The Vikings have found unique, versatile talent on defense via free agency, undrafted players and even the United Football League.`\
 https://nytimes.com/athletic/5984925/2024/12/11/vikings-defense-jalen-redmond/
-
-**Men in Caring Jobs Will Make Society More Equal**\
-`Less stigma against male caregivers is all to the good.`\
-https://nytimes.com/2024/12/11/opinion/male-nurses-equality.html
 
