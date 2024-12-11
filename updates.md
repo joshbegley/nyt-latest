@@ -1,3 +1,11 @@
+**What Is Extradition? Can Fighting It Help the Midtown Shooting Suspect?**\
+`Under the Constitution, states are obliged to hand over other states’ fugitives if requested. But the process can be challenged in court. Here’s what to know.`\
+https://nytimes.com/2024/12/11/us/extradition-mangione-altoona.html
+
+**Guardiola's headache, USMNT stars align, Lewis-Skelly takes chance - Champions League Briefing**\
+`Troubles mount for Pep Guardiola and Manchester City while several USMNT players had a great night in the Champions League.`\
+https://nytimes.com/athletic/5986562/2024/12/11/guardiolas-headache-usmnt-stars-align-lewis-skelly-takes-chance-champions-league-briefing/
+
 **USMNT milestone: Weston McKennie and Tim Weah combine for special Juventus strike**\
 `A big night for the USMNT's Champions League representatives was capped off by McKennie's fine goal for Juventus`\
 https://nytimes.com/athletic/5988062/2024/12/11/usmnt-juventus-mckennie-weah-champions-league/
