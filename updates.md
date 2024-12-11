@@ -1,3 +1,7 @@
+**Chelsea's Acheampong close to signing new contract - Maresca**\
+`Enzo Maresca has confirmed Chelsea academy graduate Josh Acheampong is close to signing a new contract and is set start his first senior game for the club against Astana tomorrow night.`\
+https://nytimes.com/athletic/5986239/2024/12/11/chelsea-josh-acheampong-contract/
+
 **The Amazing Kreskin, Mentalist and 1970s Television Star, Dies at 89**\
 `His display of mysterious mind-reading powers on TV made him a pop culture phenomenon in the 1970s.`\
 https://nytimes.com/2024/12/11/obituaries/the-amazing-kreskin-dead.html
