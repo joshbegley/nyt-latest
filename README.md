@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5986604/2024/12/11/nebraska-college-football-staff-
 
 **Syria After al-Assad: What’s Happening and What Comes Next**\
 `Rebels are asserting control in Damascus as Israel and other countries carry out military operations.`\
-https://nytimes.com/2024/12/11/world/middleeast/syria-assad-whats-happening-next.html
+https://nytimes.com/2024/12/11/world/middleeast/syria-assad-israel-turkey.html
 
 **The Maple Leafs have issues. Goaltending won't mask them forever**\
 `Anthony Stolarz has been a revelation, but Leafs skaters are not controlling play like an elite team should, and it isn't sustainable.`\
