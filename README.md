@@ -1,3 +1,7 @@
+**New Friends After 50? Yes, Please!**\
+`The people in our lives are a dynamic constellation.`\
+https://nytimes.com/2024/12/11/opinion/new-friends-happiness-love.html
+
 **Why Trump Soured on F.B.I. Director Christopher Wray**\
 `By the time Donald J. Trump left the White House, he was eager to fire Mr. Wray, but he held back. His antipathy only heightened in the years after his presidency.`\
 https://nytimes.com/2024/12/11/us/politics/christopher-wray-trump.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/12/11/us/extradition-mangione-altoona.html
 
 **Guardiola's headache, USMNT stars align, Lewis-Skelly takes chance - Champions League Briefing**\
 `Troubles mount for Pep Guardiola and Manchester City while several USMNT players had a great night in the Champions League.`\
-https://nytimes.com/athletic/5986562/2024/12/11/guardiolas-headache-usmnt-stars-align-lewis-skelly-takes-chance-champions-league-briefing/
+https://nytimes.com/athletic/5986562/2024/12/11/guardiola-usmnt-champions-league/
 
 **USMNT milestone: Weston McKennie and Tim Weah combine for special Juventus strike**\
 `A big night for the USMNT's Champions League representatives was capped off by McKennie's fine goal for Juventus`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5988088/2024/12/11/bronny-james-g-league-road-debut
 **Goodell: NFL's relationship with Jay-Z not changing after rape allegation**\
 `"We know about the civil allegations and Jay-Z's very strong response to that," NFL commissioner Roger Goodell said at the league meetings.`\
 https://nytimes.com/athletic/5987792/2024/12/11/nfl-jay-z-allegations-roc-nation-relationship/
-
-**Did Bill Belichick abandon his quest for the NFL victories record? Never say never**\
-`There are plenty of scenarios in which Belichick could someday receive a call from a needy NFL team. He appears to be vigorous and focused. `\
-https://nytimes.com/athletic/5985682/2024/12/11/bill-belichick-north-carolina-nfl-record-patriots/
 
