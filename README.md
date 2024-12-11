@@ -1,3 +1,7 @@
+**Real Madrid's big three stars all stepped up against Atalanta - is this the start of another trophy charge?**\
+`Not only did Mbappe, Vinicius and Bellingham all score on Tuesday night, they showed a level of commitment that augurs well for the future`\
+https://nytimes.com/athletic/5985748/2024/12/11/real-madrid-mbappe-vinicius-bellingham-champions-league/
+
 **$765 Million Contract**\
 `Superstar slugger Juan Soto agreed to a $765 million deal, the biggest in pro sports history. Is he — or anybody — worth it?`\
 https://nytimes.com/2024/12/11/learning/765-million-contract.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5985255/2024/12/11/atalanta-real-madrid-serie-a-tit
 **The Aston Villa striker debate: Where Jhon Duran's emergence leaves Ollie Watkins**\
 `The strikers have yet to thrive in partnership, but the Colombian's contributions off the bench continue to prove spectacular`\
 https://nytimes.com/athletic/5983250/2024/12/11/aston-villa-watkins-duran-leipzig/
-
-**Word of the Day: toboggan**\
-`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/11/learning/word-of-the-day-toboggan.html
 
