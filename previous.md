@@ -1,3 +1,11 @@
+**Rocky Colavito, Cleveland legend and 1-time AL home run king, dies at 91**\
+`A revered power hitter who was imprudently traded in the prime of his career, Colavito played for six teams across 14 major-league seasons.`\
+https://nytimes.com/athletic/5874958/2024/12/10/rocky-colavito-cleveland-obituary/
+
+**Amid Rumors of a Breakup, Kimberly Guilfoyle Is Appointed Ambassador to Greece**\
+`The announcement came as Donald Trump Jr. has been seen with the socialite Bettina Anderson in Florida.`\
+https://nytimes.com/2024/12/10/style/kimberly-guilfoyle-trump-greece-ambassador.html
+
 **Pistol Taken From Suspect Was a Fully Homemade Weapon, Officials Say**\
 `The ghost gun and suppressor found on a man the authorities have accused of killing the chief executive of UnitedHealthcare was made with the help of a 3-D printer, authorities said.`\
 https://nytimes.com/2024/12/10/nyregion/uhc-killing-ghost-gun-3d-printing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5985478/2024/12/10/blue-jays-guardians-andres-gimen
 **Michigan hiring Chip Lindsey from UNC as new OC: Source**\
 `Chip Lindsey, who was Troy's head coach from 2019-21, is expected to replace the fired Kirk Campbell as Michigan's offensive coordinator. `\
 https://nytimes.com/athletic/5985477/2024/12/10/chip-lindsey-michigan-offensive-coordinator/
-
-**UnitedHealthcare C.E.O. Laid to Rest as Family Mourns Privately**\
-`Brian Thompson was remembered in his Minnesota hometown as a devoted father to his two sons.`\
-https://nytimes.com/2024/12/10/nyregion/unitedhealthcare-brian-thompson-funeral.html
-
-**West Virginia forward Tucker DeVries out indefinitely with upper-body injury**\
-`DeVries has emerged as one of the best players in the Big 12, averaging 14.9 points, 4.9 rebounds and 2.8 assists per game`\
-https://nytimes.com/athletic/5985350/2024/12/10/west-virginia-tucker-devries-out-indefinitely/
 

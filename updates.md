@@ -1,3 +1,11 @@
+**Rocky Colavito, Cleveland legend and 1-time AL home run king, dies at 91**\
+`A revered power hitter who was imprudently traded in the prime of his career, Colavito played for six teams across 14 major-league seasons.`\
+https://nytimes.com/athletic/5874958/2024/12/10/rocky-colavito-cleveland-obituary/
+
+**Amid Rumors of a Breakup, Kimberly Guilfoyle Is Appointed Ambassador to Greece**\
+`The announcement came as Donald Trump Jr. has been seen with the socialite Bettina Anderson in Florida.`\
+https://nytimes.com/2024/12/10/style/kimberly-guilfoyle-trump-greece-ambassador.html
+
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
 https://nytimes.com/athletic/5891633/2024/12/10/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
