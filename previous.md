@@ -1,3 +1,11 @@
+**Colleges Warn Foreign Students to Get to Campus Before Trump Takes Office**\
+`Harvard, Penn and U.S.C. were among the universities and colleges that issued advisories in anticipation of possible travel bans.`\
+https://nytimes.com/2024/12/11/us/colleges-international-students-trump-travel-ban.html
+
+**The Pistachio Martini Is Beloved. And Baffling.**\
+`The creamy, pastel green drink is an enigma, but that doesn’t stop bartenders across the country from adding it to their menus.`\
+https://nytimes.com/2024/12/11/dining/drinks/pistachio-martini.html
+
 **Hunt Continues for U.S. Journalist Who Disappeared in Syria**\
 `The U.S. has identified prisons of interest as it searches for clues about Austin Tice, who was abducted in 2012 and whose fate remains unknown.`\
 https://nytimes.com/2024/12/11/us/politics/austin-tice-search-syria.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5987427/2024/12/11/commanders-noah-brown-injury/
 **Building Trust in an Age of Distrust**\
 `At this year’s DealBook Summit, there was a sense that trust was becoming harder to come by and that the rules for how people judge the truth had shifted.`\
 https://nytimes.com/2024/12/11/business/dealbook/summit-elected-officials-leaders.html
-
-**Could Cats Become a Carrier of Bird Flu?**\
-`A new study highlights the need for public health officials to ramp up bird flu surveillance in our feline companions.`\
-https://nytimes.com/2024/12/11/health/bird-flu-h5n1-cats.html
-
-**From the DealBook Summit: Influential People Share Their Insights**\
-`Industry leaders attending the conference were asked about artificial intelligence, the economy, international relations and more.`\
-https://nytimes.com/2024/12/11/business/dealbook/leaders-advice-insights.html
 

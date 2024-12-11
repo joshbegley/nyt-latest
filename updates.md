@@ -1,3 +1,11 @@
+**Colleges Warn Foreign Students to Get to Campus Before Trump Takes Office**\
+`Harvard, Penn and U.S.C. were among the universities and colleges that issued advisories in anticipation of possible travel bans.`\
+https://nytimes.com/2024/12/11/us/colleges-international-students-trump-travel-ban.html
+
+**The Pistachio Martini Is Beloved. And Baffling.**\
+`The creamy, pastel green drink is an enigma, but that doesn’t stop bartenders across the country from adding it to their menus.`\
+https://nytimes.com/2024/12/11/dining/drinks/pistachio-martini.html
+
 **Hunt Continues for U.S. Journalist Who Disappeared in Syria**\
 `The U.S. has identified prisons of interest as it searches for clues about Austin Tice, who was abducted in 2012 and whose fate remains unknown.`\
 https://nytimes.com/2024/12/11/us/politics/austin-tice-search-syria.html
