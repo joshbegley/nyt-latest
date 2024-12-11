@@ -1,3 +1,15 @@
+**The Arsenal Corner Playbook: Explaining the principles that make Arteta's side so menacing**\
+`Nicolas Jover has helped shape Arsenal into probably the best set-piece team in the world - this is how it all works`\
+https://nytimes.com/athletic/5969908/2024/12/11/arsenal-corner-playbook/
+
+**Lamine Yamal's trademark trivela: Dissecting the Barcelona star's work of art**\
+`Yamal is fast making the outside-of-the-boot pass known as the trivela his trademark. Where does it come from and how does he do it?`\
+https://nytimes.com/athletic/5984174/2024/12/11/lamine-yamal-barcelona-trivela/
+
+**Why Saudi Arabia's 2034 World Cup is controversial**\
+`Host status for the 2034 World Cup is expected to be awarded to Saudi Arabia by FIFA today`\
+https://nytimes.com/athletic/5983670/2024/12/11/saudi-arabia-world-cup-2034-controversial/
+
 **Breaking down every one of Cole Palmer's record breaking 12 penalties for Chelsea**\
 `Chelsea's Palmer has beaten Yaya Toure's record for the most Premier League penalties scored in a row without a miss`\
 https://nytimes.com/athletic/5984311/2024/12/11/cole-palmer-penalty-record-chelsea/

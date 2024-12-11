@@ -1,3 +1,7 @@
+**How Ruud van Nistelrooy is building on Leicester's box midfield foundations**\
+`It is early days but Van Nistelrooy is setting his stall out on how he wants Leicester to play - and it is on the front foot`\
+https://nytimes.com/athletic/5983549/2024/12/11/how-ruud-van-nistelrooy-is-building-on-leicesters-box-midfield-foundations/
+
 **The Arsenal Corner Playbook: Explaining the principles that make Arteta's side so menacing**\
 `Nicolas Jover has helped shape Arsenal into probably the best set-piece team in the world - this is how it all works`\
 https://nytimes.com/athletic/5969908/2024/12/11/arsenal-corner-playbook/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984371/2024/12/11/juventus-manchester-city-odds-pr
 **Week 15 fantasy football rankings: Sleepers, projections, starts, sits | Rico Dowdle, Marvin Harrison**\
 `In his insightful rundown for the first round of the fantasy playoffs, Jake Ciely notes that Rico Dowdle has been on a RB1 level of late. `\
 https://nytimes.com/athletic/5985016/2024/12/11/week-15-fantasy-football-rankings-sleepers-projections-starts-sits-kirk-cousins-marvin-harrison/
-
-**Borussia Dortmund vs Barcelona: Preview, odds, prediction for big Champions League match**\
-`Borussia Dortmund and Barcelona are both off to good starts in the Champions League and now they face off in Germany.`\
-https://nytimes.com/athletic/5984356/2024/12/11/borussia-dortmund-barcelona-odds-prediction-champions-league/
 
