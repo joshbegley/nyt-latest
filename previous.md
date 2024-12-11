@@ -1,3 +1,11 @@
+**Why the Padres could end up trading starter Dylan Cease, plus more from A.J. Preller**\
+`Leaguewide demand for impact talent, including impact rental talent, like Dylan Cease, keeps climbing. `\
+https://nytimes.com/athletic/5985737/2024/12/10/san-diego-padres-2024-winter-meetings-dylan-cease/
+
+**Bucks beat Magic 114-109 to move on to semifinal: Takeaways**\
+`The Bucks will play the winner of Wednesday night’s quarterfinal between the Atlanta Hawks and New York Knicks.`\
+https://nytimes.com/athletic/5985529/2024/12/10/nba-cup-quarterfinals-scores-results-takeaways/
+
 **Special End-of-Year 2024 News Quiz for Students**\
 `See what you remember about this extraordinary year by taking our special 2024 news quiz.`\
 https://nytimes.com/interactive/2024/12/10/learning/2024StudentNewsQuiz.html
@@ -10,7 +18,7 @@ https://nytimes.com/2024/12/10/world/asia/north-korea-martial-law-reaction.html
 `Kathy Bloomer and Jeff Chen have their first Times collaboration.`\
 https://nytimes.com/2024/12/10/crosswords/daily-puzzle-2024-12-11.html
 
-**Blue Jays acquisition of Andrés Giménez has to set table for something more**\
+**Blue Jays' acquisition of Andrés Giménez has to set table for something more**\
 `The Jays made their first big splash of the offseason, but this much is clear: Much work is ahead.`\
 https://nytimes.com/athletic/5985663/2024/12/10/blue-jays-andres-gimenez-offseason-plans/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/10/pageoneplus/corrections-dec-11-2024.html
 **Why Kyle Tucker fits what the Chicago Cubs are looking for**\
 `The Cubs need more power in their lineup, and the Astros could make Tucker available in a trade.`\
 https://nytimes.com/athletic/5985653/2024/12/10/cubs-kyle-tucker/
-
-**Rocky Colavito, All-Star Slugger for Cleveland, Dies at 91**\
-`After he was traded in one of the most infamous deals in Cleveland’s history, the team floundered and “the curse of Rocky Colavito” was born.`\
-https://nytimes.com/2024/12/10/sports/baseball/rocky-colavito-dead.html
-
-**Saint Ann’s Protected Criminal Teacher at Students’ Expense, Report Says**\
-`The elite Brooklyn school commissioned an investigation after the arrest of Winston Nguyen, who is now accused of soliciting lewd photographs from students.`\
-https://nytimes.com/2024/12/10/nyregion/st-anns-report-winston-nguyen.html
 

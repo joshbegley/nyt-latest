@@ -1,3 +1,15 @@
+**Why the Padres could end up trading starter Dylan Cease, plus more from A.J. Preller**\
+`Leaguewide demand for impact talent, including impact rental talent, like Dylan Cease, keeps climbing. `\
+https://nytimes.com/athletic/5985737/2024/12/10/san-diego-padres-2024-winter-meetings-dylan-cease/
+
+**Bucks beat Magic 114-109 to move on to semifinal: Takeaways**\
+`The Bucks will play the winner of Wednesday night’s quarterfinal between the Atlanta Hawks and New York Knicks.`\
+https://nytimes.com/athletic/5985529/2024/12/10/nba-cup-quarterfinals-scores-results-takeaways/
+
+**Blue Jays' acquisition of Andrés Giménez has to set table for something more**\
+`The Jays made their first big splash of the offseason, but this much is clear: Much work is ahead.`\
+https://nytimes.com/athletic/5985663/2024/12/10/blue-jays-andres-gimenez-offseason-plans/
+
 **Special End-of-Year 2024 News Quiz for Students**\
 `See what you remember about this extraordinary year by taking our special 2024 news quiz.`\
 https://nytimes.com/interactive/2024/12/10/learning/2024StudentNewsQuiz.html
