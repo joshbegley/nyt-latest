@@ -1,3 +1,11 @@
+**The F.B.I. Director Said He Would Resign**\
+`Also, A.D.H.D. diagnoses are surging among older Americans. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/12/11/briefing/fbi-director-step-down-search-dissapeared-syria.html
+
+**Romero apologised for comments criticising owners - Postecoglou**\
+`Tottenham Hotspur manager Ange Postecoglou says Cristian Romero has apologised after appearing to question the club&#8217;s owners.`\
+https://nytimes.com/athletic/5987990/2024/12/11/cristian-romero-apologises-postecoglou/
+
 **Mandel: North Carolina is going to regret hiring Bill Belichick**\
 `What works in the NFL doesn’t necessarily work in college. Bill Belichick and North Carolina may find out the hard way.`\
 https://nytimes.com/athletic/5985593/2024/12/11/bill-belichick-north-carolina-college-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/11/us/politics/house-defense-bill-transgender-care-m
 **Blue Jays take Angel Bastardo — a 'high-impact arm' — in the Rule 5 draft**\
 `Bastardo is recovering from Tommy John surgery but was up to 97 mph before his injury.`\
 https://nytimes.com/athletic/5987719/2024/12/11/blue-jays-angel-bastardo-rule-5/
-
-**Luke Musgrave could give Packers boost as TE practices for first time since Week 6**\
-`The 2023 second-round pick has missed the last two months while rehabbing a torn ligament in his left ankle.`\
-https://nytimes.com/athletic/5987878/2024/12/11/luke-musgrave-packers-tight-end-injury/
-
-**What we learned about the Mets at the Winter Meetings**\
-`Here are the latest rumblings on Pete Alonso, Starling Marte, Roki Sasaki and more. `\
-https://nytimes.com/athletic/5987786/2024/12/11/mets-winter-meetings-free-agency/
 

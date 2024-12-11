@@ -1,3 +1,11 @@
+**The F.B.I. Director Said He Would Resign**\
+`Also, A.D.H.D. diagnoses are surging among older Americans. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/12/11/briefing/fbi-director-step-down-search-dissapeared-syria.html
+
+**Romero apologised for comments criticising owners - Postecoglou**\
+`Tottenham Hotspur manager Ange Postecoglou says Cristian Romero has apologised after appearing to question the club&#8217;s owners.`\
+https://nytimes.com/athletic/5987990/2024/12/11/cristian-romero-apologises-postecoglou/
+
 **Mandel: North Carolina is going to regret hiring Bill Belichick**\
 `What works in the NFL doesn’t necessarily work in college. Bill Belichick and North Carolina may find out the hard way.`\
 https://nytimes.com/athletic/5985593/2024/12/11/bill-belichick-north-carolina-college-coach/
