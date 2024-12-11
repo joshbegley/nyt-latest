@@ -1,3 +1,7 @@
+**Private Insurers Must Now Cover Dyslexia Testing in New York**\
+`Gov. Kathy Hochul signed into law a first-in-the-nation bill requiring insurance companies to cover costs associated with dyslexia diagnoses.`\
+https://nytimes.com/2024/12/11/nyregion/dyslexia-new-york-insurance-coverage.html
+
 **Raygun Shuts Down Musical Inspired by Her Jeered Olympic Breaking**\
 `The comedian behind the parody about the Australian breaker who became a summer celebrity said she was willing to make some changes to avoid legal drama.`\
 https://nytimes.com/2024/12/11/theater/raygun-musical-olympic-breakdancer.html
