@@ -1,3 +1,7 @@
+**Blue Jays acquisition of Andrés Giménez has to set table for something more**\
+`The Jays made their first big splash of the offseason, but this much is clear: Much work is ahead.`\
+https://nytimes.com/athletic/5985663/2024/12/10/blue-jays-andres-gimenez-offseason-plans/
+
 **Red Sox still on the sidelines pitching market heats up and options dwindle**\
 `“In order to attract free-agent talent, you kind have to be willing to get uncomfortable,” chief baseball officer Craig Breslow said.`\
 https://nytimes.com/athletic/5985261/2024/12/10/red-sox-mlb-free-agent-pitching/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5985667/2024/12/10/willy-adames-buster-posey-free-a
 https://nytimes.com/2024/12/10/pageoneplus/corrections-dec-11-2024.html
 
 **Why Kyle Tucker fits what the Chicago Cubs are looking for**\
-`The Cubs need more power in their lineup and the Astros could make Tucker available in a trade.`\
+`The Cubs need more power in their lineup, and the Astros could make Tucker available in a trade.`\
 https://nytimes.com/athletic/5985653/2024/12/10/cubs-kyle-tucker/
 
 **Rocky Colavito, All-Star Slugger for Cleveland, Dies at 91**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5985631/2024/12/10/detroit-tigers-roki-sasaki/
 **Georgia Man Charged With 1985 Murders of Couple in Church**\
 `Erik Sparre was arrested earlier this week, more than two decades after Dennis Perry was wrongly sent to prison for the crime.`\
 https://nytimes.com/2024/12/10/us/erik-sparre-arrested-swain-murders.html
-
-**Rocky Colavito, Cleveland legend and 1-time AL home run king, dies at 91**\
-`A revered power hitter who was imprudently traded in the prime of his career, Colavito played for six teams across 14 major-league seasons.`\
-https://nytimes.com/athletic/5874958/2024/12/10/rocky-colavito-cleveland-obituary/
 
