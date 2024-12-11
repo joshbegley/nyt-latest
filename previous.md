@@ -1,3 +1,19 @@
+**$765 Million Contract**\
+`Superstar slugger Juan Soto agreed to a $765 million deal, the biggest in pro sports history. Is he — or anybody — worth it?`\
+https://nytimes.com/2024/12/11/learning/765-million-contract.html
+
+**Meeting (and Ignoring) Former Chimp Stars**\
+`Retired performing chimpanzees are living in zoos and sanctuaries across the country, where they are trying to relearn how to be apes.`\
+https://nytimes.com/2024/12/11/insider/meeting-and-ignoring-former-chimp-stars.html
+
+**For Rastafarians, Marijuana Is Sacred. Should the Law Account for That?**\
+`Members of the religious group would like to see New York’s cannabis legalization law revised to include accommodations for those who use the drug in worship.`\
+https://nytimes.com/2024/12/11/nyregion/rastafarians-cannabis-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/11/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel: America’s ‘Going Nuts’ Over a Murder Suspect’s Abs**\
 `Kimmel applauded people for “moving away from nonstop election coverage” to instead obsess over the looks of Luigi Mangione, who was charged with killing a C.E.O.`\
 https://nytimes.com/2024/12/11/arts/television/jimmy-kimmel-luigi-mangione.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5983250/2024/12/11/aston-villa-watkins-duran-leipzi
 **Word of the Day: toboggan**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/11/learning/word-of-the-day-toboggan.html
-
-**Darwin Nunez is wasting chances and running out of opportunities at Liverpool**\
-`Positive results have largely served to mask the striker's lack of output this season - but he has to improve `\
-https://nytimes.com/athletic/5985579/2024/12/11/darwin-nunez-form-liverpool-decision/
-
-**How Thatcher Demko looked like himself in long-awaited return: 3 takeaways**\
-`For most of the sloppily played, low-energy contest at Rogers Arena, the performance matched the stakes. The Blues won 4-3 in overtime.`\
-https://nytimes.com/athletic/5985923/2024/12/11/canucks-lose-blues-thatcher-demko-return/
-
-**How a Feminist Comedy Came to Rule China’s Box Office**\
-`“Her Story” touches on sensitive topics in China, like censorship and gender inequality. But its humorous, nonconfrontational approach may have helped it pass censors.`\
-https://nytimes.com/2024/12/11/world/asia/china-feminist-comedy-her-story.html
-
-**Marco Rossi's late-game heroics salvage point and save PK's bacon: 3 takeaways**\
-`After Utah took a 4-3 lead, Rossi scored on a six-on-five with 43 seconds remaining to force overtime.`\
-https://nytimes.com/athletic/5985687/2024/12/11/wild-utah-marco-rossi-takeaways/
 

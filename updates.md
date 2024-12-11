@@ -1,3 +1,19 @@
+**$765 Million Contract**\
+`Superstar slugger Juan Soto agreed to a $765 million deal, the biggest in pro sports history. Is he — or anybody — worth it?`\
+https://nytimes.com/2024/12/11/learning/765-million-contract.html
+
+**Meeting (and Ignoring) Former Chimp Stars**\
+`Retired performing chimpanzees are living in zoos and sanctuaries across the country, where they are trying to relearn how to be apes.`\
+https://nytimes.com/2024/12/11/insider/meeting-and-ignoring-former-chimp-stars.html
+
+**For Rastafarians, Marijuana Is Sacred. Should the Law Account for That?**\
+`Members of the religious group would like to see New York’s cannabis legalization law revised to include accommodations for those who use the drug in worship.`\
+https://nytimes.com/2024/12/11/nyregion/rastafarians-cannabis-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/11/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel: America’s ‘Going Nuts’ Over a Murder Suspect’s Abs**\
 `Kimmel applauded people for “moving away from nonstop election coverage” to instead obsess over the looks of Luigi Mangione, who was charged with killing a C.E.O.`\
 https://nytimes.com/2024/12/11/arts/television/jimmy-kimmel-luigi-mangione.html
