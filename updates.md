@@ -1,3 +1,11 @@
+**NHL season predictions 3.0: Coaches on the hot seat, the fall of the Rangers and more**\
+`Two months into the season, our staff's updated picks for Cup winner, dark horse, biggest disappointment, awards, playoff fields and more.`\
+https://nytimes.com/athletic/5983247/2024/12/11/nhl-season-predictions-december-rangers-coaching-hot-seat/
+
+**The Largest Immigration Surge in U.S. History**\
+`We explain the scale of recent immigration to America.`\
+https://nytimes.com/2024/12/11/briefing/the-largest-immigration-surge-in-us-history.html
+
 **The Pulse: A Belichick-UNC reality check**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5984897/2024/12/11/bill-belichick-unc-the-pulse/
