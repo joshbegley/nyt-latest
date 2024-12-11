@@ -1,3 +1,7 @@
+**Hunt Continues for U.S. Journalist Who Disappeared in Syria**\
+`The U.S. has identified prisons of interest as it searches for clues about Austin Tice, who was abducted in 2012 and whose fate remains unknown.`\
+https://nytimes.com/2024/12/11/us/politics/austin-tice-search-syria.html
+
 **Does ‘the Future’ Belong to Trump?**\
 `Under the influence of a coterie of tech boosters, it’s full speed ahead.`\
 https://nytimes.com/2024/12/11/opinion/trump-tech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/health/bird-flu-h5n1-cats.html
 **From the DealBook Summit: Influential People Share Their Insights**\
 `Industry leaders attending the conference were asked about artificial intelligence, the economy, international relations and more.`\
 https://nytimes.com/2024/12/11/business/dealbook/leaders-advice-insights.html
-
-**Serena Williams Is Competing on a New Court: Investment**\
-`“I’ve learned to trust my instincts in any business venture or brand I’m championing,” the retired tennis star said in an interview at the DealBook Summit.`\
-https://nytimes.com/2024/12/11/business/dealbook/serena-williams-investment.html
 
