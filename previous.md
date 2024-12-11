@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5986738/2024/12/11/penguins-today-sidney-crosby-fan
 https://nytimes.com/2024/12/11/arts/design/torlonia-marbles-art-institute-kimball-museum-italy-sculpture.html
 
 **Scholz Calls for Confidence Vote, in Step Toward German Elections**\
-`Chancellor Olaf Scholz, who had little choice but to call for the vote, is widely expected to lose when Parliament takes up the measure on Monday.`\
+`Chancellor Olaf Scholz, who had few alternatives after his three-party coalition broke up, is widely expected to lose when Parliament takes up the measure on Monday.`\
 https://nytimes.com/2024/12/11/world/europe/germany-scholz-no-confidence-vote.html
 
 **Paris Hilton and Nicole Richie Revisit ‘The Simple Life’**\

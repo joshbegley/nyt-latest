@@ -1,3 +1,7 @@
+**Scholz Calls for Confidence Vote, in Step Toward German Elections**\
+`Chancellor Olaf Scholz, who had few alternatives after his three-party coalition broke up, is widely expected to lose when Parliament takes up the measure on Monday.`\
+https://nytimes.com/2024/12/11/world/europe/germany-scholz-no-confidence-vote.html
+
 **Penguins Today: Sidney Crosby and Tristan Jarry's telling quotes**\
 `On the same night, Jarry showed some accountability, and Crosby showed some irritation with fans.`\
 https://nytimes.com/athletic/5986738/2024/12/11/penguins-today-sidney-crosby-fans-booing/
