@@ -1,3 +1,11 @@
+**Scoop City: This week's 10 key playoff scenarios**\
+`A look at who can clinch a playoff spot, plus five 2025 free agents to watch, Brett Favre's confrontation, latest on Belichick and McCarthy.`\
+https://nytimes.com/athletic/5986833/2024/12/11/2024-nfl-playoff-bracket-wild-card-race-scoop-city/
+
+**Supreme Court Won’t Decide Nvidia Securities Fraud Case After All**\
+`In an unsigned order, the justices dismissed the case against the tech giant as “improvidently granted,” meaning they had concluded that it had been a mistake to take it up.`\
+https://nytimes.com/2024/12/11/us/politics/supreme-court-nvidia-securities-fraud.html
+
 **Oilers' Stuart Skinner rebounds against Lightning: 'He’s been really solid'**\
 `Skinner kicked off a stretch against the NHL's best by stopping 21 of 22 shots, helping the Oilers to their sixth win in seven games.`\
 https://nytimes.com/athletic/5986162/2024/12/11/oilers-stuart-skinner-lightning-win-draisaitl/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/11/arts/design/torlonia-marbles-art-institute-kimbal
 **Scholz Calls for Confidence Vote, in Step Toward German Elections**\
 `Chancellor Olaf Scholz, who had few alternatives after his three-party coalition broke up, is widely expected to lose when Parliament takes up the measure on Monday.`\
 https://nytimes.com/2024/12/11/world/europe/germany-scholz-no-confidence-vote.html
-
-**Paris Hilton and Nicole Richie Revisit ‘The Simple Life’**\
-`The celebutantes-turned-businesswomen are rebooting the show that provided a blueprint for the past 20 years of reality TV.`\
-https://nytimes.com/2024/12/11/arts/television/paris-hilton-nicole-richie-encore-simple-life.html
-
-**Defense, game management questions plague Bills as playoffs approach**\
-`The Bills had their poorest showing since losing to the Ravens earlier this season.`\
-https://nytimes.com/athletic/5985986/2024/12/11/bills-defense-play-call-josh-allen-playoffs/
 
