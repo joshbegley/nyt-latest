@@ -1,3 +1,23 @@
+**Michigan's Will Johnson declares for 2025 NFL Draft**\
+`Johnson is projected to be a top-10 pick, though injury concerns could impact his draft stock.`\
+https://nytimes.com/athletic/5986923/2024/12/11/will-johnson-michigan-nfl-draft/
+
+**Firefighters Begin Containing the Malibu Fire That Destroyed Several Homes**\
+`The Franklin fire grew to nearly 4,000 acres overnight as firefighters battled difficult conditions and steep terrain.`\
+https://nytimes.com/2024/12/11/us/firefighters-malibu-fire-destroyed-homes.html
+
+**Everything we know about the Saudi Arabia World Cup 2034**\
+`What we know about the tournament after FIFA confirmed it will be heading to Saudi Arabia for the first time`\
+https://nytimes.com/athletic/5986423/2024/12/11/saudi-arabia-world-cup-dates-tickets-fifa-soccer/
+
+**Dolphins, Bills sell stakes in team to private equity firms**\
+`For the first time in NFL history, private equity firms have bought into league ownership.`\
+https://nytimes.com/athletic/5986921/2024/12/11/dolphins-bills-team-stakes-sold/
+
+**‘I Think This Recipe Actually Cured My Depression’**\
+`Andy Baraghani’s sticky miso salmon bowl, and more of our most popular recipes from 2024.`\
+https://nytimes.com/2024/12/11/dining/i-think-this-recipe-actually-cured-my-depression.html
+
 **A.D.H.D. Diagnoses Are Surging Among Older Americans**\
 `Many say they are relieved to finally have an explanation after decades of struggle.`\
 https://nytimes.com/2024/12/11/well/mind/adhd-diagnosis-older-middle-age.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5986730/2024/12/11/nfl-approve-sale-eagles/
 **‘Maria’ Review: A Diva in Decline**\
 `Angelina Jolie plays the opera star Maria Callas in a movie that can’t figure her out.`\
 https://nytimes.com/2024/12/11/movies/maria-review-divas-decline.html
-
-**NFL owners approve 15 percent sale of Raiders**\
-`Mark Davis is still the controlling owner of the Raiders, which means he’s who holds decision-making power.`\
-https://nytimes.com/athletic/5985015/2024/12/11/nfl-approve-raiders-sale/
-
-**FIFA confirms 2030, 2034 World Cup host nations: All you need to know**\
-`Both bids ran unopposed and were officially voted through at a FIFA Congress meeting on Wednesday.`\
-https://nytimes.com/athletic/5981352/2024/12/11/fifa-world-cup-hosts-saudi-arabia-europe-africa-south-america/
-
-**Who’s trending up or down for the Canucks after 27 games?**\
-`The Canucks have managed to tread water amidst some significant star-level absences from the lineup.`\
-https://nytimes.com/athletic/5986211/2024/12/11/canucks-stock-watch-hughes-suter-debrusk/
-
-**Tracking Tropical Cyclone Chido**\
-`See the likely path and wind arrival times for Chido.`\
-https://nytimes.com/interactive/2024/12/11/weather/chido-map-path-tracker.html
-
-**Google Unveils A.I. Agent That Can Use Websites on Its Own**\
-`The experimental tool can browse spreadsheets, shopping sites and other services, before taking action on behalf of the computer user.`\
-https://nytimes.com/2024/12/11/technology/google-ai-agent-gemini.html
 

@@ -1,3 +1,23 @@
+**Michigan's Will Johnson declares for 2025 NFL Draft**\
+`Johnson is projected to be a top-10 pick, though injury concerns could impact his draft stock.`\
+https://nytimes.com/athletic/5986923/2024/12/11/will-johnson-michigan-nfl-draft/
+
+**Firefighters Begin Containing the Malibu Fire That Destroyed Several Homes**\
+`The Franklin fire grew to nearly 4,000 acres overnight as firefighters battled difficult conditions and steep terrain.`\
+https://nytimes.com/2024/12/11/us/firefighters-malibu-fire-destroyed-homes.html
+
+**Everything we know about the Saudi Arabia World Cup 2034**\
+`What we know about the tournament after FIFA confirmed it will be heading to Saudi Arabia for the first time`\
+https://nytimes.com/athletic/5986423/2024/12/11/saudi-arabia-world-cup-dates-tickets-fifa-soccer/
+
+**Dolphins, Bills sell stakes in team to private equity firms**\
+`For the first time in NFL history, private equity firms have bought into league ownership.`\
+https://nytimes.com/athletic/5986921/2024/12/11/dolphins-bills-team-stakes-sold/
+
+**‘I Think This Recipe Actually Cured My Depression’**\
+`Andy Baraghani’s sticky miso salmon bowl, and more of our most popular recipes from 2024.`\
+https://nytimes.com/2024/12/11/dining/i-think-this-recipe-actually-cured-my-depression.html
+
 **A.D.H.D. Diagnoses Are Surging Among Older Americans**\
 `Many say they are relieved to finally have an explanation after decades of struggle.`\
 https://nytimes.com/2024/12/11/well/mind/adhd-diagnosis-older-middle-age.html
