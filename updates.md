@@ -1,3 +1,7 @@
+**Alan Shearer: Newcastle are drifting and the ‘project’ is at a crossroads**\
+`After the takeover, there was an energy driving the club forward but that has gone. What now?`\
+https://nytimes.com/athletic/5983953/2024/12/11/newcastle-project-stalled-howe/
+
 **Bayer Leverkusen buoyed by a late win more reminiscent of their former selves**\
 `Xabi Alonso's side have not quite scaled the heights of last season to date, but the victory over Inter may have tweaked the muscle memory`\
 https://nytimes.com/athletic/5985279/2024/12/11/leverkusen-alonso-mukiele-inter/
