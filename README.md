@@ -1,3 +1,7 @@
+**UnitedHealthcare C.E.O. Laid to Rest as Family Mourns Privately**\
+`Brian Thompson was remembered in his Minnesota hometown as a devoted father to his two sons.`\
+https://nytimes.com/2024/12/10/nyregion/unitedhealthcare-brian-thompson-funeral.html
+
 **West Virginia forward Tucker DeVries out indefinitely with upper-body injury**\
 `DeVries has emerged as one of the best players in the Big 12, averaging 14.9 points, 4.9 rebounds and 2.8 assists per game`\
 https://nytimes.com/athletic/5985350/2024/12/10/west-virginia-tucker-devries-out-indefinitely/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/10/us/malibu-franklin-fire-residents.html
 **Champions League Briefing: Vintage Mbappe (for 35 mins), Liverpool march on, and how did Retegui miss?**\
 `Real Madrid scraped past Atalanta, Bayern's young and old starred, Liverpool marched on with flawless record and Brest won again - of course`\
 https://nytimes.com/athletic/5984499/2024/12/10/champions-league-mbappe-real-madrid-retegui-liverpool-bayern/
-
-**Trump Picks Andrew Ferguson to Lead Federal Trade Commission**\
-`Mr. Ferguson, a current Republican member of the agency, will replace Lina Khan, who had aggressively challenged mergers and the power of the biggest tech companies.`\
-https://nytimes.com/2024/12/10/technology/trump-ftc-andrew-ferguson.html
 
