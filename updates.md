@@ -1,3 +1,11 @@
+**The Torlonia Marbles Are Coming to Museums in Chicago, Texas and Montreal**\
+`For the first time, the ancient marbles are traveling out of Europe to the United States and Canada, for a prolonged stint.`\
+https://nytimes.com/2024/12/11/arts/design/torlonia-marbles-art-institute-kimball-museum-italy-sculpture.html
+
+**Scholz Calls for Confidence Vote, in Step Toward German Elections**\
+`Chancellor Olaf Scholz, who had little choice but to call for the vote, is widely expected to lose when Parliament takes up the measure on Monday.`\
+https://nytimes.com/2024/12/11/world/europe/germany-scholz-no-confidence-vote.html
+
 **Paris Hilton and Nicole Richie Revisit ‘The Simple Life’**\
 `The celebutantes-turned-businesswomen are rebooting the show that provided a blueprint for the past 20 years of reality TV.`\
 https://nytimes.com/2024/12/11/arts/television/paris-hilton-nicole-richie-encore-simple-life.html

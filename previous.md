@@ -1,3 +1,11 @@
+**The Torlonia Marbles Are Coming to Museums in Chicago, Texas and Montreal**\
+`For the first time, the ancient marbles are traveling out of Europe to the United States and Canada, for a prolonged stint.`\
+https://nytimes.com/2024/12/11/arts/design/torlonia-marbles-art-institute-kimball-museum-italy-sculpture.html
+
+**Scholz Calls for Confidence Vote, in Step Toward German Elections**\
+`Chancellor Olaf Scholz, who had little choice but to call for the vote, is widely expected to lose when Parliament takes up the measure on Monday.`\
+https://nytimes.com/2024/12/11/world/europe/germany-scholz-no-confidence-vote.html
+
 **Paris Hilton and Nicole Richie Revisit ‘The Simple Life’**\
 `The celebutantes-turned-businesswomen are rebooting the show that provided a blueprint for the past 20 years of reality TV.`\
 https://nytimes.com/2024/12/11/arts/television/paris-hilton-nicole-richie-encore-simple-life.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5986571/2024/12/11/wimbledon-tennis-expansion-high-
 **With Patrick Williams set to return, will Bulls face lineup decisions with Matas Buzelis?**\
 `Williams is expected to return to action this week, but will the rising play of a teammate get in the way of game minutes?`\
 https://nytimes.com/athletic/5985977/2024/12/11/patrick-williams-chicago-bulls-matas-buzelis/
-
-**What to know about the report.**\
-`Inflation has been cooling notably after peaking in 2022, but in recent months it has shown signs of stalling.`\
-https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed/what-to-know-about-the-report
-
-**What's wrong with the Lakers? The biggest questions and concerns answered**\
-`As the Lakers attempt to resolve their recent woes with a much-needed break, here are some of the most important questions.`\
-https://nytimes.com/athletic/5985090/2024/12/11/lakers-struggles-concerns-nba-lebron-james/
 
