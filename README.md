@@ -1,3 +1,11 @@
+**Google Unveils A.I. Agent That Can Use Websites on Its Own**\
+`The experimental tool can browse spreadsheets, shopping sites and other services, before taking action on behalf on the computer user.`\
+https://nytimes.com/2024/12/11/technology/google-ai-agent-gemini.html
+
+**Miedema aiming for Man City return in early January - Taylor**\
+`Manchester City head coach Gareth Taylor says Vivianne Miedema is targeting a return to first-team action in January following knee surgery.`\
+https://nytimes.com/athletic/5986792/2024/12/11/vivianne-miedema-manchester-city-injury-return/
+
 **Scoop City: This week's 10 key playoff scenarios**\
 `A look at who can clinch a playoff spot, plus five 2025 free agents to watch, Brett Favre's confrontation, latest on Belichick and McCarthy.`\
 https://nytimes.com/athletic/5986833/2024/12/11/2024-nfl-playoff-bracket-wild-card-race-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5986598/2024/12/11/nfl-berlin-germany-international
 **Penguins Today: Sidney Crosby and Tristan Jarry's telling quotes**\
 `On the same night, Jarry showed some accountability, and Crosby showed some irritation with fans.`\
 https://nytimes.com/athletic/5986738/2024/12/11/penguins-today-sidney-crosby-fans-booing/
-
-**The Torlonia Marbles Are Coming to Museums in Chicago, Texas and Montreal**\
-`For the first time, the ancient marbles are traveling out of Europe to the United States and Canada, for a prolonged stint.`\
-https://nytimes.com/2024/12/11/arts/design/torlonia-marbles-art-institute-kimball-museum-italy-sculpture.html
-
-**Scholz Calls for Confidence Vote, in Step Toward German Elections**\
-`Chancellor Olaf Scholz, who had few alternatives after his three-party coalition broke up, is widely expected to lose when Parliament takes up the measure on Monday.`\
-https://nytimes.com/2024/12/11/world/europe/germany-scholz-no-confidence-vote.html
 
