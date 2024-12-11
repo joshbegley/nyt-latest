@@ -1,3 +1,19 @@
+**The Maple Leafs have issues. Goaltending won't mask them forever**\
+`Anthony Stolarz has been a revelation, but Leafs skaters are not controlling play like an elite team should, and it isn't sustainable.`\
+https://nytimes.com/athletic/5985932/2024/12/11/anthony-stolarz-maple-leafs-nhl-goaltending/
+
+**Police Have Suspect’s Notebook Describing Rationale for C.E.O. Killing**\
+`“It’s targeted, precise, and doesn’t risk innocents,” said a sentence in a spiral notebook belonging to the man charged with murdering Brian Thompson.`\
+https://nytimes.com/2024/12/11/nyregion/luigi-mangione-assassination-plan-notebook.html
+
+**Al Michaels expected to return to Amazon Prime after contract expires**\
+`Michaels, 80, has said many times in the past that he will know when it is time to hang up his headset.`\
+https://nytimes.com/athletic/5986580/2024/12/11/sports-broadcasting-al-michaels-amazon-contract/
+
+**Man United enter talks to sign teenage left-back Diego Leon**\
+`Manchester United have entered talks to sign Diego Leon from Paraguayan side Cerro Porteno.`\
+https://nytimes.com/athletic/5986507/2024/12/11/man-united-deigo-leon-transfer-talks/
+
 **Live Updates: Inflation Ticks Up Slightly Ahead of Fed Meeting**\
 `Consumer prices rose 2.7 percent in the year through November, a slightly hotter rate than the previous month. The report comes as the Federal Reserve considers whether to cut interest rates next week.`\
 https://nytimes.com/live/2024/12/11/business/cpi-inflation-fed
