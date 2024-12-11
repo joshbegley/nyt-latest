@@ -1,3 +1,7 @@
+**Fantasy basketball roundup: Now's the time to trade for Booker, Edwards, George**\
+`Eric Wong expects Devin Booker, one of his top buy-low targets in fantasy basketball, to snap out of his cold-shooting spell soon.`\
+https://nytimes.com/athletic/5986878/2024/12/11/fantasy-basketball-buy-low-sell-high-booker-vucevic/
+
 **Why Wimbledon wants 39 more tennis courts, and why campaigners are so opposed**\
 `What are the expansion plans for Wimbledon, and why is there so much opposition?`\
 https://nytimes.com/athletic/5827803/2024/12/11/wimbledon-tennis-expansion-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/science/siberian-tigers-russia.html
 **Mantel aims to create a safe social network for collectors of all kinds**\
 `Mantel looks to bring a troll-free social network to collecting communities `\
 https://nytimes.com/athletic/5987065/2024/12/11/mantel-social-network-collecting/
-
-**Syria’s new government tries to balance the need for order against a clamor for retaliation.**\
-`By Aryn Baker`\
-https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/syrias-new-government-tries-to-balance-the-need-for-order-against-a-clamor-for-retaliation
 
