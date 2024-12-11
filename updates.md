@@ -1,3 +1,7 @@
+**Tom Brady's collection of watches and memorabilia sells for $9m at auction**\
+`Tom Brady's collection included watches, jerseys and a football. The highest-selling of the 41 items was a $1.14 million Rolex watch. `\
+https://nytimes.com/athletic/5986459/2024/12/11/tom-brady-auction-watches-patriots-sothebys/
+
 **Albertsons Backs Out of Merger Deal and Sues Kroger After Court Rulings**\
 `The supermarket chain had tried to join forces with Kroger, but judges sided with federal and state regulators who charged that the merger would reduce competition.`\
 https://nytimes.com/2024/12/11/business/albertsons-kroger-merger-deal.html

@@ -1,3 +1,7 @@
+**Tom Brady's collection of watches and memorabilia sells for $9m at auction**\
+`Tom Brady's collection included watches, jerseys and a football. The highest-selling of the 41 items was a $1.14 million Rolex watch. `\
+https://nytimes.com/athletic/5986459/2024/12/11/tom-brady-auction-watches-patriots-sothebys/
+
 **Albertsons Backs Out of Merger Deal and Sues Kroger After Court Rulings**\
 `The supermarket chain had tried to join forces with Kroger, but judges sided with federal and state regulators who charged that the merger would reduce competition.`\
 https://nytimes.com/2024/12/11/business/albertsons-kroger-merger-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/opinion/male-nurses-equality.html
 **A Friend Saw My Daughter-in-Law Flirting With Another Man. What Should I Do?**\
 `A mother-in-law is unsure whether to say something to her son (or his wife) after hearing through the grapevine about an upsetting scene at a hotel bar.`\
 https://nytimes.com/2024/12/11/style/infidelity-intervening.html
-
-**Mandel's Mailbag: Explain Oregon's brutal route and Penn Sate's seeding**\
-`Plus: Best bowl games to watch and an NIT-style tournament for the rest of the field. `\
-https://nytimes.com/athletic/5986516/2024/12/11/college-football-playoff-oregon-ohio-state-penn-state-seeding/
 
