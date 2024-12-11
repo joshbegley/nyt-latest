@@ -1,3 +1,7 @@
+**Why the Padres could end up trading starter Dylan Cease, plus more from A.J. Preller**\
+`Leaguewide demand for impact talent, including impact rental talent, like Cease, keeps climbing. `\
+https://nytimes.com/athletic/5985737/2024/12/10/san-diego-padres-2024-winter-meetings-dylan-cease/
+
 **Flyers capture perhaps their most important win of the season**\
 `Games like Philadelphia's win over Columbus on Tuesday could matter in a narrow playoff race in the spring. `\
 https://nytimes.com/athletic/5985794/2024/12/10/flyers-blue-jackets-nhl-season/

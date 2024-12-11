@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5985794/2024/12/10/flyers-blue-jackets-nhl-season/
 https://nytimes.com/athletic/5985445/2024/12/10/maple-leafs-report-cards-stolarz-pk-devils/
 
 **Why the Padres could end up trading starter Dylan Cease, plus more from A.J. Preller**\
-`Leaguewide demand for impact talent, including impact rental talent, like Dylan Cease, keeps climbing. `\
+`Leaguewide demand for impact talent, including impact rental talent, like Cease, keeps climbing. `\
 https://nytimes.com/athletic/5985737/2024/12/10/san-diego-padres-2024-winter-meetings-dylan-cease/
 
 **Bucks beat Magic 114-109 to move on to semifinal: Takeaways**\
