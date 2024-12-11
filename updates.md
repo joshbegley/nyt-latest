@@ -1,3 +1,7 @@
+**'We got what we deserved': Up-and-down Blue Jackets outworked, outplayed by Flyers**\
+`The whole team struggled to match the Flyers' effort as the Blue Jackets fell 5-3.`\
+https://nytimes.com/athletic/5985779/2024/12/10/blue-jackets-outworked-evason-flyers/
+
 **Yohe's 10 observations: Sidney Crosby irked by boos from Penguins fans in loss to Avalanche**\
 `Crosby wasn't impressed that some Penguins fans turned on the team in the third period of a 6-2 loss against the Avalanche on Tuesday.`\
 https://nytimes.com/athletic/5985643/2024/12/10/penguins-avalanche-sidney-crosby/
