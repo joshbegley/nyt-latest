@@ -1,3 +1,7 @@
+**Justin Herbert ruled out of Wednesday's practice with ankle injury, leg contusion**\
+`Herbert sustained the leg injuries during Los Angeles' loss to the Kansas City Chiefs on Sunday night`\
+https://nytimes.com/athletic/5988045/2024/12/11/justin-herbert-chargers-ankle-leg-contusion/
+
 **Phillies miss out on Garrett Crochet after offering top prospects at trade deadline**\
 `Major-league sources portrayed the Phillies and White Sox as near trade partners in July. The Phillies' calculus changed this offseason.`\
 https://nytimes.com/athletic/5988070/2024/12/11/garrett-crochet-phillies-white-sox-trade-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/us/politics/trump-cabinet-picks-elections.html
 **The F.B.I. Director Said He Would Resign**\
 `Also, A.D.H.D. diagnoses are surging among older Americans. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/12/11/briefing/fbi-director-step-down-search-dissapeared-syria.html
-
-**Romero apologised for comments criticising owners - Postecoglou**\
-`Tottenham Hotspur manager Ange Postecoglou says Cristian Romero has apologised after appearing to question the club&#8217;s owners.`\
-https://nytimes.com/athletic/5987990/2024/12/11/cristian-romero-apologises-postecoglou/
 
