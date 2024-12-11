@@ -1,3 +1,7 @@
+**Blinken will travel to Jordan and Turkey, the State Department says.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/12/11/world/syria-news-assad-rebels/blinken-will-travel-to-jordan-and-turkey-the-state-department-says
+
 **Tom Brady's collection of watches and memorabilia sells for $9m at auction**\
 `Tom Brady's collection included watches, jerseys and a football. The highest-selling of the 41 items was a $1.14 million Rolex watch. `\
 https://nytimes.com/athletic/5986459/2024/12/11/tom-brady-auction-watches-patriots-sothebys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984925/2024/12/11/vikings-defense-jalen-redmond/
 **Men in Caring Jobs Will Make Society More Equal**\
 `Less stigma against male caregivers is all to the good.`\
 https://nytimes.com/2024/12/11/opinion/male-nurses-equality.html
-
-**A Friend Saw My Daughter-in-Law Flirting With Another Man. What Should I Do?**\
-`A mother-in-law is unsure whether to say something to her son (or his wife) after hearing through the grapevine about an upsetting scene at a hotel bar.`\
-https://nytimes.com/2024/12/11/style/infidelity-intervening.html
 
