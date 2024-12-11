@@ -1,3 +1,7 @@
+**Phillies miss out on Garrett Crochet after offering top prospects at trade deadline**\
+`Major-league sources portrayed the Phillies and White Sox as near trade partners in July. The Phillies' calculus changed this offseason.`\
+https://nytimes.com/athletic/5988070/2024/12/11/garrett-crochet-phillies-white-sox-trade-talks/
+
 **What we’re hearing about the Chicago Cubs: Win-now trades, pursuing Roki Sasaki and more**\
 `Why would the Cubs trade Isaac Paredes already, the latest on Sasaki and Cody Bellinger and more.`\
 https://nytimes.com/athletic/5988170/2024/12/11/cubs-isaac-paredes-trade-roki-sasaki/

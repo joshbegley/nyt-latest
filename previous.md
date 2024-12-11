@@ -1,3 +1,7 @@
+**Phillies miss out on Garrett Crochet after offering top prospects at trade deadline**\
+`Major-league sources portrayed the Phillies and White Sox as near trade partners in July. The Phillies' calculus changed this offseason.`\
+https://nytimes.com/athletic/5988070/2024/12/11/garrett-crochet-phillies-white-sox-trade-talks/
+
 **What we’re hearing about the Chicago Cubs: Win-now trades, pursuing Roki Sasaki and more**\
 `Why would the Cubs trade Isaac Paredes already, the latest on Sasaki and Cody Bellinger and more.`\
 https://nytimes.com/athletic/5988170/2024/12/11/cubs-isaac-paredes-trade-roki-sasaki/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/briefing/fbi-director-step-down-search-dissapeare
 **Romero apologised for comments criticising owners - Postecoglou**\
 `Tottenham Hotspur manager Ange Postecoglou says Cristian Romero has apologised after appearing to question the club&#8217;s owners.`\
 https://nytimes.com/athletic/5987990/2024/12/11/cristian-romero-apologises-postecoglou/
-
-**Mandel: North Carolina is going to regret hiring Bill Belichick**\
-`What works in the NFL doesn’t necessarily work in college. Bill Belichick and North Carolina may find out the hard way.`\
-https://nytimes.com/athletic/5985593/2024/12/11/bill-belichick-north-carolina-college-coach/
 
