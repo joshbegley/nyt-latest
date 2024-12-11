@@ -1,3 +1,7 @@
+**Raptors' Scottie Barnes expected to miss multiple weeks**\
+`Barnes suffered the injury on Monday in the team’s loss against the New York Knicks as he tried to defend Karl-Anthony Towns in the paint`\
+https://nytimes.com/athletic/5984348/2024/12/11/raptors-scottie-barnes-sprained-ankle/
+
 **Who Is Mohammed al-Bashir, Syria’s Caretaker Prime Minister?**\
 `Mr. al-Bashir previously headed a rebel-led administration in northwestern Syria. He has been tasked with running the country’s interim government until March.`\
 https://nytimes.com/2024/12/11/world/middleeast/syria-bashir-prime-minister.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/opinion/motherhood-careers-identity.html
 **Lowetide: The Oilers' summer free-agent signings are showing a pulse**\
 `July 1 delivered the Oilers a series of value free-agent deals with established veterans. How are they performing?`\
 https://nytimes.com/athletic/5984210/2024/12/11/edmonton-oilers-arvidsson-skinner-henrique/
-
-**NFL owners approve 8 percent sale of Eagles to investment groups**\
-`NFL owners voted in August to expand the league’s rules to allow private equity firms to buy a limited amount of stakes in teams.`\
-https://nytimes.com/athletic/5986730/2024/12/11/nfl-approve-sale-eagles/
 

@@ -1,3 +1,7 @@
+**Raptors' Scottie Barnes expected to miss multiple weeks**\
+`Barnes suffered the injury on Monday in the team’s loss against the New York Knicks as he tried to defend Karl-Anthony Towns in the paint`\
+https://nytimes.com/athletic/5984348/2024/12/11/raptors-scottie-barnes-sprained-ankle/
+
 **Who Is Mohammed al-Bashir, Syria’s Caretaker Prime Minister?**\
 `Mr. al-Bashir previously headed a rebel-led administration in northwestern Syria. He has been tasked with running the country’s interim government until March.`\
 https://nytimes.com/2024/12/11/world/middleeast/syria-bashir-prime-minister.html
