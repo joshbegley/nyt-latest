@@ -1,3 +1,7 @@
+**Can the Senators stop the constant Brady Tkachuk rumors? 'It's unfair to him'**\
+`Brady Tkachuk spoke for the first time since being the subject of a yet another trade report.`\
+https://nytimes.com/athletic/5982123/2024/12/11/brady-tkachuk-senators-trade-rangers-rumors/
+
 **Flick banned for two games after red card, will miss Atletico Madrid match**\
 `Barcelona head coach Hansi Flick has been given a two-game touchline ban following his red card during Saturday&#8217;s draw with Real Betis.`\
 https://nytimes.com/athletic/5986346/2024/12/11/hansi-flick-red-card-ban-barcelona/
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/5986311/2024/12/11/saudi-arabia-2034-world-cup-mbap
 **Aston Villa assessing women's manager De Pauw's future**\
 `Aston Villa are considering the future of their women’s first-team manager Robert de Pauw.`\
 https://nytimes.com/athletic/5986252/2024/12/11/robert-de-pauw-aston-villa-future/
+
+**John Hynes' in-game line adjustment once again sparks Wild**\
+`The one thing we've learned about John Hynes is that he's a heck of an in-game adjuster.`\
+https://nytimes.com/athletic/5986130/2024/12/11/wild-utah-john-hynes-line-adjustment/
 
 **Explosion Kills Minister in Highest-Profile Blast Since Taliban’s Return**\
 `Khalil Haqqani, Afghanistan’s refugee minister, died in an explosion inside the ministry, officials said.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/11/business/energy-environment/exxon-mobil-data-cent
 **Can Broncos navigate the toughest homestretch among AFC playoff hopefuls?**\
 `Coach Sean Payton has identified a reduction in penalties as a major focus during Denver's final push toward the postseason.`\
 https://nytimes.com/athletic/5984224/2024/12/11/broncos-afc-playoff-chances/
-
-**Cowboys in tough spot, but plan remains the same: 'Keep plugging away and fighting'**\
-`The Cowboys' postgame locker room was as emotional as any in recent memory after the loss Monday night.`\
-https://nytimes.com/athletic/5986178/2024/12/11/cowboys-tough-loss-demarvion-overshown-blocked-punt/
-
-**NHL season predictions 3.0: Coaches on the hot seat, the fall of the Rangers and more**\
-`Two months into the season, our staff's updated picks for Cup winner, dark horse, biggest disappointment, awards, playoff fields and more.`\
-https://nytimes.com/athletic/5983247/2024/12/11/nhl-season-predictions-december-rangers-coaching-hot-seat/
 
