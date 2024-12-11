@@ -1,3 +1,7 @@
+**The Athletic FC: Why Saudi Arabia is set to host 2034 World Cup, Mbappe rollercoaster**\
+`Today in TAFC: Explaining how Saudi went unopposed in their 2034 World Cup bid, Mbappe's goal and injury, Arsenal's corners playbook`\
+https://nytimes.com/athletic/5986311/2024/12/11/saudi-arabia-2034-world-cup-mbappe-injury/
+
 **Aston Villa assessing women's manager De Pauw's future**\
 `Aston Villa are considering the future of their women’s first-team manager Robert de Pauw.`\
 https://nytimes.com/athletic/5986252/2024/12/11/robert-de-pauw-aston-villa-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983247/2024/12/11/nhl-season-predictions-december-
 **The Largest Immigration Surge in U.S. History**\
 `We explain the scale of recent immigration to America.`\
 https://nytimes.com/2024/12/11/briefing/the-largest-immigration-surge-in-us-history.html
-
-**The Pulse: A Belichick-UNC reality check**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5984897/2024/12/11/bill-belichick-unc-the-pulse/
 
