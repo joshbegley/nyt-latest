@@ -1,3 +1,11 @@
+**It's too early to say Juventus are back - this is still a team in transition**\
+`Beating Manchester City 2-0 was encouraging but it remains to be seen if Motta's side can build on a statement Champions League win`\
+https://nytimes.com/athletic/5988172/2024/12/12/juventus-manchester-city-champions-league/
+
+**Bayern renewal? Real Madrid? Premier League? What we're hearing on Alphonso Davies' future**\
+`Davies is one of Europe's best left-backs and his Bayern contract is set to run out next summer. What's the situation?`\
+https://nytimes.com/athletic/5987028/2024/12/12/alphonso-davies-bayern-munich-transfer/
+
 **The 10 players we'll be talking about at the 2034 World Cup**\
 `From Lamine Yamal to Amara Diouf, here is an optimistic prediction of the players that will be on everyone's lips at the 2034 World Cup`\
 https://nytimes.com/athletic/5974300/2024/12/12/players-2034-world-cup-lamal-bellingham-estevao/
