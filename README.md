@@ -1,3 +1,7 @@
+**Bills cancel Thursday's practice due to snow ahead of Lions matchup**\
+`More than two feet of lake-effect snow fell in Orchard Park as the Bills prepare to play the Lions on Sunday.`\
+https://nytimes.com/athletic/5990339/2024/12/12/bills-practice-canceled-snow-lions/
+
 **Months Before C.E.O.’s Killing, the Suspect Went Silent. Where Was He?**\
 `New details are emerging about Luigi Mangione’s growing impatience with “a capitalist society” and his search for refuge in the mountains of Japan.`\
 https://nytimes.com/2024/12/12/us/luigi-mangione-gunman-united-healthcare-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966084/2024/12/12/nfl-draft-2025-underclassmen-tra
 **What’s Going On in This Graph? | Jan. 8, 2025**\
 `What do you notice about book bans across the United States?`\
 https://nytimes.com/2024/12/12/learning/whats-going-on-in-this-graph-jan-8-2025.html
-
-**How to Dangerously Misread a Very Important Verdict**\
-`What happened on that subway train — and the acquittal that followed — deserves a more measured response.`\
-https://nytimes.com/2024/12/12/opinion/daniel-penny-jordan-neely-subway-killing.html
 
