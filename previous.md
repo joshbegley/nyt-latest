@@ -1,3 +1,19 @@
+**Until Saturday: Will Bill Belichick at UNC work? Plus, Oregon's CFP seeding**\
+`Welcome to Until Saturday, the five-star college football newsletter: Will Belichick's move to college football at UNC work?`\
+https://nytimes.com/athletic/5989456/2024/12/12/bill-belichick-unc-oregon-cfp-until-saturday/
+
+**As nations rush to assert influence in Syria, a Turkish intelligence official visits Damascus.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/as-nations-rush-to-assert-influence-in-syria-a-turkish-intelligence-official-visits-damascus
+
+**The Perfect Takeout for a Night In**\
+`An Ethiopian spread from Bunna Cafe, perfectly packaged sushi from Sugar Fish and roast chicken from Poulet Sans Tete.`\
+https://nytimes.com/2024/12/12/dining/the-perfect-takeout-for-a-night-in.html
+
+**Panthers favored for first time in two years as they host the Cowboys this weekend**\
+`The Carolina Panthers are favored to win a football game for the first time in exactly two years on Sunday afternoon.`\
+https://nytimes.com/athletic/5990421/2024/12/12/panthers-favorites-cowboys-spread-bryce-young-how-to-watch/
+
 **Chinese-Flagged Ship Suspected of Cutting Cables Remains Halted Weeks Later**\
 `After fiber-optic cables under the Baltic Sea were cut last month, European officials hurried to stop the Yi Peng 3. It’s still at anchor there, with no update on three nations’ investigation.`\
 https://nytimes.com/2024/12/12/world/europe/baltic-fiber-optic-cables-ship.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/12/learning/whats-going-on-in-this-picture-jan-6-202
 **UNLV hires former Florida coach Dan Mullen on 5-year deal**\
 `Mullen briefly took the Bulldogs to No. 1 in the inaugural College Football Playoff rankings during the 2014 season.`\
 https://nytimes.com/athletic/5988900/2024/12/12/unlv-dan-mullen-hire-coach/
-
-**Morgan Wallen Pleads to Reduced Charges in Chair-Throwing Incident**\
-`The country superstar agreed to misdemeanor reckless endangerment charges and a week at a D.U.I. education center.`\
-https://nytimes.com/2024/12/12/arts/music/morgan-wallen-guilty-chair-throwing.html
-
-**A Cozy House, a Spooky Setting and a Leap of Faith: Creative Writing by Teens**\
-`Some favorite student responses to three recent Picture Prompts.`\
-https://nytimes.com/2024/12/12/learning/a-cozy-house-a-spooky-setting-and-a-leap-of-faith-creative-writing-by-teens.html
-
-**Betting for (by) dummies: Can the Chiefs keep getting away with this? Plus Army-Navy picks**\
-`Jon Greenberg and Zac Jackson are coming off the high of their alma mater winning the MAC (and the low of the coach leaving).`\
-https://nytimes.com/athletic/5990303/2024/12/12/betting-for-by-dummies-chiefs-army-navy/
-
-**Donald Trump’s Perfect 1980s Day**\
-`For a man who rose to fame in the gilded yuppie era of New York City, today’s ringing the bell to open the stock exchange, and being named Person of the Year by Time, must have a certain appeal.`\
-https://nytimes.com/2024/12/12/style/donald-trump-time-stock-exchange.html
 

@@ -1,3 +1,19 @@
+**Until Saturday: Will Bill Belichick at UNC work? Plus, Oregon's CFP seeding**\
+`Welcome to Until Saturday, the five-star college football newsletter: Will Belichick's move to college football at UNC work?`\
+https://nytimes.com/athletic/5989456/2024/12/12/bill-belichick-unc-oregon-cfp-until-saturday/
+
+**As nations rush to assert influence in Syria, a Turkish intelligence official visits Damascus.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/as-nations-rush-to-assert-influence-in-syria-a-turkish-intelligence-official-visits-damascus
+
+**The Perfect Takeout for a Night In**\
+`An Ethiopian spread from Bunna Cafe, perfectly packaged sushi from Sugar Fish and roast chicken from Poulet Sans Tete.`\
+https://nytimes.com/2024/12/12/dining/the-perfect-takeout-for-a-night-in.html
+
+**Panthers favored for first time in two years as they host the Cowboys this weekend**\
+`The Carolina Panthers are favored to win a football game for the first time in exactly two years on Sunday afternoon.`\
+https://nytimes.com/athletic/5990421/2024/12/12/panthers-favorites-cowboys-spread-bryce-young-how-to-watch/
+
 **Chinese-Flagged Ship Suspected of Cutting Cables Remains Halted Weeks Later**\
 `After fiber-optic cables under the Baltic Sea were cut last month, European officials hurried to stop the Yi Peng 3. It’s still at anchor there, with no update on three nations’ investigation.`\
 https://nytimes.com/2024/12/12/world/europe/baltic-fiber-optic-cables-ship.html
