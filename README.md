@@ -1,3 +1,7 @@
+**Submit your questions for Until Saturday's podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/5989424/2024/12/12/college-football-questions-mailbag-until-saturday-38/
+
 **Raiders DE Charles Snowden arrested on suspicion of DUI**\
 `It is a misdemeanor charge and is Snowden’s first DUI offense.`\
 https://nytimes.com/athletic/5989322/2024/12/12/raiders-charles-snowden-dui/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/business/dealbook/david-bonderman-tpg-dead.html
 **Trump Transition Live Updates: Kari Lake Is Chosen to Lead Voice of America**\
 ``\
 https://nytimes.com/live/2024/12/12/us/trump-news
-
-**Steph Curry falters, Steve Kerr rips officials after Warriors' collapse in Houston**\
-`A questionable late call had everyone fuming, but Golden State once again missed chances to put a game away down the stretch.`\
-https://nytimes.com/athletic/5987137/2024/12/12/warriors-nba-cup-steph-curry-steve-kerr-rockets/
 
