@@ -1,3 +1,7 @@
+**Mbappe a serious doubt for Intercontinental Cup final due to thigh injury**\
+`Kylian Mbappe is a serious doubt for the Intercontinental Cup final due to a left thigh injury sustained during Real Madrid&#8217;s Champions League victory over Atalanta on Tuesday.`\
+https://nytimes.com/athletic/5986384/2024/12/12/real-madrid-mbappe-thigh-injury/
+
 **Submit your questions for Until Saturday's podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/5989424/2024/12/12/college-football-questions-mailbag-until-saturday-38/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986258/2024/12/12/tennis-rules-umpiring-mistakes-d
 **Remembering David Bonderman, a Private Equity Pioneer**\
 `A former lawyer, he cofounded the giant investment firm TPG and became known for complex deals that remade corporate America. He died on Wednesday at 82.`\
 https://nytimes.com/2024/12/12/business/dealbook/david-bonderman-tpg-dead.html
-
-**Trump Transition Live Updates: Kari Lake Is Chosen to Lead Voice of America**\
-``\
-https://nytimes.com/live/2024/12/12/us/trump-news
 
