@@ -1,3 +1,11 @@
+**Manchester City are stuck in a vicious cycle - and could stay there for some time**\
+`Injuries have left the Premier League champions a shadow of their usual selves and things may not improve any time soon`\
+https://nytimes.com/athletic/5988087/2024/12/12/manchester-city-injuries-form/
+
+**YoungBoy Never Broke Again Is Sentenced to Nearly 2 Years in Federal Gun Case**\
+`The rapper, whose real name is Kentrell Gaulden, admitted to possessing guns as a felon in Louisiana. He faced a maximum sentence of 25 years.`\
+https://nytimes.com/2024/12/12/us/nba-youngboy-sentenced-gun-charges.html
+
 **The 10 players we'll be talking about at the 2034 World Cup**\
 `From Lamine Yamal to Amara Diouf, here is an optimistic prediction of the players that will be on everyone's lips at the 2034 World Cup`\
 https://nytimes.com/athletic/5974300/2024/12/12/players-2034-world-cup-lamal-bellingham-estevao/
