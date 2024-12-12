@@ -1,3 +1,7 @@
+**Saka represents something profound for Arsenal - and for those young players hoping to follow him**\
+`The 23-year-old is a role model and an inspiration to younger players at the club who wish to take the same path to the first team`\
+https://nytimes.com/athletic/5988443/2024/12/12/bukayo-saka-arsenal-monaco/
+
 **Manchester City are stuck in a vicious cycle - and could stay there for some time**\
 `Injuries have left the Premier League champions a shadow of their usual selves and things may not improve any time soon`\
 https://nytimes.com/athletic/5988087/2024/12/12/manchester-city-injuries-form/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986276/2024/12/12/chelsea-wingers-one-v-one-tactic
 **It's too early to say Juventus are back - this is still a team in transition**\
 `Beating Manchester City 2-0 was encouraging but it remains to be seen if Motta's side can build on a statement Champions League win`\
 https://nytimes.com/athletic/5988172/2024/12/12/juventus-manchester-city-champions-league/
-
-**Bayern renewal? Real Madrid? Premier League? What we're hearing on Alphonso Davies' future**\
-`Davies is one of Europe's best left-backs and his Bayern contract is set to run out next summer. What's the situation?`\
-https://nytimes.com/athletic/5987028/2024/12/12/alphonso-davies-bayern-munich-transfer/
 

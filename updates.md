@@ -1,3 +1,7 @@
+**Saka represents something profound for Arsenal - and for those young players hoping to follow him**\
+`The 23-year-old is a role model and an inspiration to younger players at the club who wish to take the same path to the first team`\
+https://nytimes.com/athletic/5988443/2024/12/12/bukayo-saka-arsenal-monaco/
+
 **Lindy Ruff benches Owen Power, JJ Peterka as Sabres' losing streak hits 8**\
 `Ruff is trying everything he can to end the Sabres' eight-game losing streak. Kevyn Adams needs to see the problems and act accordingly.`\
 https://nytimes.com/athletic/5988829/2024/12/12/lindy-ruff-benches-owen-power-jj-peterka-sabres-losing-streak/
