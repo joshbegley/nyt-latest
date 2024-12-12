@@ -1,3 +1,7 @@
+**Alabama leaders plan to play in ReliaQuest Bowl vs. Michigan**\
+`Milroe on Alabama's ReliaQuest Bowl matchup with Michigan: 'The mission right now is to complete the season.'`\
+https://nytimes.com/athletic/5989849/2024/12/12/alabama-bowl-roster-michigan-parker-brailsford/
+
 **Cowboys Today: Did Cowboys ever seriously consider hiring Bill Belichick?**\
 `Stephen Jones says he thinks Mike McCarthy has done "outstanding" and avoids getting into the Belichick conversation too much.`\
 https://nytimes.com/athletic/5989846/2024/12/12/cowboys-today-bill-belichick-offseason-plan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989812/2024/12/12/heat-erik-spoelstra-bam-adebayo-
 **The Furor Over Health Insurance in America**\
 `Readers discuss the anger over health insurance set off by the killing of a C.E.O. Also: Gun safety laws; money in politics.`\
 https://nytimes.com/2024/12/12/opinion/health-insurance-ceo-killing.html
-
-**A New Female Designer Takes Center Stage**\
-`Bottega Veneta announced that Louise Trotter will replace Matthieu Blazy as creative director.`\
-https://nytimes.com/2024/12/12/style/bottega-veneta-matthieu-blazy-louise-trotter.html
 

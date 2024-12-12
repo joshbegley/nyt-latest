@@ -1,3 +1,7 @@
+**Alabama leaders plan to play in ReliaQuest Bowl vs. Michigan**\
+`Milroe on Alabama's ReliaQuest Bowl matchup with Michigan: 'The mission right now is to complete the season.'`\
+https://nytimes.com/athletic/5989849/2024/12/12/alabama-bowl-roster-michigan-parker-brailsford/
+
 **Cowboys Today: Did Cowboys ever seriously consider hiring Bill Belichick?**\
 `Stephen Jones says he thinks Mike McCarthy has done "outstanding" and avoids getting into the Belichick conversation too much.`\
 https://nytimes.com/athletic/5989846/2024/12/12/cowboys-today-bill-belichick-offseason-plan/
