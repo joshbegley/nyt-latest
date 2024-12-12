@@ -35,6 +35,6 @@ https://nytimes.com/2024/12/12/us/enslaved-peoples-graves-andrew-jacksons-hermit
 https://nytimes.com/2024/12/12/us/politics/trump-tv-stock-market.html
 
 **Ducks' Trevor Zegras out 6 weeks after knee surgery**\
-`The Anaheim Ducks announced that Trevor Zegras will be sidelined for at least six weeks after the forward underwent surgery on Thursday to repair a torn meniscus in his right knee.`\
+`This is the third injury within the last 13 months that will keep Zegras out for a significant amount of time.`\
 https://nytimes.com/athletic/5990580/2024/12/12/zegras-ducks-knee-surgery/
 
