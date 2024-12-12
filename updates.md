@@ -1,3 +1,7 @@
+**Israel says its troops will remain in the Syrian buffer zone for now.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/israel-syria-buffer-zone-assad
+
 **The Most Memorable Wines of 2024**\
 `The scarcity and fragility of rare old bottles makes them naturally memorable, but these 12 younger wines had their own unforgettable charms.`\
 https://nytimes.com/2024/12/12/dining/drinks/2024-best-wines.html
