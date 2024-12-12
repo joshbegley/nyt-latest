@@ -1,3 +1,7 @@
+**Ducks' Trevor Zegras out 6 weeks after knee surgery**\
+`This is the third injury within the last 13 months that will keep Zegras out for a significant amount of time.`\
+https://nytimes.com/athletic/5990580/2024/12/12/zegras-ducks-knee-surgery/
+
 **Juan Soto says he wants to help Mets become 'a dynasty'**\
 `“To try to grow a dynasty is one of the most important things,” Juan Soto said at his introductory news conference with the Mets.`\
 https://nytimes.com/athletic/5990417/2024/12/12/juan-soto-mets-introduced-conference/
