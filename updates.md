@@ -1,3 +1,19 @@
+**Months Before C.E.O.’s Killing, the Suspect Went Silent. Where Was He?**\
+`New details are emerging about Luigi Mangione’s growing impatience with “a capitalist society” and his search for refuge in the mountains of Japan.`\
+https://nytimes.com/2024/12/12/us/luigi-mangione-gunman-united-healthcare-shooting.html
+
+**What’s Going On in This Picture? | Jan. 6, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/12/12/learning/whats-going-on-in-this-picture-jan-6-2025.html
+
+**UNLV hires former Florida coach Dan Mullen on 5-year deal**\
+`Mullen briefly took the Bulldogs to No. 1 in the inaugural College Football Playoff rankings during the 2014 season.`\
+https://nytimes.com/athletic/5988900/2024/12/12/unlv-dan-mullen-hire-coach/
+
+**Morgan Wallen Pleads to Reduced Charges in Chair-Throwing Incident**\
+`The country superstar agreed to misdemeanor reckless endangerment charges and a week at a D.U.I. education center.`\
+https://nytimes.com/2024/12/12/arts/music/morgan-wallen-guilty-chair-throwing.html
+
 **NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
 `We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
 https://nytimes.com/athletic/5966084/2024/12/12/nfl-draft-2025-underclassmen-tracker-early-entrants/
