@@ -1,3 +1,7 @@
+**Inside the Red Sox's trade for Garrett Crochet**\
+`The Red Sox still have payroll room and prospects to deal after adding Crochet and are still actively pursuing more additions.`\
+https://nytimes.com/athletic/5988495/2024/12/11/red-sox-garrett-crochet-inside-trade/
+
 **Inside the Red Sox trade for Garrett Crochet**\
 `The Red Sox still have payroll room and prospects to deal after adding Crochet and are still actively pursuing more additions.`\
 https://nytimes.com/athletic/5988495/2024/12/11/red-sox-garrett-crochet-inside-trade/
