@@ -1,3 +1,7 @@
+**How Penn State is navigating the logistical hurdles of a hosting a Playoff game at Beaver Stadium**\
+`“I tell people all the time, we are just very different,” athletic director Pat Kraft said.`\
+https://nytimes.com/athletic/5989407/2024/12/12/penn-state-hosting-game-beaver-stadium-playoff-smu/
+
 **Reyna to 'fight for more opportunities' after first Dortmund start in 13 months**\
 `Giovanni Reyna says he is determined to &#8220;fight for more opportunities&#8221; after making his first Borussia Dortmund start in over a year during Wednesday&#8217;s Champions League loss to Barcelona.`\
 https://nytimes.com/athletic/5989452/2024/12/12/giovanni-reyna-dortmund-start/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989322/2024/12/12/raiders-charles-snowden-dui/
 **What we're seeing with the Bucks: Damian Lillard's continuation, Khris Middleton's connections**\
 `With a little extra time before the Bucks take the floor for the NBA Cup in Las Vegas, let's look at one play, one player and one trend.`\
 https://nytimes.com/athletic/5977750/2024/12/12/damian-lillard-khris-middleton-bucks/
-
-**Brighton fined for breach of Premier League's youth development rules**\
-`Brighton &amp; Hove Albion have been fined £20,000 by the Premier League for breaking youth development rules.`\
-https://nytimes.com/athletic/5989346/2024/12/12/brighton-premier-league-fine-youth-academy/
 
