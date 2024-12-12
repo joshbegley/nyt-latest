@@ -1,3 +1,7 @@
+**Dommaraju Gukesh, 18, Becomes Youngest World Chess Champion**\
+`It had been an unexpectedly close contest in Singapore with Ding Liren. When he won, the normally stoic Gukesh clasped his hands at the board and burst into tears.`\
+https://nytimes.com/2024/12/12/sports/gukesh-world-chess-championship-2024.html
+
 **Belichick introduced at UNC, says he 'always wanted to coach' in CFB**\
 `"Had some good years in the NFL so that was OK. But this is really a dream come true," Bill Belichick said at a news conference.`\
 https://nytimes.com/athletic/5990274/2024/12/12/bill-belichick-unc-football-introductory-news-conference/
