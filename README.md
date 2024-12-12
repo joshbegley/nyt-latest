@@ -1,7 +1,3 @@
-**Selena Gomez’s Engagement Ring Has People Talking**\
-`A lyrical Easter egg may have predicted her marquise diamond ring, which one jewelry designer calls “the hot stone of the moment.”`\
-https://nytimes.com/2024/12/12/style/selena-gomez-marquise-engagement-ring.html
-
 **Under Trump, Voice of America Journalists Fear Politicization**\
 `Donald J. Trump’s choice of Kari Lake to lead Voice of America goes against recent efforts to shield the federally funded news organization from politicization.`\
 https://nytimes.com/2024/12/12/us/politics/voice-of-america-journalists-trump.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/12/us/air-force-academy-race-based-admissions-lawsui
 **U.S. Hopes for a Gaza Cease-Fire and Hostage Deal ‘This Month’**\
 `In the Middle East for a last-ditch diplomatic effort before leaving office, Jake Sullivan, a top White House official, said the current talks were different than those in the past.`\
 https://nytimes.com/2024/12/12/world/middleeast/gaza-cease-fire-hopes-america-sullivan.html
+
+**Stanley Recalls More Than 2 Million Travel Mugs Over Burn Hazard**\
+`Stanley, which also makes trendy tumblers that are wildly popular on social media, urged consumers to contact them for replacement lids.`\
+https://nytimes.com/2024/12/12/business/stanley-recall-mugs.html
 
