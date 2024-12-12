@@ -1,3 +1,11 @@
+**The Pulse: Bill Belichick is really doing this**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5987690/2024/12/12/bill-belichick-hired-unc-nba-cup-the-pulse/
+
+**SEC sets 2025 schedule with focus on TV ratings battle**\
+`Here is the week-by-week 2025 SEC schedule, including nonconference games, which were announced previously.`\
+https://nytimes.com/athletic/5989123/2024/12/12/sec-2025-football-schedule/
+
 **C.E.O.s Are Tripping**\
 `Why executives are using psychedelics to get ahead.`\
 https://nytimes.com/2024/12/12/briefing/ceos-are-tripping.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5987605/2024/12/12/red-wings-raymond-seider-edvinss
 **Patrick Mahomes and the Chiefs can’t keep getting away with this. Or can they?**\
 `The Chiefs' 15-game win streak in one-score games is a clear statistical outlier, but that doesn't mean it's driven by good fortune.`\
 https://nytimes.com/athletic/5984768/2024/12/12/patrick-mahomes-clutch-chiefs-close-games/
-
-**Bruins’ Trent Frederic, Jets’ David Gustafsson and the one-punch aftermath**\
-`Frederic dropped Gustafsson — who had no NHL fights to his name — with one punch and sent him into concussion protocol. `\
-https://nytimes.com/athletic/5988314/2024/12/12/bruins-jets-trent-frederic-david-gustafsson-fight/
-
-**How first-time NHLer Anders Sorensen won over Blackhawks veterans in record time**\
-`The interim head coach never reached higher than the ECHL in his playing days, but he won over Chicago's NHL stalwarts after just two games.`\
-https://nytimes.com/athletic/5987997/2024/12/12/blackhawks-anders-sorensen-veterans/
 
