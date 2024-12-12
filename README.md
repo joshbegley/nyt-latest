@@ -1,3 +1,7 @@
+**Judge John Hodgman on Elfin Magic**\
+`Are all elves magical? Or just some?`\
+https://nytimes.com/2024/12/12/magazine/judge-john-hodgman-on-elfin-magic.html
+
 **Scoop City: Josh Allen's evolution, Belichick's chilling reality**\
 `A quick look at the unparalleled growth of Josh Allen, Bill Belichick's chilling reality and the Rams-49ers game tonight.`\
 https://nytimes.com/athletic/5989837/2024/12/12/evolution-of-josh-allen-nfl-mvp-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/dining/perfect-instant-ramen.html
 **Victor Brombert, Scholar With a Secret Army Past, Dies at 101**\
 `As a German Jewish teen, he fled the Nazis for America — then landed at D-Day and swept across Europe in a unit that gathered intelligence. Its work was hidden for decades.`\
 https://nytimes.com/2024/12/12/us/victor-brombert-dead.html
-
-**How Covid Can Change Your Gut**\
-`Diarrhea, constipation, pain, bloating: We asked experts why the virus causes these issues and what to do about them.`\
-https://nytimes.com/2024/12/12/well/eat/covid-symptoms-diarrhea-constipation-pain-bloating.html
 
