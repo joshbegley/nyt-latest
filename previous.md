@@ -1,3 +1,8 @@
+**Mika Zibanejad scores big goal as Rangers survive poor third period: 3 takeaways vs. Sabres**\
+`The struggling Zibanejad scored his 300th career goal in a 3-2 win over the Sabres, but it wasn't an ideal finish for New York.
+`\
+https://nytimes.com/athletic/5988714/2024/12/11/rangers-sabres-mika-zibanejad-takeaways/
+
 **Former 5-star QB Conner Weigman transferring from Texas A&M to Houston**\
 `Weigman started 13 games in his A&M career and threw for 2,694 yards and 19 touchdowns.`\
 https://nytimes.com/athletic/5981189/2024/12/11/conner-weigman-transfer-houston-cougars/
@@ -33,8 +38,4 @@ https://nytimes.com/2024/12/11/us/massachusetts-high-school-dean-cocaine-traffic
 **Health Insurance Workers Fearful Amid Public Anger After Slaying of C.E.O.**\
 `Employees at UnitedHealthcare and other companies described being anxious after an outpouring of online vitriol.`\
 https://nytimes.com/2024/12/11/us/health-insurance-uhc-ceo-shooting.html
-
-**Labor Board Classifies ‘Love Is Blind’ Contestants as Employees**\
-`The National Labor Relations Board’s case against the Netflix hit could have ripple effects across the reality TV industry.`\
-https://nytimes.com/2024/12/11/arts/television/love-is-blind-nlrb-employees-union.html
 
