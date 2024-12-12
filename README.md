@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5989127/2024/12/12/manchester-city-champions-league
 `What are the key matchups in the NBA Cup final four? Plus, remembering a weird Pacers-Bucks game-ball beef. `\
 https://nytimes.com/athletic/5981774/2024/12/12/nba-lookahead-nba-cup-bucks-hawks-rockets-thunder/
 
-**Tennis roundtable: After a year of umpiring controversy and doping confusion, what next?**\
+**Tennis roundtable: After a year of umpiring confusion and doping controversy, what next?**\
 `Rules and grey areas have been in the headlines on and off the court. What can tennis do to make things better?`\
 https://nytimes.com/athletic/5986258/2024/12/12/tennis-rules-umpiring-mistakes-doping-regulations/
 
