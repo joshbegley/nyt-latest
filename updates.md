@@ -33,6 +33,11 @@ https://nytimes.com/athletic/5988714/2024/12/11/rangers-sabres-mika-zibanejad-ta
 `\
 https://nytimes.com/athletic/5988714/2024/12/11/rangers-sabres-mika-zibanejad-takeaways/
 
+**Mika Zibanejad scores big goal as Rangers survive poor third period: 3 takeaways vs. Sabres**\
+`The struggling Zibanejad scored his 300th career goal in a 3-2 win over the Sabres, but it wasn't an ideal finish for New York.
+`\
+https://nytimes.com/athletic/5988714/2024/12/11/rangers-sabres-mika-zibanejad-takeaways/
+
 **Meta Donates $1 Million to Trump’s Inaugural Fund**\
 `The move follows a visit that Mark Zuckerberg, Meta’s chief executive, made last month to Mar-a-Lago to meet with President-elect Donald Trump.`\
 https://nytimes.com/2024/12/12/technology/meta-trump-inaugural-fund-donation.html
