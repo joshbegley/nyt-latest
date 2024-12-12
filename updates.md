@@ -1,3 +1,11 @@
+**Trump Considers Kennedy’s Daughter-in-Law for C.I.A. Deputy Director**\
+`Amaryllis Fox Kennedy, a former C.I.A. officer who is married to the son of Robert F. Kennedy Jr., raised alarms for publishing a book about her work at the agency without going through a review process.`\
+https://nytimes.com/2024/12/11/us/politics/amaryllis-fox-kennedy-cia.html
+
+**Drones, Dogs, Drug Labs: Canada’s Plan to Avoid Trump’s Tariffs Takes Shape**\
+`Two weeks after a Mar-a-Lago dinner with Donald J. Trump, details of Prime Minister Justin Trudeau’s plan to stave off a showdown with the United States are emerging.`\
+https://nytimes.com/2024/12/11/world/canada/canada-trump-tariffs-border.html
+
 **In Defiant Speech, South Korea’s President Defends Martial Law Decree**\
 `President Yoon Suk Yeol vowed to “fight to the end,” despite the opposition’s push to impeach him and his own party’s demand that he resign.`\
 https://nytimes.com/2024/12/11/world/asia/yoon-south-korea-martial-law.html
