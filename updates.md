@@ -1,3 +1,7 @@
+**Christopher Wray to Resign as F.B.I. Director**\
+`The director said he was intending to step down in January at the end of the Biden administration.`\
+https://nytimes.com/video/us/politics/100000009873608/christopher-wray-to-resign-as-fbi-director.html
+
 **N.C. Elections Board Rejects G.O.P. Effort to Toss 60,000 Ballots**\
 `The ruling comes in a dispute over a State Supreme Court race that the Democratic incumbent won by 734 votes.`\
 https://nytimes.com/2024/12/11/us/north-carolina-election-ballots-republicans.html
