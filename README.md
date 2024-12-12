@@ -1,3 +1,7 @@
+**Louisville and Justice Dept. Reach Deal on Federal Oversight of Police**\
+`The agreement comes after the Justice Department documented excessive use of force, illegal searches and car stops and widespread discrimination against Black people and those with mental illnesses.`\
+https://nytimes.com/2024/12/12/us/politics/louisville-breonna-taylor-justice-police.html
+
 **What Do You Expect From a Second Trump Presidency?**\
 `We want to hear how you imagine the next four years will unfold for you and your loved ones.`\
 https://nytimes.com/2024/12/12/us/inauguration-trump-callout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5990365/2024/12/12/ruben-amorim-man-united-europa/
 **Bills cancel Thursday's practice due to snow ahead of Lions matchup**\
 `More than two feet of lake-effect snow fell in Orchard Park as the Bills prepare to play the Lions on Sunday.`\
 https://nytimes.com/athletic/5990339/2024/12/12/bills-practice-canceled-snow-lions/
-
-**Months Before C.E.O.’s Killing, the Suspect Went Silent. Where Was He?**\
-`New details are emerging about Luigi Mangione’s growing impatience with “a capitalist society” and his search for refuge in the mountains of Japan.`\
-https://nytimes.com/2024/12/12/us/luigi-mangione-gunman-united-healthcare-shooting.html
 
