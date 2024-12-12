@@ -10,6 +10,10 @@ https://nytimes.com/athletic/5990303/2024/12/12/betting-for-by-dummies-chiefs-ar
 `For a man who rose to fame in the gilded yuppie era of New York City, today’s ringing the bell to open the stock exchange, and being named Person of the Year by Time, must have a certain appeal.`\
 https://nytimes.com/2024/12/12/style/donald-trump-time-stock-exchange.html
 
+**NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
+`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
+https://nytimes.com/athletic/5966084/2024/12/12/nfl-draft-2025-underclassmen-tracker-early-entrants/
+
 **What’s Going On in This Graph? | Jan. 8, 2025**\
 `What do you notice about book bans across the United States?`\
 https://nytimes.com/2024/12/12/learning/whats-going-on-in-this-graph-jan-8-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/us/politics/boris-epshteyn-senate.html
 **Los Angeles Times Owner Wades Deeper Into Opinion Section**\
 `Dr. Patrick Soon-Shiong’s public comments and actions, including recently blocking an editorial weighing in on President-elect Trump’s cabinet picks, have concerned many staff members.`\
 https://nytimes.com/2024/12/12/business/media/la-times-patrick-soon-shiong.html
-
-**The Briefing: Viktoria Plzen 1 Manchester United 2 - Hojlund's deadly double, Onana's error and Zirkzee's woes**\
-`Mark Critchley breaks down the main talking points from Manchester United's 2-1 win at Viktoria Plzen`\
-https://nytimes.com/athletic/5986480/2024/12/12/viktoria-plzen-1-manchester-united-2-hojlund-zirkzee-onana/
 
