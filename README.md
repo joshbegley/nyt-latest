@@ -1,3 +1,11 @@
+**Defying Veto Threat, House Approves Measure Adding 66 New U.S. Judges**\
+`President Biden and House Democrats objected to the bipartisan measure that would immediately give President-elect Donald J. Trump about two dozen new judicial seats to fill.`\
+https://nytimes.com/2024/12/12/us/politics/house-judges-veto.html
+
+**Trump’s Middle East Adviser Pick Is a Small-Time Truck Salesman**\
+`The lore around Massad Boulos, Tiffany Trump’s father-in-law, is that he is a billionaire dealmaker. Records show otherwise.`\
+https://nytimes.com/2024/12/12/world/africa/trump-massad-boulos-middle-east.html
+
 **Alabama leaders plan to play in ReliaQuest Bowl vs. Michigan**\
 `Milroe on Alabama's ReliaQuest Bowl matchup with Michigan: 'The mission right now is to complete the season.'`\
 https://nytimes.com/athletic/5989849/2024/12/12/alabama-bowl-roster-michigan-parker-brailsford/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/us/politics/tech-sales-china-huawei.html
 **‘Dirty Angels’ Review: Women on a Mission**\
 `In this heavy-handed action movie, Eva Green plays a Marine who leads a squad trying to rescue schoolgirls in Afghanistan.`\
 https://nytimes.com/2024/12/12/movies/dirty-angels-review.html
-
-**Heat Today: Bam Adebayo, Haywood Highsmith deserve credit for Heat's improved defense**\
-`The Heat remain committed to improving their defense as Jimmy Butler rumors swirl.`\
-https://nytimes.com/athletic/5989812/2024/12/12/heat-erik-spoelstra-bam-adebayo-haywood-highsmith-jimmy-butler-nba/
-
-**The Furor Over Health Insurance in America**\
-`Readers discuss the anger over health insurance set off by the killing of a C.E.O. Also: Gun safety laws; money in politics.`\
-https://nytimes.com/2024/12/12/opinion/health-insurance-ceo-killing.html
 
