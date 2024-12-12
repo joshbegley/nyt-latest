@@ -1,3 +1,7 @@
+**Champions League projections: Liverpool and Arsenal the favourites to win it but will Manchester City go through?**\
+`With just two rounds of games remaining, the standings are taking shape - but who are the major clubs who are in danger of elimination?`\
+https://nytimes.com/athletic/5989418/2024/12/12/champions-league-projections-matchday-six-analysis/
+
 **Brian Thompson, Not Luigi Mangione, Is the Real Working-Class Hero**\
 `He’s a model for how a talented, determined man from humble roots can rise to the top of corporate life.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/brian-thompson-luigi-mangione
