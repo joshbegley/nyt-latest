@@ -1,3 +1,11 @@
+**Biden Commuted the Sentences of 1,500 Americans, a One-Day Record**\
+`Also, Israel said it would stay in Syria for now. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/12/12/briefing/biden-pardons-israel-syria-buffer-zone.html
+
+**U.S. Hopes for a Gaza Cease-Fire and Hostage Deal ‘This Month’**\
+`In the Middle East for a last-ditch diplomatic effort before leaving office, Jake Sullivan, a top White House official, said the current talks were different than those in the past.`\
+https://nytimes.com/2024/12/12/world/middleeast/gaza-cease-fire-hopes-america-sullivan.html
+
 **Postecoglou labels Werner performance 'not acceptable' in draw with Rangers**\
 `Ange Postecoglou has castigated Timo Werner’s first-half performance for Tottenham Hotspur against Rangers as “not acceptable” after taking him off at half-time.`\
 https://nytimes.com/athletic/5990582/2024/12/12/ange-postecoglou-timo-werner/
