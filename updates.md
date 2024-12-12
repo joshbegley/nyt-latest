@@ -1,3 +1,7 @@
+**Why Do Some Rebel Governments Last When Others Fall?**\
+`One factor matters most, and it could be a problem in Syria.`\
+https://nytimes.com/2024/12/12/world/middleeast/syria-rebel-government.html
+
 **Mayor Adams Meets Trump’s ‘Border Czar’ as Immigration Crackdown Looms**\
 `Thomas D. Homan, President-elect Donald J. Trump’s designated border czar, has cited Eric Adams’s willingness to work together as a model for Democratic mayors.`\
 https://nytimes.com/2024/12/12/nyregion/adams-homan-meeting-migrants.html
