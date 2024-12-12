@@ -1,3 +1,11 @@
+**Los Angeles Times Owner Wades Deeper Into Opinion Section**\
+`Dr. Patrick Soon-Shiong’s public comments and actions, including recently blocking an editorial weighing in on President-elect Trump’s cabinet picks, have concerned many staff members.`\
+https://nytimes.com/2024/12/12/business/media/la-times-patrick-soon-shiong.html
+
+**The Briefing: Viktoria Plzen 1 Manchester United 2 - Hojlund's deadly double, Onana's error and Zirkzee's woes**\
+`Mark Critchley breaks down the main talking points from Manchester United's 2-1 win at Viktoria Plzen`\
+https://nytimes.com/athletic/5986480/2024/12/12/viktoria-plzen-1-manchester-united-2-hojlund-zirkzee-onana/
+
 **Lions-Bills preview: There will be lots of points, but which team has the edge?**\
 `Injuries have hit the Lions' defense hard while the Bills are coming off a disastrous defensive performance.`\
 https://nytimes.com/athletic/5990129/2024/12/12/bills-lions-preview-josh-allen-jared-goff/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/us/politics/kash-patel-republicans-fbi.html
 **Oldest Human Genomes Reveal How a Small Group Burst Out of Africa**\
 `DNA from European fossils dating back 45,000 years offers new clues to how our species spread across the world.`\
 https://nytimes.com/2024/12/12/science/oldest-human-genomes-lrj-neanderthals.html
-
-**Overlooked No More: Fidelia Bridges, Artist Who Captured the Natural World**\
-`A prolific artist, she was known for her graceful watercolors of birds, plants and butterflies, and was considered as the equal of Winslow Homer in her day.`\
-https://nytimes.com/2024/12/12/arts/fidelia-bridges-overlooked.html
-
-**Superflares Erupt From Stars Like Our Sun Once Every 100 Years**\
-`New findings suggest that an extraordinarily powerful and dangerous burst of radiation might flare from our sun in the future.`\
-https://nytimes.com/2024/12/12/science/sun-superflares-stars.html
 

@@ -1,3 +1,11 @@
+**Los Angeles Times Owner Wades Deeper Into Opinion Section**\
+`Dr. Patrick Soon-Shiong’s public comments and actions, including recently blocking an editorial weighing in on President-elect Trump’s cabinet picks, have concerned many staff members.`\
+https://nytimes.com/2024/12/12/business/media/la-times-patrick-soon-shiong.html
+
+**The Briefing: Viktoria Plzen 1 Manchester United 2 - Hojlund's deadly double, Onana's error and Zirkzee's woes**\
+`Mark Critchley breaks down the main talking points from Manchester United's 2-1 win at Viktoria Plzen`\
+https://nytimes.com/athletic/5986480/2024/12/12/viktoria-plzen-1-manchester-united-2-hojlund-zirkzee-onana/
+
 **Lions-Bills preview: There will be lots of points, but which team has the edge?**\
 `Injuries have hit the Lions' defense hard while the Bills are coming off a disastrous defensive performance.`\
 https://nytimes.com/athletic/5990129/2024/12/12/bills-lions-preview-josh-allen-jared-goff/
