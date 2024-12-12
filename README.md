@@ -1,3 +1,7 @@
+**‘Carry On’ Review: Travel Nightmares Amplified**\
+`In this tense thriller, Taron Egerton plays a T.S.A. agent who goes up against an implacable terrorist (Jason Bateman). The man has a funny idea of what he wants to bring on a plane.`\
+https://nytimes.com/2024/12/12/movies/carry-on-review.html
+
 **An Easy Holiday Manicure With a Secret Ingredient**\
 `The nail artist Mei Kawajiri shares a festive nail design you can recreate at home in just five steps, using products you probably already own.`\
 https://nytimes.com/2024/12/12/t-magazine/simple-holiday-manicure.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/us/dolores-madrigal-dead.html
 **Biden Commuted the Sentences of 1,500 Americans, a One-Day Record**\
 `Also, Israel said it would stay in Syria for now. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/12/12/briefing/biden-pardons-israel-syria-buffer-zone.html
-
-**Postecoglou labels Werner performance 'not acceptable' in draw with Rangers**\
-`Ange Postecoglou has castigated Timo Werner’s first-half performance for Tottenham Hotspur against Rangers as “not acceptable” after taking him off at half-time.`\
-https://nytimes.com/athletic/5990582/2024/12/12/ange-postecoglou-timo-werner/
 
