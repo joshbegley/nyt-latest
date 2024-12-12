@@ -1,3 +1,7 @@
+**Dolores Madrigal, Plaintiff in Landmark Sterilization Case, Dies at 90**\
+`She was among hundreds of women who said they were coerced into sterilization at a California hospital in the 1970s. The lawsuit led to state and national reforms.`\
+https://nytimes.com/2024/12/12/us/dolores-madrigal-dead.html
+
 **Biden Commuted the Sentences of 1,500 Americans, a One-Day Record**\
 `Also, Israel said it would stay in Syria for now. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/12/12/briefing/biden-pardons-israel-syria-buffer-zone.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/12/12/world/middleeast/stripping-away-the-symbols-
 **U.S. Couple on Holiday Visit Are Shot and Killed in Western Mexico**\
 `The killings, and other violent episodes this year, have marred the first few months in office of Mexico’s new president, who has vowed to tackle the country’s bloodshed.`\
 https://nytimes.com/2024/12/12/world/americas/americans-killed-mexico.html
-
-**Feldman: No reason Belichick can't have success at UNC. Just don't expect him to last long**\
-`From the outside, the Bill Belichick hire at UNC is shocking. But those who know him think it can work. It's just: For how long?`\
-https://nytimes.com/athletic/5990145/2024/12/12/bill-belichick-unc-coaching-success-college-football/
 
