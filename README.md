@@ -1,3 +1,23 @@
+**The 10 players we'll be talking about at the 2034 World Cup**\
+`From Lamine Yamal to Amara Diouf, here is an optimistic prediction of the players that will be on everyone's lips at the 2034 World Cup`\
+https://nytimes.com/athletic/5974300/2024/12/12/players-2034-world-cup-lamal-bellingham-estevao/
+
+**Marc Cucurella, kit men, and how players choose their boots**\
+`Boot warming, stud tightening, personalised sole plates - a lot goes into what a player has on their feet come matchday`\
+https://nytimes.com/athletic/5986577/2024/12/12/cucurella-football-boots-kit-men/
+
+**Naomi Layzell interview: 'I kept thinking I'd tarnished one of the best games of my life'**\
+`The Manchester City defender was making a big impression with her new club before injury struck in the best match of her career so far`\
+https://nytimes.com/athletic/5983520/2024/12/12/naomi-layzell-manchester-city-bristol-city/
+
+**Shaw and James: Why England’s full-backs might be struggling to return from injury**\
+`Shaw and James have suffered repeated injury problems. What is causing them and can they recover? Our medical expert explains...`\
+https://nytimes.com/athletic/5980724/2024/12/12/luke-shaw-united-injury-reece-james-hamstring-chelsea/
+
+**Thursday Briefing**\
+`The latest from Syria.`\
+https://nytimes.com/2024/12/12/briefing/syria-fbi-scholz-tiger.html
+
 **Meta Donates $1 Million to Trump’s Inaugural Fund**\
 `The move follows a visit that Mark Zuckerberg, Meta’s chief executive, made last month to Mar-a-Lago to meet with President-elect Donald Trump.`\
 https://nytimes.com/2024/12/12/technology/meta-trump-inaugural-fund-donation.html
@@ -17,25 +37,4 @@ https://nytimes.com/2024/12/11/pageoneplus/quote-of-the-day-israel-seeing-an-opp
 **Who does North Carolina play in 2025? Looking at Bill Belichick's first college opponents**\
 `North Carolina's nonconference schedule is set for 2025, and the Tar Heels' slate of ACC opponents is known.`\
 https://nytimes.com/athletic/5988417/2024/12/11/north-carolina-2025-schedule-bill-belichick/
-
-**Mika Zibanejad scores big goal as Rangers survive poor third period: 3 takeaways vs. Sabres**\
-`The struggling Zibanejad scored his 300th career goal in a 3-2 win over the Sabres, but it wasn't an ideal finish for New York.
-`\
-https://nytimes.com/athletic/5988714/2024/12/11/rangers-sabres-mika-zibanejad-takeaways/
-
-**Former 5-star QB Conner Weigman transferring from Texas A&M to Houston**\
-`Weigman started 13 games in his A&M career and threw for 2,694 yards and 19 touchdowns.`\
-https://nytimes.com/athletic/5981189/2024/12/11/conner-weigman-transfer-houston-cougars/
-
-**Serious Hang Time**\
-`Daniel Bodily’s puzzle will have you looking in all directions.`\
-https://nytimes.com/2024/12/11/crosswords/daily-puzzle-2024-12-12.html
-
-**Corrections: Dec. 12, 2024**\
-`Corrections that appeared in print on Thursday, Dec. 12, 2024.`\
-https://nytimes.com/2024/12/11/pageoneplus/corrections-dec-12-2024.html
-
-**Trump Considers Kennedy’s Daughter-in-Law for C.I.A. Deputy Director**\
-`Amaryllis Fox Kennedy, a former C.I.A. officer who is married to the son of Robert F. Kennedy Jr., raised alarms for publishing a book about her work at the agency without going through a review process.`\
-https://nytimes.com/2024/12/11/us/politics/amaryllis-fox-kennedy-cia.html
 
