@@ -1,40 +1,40 @@
-**Bad News, Democrats: America Is About to Get Even Redder**\
-`Americans are fleeing unaffordable blue states – and they’re taking the electoral college with them.`\
-https://nytimes.com/video/opinion/100000009863136/states-democrats-republicans-affordability.html
+**Biden Has a Pair of Gifts for Trump**\
+`What will the president-elect do with them?`\
+https://nytimes.com/2024/12/12/opinion/syria-trump-ukraine-israel-biden.html
 
-**Rights Groups See a Chance to Seek Justice for Syrian Regime’s Victims**\
-`It seems unlikely that deposed President Bashar al-Assad, who fled to Russia, will be forced to stand trial. That is not deterring activists who have worked for years to document his government’s crimes.`\
-https://nytimes.com/2024/12/12/world/middleeast/syria-assad-regime-crimes.html
+**New Federal Rule Limits Overdraft Fees at Large Banks**\
+`It is unclear whether the rule, which could help save Americans billions in fees each year, will remain in place after President-elect Donald J. Trump returns to office.`\
+https://nytimes.com/2024/12/12/us/politics/bank-overdraft-fees-limits.html
 
-**Stephen Colbert Is Surprised by Luigi Mangione’s ‘Minifesto’**\
-`“He could’ve just made it a Yelp review: ‘American health care sucks. One star,’” Colbert said of the content of a notebook found with the crime suspect.`\
-https://nytimes.com/2024/12/12/arts/television/stephen-colbert-luigi-mangione-manifesto.html
+**A Swiss Ski Chalet That Calls to Mind a Spy Movie**\
+`Plus: a Muji designer’s museum show, deodorant inspired by “The Iliad” and more recommendations from T Magazine.`\
+https://nytimes.com/2024/12/12/t-magazine/ski-in-chalet-in-the-swiss-alps.html
 
-**Police re-open investigation into former Fulham Ladies captain's sexual assault claims**\
-`Police will look again at allegations - strenuously denied - made against a Fulham coach who worked at the club from 1992 to 2008`\
-https://nytimes.com/athletic/5987781/2024/12/12/fulham-sexual-assault-police-claim/
+**Three Columnists Wrestle With the Lionizing of Luigi Mangione**\
+`What other kind of company inspires this sort of hatred?`\
+https://nytimes.com/2024/12/12/opinion/luigi-mangione-ceo-shooting.html
 
-**Will This Man Be New Jersey Transit’s ‘Train Daddy’?**\
-`Kris Kolluri, who until recently managed the project to build a $16 billion rail tunnel under the Hudson River to New York City, will become the agency’s chief executive.`\
-https://nytimes.com/2024/12/12/nyregion/njtransit-kris-kolluri.html
+**How Do You Stay Focused on an Important Task?**\
+`Do you find it hard to concentrate? What can we learn from a Formula 1 driver’s mental tool kit?`\
+https://nytimes.com/2024/12/12/learning/how-do-you-stay-focused-on-an-important-task.html
 
-**Power, Intimidation and the Resurrection of Trump’s Support for Hegseth**\
-`The president-elect became convinced that letting Pete Hegseth fail would set off a feeding frenzy among senators. What followed was a MAGA swarm that helped salvage his bid, at least for now.`\
-https://nytimes.com/2024/12/12/us/politics/pete-hegseth-trump-defense-secretary.html
+**This is what 4 of Trump’s cabinet picks think of the agencies they would lead.**\
+`Pete Hegseth, Tulsi Gabbard, Robert F. Kennedy Jr. and Kash Patel have been fierce critics of the agencies they are in line to oversee.`\
+https://nytimes.com/interactive/2024/12/12/us/trump-cabinet-fact-check.html
 
-**An Article on Hysterectomies Asks What Might Have Been Lost**\
-`Rachel E. Gross, a health reporter, was used to asking tough questions, but here her reporting presented a new challenge: Some patients didn’t know which organs had been removed from their bodies.`\
-https://nytimes.com/2024/12/12/insider/an-article-on-hysterectomies-asks-what-might-have-been-lost.html
+**On a Treadmill**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2024/12/12/learning/on-a-treadmill.html
 
-**The Highs and Lows on London Stages in 2024**\
-`Our critics discuss which A-lister performances on the West End were worth the ticket price, and why so many new musicals struggled this year.`\
-https://nytimes.com/2024/12/12/theater/the-highs-and-lows-on-london-stages-in-2024.html
+**The Figure Skater Who Treats the Rink as a Runway**\
+`Madison Chock has earned a reputation for ice dancing in costumes as dazzling as her performances.`\
+https://nytimes.com/2024/12/12/style/madison-chock-figure-skating-costumes.html
 
-**N.Y.C. Grocery Prices Are High. Could City-Owned Stores Help?**\
-`A New York City mayoral candidate wants the city to open its own, more affordable grocery stores. The idea has gained momentum in Chicago and other cities.`\
-https://nytimes.com/2024/12/12/nyregion/grocery-stores-city-owned.html
+**What the Glorification of Luigi Mangione Reveals About America**\
+`The shooting of Brian Thompson marks a new era of rage for this country.`\
+https://nytimes.com/2024/12/12/opinion/luigi-mangione-united-healthcare-ceo-shooting.html
 
-**How the Resurrected Congestion Pricing Plan Could Die in the Courts**\
-`Manhattan’s new tolling program is still being challenged in federal and state courts, with rulings possible before it begins on Jan. 5.`\
-https://nytimes.com/2024/12/12/nyregion/nyc-congestion-pricing-lawsuits.html
+**Humbled in Syria, Putin Seeks Vindication in Ukraine**\
+`An ally’s downfall has prompted calls in Russia for a definitive victory closer to home.`\
+https://nytimes.com/2024/12/12/world/europe/putin-syria-ukraine.html
 
