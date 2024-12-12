@@ -1,3 +1,11 @@
+**The Most Memorable Wines of 2024**\
+`The scarcity and fragility of rare old bottles makes them naturally memorable, but these 12 younger wines had their own unforgettable charms.`\
+https://nytimes.com/2024/12/12/dining/drinks/2024-best-wines.html
+
+**Trump Says His 1st Acts Will Include Deportations and Jan. 6 Pardons**\
+`In a wide-ranging Time magazine interview, President-elect Donald J. Trump said he might supporting getting rid of some childhood vaccines if data shows links to autism.`\
+https://nytimes.com/2024/12/12/us/politics/trump-pardons-deportations-time-magazine-interview.html
+
 **Rockets shock Warriors to advance in NBA Cup: 'We're going to continue to fight'**\
 `"I saw the opportunity to dive on the floor and I took it," says Jalen Green of his late-game heroics. "The results came out amazing."`\
 https://nytimes.com/athletic/5988999/2024/12/12/nba-cup-rockets-warriors-semifinals-okc/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5988485/2024/12/12/bill-belichick-north-carolina-co
 **Alisha Palmowski's path to F1 Academy and Red Bull started by karting with her grandparents**\
 `Palmowski has another shot to continue a family legacy in F1 Academy next season.`\
 https://nytimes.com/athletic/5989203/2024/12/12/alisha-palmowski-f1-academy-red-bull/
-
-**Mbappe a serious doubt for Intercontinental Cup final due to thigh injury**\
-`Kylian Mbappe is a serious doubt for the Intercontinental Cup final due to a left thigh injury sustained during Real Madrid&#8217;s Champions League victory over Atalanta on Tuesday.`\
-https://nytimes.com/athletic/5986384/2024/12/12/real-madrid-mbappe-thigh-injury/
-
-**Submit your questions for Until Saturday's podcast mailbag**\
-`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
-https://nytimes.com/athletic/5989424/2024/12/12/college-football-questions-mailbag-until-saturday-38/
 
