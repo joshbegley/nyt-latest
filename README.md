@@ -1,3 +1,11 @@
+**Labor Board Classifies ‘Love Is Blind’ Contestants as Employees**\
+`With its complaint against the Netflix hit, the National Labor Relations Board opened the door to unionization.`\
+https://nytimes.com/2024/12/11/arts/television/love-is-blind-nlrb-employees-union.html
+
+**F.B.I. Is Investigating Whether Crime Group May Be Targeting Athletes’ Homes**\
+`The homes of a handful of N.B.A. and N.F.L. players in the Midwest have been burglarized since September. The F.B.I. believes “South American Theft Groups” could be responsible, according to one memo.`\
+https://nytimes.com/2024/12/11/sports/athlete-home-burglaries-crime-ring.html
+
 **Paul Goldschmidt? Max Scherzer? Giants could use old approach to bolster their roster**\
 `The Giants and Brian Sabean had success signing very veteran players. Buster Posey could follow that blueprint.`\
 https://nytimes.com/athletic/5988427/2024/12/11/san-francisco-giants-veteran-free-agents/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5987603/2024/12/11/chiefs-super-bowl-odds-betting-c
 **New Friends After 50? Yes, Please!**\
 `The people in our lives are a dynamic constellation.`\
 https://nytimes.com/2024/12/11/opinion/new-friends-happiness-love.html
-
-**Why Trump Soured on F.B.I. Director Christopher Wray**\
-`By the time Donald J. Trump left the White House, he was eager to fire Mr. Wray, but he held back. His antipathy only heightened in the years after his presidency.`\
-https://nytimes.com/2024/12/11/us/politics/christopher-wray-trump.html
-
-**What Is Extradition? Can Fighting It Help the Midtown Shooting Suspect?**\
-`Under the Constitution, states are obliged to hand over other states’ fugitives if requested. But the process can be challenged in court. Here’s what to know.`\
-https://nytimes.com/2024/12/11/us/extradition-mangione-altoona.html
 
