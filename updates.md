@@ -1,3 +1,7 @@
+**U.S. Hopes for a Gaza Cease-fire and Hostage Deal ‘This Month’**\
+`In the Middle East for a last-ditch diplomatic effort before leaving office, Jake Sullivan, a top White House official, said the current talks were different than those in the past.`\
+https://nytimes.com/2024/12/12/world/middleeast/gaza-cease-fire-hopes-america-sullivan.html
+
 **Stanley Recalls More Than 2 Million Travel Mugs Over Burn Hazard**\
 `Stanley, which also makes trendy tumblers that are wildly popular on social media, urged consumers to contact them for replacement lids.`\
 https://nytimes.com/2024/12/12/business/stanley-recall-mugs.html

@@ -1,3 +1,7 @@
+**U.S. Hopes for a Gaza Cease-fire and Hostage Deal ‘This Month’**\
+`In the Middle East for a last-ditch diplomatic effort before leaving office, Jake Sullivan, a top White House official, said the current talks were different than those in the past.`\
+https://nytimes.com/2024/12/12/world/middleeast/gaza-cease-fire-hopes-america-sullivan.html
+
 **Stanley Recalls More Than 2 Million Travel Mugs Over Burn Hazard**\
 `Stanley, which also makes trendy tumblers that are wildly popular on social media, urged consumers to contact them for replacement lids.`\
 https://nytimes.com/2024/12/12/business/stanley-recall-mugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5990611/2024/12/12/tetairoa-mcmillan-arizona-nfl-dr
 **U.S. and Allies Race to Shape a New Syria Trying to Get on Its Feet**\
 `As a rebel alliance with a tenuous hold on power struggles to assert control of the fractured country, Israel, Turkey and the United States are trying to influence what Syria will become.`\
 https://nytimes.com/2024/12/12/world/middleeast/syria-us-israel-turkey.html
-
-**Nebraska lands Missouri transfer Williams Nwaneri, former 5-star recruit**\
-`Nwaneri, 6-foot-7 and 255 pounds, entered the transfer portal on Thursday after a redshirt season at Mizzou.`\
-https://nytimes.com/athletic/5990628/2024/12/12/nebraska-college-football-transfer-williams-nwaneri/
 
