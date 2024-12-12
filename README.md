@@ -1,3 +1,11 @@
+**It’s Mutated Poker vs. Fantasy Worlds at the Game Awards**\
+`Balatro faces off against Final Fantasy VII Rebirth, Metaphor: ReFantazio and three other titles for game of the year at an annual showcase for the industry.`\
+https://nytimes.com/2024/12/12/arts/game-awards-winners.html
+
+**Arizona WR Tetairoa McMillan declares for NFL Draft**\
+`A projected first-round draft pick, McMillan posted his decision on Instagram on Thursday nearly two weeks after the Wildcats finished 4-8`\
+https://nytimes.com/athletic/5990611/2024/12/12/tetairoa-mcmillan-arizona-nfl-draft/
+
 **U.S. and Allies Race to Shape a New Syria Trying to Get on Its Feet**\
 `As a rebel alliance with a tenuous hold on power struggles to assert control of the fractured country, Israel, Turkey and the United States are trying to influence what Syria will become.`\
 https://nytimes.com/2024/12/12/world/middleeast/syria-us-israel-turkey.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5990580/2024/12/12/zegras-ducks-knee-surgery/
 **‘No Good Deed’ Is Star-Studded California Gothic**\
 `Lisa Kudrow and Ray Romano star as a Los Angeles couple with secrets trying to sell their house. Things get complicated quickly.`\
 https://nytimes.com/2024/12/12/arts/television/no-good-deed-netflix.html
-
-**Friday Briefing: Israeli Forces to Stay in Syria for Now**\
-`Plus, British pubs are scrambling for Guinness.`\
-https://nytimes.com/2024/12/12/briefing/syria-trump-afghanistan.html
-
-**As Ten Commandments Tablet Goes Up for Auction, Experts Raise Questions**\
-`Bids may rise to a million or more, Sotheby’s estimates, though some experts say that fakes and forgeries abound.`\
-https://nytimes.com/2024/12/12/arts/ten-commandments-stone-tablet-sothebys-auction.html
 
