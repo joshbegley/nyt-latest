@@ -1,3 +1,7 @@
+**Inside the Red Sox trade for Garrett Crochet**\
+`The Red Sox still have payroll room and prospects to deal after adding Crochet and are still actively pursuing more additions.`\
+https://nytimes.com/athletic/5988495/2024/12/11/red-sox-garrett-crochet-inside-trade/
+
 **In Defiant Speech, South Korea’s President Defends Martial Law Decree**\
 `President Yoon Suk Yeol vowed to “fight to the end,” despite the opposition’s push to impeach him and his own party’s demand that he resign from office.`\
 https://nytimes.com/2024/12/11/world/asia/yoon-south-korea-martial-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/us/north-carolina-election-ballots-republicans.ht
 **MLB Winter Meetings notes: Why Garrett Crochet trade was necessary first step for Red Sox**\
 `Plus more on moves by the White Sox, Guardians, Blue Jays, Rangers and Marlins.`\
 https://nytimes.com/athletic/5988459/2024/12/11/mlb-winter-meetings-notes-garrett-crochet-trade-red-sox/
-
-**In making Kyle Tucker and Framber Valdez available, the Astros finally have clarity**\
-`Astros GM Dana Brown is known for evaluating talent. Now is his chance to utilize that skill to replenish Houston's farm system.`\
-https://nytimes.com/athletic/5988449/2024/12/11/astros-kyle-tucker-framber-valdez-trade-talks/
 
