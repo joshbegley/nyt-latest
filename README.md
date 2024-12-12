@@ -1,3 +1,7 @@
+**Israel says its troops will remain in the Syrian buffer zone for now.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/israel-syria-buffer-zone-assad
+
 **The Most Memorable Wines of 2024**\
 `The scarcity and fragility of rare old bottles makes them naturally memorable, but these 12 younger wines had their own unforgettable charms.`\
 https://nytimes.com/2024/12/12/dining/drinks/2024-best-wines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989139/2024/12/12/carson-beck-injury-cfp-nfl-draft
 **Why is Bill Belichick heading to North Carolina? It's all about control**\
 `NFL teams seemed hesitant to give Belichick the kind of omnipotent power he can get in college.`\
 https://nytimes.com/athletic/5988485/2024/12/12/bill-belichick-north-carolina-coach-control/
-
-**Alisha Palmowski's path to F1 Academy and Red Bull started by karting with her grandparents**\
-`Palmowski has another shot to continue a family legacy in F1 Academy next season.`\
-https://nytimes.com/athletic/5989203/2024/12/12/alisha-palmowski-f1-academy-red-bull/
 
