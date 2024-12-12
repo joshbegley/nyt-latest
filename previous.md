@@ -1,3 +1,7 @@
+**Broncos defense eager to respond vs. Colts following 'Monday Night Football' flop**\
+`After giving up 475 yards passing to Jameis Winston, Denver faces a "completely different type of challenge" in Colts QB Anthony Richardson.`\
+https://nytimes.com/athletic/5987563/2024/12/12/broncos-defense-colts-richardson/
+
 **‘Young Werther’ Review: Updating an 18th-Century Love Triangle**\
 `This charming film, starring Douglas Booth and Alison Pill, bridges the gap between Goethe’s novel and the adaptation’s modern New York City setting.`\
 https://nytimes.com/2024/12/12/movies/young-werther-review.html
@@ -5,6 +9,14 @@ https://nytimes.com/2024/12/12/movies/young-werther-review.html
 **‘The Man in the White Van’ Review: Sleazy Rider**\
 `In this derivative thriller, set in the early 1970s, young women are stalked by an anonymous killer.`\
 https://nytimes.com/2024/12/12/movies/the-man-in-the-white-van-review-sleazy-rider.html
+
+**Explaining the FPL Assistant Manager chip and how to use it**\
+`FPL has a new chip to play - and this is everything you need to know about how to deploy it`\
+https://nytimes.com/athletic/5987297/2024/12/12/fantasy-premier-league-assistant-manager-chip-explained/
+
+**The Jets' biggest strengths and weaknesses after 30 games and the stats behind them**\
+`Thirty games into the season, the Jets have given us a lot of highs and a few lows to investigate.`\
+https://nytimes.com/athletic/5981816/2024/12/12/winnipeg-jets-30-games-stats/
 
 **The Pulse: Bill Belichick is really doing this**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5988269/2024/12/12/chiefs-midseason-additions-karee
 **How does Bears' situation for Caleb Williams stack up to other teams with rookie QBs?**\
 `The Bears were supposed to have the best setup for a rookie quarterback. They might have had the worst. How do they compare with others?`\
 https://nytimes.com/athletic/5987497/2024/12/12/bears-caleb-williams-rookie-qbs/
-
-**Vikings' Sam Darnold dilemma: Has he played so well that they can't let him go?**\
-`Should the Vikings re-sign Darnold long term after his career year, or should they let him go and look to the future with J.J. McCarthy?`\
-https://nytimes.com/athletic/5987909/2024/12/12/sam-darnolds-vikings-free-agent-contract-future/
-
-**Why Bill Belichick was forced to abandon hope of landing NFL job, pursuit of wins record**\
-`Belichick realized he was going to be a long shot in the next NFL hiring cycle. "He burned a lot of bridges over his career."`\
-https://nytimes.com/athletic/5988570/2024/12/12/bill-belichick-nfl-unc-hiring/
-
-**F.B.I. Chief to Step Out of ‘the Fray,’ and Housing’s Terrible Year**\
-`Plus, a labor fight that could upend reality TV.`\
-https://nytimes.com/2024/12/12/podcasts/fbi-housing-market.html
 
