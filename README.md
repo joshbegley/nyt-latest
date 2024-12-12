@@ -1,3 +1,7 @@
+**What we're seeing with the Bucks: Damian Lillard's continuation, Khris Middleton's connections**\
+`With a little extra time before the Bucks take the floor for the NBA Cup in Las Vegas, let's look at one play, one player and one trend.`\
+https://nytimes.com/athletic/5977750/2024/12/12/damian-lillard-khris-middleton-bucks/
+
 **Brighton fined for breach of Premier League's youth development rules**\
 `Brighton &amp; Hove Albion have been fined £20,000 by the Premier League for breaking youth development rules.`\
 https://nytimes.com/athletic/5989346/2024/12/12/brighton-premier-league-fine-youth-academy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987137/2024/12/12/warriors-nba-cup-steph-curry-ste
 **Donald Trump Is Time Magazine’s Person of the Year**\
 `Mr. Trump also received the title in 2016, after his first presidential election victory. He has had a tempestuous relationship with the publication.`\
 https://nytimes.com/2024/12/12/us/politics/trump-time-person-year.html
-
-**China Pledges More Stimulus to Shore Up Flagging Economy**\
-`At a meeting to set the party’s economic policy agenda, China’s leadership said it would borrow more and cut interest rates in a bid to bolster growth.`\
-https://nytimes.com/2024/12/12/business/china-economy-2025-priorities.html
 
