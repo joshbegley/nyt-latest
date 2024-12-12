@@ -1,3 +1,7 @@
+**Submit your questions for Until Saturday's podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/5989424/2024/12/12/college-football-questions-mailbag-until-saturday-38/
+
 **Raiders DE Charles Snowden arrested on suspicion of DUI**\
 `It is a misdemeanor charge and is Snowden’s first DUI offense.`\
 https://nytimes.com/athletic/5989322/2024/12/12/raiders-charles-snowden-dui/
