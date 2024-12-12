@@ -1,3 +1,11 @@
+**Chinese-Flagged Ship Suspected of Cutting Cables Remains Halted Weeks Later**\
+`After fiber-optic cables under the Baltic Sea were cut last month, European officials hurried to stop the Yi Peng 3. It’s still at anchor there, with no update on three nations’ investigation.`\
+https://nytimes.com/2024/12/12/world/europe/baltic-fiber-optic-cables-ship.html
+
+**Amorim on Hojlund-Amad disagreement: 'It's perfect, we need to feel something'**\
+`Ruben Amorim saw the positives in Rasmus Hojlund and Amad having a heated discussion at the end of Manchester United’s 2-1 victory over Viktoria Plzen in the Europa League.`\
+https://nytimes.com/athletic/5990365/2024/12/12/ruben-amorim-man-united-europa/
+
 **Bills cancel Thursday's practice due to snow ahead of Lions matchup**\
 `More than two feet of lake-effect snow fell in Orchard Park as the Bills prepare to play the Lions on Sunday.`\
 https://nytimes.com/athletic/5990339/2024/12/12/bills-practice-canceled-snow-lions/

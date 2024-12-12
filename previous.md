@@ -1,3 +1,11 @@
+**Chinese-Flagged Ship Suspected of Cutting Cables Remains Halted Weeks Later**\
+`After fiber-optic cables under the Baltic Sea were cut last month, European officials hurried to stop the Yi Peng 3. It’s still at anchor there, with no update on three nations’ investigation.`\
+https://nytimes.com/2024/12/12/world/europe/baltic-fiber-optic-cables-ship.html
+
+**Amorim on Hojlund-Amad disagreement: 'It's perfect, we need to feel something'**\
+`Ruben Amorim saw the positives in Rasmus Hojlund and Amad having a heated discussion at the end of Manchester United’s 2-1 victory over Viktoria Plzen in the Europa League.`\
+https://nytimes.com/athletic/5990365/2024/12/12/ruben-amorim-man-united-europa/
+
 **Bills cancel Thursday's practice due to snow ahead of Lions matchup**\
 `More than two feet of lake-effect snow fell in Orchard Park as the Bills prepare to play the Lions on Sunday.`\
 https://nytimes.com/athletic/5990339/2024/12/12/bills-practice-canceled-snow-lions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5990303/2024/12/12/betting-for-by-dummies-chiefs-ar
 **Donald Trump’s Perfect 1980s Day**\
 `For a man who rose to fame in the gilded yuppie era of New York City, today’s ringing the bell to open the stock exchange, and being named Person of the Year by Time, must have a certain appeal.`\
 https://nytimes.com/2024/12/12/style/donald-trump-time-stock-exchange.html
-
-**NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
-`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
-https://nytimes.com/athletic/5966084/2024/12/12/nfl-draft-2025-underclassmen-tracker-early-entrants/
-
-**What’s Going On in This Graph? | Jan. 8, 2025**\
-`What do you notice about book bans across the United States?`\
-https://nytimes.com/2024/12/12/learning/whats-going-on-in-this-graph-jan-8-2025.html
 
