@@ -1,3 +1,7 @@
+**How Covid Can Change Your Gut**\
+`Diarrhea, constipation, pain, bloating: We asked experts why the virus causes these issues and what to do about them.`\
+https://nytimes.com/2024/12/12/well/eat/covid-symptoms-diarrhea-constipation-pain-bloating.html
+
 **A Symbol of India’s Global Soft Power Stumbles After U.S. Indictments**\
 `Countries in Asia, Africa and elsewhere have been distancing themselves from Gautam Adani, the Indian magnate, after accusations of bribery and conspiracy by American prosecutors.`\
 https://nytimes.com/2024/12/12/business/adani-group-indictment-modi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5988999/2024/12/12/nba-cup-rockets-warriors-semifin
 **The Bounce: Why the Hawks are the new Pacers**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5989182/2024/12/12/trae-young-hawks-knicks-steph-curry-warriors-rockets-nba-the-bounce/
-
-**How Penn State is navigating the logistical hurdles of a hosting a Playoff game at Beaver Stadium**\
-`“I tell people all the time, we are just very different,” athletic director Pat Kraft said.`\
-https://nytimes.com/athletic/5989407/2024/12/12/penn-state-hosting-game-beaver-stadium-playoff-smu/
 
