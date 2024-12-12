@@ -1,3 +1,7 @@
+**In making Kyle Tucker and Framber Valdez available, the Astros finally have clarity**\
+`Astros GM Dana Brown is known for evaluating talent. Now is his chance to utilize that skill to replenish Houston's farm system.`\
+https://nytimes.com/athletic/5988449/2024/12/11/astros-kyle-tucker-framber-valdez-trade-talks/
+
 **Promoter of ‘Stop the Steal’ is Choice for Management and Budget Staff Chief**\
 `President-elect Donald J. Trump selected Ed Martin, a Missouri Republican with a long track record as an anti-abortion activist, for a top position in the agency that administers the budget.`\
 https://nytimes.com/2024/12/11/us/politics/ed-martin-trump-office-management-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5988045/2024/12/11/justin-herbert-chargers-ankle-le
 **Phillies miss out on Garrett Crochet after offering top prospects at trade deadline**\
 `League sources portrayed the Phillies and White Sox as near trade partners in July. But this offseason, the Phillies' calculus changed.`\
 https://nytimes.com/athletic/5988070/2024/12/11/garrett-crochet-phillies-white-sox-trade-talks/
-
-**What we’re hearing about the Chicago Cubs: Win-now trades, pursuing Roki Sasaki and more**\
-`Why would the Cubs trade Isaac Paredes already, the latest on Sasaki and Cody Bellinger, and more.`\
-https://nytimes.com/athletic/5988170/2024/12/11/cubs-isaac-paredes-trade-roki-sasaki/
 
