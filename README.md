@@ -2,7 +2,7 @@
 `Astros GM Dana Brown is known for evaluating talent. Now is his chance to utilize that skill to replenish Houston's farm system.`\
 https://nytimes.com/athletic/5988449/2024/12/11/astros-kyle-tucker-framber-valdez-trade-talks/
 
-**Promoter of ‘Stop the Steal’ is Choice for Management and Budget Staff Chief**\
+**Promoter of ‘Stop the Steal’ Is Choice for Management and Budget Staff Chief**\
 `President-elect Donald J. Trump selected Ed Martin, a Missouri Republican with a long track record as an anti-abortion activist, for a top position in the agency that administers the budget.`\
 https://nytimes.com/2024/12/11/us/politics/ed-martin-trump-office-management-budget.html
 
