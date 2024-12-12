@@ -1,3 +1,11 @@
+**‘Young Werther’ Review: Updating an 18th-Century Love Triangle**\
+`This charming film, starring Douglas Booth and Alison Pill, bridges the gap between Goethe’s novel and the adaptation’s modern New York City setting.`\
+https://nytimes.com/2024/12/12/movies/young-werther-review.html
+
+**‘The Man in the White Van’ Review: Sleazy Rider**\
+`In this derivative thriller, set in the early 1970s, young women are stalked by an anonymous killer.`\
+https://nytimes.com/2024/12/12/movies/the-man-in-the-white-van-review-sleazy-rider.html
+
 **The Pulse: Bill Belichick is really doing this**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5987690/2024/12/12/bill-belichick-hired-unc-nba-cup-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5988570/2024/12/12/bill-belichick-nfl-unc-hiring/
 **F.B.I. Chief to Step Out of ‘the Fray,’ and Housing’s Terrible Year**\
 `Plus, a labor fight that could upend reality TV.`\
 https://nytimes.com/2024/12/12/podcasts/fbi-housing-market.html
-
-**Red Wings' young core thriving despite disappointing season**\
-`The play of Detroit's youngest players has been one of the few bright spots of this Red Wings season.`\
-https://nytimes.com/athletic/5987605/2024/12/12/red-wings-raymond-seider-edvinsson-kasper/
-
-**Patrick Mahomes and the Chiefs can’t keep getting away with this. Or can they?**\
-`The Chiefs' 15-game win streak in one-score games is a clear statistical outlier, but that doesn't mean it's driven by good fortune.`\
-https://nytimes.com/athletic/5984768/2024/12/12/patrick-mahomes-clutch-chiefs-close-games/
 
