@@ -1,4 +1,12 @@
 **N.C. Elections Board Rejects G.O.P. Effort to Toss 60,000 Ballots**\
+`The ruling comes in a dispute over a State Supreme Court race that the Democratic incumbent won by 734 votes.`\
+https://nytimes.com/2024/12/11/us/north-carolina-election-ballots-republicans.html
+
+**MLB Winter Meetings notes: Why Garrett Crochet trade was necessary first step for Red Sox**\
+`Plus more on moves by the White Sox, Guardians, Blue Jays, Rangers and Marlins.`\
+https://nytimes.com/athletic/5988459/2024/12/11/mlb-winter-meetings-notes-garrett-crochet-trade-red-sox/
+
+**N.C. Elections Board Rejects G.O.P. Effort to Toss 60,000 Ballots**\
 `The ruling comes in a dispute over a state Supreme Court race that the Democratic incumbent won by 734 votes`\
 https://nytimes.com/2024/12/11/us/north-carolina-election-ballots-republicans.html
 
