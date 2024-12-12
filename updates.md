@@ -1,3 +1,7 @@
+**Corrections: Dec. 12, 2024**\
+`Corrections that appeared in print on Thursday, Dec. 12, 2024.`\
+https://nytimes.com/2024/12/11/pageoneplus/corrections-dec-12-2024.html
+
 **Trump Considers Kennedy’s Daughter-in-Law for C.I.A. Deputy Director**\
 `Amaryllis Fox Kennedy, a former C.I.A. officer who is married to the son of Robert F. Kennedy Jr., raised alarms for publishing a book about her work at the agency without going through a review process.`\
 https://nytimes.com/2024/12/11/us/politics/amaryllis-fox-kennedy-cia.html
