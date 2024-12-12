@@ -1,3 +1,7 @@
+**Newcastle's Wilson set for lengthy absence after latest injury setback**\
+`Newcastle United striker Callum Wilson is set for a lengthy period on the sidelines after suffering another injury setback.`\
+https://nytimes.com/athletic/5989088/2024/12/12/callum-wilson-injury-newcastle-hamstring/
+
 **Broncos defense eager to respond vs. Colts following 'Monday Night Football' flop**\
 `After giving up 475 yards passing to Jameis Winston, Denver faces a "completely different type of challenge" in Colts QB Anthony Richardson.`\
 https://nytimes.com/athletic/5987563/2024/12/12/broncos-defense-colts-richardson/
