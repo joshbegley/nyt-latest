@@ -1,3 +1,7 @@
+**Scoop City: Josh Allen's evolution, Belichick's chilling reality**\
+`A quick look at the unparalleled growth of Josh Allen, Bill Belichick's chilling reality and the Rams-49ers game tonight.`\
+https://nytimes.com/athletic/5989837/2024/12/12/evolution-of-josh-allen-nfl-mvp-scoop-city/
+
 **Blinken, meeting with Jordanians and Turks, appeals for unity behind a peaceful, stable Syria.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/blinken-meeting-with-jordanians-and-turks-appeals-for-unity-behind-a-peaceful-stable-syria
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/us/victor-brombert-dead.html
 **How Covid Can Change Your Gut**\
 `Diarrhea, constipation, pain, bloating: We asked experts why the virus causes these issues and what to do about them.`\
 https://nytimes.com/2024/12/12/well/eat/covid-symptoms-diarrhea-constipation-pain-bloating.html
-
-**A Symbol of India’s Global Soft Power Stumbles After U.S. Indictments**\
-`Countries in Asia, Africa and elsewhere have been distancing themselves from Gautam Adani, the Indian magnate, after accusations of bribery and conspiracy by American prosecutors.`\
-https://nytimes.com/2024/12/12/business/adani-group-indictment-modi.html
 
