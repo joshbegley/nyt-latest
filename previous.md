@@ -1,3 +1,11 @@
+**Belichick introduced at UNC, says he 'always wanted to coach' in CFB**\
+`"Had some good years in the NFL so that was OK. But this is really a dream come true," Bill Belichick said at a news conference.`\
+https://nytimes.com/athletic/5990274/2024/12/12/bill-belichick-unc-football-introductory-news-conference/
+
+**Man Freed From Syrian Prison Appears to Be a Missing American**\
+`The man, who told reporters his name was Travis, said he was imprisoned in Syria for several months. The State Department said it was aware of an American found outside Damascus and was “seeking to provide support.”`\
+https://nytimes.com/video/world/middleeast/100000009874107/syria-missing-american-travis.html
+
 **Hallmark’s First ‘Mr. Christmas’ Goes Home for the Holidays**\
 `And he’s single.`\
 https://nytimes.com/2024/12/12/style/finding-mr-christmas-winner-hallmark.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/climate/alaska-common-murre-birds-ocean-heat.html
 **A ‘Second Tree of Life’ Could Wreak Havoc, Scientists Warn**\
 `Research on so-called mirror cells, which defy fundamental properties of living organisms, should be prohibited as too dangerous, biologists said.`\
 https://nytimes.com/2024/12/12/science/a-second-tree-of-life-could-wreak-havoc-scientists-warn.html
-
-**Dommaraju Gukesh, 18, Becomes Youngest World Chess Champion**\
-`It had been an unexpectedly close contest in Singapore with Ding Liren. When he won, the normally stoic Gukesh clasped his hands at the board and burst into tears.`\
-https://nytimes.com/2024/12/12/sports/gukesh-world-chess-championship-2024.html
-
-**Broncos LT Garett Bolles agrees to 4-year extension**\
-`Bolles, a first-round pick of the Broncos in 2017, has been the team’s starter at left tackle since his rookie season.`\
-https://nytimes.com/athletic/5990184/2024/12/12/garett-bolles-broncos-extension/
 

@@ -1,3 +1,11 @@
+**Belichick introduced at UNC, says he 'always wanted to coach' in CFB**\
+`"Had some good years in the NFL so that was OK. But this is really a dream come true," Bill Belichick said at a news conference.`\
+https://nytimes.com/athletic/5990274/2024/12/12/bill-belichick-unc-football-introductory-news-conference/
+
+**Man Freed From Syrian Prison Appears to Be a Missing American**\
+`The man, who told reporters his name was Travis, said he was imprisoned in Syria for several months. The State Department said it was aware of an American found outside Damascus and was “seeking to provide support.”`\
+https://nytimes.com/video/world/middleeast/100000009874107/syria-missing-american-travis.html
+
 **Hallmark’s First ‘Mr. Christmas’ Goes Home for the Holidays**\
 `And he’s single.`\
 https://nytimes.com/2024/12/12/style/finding-mr-christmas-winner-hallmark.html
