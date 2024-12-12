@@ -1,3 +1,15 @@
+**Postecoglou labels Werner performance 'not acceptable' in draw with Rangers**\
+`Ange Postecoglou has castigated Timo Werner’s first-half performance against Rangers as “not acceptable” after taking him off at half-time.`\
+https://nytimes.com/athletic/5990582/2024/12/12/ange-postecoglou-timo-werner/
+
+**University of Michigan May Fire D.E.I. Official Over Antisemitism Claim**\
+`The official, an administrator of multicultural programs, was accused of making antisemitic remarks in a private conversation. She has denied the allegations.`\
+https://nytimes.com/2024/12/12/us/university-of-michigan-dei-administrator-antisemitism.html
+
+**Air Force Academy Sued Over Race-Based Admissions Policy**\
+`The lawsuit was the latest in a series by a prominent anti-affirmative action group that is seeking to overturn the use of racial preferences in the nation’s military academies.`\
+https://nytimes.com/2024/12/12/us/air-force-academy-race-based-admissions-lawsuit.html
+
 **U.S. Hopes for a Gaza Cease-fire and Hostage Deal ‘This Month’**\
 `In the Middle East for a last-ditch diplomatic effort before leaving office, Jake Sullivan, a top White House official, said the current talks were different than those in the past.`\
 https://nytimes.com/2024/12/12/world/middleeast/gaza-cease-fire-hopes-america-sullivan.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5990145/2024/12/12/bill-belichick-unc-coaching-succ
 **Juan Soto says he wants to help Mets become 'a dynasty'**\
 `“To try to grow a dynasty is one of the most important things,” Juan Soto said at his introductory news conference with the Mets.`\
 https://nytimes.com/athletic/5990417/2024/12/12/juan-soto-mets-introduced-conference/
-
-**It’s Mutated Poker vs. Fantasy Worlds at the Game Awards**\
-`Balatro faces off against Final Fantasy VII Rebirth, Metaphor: ReFantazio and three other titles for game of the year at an annual showcase for the industry.`\
-https://nytimes.com/2024/12/12/arts/game-awards-winners.html
-
-**Arizona WR Tetairoa McMillan declares for NFL Draft**\
-`A projected first-round draft pick, McMillan posted his decision on Instagram on Thursday nearly two weeks after the Wildcats finished 4-8`\
-https://nytimes.com/athletic/5990611/2024/12/12/tetairoa-mcmillan-arizona-nfl-draft/
-
-**U.S. and Allies Race to Shape a New Syria Trying to Get on Its Feet**\
-`As a rebel alliance with a tenuous hold on power struggles to assert control of the fractured country, Israel, Turkey and the United States are trying to influence what Syria will become.`\
-https://nytimes.com/2024/12/12/world/middleeast/syria-us-israel-turkey.html
 
