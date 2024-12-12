@@ -1,3 +1,11 @@
+**Brian Thompson, Not Luigi Mangione, Is the Real Working-Class Hero**\
+`He’s a model for how a talented, determined man from humble roots can rise to the top of corporate life.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/brian-thompson-luigi-mangione
+
+**Chanel Fills the Hottest Job in Fashion**\
+`Matthieu Blazy is getting the coveted post. Here’s how it went down.`\
+https://nytimes.com/2024/12/12/style/chanel-new-designer-matthieu-blazy.html
+
 **Defying Veto Threat, House Approves Measure Adding 66 New U.S. Judges**\
 `President Biden and House Democrats objected to the bipartisan measure that would immediately give President-elect Donald J. Trump about two dozen new judicial seats to fill.`\
 https://nytimes.com/2024/12/12/us/politics/house-judges-veto.html
