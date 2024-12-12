@@ -1,3 +1,7 @@
+**Rights Groups See a Chance to Seek Justice for Syrian Regime’s Victims**\
+`It seems unlikely that deposed President Bashar al-Assad, who fled to Russia, will be forced to stand trial. That is not deterring activists who have worked for years to document his government’s crimes.`\
+https://nytimes.com/2024/12/12/world/middleeast/syria-assad-regime-crimes.html
+
 **Stephen Colbert Is Surprised by Luigi Mangione’s ‘Minifesto’**\
 `“He could’ve just made it a Yelp review: ‘American health care sucks. One star,’” Colbert said of the content of a notebook found with the crime suspect.`\
 https://nytimes.com/2024/12/12/arts/television/stephen-colbert-luigi-mangione-manifesto.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/nyregion/nyc-congestion-pricing-lawsuits.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/12/crosswords/spelling-bee-forum.html
-
-**Arsenal investigating staff member over claims of antisemitism**\
-`Arsenal have begun an investigation following allegations that a member of their staff made antisemitic comments on social media.`\
-https://nytimes.com/athletic/5988105/2024/12/12/arsenal-investigate-staff-member/
 
