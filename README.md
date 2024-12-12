@@ -1,3 +1,7 @@
+**Months Before C.E.O.’s Killing, the Suspect Went Silent. Where Was He?**\
+`New details are emerging about Luigi Mangione’s growing impatience with “a capitalist society” and his search for refuge in the mountains of Japan.`\
+https://nytimes.com/2024/12/12/us/luigi-mangione-gunman-united-healthcare-shooting.html
+
 **What’s Going On in This Picture? | Jan. 6, 2025**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/12/12/learning/whats-going-on-in-this-picture-jan-6-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/learning/whats-going-on-in-this-graph-jan-8-2025.
 **How to Dangerously Misread a Very Important Verdict**\
 `What happened on that subway train — and the acquittal that followed — deserves a more measured response.`\
 https://nytimes.com/2024/12/12/opinion/daniel-penny-jordan-neely-subway-killing.html
-
-**Incoming West Virginia Lawmaker Is Accused of Making Terroristic Threats**\
-`Joseph de Soto, 61, was elected last month to represent the 91st District, but he was arrested before he was sworn in.`\
-https://nytimes.com/2024/12/12/us/politics/de-soto-west-virginia-delegate-arrested.html
 
