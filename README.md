@@ -1,5 +1,5 @@
 **Postecoglou labels Werner performance 'not acceptable' in draw with Rangers**\
-`Ange Postecoglou has castigated Timo Werner’s first-half performance against Rangers as “not acceptable” after taking him off at half-time.`\
+`Ange Postecoglou has castigated Timo Werner’s first-half performance for Tottenham Hotspur against Rangers as “not acceptable” after taking him off at half-time.`\
 https://nytimes.com/athletic/5990582/2024/12/12/ange-postecoglou-timo-werner/
 
 **University of Michigan May Fire D.E.I. Official Over Antisemitism Claim**\
