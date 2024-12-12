@@ -1,3 +1,11 @@
+**Sotheby’s Lays Off More Than 100 Staffers as Auction Sales Slump**\
+`As the high-flying art market has contracted, the company is looking elsewhere, expanding its luxury brand and real estate in New York, Paris and Hong Kong.`\
+https://nytimes.com/2024/12/12/arts/design/sothebys-auction-layoffs-drahi.html
+
+**Trump backs dockworkers on the East and Gulf coasts in a dispute over automation.**\
+`By Peter Eavis`\
+https://nytimes.com/live/2024/12/12/us/trump-administration-news/trump-backs-dockworkers-on-the-east-and-gulf-coasts-in-a-dispute-over-automation
+
 **‘Carry On’ Review: Travel Nightmares Amplified**\
 `In this tense thriller, Taron Egerton plays a T.S.A. agent who goes up against an implacable terrorist (Jason Bateman). The man has a funny idea of what he wants to bring on a plane.`\
 https://nytimes.com/2024/12/12/movies/carry-on-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/business/youtube-tv-price-increase.html
 **Twin Brothers Appear in Court on Sexual Battery Charges**\
 `Oren Alexander, once one of the biggest names in luxury real estate, and his twin brother, Alon Alexander, were held without bond on Thursday.`\
 https://nytimes.com/2024/12/12/realestate/alexander-brothers-court-sexual-battery.html
-
-**Dolores Madrigal, Plaintiff in Landmark Sterilization Case, Dies at 90**\
-`She was among hundreds of women who said they were coerced into sterilization at a California hospital in the 1970s. The lawsuit led to state and national reforms.`\
-https://nytimes.com/2024/12/12/us/dolores-madrigal-dead.html
-
-**Biden Commuted the Sentences of 1,500 Americans, a One-Day Record**\
-`Also, Israel said it would stay in Syria for now. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/12/12/briefing/biden-pardons-israel-syria-buffer-zone.html
 
