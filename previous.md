@@ -1,3 +1,7 @@
+**Torres, the 'shark' who has made peace with his role as a supporting act at Barcelona**\
+`The former Manchester City forward rarely starts but his impact from the bench against Dortmund showed his ability to help his team`\
+https://nytimes.com/athletic/5988928/2024/12/12/ferran-torres-barcelona-dortmund/
+
 **Edwards: The Knicks aren't close to NBA championship contenders**\
 `New York is in search of consistency, but how long is the grace period?`\
 https://nytimes.com/athletic/5988793/2024/12/12/knicks-not-close-to-championship-contenders/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/us/politics/kari-lake-voice-of-america.html
 **YoungBoy Never Broke Again Is Sentenced to Nearly 2 Years in Federal Gun Case**\
 `The rapper, whose real name is Kentrell Gaulden, admitted to possessing guns as a felon in Louisiana. He faced a maximum sentence of 25 years.`\
 https://nytimes.com/2024/12/12/us/nba-youngboy-sentenced-gun-charges.html
-
-**Are Liverpool's fringe players ready to step up?**\
-`A closer look at the players Arne Slot may need to lean on in the busy coming weeks`\
-https://nytimes.com/athletic/5984772/2024/12/12/liverpool-squad-fixtures-fringe/
 

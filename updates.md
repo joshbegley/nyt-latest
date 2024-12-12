@@ -1,3 +1,7 @@
+**Torres, the 'shark' who has made peace with his role as a supporting act at Barcelona**\
+`The former Manchester City forward rarely starts but his impact from the bench against Dortmund showed his ability to help his team`\
+https://nytimes.com/athletic/5988928/2024/12/12/ferran-torres-barcelona-dortmund/
+
 **Edwards: The Knicks aren't close to NBA championship contenders**\
 `New York is in search of consistency, but how long is the grace period?`\
 https://nytimes.com/athletic/5988793/2024/12/12/knicks-not-close-to-championship-contenders/
