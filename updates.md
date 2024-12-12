@@ -1,3 +1,24 @@
+**Meta Donates $1 Million to Trump’s Inaugural Fund**\
+`The move follows a visit that Mark Zuckerberg, Meta’s chief executive, made last month to Mar-a-Lago to meet with President-elect Donald Trump.`\
+https://nytimes.com/2024/12/12/technology/meta-trump-inaugural-fund-donation.html
+
+**Ready for the Next Extreme-Weather Catastrophe? Here’s How to Pack a ‘Go Bag.’**\
+`If the trend continues, extreme weather will occur more frequently. Here’s how experts suggest you prepare.`\
+https://nytimes.com/2024/12/12/business/go-bag-extreme-weather.html
+
+**The Magic of Less ‘Holiday Magic’**\
+`Some people respond to the stress of the season by adopting a Marie Kondo approach: relinquishing the rituals that no longer bring them joy.`\
+https://nytimes.com/2024/12/12/style/holiday-stress-less.html
+
+**Quote of the Day: Israel, Seeing an Opportunity, Demolishes Syria’s Military Assets**\
+`Quotation of the Day for Thursday, December 12, 2024`\
+https://nytimes.com/2024/12/11/pageoneplus/quote-of-the-day-israel-seeing-an-opportunity-demolishes-syrias-military-assets.html
+
+**Mika Zibanejad scores big goal as Rangers survive poor third period: 3 takeaways vs. Sabres**\
+`The struggling Zibanejad scored his 300th career goal in a 3-2 win over the Sabres, but it wasn't an ideal finish for New York.
+`\
+https://nytimes.com/athletic/5988714/2024/12/11/rangers-sabres-mika-zibanejad-takeaways/
+
 **Mika Zibanejad scores big goal as Rangers survive poor third period: 3 takeaways vs. Sabres**\
 `The struggling Zibanejad scored his 300th career goal in a 3-2 win over the Sabres, but it wasn't an ideal finish for New York.
 `\
