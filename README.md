@@ -1,3 +1,7 @@
+**Chelsea's wingers keep finding themselves in one-v-one situations - and it's not by chance**\
+`We explain the system Enzo Maresca has built that ensures his wide players get the ball in high-value positions`\
+https://nytimes.com/athletic/5986276/2024/12/12/chelsea-wingers-one-v-one-tactic-maresca/
+
 **It's too early to say Juventus are back - this is still a team in transition**\
 `Beating Manchester City 2-0 was encouraging but it remains to be seen if Motta's side can build on a statement Champions League win`\
 https://nytimes.com/athletic/5988172/2024/12/12/juventus-manchester-city-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/technology/meta-trump-inaugural-fund-donation.htm
 **Ready for the Next Extreme-Weather Catastrophe? Here’s How to Pack a ‘Go Bag.’**\
 `If the trend continues, extreme weather will occur more frequently. Here’s how experts suggest you prepare.`\
 https://nytimes.com/2024/12/12/business/go-bag-extreme-weather.html
-
-**The Magic of Less ‘Holiday Magic’**\
-`Some people respond to the stress of the season by adopting a Marie Kondo approach: relinquishing the rituals that no longer bring them joy.`\
-https://nytimes.com/2024/12/12/style/holiday-stress-less.html
 
