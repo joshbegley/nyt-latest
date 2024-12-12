@@ -1,3 +1,7 @@
+**Paul Goldschmidt? Max Scherzer? Giants could use old approach to bolster their roster**\
+`The Giants and Brian Sabean had success signing very veteran players. Buster Posey could follow that blueprint.`\
+https://nytimes.com/athletic/5988427/2024/12/11/san-francisco-giants-veteran-free-agents/
+
 **Christopher Wray to Resign as F.B.I. Director**\
 `The director said he was intending to step down in January at the end of the Biden administration.`\
 https://nytimes.com/video/us/politics/100000009873608/christopher-wray-to-resign-as-fbi-director.html
