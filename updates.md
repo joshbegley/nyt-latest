@@ -1,3 +1,11 @@
+**China Pledges More Stimulus to Shore Up Flagging Economy**\
+`At a meeting to set the party’s economic policy agenda, China’s leadership said it would borrow more and cut interest rates in a bid to bolster growth.`\
+https://nytimes.com/2024/12/12/business/china-economy-2025-priorities.html
+
+**She Invested in Her Future and Her Family. Which Property Would Work for Both?**\
+`Seeking an income-generating home and a place for her brother to potentially live, a New Yorker scanned the Bronx, Westchester and southern Connecticut for the perfect spot.`\
+https://nytimes.com/interactive/2024/12/12/realestate/bronx-dobbs-ferry-connecticut-home.html
+
 **Man Found in Syria Appears to Be Missing American**\
 `The man told reporters that his name was Travis Timmerman and that he had entered Syria on a religious pilgrimage. He said that he had been detained for months.`\
 https://nytimes.com/2024/12/12/world/middleeast/syria-timmerman-american-man-found.html
