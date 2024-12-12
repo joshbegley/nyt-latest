@@ -1,3 +1,7 @@
+**Under Trump, Voice of America Journalists Fear Politicization**\
+`Donald J. Trump’s choice of Kari Lake to lead Voice of America goes against recent efforts to shield the federally funded news organization from politicization.`\
+https://nytimes.com/2024/12/12/us/politics/voice-of-america-journalists-trump.html
+
 **YouTube TV Raises Monthly Charge 14 Percent, to $82.99**\
 `The increase is the latest for the streaming service, which debuted in 2017 at $35 a month. The company blamed “rising content costs.”`\
 https://nytimes.com/2024/12/12/business/youtube-tv-price-increase.html

@@ -1,3 +1,7 @@
+**Under Trump, Voice of America Journalists Fear Politicization**\
+`Donald J. Trump’s choice of Kari Lake to lead Voice of America goes against recent efforts to shield the federally funded news organization from politicization.`\
+https://nytimes.com/2024/12/12/us/politics/voice-of-america-journalists-trump.html
+
 **YouTube TV Raises Monthly Charge 14 Percent, to $82.99**\
 `The increase is the latest for the streaming service, which debuted in 2017 at $35 a month. The company blamed “rising content costs.”`\
 https://nytimes.com/2024/12/12/business/youtube-tv-price-increase.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/world/middleeast/gaza-cease-fire-hopes-america-su
 **Stanley Recalls More Than 2 Million Travel Mugs Over Burn Hazard**\
 `Stanley, which also makes trendy tumblers that are wildly popular on social media, urged consumers to contact them for replacement lids.`\
 https://nytimes.com/2024/12/12/business/stanley-recall-mugs.html
-
-**Bill Belichick's Day 1 to-do list: What a new college coach must consider**\
-`What should Belichick prioritize as he takes over a college program for the first time?`\
-https://nytimes.com/athletic/5989537/2024/12/12/bill-belichick-unc-football-commits-transfer-portal/
 
