@@ -1,3 +1,7 @@
+**Trump Considers Kennedy’s Daughter-in-Law for C.I.A. Deputy Director**\
+`Amaryllis Fox Kennedy, a former C.I.A. officer who is married to the son of Robert F. Kennedy Jr., raised alarms for publishing a book about her work at the agency without going through a review process.`\
+https://nytimes.com/2024/12/11/us/politics/amaryllis-fox-kennedy-cia.html
+
 **Drones, Dogs, Drug Labs: Canada’s Plan to Avoid Trump’s Tariffs Takes Shape**\
 `Two weeks after a Mar-a-Lago dinner with Donald J. Trump, details of Prime Minister Justin Trudeau’s plan to stave off a showdown with the United States are emerging.`\
 https://nytimes.com/2024/12/11/world/canada/canada-trump-tariffs-border.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5988427/2024/12/11/san-francisco-giants-veteran-fre
 **Christopher Wray to Resign as F.B.I. Director**\
 `The director said he was intending to step down in January at the end of the Biden administration.`\
 https://nytimes.com/video/us/politics/100000009873608/christopher-wray-to-resign-as-fbi-director.html
-
-**N.C. Elections Board Rejects G.O.P. Effort to Toss 60,000 Ballots**\
-`The ruling comes in a dispute over a State Supreme Court race that the Democratic incumbent won by 734 votes.`\
-https://nytimes.com/2024/12/11/us/north-carolina-election-ballots-republicans.html
 
