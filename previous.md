@@ -1,3 +1,7 @@
+**Mayor Adams Meets Trump’s ‘Border Czar’ as Immigration Crackdown Looms**\
+`Thomas D. Homan, President-elect Donald J. Trump’s designated border czar, has cited Eric Adams’s willingness to work together as a model for Democratic mayors.`\
+https://nytimes.com/2024/12/12/nyregion/adams-homan-meeting-migrants.html
+
 **Why Do Some Rebel Governments Last When Others Fall?**\
 `One factor matters most, and it could be a problem in Syria.`\
 https://nytimes.com/2024/12/12/world/middleeast/why-do-some-rebel-governments-last-when-others-fall.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/us/glock-minnesota-new-jersey-lawsuit-machine-gun
 **Brian Thompson, Not Luigi Mangione, Is the Real Working-Class Hero**\
 `He’s a model for how a talented, determined man from humble roots can rise to the top of corporate life.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/brian-thompson-luigi-mangione
-
-**Chanel Fills the Hottest Job in Fashion**\
-`Matthieu Blazy is getting the coveted post. Here’s how it went down.`\
-https://nytimes.com/2024/12/12/style/chanel-new-designer-matthieu-blazy.html
 
