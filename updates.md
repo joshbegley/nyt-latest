@@ -1,3 +1,7 @@
+**Mbappe a serious doubt for Intercontinental Cup final due to thigh injury**\
+`Kylian Mbappe is a serious doubt for the Intercontinental Cup final due to a left thigh injury sustained during Real Madrid&#8217;s Champions League victory over Atalanta on Tuesday.`\
+https://nytimes.com/athletic/5986384/2024/12/12/real-madrid-mbappe-thigh-injury/
+
 **Submit your questions for Until Saturday's podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/5989424/2024/12/12/college-football-questions-mailbag-until-saturday-38/
