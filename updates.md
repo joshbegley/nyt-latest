@@ -1,3 +1,7 @@
+**Ex-F.B.I. Informant Agrees to Plead Guilty to Lying About Bidens**\
+`Alexander Smirnov’s deal with the special counsel overseeing the investigation into Hunter Biden could lead to 48 to 72 months in prison, though a federal judge would need to review the deal.`\
+https://nytimes.com/2024/12/12/us/politics/smirnov-bidens-russia.html
+
 **Israel says its troops will remain in the Syrian buffer zone for now.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/israel-syria-buffer-zone-assad

@@ -1,3 +1,7 @@
+**Ex-F.B.I. Informant Agrees to Plead Guilty to Lying About Bidens**\
+`Alexander Smirnov’s deal with the special counsel overseeing the investigation into Hunter Biden could lead to 48 to 72 months in prison, though a federal judge would need to review the deal.`\
+https://nytimes.com/2024/12/12/us/politics/smirnov-bidens-russia.html
+
 **Israel says its troops will remain in the Syrian buffer zone for now.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/israel-syria-buffer-zone-assad
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/business/buzzfeed-hot-ones-sale.html
 **An expert on Carson Beck timeline: 'I wouldn't think he's playing anytime soon'**\
 `What is Beck's injury, and what is his timeline? And what will that mean for the NFL draft and Georgia's Playoff hopes?`\
 https://nytimes.com/athletic/5989139/2024/12/12/carson-beck-injury-cfp-nfl-draft-georgia/
-
-**Why is Bill Belichick heading to North Carolina? It's all about control**\
-`NFL teams seemed hesitant to give Belichick the kind of omnipotent power he can get in college.`\
-https://nytimes.com/athletic/5988485/2024/12/12/bill-belichick-north-carolina-coach-control/
 
