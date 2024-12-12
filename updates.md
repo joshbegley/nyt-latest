@@ -1,3 +1,7 @@
+**Louisville and Justice Dept. Reach Deal on Federal Oversight of Police**\
+`The agreement comes after the Justice Department documented excessive use of force, illegal searches and car stops and widespread discrimination against Black people and those with mental illnesses.`\
+https://nytimes.com/2024/12/12/us/politics/louisville-breonna-taylor-justice-police.html
+
 **What Do You Expect From a Second Trump Presidency?**\
 `We want to hear how you imagine the next four years will unfold for you and your loved ones.`\
 https://nytimes.com/2024/12/12/us/inauguration-trump-callout.html
