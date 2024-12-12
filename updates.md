@@ -1,3 +1,7 @@
+**Serious Hang Time**\
+`Daniel Bodily’s puzzle will have you looking in all directions.`\
+https://nytimes.com/2024/12/11/crosswords/daily-puzzle-2024-12-12.html
+
 **Corrections: Dec. 12, 2024**\
 `Corrections that appeared in print on Thursday, Dec. 12, 2024.`\
 https://nytimes.com/2024/12/11/pageoneplus/corrections-dec-12-2024.html

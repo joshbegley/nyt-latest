@@ -1,3 +1,7 @@
+**Serious Hang Time**\
+`Daniel Bodily’s puzzle will have you looking in all directions.`\
+https://nytimes.com/2024/12/11/crosswords/daily-puzzle-2024-12-12.html
+
 **Corrections: Dec. 12, 2024**\
 `Corrections that appeared in print on Thursday, Dec. 12, 2024.`\
 https://nytimes.com/2024/12/11/pageoneplus/corrections-dec-12-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/arts/television/love-is-blind-nlrb-employees-unio
 **F.B.I. Is Investigating Whether Crime Group May Be Targeting Athletes’ Homes**\
 `The homes of a handful of N.B.A. and N.F.L. players in the Midwest have been burglarized since September. The F.B.I. believes “South American Theft Groups” could be responsible, according to one memo.`\
 https://nytimes.com/2024/12/11/sports/athlete-home-burglaries-crime-ring.html
-
-**Paul Goldschmidt? Max Scherzer? Giants could use old approach to bolster their roster**\
-`The Giants and Brian Sabean had success signing very veteran players. Buster Posey could follow that blueprint.`\
-https://nytimes.com/athletic/5988427/2024/12/11/san-francisco-giants-veteran-free-agents/
 
