@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/here-are-the-latest-developments
+
+**Live Updates: Blinken Arrives in Jordan for Talks on Syria**\
+`Secretary of State Antony J. Blinken was in Aqaba, Jordan, and planned to continue on to Turkey, as the Biden administration tries to manage the aftermath of Bashar al-Assad’s fall to Islamist rebels.`\
+https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels
+
 **How Chase Brown’s expanded role is quietly elevating Bengals offense**\
 `The second-year running back has been among the NFL's most productive players since taking over the job full-time.`\
 https://nytimes.com/athletic/5988653/2024/12/12/chase-browns-bengals-offense/
