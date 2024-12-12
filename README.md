@@ -1,3 +1,7 @@
+**Paul Goldschmidt? Max Scherzer? Giants could use old approach to bolster their roster**\
+`The Giants and Brian Sabean had success signing very veteran players. Buster Posey could follow that blueprint.`\
+https://nytimes.com/athletic/5988427/2024/12/11/san-francisco-giants-veteran-free-agents/
+
 **Christopher Wray to Resign as F.B.I. Director**\
 `The director said he was intending to step down in January at the end of the Biden administration.`\
 https://nytimes.com/video/us/politics/100000009873608/christopher-wray-to-resign-as-fbi-director.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/us/politics/christopher-wray-trump.html
 **What Is Extradition? Can Fighting It Help the Midtown Shooting Suspect?**\
 `Under the Constitution, states are obliged to hand over other states’ fugitives if requested. But the process can be challenged in court. Here’s what to know.`\
 https://nytimes.com/2024/12/11/us/extradition-mangione-altoona.html
-
-**Guardiola's headache, USMNT stars align, Lewis-Skelly takes chance - Champions League Briefing**\
-`Troubles mount for Pep Guardiola and Manchester City while several USMNT players had a great night in the Champions League.`\
-https://nytimes.com/athletic/5986562/2024/12/11/guardiola-usmnt-champions-league/
 
