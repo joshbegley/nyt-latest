@@ -1,3 +1,15 @@
+**Brighton fined for breach of Premier League's youth development rules**\
+`Brighton &amp; Hove Albion have been fined £20,000 by the Premier League for breaking youth development rules.`\
+https://nytimes.com/athletic/5989346/2024/12/12/brighton-premier-league-fine-youth-academy/
+
+**European Central Bank Cuts Interest Rates as the Economy Weakens**\
+`The bank has been lowering rates since June as inflation slowed, but other risks are growing, including the threat of higher tariffs promised by President-elect Donald J. Trump.`\
+https://nytimes.com/2024/12/12/business/european-central-bank-interest-rates.html
+
+**The Athletic FC: Man City in Euro trouble as U.S. stars shine, FIFA's World Cup clapping**\
+`Today in TAFC: Manchester City's Champions League play-offs problem, USMNT stars shine, Cucurella's boot puzzle and more`\
+https://nytimes.com/athletic/5989127/2024/12/12/manchester-city-champions-league-fifa-saudi-world-cup/
+
 **NBA Lookahead: Scouting Bucks-Hawks and Thunder-Rockets as Cup happens in Vegas**\
 `What are the key matchups in the NBA Cup final four? Plus, remembering a weird Pacers-Bucks game-ball beef. `\
 https://nytimes.com/athletic/5981774/2024/12/12/nba-lookahead-nba-cup-bucks-hawks-rockets-thunder/
