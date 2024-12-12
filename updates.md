@@ -1,3 +1,7 @@
+**What we're seeing with the Bucks: Damian Lillard's continuation, Khris Middleton's connections**\
+`With a little extra time before the Bucks take the floor for the NBA Cup in Las Vegas, let's look at one play, one player and one trend.`\
+https://nytimes.com/athletic/5977750/2024/12/12/damian-lillard-khris-middleton-bucks/
+
 **Brighton fined for breach of Premier League's youth development rules**\
 `Brighton &amp; Hove Albion have been fined £20,000 by the Premier League for breaking youth development rules.`\
 https://nytimes.com/athletic/5989346/2024/12/12/brighton-premier-league-fine-youth-academy/
