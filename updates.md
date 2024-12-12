@@ -1,3 +1,11 @@
+**Labor Board Classifies ‘Love Is Blind’ Contestants as Employees**\
+`With its complaint against the Netflix hit, the National Labor Relations Board opened the door to unionization.`\
+https://nytimes.com/2024/12/11/arts/television/love-is-blind-nlrb-employees-union.html
+
+**F.B.I. Is Investigating Whether Crime Group May Be Targeting Athletes’ Homes**\
+`The homes of a handful of N.B.A. and N.F.L. players in the Midwest have been burglarized since September. The F.B.I. believes “South American Theft Groups” could be responsible, according to one memo.`\
+https://nytimes.com/2024/12/11/sports/athlete-home-burglaries-crime-ring.html
+
 **Paul Goldschmidt? Max Scherzer? Giants could use old approach to bolster their roster**\
 `The Giants and Brian Sabean had success signing very veteran players. Buster Posey could follow that blueprint.`\
 https://nytimes.com/athletic/5988427/2024/12/11/san-francisco-giants-veteran-free-agents/
