@@ -1,3 +1,15 @@
+**The Stock Market and TV: Trump’s Most Durable Guardrails**\
+`The curbs on President-elect Donald J. Trump’s impulses are mostly gone, but the old standbys are still in effect, people close to him say.`\
+https://nytimes.com/2024/12/12/us/politics/trump-tv-stock-market.html
+
+**Ducks' Trevor Zegras out 6 weeks after knee surgery**\
+`The Anaheim Ducks announced that Trevor Zegras will be sidelined for at least six weeks after the forward underwent surgery on Thursday to repair a torn meniscus in his right knee.`\
+https://nytimes.com/athletic/5990580/2024/12/12/zegras-ducks-knee-surgery/
+
+**‘No Good Deed’ Is Star-Studded California Gothic**\
+`Lisa Kudrow and Ray Romano star as a Los Angeles couple with secrets trying to sell their house. Things get complicated quickly.`\
+https://nytimes.com/2024/12/12/arts/television/no-good-deed-netflix.html
+
 **Friday Briefing: Israeli Forces to Stay in Syria for Now**\
 `Plus, British pubs are scrambling for Guinness.`\
 https://nytimes.com/2024/12/12/briefing/syria-trump-afghanistan.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5989456/2024/12/12/bill-belichick-unc-oregon-cfp-un
 **As nations rush to assert influence in Syria, a Turkish intelligence official visits Damascus.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/as-nations-rush-to-assert-influence-in-syria-a-turkish-intelligence-official-visits-damascus
-
-**The Perfect Takeout for a Night In**\
-`An Ethiopian spread from Bunna Cafe, perfectly packaged sushi from Sugar Fish and roast chicken from Poulet Sans Tete.`\
-https://nytimes.com/2024/12/12/dining/the-perfect-takeout-for-a-night-in.html
-
-**Panthers favored for first time in two years as they host the Cowboys this weekend**\
-`The Carolina Panthers are favored to win a football game for the first time in exactly two years on Sunday afternoon.`\
-https://nytimes.com/athletic/5990421/2024/12/12/panthers-favorites-cowboys-spread-bryce-young-how-to-watch/
-
-**Chinese-Flagged Ship Suspected of Cutting Cables Remains Halted Weeks Later**\
-`After fiber-optic cables under the Baltic Sea were cut last month, European officials hurried to stop the Yi Peng 3. It’s still at anchor there, with no update on three nations’ investigation.`\
-https://nytimes.com/2024/12/12/world/europe/baltic-fiber-optic-cables-ship.html
 
