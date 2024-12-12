@@ -1,3 +1,7 @@
+**Judge John Hodgman on Elfin Magic**\
+`Are all elves magical? Or just some?`\
+https://nytimes.com/2024/12/12/magazine/judge-john-hodgman-on-elfin-magic.html
+
 **Scoop City: Josh Allen's evolution, Belichick's chilling reality**\
 `A quick look at the unparalleled growth of Josh Allen, Bill Belichick's chilling reality and the Rams-49ers game tonight.`\
 https://nytimes.com/athletic/5989837/2024/12/12/evolution-of-josh-allen-nfl-mvp-scoop-city/
