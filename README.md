@@ -2,9 +2,9 @@
 `The ruling comes in a dispute over a State Supreme Court race that the Democratic incumbent won by 734 votes.`\
 https://nytimes.com/2024/12/11/us/north-carolina-election-ballots-republicans.html
 
-**MLB winter meetings notes: Why Garrett Crochet trade was a necessary first step for the Red Sox**\
+**MLB Winter Meetings notes: Why Garrett Crochet trade was necessary first step for Red Sox**\
 `Plus more on moves by the White Sox, Guardians, Blue Jays, Rangers and Marlins.`\
-https://nytimes.com/athletic/5988459/2024/12/11/mlb-winter-meetings-notes-why-garrett-crochet-trade-was-a-necessary-first-step-for-the-red-sox/
+https://nytimes.com/athletic/5988459/2024/12/11/mlb-winter-meetings-notes-garrett-crochet-trade-red-sox/
 
 **In making Kyle Tucker and Framber Valdez available, the Astros finally have clarity**\
 `Astros GM Dana Brown is known for evaluating talent. Now is his chance to utilize that skill to replenish Houston's farm system.`\
