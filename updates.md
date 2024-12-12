@@ -1,3 +1,7 @@
+**Former 5-star QB Conner Weigman transferring from Texas A&M to Houston**\
+`Weigman started 13 games in his A&M career and threw for 2,694 yards and 19 touchdowns.`\
+https://nytimes.com/athletic/5981189/2024/12/11/conner-weigman-transfer-houston-cougars/
+
 **Serious Hang Time**\
 `Daniel Bodily’s puzzle will have you looking in all directions.`\
 https://nytimes.com/2024/12/11/crosswords/daily-puzzle-2024-12-12.html

@@ -1,3 +1,7 @@
+**Former 5-star QB Conner Weigman transferring from Texas A&M to Houston**\
+`Weigman started 13 games in his A&M career and threw for 2,694 yards and 19 touchdowns.`\
+https://nytimes.com/athletic/5981189/2024/12/11/conner-weigman-transfer-houston-cougars/
+
 **Serious Hang Time**\
 `Daniel Bodily’s puzzle will have you looking in all directions.`\
 https://nytimes.com/2024/12/11/crosswords/daily-puzzle-2024-12-12.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/11/us/health-insurance-uhc-ceo-shooting.html
 **Labor Board Classifies ‘Love Is Blind’ Contestants as Employees**\
 `The National Labor Relations Board’s case against the Netflix hit could have ripple effects across the reality TV industry.`\
 https://nytimes.com/2024/12/11/arts/television/love-is-blind-nlrb-employees-union.html
-
-**F.B.I. Is Investigating Whether Crime Group May Be Targeting Athletes’ Homes**\
-`The homes of a handful of N.B.A. and N.F.L. players in the Midwest have been burglarized since September. The F.B.I. believes “South American Theft Groups” could be responsible, according to one memo.`\
-https://nytimes.com/2024/12/11/sports/athlete-home-burglaries-crime-ring.html
 
