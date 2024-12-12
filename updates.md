@@ -1,3 +1,15 @@
+**F.T.C. Sues Largest U.S. Alcohol Distributor for Illegal Pricing**\
+`The suit, under a long-dormant antitrust law, accuses Southern Glazer’s of charging small businesses “drastically” more than big chains.`\
+https://nytimes.com/2024/12/12/business/ftc-alcohol-lawsuit-illegal-pricing.html
+
+**‘September 5’ Review: When the Munich Games Changed Our News**\
+`Tim Fehlbaum’s journalism procedural, starring Peter Sarsgaard, tracks the broadcast coverage of the terrorist attack at the 1972 Olympics.`\
+https://nytimes.com/2024/12/12/movies/september-5-review.html
+
+**F.B.I. Didn’t Instruct Informants to Encourage Violence at Capitol, Report Says**\
+`The review acknowledged that several informants were in Washington on Jan. 6, but said that only a handful were collecting information for the F.B.I. that day, contrary to conspiracy theories.`\
+https://nytimes.com/2024/12/12/us/politics/fbi-informants-report-capitol-jan-6.html
+
 **Belichick and the elite soccer coaches who traded the top of the game for the lower levels**\
 `Belichick, 72, is entering an entirely different landscape. In the soccer world, it's comparable to dropping down the leagues`\
 https://nytimes.com/athletic/5989638/2024/12/12/bill-belichick-premier-league-soccer/

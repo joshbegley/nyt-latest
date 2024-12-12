@@ -1,3 +1,15 @@
+**F.T.C. Sues Largest U.S. Alcohol Distributor for Illegal Pricing**\
+`The suit, under a long-dormant antitrust law, accuses Southern Glazer’s of charging small businesses “drastically” more than big chains.`\
+https://nytimes.com/2024/12/12/business/ftc-alcohol-lawsuit-illegal-pricing.html
+
+**‘September 5’ Review: When the Munich Games Changed Our News**\
+`Tim Fehlbaum’s journalism procedural, starring Peter Sarsgaard, tracks the broadcast coverage of the terrorist attack at the 1972 Olympics.`\
+https://nytimes.com/2024/12/12/movies/september-5-review.html
+
+**F.B.I. Didn’t Instruct Informants to Encourage Violence at Capitol, Report Says**\
+`The review acknowledged that several informants were in Washington on Jan. 6, but said that only a handful were collecting information for the F.B.I. that day, contrary to conspiracy theories.`\
+https://nytimes.com/2024/12/12/us/politics/fbi-informants-report-capitol-jan-6.html
+
 **Belichick and the elite soccer coaches who traded the top of the game for the lower levels**\
 `Belichick, 72, is entering an entirely different landscape. In the soccer world, it's comparable to dropping down the leagues`\
 https://nytimes.com/athletic/5989638/2024/12/12/bill-belichick-premier-league-soccer/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/12/dining/vegetarian-lasagna-hand-pulled-noodles-pup
 **Trump’s Choice to Run Energy Says Fossil Fuels Are Virtuous**\
 `Chris Wright, Donald Trump’s pick for energy secretary, says oil, gas and coal are key to solving global poverty. Some call that misleading.`\
 https://nytimes.com/2024/12/12/climate/wright-trump-oil-gas-energy.html
-
-**F.A.A. Administrator Will Resign Before Trump Takes Office**\
-`Mike Whitaker, who runs the Federal Aviation Administration, is leaving the leadership position after serving only one year of a five-year term.`\
-https://nytimes.com/2024/12/12/us/politics/faa-administrator-resigns.html
-
-**Trump Allies Appear Before Judge in Wisconsin Election Interference Case**\
-`The case is one of five related to 2020 election interference that are proceeding even as Donald J. Trump prepares to return to the White House.`\
-https://nytimes.com/2024/12/12/us/trump-wisconsin-election-interference.html
-
-**How to Make Sense of the Fluoride Debate**\
-`Robert F. Kennedy Jr. has said he wants to curb water fluoridation nationwide. Here’s what the science shows about the benefits and the risks.`\
-https://nytimes.com/2024/12/12/well/fluoride-water-health-pregnancy-children.html
 
