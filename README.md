@@ -1,3 +1,11 @@
+**Tennis roundtable: After a year of umpiring controversy and doping confusion, what next?**\
+`Rules and grey areas have been in the headlines on and off the court. What can tennis do to make things better?`\
+https://nytimes.com/athletic/5986258/2024/12/12/tennis-rules-umpiring-mistakes-doping-regulations/
+
+**Remembering David Bonderman, a Private Equity Pioneer**\
+`A former lawyer, he cofounded the giant investment firm TPG and became known for complex deals that remade corporate America. He died on Wednesday at 82.`\
+https://nytimes.com/2024/12/12/business/dealbook/david-bonderman-tpg-dead.html
+
 **Trump Transition Live Updates: Kari Lake Is Chosen to Lead Voice of America**\
 ``\
 https://nytimes.com/live/2024/12/12/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/world/europe/russia-ukraine-war-pokrovsk.html
 **Four Browns position groups to watch over the season's final four games**\
 `This final stretch of the season should allow Cleveland to evaluate younger players and those who have potentially complicated contracts. `\
 https://nytimes.com/athletic/5988094/2024/12/12/browns-nick-chubb-elijah-moore-contracts/
-
-**Newcastle's Wilson set for lengthy absence after latest injury setback**\
-`Newcastle United striker Callum Wilson is set for a lengthy period on the sidelines after suffering another injury setback.`\
-https://nytimes.com/athletic/5989088/2024/12/12/callum-wilson-injury-newcastle-hamstring/
-
-**Broncos defense eager to respond vs. Colts following 'Monday Night Football' flop**\
-`After giving up 475 yards passing to Jameis Winston, Denver faces a "completely different type of challenge" in Colts QB Anthony Richardson.`\
-https://nytimes.com/athletic/5987563/2024/12/12/broncos-defense-colts-richardson/
 
