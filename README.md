@@ -1,3 +1,7 @@
+**Lindy Ruff benches Owen Power, JJ Peterka as Sabres' losing streak hits 8**\
+`Ruff is trying everything he can to end the Sabres' eight-game losing streak.`\
+https://nytimes.com/athletic/5988829/2024/12/12/lindy-ruff-benches-owen-power-jj-peterka-sabres-losing-streak/
+
 **After a rough start, Trae Young and the red-hot Hawks are rolling through the NBA Cup**\
 `As the Hawks advance to the NBA Cup in Las Vegas, their new approach is finally proving to be the right move.`\
 https://nytimes.com/athletic/5988800/2024/12/12/nba-cup-atlanta-hawks-trae-young/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5987028/2024/12/12/alphonso-davies-bayern-munich-tr
 **The 10 players we'll be talking about at the 2034 World Cup**\
 `From Lamine Yamal to Amara Diouf, here is an optimistic prediction of the players that will be on everyone's lips at the 2034 World Cup`\
 https://nytimes.com/athletic/5974300/2024/12/12/players-2034-world-cup-lamal-bellingham-estevao/
-
-**Marc Cucurella, kit men, and how players choose their boots**\
-`Boot warming, stud tightening, personalised sole plates - a lot goes into what a player has on their feet come matchday`\
-https://nytimes.com/athletic/5986577/2024/12/12/cucurella-football-boots-kit-men/
 
