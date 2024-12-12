@@ -1,3 +1,11 @@
+**Tennis roundtable: After a year of umpiring controversy and doping confusion, what next?**\
+`Rules and grey areas have been in the headlines on and off the court. What can tennis do to make things better?`\
+https://nytimes.com/athletic/5986258/2024/12/12/tennis-rules-umpiring-mistakes-doping-regulations/
+
+**Remembering David Bonderman, a Private Equity Pioneer**\
+`A former lawyer, he cofounded the giant investment firm TPG and became known for complex deals that remade corporate America. He died on Wednesday at 82.`\
+https://nytimes.com/2024/12/12/business/dealbook/david-bonderman-tpg-dead.html
+
 **Trump Transition Live Updates: Kari Lake Is Chosen to Lead Voice of America**\
 ``\
 https://nytimes.com/live/2024/12/12/us/trump-news
