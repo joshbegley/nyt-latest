@@ -1,3 +1,7 @@
+**Rockets shock Warriors to advance in NBA Cup: 'We're going to continue to fight'**\
+`"I saw the opportunity to dive on the floor and I took it," says Jalen Green of his late-game heroics. "The results came out amazing."`\
+https://nytimes.com/athletic/5988999/2024/12/12/nba-cup-rockets-warriors-semifinals-okc/
+
 **The Bounce: Why the Hawks are the new Pacers**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5989182/2024/12/12/trae-young-hawks-knicks-steph-curry-warriors-rockets-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986384/2024/12/12/real-madrid-mbappe-thigh-injury/
 **Submit your questions for Until Saturday's podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/5989424/2024/12/12/college-football-questions-mailbag-until-saturday-38/
-
-**Raiders DE Charles Snowden arrested on suspicion of DUI**\
-`It is a misdemeanor charge and is Snowden’s first DUI offense.`\
-https://nytimes.com/athletic/5989322/2024/12/12/raiders-charles-snowden-dui/
 
