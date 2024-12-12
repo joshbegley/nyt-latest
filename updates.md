@@ -1,3 +1,7 @@
+**The Bounce: Why the Hawks are the new Pacers**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5989182/2024/12/12/trae-young-hawks-knicks-steph-curry-warriors-rockets-nba-the-bounce/
+
 **How Penn State is navigating the logistical hurdles of a hosting a Playoff game at Beaver Stadium**\
 `“I tell people all the time, we are just very different,” athletic director Pat Kraft said.`\
 https://nytimes.com/athletic/5989407/2024/12/12/penn-state-hosting-game-beaver-stadium-playoff-smu/
