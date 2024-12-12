@@ -1,3 +1,7 @@
+**Selena Gomez’s Engagement Ring Has People Talking**\
+`A lyrical Easter egg may have predicted her marquise diamond ring, which one jewelry designer calls “the hot stone of the moment.”`\
+https://nytimes.com/2024/12/12/style/selena-gomez-marquise-engagement-ring.html
+
 **Under Trump, Voice of America Journalists Fear Politicization**\
 `Donald J. Trump’s choice of Kari Lake to lead Voice of America goes against recent efforts to shield the federally funded news organization from politicization.`\
 https://nytimes.com/2024/12/12/us/politics/voice-of-america-journalists-trump.html
