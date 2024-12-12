@@ -1,3 +1,11 @@
+**YouTube TV Raises Monthly Charge 14 Percent, to $82.99**\
+`The increase is the latest for the streaming service, which debuted in 2017 at $35 a month. The company blamed “rising content costs.”`\
+https://nytimes.com/2024/12/12/business/youtube-tv-price-increase.html
+
+**Twin Brothers Appear in Court on Sexual Battery Charges**\
+`Oren Alexander, once one of the biggest names in luxury real estate, and his twin brother, Alon Alexander, were held without bond on Thursday.`\
+https://nytimes.com/2024/12/12/realestate/alexander-brothers-court-sexual-battery.html
+
 **Dolores Madrigal, Plaintiff in Landmark Sterilization Case, Dies at 90**\
 `She was among hundreds of women who said they were coerced into sterilization at a California hospital in the 1970s. The lawsuit led to state and national reforms.`\
 https://nytimes.com/2024/12/12/us/dolores-madrigal-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/business/stanley-recall-mugs.html
 **Bill Belichick's Day 1 to-do list: What a new college coach must consider**\
 `What should Belichick prioritize as he takes over a college program for the first time?`\
 https://nytimes.com/athletic/5989537/2024/12/12/bill-belichick-unc-football-commits-transfer-portal/
-
-**Stripping Away the Symbols of the Assad Regime**\
-`Text by Matthew Cassel and Alessandro Pavone`\
-https://nytimes.com/card/2024/12/12/world/middleeast/stripping-away-the-symbols-of-the-assad-regime
-
-**U.S. Couple on Holiday Visit Are Shot and Killed in Western Mexico**\
-`The killings, and other violent episodes this year, have marred the first few months in office of Mexico’s new president, who has vowed to tackle the country’s bloodshed.`\
-https://nytimes.com/2024/12/12/world/americas/americans-killed-mexico.html
 

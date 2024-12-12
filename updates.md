@@ -1,3 +1,11 @@
+**YouTube TV Raises Monthly Charge 14 Percent, to $82.99**\
+`The increase is the latest for the streaming service, which debuted in 2017 at $35 a month. The company blamed “rising content costs.”`\
+https://nytimes.com/2024/12/12/business/youtube-tv-price-increase.html
+
+**Twin Brothers Appear in Court on Sexual Battery Charges**\
+`Oren Alexander, once one of the biggest names in luxury real estate, and his twin brother, Alon Alexander, were held without bond on Thursday.`\
+https://nytimes.com/2024/12/12/realestate/alexander-brothers-court-sexual-battery.html
+
 **Dolores Madrigal, Plaintiff in Landmark Sterilization Case, Dies at 90**\
 `She was among hundreds of women who said they were coerced into sterilization at a California hospital in the 1970s. The lawsuit led to state and national reforms.`\
 https://nytimes.com/2024/12/12/us/dolores-madrigal-dead.html
