@@ -1,3 +1,7 @@
+**Stephen Colbert Is Surprised by Luigi Mangione’s ‘Minifesto’**\
+`“He could’ve just made it a Yelp review: ‘American health care sucks. One star,’” Colbert said of the content of a notebook found with the crime suspect.`\
+https://nytimes.com/2024/12/12/arts/television/stephen-colbert-luigi-mangione-manifesto.html
+
 **Stephen Colbert is Surprised by Luigi Mangione’s ‘Minifesto’**\
 `“He could’ve just made it a Yelp review: ‘American health care sucks. One star,’” Colbert said of the content of a notebook found with the crime suspect.`\
 https://nytimes.com/2024/12/12/arts/television/stephen-colbert-luigi-mangione-manifesto.html
