@@ -1,3 +1,7 @@
+**Rockets shock Warriors to advance in NBA Cup: 'We're going to continue to fight'**\
+`"I saw the opportunity to dive on the floor and I took it," says Jalen Green of his late-game heroics. "The results came out amazing."`\
+https://nytimes.com/athletic/5988999/2024/12/12/nba-cup-rockets-warriors-semifinals-okc/
+
 **The Bounce: Why the Hawks are the new Pacers**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5989182/2024/12/12/trae-young-hawks-knicks-steph-curry-warriors-rockets-nba-the-bounce/
