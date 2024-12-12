@@ -1,3 +1,15 @@
+**What’s Going On in This Picture? | Jan. 6, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/12/12/learning/whats-going-on-in-this-picture-jan-6-2025.html
+
+**UNLV hires former Florida coach Dan Mullen on 5-year deal**\
+`Mullen briefly took the Bulldogs to No. 1 in the inaugural College Football Playoff rankings during the 2014 season.`\
+https://nytimes.com/athletic/5988900/2024/12/12/unlv-dan-mullen-hire-coach/
+
+**Morgan Wallen Pleads to Reduced Charges in Chair-Throwing Incident**\
+`The country superstar agreed to misdemeanor reckless endangerment charges and a week at a D.U.I. education center.`\
+https://nytimes.com/2024/12/12/arts/music/morgan-wallen-guilty-chair-throwing.html
+
 **A Cozy House, a Spooky Setting and a Leap of Faith: Creative Writing by Teens**\
 `Some favorite student responses to three recent Picture Prompts.`\
 https://nytimes.com/2024/12/12/learning/a-cozy-house-a-spooky-setting-and-a-leap-of-faith-creative-writing-by-teens.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/12/opinion/daniel-penny-jordan-neely-subway-killing.
 **Incoming West Virginia Lawmaker Is Accused of Making Terroristic Threats**\
 `Joseph de Soto, 61, was elected last month to represent the 91st District, but he was arrested before he was sworn in.`\
 https://nytimes.com/2024/12/12/us/politics/de-soto-west-virginia-delegate-arrested.html
-
-**Three Questions From Cutting-Edge Climate Science**\
-`An annual gathering of scientists this week offered a glimpse into the latest efforts to answer some of the most intriguing questions about our warming planet.`\
-https://nytimes.com/2024/12/12/climate/three-questions-from-cutting-edge-climate-science.html
-
-**Democrats Ask That Trump Cabinet Picks Produce Communications With Epshteyn**\
-`The two top Democrats on the Senate Judiciary Committee said prospective nominees should be prepared to testify about any discussions with Boris Epshteyn about their selections.`\
-https://nytimes.com/2024/12/12/us/politics/boris-epshteyn-senate.html
-
-**Los Angeles Times Owner Wades Deeper Into Opinion Section**\
-`Dr. Patrick Soon-Shiong’s public comments and actions, including recently blocking an editorial weighing in on President-elect Trump’s cabinet picks, have concerned many staff members.`\
-https://nytimes.com/2024/12/12/business/media/la-times-patrick-soon-shiong.html
 
