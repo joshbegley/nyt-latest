@@ -1,3 +1,7 @@
+**Friday Briefing: Israeli Forces to Stay in Syria for Now**\
+`Plus, British pubs are scrambling for Guinness.`\
+https://nytimes.com/2024/12/12/briefing/syria-trump-afghanistan.html
+
 **As Ten Commandments Tablet Goes Up for Auction, Experts Raise Questions**\
 `Bids may rise to a million or more, Sotheby’s estimates, though some experts say that fakes and forgeries abound.`\
 https://nytimes.com/2024/12/12/arts/ten-commandments-stone-tablet-sothebys-auction.html
