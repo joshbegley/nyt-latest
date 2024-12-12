@@ -1,3 +1,7 @@
+**Ev Williams Was Lonely. He Doesn’t Want You to Be.**\
+`The serial internet entrepreneur, who co-founded Twitter and created Medium, was turning 50 and feeling detached from friends. Maybe a new start-up could fix that.`\
+https://nytimes.com/2024/12/12/technology/ev-williams-twitter-medium-mozi.html
+
 **Ex-F.B.I. Informant Agrees to Plead Guilty to Lying About Bidens**\
 `Alexander Smirnov’s deal with the special counsel overseeing the investigation into Hunter Biden could lead to 48 to 72 months in prison, though a federal judge would need to review the deal.`\
 https://nytimes.com/2024/12/12/us/politics/smirnov-bidens-russia.html

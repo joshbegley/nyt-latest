@@ -1,3 +1,7 @@
+**Ev Williams Was Lonely. He Doesn’t Want You to Be.**\
+`The serial internet entrepreneur, who co-founded Twitter and created Medium, was turning 50 and feeling detached from friends. Maybe a new start-up could fix that.`\
+https://nytimes.com/2024/12/12/technology/ev-williams-twitter-medium-mozi.html
+
 **Ex-F.B.I. Informant Agrees to Plead Guilty to Lying About Bidens**\
 `Alexander Smirnov’s deal with the special counsel overseeing the investigation into Hunter Biden could lead to 48 to 72 months in prison, though a federal judge would need to review the deal.`\
 https://nytimes.com/2024/12/12/us/politics/smirnov-bidens-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989452/2024/12/12/giovanni-reyna-dortmund-start/
 **BuzzFeed Strikes Deal to Sell ‘Hot Ones’ Company for $82.5 Million**\
 `The sale, to a group that includes the show’s host, Sean Evans, and Soros Fund Management, will allow BuzzFeed to pay down tens of millions of dollars in debt.`\
 https://nytimes.com/2024/12/12/business/buzzfeed-hot-ones-sale.html
-
-**An expert on Carson Beck timeline: 'I wouldn't think he's playing anytime soon'**\
-`What is Beck's injury, and what is his timeline? And what will that mean for the NFL draft and Georgia's Playoff hopes?`\
-https://nytimes.com/athletic/5989139/2024/12/12/carson-beck-injury-cfp-nfl-draft-georgia/
 

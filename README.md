@@ -1,3 +1,11 @@
+**A Symbol of India’s Global Soft Power Stumbles After U.S. Indictments**\
+`Countries in Asia, Africa and elsewhere have been distancing themselves from Gautam Adani, the Indian magnate, after accusations of bribery and conspiracy by American prosecutors.`\
+https://nytimes.com/2024/12/12/business/adani-group-indictment-modi.html
+
+**Man City condemn racist abuse of Walker after Juventus defeat**\
+`Manchester City have condemned the racist abuse received online by defender Kyle Walker.`\
+https://nytimes.com/athletic/5989698/2024/12/12/man-city-kyle-walker-instagram-racism/
+
 **Ev Williams Was Lonely. He Doesn’t Want You to Be.**\
 `The serial internet entrepreneur, who co-founded Twitter and created Medium, was turning 50 and feeling detached from friends. Maybe a new start-up could fix that.`\
 https://nytimes.com/2024/12/12/technology/ev-williams-twitter-medium-mozi.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5989182/2024/12/12/trae-young-hawks-knicks-steph-cu
 **How Penn State is navigating the logistical hurdles of a hosting a Playoff game at Beaver Stadium**\
 `“I tell people all the time, we are just very different,” athletic director Pat Kraft said.`\
 https://nytimes.com/athletic/5989407/2024/12/12/penn-state-hosting-game-beaver-stadium-playoff-smu/
-
-**Reyna to 'fight for more opportunities' after first Dortmund start in 13 months**\
-`Giovanni Reyna says he is determined to &#8220;fight for more opportunities&#8221; after making his first Borussia Dortmund start in over a year during Wednesday&#8217;s Champions League loss to Barcelona.`\
-https://nytimes.com/athletic/5989452/2024/12/12/giovanni-reyna-dortmund-start/
-
-**BuzzFeed Strikes Deal to Sell ‘Hot Ones’ Company for $82.5 Million**\
-`The sale, to a group that includes the show’s host, Sean Evans, and Soros Fund Management, will allow BuzzFeed to pay down tens of millions of dollars in debt.`\
-https://nytimes.com/2024/12/12/business/buzzfeed-hot-ones-sale.html
 
