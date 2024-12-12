@@ -1,3 +1,7 @@
+**Labor Board Classifies ‘Love Is Blind’ Contestants as Employees**\
+`The National Labor Relations Board’s case against the Netflix hit could have ripple effects across the reality TV industry.`\
+https://nytimes.com/2024/12/11/arts/television/love-is-blind-nlrb-employees-union.html
+
 **Inside the Red Sox's trade for Garrett Crochet**\
 `The Red Sox still have payroll room and prospects to deal after adding Crochet and are still actively pursuing more additions.`\
 https://nytimes.com/athletic/5988495/2024/12/11/red-sox-garrett-crochet-inside-trade/

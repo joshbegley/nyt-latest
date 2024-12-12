@@ -15,7 +15,7 @@ https://nytimes.com/2024/12/11/us/massachusetts-high-school-dean-cocaine-traffic
 https://nytimes.com/2024/12/11/us/health-insurance-uhc-ceo-shooting.html
 
 **Labor Board Classifies ‘Love Is Blind’ Contestants as Employees**\
-`With its complaint against the Netflix hit, the National Labor Relations Board opened the door to unionization.`\
+`The National Labor Relations Board’s case against the Netflix hit could have ripple effects across the reality TV industry.`\
 https://nytimes.com/2024/12/11/arts/television/love-is-blind-nlrb-employees-union.html
 
 **F.B.I. Is Investigating Whether Crime Group May Be Targeting Athletes’ Homes**\
