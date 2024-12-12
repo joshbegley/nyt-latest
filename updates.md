@@ -1,3 +1,7 @@
+**Scoop City: Josh Allen's evolution, Belichick's chilling reality**\
+`A quick look at the unparalleled growth of Josh Allen, Bill Belichick's chilling reality and the Rams-49ers game tonight.`\
+https://nytimes.com/athletic/5989837/2024/12/12/evolution-of-josh-allen-nfl-mvp-scoop-city/
+
 **Blinken, meeting with Jordanians and Turks, appeals for unity behind a peaceful, stable Syria.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/blinken-meeting-with-jordanians-and-turks-appeals-for-unity-behind-a-peaceful-stable-syria
