@@ -1,3 +1,11 @@
+**Why Do Some Rebel Governments Last When Others Fall?**\
+`One factor matters most, and it could be a problem in Syria.`\
+https://nytimes.com/2024/12/12/world/middleeast/why-do-some-rebel-governments-last-when-others-fall.html
+
+**How to Stir the Pot With Your Family (in a Good Way)**\
+`Vegetarian lasagna Bolognese, hand-pulled noodles and pupusas welcome extra helping hands.`\
+https://nytimes.com/2024/12/12/dining/vegetarian-lasagna-hand-pulled-noodles-pupusas.html
+
 **Trump’s Choice to Run Energy Says Fossil Fuels Are Virtuous**\
 `Chris Wright, Donald Trump’s pick for energy secretary, says oil, gas and coal are key to solving global poverty. Some call that misleading.`\
 https://nytimes.com/2024/12/12/climate/wright-trump-oil-gas-energy.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/04/opinion/thepoint/brian-thompson-luigi-mangio
 **Chanel Fills the Hottest Job in Fashion**\
 `Matthieu Blazy is getting the coveted post. Here’s how it went down.`\
 https://nytimes.com/2024/12/12/style/chanel-new-designer-matthieu-blazy.html
-
-**Defying Veto Threat, House Approves Measure Adding 66 New U.S. Judges**\
-`President Biden and House Democrats objected to the bipartisan measure that would immediately give President-elect Donald J. Trump about two dozen new judicial seats to fill.`\
-https://nytimes.com/2024/12/12/us/politics/house-judges-veto.html
-
-**Trump’s Middle East Adviser Pick Is a Small-Time Truck Salesman**\
-`The lore around Massad Boulos, Tiffany Trump’s father-in-law, is that he is a billionaire dealmaker. Records show otherwise.`\
-https://nytimes.com/2024/12/12/world/africa/trump-massad-boulos-middle-east.html
 
