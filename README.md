@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5989846/2024/12/12/cowboys-today-bill-belichick-off
 `Private foundations must donate 5 percent of their assets every year. Elon Musk’s enormous charity missed that standard for three consecutive years.`\
 https://nytimes.com/2024/12/12/us/politics/musk-foundation-taxes-donations.html
 
-**Champions League projections: Liverpool and Arsenal favourites to win tournament but will Man City go through?**\
+**Champions League projections: Liverpool and Arsenal the favourites to win it but will Manchester City go through?**\
 `With just two rounds of games remaining, the standings are taking shape - but who are the major clubs who are in danger of elimination?`\
 https://nytimes.com/athletic/5989418/2024/12/12/champions-league-projections-matchday-six-analysis/
 
