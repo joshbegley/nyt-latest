@@ -1,3 +1,11 @@
+**Perfect Instant Ramen**\
+`That’s what you get when you add an egg, a pat of butter and a slice or two of American cheese to a bowl of steaming noodles.`\
+https://nytimes.com/2024/12/12/dining/perfect-instant-ramen.html
+
+**Victor Brombert, Scholar With a Secret Army Past, Dies at 101**\
+`As a German Jewish teen, he fled the Nazis for America — then landed at D-Day and swept across Europe in a unit that gathered intelligence. Its work was hidden for decades.`\
+https://nytimes.com/2024/12/12/us/victor-brombert-dead.html
+
 **How Covid Can Change Your Gut**\
 `Diarrhea, constipation, pain, bloating: We asked experts why the virus causes these issues and what to do about them.`\
 https://nytimes.com/2024/12/12/well/eat/covid-symptoms-diarrhea-constipation-pain-bloating.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/dining/drinks/2024-best-wines.html
 **Trump Says His 1st Acts Will Include Deportations and Jan. 6 Pardons**\
 `In a wide-ranging Time magazine interview, President-elect Donald J. Trump said he might supporting getting rid of some childhood vaccines if data shows links to autism.`\
 https://nytimes.com/2024/12/12/us/politics/trump-pardons-deportations-time-magazine-interview.html
-
-**Rockets shock Warriors to advance in NBA Cup: 'We're going to continue to fight'**\
-`"I saw the opportunity to dive on the floor and I took it," says Jalen Green of his late-game heroics. "The results came out amazing."`\
-https://nytimes.com/athletic/5988999/2024/12/12/nba-cup-rockets-warriors-semifinals-okc/
-
-**The Bounce: Why the Hawks are the new Pacers**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5989182/2024/12/12/trae-young-hawks-knicks-steph-curry-warriors-rockets-nba-the-bounce/
 

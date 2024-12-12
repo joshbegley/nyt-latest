@@ -1,3 +1,11 @@
+**Perfect Instant Ramen**\
+`That’s what you get when you add an egg, a pat of butter and a slice or two of American cheese to a bowl of steaming noodles.`\
+https://nytimes.com/2024/12/12/dining/perfect-instant-ramen.html
+
+**Victor Brombert, Scholar With a Secret Army Past, Dies at 101**\
+`As a German Jewish teen, he fled the Nazis for America — then landed at D-Day and swept across Europe in a unit that gathered intelligence. Its work was hidden for decades.`\
+https://nytimes.com/2024/12/12/us/victor-brombert-dead.html
+
 **How Covid Can Change Your Gut**\
 `Diarrhea, constipation, pain, bloating: We asked experts why the virus causes these issues and what to do about them.`\
 https://nytimes.com/2024/12/12/well/eat/covid-symptoms-diarrhea-constipation-pain-bloating.html
