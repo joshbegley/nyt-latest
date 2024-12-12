@@ -1,3 +1,7 @@
+**Dolores Madrigal, Plaintiff in Landmark Sterilization Case, Dies at 90**\
+`She was among hundreds of women who said they were coerced into sterilization at a California hospital in the 1970s. The lawsuit led to state and national reforms.`\
+https://nytimes.com/2024/12/12/us/dolores-madrigal-dead.html
+
 **Biden Commuted the Sentences of 1,500 Americans, a One-Day Record**\
 `Also, Israel said it would stay in Syria for now. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/12/12/briefing/biden-pardons-israel-syria-buffer-zone.html
