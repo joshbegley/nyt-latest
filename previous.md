@@ -1,3 +1,7 @@
+**Blinken, meeting with Jordanians and Turks, appeals for unity behind a peaceful, stable Syria.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/blinken-meeting-with-jordanians-and-turks-appeals-for-unity-behind-a-peaceful-stable-syria
+
 **The Windup: Breaking down the Sox-Sox blockbuster**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/5989826/2024/12/12/garrett-crochet-trade-red-sox-the-windup/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5989826/2024/12/12/garrett-crochet-trade-red-sox-th
 https://nytimes.com/interactive/2024/12/12/theater/oh-mary-broadway.html
 
 **Travis Hunter's Heisman backers include Broncos Pat Surtain II and Courtland Sutton**\
-`Colorado's two-way phenom has caught the attention of stars in locker room of the Buffaloes' neighboring NFL team.`\
+`Colorado's two-way phenom has caught the attention of stars in the locker room of the Buffaloes' neighboring NFL team.`\
 https://nytimes.com/athletic/5989245/2024/12/12/travis-hunter-heisman-broncos-surtain-sutton/
 
 **Activist Who Told the World About Torture in Syria Is Laid to Rest**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/well/eat/covid-symptoms-diarrhea-constipation-pai
 **A Symbol of India’s Global Soft Power Stumbles After U.S. Indictments**\
 `Countries in Asia, Africa and elsewhere have been distancing themselves from Gautam Adani, the Indian magnate, after accusations of bribery and conspiracy by American prosecutors.`\
 https://nytimes.com/2024/12/12/business/adani-group-indictment-modi.html
-
-**Man City condemn racist abuse of Walker after Juventus defeat**\
-`Manchester City have condemned the racist abuse received online by defender Kyle Walker.`\
-https://nytimes.com/athletic/5989698/2024/12/12/man-city-kyle-walker-instagram-racism/
 

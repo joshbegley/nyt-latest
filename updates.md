@@ -1,3 +1,11 @@
+**Blinken, meeting with Jordanians and Turks, appeals for unity behind a peaceful, stable Syria.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/blinken-meeting-with-jordanians-and-turks-appeals-for-unity-behind-a-peaceful-stable-syria
+
+**Travis Hunter's Heisman backers include Broncos Pat Surtain II and Courtland Sutton**\
+`Colorado's two-way phenom has caught the attention of stars in the locker room of the Buffaloes' neighboring NFL team.`\
+https://nytimes.com/athletic/5989245/2024/12/12/travis-hunter-heisman-broncos-surtain-sutton/
+
 **The Windup: Breaking down the Sox-Sox blockbuster**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/5989826/2024/12/12/garrett-crochet-trade-red-sox-the-windup/
