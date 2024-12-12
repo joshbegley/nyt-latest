@@ -1,3 +1,7 @@
+**As Ten Commandments Tablet Goes Up for Auction, Experts Raise Questions**\
+`Bids may rise to a million or more, Sotheby’s estimates, though some experts say that fakes and forgeries abound.`\
+https://nytimes.com/2024/12/12/arts/ten-commandments-stone-tablet-sothebys-auction.html
+
 **Louisville and Justice Dept. Reach Deal on Federal Oversight of Police**\
 `The agreement comes after the Justice Department documented excessive use of force, illegal searches and car stops and widespread discrimination against Black people and those with mental illnesses.`\
 https://nytimes.com/2024/12/12/us/politics/louisville-breonna-taylor-justice-police.html

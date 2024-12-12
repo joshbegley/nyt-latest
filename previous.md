@@ -1,3 +1,7 @@
+**As Ten Commandments Tablet Goes Up for Auction, Experts Raise Questions**\
+`Bids may rise to a million or more, Sotheby’s estimates, though some experts say that fakes and forgeries abound.`\
+https://nytimes.com/2024/12/12/arts/ten-commandments-stone-tablet-sothebys-auction.html
+
 **Louisville and Justice Dept. Reach Deal on Federal Oversight of Police**\
 `The agreement comes after the Justice Department documented excessive use of force, illegal searches and car stops and widespread discrimination against Black people and those with mental illnesses.`\
 https://nytimes.com/2024/12/12/us/politics/louisville-breonna-taylor-justice-police.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/world/europe/baltic-fiber-optic-cables-ship.html
 **Amorim on Hojlund-Amad disagreement: 'It's perfect, we need to feel something'**\
 `Ruben Amorim saw the positives in Rasmus Hojlund and Amad having a heated discussion at the end of Manchester United’s 2-1 victory over Viktoria Plzen in the Europa League.`\
 https://nytimes.com/athletic/5990365/2024/12/12/ruben-amorim-man-united-europa/
-
-**Bills cancel Thursday's practice due to snow ahead of Lions matchup**\
-`More than two feet of lake-effect snow fell in Orchard Park as the Bills prepare to play the Lions on Sunday.`\
-https://nytimes.com/athletic/5990339/2024/12/12/bills-practice-canceled-snow-lions/
 
