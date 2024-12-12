@@ -1,3 +1,23 @@
+**The 10 players we'll be talking about at the 2034 World Cup**\
+`From Lamine Yamal to Amara Diouf, here is an optimistic prediction of the players that will be on everyone's lips at the 2034 World Cup`\
+https://nytimes.com/athletic/5974300/2024/12/12/players-2034-world-cup-lamal-bellingham-estevao/
+
+**Marc Cucurella, kit men, and how players choose their boots**\
+`Boot warming, stud tightening, personalised sole plates - a lot goes into what a player has on their feet come matchday`\
+https://nytimes.com/athletic/5986577/2024/12/12/cucurella-football-boots-kit-men/
+
+**Naomi Layzell interview: 'I kept thinking I'd tarnished one of the best games of my life'**\
+`The Manchester City defender was making a big impression with her new club before injury struck in the best match of her career so far`\
+https://nytimes.com/athletic/5983520/2024/12/12/naomi-layzell-manchester-city-bristol-city/
+
+**Shaw and James: Why England’s full-backs might be struggling to return from injury**\
+`Shaw and James have suffered repeated injury problems. What is causing them and can they recover? Our medical expert explains...`\
+https://nytimes.com/athletic/5980724/2024/12/12/luke-shaw-united-injury-reece-james-hamstring-chelsea/
+
+**Thursday Briefing**\
+`The latest from Syria.`\
+https://nytimes.com/2024/12/12/briefing/syria-fbi-scholz-tiger.html
+
 **Mika Zibanejad scores big goal as Rangers survive poor third period: 3 takeaways vs. Sabres**\
 `The struggling Zibanejad scored his 300th career goal in a 3-2 win over the Sabres, but it wasn't an ideal finish for New York.
 `\
