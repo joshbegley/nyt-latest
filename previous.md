@@ -1,3 +1,11 @@
+**Oldest Human Genomes Reveal How a Small Group Burst Out of Africa**\
+`DNA from European fossils dating back 45,000 years offers new clues to how our species spread across the world.`\
+https://nytimes.com/2024/12/12/science/oldest-human-genomes-lrj-neanderthals.html
+
+**Overlooked No More: Fidelia Bridges, Artist Who Captured the Natural World**\
+`A prolific artist, she was known for her graceful watercolors of birds, plants and butterflies, and was considered as the equal of Winslow Homer in her day.`\
+https://nytimes.com/2024/12/12/arts/fidelia-bridges-overlooked.html
+
 **Superflares Erupt From Stars Like Our Sun Once Every 100 Years**\
 `New findings suggest that an extraordinarily powerful and dangerous burst of radiation might flare from our sun in the future.`\
 https://nytimes.com/2024/12/12/science/sun-superflares-stars.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/world/middleeast/syria-rebel-terrorist-designatio
 **F.T.C. Sues Largest U.S. Alcohol Distributor for Illegal Pricing**\
 `The suit, under a long-dormant antitrust law, accuses Southern Glazer’s of charging small businesses “drastically” more than big chains.`\
 https://nytimes.com/2024/12/12/business/ftc-alcohol-lawsuit-illegal-pricing.html
-
-**‘September 5’ Review: When the Munich Games Changed Our News**\
-`Tim Fehlbaum’s journalism procedural, starring Peter Sarsgaard, tracks the broadcast coverage of the terrorist attack at the 1972 Olympics.`\
-https://nytimes.com/2024/12/12/movies/september-5-review.html
-
-**F.B.I. Didn’t Instruct Informants to Encourage Violence at Capitol, Report Says**\
-`The review acknowledged that several informants were in Washington on Jan. 6, but said that only a handful were collecting information for the F.B.I. that day, contrary to conspiracy theories.`\
-https://nytimes.com/2024/12/12/us/politics/fbi-informants-report-capitol-jan-6.html
 

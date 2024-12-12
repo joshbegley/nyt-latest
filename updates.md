@@ -1,3 +1,11 @@
+**Oldest Human Genomes Reveal How a Small Group Burst Out of Africa**\
+`DNA from European fossils dating back 45,000 years offers new clues to how our species spread across the world.`\
+https://nytimes.com/2024/12/12/science/oldest-human-genomes-lrj-neanderthals.html
+
+**Overlooked No More: Fidelia Bridges, Artist Who Captured the Natural World**\
+`A prolific artist, she was known for her graceful watercolors of birds, plants and butterflies, and was considered as the equal of Winslow Homer in her day.`\
+https://nytimes.com/2024/12/12/arts/fidelia-bridges-overlooked.html
+
 **Superflares Erupt From Stars Like Our Sun Once Every 100 Years**\
 `New findings suggest that an extraordinarily powerful and dangerous burst of radiation might flare from our sun in the future.`\
 https://nytimes.com/2024/12/12/science/sun-superflares-stars.html
