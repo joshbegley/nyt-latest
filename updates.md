@@ -1,3 +1,15 @@
+**Lions-Bills preview: There will be lots of points, but which team has the edge?**\
+`Injuries have hit the Lions' defense hard while the Bills are coming off a disastrous defensive performance.`\
+https://nytimes.com/athletic/5990129/2024/12/12/bills-lions-preview-josh-allen-jared-goff/
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/12/12/books/review/new-books-recommendations.html
+
+**Belichick introduced at UNC, says he 'always wanted to coach' in CFB**\
+`"Had some good years in the NFL so that was OK. But this is really a dream come true," Bill Belichick said at the news conference.`\
+https://nytimes.com/athletic/5990274/2024/12/12/bill-belichick-unc-football-introductory-news-conference/
+
 **Dommaraju Gukesh, 18, Becomes Youngest World Chess Champion**\
 `It had been an unexpectedly close contest in Singapore with Ding Liren. When he won, the normally stoic Gukesh clasped his hands at the board and burst into tears.`\
 https://nytimes.com/2024/12/12/sports/gukesh-world-chess-championship-2024.html
