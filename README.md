@@ -1,3 +1,7 @@
+**Drones, Dogs, Drug Labs: Canada’s Plan to Avoid Trump’s Tariffs Takes Shape**\
+`Two weeks after a Mar-a-Lago dinner with Donald J. Trump, details of Prime Minister Justin Trudeau’s plan to stave off a showdown with the United States are emerging.`\
+https://nytimes.com/2024/12/11/world/canada/canada-trump-tariffs-border.html
+
 **Inside the Red Sox's trade for Garrett Crochet**\
 `The Red Sox still have payroll room and prospects to deal after adding Crochet and are still actively pursuing more additions.`\
 https://nytimes.com/athletic/5988495/2024/12/11/red-sox-garrett-crochet-inside-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009873608/christopher-wray-to-resign
 **N.C. Elections Board Rejects G.O.P. Effort to Toss 60,000 Ballots**\
 `The ruling comes in a dispute over a State Supreme Court race that the Democratic incumbent won by 734 votes.`\
 https://nytimes.com/2024/12/11/us/north-carolina-election-ballots-republicans.html
-
-**MLB Winter Meetings notes: Why Garrett Crochet trade was necessary first step for Red Sox**\
-`Plus more on moves by the White Sox, Guardians, Blue Jays, Rangers and Marlins.`\
-https://nytimes.com/athletic/5988459/2024/12/11/mlb-winter-meetings-notes-garrett-crochet-trade-red-sox/
 
