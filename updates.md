@@ -1,3 +1,7 @@
+**Reyna to 'fight for more opportunities' after first Dortmund start in 13 months**\
+`Giovanni Reyna says he is determined to &#8220;fight for more opportunities&#8221; after making his first Borussia Dortmund start in over a year during Wednesday&#8217;s Champions League loss to Barcelona.`\
+https://nytimes.com/athletic/5989452/2024/12/12/giovanni-reyna-dortmund-start/
+
 **BuzzFeed Strikes Deal to Sell ‘Hot Ones’ Company for $82.5 Million**\
 `The sale, to a group that includes the show’s host, Sean Evans, and Soros Fund Management, will allow BuzzFeed to pay down tens of millions of dollars in debt.`\
 https://nytimes.com/2024/12/12/business/buzzfeed-hot-ones-sale.html

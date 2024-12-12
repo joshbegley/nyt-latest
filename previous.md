@@ -1,3 +1,7 @@
+**Reyna to 'fight for more opportunities' after first Dortmund start in 13 months**\
+`Giovanni Reyna says he is determined to &#8220;fight for more opportunities&#8221; after making his first Borussia Dortmund start in over a year during Wednesday&#8217;s Champions League loss to Barcelona.`\
+https://nytimes.com/athletic/5989452/2024/12/12/giovanni-reyna-dortmund-start/
+
 **BuzzFeed Strikes Deal to Sell ‘Hot Ones’ Company for $82.5 Million**\
 `The sale, to a group that includes the show’s host, Sean Evans, and Soros Fund Management, will allow BuzzFeed to pay down tens of millions of dollars in debt.`\
 https://nytimes.com/2024/12/12/business/buzzfeed-hot-ones-sale.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977750/2024/12/12/damian-lillard-khris-middleton-b
 **Brighton fined for breach of Premier League's youth development rules**\
 `Brighton &amp; Hove Albion have been fined £20,000 by the Premier League for breaking youth development rules.`\
 https://nytimes.com/athletic/5989346/2024/12/12/brighton-premier-league-fine-youth-academy/
-
-**European Central Bank Cuts Interest Rates as the Economy Weakens**\
-`The bank has been lowering rates since June as inflation slowed, but other risks are growing, including the threat of higher tariffs promised by President-elect Donald J. Trump.`\
-https://nytimes.com/2024/12/12/business/european-central-bank-interest-rates.html
 
