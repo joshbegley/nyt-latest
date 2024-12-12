@@ -1,3 +1,15 @@
+**How Covid Can Change Your Gut**\
+`Diarrhea, constipation, pain, bloating: We asked experts why the virus causes these issues and what to do about them.`\
+https://nytimes.com/2024/12/12/well/eat/covid-symptoms-diarrhea-constipation-pain-bloating.html
+
+**A Symbol of India’s Global Soft Power Stumbles After U.S. Indictments**\
+`Countries in Asia, Africa and elsewhere have been distancing themselves from Gautam Adani, the Indian magnate, after accusations of bribery and conspiracy by American prosecutors.`\
+https://nytimes.com/2024/12/12/business/adani-group-indictment-modi.html
+
+**Man City condemn racist abuse of Walker after Juventus defeat**\
+`Manchester City have condemned the racist abuse received online by defender Kyle Walker.`\
+https://nytimes.com/athletic/5989698/2024/12/12/man-city-kyle-walker-instagram-racism/
+
 **Ev Williams Was Lonely. He Doesn’t Want You to Be.**\
 `The serial internet entrepreneur, who co-founded Twitter and created Medium, was turning 50 and feeling detached from friends. Maybe a new start-up could fix that.`\
 https://nytimes.com/2024/12/12/technology/ev-williams-twitter-medium-mozi.html
