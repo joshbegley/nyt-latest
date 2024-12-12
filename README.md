@@ -1,5 +1,5 @@
 **N.C. Elections Board Rejects G.O.P. Effort to Toss 60,000 Ballots**\
-`The ruling comes in a dispute over a state Supreme Court race that the Democratic incumbent won by 734 votes`\
+`The ruling comes in a dispute over a State Supreme Court race that the Democratic incumbent won by 734 votes.`\
 https://nytimes.com/2024/12/11/us/north-carolina-election-ballots-republicans.html
 
 **MLB winter meetings notes: Why Garrett Crochet trade was a necessary first step for the Red Sox**\
