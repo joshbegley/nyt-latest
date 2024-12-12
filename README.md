@@ -1,3 +1,11 @@
+**An Easy Holiday Manicure With a Secret Ingredient**\
+`The nail artist Mei Kawajiri shares a festive nail design you can recreate at home in just five steps, using products you probably already own.`\
+https://nytimes.com/2024/12/12/t-magazine/simple-holiday-manicure.html
+
+**Report on New Jersey’s Worst Nursing Home Finds Rampant Fraud and Abuse**\
+`A trio of relatives in New Jersey defrauded the state’s Medicaid program out of millions of dollars while neglecting patient care, the state comptroller found.`\
+https://nytimes.com/2024/12/12/nyregion/new-jersey-nursing-homes-fraud.html
+
 **Breaking down Bill Belichick's contract with UNC: Why it is unlike others in college**\
 `Not only is Bill Belichick entering a world he’s never been in in an official capacity, but his contract is unlike most others in the sport.`\
 https://nytimes.com/athletic/5990758/2024/12/12/bill-belichick-contract-buyout/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/briefing/biden-pardons-israel-syria-buffer-zone.h
 **Postecoglou labels Werner performance 'not acceptable' in draw with Rangers**\
 `Ange Postecoglou has castigated Timo Werner’s first-half performance for Tottenham Hotspur against Rangers as “not acceptable” after taking him off at half-time.`\
 https://nytimes.com/athletic/5990582/2024/12/12/ange-postecoglou-timo-werner/
-
-**University of Michigan May Fire D.E.I. Official Over Antisemitism Claim**\
-`The official, an administrator of multicultural programs, was accused of making antisemitic remarks in a conversation. She has denied the allegations.`\
-https://nytimes.com/2024/12/12/us/university-of-michigan-dei-administrator-antisemitism.html
-
-**Air Force Academy Sued Over Race-Based Admissions Policy**\
-`The lawsuit was the latest in a series by a prominent anti-affirmative action group that is seeking to overturn the use of racial preferences in the nation’s military academies.`\
-https://nytimes.com/2024/12/12/us/air-force-academy-race-based-admissions-lawsuit.html
 
