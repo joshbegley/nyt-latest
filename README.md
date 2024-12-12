@@ -1,3 +1,15 @@
+**What’s Going On in This Graph? | Jan. 8, 2025**\
+`What do you notice about book bans across the United States?`\
+https://nytimes.com/2024/12/12/learning/whats-going-on-in-this-graph-jan-8-2025.html
+
+**How to Dangerously Misread a Very Important Verdict**\
+`What happened on that subway train — and the acquittal that followed — deserves a more measured response.`\
+https://nytimes.com/2024/12/12/opinion/daniel-penny-jordan-neely-subway-killing.html
+
+**Incoming West Virginia Lawmaker Is Accused of Making Terroristic Threats**\
+`Joseph de Soto, 61, was elected last month to represent the 91st District, but he was arrested before he was sworn in.`\
+https://nytimes.com/2024/12/12/us/politics/de-soto-west-virginia-delegate-arrested.html
+
 **Three Questions From Cutting-Edge Climate Science**\
 `An annual gathering of scientists this week offered a glimpse into the latest efforts to answer some of the most intriguing questions about our warming planet.`\
 https://nytimes.com/2024/12/12/climate/three-questions-from-cutting-edge-climate-science.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/12/books/review/new-books-recommendations.html
 **Belichick introduced at UNC, says he 'always wanted to coach' in CFB**\
 `"Had some good years in the NFL so that was OK. But this is really a dream come true," Bill Belichick said at the news conference.`\
 https://nytimes.com/athletic/5990274/2024/12/12/bill-belichick-unc-football-introductory-news-conference/
-
-**Man Freed From Syrian Prison Appears to Be a Missing American**\
-`The man, who told reporters his name was Travis, said he was imprisoned in Syria for several months. The State Department said it was aware of an American found outside Damascus and was “seeking to provide support.”`\
-https://nytimes.com/video/world/middleeast/100000009874107/syria-missing-american-travis.html
-
-**Hallmark’s First ‘Mr. Christmas’ Goes Home for the Holidays**\
-`And he’s single.`\
-https://nytimes.com/2024/12/12/style/finding-mr-christmas-winner-hallmark.html
-
-**Syrians Celebrate the Fall of Assad, and Rebuild From Tragedy**\
-`After five decades under a regime that had kept many in fear and poverty, families flooded back from Lebanon, eager to start the slow process of healing.`\
-https://nytimes.com/2024/12/12/world/middleeast/syria-assad-photos.html
 
