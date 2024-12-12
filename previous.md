@@ -1,3 +1,15 @@
+**Superflares Erupt From Stars Like Our Sun Once Every 100 Years**\
+`New findings suggest that an extraordinarily powerful and dangerous burst of radiation might flare from our sun in the future.`\
+https://nytimes.com/2024/12/12/science/sun-superflares-stars.html
+
+**Ocean Heat Wiped Out Half These Seabirds Around Alaska**\
+`About four million common murres were killed by a domino effect of ecosystem changes, and the population is showing no signs of recovery, according to new research.`\
+https://nytimes.com/2024/12/12/climate/alaska-common-murre-birds-ocean-heat.html
+
+**A ‘Second Tree of Life’ Could Wreak Havoc, Scientists Warn**\
+`Research on so-called mirror cells, which defy fundamental properties of living organisms, should be prohibited as too dangerous, biologists said.`\
+https://nytimes.com/2024/12/12/science/a-second-tree-of-life-could-wreak-havoc-scientists-warn.html
+
 **Dommaraju Gukesh, 18, Becomes Youngest World Chess Champion**\
 `It had been an unexpectedly close contest in Singapore with Ding Liren. When he won, the normally stoic Gukesh clasped his hands at the board and burst into tears.`\
 https://nytimes.com/2024/12/12/sports/gukesh-world-chess-championship-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/12/movies/september-5-review.html
 **F.B.I. Didn’t Instruct Informants to Encourage Violence at Capitol, Report Says**\
 `The review acknowledged that several informants were in Washington on Jan. 6, but said that only a handful were collecting information for the F.B.I. that day, contrary to conspiracy theories.`\
 https://nytimes.com/2024/12/12/us/politics/fbi-informants-report-capitol-jan-6.html
-
-**Belichick and the elite soccer coaches who traded the top of the game for the lower levels**\
-`Belichick, 72, is entering an entirely different landscape. In the soccer world, it's comparable to dropping down the leagues`\
-https://nytimes.com/athletic/5989638/2024/12/12/bill-belichick-premier-league-soccer/
-
-**Crowdfunding account for Matt Petgrave launched amid Adam Johnson manslaughter investigation**\
-`A crowdfunding account purporting to belong to U.`\
-https://nytimes.com/athletic/5989919/2024/12/12/adam-johnson-hockey-matt-petgrave/
-
-**A Pint-Sized Problem? British Pubs Are Running Out of Guinness**\
-`Guinness’s parent company has limited the amount of the beer that U.K. wholesalers and distributors can buy each week, after surging demand led to fears of shortages.`\
-https://nytimes.com/2024/12/12/world/europe/britain-guinness-shortages-limits.html
 

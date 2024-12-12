@@ -1,3 +1,15 @@
+**Superflares Erupt From Stars Like Our Sun Once Every 100 Years**\
+`New findings suggest that an extraordinarily powerful and dangerous burst of radiation might flare from our sun in the future.`\
+https://nytimes.com/2024/12/12/science/sun-superflares-stars.html
+
+**Ocean Heat Wiped Out Half These Seabirds Around Alaska**\
+`About four million common murres were killed by a domino effect of ecosystem changes, and the population is showing no signs of recovery, according to new research.`\
+https://nytimes.com/2024/12/12/climate/alaska-common-murre-birds-ocean-heat.html
+
+**A ‘Second Tree of Life’ Could Wreak Havoc, Scientists Warn**\
+`Research on so-called mirror cells, which defy fundamental properties of living organisms, should be prohibited as too dangerous, biologists said.`\
+https://nytimes.com/2024/12/12/science/a-second-tree-of-life-could-wreak-havoc-scientists-warn.html
+
 **Dommaraju Gukesh, 18, Becomes Youngest World Chess Champion**\
 `It had been an unexpectedly close contest in Singapore with Ding Liren. When he won, the normally stoic Gukesh clasped his hands at the board and burst into tears.`\
 https://nytimes.com/2024/12/12/sports/gukesh-world-chess-championship-2024.html
