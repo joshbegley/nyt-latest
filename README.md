@@ -1,3 +1,15 @@
+**Chiefs' off-the-couch additions becoming necessary part of their three-peat drive**\
+`Retired cornerback Steven Nelson joins Kareem Hunt, Matthew Wright and D.J. Humphries as midseason free agents who came to the Chiefs.`\
+https://nytimes.com/athletic/5988269/2024/12/12/chiefs-midseason-additions-kareem-hunt-steven-nelson/
+
+**How does Bears' situation for Caleb Williams stack up to other teams with rookie QBs?**\
+`The Bears were supposed to have the best setup for a rookie quarterback. They might have had the worst. How do they compare with others?`\
+https://nytimes.com/athletic/5987497/2024/12/12/bears-caleb-williams-rookie-qbs/
+
+**Vikings' Sam Darnold dilemma: Has he played so well that they can't let him go?**\
+`Should the Vikings re-sign Darnold long term after his career year, or should they let him go and look to the future with J.J. McCarthy?`\
+https://nytimes.com/athletic/5987909/2024/12/12/sam-darnolds-vikings-free-agent-contract-future/
+
 **Why Bill Belichick was forced to abandon hope of landing NFL job, pursuit of wins record**\
 `Belichick realized he was going to be a long shot in the next NFL hiring cycle. "He burned a lot of bridges over his career."`\
 https://nytimes.com/athletic/5988570/2024/12/12/bill-belichick-nfl-unc-hiring/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5987997/2024/12/12/blackhawks-anders-sorensen-veter
 **How China Hacked America’s Phone Network**\
 `It’s an alarming new breach, and its scope demonstrates the growing power of one of the United States’ biggest adversaries.`\
 https://nytimes.com/2024/12/12/podcasts/the-daily/china-hack-america-phone-network.html
-
-**Watch: ‘Is Creativity Dead?”**\
-`Is internet culture killing our creativity? Or, are powerful algorithms just hiding it?`\
-https://nytimes.com/2024/12/12/learning/watch-is-creativity-dead.html
-
-**How Wild prospect Charlie Stramel got his game back after transfer to Michigan State: 'Stick with this kid'**\
-`Brad Bombardir: “We’re starting to see glimpses. He’s starting to figure it out, and he knows that. He’s just scratching the surface."`\
-https://nytimes.com/athletic/5981663/2024/12/12/wild-charlie-stramel-transfer-resurgence/
-
-**The Connections Companion No. 551**\
-`Scroll down for hints and conversation about the puzzle for Friday, Dec. 13, 2024.`\
-https://nytimes.com/2024/12/12/crosswords/connections-companion-551.html
 
