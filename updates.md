@@ -1,3 +1,7 @@
+**Health Insurance Workers Fearful Amid Public Anger After Slaying of C.E.O.**\
+`Employees at UnitedHealthcare and other companies described being anxious after an outpouring of online vitriol.`\
+https://nytimes.com/2024/12/11/us/health-insurance-uhc-ceo-shooting.html
+
 **Labor Board Classifies ‘Love Is Blind’ Contestants as Employees**\
 `The National Labor Relations Board’s case against the Netflix hit could have ripple effects across the reality TV industry.`\
 https://nytimes.com/2024/12/11/arts/television/love-is-blind-nlrb-employees-union.html

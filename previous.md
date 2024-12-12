@@ -10,8 +10,8 @@ https://nytimes.com/2024/12/11/world/asia/yoon-south-korea-martial-law.html
 `Federal prosecutors said Lavante Wiggins of Pittsfield High School and another man had conspired to traffic “large quantities” of the drug in western Massachusetts.`\
 https://nytimes.com/2024/12/11/us/massachusetts-high-school-dean-cocaine-trafficking.html
 
-**Health Insurance Workers Rattled Amid Public Anger After Slaying of C.E.O.**\
-`Employees at UnitedHealthcare and other companies described being fearful after an outpouring of online vitriol.`\
+**Health Insurance Workers Fearful Amid Public Anger After Slaying of C.E.O.**\
+`Employees at UnitedHealthcare and other companies described being anxious after an outpouring of online vitriol.`\
 https://nytimes.com/2024/12/11/us/health-insurance-uhc-ceo-shooting.html
 
 **Labor Board Classifies ‘Love Is Blind’ Contestants as Employees**\
