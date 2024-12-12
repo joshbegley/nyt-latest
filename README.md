@@ -1,3 +1,7 @@
+**Newcastle's Wilson set for lengthy absence after latest injury setback**\
+`Newcastle United striker Callum Wilson is set for a lengthy period on the sidelines after suffering another injury setback.`\
+https://nytimes.com/athletic/5989088/2024/12/12/callum-wilson-injury-newcastle-hamstring/
+
 **Broncos defense eager to respond vs. Colts following 'Monday Night Football' flop**\
 `After giving up 475 yards passing to Jameis Winston, Denver faces a "completely different type of challenge" in Colts QB Anthony Richardson.`\
 https://nytimes.com/athletic/5987563/2024/12/12/broncos-defense-colts-richardson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/briefing/ceos-are-tripping.html
 **Chiefs' off-the-couch additions becoming necessary part of their three-peat drive**\
 `Retired cornerback Steven Nelson joins Kareem Hunt, Matthew Wright and D.J. Humphries as midseason free agents who came to the Chiefs.`\
 https://nytimes.com/athletic/5988269/2024/12/12/chiefs-midseason-additions-kareem-hunt-steven-nelson/
-
-**How does Bears' situation for Caleb Williams stack up to other teams with rookie QBs?**\
-`The Bears were supposed to have the best setup for a rookie quarterback. They might have had the worst. How do they compare with others?`\
-https://nytimes.com/athletic/5987497/2024/12/12/bears-caleb-williams-rookie-qbs/
 
