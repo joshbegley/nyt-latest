@@ -1,3 +1,11 @@
+**Lindy Ruff benches Owen Power, JJ Peterka as Sabres' losing streak hits 8**\
+`Ruff is trying everything he can to end the Sabres' eight-game losing streak.`\
+https://nytimes.com/athletic/5988829/2024/12/12/lindy-ruff-benches-owen-power-jj-peterka-sabres-losing-streak/
+
+**After rough start, Trae Young and the red-hot Hawks are rolling through the NBA Cup**\
+`As the Hawks advance to the NBA Cup in Las Vegas, their new approach is finally proving to be the right move.`\
+https://nytimes.com/athletic/5988800/2024/12/12/nba-cup-atlanta-hawks-trae-young/
+
 **After a rough start, Trae Young and the red-hot Hawks are rolling through the NBA Cup**\
 `As the Hawks advance to the NBA Cup in Las Vegas, their new approach is finally proving to be the right move.`\
 https://nytimes.com/athletic/5988800/2024/12/12/nba-cup-atlanta-hawks-trae-young/
