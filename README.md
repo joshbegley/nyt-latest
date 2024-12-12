@@ -1,3 +1,7 @@
+**Breaking down Bill Belichick's contract with UNC: Why it is unlike others in college**\
+`Not only is Bill Belichick entering a world he’s never been in in an official capacity, but his contract is unlike most others in the sport.`\
+https://nytimes.com/athletic/5990758/2024/12/12/bill-belichick-contract-buyout/
+
 **Selena Gomez’s Engagement Ring Has People Talking**\
 `A lyrical Easter egg may have predicted her marquise diamond ring, which one jewelry designer calls “the hot stone of the moment.”`\
 https://nytimes.com/2024/12/12/style/selena-gomez-marquise-engagement-ring.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/us/university-of-michigan-dei-administrator-antis
 **Air Force Academy Sued Over Race-Based Admissions Policy**\
 `The lawsuit was the latest in a series by a prominent anti-affirmative action group that is seeking to overturn the use of racial preferences in the nation’s military academies.`\
 https://nytimes.com/2024/12/12/us/air-force-academy-race-based-admissions-lawsuit.html
-
-**U.S. Hopes for a Gaza Cease-Fire and Hostage Deal ‘This Month’**\
-`In the Middle East for a last-ditch diplomatic effort before leaving office, Jake Sullivan, a top White House official, said the current talks were different than those in the past.`\
-https://nytimes.com/2024/12/12/world/middleeast/gaza-cease-fire-hopes-america-sullivan.html
 
