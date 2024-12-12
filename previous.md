@@ -1,3 +1,11 @@
+**What Do You Expect From a Second Trump Presidency?**\
+`We want to hear how you imagine the next four years will unfold for you and your loved ones.`\
+https://nytimes.com/2024/12/12/us/inauguration-trump-callout.html
+
+**When a Glock Isn’t a Glock: The History of the Pistol Found With Luigi Mangione**\
+`Part of the gun that the police believe was used to kill the C.E.O. of UnitedHealthcare was made by a 3D printer using a popular design found online.`\
+https://nytimes.com/2024/12/12/us/unitedhealthcare-luigi-mangione-gun.html
+
 **Until Saturday: Will Bill Belichick at UNC work? Plus, Oregon's CFP seeding**\
 `Welcome to Until Saturday, the five-star college football newsletter: Will Belichick's move to college football at UNC work?`\
 https://nytimes.com/athletic/5989456/2024/12/12/bill-belichick-unc-oregon-cfp-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5990339/2024/12/12/bills-practice-canceled-snow-lio
 **Months Before C.E.O.’s Killing, the Suspect Went Silent. Where Was He?**\
 `New details are emerging about Luigi Mangione’s growing impatience with “a capitalist society” and his search for refuge in the mountains of Japan.`\
 https://nytimes.com/2024/12/12/us/luigi-mangione-gunman-united-healthcare-shooting.html
-
-**What’s Going On in This Picture? | Jan. 6, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/12/12/learning/whats-going-on-in-this-picture-jan-6-2025.html
-
-**UNLV hires former Florida coach Dan Mullen on 5-year deal**\
-`Mullen briefly took the Bulldogs to No. 1 in the inaugural College Football Playoff rankings during the 2014 season.`\
-https://nytimes.com/athletic/5988900/2024/12/12/unlv-dan-mullen-hire-coach/
 
