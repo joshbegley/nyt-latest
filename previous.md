@@ -1,3 +1,7 @@
+**Are Liverpool's fringe players ready to step up?**\
+`A closer look at the players Arne Slot may need to lean on in the busy coming weeks`\
+https://nytimes.com/athletic/5984772/2024/12/12/liverpool-squad-fixtures-fringe/
+
 **FPL: Who is the best 'fourth midfielder' for your team?**\
 `Holly Shand analyses the best midfield option to complement template trio Mohamed Salah, Bukayo Saka and Cole Palmer`\
 https://nytimes.com/athletic/5981025/2024/12/12/fantasy-premier-league-midfielder-mbeumo-enzo-rogers-bowen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980724/2024/12/12/luke-shaw-united-injury-reece-ja
 **Thursday Briefing**\
 `The latest from Syria.`\
 https://nytimes.com/2024/12/12/briefing/syria-fbi-scholz-tiger.html
-
-**Meta Donates $1 Million to Trump’s Inaugural Fund**\
-`The move follows a visit that Mark Zuckerberg, Meta’s chief executive, made last month to Mar-a-Lago to meet with President-elect Donald Trump.`\
-https://nytimes.com/2024/12/12/technology/meta-trump-inaugural-fund-donation.html
 

@@ -1,3 +1,7 @@
+**Are Liverpool's fringe players ready to step up?**\
+`A closer look at the players Arne Slot may need to lean on in the busy coming weeks`\
+https://nytimes.com/athletic/5984772/2024/12/12/liverpool-squad-fixtures-fringe/
+
 **FPL: Who is the best 'fourth midfielder' for your team?**\
 `Holly Shand analyses the best midfield option to complement template trio Mohamed Salah, Bukayo Saka and Cole Palmer`\
 https://nytimes.com/athletic/5981025/2024/12/12/fantasy-premier-league-midfielder-mbeumo-enzo-rogers-bowen/
