@@ -1,3 +1,7 @@
+**Raiders DE Charles Snowden arrested on suspicion of DUI**\
+`It is a misdemeanor charge and is Snowden’s first DUI offense.`\
+https://nytimes.com/athletic/5989322/2024/12/12/raiders-charles-snowden-dui/
+
 **What we're seeing with the Bucks: Damian Lillard's continuation, Khris Middleton's connections**\
 `With a little extra time before the Bucks take the floor for the NBA Cup in Las Vegas, let's look at one play, one player and one trend.`\
 https://nytimes.com/athletic/5977750/2024/12/12/damian-lillard-khris-middleton-bucks/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/5989127/2024/12/12/manchester-city-champions-league
 `What are the key matchups in the NBA Cup final four? Plus, remembering a weird Pacers-Bucks game-ball beef. `\
 https://nytimes.com/athletic/5981774/2024/12/12/nba-lookahead-nba-cup-bucks-hawks-rockets-thunder/
 
-**Tennis roundtable: After a year of umpiring controversy and doping confusion, what next?**\
+**Tennis roundtable: After a year of umpiring confusion and doping controversy, what next?**\
 `Rules and grey areas have been in the headlines on and off the court. What can tennis do to make things better?`\
 https://nytimes.com/athletic/5986258/2024/12/12/tennis-rules-umpiring-mistakes-doping-regulations/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/12/us/trump-news
 **Steph Curry falters, Steve Kerr rips officials after Warriors' collapse in Houston**\
 `A questionable late call had everyone fuming, but Golden State once again missed chances to put a game away down the stretch.`\
 https://nytimes.com/athletic/5987137/2024/12/12/warriors-nba-cup-steph-curry-steve-kerr-rockets/
-
-**Donald Trump Is Time Magazine’s Person of the Year**\
-`Mr. Trump also received the title in 2016, after his first presidential election victory. He has had a tempestuous relationship with the publication.`\
-https://nytimes.com/2024/12/12/us/politics/trump-time-person-year.html
 

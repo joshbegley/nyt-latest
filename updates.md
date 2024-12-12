@@ -1,3 +1,11 @@
+**Raiders DE Charles Snowden arrested on suspicion of DUI**\
+`It is a misdemeanor charge and is Snowden’s first DUI offense.`\
+https://nytimes.com/athletic/5989322/2024/12/12/raiders-charles-snowden-dui/
+
+**Tennis roundtable: After a year of umpiring confusion and doping controversy, what next?**\
+`Rules and grey areas have been in the headlines on and off the court. What can tennis do to make things better?`\
+https://nytimes.com/athletic/5986258/2024/12/12/tennis-rules-umpiring-mistakes-doping-regulations/
+
 **What we're seeing with the Bucks: Damian Lillard's continuation, Khris Middleton's connections**\
 `With a little extra time before the Bucks take the floor for the NBA Cup in Las Vegas, let's look at one play, one player and one trend.`\
 https://nytimes.com/athletic/5977750/2024/12/12/damian-lillard-khris-middleton-bucks/
