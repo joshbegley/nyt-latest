@@ -1,3 +1,15 @@
+**A New Female Designer Takes Center Stage**\
+`Bottega Veneta announced that Louise Trotter will replace Matthieu Blazy as creative director.`\
+https://nytimes.com/2024/12/12/style/bottega-veneta-matthieu-blazy-louise-trotter.html
+
+**The Furor Over Health Insurance in America**\
+`Readers discuss the anger over health insurance set off by the killing of a C.E.O. Also: Gun safety laws; money in politics.`\
+https://nytimes.com/2024/12/12/opinion/health-insurance-ceo-killing.html
+
+**Dwayne Haskins’ estate files dismissal in lawsuit over QB’s death**\
+`Haskins died in April 2022 at the age of 24 after he was hit by a dump truck while walking on a South Florida highway.`\
+https://nytimes.com/athletic/5989814/2024/12/12/dwayne-haskins-lawsuit-dismissal/
+
 **Judge John Hodgman on Elfin Magic**\
 `Are all elves magical? Or just some?`\
 https://nytimes.com/2024/12/12/magazine/judge-john-hodgman-on-elfin-magic.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5989245/2024/12/12/travis-hunter-heisman-broncos-su
 **Activist Who Told the World About Torture in Syria Is Laid to Rest**\
 `Mazen al-Hamada spread the word about the plight of Syrians and his own abuse in the Assad regime’s prisons. He was found dead in Syria this week.`\
 https://nytimes.com/2024/12/12/world/middleeast/mazen-al-hamada-syria-activist-dead.html
-
-**NFL Week 15 fantasy football, betting cheat sheet: Will Guerendo make it back for TNF?**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5984019/2024/12/12/nfl-week-15-fantasy-football-betting-cheat-sheet/
-
-**Perfect Instant Ramen**\
-`That’s what you get when you add an egg, a pat of butter and a slice or two of American cheese to a bowl of steaming noodles.`\
-https://nytimes.com/2024/12/12/dining/perfect-instant-ramen.html
-
-**Victor Brombert, Scholar With a Secret Army Past, Dies at 101**\
-`As a German Jewish teen, he fled the Nazis for America — then landed at D-Day and swept across Europe in a unit that gathered intelligence. Its work was hidden for decades.`\
-https://nytimes.com/2024/12/12/us/victor-brombert-dead.html
 
