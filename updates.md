@@ -1,3 +1,7 @@
+**University of Michigan May Fire D.E.I. Official Over Antisemitism Claim**\
+`The official, an administrator of multicultural programs, was accused of making antisemitic remarks in a conversation. She has denied the allegations.`\
+https://nytimes.com/2024/12/12/us/university-of-michigan-dei-administrator-antisemitism.html
+
 **Selena Gomez’s Engagement Ring Has People Talking**\
 `A lyrical Easter egg may have predicted her marquise diamond ring, which one jewelry designer calls “the hot stone of the moment.”`\
 https://nytimes.com/2024/12/12/style/selena-gomez-marquise-engagement-ring.html
