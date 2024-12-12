@@ -1,40 +1,40 @@
-**Here are the latest developments.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/here-are-the-latest-developments
+**Why Bill Belichick was forced to abandon hope of landing NFL job, pursuit of wins record**\
+`Belichick realized he was going to be a long shot in the next NFL hiring cycle. "He burned a lot of bridges over his career."`\
+https://nytimes.com/athletic/5988570/2024/12/12/bill-belichick-nfl-unc-hiring/
 
-**Live Updates: Blinken Arrives in Jordan for Talks on Syria**\
-`Secretary of State Antony J. Blinken was in Aqaba, Jordan, and planned to continue on to Turkey, as the Biden administration tries to manage the aftermath of Bashar al-Assad’s fall to Islamist rebels.`\
-https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels
+**F.B.I. Chief to Step Out of ‘the Fray,’ and Housing’s Terrible Year**\
+`Plus, a labor fight that could upend reality TV.`\
+https://nytimes.com/2024/12/12/podcasts/fbi-housing-market.html
 
-**How Chase Brown’s expanded role is quietly elevating Bengals offense**\
-`The second-year running back has been among the NFL's most productive players since taking over the job full-time.`\
-https://nytimes.com/athletic/5988653/2024/12/12/chase-browns-bengals-offense/
+**Red Wings' young core thriving despite disappointing season**\
+`The play of Detroit's youngest players has been one of the few bright spots of this Red Wings season.`\
+https://nytimes.com/athletic/5987605/2024/12/12/red-wings-raymond-seider-edvinsson-kasper/
 
-**Even the Wizards are surprised they're losing like this**\
-`This Wizards roster was designed to finish near the bottom, but losing so many games by so many points is brutal for the young players.`\
-https://nytimes.com/athletic/5987599/2024/12/12/wizards-nba-worst-record-player-development/
+**Patrick Mahomes and the Chiefs can’t keep getting away with this. Or can they?**\
+`The Chiefs' 15-game win streak in one-score games is a clear statistical outlier, but that doesn't mean it's driven by good fortune.`\
+https://nytimes.com/athletic/5984768/2024/12/12/patrick-mahomes-clutch-chiefs-close-games/
 
-**From No. 1 QB in the country to 'top-10 bust,' Max Browne has no regrets**\
-`"There's nothing that I'm embarrassed about," says former five-star recruit and Rivals.com "bust" Max Browne. `\
-https://nytimes.com/athletic/5986690/2024/12/12/college-football-quarterback-recruit-disappointment/
+**Bruins’ Trent Frederic, Jets’ David Gustafsson and the one-punch aftermath**\
+`Frederic dropped Gustafsson — who had no NHL fights to his name — with one punch and sent him into concussion protocol. `\
+https://nytimes.com/athletic/5988314/2024/12/12/bruins-jets-trent-frederic-david-gustafsson-fight/
 
-**What I Learned From a Reclusive Taliban Commander**\
-`Mullah Osman Jawhari led one of the deadliest assaults on American forces in Afghanistan, a battle that came to symbolize the war itself.`\
-https://nytimes.com/2024/12/12/world/asia/lessons-learned-from-taliban-commander.html
+**How first-time NHLer Anders Sorensen won over Blackhawks veterans in record time**\
+`The interim head coach never reached higher than the ECHL in his playing days, but he won over Chicago's NHL stalwarts after just two games.`\
+https://nytimes.com/athletic/5987997/2024/12/12/blackhawks-anders-sorensen-veterans/
 
-**How America Created the Enemy It Feared Most**\
-`The United States killed its own allies, sabotaging itself in a part of Afghanistan where it never needed to be.`\
-https://nytimes.com/2024/12/12/world/europe/afghanistan-allies-enemies-nuristan-taliban.html
+**How China Hacked America’s Phone Network**\
+`It’s an alarming new breach, and its scope demonstrates the growing power of one of the United States’ biggest adversaries.`\
+https://nytimes.com/2024/12/12/podcasts/the-daily/china-hack-america-phone-network.html
 
-**Raptors starting 5: Scottie Barnes makes a star exit, Jakob Poeltl is a tank-stopper**\
-`Elsewhere, Jonathan Mogbo and Kelly Olynyk get used to each other while Gradey Dick tries to improve in the paint.`\
-https://nytimes.com/athletic/5987705/2024/12/12/raptors-scottie-barnes-injury-jakob-poeltl/
+**Watch: ‘Is Creativity Dead?”**\
+`Is internet culture killing our creativity? Or, are powerful algorithms just hiding it?`\
+https://nytimes.com/2024/12/12/learning/watch-is-creativity-dead.html
 
-**How the Falcons make the playoffs: What they have to fix, who else has to lose**\
-`The Falcons, who make their second "Monday Night Football" appearance in Week 15, trail the Buccaneers by one game in the NFC South.`\
-https://nytimes.com/athletic/5986822/2024/12/12/how-falcons-make-playoffs/
+**How Wild prospect Charlie Stramel got his game back after transfer to Michigan State: 'Stick with this kid'**\
+`Brad Bombardir: “We’re starting to see glimpses. He’s starting to figure it out, and he knows that. He’s just scratching the surface."`\
+https://nytimes.com/athletic/5981663/2024/12/12/wild-charlie-stramel-transfer-resurgence/
 
-**Cowboys’ defensive roster questions for final 4 games: Big decisions loom at CB**\
-`DaRon Bland's next contract. Are Cowboys still figuring out what they have in Mazi Smith? Which veterans should be priorities to re-sign?`\
-https://nytimes.com/athletic/5986238/2024/12/12/cowboys-roster-questions-defense-daron-bland/
+**The Connections Companion No. 551**\
+`Scroll down for hints and conversation about the puzzle for Friday, Dec. 13, 2024.`\
+https://nytimes.com/2024/12/12/crosswords/connections-companion-551.html
 
