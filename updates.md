@@ -1,3 +1,11 @@
+**Hallmark’s First ‘Mr. Christmas’ Goes Home for the Holidays**\
+`And he’s single.`\
+https://nytimes.com/2024/12/12/style/finding-mr-christmas-winner-hallmark.html
+
+**Syrians Celebrate the Fall of Assad, and Rebuild From Tragedy**\
+`After five decades under a regime that had kept many in fear and poverty, families flooded back from Lebanon, eager to start the slow process of healing.`\
+https://nytimes.com/2024/12/12/world/middleeast/syria-assad-photos.html
+
 **Patel’s Warm Senate Welcome Reflects the G.O.P.’s Turn Against the F.B.I.**\
 `Senate Republicans have largely embraced President-elect Donald J. Trump’s pick to run the bureau, demonstrating that his anti-F.B.I. stance is now party orthodoxy.`\
 https://nytimes.com/2024/12/12/us/politics/kash-patel-republicans-fbi.html
