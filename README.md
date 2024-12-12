@@ -1,3 +1,7 @@
+**After a rough start, Trae Young and the red-hot Hawks are rolling through the NBA Cup**\
+`As the Hawks advance to the NBA Cup in Las Vegas, their new approach is finally proving to be the right move.`\
+https://nytimes.com/athletic/5988800/2024/12/12/nba-cup-atlanta-hawks-trae-young/
+
 **Trump Chooses Kari Lake to Lead Voice of America**\
 `Ms. Lake, a former TV news anchor turned right-wing firebrand who has called journalists “monsters,” would be in charge of a federally funded news outlet with a huge global audience.`\
 https://nytimes.com/2024/12/12/us/politics/kari-lake-voice-of-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974300/2024/12/12/players-2034-world-cup-lamal-bel
 **Marc Cucurella, kit men, and how players choose their boots**\
 `Boot warming, stud tightening, personalised sole plates - a lot goes into what a player has on their feet come matchday`\
 https://nytimes.com/athletic/5986577/2024/12/12/cucurella-football-boots-kit-men/
-
-**Naomi Layzell interview: 'I kept thinking I'd tarnished one of the best games of my life'**\
-`The Manchester City defender was making a big impression with her new club before injury struck in the best match of her career so far`\
-https://nytimes.com/athletic/5983520/2024/12/12/naomi-layzell-manchester-city-bristol-city/
 
