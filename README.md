@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5990129/2024/12/12/bills-lions-preview-josh-allen-j
 https://nytimes.com/2024/12/12/books/review/new-books-recommendations.html
 
 **Belichick introduced at UNC, says he 'always wanted to coach' in CFB**\
-`"Had some good years in the NFL so that was OK. But this is really a dream come true," Bill Belichick said at a news conference.`\
+`"Had some good years in the NFL so that was OK. But this is really a dream come true," Bill Belichick said at the news conference.`\
 https://nytimes.com/athletic/5990274/2024/12/12/bill-belichick-unc-football-introductory-news-conference/
 
 **Man Freed From Syrian Prison Appears to Be a Missing American**\
