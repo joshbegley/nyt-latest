@@ -1,3 +1,11 @@
+**N.C. Elections Board Rejects G.O.P. Effort to Toss 60,000 Ballots**\
+`The ruling comes in a dispute over a state Supreme Court race that the Democratic incumbent won by 734 votes`\
+https://nytimes.com/2024/12/11/us/north-carolina-election-ballots-republicans.html
+
+**MLB winter meetings notes: Why Garrett Crochet trade was a necessary first step for the Red Sox**\
+`Plus more on moves by the White Sox, Guardians, Blue Jays, Rangers and Marlins.`\
+https://nytimes.com/athletic/5988459/2024/12/11/mlb-winter-meetings-notes-why-garrett-crochet-trade-was-a-necessary-first-step-for-the-red-sox/
+
 **In making Kyle Tucker and Framber Valdez available, the Astros finally have clarity**\
 `Astros GM Dana Brown is known for evaluating talent. Now is his chance to utilize that skill to replenish Houston's farm system.`\
 https://nytimes.com/athletic/5988449/2024/12/11/astros-kyle-tucker-framber-valdez-trade-talks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5986562/2024/12/11/guardiola-usmnt-champions-league
 **USMNT milestone: Weston McKennie and Tim Weah combine for special Juventus strike**\
 `A big night for the USMNT's Champions League representatives was capped off by McKennie's fine goal for Juventus`\
 https://nytimes.com/athletic/5988062/2024/12/11/usmnt-juventus-mckennie-weah-champions-league/
-
-**Justin Herbert ruled out of Wednesday's practice with ankle injury, leg contusion**\
-`Herbert sustained the leg injuries during Los Angeles' loss to the Kansas City Chiefs on Sunday night`\
-https://nytimes.com/athletic/5988045/2024/12/11/justin-herbert-chargers-ankle-leg-contusion/
-
-**Phillies miss out on Garrett Crochet after offering top prospects at trade deadline**\
-`League sources portrayed the Phillies and White Sox as near trade partners in July. But this offseason, the Phillies' calculus changed.`\
-https://nytimes.com/athletic/5988070/2024/12/11/garrett-crochet-phillies-white-sox-trade-talks/
 
