@@ -1,3 +1,11 @@
+**Three Questions From Cutting-Edge Climate Science**\
+`An annual gathering of scientists this week offered a glimpse into the latest efforts to answer some of the most intriguing questions about our warming planet.`\
+https://nytimes.com/2024/12/12/climate/three-questions-from-cutting-edge-climate-science.html
+
+**Democrats Ask That Trump Cabinet Picks Produce Communications With Epshteyn**\
+`The two top Democrats on the Senate Judiciary Committee said prospective nominees should be prepared to testify about any discussions with Boris Epshteyn about their selections.`\
+https://nytimes.com/2024/12/12/us/politics/boris-epshteyn-senate.html
+
 **Los Angeles Times Owner Wades Deeper Into Opinion Section**\
 `Dr. Patrick Soon-Shiong’s public comments and actions, including recently blocking an editorial weighing in on President-elect Trump’s cabinet picks, have concerned many staff members.`\
 https://nytimes.com/2024/12/12/business/media/la-times-patrick-soon-shiong.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/style/finding-mr-christmas-winner-hallmark.html
 **Syrians Celebrate the Fall of Assad, and Rebuild From Tragedy**\
 `After five decades under a regime that had kept many in fear and poverty, families flooded back from Lebanon, eager to start the slow process of healing.`\
 https://nytimes.com/2024/12/12/world/middleeast/syria-assad-photos.html
-
-**Patel’s Warm Senate Welcome Reflects the G.O.P.’s Turn Against the F.B.I.**\
-`Senate Republicans have largely embraced President-elect Donald J. Trump’s pick to run the bureau, demonstrating that his anti-F.B.I. stance is now party orthodoxy.`\
-https://nytimes.com/2024/12/12/us/politics/kash-patel-republicans-fbi.html
-
-**Oldest Human Genomes Reveal How a Small Group Burst Out of Africa**\
-`DNA from European fossils dating back 45,000 years offers new clues to how our species spread across the world.`\
-https://nytimes.com/2024/12/12/science/oldest-human-genomes-lrj-neanderthals.html
 
