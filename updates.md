@@ -1,3 +1,15 @@
+**The Stock Market and TV: Trump’s Most Durable Guardrails**\
+`The curbs on President-elect Donald J. Trump’s impulses are mostly gone, but the old standbys are still in effect, people close to him say.`\
+https://nytimes.com/2024/12/12/us/politics/trump-tv-stock-market.html
+
+**Ducks' Trevor Zegras out 6 weeks after knee surgery**\
+`The Anaheim Ducks announced that Trevor Zegras will be sidelined for at least six weeks after the forward underwent surgery on Thursday to repair a torn meniscus in his right knee.`\
+https://nytimes.com/athletic/5990580/2024/12/12/zegras-ducks-knee-surgery/
+
+**‘No Good Deed’ Is Star-Studded California Gothic**\
+`Lisa Kudrow and Ray Romano star as a Los Angeles couple with secrets trying to sell their house. Things get complicated quickly.`\
+https://nytimes.com/2024/12/12/arts/television/no-good-deed-netflix.html
+
 **Friday Briefing: Israeli Forces to Stay in Syria for Now**\
 `Plus, British pubs are scrambling for Guinness.`\
 https://nytimes.com/2024/12/12/briefing/syria-trump-afghanistan.html
