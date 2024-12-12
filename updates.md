@@ -1,3 +1,7 @@
+**NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
+`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
+https://nytimes.com/athletic/5966084/2024/12/12/nfl-draft-2025-underclassmen-tracker-early-entrants/
+
 **A Cozy House, a Spooky Setting and a Leap of Faith: Creative Writing by Teens**\
 `Some favorite student responses to three recent Picture Prompts.`\
 https://nytimes.com/2024/12/12/learning/a-cozy-house-a-spooky-setting-and-a-leap-of-faith-creative-writing-by-teens.html
