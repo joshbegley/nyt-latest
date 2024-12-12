@@ -1,3 +1,7 @@
+**In Defiant Speech, South Korea’s President Defends Martial Law Decree**\
+`President Yoon Suk Yeol vowed to “fight to the end,” despite the opposition’s push to impeach him and his own party’s demand that he resign from office.`\
+https://nytimes.com/2024/12/11/world/asia/yoon-south-korea-martial-law.html
+
 **Dean of Students at Massachusetts School Charged With Conspiring to Traffic Cocaine**\
 `Federal prosecutors said Lavante Wiggins of Pittsfield High School and another man had conspired to traffic “large quantities” of the drug in western Massachusetts.`\
 https://nytimes.com/2024/12/11/us/massachusetts-high-school-dean-cocaine-trafficking.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5988459/2024/12/11/mlb-winter-meetings-notes-garret
 **In making Kyle Tucker and Framber Valdez available, the Astros finally have clarity**\
 `Astros GM Dana Brown is known for evaluating talent. Now is his chance to utilize that skill to replenish Houston's farm system.`\
 https://nytimes.com/athletic/5988449/2024/12/11/astros-kyle-tucker-framber-valdez-trade-talks/
-
-**Promoter of ‘Stop the Steal’ Is Choice for Management and Budget Staff Chief**\
-`President-elect Donald J. Trump selected Ed Martin, a Missouri Republican with a long track record as an anti-abortion activist, for a top position in the agency that administers the budget.`\
-https://nytimes.com/2024/12/11/us/politics/ed-martin-trump-office-management-budget.html
 
