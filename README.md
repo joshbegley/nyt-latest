@@ -1,3 +1,7 @@
+**A Cozy House, a Spooky Setting and a Leap of Faith: Creative Writing by Teens**\
+`Some favorite student responses to three recent Picture Prompts.`\
+https://nytimes.com/2024/12/12/learning/a-cozy-house-a-spooky-setting-and-a-leap-of-faith-creative-writing-by-teens.html
+
 **Betting for (by) dummies: Can the Chiefs keep getting away with this? Plus Army-Navy picks**\
 `Jon Greenberg and Zac Jackson are coming off the high of their alma mater winning the MAC (and the low of the coach leaving).`\
 https://nytimes.com/athletic/5990303/2024/12/12/betting-for-by-dummies-chiefs-army-navy/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/business/media/la-times-patrick-soon-shiong.html
 **The Briefing: Viktoria Plzen 1 Manchester United 2 - Hojlund's deadly double, Onana's error and Zirkzee's woes**\
 `Mark Critchley breaks down the main talking points from Manchester United's 2-1 win at Viktoria Plzen`\
 https://nytimes.com/athletic/5986480/2024/12/12/viktoria-plzen-1-manchester-united-2-hojlund-zirkzee-onana/
-
-**Lions-Bills preview: There will be lots of points, but which team has the edge?**\
-`Injuries have hit the Lions' defense hard while the Bills are coming off a disastrous defensive performance.`\
-https://nytimes.com/athletic/5990129/2024/12/12/bills-lions-preview-josh-allen-jared-goff/
 
