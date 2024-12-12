@@ -1,3 +1,23 @@
+**Oh, to Smell Like Trump**\
+`The president-elect is marketing new merch. It reeks.`\
+https://nytimes.com/2024/12/12/opinion/trump-cologne-perfume.html
+
+**The Geminids Meteor Shower Is Peaking. Here’s How to Watch.**\
+`The shower forms from the debris of an asteroid and peaks this weekend. But a nearly full moon could interfere with viewing.`\
+https://nytimes.com/2024/12/12/science/geminids-meteor-shower.html
+
+**How U.S. Firms Battled a Government Crackdown to Keep Tech Sales to China**\
+`An intense struggle has unfolded in Washington between companies and officials over where to draw the line on selling technology to China.`\
+https://nytimes.com/2024/12/12/us/politics/tech-sales-china-huawei.html
+
+**‘Dirty Angels’ Review: Women on a Mission**\
+`In this heavy-handed action movie, Eva Green plays a Marine who leads a squad trying to rescue schoolgirls in Afghanistan.`\
+https://nytimes.com/2024/12/12/movies/dirty-angels-review.html
+
+**Heat Today: Bam Adebayo, Haywood Highsmith deserve credit for Heat's improved defense**\
+`The Heat remain committed to improving their defense as Jimmy Butler rumors swirl.`\
+https://nytimes.com/athletic/5989812/2024/12/12/heat-erik-spoelstra-bam-adebayo-haywood-highsmith-jimmy-butler-nba/
+
 **A New Female Designer Takes Center Stage**\
 `Bottega Veneta announced that Louise Trotter will replace Matthieu Blazy as creative director.`\
 https://nytimes.com/2024/12/12/style/bottega-veneta-matthieu-blazy-louise-trotter.html
