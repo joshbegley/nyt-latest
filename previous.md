@@ -1,3 +1,7 @@
+**C.E.O.s Are Tripping**\
+`Why executives are using psychedelics to get ahead.`\
+https://nytimes.com/2024/12/12/briefing/ceos-are-tripping.html
+
 **Chiefs' off-the-couch additions becoming necessary part of their three-peat drive**\
 `Retired cornerback Steven Nelson joins Kareem Hunt, Matthew Wright and D.J. Humphries as midseason free agents who came to the Chiefs.`\
 https://nytimes.com/athletic/5988269/2024/12/12/chiefs-midseason-additions-kareem-hunt-steven-nelson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5988314/2024/12/12/bruins-jets-trent-frederic-david
 **How first-time NHLer Anders Sorensen won over Blackhawks veterans in record time**\
 `The interim head coach never reached higher than the ECHL in his playing days, but he won over Chicago's NHL stalwarts after just two games.`\
 https://nytimes.com/athletic/5987997/2024/12/12/blackhawks-anders-sorensen-veterans/
-
-**How China Hacked America’s Phone Network**\
-`It’s an alarming new breach, and its scope demonstrates the growing power of one of the United States’ biggest adversaries.`\
-https://nytimes.com/2024/12/12/podcasts/the-daily/china-hack-america-phone-network.html
 

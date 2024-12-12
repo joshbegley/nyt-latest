@@ -1,3 +1,7 @@
+**C.E.O.s Are Tripping**\
+`Why executives are using psychedelics to get ahead.`\
+https://nytimes.com/2024/12/12/briefing/ceos-are-tripping.html
+
 **Chiefs' off-the-couch additions becoming necessary part of their three-peat drive**\
 `Retired cornerback Steven Nelson joins Kareem Hunt, Matthew Wright and D.J. Humphries as midseason free agents who came to the Chiefs.`\
 https://nytimes.com/athletic/5988269/2024/12/12/chiefs-midseason-additions-kareem-hunt-steven-nelson/
