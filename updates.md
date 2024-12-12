@@ -1,3 +1,7 @@
+**‘Carry On’ Review: Travel Nightmares Amplified**\
+`In this tense thriller, Taron Egerton plays a T.S.A. agent who goes up against an implacable terrorist (Jason Bateman). The man has a funny idea of what he wants to bring on a plane.`\
+https://nytimes.com/2024/12/12/movies/carry-on-review.html
+
 **An Easy Holiday Manicure With a Secret Ingredient**\
 `The nail artist Mei Kawajiri shares a festive nail design you can recreate at home in just five steps, using products you probably already own.`\
 https://nytimes.com/2024/12/12/t-magazine/simple-holiday-manicure.html
