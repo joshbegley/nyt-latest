@@ -1,3 +1,19 @@
+**Dommaraju Gukesh, 18, Becomes Youngest World Chess Champion**\
+`It had been an unexpectedly close contest in Singapore with Ding Liren. When he won, the normally stoic Gukesh clasped his hands at the board and burst into tears.`\
+https://nytimes.com/2024/12/12/sports/gukesh-world-chess-championship-2024.html
+
+**Broncos LT Garett Bolles agrees to 4-year extension**\
+`Bolles, a first-round pick of the Broncos in 2017, has been the team’s starter at left tackle since his rookie season.`\
+https://nytimes.com/athletic/5990184/2024/12/12/garett-bolles-broncos-extension/
+
+**The Briefing: Astana 1 Chelsea 3: Acheampong impresses, Chukwuemeka's rare start, academy joy**\
+`Chelsea overcame Astana in the Europa Conference League on Thursday night`\
+https://nytimes.com/athletic/5990137/2024/12/12/chelsea-astana-conference-league-analysis/
+
+**Rebel Group’s Terrorist Label Could Hinder Efforts to Aid Syria**\
+`The United States and others call Hayat Tahrir al-Sham, now taking power in Syria, a terrorist group, blocking funding and even contact with the group. Experts say that should change.`\
+https://nytimes.com/2024/12/12/world/middleeast/syria-rebel-terrorist-designation.html
+
 **F.T.C. Sues Largest U.S. Alcohol Distributor for Illegal Pricing**\
 `The suit, under a long-dormant antitrust law, accuses Southern Glazer’s of charging small businesses “drastically” more than big chains.`\
 https://nytimes.com/2024/12/12/business/ftc-alcohol-lawsuit-illegal-pricing.html
