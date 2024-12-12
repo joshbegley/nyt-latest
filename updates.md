@@ -1,3 +1,15 @@
+**Trump Transition Live Updates: Kari Lake Is Chosen to Lead Voice of America**\
+``\
+https://nytimes.com/live/2024/12/12/us/trump-news
+
+**Steph Curry falters, Steve Kerr rips officials after Warriors' collapse in Houston**\
+`A questionable late call had everyone fuming, but Golden State once again missed chances to put a game away down the stretch.`\
+https://nytimes.com/athletic/5987137/2024/12/12/warriors-nba-cup-steph-curry-steve-kerr-rockets/
+
+**Donald Trump Is Time Magazine’s Person of the Year**\
+`Mr. Trump also received the title in 2016, after his first presidential election victory. He has had a tempestuous relationship with the publication.`\
+https://nytimes.com/2024/12/12/us/politics/trump-time-person-year.html
+
 **China Pledges More Stimulus to Shore Up Flagging Economy**\
 `At a meeting to set the party’s economic policy agenda, China’s leadership said it would borrow more and cut interest rates in a bid to bolster growth.`\
 https://nytimes.com/2024/12/12/business/china-economy-2025-priorities.html

@@ -1,3 +1,15 @@
+**Trump Transition Live Updates: Kari Lake Is Chosen to Lead Voice of America**\
+``\
+https://nytimes.com/live/2024/12/12/us/trump-news
+
+**Steph Curry falters, Steve Kerr rips officials after Warriors' collapse in Houston**\
+`A questionable late call had everyone fuming, but Golden State once again missed chances to put a game away down the stretch.`\
+https://nytimes.com/athletic/5987137/2024/12/12/warriors-nba-cup-steph-curry-steve-kerr-rockets/
+
+**Donald Trump Is Time Magazine’s Person of the Year**\
+`Mr. Trump also received the title in 2016, after his first presidential election victory. He has had a tempestuous relationship with the publication.`\
+https://nytimes.com/2024/12/12/us/politics/trump-time-person-year.html
+
 **China Pledges More Stimulus to Shore Up Flagging Economy**\
 `At a meeting to set the party’s economic policy agenda, China’s leadership said it would borrow more and cut interest rates in a bid to bolster growth.`\
 https://nytimes.com/2024/12/12/business/china-economy-2025-priorities.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5989088/2024/12/12/callum-wilson-injury-newcastle-h
 **Broncos defense eager to respond vs. Colts following 'Monday Night Football' flop**\
 `After giving up 475 yards passing to Jameis Winston, Denver faces a "completely different type of challenge" in Colts QB Anthony Richardson.`\
 https://nytimes.com/athletic/5987563/2024/12/12/broncos-defense-colts-richardson/
-
-**‘Young Werther’ Review: Updating an 18th-Century Love Triangle**\
-`This charming film, starring Douglas Booth and Alison Pill, bridges the gap between Goethe’s novel and the adaptation’s modern New York City setting.`\
-https://nytimes.com/2024/12/12/movies/young-werther-review.html
-
-**‘The Man in the White Van’ Review: Sleazy Rider**\
-`In this derivative thriller, set in the early 1970s, young women are stalked by an anonymous killer.`\
-https://nytimes.com/2024/12/12/movies/the-man-in-the-white-van-review-sleazy-rider.html
-
-**Explaining the FPL Assistant Manager chip and how to use it**\
-`FPL has a new chip to play - and this is everything you need to know about how to deploy it`\
-https://nytimes.com/athletic/5987297/2024/12/12/fantasy-premier-league-assistant-manager-chip-explained/
 
