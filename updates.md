@@ -1,3 +1,15 @@
+**Belichick and the elite soccer coaches who traded the top of the game for the lower levels**\
+`Belichick, 72, is entering an entirely different landscape. In the soccer world, it's comparable to dropping down the leagues`\
+https://nytimes.com/athletic/5989638/2024/12/12/bill-belichick-premier-league-soccer/
+
+**Crowdfunding account for Matt Petgrave launched amid Adam Johnson manslaughter investigation**\
+`A crowdfunding account purporting to belong to U.`\
+https://nytimes.com/athletic/5989919/2024/12/12/adam-johnson-hockey-matt-petgrave/
+
+**A Pint-Sized Problem? British Pubs Are Running Out of Guinness**\
+`Guinness’s parent company has limited the amount of the beer that U.K. wholesalers and distributors can buy each week, after surging demand led to fears of shortages.`\
+https://nytimes.com/2024/12/12/world/europe/britain-guinness-shortages-limits.html
+
 **Why Do Some Rebel Governments Last When Others Fall?**\
 `One factor matters most, and it could be a problem in Syria.`\
 https://nytimes.com/2024/12/12/world/middleeast/syria-rebel-government.html

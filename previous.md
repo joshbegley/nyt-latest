@@ -1,3 +1,15 @@
+**Belichick and the elite soccer coaches who traded the top of the game for the lower levels**\
+`Belichick, 72, is entering an entirely different landscape. In the soccer world, it's comparable to dropping down the leagues`\
+https://nytimes.com/athletic/5989638/2024/12/12/bill-belichick-premier-league-soccer/
+
+**Crowdfunding account for Matt Petgrave launched amid Adam Johnson manslaughter investigation**\
+`A crowdfunding account purporting to belong to U.`\
+https://nytimes.com/athletic/5989919/2024/12/12/adam-johnson-hockey-matt-petgrave/
+
+**A Pint-Sized Problem? British Pubs Are Running Out of Guinness**\
+`Guinness’s parent company has limited the amount of the beer that U.K. wholesalers and distributors can buy each week, after surging demand led to fears of shortages.`\
+https://nytimes.com/2024/12/12/world/europe/britain-guinness-shortages-limits.html
+
 **Mayor Adams Meets Trump’s ‘Border Czar’ as Immigration Crackdown Looms**\
 `Thomas D. Homan, President-elect Donald J. Trump’s designated border czar, has cited Eric Adams’s willingness to work together as a model for Democratic mayors.`\
 https://nytimes.com/2024/12/12/nyregion/adams-homan-meeting-migrants.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/12/us/trump-wisconsin-election-interference.html
 **How to Make Sense of the Fluoride Debate**\
 `Robert F. Kennedy Jr. has said he wants to curb water fluoridation nationwide. Here’s what the science shows about the benefits and the risks.`\
 https://nytimes.com/2024/12/12/well/fluoride-water-health-pregnancy-children.html
-
-**Selena Gomez and Benny Blanco Announce Their Engagement. The Internet Rejoices.**\
-`The couple, who have been publicly discussing their relationship for a year, were deluged with congratulations on social media.`\
-https://nytimes.com/2024/12/12/arts/music/selena-gomez-benny-blanco-engagement.html
-
-**Minnesota and New Jersey Sue Glock Over Lethal Add-On for Guns**\
-`The two suits claim the company’s leaders have known for decades that significant design characteristics of the weapon make it susceptible to conversion to a machine gun.`\
-https://nytimes.com/2024/12/12/us/glock-minnesota-new-jersey-lawsuit-machine-guns.html
-
-**Brian Thompson, Not Luigi Mangione, Is the Real Working-Class Hero**\
-`He’s a model for how a talented, determined man from humble roots can rise to the top of corporate life.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/brian-thompson-luigi-mangione
 
