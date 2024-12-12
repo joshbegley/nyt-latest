@@ -1,3 +1,11 @@
+**Activist Who Told the World About Torture in Syria Is Laid to Rest**\
+`Mazen al-Hamada spread the word about the plight of Syrians and his own abuse in the Assad regime’s prisons. He was found dead in Syria this week.`\
+https://nytimes.com/2024/12/12/world/middleeast/mazen-al-hamada-syria-activist-dead.html
+
+**NFL Week 15 fantasy football, betting cheat sheet: Will Guerendo make it back for TNF?**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5984019/2024/12/12/nfl-week-15-fantasy-football-betting-cheat-sheet/
+
 **Perfect Instant Ramen**\
 `That’s what you get when you add an egg, a pat of butter and a slice or two of American cheese to a bowl of steaming noodles.`\
 https://nytimes.com/2024/12/12/dining/perfect-instant-ramen.html
