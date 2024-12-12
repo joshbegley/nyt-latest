@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5988495/2024/12/11/red-sox-garrett-crochet-inside-trade/
 
 **In Defiant Speech, South Korea’s President Defends Martial Law Decree**\
-`President Yoon Suk Yeol vowed to “fight to the end,” despite the opposition’s push to impeach him and his own party’s demand that he resign from office.`\
+`President Yoon Suk Yeol vowed to “fight to the end,” despite the opposition’s push to impeach him and his own party’s demand that he resign.`\
 https://nytimes.com/2024/12/11/world/asia/yoon-south-korea-martial-law.html
 
 **Dean of Students at Massachusetts School Charged With Conspiring to Traffic Cocaine**\
