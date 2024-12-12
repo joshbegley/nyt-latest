@@ -1,3 +1,7 @@
+**Bad News, Democrats: America Is About to Get Even Redder**\
+`Americans are fleeing unaffordable blue states – and they’re taking the electoral college with them.`\
+https://nytimes.com/video/opinion/100000009863136/states-democrats-republicans-affordability.html
+
 **Rights Groups See a Chance to Seek Justice for Syrian Regime’s Victims**\
 `It seems unlikely that deposed President Bashar al-Assad, who fled to Russia, will be forced to stand trial. That is not deterring activists who have worked for years to document his government’s crimes.`\
 https://nytimes.com/2024/12/12/world/middleeast/syria-assad-regime-crimes.html

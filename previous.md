@@ -1,3 +1,7 @@
+**Bad News, Democrats: America Is About to Get Even Redder**\
+`Americans are fleeing unaffordable blue states – and they’re taking the electoral college with them.`\
+https://nytimes.com/video/opinion/100000009863136/states-democrats-republicans-affordability.html
+
 **Rights Groups See a Chance to Seek Justice for Syrian Regime’s Victims**\
 `It seems unlikely that deposed President Bashar al-Assad, who fled to Russia, will be forced to stand trial. That is not deterring activists who have worked for years to document his government’s crimes.`\
 https://nytimes.com/2024/12/12/world/middleeast/syria-assad-regime-crimes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/nyregion/grocery-stores-city-owned.html
 **How the Resurrected Congestion Pricing Plan Could Die in the Courts**\
 `Manhattan’s new tolling program is still being challenged in federal and state courts, with rulings possible before it begins on Jan. 5.`\
 https://nytimes.com/2024/12/12/nyregion/nyc-congestion-pricing-lawsuits.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/12/crosswords/spelling-bee-forum.html
 
