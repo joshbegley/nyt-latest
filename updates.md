@@ -1,3 +1,15 @@
+**A New Female Designer Takes Center Stage**\
+`Bottega Veneta announced that Louise Trotter will replace Matthieu Blazy as creative director.`\
+https://nytimes.com/2024/12/12/style/bottega-veneta-matthieu-blazy-louise-trotter.html
+
+**The Furor Over Health Insurance in America**\
+`Readers discuss the anger over health insurance set off by the killing of a C.E.O. Also: Gun safety laws; money in politics.`\
+https://nytimes.com/2024/12/12/opinion/health-insurance-ceo-killing.html
+
+**Dwayne Haskins’ estate files dismissal in lawsuit over QB’s death**\
+`Haskins died in April 2022 at the age of 24 after he was hit by a dump truck while walking on a South Florida highway.`\
+https://nytimes.com/athletic/5989814/2024/12/12/dwayne-haskins-lawsuit-dismissal/
+
 **Judge John Hodgman on Elfin Magic**\
 `Are all elves magical? Or just some?`\
 https://nytimes.com/2024/12/12/magazine/judge-john-hodgman-on-elfin-magic.html
