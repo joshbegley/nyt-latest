@@ -1,3 +1,7 @@
+**Juan Soto says he wants to help Mets become 'a dynasty'**\
+`“To try to grow a dynasty is one of the most important things,” Juan Soto said at his introductory news conference with the Mets.`\
+https://nytimes.com/athletic/5990417/2024/12/12/juan-soto-mets-introduced-conference/
+
 **It’s Mutated Poker vs. Fantasy Worlds at the Game Awards**\
 `Balatro faces off against Final Fantasy VII Rebirth, Metaphor: ReFantazio and three other titles for game of the year at an annual showcase for the industry.`\
 https://nytimes.com/2024/12/12/arts/game-awards-winners.html
