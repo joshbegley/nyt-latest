@@ -1,3 +1,7 @@
+**How America Created the Enemy It Feared Most**\
+`The United States killed its own allies, sabotaging itself in a part of Afghanistan where it never needed to be.`\
+https://nytimes.com/2024/12/12/world/europe/afghanistan-allies-enemies-nuristan-taliban.html
+
 **Here are the latest developments.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/here-are-the-latest-developments
