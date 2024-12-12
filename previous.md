@@ -1,3 +1,15 @@
+**Edwards: The Knicks aren't close to NBA championship contenders**\
+`New York is in search of consistency, but how long is the grace period?`\
+https://nytimes.com/athletic/5988793/2024/12/12/knicks-not-close-to-championship-contenders/
+
+**Reyna had a good night against Barcelona but he remains Dortmund's lost boy**\
+`The USMNT midfielder is back in the conversation in Germany - but for how long?`\
+https://nytimes.com/athletic/5988511/2024/12/12/gio-reyna-dortmund-barcelona-usmnt/
+
+**Word of the Day: azure**\
+`This word has appeared in 55 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/12/learning/word-of-the-day-azure.html
+
 **Saka represents something profound for Arsenal - and for those young players hoping to follow him**\
 `The 23-year-old is a role model and an inspiration to younger players at the club who wish to take the same path to the first team`\
 https://nytimes.com/athletic/5988443/2024/12/12/bukayo-saka-arsenal-monaco/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/12/us/nba-youngboy-sentenced-gun-charges.html
 **Are Liverpool's fringe players ready to step up?**\
 `A closer look at the players Arne Slot may need to lean on in the busy coming weeks`\
 https://nytimes.com/athletic/5984772/2024/12/12/liverpool-squad-fixtures-fringe/
-
-**FPL: Who is the best 'fourth midfielder' for your team?**\
-`Holly Shand analyses the best midfield option to complement template trio Mohamed Salah, Bukayo Saka and Cole Palmer`\
-https://nytimes.com/athletic/5981025/2024/12/12/fantasy-premier-league-midfielder-mbeumo-enzo-rogers-bowen/
-
-**Chelsea's wingers keep finding themselves in one-v-one situations - and it's not by chance**\
-`We explain the system Enzo Maresca has built that ensures his wide players get the ball in high-value positions`\
-https://nytimes.com/athletic/5986276/2024/12/12/chelsea-wingers-one-v-one-tactic-maresca/
-
-**It's too early to say Juventus are back - this is still a team in transition**\
-`Beating Manchester City 2-0 was encouraging but it remains to be seen if Motta's side can build on a statement Champions League win`\
-https://nytimes.com/athletic/5988172/2024/12/12/juventus-manchester-city-champions-league/
 
