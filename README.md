@@ -1,6 +1,6 @@
 **Trump Transition Live Updates: Kari Lake Is Chosen to Lead Voice of America**\
 ``\
-https://nytimes.com/live/2024/12/12/us/trump-news-
+https://nytimes.com/live/2024/12/12/us/trump-news
 
 **Steph Curry falters, Steve Kerr rips officials after Warriors' collapse in Houston**\
 `A questionable late call had everyone fuming, but Golden State once again missed chances to put a game away down the stretch.`\
