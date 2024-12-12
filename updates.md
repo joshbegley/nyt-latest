@@ -1,3 +1,19 @@
+**Bill Belichick's Day 1 to-do list: What a new college coach must consider**\
+`What should Belichick prioritize as he takes over a college program for the first time?`\
+https://nytimes.com/athletic/5989537/2024/12/12/bill-belichick-unc-football-commits-transfer-portal/
+
+**Stripping Away the Symbols of the Assad Regime**\
+`Text by Matthew Cassel and Alessandro Pavone`\
+https://nytimes.com/card/2024/12/12/world/middleeast/stripping-away-the-symbols-of-the-assad-regime
+
+**U.S. Couple on Holiday Visit Are Shot and Killed in Western Mexico**\
+`The killings, and other violent episodes this year, have marred the first few months in office of Mexico’s new president, who has vowed to tackle the country’s bloodshed.`\
+https://nytimes.com/2024/12/12/world/americas/americans-killed-mexico.html
+
+**Feldman: No reason Belichick can't have success at UNC. Just don't expect him to last long**\
+`From the outside, the Bill Belichick hire at UNC is shocking. But those who know him think it can work. It's just: For how long?`\
+https://nytimes.com/athletic/5990145/2024/12/12/bill-belichick-unc-coaching-success-college-football/
+
 **Ducks' Trevor Zegras out 6 weeks after knee surgery**\
 `This is the third injury within the last 13 months that will keep Zegras out for a significant amount of time.`\
 https://nytimes.com/athletic/5990580/2024/12/12/zegras-ducks-knee-surgery/
