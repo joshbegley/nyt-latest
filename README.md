@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5989826/2024/12/12/garrett-crochet-trade-red-sox-th
 https://nytimes.com/interactive/2024/12/12/theater/oh-mary-broadway.html
 
 **Travis Hunter's Heisman backers include Broncos Pat Surtain II and Courtland Sutton**\
-`Colorado's two-way phenom has caught the attention of stars in locker room of the Buffaloes' neighboring NFL team.`\
+`Colorado's two-way phenom has caught the attention of stars in the locker room of the Buffaloes' neighboring NFL team.`\
 https://nytimes.com/athletic/5989245/2024/12/12/travis-hunter-heisman-broncos-surtain-sutton/
 
 **Activist Who Told the World About Torture in Syria Is Laid to Rest**\
