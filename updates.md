@@ -1,3 +1,11 @@
+**N.C. Elections Board Rejects G.O.P. Effort to Toss 60,000 Ballots**\
+`The ruling comes in a dispute over a state Supreme Court race that the Democratic incumbent won by 734 votes`\
+https://nytimes.com/2024/12/11/us/north-carolina-election-ballots-republicans.html
+
+**MLB winter meetings notes: Why Garrett Crochet trade was a necessary first step for the Red Sox**\
+`Plus more on moves by the White Sox, Guardians, Blue Jays, Rangers and Marlins.`\
+https://nytimes.com/athletic/5988459/2024/12/11/mlb-winter-meetings-notes-why-garrett-crochet-trade-was-a-necessary-first-step-for-the-red-sox/
+
 **Promoter of ‘Stop the Steal’ Is Choice for Management and Budget Staff Chief**\
 `President-elect Donald J. Trump selected Ed Martin, a Missouri Republican with a long track record as an anti-abortion activist, for a top position in the agency that administers the budget.`\
 https://nytimes.com/2024/12/11/us/politics/ed-martin-trump-office-management-budget.html
