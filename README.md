@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/here-are-the-latest-developments
+
+**Live Updates: Blinken Arrives in Jordan for Talks on Syria**\
+`Secretary of State Antony J. Blinken was in Aqaba, Jordan, and planned to continue on to Turkey, as the Biden administration tries to manage the aftermath of Bashar al-Assad’s fall to Islamist rebels.`\
+https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels
+
 **How Chase Brown’s expanded role is quietly elevating Bengals offense**\
 `The second-year running back has been among the NFL's most productive players since taking over the job full-time.`\
 https://nytimes.com/athletic/5988653/2024/12/12/chase-browns-bengals-offense/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5986822/2024/12/12/how-falcons-make-playoffs/
 **Cowboys’ defensive roster questions for final 4 games: Big decisions loom at CB**\
 `DaRon Bland's next contract. Are Cowboys still figuring out what they have in Mazi Smith? Which veterans should be priorities to re-sign?`\
 https://nytimes.com/athletic/5986238/2024/12/12/cowboys-roster-questions-defense-daron-bland/
-
-**Hollinger: These players are threatening to make 2024 an upside-down draft**\
-`Second-rounders and undrafted players have been able to make immediate impacts across the league.`\
-https://nytimes.com/athletic/5980470/2024/12/12/jaylen-wells-kyle-filipowski-nba-rookies/
-
-**Biden Has a Pair of Gifts for Trump**\
-`What will the president-elect do with them?`\
-https://nytimes.com/2024/12/12/opinion/syria-trump-ukraine-israel-biden.html
 
