@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5986690/2024/12/12/college-football-quarterback-rec
 https://nytimes.com/2024/12/12/world/asia/lessons-learned-from-taliban-commander.html
 
 **How America Created the Enemy It Feared Most**\
-`The United States killed it own allies, sabotaging itself in a part of Afghanistan where it never needed to be.`\
+`The United States killed its own allies, sabotaging itself in a part of Afghanistan where it never needed to be.`\
 https://nytimes.com/2024/12/12/world/europe/afghanistan-allies-enemies-nuristan-taliban.html
 
 **Raptors starting 5: Scottie Barnes makes a star exit, Jakob Poeltl is a tank-stopper**\
