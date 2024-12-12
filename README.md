@@ -1,3 +1,19 @@
+**Dommaraju Gukesh, 18, Becomes Youngest World Chess Champion**\
+`It had been an unexpectedly close contest in Singapore with Ding Liren. When he won, the normally stoic Gukesh clasped his hands at the board and burst into tears.`\
+https://nytimes.com/2024/12/12/sports/gukesh-world-chess-championship-2024.html
+
+**Broncos LT Garett Bolles agrees to 4-year extension**\
+`Bolles, a first-round pick of the Broncos in 2017, has been the team’s starter at left tackle since his rookie season.`\
+https://nytimes.com/athletic/5990184/2024/12/12/garett-bolles-broncos-extension/
+
+**The Briefing: Astana 1 Chelsea 3: Acheampong impresses, Chukwuemeka's rare start, academy joy**\
+`Chelsea overcame Astana in the Europa Conference League on Thursday night`\
+https://nytimes.com/athletic/5990137/2024/12/12/chelsea-astana-conference-league-analysis/
+
+**Rebel Group’s Terrorist Label Could Hinder Efforts to Aid Syria**\
+`The United States and others call Hayat Tahrir al-Sham, now taking power in Syria, a terrorist group, blocking funding and even contact with the group. Experts say that should change.`\
+https://nytimes.com/2024/12/12/world/middleeast/syria-rebel-terrorist-designation.html
+
 **F.T.C. Sues Largest U.S. Alcohol Distributor for Illegal Pricing**\
 `The suit, under a long-dormant antitrust law, accuses Southern Glazer’s of charging small businesses “drastically” more than big chains.`\
 https://nytimes.com/2024/12/12/business/ftc-alcohol-lawsuit-illegal-pricing.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5989919/2024/12/12/adam-johnson-hockey-matt-petgrav
 **A Pint-Sized Problem? British Pubs Are Running Out of Guinness**\
 `Guinness’s parent company has limited the amount of the beer that U.K. wholesalers and distributors can buy each week, after surging demand led to fears of shortages.`\
 https://nytimes.com/2024/12/12/world/europe/britain-guinness-shortages-limits.html
-
-**Mayor Adams Meets Trump’s ‘Border Czar’ as Immigration Crackdown Looms**\
-`Thomas D. Homan, President-elect Donald J. Trump’s designated border czar, has cited Eric Adams’s willingness to work together as a model for Democratic mayors.`\
-https://nytimes.com/2024/12/12/nyregion/adams-homan-meeting-migrants.html
-
-**Why Do Some Rebel Governments Last When Others Fall?**\
-`One factor matters most, and it could be a problem in Syria.`\
-https://nytimes.com/2024/12/12/world/middleeast/syria-rebel-government.html
-
-**How to Stir the Pot With Your Family (in a Good Way)**\
-`Vegetarian lasagna Bolognese, hand-pulled noodles and pupusas welcome extra helping hands.`\
-https://nytimes.com/2024/12/12/dining/vegetarian-lasagna-hand-pulled-noodles-pupusas.html
-
-**Trump’s Choice to Run Energy Says Fossil Fuels Are Virtuous**\
-`Chris Wright, Donald Trump’s pick for energy secretary, says oil, gas and coal are key to solving global poverty. Some call that misleading.`\
-https://nytimes.com/2024/12/12/climate/wright-trump-oil-gas-energy.html
 
