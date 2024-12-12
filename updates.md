@@ -1,3 +1,7 @@
+**After a rough start, Trae Young and the red-hot Hawks are rolling through the NBA Cup**\
+`As the Hawks advance to the NBA Cup in Las Vegas, their new approach is finally proving to be the right move.`\
+https://nytimes.com/athletic/5988800/2024/12/12/nba-cup-atlanta-hawks-trae-young/
+
 **Trump Chooses Kari Lake to Lead Voice of America**\
 `Ms. Lake, a former TV news anchor turned right-wing firebrand who has called journalists “monsters,” would be in charge of a federally funded news outlet with a huge global audience.`\
 https://nytimes.com/2024/12/12/us/politics/kari-lake-voice-of-america.html
