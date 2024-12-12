@@ -1,3 +1,7 @@
+**Trump Chooses Kari Lake to Lead Voice of America**\
+`Ms. Lake, a former TV news anchor turned right-wing firebrand who has called journalists “monsters,” would be in charge of a federally funded news outlet with a huge global audience.`\
+https://nytimes.com/2024/12/12/us/politics/kari-lake-voice-of-america.html
+
 **YoungBoy Never Broke Again Sentenced to Nearly 2 Years in Federal Gun Case**\
 `The rapper, whose real name is Kentrell Gaulden, admitted to possessing guns as a felon in Louisiana. He faced a maximum sentence of 25 years.`\
 https://nytimes.com/2024/12/12/us/nba-youngboy-sentenced-gun-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5986577/2024/12/12/cucurella-football-boots-kit-men
 **Naomi Layzell interview: 'I kept thinking I'd tarnished one of the best games of my life'**\
 `The Manchester City defender was making a big impression with her new club before injury struck in the best match of her career so far`\
 https://nytimes.com/athletic/5983520/2024/12/12/naomi-layzell-manchester-city-bristol-city/
-
-**Shaw and James: Why England’s full-backs might be struggling to return from injury**\
-`Shaw and James have suffered repeated injury problems. What is causing them and can they recover? Our medical expert explains...`\
-https://nytimes.com/athletic/5980724/2024/12/12/luke-shaw-united-injury-reece-james-hamstring-chelsea/
 

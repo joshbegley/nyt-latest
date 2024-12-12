@@ -1,3 +1,7 @@
+**Trump Chooses Kari Lake to Lead Voice of America**\
+`Ms. Lake, a former TV news anchor turned right-wing firebrand who has called journalists “monsters,” would be in charge of a federally funded news outlet with a huge global audience.`\
+https://nytimes.com/2024/12/12/us/politics/kari-lake-voice-of-america.html
+
 **YoungBoy Never Broke Again Sentenced to Nearly 2 Years in Federal Gun Case**\
 `The rapper, whose real name is Kentrell Gaulden, admitted to possessing guns as a felon in Louisiana. He faced a maximum sentence of 25 years.`\
 https://nytimes.com/2024/12/12/us/nba-youngboy-sentenced-gun-charges.html
