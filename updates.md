@@ -1,3 +1,11 @@
+**Arsenal investigating staff member over claims of antisemitism**\
+`Arsenal have begun an investigation following allegations that a member of their staff made antisemitic comments on social media.`\
+https://nytimes.com/athletic/5988105/2024/12/12/arsenal-investigate-staff-member/
+
+**Iowa transfer Lucy Olsen and a loud home crowd helped Hawkeyes take down rival Iowa State**\
+`The victory was No. 21 Iowa’s ninth consecutive home win over the Cyclones, dating to 2008.`\
+https://nytimes.com/athletic/5988965/2024/12/12/iowa-cyclones-rivlary-lucy-olsen/
+
 **Torres, the 'shark' who has made peace with his role as a supporting act at Barcelona**\
 `The former Manchester City forward rarely starts but his impact from the bench against Dortmund showed his ability to help his team`\
 https://nytimes.com/athletic/5988928/2024/12/12/ferran-torres-barcelona-dortmund/

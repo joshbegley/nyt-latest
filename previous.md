@@ -1,3 +1,11 @@
+**Arsenal investigating staff member over claims of antisemitism**\
+`Arsenal have begun an investigation following allegations that a member of their staff made antisemitic comments on social media.`\
+https://nytimes.com/athletic/5988105/2024/12/12/arsenal-investigate-staff-member/
+
+**Iowa transfer Lucy Olsen and a loud home crowd helped Hawkeyes take down rival Iowa State**\
+`The victory was No. 21 Iowa’s ninth consecutive home win over the Cyclones, dating to 2008.`\
+https://nytimes.com/athletic/5988965/2024/12/12/iowa-cyclones-rivlary-lucy-olsen/
+
 **Torres, the 'shark' who has made peace with his role as a supporting act at Barcelona**\
 `The former Manchester City forward rarely starts but his impact from the bench against Dortmund showed his ability to help his team`\
 https://nytimes.com/athletic/5988928/2024/12/12/ferran-torres-barcelona-dortmund/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5988829/2024/12/12/lindy-ruff-benches-owen-power-jj
 **After rough start, Trae Young and the red-hot Hawks are rolling through the NBA Cup**\
 `As the Hawks advance to the NBA Cup in Las Vegas, their new approach is finally proving to be the right move.`\
 https://nytimes.com/athletic/5988800/2024/12/12/nba-cup-atlanta-hawks-trae-young/
-
-**Trump Chooses Kari Lake to Lead Voice of America**\
-`Ms. Lake, a former TV news anchor turned right-wing firebrand who has called journalists “monsters,” would be in charge of a federally funded news outlet with a huge global audience.`\
-https://nytimes.com/2024/12/12/us/politics/kari-lake-voice-of-america.html
-
-**YoungBoy Never Broke Again Is Sentenced to Nearly 2 Years in Federal Gun Case**\
-`The rapper, whose real name is Kentrell Gaulden, admitted to possessing guns as a felon in Louisiana. He faced a maximum sentence of 25 years.`\
-https://nytimes.com/2024/12/12/us/nba-youngboy-sentenced-gun-charges.html
 
