@@ -1,3 +1,11 @@
+**Dean of Students at Massachusetts School Charged With Conspiring to Traffic Cocaine**\
+`Federal prosecutors said Lavante Wiggins of Pittsfield High School and another man had conspired to traffic “large quantities” of the drug in western Massachusetts.`\
+https://nytimes.com/2024/12/11/us/massachusetts-high-school-dean-cocaine-trafficking.html
+
+**Health Insurance Workers Rattled Amid Public Anger After Slaying of C.E.O.**\
+`Employees at UnitedHealthcare and other companies described being fearful after an outpouring of online vitriol.`\
+https://nytimes.com/2024/12/11/us/health-insurance-uhc-ceo-shooting.html
+
 **Labor Board Classifies ‘Love Is Blind’ Contestants as Employees**\
 `With its complaint against the Netflix hit, the National Labor Relations Board opened the door to unionization.`\
 https://nytimes.com/2024/12/11/arts/television/love-is-blind-nlrb-employees-union.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5988449/2024/12/11/astros-kyle-tucker-framber-valde
 **Promoter of ‘Stop the Steal’ Is Choice for Management and Budget Staff Chief**\
 `President-elect Donald J. Trump selected Ed Martin, a Missouri Republican with a long track record as an anti-abortion activist, for a top position in the agency that administers the budget.`\
 https://nytimes.com/2024/12/11/us/politics/ed-martin-trump-office-management-budget.html
-
-**Fade the Chiefs? History says Kansas City's luck will run out in the playoffs**\
-`Can the Chiefs keep riding close, one-score wins to another Super Bowl? History says no.`\
-https://nytimes.com/athletic/5987603/2024/12/11/chiefs-super-bowl-odds-betting-clutch/
-
-**New Friends After 50? Yes, Please!**\
-`The people in our lives are a dynamic constellation.`\
-https://nytimes.com/2024/12/11/opinion/new-friends-happiness-love.html
 
