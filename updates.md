@@ -1,3 +1,11 @@
+**Trump’s Choice to Run Energy Says Fossil Fuels Are Virtuous**\
+`Chris Wright, Donald Trump’s pick for energy secretary, says oil, gas and coal are key to solving global poverty. Some call that misleading.`\
+https://nytimes.com/2024/12/12/climate/wright-trump-oil-gas-energy.html
+
+**F.A.A. Administrator Will Resign Before Trump Takes Office**\
+`Mike Whitaker, who runs the Federal Aviation Administration, is leaving the leadership position after serving only one year of a five-year term.`\
+https://nytimes.com/2024/12/12/us/politics/faa-administrator-resigns.html
+
 **Trump Allies Appear Before Judge in Wisconsin Election Interference Case**\
 `The case is one of five related to 2020 election interference that are proceeding even as Donald J. Trump prepares to return to the White House.`\
 https://nytimes.com/2024/12/12/us/trump-wisconsin-election-interference.html

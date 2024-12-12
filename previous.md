@@ -1,3 +1,11 @@
+**Trump’s Choice to Run Energy Says Fossil Fuels Are Virtuous**\
+`Chris Wright, Donald Trump’s pick for energy secretary, says oil, gas and coal are key to solving global poverty. Some call that misleading.`\
+https://nytimes.com/2024/12/12/climate/wright-trump-oil-gas-energy.html
+
+**F.A.A. Administrator Will Resign Before Trump Takes Office**\
+`Mike Whitaker, who runs the Federal Aviation Administration, is leaving the leadership position after serving only one year of a five-year term.`\
+https://nytimes.com/2024/12/12/us/politics/faa-administrator-resigns.html
+
 **Trump Allies Appear Before Judge in Wisconsin Election Interference Case**\
 `The case is one of five related to 2020 election interference that are proceeding even as Donald J. Trump prepares to return to the White House.`\
 https://nytimes.com/2024/12/12/us/trump-wisconsin-election-interference.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/us/politics/house-judges-veto.html
 **Trump’s Middle East Adviser Pick Is a Small-Time Truck Salesman**\
 `The lore around Massad Boulos, Tiffany Trump’s father-in-law, is that he is a billionaire dealmaker. Records show otherwise.`\
 https://nytimes.com/2024/12/12/world/africa/trump-massad-boulos-middle-east.html
-
-**Alabama leaders plan to play in ReliaQuest Bowl vs. Michigan**\
-`Milroe on Alabama's ReliaQuest Bowl matchup with Michigan: 'The mission right now is to complete the season.'`\
-https://nytimes.com/athletic/5989849/2024/12/12/alabama-bowl-roster-michigan-parker-brailsford/
-
-**Cowboys Today: Did Cowboys ever seriously consider hiring Bill Belichick?**\
-`Stephen Jones says he thinks Mike McCarthy has done "outstanding" and avoids getting into the Belichick conversation too much.`\
-https://nytimes.com/athletic/5989846/2024/12/12/cowboys-today-bill-belichick-offseason-plan/
 
