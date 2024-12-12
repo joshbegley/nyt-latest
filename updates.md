@@ -1,3 +1,7 @@
+**The Windup: Breaking down the Sox-Sox blockbuster**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/5989826/2024/12/12/garrett-crochet-trade-red-sox-the-windup/
+
 **The Sublime, Stupid World of ‘Oh, Mary!’**\
 `A visual tour of the show that seems to defy all the rules.`\
 https://nytimes.com/interactive/2024/12/12/theater/oh-mary-broadway.html
