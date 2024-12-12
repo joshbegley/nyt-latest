@@ -1,3 +1,7 @@
+**Manchester City are stuck in a vicious cycle - and could stay there for some time**\
+`Injuries have left the Premier League champions a shadow of their usual selves and things may not improve any time soon`\
+https://nytimes.com/athletic/5988087/2024/12/12/manchester-city-injuries-form/
+
 **Lindy Ruff benches Owen Power, JJ Peterka as Sabres' losing streak hits 8**\
 `Ruff is trying everything he can to end the Sabres' eight-game losing streak.`\
 https://nytimes.com/athletic/5988829/2024/12/12/lindy-ruff-benches-owen-power-jj-peterka-sabres-losing-streak/

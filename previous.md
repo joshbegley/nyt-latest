@@ -1,3 +1,7 @@
+**Manchester City are stuck in a vicious cycle - and could stay there for some time**\
+`Injuries have left the Premier League champions a shadow of their usual selves and things may not improve any time soon`\
+https://nytimes.com/athletic/5988087/2024/12/12/manchester-city-injuries-form/
+
 **Lindy Ruff benches Owen Power, JJ Peterka as Sabres' losing streak hits 8**\
 `Ruff is trying everything he can to end the Sabres' eight-game losing streak.`\
 https://nytimes.com/athletic/5988829/2024/12/12/lindy-ruff-benches-owen-power-jj-peterka-sabres-losing-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5988172/2024/12/12/juventus-manchester-city-champio
 **Bayern renewal? Real Madrid? Premier League? What we're hearing on Alphonso Davies' future**\
 `Davies is one of Europe's best left-backs and his Bayern contract is set to run out next summer. What's the situation?`\
 https://nytimes.com/athletic/5987028/2024/12/12/alphonso-davies-bayern-munich-transfer/
-
-**The 10 players we'll be talking about at the 2034 World Cup**\
-`From Lamine Yamal to Amara Diouf, here is an optimistic prediction of the players that will be on everyone's lips at the 2034 World Cup`\
-https://nytimes.com/athletic/5974300/2024/12/12/players-2034-world-cup-lamal-bellingham-estevao/
 
