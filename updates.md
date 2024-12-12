@@ -1,3 +1,7 @@
+**Inside the Red Sox trade for Garrett Crochet**\
+`The Red Sox still have payroll room and prospects to deal after adding Crochet and are still actively pursuing more additions.`\
+https://nytimes.com/athletic/5988495/2024/12/11/red-sox-garrett-crochet-inside-trade/
+
 **In Defiant Speech, South Korea’s President Defends Martial Law Decree**\
 `President Yoon Suk Yeol vowed to “fight to the end,” despite the opposition’s push to impeach him and his own party’s demand that he resign from office.`\
 https://nytimes.com/2024/12/11/world/asia/yoon-south-korea-martial-law.html
