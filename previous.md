@@ -1,3 +1,11 @@
+**BuzzFeed Strikes Deal to Sell ‘Hot Ones’ Company for $82.5 Million**\
+`The sale, to a group that includes the show’s host, Sean Evans, and Soros Fund Management, will allow BuzzFeed to pay down tens of millions of dollars in debt.`\
+https://nytimes.com/2024/12/12/business/buzzfeed-hot-ones-sale.html
+
+**An expert on Carson Beck timeline: 'I wouldn't think he's playing anytime soon'**\
+`What is Beck's injury, and what is his timeline? And what will that mean for the NFL draft and Georgia's Playoff hopes?`\
+https://nytimes.com/athletic/5989139/2024/12/12/carson-beck-injury-cfp-nfl-draft-georgia/
+
 **Why is Bill Belichick heading to North Carolina? It's all about control**\
 `NFL teams seemed hesitant to give Belichick the kind of omnipotent power he can get in college.`\
 https://nytimes.com/athletic/5988485/2024/12/12/bill-belichick-north-carolina-coach-control/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5989346/2024/12/12/brighton-premier-league-fine-you
 **European Central Bank Cuts Interest Rates as the Economy Weakens**\
 `The bank has been lowering rates since June as inflation slowed, but other risks are growing, including the threat of higher tariffs promised by President-elect Donald J. Trump.`\
 https://nytimes.com/2024/12/12/business/european-central-bank-interest-rates.html
-
-**The Athletic FC: Man City in Euro trouble as U.S. stars shine, FIFA's World Cup clapping**\
-`Today in TAFC: Manchester City's Champions League play-offs problem, USMNT stars shine, Cucurella's boot puzzle and more`\
-https://nytimes.com/athletic/5989127/2024/12/12/manchester-city-champions-league-fifa-saudi-world-cup/
-
-**NBA Lookahead: Scouting Bucks-Hawks and Thunder-Rockets as Cup happens in Vegas**\
-`What are the key matchups in the NBA Cup final four? Plus, remembering a weird Pacers-Bucks game-ball beef. `\
-https://nytimes.com/athletic/5981774/2024/12/12/nba-lookahead-nba-cup-bucks-hawks-rockets-thunder/
 

@@ -1,3 +1,11 @@
+**BuzzFeed Strikes Deal to Sell ‘Hot Ones’ Company for $82.5 Million**\
+`The sale, to a group that includes the show’s host, Sean Evans, and Soros Fund Management, will allow BuzzFeed to pay down tens of millions of dollars in debt.`\
+https://nytimes.com/2024/12/12/business/buzzfeed-hot-ones-sale.html
+
+**An expert on Carson Beck timeline: 'I wouldn't think he's playing anytime soon'**\
+`What is Beck's injury, and what is his timeline? And what will that mean for the NFL draft and Georgia's Playoff hopes?`\
+https://nytimes.com/athletic/5989139/2024/12/12/carson-beck-injury-cfp-nfl-draft-georgia/
+
 **Why is Bill Belichick heading to North Carolina? It's all about control**\
 `NFL teams seemed hesitant to give Belichick the kind of omnipotent power he can get in college.`\
 https://nytimes.com/athletic/5988485/2024/12/12/bill-belichick-north-carolina-coach-control/
