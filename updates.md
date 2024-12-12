@@ -1,3 +1,11 @@
+**Dean of Students at Massachusetts School Charged With Conspiring to Traffic Cocaine**\
+`Federal prosecutors said Lavante Wiggins of Pittsfield High School and another man had conspired to traffic “large quantities” of the drug in western Massachusetts.`\
+https://nytimes.com/2024/12/11/us/massachusetts-high-school-dean-cocaine-trafficking.html
+
+**Health Insurance Workers Rattled Amid Public Anger After Slaying of C.E.O.**\
+`Employees at UnitedHealthcare and other companies described being fearful after an outpouring of online vitriol.`\
+https://nytimes.com/2024/12/11/us/health-insurance-uhc-ceo-shooting.html
+
 **Labor Board Classifies ‘Love Is Blind’ Contestants as Employees**\
 `With its complaint against the Netflix hit, the National Labor Relations Board opened the door to unionization.`\
 https://nytimes.com/2024/12/11/arts/television/love-is-blind-nlrb-employees-union.html
