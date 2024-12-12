@@ -1,3 +1,7 @@
+**Stephen Colbert is Surprised by Luigi Mangione’s ‘Minifesto’**\
+`“He could’ve just made it a Yelp review: ‘American health care sucks. One star,’” Colbert said of the content of a notebook found with the crime suspect.`\
+https://nytimes.com/2024/12/12/arts/television/stephen-colbert-luigi-mangione-manifesto.html
+
 **Police re-open investigation into former Fulham Ladies captain's sexual assault claims**\
 `Police will look again at allegations - strenuously denied - made against a Fulham coach who worked at the club from 1992 to 2008`\
 https://nytimes.com/athletic/5987781/2024/12/12/fulham-sexual-assault-police-claim/

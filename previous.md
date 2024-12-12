@@ -1,3 +1,7 @@
+**Stephen Colbert is Surprised by Luigi Mangione’s ‘Minifesto’**\
+`“He could’ve just made it a Yelp review: ‘American health care sucks. One star,’” Colbert said of the content of a notebook found with the crime suspect.`\
+https://nytimes.com/2024/12/12/arts/television/stephen-colbert-luigi-mangione-manifesto.html
+
 **Police re-open investigation into former Fulham Ladies captain's sexual assault claims**\
 `Police will look again at allegations - strenuously denied - made against a Fulham coach who worked at the club from 1992 to 2008`\
 https://nytimes.com/athletic/5987781/2024/12/12/fulham-sexual-assault-police-claim/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/crosswords/spelling-bee-forum.html
 **Arsenal investigating staff member over claims of antisemitism**\
 `Arsenal have begun an investigation following allegations that a member of their staff made antisemitic comments on social media.`\
 https://nytimes.com/athletic/5988105/2024/12/12/arsenal-investigate-staff-member/
-
-**Iowa transfer Lucy Olsen and a loud home crowd helped Hawkeyes take down rival Iowa State**\
-`The victory was No. 21 Iowa’s ninth consecutive home win over the Cyclones, dating to 2008.`\
-https://nytimes.com/athletic/5988965/2024/12/12/iowa-cyclones-rivlary-lucy-olsen/
 
