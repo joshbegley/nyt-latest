@@ -1,3 +1,19 @@
+**Trump Allies Appear Before Judge in Wisconsin Election Interference Case**\
+`The case is one of five related to 2020 election interference that are proceeding even as Donald J. Trump prepares to return to the White House.`\
+https://nytimes.com/2024/12/12/us/trump-wisconsin-election-interference.html
+
+**How to Make Sense of the Fluoride Debate**\
+`Robert F. Kennedy Jr. has said he wants to curb water fluoridation nationwide. Here’s what the science shows about the benefits and the risks.`\
+https://nytimes.com/2024/12/12/well/fluoride-water-health-pregnancy-children.html
+
+**Selena Gomez and Benny Blanco Announce Their Engagement. The Internet Rejoices.**\
+`The couple, who have been publicly discussing their relationship for a year, were deluged with congratulations on social media.`\
+https://nytimes.com/2024/12/12/arts/music/selena-gomez-benny-blanco-engagement.html
+
+**Minnesota and New Jersey Sue Glock Over Lethal Add-On for Guns**\
+`The two suits claim the company’s leaders have known for decades that significant design characteristics of the weapon make it susceptible to conversion to a machine gun.`\
+https://nytimes.com/2024/12/12/us/glock-minnesota-new-jersey-lawsuit-machine-guns.html
+
 **Brian Thompson, Not Luigi Mangione, Is the Real Working-Class Hero**\
 `He’s a model for how a talented, determined man from humble roots can rise to the top of corporate life.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/brian-thompson-luigi-mangione
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5989849/2024/12/12/alabama-bowl-roster-michigan-par
 **Cowboys Today: Did Cowboys ever seriously consider hiring Bill Belichick?**\
 `Stephen Jones says he thinks Mike McCarthy has done "outstanding" and avoids getting into the Belichick conversation too much.`\
 https://nytimes.com/athletic/5989846/2024/12/12/cowboys-today-bill-belichick-offseason-plan/
-
-**Musk’s Foundation Gave Away Less Money Than Required in 2023**\
-`Private foundations must donate 5 percent of their assets every year. Elon Musk’s enormous charity missed that standard for three consecutive years.`\
-https://nytimes.com/2024/12/12/us/politics/musk-foundation-taxes-donations.html
-
-**Champions League projections: Liverpool and Arsenal the favourites to win it but will Manchester City go through?**\
-`With just two rounds of games remaining, the standings are taking shape - but who are the major clubs who are in danger of elimination?`\
-https://nytimes.com/athletic/5989418/2024/12/12/champions-league-projections-matchday-six-analysis/
-
-**Oh, to Smell Like Trump**\
-`The president-elect is marketing new merch. It reeks.`\
-https://nytimes.com/2024/12/12/opinion/trump-cologne-perfume.html
-
-**The Geminids Meteor Shower Is Peaking. Here’s How to Watch.**\
-`The shower forms from the debris of an asteroid and peaks this weekend. But a nearly full moon could interfere with viewing.`\
-https://nytimes.com/2024/12/12/science/geminids-meteor-shower.html
 
