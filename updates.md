@@ -1,3 +1,11 @@
+**Defying Veto Threat, House Approves Measure Adding 66 New U.S. Judges**\
+`President Biden and House Democrats objected to the bipartisan measure that would immediately give President-elect Donald J. Trump about two dozen new judicial seats to fill.`\
+https://nytimes.com/2024/12/12/us/politics/house-judges-veto.html
+
+**Trump’s Middle East Adviser Pick Is a Small-Time Truck Salesman**\
+`The lore around Massad Boulos, Tiffany Trump’s father-in-law, is that he is a billionaire dealmaker. Records show otherwise.`\
+https://nytimes.com/2024/12/12/world/africa/trump-massad-boulos-middle-east.html
+
 **Alabama leaders plan to play in ReliaQuest Bowl vs. Michigan**\
 `Milroe on Alabama's ReliaQuest Bowl matchup with Michigan: 'The mission right now is to complete the season.'`\
 https://nytimes.com/athletic/5989849/2024/12/12/alabama-bowl-roster-michigan-parker-brailsford/
