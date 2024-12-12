@@ -1,3 +1,11 @@
+**China Pledges More Stimulus to Shore Up Flagging Economy**\
+`At a meeting to set the party’s economic policy agenda, China’s leadership said it would borrow more and cut interest rates in a bid to bolster growth.`\
+https://nytimes.com/2024/12/12/business/china-economy-2025-priorities.html
+
+**She Invested in Her Future and Her Family. Which Property Would Work for Both?**\
+`Seeking an income-generating home and a place for her brother to potentially live, a New Yorker scanned the Bronx, Westchester and southern Connecticut for the perfect spot.`\
+https://nytimes.com/interactive/2024/12/12/realestate/bronx-dobbs-ferry-connecticut-home.html
+
 **Man Found in Syria Appears to Be Missing American**\
 `The man told reporters that his name was Travis Timmerman and that he had entered Syria on a religious pilgrimage. He said that he had been detained for months.`\
 https://nytimes.com/2024/12/12/world/middleeast/syria-timmerman-american-man-found.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/movies/the-man-in-the-white-van-review-sleazy-rid
 **Explaining the FPL Assistant Manager chip and how to use it**\
 `FPL has a new chip to play - and this is everything you need to know about how to deploy it`\
 https://nytimes.com/athletic/5987297/2024/12/12/fantasy-premier-league-assistant-manager-chip-explained/
-
-**The Jets' biggest strengths and weaknesses after 30 games and the stats behind them**\
-`Thirty games into the season, the Jets have given us a lot of highs and a few lows to investigate.`\
-https://nytimes.com/athletic/5981816/2024/12/12/winnipeg-jets-30-games-stats/
-
-**The Pulse: Bill Belichick is really doing this**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5987690/2024/12/12/bill-belichick-hired-unc-nba-cup-the-pulse/
 
