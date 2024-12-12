@@ -1,3 +1,11 @@
+**The Sublime, Stupid World of ‘Oh, Mary!’**\
+`A visual tour of the show that seems to defy all the rules.`\
+https://nytimes.com/interactive/2024/12/12/theater/oh-mary-broadway.html
+
+**Travis Hunter's Heisman backers include Broncos Pat Surtain II and Courtland Sutton**\
+`Colorado's two-way phenom has caught the attention of stars in locker room of the Buffaloes' neighboring NFL team.`\
+https://nytimes.com/athletic/5989245/2024/12/12/travis-hunter-heisman-broncos-surtain-sutton/
+
 **Activist Who Told the World About Torture in Syria Is Laid to Rest**\
 `Mazen al-Hamada spread the word about the plight of Syrians and his own abuse in the Assad regime’s prisons. He was found dead in Syria this week.`\
 https://nytimes.com/2024/12/12/world/middleeast/mazen-al-hamada-syria-activist-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5989698/2024/12/12/man-city-kyle-walker-instagram-r
 **Ev Williams Was Lonely. He Doesn’t Want You to Be.**\
 `The serial internet entrepreneur, who co-founded Twitter and created Medium, was turning 50 and feeling detached from friends. Maybe a new start-up could fix that.`\
 https://nytimes.com/2024/12/12/technology/ev-williams-twitter-medium-mozi.html
-
-**Ex-F.B.I. Informant Agrees to Plead Guilty to Lying About Bidens**\
-`Alexander Smirnov’s deal with the special counsel overseeing the investigation into Hunter Biden could lead to 48 to 72 months in prison, though a federal judge would need to review the deal.`\
-https://nytimes.com/2024/12/12/us/politics/smirnov-bidens-russia.html
-
-**Israel says its troops will remain in the Syrian buffer zone for now.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/israel-syria-buffer-zone-assad
 
