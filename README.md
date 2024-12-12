@@ -27,7 +27,7 @@ https://nytimes.com/2024/12/12/briefing/biden-pardons-israel-syria-buffer-zone.h
 https://nytimes.com/athletic/5990582/2024/12/12/ange-postecoglou-timo-werner/
 
 **University of Michigan May Fire D.E.I. Official Over Antisemitism Claim**\
-`The official, an administrator of multicultural programs, was accused of making antisemitic remarks in a private conversation. She has denied the allegations.`\
+`The official, an administrator of multicultural programs, was accused of making antisemitic remarks in a conversation. She has denied the allegations.`\
 https://nytimes.com/2024/12/12/us/university-of-michigan-dei-administrator-antisemitism.html
 
 **Air Force Academy Sued Over Race-Based Admissions Policy**\
