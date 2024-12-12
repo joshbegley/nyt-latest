@@ -1,3 +1,7 @@
+**FPL: Who is the best 'fourth midfielder' for your team?**\
+`Holly Shand analyses the best midfield option to complement template trio Mohamed Salah, Bukayo Saka and Cole Palmer`\
+https://nytimes.com/athletic/5981025/2024/12/12/fantasy-premier-league-midfielder-mbeumo-enzo-rogers-bowen/
+
 **Chelsea's wingers keep finding themselves in one-v-one situations - and it's not by chance**\
 `We explain the system Enzo Maresca has built that ensures his wide players get the ball in high-value positions`\
 https://nytimes.com/athletic/5986276/2024/12/12/chelsea-wingers-one-v-one-tactic-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/briefing/syria-fbi-scholz-tiger.html
 **Meta Donates $1 Million to Trump’s Inaugural Fund**\
 `The move follows a visit that Mark Zuckerberg, Meta’s chief executive, made last month to Mar-a-Lago to meet with President-elect Donald Trump.`\
 https://nytimes.com/2024/12/12/technology/meta-trump-inaugural-fund-donation.html
-
-**Ready for the Next Extreme-Weather Catastrophe? Here’s How to Pack a ‘Go Bag.’**\
-`If the trend continues, extreme weather will occur more frequently. Here’s how experts suggest you prepare.`\
-https://nytimes.com/2024/12/12/business/go-bag-extreme-weather.html
 
