@@ -1,3 +1,15 @@
+**How Chase Brown’s expanded role is quietly elevating Bengals offense**\
+`The second-year running back has been among the NFL's most productive players since taking over the job full-time.`\
+https://nytimes.com/athletic/5988653/2024/12/12/chase-browns-bengals-offense/
+
+**Even the Wizards are surprised they're losing like this**\
+`This Wizards roster was designed to finish near the bottom, but losing so many games by so many points is brutal for the young players.`\
+https://nytimes.com/athletic/5987599/2024/12/12/wizards-nba-worst-record-player-development/
+
+**From No. 1 QB in the country to 'top-10 bust,' Max Browne has no regrets**\
+`"There's nothing that I'm embarrassed about," says former five-star recruit and Rivals.com "bust" Max Browne. `\
+https://nytimes.com/athletic/5986690/2024/12/12/college-football-quarterback-recruit-disappointment/
+
 **What I Learned From a Reclusive Taliban Commander**\
 `Mullah Osman Jawhari led one of the deadliest assaults on American forces in Afghanistan, a battle that came to symbolize the war itself.`\
 https://nytimes.com/2024/12/12/world/asia/lessons-learned-from-taliban-commander.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5980470/2024/12/12/jaylen-wells-kyle-filipowski-nba
 **Biden Has a Pair of Gifts for Trump**\
 `What will the president-elect do with them?`\
 https://nytimes.com/2024/12/12/opinion/syria-trump-ukraine-israel-biden.html
-
-**New Federal Rule Limits Overdraft Fees at Large Banks**\
-`It is unclear whether the rule, which could help save Americans billions in fees each year, will remain in place after President-elect Donald J. Trump returns to office.`\
-https://nytimes.com/2024/12/12/us/politics/bank-overdraft-fees-limits.html
-
-**A Swiss Ski Chalet That Calls to Mind a Spy Movie**\
-`Plus: a Muji designer’s museum show, deodorant inspired by “The Iliad” and more recommendations from T Magazine.`\
-https://nytimes.com/2024/12/12/t-magazine/ski-in-chalet-in-the-swiss-alps.html
-
-**Three Columnists Wrestle With the Lionizing of Luigi Mangione**\
-`What other kind of company inspires this sort of hatred?`\
-https://nytimes.com/2024/12/12/opinion/luigi-mangione-ceo-shooting.html
 
