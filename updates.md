@@ -163,6 +163,11 @@ https://nytimes.com/athletic/5988714/2024/12/11/rangers-sabres-mika-zibanejad-ta
 `\
 https://nytimes.com/athletic/5988714/2024/12/11/rangers-sabres-mika-zibanejad-takeaways/
 
+**Mika Zibanejad scores big goal as Rangers survive poor third period: 3 takeaways vs. Sabres**\
+`The struggling Zibanejad scored his 300th career goal in a 3-2 win over the Sabres, but it wasn't an ideal finish for New York.
+`\
+https://nytimes.com/athletic/5988714/2024/12/11/rangers-sabres-mika-zibanejad-takeaways/
+
 **Who does North Carolina play in 2025? Looking at Bill Belichick's first college opponents**\
 `North Carolina's nonconference schedule is set for 2025, and the Tar Heels' slate of ACC opponents is known.`\
 https://nytimes.com/athletic/5988417/2024/12/11/north-carolina-2025-schedule-bill-belichick/
