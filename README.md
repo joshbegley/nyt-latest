@@ -1,3 +1,11 @@
+**Brian Thompson, Not Luigi Mangione, Is the Real Working-Class Hero**\
+`He’s a model for how a talented, determined man from humble roots can rise to the top of corporate life.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/brian-thompson-luigi-mangione
+
+**Chanel Fills the Hottest Job in Fashion**\
+`Matthieu Blazy is getting the coveted post. Here’s how it went down.`\
+https://nytimes.com/2024/12/12/style/chanel-new-designer-matthieu-blazy.html
+
 **Defying Veto Threat, House Approves Measure Adding 66 New U.S. Judges**\
 `President Biden and House Democrats objected to the bipartisan measure that would immediately give President-elect Donald J. Trump about two dozen new judicial seats to fill.`\
 https://nytimes.com/2024/12/12/us/politics/house-judges-veto.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/opinion/trump-cologne-perfume.html
 **The Geminids Meteor Shower Is Peaking. Here’s How to Watch.**\
 `The shower forms from the debris of an asteroid and peaks this weekend. But a nearly full moon could interfere with viewing.`\
 https://nytimes.com/2024/12/12/science/geminids-meteor-shower.html
-
-**How U.S. Firms Battled a Government Crackdown to Keep Tech Sales to China**\
-`An intense struggle has unfolded in Washington between companies and officials over where to draw the line on selling technology to China.`\
-https://nytimes.com/2024/12/12/us/politics/tech-sales-china-huawei.html
-
-**‘Dirty Angels’ Review: Women on a Mission**\
-`In this heavy-handed action movie, Eva Green plays a Marine who leads a squad trying to rescue schoolgirls in Afghanistan.`\
-https://nytimes.com/2024/12/12/movies/dirty-angels-review.html
 
