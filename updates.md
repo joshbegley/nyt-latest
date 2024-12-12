@@ -1,3 +1,11 @@
+**The Pulse: Bill Belichick is really doing this**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5987690/2024/12/12/bill-belichick-hired-unc-nba-cup-the-pulse/
+
+**SEC sets 2025 schedule with focus on TV ratings battle**\
+`Here is the week-by-week 2025 SEC schedule, including nonconference games, which were announced previously.`\
+https://nytimes.com/athletic/5989123/2024/12/12/sec-2025-football-schedule/
+
 **C.E.O.s Are Tripping**\
 `Why executives are using psychedelics to get ahead.`\
 https://nytimes.com/2024/12/12/briefing/ceos-are-tripping.html
