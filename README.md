@@ -1,3 +1,11 @@
+**Hallmark’s First ‘Mr. Christmas’ Goes Home for the Holidays**\
+`And he’s single.`\
+https://nytimes.com/2024/12/12/style/finding-mr-christmas-winner-hallmark.html
+
+**Syrians Celebrate the Fall of Assad, and Rebuild From Tragedy**\
+`After five decades under a regime that had kept many in fear and poverty, families flooded back from Lebanon, eager to start the slow process of healing.`\
+https://nytimes.com/2024/12/12/world/middleeast/syria-assad-photos.html
+
 **Patel’s Warm Senate Welcome Reflects the G.O.P.’s Turn Against the F.B.I.**\
 `Senate Republicans have largely embraced President-elect Donald J. Trump’s pick to run the bureau, demonstrating that his anti-F.B.I. stance is now party orthodoxy.`\
 https://nytimes.com/2024/12/12/us/politics/kash-patel-republicans-fbi.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/sports/gukesh-world-chess-championship-2024.html
 **Broncos LT Garett Bolles agrees to 4-year extension**\
 `Bolles, a first-round pick of the Broncos in 2017, has been the team’s starter at left tackle since his rookie season.`\
 https://nytimes.com/athletic/5990184/2024/12/12/garett-bolles-broncos-extension/
-
-**The Briefing: Astana 1 Chelsea 3: Acheampong impresses, Chukwuemeka's rare start, academy joy**\
-`Chelsea overcame Astana in the Europa Conference League on Thursday night`\
-https://nytimes.com/athletic/5990137/2024/12/12/chelsea-astana-conference-league-analysis/
-
-**Rebel Group’s Terrorist Label Could Hinder Efforts to Aid Syria**\
-`The United States and others call Hayat Tahrir al-Sham, now taking power in Syria, a terrorist group, blocking funding and even contact with the group. Experts say that should change.`\
-https://nytimes.com/2024/12/12/world/middleeast/syria-rebel-terrorist-designation.html
 
