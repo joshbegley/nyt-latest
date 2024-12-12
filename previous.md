@@ -1,3 +1,7 @@
+**Enslaved People’s Graves Discovered at Andrew Jackson’s Hermitage**\
+`The burial ground at the former American president’s home in Nashville, Tenn., is the latest to be discovered at a presidential site.`\
+https://nytimes.com/2024/12/12/us/enslaved-peoples-graves-andrew-jacksons-hermitage.html
+
 **The Stock Market and TV: Trump’s Most Durable Guardrails**\
 `The curbs on President-elect Donald J. Trump’s impulses are mostly gone, but the old standbys are still in effect, people close to him say.`\
 https://nytimes.com/2024/12/12/us/politics/trump-tv-stock-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/us/unitedhealthcare-luigi-mangione-gun.html
 **Until Saturday: Will Bill Belichick at UNC work? Plus, Oregon's CFP seeding**\
 `Welcome to Until Saturday, the five-star college football newsletter: Will Belichick's move to college football at UNC work?`\
 https://nytimes.com/athletic/5989456/2024/12/12/bill-belichick-unc-oregon-cfp-until-saturday/
-
-**As nations rush to assert influence in Syria, a Turkish intelligence official visits Damascus.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/12/12/world/syria-news-assad-rebels/as-nations-rush-to-assert-influence-in-syria-a-turkish-intelligence-official-visits-damascus
 

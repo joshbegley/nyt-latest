@@ -1,3 +1,7 @@
+**Enslaved People’s Graves Discovered at Andrew Jackson’s Hermitage**\
+`The burial ground at the former American president’s home in Nashville, Tenn., is the latest to be discovered at a presidential site.`\
+https://nytimes.com/2024/12/12/us/enslaved-peoples-graves-andrew-jacksons-hermitage.html
+
 **The Stock Market and TV: Trump’s Most Durable Guardrails**\
 `The curbs on President-elect Donald J. Trump’s impulses are mostly gone, but the old standbys are still in effect, people close to him say.`\
 https://nytimes.com/2024/12/12/us/politics/trump-tv-stock-market.html
