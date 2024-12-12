@@ -1,3 +1,7 @@
+**NBA Lookahead: Scouting Bucks-Hawks and Thunder-Rockets as Cup happens in Vegas**\
+`What are the key matchups in the NBA Cup final four? Plus, remembering a weird Pacers-Bucks game-ball beef. `\
+https://nytimes.com/athletic/5981774/2024/12/12/nba-lookahead-nba-cup-bucks-hawks-rockets-thunder/
+
 **Tennis roundtable: After a year of umpiring controversy and doping confusion, what next?**\
 `Rules and grey areas have been in the headlines on and off the court. What can tennis do to make things better?`\
 https://nytimes.com/athletic/5986258/2024/12/12/tennis-rules-umpiring-mistakes-doping-regulations/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/world/middleeast/syria-timmerman-american-man-fou
 **Russian Troops Advance to Within 3 Miles of Key Ukrainian Transit Hub**\
 `Russia is pushing toward Pokrovsk, a strategic city for Ukraine’s army with important rail and road connections, in a rapid capturing of ground in the Donetsk region.`\
 https://nytimes.com/2024/12/12/world/europe/russia-ukraine-war-pokrovsk.html
-
-**Four Browns position groups to watch over the season's final four games**\
-`This final stretch of the season should allow Cleveland to evaluate younger players and those who have potentially complicated contracts. `\
-https://nytimes.com/athletic/5988094/2024/12/12/browns-nick-chubb-elijah-moore-contracts/
 
