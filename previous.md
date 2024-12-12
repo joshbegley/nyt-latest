@@ -1,3 +1,7 @@
+**Patel’s Warm Senate Welcome Reflects the G.O.P.’s Turn Against the F.B.I.**\
+`Senate Republicans have largely embraced President-elect Donald J. Trump’s pick to run the bureau, demonstrating that his anti-F.B.I. stance is now party orthodoxy.`\
+https://nytimes.com/2024/12/12/us/politics/kash-patel-republicans-fbi.html
+
 **Oldest Human Genomes Reveal How a Small Group Burst Out of Africa**\
 `DNA from European fossils dating back 45,000 years offers new clues to how our species spread across the world.`\
 https://nytimes.com/2024/12/12/science/oldest-human-genomes-lrj-neanderthals.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5990137/2024/12/12/chelsea-astana-conference-league
 **Rebel Group’s Terrorist Label Could Hinder Efforts to Aid Syria**\
 `The United States and others call Hayat Tahrir al-Sham, now taking power in Syria, a terrorist group, blocking funding and even contact with the group. Experts say that should change.`\
 https://nytimes.com/2024/12/12/world/middleeast/syria-rebel-terrorist-designation.html
-
-**F.T.C. Sues Largest U.S. Alcohol Distributor for Illegal Pricing**\
-`The suit, under a long-dormant antitrust law, accuses Southern Glazer’s of charging small businesses “drastically” more than big chains.`\
-https://nytimes.com/2024/12/12/business/ftc-alcohol-lawsuit-illegal-pricing.html
 

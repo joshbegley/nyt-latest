@@ -1,3 +1,7 @@
+**Patel’s Warm Senate Welcome Reflects the G.O.P.’s Turn Against the F.B.I.**\
+`Senate Republicans have largely embraced President-elect Donald J. Trump’s pick to run the bureau, demonstrating that his anti-F.B.I. stance is now party orthodoxy.`\
+https://nytimes.com/2024/12/12/us/politics/kash-patel-republicans-fbi.html
+
 **Oldest Human Genomes Reveal How a Small Group Burst Out of Africa**\
 `DNA from European fossils dating back 45,000 years offers new clues to how our species spread across the world.`\
 https://nytimes.com/2024/12/12/science/oldest-human-genomes-lrj-neanderthals.html
