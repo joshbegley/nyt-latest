@@ -1,3 +1,15 @@
+**Cowboys Today: Did Cowboys ever seriously consider hiring Bill Belichick?**\
+`Stephen Jones says he thinks Mike McCarthy has done "outstanding" and avoids getting into the Belichick conversation too much.`\
+https://nytimes.com/athletic/5989846/2024/12/12/cowboys-today-bill-belichick-offseason-plan/
+
+**Musk’s Foundation Gave Away Less Money Than Required in 2023**\
+`Private foundations must donate 5 percent of their assets every year. Elon Musk’s enormous charity missed that standard for three consecutive years.`\
+https://nytimes.com/2024/12/12/us/politics/musk-foundation-taxes-donations.html
+
+**Champions League projections: Liverpool and Arsenal favourites to win tournament but will Man City go through?**\
+`With just two rounds of games remaining, the standings are taking shape - but who are the major clubs who are in danger of elimination?`\
+https://nytimes.com/athletic/5989418/2024/12/12/champions-league-projections-matchday-six-analysis/
+
 **Oh, to Smell Like Trump**\
 `The president-elect is marketing new merch. It reeks.`\
 https://nytimes.com/2024/12/12/opinion/trump-cologne-perfume.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/12/opinion/health-insurance-ceo-killing.html
 **A New Female Designer Takes Center Stage**\
 `Bottega Veneta announced that Louise Trotter will replace Matthieu Blazy as creative director.`\
 https://nytimes.com/2024/12/12/style/bottega-veneta-matthieu-blazy-louise-trotter.html
-
-**Dwayne Haskins’ estate files dismissal in lawsuit over QB’s death**\
-`Haskins died in April 2022 at the age of 24 after he was hit by a dump truck while walking on a South Florida highway.`\
-https://nytimes.com/athletic/5989814/2024/12/12/dwayne-haskins-lawsuit-dismissal/
-
-**Judge John Hodgman on Elfin Magic**\
-`Are all elves magical? Or just some?`\
-https://nytimes.com/2024/12/12/magazine/judge-john-hodgman-on-elfin-magic.html
-
-**Scoop City: Josh Allen's evolution, Belichick's chilling reality**\
-`A quick look at the unparalleled growth of Josh Allen, Bill Belichick's chilling reality and the Rams-49ers game tonight.`\
-https://nytimes.com/athletic/5989837/2024/12/12/evolution-of-josh-allen-nfl-mvp-scoop-city/
 
