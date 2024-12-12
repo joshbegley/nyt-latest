@@ -1,3 +1,11 @@
+**Why is Bill Belichick heading to North Carolina? It's all about control**\
+`NFL teams seemed hesitant to give Belichick the kind of omnipotent power he can get in college.`\
+https://nytimes.com/athletic/5988485/2024/12/12/bill-belichick-north-carolina-coach-control/
+
+**Alisha Palmowski's path to F1 Academy and Red Bull started by karting with her grandparents**\
+`Palmowski has another shot to continue a family legacy in F1 Academy next season.`\
+https://nytimes.com/athletic/5989203/2024/12/12/alisha-palmowski-f1-academy-red-bull/
+
 **Mbappe a serious doubt for Intercontinental Cup final due to thigh injury**\
 `Kylian Mbappe is a serious doubt for the Intercontinental Cup final due to a left thigh injury sustained during Real Madrid&#8217;s Champions League victory over Atalanta on Tuesday.`\
 https://nytimes.com/athletic/5986384/2024/12/12/real-madrid-mbappe-thigh-injury/
