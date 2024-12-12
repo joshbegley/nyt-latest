@@ -1,3 +1,7 @@
+**Stanley Recalls More Than 2 Million Travel Mugs Over Burn Hazard**\
+`Stanley, which also makes trendy tumblers that are wildly popular on social media, urged consumers to contact them for replacement lids.`\
+https://nytimes.com/2024/12/12/business/stanley-recall-mugs.html
+
 **Bill Belichick's Day 1 to-do list: What a new college coach must consider**\
 `What should Belichick prioritize as he takes over a college program for the first time?`\
 https://nytimes.com/athletic/5989537/2024/12/12/bill-belichick-unc-football-commits-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/world/middleeast/syria-us-israel-turkey.html
 **Nebraska lands Missouri transfer Williams Nwaneri, former 5-star recruit**\
 `Nwaneri, 6-foot-7 and 255 pounds, entered the transfer portal on Thursday after a redshirt season at Mizzou.`\
 https://nytimes.com/athletic/5990628/2024/12/12/nebraska-college-football-transfer-williams-nwaneri/
-
-**What to watch in college basketball this weekend: A test for Tennessee, plus UConn-Gonzaga**\
-`What to watch across the next few days of college basketball, including Tennessee's trip to Illinois and a UConn-Gonzaga showdown.`\
-https://nytimes.com/athletic/5988258/2024/12/12/college-basketball-watch-guide-tennessee-uconn-gonzaga/
 

@@ -1,3 +1,7 @@
+**Stanley Recalls More Than 2 Million Travel Mugs Over Burn Hazard**\
+`Stanley, which also makes trendy tumblers that are wildly popular on social media, urged consumers to contact them for replacement lids.`\
+https://nytimes.com/2024/12/12/business/stanley-recall-mugs.html
+
 **Bill Belichick's Day 1 to-do list: What a new college coach must consider**\
 `What should Belichick prioritize as he takes over a college program for the first time?`\
 https://nytimes.com/athletic/5989537/2024/12/12/bill-belichick-unc-football-commits-transfer-portal/
