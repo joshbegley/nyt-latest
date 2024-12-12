@@ -1,3 +1,7 @@
+**The Bounce: Why the Hawks are the new Pacers**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5989182/2024/12/12/trae-young-hawks-knicks-steph-curry-warriors-rockets-nba-the-bounce/
+
 **How Penn State is navigating the logistical hurdles of a hosting a Playoff game at Beaver Stadium**\
 `“I tell people all the time, we are just very different,” athletic director Pat Kraft said.`\
 https://nytimes.com/athletic/5989407/2024/12/12/penn-state-hosting-game-beaver-stadium-playoff-smu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989424/2024/12/12/college-football-questions-mailb
 **Raiders DE Charles Snowden arrested on suspicion of DUI**\
 `It is a misdemeanor charge and is Snowden’s first DUI offense.`\
 https://nytimes.com/athletic/5989322/2024/12/12/raiders-charles-snowden-dui/
-
-**What we're seeing with the Bucks: Damian Lillard's continuation, Khris Middleton's connections**\
-`With a little extra time before the Bucks take the floor for the NBA Cup in Las Vegas, let's look at one play, one player and one trend.`\
-https://nytimes.com/athletic/5977750/2024/12/12/damian-lillard-khris-middleton-bucks/
 
