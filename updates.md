@@ -1,3 +1,7 @@
+**In Defiant Speech, South Korea’s President Defends Martial Law Decree**\
+`President Yoon Suk Yeol vowed to “fight to the end,” despite the opposition’s push to impeach him and his own party’s demand that he resign.`\
+https://nytimes.com/2024/12/11/world/asia/yoon-south-korea-martial-law.html
+
 **Health Insurance Workers Fearful Amid Public Anger After Slaying of C.E.O.**\
 `Employees at UnitedHealthcare and other companies described being anxious after an outpouring of online vitriol.`\
 https://nytimes.com/2024/12/11/us/health-insurance-uhc-ceo-shooting.html
