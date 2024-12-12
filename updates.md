@@ -1,3 +1,11 @@
+**An Easy Holiday Manicure With a Secret Ingredient**\
+`The nail artist Mei Kawajiri shares a festive nail design you can recreate at home in just five steps, using products you probably already own.`\
+https://nytimes.com/2024/12/12/t-magazine/simple-holiday-manicure.html
+
+**Report on New Jersey’s Worst Nursing Home Finds Rampant Fraud and Abuse**\
+`A trio of relatives in New Jersey defrauded the state’s Medicaid program out of millions of dollars while neglecting patient care, the state comptroller found.`\
+https://nytimes.com/2024/12/12/nyregion/new-jersey-nursing-homes-fraud.html
+
 **Breaking down Bill Belichick's contract with UNC: Why it is unlike others in college**\
 `Not only is Bill Belichick entering a world he’s never been in in an official capacity, but his contract is unlike most others in the sport.`\
 https://nytimes.com/athletic/5990758/2024/12/12/bill-belichick-contract-buyout/
