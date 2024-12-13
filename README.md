@@ -1,3 +1,7 @@
+**A Very Senatorial Goodbye: Nostalgia, Legacy and Gratitude, Live on C-SPAN**\
+`The farewell address is a Senate ritual that reflects the culture of the chamber, which prizes tradition, individual relationships, lofty debates and long-winded speeches.`\
+https://nytimes.com/2024/12/13/us/politics/departing-senators-farewell-address.html
+
 **Golf’s Highs and Lows in 2024**\
 `There were a lot of exciting tournaments, but LIV still looms over the sport.`\
 https://nytimes.com/2024/12/13/sports/golf/pga-lpga-liv-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/arts/dance/review-tess-dworman-chocolate-factory.
 **West Ham academy player dies following cancer battle**\
 `West Ham United have announced the death of youth goalkeeper Oscar Fairs, aged 15, following a battle with cancer.`\
 https://nytimes.com/athletic/5992506/2024/12/13/west-ham-academy-goalkeeper-tribute/
-
-**This Director’s Family Story Became Her Latest Movie**\
-`Maura Delpero’s film “Vermiglio,” which won the Grand Jury Prize at the Venice Film Festival, is inspired by her own family in Italy during World War II.`\
-https://nytimes.com/2024/12/13/movies/vermiglio-maura-delpero-director.html
 
