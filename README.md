@@ -14,8 +14,8 @@ https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
 `The chief executive of Apple is the latest in a series of technology  executives who are traveling to Florida to meet with the president-elect.`\
 https://nytimes.com/2024/12/13/technology/trump-tim-cook-mar-a-lago.html
 
-**In an apparent warning to Kennedy, McConnell defends the polio vaccine.**\
-`The former Republican leader is a polio survivor.`\
+**McConnell Defends Polio Vaccine, an Apparent Warning to Kennedy**\
+`“Efforts to undermine public confidence in proven cures are not just uninformed — they’re dangerous,” said the former Republican leader, who is a polio survivor.`\
 https://nytimes.com/2024/12/13/us/politics/in-an-apparent-warning-to-kennedy-mcconnell-defends-polio-vaccine.html
 
 **Hunter, Jeanty headline unusual Heisman class: How this race is different**\
