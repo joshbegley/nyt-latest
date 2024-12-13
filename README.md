@@ -1,3 +1,7 @@
+**'He means so much to us': Scott Laughton scores all 4 Flyers goals in historic night**\
+`"I've been waiting for my chance in the shootout and I was going to let one fly," Laughton said. The Flyers beat the Red Wings 4-1.`\
+https://nytimes.com/athletic/5991390/2024/12/13/flyers-win-red-wings-scott-laughton-four-goals/
+
 **49ers' De'Vondre Campbell refuses to play, quits TNF game in third quarter**\
 `Campbell signed with the 49ers in the offseason, after spending the past three seasons with the Green Bay Packers`\
 https://nytimes.com/athletic/5991412/2024/12/13/devondre-campbell-49ers-quits-tnf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5983432/2024/12/13/hurzeler-brighton-palace-away-en
 **Introducing Wonder Woman and Eagleman (the Wrexham story just got weirder)**\
 `How a superhero and the bird of prey that's the emblem of the USA became Wrexham's most dedicated overseas fans of 2024...`\
 https://nytimes.com/athletic/5966575/2024/12/13/eagleman-wonder-woman-wrexham/
-
-**Jason Ayto, the Arsenal scout turned interim sporting director who has 'something special'**\
-`The 39-year-old has been at Arsenal for a decade and now has the chance to show he can be the long-term sporting director`\
-https://nytimes.com/athletic/5989219/2024/12/13/jason-ayto-profile-sporting-director/
 
