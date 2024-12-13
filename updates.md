@@ -1,3 +1,15 @@
+**Elon Musk’s Playbook for DOGE Has a Precedent: X**\
+`Mr. Musk is wielding his X account to single out federal employees and agencies for cuts. He has used this method before.`\
+https://nytimes.com/2024/12/13/technology/elon-musk-doge-x.html
+
+**What is Captagon, the Illegal Stimulant that Made al-Assad’s Syria a Narcostate?**\
+`The illegal amphetamine, used across the Middle East, became Syria’s biggest export during its 13-year civil war.`\
+https://nytimes.com/2024/12/13/world/middleeast/captagon-stimulant-assad-syria.html
+
+**NFL Week 15 fantasy football, betting cheat sheet: Alvin Kamara, Breece Hall ailing**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5984019/2024/12/13/nfl-week-15-fantasy-football-betting-cheat-sheet/
+
 **Louis Nelson, Designer of Korean War Mural, Dies at 88**\
 `A designer of signage and product packaging, he was best known for his work on the 164-foot mural wall at the Korean War Veterans Memorial in Washington.`\
 https://nytimes.com/2024/12/13/arts/design/louis-nelson-dead.html

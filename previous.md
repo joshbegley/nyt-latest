@@ -1,6 +1,18 @@
+**Elon Musk’s Playbook for DOGE Has a Precedent: X**\
+`Mr. Musk is wielding his X account to single out federal employees and agencies for cuts. He has used this method before.`\
+https://nytimes.com/2024/12/13/technology/elon-musk-doge-x.html
+
+**What is Captagon, the Illegal Stimulant that Made al-Assad’s Syria a Narcostate?**\
+`The illegal amphetamine, used across the Middle East, became Syria’s biggest export during its 13-year civil war.`\
+https://nytimes.com/2024/12/13/world/middleeast/captagon-stimulant-assad-syria.html
+
 **Louis Nelson, Designer of Korean War Mural, Dies at 88**\
 `A designer of signage and product packaging, he was best known for his work on the 164-foot mural wall at the Korean War Veterans Memorial in Washington.`\
 https://nytimes.com/2024/12/13/arts/design/louis-nelson-dead.html
+
+**NFL Week 15 fantasy football, betting cheat sheet: Alvin Kamara, Breece Hall ailing**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/5984019/2024/12/13/nfl-week-15-fantasy-football-betting-cheat-sheet/
 
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 16?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/13/dining/drinks/mulled-cocktails.html
 **Submit your Red Wings mailbag questions for Max Bultman's mailbag**\
 `Send in your questions, and Max may answer them in an upcoming Red Wings mailbag.`\
 https://nytimes.com/athletic/5992323/2024/12/13/red-wings-mailbag-submissions-max-bultman/
-
-**Critics Complain That Italy’s Government Is Interfering in the Arts**\
-`Italy’s culture ministry dismissed experts preparing an exhibition on Futurism and put in its own appointees, who created a show that seems to glorify the Mussolini years.`\
-https://nytimes.com/2024/12/13/world/europe/futurism-exhibition-rome.html
-
-**Scoop City: Readers opinions on whether to bench Kirk Cousins**\
-`A quick look at reader suggestions on Kirk Cousins/Michael Penix Jr., plus a Week 15 Watch Guide and three stories to read.`\
-https://nytimes.com/athletic/5992306/2024/12/13/week-15-kirk-cousins-bench-michael-penix-scoop-city/
-
-**Europe will deliver emergency supplies to Syria.**\
-`By Jenny Gross`\
-https://nytimes.com/live/2024/12/13/world/syria-news/europe-will-deliver-emergency-supplies-to-syria
 
