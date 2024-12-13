@@ -1,3 +1,15 @@
+**Padres’ Yu Darvish on Roki Sasaki: ‘It’s a good thing if he were to come to San Diego’**\
+`Darvish spoke publicly for the first time since his fellow countryman Sasaki was posted, allowing him to sign with any MLB club.`\
+https://nytimes.com/athletic/5992996/2024/12/13/roki-sasaki-yu-darvish-padres/
+
+**Tim Cook to Dine With Trump at Mar-a-Lago**\
+`The chief executive of Apple is the latest in a series of technology  executives who are traveling to Florida to meet with the president-elect.`\
+https://nytimes.com/2024/12/13/technology/trump-tim-cook-mar-a-lago.html
+
+**McConnell Defends Polio Vaccine, an Apparent Warning to Kennedy**\
+`“Efforts to undermine public confidence in proven cures are not just uninformed — they’re dangerous,” said the former Republican leader, who is a polio survivor.`\
+https://nytimes.com/2024/12/13/us/politics/in-an-apparent-warning-to-kennedy-mcconnell-defends-polio-vaccine.html
+
 **Connor Bedard back in the groove, back on the highlight reel for Blackhawks**\
 `Bedard's spectacular toe-drag goal on Thursday against the Islanders seemed to flagrantly defy the laws of physics.`\
 https://nytimes.com/athletic/5993135/2024/12/13/connor-bedard-blackhawks-goal/

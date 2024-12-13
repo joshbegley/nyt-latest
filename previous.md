@@ -1,3 +1,7 @@
+**Padres’ Yu Darvish on Roki Sasaki: ‘It’s a good thing if he were to come to San Diego’**\
+`Darvish spoke publicly for the first time since his fellow countryman Sasaki was posted, allowing him to sign with any MLB club.`\
+https://nytimes.com/athletic/5992996/2024/12/13/roki-sasaki-yu-darvish-padres/
+
 **Connor Bedard back in the groove, back on the highlight reel for Blackhawks**\
 `Bedard's spectacular toe-drag goal on Thursday against the Islanders seemed to flagrantly defy the laws of physics.`\
 https://nytimes.com/athletic/5993135/2024/12/13/connor-bedard-blackhawks-goal/
@@ -6,13 +10,13 @@ https://nytimes.com/athletic/5993135/2024/12/13/connor-bedard-blackhawks-goal/
 `The lawsuit, filed on Friday, appeared to be among the first attempts to stop doctors from mailing the medications to states that ban abortions.`\
 https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
 
-**Tim Cook to Dine With Trump**\
+**Tim Cook to Dine With Trump at Mar-a-Lago**\
 `The chief executive of Apple is the latest in a series of technology  executives who are traveling to Florida to meet with the president-elect.`\
-https://nytimes.com/2024/12/13/technology/trump-tim-cook-to-dine.html
+https://nytimes.com/2024/12/13/technology/trump-tim-cook-mar-a-lago.html
 
-**In an apparent warning to Kennedy, McConnell defends the polio vaccine.**\
-`The former Republican leader is a p`\
-https://nytimes.com/live/2024/12/13/us/trump-transition-news/in-an-apparent-warning-to-kennedy-mcconnell-defends-polio-vaccine
+**McConnell Defends Polio Vaccine, an Apparent Warning to Kennedy**\
+`“Efforts to undermine public confidence in proven cures are not just uninformed — they’re dangerous,” said the former Republican leader, who is a polio survivor.`\
+https://nytimes.com/2024/12/13/us/politics/in-an-apparent-warning-to-kennedy-mcconnell-defends-polio-vaccine.html
 
 **Hunter, Jeanty headline unusual Heisman class: How this race is different**\
 `This century, 20 quarterbacks have won the Heisman. Here are five reasons why the 2024 race is so odd.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993083/2024/12/13/wild-jake-middleton-injury-travi
 **Supreme Court to Hear Challenge to California Tailpipe Emissions Limits**\
 `The justices agreed to decide whether industry groups have suffered the sort of injury that gave them standing to sue over an unusual waiver.`\
 https://nytimes.com/2024/12/13/us/politics/supreme-court-california-tailpipe-emissions.html
-
-**Charles Handy Dies at 92; Philosopher Envisioned Today’s Corporate World**\
-`Joining a pantheon of management thinkers, he embraced a humanistic path for business and foresaw outsourcing, remote work and a gig economy.`\
-https://nytimes.com/2024/12/13/business/charles-handy-dead.html
 
