@@ -1,3 +1,19 @@
+**Heat Today: Nikola Jović stacking good days pays off as Heat win streak continues**\
+`Jović had been glued to the bench before Thursday, but he turned in one of his better performances against the Raptors.`\
+https://nytimes.com/athletic/5992153/2024/12/13/nikola-jovic-jimmy-butler-erik-spoelstra-bam-adebayo-nba-heat/
+
+**McKinsey to Pay $650 Million in Opioid Settlement With Justice Department**\
+`A senior partner has also pleaded to obstruction of justice after destroying company documents.`\
+https://nytimes.com/2024/12/13/business/mckinsey-oxycontin-settlement.html
+
+**Lions fan has season tickets revoked after altercation with Matt LaFleur**\
+`Fahad Yousif was trash talking Packers players before the rivalry game when the interaction escalated. `\
+https://nytimes.com/athletic/5992174/2024/12/13/lions-fan-tickets-revoked-matt-lafleur/
+
+**Gillibrand Presses Biden to Amend the Constitution to Enshrine Sex Equality**\
+`Senator Kirsten Gillibrand of New York is leading the charge for Democrats to persuade President Biden to adopt the Equal Rights Amendment, which would invite a Supreme Court battle.`\
+https://nytimes.com/2024/12/13/us/politics/gillibrand-biden-equal-rights-amendment.html
+
 **Mets to retire David Wright's No. 5, induct him into team's Hall of Fame**\
 `Wright will become the 10th player to have his jersey retired by the Mets and the 35th to enter the club's Hall of Fame.`\
 https://nytimes.com/athletic/5992326/2024/12/13/david-wrights-mets-jersey-retirement-hall-of-fame/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/13/us/politics/harris-speech-young-people.html
 **OpenAI’s Sam Altman to Donate $1 Million to Trump’s Inaugural Fund**\
 `Mr. Altman and OpenAI have recently hired key executives who previously worked for the Clinton, Obama and Biden administrations.`\
 https://nytimes.com/2024/12/13/technology/openai-sam-altman-trump-inauguration.html
-
-**'There’s another level': Why Max Pacioretty believes he has more to offer**\
-`Back from injury, the new Leafs forward is working on finding a balance between physicality and offence.`\
-https://nytimes.com/athletic/5992115/2024/12/13/leafs-nhl-max-pacioretty/
-
-**Trump’s Treasury Pick Is Poised to Test ‘Three Arrows’ Economic Strategy**\
-`Scott Bessent’s “3-3-3” plan to stimulate growth, reduce the deficit and expand oil production will soon face economic realities.`\
-https://nytimes.com/2024/12/13/business/trump-bessent-economic-strategy.html
-
-**How the Wackiest, Most ‘Annoying’ Christmas Song Became a Hit**\
-`It started with a novelty songwriter stranded on a snowy night. Decades later, listeners still can’t get his song, “Grandma Got Run Over By a Reindeer,” out of their heads.`\
-https://nytimes.com/2024/12/13/style/grandma-got-run-over-christmas-song-history.html
-
-**Elon Musk’s Playbook for DOGE Has a Precedent: X**\
-`Mr. Musk is wielding his X account to single out federal employees and agencies for cuts. He has used this method before.`\
-https://nytimes.com/2024/12/13/technology/elon-musk-doge-x.html
 
