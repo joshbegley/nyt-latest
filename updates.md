@@ -1,3 +1,7 @@
+**Time’s Person of the Year Doesn’t Surprise Late Night Hosts**\
+`“Trump is the first man in history to be Time’s person of the year and McDonald’s employee of the month,” Jimmy Fallon said on Thursday.`\
+https://nytimes.com/2024/12/13/arts/television/late-night-time-magazine-trump.html
+
 **Word of the Day: efficient**\
 `This word has appeared in 1,694 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/13/learning/word-of-the-day-efficient.html
