@@ -1,3 +1,11 @@
+**Bill Guerin on Jake Middleton's injury, Travis Dermott's addition and where Wild go from here**\
+`Although losing Middleton is a tough loss for the Wild, they are fortunate to have been able to claim Dermott off waivers from the Oilers.`\
+https://nytimes.com/athletic/5993083/2024/12/13/wild-jake-middleton-injury-travis-dermott/
+
+**Conan O’Brien’s Parents Die 3 Days Apart**\
+`Thomas O’Brien, an epidemiologist, and Ruth O’Brien, a lawyer, juggled successful careers with raising six children, including the comedy star.`\
+https://nytimes.com/2024/12/13/arts/television/conan-obrien-parents-dead.html
+
 **Supreme Court to Hear Challenge to California Tailpipe Emissions Limits**\
 `The justices agreed to decide whether industry groups have suffered the sort of injury that gave them standing to sue over an unusual waiver.`\
 https://nytimes.com/2024/12/13/us/politics/supreme-court-california-tailpipe-emissions.html
