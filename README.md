@@ -1,3 +1,7 @@
+**Supreme Court to Hear Catholic Charity’s Bid for Tax Exemption**\
+`The justices agreed to hear an appeal from a Wisconsin Supreme Court ruling that the charity’s activities were insufficiently religious to qualify.`\
+https://nytimes.com/2024/12/13/us/politics/supreme-court-catholic-charity-taxes.html
+
 **Team Canada World Junior selection camp: Breaking down the cuts, standouts and roster**\
 `Team Canada made its final cuts for its roster for the 2025 world juniors on Friday afternoon.`\
 https://nytimes.com/athletic/5990359/2024/12/13/canada-world-juniors-2025-roster-cuts/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/technology/openai-elon-musk-lawsuit.html
 **Law: Cubs finally take big swing with great deal for Kyle Tucker**\
 `Cam Smith is the jewel of the trade for the Astros, who may have received more total value for Tucker if they strictly targeted prospects.`\
 https://nytimes.com/athletic/5993187/2024/12/13/cubs-astros-kyle-tucker-trade-analysis/
-
-**Joy Buoys Syria’s First Friday Prayers Since Assad Ouster, but Hardships Loom**\
-`In an impoverished, war-ravaged country, the first prayers after the fall of a brutal regime drew jubilant crowds, even in areas seen as regime strongholds.`\
-https://nytimes.com/2024/12/13/world/middleeast/syria-friday-prayers-assad.html
 
