@@ -3,7 +3,7 @@
 https://nytimes.com/2024/12/12/us/politics/torture-charges-syria-prison-official.html
 
 **How the Mets won over Juan Soto and what's next: Takeaways**\
-`New York's pitch to Soto hit the right notes on what agent Scott Boras called the "human moments," caring for family and for their players. `\
+`New York's pitch to Soto hit the right notes on what agent Scott Boras called the "human moments," caring for family and for the players. `\
 https://nytimes.com/athletic/5990928/2024/12/12/mets-won-juan-soto-whats-next-takeaways/
 
 **Leafs goalie Anthony Stolarz exits vs. Ducks with injury**\

@@ -1,3 +1,7 @@
+**How the Mets won over Juan Soto and what's next: Takeaways**\
+`New York's pitch to Soto hit the right notes on what agent Scott Boras called the "human moments," caring for family and for the players. `\
+https://nytimes.com/athletic/5990928/2024/12/12/mets-won-juan-soto-whats-next-takeaways/
+
 **U.S. Charges Ex-Syrian Prison Official With Torture**\
 `The indictment was the second time in a week that the Justice Department announced that it had charged top Syrian officials with human rights abuses.`\
 https://nytimes.com/2024/12/12/us/politics/torture-charges-syria-prison-official.html
