@@ -1,3 +1,7 @@
+**Hunter, Jeanty headline unusual Heisman class: How this race is different**\
+`This century, 20 quarterbacks have won the Heisman. Here are five reasons why the 2024 race is so odd.`\
+https://nytimes.com/athletic/5993098/2024/12/13/travis-hunter-heisman-trophy-comments-ceremony/
+
 **It’s Going to Be Normal to Have Extreme Beliefs**\
 `What the fascination with a C.E.O.’s killing reveals about this political era.`\
 https://nytimes.com/2024/12/13/opinion/unitedhealthcare-ceo-shooting.html
