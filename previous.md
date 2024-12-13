@@ -1,3 +1,7 @@
+**Louis Nelson, Designer of Korean War Mural, Dies at 88**\
+`A designer of signage and product packaging, he was best known for his work on the 164-foot mural wall at the Korean War Veterans Memorial in Washington.`\
+https://nytimes.com/2024/12/13/arts/design/louis-nelson-dead.html
+
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 16?**\
 `As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
 https://nytimes.com/athletic/5981107/2024/12/13/premier-league-predicted-line-ups-who-do-our-writers-think-will-start-in-gameweek-16/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5992306/2024/12/13/week-15-kirk-cousins-bench-micha
 **Europe will deliver emergency supplies to Syria.**\
 `By Jenny Gross`\
 https://nytimes.com/live/2024/12/13/world/syria-news/europe-will-deliver-emergency-supplies-to-syria
-
-**The Under-the-Radar Filipino Island That Evokes 1970s Bali**\
-`A guide to Siargao, a surf spot turned luxury escape, with insider tips on where to find powdery beaches and coconut slushies.`\
-https://nytimes.com/2024/12/13/t-magazine/siargao-filipino-island-that-evokes-1970s-bali.html
 
