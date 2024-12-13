@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Aaron Boxerman and Safak Timur`\
+https://nytimes.com/live/2024/12/13/world/syria-news/here-are-the-latest-developments
+
+**Live Updates: Syrians Gather for 1st Friday Prayers Since al-Assad’s Fall**\
+`The mood in Damascus appeared largely celebratory, reflecting the relief among many Syrians at the fall of the Assad dynasty after a half-century of rule.`\
+https://nytimes.com/live/2024/12/13/world/syria-news
+
 **The Fall of al-Assad Quickly Infuses Europe’s Debate Over Asylum**\
 `Nearly a million Syrians in Germany alone have made new lives. But after the fall of Bashar al-Assad, some politicians across the continent have suggested that refugees could return home.`\
 https://nytimes.com/2024/12/13/world/europe/syria-assad-europe-germany-refugees.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/13/opinion/united-health-care-brian-thompson-luigi-m
 **Waiting for a Test Result Can Be Brutal. Here’s How to Deal.**\
 `Anxious anticipation is natural, but there are things you can do to ease it.`\
 https://nytimes.com/2024/12/13/well/test-result-anxiety-tips.html
-
-**The New York Times News Quiz, Dec. 13, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/12/13/briefing/syria-luigi-mangione-trump-news-quiz.html
-
-**Media Moguls Set the Stage for Deal Mania**\
-`Comcast and Warner Bros. Discovery are rearranging their businesses for mergers and acquisitions. Experts say the next year could transform the media industry.`\
-https://nytimes.com/2024/12/13/business/media/comcast-warner-bros-discovery-media-deals.html
 
