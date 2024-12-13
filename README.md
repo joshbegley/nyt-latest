@@ -1,3 +1,7 @@
+**Lemina replaced as Wolves captain following post-West Ham match incident**\
+`Mario Lemina has been replaced as Wolverhampton Wanderers captain by Nelson Semedo following the post-match altercation he had at West Ham United on Monday.`\
+https://nytimes.com/athletic/5992018/2024/12/13/mario-lemina-wolves-captain-replaced-semedo/
+
 **Fantasy football injury report: Can Kenneth Walker run in Week 15?**\
 `Greg Scholz runs through the notable injured players who could impact fantasy football in Week 15, including Seattle's Kenneth Walker.`\
 https://nytimes.com/athletic/5990866/2024/12/13/fantasy-football-injury-report-week-15-walker-pollard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5990513/2024/12/13/ruben-amorim-manchester-derby-gu
 **Thompson: Deebo Samuel's drop drove the last nail into a 49ers team in need of a retool**\
 `In a critical moment Thursday night, Deebo Samuel couldn't haul in a critical pass. About an hour later, the 49ers' season was all but over.`\
 https://nytimes.com/athletic/5991804/2024/12/13/deebo-samuel-drop-san-francisco-49ers-season/
-
-**Man City left with three fit defenders for Manchester derby - Guardiola**\
-`Pep Guardiola says that Manchester City will have just three fit defenders for Sunday’s game against Manchester United, and admits he does not yet know who will make up his backline.`\
-https://nytimes.com/athletic/5991961/2024/12/13/man-city-team-news-defenders-pep-guardiola/
 
