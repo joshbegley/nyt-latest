@@ -1,3 +1,19 @@
+**How Ultraprocessed Foods Took Over America**\
+`The wide-ranging category includes sodas, processed meats, many breakfast cereals, snack foods and frozen meals.`\
+https://nytimes.com/2024/12/13/podcasts/the-daily/how-ultraprocessed-foods-took-over-america.html
+
+**The Connections Companion No. 552**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 14, 2024.`\
+https://nytimes.com/2024/12/13/crosswords/connections-companion-552.html
+
+**Wordle Review No. 1,274**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 14, 2024.`\
+https://nytimes.com/2024/12/13/crosswords/wordle-review-1274.html
+
+**Wawrinka, Tomljanovic headline Australian Open wildcards**\
+`The 2014 men's champion tops the wildcard billing in Melbourne.`\
+https://nytimes.com/athletic/5991793/2024/12/13/australian-open-wildcards-wawrinka-tomljanovic-joint-tu/
+
 **'He's a rock of this foundation': Jordan Mailata using his voice and his guitar to lead Eagles**\
 `Jordan Mailata has stepped into a leadership role as the Eagles' resident music man.`\
 https://nytimes.com/athletic/5986770/2024/12/13/jordan-mailata-eagles-singer-guitar/
