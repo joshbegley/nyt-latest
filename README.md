@@ -1,3 +1,23 @@
+**Mets to retire David Wright's No. 5, induct him into team's Hall of Fame**\
+`Wright will become the 10th player to have his jersey retired by the Mets and the 35th to enter the club's Hall of Fame.`\
+https://nytimes.com/athletic/5992326/2024/12/13/david-wrights-mets-jersey-retirement-hall-of-fame/
+
+**Fortnite Players Get Millions in Refunds for Unwanted Purchases**\
+`Epic Games is making the payments, which average about $114, after settling accusations from the federal government that the studio tricked people into buying in-game items.`\
+https://nytimes.com/2024/12/13/arts/fortnite-ftc-refunds.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include an Irish drama about a pirate-queen, a found-footage movie made from lost Palestinian films, a coming-of-age thriller from Mexico and more.`\
+https://nytimes.com/2024/12/13/movies/international-movies-streaming.html
+
+**Blinken Discusses Syria’s Future on Unannounced Visit to Iraq**\
+`Secretary of State Antony J. Blinken said he talked with Iraq’s prime minister about the situation in Syria, including efforts to encourage Syria to transition to an inclusive, non-sectarian government.`\
+https://nytimes.com/video/world/middleeast/100000009876711/blinken-syria-iraq.html
+
+**Harris to Deliver Speech Urging Young People to Stay Civically Engaged**\
+`Vice President Kamala Harris, who has kept a relatively low profile since she lost the election, will speak in Maryland on Tuesday.`\
+https://nytimes.com/2024/12/13/us/politics/harris-speech-young-people.html
+
 **OpenAI’s Sam Altman to Donate $1 Million to Trump’s Inaugural Fund**\
 `Mr. Altman and OpenAI have recently hired key executives who previously worked for the Clinton, Obama and Biden administrations.`\
 https://nytimes.com/2024/12/13/technology/openai-sam-altman-trump-inauguration.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/13/style/grandma-got-run-over-christmas-song-history
 **Elon Musk’s Playbook for DOGE Has a Precedent: X**\
 `Mr. Musk is wielding his X account to single out federal employees and agencies for cuts. He has used this method before.`\
 https://nytimes.com/2024/12/13/technology/elon-musk-doge-x.html
-
-**What is Captagon, the Illegal Stimulant that Made al-Assad’s Syria a Narcostate?**\
-`The illegal amphetamine, used across the Middle East, became Syria’s biggest export during its 13-year civil war.`\
-https://nytimes.com/2024/12/13/world/middleeast/captagon-stimulant-assad-syria.html
-
-**Louis Nelson, Designer of Korean War Mural, Dies at 88**\
-`A designer of signage and product packaging, he was best known for his work on the 164-foot mural wall at the Korean War Veterans Memorial in Washington.`\
-https://nytimes.com/2024/12/13/arts/design/louis-nelson-dead.html
-
-**NFL Week 15 fantasy football, betting cheat sheet: Alvin Kamara, Breece Hall ailing**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/5984019/2024/12/13/nfl-week-15-fantasy-football-betting-cheat-sheet/
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 16?**\
-`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
-https://nytimes.com/athletic/5981107/2024/12/13/premier-league-predicted-line-ups-who-do-our-writers-think-will-start-in-gameweek-16/
-
-**Visual Dictionary**\
-`A series examining the concrete details and visual signifiers associated with various public figures that, taken together, add up to a cultural icon.`\
-https://nytimes.com/spotlight/visual-dictionary
 
