@@ -1,3 +1,23 @@
+**Man City announce club-record revenues of £715million**\
+`Manchester City have announced club-record revenues of £715million in their latest annual accounts, alongside profits of £73.`\
+https://nytimes.com/athletic/5990229/2024/12/13/manchester-city-record-revenues/
+
+**Uber and Lyft Found a Loophole in a Driver Pay Law. Drivers Pushed Back.**\
+`As ride-hailing companies and labor unions each push New York City to amend its rules, drivers hurt by widespread app lockouts are struggling to make ends meet.`\
+https://nytimes.com/2024/12/13/nyregion/uber-lyft-lockouts-wages-nyc.html
+
+**Money in Suitcase**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/12/13/learning/money-in-suitcase.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/13/crosswords/spelling-bee-forum.html
+
+**How Canucks put in a complete performance in J.T. Miller's return: 3 takeaways**\
+`The Canucks have rarely managed the sort of 60-minute effort they put in Thursday against the defending Stanley Cup champion Panthers.`\
+https://nytimes.com/athletic/5991427/2024/12/13/canucks-j-t-miller-return-takeaways/
+
 **Time’s Person of the Year Doesn’t Surprise Late Night Hosts**\
 `“Trump is the first man in history to be Time’s person of the year and McDonald’s employee of the month,” Jimmy Fallon said on Thursday.`\
 https://nytimes.com/2024/12/13/arts/television/late-night-time-magazine-trump.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5879354/2024/12/13/manchester-united-viktoria-plzen
 **Bronny James shines in G League road debut with 30 points in 25 minutes**\
 `Entering the game, the 20-year-old had been averaging 8.7 points, 3.0 rebounds, 2.7 assists, 1.0 steals, 1.0 blocks and 2.0 turnovers.`\
 https://nytimes.com/athletic/5991453/2024/12/13/bronny-james-g-league-road-debut-30-points/
-
-**Trump and Rubio Suddenly Have a Chance to Reshape the Middle East**\
-`Because of Syria’s centrality in the Middle East, positive change there could radiate out in all directions.`\
-https://nytimes.com/2024/12/13/opinion/syria-iran-donald-trump.html
-
-**'He means so much to us': Scott Laughton scores all 4 Flyers goals in historic night**\
-`"After the third one, looking down at the bench and seeing all the guys, it's special," Laughton said. The Flyers beat the Red Wings 4-1.`\
-https://nytimes.com/athletic/5991390/2024/12/13/flyers-win-red-wings-scott-laughton-four-goals/
-
-**49ers' De'Vondre Campbell refuses to play, quits TNF game in third quarter**\
-`Campbell signed with the 49ers in the offseason, after spending the past three seasons with the Green Bay Packers`\
-https://nytimes.com/athletic/5991412/2024/12/13/devondre-campbell-49ers-quits-tnf/
-
-**FPL: Five low-owned options for the end of 2024 and beyond**\
-`Abdul Rehman presents five differentials who could make the difference for your FPL team over the festive period`\
-https://nytimes.com/athletic/5984159/2024/12/13/fantasy-premier-league-differentials-low-owned/
-
-**A beginner's guide to Dean Henderson's 'head saves' - and how he does them**\
-`An unusual save technique has won Palace precious points in recent weeks - this is how Henderson does it`\
-https://nytimes.com/athletic/5981156/2024/12/13/dean-henderson-crystal-palace-save-head/
 
