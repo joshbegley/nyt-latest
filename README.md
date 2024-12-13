@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5992606/2024/12/13/liverpool-christmas-party/
 https://nytimes.com/athletic/5992607/2024/12/13/marshon-lattimore-commanders-debut-saints/
 
 **Wild claim Travis Dermott off waivers after placing Jake Middleton on LTIR**\
-`Dermott has no points and is minus-3 in 10 games this season. Middleton broke a finger blocking a shot Thursday, according to sources.`\
+`Dermott has no points and is minus-3 in 10 games this season. Middleton broke a finger blocking a shot Thursday, league sources said.`\
 https://nytimes.com/athletic/5992773/2024/12/13/wild-travis-dermott-jake-middleton-ltir/
 
 **10 Songs That Explain My Year**\
