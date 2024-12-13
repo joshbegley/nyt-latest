@@ -1,3 +1,19 @@
+**Golf’s Highs and Lows in 2024**\
+`There were a lot of exciting tournaments, but LIV still looms over the sport.`\
+https://nytimes.com/2024/12/13/sports/golf/pga-lpga-liv-2024.html
+
+**Police Theorize C.E.O. Gunman Dumped Getaway Bike and It Was Swiped**\
+`Investigators are tracing the movements of the man they say fatally shot Brian Thompson, the chief executive of UnitedHealthcare.`\
+https://nytimes.com/2024/12/13/nyregion/uhc-shooting-gunman-getaway-bike.html
+
+**Martial Solal, French Jazz Piano Virtuoso, Is Dead at 97**\
+`Mr. Solal, who also wrote music for films and symphony orchestras, was revered in Europe and hailed in the United States on his rare visits there.`\
+https://nytimes.com/2024/12/13/arts/music/martial-solal-dead.html
+
+**From Snoop Dogg to Gold Medals, the Year in Horse Sport**\
+`2024 was the year a star rapper fell in love with horses, a U.S. team won at the Paralympics and the sport reckoned with its demons over animal abuse.`\
+https://nytimes.com/2024/12/13/sports/equestrian-sport-horse-year.html
+
 **In 2024, Tennis Was Busy With Action On and Off the Court**\
 `There were striking matches, coaching changes, and Novak Djokovic finally won his Olympic gold.`\
 https://nytimes.com/2024/12/13/sports/tennis/nadal-retirement-players-coaches.html
