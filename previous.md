@@ -1,3 +1,7 @@
+**Jaylen Brown points the way as unselfish Celtics topple Pistons**\
+`Boston handed out 34 assists on 46 made baskets, a team-first mentality that Detroit's coach likes to see and praised the Celtics for.`\
+https://nytimes.com/athletic/5991592/2024/12/13/jaylen-brown-celtics-unselfish-play/
+
 **Man City announce club-record revenues of £715million**\
 `Manchester City have announced club-record revenues of £715million in their latest annual accounts, alongside profits of £73.`\
 https://nytimes.com/athletic/5990229/2024/12/13/manchester-city-record-revenues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5991458/2024/12/13/wild-lose-oilers-jake-middleton-
 **Manchester United are still making mistakes - but they are learning**\
 `Ruben Amorim's team remains a work in progress but there were encouraging signs in the win over Viktoria Plzen`\
 https://nytimes.com/athletic/5879354/2024/12/13/manchester-united-viktoria-plzen-analysis/
-
-**Bronny James shines in G League road debut with 30 points in 25 minutes**\
-`Entering the game, the 20-year-old had been averaging 8.7 points, 3.0 rebounds, 2.7 assists, 1.0 steals, 1.0 blocks and 2.0 turnovers.`\
-https://nytimes.com/athletic/5991453/2024/12/13/bronny-james-g-league-road-debut-30-points/
 
