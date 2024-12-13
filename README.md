@@ -1,3 +1,23 @@
+**When Coming to America, European Directors Sometimes Get Lost in Translation**\
+`The history of European directors “going Hollywood” and making the leap to English-language filmmaking is long and uneven.`\
+https://nytimes.com/2024/12/13/movies/european-directors-english-language.html
+
+**Most Americans Say They Have Good Health Insurance, Polls Show**\
+`Many have encountered problems with their coverage, but the recent rage on social media is only part of the picture of Americans’ views on health care.`\
+https://nytimes.com/2024/12/13/us/elections/health-insurance-polls.html
+
+**Yankees trade for Brewers All-Star closer Devin Williams**\
+`The Yankees will also send cash to the Brewers to pay down Cortes' 2025 salary.`\
+https://nytimes.com/athletic/5992570/2024/12/13/yankees-brewers-trade-devil-williams-nestor-cortes-caleb-durbin/
+
+**In Idlib, which has long been rebel territory, a square fills with songs and celebrations.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/12/13/world/syria-news/in-idlib-which-has-long-been-rebel-territory-a-square-fills-up-with-songs-and-celebrations
+
+**Pelosi Hospitalized in Luxembourg After Falling**\
+`A person familiar with the incident said the former House speaker, 84, had tripped going down stairs at a palace. She was taken to a hospital for treatment and evaluation.`\
+https://nytimes.com/2024/12/13/us/politics/nancy-pelosi-hospitalized-luxembourg-falling.html
+
 **Can Berlin Really Afford 3 ‘Magic Flutes’ in a Single Week?**\
 `Each of the city’s opera houses is presenting a different production of the Mozart classic. With arts cuts looming, it looks like a last hurrah.`\
 https://nytimes.com/2024/12/13/arts/music/berlin-opera-arts-cuts.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5992153/2024/12/13/nikola-jovic-jimmy-butler-erik-s
 **McKinsey to Pay $650 Million in Opioid Settlement With Justice Department**\
 `A senior partner has also pleaded to obstruction of justice after destroying company documents.`\
 https://nytimes.com/2024/12/13/business/mckinsey-oxycontin-settlement.html
-
-**Lions fan has season tickets revoked after altercation with Matt LaFleur**\
-`Fahad Yousif was trash talking Packers players before the rivalry game when the interaction escalated. `\
-https://nytimes.com/athletic/5992174/2024/12/13/lions-fan-tickets-revoked-matt-lafleur/
-
-**Gillibrand Presses Biden to Amend the Constitution to Enshrine Sex Equality**\
-`Senator Kirsten Gillibrand of New York is leading the charge for Democrats to persuade President Biden to adopt the Equal Rights Amendment, which would invite a Supreme Court battle.`\
-https://nytimes.com/2024/12/13/us/politics/gillibrand-biden-equal-rights-amendment.html
-
-**Mets to retire David Wright's No. 5, induct him into team's Hall of Fame**\
-`Wright will become the 10th player to have his jersey retired by the Mets and the 35th to enter the club's Hall of Fame.`\
-https://nytimes.com/athletic/5992326/2024/12/13/david-wrights-mets-jersey-retirement-hall-of-fame/
-
-**Fortnite Players Get Millions in Refunds for Unwanted Purchases**\
-`Epic Games is making the payments, which average about $114, after settling accusations from the federal government that the studio tricked people into buying in-game items.`\
-https://nytimes.com/2024/12/13/arts/fortnite-ftc-refunds.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include an Irish drama about a pirate-queen, a found-footage movie made from lost Palestinian films, a coming-of-age thriller from Mexico and more.`\
-https://nytimes.com/2024/12/13/movies/international-movies-streaming.html
 
