@@ -1,3 +1,27 @@
+**Fantasy football injury report: Can Kenneth Walker run in Week 15?**\
+`Greg Scholz runs through the notable injured players who could impact fantasy football in Week 15, including Seattle's Kenneth Walker.`\
+https://nytimes.com/athletic/5990866/2024/12/13/fantasy-football-injury-report-week-15-walker-pollard/
+
+**Audience Report: At Berghain, They’ve Been Waiting in Line for 20 Years**\
+`The Berlin club famed for its long entry queue and choosy door policy is celebrating two decades of epic parties.`\
+https://nytimes.com/card/2024/12/13/arts/music/berghain-audience-report
+
+**At the oldest mosque in Damascus, worshipers celebrate a new Syria.**\
+`By Ben Hubbard`\
+https://nytimes.com/live/2024/12/13/world/syria-news/at-the-oldest-mosque-in-damascus-worshipers-celebrate-a-new-syria
+
+**Marks: Hiring Bill Belichick shows UNC is all in — for better or worse**\
+`UNC is investing in its future and trying to create a better tomorrow — one which, given its current reality, does not necessarily exist.`\
+https://nytimes.com/athletic/5991899/2024/12/13/bill-belichick-hire-unc-contract-college-football-coach/
+
+**Joonas Korpisalo and the downside of reverse vertical-horizontal**\
+`The Bruins lost 5-1 in Seattle and have been outscored by a 13-2 margin in the first two games of a five-stop trip.`\
+https://nytimes.com/athletic/5991587/2024/12/13/bruins-kraken-joonas-korpisalo-nhl/
+
+**Elon Musk and DOGE vs. Regulators**\
+`The billionaire has needled government agencies, armed with potential influence over their budgets. But some of these organizations are also looking into his interests.`\
+https://nytimes.com/2024/12/13/business/dealbook/musk-doge-sec-irs.html
+
 **Russia Hits Ukraine’s Energy Infrastructure in a Renewed Assault**\
 `Military analysts had speculated that Moscow could escalate such attacks as a show of force after the fall of President Bashar al-Assad of Syria, its ally.`\
 https://nytimes.com/2024/12/13/world/europe/russia-ukraine-attack-energy.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5991804/2024/12/13/deebo-samuel-drop-san-francisco-
 **Man City left with three fit defenders for Manchester derby - Guardiola**\
 `Pep Guardiola says that Manchester City will have just three fit defenders for Sunday’s game against Manchester United, and admits he does not yet know who will make up his backline.`\
 https://nytimes.com/athletic/5991961/2024/12/13/man-city-team-news-defenders-pep-guardiola/
-
-**Raiders' Jack Jones has grown on and off the field: 'Man, I've come a long way'**\
-`Raiders cornerbacks coach Ricky Manning Jr. on Jones: “He still has so much upside. He is only touching his potential, and he's so hungry."`\
-https://nytimes.com/athletic/5990409/2024/12/13/jack-jones-raiders-growth-antonio-pierce/
-
-**Trump Transition Live Updates: Amazon Joins Meta in Donating to Inauguration**\
-``\
-https://nytimes.com/live/2024/12/13/us/trump-transition-news
-
-**How Chargers' Quentin Johnston turned a drop into growth: 'That is you, so run with it'**\
-`Johnston rebounded to deliver an incredible catch last week against the Chiefs. "Might it be a defining moment? It might."`\
-https://nytimes.com/athletic/5991108/2024/12/13/quentin-johnston-chargers-drop-growth/
-
-**With al-Assad Gone, Syrians Seek Answers in an Underground Jail**\
-`Guided by cellphone flashlights, relatives searched a notorious lockup in Damascus for traces of loved ones who were snatched during the regime of Bashar al-Assad.`\
-https://nytimes.com/2024/12/13/world/middleeast/syria-al-assad-prisons-damascus.html
-
-**Row Z: Infantino's needless envelope, more unique Man Utd cost-cutting and Gary O'Neil's extreme hydration**\
-`Tim Spiers is here with his look at the sillier side of football this week`\
-https://nytimes.com/athletic/5987285/2024/12/13/row-z-saudi-arabia-2034-manchester-united-sunderland/
-
-**Live Q&A: FPL Gameweek 16 advice from Ben Dinnery**\
-`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 16 Q&A between 4-5pm UK time `\
-https://nytimes.com/athletic/5989712/2024/12/13/fantasy-premier-league-advice-gw16-tips/
 
