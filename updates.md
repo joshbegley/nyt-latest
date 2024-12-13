@@ -1,3 +1,11 @@
+**The End Game in Ukraine**\
+`How the war could come to a close next year.`\
+https://nytimes.com/2024/12/13/briefing/the-end-game-in-ukraine.html
+
+**Emmanuel Macron Appoints Key Ally as France’s New Prime Minister**\
+`François Bayrou, a centrist politician, will now become the fourth prime minister in a year, a record for France.`\
+https://nytimes.com/2024/12/13/world/europe/france-prime-minister-government-macron.html
+
 **The Pulse: We've sent 1,000 of these**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5989991/2024/12/13/rams-49ers-devondre-campbell-the-pulse/
