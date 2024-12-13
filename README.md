@@ -1,3 +1,7 @@
+**Russo: Wild must make sure 2011 doesn't repeat itself after ugly loss and another injury**\
+`The fact top-pair defenseman Jake Middleton suffered what could be a serious injury to his right hand Thursday night is extremely worrisome.`\
+https://nytimes.com/athletic/5991458/2024/12/13/wild-lose-oilers-jake-middleton-injury/
+
 **Manchester United are still making mistakes - but they are learning**\
 `Ruben Amorim's team remains a work in progress but there were encouraging signs in the win over Viktoria Plzen`\
 https://nytimes.com/athletic/5879354/2024/12/13/manchester-united-viktoria-plzen-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5974405/2024/12/13/emiliano-buendia-aston-villa-37-
 **What makes Chris Wood so difficult to play against?**\
 `Players past and present, opponents and team-mates, and his current head coach speak about the Nottingham Forest striker's qualities`\
 https://nytimes.com/athletic/5989675/2024/12/13/chris-wood-team-mates-opponents/
-
-**Oliver Skipp on his Spurs exit, a tough start at Leicester and Van Nistelrooy's calmness**\
-`The midfielder doesn't believe Leicester have seen his best since his summer move, but he feels the new manager can lift the club`\
-https://nytimes.com/athletic/5989260/2024/12/13/oliver-skipp-tottenham-leicester-van-nistelrooy/
 
