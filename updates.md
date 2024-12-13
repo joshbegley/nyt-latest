@@ -1,3 +1,11 @@
+**‘Cult of Love’ Review: We Wish You a Wretched Christmas**\
+`A hilarious, harrowing holiday gift from Leslye Headland, who brings another unhappy family to Broadway. Zachary Quinto and Shailene Woodley star.`\
+https://nytimes.com/2024/12/12/theater/cult-of-love-broadway-review.html
+
+**First Pass Friday, or How I Made My Way Into a Tough Puzzle**\
+`Ryan Patrick Smith’s crossword put up quite a fight, but there is always a way to win.`\
+https://nytimes.com/2024/12/12/crosswords/daily-puzzle-2024-12-13.html
+
 **Mount Vernon Police’s Strip Searches Were Unconstitutional, U.S. Says**\
 `A report by federal prosecutors found that a Westchester County police department violated the Fourth Amendment “on an enormous scale.”`\
 https://nytimes.com/2024/12/12/nyregion/mount-vernon-police-strip-searches.html
