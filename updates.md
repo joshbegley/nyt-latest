@@ -1,3 +1,15 @@
+**What makes Chris Wood so difficult to play against?**\
+`Players past and present, opponents and team-mates, and his current head coach speak about the Nottingham Forest striker's qualities`\
+https://nytimes.com/athletic/5989675/2024/12/13/chris-wood-team-mates-opponents/
+
+**Oliver Skipp on his Spurs exit, a tough start at Leicester and Van Nistelrooy's calmness**\
+`The midfielder doesn't believe Leicester have seen his best since his summer move, but he feels the new manager can lift the club`\
+https://nytimes.com/athletic/5989260/2024/12/13/oliver-skipp-tottenham-leicester-van-nistelrooy/
+
+**Introducing Wonder Woman and Eagleman (the Wrexham story just got weirder)**\
+`How a superhero and the bird of prey that's the emblem of the USA became Wrexham's most dedicated overseas fans of 2024...`\
+https://nytimes.com/athletic/5966575/2024/12/13/eagleman-wonder-woman-wrexham/
+
 **The Briefing - Rangers 1 Spurs 1: Werner and Johnson displays, Kulusevski and Solanke reliance**\
 `Tottenham were held by Rangers in the Europa League on Thursday evening. Jack Pitt-Brooke analyses the action from Ibrox`\
 https://nytimes.com/athletic/5986342/2024/12/13/tottenham-hotspur-rangers-analysis/
