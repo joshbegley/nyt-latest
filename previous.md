@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/12/nyregion/plane-crash-westchester-airport-ny.html
 https://nytimes.com/athletic/5991219/2024/12/12/dick-vitale-cancer-free-update/
 
 **Notre Dame's Hannah Hidalgo has UConn's number (again)**\
-`Hidalgo tied a milestone shared by Caitlin Clark and Sabrina Ionsecu as the Irish took down UConn in South Bend.`\
+`Hidalgo tied a milestone shared by Sabrina Ionescu as the Irish took down UConn in South Bend.`\
 https://nytimes.com/athletic/5991267/2024/12/12/notre-dame-hannah-hidalgo-uconn-victory/
 
 **‘Cult of Love’ Review: We Wish You a Wretched Christmas**\

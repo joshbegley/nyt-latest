@@ -1,3 +1,7 @@
+**Notre Dame's Hannah Hidalgo has UConn's number (again)**\
+`Hidalgo tied a milestone shared by Sabrina Ionescu as the Irish took down UConn in South Bend.`\
+https://nytimes.com/athletic/5991267/2024/12/12/notre-dame-hannah-hidalgo-uconn-victory/
+
 **Maple Leafs report cards: Toronto plays loose but hangs on for win**\
 `Max Pacioretty had two goals and an assist in Toronto's 3-2 win over Anaheim.`\
 https://nytimes.com/athletic/5991297/2024/12/12/maple-leafs-ducks-grades-analysis/
