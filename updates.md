@@ -1,3 +1,7 @@
+**Twins notes: Searching for righty bats, no lottery luck and ranking the Rule 5 pick**\
+`Will the Twins re-sign Carlos Santana or need a replacement? How much does dropping two picks matter? Where does Eiberson Castellano fit?`\
+https://nytimes.com/athletic/5989236/2024/12/13/twins-free-agent-right-handed-hitters/
+
 **If Bears GM Ryan Poles survives this season, he'll have Caleb Williams to thank**\
 `Poles is on the hot seat, but his 2023 trade of the No. 1 pick that led to the Bears drafting Caleb Williams could save him.`\
 https://nytimes.com/athletic/5990727/2024/12/13/bears-caleb-williams-ryan-poles/
