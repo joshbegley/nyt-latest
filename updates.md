@@ -1,3 +1,11 @@
+**Crystal Mangum admits she lied about 2006 rape by Duke lacrosse players**\
+`"They didn’t deserve that, and I hope that they can forgive me,” Mangum said of the players on "Let's Talk With Kat."`\
+https://nytimes.com/athletic/5993142/2024/12/13/crystal-mangum-duke-lacrosse-players-rape/
+
+**Gerd Heidemann, Journalist Duped by Fake Hitler Diaries, Dies at 93**\
+`What was supposed to be the crowning scoop of his career became his downfall when a trove of notebooks he acquired in Germany turned out to be forgeries.`\
+https://nytimes.com/2024/12/13/business/media/gerd-heidemann-dead.html
+
 **Supreme Court to Hear Catholic Charity’s Bid for Tax Exemption**\
 `The justices agreed to hear an appeal from a Wisconsin Supreme Court ruling that the charity’s activities were insufficiently religious to qualify.`\
 https://nytimes.com/2024/12/13/us/politics/supreme-court-catholic-charity-taxes.html
