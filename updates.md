@@ -1,3 +1,11 @@
+**Dick Vitale says PET scan shows he is cancer-free after lymph node surgery**\
+`Vitale, 85, has now overcome cancer four times in three years. He underwent radiation treatment in 2023 to address vocal cord cancer.`\
+https://nytimes.com/athletic/5991219/2024/12/12/dick-vitale-cancer-free-update/
+
+**Notre Dame's Hannah Hidalgo has UConn's number (again)**\
+`Hidalgo tied a milestone shared by Caitlin Clark and Sabrina Ionsecu as the Irish took down UConn in South Bend.`\
+https://nytimes.com/athletic/5991267/2024/12/12/notre-dames-hannah-hidalgo-has-uconns-number-again/
+
 **‘Cult of Love’ Review: We Wish You a Wretched Christmas**\
 `A hilarious, harrowing holiday gift from Leslye Headland, who brings another unhappy family to Broadway. Zachary Quinto and Shailene Woodley star.`\
 https://nytimes.com/2024/12/12/theater/cult-of-love-broadway-review.html
