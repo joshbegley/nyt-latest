@@ -1,3 +1,11 @@
+**A Stunning Year in Sports: Caitlin Clark, Shohei Ohtani and Record Viewership**\
+`It was also a year highlighted by the pageantry and competition of the Paris Olympics.`\
+https://nytimes.com/2024/12/13/sports/caitlin-clark-best-year.html
+
+**Avant Gardner, Troubled Brooklyn Venue, Promises Security Changes in Major Renovation**\
+`The planned overhaul comes more than a year after two patrons who left the mega-club were found dead nearby.`\
+https://nytimes.com/2024/12/13/nyregion/brooklyn-avant-gardner-security.html
+
 **Review: Reveling in a Wry Storybook, Full of Characters**\
 `The choreographer Tess Dworman inhabits an assortment of people (and an ottoman) in her dance-theater work “Everything Must Go.”`\
 https://nytimes.com/2024/12/13/arts/dance/review-tess-dworman-chocolate-factory.html
