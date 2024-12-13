@@ -23,8 +23,7 @@ https://nytimes.com/2024/12/13/magazine/sex-work-boyfriend-ethics.html
 https://nytimes.com/2024/12/13/us/politics/kash-patel-benghazi-investigation-doj.html
 
 **Billionaire Ishbia brothers, owners of Phoenix Suns, emerge as bidders for Minnesota Twins: Source**\
-`By Dan Hayes, Sam Amick and Dennis Lin
-DALLAS — The ownership group that purchased the Phoenix Suns — before promptly making a splash by acquiring Kevin Durant — is now interested in buying the Minnesota Twins.`\
+`DALLAS — The ownership group that purchased the Phoenix Suns — before promptly making a splash by acquiring Kevin Durant — is now interested in buying the Minnesota Twins.`\
 https://nytimes.com/athletic/5992891/2024/12/13/billionaire-ishbia-brothers-emerge-as-bidders-for-minnesota-twins-source/
 
 **Skinner feels 'supported' despite Ratcliffe comments on women's team**\

@@ -1,3 +1,7 @@
+**Billionaire Ishbia brothers, owners of Phoenix Suns, emerge as bidders for Minnesota Twins: Source**\
+`DALLAS — The ownership group that purchased the Phoenix Suns — before promptly making a splash by acquiring Kevin Durant — is now interested in buying the Minnesota Twins.`\
+https://nytimes.com/athletic/5992891/2024/12/13/billionaire-ishbia-brothers-emerge-as-bidders-for-minnesota-twins-source/
+
 **Why the Rangers opted not to go to the waiver wire with K'Andre Miller out**\
 `The Rangers could have added a defensive stopgap in Travis Dermott off the wire on Friday but instead chose to go with internal options.`\
 https://nytimes.com/athletic/5992820/2024/12/13/rangers-kandre-miller-connor-mackey/
