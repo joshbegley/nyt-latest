@@ -1,3 +1,7 @@
+**A New Frontier in Paleontology for Profit: Selling Shares in a Stegosaurus**\
+`As academics fear being priced out of the fossil market, a private company announced that it aims to raise $13.75 million by selling shares in a stegosaurus fossil.`\
+https://nytimes.com/2024/12/13/arts/design/stegosaurus-shares-public-offering.html
+
 **Tired of Tipping? Holidays May Be the Exception.**\
 `Consumers have said they are confused and frustrated with tipping expectations generally. But, one expert says, “people generally want to feel more generous around the holidays.”`\
 https://nytimes.com/2024/12/13/your-money/tipping-etiquette-holidays.html
