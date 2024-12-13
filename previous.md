@@ -1,3 +1,7 @@
+**Connor Bedard, Tyler Bertuzzi are bright spots, but Blackhawks revert to old ways vs. Isles**\
+`The Blackhawks showed plenty of fight but fell 5-4 to the Islanders. `\
+https://nytimes.com/athletic/5991361/2024/12/12/blackhawks-connor-bedard-tyler-bertuzzi/
+
 **Jake Middleton's injury only the start of Wild's worst game of season: 3 takeaways vs. Oilers**\
 `Middleton looked to injure his right hand on the first shift of Thursday's 7-1 loss to the Oilers.`\
 https://nytimes.com/athletic/5991087/2024/12/12/wild-oilers-jake-middleton-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/theater/cult-of-love-broadway-review.html
 **First Pass Friday, or How I Made My Way Into a Tough Puzzle**\
 `Ryan Patrick Smith’s crossword put up quite a fight, but there is always a way to win.`\
 https://nytimes.com/2024/12/12/crosswords/daily-puzzle-2024-12-13.html
-
-**Mount Vernon Police’s Strip Searches Were Unconstitutional, U.S. Says**\
-`A report by federal prosecutors found that a Westchester County police department violated the Fourth Amendment “on an enormous scale.”`\
-https://nytimes.com/2024/12/12/nyregion/mount-vernon-police-strip-searches.html
 

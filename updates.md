@@ -1,3 +1,7 @@
+**Connor Bedard, Tyler Bertuzzi are bright spots, but Blackhawks revert to old ways vs. Isles**\
+`The Blackhawks showed plenty of fight but fell 5-4 to the Islanders. `\
+https://nytimes.com/athletic/5991361/2024/12/12/blackhawks-connor-bedard-tyler-bertuzzi/
+
 **Jake Middleton's injury only the start of Wild's worst game of season: 3 takeaways vs. Oilers**\
 `Middleton looked to injure his right hand on the first shift of Thursday's 7-1 loss to the Oilers.`\
 https://nytimes.com/athletic/5991087/2024/12/12/wild-oilers-jake-middleton-injury/
