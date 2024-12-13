@@ -1,3 +1,7 @@
+**Humpback Whale Sets Record for How Far It Traveled**\
+`The adult male swam more than 8,000 miles from South America to Africa, most likely in search of a mate, researchers said.`\
+https://nytimes.com/2024/12/12/us/humpback-whale-migration.html
+
 **Amazon Plans $1 Million Donation to Trump’s Inaugural Fund**\
 `The move follows Meta’s donation of the same amount to the fund earlier this week.`\
 https://nytimes.com/2024/12/12/technology/amazon-trump-inauguration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/t-magazine/simple-holiday-manicure.html
 **Report on New Jersey’s Worst Nursing Home Finds Rampant Fraud and Abuse**\
 `A trio of relatives in New Jersey defrauded the state’s Medicaid program out of millions of dollars while neglecting patient care, the state comptroller found.`\
 https://nytimes.com/2024/12/12/nyregion/new-jersey-nursing-homes-fraud.html
-
-**Breaking down Bill Belichick's contract with UNC: Why it is unlike others in college**\
-`Not only is Bill Belichick entering a world he’s never been in in an official capacity, but his contract is unlike most others in the sport.`\
-https://nytimes.com/athletic/5990758/2024/12/12/bill-belichick-contract-buyout/
 
