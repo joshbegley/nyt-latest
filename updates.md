@@ -1,3 +1,11 @@
+**Roundtable reaction after Kyle Tucker’s trade from Astros to Cubs**\
+`After pulling off a major acquisition, what's next for the Cubs? How does impact the Astros and their next steps?`\
+https://nytimes.com/athletic/5992938/2024/12/13/kyle-tucker-astros-cubs-trade-analysis/
+
+**The Russian military appears to be packing up equipment in Syria, satellite imagery shows.**\
+`Such a move highlights the uncertainty of Moscow’s foothold in Syria, which has served as an important strategic foothold in the Middle East.`\
+https://nytimes.com/live/2024/12/13/world/syria-news/russia-military-syria
+
 **A top House Democrat demands that Trump picks undergo F.B.I. vetting.**\
 `Representative Jamie Raskin of Maryland, the top Democrat on the Oversight Committee, also asked the Trump transition team to disclose any contacts it has had with private companies vetting personnel.`\
 https://nytimes.com/live/2024/12/13/us/trump-transition-news/a-top-house-democrat-demands-that-trump-picks-undergo-fbi-vetting

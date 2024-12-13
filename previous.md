@@ -1,3 +1,7 @@
+**Roundtable reaction after Kyle Tucker’s trade from Astros to Cubs**\
+`After pulling off a major acquisition, what's next for the Cubs? How does impact the Astros and their next steps?`\
+https://nytimes.com/athletic/5992938/2024/12/13/kyle-tucker-astros-cubs-trade-analysis/
+
 **A top House Democrat demands that Trump picks undergo F.B.I. vetting.**\
 `Representative Jamie Raskin of Maryland, the top Democrat on the Oversight Committee, also asked the Trump transition team to disclose any contacts it has had with private companies vetting personnel.`\
 https://nytimes.com/live/2024/12/13/us/trump-transition-news/a-top-house-democrat-demands-that-trump-picks-undergo-fbi-vetting
@@ -7,8 +11,8 @@ https://nytimes.com/live/2024/12/13/us/trump-transition-news/a-top-house-democra
 https://nytimes.com/athletic/5992933/2024/12/13/brewers-yankees-trade-nestor-cortes-devin-williams-keith-law/
 
 **The Russian military appears to be packing up equipment in Syria, satellite imagery shows.**\
-`Such a move would highlight the uncertainty of Moscow’s foothold in Syria, which has served as an important strategic foothold in the Middle East.`\
-https://nytimes.com/live/2024/12/13/world/syria-news/the-russian-military-appears-to-be-packing-up-equipment-in-syria-satellite-imagery-shows
+`Such a move highlights the uncertainty of Moscow’s foothold in Syria, which has served as an important strategic foothold in the Middle East.`\
+https://nytimes.com/live/2024/12/13/world/syria-news/russia-military-syria
 
 **President Biden commutes sentence of former Miami booster Nevin Shapiro**\
 `Shapiro was one of 1,499 people convicted of non-violent crimes whose sentences were commuted Thursday by Biden.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/pageoneplus/shooting-death-police-sources.html
 **Astros trade OF Kyle Tucker to Cubs following crazy 72-hour window**\
 `The Astros will receive a package that includes infielder Isaac Paredes, right-hander Hayden Wesneski and infield prospect Cam Smith`\
 https://nytimes.com/athletic/5992880/2024/12/13/astros-trade-of-kyle-tucker-to-cubs-following-crazy-72-hour-window/
-
-**America’s Health Care System Needs Better Economics, Not Bullets**\
-`If only fixing it were as easy as finding someone to blame.`\
-https://nytimes.com/2024/12/13/opinion/health-care-united-shooting.html
 
