@@ -1,3 +1,7 @@
+**NHL Power Rankings: Capitals take top spot, plus every team's Christmas wishlist**\
+`All 32 teams — even the good ones — need something. It might not be what they want, but it's what they should get.`\
+https://nytimes.com/athletic/5991457/2024/12/13/nhl-power-rankings-capitals/
+
 **Lemina replaced as Wolves captain following post-West Ham match incident**\
 `Mario Lemina has been replaced as Wolverhampton Wanderers captain by Nelson Semedo following the post-match altercation he had at West Ham United on Monday.`\
 https://nytimes.com/athletic/5992018/2024/12/13/mario-lemina-wolves-captain-replaced-semedo/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/world/europe/russia-ukraine-attack-energy.html
 **Amorim on City's troubles: 'They are in a better place than us ... we have a lot of issues'**\
 `Ruben Amorim says he is focussed on his own side&#8217;s problems and not those of Manchester City as he prepares for his first Manchester derby since taking over at Old Trafford.`\
 https://nytimes.com/athletic/5990513/2024/12/13/ruben-amorim-manchester-derby-guardiola/
-
-**Thompson: Deebo Samuel's drop drove the last nail into a 49ers team in need of a retool**\
-`In a critical moment Thursday night, Deebo Samuel couldn't haul in a critical pass. About an hour later, the 49ers' season was all but over.`\
-https://nytimes.com/athletic/5991804/2024/12/13/deebo-samuel-drop-san-francisco-49ers-season/
 

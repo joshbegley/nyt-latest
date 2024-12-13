@@ -1,3 +1,7 @@
+**Lemina replaced as Wolves captain following post-West Ham match incident**\
+`Mario Lemina has been replaced as Wolverhampton Wanderers captain by Nelson Semedo following the post-match altercation he had at West Ham United on Monday.`\
+https://nytimes.com/athletic/5992018/2024/12/13/mario-lemina-wolves-captain-replaced-semedo/
+
 **Fantasy football injury report: Can Kenneth Walker run in Week 15?**\
 `Greg Scholz runs through the notable injured players who could impact fantasy football in Week 15, including Seattle's Kenneth Walker.`\
 https://nytimes.com/athletic/5990866/2024/12/13/fantasy-football-injury-report-week-15-walker-pollard/
