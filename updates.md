@@ -1,3 +1,7 @@
+**OpenAI Fires Back at Elon Musk’s Lawsuit**\
+`The artificial intelligence start-up argues that Mr. Musk is trying to hamstring its business as he builds a rival company`\
+https://nytimes.com/2024/12/13/technology/openai-elon-musk-lawsuit.html
+
 **Cubs finally take big swing with great deal for Kyle Tucker: Law**\
 `Cam Smith is the jewel of the trade for the Astros, who may have received more total value for Tucker if they strictly targeted prospects.`\
 https://nytimes.com/athletic/5993187/2024/12/13/cubs-astros-kyle-tucker-trade-analysis/
