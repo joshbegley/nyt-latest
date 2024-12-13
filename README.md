@@ -1,3 +1,7 @@
+**Miley Cyrus Gives Showgirl Pathos, and 8 More New Songs**\
+`Hear tracks by Benjamin Booker, Julien Baker and Torres, and more.`\
+https://nytimes.com/2024/12/13/arts/music/playlist-miley-cyrus-snoop-dogg.html
+
 **Eric Adams’s Advisers Are Trying to Get Him a Trump Inauguration Ticket**\
 `Members of the Democratic mayor’s team have put out the word to New York Republicans that he is interested in attending Donald J. Trump’s swearing-in.`\
 https://nytimes.com/2024/12/13/nyregion/adams-trump-inauguration.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/12/13/magazine/sex-work-boyfriend-ethics.html
 `Donald J. Trump’s pick to be the next F.B.I. director has both exaggerated his importance in the government’s criminal inquiry into the 2012 attack and misleadingly distorted its conduct and results.`\
 https://nytimes.com/2024/12/13/us/politics/kash-patel-benghazi-investigation-doj.html
 
-**Billionaire Justin Ishbia, minority owner of Phoenix Suns, emerges as bidders for Twins: Source**\
+**Phoenix Suns minority owner Justin Ishbia emerges as bidder for Minnesota Twins: Source**\
 `The ownership group that purchased the Suns — before promptly making a splash by acquiring Kevin Durant — is interested in buying the Twins.`\
 https://nytimes.com/athletic/5992891/2024/12/13/billionaire-ishbia-brothers-emerge-as-bidders-for-minnesota-twins-source/
 
 **Skinner feels 'supported' despite Ratcliffe comments on women's team**\
 `Manchester United Women’s manager Marc Skinner said it was “hard” for him to hear the comments made by the club’s co-owner Sir Jim Ratcliffe but insisted they do not align with what he sees from INEOS’ day-to-day activity.`\
 https://nytimes.com/athletic/5992791/2024/12/13/ratcliffe-man-utd-women-skinner/
-
-**Maple Leafs call goalie Anthony Stolarz day to day, recall Dennis Hildeby**\
-`Stolarz did not practice Friday after exiting Thursday's game against the Ducks with the lower-body injury.`\
-https://nytimes.com/athletic/5992782/2024/12/13/maple-leafs-anthony-stolarz-status-goalie/
 
