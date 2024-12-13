@@ -1,3 +1,11 @@
+**‘Cult of Love’ Review: We Wish You a Wretched Christmas**\
+`A hilarious, harrowing holiday gift from Leslye Headland, who brings another unhappy family to Broadway. Zachary Quinto and Shailene Woodley star.`\
+https://nytimes.com/2024/12/12/theater/cult-of-love-broadway-review.html
+
+**First Pass Friday, or How I Made My Way Into a Tough Puzzle**\
+`Ryan Patrick Smith’s crossword put up quite a fight, but there is always a way to win.`\
+https://nytimes.com/2024/12/12/crosswords/daily-puzzle-2024-12-13.html
+
 **Mount Vernon Police’s Strip Searches Were Unconstitutional, U.S. Says**\
 `A report by federal prosecutors found that a Westchester County police department violated the Fourth Amendment “on an enormous scale.”`\
 https://nytimes.com/2024/12/12/nyregion/mount-vernon-police-strip-searches.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/us/humpback-whale-migration.html
 **Amazon Plans $1 Million Donation to Trump’s Inaugural Fund**\
 `The move follows Meta’s donation of the same amount to the fund earlier this week.`\
 https://nytimes.com/2024/12/12/technology/amazon-trump-inauguration.html
-
-**Match the Taylor Swift Song to the Poem Inspired By Her Music**\
-`Famous poets (tortured or not) have taken inspiration from Swift's music. Can you match the poem to the song?`\
-https://nytimes.com/interactive/2024/12/12/books/taylor-swift-songs-poems-invisible-strings.html
-
-**For Those Granted Clemency by White House, a Moment to Celebrate and Plan**\
-`Among those whose sentences were commuted was Rebecca Parrett, an Arizona woman who now hopes to travel to meet her great-grandchildren for the first time.`\
-https://nytimes.com/2024/12/12/us/biden-commutes-sentences-clemency.html
 
