@@ -1,3 +1,19 @@
+**Tired of Tipping? Holidays May Be the Exception.**\
+`Consumers have said they are confused and frustrated with tipping expectations generally. But, one expert says, “people generally want to feel more generous around the holidays.”`\
+https://nytimes.com/2024/12/13/your-money/tipping-etiquette-holidays.html
+
+**A Profitable Frontier in Paleontology: Selling Shares in a Stegosaurus**\
+`As academics fear being priced out of the fossil market, a private company announced that it aims to raise $13.75 million by selling shares in a stegosaurus fossil.`\
+https://nytimes.com/2024/12/13/arts/design/stegosaurus-shares-public-offering.html
+
+**The Fed Is Stuck Fighting the Last War**\
+`Mired in a battle to contain surging prices, the central bank also needs to be nimble enough for the economic downturns to come, our columnist says.`\
+https://nytimes.com/2024/12/13/business/federal-reserve-inflation-target.html
+
+**Villa to make late decision on Watkins fitness ahead of Nottingham Forest trip**\
+`Unai Emery says a late decision will be made on Ollie Watkins&#8217; availability ahead of Aston Villa&#8217;s game against Nottingham Forest.`\
+https://nytimes.com/athletic/5992044/2024/12/13/aston-villa-watkins-team-news-forest/
+
 **NHL Power Rankings: Capitals take top spot, plus every team's Christmas wishlist**\
 `All 32 teams — even the good ones — need something. It might not be what they want, but it's what they should get.`\
 https://nytimes.com/athletic/5991457/2024/12/13/nhl-power-rankings-capitals/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/12/13/world/syria-news/at-the-oldest-mosque-in-dam
 **Marks: Hiring Bill Belichick shows UNC is all in — for better or worse**\
 `UNC is investing in its future and trying to create a better tomorrow — one which, given its current reality, does not necessarily exist.`\
 https://nytimes.com/athletic/5991899/2024/12/13/bill-belichick-hire-unc-contract-college-football-coach/
-
-**Joonas Korpisalo and the downside of reverse vertical-horizontal**\
-`The Bruins lost 5-1 in Seattle and have been outscored by a 13-2 margin in the first two games of a five-stop trip.`\
-https://nytimes.com/athletic/5991587/2024/12/13/bruins-kraken-joonas-korpisalo-nhl/
-
-**Elon Musk and DOGE vs. Regulators**\
-`The billionaire has needled government agencies, armed with potential influence over their budgets. But some of these organizations are also looking into his interests.`\
-https://nytimes.com/2024/12/13/business/dealbook/musk-doge-sec-irs.html
-
-**Russia Hits Ukraine’s Energy Infrastructure in a Renewed Assault**\
-`Military analysts had speculated that Moscow could escalate such attacks as a show of force after the fall of President Bashar al-Assad of Syria, its ally.`\
-https://nytimes.com/2024/12/13/world/europe/russia-ukraine-attack-energy.html
-
-**Amorim on City's troubles: 'They are in a better place than us ... we have a lot of issues'**\
-`Ruben Amorim says he is focussed on his own side&#8217;s problems and not those of Manchester City as he prepares for his first Manchester derby since taking over at Old Trafford.`\
-https://nytimes.com/athletic/5990513/2024/12/13/ruben-amorim-manchester-derby-guardiola/
 
