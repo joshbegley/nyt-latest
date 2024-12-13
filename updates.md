@@ -1,3 +1,43 @@
+**England to face Serbia, Albania, Latvia, Andorra in World Cup 2026 qualifying**\
+`England will face Serbia in qualifying for the expanded 48-team World Cup in 2026 in the United States, Canada and Mexico.`\
+https://nytimes.com/athletic/5989883/2024/12/13/world-cup-2026-qualifying-draw-england-opponents/
+
+**Silver: This 49ers season is effectively over — and Kyle Shanahan bears plenty of responsibility**\
+`In 2024, the 49ers weren’t good enough, and neither was their head coach.`\
+https://nytimes.com/athletic/5991670/2024/12/13/49ers-kyle-shanahan-season-over/
+
+**Breaking the Cycle of Childhood Poverty in New York**\
+`Children’s Aid provides essential help with food and housing for families in New York City, where tens of thousands of children live in poverty.`\
+https://nytimes.com/2024/12/13/opinion/communities-fund-childrens-aid.html
+
+**Turkey Emerges as a Big Winner in the Wake of al-Assad’s Ouster**\
+`President Recep Tayyip Erdogan had long worked with the rebels who overtook Damascus. His influence over Syria is now likely to grow.`\
+https://nytimes.com/2024/12/13/world/middleeast/turkey-syria-rebels-erdogan.html
+
+**Reloading the Oilers, trade needs and Connor McDavid's contract: Catching up with Jeff Jackson**\
+`After another slow start, the Oilers are finding their game and prepping for another run — and a big summer of contract intrigue.`\
+https://nytimes.com/athletic/5989709/2024/12/13/oilers-mcdavid-trades-jackson/
+
+**MLS agrees to continue to 'explore' potential competition changes**\
+`Calendar overhaul remains on the agenda after board of governors meeting in New York`\
+https://nytimes.com/athletic/5990854/2024/12/13/mls-governors-world-cup-2026-competitions/
+
+**'A deeper bond': Broncos' close-knit QB room playing key role in Bo Nix's growth**\
+`Nix, Jarrett Stidham, Zach Wilson and their significant others have created a weekly dinner tradition that has given group a unique feel.`\
+https://nytimes.com/athletic/5990452/2024/12/13/broncos-qbs-nix-stidham-wilson/
+
+**Lowetide: Is the Oilers' 2024-25 goaltending crisis over?**\
+`Edmonton's goaltending lagged in October, straightened up in November and is flourishing in December.`\
+https://nytimes.com/athletic/5989574/2024/12/13/oilers-goalie-stuart-skinner-stats-december/
+
+**The Athletic’s Friday football quiz question #34**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/5991744/2024/12/13/the-athletics-friday-football-quiz-question-34/
+
+**Leon Draisaitl shows he can be the best of the best — just like Connor McDavid says**\
+`Draisaitl was an absolute stud in Minnesota, dominating in every facet of the game while racking up 4 points in a convincing 7-1 win.`\
+https://nytimes.com/athletic/5991580/2024/12/13/leon-draisaitl-oilers-wild/
+
 **The End Game in Ukraine**\
 `How the war could come to a close next year.`\
 https://nytimes.com/2024/12/13/briefing/the-end-game-in-ukraine.html
