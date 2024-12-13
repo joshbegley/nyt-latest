@@ -1,3 +1,7 @@
+**Supreme Court to Hear Catholic Charity’s Bid for Tax Exemption**\
+`The justices agreed to hear an appeal from a Wisconsin Supreme Court ruling that the charity’s activities were insufficiently religious to qualify.`\
+https://nytimes.com/2024/12/13/us/politics/supreme-court-catholic-charity-taxes.html
+
 **Team Canada World Junior selection camp: Breaking down the cuts, standouts and roster**\
 `Team Canada made its final cuts for its roster for the 2025 world juniors on Friday afternoon.`\
 https://nytimes.com/athletic/5990359/2024/12/13/canada-world-juniors-2025-roster-cuts/
