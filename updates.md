@@ -1,3 +1,7 @@
+**The Pulse: We've sent 1,000 of these**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5989991/2024/12/13/rams-49ers-devondre-campbell-the-pulse/
+
 **The Athletic FC: Ex-City striker to right-wing president? Hojlund bails out Onana**\
 `Today in TAFC: Ex-City striker set to be Georgia president. Plus: Hojlund strikes twice after Onana blunder, Postecoglou takes aim at Werner`\
 https://nytimes.com/athletic/5991778/2024/12/13/hojlund-onana-postecoglou-werner-kavelashvili/

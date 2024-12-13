@@ -1,3 +1,7 @@
+**The Pulse: We've sent 1,000 of these**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5989991/2024/12/13/rams-49ers-devondre-campbell-the-pulse/
+
 **The Athletic FC: Ex-City striker to right-wing president? Hojlund bails out Onana**\
 `Today in TAFC: Ex-City striker set to be Georgia president. Plus: Hojlund strikes twice after Onana blunder, Postecoglou takes aim at Werner`\
 https://nytimes.com/athletic/5991778/2024/12/13/hojlund-onana-postecoglou-werner-kavelashvili/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984480/2024/12/13/heisman-finalists-nfl-draft-2025
 **How Ultraprocessed Foods Took Over America**\
 `The wide-ranging category includes sodas, processed meats, many breakfast cereals, snack foods and frozen meals.`\
 https://nytimes.com/2024/12/13/podcasts/the-daily/how-ultraprocessed-foods-took-over-america.html
-
-**What would a Justin Steele contract extension with the Cubs look like? **\
-`With the cost of pitching soaring, it could be time for the Cubs and Steele to discuss a potential contract extension.`\
-https://nytimes.com/athletic/5991345/2024/12/13/justin-steele-contract-extension-chicago-cubs/
 
