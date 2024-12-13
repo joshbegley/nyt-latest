@@ -1,3 +1,11 @@
+**Connor Bedard back in the groove, back on the highlight reel for Blackhawks**\
+`Bedard's spectacular toe-drag goal on Thursday against the Islanders seemed to flagrantly defy the laws of physics.`\
+https://nytimes.com/athletic/5993135/2024/12/13/connor-bedard-blackhawks-goal/
+
+**Tim Cook to Dine With Trump**\
+`The chief executive of Apple is the latest in a series of technology  executives who are traveling to Florida to meet with the president-elect.`\
+https://nytimes.com/2024/12/13/technology/trump-tim-cook-to-dine.html
+
 **Texas Attorney General Sues New York Doctor for Mailing Abortion Pills**\
 `The lawsuit, filed on Friday, appeared to be among the first attempts to stop doctors from mailing the medications to states that ban abortions.`\
 https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html

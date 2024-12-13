@@ -1,7 +1,3 @@
-**Connor Bedard back in the groove, back on the highlight reel for Blackhawks**\
-`Bedard's spectacular toe-drag goal on Thursday against the Islanders seemed to flagrantly defy the laws of physics.`\
-https://nytimes.com/athletic/5993135/2024/12/13/connor-bedard-blackhawks-goal/
-
 **Texas Attorney General Sues New York Doctor for Mailing Abortion Pills**\
 `The lawsuit, filed on Friday, appeared to be among the first attempts to stop doctors from mailing the medications to states that ban abortions.`\
 https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/13/us/politics/supreme-court-california-tailpipe-emi
 **Charles Handy Dies at 92; Philosopher Envisioned Today’s Corporate World**\
 `Joining a pantheon of management thinkers, he embraced a humanistic path for business and foresaw outsourcing, remote work and a gig economy.`\
 https://nytimes.com/2024/12/13/business/charles-handy-dead.html
+
+**Saints name Jake Haener starting QB for Week 15 against Commanders**\
+`Haener replaced the injured Derek Carr in Week 14 and has appeared in limited action across seven games this season.`\
+https://nytimes.com/athletic/5992978/2024/12/13/saints-jake-haener-starting-commanders/
 
