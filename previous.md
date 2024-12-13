@@ -1,3 +1,15 @@
+**OpenAI’s Sam Altman to Donate $1 Million to Trump’s Inaugural Fund**\
+`Mr. Altman and OpenAI have recently hired key executives who previously worked for the Clinton, Obama and Biden administrations.`\
+https://nytimes.com/2024/12/13/technology/openai-sam-altman-trump-inauguration.html
+
+**'There’s another level': Why Max Pacioretty believes he has more to offer**\
+`Back from injury, the new Leafs forward is working on finding a balance between physicality and offence.`\
+https://nytimes.com/athletic/5992115/2024/12/13/leafs-nhl-max-pacioretty/
+
+**Trump’s Treasury Pick Is Poised to Test ‘Three Arrows’ Economic Strategy**\
+`Scott Bessent’s “3-3-3” plan to stimulate growth, reduce the deficit and expand oil production will soon face economic realities.`\
+https://nytimes.com/2024/12/13/business/trump-bessent-economic-strategy.html
+
 **How the Wackiest, Most ‘Annoying’ Christmas Song Became a Hit**\
 `It started with a novelty songwriter stranded on a snowy night. Decades later, listeners still can’t get his song, “Grandma Got Run Over By a Reindeer,” out of their heads.`\
 https://nytimes.com/2024/12/13/style/grandma-got-run-over-christmas-song-history.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5981107/2024/12/13/premier-league-predicted-line-up
 **Visual Dictionary**\
 `A series examining the concrete details and visual signifiers associated with various public figures that, taken together, add up to a cultural icon.`\
 https://nytimes.com/spotlight/visual-dictionary
-
-**What the Polio Vaccine Has Meant for Public Health**\
-`A lawyer working with Robert F. Kennedy Jr. has asked the F.D.A. to withdraw approval of the current shot because it hasn’t been tested against a placebo. Scientists say such a test would be unethical.`\
-https://nytimes.com/2024/12/13/health/polio-vaccine-placebo.html
-
-**Daniel Penny, Newly Acquitted, Will Join Vance and Trump at Army-Navy Game**\
-`Vice President-elect JD Vance said he invited Mr. Penny, a former Marine who had been charged in the death of a man he placed in a chokehold in a New York City subway car.`\
-https://nytimes.com/2024/12/13/us/politics/daniel-penny-vance-trump-army-navy.html
-
-**How to Turn Up the Heat on Your Mulled Cocktails**\
-`A mulled white wine made with coriander, fennel and elderflower liqueur, a punchy nonalcoholic mulled cider, and mulled beer fortified with Cognac will make the season bright.`\
-https://nytimes.com/2024/12/13/dining/drinks/mulled-cocktails.html
 

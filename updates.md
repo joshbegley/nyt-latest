@@ -1,3 +1,15 @@
+**OpenAI’s Sam Altman to Donate $1 Million to Trump’s Inaugural Fund**\
+`Mr. Altman and OpenAI have recently hired key executives who previously worked for the Clinton, Obama and Biden administrations.`\
+https://nytimes.com/2024/12/13/technology/openai-sam-altman-trump-inauguration.html
+
+**'There’s another level': Why Max Pacioretty believes he has more to offer**\
+`Back from injury, the new Leafs forward is working on finding a balance between physicality and offence.`\
+https://nytimes.com/athletic/5992115/2024/12/13/leafs-nhl-max-pacioretty/
+
+**Trump’s Treasury Pick Is Poised to Test ‘Three Arrows’ Economic Strategy**\
+`Scott Bessent’s “3-3-3” plan to stimulate growth, reduce the deficit and expand oil production will soon face economic realities.`\
+https://nytimes.com/2024/12/13/business/trump-bessent-economic-strategy.html
+
 **How the Wackiest, Most ‘Annoying’ Christmas Song Became a Hit**\
 `It started with a novelty songwriter stranded on a snowy night. Decades later, listeners still can’t get his song, “Grandma Got Run Over By a Reindeer,” out of their heads.`\
 https://nytimes.com/2024/12/13/style/grandma-got-run-over-christmas-song-history.html
