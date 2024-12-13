@@ -1,3 +1,7 @@
+**Why Wray’s Resignation May Signal a Shift in F.B.I. Tradition**\
+`Mr. Wray’s voluntary departure could usher in a new era at the nation’s premier law enforcement agency, one in which the job of director changes with the administration.`\
+https://nytimes.com/2024/12/12/us/politics/christopher-wray-fbi.html
+
 **Sotheby’s Lays Off More Than 100 Staffers as Auction Sales Slump**\
 `As the high-flying art market has contracted, the company is looking elsewhere, expanding its luxury brand and real estate in New York, Paris and Hong Kong.`\
 https://nytimes.com/2024/12/12/arts/design/sothebys-auction-layoffs-drahi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/us/politics/voice-of-america-journalists-trump.ht
 **YouTube TV Raises Monthly Charge 14 Percent, to $82.99**\
 `The increase is the latest for the streaming service, which debuted in 2017 at $35 a month. The company blamed “rising content costs.”`\
 https://nytimes.com/2024/12/12/business/youtube-tv-price-increase.html
-
-**Twin Brothers Appear in Court on Sexual Battery Charges**\
-`Oren Alexander, once one of the biggest names in luxury real estate, and his twin brother, Alon Alexander, were held without bond on Thursday.`\
-https://nytimes.com/2024/12/12/realestate/alexander-brothers-court-sexual-battery.html
 

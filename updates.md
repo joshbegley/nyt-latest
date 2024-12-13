@@ -1,3 +1,7 @@
+**Why Wray’s Resignation May Signal a Shift in F.B.I. Tradition**\
+`Mr. Wray’s voluntary departure could usher in a new era at the nation’s premier law enforcement agency, one in which the job of director changes with the administration.`\
+https://nytimes.com/2024/12/12/us/politics/christopher-wray-fbi.html
+
 **Sotheby’s Lays Off More Than 100 Staffers as Auction Sales Slump**\
 `As the high-flying art market has contracted, the company is looking elsewhere, expanding its luxury brand and real estate in New York, Paris and Hong Kong.`\
 https://nytimes.com/2024/12/12/arts/design/sothebys-auction-layoffs-drahi.html
