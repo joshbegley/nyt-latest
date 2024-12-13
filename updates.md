@@ -1,3 +1,7 @@
+**Word of the Day: efficient**\
+`This word has appeared in 1,694 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/13/learning/word-of-the-day-efficient.html
+
 **Russo: Wild must make sure 2011 doesn't repeat itself after ugly loss and another injury**\
 `The fact top-pair defenseman Jake Middleton suffered what could be a serious injury to his right hand Thursday night is extremely worrisome.`\
 https://nytimes.com/athletic/5991458/2024/12/13/wild-lose-oilers-jake-middleton-injury/
