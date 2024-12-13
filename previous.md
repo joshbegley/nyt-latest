@@ -1,3 +1,15 @@
+**Texas Attorney General Sues New York Doctor for Mailing Abortion Pills**\
+`The lawsuit, filed on Friday, appeared to be among the first attempts to stop doctors from mailing the medications to states that ban abortions.`\
+https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
+
+**Tim Cook to Dine With Trump**\
+`The chief executive of Apple is the latest in a series of tech executives to travel to Florida to meet with the president-elect.`\
+https://nytimes.com/2024/12/13/technology/trump-tim-cook-to-dine.html
+
+**In an apparent warning to Kennedy, McConnell defends the polio vaccine.**\
+`The former Republican leader is a p`\
+https://nytimes.com/live/2024/12/13/us/trump-transition-news/in-an-apparent-warning-to-kennedy-mcconnell-defends-polio-vaccine
+
 **Hunter, Jeanty headline unusual Heisman class: How this race is different**\
 `This century, 20 quarterbacks have won the Heisman. Here are five reasons why the 2024 race is so odd.`\
 https://nytimes.com/athletic/5993098/2024/12/13/travis-hunter-heisman-trophy-comments-ceremony/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/13/business/charles-handy-dead.html
 **Saints name Jake Haener starting QB for Week 15 against Commanders**\
 `Haener replaced the injured Derek Carr in Week 14 and has appeared in limited action across seven games this season.`\
 https://nytimes.com/athletic/5992978/2024/12/13/saints-jake-haener-starting-commanders/
-
-**Judge Says Former ByteDance Executive Lied in Suit Against Company**\
-`A judge said this week that a former executive at ByteDance seemed to have fabricated evidence and submitted false statements in a high-profile 2023 lawsuit against the company.`\
-https://nytimes.com/2024/12/13/business/bytedance-executive-lawsuit-tiktok.html
-
-**Browns' Pro Bowl duo of David Njoku, Joel Bitonio listed as questionable**\
-`Additionally, Cleveland wide receiver Cedric Tillman will miss a third straight game as he has not cleared the concussion protocol.`\
-https://nytimes.com/athletic/5993095/2024/12/13/browns-david-njoku-joel-bitonio-questionable-chiefs/
-
-**Chapel Bill? Cashing In on a Famous New Football Coach.**\
-`With shirts playing off Chapel Hill’s name and cutoff hoodies, a college town immediately embraced the arrival of Bill Belichick in North Carolina.`\
-https://nytimes.com/2024/12/13/style/bill-belichick-north-carolina.html
 

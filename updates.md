@@ -1,3 +1,15 @@
+**Texas Attorney General Sues New York Doctor for Mailing Abortion Pills**\
+`The lawsuit, filed on Friday, appeared to be among the first attempts to stop doctors from mailing the medications to states that ban abortions.`\
+https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
+
+**Tim Cook to Dine With Trump**\
+`The chief executive of Apple is the latest in a series of tech executives to travel to Florida to meet with the president-elect.`\
+https://nytimes.com/2024/12/13/technology/trump-tim-cook-to-dine.html
+
+**In an apparent warning to Kennedy, McConnell defends the polio vaccine.**\
+`The former Republican leader is a p`\
+https://nytimes.com/live/2024/12/13/us/trump-transition-news/in-an-apparent-warning-to-kennedy-mcconnell-defends-polio-vaccine
+
 **Hunter, Jeanty headline unusual Heisman class: How this race is different**\
 `This century, 20 quarterbacks have won the Heisman. Here are five reasons why the 2024 race is so odd.`\
 https://nytimes.com/athletic/5993098/2024/12/13/travis-hunter-heisman-trophy-comments-ceremony/
