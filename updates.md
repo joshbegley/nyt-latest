@@ -1,3 +1,7 @@
+**Blackhawks recall 2022 first-rounder Frank Nazar**\
+`Nazar's call-up has been highly anticipated.`\
+https://nytimes.com/athletic/5992216/2024/12/13/blackhawks-frank-nazar-call-up-ahl/
+
 **10 Great Thrillers Set in Remote Locations**\
 `Ruth Ware, the author of “The Woman in Cabin 10,” recommends locked-room mysteries and psychological horrors by Agatha Christie, Stephen King, Andy Weir and more.`\
 https://nytimes.com/2024/12/13/books/review/ruth-ware-thriller-books.html

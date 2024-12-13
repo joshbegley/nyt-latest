@@ -1,3 +1,7 @@
+**Blackhawks recall 2022 first-rounder Frank Nazar**\
+`Nazar's call-up has been highly anticipated.`\
+https://nytimes.com/athletic/5992216/2024/12/13/blackhawks-frank-nazar-call-up-ahl/
+
 **Democrats Argue That the 2024 Election Actually Had Its Bright Spots**\
 `Some leaders have begun to put a sunnier spin on the November outcome by pointing to down-ballot victories — a possible sign that Democrats may not tear down their party after all.`\
 https://nytimes.com/2024/12/13/us/politics/democrats-harris-trump-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5992103/2024/12/13/werner-tottenham-rangers-not-acc
 **Tuchel to 'reach out' to White over England absence**\
 `Thomas Tuchel says he will &#8220;reach out&#8221; to Ben White over his ongoing absence from the England national team.`\
 https://nytimes.com/athletic/5992123/2024/12/13/ben-white-england-arsenal-thomas-tuchel/
-
-**Tuchel needs to 'prove himself' after 'mixed' reaction to England appointment**\
-`England manager Thomas Tuchel has said he needs to “prove himself” after the mixed reaction to his appointment.`\
-https://nytimes.com/athletic/5992081/2024/12/13/thomas-tuchel-england-manager-reaction/
 
