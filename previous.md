@@ -1,3 +1,11 @@
+**How the Mets won over Juan Soto and what's next: Takeaways**\
+`New York's pitch to Soto hit the right notes on what agent Scott Boras called the "human moments," caring for family and for their players. `\
+https://nytimes.com/athletic/5990928/2024/12/12/mets-won-juan-soto-whats-next-takeaways/
+
+**Leafs goalie Anthony Stolarz exits vs. Ducks with injury**\
+`Toronto announced that the 30-year-old netminder would not return after the first period.`\
+https://nytimes.com/athletic/5991117/2024/12/12/maple-leafs-anthony-stolarz-injury/
+
 **Humpback Whale Sets Record for How Far It Traveled**\
 `The adult male swam more than 8,000 miles from South America to Africa, most likely in search of a mate, researchers said.`\
 https://nytimes.com/2024/12/12/us/humpback-whale-migration.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/12/us/trump-administration-news/trump-backs-doc
 **‘Carry On’ Review: Travel Nightmares Amplified**\
 `In this tense thriller, Taron Egerton plays a T.S.A. agent who goes up against an implacable terrorist (Jason Bateman). The man has a funny idea of what he wants to bring on a plane.`\
 https://nytimes.com/2024/12/12/movies/carry-on-review.html
-
-**An Easy Holiday Manicure With a Secret Ingredient**\
-`The nail artist Mei Kawajiri shares a festive nail design you can recreate at home in just five steps, using products you probably already own.`\
-https://nytimes.com/2024/12/12/t-magazine/simple-holiday-manicure.html
-
-**Report on New Jersey’s Worst Nursing Home Finds Rampant Fraud and Abuse**\
-`A trio of relatives in New Jersey defrauded the state’s Medicaid program out of millions of dollars while neglecting patient care, the state comptroller found.`\
-https://nytimes.com/2024/12/12/nyregion/new-jersey-nursing-homes-fraud.html
 

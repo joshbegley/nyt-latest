@@ -1,3 +1,11 @@
+**How the Mets won over Juan Soto and what's next: Takeaways**\
+`New York's pitch to Soto hit the right notes on what agent Scott Boras called the "human moments," caring for family and for their players. `\
+https://nytimes.com/athletic/5990928/2024/12/12/mets-won-juan-soto-whats-next-takeaways/
+
+**Leafs goalie Anthony Stolarz exits vs. Ducks with injury**\
+`Toronto announced that the 30-year-old netminder would not return after the first period.`\
+https://nytimes.com/athletic/5991117/2024/12/12/maple-leafs-anthony-stolarz-injury/
+
 **Humpback Whale Sets Record for How Far It Traveled**\
 `The adult male swam more than 8,000 miles from South America to Africa, most likely in search of a mate, researchers said.`\
 https://nytimes.com/2024/12/12/us/humpback-whale-migration.html
