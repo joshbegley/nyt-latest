@@ -1,3 +1,7 @@
+**In 2024, Tennis Was Busy With Action On and Off the Court**\
+`There were striking matches, coaching changes, and Novak Djokovic finally won his Olympic gold.`\
+https://nytimes.com/2024/12/13/sports/tennis/nadal-retirement-players-coaches.html
+
 **A Stunning Year in Sports: Caitlin Clark, Shohei Ohtani and Record Viewership**\
 `It was also a year highlighted by the pageantry and competition of the Paris Olympics.`\
 https://nytimes.com/2024/12/13/sports/caitlin-clark-best-year.html
