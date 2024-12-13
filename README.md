@@ -1,3 +1,19 @@
+**Golf’s Highs and Lows in 2024**\
+`There were a lot of exciting tournaments, but LIV still looms over the sport.`\
+https://nytimes.com/2024/12/13/sports/golf/pga-lpga-liv-2024.html
+
+**Police Theorize C.E.O. Gunman Dumped Getaway Bike and It Was Swiped**\
+`Investigators are tracing the movements of the man they say fatally shot Brian Thompson, the chief executive of UnitedHealthcare.`\
+https://nytimes.com/2024/12/13/nyregion/uhc-shooting-gunman-getaway-bike.html
+
+**Martial Solal, French Jazz Piano Virtuoso, Is Dead at 97**\
+`Mr. Solal, who also wrote music for films and symphony orchestras, was revered in Europe and hailed in the United States on his rare visits there.`\
+https://nytimes.com/2024/12/13/arts/music/martial-solal-dead.html
+
+**From Snoop Dogg to Gold Medals, the Year in Horse Sport**\
+`2024 was the year a star rapper fell in love with horses, a U.S. team won at the Paralympics and the sport reckoned with its demons over animal abuse.`\
+https://nytimes.com/2024/12/13/sports/equestrian-sport-horse-year.html
+
 **In 2024, Tennis Was Busy With Action On and Off the Court**\
 `There were striking matches, coaching changes, and Novak Djokovic finally won his Olympic gold.`\
 https://nytimes.com/2024/12/13/sports/tennis/nadal-retirement-players-coaches.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5992506/2024/12/13/west-ham-academy-goalkeeper-trib
 **This Director’s Family Story Became Her Latest Movie**\
 `Maura Delpero’s film “Vermiglio,” which won the Grand Jury Prize at the Venice Film Festival, is inspired by her own family in Italy during World War II.`\
 https://nytimes.com/2024/12/13/movies/vermiglio-maura-delpero-director.html
-
-**When Coming to America, European Directors Sometimes Get Lost in Translation**\
-`The history of European directors “going Hollywood” and making the leap to English-language filmmaking is long and uneven.`\
-https://nytimes.com/2024/12/13/movies/european-directors-english-language.html
-
-**Most Americans Say They Have Good Health Insurance, Polls Show**\
-`Many have encountered problems with their coverage, but the recent rage on social media is only part of the picture of Americans’ views on health care.`\
-https://nytimes.com/2024/12/13/us/elections/health-insurance-polls.html
-
-**Yankees trade for Brewers All-Star closer Devin Williams**\
-`The Yankees will also send cash to the Brewers to pay down Cortes' 2025 salary.`\
-https://nytimes.com/athletic/5992570/2024/12/13/yankees-brewers-trade-devil-williams-nestor-cortes-caleb-durbin/
-
-**In Idlib, which has long been rebel territory, a square fills with songs and celebrations.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/12/13/world/syria-news/in-idlib-which-has-long-been-rebel-territory-a-square-fills-up-with-songs-and-celebrations
 
