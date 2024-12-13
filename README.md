@@ -1,3 +1,7 @@
+**Word of the Day: efficient**\
+`This word has appeared in 1,694 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/13/learning/word-of-the-day-efficient.html
+
 **Russo: Wild must make sure 2011 doesn't repeat itself after ugly loss and another injury**\
 `The fact top-pair defenseman Jake Middleton suffered what could be a serious injury to his right hand Thursday night is extremely worrisome.`\
 https://nytimes.com/athletic/5991458/2024/12/13/wild-lose-oilers-jake-middleton-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981156/2024/12/13/dean-henderson-crystal-palace-sa
 **Emiliano Buendia's 37 minutes: Where next for his Aston Villa career?**\
 `The Argentina playmaker has found opportunities difficult to come by - bought for £38m, his career is approaching a crossroads`\
 https://nytimes.com/athletic/5974405/2024/12/13/emiliano-buendia-aston-villa-37-minutes/
-
-**What makes Chris Wood so difficult to play against?**\
-`Players past and present, opponents and team-mates, and his current head coach speak about the Nottingham Forest striker's qualities`\
-https://nytimes.com/athletic/5989675/2024/12/13/chris-wood-team-mates-opponents/
 
