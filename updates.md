@@ -1,3 +1,7 @@
+**Jota, Chiesa in contention to return for Liverpool vs Fulham**\
+`Diogo Jota and Federico Chiesa are both in contention to being involved in Liverpool’s Premier League fixture against Fulham.`\
+https://nytimes.com/athletic/5991800/2024/12/13/liverpool-team-news-chiesa-jota/
+
 **Rowdy Rockets have 'no friends on the floor' — just the way Ime Udoka likes it**\
 `Meet the all-gas, no-brakes Rockets, a modern-day version of the "Bad Boys" Pistons that is feisty and unapologetic.`\
 https://nytimes.com/athletic/5990739/2024/12/13/ime-udoka-rockets-nba-defense/
