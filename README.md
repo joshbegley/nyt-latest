@@ -1,3 +1,7 @@
+**With al-Assad Gone, Syrians Seek Answers in an Underground Jail**\
+`Guided by cellphone flashlights, relatives searched a notorious lockup in Damascus for traces of loved ones who were snatched during the regime of Bashar al-Assad.`\
+https://nytimes.com/2024/12/13/world/middleeast/syria-al-assad-prisons-damascus.html
+
 **Row Z: Infantino's needless envelope, more unique Man Utd cost-cutting and Gary O'Neil's extreme hydration**\
 `Tim Spiers is here with his look at the sillier side of football this week`\
 https://nytimes.com/athletic/5987285/2024/12/13/row-z-saudi-arabia-2034-manchester-united-sunderland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989709/2024/12/13/oilers-mcdavid-trades-jackson/
 **MLS agrees to continue to 'explore' potential competition changes**\
 `Calendar overhaul remains on the agenda after board of governors meeting in New York`\
 https://nytimes.com/athletic/5990854/2024/12/13/mls-governors-world-cup-2026-competitions/
-
-**'A deeper bond': Broncos' close-knit QB room playing key role in Bo Nix's growth**\
-`Nix, Jarrett Stidham, Zach Wilson and their significant others have created a weekly dinner tradition that has given group a unique feel.`\
-https://nytimes.com/athletic/5990452/2024/12/13/broncos-qbs-nix-stidham-wilson/
 
