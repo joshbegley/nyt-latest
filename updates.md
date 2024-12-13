@@ -1,3 +1,15 @@
+**Team Canada World Junior selection camp: Breaking down the cuts, standouts and roster**\
+`Team Canada made its final cuts for its roster for the 2025 world juniors on Friday afternoon.`\
+https://nytimes.com/athletic/5990359/2024/12/13/canada-world-juniors-2025-roster-cuts/
+
+**Yankees have discussed Alex Bregman's availability with agent Scott Boras**\
+`"He's been a thorn in our side for years, along with other people's sides," Cashman said of the free-agent third baseman.`\
+https://nytimes.com/athletic/5993120/2024/12/13/yankees-alex-bregman-free-agent-scott-boras/
+
+**Law: Cubs finally take big swing with great deal for Kyle Tucker**\
+`Cam Smith is the jewel of the trade for the Astros, who may have received more total value for Tucker if they strictly targeted prospects.`\
+https://nytimes.com/athletic/5993187/2024/12/13/cubs-astros-kyle-tucker-trade-analysis/
+
 **Paula Abdul Settles Sexual Assault Lawsuit Against Nigel Lythgoe**\
 `Mr. Lythgoe, a producer she worked with on “American Idol” and “So You Think You Can Dance,” had vehemently denied her allegations.`\
 https://nytimes.com/2024/12/13/arts/paula-abdul-nigel-lythgoe-lawsuit-settlement.html
