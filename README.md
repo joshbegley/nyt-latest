@@ -1,3 +1,7 @@
+**Fantasy football flex fliers: The case for Keon Coleman, Isaiah Davis in Week 15**\
+`Scott Engel advises on who to grab to round out your lineup during the fantasy football playoffs. `\
+https://nytimes.com/athletic/5992122/2024/12/13/fantasy-football-flex-fliers-week-15-coleman-davis/
+
 **Why did Postecoglou call Werner's first-half display 'not acceptable'?**\
 `Ange Postecoglou said Timo Werner's performance in the Europa League draw against Rangers was 'not acceptable'. So what exactly did he mean?`\
 https://nytimes.com/athletic/5992103/2024/12/13/werner-tottenham-rangers-not-acceptable/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5991368/2024/12/13/pistons-celtics-ron-holland/
 **Aaron Judge dropped World Series ball sells for $43,510 in MLB auction**\
 `The Judge ball sold for far less than the most expensive World Series error ball of all time`\
 https://nytimes.com/athletic/5992048/2024/12/13/aaron-judge-yankees-world-series-ball-auction/
-
-**The Bounce: Potential new teams for Jimmy Butler. Plus, Which NBA coach should pull a Bill Belichick?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5991896/2024/12/13/jimmy-butler-heat-rockets-pistons-bill-belichick-nba-the-bounce/
 
