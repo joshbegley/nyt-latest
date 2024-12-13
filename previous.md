@@ -1,3 +1,19 @@
+**Newcastle;s Pope consulting specialist over knee injury**\
+`Nick Pope, the England goalkeeper, is consulting a specialist over a knee injury he suffered in Newcastle United’s 4-2 defeat at Brentford last weekend.`\
+https://nytimes.com/athletic/5991774/2024/12/13/newcastle-pope-injury-team-news/
+
+**Ja'Lynn Polk and 4 other players the Patriots need to finish the season strong**\
+`Can Polk salvage a historically bad rookie season? And a look at why an offensive lineman might be the most important Patriot.`\
+https://nytimes.com/athletic/5987665/2024/12/13/patriots-jalynn-polk-marcus-jones/
+
+**Falcons excited about Las Vegas reunion with old friend Desmond Ridder**\
+`The Falcons are in must-win mode, and their former quarterback could help extend their losing streak on "Monday Night Football."`\
+https://nytimes.com/athletic/5990685/2024/12/13/falcons-raiders-desmond-ridder-kirk-cousins/
+
+**‘It’s December football’: How Rams built a streak and then gutted out a gross, cathartic win**\
+`The Rams improve to 8-6 after sweeping the 49ers for the first time since 2018.`\
+https://nytimes.com/athletic/5991615/2024/12/13/rams-beat-49ers-sweep-matthew-stafford-sean-mcvay/
+
 **UnitedHealth Group C.E.O.: The Health Care System Is Flawed. Let’s Fix It.**\
 `No one would design a system like the one we have. And no one did.`\
 https://nytimes.com/2024/12/13/opinion/united-health-care-brian-thompson-luigi-mangione.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/13/opinion/2024-joy-opinions-callout.html
 **I’m on a List of Trump’s Enemies. I Don’t Want a Pardon.**\
 `We should show that we trust the fairness of the justice system.`\
 https://nytimes.com/2024/12/13/opinion/biden-pardon-trump-patel.html
-
-**The Syrian Upheaval Has Iranian Leaders Reeling, Too**\
-`For decades, Iran poured money and military aid into Syria, backing the Assad regime in its ambition to confront Israel. Now many Iranians are openly asking why.`\
-https://nytimes.com/2024/12/13/world/middleeast/iran-syria-assad.html
-
-**Timothée Chalamet Sings Live for the Bob Dylan Biopic, ‘A Complete Unknown’**\
-`The actor’s vocals so impressed the film’s director that he used the live recordings, instead of those prerecorded in a studio. Here’s a look at other actors who have hit their own high notes in musical biopics.`\
-https://nytimes.com/2024/12/13/arts/timothee-chalamet-bob-dylan-biopic.html
-
-**What ‘Wicked’ Has to Say About Our Current Political Moment**\
-`By breaking the story into two movies, the emphasis in “Part One” shifts to a nation’s potential decline into authoritarianism. Sound familiar?`\
-https://nytimes.com/2024/12/13/movies/wicked-movie-politics-election.html
-
-**Should You Be Able to Copyright a Vibe?**\
-`One influencer has accused another of copying her aesthetic on social media. Should stealing someone’s vibe be against the law?`\
-https://nytimes.com/2024/12/13/learning/should-you-be-able-to-copyright-a-vibe.html
 
