@@ -1,3 +1,7 @@
+**Man City left with three fit defenders for Manchester derby - Guardiola**\
+`Pep Guardiola says that Manchester City will have just three fit defenders for Sunday’s game against Manchester United, and admits he does not yet know who will make up his backline.`\
+https://nytimes.com/athletic/5991961/2024/12/13/man-city-team-news-defenders-pep-guardiola/
+
 **Raiders' Jack Jones has grown on and off the field: 'Man, I've come a long way'**\
 `Raiders cornerbacks coach Ricky Manning Jr. on Jones: “He still has so much upside. He is only touching his potential, and he's so hungry."`\
 https://nytimes.com/athletic/5990409/2024/12/13/jack-jones-raiders-growth-antonio-pierce/
