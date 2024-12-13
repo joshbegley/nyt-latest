@@ -1,3 +1,11 @@
+**FMF, Liga MX commissioner president Juan Carlos Rodriguez resigns**\
+`Rodriguez was elected president of the Mexican Football Federation (FMF) in May of 2023.`\
+https://nytimes.com/athletic/5993343/2024/12/13/fmf-liga-mx-commissioner-president-juan-carlos-rodriguez-resigns/
+
+**Randy Moss shares cancer diagnosis in emotional Instagram video**\
+`The NFL icon and TV personality stepped away from ESPN earlier this month with an undisclosed health issue.`\
+https://nytimes.com/athletic/5993277/2024/12/13/randy-moss-cancer-diagnosis-instagram/
+
 **Crystal Mangum admits she lied about 2006 rape by Duke lacrosse players**\
 `"They didn’t deserve that, and I hope that they can forgive me,” Mangum said of the players on "Let's Talk With Kat."`\
 https://nytimes.com/athletic/5993142/2024/12/13/crystal-mangum-duke-lacrosse-players-rape/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5993247/2024/12/13/chargers-justin-herbert-ladd-mcc
 **What We Know About Reports of Drone Sightings in New Jersey and New York**\
 `Reports of flying objects continue to occur throughout the region. State and local officials say they do not pose a threat but have provided few answers.`\
 https://nytimes.com/2024/12/13/nyregion/drones-nj-ny-east-coast.html
-
-**The Texas Millennial Trying to Rebrand the Democrats**\
-`“We can’t bring a policy book to a gunfight,” said Representative Greg Casar of Texas, the incoming chair of the Congressional Progressive Caucus.`\
-https://nytimes.com/2024/12/13/us/politics/democrats-texas-greg-casar.html
-
-**Garrett Crochet relieved after trade, excited to pitch in Boston**\
-`After pitching 146 dominant innings in 2024, the lefty starter has his sights set on a higher workload for the Red Sox next season.`\
-https://nytimes.com/athletic/5993188/2024/12/13/red-sox-garrett-crochet-trade-reaction/
 

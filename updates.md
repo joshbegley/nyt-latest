@@ -1,3 +1,11 @@
+**FMF, Liga MX commissioner president Juan Carlos Rodriguez resigns**\
+`Rodriguez was elected president of the Mexican Football Federation (FMF) in May of 2023.`\
+https://nytimes.com/athletic/5993343/2024/12/13/fmf-liga-mx-commissioner-president-juan-carlos-rodriguez-resigns/
+
+**Randy Moss shares cancer diagnosis in emotional Instagram video**\
+`The NFL icon and TV personality stepped away from ESPN earlier this month with an undisclosed health issue.`\
+https://nytimes.com/athletic/5993277/2024/12/13/randy-moss-cancer-diagnosis-instagram/
+
 **Crystal Mangum admits she lied about 2006 rape by Duke lacrosse players**\
 `"They didn’t deserve that, and I hope that they can forgive me,” Mangum said of the players on "Let's Talk With Kat."`\
 https://nytimes.com/athletic/5993142/2024/12/13/crystal-mangum-duke-lacrosse-players-rape/
