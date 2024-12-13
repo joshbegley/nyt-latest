@@ -1,3 +1,7 @@
+**Humpback Whale Sets Record for How Far It Traveled**\
+`The adult male swam more than 8,000 miles from South America to Africa, most likely in search of a mate, researchers said.`\
+https://nytimes.com/2024/12/12/us/humpback-whale-migration.html
+
 **Amazon Plans $1 Million Donation to Trump’s Inaugural Fund**\
 `The move follows Meta’s donation of the same amount to the fund earlier this week.`\
 https://nytimes.com/2024/12/12/technology/amazon-trump-inauguration.html
