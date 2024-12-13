@@ -1,3 +1,19 @@
+**Heat Today: Nikola Jović stacking good days pays off as Heat win streak continues**\
+`Jović had been glued to the bench before Thursday, but he turned in one of his better performances against the Raptors.`\
+https://nytimes.com/athletic/5992153/2024/12/13/nikola-jovic-jimmy-butler-erik-spoelstra-bam-adebayo-nba-heat/
+
+**McKinsey to Pay $650 Million in Opioid Settlement With Justice Department**\
+`A senior partner has also pleaded to obstruction of justice after destroying company documents.`\
+https://nytimes.com/2024/12/13/business/mckinsey-oxycontin-settlement.html
+
+**Lions fan has season tickets revoked after altercation with Matt LaFleur**\
+`Fahad Yousif was trash talking Packers players before the rivalry game when the interaction escalated. `\
+https://nytimes.com/athletic/5992174/2024/12/13/lions-fan-tickets-revoked-matt-lafleur/
+
+**Gillibrand Presses Biden to Amend the Constitution to Enshrine Sex Equality**\
+`Senator Kirsten Gillibrand of New York is leading the charge for Democrats to persuade President Biden to adopt the Equal Rights Amendment, which would invite a Supreme Court battle.`\
+https://nytimes.com/2024/12/13/us/politics/gillibrand-biden-equal-rights-amendment.html
+
 **Mets to retire David Wright's No. 5, induct him into team's Hall of Fame**\
 `Wright will become the 10th player to have his jersey retired by the Mets and the 35th to enter the club's Hall of Fame.`\
 https://nytimes.com/athletic/5992326/2024/12/13/david-wrights-mets-jersey-retirement-hall-of-fame/
