@@ -1,3 +1,7 @@
+**10 Great Thrillers Set in Remote Locations**\
+`Ruth Ware, the author of “The Woman in Cabin 10,” recommends locked-room mysteries and psychological horrors by Agatha Christie, Stephen King, Andy Weir and more.`\
+https://nytimes.com/2024/12/13/books/review/ruth-ware-thriller-books.html
+
 **Who are the best quarterbacks in the transfer portal? Ranking the top 30**\
 `Six of the 12 teams in the College Football Playoff are quarterbacked by transfers.`\
 https://nytimes.com/athletic/5964434/2024/12/13/college-football-transfer-portal-quarterback-rankings/
