@@ -1,3 +1,11 @@
+**State of offense, fantasy football 2024: Who turned out the lights?**\
+`John Laghezza looks at the state of NFL offense in 2024, the metrics that dipped to decade lows and what it means for fantasy football 2025.`\
+https://nytimes.com/athletic/5989899/2024/12/13/fantasy-football-2024-offense-review/
+
+**The Islanders aren't going away**\
+`If the Islanders are through the worst of their injuries and blown games, they have a legitimate chance at a playoff spot.`\
+https://nytimes.com/athletic/5991278/2024/12/13/new-york-islanders-playoffs-standings-wild-card/
+
 **Tired of Tipping? Holidays May Be the Exception.**\
 `Consumers have said they are confused and frustrated with tipping expectations generally. But, one expert says, “people generally want to feel more generous around the holidays.”`\
 https://nytimes.com/2024/12/13/your-money/tipping-etiquette-holidays.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5990866/2024/12/13/fantasy-football-injury-report-w
 **Audience Report: At Berghain, They’ve Been Waiting in Line for 20 Years**\
 `The Berlin club famed for its long entry queue and choosy door policy is celebrating two decades of epic parties.`\
 https://nytimes.com/card/2024/12/13/arts/music/berghain-audience-report
-
-**At the oldest mosque in Damascus, worshipers celebrate a new Syria.**\
-`By Ben Hubbard`\
-https://nytimes.com/live/2024/12/13/world/syria-news/at-the-oldest-mosque-in-damascus-worshipers-celebrate-a-new-syria
-
-**Marks: Hiring Bill Belichick shows UNC is all in — for better or worse**\
-`UNC is investing in its future and trying to create a better tomorrow — one which, given its current reality, does not necessarily exist.`\
-https://nytimes.com/athletic/5991899/2024/12/13/bill-belichick-hire-unc-contract-college-football-coach/
 
