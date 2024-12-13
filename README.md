@@ -1,5 +1,5 @@
 **OpenAI Fires Back at Elon Musk’s Lawsuit**\
-`The artificial intelligence start-up argues that Mr. Musk is trying to hamstring its business as he builds a rival company`\
+`The artificial intelligence start-up argues that Mr. Musk is trying to hamstring its business as he builds a rival company.`\
 https://nytimes.com/2024/12/13/technology/openai-elon-musk-lawsuit.html
 
 **Cubs finally take big swing with great deal for Kyle Tucker: Law**\
