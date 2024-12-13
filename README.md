@@ -1,3 +1,7 @@
+**For Those Granted Clemency by White House, a Moment to Celebrate and Plan**\
+`Among those whose sentences were commuted was Rebecca Parrett, an Arizona woman who now hopes to travel to meet her great-grandchildren for the first time.`\
+https://nytimes.com/2024/12/12/us/biden-commutes-sentences-clemency.html
+
 **Why Wray’s Resignation May Signal a Shift in F.B.I. Tradition**\
 `Mr. Wray’s voluntary departure could usher in a new era at the nation’s premier law enforcement agency, one in which the job of director changes with the administration.`\
 https://nytimes.com/2024/12/12/us/politics/christopher-wray-fbi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/style/selena-gomez-marquise-engagement-ring.html
 **Under Trump, Voice of America Journalists Fear Politicization**\
 `Donald J. Trump’s choice of Kari Lake to lead Voice of America goes against recent efforts to shield the federally funded news organization from politicization.`\
 https://nytimes.com/2024/12/12/us/politics/voice-of-america-journalists-trump.html
-
-**YouTube TV Raises Monthly Charge 14 Percent, to $82.99**\
-`The increase is the latest for the streaming service, which debuted in 2017 at $35 a month. The company blamed “rising content costs.”`\
-https://nytimes.com/2024/12/12/business/youtube-tv-price-increase.html
 
