@@ -1,3 +1,7 @@
+**Supreme Court to Hear Challenge to California Tailpipe Emissions Limits**\
+`The justices agreed to decide whether industry groups have suffered the sort of injury that gave them standing to sue over an unusual waiver.`\
+https://nytimes.com/2024/12/13/us/politics/supreme-court-california-tailpipe-emissions.html
+
 **Charles Handy Dies at 92; Philosopher Envisioned Today’s Corporate World**\
 `Joining a pantheon of management thinkers, he embraced a humanistic path for business and foresaw outsourcing, remote work and a gig economy.`\
 https://nytimes.com/2024/12/13/business/charles-handy-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/arts/television/conan-obrien-parents-dead.html
 **Our Book Critics on What Stuck With Them in 2024**\
 `Dwight Garner, Jennifer Szalai and Alexandra Jacobs discuss highlights from their year in books.`\
 https://nytimes.com/2024/12/13/books/review/book-critics-podcast.html
-
-**Roundtable reaction after Kyle Tucker’s trade from Astros to Cubs**\
-`After pulling off a major acquisition, what's next for the Cubs? How does impact the Astros and their next steps?`\
-https://nytimes.com/athletic/5992938/2024/12/13/kyle-tucker-astros-cubs-trade-analysis/
 
