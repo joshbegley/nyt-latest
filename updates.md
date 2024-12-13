@@ -1,3 +1,11 @@
+**Eric Adams’s Advisers Are Trying to Get Him a Trump Inauguration Ticket**\
+`Members of the Democratic mayor’s team have put out the word to New York Republicans that he is interested in attending Donald J. Trump’s swearing-in.`\
+https://nytimes.com/2024/12/13/nyregion/adams-trump-inauguration.html
+
+**Billionaire Justin Ishbia, minority owner of Phoenix Suns, emerges as bidders for Twins: Source**\
+`The ownership group that purchased the Suns — before promptly making a splash by acquiring Kevin Durant — is interested in buying the Twins.`\
+https://nytimes.com/athletic/5992891/2024/12/13/billionaire-ishbia-brothers-emerge-as-bidders-for-minnesota-twins-source/
+
 **Billionaire Ishbia brothers, owners of Phoenix Suns, emerge as bidders for Minnesota Twins: Source**\
 `DALLAS — The ownership group that purchased the Phoenix Suns — before promptly making a splash by acquiring Kevin Durant — is now interested in buying the Minnesota Twins.`\
 https://nytimes.com/athletic/5992891/2024/12/13/billionaire-ishbia-brothers-emerge-as-bidders-for-minnesota-twins-source/
