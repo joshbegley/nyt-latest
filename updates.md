@@ -1,3 +1,7 @@
+**The Bounce: Potential new teams for Jimmy Butler. Plus, Which NBA coach should pull a Bill Belichick?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5991896/2024/12/13/jimmy-butler-heat-rockets-pistons-bill-belichick-nba-the-bounce/
+
 **State of offense, fantasy football 2024: Who turned out the lights?**\
 `John Laghezza looks at the state of NFL offense in 2024, the metrics that dipped to decade lows and what it means for fantasy football 2025.`\
 https://nytimes.com/athletic/5989899/2024/12/13/fantasy-football-2024-offense-review/
