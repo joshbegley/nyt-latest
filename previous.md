@@ -1,3 +1,7 @@
+**Thompson: Deebo Samuel's drop drove the last nail into a 49ers team in need of a retool**\
+`In a critical moment Thursday night, Deebo Samuel couldn't haul in a critical pass. About an hour later, the 49ers' season was all but over.`\
+https://nytimes.com/athletic/5991804/2024/12/13/deebo-samuel-drop-san-francisco-49ers-season/
+
 **Man City left with three fit defenders for Manchester derby - Guardiola**\
 `Pep Guardiola says that Manchester City will have just three fit defenders for Sunday’s game against Manchester United, and admits he does not yet know who will make up his backline.`\
 https://nytimes.com/athletic/5991961/2024/12/13/man-city-team-news-defenders-pep-guardiola/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/health/migrant-children-health-monitor.html
 **England to face Serbia, Albania, Latvia, Andorra in World Cup 2026 qualifying**\
 `England will face Serbia in qualifying for the expanded 48-team World Cup in 2026 in the United States, Canada and Mexico.`\
 https://nytimes.com/athletic/5989883/2024/12/13/world-cup-2026-qualifying-draw-england-opponents/
-
-**Silver: This 49ers season is effectively over — and Kyle Shanahan bears plenty of responsibility**\
-`In 2024, the 49ers weren’t good enough, and neither was their head coach.`\
-https://nytimes.com/athletic/5991670/2024/12/13/49ers-kyle-shanahan-season-over/
 
