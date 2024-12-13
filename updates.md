@@ -1,3 +1,7 @@
+**It’s Going to Be Normal to Have Extreme Beliefs**\
+`What the fascination with a C.E.O.’s killing reveals about this political era.`\
+https://nytimes.com/2024/12/13/opinion/unitedhealthcare-ceo-shooting.html
+
 **Syrians Celebrated a New Chapter**\
 `Also, McKinsey will pay $650 million in an opioid settlement. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/12/13/briefing/syria-russia-images-canada-tribes-gas.html
