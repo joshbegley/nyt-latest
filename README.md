@@ -1,3 +1,31 @@
+**The Briefing - Rangers 1 Spurs 1: Werner and Johnson displays, Kulusevski and Solanke reliance**\
+`Tottenham were held by Rangers in the Europa League on Thursday evening. Jack Pitt-Brooke analyses the action from Ibrox`\
+https://nytimes.com/athletic/5986342/2024/12/13/tottenham-hotspur-rangers-analysis/
+
+**Why was Fabian Hurzeler in with the Brighton away fans at Selhurst Park last season?**\
+`A fact-finding mission took the German to south London last December - so he knows what to expect when the teams meet on Sunday `\
+https://nytimes.com/athletic/5983432/2024/12/13/hurzeler-brighton-palace-away-end/
+
+**Jason Ayto, the Arsenal scout turned interim sporting director who has 'something special'**\
+`The 39-year-old has been at Arsenal for a decade and now has the chance to show he can be the long-term sporting director`\
+https://nytimes.com/athletic/5989219/2024/12/13/jason-ayto-profile-sporting-director/
+
+**Yohe's 10 observations: Penguins erupt for 6 third-period goals in lopsided win**\
+`Bryan Rust's hat trick led the way in a 9-2 win against the Canadiens in Montreal. `\
+https://nytimes.com/athletic/5991127/2024/12/13/penguins-canadiens-bryan-rust-hat-trick/
+
+**In the Champions League, less might not necessarily be more**\
+`The new Champions League may feel hollow at times but scratch beneath the surface and you might find stories to counter that notion`\
+https://nytimes.com/athletic/5989944/2024/12/13/champions-league-2024-25-format-future/
+
+**He used to play for Man City. Now he's Georgia's far-right president-elect**\
+`The ex-City player's political rise in his home country has baffled his old team-mates and coaches`\
+https://nytimes.com/athletic/5974493/2024/12/13/mikheil-kavelashvili-georgia-president-manchester-city/
+
+**Travis Hunter makes history winning Bednarik, Biletnikoff awards**\
+`Jeanty won the Maxwell Award for the most outstanding player in football, while Hunter was named the Walter Camp Player of the Year.`\
+https://nytimes.com/athletic/5991328/2024/12/13/travis-hunter-colorado-cfb-awards-biletnikoff-bednarik/
+
 **Maresca, recruitment, behind-the-scenes changes: How Chelsea became title contenders**\
 `Chelsea have become surprise contenders for the Premier League title this season — this is how it has happened`\
 https://nytimes.com/athletic/5989017/2024/12/13/chelsea-premier-league-title-contenders-analysis/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5925213/2024/12/13/futsal-england-history/
 **Fantasy baseball fallout: Juan Soto, Mets dominate MLB's Winter Meetings**\
 `Fantasy baseball reactions to the MLB's Winter Meetings, including thoughts on Juan Soto, Blake Snell and more. `\
 https://nytimes.com/athletic/5990230/2024/12/13/winter-meetings-fantasy-baseball-reaction-2024/
-
-**Why is the Premier League so inconsistent this season?**\
-`Why are teams in the Premier League struggling to put together winning runs? Nick Miller investigates`\
-https://nytimes.com/athletic/5987286/2024/12/13/premier-league-inconsistency-tottenham-newcastle-manchester-united/
-
-**Michail Antonio and what he means to West Ham - according to his team-mates and past managers**\
-`Michail Antonio was in a horrific car accident at the weekend - this is what he means to West Ham`\
-https://nytimes.com/athletic/5982032/2024/12/13/michail-antonio-west-ham-appreciation/
-
-**Is Jet Greaves laying claim to the Blue Jackets' goaltending job?**\
-`After Thursday's performance in a 2-1 loss to the Capitals, Greaves has "earned the right" to be in Columbus, according to his coach. `\
-https://nytimes.com/athletic/5991313/2024/12/13/blue-jackets-jet-greaves-goalie/
-
-**Dating on the Front Line: Ukrainian Women Travel to Keep Love Alive**\
-`Many women are making dangerous trips to places where loved ones are fighting Russian forces. “We try to imagine that for these two days, there is no war,” one said.`\
-https://nytimes.com/2024/12/13/world/europe/ukraine-war-dating.html
-
-**Friday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/12/13/briefing/syria-israel-trump.html
-
-**Please Let Me Love My Wife**\
-`Her pronouns changed. Our bond didn’t.`\
-https://nytimes.com/2024/12/13/style/modern-love-please-let-me-love-my-wife.html
-
-**Surprise, ‘We’re Getting Married Right Now!’**\
-`Daniel Howarth and Jonathan Marotto gathered their closest friends and family for a celebration that also happened to be their wedding.`\
-https://nytimes.com/2024/12/13/style/daniel-howarth-jonathan-marotto-wedding.html
 
