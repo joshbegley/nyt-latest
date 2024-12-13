@@ -1,3 +1,7 @@
+**Time’s Person of the Year Doesn’t Surprise Late Night Hosts**\
+`“Trump is the first man in history to be Time’s person of the year and McDonald’s employee of the month,” Jimmy Fallon said on Thursday.`\
+https://nytimes.com/2024/12/13/arts/television/late-night-time-magazine-trump.html
+
 **Word of the Day: efficient**\
 `This word has appeared in 1,694 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/13/learning/word-of-the-day-efficient.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5984159/2024/12/13/fantasy-premier-league-different
 **A beginner's guide to Dean Henderson's 'head saves' - and how he does them**\
 `An unusual save technique has won Palace precious points in recent weeks - this is how Henderson does it`\
 https://nytimes.com/athletic/5981156/2024/12/13/dean-henderson-crystal-palace-save-head/
-
-**Emiliano Buendia's 37 minutes: Where next for his Aston Villa career?**\
-`The Argentina playmaker has found opportunities difficult to come by - bought for £38m, his career is approaching a crossroads`\
-https://nytimes.com/athletic/5974405/2024/12/13/emiliano-buendia-aston-villa-37-minutes/
 
