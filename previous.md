@@ -1,3 +1,15 @@
+**Michigan TE Colston Loveland, top-20 prospect, declares for 2025 NFL Draft**\
+`Loveland, a surefire top-20 talent, is the third Michigan junior to declare for the draft. `\
+https://nytimes.com/athletic/5993158/2024/12/13/michigan-tight-end-colston-loveland-2025-nfl-draft/
+
+**Tell Us: What’s Your Favorite Movie About Politics?**\
+`Share your pick with the On Politics newsletter.`\
+https://nytimes.com/2024/12/13/us/politics/tell-us-whats-your-favorite-movie-about-politics.html
+
+**Read the lawsuit**\
+`The Texas attorney general opened a new front in the contentious battle over access to abortion by suing a New York doctor for sending abortion pills into Texas. It appeared to be among the first attempts to stop the mailing of such medication into states that ban abortion.`\
+https://nytimes.com/interactive/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
+
 **Padres’ Yu Darvish on Roki Sasaki: ‘It’s a good thing if he were to come to San Diego’**\
 `Darvish spoke publicly for the first time since his fellow countryman Sasaki was posted, allowing him to sign with any MLB club.`\
 https://nytimes.com/athletic/5992996/2024/12/13/roki-sasaki-yu-darvish-padres/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/5992996/2024/12/13/roki-sasaki-yu-darvish-padres/
 `Bedard's spectacular toe-drag goal on Thursday against the Islanders seemed to flagrantly defy the laws of physics.`\
 https://nytimes.com/athletic/5993135/2024/12/13/connor-bedard-blackhawks-goal/
 
-**Texas Attorney General Sues New York Doctor for Mailing Abortion Pills**\
+**Texas Sues New York Doctor for Mailing Abortion Pills**\
 `The lawsuit, filed on Friday, appeared to be among the first attempts to stop doctors from mailing the medications to states that ban abortions.`\
 https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5993098/2024/12/13/travis-hunter-heisman-trophy-com
 **It’s Going to Be Normal to Have Extreme Beliefs**\
 `What the fascination with a C.E.O.’s killing reveals about this political era.`\
 https://nytimes.com/2024/12/13/opinion/unitedhealthcare-ceo-shooting.html
-
-**Syrians Celebrated a New Chapter**\
-`Also, McKinsey will pay $650 million in an opioid settlement. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/12/13/briefing/syria-russia-images-canada-tribes-gas.html
-
-**Bill Guerin on Jake Middleton's injury, Travis Dermott's addition and where Wild go from here**\
-`Although losing Middleton is a tough loss for the Wild, they are fortunate to have been able to claim Dermott off waivers from the Oilers.`\
-https://nytimes.com/athletic/5993083/2024/12/13/wild-jake-middleton-injury-travis-dermott/
-
-**Supreme Court to Hear Challenge to California Tailpipe Emissions Limits**\
-`The justices agreed to decide whether industry groups have suffered the sort of injury that gave them standing to sue over an unusual waiver.`\
-https://nytimes.com/2024/12/13/us/politics/supreme-court-california-tailpipe-emissions.html
 

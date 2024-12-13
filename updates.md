@@ -1,3 +1,19 @@
+**Michigan TE Colston Loveland, top-20 prospect, declares for 2025 NFL Draft**\
+`Loveland, a surefire top-20 talent, is the third Michigan junior to declare for the draft. `\
+https://nytimes.com/athletic/5993158/2024/12/13/michigan-tight-end-colston-loveland-2025-nfl-draft/
+
+**Tell Us: What’s Your Favorite Movie About Politics?**\
+`Share your pick with the On Politics newsletter.`\
+https://nytimes.com/2024/12/13/us/politics/tell-us-whats-your-favorite-movie-about-politics.html
+
+**Read the lawsuit**\
+`The Texas attorney general opened a new front in the contentious battle over access to abortion by suing a New York doctor for sending abortion pills into Texas. It appeared to be among the first attempts to stop the mailing of such medication into states that ban abortion.`\
+https://nytimes.com/interactive/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
+
+**Texas Sues New York Doctor for Mailing Abortion Pills**\
+`The lawsuit, filed on Friday, appeared to be among the first attempts to stop doctors from mailing the medications to states that ban abortions.`\
+https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
+
 **Padres’ Yu Darvish on Roki Sasaki: ‘It’s a good thing if he were to come to San Diego’**\
 `Darvish spoke publicly for the first time since his fellow countryman Sasaki was posted, allowing him to sign with any MLB club.`\
 https://nytimes.com/athletic/5992996/2024/12/13/roki-sasaki-yu-darvish-padres/

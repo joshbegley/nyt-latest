@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5992996/2024/12/13/roki-sasaki-yu-darvish-padres/
 https://nytimes.com/athletic/5993135/2024/12/13/connor-bedard-blackhawks-goal/
 
 **Texas Sues New York Doctor for Mailing Abortion Pills**\
-`The lawsuit, filed on Friday, appeared to be among the first attempts to stop doctors from mailing the medications to states that ban abortions.`\
+`The lawsuit, filed on Thursday, appeared to be among the first attempts to stop doctors from mailing the medications to states that ban abortions.`\
 https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
 
 **Tim Cook to Dine With Trump at Mar-a-Lago**\
