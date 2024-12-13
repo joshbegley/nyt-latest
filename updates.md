@@ -1,3 +1,15 @@
+**Can Berlin Really Afford 3 ‘Magic Flutes’ in a Single Week?**\
+`Each of the city’s opera houses is presenting a different production of the Mozart classic. With arts cuts looming, it looks like a last hurrah.`\
+https://nytimes.com/2024/12/13/arts/music/berlin-opera-arts-cuts.html
+
+**Notre Dame mailbag: Can Notre Dame avoid a sea of Indiana red in its home Playoff game?**\
+`How many Indiana fans will invade South Bend? Which transfers might Notre Dame target in the portal? And more in the Irish mailbag.`\
+https://nytimes.com/athletic/5992414/2024/12/13/notre-dame-college-football-playoff-indiana-mailbag/
+
+**Bank of America Flagged Suspicious Payments to Epstein Only After He Died**\
+`Senate staff members are urging that Bank of America be investigated for the way it reported payments to Jeffrey Epstein, the disgraced financier.`\
+https://nytimes.com/2024/12/13/business/jeffrey-epstein-bank-of-america.html
+
 **Heat Today: Nikola Jović stacking good days pays off as Heat win streak continues**\
 `Jović had been glued to the bench before Thursday, but he turned in one of his better performances against the Raptors.`\
 https://nytimes.com/athletic/5992153/2024/12/13/nikola-jovic-jimmy-butler-erik-spoelstra-bam-adebayo-nba-heat/
