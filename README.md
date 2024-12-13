@@ -1,3 +1,11 @@
+**A top House Democrat demands that Trump picks undergo F.B.I. vetting.**\
+`Representative Jamie Raskin of Maryland, the top Democrat on the Oversight Committee, also asked the Trump transition team to disclose any contacts it has had with private companies vetting personnel.`\
+https://nytimes.com/live/2024/12/13/us/trump-transition-news/a-top-house-democrat-demands-that-trump-picks-undergo-fbi-vetting
+
+**Brewers might have slight edge in pitcher swap with Yankees: Law**\
+`Based on their roles, Nestor Cortes could provide more value than Devin Williams. Both pitchers come with injury concerns, however.`\
+https://nytimes.com/athletic/5992933/2024/12/13/brewers-yankees-trade-nestor-cortes-devin-williams-keith-law/
+
 **The Russian military appears to be packing up equipment in Syria, satellite imagery shows.**\
 `Such a move would highlight the uncertainty of Moscow’s foothold in Syria, which has served as an important strategic foothold in the Middle East.`\
 https://nytimes.com/live/2024/12/13/world/syria-news/the-russian-military-appears-to-be-packing-up-equipment-in-syria-satellite-imagery-shows
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5992880/2024/12/13/astros-trade-of-kyle-tucker-to-c
 **America’s Health Care System Needs Better Economics, Not Bullets**\
 `If only fixing it were as easy as finding someone to blame.`\
 https://nytimes.com/2024/12/13/opinion/health-care-united-shooting.html
-
-**Do I Have to Tell My Boyfriend I’ve Been Paid for Sex?**\
-`The magazine’s Ethicist columnist on the kinds of information romantic partners deserve to know about one another’s pasts.`\
-https://nytimes.com/2024/12/13/magazine/sex-work-boyfriend-ethics.html
-
-**Patel Distorts Justice Dept. Benghazi Inquiry, Inflating His Role**\
-`Donald J. Trump’s pick to be the next F.B.I. director has both exaggerated his importance in the government’s criminal inquiry into the 2012 attack and misleadingly distorted its conduct and results.`\
-https://nytimes.com/2024/12/13/us/politics/kash-patel-benghazi-investigation-doj.html
 
