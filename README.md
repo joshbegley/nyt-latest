@@ -1,3 +1,15 @@
+**Who are the best quarterbacks in the transfer portal? Ranking the top 30**\
+`Six of the 12 teams in the College Football Playoff are quarterbacked by transfers.`\
+https://nytimes.com/athletic/5964434/2024/12/13/college-football-transfer-portal-quarterback-rankings/
+
+**The Cult of Claude**\
+`A.I. insiders are falling for Claude, a chatbot from Anthropic. Is it a passing fad, or a preview of artificial relationships to come?`\
+https://nytimes.com/2024/12/13/technology/claude-ai-anthropic.html
+
+**The Red Cross calls for preservation of evidence on thousands of detained and disappeared Syrians.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/12/13/world/syria-news/the-red-cross-calls-for-preservation-of-evidence-on-thousands-of-detained-and-disappeared-syrians
+
 **FIA approves rule changes to ethics and audit committees**\
 `The FIA confirmed Friday that rule changes to the ethics and audit committees have been approved by the FIA General Assemblies in Kigali, Rwanda ahead of the end-of-year awards ceremony.`\
 https://nytimes.com/athletic/5992224/2024/12/13/f1-fia-rule-changes-ethics-audits/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5992081/2024/12/13/thomas-tuchel-england-manager-re
 **Gabriel could return for Arsenal's game against Everton - Arteta**\
 `Mikel Arteta has confirmed that Gabriel Magalhaes could return to the Arsenal defence for the visit of Everton.`\
 https://nytimes.com/athletic/5992185/2024/12/13/arsenal-team-news-gabriel-everton/
-
-**Fantasy Trends and Hidden Gems: Sherwood's back on top; Wright's stuff starting to show**\
-`Mackenzie Blackwood's stock is soaring after getting dealt to the Avs, while Kiefer Sherwood is turning it on in Vancouver.`\
-https://nytimes.com/athletic/5991491/2024/12/13/fantasy-trends-and-hidden-gems-sherwoods-back-on-top-wrights-stuff-starting-to-show/
-
-**Blinken stops in Iraq on a regional tour to promote stability in Syria.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/12/13/world/syria-news/blinken-stops-in-iraq-on-a-regional-tour-to-promote-stability-in-syria
-
-**Ron Holland II shows glimpses of player Pistons 'know he is going to be'**\
-`The 19-year-old rookie finished with a career-high 26 points on 11-of-14 shooting in just 21 minutes of action.`\
-https://nytimes.com/athletic/5991368/2024/12/13/pistons-celtics-ron-holland/
 
