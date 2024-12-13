@@ -1,10 +1,18 @@
+**Rosenthal: How do the Yankees wash their Juan Soto blues away? Trade for Kyle Tucker**\
+`Even if he's a Yankee for one season before hitting free agency, Tucker would help the Yankees maximize the primes of several other stars.`\
+https://nytimes.com/athletic/5991275/2024/12/12/yankees-trade-kyle-tucker-juan-soto-astros/
+
+**One Dead in Small Plane Crash Near Westchester County Airport**\
+`The condition of a second person on the flight was not immediately known. The single-engine plane crashed shortly after the pilot reported engine issues.`\
+https://nytimes.com/2024/12/12/nyregion/plane-crash-westchester-airport-ny.html
+
 **Dick Vitale says PET scan shows he is cancer-free after lymph node surgery**\
 `Vitale, 85, has now overcome cancer four times in three years. He underwent radiation treatment in 2023 to address vocal cord cancer.`\
 https://nytimes.com/athletic/5991219/2024/12/12/dick-vitale-cancer-free-update/
 
 **Notre Dame's Hannah Hidalgo has UConn's number (again)**\
 `Hidalgo tied a milestone shared by Caitlin Clark and Sabrina Ionsecu as the Irish took down UConn in South Bend.`\
-https://nytimes.com/athletic/5991267/2024/12/12/notre-dames-hannah-hidalgo-has-uconns-number-again/
+https://nytimes.com/athletic/5991267/2024/12/12/notre-dame-hannah-hidalgo-uconn-victory/
 
 **‘Cult of Love’ Review: We Wish You a Wretched Christmas**\
 `A hilarious, harrowing holiday gift from Leslye Headland, who brings another unhappy family to Broadway. Zachary Quinto and Shailene Woodley star.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/nyregion/nyc-absolute-bagels-closed.html
 **U.S. Charges Ex-Syrian Prison Official With Torture**\
 `The indictment was the second time in a week that the Justice Department announced that it had charged top Syrian officials with human rights abuses.`\
 https://nytimes.com/2024/12/12/us/politics/torture-charges-syria-prison-official.html
-
-**How the Mets won over Juan Soto and what's next: Takeaways**\
-`New York's pitch to Soto hit the right notes on what agent Scott Boras called the "human moments," caring for family and for the players. `\
-https://nytimes.com/athletic/5990928/2024/12/12/mets-won-juan-soto-whats-next-takeaways/
-
-**Leafs goalie Anthony Stolarz exits vs. Ducks with injury**\
-`Toronto announced that the 30-year-old netminder would not return after the first period.`\
-https://nytimes.com/athletic/5991117/2024/12/12/maple-leafs-anthony-stolarz-injury/
 
