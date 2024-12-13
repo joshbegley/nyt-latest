@@ -1,3 +1,7 @@
+**Ron Holland II shows glimpses of player Pistons 'know he is going to be'**\
+`The 19-year-old rookie finished with a career-high 26 points on 11-of-14 shooting in just 21 minutes of action.`\
+https://nytimes.com/athletic/5991368/2024/12/13/pistons-celtics-ron-holland/
+
 **Aaron Judge dropped World Series ball sells for $43,510 in MLB auction**\
 `The Judge ball sold for far less than the most expensive World Series error ball of all time`\
 https://nytimes.com/athletic/5992048/2024/12/13/aaron-judge-yankees-world-series-ball-auction/

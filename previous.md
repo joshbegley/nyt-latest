@@ -1,3 +1,7 @@
+**Ron Holland II shows glimpses of player Pistons 'know he is going to be'**\
+`The 19-year-old rookie finished with a career-high 26 points on 11-of-14 shooting in just 21 minutes of action.`\
+https://nytimes.com/athletic/5991368/2024/12/13/pistons-celtics-ron-holland/
+
 **Aaron Judge dropped World Series ball sells for $43,510 in MLB auction**\
 `The Judge ball sold for far less than the most expensive World Series error ball of all time`\
 https://nytimes.com/athletic/5992048/2024/12/13/aaron-judge-yankees-world-series-ball-auction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5992044/2024/12/13/aston-villa-watkins-team-news-fo
 **NHL Power Rankings: Capitals take top spot, plus every team's Christmas wishlist**\
 `All 32 teams — even the good ones — need something. It might not be what they want, but it's what they should get.`\
 https://nytimes.com/athletic/5991457/2024/12/13/nhl-power-rankings-capitals/
-
-**Lemina replaced as Wolves captain following post-West Ham match incident**\
-`Mario Lemina has been replaced as Wolverhampton Wanderers captain by Nelson Semedo following the post-match altercation he had at West Ham United on Monday.`\
-https://nytimes.com/athletic/5992018/2024/12/13/mario-lemina-wolves-captain-replaced-semedo/
 
