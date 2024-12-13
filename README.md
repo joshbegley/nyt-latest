@@ -1,3 +1,7 @@
+**49ers' De'Vondre Campbell refuses to play, quits TNF game in third quarter**\
+`Campbell signed with the 49ers in the offseason, after spending the past three seasons with the Green Bay Packers`\
+https://nytimes.com/athletic/5991412/2024/12/13/devondre-campbell-49ers-quits-tnf/
+
 **FPL: Five low-owned options for the end of 2024 and beyond**\
 `Abdul Rehman presents five differentials who could make the difference for your FPL team over the festive period`\
 https://nytimes.com/athletic/5984159/2024/12/13/fantasy-premier-league-differentials-low-owned/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5966575/2024/12/13/eagleman-wonder-woman-wrexham/
 **Jason Ayto, the Arsenal scout turned interim sporting director who has 'something special'**\
 `The 39-year-old has been at Arsenal for a decade and now has the chance to show he can be the long-term sporting director`\
 https://nytimes.com/athletic/5989219/2024/12/13/jason-ayto-profile-sporting-director/
-
-**Yohe's 10 observations: Penguins erupt for 6 third-period goals in lopsided win**\
-`Bryan Rust's hat trick led the way in a 9-2 win against the Canadiens in Montreal. `\
-https://nytimes.com/athletic/5991127/2024/12/13/penguins-canadiens-bryan-rust-hat-trick/
 
