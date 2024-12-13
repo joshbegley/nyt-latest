@@ -1,3 +1,7 @@
+**Manchester United are still making mistakes - but they are learning**\
+`Ruben Amorim's team remains a work in progress but there were encouraging signs in the win over Viktoria Plzen`\
+https://nytimes.com/athletic/5879354/2024/12/13/manchester-united-viktoria-plzen-analysis/
+
 **Bronny James shines in G League road debut with 30 points in 25 minutes**\
 `Entering the game, the 20-year-old had been averaging 8.7 points, 3.0 rebounds, 2.7 assists, 1.0 steals, 1.0 blocks and 2.0 turnovers.`\
 https://nytimes.com/athletic/5991453/2024/12/13/bronny-james-g-league-road-debut-30-points/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5991453/2024/12/13/bronny-james-g-league-road-debut
 https://nytimes.com/2024/12/13/opinion/syria-iran-donald-trump.html
 
 **'He means so much to us': Scott Laughton scores all 4 Flyers goals in historic night**\
-`"I've been waiting for my chance in the shootout and I was going to let one fly," Laughton said. The Flyers beat the Red Wings 4-1.`\
+`"After the third one, looking down at the bench and seeing all the guys, it's special," Laughton said. The Flyers beat the Red Wings 4-1.`\
 https://nytimes.com/athletic/5991390/2024/12/13/flyers-win-red-wings-scott-laughton-four-goals/
 
 **49ers' De'Vondre Campbell refuses to play, quits TNF game in third quarter**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989675/2024/12/13/chris-wood-team-mates-opponents/
 **Oliver Skipp on his Spurs exit, a tough start at Leicester and Van Nistelrooy's calmness**\
 `The midfielder doesn't believe Leicester have seen his best since his summer move, but he feels the new manager can lift the club`\
 https://nytimes.com/athletic/5989260/2024/12/13/oliver-skipp-tottenham-leicester-van-nistelrooy/
-
-**The Briefing - Rangers 1 Spurs 1: Werner and Johnson displays, Kulusevski and Solanke reliance**\
-`Tottenham were held by Rangers in the Europa League on Thursday evening. Jack Pitt-Brooke analyses the action from Ibrox`\
-https://nytimes.com/athletic/5986342/2024/12/13/tottenham-hotspur-rangers-analysis/
 
