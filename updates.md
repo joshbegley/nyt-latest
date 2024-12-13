@@ -1,3 +1,7 @@
+**Health Protections for Migrant Children in Custody Are Set to Expire**\
+`A 2022 legal settlement established requirements to protect the health of minors detained at segments of the southern border. It ends nine days after Donald Trump takes office.`\
+https://nytimes.com/2024/12/13/health/migrant-children-health-monitor.html
+
 **England to face Serbia, Albania, Latvia, Andorra in World Cup 2026 qualifying**\
 `England will face Serbia in qualifying for the expanded 48-team World Cup in 2026 in the United States, Canada and Mexico.`\
 https://nytimes.com/athletic/5989883/2024/12/13/world-cup-2026-qualifying-draw-england-opponents/

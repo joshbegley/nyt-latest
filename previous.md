@@ -1,3 +1,7 @@
+**Health Protections for Migrant Children in Custody Are Set to Expire**\
+`A 2022 legal settlement established requirements to protect the health of minors detained at segments of the southern border. It ends nine days after Donald Trump takes office.`\
+https://nytimes.com/2024/12/13/health/migrant-children-health-monitor.html
+
 **England to face Serbia, Albania, Latvia, Andorra in World Cup 2026 qualifying**\
 `England will face Serbia in qualifying for the expanded 48-team World Cup in 2026 in the United States, Canada and Mexico.`\
 https://nytimes.com/athletic/5989883/2024/12/13/world-cup-2026-qualifying-draw-england-opponents/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989574/2024/12/13/oilers-goalie-stuart-skinner-sta
 **The Athletic’s Friday football quiz question #34**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/5991744/2024/12/13/the-athletics-friday-football-quiz-question-34/
-
-**Leon Draisaitl shows he can be the best of the best — just like Connor McDavid says**\
-`Draisaitl was an absolute stud in Minnesota, dominating in every facet of the game while racking up 4 points in a convincing 7-1 win.`\
-https://nytimes.com/athletic/5991580/2024/12/13/leon-draisaitl-oilers-wild/
 
