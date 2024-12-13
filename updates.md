@@ -1,3 +1,7 @@
+**Syrians Celebrated a New Chapter**\
+`Also, McKinsey will pay $650 million in an opioid settlement. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/12/13/briefing/syria-russia-images-canada-tribes-gas.html
+
 **Bill Guerin on Jake Middleton's injury, Travis Dermott's addition and where Wild go from here**\
 `Although losing Middleton is a tough loss for the Wild, they are fortunate to have been able to claim Dermott off waivers from the Oilers.`\
 https://nytimes.com/athletic/5993083/2024/12/13/wild-jake-middleton-injury-travis-dermott/
