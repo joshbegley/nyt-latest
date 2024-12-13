@@ -1,3 +1,7 @@
+**Man City left with three fit defenders for Manchester derby - Guardiola**\
+`Pep Guardiola says that Manchester City will have just three fit defenders for Sunday’s game against Manchester United, and admits he does not yet know who will make up his backline.`\
+https://nytimes.com/athletic/5991961/2024/12/13/man-city-team-news-defenders-pep-guardiola/
+
 **Raiders' Jack Jones has grown on and off the field: 'Man, I've come a long way'**\
 `Raiders cornerbacks coach Ricky Manning Jr. on Jones: “He still has so much upside. He is only touching his potential, and he's so hungry."`\
 https://nytimes.com/athletic/5990409/2024/12/13/jack-jones-raiders-growth-antonio-pierce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989883/2024/12/13/world-cup-2026-qualifying-draw-e
 **Silver: This 49ers season is effectively over — and Kyle Shanahan bears plenty of responsibility**\
 `In 2024, the 49ers weren’t good enough, and neither was their head coach.`\
 https://nytimes.com/athletic/5991670/2024/12/13/49ers-kyle-shanahan-season-over/
-
-**Breaking the Cycle of Childhood Poverty in New York**\
-`Children’s Aid provides essential help with food and housing for families in New York City, where tens of thousands of children live in poverty.`\
-https://nytimes.com/2024/12/13/opinion/communities-fund-childrens-aid.html
 
