@@ -1,5 +1,5 @@
 **Rosenthal: How do the Yankees wash their Juan Soto blues away? Trade for Kyle Tucker**\
-`Even if he's a Yankee for one season before hitting free agency, Tucker would help the Yankees maximize the primes of several other stars.`\
+`Even if he's a Yankee for one season before hitting free agency, Tucker would help New York maximize the primes of several other stars.`\
 https://nytimes.com/athletic/5991275/2024/12/12/yankees-trade-kyle-tucker-juan-soto-astros/
 
 **One Dead in Small Plane Crash Near Westchester County Airport**\
