@@ -35,6 +35,6 @@ https://nytimes.com/2024/12/13/dining/how-to-cook-christmas-dinner.html
 https://nytimes.com/2024/12/13/books/jerome-kohn-dead.html
 
 **Conan O’Brien’s Parents Die 3 Days Apart**\
-`Thomas Francis O’Brien, an epidemiologist, and Ruth Reardon O’Brien, a lawyer, juggled successful careers with raising six children, including the comedy star. They were married for 66 years.`\
+`Thomas O’Brien, an epidemiologist, and Ruth O’Brien, a lawyer, juggled successful careers with raising six children, including the comedy star.`\
 https://nytimes.com/2024/12/13/arts/television/conan-obrien-parents-dead.html
 
