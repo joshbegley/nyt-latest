@@ -1,3 +1,15 @@
+**Vancouver Whitecaps ownership group initiating selling the club**\
+`The sale comes at a potentially critical moment in growth with Vancouver will hosting games in the 2025 Gold Cup and the 2026 World Cup.`\
+https://nytimes.com/athletic/5992511/2024/12/13/vancouver-whitecaps-sale-process/
+
+**Why you may not see all the deals you want this NBA trade season**\
+`Because of CBA restrictions and the fear of free agency not being what it once was, we could see a quiet next couple of months.`\
+https://nytimes.com/athletic/5992089/2024/12/13/nba-trade-season-knicks-lakers-nets/
+
+**What Song Did You Discover, or Rediscover, in 2024?**\
+`We want to know why it resonated with you.`\
+https://nytimes.com/2024/12/13/arts/music/amplifier-newsletter-rediscovered-songs.html
+
 **A Very Senatorial Goodbye: Nostalgia, Legacy and Gratitude, Live on C-SPAN**\
 `The farewell address is a Senate ritual that reflects the culture of the chamber, which prizes tradition, individual relationships, lofty debates and long-winded speeches.`\
 https://nytimes.com/2024/12/13/us/politics/departing-senators-farewell-address.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/13/sports/tennis/nadal-retirement-players-coaches.ht
 **A Stunning Year in Sports: Caitlin Clark, Shohei Ohtani and Record Viewership**\
 `It was also a year highlighted by the pageantry and competition of the Paris Olympics.`\
 https://nytimes.com/2024/12/13/sports/caitlin-clark-best-year.html
-
-**Avant Gardner, Troubled Brooklyn Venue, Promises Security Changes in Major Renovation**\
-`The planned overhaul comes more than a year after two patrons who left the mega-club were found dead nearby.`\
-https://nytimes.com/2024/12/13/nyregion/brooklyn-avant-gardner-security.html
-
-**Review: Reveling in a Wry Storybook, Full of Characters**\
-`The choreographer Tess Dworman inhabits an assortment of people (and an ottoman) in her dance-theater work “Everything Must Go.”`\
-https://nytimes.com/2024/12/13/arts/dance/review-tess-dworman-chocolate-factory.html
-
-**West Ham academy player dies following cancer battle**\
-`West Ham United have announced the death of youth goalkeeper Oscar Fairs, aged 15, following a battle with cancer.`\
-https://nytimes.com/athletic/5992506/2024/12/13/west-ham-academy-goalkeeper-tribute/
 
