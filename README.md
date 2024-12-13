@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5992996/2024/12/13/roki-sasaki-yu-darvish-padres/
 `Bedard's spectacular toe-drag goal on Thursday against the Islanders seemed to flagrantly defy the laws of physics.`\
 https://nytimes.com/athletic/5993135/2024/12/13/connor-bedard-blackhawks-goal/
 
-**Texas Attorney General Sues New York Doctor for Mailing Abortion Pills**\
+**Texas Sues New York Doctor for Mailing Abortion Pills**\
 `The lawsuit, filed on Friday, appeared to be among the first attempts to stop doctors from mailing the medications to states that ban abortions.`\
 https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
 
