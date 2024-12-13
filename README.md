@@ -1,3 +1,7 @@
+**U.S. Considered Border Buoys Months Before Texas Put Them In**\
+`Border officials explored using floating barriers from Texas to California in 2022. The effort could help pave the way for their deployment under President-elect Donald J. Trump.`\
+https://nytimes.com/2024/12/13/us/us-border-floating-barriers-trump.html
+
 **Vancouver Whitecaps ownership group initiating selling the club**\
 `The sale comes at a potentially critical moment in growth with Vancouver will hosting games in the 2025 Gold Cup and the 2026 World Cup.`\
 https://nytimes.com/athletic/5992511/2024/12/13/vancouver-whitecaps-sale-process/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/sports/equestrian-sport-horse-year.html
 **In 2024, Tennis Was Busy With Action On and Off the Court**\
 `There were striking matches, coaching changes, and Novak Djokovic finally won his Olympic gold.`\
 https://nytimes.com/2024/12/13/sports/tennis/nadal-retirement-players-coaches.html
-
-**A Stunning Year in Sports: Caitlin Clark, Shohei Ohtani and Record Viewership**\
-`It was also a year highlighted by the pageantry and competition of the Paris Olympics.`\
-https://nytimes.com/2024/12/13/sports/caitlin-clark-best-year.html
 
