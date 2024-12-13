@@ -1,3 +1,7 @@
+**The End Game in Ukraine**\
+`How the war could come to a close next year.`\
+https://nytimes.com/2024/12/13/briefing/the-end-game-in-ukraine.html
+
 **Emmanuel Macron Appoints Key Ally as France’s New Prime Minister**\
 `François Bayrou, a centrist politician, will now become the fourth prime minister in a year, a record for France.`\
 https://nytimes.com/2024/12/13/world/europe/france-prime-minister-government-macron.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/podcasts/luigi-mangione-profile-syria-refugees-eu
 **Packers-Seahawks preview: Josh Jacobs' impact, Seattle's pick-your-poison WRs, predictions**\
 `The Packers visit the Seahawks on Sunday Night Football in a potential playoff preview.`\
 https://nytimes.com/athletic/5991046/2024/12/13/packers-seahawks-preview-sunday-night-football/
-
-**How do this year's Heisman finalists project as NFL Draft prospects?**\
-`There are four finalists for this year's Heisman. What could each player offer NFL teams thinking about drafting them?`\
-https://nytimes.com/athletic/5984480/2024/12/13/heisman-finalists-nfl-draft-2025-travis-hunter/
 
