@@ -1,3 +1,7 @@
+**Cubs finally take big swing with great deal for Kyle Tucker: Law**\
+`Cam Smith is the jewel of the trade for the Astros, who may have received more total value for Tucker if they strictly targeted prospects.`\
+https://nytimes.com/athletic/5993187/2024/12/13/cubs-astros-kyle-tucker-trade-analysis/
+
 **Joy Buoys Syria’s First Friday Prayers Since Assad Ouster, but Hardships Loom**\
 `In an impoverished, war-ravaged country, the first prayers after the fall of a brutal regime drew jubilant crowds, even in areas seen as regime strongholds.`\
 https://nytimes.com/2024/12/13/world/middleeast/syria-prayers-joy.html
