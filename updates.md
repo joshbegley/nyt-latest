@@ -1,3 +1,7 @@
+**49ers plan to part ways with De'Vondre Campbell day after he refused to play**\
+`The veteran linebacker told the team he didn't want to play and left the field in the third quarter of Thursday night's loss to the Rams.`\
+https://nytimes.com/athletic/5992356/2024/12/13/devondre-campbell-49ers-release/
+
 **Hochul Launches Investigation Into Drone Sightings in New York**\
 `The governor made the announcement on Friday as sightings spread across New York and New Jersey. State and federal authorities said the flying objects posed no threat to the public.`\
 https://nytimes.com/article/nj-drones-east-coast.html

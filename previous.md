@@ -1,3 +1,7 @@
+**49ers plan to part ways with De'Vondre Campbell day after he refused to play**\
+`The veteran linebacker told the team he didn't want to play and left the field in the third quarter of Thursday night's loss to the Rams.`\
+https://nytimes.com/athletic/5992356/2024/12/13/devondre-campbell-49ers-release/
+
 **Hochul Launches Investigation Into Drone Sightings in New York**\
 `The governor made the announcement on Friday as sightings spread across New York and New Jersey. State and federal authorities said the flying objects posed no threat to the public.`\
 https://nytimes.com/article/nj-drones-east-coast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/us/us-border-floating-barriers-trump.html
 **Vancouver Whitecaps ownership group initiating selling the club**\
 `The sale comes at a potentially critical moment in growth with Vancouver will hosting games in the 2025 Gold Cup and the 2026 World Cup.`\
 https://nytimes.com/athletic/5992511/2024/12/13/vancouver-whitecaps-sale-process/
-
-**Why you may not see all the deals you want this NBA trade season**\
-`Because of CBA restrictions and the fear of free agency not being what it once was, we could see a quiet next couple of months.`\
-https://nytimes.com/athletic/5992089/2024/12/13/nba-trade-season-knicks-lakers-nets/
 
