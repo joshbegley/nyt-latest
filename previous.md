@@ -1,3 +1,7 @@
+**What We Know About Reports of Drone Sightings in New Jersey and New York**\
+`Reports of flying objects continue to occur throughout the region. State and local officials say they do not pose a threat but have provided few answers.`\
+https://nytimes.com/2024/12/13/nyregion/drones-nj-ny-east-coast.html
+
 **The Texas Millennial Trying to Rebrand the Democrats**\
 `“We can’t bring a policy book to a gunfight,” said Representative Greg Casar of Texas, the incoming chair of the Congressional Progressive Caucus.`\
 https://nytimes.com/2024/12/13/us/politics/democrats-texas-greg-casar.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993158/2024/12/13/michigan-tight-end-colston-lovel
 **Tell Us: What’s Your Favorite Movie About Politics?**\
 `Share your pick with the On Politics newsletter.`\
 https://nytimes.com/2024/12/13/us/politics/tell-us-whats-your-favorite-movie-about-politics.html
-
-**Read the lawsuit**\
-`The Texas attorney general opened a new front in the contentious battle over access to abortion by suing a New York doctor for sending abortion pills into Texas. It appeared to be among the first attempts to stop the mailing of such medication into states that ban abortion.`\
-https://nytimes.com/interactive/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
 

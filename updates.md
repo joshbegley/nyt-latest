@@ -1,3 +1,7 @@
+**What We Know About Reports of Drone Sightings in New Jersey and New York**\
+`Reports of flying objects continue to occur throughout the region. State and local officials say they do not pose a threat but have provided few answers.`\
+https://nytimes.com/2024/12/13/nyregion/drones-nj-ny-east-coast.html
+
 **The Texas Millennial Trying to Rebrand the Democrats**\
 `“We can’t bring a policy book to a gunfight,” said Representative Greg Casar of Texas, the incoming chair of the Congressional Progressive Caucus.`\
 https://nytimes.com/2024/12/13/us/politics/democrats-texas-greg-casar.html
