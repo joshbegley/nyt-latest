@@ -1,3 +1,7 @@
+**The Fall of al-Assad Quickly Infuses Europe’s Debate Over Asylum**\
+`Nearly a million Syrians in Germany alone have made new lives. But after the fall of Bashar al-Assad, some politicians across the continent have suggested that refugees could return home.`\
+https://nytimes.com/2024/12/13/world/europe/syria-assad-europe-germany-refugees.html
+
 **AFC North Whiparound: Can Steelers hold off Ravens for division crown?**\
 `Plus, early reactions to the in-season edition of "Hard Knocks" and Week 15 game predictions. `\
 https://nytimes.com/athletic/5990127/2024/12/13/afc-north-steelers-ravens-bengals-browns/
