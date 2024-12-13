@@ -1,3 +1,11 @@
+**Paula Abdul Settles Sexual Assault Lawsuit Against Nigel Lythgoe**\
+`Mr. Lythgoe, a producer she worked with on “American Idol” and “So You Think You Can Dance,” had vehemently denied her allegations.`\
+https://nytimes.com/2024/12/13/arts/paula-abdul-nigel-lythgoe-lawsuit-settlement.html
+
+**Herbert comes off Chargers' injury report, McConkey questionable vs. Bucs**\
+`At 8-5, Los Angeles holds a two-game advantage on an AFC wild card spot with four weeks to go. `\
+https://nytimes.com/athletic/5993247/2024/12/13/chargers-justin-herbert-ladd-mcconkey-injury-updates/
+
 **What We Know About Reports of Drone Sightings in New Jersey and New York**\
 `Reports of flying objects continue to occur throughout the region. State and local officials say they do not pose a threat but have provided few answers.`\
 https://nytimes.com/2024/12/13/nyregion/drones-nj-ny-east-coast.html
