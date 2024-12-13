@@ -1,3 +1,11 @@
+**Maple Leafs report cards: Toronto plays loose but hangs on for win**\
+`Max Pacioretty had two goals and an assist in Toronto's 3-2 win over Anaheim.`\
+https://nytimes.com/athletic/5991297/2024/12/12/maple-leafs-ducks-grades-analysis/
+
+**Creator of The Last of Us Reveals New Sci-Fi Game**\
+`Neil Druckmann said Intergalactic: The Heretic Prophet, the adventure of a galactic bounty hunter, would be a story about faith.`\
+https://nytimes.com/2024/12/12/arts/intergalactic-heretic-prophet-naughty-dog-druckmann.html
+
 **Rosenthal: How do the Yankees wash their Juan Soto blues away? Trade for Kyle Tucker**\
 `Even if he's a Yankee for one season before hitting free agency, Tucker would help New York maximize the primes of several other stars.`\
 https://nytimes.com/athletic/5991275/2024/12/12/yankees-trade-kyle-tucker-juan-soto-astros/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/nyregion/mount-vernon-police-strip-searches.html
 **Corrections: Dec. 13, 2024**\
 `Corrections that appeared in print on Friday, Dec. 13, 2024.`\
 https://nytimes.com/2024/12/12/pageoneplus/corrections-dec-13-2024.html
-
-**A Bagel Shop Closes, and the Upper West Side Is Absolutely Losing It**\
-`The neighborhood reaction to the sudden, mysterious closure of a Manhattan bagel shop was intense: “No no no no no no no no no no no!!”`\
-https://nytimes.com/2024/12/12/nyregion/nyc-absolute-bagels-closed.html
-
-**U.S. Charges Ex-Syrian Prison Official With Torture**\
-`The indictment was the second time in a week that the Justice Department announced that it had charged top Syrian officials with human rights abuses.`\
-https://nytimes.com/2024/12/12/us/politics/torture-charges-syria-prison-official.html
 
