@@ -1,3 +1,15 @@
+**Review: Reveling in a Wry Storybook, Full of Characters**\
+`The choreographer Tess Dworman inhabits an assortment of people (and an ottoman) in her dance-theater work “Everything Must Go.”`\
+https://nytimes.com/2024/12/13/arts/dance/review-tess-dworman-chocolate-factory.html
+
+**West Ham academy player dies following cancer battle**\
+`West Ham United have announced the death of youth goalkeeper Oscar Fairs, aged 15, following a battle with cancer.`\
+https://nytimes.com/athletic/5992506/2024/12/13/west-ham-academy-goalkeeper-tribute/
+
+**This Director’s Family Story Became Her Latest Movie**\
+`Maura Delpero’s film “Vermiglio,” which won the Grand Jury Prize at the Venice Film Festival, is inspired by her own family in Italy during World War II.`\
+https://nytimes.com/2024/12/13/movies/vermiglio-maura-delpero-director.html
+
 **When Coming to America, European Directors Sometimes Get Lost in Translation**\
 `The history of European directors “going Hollywood” and making the leap to English-language filmmaking is long and uneven.`\
 https://nytimes.com/2024/12/13/movies/european-directors-english-language.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/13/arts/music/berlin-opera-arts-cuts.html
 **Notre Dame mailbag: Can Notre Dame avoid a sea of Indiana red in its home Playoff game?**\
 `How many Indiana fans will invade South Bend? Which transfers might Notre Dame target in the portal? And more in the Irish mailbag.`\
 https://nytimes.com/athletic/5992414/2024/12/13/notre-dame-college-football-playoff-indiana-mailbag/
-
-**Bank of America Flagged Suspicious Payments to Epstein Only After He Died**\
-`Senate staff members are urging that Bank of America be investigated for the way it reported payments to Jeffrey Epstein, the disgraced financier.`\
-https://nytimes.com/2024/12/13/business/jeffrey-epstein-bank-of-america.html
-
-**Heat Today: Nikola Jović stacking good days pays off as Heat win streak continues**\
-`Jović had been glued to the bench before Thursday, but he turned in one of his better performances against the Raptors.`\
-https://nytimes.com/athletic/5992153/2024/12/13/nikola-jovic-jimmy-butler-erik-spoelstra-bam-adebayo-nba-heat/
-
-**McKinsey to Pay $650 Million in Opioid Settlement With Justice Department**\
-`A senior partner has also pleaded to obstruction of justice after destroying company documents.`\
-https://nytimes.com/2024/12/13/business/mckinsey-oxycontin-settlement.html
 
