@@ -1,3 +1,19 @@
+**Why did Postecoglou call Werner's first-half display 'not acceptable'?**\
+`Ange Postecoglou said Timo Werner's performance in the Europa League draw against Rangers was 'not acceptable'. So what exactly did he mean?`\
+https://nytimes.com/athletic/5992103/2024/12/13/werner-tottenham-rangers-not-acceptable/
+
+**Democrats Argue That the 2024 Election Actually Had Its Bright Spots**\
+`Some leaders have begun to put a sunnier spin on the November outcome by pointing to down-ballot victories — a possible sign that Democrats may not tear down their party after all.`\
+https://nytimes.com/2024/12/13/us/politics/democrats-harris-trump-2024-election.html
+
+**Tuchel to 'reach out' to White over England absence**\
+`Thomas Tuchel says he will &#8220;reach out&#8221; to Ben White over his ongoing absence from the England national team.`\
+https://nytimes.com/athletic/5992123/2024/12/13/ben-white-england-arsenal-thomas-tuchel/
+
+**Tuchel needs to 'prove himself' after 'mixed' reaction to England appointment**\
+`England manager Thomas Tuchel has said he needs to “prove himself” after the mixed reaction to his appointment.`\
+https://nytimes.com/athletic/5992081/2024/12/13/thomas-tuchel-england-manager-reaction/
+
 **Gabriel could return for Arsenal's game against Everton - Arteta**\
 `Mikel Arteta has confirmed that Gabriel Magalhaes could return to the Arsenal defence for the visit of Everton.`\
 https://nytimes.com/athletic/5992185/2024/12/13/arsenal-team-news-gabriel-everton/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5992048/2024/12/13/aaron-judge-yankees-world-series
 **The Bounce: Potential new teams for Jimmy Butler. Plus, Which NBA coach should pull a Bill Belichick?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5991896/2024/12/13/jimmy-butler-heat-rockets-pistons-bill-belichick-nba-the-bounce/
-
-**State of offense, fantasy football 2024: Who turned out the lights?**\
-`John Laghezza looks at the state of NFL offense in 2024, the metrics that dipped to decade lows and what it means for fantasy football 2025.`\
-https://nytimes.com/athletic/5989899/2024/12/13/fantasy-football-2024-offense-review/
-
-**The Islanders aren't going away**\
-`If the Islanders are through the worst of their injuries and blown games, they have a legitimate chance at a playoff spot.`\
-https://nytimes.com/athletic/5991278/2024/12/13/new-york-islanders-playoffs-standings-wild-card/
-
-**Tired of Tipping? Holidays May Be the Exception.**\
-`Consumers have said they are confused and frustrated with tipping expectations generally. But, one expert says, “people generally want to feel more generous around the holidays.”`\
-https://nytimes.com/2024/12/13/your-money/tipping-etiquette-holidays.html
-
-**A New Frontier in Paleontology for Profit: Selling Shares in a Stegosaurus**\
-`As academics fear being priced out of the fossil market, a private company announced that it aims to raise $13.75 million by selling shares in a stegosaurus fossil.`\
-https://nytimes.com/2024/12/13/arts/design/stegosaurus-shares-public-offering.html
 
