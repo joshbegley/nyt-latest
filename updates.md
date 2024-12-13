@@ -1,3 +1,7 @@
+**AFC North Whiparound: Can Steelers hold off Ravens for division crown?**\
+`Plus, early reactions to the in-season edition of "Hard Knocks" and Week 15 game predictions. `\
+https://nytimes.com/athletic/5990127/2024/12/13/afc-north-steelers-ravens-bengals-browns/
+
 **Newcastle;s Pope consulting specialist over knee injury**\
 `Nick Pope, the England goalkeeper, is consulting a specialist over a knee injury he suffered in Newcastle United’s 4-2 defeat at Brentford last weekend.`\
 https://nytimes.com/athletic/5991774/2024/12/13/newcastle-pope-injury-team-news/

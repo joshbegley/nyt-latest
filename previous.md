@@ -1,3 +1,7 @@
+**AFC North Whiparound: Can Steelers hold off Ravens for division crown?**\
+`Plus, early reactions to the in-season edition of "Hard Knocks" and Week 15 game predictions. `\
+https://nytimes.com/athletic/5990127/2024/12/13/afc-north-steelers-ravens-bengals-browns/
+
 **Newcastle;s Pope consulting specialist over knee injury**\
 `Nick Pope, the England goalkeeper, is consulting a specialist over a knee injury he suffered in Newcastle United’s 4-2 defeat at Brentford last weekend.`\
 https://nytimes.com/athletic/5991774/2024/12/13/newcastle-pope-injury-team-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/business/media/comcast-warner-bros-discovery-medi
 **Tell Us What Brought You Joy in 2024**\
 `Where did you find comfort, joy, fun or just distraction this year?`\
 https://nytimes.com/2024/12/13/opinion/2024-joy-opinions-callout.html
-
-**I’m on a List of Trump’s Enemies. I Don’t Want a Pardon.**\
-`We should show that we trust the fairness of the justice system.`\
-https://nytimes.com/2024/12/13/opinion/biden-pardon-trump-patel.html
 
