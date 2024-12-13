@@ -1,3 +1,7 @@
+**Hunter, Jeanty headline unusual Heisman class: How this race is different**\
+`This century, 20 quarterbacks have won the Heisman. Here are five reasons why the 2024 race is so odd.`\
+https://nytimes.com/athletic/5993098/2024/12/13/travis-hunter-heisman-trophy-comments-ceremony/
+
 **It’s Going to Be Normal to Have Extreme Beliefs**\
 `What the fascination with a C.E.O.’s killing reveals about this political era.`\
 https://nytimes.com/2024/12/13/opinion/unitedhealthcare-ceo-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993095/2024/12/13/browns-david-njoku-joel-bitonio-
 **Chapel Bill? Cashing In on a Famous New Football Coach.**\
 `With shirts playing off Chapel Hill’s name and cutoff hoodies, a college town immediately embraced the arrival of Bill Belichick in North Carolina.`\
 https://nytimes.com/2024/12/13/style/bill-belichick-north-carolina.html
-
-**This Chef’s Stunning Christmas Spread Is Unexpectedly Effortless**\
-`Anchored by juicy braised duck and finished with an unforgettable family-size crème brûlée, this menu from Clare de Boer will have everyone talking.`\
-https://nytimes.com/2024/12/13/dining/how-to-cook-christmas-dinner.html
 
