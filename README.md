@@ -1,3 +1,7 @@
+**It’s Going to Be Normal to Have Extreme Beliefs**\
+`What the fascination with a C.E.O.’s killing reveals about this political era.`\
+https://nytimes.com/2024/12/13/opinion/unitedhealthcare-ceo-shooting.html
+
 **Syrians Celebrated a New Chapter**\
 `Also, McKinsey will pay $650 million in an opioid settlement. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/12/13/briefing/syria-russia-images-canada-tribes-gas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/style/bill-belichick-north-carolina.html
 **This Chef’s Stunning Christmas Spread Is Unexpectedly Effortless**\
 `Anchored by juicy braised duck and finished with an unforgettable family-size crème brûlée, this menu from Clare de Boer will have everyone talking.`\
 https://nytimes.com/2024/12/13/dining/how-to-cook-christmas-dinner.html
-
-**Jerome Kohn, Keeper of Hannah Arendt’s Flame, Dies at 93**\
-`He devoted his career to guarding the legacy of the philosopher known for her writings on totalitarianism and “the banality of evil.”`\
-https://nytimes.com/2024/12/13/books/jerome-kohn-dead.html
 
