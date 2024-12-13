@@ -1,3 +1,11 @@
+**A Stunning Year in Sports: Caitlin Clark, Shohei Ohtani and Record Viewership**\
+`It was also a year highlighted by the pageantry and competition of the Paris Olympics.`\
+https://nytimes.com/2024/12/13/sports/caitlin-clark-best-year.html
+
+**Avant Gardner, Troubled Brooklyn Venue, Promises Security Changes in Major Renovation**\
+`The planned overhaul comes more than a year after two patrons who left the mega-club were found dead nearby.`\
+https://nytimes.com/2024/12/13/nyregion/brooklyn-avant-gardner-security.html
+
 **Review: Reveling in a Wry Storybook, Full of Characters**\
 `The choreographer Tess Dworman inhabits an assortment of people (and an ottoman) in her dance-theater work “Everything Must Go.”`\
 https://nytimes.com/2024/12/13/arts/dance/review-tess-dworman-chocolate-factory.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/13/world/syria-news/in-idlib-which-has-long-bee
 **Pelosi Hospitalized in Luxembourg After Falling**\
 `A person familiar with the incident said the former House speaker, 84, had tripped going down stairs at a palace. She was taken to a hospital for treatment and evaluation.`\
 https://nytimes.com/2024/12/13/us/politics/nancy-pelosi-hospitalized-luxembourg-falling.html
-
-**Can Berlin Really Afford 3 ‘Magic Flutes’ in a Single Week?**\
-`Each of the city’s opera houses is presenting a different production of the Mozart classic. With arts cuts looming, it looks like a last hurrah.`\
-https://nytimes.com/2024/12/13/arts/music/berlin-opera-arts-cuts.html
-
-**Notre Dame mailbag: Can Notre Dame avoid a sea of Indiana red in its home Playoff game?**\
-`How many Indiana fans will invade South Bend? Which transfers might Notre Dame target in the portal? And more in the Irish mailbag.`\
-https://nytimes.com/athletic/5992414/2024/12/13/notre-dame-college-football-playoff-indiana-mailbag/
 
