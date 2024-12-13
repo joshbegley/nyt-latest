@@ -1,3 +1,7 @@
+**Trump and Rubio Suddenly Have a Chance to Reshape the Middle East**\
+`Because of Syria’s centrality in the Middle East, positive change there could radiate out in all directions.`\
+https://nytimes.com/2024/12/13/opinion/syria-iran-donald-trump.html
+
 **'He means so much to us': Scott Laughton scores all 4 Flyers goals in historic night**\
 `"I've been waiting for my chance in the shootout and I was going to let one fly," Laughton said. The Flyers beat the Red Wings 4-1.`\
 https://nytimes.com/athletic/5991390/2024/12/13/flyers-win-red-wings-scott-laughton-four-goals/
