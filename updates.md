@@ -1,3 +1,11 @@
+**Row Z: Infantino's needless envelope, more unique Man Utd cost-cutting and Gary O'Neil's extreme hydration**\
+`Tim Spiers is here with his look at the sillier side of football this week`\
+https://nytimes.com/athletic/5987285/2024/12/13/row-z-saudi-arabia-2034-manchester-united-sunderland/
+
+**Live Q&A: FPL Gameweek 16 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 16 Q&A between 4-5pm UK time `\
+https://nytimes.com/athletic/5989712/2024/12/13/fantasy-premier-league-advice-gw16-tips/
+
 **Health Protections for Migrant Children in Custody Are Set to Expire**\
 `A 2022 legal settlement established requirements to protect the health of minors detained at segments of the southern border. It ends nine days after Donald Trump takes office.`\
 https://nytimes.com/2024/12/13/health/migrant-children-health-monitor.html
