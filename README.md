@@ -1,3 +1,7 @@
+**The Fall of al-Assad Quickly Infuses Europe’s Debate Over Asylum**\
+`Nearly a million Syrians in Germany alone have made new lives. But after the fall of Bashar al-Assad, some politicians across the continent have suggested that refugees could return home.`\
+https://nytimes.com/2024/12/13/world/europe/syria-assad-europe-germany-refugees.html
+
 **AFC North Whiparound: Can Steelers hold off Ravens for division crown?**\
 `Plus, early reactions to the in-season edition of "Hard Knocks" and Week 15 game predictions. `\
 https://nytimes.com/athletic/5990127/2024/12/13/afc-north-steelers-ravens-bengals-browns/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/13/briefing/syria-luigi-mangione-trump-n
 **Media Moguls Set the Stage for Deal Mania**\
 `Comcast and Warner Bros. Discovery are rearranging their businesses for mergers and acquisitions. Experts say the next year could transform the media industry.`\
 https://nytimes.com/2024/12/13/business/media/comcast-warner-bros-discovery-media-deals.html
-
-**Tell Us What Brought You Joy in 2024**\
-`Where did you find comfort, joy, fun or just distraction this year?`\
-https://nytimes.com/2024/12/13/opinion/2024-joy-opinions-callout.html
 
