@@ -1,3 +1,19 @@
+**Daniel Penny, Newly Acquitted, Will Join Vance and Trump at Army-Navy Game**\
+`Vice President-elect JD Vance said he invited Mr. Penny, a former Marine who had been charged in the death of a man he placed in a chokehold in a New York City subway car.`\
+https://nytimes.com/2024/12/13/us/politics/daniel-penny-vance-trump-army-navy.html
+
+**How to Turn Up the Heat on Your Mulled Cocktails**\
+`A mulled white wine made with coriander, fennel and elderflower liqueur, a punchy nonalcoholic mulled cider, and mulled beer fortified with Cognac will make the season bright.`\
+https://nytimes.com/2024/12/13/dining/drinks/mulled-cocktails.html
+
+**Submit your Red Wings mailbag questions for Max Bultman's mailbag**\
+`Send in your questions, and Max may answer them in an upcoming Red Wings mailbag.`\
+https://nytimes.com/athletic/5992323/2024/12/13/red-wings-mailbag-submissions-max-bultman/
+
+**Critics Complain That Italy’s Government Is Interfering in the Arts**\
+`Italy’s culture ministry dismissed experts preparing an exhibition on Futurism and put in its own appointees, who created a show that seems to glorify the Mussolini years.`\
+https://nytimes.com/2024/12/13/world/europe/futurism-exhibition-rome.html
+
 **Scoop City: Readers opinions on whether to bench Kirk Cousins**\
 `A quick look at reader suggestions on Kirk Cousins/Michael Penix Jr., plus a Week 15 Watch Guide and three stories to read.`\
 https://nytimes.com/athletic/5992306/2024/12/13/week-15-kirk-cousins-bench-michael-penix-scoop-city/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/13/dining/mapo-ragu.html
 **What to Know About ‘The Lord of the Rings: The War of the Rohirrim’**\
 `You don’t have to know an orc from a Mumakil to enjoy the new animated adventure, though it’ll certainly help.`\
 https://nytimes.com/2024/12/13/movies/what-to-know-about-the-lord-of-the-rings-the-war-of-the-rohirrim.html
-
-**This Year, Make Your Own Festivus Pole**\
-`After an appearance on “Seinfeld” in 1997, the pole took on a life of its own as the embodiment of the anti-holiday spirit.`\
-https://nytimes.com/2024/12/13/realestate/anti-holiday-festivus-pole.html
-
-**Blackhawks recall 2022 first-rounder Frank Nazar**\
-`Nazar's call-up has been highly anticipated.`\
-https://nytimes.com/athletic/5992216/2024/12/13/blackhawks-frank-nazar-call-up-ahl/
-
-**Democrats Argue That the 2024 Election Actually Had Its Bright Spots**\
-`Some leaders have begun to put a sunnier spin on the November outcome by pointing to down-ballot victories — a possible sign that Democrats may not tear down their party after all.`\
-https://nytimes.com/2024/12/13/us/politics/democrats-harris-trump-2024-election.html
-
-**10 Great Thrillers Set in Remote Locations**\
-`Ruth Ware, the author of “The Woman in Cabin 10,” recommends locked-room mysteries and psychological horrors by Agatha Christie, Stephen King, Andy Weir and more.`\
-https://nytimes.com/2024/12/13/books/review/ruth-ware-thriller-books.html
 
