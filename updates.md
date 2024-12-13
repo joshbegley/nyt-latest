@@ -1,3 +1,7 @@
+**Brewers might have slight edge in Devin Williams/Nestor Cortes swap with Yankees: Law**\
+`Based on their roles, Nestor Cortes could provide more value than Devin Williams. Both pitchers come with injury concerns, however.`\
+https://nytimes.com/athletic/5992933/2024/12/13/brewers-yankees-trade-nestor-cortes-devin-williams-keith-law/
+
 **Roundtable reaction after Kyle Tucker’s trade from Astros to Cubs**\
 `After pulling off a major acquisition, what's next for the Cubs? How does impact the Astros and their next steps?`\
 https://nytimes.com/athletic/5992938/2024/12/13/kyle-tucker-astros-cubs-trade-analysis/

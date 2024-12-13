@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5992938/2024/12/13/kyle-tucker-astros-cubs-trade-an
 `Representative Jamie Raskin of Maryland, the top Democrat on the Oversight Committee, also asked the Trump transition team to disclose any contacts it has had with private companies vetting personnel.`\
 https://nytimes.com/live/2024/12/13/us/trump-transition-news/a-top-house-democrat-demands-that-trump-picks-undergo-fbi-vetting
 
-**Brewers might have slight edge in pitcher swap with Yankees: Law**\
+**Brewers might have slight edge in Devin Williams/Nestor Cortes swap with Yankees: Law**\
 `Based on their roles, Nestor Cortes could provide more value than Devin Williams. Both pitchers come with injury concerns, however.`\
 https://nytimes.com/athletic/5992933/2024/12/13/brewers-yankees-trade-nestor-cortes-devin-williams-keith-law/
 
