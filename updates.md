@@ -1,3 +1,11 @@
+**Amazon Plans $1 Million Donation to Trump’s Inaugural Fund**\
+`The move follows Meta’s donation of the same amount to the fund earlier this week.`\
+https://nytimes.com/2024/12/12/technology/amazon-trump-inauguration.html
+
+**Match the Taylor Swift Song to the Poem Inspired By Her Music**\
+`Famous poets (tortured or not) have taken inspiration from Swift's music. Can you match the poem to the song?`\
+https://nytimes.com/interactive/2024/12/12/books/taylor-swift-songs-poems-invisible-strings.html
+
 **For Those Granted Clemency by White House, a Moment to Celebrate and Plan**\
 `Among those whose sentences were commuted was Rebecca Parrett, an Arizona woman who now hopes to travel to meet her great-grandchildren for the first time.`\
 https://nytimes.com/2024/12/12/us/biden-commutes-sentences-clemency.html
