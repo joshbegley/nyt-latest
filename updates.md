@@ -1,3 +1,7 @@
+**President Biden commutes sentence of former Miami booster Nevin Shapiro**\
+`Shapiro was one of 1,499 people convicted of non-violent crimes whose sentences were commuted Thursday by Biden.`\
+https://nytimes.com/athletic/5992926/2024/12/13/biden-commutes-sentence-miami-nevin-shapiro/
+
 **Miley Cyrus Gives Showgirl Pathos, and 8 More New Songs**\
 `Hear tracks by Benjamin Booker, Julien Baker and Torres, and more.`\
 https://nytimes.com/2024/12/13/arts/music/playlist-miley-cyrus-snoop-dogg.html

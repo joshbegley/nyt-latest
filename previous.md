@@ -1,3 +1,7 @@
+**President Biden commutes sentence of former Miami booster Nevin Shapiro**\
+`Shapiro was one of 1,499 people convicted of non-violent crimes whose sentences were commuted Thursday by Biden.`\
+https://nytimes.com/athletic/5992926/2024/12/13/biden-commutes-sentence-miami-nevin-shapiro/
+
 **Miley Cyrus Gives Showgirl Pathos, and 8 More New Songs**\
 `Hear tracks by Benjamin Booker, Julien Baker and Torres, and more.`\
 https://nytimes.com/2024/12/13/arts/music/playlist-miley-cyrus-snoop-dogg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/us/politics/kash-patel-benghazi-investigation-doj
 **Phoenix Suns minority owner Justin Ishbia emerges as bidder for Minnesota Twins: Source**\
 `The ownership group that purchased the Suns — before promptly making a splash by acquiring Kevin Durant — is interested in buying the Twins.`\
 https://nytimes.com/athletic/5992891/2024/12/13/billionaire-ishbia-brothers-emerge-as-bidders-for-minnesota-twins-source/
-
-**Skinner feels 'supported' despite Ratcliffe comments on women's team**\
-`Manchester United Women’s manager Marc Skinner said it was “hard” for him to hear the comments made by the club’s co-owner Sir Jim Ratcliffe but insisted they do not align with what he sees from INEOS’ day-to-day activity.`\
-https://nytimes.com/athletic/5992791/2024/12/13/ratcliffe-man-utd-women-skinner/
 
