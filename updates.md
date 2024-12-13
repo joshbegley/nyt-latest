@@ -1,3 +1,23 @@
+**Man City announce club-record revenues of £715million**\
+`Manchester City have announced club-record revenues of £715million in their latest annual accounts, alongside profits of £73.`\
+https://nytimes.com/athletic/5990229/2024/12/13/manchester-city-record-revenues/
+
+**Uber and Lyft Found a Loophole in a Driver Pay Law. Drivers Pushed Back.**\
+`As ride-hailing companies and labor unions each push New York City to amend its rules, drivers hurt by widespread app lockouts are struggling to make ends meet.`\
+https://nytimes.com/2024/12/13/nyregion/uber-lyft-lockouts-wages-nyc.html
+
+**Money in Suitcase**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/12/13/learning/money-in-suitcase.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/13/crosswords/spelling-bee-forum.html
+
+**How Canucks put in a complete performance in J.T. Miller's return: 3 takeaways**\
+`The Canucks have rarely managed the sort of 60-minute effort they put in Thursday against the defending Stanley Cup champion Panthers.`\
+https://nytimes.com/athletic/5991427/2024/12/13/canucks-j-t-miller-return-takeaways/
+
 **Time’s Person of the Year Doesn’t Surprise Late Night Hosts**\
 `“Trump is the first man in history to be Time’s person of the year and McDonald’s employee of the month,” Jimmy Fallon said on Thursday.`\
 https://nytimes.com/2024/12/13/arts/television/late-night-time-magazine-trump.html
