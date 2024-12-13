@@ -1,3 +1,7 @@
+**U.S. Charges Ex-Syrian Prison Official With Torture**\
+`The indictment was the second time in a week that the Justice Department announced that it had charged top Syrian officials with human rights abuses.`\
+https://nytimes.com/2024/12/12/us/politics/torture-charges-syria-prison-official.html
+
 **How the Mets won over Juan Soto and what's next: Takeaways**\
 `New York's pitch to Soto hit the right notes on what agent Scott Boras called the "human moments," caring for family and for their players. `\
 https://nytimes.com/athletic/5990928/2024/12/12/mets-won-juan-soto-whats-next-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/arts/design/sothebys-auction-layoffs-drahi.html
 **Trump backs dockworkers on the East and Gulf coasts in a dispute over automation.**\
 `By Peter Eavis`\
 https://nytimes.com/live/2024/12/12/us/trump-administration-news/trump-backs-dockworkers-on-the-east-and-gulf-coasts-in-a-dispute-over-automation
-
-**‘Carry On’ Review: Travel Nightmares Amplified**\
-`In this tense thriller, Taron Egerton plays a T.S.A. agent who goes up against an implacable terrorist (Jason Bateman). The man has a funny idea of what he wants to bring on a plane.`\
-https://nytimes.com/2024/12/12/movies/carry-on-review.html
 
