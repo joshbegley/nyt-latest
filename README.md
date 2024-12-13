@@ -1,3 +1,15 @@
+**Can Berlin Really Afford 3 ‘Magic Flutes’ in a Single Week?**\
+`Each of the city’s opera houses is presenting a different production of the Mozart classic. With arts cuts looming, it looks like a last hurrah.`\
+https://nytimes.com/2024/12/13/arts/music/berlin-opera-arts-cuts.html
+
+**Notre Dame mailbag: Can Notre Dame avoid a sea of Indiana red in its home Playoff game?**\
+`How many Indiana fans will invade South Bend? Which transfers might Notre Dame target in the portal? And more in the Irish mailbag.`\
+https://nytimes.com/athletic/5992414/2024/12/13/notre-dame-college-football-playoff-indiana-mailbag/
+
+**Bank of America Flagged Suspicious Payments to Epstein Only After He Died**\
+`Senate staff members are urging that Bank of America be investigated for the way it reported payments to Jeffrey Epstein, the disgraced financier.`\
+https://nytimes.com/2024/12/13/business/jeffrey-epstein-bank-of-america.html
+
 **Heat Today: Nikola Jović stacking good days pays off as Heat win streak continues**\
 `Jović had been glued to the bench before Thursday, but he turned in one of his better performances against the Raptors.`\
 https://nytimes.com/athletic/5992153/2024/12/13/nikola-jovic-jimmy-butler-erik-spoelstra-bam-adebayo-nba-heat/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/13/arts/fortnite-ftc-refunds.html
 **Five International Movies to Stream Now**\
 `This month’s picks include an Irish drama about a pirate-queen, a found-footage movie made from lost Palestinian films, a coming-of-age thriller from Mexico and more.`\
 https://nytimes.com/2024/12/13/movies/international-movies-streaming.html
-
-**Blinken Discusses Syria’s Future on Unannounced Visit to Iraq**\
-`Secretary of State Antony J. Blinken said he talked with Iraq’s prime minister about the situation in Syria, including efforts to encourage Syria to transition to an inclusive, non-sectarian government.`\
-https://nytimes.com/video/world/middleeast/100000009876711/blinken-syria-iraq.html
-
-**Harris to Deliver Speech Urging Young People to Stay Civically Engaged**\
-`Vice President Kamala Harris, who has kept a relatively low profile since she lost the election, will speak in Maryland on Tuesday.`\
-https://nytimes.com/2024/12/13/us/politics/harris-speech-young-people.html
-
-**OpenAI’s Sam Altman to Donate $1 Million to Trump’s Inaugural Fund**\
-`Mr. Altman and OpenAI have recently hired key executives who previously worked for the Clinton, Obama and Biden administrations.`\
-https://nytimes.com/2024/12/13/technology/openai-sam-altman-trump-inauguration.html
 
