@@ -1,3 +1,7 @@
+**Emmanuel Macron Appoints Key Ally as France’s New Prime Minister**\
+`François Bayrou, a centrist politician, will now become the fourth prime minister in a year, a record for France.`\
+https://nytimes.com/2024/12/13/world/europe/france-prime-minister-government-macron.html
+
 **The Pulse: We've sent 1,000 of these**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5989991/2024/12/13/rams-49ers-devondre-campbell-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5991046/2024/12/13/packers-seahawks-preview-sunday-
 **How do this year's Heisman finalists project as NFL Draft prospects?**\
 `There are four finalists for this year's Heisman. What could each player offer NFL teams thinking about drafting them?`\
 https://nytimes.com/athletic/5984480/2024/12/13/heisman-finalists-nfl-draft-2025-travis-hunter/
-
-**How Ultraprocessed Foods Took Over America**\
-`The wide-ranging category includes sodas, processed meats, many breakfast cereals, snack foods and frozen meals.`\
-https://nytimes.com/2024/12/13/podcasts/the-daily/how-ultraprocessed-foods-took-over-america.html
 
