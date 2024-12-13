@@ -1,3 +1,11 @@
+**Fantasy Trends and Hidden Gems: Sherwood's back on top; Wright's stuff starting to show**\
+`Mackenzie Blackwood's stock is soaring after getting dealt to the Avs, while Kiefer Sherwood is turning it on in Vancouver.`\
+https://nytimes.com/athletic/5991491/2024/12/13/fantasy-trends-and-hidden-gems-sherwoods-back-on-top-wrights-stuff-starting-to-show/
+
+**Blinken stops in Iraq on a regional tour to promote stability in Syria.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/12/13/world/syria-news/blinken-stops-in-iraq-on-a-regional-tour-to-promote-stability-in-syria
+
 **Ron Holland II shows glimpses of player Pistons 'know he is going to be'**\
 `The 19-year-old rookie finished with a career-high 26 points on 11-of-14 shooting in just 21 minutes of action.`\
 https://nytimes.com/athletic/5991368/2024/12/13/pistons-celtics-ron-holland/
