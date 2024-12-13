@@ -1,4 +1,6 @@
 **South Koreans Protest as President Clings to Power**\
+
+**South Koreans Protest as President Clings to Power**\
 `Text by Chang W. Lee`\
 https://nytimes.com/card/2024/12/13/world/asia/seoul-protests-impeachment
 
