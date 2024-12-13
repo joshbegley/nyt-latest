@@ -1,3 +1,11 @@
+**Row Z: Infantino's needless envelope, more unique Man Utd cost-cutting and Gary O'Neil's extreme hydration**\
+`Tim Spiers is here with his look at the sillier side of football this week`\
+https://nytimes.com/athletic/5987285/2024/12/13/row-z-saudi-arabia-2034-manchester-united-sunderland/
+
+**Live Q&A: FPL Gameweek 16 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 16 Q&A between 4-5pm UK time `\
+https://nytimes.com/athletic/5989712/2024/12/13/fantasy-premier-league-advice-gw16-tips/
+
 **Health Protections for Migrant Children in Custody Are Set to Expire**\
 `A 2022 legal settlement established requirements to protect the health of minors detained at segments of the southern border. It ends nine days after Donald Trump takes office.`\
 https://nytimes.com/2024/12/13/health/migrant-children-health-monitor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5990854/2024/12/13/mls-governors-world-cup-2026-com
 **'A deeper bond': Broncos' close-knit QB room playing key role in Bo Nix's growth**\
 `Nix, Jarrett Stidham, Zach Wilson and their significant others have created a weekly dinner tradition that has given group a unique feel.`\
 https://nytimes.com/athletic/5990452/2024/12/13/broncos-qbs-nix-stidham-wilson/
-
-**Lowetide: Is the Oilers' 2024-25 goaltending crisis over?**\
-`Edmonton's goaltending lagged in October, straightened up in November and is flourishing in December.`\
-https://nytimes.com/athletic/5989574/2024/12/13/oilers-goalie-stuart-skinner-stats-december/
-
-**The Athletic’s Friday football quiz question #34**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/5991744/2024/12/13/the-athletics-friday-football-quiz-question-34/
 
