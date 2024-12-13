@@ -1,3 +1,7 @@
+**49ers' De'Vondre Campbell refuses to play, quits TNF game in third quarter**\
+`Campbell signed with the 49ers in the offseason, after spending the past three seasons with the Green Bay Packers`\
+https://nytimes.com/athletic/5991412/2024/12/13/devondre-campbell-49ers-quits-tnf/
+
 **FPL: Five low-owned options for the end of 2024 and beyond**\
 `Abdul Rehman presents five differentials who could make the difference for your FPL team over the festive period`\
 https://nytimes.com/athletic/5984159/2024/12/13/fantasy-premier-league-differentials-low-owned/
