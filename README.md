@@ -1,3 +1,11 @@
+**Amazon Plans $1 Million Donation to Trump’s Inaugural Fund**\
+`The move follows Meta’s donation of the same amount to the fund earlier this week.`\
+https://nytimes.com/2024/12/12/technology/amazon-trump-inauguration.html
+
+**Match the Taylor Swift Song to the Poem Inspired By Her Music**\
+`Famous poets (tortured or not) have taken inspiration from Swift's music. Can you match the poem to the song?`\
+https://nytimes.com/interactive/2024/12/12/books/taylor-swift-songs-poems-invisible-strings.html
+
 **For Those Granted Clemency by White House, a Moment to Celebrate and Plan**\
 `Among those whose sentences were commuted was Rebecca Parrett, an Arizona woman who now hopes to travel to meet her great-grandchildren for the first time.`\
 https://nytimes.com/2024/12/12/us/biden-commutes-sentences-clemency.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/nyregion/new-jersey-nursing-homes-fraud.html
 **Breaking down Bill Belichick's contract with UNC: Why it is unlike others in college**\
 `Not only is Bill Belichick entering a world he’s never been in in an official capacity, but his contract is unlike most others in the sport.`\
 https://nytimes.com/athletic/5990758/2024/12/12/bill-belichick-contract-buyout/
-
-**Selena Gomez’s Engagement Ring Has People Talking**\
-`A lyrical Easter egg may have predicted her marquise diamond ring, which one jewelry designer calls “the hot stone of the moment.”`\
-https://nytimes.com/2024/12/12/style/selena-gomez-marquise-engagement-ring.html
-
-**Under Trump, Voice of America Journalists Fear Politicization**\
-`Donald J. Trump’s choice of Kari Lake to lead Voice of America goes against recent efforts to shield the federally funded news organization from politicization.`\
-https://nytimes.com/2024/12/12/us/politics/voice-of-america-journalists-trump.html
 
