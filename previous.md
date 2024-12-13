@@ -1,40 +1,40 @@
-**In a Growing Utah City, Residents Are Turning Against Their Mayor**\
-`Residents voted to rein in a mayor who they say has a penchant for secrecy and is overly deferential to developers.`\
-https://nytimes.com/2024/12/13/us/mayor-vineyard-utah.html
+**UnitedHealth Group C.E.O.: The Health Care System Is Flawed. Let’s Fix It.**\
+`No one would design a system like the one we have. And no one did.`\
+https://nytimes.com/2024/12/13/opinion/united-health-care-brian-thompson-luigi-mangione.html
 
-**In Japan, a Fan Is Part of Everyday Life**\
-`Ninety percent of paddle-style fans, called uchiwa, are made in the island city of Marugame.`\
-https://nytimes.com/2024/12/13/fashion/craftsmanship-uchiwa-fans-japan.html
+**Waiting for a Test Result Can Be Brutal. Here’s How to Deal.**\
+`Anxious anticipation is natural, but there are things you can do to ease it.`\
+https://nytimes.com/2024/12/13/well/test-result-anxiety-tips.html
 
-**As East Village’s Little India Fades, One Place Keeps Its Lights On**\
-`Three neighboring South Asian restaurants with string light-filled windows survived for decades. Only one remains as Sixth Street’s “Curry Row” moniker fades.`\
-https://nytimes.com/2024/12/13/nyregion/nyc-little-india-restaurants-close.html
+**The New York Times News Quiz, Dec. 13, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/12/13/briefing/syria-luigi-mangione-trump-news-quiz.html
 
-**What Is Venture Capital Now Anyway?**\
-`The opposing paths taken by two powerful firms — Benchmark and Andreessen Horowitz — embody a profound debate about the future of an industry that funds and fosters American innovation.`\
-https://nytimes.com/2024/12/13/technology/andreessen-horowitz-benchmark-venture-capital.html
+**Media Moguls Set the Stage for Deal Mania**\
+`Comcast and Warner Bros. Discovery are rearranging their businesses for mergers and acquisitions. Experts say the next year could transform the media industry.`\
+https://nytimes.com/2024/12/13/business/media/comcast-warner-bros-discovery-media-deals.html
 
-**Would You Buy a Perfume You Had Never Smelled?**\
-`A half-million people are on the Ffern wait list hoping to do just that.`\
-https://nytimes.com/2024/12/13/style/ffern-perfume.html
+**Tell Us What Brought You Joy in 2024**\
+`Where did you find comfort, joy, fun or just distraction this year?`\
+https://nytimes.com/2024/12/13/opinion/2024-joy-opinions-callout.html
 
-**Looking for Friends? Start With Family.**\
-`How a brother-in-law became my best friend.`\
-https://nytimes.com/2024/12/13/well/family/in-law-best-friend.html
+**I’m on a List of Trump’s Enemies. I Don’t Want a Pardon.**\
+`We should show that we trust the fairness of the justice system.`\
+https://nytimes.com/2024/12/13/opinion/biden-pardon-trump-patel.html
 
-**A Modernist’s Dream on Copenhagen’s Harbor**\
-`A couple hired an architect with experience designing floating homes, after a decade of downsizing on dry land.`\
-https://nytimes.com/2024/12/13/realestate/copenhagen-floating-house.html
+**The Syrian Upheaval Has Iranian Leaders Reeling, Too**\
+`For decades, Iran poured money and military aid into Syria, backing the Assad regime in its ambition to confront Israel. Now many Iranians are openly asking why.`\
+https://nytimes.com/2024/12/13/world/middleeast/iran-syria-assad.html
 
-**We’re Going to Have to Learn to Love Factory Farms**\
-`Every farm, even the scenic ones with red barns and rolling hills, is a kind of environmental crime scene, an echo of whatever wilderness it once replaced.`\
-https://nytimes.com/2024/12/13/opinion/food-agriculture-factory-farms-climate-change.html
+**Timothée Chalamet Sings Live for the Bob Dylan Biopic, ‘A Complete Unknown’**\
+`The actor’s vocals so impressed the film’s director that he used the live recordings, instead of those prerecorded in a studio. Here’s a look at other actors who have hit their own high notes in musical biopics.`\
+https://nytimes.com/2024/12/13/arts/timothee-chalamet-bob-dylan-biopic.html
 
-**Alabama's 2024 season is disappointing, but the culture is just fine**\
-`The overarching theme is that Alabama's players have bought in, both to Kalen DeBoer and to maintaining the program's standard.`\
-https://nytimes.com/athletic/5990837/2024/12/13/alabama-football-2024-season-kalen-deboer/
+**What ‘Wicked’ Has to Say About Our Current Political Moment**\
+`By breaking the story into two movies, the emphasis in “Part One” shifts to a nation’s potential decline into authoritarianism. Sound familiar?`\
+https://nytimes.com/2024/12/13/movies/wicked-movie-politics-election.html
 
-**Fulham's Nelson to miss 10 weeks with hamstring injury**\
-`Fulham winger Reiss Nelson is expected to be out for the next 10 weeks due to a hamstring injury.`\
-https://nytimes.com/athletic/5991757/2024/12/13/fulham-reiss-nelson-injury-hamstring-arsenal/
+**Should You Be Able to Copyright a Vibe?**\
+`One influencer has accused another of copying her aesthetic on social media. Should stealing someone’s vibe be against the law?`\
+https://nytimes.com/2024/12/13/learning/should-you-be-able-to-copyright-a-vibe.html
 
