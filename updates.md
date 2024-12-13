@@ -1,3 +1,7 @@
+**With al-Assad Gone, Syrians Seek Answers in an Underground Jail**\
+`Guided by cellphone flashlights, relatives searched a notorious lockup in Damascus for traces of loved ones who were snatched during the regime of Bashar al-Assad.`\
+https://nytimes.com/2024/12/13/world/middleeast/syria-al-assad-prisons-damascus.html
+
 **Row Z: Infantino's needless envelope, more unique Man Utd cost-cutting and Gary O'Neil's extreme hydration**\
 `Tim Spiers is here with his look at the sillier side of football this week`\
 https://nytimes.com/athletic/5987285/2024/12/13/row-z-saudi-arabia-2034-manchester-united-sunderland/
