@@ -1,3 +1,7 @@
+**Astros trade OF Kyle Tucker to Cubs following crazy 72-hour window**\
+`The Astros will receive a package that includes infielder Isaac Paredes, right-hander Hayden Wesneski and infield prospect Cam Smith`\
+https://nytimes.com/athletic/5992880/2024/12/13/astros-trade-of-kyle-tucker-to-cubs-following-crazy-72-hour-window/
+
 **America’s Health Care System Needs Better Economics, Not Bullets**\
 `If only fixing it were as easy as finding someone to blame.`\
 https://nytimes.com/2024/12/13/opinion/health-care-united-shooting.html
@@ -34,8 +38,4 @@ https://nytimes.com/article/nj-drones-east-coast.html
 **College Football Playoff action report: Bettor places $1.5 million on Texas to win CFP**\
 `The CFP is finally here! Ben Fawkes talked to several oddsmakers about big bets, line movements and liabilities. Read here for the action!`\
 https://nytimes.com/athletic/5990777/2024/12/13/college-football-playoff-betting-texas-liabilities/
-
-**Liverpool staff Christmas party shut down over drug-taking concerns**\
-`Liverpool’s staff Christmas party at the city’s Anglican cathedral had to be shut down early due to fears over drug-taking.`\
-https://nytimes.com/athletic/5992606/2024/12/13/liverpool-christmas-party/
 
