@@ -1,3 +1,7 @@
+**Fantasy football flex fliers: The case for Keon Coleman, Isaiah Davis in Week 15**\
+`Scott Engel advises on who to grab to round out your lineup during the fantasy football playoffs. `\
+https://nytimes.com/athletic/5992122/2024/12/13/fantasy-football-flex-fliers-week-15-coleman-davis/
+
 **Why did Postecoglou call Werner's first-half display 'not acceptable'?**\
 `Ange Postecoglou said Timo Werner's performance in the Europa League draw against Rangers was 'not acceptable'. So what exactly did he mean?`\
 https://nytimes.com/athletic/5992103/2024/12/13/werner-tottenham-rangers-not-acceptable/
