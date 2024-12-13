@@ -1,3 +1,7 @@
+**The Messy Modern Music Business, According to Larry Jackson**\
+`On this week’s episode of Popcast, an interview with a record label veteran who has worked closely with Whitney Houston, Drake, Chief Keef and Lana Del Rey.`\
+https://nytimes.com/2024/12/13/arts/music/larry-jackson-popcast-interview-drake.html
+
 **U.S. Considered Border Buoys Months Before Texas Put Them In**\
 `Border officials explored using floating barriers from Texas to California in 2022. The effort could help pave the way for their deployment under President-elect Donald J. Trump.`\
 https://nytimes.com/2024/12/13/us/us-border-floating-barriers-trump.html
