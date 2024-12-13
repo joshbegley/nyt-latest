@@ -1,3 +1,7 @@
+**FIA approves rule changes to ethics and audit committees**\
+`The FIA confirmed Friday that rule changes to the ethics and audit committees have been approved by the FIA General Assemblies in Kigali, Rwanda ahead of the end-of-year awards ceremony.`\
+https://nytimes.com/athletic/5992224/2024/12/13/f1-fia-rule-changes-ethics-audits/
+
 **Fantasy football flex fliers: The case for Keon Coleman, Isaiah Davis in Week 15**\
 `Scott Engel advises on who to grab to round out your lineup during the fantasy football playoffs. `\
 https://nytimes.com/athletic/5992122/2024/12/13/fantasy-football-flex-fliers-week-15-coleman-davis/

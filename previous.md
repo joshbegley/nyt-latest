@@ -1,3 +1,7 @@
+**FIA approves rule changes to ethics and audit committees**\
+`The FIA confirmed Friday that rule changes to the ethics and audit committees have been approved by the FIA General Assemblies in Kigali, Rwanda ahead of the end-of-year awards ceremony.`\
+https://nytimes.com/athletic/5992224/2024/12/13/f1-fia-rule-changes-ethics-audits/
+
 **Fantasy football flex fliers: The case for Keon Coleman, Isaiah Davis in Week 15**\
 `Scott Engel advises on who to grab to round out your lineup during the fantasy football playoffs. `\
 https://nytimes.com/athletic/5992122/2024/12/13/fantasy-football-flex-fliers-week-15-coleman-davis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/13/world/syria-news/blinken-stops-in-iraq-on-a-
 **Ron Holland II shows glimpses of player Pistons 'know he is going to be'**\
 `The 19-year-old rookie finished with a career-high 26 points on 11-of-14 shooting in just 21 minutes of action.`\
 https://nytimes.com/athletic/5991368/2024/12/13/pistons-celtics-ron-holland/
-
-**Aaron Judge dropped World Series ball sells for $43,510 in MLB auction**\
-`The Judge ball sold for far less than the most expensive World Series error ball of all time`\
-https://nytimes.com/athletic/5992048/2024/12/13/aaron-judge-yankees-world-series-ball-auction/
 
