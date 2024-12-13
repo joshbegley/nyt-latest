@@ -1,3 +1,11 @@
+**Russia Hits Ukraine’s Energy Infrastructure in a Renewed Assault**\
+`Military analysts had speculated that Moscow could escalate such attacks as a show of force after the fall of President Bashar al-Assad of Syria, its ally.`\
+https://nytimes.com/2024/12/13/world/europe/russia-ukraine-attack-energy.html
+
+**Amorim on City's troubles: 'They are in a better place than us ... we have a lot of issues'**\
+`Ruben Amorim says he is focussed on his own side&#8217;s problems and not those of Manchester City as he prepares for his first Manchester derby since taking over at Old Trafford.`\
+https://nytimes.com/athletic/5990513/2024/12/13/ruben-amorim-manchester-derby-guardiola/
+
 **Thompson: Deebo Samuel's drop drove the last nail into a 49ers team in need of a retool**\
 `In a critical moment Thursday night, Deebo Samuel couldn't haul in a critical pass. About an hour later, the 49ers' season was all but over.`\
 https://nytimes.com/athletic/5991804/2024/12/13/deebo-samuel-drop-san-francisco-49ers-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5987285/2024/12/13/row-z-saudi-arabia-2034-manchest
 **Live Q&A: FPL Gameweek 16 advice from Ben Dinnery**\
 `Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 16 Q&A between 4-5pm UK time `\
 https://nytimes.com/athletic/5989712/2024/12/13/fantasy-premier-league-advice-gw16-tips/
-
-**Health Protections for Migrant Children in Custody Are Set to Expire**\
-`A 2022 legal settlement established requirements to protect the health of minors detained at segments of the southern border. It ends nine days after Donald Trump takes office.`\
-https://nytimes.com/2024/12/13/health/migrant-children-health-monitor.html
-
-**England to face Serbia, Albania, Latvia, Andorra in World Cup 2026 qualifying**\
-`England will face Serbia in qualifying for the expanded 48-team World Cup in 2026 in the United States, Canada and Mexico.`\
-https://nytimes.com/athletic/5989883/2024/12/13/world-cup-2026-qualifying-draw-england-opponents/
 
