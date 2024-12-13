@@ -1,3 +1,11 @@
+**The Athletic FC: Ex-City striker to right-wing president? Hojlund bails out Onana**\
+`Today in TAFC: Ex-City striker set to be Georgia president. Plus: Hojlund strikes twice after Onana blunder, Postecoglou takes aim at Werner`\
+https://nytimes.com/athletic/5991778/2024/12/13/hojlund-onana-postecoglou-werner-kavelashvili/
+
+**Prince Andrew’s Links to Chinese Spy Suspect Revealed by U.K. Court**\
+`A London immigration court upheld a ban on a Chinese citizen described as a “close confidant” of the prince’s, on the grounds of national security.`\
+https://nytimes.com/2024/12/13/world/europe/prince-andrew-china-spy-suspect.html
+
 **Twins notes: Searching for righty bats, no lottery luck and ranking the Rule 5 pick**\
 `Will the Twins re-sign Carlos Santana or need a replacement? How much does dropping two picks matter? Where does Eiberson Castellano fit?`\
 https://nytimes.com/athletic/5989236/2024/12/13/twins-free-agent-right-handed-hitters/
