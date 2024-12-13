@@ -22,8 +22,8 @@ https://nytimes.com/2024/12/13/magazine/sex-work-boyfriend-ethics.html
 `Donald J. Trump’s pick to be the next F.B.I. director has both exaggerated his importance in the government’s criminal inquiry into the 2012 attack and misleadingly distorted its conduct and results.`\
 https://nytimes.com/2024/12/13/us/politics/kash-patel-benghazi-investigation-doj.html
 
-**Billionaire Ishbia brothers, owners of Phoenix Suns, emerge as bidders for Minnesota Twins: Source**\
-`DALLAS — The ownership group that purchased the Phoenix Suns — before promptly making a splash by acquiring Kevin Durant — is now interested in buying the Minnesota Twins.`\
+**Billionaire Ishbia brothers, owners of Phoenix Suns, emerge as bidders for Twins: Source**\
+`The ownership group that purchased the Suns — before promptly making a splash by acquiring Kevin Durant — is interested in buying the Twins.`\
 https://nytimes.com/athletic/5992891/2024/12/13/billionaire-ishbia-brothers-emerge-as-bidders-for-minnesota-twins-source/
 
 **Skinner feels 'supported' despite Ratcliffe comments on women's team**\
