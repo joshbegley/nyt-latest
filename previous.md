@@ -1,3 +1,7 @@
+**South Koreans Protest as President Clings to Power**\
+`Text by Chang W. Lee`\
+https://nytimes.com/card/2024/12/13/world/asia/seoul-protests-impeachment
+
 **Jaylen Brown points the way as unselfish Celtics topple Pistons**\
 `Boston handed out 34 assists on 46 made baskets, a team-first mentality that Detroit's coach likes to see and praised the Celtics for.`\
 https://nytimes.com/athletic/5991592/2024/12/13/jaylen-brown-celtics-unselfish-play/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/learning/word-of-the-day-efficient.html
 **Russo: Wild must make sure 2011 doesn't repeat itself after ugly loss and another injury**\
 `The fact top-pair defenseman Jake Middleton suffered what could be a serious injury to his right hand Thursday night is extremely worrisome.`\
 https://nytimes.com/athletic/5991458/2024/12/13/wild-lose-oilers-jake-middleton-injury/
-
-**Manchester United are still making mistakes - but they are learning**\
-`Ruben Amorim's team remains a work in progress but there were encouraging signs in the win over Viktoria Plzen`\
-https://nytimes.com/athletic/5879354/2024/12/13/manchester-united-viktoria-plzen-analysis/
 

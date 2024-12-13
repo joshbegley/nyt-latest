@@ -1,3 +1,7 @@
+**South Koreans Protest as President Clings to Power**\
+`Text by Chang W. Lee`\
+https://nytimes.com/card/2024/12/13/world/asia/seoul-protests-impeachment
+
 **Jaylen Brown points the way as unselfish Celtics topple Pistons**\
 `Boston handed out 34 assists on 46 made baskets, a team-first mentality that Detroit's coach likes to see and praised the Celtics for.`\
 https://nytimes.com/athletic/5991592/2024/12/13/jaylen-brown-celtics-unselfish-play/
