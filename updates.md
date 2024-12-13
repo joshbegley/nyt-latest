@@ -1,3 +1,11 @@
+**State of offense, fantasy football 2024: Who turned out the lights?**\
+`John Laghezza looks at the state of NFL offense in 2024, the metrics that dipped to decade lows and what it means for fantasy football 2025.`\
+https://nytimes.com/athletic/5989899/2024/12/13/fantasy-football-2024-offense-review/
+
+**The Islanders aren't going away**\
+`If the Islanders are through the worst of their injuries and blown games, they have a legitimate chance at a playoff spot.`\
+https://nytimes.com/athletic/5991278/2024/12/13/new-york-islanders-playoffs-standings-wild-card/
+
 **A New Frontier in Paleontology for Profit: Selling Shares in a Stegosaurus**\
 `As academics fear being priced out of the fossil market, a private company announced that it aims to raise $13.75 million by selling shares in a stegosaurus fossil.`\
 https://nytimes.com/2024/12/13/arts/design/stegosaurus-shares-public-offering.html
