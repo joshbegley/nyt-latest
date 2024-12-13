@@ -1,3 +1,19 @@
+**How Ultraprocessed Foods Took Over America**\
+`The wide-ranging category includes sodas, processed meats, many breakfast cereals, snack foods and frozen meals.`\
+https://nytimes.com/2024/12/13/podcasts/the-daily/how-ultraprocessed-foods-took-over-america.html
+
+**The Connections Companion No. 552**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 14, 2024.`\
+https://nytimes.com/2024/12/13/crosswords/connections-companion-552.html
+
+**Wordle Review No. 1,274**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 14, 2024.`\
+https://nytimes.com/2024/12/13/crosswords/wordle-review-1274.html
+
+**Wawrinka, Tomljanovic headline Australian Open wildcards**\
+`The 2014 men's champion tops the wildcard billing in Melbourne.`\
+https://nytimes.com/athletic/5991793/2024/12/13/australian-open-wildcards-wawrinka-tomljanovic-joint-tu/
+
 **'He's a rock of this foundation': Jordan Mailata using his voice and his guitar to lead Eagles**\
 `Jordan Mailata has stepped into a leadership role as the Eagles' resident music man.`\
 https://nytimes.com/athletic/5986770/2024/12/13/jordan-mailata-eagles-singer-guitar/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5984796/2024/12/13/detroit-lions-jack-campbell-sam-
 **Buffalo and Detroit, forever connected, can finally dream of a Rust Belt Super Bowl**\
 `Maybe this is the year for one of them.`\
 https://nytimes.com/athletic/5990283/2024/12/13/buffalo-detroit-bills-lions-super-bowl/
-
-**What Bryce Young has improved to look more like the QB the Panthers expected**\
-`The second-year quarterback has shown a big improvement handling pressure in the pocket since retaining the starting job.`\
-https://nytimes.com/athletic/5987372/2024/12/13/bryce-young-panthers-film-breakdown/
-
-**Bucks, Hawks, Thunder or Rockets? Predicting 2024 NBA Cup semifinals and final winners**\
-`Will it be the Bucks, Thunder, Hawks or Rockets? Check out how we see it unfolding. `\
-https://nytimes.com/athletic/5988906/2024/12/13/nba-cups-2024-bucks-hawks-thunder-rockets/
-
-**Here are the latest developments.**\
-`By Aaron Boxerman and Safak Timur`\
-https://nytimes.com/live/2024/12/13/world/syria-news/here-are-the-latest-developments
-
-**Live Updates: Syrians Gather for 1st Friday Prayers Since al-Assad’s Fall**\
-`The mood in Damascus appeared largely celebratory, reflecting the relief among many Syrians at the fall of the Assad dynasty after a half-century of rule.`\
-https://nytimes.com/live/2024/12/13/world/syria-news
 
