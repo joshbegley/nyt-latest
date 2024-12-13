@@ -1,3 +1,7 @@
+**Jake Middleton's injury only the start of Wild's worst game of season: 3 takeaways vs. Oilers**\
+`Middleton looked to injure his right hand on the first shift of Thursday's 7-1 loss to the Oilers.`\
+https://nytimes.com/athletic/5991087/2024/12/12/wild-oilers-jake-middleton-injury/
+
 **Maple Leafs report cards: Toronto plays loose but hangs on for win**\
 `Max Pacioretty had two goals and an assist in Toronto's 3-2 win over Anaheim.`\
 https://nytimes.com/athletic/5991297/2024/12/12/maple-leafs-ducks-grades-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/12/crosswords/daily-puzzle-2024-12-13.html
 **Mount Vernon Police’s Strip Searches Were Unconstitutional, U.S. Says**\
 `A report by federal prosecutors found that a Westchester County police department violated the Fourth Amendment “on an enormous scale.”`\
 https://nytimes.com/2024/12/12/nyregion/mount-vernon-police-strip-searches.html
-
-**Corrections: Dec. 13, 2024**\
-`Corrections that appeared in print on Friday, Dec. 13, 2024.`\
-https://nytimes.com/2024/12/12/pageoneplus/corrections-dec-13-2024.html
 

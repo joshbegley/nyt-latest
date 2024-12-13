@@ -1,3 +1,7 @@
+**Jake Middleton's injury only the start of Wild's worst game of season: 3 takeaways vs. Oilers**\
+`Middleton looked to injure his right hand on the first shift of Thursday's 7-1 loss to the Oilers.`\
+https://nytimes.com/athletic/5991087/2024/12/12/wild-oilers-jake-middleton-injury/
+
 **Notre Dame's Hannah Hidalgo has UConn's number (again)**\
 `Hidalgo tied a milestone shared by Sabrina Ionescu as the Irish took down UConn in South Bend.`\
 https://nytimes.com/athletic/5991267/2024/12/12/notre-dame-hannah-hidalgo-uconn-victory/
