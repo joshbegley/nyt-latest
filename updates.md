@@ -1,3 +1,7 @@
+**Supreme Court to Hear Challenge to California Tailpipe Emissions Limits**\
+`The justices agreed to decide whether industry groups have suffered the sort of injury that gave them standing to sue over an unusual waiver.`\
+https://nytimes.com/2024/12/13/us/politics/supreme-court-california-tailpipe-emissions.html
+
 **Charles Handy Dies at 92; Philosopher Envisioned Today’s Corporate World**\
 `Joining a pantheon of management thinkers, he embraced a humanistic path for business and foresaw outsourcing, remote work and a gig economy.`\
 https://nytimes.com/2024/12/13/business/charles-handy-dead.html
