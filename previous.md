@@ -1,3 +1,11 @@
+**Why the Rangers opted not to go to the waiver wire with K'Andre Miller out**\
+`The Rangers could have added a defensive stopgap in Travis Dermott off the wire on Friday but instead chose to go with internal options.`\
+https://nytimes.com/athletic/5992820/2024/12/13/rangers-kandre-miller-connor-mackey/
+
+**A Murder in Midtown Sent the Police Scrambling. Reporters Weren’t Far Behind.**\
+`A reporter’s ability to develop sources is important amid events like the shooting death of Brian Thompson and the search for his killer.`\
+https://nytimes.com/2024/12/13/pageoneplus/shooting-death-police-sources.html
+
 **Astros trade OF Kyle Tucker to Cubs following crazy 72-hour window**\
 `The Astros will receive a package that includes infielder Isaac Paredes, right-hander Hayden Wesneski and infield prospect Cam Smith`\
 https://nytimes.com/athletic/5992880/2024/12/13/astros-trade-of-kyle-tucker-to-cubs-following-crazy-72-hour-window/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5992782/2024/12/13/maple-leafs-anthony-stolarz-stat
 **49ers plan to part ways with De'Vondre Campbell day after he refused to play**\
 `The veteran linebacker told the team he didn't want to play and left the field in the third quarter of Thursday night's loss to the Rams.`\
 https://nytimes.com/athletic/5992356/2024/12/13/devondre-campbell-49ers-release/
-
-**Hochul Launches Investigation Into Drone Sightings in New York**\
-`The governor made the announcement on Friday as sightings spread across New York and New Jersey. State and federal authorities said the flying objects posed no threat to the public.`\
-https://nytimes.com/article/nj-drones-east-coast.html
-
-**College Football Playoff action report: Bettor places $1.5 million on Texas to win CFP**\
-`The CFP is finally here! Ben Fawkes talked to several oddsmakers about big bets, line movements and liabilities. Read here for the action!`\
-https://nytimes.com/athletic/5990777/2024/12/13/college-football-playoff-betting-texas-liabilities/
 

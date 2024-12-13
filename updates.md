@@ -1,3 +1,11 @@
+**Why the Rangers opted not to go to the waiver wire with K'Andre Miller out**\
+`The Rangers could have added a defensive stopgap in Travis Dermott off the wire on Friday but instead chose to go with internal options.`\
+https://nytimes.com/athletic/5992820/2024/12/13/rangers-kandre-miller-connor-mackey/
+
+**A Murder in Midtown Sent the Police Scrambling. Reporters Weren’t Far Behind.**\
+`A reporter’s ability to develop sources is important amid events like the shooting death of Brian Thompson and the search for his killer.`\
+https://nytimes.com/2024/12/13/pageoneplus/shooting-death-police-sources.html
+
 **Astros trade OF Kyle Tucker to Cubs following crazy 72-hour window**\
 `The Astros will receive a package that includes infielder Isaac Paredes, right-hander Hayden Wesneski and infield prospect Cam Smith`\
 https://nytimes.com/athletic/5992880/2024/12/13/astros-trade-of-kyle-tucker-to-cubs-following-crazy-72-hour-window/
