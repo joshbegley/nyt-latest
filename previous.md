@@ -1,3 +1,15 @@
+**Lattimore's Commanders debut to come Sunday against Saints**\
+`Washington acquired the four-time Pro Bowl defensive back from New Orleans on Nov. 5. `\
+https://nytimes.com/athletic/5992607/2024/12/13/marshon-lattimore-commanders-debut-saints/
+
+**Wild claim Travis Dermott off waivers after placing Jake Middleton on LTIR**\
+`Dermott has no points and is minus-3 in 10 games this season. Middleton broke a finger blocking a shot Thursday, according to sources.`\
+https://nytimes.com/athletic/5992773/2024/12/13/wild-travis-dermott-jake-middleton-ltir/
+
+**10 Songs That Explain My Year**\
+`A musical memoir of our critic’s 2024, with tracks from MJ Lenderman, Cass Elliot and Women.`\
+https://nytimes.com/2024/12/13/arts/music/amplifier-newsletter-defining-songs.html
+
 **The Messy Modern Music Business, According to Larry Jackson**\
 `On this week’s episode of Popcast, an interview with a record label veteran who has worked closely with Whitney Houston, Drake, Chief Keef and Lana Del Rey.`\
 https://nytimes.com/2024/12/13/arts/music/larry-jackson-popcast-interview-drake.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/13/us/politics/departing-senators-farewell-address.h
 **Golf’s Highs and Lows in 2024**\
 `There were a lot of exciting tournaments, but LIV still looms over the sport.`\
 https://nytimes.com/2024/12/13/sports/golf/pga-lpga-liv-2024.html
-
-**Police Theorize C.E.O. Gunman Dumped Getaway Bike and It Was Swiped**\
-`Investigators are tracing the movements of the man they say fatally shot Brian Thompson, the chief executive of UnitedHealthcare.`\
-https://nytimes.com/2024/12/13/nyregion/uhc-shooting-gunman-getaway-bike.html
-
-**Martial Solal, French Jazz Piano Virtuoso, Is Dead at 97**\
-`Mr. Solal, who also wrote music for films and symphony orchestras, was revered in Europe and hailed in the United States on his rare visits there.`\
-https://nytimes.com/2024/12/13/arts/music/martial-solal-dead.html
-
-**From Snoop Dogg to Gold Medals, the Year in Horse Sport**\
-`2024 was the year a star rapper fell in love with horses, a U.S. team won at the Paralympics and the sport reckoned with its demons over animal abuse.`\
-https://nytimes.com/2024/12/13/sports/equestrian-sport-horse-year.html
 

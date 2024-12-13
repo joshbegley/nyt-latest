@@ -1,3 +1,15 @@
+**Lattimore's Commanders debut to come Sunday against Saints**\
+`Washington acquired the four-time Pro Bowl defensive back from New Orleans on Nov. 5. `\
+https://nytimes.com/athletic/5992607/2024/12/13/marshon-lattimore-commanders-debut-saints/
+
+**Wild claim Travis Dermott off waivers after placing Jake Middleton on LTIR**\
+`Dermott has no points and is minus-3 in 10 games this season. Middleton broke a finger blocking a shot Thursday, according to sources.`\
+https://nytimes.com/athletic/5992773/2024/12/13/wild-travis-dermott-jake-middleton-ltir/
+
+**10 Songs That Explain My Year**\
+`A musical memoir of our critic’s 2024, with tracks from MJ Lenderman, Cass Elliot and Women.`\
+https://nytimes.com/2024/12/13/arts/music/amplifier-newsletter-defining-songs.html
+
 **The Messy Modern Music Business, According to Larry Jackson**\
 `On this week’s episode of Popcast, an interview with a record label veteran who has worked closely with Whitney Houston, Drake, Chief Keef and Lana Del Rey.`\
 https://nytimes.com/2024/12/13/arts/music/larry-jackson-popcast-interview-drake.html
