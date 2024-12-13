@@ -1,3 +1,15 @@
+**Is Jet Greaves laying claim to the Blue Jackets' goaltending job?**\
+`After Thursday's performance in a 2-1 loss to the Capitals, Greaves has "earned the right" to be in Columbus, according to his coach. `\
+https://nytimes.com/athletic/5991313/2024/12/13/blue-jackets-jet-greaves-goalie/
+
+**Dating on the Front Line: Ukrainian Women Travel to Keep Love Alive**\
+`Many women are making dangerous trips to places where loved ones are fighting Russian forces. “We try to imagine that for these two days, there is no war,” one said.`\
+https://nytimes.com/2024/12/13/world/europe/ukraine-war-dating.html
+
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/12/13/briefing/syria-israel-trump.html
+
 **Please Let Me Love My Wife**\
 `Her pronouns changed. Our bond didn’t.`\
 https://nytimes.com/2024/12/13/style/modern-love-please-let-me-love-my-wife.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/13/style/boondocks-holiday-tv-special-charlie-brown.
 **Rams top 49ers in 12-6 touchdown-free snoozer as offenses falter: Takeaways**\
 `Los Angeles held the 49ers to just 191 yards of offense as each side was slowed by the heavy rain in the first half.`\
 https://nytimes.com/athletic/5991286/2024/12/12/rams-49ers-tnf-score-result-takeaways/
-
-**Quote of the Day: Lean Supplies Trouble Lovers of Stout**\
-`Quotation of the Day for Friday, December 13, 2024`\
-https://nytimes.com/2024/12/12/pageoneplus/quote-of-the-day-lean-supplies-trouble-lovers-of-stout.html
-
-**Connor Bedard, Tyler Bertuzzi are bright spots, but Blackhawks revert to old ways vs. Isles**\
-`The Blackhawks showed plenty of fight but fell 5-4 to the Islanders. `\
-https://nytimes.com/athletic/5991361/2024/12/12/blackhawks-connor-bedard-tyler-bertuzzi/
-
-**Jake Middleton's injury only the start of Wild's worst game of season: 3 takeaways vs. Oilers**\
-`Middleton looked to injure his right hand on the first shift of Thursday's 7-1 loss to the Oilers.`\
-https://nytimes.com/athletic/5991087/2024/12/12/wild-oilers-jake-middleton-injury/
 
