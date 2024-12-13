@@ -1,4 +1,4 @@
-**Jake Middleton's injury only the start of Wild's worst game of the season: 3 takeaways vs. Oilers**\
+**Jake Middleton's injury only the start of Wild's worst game of season: 3 takeaways vs. Oilers**\
 `Middleton looked to injure his right hand on the first shift of Thursday's 7-1 loss to the Oilers.`\
 https://nytimes.com/athletic/5991087/2024/12/12/wild-oilers-jake-middleton-injury/
 
