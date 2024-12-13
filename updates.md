@@ -1,3 +1,7 @@
+**Aaron Judge dropped World Series ball sells for $43,510 in MLB auction**\
+`The Judge ball sold for far less than the most expensive World Series error ball of all time`\
+https://nytimes.com/athletic/5992048/2024/12/13/aaron-judge-yankees-world-series-ball-auction/
+
 **The Bounce: Potential new teams for Jimmy Butler. Plus, Which NBA coach should pull a Bill Belichick?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5991896/2024/12/13/jimmy-butler-heat-rockets-pistons-bill-belichick-nba-the-bounce/
