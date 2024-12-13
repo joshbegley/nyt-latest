@@ -1,3 +1,7 @@
+**For Those Granted Clemency by White House, a Moment to Celebrate and Plan**\
+`Among those whose sentences were commuted was Rebecca Parrett, an Arizona woman who now hopes to travel to meet her great-grandchildren for the first time.`\
+https://nytimes.com/2024/12/12/us/biden-commutes-sentences-clemency.html
+
 **Why Wray’s Resignation May Signal a Shift in F.B.I. Tradition**\
 `Mr. Wray’s voluntary departure could usher in a new era at the nation’s premier law enforcement agency, one in which the job of director changes with the administration.`\
 https://nytimes.com/2024/12/12/us/politics/christopher-wray-fbi.html
