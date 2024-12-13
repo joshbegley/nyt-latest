@@ -1,3 +1,11 @@
+**Charles Handy Dies at 92; Philosopher Envisioned Today’s Corporate World**\
+`Joining a pantheon of management thinkers, he embraced a humanistic path for business and foresaw outsourcing, remote work and a gig economy.`\
+https://nytimes.com/2024/12/13/business/charles-handy-dead.html
+
+**Saints name Jake Haener starting QB for Week 15 against Commanders**\
+`Haener replaced the injured Derek Carr in Week 14 and has appeared in limited action across seven games this season.`\
+https://nytimes.com/athletic/5992978/2024/12/13/saints-jake-haener-starting-commanders/
+
 **Judge Says Former ByteDance Executive Lied in Suit Against Company**\
 `A judge said this week that a former executive at ByteDance seemed to have fabricated evidence and submitted false statements in a high-profile 2023 lawsuit against the company.`\
 https://nytimes.com/2024/12/13/business/bytedance-executive-lawsuit-tiktok.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/13/books/review/book-critics-podcast.html
 **Roundtable reaction after Kyle Tucker’s trade from Astros to Cubs**\
 `After pulling off a major acquisition, what's next for the Cubs? How does impact the Astros and their next steps?`\
 https://nytimes.com/athletic/5992938/2024/12/13/kyle-tucker-astros-cubs-trade-analysis/
-
-**A top House Democrat demands that Trump picks undergo F.B.I. vetting.**\
-`Representative Jamie Raskin of Maryland, the top Democrat on the Oversight Committee, also asked the Trump transition team to disclose any contacts it has had with private companies vetting personnel.`\
-https://nytimes.com/live/2024/12/13/us/trump-transition-news/a-top-house-democrat-demands-that-trump-picks-undergo-fbi-vetting
-
-**Brewers might have slight edge in Devin Williams/Nestor Cortes swap with Yankees: Law**\
-`Based on their roles, Nestor Cortes could provide more value than Devin Williams. Both pitchers come with injury concerns, however.`\
-https://nytimes.com/athletic/5992933/2024/12/13/brewers-yankees-trade-nestor-cortes-devin-williams-keith-law/
 
