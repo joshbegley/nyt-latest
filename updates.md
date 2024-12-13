@@ -1,3 +1,15 @@
+**Who are the best quarterbacks in the transfer portal? Ranking the top 30**\
+`Six of the 12 teams in the College Football Playoff are quarterbacked by transfers.`\
+https://nytimes.com/athletic/5964434/2024/12/13/college-football-transfer-portal-quarterback-rankings/
+
+**The Cult of Claude**\
+`A.I. insiders are falling for Claude, a chatbot from Anthropic. Is it a passing fad, or a preview of artificial relationships to come?`\
+https://nytimes.com/2024/12/13/technology/claude-ai-anthropic.html
+
+**The Red Cross calls for preservation of evidence on thousands of detained and disappeared Syrians.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/12/13/world/syria-news/the-red-cross-calls-for-preservation-of-evidence-on-thousands-of-detained-and-disappeared-syrians
+
 **FIA approves rule changes to ethics and audit committees**\
 `The FIA confirmed Friday that rule changes to the ethics and audit committees have been approved by the FIA General Assemblies in Kigali, Rwanda ahead of the end-of-year awards ceremony.`\
 https://nytimes.com/athletic/5992224/2024/12/13/f1-fia-rule-changes-ethics-audits/
