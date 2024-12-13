@@ -1,3 +1,19 @@
+**Joy Buoys Syria’s First Friday Prayers Since Assad Ouster, but Hardships Loom**\
+`In an impoverished, war-ravaged country, the first prayers after the fall of a brutal regime drew jubilant crowds, even in areas seen as regime strongholds.`\
+https://nytimes.com/2024/12/13/world/middleeast/syria-prayers-joy.html
+
+**Trump Ordered to Sit for Deposition in ABC News Defamation Suit**\
+`The deposition, if it is held as scheduled next week, will take place even as the president-elect is in the throes of defending cabinet nominees and putting together his administration.`\
+https://nytimes.com/2024/12/13/us/politics/trump-deposition-abc-stephanopoulos.html
+
+**Rodney Jenkins, Star of the Show-Jumping Circuit, Dies at 80**\
+`He had a feel for how horses behaved and thought, and he won more than 70 Grand Prix events before retiring to train racehorses.`\
+https://nytimes.com/2024/12/13/sports/rodney-jenkins-dead.html
+
+**Texas Sues New York Doctor for Mailing Abortion Pills**\
+`The lawsuit, filed on Thursday, appeared to be among the first attempts to stop doctors from mailing the medication to states that ban abortions.`\
+https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
+
 **Michigan TE Colston Loveland, top-20 prospect, declares for 2025 NFL Draft**\
 `Loveland, a surefire top-20 talent, is the third Michigan junior to declare for the draft. `\
 https://nytimes.com/athletic/5993158/2024/12/13/michigan-tight-end-colston-loveland-2025-nfl-draft/
