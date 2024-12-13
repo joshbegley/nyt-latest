@@ -1,3 +1,7 @@
+**Maple Leafs call goalie Anthony Stolarz day to day, recall Dennis Hildeby**\
+`Stolarz did not practice Friday after exiting Thursday's game against the Ducks with the lower-body injury.`\
+https://nytimes.com/athletic/5992782/2024/12/13/maple-leafs-anthony-stolarz-status-goalie/
+
 **49ers plan to part ways with De'Vondre Campbell day after he refused to play**\
 `The veteran linebacker told the team he didn't want to play and left the field in the third quarter of Thursday night's loss to the Rams.`\
 https://nytimes.com/athletic/5992356/2024/12/13/devondre-campbell-49ers-release/
