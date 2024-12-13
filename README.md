@@ -1,3 +1,7 @@
+**The Messy Modern Music Business, According to Larry Jackson**\
+`On this week’s episode of Popcast, an interview with a record label veteran who has worked closely with Whitney Houston, Drake, Chief Keef and Lana Del Rey.`\
+https://nytimes.com/2024/12/13/arts/music/larry-jackson-popcast-interview-drake.html
+
 **U.S. Considered Border Buoys Months Before Texas Put Them In**\
 `Border officials explored using floating barriers from Texas to California in 2022. The effort could help pave the way for their deployment under President-elect Donald J. Trump.`\
 https://nytimes.com/2024/12/13/us/us-border-floating-barriers-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/arts/music/martial-solal-dead.html
 **From Snoop Dogg to Gold Medals, the Year in Horse Sport**\
 `2024 was the year a star rapper fell in love with horses, a U.S. team won at the Paralympics and the sport reckoned with its demons over animal abuse.`\
 https://nytimes.com/2024/12/13/sports/equestrian-sport-horse-year.html
-
-**In 2024, Tennis Was Busy With Action On and Off the Court**\
-`There were striking matches, coaching changes, and Novak Djokovic finally won his Olympic gold.`\
-https://nytimes.com/2024/12/13/sports/tennis/nadal-retirement-players-coaches.html
 
