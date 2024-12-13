@@ -1,3 +1,7 @@
+**Maresca, recruitment, behind-the-scenes changes: How Chelsea became title contenders**\
+`Chelsea have become surprise contenders for the Premier League title this season — this is how it has happened`\
+https://nytimes.com/athletic/5989017/2024/12/13/chelsea-premier-league-title-contenders-analysis/
+
 **Futsal has never flourished in England - but could that be changing?**\
 `Football's 'little brother' has little history in England but there are now renewed efforts to breathe life into the sport`\
 https://nytimes.com/athletic/5925213/2024/12/13/futsal-england-history/
