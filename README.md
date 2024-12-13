@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5991453/2024/12/13/bronny-james-g-league-road-debut
 https://nytimes.com/2024/12/13/opinion/syria-iran-donald-trump.html
 
 **'He means so much to us': Scott Laughton scores all 4 Flyers goals in historic night**\
-`"I've been waiting for my chance in the shootout and I was going to let one fly," Laughton said. The Flyers beat the Red Wings 4-1.`\
+`"After the third one, looking down at the bench and seeing all the guys, it's special," Laughton said. The Flyers beat the Red Wings 4-1.`\
 https://nytimes.com/athletic/5991390/2024/12/13/flyers-win-red-wings-scott-laughton-four-goals/
 
 **49ers' De'Vondre Campbell refuses to play, quits TNF game in third quarter**\
