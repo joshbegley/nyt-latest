@@ -1,5 +1,13 @@
+**The Texas Millennial Trying to Rebrand the Democrats**\
+`“We can’t bring a policy book to a gunfight,” said Representative Greg Casar of Texas, the incoming chair of the Congressional Progressive Caucus.`\
+https://nytimes.com/2024/12/13/us/politics/democrats-texas-greg-casar.html
+
+**Garrett Crochet relieved after trade, excited to pitch in Boston**\
+`After pitching 146 dominant innings in 2024, the lefty starter has his sights set on a higher workload for the Red Sox next season.`\
+https://nytimes.com/athletic/5993188/2024/12/13/red-sox-garrett-crochet-trade-reaction/
+
 **OpenAI Fires Back at Elon Musk’s Lawsuit**\
-`The artificial intelligence start-up argues that Mr. Musk is trying to hamstring its business as he builds a rival company`\
+`The artificial intelligence start-up argues that Mr. Musk is trying to hamstring its business as he builds a rival company.`\
 https://nytimes.com/2024/12/13/technology/openai-elon-musk-lawsuit.html
 
 **Cubs finally take big swing with great deal for Kyle Tucker: Law**\
@@ -8,7 +16,7 @@ https://nytimes.com/athletic/5993187/2024/12/13/cubs-astros-kyle-tucker-trade-an
 
 **Joy Buoys Syria’s First Friday Prayers Since Assad Ouster, but Hardships Loom**\
 `In an impoverished, war-ravaged country, the first prayers after the fall of a brutal regime drew jubilant crowds, even in areas seen as regime strongholds.`\
-https://nytimes.com/2024/12/13/world/middleeast/syria-prayers-joy.html
+https://nytimes.com/2024/12/13/world/middleeast/syria-friday-prayers-assad.html
 
 **Trump Ordered to Sit for Deposition in ABC News Defamation Suit**\
 `The deposition, if it is held as scheduled next week, will take place even as the president-elect is in the throes of defending cabinet nominees and putting together his administration.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/13/us/politics/tell-us-whats-your-favorite-movie-abo
 **Read the lawsuit**\
 `The Texas attorney general opened a new front in the contentious battle over access to abortion by suing a New York doctor for sending abortion pills into Texas. It appeared to be among the first attempts to stop the mailing of such medication into states that ban abortion.`\
 https://nytimes.com/interactive/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
-
-**Padres’ Yu Darvish on Roki Sasaki: ‘It’s a good thing if he were to come to San Diego’**\
-`Darvish spoke publicly for the first time since his fellow countryman Sasaki was posted, allowing him to sign with any MLB club.`\
-https://nytimes.com/athletic/5992996/2024/12/13/roki-sasaki-yu-darvish-padres/
-
-**Connor Bedard back in the groove, back on the highlight reel for Blackhawks**\
-`Bedard's spectacular toe-drag goal on Thursday against the Islanders seemed to flagrantly defy the laws of physics.`\
-https://nytimes.com/athletic/5993135/2024/12/13/connor-bedard-blackhawks-goal/
 

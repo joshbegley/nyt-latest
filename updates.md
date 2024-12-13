@@ -1,3 +1,19 @@
+**The Texas Millennial Trying to Rebrand the Democrats**\
+`“We can’t bring a policy book to a gunfight,” said Representative Greg Casar of Texas, the incoming chair of the Congressional Progressive Caucus.`\
+https://nytimes.com/2024/12/13/us/politics/democrats-texas-greg-casar.html
+
+**Garrett Crochet relieved after trade, excited to pitch in Boston**\
+`After pitching 146 dominant innings in 2024, the lefty starter has his sights set on a higher workload for the Red Sox next season.`\
+https://nytimes.com/athletic/5993188/2024/12/13/red-sox-garrett-crochet-trade-reaction/
+
+**OpenAI Fires Back at Elon Musk’s Lawsuit**\
+`The artificial intelligence start-up argues that Mr. Musk is trying to hamstring its business as he builds a rival company.`\
+https://nytimes.com/2024/12/13/technology/openai-elon-musk-lawsuit.html
+
+**Joy Buoys Syria’s First Friday Prayers Since Assad Ouster, but Hardships Loom**\
+`In an impoverished, war-ravaged country, the first prayers after the fall of a brutal regime drew jubilant crowds, even in areas seen as regime strongholds.`\
+https://nytimes.com/2024/12/13/world/middleeast/syria-friday-prayers-assad.html
+
 **OpenAI Fires Back at Elon Musk’s Lawsuit**\
 `The artificial intelligence start-up argues that Mr. Musk is trying to hamstring its business as he builds a rival company`\
 https://nytimes.com/2024/12/13/technology/openai-elon-musk-lawsuit.html
