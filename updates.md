@@ -1,3 +1,7 @@
+**Liverpool staff Christmas party shut down over drug-taking concerns**\
+`Liverpool’s staff Christmas party at the city’s Anglican cathedral had to be shut down early due to fears over drug-taking.`\
+https://nytimes.com/athletic/5992606/2024/12/13/liverpool-christmas-party/
+
 **Lattimore's Commanders debut to come Sunday against Saints**\
 `Washington acquired the four-time Pro Bowl defensive back from New Orleans on Nov. 5. `\
 https://nytimes.com/athletic/5992607/2024/12/13/marshon-lattimore-commanders-debut-saints/

@@ -1,3 +1,7 @@
+**Liverpool staff Christmas party shut down over drug-taking concerns**\
+`Liverpool’s staff Christmas party at the city’s Anglican cathedral had to be shut down early due to fears over drug-taking.`\
+https://nytimes.com/athletic/5992606/2024/12/13/liverpool-christmas-party/
+
 **Lattimore's Commanders debut to come Sunday against Saints**\
 `Washington acquired the four-time Pro Bowl defensive back from New Orleans on Nov. 5. `\
 https://nytimes.com/athletic/5992607/2024/12/13/marshon-lattimore-commanders-debut-saints/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/arts/music/amplifier-newsletter-rediscovered-song
 **A Very Senatorial Goodbye: Nostalgia, Legacy and Gratitude, Live on C-SPAN**\
 `The farewell address is a Senate ritual that reflects the culture of the chamber, which prizes tradition, individual relationships, lofty debates and long-winded speeches.`\
 https://nytimes.com/2024/12/13/us/politics/departing-senators-farewell-address.html
-
-**Golf’s Highs and Lows in 2024**\
-`There were a lot of exciting tournaments, but LIV still looms over the sport.`\
-https://nytimes.com/2024/12/13/sports/golf/pga-lpga-liv-2024.html
 
