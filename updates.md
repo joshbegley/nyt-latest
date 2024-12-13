@@ -1,3 +1,11 @@
+**Charles Handy Dies at 92; Philosopher Envisioned Today’s Corporate World**\
+`Joining a pantheon of management thinkers, he embraced a humanistic path for business and foresaw outsourcing, remote work and a gig economy.`\
+https://nytimes.com/2024/12/13/business/charles-handy-dead.html
+
+**Saints name Jake Haener starting QB for Week 15 against Commanders**\
+`Haener replaced the injured Derek Carr in Week 14 and has appeared in limited action across seven games this season.`\
+https://nytimes.com/athletic/5992978/2024/12/13/saints-jake-haener-starting-commanders/
+
 **Judge Says Former ByteDance Executive Lied in Suit Against Company**\
 `A judge said this week that a former executive at ByteDance seemed to have fabricated evidence and submitted false statements in a high-profile 2023 lawsuit against the company.`\
 https://nytimes.com/2024/12/13/business/bytedance-executive-lawsuit-tiktok.html
