@@ -1,3 +1,7 @@
+**'He's a rock of this foundation': Jordan Mailata using his voice and his guitar to lead Eagles**\
+`Jordan Mailata has stepped into a leadership role as the Eagles' resident music man.`\
+https://nytimes.com/athletic/5986770/2024/12/13/jordan-mailata-eagles-singer-guitar/
+
 **Jota, Chiesa in contention to return for Liverpool vs Fulham**\
 `Diogo Jota and Federico Chiesa are both in contention to being involved in Liverpool’s Premier League fixture against Fulham.`\
 https://nytimes.com/athletic/5991800/2024/12/13/liverpool-team-news-chiesa-jota/

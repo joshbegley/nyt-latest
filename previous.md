@@ -1,3 +1,7 @@
+**'He's a rock of this foundation': Jordan Mailata using his voice and his guitar to lead Eagles**\
+`Jordan Mailata has stepped into a leadership role as the Eagles' resident music man.`\
+https://nytimes.com/athletic/5986770/2024/12/13/jordan-mailata-eagles-singer-guitar/
+
 **Jota, Chiesa in contention to return for Liverpool vs Fulham**\
 `Diogo Jota and Federico Chiesa are both in contention to being involved in Liverpool’s Premier League fixture against Fulham.`\
 https://nytimes.com/athletic/5991800/2024/12/13/liverpool-team-news-chiesa-jota/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/13/world/syria-news/here-are-the-latest-develop
 **Live Updates: Syrians Gather for 1st Friday Prayers Since al-Assad’s Fall**\
 `The mood in Damascus appeared largely celebratory, reflecting the relief among many Syrians at the fall of the Assad dynasty after a half-century of rule.`\
 https://nytimes.com/live/2024/12/13/world/syria-news
-
-**The Fall of al-Assad Quickly Infuses Europe’s Debate Over Asylum**\
-`Nearly a million Syrians in Germany alone have made new lives. But after the fall of Bashar al-Assad, some politicians across the continent have suggested that refugees could return home.`\
-https://nytimes.com/2024/12/13/world/europe/syria-assad-europe-germany-refugees.html
 
