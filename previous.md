@@ -1,3 +1,7 @@
+**Bronny James shines in G League road debut with 30 points in 25 minutes**\
+`Entering the game, the 20-year-old had been averaging 8.7 points, 3.0 rebounds, 2.7 assists, 1.0 steals, 1.0 blocks and 2.0 turnovers.`\
+https://nytimes.com/athletic/5991453/2024/12/13/bronny-james-g-league-road-debut-30-points/
+
 **Trump and Rubio Suddenly Have a Chance to Reshape the Middle East**\
 `Because of Syria’s centrality in the Middle East, positive change there could radiate out in all directions.`\
 https://nytimes.com/2024/12/13/opinion/syria-iran-donald-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989260/2024/12/13/oliver-skipp-tottenham-leicester
 **The Briefing - Rangers 1 Spurs 1: Werner and Johnson displays, Kulusevski and Solanke reliance**\
 `Tottenham were held by Rangers in the Europa League on Thursday evening. Jack Pitt-Brooke analyses the action from Ibrox`\
 https://nytimes.com/athletic/5986342/2024/12/13/tottenham-hotspur-rangers-analysis/
-
-**Why was Fabian Hurzeler in with the Brighton away fans at Selhurst Park last season?**\
-`A fact-finding mission took the German to south London last December - so he knows what to expect when the teams meet on Sunday `\
-https://nytimes.com/athletic/5983432/2024/12/13/hurzeler-brighton-palace-away-end/
 

@@ -1,3 +1,7 @@
+**Bronny James shines in G League road debut with 30 points in 25 minutes**\
+`Entering the game, the 20-year-old had been averaging 8.7 points, 3.0 rebounds, 2.7 assists, 1.0 steals, 1.0 blocks and 2.0 turnovers.`\
+https://nytimes.com/athletic/5991453/2024/12/13/bronny-james-g-league-road-debut-30-points/
+
 **Trump and Rubio Suddenly Have a Chance to Reshape the Middle East**\
 `Because of Syria’s centrality in the Middle East, positive change there could radiate out in all directions.`\
 https://nytimes.com/2024/12/13/opinion/syria-iran-donald-trump.html
