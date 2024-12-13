@@ -1,3 +1,11 @@
+**Conan O’Brien’s Parents Die 3 Days Apart**\
+`Thomas Francis O’Brien, an epidemiologist, and Ruth Reardon O’Brien, a lawyer, juggled successful careers with raising six children, including the comedy star. They were married for 66 years.`\
+https://nytimes.com/2024/12/13/arts/television/conan-obrien-parents-dead.html
+
+**Our Book Critics on What Stuck With Them in 2024**\
+`Dwight Garner, Jennifer Szalai and Alexandra Jacobs discuss highlights from their year in books.`\
+https://nytimes.com/2024/12/13/books/review/book-critics-podcast.html
+
 **Brewers might have slight edge in Devin Williams/Nestor Cortes swap with Yankees: Law**\
 `Based on their roles, Nestor Cortes could provide more value than Devin Williams. Both pitchers come with injury concerns, however.`\
 https://nytimes.com/athletic/5992933/2024/12/13/brewers-yankees-trade-nestor-cortes-devin-williams-keith-law/
