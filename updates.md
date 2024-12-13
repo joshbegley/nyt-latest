@@ -1,3 +1,11 @@
+**A top House Democrat demands that Trump picks undergo F.B.I. vetting.**\
+`Representative Jamie Raskin of Maryland, the top Democrat on the Oversight Committee, also asked the Trump transition team to disclose any contacts it has had with private companies vetting personnel.`\
+https://nytimes.com/live/2024/12/13/us/trump-transition-news/a-top-house-democrat-demands-that-trump-picks-undergo-fbi-vetting
+
+**Brewers might have slight edge in pitcher swap with Yankees: Law**\
+`Based on their roles, Nestor Cortes could provide more value than Devin Williams. Both pitchers come with injury concerns, however.`\
+https://nytimes.com/athletic/5992933/2024/12/13/brewers-yankees-trade-nestor-cortes-devin-williams-keith-law/
+
 **The Russian military appears to be packing up equipment in Syria, satellite imagery shows.**\
 `Such a move would highlight the uncertainty of Moscow’s foothold in Syria, which has served as an important strategic foothold in the Middle East.`\
 https://nytimes.com/live/2024/12/13/world/syria-news/the-russian-military-appears-to-be-packing-up-equipment-in-syria-satellite-imagery-shows
