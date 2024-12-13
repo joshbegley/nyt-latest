@@ -1,40 +1,40 @@
-**Connor Bedard, Tyler Bertuzzi are bright spots, but Blackhawks revert to old ways vs. Isles**\
-`The Blackhawks showed plenty of fight but fell 5-4 to the Islanders. `\
-https://nytimes.com/athletic/5991361/2024/12/12/blackhawks-connor-bedard-tyler-bertuzzi/
+**Is Jet Greaves laying claim to the Blue Jackets' goaltending job?**\
+`After Thursday's performance in a 2-1 loss to the Capitals, Greaves has "earned the right" to be in Columbus, according to his coach. `\
+https://nytimes.com/athletic/5991313/2024/12/13/blue-jackets-jet-greaves-goalie/
 
-**Jake Middleton's injury only the start of Wild's worst game of season: 3 takeaways vs. Oilers**\
-`Middleton looked to injure his right hand on the first shift of Thursday's 7-1 loss to the Oilers.`\
-https://nytimes.com/athletic/5991087/2024/12/12/wild-oilers-jake-middleton-injury/
+**Dating on the Front Line: Ukrainian Women Travel to Keep Love Alive**\
+`Many women are making dangerous trips to places where loved ones are fighting Russian forces. “We try to imagine that for these two days, there is no war,” one said.`\
+https://nytimes.com/2024/12/13/world/europe/ukraine-war-dating.html
 
-**Maple Leafs report cards: Toronto plays loose but hangs on for win**\
-`Max Pacioretty had two goals and an assist in Toronto's 3-2 win over Anaheim.`\
-https://nytimes.com/athletic/5991297/2024/12/12/maple-leafs-ducks-grades-analysis/
+**Friday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/12/13/briefing/syria-israel-trump.html
 
-**Creator of The Last of Us Reveals New Sci-Fi Game**\
-`Neil Druckmann said Intergalactic: The Heretic Prophet, the adventure of a galactic bounty hunter, would be a story about faith.`\
-https://nytimes.com/2024/12/12/arts/intergalactic-heretic-prophet-naughty-dog-druckmann.html
+**Please Let Me Love My Wife**\
+`Her pronouns changed. Our bond didn’t.`\
+https://nytimes.com/2024/12/13/style/modern-love-please-let-me-love-my-wife.html
 
-**Rosenthal: How do the Yankees wash their Juan Soto blues away? Trade for Kyle Tucker**\
-`Even if he's a Yankee for one season before hitting free agency, Tucker would help New York maximize the primes of several other stars.`\
-https://nytimes.com/athletic/5991275/2024/12/12/yankees-trade-kyle-tucker-juan-soto-astros/
+**Surprise, ‘We’re Getting Married Right Now!’**\
+`Daniel Howarth and Jonathan Marotto gathered their closest friends and family for a celebration that also happened to be their wedding.`\
+https://nytimes.com/2024/12/13/style/daniel-howarth-jonathan-marotto-wedding.html
 
-**One Dead in Small Plane Crash Near Westchester County Airport**\
-`The condition of a second person on the flight was not immediately known. The single-engine plane crashed shortly after the pilot reported engine issues.`\
-https://nytimes.com/2024/12/12/nyregion/plane-crash-westchester-airport-ny.html
+**Marriage, Baby and House, Though Not in That Order**\
+`Jocelyn Weigel and Zach Troughton matched on a dating app at the height of the pandemic, when both were lonely and looking for love.`\
+https://nytimes.com/2024/12/13/style/jocelyn-weigel-zach-troughton-wedding.html
 
-**Dick Vitale says PET scan shows he is cancer-free after lymph node surgery**\
-`Vitale, 85, has now overcome cancer four times in three years. He underwent radiation treatment in 2023 to address vocal cord cancer.`\
-https://nytimes.com/athletic/5991219/2024/12/12/dick-vitale-cancer-free-update/
+**For Two Indian Movie Stars, a Love Language Expressed in Telugu**\
+`Sobhita Dhulipala and Naga Chaitanya Akkineni bonded over their South Indian roots and a shared language that felt like home. They married in an “intimate” ceremony of 300.`\
+https://nytimes.com/2024/12/13/style/sobhita-dhulipala-naga-akkineni-wedding.html
 
-**Notre Dame's Hannah Hidalgo has UConn's number (again)**\
-`Hidalgo tied a milestone shared by Sabrina Ionescu as the Irish took down UConn in South Bend.`\
-https://nytimes.com/athletic/5991267/2024/12/12/notre-dame-hannah-hidalgo-uconn-victory/
+**She Swapped Her ‘Spinsterlicious Life’ for Him**\
+`Eleanore Wells loved her single, child-free life so much that she wrote a book about it. Then, at 60, she moved to Australia where she met Anthony Graham.`\
+https://nytimes.com/2024/12/13/style/eleanore-wells-anthony-graham-wedding.html
 
-**‘Cult of Love’ Review: We Wish You a Wretched Christmas**\
-`A hilarious, harrowing holiday gift from Leslye Headland, who brings another unhappy family to Broadway. Zachary Quinto and Shailene Woodley star.`\
-https://nytimes.com/2024/12/12/theater/cult-of-love-broadway-review.html
+**Move Over, Charlie Brown: Lessons From ‘The Boondocks’ Christmas Special**\
+`With “A Huey Freeman Christmas,” the show continued what “A Charlie Brown Christmas” began: acknowledging the weight of the holiday.`\
+https://nytimes.com/2024/12/13/style/boondocks-holiday-tv-special-charlie-brown.html
 
-**First Pass Friday, or How I Made My Way Into a Tough Puzzle**\
-`Ryan Patrick Smith’s crossword put up quite a fight, but there is always a way to win.`\
-https://nytimes.com/2024/12/12/crosswords/daily-puzzle-2024-12-13.html
+**Rams top 49ers in 12-6 touchdown-free snoozer as offenses falter: Takeaways**\
+`Los Angeles held the 49ers to just 191 yards of offense as each side was slowed by the heavy rain in the first half.`\
+https://nytimes.com/athletic/5991286/2024/12/12/rams-49ers-tnf-score-result-takeaways/
 
