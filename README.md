@@ -1,3 +1,7 @@
+**In 2024, Tennis Was Busy With Action On and Off the Court**\
+`There were striking matches, coaching changes, and Novak Djokovic finally won his Olympic gold.`\
+https://nytimes.com/2024/12/13/sports/tennis/nadal-retirement-players-coaches.html
+
 **A Stunning Year in Sports: Caitlin Clark, Shohei Ohtani and Record Viewership**\
 `It was also a year highlighted by the pageantry and competition of the Paris Olympics.`\
 https://nytimes.com/2024/12/13/sports/caitlin-clark-best-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5992570/2024/12/13/yankees-brewers-trade-devil-will
 **In Idlib, which has long been rebel territory, a square fills with songs and celebrations.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/12/13/world/syria-news/in-idlib-which-has-long-been-rebel-territory-a-square-fills-up-with-songs-and-celebrations
-
-**Pelosi Hospitalized in Luxembourg After Falling**\
-`A person familiar with the incident said the former House speaker, 84, had tripped going down stairs at a palace. She was taken to a hospital for treatment and evaluation.`\
-https://nytimes.com/2024/12/13/us/politics/nancy-pelosi-hospitalized-luxembourg-falling.html
 
