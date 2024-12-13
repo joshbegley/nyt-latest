@@ -1,3 +1,31 @@
+**Judge Says Former ByteDance Executive Lied in Suit Against Company**\
+`A judge said this week that a former executive at ByteDance seemed to have fabricated evidence and submitted false statements in a high-profile 2023 lawsuit against the company.`\
+https://nytimes.com/2024/12/13/business/bytedance-executive-lawsuit-tiktok.html
+
+**Browns' Pro Bowl duo of David Njoku, Joel Bitonio listed as questionable**\
+`Additionally, Cleveland wide receiver Cedric Tillman will miss a third straight game as he has not cleared the concussion protocol.`\
+https://nytimes.com/athletic/5993095/2024/12/13/browns-david-njoku-joel-bitonio-questionable-chiefs/
+
+**Chapel Bill? Cashing In on a Famous New Football Coach.**\
+`With shirts playing off Chapel Hill’s name and cutoff hoodies, a college town immediately embraced the arrival of Bill Belichick in North Carolina.`\
+https://nytimes.com/2024/12/13/style/bill-belichick-north-carolina.html
+
+**This Chef’s Stunning Christmas Spread Is Unexpectedly Effortless**\
+`Anchored by juicy braised duck and finished with an unforgettable family-size crème brûlée, this menu from Clare de Boer will have everyone talking.`\
+https://nytimes.com/2024/12/13/dining/how-to-cook-christmas-dinner.html
+
+**Jerome Kohn, Keeper of Hannah Arendt’s Flame, Dies at 93**\
+`He devoted his career to guarding the legacy of the philosopher known for her writings on totalitarianism and “the banality of evil.”`\
+https://nytimes.com/2024/12/13/books/jerome-kohn-dead.html
+
+**Conan O’Brien’s Parents Die 3 Days Apart**\
+`Thomas Francis O’Brien, an epidemiologist, and Ruth Reardon O’Brien, a lawyer, juggled successful careers with raising six children, including the comedy star. They were married for 66 years.`\
+https://nytimes.com/2024/12/13/arts/television/conan-obrien-parents-dead.html
+
+**Our Book Critics on What Stuck With Them in 2024**\
+`Dwight Garner, Jennifer Szalai and Alexandra Jacobs discuss highlights from their year in books.`\
+https://nytimes.com/2024/12/13/books/review/book-critics-podcast.html
+
 **Roundtable reaction after Kyle Tucker’s trade from Astros to Cubs**\
 `After pulling off a major acquisition, what's next for the Cubs? How does impact the Astros and their next steps?`\
 https://nytimes.com/athletic/5992938/2024/12/13/kyle-tucker-astros-cubs-trade-analysis/
@@ -9,32 +37,4 @@ https://nytimes.com/live/2024/12/13/us/trump-transition-news/a-top-house-democra
 **Brewers might have slight edge in Devin Williams/Nestor Cortes swap with Yankees: Law**\
 `Based on their roles, Nestor Cortes could provide more value than Devin Williams. Both pitchers come with injury concerns, however.`\
 https://nytimes.com/athletic/5992933/2024/12/13/brewers-yankees-trade-nestor-cortes-devin-williams-keith-law/
-
-**The Russian military appears to be packing up equipment in Syria, satellite imagery shows.**\
-`Such a move highlights the uncertainty of Moscow’s foothold in Syria, which has served as an important strategic foothold in the Middle East.`\
-https://nytimes.com/live/2024/12/13/world/syria-news/russia-military-syria
-
-**President Biden commutes sentence of former Miami booster Nevin Shapiro**\
-`Shapiro was one of 1,499 people convicted of non-violent crimes whose sentences were commuted Thursday by Biden.`\
-https://nytimes.com/athletic/5992926/2024/12/13/biden-commutes-sentence-miami-nevin-shapiro/
-
-**Miley Cyrus Gives Showgirl Pathos, and 8 More New Songs**\
-`Hear tracks by Benjamin Booker, Julien Baker and Torres, and more.`\
-https://nytimes.com/2024/12/13/arts/music/playlist-miley-cyrus-snoop-dogg.html
-
-**Eric Adams’s Advisers Are Trying to Get Him a Trump Inauguration Ticket**\
-`Members of the Democratic mayor’s team have put out the word to New York Republicans that he is interested in attending Donald J. Trump’s swearing-in.`\
-https://nytimes.com/2024/12/13/nyregion/adams-trump-inauguration.html
-
-**Why the Rangers opted not to go to the waiver wire with K'Andre Miller out**\
-`The Rangers could have added a defensive stopgap in Travis Dermott off the wire on Friday but instead chose to go with internal options.`\
-https://nytimes.com/athletic/5992820/2024/12/13/rangers-kandre-miller-connor-mackey/
-
-**A Murder in Midtown Sent the Police Scrambling. Reporters Weren’t Far Behind.**\
-`A reporter’s ability to develop sources is important amid events like the shooting death of Brian Thompson and the search for his killer.`\
-https://nytimes.com/2024/12/13/pageoneplus/shooting-death-police-sources.html
-
-**Astros trade OF Kyle Tucker to Cubs following crazy 72-hour window**\
-`The Astros will receive a package that includes infielder Isaac Paredes, right-hander Hayden Wesneski and infield prospect Cam Smith`\
-https://nytimes.com/athletic/5992880/2024/12/13/astros-trade-of-kyle-tucker-to-cubs-following-crazy-72-hour-window/
 
