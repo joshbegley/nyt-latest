@@ -1,3 +1,7 @@
+**The Russian military appears to be packing up equipment in Syria, satellite imagery shows.**\
+`Such a move would highlight the uncertainty of Moscow’s foothold in Syria, which has served as an important strategic foothold in the Middle East.`\
+https://nytimes.com/live/2024/12/13/world/syria-news/the-russian-military-appears-to-be-packing-up-equipment-in-syria-satellite-imagery-shows
+
 **President Biden commutes sentence of former Miami booster Nevin Shapiro**\
 `Shapiro was one of 1,499 people convicted of non-violent crimes whose sentences were commuted Thursday by Biden.`\
 https://nytimes.com/athletic/5992926/2024/12/13/biden-commutes-sentence-miami-nevin-shapiro/

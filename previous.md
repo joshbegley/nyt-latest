@@ -1,3 +1,7 @@
+**The Russian military appears to be packing up equipment in Syria, satellite imagery shows.**\
+`Such a move would highlight the uncertainty of Moscow’s foothold in Syria, which has served as an important strategic foothold in the Middle East.`\
+https://nytimes.com/live/2024/12/13/world/syria-news/the-russian-military-appears-to-be-packing-up-equipment-in-syria-satellite-imagery-shows
+
 **President Biden commutes sentence of former Miami booster Nevin Shapiro**\
 `Shapiro was one of 1,499 people convicted of non-violent crimes whose sentences were commuted Thursday by Biden.`\
 https://nytimes.com/athletic/5992926/2024/12/13/biden-commutes-sentence-miami-nevin-shapiro/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/magazine/sex-work-boyfriend-ethics.html
 **Patel Distorts Justice Dept. Benghazi Inquiry, Inflating His Role**\
 `Donald J. Trump’s pick to be the next F.B.I. director has both exaggerated his importance in the government’s criminal inquiry into the 2012 attack and misleadingly distorted its conduct and results.`\
 https://nytimes.com/2024/12/13/us/politics/kash-patel-benghazi-investigation-doj.html
-
-**Phoenix Suns minority owner Justin Ishbia emerges as bidder for Minnesota Twins: Source**\
-`The ownership group that purchased the Suns — before promptly making a splash by acquiring Kevin Durant — is interested in buying the Twins.`\
-https://nytimes.com/athletic/5992891/2024/12/13/billionaire-ishbia-brothers-emerge-as-bidders-for-minnesota-twins-source/
 
