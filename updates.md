@@ -1,3 +1,11 @@
+**A Murder in Midtown Sent the Police Scrambling. Reporters Weren’t Far Behind.**\
+`A reporter’s ability to develop sources is important amid events like the shooting death of Brian Thompson and the search for his killer.`\
+https://nytimes.com/2024/12/13/pageoneplus/shooting-death-police-sources.html
+
+**Astros trade OF Kyle Tucker to Cubs following crazy 72-hour window**\
+`The Astros will receive a package that includes infielder Isaac Paredes, right-hander Hayden Wesneski and infield prospect Cam Smith`\
+https://nytimes.com/athletic/5992880/2024/12/13/astros-trade-of-kyle-tucker-to-cubs-following-crazy-72-hour-window/
+
 **Conan O’Brien’s Parents Die 3 Days Apart**\
 `Thomas Francis O’Brien, an epidemiologist, and Ruth Reardon O’Brien, a lawyer, juggled successful careers with raising six children, including the comedy star. They were married for 66 years.`\
 https://nytimes.com/2024/12/13/arts/television/conan-obrien-parents-dead.html
