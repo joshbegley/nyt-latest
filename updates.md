@@ -1,3 +1,23 @@
+**Mets to retire David Wright's No. 5, induct him into team's Hall of Fame**\
+`Wright will become the 10th player to have his jersey retired by the Mets and the 35th to enter the club's Hall of Fame.`\
+https://nytimes.com/athletic/5992326/2024/12/13/david-wrights-mets-jersey-retirement-hall-of-fame/
+
+**Fortnite Players Get Millions in Refunds for Unwanted Purchases**\
+`Epic Games is making the payments, which average about $114, after settling accusations from the federal government that the studio tricked people into buying in-game items.`\
+https://nytimes.com/2024/12/13/arts/fortnite-ftc-refunds.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include an Irish drama about a pirate-queen, a found-footage movie made from lost Palestinian films, a coming-of-age thriller from Mexico and more.`\
+https://nytimes.com/2024/12/13/movies/international-movies-streaming.html
+
+**Blinken Discusses Syria’s Future on Unannounced Visit to Iraq**\
+`Secretary of State Antony J. Blinken said he talked with Iraq’s prime minister about the situation in Syria, including efforts to encourage Syria to transition to an inclusive, non-sectarian government.`\
+https://nytimes.com/video/world/middleeast/100000009876711/blinken-syria-iraq.html
+
+**Harris to Deliver Speech Urging Young People to Stay Civically Engaged**\
+`Vice President Kamala Harris, who has kept a relatively low profile since she lost the election, will speak in Maryland on Tuesday.`\
+https://nytimes.com/2024/12/13/us/politics/harris-speech-young-people.html
+
 **OpenAI’s Sam Altman to Donate $1 Million to Trump’s Inaugural Fund**\
 `Mr. Altman and OpenAI have recently hired key executives who previously worked for the Clinton, Obama and Biden administrations.`\
 https://nytimes.com/2024/12/13/technology/openai-sam-altman-trump-inauguration.html
