@@ -1,3 +1,7 @@
+**Eric Adams’s Advisers Are Trying to Get Him a Trump Inauguration Ticket**\
+`Members of the Democratic mayor’s team have put out the word to New York Republicans that he is interested in attending Donald J. Trump’s swearing-in.`\
+https://nytimes.com/2024/12/13/nyregion/adams-trump-inauguration.html
+
 **Why the Rangers opted not to go to the waiver wire with K'Andre Miller out**\
 `The Rangers could have added a defensive stopgap in Travis Dermott off the wire on Friday but instead chose to go with internal options.`\
 https://nytimes.com/athletic/5992820/2024/12/13/rangers-kandre-miller-connor-mackey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5992791/2024/12/13/ratcliffe-man-utd-women-skinner/
 **Maple Leafs call goalie Anthony Stolarz day to day, recall Dennis Hildeby**\
 `Stolarz did not practice Friday after exiting Thursday's game against the Ducks with the lower-body injury.`\
 https://nytimes.com/athletic/5992782/2024/12/13/maple-leafs-anthony-stolarz-status-goalie/
-
-**49ers plan to part ways with De'Vondre Campbell day after he refused to play**\
-`The veteran linebacker told the team he didn't want to play and left the field in the third quarter of Thursday night's loss to the Rams.`\
-https://nytimes.com/athletic/5992356/2024/12/13/devondre-campbell-49ers-release/
 
