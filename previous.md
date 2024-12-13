@@ -1,3 +1,7 @@
+**Mount Vernon Police’s Strip Searches Were Unconstitutional, U.S. Says**\
+`A report by federal prosecutors found that a Westchester County police department violated the Fourth Amendment “on an enormous scale.”`\
+https://nytimes.com/2024/12/12/nyregion/mount-vernon-police-strip-searches.html
+
 **Corrections: Dec. 13, 2024**\
 `Corrections that appeared in print on Friday, Dec. 13, 2024.`\
 https://nytimes.com/2024/12/12/pageoneplus/corrections-dec-13-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/12/books/taylor-swift-songs-poems-invisi
 **For Those Granted Clemency by White House, a Moment to Celebrate and Plan**\
 `Among those whose sentences were commuted was Rebecca Parrett, an Arizona woman who now hopes to travel to meet her great-grandchildren for the first time.`\
 https://nytimes.com/2024/12/12/us/biden-commutes-sentences-clemency.html
-
-**Why Wray’s Resignation May Signal a Shift in F.B.I. Tradition**\
-`Mr. Wray’s voluntary departure could usher in a new era at the nation’s premier law enforcement agency, one in which the job of director changes with the administration.`\
-https://nytimes.com/2024/12/12/us/politics/christopher-wray-fbi.html
 

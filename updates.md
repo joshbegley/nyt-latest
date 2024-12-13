@@ -1,3 +1,7 @@
+**Mount Vernon Police’s Strip Searches Were Unconstitutional, U.S. Says**\
+`A report by federal prosecutors found that a Westchester County police department violated the Fourth Amendment “on an enormous scale.”`\
+https://nytimes.com/2024/12/12/nyregion/mount-vernon-police-strip-searches.html
+
 **Corrections: Dec. 13, 2024**\
 `Corrections that appeared in print on Friday, Dec. 13, 2024.`\
 https://nytimes.com/2024/12/12/pageoneplus/corrections-dec-13-2024.html
