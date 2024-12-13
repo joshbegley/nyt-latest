@@ -1,3 +1,7 @@
+**How the Wackiest, Most ‘Annoying’ Christmas Song Became a Hit**\
+`It started with a novelty songwriter stranded on a snowy night. Decades later, listeners still can’t get his song, “Grandma Got Run Over By a Reindeer,” out of their heads.`\
+https://nytimes.com/2024/12/13/style/grandma-got-run-over-christmas-song-history.html
+
 **Elon Musk’s Playbook for DOGE Has a Precedent: X**\
 `Mr. Musk is wielding his X account to single out federal employees and agencies for cuts. He has used this method before.`\
 https://nytimes.com/2024/12/13/technology/elon-musk-doge-x.html
