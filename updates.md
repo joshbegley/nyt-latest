@@ -1,3 +1,15 @@
+**Rosenthal: How do the Yankees wash their Juan Soto blues away? Trade for Kyle Tucker**\
+`Even if he's a Yankee for one season before hitting free agency, Tucker would help New York maximize the primes of several other stars.`\
+https://nytimes.com/athletic/5991275/2024/12/12/yankees-trade-kyle-tucker-juan-soto-astros/
+
+**One Dead in Small Plane Crash Near Westchester County Airport**\
+`The condition of a second person on the flight was not immediately known. The single-engine plane crashed shortly after the pilot reported engine issues.`\
+https://nytimes.com/2024/12/12/nyregion/plane-crash-westchester-airport-ny.html
+
+**Notre Dame's Hannah Hidalgo has UConn's number (again)**\
+`Hidalgo tied a milestone shared by Caitlin Clark and Sabrina Ionsecu as the Irish took down UConn in South Bend.`\
+https://nytimes.com/athletic/5991267/2024/12/12/notre-dame-hannah-hidalgo-uconn-victory/
+
 **Dick Vitale says PET scan shows he is cancer-free after lymph node surgery**\
 `Vitale, 85, has now overcome cancer four times in three years. He underwent radiation treatment in 2023 to address vocal cord cancer.`\
 https://nytimes.com/athletic/5991219/2024/12/12/dick-vitale-cancer-free-update/
