@@ -1,3 +1,7 @@
+**OpenAI Fires Back at Elon Musk’s Lawsuit**\
+`The artificial intelligence start-up argues that Mr. Musk is trying to hamstring its business as he builds a rival company`\
+https://nytimes.com/2024/12/13/technology/openai-elon-musk-lawsuit.html
+
 **Cubs finally take big swing with great deal for Kyle Tucker: Law**\
 `Cam Smith is the jewel of the trade for the Astros, who may have received more total value for Tucker if they strictly targeted prospects.`\
 https://nytimes.com/athletic/5993187/2024/12/13/cubs-astros-kyle-tucker-trade-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5992996/2024/12/13/roki-sasaki-yu-darvish-padres/
 **Connor Bedard back in the groove, back on the highlight reel for Blackhawks**\
 `Bedard's spectacular toe-drag goal on Thursday against the Islanders seemed to flagrantly defy the laws of physics.`\
 https://nytimes.com/athletic/5993135/2024/12/13/connor-bedard-blackhawks-goal/
-
-**Texas Sues New York Doctor for Mailing Abortion Pills**\
-`The lawsuit, filed on Thursday, appeared to be among the first attempts to stop doctors from mailing the medication to states that ban abortions.`\
-https://nytimes.com/2024/12/13/us/texas-new-york-abortion-pills-lawsuit.html
 
