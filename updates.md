@@ -1,3 +1,7 @@
+**Gabriel could return for Arsenal's game against Everton - Arteta**\
+`Mikel Arteta has confirmed that Gabriel Magalhaes could return to the Arsenal defence for the visit of Everton.`\
+https://nytimes.com/athletic/5992185/2024/12/13/arsenal-team-news-gabriel-everton/
+
 **Fantasy Trends and Hidden Gems: Sherwood's back on top; Wright's stuff starting to show**\
 `Mackenzie Blackwood's stock is soaring after getting dealt to the Avs, while Kiefer Sherwood is turning it on in Vancouver.`\
 https://nytimes.com/athletic/5991491/2024/12/13/fantasy-trends-and-hidden-gems-sherwoods-back-on-top-wrights-stuff-starting-to-show/

@@ -1,3 +1,7 @@
+**Gabriel could return for Arsenal's game against Everton - Arteta**\
+`Mikel Arteta has confirmed that Gabriel Magalhaes could return to the Arsenal defence for the visit of Everton.`\
+https://nytimes.com/athletic/5992185/2024/12/13/arsenal-team-news-gabriel-everton/
+
 **Fantasy Trends and Hidden Gems: Sherwood's back on top; Wright's stuff starting to show**\
 `Mackenzie Blackwood's stock is soaring after getting dealt to the Avs, while Kiefer Sherwood is turning it on in Vancouver.`\
 https://nytimes.com/athletic/5991491/2024/12/13/fantasy-trends-and-hidden-gems-sherwoods-back-on-top-wrights-stuff-starting-to-show/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/your-money/tipping-etiquette-holidays.html
 **A New Frontier in Paleontology for Profit: Selling Shares in a Stegosaurus**\
 `As academics fear being priced out of the fossil market, a private company announced that it aims to raise $13.75 million by selling shares in a stegosaurus fossil.`\
 https://nytimes.com/2024/12/13/arts/design/stegosaurus-shares-public-offering.html
-
-**The Fed Is Stuck Fighting the Last War**\
-`Mired in a battle to contain surging prices, the central bank also needs to be nimble enough for the economic downturns to come, our columnist says.`\
-https://nytimes.com/2024/12/13/business/federal-reserve-inflation-target.html
 
