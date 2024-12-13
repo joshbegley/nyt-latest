@@ -1,3 +1,7 @@
+**Syrians Celebrated a New Chapter**\
+`Also, McKinsey will pay $650 million in an opioid settlement. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/12/13/briefing/syria-russia-images-canada-tribes-gas.html
+
 **Bill Guerin on Jake Middleton's injury, Travis Dermott's addition and where Wild go from here**\
 `Although losing Middleton is a tough loss for the Wild, they are fortunate to have been able to claim Dermott off waivers from the Oilers.`\
 https://nytimes.com/athletic/5993083/2024/12/13/wild-jake-middleton-injury-travis-dermott/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/dining/how-to-cook-christmas-dinner.html
 **Jerome Kohn, Keeper of Hannah Arendt’s Flame, Dies at 93**\
 `He devoted his career to guarding the legacy of the philosopher known for her writings on totalitarianism and “the banality of evil.”`\
 https://nytimes.com/2024/12/13/books/jerome-kohn-dead.html
-
-**Conan O’Brien’s Parents Die 3 Days Apart**\
-`Thomas O’Brien, an epidemiologist, and Ruth O’Brien, a lawyer, juggled successful careers with raising six children, including the comedy star.`\
-https://nytimes.com/2024/12/13/arts/television/conan-obrien-parents-dead.html
 
