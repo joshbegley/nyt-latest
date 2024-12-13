@@ -1,3 +1,7 @@
+**Twins notes: Searching for righty bats, no lottery luck and ranking the Rule 5 pick**\
+`Will the Twins re-sign Carlos Santana or need a replacement? How much does dropping two picks matter? Where does Eiberson Castellano fit?`\
+https://nytimes.com/athletic/5989236/2024/12/13/twins-free-agent-right-handed-hitters/
+
 **If Bears GM Ryan Poles survives this season, he'll have Caleb Williams to thank**\
 `Poles is on the hot seat, but his 2023 trade of the No. 1 pick that led to the Bears drafting Caleb Williams could save him.`\
 https://nytimes.com/athletic/5990727/2024/12/13/bears-caleb-williams-ryan-poles/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/crosswords/connections-companion-552.html
 **Wordle Review No. 1,274**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Dec. 14, 2024.`\
 https://nytimes.com/2024/12/13/crosswords/wordle-review-1274.html
-
-**Wawrinka, Tomljanovic headline Australian Open wildcards**\
-`The 2014 men's champion tops the wildcard billing in Melbourne.`\
-https://nytimes.com/athletic/5991793/2024/12/13/australian-open-wildcards-wawrinka-tomljanovic-joint-tu/
 
