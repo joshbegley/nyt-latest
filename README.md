@@ -1,3 +1,7 @@
+**Maple Leafs call goalie Anthony Stolarz day to day, recall Dennis Hildeby**\
+`Stolarz did not practice Friday after exiting Thursday's game against the Ducks with the lower-body injury.`\
+https://nytimes.com/athletic/5992782/2024/12/13/maple-leafs-anthony-stolarz-status-goalie/
+
 **49ers plan to part ways with De'Vondre Campbell day after he refused to play**\
 `The veteran linebacker told the team he didn't want to play and left the field in the third quarter of Thursday night's loss to the Rams.`\
 https://nytimes.com/athletic/5992356/2024/12/13/devondre-campbell-49ers-release/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/arts/music/larry-jackson-popcast-interview-drake.
 **U.S. Considered Border Buoys Months Before Texas Put Them In**\
 `Border officials explored using floating barriers from Texas to California in 2022. The effort could help pave the way for their deployment under President-elect Donald J. Trump.`\
 https://nytimes.com/2024/12/13/us/us-border-floating-barriers-trump.html
-
-**Vancouver Whitecaps ownership group initiating selling the club**\
-`The sale comes at a potentially critical moment in growth with Vancouver will hosting games in the 2025 Gold Cup and the 2026 World Cup.`\
-https://nytimes.com/athletic/5992511/2024/12/13/vancouver-whitecaps-sale-process/
 
