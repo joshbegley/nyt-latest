@@ -1,3 +1,15 @@
+**FPL: Five low-owned options for the end of 2024 and beyond**\
+`Abdul Rehman presents five differentials who could make the difference for your FPL team over the festive period`\
+https://nytimes.com/athletic/5984159/2024/12/13/fantasy-premier-league-differentials-low-owned/
+
+**A beginner's guide to Dean Henderson's 'head saves' - and how he does them**\
+`An unusual save technique has won Palace precious points in recent weeks - this is how Henderson does it`\
+https://nytimes.com/athletic/5981156/2024/12/13/dean-henderson-crystal-palace-save-head/
+
+**Emiliano Buendia's 37 minutes: Where next for his Aston Villa career?**\
+`The Argentina playmaker has found opportunities difficult to come by - bought for £38m, his career is approaching a crossroads`\
+https://nytimes.com/athletic/5974405/2024/12/13/emiliano-buendia-aston-villa-37-minutes/
+
 **What makes Chris Wood so difficult to play against?**\
 `Players past and present, opponents and team-mates, and his current head coach speak about the Nottingham Forest striker's qualities`\
 https://nytimes.com/athletic/5989675/2024/12/13/chris-wood-team-mates-opponents/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5989219/2024/12/13/jason-ayto-profile-sporting-dire
 **Yohe's 10 observations: Penguins erupt for 6 third-period goals in lopsided win**\
 `Bryan Rust's hat trick led the way in a 9-2 win against the Canadiens in Montreal. `\
 https://nytimes.com/athletic/5991127/2024/12/13/penguins-canadiens-bryan-rust-hat-trick/
-
-**In the Champions League, less might not necessarily be more**\
-`The new Champions League may feel hollow at times but scratch beneath the surface and you might find stories to counter that notion`\
-https://nytimes.com/athletic/5989944/2024/12/13/champions-league-2024-25-format-future/
-
-**He used to play for Man City. Now he's Georgia's far-right president-elect**\
-`The ex-City player's political rise in his home country has baffled his old team-mates and coaches`\
-https://nytimes.com/athletic/5974493/2024/12/13/mikheil-kavelashvili-georgia-president-manchester-city/
-
-**Travis Hunter makes history winning Bednarik, Biletnikoff awards**\
-`Jeanty won the Maxwell Award for the most outstanding player in football, while Hunter was named the Walter Camp Player of the Year.`\
-https://nytimes.com/athletic/5991328/2024/12/13/travis-hunter-colorado-cfb-awards-biletnikoff-bednarik/
 
