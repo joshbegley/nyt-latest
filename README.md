@@ -1,3 +1,11 @@
+**Crystal Mangum admits she lied about 2006 rape by Duke lacrosse players**\
+`"They didn’t deserve that, and I hope that they can forgive me,” Mangum said of the players on "Let's Talk With Kat."`\
+https://nytimes.com/athletic/5993142/2024/12/13/crystal-mangum-duke-lacrosse-players-rape/
+
+**Gerd Heidemann, Journalist Duped by Fake Hitler Diaries, Dies at 93**\
+`What was supposed to be the crowning scoop of his career became his downfall when a trove of notebooks he acquired in Germany turned out to be forgeries.`\
+https://nytimes.com/2024/12/13/business/media/gerd-heidemann-dead.html
+
 **Supreme Court to Hear Catholic Charity’s Bid for Tax Exemption**\
 `The justices agreed to hear an appeal from a Wisconsin Supreme Court ruling that the charity’s activities were insufficiently religious to qualify.`\
 https://nytimes.com/2024/12/13/us/politics/supreme-court-catholic-charity-taxes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/13/us/politics/democrats-texas-greg-casar.html
 **Garrett Crochet relieved after trade, excited to pitch in Boston**\
 `After pitching 146 dominant innings in 2024, the lefty starter has his sights set on a higher workload for the Red Sox next season.`\
 https://nytimes.com/athletic/5993188/2024/12/13/red-sox-garrett-crochet-trade-reaction/
-
-**OpenAI Fires Back at Elon Musk’s Lawsuit**\
-`The artificial intelligence start-up argues that Mr. Musk is trying to hamstring its business as he builds a rival company.`\
-https://nytimes.com/2024/12/13/technology/openai-elon-musk-lawsuit.html
-
-**Law: Cubs finally take big swing with great deal for Kyle Tucker**\
-`Cam Smith is the jewel of the trade for the Astros, who may have received more total value for Tucker if they strictly targeted prospects.`\
-https://nytimes.com/athletic/5993187/2024/12/13/cubs-astros-kyle-tucker-trade-analysis/
 
