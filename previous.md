@@ -1,3 +1,11 @@
+**Corrections: Dec. 13, 2024**\
+`Corrections that appeared in print on Friday, Dec. 13, 2024.`\
+https://nytimes.com/2024/12/12/pageoneplus/corrections-dec-13-2024.html
+
+**A Bagel Shop Closes, and the Upper West Side Is Absolutely Losing It**\
+`The neighborhood reaction to the sudden, mysterious closure of a Manhattan bagel shop was intense: “No no no no no no no no no no no!!”`\
+https://nytimes.com/2024/12/12/nyregion/nyc-absolute-bagels-closed.html
+
 **U.S. Charges Ex-Syrian Prison Official With Torture**\
 `The indictment was the second time in a week that the Justice Department announced that it had charged top Syrian officials with human rights abuses.`\
 https://nytimes.com/2024/12/12/us/politics/torture-charges-syria-prison-official.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/12/us/biden-commutes-sentences-clemency.html
 **Why Wray’s Resignation May Signal a Shift in F.B.I. Tradition**\
 `Mr. Wray’s voluntary departure could usher in a new era at the nation’s premier law enforcement agency, one in which the job of director changes with the administration.`\
 https://nytimes.com/2024/12/12/us/politics/christopher-wray-fbi.html
-
-**Sotheby’s Lays Off More Than 100 Staffers as Auction Sales Slump**\
-`As the high-flying art market has contracted, the company is looking elsewhere, expanding its luxury brand and real estate in New York, Paris and Hong Kong.`\
-https://nytimes.com/2024/12/12/arts/design/sothebys-auction-layoffs-drahi.html
-
-**Trump backs dockworkers on the East and Gulf coasts in a dispute over automation.**\
-`By Peter Eavis`\
-https://nytimes.com/live/2024/12/12/us/trump-administration-news/trump-backs-dockworkers-on-the-east-and-gulf-coasts-in-a-dispute-over-automation
 

@@ -1,3 +1,11 @@
+**Corrections: Dec. 13, 2024**\
+`Corrections that appeared in print on Friday, Dec. 13, 2024.`\
+https://nytimes.com/2024/12/12/pageoneplus/corrections-dec-13-2024.html
+
+**A Bagel Shop Closes, and the Upper West Side Is Absolutely Losing It**\
+`The neighborhood reaction to the sudden, mysterious closure of a Manhattan bagel shop was intense: “No no no no no no no no no no no!!”`\
+https://nytimes.com/2024/12/12/nyregion/nyc-absolute-bagels-closed.html
+
 **How the Mets won over Juan Soto and what's next: Takeaways**\
 `New York's pitch to Soto hit the right notes on what agent Scott Boras called the "human moments," caring for family and for the players. `\
 https://nytimes.com/athletic/5990928/2024/12/12/mets-won-juan-soto-whats-next-takeaways/
