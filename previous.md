@@ -1,3 +1,15 @@
+**Raiders' Jack Jones has grown on and off the field: 'Man, I've come a long way'**\
+`Raiders cornerbacks coach Ricky Manning Jr. on Jones: “He still has so much upside. He is only touching his potential, and he's so hungry."`\
+https://nytimes.com/athletic/5990409/2024/12/13/jack-jones-raiders-growth-antonio-pierce/
+
+**Trump Transition Live Updates: Amazon Joins Meta in Donating to Inauguration**\
+``\
+https://nytimes.com/live/2024/12/13/us/trump-transition-news
+
+**How Chargers' Quentin Johnston turned a drop into growth: 'That is you, so run with it'**\
+`Johnston rebounded to deliver an incredible catch last week against the Chiefs. "Might it be a defining moment? It might."`\
+https://nytimes.com/athletic/5991108/2024/12/13/quentin-johnston-chargers-drop-growth/
+
 **With al-Assad Gone, Syrians Seek Answers in an Underground Jail**\
 `Guided by cellphone flashlights, relatives searched a notorious lockup in Damascus for traces of loved ones who were snatched during the regime of Bashar al-Assad.`\
 https://nytimes.com/2024/12/13/world/middleeast/syria-al-assad-prisons-damascus.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5991670/2024/12/13/49ers-kyle-shanahan-season-over/
 **Breaking the Cycle of Childhood Poverty in New York**\
 `Children’s Aid provides essential help with food and housing for families in New York City, where tens of thousands of children live in poverty.`\
 https://nytimes.com/2024/12/13/opinion/communities-fund-childrens-aid.html
-
-**Turkey Emerges as a Big Winner in the Wake of al-Assad’s Ouster**\
-`President Recep Tayyip Erdogan had long worked with the rebels who overtook Damascus. His influence over Syria is now likely to grow.`\
-https://nytimes.com/2024/12/13/world/middleeast/turkey-syria-rebels-erdogan.html
-
-**Reloading the Oilers, trade needs and Connor McDavid's contract: Catching up with Jeff Jackson**\
-`After another slow start, the Oilers are finding their game and prepping for another run — and a big summer of contract intrigue.`\
-https://nytimes.com/athletic/5989709/2024/12/13/oilers-mcdavid-trades-jackson/
-
-**MLS agrees to continue to 'explore' potential competition changes**\
-`Calendar overhaul remains on the agenda after board of governors meeting in New York`\
-https://nytimes.com/athletic/5990854/2024/12/13/mls-governors-world-cup-2026-competitions/
 

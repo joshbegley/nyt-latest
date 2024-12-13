@@ -1,3 +1,15 @@
+**Raiders' Jack Jones has grown on and off the field: 'Man, I've come a long way'**\
+`Raiders cornerbacks coach Ricky Manning Jr. on Jones: “He still has so much upside. He is only touching his potential, and he's so hungry."`\
+https://nytimes.com/athletic/5990409/2024/12/13/jack-jones-raiders-growth-antonio-pierce/
+
+**Trump Transition Live Updates: Amazon Joins Meta in Donating to Inauguration**\
+``\
+https://nytimes.com/live/2024/12/13/us/trump-transition-news
+
+**How Chargers' Quentin Johnston turned a drop into growth: 'That is you, so run with it'**\
+`Johnston rebounded to deliver an incredible catch last week against the Chiefs. "Might it be a defining moment? It might."`\
+https://nytimes.com/athletic/5991108/2024/12/13/quentin-johnston-chargers-drop-growth/
+
 **With al-Assad Gone, Syrians Seek Answers in an Underground Jail**\
 `Guided by cellphone flashlights, relatives searched a notorious lockup in Damascus for traces of loved ones who were snatched during the regime of Bashar al-Assad.`\
 https://nytimes.com/2024/12/13/world/middleeast/syria-al-assad-prisons-damascus.html
