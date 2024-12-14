@@ -1,3 +1,7 @@
+**Will the NBA Cup predict the playoffs? What it could mean for final 4 teams**\
+`The Hawks and Bucks play each other at 4:30 p.m. ET on Saturday; the Thunder and Rockets play at 8 p.m. ET.`\
+https://nytimes.com/athletic/5993441/2024/12/13/nba-cup-bucks-hawks-thunder-rockets/
+
 **The Scene at the Premiere of ‘A Complete Unknown’**\
 `Timothée Chalamet, Elle Fanning and Edward Norton, stars of a new film tracing Bob Dylan’s ascent, packed a theater in Manhattan.`\
 https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993343/2024/12/13/fmf-liga-mx-commissioner-preside
 **Randy Moss shares cancer diagnosis in emotional Instagram video**\
 `The NFL icon and TV personality stepped away from ESPN earlier this month with an undisclosed health issue.`\
 https://nytimes.com/athletic/5993277/2024/12/13/randy-moss-cancer-diagnosis-instagram/
-
-**Crystal Mangum admits she lied about 2006 rape by Duke lacrosse players**\
-`"They didn’t deserve that, and I hope that they can forgive me,” Mangum said of the players on "Let's Talk With Kat."`\
-https://nytimes.com/athletic/5993142/2024/12/13/crystal-mangum-duke-lacrosse-players-rape/
 
