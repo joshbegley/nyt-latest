@@ -1,3 +1,7 @@
+**Hermansen injury to be assessed after half-time substitution - Van Nistelrooy**\
+`Ruud van Nistelrooy says Leicester City will assess the injury that forced goalkeeper Mads Hermansen to be replaced in the 4-0 defeat to Newcastle United on Saturday.`\
+https://nytimes.com/athletic/5994106/2024/12/14/mads-hermansen-injury-leicester/
+
 **O'Neil says Wolves players risk being 'replaced' unless results improve**\
 `Wolverhampton Wanderers manager Gary O’Neil has warned his players they will be replaced unless they improve before the start of the January transfer window.`\
 https://nytimes.com/athletic/5994146/2024/12/14/gary-oneil-wolves-ipswich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993980/2024/12/14/mikel-arteta-odegaard-rice-subs/
 **Brazilian Police Arrest Close Ally of Ex-President Bolsonaro, Official Says**\
 `Gen. Walter Braga Netto was Jair Bolsonaro’s running mate. The arrest was for meddling in an investigation into a plot to stage a coup, the police said.`\
 https://nytimes.com/2024/12/14/world/americas/brazil-arrest-ally-bolsonaro.html
-
-**The Briefing: Liverpool 2 Fulham 2 - Slot's team come from behind twice after Robertson red card**\
-`Andy Jones breaks down the key talking points from Saturday's game at Anfield`\
-https://nytimes.com/athletic/5989984/2024/12/14/liverpool-fulham-premier-league-result-analysis/
 
