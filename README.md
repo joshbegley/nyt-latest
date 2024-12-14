@@ -1,3 +1,7 @@
+**Cam Fowler trade doesn't deviate from Blues' retool plan, GM Doug Armstrong says**\
+`St. Louis acquired the veteran blueliner from Anaheim to help share the heavy minutes the Blues defensemen had been logging.`\
+https://nytimes.com/athletic/5994168/2024/12/14/blues-cam-fowler-trade/
+
 **Strong Storm Brings a Rarity in San Francisco: A Tornado Warning**\
 `Less than two weeks after a tsunami warning, residents were jolted awake before 6 a.m. to consider a new potential disaster scenario.`\
 https://nytimes.com/2024/12/14/us/storm-tornado-warning-sf-weather.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/12/14/us/politics/trump-hegseth-daniel-penny-army-navy-
 **Ducks' return in Cam Fowler trade isn't much, but their future is helped in an important way**\
 `Fowler had been part of a logjam on the Ducks' roster that now will be eased.`\
 https://nytimes.com/athletic/5994366/2024/12/14/ducks-fowler-trade-defensemen/
-
-**Why did the Bruins claim Oliver Wahlstrom off waivers? Because they can't score**\
-`The Bruins are hoping Wahlstrom can dust off his scoring touch for his new club.`\
-https://nytimes.com/athletic/5994335/2024/12/14/bruins-oliver-wahlstrom-waiver-claim/
 
