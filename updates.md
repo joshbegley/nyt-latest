@@ -1,3 +1,8 @@
+**Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
+`With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
+`\
+https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
+
 **Cam Fowler trade doesn't deviate from Blues' retool plan, GM Doug Armstrong says**\
 `St. Louis acquired the veteran blueliner from Anaheim to help share the heavy minutes the Blues defensemen had been logging.`\
 https://nytimes.com/athletic/5994168/2024/12/14/blues-cam-fowler-trade/
