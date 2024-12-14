@@ -1,3 +1,7 @@
+**Tea Supplier**\
+`Owen Bergstein makes a proud debut.`\
+https://nytimes.com/2024/12/13/crosswords/daily-puzzle-2024-12-14.html
+
 **Timothée Chalamet Looks Like Bob Dylan at ‘A Complete Unknown’ New York Premiere**\
 `The actor joined Elle Fanning and Edward Norton, stars of a new film tracing the musician’s ascent.`\
 https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
