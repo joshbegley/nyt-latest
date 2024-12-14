@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5993010/2024/12/14/winnipeg-jets-ville-heinola-loga
 `\
 https://nytimes.com/athletic/5993010/2024/12/14/winnipeg-jets-ville-heinola-logan-stanley/
 
+**Ville Heinola or Logan Stanley? Who's the solution to the Jets' third-pair problems?**\
+`Winnipeg's third defence pair of Heinola and Stanley is a short-term problem that is supposed to provide a long-term solution.
+`\
+https://nytimes.com/athletic/5993010/2024/12/14/winnipeg-jets-ville-heinola-logan-stanley/
+
 **Moody’s Downgrades France’s Credit Rating, Citing Political Turmoil**\
 `The action, which will put pressure on the nation’s borrowing costs, reflects doubt that a new government can mend the deteriorating financial situation.`\
 https://nytimes.com/2024/12/14/business/france-moodys-credit-rating-downgrade.html
