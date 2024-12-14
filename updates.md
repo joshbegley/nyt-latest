@@ -1,3 +1,7 @@
+**Biden Administration Is Said to Allow California to Ban New Gas-Powered Cars**\
+`California and 11 other states want to halt the sale of new gas-powered cars by 2035. President-elect Donald Trump is expected to try to stop them.`\
+https://nytimes.com/2024/12/13/climate/california-ban-gas-cars-electric-biden-trump.html
+
 **Cubs sign catcher Carson Kelly to 2-year, $11.5 million contract**\
 `Kelly has posted a 117 wRC+ against lefties in his career, making him a good partner behind the plate for Miguel Amaya.`\
 https://nytimes.com/athletic/5993439/2024/12/13/cubs-carson-kelly-free-agent-contract/
