@@ -1,8 +1,12 @@
+**MLS Cup final sees decrease in broadcast audience, a worrying trend since Apple deal**\
+`This year's MLS Cup final struggled going up against the most-watch college football game of the year.`\
+https://nytimes.com/athletic/5993457/2024/12/13/mls-cup-broadcast-audience-decreased/
+
 **Will the NBA Cup predict the playoffs? What it could mean for final 4 teams**\
 `The Hawks and Bucks play each other at 4:30 p.m. ET on Saturday; the Thunder and Rockets play at 8 p.m. ET.`\
 https://nytimes.com/athletic/5993441/2024/12/13/nba-cup-bucks-hawks-thunder-rockets/
 
-**The Scene at the Premiere of ‘A Complete Unknown’**\
+**The Scene at the New York Premiere of ‘A Complete Unknown’**\
 `Timothée Chalamet, Elle Fanning and Edward Norton, stars of a new film tracing Bob Dylan’s ascent, packed a theater in Manhattan.`\
 https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/business/us-court-tiktok-sale-or-ban.html
 **FMF, Liga MX commissioner president Juan Carlos Rodriguez resigns**\
 `Rodriguez was elected president of the Mexican Football Federation (FMF) in May of 2023.`\
 https://nytimes.com/athletic/5993343/2024/12/13/fmf-liga-mx-commissioner-president-juan-carlos-rodriguez-resigns/
-
-**Randy Moss shares cancer diagnosis in emotional Instagram video**\
-`The NFL icon and TV personality stepped away from ESPN earlier this month with an undisclosed health issue.`\
-https://nytimes.com/athletic/5993277/2024/12/13/randy-moss-cancer-diagnosis-instagram/
 

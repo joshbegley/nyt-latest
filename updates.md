@@ -1,3 +1,11 @@
+**MLS Cup final sees decrease in broadcast audience, a worrying trend since Apple deal**\
+`This year's MLS Cup final struggled going up against the most-watch college football game of the year.`\
+https://nytimes.com/athletic/5993457/2024/12/13/mls-cup-broadcast-audience-decreased/
+
+**The Scene at the New York Premiere of ‘A Complete Unknown’**\
+`Timothée Chalamet, Elle Fanning and Edward Norton, stars of a new film tracing Bob Dylan’s ascent, packed a theater in Manhattan.`\
+https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
+
 **Will the NBA Cup predict the playoffs? What it could mean for final 4 teams**\
 `The Hawks and Bucks play each other at 4:30 p.m. ET on Saturday; the Thunder and Rockets play at 8 p.m. ET.`\
 https://nytimes.com/athletic/5993441/2024/12/13/nba-cup-bucks-hawks-thunder-rockets/
