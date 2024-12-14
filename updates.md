@@ -1,3 +1,11 @@
+**Vote For the Best Metropolitan Diary Entry of 2024**\
+`We will have published 250 Diary entries this year by the end of December. We need your help choosing the best. New York Times editors narrowed the field to five finalists. Now it’s up to you to vote for your favorite.`\
+https://nytimes.com/interactive/2024/nyregion/metropolitan-diary-contest-2024.html
+
+**Alexander-Arnold refusing to rule Man City out of Premier League title race**\
+`Trent Alexander-Arnold is refusing to rule Manchester City out of the title race despite their continued poor run of form.`\
+https://nytimes.com/athletic/5993726/2024/12/14/alexander-arnold-liverpool-man-city-title-race/
+
 **State of the Blues under Jim Montgomery: Assessing 5 areas of focus so far**\
 `The Blues' 4-3 loss to San Jose Thursday exposed some more areas where the team can improve.`\
 https://nytimes.com/athletic/5991378/2024/12/14/blues-jim-montgomery-analysis/
