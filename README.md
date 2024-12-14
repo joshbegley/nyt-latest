@@ -1,7 +1,3 @@
-**Alexander-Arnold refusing to rule Man City out of Premier League title race**\
-`Trent Alexander-Arnold is refusing to rule Manchester City out of the title race despite their continued poor run of form.`\
-https://nytimes.com/athletic/5993726/2024/12/14/alexander-arnold-liverpool-man-city-title-race/
-
 **State of the Blues under Jim Montgomery: Assessing 5 areas of focus so far**\
 `The Blues' 4-3 loss to San Jose Thursday exposed some more areas where the team can improve.`\
 https://nytimes.com/athletic/5991378/2024/12/14/blues-jim-montgomery-analysis/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/14/opinion/menendez-brothers-abuse.html
 **The Ubiquity of ‘Wicked’ and How Commerce Is Dictating Culture**\
 `The movie’s marketing push, involving 400 tie-ins with other brands, shows how our culture has become littered with increasingly formulaic and meaningless collaborations.`\
 https://nytimes.com/2024/12/14/opinion/wicked-marketing-collaboration-culture.html
+
+**Applying Psychotherapy to Heal Our Political Divide**\
+`Readers respond to an essay by a couples therapist.`\
+https://nytimes.com/2024/12/14/opinion/psychotherapy-political-divide.html
 
