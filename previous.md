@@ -1,3 +1,7 @@
+**Georgian Lawmakers Hand Presidency to Far-Right Former Soccer Star**\
+`The vote, boycotted by opposition parties in Parliament, sets up a standoff with the sitting president and deepens turmoil in the country after protests and a disputed election.`\
+https://nytimes.com/2024/12/14/world/europe/georgia-president-election-russia.html
+
 **Auburn signs Oklahoma transfer QB Jackson Arnold**\
 `Can Arnold, a five-star recruit in the Class of 2023, unlock his potential Hugh Freeze at Auburn after uneven results at Oklahoma?`\
 https://nytimes.com/athletic/5993811/2024/12/14/jackson-arnold-auburn-transfer-oklahoma/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993726/2024/12/14/alexander-arnold-liverpool-man-c
 **State of the Blues under Jim Montgomery: Assessing 5 areas of focus so far**\
 `The Blues' 4-3 loss to San Jose Thursday exposed some more areas where the team can improve.`\
 https://nytimes.com/athletic/5991378/2024/12/14/blues-jim-montgomery-analysis/
-
-**Can We Make Pop Culture Great Again?**\
-`Worrying that even if the rest of American society starts moving, our storytelling is still going to be stuck.`\
-https://nytimes.com/2024/12/14/opinion/pop-culture-glicked.html
 

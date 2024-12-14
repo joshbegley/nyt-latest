@@ -1,3 +1,7 @@
+**Georgian Lawmakers Hand Presidency to Far-Right Former Soccer Star**\
+`The vote, boycotted by opposition parties in Parliament, sets up a standoff with the sitting president and deepens turmoil in the country after protests and a disputed election.`\
+https://nytimes.com/2024/12/14/world/europe/georgia-president-election-russia.html
+
 **Auburn signs Oklahoma transfer QB Jackson Arnold**\
 `Can Arnold, a five-star recruit in the Class of 2023, unlock his potential Hugh Freeze at Auburn after uneven results at Oklahoma?`\
 https://nytimes.com/athletic/5993811/2024/12/14/jackson-arnold-auburn-transfer-oklahoma/
