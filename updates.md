@@ -1,3 +1,11 @@
+**The Message: Impeach South Korea’s President. The Tune: ‘Feliz Navidad.’**\
+`Baek Jae Gil, whose viral anthem calls for the ouster of President Yoon Suk Yeol, has a long history with the country’s pro-democracy movement.`\
+https://nytimes.com/2024/12/13/world/asia/south-korea-protest-feliz-navidad.html
+
+**South Korea’s President Faces New Impeachment Vote**\
+`President Yoon Suk Yeol’s ruling party blocked the opposition’s first attempt a week ago after his short-lived attempt to declare martial law.`\
+https://nytimes.com/2024/12/13/world/asia/south-korea-president-yoon-impeach.html
+
 **C.E.O.’s Killing Poses Early Test for New N.Y.P.D. Commissioner**\
 `Weeks ago, Jessica Tisch was in charge of street sweeping and trash pickup. On Monday, she found herself overseeing a ferocious manhunt as the head of the Police Department.`\
 https://nytimes.com/2024/12/13/nyregion/jessica-tisch-nypd-unitedhealthcare.html

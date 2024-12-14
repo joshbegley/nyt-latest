@@ -1,3 +1,11 @@
+**The Message: Impeach South Korea’s President. The Tune: ‘Feliz Navidad.’**\
+`Baek Jae Gil, whose viral anthem calls for the ouster of President Yoon Suk Yeol, has a long history with the country’s pro-democracy movement.`\
+https://nytimes.com/2024/12/13/world/asia/south-korea-protest-feliz-navidad.html
+
+**South Korea’s President Faces New Impeachment Vote**\
+`President Yoon Suk Yeol’s ruling party blocked the opposition’s first attempt a week ago after his short-lived attempt to declare martial law.`\
+https://nytimes.com/2024/12/13/world/asia/south-korea-president-yoon-impeach.html
+
 **C.E.O.’s Killing Poses Early Test for New N.Y.P.D. Commissioner**\
 `Weeks ago, Jessica Tisch was in charge of street sweeping and trash pickup. On Monday, she found herself overseeing a ferocious manhunt as the head of the Police Department.`\
 https://nytimes.com/2024/12/13/nyregion/jessica-tisch-nypd-unitedhealthcare.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5993290/2024/12/13/cal-football-nick-rolovich-washi
 **Astros GM doesn't think team will trade starter Framber Valdez**\
 `"I don’t think we’re going to trade Valdez," Dana Brown said. "I think he’s a pillar and it’s really tough to keep a rotation intact.”`\
 https://nytimes.com/athletic/5993425/2024/12/13/astros-framber-valdez-trade-possibility/
-
-**Biden Administration Is Said to Allow California to Ban New Gas-Powered Cars**\
-`California and 11 other states want to halt the sale of new gas-powered cars by 2035. President-elect Donald Trump is expected to try to stop them.`\
-https://nytimes.com/2024/12/13/climate/california-ban-gas-cars-electric-biden-trump.html
-
-**Cubs sign catcher Carson Kelly to 2-year, $11.5 million contract**\
-`Kelly has posted a 117 wRC+ against lefties in his career, making him a good partner behind the plate for Miguel Amaya.`\
-https://nytimes.com/athletic/5993439/2024/12/13/cubs-carson-kelly-free-agent-contract/
 
