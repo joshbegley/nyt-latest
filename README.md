@@ -1,3 +1,11 @@
+**The Impeachment of South Korea’s President, Explained**\
+`In its second attempt, the National Assembly moved to force President Yoon Suk Yeol from office. But the troubles for him and his country are far from over.`\
+https://nytimes.com/2024/12/14/world/asia/south-korea-impeachment-yoon-explained.html
+
+**Wolves' Cunha in altercation with Ipswich staff member**\
+`Wolverhampton Wanderers striker Matheus Cunha could face punishment after a post-match altercation that allegedly left an Ipswich security guard’s glasses broken.`\
+https://nytimes.com/athletic/5994252/2024/12/14/matheus-cunha-ipswich-altercation/
+
 **Thanks to a Prank, Sculptures Make Googly Eyes at Oregon Residents**\
 `The eyes were attached to eight installations, to the delight of residents. City officials, who lamented the cost of repairs, were less amused.`\
 https://nytimes.com/2024/12/14/us/googly-eyes-sculptures-bend-oregon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/14/us/cyberattack-rhode-island-ribridges-snap-medica
 **Hermansen injury to be assessed after half-time substitution - Van Nistelrooy**\
 `Ruud van Nistelrooy says Leicester City will assess the injury that forced goalkeeper Mads Hermansen to be replaced in the 4-0 defeat to Newcastle United on Saturday.`\
 https://nytimes.com/athletic/5994106/2024/12/14/mads-hermansen-injury-leicester/
-
-**O'Neil says Wolves players risk being 'replaced' unless results improve**\
-`Wolverhampton Wanderers manager Gary O’Neil has warned his players they will be replaced unless they improve before the start of the January transfer window.`\
-https://nytimes.com/athletic/5994146/2024/12/14/gary-oneil-wolves-ipswich/
-
-**Bill Belichick's first win: Top-100 QB Bryce Baker reaffirms commitment to UNC**\
-`The North Carolina native and longtime UNC commit was leaning toward signing with Penn State. That changed after one call with Belichick.`\
-https://nytimes.com/athletic/5993782/2024/12/14/bill-belichick-recruiting-bryce-baker-qb/
 
