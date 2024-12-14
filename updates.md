@@ -1,3 +1,7 @@
+**Lakers reminded of LeBron James’ importance as offense sputters vs. Timberwolves**\
+`The Lakers' offense struggled in Minnesota as Lebron James' return remains unclear`\
+https://nytimes.com/athletic/5993299/2024/12/14/lakers-timberwolves-lebron-james-anthony-davis-anthony-edwards-nba/
+
 **South Korea’s President Is Impeached After Martial Law Crisis**\
 `Some members of President Yoon Suk Yeol’s own party helped remove him from office. But the political uncertainty is far from over.`\
 https://nytimes.com/2024/12/14/world/asia/south-korea-president-impeached-martial-law.html

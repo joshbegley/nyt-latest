@@ -1,3 +1,7 @@
+**Lakers reminded of LeBron James’ importance as offense sputters vs. Timberwolves**\
+`The Lakers' offense struggled in Minnesota as Lebron James' return remains unclear`\
+https://nytimes.com/athletic/5993299/2024/12/14/lakers-timberwolves-lebron-james-anthony-davis-anthony-edwards-nba/
+
 **South Korea’s President Is Impeached After Martial Law Crisis**\
 `Some members of President Yoon Suk Yeol’s own party helped remove him from office. But the political uncertainty is far from over.`\
 https://nytimes.com/2024/12/14/world/asia/south-korea-president-impeached-martial-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/14/opinion/obstetric-fistula-recovery.html
 **What Do You Say to a Young Person Who Admires the Unabomber?**\
 `To some disaffected young Americans, the ruthlessly intellectualized turn to violence can seem justified. It is not.`\
 https://nytimes.com/2024/12/14/opinion/united-health-ceo-killing-unabomber.html
-
-**NHL mock trade proposals: One tantalizing target for each team. Could any deals happen?**\
-`The Athletic's NHL staff proposes one trade target for each team, evaluates the cost and whether a deal is realistic or even worth it.`\
-https://nytimes.com/athletic/5990507/2024/12/14/nhl-trade-rumors-top-targets/
 
