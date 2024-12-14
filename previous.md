@@ -1,3 +1,11 @@
+**No Evidence Drones in Northeast Are a Threat, Officials Say**\
+`Numerous sightings of flying objects in recent weeks have raised alarm, but federal law enforcement officials say that at least some were manned aircraft, such as airplanes or helicopters.`\
+https://nytimes.com/2024/12/14/us/politics/drones-northeast-new-jersey.html
+
+**Bob Fernandez, Who Survived Pearl Harbor as a Teenager, Dies at 100**\
+`Mr. Fernandez was a 17-year-old sailor aboard the U.S.S. Curtiss when Japanese forces attacked. He had recently canceled a trip to Hawaii for the 83rd anniversary of the bombing.`\
+https://nytimes.com/2024/12/14/us/bob-fernandez-dead-pearl-harbor.html
+
 **South Koreans Celebrate the President’s Impeachment in Seoul**\
 `A dozen members of President Yoon Suk Yeol’s own party helped remove him from office. Lawmakers sought to impeach the president after his declaration of martial law drew public outrage.`\
 https://nytimes.com/video/world/asia/100000009878559/south-korea-impeachment-vote.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5994335/2024/12/14/bruins-oliver-wahlstrom-waiver-c
 **Hezbollah Loses Supply Route Through Syria, in Blow to It and Iran**\
 `The militant group’s leader admits that the toppling of Syria’s president, Bashar al-Assad, cut off an important land route from Iran.`\
 https://nytimes.com/2024/12/14/world/middleeast/hezbollah-supply-route-syria.html
-
-**ABC to Pay $15 Million to Settle a Defamation Suit Brought by Trump**\
-`The outcome of the lawsuit marks an unusual victory for President-elect Donald J. Trump in his ongoing legal campaign against national news organizations.`\
-https://nytimes.com/2024/12/14/us/politics/trump-abc-settlement.html
-
-**The Impeachment of South Korea’s President, Explained**\
-`In its second attempt, the National Assembly moved to force President Yoon Suk Yeol from office. But the troubles for him and his country are far from over.`\
-https://nytimes.com/2024/12/14/world/asia/south-korea-impeachment-yoon-explained.html
 
