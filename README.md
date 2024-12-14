@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5993457/2024/12/13/mls-cup-broadcast-audience-decre
 https://nytimes.com/athletic/5993441/2024/12/13/nba-cup-bucks-hawks-thunder-rockets/
 
 **The Scene at the New York Premiere of ‘A Complete Unknown’**\
-`Timothée Chalamet, Elle Fanning and Edward Norton, stars of a new film tracing Bob Dylan’s ascent, packed a theater in Manhattan.`\
+`A blond Timothée Chalamet joined Elle Fanning and Edward Norton, stars of a new film tracing Bob Dylan’s ascent.`\
 https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
 
 **Cal hires former Washington State coach Nick Rolovich as offensive assistant**\
