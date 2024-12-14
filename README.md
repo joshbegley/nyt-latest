@@ -1,3 +1,15 @@
+**What makes Frank special: 'Secret sauce', training for stoppage time - and games of Risk**\
+`What makes the Dane stand out on and off the field - according to those who know him best`\
+https://nytimes.com/athletic/5989110/2024/12/14/thomas-frank-brentford-manager-special/
+
+**Endrick has played 71 league minutes this season. His Madrid career is yet to burst to life**\
+`The Brazlian is not getting the playing time he would have hoped for after 18 months of waiting for his move to Madrid. What's going on?`\
+https://nytimes.com/athletic/5992275/2024/12/14/endrick-real-madrid-la-liga/
+
+**Vomit, hostility and a proper rivalry: What Amorim can expect from his first Manchester derby**\
+`Solskjaer, Cole and Evra on arriving and playing at Maine Road, winning three in a row at the Etihad and why this is a proper derby`\
+https://nytimes.com/athletic/5987484/2024/12/14/ruben-amorim-manchester-derby/
+
 **Why are two Premier League matches kicking off at 7pm this Sunday?**\
 `Chelsea v Brentford and Southampton v Tottenham are both scheduled for late on Sunday evening - here's why`\
 https://nytimes.com/athletic/5989149/2024/12/14/why-are-two-premier-league-matches-kicking-off-at-7pm-this-sunday/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/13/world/asia/south-korea-protest-feliz-navidad.html
 **South Korea’s President Faces New Impeachment Vote**\
 `President Yoon Suk Yeol’s ruling party blocked the opposition’s first attempt a week ago after his short-lived attempt to declare martial law.`\
 https://nytimes.com/2024/12/13/world/asia/south-korea-president-yoon-impeach.html
-
-**C.E.O.’s Killing Poses Early Test for New N.Y.P.D. Commissioner**\
-`Weeks ago, Jessica Tisch was in charge of street sweeping and trash pickup. On Monday, she found herself overseeing a ferocious manhunt as the head of the Police Department.`\
-https://nytimes.com/2024/12/13/nyregion/jessica-tisch-nypd-unitedhealthcare.html
-
-**Tea Supplier**\
-`Owen Bergstein makes a proud debut.`\
-https://nytimes.com/2024/12/13/crosswords/daily-puzzle-2024-12-14.html
-
-**Dana Brown's Astros tenure will be defined by his trade of Kyle Tucker**\
-`After making the Astros' first trade of an All-Star in over a decade, Brown is tasked with maintaining the team's status as a contender.`\
-https://nytimes.com/athletic/5993511/2024/12/13/astros-dana-brown-gm-tenure-kyle-tucker-trade/
 
