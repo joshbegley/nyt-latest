@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zucc
 `\
 https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
 
+**Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
+`With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
+`\
+https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
+
 **No Evidence Drones in Northeast Are a Threat, Officials Say**\
 `Numerous sightings of flying objects in recent weeks have raised alarm, but federal law enforcement officials say that at least some were manned aircraft, such as airplanes or helicopters.`\
 https://nytimes.com/2024/12/14/us/politics/drones-northeast-new-jersey.html
