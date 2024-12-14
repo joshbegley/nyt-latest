@@ -1,3 +1,7 @@
+**Tea Supplier**\
+`Owen Bergstein makes a proud debut.`\
+https://nytimes.com/2024/12/13/crosswords/daily-puzzle-2024-12-14.html
+
 **Dana Brown's Astros tenure will be defined by his trade of Kyle Tucker**\
 `After making the Astros' first trade of an All-Star in over a decade, Brown is tasked with maintaining the team's status as a contender.`\
 https://nytimes.com/athletic/5993511/2024/12/13/astros-dana-brown-gm-tenure-kyle-tucker-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993439/2024/12/13/cubs-carson-kelly-free-agent-con
 **JJ Redick says he doesn't know when LeBron James will rejoin Lakers**\
 `The Lakers next play Sunday in Los Angeles against the Memphis Grizzlies.`\
 https://nytimes.com/athletic/5993379/2024/12/13/lebron-james-lakers-jj-redick-return/
-
-**U.S. Court Denies TikTok’s Request to Freeze Sale-or-Ban Law**\
-`TikTok had sought to temporarily freeze a law that requires its Chinese parent to sell the app or face a U.S. ban next month. The case may now head to the Supreme Court.`\
-https://nytimes.com/2024/12/13/business/us-court-tiktok-sale-or-ban.html
 
