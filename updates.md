@@ -1,3 +1,7 @@
+**Cal hires former Washington State coach Nick Rolovich as offensive assistant**\
+`It's Rolovich's first college job since he was fired by Wazzu in 2021 for failure to comply with the state's COVID-19 vaccine mandate.`\
+https://nytimes.com/athletic/5993290/2024/12/13/cal-football-nick-rolovich-washington-state/
+
 **Astros GM doesn't think team will trade starter Framber Valdez**\
 `"I don’t think we’re going to trade Valdez," Dana Brown said. "I think he’s a pillar and it’s really tough to keep a rotation intact.”`\
 https://nytimes.com/athletic/5993425/2024/12/13/astros-framber-valdez-trade-possibility/
