@@ -1,3 +1,7 @@
+**A's acquiring Jeffrey Springs from Rays to boost starting rotation**\
+`The trade moves the Athletics closer to avoiding a grievance with the Major League Baseball Players Association.`\
+https://nytimes.com/athletic/5994073/2024/12/14/jeffrey-springs-trade-athletics-rays/
+
 **Arteta explains Odegaard, Rice substitutions**\
 `Mikel Arteta has explained his decision to substitute Martin Odegaard and Declan Rice during the second half of Arsenal&#8217;s goalless draw at home to Everton.`\
 https://nytimes.com/athletic/5993980/2024/12/14/mikel-arteta-odegaard-rice-subs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/14/dining/its-time-for-nutella-tres-leches-cake.html
 **Bompastor 'frustrated' after Chelsea's perfect start ended by Leicester**\
 `Sonia Bompastor was left frustrated after Chelsea&#8217;s perfect start to the season was ended by Leicester City.`\
 https://nytimes.com/athletic/5993874/2024/12/14/chelsea-women-leicester-result-bompastor/
-
-**Astros emerge as serious suitor for Nolan Arenado: Sources**\
-`Arenado is a 10-time Gold Glove winner, an eight-time All-Star and considered one of this generation’s greatest defensive third basemen. `\
-https://nytimes.com/athletic/5993876/2024/12/14/astros-nolan-arenado-trade-suitor/
 
