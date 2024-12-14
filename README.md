@@ -1,3 +1,7 @@
+**Auburn signs Oklahoma transfer QB Jackson Arnold**\
+`Can Arnold, a five-star recruit in the Class of 2023, unlock his potential Hugh Freeze at Auburn after uneven results at Oklahoma?`\
+https://nytimes.com/athletic/5993811/2024/12/14/jackson-arnold-auburn-transfer-oklahoma/
+
 **How to watch Louisville vs. Kentucky: Fifth-ranked Wildcats huge favorites in rivalry game**\
 `Louisville and Kentucky have first-year coaches pacing the respective sidelines. Read here for how to watch, the odds and past history.`\
 https://nytimes.com/athletic/5993553/2024/12/14/louisville-kentucky-how-to-watch-odds-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5991378/2024/12/14/blues-jim-montgomery-analysis/
 **Can We Make Pop Culture Great Again?**\
 `Worrying that even if the rest of American society starts moving, our storytelling is still going to be stuck.`\
 https://nytimes.com/2024/12/14/opinion/pop-culture-glicked.html
-
-**To Understand the Murdochs, See ‘Succession’ Season Three, Episode Seven**\
-`“I love each of my children,” said the patriarch. “But these companies need a designated leader.”`\
-https://nytimes.com/2024/12/14/opinion/rupert-murdoch-succession-lachlan-james-fox.html
 
