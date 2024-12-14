@@ -1,3 +1,28 @@
+**Ville Heinola or Logan Stanley? Who's the solution to the Jets' third-pair problems?**\
+`Winnipeg's third defence pair of Heinola and Stanley is a short-term problem that is supposed to provide a long-term solution.
+`\
+https://nytimes.com/athletic/5993010/2024/12/14/winnipeg-jets-ville-heinola-logan-stanley/
+
+**What sticks NHL players use and why: Bauer, CCM or Warrior? Flex? Kick?**\
+`How do shifty playmakers and stay-at-home defensemen and snipers customize their sticks to maximize their game? Here's what they say.`\
+https://nytimes.com/athletic/5967500/2024/12/14/bauer-ccm-warrior-nhl-players-hockey-sticks/
+
+**A Rare Cross-Canada Political Consensus Forms Against Trump’s Border Threat**\
+`Canadian leaders agreed to tighten the border, but not on how to respond if President-elect Donald J. Trump follows through on 25 percent tariffs.`\
+https://nytimes.com/2024/12/14/world/canada/canada-consensus-trump-border.html
+
+**When will the Cubs again spend on the top free agents? Kyle Tucker might provide the answer**\
+`Giving up three players, including a top-100 prospect, for a star like Tucker was a leap outside the Cubs' comfort zone.`\
+https://nytimes.com/athletic/5993632/2024/12/14/cubs-kyle-tucker-free-agency-spending/
+
+**The Connections Companion No. 553**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 15, 2024.`\
+https://nytimes.com/2024/12/14/crosswords/connections-companion-553.html
+
+**Wordle Review No. 1,275**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 15, 2024.`\
+https://nytimes.com/2024/12/14/crosswords/wordle-review-1275.html
+
 **Rick Steves Refuses to Get Cynical About the World**\
 `The guidebook writer and television personality reflects on his cancer diagnosis, social media’s corrosive effect on tourism and the transformative power of travel.`\
 https://nytimes.com/2024/12/14/magazine/rick-steves-interview.html
@@ -13,28 +38,4 @@ https://nytimes.com/athletic/5992364/2024/12/14/jimmy-butler-heat-nba-trade-rumo
 **NFL Week 15 roundtable: Bills-Lions, Sam Darnold's Vikings future, Eagles drama**\
 `A Bills-Lions showdown leads the way as our writers tackle all things Week 15.`\
 https://nytimes.com/athletic/5993028/2024/12/14/nfl-week-15-lions-bills-eagles-vikings/
-
-**Syria Shudders as Assad’s Prison Atrocities Come Into the Light**\
-`At the country’s most notorious prison, Syrians confront their worst fears: that they will never know what happened to the loved ones who disappeared.`\
-https://nytimes.com/2024/12/14/world/middleeast/syria-sednaya-prison-assad-atrocities.html
-
-**In Display of Fealty, Tech Industry Curries Favor With Trump**\
-`It was a week of frenzied activity, as Silicon Valley billionaires and their companies brandished checks and compliments for the President-elect.`\
-https://nytimes.com/2024/12/14/technology/trump-tech-amazon-meta-openai.html
-
-**Trump’s Transition Business Largely Happens After Night Falls**\
-`At his Mar-a-Lago club in Florida, the president-elect has been hosting diplomatic dinners, announcing cabinet picks and firing off texts to his aides — all after the sun goes down.`\
-https://nytimes.com/2024/12/14/us/politics/trump-diplomacy-night-mar-a-lago.html
-
-**Cajole, Plead and Flatter: Ukraine Makes Its Case to Trump**\
-`Using diplomacy, flattery and the occasional shot in the dark, Ukraine is doing everything it can to win over President-elect Donald J. Trump to its side.`\
-https://nytimes.com/2024/12/14/world/europe/trump-ukraine-russia.html
-
-**An Artist Who Has Something in Common With Her Subjects**\
-`Rachel Handlin is possibly the first person with Down syndrome to receive an M.F.A., and one of just a few to hold a bachelor’s. Her first solo show features her portraits of others like her.`\
-https://nytimes.com/2024/12/14/style/rachel-handlin-white-columns-art-gallery.html
-
-**Why Democrats Lost More Seats in Vermont Than Any Other State**\
-`Even though Kamala Harris easily won the state, voters ousted more than two dozen Democratic legislators, who they felt had not addressed an affordability crisis.`\
-https://nytimes.com/2024/12/14/us/vermont-election-democrats-republicans.html
 
