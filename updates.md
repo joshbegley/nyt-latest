@@ -1,3 +1,11 @@
+**Silva heaps praise on Robinson after two-assist performance vs. Liverpool**\
+`Marco Silva says Antonee Robinson’s performance against Liverpool was so impressive that it left him lost for words.`\
+https://nytimes.com/athletic/5994076/2024/12/14/antonee-robinson-fulham-liverpool-usmnt/
+
+**New Mexico hiring Idaho's Jason Eck as coach: Source**\
+`Jason Eck led Idaho to three consecutive FCS playoff bids and takes over as coach of New Mexico after Bronco Mendenhall left for Utah State.`\
+https://nytimes.com/athletic/5993995/2024/12/14/jason-eck-new-mexico-coach-idaho/
+
 **A's acquiring Jeffrey Springs from Rays to boost starting rotation**\
 `The trade moves the Athletics closer to avoiding a grievance with the Major League Baseball Players Association.`\
 https://nytimes.com/athletic/5994073/2024/12/14/jeffrey-springs-trade-athletics-rays/
