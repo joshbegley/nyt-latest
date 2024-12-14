@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5993457/2024/12/13/mls-cup-broadcast-audience-decre
 https://nytimes.com/athletic/5993441/2024/12/13/nba-cup-bucks-hawks-thunder-rockets/
 
 **Timothée Chalamet Looks Like Bob Dylan at ‘A Complete Unknown’ New York Premiere**\
-`A blond Timothée Chalamet joined Elle Fanning and Edward Norton, stars of a new film tracing Bob Dylan’s ascent.`\
+`The actor joined Elle Fanning and Edward Norton, stars of a new film tracing the musician’s ascent.`\
 https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
 
 **Cal hires former Washington State coach Nick Rolovich as offensive assistant**\
