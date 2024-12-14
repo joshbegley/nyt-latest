@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5994487/2024/12/14/louisville-miller-moss-transfer-
 https://nytimes.com/2024/12/14/obituaries/isak-andic-dead.html
 
 **'This is bad': After another embarrassing display, more changes surely coming for Rangers**\
-`Someone's going to pay for this mess but it doesn't appear that one player or coach is the source of all of New York's problems right now.`\
+`Someone's going to pay for this mess, but it doesn't appear that one player or coach is the source of all of New York's problems.`\
 https://nytimes.com/athletic/5994328/2024/12/14/rangers-kings-peter-laviolette-coach/
 
 **Oregon adds Purdue standout DB Dillon Thieneman from portal**\

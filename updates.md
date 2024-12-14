@@ -1,3 +1,7 @@
+**'This is bad': After another embarrassing display, more changes surely coming for Rangers**\
+`Someone's going to pay for this mess, but it doesn't appear that one player or coach is the source of all of New York's problems.`\
+https://nytimes.com/athletic/5994328/2024/12/14/rangers-kings-peter-laviolette-coach/
+
 **Louisville lands USC transfer quarterback Miller Moss: Source**\
 `Moss also considered Missouri, but Louisville and Jeff Brohm’s quarterback-friendly offense won out for the Southern California native. `\
 https://nytimes.com/athletic/5994487/2024/12/14/louisville-miller-moss-transfer-quarterback/
