@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/14/world/americas/brazil-arrest-ally-bolsonaro.html
 `Andy Jones breaks down the key talking points from Saturday's game at Anfield`\
 https://nytimes.com/athletic/5989984/2024/12/14/liverpool-fulham-premier-league-result-analysis/
 
-**The Briefing: Arsenal 0 Everton 0 - Frustration for Arteta, a need for speed and faith in Lewis-Skelly**\
+**The Briefing: Arsenal 0 Everton 0 - Frustration for Arteta, a need for speed, and faith in Lewis-Skelly**\
 `Art de Roche analyses the key talking points from Arsenal's goalless draw with Everton`\
 https://nytimes.com/athletic/5989982/2024/12/14/arsenal-everton-analysis/
 
