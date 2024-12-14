@@ -1,3 +1,7 @@
+**ABC to Pay $15 Million to Settle a Defamation Suit Brought by Trump**\
+`The outcome of the lawsuit marks an unusual victory for President-elect Donald J. Trump in his ongoing legal campaign against national news organizations.`\
+https://nytimes.com/2024/12/14/us/politics/trump-abc-settlement.html
+
 **The Impeachment of South Korea’s President, Explained**\
 `In its second attempt, the National Assembly moved to force President Yoon Suk Yeol from office. But the troubles for him and his country are far from over.`\
 https://nytimes.com/2024/12/14/world/asia/south-korea-impeachment-yoon-explained.html
