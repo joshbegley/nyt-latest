@@ -1,3 +1,7 @@
+**Marshall withdrawing from Independence Bowl vs. Army**\
+`The departure of coach Charles Huff sparked a roster exodus that included more than 20 players hitting the transfer portal and opting out.`\
+https://nytimes.com/athletic/5994241/2024/12/14/marshall-withdrawing-independence-bowl-army/
+
 **Ryan Reynolds, Channing Tatum and a big weekend out in Wrexham (via the Fat Boar)**\
 `Ryan Reynolds and some celebrity friends were in Wrexham over the weekend to watch the game - and see what the town has to offer`\
 https://nytimes.com/athletic/5993738/2024/12/14/ryan-reynolds-wrexham-channing-tatum/
