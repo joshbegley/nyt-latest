@@ -1,3 +1,7 @@
+**Palestinian Authority Vows West Bank Raids Against Militants**\
+`The Authority has struggled to crack down on powerful armed groups in the territory.`\
+https://nytimes.com/2024/12/14/world/middleeast/palestinian-authority-west-bank-israel.html
+
 **Sweet Season**\
 `The holidays are upon us. It’s time to start baking.`\
 https://nytimes.com/2024/12/14/briefing/sweet-season.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/12/14/magazine/rick-steves-interview.html
 **Rick Steves Refuses to Get Cynical About the World**\
 `The guidebook writer and television personality reflects on his cancer diagnosis, social media’s corrosive effect on tourism and the transformative power of travel.`\
 https://nytimes.com/video/podcasts/100000009872619/rick-steves-world-travel-interview.html
-
-**What's going on with Jimmy Butler and the Heat? What we know about his trade market**\
-`Jimmy Butler and the Heat seem destined to divorce. Nothing has approached a serious offer, but even being willing to listen is a change.`\
-https://nytimes.com/athletic/5992364/2024/12/14/jimmy-butler-heat-nba-trade-rumors/
 
