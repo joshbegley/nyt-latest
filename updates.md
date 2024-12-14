@@ -1,3 +1,11 @@
+**The Impeachment of South Korea’s President, Explained**\
+`In its second attempt, the National Assembly moved to force President Yoon Suk Yeol from office. But the troubles for him and his country are far from over.`\
+https://nytimes.com/2024/12/14/world/asia/south-korea-impeachment-yoon-explained.html
+
+**Wolves' Cunha in altercation with Ipswich staff member**\
+`Wolverhampton Wanderers striker Matheus Cunha could face punishment after a post-match altercation that allegedly left an Ipswich security guard’s glasses broken.`\
+https://nytimes.com/athletic/5994252/2024/12/14/matheus-cunha-ipswich-altercation/
+
 **Thanks to a Prank, Sculptures Make Googly Eyes at Oregon Residents**\
 `The eyes were attached to eight installations, to the delight of residents. City officials, who lamented the cost of repairs, were less amused.`\
 https://nytimes.com/2024/12/14/us/googly-eyes-sculptures-bend-oregon.html
