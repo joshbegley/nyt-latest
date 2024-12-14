@@ -1,3 +1,7 @@
+**Hermansen injury to be assessed after half-time substitution - Van Nistelrooy**\
+`Ruud van Nistelrooy says Leicester City will assess the injury that forced goalkeeper Mads Hermansen to be replaced in the 4-0 defeat to Newcastle United on Saturday.`\
+https://nytimes.com/athletic/5994106/2024/12/14/mads-hermansen-injury-leicester/
+
 **O'Neil says Wolves players risk being 'replaced' unless results improve**\
 `Wolverhampton Wanderers manager Gary O’Neil has warned his players they will be replaced unless they improve before the start of the January transfer window.`\
 https://nytimes.com/athletic/5994146/2024/12/14/gary-oneil-wolves-ipswich/
