@@ -1,3 +1,11 @@
+**Athletics bolster rotation with Jeffrey Springs, Rays add projects, pick: Law**\
+`The A's now have a respectable top-three in their rotation, while Tampa sheds salary and adds a couple of intriguing prospects.`\
+https://nytimes.com/athletic/5994258/2024/12/14/athletics-rays-jeffrey-springs-trade-analysis/
+
+**Forest can compete against any Premier League team - Nuno**\
+`Nuno Espirito Santo believes Nottingham Forest &#8220;can compete&#8221; against any team in the Premier League after seeing his side climb into the Champions League qualification places with a dramatic win over Aston Villa.`\
+https://nytimes.com/athletic/5994307/2024/12/14/nottingham-forest-nuno-aston-villa/
+
 **Villa denied 'clear penalty' in 'massive mistake' by VAR - Emery**\
 `Unai Emery says Aston Villa were denied a &#8220;clear penalty&#8221; following their 2-1 defeat at Nottingham Forest.`\
 https://nytimes.com/athletic/5994268/2024/12/14/aston-villa-penalty-rogers-emery/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5993782/2024/12/14/bill-belichick-recruiting-bryce-
 **Argentina’s President Receives Italian Citizenship, Angering Law’s Critics**\
 `Javier Milei is proud of his Italian ancestry and has tried to bolster ties with Italy’s conservative prime minister. But his new passport angered critics of Italy’s rules on citizenship.`\
 https://nytimes.com/2024/12/14/world/europe/argentina-president-milei-italy-citizenship.html
-
-**Pelosi Has Hip Replacement Surgery After Fall**\
-`The former speaker of the House “is well on the mend,” her spokesman said. She fell while in Luxembourg as part of a congressional delegation to mark the 80th anniversary of the Battle of the Bulge.`\
-https://nytimes.com/2024/12/14/us/pelosi-hip-replacement-surgery.html
-
-**Silva heaps praise on Robinson after two-assist performance vs. Liverpool**\
-`Marco Silva says Antonee Robinson’s performance against Liverpool was so impressive it left him lost for words.`\
-https://nytimes.com/athletic/5994076/2024/12/14/antonee-robinson-fulham-liverpool-usmnt/
 
