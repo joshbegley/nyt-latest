@@ -1,3 +1,7 @@
+**Quote of the Day: Europeans Eye Giving Syrians A Nudge Home**\
+`Quotation of the Day for Saturday, December 14, 2024.`\
+https://nytimes.com/2024/12/13/pageoneplus/quote-of-the-day-europeans-eye-giving-syrians-a-nudge-home.html
+
 **Joel Embiid suffers sinus fracture in first half of Sixers loss**\
 `After a stretch of four wins in five games, Friday's loss leaves Philadelphia sandwiched between the Pistons and Hornets in the East.`\
 https://nytimes.com/athletic/5993615/2024/12/13/joel-embiid-sinus-fracture-sixers-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993441/2024/12/13/nba-cup-bucks-hawks-thunder-rock
 **Timothée Chalamet Looks Like Bob Dylan at ‘A Complete Unknown’ New York Premiere**\
 `The actor joined Elle Fanning and Edward Norton, stars of a new film tracing the musician’s ascent.`\
 https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
-
-**Cal hires former Washington State coach Nick Rolovich as offensive assistant**\
-`It's Rolovich's first college job since he was fired by Wazzu in 2021 for failure to comply with the state's COVID-19 vaccine mandate.`\
-https://nytimes.com/athletic/5993290/2024/12/13/cal-football-nick-rolovich-washington-state/
 

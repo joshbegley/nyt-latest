@@ -1,3 +1,7 @@
+**Quote of the Day: Europeans Eye Giving Syrians A Nudge Home**\
+`Quotation of the Day for Saturday, December 14, 2024.`\
+https://nytimes.com/2024/12/13/pageoneplus/quote-of-the-day-europeans-eye-giving-syrians-a-nudge-home.html
+
 **Joel Embiid suffers sinus fracture in first half of Sixers loss**\
 `After a stretch of four wins in five games, Friday's loss leaves Philadelphia sandwiched between the Pistons and Hornets in the East.`\
 https://nytimes.com/athletic/5993615/2024/12/13/joel-embiid-sinus-fracture-sixers-loss/
