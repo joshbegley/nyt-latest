@@ -1,3 +1,11 @@
+**Rick Steves Refuses to Get Cynical About the World**\
+`The guidebook writer and television personality reflects on his cancer diagnosis, social media’s corrosive effect on tourism and the transformative power of travel.`\
+https://nytimes.com/2024/12/14/magazine/rick-steves-interview.html
+
+**Rick Steves Refuses to Get Cynical About the World**\
+`The guidebook writer and television personality reflects on his cancer diagnosis, social media’s corrosive effect on tourism and the transformative power of travel.`\
+https://nytimes.com/video/podcasts/100000009872619/rick-steves-world-travel-interview.html
+
 **What's going on with Jimmy Butler and the Heat? What we know about his trade market**\
 `Jimmy Butler and the Heat seem destined to divorce. Nothing has approached a serious offer, but even being willing to listen is a change.`\
 https://nytimes.com/athletic/5992364/2024/12/14/jimmy-butler-heat-nba-trade-rumors/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/14/style/rachel-handlin-white-columns-art-gallery.ht
 **Why Democrats Lost More Seats in Vermont Than Any Other State**\
 `Even though Kamala Harris easily won the state, voters ousted more than two dozen Democratic legislators, who they felt had not addressed an affordability crisis.`\
 https://nytimes.com/2024/12/14/us/vermont-election-democrats-republicans.html
-
-**Searching for Syria’s Disappeared**\
-`Taher al-Zain’s father disappeared 12 years ago at the height of Bashar Al-Assad’s regime. Now, like thousands of other Syrians, he is trying to find clues about what happened, and whether or not he may still be alive.`\
-https://nytimes.com/video/world/middleeast/100000009871973/syria-missing-disappeared-assad.html
-
-**In Port Labor Dispute, Trump Backed a Union That Courted Him**\
-`President-elect Donald J. Trump is supporting the International Longshoremen’s Association, which could strike soon if it doesn’t reach a deal on automation with employers.`\
-https://nytimes.com/2024/12/14/business/economy/trump-ila-port-strike.html
 
