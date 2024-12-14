@@ -1,3 +1,15 @@
+**The Briefing: Liverpool 2 Fulham 2 - Slot's team come from behind twice after Robertson red card**\
+`Andy Jones breaks down the key talking points from Saturday's game at Anfield`\
+https://nytimes.com/athletic/5989984/2024/12/14/liverpool-fulham-premier-league-result-analysis/
+
+**The Briefing: Arsenal 0 Everton 0 - Frustration for Arteta, a need for speed and faith in Lewis-Skelly**\
+`Art de Roche analyses the key talking points from Arsenal's goalless draw with Everton`\
+https://nytimes.com/athletic/5989982/2024/12/14/arsenal-everton-analysis/
+
+**The Briefing: Newcastle 4 Leicester 0 - Set-piece work shining through and finally some new scorers**\
+`Chris Waugh breaks down the action from a dominant — and important — victory at St James' Park`\
+https://nytimes.com/athletic/5989985/2024/12/14/newcastle-leicester-murphy-bruno-isak/
+
 **The Briefing: Newcastle 4 Leicester 0 - Set-piece work shining through and finally some new scorers**\
 `Chris Waugh breaks down the action from a dominant - and important - victory at St James' Park.`\
 https://nytimes.com/athletic/5989985/2024/12/14/newcastle-leicester-murphy-bruno-isak/
