@@ -1,3 +1,7 @@
+**Bompastor 'frustrated' after Chelsea's perfect start ended by Leicester**\
+`Sonia Bompastor was left frustrated after Chelsea&#8217;s perfect start to the season was ended by Leicester City.`\
+https://nytimes.com/athletic/5993874/2024/12/14/chelsea-women-leicester-result-bompastor/
+
 **Astros emerge as serious suitor for Nolan Arenado: Sources**\
 `Arenado is a 10-time Gold Glove winner, an eight-time All-Star and considered one of this generation’s greatest defensive third basemen. `\
 https://nytimes.com/athletic/5993876/2024/12/14/astros-nolan-arenado-trade-suitor/
