@@ -1,3 +1,7 @@
+**Ryan Reynolds, Channing Tatum and a big weekend out in Wrexham (via the Fat Boar)**\
+`Ryan Reynolds and some celebrity friends were in Wrexham over the weekend to watch the game - and see what the town has to offer`\
+https://nytimes.com/athletic/5993738/2024/12/14/ryan-reynolds-wrexham-channing-tatum/
+
 **Personal Data of Rhode Island Residents Breached in Large Cyberattack**\
 `An “international cybercriminal group” harvested the personal data of potentially hundreds of thousands of people from the state’s social services and health insurance systems, officials said.`\
 https://nytimes.com/2024/12/14/us/cyberattack-rhode-island-ribridges-snap-medicaid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993995/2024/12/14/jason-eck-new-mexico-coach-idaho
 **A's acquiring Jeffrey Springs from Rays to boost starting rotation**\
 `The trade moves the Athletics closer to avoiding a grievance with the Major League Baseball Players Association.`\
 https://nytimes.com/athletic/5994073/2024/12/14/jeffrey-springs-trade-athletics-rays/
-
-**Arteta explains Odegaard, Rice substitutions**\
-`Mikel Arteta has explained his decision to substitute Martin Odegaard and Declan Rice during the second half of Arsenal&#8217;s goalless draw at home to Everton.`\
-https://nytimes.com/athletic/5993980/2024/12/14/mikel-arteta-odegaard-rice-subs/
 
