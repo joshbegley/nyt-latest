@@ -1,3 +1,15 @@
+**New young faces, same old story for fragile Blackhawks**\
+`The future hasn't truly arrived for the Blackhawks and it won't arrive for a while.`\
+https://nytimes.com/athletic/5994378/2024/12/14/blackhawks-devils-connor-bedard-jason-dickinson/
+
+**Auburn DL Trill Carter recovering from being shot in stomach**\
+`Carter was shot by an unknown assailant around 11:45 p.m. ET on Thursday outside a condo development in Charlotte.`\
+https://nytimes.com/athletic/5994515/2024/12/14/auburn-trill-carter-shot-charlotte/
+
+**QB Blake Horvath's 4 TDs propel Navy past Army in 31-13 win**\
+`Navy and Army entered the game with the trophy on the line after both military academies beat Air Force in the regular season.`\
+https://nytimes.com/athletic/5994253/2024/12/14/army-navy-game-score-results-takeaways/
+
 **'This is bad': After another embarrassing display, more changes surely coming for Rangers**\
 `Someone's going to pay for this mess, but it doesn't appear that one player or coach is the source of all of New York's problems.`\
 https://nytimes.com/athletic/5994328/2024/12/14/rangers-kings-peter-laviolette-coach/
