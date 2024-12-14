@@ -1,3 +1,7 @@
+**C.E.O.’s Killing Poses Early Test for New N.Y.P.D. Commissioner**\
+`Weeks ago, Jessica Tisch was in charge of street sweeping and trash pickup. On Monday, she found herself overseeing a ferocious manhunt as the head of the Police Department.`\
+https://nytimes.com/2024/12/13/nyregion/jessica-tisch-nypd-unitedhealthcare.html
+
 **Tea Supplier**\
 `Owen Bergstein makes a proud debut.`\
 https://nytimes.com/2024/12/13/crosswords/daily-puzzle-2024-12-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/climate/california-ban-gas-cars-electric-biden-tr
 **Cubs sign catcher Carson Kelly to 2-year, $11.5 million contract**\
 `Kelly has posted a 117 wRC+ against lefties in his career, making him a good partner behind the plate for Miguel Amaya.`\
 https://nytimes.com/athletic/5993439/2024/12/13/cubs-carson-kelly-free-agent-contract/
-
-**JJ Redick says he doesn't know when LeBron James will rejoin Lakers**\
-`The Lakers next play Sunday in Los Angeles against the Memphis Grizzlies.`\
-https://nytimes.com/athletic/5993379/2024/12/13/lebron-james-lakers-jj-redick-return/
 

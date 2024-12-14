@@ -1,3 +1,7 @@
+**C.E.O.’s Killing Poses Early Test for New N.Y.P.D. Commissioner**\
+`Weeks ago, Jessica Tisch was in charge of street sweeping and trash pickup. On Monday, she found herself overseeing a ferocious manhunt as the head of the Police Department.`\
+https://nytimes.com/2024/12/13/nyregion/jessica-tisch-nypd-unitedhealthcare.html
+
 **Tea Supplier**\
 `Owen Bergstein makes a proud debut.`\
 https://nytimes.com/2024/12/13/crosswords/daily-puzzle-2024-12-14.html
