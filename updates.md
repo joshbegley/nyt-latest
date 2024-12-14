@@ -1,3 +1,7 @@
+**Trump Says He Supports an End to Daylight Saving Time**\
+`President-elect Donald J. Trump said on social media that the time change is “inconvenient” and that the Republican Party would try to put an end to it.`\
+https://nytimes.com/2024/12/14/us/trump-daylight-savings-time.html
+
 **New young faces, same old story for fragile Blackhawks**\
 `The future hasn't truly arrived for the Blackhawks and it won't arrive for a while.`\
 https://nytimes.com/athletic/5994378/2024/12/14/blackhawks-devils-connor-bedard-jason-dickinson/
