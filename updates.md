@@ -1,3 +1,15 @@
+**Jamie Drysdale, Emil Andrae and the 'surfing' Flyers defensemen**\
+`The Flyers' blue line is crowded now that their defensemen are healthy again and Drysdale's play has been more in focus than others.`\
+https://nytimes.com/athletic/5994454/2024/12/14/flyers-defensemen-jamie-drysdale-emil-andrae/
+
+**76ers rookie Jared McCain sidelined indefinitely with meniscus tear**\
+`McCain leads NBA rookies at 15.3 points per game, putting himself in position to be a core piece of Philly’s future moving forward.`\
+https://nytimes.com/athletic/5994586/2024/12/14/jared-mccain-knee-injury-76ers/
+
+**After Weeks of Drone Sightings, New Jersey Remains on Edge**\
+`In the Garden State, where the rash of sightings started a month ago, residents are looking to the skies, wondering why they still don’t have definitive answers from officials.`\
+https://nytimes.com/2024/12/14/nyregion/drone-sightings-nj.html
+
 **Trump Says He Supports an End to Daylight Saving Time**\
 `President-elect Donald J. Trump said on social media that the time change is “inconvenient” and that the Republican Party would try to put an end to it.`\
 https://nytimes.com/2024/12/14/us/trump-daylight-savings-time.html
