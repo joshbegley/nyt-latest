@@ -1,41 +1,40 @@
-**Joy and Celebrations in Seoul for Protesters as Yoon is Impeached**\
-`“Long live South Korea!” the protesters chanted, describing a wave of relief after days of anger over the president’s surprise declaration of martial law.`\
-https://nytimes.com/2024/12/14/world/asia/celebrations-protesters-impeached.html
+**State of the Blues under Jim Montgomery: Assessing 5 areas of focus so far**\
+`The Blues' 4-3 loss to San Jose Thursday exposed some more areas where the team can improve.`\
+https://nytimes.com/athletic/5991378/2024/12/14/blues-jim-montgomery-analysis/
 
-**Blinken Meeting Arab Ministers Amid Uncertainty Over Syria Transition**\
-`Secretary of State Antony J. Blinken was in Jordan to confer with Arab foreign ministers on the ouster of the longtime Syrian dictator Bashar al-Assad.`\
-https://nytimes.com/2024/12/14/world/middleeast/blinken-jordan-syria-transition.html
+**Can We Make Pop Culture Great Again?**\
+`Worrying that even if the rest of American society starts moving, our storytelling is still going to be stuck.`\
+https://nytimes.com/2024/12/14/opinion/pop-culture-glicked.html
 
-**Moody’s Downgrades France’s Credit Rating, Citing Political Turmoil**\
-`The action, which will put pressure on the nation’s borrowing costs, reflects doubt that a new government can mend the deteriorating financial situation.`\
-https://nytimes.com/2024/12/14/business/france-moodys-credit-rating-downgrade.html
+**To Understand the Murdochs, See ‘Succession’ Season Three, Episode Seven**\
+`“I love each of my children,” said the patriarch. “But these companies need a designated leader.”`\
+https://nytimes.com/2024/12/14/opinion/rupert-murdoch-succession-lachlan-james-fox.html
 
-**Palestinian Authority Vows West Bank Raids Against Militants**\
-`The Authority has struggled to crack down on powerful armed groups in the territory.`\
-https://nytimes.com/2024/12/14/world/middleeast/palestinian-authority-west-bank-israel.html
+**What Do You Say to a Young Person Who Admires the Unabomber?**\
+`To some disaffected young Americans, the ruthlessly intellectualized turn to violence can seem justified. It is not.`\
+https://nytimes.com/2024/12/14/opinion/united-health-ceo-killing-unabomber.html
 
-**Sweet Season**\
-`The holidays are upon us. It’s time to start baking.`\
-https://nytimes.com/2024/12/14/briefing/sweet-season.html
+**‘I Got My Life Back. I Can Do Anything!’**\
+`Women with obstetric fistulas suffer year after year, even as a $619 surgery can restore them.`\
+https://nytimes.com/2024/12/14/opinion/obstetric-fistula-recovery.html
 
-**Ville Heinola or Logan Stanley? Who's the solution to the Jets' third-pair problems?**\
-`Winnipeg's third defence pair of Heinola and Stanley is a short-term problem that is supposed to provide a long-term solution.
-`\
-https://nytimes.com/athletic/5993010/2024/12/14/winnipeg-jets-ville-heinola-logan-stanley/
+**NHL mock trade proposals: One tantalizing target for each team. Could any deals happen?**\
+`The Athletic's NHL staff proposes one trade target for each team, evaluates the cost and whether a deal is realistic or even worth it.`\
+https://nytimes.com/athletic/5990507/2024/12/14/nhl-trade-rumors-top-targets/
 
-**What sticks NHL players use and why: Bauer, CCM or Warrior? Flex? Kick?**\
-`How do shifty playmakers and stay-at-home defensemen and snipers customize their sticks to maximize their game? Here's what they say.`\
-https://nytimes.com/athletic/5967500/2024/12/14/bauer-ccm-warrior-nhl-players-hockey-sticks/
+**How Sweden Could End Its Epidemic of Gang Violence**\
+`We know that tough-on-crime policies for children have been tried repeatedly elsewhere and have failed. So why is my country headed that way?`\
+https://nytimes.com/2024/12/14/opinion/sweden-gang-violence.html
 
-**A Rare Cross-Canada Political Consensus Forms Against Trump’s Border Threat**\
-`Canadian leaders agreed to tighten the border, but not on how to respond if President-elect Donald J. Trump follows through on 25 percent tariffs.`\
-https://nytimes.com/2024/12/14/world/canada/canada-consensus-trump-border.html
+**The Menendez Brothers Are a Test for Society and the Courts**\
+`Society knows more about abuse now, but it may not matter to the judicial system.`\
+https://nytimes.com/2024/12/14/opinion/menendez-brothers-abuse.html
 
-**When will the Cubs again spend on the top free agents? Kyle Tucker might provide the answer**\
-`Giving up three players, including a top-100 prospect, for a star like Tucker was a leap outside the Cubs' comfort zone.`\
-https://nytimes.com/athletic/5993632/2024/12/14/cubs-kyle-tucker-free-agency-spending/
+**The Ubiquity of ‘Wicked’ and How Commerce Is Dictating Culture**\
+`The movie’s marketing push, involving 400 tie-ins with other brands, shows how our culture has become littered with increasingly formulaic and meaningless collaborations.`\
+https://nytimes.com/2024/12/14/opinion/wicked-marketing-collaboration-culture.html
 
-**The Connections Companion No. 553**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 15, 2024.`\
-https://nytimes.com/2024/12/14/crosswords/connections-companion-553.html
+**Applying Psychotherapy to Heal Our Political Divide**\
+`Readers respond to an essay by a couples therapist.`\
+https://nytimes.com/2024/12/14/opinion/psychotherapy-political-divide.html
 
