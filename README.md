@@ -1,3 +1,7 @@
+**JJ Redick says he doesn't know when LeBron James will rejoin Lakers**\
+`The Lakers next play Sunday in Los Angeles against the Memphis Grizzlies.`\
+https://nytimes.com/athletic/5993379/2024/12/13/lebron-james-lakers-jj-redick-return/
+
 **U.S. Court Denies TikTok’s Request to Freeze Sale-or-Ban Law**\
 `TikTok had sought to temporarily freeze a law that requires its Chinese parent to sell the app or face a U.S. ban in mid-January. The case may now head to the Supreme Court.`\
 https://nytimes.com/2024/12/13/business/us-court-tiktok-sale-or-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993120/2024/12/13/yankees-alex-bregman-free-agent-
 **Paula Abdul Settles Sexual Assault Lawsuit Against Nigel Lythgoe**\
 `Mr. Lythgoe, a producer she worked with on “American Idol” and “So You Think You Can Dance,” had vehemently denied her allegations.`\
 https://nytimes.com/2024/12/13/arts/paula-abdul-nigel-lythgoe-lawsuit-settlement.html
-
-**Herbert comes off Chargers' injury report, McConkey questionable vs. Bucs**\
-`At 8-5, Los Angeles holds a two-game advantage on an AFC wild card spot with four weeks to go. `\
-https://nytimes.com/athletic/5993247/2024/12/13/chargers-justin-herbert-ladd-mcconkey-injury-updates/
 
