@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5989984/2024/12/14/liverpool-fulham-premier-league-
 https://nytimes.com/athletic/5989982/2024/12/14/arsenal-everton-analysis/
 
 **The Briefing: Newcastle 4 Leicester 0 - Set-piece work shining through and finally some new scorers**\
-`Chris Waugh breaks down the action from a dominant - and important - victory at St James' Park.`\
+`Chris Waugh breaks down the action from a dominant — and important — victory at St James' Park`\
 https://nytimes.com/athletic/5989985/2024/12/14/newcastle-leicester-murphy-bruno-isak/
 
 **Blues trade for Cam Fowler, send prospect and pick to Ducks**\
