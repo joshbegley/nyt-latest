@@ -1,40 +1,40 @@
-**How the President Alienated South Korea, One Group at a Time**\
-`Even before Yoon Suk Yeol’s fateful decree, the public had been infuriated with near-constant scandals and unpopular decisions since he took office.`\
-https://nytimes.com/interactive/2024/12/14/world/asia/skorea-yoon-timeline.html
+**Syria Shudders as Assad’s Prison Atrocities Come Into the Light**\
+`At the country’s most notorious prison, Syrians confront their worst fears: that they will never know what happened to the loved ones who disappeared.`\
+https://nytimes.com/2024/12/14/world/middleeast/syria-sednaya-prison-assad-atrocities.html
 
-**Brighton could look for more experience in January transfer window - Hurzeler**\
-`Brighton &amp; Hove Albion head coach Fabian Hurzeler has not ruled out adding more leadership experience to his squad in the January transfer window after missing out on Mats Hummels in the summer.`\
-https://nytimes.com/athletic/5991840/2024/12/14/brighton-transfer-news-experience/
+**In Display of Fealty, Tech Industry Curries Favor With Trump**\
+`It was a week of frenzied activity, as Silicon Valley billionaires and their companies brandished checks and compliments for the President-elect.`\
+https://nytimes.com/2024/12/14/technology/trump-tech-amazon-meta-openai.html
 
-**Where It Isn’t Christmas Until the City Shoots Lasers at 20,000 Crows**\
-`In Rochester, N.Y., every year in early December thousands of crows descend on the city, which tries to shoo them away with loud noises and bright lights.`\
-https://nytimes.com/2024/12/14/nyregion/where-it-isnt-christmas-until-the-city-shoots-lasers-at-20000-crows.html
+**Trump’s Transition Business Largely Happens After Night Falls**\
+`At his Mar-a-Lago club in Florida, the president-elect has been hosting diplomatic dinners, announcing cabinet picks and firing off texts to his aides — all after the sun goes down.`\
+https://nytimes.com/2024/12/14/us/politics/trump-diplomacy-night-mar-a-lago.html
 
-**As the Right Lionizes Daniel Penny, His Prosecutor Faces a Familiar Fury**\
-`Alvin Bragg, the Manhattan district attorney who won a conviction of Donald J. Trump, has been a favorite target of the right. After Mr. Penny’s acquittal in a subway choking, Mr. Bragg faces a fresh round of anger.`\
-https://nytimes.com/2024/12/14/nyregion/alvin-bragg-daniel-penny-politics.html
+**Cajole, Plead and Flatter: Ukraine Makes Its Case to Trump**\
+`Using diplomacy, flattery and the occasional shot in the dark, Ukraine is doing everything it can to win over President-elect Donald J. Trump to its side.`\
+https://nytimes.com/2024/12/14/world/europe/trump-ukraine-russia.html
 
-**How a Children’s Tennis Instructor Spends Her Sundays**\
-`Joyce Short, who has worked with New York Junior Tennis and Learning for decades, takes a popcorn break in between classes, and plays pickleball with friends.`\
-https://nytimes.com/2024/12/14/nyregion/joyce-short-tennis.html
+**An Artist Who Has Something in Common With Her Subjects**\
+`Rachel Handlin is possibly the first person with Down syndrome to receive an M.F.A., and one of just a few to hold a bachelor’s. Her first solo show features her portraits of others like her.`\
+https://nytimes.com/2024/12/14/style/rachel-handlin-white-columns-art-gallery.html
 
-**Dancing in the Park: How an M.T.A. Worker Spreads Joy**\
-`For eight years, Anthony Johnson has danced to Soca and disco music in Prospect Park in Brooklyn. He has a loyal following.`\
-https://nytimes.com/2024/12/14/nyregion/prospect-park-nyc-anthony-johnson.html
+**Why Democrats Lost More Seats in Vermont Than Any Other State**\
+`Even though Kamala Harris easily won the state, voters ousted more than two dozen Democratic legislators, who they felt had not addressed an affordability crisis.`\
+https://nytimes.com/2024/12/14/us/vermont-election-democrats-republicans.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/14/crosswords/spelling-bee-forum.html
+**Searching for Syria’s Disappeared**\
+`Taher al-Zain’s father disappeared 12 years ago at the height of Bashar Al-Assad’s regime. Now, like thousands of other Syrians, he is trying to find clues about what happened, and whether or not he may still be alive.`\
+https://nytimes.com/video/world/middleeast/100000009871973/syria-missing-disappeared-assad.html
 
-**13 insights fantasy football managers need to know ahead of Week 15**\
-`Among Theo Gremminger's latest fantasy football insights, he says Sincere McCormick could be repeating history in Las Vegas.`\
-https://nytimes.com/athletic/5992517/2024/12/14/13-insights-fantasy-football-week-15/
+**In Port Labor Dispute, Trump Backed a Union That Courted Him**\
+`President-elect Donald J. Trump is supporting the International Longshoremen’s Association, which could strike soon if it doesn’t reach a deal on automation with employers.`\
+https://nytimes.com/2024/12/14/business/economy/trump-ila-port-strike.html
 
-**'He was the star': Jaden McDaniels' defensive revival lifts Wolves, drops Lakers**\
-`McDaniels is back to his frightening self on the defensive end, helping Minnesota become one of the NBA's most stingy teams lately.`\
-https://nytimes.com/athletic/5993473/2024/12/14/jaden-mcdaniels-timberwolves-defense-lakers/
+**My Apartment Is Way Too Cold! How Do I Make the Landlord Fix It?**\
+`If your rental is not properly heated, gather your neighbors and complain together.`\
+https://nytimes.com/2024/12/14/realestate/my-apartment-is-way-too-cold.html
 
-**Chelsea in Almaty: Freezing cold, taxis across the border and a meeting with Mongolian Blues**\
-`Fans travelled over land and sea to attend the London club's most far-flung 'European' tie, though the visitors were not just from England`\
-https://nytimes.com/athletic/5991718/2024/12/14/chelsea-almaty-kazakhstan-astana/
+**A.T.F. Braces for a Sharp Change of Course Under Trump**\
+`There is little doubt that tumult lies ahead for the Bureau of Alcohol, Tobacco, Firearms and Explosives, perhaps in the form of even deeper funding cuts.`\
+https://nytimes.com/2024/12/14/us/politics/atf-braces-for-a-sharp-change-of-course-under-trump.html
 
