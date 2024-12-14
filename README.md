@@ -1,3 +1,7 @@
+**Personal Data of Rhode Island Residents Breached in Large Cyberattack**\
+`An “international cybercriminal group” harvested the personal data of potentially hundreds of thousands of people from the state’s social services and health insurance systems, officials said.`\
+https://nytimes.com/2024/12/14/us/cyberattack-rhode-island-ribridges-snap-medicaid.html
+
 **Hermansen injury to be assessed after half-time substitution - Van Nistelrooy**\
 `Ruud van Nistelrooy says Leicester City will assess the injury that forced goalkeeper Mads Hermansen to be replaced in the 4-0 defeat to Newcastle United on Saturday.`\
 https://nytimes.com/athletic/5994106/2024/12/14/mads-hermansen-injury-leicester/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5994073/2024/12/14/jeffrey-springs-trade-athletics-
 **Arteta explains Odegaard, Rice substitutions**\
 `Mikel Arteta has explained his decision to substitute Martin Odegaard and Declan Rice during the second half of Arsenal&#8217;s goalless draw at home to Everton.`\
 https://nytimes.com/athletic/5993980/2024/12/14/mikel-arteta-odegaard-rice-subs/
-
-**Brazilian Police Arrest Close Ally of Ex-President Bolsonaro, Official Says**\
-`Gen. Walter Braga Netto was Jair Bolsonaro’s running mate. The arrest was for meddling in an investigation into a plot to stage a coup, the police said.`\
-https://nytimes.com/2024/12/14/world/americas/brazil-arrest-ally-bolsonaro.html
 
