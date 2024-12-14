@@ -1,3 +1,7 @@
+**Blues trade for Cam Fowler, send prospect and pick to Ducks**\
+`St. Louis is sending prospect Jeremie Biakabutuka and a 2027 second-rounder to Anaheim for Fowler and a 2027 fourth-rounder.`\
+https://nytimes.com/athletic/5993831/2024/12/14/cam-fowler-blues-ducks-trade/
+
 **Trump Has Little Room for Error**\
 `How Trump might cut short his political honeymoon.`\
 https://nytimes.com/2024/12/14/opinion/trump-grocery-prices-deportation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993794/2024/12/14/nfl-news-belichick-jets-kyle-sha
 **Lakers reminded of LeBron James’ importance as offense sputters vs. Timberwolves**\
 `The Lakers' offense struggled in Minnesota as Lebron James' return remains unclear`\
 https://nytimes.com/athletic/5993299/2024/12/14/lakers-timberwolves-lebron-james-anthony-davis-anthony-edwards-nba/
-
-**South Korea’s President Is Impeached After Martial Law Crisis**\
-`Some members of President Yoon Suk Yeol’s own party helped remove him from office. But the political uncertainty is far from over.`\
-https://nytimes.com/2024/12/14/world/asia/south-korea-president-impeached-martial-law.html
 
