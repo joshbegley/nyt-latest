@@ -73,6 +73,11 @@ https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zucc
 `\
 https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
 
+**Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
+`With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
+`\
+https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
+
 **Oregon adds Purdue standout DB Dillon Thieneman from portal**\
 `Thieneman has 210 tackles and six INTs in two years and an be an instant-impact transfer portal addition for Oregon from Purdue.`\
 https://nytimes.com/athletic/5994466/2024/12/14/dillon-thieneman-oregon-transfer-portal-purdue/
