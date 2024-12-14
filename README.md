@@ -1,3 +1,7 @@
+**ABC to Pay $15 Million to Settle a Defamation Suit Brought by Trump**\
+`The outcome of the lawsuit marks an unusual victory for President-elect Donald J. Trump in his ongoing legal campaign against national news organizations.`\
+https://nytimes.com/2024/12/14/us/politics/trump-abc-settlement.html
+
 **The Impeachment of South Korea’s President, Explained**\
 `In its second attempt, the National Assembly moved to force President Yoon Suk Yeol from office. But the troubles for him and his country are far from over.`\
 https://nytimes.com/2024/12/14/world/asia/south-korea-impeachment-yoon-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993738/2024/12/14/ryan-reynolds-wrexham-channing-t
 **Personal Data of Rhode Island Residents Breached in Large Cyberattack**\
 `An “international cybercriminal group” harvested the personal data of potentially hundreds of thousands of people from the state’s social services and health insurance systems, officials said.`\
 https://nytimes.com/2024/12/14/us/cyberattack-rhode-island-ribridges-snap-medicaid.html
-
-**Hermansen injury to be assessed after half-time substitution - Van Nistelrooy**\
-`Ruud van Nistelrooy says Leicester City will assess the injury that forced goalkeeper Mads Hermansen to be replaced in the 4-0 defeat to Newcastle United on Saturday.`\
-https://nytimes.com/athletic/5994106/2024/12/14/mads-hermansen-injury-leicester/
 
