@@ -1,3 +1,7 @@
+**Art Heist**\
+`David Kwong draws us in with a magical challenge.`\
+https://nytimes.com/2024/12/14/crosswords/daily-puzzle-2024-12-15.html
+
 **Cam Fowler trade doesn't deviate from Blues' retool plan, GM Doug Armstrong says**\
 `St. Louis acquired the veteran blueliner from Anaheim to help share the heavy minutes the Blues defensemen had been logging.`\
 https://nytimes.com/athletic/5994168/2024/12/14/blues-cam-fowler-trade/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5994416/2024/12/14/raiders-maxx-crosby-ankle-injury
 **Trump Brings Hegseth to Watch Army-Navy Game**\
 `President-elect Donald J. Trump made a public show of support for his choice to lead the Defense Department.`\
 https://nytimes.com/2024/12/14/us/politics/trump-hegseth-daniel-penny-army-navy-game.html
-
-**Ducks' return in Cam Fowler trade isn't much, but their future is helped in an important way**\
-`Fowler had been part of a logjam on the Ducks' roster that now will be eased.`\
-https://nytimes.com/athletic/5994366/2024/12/14/ducks-fowler-trade-defensemen/
 

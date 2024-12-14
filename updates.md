@@ -1,3 +1,12 @@
+**Art Heist**\
+`David Kwong draws us in with a magical challenge.`\
+https://nytimes.com/2024/12/14/crosswords/daily-puzzle-2024-12-15.html
+
+**Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
+`With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
+`\
+https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
+
 **Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
 `With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
 `\
