@@ -1,3 +1,7 @@
+**Joel Embiid suffers sinus fracture in first half of Sixers loss**\
+`After a stretch of four wins in five games, Friday's loss leaves Philadelphia sandwiched between the Pistons and Hornets in the East.`\
+https://nytimes.com/athletic/5993615/2024/12/13/joel-embiid-sinus-fracture-sixers-loss/
+
 **The Message: Impeach South Korea’s President. The Tune: ‘Feliz Navidad.’**\
 `Baek Jae Gil, whose viral anthem calls for the ouster of President Yoon Suk Yeol, has a long history with the country’s pro-democracy movement.`\
 https://nytimes.com/2024/12/13/world/asia/south-korea-protest-feliz-navidad.html
