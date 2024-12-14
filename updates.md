@@ -1,3 +1,7 @@
+**What's going on with Jimmy Butler and the Heat? What we know about his trade market**\
+`Jimmy Butler and the Heat seem destined to divorce. Nothing has approached a serious offer, but even being willing to listen is a change.`\
+https://nytimes.com/athletic/5992364/2024/12/14/jimmy-butler-heat-nba-trade-rumors/
+
 **NFL Week 15 roundtable: Bills-Lions, Sam Darnold's Vikings future, Eagles drama**\
 `A Bills-Lions showdown leads the way as our writers tackle all things Week 15.`\
 https://nytimes.com/athletic/5993028/2024/12/14/nfl-week-15-lions-bills-eagles-vikings/

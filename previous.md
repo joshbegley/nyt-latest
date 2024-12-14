@@ -1,3 +1,7 @@
+**What's going on with Jimmy Butler and the Heat? What we know about his trade market**\
+`Jimmy Butler and the Heat seem destined to divorce. Nothing has approached a serious offer, but even being willing to listen is a change.`\
+https://nytimes.com/athletic/5992364/2024/12/14/jimmy-butler-heat-nba-trade-rumors/
+
 **NFL Week 15 roundtable: Bills-Lions, Sam Darnold's Vikings future, Eagles drama**\
 `A Bills-Lions showdown leads the way as our writers tackle all things Week 15.`\
 https://nytimes.com/athletic/5993028/2024/12/14/nfl-week-15-lions-bills-eagles-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009871973/syria-missing-disappe
 **In Port Labor Dispute, Trump Backed a Union That Courted Him**\
 `President-elect Donald J. Trump is supporting the International Longshoremen’s Association, which could strike soon if it doesn’t reach a deal on automation with employers.`\
 https://nytimes.com/2024/12/14/business/economy/trump-ila-port-strike.html
-
-**My Apartment Is Way Too Cold! How Do I Make the Landlord Fix It?**\
-`If your rental is not properly heated, gather your neighbors and complain together.`\
-https://nytimes.com/2024/12/14/realestate/my-apartment-is-way-too-cold.html
 
