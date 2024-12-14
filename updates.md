@@ -1,3 +1,7 @@
+**The Scene at the Premiere of ‘A Complete Unknown’**\
+`Timothée Chalamet, Elle Fanning and Edward Norton, stars of a new film tracing Bob Dylan’s ascent, packed a theater in Manhattan.`\
+https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
+
 **Cal hires former Washington State coach Nick Rolovich as offensive assistant**\
 `It's Rolovich's first college job since he was fired by Wazzu in 2021 for failure to comply with the state's COVID-19 vaccine mandate.`\
 https://nytimes.com/athletic/5993290/2024/12/13/cal-football-nick-rolovich-washington-state/
