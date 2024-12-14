@@ -1,3 +1,11 @@
+**The Briefing: Liverpool 2 Fulham 2 - Slot's team come from behind twice after Robertson red card**\
+`Andy Jones breaks down the key talking points from Saturday's game at Anfield`\
+https://nytimes.com/athletic/5989984/2024/12/14/liverpool-fulham-premier-league-result-analysis/
+
+**The Briefing: Arsenal 0 Everton 0 - Frustration for Arteta, a need for speed and faith in Lewis-Skelly**\
+`Art de Roche analyses the key talking points from Arsenal's goalless draw with Everton`\
+https://nytimes.com/athletic/5989982/2024/12/14/arsenal-everton-analysis/
+
 **The Briefing: Newcastle 4 Leicester 0 - Set-piece work shining through and finally some new scorers**\
 `Chris Waugh breaks down the action from a dominant - and important - victory at St James' Park.`\
 https://nytimes.com/athletic/5989985/2024/12/14/newcastle-leicester-murphy-bruno-isak/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/14/world/europe/georgia-president-election-russia.ht
 **Auburn signs Oklahoma transfer QB Jackson Arnold**\
 `Can Arnold, a five-star recruit in the Class of 2023, unlock his potential Hugh Freeze at Auburn after uneven results at Oklahoma?`\
 https://nytimes.com/athletic/5993811/2024/12/14/jackson-arnold-auburn-transfer-oklahoma/
-
-**How to watch Louisville vs. Kentucky: Fifth-ranked Wildcats huge favorites in rivalry game**\
-`Louisville and Kentucky have first-year coaches pacing the respective sidelines. Read here for how to watch, the odds and past history.`\
-https://nytimes.com/athletic/5993553/2024/12/14/louisville-kentucky-how-to-watch-odds-preview/
-
-**Russini’s what I’m hearing: The biggest Belichick twist; about those Kyle Shanahan rumors**\
-`Plus, the latest on teams with coaching decisions to make, and “The Game” in Detroit.`\
-https://nytimes.com/athletic/5993794/2024/12/14/nfl-news-belichick-jets-kyle-shanahan-49ers/
 
