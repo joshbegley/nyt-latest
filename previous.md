@@ -1,3 +1,15 @@
+**Why are two Premier League matches kicking off at 7pm this Sunday?**\
+`Chelsea v Brentford and Southampton v Tottenham are both scheduled for late on Sunday evening - here's why`\
+https://nytimes.com/athletic/5989149/2024/12/14/why-are-two-premier-league-matches-kicking-off-at-7pm-this-sunday/
+
+**Arsenal vs Everton: Storylines, odds, prediction as Gunners try to stay unbeaten at home**\
+`Arsenal are unbeaten at home this season and will be expected to continue the trend against Everton.`\
+https://nytimes.com/athletic/5989853/2024/12/14/arsenal-everton-preview-odds-prediction/
+
+**The Art of the Gift: Julio Torres**\
+`“A good gift is like a bridge between two people,” the creator of “Los Espookys” said. “It’s a way of communicating, ‘You are on my mind when you’re not in front of me.’”`\
+https://nytimes.com/2024/12/14/style/julio-torres-gifts-holidays.html
+
 **Quote of the Day: Europeans Eye Giving Syrians A Nudge Home**\
 `Quotation of the Day for Saturday, December 14, 2024.`\
 https://nytimes.com/2024/12/13/pageoneplus/quote-of-the-day-europeans-eye-giving-syrians-a-nudge-home.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/13/crosswords/daily-puzzle-2024-12-14.html
 **Dana Brown's Astros tenure will be defined by his trade of Kyle Tucker**\
 `After making the Astros' first trade of an All-Star in over a decade, Brown is tasked with maintaining the team's status as a contender.`\
 https://nytimes.com/athletic/5993511/2024/12/13/astros-dana-brown-gm-tenure-kyle-tucker-trade/
-
-**MLS Cup final sees decrease in broadcast audience, a worrying trend since Apple deal**\
-`This year's MLS Cup final struggled going up against the most-watch college football game of the year.`\
-https://nytimes.com/athletic/5993457/2024/12/13/mls-cup-broadcast-audience-decreased/
-
-**Will the NBA Cup predict the playoffs? What it could mean for final 4 teams**\
-`The Hawks and Bucks play each other at 4:30 p.m. ET on Saturday; the Thunder and Rockets play at 8 p.m. ET.`\
-https://nytimes.com/athletic/5993441/2024/12/13/nba-cup-bucks-hawks-thunder-rockets/
-
-**Timothée Chalamet Looks Like Bob Dylan at ‘A Complete Unknown’ New York Premiere**\
-`The actor joined Elle Fanning and Edward Norton, stars of a new film tracing the musician’s ascent.`\
-https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
 

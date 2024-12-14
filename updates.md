@@ -1,3 +1,15 @@
+**Why are two Premier League matches kicking off at 7pm this Sunday?**\
+`Chelsea v Brentford and Southampton v Tottenham are both scheduled for late on Sunday evening - here's why`\
+https://nytimes.com/athletic/5989149/2024/12/14/why-are-two-premier-league-matches-kicking-off-at-7pm-this-sunday/
+
+**Arsenal vs Everton: Storylines, odds, prediction as Gunners try to stay unbeaten at home**\
+`Arsenal are unbeaten at home this season and will be expected to continue the trend against Everton.`\
+https://nytimes.com/athletic/5989853/2024/12/14/arsenal-everton-preview-odds-prediction/
+
+**The Art of the Gift: Julio Torres**\
+`“A good gift is like a bridge between two people,” the creator of “Los Espookys” said. “It’s a way of communicating, ‘You are on my mind when you’re not in front of me.’”`\
+https://nytimes.com/2024/12/14/style/julio-torres-gifts-holidays.html
+
 **Quote of the Day: Europeans Eye Giving Syrians A Nudge Home**\
 `Quotation of the Day for Saturday, December 14, 2024.`\
 https://nytimes.com/2024/12/13/pageoneplus/quote-of-the-day-europeans-eye-giving-syrians-a-nudge-home.html
