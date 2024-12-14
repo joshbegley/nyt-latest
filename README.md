@@ -1,3 +1,7 @@
+**Moody’s Downgrades France’s Credit Rating, Citing Political Turmoil**\
+`The action, which will put pressure on the nation’s borrowing costs, reflects doubt that a new government can mend the deteriorating financial situation.`\
+https://nytimes.com/2024/12/14/business/france-moodys-credit-rating-downgrade.html
+
 **Palestinian Authority Vows West Bank Raids Against Militants**\
 `The Authority has struggled to crack down on powerful armed groups in the territory.`\
 https://nytimes.com/2024/12/14/world/middleeast/palestinian-authority-west-bank-israel.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/12/14/crosswords/wordle-review-1275.html
 **Rick Steves Refuses to Get Cynical About the World**\
 `The guidebook writer and television personality reflects on his cancer diagnosis, social media’s corrosive effect on tourism and the transformative power of travel.`\
 https://nytimes.com/2024/12/14/magazine/rick-steves-interview.html
-
-**Rick Steves Refuses to Get Cynical About the World**\
-`The guidebook writer and television personality reflects on his cancer diagnosis, social media’s corrosive effect on tourism and the transformative power of travel.`\
-https://nytimes.com/video/podcasts/100000009872619/rick-steves-world-travel-interview.html
 
