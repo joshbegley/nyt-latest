@@ -1,3 +1,7 @@
+**How the President Alienated South Korea, One Group at a Time**\
+`Even before Yoon Suk Yeol’s fateful decisio, the public had been infuriated with near-constant scandals and unpopular decisions since he took office.`\
+https://nytimes.com/interactive/2024/12/14/world/asia/skorea-yoon-timeline.html
+
 **Brighton could look for more experience in January transfer window - Hurzeler**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler has not ruled out adding more leadership experience to his squad in the January transfer window after missing out on Mats Hummels in the summer.`\
 https://nytimes.com/athletic/5991840/2024/12/14/brighton-transfer-news-experience/
