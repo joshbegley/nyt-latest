@@ -1,3 +1,16 @@
+**South Koreans Celebrate the President’s Impeachment in Seoul**\
+`A dozen members of President Yoon Suk Yeol’s own party helped remove him from office. Lawmakers sought to impeach the president after his declaration of martial law drew public outrage.`\
+https://nytimes.com/video/world/asia/100000009878559/south-korea-impeachment-vote.html
+
+**Warriors in advanced talks to acquire Dennis Schröder from Nets**\
+`The deal can’t be completed until Sunday because the Warriors are sending back De'Anthony Melton's $12.8 million expiring contract.`\
+https://nytimes.com/athletic/5994382/2024/12/14/dennis-schroder-trade-nets-warriors/
+
+**Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
+`With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
+`\
+https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
+
 **Athletics bolster rotation with Jeffrey Springs, Rays add projects, pick: Law**\
 `The A's now have a respectable top-three in their rotation, while Tampa sheds salary and adds a couple of intriguing prospects.`\
 https://nytimes.com/athletic/5994258/2024/12/14/athletics-rays-jeffrey-springs-trade-analysis/
