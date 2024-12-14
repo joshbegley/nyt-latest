@@ -1,3 +1,7 @@
+**How to watch Louisville vs. Kentucky: Fifth-ranked Wildcats huge favorites in rivalry game**\
+`Louisville and Kentucky have first-year coaches pacing the respective sidelines. Read here for how to watch, the odds and past history.`\
+https://nytimes.com/athletic/5993553/2024/12/14/louisville-kentucky-how-to-watch-odds-preview/
+
 **Russini’s what I’m hearing: The biggest Belichick twist; about those Kyle Shanahan rumors**\
 `Plus, the latest on teams with coaching decisions to make, and “The Game” in Detroit.`\
 https://nytimes.com/athletic/5993794/2024/12/14/nfl-news-belichick-jets-kyle-shanahan-49ers/
