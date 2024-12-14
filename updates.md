@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 4 Leicester 0 - Set-piece work shining through and finally some new scorers**\
+`Chris Waugh breaks down the action from a dominant - and important - victory at St James' Park.`\
+https://nytimes.com/athletic/5989985/2024/12/14/newcastle-leicester-murphy-bruno-isak/
+
 **Blues trade for Cam Fowler, send prospect and pick to Ducks**\
 `St. Louis is sending prospect Jeremie Biakabutuka and a 2027 second-rounder to Anaheim for Fowler and a 2027 fourth-rounder.`\
 https://nytimes.com/athletic/5993831/2024/12/14/cam-fowler-blues-ducks-trade/
