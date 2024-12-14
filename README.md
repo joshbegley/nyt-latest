@@ -1,3 +1,7 @@
+**U.S. Court Denies TikTok’s Request to Freeze Sale-or-Ban Law**\
+`TikTok had sought to temporarily freeze a law that requires its Chinese parent to sell the app or face a U.S. ban in mid-January. The case may now head to the Supreme Court.`\
+https://nytimes.com/2024/12/13/business/us-court-tiktok-sale-or-ban.html
+
 **FMF, Liga MX commissioner president Juan Carlos Rodriguez resigns**\
 `Rodriguez was elected president of the Mexican Football Federation (FMF) in May of 2023.`\
 https://nytimes.com/athletic/5993343/2024/12/13/fmf-liga-mx-commissioner-president-juan-carlos-rodriguez-resigns/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/arts/paula-abdul-nigel-lythgoe-lawsuit-settlement
 **Herbert comes off Chargers' injury report, McConkey questionable vs. Bucs**\
 `At 8-5, Los Angeles holds a two-game advantage on an AFC wild card spot with four weeks to go. `\
 https://nytimes.com/athletic/5993247/2024/12/13/chargers-justin-herbert-ladd-mcconkey-injury-updates/
-
-**What We Know About Reports of Drone Sightings in New Jersey and New York**\
-`Reports of flying objects continue to occur throughout the region. State and local officials say they do not pose a threat but have provided few answers.`\
-https://nytimes.com/2024/12/13/nyregion/drones-nj-ny-east-coast.html
 
