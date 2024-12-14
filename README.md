@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5993457/2024/12/13/mls-cup-broadcast-audience-decre
 `The Hawks and Bucks play each other at 4:30 p.m. ET on Saturday; the Thunder and Rockets play at 8 p.m. ET.`\
 https://nytimes.com/athletic/5993441/2024/12/13/nba-cup-bucks-hawks-thunder-rockets/
 
-**The Scene at the New York Premiere of ‘A Complete Unknown’**\
+**Timothée Chalamet Looks Like Bob Dylan at ‘A Complete Unknown’ New York Premiere**\
 `A blond Timothée Chalamet joined Elle Fanning and Edward Norton, stars of a new film tracing Bob Dylan’s ascent.`\
 https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
 
