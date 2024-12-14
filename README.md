@@ -1,3 +1,7 @@
+**Astros emerge as serious suitor for Nolan Arenado: Sources**\
+`Arenado is a 10-time Gold Glove winner, an eight-time All-Star and considered one of this generation’s greatest defensive third basemen. `\
+https://nytimes.com/athletic/5993876/2024/12/14/astros-nolan-arenado-trade-suitor/
+
 **Georgian Lawmakers Hand Presidency to Far-Right Former Soccer Star**\
 `The vote, boycotted by opposition parties in Parliament, sets up a standoff with the sitting president and deepens turmoil in the country after protests and a disputed election.`\
 https://nytimes.com/2024/12/14/world/europe/georgia-president-election-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/nyregion/metropolitan-diary-contest-2024.ht
 **Alexander-Arnold refusing to rule Man City out of Premier League title race**\
 `Trent Alexander-Arnold is refusing to rule Manchester City out of the title race despite their continued poor run of form.`\
 https://nytimes.com/athletic/5993726/2024/12/14/alexander-arnold-liverpool-man-city-title-race/
-
-**State of the Blues under Jim Montgomery: Assessing 5 areas of focus so far**\
-`The Blues' 4-3 loss to San Jose Thursday exposed some more areas where the team can improve.`\
-https://nytimes.com/athletic/5991378/2024/12/14/blues-jim-montgomery-analysis/
 
