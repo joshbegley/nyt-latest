@@ -1,3 +1,15 @@
+**Louisville lands USC transfer quarterback Miller Moss: Source**\
+`Moss also considered Missouri, but Louisville and Jeff Brohm’s quarterback-friendly offense won out for the Southern California native. `\
+https://nytimes.com/athletic/5994487/2024/12/14/louisville-miller-moss-transfer-quarterback/
+
+**Isak Andic, Founder of Mango Fashion Chain, Dies at 71**\
+`Mr. Andic got his start by selling T-shirts in Barcelona in the mid-1980s. He died in a fall during a hike.`\
+https://nytimes.com/2024/12/14/obituaries/isak-andic-dead.html
+
+**'This is bad': After another embarrassing display, more changes surely coming for Rangers**\
+`Someone's going to pay for this mess but it doesn't appear that one player or coach is the source of all of New York's problems right now.`\
+https://nytimes.com/athletic/5994328/2024/12/14/rangers-kings-peter-laviolette-coach/
+
 **Oregon adds Purdue standout DB Dillon Thieneman from portal**\
 `Thieneman has 210 tackles and six INTs in two years and an be an instant-impact transfer portal addition for Oregon from Purdue.`\
 https://nytimes.com/athletic/5994466/2024/12/14/dillon-thieneman-oregon-transfer-portal-purdue/
@@ -25,17 +37,4 @@ https://nytimes.com/2024/12/14/us/bob-fernandez-dead-pearl-harbor.html
 **South Koreans Celebrate the President’s Impeachment in Seoul**\
 `A dozen members of President Yoon Suk Yeol’s own party helped remove him from office. Lawmakers sought to impeach the president after his declaration of martial law drew public outrage.`\
 https://nytimes.com/video/world/asia/100000009878559/south-korea-impeachment-vote.html
-
-**Warriors in advanced talks to acquire Dennis Schröder from Nets**\
-`The deal can’t be completed until Sunday because the Warriors are sending back De'Anthony Melton's $12.8 million expiring contract.`\
-https://nytimes.com/athletic/5994382/2024/12/14/dennis-schroder-trade-nets-warriors/
-
-**Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
-`With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
-`\
-https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
-
-**Raiders' Maxx Crosby to miss second career game Monday due to ankle injury**\
-`Crosby hadn’t missed a game his entire career before sitting out with an ankle sprain in Week 4 against the Cleveland Browns.`\
-https://nytimes.com/athletic/5994416/2024/12/14/raiders-maxx-crosby-ankle-injury-falcons/
 

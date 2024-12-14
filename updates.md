@@ -1,3 +1,15 @@
+**Louisville lands USC transfer quarterback Miller Moss: Source**\
+`Moss also considered Missouri, but Louisville and Jeff Brohm’s quarterback-friendly offense won out for the Southern California native. `\
+https://nytimes.com/athletic/5994487/2024/12/14/louisville-miller-moss-transfer-quarterback/
+
+**Isak Andic, Founder of Mango Fashion Chain, Dies at 71**\
+`Mr. Andic got his start by selling T-shirts in Barcelona in the mid-1980s. He died in a fall during a hike.`\
+https://nytimes.com/2024/12/14/obituaries/isak-andic-dead.html
+
+**'This is bad': After another embarrassing display, more changes surely coming for Rangers**\
+`Someone's going to pay for this mess but it doesn't appear that one player or coach is the source of all of New York's problems right now.`\
+https://nytimes.com/athletic/5994328/2024/12/14/rangers-kings-peter-laviolette-coach/
+
 **Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
 `With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
 `\
