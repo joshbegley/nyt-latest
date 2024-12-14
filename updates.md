@@ -1,3 +1,7 @@
+**Hezbollah Loses Supply Route Through Syria, in Blow to It and Iran**\
+`The militant group’s leader admits that the toppling of Syria’s president, Bashar al-Assad, cut off an important land route from Iran.`\
+https://nytimes.com/2024/12/14/world/middleeast/hezbollah-supply-route-syria.html
+
 **ABC to Pay $15 Million to Settle a Defamation Suit Brought by Trump**\
 `The outcome of the lawsuit marks an unusual victory for President-elect Donald J. Trump in his ongoing legal campaign against national news organizations.`\
 https://nytimes.com/2024/12/14/us/politics/trump-abc-settlement.html
