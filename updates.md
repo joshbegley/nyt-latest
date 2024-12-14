@@ -1,3 +1,7 @@
+**NFL Week 15 roundtable: Bills-Lions, Sam Darnold's Vikings future, Eagles drama**\
+`A Bills-Lions showdown leads the way as our writers tackle all things Week 15.`\
+https://nytimes.com/athletic/5993028/2024/12/14/nfl-week-15-lions-bills-eagles-vikings/
+
 **Syria Shudders as Assad’s Prison Atrocities Come Into the Light**\
 `At the country’s most notorious prison, Syrians confront their worst fears: that they will never know what happened to the loved ones who disappeared.`\
 https://nytimes.com/2024/12/14/world/middleeast/syria-sednaya-prison-assad-atrocities.html
