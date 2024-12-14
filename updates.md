@@ -1,4 +1,8 @@
 **How the President Alienated South Korea, One Group at a Time**\
+`Even before Yoon Suk Yeol’s fateful decree, the public had been infuriated with near-constant scandals and unpopular decisions since he took office.`\
+https://nytimes.com/interactive/2024/12/14/world/asia/skorea-yoon-timeline.html
+
+**How the President Alienated South Korea, One Group at a Time**\
 `Even before Yoon Suk Yeol’s fateful decisio, the public had been infuriated with near-constant scandals and unpopular decisions since he took office.`\
 https://nytimes.com/interactive/2024/12/14/world/asia/skorea-yoon-timeline.html
 
