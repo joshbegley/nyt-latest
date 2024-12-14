@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zucc
 `\
 https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
 
+**Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
+`With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
+`\
+https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
+
 **South Koreans Celebrate the President’s Impeachment in Seoul**\
 `A dozen members of President Yoon Suk Yeol’s own party helped remove him from office. Lawmakers sought to impeach the president after his declaration of martial law drew public outrage.`\
 https://nytimes.com/video/world/asia/100000009878559/south-korea-impeachment-vote.html
