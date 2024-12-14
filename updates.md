@@ -1,3 +1,7 @@
+**Ryan Reynolds, Channing Tatum and a big weekend out in Wrexham (via the Fat Boar)**\
+`Ryan Reynolds and some celebrity friends were in Wrexham over the weekend to watch the game - and see what the town has to offer`\
+https://nytimes.com/athletic/5993738/2024/12/14/ryan-reynolds-wrexham-channing-tatum/
+
 **Personal Data of Rhode Island Residents Breached in Large Cyberattack**\
 `An “international cybercriminal group” harvested the personal data of potentially hundreds of thousands of people from the state’s social services and health insurance systems, officials said.`\
 https://nytimes.com/2024/12/14/us/cyberattack-rhode-island-ribridges-snap-medicaid.html
