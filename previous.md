@@ -1,3 +1,7 @@
+**Raiders' Maxx Crosby to miss second career game Monday due to ankle injury**\
+`Crosby hadn’t missed a game his entire career before sitting out with an ankle sprain in Week 4 against the Cleveland Browns.`\
+https://nytimes.com/athletic/5994416/2024/12/14/raiders-maxx-crosby-ankle-injury-falcons/
+
 **Trump Brings Hegseth to Watch Army-Navy Game**\
 `President-elect Donald J. Trump made a public show of support for his choice to lead the Defense Department.`\
 https://nytimes.com/2024/12/14/us/politics/trump-hegseth-daniel-penny-army-navy-game.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/14/us/googly-eyes-sculptures-bend-oregon.html
 **Athletics bolster rotation with Jeffrey Springs, Rays add projects, pick: Law**\
 `The A's now have a respectable top-three in their rotation, while Tampa sheds salary and adds a couple of intriguing prospects.`\
 https://nytimes.com/athletic/5994258/2024/12/14/athletics-rays-jeffrey-springs-trade-analysis/
-
-**Forest can compete against any Premier League team - Nuno**\
-`Nuno Espirito Santo believes Nottingham Forest &#8220;can compete&#8221; against any team in the Premier League after seeing his side climb into the Champions League qualification places with a dramatic win over Aston Villa.`\
-https://nytimes.com/athletic/5994307/2024/12/14/nottingham-forest-nuno-aston-villa/
 

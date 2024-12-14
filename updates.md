@@ -1,3 +1,7 @@
+**Raiders' Maxx Crosby to miss second career game Monday due to ankle injury**\
+`Crosby hadn’t missed a game his entire career before sitting out with an ankle sprain in Week 4 against the Cleveland Browns.`\
+https://nytimes.com/athletic/5994416/2024/12/14/raiders-maxx-crosby-ankle-injury-falcons/
+
 **Trump Brings Hegseth to Watch Army-Navy Game**\
 `President-elect Donald J. Trump made a public show of support for his choice to lead the Defense Department.`\
 https://nytimes.com/2024/12/14/us/politics/trump-hegseth-daniel-penny-army-navy-game.html
