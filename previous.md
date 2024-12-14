@@ -1,3 +1,7 @@
+**O'Neil says Wolves players risk being 'replaced' unless results improve**\
+`Wolverhampton Wanderers manager Gary O’Neil has warned his players they will be replaced unless they improve before the start of the January transfer window.`\
+https://nytimes.com/athletic/5994146/2024/12/14/gary-oneil-wolves-ipswich/
+
 **Bill Belichick's first win: Top-100 QB Bryce Baker reaffirms commitment to UNC**\
 `The North Carolina native and longtime UNC commit was leaning toward signing with Penn State. That changed after one call with Belichick.`\
 https://nytimes.com/athletic/5993782/2024/12/14/bill-belichick-recruiting-bryce-baker-qb/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/14/world/americas/brazil-arrest-ally-bolsonaro.html
 **The Briefing: Liverpool 2 Fulham 2 - Slot's team come from behind twice after Robertson red card**\
 `Andy Jones breaks down the key talking points from Saturday's game at Anfield`\
 https://nytimes.com/athletic/5989984/2024/12/14/liverpool-fulham-premier-league-result-analysis/
-
-**The Briefing: Arsenal 0 Everton 0 - Frustration for Arteta, a need for speed, and faith in Lewis-Skelly**\
-`Art de Roche analyses the key talking points from Arsenal's goalless draw with Everton`\
-https://nytimes.com/athletic/5989982/2024/12/14/arsenal-everton-analysis/
 

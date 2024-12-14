@@ -1,3 +1,7 @@
+**O'Neil says Wolves players risk being 'replaced' unless results improve**\
+`Wolverhampton Wanderers manager Gary O’Neil has warned his players they will be replaced unless they improve before the start of the January transfer window.`\
+https://nytimes.com/athletic/5994146/2024/12/14/gary-oneil-wolves-ipswich/
+
 **Bill Belichick's first win: Top-100 QB Bryce Baker reaffirms commitment to UNC**\
 `The North Carolina native and longtime UNC commit was leaning toward signing with Penn State. That changed after one call with Belichick.`\
 https://nytimes.com/athletic/5993782/2024/12/14/bill-belichick-recruiting-bryce-baker-qb/
