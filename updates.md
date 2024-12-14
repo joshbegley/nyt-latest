@@ -1,3 +1,7 @@
+**Astros emerge as serious suitor for Nolan Arenado: Sources**\
+`Arenado is a 10-time Gold Glove winner, an eight-time All-Star and considered one of this generation’s greatest defensive third basemen. `\
+https://nytimes.com/athletic/5993876/2024/12/14/astros-nolan-arenado-trade-suitor/
+
 **Georgian Lawmakers Hand Presidency to Far-Right Former Soccer Star**\
 `The vote, boycotted by opposition parties in Parliament, sets up a standoff with the sitting president and deepens turmoil in the country after protests and a disputed election.`\
 https://nytimes.com/2024/12/14/world/europe/georgia-president-election-russia.html
