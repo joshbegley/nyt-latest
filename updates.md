@@ -1,3 +1,11 @@
+**Argentina’s President Receives Italian Citizenship, Angering Law’s Critics**\
+`Javier Milei has vocally prided his Italian ancestry, and tried to bolster ties with Italy’s conservative prime minister. But his new passport angered critics of Italy’s rules on citizenship.`\
+https://nytimes.com/2024/12/14/world/europe/argentina-president-milei-italy-citizenship.html
+
+**Silva heaps praise on Robinson after two-assist performance vs. Liverpool**\
+`Marco Silva says Antonee Robinson’s performance against Liverpool was so impressive it left him lost for words.`\
+https://nytimes.com/athletic/5994076/2024/12/14/antonee-robinson-fulham-liverpool-usmnt/
+
 **Pelosi Has Hip Replacement Surgery After Fall**\
 `The former speaker of the House “is well on the mend,” her spokesman said. She fell while in Luxembourg as part of a congressional delegation to mark the 80th anniversary of the Battle of the Bulge.`\
 https://nytimes.com/2024/12/14/us/pelosi-hip-replacement-surgery.html
