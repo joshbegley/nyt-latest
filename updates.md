@@ -1,3 +1,7 @@
+**Blues trade for Cam Fowler, send prospect and pick to Ducks**\
+`St. Louis is sending prospect Jeremie Biakabutuka and a 2027 second-rounder to Anaheim for Fowler and a 2027 fourth-rounder.`\
+https://nytimes.com/athletic/5993831/2024/12/14/cam-fowler-blues-ducks-trade/
+
 **Trump Has Little Room for Error**\
 `How Trump might cut short his political honeymoon.`\
 https://nytimes.com/2024/12/14/opinion/trump-grocery-prices-deportation.html
