@@ -1,3 +1,7 @@
+**Villa denied 'clear penalty' in 'massive mistake' by VAR - Emery**\
+`Unai Emery says Aston Villa were denied a &#8220;clear penalty&#8221; following their 2-1 defeat at Nottingham Forest.`\
+https://nytimes.com/athletic/5994268/2024/12/14/aston-villa-penalty-rogers-emery/
+
 **Marshall withdrawing from Independence Bowl vs. Army**\
 `The departure of coach Charles Huff sparked a roster exodus that included more than 20 players hitting the transfer portal and opting out.`\
 https://nytimes.com/athletic/5994241/2024/12/14/marshall-withdrawing-independence-bowl-army/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/14/us/pelosi-hip-replacement-surgery.html
 **Silva heaps praise on Robinson after two-assist performance vs. Liverpool**\
 `Marco Silva says Antonee Robinson’s performance against Liverpool was so impressive it left him lost for words.`\
 https://nytimes.com/athletic/5994076/2024/12/14/antonee-robinson-fulham-liverpool-usmnt/
-
-**New Mexico hiring Idaho's Jason Eck as coach: Source**\
-`Jason Eck led Idaho to three consecutive FCS playoff bids and takes over as coach of New Mexico after Bronco Mendenhall left for Utah State.`\
-https://nytimes.com/athletic/5993995/2024/12/14/jason-eck-new-mexico-coach-idaho/
 
