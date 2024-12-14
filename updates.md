@@ -1,3 +1,7 @@
+**Bill Belichick's first win: Top-100 QB Bryce Baker reaffirms commitment to UNC**\
+`The North Carolina native and longtime UNC commit was leaning toward signing with Penn State. That changed after one call with Belichick.`\
+https://nytimes.com/athletic/5993782/2024/12/14/bill-belichick-recruiting-bryce-baker-qb/
+
 **Argentina’s President Receives Italian Citizenship, Angering Law’s Critics**\
 `Javier Milei is proud of his Italian ancestry and has tried to bolster ties with Italy’s conservative prime minister. But his new passport angered critics of Italy’s rules on citizenship.`\
 https://nytimes.com/2024/12/14/world/europe/argentina-president-milei-italy-citizenship.html

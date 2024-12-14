@@ -1,3 +1,7 @@
+**Bill Belichick's first win: Top-100 QB Bryce Baker reaffirms commitment to UNC**\
+`The North Carolina native and longtime UNC commit was leaning toward signing with Penn State. That changed after one call with Belichick.`\
+https://nytimes.com/athletic/5993782/2024/12/14/bill-belichick-recruiting-bryce-baker-qb/
+
 **Argentina’s President Receives Italian Citizenship, Angering Law’s Critics**\
 `Javier Milei is proud of his Italian ancestry and has tried to bolster ties with Italy’s conservative prime minister. But his new passport angered critics of Italy’s rules on citizenship.`\
 https://nytimes.com/2024/12/14/world/europe/argentina-president-milei-italy-citizenship.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989984/2024/12/14/liverpool-fulham-premier-league-
 **The Briefing: Arsenal 0 Everton 0 - Frustration for Arteta, a need for speed, and faith in Lewis-Skelly**\
 `Art de Roche analyses the key talking points from Arsenal's goalless draw with Everton`\
 https://nytimes.com/athletic/5989982/2024/12/14/arsenal-everton-analysis/
-
-**Week 15 fantasy football rankings: Sleepers, projections, starts, sits | Rico Dowdle, Marvin Harrison**\
-`In his insightful rundown for the first round of the fantasy playoffs, Jake Ciely notes that Rico Dowdle has been on a RB1 level of late. `\
-https://nytimes.com/athletic/5985016/2024/12/14/week-15-fantasy-football-rankings-sleepers-projections-starts-sits-kirk-cousins-marvin-harrison/
 
