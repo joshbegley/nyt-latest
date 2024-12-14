@@ -1,3 +1,11 @@
+**Thanks to a Prank, Sculptures Make Googly Eyes at Oregon Residents**\
+`The eyes were attached to eight installations, to the delight of residents. City officials, who lamented the cost of repairs, were less amused.`\
+https://nytimes.com/2024/12/14/us/googly-eyes-sculptures-bend-oregon.html
+
+**Ryan Reynolds, Channing Tatum and a big weekend out in Wrexham (via the Fat Boar)**\
+`Ryan Reynolds and some celebrity friends were in Wrexham over the weekend to watch the game — and see what the town has to offer`\
+https://nytimes.com/athletic/5993738/2024/12/14/ryan-reynolds-wrexham-channing-tatum/
+
 **Athletics bolster rotation with Jeffrey Springs, Rays add projects, pick: Law**\
 `The A's now have a respectable top-three in their rotation, while Tampa sheds salary and adds a couple of intriguing prospects.`\
 https://nytimes.com/athletic/5994258/2024/12/14/athletics-rays-jeffrey-springs-trade-analysis/
