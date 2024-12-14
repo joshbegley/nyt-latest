@@ -1,3 +1,7 @@
+**'He was the star': Jaden McDaniels' defensive revival lifts Wolves, drops Lakers**\
+`McDaniels is back to his frightening self on the defensive end, helping Minnesota become one of the NBA's most stingy teams lately.`\
+https://nytimes.com/athletic/5993473/2024/12/14/jaden-mcdaniels-timberwolves-defense-lakers/
+
 **Chelsea in Almaty: Freezing cold, taxis across the border and a meeting with Mongolian Blues**\
 `Fans travelled over land and sea to attend the London club's most far-flung 'European' tie, though the visitors were not just from England`\
 https://nytimes.com/athletic/5991718/2024/12/14/chelsea-almaty-kazakhstan-astana/

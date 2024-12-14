@@ -1,3 +1,7 @@
+**'He was the star': Jaden McDaniels' defensive revival lifts Wolves, drops Lakers**\
+`McDaniels is back to his frightening self on the defensive end, helping Minnesota become one of the NBA's most stingy teams lately.`\
+https://nytimes.com/athletic/5993473/2024/12/14/jaden-mcdaniels-timberwolves-defense-lakers/
+
 **Chelsea in Almaty: Freezing cold, taxis across the border and a meeting with Mongolian Blues**\
 `Fans travelled over land and sea to attend the London club's most far-flung 'European' tie, though the visitors were not just from England`\
 https://nytimes.com/athletic/5991718/2024/12/14/chelsea-almaty-kazakhstan-astana/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/14/style/julio-torres-gifts-holidays.html
 **Quote of the Day: Europeans Eye Giving Syrians A Nudge Home**\
 `Quotation of the Day for Saturday, December 14, 2024.`\
 https://nytimes.com/2024/12/13/pageoneplus/quote-of-the-day-europeans-eye-giving-syrians-a-nudge-home.html
-
-**Joel Embiid suffers sinus fracture in first half of Sixers loss**\
-`After a stretch of four wins in five games, Friday's loss leaves Philadelphia sandwiched between the Pistons and Hornets in the East.`\
-https://nytimes.com/athletic/5993615/2024/12/13/joel-embiid-sinus-fracture-sixers-loss/
 
