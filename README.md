@@ -1,4 +1,4 @@
-**Dana Brown's Astros tenure is defined by his trade of Kyle Tucker**\
+**Dana Brown's Astros tenure will be defined by his trade of Kyle Tucker**\
 `After making the Astros' first trade of an All-Star in over a decade, Brown is tasked with maintaining the team's status as a contender.`\
 https://nytimes.com/athletic/5993511/2024/12/13/astros-dana-brown-gm-tenure-kyle-tucker-trade/
 
