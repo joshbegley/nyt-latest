@@ -1,3 +1,7 @@
+**Brazilian Police Arrest Close Ally of Ex-President Bolsonaro, Official Says**\
+`Gen. Walter Braga Netto was Jair Bolsonaro’s running mate. The arrest was for meddling in an investigation into a plot to stage a coup, the police said.`\
+https://nytimes.com/2024/12/14/world/americas/brazil-arrest-ally-bolsonaro.html
+
 **The Briefing: Liverpool 2 Fulham 2 - Slot's team come from behind twice after Robertson red card**\
 `Andy Jones breaks down the key talking points from Saturday's game at Anfield`\
 https://nytimes.com/athletic/5989984/2024/12/14/liverpool-fulham-premier-league-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993876/2024/12/14/astros-nolan-arenado-trade-suito
 **Georgian Lawmakers Hand Presidency to Far-Right Former Soccer Star**\
 `The vote, boycotted by opposition parties in Parliament, sets up a standoff with the sitting president and deepens turmoil in the country after protests and a disputed election.`\
 https://nytimes.com/2024/12/14/world/europe/georgia-president-election-russia.html
-
-**Auburn signs Oklahoma transfer QB Jackson Arnold**\
-`Can Arnold, a five-star recruit in the Class of 2023, unlock his potential Hugh Freeze at Auburn after uneven results at Oklahoma?`\
-https://nytimes.com/athletic/5993811/2024/12/14/jackson-arnold-auburn-transfer-oklahoma/
 

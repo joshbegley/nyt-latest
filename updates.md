@@ -1,3 +1,7 @@
+**Brazilian Police Arrest Close Ally of Ex-President Bolsonaro, Official Says**\
+`Gen. Walter Braga Netto was Jair Bolsonaro’s running mate. The arrest was for meddling in an investigation into a plot to stage a coup, the police said.`\
+https://nytimes.com/2024/12/14/world/americas/brazil-arrest-ally-bolsonaro.html
+
 **The Briefing: Newcastle 4 Leicester 0 - Set-piece work shining through and finally some new goalscorers**\
 `Chris Waugh breaks down the action from a dominant — and important — victory at St James' Park`\
 https://nytimes.com/athletic/5989985/2024/12/14/newcastle-leicester-murphy-bruno-isak/
