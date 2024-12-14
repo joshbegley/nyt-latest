@@ -1,3 +1,16 @@
+**South Koreans Celebrate the President’s Impeachment in Seoul**\
+`A dozen members of President Yoon Suk Yeol’s own party helped remove him from office. Lawmakers sought to impeach the president after his declaration of martial law drew public outrage.`\
+https://nytimes.com/video/world/asia/100000009878559/south-korea-impeachment-vote.html
+
+**Warriors in advanced talks to acquire Dennis Schröder from Nets**\
+`The deal can’t be completed until Sunday because the Warriors are sending back De'Anthony Melton's $12.8 million expiring contract.`\
+https://nytimes.com/athletic/5994382/2024/12/14/dennis-schroder-trade-nets-warriors/
+
+**Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
+`With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
+`\
+https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
+
 **Raiders' Maxx Crosby to miss second career game Monday due to ankle injury**\
 `Crosby hadn’t missed a game his entire career before sitting out with an ankle sprain in Week 4 against the Cleveland Browns.`\
 https://nytimes.com/athletic/5994416/2024/12/14/raiders-maxx-crosby-ankle-injury-falcons/
@@ -25,16 +38,4 @@ https://nytimes.com/2024/12/14/us/politics/trump-abc-settlement.html
 **The Impeachment of South Korea’s President, Explained**\
 `In its second attempt, the National Assembly moved to force President Yoon Suk Yeol from office. But the troubles for him and his country are far from over.`\
 https://nytimes.com/2024/12/14/world/asia/south-korea-impeachment-yoon-explained.html
-
-**Wolves' Cunha in altercation with Ipswich staff member**\
-`Wolverhampton Wanderers striker Matheus Cunha could face punishment after a post-match altercation that allegedly left an Ipswich security guard’s glasses broken.`\
-https://nytimes.com/athletic/5994252/2024/12/14/matheus-cunha-ipswich-altercation/
-
-**Thanks to a Prank, Sculptures Make Googly Eyes at Oregon Residents**\
-`The eyes were attached to eight installations, to the delight of residents. City officials, who lamented the cost of repairs, were less amused.`\
-https://nytimes.com/2024/12/14/us/googly-eyes-sculptures-bend-oregon.html
-
-**Athletics bolster rotation with Jeffrey Springs, Rays add projects, pick: Law**\
-`The A's now have a respectable top-three in their rotation, while Tampa sheds salary and adds a couple of intriguing prospects.`\
-https://nytimes.com/athletic/5994258/2024/12/14/athletics-rays-jeffrey-springs-trade-analysis/
 
