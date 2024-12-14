@@ -1,3 +1,7 @@
+**13 insights fantasy football managers need to know ahead of Week 15**\
+`Among Theo Gremminger's latest fantasy football insights, he says Sincere McCormick could be repeating history in Las Vegas.`\
+https://nytimes.com/athletic/5992517/2024/12/14/13-insights-fantasy-football-week-15/
+
 **'He was the star': Jaden McDaniels' defensive revival lifts Wolves, drops Lakers**\
 `McDaniels is back to his frightening self on the defensive end, helping Minnesota become one of the NBA's most stingy teams lately.`\
 https://nytimes.com/athletic/5993473/2024/12/14/jaden-mcdaniels-timberwolves-defense-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989853/2024/12/14/arsenal-everton-preview-odds-pre
 **The Art of the Gift: Julio Torres**\
 `“A good gift is like a bridge between two people,” the creator of “Los Espookys” said. “It’s a way of communicating, ‘You are on my mind when you’re not in front of me.’”`\
 https://nytimes.com/2024/12/14/style/julio-torres-gifts-holidays.html
-
-**Quote of the Day: Europeans Eye Giving Syrians A Nudge Home**\
-`Quotation of the Day for Saturday, December 14, 2024.`\
-https://nytimes.com/2024/12/13/pageoneplus/quote-of-the-day-europeans-eye-giving-syrians-a-nudge-home.html
 
