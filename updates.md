@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 4 Leicester 0 - Set-piece work shining through and finally some new goalscorers**\
+`Chris Waugh breaks down the action from a dominant — and important — victory at St James' Park`\
+https://nytimes.com/athletic/5989985/2024/12/14/newcastle-leicester-murphy-bruno-isak/
+
 **The Briefing: Liverpool 2 Fulham 2 - Slot's team come from behind twice after Robertson red card**\
 `Andy Jones breaks down the key talking points from Saturday's game at Anfield`\
 https://nytimes.com/athletic/5989984/2024/12/14/liverpool-fulham-premier-league-result-analysis/
