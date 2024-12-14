@@ -4,7 +4,7 @@ https://nytimes.com/2024/12/14/world/asia/celebrations-protesters-impeached.html
 
 **Blinken Meeting Arab Ministers Amid Uncertainty Over Syria Transition**\
 `Secretary of State Antony J. Blinken was in Jordan to confer with Arab foreign ministers on the ouster of the longtime Syrian dictator Bashar al-Assad.`\
-https://nytimes.com/2024/12/14/world/middleeast/blinken-meeting-arab-ministers-amid-uncertainty-over-syria-transition.html
+https://nytimes.com/2024/12/14/world/middleeast/blinken-jordan-syria-transition.html
 
 **Moody’s Downgrades France’s Credit Rating, Citing Political Turmoil**\
 `The action, which will put pressure on the nation’s borrowing costs, reflects doubt that a new government can mend the deteriorating financial situation.`\
