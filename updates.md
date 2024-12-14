@@ -1,3 +1,7 @@
+**Arteta explains Odegaard, Rice substitutions**\
+`Mikel Arteta has explained his decision to substitute Martin Odegaard and Declan Rice during the second half of Arsenal&#8217;s goalless draw at home to Everton.`\
+https://nytimes.com/athletic/5993980/2024/12/14/mikel-arteta-odegaard-rice-subs/
+
 **The Briefing: Arsenal 0 Everton 0 - Frustration for Arteta, a need for speed, and faith in Lewis-Skelly**\
 `Art de Roche analyses the key talking points from Arsenal's goalless draw with Everton`\
 https://nytimes.com/athletic/5989982/2024/12/14/arsenal-everton-analysis/
