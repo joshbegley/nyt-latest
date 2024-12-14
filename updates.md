@@ -1,4 +1,12 @@
 **Argentina’s President Receives Italian Citizenship, Angering Law’s Critics**\
+`Javier Milei is proud of his Italian ancestry and has tried to bolster ties with Italy’s conservative prime minister. But his new passport angered critics of Italy’s rules on citizenship.`\
+https://nytimes.com/2024/12/14/world/europe/argentina-president-milei-italy-citizenship.html
+
+**Week 15 fantasy football rankings: Sleepers, projections, starts, sits | Rico Dowdle, Marvin Harrison**\
+`In his insightful rundown for the first round of the fantasy playoffs, Jake Ciely notes that Rico Dowdle has been on a RB1 level of late. `\
+https://nytimes.com/athletic/5985016/2024/12/14/week-15-fantasy-football-rankings-sleepers-projections-starts-sits-kirk-cousins-marvin-harrison/
+
+**Argentina’s President Receives Italian Citizenship, Angering Law’s Critics**\
 `Javier Milei has vocally prided his Italian ancestry, and tried to bolster ties with Italy’s conservative prime minister. But his new passport angered critics of Italy’s rules on citizenship.`\
 https://nytimes.com/2024/12/14/world/europe/argentina-president-milei-italy-citizenship.html
 

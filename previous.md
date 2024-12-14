@@ -1,5 +1,5 @@
 **Argentina’s President Receives Italian Citizenship, Angering Law’s Critics**\
-`Javier Milei has vocally prided his Italian ancestry, and tried to bolster ties with Italy’s conservative prime minister. But his new passport angered critics of Italy’s rules on citizenship.`\
+`Javier Milei is proud of his Italian ancestry and has tried to bolster ties with Italy’s conservative prime minister. But his new passport angered critics of Italy’s rules on citizenship.`\
 https://nytimes.com/2024/12/14/world/europe/argentina-president-milei-italy-citizenship.html
 
 **Pelosi Has Hip Replacement Surgery After Fall**\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5989984/2024/12/14/liverpool-fulham-premier-league-
 `Art de Roche analyses the key talking points from Arsenal's goalless draw with Everton`\
 https://nytimes.com/athletic/5989982/2024/12/14/arsenal-everton-analysis/
 
-**The Briefing: Newcastle 4 Leicester 0 - Set-piece work shining through and finally some new goalscorers**\
-`Chris Waugh breaks down the action from a dominant — and important — victory at St James' Park`\
-https://nytimes.com/athletic/5989985/2024/12/14/newcastle-leicester-murphy-bruno-isak/
+**Week 15 fantasy football rankings: Sleepers, projections, starts, sits | Rico Dowdle, Marvin Harrison**\
+`In his insightful rundown for the first round of the fantasy playoffs, Jake Ciely notes that Rico Dowdle has been on a RB1 level of late. `\
+https://nytimes.com/athletic/5985016/2024/12/14/week-15-fantasy-football-rankings-sleepers-projections-starts-sits-kirk-cousins-marvin-harrison/
 
