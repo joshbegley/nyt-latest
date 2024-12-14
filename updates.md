@@ -1,3 +1,11 @@
+**Trump Brings Hegseth to Watch Army-Navy Game**\
+`President-elect Donald J. Trump made a public show of support for his choice to lead the Defense Department.`\
+https://nytimes.com/2024/12/14/us/politics/trump-hegseth-daniel-penny-army-navy-game.html
+
+**Ducks' return in Cam Fowler trade isn't much, but their future is helped in an important way**\
+`Fowler had been part of a logjam on the Ducks' roster that now will be eased.`\
+https://nytimes.com/athletic/5994366/2024/12/14/ducks-fowler-trade-defensemen/
+
 **Why did the Bruins claim Oliver Wahlstrom off waivers? Because they can't score**\
 `The Bruins are hoping Wahlstrom can dust off his scoring touch for his new club.`\
 https://nytimes.com/athletic/5994335/2024/12/14/bruins-oliver-wahlstrom-waiver-claim/
