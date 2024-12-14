@@ -1,3 +1,7 @@
+**Sam Altman on Microsoft, Trump and Musk**\
+`The OpenAI C.E.O. spoke with Andrew Ross Sorkin at the DealBook Summit.`\
+https://nytimes.com/2024/12/14/business/dealbook/sam-altman-dealbook.html
+
 **Vote For the Best Metropolitan Diary Entry of 2024**\
 `We will have published 250 Diary entries this year by the end of December. We need your help choosing the best. New York Times editors narrowed the field to five finalists. Now it’s up to you to vote for your favorite.`\
 https://nytimes.com/interactive/2024/nyregion/metropolitan-diary-contest-2024.html

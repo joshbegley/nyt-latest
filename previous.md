@@ -1,3 +1,7 @@
+**Sam Altman on Microsoft, Trump and Musk**\
+`The OpenAI C.E.O. spoke with Andrew Ross Sorkin at the DealBook Summit.`\
+https://nytimes.com/2024/12/14/business/dealbook/sam-altman-dealbook.html
+
 **Vote For the Best Metropolitan Diary Entry of 2024**\
 `We will have published 250 Diary entries this year by the end of December. We need your help choosing the best. New York Times editors narrowed the field to five finalists. Now it’s up to you to vote for your favorite.`\
 https://nytimes.com/interactive/2024/nyregion/metropolitan-diary-contest-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5990507/2024/12/14/nhl-trade-rumors-top-targets/
 **How Sweden Could End Its Epidemic of Gang Violence**\
 `We know that tough-on-crime policies for children have been tried repeatedly elsewhere and have failed. So why is my country headed that way?`\
 https://nytimes.com/2024/12/14/opinion/sweden-gang-violence.html
-
-**The Menendez Brothers Are a Test for Society and the Courts**\
-`Society knows more about abuse now, but it may not matter to the judicial system.`\
-https://nytimes.com/2024/12/14/opinion/menendez-brothers-abuse.html
 
