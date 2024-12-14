@@ -1,3 +1,11 @@
+**Chelsea in Almaty: Freezing cold, taxis across the border and a meeting with Mongolian Blues**\
+`Fans travelled over land and sea to attend the London club's most far-flung 'European' tie, though the visitors were not just from England`\
+https://nytimes.com/athletic/5991718/2024/12/14/chelsea-almaty-kazakhstan-astana/
+
+**At their peak, City used to fear the unpredictability of Manchester derbies. Now it could help them out**\
+`Why the ferocity of a game against their rivals might be just the thing to jolt Guardiola's team out of its slump`\
+https://nytimes.com/athletic/5989520/2024/12/14/manchester-city-derby-record-unpredicability/
+
 **What makes Frank special: 'Secret sauce', training for stoppage time - and games of Risk**\
 `What makes the Dane stand out on and off the field - according to those who know him best`\
 https://nytimes.com/athletic/5989110/2024/12/14/thomas-frank-brentford-manager-special/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/13/pageoneplus/quote-of-the-day-europeans-eye-giving
 **Joel Embiid suffers sinus fracture in first half of Sixers loss**\
 `After a stretch of four wins in five games, Friday's loss leaves Philadelphia sandwiched between the Pistons and Hornets in the East.`\
 https://nytimes.com/athletic/5993615/2024/12/13/joel-embiid-sinus-fracture-sixers-loss/
-
-**The Message: Impeach South Korea’s President. The Tune: ‘Feliz Navidad.’**\
-`Baek Jae Gil, whose viral anthem calls for the ouster of President Yoon Suk Yeol, has a long history with the country’s pro-democracy movement.`\
-https://nytimes.com/2024/12/13/world/asia/south-korea-protest-feliz-navidad.html
-
-**South Korea’s President Faces New Impeachment Vote**\
-`President Yoon Suk Yeol’s ruling party blocked the opposition’s first attempt a week ago after his short-lived attempt to declare martial law.`\
-https://nytimes.com/2024/12/13/world/asia/south-korea-president-yoon-impeach.html
 
