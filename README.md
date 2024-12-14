@@ -1,3 +1,7 @@
+**NFL Week 15 roundtable: Bills-Lions, Sam Darnold's Vikings future, Eagles drama**\
+`A Bills-Lions showdown leads the way as our writers tackle all things Week 15.`\
+https://nytimes.com/athletic/5993028/2024/12/14/nfl-week-15-lions-bills-eagles-vikings/
+
 **Syria Shudders as Assad’s Prison Atrocities Come Into the Light**\
 `At the country’s most notorious prison, Syrians confront their worst fears: that they will never know what happened to the loved ones who disappeared.`\
 https://nytimes.com/2024/12/14/world/middleeast/syria-sednaya-prison-assad-atrocities.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/14/business/economy/trump-ila-port-strike.html
 **My Apartment Is Way Too Cold! How Do I Make the Landlord Fix It?**\
 `If your rental is not properly heated, gather your neighbors and complain together.`\
 https://nytimes.com/2024/12/14/realestate/my-apartment-is-way-too-cold.html
-
-**A.T.F. Braces for a Sharp Change of Course Under Trump**\
-`There is little doubt that tumult lies ahead for the Bureau of Alcohol, Tobacco, Firearms and Explosives, perhaps in the form of even deeper funding cuts.`\
-https://nytimes.com/2024/12/14/us/politics/atf-braces-for-a-sharp-change-of-course-under-trump.html
 
