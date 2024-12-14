@@ -1,3 +1,7 @@
+**Why did the Bruins claim Oliver Wahlstrom off waivers? Because they can't score**\
+`The Bruins are hoping Wahlstrom can dust off his scoring touch for his new club.`\
+https://nytimes.com/athletic/5994335/2024/12/14/bruins-oliver-wahlstrom-waiver-claim/
+
 **Hezbollah Loses Supply Route Through Syria, in Blow to It and Iran**\
 `The militant group’s leader admits that the toppling of Syria’s president, Bashar al-Assad, cut off an important land route from Iran.`\
 https://nytimes.com/2024/12/14/world/middleeast/hezbollah-supply-route-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5994268/2024/12/14/aston-villa-penalty-rogers-emery
 **Marshall withdrawing from Independence Bowl vs. Army**\
 `The departure of coach Charles Huff sparked a roster exodus that included more than 20 players hitting the transfer portal and opting out.`\
 https://nytimes.com/athletic/5994241/2024/12/14/marshall-withdrawing-independence-bowl-army/
-
-**Ryan Reynolds, Channing Tatum and a big weekend out in Wrexham (via the Fat Boar)**\
-`Ryan Reynolds and some celebrity friends were in Wrexham over the weekend to watch the game — and see what the town has to offer`\
-https://nytimes.com/athletic/5993738/2024/12/14/ryan-reynolds-wrexham-channing-tatum/
 
