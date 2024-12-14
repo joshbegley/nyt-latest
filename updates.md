@@ -1,3 +1,7 @@
+**Villa denied 'clear penalty' in 'massive mistake' by VAR - Emery**\
+`Unai Emery says Aston Villa were denied a &#8220;clear penalty&#8221; following their 2-1 defeat at Nottingham Forest.`\
+https://nytimes.com/athletic/5994268/2024/12/14/aston-villa-penalty-rogers-emery/
+
 **Marshall withdrawing from Independence Bowl vs. Army**\
 `The departure of coach Charles Huff sparked a roster exodus that included more than 20 players hitting the transfer portal and opting out.`\
 https://nytimes.com/athletic/5994241/2024/12/14/marshall-withdrawing-independence-bowl-army/
