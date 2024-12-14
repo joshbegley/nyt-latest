@@ -1,3 +1,7 @@
+**Dana Brown's tenure is defined by his trade of Kyle Tucker**\
+`After making the Astros' first trade of an All-Star in over a decade, Brown is tasked with maintaining the team's status as a contender.`\
+https://nytimes.com/athletic/5993511/2024/12/13/astros-dana-brown-gm-tenure-kyle-tucker-trade/
+
 **MLS Cup final sees decrease in broadcast audience, a worrying trend since Apple deal**\
 `This year's MLS Cup final struggled going up against the most-watch college football game of the year.`\
 https://nytimes.com/athletic/5993457/2024/12/13/mls-cup-broadcast-audience-decreased/
