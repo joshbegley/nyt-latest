@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zucc
 `\
 https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
 
+**Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
+`With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
+`\
+https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
+
 **Strong Storm Brings a Rarity in San Francisco: A Tornado Warning**\
 `Less than two weeks after a tsunami warning, residents were jolted awake before 6 a.m. to consider a new potential disaster scenario.`\
 https://nytimes.com/2024/12/14/us/storm-tornado-warning-sf-weather.html
