@@ -1,3 +1,7 @@
+**A's acquiring Jeffrey Springs from Rays to boost starting rotation**\
+`The trade moves the Athletics closer to avoiding a grievance with the Major League Baseball Players Association.`\
+https://nytimes.com/athletic/5994073/2024/12/14/jeffrey-springs-trade-athletics-rays/
+
 **Arteta explains Odegaard, Rice substitutions**\
 `Mikel Arteta has explained his decision to substitute Martin Odegaard and Declan Rice during the second half of Arsenal&#8217;s goalless draw at home to Everton.`\
 https://nytimes.com/athletic/5993980/2024/12/14/mikel-arteta-odegaard-rice-subs/
