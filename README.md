@@ -1,3 +1,11 @@
+**Trump Brings Hegseth to Watch Army-Navy Game**\
+`President-elect Donald J. Trump made a public show of support for his choice to lead the Defense Department.`\
+https://nytimes.com/2024/12/14/us/politics/trump-hegseth-daniel-penny-army-navy-game.html
+
+**Ducks' return in Cam Fowler trade isn't much, but their future is helped in an important way**\
+`Fowler had been part of a logjam on the Ducks' roster that now will be eased.`\
+https://nytimes.com/athletic/5994366/2024/12/14/ducks-fowler-trade-defensemen/
+
 **Why did the Bruins claim Oliver Wahlstrom off waivers? Because they can't score**\
 `The Bruins are hoping Wahlstrom can dust off his scoring touch for his new club.`\
 https://nytimes.com/athletic/5994335/2024/12/14/bruins-oliver-wahlstrom-waiver-claim/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5994258/2024/12/14/athletics-rays-jeffrey-springs-t
 **Forest can compete against any Premier League team - Nuno**\
 `Nuno Espirito Santo believes Nottingham Forest &#8220;can compete&#8221; against any team in the Premier League after seeing his side climb into the Champions League qualification places with a dramatic win over Aston Villa.`\
 https://nytimes.com/athletic/5994307/2024/12/14/nottingham-forest-nuno-aston-villa/
-
-**Villa denied 'clear penalty' in 'massive mistake' by VAR - Emery**\
-`Unai Emery says Aston Villa were denied a &#8220;clear penalty&#8221; following their 2-1 defeat at Nottingham Forest.`\
-https://nytimes.com/athletic/5994268/2024/12/14/aston-villa-penalty-rogers-emery/
-
-**Marshall withdrawing from Independence Bowl vs. Army**\
-`The departure of coach Charles Huff sparked a roster exodus that included more than 20 players hitting the transfer portal and opting out.`\
-https://nytimes.com/athletic/5994241/2024/12/14/marshall-withdrawing-independence-bowl-army/
 
