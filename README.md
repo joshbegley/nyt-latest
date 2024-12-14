@@ -1,3 +1,7 @@
+**Dana Brown's tenure is defined by his trade of Kyle Tucker**\
+`After making the Astros' first trade of an All-Star in over a decade, Brown is tasked with maintaining the team's status as a contender.`\
+https://nytimes.com/athletic/5993511/2024/12/13/astros-dana-brown-gm-tenure-kyle-tucker-trade/
+
 **MLS Cup final sees decrease in broadcast audience, a worrying trend since Apple deal**\
 `This year's MLS Cup final struggled going up against the most-watch college football game of the year.`\
 https://nytimes.com/athletic/5993457/2024/12/13/mls-cup-broadcast-audience-decreased/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993379/2024/12/13/lebron-james-lakers-jj-redick-re
 **U.S. Court Denies TikTok’s Request to Freeze Sale-or-Ban Law**\
 `TikTok had sought to temporarily freeze a law that requires its Chinese parent to sell the app or face a U.S. ban next month. The case may now head to the Supreme Court.`\
 https://nytimes.com/2024/12/13/business/us-court-tiktok-sale-or-ban.html
-
-**FMF, Liga MX commissioner president Juan Carlos Rodriguez resigns**\
-`Rodriguez was elected president of the Mexican Football Federation (FMF) in May of 2023.`\
-https://nytimes.com/athletic/5993343/2024/12/13/fmf-liga-mx-commissioner-president-juan-carlos-rodriguez-resigns/
 
