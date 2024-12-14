@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 0 Everton 0 - Frustration for Arteta, a need for speed, and faith in Lewis-Skelly**\
+`Art de Roche analyses the key talking points from Arsenal's goalless draw with Everton`\
+https://nytimes.com/athletic/5989982/2024/12/14/arsenal-everton-analysis/
+
 **Brazilian Police Arrest Close Ally of Ex-President Bolsonaro, Official Says**\
 `Gen. Walter Braga Netto was Jair Bolsonaro’s running mate. The arrest was for meddling in an investigation into a plot to stage a coup, the police said.`\
 https://nytimes.com/2024/12/14/world/americas/brazil-arrest-ally-bolsonaro.html
