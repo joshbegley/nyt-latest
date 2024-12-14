@@ -108,6 +108,11 @@ https://nytimes.com/athletic/5993010/2024/12/14/winnipeg-jets-ville-heinola-loga
 `\
 https://nytimes.com/athletic/5993010/2024/12/14/winnipeg-jets-ville-heinola-logan-stanley/
 
+**Ville Heinola or Logan Stanley? Who's the solution to the Jets' third-pair problems?**\
+`Winnipeg's third defence pair of Heinola and Stanley is a short-term problem that is supposed to provide a long-term solution.
+`\
+https://nytimes.com/athletic/5993010/2024/12/14/winnipeg-jets-ville-heinola-logan-stanley/
+
 **Sweet Season**\
 `The holidays are upon us. It’s time to start baking.`\
 https://nytimes.com/2024/12/14/briefing/sweet-season.html
