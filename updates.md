@@ -1,3 +1,27 @@
+**Brighton could look for more experience in January transfer window - Hurzeler**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler has not ruled out adding more leadership experience to his squad in the January transfer window after missing out on Mats Hummels in the summer.`\
+https://nytimes.com/athletic/5991840/2024/12/14/brighton-transfer-news-experience/
+
+**Where It Isn’t Christmas Until the City Shoots Lasers at 20,000 Crows**\
+`In Rochester, N.Y., every year in early December thousands of crows descend on the city, which tries to shoo them away with loud noises and bright lights.`\
+https://nytimes.com/2024/12/14/nyregion/where-it-isnt-christmas-until-the-city-shoots-lasers-at-20000-crows.html
+
+**As the Right Lionizes Daniel Penny, His Prosecutor Faces a Familiar Fury**\
+`Alvin Bragg, the Manhattan district attorney who won a conviction of Donald J. Trump, has been a favorite target of the right. After Mr. Penny’s acquittal in a subway choking, Mr. Bragg faces a fresh round of anger.`\
+https://nytimes.com/2024/12/14/nyregion/alvin-bragg-daniel-penny-politics.html
+
+**How a Children’s Tennis Instructor Spends Her Sundays**\
+`Joyce Short, who has worked with New York Junior Tennis and Learning for decades, takes a popcorn break in between classes, and plays pickleball with friends.`\
+https://nytimes.com/2024/12/14/nyregion/joyce-short-tennis.html
+
+**Dancing in the Park: How an M.T.A. Worker Spreads Joy**\
+`For eight years, Anthony Johnson has danced to Soca and disco music in Prospect Park in Brooklyn. He has a loyal following.`\
+https://nytimes.com/2024/12/14/nyregion/prospect-park-nyc-anthony-johnson.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/14/crosswords/spelling-bee-forum.html
+
 **13 insights fantasy football managers need to know ahead of Week 15**\
 `Among Theo Gremminger's latest fantasy football insights, he says Sincere McCormick could be repeating history in Las Vegas.`\
 https://nytimes.com/athletic/5992517/2024/12/14/13-insights-fantasy-football-week-15/
