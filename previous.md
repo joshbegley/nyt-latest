@@ -1,3 +1,7 @@
+**Russini’s what I’m hearing: The biggest Belichick twist; about those Kyle Shanahan rumors**\
+`Plus, the latest on teams with coaching decisions to make, and “The Game” in Detroit.`\
+https://nytimes.com/athletic/5993794/2024/12/14/nfl-news-belichick-jets-kyle-shanahan-49ers/
+
 **Lakers reminded of LeBron James’ importance as offense sputters vs. Timberwolves**\
 `The Lakers' offense struggled in Minnesota as Lebron James' return remains unclear`\
 https://nytimes.com/athletic/5993299/2024/12/14/lakers-timberwolves-lebron-james-anthony-davis-anthony-edwards-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/14/opinion/rupert-murdoch-succession-lachlan-james-f
 **‘I Got My Life Back. I Can Do Anything!’**\
 `Women with obstetric fistulas suffer year after year, even as a $619 surgery can restore them.`\
 https://nytimes.com/2024/12/14/opinion/obstetric-fistula-recovery.html
-
-**What Do You Say to a Young Person Who Admires the Unabomber?**\
-`To some disaffected young Americans, the ruthlessly intellectualized turn to violence can seem justified. It is not.`\
-https://nytimes.com/2024/12/14/opinion/united-health-ceo-killing-unabomber.html
 
