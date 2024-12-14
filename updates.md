@@ -1,3 +1,7 @@
+**Why did the Bruins claim Oliver Wahlstrom off waivers? Because they can't score**\
+`The Bruins are hoping Wahlstrom can dust off his scoring touch for his new club.`\
+https://nytimes.com/athletic/5994335/2024/12/14/bruins-oliver-wahlstrom-waiver-claim/
+
 **Hezbollah Loses Supply Route Through Syria, in Blow to It and Iran**\
 `The militant group’s leader admits that the toppling of Syria’s president, Bashar al-Assad, cut off an important land route from Iran.`\
 https://nytimes.com/2024/12/14/world/middleeast/hezbollah-supply-route-syria.html
