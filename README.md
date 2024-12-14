@@ -1,3 +1,15 @@
+**Jamie Drysdale, Emil Andrae and the 'surfing' Flyers defensemen**\
+`The Flyers' blue line is crowded now that their defensemen are healthy again and Drysdale's play has been more in focus than others.`\
+https://nytimes.com/athletic/5994454/2024/12/14/flyers-defensemen-jamie-drysdale-emil-andrae/
+
+**76ers rookie Jared McCain sidelined indefinitely with meniscus tear**\
+`McCain leads NBA rookies at 15.3 points per game, putting himself in position to be a core piece of Philly’s future moving forward.`\
+https://nytimes.com/athletic/5994586/2024/12/14/jared-mccain-knee-injury-76ers/
+
+**After Weeks of Drone Sightings, New Jersey Remains on Edge**\
+`In the Garden State, where the rash of sightings started a month ago, residents are looking to the skies, wondering why they still don’t have definitive answers from officials.`\
+https://nytimes.com/2024/12/14/nyregion/drone-sightings-nj.html
+
 **Trump Says He Supports an End to Daylight Saving Time**\
 `President-elect Donald J. Trump said on social media that the time change is “inconvenient” and that the Republican Party would try to put an end to it.`\
 https://nytimes.com/2024/12/14/us/trump-daylight-savings-time.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/14/obituaries/isak-andic-dead.html
 **'This is bad': After another embarrassing display, more changes surely coming for Rangers**\
 `Someone's going to pay for this mess, but it doesn't appear that one player or coach is the source of all of New York's problems.`\
 https://nytimes.com/athletic/5994328/2024/12/14/rangers-kings-peter-laviolette-coach/
-
-**Oregon adds Purdue standout DB Dillon Thieneman from portal**\
-`Thieneman has 210 tackles and six INTs in two years and an be an instant-impact transfer portal addition for Oregon from Purdue.`\
-https://nytimes.com/athletic/5994466/2024/12/14/dillon-thieneman-oregon-transfer-portal-purdue/
-
-**Art Heist**\
-`David Kwong draws us in with a magical challenge.`\
-https://nytimes.com/2024/12/14/crosswords/daily-puzzle-2024-12-15.html
-
-**Cam Fowler trade doesn't deviate from Blues' retool plan, GM Doug Armstrong says**\
-`St. Louis acquired the veteran blueliner from Anaheim to help share the heavy minutes the Blues defensemen had been logging.`\
-https://nytimes.com/athletic/5994168/2024/12/14/blues-cam-fowler-trade/
 
