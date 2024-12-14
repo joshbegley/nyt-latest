@@ -1,8 +1,3 @@
-**Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
-`With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
-`\
-https://nytimes.com/athletic/5994272/2024/12/14/wild-flyers-kaprizov-brodin-zuccarello/
-
 **Raiders' Maxx Crosby to miss second career game Monday due to ankle injury**\
 `Crosby hadn’t missed a game his entire career before sitting out with an ankle sprain in Week 4 against the Cleveland Browns.`\
 https://nytimes.com/athletic/5994416/2024/12/14/raiders-maxx-crosby-ankle-injury-falcons/
@@ -38,4 +33,8 @@ https://nytimes.com/athletic/5994252/2024/12/14/matheus-cunha-ipswich-altercatio
 **Thanks to a Prank, Sculptures Make Googly Eyes at Oregon Residents**\
 `The eyes were attached to eight installations, to the delight of residents. City officials, who lamented the cost of repairs, were less amused.`\
 https://nytimes.com/2024/12/14/us/googly-eyes-sculptures-bend-oregon.html
+
+**Athletics bolster rotation with Jeffrey Springs, Rays add projects, pick: Law**\
+`The A's now have a respectable top-three in their rotation, while Tampa sheds salary and adds a couple of intriguing prospects.`\
+https://nytimes.com/athletic/5994258/2024/12/14/athletics-rays-jeffrey-springs-trade-analysis/
 

@@ -1,3 +1,7 @@
+**Athletics bolster rotation with Jeffrey Springs, Rays add projects, pick: Law**\
+`The A's now have a respectable top-three in their rotation, while Tampa sheds salary and adds a couple of intriguing prospects.`\
+https://nytimes.com/athletic/5994258/2024/12/14/athletics-rays-jeffrey-springs-trade-analysis/
+
 **Kaprizov scores twice, Brodin and Zuccarello return as Wild bounce back: 3 takeaways vs. Flyers**\
 `With a 4-1 win over the Flyers, the Wild continue to be the only NHL team that hasn't lost consecutive games in regulation.
 `\
