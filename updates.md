@@ -1,3 +1,11 @@
+**Trump Has Little Room for Error**\
+`How Trump might cut short his political honeymoon.`\
+https://nytimes.com/2024/12/14/opinion/trump-grocery-prices-deportation.html
+
+**It’s Time for Nutella Tres Leches Cake**\
+`Though, to be fair, it’s hard to imagine a time when Rick Martínez’s chocolaty take on the classic dessert wouldn’t be welcome.`\
+https://nytimes.com/2024/12/14/dining/its-time-for-nutella-tres-leches-cake.html
+
 **Bompastor 'frustrated' after Chelsea's perfect start ended by Leicester**\
 `Sonia Bompastor was left frustrated after Chelsea&#8217;s perfect start to the season was ended by Leicester City.`\
 https://nytimes.com/athletic/5993874/2024/12/14/chelsea-women-leicester-result-bompastor/

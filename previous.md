@@ -1,3 +1,11 @@
+**Trump Has Little Room for Error**\
+`How Trump might cut short his political honeymoon.`\
+https://nytimes.com/2024/12/14/opinion/trump-grocery-prices-deportation.html
+
+**It’s Time for Nutella Tres Leches Cake**\
+`Though, to be fair, it’s hard to imagine a time when Rick Martínez’s chocolaty take on the classic dessert wouldn’t be welcome.`\
+https://nytimes.com/2024/12/14/dining/its-time-for-nutella-tres-leches-cake.html
+
 **Bompastor 'frustrated' after Chelsea's perfect start ended by Leicester**\
 `Sonia Bompastor was left frustrated after Chelsea&#8217;s perfect start to the season was ended by Leicester City.`\
 https://nytimes.com/athletic/5993874/2024/12/14/chelsea-women-leicester-result-bompastor/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5993299/2024/12/14/lakers-timberwolves-lebron-james
 **South Korea’s President Is Impeached After Martial Law Crisis**\
 `Some members of President Yoon Suk Yeol’s own party helped remove him from office. But the political uncertainty is far from over.`\
 https://nytimes.com/2024/12/14/world/asia/south-korea-president-impeached-martial-law.html
-
-**Sam Altman on Microsoft, Trump and Musk**\
-`The OpenAI C.E.O. spoke with Andrew Ross Sorkin at the DealBook Summit.`\
-https://nytimes.com/2024/12/14/business/dealbook/sam-altman-dealbook.html
-
-**Vote For the Best Metropolitan Diary Entry of 2024**\
-`We will have published 250 Diary entries this year by the end of December. We need your help choosing the best. New York Times editors narrowed the field to five finalists. Now it’s up to you to vote for your favorite.`\
-https://nytimes.com/interactive/2024/nyregion/metropolitan-diary-contest-2024.html
 
