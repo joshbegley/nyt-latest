@@ -1,3 +1,7 @@
+**Astros GM doesn't think team will trade starter Framber Valdez**\
+`"I don’t think we’re going to trade Valdez," Dana Brown said. "I think he’s a pillar and it’s really tough to keep a rotation intact.”`\
+https://nytimes.com/athletic/5993425/2024/12/13/astros-framber-valdez-trade-possibility/
+
 **Biden Administration Is Said to Allow California to Ban New Gas-Powered Cars**\
 `California and 11 other states want to halt the sale of new gas-powered cars by 2035. President-elect Donald Trump is expected to try to stop them.`\
 https://nytimes.com/2024/12/13/climate/california-ban-gas-cars-electric-biden-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/13/business/media/gerd-heidemann-dead.html
 **Supreme Court to Hear Catholic Charity’s Bid for Tax Exemption**\
 `The justices agreed to hear an appeal from a Wisconsin Supreme Court ruling that the charity’s activities were insufficiently religious to qualify.`\
 https://nytimes.com/2024/12/13/us/politics/supreme-court-catholic-charity-taxes.html
-
-**Team Canada World Junior selection camp: Breaking down the cuts, standouts and roster**\
-`Team Canada made its final cuts for its roster for the 2025 world juniors on Friday afternoon.`\
-https://nytimes.com/athletic/5990359/2024/12/13/canada-world-juniors-2025-roster-cuts/
 
