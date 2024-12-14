@@ -1,3 +1,7 @@
+**South Korea’s President Is Impeached After Martial Law Crisis**\
+`Some members of President Yoon Suk Yeol’s own party helped remove him from office. But the political uncertainty is far from over.`\
+https://nytimes.com/2024/12/14/world/asia/south-korea-president-impeached-martial-law.html
+
 **Sam Altman on Microsoft, Trump and Musk**\
 `The OpenAI C.E.O. spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://nytimes.com/2024/12/14/business/dealbook/sam-altman-dealbook.html
