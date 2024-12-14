@@ -1,3 +1,11 @@
+**Joy and Celebrations in Seoul for Protesters as Yoon is Impeached**\
+`“Long live South Korea!” the protesters chanted, describing a wave of relief after days of anger over the president’s surprise declaration of martial law.`\
+https://nytimes.com/2024/12/14/world/asia/celebrations-protesters-impeached.html
+
+**Blinken Meeting Arab Ministers Amid Uncertainty Over Syria Transition**\
+`Secretary of State Antony J. Blinken was in Jordan to confer with Arab foreign ministers on the ouster of the longtime Syrian dictator Bashar al-Assad.`\
+https://nytimes.com/2024/12/14/world/middleeast/blinken-meeting-arab-ministers-amid-uncertainty-over-syria-transition.html
+
 **Moody’s Downgrades France’s Credit Rating, Citing Political Turmoil**\
 `The action, which will put pressure on the nation’s borrowing costs, reflects doubt that a new government can mend the deteriorating financial situation.`\
 https://nytimes.com/2024/12/14/business/france-moodys-credit-rating-downgrade.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5993632/2024/12/14/cubs-kyle-tucker-free-agency-spe
 **The Connections Companion No. 553**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Dec. 15, 2024.`\
 https://nytimes.com/2024/12/14/crosswords/connections-companion-553.html
-
-**Wordle Review No. 1,275**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 15, 2024.`\
-https://nytimes.com/2024/12/14/crosswords/wordle-review-1275.html
-
-**Rick Steves Refuses to Get Cynical About the World**\
-`The guidebook writer and television personality reflects on his cancer diagnosis, social media’s corrosive effect on tourism and the transformative power of travel.`\
-https://nytimes.com/2024/12/14/magazine/rick-steves-interview.html
 
