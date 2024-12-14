@@ -1,15 +1,3 @@
-**New young faces, same old story for fragile Blackhawks**\
-`The future hasn't truly arrived for the Blackhawks and it won't arrive for a while.`\
-https://nytimes.com/athletic/5994378/2024/12/14/blackhawks-devils-connor-bedard-jason-dickinson/
-
-**Auburn DL Trill Carter recovering from being shot in stomach**\
-`Carter was shot by an unknown assailant around 11:45 p.m. ET on Thursday outside a condo development in Charlotte.`\
-https://nytimes.com/athletic/5994515/2024/12/14/auburn-trill-carter-shot-charlotte/
-
-**QB Blake Horvath's 4 TDs propel Navy past Army in 31-13 win**\
-`Navy and Army entered the game with the trophy on the line after both military academies beat Air Force in the regular season.`\
-https://nytimes.com/athletic/5994253/2024/12/14/army-navy-game-score-results-takeaways/
-
 **Louisville lands USC transfer quarterback Miller Moss: Source**\
 `Moss also considered Missouri, but Louisville and Jeff Brohm’s quarterback-friendly offense won out for the Southern California native. `\
 https://nytimes.com/athletic/5994487/2024/12/14/louisville-miller-moss-transfer-quarterback/
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/5994168/2024/12/14/blues-cam-fowler-trade/
 **Strong Storm Brings a Rarity in San Francisco: A Tornado Warning**\
 `Less than two weeks after a tsunami warning, residents were jolted awake before 6 a.m. to consider a new potential disaster scenario.`\
 https://nytimes.com/2024/12/14/us/storm-tornado-warning-sf-weather.html
+
+**No Evidence Drones in Northeast Are a Threat, Officials Say**\
+`Numerous sightings of flying objects in recent weeks have raised alarm, but federal law enforcement officials say that at least some were manned aircraft, such as airplanes or helicopters.`\
+https://nytimes.com/2024/12/14/us/politics/drones-northeast-new-jersey.html
+
+**Bob Fernandez, Who Survived Pearl Harbor as a Teenager, Dies at 100**\
+`Mr. Fernandez was a 17-year-old sailor aboard the U.S.S. Curtiss when Japanese forces attacked. He had recently canceled a trip to Hawaii for the 83rd anniversary of the bombing.`\
+https://nytimes.com/2024/12/14/us/bob-fernandez-dead-pearl-harbor.html
+
+**South Koreans Celebrate the President’s Impeachment in Seoul**\
+`A dozen members of President Yoon Suk Yeol’s own party helped remove him from office. Lawmakers sought to impeach the president after his declaration of martial law drew public outrage.`\
+https://nytimes.com/video/world/asia/100000009878559/south-korea-impeachment-vote.html
 
