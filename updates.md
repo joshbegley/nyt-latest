@@ -1,3 +1,7 @@
+**13 insights fantasy football managers need to know ahead of Week 15**\
+`Among Theo Gremminger's latest fantasy football insights, he says Sincere McCormick could be repeating history in Las Vegas.`\
+https://nytimes.com/athletic/5992517/2024/12/14/13-insights-fantasy-football-week-15/
+
 **'He was the star': Jaden McDaniels' defensive revival lifts Wolves, drops Lakers**\
 `McDaniels is back to his frightening self on the defensive end, helping Minnesota become one of the NBA's most stingy teams lately.`\
 https://nytimes.com/athletic/5993473/2024/12/14/jaden-mcdaniels-timberwolves-defense-lakers/
