@@ -1,3 +1,7 @@
+**Strong Storm Brings a Rarity in San Francisco: A Tornado Warning**\
+`Less than two weeks after a tsunami warning, residents were jolted awake before 6 a.m. to consider a new potential disaster scenario.`\
+https://nytimes.com/2024/12/14/us/storm-tornado-warning-sf-weather.html
+
 **No Evidence Drones in Northeast Are a Threat, Officials Say**\
 `Numerous sightings of flying objects in recent weeks have raised alarm, but federal law enforcement officials say that at least some were manned aircraft, such as airplanes or helicopters.`\
 https://nytimes.com/2024/12/14/us/politics/drones-northeast-new-jersey.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5994366/2024/12/14/ducks-fowler-trade-defensemen/
 **Why did the Bruins claim Oliver Wahlstrom off waivers? Because they can't score**\
 `The Bruins are hoping Wahlstrom can dust off his scoring touch for his new club.`\
 https://nytimes.com/athletic/5994335/2024/12/14/bruins-oliver-wahlstrom-waiver-claim/
-
-**Hezbollah Loses Supply Route Through Syria, in Blow to It and Iran**\
-`The militant group’s leader admits that the toppling of Syria’s president, Bashar al-Assad, cut off an important land route from Iran.`\
-https://nytimes.com/2024/12/14/world/middleeast/hezbollah-supply-route-syria.html
 
