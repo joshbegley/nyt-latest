@@ -1,3 +1,11 @@
+**Athletics bolster rotation with Jeffrey Springs, Rays add projects, pick: Law**\
+`The A's now have a respectable top-three in their rotation, while Tampa sheds salary and adds a couple of intriguing prospects.`\
+https://nytimes.com/athletic/5994258/2024/12/14/athletics-rays-jeffrey-springs-trade-analysis/
+
+**Forest can compete against any Premier League team - Nuno**\
+`Nuno Espirito Santo believes Nottingham Forest &#8220;can compete&#8221; against any team in the Premier League after seeing his side climb into the Champions League qualification places with a dramatic win over Aston Villa.`\
+https://nytimes.com/athletic/5994307/2024/12/14/nottingham-forest-nuno-aston-villa/
+
 **Villa denied 'clear penalty' in 'massive mistake' by VAR - Emery**\
 `Unai Emery says Aston Villa were denied a &#8220;clear penalty&#8221; following their 2-1 defeat at Nottingham Forest.`\
 https://nytimes.com/athletic/5994268/2024/12/14/aston-villa-penalty-rogers-emery/
