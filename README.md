@@ -1,3 +1,7 @@
+**South Korea’s President Is Impeached After Martial Law Crisis**\
+`Some members of President Yoon Suk Yeol’s own party helped remove him from office. But the political uncertainty is far from over.`\
+https://nytimes.com/2024/12/14/world/asia/south-korea-president-impeached-martial-law.html
+
 **Sam Altman on Microsoft, Trump and Musk**\
 `The OpenAI C.E.O. spoke with Andrew Ross Sorkin at the DealBook Summit.`\
 https://nytimes.com/2024/12/14/business/dealbook/sam-altman-dealbook.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/14/opinion/united-health-ceo-killing-unabomber.html
 **NHL mock trade proposals: One tantalizing target for each team. Could any deals happen?**\
 `The Athletic's NHL staff proposes one trade target for each team, evaluates the cost and whether a deal is realistic or even worth it.`\
 https://nytimes.com/athletic/5990507/2024/12/14/nhl-trade-rumors-top-targets/
-
-**How Sweden Could End Its Epidemic of Gang Violence**\
-`We know that tough-on-crime policies for children have been tried repeatedly elsewhere and have failed. So why is my country headed that way?`\
-https://nytimes.com/2024/12/14/opinion/sweden-gang-violence.html
 
