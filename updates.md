@@ -1,3 +1,7 @@
+**Timothée Chalamet Looks Like Bob Dylan at ‘A Complete Unknown’ New York Premiere**\
+`The actor joined Elle Fanning and Edward Norton, stars of a new film tracing the musician’s ascent.`\
+https://nytimes.com/2024/12/13/style/timothee-chalamet-a-complete-unknown-premiere-photos.html
+
 **Dana Brown's Astros tenure will be defined by his trade of Kyle Tucker**\
 `After making the Astros' first trade of an All-Star in over a decade, Brown is tasked with maintaining the team's status as a contender.`\
 https://nytimes.com/athletic/5993511/2024/12/13/astros-dana-brown-gm-tenure-kyle-tucker-trade/
