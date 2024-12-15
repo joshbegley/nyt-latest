@@ -1,3 +1,7 @@
+**Israel Strikes Military Sites in Syria, Monitor Says**\
+`The Israeli military hit weapons depots and air defenses, according to the Syrian Observatory for Human Rights. Israel has said it aims to keep military equipment out of the hands of extremists after rebels seized power a week ago.`\
+https://nytimes.com/2024/12/15/world/middleeast/israel-strikes-syria-military.html
+
 **O'Neil sacked as Wolves head coach**\
 `Gary O&#8217;Neil has been sacked as Wolverhampton Wanderers head coach.`\
 https://nytimes.com/athletic/5778712/2024/12/15/wolves-sack-gary-oneil/
