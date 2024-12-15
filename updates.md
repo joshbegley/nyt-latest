@@ -1,3 +1,11 @@
+**Rockets' sputtering offense in NBA Cup semifinal highlights a rise in expectations**\
+`Houston's loss was a reminder of its defensive greatness, juxtaposed with offensive shortcomings.`\
+https://nytimes.com/athletic/5994925/2024/12/15/rockets-lose-nba-cup-semifinal-thunder/
+
+**​After Impeachment, South Korea Is Left With No Elected Leader**\
+`The suspension of President Yoon Suk Yeol’s powers left a seasoned but unelected prime minister in charge of a country facing daunting challenges at home and abroad.`\
+https://nytimes.com/2024/12/15/world/asia/south-korea-impeachment.html
+
 **Saving Christmas in North Carolina, One Tree at a Time, After Hurricane Helene**\
 `The storm upended the Christmas tree industry in the state’s western region. Now, farmers and residents are eager for the comfort of the season’s rituals.`\
 https://nytimes.com/2024/12/15/us/saving-christmas-in-north-carolina-one-tree-at-a-time-after-hurricane-helene.html
