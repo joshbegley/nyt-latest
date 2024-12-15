@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5993701/2024/12/15/manchester-derby-amorim-guardiol
 `Cristiano Ronaldo and Karim Benzema still draw attention but will that help them as Saudi Arabia builds towards the 2034 World Cup?`\
 https://nytimes.com/athletic/5989124/2024/12/15/saudi-arabia-football-world-cup-2034/
 
-**Five of Mohamed Salah's best Liverpool assists as he reaches 100 for the club**\
-`Salah's cross to Cody Gakpo against Fulham took him to 100 assists for Liverpool in all competitions. We look at some of his best`\
-https://nytimes.com/athletic/5994065/2024/12/15/mohamed-salah-liverpool-assists-100/
+**Cunha's steward clash, Ait-Nouri's anger - breaking down Wolves' latest moments of madness**\
+`Wolves suffered a painful late defeat against Ipswich but the football was only half of the story`\
+https://nytimes.com/athletic/5994406/2024/12/15/wolves-ipswich-cunha-ait-nouri/
 
