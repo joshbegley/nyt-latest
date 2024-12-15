@@ -1,3 +1,7 @@
+**Nick Chubb suffers broken foot in what could be final game of Browns career**\
+`If his time in Cleveland is ending, he would exit with the third-most rushing yards (6,802) and rushing touchdowns (51) in Browns history.`\
+https://nytimes.com/athletic/5996185/2024/12/15/nick-chubb-broken-foot/
+
 **Trade grades: How can Dennis Schröder's arrival help Steph Curry and the Warriors?**\
 `Zach Harper's trade grades are back as he examines Dennis Schröder joining the Warriors`\
 https://nytimes.com/athletic/5995643/2024/12/15/dennis-schroder-steph-curry-warriors-nets-trade-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995429/2024/12/15/wild-jesper-wallstedt-nhl-filip-
 **Davante Adams' vintage performance lifts Jets 32-25 over Jaguars: Takeaways**\
 `Adams' 198-yard, two-touchdown game lifts the Jets to their first win in the last five games. `\
 https://nytimes.com/athletic/5995296/2024/12/15/jets-jaguars-score-result-takeaways/
-
-**Expect Icy Roads in Parts of the Northeast Monday Morning**\
-`Light snow and freezing rain are expected in parts of Connecticut, New Jersey, New York and Pennsylvania starting Sunday night and could make for a hazardous commute on Monday, forecasters said.`\
-https://nytimes.com/2024/12/15/weather/weather-ice-forecast-pa-ny-nj-ct.html
 

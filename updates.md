@@ -1,3 +1,7 @@
+**Trade grades: How can Dennis Schröder's arrival help Steph Curry and the Warriors?**\
+`Zach Harper's trade grades are back as he examines Dennis Schröder joining the Warriors`\
+https://nytimes.com/athletic/5995643/2024/12/15/dennis-schroder-steph-curry-warriors-nets-trade-nba/
+
 **NFL Week 15 takeaways: Are Chiefs back on track? Can Commanders get right for the playoffs?**\
 `Plus, where is the best landing spot for next year’s rookie quarterbacks?`\
 https://nytimes.com/athletic/5996041/2024/12/15/nfl-week-15-scores-takeaways-chiefs-commanders-playoffs/

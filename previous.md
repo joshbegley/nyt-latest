@@ -1,3 +1,7 @@
+**Trade grades: How can Dennis Schröder's arrival help Steph Curry and the Warriors?**\
+`Zach Harper's trade grades are back as he examines Dennis Schröder joining the Warriors`\
+https://nytimes.com/athletic/5995643/2024/12/15/dennis-schroder-steph-curry-warriors-nets-trade-nba/
+
 **NFL Week 15 takeaways: Are Chiefs back on track? Can Commanders get right for the playoffs?**\
 `Plus, where is the best landing spot for next year’s rookie quarterbacks?`\
 https://nytimes.com/athletic/5996041/2024/12/15/nfl-week-15-scores-takeaways-chiefs-commanders-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995296/2024/12/15/jets-jaguars-score-result-takeaw
 **Expect Icy Roads in Parts of the Northeast Monday Morning**\
 `Light snow and freezing rain are expected in parts of Connecticut, New Jersey, New York and Pennsylvania starting Sunday night and could make for a hazardous commute on Monday, forecasters said.`\
 https://nytimes.com/2024/12/15/weather/weather-ice-forecast-pa-ny-nj-ct.html
-
-**Bengals keep playoff hopes alive with 37-27 win over Titans: Takeaways**\
-`Joe Burrow's three passing touchdowns overcame 10 combined turnovers and 26 penalties between the Bengals and Titans.`\
-https://nytimes.com/athletic/5995305/2024/12/15/bengals-titans-score-result-takeaways/
 
