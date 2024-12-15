@@ -1,3 +1,7 @@
+**Devin Nunes, Pugnacious Trump Loyalist, to Lead Espionage Advisory Board**\
+`As chair of the House Intelligence Committee, he attacked the Russia inquiry and Donald J. Trump’s first impeachment. Now, Mr. Nunes runs Mr. Trump’s social media company.`\
+https://nytimes.com/2024/12/14/us/devin-nunes-intelligence-advisory-board.html
+
 **Colorado's two-way star Travis Hunter wins 2024 Heisman Trophy**\
 `Hunter becomes Colorado’s second Heisman Trophy winner and first in 30 years.`\
 https://nytimes.com/athletic/5993994/2024/12/14/travis-hunter-heisman-trophy-colorado/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/14/us/trump-daylight-savings-time.html
 **New young faces, same old story for fragile Blackhawks**\
 `The future hasn't truly arrived for the Blackhawks and it won't arrive for a while.`\
 https://nytimes.com/athletic/5994378/2024/12/14/blackhawks-devils-connor-bedard-jason-dickinson/
-
-**Auburn DL Trill Carter recovering from being shot in stomach**\
-`Carter was shot by an unknown assailant around 11:45 p.m. ET on Thursday outside a condo development in Charlotte.`\
-https://nytimes.com/athletic/5994515/2024/12/14/auburn-trill-carter-shot-charlotte/
 

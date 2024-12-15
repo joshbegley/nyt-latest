@@ -1,3 +1,7 @@
+**Devin Nunes, Pugnacious Trump Loyalist, to Lead Espionage Advisory Board**\
+`As chair of the House Intelligence Committee, he attacked the Russia inquiry and Donald J. Trump’s first impeachment. Now, Mr. Nunes runs Mr. Trump’s social media company.`\
+https://nytimes.com/2024/12/14/us/devin-nunes-intelligence-advisory-board.html
+
 **Colorado's two-way star Travis Hunter wins 2024 Heisman Trophy**\
 `Hunter becomes Colorado’s second Heisman Trophy winner and first in 30 years.`\
 https://nytimes.com/athletic/5993994/2024/12/14/travis-hunter-heisman-trophy-colorado/
