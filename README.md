@@ -1,3 +1,11 @@
+**Maresca: Chelsea must manage situations differently after late Cucurella red**\
+`Enzo Maresca says Chelsea must learn to manage situations better after Marc Cucurella was sent off at full time following Sunday&#8217;s victory over Brentford.`\
+https://nytimes.com/athletic/5996270/2024/12/15/marc-cucurella-red-card-chelsea/
+
+**Patrick Mahomes' ankle injury overshadows Chiefs' 21-7 win vs. Browns: Takeaways**\
+`“It’s sore,” Chiefs coach Andy Reid said of Mahomes' injury. “It’ll literally be day to day."`\
+https://nytimes.com/athletic/5995289/2024/12/15/patrick-mahomes-ankle-injury-chiefs-browns-score-takeaways/
+
 **Nick Chubb suffers broken foot in what could be final game of Browns career**\
 `If his time in Cleveland is ending, he would exit with the third-most rushing yards (6,802) and rushing touchdowns (51) in Browns history.`\
 https://nytimes.com/athletic/5996185/2024/12/15/nick-chubb-broken-foot/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5996132/2024/12/15/womens-volleyball-final-four-fie
 **Two Alvin Ailey Productions Head for the Light**\
 `Hope Boykin’s “Finding Free” and Lar Lubovitch’s “Many Angels” aspire to find higher ground at New York City Center.`\
 https://nytimes.com/2024/12/15/arts/dance/alvin-ailey-dance-theater-hope-boykin-lar-lubovitch.html
-
-**Wild's Jesper Wallstedt to make season debut with Filip Gustavsson 'getting looked at'**\
-`Wallstedt was recalled under emergency conditions and will make his fourth career NHL start Sunday vs. the Golden Knights.`\
-https://nytimes.com/athletic/5995429/2024/12/15/wild-jesper-wallstedt-nhl-filip-gustavsson/
-
-**Davante Adams' vintage performance lifts Jets 32-25 over Jaguars: Takeaways**\
-`Adams' 198-yard, two-touchdown game lifts the Jets to their first win in the last five games. `\
-https://nytimes.com/athletic/5995296/2024/12/15/jets-jaguars-score-result-takeaways/
 
