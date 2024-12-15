@@ -1,3 +1,7 @@
+**Colorado's two-way star Travis Hunter wins 2024 Heisman Trophy**\
+`Hunter becomes Colorado’s second Heisman Trophy winner and first in 30 years.`\
+https://nytimes.com/athletic/5993994/2024/12/14/travis-hunter-heisman-trophy-colorado/
+
 **Russo: Zuccarello and Brodin's return, Foligno's scrap and more Wild observations**\
 `Zuccarello and Brodin didn't miss a beat as the Wild bounced back with a 4-1 win over the Flyers. `\
 https://nytimes.com/athletic/5994526/2024/12/14/wild-flyers-mats-zuccarello-jonas-brodin/
