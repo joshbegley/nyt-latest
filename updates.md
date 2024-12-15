@@ -1,3 +1,11 @@
+**The Unreadable Book Guiding Xi’s Struggle Against America**\
+`The Chinese leader is digging into the language of revolution, and a radical Russian novel, as he prepares for battle with Donald Trump.`\
+https://nytimes.com/2024/12/15/opinion/china-brics-xi-jinping-trump.html
+
+**With al-Assad Gone, the Risk of an ISIS Resurgence Grows**\
+`With the fall of al-Assad’s regime, the risk of an ISIS resurgence increases.`\
+https://nytimes.com/2024/12/15/opinion/al-assad-syria-isis.html
+
 **Linus Ullmark's best performances have turned Senators' season around**\
 `Ullmark has been playing his best hockey of the season as of late and the Senators have been, too. `\
 https://nytimes.com/athletic/5994614/2024/12/15/senators-penguins-linus-ullmark-goalie/

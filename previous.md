@@ -1,3 +1,11 @@
+**The Unreadable Book Guiding Xi’s Struggle Against America**\
+`The Chinese leader is digging into the language of revolution, and a radical Russian novel, as he prepares for battle with Donald Trump.`\
+https://nytimes.com/2024/12/15/opinion/china-brics-xi-jinping-trump.html
+
+**With al-Assad Gone, the Risk of an ISIS Resurgence Grows**\
+`With the fall of al-Assad’s regime, the risk of an ISIS resurgence increases.`\
+https://nytimes.com/2024/12/15/opinion/al-assad-syria-isis.html
+
 **Leeds have a problem with early kick-offs - and it's starting to hurt them**\
 `A late goal rescued a point for Daniel Farke's side at Deepdale — but the 12:30 games continue to cause them problems`\
 https://nytimes.com/athletic/5993740/2024/12/15/leeds-early-kick-offs-championship-problem/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/15/world/middleeast/syria-rebel-stronghold-return.ht
 **Security Strategy of Recruiting Cheap Militiamen Backfires in Africa**\
 `By arming civilians who are poorly trained and have little to no respect for human rights, the military in Burkina Faso has brought the West African nation to the brink of civil war.`\
 https://nytimes.com/2024/12/15/world/africa/africa-burkina-faso-militia-violence.html
-
-**As Ambassador, Rahm Emanuel Says His Impatience Nudged Japan Forward**\
-`In a society used to quiet consensus-building, Tokyo has made bold changes to its defense policy. “Did I contribute to that?” Mr. Emanuel asked. “Uh, yeah.”`\
-https://nytimes.com/2024/12/15/world/asia/rahm-emanuel-ambassador-japan.html
-
-**Yohe's 10 observations: Penguins lose in OT and lose Marcus Pettersson, too**\
-`Pittsburgh showed plenty of fortitude against Ottawa, and earned a point in a building where they often struggle.`\
-https://nytimes.com/athletic/5991418/2024/12/15/penguins-marcus-pettersson-injury/
 
