@@ -1,3 +1,7 @@
+**Israel’s Military Strikes Northern Gaza After Days of Deadly Bombardment**\
+`Israel’s military said it carried out strikes and raids against Hamas targets in northern Gaza on Sunday. The actions followed days of deadly attacks across the territory.`\
+https://nytimes.com/2024/12/15/world/middleeast/15-gaza-strikes-news.html
+
 **Live Q&A: Week 15 fantasy football start/sit chat with Jay Felicio, Sunday 12/15 at 11 a.m. ET**\
 `Submit your Week 15 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5992474/2024/12/15/live-qa-week-15-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-15-at-11-a-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/opinion/alaska-salmon-climate-change.html
 **Wolves working on deal to appoint Pereira as O'Neil replacement**\
 `Wolverhampton Wanderers are working on a deal to appoint Vitor Pereira as their new head coach following the departure of Gary O&#8217;Neil.`\
 https://nytimes.com/athletic/5995174/2024/12/15/wolves-manager-next-vitor-pereira/
-
-**Bucks learning from past (and so distant) mistakes**\
-`The Bucks are looking like contenders again. Since their 2-8 start, they've won 12 of their last 15 games.`\
-https://nytimes.com/athletic/5994947/2024/12/15/bucks-growth-giannis-antetokounmpo-nba-mvp/
 
