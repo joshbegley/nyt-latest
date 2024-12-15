@@ -1,3 +1,7 @@
+**Two Alvin Ailey Productions Head for the Light**\
+`Hope Boykin’s “Finding Free” and Lar Lubovitch’s “Many Angels” aspire to find higher ground at New York City Center.`\
+https://nytimes.com/2024/12/15/arts/dance/alvin-ailey-dance-theater-hope-boykin-lar-lubovitch.html
+
 **Wild's Jesper Wallstedt to make season debut with Filip Gustavsson 'getting looked at'**\
 `Wallstedt was recalled under emergency conditions and will make his fourth career NHL start Sunday vs. the Golden Knights.`\
 https://nytimes.com/athletic/5995429/2024/12/15/wild-jesper-wallstedt-nhl-filip-gustavsson/
