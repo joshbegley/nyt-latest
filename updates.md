@@ -1,3 +1,11 @@
+**Read the email from Revere’s principal**\
+`The email the principal of Revere High School sent to parents about the June 2023 cafeteria fight.`\
+https://nytimes.com/interactive/2024/12/15/us/revere-high-principals-email-june-2023-resize.html
+
+**Reyna scores first club goal in 583 days in Borussia Dortmund draw**\
+`Gio Reyna scored his first club goal in 583 days during Borussia Dortmund&#8217;s 1-1 draw against Hoffenheim on Sunday.`\
+https://nytimes.com/athletic/5995660/2024/12/15/gio-reyna-borussia-dortmund-goal/
+
 **Jamie Foxx Recovering After Being Hit With a Glass in the Mouth**\
 `Foxx was celebrating his birthday at a restaurant on Friday when someone from another table threw a glass, a representative for the entertainer said.`\
 https://nytimes.com/2024/12/15/arts/jamie-foxx-assault-beverly-hills.html
