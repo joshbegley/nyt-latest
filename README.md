@@ -1,3 +1,19 @@
+**On ‘S.N.L.,’ Luigi Mangione Is Busting Out All Over**\
+`As Chris Rock hosts, the man charged in the UnitedHealthcare shooting dominates this week’s riffs on the news.`\
+https://nytimes.com/2024/12/15/arts/television/snl-luigi-mangione-is-everywhere.html
+
+**Freddie Freeman's World Series grand slam ball sells for $1.56 million**\
+`A ball that made World Series history now joins the ranks of the most expensive baseballs of all time`\
+https://nytimes.com/athletic/5995199/2024/12/15/freddie-freeman-dodgers-world-series-ball-auction/
+
+**My 500-Mile Journey Across Alaska’s Thawing Arctic**\
+`I had read about how the rapid warming of the Arctic was upending the landscape and its people. Now I’ve seen it.`\
+https://nytimes.com/2024/12/15/opinion/alaska-salmon-climate-change.html
+
+**Don’t Cut an Agency So Vital to Our Health**\
+`Readers worry about cuts to the National Institutes of Health. Also: Maternity wards; overdose deaths; vetting presidential candidates; tech tycoons in charge.`\
+https://nytimes.com/2024/12/15/opinion/national-institutes-of-health.html
+
 **Wolves working on deal to appoint Pereira as O'Neil replacement**\
 `Wolverhampton Wanderers are working on a deal to appoint Vitor Pereira as their new head coach following the departure of Gary O&#8217;Neil.`\
 https://nytimes.com/athletic/5995174/2024/12/15/wolves-manager-next-vitor-pereira/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/15/briefing/a-trip-to-new-york.html
 **Remembering Adam Johnson on an emotional night in Nottingham - 'a guy team-mates would all love'**\
 `Adam Johnson's family attended a ceremony to remember him and to officially retire his No 47 jersey`\
 https://nytimes.com/athletic/5994700/2024/12/15/adam-johnson-nottingham-tributes/
-
-**Odegaard 'tactical' substitutions are curious for an Arsenal team seeking creativity**\
-`Arsenal struggled to break down Everton and so it was surprising to see the captain replaced for tactical reasons for a second week running`\
-https://nytimes.com/athletic/5994103/2024/12/15/martin-odegaard-arsenal-substitutions/
-
-**What's your view of Gary O'Neil's sacking and who should replace him?**\
-`Who should take over at Wolves?`\
-https://nytimes.com/athletic/5995127/2024/12/15/whats-your-view-of-gary-oneils-sacking-and-who-should-replace-him/
-
-**O'Neil sacked as Wolves head coach**\
-`Gary O&#8217;Neil has been sacked as Wolverhampton Wanderers head coach.`\
-https://nytimes.com/athletic/5778712/2024/12/15/wolves-sack-gary-oneil/
-
-**How Will the Rebels Rule Syria? Their Past Offers Clues.**\
-`The Islamist rebels who ousted Syria’s dictator ran a pragmatic and disciplined administration in the territory they controlled. They also jailed their critics.`\
-https://nytimes.com/2024/12/15/world/middleeast/rebels-syria-governing-style-idlib.html
 
