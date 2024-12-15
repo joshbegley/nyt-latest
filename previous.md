@@ -1,3 +1,15 @@
+**Wild's Jesper Wallstedt to make season debut with Filip Gustavsson 'getting looked at'**\
+`Wallstedt was recalled under emergency conditions and will make his fourth career NHL start Sunday vs. the Golden Knights.`\
+https://nytimes.com/athletic/5995429/2024/12/15/wild-jesper-wallstedt-nhl-filip-gustavsson/
+
+**Davante Adams' vintage performance lifts Jets 32-25 over Jaguars: Takeaways**\
+`Adams' 198-yard, two-touchdown game lifts the Jets to their first win in the last five games. `\
+https://nytimes.com/athletic/5995296/2024/12/15/jets-jaguars-score-result-takeaways/
+
+**Expect Icy Roads in Parts of the Northeast Monday Morning**\
+`Light snow and freezing rain are expected in parts of Connecticut, New Jersey, New York and Pennsylvania starting Sunday night and could make for a hazardous commute on Monday, forecasters said.`\
+https://nytimes.com/2024/12/15/weather/weather-ice-forecast-pa-ny-nj-ct.html
+
 **Bengals keep playoff hopes alive with 37-27 win over Titans: Takeaways**\
 `Joe Burrow's three passing touchdowns overcame 10 combined turnovers and 26 penalties between the Bengals and Titans.`\
 https://nytimes.com/athletic/5995305/2024/12/15/bengals-titans-score-result-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5995301/2024/12/15/ravens-giants-score-result-takea
 **Man Gets 100 Years in Prison for His Role in ‘Mobile Mass Shooting’ in 2020**\
 `The shooting spree on Thanksgiving Day killed one person and injured several others in Nevada and Arizona.`\
 https://nytimes.com/2024/12/15/us/mobile-mass-shooting-sentencing.html
-
-**The Briefing: Chelsea 2 Brentford 1 - Cucurella's crazy week and five wins in a row for Maresca**\
-`All the key talking points from Chelsea's victory over Brentford analysed and evaluated `\
-https://nytimes.com/athletic/5992022/2024/12/15/chelsea-2-brentford-1-the-briefing/
-
-**Dolphins WR Grant DuBose in stable condition following head injury vs. Texans**\
-`DuBose took a shot to the head from Texans defender Calen Bullock in Sunday's third quarter.`\
-https://nytimes.com/athletic/5995820/2024/12/15/grant-dubose-dolphins-head-injury-stretchered-off/
-
-**Monday Briefing: South Korea’s Power Vacuum**\
-`Plus, how travel benefits us.`\
-https://nytimes.com/2024/12/15/briefing/south-korea-syria-travel.html
 

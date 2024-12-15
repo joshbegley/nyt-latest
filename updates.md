@@ -1,3 +1,15 @@
+**Wild's Jesper Wallstedt to make season debut with Filip Gustavsson 'getting looked at'**\
+`Wallstedt was recalled under emergency conditions and will make his fourth career NHL start Sunday vs. the Golden Knights.`\
+https://nytimes.com/athletic/5995429/2024/12/15/wild-jesper-wallstedt-nhl-filip-gustavsson/
+
+**Davante Adams' vintage performance lifts Jets 32-25 over Jaguars: Takeaways**\
+`Adams' 198-yard, two-touchdown game lifts the Jets to their first win in the last five games. `\
+https://nytimes.com/athletic/5995296/2024/12/15/jets-jaguars-score-result-takeaways/
+
+**Expect Icy Roads in Parts of the Northeast Monday Morning**\
+`Light snow and freezing rain are expected in parts of Connecticut, New Jersey, New York and Pennsylvania starting Sunday night and could make for a hazardous commute on Monday, forecasters said.`\
+https://nytimes.com/2024/12/15/weather/weather-ice-forecast-pa-ny-nj-ct.html
+
 **Bengals keep playoff hopes alive with 37-27 win over Titans: Takeaways**\
 `Joe Burrow's three passing touchdowns overcame 10 combined turnovers and 26 penalties between the Bengals and Titans.`\
 https://nytimes.com/athletic/5995305/2024/12/15/bengals-titans-score-result-takeaways/
