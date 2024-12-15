@@ -1,3 +1,23 @@
+**‘They Had the Desire to Return’**\
+`Elated residents are trickling home to their shattered Syrian town, a rebel stronghold controlled until recently by the government.`\
+https://nytimes.com/2024/12/15/world/middleeast/syria-rebel-stronghold-return.html
+
+**Security Strategy of Recruiting Cheap Militiamen Backfires in Africa**\
+`By arming civilians who are poorly trained and have little to no respect for human rights, the military in Burkina Faso has brought the West African nation to the brink of civil war.`\
+https://nytimes.com/2024/12/15/world/africa/africa-burkina-faso-militia-violence.html
+
+**As Ambassador, Rahm Emanuel Says His Impatience Nudged Japan Forward**\
+`In a society used to quiet consensus-building, Tokyo has made bold changes to its defense policy. “Did I contribute to that?” Mr. Emanuel asked. “Uh, yeah.”`\
+https://nytimes.com/2024/12/15/world/asia/rahm-emanuel-ambassador-japan.html
+
+**Yohe's 10 observations: Penguins lose in overtime and lose Marcus Pettersson, too**\
+`The Penguins lost 3-2 in overtime against the Senators on Saturday and may have lost Pettersson to injury for a while. `\
+https://nytimes.com/athletic/5991418/2024/12/15/penguins-marcus-pettersson-injury/
+
+**Man City vs Man United: Preview, odds, prediction for latest Manchester derby**\
+`Manchester City continue to struggle to get wins, but local rivals Manchester United aren't playing much better. Will one get a big victory?`\
+https://nytimes.com/athletic/5989854/2024/12/15/manchester-city-united-derby-preview-odds-prediction/
+
 **A Christmas Gnome Tradition, More than 1,000-Strong**\
 `The writer Andrew Solomon recounts his enduring love for the cheerful little heroes of Swedish folklore, handed down from his late mother.`\
 https://nytimes.com/2024/12/15/style/christmas-gnome-family-tradition.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5994753/2024/12/14/bucks-winning-plays-nba-cup-semi
 **Maple Leafs report cards: Defensive errors prove costly vs. Red Wings**\
 `The Leafs didn’t get the goal support to drag themselves out of the hole they dug defensively in a 4-2 loss to the Red Wings.`\
 https://nytimes.com/athletic/5994775/2024/12/14/maple-leafs-red-wings-grades-analysis/
-
-**Corrections: Dec. 15, 2024**\
-`Corrections that appeared in print on Sunday, Dec. 15, 2024.`\
-https://nytimes.com/2024/12/14/pageoneplus/corrections-dec-15-2024.html
-
-**Quote of the Day: In the Land of Christmas Trees, Hope After Helene**\
-`Quotation of the Day for Sunday, December 15, 2024`\
-https://nytimes.com/2024/12/14/pageoneplus/quote-of-the-day-in-the-land-of-christmas-trees-hope-after-helene.html
-
-**Corrections: Dec. 14, 2024**\
-`Corrections that appeared in print on Saturday, Dec. 14, 2024.`\
-https://nytimes.com/2024/12/14/pageoneplus/corrections-dec-14-2024.html
-
-**'It’s a rivalry': Why beating the Golden Knights means a little more to the Oilers**\
-`There are wins and then there are wins that mean that much more, like Edmonton's 6-3 victory over Vegas.`\
-https://nytimes.com/athletic/5994733/2024/12/14/oilers-golden-knights-nhl-rivalry/
-
-**Devin Nunes, Pugnacious Trump Loyalist, to Lead Espionage Advisory Board**\
-`As chair of the House Intelligence Committee, he attacked the Russia inquiry and Donald J. Trump’s first impeachment. Now, Mr. Nunes runs Mr. Trump’s social media company.`\
-https://nytimes.com/2024/12/14/us/devin-nunes-intelligence-advisory-board.html
 
