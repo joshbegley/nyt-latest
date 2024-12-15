@@ -1,3 +1,7 @@
+**Canucks continue to struggle at home: 3 takeaways from loss to Bruins**\
+`Vancouver was flat and lifeless against Boston. The Canucks didn't show much life until they were behind 4-0 late in the second period.`\
+https://nytimes.com/athletic/5994914/2024/12/15/canucks-demolished-by-bruins/
+
 **Tropical Cyclone Chido Heads for Mozambique After Pummeling French Territory**\
 `The storm, the equivalent of a Category 4, was moving toward East Africa’s coast on Sunday after killing several people in Mayotte, a French archipelago.`\
 https://nytimes.com/2024/12/15/world/africa/chido-mayotte-mozambique-french-territory.html
