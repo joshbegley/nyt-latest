@@ -1,3 +1,7 @@
+**Man Gets 100 Years in Prison for His Role in ‘Mobile Mass Shooting’ in 2020**\
+`The shooting spree on Thanksgiving Day killed one person and injured several others in Nevada and Arizona.`\
+https://nytimes.com/2024/12/15/us/mobile-mass-shooting-sentencing.html
+
 **The Briefing: Chelsea 2 Brentford 1 - Cucurella's crazy week and five wins in a row for Maresca**\
 `All the key talking points from Chelsea's victory over Brentford analysed and evaluated `\
 https://nytimes.com/athletic/5992022/2024/12/15/chelsea-2-brentford-1-the-briefing/
