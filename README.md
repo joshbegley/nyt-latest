@@ -1,3 +1,7 @@
+**Hurzeler criticises referee's 'unbelievable decision' in Brighton defeat to Palace**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler has criticised Michael Oliver for an &#8220;unbelievable decision&#8221; in allowing the game to continue against Crystal Palace after the referee got in the way of Carlos Baleba.`\
+https://nytimes.com/athletic/5995444/2024/12/15/brighton-palace-michael-oliver-referee/
+
 **Ingrid Lewis-Martin, Top Adviser to Mayor Adams, Resigns**\
 `The departure of Ms. Lewis-Martin, whose phone was seized by investigators in September, is the latest in a string of resignations among the mayor’s inner circle.`\
 https://nytimes.com/2024/12/15/nyregion/ingrid-lewis-martin-resigns-eric-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995281/2024/12/15/rashford-garnacho-manchester-uni
 **Perfect Broiled Salmon, Beef Chow Fun and Mushroom Smash Burgers**\
 `A list of excellent recipes to cook this week (no need to check it twice).`\
 https://nytimes.com/2024/12/15/dining/perfect-broiled-salmon-beef-chow-fun-and-mushroom-smash-burgers.html
-
-**Israel’s Military Strikes Northern Gaza After Days of Deadly Bombardment**\
-`Israel’s military said it carried out strikes and raids against Hamas targets in northern Gaza on Sunday. The actions followed days of deadly attacks across the territory.`\
-https://nytimes.com/2024/12/15/world/middleeast/15-gaza-strikes-news.html
 
