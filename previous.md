@@ -1,3 +1,7 @@
+**O'Neil sacked as Wolves manager**\
+`Gary O&#8217;Neil has been sacked as Wolverhampton Wanderers manager.`\
+https://nytimes.com/athletic/5778712/2024/12/15/wolves-sack-gary-oneil/
+
 **How Will the Rebels Rule Syria? Their Past Offers Clues.**\
 `The Islamist rebels who ousted Syria’s dictator ran a pragmatic and disciplined administration in the territory they controlled. They also jailed their critics.`\
 https://nytimes.com/2024/12/15/world/middleeast/rebels-syria-governing-style-idlib.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/opinion/metoo-trump-hegseth-churchtoo.html
 **The Sunday Read: ‘What if A.I. Is Actually Good for Hollywood?’**\
 `It’s already powering remarkable visual innovations, like in the new movie “Here.” But boosters think that’s just the beginning.`\
 https://nytimes.com/2024/12/15/podcasts/the-daily/ai-hollywood-movies-cgi.html
-
-**For the Sake of 600,000 Children, Science Must Be Bold**\
-`Gene drives offer hope in our battle against malaria.`\
-https://nytimes.com/2024/12/15/opinion/malaria-genetics-disease.html
 
