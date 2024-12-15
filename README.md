@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5994914/2024/12/15/canucks-demolished-by-bruins/
 `The storm, the equivalent of a Category 4, was moving toward East Africa’s coast on Sunday after killing several people in Mayotte, a French archipelago.`\
 https://nytimes.com/2024/12/15/world/africa/chido-mayotte-mozambique-french-territory.html
 
-**The Unreadable Book Guiding Xi’s Struggle Against America**\
+**This Unreadable Russian Novel Is Xi Jinping’s Spiritual Guide**\
 `The Chinese leader is digging into the language of revolution, and a radical Russian novel, as he prepares for battle with Donald Trump.`\
 https://nytimes.com/2024/12/15/opinion/china-brics-xi-jinping-trump.html
 
