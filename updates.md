@@ -1,3 +1,7 @@
+**The Pulse: Another first for college football**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5995336/2024/12/15/college-football-bowl-schedule-nfl-the-pulse/
+
 **Lowetide: Why can't Oilers' top prospects score goals in the AHL?**\
 `The performance of Edmonton's top pro prospects with the Bakersfield Condors is of concern for two reasons.`\
 https://nytimes.com/athletic/5993803/2024/12/15/oilers-prospects-ahl-goals/
