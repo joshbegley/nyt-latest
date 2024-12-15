@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5995444/2024/12/15/brighton-palace-michael-oliver-r
 `The departure of Ms. Lewis-Martin, whose phone was seized by investigators in September, is the latest in a string of resignations among the mayor’s inner circle.`\
 https://nytimes.com/2024/12/15/nyregion/ingrid-lewis-martin-resigns-eric-adams.html
 
-**Plane with banner circles MetLife Stadium, demands Mara fire 'everyone'**\
+**Plane with banner circles MetLife Stadium, demands Mara fires 'everyone'**\
 `The Giants are currently on an eight game losing streak, sitting at 2-11 overall and 0-7 at home.`\
 https://nytimes.com/athletic/5995415/2024/12/15/ny-giants-plane-banner-john-mara-metlife/
 
