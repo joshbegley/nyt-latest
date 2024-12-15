@@ -1,3 +1,7 @@
+**See How Much NYC's Congestion Pricing Plan Would Cost You**\
+`A new toll on drivers hopes to reduce traffic in one of the world’s most congested cities. How would it work?`\
+https://nytimes.com/interactive/2024/12/15/nyregion/nyc-congestion-pricing-cost.html
+
 **Schools that withdraw from bowls could be penalized in future: AAC commissioner**\
 `Tim Pernetti said if a school has concern about safely fielding a team for a bowl game, it should not accept the invitation.`\
 https://nytimes.com/athletic/5995818/2024/12/15/marshall-army-louisiana-tech-independence-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/arts/jamie-foxx-assault-beverly-hills.html
 **ATP Next Gen Finals: Favorite Arthur Fils faces Mensik and Fonseca in Jeddah draw**\
 `The best 20-and-under men's players in the world meet in Jeddah, Saudi Arabia for the final event of the 2024 tennis season.`\
 https://nytimes.com/athletic/5995511/2024/12/15/atp-next-gen-finals-draw-schedule-results/
-
-**The Briefing: Man City 1 Man Utd 2 - Amad's genius, Nunes' errors and Amorim's set-piece problem**\
-`Analysis of the Manchester derby between City and United`\
-https://nytimes.com/athletic/5992015/2024/12/15/man-city-man-utd-highlights-goals/
 
