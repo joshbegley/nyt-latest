@@ -1,3 +1,11 @@
+**Lowetide: Why can't Oilers' top prospects score goals in the AHL?**\
+`The performance of Edmonton's top pro prospects with the Bakersfield Condors is of concern for two reasons.`\
+https://nytimes.com/athletic/5993803/2024/12/15/oilers-prospects-ahl-goals/
+
+**Rashford, Garnacho dropped for Manchester derby; Amorim explains selection**\
+`Both players had featured in all 15 of United's previous Premier League games so far this season`\
+https://nytimes.com/athletic/5995281/2024/12/15/rashford-garnacho-manchester-united-dropped/
+
 **Perfect Broiled Salmon, Beef Chow Fun and Mushroom Smash Burgers**\
 `A list of excellent recipes to cook this week (no need to check it twice).`\
 https://nytimes.com/2024/12/15/dining/perfect-broiled-salmon-beef-chow-fun-and-mushroom-smash-burgers.html

@@ -1,3 +1,11 @@
+**Lowetide: Why can't Oilers' top prospects score goals in the AHL?**\
+`The performance of Edmonton's top pro prospects with the Bakersfield Condors is of concern for two reasons.`\
+https://nytimes.com/athletic/5993803/2024/12/15/oilers-prospects-ahl-goals/
+
+**Rashford, Garnacho dropped for Manchester derby; Amorim explains selection**\
+`Both players had featured in all 15 of United's previous Premier League games so far this season`\
+https://nytimes.com/athletic/5995281/2024/12/15/rashford-garnacho-manchester-united-dropped/
+
 **Perfect Broiled Salmon, Beef Chow Fun and Mushroom Smash Burgers**\
 `A list of excellent recipes to cook this week (no need to check it twice).`\
 https://nytimes.com/2024/12/15/dining/perfect-broiled-salmon-beef-chow-fun-and-mushroom-smash-burgers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/15/arts/television/snl-luigi-mangione.html
 **Freddie Freeman's World Series grand slam ball sells for $1.56 million**\
 `A ball that made World Series history now joins the ranks of the most expensive baseballs of all time`\
 https://nytimes.com/athletic/5995199/2024/12/15/freddie-freeman-dodgers-world-series-ball-auction/
-
-**Don’t Cut an Agency So Vital to Our Health**\
-`Readers worry about cuts to the National Institutes of Health. Also: Maternity wards; overdose deaths; vetting presidential candidates; tech tycoons in charge.`\
-https://nytimes.com/2024/12/15/opinion/national-institutes-of-health.html
-
-**My 500-Mile Journey Across Alaska’s Thawing Arctic**\
-`I had read about how the rapid warming of the Arctic was upending the landscape and its people. Now I’ve seen it.`\
-https://nytimes.com/2024/12/15/opinion/alaska-salmon-climate-change.html
 
