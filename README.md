@@ -12,7 +12,7 @@ https://nytimes.com/2024/12/15/opinion/trump-biden-legacy.html
 
 **Israel Strikes Military Sites in Syria, Monitor Says**\
 `The Israeli military hit weapons depots and air defenses, according to the Syrian Observatory for Human Rights. Israel has said it aims to keep military equipment out of the hands of extremists after rebels seized power a week ago.`\
-https://nytimes.com/2024/12/15/world/middleeast/11syria-strikes-news.html
+https://nytimes.com/2024/12/15/world/middleeast/israel-strikes-syria-military.html
 
 **Ben Johnson or bust? Evaluating Caleb Williams? Bears mailbag, plus Week 15 picks**\
 `The Bears have been brutal to start games. Maybe someone like Ben Johnson would help fix that. Mailbag and our picks for MNF in Minnesota.`\
