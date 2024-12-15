@@ -1,3 +1,7 @@
+**The Briefing: Man City 1 Man Utd 2 - Amad's genius, Nunes' errors and Amorim's set-piece problem**\
+`Analysis of the Manchester derby between City and United`\
+https://nytimes.com/athletic/5992015/2024/12/15/man-city-man-utd-highlights-goals/
+
 **Jury Awards Woman $34 Million for Wrongful Conviction**\
 `Kirstin Blaise Lobato sued the Las Vegas Metropolitan Police Department and two detectives after she spent nearly 16 years in prison for a murder she did not commit.`\
 https://nytimes.com/2024/12/15/us/kirstin-lobato-jury-award.html
