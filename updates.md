@@ -1,3 +1,7 @@
+**Nick Chubb suffers broken foot in what could be final game of Browns career**\
+`If his time in Cleveland is ending, he would exit with the third-most rushing yards (6,802) and rushing touchdowns (51) in Browns history.`\
+https://nytimes.com/athletic/5996185/2024/12/15/nick-chubb-broken-foot/
+
 **Trade grades: How can Dennis Schröder's arrival help Steph Curry and the Warriors?**\
 `Zach Harper's trade grades are back as he examines Dennis Schröder joining the Warriors`\
 https://nytimes.com/athletic/5995643/2024/12/15/dennis-schroder-steph-curry-warriors-nets-trade-nba/
