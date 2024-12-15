@@ -1,3 +1,7 @@
+**Man Gets 100 Years in Prison for His Role in ‘Mobile Mass Shooting’ in 2020**\
+`The shooting spree on Thanksgiving Day killed one person and injured several others in Nevada and Arizona.`\
+https://nytimes.com/2024/12/15/us/mobile-mass-shooting-sentencing.html
+
 **The Briefing: Chelsea 2 Brentford 1 - Cucurella's crazy week and five wins in a row for Maresca**\
 `All the key talking points from Chelsea's victory over Brentford analysed and evaluated `\
 https://nytimes.com/athletic/5992022/2024/12/15/chelsea-2-brentford-1-the-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/us/kirstin-lobato-jury-award.html
 **Polly Mellen, Fashion’s Storied Cheerleader, Dies at 100**\
 `With photographers like Richard Avedon, Irving Penn, Bert Stern and others, the veteran editor created some of the most indelible images of modern fashion.`\
 https://nytimes.com/2024/12/15/style/polly-mellen-dead.html
-
-**Giants QB Tommy DeVito exits vs. Ravens with concussion**\
-`Tim Boyle entered into New York's Week 15 game against the Baltimore Ravens. `\
-https://nytimes.com/athletic/5995742/2024/12/15/tommy-devito-concussion-giants/
 
