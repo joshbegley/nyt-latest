@@ -1,3 +1,11 @@
+**Trump Names Richard Grenell for ‘Special Missions’ Role**\
+`A combative loyalist and the president-elect’s former ambassador to Germany, Mr. Grenell had hoped to be secretary of state.`\
+https://nytimes.com/2024/12/14/us/politics/trump-richard-grenell-special-missions.html
+
+**Tepid start, inconsistent energy doom Blue Jackets in overtime — again**\
+`The energy the Blue Jackets played with at the start of this season has faded dramatically over the last couple of weeks.`\
+https://nytimes.com/athletic/5994798/2024/12/14/blue-jackets-ducks-james-van-riemsdyk/
+
 **Bucks feed off 'winning plays' to down Hawks, advance to NBA Cup final**\
 `"We never show film after a game, and we showed the winning plays today," Doc Rivers said.`\
 https://nytimes.com/athletic/5994753/2024/12/14/bucks-winning-plays-nba-cup-semifinal-hawks/

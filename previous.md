@@ -1,3 +1,11 @@
+**Trump Names Richard Grenell for ‘Special Missions’ Role**\
+`A combative loyalist and the president-elect’s former ambassador to Germany, Mr. Grenell had hoped to be secretary of state.`\
+https://nytimes.com/2024/12/14/us/politics/trump-richard-grenell-special-missions.html
+
+**Tepid start, inconsistent energy doom Blue Jackets in overtime — again**\
+`The energy the Blue Jackets played with at the start of this season has faded dramatically over the last couple of weeks.`\
+https://nytimes.com/athletic/5994798/2024/12/14/blue-jackets-ducks-james-van-riemsdyk/
+
 **Bucks feed off 'winning plays' to down Hawks, advance to NBA Cup final**\
 `"We never show film after a game, and we showed the winning plays today," Doc Rivers said.`\
 https://nytimes.com/athletic/5994753/2024/12/14/bucks-winning-plays-nba-cup-semifinal-hawks/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/14/us/devin-nunes-intelligence-advisory-board.html
 **Colorado's two-way star Travis Hunter wins 2024 Heisman Trophy**\
 `Hunter becomes Colorado’s second Heisman Trophy winner and first in 30 years.`\
 https://nytimes.com/athletic/5993994/2024/12/14/travis-hunter-heisman-trophy-colorado/
-
-**Russo: Zuccarello and Brodin's return, Foligno's scrap and more Wild observations**\
-`Zuccarello and Brodin didn't miss a beat as the Wild bounced back with a 4-1 win over the Flyers. `\
-https://nytimes.com/athletic/5994526/2024/12/14/wild-flyers-mats-zuccarello-jonas-brodin/
-
-**Rosenthal: What I'm hearing about the Mariners' willingness to trade Luis Castillo and more**\
-`Plus A's-Rays trade reaction, Jack Flaherty's free-agency options and more from around the league.`\
-https://nytimes.com/athletic/5994597/2024/12/14/mariners-luis-castillo-trade-mlb-offseason-notes/
 
