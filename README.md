@@ -1,3 +1,7 @@
+**The Pulse: Another first for college football**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5995336/2024/12/15/college-football-bowl-schedule-nfl-the-pulse/
+
 **Lowetide: Why can't Oilers' top prospects score goals in the AHL?**\
 `The performance of Edmonton's top pro prospects with the Bakersfield Condors is of concern for two reasons.`\
 https://nytimes.com/athletic/5993803/2024/12/15/oilers-prospects-ahl-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5994836/2024/12/15/lindsey-vonn-skiing-comeback-bea
 **On ‘S.N.L.,’ Luigi Mangione Is Busting Out All Over**\
 `As Chris Rock hosts, the man charged in the UnitedHealthcare shooting dominates this week’s riffs on the news.`\
 https://nytimes.com/2024/12/15/arts/television/snl-luigi-mangione.html
-
-**Freddie Freeman's World Series grand slam ball sells for $1.56 million**\
-`A ball that made World Series history now joins the ranks of the most expensive baseballs of all time`\
-https://nytimes.com/athletic/5995199/2024/12/15/freddie-freeman-dodgers-world-series-ball-auction/
 
