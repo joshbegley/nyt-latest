@@ -22,13 +22,13 @@ https://nytimes.com/2024/12/15/arts/television/snl-luigi-mangione.html
 `A ball that made World Series history now joins the ranks of the most expensive baseballs of all time`\
 https://nytimes.com/athletic/5995199/2024/12/15/freddie-freeman-dodgers-world-series-ball-auction/
 
-**My 500-Mile Journey Across Alaska’s Thawing Arctic**\
-`I had read about how the rapid warming of the Arctic was upending the landscape and its people. Now I’ve seen it.`\
-https://nytimes.com/2024/12/15/opinion/alaska-salmon-climate-change.html
-
 **Don’t Cut an Agency So Vital to Our Health**\
 `Readers worry about cuts to the National Institutes of Health. Also: Maternity wards; overdose deaths; vetting presidential candidates; tech tycoons in charge.`\
 https://nytimes.com/2024/12/15/opinion/national-institutes-of-health.html
+
+**My 500-Mile Journey Across Alaska’s Thawing Arctic**\
+`I had read about how the rapid warming of the Arctic was upending the landscape and its people. Now I’ve seen it.`\
+https://nytimes.com/2024/12/15/opinion/alaska-salmon-climate-change.html
 
 **Wolves working on deal to appoint Pereira as O'Neil replacement**\
 `Wolverhampton Wanderers are working on a deal to appoint Vitor Pereira as their new head coach following the departure of Gary O&#8217;Neil.`\
