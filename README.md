@@ -1,3 +1,7 @@
+**Pastrnak is the Bruins' offensive everything**\
+`Pastrnak exploded for a season-high four points against the Canucks, including three assists.`\
+https://nytimes.com/athletic/5994978/2024/12/15/bruins-david-pastrnak-offense/
+
 **Canucks continue to struggle at home: 3 takeaways from loss to Bruins**\
 `Vancouver was flat and lifeless against Boston. The Canucks didn't show much life until they were behind 4-0 late in the second period.`\
 https://nytimes.com/athletic/5994914/2024/12/15/canucks-demolished-by-bruins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993701/2024/12/15/manchester-derby-amorim-guardiol
 **Is football in Saudi Arabia getting any better?**\
 `Cristiano Ronaldo and Karim Benzema still draw attention but will that help them as Saudi Arabia builds towards the 2034 World Cup?`\
 https://nytimes.com/athletic/5989124/2024/12/15/saudi-arabia-football-world-cup-2034/
-
-**Cunha's steward clash, Ait-Nouri's anger - breaking down Wolves' latest moments of madness**\
-`Wolves suffered a painful late defeat against Ipswich but the football was only half of the story`\
-https://nytimes.com/athletic/5994406/2024/12/15/wolves-ipswich-cunha-ait-nouri/
 
