@@ -1,6 +1,6 @@
 **On ‘S.N.L.,’ Luigi Mangione Is Busting Out All Over**\
 `As Chris Rock hosts, the man charged in the UnitedHealthcare shooting dominates this week’s riffs on the news.`\
-https://nytimes.com/2024/12/15/arts/television/snl-luigi-mangione-is-everywhere.html
+https://nytimes.com/2024/12/15/arts/television/snl-luigi-mangione.html
 
 **Freddie Freeman's World Series grand slam ball sells for $1.56 million**\
 `A ball that made World Series history now joins the ranks of the most expensive baseballs of all time`\
