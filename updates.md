@@ -1,3 +1,7 @@
+**O'Neil sacked as Wolves head coach**\
+`Gary O&#8217;Neil has been sacked as Wolverhampton Wanderers head coach.`\
+https://nytimes.com/athletic/5778712/2024/12/15/wolves-sack-gary-oneil/
+
 **O'Neil sacked as Wolves manager**\
 `Gary O&#8217;Neil has been sacked as Wolverhampton Wanderers manager.`\
 https://nytimes.com/athletic/5778712/2024/12/15/wolves-sack-gary-oneil/
