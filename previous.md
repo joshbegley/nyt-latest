@@ -1,3 +1,11 @@
+**Corrections: Dec. 15, 2024**\
+`Corrections that appeared in print on Sunday, Dec. 15, 2024.`\
+https://nytimes.com/2024/12/14/pageoneplus/corrections-dec-15-2024.html
+
+**Quote of the Day: In the Land of Christmas Trees, Hope After Helene**\
+`Quotation of the Day for Sunday, December 15, 2024`\
+https://nytimes.com/2024/12/14/pageoneplus/quote-of-the-day-in-the-land-of-christmas-trees-hope-after-helene.html
+
 **Corrections: Dec. 14, 2024**\
 `Corrections that appeared in print on Saturday, Dec. 14, 2024.`\
 https://nytimes.com/2024/12/14/pageoneplus/corrections-dec-14-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5994621/2024/12/14/bucks-hawks-nba-cup-semifinal-re
 **Jamie Drysdale, Emil Andrae and the 'surfing' Flyers defensemen**\
 `The Flyers blue line is crowded now that their defensemen are healthy again, and Drysdale's play has been more in focus than others.`\
 https://nytimes.com/athletic/5994454/2024/12/14/flyers-defensemen-jamie-drysdale-emil-andrae/
-
-**76ers rookie Jared McCain sidelined indefinitely with meniscus tear**\
-`McCain leads NBA rookies at 15.3 points per game, putting himself in position to be a core piece of Philly’s future moving forward.`\
-https://nytimes.com/athletic/5994586/2024/12/14/jared-mccain-knee-injury-76ers/
-
-**After Weeks of Drone Sightings, New Jersey Remains on Edge**\
-`In the Garden State, where the rash of sightings started a month ago, residents are looking to the skies, wondering why they still don’t have definitive answers from officials.`\
-https://nytimes.com/2024/12/14/nyregion/drone-sightings-nj.html
 
