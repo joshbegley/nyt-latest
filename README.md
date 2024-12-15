@@ -1,3 +1,7 @@
+**Tropical Cyclone Chido Heads for Mozambique After Pummeling French Territory**\
+`The storm, the equivalent of a Category 4, was moving toward East Africa’s coast on Sunday after killing several people in Mayotte, a French archipelago.`\
+https://nytimes.com/2024/12/15/world/africa/chido-mayotte-mozambique-french-territory.html
+
 **The Unreadable Book Guiding Xi’s Struggle Against America**\
 `The Chinese leader is digging into the language of revolution, and a radical Russian novel, as he prepares for battle with Donald Trump.`\
 https://nytimes.com/2024/12/15/opinion/china-brics-xi-jinping-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5994065/2024/12/15/mohamed-salah-liverpool-assists-
 **‘They Had the Desire to Return’**\
 `Elated residents are trickling home to their shattered Syrian town, a rebel stronghold controlled until recently by the government.`\
 https://nytimes.com/2024/12/15/world/middleeast/syria-rebel-stronghold-return.html
-
-**Security Strategy of Recruiting Cheap Militiamen Backfires in Africa**\
-`By arming civilians who are poorly trained and have little to no respect for human rights, the military in Burkina Faso has brought the West African nation to the brink of civil war.`\
-https://nytimes.com/2024/12/15/world/africa/africa-burkina-faso-militia-violence.html
 
