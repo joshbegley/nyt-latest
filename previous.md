@@ -1,3 +1,11 @@
+**Jury Awards Woman $34 Million for Wrongful Conviction**\
+`Kirstin Blaise Lobato sued the Las Vegas Metropolitan Police Department and two detectives after she spent nearly 16 years in prison for a murder she did not commit.`\
+https://nytimes.com/2024/12/15/us/kirstin-lobato-jury-award.html
+
+**Polly Mellen, Fashion’s Storied Cheerleader, Dies at 100**\
+`With photographers like Richard Avedon, Irving Penn, Bert Stern and others, the veteran editor created some of the most indelible images of modern fashion.`\
+https://nytimes.com/2024/12/15/style/polly-mellen-dead.html
+
 **Giants QB Tommy DeVito exits vs. Ravens with concussion**\
 `Tim Boyle entered into New York's Week 15 game against the Baltimore Ravens. `\
 https://nytimes.com/athletic/5995742/2024/12/15/tommy-devito-concussion-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5992015/2024/12/15/man-city-man-utd-highlights-goal
 **Graham Says Hegseth Plans to Release Accuser From Confidential Agreement**\
 `Senator Lindsey Graham said that Pete Hegseth, President-elect Donald Trump’s defense secretary pick, promised to release his accuser from a settlement that his lawyer has said was already breached.`\
 https://nytimes.com/2024/12/15/us/pete-hegseth-confidentiality-agreement-lindsey-graham.html
-
-**Blue Jackets Sunday Gathering: Three goalies is messy, but Jet Greaves isn't going away**\
-`"We don't want to have three goaltenders here. But, as we've talked about before, Jet deserves to be here," said coach Dean Evason.`\
-https://nytimes.com/athletic/5995169/2024/12/15/blue-jackets-nhl-goalie-jet-greaves/
-
-**Ask James and Jonas your questions for the next Leaf Report podcast**\
-`The Maple Leafs are into a busy section of their schedule, with four games in six nights this coming week in Dallas and Buffalo and then at home against Buffalo and the Islanders to go into the Christmas break.`\
-https://nytimes.com/athletic/5995589/2024/12/15/ask-james-and-jonas-your-questions-for-the-next-leaf-report-podcast-11/
 
