@@ -1,3 +1,15 @@
+**Manchester derby: Bigger for Amorim or Guardiola? How will it play out? Predictions and starting XIs**\
+`Three of our writers look at each club's issues this season, how their managers are coping and what to expect in the match`\
+https://nytimes.com/athletic/5993701/2024/12/15/manchester-derby-amorim-guardiola-predictions/
+
+**Is football in Saudi Arabia getting any better?**\
+`Cristiano Ronaldo and Karim Benzema still draw attention but will that help them as Saudi Arabia builds towards the 2034 World Cup?`\
+https://nytimes.com/athletic/5989124/2024/12/15/saudi-arabia-football-world-cup-2034/
+
+**Five of Mohamed Salah's best Liverpool assists as he reaches 100 for the club**\
+`Salah's cross to Cody Gakpo against Fulham took him to 100 assists for Liverpool in all competitions. We look at some of his best`\
+https://nytimes.com/athletic/5994065/2024/12/15/mohamed-salah-liverpool-assists-100/
+
 **‘They Had the Desire to Return’**\
 `Elated residents are trickling home to their shattered Syrian town, a rebel stronghold controlled until recently by the government.`\
 https://nytimes.com/2024/12/15/world/middleeast/syria-rebel-stronghold-return.html
