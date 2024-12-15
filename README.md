@@ -1,3 +1,15 @@
+**Manchester derby: Bigger for Amorim or Guardiola? How will it play out? Predictions and starting XIs**\
+`Three of our writers look at each club's issues this season, how their managers are coping and what to expect in the match`\
+https://nytimes.com/athletic/5993701/2024/12/15/manchester-derby-amorim-guardiola-predictions/
+
+**Is football in Saudi Arabia getting any better?**\
+`Cristiano Ronaldo and Karim Benzema still draw attention but will that help them as Saudi Arabia builds towards the 2034 World Cup?`\
+https://nytimes.com/athletic/5989124/2024/12/15/saudi-arabia-football-world-cup-2034/
+
+**Five of Mohamed Salah's best Liverpool assists as he reaches 100 for the club**\
+`Salah's cross to Cody Gakpo against Fulham took him to 100 assists for Liverpool in all competitions. We look at some of his best`\
+https://nytimes.com/athletic/5994065/2024/12/15/mohamed-salah-liverpool-assists-100/
+
 **‘They Had the Desire to Return’**\
 `Elated residents are trickling home to their shattered Syrian town, a rebel stronghold controlled until recently by the government.`\
 https://nytimes.com/2024/12/15/world/middleeast/syria-rebel-stronghold-return.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/15/style/christmas-gnome-family-tradition.html
 **Trump Names Richard Grenell for ‘Special Missions’ Role**\
 `A combative loyalist and the president-elect’s former ambassador to Germany, Mr. Grenell had hoped to be secretary of state.`\
 https://nytimes.com/2024/12/14/us/politics/trump-richard-grenell-special-missions.html
-
-**Tepid start, inconsistent energy doom Blue Jackets in overtime — again**\
-`The energy the Blue Jackets played with at the start of this season has faded dramatically over the last couple of weeks.`\
-https://nytimes.com/athletic/5994798/2024/12/14/blue-jackets-ducks-james-van-riemsdyk/
-
-**Bucks feed off 'winning plays' to down Hawks, advance to NBA Cup final**\
-`"We never show film after a game, and we showed the winning plays today," Doc Rivers said.`\
-https://nytimes.com/athletic/5994753/2024/12/14/bucks-winning-plays-nba-cup-semifinal-hawks/
-
-**Maple Leafs report cards: Defensive errors prove costly vs. Red Wings**\
-`The Leafs didn’t get the goal support to drag themselves out of the hole they dug defensively in a 4-2 loss to the Red Wings.`\
-https://nytimes.com/athletic/5994775/2024/12/14/maple-leafs-red-wings-grades-analysis/
 
