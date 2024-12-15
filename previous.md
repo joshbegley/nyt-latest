@@ -1,3 +1,7 @@
+**Perfect Broiled Salmon, Beef Chow Fun and Mushroom Smash Burgers**\
+`A list of excellent recipes to cook this week (no need to check it twice).`\
+https://nytimes.com/2024/12/15/dining/perfect-broiled-salmon-beef-chow-fun-and-mushroom-smash-burgers.html
+
 **Israel’s Military Strikes Northern Gaza After Days of Deadly Bombardment**\
 `Israel’s military said it carried out strikes and raids against Hamas targets in northern Gaza on Sunday. The actions followed days of deadly attacks across the territory.`\
 https://nytimes.com/2024/12/15/world/middleeast/15-gaza-strikes-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/opinion/national-institutes-of-health.html
 **My 500-Mile Journey Across Alaska’s Thawing Arctic**\
 `I had read about how the rapid warming of the Arctic was upending the landscape and its people. Now I’ve seen it.`\
 https://nytimes.com/2024/12/15/opinion/alaska-salmon-climate-change.html
-
-**Wolves working on deal to appoint Pereira as O'Neil replacement**\
-`Wolverhampton Wanderers are working on a deal to appoint Vitor Pereira as their new head coach following the departure of Gary O&#8217;Neil.`\
-https://nytimes.com/athletic/5995174/2024/12/15/wolves-manager-next-vitor-pereira/
 

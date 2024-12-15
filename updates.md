@@ -1,3 +1,7 @@
+**Perfect Broiled Salmon, Beef Chow Fun and Mushroom Smash Burgers**\
+`A list of excellent recipes to cook this week (no need to check it twice).`\
+https://nytimes.com/2024/12/15/dining/perfect-broiled-salmon-beef-chow-fun-and-mushroom-smash-burgers.html
+
 **Israel’s Military Strikes Northern Gaza After Days of Deadly Bombardment**\
 `Israel’s military said it carried out strikes and raids against Hamas targets in northern Gaza on Sunday. The actions followed days of deadly attacks across the territory.`\
 https://nytimes.com/2024/12/15/world/middleeast/15-gaza-strikes-news.html
