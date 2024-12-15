@@ -1,7 +1,3 @@
-**Live Q&A: Week 15 fantasy football start/sit chat with Jay Felicio, Sunday 12/15 at 11 a.m. ET**\
-`Submit your Week 15 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5992474/2024/12/15/live-qa-week-15-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-15-at-11-a-m-et/
-
 **When ‘The Lord of the Rings’ Gets the Anime Treatment**\
 `“The War of the Rohirrim” is the latest and most high-profile anime adaptation of a Western franchise to hit screens big and small.`\
 https://nytimes.com/2024/12/15/movies/the-lord-of-the-rings-behind-the-scenes.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5995174/2024/12/15/wolves-manager-next-vitor-pereir
 **Bucks learning from past (and so distant) mistakes**\
 `The Bucks are looking like contenders again. Since their 2-8 start, they've won 12 of their last 15 games.`\
 https://nytimes.com/athletic/5994947/2024/12/15/bucks-growth-giannis-antetokounmpo-nba-mvp/
+
+**NFL Week 15 inactives and fantasy tips: Breece Hall, Tony Pollard questionable**\
+`Who's in and who's out for Week 15? Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5992992/2024/12/15/nfl-week-15-inactives-fantasy-tips/
 
