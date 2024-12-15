@@ -1,3 +1,7 @@
+**Plane with banner circles MetLife Stadium, demands Mara fires 'everyone'**\
+`The Giants are currently on an eight game losing streak, sitting at 2-11 overall and 0-7 at home.`\
+https://nytimes.com/athletic/5995415/2024/12/15/ny-giants-plane-banner-john-mara-metlife/
+
 **Hurzeler criticises referee's 'unbelievable decision' in Brighton defeat to Palace**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler has criticised Michael Oliver for an &#8220;unbelievable decision&#8221; in allowing the game to continue against Crystal Palace after the referee got in the way of Carlos Baleba.`\
 https://nytimes.com/athletic/5995444/2024/12/15/brighton-palace-michael-oliver-referee/
