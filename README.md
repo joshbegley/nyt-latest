@@ -1,3 +1,7 @@
+**Wolves working on deal to appoint Pereira as O'Neil replacement**\
+`Wolverhampton Wanderers are working on a deal to appoint Vitor Pereira as their new head coach following the departure of Gary O&#8217;Neil.`\
+https://nytimes.com/athletic/5995174/2024/12/15/wolves-manager-next-vitor-pereira/
+
 **Bucks learning from past (and so distant) mistakes**\
 `The Bucks are looking like contenders again. Since their 2-8 start, they've won 12 of their last 15 games.`\
 https://nytimes.com/athletic/5994947/2024/12/15/bucks-growth-giannis-antetokounmpo-nba-mvp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778712/2024/12/15/wolves-sack-gary-oneil/
 **How Will the Rebels Rule Syria? Their Past Offers Clues.**\
 `The Islamist rebels who ousted Syria’s dictator ran a pragmatic and disciplined administration in the territory they controlled. They also jailed their critics.`\
 https://nytimes.com/2024/12/15/world/middleeast/rebels-syria-governing-style-idlib.html
-
-**How Biden Should Spend His Final Weeks in Office**\
-`The president can still do a lot before he leaves the White House.`\
-https://nytimes.com/2024/12/15/opinion/trump-biden-legacy.html
 
