@@ -1,3 +1,11 @@
+**Corrections: Dec. 14, 2024**\
+`Corrections that appeared in print on Saturday, Dec. 14, 2024.`\
+https://nytimes.com/2024/12/14/pageoneplus/corrections-dec-14-2024.html
+
+**'It’s a rivalry': Why beating the Golden Knights means a little more to the Oilers**\
+`There are wins and then there are wins that mean that much more like the Oilers' 6-3 victory over the Golden Knights.`\
+https://nytimes.com/athletic/5994733/2024/12/14/oilers-golden-knights-nhl-rivalry/
+
 **Devin Nunes, Pugnacious Trump Loyalist, to Lead Espionage Advisory Board**\
 `As chair of the House Intelligence Committee, he attacked the Russia inquiry and Donald J. Trump’s first impeachment. Now, Mr. Nunes runs Mr. Trump’s social media company.`\
 https://nytimes.com/2024/12/14/us/devin-nunes-intelligence-advisory-board.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5994586/2024/12/14/jared-mccain-knee-injury-76ers/
 **After Weeks of Drone Sightings, New Jersey Remains on Edge**\
 `In the Garden State, where the rash of sightings started a month ago, residents are looking to the skies, wondering why they still don’t have definitive answers from officials.`\
 https://nytimes.com/2024/12/14/nyregion/drone-sightings-nj.html
-
-**Trump Says He Supports an End to Daylight Saving Time**\
-`President-elect Donald J. Trump said on social media that the time change is “inconvenient” and that the Republican Party would try to put an end to it.`\
-https://nytimes.com/2024/12/14/us/trump-daylight-savings-time.html
-
-**New young faces, same old story for fragile Blackhawks**\
-`The future hasn't truly arrived for the Blackhawks and it won't arrive for a while.`\
-https://nytimes.com/athletic/5994378/2024/12/14/blackhawks-devils-connor-bedard-jason-dickinson/
 
