@@ -1,3 +1,7 @@
+**Colorado's two-way star Travis Hunter wins 2024 Heisman Trophy**\
+`Hunter becomes Colorado’s second Heisman Trophy winner and first in 30 years.`\
+https://nytimes.com/athletic/5993994/2024/12/14/travis-hunter-heisman-trophy-colorado/
+
 **Russo: Zuccarello and Brodin's return, Foligno's scrap and more Wild observations**\
 `Zuccarello and Brodin didn't miss a beat as the Wild bounced back with a 4-1 win over the Flyers. `\
 https://nytimes.com/athletic/5994526/2024/12/14/wild-flyers-mats-zuccarello-jonas-brodin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5994378/2024/12/14/blackhawks-devils-connor-bedard-
 **Auburn DL Trill Carter recovering from being shot in stomach**\
 `Carter was shot by an unknown assailant around 11:45 p.m. ET on Thursday outside a condo development in Charlotte.`\
 https://nytimes.com/athletic/5994515/2024/12/14/auburn-trill-carter-shot-charlotte/
-
-**QB Blake Horvath's 4 TDs propel Navy past Army in 31-13 win**\
-`Navy and Army entered the game with the trophy on the line after both military academies beat Air Force in the regular season.`\
-https://nytimes.com/athletic/5994253/2024/12/14/army-navy-game-score-results-takeaways/
 
