@@ -1,3 +1,7 @@
+**Man City 'played like Under-15s' in derby defeat - Bernardo**\
+`Bernardo Silva delivered a scathing assessment of Manchester City&#8217;s performance against Manchester United, saying they &#8220;played like Under-15s&#8221; in throwing away a lead to lose the derby in dramatic fashion.`\
+https://nytimes.com/athletic/5995720/2024/12/15/man-city-united-bernardo-silva/
+
 **Read the email from Revere’s principal**\
 `The email the principal of Revere High School sent to parents about the June 2023 cafeteria fight.`\
 https://nytimes.com/interactive/2024/12/15/us/revere-high-principals-email-june-2023-resize.html
