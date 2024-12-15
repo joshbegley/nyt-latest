@@ -1,3 +1,11 @@
+**The Briefing: Southampton 0 Tottenham 5: Postecoglou respite, Martin humiliation and Levy out chants**\
+`Our writers analyse the key talking points from Tottenham's thrashing of bottom-of-the-table Southampton`\
+https://nytimes.com/athletic/5992030/2024/12/15/southampton-tottenham-analysis-postecoglou/
+
+**See How Much NYC's Congestion Pricing Plan Would Cost You**\
+`A new toll on drivers hopes to reduce traffic in one of the world’s most congested cities. How would it work?`\
+https://nytimes.com/interactive/2024/12/15/nyregion/nyc-congestion-pricing-cost.html
+
 **Schools that withdraw from bowls could be penalized in future: AAC commissioner**\
 `Tim Pernetti said if a school has concern about safely fielding a team for a bowl game, it should not accept the invitation.`\
 https://nytimes.com/athletic/5995818/2024/12/15/marshall-army-louisiana-tech-independence-bowl/
