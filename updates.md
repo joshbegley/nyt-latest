@@ -1,4 +1,8 @@
 **Jamie Drysdale, Emil Andrae and the 'surfing' Flyers defensemen**\
+`The Flyers blue line is crowded now that their defensemen are healthy again, and Drysdale's play has been more in focus than others.`\
+https://nytimes.com/athletic/5994454/2024/12/14/flyers-defensemen-jamie-drysdale-emil-andrae/
+
+**Jamie Drysdale, Emil Andrae and the 'surfing' Flyers defensemen**\
 `The Flyers' blue line is crowded now that their defensemen are healthy again and Drysdale's play has been more in focus than others.`\
 https://nytimes.com/athletic/5994454/2024/12/14/flyers-defensemen-jamie-drysdale-emil-andrae/
 
