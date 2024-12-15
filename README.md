@@ -1,3 +1,7 @@
+**Colonel Found Guilty of Sexual Harassment in Trial Seen as a Milestone**\
+`The conviction is considered one of the first of its kind since Congress required the military to change how its legal system addresses sexual assault and harassment.`\
+https://nytimes.com/2024/12/15/us/herman-west-guilty-military-sexual-harassment.html
+
 **Southampton sack manager Martin**\
 `Southampton have sacked manager Russell Martin following Sunday&#8217;s defeat by Tottenham Hotspur, which left them nine points adrift from safety at the bottom of the Premier League table.`\
 https://nytimes.com/athletic/5808686/2024/12/15/russell-martin-southampton-sacked/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995305/2024/12/15/bengals-titans-score-result-take
 **Cowboys dominate Panthers, 30-14, to keep slim playoff hopes alive: Takeaways**\
 `Dallas dominated in all three phases against Carolina on Sunday for its third win in four weeks. `\
 https://nytimes.com/athletic/5995285/2024/12/15/cowboys-panthers-score-result-takeaways/
-
-**Commanders hold on to beat Saints 20-19: Takeaways**\
-`Had the Commanders lost Sunday, the Philadelphia Eagles could have clinched the division with a Week 15 win.`\
-https://nytimes.com/athletic/5995299/2024/12/15/commanders-saints-score-result-takeaways/
 
