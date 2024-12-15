@@ -1,3 +1,7 @@
+**Graham Says Hegseth Plans to Release Accuser From Confidential Agreement**\
+`Senator Lindsey Graham said that Pete Hegseth, President-elect Donald Trump’s defense secretary pick, promised to release his accuser from a settlement that his lawyer has said was already breached.`\
+https://nytimes.com/2024/12/15/us/pete-hegseth-confidentiality-agreement-lindsey-graham.html
+
 **Blue Jackets Sunday Gathering: Three goalies is messy, but Jet Greaves isn't going away**\
 `"We don't want to have three goaltenders here. But, as we've talked about before, Jet deserves to be here," said coach Dean Evason.`\
 https://nytimes.com/athletic/5995169/2024/12/15/blue-jackets-nhl-goalie-jet-greaves/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/business/media/trump-defamation-lawsuit-abc-hegse
 **The Pulse: Another first for college football**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5995336/2024/12/15/college-football-bowl-schedule-nfl-the-pulse/
-
-**Lowetide: Why can't Oilers' top prospects score goals in the AHL?**\
-`The performance of Edmonton's top pro prospects with the Bakersfield Condors is of concern for two reasons.`\
-https://nytimes.com/athletic/5993803/2024/12/15/oilers-prospects-ahl-goals/
 
