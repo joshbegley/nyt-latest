@@ -7,7 +7,7 @@ https://nytimes.com/2024/12/15/us/mobile-mass-shooting-sentencing.html
 https://nytimes.com/athletic/5992022/2024/12/15/chelsea-2-brentford-1-the-briefing/
 
 **Dolphins WR Grant DuBose in stable condition following head injury vs. Texans**\
-`DuBose is in stable condition and is being taken to a local hospital for further evaluation.`\
+`DuBose took a shot to the head from Texans defender Calen Bullock in Sunday's third quarter.`\
 https://nytimes.com/athletic/5995820/2024/12/15/grant-dubose-dolphins-head-injury-stretchered-off/
 
 **Monday Briefing: South Korea’s Power Vacuum**\
