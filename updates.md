@@ -1,3 +1,7 @@
+**The Briefing: Rayo Vallecano 3 Real Madrid 3 - referee drama, Rodrygo's revival, same defensive problems**\
+`Madrid dropped points in a fierce contest with Rayo on Saturday that meant they were unable to return to the top of La Liga`\
+https://nytimes.com/athletic/5994666/2024/12/15/rayo-vallecano-3-real-madrid-3-la-liga/
+
 **Rockets' sputtering offense in NBA Cup semifinal highlights a rise in expectations**\
 `Houston's loss was a reminder of its defensive greatness, juxtaposed with offensive shortcomings.`\
 https://nytimes.com/athletic/5994925/2024/12/15/rockets-lose-nba-cup-semifinal-thunder/
