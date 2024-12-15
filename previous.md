@@ -1,3 +1,7 @@
+**Commanders hold on to beat Saints 20-19: Takeaways**\
+`Had the Commanders lost Sunday, the Philadelphia Eagles could have clinched the division with a Week 15 win.`\
+https://nytimes.com/athletic/5995299/2024/12/15/commanders-saints-score-result-takeaways/
+
 **Lorraine O’Grady, Artist Who Defied Category, Is Dead at 90**\
 `She worked in collage, photography, performance, video and installation, and she dealt forthrightly with the complexities of race and gender.`\
 https://nytimes.com/2024/12/15/arts/lorraine-ogrady-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995828/2024/12/15/titans-will-levis-benched-mason-
 **The Briefing: Southampton 0 Tottenham 5: Postecoglou respite, Martin humiliation and 'Levy out' chants**\
 `Our writers analyse the key talking points from Tottenham's thrashing of bottom-of-the-table Southampton`\
 https://nytimes.com/athletic/5992030/2024/12/15/southampton-tottenham-analysis-postecoglou/
-
-**See How Much NYC's Congestion Pricing Plan Would Cost You**\
-`A new toll on drivers hopes to reduce traffic in one of the world’s most congested cities. How would it work?`\
-https://nytimes.com/interactive/2024/12/15/nyregion/nyc-congestion-pricing-cost.html
 

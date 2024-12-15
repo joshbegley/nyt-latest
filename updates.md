@@ -1,3 +1,7 @@
+**Commanders hold on to beat Saints 20-19: Takeaways**\
+`Had the Commanders lost Sunday, the Philadelphia Eagles could have clinched the division with a Week 15 win.`\
+https://nytimes.com/athletic/5995299/2024/12/15/commanders-saints-score-result-takeaways/
+
 **Lorraine O’Grady, Artist Who Defied Category, Is Dead at 90**\
 `She worked in collage, photography, performance, video and installation, and she dealt forthrightly with the complexities of race and gender.`\
 https://nytimes.com/2024/12/15/arts/lorraine-ogrady-dead.html
