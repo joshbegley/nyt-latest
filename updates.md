@@ -1,3 +1,7 @@
+**Lorraine O’Grady, Artist Who Defied Category, Is Dead at 90**\
+`She worked in collage, photography, performance, video and installation, and she dealt forthrightly with the complexities of race and gender.`\
+https://nytimes.com/2024/12/15/arts/lorraine-ogrady-dead.html
+
 **Martin: 'I'll continue to work and fight until I’m told otherwise'**\
 `Southampton head coach Russell Martin says he will &#8220;continue to work and fight&#8221; until he is &#8220;told otherwise&#8221; after Sunday&#8217;s 5-0 loss to Tottenham Hotspur.`\
 https://nytimes.com/athletic/5995933/2024/12/15/russell-martin-southampton-tottenham/
