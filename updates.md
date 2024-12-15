@@ -1,3 +1,7 @@
+**Colonel Found Guilty of Sexual Harassment in Trial Seen as a Milestone**\
+`The conviction is considered one of the first of its kind since Congress required the military to change how its legal system addresses sexual assault and harassment.`\
+https://nytimes.com/2024/12/15/us/herman-west-guilty-military-sexual-harassment.html
+
 **Southampton sack manager Martin**\
 `Southampton have sacked manager Russell Martin following Sunday&#8217;s defeat by Tottenham Hotspur, which left them nine points adrift from safety at the bottom of the Premier League table.`\
 https://nytimes.com/athletic/5808686/2024/12/15/russell-martin-southampton-sacked/
