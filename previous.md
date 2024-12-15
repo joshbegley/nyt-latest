@@ -1,3 +1,7 @@
+**Bucks learning from past (and so distant) mistakes**\
+`The Bucks are looking like contenders again. Since their 2-8 start, they've won 12 of their last 15 games.`\
+https://nytimes.com/athletic/5994947/2024/12/15/bucks-growth-giannis-antetokounmpo-nba-mvp/
+
 **NFL Week 15 inactives and fantasy tips: Breece Hall, Tony Pollard questionable**\
 `Who's in and who's out for Week 15? Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/5992992/2024/12/15/nfl-week-15-inactives-fantasy-tips/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/world/middleeast/rebels-syria-governing-style-idl
 **How Biden Should Spend His Final Weeks in Office**\
 `The president can still do a lot before he leaves the White House.`\
 https://nytimes.com/2024/12/15/opinion/trump-biden-legacy.html
-
-**Israel Strikes Military Sites in Syria, Monitor Says**\
-`The Israeli military hit weapons depots and air defenses, according to the Syrian Observatory for Human Rights. Israel has said it aims to keep military equipment out of the hands of extremists after rebels seized power a week ago.`\
-https://nytimes.com/2024/12/15/world/middleeast/israel-strikes-syria-military.html
 
