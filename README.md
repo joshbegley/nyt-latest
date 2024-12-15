@@ -1,3 +1,11 @@
+**Rockets' sputtering offense in NBA Cup semifinal highlights a rise in expectations**\
+`Houston's loss was a reminder of its defensive greatness, juxtaposed with offensive shortcomings.`\
+https://nytimes.com/athletic/5994925/2024/12/15/rockets-lose-nba-cup-semifinal-thunder/
+
+**​After Impeachment, South Korea Is Left With No Elected Leader**\
+`The suspension of President Yoon Suk Yeol’s powers left a seasoned but unelected prime minister in charge of a country facing daunting challenges at home and abroad.`\
+https://nytimes.com/2024/12/15/world/asia/south-korea-impeachment.html
+
 **Saving Christmas in North Carolina, One Tree at a Time, After Hurricane Helene**\
 `The storm upended the Christmas tree industry in the state’s western region. Now, farmers and residents are eager for the comfort of the season’s rituals.`\
 https://nytimes.com/2024/12/15/us/saving-christmas-in-north-carolina-one-tree-at-a-time-after-hurricane-helene.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/15/nyregion/antonio-delgado-governor.html
 **David Pastrnak is the Bruins' offensive everything**\
 `Pastrnak exploded for a season-high 4 points against the Canucks, including three assists.`\
 https://nytimes.com/athletic/5994978/2024/12/15/bruins-david-pastrnak-offense/
-
-**Canucks continue to struggle at home: 3 takeaways from loss to Bruins**\
-`Vancouver was flat and lifeless against Boston. The Canucks didn't show much life until they were behind 4-0 late in the second period.`\
-https://nytimes.com/athletic/5994914/2024/12/15/canucks-demolished-by-bruins/
-
-**Tropical Cyclone Chido Heads for Mozambique After Pummeling French Territory**\
-`The storm, the equivalent of a Category 4, was moving toward East Africa’s coast on Sunday after killing several people in Mayotte, a French archipelago.`\
-https://nytimes.com/2024/12/15/world/africa/chido-mayotte-mozambique-french-territory.html
 
