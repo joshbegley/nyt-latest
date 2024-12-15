@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 2 Brentford 1 - Cucurella's crazy week and five wins in a row for Maresca**\
+`All the key talking points from Chelsea's victory over Brentford analysed and evaluated `\
+https://nytimes.com/athletic/5992022/2024/12/15/chelsea-2-brentford-1-the-briefing/
+
+**The Briefing: Southampton 0 Tottenham 5: Postecoglou respite, Martin humiliation and 'Levy out' chants**\
+`Our writers analyse the key talking points from Tottenham's thrashing of bottom-of-the-table Southampton`\
+https://nytimes.com/athletic/5992030/2024/12/15/southampton-tottenham-analysis-postecoglou/
+
 **Dolphins WR Grant DuBose in stable condition following head injury vs. Texans**\
 `DuBose is in stable condition and is being taken to a local hospital for further evaluation.`\
 https://nytimes.com/athletic/5995820/2024/12/15/grant-dubose-dolphins-head-injury-stretchered-off/

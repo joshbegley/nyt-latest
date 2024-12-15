@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 2 Brentford 1 - Cucurella's crazy week and five wins in a row for Maresca**\
+`All the key talking points from Chelsea's victory over Brentford analysed and evaluated `\
+https://nytimes.com/athletic/5992022/2024/12/15/chelsea-2-brentford-1-the-briefing/
+
 **Dolphins WR Grant DuBose in stable condition following head injury vs. Texans**\
 `DuBose is in stable condition and is being taken to a local hospital for further evaluation.`\
 https://nytimes.com/athletic/5995820/2024/12/15/grant-dubose-dolphins-head-injury-stretchered-off/
@@ -10,7 +14,7 @@ https://nytimes.com/2024/12/15/briefing/south-korea-syria-travel.html
 `Levis has 12 interceptions in 11 games this season after throwing three on Sunday.`\
 https://nytimes.com/athletic/5995828/2024/12/15/titans-will-levis-benched-mason-rudolph/
 
-**The Briefing: Southampton 0 Tottenham 5: Postecoglou respite, Martin humiliation and Levy out chants**\
+**The Briefing: Southampton 0 Tottenham 5: Postecoglou respite, Martin humiliation and 'Levy out' chants**\
 `Our writers analyse the key talking points from Tottenham's thrashing of bottom-of-the-table Southampton`\
 https://nytimes.com/athletic/5992030/2024/12/15/southampton-tottenham-analysis-postecoglou/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/style/polly-mellen-dead.html
 **Giants QB Tommy DeVito exits vs. Ravens with concussion**\
 `Tim Boyle entered into New York's Week 15 game against the Baltimore Ravens. `\
 https://nytimes.com/athletic/5995742/2024/12/15/tommy-devito-concussion-giants/
-
-**Man City 'played like Under-15s' in derby defeat - Bernardo**\
-`Bernardo Silva delivered a scathing assessment of Manchester City&#8217;s performance against Manchester United, saying they &#8220;played like Under-15s&#8221; in throwing away a lead to lose the derby in dramatic fashion.`\
-https://nytimes.com/athletic/5995720/2024/12/15/man-city-united-bernardo-silva/
 
