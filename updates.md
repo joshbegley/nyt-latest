@@ -1,3 +1,7 @@
+**Pastrnak is the Bruins' offensive everything**\
+`Pastrnak exploded for a season-high four points against the Canucks, including three assists.`\
+https://nytimes.com/athletic/5994978/2024/12/15/bruins-david-pastrnak-offense/
+
 **Cunha's steward clash, Ait-Nouri's anger - breaking down Wolves' latest moments of madness**\
 `Wolves suffered a painful late defeat against Ipswich but the football was only half of the story`\
 https://nytimes.com/athletic/5994406/2024/12/15/wolves-ipswich-cunha-ait-nouri/
