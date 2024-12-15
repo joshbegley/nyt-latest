@@ -1,3 +1,11 @@
+**When ‘The Lord of the Rings’ Gets the Anime Treatment**\
+`“The War of the Rohirrim” is the latest and most high-profile anime adaptation of a Western franchise to hit screens big and small.`\
+https://nytimes.com/2024/12/15/movies/the-lord-of-the-rings-behind-the-scenes.html
+
+**Cowboys Today: Predictions vs. Panthers, franchise's worth and Rico Dowdle's opportunity**\
+`The Panthers are a rare favorite, but have the NFL's worst rushing defense. Can Rico Dowdle be the difference-maker?`\
+https://nytimes.com/athletic/5995224/2024/12/15/cowboys-today-panthers-predictions-rico-dowdle/
+
 **Lindsey Vonn, at historic stop for women's alpine, kicks off her World Cup return**\
 `This weekend in Colorado, Lindsey Vonn was back on a World Cup course, eyeing what's next. "Success is not just participating," she says.`\
 https://nytimes.com/athletic/5994836/2024/12/15/lindsey-vonn-skiing-comeback-beaver-creek-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5994947/2024/12/15/bucks-growth-giannis-antetokounm
 **NFL Week 15 inactives and fantasy tips: Breece Hall, Tony Pollard questionable**\
 `Who's in and who's out for Week 15? Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/5992992/2024/12/15/nfl-week-15-inactives-fantasy-tips/
-
-**Google’s Sundar Pichai on Antitrust, Trump and A.I.**\
-`Google’s chief executive spoke with Andrew Ross Sorkin at the DealBook Summit`\
-https://nytimes.com/2024/12/15/business/dealbook/sundar-pichai-dealbook.html
-
-**A Trip to New York**\
-`Expert advice to make the most of a New York City vacation.`\
-https://nytimes.com/2024/12/15/briefing/a-trip-to-new-york.html
 
