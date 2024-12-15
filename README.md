@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5993136/2024/12/15/bears-mailbag-ben-johnson-caleb-
 https://nytimes.com/athletic/5994686/2024/12/15/chicago-cubs-kyle-tucker-trade-playoff-potential/
 
 **‘I can’t believe it came to this’: His Lions fandom is his identity. He almost lost it**\
-`His season tickets were revoked after a viral incident with the Packers' head coach. Why Fahad Yousif will root for Detroit 'no matter what'`\
+`His season tickets were revoked after a viral incident with the Packers' coach. Why Fahad Yousif will root for Detroit "no matter what."`\
 https://nytimes.com/athletic/5994787/2024/12/15/detroit-lions-fans-tickets-revoked-matt-lafleur/
 
