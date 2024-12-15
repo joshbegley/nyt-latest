@@ -1,3 +1,7 @@
+**Lindsey Vonn, at historic stop for women's alpine, kicks off her World Cup return**\
+`This weekend in Colorado, Lindsey Vonn was back on a World Cup course, eyeing what's next. "Success is not just participating," she says.`\
+https://nytimes.com/athletic/5994836/2024/12/15/lindsey-vonn-skiing-comeback-beaver-creek-world-cup/
+
 **On ‘S.N.L.,’ Luigi Mangione Is Busting Out All Over**\
 `As Chris Rock hosts, the man charged in the UnitedHealthcare shooting dominates this week’s riffs on the news.`\
 https://nytimes.com/2024/12/15/arts/television/snl-luigi-mangione.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/business/dealbook/sundar-pichai-dealbook.html
 **A Trip to New York**\
 `Expert advice to make the most of a New York City vacation.`\
 https://nytimes.com/2024/12/15/briefing/a-trip-to-new-york.html
-
-**Remembering Adam Johnson on an emotional night in Nottingham - 'a guy team-mates would all love'**\
-`Adam Johnson's family attended a ceremony to remember him and to officially retire his No 47 jersey`\
-https://nytimes.com/athletic/5994700/2024/12/15/adam-johnson-nottingham-tributes/
 
