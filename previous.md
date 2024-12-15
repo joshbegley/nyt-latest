@@ -1,40 +1,40 @@
-**Travis Hunter is the Heisman Trophy winner who wasn't afraid to be different**\
-`Hunter thanked Deion Sanders for changing his life, but the same can be said the other way around. Hunter is Sanders’ proof of concept.`\
-https://nytimes.com/athletic/5994901/2024/12/15/travis-hunter-heisman-deion-sanders-colorado/
+**How Will the Rebels Rule Syria? Their Past Offers Clues.**\
+`The Islamist rebels who ousted Syria’s dictator ran a pragmatic and disciplined administration in the territory they controlled. They also jailed their critics.`\
+https://nytimes.com/2024/12/15/world/middleeast/rebels-syria-governing-style-idlib.html
 
-**NFL Week 15 top storylines: Bills-Lions, Steelers-Eagles are potential Super Bowl previews**\
-`Also: AFC implications in Dolphins-Texans, Bucs try to stay hot and an important Packers-Seahawks matchup on "Sunday Night Football."`\
-https://nytimes.com/athletic/5990116/2024/12/15/nfl-week-15-storylines-bills-lions-steelers-eagles/
+**How Biden Should Spend His Final Weeks in Office**\
+`The president can still do a lot before he leaves the White House.`\
+https://nytimes.com/2024/12/15/opinion/trump-biden-legacy.html
 
-**Ravens at Giants: How to watch, odds, expert picks with Baltimore as huge road favorite**\
-`Coming off of a bye week, the Baltimore Ravens hit the road to face the struggling New York Giants.`\
-https://nytimes.com/athletic/5992505/2024/12/15/ravens-giants-how-to-watch-odds-picks-betting/
+**Israel Strikes Military Sites in Syria, Monitor Says**\
+`The Israeli military hit weapons depots and air defenses, according to the Syrian Observatory for Human Rights. Israel has said it aims to keep military equipment out of the hands of extremists after rebels seized power a week ago.`\
+https://nytimes.com/2024/12/15/world/middleeast/11syria-strikes-news.html
 
-**Chiefs at Browns: How to watch, odds, expert picks with Kansas City looking to go 13-1**\
-`The defending Super Bowl champions are road favorites against the Browns on Sunday. What they pull off this week is anyone’s guess.`\
-https://nytimes.com/athletic/5990746/2024/12/15/chiefs-browns-how-to-watch-odds-picks-betting/
+**Ben Johnson or bust? Evaluating Caleb Williams? Bears mailbag, plus Week 15 picks**\
+`The Bears have been brutal to start games. Maybe someone like Ben Johnson would help fix that. Mailbag and our picks for MNF in Minnesota.`\
+https://nytimes.com/athletic/5993136/2024/12/15/bears-mailbag-ben-johnson-caleb-williams/
 
-**Jets at Jaguars: How to watch, odds, expert picks with New York as rare road favorite**\
-`The Jets keep finding new ways to lose. The Jaguars have been bottom-feeders all year. These 3-10 teams will play for self-esteem Sunday.`\
-https://nytimes.com/athletic/5992732/2024/12/15/jets-jaguars-how-to-watch-odds-expert-picks-with-new-york-as-rare-road-favorite/
+**With the Kyle Tucker trade, the Cubs are back in the mix: ‘About time’**\
+`Tucker, one of baseball's most underrated stars, joins a Cubs team loaded with prospects and hungry to get back into October.`\
+https://nytimes.com/athletic/5994686/2024/12/15/chicago-cubs-kyle-tucker-trade-playoff-potential/
 
-**Both Army-Navy QBs have earned their place in an unforgettable rivalry's lore**\
-`Blake Horvath and Navy toppled Bryson Daily and Army on Saturday, but the game should remembered for more than the final result.`\
-https://nytimes.com/athletic/5994817/2024/12/15/navy-army-blake-horvath-bryson-daily/
+**‘I can’t believe it came to this’: His Lions fandom is his identity. He almost lost it**\
+`His season tickets were revoked after a viral incident with the Packers' head coach. Why Fahad Yousif will root for Detroit 'no matter what'`\
+https://nytimes.com/athletic/5994787/2024/12/15/detroit-lions-fans-tickets-revoked-matt-lafleur/
 
-**The Alienation of Jaime Cachua**\
-`His friends and family members in Rome, Ga., voted to support mass deportation. Now he’s scrambling to stay in the country.`\
-https://nytimes.com/2024/12/15/us/trump-immigrant-deportations-rome-georgia.html
+**Why has Bill Belichick's hiring been met with such skepticism? Some reasons, real and imagined**\
+`Part of the problem might be Belichick’s spectacularly stiff and grumpy public persona, but it’s much deeper than that.`\
+https://nytimes.com/athletic/5993573/2024/12/15/bill-belichick-north-carolina-skepticism-patriots/
 
-**Packers at Seahawks: How to watch, odds, expert picks with Green Bay as tight road favorite**\
-`Green Bay (9-4) visits Seattle (8-5) in one of the most compelling matchups of Week 15.`\
-https://nytimes.com/athletic/5990832/2024/12/15/packers-seahawks-how-to-watch-odds-picks-betting/
+**The Trouble Began When #MeToo Became #ChurchToo**\
+`Yes, people want justice — so long as justice costs them nothing, or very little.`\
+https://nytimes.com/2024/12/15/opinion/metoo-trump-hegseth-churchtoo.html
 
-**As NBA eyes expansion, it sees potential in Mexico City. But is that a realistic option?**\
-`“If we were to bring an NBA franchise here, there's no question it would ignite and accelerate the growth of the game,” Adam Silver says.`\
-https://nytimes.com/athletic/5993959/2024/12/15/nba-expansion-mexico-vegas-seattle-adam-silver/
+**The Sunday Read: ‘What if A.I. Is Actually Good for Hollywood?’**\
+`It’s already powering remarkable visual innovations, like in the new movie “Here.” But boosters think that’s just the beginning.`\
+https://nytimes.com/2024/12/15/podcasts/the-daily/ai-hollywood-movies-cgi.html
 
-**Lloyd: Why the Guardians moved on from Andrés Giménez and what comes next**\
-`The organization’s depth at second base, its need for starting pitching and the acceleration of this pitching market were all factors.`\
-https://nytimes.com/athletic/5994207/2024/12/15/cleveland-guardians-andres-gimenez-luis-ortiz-travis-bazzano/
+**For the Sake of 600,000 Children, Science Must Be Bold**\
+`Gene drives offer hope in our battle against malaria.`\
+https://nytimes.com/2024/12/15/opinion/malaria-genetics-disease.html
 
