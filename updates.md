@@ -1,3 +1,15 @@
+**Faller in Fall**\
+`Ailee Yoshida crafts her origin story.`\
+https://nytimes.com/2024/12/15/crosswords/daily-puzzle-2024-12-16.html
+
+**Maresca: Chelsea must manage situations differently after late Cucurella red**\
+`Enzo Maresca says Chelsea must learn to manage situations better after Marc Cucurella was sent off at full time following Sunday&#8217;s victory over Brentford.`\
+https://nytimes.com/athletic/5996270/2024/12/15/marc-cucurella-red-card-chelsea/
+
+**Patrick Mahomes' ankle injury overshadows Chiefs' 21-7 win vs. Browns: Takeaways**\
+`“It’s sore,” Chiefs coach Andy Reid said of Mahomes' injury. “It’ll literally be day to day."`\
+https://nytimes.com/athletic/5995289/2024/12/15/patrick-mahomes-ankle-injury-chiefs-browns-score-takeaways/
+
 **Nick Chubb suffers broken foot in what could be final game of Browns career**\
 `If his time in Cleveland is ending, he would exit with the third-most rushing yards (6,802) and rushing touchdowns (51) in Browns history.`\
 https://nytimes.com/athletic/5996185/2024/12/15/nick-chubb-broken-foot/
