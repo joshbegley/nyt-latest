@@ -1,3 +1,7 @@
+**Russo: Zuccarello and Brodin's return, Foligno's scrap and more Wild observations**\
+`Zuccarello and Brodin didn't miss a beat as the Wild bounced back with a 4-1 win over the Flyers. `\
+https://nytimes.com/athletic/5994526/2024/12/14/wild-flyers-mats-zuccarello-jonas-brodin/
+
 **Rosenthal: What I'm hearing about the Mariners' willingness to trade Luis Castillo and more**\
 `Plus A's-Rays trade reaction, Jack Flaherty's free-agency options and more from around the league.`\
 https://nytimes.com/athletic/5994597/2024/12/14/mariners-luis-castillo-trade-mlb-offseason-notes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5994515/2024/12/14/auburn-trill-carter-shot-charlot
 **QB Blake Horvath's 4 TDs propel Navy past Army in 31-13 win**\
 `Navy and Army entered the game with the trophy on the line after both military academies beat Air Force in the regular season.`\
 https://nytimes.com/athletic/5994253/2024/12/14/army-navy-game-score-results-takeaways/
-
-**Louisville lands USC transfer quarterback Miller Moss: Source**\
-`Moss also considered Missouri, but Louisville and Jeff Brohm’s quarterback-friendly offense won out for the Southern California native. `\
-https://nytimes.com/athletic/5994487/2024/12/14/louisville-miller-moss-transfer-quarterback/
 
