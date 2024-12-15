@@ -1,3 +1,7 @@
+**‘I can’t believe it came to this’: His Lions fandom is his identity. He almost lost it**\
+`His season tickets were revoked after a viral incident with the Packers' coach. Why Fahad Yousif will root for Detroit "no matter what."`\
+https://nytimes.com/athletic/5994787/2024/12/15/detroit-lions-fans-tickets-revoked-matt-lafleur/
+
 **Remembering Adam Johnson on an emotional night in Nottingham - 'a guy team-mates would all love'**\
 `Adam Johnson's family attended a ceremony to remember him and to officially retire his No 47 jersey`\
 https://nytimes.com/athletic/5994700/2024/12/15/adam-johnson-nottingham-tributes/
