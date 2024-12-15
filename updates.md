@@ -1,3 +1,7 @@
+**Russo: Zuccarello and Brodin's return, Foligno's scrap and more Wild observations**\
+`Zuccarello and Brodin didn't miss a beat as the Wild bounced back with a 4-1 win over the Flyers. `\
+https://nytimes.com/athletic/5994526/2024/12/14/wild-flyers-mats-zuccarello-jonas-brodin/
+
 **Rosenthal: What I'm hearing about the Mariners' willingness to trade Luis Castillo and more**\
 `Plus A's-Rays trade reaction, Jack Flaherty's free-agency options and more from around the league.`\
 https://nytimes.com/athletic/5994597/2024/12/14/mariners-luis-castillo-trade-mlb-offseason-notes/
