@@ -1,3 +1,11 @@
+**Colts' Jonathan Taylor drops ball before goal line erasing TD run vs. Broncos**\
+`The Colts running back wasn't the only player in Week 15 to drop the ball before the goal line to negate a touchdown.`\
+https://nytimes.com/athletic/5996345/2024/12/15/jonathan-taylor-fumble-touchback-colts-broncos/
+
+**Giants running away with No. 1 NFL Draft pick in Week 15**\
+`While we await the result of the Raiders' Monday night game, the Giants currently win the top pick in nearly one in two scenarios.`\
+https://nytimes.com/athletic/5996167/2024/12/15/top-draft-pick-nfl-giants-raiders/
+
 **Faller in Fall**\
 `Ailee Yoshida crafts her origin story.`\
 https://nytimes.com/2024/12/15/crosswords/daily-puzzle-2024-12-16.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/15/us/herman-west-guilty-military-sexual-harassment.
 **Southampton sack manager Martin**\
 `Southampton have sacked manager Russell Martin following Sunday&#8217;s defeat by Tottenham Hotspur, which left them nine points adrift from safety at the bottom of the Premier League table.`\
 https://nytimes.com/athletic/5808686/2024/12/15/russell-martin-southampton-sacked/
-
-**Analysing why Bernardo Silva said Man City 'played like U15s' at the end of the derby**\
-`Was the Manchester City player right to say his team played like U15s as they lost control in the final minutes against Manchester United?`\
-https://nytimes.com/athletic/5996084/2024/12/15/bernardo-silva-under-15s-comment/
-
-**Women's volleyball Final Four tickets punched; 1 spot remains**\
-`The winner of Creighton-Penn State will join Pitt, Louisville and Nebraska in the women's volleyball Final Four.`\
-https://nytimes.com/athletic/5996132/2024/12/15/womens-volleyball-final-four-field-set/
 
