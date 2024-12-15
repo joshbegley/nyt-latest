@@ -1,3 +1,7 @@
+**Hurzeler criticises referee's 'unbelievable decision' in Brighton defeat to Palace**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler has criticised Michael Oliver for an &#8220;unbelievable decision&#8221; in allowing the game to continue against Crystal Palace after the referee got in the way of Carlos Baleba.`\
+https://nytimes.com/athletic/5995444/2024/12/15/brighton-palace-michael-oliver-referee/
+
 **Ingrid Lewis-Martin, Top Adviser to Mayor Adams, Resigns**\
 `The departure of Ms. Lewis-Martin, whose phone was seized by investigators in September, is the latest in a string of resignations among the mayor’s inner circle.`\
 https://nytimes.com/2024/12/15/nyregion/ingrid-lewis-martin-resigns-eric-adams.html
