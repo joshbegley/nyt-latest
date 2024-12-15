@@ -1,5 +1,5 @@
 **Southampton sack manager Martin**\
-`Southampton have sacked manager Russell Martin following Sunday&#8217;s thrashing by Tottenham Hotspur, which left them nine points adrift from safety at the bottom of the Premier League table.`\
+`Southampton have sacked manager Russell Martin following Sunday&#8217;s defeat by Tottenham Hotspur, which left them nine points adrift from safety at the bottom of the Premier League table.`\
 https://nytimes.com/athletic/5808686/2024/12/15/russell-martin-southampton-sacked/
 
 **Analysing why Bernardo Silva said Man City 'played like U15s' at the end of the derby**\
