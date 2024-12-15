@@ -1,3 +1,7 @@
+**Nick Chubb suffers broken foot in what could be final game of Browns career**\
+`If his time in Cleveland is ending, he would exit with the third-most rushing yards (6,802) and rushing touchdowns (51) in Browns history. `\
+https://nytimes.com/athletic/5996185/2024/12/15/nick-chubb-broken-foot/
+
 **Faller in Fall**\
 `Ailee Yoshida crafts her origin story.`\
 https://nytimes.com/2024/12/15/crosswords/daily-puzzle-2024-12-16.html
