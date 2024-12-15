@@ -1,3 +1,7 @@
+**Graham Says Hegseth Plans to Release Accuser From Confidential Agreement**\
+`Senator Lindsey Graham said that Pete Hegseth, President-elect Donald Trump’s defense secretary pick, promised to release his accuser from a settlement that his lawyer has said was already breached.`\
+https://nytimes.com/2024/12/15/us/pete-hegseth-confidentiality-agreement-lindsey-graham.html
+
 **Blue Jackets Sunday Gathering: Three goalies is messy, but Jet Greaves isn't going away**\
 `"We don't want to have three goaltenders here. But, as we've talked about before, Jet deserves to be here," said coach Dean Evason.`\
 https://nytimes.com/athletic/5995169/2024/12/15/blue-jackets-nhl-goalie-jet-greaves/
