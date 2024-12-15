@@ -1,3 +1,11 @@
+**Rosenthal: What I'm hearing about the Mariners' willingness to trade Luis Castillo and more**\
+`Plus A's-Rays trade reaction, Jack Flaherty's free-agency options and more from around the league.`\
+https://nytimes.com/athletic/5994597/2024/12/14/mariners-luis-castillo-trade-mlb-offseason-notes/
+
+**Bucks top Hawks to advance to NBA Cup final as Antetokounmpo dominates**\
+`Giannis Antetokounmpo finished with 32 points as the Bucks beat the Hawks 110-102 in Las Vegas.`\
+https://nytimes.com/athletic/5994621/2024/12/14/bucks-hawks-nba-cup-semifinal-result-score/
+
 **Jamie Drysdale, Emil Andrae and the 'surfing' Flyers defensemen**\
 `The Flyers blue line is crowded now that their defensemen are healthy again, and Drysdale's play has been more in focus than others.`\
 https://nytimes.com/athletic/5994454/2024/12/14/flyers-defensemen-jamie-drysdale-emil-andrae/
