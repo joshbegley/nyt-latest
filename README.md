@@ -1,40 +1,40 @@
-**The Briefing: Rayo Vallecano 3 Real Madrid 3 - referee drama, Rodrygo's revival, same defensive problems**\
-`Madrid dropped points in a fierce contest with Rayo on Saturday that meant they were unable to return to the top of La Liga`\
-https://nytimes.com/athletic/5994666/2024/12/15/rayo-vallecano-3-real-madrid-3-la-liga/
+**Travis Hunter is the Heisman Trophy winner who wasn't afraid to be different**\
+`Hunter thanked Deion Sanders for changing his life, but the same can be said the other way around. Hunter is Sanders’ proof of concept.`\
+https://nytimes.com/athletic/5994901/2024/12/15/travis-hunter-heisman-deion-sanders-colorado/
 
-**Rockets' sputtering offense in NBA Cup semifinal highlights a rise in expectations**\
-`Houston's loss was a reminder of its defensive greatness, juxtaposed with offensive shortcomings.`\
-https://nytimes.com/athletic/5994925/2024/12/15/rockets-lose-nba-cup-semifinal-thunder/
+**NFL Week 15 top storylines: Bills-Lions, Steelers-Eagles are potential Super Bowl previews**\
+`Also: AFC implications in Dolphins-Texans, Bucs try to stay hot and an important Packers-Seahawks matchup on "Sunday Night Football."`\
+https://nytimes.com/athletic/5990116/2024/12/15/nfl-week-15-storylines-bills-lions-steelers-eagles/
 
-**​After Impeachment, South Korea Is Left With No Elected Leader**\
-`The suspension of President Yoon Suk Yeol’s powers left a seasoned but unelected prime minister in charge of a country facing daunting challenges at home and abroad.`\
-https://nytimes.com/2024/12/15/world/asia/south-korea-impeachment.html
+**Ravens at Giants: How to watch, odds, expert picks with Baltimore as huge road favorite**\
+`Coming off of a bye week, the Baltimore Ravens hit the road to face the struggling New York Giants.`\
+https://nytimes.com/athletic/5992505/2024/12/15/ravens-giants-how-to-watch-odds-picks-betting/
 
-**Saving Christmas in North Carolina, One Tree at a Time, After Hurricane Helene**\
-`The storm upended the Christmas tree industry in the state’s western region. Now, farmers and residents are eager for the comfort of the season’s rituals.`\
-https://nytimes.com/2024/12/15/us/saving-christmas-in-north-carolina-one-tree-at-a-time-after-hurricane-helene.html
+**Chiefs at Browns: How to watch, odds, expert picks with Kansas City looking to go 13-1**\
+`The defending Super Bowl champions are road favorites against the Browns on Sunday. What they pull off this week is anyone’s guess.`\
+https://nytimes.com/athletic/5990746/2024/12/15/chiefs-browns-how-to-watch-odds-picks-betting/
 
-**Walt Disney, Painted Out of the Photo**\
-`A photo found in The New York Times’s clippings library held a secret: One famous figure had been cropped out in order to spotlight another.`\
-https://nytimes.com/2024/12/15/insider/walt-disney-painted-out-of-the-photo.html
+**Jets at Jaguars: How to watch, odds, expert picks with New York as rare road favorite**\
+`The Jets keep finding new ways to lose. The Jaguars have been bottom-feeders all year. These 3-10 teams will play for self-esteem Sunday.`\
+https://nytimes.com/athletic/5992732/2024/12/15/jets-jaguars-how-to-watch-odds-expert-picks-with-new-york-as-rare-road-favorite/
 
-**‘At the End of the Bench, a Man Was Leaning Against the Railing’**\
-`Curiosity rewarded on the C train, a Christmas gift and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/12/15/nyregion/metropolitan-diary.html
+**Both Army-Navy QBs have earned their place in an unforgettable rivalry's lore**\
+`Blake Horvath and Navy toppled Bryson Daily and Army on Saturday, but the game should remembered for more than the final result.`\
+https://nytimes.com/athletic/5994817/2024/12/15/navy-army-blake-horvath-bryson-daily/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/15/crosswords/spelling-bee-forum.html
+**The Alienation of Jaime Cachua**\
+`His friends and family members in Rome, Ga., voted to support mass deportation. Now he’s scrambling to stay in the country.`\
+https://nytimes.com/2024/12/15/us/trump-immigrant-deportations-rome-georgia.html
 
-**Automakers Thrived in the Pandemic. Many Are Now Struggling.**\
-`Changing technology, political turmoil and competition from China are cutting into profits and forcing carmakers to cut jobs and close factories.`\
-https://nytimes.com/2024/12/15/business/automakers-trouble.html
+**Packers at Seahawks: How to watch, odds, expert picks with Green Bay as tight road favorite**\
+`Green Bay (9-4) visits Seattle (8-5) in one of the most compelling matchups of Week 15.`\
+https://nytimes.com/athletic/5990832/2024/12/15/packers-seahawks-how-to-watch-odds-picks-betting/
 
-**An Epidemic of Vicious School Brawls, Fueled by Student Cellphones**\
-`Cafeteria melees. Students kicked in the head. Injured educators. Technology is stoking cycles of violence in schools across the United States.`\
-https://nytimes.com/2024/12/15/business/school-fight-videos-student-phones.html
+**As NBA eyes expansion, it sees potential in Mexico City. But is that a realistic option?**\
+`“If we were to bring an NBA franchise here, there's no question it would ignite and accelerate the growth of the game,” Adam Silver says.`\
+https://nytimes.com/athletic/5993959/2024/12/15/nba-expansion-mexico-vegas-seattle-adam-silver/
 
-**Hochul May Face a Challenger She Knows Well: Her Lieutenant Governor**\
-`Lt. Gov. Antonio Delgado has begun to carve out his own political path, potentially putting him on a collision course with his boss, Gov. Kathy Hochul.`\
-https://nytimes.com/2024/12/15/nyregion/antonio-delgado-governor.html
+**Lloyd: Why the Guardians moved on from Andrés Giménez and what comes next**\
+`The organization’s depth at second base, its need for starting pitching and the acceleration of this pitching market were all factors.`\
+https://nytimes.com/athletic/5994207/2024/12/15/cleveland-guardians-andres-gimenez-luis-ortiz-travis-bazzano/
 
