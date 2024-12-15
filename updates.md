@@ -1,3 +1,7 @@
+**Ange Postecoglou and Russell Martin should be less tactically stubborn - but not today**\
+`Critics won't like it but this evening it makes sense for Spurs to press more heavily than ever, and for Southampton to play out even more `\
+https://nytimes.com/athletic/5989660/2024/12/15/ange-postecoglou-and-russell-martin-tactics/
+
 **Manchester derby: Bigger for Amorim or Guardiola? How will it play out? Predictions and starting XIs**\
 `Three of our writers look at each club's issues this season, how their managers are coping and what to expect in the match`\
 https://nytimes.com/athletic/5993701/2024/12/15/manchester-derby-amorim-guardiola-predictions/
