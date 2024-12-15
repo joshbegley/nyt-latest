@@ -1,3 +1,15 @@
+**Jamie Foxx Recovering After Being Hit With a Glass in the Mouth**\
+`Foxx was celebrating his birthday at a restaurant on Friday when someone from another table threw a glass, a representative for the entertainer said.`\
+https://nytimes.com/2024/12/15/arts/jamie-foxx-assault-beverly-hills.html
+
+**ATP Next Gen Finals: Favorite Arthur Fils faces Mensik and Fonseca in Jeddah draw**\
+`The best 20-and-under men's players in the world meet in Jeddah, Saudi Arabia for the final event of the 2024 tennis season.`\
+https://nytimes.com/athletic/5995511/2024/12/15/atp-next-gen-finals-draw-schedule-results/
+
+**The Briefing: Man City 1 Man Utd 2 - Amad's genuis, Nunes' errors and Amorim's set-piece problem**\
+`Analysis of the Manchester derby between City and United`\
+https://nytimes.com/athletic/5992015/2024/12/15/man-city-man-utd-highlights-goals/
+
 **Graham Says Hegseth Plans to Release Accuser From Confidential Agreement**\
 `Senator Lindsey Graham said that Pete Hegseth, President-elect Donald Trump’s defense secretary pick, promised to release his accuser from a settlement that his lawyer has said was already breached.`\
 https://nytimes.com/2024/12/15/us/pete-hegseth-confidentiality-agreement-lindsey-graham.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5995415/2024/12/15/ny-giants-plane-banner-john-mara
 **Who is Vitor Pereira? Explosive, intense and desperate for a Premier League chance**\
 `The man Wolves intend to appoint as their new manager has a wealth of experience and things are unlikely to be dull with him in charge`\
 https://nytimes.com/athletic/5995264/2024/12/15/vitor-pereira-wolves/
-
-**Israel Shutters Its Embassy in Ireland, Citing ‘Anti-Israel Policies’**\
-`Amid mounting international criticism of its military conduct in Gaza, Israel says it will deepen ties with countries it considers friendly toward it.`\
-https://nytimes.com/2024/12/15/world/middleeast/israel-closes-embassy-ireland.html
-
-**Trump and His Picks Threaten More Lawsuits Over Critical Coverage**\
-`The small flurry of threatened defamation suits is the latest sign that the incoming Trump administration appears poised to do what it can to crack down on unfavorable media coverage.`\
-https://nytimes.com/2024/12/15/business/media/trump-defamation-lawsuit-abc-hegseth-cnn.html
-
-**The Pulse: Another first for college football**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/5995336/2024/12/15/college-football-bowl-schedule-nfl-the-pulse/
 
