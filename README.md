@@ -3,7 +3,7 @@
 https://nytimes.com/2024/12/14/pageoneplus/corrections-dec-14-2024.html
 
 **'It’s a rivalry': Why beating the Golden Knights means a little more to the Oilers**\
-`There are wins and then there are wins that mean that much more like the Oilers' 6-3 victory over the Golden Knights.`\
+`There are wins and then there are wins that mean that much more, like Edmonton's 6-3 victory over Vegas.`\
 https://nytimes.com/athletic/5994733/2024/12/14/oilers-golden-knights-nhl-rivalry/
 
 **Devin Nunes, Pugnacious Trump Loyalist, to Lead Espionage Advisory Board**\
