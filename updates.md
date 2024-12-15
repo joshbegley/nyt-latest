@@ -1,3 +1,7 @@
+**Giants QB Tommy DeVito exits vs. Ravens with concussion**\
+`Tim Boyle entered into New York's Week 15 game against the Baltimore Ravens. `\
+https://nytimes.com/athletic/5995742/2024/12/15/tommy-devito-concussion-giants/
+
 **Man City 'played like Under-15s' in derby defeat - Bernardo**\
 `Bernardo Silva delivered a scathing assessment of Manchester City&#8217;s performance against Manchester United, saying they &#8220;played like Under-15s&#8221; in throwing away a lead to lose the derby in dramatic fashion.`\
 https://nytimes.com/athletic/5995720/2024/12/15/man-city-united-bernardo-silva/

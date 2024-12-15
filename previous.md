@@ -1,3 +1,7 @@
+**Giants QB Tommy DeVito exits vs. Ravens with concussion**\
+`Tim Boyle entered into New York's Week 15 game against the Baltimore Ravens. `\
+https://nytimes.com/athletic/5995742/2024/12/15/tommy-devito-concussion-giants/
+
 **Man City 'played like Under-15s' in derby defeat - Bernardo**\
 `Bernardo Silva delivered a scathing assessment of Manchester City&#8217;s performance against Manchester United, saying they &#8220;played like Under-15s&#8221; in throwing away a lead to lose the derby in dramatic fashion.`\
 https://nytimes.com/athletic/5995720/2024/12/15/man-city-united-bernardo-silva/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995169/2024/12/15/blue-jackets-nhl-goalie-jet-grea
 **Ask James and Jonas your questions for the next Leaf Report podcast**\
 `The Maple Leafs are into a busy section of their schedule, with four games in six nights this coming week in Dallas and Buffalo and then at home against Buffalo and the Islanders to go into the Christmas break.`\
 https://nytimes.com/athletic/5995589/2024/12/15/ask-james-and-jonas-your-questions-for-the-next-leaf-report-podcast-11/
-
-**Hurzeler criticises referee's 'unbelievable decision' in Brighton defeat to Palace**\
-`Brighton &amp; Hove Albion head coach Fabian Hurzeler has criticised Michael Oliver for an &#8220;unbelievable decision&#8221; in allowing the game to continue against Crystal Palace after the referee got in the way of Carlos Baleba.`\
-https://nytimes.com/athletic/5995444/2024/12/15/brighton-palace-michael-oliver-referee/
 
