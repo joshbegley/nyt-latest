@@ -1,3 +1,11 @@
+**Bengals keep playoff hopes alive with 37-27 win over Titans: Takeaways**\
+`Joe Burrow's three passing touchdowns overcame 10 combined turnovers and 26 penalties between the Bengals and Titans.`\
+https://nytimes.com/athletic/5995305/2024/12/15/bengals-titans-score-result-takeaways/
+
+**Cowboys dominate Panthers, 30-14, to keep slim playoff hopes alive: Takeaways**\
+`Dallas dominated in all three phases against Carolina on Sunday for its third win in four weeks. `\
+https://nytimes.com/athletic/5995285/2024/12/15/cowboys-panthers-score-result-takeaways/
+
 **Commanders hold on to beat Saints 20-19: Takeaways**\
 `Had the Commanders lost Sunday, the Philadelphia Eagles could have clinched the division with a Week 15 win.`\
 https://nytimes.com/athletic/5995299/2024/12/15/commanders-saints-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5995820/2024/12/15/grant-dubose-dolphins-head-injur
 **Monday Briefing: South Korea’s Power Vacuum**\
 `Plus, how travel benefits us.`\
 https://nytimes.com/2024/12/15/briefing/south-korea-syria-travel.html
-
-**Titans bench QB Will Levis vs. Bengals after 3 INTs, lost fumble**\
-`Levis has 12 interceptions in 11 games this season after throwing three on Sunday.`\
-https://nytimes.com/athletic/5995828/2024/12/15/titans-will-levis-benched-mason-rudolph/
-
-**The Briefing: Southampton 0 Tottenham 5: Postecoglou respite, Martin humiliation and 'Levy out' chants**\
-`Our writers analyse the key talking points from Tottenham's thrashing of bottom-of-the-table Southampton`\
-https://nytimes.com/athletic/5992030/2024/12/15/southampton-tottenham-analysis-postecoglou/
 
