@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5994798/2024/12/14/blue-jackets-ducks-james-van-rie
 `"We never show film after a game, and we showed the winning plays today," Doc Rivers said.`\
 https://nytimes.com/athletic/5994753/2024/12/14/bucks-winning-plays-nba-cup-semifinal-hawks/
 
-**Maple Leafs report cards: Defensive errors prove costly in Detroit**\
-`The Leafs didn’t get the goal support to drag themselves out of the hole they dug for themselves defensively in a 4-2 loss to the Red Wings.`\
+**Maple Leafs report cards: Defensive errors prove costly vs. Red Wings**\
+`The Leafs didn’t get the goal support to drag themselves out of the hole they dug defensively in a 4-2 loss to the Red Wings.`\
 https://nytimes.com/athletic/5994775/2024/12/14/maple-leafs-red-wings-grades-analysis/
 
 **Corrections: Dec. 15, 2024**\

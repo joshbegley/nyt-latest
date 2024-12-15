@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Defensive errors prove costly vs. Red Wings**\
+`The Leafs didn’t get the goal support to drag themselves out of the hole they dug defensively in a 4-2 loss to the Red Wings.`\
+https://nytimes.com/athletic/5994775/2024/12/14/maple-leafs-red-wings-grades-analysis/
+
 **Trump Names Richard Grenell for ‘Special Missions’ Role**\
 `A combative loyalist and the president-elect’s former ambassador to Germany, Mr. Grenell had hoped to be secretary of state.`\
 https://nytimes.com/2024/12/14/us/politics/trump-richard-grenell-special-missions.html
