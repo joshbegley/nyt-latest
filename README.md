@@ -1,4 +1,4 @@
-**Colts' Jonathan Taylor drops ball before goal line erasing TD run vs. Broncos**\
+**Colts' Jonathan Taylor drops ball before goal line, erasing TD run vs. Broncos**\
 `The Colts running back wasn't the only player in Week 15 to drop the ball before the goal line to negate a touchdown.`\
 https://nytimes.com/athletic/5996345/2024/12/15/jonathan-taylor-fumble-touchback-colts-broncos/
 

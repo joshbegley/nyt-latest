@@ -1,3 +1,11 @@
+**Colts' Jonathan Taylor drops ball before goal line erasing TD run vs. Broncos**\
+`The Colts running back wasn't the only player in Week 15 to drop the ball before the goal line to negate a touchdown.`\
+https://nytimes.com/athletic/5996345/2024/12/15/jonathan-taylor-fumble-touchback-colts-broncos/
+
+**Giants running away with No. 1 NFL Draft pick in Week 15**\
+`While we await the result of the Raiders' Monday night game, the Giants currently win the top pick in nearly one in two scenarios.`\
+https://nytimes.com/athletic/5996167/2024/12/15/top-draft-pick-nfl-giants-raiders/
+
 **Nick Chubb suffers broken foot in what could be final game of Browns career**\
 `If his time in Cleveland is ending, he would exit with the third-most rushing yards (6,802) and rushing touchdowns (51) in Browns history. `\
 https://nytimes.com/athletic/5996185/2024/12/15/nick-chubb-broken-foot/
