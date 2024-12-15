@@ -1,3 +1,11 @@
+**Martin: 'I'll continue to work and fight until I’m told otherwise'**\
+`Southampton head coach Russell Martin says he will &#8220;continue to work and fight&#8221; until he is &#8220;told otherwise&#8221; after Sunday&#8217;s 5-0 loss to Tottenham Hotspur.`\
+https://nytimes.com/athletic/5995933/2024/12/15/russell-martin-southampton-tottenham/
+
+**Lamar Jackson's 5 TDs launch Ravens past Giants 35-14: Takeaways**\
+`Tight end Mark Andrews sets Ravens franchise record for most touchdowns, breaking a tie with Jamal Lewis. `\
+https://nytimes.com/athletic/5995301/2024/12/15/ravens-giants-score-result-takeaways/
+
 **Man Gets 100 Years in Prison for His Role in ‘Mobile Mass Shooting’ in 2020**\
 `The shooting spree on Thanksgiving Day killed one person and injured several others in Nevada and Arizona.`\
 https://nytimes.com/2024/12/15/us/mobile-mass-shooting-sentencing.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/12/15/nyregion/nyc-congestion-pricing-cost.
 **Schools that withdraw from bowls could be penalized in future: AAC commissioner**\
 `Tim Pernetti said if a school has concern about safely fielding a team for a bowl game, it should not accept the invitation.`\
 https://nytimes.com/athletic/5995818/2024/12/15/marshall-army-louisiana-tech-independence-bowl/
-
-**Jury Awards Woman $34 Million for Wrongful Conviction**\
-`Kirstin Blaise Lobato sued the Las Vegas Metropolitan Police Department and two detectives after she spent nearly 16 years in prison for a murder she did not commit.`\
-https://nytimes.com/2024/12/15/us/kirstin-lobato-jury-award.html
-
-**Polly Mellen, Fashion’s Storied Cheerleader, Dies at 100**\
-`With photographers like Richard Avedon, Irving Penn, Bert Stern and others, the veteran editor created some of the most indelible images of modern fashion.`\
-https://nytimes.com/2024/12/15/style/polly-mellen-dead.html
 

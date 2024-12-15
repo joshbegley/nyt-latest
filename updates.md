@@ -1,3 +1,7 @@
+**Dolphins WR Grant DuBose in stable condition following head injury vs. Texans**\
+`DuBose took a shot to the head from Texans defender Calen Bullock in Sunday's third quarter.`\
+https://nytimes.com/athletic/5995820/2024/12/15/grant-dubose-dolphins-head-injury-stretchered-off/
+
 **Man Gets 100 Years in Prison for His Role in ‘Mobile Mass Shooting’ in 2020**\
 `The shooting spree on Thanksgiving Day killed one person and injured several others in Nevada and Arizona.`\
 https://nytimes.com/2024/12/15/us/mobile-mass-shooting-sentencing.html
