@@ -1,3 +1,15 @@
+**Dolphins WR Grant DuBose in stable condition following head injury vs. Texans**\
+`DuBose is in stable condition and is being taken to a local hospital for further evaluation.`\
+https://nytimes.com/athletic/5995820/2024/12/15/grant-dubose-dolphins-head-injury-stretchered-off/
+
+**Monday Briefing: South Korea’s Power Vacuum**\
+`Plus, how travel benefits us.`\
+https://nytimes.com/2024/12/15/briefing/south-korea-syria-travel.html
+
+**Titans bench QB Will Levis vs. Bengals after 3 INTs, lost fumble**\
+`Levis has 12 interceptions in 11 games this season after throwing three on Sunday.`\
+https://nytimes.com/athletic/5995828/2024/12/15/titans-will-levis-benched-mason-rudolph/
+
 **The Briefing: Southampton 0 Tottenham 5: Postecoglou respite, Martin humiliation and Levy out chants**\
 `Our writers analyse the key talking points from Tottenham's thrashing of bottom-of-the-table Southampton`\
 https://nytimes.com/athletic/5992030/2024/12/15/southampton-tottenham-analysis-postecoglou/
