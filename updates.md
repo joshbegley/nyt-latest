@@ -1,3 +1,7 @@
+**Live Q&A: Week 15 fantasy football start/sit chat with Jay Felicio, Sunday 12/15 at 11 a.m. ET**\
+`Submit your Week 15 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5992474/2024/12/15/live-qa-week-15-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-15-at-11-a-m-et/
+
 **When ‘The Lord of the Rings’ Gets the Anime Treatment**\
 `“The War of the Rohirrim” is the latest and most high-profile anime adaptation of a Western franchise to hit screens big and small.`\
 https://nytimes.com/2024/12/15/movies/the-lord-of-the-rings-behind-the-scenes.html
