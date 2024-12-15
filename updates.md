@@ -1,3 +1,7 @@
+**Linus Ullmark's best performances have turned Senators' season around**\
+`Ullmark has been playing his best hockey of the season as of late and the Senators have been, too. `\
+https://nytimes.com/athletic/5994614/2024/12/15/senators-penguins-linus-ullmark-goalie/
+
 **Leeds have a problem with early kick-offs - and it's starting to hurt them**\
 `A late goal rescued a point for Daniel Farke's side at Deepdale — but the 12:30 games continue to cause them problems`\
 https://nytimes.com/athletic/5993740/2024/12/15/leeds-early-kick-offs-championship-problem/
