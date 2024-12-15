@@ -1,3 +1,15 @@
+**Remembering Adam Johnson on an emotional night in Nottingham - 'a guy team-mates would all love'**\
+`Adam Johnson's family attended a ceremony to remember him and to officially retire his No 47 jersey`\
+https://nytimes.com/athletic/5994700/2024/12/15/adam-johnson-nottingham-tributes/
+
+**Odegaard 'tactical' substitutions are curious for an Arsenal team seeking creativity**\
+`Arsenal struggled to break down Everton and so it was surprising to see the captain replaced for tactical reasons for a second week running`\
+https://nytimes.com/athletic/5994103/2024/12/15/martin-odegaard-arsenal-substitutions/
+
+**What's your view of Gary O'Neil's sacking and who should replace him?**\
+`Who should take over at Wolves?`\
+https://nytimes.com/athletic/5995127/2024/12/15/whats-your-view-of-gary-oneils-sacking-and-who-should-replace-him/
+
 **Israel Strikes Military Sites in Syria, Monitor Says**\
 `The Israeli military hit weapons depots and air defenses, according to the Syrian Observatory for Human Rights. Israel has said it aims to keep military equipment out of the hands of extremists after rebels seized power a week ago.`\
 https://nytimes.com/2024/12/15/world/middleeast/israel-strikes-syria-military.html
