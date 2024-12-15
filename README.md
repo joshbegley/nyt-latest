@@ -1,3 +1,7 @@
+**Trump and His Picks Threaten More Lawsuits Over Critical Coverage**\
+`The small flurry of threatened defamation suits is the latest sign that the incoming Trump administration appears poised to do what it can to crack down on unfavorable media coverage.`\
+https://nytimes.com/2024/12/15/business/media/trump-defamation-lawsuit-abc-hegseth-cnn.html
+
 **The Pulse: Another first for college football**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5995336/2024/12/15/college-football-bowl-schedule-nfl-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995224/2024/12/15/cowboys-today-panthers-predictio
 **Lindsey Vonn, at historic stop for women's alpine, kicks off her World Cup return**\
 `This weekend in Colorado, Lindsey Vonn was back on a World Cup course, eyeing what's next. "Success is not just participating," she says.`\
 https://nytimes.com/athletic/5994836/2024/12/15/lindsey-vonn-skiing-comeback-beaver-creek-world-cup/
-
-**On ‘S.N.L.,’ Luigi Mangione Is Busting Out All Over**\
-`As Chris Rock hosts, the man charged in the UnitedHealthcare shooting dominates this week’s riffs on the news.`\
-https://nytimes.com/2024/12/15/arts/television/snl-luigi-mangione.html
 
