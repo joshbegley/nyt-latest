@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Three goalies is messy, but Jet Greaves isn't going away**\
+`"We don't want to have three goaltenders here. But, as we've talked about before, Jet deserves to be here," said coach Dean Evason.`\
+https://nytimes.com/athletic/5995169/2024/12/15/blue-jackets-nhl-goalie-jet-greaves/
+
 **Ask James and Jonas your questions for the next Leaf Report podcast**\
 `The Maple Leafs are into a busy section of their schedule, with four games in six nights this coming week in Dallas and Buffalo and then at home against Buffalo and the Islanders to go into the Christmas break.`\
 https://nytimes.com/athletic/5995589/2024/12/15/ask-james-and-jonas-your-questions-for-the-next-leaf-report-podcast-11/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995336/2024/12/15/college-football-bowl-schedule-n
 **Lowetide: Why can't Oilers' top prospects score goals in the AHL?**\
 `The performance of Edmonton's top pro prospects with the Bakersfield Condors is of concern for two reasons.`\
 https://nytimes.com/athletic/5993803/2024/12/15/oilers-prospects-ahl-goals/
-
-**Rashford, Garnacho dropped for Manchester derby; Amorim explains selection**\
-`Both players had featured in all 15 of United's previous Premier League games so far this season`\
-https://nytimes.com/athletic/5995281/2024/12/15/rashford-garnacho-manchester-united-dropped/
 
