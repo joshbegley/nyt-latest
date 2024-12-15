@@ -1,5 +1,5 @@
-**Pastrnak is the Bruins' offensive everything**\
-`Pastrnak exploded for a season-high four points against the Canucks, including three assists.`\
+**David Pastrnak is the Bruins' offensive everything**\
+`Pastrnak exploded for a season-high 4 points against the Canucks, including three assists.`\
 https://nytimes.com/athletic/5994978/2024/12/15/bruins-david-pastrnak-offense/
 
 **Canucks continue to struggle at home: 3 takeaways from loss to Bruins**\
