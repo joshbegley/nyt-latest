@@ -1,3 +1,7 @@
+**The Briefing: Southampton 0 Tottenham 5: Postecoglou respite, Martin humiliation and Levy out chants**\
+`Our writers analyse the key talking points from Tottenham's thrashing of bottom-of-the-table Southampton`\
+https://nytimes.com/athletic/5992030/2024/12/15/southampton-tottenham-analysis-postecoglou/
+
 **See How Much NYC's Congestion Pricing Plan Would Cost You**\
 `A new toll on drivers hopes to reduce traffic in one of the world’s most congested cities. How would it work?`\
 https://nytimes.com/interactive/2024/12/15/nyregion/nyc-congestion-pricing-cost.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995660/2024/12/15/gio-reyna-borussia-dortmund-goal
 **Jamie Foxx Recovering After Being Hit With a Glass in the Mouth**\
 `Foxx was celebrating his birthday at a restaurant on Friday when someone from another table threw a glass, a representative for the entertainer said.`\
 https://nytimes.com/2024/12/15/arts/jamie-foxx-assault-beverly-hills.html
-
-**ATP Next Gen Finals: Favorite Arthur Fils faces Mensik and Fonseca in Jeddah draw**\
-`The best 20-and-under men's players in the world meet in Jeddah, Saudi Arabia for the final event of the 2024 tennis season.`\
-https://nytimes.com/athletic/5995511/2024/12/15/atp-next-gen-finals-draw-schedule-results/
 
