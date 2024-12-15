@@ -1,3 +1,7 @@
+**Bucks feed off 'winning plays' to down Hawks, advance to NBA Cup final**\
+`"We never show film after a game, and we showed the winning plays today," Doc Rivers said.`\
+https://nytimes.com/athletic/5994753/2024/12/14/bucks-winning-plays-nba-cup-semifinal-hawks/
+
 **Maple Leafs report cards: Defensive errors prove costly in Detroit**\
 `The Leafs didn’t get the goal support to drag themselves out of the hole they dug for themselves defensively in a 4-2 loss to the Red Wings.`\
 https://nytimes.com/athletic/5994775/2024/12/14/maple-leafs-red-wings-grades-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5994526/2024/12/14/wild-flyers-mats-zuccarello-jona
 **Rosenthal: What I'm hearing about the Mariners' willingness to trade Luis Castillo and more**\
 `Plus A's-Rays trade reaction, Jack Flaherty's free-agency options and more from around the league.`\
 https://nytimes.com/athletic/5994597/2024/12/14/mariners-luis-castillo-trade-mlb-offseason-notes/
-
-**Bucks top Hawks to advance to NBA Cup final as Antetokounmpo dominates**\
-`Giannis Antetokounmpo finished with 32 points as the Bucks beat the Hawks 110-102 in Las Vegas.`\
-https://nytimes.com/athletic/5994621/2024/12/14/bucks-hawks-nba-cup-semifinal-result-score/
 
