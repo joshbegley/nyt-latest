@@ -1,3 +1,7 @@
+**Schools that withdraw from bowls could be penalized in future: AAC commissioner**\
+`Tim Pernetti said if a school has concern about safely fielding a team for a bowl game, it should not accept the invitation.`\
+https://nytimes.com/athletic/5995818/2024/12/15/marshall-army-louisiana-tech-independence-bowl/
+
 **Jury Awards Woman $34 Million for Wrongful Conviction**\
 `Kirstin Blaise Lobato sued the Las Vegas Metropolitan Police Department and two detectives after she spent nearly 16 years in prison for a murder she did not commit.`\
 https://nytimes.com/2024/12/15/us/kirstin-lobato-jury-award.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995511/2024/12/15/atp-next-gen-finals-draw-schedul
 **The Briefing: Man City 1 Man Utd 2 - Amad's genius, Nunes' errors and Amorim's set-piece problem**\
 `Analysis of the Manchester derby between City and United`\
 https://nytimes.com/athletic/5992015/2024/12/15/man-city-man-utd-highlights-goals/
-
-**Graham Says Hegseth Plans to Release Accuser From Confidential Agreement**\
-`Senator Lindsey Graham said that Pete Hegseth, President-elect Donald Trump’s defense secretary pick, promised to release his accuser from a settlement that his lawyer has said was already breached.`\
-https://nytimes.com/2024/12/15/us/pete-hegseth-confidentiality-agreement-lindsey-graham.html
 
