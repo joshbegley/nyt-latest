@@ -1,3 +1,7 @@
+**'It’s a rivalry': Why beating the Golden Knights means a little more to the Oilers**\
+`There are wins and then there are wins that mean that much more, like Edmonton's 6-3 victory over Vegas.`\
+https://nytimes.com/athletic/5994733/2024/12/14/oilers-golden-knights-nhl-rivalry/
+
 **Corrections: Dec. 14, 2024**\
 `Corrections that appeared in print on Saturday, Dec. 14, 2024.`\
 https://nytimes.com/2024/12/14/pageoneplus/corrections-dec-14-2024.html
