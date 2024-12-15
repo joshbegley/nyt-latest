@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Defensive errors prove costly in Detroit**\
+`The Leafs didn’t get the goal support to drag themselves out of the hole they dug for themselves defensively in a 4-2 loss to the Red Wings.`\
+https://nytimes.com/athletic/5994775/2024/12/14/maple-leafs-red-wings-grades-analysis/
+
 **Corrections: Dec. 15, 2024**\
 `Corrections that appeared in print on Sunday, Dec. 15, 2024.`\
 https://nytimes.com/2024/12/14/pageoneplus/corrections-dec-15-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5994597/2024/12/14/mariners-luis-castillo-trade-mlb
 **Bucks top Hawks to advance to NBA Cup final as Antetokounmpo dominates**\
 `Giannis Antetokounmpo finished with 32 points as the Bucks beat the Hawks 110-102 in Las Vegas.`\
 https://nytimes.com/athletic/5994621/2024/12/14/bucks-hawks-nba-cup-semifinal-result-score/
-
-**Jamie Drysdale, Emil Andrae and the 'surfing' Flyers defensemen**\
-`The Flyers blue line is crowded now that their defensemen are healthy again, and Drysdale's play has been more in focus than others.`\
-https://nytimes.com/athletic/5994454/2024/12/14/flyers-defensemen-jamie-drysdale-emil-andrae/
 

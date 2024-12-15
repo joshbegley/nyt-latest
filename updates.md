@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Defensive errors prove costly in Detroit**\
+`The Leafs didn’t get the goal support to drag themselves out of the hole they dug for themselves defensively in a 4-2 loss to the Red Wings.`\
+https://nytimes.com/athletic/5994775/2024/12/14/maple-leafs-red-wings-grades-analysis/
+
 **Corrections: Dec. 15, 2024**\
 `Corrections that appeared in print on Sunday, Dec. 15, 2024.`\
 https://nytimes.com/2024/12/14/pageoneplus/corrections-dec-15-2024.html
