@@ -1,3 +1,7 @@
+**NFL Week 15 takeaways: Are Chiefs back on track? Can Commanders get right for the playoffs?**\
+`Plus, where is the best landing spot for next year’s rookie quarterbacks?`\
+https://nytimes.com/athletic/5996041/2024/12/15/nfl-week-15-scores-takeaways-chiefs-commanders-playoffs/
+
 **Colonel Found Guilty of Sexual Harassment in Trial Seen as a Milestone**\
 `The conviction is considered one of the first of its kind since Congress required the military to change how its legal system addresses sexual assault and harassment.`\
 https://nytimes.com/2024/12/15/us/herman-west-guilty-military-sexual-harassment.html

@@ -1,3 +1,7 @@
+**NFL Week 15 takeaways: Are Chiefs back on track? Can Commanders get right for the playoffs?**\
+`Plus, where is the best landing spot for next year’s rookie quarterbacks?`\
+https://nytimes.com/athletic/5996041/2024/12/15/nfl-week-15-scores-takeaways-chiefs-commanders-playoffs/
+
 **Colonel Found Guilty of Sexual Harassment in Trial Seen as a Milestone**\
 `The conviction is considered one of the first of its kind since Congress required the military to change how its legal system addresses sexual assault and harassment.`\
 https://nytimes.com/2024/12/15/us/herman-west-guilty-military-sexual-harassment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/weather/weather-ice-forecast-pa-ny-nj-ct.html
 **Bengals keep playoff hopes alive with 37-27 win over Titans: Takeaways**\
 `Joe Burrow's three passing touchdowns overcame 10 combined turnovers and 26 penalties between the Bengals and Titans.`\
 https://nytimes.com/athletic/5995305/2024/12/15/bengals-titans-score-result-takeaways/
-
-**Cowboys dominate Panthers, 30-14, to keep slim playoff hopes alive: Takeaways**\
-`Dallas dominated in all three phases against Carolina on Sunday for its third win in four weeks. `\
-https://nytimes.com/athletic/5995285/2024/12/15/cowboys-panthers-score-result-takeaways/
 
