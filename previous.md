@@ -1,3 +1,11 @@
+**NFL Week 15 inactives and fantasy tips: Breece Hall, Tony Pollard questionable**\
+`Who's in and who's out for Week 15? Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5992992/2024/12/15/nfl-week-15-inactives-fantasy-tips/
+
+**Google’s Sundar Pichai on Antitrust, Trump and A.I.**\
+`Google’s chief executive spoke with Andrew Ross Sorkin at the DealBook Summit`\
+https://nytimes.com/2024/12/15/business/dealbook/sundar-pichai-dealbook.html
+
 **A Trip to New York**\
 `Expert advice to make the most of a New York City vacation.`\
 https://nytimes.com/2024/12/15/briefing/a-trip-to-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/15/opinion/trump-biden-legacy.html
 **Israel Strikes Military Sites in Syria, Monitor Says**\
 `The Israeli military hit weapons depots and air defenses, according to the Syrian Observatory for Human Rights. Israel has said it aims to keep military equipment out of the hands of extremists after rebels seized power a week ago.`\
 https://nytimes.com/2024/12/15/world/middleeast/israel-strikes-syria-military.html
-
-**Ben Johnson or bust? Evaluating Caleb Williams? Bears mailbag, plus Week 15 picks**\
-`The Bears have been brutal to start games. Maybe someone like Ben Johnson would help fix that. Mailbag and our picks for MNF in Minnesota.`\
-https://nytimes.com/athletic/5993136/2024/12/15/bears-mailbag-ben-johnson-caleb-williams/
-
-**With the Kyle Tucker trade, the Cubs are back in the mix: ‘About time’**\
-`Tucker, one of baseball's most underrated stars, joins a Cubs team loaded with prospects and hungry to get back into October.`\
-https://nytimes.com/athletic/5994686/2024/12/15/chicago-cubs-kyle-tucker-trade-playoff-potential/
 

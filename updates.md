@@ -1,3 +1,11 @@
+**NFL Week 15 inactives and fantasy tips: Breece Hall, Tony Pollard questionable**\
+`Who's in and who's out for Week 15? Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/5992992/2024/12/15/nfl-week-15-inactives-fantasy-tips/
+
+**Google’s Sundar Pichai on Antitrust, Trump and A.I.**\
+`Google’s chief executive spoke with Andrew Ross Sorkin at the DealBook Summit`\
+https://nytimes.com/2024/12/15/business/dealbook/sundar-pichai-dealbook.html
+
 **A Trip to New York**\
 `Expert advice to make the most of a New York City vacation.`\
 https://nytimes.com/2024/12/15/briefing/a-trip-to-new-york.html
