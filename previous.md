@@ -1,3 +1,11 @@
+**Leeds have a problem with early kick-offs - and it's starting to hurt them**\
+`A late goal rescued a point for Daniel Farke's side at Deepdale — but the 12:30 games continue to cause them problems`\
+https://nytimes.com/athletic/5993740/2024/12/15/leeds-early-kick-offs-championship-problem/
+
+**Linus Ullmark's best performances have turned the Senators' season around**\
+`Ullmark has been playing his best hockey of the season as of late and the Senators have been, too. `\
+https://nytimes.com/athletic/5994614/2024/12/15/senators-penguins-linus-ullmark-goalie/
+
 **Ange Postecoglou and Russell Martin should be less tactically stubborn - but not today**\
 `Critics won't like it but this evening it makes sense for Spurs to press more heavily than ever, and for Southampton to play out even more `\
 https://nytimes.com/athletic/5989660/2024/12/15/ange-postecoglou-and-russell-martin-tactics/
@@ -26,15 +34,7 @@ https://nytimes.com/2024/12/15/world/africa/africa-burkina-faso-militia-violence
 `In a society used to quiet consensus-building, Tokyo has made bold changes to its defense policy. “Did I contribute to that?” Mr. Emanuel asked. “Uh, yeah.”`\
 https://nytimes.com/2024/12/15/world/asia/rahm-emanuel-ambassador-japan.html
 
-**Yohe's 10 observations: Penguins lose in overtime and lose Marcus Pettersson, too**\
-`The Penguins lost 3-2 in overtime against the Senators on Saturday and may have lost Pettersson to injury for a while. `\
+**Yohe's 10 observations: Penguins lose in OT and lose Marcus Pettersson, too**\
+`Pittsburgh showed plenty of fortitude against Ottawa, and earned a point in a building where they often struggle.`\
 https://nytimes.com/athletic/5991418/2024/12/15/penguins-marcus-pettersson-injury/
-
-**Man City vs Man United: Preview, odds, prediction for latest Manchester derby**\
-`Manchester City continue to struggle to get wins, but local rivals Manchester United aren't playing much better. Will one get a big victory?`\
-https://nytimes.com/athletic/5989854/2024/12/15/manchester-city-united-derby-preview-odds-prediction/
-
-**A Christmas Gnome Tradition, More than 1,000-Strong**\
-`The writer Andrew Solomon recounts his enduring love for the cheerful little heroes of Swedish folklore, handed down from his late mother.`\
-https://nytimes.com/2024/12/15/style/christmas-gnome-family-tradition.html
 

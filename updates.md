@@ -1,3 +1,15 @@
+**Leeds have a problem with early kick-offs - and it's starting to hurt them**\
+`A late goal rescued a point for Daniel Farke's side at Deepdale — but the 12:30 games continue to cause them problems`\
+https://nytimes.com/athletic/5993740/2024/12/15/leeds-early-kick-offs-championship-problem/
+
+**Linus Ullmark's best performances have turned the Senators' season around**\
+`Ullmark has been playing his best hockey of the season as of late and the Senators have been, too. `\
+https://nytimes.com/athletic/5994614/2024/12/15/senators-penguins-linus-ullmark-goalie/
+
+**Yohe's 10 observations: Penguins lose in OT and lose Marcus Pettersson, too**\
+`Pittsburgh showed plenty of fortitude against Ottawa, and earned a point in a building where they often struggle.`\
+https://nytimes.com/athletic/5991418/2024/12/15/penguins-marcus-pettersson-injury/
+
 **Ange Postecoglou and Russell Martin should be less tactically stubborn - but not today**\
 `Critics won't like it but this evening it makes sense for Spurs to press more heavily than ever, and for Southampton to play out even more `\
 https://nytimes.com/athletic/5989660/2024/12/15/ange-postecoglou-and-russell-martin-tactics/
