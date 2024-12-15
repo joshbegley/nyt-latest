@@ -34,7 +34,7 @@ https://nytimes.com/2024/12/15/world/africa/africa-burkina-faso-militia-violence
 `In a society used to quiet consensus-building, Tokyo has made bold changes to its defense policy. “Did I contribute to that?” Mr. Emanuel asked. “Uh, yeah.”`\
 https://nytimes.com/2024/12/15/world/asia/rahm-emanuel-ambassador-japan.html
 
-**Yohe's 10 observations: Penguins lose in overtime and lose Marcus Pettersson, too**\
-`The Penguins lost 3-2 in overtime against the Senators on Saturday and may have lost Pettersson to injury for a while. `\
+**Yohe's 10 observations: Penguins lose in OT and lose Marcus Pettersson, too**\
+`Pittsburgh showed plenty of fortitude against Ottawa, and earned a point in a building where they often struggle.`\
 https://nytimes.com/athletic/5991418/2024/12/15/penguins-marcus-pettersson-injury/
 
