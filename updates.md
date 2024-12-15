@@ -1,3 +1,7 @@
+**David Pastrnak is the Bruins' offensive everything**\
+`Pastrnak exploded for a season-high 4 points against the Canucks, including three assists.`\
+https://nytimes.com/athletic/5994978/2024/12/15/bruins-david-pastrnak-offense/
+
 **This Unreadable Russian Novel Is Xi Jinping’s Spiritual Guide**\
 `The Chinese leader is digging into the language of revolution, and a radical Russian novel, as he prepares for battle with Donald Trump.`\
 https://nytimes.com/2024/12/15/opinion/china-brics-xi-jinping-trump.html
