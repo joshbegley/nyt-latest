@@ -1,3 +1,7 @@
+**Reyna scores first club goal in 583 days in Borussia Dortmund draw**\
+`Gio Reyna scored his first club goal in 583 days during Borussia Dortmund&#8217;s 1-1 draw against Hoffenheim on Sunday.`\
+https://nytimes.com/athletic/5995660/2024/12/15/gio-reyna-borussia-dortmund-goal/
+
 **Jamie Foxx Recovering After Being Hit With a Glass in the Mouth**\
 `Foxx was celebrating his birthday at a restaurant on Friday when someone from another table threw a glass, a representative for the entertainer said.`\
 https://nytimes.com/2024/12/15/arts/jamie-foxx-assault-beverly-hills.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/nyregion/ingrid-lewis-martin-resigns-eric-adams.h
 **Plane with banner circles MetLife Stadium, demands Mara fires 'everyone'**\
 `The Giants are currently on an eight game losing streak, sitting at 2-11 overall and 0-7 at home.`\
 https://nytimes.com/athletic/5995415/2024/12/15/ny-giants-plane-banner-john-mara-metlife/
-
-**Who is Vitor Pereira? Explosive, intense and desperate for a Premier League chance**\
-`The man Wolves intend to appoint as their new manager has a wealth of experience and things are unlikely to be dull with him in charge`\
-https://nytimes.com/athletic/5995264/2024/12/15/vitor-pereira-wolves/
 
