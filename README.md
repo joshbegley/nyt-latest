@@ -1,3 +1,11 @@
+**Ingrid Lewis-Martin, Top Adviser to Mayor Adams, Resigns**\
+`The departure of Ms. Lewis-Martin, whose phone was seized by investigators in September, is the latest in a string of resignations among the mayor’s inner circle.`\
+https://nytimes.com/2024/12/15/nyregion/ingrid-lewis-martin-resigns-eric-adams.html
+
+**Plane with banner circles MetLife Stadium, demands Mara fire 'everyone'**\
+`The Giants are currently on an eight game losing streak, sitting at 2-11 overall and 0-7 at home.`\
+https://nytimes.com/athletic/5995415/2024/12/15/ny-giants-plane-banner-john-mara-metlife/
+
 **Who is Vitor Pereira? Explosive, intense and desperate for a Premier League chance**\
 `The man Wolves intend to appoint as their new manager has a wealth of experience and things are unlikely to be dull with him in charge`\
 https://nytimes.com/athletic/5995264/2024/12/15/vitor-pereira-wolves/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/15/dining/perfect-broiled-salmon-beef-chow-fun-and-m
 **Israel’s Military Strikes Northern Gaza After Days of Deadly Bombardment**\
 `Israel’s military said it carried out strikes and raids against Hamas targets in northern Gaza on Sunday. The actions followed days of deadly attacks across the territory.`\
 https://nytimes.com/2024/12/15/world/middleeast/15-gaza-strikes-news.html
-
-**Live Q&A: Week 15 fantasy football start/sit chat with Jay Felicio, Sunday 12/15 at 11 a.m. ET**\
-`Submit your Week 15 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5992474/2024/12/15/live-qa-week-15-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-15-at-11-a-m-et/
-
-**When ‘The Lord of the Rings’ Gets the Anime Treatment**\
-`“The War of the Rohirrim” is the latest and most high-profile anime adaptation of a Western franchise to hit screens big and small.`\
-https://nytimes.com/2024/12/15/movies/the-lord-of-the-rings-behind-the-scenes.html
 
