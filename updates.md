@@ -1,3 +1,7 @@
+**Ask James and Jonas your questions for the next Leaf Report podcast**\
+`The Maple Leafs are into a busy section of their schedule, with four games in six nights this coming week in Dallas and Buffalo and then at home against Buffalo and the Islanders to go into the Christmas break.`\
+https://nytimes.com/athletic/5995589/2024/12/15/ask-james-and-jonas-your-questions-for-the-next-leaf-report-podcast-11/
+
 **Plane with banner circles MetLife Stadium, demands Mara fires 'everyone'**\
 `The Giants are currently on an eight game losing streak, sitting at 2-11 overall and 0-7 at home.`\
 https://nytimes.com/athletic/5995415/2024/12/15/ny-giants-plane-banner-john-mara-metlife/

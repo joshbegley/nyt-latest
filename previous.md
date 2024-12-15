@@ -1,3 +1,7 @@
+**Ask James and Jonas your questions for the next Leaf Report podcast**\
+`The Maple Leafs are into a busy section of their schedule, with four games in six nights this coming week in Dallas and Buffalo and then at home against Buffalo and the Islanders to go into the Christmas break.`\
+https://nytimes.com/athletic/5995589/2024/12/15/ask-james-and-jonas-your-questions-for-the-next-leaf-report-podcast-11/
+
 **Hurzeler criticises referee's 'unbelievable decision' in Brighton defeat to Palace**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler has criticised Michael Oliver for an &#8220;unbelievable decision&#8221; in allowing the game to continue against Crystal Palace after the referee got in the way of Carlos Baleba.`\
 https://nytimes.com/athletic/5995444/2024/12/15/brighton-palace-michael-oliver-referee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993803/2024/12/15/oilers-prospects-ahl-goals/
 **Rashford, Garnacho dropped for Manchester derby; Amorim explains selection**\
 `Both players had featured in all 15 of United's previous Premier League games so far this season`\
 https://nytimes.com/athletic/5995281/2024/12/15/rashford-garnacho-manchester-united-dropped/
-
-**Perfect Broiled Salmon, Beef Chow Fun and Mushroom Smash Burgers**\
-`A list of excellent recipes to cook this week (no need to check it twice).`\
-https://nytimes.com/2024/12/15/dining/perfect-broiled-salmon-beef-chow-fun-and-mushroom-smash-burgers.html
 
