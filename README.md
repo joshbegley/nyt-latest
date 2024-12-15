@@ -1,3 +1,7 @@
+**Israel Shutters Its Embassy in Ireland, Citing ‘Anti-Israel Policies’**\
+`Amid mounting international criticism of its military conduct in Gaza, Israel says it will deepen ties with countries it considers friendly toward it.`\
+https://nytimes.com/2024/12/15/world/middleeast/israel-closes-embassy-ireland.html
+
 **Trump and His Picks Threaten More Lawsuits Over Critical Coverage**\
 `The small flurry of threatened defamation suits is the latest sign that the incoming Trump administration appears poised to do what it can to crack down on unfavorable media coverage.`\
 https://nytimes.com/2024/12/15/business/media/trump-defamation-lawsuit-abc-hegseth-cnn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/movies/the-lord-of-the-rings-behind-the-scenes.ht
 **Cowboys Today: Predictions vs. Panthers, franchise's worth and Rico Dowdle's opportunity**\
 `The Panthers are a rare favorite, but have the NFL's worst rushing defense. Can Rico Dowdle be the difference-maker?`\
 https://nytimes.com/athletic/5995224/2024/12/15/cowboys-today-panthers-predictions-rico-dowdle/
-
-**Lindsey Vonn, at historic stop for women's alpine, kicks off her World Cup return**\
-`This weekend in Colorado, Lindsey Vonn was back on a World Cup course, eyeing what's next. "Success is not just participating," she says.`\
-https://nytimes.com/athletic/5994836/2024/12/15/lindsey-vonn-skiing-comeback-beaver-creek-world-cup/
 
