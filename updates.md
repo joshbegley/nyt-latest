@@ -1,3 +1,7 @@
+**Trump and His Picks Threaten More Lawsuits Over Critical Coverage**\
+`The small flurry of threatened defamation suits is the latest sign that the incoming Trump administration appears poised to do what it can to crack down on unfavorable media coverage.`\
+https://nytimes.com/2024/12/15/business/media/trump-defamation-lawsuit-abc-hegseth-cnn.html
+
 **The Pulse: Another first for college football**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5995336/2024/12/15/college-football-bowl-schedule-nfl-the-pulse/
