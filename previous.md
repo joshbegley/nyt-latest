@@ -1,3 +1,7 @@
+**A Trip to New York**\
+`Expert advice to make the most of a New York City vacation.`\
+https://nytimes.com/2024/12/15/briefing/a-trip-to-new-york.html
+
 **Remembering Adam Johnson on an emotional night in Nottingham - 'a guy team-mates would all love'**\
 `Adam Johnson's family attended a ceremony to remember him and to officially retire his No 47 jersey`\
 https://nytimes.com/athletic/5994700/2024/12/15/adam-johnson-nottingham-tributes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993136/2024/12/15/bears-mailbag-ben-johnson-caleb-
 **With the Kyle Tucker trade, the Cubs are back in the mix: ‘About time’**\
 `Tucker, one of baseball's most underrated stars, joins a Cubs team loaded with prospects and hungry to get back into October.`\
 https://nytimes.com/athletic/5994686/2024/12/15/chicago-cubs-kyle-tucker-trade-playoff-potential/
-
-**‘I can’t believe it came to this’: His Lions fandom is his identity. He almost lost it**\
-`His season tickets were revoked after a viral incident with the Packers' coach. Why Fahad Yousif will root for Detroit "no matter what."`\
-https://nytimes.com/athletic/5994787/2024/12/15/detroit-lions-fans-tickets-revoked-matt-lafleur/
 

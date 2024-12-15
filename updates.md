@@ -1,3 +1,7 @@
+**A Trip to New York**\
+`Expert advice to make the most of a New York City vacation.`\
+https://nytimes.com/2024/12/15/briefing/a-trip-to-new-york.html
+
 **‘I can’t believe it came to this’: His Lions fandom is his identity. He almost lost it**\
 `His season tickets were revoked after a viral incident with the Packers' coach. Why Fahad Yousif will root for Detroit "no matter what."`\
 https://nytimes.com/athletic/5994787/2024/12/15/detroit-lions-fans-tickets-revoked-matt-lafleur/
