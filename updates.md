@@ -1,3 +1,7 @@
+**Who is Vitor Pereira? Explosive, intense and desperate for a Premier League chance**\
+`The man Wolves intend to appoint as their new manager has a wealth of experience and things are unlikely to be dull with him in charge`\
+https://nytimes.com/athletic/5995264/2024/12/15/vitor-pereira-wolves/
+
 **Israel Shutters Its Embassy in Ireland, Citing ‘Anti-Israel Policies’**\
 `Amid mounting international criticism of its military conduct in Gaza, Israel says it will deepen ties with countries it considers friendly toward it.`\
 https://nytimes.com/2024/12/15/world/middleeast/israel-closes-embassy-ireland.html
