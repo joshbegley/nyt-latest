@@ -1,7 +1,3 @@
-**Carlos Watson, Ozy Media Co-Founder, Is Sentenced to Almost 10 Years in Prison**\
-`A federal jury in July found Mr. Watson, who started the digital media company in 2013, guilty of trying to defraud investors and lenders.`\
-https://nytimes.com/2024/12/16/business/media/carlos-watson-ozy-media-sentenced.html
-
 **Wake Forest coach Dave Clawson stepping down: Who will lead Deacons?**\
 `The Demon Deacons just wrapped their second consecutive 4-8 season.`\
 https://nytimes.com/athletic/5999248/2024/12/16/wake-forest-coach-dave-clawson-retiring/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/16/opinion/artificial-intelligence-reasoning-abducti
 **New York Won’t Be Burned Twice by Mayor Adams’s Deceit**\
 `The council should make campaign finance reform a priority, even if it has to override a mayoral veto.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/eric-adams-campaign-finance-nyc
+
+**The school, founded in 1978, serves grades K-12 and relies on the Bible.**\
+`By Ernesto Londoño`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/the-school-founded-in-1978-serves-grades-k-12-and-relies-on-the-bible
 

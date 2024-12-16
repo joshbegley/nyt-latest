@@ -1,3 +1,11 @@
+**Carlos Watson, Ozy Media Co-Founder, Is Sentenced to Almost 10 Years in Prison**\
+`A federal jury in July found Mr. Watson, who started the digital media company in 2013, guilty of trying to defraud investors and lenders.`\
+https://nytimes.com/2024/12/16/business/media/carlos-watson-ozy-media-sentenced.html
+
+**Wake Forest coach Dave Clawson stepping down: Who will lead Deacons?**\
+`The Demon Deacons just wrapped their second consecutive 4-8 season.`\
+https://nytimes.com/athletic/5999248/2024/12/16/wake-forest-coach-dave-clawson-retiring/
+
 **TikTok Asks Supreme Court to Block Law Banning Its U.S. Operations**\
 `The company and its Chinese parent invoked the First Amendment in urging the justices to step in before a Jan. 19 deadline to sell or be shut down.`\
 https://nytimes.com/2024/12/16/us/politics/tiktok-ban-supreme-court-first-amendment.html
