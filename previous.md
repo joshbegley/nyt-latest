@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5996911/2024/12/15/patriots-jerod-mayo-bad-team-getting-worse/
 
 **Commanders went from marching past Saints to creating questions in chaotic finish**\
-`Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a two-point conversion with no time remaining.`\
+`Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a 2-point conversion with no time remaining.`\
 https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playoff-picture/
 
 **How much worse could this get for the Rangers?**\
@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/15/pageoneplus/quote-of-the-day-blunt-us-ambassador-
 https://nytimes.com/athletic/5996533/2024/12/15/davante-adams-jets-jaguars-contract-situation/
 
 **Penn State backup QB Beau Pribula to enter transfer portal**\
-`STATE COLLEGE, Pa.`\
+`Pribula, who won't be with PSU this postseason, should become one of the most intriguing quarterbacks available in this transfer window.`\
 https://nytimes.com/athletic/5996969/2024/12/15/penn-state-beau-pribula-transfer-portal/
 
 **Early opportunity backfires in Blue Jackets' rough loss to Hurricanes**\

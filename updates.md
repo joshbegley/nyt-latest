@@ -1,3 +1,11 @@
+**Commanders went from marching past Saints to creating questions in chaotic finish**\
+`Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a 2-point conversion with no time remaining.`\
+https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playoff-picture/
+
+**Penn State backup QB Beau Pribula to enter transfer portal**\
+`Pribula, who won't be with PSU this postseason, should become one of the most intriguing quarterbacks available in this transfer window.`\
+https://nytimes.com/athletic/5996969/2024/12/15/penn-state-beau-pribula-transfer-portal/
+
 **Jerod Mayo wanted to see progress, but the Patriots are a bad team that's getting worse**\
 `After a 30-17 loss to the Cardinals that wasn't as close as the score would indicate, the Patriots are looking forward to the offseason. `\
 https://nytimes.com/athletic/5996911/2024/12/15/patriots-jerod-mayo-bad-team-getting-worse/
