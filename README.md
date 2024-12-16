@@ -1,3 +1,7 @@
+**Leagues Cup changes afoot in 2025 says Liga MX chief, scrapping midseason break**\
+`MLS and Mexican teams will battle for a revamped Leagues Cup next season, Liga MX president Mikel Arriola says.`\
+https://nytimes.com/athletic/5997443/2024/12/16/leagues-cup-mls-ligamx/
+
 **Fantasy football Week 15 takeaways: Brian Thomas Jr. is a beast; Rico Dowdle is climbing the 2025 ranks**\
 `Among his Week 15 takes, Michael Salfino thinks rookie Brian Thomas Jr. is going to be no worse than a top 15 receiver pick in 2025 drafts.`\
 https://nytimes.com/athletic/5996370/2024/12/16/fantasy-football-week-15-takeaways-brian-thomas-jr-is-a-beast-rico-dowdle-is-climbing-the-2025-ranks/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5994527/2024/12/16/liverpools-draw-fulham-title-hop
 **Everton's off-field future is becoming clearer, so what next on the pitch?**\
 `The 0-0 draw at Arsenal was a positive result but a much wider questions remains: what do Everton want to be as a football team?`\
 https://nytimes.com/athletic/5994245/2024/12/16/everton-takeover-dyche-football/
-
-**‘Dune: Prophecy’ Season 1, Episode 5 Recap: Mother Inferior**\
-`A sister with history shows up at the emperor’s palace. Not everyone is pleased. Nor should everyone be.`\
-https://nytimes.com/2024/12/16/arts/television/dune-prophecy-recap-season-1-episode-5.html
 
