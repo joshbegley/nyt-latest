@@ -1,3 +1,11 @@
+**Cam Fowler's time in Anaheim shouldn't be defined by unfair comparisons and expectations**\
+`No, Fowler didn't become the next Scott Niedermayer or a defensive game-changer. But don't denigrate his career.`\
+https://nytimes.com/athletic/5997190/2024/12/16/cam-fowler-ducks-trade-career/
+
+**Al-Assad Wanted to Stay in Syria and Fight, Statement Says**\
+`The country’s former leader, Bashar al-Assad, appeared to give his first account of his flight from Syria in a statement posted to a Facebook account used by his presidency.`\
+https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-assad-rebels-news
+
 **A Constitutional Convention? Some Democrats Fear It’s Coming.**\
 `Some Republicans have said that a constitutional convention is overdue. Many Democratic-led states have rescinded their long-ago calls for one, and California will soon consider whether to do the same.`\
 https://nytimes.com/2024/12/16/us/a-constitutional-convention-some-democrats-fear-its-coming.html

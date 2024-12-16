@@ -1,3 +1,7 @@
+**Cam Fowler's time in Anaheim shouldn't be defined by unfair comparisons and expectations**\
+`No, Fowler didn't become the next Scott Niedermayer or a defensive game-changer. But don't denigrate his career.`\
+https://nytimes.com/athletic/5997190/2024/12/16/cam-fowler-ducks-trade-career/
+
 **A Constitutional Convention? Some Democrats Fear It’s Coming.**\
 `Some Republicans have said that a constitutional convention is overdue. Many Democratic-led states have rescinded their long-ago calls for one, and California will soon consider whether to do the same.`\
 https://nytimes.com/2024/12/16/us/a-constitutional-convention-some-democrats-fear-its-coming.html
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/5997874/2024/12/16/spanish-football-federation-pres
 
 **Al-Assad Wanted to Stay in Syria and Fight, Statement Says**\
 `The country’s former leader, Bashar al-Assad, appeared to give his first account of his flight from Syria in a statement posted to a Facebook account used by his presidency.`\
-https://nytimes.com/2024/12/16/world/middleeast/syria-assad-rebels-news.html
+https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-assad-rebels-news
 
 **Syria’s New Leadership Takes Early Steps Toward Legitimacy**\
 `A little over a week after taking power, the rebel alliance that led the overthrow of the Assad regime has begun to receive diplomats in the Syrian capital, Damascus.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/business/dealbook/trump-tariffs-inevitable.html
 **Austrian footballer suffers fractured skull after attack in Vienna city centre**\
 `Austria international footballer Guido Burgstaller is recovering after suffering a fractured skull in an attack in Vienna over the weekend, his club have confirmed.`\
 https://nytimes.com/athletic/5998018/2024/12/16/guido-burgstaller-attack-rapid-vienna/
-
-**In a lost Raiders' season, Monday night serves as showcase for strong rookie class**\
-`Tight end Brock Bowers needs 19 catches in his final four games to break Puka Nacua's rookie receptions record of 105.`\
-https://nytimes.com/athletic/5994848/2024/12/16/raiders-rookies-mnf-brock-bowers/
 
