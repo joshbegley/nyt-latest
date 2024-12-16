@@ -1,3 +1,11 @@
+**12 Die at Georgian Ski Resort From Suspected Carbon Monoxide Poisoning**\
+`The police say the bodies were found dead in a room above an Indian restaurant not long after a generator had been plugged in nearby.`\
+https://nytimes.com/2024/12/16/world/europe/georgia-ski-resort-carbon-monoxide-poisoning.html
+
+**Chrystia Freeland, Canada’s Deputy Prime Minister, Resigns From Cabinet**\
+`The departure of Ms. Freeland came hours before she was scheduled to outline the government’s commitments to improve border security with the United States.`\
+https://nytimes.com/2024/12/16/world/canada/chrystia-freeland-resigns-canada-finance-minister.html
+
 **What I learned about Ohio State-Tennessee after a week of watching Vols games**\
 `Tennessee's defensive front has a clear advantage against Ohio State's offensive line, and the Buckeyes have to lean on their WR talent.`\
 https://nytimes.com/athletic/5998129/2024/12/16/ohio-state-tennessee-college-football-playoff-preview/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/16/us/a-constitutional-convention-some-democrats-fea
 **Serie A side Como open to Dele training with them in January**\
 `Como are open to allowing Dele Alli to train with the club in January as the midfielder continues his recovery from injury.`\
 https://nytimes.com/athletic/5998197/2024/12/16/dele-alli-como-future/
-
-**In second return to Golden State, Klay Thompson puts up his best showing as a Maverick**\
-`On a record shooting night for both teams, Luka Dončić had a huge triple-double, and Dallas won for the 12th time in its past 14 games.`\
-https://nytimes.com/athletic/5997620/2024/12/16/klay-thompson-mavericks-win-warriors/
-
-**Spanish football federation elects Louzan as new president**\
-`The Royal Spanish Football Federation (RFEF) has elected Rafael Louzan as its new president.`\
-https://nytimes.com/athletic/5997874/2024/12/16/spanish-football-federation-president-elections/
 
