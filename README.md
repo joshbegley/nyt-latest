@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5996424/2024/12/16/chelsea-discipline-maresca/
 `Schröder will add a pick-and-roll element for the Warriors and try to offer improved play over Brandin Podziemski.`\
 https://nytimes.com/athletic/5994643/2024/12/16/warriors-dennis-schroder-brandin-podziemski/
 
-**It took Djed Spence 881 days to make his first start for Tottenham - it was worth the wait**\
+**It took Djed Spence 881 days to make his first start for Tottenham. It was worth the wait**\
 `It has taken far longer than expected - but Spence is finally ready to make his mark for Spurs`\
 https://nytimes.com/athletic/5996822/2024/12/16/djed-spence-tottenham-hotspur-first-start/
 
