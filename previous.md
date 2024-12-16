@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5997189/2024/12/16/mets-offseason-approach/
 `Chelsea failed to win for the first time under Sonia Bompastor but Manchester City could not take full advantage`\
 https://nytimes.com/athletic/5996222/2024/12/16/wsl-briefing-chelsea-leiecester-manchester-city/
 
-**Tennis Briefing: Emma Raducanu's turning point and the fairness of tennis wildcards**\
+**Tennis Briefing: Emma Raducanu's turning point and the fairness of wildcards**\
 `The Brit discusses the demands of the WTA Tour, while the Australian Open releases its wildcards.`\
 https://nytimes.com/athletic/5997837/2024/12/16/emma-raducanu-tennis-ranking-schedule/
 

@@ -1,3 +1,7 @@
+**Tennis Briefing: Emma Raducanu's turning point and the fairness of wildcards**\
+`The Brit discusses the demands of the WTA Tour, while the Australian Open releases its wildcards.`\
+https://nytimes.com/athletic/5997837/2024/12/16/emma-raducanu-tennis-ranking-schedule/
+
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `After a big victory at the weekend, post your Newcastle-related questions to Chris`\
 https://nytimes.com/athletic/5997790/2024/12/16/newcastle-isak-wilson-injury-transfers/
