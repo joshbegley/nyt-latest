@@ -1,3 +1,7 @@
+**At Trump’s first post-election news conference, topics include autism, the border wall and drones.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/12/16/us/trump-news/at-trumps-first-post-election-news-conference-topics-include-autism-the-border-wall-and-drones
+
 **Trump Says He Would Consider Pardoning Eric Adams**\
 `The comment by President-elect Donald J. Trump reflects an unusual relationship that has been encouraged by Mayor Eric Adams of New York as his federal corruption trial nears.`\
 https://nytimes.com/2024/12/16/nyregion/trump-pardon-eric-adams.html
