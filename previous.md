@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/16/arts/television/dune-prophecy-recap-season-1-epis
 `What's going so wrong for Brighton after four games without a win?`\
 https://nytimes.com/athletic/5995388/2024/12/16/fabian-hurzeler-brighton-dunk-problems/
 
-**The unsung hero of Bills win over Lions? An offensive line the seems to slip under the radar**\
+**The unsung hero of Bills win over Lions? An offensive line that seems to slip under the radar**\
 `The offensive line is one reason why the Bills keep putting up big numbers.`\
 https://nytimes.com/athletic/5997247/2024/12/16/bills-offensive-line-lions-dominant-dion-dawkins/
 
