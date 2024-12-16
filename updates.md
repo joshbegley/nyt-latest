@@ -1,3 +1,7 @@
+**Broncos were gifted Jonathan Taylor's gaffe, but also made their own luck as playoffs near**\
+`Denver knows the Colts' TD coming off the scoreboard was a gift, but also capitalized by scoring 24 unanswered points afterward.`\
+https://nytimes.com/athletic/5996864/2024/12/15/broncos-win-colts-jonathan-taylor-luck-playoff-picture/
+
 **Geno Smith exits 'Sunday Night Football' against Packers with knee injury**\
 `Smith was 15-of-19 passing for 149 yards with no touchdowns and one interception before exiting.`\
 https://nytimes.com/athletic/5997104/2024/12/15/geno-smith-injury-seahawks-snf/
