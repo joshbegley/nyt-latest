@@ -1,3 +1,11 @@
+**Raiders to start QB Desmond Ridder against Falcons with Aidan O'Connell out**\
+`Ridder's first start with the Raiders will come against the team that drafted him in 2022.`\
+https://nytimes.com/athletic/5998848/2024/12/16/desmond-ridder-raiders-starting-qb-mnf-falcons/
+
+**Seahawks optimistic Geno Smith will be ready to face Vikings**\
+`Smith was 15-of-19 passing for 149 yards with no touchdowns and one interception before exiting.`\
+https://nytimes.com/athletic/5997104/2024/12/16/geno-smith-injury-seahawks-snf/
+
 **The Great Capitulation**\
 `Powerful Americans have lost the will to resist Trump.`\
 https://nytimes.com/2024/12/16/opinion/trump-tech-leaders-support.html
