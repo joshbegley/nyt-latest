@@ -1,3 +1,7 @@
+**Eagles win 10th straight in 27-13 victory over Steelers: Takeaways**\
+`The Eagles pulled even with the 12-2 Lions atop the NFC standings while the Steelers still clinched a playoff berth with some help.`\
+https://nytimes.com/athletic/5995325/2024/12/15/steelers-eagles-score-result-takeaways/
+
 **What started out so sweet for Bryce Young devolved into an ugly, turnoverfest**\
 `Bryce Young's fumble on the Panthers' impressive opening drive served as a harbinger of things to overcome Sunday against the Cowboys.`\
 https://nytimes.com/athletic/5996509/2024/12/15/panthers-loss-bryce-young-turnovers-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5996394/2024/12/15/ravens-win-giants-afc-north-stee
 **Steelers' T.J. Watt exits vs. Eagles with lower body injury**\
 `Watt walked off the field and later went into the X-ray room to get the injury evaluated.`\
 https://nytimes.com/athletic/5996516/2024/12/15/tj-watt-injury-steelers-2/
-
-**Aldridge: Commanders' win in New Orleans was important but nothing like a Big Easy**\
-`With the win, Washington's postseason chances increased from 79 percent to 88 percent, according to NFL.com, with three weeks remaining.`\
-https://nytimes.com/athletic/5995521/2024/12/15/commanders-victory-saints/
 
