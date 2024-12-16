@@ -1,3 +1,7 @@
+**Scoop City: NFL's risers after Week 15**\
+`A quick look at the risers (Josh Allen and Lamar Jackson, plus the Buccaneers, Packers), latest of Mahomes and Darnold's CPOY bid.`\
+https://nytimes.com/athletic/5998702/2024/12/16/risers-fallers-nfl-week-15-takeaways-scoop-city/
+
 **Lions' Alim McNeill reportedly out for season; Carlton Davis suffers broken jaw**\
 `McNeill suffered the injury in the third quarter of Sunday's loss and Davis was evaluated for a concussion in addition to the broken jaw`\
 https://nytimes.com/athletic/5998570/2024/12/16/alim-mcneill-carlton-davis-lions-injuries/

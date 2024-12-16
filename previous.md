@@ -1,3 +1,7 @@
+**Scoop City: NFL's risers after Week 15**\
+`A quick look at the risers (Josh Allen and Lamar Jackson, plus the Buccaneers, Packers), latest of Mahomes and Darnold's CPOY bid.`\
+https://nytimes.com/athletic/5998702/2024/12/16/risers-fallers-nfl-week-15-takeaways-scoop-city/
+
 **Lions' Alim McNeill reportedly out for season; Carlton Davis suffers broken jaw**\
 `McNeill suffered the injury in the third quarter of Sunday's loss and Davis was evaluated for a concussion in addition to the broken jaw`\
 https://nytimes.com/athletic/5998570/2024/12/16/alim-mcneill-carlton-davis-lions-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/nyregion/phil-murphy-new-jersey-pardons.html
 **Biden Prepares to Target Chinese Legacy Chips With Trade Investigation**\
 `The investigation could result in tariffs on older types of chips from China, though the decision would ultimately fall to Trump.`\
 https://nytimes.com/2024/12/16/business/economy/biden-china-chips-investigation.html
-
-**Penn State starting QB Drew Allar plans to return in 2025: Source**\
-`Backup QB Beau Pribula announced his intention to enter the transfer portal on Sunday, which signaled a possible return from Allar.`\
-https://nytimes.com/athletic/5998578/2024/12/16/drew-allar-penn-state-quarterback-return/
 
