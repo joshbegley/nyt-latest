@@ -1,3 +1,7 @@
+**Blues' Jordan Kyrou is developing 'a real maturity' to his game, says Montgomery**\
+`Kyrou has scored in four straight games and has six goals in his last seven games.`\
+https://nytimes.com/athletic/5996543/2024/12/15/blues-kyrou-maturity-montgomery-rangers/
+
 **'I was so lost in my own mind': Wild's Jesper Wallstedt opens up about his trying season**\
 `Despite a 3-2 loss to Vegas in his home debut, Wallstedt is on the upswing after a rough start to the season.`\
 https://nytimes.com/athletic/5997200/2024/12/15/wild-jesper-wallstedt-struggle-goalie-home-debut/

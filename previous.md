@@ -1,3 +1,7 @@
+**Blues' Jordan Kyrou is developing 'a real maturity' to his game, says Montgomery**\
+`Kyrou has scored in four straight games and has six goals in his last seven games.`\
+https://nytimes.com/athletic/5996543/2024/12/15/blues-kyrou-maturity-montgomery-rangers/
+
 **How Chargers respond to Bucs beatdown will decide fate of Jim Harbaugh's debut season**\
 `The Chargers have looked like a revitalized organization. Sunday's blowout loss to the Buccaneers will test their resolve.`\
 https://nytimes.com/athletic/5997263/2024/12/15/chargers-loss-buccaneers-response-jim-harbaugh/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5996864/2024/12/15/broncos-win-colts-jonathan-taylo
 **Lindy Ruff, and players, running out of answers as Sabres' losing streak hits 10: Takeaways**\
 `The Sabres took a 3-1 lead against the Leafs and then allowed four unanswered goals, including a hat trick.`\
 https://nytimes.com/athletic/5996981/2024/12/15/sabres-lindy-ruff-losing-streak-leafs/
-
-**Jerod Mayo wanted to see progress, but the Patriots are a bad team that's getting worse**\
-`After a 30-17 loss to the Cardinals that wasn't as close as the score would indicate, the Patriots are looking forward to the offseason. `\
-https://nytimes.com/athletic/5996911/2024/12/15/patriots-jerod-mayo-bad-team-getting-worse/
 
