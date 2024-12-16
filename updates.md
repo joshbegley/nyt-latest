@@ -1,3 +1,19 @@
+**NBA Rewind: Jimmy Butler, Brandon Ingram highlight the start of trade season**\
+`NBA trade season got underway this weekend. Which big names could be on the move?`\
+https://nytimes.com/athletic/5995758/2024/12/16/jimmy-butler-brandon-ingram-nba-trade/
+
+**The Athletic FC: Amorim and Amad sink City, two coaches sacked, how good was Martinez save?**\
+`Today in TAFC: Amorim's tough love helps United sink City, two Premier League head coaches sacked, Martinez's magical save.`\
+https://nytimes.com/athletic/5997803/2024/12/16/united-city-amad-oneil/
+
+**Mbappe returns to Madrid squad for Intercontinental Cup final**\
+`Kylian Mbappe has been included in the Real Madrid squad for the Intercontinental Cup final on Wednesday.`\
+https://nytimes.com/athletic/5997917/2024/12/16/kylian-mbappe-injury-real-madrid-intercontinental-cup/
+
+**Weekend NHL rankings: Avalanche, Red Wings and way too many teams in crisis**\
+`So many teams are in various states of disaster that even a bonus five can't adequately cover the mayhem this week.`\
+https://nytimes.com/athletic/5996731/2024/12/16/nhl-weekend-rankings-avalanche-red-wings-crisis/
+
 **The Pulse: Mahomes and Lions limping toward playoffs**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/5996905/2024/12/16/patrick-mahomes-nfl-injuries-the-pulse/
