@@ -1,3 +1,7 @@
+**Taylor Rooks to be lead host of Amazon's NBA coverage: Sources**\
+`Rooks currently works on Amazon Prime's "Thursday Night Football" coverage as a features reporter.`\
+https://nytimes.com/athletic/5999091/2024/12/16/taylor-rooks-amazon-nba-coverage/
+
 **Carlos Watson, Ozy Media Co-Founder, Is Sentenced to Almost 10 Years in Prison**\
 `A federal jury in July found Mr. Watson, who started the digital media company in 2013, guilty of trying to defraud investors and lenders.`\
 https://nytimes.com/2024/12/16/business/media/carlos-watson-ozy-media-sentenced.html

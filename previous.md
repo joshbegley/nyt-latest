@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5999105/2024/12/16/diontae-johnson-ravens-excuse-te
 https://nytimes.com/2024/12/16/us/trump-softbank-investment.html
 
 **Taylor Rooks to be lead host of Amazon's NBA coverage: Sources**\
-`Rooks currently works on Amazon Prime's "Thursday Night Football" coverage as a sideline reporter.`\
+`Rooks currently works on Amazon Prime's "Thursday Night Football" coverage as a features reporter.`\
 https://nytimes.com/athletic/5999091/2024/12/16/taylor-rooks-amazon-nba-coverage/
 
 **Who are the best quarterbacks in the transfer portal? Ranking the top 30**\
