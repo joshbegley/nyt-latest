@@ -1,3 +1,11 @@
+**Black Student Enrollment at Harvard Law Drops by More Than Half**\
+`After a Supreme Court decision ended race-based admissions, some law schools saw a decline in Black and Hispanic students entering this fall. Harvard appeared to have the steepest drop.`\
+https://nytimes.com/2024/12/16/us/harvard-law-black-students-enrollment-decline.html
+
+**Notre Dame portal update: How can Alabama transfer DB DeVonta Smith fit?**\
+`Where Notre Dame stands in the transfer portal with former Alabama DB DeVonta Smith expected to be added.`\
+https://nytimes.com/athletic/5999279/2024/12/16/notre-dame-transfer-portal-devonta-smith/
+
 **Young Republicans Gather, Ready to Make America Vengeful Again**\
 `At a gala on Wall Street for the New York Young Republican Club, attendees were looking forward to retribution from the next Trump era, and musing on another run in 2028.`\
 https://nytimes.com/2024/12/16/us/politics/young-republicans-gala.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-al-shara
 **Lookman, Banda win African Footballer of the Year awards**\
 `Atalanta and Nigeria forward Ademola Lookman was crowned men’s 2024 CAF Footballer of the Year in Marrakech at the expense of Morocco international Achraf Hakimi.`\
 https://nytimes.com/athletic/5999264/2024/12/16/caf-awards-lookman-banda/
-
-**San Francisco Giants free-agent profile: Anthony Santander**\
-`Signing Santander would fix a lot of what ails the Giants' offense, but the Giants need more than just his homers to be a contender. `\
-https://nytimes.com/athletic/5998792/2024/12/16/sf-giants-anthony-santander-free-agency/
-
-**Tuesday Briefing: Syria’s New Leader Calls for Lifting Sanctions**\
-`Plus, the breakout stars of 2024.`\
-https://nytimes.com/2024/12/16/briefing/syria-germany-trump.html
 
