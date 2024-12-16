@@ -1,3 +1,7 @@
+**This Is the Secret to the Perfect Baked Potato**\
+`A simple trick yields crisp outsides and fluffy insides, ready to be topped in three smart, exciting ways from Eric Kim.`\
+https://nytimes.com/2024/12/16/dining/how-to-make-baked-potatoes.html
+
 **Chiefs release RB Clyde Edwards-Helaire after 5 seasons with team**\
 `He has not appeared in a game after starting this season on the non-football illness list, stemming from his battle with PTSD.`\
 https://nytimes.com/athletic/5999555/2024/12/16/chiefs-release-clyde-edwards-helaire-nfl-news/
