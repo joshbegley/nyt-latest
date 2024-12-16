@@ -2,7 +2,7 @@
 `Hudson was Texas Tech's highest-ranked signee in the modern recruiting era.`\
 https://nytimes.com/athletic/5997196/2024/12/15/micah-hudson-transfer-texas-am/
 
-**It's clear a Browns blowup is necessary following listless loss to Chiefs**\
+**It's clear a Browns blowup is necessary after listless loss to Chiefs**\
 `Cleveland is limping toward the end of a miserable season with many unanswered questions ahead. `\
 https://nytimes.com/athletic/5996586/2024/12/15/browns-loss-chiefs-roster-blowup/
 
