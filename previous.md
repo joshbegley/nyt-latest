@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr., Trump’s Health Secretary Pick, Is Set to Meet with Lawmakers**\
+`Mr. Kennedy is beginning his meetings with Republican senators to build support for his confirmation, which could be imperiled by his anti-vaccine advocacy.`\
+https://nytimes.com/2024/12/16/us/politics/rfk-jr-republican-senators-health-secretary-bid.html
+
 **Lowetide: How close to balanced are the Oilers this season?**\
 `A balanced roster has success on both special teams and especially owns five-on-five playing time.`\
 https://nytimes.com/athletic/5995596/2024/12/16/edmonton-oilers-roster-2024/
@@ -11,7 +15,7 @@ https://nytimes.com/interactive/2024/12/16/books/review/dickens-london-quiz.html
 https://nytimes.com/2024/12/16/world/europe/georgia-ski-resort-carbon-monoxide-poisoning.html
 
 **Chrystia Freeland, Canada’s Deputy Prime Minister, Resigns From Cabinet**\
-`The departure of Ms. Freeland came hours before she was scheduled to outline the government’s commitments to improve border security with the United States.`\
+`The departure of Ms. Freeland, who had been helping lead Canada’s response to the incoming Trump administration, threatens Prime Minister Justin Trudeau’s ability to lead his party.`\
 https://nytimes.com/2024/12/16/world/canada/chrystia-freeland-resigns-canada-finance-minister.html
 
 **What I learned about Ohio State-Tennessee after a week of watching Vols games**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995339/2024/12/16/dennis-schroder-trade-warriors-k
 **Live Updates: Al-Assad Didn’t Plan to Flee Syria, Statement Says**\
 `Bashar al-Assad appeared to give his first account of leaving for Russia as rebels seized Syria, claiming he wanted to stay and fight, in a statement posted to social media and reported by Russian state outlets.`\
 https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news
-
-**Cam Fowler's time in Anaheim shouldn't be defined by unfair comparisons and expectations**\
-`No, Fowler didn't become the next Scott Niedermayer or a defensive game-changer. But don't denigrate his career.`\
-https://nytimes.com/athletic/5997190/2024/12/16/cam-fowler-ducks-trade-career/
 
