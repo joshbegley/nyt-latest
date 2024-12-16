@@ -1,3 +1,11 @@
+**Canadiens weekly notebook: Alex Newhook’s future, Kirby Dach’s untimely penalties**\
+`Also in this week's notebook, Lane Hutson's defence remains underappreciated and Michael Hage's signature move snaps a slump. `\
+https://nytimes.com/athletic/5997645/2024/12/16/canadiens-alex-newhooks-kirby-dach-penalty/
+
+**Lijnders sacked as Red Bull Salzburg head coach**\
+`Red Bull Salzburg have parted company with head coach Pep Lijnders after just seven months in charge.`\
+https://nytimes.com/athletic/5998252/2024/12/16/pep-lijnders-red-bull-salzburg/
+
 **Hollinger's Week That Was: Schröder trade thoughts + is Marquette's Jones a lotto pick?**\
 `We've reached trade season! The Pistons waiving Reed has interesting cap implications, and the Thunder have a long road after the NBA Cup.`\
 https://nytimes.com/athletic/5995339/2024/12/16/dennis-schroder-trade-warriors-kam-jones-marquette/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5997874/2024/12/16/spanish-football-federation-pres
 **Bashar al-Assad appears to give his first account of leaving Syria.**\
 `a statement posted to the facebook account once used by president assad when he was in office`\
 https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-assad-rebels-news
-
-**Syria’s New Leadership Takes Early Steps Toward Legitimacy**\
-`A little over a week after taking power, the rebel alliance that led the overthrow of the Assad regime has begun to receive diplomats in the Syrian capital, Damascus.`\
-https://nytimes.com/2024/12/16/world/middleeast/syria-rebel-alliance.html
-
-**Men’s college basketball Top 25: SEC's dominance keeps making history**\
-`My Top 25 ballot this week includes 10 SEC teams, with five in the top 10. Three others have a case to be ranked, as well.`\
-https://nytimes.com/athletic/5997213/2024/12/16/college-basketball-top-25-rankings-auburn-florida/
 
