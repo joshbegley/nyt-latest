@@ -1,4 +1,8 @@
 **LeBron feels 'pretty good' in his Lakers return, will manage foot issue**\
+`When asked if part of the reason he took time off was because of the mentally taxing nature of this season, James rejected the premise.`\
+https://nytimes.com/athletic/5997550/2024/12/16/lebron-james-foot-injury-management/
+
+**LeBron feels 'pretty good' in his Lakers return, will manage foot issue**\
 `LOS ANGELES — LeBron James said he felt &#8220;pretty good&#8221; mentally and physically after his nine-day, two-game absence from the Los Angeles Lakers.`\
 https://nytimes.com/athletic/5997550/2024/12/16/lebron-james-foot-injury-management/
 
