@@ -1,3 +1,7 @@
+**A Chaotic Start**\
+`We cover the people who will surround Donald Trump in his second term.`\
+https://nytimes.com/2024/12/16/briefing/donald-trump-appointments.html
+
 **Israel Carries Out Heavy Strikes on Syria’s Coast, Monitor Says**\
 `Overnight strikes targeted former army positions, according to the Syrian Observatory for Human Rights, a war monitor. Israel has said it aims to keep military equipment away from extremists.`\
 https://nytimes.com/2024/12/16/world/middleeast/syria-israel-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/business/economy/amazon-warehouse-injuries.html
 **Trump’s Media Lawsuit Threats, and Injuries at Amazon Under Scrutiny**\
 `Plus, a troubling trend in American schools.`\
 https://nytimes.com/2024/12/16/podcasts/trumps-lawsuit-amazon.html
-
-**The Connections Companion No. 555**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 17, 2024.`\
-https://nytimes.com/2024/12/16/crosswords/connections-companion-555.html
 
