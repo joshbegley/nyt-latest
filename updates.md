@@ -1,3 +1,7 @@
+**A student and a teacher died in the shooting, the police say.**\
+`By Mitch Smith`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/a-student-and-a-teacher-died-in-the-shooting-the-police-say
+
 **Trump Held His First News Conference as President-Elect**\
 `Also, Syria’s new leader called for sanctions to be lifted. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/12/16/briefing/trump-news-conference-germany-government-collapse.html
