@@ -1,3 +1,7 @@
+**Bills outlast Lions 48-42 in potential Super Bowl preview: Takeaways**\
+`Buffalo remains in the hunt for the AFC's top seed, while Detroit is tied with Philadelphia atop the NFC. `\
+https://nytimes.com/athletic/5995316/2024/12/15/bills-lions-score-result-takeaways/
+
 **Maple Leafs report cards: John Tavares, Nick Robertson spark offensive outburst**\
 `The Leafs scored three goals in under three minutes en route to a Tavares hat trick.`\
 https://nytimes.com/athletic/5996171/2024/12/15/maple-leafs-report-cards-tavares-robertson-sabres/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5996355/2024/12/15/blackhawks-connor-bedard-islande
 **Cardinals beat Patriots 30-17 to keep playoff hopes alive: Takeaways**\
 `The Cardinals needed a “get-right” game to remain in postseason contention. This was it.`\
 https://nytimes.com/athletic/5995309/2024/12/15/patriots-cardinals-score-result-takeaways/
-
-**Notre Dame agrees to new long-term deal with Marcus Freeman**\
-`Freeman, who originally signed a six-year contract in December 2021, has led the Irish to an 11-1 record and home Playoff game this year.`\
-https://nytimes.com/athletic/5996224/2024/12/15/marcus-freeman-notre-dame-contract-extension/
 

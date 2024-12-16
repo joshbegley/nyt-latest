@@ -1,3 +1,7 @@
+**Bills outlast Lions 48-42 in potential Super Bowl preview: Takeaways**\
+`Buffalo remains in the hunt for the AFC's top seed, while Detroit is tied with Philadelphia atop the NFC. `\
+https://nytimes.com/athletic/5995316/2024/12/15/bills-lions-score-result-takeaways/
+
 **Maple Leafs report cards: John Tavares, Nick Robertson spark offensive outburst**\
 `The Leafs scored three goals in under three minutes en route to a Tavares hat trick.`\
 https://nytimes.com/athletic/5996171/2024/12/15/maple-leafs-report-cards-tavares-robertson-sabres/
