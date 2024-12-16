@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/15/pageoneplus/quote-of-the-day-blunt-us-ambassador-
 https://nytimes.com/athletic/5996533/2024/12/15/davante-adams-jets-jaguars-contract-situation/
 
 **Penn State backup QB Beau Pribula to enter transfer portal**\
-`STATE COLLEGE, Pa.`\
+`Pribula, who won't be with PSU this postseason, should become one of the most intriguing quarterbacks available in this transfer window.`\
 https://nytimes.com/athletic/5996969/2024/12/15/penn-state-beau-pribula-transfer-portal/
 
 **Early opportunity backfires in Blue Jackets' rough loss to Hurricanes**\
