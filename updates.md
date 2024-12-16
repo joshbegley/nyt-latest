@@ -1,3 +1,7 @@
+**Ravens, Diontae Johnson mutually agree to excuse WR from Week 16 team activities**\
+`Baltimore had suspended its trade deadline pickup for one week after he refused to take the field in its Week 13 loss. `\
+https://nytimes.com/athletic/5999105/2024/12/16/diontae-johnson-ravens-excuse-team-activities/
+
 **Who are the best quarterbacks in the transfer portal? Ranking the top 30**\
 `The top two quarterbacks on our transfer portal big board are signed with Darian Mensah to Duke and Jackson Arnold to Auburn. Who's next?`\
 https://nytimes.com/athletic/5964434/2024/12/16/college-football-transfer-portal-quarterback-rankings/
