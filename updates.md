@@ -1,3 +1,7 @@
+**Trump Held His First News Conference as President-Elect**\
+`Also, Syria’s new leader called for sanctions to be lifted. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/12/16/briefing/trump-news-conference-germany-government-collapse.html
+
 **Popovich looking forward to return to coaching after suffering mild stroke**\
 `Spurs assistant coach Mitch Johnson took over in his absence, with San Antonio going 10-10 since then.`\
 https://nytimes.com/athletic/5999623/2024/12/16/gregg-popovich-return-spurs-stroke/

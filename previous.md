@@ -1,3 +1,7 @@
+**Trump Held His First News Conference as President-Elect**\
+`Also, Syria’s new leader called for sanctions to be lifted. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/12/16/briefing/trump-news-conference-germany-government-collapse.html
+
 **Syrian Rebel Leader Calls for Lifting of Sanctions, as al-Assad Defends Exit**\
 `Ahmed al-Shara urged nations to remove sanctions from Syria and the terrorism designation from his group so Syria could rebuild. Bashar al-Assad also gave his first account of fleeing to Russia.`\
 https://nytimes.com/2024/12/16/world/middleeast/syria-al-shara-al-assad.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/nyregion/broker-fees-lawsuit-nyc.html
 **Black Student Enrollment at Harvard Law Drops by More Than Half**\
 `After a Supreme Court decision ended race-based admissions, some law schools saw a decline in Black and Hispanic students entering this fall. Harvard appeared to have the steepest drop.`\
 https://nytimes.com/2024/12/16/us/harvard-law-black-students-enrollment-decline.html
-
-**Notre Dame portal update: How can Alabama transfer DB DeVonta Smith fit?**\
-`Where Notre Dame stands in the transfer portal with former Alabama DB DeVonta Smith expected to be added.`\
-https://nytimes.com/athletic/5999279/2024/12/16/notre-dame-transfer-portal-devonta-smith/
 
