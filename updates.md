@@ -1,3 +1,7 @@
+**A Chaotic Start**\
+`We cover the people who will surround Donald Trump in his second term.`\
+https://nytimes.com/2024/12/16/briefing/donald-trump-appointments.html
+
 **Israel Carries Out Heavy Strikes on Syria’s Coast, Monitor Says**\
 `Overnight strikes targeted former army positions, according to the Syrian Observatory for Human Rights, a war monitor. Israel has said it aims to keep military equipment away from extremists.`\
 https://nytimes.com/2024/12/16/world/middleeast/syria-israel-strikes.html
