@@ -1,3 +1,7 @@
+**Live Updates: At Least 5 Dead at Wisconsin Christian School, Including Shooter**\
+`At least five others were injured in the shooting at the Abundant Life Christian School in Madison, which has about 390 children in kindergarten through 12th grade.`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi
+
 **Tice’s Mother Asks Netanyahu for Pause in Syria Strikes to Search for Journalist**\
 `Debra Tice wrote to the Israeli prime minister that her family had “credible information” that Austin Tice may be held in a prison outside Damascus, in an area where Israel had been conducting military operations.`\
 https://nytimes.com/2024/12/16/world/middleeast/austin-tice-mother-netanyahu-israel.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009880033/tartus-syria-israeli-
 **Dream, Storm to play in first regular-season WNBA game outside U.S.**\
 `The WNBA awarded Toronto a franchise last May, making it the league’s first outside of the United States.`\
 https://nytimes.com/athletic/5998426/2024/12/16/dream-storm-wnba-vancouver-game/
-
-**Former NFL QB Michael Vick interviews for Norfolk State's head coaching job**\
-`Vick grew up in the Hampton Roads area in Virginia and starred at Virginia Tech`\
-https://nytimes.com/athletic/5998807/2024/12/16/michael-vick-norfolk-state-head-coach-talks/
 

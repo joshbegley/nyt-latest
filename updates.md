@@ -1,3 +1,7 @@
+**Live Updates: At Least 5 Dead at Wisconsin Christian School, Including Shooter**\
+`At least five others were injured in the shooting at the Abundant Life Christian School in Madison, which has about 390 children in kindergarten through 12th grade.`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi
+
 **Tice’s Mother Asks Netanyahu for Pause in Syria Strikes to Search for Journalist**\
 `Debra Tice wrote to the Israeli prime minister that her family had “credible information” that Austin Tice may be held in a prison outside Damascus, in an area where Israel had been conducting military operations.`\
 https://nytimes.com/2024/12/16/world/middleeast/austin-tice-mother-netanyahu-israel.html
