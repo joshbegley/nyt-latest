@@ -1,3 +1,11 @@
+**Sudden Loss of Undocumented Workers Threw Tech Supplier Into Upheaval**\
+`Jabil says it required “herculean efforts” to replace employees from a staffing agency. Other businesses are bracing for “an enforcement storm” under President-elect Trump.`\
+https://nytimes.com/2024/12/16/us/immigration-undocumented-workers-jabil.html
+
+**The Deadly Lure of Subway Surfing**\
+`For more than a century, people have climbed on top of moving trains in search of a thrill. Now social media has attracted a new generation of daredevils.`\
+https://nytimes.com/2024/12/16/nyregion/subway-surfing-problem-nyc.html
+
 **The Deadly Lure of Subway Surfing**\
 `For more than a century, people have climbed on top of moving trains in search of a thrill. Now social media has attracted a new generation of daredevils.`\
 https://nytimes.com/2024/12/16/sports/subway-surfing-problem-nyc.html
