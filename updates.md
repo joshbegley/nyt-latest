@@ -1,3 +1,11 @@
+**Emergency workers were mobilized quickly, dispatch audio indicates.**\
+`By Mitch Smith`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/emergency-workers-were-mobilized-quickly-dispatch-audio-indicates
+
+**Hegseth’s Guard Left the Army After the Beating of a Civilian During Training**\
+`John Hasenbein, who has escorted Donald J. Trump’s pick for defense secretary to meetings on Capitol Hill, said he was unjustly prosecuted for the 2019 episode.`\
+https://nytimes.com/2024/12/16/us/politics/hegseth-bodyguard-army.html
+
 **Trump Says He Would Consider Pardoning Mayor Eric Adams**\
 `During a news conference at Mar-a-Lago, Donald Trump said that he would possibly pardon Mayor Eric Adams of New York City if he was convicted on federal corruption charges.`\
 https://nytimes.com/video/us/politics/100000009880527/trump-says-he-would-consider-pardoning-mayor-eric-adams.html
