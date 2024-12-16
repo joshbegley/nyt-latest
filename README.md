@@ -1,3 +1,7 @@
+**Eagles passing game springs to life against Steelers after week of narratives, accountability**\
+`The Eagles passing game led the way when the run game didn't.`\
+https://nytimes.com/athletic/5996126/2024/12/16/eagles-passing-jalen-hurts-aj-brown-steelers/
+
 **Leagues Cup changes afoot in 2025 says Liga MX chief, scrapping midseason break**\
 `MLS and Mexican teams will battle for a revamped Leagues Cup next season, Liga MX president Mikel Arriola says.`\
 https://nytimes.com/athletic/5997443/2024/12/16/leagues-cup-mls-ligamx/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5993759/2024/12/16/mikel-arteta-five-years-arsenal-
 **Why Liverpool's draw with Fulham could galvanise rather than harm their title hopes**\
 `It’s rare that so many positives can be taken from a home draw that was unexpected for Liverpool`\
 https://nytimes.com/athletic/5994527/2024/12/16/liverpools-draw-fulham-title-hopes/
-
-**Everton's off-field future is becoming clearer, so what next on the pitch?**\
-`The 0-0 draw at Arsenal was a positive result but a much wider questions remains: what do Everton want to be as a football team?`\
-https://nytimes.com/athletic/5994245/2024/12/16/everton-takeover-dyche-football/
 
