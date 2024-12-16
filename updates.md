@@ -1,3 +1,11 @@
+**Trump Says He Would Consider Pardoning Eric Adams**\
+`The comment by President-elect Donald J. Trump reflects an unusual relationship that has been encouraged by Mayor Eric Adams of New York as his federal corruption trial nears.`\
+https://nytimes.com/2024/12/16/nyregion/trump-pardon-eric-adams.html
+
+**A Conductor’s Once and Future Orchestras Present Dueling Concerts**\
+`John Eliot Gardiner’s new ensemble, the Constellation Choir & Orchestra, performed a nearly identical program as his old group, at the same venue.`\
+https://nytimes.com/2024/12/16/arts/music/john-eliot-gardiner-new-orchestra.html
+
 **Scoop City: NFL's risers after Week 15**\
 `A quick look at the risers (Josh Allen and Lamar Jackson, plus the Buccaneers, Packers), latest of Mahomes and Darnold's CPOY bid.`\
 https://nytimes.com/athletic/5998702/2024/12/16/risers-fallers-nfl-week-15-takeaways-scoop-city/

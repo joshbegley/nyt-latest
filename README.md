@@ -1,3 +1,7 @@
+**At Trump’s first post-election news conference, topics include autism, the border wall and drones.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/12/16/us/trump-news/at-trumps-first-post-election-news-conference-topics-include-autism-the-border-wall-and-drones
+
 **Trump Says He Would Consider Pardoning Eric Adams**\
 `The comment by President-elect Donald J. Trump reflects an unusual relationship that has been encouraged by Mayor Eric Adams of New York as his federal corruption trial nears.`\
 https://nytimes.com/2024/12/16/nyregion/trump-pardon-eric-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5998374/2024/12/16/zhou-guanyu-f1-future-final-race
 **USMNT Player Tracker: The rise of Robinson, injury issues and a rejuvenated Reyna?**\
 `The Champions League brought success, but Serie A proved a struggle while injuries continue to affect many USMNT players.`\
 https://nytimes.com/athletic/5998200/2024/12/16/usmnt-player-tracker-the-rise-of-robinson-injury-issues-and-a-rejuvenated-reyna/
-
-**Why Martinez's new creative role was key to Manchester United beating City**\
-`Amorim's style of play requires his centre-backs to be aggressive on the ball when the opportunity arises - and Martinez delivered`\
-https://nytimes.com/athletic/5997730/2024/12/16/lisandro-martinez-new-role-city/
 
