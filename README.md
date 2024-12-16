@@ -1,3 +1,11 @@
+**Blocked Muslim Judicial Nominee Decries Senate ‘Smear Campaign’**\
+`Adeel Mangi, who would have been the first Muslim American federal appellate court judge, wrote an angry letter to President Biden describing bigotry he faced in the confirmation process.`\
+https://nytimes.com/2024/12/16/us/politics/muslim-judicial-nominee-bigotry.html
+
+**Putin Stays Silent on Syria, With Russia’s Future There in Question**\
+`In an hourlong televised meeting with his top military brass, Vladimir Putin left Syria unmentioned and made it clear that winning in Ukraine was his top priority.`\
+https://nytimes.com/2024/12/16/world/europe/russia-putin-syria.html
+
 **Orrin H. Pilkey, Geologist Who Fought to Save Beaches, Dies at 90**\
 `He argued against putting condos, hotels and other heavy infrastructure on vulnerable coastal landscapes. Environmentalists applauded; many others didn’t.`\
 https://nytimes.com/2024/12/16/science/orrin-h-pilkey-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5999049/2024/12/16/submit-your-panthers-mailbag-que
 **Submit your Cardinals questions for Katie Woo's mailbag**\
 `Submit your Cardinals questions for Katie Woo's mailbag`\
 https://nytimes.com/athletic/5999050/2024/12/16/cardinals-offseason-mailbag/
-
-**Rangers observations: Examining Kakko's trade value, Kreider reflects on Trouba trade**\
-`Kakko has been one of the Rangers' most consistent forwards. What could Chris Drury expect in a possible trade? `\
-https://nytimes.com/athletic/5998862/2024/12/16/rangers-kaapo-kakko-trade-chris-kreider/
-
-**Germany’s Olaf Scholz Loses a Vote of Confidence**\
-`Chancellor Olaf Scholz of Germany called for the confidence vote after his three-party coalition broke up. Lawmakers voted to dissolve the existing government by a vote of 394 to 207, with 116 abstaining.`\
-https://nytimes.com/video/world/europe/100000009880654/germany-scholz-no-confidence-vote.html
 
