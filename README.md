@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5998426/2024/12/16/dream-storm-wnba-vancouver-game/
 `Vick grew up in the Hampton Roads area in Virginia and starred at Virginia Tech`\
 https://nytimes.com/athletic/5998807/2024/12/16/michael-vick-norfolk-state-head-coach-talks/
 
-**‘Multiple Injuries’ Reported After Shooting at School in Wisconsin, Police Say**\
+**Multiple Injuries Reported After Shooting at School in Wisconsin, Police Say**\
 `The police said they were investigating a shooting at the Abundant Life Christian School in Madison, which has about 390 children in Kindergarten through 12th grade.`\
 https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-madison.html
 
