@@ -1,3 +1,11 @@
+**Packers roll Seahawks 30-13 after Jacobs' dominant first quarter: Takeaways**\
+`The Packers amassed seven sacks from six different players and 12 quarterback hits from nine different players.`\
+https://nytimes.com/athletic/5997151/2024/12/15/packers-seahawks-snf-score-result-takeaways/
+
+**The Steelers' offense faced its biggest test yet vs. the Eagles. And flunked it.**\
+`The Steelers have built their roster to be the bully, but they wound up on the opposite end of things Sunday in Philadelphia.`\
+https://nytimes.com/athletic/5997153/2024/12/15/steelers-offense-failed-eagles-biggest-test/
+
 **Josh Allen, Bills look scary good in winning Super Bowl teaser**\
 `The numbers were gaudy in a statement win.`\
 https://nytimes.com/athletic/5997201/2024/12/15/bills-offensive-line-lions-dominant/
