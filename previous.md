@@ -1,3 +1,15 @@
+**Supreme Court Rejects Ex-Lt. Gov. of New York’s Bid to Dismiss Charges**\
+`The former lieutenant governor, Brian Benjamin, is accused of funneling state money to a local real estate developer in exchange for campaign contributions.`\
+https://nytimes.com/2024/12/16/nyregion/brian-benjamin-supreme-court.html
+
+**Men in Tights and Tutus: The Trocks Turn 50, Humor Intact**\
+`The Trocks were never interested in making a political statement, their artistic director said. “We are men doing performances of ballet in drag for comedic purposes.”`\
+https://nytimes.com/2024/12/16/arts/dance/the-trocks-male-comedy-ballet-drag-troupe-50.html
+
+**Chris Henderson to join Atlanta United as new sporting director**\
+`Former Inter Miami sporting director Chris Henderson will join Atlanta United, multiple sources with direct knowledge of the move confirmed to The Athletic on Monday.`\
+https://nytimes.com/athletic/5998574/2024/12/16/atlanta-united-chris-henderson-sporting-director/
+
 **Ways to Fix the Health Insurance Debacle**\
 `Responses to an essay by Andrew Witty, the C.E.O. of UnitedHealth Group. Also: Threats to democracy, in Hungary and America; a check on Trump; avoiding taxes.`\
 https://nytimes.com/2024/12/16/opinion/health-insurance.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5998470/2024/12/16/florida-state-mike-norvell-contr
 **Should the Senators re-sign Adam Gaudette? Would Brady Tkachuk want out? Mailbag**\
 `Should the Senators should move on from a piece of their core? What makes this team worth watching?`\
 https://nytimes.com/athletic/5978629/2024/12/16/senators-brady-tkachuk-adam-gaudette/
-
-**Sweet and Sour, Festive and Fast**\
-`This cranberry-orange chicken works just as well for a quiet Tuesday dinner as it does a Friday night gathering with friends.`\
-https://nytimes.com/2024/12/16/dining/sweet-and-sour-festive-and-fast.html
-
-**49ers plan to suspend De'Vondre Campbell 3 games, ending his season**\
-`Campbell told the team he didn't want to play and left the field in the third quarter of Thursday's game.`\
-https://nytimes.com/athletic/5998181/2024/12/16/49ers-devondre-campbell-suspended-games/
-
-**The Canucks' inconsistency, UFA math and a critical week**\
-`While we're still pretty confident the Canucks are a very good team, we need to see this group's form actually match those expectations.`\
-https://nytimes.com/athletic/5997454/2024/12/16/canucks-free-agent-nhl/
 
