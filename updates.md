@@ -1,3 +1,7 @@
+**Israel Carries Out Heavy Strikes on Syria’s Coast, Monitor Says**\
+`Overnight strikes targeted former army positions, according to the Syrian Observatory for Human Rights, a war monitor. Israel has said it aims to keep military equipment away from extremists.`\
+https://nytimes.com/2024/12/16/world/middleeast/syria-israel-strikes.html
+
 **Why Vikings safety Cam Bynum is the NFL's best celebration coordinator (and much more)**\
 `Bynum's viral turnover celebrations are legendary, but he wouldn't have anything to celebrate if he wasn't succeeding on the field.`\
 https://nytimes.com/athletic/5995323/2024/12/16/vikings-cam-bynum-celebration-moonwalk-white-chicks/
