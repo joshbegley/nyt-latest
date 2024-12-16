@@ -1,3 +1,7 @@
+**Five ‘Bali Nine’ Drug Smugglers Return to Australia After Two Decades**\
+`The men were the last Australians still imprisoned in Indonesia for trying to smuggle heroin in 2005, in a case that became a diplomatic flashpoint between the countries.`\
+https://nytimes.com/2024/12/16/world/australia/bali-nine-ring-indonesia-return.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/16/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/learning/word-of-the-day-vocational.html
 **Why Wolves sacked Gary O'Neil and turned to Jorge Mendes again**\
 `The inside story of Wolves' decision to move on from Gary O'Neil and what comes next at Molineux`\
 https://nytimes.com/athletic/5995902/2024/12/16/wolves-gary-oneil-jorge-mendes-vitor-pereira/
-
-**Alex Zendejas boosts USMNT prospects with starring role in Liga MX title triumph**\
-`Recently unsure whether to represent USA or Mexico, Alex Zendejas could thrive under Mauricio Pochettino`\
-https://nytimes.com/athletic/5997593/2024/12/16/alex-zendejas-ligamx-club-america/
 
