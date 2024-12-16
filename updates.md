@@ -1,3 +1,7 @@
+**Mets went wild for Juan Soto: Why a measured approach might come next**\
+`Steve Cohen did his part by securing the big-ticket item. Now it's time for David Stearns' more prudent approach.`\
+https://nytimes.com/athletic/5997189/2024/12/16/mets-offseason-approach/
+
 **WSL Briefing: Surprises at the top as clubs sign off for the winter break**\
 `Chelsea failed to win for the first time under Sonia Bompastor but Manchester City could not take full advantage`\
 https://nytimes.com/athletic/5996222/2024/12/16/wsl-briefing-chelsea-leiecester-manchester-city/
