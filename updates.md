@@ -1,3 +1,15 @@
+**Are Tariffs Inevitable?**\
+`World leaders and C.E.O.s are struggling to convince President-elect Donald Trump to shift his position on imposing new levies against America’s trade partners and its rivals.`\
+https://nytimes.com/2024/12/16/business/dealbook/trump-tariffs-inevitable.html
+
+**Austrian footballer suffers fractured skull after attack in Vienna city centre**\
+`Austria international footballer Guido Burgstaller is recovering after suffering a fractured skull in an attack in Vienna over the weekend, his club have confirmed.`\
+https://nytimes.com/athletic/5998018/2024/12/16/guido-burgstaller-attack-rapid-vienna/
+
+**In a lost Raiders' season, Monday night serves as showcase for strong rookie class**\
+`Tight end Brock Bowers needs 19 catches in his final four games to break Puka Nacua's rookie receptions record of 105.`\
+https://nytimes.com/athletic/5994848/2024/12/16/raiders-rookies-mnf-brock-bowers/
+
 **Trump Transition Live Updates: Hegseth Will Release Accuser From Confidential Agreement, Graham Says**\
 ``\
 https://nytimes.com/live/2024/12/16/us/trump-news
