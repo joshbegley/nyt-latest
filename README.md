@@ -1,3 +1,11 @@
+**Lookman, Banda win African Player of the Year awards**\
+`Atalanta and Nigeria forward Ademola Lookman was crowned men’s 2024 CAF Player of the Year in Marrakech at the expense of Morocco international Achraf Hakimi.`\
+https://nytimes.com/athletic/5999264/2024/12/16/caf-awards-lookman-banda/
+
+**San Francisco Giants free-agent profile: Anthony Santander**\
+`Signing Santander would fix a lot of what ails the Giants' offense, but the Giants need more than just his homers to be a contender. `\
+https://nytimes.com/athletic/5998792/2024/12/16/sf-giants-anthony-santander-free-agency/
+
 **Tuesday Briefing: Syria’s New Leader Calls for Lifting Sanctions**\
 `Plus, the breakout stars of 2024.`\
 https://nytimes.com/2024/12/16/briefing/syria-germany-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5999105/2024/12/16/diontae-johnson-ravens-excuse-te
 **Japan’s SoftBank Makes Big Investment Pledge Ahead of Trump’s Inauguration. Again.**\
 `The technology company plans to invest $100 billion in U.S. projects, echoing the multibillion-dollar pledge it made after Donald J. Trump’s first election victory in 2016.`\
 https://nytimes.com/2024/12/16/us/trump-softbank-investment.html
-
-**Taylor Rooks to be lead host of Amazon's NBA coverage: Sources**\
-`Rooks currently works on Amazon Prime's "Thursday Night Football" coverage as a features reporter.`\
-https://nytimes.com/athletic/5999091/2024/12/16/taylor-rooks-amazon-nba-coverage/
-
-**Who are the best quarterbacks in the transfer portal? Ranking the top 30**\
-`The top two quarterbacks on our transfer portal big board are signed with Darian Mensah to Duke and Jackson Arnold to Auburn. Who's next?`\
-https://nytimes.com/athletic/5964434/2024/12/16/college-football-transfer-portal-quarterback-rankings/
 
