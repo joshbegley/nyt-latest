@@ -1,3 +1,11 @@
+**Lookman, Banda win African Player of the Year awards**\
+`Atalanta and Nigeria forward Ademola Lookman was crowned men’s 2024 CAF Player of the Year in Marrakech at the expense of Morocco international Achraf Hakimi.`\
+https://nytimes.com/athletic/5999264/2024/12/16/caf-awards-lookman-banda/
+
+**San Francisco Giants free-agent profile: Anthony Santander**\
+`Signing Santander would fix a lot of what ails the Giants' offense, but the Giants need more than just his homers to be a contender. `\
+https://nytimes.com/athletic/5998792/2024/12/16/sf-giants-anthony-santander-free-agency/
+
 **Tuesday Briefing: Syria’s New Leader Calls for Lifting Sanctions**\
 `Plus, the breakout stars of 2024.`\
 https://nytimes.com/2024/12/16/briefing/syria-germany-trump.html
