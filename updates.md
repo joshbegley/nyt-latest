@@ -1,3 +1,11 @@
+**Patriots-Bills Week 16 matchup flexed to 4:25 p.m. kickoff time**\
+`Buffalo (11-3) is coming off a high-flying Week 15 win against the Lions in Detroit.`\
+https://nytimes.com/athletic/5998865/2024/12/16/patriots-bills-game-flexed-week-16/
+
+**Kyrgios and Djokovic set to play doubles together in Brisbane**\
+`Nick Kyrgios is planning to play doubles with Novak Djokovic at the Brisbane International in Australia later this month.`\
+https://nytimes.com/athletic/5998706/2024/12/16/kyrgios-djokovic-doubles-brisbane/
+
 **Jazz observations: Walker Kessler, John Collins have been bright spots**\
 `Thanks to development and familiarity, Utah's big men have made their marks as the Jazz continue to figure out their young roster.`\
 https://nytimes.com/athletic/5997659/2024/12/16/walker-kessler-john-collins-utah-jazz/

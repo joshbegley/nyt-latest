@@ -1,3 +1,11 @@
+**Patriots-Bills Week 16 matchup flexed to 4:25 p.m. kickoff time**\
+`Buffalo (11-3) is coming off a high-flying Week 15 win against the Lions in Detroit.`\
+https://nytimes.com/athletic/5998865/2024/12/16/patriots-bills-game-flexed-week-16/
+
+**Kyrgios and Djokovic set to play doubles together in Brisbane**\
+`Nick Kyrgios is planning to play doubles with Novak Djokovic at the Brisbane International in Australia later this month.`\
+https://nytimes.com/athletic/5998706/2024/12/16/kyrgios-djokovic-doubles-brisbane/
+
 **Jazz observations: Walker Kessler, John Collins have been bright spots**\
 `Thanks to development and familiarity, Utah's big men have made their marks as the Jazz continue to figure out their young roster.`\
 https://nytimes.com/athletic/5997659/2024/12/16/walker-kessler-john-collins-utah-jazz/
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/5998807/2024/12/16/michael-vick-norfolk-state-head-
 **Multiple Injuries Reported After Shooting at School in Wisconsin, Police Say**\
 `The police said they were investigating a shooting at the Abundant Life Christian School in Madison, which has about 390 children in Kindergarten through 12th grade.`\
 https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-madison.html
-
-**Heat Today: The pros and cons of trading Jimmy Butler**\
-`Do the Heat want to launch a youth movement, or should they gear up for another playoff run?`\
-https://nytimes.com/athletic/5998701/2024/12/16/jimmy-butler-heat-nba-suns-mavericks-rockets-warriors/
-
-**The Windup: Astros at a crossroads?**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/5998798/2024/12/16/astros-trade-kyle-tucker-cubs-the-windup/
-
-**Lions RB David Montgomery out indefinitely with MCL injury: Reports**\
-`Montgomery had been a key piece in the Lions offense combining with Jahmyr Gibbs to form one of the NFL's best backfield tandems.`\
-https://nytimes.com/athletic/5998765/2024/12/16/david-montgomery-injury-lions/
 
