@@ -1,3 +1,7 @@
+**Early opportunity backfires in Blue Jackets' rough loss to Hurricanes**\
+`The Hurricanes turned the tables on Columbus with a shorthanded goal in the first period to set the tone for a 4-1 defeat.`\
+https://nytimes.com/athletic/5996729/2024/12/15/blue-jackets-power-play-backfire-hurricanes/
+
 **Davante Adams showed what he can do — and why he should be back with the Jets in 2025**\
 `The veteran receiver was the difference as the Jets, finally, pulled out a win in a close game.`\
 https://nytimes.com/athletic/5996533/2024/12/15/davante-adams-jets-jaguars-contract-situation/
