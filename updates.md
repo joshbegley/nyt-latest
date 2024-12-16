@@ -1,3 +1,11 @@
+**What started out so sweet for Bryce Young devolved into an ugly, turnoverfest**\
+`Bryce Young's fumble on the Panthers' impressive opening drive served as a harbinger of things to overcome Sunday against the Cowboys.`\
+https://nytimes.com/athletic/5996509/2024/12/15/panthers-loss-bryce-young-turnovers-cowboys/
+
+**Baker Mayfield's 4 TDs propel Bucs past Chargers 40-17: Takeaways**\
+`Mike Evans racked up 159 receiving yards and two second half scores as the Buccaneers dominated the Chargers.`\
+https://nytimes.com/athletic/5995320/2024/12/15/buccaneers-chargers-score-result-takeaways/
+
 **The Narrator**\
 `Banias is an 8-year-old living in Gaza, and she has a story to tell — many stories, in fact.`\
 https://nytimes.com/2024/12/15/podcasts/the-narrator-this-american-life-nyt-audio.html
