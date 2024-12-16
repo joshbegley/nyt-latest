@@ -1,3 +1,7 @@
+**How Notre Dame saved its Playoff expectations after the season's worst loss**\
+`Notre Dame hasn't let the season's worst loss definite it. Its path to the Playoff shows just how much its third-year coach has grown.`\
+https://nytimes.com/athletic/5994291/2024/12/16/notre-dame-playoff-marcus-freeman-niu/
+
 **Jalen Hurts and A.J. Brown are just fine, and so are Eagles after beating Steelers**\
 `Philadelphia followed up a week of chatter about the QB and receiver's relationship with one of its most well-rounded games of the season.`\
 https://nytimes.com/athletic/5997300/2024/12/16/eagles-steelers-jalen-hurts-aj-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/opinion/lara-trump-senate.html
 **Trump Wants to Destroy the ‘Deep State.’ But He Also Wants to Wield Its Power.**\
 `He should fuse these two impulses into a single governing ideology.`\
 https://nytimes.com/2024/12/16/opinion/deep-state-trump-administrative.html
-
-**$1.1 Million Homes in California**\
-`A craftsman-style house in Oakland, a 1922 home in Stockton and a midcentury modern-style house in Santa Rosa`\
-https://nytimes.com/2024/12/16/realestate/1-1-million-homes-in-california.html
 
