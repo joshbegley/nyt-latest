@@ -1,3 +1,7 @@
+**​Impeachment in South Korea Has Cost Washington a Staunch Ally**\
+`President Yoon Suk Yeol shifted his country closer to Washington and stood up to Beijing. But that foreign policy could be recalibrated in the future.`\
+https://nytimes.com/2024/12/16/world/asia/south-korea-us-diplomacy.html
+
 **Five ‘Bali Nine’ Drug Smugglers Return to Australia After Two Decades**\
 `The men were the last Australians still imprisoned in Indonesia for trying to smuggle heroin in 2005, in a case that became a diplomatic flashpoint between the countries.`\
 https://nytimes.com/2024/12/16/world/australia/bali-nine-ring-indonesia-return.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5968719/2024/12/16/guinea-stadium-disaster-nzerekor
 **Word of the Day: vocational**\
 `This word has appeared in 220 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/16/learning/word-of-the-day-vocational.html
-
-**Why Wolves sacked Gary O'Neil and turned to Jorge Mendes again**\
-`The inside story of Wolves' decision to move on from Gary O'Neil and what comes next at Molineux`\
-https://nytimes.com/athletic/5995902/2024/12/16/wolves-gary-oneil-jorge-mendes-vitor-pereira/
 

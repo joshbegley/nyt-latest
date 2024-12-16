@@ -1,3 +1,7 @@
+**​Impeachment in South Korea Has Cost Washington a Staunch Ally**\
+`President Yoon Suk Yeol shifted his country closer to Washington and stood up to Beijing. But that foreign policy could be recalibrated in the future.`\
+https://nytimes.com/2024/12/16/world/asia/south-korea-us-diplomacy.html
+
 **Seahawks fail litmus test against Packers; Geno Smith suffers knee injury**\
 `The Lumen Field magic was missing. With many Green Bay fans in attendance, “Go Pack Go” chants were heard throughout the game.`\
 https://nytimes.com/athletic/5997563/2024/12/16/seahawks-lose-packers/
