@@ -1,3 +1,7 @@
+**What I learned about Ohio State-Tennessee after a week of watching Vols games**\
+`Tennessee's defensive front has a clear advantage against Ohio State's offensive line, and the Buckeyes have to lean on their WR talent.`\
+https://nytimes.com/athletic/5998129/2024/12/16/ohio-state-tennessee-college-football-playoff-preview/
+
 **Canadiens weekly notebook: Alex Newhook’s future, Kirby Dach’s untimely penalties**\
 `Also in this week's notebook, Lane Hutson's defence remains underappreciated and Michael Hage's signature move snaps a slump. `\
 https://nytimes.com/athletic/5997645/2024/12/16/canadiens-alex-newhooks-kirby-dach-penalty/
