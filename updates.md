@@ -1,3 +1,15 @@
+**A Spineless Senate Abandons a Qualified Judge**\
+`The attacks on Adeel Mangi were without merit.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/adeel-mangi-senate-confirmation
+
+**Why Do You Think the Killing of a Health Care C.E.O. Has Sparked Such an Intense National Conversation?**\
+`Have you been following the story? What do you think the news and our reactions to it say about America today?`\
+https://nytimes.com/2024/12/16/learning/why-do-you-think-the-killing-of-a-health-care-ceo-has-sparked-such-an-intense-national-conversation.html
+
+**What to watch this week in NBA: Cup final, Thunder-Magic, Towns returns to Minnesota**\
+`What to watch — and how to watch it — as the NBA concludes its in-season tournament play.`\
+https://nytimes.com/athletic/5999057/2024/12/16/how-to-watch-nba-cup-final-thunder-magic-knicks-timberwolves/
+
 **A student and a teacher died in the shooting, the police say.**\
 `By Mitch Smith`\
 https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/a-student-and-a-teacher-died-in-the-shooting-the-police-say
