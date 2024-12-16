@@ -1,3 +1,7 @@
+**Geno Smith exits 'Sunday Night Football' against Packers with knee injury**\
+`Smith was 15-of-19 passing for 149 yards with no touchdowns and one interception before exiting.`\
+https://nytimes.com/athletic/5997104/2024/12/15/geno-smith-injury-seahawks-snf/
+
 **Broncos were gifted Jonathan Taylor's gaffe, but also made they own luck as playoffs near**\
 `Denver knows the Colts' TD coming off the scoreboard was a gift, but also capitalized by scoring 24 unanswered points afterward.`\
 https://nytimes.com/athletic/5996864/2024/12/15/broncos-win-colts-jonathan-taylor-luck-playoff-picture/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5996969/2024/12/15/penn-state-beau-pribula-transfer
 **Early opportunity backfires in Blue Jackets' rough loss to Hurricanes**\
 `The Hurricanes turned the tables on the Blue Jackets with a short-handed goal in the first period to set the tone for a 4-1 defeat.`\
 https://nytimes.com/athletic/5996729/2024/12/15/blue-jackets-power-play-backfire-hurricanes/
-
-**CeeDee Lamb continues to be bright spot in otherwise disappointing Cowboys season**\
-`Lamb had his second 100-yard game this season and topped 1,000 receiving yards for the fourth consecutive season. `\
-https://nytimes.com/athletic/5996635/2024/12/15/ceedee-lamb-cowboys-1000-yards-panthers-win/
 
