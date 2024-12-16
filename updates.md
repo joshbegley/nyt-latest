@@ -1,3 +1,7 @@
+**Lookman, Banda win African Footballer of the Year awards**\
+`Atalanta and Nigeria forward Ademola Lookman was crowned men’s 2024 CAF Footballer of the Year in Marrakech at the expense of Morocco international Achraf Hakimi.`\
+https://nytimes.com/athletic/5999264/2024/12/16/caf-awards-lookman-banda/
+
 **NFL Week 16 odds, spreads, schedule: Mahomes' injury swings Texans-Chiefs line and more**\
 `With Patrick Mahomes' injury, the Chiefs odds flipped Monday to make them underdogs vs. the Texans. Plus, playoff stakes around the league.`\
 https://nytimes.com/athletic/5998419/2024/12/16/nfl-week-16-odds-spreads-schedule-mahomes-injury/
