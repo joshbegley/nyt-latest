@@ -1,3 +1,7 @@
+**Lindy Ruff, and players, running out of answers as Sabres' losing streak hits 10: Takeaways**\
+`The Sabres took a 3-1 lead against the Leafs and then allowed four unanswered goals, including a hat trick.`\
+https://nytimes.com/athletic/5996981/2024/12/15/sabres-lindy-ruff-losing-streak-leafs/
+
 **Jerod Mayo wanted to see progress, but the Patriots are a bad team that's getting worse**\
 `After a 30-17 loss to the Cardinals that wasn't as close as the score would indicate, the Patriots are looking forward to the offseason. `\
 https://nytimes.com/athletic/5996911/2024/12/15/patriots-jerod-mayo-bad-team-getting-worse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5996635/2024/12/15/ceedee-lamb-cowboys-1000-yards-p
 **Kaprizov's 2 goals not enough as Vegas spoils Wallstedt's season debut: 4 takeaways**\
 `Kaprizov's 22 goals are now the most by a Wild player through his first 30 games in a season.`\
 https://nytimes.com/athletic/5996418/2024/12/15/wild-wallstedt-debut-kaprizov-golden-knights/
-
-**What Broncos 31-13 win vs. Colts means for AFC playoff picture: Takeaways**\
-`Denver (9-5) is now one win away from its first playoff appearance since the 2015 season.`\
-https://nytimes.com/athletic/5995314/2024/12/15/broncos-colts-score-result-takeaways/
 

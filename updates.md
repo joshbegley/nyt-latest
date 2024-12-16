@@ -1,3 +1,7 @@
+**Lindy Ruff, and players, running out of answers as Sabres' losing streak hits 10: Takeaways**\
+`The Sabres took a 3-1 lead against the Leafs and then allowed four unanswered goals, including a hat trick.`\
+https://nytimes.com/athletic/5996981/2024/12/15/sabres-lindy-ruff-losing-streak-leafs/
+
 **Commanders went from marching past Saints to creating questions in chaotic finish**\
 `Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a 2-point conversion with no time remaining.`\
 https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playoff-picture/
