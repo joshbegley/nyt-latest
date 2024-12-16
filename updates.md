@@ -1,3 +1,8 @@
+**Crystal Palace shake off their Brighton blues - and show an impetus to kick on**\
+`Glasner and his Palace players might finally feel the pressure they had felt in the earlier parts of this season has now relented
+`\
+https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
+
 **Eagles passing game springs to life against Steelers after week of narratives, accountability**\
 `The Eagles passing game led the way when the run game didn't.`\
 https://nytimes.com/athletic/5996126/2024/12/16/eagles-passing-jalen-hurts-aj-brown-steelers/
