@@ -1,3 +1,7 @@
+**Tuesday Briefing: Syria’s New Leader Calls for Lifting Sanctions**\
+`Plus, the breakout stars of 2024.`\
+https://nytimes.com/2024/12/16/briefing/syria-germany-trump.html
+
 **'I love where it's going': Flyers' Tortorella pleased with Michkov's progress, attitude**\
 `Despite some on-ice bumps, the rookie has earned support and praise from his tough coach.`\
 https://nytimes.com/athletic/5999187/2024/12/16/michkov-flyers-tortorella-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5999091/2024/12/16/taylor-rooks-amazon-nba-coverage
 **Who are the best quarterbacks in the transfer portal? Ranking the top 30**\
 `The top two quarterbacks on our transfer portal big board are signed with Darian Mensah to Duke and Jackson Arnold to Auburn. Who's next?`\
 https://nytimes.com/athletic/5964434/2024/12/16/college-football-transfer-portal-quarterback-rankings/
-
-**How Does A.I. Think? Here’s One Theory.**\
-`It may employ a kind of reasoning humans use all the time — but you’ve probably never heard of it.`\
-https://nytimes.com/2024/12/16/opinion/artificial-intelligence-reasoning-abductive.html
 
