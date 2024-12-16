@@ -1,3 +1,7 @@
+**Jerod Mayo wanted to see progress, but the Patriots are a bad team that's getting worse**\
+`After a 30-17 loss to the Cardinals that wasn't as close as the score would indicate, the Patriots are looking forward to the offseason. `\
+https://nytimes.com/athletic/5996911/2024/12/15/patriots-jerod-mayo-bad-team-getting-worse/
+
 **How much worse could this get for the Rangers?**\
 `The Rangers look like a shell of the team that got off to a 12-4-1 start, and the schedule doesn't get any easier.`\
 https://nytimes.com/athletic/5996903/2024/12/15/rangers-free-fall-blues-loss/

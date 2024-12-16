@@ -1,3 +1,7 @@
+**Jerod Mayo wanted to see progress, but the Patriots are a bad team that's getting worse**\
+`After a 30-17 loss to the Cardinals that wasn't as close as the score would indicate, the Patriots are looking forward to the offseason. `\
+https://nytimes.com/athletic/5996911/2024/12/15/patriots-jerod-mayo-bad-team-getting-worse/
+
 **Commanders went from marching past Saints to creating questions in chaotic finish**\
 `Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a two-point conversion with no time remaining.`\
 https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playoff-picture/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5996418/2024/12/15/wild-wallstedt-debut-kaprizov-go
 **What Broncos 31-13 win vs. Colts means for AFC playoff picture: Takeaways**\
 `Denver (9-5) is now one win away from its first playoff appearance since the 2015 season.`\
 https://nytimes.com/athletic/5995314/2024/12/15/broncos-colts-score-result-takeaways/
-
-**Bills outlast Lions 48-42 in potential Super Bowl preview: Takeaways**\
-`Buffalo remains in the hunt for the AFC's top seed, while Detroit is tied with Philadelphia atop the NFC. `\
-https://nytimes.com/athletic/5995316/2024/12/15/bills-lions-score-result-takeaways/
 
