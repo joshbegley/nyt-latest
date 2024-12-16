@@ -1,5 +1,21 @@
-**Live Updates: At Least 5 Dead at Wisconsin Christian School, Including Shooter**\
-`At least five others were injured in the shooting at the Abundant Life Christian School in Madison, which has about 390 children in kindergarten through 12th grade.`\
+**Rangers observations: Examining Kakko's trade value, Kreider reflects on Trouba trade**\
+`Kakko has been one of the Rangers' most consistent forwards. What could Chris Drury expect in a possible trade? `\
+https://nytimes.com/athletic/5998862/2024/12/16/rangers-kaapo-kakko-trade-chris-kreider/
+
+**Germany’s Olaf Scholz Loses a Vote of Confidence**\
+`Chancellor Olaf Scholz of Germany called for the confidence vote after his three-party coalition broke up. Lawmakers voted to dissolve the existing government by a vote of 394 to 207, with 116 abstaining.`\
+https://nytimes.com/video/world/europe/100000009880654/germany-scholz-no-confidence-vote.html
+
+**Several Killed in Wisconsin School Shooting, Including Juvenile Suspect**\
+`The police responded to a shooting at a private Christian school in Madison, Wis., on Wednesday.`\
+https://nytimes.com/video/us/100000009880641/madison-wisconsin-school-shooting.html
+
+**AP men's Top 25: Tennessee holds No. 1 spot, Kentucky jumps Duke**\
+`Tennessee is coming off a 2-0 week after defeating Miami on Tuesday. Kentucky jumped Duke one spot after defeating Louisville`\
+https://nytimes.com/athletic/5998406/2024/12/16/ap-mens-basketball-top-25-tennessee-kentucky-duke/
+
+**Live Updates: 3 Dead at Wisconsin Christian School, Including Shooter, Police Say**\
+`At least six others were injured in the shooting at the Abundant Life Christian School in Madison. The police had incorrectly reported a higher death toll during a news conference.`\
 https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi
 
 **Tice’s Mother Asks Netanyahu for Pause in Syria Strikes to Search for Journalist**\
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5998706/2024/12/16/kyrgios-djokovic-doubles-brisban
 **Jazz observations: Walker Kessler, John Collins have been bright spots**\
 `Thanks to development and familiarity, Utah's big men have made their marks as the Jazz continue to figure out their young roster.`\
 https://nytimes.com/athletic/5997659/2024/12/16/walker-kessler-john-collins-utah-jazz/
-
-**Botman to step up injury recovery with Newcastle U21s**\
-`Sven Botman is edging closer to a first-team return for Newcastle United, with the centre-back set to make his first appearance since March after being named in the club&#8217;s under-21 side to face Chelsea on Monday night.`\
-https://nytimes.com/athletic/5998440/2024/12/16/newcastle-sven-botman-injury-update/
-
-**Women's Euro 2025 draw: England to face France, Netherlands, Wales**\
-`England will face France, Netherlands and Wales at next summer&#8217;s Women&#8217;s European Championship in Switzerland.`\
-https://nytimes.com/athletic/5997884/2024/12/16/womens-euro-2025-draw-england/
-
-**Blasts Rock Syria’s Coast Amid Heavy Israeli Strikes**\
-`Overnight Israeli strikes targeted former Syrian Army positions, including air defense sites and missile warehouses, according to the Syrian Observatory for Human Rights, a war monitor.`\
-https://nytimes.com/video/world/middleeast/100000009880033/tartus-syria-israeli-strikes-military-sites.html
-
-**Dream, Storm to play in first regular-season WNBA game outside U.S.**\
-`The WNBA awarded Toronto a franchise last May, making it the league’s first outside of the United States.`\
-https://nytimes.com/athletic/5998426/2024/12/16/dream-storm-wnba-vancouver-game/
 
