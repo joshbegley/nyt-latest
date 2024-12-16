@@ -1,3 +1,11 @@
+**New York Won’t Be Burned Twice by Mayor Adams’s Deceit**\
+`The council should make campaign finance reform a priority, even if it has to override a mayoral veto.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/eric-adams-campaign-finance-nyc
+
+**The school, founded in 1978, serves grades K-12 and relies on the Bible.**\
+`By Ernesto Londoño`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/the-school-founded-in-1978-serves-grades-k-12-and-relies-on-the-bible
+
 **The U.S. military says its airstrikes killed 12 Islamic State operatives in Syria.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/the-us-military-says-its-airstrikes-killed-12-islamic-state-operatives-in-syria

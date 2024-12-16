@@ -1,3 +1,11 @@
+**New York Won’t Be Burned Twice by Mayor Adams’s Deceit**\
+`The council should make campaign finance reform a priority, even if it has to override a mayoral veto.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/eric-adams-campaign-finance-nyc
+
+**The school, founded in 1978, serves grades K-12 and relies on the Bible.**\
+`By Ernesto Londoño`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/the-school-founded-in-1978-serves-grades-k-12-and-relies-on-the-bible
+
 **The U.S. military says its airstrikes killed 12 Islamic State operatives in Syria.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/the-us-military-says-its-airstrikes-killed-12-islamic-state-operatives-in-syria
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/emergenc
 **Hegseth’s Guard Left the Army After the Beating of a Civilian During Training**\
 `John Hasenbein, who has escorted Donald J. Trump’s pick for defense secretary to meetings on Capitol Hill, said he was unjustly prosecuted for the 2019 episode.`\
 https://nytimes.com/2024/12/16/us/politics/hegseth-bodyguard-army.html
-
-**Trump Says He Would Consider Pardoning Mayor Eric Adams**\
-`During a news conference at Mar-a-Lago, Donald Trump said that he would possibly pardon Mayor Eric Adams of New York City if he was convicted on federal corruption charges.`\
-https://nytimes.com/video/us/politics/100000009880527/trump-says-he-would-consider-pardoning-mayor-eric-adams.html
-
-**A Hanukkah-Ready Recipe That Does Everything Right**\
-`Inspired by a Ukrainian cafe and a mother-in-law’s classic, this take on kasha varnishkes is rich with caramelized onions.`\
-https://nytimes.com/2024/12/16/dining/hanukkah-recipe.html
 
