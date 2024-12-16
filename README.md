@@ -1,3 +1,7 @@
+**Texas Tech transfer WR Micah Hudson commits to Texas A&M**\
+`Hudson was Texas Tech's highest-ranked signee in the modern recruiting era.`\
+https://nytimes.com/athletic/5997196/2024/12/15/micah-hudson-transfer-texas-am/
+
 **It's clear a Browns blowup is necessary following listless loss to Chiefs**\
 `Cleveland is limping toward the end of a miserable season with many unanswered questions ahead. `\
 https://nytimes.com/athletic/5996586/2024/12/15/browns-loss-chiefs-roster-blowup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playof
 **How much worse could this get for the Rangers?**\
 `The Rangers look like a shell of the team that got off to a 12-4-1 start, and the schedule doesn't get any easier.`\
 https://nytimes.com/athletic/5996903/2024/12/15/rangers-free-fall-blues-loss/
-
-**Quote of the Day: Blunt U.S. Ambassador in Nicety-Bound Japan**\
-`Quotation of the Day for Monday, December 16, 2024.`\
-https://nytimes.com/2024/12/15/pageoneplus/quote-of-the-day-blunt-us-ambassador-in-nicety-bound-japan.html
 
