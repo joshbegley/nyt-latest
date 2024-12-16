@@ -1,3 +1,11 @@
+**Fact-Checking Trump’s First Post-Election News Conference**\
+`The president-elect made inaccurate claims about a small-business survey, the federal budget, autism rates and pesticide use, among other claims.`\
+https://nytimes.com/2024/12/16/us/politics/trump-news-conference-fact-check.html
+
+**Syria’s top rebel tries out the role of top diplomat.**\
+`In an interview, Ahmed al-Shara shed his green fatigues and sought to leave his militant past behind to talk of rebuilding the state.`\
+https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-al-sharah
+
 **Lookman, Banda win African Player of the Year awards**\
 `Atalanta and Nigeria forward Ademola Lookman was crowned men’s 2024 CAF Player of the Year in Marrakech at the expense of Morocco international Achraf Hakimi.`\
 https://nytimes.com/athletic/5999264/2024/12/16/caf-awards-lookman-banda/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/16/us/politics/tiktok-ban-supreme-court-first-amendm
 **HBO Ends Partnership With ‘Sesame Street’**\
 `The venerable children’s series must find a new home after about a decade on HBO and its streaming service, Max. Old episodes will be available through 2027.`\
 https://nytimes.com/2024/12/16/arts/television/sesame-street-hbo-max.html
-
-**Ravens, Diontae Johnson mutually agree to excuse WR from Week 16 team activities**\
-`Baltimore had suspended its trade deadline pickup for one week after he refused to take the field in its Week 13 loss. `\
-https://nytimes.com/athletic/5999105/2024/12/16/diontae-johnson-ravens-excuse-team-activities/
-
-**Japan’s SoftBank Makes Big Investment Pledge Ahead of Trump’s Inauguration. Again.**\
-`The technology company plans to invest $100 billion in U.S. projects, echoing the multibillion-dollar pledge it made after Donald J. Trump’s first election victory in 2016.`\
-https://nytimes.com/2024/12/16/us/trump-softbank-investment.html
 
