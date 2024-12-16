@@ -1,3 +1,11 @@
+**Davante Adams showed what he can do — and why he should be back with the Jets in 2025**\
+`The veteran receiver was the difference as the Jets, finally, pulled out a win in a close game.`\
+https://nytimes.com/athletic/5996533/2024/12/15/davante-adams-jets-jaguars-contract-situation/
+
+**Penn State backup QB Beau Pribula to enter transfer portal**\
+`STATE COLLEGE, Pa.`\
+https://nytimes.com/athletic/5996969/2024/12/15/penn-state-beau-pribula-transfer-portal/
+
 **Early opportunity backfires in Blue Jackets' rough loss to Carolina**\
 `The Hurricanes turned the tables on Columbus with a shorthanded goal in the first period to set the tone for a 4-1 defeat.`\
 https://nytimes.com/athletic/5996729/2024/12/15/blue-jackets-power-play-backfire-hurricanes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5996435/2024/12/15/chiefs-patrick-mahomes-injury-br
 **How do you cover this hopeless Giants team? A press box view of their ninth straight loss**\
 `Take a peek behind the curtain as Dan Duggan chronicles his Giants game day — from ponytails to the press box. `\
 https://nytimes.com/athletic/5996409/2024/12/15/giants-loss-ninth-straight-press-box-perspective/
-
-**Eagles win 10th straight in 27-13 victory over Steelers: Takeaways**\
-`The Eagles pulled even with the 12-2 Lions atop the NFC standings while the Steelers still clinched a playoff berth with some help.`\
-https://nytimes.com/athletic/5995325/2024/12/15/steelers-eagles-score-result-takeaways/
-
-**What started out so sweet for Bryce Young devolved into an ugly, turnover fest**\
-`Bryce Young's fumble on the Panthers' impressive opening drive served as a harbinger of things to overcome Sunday against the Cowboys.`\
-https://nytimes.com/athletic/5996509/2024/12/15/panthers-loss-bryce-young-turnovers-cowboys/
 
