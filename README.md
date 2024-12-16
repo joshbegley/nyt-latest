@@ -1,11 +1,3 @@
-**Packers roll Seahawks 30-13 after Jacobs' dominant first quarter: Takeaways**\
-`The Packers amassed seven sacks from six different players and 12 quarterback hits from nine different players.`\
-https://nytimes.com/athletic/5997151/2024/12/15/packers-seahawks-snf-score-result-takeaways/
-
-**The Steelers' offense faced its biggest test yet vs. the Eagles. And flunked it.**\
-`The Steelers have built their roster to be the bully, but they wound up on the opposite end of things Sunday in Philadelphia.`\
-https://nytimes.com/athletic/5997153/2024/12/15/steelers-offense-failed-eagles-biggest-test/
-
 **Josh Allen, Bills look scary good in winning Super Bowl teaser**\
 `The numbers were gaudy in a statement win.`\
 https://nytimes.com/athletic/5997201/2024/12/15/bills-offensive-line-lions-dominant/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5996586/2024/12/15/browns-loss-chiefs-roster-blowup
 **Cardinals, in final push for playoffs, need more from rookie Marvin Harrison Jr.**\
 `The heralded newcomer was expected to provide an explosive boost to Arizona's offense. It's been a work in progress.`\
 https://nytimes.com/athletic/5996856/2024/12/15/arizona-cardinals-marvin-harrison-jr-playoffs/
+
+**Zakir Hussain, Peerless Indian Tabla Player, Dies at 73**\
+`Considered a national treasure in his homeland, he transcended genres and brought classical Indian music to a global audience.`\
+https://nytimes.com/2024/12/15/arts/music/zakir-hussain-dead.html
+
+**Geno Smith exits 'Sunday Night Football' against Packers with knee injury**\
+`Smith was 15-of-19 passing for 149 yards with no touchdowns and one interception before exiting.`\
+https://nytimes.com/athletic/5997104/2024/12/15/geno-smith-injury-seahawks-snf/
 
