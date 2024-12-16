@@ -1,3 +1,15 @@
+**The shooting was the 323rd at elementary or secondary schools this year.**\
+`By Troy Closson`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/the-shooting-was-the-323rd-at-elementary-or-secondary-schools-this-year
+
+**Gilgo Beach Prosecutor Promises Major Development in Serial Killing Case**\
+`The defendant, Rex Heuermann, is due in court Tuesday. Investigators have been trying to tie him to other unsolved killings on Long Island.`\
+https://nytimes.com/2024/12/16/nyregion/gilgo-beach-serial-killing-rex-heuermann.html
+
+**Real Estate Leaders Sue to Stop New York City’s Overhaul of Broker Fees**\
+`A law in New York City shifting broker fees from renters to landlords is set to take effect in June. Real estate leaders want to stop it.`\
+https://nytimes.com/2024/12/16/nyregion/broker-fees-lawsuit-nyc.html
+
 **Black Student Enrollment at Harvard Law Drops by More Than Half**\
 `After a Supreme Court decision ended race-based admissions, some law schools saw a decline in Black and Hispanic students entering this fall. Harvard appeared to have the steepest drop.`\
 https://nytimes.com/2024/12/16/us/harvard-law-black-students-enrollment-decline.html
