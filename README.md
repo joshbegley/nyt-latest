@@ -1,3 +1,7 @@
+**Penn State starting QB Drew Allar plans to return in 2025: Source**\
+`Backup QB Beau Pribula announced his intention to enter the transfer portal on Sunday, which signaled a possible return from Allar.`\
+https://nytimes.com/athletic/5998578/2024/12/16/drew-allar-penn-state-quarterback-return/
+
 **Supreme Court Rejects Ex-Lt. Gov. of New York’s Bid to Dismiss Charges**\
 `The former lieutenant governor, Brian Benjamin, is accused of funneling state money to a local real estate developer in exchange for campaign contributions.`\
 https://nytimes.com/2024/12/16/nyregion/brian-benjamin-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/heres-what-to-
 **Mike Norvell restructures contract with FSU, directing $4.5 million to fundraising**\
 `Norvell’s Seminoles finished 2-10 this season, in one of the biggest year-over-year collapses in college football history.`\
 https://nytimes.com/athletic/5998470/2024/12/16/florida-state-mike-norvell-contract/
-
-**Should the Senators re-sign Adam Gaudette? Would Brady Tkachuk want out? Mailbag**\
-`Should the Senators should move on from a piece of their core? What makes this team worth watching?`\
-https://nytimes.com/athletic/5978629/2024/12/16/senators-brady-tkachuk-adam-gaudette/
 
