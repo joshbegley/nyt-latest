@@ -1,3 +1,7 @@
+**'I was so lost in my own mind': Wild's Jesper Wallstedt opens up about his trying season**\
+`Despite a 3-2 loss to Vegas in his home debut, Wallstedt is on the upswing after a rough start to the season.`\
+https://nytimes.com/athletic/5997200/2024/12/15/wild-jesper-wallstedt-struggle-goalie-home-debut/
+
 **How Chargers respond to Bucs beatdown will decide fate of Jim Harbaugh's debut season**\
 `The Chargers have looked like a revitalized organization. Sunday's blowout loss to the Buccaneers will test their resolve.`\
 https://nytimes.com/athletic/5997263/2024/12/15/chargers-loss-buccaneers-response-jim-harbaugh/
