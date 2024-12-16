@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5997645/2024/12/16/canadiens-alex-newhooks-kirby-da
 https://nytimes.com/athletic/5998252/2024/12/16/pep-lijnders-red-bull-salzburg/
 
 **Hollinger's Week That Was: Schröder trade thoughts + is Marquette's Jones a lotto pick?**\
-`We've reached trade season! The Pistons waiving Reed has interesting cap implications, and the Thunder have a long road after the NBA Cup.`\
+`The Pistons waiving Paul Reed has interesting cap implications, and the Thunder have a long road after the NBA Cup.`\
 https://nytimes.com/athletic/5995339/2024/12/16/dennis-schroder-trade-warriors-kam-jones-marquette/
 
 **Live Updates: Al-Assad Didn’t Plan to Flee Syria, Statement Says**\
