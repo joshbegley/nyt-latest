@@ -1,7 +1,3 @@
-**Baker Mayfield's 4 TDs propel Bucs past Chargers 40-17: Takeaways**\
-`Tampa's Mike Evans racked up 159 receiving yards and two second half scores as Buccaneers dominated L.A.`\
-https://nytimes.com/athletic/5995320/2024/12/15/buccaneers-chargers-score-result-takeaways/
-
 **The Narrator**\
 `Banias is an 8-year-old living in Gaza, and she has a story to tell — many stories, in fact.`\
 https://nytimes.com/2024/12/15/podcasts/the-narrator-this-american-life-nyt-audio.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5995521/2024/12/15/commanders-victory-saints/
 **Four takeaways and 6 sacks: Cowboys defense 'set the tone' in stifling Panthers**\
 `Micah Parsons picks up two more sacks and the Cowboys dominated the Panthers in the third quarter to open up a tight game at the half.`\
 https://nytimes.com/athletic/5996390/2024/12/15/cowboys-defense-takeways-sacks-panthers/
+
+**Private Schools Group Apologizes After Claims of Antisemitism at Event**\
+`After criticism from Jewish groups over speeches at a conference, the president of the National Association of Independent Schools said future addresses would be vetted.`\
+https://nytimes.com/2024/12/15/nyregion/antisemitism-conference-private-schools.html
 
