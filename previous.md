@@ -1,3 +1,15 @@
+**The unsung hero of Bills win over Lions? An offensive line the seems to slip under the radar**\
+`The offensive line is one reason why the Bills keep putting up big numbers.`\
+https://nytimes.com/athletic/5997247/2024/12/16/bills-offensive-line-lions-dominant-dion-dawkins/
+
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/12/16/briefing/rebels-syria-israel-ireland.html
+
+**Myanmar’s War Has Forced Doctors and Nurses Into Prostitution**\
+`Nearly four years into a grinding civil conflict, the economy is in ruins, and people — even professionals with degrees — are desperate.`\
+https://nytimes.com/2024/12/16/world/asia/myanmar-war-women-prostitution.html
+
 **The Joy of Christmas Ornaments (as a Jew)**\
 `After I met my husband, I realized there was a whole little world inside these ornaments.`\
 https://nytimes.com/2024/12/16/style/christmas-ornaments-jew.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5996543/2024/12/15/blues-kyrou-maturity-montgomery-
 **How Chargers respond to Bucs beatdown will decide fate of Jim Harbaugh's debut season**\
 `The Chargers have looked like a revitalized organization. Sunday's blowout loss to the Buccaneers will test their resolve.`\
 https://nytimes.com/athletic/5997263/2024/12/15/chargers-loss-buccaneers-response-jim-harbaugh/
-
-**'I was so lost in my own mind': Wild's Jesper Wallstedt opens up about his trying season**\
-`Despite a 3-2 loss to Vegas in his home debut, Wallstedt is on the upswing after a rough start to the season.`\
-https://nytimes.com/athletic/5997200/2024/12/15/wild-jesper-wallstedt-struggle-goalie-home-debut/
-
-**Texas Tech transfer WR Micah Hudson commits to Texas A&M**\
-`Hudson was Texas Tech's highest-ranked signee in the modern recruiting era.`\
-https://nytimes.com/athletic/5997196/2024/12/15/micah-hudson-transfer-texas-am/
-
-**It's clear a Browns blowup is necessary after listless loss to Chiefs**\
-`Cleveland is limping toward the end of a miserable season with many unanswered questions ahead. `\
-https://nytimes.com/athletic/5996586/2024/12/15/browns-loss-chiefs-roster-blowup/
 

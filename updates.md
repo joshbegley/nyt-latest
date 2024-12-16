@@ -1,3 +1,15 @@
+**The unsung hero of Bills win over Lions? An offensive line the seems to slip under the radar**\
+`The offensive line is one reason why the Bills keep putting up big numbers.`\
+https://nytimes.com/athletic/5997247/2024/12/16/bills-offensive-line-lions-dominant-dion-dawkins/
+
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/12/16/briefing/rebels-syria-israel-ireland.html
+
+**Myanmar’s War Has Forced Doctors and Nurses Into Prostitution**\
+`Nearly four years into a grinding civil conflict, the economy is in ruins, and people — even professionals with degrees — are desperate.`\
+https://nytimes.com/2024/12/16/world/asia/myanmar-war-women-prostitution.html
+
 **The Joy of Christmas Ornaments (as a Jew)**\
 `After I met my husband, I realized there was a whole little world inside these ornaments.`\
 https://nytimes.com/2024/12/16/style/christmas-ornaments-jew.html
