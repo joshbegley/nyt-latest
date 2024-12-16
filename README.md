@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2024/12/16/books/review/dickens-london-quiz.html
 https://nytimes.com/2024/12/16/world/europe/georgia-ski-resort-carbon-monoxide-poisoning.html
 
 **Chrystia Freeland, Canada’s Deputy Prime Minister, Resigns From Cabinet**\
-`The departure of Ms. Freeland came hours before she was scheduled to outline the government’s commitments to improve border security with the United States.`\
+`The departure of Ms. Freeland, who had been helping lead Canada’s response to the incoming Trump administration, threatens Prime Minister Justin Trudeau’s ability to lead his party.`\
 https://nytimes.com/2024/12/16/world/canada/chrystia-freeland-resigns-canada-finance-minister.html
 
 **What I learned about Ohio State-Tennessee after a week of watching Vols games**\
