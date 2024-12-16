@@ -1,3 +1,7 @@
+**Early opportunity backfires in Blue Jackets' rough loss to Carolina**\
+`The Hurricanes turned the tables on Columbus with a shorthanded goal in the first period to set the tone for a 4-1 defeat.`\
+https://nytimes.com/athletic/5996729/2024/12/15/blue-jackets-power-play-backfire-hurricanes/
+
 **CeeDee Lamb continues to be bright spot in otherwise disappointing Cowboys season**\
 `Lamb had his second 100-yard game this season and topped 1,000 receiving yards for the fourth consecutive season. `\
 https://nytimes.com/athletic/5996635/2024/12/15/ceedee-lamb-cowboys-1000-yards-panthers-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995325/2024/12/15/steelers-eagles-score-result-tak
 **What started out so sweet for Bryce Young devolved into an ugly, turnover fest**\
 `Bryce Young's fumble on the Panthers' impressive opening drive served as a harbinger of things to overcome Sunday against the Cowboys.`\
 https://nytimes.com/athletic/5996509/2024/12/15/panthers-loss-bryce-young-turnovers-cowboys/
-
-**Baker Mayfield's 4 TDs propel Bucs past Chargers 40-17: Takeaways**\
-`Mike Evans racked up 159 receiving yards and two second half scores as the Buccaneers dominated the Chargers.`\
-https://nytimes.com/athletic/5995320/2024/12/15/buccaneers-chargers-score-result-takeaways/
 
