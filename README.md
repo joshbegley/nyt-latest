@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/16/world/middleeast/syria-al-shara-al-assad.html
 `Jennifer Granholm said a new analysis showed that the continued pace of exports was “neither sustainable nor advisable.”`\
 https://nytimes.com/2024/12/16/climate/jennifer-granholm-gas-exports.html
 
-**Gregg Popovich returning to Spurs bench after suffering mild stroke**\
+**Popovich looking forward to return to coaching after suffering mild stroke**\
 `Spurs assistant coach Mitch Johnson took over in his absence, with San Antonio going 10-10 since then.`\
 https://nytimes.com/athletic/5999623/2024/12/16/gregg-popovich-return-spurs-stroke/
 
