@@ -1,3 +1,7 @@
+**Submit your questions for Mike DeFabo's Steelers mailbag**\
+`The Steelers have clinched a playoff spot but are in the middle of a grueling stretch. What's on your mind? What are you curious about?`\
+https://nytimes.com/athletic/5999576/2024/12/16/steelers-mailbag-ravens-week-16/
+
 **The shooting was the 323rd at elementary or secondary schools this year.**\
 `By Troy Closson`\
 https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/the-shooting-was-the-323rd-at-elementary-or-secondary-schools-this-year
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/t-magazine/artist-dennis-maher-dollhouse-filled-h
 **House Tour | Dennis Maher**\
 `The artist’s Victorian home in Buffalo, N.Y., is filled with found objects, including over 100 dollhouses.`\
 https://nytimes.com/video/t-magazine/100000009844356/house-tour-dennis-maher.html
-
-**NFL Week 16 odds, spreads, schedule: Mahomes' injury swings Texans-Chiefs line and more**\
-`With Patrick Mahomes' injury, the Chiefs odds flipped Monday to make them underdogs vs. the Texans. Plus, playoff stakes around the league.`\
-https://nytimes.com/athletic/5998419/2024/12/16/nfl-week-16-odds-spreads-schedule-mahomes-injury/
 

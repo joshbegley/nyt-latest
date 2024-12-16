@@ -1,3 +1,7 @@
+**Submit your questions for Mike DeFabo's Steelers mailbag**\
+`The Steelers have clinched a playoff spot but are in the middle of a grueling stretch. What's on your mind? What are you curious about?`\
+https://nytimes.com/athletic/5999576/2024/12/16/steelers-mailbag-ravens-week-16/
+
 **The shooting was the 323rd at elementary or secondary schools this year.**\
 `By Troy Closson`\
 https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/the-shooting-was-the-323rd-at-elementary-or-secondary-schools-this-year
