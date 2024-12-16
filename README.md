@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5997263/2024/12/15/chargers-loss-buccaneers-response-jim-harbaugh/
 
 **'I was so lost in my own mind': Wild's Jesper Wallstedt opens up about his trying season**\
-`Despite a 3-2 loss to Vegas in his home debut, Jesper Wallstedt is on the upswing after a rough start to the season.`\
+`Despite a 3-2 loss to Vegas in his home debut, Wallstedt is on the upswing after a rough start to the season.`\
 https://nytimes.com/athletic/5997200/2024/12/15/wild-jesper-wallstedt-struggle-goalie-home-debut/
 
 **Texas Tech transfer WR Micah Hudson commits to Texas A&M**\
