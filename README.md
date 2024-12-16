@@ -4,7 +4,7 @@ https://nytimes.com/2024/12/16/us/immigration-undocumented-workers-jabil.html
 
 **The Deadly Lure of Subway Surfing**\
 `For more than a century, people have climbed on top of moving trains in search of a thrill. Now social media has attracted a new generation of daredevils.`\
-https://nytimes.com/2024/12/16/sports/subway-surfing-problem-nyc.html
+https://nytimes.com/2024/12/16/nyregion/subway-surfing-problem-nyc.html
 
 **Here’s what to know.**\
 `By Vivian Yee and Matthew Mpoke Bigg`\
