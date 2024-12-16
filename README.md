@@ -1,4 +1,4 @@
-**Spanish football federation elect Louzan as new president**\
+**Spanish football federation elects Louzan as new president**\
 `The Royal Spanish Football Federation (RFEF) has elected Rafael Louzan as its new president.`\
 https://nytimes.com/athletic/5997874/2024/12/16/spanish-football-federation-president-elections/
 
