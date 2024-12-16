@@ -1,3 +1,7 @@
+**Wake Forest coach Dave Clawson stepping down: Who will lead Deacons?**\
+`The Demon Deacons just wrapped their second consecutive 4-8 season.`\
+https://nytimes.com/athletic/5999248/2024/12/16/wake-forest-coach-dave-clawson-retiring/
+
 **TikTok Asks Supreme Court to Block Law Banning Its U.S. Operations**\
 `The company and its Chinese parent invoked the First Amendment in urging the justices to step in before a Jan. 19 deadline to sell or be shut down.`\
 https://nytimes.com/2024/12/16/us/politics/tiktok-ban-supreme-court-first-amendment.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/04/opinion/thepoint/eric-adams-campaign-finance
 **The school, founded in 1978, serves grades K-12 and relies on the Bible.**\
 `By Ernesto Londoño`\
 https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/the-school-founded-in-1978-serves-grades-k-12-and-relies-on-the-bible
-
-**The U.S. military says its airstrikes killed 12 Islamic State operatives in Syria.**\
-`By Eve Sampson`\
-https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/the-us-military-says-its-airstrikes-killed-12-islamic-state-operatives-in-syria
 
