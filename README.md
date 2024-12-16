@@ -1,3 +1,7 @@
+**The Ordinary Explanations Behind the Mysterious Lights in the Skies**\
+`As tips roll in, most reported incidents involve piloted planes and hobby drones, not foreign spying or secret programs, officials say.`\
+https://nytimes.com/2024/12/16/us/politics/ordinary-explanations-mysterious-lights.html
+
 **Submit your questions for Mike DeFabo's Steelers mailbag**\
 `The Steelers have clinched a playoff spot but are in the middle of a grueling stretch. What's on your mind? What are you curious about?`\
 https://nytimes.com/athletic/5999576/2024/12/16/steelers-mailbag-ravens-week-16/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5999308/2024/12/16/kaprizov-empty-net-goals-wild/
 **An ‘Architectural Dream World’ Filled With Hundreds of Dollhouses**\
 `The artist Dennis Maher — who rescued his Buffalo, N.Y., home from the brink of destruction — has always treasured what others have overlooked.`\
 https://nytimes.com/2024/12/16/t-magazine/artist-dennis-maher-dollhouse-filled-home.html
-
-**House Tour | Dennis Maher**\
-`The artist’s Victorian home in Buffalo, N.Y., is filled with found objects, including over 100 dollhouses.`\
-https://nytimes.com/video/t-magazine/100000009844356/house-tour-dennis-maher.html
 
