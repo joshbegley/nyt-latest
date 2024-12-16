@@ -1,3 +1,15 @@
+**Why Enzo Maresca can no longer ignore Chelsea's discipline issue**\
+`Chelsea and Maresca are rightly praised for their success so far, but the number of suspensions being picked up should be a concern.`\
+https://nytimes.com/athletic/5996424/2024/12/16/chelsea-discipline-maresca/
+
+**The Warriors' revolving door at off-guard is about to get a Dennis Schröder boost**\
+`Schröder will add a pick-and-roll element for the Warriors and try to offer improved play over Brandin Podziemski.`\
+https://nytimes.com/athletic/5994643/2024/12/16/warriors-dennis-schroder-brandin-podziemski/
+
+**It took Djed Spence 881 days to make his first start for Tottenham - it was worth the wait**\
+`It has taken far longer than expected - but Spence is finally ready to make his mark for Spurs`\
+https://nytimes.com/athletic/5996822/2024/12/16/djed-spence-tottenham-hotspur-first-start/
+
 **Guinea stadium disaster special report: 'This door here, it's the door to hell'**\
 `Two weeks on from a tragedy that killed at least 56 people and perhaps many more, those affected speak to The Athletic`\
 https://nytimes.com/athletic/5968719/2024/12/16/guinea-stadium-disaster-nzerekore/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/16/arts/television/tales-of-messy-romances-plus-6-th
 **Eagles passing game springs to life against Steelers after week of narratives, accountability**\
 `The Eagles passing game led the way when the run game didn't.`\
 https://nytimes.com/athletic/5996126/2024/12/16/eagles-passing-jalen-hurts-aj-brown-steelers/
-
-**Leagues Cup changes afoot in 2025 says Liga MX chief, scrapping midseason break**\
-`MLS and Mexican teams will battle for a revamped Leagues Cup next season, Liga MX president Mikel Arriola says.`\
-https://nytimes.com/athletic/5997443/2024/12/16/leagues-cup-mls-ligamx/
-
-**Fantasy football Week 15 takeaways: Brian Thomas Jr. is a beast; Rico Dowdle is climbing the 2025 ranks**\
-`Among his Week 15 takes, Michael Salfino thinks rookie Brian Thomas Jr. is going to be no worse than a top 15 receiver pick in 2025 drafts.`\
-https://nytimes.com/athletic/5996370/2024/12/16/fantasy-football-week-15-takeaways-brian-thomas-jr-is-a-beast-rico-dowdle-is-climbing-the-2025-ranks/
-
-**Emery, an intense manager tweaking his methods as Aston Villa navigate uncharted territory**\
-`How Aston Villa's manager is altering his approach during a relentless run of fixtures`\
-https://nytimes.com/athletic/5993708/2024/12/16/unai-emery-aston-villa-forest-fatigue/
 
