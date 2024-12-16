@@ -1,3 +1,15 @@
+**Trump Meets the Press**\
+`Reflecting on how much has changed, and hasn’t, for Donald Trump since he first became president.`\
+https://nytimes.com/2024/12/16/us/politics/trump-press-conference.html
+
+**An Offhand Remark by Trump Gives a Glimpse Into His Worldview**\
+`“The first term, everybody was fighting me,” the president-elect said. “In this term, everybody wants to be my friend.”`\
+https://nytimes.com/2024/12/16/us/politics/trump-news-conference-remarks.html
+
+**Jay-Z Will Seek Dismissal of Assault Lawsuit His Lawyer Calls a ‘Sham’**\
+`The woman who accused him of raping her in 2000, when she was a minor, acknowledged to NBC that there were inconsistencies in her account, but stood by her claim.`\
+https://nytimes.com/2024/12/16/arts/music/jay-z-lawsuit-assault.html
+
 **Dick Van Arsdale, 81, One of First Identical Twins in the N.B.A., Dies**\
 `A three-time All-Star, he played for the Knicks and the Phoenix Suns. For one season, he and Tom Van Arsdale were hard-to-tell-apart teammates.`\
 https://nytimes.com/2024/12/16/sports/basketball/dick-van-arsdale-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/a-studen
 **Trump Held His First News Conference as President-Elect**\
 `Also, Syria’s new leader called for sanctions to be lifted. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/12/16/briefing/trump-news-conference-germany-government-collapse.html
-
-**Syrian Rebel Leader Calls for Lifting of Sanctions, as al-Assad Defends Exit**\
-`Ahmed al-Shara urged nations to remove sanctions from Syria and the terrorism designation from his group so Syria could rebuild. Bashar al-Assad also gave his first account of fleeing to Russia.`\
-https://nytimes.com/2024/12/16/world/middleeast/syria-al-shara-al-assad.html
-
-**‘Unfettered’ Gas Exports Would Harm U.S. Economy, Energy Secretary Warns**\
-`Jennifer Granholm said a new analysis showed that the continued pace of exports was “neither sustainable nor advisable.”`\
-https://nytimes.com/2024/12/16/climate/jennifer-granholm-gas-exports.html
-
-**Popovich looking forward to return to coaching after suffering mild stroke**\
-`Spurs assistant coach Mitch Johnson took over in his absence, with San Antonio going 10-10 since then.`\
-https://nytimes.com/athletic/5999623/2024/12/16/gregg-popovich-return-spurs-stroke/
 
