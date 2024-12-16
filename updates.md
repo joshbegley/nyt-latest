@@ -1,3 +1,7 @@
+**The Great Capitulation**\
+`Powerful Americans have lost the will to resist Trump.`\
+https://nytimes.com/2024/12/16/opinion/trump-tech-leaders-support.html
+
 **This Is the Secret to the Perfect Baked Potato**\
 `A simple trick yields crisp outsides and fluffy insides, ready to be topped in three smart, exciting ways from Eric Kim.`\
 https://nytimes.com/2024/12/16/dining/how-to-make-baked-potatoes.html
