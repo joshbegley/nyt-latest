@@ -1,3 +1,11 @@
+**Emergency workers were mobilized quickly, dispatch audio indicates.**\
+`By Mitch Smith`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/emergency-workers-were-mobilized-quickly-dispatch-audio-indicates
+
+**Hegseth’s Guard Left the Army After the Beating of a Civilian During Training**\
+`John Hasenbein, who has escorted Donald J. Trump’s pick for defense secretary to meetings on Capitol Hill, said he was unjustly prosecuted for the 2019 episode.`\
+https://nytimes.com/2024/12/16/us/politics/hegseth-bodyguard-army.html
+
 **Trump Says He Would Consider Pardoning Mayor Eric Adams**\
 `During a news conference at Mar-a-Lago, Donald Trump said that he would possibly pardon Mayor Eric Adams of New York City if he was convicted on federal corruption charges.`\
 https://nytimes.com/video/us/politics/100000009880527/trump-says-he-would-consider-pardoning-mayor-eric-adams.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009880641/madison-wisconsin-school-shooting.h
 **AP men's Top 25: Tennessee holds No. 1 spot, Kentucky jumps Duke**\
 `Tennessee is coming off a 2-0 week after defeating Miami on Tuesday. Kentucky jumped Duke one spot after defeating Louisville`\
 https://nytimes.com/athletic/5998406/2024/12/16/ap-mens-basketball-top-25-tennessee-kentucky-duke/
-
-**Live Updates: 3 Dead at Wisconsin Christian School, Including Shooter, Police Say**\
-`At least six others were injured in the shooting at the Abundant Life Christian School in Madison. The police had incorrectly reported a higher death toll during a news conference.`\
-https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi
-
-**Tice’s Mother Asks Netanyahu for Pause in Syria Strikes to Search for Journalist**\
-`Debra Tice wrote to the Israeli prime minister that her family had “credible information” that Austin Tice may be held in a prison outside Damascus, in an area where Israel had been conducting military operations.`\
-https://nytimes.com/2024/12/16/world/middleeast/austin-tice-mother-netanyahu-israel.html
 
