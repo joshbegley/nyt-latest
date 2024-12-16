@@ -1,3 +1,11 @@
+**Submit your Panthers mailbag questions to Joe Person**\
+`Is Bryce Young "the guy"? What should the Panthers do with their high draft pick? What questions do you have?`\
+https://nytimes.com/athletic/5999049/2024/12/16/submit-your-panthers-mailbag-questions-to-joe-person-12/
+
+**Submit your Cardinals questions for Katie Woo's mailbag**\
+`Submit your Cardinals questions for Katie Woo's mailbag`\
+https://nytimes.com/athletic/5999050/2024/12/16/cardinals-offseason-mailbag/
+
 **Rangers observations: Examining Kakko's trade value, Kreider reflects on Trouba trade**\
 `Kakko has been one of the Rangers' most consistent forwards. What could Chris Drury expect in a possible trade? `\
 https://nytimes.com/athletic/5998862/2024/12/16/rangers-kaapo-kakko-trade-chris-kreider/
