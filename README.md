@@ -1,4 +1,4 @@
-**Dick Van Arsdale, One of First Identical Twins in the N.B.A., Dies at 81**\
+**Dick Van Arsdale, 81, One of First Identical Twins in the N.B.A., Dies**\
 `A three-time All-Star, he played for the Knicks and the Phoenix Suns. For one season, he and Tom Van Arsdale were hard-to-tell-apart teammates.`\
 https://nytimes.com/2024/12/16/sports/basketball/dick-van-arsdale-dead.html
 
