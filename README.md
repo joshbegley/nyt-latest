@@ -1,3 +1,7 @@
+**Barcelona's Yamal out for up to a month with ankle injury**\
+`Lamine Yamal faces up to a month out injured after sustaining an ankle injury in Barcelona&#8217;s 1-0 loss against Leganes on Sunday.`\
+https://nytimes.com/athletic/5997833/2024/12/16/lamine-yamal-barcelona-injury/
+
 **Netanyahu Tells Trump Israel Must ‘Complete Its Victory’**\
 `Prime Minister Benjamin Netanyahu of Israel said he told President-elect Donald J. Trump that the country had delivered “a tough blow” against Hamas and Hezbollah.`\
 https://nytimes.com/2024/12/16/us/politics/trump-netanyahu-phone-call-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5997837/2024/12/16/emma-raducanu-tennis-ranking-sch
 **NBA Rewind: Jimmy Butler, Brandon Ingram highlight the start of trade season**\
 `NBA trade season got underway this weekend. Which big names could be on the move?`\
 https://nytimes.com/athletic/5995758/2024/12/16/jimmy-butler-brandon-ingram-nba-trade/
-
-**The Athletic FC: Amorim and Amad sink City, two coaches sacked, how good was Martinez save?**\
-`Today in TAFC: Amorim's tough love helps United sink City, two Premier League head coaches sacked, Martinez's magical save.`\
-https://nytimes.com/athletic/5997803/2024/12/16/united-city-amad-oneil/
 
