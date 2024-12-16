@@ -1,6 +1,6 @@
 **The Ordinary Explanations Behind the Mysterious Lights in the Skies**\
 `As tips roll in, most reported incidents involve piloted planes and hobby drones, not foreign spying or secret programs, officials say.`\
-https://nytimes.com/2024/12/16/us/politics/ordinary-explanations-mysterious-lights.html
+https://nytimes.com/2024/12/16/us/politics/drone-sightings-explanations.html
 
 **Submit your questions for Mike DeFabo's Steelers mailbag**\
 `The Steelers have clinched a playoff spot but are in the middle of a grueling stretch. What's on your mind? What are you curious about?`\
