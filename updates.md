@@ -1,3 +1,7 @@
+**Penn State starting QB Drew Allar plans to return in 2025: Source**\
+`Backup QB Beau Pribula announced his intention to enter the transfer portal on Sunday, which signaled a possible return from Allar.`\
+https://nytimes.com/athletic/5998578/2024/12/16/drew-allar-penn-state-quarterback-return/
+
 **Supreme Court Rejects Ex-Lt. Gov. of New York’s Bid to Dismiss Charges**\
 `The former lieutenant governor, Brian Benjamin, is accused of funneling state money to a local real estate developer in exchange for campaign contributions.`\
 https://nytimes.com/2024/12/16/nyregion/brian-benjamin-supreme-court.html
