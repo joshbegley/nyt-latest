@@ -1,3 +1,7 @@
+**'I love where it's going': Flyers' Tortorella pleased with Michkov's progress, attitude**\
+`Despite some on-ice bumps, the rookie has earned support and praise from his tough coach.`\
+https://nytimes.com/athletic/5999187/2024/12/16/michkov-flyers-tortorella-coach/
+
 **Taylor Rooks to be lead host of Amazon's NBA coverage: Sources**\
 `Rooks currently works on Amazon Prime's "Thursday Night Football" coverage as a features reporter.`\
 https://nytimes.com/athletic/5999091/2024/12/16/taylor-rooks-amazon-nba-coverage/
