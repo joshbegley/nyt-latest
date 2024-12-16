@@ -18,7 +18,7 @@ https://nytimes.com/2024/12/16/well/eat/protein-powder-scams.html
 `The New York City Campaign Finance Board voted to withhold as much as $4.3 million in matching funds from Mayor Eric Adams, hampering his re-election bid.`\
 https://nytimes.com/2024/12/16/nyregion/eric-adams-matching-funds-campaign-finance.html
 
-**Balogun to be out for four months after shoulder surgery - Hutter**\
+**Balogun out for four months after shoulder surgery, says Monaco coach**\
 `USMNT and Monaco striker Folarin Balogun is expected to be sidelined for four months as he prepares to undergo shoulder surgery.`\
 https://nytimes.com/athletic/5998329/2024/12/16/balogun-shoulder-injury-update/
 
