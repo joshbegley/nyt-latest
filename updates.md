@@ -1,3 +1,19 @@
+**Texas Tech transfer WR Micah Hudson commits to Texas A&M**\
+`Hudson was Texas Tech's highest-ranked signee in the modern recruiting era.`\
+https://nytimes.com/athletic/5997196/2024/12/15/micah-hudson-transfer-texas-am/
+
+**It's clear a Browns blowup is necessary following listless loss to Chiefs**\
+`Cleveland is limping toward the end of a miserable season with many unanswered questions ahead. `\
+https://nytimes.com/athletic/5996586/2024/12/15/browns-loss-chiefs-roster-blowup/
+
+**Cardinals, in final push for playoffs, need more from rookie Marvin Harrison Jr.**\
+`The heralded newcomer was expected to provide an explosive boost to Arizona's offense. It's been a work in progress.`\
+https://nytimes.com/athletic/5996856/2024/12/15/arizona-cardinals-marvin-harrison-jr-playoffs/
+
+**Zakir Hussain, Peerless Indian Tabla Player, Dies at 73**\
+`Considered a national treasure in his homeland, he transcended genres and brought classical Indian music to a global audience.`\
+https://nytimes.com/2024/12/15/arts/music/zakir-hussain-dead.html
+
 **Broncos were gifted Jonathan Taylor's gaffe, but also made their own luck as playoffs near**\
 `Denver knows the Colts' TD coming off the scoreboard was a gift, but also capitalized by scoring 24 unanswered points afterward.`\
 https://nytimes.com/athletic/5996864/2024/12/15/broncos-win-colts-jonathan-taylor-luck-playoff-picture/

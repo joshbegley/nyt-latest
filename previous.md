@@ -1,3 +1,19 @@
+**Texas Tech transfer WR Micah Hudson commits to Texas A&M**\
+`Hudson was Texas Tech's highest-ranked signee in the modern recruiting era.`\
+https://nytimes.com/athletic/5997196/2024/12/15/micah-hudson-transfer-texas-am/
+
+**It's clear a Browns blowup is necessary following listless loss to Chiefs**\
+`Cleveland is limping toward the end of a miserable season with many unanswered questions ahead. `\
+https://nytimes.com/athletic/5996586/2024/12/15/browns-loss-chiefs-roster-blowup/
+
+**Cardinals, in final push for playoffs, need more from rookie Marvin Harrison Jr.**\
+`The heralded newcomer was expected to provide an explosive boost to Arizona's offense. It's been a work in progress.`\
+https://nytimes.com/athletic/5996856/2024/12/15/arizona-cardinals-marvin-harrison-jr-playoffs/
+
+**Zakir Hussain, Peerless Indian Tabla Player, Dies at 73**\
+`Considered a national treasure in his homeland, he transcended genres and brought classical Indian music to a global audience.`\
+https://nytimes.com/2024/12/15/arts/music/zakir-hussain-dead.html
+
 **Geno Smith exits 'Sunday Night Football' against Packers with knee injury**\
 `Smith was 15-of-19 passing for 149 yards with no touchdowns and one interception before exiting.`\
 https://nytimes.com/athletic/5997104/2024/12/15/geno-smith-injury-seahawks-snf/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playof
 **How much worse could this get for the Rangers?**\
 `The Rangers look like a shell of the team that got off to a 12-4-1 start, and the schedule doesn't get any easier.`\
 https://nytimes.com/athletic/5996903/2024/12/15/rangers-free-fall-blues-loss/
-
-**Quote of the Day: Blunt U.S. Ambassador in Nicety-Bound Japan**\
-`Quotation of the Day for Monday, December 16, 2024.`\
-https://nytimes.com/2024/12/15/pageoneplus/quote-of-the-day-blunt-us-ambassador-in-nicety-bound-japan.html
-
-**Davante Adams showed what he can do — and why he should be back with the Jets in 2025**\
-`The veteran receiver was the difference as the Jets, finally, pulled out a win in a close game.`\
-https://nytimes.com/athletic/5996533/2024/12/15/davante-adams-jets-jaguars-contract-situation/
-
-**Penn State backup QB Beau Pribula to enter transfer portal**\
-`Pribula, who won't be with PSU this postseason, should become one of the most intriguing quarterbacks available in this transfer window.`\
-https://nytimes.com/athletic/5996969/2024/12/15/penn-state-beau-pribula-transfer-portal/
-
-**Early opportunity backfires in Blue Jackets' rough loss to Hurricanes**\
-`The Hurricanes turned the tables on the Blue Jackets with a short-handed goal in the first period to set the tone for a 4-1 defeat.`\
-https://nytimes.com/athletic/5996729/2024/12/15/blue-jackets-power-play-backfire-hurricanes/
 
