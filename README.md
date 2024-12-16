@@ -1,3 +1,15 @@
+**A Constitutional Convention? Some Democrats Fear It’s Coming.**\
+`Some Republicans have said that a constitutional convention is overdue. Many Democratic-led states have rescinded their long-ago calls for one, and California will soon consider whether to do the same.`\
+https://nytimes.com/2024/12/16/us/a-constitutional-convention-some-democrats-fear-its-coming.html
+
+**Serie A side Como open to Dele training with them in January**\
+`Como are open to allowing Dele Alli to train with the club in January as the midfielder continues his recovery from injury.`\
+https://nytimes.com/athletic/5998197/2024/12/16/dele-alli-como-future/
+
+**In second return to Golden State, Klay Thompson puts up his best showing as a Maverick**\
+`On a record shooting night for both teams, Luka Dončić had a huge triple-double, and Dallas won for the 12th time in its past 14 games.`\
+https://nytimes.com/athletic/5997620/2024/12/16/klay-thompson-mavericks-win-warriors/
+
 **Spanish football federation elects Louzan as new president**\
 `The Royal Spanish Football Federation (RFEF) has elected Rafael Louzan as its new president.`\
 https://nytimes.com/athletic/5997874/2024/12/16/spanish-football-federation-president-elections/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5998018/2024/12/16/guido-burgstaller-attack-rapid-v
 **In a lost Raiders' season, Monday night serves as showcase for strong rookie class**\
 `Tight end Brock Bowers needs 19 catches in his final four games to break Puka Nacua's rookie receptions record of 105.`\
 https://nytimes.com/athletic/5994848/2024/12/16/raiders-rookies-mnf-brock-bowers/
-
-**Trump Transition Live Updates: Hegseth Will Release Accuser From Confidential Agreement, Graham Says**\
-``\
-https://nytimes.com/live/2024/12/16/us/trump-news
-
-**Barcelona's Yamal out for up to a month with ankle injury**\
-`Lamine Yamal faces up to a month out injured after sustaining a right ankle injury in Barcelona&#8217;s 1-0 loss against Leganes on Sunday.`\
-https://nytimes.com/athletic/5997833/2024/12/16/lamine-yamal-barcelona-injury/
-
-**Netanyahu Tells Trump Israel Must ‘Complete Its Victory’**\
-`Prime Minister Benjamin Netanyahu of Israel said he told President-elect Donald J. Trump that the country had delivered “a tough blow” against Hamas and Hezbollah.`\
-https://nytimes.com/2024/12/16/us/politics/trump-netanyahu-phone-call-israel.html
 
