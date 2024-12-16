@@ -1,3 +1,12 @@
+**Alex Zendejas helps USMNT cause with starring role in Liga MX title triumph**\
+`Recently unsure whether to represent USA or Mexico, Alex Zendejas could thrive under Mauricio Pochettino`\
+https://nytimes.com/athletic/5997593/2024/12/16/alex-zendejas-ligamx-club-america/
+
+**Crystal Palace shake off their Brighton blues - and show an impetus to kick on**\
+`Glasner and his Palace players might finally feel the pressure they had felt in the earlier parts of this season has now relented
+`\
+https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
+
 **Crystal Palace shake off their Brighton blues - and show an impetus to kick on**\
 `Glasner and his Palace players might finally feel the pressure they had felt in the earlier parts of this season has now relented
 `\

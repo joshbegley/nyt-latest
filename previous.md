@@ -1,3 +1,7 @@
+**Alex Zendejas helps USMNT cause with starring role in Liga MX title triumph**\
+`Recently unsure whether to represent USA or Mexico, Alex Zendejas could thrive under Mauricio Pochettino`\
+https://nytimes.com/athletic/5997593/2024/12/16/alex-zendejas-ligamx-club-america/
+
 **Four Scenarios for Ukraine’s Endgame**\
 `The war is entering what could be its final phase. What happens next?`\
 https://nytimes.com/2024/12/16/opinion/ukraine-russia-security-guarantees.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5993679/2024/12/16/newcastle-leicester-howe-consist
 `Glasner and his Palace players might finally feel the pressure they had felt in the earlier parts of this season has now relented
 `\
 https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
-
-**The eight dramatic minutes that epitomised Nottingham Forest's transformation**\
-`In the closing stages against Aston Villa, Forest demonstrated why fans are beginning to think that nothing is impossible.`\
-https://nytimes.com/athletic/5995083/2024/12/16/nottingham-forest-late-win-analysis/
 
