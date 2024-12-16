@@ -1,3 +1,11 @@
+**LeBron feels 'pretty good' in his Lakers return, will manage foot issue**\
+`LOS ANGELES — LeBron James said he felt &#8220;pretty good&#8221; mentally and physically after his nine-day, two-game absence from the Los Angeles Lakers.`\
+https://nytimes.com/athletic/5997550/2024/12/16/lebron-james-foot-injury-management/
+
+**Seahawks fail litmus test against Packers; Geno Smith suffers knee injury**\
+`The Lumen Field magic was missing. With many Packers fans in attendance, “Go Pack Go” chants were heard throughout the game.`\
+https://nytimes.com/athletic/5997563/2024/12/16/seahawks-lose-packers/
+
 **Why Enzo Maresca can no longer ignore Chelsea's discipline issue**\
 `Chelsea and Maresca are rightly praised for their success so far, but the number of suspensions being picked up should be a concern.`\
 https://nytimes.com/athletic/5996424/2024/12/16/chelsea-discipline-maresca/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5997593/2024/12/16/alex-zendejas-ligamx-club-americ
 **Four Scenarios for Ukraine’s Endgame**\
 `The war is entering what could be its final phase. What happens next?`\
 https://nytimes.com/2024/12/16/opinion/ukraine-russia-security-guarantees.html
-
-**Tales of Messy Romances, Plus 6 Things to Watch on TV This Week**\
-`Watch how “The Ultimatum,” “Laid” and “Virgin River” test relationships in different ways. Get into the holiday spirit with Josh Groban.`\
-https://nytimes.com/2024/12/16/arts/television/tales-of-messy-romances-plus-6-things-to-watch-on-tv-this-week.html
-
-**Eagles passing game springs to life against Steelers after week of narratives, accountability**\
-`The Eagles passing game led the way when the run game didn't.`\
-https://nytimes.com/athletic/5996126/2024/12/16/eagles-passing-jalen-hurts-aj-brown-steelers/
 
