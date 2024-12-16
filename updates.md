@@ -1,3 +1,7 @@
+**Five ‘Bali Nine’ Drug Smugglers Return to Australia After Two Decades**\
+`The men were the last Australians still imprisoned in Indonesia for trying to smuggle heroin in 2005, in a case that became a diplomatic flashpoint between the countries.`\
+https://nytimes.com/2024/12/16/world/australia/bali-nine-ring-indonesia-return.html
+
 **Alex Zendejas boosts USMNT prospects with starring role in Liga MX title triumph**\
 `Recently unsure whether to represent USA or Mexico, Alex Zendejas could thrive under Mauricio Pochettino`\
 https://nytimes.com/athletic/5997593/2024/12/16/alex-zendejas-ligamx-club-america/
