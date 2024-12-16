@@ -1,3 +1,11 @@
+**Maple Leafs report cards: John Tavares, Nick Robertson spark offensive outburst**\
+`The Leafs scored three goals in under three minutes en route to a Tavares hat trick.`\
+https://nytimes.com/athletic/5996171/2024/12/15/maple-leafs-report-cards-tavares-robertson-sabres/
+
+**Will Patrick Mahomes miss time? That's the big question after Chiefs improve to 13-1**\
+`Joe Thuney fared well at left tackle, but the Chiefs' second-half play calling may have put their quarterback in unnecessary jeopardy.`\
+https://nytimes.com/athletic/5996435/2024/12/15/chiefs-patrick-mahomes-injury-browns/
+
 **What started out so sweet for Bryce Young devolved into an ugly, turnover fest**\
 `Bryce Young's fumble on the Panthers' impressive opening drive served as a harbinger of things to overcome Sunday against the Cowboys.`\
 https://nytimes.com/athletic/5996509/2024/12/15/panthers-loss-bryce-young-turnovers-cowboys/
