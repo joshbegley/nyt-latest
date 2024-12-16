@@ -1,3 +1,11 @@
+**Josh Allen, Bills look scary good in winning Super Bowl teaser**\
+`The numbers were gaudy in a statement win.`\
+https://nytimes.com/athletic/5997201/2024/12/15/bills-offensive-line-lions-dominant/
+
+**NFL playoff picture, Week 15: Eagles join Lions atop NFC; Rams take control of NFC West**\
+`With Denver's win over Indy on Sunday, the AFC playoff picture looks clear. The seven teams aren't locked in yet, but they could be soon. `\
+https://nytimes.com/athletic/5990243/2024/12/15/nfl-playoff-picture-week-15-eagles-lions-texans/
+
 **Blues' Jordan Kyrou is developing 'a real maturity' to his game, says Montgomery**\
 `Kyrou has scored in four straight games and has six goals in his last seven games.`\
 https://nytimes.com/athletic/5996543/2024/12/15/blues-kyrou-maturity-montgomery-rangers/
