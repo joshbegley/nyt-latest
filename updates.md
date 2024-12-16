@@ -1,3 +1,7 @@
+**The Pulse: Mahomes and Lions limping toward playoffs**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/5996905/2024/12/16/patrick-mahomes-nfl-injuries-the-pulse/
+
 **A Chaotic Start**\
 `We cover the people who will surround Donald Trump in his second term.`\
 https://nytimes.com/2024/12/16/briefing/donald-trump-appointments.html
