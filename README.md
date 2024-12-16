@@ -1,3 +1,11 @@
+**Trump Says He Would Consider Pardoning Mayor Eric Adams**\
+`During a news conference at Mar-a-Lago, Donald Trump said that he would possibly pardon Mayor Eric Adams of New York City if he was convicted on federal corruption charges.`\
+https://nytimes.com/video/us/politics/100000009880527/trump-says-he-would-consider-pardoning-mayor-eric-adams.html
+
+**A Hanukkah-Ready Recipe That Does Everything Right**\
+`Inspired by a Ukrainian cafe and a mother-in-law’s classic, this take on kasha varnishkes is rich with caramelized onions.`\
+https://nytimes.com/2024/12/16/dining/hanukkah-recipe.html
+
 **Submit your Panthers mailbag questions to Joe Person**\
 `Is Bryce Young "the guy"? What should the Panthers do with their high draft pick? What questions do you have?`\
 https://nytimes.com/athletic/5999049/2024/12/16/submit-your-panthers-mailbag-questions-to-joe-person-12/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi
 **Tice’s Mother Asks Netanyahu for Pause in Syria Strikes to Search for Journalist**\
 `Debra Tice wrote to the Israeli prime minister that her family had “credible information” that Austin Tice may be held in a prison outside Damascus, in an area where Israel had been conducting military operations.`\
 https://nytimes.com/2024/12/16/world/middleeast/austin-tice-mother-netanyahu-israel.html
-
-**Patriots-Bills Week 16 matchup flexed to 4:25 p.m. kickoff time**\
-`Buffalo (11-3) is coming off a high-flying Week 15 win against the Lions in Detroit.`\
-https://nytimes.com/athletic/5998865/2024/12/16/patriots-bills-game-flexed-week-16/
-
-**Kyrgios and Djokovic set to play doubles together in Brisbane**\
-`Nick Kyrgios is planning to play doubles with Novak Djokovic at the Brisbane International in Australia later this month.`\
-https://nytimes.com/athletic/5998706/2024/12/16/kyrgios-djokovic-doubles-brisbane/
 
