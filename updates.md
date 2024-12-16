@@ -1,3 +1,7 @@
+**49ers' Nick Bosa says De'Vondre Campbell was acting up before Thursday's game**\
+`Bosa on Monday shared strong opinions about the 49ers defense and coordinator Nick Sorensen — he wants the status quo in 2025.`\
+https://nytimes.com/athletic/5999824/2024/12/16/49ers-nick-bosa-devondre-campbell-quit-suspended/
+
 **Raiders to start QB Desmond Ridder against Falcons with Aidan O'Connell out**\
 `Ridder's first start with the Raiders will come against the team that drafted him in 2022.`\
 https://nytimes.com/athletic/5998848/2024/12/16/desmond-ridder-raiders-starting-qb-mnf-falcons/
