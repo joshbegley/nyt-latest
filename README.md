@@ -1,3 +1,15 @@
+**The Narrator**\
+`Banias is an 8-year-old living in Gaza, and she has a story to tell — many stories, in fact.`\
+https://nytimes.com/2024/12/15/podcasts/the-narrator-this-american-life-nyt-audio.html
+
+**Blackhawks, Connor Bedard get favorable bounces to defeat Islanders: Observations**\
+`In a game they should have probably lost, the Blackhawks found a way to win.`\
+https://nytimes.com/athletic/5996355/2024/12/15/blackhawks-connor-bedard-islanders-win-nhl/
+
+**Cardinals beat Patriots 30-17 to keep playoff hopes alive: Takeaways**\
+`The Cardinals needed a “get-right” game to remain in postseason contention. This was it.`\
+https://nytimes.com/athletic/5995309/2024/12/15/patriots-cardinals-score-result-takeaways/
+
 **Notre Dame agrees to new long-term deal with Marcus Freeman**\
 `Freeman, who originally signed a six-year contract in December 2021, has led the Irish to an 11-1 record and home Playoff game this year.`\
 https://nytimes.com/athletic/5996224/2024/12/15/marcus-freeman-notre-dame-contract-extension/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5996390/2024/12/15/cowboys-defense-takeways-sacks-p
 **Private Schools Group Apologizes After Claims of Antisemitism at Event**\
 `After criticism from Jewish groups over speeches at a conference, the president of the National Association of Independent Schools said future addresses would be vetted.`\
 https://nytimes.com/2024/12/15/nyregion/antisemitism-conference-private-schools.html
-
-**‘Malcolm in the Middle’ Is Getting a Four-Episode Revival on Disney+**\
-`The return of “Malcolm in the Middle,” which aired from 2000 to 2006, will follow Malcolm as he helps his parents celebrate their 40th wedding anniversary, Disney+ announced.`\
-https://nytimes.com/2024/12/15/arts/television/malcom-in-the-middle-revival.html
-
-**Colts' Jonathan Taylor drops ball before goal line, erasing TD run vs. Broncos**\
-`The Colts running back wasn't the only player in Week 15 to drop the ball before the goal line to negate a touchdown.`\
-https://nytimes.com/athletic/5996345/2024/12/15/jonathan-taylor-fumble-touchback-colts-broncos/
-
-**Giants building lead in race for No. 1 NFL Draft pick**\
-`While we await the result of the Raiders' Monday night game, the Giants currently win the top pick in nearly one in two scenarios.`\
-https://nytimes.com/athletic/5996167/2024/12/15/top-draft-pick-nfl-giants-raiders/
 
