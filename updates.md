@@ -1,3 +1,7 @@
+**Is Protein Powder a Scam?**\
+`Most people don’t need to consume this supplement, experts say, but it can be useful in certain situations.`\
+https://nytimes.com/2024/12/16/well/eat/protein-powder-scams.html
+
 **Mayor Adams Is Denied Public Money for His Re-election Campaign**\
 `The New York City Campaign Finance Board voted to withhold as much as $4.3 million in matching funds from Mayor Eric Adams, hampering his re-election bid.`\
 https://nytimes.com/2024/12/16/nyregion/eric-adams-matching-funds-campaign-finance.html
