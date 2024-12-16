@@ -1,3 +1,19 @@
+**Women's Euro 2025 draw: England to face France, Netherlands, Wales**\
+`England will face France, Netherlands and Wales at next summer&#8217;s Women&#8217;s European Championship in Switzerland.`\
+https://nytimes.com/athletic/5997884/2024/12/16/womens-euro-2025-draw-england/
+
+**Blasts Rock Syria’s Coast Amid Heavy Israeli Strikes**\
+`Overnight Israeli strikes targeted former Syrian Army positions, including air defense sites and missile warehouses, according to the Syrian Observatory for Human Rights, a war monitor.`\
+https://nytimes.com/video/world/middleeast/100000009880033/tartus-syria-israeli-strikes-military-sites.html
+
+**Dream, Storm to play in first regular-season WNBA game outside U.S.**\
+`The WNBA awarded Toronto a franchise last May, making it the league’s first outside of the United States.`\
+https://nytimes.com/athletic/5998426/2024/12/16/dream-storm-wnba-vancouver-game/
+
+**Former NFL QB Michael Vick interviews for Norfolk State's head coaching job**\
+`Vick grew up in the Hampton Roads area in Virginia and starred at Virginia Tech`\
+https://nytimes.com/athletic/5998807/2024/12/16/michael-vick-norfolk-state-head-coach-talks/
+
 **‘Multiple Injuries’ Reported After Shooting at School in Wisconsin, Police Say**\
 `The police said they were investigating a shooting at the Abundant Life Christian School in Madison, which has about 390 children in Kindergarten through 12th grade.`\
 https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-madison.html

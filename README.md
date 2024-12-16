@@ -1,15 +1,3 @@
-**Women's Euro 2025 draw: England to face France, Netherlands, Wales**\
-`England will face France, Netherlands and Wales at next summer&#8217;s Women&#8217;s European Championship in Switzerland.`\
-https://nytimes.com/athletic/5997884/2024/12/16/womens-euro-2025-draw-england/
-
-**Blasts Rock Syria’s Coast Amid Heavy Israeli Strikes**\
-`Overnight Israeli strikes targeted former Syrian Army positions, including air defense sites and missile warehouses, according to the Syrian Observatory for Human Rights, a war monitor.`\
-https://nytimes.com/video/world/middleeast/100000009880033/tartus-syria-israeli-strikes-military-sites.html
-
-**Dream, Storm to play in first regular-season WNBA game outside U.S.**\
-`The WNBA awarded Toronto a franchise last May, making it the league’s first outside of the United States.`\
-https://nytimes.com/athletic/5998426/2024/12/16/dream-storm-wnba-vancouver-game/
-
 **Former NFL QB Michael Vick interviews for Norfolk State's head coaching job**\
 `Vick grew up in the Hampton Roads area in Virginia and starred at Virginia Tech`\
 https://nytimes.com/athletic/5998807/2024/12/16/michael-vick-norfolk-state-head-coach-talks/
@@ -37,4 +25,16 @@ https://nytimes.com/live/2024/12/16/us/trump-news/at-trumps-first-post-election-
 **Trump Says He Would Consider Pardoning Eric Adams**\
 `The comment by President-elect Donald J. Trump reflects an unusual relationship that has been encouraged by Mayor Eric Adams of New York as his federal corruption trial nears.`\
 https://nytimes.com/2024/12/16/nyregion/trump-pardon-eric-adams.html
+
+**A Conductor’s Once and Future Orchestras Present Dueling Concerts**\
+`John Eliot Gardiner’s new ensemble, the Constellation Choir & Orchestra, performed a nearly identical program as his old group, at the same venue.`\
+https://nytimes.com/2024/12/16/arts/music/john-eliot-gardiner-new-orchestra.html
+
+**Scoop City: NFL's risers after Week 15**\
+`A quick look at the risers (Josh Allen and Lamar Jackson, plus the Buccaneers, Packers), latest of Mahomes and Darnold's CPOY bid.`\
+https://nytimes.com/athletic/5998702/2024/12/16/risers-fallers-nfl-week-15-takeaways-scoop-city/
+
+**Lions' Alim McNeill reportedly out for season; Carlton Davis suffers broken jaw**\
+`McNeill suffered the injury in the third quarter of Sunday's loss and Davis was evaluated for a concussion in addition to the broken jaw`\
+https://nytimes.com/athletic/5998570/2024/12/16/alim-mcneill-carlton-davis-lions-injuries/
 
