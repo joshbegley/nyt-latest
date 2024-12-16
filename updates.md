@@ -1,3 +1,11 @@
+**Black Student Enrollment at Harvard Law Drops by More Than Half**\
+`After a Supreme Court decision ended race-based admissions, some law schools saw a decline in Black and Hispanic students entering this fall. Harvard appeared to have the steepest drop.`\
+https://nytimes.com/2024/12/16/us/harvard-law-black-students-enrollment-decline.html
+
+**Notre Dame portal update: How can Alabama transfer DB DeVonta Smith fit?**\
+`Where Notre Dame stands in the transfer portal with former Alabama DB DeVonta Smith expected to be added.`\
+https://nytimes.com/athletic/5999279/2024/12/16/notre-dame-transfer-portal-devonta-smith/
+
 **Young Republicans Gather, Ready to Make America Vengeful Again**\
 `At a gala on Wall Street for the New York Young Republican Club, attendees were looking forward to retribution from the next Trump era, and musing on another run in 2028.`\
 https://nytimes.com/2024/12/16/us/politics/young-republicans-gala.html
