@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5996533/2024/12/15/davante-adams-jets-jaguars-contr
 https://nytimes.com/athletic/5996969/2024/12/15/penn-state-beau-pribula-transfer-portal/
 
 **Early opportunity backfires in Blue Jackets' rough loss to Hurricanes**\
-`The Hurricanes turned the tables on Columbus with a shorthanded goal in the first period to set the tone for a 4-1 defeat.`\
+`The Hurricanes turned the tables on the Blue Jackets with a short-handed goal in the first period to set the tone for a 4-1 defeat.`\
 https://nytimes.com/athletic/5996729/2024/12/15/blue-jackets-power-play-backfire-hurricanes/
 
 **CeeDee Lamb continues to be bright spot in otherwise disappointing Cowboys season**\
