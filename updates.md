@@ -1,3 +1,7 @@
+**Live Updates: Al-Assad Didn’t Plan to Flee Syria, Statement Says**\
+`Bashar al-Assad appeared to give his first account of leaving Syria as rebels took the capital, claiming he wanted to stay and fight, in a statement posted to social media and reported by Russian state outlets.`\
+https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news
+
 **Bashar al-Assad appears to give his first account of leaving Syria.**\
 `a statement posted to the facebook account once used by president assad when he was in office`\
 https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-assad-rebels-news

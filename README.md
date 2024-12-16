@@ -1,5 +1,9 @@
+**Hollinger's Week That Was: Schröder trade thoughts + is Marquette's Jones a lotto pick?**\
+`We've reached trade season! The Pistons waiving Reed has interesting cap implications, and the Thunder have a long road after the NBA Cup.`\
+https://nytimes.com/athletic/5995339/2024/12/16/dennis-schroder-trade-warriors-kam-jones-marquette/
+
 **Live Updates: Al-Assad Didn’t Plan to Flee Syria, Statement Says**\
-`Bashar al-Assad appeared to give his first account of leaving Syria as rebels took the capital, claiming he wanted to stay and fight, in a statement posted to social media and reported by Russian state outlets.`\
+`Bashar al-Assad appeared to give his first account of leaving for Russia as rebels seized Syria, claiming he wanted to stay and fight, in a statement posted to social media and reported by Russian state outlets.`\
 https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news
 
 **Cam Fowler's time in Anaheim shouldn't be defined by unfair comparisons and expectations**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/world/middleeast/syria-rebel-alliance.html
 **Men’s college basketball Top 25: SEC's dominance keeps making history**\
 `My Top 25 ballot this week includes 10 SEC teams, with five in the top 10. Three others have a case to be ranked, as well.`\
 https://nytimes.com/athletic/5997213/2024/12/16/college-basketball-top-25-rankings-auburn-florida/
-
-**Are Tariffs Inevitable?**\
-`World leaders and C.E.O.s are struggling to convince President-elect Donald Trump to shift his position on imposing new levies against America’s trade partners and its rivals.`\
-https://nytimes.com/2024/12/16/business/dealbook/trump-tariffs-inevitable.html
 

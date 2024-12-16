@@ -1,3 +1,7 @@
+**Live Updates: Al-Assad Didn’t Plan to Flee Syria, Statement Says**\
+`Bashar al-Assad appeared to give his first account of leaving Syria as rebels took the capital, claiming he wanted to stay and fight, in a statement posted to social media and reported by Russian state outlets.`\
+https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news
+
 **Cam Fowler's time in Anaheim shouldn't be defined by unfair comparisons and expectations**\
 `No, Fowler didn't become the next Scott Niedermayer or a defensive game-changer. But don't denigrate his career.`\
 https://nytimes.com/athletic/5997190/2024/12/16/cam-fowler-ducks-trade-career/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5997213/2024/12/16/college-basketball-top-25-rankin
 **Are Tariffs Inevitable?**\
 `World leaders and C.E.O.s are struggling to convince President-elect Donald Trump to shift his position on imposing new levies against America’s trade partners and its rivals.`\
 https://nytimes.com/2024/12/16/business/dealbook/trump-tariffs-inevitable.html
-
-**Austrian footballer suffers fractured skull after attack in Vienna city centre**\
-`Austria international footballer Guido Burgstaller is recovering after suffering a fractured skull in an attack in Vienna over the weekend, his club have confirmed.`\
-https://nytimes.com/athletic/5998018/2024/12/16/guido-burgstaller-attack-rapid-vienna/
 
