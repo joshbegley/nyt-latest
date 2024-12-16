@@ -1,3 +1,7 @@
+**'I love where it's going': Flyers' Tortorella pleased with Michkov's progress, attitude**\
+`Despite some on-ice bumps, the rookie has earned support and praise from his tough coach.`\
+https://nytimes.com/athletic/5999187/2024/12/16/michkov-flyers-tortorella-coach/
+
 **Carlos Watson, Ozy Media Co-Founder, Is Sentenced to Almost 10 Years in Prison**\
 `A federal jury in July found Mr. Watson, who started the digital media company in 2013, guilty of trying to defraud investors and lenders.`\
 https://nytimes.com/2024/12/16/business/media/carlos-watson-ozy-media-sentenced.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5964434/2024/12/16/college-football-transfer-portal
 **How Does A.I. Think? Here’s One Theory.**\
 `It may employ a kind of reasoning humans use all the time — but you’ve probably never heard of it.`\
 https://nytimes.com/2024/12/16/opinion/artificial-intelligence-reasoning-abductive.html
-
-**New York Won’t Be Burned Twice by Mayor Adams’s Deceit**\
-`The council should make campaign finance reform a priority, even if it has to override a mayoral veto.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/eric-adams-campaign-finance-nyc
 
