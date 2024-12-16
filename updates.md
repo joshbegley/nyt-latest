@@ -1,3 +1,7 @@
+**Alex Zendejas boosts USMNT prospects with starring role in Liga MX title triumph**\
+`Recently unsure whether to represent USA or Mexico, Alex Zendejas could thrive under Mauricio Pochettino`\
+https://nytimes.com/athletic/5997593/2024/12/16/alex-zendejas-ligamx-club-america/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/16/crosswords/spelling-bee-forum.html
