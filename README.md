@@ -1,3 +1,7 @@
+**NFL Week 16 odds, spreads, schedule: Mahomes' injury swings Texans-Chiefs line and more**\
+`With Patrick Mahomes' injury, the Chiefs odds flipped Monday to make them underdogs vs. the Texans. Plus, playoff stakes around the league.`\
+https://nytimes.com/athletic/5998419/2024/12/16/nfl-week-16-odds-spreads-schedule-mahomes-injury/
+
 **Fact-Checking Trump’s First Post-Election News Conference**\
 `The president-elect made inaccurate claims about a small-business survey, the federal budget, autism rates and pesticide use, among other claims.`\
 https://nytimes.com/2024/12/16/us/politics/trump-news-conference-fact-check.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5999248/2024/12/16/wake-forest-coach-dave-clawson-r
 **TikTok Asks Supreme Court to Block Law Banning Its U.S. Operations**\
 `The company and its Chinese parent invoked the First Amendment in urging the justices to step in before a Jan. 19 deadline to sell or be shut down.`\
 https://nytimes.com/2024/12/16/us/politics/tiktok-ban-supreme-court-first-amendment.html
-
-**HBO Ends Partnership With ‘Sesame Street’**\
-`The venerable children’s series must find a new home after about a decade on HBO and its streaming service, Max. Old episodes will be available through 2027.`\
-https://nytimes.com/2024/12/16/arts/television/sesame-street-hbo-max.html
 
