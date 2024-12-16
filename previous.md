@@ -1,3 +1,15 @@
+**Syrian Rebel Leader Calls for Lifting of Sanctions, as al-Assad Defends Exit**\
+`Ahmed al-Shara urged nations to remove sanctions from Syria and the terrorism designation from his group so Syria could rebuild. Bashar al-Assad also gave his first account of fleeing to Russia.`\
+https://nytimes.com/2024/12/16/world/middleeast/syria-al-shara-al-assad.html
+
+**‘Unfettered’ Gas Exports Would Harm U.S. Economy, Energy Secretary Warns**\
+`Jennifer Granholm said a new analysis showed that the continued pace of exports was “neither sustainable nor advisable.”`\
+https://nytimes.com/2024/12/16/climate/jennifer-granholm-gas-exports.html
+
+**Gregg Popovich returning to Spurs bench after suffering mild stroke**\
+`Spurs assistant coach Mitch Johnson took over in his absence, with San Antonio going 10-10 since then.`\
+https://nytimes.com/athletic/5999623/2024/12/16/gregg-popovich-return-spurs-stroke/
+
 **The Ordinary Explanations Behind the Mysterious Lights in the Skies**\
 `As tips roll in, most reported incidents involve piloted planes and hobby drones, not foreign spying or secret programs, officials say.`\
 https://nytimes.com/2024/12/16/us/politics/drone-sightings-explanations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/16/us/harvard-law-black-students-enrollment-decline.
 **Notre Dame portal update: How can Alabama transfer DB DeVonta Smith fit?**\
 `Where Notre Dame stands in the transfer portal with former Alabama DB DeVonta Smith expected to be added.`\
 https://nytimes.com/athletic/5999279/2024/12/16/notre-dame-transfer-portal-devonta-smith/
-
-**Young Republicans Gather, Ready to Make America Vengeful Again**\
-`At a gala on Wall Street for the New York Young Republican Club, attendees were looking forward to retribution from the next Trump era, and musing on another run in 2028.`\
-https://nytimes.com/2024/12/16/us/politics/young-republicans-gala.html
-
-**Why Kirill Kaprizov is scoring so many empty-netters, Filip Gustavsson update and more: Wild notes**\
-`The Wild say they're trying to secure wins, not pad stats, by playing Kaprizov in defensive situations. Begs the question: Is the PK next?`\
-https://nytimes.com/athletic/5999308/2024/12/16/kaprizov-empty-net-goals-wild/
-
-**An ‘Architectural Dream World’ Filled With Hundreds of Dollhouses**\
-`The artist Dennis Maher — who rescued his Buffalo, N.Y., home from the brink of destruction — has always treasured what others have overlooked.`\
-https://nytimes.com/2024/12/16/t-magazine/artist-dennis-maher-dollhouse-filled-home.html
 

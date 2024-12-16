@@ -1,3 +1,15 @@
+**Syrian Rebel Leader Calls for Lifting of Sanctions, as al-Assad Defends Exit**\
+`Ahmed al-Shara urged nations to remove sanctions from Syria and the terrorism designation from his group so Syria could rebuild. Bashar al-Assad also gave his first account of fleeing to Russia.`\
+https://nytimes.com/2024/12/16/world/middleeast/syria-al-shara-al-assad.html
+
+**‘Unfettered’ Gas Exports Would Harm U.S. Economy, Energy Secretary Warns**\
+`Jennifer Granholm said a new analysis showed that the continued pace of exports was “neither sustainable nor advisable.”`\
+https://nytimes.com/2024/12/16/climate/jennifer-granholm-gas-exports.html
+
+**Gregg Popovich returning to Spurs bench after suffering mild stroke**\
+`Spurs assistant coach Mitch Johnson took over in his absence, with San Antonio going 10-10 since then.`\
+https://nytimes.com/athletic/5999623/2024/12/16/gregg-popovich-return-spurs-stroke/
+
 **The Ordinary Explanations Behind the Mysterious Lights in the Skies**\
 `As tips roll in, most reported incidents involve piloted planes and hobby drones, not foreign spying or secret programs, officials say.`\
 https://nytimes.com/2024/12/16/us/politics/drone-sightings-explanations.html
