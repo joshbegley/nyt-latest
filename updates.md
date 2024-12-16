@@ -1,3 +1,7 @@
+**Hurzeler's first Brighton mini-crisis: Dunk unrecognisable, injuries take toll, problems at both ends**\
+`What's going so wrong for Brighton after four games without a win?`\
+https://nytimes.com/athletic/5995388/2024/12/16/fabian-hurzeler-brighton-dunk-problems/
+
 **The unsung hero of Bills win over Lions? An offensive line the seems to slip under the radar**\
 `The offensive line is one reason why the Bills keep putting up big numbers.`\
 https://nytimes.com/athletic/5997247/2024/12/16/bills-offensive-line-lions-dominant-dion-dawkins/
