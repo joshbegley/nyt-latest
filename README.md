@@ -1,3 +1,11 @@
+**Josh Allen, Bills look scary good in winning Super Bowl teaser**\
+`The numbers were gaudy in a statement win.`\
+https://nytimes.com/athletic/5997201/2024/12/15/bills-offensive-line-lions-dominant/
+
+**NFL playoff picture, Week 15: Eagles join Lions atop NFC; Rams take control of NFC West**\
+`With Denver's win over Indy on Sunday, the AFC playoff picture looks clear. The seven teams aren't locked in yet, but they could be soon. `\
+https://nytimes.com/athletic/5990243/2024/12/15/nfl-playoff-picture-week-15-eagles-lions-texans/
+
 **Blues' Jordan Kyrou is developing 'a real maturity' to his game, says Montgomery**\
 `Kyrou has scored in four straight games and has six goals in his last seven games.`\
 https://nytimes.com/athletic/5996543/2024/12/15/blues-kyrou-maturity-montgomery-rangers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/15/arts/music/zakir-hussain-dead.html
 **Geno Smith exits 'Sunday Night Football' against Packers with knee injury**\
 `Smith was 15-of-19 passing for 149 yards with no touchdowns and one interception before exiting.`\
 https://nytimes.com/athletic/5997104/2024/12/15/geno-smith-injury-seahawks-snf/
-
-**Broncos were gifted Jonathan Taylor's gaffe, but also made their own luck as playoffs near**\
-`Denver knows the Colts' TD coming off the scoreboard was a gift, but also capitalized by scoring 24 unanswered points afterward.`\
-https://nytimes.com/athletic/5996864/2024/12/15/broncos-win-colts-jonathan-taylor-luck-playoff-picture/
-
-**Lindy Ruff, and players, running out of answers as Sabres' losing streak hits 10: Takeaways**\
-`The Sabres took a 3-1 lead against the Leafs and then allowed four unanswered goals, including a hat trick.`\
-https://nytimes.com/athletic/5996981/2024/12/15/sabres-lindy-ruff-losing-streak-leafs/
 
