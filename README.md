@@ -1,3 +1,15 @@
+**The Connections Companion No. 555**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 17, 2024.`\
+https://nytimes.com/2024/12/16/crosswords/connections-companion-555.html
+
+**Wordle Review No. 1,277**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 17, 2024`\
+https://nytimes.com/2024/12/16/crosswords/wordle-review-1277.html
+
+**Fears of Humanitarian Crisis on Mayotte After Cyclone**\
+`The official death toll so far is 14, but there are fears that the number killed in the French territory by Tropical Cyclone Chido could be much higher.`\
+https://nytimes.com/2024/12/16/world/africa/mayotte-cyclone-chido-deaths.html
+
 **How Notre Dame saved its Playoff expectations after the season's worst loss**\
 `Notre Dame hasn't let the season's worst loss definite it. Its path to the Playoff shows just how much its third-year coach has grown.`\
 https://nytimes.com/athletic/5994291/2024/12/16/notre-dame-playoff-marcus-freeman-niu/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/16/opinion/mangione-penny-biden-trump.html
 **Why America’s Kurdish Allies Are Under Threat in a New Syria**\
 `The Kurds helped the United States contain the Islamic State. Now they fear a resurgent Turkey that has long considered them an adversary. Here’s a guide.`\
 https://nytimes.com/2024/12/16/world/middleeast/kurdish-forces-syria-turkey-isis-america.html
-
-**Percival Everett’s Prose Is Having a Moment. How Is His Poetry?**\
-`The winner of this year’s National Book Award in fiction has published several collections of poems. Our critic takes a look.`\
-https://nytimes.com/2024/12/16/books/review/percival-everett-poetry.html
-
-**A Mild Defense of Lara Trump**\
-`The Senate takes itself seriously, but its members aren’t always public-servant all-stars.`\
-https://nytimes.com/2024/12/16/opinion/lara-trump-senate.html
-
-**Trump Wants to Destroy the ‘Deep State.’ But He Also Wants to Wield Its Power.**\
-`He should fuse these two impulses into a single governing ideology.`\
-https://nytimes.com/2024/12/16/opinion/deep-state-trump-administrative.html
 
