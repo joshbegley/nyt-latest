@@ -1,3 +1,15 @@
+**Are Tariffs Inevitable?**\
+`World leaders and C.E.O.s are struggling to convince President-elect Donald Trump to shift his position on imposing new levies against America’s trade partners and its rivals.`\
+https://nytimes.com/2024/12/16/business/dealbook/trump-tariffs-inevitable.html
+
+**Austrian footballer suffers fractured skull after attack in Vienna city centre**\
+`Austria international footballer Guido Burgstaller is recovering after suffering a fractured skull in an attack in Vienna over the weekend, his club have confirmed.`\
+https://nytimes.com/athletic/5998018/2024/12/16/guido-burgstaller-attack-rapid-vienna/
+
+**In a lost Raiders' season, Monday night serves as showcase for strong rookie class**\
+`Tight end Brock Bowers needs 19 catches in his final four games to break Puka Nacua's rookie receptions record of 105.`\
+https://nytimes.com/athletic/5994848/2024/12/16/raiders-rookies-mnf-brock-bowers/
+
 **Trump Transition Live Updates: Hegseth Will Release Accuser From Confidential Agreement, Graham Says**\
 ``\
 https://nytimes.com/live/2024/12/16/us/trump-news
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5996831/2024/12/16/fantasy-premier-league-gw16-jota
 **How good were the College Football Playoff coaches as players? Ranking all 12**\
 `The 12 Playoff coaches form a unique group. Not one played a regular-season contest in the NFL. One didn't even play in college.`\
 https://nytimes.com/athletic/5997488/2024/12/16/college-football-playoff-coaches-careers-players/
-
-**Mets went wild for Juan Soto: Why a measured approach might come next**\
-`Steve Cohen did his part by securing the big-ticket item. Now it's time for David Stearns' more prudent approach.`\
-https://nytimes.com/athletic/5997189/2024/12/16/mets-offseason-approach/
-
-**WSL Briefing: Surprises at the top as clubs sign off for the winter break**\
-`Chelsea failed to win for the first time under Sonia Bompastor but Manchester City could not take full advantage`\
-https://nytimes.com/athletic/5996222/2024/12/16/wsl-briefing-chelsea-leiecester-manchester-city/
-
-**Tennis Briefing: Emma Raducanu's turning point and the fairness of wildcards**\
-`The Brit discusses the demands of the WTA Tour, while the Australian Open releases its wildcards.`\
-https://nytimes.com/athletic/5997837/2024/12/16/emma-raducanu-tennis-ranking-schedule/
 
