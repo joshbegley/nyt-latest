@@ -1,3 +1,15 @@
+**How weird was Bengals' win over Titans? Recounting so many wacky plays**\
+`A game described as "strange" and "sloppy" produced a boatload of highlights, both good and bad.`\
+https://nytimes.com/athletic/5996458/2024/12/15/bengals-win-titans-weird-plays-ranked/
+
+**Ravens dismantle Giants, shift focus to AFC North clash with Steelers**\
+`Baltimore took care of business against a two-win Giants team and now must prepare for Pittsburgh on a short week. `\
+https://nytimes.com/athletic/5996394/2024/12/15/ravens-win-giants-afc-north-steelers/
+
+**Steelers' T.J. Watt exits vs. Eagles with lower body injury**\
+`Watt walked off the field and later went into the X-ray room to get the injury evaluated.`\
+https://nytimes.com/athletic/5996516/2024/12/15/tj-watt-injury-steelers-2/
+
 **Aldridge: Commanders' win in New Orleans was important but nothing like a Big Easy**\
 `With the win, Washington's postseason chances increased from 79 percent to 88 percent, according to NFL.com, with three weeks remaining.`\
 https://nytimes.com/athletic/5995521/2024/12/15/commanders-victory-saints/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5996167/2024/12/15/top-draft-pick-nfl-giants-raider
 **Faller in Fall**\
 `Ailee Yoshida crafts her origin story.`\
 https://nytimes.com/2024/12/15/crosswords/daily-puzzle-2024-12-16.html
-
-**Maresca: Chelsea must manage situations differently after late Cucurella red**\
-`Enzo Maresca says Chelsea must learn to manage situations better after Marc Cucurella was sent off at full time following Sunday&#8217;s victory over Brentford.`\
-https://nytimes.com/athletic/5996270/2024/12/15/marc-cucurella-red-card-chelsea/
-
-**Patrick Mahomes' ankle injury overshadows Chiefs' 21-7 win vs. Browns: Takeaways**\
-`“It’s sore,” Chiefs coach Andy Reid said of Mahomes' injury. “It’ll literally be day to day."`\
-https://nytimes.com/athletic/5995289/2024/12/15/patrick-mahomes-ankle-injury-chiefs-browns-score-takeaways/
-
-**Nick Chubb suffers broken foot in what could be final game of Browns career**\
-`If his time in Cleveland is ending, he would exit with the third-most rushing yards (6,802) and rushing touchdowns (51) in Browns history. `\
-https://nytimes.com/athletic/5996185/2024/12/15/nick-chubb-broken-foot/
 
