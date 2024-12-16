@@ -1,3 +1,11 @@
+**Maple Leafs report cards: John Tavares, Nick Robertson spark offensive outburst**\
+`The Leafs scored three goals in under three minutes en route to a Tavares hat trick.`\
+https://nytimes.com/athletic/5996171/2024/12/15/maple-leafs-report-cards-tavares-robertson-sabres/
+
+**Will Patrick Mahomes miss time? That's the big question after Chiefs improve to 13-1**\
+`Joe Thuney fared well at left tackle, but the Chiefs' second-half play calling may have put their quarterback in unnecessary jeopardy.`\
+https://nytimes.com/athletic/5996435/2024/12/15/chiefs-patrick-mahomes-injury-browns/
+
 **How do you cover this hopeless Giants team? A press box view of their ninth straight loss**\
 `Take a peek behind the curtain as Dan Duggan chronicles his Giants game day — from ponytails to the press box. `\
 https://nytimes.com/athletic/5996409/2024/12/15/giants-loss-ninth-straight-press-box-perspective/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5995309/2024/12/15/patriots-cardinals-score-result-
 **Notre Dame agrees to new long-term deal with Marcus Freeman**\
 `Freeman, who originally signed a six-year contract in December 2021, has led the Irish to an 11-1 record and home Playoff game this year.`\
 https://nytimes.com/athletic/5996224/2024/12/15/marcus-freeman-notre-dame-contract-extension/
-
-**How weird was Bengals' win over Titans? Recounting so many wacky plays**\
-`A game described as "strange" and "sloppy" produced a boatload of highlights, both good and bad.`\
-https://nytimes.com/athletic/5996458/2024/12/15/bengals-win-titans-weird-plays-ranked/
-
-**Ravens dismantle Giants, shift focus to AFC North clash with Steelers**\
-`Baltimore took care of business against a two-win Giants team and now must prepare for Pittsburgh on a short week. `\
-https://nytimes.com/athletic/5996394/2024/12/15/ravens-win-giants-afc-north-steelers/
 
