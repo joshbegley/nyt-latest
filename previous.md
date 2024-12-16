@@ -1,3 +1,11 @@
+**CeeDee Lamb continues to be bright spot in otherwise disappointing Cowboys season**\
+`Lamb had his second 100-yard game this season and topped 1,000 receiving yards for the fourth consecutive season. `\
+https://nytimes.com/athletic/5996635/2024/12/15/ceedee-lamb-cowboys-1000-yards-panthers-win/
+
+**Kaprizov's 2 goals not enough as Vegas spoils Wallstedt's season debut: 4 takeaways**\
+`Kaprizov's 22 goals are now the most by a Wild player through his first 30 games in a season.`\
+https://nytimes.com/athletic/5996418/2024/12/15/wild-wallstedt-debut-kaprizov-golden-knights/
+
 **What Broncos 31-13 win vs. Colts means for AFC playoff picture: Takeaways**\
 `Denver (9-5) is now one win away from its first playoff appearance since the 2015 season.`\
 https://nytimes.com/athletic/5995314/2024/12/15/broncos-colts-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5996509/2024/12/15/panthers-loss-bryce-young-turnov
 **Baker Mayfield's 4 TDs propel Bucs past Chargers 40-17: Takeaways**\
 `Mike Evans racked up 159 receiving yards and two second half scores as the Buccaneers dominated the Chargers.`\
 https://nytimes.com/athletic/5995320/2024/12/15/buccaneers-chargers-score-result-takeaways/
-
-**The Narrator**\
-`Banias is an 8-year-old living in Gaza, and she has a story to tell — many stories, in fact.`\
-https://nytimes.com/2024/12/15/podcasts/the-narrator-this-american-life-nyt-audio.html
-
-**Blackhawks, Connor Bedard get favorable bounces to defeat Islanders: Observations**\
-`In a game they should have probably lost, the Blackhawks found a way to win.`\
-https://nytimes.com/athletic/5996355/2024/12/15/blackhawks-connor-bedard-islanders-win-nhl/
 

@@ -1,3 +1,11 @@
+**CeeDee Lamb continues to be bright spot in otherwise disappointing Cowboys season**\
+`Lamb had his second 100-yard game this season and topped 1,000 receiving yards for the fourth consecutive season. `\
+https://nytimes.com/athletic/5996635/2024/12/15/ceedee-lamb-cowboys-1000-yards-panthers-win/
+
+**Kaprizov's 2 goals not enough as Vegas spoils Wallstedt's season debut: 4 takeaways**\
+`Kaprizov's 22 goals are now the most by a Wild player through his first 30 games in a season.`\
+https://nytimes.com/athletic/5996418/2024/12/15/wild-wallstedt-debut-kaprizov-golden-knights/
+
 **Blackhawks, Connor Bedard get favorable bounces to defeat Islanders: Observations**\
 `In a game they should have probably lost, the Blackhawks found a way to win.`\
 https://nytimes.com/athletic/5996355/2024/12/15/blackhawks-connor-bedard-islanders-win-nhl/
