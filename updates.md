@@ -1,3 +1,16 @@
+**Four Scenarios for Ukraine’s Endgame**\
+`The war is entering what could be its final phase. What happens next?`\
+https://nytimes.com/2024/12/16/opinion/ukraine-russia-security-guarantees.html
+
+**Tales of Messy Romances, Plus 6 Things to Watch on TV This Week**\
+`Watch how “The Ultimatum,” “Laid” and “Virgin River” test relationships in different ways. Get into the holiday spirit with Josh Groban.`\
+https://nytimes.com/2024/12/16/arts/television/tales-of-messy-romances-plus-6-things-to-watch-on-tv-this-week.html
+
+**Crystal Palace shake off their Brighton blues - and show an impetus to kick on**\
+`Glasner and his Palace players might finally feel the pressure they had felt in the earlier parts of this season has now relented
+`\
+https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
+
 **Crystal Palace shake off their Brighton blues - and show an impetus to kick on**\
 `Glasner and his Palace players might finally feel the pressure they had felt in the earlier parts of this season has now relented
 `\

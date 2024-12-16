@@ -1,3 +1,11 @@
+**Four Scenarios for Ukraine’s Endgame**\
+`The war is entering what could be its final phase. What happens next?`\
+https://nytimes.com/2024/12/16/opinion/ukraine-russia-security-guarantees.html
+
+**Tales of Messy Romances, Plus 6 Things to Watch on TV This Week**\
+`Watch how “The Ultimatum,” “Laid” and “Virgin River” test relationships in different ways. Get into the holiday spirit with Josh Groban.`\
+https://nytimes.com/2024/12/16/arts/television/tales-of-messy-romances-plus-6-things-to-watch-on-tv-this-week.html
+
 **Eagles passing game springs to life against Steelers after week of narratives, accountability**\
 `The Eagles passing game led the way when the run game didn't.`\
 https://nytimes.com/athletic/5996126/2024/12/16/eagles-passing-jalen-hurts-aj-brown-steelers/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
 **The eight dramatic minutes that epitomised Nottingham Forest's transformation**\
 `In the closing stages against Aston Villa, Forest demonstrated why fans are beginning to think that nothing is impossible.`\
 https://nytimes.com/athletic/5995083/2024/12/16/nottingham-forest-late-win-analysis/
-
-**Arsenal fans' survey: Five years of Arteta - tell us your views**\
-`As Mikel Arteta reaches five years in charge of Arsenal, we want to hear how you view the Spaniard and his time in charge so far`\
-https://nytimes.com/athletic/5993759/2024/12/16/mikel-arteta-five-years-arsenal-survey/
-
-**Why Liverpool's draw with Fulham could galvanise rather than harm their title hopes**\
-`It’s rare that so many positives can be taken from a home draw that was unexpected for Liverpool`\
-https://nytimes.com/athletic/5994527/2024/12/16/liverpools-draw-fulham-title-hopes/
 
