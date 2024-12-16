@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5997874/2024/12/16/spanish-football-federation-pres
 
 **Al-Assad Wanted to Stay in Syria and Fight, Statement Says**\
 `The country’s former leader, Bashar al-Assad, appeared to give his first account of his flight from Syria in a statement posted to a Facebook account used by his presidency.`\
-https://nytimes.com/2024/12/16/world/middleeast/syria-assad-rebels-news.html
+https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-assad-rebels-news
 
 **Syria’s New Leadership Takes Early Steps Toward Legitimacy**\
 `A little over a week after taking power, the rebel alliance that led the overthrow of the Assad regime has begun to receive diplomats in the Syrian capital, Damascus.`\
