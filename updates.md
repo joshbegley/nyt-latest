@@ -1,3 +1,15 @@
+**Guinea stadium disaster special report: 'This door here, it's the door to hell'**\
+`Two weeks on from a tragedy that killed at least 56 people and perhaps many more, those affected speak to The Athletic`\
+https://nytimes.com/athletic/5968719/2024/12/16/guinea-stadium-disaster-nzerekore/
+
+**Word of the Day: vocational**\
+`This word has appeared in 220 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/16/learning/word-of-the-day-vocational.html
+
+**Why Wolves sacked Gary O'Neil and turned to Jorge Mendes again**\
+`The inside story of Wolves' decision to move on from Gary O'Neil and what comes next at Molineux`\
+https://nytimes.com/athletic/5995902/2024/12/16/wolves-gary-oneil-jorge-mendes-vitor-pereira/
+
 **Crystal Palace shake off their Brighton blues - and show an impetus to kick on**\
 `Glasner and his Palace players might finally feel the pressure they had felt in the earlier parts of this season has now relented
 `\
