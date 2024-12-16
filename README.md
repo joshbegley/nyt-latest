@@ -1,3 +1,11 @@
+**WSL Briefing: Surprises at the top as clubs sign off for the winter break**\
+`Chelsea failed to win for the first time under Sonia Bompastor but Manchester City could not take full advantage`\
+https://nytimes.com/athletic/5996222/2024/12/16/wsl-briefing-chelsea-leiecester-manchester-city/
+
+**Tennis Briefing: Emma Raducanu's turning point and the fairness of tennis wildcards**\
+`The Brit discusses the demands of the WTA Tour, while the Australian Open releases its wildcards.`\
+https://nytimes.com/athletic/5997837/2024/12/16/emma-raducanu-tennis-ranking-schedule/
+
 **NBA Rewind: Jimmy Butler, Brandon Ingram highlight the start of trade season**\
 `NBA trade season got underway this weekend. Which big names could be on the move?`\
 https://nytimes.com/athletic/5995758/2024/12/16/jimmy-butler-brandon-ingram-nba-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/16/world/middleeast/syria-israel-strikes.html
 **Why Vikings safety Cam Bynum is the NFL's best celebration coordinator (and much more)**\
 `Bynum's viral turnover celebrations are legendary, but he wouldn't have anything to celebrate if he wasn't succeeding on the field.`\
 https://nytimes.com/athletic/5995323/2024/12/16/vikings-cam-bynum-celebration-moonwalk-white-chicks/
-
-**Sam Darnold's biggest improvement might surprise you (and get him a big contract)**\
-`Darnold has been much better in less favorable situations this season, which could bode well for him as he approaches free agency.`\
-https://nytimes.com/athletic/5997699/2024/12/16/sam-darnold-vikings-bears-free-agency/
-
-**The Jameis Winston-led Browns offense is (almost) as bad as it was with Deshaun Watson**\
-`Cleveland's offense has certainly been more productive with Winston, but it ranks last in EPA/play with either QB at the helm.`\
-https://nytimes.com/athletic/5997717/2024/12/16/jameis-winston-browns-offense-deshaun-watson/
 
