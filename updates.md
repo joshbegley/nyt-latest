@@ -1,3 +1,7 @@
+**Popovich looking forward to return to coaching after suffering mild stroke**\
+`Spurs assistant coach Mitch Johnson took over in his absence, with San Antonio going 10-10 since then.`\
+https://nytimes.com/athletic/5999623/2024/12/16/gregg-popovich-return-spurs-stroke/
+
 **Syrian Rebel Leader Calls for Lifting of Sanctions, as al-Assad Defends Exit**\
 `Ahmed al-Shara urged nations to remove sanctions from Syria and the terrorism designation from his group so Syria could rebuild. Bashar al-Assad also gave his first account of fleeing to Russia.`\
 https://nytimes.com/2024/12/16/world/middleeast/syria-al-shara-al-assad.html
