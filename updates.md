@@ -1,3 +1,7 @@
+**How much worse could this get for the Rangers?**\
+`The Rangers look like a shell of the team that got off to a 12-4-1 start, and the schedule doesn't get any easier.`\
+https://nytimes.com/athletic/5996903/2024/12/15/rangers-free-fall-blues-loss/
+
 **Commanders went from marching past Saints to creating questions in chaotic finish**\
 `Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a two-point conversion with no time remaining.`\
 https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playoff-picture/

@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playoff-picture/
 
 **How much worse could this get for the Rangers?**\
-`The Rangers look like a shell of the team that got off to a 12-4-1 start, and the schedule doesn't get any easier coming up.`\
+`The Rangers look like a shell of the team that got off to a 12-4-1 start, and the schedule doesn't get any easier.`\
 https://nytimes.com/athletic/5996903/2024/12/15/rangers-free-fall-blues-loss/
 
 **Quote of the Day: Blunt U.S. Ambassador in Nicety-Bound Japan**\
