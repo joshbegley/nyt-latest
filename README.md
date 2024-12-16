@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5996458/2024/12/15/bengals-win-titans-weird-plays-r
 `Baltimore took care of business against a two-win Giants team and now must prepare for Pittsburgh on a short week. `\
 https://nytimes.com/athletic/5996394/2024/12/15/ravens-win-giants-afc-north-steelers/
 
-**Steelers' T.J. Watt exits vs. Eagles with lower body injury**\
+**Steelers' T.J. Watt exits vs. Eagles with ankle injury**\
 `Watt walked off the field and later went into the X-ray room to get the injury evaluated.`\
 https://nytimes.com/athletic/5996516/2024/12/15/tj-watt-injury-steelers-2/
 
