@@ -1,3 +1,19 @@
+**NBA Rewind: Jimmy Butler, Brandon Ingram highlight the start of trade season**\
+`NBA trade season got underway this weekend. Which big names could be on the move?`\
+https://nytimes.com/athletic/5995758/2024/12/16/jimmy-butler-brandon-ingram-nba-trade/
+
+**The Athletic FC: Amorim and Amad sink City, two coaches sacked, how good was Martinez save?**\
+`Today in TAFC: Amorim's tough love helps United sink City, two Premier League head coaches sacked, Martinez's magical save.`\
+https://nytimes.com/athletic/5997803/2024/12/16/united-city-amad-oneil/
+
+**Mbappe returns to Madrid squad for Intercontinental Cup final**\
+`Kylian Mbappe has been included in the Real Madrid squad for the Intercontinental Cup final on Wednesday.`\
+https://nytimes.com/athletic/5997917/2024/12/16/kylian-mbappe-injury-real-madrid-intercontinental-cup/
+
+**Weekend NHL rankings: Avalanche, Red Wings and way too many teams in crisis**\
+`So many teams are in various states of disaster that even a bonus five can't adequately cover the mayhem this week.`\
+https://nytimes.com/athletic/5996731/2024/12/16/nhl-weekend-rankings-avalanche-red-wings-crisis/
+
 **The Pulse: Mahomes and Lions limping toward playoffs**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/5996905/2024/12/16/patrick-mahomes-nfl-injuries-the-pulse/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5997699/2024/12/16/sam-darnold-vikings-bears-free-a
 **The Jameis Winston-led Browns offense is (almost) as bad as it was with Deshaun Watson**\
 `Cleveland's offense has certainly been more productive with Winston, but it ranks last in EPA/play with either QB at the helm.`\
 https://nytimes.com/athletic/5997717/2024/12/16/jameis-winston-browns-offense-deshaun-watson/
-
-**NFL Panic Meter: How worried should Lions, Chiefs and Steelers be? Sando’s Pick Six**\
-`When will injuries prove too much for the Lions to overcome? Can a hobbled Patrick Mahomes carry the Chiefs once again?`\
-https://nytimes.com/athletic/5991002/2024/12/16/lions-panic-chiefs-steelers-seahawks-49ers/
-
-**Pete Hegseth Was Toast. The MAGA Swarm Came to His Rescue.**\
-`President-elect Donald J. Trump and his supporters exerted intense political pressure to salvage his pick for the Department of Defense.`\
-https://nytimes.com/2024/12/16/podcasts/the-daily/trump-hegseth-maga.html
-
-**Why Packers' 7-sack pass-rush party was crucial in drubbing of Seahawks**\
-`Green Bay exploited a Seattle weakness resulting in seven sacks from six players and 12 quarterback hits from nine different guys.`\
-https://nytimes.com/athletic/5997638/2024/12/16/packers-pass-rush-sacks-seahawks/
-
-**Amazon Disregarded Internal Warnings on Injuries, Senate Investigation Claims**\
-`A staff report by the Senate labor committee, led by Bernie Sanders, uncovered evidence of internal concern about high injury rates at the e-commerce giant.`\
-https://nytimes.com/2024/12/16/business/economy/amazon-warehouse-injuries.html
 
