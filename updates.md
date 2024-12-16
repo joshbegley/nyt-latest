@@ -1,3 +1,7 @@
+**How do you cover this hopeless Giants team? A press box view of their ninth straight loss**\
+`Take a peek behind the curtain as Dan Duggan chronicles his Giants game day — from ponytails to the press box. `\
+https://nytimes.com/athletic/5996409/2024/12/15/giants-loss-ninth-straight-press-box-perspective/
+
 **Eagles win 10th straight in 27-13 victory over Steelers: Takeaways**\
 `The Eagles pulled even with the 12-2 Lions atop the NFC standings while the Steelers still clinched a playoff berth with some help.`\
 https://nytimes.com/athletic/5995325/2024/12/15/steelers-eagles-score-result-takeaways/
