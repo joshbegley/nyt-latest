@@ -1,3 +1,7 @@
+**The Joy of Christmas Ornaments (as a Jew)**\
+`After I met my husband, I realized there was a whole little world inside these ornaments.`\
+https://nytimes.com/2024/12/16/style/christmas-ornaments-jew.html
+
 **Packers roll Seahawks 30-13 after Jacobs' dominant first quarter: Takeaways**\
 `The Packers amassed seven sacks from six different players and 12 quarterback hits from nine different players.`\
 https://nytimes.com/athletic/5997151/2024/12/15/packers-seahawks-snf-score-result-takeaways/
