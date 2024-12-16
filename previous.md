@@ -1,3 +1,11 @@
+**Orrin H. Pilkey, Geologist Who Fought to Save Beaches, Dies at 90**\
+`He argued against putting condos, hotels and other heavy infrastructure on vulnerable coastal landscapes. Environmentalists applauded; many others didn’t.`\
+https://nytimes.com/2024/12/16/science/orrin-h-pilkey-dead.html
+
+**How to Understand the Collapse of Germany’s Government, and What’s Next**\
+`Chancellor Olaf Scholz lost a confidence vote in the German Parliament, ending the unpopular three-party coalition government he has led since 2021.`\
+https://nytimes.com/2024/12/16/world/europe/germany-government-collapse-olaf-scholz.html
+
 **Emergency workers were mobilized quickly, dispatch audio indicates.**\
 `By Mitch Smith`\
 https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/emergency-workers-were-mobilized-quickly-dispatch-audio-indicates
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5998862/2024/12/16/rangers-kaapo-kakko-trade-chris-
 **Germany’s Olaf Scholz Loses a Vote of Confidence**\
 `Chancellor Olaf Scholz of Germany called for the confidence vote after his three-party coalition broke up. Lawmakers voted to dissolve the existing government by a vote of 394 to 207, with 116 abstaining.`\
 https://nytimes.com/video/world/europe/100000009880654/germany-scholz-no-confidence-vote.html
-
-**Several Killed in Wisconsin School Shooting, Including Juvenile Suspect**\
-`The police responded to a shooting at a private Christian school in Madison, Wis., on Wednesday.`\
-https://nytimes.com/video/us/100000009880641/madison-wisconsin-school-shooting.html
-
-**AP men's Top 25: Tennessee holds No. 1 spot, Kentucky jumps Duke**\
-`Tennessee is coming off a 2-0 week after defeating Miami on Tuesday. Kentucky jumped Duke one spot after defeating Louisville`\
-https://nytimes.com/athletic/5998406/2024/12/16/ap-mens-basketball-top-25-tennessee-kentucky-duke/
 
