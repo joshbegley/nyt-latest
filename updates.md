@@ -1,3 +1,7 @@
+**Who are the best quarterbacks in the transfer portal? Ranking the top 30**\
+`The top two quarterbacks on our transfer portal big board are signed with Darian Mensah to Duke and Jackson Arnold to Auburn. Who's next?`\
+https://nytimes.com/athletic/5964434/2024/12/16/college-football-transfer-portal-quarterback-rankings/
+
 **Japan’s SoftBank Makes Big Investment Pledge Ahead of Trump’s Inauguration. Again.**\
 `The technology company plans to invest $100 billion in U.S. projects, echoing the multibillion-dollar pledge it made after Donald J. Trump’s first election victory in 2016.`\
 https://nytimes.com/2024/12/16/us/trump-softbank-investment.html

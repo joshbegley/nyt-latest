@@ -1,3 +1,7 @@
+**Ravens, Diontae Johnson mutually agree to excuse WR from Week 16 team activities**\
+`Baltimore had suspended its trade deadline pickup for one week after he refused to take the field in its Week 13 loss. `\
+https://nytimes.com/athletic/5999105/2024/12/16/diontae-johnson-ravens-excuse-team-activities/
+
 **Japan’s SoftBank Makes Big Investment Pledge Ahead of Trump’s Inauguration. Again.**\
 `The technology company plans to invest $100 billion in U.S. projects, echoing the multibillion-dollar pledge it made after Donald J. Trump’s first election victory in 2016.`\
 https://nytimes.com/2024/12/16/us/trump-softbank-investment.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/16/us/aam-letter-to-president-biden.html
 **Blocked Muslim Judicial Nominee Decries Senate ‘Smear Campaign’**\
 `Adeel Mangi, who would have been the first Muslim American federal appellate court judge, wrote an angry letter to President Biden describing bigotry he faced in the confirmation process.`\
 https://nytimes.com/2024/12/16/us/politics/muslim-judicial-nominee-bigotry.html
-
-**Analysing the Euro 2025 draw: Danger for England, derbies and drama**\
-`International tournament draws have become less interesting as more teams have been added - but this one really delivered`\
-https://nytimes.com/athletic/5998885/2024/12/16/euro-2025-draw-analysed/
 
