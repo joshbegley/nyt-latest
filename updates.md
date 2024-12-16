@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/16/crosswords/spelling-bee-forum.html
+
 **LeBron feels 'pretty good' in his Lakers return, will manage foot issue**\
 `When asked if part of the reason he took time off was because of the mentally taxing nature of this season, James rejected the premise.`\
 https://nytimes.com/athletic/5997550/2024/12/16/lebron-james-foot-injury-management/
