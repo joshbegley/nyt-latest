@@ -1,3 +1,11 @@
+**Mayor Adams Is Denied Public Money for His Re-election Campaign**\
+`The New York City Campaign Finance Board voted to withhold as much as $4.3 million in matching funds from Mayor Eric Adams, hampering his re-election bid.`\
+https://nytimes.com/2024/12/16/nyregion/eric-adams-matching-funds-campaign-finance.html
+
+**Balogun to be out for four months after shoulder surgery - Hutter**\
+`USMNT and Monaco striker Folarin Balogun is expected to be sidelined for four months as he prepares to undergo shoulder surgery.`\
+https://nytimes.com/athletic/5998329/2024/12/16/balogun-shoulder-injury-update/
+
 **Robert F. Kennedy Jr., Trump’s Health Secretary Pick, Is Set to Meet with Lawmakers**\
 `Mr. Kennedy is beginning his meetings with Republican senators to build support for his confirmation, which could be imperiled by his anti-vaccine advocacy.`\
 https://nytimes.com/2024/12/16/us/politics/rfk-jr-republican-senators-health-secretary-bid.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5997645/2024/12/16/canadiens-alex-newhooks-kirby-da
 **Lijnders sacked as Red Bull Salzburg head coach**\
 `Red Bull Salzburg have parted company with head coach Pep Lijnders after just seven months in charge.`\
 https://nytimes.com/athletic/5998252/2024/12/16/pep-lijnders-red-bull-salzburg/
-
-**Hollinger's Week That Was: Schröder trade thoughts + is Marquette's Jones a lotto pick?**\
-`The Pistons waiving Paul Reed has interesting cap implications, and the Thunder have a long road after the NBA Cup.`\
-https://nytimes.com/athletic/5995339/2024/12/16/dennis-schroder-trade-warriors-kam-jones-marquette/
-
-**Live Updates: Al-Assad Didn’t Plan to Flee Syria, Statement Says**\
-`Bashar al-Assad appeared to give his first account of leaving for Russia as rebels seized Syria, claiming he wanted to stay and fight, in a statement posted to social media and reported by Russian state outlets.`\
-https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news
 
