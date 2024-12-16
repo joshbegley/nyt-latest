@@ -34,7 +34,7 @@ https://nytimes.com/2024/12/16/learning/word-of-the-day-vocational.html
 `The inside story of Wolves' decision to move on from Gary O'Neil and what comes next at Molineux`\
 https://nytimes.com/athletic/5995902/2024/12/16/wolves-gary-oneil-jorge-mendes-vitor-pereira/
 
-**Alex Zendejas helps USMNT cause with starring role in Liga MX title triumph**\
+**Alex Zendejas boosts USMNT prospects with starring role in Liga MX title triumph**\
 `Recently unsure whether to represent USA or Mexico, Alex Zendejas could thrive under Mauricio Pochettino`\
 https://nytimes.com/athletic/5997593/2024/12/16/alex-zendejas-ligamx-club-america/
 
