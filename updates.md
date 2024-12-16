@@ -1,3 +1,11 @@
+**Jazz observations: Walker Kessler, John Collins have been bright spots**\
+`Thanks to development and familiarity, Utah's big men have made their marks as the Jazz continue to figure out their young roster.`\
+https://nytimes.com/athletic/5997659/2024/12/16/walker-kessler-john-collins-utah-jazz/
+
+**Botman to step up injury recovery with Newcastle U21s**\
+`Sven Botman is edging closer to a first-team return for Newcastle United, with the centre-back set to make his first appearance since March after being named in the club&#8217;s under-21 side to face Chelsea on Monday night.`\
+https://nytimes.com/athletic/5998440/2024/12/16/newcastle-sven-botman-injury-update/
+
 **Multiple Injuries Reported After Shooting at School in Wisconsin, Police Say**\
 `The police said they were investigating a shooting at the Abundant Life Christian School in Madison, which has about 390 children in Kindergarten through 12th grade.`\
 https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-madison.html

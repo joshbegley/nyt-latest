@@ -1,3 +1,11 @@
+**Jazz observations: Walker Kessler, John Collins have been bright spots**\
+`Thanks to development and familiarity, Utah's big men have made their marks as the Jazz continue to figure out their young roster.`\
+https://nytimes.com/athletic/5997659/2024/12/16/walker-kessler-john-collins-utah-jazz/
+
+**Botman to step up injury recovery with Newcastle U21s**\
+`Sven Botman is edging closer to a first-team return for Newcastle United, with the centre-back set to make his first appearance since March after being named in the club&#8217;s under-21 side to face Chelsea on Monday night.`\
+https://nytimes.com/athletic/5998440/2024/12/16/newcastle-sven-botman-injury-update/
+
 **Women's Euro 2025 draw: England to face France, Netherlands, Wales**\
 `England will face France, Netherlands and Wales at next summer&#8217;s Women&#8217;s European Championship in Switzerland.`\
 https://nytimes.com/athletic/5997884/2024/12/16/womens-euro-2025-draw-england/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5998798/2024/12/16/astros-trade-kyle-tucker-cubs-th
 **Lions RB David Montgomery out indefinitely with MCL injury: Reports**\
 `Montgomery had been a key piece in the Lions offense combining with Jahmyr Gibbs to form one of the NFL's best backfield tandems.`\
 https://nytimes.com/athletic/5998765/2024/12/16/david-montgomery-injury-lions/
-
-**At Trump’s first post-election news conference, topics include autism, the border wall and drones.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/12/16/us/trump-news/at-trumps-first-post-election-news-conference-topics-include-autism-the-border-wall-and-drones
-
-**Trump Says He Would Consider Pardoning Eric Adams**\
-`The comment by President-elect Donald J. Trump reflects an unusual relationship that has been encouraged by Mayor Eric Adams of New York as his federal corruption trial nears.`\
-https://nytimes.com/2024/12/16/nyregion/trump-pardon-eric-adams.html
 
