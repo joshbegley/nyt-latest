@@ -1,3 +1,27 @@
+**Jalen Hurts and A.J. Brown are just fine, and so are Eagles after beating Steelers**\
+`Philadelphia followed up a week of chatter about the QB and receiver's relationship with one of its most well-rounded games of the season.`\
+https://nytimes.com/athletic/5997300/2024/12/16/eagles-steelers-jalen-hurts-aj-brown/
+
+**Paris Hilton and Nicole Richie Give a Surprising Education in Opera**\
+`“Paris & Nicole: The Encore,” a sequel to “The Simple Life,” is a comedic lark about creating an opera, with enlightening lessons along the way.`\
+https://nytimes.com/2024/12/16/arts/music/paris-and-nicole-encore-opera.html
+
+**Is It Ever OK to Go Barefoot in Public?**\
+`A shoeless talk-show appearance leads a reader to contemplate the current rules around going barefoot in public, and our critic weighs in on naked feet in fashion and society.`\
+https://nytimes.com/2024/12/16/style/barefoot-public-shoes-feet.html
+
+**Pocket Novels for an Agitated Age**\
+`There is something special about works I can read in full on a rainy Sunday afternoon or in the lamplight hours between supper and bedtime.`\
+https://nytimes.com/2024/12/16/opinion/reading-novellas-short-novels.html
+
+**Trading Places, Presidential Edition**\
+`Trump and Biden are in transition.`\
+https://nytimes.com/2024/12/16/opinion/mangione-penny-biden-trump.html
+
+**Why America’s Kurdish Allies Are Under Threat in a New Syria**\
+`The Kurds helped the United States contain the Islamic State. Now they fear a resurgent Turkey that has long considered them an adversary. Here’s a guide.`\
+https://nytimes.com/2024/12/16/world/middleeast/kurdish-forces-syria-turkey-isis-america.html
+
 **Percival Everett’s Prose Is Having a Moment. How Is His Poetry?**\
 `The winner of this year’s National Book Award in fiction has published several collections of poems. Our critic takes a look.`\
 https://nytimes.com/2024/12/16/books/review/percival-everett-poetry.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/12/16/opinion/deep-state-trump-administrative.html
 **$1.1 Million Homes in California**\
 `A craftsman-style house in Oakland, a 1922 home in Stockton and a midcentury modern-style house in Santa Rosa`\
 https://nytimes.com/2024/12/16/realestate/1-1-million-homes-in-california.html
-
-**Is Mikhail Baryshnikov the Last of the Highbrow Superstars?**\
-`Fifty years since he left the Soviet Union, he insists on using his huge fame to bring attention to difficult, esoteric art.`\
-https://nytimes.com/2024/12/16/magazine/mikhail-baryshnikov-dance.html
-
-**With This MoMA Artist, the Painting Does the Talking**\
-`Marlon Mullen’s show at the Museum of Modern Art, the first by a developmentally disabled artist, speaks volumes.`\
-https://nytimes.com/2024/12/16/arts/marlon-mullen-moma.html
-
-**The Modern Prince Lighting Up the Ballet Stage in Paris**\
-`Guillaume Diop has reached the highest level in the Paris Opera Ballet. He has also become a fashion-world darling and a symbol of a more diverse France.`\
-https://nytimes.com/2024/12/16/arts/dance/guillaume-diop-paris-opera-ballet.html
-
-**Alaska in Winter: Reveling in a Playground of Ice and Snow**\
-`Juneau, a popular cruise port in summer, becomes a deal-seeker’s base for skiing, skating, hiking and glacier-gazing in winter.`\
-https://nytimes.com/2024/12/16/travel/juneau-budget-skiing.html
-
-**The Reverberations of the Daniel Penny Verdict**\
-`Penny was acquitted in the chokehold killing of Jordan Neely. The case has set off a debate over justice, race and the treatment of mentally ill people.`\
-https://nytimes.com/2024/12/16/nyregion/daniel-penny-verdict.html
-
-**Has Red Wings' rebuild stalled? Can Yzerman land Rantanen or Marner? Mailbag**\
-`Max Bultman answers subscribers' questions about the Red Wings 30 games into the season.`\
-https://nytimes.com/athletic/5994274/2024/12/16/red-wings-rebuild-mitch-marner-mikko-rantanen/
 
