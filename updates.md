@@ -1,3 +1,7 @@
+**Netanyahu Tells Trump Israel Must ‘Complete Its Victory’**\
+`Prime Minister Benjamin Netanyahu of Israel said he told President-elect Donald J. Trump that the country had delivered “a tough blow” against Hamas and Hezbollah.`\
+https://nytimes.com/2024/12/16/us/politics/trump-netanyahu-phone-call-israel.html
+
 **Tennis Briefing: Emma Raducanu's turning point and the fairness of wildcards**\
 `The Brit discusses the demands of the WTA Tour, while the Australian Open releases its wildcards.`\
 https://nytimes.com/athletic/5997837/2024/12/16/emma-raducanu-tennis-ranking-schedule/

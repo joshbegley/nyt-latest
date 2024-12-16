@@ -1,3 +1,7 @@
+**Netanyahu Tells Trump Israel Must ‘Complete Its Victory’**\
+`Prime Minister Benjamin Netanyahu of Israel said he told President-elect Donald J. Trump that the country had delivered “a tough blow” against Hamas and Hezbollah.`\
+https://nytimes.com/2024/12/16/us/politics/trump-netanyahu-phone-call-israel.html
+
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `After a big victory at the weekend, post your Newcastle-related questions to Chris`\
 https://nytimes.com/athletic/5997790/2024/12/16/newcastle-isak-wilson-injury-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995758/2024/12/16/jimmy-butler-brandon-ingram-nba-
 **The Athletic FC: Amorim and Amad sink City, two coaches sacked, how good was Martinez save?**\
 `Today in TAFC: Amorim's tough love helps United sink City, two Premier League head coaches sacked, Martinez's magical save.`\
 https://nytimes.com/athletic/5997803/2024/12/16/united-city-amad-oneil/
-
-**Mbappe returns to Madrid squad for Intercontinental Cup final**\
-`Kylian Mbappe has been included in the Real Madrid squad for the Intercontinental Cup final on Wednesday.`\
-https://nytimes.com/athletic/5997917/2024/12/16/kylian-mbappe-injury-real-madrid-intercontinental-cup/
 
