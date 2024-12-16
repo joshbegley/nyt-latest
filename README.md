@@ -1,3 +1,7 @@
+**Lions' Alim McNeill reportedly out for season; Carlton Davis suffers broken jaw**\
+`McNeill suffered the injury in the third quarter of Sunday's loss and Davis was evaluated for a concussion in addition to the broken jaw`\
+https://nytimes.com/athletic/5998570/2024/12/16/alim-mcneill-carlton-davis-lions-injuries/
+
 **We Were All Just Catching Up to Lorraine O’Grady**\
 `Through her writing and performances, the artist helped new audiences to understand the cultural roots of racism and sexism.`\
 https://nytimes.com/2024/12/16/arts/design/lorraine-ogrady-artist-legacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/business/economy/biden-china-chips-investigation.
 **Penn State starting QB Drew Allar plans to return in 2025: Source**\
 `Backup QB Beau Pribula announced his intention to enter the transfer portal on Sunday, which signaled a possible return from Allar.`\
 https://nytimes.com/athletic/5998578/2024/12/16/drew-allar-penn-state-quarterback-return/
-
-**Supreme Court Rejects Ex-Lt. Gov. of New York’s Bid to Dismiss Charges**\
-`The former lieutenant governor, Brian Benjamin, is accused of funneling state money to a local real estate developer in exchange for campaign contributions.`\
-https://nytimes.com/2024/12/16/nyregion/brian-benjamin-supreme-court.html
 
