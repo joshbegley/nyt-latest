@@ -1,3 +1,11 @@
+**Lowetide: How close to balanced are the Oilers this season?**\
+`A balanced roster has success on both special teams and especially owns five-on-five playing time.`\
+https://nytimes.com/athletic/5995596/2024/12/16/edmonton-oilers-roster-2024/
+
+**How Well Do You Know the London of Charles Dickens?**\
+`Try this short quiz to see how many landmarks and locations around the city you remember from the great author’s works.`\
+https://nytimes.com/interactive/2024/12/16/books/review/dickens-london-quiz.html
+
 **12 Die at Georgian Ski Resort From Suspected Carbon Monoxide Poisoning**\
 `The police say the bodies were found dead in a room above an Indian restaurant not long after a generator had been plugged in nearby.`\
 https://nytimes.com/2024/12/16/world/europe/georgia-ski-resort-carbon-monoxide-poisoning.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news
 **Cam Fowler's time in Anaheim shouldn't be defined by unfair comparisons and expectations**\
 `No, Fowler didn't become the next Scott Niedermayer or a defensive game-changer. But don't denigrate his career.`\
 https://nytimes.com/athletic/5997190/2024/12/16/cam-fowler-ducks-trade-career/
-
-**A Constitutional Convention? Some Democrats Fear It’s Coming.**\
-`Some Republicans have said that a constitutional convention is overdue. Many Democratic-led states have rescinded their long-ago calls for one, and California will soon consider whether to do the same.`\
-https://nytimes.com/2024/12/16/us/a-constitutional-convention-some-democrats-fear-its-coming.html
-
-**Serie A side Como open to Dele training with them in January**\
-`Como are open to allowing Dele Alli to train with the club in January as the midfielder continues his recovery from injury.`\
-https://nytimes.com/athletic/5998197/2024/12/16/dele-alli-como-future/
 
