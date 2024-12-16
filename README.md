@@ -1,3 +1,7 @@
+**The Pulse: Mahomes and Lions limping toward playoffs**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/5996905/2024/12/16/patrick-mahomes-nfl-injuries-the-pulse/
+
 **A Chaotic Start**\
 `We cover the people who will surround Donald Trump in his second term.`\
 https://nytimes.com/2024/12/16/briefing/donald-trump-appointments.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5997638/2024/12/16/packers-pass-rush-sacks-seahawks
 **Amazon Disregarded Internal Warnings on Injuries, Senate Investigation Claims**\
 `A staff report by the Senate labor committee, led by Bernie Sanders, uncovered evidence of internal concern about high injury rates at the e-commerce giant.`\
 https://nytimes.com/2024/12/16/business/economy/amazon-warehouse-injuries.html
-
-**Trump’s Media Lawsuit Threats, and Injuries at Amazon Under Scrutiny**\
-`Plus, a troubling trend in American schools.`\
-https://nytimes.com/2024/12/16/podcasts/trumps-lawsuit-amazon.html
 
