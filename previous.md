@@ -1,40 +1,40 @@
-**​Impeachment in South Korea Has Cost Washington a Staunch Ally**\
-`President Yoon Suk Yeol shifted his country closer to Washington and stood up to Beijing. But that foreign policy could be recalibrated in the future.`\
-https://nytimes.com/2024/12/16/world/asia/south-korea-us-diplomacy.html
+**Percival Everett’s Prose Is Having a Moment. How Is His Poetry?**\
+`The winner of this year’s National Book Award in fiction has published several collections of poems. Our critic takes a look.`\
+https://nytimes.com/2024/12/16/books/review/percival-everett-poetry.html
 
-**Five ‘Bali Nine’ Drug Smugglers Return to Australia After Two Decades**\
-`The men were the last Australians still imprisoned in Indonesia for trying to smuggle heroin in 2005, in a case that became a diplomatic flashpoint between the countries.`\
-https://nytimes.com/2024/12/16/world/australia/bali-nine-ring-indonesia-return.html
+**A Mild Defense of Lara Trump**\
+`The Senate takes itself seriously, but its members aren’t always public-servant all-stars.`\
+https://nytimes.com/2024/12/16/opinion/lara-trump-senate.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/16/crosswords/spelling-bee-forum.html
+**Trump Wants to Destroy the ‘Deep State.’ But He Also Wants to Wield Its Power.**\
+`He should fuse these two impulses into a single governing ideology.`\
+https://nytimes.com/2024/12/16/opinion/deep-state-trump-administrative.html
 
-**LeBron feels 'pretty good' in his Lakers return, will manage foot issue**\
-`When asked if part of the reason he took time off was because of the mentally taxing nature of this season, James rejected the premise.`\
-https://nytimes.com/athletic/5997550/2024/12/16/lebron-james-foot-injury-management/
+**$1.1 Million Homes in California**\
+`A craftsman-style house in Oakland, a 1922 home in Stockton and a midcentury modern-style house in Santa Rosa`\
+https://nytimes.com/2024/12/16/realestate/1-1-million-homes-in-california.html
 
-**Seahawks fail litmus test against Packers; Geno Smith suffers knee injury**\
-`The Lumen Field magic was missing. With many Green Bay fans in attendance, “Go Pack Go” chants were heard throughout the game.`\
-https://nytimes.com/athletic/5997563/2024/12/16/seahawks-lose-packers/
+**Is Mikhail Baryshnikov the Last of the Highbrow Superstars?**\
+`Fifty years since he left the Soviet Union, he insists on using his huge fame to bring attention to difficult, esoteric art.`\
+https://nytimes.com/2024/12/16/magazine/mikhail-baryshnikov-dance.html
 
-**Why Enzo Maresca can no longer ignore Chelsea's discipline issue**\
-`Chelsea and Maresca are rightly praised for their success so far, but the number of suspensions being picked up should be a concern`\
-https://nytimes.com/athletic/5996424/2024/12/16/chelsea-discipline-maresca/
+**With This MoMA Artist, the Painting Does the Talking**\
+`Marlon Mullen’s show at the Museum of Modern Art, the first by a developmentally disabled artist, speaks volumes.`\
+https://nytimes.com/2024/12/16/arts/marlon-mullen-moma.html
 
-**The Warriors' revolving door at off-guard is about to get a Dennis Schröder boost**\
-`Schröder will add a pick-and-roll element for the Warriors and try to offer improved play over Brandin Podziemski.`\
-https://nytimes.com/athletic/5994643/2024/12/16/warriors-dennis-schroder-brandin-podziemski/
+**The Modern Prince Lighting Up the Ballet Stage in Paris**\
+`Guillaume Diop has reached the highest level in the Paris Opera Ballet. He has also become a fashion-world darling and a symbol of a more diverse France.`\
+https://nytimes.com/2024/12/16/arts/dance/guillaume-diop-paris-opera-ballet.html
 
-**It took Djed Spence 881 days to make his first start for Tottenham. It was worth the wait**\
-`It has taken far longer than expected - but Spence is finally ready to make his mark for Spurs`\
-https://nytimes.com/athletic/5996822/2024/12/16/djed-spence-tottenham-hotspur-first-start/
+**Alaska in Winter: Reveling in a Playground of Ice and Snow**\
+`Juneau, a popular cruise port in summer, becomes a deal-seeker’s base for skiing, skating, hiking and glacier-gazing in winter.`\
+https://nytimes.com/2024/12/16/travel/juneau-budget-skiing.html
 
-**Guinea stadium disaster special report: 'This door here, it's the door to hell'**\
-`Two weeks on from a tragedy that killed at least 56 people and perhaps many more, those affected speak to The Athletic`\
-https://nytimes.com/athletic/5968719/2024/12/16/guinea-stadium-disaster-nzerekore/
+**The Reverberations of the Daniel Penny Verdict**\
+`Penny was acquitted in the chokehold killing of Jordan Neely. The case has set off a debate over justice, race and the treatment of mentally ill people.`\
+https://nytimes.com/2024/12/16/nyregion/daniel-penny-verdict.html
 
-**Word of the Day: vocational**\
-`This word has appeared in 220 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/16/learning/word-of-the-day-vocational.html
+**Has Red Wings' rebuild stalled? Can Yzerman land Rantanen or Marner? Mailbag**\
+`Max Bultman answers subscribers' questions about the Red Wings 30 games into the season.`\
+https://nytimes.com/athletic/5994274/2024/12/16/red-wings-rebuild-mitch-marner-mikko-rantanen/
 
