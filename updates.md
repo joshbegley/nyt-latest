@@ -1,3 +1,11 @@
+**Lowetide: How close to balanced are the Oilers this season?**\
+`A balanced roster has success on both special teams and especially owns five-on-five playing time.`\
+https://nytimes.com/athletic/5995596/2024/12/16/edmonton-oilers-roster-2024/
+
+**How Well Do You Know the London of Charles Dickens?**\
+`Try this short quiz to see how many landmarks and locations around the city you remember from the great author’s works.`\
+https://nytimes.com/interactive/2024/12/16/books/review/dickens-london-quiz.html
+
 **12 Die at Georgian Ski Resort From Suspected Carbon Monoxide Poisoning**\
 `The police say the bodies were found dead in a room above an Indian restaurant not long after a generator had been plugged in nearby.`\
 https://nytimes.com/2024/12/16/world/europe/georgia-ski-resort-carbon-monoxide-poisoning.html
