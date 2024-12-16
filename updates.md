@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: Schröder trade thoughts + is Marquette's Jones a lotto pick?**\
+`The Pistons waiving Paul Reed has interesting cap implications, and the Thunder have a long road after the NBA Cup.`\
+https://nytimes.com/athletic/5995339/2024/12/16/dennis-schroder-trade-warriors-kam-jones-marquette/
+
 **Lowetide: How close to balanced are the Oilers this season?**\
 `A balanced roster has success on both special teams and especially owns five-on-five playing time.`\
 https://nytimes.com/athletic/5995596/2024/12/16/edmonton-oilers-roster-2024/
