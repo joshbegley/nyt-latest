@@ -1,3 +1,15 @@
+**Manfred against innings minimum for starting pitchers; salary deferrals ‘can become problematic’**\
+`“To me, this needs to be addressed in a more subtle way," MLB commissioner Rob Manfred said in a wide-ranging interview. `\
+https://nytimes.com/athletic/5999727/2024/12/16/manfred-mlb-innings-minimum-starting-pitchers/
+
+**Biden Administration Takes First Step to Retaliate Against China Over Hack**\
+`The Commerce Department is banning the few remaining operations of China Telecom in the United States, a move that appears unlikely to deter Beijing from conducting sophisticated cyberoperations.`\
+https://nytimes.com/2024/12/16/us/politics/biden-administration-retaliation-china-hack.html
+
+**Judge Denies Trump’s Bid to Throw Out Conviction Over Immunity Ruling**\
+`Justice Juan M. Merchan thwarted one of several attempts by Donald J. Trump to clear his record of 34 felonies before returning to the White House.`\
+https://nytimes.com/2024/12/16/nyregion/trump-immunity-criminal-case.html
+
 **Trump Meets the Press**\
 `Reflecting on how much has changed, and hasn’t, for Donald Trump since he first became president.`\
 https://nytimes.com/2024/12/16/us/politics/trump-press-conference.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/04/opinion/thepoint/adeel-mangi-senate-confirma
 **Why Do You Think the Killing of a Health Care C.E.O. Has Sparked Such an Intense National Conversation?**\
 `Have you been following the story? What do you think the news and our reactions to it say about America today?`\
 https://nytimes.com/2024/12/16/learning/why-do-you-think-the-killing-of-a-health-care-ceo-has-sparked-such-an-intense-national-conversation.html
-
-**What to watch this week in NBA: Cup final, Thunder-Magic, Towns returns to Minnesota**\
-`What to watch — and how to watch it — as the NBA concludes its in-season tournament play.`\
-https://nytimes.com/athletic/5999057/2024/12/16/how-to-watch-nba-cup-final-thunder-magic-knicks-timberwolves/
-
-**A student and a teacher died in the shooting, the police say.**\
-`By Mitch Smith`\
-https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/a-student-and-a-teacher-died-in-the-shooting-the-police-say
-
-**Trump Held His First News Conference as President-Elect**\
-`Also, Syria’s new leader called for sanctions to be lifted. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/12/16/briefing/trump-news-conference-germany-government-collapse.html
 

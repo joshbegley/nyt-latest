@@ -1,3 +1,15 @@
+**Manfred against innings minimum for starting pitchers; salary deferrals ‘can become problematic’**\
+`“To me, this needs to be addressed in a more subtle way," MLB commissioner Rob Manfred said in a wide-ranging interview. `\
+https://nytimes.com/athletic/5999727/2024/12/16/manfred-mlb-innings-minimum-starting-pitchers/
+
+**Biden Administration Takes First Step to Retaliate Against China Over Hack**\
+`The Commerce Department is banning the few remaining operations of China Telecom in the United States, a move that appears unlikely to deter Beijing from conducting sophisticated cyberoperations.`\
+https://nytimes.com/2024/12/16/us/politics/biden-administration-retaliation-china-hack.html
+
+**Judge Denies Trump’s Bid to Throw Out Conviction Over Immunity Ruling**\
+`Justice Juan M. Merchan thwarted one of several attempts by Donald J. Trump to clear his record of 34 felonies before returning to the White House.`\
+https://nytimes.com/2024/12/16/nyregion/trump-immunity-criminal-case.html
+
 **Trump Meets the Press**\
 `Reflecting on how much has changed, and hasn’t, for Donald Trump since he first became president.`\
 https://nytimes.com/2024/12/16/us/politics/trump-press-conference.html
