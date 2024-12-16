@@ -1,3 +1,15 @@
+**The shooting was the 323rd at elementary or secondary schools this year.**\
+`By Troy Closson`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/the-shooting-was-the-323rd-at-elementary-or-secondary-schools-this-year
+
+**Gilgo Beach Prosecutor Promises Major Development in Serial Killing Case**\
+`The defendant, Rex Heuermann, is due in court Tuesday. Investigators have been trying to tie him to other unsolved killings on Long Island.`\
+https://nytimes.com/2024/12/16/nyregion/gilgo-beach-serial-killing-rex-heuermann.html
+
+**Real Estate Leaders Sue to Stop New York City’s Overhaul of Broker Fees**\
+`A law in New York City shifting broker fees from renters to landlords is set to take effect in June. Real estate leaders want to stop it.`\
+https://nytimes.com/2024/12/16/nyregion/broker-fees-lawsuit-nyc.html
+
 **Black Student Enrollment at Harvard Law Drops by More Than Half**\
 `After a Supreme Court decision ended race-based admissions, some law schools saw a decline in Black and Hispanic students entering this fall. Harvard appeared to have the steepest drop.`\
 https://nytimes.com/2024/12/16/us/harvard-law-black-students-enrollment-decline.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/t-magazine/100000009844356/house-tour-dennis-maher.htm
 **NFL Week 16 odds, spreads, schedule: Mahomes' injury swings Texans-Chiefs line and more**\
 `With Patrick Mahomes' injury, the Chiefs odds flipped Monday to make them underdogs vs. the Texans. Plus, playoff stakes around the league.`\
 https://nytimes.com/athletic/5998419/2024/12/16/nfl-week-16-odds-spreads-schedule-mahomes-injury/
-
-**Fact-Checking Trump’s First Post-Election News Conference**\
-`The president-elect made inaccurate claims about a small-business survey, the federal budget, autism rates and pesticide use, among other claims.`\
-https://nytimes.com/2024/12/16/us/politics/trump-news-conference-fact-check.html
-
-**Syria’s top rebel tries out the role of top diplomat.**\
-`In an interview, Ahmed al-Shara shed his green fatigues and sought to leave his militant past behind to talk of rebuilding the state.`\
-https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-al-sharah
-
-**Lookman, Banda win African Footballer of the Year awards**\
-`Atalanta and Nigeria forward Ademola Lookman was crowned men’s 2024 CAF Footballer of the Year in Marrakech at the expense of Morocco international Achraf Hakimi.`\
-https://nytimes.com/athletic/5999264/2024/12/16/caf-awards-lookman-banda/
 
