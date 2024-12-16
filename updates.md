@@ -1,3 +1,7 @@
+**Chiefs release RB Clyde Edwards-Helaire after 5 seasons with team**\
+`He has not appeared in a game after starting this season on the non-football illness list, stemming from his battle with PTSD.`\
+https://nytimes.com/athletic/5999555/2024/12/16/chiefs-release-clyde-edwards-helaire-nfl-news/
+
 **Manfred against innings minimum for starting pitchers; salary deferrals ‘can become problematic’**\
 `“To me, this needs to be addressed in a more subtle way," MLB commissioner Rob Manfred said in a wide-ranging interview. `\
 https://nytimes.com/athletic/5999727/2024/12/16/manfred-mlb-innings-minimum-starting-pitchers/
