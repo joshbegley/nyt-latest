@@ -1,3 +1,11 @@
+**Ways to Fix the Health Insurance Debacle**\
+`Responses to an essay by Andrew Witty, the C.E.O. of UnitedHealth Group. Also: Threats to democracy, in Hungary and America; a check on Trump; avoiding taxes.`\
+https://nytimes.com/2024/12/16/opinion/health-insurance.html
+
+**Ex-Bangladeshi Leader Orchestrated Mass Disappearances, Inquiry Finds**\
+`Prime Minister Sheikh Hasina and top officials are implicated in a centralized program that abducted dissidents and held them in secret prisons, an official commission’s preliminary report said.`\
+https://nytimes.com/2024/12/16/world/asia/bangladesh-disappearances-sheikh-hasina.html
+
 **Sudden Loss of Undocumented Workers Threw Tech Supplier Into Upheaval**\
 `Jabil says it required “herculean efforts” to replace employees from a staffing agency. Other businesses are bracing for “an enforcement storm” under President-elect Trump.`\
 https://nytimes.com/2024/12/16/us/immigration-undocumented-workers-jabil.html

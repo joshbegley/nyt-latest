@@ -1,3 +1,11 @@
+**Ways to Fix the Health Insurance Debacle**\
+`Responses to an essay by Andrew Witty, the C.E.O. of UnitedHealth Group. Also: Threats to democracy, in Hungary and America; a check on Trump; avoiding taxes.`\
+https://nytimes.com/2024/12/16/opinion/health-insurance.html
+
+**Ex-Bangladeshi Leader Orchestrated Mass Disappearances, Inquiry Finds**\
+`Prime Minister Sheikh Hasina and top officials are implicated in a centralized program that abducted dissidents and held them in secret prisons, an official commission’s preliminary report said.`\
+https://nytimes.com/2024/12/16/world/asia/bangladesh-disappearances-sheikh-hasina.html
+
 **Sudden Loss of Undocumented Workers Threw Tech Supplier Into Upheaval**\
 `Jabil says it required “herculean efforts” to replace employees from a staffing agency. Other businesses are bracing for “an enforcement storm” under President-elect Trump.`\
 https://nytimes.com/2024/12/16/us/immigration-undocumented-workers-jabil.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5998181/2024/12/16/49ers-devondre-campbell-suspende
 **The Canucks' inconsistency, UFA math and a critical week**\
 `While we're still pretty confident the Canucks are a very good team, we need to see this group's form actually match those expectations.`\
 https://nytimes.com/athletic/5997454/2024/12/16/canucks-free-agent-nhl/
-
-**Cowboys Today: Would Dallas really consider trading Micah Parsons?**\
-`Micah Parsons addressed a report on his future in the locker room postgame and we have our thoughts on if the Cowboys would trade him.`\
-https://nytimes.com/athletic/5998126/2024/12/16/cowboys-today-micah-parsons-brandon-aubrey-70/
-
-**France Sends Soldiers to Find Survivors Following Cyclone Chido**\
-`The French territory of Mayotte off the eastern coast of Africa was left devastated by Tropical Cyclone Chido. French authorities said it could take days to establish a death toll.`\
-https://nytimes.com/video/weather/100000009879832/cyclone-chido-mayotte-island-.html
 
