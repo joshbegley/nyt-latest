@@ -1,3 +1,7 @@
+**‘Dune: Prophecy’ Season 1, Episode 5 Recap: Mother Inferior**\
+`A sister with history shows up at the emperor’s palace. Not everyone is pleased. Nor should everyone be.`\
+https://nytimes.com/2024/12/16/arts/television/dune-prophecy-recap-season-1-episode-5.html
+
 **Hurzeler's first Brighton mini-crisis: Dunk unrecognisable, injuries take toll, problems at both ends**\
 `What's going so wrong for Brighton after four games without a win?`\
 https://nytimes.com/athletic/5995388/2024/12/16/fabian-hurzeler-brighton-dunk-problems/
