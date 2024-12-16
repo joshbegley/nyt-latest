@@ -11,11 +11,11 @@ https://nytimes.com/2024/12/16/crosswords/spelling-bee-forum.html
 https://nytimes.com/athletic/5997550/2024/12/16/lebron-james-foot-injury-management/
 
 **Seahawks fail litmus test against Packers; Geno Smith suffers knee injury**\
-`The Lumen Field magic was missing. With many Packers fans in attendance, “Go Pack Go” chants were heard throughout the game.`\
+`The Lumen Field magic was missing. With many Green Bay fans in attendance, “Go Pack Go” chants were heard throughout the game.`\
 https://nytimes.com/athletic/5997563/2024/12/16/seahawks-lose-packers/
 
 **Why Enzo Maresca can no longer ignore Chelsea's discipline issue**\
-`Chelsea and Maresca are rightly praised for their success so far, but the number of suspensions being picked up should be a concern.`\
+`Chelsea and Maresca are rightly praised for their success so far, but the number of suspensions being picked up should be a concern`\
 https://nytimes.com/athletic/5996424/2024/12/16/chelsea-discipline-maresca/
 
 **The Warriors' revolving door at off-guard is about to get a Dennis Schröder boost**\
