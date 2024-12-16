@@ -1,3 +1,7 @@
+**This Is the Secret to the Perfect Baked Potato**\
+`A simple trick yields crisp outsides and fluffy insides, ready to be topped in three smart, exciting ways from Eric Kim.`\
+https://nytimes.com/2024/12/16/dining/how-to-make-baked-potatoes.html
+
 **Chiefs release RB Clyde Edwards-Helaire after 5 seasons with team**\
 `He has not appeared in a game after starting this season on the non-football illness list, stemming from his battle with PTSD.`\
 https://nytimes.com/athletic/5999555/2024/12/16/chiefs-release-clyde-edwards-helaire-nfl-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/sports/basketball/dick-van-arsdale-dead.html
 **‘Every person in that building is a victim,’ Madison’s police chief says.**\
 `Chief Shon F. Barnes said schools “should be a refuge for students in our community.”`\
 https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/every-person-in-that-building-is-a-victim-madisons-police-chief-says
-
-**A Spineless Senate Abandons a Qualified Judge**\
-`The attacks on Adeel Mangi were without merit.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/adeel-mangi-senate-confirmation
 
