@@ -1,3 +1,7 @@
+**NFL Week 16 odds, spreads, schedule: Mahomes' injury swings Texans-Chiefs line and more**\
+`With Patrick Mahomes' injury, the Chiefs odds flipped Monday to make them underdogs vs. the Texans. Plus, playoff stakes around the league.`\
+https://nytimes.com/athletic/5998419/2024/12/16/nfl-week-16-odds-spreads-schedule-mahomes-injury/
+
 **Fact-Checking Trump’s First Post-Election News Conference**\
 `The president-elect made inaccurate claims about a small-business survey, the federal budget, autism rates and pesticide use, among other claims.`\
 https://nytimes.com/2024/12/16/us/politics/trump-news-conference-fact-check.html

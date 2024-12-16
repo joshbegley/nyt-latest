@@ -10,8 +10,8 @@ https://nytimes.com/2024/12/16/us/politics/trump-news-conference-fact-check.html
 `In an interview, Ahmed al-Shara shed his green fatigues and sought to leave his militant past behind to talk of rebuilding the state.`\
 https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-al-sharah
 
-**Lookman, Banda win African Player of the Year awards**\
-`Atalanta and Nigeria forward Ademola Lookman was crowned men’s 2024 CAF Player of the Year in Marrakech at the expense of Morocco international Achraf Hakimi.`\
+**Lookman, Banda win African Footballer of the Year awards**\
+`Atalanta and Nigeria forward Ademola Lookman was crowned men’s 2024 CAF Footballer of the Year in Marrakech at the expense of Morocco international Achraf Hakimi.`\
 https://nytimes.com/athletic/5999264/2024/12/16/caf-awards-lookman-banda/
 
 **San Francisco Giants free-agent profile: Anthony Santander**\
