@@ -1,3 +1,19 @@
+**France Sends Soldiers to Find Survivors Following Cyclone Chido**\
+`The French territory of Mayotte off the eastern coast of Africa was left devastated by Tropical Cyclone Chido. French authorities said it could take days to establish a death toll.`\
+https://nytimes.com/video/weather/100000009879832/cyclone-chido-mayotte-island-.html
+
+**With Jets mom's trip underway, Morrissey reflects on mom's hockey-first support**\
+`Morrissey reflects on how his mom supported him and his dying father. Hellebuyck's dad looks back on his son's earliest days goaltending.`\
+https://nytimes.com/athletic/5996419/2024/12/16/winnipeg-jets-josh-morrissey-connor-hellebuyck/
+
+**How tight end Tanner Koziol can elevate Wisconsin's offense from the transfer portal**\
+`Koziol played three seasons at Ball State and announced his transfer to the Badgers over the weekend.`\
+https://nytimes.com/athletic/5998388/2024/12/16/wisconsin-college-footall-transfer-portal-tanner-koziol/
+
+**E.B. Furgurson III, Who Covered Massacre at His Newspaper, Dies at 70**\
+`After five people were killed in the newsroom, he set up a work space in the back of his pickup truck and made sure the next day’s issue was published.`\
+https://nytimes.com/2024/12/16/business/media/eb-furgurson-iii-dead.html
+
 **Letby’s Lawyers Seek Appeal After Lead Expert ‘Changed Mind’ on Murders**\
 `Lawyers for Lucy Letby, a British nurse found guilty of the murders of seven babies, said that new evidence about the prosecution’s lead witness undermined the case against her.`\
 https://nytimes.com/2024/12/16/world/europe/letby-murders-appeal.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/16/nyregion/eric-adams-matching-funds-campaign-finan
 **Balogun out for four months after shoulder surgery, says Monaco coach**\
 `USMNT and Monaco striker Folarin Balogun is expected to be sidelined for four months as he prepares to undergo shoulder surgery.`\
 https://nytimes.com/athletic/5998329/2024/12/16/balogun-shoulder-injury-update/
-
-**Robert F. Kennedy Jr., Trump’s Health Secretary Pick, Is Set to Meet with Lawmakers**\
-`Mr. Kennedy is beginning his meetings with Republican senators to build support for his confirmation, which could be imperiled by his anti-vaccine advocacy.`\
-https://nytimes.com/2024/12/16/us/politics/rfk-jr-republican-senators-health-secretary-bid.html
-
-**Lowetide: How close to balanced are the Oilers this season?**\
-`A balanced roster has success on both special teams and especially owns five-on-five playing time.`\
-https://nytimes.com/athletic/5995596/2024/12/16/edmonton-oilers-roster-2024/
-
-**How Well Do You Know the London of Charles Dickens?**\
-`Try this short quiz to see how many landmarks and locations around the city you remember from the great author’s works.`\
-https://nytimes.com/interactive/2024/12/16/books/review/dickens-london-quiz.html
-
-**12 Die at Georgian Ski Resort From Suspected Carbon Monoxide Poisoning**\
-`The police say the bodies were found dead in a room above an Indian restaurant not long after a generator had been plugged in nearby.`\
-https://nytimes.com/2024/12/16/world/europe/georgia-ski-resort-carbon-monoxide-poisoning.html
 
