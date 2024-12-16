@@ -1,3 +1,7 @@
+**Broncos were gifted Jonathan Taylor's gaffe, but also made they own luck as playoffs near**\
+`Denver knows the Colts' TD coming off the scoreboard was a gift, but also capitalized by scoring 24 unanswered points afterward.`\
+https://nytimes.com/athletic/5996864/2024/12/15/broncos-win-colts-jonathan-taylor-luck-playoff-picture/
+
 **Lindy Ruff, and players, running out of answers as Sabres' losing streak hits 10: Takeaways**\
 `The Sabres took a 3-1 lead against the Leafs and then allowed four unanswered goals, including a hat trick.`\
 https://nytimes.com/athletic/5996981/2024/12/15/sabres-lindy-ruff-losing-streak-leafs/

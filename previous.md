@@ -1,3 +1,7 @@
+**Broncos were gifted Jonathan Taylor's gaffe, but also made they own luck as playoffs near**\
+`Denver knows the Colts' TD coming off the scoreboard was a gift, but also capitalized by scoring 24 unanswered points afterward.`\
+https://nytimes.com/athletic/5996864/2024/12/15/broncos-win-colts-jonathan-taylor-luck-playoff-picture/
+
 **Lindy Ruff, and players, running out of answers as Sabres' losing streak hits 10: Takeaways**\
 `The Sabres took a 3-1 lead against the Leafs and then allowed four unanswered goals, including a hat trick.`\
 https://nytimes.com/athletic/5996981/2024/12/15/sabres-lindy-ruff-losing-streak-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5996729/2024/12/15/blue-jackets-power-play-backfire
 **CeeDee Lamb continues to be bright spot in otherwise disappointing Cowboys season**\
 `Lamb had his second 100-yard game this season and topped 1,000 receiving yards for the fourth consecutive season. `\
 https://nytimes.com/athletic/5996635/2024/12/15/ceedee-lamb-cowboys-1000-yards-panthers-win/
-
-**Kaprizov's 2 goals not enough as Vegas spoils Wallstedt's season debut: 4 takeaways**\
-`Kaprizov's 22 goals are now the most by a Wild player through his first 30 games in a season.`\
-https://nytimes.com/athletic/5996418/2024/12/15/wild-wallstedt-debut-kaprizov-golden-knights/
 
