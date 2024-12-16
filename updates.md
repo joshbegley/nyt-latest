@@ -1,3 +1,15 @@
+**‘Malcolm in the Middle’ Is Getting a Four-Episode Revival on Disney+**\
+`The return of “Malcolm in the Middle,” which aired from 2000 to 2006, will follow Malcolm as he helps his parents celebrate their 40th wedding anniversary, Disney+ announced.`\
+https://nytimes.com/2024/12/15/arts/television/malcom-in-the-middle-revival.html
+
+**Colts' Jonathan Taylor drops ball before goal line, erasing TD run vs. Broncos**\
+`The Colts running back wasn't the only player in Week 15 to drop the ball before the goal line to negate a touchdown.`\
+https://nytimes.com/athletic/5996345/2024/12/15/jonathan-taylor-fumble-touchback-colts-broncos/
+
+**Giants building lead in race for No. 1 NFL Draft pick**\
+`While we await the result of the Raiders' Monday night game, the Giants currently win the top pick in nearly one in two scenarios.`\
+https://nytimes.com/athletic/5996167/2024/12/15/top-draft-pick-nfl-giants-raiders/
+
 **The Narrator**\
 `Banias is an 8-year-old living in Gaza, and she has a story to tell — many stories, in fact.`\
 https://nytimes.com/2024/12/15/podcasts/the-narrator-this-american-life-nyt-audio.html
