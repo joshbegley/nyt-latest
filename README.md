@@ -1,3 +1,7 @@
+**Is Protein Powder a Scam?**\
+`Most people don’t need to consume this supplement, experts say, but it can be useful in certain situations.`\
+https://nytimes.com/2024/12/16/well/eat/protein-powder-scams.html
+
 **Mayor Adams Is Denied Public Money for His Re-election Campaign**\
 `The New York City Campaign Finance Board voted to withhold as much as $4.3 million in matching funds from Mayor Eric Adams, hampering his re-election bid.`\
 https://nytimes.com/2024/12/16/nyregion/eric-adams-matching-funds-campaign-finance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5998129/2024/12/16/ohio-state-tennessee-college-foo
 **Canadiens weekly notebook: Alex Newhook’s future, Kirby Dach’s untimely penalties**\
 `Also in this week's notebook, Lane Hutson's defence remains underappreciated and Michael Hage's signature move snaps a slump. `\
 https://nytimes.com/athletic/5997645/2024/12/16/canadiens-alex-newhooks-kirby-dach-penalty/
-
-**Lijnders sacked as Red Bull Salzburg head coach**\
-`Red Bull Salzburg have parted company with head coach Pep Lijnders after just seven months in charge.`\
-https://nytimes.com/athletic/5998252/2024/12/16/pep-lijnders-red-bull-salzburg/
 
