@@ -1,3 +1,11 @@
+**Fact-Checking Trump’s First Post-Election News Conference**\
+`The president-elect made inaccurate claims about a small-business survey, the federal budget, autism rates and pesticide use, among other claims.`\
+https://nytimes.com/2024/12/16/us/politics/trump-news-conference-fact-check.html
+
+**Syria’s top rebel tries out the role of top diplomat.**\
+`In an interview, Ahmed al-Shara shed his green fatigues and sought to leave his militant past behind to talk of rebuilding the state.`\
+https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-al-sharah
+
 **Lookman, Banda win African Player of the Year awards**\
 `Atalanta and Nigeria forward Ademola Lookman was crowned men’s 2024 CAF Player of the Year in Marrakech at the expense of Morocco international Achraf Hakimi.`\
 https://nytimes.com/athletic/5999264/2024/12/16/caf-awards-lookman-banda/
