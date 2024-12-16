@@ -1,3 +1,11 @@
+**WSL Briefing: Surprises at the top as clubs sign off for the winter break**\
+`Chelsea failed to win for the first time under Sonia Bompastor but Manchester City could not take full advantage`\
+https://nytimes.com/athletic/5996222/2024/12/16/wsl-briefing-chelsea-leiecester-manchester-city/
+
+**Tennis Briefing: Emma Raducanu's turning point and the fairness of tennis wildcards**\
+`The Brit discusses the demands of the WTA Tour, while the Australian Open releases its wildcards.`\
+https://nytimes.com/athletic/5997837/2024/12/16/emma-raducanu-tennis-ranking-schedule/
+
 **NBA Rewind: Jimmy Butler, Brandon Ingram highlight the start of trade season**\
 `NBA trade season got underway this weekend. Which big names could be on the move?`\
 https://nytimes.com/athletic/5995758/2024/12/16/jimmy-butler-brandon-ingram-nba-trade/
