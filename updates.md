@@ -1,3 +1,7 @@
+**Tice’s Mother Asks Netanyahu for Pause in Syria Strikes to Search for Journalist**\
+`Debra Tice wrote to the Israeli prime minister that her family had “credible information” that Austin Tice may be held in a prison outside Damascus, in an area where Israel had been conducting military operations.`\
+https://nytimes.com/2024/12/16/world/middleeast/austin-tice-mother-netanyahu-israel.html
+
 **Patriots-Bills Week 16 matchup flexed to 4:25 p.m. kickoff time**\
 `Buffalo (11-3) is coming off a high-flying Week 15 win against the Lions in Detroit.`\
 https://nytimes.com/athletic/5998865/2024/12/16/patriots-bills-game-flexed-week-16/
