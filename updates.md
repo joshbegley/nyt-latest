@@ -1,3 +1,7 @@
+**Bashar al-Assad appears to give his first account of leaving Syria.**\
+`a statement posted to the facebook account once used by president assad when he was in office`\
+https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-assad-rebels-news
+
 **Cam Fowler's time in Anaheim shouldn't be defined by unfair comparisons and expectations**\
 `No, Fowler didn't become the next Scott Niedermayer or a defensive game-changer. But don't denigrate his career.`\
 https://nytimes.com/athletic/5997190/2024/12/16/cam-fowler-ducks-trade-career/

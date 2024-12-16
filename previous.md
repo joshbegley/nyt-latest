@@ -18,8 +18,8 @@ https://nytimes.com/athletic/5997620/2024/12/16/klay-thompson-mavericks-win-warr
 `The Royal Spanish Football Federation (RFEF) has elected Rafael Louzan as its new president.`\
 https://nytimes.com/athletic/5997874/2024/12/16/spanish-football-federation-president-elections/
 
-**Al-Assad Wanted to Stay in Syria and Fight, Statement Says**\
-`The country’s former leader, Bashar al-Assad, appeared to give his first account of his flight from Syria in a statement posted to a Facebook account used by his presidency.`\
+**Bashar al-Assad appears to give his first account of leaving Syria.**\
+`a statement posted to the facebook account once used by president assad when he was in office`\
 https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/syria-assad-rebels-news
 
 **Syria’s New Leadership Takes Early Steps Toward Legitimacy**\
