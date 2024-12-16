@@ -1,8 +1,8 @@
-**Spanish football federation elect Louzan as new president**\
+**Spanish football federation elects Louzan as new president**\
 `The Royal Spanish Football Federation (RFEF) has elected Rafael Louzan as its new president.`\
 https://nytimes.com/athletic/5997874/2024/12/16/spanish-football-federation-president-elections/
 
-**Al-Assad Claims He Wanted to Stay and Fight as Rebels Took Syria**\
+**Al-Assad Wanted to Stay in Syria and Fight, Statement Says**\
 `The country’s former leader, Bashar al-Assad, appeared to give his first account of his flight from Syria in a statement posted to a Facebook account used by his presidency.`\
 https://nytimes.com/2024/12/16/world/middleeast/syria-assad-rebels-news.html
 
