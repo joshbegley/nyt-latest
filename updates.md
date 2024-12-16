@@ -1,3 +1,11 @@
+**How Chargers respond to Bucs beatdown will decide fate of Jim Harbaugh's debut season**\
+`The Chargers have looked like a revitalized organization. Sunday's blowout loss to the Buccaneers will test their resolve.`\
+https://nytimes.com/athletic/5997263/2024/12/15/chargers-loss-buccaneers-response-jim-harbaugh/
+
+**'I was so lost in my own mind': Wild's Jesper Wallstedt opens up about his trying season**\
+`Despite a 3-2 loss to Vegas in his home debut, Jesper Wallstedt is on the upswing after a rough start to the season.`\
+https://nytimes.com/athletic/5997200/2024/12/15/wild-jesper-wallstedt-struggle-goalie-home-debut/
+
 **It's clear a Browns blowup is necessary after listless loss to Chiefs**\
 `Cleveland is limping toward the end of a miserable season with many unanswered questions ahead. `\
 https://nytimes.com/athletic/5996586/2024/12/15/browns-loss-chiefs-roster-blowup/

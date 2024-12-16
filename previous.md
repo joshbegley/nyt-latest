@@ -1,3 +1,11 @@
+**How Chargers respond to Bucs beatdown will decide fate of Jim Harbaugh's debut season**\
+`The Chargers have looked like a revitalized organization. Sunday's blowout loss to the Buccaneers will test their resolve.`\
+https://nytimes.com/athletic/5997263/2024/12/15/chargers-loss-buccaneers-response-jim-harbaugh/
+
+**'I was so lost in my own mind': Wild's Jesper Wallstedt opens up about his trying season**\
+`Despite a 3-2 loss to Vegas in his home debut, Jesper Wallstedt is on the upswing after a rough start to the season.`\
+https://nytimes.com/athletic/5997200/2024/12/15/wild-jesper-wallstedt-struggle-goalie-home-debut/
+
 **Texas Tech transfer WR Micah Hudson commits to Texas A&M**\
 `Hudson was Texas Tech's highest-ranked signee in the modern recruiting era.`\
 https://nytimes.com/athletic/5997196/2024/12/15/micah-hudson-transfer-texas-am/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5996981/2024/12/15/sabres-lindy-ruff-losing-streak-
 **Jerod Mayo wanted to see progress, but the Patriots are a bad team that's getting worse**\
 `After a 30-17 loss to the Cardinals that wasn't as close as the score would indicate, the Patriots are looking forward to the offseason. `\
 https://nytimes.com/athletic/5996911/2024/12/15/patriots-jerod-mayo-bad-team-getting-worse/
-
-**Commanders went from marching past Saints to creating questions in chaotic finish**\
-`Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a 2-point conversion with no time remaining.`\
-https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playoff-picture/
-
-**How much worse could this get for the Rangers?**\
-`The Rangers look like a shell of the team that got off to a 12-4-1 start, and the schedule doesn't get any easier.`\
-https://nytimes.com/athletic/5996903/2024/12/15/rangers-free-fall-blues-loss/
 
