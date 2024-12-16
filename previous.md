@@ -1,3 +1,15 @@
+**Commanders went from marching past Saints to creating questions in chaotic finish**\
+`Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a two-point conversion with no time remaining.`\
+https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playoff-picture/
+
+**How much worse could this get for the Rangers?**\
+`The Rangers look like a shell of the team that got off to a 12-4-1 start, and the schedule doesn't get any easier coming up.`\
+https://nytimes.com/athletic/5996903/2024/12/15/rangers-free-fall-blues-loss/
+
+**Quote of the Day: Blunt U.S. Ambassador in Nicety-Bound Japan**\
+`Quotation of the Day for Monday, December 16, 2024.`\
+https://nytimes.com/2024/12/15/pageoneplus/quote-of-the-day-blunt-us-ambassador-in-nicety-bound-japan.html
+
 **Davante Adams showed what he can do — and why he should be back with the Jets in 2025**\
 `The veteran receiver was the difference as the Jets, finally, pulled out a win in a close game.`\
 https://nytimes.com/athletic/5996533/2024/12/15/davante-adams-jets-jaguars-contract-situation/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5995314/2024/12/15/broncos-colts-score-result-takea
 **Bills outlast Lions 48-42 in potential Super Bowl preview: Takeaways**\
 `Buffalo remains in the hunt for the AFC's top seed, while Detroit is tied with Philadelphia atop the NFC. `\
 https://nytimes.com/athletic/5995316/2024/12/15/bills-lions-score-result-takeaways/
-
-**Maple Leafs report cards: John Tavares, Nick Robertson spark offensive outburst**\
-`The Leafs scored three goals in under three minutes en route to a Tavares hat trick.`\
-https://nytimes.com/athletic/5996171/2024/12/15/maple-leafs-report-cards-tavares-robertson-sabres/
-
-**Will Patrick Mahomes miss time? That's the big question after Chiefs improve to 13-1**\
-`Joe Thuney fared well at left tackle, but the Chiefs' second-half play calling may have put their quarterback in unnecessary jeopardy.`\
-https://nytimes.com/athletic/5996435/2024/12/15/chiefs-patrick-mahomes-injury-browns/
-
-**How do you cover this hopeless Giants team? A press box view of their ninth straight loss**\
-`Take a peek behind the curtain as Dan Duggan chronicles his Giants game day — from ponytails to the press box. `\
-https://nytimes.com/athletic/5996409/2024/12/15/giants-loss-ninth-straight-press-box-perspective/
 

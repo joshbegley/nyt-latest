@@ -1,3 +1,15 @@
+**Commanders went from marching past Saints to creating questions in chaotic finish**\
+`Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a two-point conversion with no time remaining.`\
+https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playoff-picture/
+
+**How much worse could this get for the Rangers?**\
+`The Rangers look like a shell of the team that got off to a 12-4-1 start, and the schedule doesn't get any easier coming up.`\
+https://nytimes.com/athletic/5996903/2024/12/15/rangers-free-fall-blues-loss/
+
+**Quote of the Day: Blunt U.S. Ambassador in Nicety-Bound Japan**\
+`Quotation of the Day for Monday, December 16, 2024.`\
+https://nytimes.com/2024/12/15/pageoneplus/quote-of-the-day-blunt-us-ambassador-in-nicety-bound-japan.html
+
 **Early opportunity backfires in Blue Jackets' rough loss to Hurricanes**\
 `The Hurricanes turned the tables on the Blue Jackets with a short-handed goal in the first period to set the tone for a 4-1 defeat.`\
 https://nytimes.com/athletic/5996729/2024/12/15/blue-jackets-power-play-backfire-hurricanes/
