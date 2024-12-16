@@ -1,3 +1,7 @@
+**Former NFL QB Michael Vick interviews for Norfolk State's head coaching job**\
+`Vick grew up in the Hampton Roads area in Virginia and starred at Virginia Tech`\
+https://nytimes.com/athletic/5998807/2024/12/16/michael-vick-norfolk-state-head-coach-talks/
+
 **‘Multiple Injuries’ Reported After Shooting at School in Wisconsin, Police Say**\
 `The police said they were investigating a shooting at the Abundant Life Christian School in Madison, which has about 390 children in Kindergarten through 12th grade.`\
 https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-madison.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5998702/2024/12/16/risers-fallers-nfl-week-15-takea
 **Lions' Alim McNeill reportedly out for season; Carlton Davis suffers broken jaw**\
 `McNeill suffered the injury in the third quarter of Sunday's loss and Davis was evaluated for a concussion in addition to the broken jaw`\
 https://nytimes.com/athletic/5998570/2024/12/16/alim-mcneill-carlton-davis-lions-injuries/
-
-**We Were All Just Catching Up to Lorraine O’Grady**\
-`Through her writing and performances, the artist helped new audiences to understand the cultural roots of racism and sexism.`\
-https://nytimes.com/2024/12/16/arts/design/lorraine-ogrady-artist-legacy.html
 
