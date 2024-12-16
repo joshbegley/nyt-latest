@@ -1,11 +1,3 @@
-**The U.S. military says its airstrikes killed 12 Islamic State operatives in Syria.**\
-`By Eve Sampson`\
-https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/the-us-military-says-its-airstrikes-killed-12-islamic-state-operatives-in-syria
-
-**Read the Letter**\
-`Adeel Mangi, who would have been the first Muslim American federal appellate court judge, wrote an angry letter to President Biden describing bigotry he faced in the confirmation process.`\
-https://nytimes.com/interactive/2024/12/16/us/aam-letter-to-president-biden.html
-
 **Blocked Muslim Judicial Nominee Decries Senate ‘Smear Campaign’**\
 `Adeel Mangi, who would have been the first Muslim American federal appellate court judge, wrote an angry letter to President Biden describing bigotry he faced in the confirmation process.`\
 https://nytimes.com/2024/12/16/us/politics/muslim-judicial-nominee-bigotry.html
@@ -37,4 +29,12 @@ https://nytimes.com/video/us/politics/100000009880527/trump-says-he-would-consid
 **A Hanukkah-Ready Recipe That Does Everything Right**\
 `Inspired by a Ukrainian cafe and a mother-in-law’s classic, this take on kasha varnishkes is rich with caramelized onions.`\
 https://nytimes.com/2024/12/16/dining/hanukkah-recipe.html
+
+**Submit your Panthers mailbag questions to Joe Person**\
+`Is Bryce Young "the guy"? What should the Panthers do with their high draft pick? What questions do you have?`\
+https://nytimes.com/athletic/5999049/2024/12/16/submit-your-panthers-mailbag-questions-to-joe-person-12/
+
+**Submit your Cardinals questions for Katie Woo's mailbag**\
+`Submit your Cardinals questions for Katie Woo's mailbag`\
+https://nytimes.com/athletic/5999050/2024/12/16/cardinals-offseason-mailbag/
 

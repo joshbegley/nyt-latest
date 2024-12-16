@@ -1,3 +1,7 @@
+**The U.S. military says its airstrikes killed 12 Islamic State operatives in Syria.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/the-us-military-says-its-airstrikes-killed-12-islamic-state-operatives-in-syria
+
 **Read the Letter**\
 `Adeel Mangi, who would have been the first Muslim American federal appellate court judge, wrote an angry letter to President Biden describing bigotry he faced in the confirmation process.`\
 https://nytimes.com/interactive/2024/12/16/us/aam-letter-to-president-biden.html
