@@ -1,3 +1,7 @@
+**What started out so sweet for Bryce Young devolved into an ugly, turnover fest**\
+`Bryce Young's fumble on the Panthers' impressive opening drive served as a harbinger of things to overcome Sunday against the Cowboys.`\
+https://nytimes.com/athletic/5996509/2024/12/15/panthers-loss-bryce-young-turnovers-cowboys/
+
 **How do you cover this hopeless Giants team? A press box view of their ninth straight loss**\
 `Take a peek behind the curtain as Dan Duggan chronicles his Giants game day — from ponytails to the press box. `\
 https://nytimes.com/athletic/5996409/2024/12/15/giants-loss-ninth-straight-press-box-perspective/
