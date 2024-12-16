@@ -1,3 +1,7 @@
+**Tuesday Briefing: Syria’s New Leader Calls for Lifting Sanctions**\
+`Plus, the breakout stars of 2024.`\
+https://nytimes.com/2024/12/16/briefing/syria-germany-trump.html
+
 **'I love where it's going': Flyers' Tortorella pleased with Michkov's progress, attitude**\
 `Despite some on-ice bumps, the rookie has earned support and praise from his tough coach.`\
 https://nytimes.com/athletic/5999187/2024/12/16/michkov-flyers-tortorella-coach/
