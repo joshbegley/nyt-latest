@@ -43,6 +43,11 @@ https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
 `\
 https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
 
+**Crystal Palace shake off their Brighton blues - and show an impetus to kick on**\
+`Glasner and his Palace players might finally feel the pressure they had felt in the earlier parts of this season has now relented
+`\
+https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
+
 **Leagues Cup changes afoot in 2025 says Liga MX chief, scrapping midseason break**\
 `MLS and Mexican teams will battle for a revamped Leagues Cup next season, Liga MX president Mikel Arriola says.`\
 https://nytimes.com/athletic/5997443/2024/12/16/leagues-cup-mls-ligamx/
