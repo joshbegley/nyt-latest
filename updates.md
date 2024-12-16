@@ -1,3 +1,15 @@
+**Heat Today: The pros and cons of trading Jimmy Butler**\
+`Do the Heat want to launch a youth movement, or should they gear up for another playoff run?`\
+https://nytimes.com/athletic/5998701/2024/12/16/jimmy-butler-heat-nba-suns-mavericks-rockets-warriors/
+
+**The Windup: Astros at a crossroads?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/5998798/2024/12/16/astros-trade-kyle-tucker-cubs-the-windup/
+
+**Lions RB David Montgomery out indefinitely with MCL injury: Reports**\
+`Montgomery had been a key piece in the Lions offense combining with Jahmyr Gibbs to form one of the NFL's best backfield tandems.`\
+https://nytimes.com/athletic/5998765/2024/12/16/david-montgomery-injury-lions/
+
 **At Trump’s first post-election news conference, topics include autism, the border wall and drones.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/12/16/us/trump-news/at-trumps-first-post-election-news-conference-topics-include-autism-the-border-wall-and-drones
