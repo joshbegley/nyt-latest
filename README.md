@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5996911/2024/12/15/patriots-jerod-mayo-bad-team-getting-worse/
 
 **Commanders went from marching past Saints to creating questions in chaotic finish**\
-`Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a two-point conversion with no time remaining.`\
+`Washington held on for a pivotal win as New Orleans fought till the end and failed to convert a 2-point conversion with no time remaining.`\
 https://nytimes.com/athletic/5996375/2024/12/15/commanders-win-saints-nfc-playoff-picture/
 
 **How much worse could this get for the Rangers?**\
