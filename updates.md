@@ -1,3 +1,11 @@
+**Canadiens weekly notebook: Alex Newhook’s future, Kirby Dach’s untimely penalties**\
+`Also in this week's notebook, Lane Hutson's defence remains underappreciated and Michael Hage's signature move snaps a slump. `\
+https://nytimes.com/athletic/5997645/2024/12/16/canadiens-alex-newhooks-kirby-dach-penalty/
+
+**Lijnders sacked as Red Bull Salzburg head coach**\
+`Red Bull Salzburg have parted company with head coach Pep Lijnders after just seven months in charge.`\
+https://nytimes.com/athletic/5998252/2024/12/16/pep-lijnders-red-bull-salzburg/
+
 **Hollinger's Week That Was: Schröder trade thoughts + is Marquette's Jones a lotto pick?**\
 `We've reached trade season! The Pistons waiving Reed has interesting cap implications, and the Thunder have a long road after the NBA Cup.`\
 https://nytimes.com/athletic/5995339/2024/12/16/dennis-schroder-trade-warriors-kam-jones-marquette/
