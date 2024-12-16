@@ -1,3 +1,11 @@
+**Trump Transition Live Updates: Hegseth Will Release Accuser From Confidential Agreement, Graham Says**\
+``\
+https://nytimes.com/live/2024/12/16/us/trump-news
+
+**Barcelona's Yamal out for up to a month with ankle injury**\
+`Lamine Yamal faces up to a month out injured after sustaining a right ankle injury in Barcelona&#8217;s 1-0 loss against Leganes on Sunday.`\
+https://nytimes.com/athletic/5997833/2024/12/16/lamine-yamal-barcelona-injury/
+
 **Barcelona's Yamal out for up to a month with ankle injury**\
 `Lamine Yamal faces up to a month out injured after sustaining an ankle injury in Barcelona&#8217;s 1-0 loss against Leganes on Sunday.`\
 https://nytimes.com/athletic/5997833/2024/12/16/lamine-yamal-barcelona-injury/
