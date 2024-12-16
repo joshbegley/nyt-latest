@@ -1,3 +1,15 @@
+**Guinea stadium disaster special report: 'This door here, it's the door to hell'**\
+`Two weeks on from a tragedy that killed at least 56 people and perhaps many more, those affected speak to The Athletic`\
+https://nytimes.com/athletic/5968719/2024/12/16/guinea-stadium-disaster-nzerekore/
+
+**Word of the Day: vocational**\
+`This word has appeared in 220 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/16/learning/word-of-the-day-vocational.html
+
+**Why Wolves sacked Gary O'Neil and turned to Jorge Mendes again**\
+`The inside story of Wolves' decision to move on from Gary O'Neil and what comes next at Molineux`\
+https://nytimes.com/athletic/5995902/2024/12/16/wolves-gary-oneil-jorge-mendes-vitor-pereira/
+
 **Alex Zendejas helps USMNT cause with starring role in Liga MX title triumph**\
 `Recently unsure whether to represent USA or Mexico, Alex Zendejas could thrive under Mauricio Pochettino`\
 https://nytimes.com/athletic/5997593/2024/12/16/alex-zendejas-ligamx-club-america/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/5996370/2024/12/16/fantasy-football-week-15-takeawa
 **Emery, an intense manager tweaking his methods as Aston Villa navigate uncharted territory**\
 `How Aston Villa's manager is altering his approach during a relentless run of fixtures`\
 https://nytimes.com/athletic/5993708/2024/12/16/unai-emery-aston-villa-forest-fatigue/
-
-**Lions got a reality check against Bills. How they respond will determine how far they can go**\
-`The Lions hadn't lost in a long time, and probably can't again this season.`\
-https://nytimes.com/athletic/5997081/2024/12/16/lions-loss-bills-reality-check/
-
-**Confidence at Newcastle has been restored. Now to find consistency in a pivotal week**\
-`Victory over Leicester could prove the spark Eddie Howe's team need, with a Carabao Cup quarter-final to come this week`\
-https://nytimes.com/athletic/5993679/2024/12/16/newcastle-leicester-howe-consistency/
-
-**Crystal Palace shake off their Brighton blues - and show an impetus to kick on**\
-`Glasner and his Palace players might finally feel the pressure they had felt in the earlier parts of this season has now relented
-`\
-https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
 
