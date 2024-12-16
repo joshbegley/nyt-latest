@@ -1,9 +1,5 @@
-**What started out so sweet for Bryce Young devolved into an ugly, turnoverfest**\
-`Bryce Young's fumble on the Panthers' impressive opening drive served as a harbinger of things to overcome Sunday against the Cowboys.`\
-https://nytimes.com/athletic/5996509/2024/12/15/panthers-loss-bryce-young-turnovers-cowboys/
-
 **Baker Mayfield's 4 TDs propel Bucs past Chargers 40-17: Takeaways**\
-`Tampa's Mike Evans racked up 159 receiving yards and two second half scores as Buccaneers dominated L.A.`\
+`Tampa's Mike Evans racked up 159 receiving yards and two second half scores as the Buccaneers dominated the Chargers.`\
 https://nytimes.com/athletic/5995320/2024/12/15/buccaneers-chargers-score-result-takeaways/
 
 **The Narrator**\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5996516/2024/12/15/tj-watt-injury-steelers-2/
 **Aldridge: Commanders' win in New Orleans was important but nothing like a Big Easy**\
 `With the win, Washington's postseason chances increased from 79 percent to 88 percent, according to NFL.com, with three weeks remaining.`\
 https://nytimes.com/athletic/5995521/2024/12/15/commanders-victory-saints/
+
+**Four takeaways and 6 sacks: Cowboys defense 'set the tone' in stifling Panthers**\
+`Micah Parsons picks up two more sacks and the Cowboys dominated the Panthers in the third quarter to open up a tight game at the half.`\
+https://nytimes.com/athletic/5996390/2024/12/15/cowboys-defense-takeways-sacks-panthers/
 
