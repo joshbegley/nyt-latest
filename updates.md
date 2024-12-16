@@ -1,3 +1,15 @@
+**Seahawks fail litmus test against Packers; Geno Smith suffers knee injury**\
+`The Lumen Field magic was missing. With many Green Bay fans in attendance, “Go Pack Go” chants were heard throughout the game.`\
+https://nytimes.com/athletic/5997563/2024/12/16/seahawks-lose-packers/
+
+**Why Enzo Maresca can no longer ignore Chelsea's discipline issue**\
+`Chelsea and Maresca are rightly praised for their success so far, but the number of suspensions being picked up should be a concern`\
+https://nytimes.com/athletic/5996424/2024/12/16/chelsea-discipline-maresca/
+
+**It took Djed Spence 881 days to make his first start for Tottenham. It was worth the wait**\
+`It has taken far longer than expected - but Spence is finally ready to make his mark for Spurs`\
+https://nytimes.com/athletic/5996822/2024/12/16/djed-spence-tottenham-hotspur-first-start/
+
 **Five ‘Bali Nine’ Drug Smugglers Return to Australia After Two Decades**\
 `The men were the last Australians still imprisoned in Indonesia for trying to smuggle heroin in 2005, in a case that became a diplomatic flashpoint between the countries.`\
 https://nytimes.com/2024/12/16/world/australia/bali-nine-ring-indonesia-return.html
