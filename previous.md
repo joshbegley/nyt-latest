@@ -1,3 +1,7 @@
+**‘Every person in that building is a victim,’ Madison’s police chief says.**\
+`Chief Shon F. Barnes said schools “should be a refuge for students in our community.”`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/every-person-in-that-building-is-a-victim-madisons-police-chief-says
+
 **A Spineless Senate Abandons a Qualified Judge**\
 `The attacks on Adeel Mangi were without merit.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/adeel-mangi-senate-confirmation
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5999623/2024/12/16/gregg-popovich-return-spurs-stro
 **The Ordinary Explanations Behind the Mysterious Lights in the Skies**\
 `As tips roll in, most reported incidents involve piloted planes and hobby drones, not foreign spying or secret programs, officials say.`\
 https://nytimes.com/2024/12/16/us/politics/drone-sightings-explanations.html
-
-**Submit your questions for Mike DeFabo's Steelers mailbag**\
-`The Steelers have clinched a playoff spot but are in the middle of a grueling stretch. What's on your mind? What are you curious about?`\
-https://nytimes.com/athletic/5999576/2024/12/16/steelers-mailbag-ravens-week-16/
 

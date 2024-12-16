@@ -1,3 +1,7 @@
+**‘Every person in that building is a victim,’ Madison’s police chief says.**\
+`Chief Shon F. Barnes said schools “should be a refuge for students in our community.”`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/every-person-in-that-building-is-a-victim-madisons-police-chief-says
+
 **A Spineless Senate Abandons a Qualified Judge**\
 `The attacks on Adeel Mangi were without merit.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/adeel-mangi-senate-confirmation

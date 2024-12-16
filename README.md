@@ -1,3 +1,7 @@
+**Dick Van Arsdale, One of First Identical Twins in the N.B.A., Dies at 81**\
+`A three-time All-Star, he played for the Knicks and the Phoenix Suns. For one season, he and Tom Van Arsdale were hard-to-tell-apart teammates.`\
+https://nytimes.com/2024/12/16/sports/basketball/dick-van-arsdale-dead.html
+
 **‘Every person in that building is a victim,’ Madison’s police chief says.**\
 `Chief Shon F. Barnes said schools “should be a refuge for students in our community.”`\
 https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/every-person-in-that-building-is-a-victim-madisons-police-chief-says
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/climate/jennifer-granholm-gas-exports.html
 **Popovich looking forward to return to coaching after suffering mild stroke**\
 `Spurs assistant coach Mitch Johnson took over in his absence, with San Antonio going 10-10 since then.`\
 https://nytimes.com/athletic/5999623/2024/12/16/gregg-popovich-return-spurs-stroke/
-
-**The Ordinary Explanations Behind the Mysterious Lights in the Skies**\
-`As tips roll in, most reported incidents involve piloted planes and hobby drones, not foreign spying or secret programs, officials say.`\
-https://nytimes.com/2024/12/16/us/politics/drone-sightings-explanations.html
 
