@@ -1,3 +1,15 @@
+**Why Kirill Kaprizov is scoring so many empty-netters, Filip Gustavsson update and more: Wild notes**\
+`The Wild say they're trying to secure wins, not pad stats, by playing Kaprizov in defensive situations. Begs the question: Is the PK next?`\
+https://nytimes.com/athletic/5999308/2024/12/16/kaprizov-empty-net-goals-wild/
+
+**An ‘Architectural Dream World’ Filled With Hundreds of Dollhouses**\
+`The artist Dennis Maher — who rescued his Buffalo, N.Y., home from the brink of destruction — has always treasured what others have overlooked.`\
+https://nytimes.com/2024/12/16/t-magazine/artist-dennis-maher-dollhouse-filled-home.html
+
+**House Tour | Dennis Maher**\
+`The artist’s Victorian home in Buffalo, N.Y., is filled with found objects, including over 100 dollhouses.`\
+https://nytimes.com/video/t-magazine/100000009844356/house-tour-dennis-maher.html
+
 **Lookman, Banda win African Footballer of the Year awards**\
 `Atalanta and Nigeria forward Ademola Lookman was crowned men’s 2024 CAF Footballer of the Year in Marrakech at the expense of Morocco international Achraf Hakimi.`\
 https://nytimes.com/athletic/5999264/2024/12/16/caf-awards-lookman-banda/
