@@ -1,3 +1,7 @@
+**Chiefs release RB Clyde Edwards-Helaire after 5 seasons with team**\
+`He has not appeared in a game after starting this season on the non-football illness list, stemming from his battle with PTSD.`\
+https://nytimes.com/athletic/5999555/2024/12/16/chiefs-release-clyde-edwards-helaire-nfl-news/
+
 **Manfred against innings minimum for starting pitchers; salary deferrals ‘can become problematic’**\
 `“To me, this needs to be addressed in a more subtle way," MLB commissioner Rob Manfred said in a wide-ranging interview. `\
 https://nytimes.com/athletic/5999727/2024/12/16/manfred-mlb-innings-minimum-starting-pitchers/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/every-pe
 **A Spineless Senate Abandons a Qualified Judge**\
 `The attacks on Adeel Mangi were without merit.`\
 https://nytimes.com/live/2024/12/04/opinion/thepoint/adeel-mangi-senate-confirmation
-
-**Why Do You Think the Killing of a Health Care C.E.O. Has Sparked Such an Intense National Conversation?**\
-`Have you been following the story? What do you think the news and our reactions to it say about America today?`\
-https://nytimes.com/2024/12/16/learning/why-do-you-think-the-killing-of-a-health-care-ceo-has-sparked-such-an-intense-national-conversation.html
 
