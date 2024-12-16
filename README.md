@@ -1,3 +1,7 @@
+**Notre Dame agrees to new long-term deal with Marcus Freeman**\
+`Freeman, who originally signed a six-year contract in December 2021, has led the Irish to an 11-1 record and home Playoff game this year.`\
+https://nytimes.com/athletic/5996224/2024/12/15/marcus-freeman-notre-dame-contract-extension/
+
 **How weird was Bengals' win over Titans? Recounting so many wacky plays**\
 `A game described as "strange" and "sloppy" produced a boatload of highlights, both good and bad.`\
 https://nytimes.com/athletic/5996458/2024/12/15/bengals-win-titans-weird-plays-ranked/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5996345/2024/12/15/jonathan-taylor-fumble-touchback
 **Giants building lead in race for No. 1 NFL Draft pick**\
 `While we await the result of the Raiders' Monday night game, the Giants currently win the top pick in nearly one in two scenarios.`\
 https://nytimes.com/athletic/5996167/2024/12/15/top-draft-pick-nfl-giants-raiders/
-
-**Faller in Fall**\
-`Ailee Yoshida crafts her origin story.`\
-https://nytimes.com/2024/12/15/crosswords/daily-puzzle-2024-12-16.html
 
