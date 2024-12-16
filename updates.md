@@ -1,3 +1,15 @@
+**Trump Meets the Press**\
+`Reflecting on how much has changed, and hasn’t, for Donald Trump since he first became president.`\
+https://nytimes.com/2024/12/16/us/politics/trump-press-conference.html
+
+**An Offhand Remark by Trump Gives a Glimpse Into His Worldview**\
+`“The first term, everybody was fighting me,” the president-elect said. “In this term, everybody wants to be my friend.”`\
+https://nytimes.com/2024/12/16/us/politics/trump-news-conference-remarks.html
+
+**Jay-Z Will Seek Dismissal of Assault Lawsuit His Lawyer Calls a ‘Sham’**\
+`The woman who accused him of raping her in 2000, when she was a minor, acknowledged to NBC that there were inconsistencies in her account, but stood by her claim.`\
+https://nytimes.com/2024/12/16/arts/music/jay-z-lawsuit-assault.html
+
 **Dick Van Arsdale, 81, One of First Identical Twins in the N.B.A., Dies**\
 `A three-time All-Star, he played for the Knicks and the Phoenix Suns. For one season, he and Tom Van Arsdale were hard-to-tell-apart teammates.`\
 https://nytimes.com/2024/12/16/sports/basketball/dick-van-arsdale-dead.html
