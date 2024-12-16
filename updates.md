@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
 `\
 https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
 
+**Crystal Palace shake off their Brighton blues - and show an impetus to kick on**\
+`Glasner and his Palace players might finally feel the pressure they had felt in the earlier parts of this season has now relented
+`\
+https://nytimes.com/athletic/5989034/2024/12/16/crystal-palace-brighton-win/
+
 **Fantasy football Week 15 takeaways: Brian Thomas Jr. is a beast; Rico Dowdle is climbing the 2025 ranks**\
 `Among his Week 15 takes, Michael Salfino thinks rookie Brian Thomas Jr. is going to be no worse than a top 15 receiver pick in 2025 drafts.`\
 https://nytimes.com/athletic/5996370/2024/12/16/fantasy-football-week-15-takeaways-brian-thomas-jr-is-a-beast-rico-dowdle-is-climbing-the-2025-ranks/
