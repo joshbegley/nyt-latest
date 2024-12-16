@@ -1,3 +1,15 @@
+**Why Kirill Kaprizov is scoring so many empty-netters, Filip Gustavsson update and more: Wild notes**\
+`The Wild say they're trying to secure wins, not pad stats, by playing Kaprizov in defensive situations. Begs the question: Is the PK next?`\
+https://nytimes.com/athletic/5999308/2024/12/16/kaprizov-empty-net-goals-wild/
+
+**An ‘Architectural Dream World’ Filled With Hundreds of Dollhouses**\
+`The artist Dennis Maher — who rescued his Buffalo, N.Y., home from the brink of destruction — has always treasured what others have overlooked.`\
+https://nytimes.com/2024/12/16/t-magazine/artist-dennis-maher-dollhouse-filled-home.html
+
+**House Tour | Dennis Maher**\
+`The artist’s Victorian home in Buffalo, N.Y., is filled with found objects, including over 100 dollhouses.`\
+https://nytimes.com/video/t-magazine/100000009844356/house-tour-dennis-maher.html
+
 **NFL Week 16 odds, spreads, schedule: Mahomes' injury swings Texans-Chiefs line and more**\
 `With Patrick Mahomes' injury, the Chiefs odds flipped Monday to make them underdogs vs. the Texans. Plus, playoff stakes around the league.`\
 https://nytimes.com/athletic/5998419/2024/12/16/nfl-week-16-odds-spreads-schedule-mahomes-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/16/briefing/syria-germany-trump.html
 **'I love where it's going': Flyers' Tortorella pleased with Michkov's progress, attitude**\
 `Despite some on-ice bumps, the rookie has earned support and praise from his tough coach.`\
 https://nytimes.com/athletic/5999187/2024/12/16/michkov-flyers-tortorella-coach/
-
-**Carlos Watson, Ozy Media Co-Founder, Is Sentenced to Almost 10 Years in Prison**\
-`A federal jury in July found Mr. Watson, who started the digital media company in 2013, guilty of trying to defraud investors and lenders.`\
-https://nytimes.com/2024/12/16/business/media/carlos-watson-ozy-media-sentenced.html
-
-**Wake Forest coach Dave Clawson stepping down: Who will lead Deacons?**\
-`The Demon Deacons just wrapped their second consecutive 4-8 season.`\
-https://nytimes.com/athletic/5999248/2024/12/16/wake-forest-coach-dave-clawson-retiring/
-
-**TikTok Asks Supreme Court to Block Law Banning Its U.S. Operations**\
-`The company and its Chinese parent invoked the First Amendment in urging the justices to step in before a Jan. 19 deadline to sell or be shut down.`\
-https://nytimes.com/2024/12/16/us/politics/tiktok-ban-supreme-court-first-amendment.html
 
