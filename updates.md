@@ -1,3 +1,7 @@
+**Multiple Injuries Reported After Shooting at School in Wisconsin, Police Say**\
+`The police said they were investigating a shooting at the Abundant Life Christian School in Madison, which has about 390 children in Kindergarten through 12th grade.`\
+https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-madison.html
+
 **Women's Euro 2025 draw: England to face France, Netherlands, Wales**\
 `England will face France, Netherlands and Wales at next summer&#8217;s Women&#8217;s European Championship in Switzerland.`\
 https://nytimes.com/athletic/5997884/2024/12/16/womens-euro-2025-draw-england/
