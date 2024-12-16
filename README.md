@@ -1,3 +1,35 @@
+**Why Vikings safety Cam Bynum is the NFL's best celebration coordinator (and much more)**\
+`Bynum's viral turnover celebrations are legendary, but he wouldn't have anything to celebrate if he wasn't succeeding on the field.`\
+https://nytimes.com/athletic/5995323/2024/12/16/vikings-cam-bynum-celebration-moonwalk-white-chicks/
+
+**Sam Darnold's biggest improvement might surprise you (and get him a big contract)**\
+`Darnold has been much better in less favorable situations this season, which could bode well for him as he approaches free agency.`\
+https://nytimes.com/athletic/5997699/2024/12/16/sam-darnold-vikings-bears-free-agency/
+
+**The Jameis Winston-led Browns offense is (almost) as bad as it was with Deshaun Watson**\
+`Cleveland's offense has certainly been more productive with Winston, but it ranks last in EPA/play with either QB at the helm.`\
+https://nytimes.com/athletic/5997717/2024/12/16/jameis-winston-browns-offense-deshaun-watson/
+
+**NFL Panic Meter: How worried should Lions, Chiefs and Steelers be? Sando’s Pick Six**\
+`When will injuries prove too much for the Lions to overcome? Can a hobbled Patrick Mahomes carry the Chiefs once again?`\
+https://nytimes.com/athletic/5991002/2024/12/16/lions-panic-chiefs-steelers-seahawks-49ers/
+
+**Pete Hegseth Was Toast. The MAGA Swarm Came to His Rescue.**\
+`President-elect Donald J. Trump and his supporters exerted intense political pressure to salvage his pick for the Department of Defense.`\
+https://nytimes.com/2024/12/16/podcasts/the-daily/trump-hegseth-maga.html
+
+**Why Packers' 7-sack pass-rush party was crucial in drubbing of Seahawks**\
+`Green Bay exploited a Seattle weakness resulting in seven sacks from six players and 12 quarterback hits from nine different guys.`\
+https://nytimes.com/athletic/5997638/2024/12/16/packers-pass-rush-sacks-seahawks/
+
+**Amazon Disregarded Internal Warnings on Injuries, Senate Investigation Claims**\
+`A staff report by the Senate labor committee, led by Bernie Sanders, uncovered evidence of internal concern about high injury rates at the e-commerce giant.`\
+https://nytimes.com/2024/12/16/business/economy/amazon-warehouse-injuries.html
+
+**Trump’s Media Lawsuit Threats, and Injuries at Amazon Under Scrutiny**\
+`Plus, a troubling trend in American schools.`\
+https://nytimes.com/2024/12/16/podcasts/trumps-lawsuit-amazon.html
+
 **The Connections Companion No. 555**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 17, 2024.`\
 https://nytimes.com/2024/12/16/crosswords/connections-companion-555.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/12/16/crosswords/connections-companion-555.html
 **Wordle Review No. 1,277**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 17, 2024`\
 https://nytimes.com/2024/12/16/crosswords/wordle-review-1277.html
-
-**Fears of Humanitarian Crisis on Mayotte After Cyclone**\
-`The official death toll so far is 14, but there are fears that the number killed in the French territory by Tropical Cyclone Chido could be much higher.`\
-https://nytimes.com/2024/12/16/world/africa/mayotte-cyclone-chido-deaths.html
-
-**How Notre Dame saved its Playoff expectations after the season's worst loss**\
-`Notre Dame hasn't let the season's worst loss definite it. Its path to the Playoff shows just how much its third-year coach has grown.`\
-https://nytimes.com/athletic/5994291/2024/12/16/notre-dame-playoff-marcus-freeman-niu/
-
-**Jalen Hurts and A.J. Brown are just fine, and so are Eagles after beating Steelers**\
-`Philadelphia followed up a week of chatter about the QB and receiver's relationship with one of its most well-rounded games of the season.`\
-https://nytimes.com/athletic/5997300/2024/12/16/eagles-steelers-jalen-hurts-aj-brown/
-
-**Paris Hilton and Nicole Richie Give a Surprising Education in Opera**\
-`“Paris & Nicole: The Encore,” a sequel to “The Simple Life,” is a comedic lark about creating an opera, with enlightening lessons along the way.`\
-https://nytimes.com/2024/12/16/arts/music/paris-and-nicole-encore-opera.html
-
-**Is It Ever OK to Go Barefoot in Public?**\
-`A shoeless talk-show appearance leads a reader to contemplate the current rules around going barefoot in public, and our critic weighs in on naked feet in fashion and society.`\
-https://nytimes.com/2024/12/16/style/barefoot-public-shoes-feet.html
-
-**Pocket Novels for an Agitated Age**\
-`There is something special about works I can read in full on a rainy Sunday afternoon or in the lamplight hours between supper and bedtime.`\
-https://nytimes.com/2024/12/16/opinion/reading-novellas-short-novels.html
-
-**Trading Places, Presidential Edition**\
-`Trump and Biden are in transition.`\
-https://nytimes.com/2024/12/16/opinion/mangione-penny-biden-trump.html
-
-**Why America’s Kurdish Allies Are Under Threat in a New Syria**\
-`The Kurds helped the United States contain the Islamic State. Now they fear a resurgent Turkey that has long considered them an adversary. Here’s a guide.`\
-https://nytimes.com/2024/12/16/world/middleeast/kurdish-forces-syria-turkey-isis-america.html
 
