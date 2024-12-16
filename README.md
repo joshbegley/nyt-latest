@@ -1,3 +1,19 @@
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`After a big victory at the weekend, post your Newcastle-related questions to Chris`\
+https://nytimes.com/athletic/5997790/2024/12/16/newcastle-isak-wilson-injury-transfers/
+
+**Eyes on Karl-Anthony Towns: Observing the Knicks' star in Orlando for one night**\
+`Watching Karl-Anthony Towns and Towns only from his pregame warmups to the end of the game in Orlando.`\
+https://nytimes.com/athletic/5996254/2024/12/16/karl-anthony-towns-new-york-knicks/
+
+**FPL: What we learned from Gameweek 16 - Jota's back and Amad's on the rise**\
+`Abdul Rehman breaks down the main talking points from Gameweek 16 (so far) in Fantasy Premier League`\
+https://nytimes.com/athletic/5996831/2024/12/16/fantasy-premier-league-gw16-jota-amad-isak/
+
+**How good were the College Football Playoff coaches as players? Ranking all 12**\
+`The 12 Playoff coaches form a unique group. Not one played a regular-season contest in the NFL. One didn't even play in college.`\
+https://nytimes.com/athletic/5997488/2024/12/16/college-football-playoff-coaches-careers-players/
+
 **Mets went wild for Juan Soto: Why a measured approach might come next**\
 `Steve Cohen did his part by securing the big-ticket item. Now it's time for David Stearns' more prudent approach.`\
 https://nytimes.com/athletic/5997189/2024/12/16/mets-offseason-approach/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5997803/2024/12/16/united-city-amad-oneil/
 **Mbappe returns to Madrid squad for Intercontinental Cup final**\
 `Kylian Mbappe has been included in the Real Madrid squad for the Intercontinental Cup final on Wednesday.`\
 https://nytimes.com/athletic/5997917/2024/12/16/kylian-mbappe-injury-real-madrid-intercontinental-cup/
-
-**Weekend NHL rankings: Avalanche, Red Wings and way too many teams in crisis**\
-`So many teams are in various states of disaster that even a bonus five can't adequately cover the mayhem this week.`\
-https://nytimes.com/athletic/5996731/2024/12/16/nhl-weekend-rankings-avalanche-red-wings-crisis/
-
-**The Pulse: Mahomes and Lions limping toward playoffs**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/5996905/2024/12/16/patrick-mahomes-nfl-injuries-the-pulse/
-
-**A Chaotic Start**\
-`We cover the people who will surround Donald Trump in his second term.`\
-https://nytimes.com/2024/12/16/briefing/donald-trump-appointments.html
-
-**Israel Carries Out Heavy Strikes on Syria’s Coast, Monitor Says**\
-`Overnight strikes targeted former army positions, according to the Syrian Observatory for Human Rights, a war monitor. Israel has said it aims to keep military equipment away from extremists.`\
-https://nytimes.com/2024/12/16/world/middleeast/syria-israel-strikes.html
 
