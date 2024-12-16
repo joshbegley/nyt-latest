@@ -1,3 +1,7 @@
+**Sudden Loss of Undocumented Workers Threw Tech Supplier Into Upheaval**\
+`Jabil says it required “herculean efforts” to replace employees from a staffing agency. Other businesses are bracing for “an enforcement storm” under President-elect Trump.`\
+https://nytimes.com/2024/12/16/us/immigration-undocumented-workers-jabil.html
+
 **The Deadly Lure of Subway Surfing**\
 `For more than a century, people have climbed on top of moving trains in search of a thrill. Now social media has attracted a new generation of daredevils.`\
 https://nytimes.com/2024/12/16/sports/subway-surfing-problem-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5998126/2024/12/16/cowboys-today-micah-parsons-bran
 **France Sends Soldiers to Find Survivors Following Cyclone Chido**\
 `The French territory of Mayotte off the eastern coast of Africa was left devastated by Tropical Cyclone Chido. French authorities said it could take days to establish a death toll.`\
 https://nytimes.com/video/weather/100000009879832/cyclone-chido-mayotte-island-.html
-
-**With Jets mom's trip underway, Morrissey reflects on mom's hockey-first support**\
-`Morrissey reflects on how his mom supported him and his dying father. Hellebuyck's dad looks back on his son's earliest days goaltending.`\
-https://nytimes.com/athletic/5996419/2024/12/16/winnipeg-jets-josh-morrissey-connor-hellebuyck/
 

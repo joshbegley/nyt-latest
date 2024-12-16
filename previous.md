@@ -1,3 +1,19 @@
+**The Deadly Lure of Subway Surfing**\
+`For more than a century, people have climbed on top of moving trains in search of a thrill. Now social media has attracted a new generation of daredevils.`\
+https://nytimes.com/2024/12/16/sports/subway-surfing-problem-nyc.html
+
+**Here’s what to know.**\
+`By Vivian Yee and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/12/16/world/syria-assad-rebels-news/heres-what-to-know
+
+**Mike Norvell restructures contract with FSU, directing $4.5 million to fundraising**\
+`Norvell’s Seminoles finished 2-10 this season, in one of the biggest year-over-year collapses in college football history.`\
+https://nytimes.com/athletic/5998470/2024/12/16/florida-state-mike-norvell-contract/
+
+**Should the Senators re-sign Adam Gaudette? Would Brady Tkachuk want out? Mailbag**\
+`Should the Senators should move on from a piece of their core? What makes this team worth watching?`\
+https://nytimes.com/athletic/5978629/2024/12/16/senators-brady-tkachuk-adam-gaudette/
+
 **Sweet and Sour, Festive and Fast**\
 `This cranberry-orange chicken works just as well for a quiet Tuesday dinner as it does a Friday night gathering with friends.`\
 https://nytimes.com/2024/12/16/dining/sweet-and-sour-festive-and-fast.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/weather/100000009879832/cyclone-chido-mayotte-island-.
 **With Jets mom's trip underway, Morrissey reflects on mom's hockey-first support**\
 `Morrissey reflects on how his mom supported him and his dying father. Hellebuyck's dad looks back on his son's earliest days goaltending.`\
 https://nytimes.com/athletic/5996419/2024/12/16/winnipeg-jets-josh-morrissey-connor-hellebuyck/
-
-**How tight end Tanner Koziol can elevate Wisconsin's offense from the transfer portal**\
-`Koziol played three seasons at Ball State and announced his transfer to the Badgers over the weekend.`\
-https://nytimes.com/athletic/5998388/2024/12/16/wisconsin-college-footall-transfer-portal-tanner-koziol/
-
-**E.B. Furgurson III, Who Covered Massacre at His Newspaper, Dies at 70**\
-`After five people were killed in the newsroom, he set up a work space in the back of his pickup truck and made sure the next day’s issue was published.`\
-https://nytimes.com/2024/12/16/business/media/eb-furgurson-iii-dead.html
-
-**Letby’s Lawyers Seek Appeal After Lead Expert ‘Changed Mind’ on Murders**\
-`Lawyers for Lucy Letby, a British nurse found guilty of the murders of seven babies, said that new evidence about the prosecution’s lead witness undermined the case against her.`\
-https://nytimes.com/2024/12/16/world/europe/letby-murders-appeal.html
-
-**The Bounce: NBA trade season's key opening move. Plus, NBA Stock Report**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5998006/2024/12/16/nba-trade-dennis-schroder-warriors-nets-giannis-antetokounmpo-bucks-nba-bounce/
 
