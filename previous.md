@@ -1,3 +1,7 @@
+**‘Multiple Injuries’ Reported After Shooting at School in Wisconsin, Police Say**\
+`The police said they were investigating a shooting at the Abundant Life Christian School in Madison, which has about 390 children in Kindergarten through 12th grade.`\
+https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-madison.html
+
 **Heat Today: The pros and cons of trading Jimmy Butler**\
 `Do the Heat want to launch a youth movement, or should they gear up for another playoff run?`\
 https://nytimes.com/athletic/5998701/2024/12/16/jimmy-butler-heat-nba-suns-mavericks-rockets-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5998570/2024/12/16/alim-mcneill-carlton-davis-lions
 **We Were All Just Catching Up to Lorraine O’Grady**\
 `Through her writing and performances, the artist helped new audiences to understand the cultural roots of racism and sexism.`\
 https://nytimes.com/2024/12/16/arts/design/lorraine-ogrady-artist-legacy.html
-
-**A working toaster trophy? How the Pop-Tarts Bowl is leaning into college football's zany side**\
-`In an era of college football where bowl sponsors are constantly looking to up the antics, a functional toaster trophy is a novelty.`\
-https://nytimes.com/athletic/5998531/2024/12/16/pop-tarts-bowl-toaster-trophy-college-football/
 

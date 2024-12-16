@@ -1,3 +1,7 @@
+**‘Multiple Injuries’ Reported After Shooting at School in Wisconsin, Police Say**\
+`The police said they were investigating a shooting at the Abundant Life Christian School in Madison, which has about 390 children in Kindergarten through 12th grade.`\
+https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-madison.html
+
 **Heat Today: The pros and cons of trading Jimmy Butler**\
 `Do the Heat want to launch a youth movement, or should they gear up for another playoff run?`\
 https://nytimes.com/athletic/5998701/2024/12/16/jimmy-butler-heat-nba-suns-mavericks-rockets-warriors/
