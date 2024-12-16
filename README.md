@@ -1,3 +1,15 @@
+**A Spineless Senate Abandons a Qualified Judge**\
+`The attacks on Adeel Mangi were without merit.`\
+https://nytimes.com/live/2024/12/04/opinion/thepoint/adeel-mangi-senate-confirmation
+
+**Why Do You Think the Killing of a Health Care C.E.O. Has Sparked Such an Intense National Conversation?**\
+`Have you been following the story? What do you think the news and our reactions to it say about America today?`\
+https://nytimes.com/2024/12/16/learning/why-do-you-think-the-killing-of-a-health-care-ceo-has-sparked-such-an-intense-national-conversation.html
+
+**What to watch this week in NBA: Cup final, Thunder-Magic, Towns returns to Minnesota**\
+`What to watch — and how to watch it — as the NBA concludes its in-season tournament play.`\
+https://nytimes.com/athletic/5999057/2024/12/16/how-to-watch-nba-cup-final-thunder-magic-knicks-timberwolves/
+
 **A student and a teacher died in the shooting, the police say.**\
 `By Mitch Smith`\
 https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/a-student-and-a-teacher-died-in-the-shooting-the-police-say
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/16/us/politics/drone-sightings-explanations.html
 **Submit your questions for Mike DeFabo's Steelers mailbag**\
 `The Steelers have clinched a playoff spot but are in the middle of a grueling stretch. What's on your mind? What are you curious about?`\
 https://nytimes.com/athletic/5999576/2024/12/16/steelers-mailbag-ravens-week-16/
-
-**The shooting was the 323rd at elementary or secondary schools this year.**\
-`By Troy Closson`\
-https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/the-shooting-was-the-323rd-at-elementary-or-secondary-schools-this-year
-
-**Gilgo Beach Prosecutor Promises Major Development in Serial Killing Case**\
-`The defendant, Rex Heuermann, is due in court Tuesday. Investigators have been trying to tie him to other unsolved killings on Long Island.`\
-https://nytimes.com/2024/12/16/nyregion/gilgo-beach-serial-killing-rex-heuermann.html
-
-**Real Estate Leaders Sue to Stop New York City’s Overhaul of Broker Fees**\
-`A law in New York City shifting broker fees from renters to landlords is set to take effect in June. Real estate leaders want to stop it.`\
-https://nytimes.com/2024/12/16/nyregion/broker-fees-lawsuit-nyc.html
 
