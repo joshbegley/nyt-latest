@@ -1,3 +1,15 @@
+**The Connections Companion No. 555**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 17, 2024.`\
+https://nytimes.com/2024/12/16/crosswords/connections-companion-555.html
+
+**Wordle Review No. 1,277**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 17, 2024`\
+https://nytimes.com/2024/12/16/crosswords/wordle-review-1277.html
+
+**Fears of Humanitarian Crisis on Mayotte After Cyclone**\
+`The official death toll so far is 14, but there are fears that the number killed in the French territory by Tropical Cyclone Chido could be much higher.`\
+https://nytimes.com/2024/12/16/world/africa/mayotte-cyclone-chido-deaths.html
+
 **How Notre Dame saved its Playoff expectations after the season's worst loss**\
 `Notre Dame hasn't let the season's worst loss definite it. Its path to the Playoff shows just how much its third-year coach has grown.`\
 https://nytimes.com/athletic/5994291/2024/12/16/notre-dame-playoff-marcus-freeman-niu/
