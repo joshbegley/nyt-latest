@@ -1,3 +1,15 @@
+**Why Enzo Maresca can no longer ignore Chelsea's discipline issue**\
+`Chelsea and Maresca are rightly praised for their success so far, but the number of suspensions being picked up should be a concern.`\
+https://nytimes.com/athletic/5996424/2024/12/16/chelsea-discipline-maresca/
+
+**The Warriors' revolving door at off-guard is about to get a Dennis Schröder boost**\
+`Schröder will add a pick-and-roll element for the Warriors and try to offer improved play over Brandin Podziemski.`\
+https://nytimes.com/athletic/5994643/2024/12/16/warriors-dennis-schroder-brandin-podziemski/
+
+**It took Djed Spence 881 days to make his first start for Tottenham - it was worth the wait**\
+`It has taken far longer than expected - but Spence is finally ready to make his mark for Spurs`\
+https://nytimes.com/athletic/5996822/2024/12/16/djed-spence-tottenham-hotspur-first-start/
+
 **Guinea stadium disaster special report: 'This door here, it's the door to hell'**\
 `Two weeks on from a tragedy that killed at least 56 people and perhaps many more, those affected speak to The Athletic`\
 https://nytimes.com/athletic/5968719/2024/12/16/guinea-stadium-disaster-nzerekore/
