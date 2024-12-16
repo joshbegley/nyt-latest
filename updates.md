@@ -1,3 +1,15 @@
+**Aldridge: Commanders' win in New Orleans was important but nothing like a Big Easy**\
+`With the win, Washington's postseason chances increased from 79 percent to 88 percent, according to NFL.com, with three weeks remaining.`\
+https://nytimes.com/athletic/5995521/2024/12/15/commanders-victory-saints/
+
+**Four takeaways and 6 sacks: Cowboys defense 'set the tone' in stifling Panthers**\
+`Micah Parsons picks up two more sacks and the Cowboys dominated the Panthers in the third quarter to open up a tight game at the half.`\
+https://nytimes.com/athletic/5996390/2024/12/15/cowboys-defense-takeways-sacks-panthers/
+
+**Private Schools Group Apologizes After Claims of Antisemitism at Event**\
+`After criticism from Jewish groups over speeches at a conference, the president of the National Association of Independent Schools said future addresses would be vetted.`\
+https://nytimes.com/2024/12/15/nyregion/antisemitism-conference-private-schools.html
+
 **‘Malcolm in the Middle’ Is Getting a Four-Episode Revival on Disney+**\
 `The return of “Malcolm in the Middle,” which aired from 2000 to 2006, will follow Malcolm as he helps his parents celebrate their 40th wedding anniversary, Disney+ announced.`\
 https://nytimes.com/2024/12/15/arts/television/malcom-in-the-middle-revival.html
