@@ -1,5 +1,9 @@
+**Trump Transition Live Updates: Hegseth Will Release Accuser From Confidential Agreement, Graham Says**\
+``\
+https://nytimes.com/live/2024/12/16/us/trump-news
+
 **Barcelona's Yamal out for up to a month with ankle injury**\
-`Lamine Yamal faces up to a month out injured after sustaining an ankle injury in Barcelona&#8217;s 1-0 loss against Leganes on Sunday.`\
+`Lamine Yamal faces up to a month out injured after sustaining a right ankle injury in Barcelona&#8217;s 1-0 loss against Leganes on Sunday.`\
 https://nytimes.com/athletic/5997833/2024/12/16/lamine-yamal-barcelona-injury/
 
 **Netanyahu Tells Trump Israel Must ‘Complete Its Victory’**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5996222/2024/12/16/wsl-briefing-chelsea-leiecester-
 **Tennis Briefing: Emma Raducanu's turning point and the fairness of wildcards**\
 `The Brit discusses the demands of the WTA Tour, while the Australian Open releases its wildcards.`\
 https://nytimes.com/athletic/5997837/2024/12/16/emma-raducanu-tennis-ranking-schedule/
-
-**NBA Rewind: Jimmy Butler, Brandon Ingram highlight the start of trade season**\
-`NBA trade season got underway this weekend. Which big names could be on the move?`\
-https://nytimes.com/athletic/5995758/2024/12/16/jimmy-butler-brandon-ingram-nba-trade/
 
