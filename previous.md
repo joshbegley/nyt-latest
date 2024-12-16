@@ -1,3 +1,19 @@
+**We Were All Just Catching Up to Lorraine O’Grady**\
+`Through her writing and performances, the artist helped new audiences to understand the cultural roots of racism and sexism.`\
+https://nytimes.com/2024/12/16/arts/design/lorraine-ogrady-artist-legacy.html
+
+**A working toaster trophy? How the Pop-Tarts Bowl is leaning into college football's zany side**\
+`In an era of college football where bowl sponsors are constantly looking to up the antics, a functional toaster trophy is a novelty.`\
+https://nytimes.com/athletic/5998531/2024/12/16/pop-tarts-bowl-toaster-trophy-college-football/
+
+**Washington State dual-threat QB John Mateer expected to enter the transfer portal: Source**\
+`Mateer, who has two years of eligibility remaining, ranks fifth nationally with 330.4 total yards per game. `\
+https://nytimes.com/athletic/5998554/2024/12/16/john-mateer-quarterback-washington-state-portal-oklahoma/
+
+**Zhou Guanyu's historic F1 dream hits pause: 'People remember your last few races'**\
+`Zhou is proud of becoming the sport's first Chinese driver, but he's not ready to say goodbye to Formula One forever. `\
+https://nytimes.com/athletic/5998374/2024/12/16/zhou-guanyu-f1-future-final-race-china/
+
 **USMNT Player Tracker: The rise of Robinson, injury issues and a rejuvenated Reyna?**\
 `The Champions League brought success, but Serie A proved a struggle while injuries continue to affect many USMNT players.`\
 https://nytimes.com/athletic/5998200/2024/12/16/usmnt-player-tracker-the-rise-of-robinson-injury-issues-and-a-rejuvenated-reyna/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5998578/2024/12/16/drew-allar-penn-state-quarterbac
 **Supreme Court Rejects Ex-Lt. Gov. of New York’s Bid to Dismiss Charges**\
 `The former lieutenant governor, Brian Benjamin, is accused of funneling state money to a local real estate developer in exchange for campaign contributions.`\
 https://nytimes.com/2024/12/16/nyregion/brian-benjamin-supreme-court.html
-
-**Men in Tights and Tutus: The Trocks Turn 50, Humor Intact**\
-`The Trocks were never interested in making a political statement, their artistic director said. “We are men doing performances of ballet in drag for comedic purposes.”`\
-https://nytimes.com/2024/12/16/arts/dance/the-trocks-male-comedy-ballet-drag-troupe-50.html
-
-**Chris Henderson to join Atlanta United as new sporting director**\
-`Former Inter Miami sporting director Chris Henderson will join Atlanta United, multiple sources with direct knowledge of the move confirmed to The Athletic on Monday.`\
-https://nytimes.com/athletic/5998574/2024/12/16/atlanta-united-chris-henderson-sporting-director/
-
-**Ways to Fix the Health Insurance Debacle**\
-`Responses to an essay by Andrew Witty, the C.E.O. of UnitedHealth Group. Also: Threats to democracy, in Hungary and America; a check on Trump; avoiding taxes.`\
-https://nytimes.com/2024/12/16/opinion/health-insurance.html
-
-**Ex-Bangladeshi Leader Orchestrated Mass Disappearances, Inquiry Finds**\
-`Prime Minister Sheikh Hasina and top officials are implicated in a centralized program that abducted dissidents and held them in secret prisons, an official commission’s preliminary report said.`\
-https://nytimes.com/2024/12/16/world/asia/bangladesh-disappearances-sheikh-hasina.html
 
