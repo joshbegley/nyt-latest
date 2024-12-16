@@ -1,3 +1,7 @@
+**What Broncos 31-13 win vs. Colts means for AFC playoff picture: Takeaways**\
+`Denver (9-5) is now one win away from its first playoff appearance since the 2015 season.`\
+https://nytimes.com/athletic/5995314/2024/12/15/broncos-colts-score-result-takeaways/
+
 **Bills outlast Lions 48-42 in potential Super Bowl preview: Takeaways**\
 `Buffalo remains in the hunt for the AFC's top seed, while Detroit is tied with Philadelphia atop the NFC. `\
 https://nytimes.com/athletic/5995316/2024/12/15/bills-lions-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/15/podcasts/the-narrator-this-american-life-nyt-audi
 **Blackhawks, Connor Bedard get favorable bounces to defeat Islanders: Observations**\
 `In a game they should have probably lost, the Blackhawks found a way to win.`\
 https://nytimes.com/athletic/5996355/2024/12/15/blackhawks-connor-bedard-islanders-win-nhl/
-
-**Cardinals beat Patriots 30-17 to keep playoff hopes alive: Takeaways**\
-`The Cardinals needed a “get-right” game to remain in postseason contention. This was it.`\
-https://nytimes.com/athletic/5995309/2024/12/15/patriots-cardinals-score-result-takeaways/
 
