@@ -1,3 +1,7 @@
+**Young Republicans Gather, Ready to Make America Vengeful Again**\
+`At a gala on Wall Street for the New York Young Republican Club, attendees were looking forward to retribution from the next Trump era, and musing on another run in 2028.`\
+https://nytimes.com/2024/12/16/us/politics/young-republicans-gala.html
+
 **Why Kirill Kaprizov is scoring so many empty-netters, Filip Gustavsson update and more: Wild notes**\
 `The Wild say they're trying to secure wins, not pad stats, by playing Kaprizov in defensive situations. Begs the question: Is the PK next?`\
 https://nytimes.com/athletic/5999308/2024/12/16/kaprizov-empty-net-goals-wild/
