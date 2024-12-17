@@ -23,7 +23,7 @@ https://nytimes.com/2024/12/17/world/europe/russian-general-bombing-moscow.html
 https://nytimes.com/2024/12/17/us/water-main-break-bronx-nyc.html
 
 **Germany Doesn’t Feel Like Germany Anymore**\
-`The economically prosperous, socially cohesive and politically stable country has gone.`\
+`The economically prosperous, socially cohesive and politically stable country is no longer itself.`\
 https://nytimes.com/2024/12/17/opinion/germany-scholz-government-election.html
 
 **Pope Francis: There Is Faith in Humor**\
