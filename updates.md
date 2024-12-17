@@ -1,3 +1,11 @@
+**Sherrod Brown Signs Off in the Senate. For Now.**\
+`Ohio’s senior Democratic senator told colleagues that despite his defeat, he was not done with politics just yet.`\
+https://nytimes.com/2024/12/17/us/sherrod-brown-senate-career.html
+
+**Yankees acquire Cody Bellinger for minimal cost but he's not a perfect fit: Law**\
+`The Cubs have cleared salary room without significantly damaging their outfield depth, but they need to spend that money on pitching.`\
+https://nytimes.com/athletic/6002221/2024/12/17/yankees-cubs-cody-bellinger-trade-analysis/
+
 **George Santos, Disgraced Former Congressman, Still Wants Your Attention**\
 `After his lies and expulsion from Congress, and before his sentencing in February, George Santos chases the limelight with a party and a podcast.`\
 https://nytimes.com/2024/12/17/us/politics/santos-podcast-launch-party.html
