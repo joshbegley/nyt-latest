@@ -1,3 +1,11 @@
+**How Chiefs QB Patrick Mahomes is pushing to play through sprained ankle this week**\
+`Mahomes is testing his ankle in practice this week. If he can't go, backup Carson Wentz will get those reps.`\
+https://nytimes.com/athletic/6001560/2024/12/17/chiefs-patrick-mahomes-ankle-injury-texans/
+
+**Mets notes: Juan Soto has 'a chance to be really good' in field, Clay Holmes' innings, more**\
+`There's room for improvement in Soto's defense, the team's internal options for a utility role, an under-the-radar signing and more.`\
+https://nytimes.com/athletic/6001656/2024/12/17/mets-juan-soto-defense-improvement-clay-holmes/
+
 **Luigi Mangione Is Charged With Murder**\
 `The first-degree murder charge branded him a terrorist over the killing of UnitedHealthcare’s chief executive, Brian Thompson.`\
 https://nytimes.com/video/nyregion/100000009883830/luigi-mangione-charges.html
