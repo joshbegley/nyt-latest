@@ -1,3 +1,7 @@
+**Jim Leach, Iowa Republican Who Extolled Moderation, Dies at 82**\
+`During his 30 years in Congress, he resisted his party’s rightward tilt. He endorsed Barack Obama in 2008 and became a Democrat in 2022.`\
+https://nytimes.com/2024/12/17/us/politics/jim-leach-dead.html
+
 **Worrying Signs From the Arctic**\
 `Scientists are seeing changes that could have consequences for the whole planet.`\
 https://nytimes.com/2024/12/17/climate/worrying-signs-arctic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/dining/levant-nyc-restaurant-review.html
 **Monday Briefing: Ukraine says it killed a Russian General**\
 `Plus, the search for a van Gogh masterpiece.`\
 https://nytimes.com/2024/12/17/briefing/ukraine-russia-syria-gaza.html
-
-**‘Emilia Pérez’ Makes a Strong Showing on the Oscar Shortlists**\
-`The musical appears twice for best song, along with big names like Pharrell Williams and Elton John. “Wicked” is potentially up for best score.`\
-https://nytimes.com/2024/12/17/movies/wicked-oscars-shortlist-pharrell-williams-emilia-perez.html
 

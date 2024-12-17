@@ -1,3 +1,7 @@
+**Jim Leach, Iowa Republican Who Extolled Moderation, Dies at 82**\
+`During his 30 years in Congress, he resisted his party’s rightward tilt. He endorsed Barack Obama in 2008 and became a Democrat in 2022.`\
+https://nytimes.com/2024/12/17/us/politics/jim-leach-dead.html
+
 **Devin Williams was stunned by Yankees trade because he expected to be a Dodger**\
 `Williams has been one of the most consistent bullpen arms in recent years.`\
 https://nytimes.com/athletic/6001667/2024/12/17/yankees-devin-williams-trade-dodgers/
