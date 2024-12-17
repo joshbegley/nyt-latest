@@ -1,3 +1,7 @@
+**U.S. Cites ‘Indications’ North Korean Soldiers Died Fighting for Russia**\
+`The entry of North Korea into the war with Ukraine has marked a serious escalation in the conflict.`\
+https://nytimes.com/2024/12/17/world/europe/russia-ukraine-north-korea-war.html
+
 **Pistons avoid late-game collapse and 34-7 Heat run for 125-124 OT win**\
 `Cade Cunningham's triple-double paced Detroit and provided and provided a bulwark against Miami's late surge. `\
 https://nytimes.com/athletic/6000349/2024/12/17/pistons-overtime-win-heat/
