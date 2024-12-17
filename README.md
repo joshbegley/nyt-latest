@@ -1,3 +1,7 @@
+**What Kennedy Has Said About the Polio Vaccine in Recent Years**\
+`President-elect Donald Trump’s choice for health secretary has suggested that the polio vaccine cost more lives than it saved and that the vaccine did not wipe out the disease in the U.S.`\
+https://nytimes.com/2024/12/17/health/robert-f-kennedy-jr-polio-vaccines.html
+
 **Harris Sees Optimism for the Future in a Speech to Younger Voters**\
 `In her speech at a community college in Maryland, the vice president displayed a pugnacious resolve.`\
 https://nytimes.com/2024/12/17/us/politics/harris-speech-future.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/technology/openai-nonprofit-control.html
 **Cowboys Today: Jerry Jones breaks down eating raccoons and squirrels, offseason plans**\
 `Jones has more good words for Mike McCarthy and discusses what the Cowboys' offseason could look like after re-signing Dak Prescott.`\
 https://nytimes.com/athletic/6001130/2024/12/17/cowboys-today-jerry-jones-raccoons-squirrels-micah-parsons/
-
-**‘Black Doves’ Is a Fun, Festive Spy Thriller**\
-`From the creator of “Giri/Haji” comes an international-intrigue drama full of smarts, thrills and great performances by Keira Knightley and Ben Whishaw.`\
-https://nytimes.com/2024/12/17/arts/television/black-doves-netflix.html
 

@@ -1,3 +1,11 @@
+**Harris Sees Optimism for the Future in a Speech to Younger Voters**\
+`In her speech at a community college in Maryland, the vice president displayed a pugnacious resolve.`\
+https://nytimes.com/2024/12/17/us/politics/harris-speech-future.html
+
+**You Can’t Mess Up This Holiday Roast**\
+`Want to impress with a glistening, delicious centerpiece this holiday season? This miso-marinated pork will stay juicy no matter what.`\
+https://nytimes.com/2024/12/17/dining/holiday-roast-pork.html
+
 **A New Richard Foreman Play Puts a Twist on His Metaphysical Puzzles**\
 `New York theater’s elder statesman of the avant-garde brings “Suppose Beautiful Madeline Harvey” to the stage, hist first new work in over a decade.`\
 https://nytimes.com/2024/12/17/theater/richard-foreman-suppose-beautiful-madeline-harvey.html
