@@ -1,3 +1,11 @@
+**For Years, U.S. Collected Tips About Austin Tice’s Disappearance in Syria**\
+`Nongovernmental workers and journalists have scoured prisons for clues about his fate in the absence of an official American presence in the country.`\
+https://nytimes.com/2024/12/17/us/politics/austin-tice-disappearance-syria.html
+
+**Ocasio-Cortez Loses Vote to Be the Top Democrat on Oversight Panel**\
+`The New York progressive’s defeat was a counterpoint to generational change in the Democratic ranks, as House members chose younger members for top posts on other committees.`\
+https://nytimes.com/2024/12/17/us/politics/ocasio-cortez-oversight-connolly.html
+
 **Ocasio-Cortez Loses Vote to Be the Top Democrat on Oversight Panel**\
 `The New York progressive’s defeat was a counterpoint to generational change in the Democratic ranks, as House members chose younger members to lead other committees.`\
 https://nytimes.com/2024/12/17/us/politics/ocasio-cortez-oversight-connolly.html
