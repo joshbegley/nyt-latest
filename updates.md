@@ -1,3 +1,7 @@
+**Luigi Mangione Is Charged With Murder**\
+`The first-degree murder charge branded him a terrorist over the killing of UnitedHealthcare’s chief executive, Brian Thompson.`\
+https://nytimes.com/video/nyregion/100000009883830/luigi-mangione-charges.html
+
 **Gun Violence at Schools Has Risen Since the Pandemic**\
 `But mass shootings remain a rare occurrence. Only a small fraction of the nation’s nearly 130,000 schools report gun incidents each year.`\
 https://nytimes.com/2024/12/17/us/gun-violence-school-shootings-pandemic.html
