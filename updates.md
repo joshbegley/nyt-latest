@@ -1,3 +1,7 @@
+**NFL playoff picture after Week 15: Eagles, Vikings join Lions atop NFC; Rams lead NFC West**\
+`With Denver's win over Indy on Sunday, the AFC playoff picture looks clear. The seven teams aren't locked in yet, but they could be soon. `\
+https://nytimes.com/athletic/5990243/2024/12/16/nfl-playoff-picture-week-15-eagles-lions-vikings-update/
+
 **NFL playoff picture after Week 15: Eagles, Vikings join Lions atop NFC; Rams in control of NFC West**\
 `With Denver's win over Indy on Sunday, the AFC playoff picture looks clear. The seven teams aren't locked in yet, but they could be soon. `\
 https://nytimes.com/athletic/5990243/2024/12/16/nfl-playoff-picture-week-15-eagles-lions-vikings-update/
