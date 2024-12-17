@@ -1,3 +1,11 @@
+**Syria’s Rebel Leader Vows to Disband and Integrate Armed Factions**\
+`Ahmed al-Shara said that fighters would be brought under the defense ministry’s authority. The announcement came as Prime Minister Benjamin Netanyahu of Israel visited captured Syrian territory.`\
+https://nytimes.com/2024/12/17/world/middleeast/syria-rebels-government-israel.html
+
+**What’s Mitchell-Lama? Timothée Chalamet (Kind of) Explains**\
+`The actor’s family were the beneficiaries of a New York State housing program aimed at middle-income residents.`\
+https://nytimes.com/2024/12/17/realestate/timothee-chalamet-mitchell-lama.html
+
 **NBA makes mini-tournament format official ahead of 2025 All-Star Game**\
 `TNT’s three analysts, Charles Barkley, Kenny Smith and Shaquille O’Neal, will serve as general managers for the three All-Star teams.`\
 https://nytimes.com/athletic/6001685/2024/12/17/nba-mini-tournament-format-2025-all-star-game/
@@ -30,4 +38,3 @@ https://nytimes.com/athletic/6000907/2024/12/17/college-football-playoff-transfe
 `The detainee was approved for transfer from Guantánamo Bay three years ago as the Biden administration tried to empty the wartime prison.`\
 https://nytimes.com/2024/12/17/us/politics/guantanamo-prisoner-released-kenya.html
 
-**My Partner Thinks My Mini Dustpan and Broom Set Is Pointless. I Think It’s Perfect.**\
