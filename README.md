@@ -1,3 +1,11 @@
+**Arlene Croce, Dance Critic With a Biting Wit, Dies at 90**\
+`Writing for The New Yorker, she was both admired and feared, wielding a sometimes merciless pen. Her study of Fred Astaire and Ginger Rogers drew accolades.`\
+https://nytimes.com/2024/12/17/arts/dance/arlene-croce-dead.html
+
+**A Look Inside Huawei’s Phone Shows How China’s Chip Advance Has Stalled**\
+`An analysis of Huawei’s latest series of smartphones, the Mate 70, found chips that showed little progress from those used in last year’s devices.`\
+https://nytimes.com/2024/12/17/business/huawei-phone-chips-china.html
+
 **Ancelotti 'optimistic' Mbappe will be fit for Intercontinental Cup final**\
 `Carlo Ancelotti is &#8220;optimistic&#8221; Kylian Mbappe will be fit to feature for Real Madrid in the Intercontinental Cup final on Wednesday.`\
 https://nytimes.com/athletic/6001102/2024/12/17/kylian-mbappe-intercontinental-cup-final/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/nyregion/rex-heuermann-gilgo-beach-valerie-mack.h
 **Belichick lands first transfer commitment at UNC from Holy Cross**\
 `Belichick said Monday that UNC has players "coming in pretty much every day this week" as he assembles his roster for 2025.`\
 https://nytimes.com/athletic/6000960/2024/12/17/bill-belichick-unc-transfer-portal-christo-kelly/
-
-**What led to owner Terry Pegula's rare meeting with the Sabres in Montreal**\
-`Pegula felt the meeting was necessary given the amount of noise surrounding the Sabres during this latest skid.`\
-https://nytimes.com/athletic/6000113/2024/12/17/sabres-terry-pegula-meeting/
-
-**Who Was Gen. Igor Kirillov, the Russian General Assassinated in Moscow?**\
-`The general had faced sanctions for using chemical weapons in Ukraine.`\
-https://nytimes.com/2024/12/17/world/europe/igor-kirillov-russian-general.html
 
