@@ -1,3 +1,11 @@
+**Pereira travels to UK after agreeing Wolves deal**\
+`Vitor Pereira has travelled to the UK today to take over as Wolverhampton Wanderers head coach after agreeing a one-and-a-half-year deal.`\
+https://nytimes.com/athletic/6000599/2024/12/17/vitor-pereira-wolves-deal/
+
+**Spurs lose appeal against Bentancur ban**\
+`Tottenham Hotspur have seen their appeal against Rodrigo Bentancur&#8217;s seven-game suspension dismissed.`\
+https://nytimes.com/athletic/5999097/2024/12/17/rodrigo-bentancur-appeal-ban-tottenham/
+
 **'He's special, man': Packers rookie Edgerrin Cooper looks like a star in the making**\
 `Cooper, the 2024 second-round pick, had the best game of his young career against the Seahawks on Sunday night.`\
 https://nytimes.com/athletic/6000048/2024/12/17/packers-rookie-edgerrin-cooper/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5998614/2024/12/17/mykhailo-mudryk-doping-meldonium
 **NBA Trade Board: Jimmy Butler, Cam Johnson and the top 30 names on the market**\
 `The race to the Feb. 6 deadline has started as teams figure out exactly what their aspirations are.`\
 https://nytimes.com/athletic/5967281/2024/12/17/nba-trade-board-jimmy-butler-zach-lavine-cam-johnson/
-
-**‘I really believe in myself’: Why Giannis never panicked about the Bucks**\
-`Antetokounmpo’s faith in himself doesn’t just help fuel the Bucks; it fuels his work to improve his game over the years.`\
-https://nytimes.com/athletic/5989627/2024/12/17/bucks-giannis-antetokounmpo-one-on-one/
-
-**Howe rules out Miley January loan: 'He’s too important to lose'**\
-`Eddie Howe will not allow Lewis Miley to leave Newcastle United on loan in January, saying the England Under-21 international “is too important for us” to lose.`\
-https://nytimes.com/athletic/6000518/2024/12/17/lewis-miley-loan-newcastle-howe/
 
