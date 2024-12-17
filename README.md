@@ -1,3 +1,15 @@
+**Rashford on potential Man Utd exit: 'I'm ready for a new challenge'**\
+`Marcus Rashford has spoken of the possibility of leaving Manchester United by saying he is &#8220;ready for a new challenge&#8221;.`\
+https://nytimes.com/athletic/6001641/2024/12/17/marcus-rashford-manchester-united-future-exit/
+
+**Armed Services Committee Democrats call allegations against Hegseth disqualifying**\
+`A group of Democrats told President-elect Donald J. Trump’s chief of staff that his pick to lead the Pentagon is unfit because he faces charges of sexual misconduct and opposes women serving in combat.`\
+https://nytimes.com/live/2024/12/17/us/trump-administration-news/armed-services-committee-democrats-call-allegations-against-hegseth-disqualifying
+
+**New U.S. Vehicles Must Have Rear Seatbelt Alarms by Late 2027**\
+`The National Highway Traffic Safety Administration changed an existing rule to expand and enhance seatbelt warning requirements.`\
+https://nytimes.com/2024/12/17/us/rear-seat-belt-warning-rule.html
+
 **Why Optimism for a Cease-Fire in Gaza Is Rising**\
 `The pace of peace talks has picked up, pushed by multiple factors, including wars in Lebanon and Syria that have seriously weakened Hamas’s allies, and election victory of Donald J. Trump.`\
 https://nytimes.com/2024/12/17/world/middleeast/gaza-israel-hamas-cease-fire.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/17/us/wisconsin-school-shooting-madison-residents.ht
 **Vinicius Jr, Bonmati named players of the year at FIFA Best awards**\
 `Real Madrid forward Vinicius Junior has been named the men&#8217;s player of the year at the FIFA Best awards, with Barcelona midfielder Aitana Bonmati winning the women&#8217;s prize.`\
 https://nytimes.com/athletic/6001558/2024/12/17/fifa-best-awards-vinicius-bonmati/
-
-**For Years, U.S. Collected Tips About Austin Tice’s Disappearance in Syria**\
-`Nongovernmental workers and journalists have scoured prisons for clues about his fate in the absence of an official American presence in the country.`\
-https://nytimes.com/2024/12/17/us/politics/austin-tice-disappearance-syria.html
-
-**Chiefs QB Patrick Mahomes pushing to play through sprained ankle this week**\
-`Andy Reid said Mahomes will test his ankle in practice this week. If he can't go, backup Carson Wentz will get those reps.`\
-https://nytimes.com/athletic/6001560/2024/12/17/chiefs-patrick-mahomes-ankle-injury-texans/
-
-**Ocasio-Cortez Loses Vote to Be the Top Democrat on Oversight Panel**\
-`The New York progressive’s defeat was a counterpoint to generational change in the Democratic ranks, as House members chose younger members for top posts on other committees.`\
-https://nytimes.com/2024/12/17/us/politics/ocasio-cortez-oversight-connolly.html
 
