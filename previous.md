@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6000512/2024/12/17/mlb-trades-signings-offseason-sc
 `The company behind the controversial European Super League idea has tweaked its proposal once more, completely scrapping the original closed-shop format, in a bid to make it more attractive to clubs and fans.`\
 https://nytimes.com/athletic/6000667/2024/12/17/european-super-league-unify-a22/
 
+**Antonio Pierce failing to show progress as Raiders fall victim to familiar issues vs. Falcons**\
+`Progress has continued to elude the Raiders, and Pierce hasn’t given fans much reason to believe he’s capable of making things better.`\
+https://nytimes.com/athletic/6000334/2024/12/17/antonio-pierce-raiders-falcons-progress/
+
 **'Howdy!' A journey down the inked arms — and into the lively mind — of George Kittle**\
 `Kittle, a 'Lord of the Rings' devotee, sees life and an NFL season through that lens. On Thursday, he was channeling his inner Sauron.`\
 https://nytimes.com/athletic/5998550/2024/12/17/george-kittle-49ers-tattoos-mind/
-
-**After Trump’s Victory, Republicans Trust the Election System Again**\
-`Surveys taken since Donald Trump’s win show a resurgent faith among the president-elect’s supporters, and little Democratic appetite for conspiracy theories.`\
-https://nytimes.com/2024/12/17/us/politics/republicans-elections-trust-trump.html
 

@@ -1,3 +1,7 @@
+**Antonio Pierce failing to show progress as Raiders fall victim to familiar issues vs. Falcons**\
+`Progress has continued to elude the Raiders, and Pierce hasn’t given fans much reason to believe he’s capable of making things better.`\
+https://nytimes.com/athletic/6000334/2024/12/17/antonio-pierce-raiders-falcons-progress/
+
 **Trump Transition Live Updates: Harris to Address Younger Americans in Maryland**\
 ``\
 https://nytimes.com/live/2024/12/17/us/trump-administration-news
