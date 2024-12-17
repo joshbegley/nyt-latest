@@ -1,3 +1,11 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/12/17/opinion/thepoint
+
+**Robert F. Kennedy Jr., Trump’s Pick for Health Secretary, to Meet With More Republican Senators**\
+`This week, he is expected to meet with over 20 senators, many of them receptive to his case to run the Health and Human Services Department.`\
+https://nytimes.com/2024/12/17/us/politics/rfk-jr-senator-meetings-capitol-hill.html
+
 **Gilgo Beach Defendant Rex Heuermann Is Charged in a Seventh Killing**\
 `The man whom authorities call a serial killer was charged with second-degree murder in the case of Valerie Mack, who disappeared in 2000.`\
 https://nytimes.com/2024/12/17/nyregion/rex-heuermann-gilgo-beach-valerie-mack.html
