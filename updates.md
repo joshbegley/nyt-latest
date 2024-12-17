@@ -1,3 +1,7 @@
+**After Trump’s Victory, Republicans Trust the Election System Again**\
+`Surveys taken since Donald Trump’s win show a resurgent faith among the president-elect’s supporters, and little Democratic appetite for conspiracy theories.`\
+https://nytimes.com/2024/12/17/us/politics/republicans-elections-trust-trump.html
+
 **The Unintended Consequences of Tariffs**\
 `The biggest benefits often emerge outside the countries engaged in a trade war.`\
 https://nytimes.com/2024/12/17/briefing/vietnam-china-us-trade-war.html

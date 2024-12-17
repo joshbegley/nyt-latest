@@ -1,3 +1,7 @@
+**After Trump’s Victory, Republicans Trust the Election System Again**\
+`Surveys taken since Donald Trump’s win show a resurgent faith among the president-elect’s supporters, and little Democratic appetite for conspiracy theories.`\
+https://nytimes.com/2024/12/17/us/politics/republicans-elections-trust-trump.html
+
 **The Unintended Consequences of Tariffs**\
 `The biggest benefits often emerge outside the countries engaged in a trade war.`\
 https://nytimes.com/2024/12/17/briefing/vietnam-china-us-trade-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/podcasts/the-daily/syria-prisons.html
 **A Perilous Time for Europe, and a Brazen Assassination in Moscow**\
 `Plus, a school shooting in Wisconsin.`\
 https://nytimes.com/2024/12/17/podcasts/germany-europe-moscow-school-shooting.html
-
-**The Connections Companion No. 556**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 18, 2024.`\
-https://nytimes.com/2024/12/17/crosswords/connections-companion-556.html
 
