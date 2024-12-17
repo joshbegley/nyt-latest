@@ -4,7 +4,7 @@ https://nytimes.com/2024/12/17/opinion/trump-biden-kash-patel-pardons.html
 
 **Worthwhile Canadian Resignation**\
 `Chrystia Freeland’s departure raises questions about how sharply Trudeau will counter Trump.`\
-https://nytimes.com/live/2024/12/17/opinion/thepoint/canada-trudeau-freeland-resignation
+https://nytimes.com/2024/12/17/opinion/canada-trudeau-freeland-resignation.html
 
 **Jeff Bezos Prepares to Close the Gap in His Space Race With Elon Musk**\
 `A new rocket from Mr. Bezos’ company Blue Origin and a satellite system from Amazon could heat up competition with SpaceX, owned by Mr. Musk.`\
