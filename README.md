@@ -1,3 +1,7 @@
+**Netanyahu Travels to Israeli-Controlled Syria, His Office Says**\
+`The previously unannounced trip highlighted Israel’s new military presence across the de facto border with Syria since the fall of Bashar al-Assad.`\
+https://nytimes.com/2024/12/17/world/middleeast/17syria-israel-netanyahu.html
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/12/17/opinion/thepoint
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/arts/design/van-gogh-lost-masterpiece.html
 **Paul Watson, Anti-Whaling Activist, Is Released After 5 Months in Prison**\
 `Mr. Watson was facing extradition to Japan but was released after Denmark decided to reject the extradition request, his lawyer said.`\
 https://nytimes.com/2024/12/17/world/europe/denmark-anti-whaling-activist-no-extradition.html
-
-**An Exciting F1 Season That Had No Dominant Player**\
-`Max Verstappen won the title again, but it was a fight, as was the team championship, taken by McLaren at the last race.`\
-https://nytimes.com/2024/12/17/sports/autoracing/f1-season-champions.html
 
