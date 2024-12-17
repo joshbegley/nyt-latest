@@ -1,3 +1,15 @@
+**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
+https://nytimes.com/athletic/5891633/2024/12/16/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
+**Woman Who Stowed Away on Paris Flight Tries to Flee by Bus to Canada**\
+`The woman, Svetlana Dali, had been ordered to wear an ankle monitor after her arrest, but she cut it off and boarded a bus, a law enforcement official said.`\
+https://nytimes.com/2024/12/16/nyregion/stowaway-flight-paris-canada-arrest.html
+
+**Review: In ‘Eureka Day,’ Holding Space for Those You Hate**\
+`A hilarious new Broadway production asks: Can the superwoke vaxxers and anti-vaxxers at an elite private school learn to get along?`\
+https://nytimes.com/2024/12/16/theater/eureka-day-review-broadway.html
+
 **49ers' Nick Bosa says De'Vondre Campbell was acting up before Thursday's game**\
 `Bosa on Monday shared strong opinions about the 49ers defense and coordinator Nick Sorensen — he wants the status quo in 2025.`\
 https://nytimes.com/athletic/5999824/2024/12/16/49ers-nick-bosa-devondre-campbell-quit-suspended/
