@@ -1,3 +1,7 @@
+**European Super League relaunches as 'Unify League': What's different - and will it work?**\
+`The company behind the controversial European Super League idea has tweaked its proposal once more, completely scrapping the original closed-shop format, in a bid to make it more attractive to clubs and fans.`\
+https://nytimes.com/athletic/6000667/2024/12/17/european-super-league-unify-a22/
+
 **Inside Russell Martin's Southampton downfall - and the reluctant decision to sack him**\
 `Southampton did not want to have to make the call to part ways with their manager but in the end they had little choice`\
 https://nytimes.com/athletic/6000531/2024/12/17/russell-martin-inside-southampton-sacking/

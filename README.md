@@ -1,3 +1,7 @@
+**New Berlin Film Festival Director Walks a Tightrope Over Israel**\
+`Can the event’s American-born leader reinvigorate the festival and maintain its commitment to open debate while satisfying German lawmakers?`\
+https://nytimes.com/2024/12/17/movies/tricia-tuttle-berlin-film-festival.html
+
 **European Super League relaunches as 'Unify League': What's different - and will it work?**\
 `The company behind the controversial European Super League idea has tweaked its proposal once more, completely scrapping the original closed-shop format, in a bid to make it more attractive to clubs and fans.`\
 https://nytimes.com/athletic/6000667/2024/12/17/european-super-league-unify-a22/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5999033/2024/12/17/mykhailo-mudryk-chelsea-doping-t
 **Pereira travels to UK after agreeing Wolves deal**\
 `Vitor Pereira has travelled to the UK today to take over as Wolverhampton Wanderers head coach after agreeing a one-and-a-half-year deal.`\
 https://nytimes.com/athletic/6000599/2024/12/17/vitor-pereira-wolves-deal/
-
-**Spurs lose appeal against Bentancur ban**\
-`Tottenham Hotspur have seen their appeal against Rodrigo Bentancur&#8217;s seven-game suspension dismissed.`\
-https://nytimes.com/athletic/5999097/2024/12/17/rodrigo-bentancur-appeal-ban-tottenham/
 
