@@ -1,3 +1,7 @@
+**What North Korea Gains From Its Alliance With Russia — and What It Risks**\
+`Sending troops to fight against Ukraine has gotten North Korea much-needed cash and diplomatic leverage. But there may be hidden costs, too.`\
+https://nytimes.com/2024/12/17/world/asia/north-korea-russia-military-deal.html
+
 **Canucks' Kiefer Sherwood powers an impressive bounce-back win: 3 takeaways**\
 `After Vancouver was embarrassed by Boston on Saturday, Sherwood responded with a hat trick Monday that iced Colorado for the 3-1 win.`\
 https://nytimes.com/athletic/6000224/2024/12/17/canucks-kiefer-sherwood-bounce-back-win/
