@@ -1,6 +1,14 @@
+**Vinicius Jr, Bonmati named players of the year at FIFA Best awards**\
+`Real Madrid forward Vinicius Junior has been named the men&#8217;s player of the year at the FIFA Best awards, with Barcelona midfielder Aitana Bonmati winning the women&#8217;s prize.`\
+https://nytimes.com/athletic/6001558/2024/12/17/fifa-best-awards-vinicius-bonmati/
+
 **For Years, U.S. Collected Tips About Austin Tice’s Disappearance in Syria**\
 `Nongovernmental workers and journalists have scoured prisons for clues about his fate in the absence of an official American presence in the country.`\
 https://nytimes.com/2024/12/17/us/politics/austin-tice-disappearance-syria.html
+
+**Chiefs QB Patrick Mahomes pushing to play through sprained ankle this week**\
+`Andy Reid said Mahomes will test his ankle in practice this week. If he can't go, backup Carson Wentz will get those reps.`\
+https://nytimes.com/athletic/6001560/2024/12/17/chiefs-patrick-mahomes-ankle-injury-texans/
 
 **Ocasio-Cortez Loses Vote to Be the Top Democrat on Oversight Panel**\
 `The New York progressive’s defeat was a counterpoint to generational change in the Democratic ranks, as House members chose younger members for top posts on other committees.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/technology/elon-musk-spacex-national-security-rep
 **Tech Entrepreneur Convicted of Second-Degree Murder in Death of Cash App Founder**\
 `Nima Momeni, 40, was convicted by a San Francisco jury in the fatal stabbing of Bob Lee, a well-known tech executive.`\
 https://nytimes.com/2024/12/17/us/nima-momeni-verdict-bob-lee-killing.html
-
-**Harris Urges Young People to ‘Stay in the Fight’**\
-`In her first major speech since conceding defeat, Vice President Kamala Harris expressed optimism for the nation’s future to young voters.`\
-https://nytimes.com/video/us/politics/100000009882734/kamala-harris-maryland-speech.html
-
-**Serial Killer Suspect Rex Heuermann Charged With Seventh Murder**\
-`The killing of Valerie Mack was added to the murder charges against Rex Heuermann, the architect who has pleaded not guilty in the deaths of six women whose remains were mostly found near Gilgo Beach, Long Island.`\
-https://nytimes.com/video/us/100000009882512/gilgo-beach-murders-valerie-mack.html
 

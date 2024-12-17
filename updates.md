@@ -1,3 +1,11 @@
+**Vinicius Jr, Bonmati named players of the year at FIFA Best awards**\
+`Real Madrid forward Vinicius Junior has been named the men&#8217;s player of the year at the FIFA Best awards, with Barcelona midfielder Aitana Bonmati winning the women&#8217;s prize.`\
+https://nytimes.com/athletic/6001558/2024/12/17/fifa-best-awards-vinicius-bonmati/
+
+**Chiefs QB Patrick Mahomes pushing to play through sprained ankle this week**\
+`Andy Reid said Mahomes will test his ankle in practice this week. If he can't go, backup Carson Wentz will get those reps.`\
+https://nytimes.com/athletic/6001560/2024/12/17/chiefs-patrick-mahomes-ankle-injury-texans/
+
 **For Years, U.S. Collected Tips About Austin Tice’s Disappearance in Syria**\
 `Nongovernmental workers and journalists have scoured prisons for clues about his fate in the absence of an official American presence in the country.`\
 https://nytimes.com/2024/12/17/us/politics/austin-tice-disappearance-syria.html
