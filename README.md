@@ -4,7 +4,7 @@ https://nytimes.com/2024/12/17/theater/annie-review-whoopi-goldberg.html
 
 **Limits on Aid to Syria Threaten to Worsen the Country’s Humanitarian Crisis**\
 `Major obstacles could stymie Syria’s new leaders as they struggle to find some footing and improve the country’s living conditions.`\
-https://nytimes.com/2024/12/17/world/syris-sanctions-aid-limits.html
+https://nytimes.com/2024/12/17/world/middleeast/syria-sanctions-aid-limits.html
 
 **Trump Accuses Juror of Misconduct in Latest Move to Overturn Conviction**\
 `The president-elect’s latest attempt to overturn his Manhattan conviction was rebuffed by the judge overseeing the case, who called it “mere hearsay and conjecture.”`\
