@@ -1,3 +1,15 @@
+**Done With Never Trump**\
+`There’s plenty to dislike and fear about Trump, but Never Trumpers overstated our case, defeating our purpose.`\
+https://nytimes.com/2024/12/17/opinion/never-trump-republicans.html
+
+**How Elon Musk and Taylor Swift Can Resolve U.S.-China Relations**\
+`Trump will face a new China this time, one whose advanced manufacturing muscles have exploded in size, sophistication and quantity.`\
+https://nytimes.com/2024/12/17/opinion/us-china-musk-swift-tariffs-manufacturing.html
+
+**A Vanguard of Cool Back on the Scene Again**\
+`David Bowie loved its couscous. Norman Reedus hung out there. It put avocado toast on the map. Thirty years later, and with a new book honoring it, Cafe Gitane is drawing a fresh crowd.`\
+https://nytimes.com/2024/12/17/style/cafe-gitane-mcnally-editions-scene.html
+
 **Sherrod Brown Signs Off in the Senate. For Now.**\
 `Ohio’s senior Democratic senator told colleagues that despite his defeat, he was not done with politics just yet.`\
 https://nytimes.com/2024/12/17/us/sherrod-brown-senate-career.html

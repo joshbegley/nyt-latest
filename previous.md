@@ -1,3 +1,15 @@
+**Done With Never Trump**\
+`There’s plenty to dislike and fear about Trump, but Never Trumpers overstated our case, defeating our purpose.`\
+https://nytimes.com/2024/12/17/opinion/never-trump-republicans.html
+
+**How Elon Musk and Taylor Swift Can Resolve U.S.-China Relations**\
+`Trump will face a new China this time, one whose advanced manufacturing muscles have exploded in size, sophistication and quantity.`\
+https://nytimes.com/2024/12/17/opinion/us-china-musk-swift-tariffs-manufacturing.html
+
+**A Vanguard of Cool Back on the Scene Again**\
+`David Bowie loved its couscous. Norman Reedus hung out there. It put avocado toast on the map. Thirty years later, and with a new book honoring it, Cafe Gitane is drawing a fresh crowd.`\
+https://nytimes.com/2024/12/17/style/cafe-gitane-mcnally-editions-scene.html
+
 **Sherrod Brown Signs Off in the Senate. For Now.**\
 `Ohio’s senior Democratic senator told colleagues that despite his defeat, he was not done with politics just yet.`\
 https://nytimes.com/2024/12/17/us/sherrod-brown-senate-career.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/17/business/media/disney-pixar-win-or-lose.html
 **China Lengthens Visa-Free Stays for Tourists**\
 `In its efforts to attract visitors, the country extended stays from less than a week to up to 10 days for visitors between destinations.`\
 https://nytimes.com/2024/12/17/world/asia/china-visa-free-transit-policy.html
-
-**National Archivist Rejects Bid to Certify the Equal Rights Amendment**\
-`With President Biden under pressure to add the an amendment explicitly guaranteeing sex equality to the Constitution, Colleen Shogan said she could not legally certify it.`\
-https://nytimes.com/2024/12/17/us/politics/equal-rights-amendment-constitution.html
-
-**The Trump Factor Further Shakes Up Canada’s Politics**\
-`The president-elect’s threat to impose major tariffs on Canadian goods and other pointed comments have tapped into a treacherous moment in domestic politics.`\
-https://nytimes.com/2024/12/17/world/canada/canada-trudeau-trump.html
-
-**She Wrote the Book on Preservation in New York**\
-`Barbaralee Diamonstein-Spielvogel has made it her life’s work to make sure that the city’s landmarks, and the contributions of its residents, are never forgotten.`\
-https://nytimes.com/2024/12/17/realestate/barbaralee-diamonstein-spielvogel-landmarks.html
 
