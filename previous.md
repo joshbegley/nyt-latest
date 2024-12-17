@@ -1,3 +1,7 @@
+**Tom Hanks, Pete Davidson and Olivia Munn Share Lessons on Love**\
+`Actors and comedians offered relationship advice at a performance of the new Broadway play, “All In: Comedy About Love,” by Simon Rich.`\
+https://nytimes.com/2024/12/16/style/all-in-comedy-about-love-opening.html
+
 **15-Year-Old Girl Identified as the Shooter in a Wisconsin School**\
 `Natalie Rupnow was identified by the police as the shooter in the attack at Abundant Life Christian School. Investigators are still trying to piece together what led up to the shooting.`\
 https://nytimes.com/2024/12/16/us/wisconsin-school-shooting-natalie-rupnow.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/16/world/vanuatu-quake-tracker.html
 **Wisconsin lands former Maryland QB Billy Edwards Jr. as remade room takes shape**\
 `Edwards, a former Maryland quarterback, helps solve the Badgers’ need for a veteran to step in and potentially start next season.`\
 https://nytimes.com/athletic/6000012/2024/12/16/wisconsin-billy-edwards-maryland-transfer/
-
-**Sirens, Then an Excruciating Wait for School Families**\
-`It would be hours before any details emerged about Monday’s shooting at Abundant Life Christian School, including that the shooter was a student at the school.`\
-https://nytimes.com/2024/12/16/us/abundant-life-christian-school-shooting.html
 

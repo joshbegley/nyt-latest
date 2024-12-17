@@ -1,3 +1,7 @@
+**Tom Hanks, Pete Davidson and Olivia Munn Share Lessons on Love**\
+`Actors and comedians offered relationship advice at a performance of the new Broadway play, “All In: Comedy About Love,” by Simon Rich.`\
+https://nytimes.com/2024/12/16/style/all-in-comedy-about-love-opening.html
+
 **7.3-Magnitude Earthquake Near Vanuatu Triggers Small Tsunami Waves**\
 `Tsunami waves of less than a foot hit Vanuatu’s coastline. Officials said the threat had passed about an hour after a tsunami alert was issued.`\
 https://nytimes.com/2024/12/16/world/asia/vanuatu-earthquake-tsunami.html
