@@ -1,3 +1,15 @@
+**Marshon Lattimore's target-free Commanders debut spoke volumes about his impact**\
+`"I just tried to stay calm and get the job done. I did what they needed me to do," Lattimore said following his Washington debut. `\
+https://nytimes.com/athletic/5999743/2024/12/17/marshon-lattimore-debut-commanders-saints/
+
+**Mayotte, Cyclone-Hit French Territory, Imposes Curfew as Aid Is Rushed In**\
+`Hundreds are feared dead after the storm razed entire neighborhoods in Mayotte, a series of islands off the eastern coast of Africa.`\
+https://nytimes.com/2024/12/17/world/europe/mayotte-cyclone-chido-curfew-deaths.html
+
+**Mudryk, the Chelsea winger who arrived as a £62m victory - but is now facing failed test**\
+`Mykhailo Mudryk failed a drugs test, but his entire time at Chelsea has been difficult`\
+https://nytimes.com/athletic/5999033/2024/12/17/mykhailo-mudryk-chelsea-doping-test-analysis/
+
 **Pereira travels to UK after agreeing Wolves deal**\
 `Vitor Pereira has travelled to the UK today to take over as Wolverhampton Wanderers head coach after agreeing a one-and-a-half-year deal.`\
 https://nytimes.com/athletic/6000599/2024/12/17/vitor-pereira-wolves-deal/
