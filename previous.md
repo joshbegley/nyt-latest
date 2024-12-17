@@ -1,3 +1,11 @@
+**Cunha charged with misconduct after Ipswich altercation**\
+`Wolverhampton Wanderers striker Matheus Cunha has been charged by the Football Association (FA) following an altercation with an Ipswich Town security guard after their Premier League game on Saturday.`\
+https://nytimes.com/athletic/5997838/2024/12/17/wolves-cunha-charge-fa/
+
+**Chelsea's Mudryk tests positive for banned substance**\
+`Chelsea winger Mykhailo Mudryk has tested positive for a banned substance.`\
+https://nytimes.com/athletic/5998614/2024/12/17/mykhailo-mudryk-doping-meldonium-chelsea/
+
 **NBA Trade Board: Jimmy Butler, Cam Johnson and the top 30 names on the market**\
 `The race to the Feb. 6 deadline has started as teams figure out exactly what their aspirations are.`\
 https://nytimes.com/athletic/5967281/2024/12/17/nba-trade-board-jimmy-butler-zach-lavine-cam-johnson/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/arts/television/nate-bargatze-christmas-special-c
 **Cafes Can’t Play Music, but the Water Taps Work: Life Under Syria’s Rebels**\
 `The Islamists who now lead Syria have ruled the city of Idlib for years. Residents say they imposed some strict laws, but also heeded some complaints and improved public services.`\
 https://nytimes.com/2024/12/17/world/middleeast/cafes-cant-play-music-but-the-water-taps-work-life-under-syrias-rebels.html
-
-**I Hope Hegseth’s Accuser Testifies**\
-`The possibility that she was drugged means the Senate needs to learn every detail of what happened.`\
-https://nytimes.com/live/2024/12/04/opinion/thepoint/hegseth-accuser-drugs
-
-**High on Hope, Wall St. Hears What It Wants From Trump**\
-`Investors and executives are often emphasizing what they like in the president-elect’s agenda, while dismissing what they don’t as mere posturing.`\
-https://nytimes.com/2024/12/17/business/economy/trump-wall-street-promises.html
 

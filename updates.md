@@ -1,3 +1,11 @@
+**Cunha charged with misconduct after Ipswich altercation**\
+`Wolverhampton Wanderers striker Matheus Cunha has been charged by the Football Association (FA) following an altercation with an Ipswich Town security guard after their Premier League game on Saturday.`\
+https://nytimes.com/athletic/5997838/2024/12/17/wolves-cunha-charge-fa/
+
+**Chelsea's Mudryk tests positive for banned substance**\
+`Chelsea winger Mykhailo Mudryk has tested positive for a banned substance.`\
+https://nytimes.com/athletic/5998614/2024/12/17/mykhailo-mudryk-doping-meldonium-chelsea/
+
 **NBA Trade Board: Jimmy Butler, Cam Johnson and the top 30 names on the market**\
 `The race to the Feb. 6 deadline has started as teams figure out exactly what their aspirations are.`\
 https://nytimes.com/athletic/5967281/2024/12/17/nba-trade-board-jimmy-butler-zach-lavine-cam-johnson/
