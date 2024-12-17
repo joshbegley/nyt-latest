@@ -1,3 +1,7 @@
+**Russian General Is Killed in Bombing on a Moscow Street**\
+`The general, Igor Kirillov, died after a bomb in a scooter exploded, officials said. He was the head of Russia’s radioactive, chemical and biological defense forces.`\
+https://nytimes.com/2024/12/17/world/europe/russian-general-bombing-moscow.html
+
 **Falcons keep playoff hopes alive with 15-9 win vs. Raiders: Takeaways**\
 `The Raiders moved closer to the No. 1 pick in the 2025 NFL Draft in their battle with the New York Giants.`\
 https://nytimes.com/athletic/5999454/2024/12/17/falcons-raiders-mnf-doubleheader-score-result-takeaways/
