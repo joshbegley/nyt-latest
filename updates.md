@@ -1,3 +1,11 @@
+**British Authorities Criticized Over Sewage Spills in Public Waterways**\
+`The condemnation by a watchdog comes as England’s largest water company asks for an emergency loan and the nation wrestles with water pollution.`\
+https://nytimes.com/2024/12/17/business/britain-sewage-thames-water-spills.html
+
+**Explaining Mudryk's drugs ban: What is meldonium - and possible punishments**\
+`Breaking down what has happened with Ukrainian's failed doping test and what could come next`\
+https://nytimes.com/athletic/6000684/2024/12/17/mykhailo-mudryk-chelsea-drug-ban-meldonium-punishment/
+
 **Leafs goalie Anthony Stolarz out 4-6 weeks with knee injury**\
 `Stolarz is undergoing a “procedure” in New York on Wednesday to repair the issue, GM Brad Treliving said.`\
 https://nytimes.com/athletic/6001382/2024/12/17/leafs-anthony-stolarz-knee-injury/
