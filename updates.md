@@ -1,3 +1,7 @@
+**Yankees to acquire former NL MVP Cody Bellinger, cash from Cubs for Cody Poteet: Sources**\
+`The Yankees have made a solid move by acquiring Bellinger, but they will need further reinforcements.`\
+https://nytimes.com/athletic/5997080/2024/12/17/yankees-cubs-cody-bellinger-trade-cody-poteet/
+
 **‘Annie’ Review: Whoopi Goldberg Is a Holiday Gift as Miss Hannigan**\
 `In a just sweet enough production with a strong cast, the “View” host delivers a performance that reaffirms her savvy as a comic actor.`\
 https://nytimes.com/2024/12/17/theater/annie-review-whoopi-goldberg.html
