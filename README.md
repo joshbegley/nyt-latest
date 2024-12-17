@@ -1,3 +1,7 @@
+**Alabama Woman Receives Nation’s Third Pig Kidney Transplant**\
+`The patient, Towana Looney, was discharged from the hospital after the procedure but returned on Friday for additional treatment.`\
+https://nytimes.com/2024/12/17/health/pig-kidney-transplant-looney.html
+
 **‘Bluey’ Is Headed to Theaters, Backed by Disney**\
 `BBC Studios and the Walt Disney Company will collaborate on a movie about the hit children’s character.`\
 https://nytimes.com/2024/12/17/business/bluey-movie-disney-bbc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000512/2024/12/17/mlb-trades-signings-offseason-sc
 **European Super League relaunches as 'Unify League': What's different - and will it work?**\
 `The company behind the controversial European Super League idea has tweaked its proposal once more, completely scrapping the original closed-shop format, in a bid to make it more attractive to clubs and fans.`\
 https://nytimes.com/athletic/6000667/2024/12/17/european-super-league-unify-a22/
-
-**Antonio Pierce failing to show progress as Raiders fall victim to familiar issues vs. Falcons**\
-`Progress has continued to elude the Raiders, and Pierce hasn’t given fans much reason to believe he’s capable of making things better.`\
-https://nytimes.com/athletic/6000334/2024/12/17/antonio-pierce-raiders-falcons-progress/
 
