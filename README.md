@@ -1,5 +1,5 @@
 **Alabama Woman Receives Nation’s Third Pig Kidney Transplant**\
-`The patient, Towana Looney, was discharged from the hospital after the procedure but returned on Friday for additional treatment.`\
+`The patient, Towana Looney, was in better health than previous recipients, and her case could signal progress toward solving the organ-supply shortage.`\
 https://nytimes.com/2024/12/17/health/pig-kidney-transplant-looney.html
 
 **‘Bluey’ Is Headed to Theaters, Backed by Disney**\
