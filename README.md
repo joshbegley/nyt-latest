@@ -1,3 +1,11 @@
+**Trump Transition Live Updates: Harris to Address Younger Americans in Maryland**\
+``\
+https://nytimes.com/live/2024/12/17/us/trump-administration-news
+
+**NHL trade board 2.0: Rangers take center stage, plus new targets ahead of the holiday roster freeze**\
+`All eyes are on the Rangers as their tailspin continues, but the Predators, Sabres, Penguins, Red Wings and Islanders also need to reassess.`\
+https://nytimes.com/athletic/5999541/2024/12/17/nhl-trade-board-kreider-frederic-saad/
+
 **NFL Week 15 best and worst coaching decisions: Bills' Joe Brady's great plan vs. Lions**\
 `Also, Liam Coen's Buccaneers offense had no trouble against the Chargers, and DeMeco Ryans' Texans took away a Dolphins strength.`\
 https://nytimes.com/athletic/5997325/2024/12/17/nfl-week-15-worst-best-coaching-decisions-nguyen/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5998550/2024/12/17/george-kittle-49ers-tattoos-mind
 **After Trump’s Victory, Republicans Trust the Election System Again**\
 `Surveys taken since Donald Trump’s win show a resurgent faith among the president-elect’s supporters, and little Democratic appetite for conspiracy theories.`\
 https://nytimes.com/2024/12/17/us/politics/republicans-elections-trust-trump.html
-
-**Inside Russell Martin's Southampton downfall - and the reluctant decision to sack him**\
-`Southampton did not want to have to make the call to part ways with their manager but in the end they had little choice`\
-https://nytimes.com/athletic/6000531/2024/12/17/russell-martin-inside-southampton-sacking/
-
-**The Unintended Consequences of Tariffs**\
-`The biggest benefits often emerge outside the countries engaged in a trade war.`\
-https://nytimes.com/2024/12/17/briefing/vietnam-china-us-trade-war.html
 
