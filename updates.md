@@ -1,3 +1,11 @@
+**George Santos, Disgraced Former Congressman, Still Wants Your Attention**\
+`After his lies and expulsion from Congress, and before his sentencing in February, George Santos chases the limelight with a party and a podcast.`\
+https://nytimes.com/2024/12/17/us/politics/santos-podcast-launch-party.html
+
+**Former NFL QB Michael Vick to become head coach at Norfolk State: Sources**\
+`Vick, 44, lacks major coaching experience but told The Virginian-Pilot, “I know how to lead and I know what it takes.” `\
+https://nytimes.com/athletic/6002201/2024/12/17/michael-vick-hired-norfolk-state/
+
 **New Protections for Travelers Flying With Wheelchairs Are Coming Soon**\
 `The Transportation Department has expanded the rights of airline passengers with mobility disabilities. The first changes will go into effect next month.`\
 https://nytimes.com/2024/12/17/travel/airlines-wheelchairs-mobility-scooters.html

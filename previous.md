@@ -1,6 +1,14 @@
+**George Santos, Disgraced Former Congressman, Still Wants Your Attention**\
+`After his lies and expulsion from Congress, and before his sentencing in February, George Santos chases the limelight with a party and a podcast.`\
+https://nytimes.com/2024/12/17/us/politics/santos-podcast-launch-party.html
+
 **New Protections for Travelers Flying With Wheelchairs Are Coming Soon**\
 `The Transportation Department has expanded the rights of airline passengers with mobility disabilities. The first changes will go into effect next month.`\
 https://nytimes.com/2024/12/17/travel/airlines-wheelchairs-mobility-scooters.html
+
+**Former NFL QB Michael Vick to become head coach at Norfolk State: Sources**\
+`Vick, 44, lacks major coaching experience but told The Virginian-Pilot, “I know how to lead and I know what it takes.” `\
+https://nytimes.com/athletic/6002201/2024/12/17/michael-vick-hired-norfolk-state/
 
 **Disney Pulls Transgender Story Line From New Series**\
 `The animated “Win or Lose” follows a middle school softball team, and each episode is told from the perspective of a different character.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/briefing/ukraine-moscow-elon-musk-van-gogh.html
 **Luigi Mangione Is Charged With Murder**\
 `The first-degree murder charge branded him a terrorist over the killing of UnitedHealthcare’s chief executive, Brian Thompson.`\
 https://nytimes.com/video/nyregion/100000009883830/luigi-mangione-charges.html
-
-**How Chiefs QB Patrick Mahomes is pushing to play through sprained ankle this week**\
-`Mahomes is testing his ankle in practice this week. If he can't go, backup Carson Wentz will get those reps.`\
-https://nytimes.com/athletic/6001560/2024/12/17/chiefs-patrick-mahomes-ankle-injury-texans/
-
-**Mets notes: Juan Soto has 'a chance to be really good' in field, Clay Holmes' innings, more**\
-`There's room for improvement in Soto's defense, the team's internal options for a utility role, an under-the-radar signing and more.`\
-https://nytimes.com/athletic/6001656/2024/12/17/mets-juan-soto-defense-improvement-clay-holmes/
 
