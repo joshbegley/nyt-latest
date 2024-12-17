@@ -1,3 +1,11 @@
+**As Trump Turns Away From Ukraine, Even Supporters in Congress Rethink Aid**\
+`Reality has set in on Capitol Hill that with President-elect Donald J. Trump poised to take office, the era of U.S. military support for Ukraine is coming to an end.`\
+https://nytimes.com/2024/12/17/us/trump-congress-ukraine-aid.html
+
+**When Your $3 Million Cello Gets Bumped From Your Flight**\
+`The cellist Sheku Kanneh-Mason had to cancel a concert in Toronto last week after an airline refused to let him board with his instrument, even though he had bought a ticket for it.`\
+https://nytimes.com/2024/12/17/arts/sheku-kanneh-mason-cello-air-canada.html
+
 **Armed Services Committee Democrats call the allegations against Hegseth disqualifying.**\
 `A group of Democrats told President-elect Donald J. Trump’s chief of staff that his pick to lead the Pentagon is unfit because he faces charges of sexual misconduct and opposes women serving in combat.`\
 https://nytimes.com/live/2024/12/17/us/trump-administration-news/armed-services-committee-democrats-call-allegations-against-hegseth-disqualifying

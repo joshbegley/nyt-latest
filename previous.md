@@ -1,3 +1,11 @@
+**As Trump Turns Away From Ukraine, Even Supporters in Congress Rethink Aid**\
+`Reality has set in on Capitol Hill that with President-elect Donald J. Trump poised to take office, the era of U.S. military support for Ukraine is coming to an end.`\
+https://nytimes.com/2024/12/17/us/trump-congress-ukraine-aid.html
+
+**When Your $3 Million Cello Gets Bumped From Your Flight**\
+`The cellist Sheku Kanneh-Mason had to cancel a concert in Toronto last week after an airline refused to let him board with his instrument, even though he had bought a ticket for it.`\
+https://nytimes.com/2024/12/17/arts/sheku-kanneh-mason-cello-air-canada.html
+
 **Rashford on potential Man Utd exit: 'I'm ready for a new challenge'**\
 `Marcus Rashford has spoken of the possibility of leaving Manchester United by saying he is &#8220;ready for a new challenge&#8221;.`\
 https://nytimes.com/athletic/6001641/2024/12/17/marcus-rashford-manchester-united-future-exit/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/climate/commonwealth-fusion-power-plant.html
 **6 New Songs You Should Hear Now**\
 `Hear just-released music from Julien Baker and Torres, Horsegirl and Amber Mark.`\
 https://nytimes.com/2024/12/17/arts/music/amplifier-newsletter-julien-baker-torres-horsegirl.html
-
-**Madison Grieves as Residents Await More Information on School Attack**\
-`Officials in Wisconsin were expected to give an update on Tuesday afternoon. The shooting left a student and a teacher dead and six others injured.`\
-https://nytimes.com/2024/12/17/us/wisconsin-school-shooting-madison-residents.html
-
-**Vinicius Jr, Bonmati named players of the year at FIFA Best awards**\
-`Real Madrid forward Vinicius Junior has been named the men&#8217;s player of the year at the FIFA Best awards, with Barcelona midfielder Aitana Bonmati winning the women&#8217;s prize.`\
-https://nytimes.com/athletic/6001558/2024/12/17/fifa-best-awards-vinicius-bonmati/
 
