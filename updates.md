@@ -1,3 +1,7 @@
+**What We Know About the Madison School Shooting**\
+`The police in Wisconsin are working to establish a motive for the attack, which left a student and teacher dead and six others injured.`\
+https://nytimes.com/2024/12/16/us/madison-wi-school-shooting-abundant-life.html
+
 **Tom Hanks, Pete Davidson and Olivia Munn Share Lessons on Love**\
 `Actors and comedians offered relationship advice at a performance of the new Broadway play, “All In: Comedy About Love,” by Simon Rich.`\
 https://nytimes.com/2024/12/16/style/all-in-comedy-about-love-opening.html
