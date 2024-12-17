@@ -1,3 +1,7 @@
+**Late Night Delights in Pie-in-the-Sky Theories About the Drones**\
+`Jimmy Fallon said no one knows where the drones spotted on the East Coast come from or why they exist: “It’s basically air crypto.”`\
+https://nytimes.com/2024/12/17/arts/television/late-night-drones-new-jersey.html
+
 **Canucks' Kiefer Sherwood powers an impressive bounce-back win: 3 takeaways**\
 `After Vancouver was embarrassed by Boston on Saturday, Sherwood responded with a hat trick on Monday that iced Colorado for the 3-1 win.`\
 https://nytimes.com/athletic/6000224/2024/12/17/canucks-kiefer-sherwood-bounce-back-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5998540/2024/12/17/liverpool-diogo-jota-darwin-nune
 **Vermont beats Marshall to win program's first men's NCAA soccer title**\
 `Vermont beat Marshall 2-1 in overtime, bringing the Catamounts their first national title in a team sport.`\
 https://nytimes.com/athletic/6000247/2024/12/17/vermont-ncaa-mens-soccer-championship/
-
-**Falcons keep playoff hopes alive with 15-9 win vs. Raiders: Takeaways**\
-`The Raiders moved closer to the No. 1 pick in the 2025 NFL Draft in their battle with the New York Giants.`\
-https://nytimes.com/athletic/5999454/2024/12/17/falcons-raiders-mnf-doubleheader-score-result-takeaways/
 

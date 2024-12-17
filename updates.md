@@ -1,3 +1,7 @@
+**Late Night Delights in Pie-in-the-Sky Theories About the Drones**\
+`Jimmy Fallon said no one knows where the drones spotted on the East Coast come from or why they exist: “It’s basically air crypto.”`\
+https://nytimes.com/2024/12/17/arts/television/late-night-drones-new-jersey.html
+
 **Canucks' Kiefer Sherwood powers an impressive bounce-back win: 3 takeaways**\
 `After Vancouver was embarrassed by Boston on Saturday, Sherwood responded with a hat trick on Monday that iced Colorado for the 3-1 win.`\
 https://nytimes.com/athletic/6000224/2024/12/17/canucks-kiefer-sherwood-bounce-back-win/
