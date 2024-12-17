@@ -1,3 +1,7 @@
+**Honda and Nissan Are in Talks to Deepen Ties and Possibly Merge**\
+`The automakers, Japan’s second and third largest, are said to be discussing a tie-up that could reshape the country’s industry.`\
+https://nytimes.com/2024/12/17/business/honda-nissan-talks-merger.html
+
 **Pinellas County votes to approve funding for new Rays stadium, now up to team to move forward**\
 `Said commissioner René Flowers shortly before the vote: “All eyes will now be watching if the Rays uphold their part of the deal.”`\
 https://nytimes.com/athletic/6002266/2024/12/17/new-rays-stadium-county-vote-approval/

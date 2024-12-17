@@ -1,3 +1,7 @@
+**Biden Administration Running Out of Time to Send Allocated Aid to Ukraine**\
+`Senior officials discussed U.S. plans to announce additional support for Ukraine, and spoke about casualties among North Korean troops sent to help Russia.`\
+https://nytimes.com/2024/12/17/us/politics/ukraine-aid-biden-trump.html
+
 **Honda and Nissan Are in Talks to Deepen Ties and Possibly Merge**\
 `The automakers, Japan’s second and third largest, are said to be discussing a tie-up that could reshape the country’s industry.`\
 https://nytimes.com/2024/12/17/business/honda-nissan-talks-merger.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/us/politics/santos-podcast-launch-party.html
 **New Protections for Travelers Flying With Wheelchairs Are Coming Soon**\
 `The Transportation Department has expanded the rights of airline passengers with mobility disabilities. The first changes will go into effect next month.`\
 https://nytimes.com/2024/12/17/travel/airlines-wheelchairs-mobility-scooters.html
-
-**Former NFL QB Michael Vick to become head coach at Norfolk State: Sources**\
-`Vick, 44, lacks major coaching experience but told The Virginian-Pilot, “I know how to lead and I know what it takes.” `\
-https://nytimes.com/athletic/6002201/2024/12/17/michael-vick-hired-norfolk-state/
 
