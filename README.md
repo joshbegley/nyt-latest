@@ -1,3 +1,11 @@
+**Germany Doesn’t Feel Like Germany Anymore**\
+`The economically prosperous, socially cohesive and politically stable country has gone.`\
+https://nytimes.com/2024/12/17/opinion/germany-scholz-government-election.html
+
+**Pope Francis: There Is Faith in Humor**\
+`The best thing to do in front of a mirror is to laugh at ourselves. It is good for us.`\
+https://nytimes.com/2024/12/17/opinion/pope-francis-humor.html
+
 **Vermont beats Marshall to win program's first men's NCAA soccer title**\
 `Vermont beat Marshall 2-1 in overtime, bringing the Catamounts their first national title in a team sport.`\
 https://nytimes.com/athletic/6000247/2024/12/17/vermont-ncaa-mens-soccer-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/16/pageoneplus/quote-of-the-day-democrats-aim-to-foi
 **Vikings beat Bears 30-12 for 7th straight win, tie Lions atop NFC North: Takeaways**\
 `Sam Darnold was not at his best, but Minnesota rode its ground game to victory and pulled even with Detroit at 12-2.`\
 https://nytimes.com/athletic/5999398/2024/12/16/vikings-bears-mnf-doubleheader-score-result-takeaways/
-
-**NFL playoff picture after Week 15: Eagles, Vikings join Lions atop NFC; Rams lead NFC West**\
-`With Denver's win over Indy on Sunday, the AFC playoff picture looks clear. The seven teams aren't locked in yet, but they could be soon. `\
-https://nytimes.com/athletic/5990243/2024/12/16/nfl-playoff-picture-week-15-eagles-lions-vikings-update/
-
-**What We Know About the Madison School Shooting**\
-`The police in Wisconsin are working to establish a motive for the attack, which left a student and teacher dead and six others injured.`\
-https://nytimes.com/2024/12/16/us/madison-wi-school-shooting-abundant-life.html
 
