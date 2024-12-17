@@ -1,3 +1,7 @@
+**Armed Services Committee Democrats call the allegations against Hegseth disqualifying.**\
+`A group of Democrats told President-elect Donald J. Trump’s chief of staff that his pick to lead the Pentagon is unfit because he faces charges of sexual misconduct and opposes women serving in combat.`\
+https://nytimes.com/live/2024/12/17/us/trump-administration-news/armed-services-committee-democrats-call-allegations-against-hegseth-disqualifying
+
 **Rashford on potential Man Utd exit: 'I'm ready for a new challenge'**\
 `Marcus Rashford has spoken of the possibility of leaving Manchester United by saying he is &#8220;ready for a new challenge&#8221;.`\
 https://nytimes.com/athletic/6001641/2024/12/17/marcus-rashford-manchester-united-future-exit/
