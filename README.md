@@ -1,3 +1,7 @@
+**European Super League relaunches as 'Unify League': What's different - and will it work?**\
+`The company behind the controversial European Super League idea has tweaked its proposal once more, completely scrapping the original closed-shop format, in a bid to make it more attractive to clubs and fans.`\
+https://nytimes.com/athletic/6000667/2024/12/17/european-super-league-unify-a22/
+
 **'Howdy!' A journey down the inked arms — and into the lively mind — of George Kittle**\
 `Kittle, a 'Lord of the Rings' devotee, sees life and an NFL season through that lens. On Thursday, he was channeling his inner Sauron.`\
 https://nytimes.com/athletic/5998550/2024/12/17/george-kittle-49ers-tattoos-mind/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000599/2024/12/17/vitor-pereira-wolves-deal/
 **Spurs lose appeal against Bentancur ban**\
 `Tottenham Hotspur have seen their appeal against Rodrigo Bentancur&#8217;s seven-game suspension dismissed.`\
 https://nytimes.com/athletic/5999097/2024/12/17/rodrigo-bentancur-appeal-ban-tottenham/
-
-**'He's special, man': Packers rookie Edgerrin Cooper looks like a star in the making**\
-`Cooper, the 2024 second-round pick, had the best game of his young career against the Seahawks on Sunday night.`\
-https://nytimes.com/athletic/6000048/2024/12/17/packers-rookie-edgerrin-cooper/
 
