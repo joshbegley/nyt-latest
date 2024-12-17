@@ -1,3 +1,7 @@
+**Pre-emptive Pardons, Wanted or Not**\
+`Responses to a guest essay by Sarah Isgur, who is on Kash Patel’s enemies list. Also: A strategy intended to prevent suicides; a renewal of hope.`\
+https://nytimes.com/2024/12/17/opinion/trump-biden-kash-patel-pardons.html
+
 **Worthwhile Canadian Resignation**\
 `Chrystia Freeland’s departure raises questions about how sharply Trudeau will counter Trump.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/canada-trudeau-freeland-resignation
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6001198/2024/12/17/lions-injury-update-nfl-devondre
 **Tech Makes an Economic Case for Skilled Immigrants. Will Trump Bite?**\
 `Silicon Valley hopes that tech giants like Elon Musk could help to push the incoming Trump administration toward offering more visas to highly skilled foreign workers.`\
 https://nytimes.com/2024/12/17/business/economy/trump-tech-h1b-visa.html
-
-**As the AI race continues, open source models offer a path for all, not just the few.**\
-`Innovators like Dr. Kal Clark are seeking collaborative solutions to age-old problems. In open source AI, they believe they’ve found their answer. `\
-https://nytimes.com/paidpost/2024-meta-ai/2024-meta-ai/opensource-ai-innovation.html
 
