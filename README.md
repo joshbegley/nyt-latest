@@ -1,3 +1,7 @@
+**Gun Violence at Schools Has Risen Since the Pandemic**\
+`But mass shootings remain a rare occurrence. Only a small fraction of the nation’s nearly 130,000 schools report gun incidents each year.`\
+https://nytimes.com/2024/12/17/us/gun-violence-school-shootings-pandemic.html
+
 **‘Annie’ Review: Whoopi Goldberg Is a Holiday Gift as Miss Hannigan**\
 `In a just sweet enough production with a strong cast, the “View” host delivers a performance that reaffirms her savvy as a comic actor.`\
 https://nytimes.com/2024/12/17/theater/annie-review-whoopi-goldberg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/climate/worrying-signs-arctic.html
 **Devin Williams was stunned by Yankees trade because he expected to be a Dodger**\
 `Williams has been one of the most consistent bullpen arms in recent years.`\
 https://nytimes.com/athletic/6001667/2024/12/17/yankees-devin-williams-trade-dodgers/
-
-**How Much Progress Have Women Made at Work?**\
-`At the DealBook Summit, nine prominent female leaders set out to answer the question, “Why aren’t there more women at the top levels of corporate America?”`\
-https://nytimes.com/2024/12/17/business/dealbook/women-progress-work.html
 
