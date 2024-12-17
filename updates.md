@@ -1,3 +1,7 @@
+**7.3-Magnitude Earthquake Near Vanuatu Triggers Small Tsunami Waves**\
+`Tsunami waves of less than a foot hit Vanuatu’s coastline. Officials said the threat had passed about an hour after a tsunami alert was issued.`\
+https://nytimes.com/2024/12/16/world/asia/vanuatu-earthquake-tsunami.html
+
 **15-Year-Old Girl Identified as the Shooter in a Wisconsin School**\
 `Natalie Rupnow was identified by the police as the shooter in the attack at Abundant Life Christian School. Investigators are still trying to piece together what led up to the shooting.`\
 https://nytimes.com/2024/12/16/us/wisconsin-school-shooting-natalie-rupnow.html
