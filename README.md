@@ -1,3 +1,7 @@
+**Russian General Is Killed in Bombing on a Moscow Street**\
+`The general, Igor Kirillov, died after a bomb in a scooter exploded, officials said. He was the head of Russia’s radioactive, chemical and biological defense forces.`\
+https://nytimes.com/2024/12/17/world/europe/russian-general-bombing-moscow.html
+
 **New York City Water Main Break Floods Streets in the Bronx**\
 `Some cars were submerged by the rising water. Emergency workers were working overnight to identify the source of the break.`\
 https://nytimes.com/2024/12/17/us/water-main-break-bronx-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5998174/2024/12/17/was-emi-martinezs-save-against-n
 **Tuesday Briefing**\
 `Germany’s political turmoil.`\
 https://nytimes.com/2024/12/17/briefing/germany-confidence-vote-syria.html
-
-**Confidence in U.S. Courts Plummets to Rate Far Below Peer Nations**\
-`Very few countries have experienced similar declines, typically in the wake of wrenching turmoil. Experts called the data, from a new Gallup poll, stunning and worrisome.`\
-https://nytimes.com/2024/12/17/us/gallup-poll-judiciary-courts.html
 
