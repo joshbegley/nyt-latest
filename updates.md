@@ -1,3 +1,7 @@
+**Canucks' Kiefer Sherwood powers an impressive bounce-back win: 3 takeaways**\
+`After Vancouver was embarrassed by Boston on Saturday, Sherwood responded with a hat trick Monday that iced Colorado for the 3-1 win.`\
+https://nytimes.com/athletic/6000224/2024/12/17/canucks-kiefer-sherwood-bounce-back-win/
+
 **Aaron Rodgers, an Aching Achilles and Ayahuasca**\
 `A documentary about Rodgers, the 41-year-old quarterback, delves into drugs, religion and politics (and yes, that’s Robert F. Kennedy Jr.).`\
 https://nytimes.com/2024/12/17/arts/television/aaron-rodgers-enigma-rfk-ayahuasca.html
