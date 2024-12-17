@@ -1,3 +1,7 @@
+**Slot hints at creative Liverpool backline amid defensive absences**\
+`Arne Slot says he could use a combination of academy players and creativity to solve Liverpool’s lack of defensive options ahead of the Carabao Cup quarter-final tie against Southampton.`\
+https://nytimes.com/athletic/6000527/2024/12/17/liverpool-team-news-southampton-slot/
+
 **Who's the best player in the College Football Playoff at each position?**\
 `Who makes the College Football Playoff's All-22 team? The exercise is as hard as any we've done.`\
 https://nytimes.com/athletic/5996767/2024/12/17/college-football-playoff-best-players-by-position/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/opinion/ezra-klein-podcast-kate-shaw-gillian-metz
 **Should the President Have Nuclear Sole Authority? We Asked 530 Incoming Congress Members.**\
 `If there is a widespread urgency in Congress to cooperate on bills that create safeguards around nuclear war, it was not apparent.`\
 https://nytimes.com/2024/12/17/opinion/congress-nuclear-power-sole-authority.html
-
-**What’s Funny About John Mulaney and Simon Rich’s Friendship? Everything.**\
-`The former “S.N.L.” writing partners have reunited for Rich’s “superficially wacky” Broadway show, “All In: Comedy About Love.”`\
-https://nytimes.com/2024/12/17/theater/all-in-broadway-john-mulaney-simon-rich.html
 
