@@ -1,5 +1,9 @@
+**For Years, U.S. Collected Tips About Austin Tice’s Disappearance in Syria**\
+`Nongovernmental workers and journalists have scoured prisons for clues about his fate in the absence of an official American presence in the country.`\
+https://nytimes.com/2024/12/17/us/politics/austin-tice-disappearance-syria.html
+
 **Ocasio-Cortez Loses Vote to Be the Top Democrat on Oversight Panel**\
-`The New York progressive’s defeat was a counterpoint to generational change in the Democratic ranks, as House members chose younger members to lead other committees.`\
+`The New York progressive’s defeat was a counterpoint to generational change in the Democratic ranks, as House members chose younger members for top posts on other committees.`\
 https://nytimes.com/2024/12/17/us/politics/ocasio-cortez-oversight-connolly.html
 
 **The protective supplies your trading card collection can't be without**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009882734/kamala-harris-maryland-spe
 **Serial Killer Suspect Rex Heuermann Charged With Seventh Murder**\
 `The killing of Valerie Mack was added to the murder charges against Rex Heuermann, the architect who has pleaded not guilty in the deaths of six women whose remains were mostly found near Gilgo Beach, Long Island.`\
 https://nytimes.com/video/us/100000009882512/gilgo-beach-murders-valerie-mack.html
-
-**Tainted Drinks: How to Protect Yourself While Traveling**\
-`Deaths and hospitalizations of travelers in Laos and Fiji after they consumed drinks containing alcohol have raised concerns about possible methanol poisoning. Here are signs you can look out for.`\
-https://nytimes.com/2024/12/17/travel/methanol-poisoning-travel-protection.html
 
