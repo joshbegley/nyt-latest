@@ -1,3 +1,7 @@
+**Leafs goalie Anthony Stolarz out 4-6 weeks with knee injury**\
+`Stolarz is undergoing a “procedure” in New York on Wednesday to repair the issue, GM Brad Treliving said.`\
+https://nytimes.com/athletic/6001382/2024/12/17/leafs-anthony-stolarz-knee-injury/
+
 **A Grisly Discovery at a Bronze Age Mass Grave: The Victims Were Eaten, Too**\
 `“It’s taken us all aback,” said a professor who led a study revealing that 37 people in a prehistoric site in England were likely consumed by their attackers.`\
 https://nytimes.com/2024/12/17/science/earth/bronze-age-skeleton-cannibals.html
