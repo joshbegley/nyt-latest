@@ -1,3 +1,15 @@
+**Ancelotti 'optimistic' Mbappe will be fit for Intercontinental Cup final**\
+`Carlo Ancelotti is &#8220;optimistic&#8221; Kylian Mbappe will be fit to feature for Real Madrid in the Intercontinental Cup final on Wednesday.`\
+https://nytimes.com/athletic/6001102/2024/12/17/kylian-mbappe-intercontinental-cup-final/
+
+**Old Voice Mails? Instructional VHS Tapes? They’re Music to His Ears.**\
+`Paul de Jong makes collaged songs out of obscurities he collects in his Mall of Found: a library of low-budget, homespun and dated pieces of spoken-word media.`\
+https://nytimes.com/2024/12/17/arts/music/paul-de-jong-the-books-found-sound.html
+
+**Simply Having a Wonderful Weeknight Dinner**\
+`Recipes that live at the intersection of easy and fancy: salmon with salsa verde; chicken all’arrabbiata; BBQ pepper shrimp.`\
+https://nytimes.com/2024/12/17/dining/simply-having-a-wonderful-weeknight-dinner.html
+
 **Netanyahu Travels to Israeli-Controlled Syria, His Office Says**\
 `The previously unannounced trip highlighted Israel’s military presence across the de facto border with Syria. Israeli forces have seized more Syrian territory since the fall of Bashar al-Assad.`\
 https://nytimes.com/2024/12/17/world/middleeast/17syria-israel-netanyahu.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6000113/2024/12/17/sabres-terry-pegula-meeting/
 **Who Was Gen. Igor Kirillov, the Russian General Assassinated in Moscow?**\
 `The general had faced sanctions for using chemical weapons in Ukraine.`\
 https://nytimes.com/2024/12/17/world/europe/igor-kirillov-russian-general.html
-
-**Penguins Today: 'Heavy' times and wrestling ties**\
-`Tonight is WWE Night at PPG Paints Arena, so let's get into character.`\
-https://nytimes.com/athletic/6000965/2024/12/17/penguins-today-wwe-night/
-
-**The Search for van Gogh’s Lost Masterpiece**\
-`Cast off by the Nazis, but heralded by curators, the artist’s painting of his doctor, made just before van Gogh’s suicide, has not been seen in 34 years.`\
-https://nytimes.com/2024/12/17/arts/design/van-gogh-lost-masterpiece.html
-
-**Paul Watson, Anti-Whaling Activist, Is Released After 5 Months in Prison**\
-`Mr. Watson was facing extradition to Japan but was released after Denmark decided to reject the extradition request, his lawyer said.`\
-https://nytimes.com/2024/12/17/world/europe/denmark-anti-whaling-activist-no-extradition.html
 
