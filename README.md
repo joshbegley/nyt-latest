@@ -1,3 +1,11 @@
+**Word of the Day: primatology**\
+`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/17/learning/word-of-the-day-primatology.html
+
+**Massive Earthquake in Vanuatu Damages U.S. Embassy**\
+`The embassy was one of many damaged buildings filmed by a resident after the 7.3-magnitude earthquake.`\
+https://nytimes.com/video/world/100000009881869/vanuatu-port-vila-earthquake-embassy.html
+
 **Russian General Is Killed in Bombing on a Moscow Street**\
 `The general, Igor Kirillov, died after a bomb in a scooter exploded, officials said. He was the head of Russia’s radioactive, chemical and biological defense forces.`\
 https://nytimes.com/2024/12/17/world/europe/russian-general-bombing-moscow.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5999454/2024/12/17/falcons-raiders-mnf-doubleheader
 **The state of scouting: Data culture clash, job cuts and an uncertain future**\
 `The Athletic has canvassed the views of 40 scouts from across the Premier League and EFL to test the temperature of the industry`\
 https://nytimes.com/athletic/5998007/2024/12/17/premier-league-scouts-data-future/
-
-**Was Emi Martinez's save against Nottingham Forest the best of the Premier League era?**\
-`Schmeichel, James, Cudicini, Leno, Alisson, Hart, Gordon and Pickford are all in the running`\
-https://nytimes.com/athletic/5998174/2024/12/17/was-emi-martinezs-save-against-nottingham-forest-the-best-of-the-premier-league-era/
-
-**Tuesday Briefing**\
-`Germany’s political turmoil.`\
-https://nytimes.com/2024/12/17/briefing/germany-confidence-vote-syria.html
 
