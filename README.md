@@ -1,3 +1,15 @@
+**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
+https://nytimes.com/athletic/5891633/2024/12/16/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
+**Woman Who Stowed Away on Paris Flight Tries to Flee by Bus to Canada**\
+`The woman, Svetlana Dali, had been ordered to wear an ankle monitor after her arrest, but she cut it off and boarded a bus, a law enforcement official said.`\
+https://nytimes.com/2024/12/16/nyregion/stowaway-flight-paris-canada-arrest.html
+
+**Review: In ‘Eureka Day,’ Holding Space for Those You Hate**\
+`A hilarious new Broadway production asks: Can the superwoke vaxxers and anti-vaxxers at an elite private school learn to get along?`\
+https://nytimes.com/2024/12/16/theater/eureka-day-review-broadway.html
+
 **49ers' Nick Bosa says De'Vondre Campbell was acting up before Thursday's game**\
 `Bosa on Monday shared strong opinions about the 49ers defense and coordinator Nick Sorensen — he wants the status quo in 2025.`\
 https://nytimes.com/athletic/5999824/2024/12/16/49ers-nick-bosa-devondre-campbell-quit-suspended/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5999555/2024/12/16/chiefs-release-clyde-edwards-hel
 **Manfred against innings minimum for starting pitchers; salary deferrals ‘can become problematic’**\
 `“To me, this needs to be addressed in a more subtle way," MLB commissioner Rob Manfred said in a wide-ranging interview. `\
 https://nytimes.com/athletic/5999727/2024/12/16/manfred-mlb-innings-minimum-starting-pitchers/
-
-**Biden Administration Takes First Step to Retaliate Against China Over Hack**\
-`The Commerce Department is banning the few remaining operations of China Telecom in the United States, a move that appears unlikely to deter Beijing from conducting sophisticated cyberoperations.`\
-https://nytimes.com/2024/12/16/us/politics/biden-administration-retaliation-china-hack.html
-
-**Judge Denies Trump’s Bid to Throw Out Conviction Over Immunity Ruling**\
-`Justice Juan M. Merchan thwarted one of several attempts by Donald J. Trump to clear his record of 34 felonies before returning to the White House.`\
-https://nytimes.com/2024/12/16/nyregion/trump-immunity-criminal-case.html
-
-**Trump Meets the Press**\
-`Reflecting on how much has changed, and hasn’t, for Donald Trump since he first became president.`\
-https://nytimes.com/2024/12/16/us/politics/trump-press-conference.html
 
