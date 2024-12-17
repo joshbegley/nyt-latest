@@ -1,3 +1,8 @@
+**Indonesia: Harnessing Downstreaming for National Growth**\
+`Indonesia aims to achieve 8% GDP growth by 2040 through downstreaming 28 key commodities, with a goal of USD 618B in investments and 3M new jobs.
+`\
+https://nytimes.com/paidpost/investment-coordinating-board-republic-of-indonesia/indonesia-harnessing-downstreaming-for-national-growth.html
+
 **U.S. Cites ‘Indications’ North Korean Soldiers Died Fighting for Russia**\
 `The entry of North Korea into the war with Ukraine has marked a serious escalation in the conflict.`\
 https://nytimes.com/2024/12/17/world/europe/russia-ukraine-north-korea-war.html

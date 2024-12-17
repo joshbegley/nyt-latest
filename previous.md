@@ -1,3 +1,8 @@
+**Indonesia: Harnessing Downstreaming for National Growth**\
+`Indonesia aims to achieve 8% GDP growth by 2040 through downstreaming 28 key commodities, with a goal of USD 618B in investments and 3M new jobs.
+`\
+https://nytimes.com/paidpost/investment-coordinating-board-republic-of-indonesia/indonesia-harnessing-downstreaming-for-national-growth.html
+
 **Pistons avoid late-game collapse and 34-7 Heat run for 125-124 OT win**\
 `Cade Cunningham's triple-double paced Detroit and provided and provided a bulwark against Miami's late surge. `\
 https://nytimes.com/athletic/6000349/2024/12/17/pistons-overtime-win-heat/
@@ -33,8 +38,4 @@ https://nytimes.com/2024/12/17/health/psychedelic-medicine-palliative-care-end-o
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/17/crosswords/spelling-bee-forum.html
-
-**Late Night Delights in Pie-in-the-Sky Theories About the Drones**\
-`Jimmy Fallon said no one knows where the drones spotted on the East Coast come from or why they exist: “It’s basically air crypto.”`\
-https://nytimes.com/2024/12/17/arts/television/late-night-drones-new-jersey.html
 
