@@ -1,3 +1,7 @@
+**Justice Dept. Charges 2 Men in Deadly Drone Attack on U.S. Soldiers**\
+`The men are accused of supplying key parts in Iranian drones that killed three U.S. service members and injured dozens of others at an American military base in Jordan.`\
+https://nytimes.com/2024/12/16/us/politics/jordan-drone-attack-soldiers-iran.html
+
 **Possible, but Not Looking Good**\
 `Kathy Lowden makes a few changes.`\
 https://nytimes.com/2024/12/16/crosswords/daily-puzzle-2024-12-17.html
