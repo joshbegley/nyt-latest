@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6000247/2024/12/17/vermont-ncaa-mens-soccer-champio
 `The Raiders moved closer to the No. 1 pick in the 2025 NFL Draft over the New York Giants.`\
 https://nytimes.com/athletic/5999454/2024/12/17/falcons-raiders-mnf-doubleheader-score-result-takeaways/
 
+**The state of scouting: Data culture clash, job cuts and an uncertain future**\
+`The Athletic has canvassed the views of 40 scouts from across the Premier League and EFL to test the temperature of the industry`\
+https://nytimes.com/athletic/5998007/2024/12/17/premier-league-scouts-data-future/
+
 **Tuesday Briefing**\
 `Germany’s political turmoil.`\
 https://nytimes.com/2024/12/17/briefing/germany-confidence-vote-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5998134/2024/12/17/week-16-fantasy-football-waiver-
 **Quote of the Day: Democrats Aim to Foil a Constitutional Rewrite**\
 `Quotation of the Day for Tuesday, December 17, 2024.`\
 https://nytimes.com/2024/12/16/pageoneplus/quote-of-the-day-democrats-aim-to-foil-a-constitutional-rewrite.html
-
-**Vikings beat Bears 30-12 for 7th straight win, tie Lions atop NFC North: Takeaways**\
-`Sam Darnold was not at his best, but Minnesota rode its ground game to victory and pulled even with Detroit at 12-2.`\
-https://nytimes.com/athletic/5999398/2024/12/16/vikings-bears-mnf-doubleheader-score-result-takeaways/
 
