@@ -1,3 +1,11 @@
+**Harris Sees Optimism for the Future in a Speech to Younger Voters**\
+`In her speech at a community college in Maryland, the vice president displayed a pugnacious resolve.`\
+https://nytimes.com/2024/12/17/us/politics/harris-speech-future.html
+
+**You Can’t Mess Up This Holiday Roast**\
+`Want to impress with a glistening, delicious centerpiece this holiday season? This miso-marinated pork will stay juicy no matter what.`\
+https://nytimes.com/2024/12/17/dining/holiday-roast-pork.html
+
 **A New Richard Foreman Play Puts a Twist on His Metaphysical Puzzles**\
 `New York theater’s elder statesman of the avant-garde brings “Suppose Beautiful Madeline Harvey” to the stage, hist first new work in over a decade.`\
 https://nytimes.com/2024/12/17/theater/richard-foreman-suppose-beautiful-madeline-harvey.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6001130/2024/12/17/cowboys-today-jerry-jones-raccoo
 **‘Black Doves’ Is a Fun, Festive Spy Thriller**\
 `From the creator of “Giri/Haji” comes an international-intrigue drama full of smarts, thrills and great performances by Keira Knightley and Ben Whishaw.`\
 https://nytimes.com/2024/12/17/arts/television/black-doves-netflix.html
-
-**PG&E Secures $15 Billion Loan From U.S. Energy Department**\
-`The loan, the biggest-ever commitment from the Loan Programs Office, is intended to fund the California utility’s grid and climate resiliency projects.`\
-https://nytimes.com/2024/12/17/business/energy-environment/pge-loan-energy-department.html
-
-**Scoop City: The Lions dream season, injury-plagued**\
-`A quick look at the injuries devastating Detroit, the fallout from De'Vondre Campbell's early exit, conflict in Philly.`\
-https://nytimes.com/athletic/6001198/2024/12/17/lions-injury-update-nfl-devondre-campbell-49ers-scoop-city/
 
