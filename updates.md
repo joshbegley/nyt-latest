@@ -1,3 +1,11 @@
+**Luis Castillo to Red Sox? Suggesting trades, signings to bolster 6 would-be contenders**\
+`The Reds trade for Luis Robert Jr.? The Braves sign Jack Flaherty? Jim Bowden suggests moves to fill key needs for six would-be contenders. `\
+https://nytimes.com/athletic/6000512/2024/12/17/mlb-trades-signings-offseason-scenarios/
+
+**What I'm hearing about the Lakers' plans this trade season**\
+`Is Los Angeles likely to make a move? Who are realistic trade targets?`\
+https://nytimes.com/athletic/5995808/2024/12/17/lakers-trade-season-primer-nba/
+
 **The Athletic FC: Mudryk tests positive for banned substance, will Olmo leave Barca for free?**\
 `Today in TAFC: Mudryk tests positive for banned substance, Wolves a step closer to a new coach, will Olmo leave Barcelona next month?`\
 https://nytimes.com/athletic/6000674/2024/12/17/mudryk-drug-test-olmo-barcelona-free/
