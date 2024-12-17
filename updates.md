@@ -1,3 +1,7 @@
+**What Kennedy Has Said About the Polio Vaccine in Recent Years**\
+`President-elect Donald Trump’s choice for health secretary has suggested that the polio vaccine cost more lives than it saved and that the vaccine did not wipe out the disease in the U.S.`\
+https://nytimes.com/2024/12/17/health/robert-f-kennedy-jr-polio-vaccines.html
+
 **Harris Sees Optimism for the Future in a Speech to Younger Voters**\
 `In her speech at a community college in Maryland, the vice president displayed a pugnacious resolve.`\
 https://nytimes.com/2024/12/17/us/politics/harris-speech-future.html
