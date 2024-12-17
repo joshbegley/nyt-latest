@@ -1,3 +1,11 @@
+**Why Optimism for a Cease-Fire in Gaza Is Rising**\
+`The pace of peace talks has picked up, pushed by multiple factors, including wars in Lebanon and Syria that have seriously weakened Hamas’s allies, and election victory of Donald J. Trump.`\
+https://nytimes.com/2024/12/17/world/middleeast/gaza-israel-hamas-cease-fire.html
+
+**Wayward Fare Explores the Deep Mediterranean Pantry**\
+`F&F gets a more formal extension for pizza and more, Entre Nous offers 3,500 bottles of wine and more restaurant news.`\
+https://nytimes.com/2024/12/17/dining/nyc-restaurant-news.html
+
 **Elon Musk Met With Nigel Farage at Mar-a-Lago**\
 `The British politician shared an image on social media that showed him at Donald Trump’s Florida resort with the tech billionaire.`\
 https://nytimes.com/2024/12/17/us/politics/elon-musk-nigel-farage.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6001560/2024/12/17/chiefs-patrick-mahomes-ankle-inj
 **Ocasio-Cortez Loses Vote to Be the Top Democrat on Oversight Panel**\
 `The New York progressive’s defeat was a counterpoint to generational change in the Democratic ranks, as House members chose younger members for top posts on other committees.`\
 https://nytimes.com/2024/12/17/us/politics/ocasio-cortez-oversight-connolly.html
-
-**The protective supplies your trading card collection can't be without**\
-`Protecting your trading cards means knowing what supplies are best for your collection. `\
-https://nytimes.com/athletic/6001114/2024/12/17/best-sports-trading-card-supplies/
-
-**Super Bowl odds: A new tier emerges without the Chiefs**\
-`The Lions, Bills and Eagles form a top tier in odds to win the Super Bowl with the Chiefs out of the top two for the first time this season.`\
-https://nytimes.com/athletic/6001172/2024/12/17/super-bowl-odds-week-16-eagles-bills-lions/
 

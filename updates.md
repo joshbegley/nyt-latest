@@ -1,3 +1,11 @@
+**Why Optimism for a Cease-Fire in Gaza Is Rising**\
+`The pace of peace talks has picked up, pushed by multiple factors, including wars in Lebanon and Syria that have seriously weakened Hamas’s allies, and election victory of Donald J. Trump.`\
+https://nytimes.com/2024/12/17/world/middleeast/gaza-israel-hamas-cease-fire.html
+
+**Wayward Fare Explores the Deep Mediterranean Pantry**\
+`F&F gets a more formal extension for pizza and more, Entre Nous offers 3,500 bottles of wine and more restaurant news.`\
+https://nytimes.com/2024/12/17/dining/nyc-restaurant-news.html
+
 **Elon Musk Met With Nigel Farage at Mar-a-Lago**\
 `The British politician shared an image on social media that showed him at Donald Trump’s Florida resort with the tech billionaire.`\
 https://nytimes.com/2024/12/17/us/politics/elon-musk-nigel-farage.html
