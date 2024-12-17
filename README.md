@@ -1,3 +1,15 @@
+**‘Black Doves’ Is a Fun, Festive Spy Thriller**\
+`From the creator of “Giri/Haji” comes an international-intrigue drama full of smarts, thrills and great performances by Keira Knightley and Ben Whishaw.`\
+https://nytimes.com/2024/12/17/arts/television/black-doves-netflix.html
+
+**PG&E Secures $15 Billion Loan From U.S. Energy Department**\
+`The loan, the biggest-ever commitment from the Loan Programs Office, is intended to fund the California utility’s grid and climate resiliency projects.`\
+https://nytimes.com/2024/12/17/business/energy-environment/pge-loan-energy-department.html
+
+**Scoop City: The Lions dream season, injury-plagued**\
+`A quick look at the injuries devastating Detroit, the fallout from De'Vondre Campbell's early exit, conflict in Philly.`\
+https://nytimes.com/athletic/6001198/2024/12/17/lions-injury-update-nfl-devondre-campbell-49ers-scoop-city/
+
 **Tech Makes an Economic Case for Skilled Immigrants. Will Trump Bite?**\
 `Silicon Valley hopes that tech giants like Elon Musk could help to push the incoming Trump administration toward offering more visas to highly skilled foreign workers.`\
 https://nytimes.com/2024/12/17/business/economy/trump-tech-h1b-visa.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/17/arts/music/paul-de-jong-the-books-found-sound.htm
 **Simply Having a Wonderful Weeknight Dinner**\
 `Recipes that live at the intersection of easy and fancy: salmon with salsa verde; chicken all’arrabbiata; BBQ pepper shrimp.`\
 https://nytimes.com/2024/12/17/dining/simply-having-a-wonderful-weeknight-dinner.html
-
-**Netanyahu Travels to Israeli-Controlled Syria, His Office Says**\
-`The previously unannounced trip highlighted Israel’s military presence across the de facto border with Syria. Israeli forces have seized more Syrian territory since the fall of Bashar al-Assad.`\
-https://nytimes.com/2024/12/17/world/middleeast/17syria-israel-netanyahu.html
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2024/12/17/opinion/thepoint
-
-**Robert F. Kennedy Jr., Trump’s Pick for Health Secretary, to Meet With More Republican Senators**\
-`This week, he is expected to meet with over 20 senators, many of them receptive to his case to run the Health and Human Services Department.`\
-https://nytimes.com/2024/12/17/us/politics/rfk-jr-senator-meetings-capitol-hill.html
 
