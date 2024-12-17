@@ -1,3 +1,7 @@
+**Wisconsin lands former Maryland QB Billy Edwards Jr. as remade room takes shape**\
+`Edwards, a former Maryland quarterback, helps solve the Badgers’ need for a veteran to step in and potentially start next season.`\
+https://nytimes.com/athletic/6000012/2024/12/16/wisconsin-billy-edwards-maryland-transfer/
+
 **Sirens, Then an Excruciating Wait for School Families**\
 `It would be hours before any details emerged about Monday’s shooting at Abundant Life Christian School, including that the shooter was a student at the school.`\
 https://nytimes.com/2024/12/16/us/abundant-life-christian-school-shooting.html

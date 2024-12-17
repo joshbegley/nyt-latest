@@ -1,3 +1,7 @@
+**Wisconsin lands former Maryland QB Billy Edwards Jr. as remade room takes shape**\
+`Edwards, a former Maryland quarterback, helps solve the Badgers’ need for a veteran to step in and potentially start next season.`\
+https://nytimes.com/athletic/6000012/2024/12/16/wisconsin-billy-edwards-maryland-transfer/
+
 **Sirens, Then an Excruciating Wait for School Families**\
 `It would be hours before any details emerged about Monday’s shooting at Abundant Life Christian School, including that the shooter was a student at the school.`\
 https://nytimes.com/2024/12/16/us/abundant-life-christian-school-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5998848/2024/12/16/desmond-ridder-raiders-starting-
 **Seahawks optimistic Geno Smith will be ready to face Vikings**\
 `Smith was 15-of-19 passing for 149 yards with no touchdowns and one interception before exiting.`\
 https://nytimes.com/athletic/5997104/2024/12/16/geno-smith-injury-seahawks-snf/
-
-**The Great Capitulation**\
-`Powerful Americans have lost the will to resist Trump.`\
-https://nytimes.com/2024/12/16/opinion/trump-tech-leaders-support.html
 
