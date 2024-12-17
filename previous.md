@@ -1,3 +1,11 @@
+**Tech Makes an Economic Case for Skilled Immigrants. Will Trump Bite?**\
+`Silicon Valley hopes that tech giants like Elon Musk could help to push the incoming Trump administration toward offering more visas to highly skilled foreign workers.`\
+https://nytimes.com/2024/12/17/business/economy/trump-tech-h1b-visa.html
+
+**As the AI race continues, open source models offer a path for all, not just the few.**\
+`Innovators like Dr. Kal Clark are seeking collaborative solutions to age-old problems. In open source AI, they believe they’ve found their answer. `\
+https://nytimes.com/paidpost/2024-meta-ai/2024-meta-ai/opensource-ai-innovation.html
+
 **Arlene Croce, Dance Critic With a Biting Wit, Dies at 90**\
 `Writing for The New Yorker, she was both admired and feared, wielding a sometimes merciless pen. Her study of Fred Astaire and Ginger Rogers drew accolades.`\
 https://nytimes.com/2024/12/17/arts/dance/arlene-croce-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/17/opinion/thepoint
 **Robert F. Kennedy Jr., Trump’s Pick for Health Secretary, to Meet With More Republican Senators**\
 `This week, he is expected to meet with over 20 senators, many of them receptive to his case to run the Health and Human Services Department.`\
 https://nytimes.com/2024/12/17/us/politics/rfk-jr-senator-meetings-capitol-hill.html
-
-**Gilgo Beach Defendant Rex Heuermann Is Charged in a Seventh Killing**\
-`The man whom authorities call a serial killer was charged with second-degree murder in the case of Valerie Mack, who disappeared in 2000.`\
-https://nytimes.com/2024/12/17/nyregion/rex-heuermann-gilgo-beach-valerie-mack.html
-
-**Belichick lands first transfer commitment at UNC from Holy Cross**\
-`Belichick said Monday that UNC has players "coming in pretty much every day this week" as he assembles his roster for 2025.`\
-https://nytimes.com/athletic/6000960/2024/12/17/bill-belichick-unc-transfer-portal-christo-kelly/
 

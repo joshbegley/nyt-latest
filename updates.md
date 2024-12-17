@@ -1,3 +1,11 @@
+**Tech Makes an Economic Case for Skilled Immigrants. Will Trump Bite?**\
+`Silicon Valley hopes that tech giants like Elon Musk could help to push the incoming Trump administration toward offering more visas to highly skilled foreign workers.`\
+https://nytimes.com/2024/12/17/business/economy/trump-tech-h1b-visa.html
+
+**As the AI race continues, open source models offer a path for all, not just the few.**\
+`Innovators like Dr. Kal Clark are seeking collaborative solutions to age-old problems. In open source AI, they believe they’ve found their answer. `\
+https://nytimes.com/paidpost/2024-meta-ai/2024-meta-ai/opensource-ai-innovation.html
+
 **Arlene Croce, Dance Critic With a Biting Wit, Dies at 90**\
 `Writing for The New Yorker, she was both admired and feared, wielding a sometimes merciless pen. Her study of Fred Astaire and Ginger Rogers drew accolades.`\
 https://nytimes.com/2024/12/17/arts/dance/arlene-croce-dead.html
