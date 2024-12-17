@@ -1,3 +1,7 @@
+**Honda and Nissan Are in Talks to Deepen Ties and Possibly Merge**\
+`The automakers, Japan’s second and third largest, are said to be discussing a tie-up that could reshape the country’s industry.`\
+https://nytimes.com/2024/12/17/business/honda-nissan-talks-merger.html
+
 **Done With Never Trump**\
 `There’s plenty to dislike and fear about Trump, but Never Trumpers overstated our case, defeating our purpose.`\
 https://nytimes.com/2024/12/17/opinion/never-trump-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/travel/airlines-wheelchairs-mobility-scooters.htm
 **Former NFL QB Michael Vick to become head coach at Norfolk State: Sources**\
 `Vick, 44, lacks major coaching experience but told The Virginian-Pilot, “I know how to lead and I know what it takes.” `\
 https://nytimes.com/athletic/6002201/2024/12/17/michael-vick-hired-norfolk-state/
-
-**Disney Pulls Transgender Story Line From New Series**\
-`The animated “Win or Lose” follows a middle school softball team, and each episode is told from the perspective of a different character.`\
-https://nytimes.com/2024/12/17/business/media/disney-pixar-win-or-lose.html
 
