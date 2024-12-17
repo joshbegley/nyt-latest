@@ -1,3 +1,7 @@
+**Monday Briefing: Ukraine says it killed a Russian General**\
+`Plus, the search for a van Gogh masterpiece.`\
+https://nytimes.com/2024/12/17/briefing/ukraine-russia-syria-gaza.html
+
 **‘Emilia Pérez’ Makes a Strong Showing on the Oscar Shortlists**\
 `The musical appears twice for best song, along with big names like Pharrell Williams and Elton John. “Wicked” is potentially up for best score.`\
 https://nytimes.com/2024/12/17/movies/wicked-oscars-shortlist-pharrell-williams-emilia-perez.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6001685/2024/12/17/nba-mini-tournament-format-2025-
 **Trump Sues The Des Moines Register, Escalating Threats Against the Media**\
 `President-elect Donald J. Trump has said he would use his power to punish people he claims have wronged him. Those goals are now coming into focus.`\
 https://nytimes.com/2024/12/17/us/politics/trump-sues-des-moines-register.html
-
-**Kaapo Kakko expresses frustration with benching in another dramatic Rangers day: 'I have not been the worst'**\
-`Also Tuesday, asked directly if he's concerned about his job security, coach Peter Laviolette said, "Those are things I can't control."`\
-https://nytimes.com/athletic/6001651/2024/12/17/rangers-kaapo-kakko-benching-frustration/
 
