@@ -1,3 +1,7 @@
+**A New Richard Foreman Play Puts a Twist on His Metaphysical Puzzles**\
+`New York theater’s elder statesman of the avant-garde brings “Suppose Beautiful Madeline Harvey” to the stage, hist first new work in over a decade.`\
+https://nytimes.com/2024/12/17/theater/richard-foreman-suppose-beautiful-madeline-harvey.html
+
 **Worthwhile Canadian Resignation**\
 `Chrystia Freeland’s departure raises questions about how sharply Trudeau will counter Trump.`\
 https://nytimes.com/2024/12/17/opinion/canada-trudeau-freeland-resignation.html

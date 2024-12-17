@@ -1,3 +1,7 @@
+**A New Richard Foreman Play Puts a Twist on His Metaphysical Puzzles**\
+`New York theater’s elder statesman of the avant-garde brings “Suppose Beautiful Madeline Harvey” to the stage, hist first new work in over a decade.`\
+https://nytimes.com/2024/12/17/theater/richard-foreman-suppose-beautiful-madeline-harvey.html
+
 **Pre-emptive Pardons, Wanted or Not**\
 `Responses to a guest essay by Sarah Isgur, who is on Kash Patel’s enemies list. Also: A strategy intended to prevent suicides; a renewal of hope.`\
 https://nytimes.com/2024/12/17/opinion/trump-biden-kash-patel-pardons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/business/energy-environment/pge-loan-energy-depar
 **Scoop City: The Lions dream season, injury-plagued**\
 `A quick look at the injuries devastating Detroit, the fallout from De'Vondre Campbell's early exit, conflict in Philly.`\
 https://nytimes.com/athletic/6001198/2024/12/17/lions-injury-update-nfl-devondre-campbell-49ers-scoop-city/
-
-**Tech Makes an Economic Case for Skilled Immigrants. Will Trump Bite?**\
-`Silicon Valley hopes that tech giants like Elon Musk could help to push the incoming Trump administration toward offering more visas to highly skilled foreign workers.`\
-https://nytimes.com/2024/12/17/business/economy/trump-tech-h1b-visa.html
 
