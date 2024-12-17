@@ -12,7 +12,7 @@ https://nytimes.com/2024/12/17/technology/elon-musk-spacex-national-security-rep
 
 **Tech Entrepreneur Convicted of Second-Degree Murder in Death of Cash App Founder**\
 `Nima Momeni, 40, was convicted by a San Francisco jury in the fatal stabbing of Bob Lee, a well-known tech executive.`\
-https://nytimes.com/2024/12/17/us/bob-lee-killing-momeni.html
+https://nytimes.com/2024/12/17/us/nima-momeni-verdict-bob-lee-killing.html
 
 **Harris Urges Young People to ‘Stay in the Fight’**\
 `In her first major speech since conceding defeat, Vice President Kamala Harris expressed optimism for the nation’s future to young voters.`\
