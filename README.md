@@ -1,3 +1,7 @@
+**'He's special, man': Packers rookie Edgerrin Cooper looks like a star in the making**\
+`Cooper, the 2024 second-round pick, had the best game of his young career against the Seahawks on Sunday night.`\
+https://nytimes.com/athletic/6000048/2024/12/17/packers-rookie-edgerrin-cooper/
+
 **Syria Unearths Years of Atrocities**\
 `After the fall of Bashar al-Assad’s regime, tens of thousands have been released from his brutal prisons. This is the story of one man who made it out.`\
 https://nytimes.com/2024/12/17/podcasts/the-daily/syria-prisons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989627/2024/12/17/bucks-giannis-antetokounmpo-one-
 **Howe rules out Miley January loan: 'He’s too important to lose'**\
 `Eddie Howe will not allow Lewis Miley to leave Newcastle United on loan in January, saying the England Under-21 international “is too important for us” to lose.`\
 https://nytimes.com/athletic/6000518/2024/12/17/lewis-miley-loan-newcastle-howe/
-
-**Slot hints at creative Liverpool backline amid defensive absences**\
-`Arne Slot says he could use a combination of academy players and creativity to solve Liverpool’s lack of defensive options ahead of the Carabao Cup quarter-final tie against Southampton.`\
-https://nytimes.com/athletic/6000527/2024/12/17/liverpool-team-news-southampton-slot/
 
