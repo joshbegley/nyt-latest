@@ -34,7 +34,7 @@ https://nytimes.com/2024/12/17/world/europe/mayotte-cyclone-chido-curfew-deaths.
 `Mykhailo Mudryk failed a drugs test, but his entire time at Chelsea has been difficult`\
 https://nytimes.com/athletic/5999033/2024/12/17/mykhailo-mudryk-chelsea-doping-test-analysis/
 
-**Pereira travels to UK after agreeing Wolves deal**\
-`Vitor Pereira has travelled to the UK today to take over as Wolverhampton Wanderers head coach after agreeing a one-and-a-half-year deal.`\
-https://nytimes.com/athletic/6000599/2024/12/17/vitor-pereira-wolves-deal/
+**The Athletic FC: Mudryk tests positive for banned substance, will Olmo leave Barca for free?**\
+`Today in TAFC: Mudryk tests positive for banned substance, Wolves a step closer to a new coach, will Olmo leave Barcelona next month?`\
+https://nytimes.com/athletic/6000674/2024/12/17/mudryk-drug-test-olmo-barcelona-free/
 
