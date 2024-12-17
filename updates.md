@@ -1,3 +1,11 @@
+**She Wrote the Book on Preservation in New York**\
+`Barbaralee Diamonstein-Spielvogel has made it her life’s work to make sure that the city’s landmarks, and the contributions of its residents, are never forgotten.`\
+https://nytimes.com/2024/12/17/realestate/barbaralee-diamonstein-spielvogel-landmarks.html
+
+**Ukraine Said It Assassinated a Russian General in Moscow**\
+`Also, Elon Musk and SpaceX face national security reviews. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/12/17/briefing/ukraine-moscow-elon-musk-van-gogh.html
+
 **How Chiefs QB Patrick Mahomes is pushing to play through sprained ankle this week**\
 `Mahomes is testing his ankle in practice this week. If he can't go, backup Carson Wentz will get those reps.`\
 https://nytimes.com/athletic/6001560/2024/12/17/chiefs-patrick-mahomes-ankle-injury-texans/
