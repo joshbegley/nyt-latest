@@ -1,3 +1,7 @@
+**Florida Man Is Sentenced to Death for Killing 5 Women in a Bank in 2019**\
+`The man, Zephen Xaver, 27, will have his case automatically appealed to the Florida Supreme Court.`\
+https://nytimes.com/2024/12/16/us/florida-man-sentenced-bank-killing.html
+
 **NPB's Tomoyuki Sugano, Orioles in agreement on 1-year deal: Source**\
 `Suagno is one of the most accomplished NPB pitchers of his generation. `\
 https://nytimes.com/athletic/5999952/2024/12/16/tomoyuki-sugano-baltimore-orioles-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/opinion/trump-tech-leaders-support.html
 **This Is the Secret to the Perfect Baked Potato**\
 `A simple trick yields crisp outsides and fluffy insides, ready to be topped in three smart, exciting ways from Eric Kim.`\
 https://nytimes.com/2024/12/16/dining/how-to-make-baked-potatoes.html
-
-**Chiefs release RB Clyde Edwards-Helaire after 5 seasons with team**\
-`He has not appeared in a game after starting this season on the non-football illness list, stemming from his battle with PTSD.`\
-https://nytimes.com/athletic/5999555/2024/12/16/chiefs-release-clyde-edwards-helaire-nfl-news/
 
