@@ -1,3 +1,7 @@
+**The Trump Factor Further Shakes Up Canada’s Politics**\
+`The president-elect’s threat to impose major tariffs on Canadian goods and other pointed comments have tapped into a treacherous moment in domestic politics.`\
+https://nytimes.com/2024/12/17/world/canada/canada-trudeau-trump.html
+
 **She Wrote the Book on Preservation in New York**\
 `Barbaralee Diamonstein-Spielvogel has made it her life’s work to make sure that the city’s landmarks, and the contributions of its residents, are never forgotten.`\
 https://nytimes.com/2024/12/17/realestate/barbaralee-diamonstein-spielvogel-landmarks.html

@@ -1,3 +1,7 @@
+**The Trump Factor Further Shakes Up Canada’s Politics**\
+`The president-elect’s threat to impose major tariffs on Canadian goods and other pointed comments have tapped into a treacherous moment in domestic politics.`\
+https://nytimes.com/2024/12/17/world/canada/canada-trudeau-trump.html
+
 **She Wrote the Book on Preservation in New York**\
 `Barbaralee Diamonstein-Spielvogel has made it her life’s work to make sure that the city’s landmarks, and the contributions of its residents, are never forgotten.`\
 https://nytimes.com/2024/12/17/realestate/barbaralee-diamonstein-spielvogel-landmarks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/world/middleeast/syria-sanctions-aid-limits.html
 **Trump Accuses Juror of Misconduct in Latest Move to Overturn Conviction**\
 `The president-elect’s latest attempt to overturn his Manhattan conviction was rebuffed by the judge overseeing the case, who called it “mere hearsay and conjecture.”`\
 https://nytimes.com/2024/12/17/nyregion/trump-juror-misconduct.html
-
-**MLB report on the arm injury epidemic finds a multilayered problem with few easy fixes**\
-`The study identifies an injury pipeline that impacts every level of baseball, from amateurs to major leaguers, with no signs of slowing.`\
-https://nytimes.com/athletic/6001969/2024/12/17/mlb-report-arm-injury-epidemic/
 
