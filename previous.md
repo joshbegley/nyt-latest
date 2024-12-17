@@ -10,6 +10,10 @@ https://nytimes.com/2024/12/17/opinion/us-china-musk-swift-tariffs-manufacturing
 `David Bowie loved its couscous. Norman Reedus hung out there. It put avocado toast on the map. Thirty years later, and with a new book honoring it, Cafe Gitane is drawing a fresh crowd.`\
 https://nytimes.com/2024/12/17/style/cafe-gitane-mcnally-editions-scene.html
 
+**Pinellas County votes to approve funding for new Rays stadium, now up to team to move forward**\
+`Said commissioner René Flowers shortly before the vote: “All eyes will now be watching if the Rays uphold their part of the deal.”`\
+https://nytimes.com/athletic/6002266/2024/12/17/new-rays-stadium-county-vote-approval/
+
 **Sherrod Brown Signs Off in the Senate. For Now.**\
 `Ohio’s senior Democratic senator told colleagues that despite his defeat, he was not done with politics just yet.`\
 https://nytimes.com/2024/12/17/us/sherrod-brown-senate-career.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6002201/2024/12/17/michael-vick-hired-norfolk-state
 **Disney Pulls Transgender Story Line From New Series**\
 `The animated “Win or Lose” follows a middle school softball team, and each episode is told from the perspective of a different character.`\
 https://nytimes.com/2024/12/17/business/media/disney-pixar-win-or-lose.html
-
-**China Lengthens Visa-Free Stays for Tourists**\
-`In its efforts to attract visitors, the country extended stays from less than a week to up to 10 days for visitors between destinations.`\
-https://nytimes.com/2024/12/17/world/asia/china-visa-free-transit-policy.html
 

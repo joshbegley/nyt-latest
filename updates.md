@@ -1,3 +1,7 @@
+**Pinellas County votes to approve funding for new Rays stadium, now up to team to move forward**\
+`Said commissioner René Flowers shortly before the vote: “All eyes will now be watching if the Rays uphold their part of the deal.”`\
+https://nytimes.com/athletic/6002266/2024/12/17/new-rays-stadium-county-vote-approval/
+
 **Done With Never Trump**\
 `There’s plenty to dislike and fear about Trump, but Never Trumpers overstated our case, defeating our purpose.`\
 https://nytimes.com/2024/12/17/opinion/never-trump-republicans.html
