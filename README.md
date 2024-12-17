@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6001172/2024/12/17/super-bowl-odds-week-16-eagles-b
 https://nytimes.com/2024/12/17/us/politics/richard-w-murphy-dead.html
 
 **Commanders-Falcons flexed to 'Sunday Night Football' in Week 17**\
-`The NBC telecast will kickoff at 8:20 p.m. ET from Northwest Stadium in Landover, Md.`\
+`The NBC telecast will kick off at 8:20 p.m. ET from Northwest Stadium in Landover, Md.`\
 https://nytimes.com/athletic/6001471/2024/12/17/commanders-falcons-week-17-flex/
 
 **Elon Musk and SpaceX Face Federal Reviews After Violations of Security Reporting Rules**\
