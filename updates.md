@@ -1,3 +1,7 @@
+**Inside Russell Martin's Southampton downfall - and the reluctant decision to sack him**\
+`Southampton did not want to have to make the call to part ways with their manager but in the end they had little choice`\
+https://nytimes.com/athletic/6000531/2024/12/17/russell-martin-inside-southampton-sacking/
+
 **'Howdy!' A journey down the inked arms — and into the lively mind — of George Kittle**\
 `Kittle, a 'Lord of the Rings' devotee, sees life and an NFL season through that lens. On Thursday, he was channeling his inner Sauron.`\
 https://nytimes.com/athletic/5998550/2024/12/17/george-kittle-49ers-tattoos-mind/
