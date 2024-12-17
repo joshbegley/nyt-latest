@@ -1,3 +1,11 @@
+**7.3-Magnitude Earthquake Near Vanuatu Triggers Tsunami Alert**\
+`Forecasters said tsunami waves hitting the coastline of the Pacific Island nation could reach up to a meter, or 3.2 feet, above the tide level.`\
+https://nytimes.com/2024/12/16/world/asia/vanuatu-earthquake-tsunami.html
+
+**Corrections: Dec. 17, 2024**\
+`Corrections that appeared in print on Tuesday, Dec. 17, 2024.`\
+https://nytimes.com/2024/12/16/pageoneplus/corrections-dec-17-2024.html
+
 **Map: 7.3-Magnitude Earthquake Strikes Near Vanuatu**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/12/16/world/vanuatu-quake-tracker.html
