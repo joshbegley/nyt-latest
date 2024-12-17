@@ -1,3 +1,11 @@
+**NFL Week 15 best and worst coaching decisions: Bills' Joe Brady's great plan vs. Lions**\
+`Also, Liam Coen's Buccaneers offense had no trouble against the Chargers, and DeMeco Ryans' Texans took away a Dolphins strength.`\
+https://nytimes.com/athletic/5997325/2024/12/17/nfl-week-15-worst-best-coaching-decisions-nguyen/
+
+**How to Repair the Planet? One Answer Might Be Hiding in Plain Sight.**\
+`We tend to look at environmental problems in isolation. A holistic approach would be more effective, a new report says.`\
+https://nytimes.com/2024/12/17/climate/biodiversity-climate-change-interconnections.html
+
 **Bracing for a Fed Pullback**\
 `Wall Street sees the central bank cutting interest rates on Wednesday. But growing worries about inflation are adding to investor uncertainty about its policy agenda for 2025.`\
 https://nytimes.com/2024/12/17/business/fed-pullback-rates-inflation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6000531/2024/12/17/russell-martin-inside-southampto
 **The Unintended Consequences of Tariffs**\
 `The biggest benefits often emerge outside the countries engaged in a trade war.`\
 https://nytimes.com/2024/12/17/briefing/vietnam-china-us-trade-war.html
-
-**What I'm hearing about the Lakers' plans this trade season**\
-`Is Los Angeles likely to make a move? Who are realistic trade targets?`\
-https://nytimes.com/athletic/5995808/2024/12/17/lakers-trade-season-primer-nba/
-
-**Marshon Lattimore's target-free Commanders debut spoke volumes about his impact**\
-`"I just tried to stay calm and get the job done. I did what they needed me to do," Lattimore said following his Washington debut. `\
-https://nytimes.com/athletic/5999743/2024/12/17/marshon-lattimore-debut-commanders-saints/
 
