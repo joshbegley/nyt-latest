@@ -1,3 +1,11 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/12/17/opinion/thepoint
+
+**Robert F. Kennedy Jr., Trump’s Pick for Health Secretary, to Meet With More Republican Senators**\
+`This week, he is expected to meet with over 20 senators, many of them receptive to his case to run the Health and Human Services Department.`\
+https://nytimes.com/2024/12/17/us/politics/rfk-jr-senator-meetings-capitol-hill.html
+
 **Gilgo Beach Defendant Rex Heuermann Is Charged in a Seventh Killing**\
 `The man whom authorities call a serial killer was charged with second-degree murder in the case of Valerie Mack, who disappeared in 2000.`\
 https://nytimes.com/2024/12/17/nyregion/rex-heuermann-gilgo-beach-valerie-mack.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/world/europe/denmark-anti-whaling-activist-no-ext
 **An Exciting F1 Season That Had No Dominant Player**\
 `Max Verstappen won the title again, but it was a fight, as was the team championship, taken by McLaren at the last race.`\
 https://nytimes.com/2024/12/17/sports/autoracing/f1-season-champions.html
-
-**For Aston Martin, a Fifth-Place Finish Again**\
-`Its season began with so much promise, but the team was unable to keep up with the leaders.`\
-https://nytimes.com/2024/12/17/sports/autoracing/f1-aston-martin-season.html
-
-**There Are 24 Tracks in F1. Drivers Have Their Favorites.**\
-`From street circuits like Monaco to challenging courses like Suzuka International, some tracks stand out.`\
-https://nytimes.com/2024/12/17/sports/autoracing/f1-tracks-circuits-best.html
 
