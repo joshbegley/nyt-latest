@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5997325/2024/12/17/nfl-week-15-worst-best-coaching-
 `We tend to look at environmental problems in isolation. A holistic approach would be more effective, a new report says.`\
 https://nytimes.com/2024/12/17/climate/biodiversity-climate-change-interconnections.html
 
+**Golf fans survey: Tell us what you think about the PGA Tour, LIV and more**\
+`The Athletic would like to lean more about our readers, their interests in golf.`\
+https://nytimes.com/athletic/5999334/2024/12/17/golf-fans-survey-pga-tour-liv/
+
 **Bracing for a Fed Pullback**\
 `Wall Street sees the central bank cutting interest rates on Wednesday. But growing worries about inflation are adding to investor uncertainty about its policy agenda for 2025.`\
 https://nytimes.com/2024/12/17/business/fed-pullback-rates-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/movies/tricia-tuttle-berlin-film-festival.html
 **Luis Castillo to Red Sox? Suggesting trades, signings to bolster 6 would-be contenders**\
 `The Reds trade for Luis Robert Jr.? The Braves sign Jack Flaherty? Jim Bowden suggests moves to fill key needs for six would-be contenders. `\
 https://nytimes.com/athletic/6000512/2024/12/17/mlb-trades-signings-offseason-scenarios/
-
-**European Super League relaunches as 'Unify League': What's different - and will it work?**\
-`The company behind the controversial European Super League idea has tweaked its proposal once more, completely scrapping the original closed-shop format, in a bid to make it more attractive to clubs and fans.`\
-https://nytimes.com/athletic/6000667/2024/12/17/european-super-league-unify-a22/
 
