@@ -1,3 +1,7 @@
+**Possible, but Not Looking Good**\
+`Kathy Lowden makes a few changes.`\
+https://nytimes.com/2024/12/16/crosswords/daily-puzzle-2024-12-17.html
+
 **7.3-Magnitude Earthquake Near Vanuatu Triggers Tsunami Alert**\
 `Forecasters said tsunami waves hitting the coastline of the Pacific Island nation could reach up to a meter, or 3.2 feet, above the tide level.`\
 https://nytimes.com/2024/12/16/world/asia/vanuatu-earthquake-tsunami.html
