@@ -1,3 +1,15 @@
+**An Exciting F1 Season That Had No Dominant Player**\
+`Max Verstappen won the title again, but it was a fight, as was the team championship, taken by McLaren at the last race.`\
+https://nytimes.com/2024/12/17/sports/autoracing/f1-season-champions.html
+
+**For Aston Martin, a Fifth-Place Finish Again**\
+`Its season began with so much promise, but the team was unable to keep up with the leaders.`\
+https://nytimes.com/2024/12/17/sports/autoracing/f1-aston-martin-season.html
+
+**There Are 24 Tracks in F1. Drivers Have Their Favorites.**\
+`From street circuits like Monaco to challenging courses like Suzuka International, some tracks stand out.`\
+https://nytimes.com/2024/12/17/sports/autoracing/f1-tracks-circuits-best.html
+
 **Bomb Kills Russian Military General in Moscow**\
 `Gen. Igor Kirillov was responsible for Russia’s radioactive, chemical and biological defense forces. A Ukrainian official said Kyiv was behind his assassination.`\
 https://nytimes.com/video/world/europe/100000009881928/bomb-kills-russian-military-general-in-moscow.html

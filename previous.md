@@ -1,3 +1,15 @@
+**An Exciting F1 Season That Had No Dominant Player**\
+`Max Verstappen won the title again, but it was a fight, as was the team championship, taken by McLaren at the last race.`\
+https://nytimes.com/2024/12/17/sports/autoracing/f1-season-champions.html
+
+**For Aston Martin, a Fifth-Place Finish Again**\
+`Its season began with so much promise, but the team was unable to keep up with the leaders.`\
+https://nytimes.com/2024/12/17/sports/autoracing/f1-aston-martin-season.html
+
+**There Are 24 Tracks in F1. Drivers Have Their Favorites.**\
+`From street circuits like Monaco to challenging courses like Suzuka International, some tracks stand out.`\
+https://nytimes.com/2024/12/17/sports/autoracing/f1-tracks-circuits-best.html
+
 **Bomb Kills Russian Military General in Moscow**\
 `Gen. Igor Kirillov was responsible for Russia’s radioactive, chemical and biological defense forces. A Ukrainian official said Kyiv was behind his assassination.`\
 https://nytimes.com/video/world/europe/100000009881928/bomb-kills-russian-military-general-in-moscow.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/17/us/trump-administration-news
 **NHL trade board 2.0: Rangers take center stage, plus new targets ahead of the holiday roster freeze**\
 `All eyes are on the Rangers as their tailspin continues, but the Predators, Sabres, Penguins, Red Wings and Islanders also need to reassess.`\
 https://nytimes.com/athletic/5999541/2024/12/17/nhl-trade-board-kreider-frederic-saad/
-
-**NFL Week 15 best and worst coaching decisions: Bills' Joe Brady's great plan vs. Lions**\
-`Also, Liam Coen's Buccaneers offense had no trouble against the Chargers, and DeMeco Ryans' Texans took away a Dolphins strength.`\
-https://nytimes.com/athletic/5997325/2024/12/17/nfl-week-15-worst-best-coaching-decisions-nguyen/
-
-**How to Repair the Planet? One Answer Might Be Hiding in Plain Sight.**\
-`We tend to look at environmental problems in isolation. A holistic approach would be more effective, a new report says.`\
-https://nytimes.com/2024/12/17/climate/biodiversity-climate-change-interconnections.html
-
-**Golf fans survey: Tell us what you think about the PGA Tour, LIV and more**\
-`The Athletic would like to lean more about our readers, their interests in golf.`\
-https://nytimes.com/athletic/5999334/2024/12/17/golf-fans-survey-pga-tour-liv/
 
