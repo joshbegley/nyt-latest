@@ -1,3 +1,15 @@
+**Why Does OpenAI Need So Much Money?**\
+`Building a chatbot like ChatGPT requires billions upon billions of dollars. That’s the driving force behind OpenAI’s plans to change how it’s managed.`\
+https://nytimes.com/2024/12/17/technology/openai-chatgpt-funding.html
+
+**How OpenAI Hopes to Sever Its Nonprofit Roots**\
+`As the maker of ChatGPT battles Google and Meta for A.I. supremacy, it’s also fighting to end control by a nonprofit board.`\
+https://nytimes.com/2024/12/17/technology/openai-nonprofit-control.html
+
+**Cowboys Today: Jerry Jones breaks down eating raccoons and squirrels, offseason plans**\
+`Jones has more good words for Mike McCarthy and discusses what the Cowboys' offseason could look like after re-signing Dak Prescott.`\
+https://nytimes.com/athletic/6001130/2024/12/17/cowboys-today-jerry-jones-raccoons-squirrels-micah-parsons/
+
 **‘Black Doves’ Is a Fun, Festive Spy Thriller**\
 `From the creator of “Giri/Haji” comes an international-intrigue drama full of smarts, thrills and great performances by Keira Knightley and Ben Whishaw.`\
 https://nytimes.com/2024/12/17/arts/television/black-doves-netflix.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/17/arts/dance/arlene-croce-dead.html
 **A Look Inside Huawei’s Phone Shows How China’s Chip Advance Has Stalled**\
 `An analysis of Huawei’s latest series of smartphones, the Mate 70, found chips that showed little progress from those used in last year’s devices.`\
 https://nytimes.com/2024/12/17/business/huawei-phone-chips-china.html
-
-**Ancelotti 'optimistic' Mbappe will be fit for Intercontinental Cup final**\
-`Carlo Ancelotti is &#8220;optimistic&#8221; Kylian Mbappe will be fit to feature for Real Madrid in the Intercontinental Cup final on Wednesday.`\
-https://nytimes.com/athletic/6001102/2024/12/17/kylian-mbappe-intercontinental-cup-final/
-
-**Old Voice Mails? Instructional VHS Tapes? They’re Music to His Ears.**\
-`Paul de Jong makes collaged songs out of obscurities he collects in his Mall of Found: a library of low-budget, homespun and dated pieces of spoken-word media.`\
-https://nytimes.com/2024/12/17/arts/music/paul-de-jong-the-books-found-sound.html
-
-**Simply Having a Wonderful Weeknight Dinner**\
-`Recipes that live at the intersection of easy and fancy: salmon with salsa verde; chicken all’arrabbiata; BBQ pepper shrimp.`\
-https://nytimes.com/2024/12/17/dining/simply-having-a-wonderful-weeknight-dinner.html
 
