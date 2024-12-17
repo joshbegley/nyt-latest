@@ -1,3 +1,7 @@
+**Paul Watson, Anti-Whaling Activist, Is Released After 5 Months in Prison**\
+`Mr. Watson was facing extradition to Japan but was released after Denmark decided to reject the extradition request, his lawyer said.`\
+https://nytimes.com/2024/12/17/world/europe/denmark-anti-whaling-activist-no-extradition.html
+
 **Syria’s Rebel Leader Vows to Disband Armed Factions**\
 `The leader of the rebel coalition that swept to power last week said that fighters would be brought under the defense ministry’s authority. It was not immediately clear how that would be achieved.`\
 https://nytimes.com/2024/12/17/world/middleeast/syria-government-al-shara.html

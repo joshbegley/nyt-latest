@@ -1,3 +1,7 @@
+**Paul Watson, Anti-Whaling Activist, Is Released After 5 Months in Prison**\
+`Mr. Watson was facing extradition to Japan but was released after Denmark decided to reject the extradition request, his lawyer said.`\
+https://nytimes.com/2024/12/17/world/europe/denmark-anti-whaling-activist-no-extradition.html
+
 **An Exciting F1 Season That Had No Dominant Player**\
 `Max Verstappen won the title again, but it was a fight, as was the team championship, taken by McLaren at the last race.`\
 https://nytimes.com/2024/12/17/sports/autoracing/f1-season-champions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/business/bluey-movie-disney-bbc.html
 **Trump Transition Live Updates: Harris to Address Younger Americans in Maryland**\
 ``\
 https://nytimes.com/live/2024/12/17/us/trump-administration-news
-
-**NHL trade board 2.0: Rangers take center stage, plus new targets ahead of the holiday roster freeze**\
-`All eyes are on the Rangers as their tailspin continues, but the Predators, Sabres, Penguins, Red Wings and Islanders also need to reassess.`\
-https://nytimes.com/athletic/5999541/2024/12/17/nhl-trade-board-kreider-frederic-saad/
 
