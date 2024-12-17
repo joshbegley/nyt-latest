@@ -1,3 +1,7 @@
+**What North Korea Gains From Its Alliance With Russia — and What It Risks**\
+`Sending troops to fight against Ukraine has gotten North Korea much-needed cash and diplomatic leverage. But there may be hidden costs, too.`\
+https://nytimes.com/2024/12/17/world/asia/north-korea-russia-military-deal.html
+
 **Aaron Rodgers, an Aching Achilles and Ayahuasca**\
 `A documentary about Rodgers, the 41-year-old quarterback, delves into drugs, religion and politics (and yes, that’s Robert F. Kennedy Jr.).`\
 https://nytimes.com/2024/12/17/arts/television/aaron-rodgers-enigma-rfk-ayahuasca.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/learning/word-of-the-day-primatology.html
 **Massive Earthquake in Vanuatu Damages U.S. Embassy**\
 `The embassy was one of many damaged buildings filmed by a resident after the 7.3-magnitude earthquake.`\
 https://nytimes.com/video/world/100000009881869/vanuatu-port-vila-earthquake-embassy.html
-
-**Russian General Is Killed in Bombing on a Moscow Street**\
-`The general, Igor Kirillov, died after a bomb in a scooter exploded, officials said. He was the head of Russia’s radioactive, chemical and biological defense forces.`\
-https://nytimes.com/2024/12/17/world/europe/russian-general-bombing-moscow.html
 
