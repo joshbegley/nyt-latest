@@ -1,3 +1,7 @@
+**Elon Musk Met With Nigel Farage at Mar-a-Lago**\
+`The British politician shared an image on social media that showed him at Donald Trump’s Florida resort with the tech billionaire.`\
+https://nytimes.com/2024/12/17/us/politics/elon-musk-nigel-farage.html
+
 **Fusion Start-Up Plans to Build Its First Power Plant in Virginia**\
 `Commonwealth Fusion Systems, an M.I.T. spinoff, aims to generate carbon-free electricity in an industrial park near Richmond in the early 2030s.`\
 https://nytimes.com/2024/12/17/climate/commonwealth-fusion-power-plant.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6001114/2024/12/17/best-sports-trading-card-supplie
 **Super Bowl odds: A new tier emerges without the Chiefs**\
 `The Lions, Bills and Eagles form a top tier in odds to win the Super Bowl with the Chiefs out of the top two for the first time this season.`\
 https://nytimes.com/athletic/6001172/2024/12/17/super-bowl-odds-week-16-eagles-bills-lions/
-
-**Richard W. Murphy, Roving Diplomat in World Hot Spots, Dies at 90**\
-`As a State Department Arabist, he served as ambassador to three Arab countries and helped broker the end of a 15-year civil war in Lebanon.`\
-https://nytimes.com/2024/12/17/us/politics/richard-w-murphy-dead.html
 
