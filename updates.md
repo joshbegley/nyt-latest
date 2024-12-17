@@ -1,3 +1,11 @@
+**Kaapo Kakko expresses frustration with benching in another dramatic Rangers day: 'I have not been the worst'**\
+`Also Tuesday, asked directly if he's concerned about his job security, coach Peter Laviolette said, "Those are things I can't control."`\
+https://nytimes.com/athletic/6001651/2024/12/17/rangers-kaapo-kakko-benching-frustration/
+
+**Judge in Adams Corruption Case Upholds Bribery Charge Against the Mayor**\
+`Lawyers for Mayor Eric Adams of New York had asked for the bribery charge to be thrown out, but the judge was not persuaded.`\
+https://nytimes.com/2024/12/17/nyregion/adams-bribery-corruption-case-judge.html
+
 **Suit Accuses Georgetown, Penn and M.I.T. of Admissions Based on Wealth**\
 `The schools were accused of giving special treatment to wealthy students who might not otherwise have been admitted.`\
 https://nytimes.com/2024/12/17/us/lawsuit-georgetown-wealthy-students-admissions.html
