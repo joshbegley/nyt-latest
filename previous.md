@@ -1,3 +1,11 @@
+**Syria’s Rebel Leader Vows to Disband Armed Factions**\
+`In the latest effort to present an image of stability, the leader of the rebel coalition that swept to power over a week ago said armed groups would be dissolved. It was not immediately clear how that would be achieved.`\
+https://nytimes.com/2024/12/17/world/middleeast/syria-government-al-shara.html
+
+**Behind Germany’s Political Turmoil, a Stagnating Economy**\
+`One of Europe’s powerhouses is losing its competitive edge, and the political class can’t agree on why — or what to do about it.`\
+https://nytimes.com/2024/12/17/world/europe/germany-government-collapse-economy.html
+
 **Alabama Woman Receives Nation’s Third Pig Kidney Transplant**\
 `The patient, Towana Looney, was in better health than previous recipients, and her case could signal progress toward solving the organ-supply shortage.`\
 https://nytimes.com/2024/12/17/health/pig-kidney-transplant-looney.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5999334/2024/12/17/golf-fans-survey-pga-tour-liv/
 **Bracing for a Fed Pullback**\
 `Wall Street sees the central bank cutting interest rates on Wednesday. But growing worries about inflation are adding to investor uncertainty about its policy agenda for 2025.`\
 https://nytimes.com/2024/12/17/business/fed-pullback-rates-inflation.html
-
-**New Berlin Film Festival Director Walks a Tightrope Over Israel**\
-`Can the event’s American-born leader reinvigorate the festival and maintain its commitment to open debate while satisfying German lawmakers?`\
-https://nytimes.com/2024/12/17/movies/tricia-tuttle-berlin-film-festival.html
-
-**Luis Castillo to Red Sox? Suggesting trades, signings to bolster 6 would-be contenders**\
-`The Reds trade for Luis Robert Jr.? The Braves sign Jack Flaherty? Jim Bowden suggests moves to fill key needs for six would-be contenders. `\
-https://nytimes.com/athletic/6000512/2024/12/17/mlb-trades-signings-offseason-scenarios/
 
