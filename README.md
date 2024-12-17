@@ -1,3 +1,7 @@
+**Pistons avoid late-game collapse and 34-7 Heat run for 125-124 OT win**\
+`Cade Cunningham's triple-double paced Detroit and provided and provided a bulwark against Miami's late surge. `\
+https://nytimes.com/athletic/6000349/2024/12/17/pistons-overtime-win-heat/
+
 **U.S. Cites ‘Indications’ North Korean Soldiers Died Fighting for Russia**\
 `The entry of North Korea into the war in Ukraine has marked a serious escalation in the conflict.`\
 https://nytimes.com/2024/12/17/world/europe/russia-ukraine-north-korea-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/crosswords/spelling-bee-forum.html
 **Late Night Delights in Pie-in-the-Sky Theories About the Drones**\
 `Jimmy Fallon said no one knows where the drones spotted on the East Coast come from or why they exist: “It’s basically air crypto.”`\
 https://nytimes.com/2024/12/17/arts/television/late-night-drones-new-jersey.html
-
-**Canucks' Kiefer Sherwood powers an impressive bounce-back win: 3 takeaways**\
-`After Vancouver was embarrassed by Boston on Saturday, Sherwood responded with a hat trick Monday that iced Colorado for the 3-1 win.`\
-https://nytimes.com/athletic/6000224/2024/12/17/canucks-kiefer-sherwood-bounce-back-win/
 
