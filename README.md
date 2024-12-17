@@ -1,3 +1,7 @@
+**Super Bowl odds: A new tier emerges without the Chiefs**\
+`The Lions, Bills and Eagles form a top tier in odds to win the Super Bowl with the Chiefs out of the top two for the first time this season.`\
+https://nytimes.com/athletic/6001172/2024/12/17/super-bowl-odds-week-16-eagles-bills-lions/
+
 **Richard W. Murphy, Career Diplomat and Mideast Expert, Dies at 90**\
 `As a State Department Arabist, he served as ambassador to three Arab countries, and helped broker the end of a 15-year civil war in Lebanon.`\
 https://nytimes.com/2024/12/17/us/politics/richard-w-murphy-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/business/britain-sewage-thames-water-spills.html
 **Leafs goalie Anthony Stolarz out 4-6 weeks with knee injury**\
 `Stolarz is undergoing a “procedure” in New York on Wednesday to repair the issue, GM Brad Treliving said.`\
 https://nytimes.com/athletic/6001382/2024/12/17/leafs-anthony-stolarz-knee-injury/
-
-**A Grisly Discovery at a Bronze Age Mass Grave: The Victims Were Eaten, Too**\
-`“It’s taken us all aback,” said a professor who led a study revealing that 37 people in a prehistoric site in England were likely consumed by their attackers.`\
-https://nytimes.com/2024/12/17/science/earth/bronze-age-skeleton-cannibals.html
 
