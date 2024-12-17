@@ -1,6 +1,18 @@
+**‘Annie’ Review: Whoopi Goldberg Is a Holiday Gift as Miss Hannigan**\
+`In a just sweet enough production with a strong cast, the “View” host delivers a performance that reaffirms her savvy as a comic actor.`\
+https://nytimes.com/2024/12/17/theater/annie-review-whoopi-goldberg.html
+
+**Limits on Aid to Syria Threaten to Worsen the Country’s Humanitarian Crisis**\
+`Major obstacles could stymie Syria’s new leaders as they struggle to find some footing and improve the country’s living conditions.`\
+https://nytimes.com/2024/12/17/world/middleeast/syria-sanctions-aid-limits.html
+
 **Trump Accuses Juror of Misconduct in Latest Move to Overturn Conviction**\
 `The president-elect’s latest attempt to overturn his Manhattan conviction was rebuffed by the judge overseeing the case, who called it “mere hearsay and conjecture.”`\
 https://nytimes.com/2024/12/17/nyregion/trump-juror-misconduct.html
+
+**MLB report on the arm injury epidemic finds a multilayered problem with few easy fixes**\
+`The study identifies an injury pipeline that impacts every level of baseball, from amateurs to major leaguers, with no signs of slowing.`\
+https://nytimes.com/athletic/6001969/2024/12/17/mlb-report-arm-injury-epidemic/
 
 **Democratic Donors Will Gather to Plot Ways Forward Under Trump**\
 `The liberal group American Bridge is planning to bring donors together early next year in Palm Beach, Fla., as the Democratic big-money universe debates what it can do better in 2026 and 2028.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6001667/2024/12/17/yankees-devin-williams-trade-dod
 **How Much Progress Have Women Made at Work?**\
 `At the DealBook Summit, nine prominent female leaders set out to answer the question, “Why aren’t there more women at the top levels of corporate America?”`\
 https://nytimes.com/2024/12/17/business/dealbook/women-progress-work.html
-
-**This Brazilian Velvet Ant Is So Dark That It’s Ultrablack**\
-`Scientists found that the dark markings on a species of fluffy wasp reflected less than 1 percent of light.`\
-https://nytimes.com/2024/12/17/science/ultrablack-velvet-ant-brazil.html
-
-**Mangione Faces First-Degree Murder Charge That Brands Him a Terrorist**\
-`A grand jury formally indicted Luigi Mangione in the killing of Brian Thompson, the chief executive of UnitedHealthcare.`\
-https://nytimes.com/2024/12/17/nyregion/mangione-first-degree-murder-terrorism.html
-
-**Databricks Is Raising $10 Billion, in One of the Largest Venture Capital Deals**\
-`The artificial intelligence start-up’s funding shows investors remain enthusiastic about the A.I. boom.`\
-https://nytimes.com/2024/12/17/technology/databricks-funding-venture-capital-deals.html
 
