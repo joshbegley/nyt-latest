@@ -1,3 +1,7 @@
+**Bomb Kills Russian Military General in Moscow**\
+`Gen. Igor Kirillov was responsible for Russia’s radioactive, chemical and biological defense forces. A Ukrainian official said Kyiv was behind his assassination.`\
+https://nytimes.com/video/world/europe/100000009881928/bomb-kills-russian-military-general-in-moscow.html
+
 **Syria’s Rebel Leader Vows to Disband Armed Factions**\
 `In the latest effort to present an image of stability, the leader of the rebel coalition that swept to power over a week ago said armed groups would be dissolved. It was not immediately clear how that would be achieved.`\
 https://nytimes.com/2024/12/17/world/middleeast/syria-government-al-shara.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/climate/biodiversity-climate-change-interconnecti
 **Golf fans survey: Tell us what you think about the PGA Tour, LIV and more**\
 `The Athletic would like to lean more about our readers, their interests in golf.`\
 https://nytimes.com/athletic/5999334/2024/12/17/golf-fans-survey-pga-tour-liv/
-
-**Bracing for a Fed Pullback**\
-`Wall Street sees the central bank cutting interest rates on Wednesday. But growing worries about inflation are adding to investor uncertainty about its policy agenda for 2025.`\
-https://nytimes.com/2024/12/17/business/fed-pullback-rates-inflation.html
 

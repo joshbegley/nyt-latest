@@ -1,3 +1,7 @@
+**Bomb Kills Russian Military General in Moscow**\
+`Gen. Igor Kirillov was responsible for Russia’s radioactive, chemical and biological defense forces. A Ukrainian official said Kyiv was behind his assassination.`\
+https://nytimes.com/video/world/europe/100000009881928/bomb-kills-russian-military-general-in-moscow.html
+
 **Syria’s Rebel Leader Vows to Disband Armed Factions**\
 `In the latest effort to present an image of stability, the leader of the rebel coalition that swept to power over a week ago said armed groups would be dissolved. It was not immediately clear how that would be achieved.`\
 https://nytimes.com/2024/12/17/world/middleeast/syria-government-al-shara.html
