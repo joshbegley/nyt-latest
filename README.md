@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6000349/2024/12/17/pistons-overtime-win-heat/
 
 **U.S. Cites ‘Indications’ North Korean Soldiers Died Fighting for Russia**\
-`The entry of North Korea into the war in Ukraine has marked a serious escalation in the conflict.`\
+`The entry of North Korea into the war with Ukraine has marked a serious escalation in the conflict.`\
 https://nytimes.com/2024/12/17/world/europe/russia-ukraine-north-korea-war.html
 
 **Ronaldo to run for Brazil football federation presidency**\
