@@ -1,3 +1,7 @@
+**Biden Administration Running Out of Time to Send Allocated Aid to Ukraine**\
+`Senior officials discussed U.S. plans to announce additional support for Ukraine, and spoke about casualties among North Korean troops sent to help Russia.`\
+https://nytimes.com/2024/12/17/us/politics/ukraine-aid-biden-trump.html
+
 **Honda and Nissan Are in Talks to Deepen Ties and Possibly Merge**\
 `The automakers, Japan’s second and third largest, are said to be discussing a tie-up that could reshape the country’s industry.`\
 https://nytimes.com/2024/12/17/business/honda-nissan-talks-merger.html
