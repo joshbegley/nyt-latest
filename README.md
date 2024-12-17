@@ -1,3 +1,7 @@
+**Madison Grieves as Residents Await More Information on School Attack**\
+`Officials in Wisconsin were expected to give an update on Tuesday afternoon. The shooting left a student and a teacher dead and six others injured.`\
+https://nytimes.com/2024/12/17/us/wisconsin-school-shooting-madison-residents.html
+
 **Vinicius Jr, Bonmati named players of the year at FIFA Best awards**\
 `Real Madrid forward Vinicius Junior has been named the men&#8217;s player of the year at the FIFA Best awards, with Barcelona midfielder Aitana Bonmati winning the women&#8217;s prize.`\
 https://nytimes.com/athletic/6001558/2024/12/17/fifa-best-awards-vinicius-bonmati/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6001471/2024/12/17/commanders-falcons-week-17-flex/
 **Elon Musk and SpaceX Face Federal Reviews After Violations of Security Reporting Rules**\
 `Federal agencies have opened at least three reviews into whether the company and its leader complied with disclosure protocols intended to protect state secrets, people with knowledge of the matter said.`\
 https://nytimes.com/2024/12/17/technology/elon-musk-spacex-national-security-reporting.html
-
-**Tech Entrepreneur Convicted of Second-Degree Murder in Death of Cash App Founder**\
-`Nima Momeni, 40, was convicted by a San Francisco jury in the fatal stabbing of Bob Lee, a well-known tech executive.`\
-https://nytimes.com/2024/12/17/us/nima-momeni-verdict-bob-lee-killing.html
 
