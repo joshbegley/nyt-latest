@@ -1,3 +1,7 @@
+**Disney Pulls Transgender Story Line From New Series**\
+`The animated “Win or Lose” follows a middle school softball team, and each episode is told from the perspective of a different character.`\
+https://nytimes.com/2024/12/17/business/media/disney-pixar-win-or-lose.html
+
 **China Lengthens Visa-Free Stays for Tourists**\
 `In its efforts to attract visitors, the country extended stays from less than a week to up to 10 days for visitors between destinations.`\
 https://nytimes.com/2024/12/17/world/asia/china-visa-free-transit-policy.html

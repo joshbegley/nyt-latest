@@ -1,3 +1,7 @@
+**Disney Pulls Transgender Story Line From New Series**\
+`The animated “Win or Lose” follows a middle school softball team, and each episode is told from the perspective of a different character.`\
+https://nytimes.com/2024/12/17/business/media/disney-pixar-win-or-lose.html
+
 **China Lengthens Visa-Free Stays for Tourists**\
 `In its efforts to attract visitors, the country extended stays from less than a week to up to 10 days for visitors between destinations.`\
 https://nytimes.com/2024/12/17/world/asia/china-visa-free-transit-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6001656/2024/12/17/mets-juan-soto-defense-improveme
 **Gun Violence at Schools Has Risen Since the Pandemic**\
 `But mass shootings remain a rare occurrence. Only a small fraction of the nation’s nearly 130,000 schools report gun incidents each year.`\
 https://nytimes.com/2024/12/17/us/gun-violence-school-shootings-pandemic.html
-
-**‘Annie’ Review: Whoopi Goldberg Is a Holiday Gift as Miss Hannigan**\
-`In a just sweet enough production with a strong cast, the “View” host delivers a performance that reaffirms her savvy as a comic actor.`\
-https://nytimes.com/2024/12/17/theater/annie-review-whoopi-goldberg.html
 
