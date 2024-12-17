@@ -1,3 +1,11 @@
+**Mangione Faces First-Degree Murder Charge That Brands Him a Terrorist**\
+`A grand jury formally indicted Luigi Mangione in the killing of Brian Thompson, the chief executive of UnitedHealthcare.`\
+https://nytimes.com/2024/12/17/nyregion/mangione-first-degree-murder-terrorism.html
+
+**Databricks Is Raising $10 Billion, in One of the Largest Venture Capital Deals**\
+`The artificial intelligence start-up’s funding shows investors remain enthusiastic about the A.I. boom.`\
+https://nytimes.com/2024/12/17/technology/databricks-funding-venture-capital-deals.html
+
 **Matilda Djerf Apologizes Amid Claims of Workplace Toxicity**\
 `The popular Swedish influencer began a fashion brand in 2019. Some employees say working there wasn’t as great as it looked on social media.`\
 https://nytimes.com/2024/12/17/style/matilda-djerf-apology.html
