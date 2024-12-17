@@ -1,3 +1,11 @@
+**Matilda Djerf Apologizes Amid Claims of Workplace Toxicity**\
+`The popular Swedish influencer began a fashion brand in 2019. Some employees say working there wasn’t as great as it looked on social media.`\
+https://nytimes.com/2024/12/17/style/matilda-djerf-apology.html
+
+**Some of New York’s Best Pastry (and Plenty More) Is in Astoria**\
+`Levant, in Little Egypt, is an impressive addition to Steinway Street, a thoroughfare already thick with fascinating food choices.`\
+https://nytimes.com/2024/12/17/dining/levant-nyc-restaurant-review.html
+
 **Monday Briefing: Ukraine says it killed a Russian General**\
 `Plus, the search for a van Gogh masterpiece.`\
 https://nytimes.com/2024/12/17/briefing/ukraine-russia-syria-gaza.html
