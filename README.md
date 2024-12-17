@@ -1,3 +1,11 @@
+**Vermont beats Marshall to win programfirst men's NCAA soccer title**\
+`Vermont beat Marshall 2-1 in overtime, bringing the Catamounts their first national title in a team sport.`\
+https://nytimes.com/athletic/6000247/2024/12/17/vermont-ncaa-mens-soccer-championship/
+
+**Falcons keep playoff hopes alive with 15-9 win vs. Raiders: Takeaways**\
+`The Raiders moved closer to the No. 1 pick in the 2025 NFL Draft over the New York Giants.`\
+https://nytimes.com/athletic/5999454/2024/12/17/falcons-raiders-mnf-doubleheader-score-result-takeaways/
+
 **Tuesday Briefing**\
 `Germany’s political turmoil.`\
 https://nytimes.com/2024/12/17/briefing/germany-confidence-vote-syria.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5990243/2024/12/16/nfl-playoff-picture-week-15-eagl
 **What We Know About the Madison School Shooting**\
 `The police in Wisconsin are working to establish a motive for the attack, which left a student and teacher dead and six others injured.`\
 https://nytimes.com/2024/12/16/us/madison-wi-school-shooting-abundant-life.html
-
-**Tom Hanks, Pete Davidson and Olivia Munn Share Lessons on Love**\
-`Actors and comedians offered relationship advice at a performance of the new Broadway play, “All In: Comedy About Love,” by Simon Rich.`\
-https://nytimes.com/2024/12/16/style/all-in-comedy-about-love-opening.html
-
-**15-Year-Old Girl Identified as the Shooter in a Wisconsin School**\
-`Natalie Rupnow was identified by the police as the shooter in the attack at Abundant Life Christian School. Investigators are still trying to piece together what led up to the shooting.`\
-https://nytimes.com/2024/12/16/us/wisconsin-school-shooting-natalie-rupnow.html
 
