@@ -1,3 +1,7 @@
+**15-Year-Old Girl Identified as the Shooter in a Wisconsin School**\
+`Natalie Rupnow was identified by the police as the shooter in the attack at Abundant Life Christian School. Investigators are still trying to piece together what led up to the shooting.`\
+https://nytimes.com/2024/12/16/us/wisconsin-school-shooting-natalie-rupnow.html
+
 **Abundant Life’s Precautions ‘Helped Keep Students Safe,’ Official Says**\
 `Training and precautions taken by the Christian school in Wisconsin may have prevented the shooter from harming even more people, officials said.`\
 https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000012/2024/12/16/wisconsin-billy-edwards-maryland
 **Sirens, Then an Excruciating Wait for School Families**\
 `It would be hours before any details emerged about Monday’s shooting at Abundant Life Christian School, including that the shooter was a student at the school.`\
 https://nytimes.com/2024/12/16/us/abundant-life-christian-school-shooting.html
-
-**Florida Man Is Sentenced to Death for Killing 5 Women in a Bank in 2019**\
-`The man, Zephen Xaver, 27, will have his case automatically appealed to the Florida Supreme Court.`\
-https://nytimes.com/2024/12/16/us/florida-man-sentenced-bank-killing.html
 
