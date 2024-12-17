@@ -1,3 +1,7 @@
+**Corrections: Dec. 17, 2024**\
+`Corrections that appeared in print on Tuesday, Dec. 17, 2024.`\
+https://nytimes.com/2024/12/16/pageoneplus/corrections-dec-17-2024.html
+
 **Map: 7.3-Magnitude Earthquake Strikes Near Vanuatu**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/12/16/world/vanuatu-quake-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/theater/eureka-day-review-broadway.html
 **49ers' Nick Bosa says De'Vondre Campbell was acting up before Thursday's game**\
 `Bosa on Monday shared strong opinions about the 49ers defense and coordinator Nick Sorensen — he wants the status quo in 2025.`\
 https://nytimes.com/athletic/5999824/2024/12/16/49ers-nick-bosa-devondre-campbell-quit-suspended/
-
-**Raiders to start QB Desmond Ridder against Falcons with Aidan O'Connell out**\
-`Ridder's first start with the Raiders will come against the team that drafted him in 2022.`\
-https://nytimes.com/athletic/5998848/2024/12/16/desmond-ridder-raiders-starting-qb-mnf-falcons/
 
