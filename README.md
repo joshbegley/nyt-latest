@@ -2,6 +2,10 @@
 `Can the event’s American-born leader reinvigorate the festival and maintain its commitment to open debate while satisfying German lawmakers?`\
 https://nytimes.com/2024/12/17/movies/tricia-tuttle-berlin-film-festival.html
 
+**Luis Castillo to Red Sox? Suggesting trades, signings to bolster 6 would-be contenders**\
+`The Reds trade for Luis Robert Jr.? The Braves sign Jack Flaherty? Jim Bowden suggests moves to fill key needs for six would-be contenders. `\
+https://nytimes.com/athletic/6000512/2024/12/17/mlb-trades-signings-offseason-scenarios/
+
 **European Super League relaunches as 'Unify League': What's different - and will it work?**\
 `The company behind the controversial European Super League idea has tweaked its proposal once more, completely scrapping the original closed-shop format, in a bid to make it more attractive to clubs and fans.`\
 https://nytimes.com/athletic/6000667/2024/12/17/european-super-league-unify-a22/
@@ -22,6 +26,10 @@ https://nytimes.com/athletic/6000531/2024/12/17/russell-martin-inside-southampto
 `The biggest benefits often emerge outside the countries engaged in a trade war.`\
 https://nytimes.com/2024/12/17/briefing/vietnam-china-us-trade-war.html
 
+**What I'm hearing about the Lakers' plans this trade season**\
+`Is Los Angeles likely to make a move? Who are realistic trade targets?`\
+https://nytimes.com/athletic/5995808/2024/12/17/lakers-trade-season-primer-nba/
+
 **Marshon Lattimore's target-free Commanders debut spoke volumes about his impact**\
 `"I just tried to stay calm and get the job done. I did what they needed me to do," Lattimore said following his Washington debut. `\
 https://nytimes.com/athletic/5999743/2024/12/17/marshon-lattimore-debut-commanders-saints/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5999743/2024/12/17/marshon-lattimore-debut-commande
 **Mayotte, Cyclone-Hit French Territory, Imposes Curfew as Aid Is Rushed In**\
 `Hundreds are feared dead after the storm razed entire neighborhoods in Mayotte, a series of islands off the eastern coast of Africa.`\
 https://nytimes.com/2024/12/17/world/europe/mayotte-cyclone-chido-curfew-deaths.html
-
-**Mudryk, the Chelsea winger who arrived as a £62m victory - but is now facing failed test**\
-`Mykhailo Mudryk failed a drugs test, but his entire time at Chelsea has been difficult`\
-https://nytimes.com/athletic/5999033/2024/12/17/mykhailo-mudryk-chelsea-doping-test-analysis/
-
-**The Athletic FC: Mudryk tests positive for banned substance, will Olmo leave Barca for free?**\
-`Today in TAFC: Mudryk tests positive for banned substance, Wolves a step closer to a new coach, will Olmo leave Barcelona next month?`\
-https://nytimes.com/athletic/6000674/2024/12/17/mudryk-drug-test-olmo-barcelona-free/
 
