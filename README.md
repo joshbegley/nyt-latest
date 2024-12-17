@@ -23,7 +23,7 @@ https://nytimes.com/2024/12/17/crosswords/spelling-bee-forum.html
 https://nytimes.com/2024/12/17/arts/television/late-night-drones-new-jersey.html
 
 **Canucks' Kiefer Sherwood powers an impressive bounce-back win: 3 takeaways**\
-`After Vancouver was embarrassed by Boston on Saturday, Sherwood responded with a hat trick on Monday that iced Colorado for the 3-1 win.`\
+`After Vancouver was embarrassed by Boston on Saturday, Sherwood responded with a hat trick Monday that iced Colorado for the 3-1 win.`\
 https://nytimes.com/athletic/6000224/2024/12/17/canucks-kiefer-sherwood-bounce-back-win/
 
 **Word of the Day: primatology**\
