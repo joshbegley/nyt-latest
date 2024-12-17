@@ -1,3 +1,15 @@
+**Ocasio-Cortez Loses Vote to Be the Top Democrat on Oversight Panel**\
+`The New York progressive’s defeat was a counterpoint to generational change in the Democratic ranks, as House members chose younger members to lead other committees.`\
+https://nytimes.com/2024/12/17/us/politics/ocasio-cortez-oversight-connolly.html
+
+**The protective supplies your trading card collection can't be without**\
+`Protecting your trading cards means knowing what supplies are best for your collection. `\
+https://nytimes.com/athletic/6001114/2024/12/17/best-sports-trading-card-supplies/
+
+**Super Bowl odds: A new tier emerges without the Chiefs**\
+`The Lions, Bills and Eagles form a top tier in odds to win the Super Bowl with the Chiefs out of the top two for the first time this season.`\
+https://nytimes.com/athletic/6001172/2024/12/17/super-bowl-odds-week-16-eagles-bills-lions/
+
 **Richard W. Murphy, Career Diplomat and Mideast Expert, Dies at 90**\
 `As a State Department Arabist, he served as ambassador to three Arab countries, and helped broker the end of a 15-year civil war in Lebanon.`\
 https://nytimes.com/2024/12/17/us/politics/richard-w-murphy-dead.html
