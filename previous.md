@@ -1,3 +1,11 @@
+**U.S. Cites ‘Indications’ North Korean Soldiers Died Fighting for Russia**\
+`The entry of North Korea into the war in Ukraine has marked a serious escalation in the conflict.`\
+https://nytimes.com/2024/12/17/world/europe/russia-ukraine-north-korea-war.html
+
+**Ronaldo to run for Brazil football federation presidency**\
+`Former Brazil striker Ronaldo has announced he is running for the presidency of his country&#8217;s football federation (CBF).`\
+https://nytimes.com/athletic/6000490/2024/12/17/ronaldo-brazil-cbf-president/
+
 **What North Korea Gains From Its Alliance With Russia — and What It Risks**\
 `Sending troops to fight against Ukraine has gotten North Korea much-needed cash and diplomatic leverage. But there may be hidden costs, too.`\
 https://nytimes.com/2024/12/17/world/asia/north-korea-russia-military-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/arts/television/late-night-drones-new-jersey.html
 **Canucks' Kiefer Sherwood powers an impressive bounce-back win: 3 takeaways**\
 `After Vancouver was embarrassed by Boston on Saturday, Sherwood responded with a hat trick Monday that iced Colorado for the 3-1 win.`\
 https://nytimes.com/athletic/6000224/2024/12/17/canucks-kiefer-sherwood-bounce-back-win/
-
-**Word of the Day: primatology**\
-`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/17/learning/word-of-the-day-primatology.html
-
-**Massive Earthquake in Vanuatu Damages U.S. Embassy**\
-`The embassy was one of many damaged buildings filmed by a resident after the 7.3-magnitude earthquake.`\
-https://nytimes.com/video/world/100000009881869/vanuatu-port-vila-earthquake-embassy.html
 

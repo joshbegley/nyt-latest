@@ -1,3 +1,11 @@
+**U.S. Cites ‘Indications’ North Korean Soldiers Died Fighting for Russia**\
+`The entry of North Korea into the war in Ukraine has marked a serious escalation in the conflict.`\
+https://nytimes.com/2024/12/17/world/europe/russia-ukraine-north-korea-war.html
+
+**Ronaldo to run for Brazil football federation presidency**\
+`Former Brazil striker Ronaldo has announced he is running for the presidency of his country&#8217;s football federation (CBF).`\
+https://nytimes.com/athletic/6000490/2024/12/17/ronaldo-brazil-cbf-president/
+
 **What North Korea Gains From Its Alliance With Russia — and What It Risks**\
 `Sending troops to fight against Ukraine has gotten North Korea much-needed cash and diplomatic leverage. But there may be hidden costs, too.`\
 https://nytimes.com/2024/12/17/world/asia/north-korea-russia-military-deal.html
