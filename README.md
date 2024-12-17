@@ -1,3 +1,7 @@
+**British Authorities Criticized Over Sewage Spills in Public Waterways**\
+`The condemnation by a watchdog comes as England’s largest water company asks for an emergency loan and the nation wrestles with water pollution.`\
+https://nytimes.com/2024/12/17/business/britain-sewage-thames-water-spills.html
+
 **Leafs goalie Anthony Stolarz out 4-6 weeks with knee injury**\
 `Stolarz is undergoing a “procedure” in New York on Wednesday to repair the issue, GM Brad Treliving said.`\
 https://nytimes.com/athletic/6001382/2024/12/17/leafs-anthony-stolarz-knee-injury/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6001382/2024/12/17/leafs-anthony-stolarz-knee-injur
 **A Grisly Discovery at a Bronze Age Mass Grave: The Victims Were Eaten, Too**\
 `“It’s taken us all aback,” said a professor who led a study revealing that 37 people in a prehistoric site in England were likely consumed by their attackers.`\
 https://nytimes.com/2024/12/17/science/earth/bronze-age-skeleton-cannibals.html
+
+**Explaining Mudryk's drugs ban: What is meldonium - and possible punishments**\
+`Breaking down what has happened with Ukrainian's failed doping test and what could come next`\
+https://nytimes.com/athletic/6000684/2024/12/17/mykhailo-mudryk-chelsea-drug-ban-meldonium-punishment/
 
 **What Kennedy Has Said About the Polio Vaccine in Recent Years**\
 `President-elect Donald Trump’s choice for health secretary has suggested that the polio vaccine cost more lives than it saved and that the vaccine did not wipe out the disease in the U.S.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/opinion/trump-biden-kash-patel-pardons.html
 **Worthwhile Canadian Resignation**\
 `Chrystia Freeland’s departure raises questions about how sharply Trudeau will counter Trump.`\
 https://nytimes.com/2024/12/17/opinion/canada-trudeau-freeland-resignation.html
-
-**Jeff Bezos Prepares to Close the Gap in His Space Race With Elon Musk**\
-`A new rocket from Mr. Bezos’ company Blue Origin and a satellite system from Amazon could heat up competition with SpaceX, owned by Mr. Musk.`\
-https://nytimes.com/2024/12/17/technology/jeff-bezos-blue-origin-elon-musk.html
-
-**Why Does OpenAI Need So Much Money?**\
-`Building a chatbot like ChatGPT requires billions upon billions of dollars. That’s the driving force behind OpenAI’s plans to change how it’s managed.`\
-https://nytimes.com/2024/12/17/technology/openai-chatgpt-funding.html
 
