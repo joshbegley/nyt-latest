@@ -1,3 +1,7 @@
+**Madison Grieves as Residents Await More Information on School Attack**\
+`Officials in Wisconsin were expected to give an update on Tuesday afternoon. The shooting left a student and a teacher dead and six others injured.`\
+https://nytimes.com/2024/12/17/us/wisconsin-school-shooting-madison-residents.html
+
 **Commanders-Falcons flexed to 'Sunday Night Football' in Week 17**\
 `The NBC telecast will kick off at 8:20 p.m. ET from Northwest Stadium in Landover, Md.`\
 https://nytimes.com/athletic/6001471/2024/12/17/commanders-falcons-week-17-flex/
