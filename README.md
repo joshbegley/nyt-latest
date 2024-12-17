@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/16/us/politics/jordan-drone-attack-soldiers-iran.htm
 https://nytimes.com/2024/12/16/crosswords/daily-puzzle-2024-12-17.html
 
 **7.3-Magnitude Earthquake Near Vanuatu Triggers Small Tsunami Waves**\
-`Tsunami waves of less than a foot were recorded hitting Vanuatu’s coastline after the quake, the Pacific Tsunami Warning Center said.`\
+`Tsunami waves of less than a foot hit Vanuatu’s coastline. Officials said the threat had passed about an hour after a tsunami alert was issued.`\
 https://nytimes.com/2024/12/16/world/asia/vanuatu-earthquake-tsunami.html
 
 **Corrections: Dec. 17, 2024**\
