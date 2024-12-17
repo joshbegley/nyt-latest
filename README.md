@@ -1,3 +1,7 @@
+**NPB's Tomoyuki Sugano, Orioles in agreement on 1-year deal: Source**\
+`Suagno is one of the most accomplished NPB pitchers of his generation. `\
+https://nytimes.com/athletic/5999952/2024/12/16/tomoyuki-sugano-baltimore-orioles-deal/
+
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
 https://nytimes.com/athletic/5891633/2024/12/16/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/dining/how-to-make-baked-potatoes.html
 **Chiefs release RB Clyde Edwards-Helaire after 5 seasons with team**\
 `He has not appeared in a game after starting this season on the non-football illness list, stemming from his battle with PTSD.`\
 https://nytimes.com/athletic/5999555/2024/12/16/chiefs-release-clyde-edwards-helaire-nfl-news/
-
-**Manfred against innings minimum for starting pitchers; salary deferrals ‘can become problematic’**\
-`“To me, this needs to be addressed in a more subtle way," MLB commissioner Rob Manfred said in a wide-ranging interview. `\
-https://nytimes.com/athletic/5999727/2024/12/16/manfred-mlb-innings-minimum-starting-pitchers/
 
