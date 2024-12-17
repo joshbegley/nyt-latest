@@ -1,3 +1,7 @@
+**Canucks' Kiefer Sherwood powers an impressive bounce-back win: 3 takeaways**\
+`After Vancouver was embarrassed by Boston on Saturday, Sherwood responded with a hat trick on Monday that iced Colorado for the 3-1 win.`\
+https://nytimes.com/athletic/6000224/2024/12/17/canucks-kiefer-sherwood-bounce-back-win/
+
 **Word of the Day: primatology**\
 `This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/17/learning/word-of-the-day-primatology.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000247/2024/12/17/vermont-ncaa-mens-soccer-champio
 **Falcons keep playoff hopes alive with 15-9 win vs. Raiders: Takeaways**\
 `The Raiders moved closer to the No. 1 pick in the 2025 NFL Draft in their battle with the New York Giants.`\
 https://nytimes.com/athletic/5999454/2024/12/17/falcons-raiders-mnf-doubleheader-score-result-takeaways/
-
-**The state of scouting: Data culture clash, job cuts and an uncertain future**\
-`The Athletic has canvassed the views of 40 scouts from across the Premier League and EFL to test the temperature of the industry`\
-https://nytimes.com/athletic/5998007/2024/12/17/premier-league-scouts-data-future/
 
