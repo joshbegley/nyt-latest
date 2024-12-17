@@ -1,5 +1,13 @@
 **New York City Water Main Break Floods Streets in the Bronx**\
 `Some cars were submerged by the rising water. Emergency workers were working overnight to identify the source of the break.`\
+https://nytimes.com/2024/12/17/us/water-main-break-bronx-nyc.html
+
+**Jota, Nunez and the battle to be Liverpool's starting No 9**\
+`Liverpool have two fit No 9s available again - and there is little doubt over who is the more reliable option`\
+https://nytimes.com/athletic/5998540/2024/12/17/liverpool-diogo-jota-darwin-nunez/
+
+**New York City Water Main Break Floods Streets in the Bronx**\
+`Some cars were submerged by the rising water. Emergency workers were working overnight to identify the source of the break.`\
 https://nytimes.com/2024/12/17/us/water-break-bronx-nyc.html
 
 **Was Emi Martinez's save against Nottingham Forest the best of the Premier League era?**\
