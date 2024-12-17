@@ -1,3 +1,7 @@
+**New York City Water Main Break Floods Streets in the Bronx**\
+`Some cars were submerged by the rising water. Emergency workers were working overnight to identify the source of the break.`\
+https://nytimes.com/2024/12/17/us/water-break-bronx-nyc.html
+
 **Germany Doesn’t Feel Like Germany Anymore**\
 `The economically prosperous, socially cohesive and politically stable country has gone.`\
 https://nytimes.com/2024/12/17/opinion/germany-scholz-government-election.html
@@ -18,6 +22,10 @@ https://nytimes.com/athletic/5999454/2024/12/17/falcons-raiders-mnf-doubleheader
 `The Athletic has canvassed the views of 40 scouts from across the Premier League and EFL to test the temperature of the industry`\
 https://nytimes.com/athletic/5998007/2024/12/17/premier-league-scouts-data-future/
 
+**Was Emi Martinez's save against Nottingham Forest the best of the Premier League era?**\
+`Schmeichel, James, Cudicini, Leno, Alisson, Hart, Gordon and Pickford are all in the running`\
+https://nytimes.com/athletic/5998174/2024/12/17/was-emi-martinezs-save-against-nottingham-forest-the-best-of-the-premier-league-era/
+
 **Tuesday Briefing**\
 `Germany’s political turmoil.`\
 https://nytimes.com/2024/12/17/briefing/germany-confidence-vote-syria.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/us/gallup-poll-judiciary-courts.html
 **Listen: Can You Guess These 12 Christmas Movies?**\
 `Find out if you deserve the expert’s Santa hat or a big old lump of coal.`\
 https://nytimes.com/2024/12/17/style/christmas-movies-quiz.html
-
-**Week 16 fantasy football waiver wire: Streamers, Jerome Ford, Kendre Miller**\
-`Jake Ciely prioritizes this week's waiver wire options, with Kendre Miller sitting atop his list of running back targets for Week 16.`\
-https://nytimes.com/athletic/5998134/2024/12/17/week-16-fantasy-football-waiver-wire-streamers-jerome-ford-kendre-miller/
-
-**Quote of the Day: Democrats Aim to Foil a Constitutional Rewrite**\
-`Quotation of the Day for Tuesday, December 17, 2024.`\
-https://nytimes.com/2024/12/16/pageoneplus/quote-of-the-day-democrats-aim-to-foil-a-constitutional-rewrite.html
 

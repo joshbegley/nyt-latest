@@ -1,6 +1,6 @@
 **New York City Water Main Break Floods Streets in the Bronx**\
 `Some cars were submerged by the rising water. Emergency workers were working overnight to identify the source of the break.`\
-https://nytimes.com/2024/12/17/us/water-break-bronx-nyc.html
+https://nytimes.com/2024/12/17/us/water-main-break-bronx-nyc.html
 
 **Germany Doesn’t Feel Like Germany Anymore**\
 `The economically prosperous, socially cohesive and politically stable country has gone.`\
@@ -9,6 +9,10 @@ https://nytimes.com/2024/12/17/opinion/germany-scholz-government-election.html
 **Pope Francis: There Is Faith in Humor**\
 `The best thing to do in front of a mirror is to laugh at ourselves. It is good for us.`\
 https://nytimes.com/2024/12/17/opinion/pope-francis-humor.html
+
+**Jota, Nunez and the battle to be Liverpool's starting No 9**\
+`Liverpool have two fit No 9s available again - and there is little doubt over who is the more reliable option`\
+https://nytimes.com/athletic/5998540/2024/12/17/liverpool-diogo-jota-darwin-nunez/
 
 **Vermont beats Marshall to win program's first men's NCAA soccer title**\
 `Vermont beat Marshall 2-1 in overtime, bringing the Catamounts their first national title in a team sport.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/briefing/germany-confidence-vote-syria.html
 **Confidence in U.S. Courts Plummets to Rate Far Below Peer Nations**\
 `Very few countries have experienced similar declines, typically in the wake of wrenching turmoil. Experts called the data, from a new Gallup poll, stunning and worrisome.`\
 https://nytimes.com/2024/12/17/us/gallup-poll-judiciary-courts.html
-
-**Listen: Can You Guess These 12 Christmas Movies?**\
-`Find out if you deserve the expert’s Santa hat or a big old lump of coal.`\
-https://nytimes.com/2024/12/17/style/christmas-movies-quiz.html
 

@@ -1,3 +1,11 @@
+**New York City Water Main Break Floods Streets in the Bronx**\
+`Some cars were submerged by the rising water. Emergency workers were working overnight to identify the source of the break.`\
+https://nytimes.com/2024/12/17/us/water-break-bronx-nyc.html
+
+**Was Emi Martinez's save against Nottingham Forest the best of the Premier League era?**\
+`Schmeichel, James, Cudicini, Leno, Alisson, Hart, Gordon and Pickford are all in the running`\
+https://nytimes.com/athletic/5998174/2024/12/17/was-emi-martinezs-save-against-nottingham-forest-the-best-of-the-premier-league-era/
+
 **The state of scouting: Data culture clash, job cuts and an uncertain future**\
 `The Athletic has canvassed the views of 40 scouts from across the Premier League and EFL to test the temperature of the industry`\
 https://nytimes.com/athletic/5998007/2024/12/17/premier-league-scouts-data-future/
