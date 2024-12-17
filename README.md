@@ -1,3 +1,7 @@
+**Elon Musk and SpaceX Face Federal Reviews After Violations of Security Reporting Rules**\
+`Federal agencies have opened at least three reviews into whether the company and its leader complied with disclosure protocols intended to protect state secrets, people with knowledge of the matter said.`\
+https://nytimes.com/2024/12/17/technology/elon-musk-spacex-national-security-reporting.html
+
 **Tech Entrepreneur Convicted of Second-Degree Murder in Death of Cash App Founder**\
 `Nima Momeni, 40, was convicted by a San Francisco jury in the fatal stabbing of Bob Lee, a well-known tech executive.`\
 https://nytimes.com/2024/12/17/us/bob-lee-killing-momeni.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000684/2024/12/17/mykhailo-mudryk-chelsea-drug-ban
 **What Kennedy Has Said About the Polio Vaccine in Recent Years**\
 `President-elect Donald Trump’s choice for health secretary has suggested that the polio vaccine cost more lives than it saved and that the vaccine did not wipe out the disease in the U.S.`\
 https://nytimes.com/2024/12/17/health/robert-f-kennedy-jr-polio-vaccines.html
-
-**Harris Sees Optimism for the Future in a Speech to Younger Voters**\
-`In her speech at a community college in Maryland, the vice president displayed a pugnacious resolve.`\
-https://nytimes.com/2024/12/17/us/politics/harris-speech-future.html
 
