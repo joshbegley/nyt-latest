@@ -1,3 +1,7 @@
+**Golf fans survey: Tell us what you think about the PGA Tour, LIV and more**\
+`The Athletic would like to lean more about our readers, their interests in golf.`\
+https://nytimes.com/athletic/5999334/2024/12/17/golf-fans-survey-pga-tour-liv/
+
 **Alabama Woman Receives Nation’s Third Pig Kidney Transplant**\
 `The patient, Towana Looney, was in better health than previous recipients, and her case could signal progress toward solving the organ-supply shortage.`\
 https://nytimes.com/2024/12/17/health/pig-kidney-transplant-looney.html
