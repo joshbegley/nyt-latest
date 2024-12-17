@@ -1,3 +1,7 @@
+**Elon Musk and SpaceX Face Federal Reviews After Violations of Security Reporting Rules**\
+`Federal agencies have opened at least three reviews into whether the company and its leader complied with disclosure protocols intended to protect state secrets, people with knowledge of the matter said.`\
+https://nytimes.com/2024/12/17/technology/elon-musk-spacex-national-security-reporting.html
+
 **Tech Entrepreneur Convicted of Second-Degree Murder in Death of Cash App Founder**\
 `Nima Momeni, 40, was convicted by a San Francisco jury in the fatal stabbing of Bob Lee, a well-known tech executive.`\
 https://nytimes.com/2024/12/17/us/bob-lee-killing-momeni.html
