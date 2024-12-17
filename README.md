@@ -1,3 +1,19 @@
+**What led to owner Terry Pegula's rare meeting with the Sabres in Montreal**\
+`Pegula felt the meeting was necessary given the amount of noise surrounding the Sabres during this latest skid.`\
+https://nytimes.com/athletic/6000113/2024/12/17/sabres-terry-pegula-meeting/
+
+**Who Was Gen. Igor Kirillov, the Russian General Assassinated in Moscow?**\
+`The general had faced sanctions for using chemical weapons in Ukraine.`\
+https://nytimes.com/2024/12/17/world/europe/igor-kirillov-russian-general.html
+
+**Penguins Today: 'Heavy' times and wrestling ties**\
+`Tonight is WWE Night at PPG Paints Arena, so let's get into character.`\
+https://nytimes.com/athletic/6000965/2024/12/17/penguins-today-wwe-night/
+
+**The Search for van Gogh’s Lost Masterpiece**\
+`Cast off by the Nazis, but heralded by curators, the artist’s painting of his doctor, made just before van Gogh’s suicide, has not been seen in 34 years.`\
+https://nytimes.com/2024/12/17/arts/design/van-gogh-lost-masterpiece.html
+
 **Paul Watson, Anti-Whaling Activist, Is Released After 5 Months in Prison**\
 `Mr. Watson was facing extradition to Japan but was released after Denmark decided to reject the extradition request, his lawyer said.`\
 https://nytimes.com/2024/12/17/world/europe/denmark-anti-whaling-activist-no-extradition.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/europe/100000009881928/bomb-kills-russian-milita
 **Syria’s Rebel Leader Vows to Disband Armed Factions**\
 `The leader of the rebel coalition that swept to power last week said that fighters would be brought under the defense ministry’s authority. It was not immediately clear how that would be achieved.`\
 https://nytimes.com/2024/12/17/world/middleeast/syria-government-al-shara.html
-
-**Behind Germany’s Political Turmoil, a Stagnating Economy**\
-`One of Europe’s powerhouses is losing its competitive edge, and the political class can’t agree on why — or what to do about it.`\
-https://nytimes.com/2024/12/17/world/europe/germany-government-collapse-economy.html
-
-**Alabama Woman Receives Nation’s Third Pig Kidney Transplant**\
-`The patient, Towana Looney, was in better health than previous recipients, and her case could signal progress toward solving the organ-supply shortage.`\
-https://nytimes.com/2024/12/17/health/pig-kidney-transplant-looney.html
-
-**‘Bluey’ Is Headed to Theaters, Backed by Disney**\
-`BBC Studios and the Walt Disney Company will collaborate on a movie about the hit children’s character.`\
-https://nytimes.com/2024/12/17/business/bluey-movie-disney-bbc.html
-
-**Trump Transition Live Updates: Harris to Address Younger Americans in Maryland**\
-``\
-https://nytimes.com/live/2024/12/17/us/trump-administration-news
 
