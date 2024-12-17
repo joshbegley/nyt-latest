@@ -1,3 +1,11 @@
+**China Lengthens Visa-Free Stays for Tourists**\
+`In its efforts to attract visitors, the country extended stays from less than a week to up to 10 days for visitors between destinations.`\
+https://nytimes.com/2024/12/17/world/asia/china-visa-free-transit-policy.html
+
+**National Archivist Rejects Bid to Certify the Equal Rights Amendment**\
+`With President Biden under pressure to add the an amendment explicitly guaranteeing sex equality to the Constitution, Colleen Shogan said she could not legally certify it.`\
+https://nytimes.com/2024/12/17/us/politics/equal-rights-amendment-constitution.html
+
 **The Trump Factor Further Shakes Up Canada’s Politics**\
 `The president-elect’s threat to impose major tariffs on Canadian goods and other pointed comments have tapped into a treacherous moment in domestic politics.`\
 https://nytimes.com/2024/12/17/world/canada/canada-trudeau-trump.html
