@@ -1,3 +1,7 @@
+**Monday Briefing: Ukraine says it killed a Russian General**\
+`Plus, the search for a van Gogh masterpiece.`\
+https://nytimes.com/2024/12/17/briefing/ukraine-russia-syria-gaza.html
+
 **‘Emilia Pérez’ Makes a Strong Showing on the Oscar Shortlists**\
 `The musical appears twice for best song, along with big names like Pharrell Williams and Elton John. “Wicked” is potentially up for best score.`\
 https://nytimes.com/2024/12/17/movies/wicked-oscars-shortlist-pharrell-williams-emilia-perez.html
