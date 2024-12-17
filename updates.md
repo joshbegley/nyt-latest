@@ -1,3 +1,7 @@
+**A Grisly Discovery at a Bronze Age Mass Grave: The Victims Were Eaten, Too**\
+`“It’s taken us all aback,” said a professor who led a study revealing that 37 people in a prehistoric site in England were likely consumed by their attackers.`\
+https://nytimes.com/2024/12/17/science/earth/bronze-age-skeleton-cannibals.html
+
 **What Kennedy Has Said About the Polio Vaccine in Recent Years**\
 `President-elect Donald Trump’s choice for health secretary has suggested that the polio vaccine cost more lives than it saved and that the vaccine did not wipe out the disease in the U.S.`\
 https://nytimes.com/2024/12/17/health/robert-f-kennedy-jr-polio-vaccines.html
