@@ -1,3 +1,7 @@
+**Map: 7.3-Magnitude Earthquake Strikes Near Vanuatu**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/12/16/world/vanuatu-quake-tracker.html
+
 **Wisconsin lands former Maryland QB Billy Edwards Jr. as remade room takes shape**\
 `Edwards, a former Maryland quarterback, helps solve the Badgers’ need for a veteran to step in and potentially start next season.`\
 https://nytimes.com/athletic/6000012/2024/12/16/wisconsin-billy-edwards-maryland-transfer/
