@@ -1,3 +1,11 @@
+**Worthwhile Canadian Resignation**\
+`Chrystia Freeland’s departure raises questions about how sharply Trudeau will counter Trump.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/canada-trudeau-freeland-resignation
+
+**Jeff Bezos Prepares to Close the Gap in His Space Race With Elon Musk**\
+`A new rocket from Mr. Bezos’ company Blue Origin and a satellite system from Amazon could heat up competition with SpaceX, owned by Mr. Musk.`\
+https://nytimes.com/2024/12/17/technology/jeff-bezos-blue-origin-elon-musk.html
+
 **Why Does OpenAI Need So Much Money?**\
 `Building a chatbot like ChatGPT requires billions upon billions of dollars. That’s the driving force behind OpenAI’s plans to change how it’s managed.`\
 https://nytimes.com/2024/12/17/technology/openai-chatgpt-funding.html

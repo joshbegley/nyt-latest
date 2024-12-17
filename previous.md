@@ -1,3 +1,11 @@
+**Worthwhile Canadian Resignation**\
+`Chrystia Freeland’s departure raises questions about how sharply Trudeau will counter Trump.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/canada-trudeau-freeland-resignation
+
+**Jeff Bezos Prepares to Close the Gap in His Space Race With Elon Musk**\
+`A new rocket from Mr. Bezos’ company Blue Origin and a satellite system from Amazon could heat up competition with SpaceX, owned by Mr. Musk.`\
+https://nytimes.com/2024/12/17/technology/jeff-bezos-blue-origin-elon-musk.html
+
 **Why Does OpenAI Need So Much Money?**\
 `Building a chatbot like ChatGPT requires billions upon billions of dollars. That’s the driving force behind OpenAI’s plans to change how it’s managed.`\
 https://nytimes.com/2024/12/17/technology/openai-chatgpt-funding.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/business/economy/trump-tech-h1b-visa.html
 **As the AI race continues, open source models offer a path for all, not just the few.**\
 `Innovators like Dr. Kal Clark are seeking collaborative solutions to age-old problems. In open source AI, they believe they’ve found their answer. `\
 https://nytimes.com/paidpost/2024-meta-ai/2024-meta-ai/opensource-ai-innovation.html
-
-**Arlene Croce, Dance Critic With a Biting Wit, Dies at 90**\
-`Writing for The New Yorker, she was both admired and feared, wielding a sometimes merciless pen. Her study of Fred Astaire and Ginger Rogers drew accolades.`\
-https://nytimes.com/2024/12/17/arts/dance/arlene-croce-dead.html
-
-**A Look Inside Huawei’s Phone Shows How China’s Chip Advance Has Stalled**\
-`An analysis of Huawei’s latest series of smartphones, the Mate 70, found chips that showed little progress from those used in last year’s devices.`\
-https://nytimes.com/2024/12/17/business/huawei-phone-chips-china.html
 
