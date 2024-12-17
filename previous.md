@@ -1,3 +1,7 @@
+**The Unintended Consequences of Tariffs**\
+`The biggest benefits often emerge outside the countries engaged in a trade war.`\
+https://nytimes.com/2024/12/17/briefing/vietnam-china-us-trade-war.html
+
 **Marshon Lattimore's target-free Commanders debut spoke volumes about his impact**\
 `"I just tried to stay calm and get the job done. I did what they needed me to do," Lattimore said following his Washington debut. `\
 https://nytimes.com/athletic/5999743/2024/12/17/marshon-lattimore-debut-commanders-saints/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/podcasts/germany-europe-moscow-school-shooting.ht
 **The Connections Companion No. 556**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 18, 2024.`\
 https://nytimes.com/2024/12/17/crosswords/connections-companion-556.html
-
-**Wordle Review No. 1,278**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 18, 2024.`\
-https://nytimes.com/2024/12/17/crosswords/wordle-review-1278.html
 

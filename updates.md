@@ -1,3 +1,7 @@
+**The Unintended Consequences of Tariffs**\
+`The biggest benefits often emerge outside the countries engaged in a trade war.`\
+https://nytimes.com/2024/12/17/briefing/vietnam-china-us-trade-war.html
+
 **Marshon Lattimore's target-free Commanders debut spoke volumes about his impact**\
 `"I just tried to stay calm and get the job done. I did what they needed me to do," Lattimore said following his Washington debut. `\
 https://nytimes.com/athletic/5999743/2024/12/17/marshon-lattimore-debut-commanders-saints/
