@@ -1,3 +1,7 @@
+**Bracing for a Fed Pullback**\
+`Wall Street sees the central bank cutting interest rates on Wednesday. But growing worries about inflation are adding to investor uncertainty about its policy agenda for 2025.`\
+https://nytimes.com/2024/12/17/business/fed-pullback-rates-inflation.html
+
 **Luis Castillo to Red Sox? Suggesting trades, signings to bolster 6 would-be contenders**\
 `The Reds trade for Luis Robert Jr.? The Braves sign Jack Flaherty? Jim Bowden suggests moves to fill key needs for six would-be contenders. `\
 https://nytimes.com/athletic/6000512/2024/12/17/mlb-trades-signings-offseason-scenarios/

@@ -1,3 +1,7 @@
+**Bracing for a Fed Pullback**\
+`Wall Street sees the central bank cutting interest rates on Wednesday. But growing worries about inflation are adding to investor uncertainty about its policy agenda for 2025.`\
+https://nytimes.com/2024/12/17/business/fed-pullback-rates-inflation.html
+
 **New Berlin Film Festival Director Walks a Tightrope Over Israel**\
 `Can the event’s American-born leader reinvigorate the festival and maintain its commitment to open debate while satisfying German lawmakers?`\
 https://nytimes.com/2024/12/17/movies/tricia-tuttle-berlin-film-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995808/2024/12/17/lakers-trade-season-primer-nba/
 **Marshon Lattimore's target-free Commanders debut spoke volumes about his impact**\
 `"I just tried to stay calm and get the job done. I did what they needed me to do," Lattimore said following his Washington debut. `\
 https://nytimes.com/athletic/5999743/2024/12/17/marshon-lattimore-debut-commanders-saints/
-
-**Mayotte, Cyclone-Hit French Territory, Imposes Curfew as Aid Is Rushed In**\
-`Hundreds are feared dead after the storm razed entire neighborhoods in Mayotte, a series of islands off the eastern coast of Africa.`\
-https://nytimes.com/2024/12/17/world/europe/mayotte-cyclone-chido-curfew-deaths.html
 
