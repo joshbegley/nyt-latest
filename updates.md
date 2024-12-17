@@ -1,3 +1,15 @@
+**Tech Entrepreneur Convicted of Second-Degree Murder in Death of Cash App Founder**\
+`Nima Momeni, 40, was convicted by a San Francisco jury in the fatal stabbing of Bob Lee, a well-known tech executive.`\
+https://nytimes.com/2024/12/17/us/bob-lee-killing-momeni.html
+
+**Harris Urges Young People to ‘Stay in the Fight’**\
+`In her first major speech since conceding defeat, Vice President Kamala Harris expressed optimism for the nation’s future to young voters.`\
+https://nytimes.com/video/us/politics/100000009882734/kamala-harris-maryland-speech.html
+
+**Serial Killer Suspect Rex Heuermann Charged With Seventh Murder**\
+`The killing of Valerie Mack was added to the murder charges against Rex Heuermann, the architect who has pleaded not guilty in the deaths of six women whose remains were mostly found near Gilgo Beach, Long Island.`\
+https://nytimes.com/video/us/100000009882512/gilgo-beach-murders-valerie-mack.html
+
 **Tainted Drinks: How to Protect Yourself While Traveling**\
 `Deaths and hospitalizations of travelers in Laos and Fiji after they consumed drinks containing alcohol have raised concerns about possible methanol poisoning. Here are signs you can look out for.`\
 https://nytimes.com/2024/12/17/travel/methanol-poisoning-travel-protection.html
