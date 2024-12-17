@@ -1,3 +1,11 @@
+**Trump Transition Live Updates: Harris to Address Younger Americans in Maryland**\
+``\
+https://nytimes.com/live/2024/12/17/us/trump-administration-news
+
+**NHL trade board 2.0: Rangers take center stage, plus new targets ahead of the holiday roster freeze**\
+`All eyes are on the Rangers as their tailspin continues, but the Predators, Sabres, Penguins, Red Wings and Islanders also need to reassess.`\
+https://nytimes.com/athletic/5999541/2024/12/17/nhl-trade-board-kreider-frederic-saad/
+
 **NFL Week 15 best and worst coaching decisions: Bills' Joe Brady's great plan vs. Lions**\
 `Also, Liam Coen's Buccaneers offense had no trouble against the Chargers, and DeMeco Ryans' Texans took away a Dolphins strength.`\
 https://nytimes.com/athletic/5997325/2024/12/17/nfl-week-15-worst-best-coaching-decisions-nguyen/
