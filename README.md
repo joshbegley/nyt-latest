@@ -1,3 +1,7 @@
+**The Next Evolution of Cantonese Food**\
+`A wave of new restaurants are challenging diners to go beyond sesame chicken and crab Rangoon.`\
+https://nytimes.com/2024/12/17/t-magazine/the-next-evolution-of-cantonese-food.html
+
 **Gas Exports Pose Some Risks to U.S. Economy and Environment, Study Says**\
 `The long-awaited study was criticized by the oil and gas industry and could help environmental groups that want to stop new export terminals.`\
 https://nytimes.com/2024/12/17/climate/natural-gas-lng-export-risks-united-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6001651/2024/12/17/rangers-kaapo-kakko-benching-fru
 **Judge in Adams Corruption Case Upholds Bribery Charge Against the Mayor**\
 `Lawyers for Mayor Eric Adams of New York had asked for the bribery charge to be thrown out, but the judge was not persuaded.`\
 https://nytimes.com/2024/12/17/nyregion/adams-bribery-corruption-case-judge.html
-
-**Suit Accuses Georgetown, Penn and M.I.T. of Admissions Based on Wealth**\
-`The schools were accused of giving special treatment to wealthy students who might not otherwise have been admitted.`\
-https://nytimes.com/2024/12/17/us/lawsuit-georgetown-wealthy-students-admissions.html
 
