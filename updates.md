@@ -1,3 +1,7 @@
+**The state of scouting: Data culture clash, job cuts and an uncertain future**\
+`The Athletic has canvassed the views of 40 scouts from across the Premier League and EFL to test the temperature of the industry`\
+https://nytimes.com/athletic/5998007/2024/12/17/premier-league-scouts-data-future/
+
 **Germany Doesn’t Feel Like Germany Anymore**\
 `The economically prosperous, socially cohesive and politically stable country has gone.`\
 https://nytimes.com/2024/12/17/opinion/germany-scholz-government-election.html
