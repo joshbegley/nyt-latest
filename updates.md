@@ -1,3 +1,15 @@
+**Rashford on potential Man Utd exit: 'I'm ready for a new challenge'**\
+`Marcus Rashford has spoken of the possibility of leaving Manchester United by saying he is &#8220;ready for a new challenge&#8221;.`\
+https://nytimes.com/athletic/6001641/2024/12/17/marcus-rashford-manchester-united-future-exit/
+
+**Armed Services Committee Democrats call allegations against Hegseth disqualifying**\
+`A group of Democrats told President-elect Donald J. Trump’s chief of staff that his pick to lead the Pentagon is unfit because he faces charges of sexual misconduct and opposes women serving in combat.`\
+https://nytimes.com/live/2024/12/17/us/trump-administration-news/armed-services-committee-democrats-call-allegations-against-hegseth-disqualifying
+
+**New U.S. Vehicles Must Have Rear Seatbelt Alarms by Late 2027**\
+`The National Highway Traffic Safety Administration changed an existing rule to expand and enhance seatbelt warning requirements.`\
+https://nytimes.com/2024/12/17/us/rear-seat-belt-warning-rule.html
+
 **Why Optimism for a Cease-Fire in Gaza Is Rising**\
 `The pace of peace talks has picked up, pushed by multiple factors, including wars in Lebanon and Syria that have seriously weakened Hamas’s allies, and election victory of Donald J. Trump.`\
 https://nytimes.com/2024/12/17/world/middleeast/gaza-israel-hamas-cease-fire.html
