@@ -1,3 +1,11 @@
+**Abundant Life’s Precautions ‘Helped Keep Students Safe,’ Official Says**\
+`Training and precautions taken by the Christian school in Wisconsin may have prevented the shooter from harming even more people, officials said.`\
+https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-security.html
+
+**Cubs takeaways after the Kyle Tucker trade: Is Jesús Luzardo the next move?**\
+`Notes on the Cubs landing a star, their new free-agent pitcher scouting them, the team's catching situation and more.`\
+https://nytimes.com/athletic/6000151/2024/12/16/cubs-kyle-tucker-trade-jesus-luzardo/
+
 **Justice Dept. Charges 2 Men in Deadly Drone Attack on U.S. Soldiers**\
 `The men are accused of supplying key parts in Iranian drones that killed three U.S. service members and injured dozens of others at an American military base in Jordan.`\
 https://nytimes.com/2024/12/16/us/politics/jordan-drone-attack-soldiers-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/16/us/abundant-life-christian-school-shooting.html
 **Florida Man Is Sentenced to Death for Killing 5 Women in a Bank in 2019**\
 `The man, Zephen Xaver, 27, will have his case automatically appealed to the Florida Supreme Court.`\
 https://nytimes.com/2024/12/16/us/florida-man-sentenced-bank-killing.html
-
-**NPB's Tomoyuki Sugano, Orioles in agreement on 1-year deal: Source**\
-`Suagno is one of the most accomplished NPB pitchers of his generation. `\
-https://nytimes.com/athletic/5999952/2024/12/16/tomoyuki-sugano-baltimore-orioles-deal/
-
-**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
-`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
-https://nytimes.com/athletic/5891633/2024/12/16/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
 
