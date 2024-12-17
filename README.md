@@ -1,3 +1,7 @@
+**7.3-Magnitude Earthquake Near Vanuatu Triggers Tsunami Alert**\
+`Forecasters said tsunami waves hitting the coastline of the Pacific Island nation could reach up to a meter, or 3.2 feet, above the tide level.`\
+https://nytimes.com/2024/12/16/world/asia/vanuatu-earthquake-tsunami.html
+
 **Corrections: Dec. 17, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 17, 2024.`\
 https://nytimes.com/2024/12/16/pageoneplus/corrections-dec-17-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/16/nyregion/stowaway-flight-paris-canada-arrest.html
 **Review: In ‘Eureka Day,’ Holding Space for Those You Hate**\
 `A hilarious new Broadway production asks: Can the superwoke vaxxers and anti-vaxxers at an elite private school learn to get along?`\
 https://nytimes.com/2024/12/16/theater/eureka-day-review-broadway.html
-
-**49ers' Nick Bosa says De'Vondre Campbell was acting up before Thursday's game**\
-`Bosa on Monday shared strong opinions about the 49ers defense and coordinator Nick Sorensen — he wants the status quo in 2025.`\
-https://nytimes.com/athletic/5999824/2024/12/16/49ers-nick-bosa-devondre-campbell-quit-suspended/
 
