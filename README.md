@@ -1,3 +1,7 @@
+**‘Emilia Pérez’ Makes a Strong Showing on the Oscar Shortlists**\
+`The musical appears twice for best song, along with big names like Pharrell Williams and Elton John. “Wicked” is potentially up for best score.`\
+https://nytimes.com/2024/12/17/movies/wicked-oscars-shortlist-pharrell-williams-emilia-perez.html
+
 **The Next Evolution of Cantonese Food**\
 `A wave of new restaurants are challenging diners to go beyond sesame chicken and crab Rangoon.`\
 https://nytimes.com/2024/12/17/t-magazine/the-next-evolution-of-cantonese-food.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/us/politics/trump-sues-des-moines-register.html
 **Kaapo Kakko expresses frustration with benching in another dramatic Rangers day: 'I have not been the worst'**\
 `Also Tuesday, asked directly if he's concerned about his job security, coach Peter Laviolette said, "Those are things I can't control."`\
 https://nytimes.com/athletic/6001651/2024/12/17/rangers-kaapo-kakko-benching-frustration/
-
-**Judge in Adams Corruption Case Upholds Bribery Charge Against the Mayor**\
-`Lawyers for Mayor Eric Adams of New York had asked for the bribery charge to be thrown out, but the judge was not persuaded.`\
-https://nytimes.com/2024/12/17/nyregion/adams-bribery-corruption-case-judge.html
 
