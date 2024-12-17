@@ -1,3 +1,15 @@
+**Worrying Signs From the Arctic**\
+`Scientists are seeing changes that could have consequences for the whole planet.`\
+https://nytimes.com/2024/12/17/climate/worrying-signs-arctic.html
+
+**How Much Progress Have Women Made at Work?**\
+`At the DealBook Summit, nine prominent female leaders set out to answer the question, “Why aren’t there more women at the top levels of corporate America?”`\
+https://nytimes.com/2024/12/17/business/dealbook/women-progress-work.html
+
+**This Brazilian Velvet Ant Is So Dark That It’s Ultrablack**\
+`Scientists found that the dark markings on a species of fluffy wasp reflected less than 1 percent of light.`\
+https://nytimes.com/2024/12/17/science/ultrablack-velvet-ant-brazil.html
+
 **Mangione Faces First-Degree Murder Charge That Brands Him a Terrorist**\
 `A grand jury formally indicted Luigi Mangione in the killing of Brian Thompson, the chief executive of UnitedHealthcare.`\
 https://nytimes.com/2024/12/17/nyregion/mangione-first-degree-murder-terrorism.html
