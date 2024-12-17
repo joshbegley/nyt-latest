@@ -1,4 +1,4 @@
-**Vermont beats Marshall to win programfirst men's NCAA soccer title**\
+**Vermont beats Marshall to win program's first men's NCAA soccer title**\
 `Vermont beat Marshall 2-1 in overtime, bringing the Catamounts their first national title in a team sport.`\
 https://nytimes.com/athletic/6000247/2024/12/17/vermont-ncaa-mens-soccer-championship/
 
