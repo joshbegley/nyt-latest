@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5998540/2024/12/17/liverpool-diogo-jota-darwin-nune
 https://nytimes.com/athletic/6000247/2024/12/17/vermont-ncaa-mens-soccer-championship/
 
 **Falcons keep playoff hopes alive with 15-9 win vs. Raiders: Takeaways**\
-`The Raiders moved closer to the No. 1 pick in the 2025 NFL Draft over the New York Giants.`\
+`The Raiders moved closer to the No. 1 pick in the 2025 NFL Draft in their battle with the New York Giants.`\
 https://nytimes.com/athletic/5999454/2024/12/17/falcons-raiders-mnf-doubleheader-score-result-takeaways/
 
 **The state of scouting: Data culture clash, job cuts and an uncertain future**\

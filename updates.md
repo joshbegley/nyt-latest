@@ -1,3 +1,7 @@
+**Falcons keep playoff hopes alive with 15-9 win vs. Raiders: Takeaways**\
+`The Raiders moved closer to the No. 1 pick in the 2025 NFL Draft in their battle with the New York Giants.`\
+https://nytimes.com/athletic/5999454/2024/12/17/falcons-raiders-mnf-doubleheader-score-result-takeaways/
+
 **New York City Water Main Break Floods Streets in the Bronx**\
 `Some cars were submerged by the rising water. Emergency workers were working overnight to identify the source of the break.`\
 https://nytimes.com/2024/12/17/us/water-main-break-bronx-nyc.html
