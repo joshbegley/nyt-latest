@@ -1,3 +1,23 @@
+**Aaron Rodgers, an Aching Achilles and Ayahuasca**\
+`A documentary about Rodgers, the 41-year-old quarterback, delves into drugs, religion and politics (and yes, that’s Robert F. Kennedy Jr.).`\
+https://nytimes.com/2024/12/17/arts/television/aaron-rodgers-enigma-rfk-ayahuasca.html
+
+**Holiday Break**\
+`How will you spend your time off from school?`\
+https://nytimes.com/2024/12/17/learning/holiday-break.html
+
+**As Adams and Trump Get Cozier, Some N.Y. Republicans Recoil**\
+`Donald J. Trump is speaking sympathetically about Mayor Eric Adams, but Republicans in New York still view the mayor with skepticism.`\
+https://nytimes.com/2024/12/17/nyregion/adams-trump-republican.html
+
+**‘Life-Changing’ Psychedelics, for When Life Is Ending**\
+`People are turning to psilocybin, ketamine and other treatments for palliative care.`\
+https://nytimes.com/2024/12/17/health/psychedelic-medicine-palliative-care-end-of-life.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/17/crosswords/spelling-bee-forum.html
+
 **The Germany We Knew Is Gone**\
 `The economically prosperous, socially cohesive and politically stable country is no longer itself.`\
 https://nytimes.com/2024/12/17/opinion/germany-scholz-government-election.html
