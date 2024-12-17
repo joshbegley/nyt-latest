@@ -1,3 +1,23 @@
+**'He's special, man': Packers rookie Edgerrin Cooper looks like a star in the making**\
+`Cooper, the 2024 second-round pick, had the best game of his young career against the Seahawks on Sunday night.`\
+https://nytimes.com/athletic/6000048/2024/12/17/packers-rookie-edgerrin-cooper/
+
+**Syria Unearths Years of Atrocities**\
+`After the fall of Bashar al-Assad’s regime, tens of thousands have been released from his brutal prisons. This is the story of one man who made it out.`\
+https://nytimes.com/2024/12/17/podcasts/the-daily/syria-prisons.html
+
+**A Perilous Time for Europe, and a Brazen Assassination in Moscow**\
+`Plus, a school shooting in Wisconsin.`\
+https://nytimes.com/2024/12/17/podcasts/germany-europe-moscow-school-shooting.html
+
+**The Connections Companion No. 556**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 18, 2024.`\
+https://nytimes.com/2024/12/17/crosswords/connections-companion-556.html
+
+**Wordle Review No. 1,278**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 18, 2024.`\
+https://nytimes.com/2024/12/17/crosswords/wordle-review-1278.html
+
 **Cunha charged with misconduct after Ipswich altercation**\
 `Wolverhampton Wanderers striker Matheus Cunha has been charged by the Football Association (FA) following an altercation with an Ipswich Town security guard after their Premier League game on Saturday.`\
 https://nytimes.com/athletic/5997838/2024/12/17/wolves-cunha-charge-fa/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5989627/2024/12/17/bucks-giannis-antetokounmpo-one-
 **Howe rules out Miley January loan: 'He’s too important to lose'**\
 `Eddie Howe will not allow Lewis Miley to leave Newcastle United on loan in January, saying the England Under-21 international “is too important for us” to lose.`\
 https://nytimes.com/athletic/6000518/2024/12/17/lewis-miley-loan-newcastle-howe/
-
-**Slot hints at creative Liverpool backline amid defensive absences**\
-`Arne Slot says he could use a combination of academy players and creativity to solve Liverpool’s lack of defensive options ahead of the Carabao Cup quarter-final tie against Southampton.`\
-https://nytimes.com/athletic/6000527/2024/12/17/liverpool-team-news-southampton-slot/
-
-**Who's the best player in the College Football Playoff at each position?**\
-`Who makes the College Football Playoff's All-22 team? The exercise is as hard as any we've done.`\
-https://nytimes.com/athletic/5996767/2024/12/17/college-football-playoff-best-players-by-position/
-
-**Men and Women Are Politically Divided. There Is Much More to It Than That.**\
-`The declining ability of many boys and men to compete at school and in the workplace has become both a social and a political issue.`\
-https://nytimes.com/2024/12/17/opinion/men-women-boys-girls-politics.html
-
-**Nate Bargatze Wants Your Family to Stop Fighting for an Hour. Maybe Two.**\
-`On a CBS Christmas special and a new stand-up hour for Netflix, the comic keeps audiences connected by finding the magic in deliberately quotidian subjects.`\
-https://nytimes.com/2024/12/17/arts/television/nate-bargatze-christmas-special-comedy.html
-
-**Cafes Can’t Play Music, but the Water Taps Work: Life Under Syria’s Rebels**\
-`The Islamists who now lead Syria have ruled the city of Idlib for years. Residents say they imposed some strict laws, but also heeded some complaints and improved public services.`\
-https://nytimes.com/2024/12/17/world/middleeast/cafes-cant-play-music-but-the-water-taps-work-life-under-syrias-rebels.html
 
