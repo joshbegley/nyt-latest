@@ -1,3 +1,11 @@
+**Gas Exports Pose Some Risks to U.S. Economy and Environment, Study Says**\
+`The long-awaited study was criticized by the oil and gas industry and could help environmental groups that want to stop new export terminals.`\
+https://nytimes.com/2024/12/17/climate/natural-gas-lng-export-risks-united-states.html
+
+**Video Captures Moment That Blast Killed Russian General**\
+`A video clip that recorded the assassination of Igor Kirillov, a high-ranking general, gives a few clues about the power and the placement of the explosive device.`\
+https://nytimes.com/2024/12/17/world/europe/russian-general-assassination-igor-kirillov-video.html
+
 **With Sports Gambling Surging, Federal Regulation Is Discussed**\
 `With the industry’s popularity on the rise, the Senate Judiciary Committee held a hearing to discuss its effect on athletes, the public and the integrity of games.`\
 https://nytimes.com/2024/12/17/business/sports-betting-federal-regulation.html
