@@ -15,7 +15,7 @@ https://nytimes.com/2024/12/17/sports/autoracing/f1-tracks-circuits-best.html
 https://nytimes.com/video/world/europe/100000009881928/bomb-kills-russian-military-general-in-moscow.html
 
 **Syria’s Rebel Leader Vows to Disband Armed Factions**\
-`In the latest effort to present an image of stability, the leader of the rebel coalition that swept to power over a week ago said armed groups would be dissolved. It was not immediately clear how that would be achieved.`\
+`The leader of the rebel coalition that swept to power last week said that fighters would be brought under the defense ministry’s authority. It was not immediately clear how that would be achieved.`\
 https://nytimes.com/2024/12/17/world/middleeast/syria-government-al-shara.html
 
 **Behind Germany’s Political Turmoil, a Stagnating Economy**\
