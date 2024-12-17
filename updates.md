@@ -1,3 +1,7 @@
+**Netanyahu Travels to Israeli-Controlled Syria, His Office Says**\
+`The previously unannounced trip highlighted Israel’s new military presence across the de facto border with Syria since the fall of Bashar al-Assad.`\
+https://nytimes.com/2024/12/17/world/middleeast/17syria-israel-netanyahu.html
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/12/17/opinion/thepoint
