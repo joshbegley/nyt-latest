@@ -1,3 +1,11 @@
+**Tainted Drinks: How to Protect Yourself While Traveling**\
+`Deaths and hospitalizations of travelers in Laos and Fiji after they consumed drinks containing alcohol have raised concerns about possible methanol poisoning. Here are signs you can look out for.`\
+https://nytimes.com/2024/12/17/travel/methanol-poisoning-travel-protection.html
+
+**The blame for yet another mediocre Colts season falls on GM Chris Ballard's shoulders**\
+`DeForest Buckner re-signed with the Colts, in part, because he believed in what Ballard was building. Maybe he should have known better. `\
+https://nytimes.com/athletic/6001079/2024/12/17/colts-chris-ballard-mediocre/
+
 **British Authorities Criticized Over Sewage Spills in Public Waterways**\
 `The condemnation by a watchdog comes as England’s largest water company asks for an emergency loan and the nation wrestles with water pollution.`\
 https://nytimes.com/2024/12/17/business/britain-sewage-thames-water-spills.html

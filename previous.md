@@ -1,3 +1,7 @@
+**Tainted Drinks: How to Protect Yourself While Traveling**\
+`Deaths and hospitalizations of travelers in Laos and Fiji after they consumed drinks containing alcohol have raised concerns about possible methanol poisoning. Here are signs you can look out for.`\
+https://nytimes.com/2024/12/17/travel/methanol-poisoning-travel-protection.html
+
 **British Authorities Criticized Over Sewage Spills in Public Waterways**\
 `The condemnation by a watchdog comes as England’s largest water company asks for an emergency loan and the nation wrestles with water pollution.`\
 https://nytimes.com/2024/12/17/business/britain-sewage-thames-water-spills.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/12/17/us/politics/harris-speech-future.html
 `Want to impress with a glistening, delicious centerpiece this holiday season? This miso-marinated pork will stay juicy no matter what.`\
 https://nytimes.com/2024/12/17/dining/holiday-roast-pork.html
 
+**The blame for yet another mediocre Colts season falls on GM Chris Ballard's shoulders**\
+`DeForest Buckner re-signed with the Colts, in part, because he believed in what Ballard was building. Maybe he should have known better. `\
+https://nytimes.com/athletic/6001079/2024/12/17/colts-chris-ballard-mediocre/
+
 **A New Richard Foreman Play Puts a Twist on His Metaphysical Puzzles**\
 `New York theater’s elder statesman of the avant-garde brings “Suppose Beautiful Madeline Harvey” to the stage, hist first new work in over a decade.`\
 https://nytimes.com/2024/12/17/theater/richard-foreman-suppose-beautiful-madeline-harvey.html
-
-**Pre-emptive Pardons, Wanted or Not**\
-`Responses to a guest essay by Sarah Isgur, who is on Kash Patel’s enemies list. Also: A strategy intended to prevent suicides; a renewal of hope.`\
-https://nytimes.com/2024/12/17/opinion/trump-biden-kash-patel-pardons.html
-
-**Worthwhile Canadian Resignation**\
-`Chrystia Freeland’s departure raises questions about how sharply Trudeau will counter Trump.`\
-https://nytimes.com/2024/12/17/opinion/canada-trudeau-freeland-resignation.html
 
