@@ -1,10 +1,18 @@
+**Richard W. Murphy, Career Diplomat and Mideast Expert, Dies at 90**\
+`As a State Department Arabist, he served as ambassador to three Arab countries, and helped broker the end of a 15-year civil war in Lebanon.`\
+https://nytimes.com/2024/12/17/us/politics/richard-w-murphy-dead.html
+
+**Commanders-Falcons flexed to 'Sunday Night Football' in Week 17**\
+`The NBC telecast will kickoff at 8:20 p.m. ET from Northwest Stadium in Landover, Md.`\
+https://nytimes.com/athletic/6001471/2024/12/17/commanders-falcons-week-17-flex/
+
 **Elon Musk and SpaceX Face Federal Reviews After Violations of Security Reporting Rules**\
 `Federal agencies have opened at least three reviews into whether the company and its leader complied with disclosure protocols intended to protect state secrets, people with knowledge of the matter said.`\
 https://nytimes.com/2024/12/17/technology/elon-musk-spacex-national-security-reporting.html
 
 **Tech Entrepreneur Convicted of Second-Degree Murder in Death of Cash App Founder**\
 `Nima Momeni, 40, was convicted by a San Francisco jury in the fatal stabbing of Bob Lee, a well-known tech executive.`\
-https://nytimes.com/2024/12/17/us/bob-lee-killing-momeni.html
+https://nytimes.com/2024/12/17/us/nima-momeni-verdict-bob-lee-killing.html
 
 **Harris Urges Young People to ‘Stay in the Fight’**\
 `In her first major speech since conceding defeat, Vice President Kamala Harris expressed optimism for the nation’s future to young voters.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6001382/2024/12/17/leafs-anthony-stolarz-knee-injur
 **A Grisly Discovery at a Bronze Age Mass Grave: The Victims Were Eaten, Too**\
 `“It’s taken us all aback,” said a professor who led a study revealing that 37 people in a prehistoric site in England were likely consumed by their attackers.`\
 https://nytimes.com/2024/12/17/science/earth/bronze-age-skeleton-cannibals.html
-
-**Explaining Mudryk's drugs ban: What is meldonium - and possible punishments**\
-`Breaking down what has happened with Ukrainian's failed doping test and what could come next`\
-https://nytimes.com/athletic/6000684/2024/12/17/mykhailo-mudryk-chelsea-drug-ban-meldonium-punishment/
-
-**What Kennedy Has Said About the Polio Vaccine in Recent Years**\
-`President-elect Donald Trump’s choice for health secretary has suggested that the polio vaccine cost more lives than it saved and that the vaccine did not wipe out the disease in the U.S.`\
-https://nytimes.com/2024/12/17/health/robert-f-kennedy-jr-polio-vaccines.html
 
