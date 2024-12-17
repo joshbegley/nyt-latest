@@ -1,3 +1,7 @@
+**Sirens, then an excruciating wait for school families.**\
+`By Annie Correal`\
+https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/abundant-life-christian-school-shooting
+
 **Florida Man Is Sentenced to Death for Killing 5 Women in a Bank in 2019**\
 `The man, Zephen Xaver, 27, will have his case automatically appealed to the Florida Supreme Court.`\
 https://nytimes.com/2024/12/16/us/florida-man-sentenced-bank-killing.html
