@@ -1,3 +1,11 @@
+**Ocasio-Cortez Loses Vote to Be the Top Democrat on Oversight Panel**\
+`The New York progressive’s defeat was a counterpoint to generational change in the Democratic ranks, as House members chose younger members to lead other committees.`\
+https://nytimes.com/2024/12/17/us/politics/ocasio-cortez-oversight-connolly.html
+
+**The protective supplies your trading card collection can't be without**\
+`Protecting your trading cards means knowing what supplies are best for your collection. `\
+https://nytimes.com/athletic/6001114/2024/12/17/best-sports-trading-card-supplies/
+
 **Super Bowl odds: A new tier emerges without the Chiefs**\
 `The Lions, Bills and Eagles form a top tier in odds to win the Super Bowl with the Chiefs out of the top two for the first time this season.`\
 https://nytimes.com/athletic/6001172/2024/12/17/super-bowl-odds-week-16-eagles-bills-lions/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009882512/gilgo-beach-murders-valerie-mack.ht
 **Tainted Drinks: How to Protect Yourself While Traveling**\
 `Deaths and hospitalizations of travelers in Laos and Fiji after they consumed drinks containing alcohol have raised concerns about possible methanol poisoning. Here are signs you can look out for.`\
 https://nytimes.com/2024/12/17/travel/methanol-poisoning-travel-protection.html
-
-**British Authorities Criticized Over Sewage Spills in Public Waterways**\
-`The condemnation by a watchdog comes as England’s largest water company asks for an emergency loan and the nation wrestles with water pollution.`\
-https://nytimes.com/2024/12/17/business/britain-sewage-thames-water-spills.html
-
-**Leafs goalie Anthony Stolarz out 4-6 weeks with knee injury**\
-`Stolarz is undergoing a “procedure” in New York on Wednesday to repair the issue, GM Brad Treliving said.`\
-https://nytimes.com/athletic/6001382/2024/12/17/leafs-anthony-stolarz-knee-injury/
 
