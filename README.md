@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5998550/2024/12/17/george-kittle-49ers-tattoos-mind
 `Surveys taken since Donald Trump’s win show a resurgent faith among the president-elect’s supporters, and little Democratic appetite for conspiracy theories.`\
 https://nytimes.com/2024/12/17/us/politics/republicans-elections-trust-trump.html
 
+**Inside Russell Martin's Southampton downfall - and the reluctant decision to sack him**\
+`Southampton did not want to have to make the call to part ways with their manager but in the end they had little choice`\
+https://nytimes.com/athletic/6000531/2024/12/17/russell-martin-inside-southampton-sacking/
+
 **The Unintended Consequences of Tariffs**\
 `The biggest benefits often emerge outside the countries engaged in a trade war.`\
 https://nytimes.com/2024/12/17/briefing/vietnam-china-us-trade-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5999097/2024/12/17/rodrigo-bentancur-appeal-ban-tot
 **'He's special, man': Packers rookie Edgerrin Cooper looks like a star in the making**\
 `Cooper, the 2024 second-round pick, had the best game of his young career against the Seahawks on Sunday night.`\
 https://nytimes.com/athletic/6000048/2024/12/17/packers-rookie-edgerrin-cooper/
-
-**Syria Unearths Years of Atrocities**\
-`After the fall of Bashar al-Assad’s regime, tens of thousands have been released from his brutal prisons. This is the story of one man who made it out.`\
-https://nytimes.com/2024/12/17/podcasts/the-daily/syria-prisons.html
 
