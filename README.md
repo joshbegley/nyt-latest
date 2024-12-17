@@ -1,3 +1,15 @@
+**Marshon Lattimore's target-free Commanders debut spoke volumes about his impact**\
+`"I just tried to stay calm and get the job done. I did what they needed me to do," Lattimore said following his Washington debut. `\
+https://nytimes.com/athletic/5999743/2024/12/17/marshon-lattimore-debut-commanders-saints/
+
+**Mayotte, Cyclone-Hit French Territory, Imposes Curfew as Aid Is Rushed In**\
+`Hundreds are feared dead after the storm razed entire neighborhoods in Mayotte, a series of islands off the eastern coast of Africa.`\
+https://nytimes.com/2024/12/17/world/europe/mayotte-cyclone-chido-curfew-deaths.html
+
+**Mudryk, the Chelsea winger who arrived as a £62m victory - but is now facing failed test**\
+`Mykhailo Mudryk failed a drugs test, but his entire time at Chelsea has been difficult`\
+https://nytimes.com/athletic/5999033/2024/12/17/mykhailo-mudryk-chelsea-doping-test-analysis/
+
 **Pereira travels to UK after agreeing Wolves deal**\
 `Vitor Pereira has travelled to the UK today to take over as Wolverhampton Wanderers head coach after agreeing a one-and-a-half-year deal.`\
 https://nytimes.com/athletic/6000599/2024/12/17/vitor-pereira-wolves-deal/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/17/crosswords/connections-companion-556.html
 **Wordle Review No. 1,278**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 18, 2024.`\
 https://nytimes.com/2024/12/17/crosswords/wordle-review-1278.html
-
-**Cunha charged with misconduct after Ipswich altercation**\
-`Wolverhampton Wanderers striker Matheus Cunha has been charged by the Football Association (FA) following an altercation with an Ipswich Town security guard after their Premier League game on Saturday.`\
-https://nytimes.com/athletic/5997838/2024/12/17/wolves-cunha-charge-fa/
-
-**Chelsea's Mudryk tests positive for banned substance**\
-`Chelsea winger Mykhailo Mudryk has tested positive for a banned substance.`\
-https://nytimes.com/athletic/5998614/2024/12/17/mykhailo-mudryk-doping-meldonium-chelsea/
-
-**NBA Trade Board: Jimmy Butler, Cam Johnson and the top 30 names on the market**\
-`The race to the Feb. 6 deadline has started as teams figure out exactly what their aspirations are.`\
-https://nytimes.com/athletic/5967281/2024/12/17/nba-trade-board-jimmy-butler-zach-lavine-cam-johnson/
 
