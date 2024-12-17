@@ -1,3 +1,7 @@
+**Justice Dept. Charges 2 Men in Deadly Drone Attack on U.S. Soldiers**\
+`The men are accused of supplying key parts in Iranian drones that killed three U.S. service members and injured dozens of others at an American military base in Jordan.`\
+https://nytimes.com/2024/12/16/us/politics/jordan-drone-attack-soldiers-iran.html
+
 **Possible, but Not Looking Good**\
 `Kathy Lowden makes a few changes.`\
 https://nytimes.com/2024/12/16/crosswords/daily-puzzle-2024-12-17.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5999952/2024/12/16/tomoyuki-sugano-baltimore-oriole
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
 https://nytimes.com/athletic/5891633/2024/12/16/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
-
-**Woman Who Stowed Away on Paris Flight Tries to Flee by Bus to Canada**\
-`The woman, Svetlana Dali, had been ordered to wear an ankle monitor after her arrest, but she cut it off and boarded a bus, a law enforcement official said.`\
-https://nytimes.com/2024/12/16/nyregion/stowaway-flight-paris-canada-arrest.html
 
