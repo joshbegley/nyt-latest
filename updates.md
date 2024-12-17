@@ -1,3 +1,7 @@
+**The Athletic FC: Mudryk tests positive for banned substance, will Olmo leave Barca for free?**\
+`Today in TAFC: Mudryk tests positive for banned substance, Wolves a step closer to a new coach, will Olmo leave Barcelona next month?`\
+https://nytimes.com/athletic/6000674/2024/12/17/mudryk-drug-test-olmo-barcelona-free/
+
 **New Berlin Film Festival Director Walks a Tightrope Over Israel**\
 `Can the event’s American-born leader reinvigorate the festival and maintain its commitment to open debate while satisfying German lawmakers?`\
 https://nytimes.com/2024/12/17/movies/tricia-tuttle-berlin-film-festival.html
