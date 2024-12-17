@@ -1,3 +1,7 @@
+**‘Emilia Pérez’ Makes a Strong Showing on the Oscar Shortlists**\
+`The musical appears twice for best song, along with big names like Pharrell Williams and Elton John. “Wicked” is potentially up for best score.`\
+https://nytimes.com/2024/12/17/movies/wicked-oscars-shortlist-pharrell-williams-emilia-perez.html
+
 **The Next Evolution of Cantonese Food**\
 `A wave of new restaurants are challenging diners to go beyond sesame chicken and crab Rangoon.`\
 https://nytimes.com/2024/12/17/t-magazine/the-next-evolution-of-cantonese-food.html
