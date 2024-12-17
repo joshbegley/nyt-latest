@@ -1,3 +1,7 @@
+**‘Bluey’ Is Headed to Theaters, Backed by Disney**\
+`BBC Studios and the Walt Disney Company will collaborate on a movie about the hit children’s character.`\
+https://nytimes.com/2024/12/17/business/bluey-movie-disney-bbc.html
+
 **Antonio Pierce failing to show progress as Raiders fall victim to familiar issues vs. Falcons**\
 `Progress has continued to elude the Raiders, and Pierce hasn’t given fans much reason to believe he’s capable of making things better.`\
 https://nytimes.com/athletic/6000334/2024/12/17/antonio-pierce-raiders-falcons-progress/
