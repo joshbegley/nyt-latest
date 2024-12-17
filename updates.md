@@ -1,3 +1,7 @@
+**Syria’s Rebel Leader Vows to Disband Armed Factions**\
+`The leader of the rebel coalition that swept to power last week said that fighters would be brought under the defense ministry’s authority. It was not immediately clear how that would be achieved.`\
+https://nytimes.com/2024/12/17/world/middleeast/syria-government-al-shara.html
+
 **An Exciting F1 Season That Had No Dominant Player**\
 `Max Verstappen won the title again, but it was a fight, as was the team championship, taken by McLaren at the last race.`\
 https://nytimes.com/2024/12/17/sports/autoracing/f1-season-champions.html
