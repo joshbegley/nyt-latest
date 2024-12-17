@@ -1,3 +1,7 @@
+**New Protections for Travelers Flying With Wheelchairs Are Coming Soon**\
+`The Transportation Department has expanded the rights of airline passengers with mobility disabilities. The first changes will go into effect next month.`\
+https://nytimes.com/2024/12/17/travel/airlines-wheelchairs-mobility-scooters.html
+
 **Disney Pulls Transgender Story Line From New Series**\
 `The animated “Win or Lose” follows a middle school softball team, and each episode is told from the perspective of a different character.`\
 https://nytimes.com/2024/12/17/business/media/disney-pixar-win-or-lose.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6001560/2024/12/17/chiefs-patrick-mahomes-ankle-inj
 **Mets notes: Juan Soto has 'a chance to be really good' in field, Clay Holmes' innings, more**\
 `There's room for improvement in Soto's defense, the team's internal options for a utility role, an under-the-radar signing and more.`\
 https://nytimes.com/athletic/6001656/2024/12/17/mets-juan-soto-defense-improvement-clay-holmes/
-
-**Gun Violence at Schools Has Risen Since the Pandemic**\
-`But mass shootings remain a rare occurrence. Only a small fraction of the nation’s nearly 130,000 schools report gun incidents each year.`\
-https://nytimes.com/2024/12/17/us/gun-violence-school-shootings-pandemic.html
 

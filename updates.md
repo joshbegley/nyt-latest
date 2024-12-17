@@ -1,3 +1,7 @@
+**New Protections for Travelers Flying With Wheelchairs Are Coming Soon**\
+`The Transportation Department has expanded the rights of airline passengers with mobility disabilities. The first changes will go into effect next month.`\
+https://nytimes.com/2024/12/17/travel/airlines-wheelchairs-mobility-scooters.html
+
 **Disney Pulls Transgender Story Line From New Series**\
 `The animated “Win or Lose” follows a middle school softball team, and each episode is told from the perspective of a different character.`\
 https://nytimes.com/2024/12/17/business/media/disney-pixar-win-or-lose.html
