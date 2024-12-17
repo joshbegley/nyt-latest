@@ -1,3 +1,11 @@
+**Matilda Djerf Apologizes Amid Claims of Workplace Toxicity**\
+`The popular Swedish influencer began a fashion brand in 2019. Some employees say working there wasn’t as great as it looked on social media.`\
+https://nytimes.com/2024/12/17/style/matilda-djerf-apology.html
+
+**Some of New York’s Best Pastry (and Plenty More) Is in Astoria**\
+`Levant, in Little Egypt, is an impressive addition to Steinway Street, a thoroughfare already thick with fascinating food choices.`\
+https://nytimes.com/2024/12/17/dining/levant-nyc-restaurant-review.html
+
 **Monday Briefing: Ukraine says it killed a Russian General**\
 `Plus, the search for a van Gogh masterpiece.`\
 https://nytimes.com/2024/12/17/briefing/ukraine-russia-syria-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/world/middleeast/syria-rebels-government-israel.h
 **What’s Mitchell-Lama? Timothée Chalamet (Kind of) Explains**\
 `The actor’s family were the beneficiaries of a New York State housing program aimed at middle-income residents.`\
 https://nytimes.com/2024/12/17/realestate/timothee-chalamet-mitchell-lama.html
-
-**NBA makes mini-tournament format official ahead of 2025 All-Star Game**\
-`TNT’s three analysts, Charles Barkley, Kenny Smith and Shaquille O’Neal, will serve as general managers for the three All-Star teams.`\
-https://nytimes.com/athletic/6001685/2024/12/17/nba-mini-tournament-format-2025-all-star-game/
-
-**Trump Sues The Des Moines Register, Escalating Threats Against the Media**\
-`President-elect Donald J. Trump has said he would use his power to punish people he claims have wronged him. Those goals are now coming into focus.`\
-https://nytimes.com/2024/12/17/us/politics/trump-sues-des-moines-register.html
 
