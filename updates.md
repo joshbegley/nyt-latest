@@ -1,3 +1,7 @@
+**'Howdy!' A journey down the inked arms — and into the lively mind — of George Kittle**\
+`Kittle, a 'Lord of the Rings' devotee, sees life and an NFL season through that lens. On Thursday, he was channeling his inner Sauron.`\
+https://nytimes.com/athletic/5998550/2024/12/17/george-kittle-49ers-tattoos-mind/
+
 **After Trump’s Victory, Republicans Trust the Election System Again**\
 `Surveys taken since Donald Trump’s win show a resurgent faith among the president-elect’s supporters, and little Democratic appetite for conspiracy theories.`\
 https://nytimes.com/2024/12/17/us/politics/republicans-elections-trust-trump.html

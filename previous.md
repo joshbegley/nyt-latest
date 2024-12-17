@@ -1,3 +1,7 @@
+**'Howdy!' A journey down the inked arms — and into the lively mind — of George Kittle**\
+`Kittle, a 'Lord of the Rings' devotee, sees life and an NFL season through that lens. On Thursday, he was channeling his inner Sauron.`\
+https://nytimes.com/athletic/5998550/2024/12/17/george-kittle-49ers-tattoos-mind/
+
 **After Trump’s Victory, Republicans Trust the Election System Again**\
 `Surveys taken since Donald Trump’s win show a resurgent faith among the president-elect’s supporters, and little Democratic appetite for conspiracy theories.`\
 https://nytimes.com/2024/12/17/us/politics/republicans-elections-trust-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000048/2024/12/17/packers-rookie-edgerrin-cooper/
 **Syria Unearths Years of Atrocities**\
 `After the fall of Bashar al-Assad’s regime, tens of thousands have been released from his brutal prisons. This is the story of one man who made it out.`\
 https://nytimes.com/2024/12/17/podcasts/the-daily/syria-prisons.html
-
-**A Perilous Time for Europe, and a Brazen Assassination in Moscow**\
-`Plus, a school shooting in Wisconsin.`\
-https://nytimes.com/2024/12/17/podcasts/germany-europe-moscow-school-shooting.html
 
