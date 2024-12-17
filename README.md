@@ -2,6 +2,14 @@
 `The first-degree murder charge branded him a terrorist over the killing of UnitedHealthcare’s chief executive, Brian Thompson.`\
 https://nytimes.com/video/nyregion/100000009883830/luigi-mangione-charges.html
 
+**How Chiefs QB Patrick Mahomes is pushing to play through sprained ankle this week**\
+`Mahomes is testing his ankle in practice this week. If he can't go, backup Carson Wentz will get those reps.`\
+https://nytimes.com/athletic/6001560/2024/12/17/chiefs-patrick-mahomes-ankle-injury-texans/
+
+**Mets notes: Juan Soto has 'a chance to be really good' in field, Clay Holmes' innings, more**\
+`There's room for improvement in Soto's defense, the team's internal options for a utility role, an under-the-radar signing and more.`\
+https://nytimes.com/athletic/6001656/2024/12/17/mets-juan-soto-defense-improvement-clay-holmes/
+
 **Gun Violence at Schools Has Risen Since the Pandemic**\
 `But mass shootings remain a rare occurrence. Only a small fraction of the nation’s nearly 130,000 schools report gun incidents each year.`\
 https://nytimes.com/2024/12/17/us/gun-violence-school-shootings-pandemic.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/us/politics/democratic-donors.html
 **Yankees to acquire former NL MVP Cody Bellinger, cash from Cubs for Cody Poteet: Sources**\
 `The Yankees have made a solid move by acquiring Bellinger, but they will need further reinforcements.`\
 https://nytimes.com/athletic/5997080/2024/12/17/yankees-cubs-cody-bellinger-trade-cody-poteet/
-
-**Jim Leach, Iowa Republican Who Extolled Moderation, Dies at 82**\
-`During his 30 years in Congress, he resisted his party’s rightward tilt. He endorsed Barack Obama in 2008 and became a Democrat in 2022.`\
-https://nytimes.com/2024/12/17/us/politics/jim-leach-dead.html
-
-**Worrying Signs From the Arctic**\
-`Scientists are seeing changes that could have consequences for the whole planet.`\
-https://nytimes.com/2024/12/17/climate/worrying-signs-arctic.html
 
