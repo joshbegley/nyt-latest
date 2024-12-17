@@ -1,3 +1,7 @@
+**Gun Violence at Schools Has Risen Since the Pandemic**\
+`But mass shootings remain a rare occurrence. Only a small fraction of the nation’s nearly 130,000 schools report gun incidents each year.`\
+https://nytimes.com/2024/12/17/us/gun-violence-school-shootings-pandemic.html
+
 **Yankees to acquire former NL MVP Cody Bellinger, cash from Cubs for Cody Poteet: Sources**\
 `The Yankees have made a solid move by acquiring Bellinger, but they will need further reinforcements.`\
 https://nytimes.com/athletic/5997080/2024/12/17/yankees-cubs-cody-bellinger-trade-cody-poteet/
