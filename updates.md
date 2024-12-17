@@ -1,3 +1,7 @@
+**Pre-emptive Pardons, Wanted or Not**\
+`Responses to a guest essay by Sarah Isgur, who is on Kash Patel’s enemies list. Also: A strategy intended to prevent suicides; a renewal of hope.`\
+https://nytimes.com/2024/12/17/opinion/trump-biden-kash-patel-pardons.html
+
 **Worthwhile Canadian Resignation**\
 `Chrystia Freeland’s departure raises questions about how sharply Trudeau will counter Trump.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/canada-trudeau-freeland-resignation
