@@ -1,3 +1,15 @@
+**NBA Trade Board: Jimmy Butler, Cam Johnson and the top 30 names on the market**\
+`The race to the Feb. 6 deadline has started as teams figure out exactly what their aspirations are.`\
+https://nytimes.com/athletic/5967281/2024/12/17/nba-trade-board-jimmy-butler-zach-lavine-cam-johnson/
+
+**‘I really believe in myself’: Why Giannis never panicked about the Bucks**\
+`Antetokounmpo’s faith in himself doesn’t just help fuel the Bucks; it fuels his work to improve his game over the years.`\
+https://nytimes.com/athletic/5989627/2024/12/17/bucks-giannis-antetokounmpo-one-on-one/
+
+**Howe rules out Miley January loan: 'He’s too important to lose'**\
+`Eddie Howe will not allow Lewis Miley to leave Newcastle United on loan in January, saying the England Under-21 international “is too important for us” to lose.`\
+https://nytimes.com/athletic/6000518/2024/12/17/lewis-miley-loan-newcastle-howe/
+
 **Slot hints at creative Liverpool backline amid defensive absences**\
 `Arne Slot says he could use a combination of academy players and creativity to solve Liverpool’s lack of defensive options ahead of the Carabao Cup quarter-final tie against Southampton.`\
 https://nytimes.com/athletic/6000527/2024/12/17/liverpool-team-news-southampton-slot/

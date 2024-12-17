@@ -1,3 +1,15 @@
+**NBA Trade Board: Jimmy Butler, Cam Johnson and the top 30 names on the market**\
+`The race to the Feb. 6 deadline has started as teams figure out exactly what their aspirations are.`\
+https://nytimes.com/athletic/5967281/2024/12/17/nba-trade-board-jimmy-butler-zach-lavine-cam-johnson/
+
+**‘I really believe in myself’: Why Giannis never panicked about the Bucks**\
+`Antetokounmpo’s faith in himself doesn’t just help fuel the Bucks; it fuels his work to improve his game over the years.`\
+https://nytimes.com/athletic/5989627/2024/12/17/bucks-giannis-antetokounmpo-one-on-one/
+
+**Howe rules out Miley January loan: 'He’s too important to lose'**\
+`Eddie Howe will not allow Lewis Miley to leave Newcastle United on loan in January, saying the England Under-21 international “is too important for us” to lose.`\
+https://nytimes.com/athletic/6000518/2024/12/17/lewis-miley-loan-newcastle-howe/
+
 **Slot hints at creative Liverpool backline amid defensive absences**\
 `Arne Slot says he could use a combination of academy players and creativity to solve Liverpool’s lack of defensive options ahead of the Carabao Cup quarter-final tie against Southampton.`\
 https://nytimes.com/athletic/6000527/2024/12/17/liverpool-team-news-southampton-slot/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/04/opinion/thepoint/hegseth-accuser-drugs
 **High on Hope, Wall St. Hears What It Wants From Trump**\
 `Investors and executives are often emphasizing what they like in the president-elect’s agenda, while dismissing what they don’t as mere posturing.`\
 https://nytimes.com/2024/12/17/business/economy/trump-wall-street-promises.html
-
-**‘Star Trek II’ and ‘Dirty Dancing’ Join National Film Registry**\
-`The movies, along with “Uptown Saturday Night,” “Mi Familia” and “The Social Network,” are among the 25 selected by the Librarian of Congress.`\
-https://nytimes.com/2024/12/17/movies/national-film-registry-star-trek-dirty-dancing.html
-
-**‘A Sword and a Shield’: How the Supreme Court Supercharged Trump’s Power**\
-`The legal scholars Gillian Metzger and Kate Shaw discuss how recent Supreme Court decisions could enable Trump in his second term.`\
-https://nytimes.com/2024/12/17/opinion/ezra-klein-podcast-kate-shaw-gillian-metzger.html
-
-**Should the President Have Nuclear Sole Authority? We Asked 530 Incoming Congress Members.**\
-`If there is a widespread urgency in Congress to cooperate on bills that create safeguards around nuclear war, it was not apparent.`\
-https://nytimes.com/2024/12/17/opinion/congress-nuclear-power-sole-authority.html
 
