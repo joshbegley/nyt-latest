@@ -1,3 +1,7 @@
+**Possible, but Not Looking Good**\
+`Kathy Lowden makes a few changes.`\
+https://nytimes.com/2024/12/16/crosswords/daily-puzzle-2024-12-17.html
+
 **7.3-Magnitude Earthquake Near Vanuatu Triggers Tsunami Alert**\
 `Forecasters said tsunami waves hitting the coastline of the Pacific Island nation could reach up to a meter, or 3.2 feet, above the tide level.`\
 https://nytimes.com/2024/12/16/world/asia/vanuatu-earthquake-tsunami.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891633/2024/12/16/2024-25-mlb-top-40-free-agmlb-to
 **Woman Who Stowed Away on Paris Flight Tries to Flee by Bus to Canada**\
 `The woman, Svetlana Dali, had been ordered to wear an ankle monitor after her arrest, but she cut it off and boarded a bus, a law enforcement official said.`\
 https://nytimes.com/2024/12/16/nyregion/stowaway-flight-paris-canada-arrest.html
-
-**Review: In ‘Eureka Day,’ Holding Space for Those You Hate**\
-`A hilarious new Broadway production asks: Can the superwoke vaxxers and anti-vaxxers at an elite private school learn to get along?`\
-https://nytimes.com/2024/12/16/theater/eureka-day-review-broadway.html
 
