@@ -1,3 +1,11 @@
+**Mangione Faces First-Degree Murder Charge That Brands Him a Terrorist**\
+`A grand jury formally indicted Luigi Mangione in the killing of Brian Thompson, the chief executive of UnitedHealthcare.`\
+https://nytimes.com/2024/12/17/nyregion/mangione-first-degree-murder-terrorism.html
+
+**Databricks Is Raising $10 Billion, in One of the Largest Venture Capital Deals**\
+`The artificial intelligence start-up’s funding shows investors remain enthusiastic about the A.I. boom.`\
+https://nytimes.com/2024/12/17/technology/databricks-funding-venture-capital-deals.html
+
 **Matilda Djerf Apologizes Amid Claims of Workplace Toxicity**\
 `The popular Swedish influencer began a fashion brand in 2019. Some employees say working there wasn’t as great as it looked on social media.`\
 https://nytimes.com/2024/12/17/style/matilda-djerf-apology.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/world/europe/russian-general-assassination-igor-k
 **With Sports Gambling Surging, Federal Regulation Is Discussed**\
 `With the industry’s popularity on the rise, the Senate Judiciary Committee held a hearing to discuss its effect on athletes, the public and the integrity of games.`\
 https://nytimes.com/2024/12/17/business/sports-betting-federal-regulation.html
-
-**Syria’s Rebel Leader Vows to Disband and Integrate Armed Factions**\
-`Ahmed al-Shara said that fighters would be brought under the defense ministry’s authority. The announcement came as Prime Minister Benjamin Netanyahu of Israel visited captured Syrian territory.`\
-https://nytimes.com/2024/12/17/world/middleeast/syria-rebels-government-israel.html
-
-**What’s Mitchell-Lama? Timothée Chalamet (Kind of) Explains**\
-`The actor’s family were the beneficiaries of a New York State housing program aimed at middle-income residents.`\
-https://nytimes.com/2024/12/17/realestate/timothee-chalamet-mitchell-lama.html
 
