@@ -22,8 +22,8 @@ https://nytimes.com/2024/12/17/world/europe/russian-general-bombing-moscow.html
 `Some cars were submerged by the rising water. Emergency workers were working overnight to identify the source of the break.`\
 https://nytimes.com/2024/12/17/us/water-main-break-bronx-nyc.html
 
-**Germany Doesn’t Feel Like Germany Anymore**\
-`The economically prosperous, socially cohesive and politically stable country has gone.`\
+**The Germany We Knew Is Gone**\
+`The economically prosperous, socially cohesive and politically stable country is no longer itself.`\
 https://nytimes.com/2024/12/17/opinion/germany-scholz-government-election.html
 
 **Pope Francis: There Is Faith in Humor**\

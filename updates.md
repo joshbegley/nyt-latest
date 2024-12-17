@@ -1,3 +1,7 @@
+**The Germany We Knew Is Gone**\
+`The economically prosperous, socially cohesive and politically stable country is no longer itself.`\
+https://nytimes.com/2024/12/17/opinion/germany-scholz-government-election.html
+
 **Late Night Delights in Pie-in-the-Sky Theories About the Drones**\
 `Jimmy Fallon said no one knows where the drones spotted on the East Coast come from or why they exist: “It’s basically air crypto.”`\
 https://nytimes.com/2024/12/17/arts/television/late-night-drones-new-jersey.html
