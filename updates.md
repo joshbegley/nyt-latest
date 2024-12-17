@@ -1,3 +1,11 @@
+**15-Year-Old Girl Identified as the Shooter in a Wisconsin School**\
+`Natalie Rupnow was identified by the police as the shooter in the attack at Abundant Life Christian School. Investigators are still trying to piece together what led up to the shooting.`\
+https://nytimes.com/2024/12/16/us/wisconsin-school-shooting-natalie-rupnow.html
+
+**7.3-Magnitude Earthquake Near Vanuatu Triggers Small Tsunami Waves**\
+`Tsunami waves of less than a foot were recorded hitting Vanuatu’s coastline after the quake, the Pacific Tsunami Warning Center said.`\
+https://nytimes.com/2024/12/16/world/asia/vanuatu-earthquake-tsunami.html
+
 **Abundant Life’s Precautions ‘Helped Keep Students Safe,’ Official Says**\
 `Training and precautions taken by the Christian school in Wisconsin may have prevented the shooter from harming even more people, officials said.`\
 https://nytimes.com/2024/12/16/us/abundant-life-school-shooting-security.html
