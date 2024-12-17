@@ -1,3 +1,11 @@
+**NBA makes mini-tournament format official ahead of 2025 All-Star Game**\
+`TNT’s three analysts, Charles Barkley, Kenny Smith and Shaquille O’Neal, will serve as general managers for the three All-Star teams.`\
+https://nytimes.com/athletic/6001685/2024/12/17/nba-mini-tournament-format-2025-all-star-game/
+
+**Trump Sues The Des Moines Register, Escalating Threats Against the Media**\
+`President-elect Donald J. Trump has said he would use his power to punish people he claims have wronged him. Those goals are now coming into focus.`\
+https://nytimes.com/2024/12/17/us/politics/trump-sues-des-moines-register.html
+
 **Kaapo Kakko expresses frustration with benching in another dramatic Rangers day: 'I have not been the worst'**\
 `Also Tuesday, asked directly if he's concerned about his job security, coach Peter Laviolette said, "Those are things I can't control."`\
 https://nytimes.com/athletic/6001651/2024/12/17/rangers-kaapo-kakko-benching-frustration/
