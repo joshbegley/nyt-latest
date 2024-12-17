@@ -1,3 +1,7 @@
+**Sirens, Then an Excruciating Wait for School Families**\
+`It would be hours before any details emerged about Monday’s shooting at Abundant Life Christian School, including that the shooter was a student at the school.`\
+https://nytimes.com/2024/12/16/us/abundant-life-christian-school-shooting.html
+
 **Sirens, then an excruciating wait for school families.**\
 `By Annie Correal`\
 https://nytimes.com/live/2024/12/16/us/abundant-life-school-shooting-wi/abundant-life-christian-school-shooting
