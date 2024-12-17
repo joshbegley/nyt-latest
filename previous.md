@@ -2,6 +2,10 @@
 `Scientists are seeing changes that could have consequences for the whole planet.`\
 https://nytimes.com/2024/12/17/climate/worrying-signs-arctic.html
 
+**Devin Williams was stunned by Yankees trade because he expected to be a Dodger**\
+`Williams has been one of the most consistent bullpen arms in recent years.`\
+https://nytimes.com/athletic/6001667/2024/12/17/yankees-devin-williams-trade-dodgers/
+
 **How Much Progress Have Women Made at Work?**\
 `At the DealBook Summit, nine prominent female leaders set out to answer the question, “Why aren’t there more women at the top levels of corporate America?”`\
 https://nytimes.com/2024/12/17/business/dealbook/women-progress-work.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/briefing/ukraine-russia-syria-gaza.html
 **‘Emilia Pérez’ Makes a Strong Showing on the Oscar Shortlists**\
 `The musical appears twice for best song, along with big names like Pharrell Williams and Elton John. “Wicked” is potentially up for best score.`\
 https://nytimes.com/2024/12/17/movies/wicked-oscars-shortlist-pharrell-williams-emilia-perez.html
-
-**The Next Evolution of Cantonese Food**\
-`A wave of new restaurants are challenging diners to go beyond sesame chicken and crab Rangoon.`\
-https://nytimes.com/2024/12/17/t-magazine/the-next-evolution-of-cantonese-food.html
 

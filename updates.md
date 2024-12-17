@@ -1,3 +1,7 @@
+**Devin Williams was stunned by Yankees trade because he expected to be a Dodger**\
+`Williams has been one of the most consistent bullpen arms in recent years.`\
+https://nytimes.com/athletic/6001667/2024/12/17/yankees-devin-williams-trade-dodgers/
+
 **Worrying Signs From the Arctic**\
 `Scientists are seeing changes that could have consequences for the whole planet.`\
 https://nytimes.com/2024/12/17/climate/worrying-signs-arctic.html
