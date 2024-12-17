@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6001969/2024/12/17/mlb-report-arm-injury-epidemic/
 `The liberal group American Bridge is planning to bring donors together early next year in Palm Beach, Fla., as the Democratic big-money universe debates what it can do better in 2026 and 2028.`\
 https://nytimes.com/2024/12/17/us/politics/democratic-donors.html
 
-**Yankees to acquire former NL MVP Cody Bellinger from Cubs for Cody Poteet: Sources**\
+**Yankees to acquire former NL MVP Cody Bellinger, cash from Cubs for Cody Poteet: Sources**\
 `The Yankees have made a solid move by acquiring Bellinger, but they will need further reinforcements.`\
 https://nytimes.com/athletic/5997080/2024/12/17/yankees-cubs-cody-bellinger-trade-cody-poteet/
 
