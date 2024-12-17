@@ -1,3 +1,7 @@
+**With Sports Gambling Surging, Federal Regulation Is Discussed**\
+`With the industry’s popularity on the rise, the Senate Judiciary Committee held a hearing to discuss its effect on athletes, the public and the integrity of games.`\
+https://nytimes.com/2024/12/17/business/sports-betting-federal-regulation.html
+
 **Syria’s Rebel Leader Vows to Disband and Integrate Armed Factions**\
 `Ahmed al-Shara said that fighters would be brought under the defense ministry’s authority. The announcement came as Prime Minister Benjamin Netanyahu of Israel visited captured Syrian territory.`\
 https://nytimes.com/2024/12/17/world/middleeast/syria-rebels-government-israel.html
