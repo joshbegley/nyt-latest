@@ -1,3 +1,7 @@
+**Slot hints at creative Liverpool backline amid defensive absences**\
+`Arne Slot says he could use a combination of academy players and creativity to solve Liverpool’s lack of defensive options ahead of the Carabao Cup quarter-final tie against Southampton.`\
+https://nytimes.com/athletic/6000527/2024/12/17/liverpool-team-news-southampton-slot/
+
 **Who's the best player in the College Football Playoff at each position?**\
 `Who makes the College Football Playoff's All-22 team? The exercise is as hard as any we've done.`\
 https://nytimes.com/athletic/5996767/2024/12/17/college-football-playoff-best-players-by-position/
