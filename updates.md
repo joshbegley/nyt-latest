@@ -1,3 +1,7 @@
+**Nuggets search for offensive help, eyeing Bulls' Zach LaVine: Sources**\
+`Denver's Nikola Jokić is having a historic season. But the Nuggets are searching for trade partners to find him help.`\
+https://nytimes.com/athletic/6002502/2024/12/17/zach-lavine-trade-rumors-nuggets/
+
 **House Republicans’ interim report on Jan. 6 calls for former Rep. Liz Cheney to be investigated.**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/12/17/us/trump-administration-news/house-republicans-interim-report-on-jan-6-calls-for-former-rep-liz-cheney-to-be-investigated
