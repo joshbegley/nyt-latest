@@ -1,3 +1,11 @@
+**Megan Thee Stallion Seeks Restraining Order Against Tory Lanez**\
+`Her lawyers said Mr. Lanez had facilitated a “campaign of harassment” from prison, where he is serving a 10-year sentence after being convicted of shooting her.`\
+https://nytimes.com/2024/12/18/arts/music/megan-thee-stallion-tory-lanez-restraining-order.html
+
+**Raheem Morris: Falcons didn't expect to make QB change this season**\
+`Morris said the Falcons hoped Kirk Cousins would find a way to improve before they ultimately benched him for Michael Penix Jr.`\
+https://nytimes.com/athletic/6004548/2024/12/18/falcons-kirk-cousins-michael-penix-starter/
+
 **California Declares an Emergency Over Bird Flu**\
 `Officials have discovered the virus in 645 herds, more than in any other state so far.`\
 https://nytimes.com/2024/12/18/health/bird-flu-emergency-california.html
