@@ -1,3 +1,15 @@
+**Stocks Plunge as Fed Forecasts Fewer Rate Cuts Next Year**\
+`The Federal Reserve cut rates for a third time this year, but investors shuddered at revised forecasts suggesting only two cuts in 2025.`\
+https://nytimes.com/2024/12/18/business/stock-market-fed-rate-cut-forecast.html
+
+**Wednesday Briefing: Russia Arrests a Suspected Assassin**\
+`Plus, the big stories of 2024 through our photographers’ eyes.`\
+https://nytimes.com/2024/12/18/briefing/russia-syria-pelicot.html
+
+**$100,000 Loan for Porsche at Center of Charges Against Former Adams Aide**\
+`Ingrid Lewis-Martin, her son, and two businessmen were expected to be arraigned on bribery charges connected to the loan for Lewis-Martin’s son.`\
+https://nytimes.com/2024/12/18/nyregion/adams-corruption-ingrid-investigation.html
+
 **Think You’re High Class? How Do You Feel About Twice-Baked Potatoes?**\
 `By weighing in on 35 meal options, a popular online quiz claims it can determine your social standing. It might not be so simple.`\
 https://nytimes.com/2024/12/18/style/food-class-social-test.html
