@@ -1,3 +1,7 @@
+**A City Lost Control of Its Police Department. A Court Just Gave It Back.**\
+`New Jersey’s attorney general, Matthew J. Platkin, seized control of the Paterson Police Department in March 2023. He vowed to appeal a ruling that found he had overstepped his authority.`\
+https://nytimes.com/2024/12/18/nyregion/paterson-new-jersey-police-takeover-platkin.html
+
 **David Bonderman, Private Equity Pioneer, Is Dead at 82**\
 `A globe-trotting lawyer turned investor, he helped transform a cottage industry into a colossus with influence on Wall Street and beyond.`\
 https://nytimes.com/2024/12/18/business/dealbook/david-bonderman-dead.html

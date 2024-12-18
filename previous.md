@@ -1,3 +1,7 @@
+**A City Lost Control of Its Police Department. A Court Just Gave It Back.**\
+`New Jersey’s attorney general, Matthew J. Platkin, seized control of the Paterson Police Department in March 2023. He vowed to appeal a ruling that found he had overstepped his authority.`\
+https://nytimes.com/2024/12/18/nyregion/paterson-new-jersey-police-takeover-platkin.html
+
 **David Bonderman, Private Equity Pioneer, Is Dead at 82**\
 `A globe-trotting lawyer turned investor, he helped transform a cottage industry into a colossus with influence on Wall Street and beyond.`\
 https://nytimes.com/2024/12/18/business/dealbook/david-bonderman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/arts/design/naomi-beckwith-documenta-curator.html
 **Killing of Russian General Sends a Message, but Doesn’t Change the War**\
 `Ukraine’s forces are steadily losing ground on the battlefield. The assassination of a top general in Moscow won’t improve their war effort, analysts and Western officials say.`\
 https://nytimes.com/2024/12/18/world/europe/russia-kirillov-ukraine-general.html
-
-**How to watch Oklahoma vs. Michigan basketball: Storylines, odds for Jumpman Invitational**\
-`Wednesday night will yield either the Sooners' most impressive win to date or a statement on the Wolverines' tenacity.`\
-https://nytimes.com/athletic/6001402/2024/12/18/oklahoma-michigan-how-to-watch-odds-preview/
 
