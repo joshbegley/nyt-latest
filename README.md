@@ -1,3 +1,11 @@
+**Russia Detains a Suspect in General’s Killing**\
+`The suspect, a 29-year-old citizen of Uzbekistan, confessed to planting the bomb that killed Lt. Gen. Igor Kirillov in Moscow, a spokeswoman for Russian prosecutors said.`\
+https://nytimes.com/2024/12/18/world/europe/russia-general-killing-suspect-uzbekistan.html
+
+**The Super League (sorry, the Unify League) is back - but where is the imagination?**\
+`The group behind plans for a new European Super League is back with a revamped proposal, so is there any merit to it?`\
+https://nytimes.com/athletic/6002228/2024/12/18/super-league-unify-league-uefa-a22/
+
 **Seth Meyers Questions Robert F. Kennedy Jr.’s Workout Fashion**\
 `Reports said Kennedy exercised at a gym in jeans and hiking boots. “If you think that’s weird, wait until you hear every single other thing about him,” Meyers said.`\
 https://nytimes.com/2024/12/18/arts/television/seth-meyers-robert-kennedy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5986837/2024/12/18/liverpool-fsg-slot-sale-plan/
 **​​Rangers' free fall continues, leading to big question: What comes next? 4 takeaways**\
 `The Rangers now sit at .500 — and they're a shell of last season’s Presidents’ Trophy team.`\
 https://nytimes.com/athletic/6002869/2024/12/18/new-york-rangers-free-fall/
-
-**Insurers Are Deserting Homeowners as Climate Shocks Worsen**\
-`Without insurance, it’s impossible to get a mortgage; without a mortgage, most Americans can’t buy a home.`\
-https://nytimes.com/interactive/2024/12/18/climate/insurance-non-renewal-climate-crisis.html
-
-**See Where Home Insurance Policies Were Dropped in Your State**\
-`Insurers are retreating from communities across the country that face growing risks from hurricanes, wildfires and other disasters. Here’s how your area compares.`\
-https://nytimes.com/interactive/2024/12/18/climate/insurance-nonrenewal-rates-policies-state-map.html
 
