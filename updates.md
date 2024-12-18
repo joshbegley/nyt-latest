@@ -1,3 +1,11 @@
+**David Bonderman, Private Equity Pioneer, Is Dead at 82**\
+`A globe-trotting lawyer turned investor, he helped transform a cottage industry into a colossus with influence on Wall Street and beyond.`\
+https://nytimes.com/2024/12/18/business/dealbook/david-bonderman-dead.html
+
+**My Neighbor Won’t Stop Praying for Me. What Should I Do?**\
+`The magazine’s Ethicist columnist on how to navigate religious differences with someone you care for.`\
+https://nytimes.com/2024/12/18/magazine/neighbor-prayer-ethics.html
+
 **What’s in Our Queue? ‘Cowboy Carter’ and More **\
 `Text by Nico Grant`\
 https://nytimes.com/card/2024/12/18/arts/editors-recommendations-cowboycarter
