@@ -1,3 +1,11 @@
+**Education Dept. Reverses Itself and Reopens Two Loan Repayment Plans**\
+`The department had been trying to phase out the two plans in favor of a more generous new one that has been tied up by litigation since this summer.`\
+https://nytimes.com/2024/12/18/us/politics/education-dept-repayment-plans.html
+
+**Cardinals' Nolan Arenado nixes trade to Astros, for now**\
+`Despite the St.`\
+https://nytimes.com/athletic/6004944/2024/12/18/cardinals-nolan-arenado-astros-trade/
+
 **A Ten Commandments Tablet Sells for More Than $5 Million at Auction**\
 `Sotheby’s called the stone the world’s oldest inscribed with the Ten Commandments, but some experts had raised questions about its provenance and authenticity.`\
 https://nytimes.com/2024/12/18/us/sothebys-ten-commandments-tablet.html

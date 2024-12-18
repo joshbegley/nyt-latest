@@ -1,3 +1,11 @@
+**Education Dept. Reverses Itself and Reopens Two Loan Repayment Plans**\
+`The department had been trying to phase out the two plans in favor of a more generous new one that has been tied up by litigation since this summer.`\
+https://nytimes.com/2024/12/18/us/politics/education-dept-repayment-plans.html
+
+**Cardinals' Nolan Arenado nixes trade to Astros, for now**\
+`Despite the St.`\
+https://nytimes.com/athletic/6004944/2024/12/18/cardinals-nolan-arenado-astros-trade/
+
 **A Ten Commandments Tablet Sells for More Than $5 Million at Auction**\
 `Sotheby’s called the stone the world’s oldest inscribed with the Ten Commandments, but some experts had raised questions about its provenance and authenticity.`\
 https://nytimes.com/2024/12/18/us/sothebys-ten-commandments-tablet.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/12/18/us/la-deputy-mayor-bomb-threat-fbi.html
 **Trump Takes Credit for New Border Security Plan Outlined by Canada**\
 `After Canada unveiled its plan to secure the border with the United States, Mr. Trump’s transition team attributed the action to the president elect.`\
 https://nytimes.com/2024/12/18/us/politics/trump-trudeau-canada-border-security.html
-
-**With Michael Vick headed to Norfolk State, here’s how other NFL stars fared at HBCUs**\
-`In taking the top job at a school near his hometown of Newport News, Va., Vick joins a group of NFL stars turned first-time coaches at HBCUs`\
-https://nytimes.com/athletic/6004589/2024/12/18/michael-vick-norfolk-state-hbcu-coach-deion-sanders/
-
-**Trump’s Criticism of Spending Deal Raises Fears of Government Shutdown**\
-`The president-elect weighed in against the mammoth spending package after Elon Musk and Vivek Ramaswamy had spent the day attacking it and warning Republicans not to support it.`\
-https://nytimes.com/2024/12/18/us/politics/trump-musk-spending-bill.html
 
