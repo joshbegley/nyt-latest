@@ -1,3 +1,7 @@
+**American Kitchens Face an Uncertain Mix: Olive Oil and Tariffs**\
+`Trump hasn’t said whether he’ll move against imported foods, but the effects on oil producers and consumers are already being debated.`\
+https://nytimes.com/2024/12/18/dining/olive-oil-tariffs.html
+
 **Investigation of Police ‘Courtesy Cards’ Finds a 2-Tiered System of Justice**\
 `Videos released by a New Jersey government watchdog have pierced a veil of secrecy around cards that can be used to avoid traffic tickets.`\
 https://nytimes.com/2024/12/18/nyregion/new-jersey-state-police-courtesy-cards.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003360/2024/12/18/usc-lincoln-riley-transferes-rec
 **How to Find Your Way Around That Updated Photos App**\
 `Redesigned interfaces, new features and artificial intelligence are meant to enhance the experience, even if the changes can be confusing at first.`\
 https://nytimes.com/2024/12/18/technology/personaltech/apple-google-photo-apps-updates-changes.html
-
-**Surveilling Speech Won’t Increase Birthrates**\
-`It’s easier for governments to restrict freedom of expression than it is to fix material conditions.`\
-https://nytimes.com/2024/12/18/opinion/speech-surveillance.html
 
