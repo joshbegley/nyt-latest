@@ -1,3 +1,19 @@
+**Fed Expected to Cut Rates, and C.E.O. Shooting Suspect Branded Terrorist**\
+`Plus, a beefy new skin care trend.`\
+https://nytimes.com/2024/12/18/podcasts/fed-mangione-beef-tallow.html
+
+**France’s Horrifying Rape Trial Has a Feminist Hero**\
+`Gisèle Pelicot’s former husband and 50 other men are accused of raping her. Her poise and courage have made her an icon.`\
+https://nytimes.com/2024/12/18/podcasts/the-daily/france-rape-trial-pelicot.html
+
+**Wordle Review No. 1,279**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 19, 2024.`\
+https://nytimes.com/2024/12/18/crosswords/wordle-review-1279.html
+
+**The Connections Companion No. 557**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 19, 2024.`\
+https://nytimes.com/2024/12/18/crosswords/connections-companion-557.html
+
 **Commanders film review: How Jayden Daniels' winning performance was nearly sacked**\
 `Washington's rookie QB was sacked a season-high eight times vs. New Orleans. A breakdown of how each one took place. `\
 https://nytimes.com/athletic/6001748/2024/12/18/commanders-jayden-daniels-saints-sacks/

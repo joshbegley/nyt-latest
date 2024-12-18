@@ -26,7 +26,7 @@ https://nytimes.com/2024/12/18/us/rayful-edmond-dead.html
 `FIFPRO's recent report says that new competitions could help lessen disparity in women's player loading`\
 https://nytimes.com/athletic/6002484/2024/12/18/fifpro-report-club-world-cup-womens-soccer/
 
-**Who Is Friedrich Merz, Who Could Be Germany’s Next Chancellor?**\
+**Who Is Friedrich Merz, a Leading Candidate to Be Germany’s Next Chancellor?**\
 `If polls are correct, Olaf Scholz’s successor could be Friedrich Merz, 69, leader of the Christian Democratic Union. He is offering to get the German economic engine humming again.`\
 https://nytimes.com/2024/12/18/world/europe/germany-friedrich-merz-chancellor.html
 
