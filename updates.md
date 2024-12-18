@@ -1,3 +1,7 @@
+**The European Super League (sorry, the Unify League) is back - but where is the imagination?**\
+`The group behind plans for a new European Super League is back with a revamped proposal, so is there any merit to it?`\
+https://nytimes.com/athletic/6002228/2024/12/18/super-league-unify-league-uefa-a22/
+
 **Who Will Be New Jersey’s Next Governor? It’s Wide Open.**\
 `At least 10 candidates are vying for attention in the competitive race, including two mayors, a far-right radio host and a former state senator known as “Ed the Trucker.”`\
 https://nytimes.com/2024/12/18/nyregion/new-jersey-governors-race.html
