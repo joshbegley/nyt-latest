@@ -1,4 +1,8 @@
 **What happened to Philipp Kurashev, and what can the Blackhawks do about it?**\
+`Two coaches have tried to unlock Kurashev's form from last season without any success. Is there still room for him on the roster?`\
+https://nytimes.com/athletic/6002905/2024/12/18/blackhawks-philipp-kurashev-sorensen-capitals/
+
+**What happened to Philipp Kurashev, and what can the Blackhawks do about it?**\
 `Two coaches have tried to unlock Philipp Kurashev's form from last season without any success. Is there still room for him on the roster?`\
 https://nytimes.com/athletic/6002905/2024/12/18/blackhawks-philipp-kurashev-sorensen-capitals/
 
