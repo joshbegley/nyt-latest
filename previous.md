@@ -1,3 +1,15 @@
+**James Bunce, the man tasked with helping Eddie Howe improve Newcastle's performance**\
+`Who is Newcastle's performance director and how does he operate? The Athletic spoke to people who know him well to find out`\
+https://nytimes.com/athletic/5971526/2024/12/18/james-bunce-newcastle-performance-director/
+
+**Wednesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/12/18/briefing/russia-general-syria-israel.html
+
+**U.K. Police Chiefs Were Too Slow to React to Summer Riots, Report Says**\
+`Police leaders waited too long — three days — to trigger a national mobilization to tackle the anti-immigrant violence that broke out in Britain this year, a report found.`\
+https://nytimes.com/2024/12/18/world/europe/uk-riots-police-response-report.html
+
 **A 7-Eleven Heir’s $50 Billion Fight to Keep the Company in the Family**\
 `A battle for control of the chain shows how traditional business models embraced by family owners are clashing with a more shareholder-centric approach.`\
 https://nytimes.com/2024/12/18/business/7-eleven-japan-corporate-culture.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/17/crosswords/daily-puzzle-2024-12-18.html
 **Cubs’ outlook after Cody Bellinger and Kyle Tucker trades: 'We’re not done'**\
 `The Cubs still have room to spend on the pitching staff, Michael Busch isn't moving, Matt Shaw is on the radar for Opening Day and more.`\
 https://nytimes.com/athletic/6002650/2024/12/17/cubs-offseason-outlook-tucker-bellinger-trades/
-
-**Commanders one step closer to potential RFK return with congressional funding bill**\
-`The Washington franchise has played in Landover, Md., a nearby suburb, since 1997.`\
-https://nytimes.com/athletic/6002619/2024/12/17/commanders-rfk-site-control-update-dc/
-
-**Rosenthal: How the Orioles crafted winning sales pitch to Tomoyuki Sugano, more MLB notes**\
-`Baltimore made it a priority to talk baseball specifics when courting the 35-year-old Japanese free-agent pitcher. `\
-https://nytimes.com/athletic/6002576/2024/12/17/orioles-tomoyuki-sugano-mlb-free-agency/
-
-**NBA's Silver acknowledges sagging TV ratings, but says interest not lacking**\
-`Silver said “ratings are down a bit” but he pointed to a broader trend that “cable television viewership is down double digits.”`\
-https://nytimes.com/athletic/6002603/2024/12/17/adam-silver-nba-tv-ratings/
 

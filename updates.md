@@ -1,3 +1,15 @@
+**James Bunce, the man tasked with helping Eddie Howe improve Newcastle's performance**\
+`Who is Newcastle's performance director and how does he operate? The Athletic spoke to people who know him well to find out`\
+https://nytimes.com/athletic/5971526/2024/12/18/james-bunce-newcastle-performance-director/
+
+**Wednesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/12/18/briefing/russia-general-syria-israel.html
+
+**U.K. Police Chiefs Were Too Slow to React to Summer Riots, Report Says**\
+`Police leaders waited too long — three days — to trigger a national mobilization to tackle the anti-immigrant violence that broke out in Britain this year, a report found.`\
+https://nytimes.com/2024/12/18/world/europe/uk-riots-police-response-report.html
+
 **A 7-Eleven Heir’s $50 Billion Fight to Keep the Company in the Family**\
 `A battle for control of the chain shows how traditional business models embraced by family owners are clashing with a more shareholder-centric approach.`\
 https://nytimes.com/2024/12/18/business/7-eleven-japan-corporate-culture.html
