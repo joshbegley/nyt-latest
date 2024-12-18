@@ -1,3 +1,7 @@
+**Raheem Morris: Falcons didn't expect to make QB change this season**\
+`Morris said the Falcons hoped Kirk Cousins would find a way to improve before they ultimately benched him for Michael Penix Jr.`\
+https://nytimes.com/athletic/6004548/2024/12/18/falcons-kirk-cousins-michael-penix-starter/
+
 **Yankees will meet with Roki Sasaki: 'It would be nice to have Yankee Stadium be his home'**\
 `Brian Cashman believes the Yankees have everything Sasaki could want. It's now on him to sell that to the Japanese star.`\
 https://nytimes.com/athletic/6004393/2024/12/18/yankees-roki-sasaki-meeting-scheduled/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6004374/2024/12/18/drew-lock-starting-qb-giants/
 **For a Desperate Few, a Hectic Escape From Gaza**\
 `The war is nearly impossible to flee — except for a small number of sick and wounded who are offered a dramatic path to safety.`\
 https://nytimes.com/interactive/2024/12/18/magazine/israel-gaza-war-medical-treatment-who.html
-
-**What to know about the Fed’s rate move.**\
-`Federal Reserve officials projected just two rate cuts in 2025, and they made it clear that future reductions would hinge on inflation progress.`\
-https://nytimes.com/live/2024/12/18/business/fed-interest-rates/what-to-know-about-the-feds-rate-move
 

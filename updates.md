@@ -1,3 +1,7 @@
+**Raheem Morris: Falcons didn't expect to make QB change this season**\
+`Morris said the Falcons hoped Kirk Cousins would find a way to improve before they ultimately benched him for Michael Penix Jr.`\
+https://nytimes.com/athletic/6004548/2024/12/18/falcons-kirk-cousins-michael-penix-starter/
+
 **Yankees will meet with Roki Sasaki: 'It would be nice to have Yankee Stadium be his home'**\
 `Brian Cashman believes the Yankees have everything Sasaki could want. It's now on him to sell that to the Japanese star.`\
 https://nytimes.com/athletic/6004393/2024/12/18/yankees-roki-sasaki-meeting-scheduled/
