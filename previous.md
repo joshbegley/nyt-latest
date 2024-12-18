@@ -1,3 +1,11 @@
+**House Ethics Panel Voted Secretly to Release the Gaetz Report**\
+`Lawmakers agreed the report would come out after the House has completed legislative business for the year and once they have left Washington to return to their districts.`\
+https://nytimes.com/2024/12/18/us/politics/matt-gaetz-ethics-report-release.html
+
+**Kiefer Sherwood's goals and the case for the Canucks extending Pius Suter**\
+`How sustainable is Sherwood's goal scoring? Plus a look at the Canucks' five-on-five play and how the blue line is trending.`\
+https://nytimes.com/athletic/6001992/2024/12/18/canucks-kiefer-sherwood-goals-pius-suter/
+
 **Two Dead in Small Plane Crash in Hawaii**\
 `The plane, which was reportedly on a training flight with a cargo carrier, could be seen veering away from a highway before it crashed into a vacant building.`\
 https://nytimes.com/2024/12/18/us/hawaii-plane-crash-inyoue-airport.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/18/nyregion/new-jersey-state-police-courtesy-cards.h
 **Who Is Dominique Pelicot, France’s Most Notorious Sexual Predator?**\
 `For over three months, judges and lawyers have tried to grasp the true nature of the man who said he had invited dozens of strangers to join him in raping his drugged wife.`\
 https://nytimes.com/2024/12/18/world/europe/france-dominique-pelicot-rape-trial.html
-
-**Zelensky to Meet With European Leaders to Discuss Ukraine’s Future**\
-`As Donald J. Trump prepares to take office in the United States, President Volodymyr Zelensky will attend a dinner hosted by the NATO chief to plot the path forward in the war with Russia.`\
-https://nytimes.com/2024/12/18/world/europe/zelensky-eu-ukraine.html
-
-**Syria’s First Domestic Flight Since the Assad Regime Fell Takes Off**\
-`The Damascus International Airport reopened on Wednesday with a domestic flight to Aleppo, signaling that Syria’s new rulers are confident in their ability to govern after the end of the Assad family’s rule.`\
-https://nytimes.com/video/world/middleeast/100000009884546/syria-damascus-airport-reopens-.html
 

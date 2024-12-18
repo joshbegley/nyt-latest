@@ -1,3 +1,11 @@
+**House Ethics Panel Voted Secretly to Release the Gaetz Report**\
+`Lawmakers agreed the report would come out after the House has completed legislative business for the year and once they have left Washington to return to their districts.`\
+https://nytimes.com/2024/12/18/us/politics/matt-gaetz-ethics-report-release.html
+
+**Kiefer Sherwood's goals and the case for the Canucks extending Pius Suter**\
+`How sustainable is Sherwood's goal scoring? Plus a look at the Canucks' five-on-five play and how the blue line is trending.`\
+https://nytimes.com/athletic/6001992/2024/12/18/canucks-kiefer-sherwood-goals-pius-suter/
+
 **Two Dead in Small Plane Crash in Hawaii**\
 `The plane, which was reportedly on a training flight with a cargo carrier, could be seen veering away from a highway before it crashed into a vacant building.`\
 https://nytimes.com/2024/12/18/us/hawaii-plane-crash-inyoue-airport.html
