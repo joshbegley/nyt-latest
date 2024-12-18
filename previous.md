@@ -1,3 +1,7 @@
+**Senate Clears Defense Bill Denying Transgender Care to Minors**\
+`The annual defense bill directing $895 billion toward the Pentagon and other military programs would deny transgender health coverage to minors. It now heads to President Biden’s desk.`\
+https://nytimes.com/2024/12/18/us/politics/senate-defense-bill-transgender-care-minors.html
+
 **Hornets apologize for taking PS5 from 13-year-old fan after on-court skit**\
 `The team said they returned the PS5 to the fan and will give him a VIP experience for a future game.`\
 https://nytimes.com/athletic/6003795/2024/12/18/hornets-ps5-giveaway-apology/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000811/2024/12/18/sergio-perez-red-bull-f1-exit/
 **Iowa to retire Caitlin Clark's No. 22 jersey in February**\
 `Over her four years with the program, Clark rewrote both the Iowa and NCAA record books.`\
 https://nytimes.com/athletic/6003942/2024/12/18/caitlin-clark-iowa-jersey-retire-basketball/
-
-**Prisoner’s Self-Portraits of C.I.A. Torture Surface From Sealed Court Record**\
-`“This is what his nightmares are all about,” said a lawyer for a now-confessed war criminal who spent years at Guantánamo Bay.`\
-https://nytimes.com/2024/12/18/us/politics/guantanamo-prisoner-drawings-torture.html
 

@@ -1,3 +1,7 @@
+**Senate Clears Defense Bill Denying Transgender Care to Minors**\
+`The annual defense bill directing $895 billion toward the Pentagon and other military programs would deny transgender health coverage to minors. It now heads to President Biden’s desk.`\
+https://nytimes.com/2024/12/18/us/politics/senate-defense-bill-transgender-care-minors.html
+
 **Hornets apologize for taking PS5 from 13-year-old fan after on-court skit**\
 `The team said they returned the PS5 to the fan and will give him a VIP experience for a future game.`\
 https://nytimes.com/athletic/6003795/2024/12/18/hornets-ps5-giveaway-apology/
