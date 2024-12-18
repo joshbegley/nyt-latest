@@ -1,3 +1,7 @@
+**Exclusive: If Commanders leave for D.C., Maryland has a plan in place**\
+`The Athletic looks into the agreement between the Commanders and the State of Maryland if the team agrees to leave for Washington D.C.`\
+https://nytimes.com/athletic/6004756/2024/12/18/washington-commanders-maryland-rfk-stadium/
+
 **E.P.A. Allows California to Ban Sales of New Gas-Powered Cars by 2035**\
 `The Trump administration is expected to revoke the program, setting up a legal clash between the state and federal government.`\
 https://nytimes.com/2024/12/18/climate/california-ban-new-gasoline-powered-cars.html
