@@ -1,3 +1,7 @@
+**Tua Tagovailoa can't solve Texans' D, Ty Johnson shines, more Week 15 thoughts: Quick Outs**\
+`Tagovailoa was accurate on 75 percent of his passes Sunday, but it didn't amount to much. `\
+https://nytimes.com/athletic/6001767/2024/12/18/nfl-week-15-tua-tagovaiola-ty-johnson/
+
 **Hopes for a New Syria Take Flight**\
 `A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the country’s transitional government tries to demonstrate its ability to run the war-shattered country.`\
 https://nytimes.com/2024/12/18/world/europe/syria-flight-damascus-aleppo-rebels.html
