@@ -2,8 +2,12 @@
 `Jeffrey Martinovic and Will Nediger up the ante.`\
 https://nytimes.com/2024/12/17/crosswords/daily-puzzle-2024-12-18.html
 
+**Cubs’ outlook after Cody Bellinger and Kyle Tucker trades: 'We’re not done'**\
+`The Cubs still have room to spend on the pitching staff, Michael Busch isn't moving, Matt Shaw is on the radar for Opening Day and more.`\
+https://nytimes.com/athletic/6002650/2024/12/17/cubs-offseason-outlook-tucker-bellinger-trades/
+
 **Commanders one step closer to potential RFK return with congressional funding bill**\
-`The Washington franchise has played in Landover, Maryland, a nearby suburb, since 1997.`\
+`The Washington franchise has played in Landover, Md., a nearby suburb, since 1997.`\
 https://nytimes.com/athletic/6002619/2024/12/17/commanders-rfk-site-control-update-dc/
 
 **Rosenthal: How the Orioles crafted winning sales pitch to Tomoyuki Sugano, more MLB notes**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/us/politics/liz-cheney-jan-6-house-republicans.ht
 **Tax Preparer Known as ‘the Magician’ Bilked I.R.S. Out of $145 Million**\
 `A businessman in the Bronx falsified information on thousands of returns, committing one of the largest tax frauds in Department of Justice history, prosecutors said.`\
 https://nytimes.com/2024/12/17/nyregion/fraud-tax-return-charges-bronx.html
-
-**Congressional Leaders Unveil Short-Term Spending Bill Tied to Disaster Aid**\
-`What started out as a simple stopgap measure to avert a shutdown for a few months became a magnet for more than $100 billion in emergency disaster and farm aid, plus a host of unrelated policy measures.`\
-https://nytimes.com/2024/12/17/world/europe/congress-short-term-spending-bill.html
 
