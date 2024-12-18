@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6002576/2024/12/17/orioles-tomoyuki-sugano-mlb-free
 https://nytimes.com/athletic/6002603/2024/12/17/adam-silver-nba-tv-ratings/
 
 **Falcons bench Kirk Cousins for rookie Michael Penix Jr. amid struggles**\
-`Atlanta is moving on from the veteran signal-caller and turning to the rookie as the club makes a push for the NFC South title.`\
+`The Falcons had planned to sit Penix behind Cousins this season, but the veteran's play dictated this move with a playoff spot at state.`\
 https://nytimes.com/athletic/6002204/2024/12/17/falcons-bench-kirk-cousins-michael-penix-starting-quarterback/
 
 **Nuggets searching for offensive help, eyeing Bulls' Zach LaVine: Sources**\
