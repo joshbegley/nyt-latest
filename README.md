@@ -1,3 +1,7 @@
+**Cowboys Today: Playing hard when playoffs are unlikely is great, but still the bare minimum**\
+`The Cowboys are playing hard and have won three our of four games, but shouldn't playing hard be the expectation?`\
+https://nytimes.com/athletic/6003032/2024/12/18/cowboys-today-mike-mccarthy-future/
+
 **China’s Nuclear Buildup Is on Track Despite Graft Scandals, Pentagon Says**\
 `Corruption investigations may have shaken Beijing’s confidence in top commanders, but China’s military expansion hasn’t slowed, a report found.`\
 https://nytimes.com/2024/12/18/world/asia/china-nuclear-buildup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/t-magazine/lorser-feitelson-on-art-tv-show.html
 **New Watchdog Group Seeks Records About Efficiency Department’s Talks With Agencies**\
 `State Democracy Defenders Fund, founded by a former ethics official from the Obama Administration, asked 16 federal agencies if they had heard from Elon Musk’s budget-cutting group.`\
 https://nytimes.com/2024/12/18/us/politics/doge-records.html
-
-**If USC can't land — and retain — elite talent, then hope will be in short supply**\
-`The Trojans are in a rut. There’s no other way to put it. And it's a sobering reality considering how bright things looked three years ago.`\
-https://nytimes.com/athletic/6003360/2024/12/18/usc-lincoln-riley-transferes-recruiting/
 
