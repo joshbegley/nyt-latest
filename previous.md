@@ -1,3 +1,7 @@
+**Hopes for a New Syria Take Flight**\
+`A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the country’s transitional government tries to demonstrate its ability to run the war-shattered country.`\
+https://nytimes.com/2024/12/18/world/europe/syria-flight-damascus-aleppo-rebels.html
+
 **The Photos that Defined 2024**\
 `The year was made up of extraordinary moments — and Times photographers captured them in extraordinary images.`\
 https://nytimes.com/2024/12/18/briefing/2024-the-year-in-pictures.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/us/rayful-edmond-dead.html
 **How the FIFA Women's Club World Cup could help lessen disparity in player loading**\
 `FIFPRO's recent report says that new competitions could help lessen disparity in women's player loading`\
 https://nytimes.com/athletic/6002484/2024/12/18/fifpro-report-club-world-cup-womens-soccer/
-
-**Who Is Friedrich Merz, a Leading Candidate to Be Germany’s Next Chancellor?**\
-`If polls are correct, Olaf Scholz’s successor could be Friedrich Merz, 69, leader of the Christian Democratic Union. He is offering to get the German economic engine humming again.`\
-https://nytimes.com/2024/12/18/world/europe/germany-friedrich-merz-chancellor.html
 
