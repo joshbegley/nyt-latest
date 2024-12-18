@@ -1,3 +1,15 @@
+**Two Dead in Small Plane Crash in Hawaii**\
+`The plane, which was reportedly on a training flight with a cargo carrier, could be seen veering away from a highway before it crashed into a vacant building.`\
+https://nytimes.com/2024/12/18/us/hawaii-plane-crash-inyoue-airport.html
+
+**Dashcam Video Shows Honolulu Plane Crash**\
+`A small plane crashed near the Daniel K. Inouye International Airport in Honolulu, killing two people, officials said.`\
+https://nytimes.com/video/us/100000009884616/honolulu-hawaii-plane-crash-dash-cam.html
+
+**A Cease-Fire Is Extended in a Disputed City in Northern Syria**\
+`A U.S. official announced the move about the truce in Manbij, where Kurdish and Turkish-backed fighters have clashed, as U.S. and other foreign officials try to broker a lasting armistice.`\
+https://nytimes.com/2024/12/18/world/middleeast/cease-fire-extended-kurdish-forces-turkey-syria.html
+
 **Cowboys Today: Playing hard when playoffs are unlikely is great, but still the bare minimum**\
 `The Cowboys are playing hard and have won three our of four games, but shouldn't playing hard be the expectation?`\
 https://nytimes.com/athletic/6003032/2024/12/18/cowboys-today-mike-mccarthy-future/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/18/world/europe/zelensky-eu-ukraine.html
 **Syria’s First Domestic Flight Since the Assad Regime Fell Takes Off**\
 `The Damascus International Airport reopened on Wednesday with a domestic flight to Aleppo, signaling that Syria’s new rulers are confident in their ability to govern after the end of the Assad family’s rule.`\
 https://nytimes.com/video/world/middleeast/100000009884546/syria-damascus-airport-reopens-.html
-
-**'We believe we can beat anybody': Giannis, Bucks dominate with defense**\
-`"We have a chance to go deep into the playoffs, but we have to stay healthy," Antetokounmpo said.`\
-https://nytimes.com/athletic/6002970/2024/12/18/giannis-bucks-damian-lillard-nba-cup-thunder/
-
-**How a Forgotten TV Show Forever Changed the Way We Look at Art**\
-`Weekly from 1956 to ’63, a charismatic painter named Lorser Feitelson filled America’s living rooms with the first televised history of art. We’re still exploring — and trapped in — his world.`\
-https://nytimes.com/2024/12/18/t-magazine/lorser-feitelson-on-art-tv-show.html
-
-**New Watchdog Group Seeks Records About Efficiency Department’s Talks With Agencies**\
-`State Democracy Defenders Fund, founded by a former ethics official from the Obama Administration, asked 16 federal agencies if they had heard from Elon Musk’s budget-cutting group.`\
-https://nytimes.com/2024/12/18/us/politics/doge-records.html
 

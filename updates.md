@@ -1,3 +1,15 @@
+**Two Dead in Small Plane Crash in Hawaii**\
+`The plane, which was reportedly on a training flight with a cargo carrier, could be seen veering away from a highway before it crashed into a vacant building.`\
+https://nytimes.com/2024/12/18/us/hawaii-plane-crash-inyoue-airport.html
+
+**Dashcam Video Shows Honolulu Plane Crash**\
+`A small plane crashed near the Daniel K. Inouye International Airport in Honolulu, killing two people, officials said.`\
+https://nytimes.com/video/us/100000009884616/honolulu-hawaii-plane-crash-dash-cam.html
+
+**A Cease-Fire Is Extended in a Disputed City in Northern Syria**\
+`A U.S. official announced the move about the truce in Manbij, where Kurdish and Turkish-backed fighters have clashed, as U.S. and other foreign officials try to broker a lasting armistice.`\
+https://nytimes.com/2024/12/18/world/middleeast/cease-fire-extended-kurdish-forces-turkey-syria.html
+
 **Cowboys Today: Playing hard when playoffs are unlikely is great, but still the bare minimum**\
 `The Cowboys are playing hard and have won three our of four games, but shouldn't playing hard be the expectation?`\
 https://nytimes.com/athletic/6003032/2024/12/18/cowboys-today-mike-mccarthy-future/
