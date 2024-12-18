@@ -1,3 +1,19 @@
+**Fed Expected to Cut Rates, and C.E.O. Shooting Suspect Branded Terrorist**\
+`Plus, a beefy new skin care trend.`\
+https://nytimes.com/2024/12/18/podcasts/fed-mangione-beef-tallow.html
+
+**France’s Horrifying Rape Trial Has a Feminist Hero**\
+`Gisèle Pelicot’s former husband and 50 other men are accused of raping her. Her poise and courage have made her an icon.`\
+https://nytimes.com/2024/12/18/podcasts/the-daily/france-rape-trial-pelicot.html
+
+**Wordle Review No. 1,279**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 19, 2024.`\
+https://nytimes.com/2024/12/18/crosswords/wordle-review-1279.html
+
+**The Connections Companion No. 557**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 19, 2024.`\
+https://nytimes.com/2024/12/18/crosswords/connections-companion-557.html
+
 **Commanders film review: How Jayden Daniels' winning performance was nearly sacked**\
 `Washington's rookie QB was sacked a season-high eight times vs. New Orleans. A breakdown of how each one took place. `\
 https://nytimes.com/athletic/6001748/2024/12/18/commanders-jayden-daniels-saints-sacks/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/18/business/fed-meeting-interest-rates.html
 **The Economy Is Finally Stable. Is That About to Change?**\
 `President-elect Donald J. Trump’s proposals on tariffs, immigration, taxes and deregulation may have far-reaching and contradictory effects, adding uncertainty to forecasts.`\
 https://nytimes.com/2024/12/18/business/economy/trump-us-economy.html
-
-**What Do Democrats Need to Do? Act Like an Opposition Party.**\
-`Now is not the time for surrender.`\
-https://nytimes.com/2024/12/18/opinion/democrats-trump-opposition.html
-
-**Which Films Will Be Nominated for Best Picture at the Oscars?**\
-`You can expect the A-B-C-D-E movies (“Anora,” “The Brutalist,” “Conclave,” “Dune: Part Two” and “Emilia Pérez”). But what will join them?`\
-https://nytimes.com/2024/12/18/movies/best-picture-predictions-oscars.html
-
-**Inside Disney’s Decision to Settle a Trump Defamation Suit**\
-`Talks started and finished on the same day, after Disney decided that fighting the lawsuit could potentially hurt the company and protections for the press.`\
-https://nytimes.com/2024/12/18/business/media/disney-trump-abc-lawsuit.html
-
-**Al-Assad’s Soldiers Hope for Amnesty. First, They Have to Take a Number.**\
-`Syria’s new rulers say they will spare conscripts of Bashar al-Assad and pursue those who oversaw his regime’s abuses. Hundreds are lining up to learn which promise applies to them.`\
-https://nytimes.com/2024/12/18/world/middleeast/syria-assad-soldier-amnesty.html
 
