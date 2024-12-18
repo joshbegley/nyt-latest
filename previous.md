@@ -1,3 +1,15 @@
+**New York Red Bulls signs former Bayern forward Choupo-Moting**\
+`The New York Red Bulls has completed the signing of Cameroon forward Eric Maxim Choupo-Moting.`\
+https://nytimes.com/athletic/6004403/2024/12/18/eric-maxim-choupo-moting-new-york-red-bulls/
+
+**New York City to Pay $92.5 Million to Improperly Detained Immigrants**\
+`The city was accused of unlawfully holding more than 20,000 people beyond their scheduled release dates between 1997 and 2012 to comply with ICE detainer requests.`\
+https://nytimes.com/2024/12/18/nyregion/migrants-detention-settlement-deportation.html
+
+**What to Know About the Charges Against Luigi Mangione**\
+`The man the authorities say killed United Healthcare’s chief executive is accused of crimes in Pennsylvania and New York, including first-degree murder, which is a terrorism charge.`\
+https://nytimes.com/2024/12/18/nyregion/luigi-mangione-murder-charges.html
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears have lost eight games in a row, so our attention turns to the coach search, GM watch and the 2025 NFL Draft. What's on your mind?`\
 https://nytimes.com/athletic/6003936/2024/12/18/bears-mailbag-questions-42/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/18/us/ivy-league-football-fcs-playoffs.html
 **Rafael Nadal's final tennis season to get the documentary treatment from Netflix**\
 `The untitled docuseries promises access into Nadal's final tennis season before retirement`\
 https://nytimes.com/athletic/6004071/2024/12/18/rafael-nadal-netflix-documentary-series-tennis/
-
-**Explained: Marcus Rashford's transfer options, contract status and Man Utd's position**\
-`Can any clubs afford to sign Rashford? What is his contract status? Could Man Utd subsidise his exit? What is Rio Ferdinand's role?`\
-https://nytimes.com/athletic/6003967/2024/12/18/marcus-rashford-transfer-contract/
-
-**Senate Clears Defense Bill Denying Transgender Care to Minors**\
-`The annual defense bill directing $895 billion toward the Pentagon and other military programs would deny transgender health coverage to minors. It now heads to President Biden’s desk.`\
-https://nytimes.com/2024/12/18/us/politics/senate-defense-bill-transgender-care-minors.html
-
-**Hornets apologize for taking PS5 from 13-year-old fan after on-court skit**\
-`The team said they returned the PS5 to the fan and will give him a VIP experience for a future game.`\
-https://nytimes.com/athletic/6003795/2024/12/18/hornets-ps5-giveaway-apology/
 
