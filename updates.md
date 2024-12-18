@@ -1,3 +1,11 @@
+**Defense Bill Orders Military to Take New Action on Brain Injury**\
+`Mandates in the annual appropriations act, passed on Wednesday, call for the Pentagon to track and mitigate risks to troops’ brains from firing their own weapons.`\
+https://nytimes.com/2024/12/18/us/defense-bill-brain-injury-blast.html
+
+**Ivy League Agrees to Let Football Teams Compete in Playoffs Next Year**\
+`The conference’s eight schools will be able to participate in the Football Championship Subdivision’s 24-team playoff.`\
+https://nytimes.com/2024/12/18/us/ivy-league-football-fcs-playoffs.html
+
 **Explained: Marcus Rashford's transfer options, contract status and Man Utd's position**\
 `Can any clubs afford to sign Rashford? What is his contract status? Could Man Utd subsidise his exit? What is Rio Ferdinand's role?`\
 https://nytimes.com/athletic/6003967/2024/12/18/marcus-rashford-transfer-contract/
