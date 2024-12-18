@@ -1,3 +1,7 @@
+**Ivy League Agrees to Let Football Teams Compete in the Playoffs Next Year**\
+`The conference’s eight schools will be able to participate in the Football Championship Subdivision’s 24-team playoff.`\
+https://nytimes.com/2024/12/18/us/ivy-league-football-fcs-playoffs.html
+
 **Real Madrid win Intercontinental Cup with victory over Pachuca**\
 `Real Madrid have won the 2024 Intercontinental Cup after beating Pachuca 3-0 in Wednesday&#8217;s final.`\
 https://nytimes.com/athletic/6004007/2024/12/18/real-madrid-intercontinental-cup-final-pachuca/

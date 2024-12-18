@@ -10,7 +10,7 @@ https://nytimes.com/video/world/middleeast/100000009882200/assad-forces-weapons-
 `Mandates in the annual appropriations act, passed on Wednesday, call for the Pentagon to track and mitigate risks to troops’ brains from firing their own weapons.`\
 https://nytimes.com/2024/12/18/us/defense-bill-brain-injury-blast.html
 
-**Ivy League Agrees to Let Football Teams Compete in Playoffs Next Year**\
+**Ivy League Agrees to Let Football Teams Compete in the Playoffs Next Year**\
 `The conference’s eight schools will be able to participate in the Football Championship Subdivision’s 24-team playoff.`\
 https://nytimes.com/2024/12/18/us/ivy-league-football-fcs-playoffs.html
 
