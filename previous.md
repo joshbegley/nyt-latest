@@ -1,3 +1,7 @@
+**House Republicans’ interim report on Jan. 6 calls for former Rep. Liz Cheney to be investigated.**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/12/17/us/trump-administration-news/house-republicans-interim-report-on-jan-6-calls-for-former-rep-liz-cheney-to-be-investigated
+
 **Tax Preparer Known as ‘the Magician’ Bilked I.R.S. Out of $145 Million**\
 `A businessman in the Bronx falsified information on thousands of returns, committing one of the largest tax frauds in Department of Justice history, prosecutors said.`\
 https://nytimes.com/2024/12/17/nyregion/fraud-tax-return-charges-bronx.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/style/cafe-gitane-mcnally-editions-scene.html
 **Pinellas County votes to approve funding for new Rays stadium, now up to team to move forward**\
 `Said commissioner René Flowers shortly before the vote: “All eyes will now be watching if the Rays uphold their part of the deal.”`\
 https://nytimes.com/athletic/6002266/2024/12/17/new-rays-stadium-county-vote-approval/
-
-**Sherrod Brown Signs Off in the Senate. For Now.**\
-`Ohio’s senior Democratic senator told colleagues that despite his defeat, he was not done with politics just yet.`\
-https://nytimes.com/2024/12/17/us/sherrod-brown-senate-career.html
 
