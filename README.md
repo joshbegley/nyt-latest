@@ -1,3 +1,7 @@
+**Tua Tagovailoa can't solve Texans' D, Ty Johnson shines, more Week 15 thoughts: Quick Outs**\
+`Tagovailoa was accurate on 75 percent of his passes Sunday, but it didn't amount to much. `\
+https://nytimes.com/athletic/6001767/2024/12/18/nfl-week-15-tua-tagovaiola-ty-johnson/
+
 **Hopes for a New Syria Take Flight**\
 `A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the country’s transitional government tries to demonstrate its ability to run the war-shattered country.`\
 https://nytimes.com/2024/12/18/world/europe/syria-flight-damascus-aleppo-rebels.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6001748/2024/12/18/commanders-jayden-daniels-saints
 **Rayful Edmond, Drug Lord Who Stoked D.C.’s Crack Cocaine Epidemic, Dies at 60**\
 `He rose to prominence in the 1980s, spending lavishly and befriending athletes, as the city was wracked by murders tied to the drug trade. He later became an informant.`\
 https://nytimes.com/2024/12/18/us/rayful-edmond-dead.html
-
-**How the FIFA Women's Club World Cup could help lessen disparity in player loading**\
-`FIFPRO's recent report says that new competitions could help lessen disparity in women's player loading`\
-https://nytimes.com/athletic/6002484/2024/12/18/fifpro-report-club-world-cup-womens-soccer/
 
