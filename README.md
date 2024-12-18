@@ -4,7 +4,7 @@ https://nytimes.com/2024/12/18/us/politics/spending-bill-explainer.html
 
 **Democrats, Don’t Forget the Atheists**\
 `Galvanize these voters without alienating of party members of faith would be pretty easy.`\
-https://nytimes.com/live/2024/12/17/opinion/thepoint/democrats-christians-atheists
+https://nytimes.com/2024/12/18/opinion/democrats-christians-atheists.html
 
 **New York Red Bulls signs former Bayern forward Choupo-Moting**\
 `The New York Red Bulls has completed the signing of Cameroon forward Eric Maxim Choupo-Moting.`\
