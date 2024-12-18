@@ -1,3 +1,15 @@
+**Think You’re High Class? How Do You Feel About Twice-Baked Potatoes?**\
+`By weighing in on 35 meal options, a popular online quiz claims it can determine your social standing. It might not be so simple.`\
+https://nytimes.com/2024/12/18/style/food-class-social-test.html
+
+**Bat Feces Used to Fertilize Cannabis Is Linked to 2 Deaths**\
+`Two men in Rochester, N.Y., died after being infected with a rare fungus found in bat feces, which is sometimes used as fertilizer, researchers wrote in a medical journal.`\
+https://nytimes.com/2024/12/18/nyregion/bat-poop-cannabis-deaths-ny.html
+
+**Mavericks appoint Rick Welts, NBA Hall of Fame executive, as CEO**\
+`Over the next several years, Welts will be heavily involved in the Mavericks’ plans to develop a state-of-the-art arena. `\
+https://nytimes.com/athletic/6004812/2024/12/18/dallas-mavericks-rick-welts-ceo/
+
 **Trinity Rodman opens up about difficult relationship with dad Dennis**\
 `"He's not a dad," Rodman said of her difficult relationship with her NBA Hall of Famer father. "Maybe by blood, but nothing else."`\
 https://nytimes.com/athletic/6004259/2024/12/18/trinity-dennis-rodman-podcast/
