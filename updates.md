@@ -1,3 +1,7 @@
+**Cardinals star safety Budda Baker avoids 2025 free agency after inking three-year extension**\
+`The highly-skilled and versatile safety is currently second in the NFL with 142 total tackles.`\
+https://nytimes.com/athletic/6002392/2024/12/17/cardinals-budda-baker-three-year-extension/
+
 **Biden Administration Running Out of Time to Send Allocated Aid to Ukraine**\
 `Senior officials discussed U.S. plans to announce additional support for Ukraine, and spoke about casualties among North Korean troops sent to help Russia.`\
 https://nytimes.com/2024/12/17/us/politics/ukraine-aid-biden-trump.html
