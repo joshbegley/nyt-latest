@@ -1,3 +1,7 @@
+**Ferrari prepares for Lewis Hamilton's arrival: ‘Not a copy-paste of Mercedes’**\
+`At team headquarters in Italy, Ferrari bid farewell to Carlos Sainz and shared its plans to welcome Lewis Hamilton in a few weeks.`\
+https://nytimes.com/athletic/6004126/2024/12/18/ferrari-lewis-hamilton-f1-fred-vasseur/
+
 **The Rev. James Callan, Renegade Catholic Priest, Dies at 77**\
 `He was excommunicated in 1999 after allowing women to celebrate Mass, blessing same-sex unions and offering communion to non-Catholics.`\
 https://nytimes.com/2024/12/18/nyregion/the-rev-james-callan-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/12/18/climate/held-montana-youth-climate-lawsuit.html
 **The Fed Cut Rates and Signaled a Long Fight Against Inflation**\
 `Also, California declared an emergency over bird flu. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/12/18/briefing/fed-rate-cut-bird-flu-california-oscar-best-picture.html
-
-**‘Skibidi Toilet’ Is Likely Coming to Fortnite. What the Heck Is It?**\
-`In the survival battle video game with 110 million monthly players, you may now be able to wear a skibidi toilet as a backpack. Here is a breakdown of what in the world that means.`\
-https://nytimes.com/2024/12/18/arts/fortnite-skibidi-toilet.html
 
