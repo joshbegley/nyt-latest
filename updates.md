@@ -1,3 +1,11 @@
+**Inside a Huge Spending Deal: Disaster Money, a Football Stadium and More**\
+`The mammoth year-end federal funding measure congressional leaders agreed on does far more than just keep the government running. It is stuffed with all manner of policy and other changes.`\
+https://nytimes.com/2024/12/18/us/politics/spending-bill-explainer.html
+
+**Democrats, Don’t Forget the Atheists**\
+`Galvanize these voters without alienating of party members of faith would be pretty easy.`\
+https://nytimes.com/2024/12/18/opinion/democrats-christians-atheists.html
+
 **What to Know About the Charges Against Luigi Mangione**\
 `The man the authorities say killed UnitedHealthcare’s chief executive is accused of crimes in Pennsylvania and New York, including first-degree murder, which is a terrorism charge.`\
 https://nytimes.com/2024/12/18/nyregion/luigi-mangione-murder-charges.html

@@ -1,3 +1,11 @@
+**Inside a Huge Spending Deal: Disaster Money, a Football Stadium and More**\
+`The mammoth year-end federal funding measure congressional leaders agreed on does far more than just keep the government running. It is stuffed with all manner of policy and other changes.`\
+https://nytimes.com/2024/12/18/us/politics/spending-bill-explainer.html
+
+**Democrats, Don’t Forget the Atheists**\
+`Galvanize these voters without alienating of party members of faith would be pretty easy.`\
+https://nytimes.com/2024/12/18/opinion/democrats-christians-atheists.html
+
 **New York Red Bulls signs former Bayern forward Choupo-Moting**\
 `The New York Red Bulls has completed the signing of Cameroon forward Eric Maxim Choupo-Moting.`\
 https://nytimes.com/athletic/6004403/2024/12/18/eric-maxim-choupo-moting-new-york-red-bulls/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009882200/assad-forces-weapons-
 **Defense Bill Orders Military to Take New Action on Brain Injury**\
 `Mandates in the annual appropriations act, passed on Wednesday, call for the Pentagon to track and mitigate risks to troops’ brains from firing their own weapons.`\
 https://nytimes.com/2024/12/18/us/defense-bill-brain-injury-blast.html
-
-**Ivy League Agrees to Let Football Teams Compete in the Playoffs Next Year**\
-`The conference’s eight schools will be able to participate in the Football Championship Subdivision’s 24-team playoff.`\
-https://nytimes.com/2024/12/18/us/ivy-league-football-fcs-playoffs.html
-
-**Rafael Nadal's final tennis season to get the documentary treatment from Netflix**\
-`The untitled docuseries promises access into Nadal's final tennis season before retirement`\
-https://nytimes.com/athletic/6004071/2024/12/18/rafael-nadal-netflix-documentary-series-tennis/
 
