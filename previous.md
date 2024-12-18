@@ -1,3 +1,7 @@
+**They Fought for Assad in Syria. Now They’re Handing in Their Guns.**\
+`Across Syria, soldiers tied to the former Assad regime are surrendering their weapons to the interim government. The New York Times spoke to some of these men in Latakia, as they face a new and uncertain future as civilians.`\
+https://nytimes.com/video/world/middleeast/100000009882200/assad-forces-weapons-fate.html
+
 **Defense Bill Orders Military to Take New Action on Brain Injury**\
 `Mandates in the annual appropriations act, passed on Wednesday, call for the Pentagon to track and mitigate risks to troops’ brains from firing their own weapons.`\
 https://nytimes.com/2024/12/18/us/defense-bill-brain-injury-blast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003911/2024/12/18/everton-takeover-friedkin-approv
 **The other interest rate that investors are watching today.**\
 `By Joe Rennison`\
 https://nytimes.com/live/2024/12/18/business/fed-interest-rates/the-other-interest-rate-that-investors-are-watching-today
-
-**‘Murder Hornet’ Has Been Eradicated From the U.S., Officials Say**\
-`The hornet was discovered in a corner of Washington State. Five years later, a massive mobilization has eliminated the invasive species, at least for now.`\
-https://nytimes.com/2024/12/18/us/murder-hornet-washington.html
 
