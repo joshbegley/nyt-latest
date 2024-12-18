@@ -1,3 +1,7 @@
+**Rosenthal: How the Orioles crafted winning sales pitch to Tomoyuki Sugano, more MLB notes**\
+`Baltimore made it a priority to talk baseball specifics when courting the 35-year-old Japanese free-agent pitcher. `\
+https://nytimes.com/athletic/6002576/2024/12/17/orioles-tomoyuki-sugano-mlb-free-agency/
+
 **Change With the Times**\
 `Jeffrey Martinovic and Will Nediger up the ante.`\
 https://nytimes.com/2024/12/17/crosswords/daily-puzzle-2024-12-18.html
