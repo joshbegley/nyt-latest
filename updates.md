@@ -1,3 +1,11 @@
+**2 Endangered Whales Found Entangled in Fishing Gear, With 1 Likely to Die**\
+`The North Atlantic right whales, which were seen off the coast of Massachusetts, are one of the most endangered large whale species.`\
+https://nytimes.com/2024/12/18/us/right-whales-nantucket-massachusetts.html
+
+**Sir Lady Java, ’60s Drag Star Who Challenged the Law, Dies**\
+`Long before the term “drag queen” was widely used, her burlesque act was popular in the Black entertainment world but barred under a municipal code.`\
+https://nytimes.com/2024/12/18/arts/sir-lady-java-dead.html
+
 **Under Pressure, Hyundai Supplier Ends Alabama Prison Labor Contract**\
 `The supplier fired dozens of prisoners after some of them said they felt they had no choice but to take those jobs.`\
 https://nytimes.com/2024/12/18/business/hyundai-supplier-alabama-prison-labor.html
