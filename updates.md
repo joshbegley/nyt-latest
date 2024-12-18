@@ -1,3 +1,7 @@
+**With Michael Vick headed to Norfolk State, here’s how other NFL stars fared at HBCUs**\
+`In taking the top job at a school near his hometown of Newport News, Va., Vick joins a group of NFL stars turned first-time coaches at HBCUs`\
+https://nytimes.com/athletic/6004589/2024/12/18/michael-vick-norfolk-state-hbcu-coach-deion-sanders/
+
 **Trump’s Criticism of Spending Deal Raises Fears of Government Shutdown**\
 `The president-elect weighed in against the mammoth spending package after Elon Musk and Vivek Ramaswamy had spent the day attacking it and warning Republicans not to support it.`\
 https://nytimes.com/2024/12/18/us/politics/trump-musk-spending-bill.html

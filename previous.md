@@ -1,3 +1,7 @@
+**With Michael Vick headed to Norfolk State, here’s how other NFL stars fared at HBCUs**\
+`In taking the top job at a school near his hometown of Newport News, Va., Vick joins a group of NFL stars turned first-time coaches at HBCUs`\
+https://nytimes.com/athletic/6004589/2024/12/18/michael-vick-norfolk-state-hbcu-coach-deion-sanders/
+
 **Trump’s Criticism of Spending Deal Raises Fears of Government Shutdown**\
 `The president-elect weighed in against the mammoth spending package after Elon Musk and Vivek Ramaswamy had spent the day attacking it and warning Republicans not to support it.`\
 https://nytimes.com/2024/12/18/us/politics/trump-musk-spending-bill.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/business/economy/100000009885988/federal-reserve-inter
 **Senators Call for Investigation of Medicaid Work Requirement Program**\
 `A group of Democratic lawmakers accused Georgia Pathways to Coverage, the only Medicaid work requirement program in the country, of spending little of its funding on health benefits.`\
 https://nytimes.com/2024/12/18/us/politics/georgia-medicaid-work-requirement.html
-
-**Raheem Morris: Falcons didn't expect to make QB change this season**\
-`Morris said the Falcons hoped Kirk Cousins would find a way to improve before they ultimately benched him for Michael Penix Jr.`\
-https://nytimes.com/athletic/6004548/2024/12/18/falcons-kirk-cousins-michael-penix-starter/
 
