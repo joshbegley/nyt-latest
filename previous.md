@@ -1,6 +1,10 @@
-**Silver acknowledges sagging NBA TV ratings, but says interest not lacking**\
+**NBA's Silver acknowledges sagging TV ratings, but says interest not lacking**\
 `Silver said “ratings are down a bit” but he pointed to a broader trend that “cable television viewership is down double digits.”`\
 https://nytimes.com/athletic/6002603/2024/12/17/adam-silver-nba-tv-ratings/
+
+**Falcons bench Kirk Cousins for rookie Michael Penix Jr. amid struggles**\
+`Atlanta is moving on from the veteran signal-caller and turning to the rookie as the club makes a push for the NFC South title.`\
+https://nytimes.com/athletic/6002204/2024/12/17/falcons-bench-kirk-cousins-michael-penix-starting-quarterback/
 
 **Nuggets searching for offensive help, eyeing Bulls' Zach LaVine: Sources**\
 `Denver's Nikola Jokić is having a historic season. But the Nuggets are searching for trade partners to find him help.`\
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6002529/2024/12/17/kelby-collins-alabama-football-t
 
 **House Republicans’ interim report on Jan. 6 calls for former Rep. Liz Cheney to be investigated.**\
 `By Annie Karni`\
-https://nytimes.com/live/2024/12/17/us/trump-administration-news/house-republicans-interim-report-on-jan-6-calls-for-former-rep-liz-cheney-to-be-investigated
+https://nytimes.com/2024/12/17/us/politics/liz-cheney-jan-6-house-republicans.html
 
 **Tax Preparer Known as ‘the Magician’ Bilked I.R.S. Out of $145 Million**\
 `A businessman in the Bronx falsified information on thousands of returns, committing one of the largest tax frauds in Department of Justice history, prosecutors said.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/us/politics/ukraine-aid-biden-trump.html
 **Honda and Nissan Are in Talks to Deepen Ties and Possibly Merge**\
 `The automakers, Japan’s second- and third-largest, are said to be discussing a tie-up that could reshape the country’s industry.`\
 https://nytimes.com/2024/12/17/business/honda-nissan-talks-merger.html
-
-**Done With Never Trump**\
-`There’s plenty to dislike and fear about Trump, but Never Trumpers overstated our case, defeating our purpose.`\
-https://nytimes.com/2024/12/17/opinion/never-trump-republicans.html
 

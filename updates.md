@@ -1,3 +1,15 @@
+**NBA's Silver acknowledges sagging TV ratings, but says interest not lacking**\
+`Silver said “ratings are down a bit” but he pointed to a broader trend that “cable television viewership is down double digits.”`\
+https://nytimes.com/athletic/6002603/2024/12/17/adam-silver-nba-tv-ratings/
+
+**Falcons bench Kirk Cousins for rookie Michael Penix Jr. amid struggles**\
+`Atlanta is moving on from the veteran signal-caller and turning to the rookie as the club makes a push for the NFC South title.`\
+https://nytimes.com/athletic/6002204/2024/12/17/falcons-bench-kirk-cousins-michael-penix-starting-quarterback/
+
+**House Republicans’ interim report on Jan. 6 calls for former Rep. Liz Cheney to be investigated.**\
+`By Annie Karni`\
+https://nytimes.com/2024/12/17/us/politics/liz-cheney-jan-6-house-republicans.html
+
 **Silver acknowledges sagging NBA TV ratings, but says interest not lacking**\
 `Silver said “ratings are down a bit” but he pointed to a broader trend that “cable television viewership is down double digits.”`\
 https://nytimes.com/athletic/6002603/2024/12/17/adam-silver-nba-tv-ratings/
