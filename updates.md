@@ -1,3 +1,7 @@
+**Congressional Leaders Unveil Short-Term Spending Bill Tied to Disaster Aid**\
+`What started out as a simple stopgap measure to avert a shutdown for a few months became a magnet for more than $100 billion in emergency disaster and farm aid, plus a host of unrelated policy measures.`\
+https://nytimes.com/2024/12/17/world/europe/congress-short-term-spending-bill.html
+
 **Cardinals star safety Budda Baker avoids 2025 free agency after inking three-year extension**\
 `The highly-skilled and versatile safety is currently second in the NFL with 142 total tackles.`\
 https://nytimes.com/athletic/6002392/2024/12/17/cardinals-budda-baker-three-year-extension/
