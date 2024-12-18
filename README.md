@@ -1,3 +1,7 @@
+**How Worried Should We Be About Bird Flu?**\
+`California has declared a state of emergency over the virus. We asked experts how concerned they are.`\
+https://nytimes.com/2024/12/18/well/bird-flu-health-risks.html
+
 **Ferrari prepares for Lewis Hamilton's arrival: ‘Not a copy-paste of Mercedes’**\
 `At team headquarters in Italy, Ferrari bid farewell to Carlos Sainz and shared its plans to welcome Lewis Hamilton in a few weeks.`\
 https://nytimes.com/athletic/6004126/2024/12/18/ferrari-lewis-hamilton-f1-fred-vasseur/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/12/18/us/sothebys-ten-commandments-tablet.html
 **Youth Climate Activists Get Major Win in Montana Supreme Court**\
 `The court agreed that the state’s energy policies violated Montanans’ constitutional right to a clean environment.`\
 https://nytimes.com/2024/12/18/climate/held-montana-youth-climate-lawsuit.html
-
-**The Fed Cut Rates and Signaled a Long Fight Against Inflation**\
-`Also, California declared an emergency over bird flu. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/12/18/briefing/fed-rate-cut-bird-flu-california-oscar-best-picture.html
 
