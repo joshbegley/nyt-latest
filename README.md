@@ -1,3 +1,11 @@
+**Defense Bill Orders Military to Take New Action on Brain Injury**\
+`Mandates in the annual appropriations act, passed on Wednesday, call for the Pentagon to track and mitigate risks to troops’ brains from firing their own weapons.`\
+https://nytimes.com/2024/12/18/us/defense-bill-brain-injury-blast.html
+
+**Ivy League Agrees to Let Football Teams Compete in Playoffs Next Year**\
+`The conference’s eight schools will be able to participate in the Football Championship Subdivision’s 24-team playoff.`\
+https://nytimes.com/2024/12/18/us/ivy-league-football-fcs-playoffs.html
+
 **Rafael Nadal's final tennis season to get the documentary treatment from Netflix**\
 `The untitled docuseries promises access into Nadal's final tennis season before retirement`\
 https://nytimes.com/athletic/6004071/2024/12/18/rafael-nadal-netflix-documentary-series-tennis/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/12/18/business/fed-interest-rates/the-other-intere
 **‘Murder Hornet’ Has Been Eradicated From the U.S., Officials Say**\
 `The hornet was discovered in a corner of Washington State. Five years later, a massive mobilization has eliminated the invasive species, at least for now.`\
 https://nytimes.com/2024/12/18/us/murder-hornet-washington.html
-
-**Aghast at a Move to Revoke the Polio Vaccine**\
-`Readers write about the polio vaccine and the dread of the disease in the past. Also: Reducing crime; the Unabomber’s victims; health insurances woes.`\
-https://nytimes.com/2024/12/18/opinion/polio-vaccine.html
-
-**Central Bankers Around the Globe Gird Themselves for Another Trump Term**\
-`Central bankers are alert to the risk that global trade tensions will make managing inflation more challenging.`\
-https://nytimes.com/2024/12/18/business/global-central-banks-trump.html
 
