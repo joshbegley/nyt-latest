@@ -1,3 +1,7 @@
+**Real Madrid win Intercontinental Cup with victory over Pachuca**\
+`Real Madrid have won the 2024 Intercontinental Cup after beating Pachuca 3-0 in Wednesday&#8217;s final.`\
+https://nytimes.com/athletic/6004007/2024/12/18/real-madrid-intercontinental-cup-final-pachuca/
+
 **They Fought for Assad in Syria. Now They’re Handing in Their Guns.**\
 `Across Syria, soldiers tied to the former Assad regime are surrendering their weapons to the interim government. The New York Times spoke to some of these men in Latakia, as they face a new and uncertain future as civilians.`\
 https://nytimes.com/video/world/middleeast/100000009882200/assad-forces-weapons-fate.html
