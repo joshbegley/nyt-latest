@@ -1,3 +1,15 @@
+**Alabama DB Malachi Moore undergoes season-ending surgery, Jaylen Mbakwe transfer saga**\
+`Several injuries and transfer decisions have opened the door for young players to make an impact in the ReliaQuest Bowl against Michigan.`\
+https://nytimes.com/athletic/6004804/2024/12/18/alabama-college-football-malachi-moore-jaylen-mbakwe/
+
+**F.B.I. Searches Home of L.A. Deputy Mayor Suspected of Bomb Threat Against City Hall**\
+`The official, Brian Williams, who was appointed by the mayor last year to oversee public safety, was immediately placed on administrative leave, the mayor’s office said.`\
+https://nytimes.com/2024/12/18/us/la-deputy-mayor-bomb-threat-fbi.html
+
+**Trump Takes Credit for New Border Security Plan Outlined by Canada**\
+`After Canada unveiled its plan to secure the border with the United States, Mr. Trump’s transition team attributed the action to the president elect.`\
+https://nytimes.com/2024/12/18/us/politics/trump-trudeau-canada-border-security.html
+
 **With Michael Vick headed to Norfolk State, here’s how other NFL stars fared at HBCUs**\
 `In taking the top job at a school near his hometown of Newport News, Va., Vick joins a group of NFL stars turned first-time coaches at HBCUs`\
 https://nytimes.com/athletic/6004589/2024/12/18/michael-vick-norfolk-state-hbcu-coach-deion-sanders/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6004812/2024/12/18/dallas-mavericks-rick-welts-ceo/
 **PSG's Donnarumma sustains serious facial injury in Ligue 1 match**\
 `Paris Saint-Germain goalkeeper Gianluigi Donnarumma was forced off in the first half of his side&#8217;s Ligue 1 fixture against Monaco on Wednesday after sustaining a serious facial injury.`\
 https://nytimes.com/athletic/6004826/2024/12/18/gianluigi-donnarumma-injury-psg/
-
-**Trinity Rodman opens up about difficult relationship with dad Dennis**\
-`"He's not a dad," Rodman said of her difficult relationship with her NBA Hall of Famer father. "Maybe by blood, but nothing else."`\
-https://nytimes.com/athletic/6004259/2024/12/18/trinity-dennis-rodman-podcast/
-
-**The Federal Reserve Cuts Interest Rates By a Quarter Percentage Point**\
-`Jerome H. Powell, the Federal Reserve chair, announced the central bank’s final interest rate cut for the year and suggested only two more reductions in 2025.`\
-https://nytimes.com/video/business/economy/100000009885988/federal-reserve-interest-rates-jerome-powell.html
-
-**Senators Call for Investigation of Medicaid Work Requirement Program**\
-`A group of Democratic lawmakers accused Georgia Pathways to Coverage, the only Medicaid work requirement program in the country, of spending little of its funding on health benefits.`\
-https://nytimes.com/2024/12/18/us/politics/georgia-medicaid-work-requirement.html
 
