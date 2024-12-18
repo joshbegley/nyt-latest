@@ -1,3 +1,7 @@
+**Trump Transition Live Updates: Ex-N.F.L. Star Is Among Latest Ambassador Picks**\
+``\
+https://nytimes.com/live/2024/12/18/us/trump-news
+
 **Is Elon Musk a National Security Risk?**\
 `Federal agencies are reviewing whether the tech mogul and ally of Donald Trump complied with disclosure rules meant to protect states secrets.`\
 https://nytimes.com/2024/12/18/business/dealbook/elon-musk-national-security-risk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003014/2024/12/18/bucks-nba-cup-title-celebrate/
 **The Photos that Defined 2024**\
 `The year was made up of extraordinary moments — and Times photographers captured them in extraordinary images.`\
 https://nytimes.com/2024/12/18/briefing/2024-the-year-in-pictures.html
-
-**Acheampong signs new, improved long-term contract at Chelsea**\
-`Chelsea have ended doubts over the future of Josh Acheampong by tying their young talent to a new and improved long-term contract.`\
-https://nytimes.com/athletic/6003115/2024/12/18/chelsea-josh-acheampong-contract-new/
 
