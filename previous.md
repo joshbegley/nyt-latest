@@ -15,7 +15,7 @@ https://nytimes.com/2024/12/18/crosswords/spelling-bee-forum.html
 https://nytimes.com/2024/12/18/world/europe/russia-general-killing-suspect-uzbekistan.html
 
 **The European Super League (sorry, the Unify League) is back - but where is the imagination?**\
-`The group behind plans for a new European Super League is back with a revamped proposal`\
+`Unify is the latest brainchild of A22, the company that appears to exist solely to pursue the abolition of European football as we know it`\
 https://nytimes.com/athletic/6002228/2024/12/18/super-league-unify-league-uefa-a22/
 
 **Seth Meyers Questions Robert F. Kennedy Jr.’s Workout Fashion**\

@@ -1,3 +1,7 @@
+**The European Super League (sorry, the Unify League) is back - but where is the imagination?**\
+`Unify is the latest brainchild of A22, the company that appears to exist solely to pursue the abolition of European football as we know it`\
+https://nytimes.com/athletic/6002228/2024/12/18/super-league-unify-league-uefa-a22/
+
 **Russia Detains a Man It Says Killed a General on Ukraine’s Orders**\
 `The Russian prosecutor’s office said the suspect, a 29-year-old citizen of Uzbekistan, confessed to planting the bomb on the orders of Ukrainian agents.`\
 https://nytimes.com/2024/12/18/world/europe/russia-general-killing-suspect-uzbekistan.html
