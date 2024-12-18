@@ -1,3 +1,15 @@
+**China’s Nuclear Buildup Is on Track Despite Graft Scandals, Pentagon Says**\
+`Corruption investigations may have shaken Beijing’s confidence in top commanders, but China’s military expansion hasn’t slowed, a report found.`\
+https://nytimes.com/2024/12/18/world/asia/china-nuclear-buildup.html
+
+**American Kitchens Face an Uncertain Mix: Olive Oil and Tariffs**\
+`Trump hasn’t said whether he’ll move against imported foods, but the effects on oil producers and consumers are already being debated.`\
+https://nytimes.com/2024/12/18/dining/olive-oil-tariffs.html
+
+**'We believe we can beat anybody': Giannis, Bucks dominate with defense**\
+`"We have a chance to go deep into the playoffs, but we have to stay healthy," Antetokounmpo said.`\
+https://nytimes.com/athletic/6002970/2024/12/18/giannis-bucks-damian-lillard-nba-cup-thunder/
+
 **Investigation of Police ‘Courtesy Cards’ Finds a 2-Tiered System of Justice**\
 `Videos released by a New Jersey government watchdog have pierced a veil of secrecy around cards that can be used to avoid traffic tickets.`\
 https://nytimes.com/2024/12/18/nyregion/new-jersey-state-police-courtesy-cards.html
