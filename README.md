@@ -1,3 +1,7 @@
+**Hornets apologize for taking PS5 from 13-year-old fan after on-court skit**\
+`The team said they returned the PS5 to the fan and will give him a VIP experience for a future game.`\
+https://nytimes.com/athletic/6003795/2024/12/18/hornets-ps5-giveaway-apology/
+
 **Miami Broker Turns Himself In to Face Sexual Battery Charge**\
 `Ohad Fisherman is accused of participating in an alleged sexual assault in 2016 alongside Oren and Alon Alexander.`\
 https://nytimes.com/2024/12/18/realestate/miami-broker-sexual-battery-charge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003942/2024/12/18/caitlin-clark-iowa-jersey-retire
 **Prisoner’s Self-Portraits of C.I.A. Torture Surface From Sealed Court Record**\
 `“This is what his nightmares are all about,” said a lawyer for a now-confessed war criminal who spent years at Guantánamo Bay.`\
 https://nytimes.com/2024/12/18/us/politics/guantanamo-prisoner-drawings-torture.html
-
-**What Fed Rate Moves Mean for Your Finances**\
-`Here’s how the central bank’s interest rate moves influence car loans, credit cards, mortgages, savings and student loans.`\
-https://nytimes.com/2024/12/18/business/interest-rates-consumers-savings-loans.html
 
