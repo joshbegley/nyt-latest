@@ -1,3 +1,11 @@
+**Aghast at a Move to Revoke the Polio Vaccine**\
+`Readers write about the polio vaccine and the dread of the disease in the past. Also: Reducing crime; the Unabomber’s victims; health insurances woes.`\
+https://nytimes.com/2024/12/18/opinion/polio-vaccine.html
+
+**Central Bankers Around the Globe Gird Themselves for Another Trump Term**\
+`Central bankers are alert to the risk that global trade tensions will make managing inflation more challenging.`\
+https://nytimes.com/2024/12/18/business/global-central-banks-trump.html
+
 **Sergio Pérez out at Red Bull F1 after difficult season, 2025 replacement not yet announced**\
 `Pérez’s downturn in performance had big implications for Red Bull, which couldn’t defend the constructors’ championship.`\
 https://nytimes.com/athletic/6000811/2024/12/18/sergio-perez-red-bull-f1-exit/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/12/18/nyregion/nj-paterson-ruling.html
 **Drug Charges Against Sean Combs Associate Are Dropped in Florida**\
 `The charges against Brendan Paul, a former Syracuse University basketball player who was arrested amid raids on Mr. Combs’s homes, were dropped after he completed a diversion program.`\
 https://nytimes.com/2024/12/18/arts/music/sean-combs-brendan-paul-charges-dropped.html
-
-**Scoop City: Penix Jr. to start, Campbell's onside kick**\
-`What we've seen from Penix so far, debating Dan Campbell's decision and the NFL's All-Improved offense`\
-https://nytimes.com/athletic/6003776/2024/12/18/cousins-benched-penix-falcons-nfl-most-improved-scoop-city/
-
-**A City Lost Control of Its Police Department. A Court Just Gave It Back.**\
-`New Jersey’s attorney general, Matthew J. Platkin, seized control of the Paterson Police Department in March 2023. He vowed to appeal a ruling that found he had overstepped his authority.`\
-https://nytimes.com/2024/12/18/nyregion/paterson-new-jersey-police-takeover-platkin.html
 
