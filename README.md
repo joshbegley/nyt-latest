@@ -1,3 +1,11 @@
+**2 Endangered Whales Found Entangled in Fishing Gear, With 1 Likely to Die**\
+`The North Atlantic right whales, which were seen off the coast of Massachusetts, are one of the most endangered large whale species.`\
+https://nytimes.com/2024/12/18/us/right-whales-nantucket-massachusetts.html
+
+**Sir Lady Java, ’60s Drag Star Who Challenged the Law, Dies**\
+`Long before the term “drag queen” was widely used, her burlesque act was popular in the Black entertainment world but barred under a municipal code.`\
+https://nytimes.com/2024/12/18/arts/sir-lady-java-dead.html
+
 **Under Pressure, Hyundai Supplier Ends Alabama Prison Labor Contract**\
 `The supplier fired dozens of prisoners after some of them said they felt they had no choice but to take those jobs.`\
 https://nytimes.com/2024/12/18/business/hyundai-supplier-alabama-prison-labor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6004403/2024/12/18/eric-maxim-choupo-moting-new-yor
 **New York City to Pay $92.5 Million to Improperly Detained Immigrants**\
 `The city was accused of unlawfully holding more than 20,000 people beyond their scheduled release dates between 1997 and 2012 to comply with ICE detainer requests.`\
 https://nytimes.com/2024/12/18/nyregion/migrants-detention-settlement-deportation.html
-
-**What to Know About the Charges Against Luigi Mangione**\
-`The man the authorities say killed UnitedHealthcare’s chief executive is accused of crimes in Pennsylvania and New York, including first-degree murder, which is a terrorism charge.`\
-https://nytimes.com/2024/12/18/nyregion/luigi-mangione-murder-charges.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears have lost eight games in a row, so our attention turns to the coach search, GM watch and the 2025 NFL Draft. What's on your mind?`\
-https://nytimes.com/athletic/6003936/2024/12/18/bears-mailbag-questions-42/
 
