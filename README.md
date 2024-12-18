@@ -1,3 +1,7 @@
+**Van de Ven and Romero unlikely to return until new year, says Postecoglou**\
+`Tottenham Hotspur head coach Ange Postecoglou says defenders Micky van de Ven and Cristian Romero are unlikely to return until the new year.`\
+https://nytimes.com/athletic/6003383/2024/12/18/tottenham-pair-van-de-ven-and-romero-unlikely-to-return-until-new-year-says-postecoglou/
+
 **Trump Transition Live Updates: Ex-N.F.L. Star Is Among Latest Ambassador Picks**\
 ``\
 https://nytimes.com/live/2024/12/18/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/world/europe/syria-flight-damascus-aleppo-rebels.
 **Amick: After winning NBA Cup, Bucks ready to get to 'back to work'**\
 `Milwaukee took a lesson from Los Angeles' stumble after winning the first Cup title. Partying can wait until the NBA Finals.`\
 https://nytimes.com/athletic/6003014/2024/12/18/bucks-nba-cup-title-celebrate/
-
-**The Photos that Defined 2024**\
-`The year was made up of extraordinary moments — and Times photographers captured them in extraordinary images.`\
-https://nytimes.com/2024/12/18/briefing/2024-the-year-in-pictures.html
 
