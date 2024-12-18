@@ -1,3 +1,7 @@
+**Rafael Nadal's final tennis season to get the documentary treatment from Netflix**\
+`The untitled docuseries promises access into Nadal's final tennis season before retirement`\
+https://nytimes.com/athletic/6004071/2024/12/18/rafael-nadal-netflix-documentary-series-tennis/
+
 **Senate Clears Defense Bill Denying Transgender Care to Minors**\
 `The annual defense bill directing $895 billion toward the Pentagon and other military programs would deny transgender health coverage to minors. It now heads to President Biden’s desk.`\
 https://nytimes.com/2024/12/18/us/politics/senate-defense-bill-transgender-care-minors.html
