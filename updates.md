@@ -1,3 +1,7 @@
+**Word of the Day: marginalized**\
+`This word has appeared in 344 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/18/learning/word-of-the-day-marginalized.html
+
 **Pentagon Repatriates Malaysian Prisoners Who Pleaded Guilty to War Crimes**\
 `The prisoners were airlifted from Guantánamo Bay in a secret operation nearly a year after they admitted to serving as foot soldiers for the accused Indonesian terrorist leader Hambali.`\
 https://nytimes.com/2024/12/18/us/politics/malaysian-prisoners-repatriated-gitmo.html

@@ -1,3 +1,7 @@
+**Word of the Day: marginalized**\
+`This word has appeared in 344 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/18/learning/word-of-the-day-marginalized.html
+
 **Pentagon Repatriates Malaysian Prisoners Who Pleaded Guilty to War Crimes**\
 `The prisoners were airlifted from Guantánamo Bay in a secret operation nearly a year after they admitted to serving as foot soldiers for the accused Indonesian terrorist leader Hambali.`\
 https://nytimes.com/2024/12/18/us/politics/malaysian-prisoners-repatriated-gitmo.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/18/climate/insurance-nonrenewal-rates-po
 **James Bunce, the man tasked with helping Eddie Howe improve Newcastle's performance**\
 `Who is Newcastle's performance director and how does he operate? The Athletic spoke to people who know him well to find out`\
 https://nytimes.com/athletic/5971526/2024/12/18/james-bunce-newcastle-performance-director/
-
-**Sidney Crosby didn't score but was dominant in Penguins' comeback win: Observations**\
-`The Penguins pulled off an overtime win against the Kings thanks to Crosby's sheer determination in the third period.`\
-https://nytimes.com/athletic/6002858/2024/12/18/penguins-crosby-scoring-malkin-kings/
 
