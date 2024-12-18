@@ -2,6 +2,10 @@
 `Denver's Nikola Jokić is having a historic season. But the Nuggets are searching for trade partners to find him help.`\
 https://nytimes.com/athletic/6002502/2024/12/17/zach-lavine-trade-rumors-nuggets/
 
+**What Kelby Collins addition brings to Alabama**\
+`Collins has two years of eligibility after starting his career at Florida.`\
+https://nytimes.com/athletic/6002529/2024/12/17/kelby-collins-alabama-football-transfer-portal/
+
 **House Republicans’ interim report on Jan. 6 calls for former Rep. Liz Cheney to be investigated.**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/12/17/us/trump-administration-news/house-republicans-interim-report-on-jan-6-calls-for-former-rep-liz-cheney-to-be-investigated
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/opinion/never-trump-republicans.html
 **How Elon Musk and Taylor Swift Can Resolve U.S.-China Relations**\
 `Trump will face a new China this time, one whose advanced manufacturing muscles have exploded in size, sophistication and quantity.`\
 https://nytimes.com/2024/12/17/opinion/us-china-musk-swift-tariffs-manufacturing.html
-
-**A Vanguard of Cool Back on the Scene Again**\
-`David Bowie loved its couscous. Norman Reedus hung out there. It put avocado toast on the map. Thirty years later, and with a new book honoring it, Cafe Gitane is drawing a fresh crowd.`\
-https://nytimes.com/2024/12/17/style/cafe-gitane-mcnally-editions-scene.html
 
