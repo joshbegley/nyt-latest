@@ -1,3 +1,7 @@
+**Russia Detains a Man It Says Killed a General on Ukraine’s Orders**\
+`The Russian prosecutor’s office said the suspect, a 29-year-old citizen of Uzbekistan, confessed to planting the bomb on the orders of Ukrainian agents.`\
+https://nytimes.com/2024/12/18/world/europe/russia-general-killing-suspect-uzbekistan.html
+
 **The European Super League (sorry, the Unify League) is back - but where is the imagination?**\
 `The group behind plans for a new European Super League is back with a revamped proposal`\
 https://nytimes.com/athletic/6002228/2024/12/18/super-league-unify-league-uefa-a22/

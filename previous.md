@@ -10,8 +10,8 @@ https://nytimes.com/2024/12/18/learning/social-media-trends.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/18/crosswords/spelling-bee-forum.html
 
-**Russia Detains a Suspect in General’s Killing**\
-`The suspect, a 29-year-old citizen of Uzbekistan, confessed to planting the bomb that killed Lt. Gen. Igor Kirillov in Moscow, a spokeswoman for Russian prosecutors said.`\
+**Russia Detains a Man It Says Killed a General on Ukraine’s Orders**\
+`The Russian prosecutor’s office said the suspect, a 29-year-old citizen of Uzbekistan, confessed to planting the bomb on the orders of Ukrainian agents.`\
 https://nytimes.com/2024/12/18/world/europe/russia-general-killing-suspect-uzbekistan.html
 
 **The European Super League (sorry, the Unify League) is back - but where is the imagination?**\
