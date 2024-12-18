@@ -1,3 +1,11 @@
+**A 20-Minute Exercise Band Workout to Build Strength**\
+`If you are short on time and space, here is a cheap, effective way to get stronger.`\
+https://nytimes.com/2024/12/18/well/move/strength-exercise-band-workout.html
+
+**Perfect Latkes, However You Like Them**\
+`My five-star latkes fry up either thin and crunchy, flecked with golden, crackling strands, or chubby and nubby, with soft, fluffy centers.`\
+https://nytimes.com/2024/12/18/dining/perfect-latkes-however-you-like-them.html
+
 **Tiny Love Stories: ‘What Could Those Two Be Talking About?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/12/18/style/tiny-modern-love-stories-what-could-those-two-be-talking-about.html
