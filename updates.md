@@ -1,3 +1,7 @@
+**Explained: Marcus Rashford's transfer options, contract status and Man Utd's position**\
+`Can any clubs afford to sign Rashford? What is his contract status? Could Man Utd subsidise his exit? What is Rio Ferdinand's role?`\
+https://nytimes.com/athletic/6003967/2024/12/18/marcus-rashford-transfer-contract/
+
 **Rafael Nadal's final tennis season to get the documentary treatment from Netflix**\
 `The untitled docuseries promises access into Nadal's final tennis season before retirement`\
 https://nytimes.com/athletic/6004071/2024/12/18/rafael-nadal-netflix-documentary-series-tennis/
