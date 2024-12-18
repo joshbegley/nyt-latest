@@ -1,3 +1,7 @@
+**Congressional Leaders Unveil Short-Term Spending Bill Tied to Disaster Aid**\
+`What started out as a simple stopgap measure to avert a shutdown for a few months became a magnet for more than $100 billion in emergency disaster and farm aid, plus a host of unrelated policy measures.`\
+https://nytimes.com/2024/12/17/world/europe/congress-short-term-spending-bill.html
+
 **Cubs’ outlook after Cody Bellinger and Kyle Tucker trades: 'We’re not done'**\
 `The Cubs still have room to spend on the pitching staff, Michael Busch isn't moving, Matt Shaw is on the radar for Opening Day and more.`\
 https://nytimes.com/athletic/6002650/2024/12/17/cubs-offseason-outlook-tucker-bellinger-trades/
