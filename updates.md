@@ -1,3 +1,15 @@
+**Cubs’ outlook after Cody Bellinger and Kyle Tucker trades: 'We’re not done'**\
+`The Cubs still have room to spend on the pitching staff, Michael Busch isn't moving, Matt Shaw is on the radar for Opening Day and more.`\
+https://nytimes.com/athletic/6002650/2024/12/17/cubs-offseason-outlook-tucker-bellinger-trades/
+
+**Commanders one step closer to potential RFK return with congressional funding bill**\
+`The Washington franchise has played in Landover, Md., a nearby suburb, since 1997.`\
+https://nytimes.com/athletic/6002619/2024/12/17/commanders-rfk-site-control-update-dc/
+
+**Falcons bench Kirk Cousins for rookie Michael Penix Jr. amid struggles**\
+`The Falcons had planned to sit Penix behind Cousins this season, but the veteran's play dictated this move with a playoff spot at state.`\
+https://nytimes.com/athletic/6002204/2024/12/17/falcons-bench-kirk-cousins-michael-penix-starting-quarterback/
+
 **Rosenthal: How the Orioles crafted winning sales pitch to Tomoyuki Sugano, more MLB notes**\
 `Baltimore made it a priority to talk baseball specifics when courting the 35-year-old Japanese free-agent pitcher. `\
 https://nytimes.com/athletic/6002576/2024/12/17/orioles-tomoyuki-sugano-mlb-free-agency/
