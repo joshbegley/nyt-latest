@@ -2,6 +2,10 @@
 `Lawyers for the victims said it was the largest deal of its kind reached with the federal Bureau of Prisons.`\
 https://nytimes.com/2024/12/18/us/california-prison-settlement-sexual-abuse.html
 
+**Sabres winless streak hits 11 with blowout loss in Montreal. Will anything change?**\
+`How much patience will owner Terry Pegula have with GM Kevyn Adams if this streak continues?`\
+https://nytimes.com/athletic/6002885/2024/12/18/buffalo-sabres-winless-streak-11-games/
+
 **How Liverpool 2.01 was built - and FSG abandoned any plans to sell**\
 `Two years ago, FSG was exploring selling up at Anfield - now, their tenure has new impetus. How?`\
 https://nytimes.com/athletic/5986837/2024/12/18/liverpool-fsg-slot-sale-plan/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/briefing/russia-general-syria-israel.html
 **U.K. Police Chiefs Were Too Slow to React to Summer Riots, Report Says**\
 `Police leaders waited too long — three days — to trigger a national mobilization to tackle the anti-immigrant violence that broke out in Britain this year, a report found.`\
 https://nytimes.com/2024/12/18/world/europe/uk-riots-police-response-report.html
-
-**A 7-Eleven Heir’s $50 Billion Fight to Keep the Company in the Family**\
-`A battle for control of the chain shows how traditional business models embraced by family owners are clashing with a more shareholder-centric approach.`\
-https://nytimes.com/2024/12/18/business/7-eleven-japan-corporate-culture.html
 

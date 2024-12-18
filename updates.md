@@ -1,3 +1,7 @@
+**Sabres winless streak hits 11 with blowout loss in Montreal. Will anything change?**\
+`How much patience will owner Terry Pegula have with GM Kevyn Adams if this streak continues?`\
+https://nytimes.com/athletic/6002885/2024/12/18/buffalo-sabres-winless-streak-11-games/
+
 **U.S. Agrees to Pay $116 Million to Settle Sexual Abuse Claims at California Prison**\
 `Lawyers for the victims said it was the largest deal of its kind reached with the federal Bureau of Prisons.`\
 https://nytimes.com/2024/12/18/us/california-prison-settlement-sexual-abuse.html
