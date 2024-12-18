@@ -1,3 +1,7 @@
+**Rafael Nadal's final tennis season to get the documentary treatment from Netflix**\
+`The untitled docuseries promises access into Nadal's final tennis season before retirement`\
+https://nytimes.com/athletic/6004071/2024/12/18/rafael-nadal-netflix-documentary-series-tennis/
+
 **Senate Clears Defense Bill Denying Transgender Care to Minors**\
 `The annual defense bill directing $895 billion toward the Pentagon and other military programs would deny transgender health coverage to minors. It now heads to President Biden’s desk.`\
 https://nytimes.com/2024/12/18/us/politics/senate-defense-bill-transgender-care-minors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/business/global-central-banks-trump.html
 **Sergio Pérez out at Red Bull F1 after difficult season, 2025 replacement not yet announced**\
 `Pérez’s downturn in performance had big implications for Red Bull, which couldn’t defend the constructors’ championship.`\
 https://nytimes.com/athletic/6000811/2024/12/18/sergio-perez-red-bull-f1-exit/
-
-**Iowa to retire Caitlin Clark's No. 22 jersey in February**\
-`Over her four years with the program, Clark rewrote both the Iowa and NCAA record books.`\
-https://nytimes.com/athletic/6003942/2024/12/18/caitlin-clark-iowa-jersey-retire-basketball/
 
