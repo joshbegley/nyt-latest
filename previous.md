@@ -1,3 +1,7 @@
+**NFL’s first TNF flex spoils Chargers and Broncos fans' plans: 'Very disappointing'**\
+`Giants owner John Mara warned that flexing back to a Thursday would affect fans negatively, but the NFL did it with this Week 16 game.`\
+https://nytimes.com/athletic/6002186/2024/12/18/chargers-broncos-tnf-flex-fans-upset/
+
 **Tua Tagovailoa can't solve Texans' D, Ty Johnson shines, more Week 15 thoughts: Quick Outs**\
 `Tagovailoa was accurate on 75 percent of his passes Sunday, but it didn't amount to much. `\
 https://nytimes.com/athletic/6001767/2024/12/18/nfl-week-15-tua-tagovaiola-ty-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/crosswords/wordle-review-1279.html
 **The Connections Companion No. 557**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Dec. 19, 2024.`\
 https://nytimes.com/2024/12/18/crosswords/connections-companion-557.html
-
-**Commanders film review: How Jayden Daniels' winning performance was nearly sacked**\
-`Washington's rookie QB was sacked a season-high eight times vs. New Orleans. A breakdown of how each one took place. `\
-https://nytimes.com/athletic/6001748/2024/12/18/commanders-jayden-daniels-saints-sacks/
 

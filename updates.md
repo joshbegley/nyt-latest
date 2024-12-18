@@ -1,3 +1,7 @@
+**NFL’s first TNF flex spoils Chargers and Broncos fans' plans: 'Very disappointing'**\
+`Giants owner John Mara warned that flexing back to a Thursday would affect fans negatively, but the NFL did it with this Week 16 game.`\
+https://nytimes.com/athletic/6002186/2024/12/18/chargers-broncos-tnf-flex-fans-upset/
+
 **Hopes for a New Syria Take Flight**\
 `A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the transitional government tries to demonstrate its ability to run the war-shattered country.`\
 https://nytimes.com/2024/12/18/world/europe/syria-flight-damascus-aleppo-rebels.html
