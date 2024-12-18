@@ -1,3 +1,7 @@
+**Trump Transition Live Updates: Ex-N.F.L. Star Is Among Latest Ambassador Picks**\
+``\
+https://nytimes.com/live/2024/12/18/us/trump-news
+
 **Is Elon Musk a National Security Risk?**\
 `Federal agencies are reviewing whether the tech mogul and ally of Donald Trump complied with disclosure rules meant to protect states secrets.`\
 https://nytimes.com/2024/12/18/business/dealbook/elon-musk-national-security-risk.html
