@@ -1,3 +1,7 @@
+**E.P.A. Allows California to Ban Sales of New Gas-Powered Cars by 2035**\
+`The Trump administration is expected to revoke the program, setting up a legal clash between the state and federal government.`\
+https://nytimes.com/2024/12/18/climate/california-ban-new-gasoline-powered-cars.html
+
 **How Worried Should We Be About Bird Flu?**\
 `California has declared a state of emergency over the virus. We asked experts how concerned they are.`\
 https://nytimes.com/2024/12/18/well/bird-flu-health-risks.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6004944/2024/12/18/cardinals-nolan-arenado-astros-t
 **A Ten Commandments Tablet Sells for More Than $5 Million at Auction**\
 `Sotheby’s called the stone the world’s oldest inscribed with the Ten Commandments, but some experts had raised questions about its provenance and authenticity.`\
 https://nytimes.com/2024/12/18/us/sothebys-ten-commandments-tablet.html
-
-**Youth Climate Activists Get Major Win in Montana Supreme Court**\
-`The court agreed that the state’s energy policies violated Montanans’ constitutional right to a clean environment.`\
-https://nytimes.com/2024/12/18/climate/held-montana-youth-climate-lawsuit.html
 
