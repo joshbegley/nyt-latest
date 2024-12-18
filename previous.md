@@ -1,3 +1,7 @@
+**'Nothing but spectacular': James Cook quietly amassing historic Bills numbers**\
+`While Josh Allen is getting all the MVP hype, Cook is putting up numbers not seen in Buffalo since O.J. Simpson and Thurman Thomas.`\
+https://nytimes.com/athletic/6004646/2024/12/18/buffalo-bills-james-cook-historic-season/
+
 **Exclusive: If Commanders leave for D.C., Maryland has a plan in place**\
 `The Athletic looks into the agreement between the Commanders and the State of Maryland if the team agrees to leave for Washington D.C.`\
 https://nytimes.com/athletic/6004756/2024/12/18/washington-commanders-maryland-rfk-stadium/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/12/18/world/europe/google-maps-spain-arrests.html
 **Education Dept. Reverses Itself and Reopens Two Loan Repayment Plans**\
 `The department had been trying to phase out the two plans in favor of a more generous new one that has been tied up by litigation since this summer.`\
 https://nytimes.com/2024/12/18/us/politics/education-dept-repayment-plans.html
-
-**Cardinals' Nolan Arenado nixes trade to Astros, for now**\
-`Despite the St.`\
-https://nytimes.com/athletic/6004944/2024/12/18/cardinals-nolan-arenado-astros-trade/
 
