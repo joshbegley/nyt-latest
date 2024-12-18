@@ -1,3 +1,7 @@
+**Hornets apologize for taking PS5 from 13-year-old fan after on-court skit**\
+`The team said they returned the PS5 to the fan and will give him a VIP experience for a future game.`\
+https://nytimes.com/athletic/6003795/2024/12/18/hornets-ps5-giveaway-apology/
+
 **Miami Broker Turns Himself In to Face Sexual Battery Charge**\
 `Ohad Fisherman is accused of participating in an alleged sexual assault in 2016 alongside Oren and Alon Alexander.`\
 https://nytimes.com/2024/12/18/realestate/miami-broker-sexual-battery-charge.html
