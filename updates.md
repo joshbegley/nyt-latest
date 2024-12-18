@@ -1,3 +1,11 @@
+**U.S. Agrees to Pay $116 Million to Settle Sexual Abuse Claims at California Prison**\
+`Lawyers for the victims said it was the largest deal of its kind reached with the federal Bureau of Prisons.`\
+https://nytimes.com/2024/12/18/us/california-prison-settlement-sexual-abuse.html
+
+**Sidney Crosby didn't score but was dominant in Penguins' comeback win: Observations**\
+`The Penguins pulled off an overtime win against the Kings thanks to Crosby's sheer determination in the third period.`\
+https://nytimes.com/athletic/6002858/2024/12/18/penguins-crosby-scoring-malkin-kings/
+
 **How Liverpool 2.01 was built - and FSG abandoned any plans to sell**\
 `Two years ago, FSG was exploring selling up at Anfield - now, their tenure has new impetus. How?`\
 https://nytimes.com/athletic/5986837/2024/12/18/liverpool-fsg-slot-sale-plan/
