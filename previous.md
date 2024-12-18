@@ -1,3 +1,7 @@
+**An American Curator Takes the Helm at Crisis-Hit Documenta**\
+`Naomi Beckwith, who holds a leadership role at the Guggenheim Museum in New York, said she would make navigating crises a central theme of her exhibition.`\
+https://nytimes.com/2024/12/18/arts/design/naomi-beckwith-documenta-curator.html
+
 **Killing of Russian General Sends a Message, but Doesn’t Change the War**\
 `Ukraine’s forces are steadily losing ground on the battlefield. The assassination of a top general in Moscow won’t improve their war effort, analysts and Western officials say.`\
 https://nytimes.com/2024/12/18/world/europe/russia-kirillov-ukraine-general.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/us/hawaii-plane-crash-inyoue-airport.html
 **Dashcam Video Shows Honolulu Plane Crash**\
 `A small plane crashed near the Daniel K. Inouye International Airport in Honolulu, killing two people, officials said.`\
 https://nytimes.com/video/us/100000009884616/honolulu-hawaii-plane-crash-dash-cam.html
-
-**A Cease-Fire Is Extended in a Disputed City in Northern Syria**\
-`A U.S. official announced the move about the truce in Manbij, where Kurdish and Turkish-backed fighters have clashed, as U.S. and other foreign officials try to broker a lasting armistice.`\
-https://nytimes.com/2024/12/18/world/middleeast/cease-fire-extended-kurdish-forces-turkey-syria.html
 

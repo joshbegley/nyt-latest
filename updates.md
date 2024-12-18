@@ -1,3 +1,7 @@
+**An American Curator Takes the Helm at Crisis-Hit Documenta**\
+`Naomi Beckwith, who holds a leadership role at the Guggenheim Museum in New York, said she would make navigating crises a central theme of her exhibition.`\
+https://nytimes.com/2024/12/18/arts/design/naomi-beckwith-documenta-curator.html
+
 **Killing of Russian General Sends a Message, but Doesn’t Change the War**\
 `Ukraine’s forces are steadily losing ground on the battlefield. The assassination of a top general in Moscow won’t improve their war effort, analysts and Western officials say.`\
 https://nytimes.com/2024/12/18/world/europe/russia-kirillov-ukraine-general.html
