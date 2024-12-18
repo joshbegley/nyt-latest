@@ -6,8 +6,8 @@ https://nytimes.com/2024/12/18/business/stock-market-fed-rate-cut-forecast.html
 `Plus, the big stories of 2024 through our photographers’ eyes.`\
 https://nytimes.com/2024/12/18/briefing/russia-syria-pelicot.html
 
-**Charges for Ex-Top Aide to Mayor Adams Center on Porsche for Her Son**\
-`Ingrid Lewis-Martin, her son, and two businessmen were expected to be arraigned on bribery charges said to stem from a loan prosecutors say the businessmen provided for the car.`\
+**$100,000 Loan for Porsche at Center of Charges Against Former Adams Aide**\
+`Ingrid Lewis-Martin, her son, and two businessmen were expected to be arraigned on bribery charges connected to the loan for Lewis-Martin’s son.`\
 https://nytimes.com/2024/12/18/nyregion/adams-corruption-ingrid-investigation.html
 
 **Florida Charges Man Suspected of Trump Assassination Plot**\
