@@ -1,3 +1,7 @@
+**Tax Preparer Known as ‘the Magician’ Bilked I.R.S. Out of $145 Million**\
+`A businessman in the Bronx falsified information on thousands of returns, committing one of the largest tax frauds in Department of Justice history, prosecutors said.`\
+https://nytimes.com/2024/12/17/nyregion/fraud-tax-return-charges-bronx.html
+
 **Congressional Leaders Unveil Short-Term Spending Bill Tied to Disaster Aid**\
 `What started out as a simple stopgap measure to avert a shutdown for a few months became a magnet for more than $100 billion in emergency disaster and farm aid, plus a host of unrelated policy measures.`\
 https://nytimes.com/2024/12/17/world/europe/congress-short-term-spending-bill.html

@@ -1,3 +1,7 @@
+**Tax Preparer Known as ‘the Magician’ Bilked I.R.S. Out of $145 Million**\
+`A businessman in the Bronx falsified information on thousands of returns, committing one of the largest tax frauds in Department of Justice history, prosecutors said.`\
+https://nytimes.com/2024/12/17/nyregion/fraud-tax-return-charges-bronx.html
+
 **Congressional Leaders Unveil Short-Term Spending Bill Tied to Disaster Aid**\
 `What started out as a simple stopgap measure to avert a shutdown for a few months became a magnet for more than $100 billion in emergency disaster and farm aid, plus a host of unrelated policy measures.`\
 https://nytimes.com/2024/12/17/world/europe/congress-short-term-spending-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6002266/2024/12/17/new-rays-stadium-county-vote-app
 **Sherrod Brown Signs Off in the Senate. For Now.**\
 `Ohio’s senior Democratic senator told colleagues that despite his defeat, he was not done with politics just yet.`\
 https://nytimes.com/2024/12/17/us/sherrod-brown-senate-career.html
-
-**Yankees acquire Cody Bellinger for minimal cost but he's not a perfect fit: Law**\
-`The Cubs have cleared salary room without significantly damaging their outfield depth, but they need to spend that money on pitching.`\
-https://nytimes.com/athletic/6002221/2024/12/17/yankees-cubs-cody-bellinger-trade-analysis/
 
