@@ -1,3 +1,7 @@
+**Who Is Friedrich Merz, Who Could Be Germany’s Next Chancellor?**\
+`If polls are correct, Olaf Scholz’s successor could be Friedrich Merz, 69, leader of the Christian Democratic Union. He is offering to get the German economic engine humming again.`\
+https://nytimes.com/2024/12/18/world/europe/germany-friedrich-merz-chancellor.html
+
 **What to Watch as the Fed Makes Its Final 2024 Rate Decision**\
 `Federal Reserve officials are widely expected to cut interest rates, but investors will focus on hints about what comes next.`\
 https://nytimes.com/2024/12/18/business/fed-meeting-interest-rates.html
