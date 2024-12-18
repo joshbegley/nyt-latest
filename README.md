@@ -1,3 +1,7 @@
+**Killing of Russian General Sends a Message, but Doesn’t Change the War**\
+`Ukraine’s forces are steadily losing ground on the battlefield. The assassination of a top general in Moscow won’t improve their war effort, analysts and Western officials say.`\
+https://nytimes.com/2024/12/18/world/europe/russia-kirillov-ukraine-general.html
+
 **A 20-Minute Exercise Band Workout to Build Strength**\
 `If you are short on time and space, here is a cheap, effective way to get stronger.`\
 https://nytimes.com/2024/12/18/well/move/strength-exercise-band-workout.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009884616/honolulu-hawaii-plane-crash-dash-ca
 **A Cease-Fire Is Extended in a Disputed City in Northern Syria**\
 `A U.S. official announced the move about the truce in Manbij, where Kurdish and Turkish-backed fighters have clashed, as U.S. and other foreign officials try to broker a lasting armistice.`\
 https://nytimes.com/2024/12/18/world/middleeast/cease-fire-extended-kurdish-forces-turkey-syria.html
-
-**Cowboys Today: Playing hard when playoffs are unlikely is great, but still the bare minimum**\
-`The Cowboys are playing hard and have won three our of four games, but shouldn't playing hard be the expectation?`\
-https://nytimes.com/athletic/6003032/2024/12/18/cowboys-today-mike-mccarthy-future/
 
