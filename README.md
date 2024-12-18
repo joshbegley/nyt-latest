@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6002529/2024/12/17/kelby-collins-alabama-football-t
 
 **House Republicans’ interim report on Jan. 6 calls for former Rep. Liz Cheney to be investigated.**\
 `By Annie Karni`\
-https://nytimes.com/live/2024/12/17/us/trump-administration-news/house-republicans-interim-report-on-jan-6-calls-for-former-rep-liz-cheney-to-be-investigated
+https://nytimes.com/2024/12/17/us/politics/liz-cheney-jan-6-house-republicans.html
 
 **Tax Preparer Known as ‘the Magician’ Bilked I.R.S. Out of $145 Million**\
 `A businessman in the Bronx falsified information on thousands of returns, committing one of the largest tax frauds in Department of Justice history, prosecutors said.`\
