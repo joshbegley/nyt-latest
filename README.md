@@ -1,3 +1,11 @@
+**David Bonderman, Private Equity Pioneer, Is Dead at 82**\
+`A globe-trotting lawyer turned investor, he helped transform a cottage industry into a colossus with influence on Wall Street and beyond.`\
+https://nytimes.com/2024/12/18/business/dealbook/david-bonderman-dead.html
+
+**My Neighbor Won’t Stop Praying for Me. What Should I Do?**\
+`The magazine’s Ethicist columnist on how to navigate religious differences with someone you care for.`\
+https://nytimes.com/2024/12/18/magazine/neighbor-prayer-ethics.html
+
 **What’s in Our Queue? ‘Cowboy Carter’ and More **\
 `Text by Nico Grant`\
 https://nytimes.com/card/2024/12/18/arts/editors-recommendations-cowboycarter
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/18/world/europe/russia-kirillov-ukraine-general.html
 **How to watch Oklahoma vs. Michigan basketball: Storylines, odds for Jumpman Invitational**\
 `Wednesday night will yield either the Sooners' most impressive win to date or a statement on the Wolverines' tenacity.`\
 https://nytimes.com/athletic/6001402/2024/12/18/oklahoma-michigan-how-to-watch-odds-preview/
-
-**A 20-Minute Exercise Band Workout to Build Strength**\
-`If you are short on time and space, here is a cheap, effective way to get stronger.`\
-https://nytimes.com/2024/12/18/well/move/strength-exercise-band-workout.html
-
-**Perfect Latkes, However You Like Them**\
-`My five-star latkes fry up either thin and crunchy, flecked with golden, crackling strands, or chubby and nubby, with soft, fluffy centers.`\
-https://nytimes.com/2024/12/18/dining/perfect-latkes-however-you-like-them.html
 
