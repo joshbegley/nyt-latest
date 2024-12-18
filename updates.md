@@ -1,3 +1,7 @@
+**Tim Weah suffers hamstring injury, expected to be out for two weeks**\
+`Weah has four goals and four assists in 18 games for Juventus this season.`\
+https://nytimes.com/athletic/6003359/2024/12/18/tim-weah-injury-usmnt-juventus/
+
 **Van de Ven and Romero unlikely to return until new year, says Postecoglou**\
 `Tottenham Hotspur head coach Ange Postecoglou says defenders Micky van de Ven and Cristian Romero are unlikely to return until the new year.`\
 https://nytimes.com/athletic/6003383/2024/12/18/tottenham-pair-van-de-ven-and-romero-unlikely-to-return-until-new-year-says-postecoglou/

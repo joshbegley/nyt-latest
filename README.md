@@ -18,6 +18,10 @@ https://nytimes.com/2024/12/18/business/dealbook/elon-musk-national-security-ris
 `Dr. Mark Hyman, a “functional medicine” proponent and longtime friend of Robert F. Kennedy Jr., is finding powerful allies in his bid to treat disease with blood tests and supplements.`\
 https://nytimes.com/2024/12/18/health/mark-hyman-rfk-jr-functional-medicine.html
 
+**Hater’s guide to the College Football Playoff: Dabo turns SEC tears into holy water**\
+`All 12 teams in the expanded College Football Playoff are uniquely worthy of deep resentment and scorn. `\
+https://nytimes.com/athletic/6002350/2024/12/18/college-football-playoff-guide-teams-games-2/
+
 **Giving Pledge Group, Led by Gates and Buffett, Removes Billionaire Accused of Fraud**\
 `Arif Naqvi, founder of the Abraaj Group, a Dubai-based private equity firm that collapsed in 2018, was indicted by U.S. prosecutors in 2019.`\
 https://nytimes.com/2024/12/18/business/dealbook/bill-gates-giving-pledge-arif-naqvi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6002186/2024/12/18/chargers-broncos-tnf-flex-fans-u
 **Tua Tagovailoa can't solve Texans' D, Ty Johnson shines, more Week 15 thoughts: Quick Outs**\
 `Tagovailoa was accurate on 75 percent of his passes Sunday, but it didn't amount to much. `\
 https://nytimes.com/athletic/6001767/2024/12/18/nfl-week-15-tua-tagovaiola-ty-johnson/
-
-**Hopes for a New Syria Take Flight**\
-`A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the transitional government tries to demonstrate its ability to run the war-shattered country.`\
-https://nytimes.com/2024/12/18/world/europe/syria-flight-damascus-aleppo-rebels.html
 
