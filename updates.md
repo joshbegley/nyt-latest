@@ -1,3 +1,7 @@
+**Commanders one step closer to potential RFK return with congressional funding bill**\
+`The Washington franchise has played in Landover, Maryland, a nearby suburb, since 1997.`\
+https://nytimes.com/athletic/6002619/2024/12/17/commanders-rfk-site-control-update-dc/
+
 **House Republicans Call for Liz Cheney to Be Investigated Over Jan. 6 Committee Role**\
 `Ms. Cheney defended her work on the select committee in a detailed statement, and called the report “a malicious and cowardly assault on the truth.”`\
 https://nytimes.com/2024/12/17/us/politics/liz-cheney-jan-6-house-republicans.html
