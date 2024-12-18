@@ -1,3 +1,11 @@
+**Silver acknowledges sagging NBA TV ratings, but says interest not lacking**\
+`Silver said “ratings are down a bit” but he pointed to a broader trend that “cable television viewership is down double digits.”`\
+https://nytimes.com/athletic/6002603/2024/12/17/adam-silver-nba-tv-ratings/
+
+**Honda and Nissan Are in Talks to Deepen Ties and Possibly Merge**\
+`The automakers, Japan’s second- and third-largest, are said to be discussing a tie-up that could reshape the country’s industry.`\
+https://nytimes.com/2024/12/17/business/honda-nissan-talks-merger.html
+
 **Nuggets searching for offensive help, eyeing Bulls' Zach LaVine: Sources**\
 `Denver's Nikola Jokić is having a historic season. But the Nuggets are searching for trade partners to find him help.`\
 https://nytimes.com/athletic/6002502/2024/12/17/zach-lavine-trade-rumors-nuggets/
