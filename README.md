@@ -14,6 +14,10 @@ https://nytimes.com/2024/12/18/opinion/speech-surveillance.html
 `Her bitter comments and antisocial behavior may spring from discomfort around her high-achieving friends, but that doesn’t make her any easier to deal with.`\
 https://nytimes.com/2024/12/18/style/girls-trip-invitation.html
 
+**The NBA Cup needs an atmosphere boost, and Las Vegas might not have the answer**\
+`The second annual NBA Cup proved something more is needed. It’s not terrible. It’s just not enough.`\
+https://nytimes.com/athletic/6002989/2024/12/18/nba-cup-future-vegas-neutral-site-location/
+
 **Tim Weah suffers hamstring injury, expected to be out for two weeks**\
 `Weah has four goals and four assists in 18 games for Juventus this season.`\
 https://nytimes.com/athletic/6003359/2024/12/18/tim-weah-injury-usmnt-juventus/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/business/dealbook/elon-musk-national-security-ris
 **He Built a Wellness Empire While Adventuring With R.F.K. Jr.**\
 `Dr. Mark Hyman, a “functional medicine” proponent and longtime friend of Robert F. Kennedy Jr., is finding powerful allies in his bid to treat disease with blood tests and supplements.`\
 https://nytimes.com/2024/12/18/health/mark-hyman-rfk-jr-functional-medicine.html
-
-**Hater’s guide to the College Football Playoff: Dabo turns SEC tears into holy water**\
-`All 12 teams in the expanded College Football Playoff are uniquely worthy of deep resentment and scorn. `\
-https://nytimes.com/athletic/6002350/2024/12/18/college-football-playoff-guide-teams-games-2/
 
