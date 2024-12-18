@@ -1,3 +1,7 @@
+**If USC can't land — and retain — elite talent, then hope will be in short supply**\
+`The Trojans are in a rut. There’s no other way to put it. And it's a sobering reality considering how bright things looked three years ago.`\
+https://nytimes.com/athletic/6003360/2024/12/18/usc-lincoln-riley-transferes-recruiting/
+
 **How to Find Your Way Around That Updated Photos App**\
 `Redesigned interfaces, new features and artificial intelligence are meant to enhance the experience, even if the changes can be confusing at first.`\
 https://nytimes.com/2024/12/18/technology/personaltech/apple-google-photo-apps-updates-changes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/health/mark-hyman-rfk-jr-functional-medicine.html
 **Hater’s guide to the College Football Playoff: Dabo turns SEC tears into holy water**\
 `All 12 teams in the expanded College Football Playoff are uniquely worthy of deep resentment and scorn. `\
 https://nytimes.com/athletic/6002350/2024/12/18/college-football-playoff-guide-teams-games-2/
-
-**Giving Pledge Group, Led by Gates and Buffett, Removes Billionaire Accused of Fraud**\
-`Arif Naqvi, founder of the Abraaj Group, a Dubai-based private equity firm that collapsed in 2018, was indicted by U.S. prosecutors in 2019.`\
-https://nytimes.com/2024/12/18/business/dealbook/bill-gates-giving-pledge-arif-naqvi.html
 
