@@ -1,3 +1,7 @@
+**California Declares an Emergency Over Bird Flu**\
+`Officials have discovered the virus in 645 herds, more than in any other state so far.`\
+https://nytimes.com/2024/12/18/health/bird-flu-emergency-california.html
+
 **2 Endangered Whales Found Entangled in Fishing Gear, With 1 Likely to Die**\
 `The North Atlantic right whales, which were seen off the coast of Massachusetts, are one of the most endangered large whale species.`\
 https://nytimes.com/2024/12/18/us/right-whales-nantucket-massachusetts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/opinion/democrats-christians-atheists.html
 **New York Red Bulls signs former Bayern forward Choupo-Moting**\
 `The New York Red Bulls has completed the signing of Cameroon forward Eric Maxim Choupo-Moting.`\
 https://nytimes.com/athletic/6004403/2024/12/18/eric-maxim-choupo-moting-new-york-red-bulls/
-
-**New York City to Pay $92.5 Million to Improperly Detained Immigrants**\
-`The city was accused of unlawfully holding more than 20,000 people beyond their scheduled release dates between 1997 and 2012 to comply with ICE detainer requests.`\
-https://nytimes.com/2024/12/18/nyregion/migrants-detention-settlement-deportation.html
 

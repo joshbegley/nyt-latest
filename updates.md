@@ -1,3 +1,7 @@
+**California Declares an Emergency Over Bird Flu**\
+`Officials have discovered the virus in 645 herds, more than in any other state so far.`\
+https://nytimes.com/2024/12/18/health/bird-flu-emergency-california.html
+
 **2 Endangered Whales Found Entangled in Fishing Gear, With 1 Likely to Die**\
 `The North Atlantic right whales, which were seen off the coast of Massachusetts, are one of the most endangered large whale species.`\
 https://nytimes.com/2024/12/18/us/right-whales-nantucket-massachusetts.html
