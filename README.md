@@ -1,3 +1,19 @@
+**A Ten Commandments Tablet Sells for More Than $5 Million at Auction**\
+`Sotheby’s called the stone the world’s oldest inscribed with the Ten Commandments, but some experts had raised questions about its provenance and authenticity.`\
+https://nytimes.com/2024/12/18/us/sothebys-ten-commandments-tablet.html
+
+**Youth Climate Activists Get Major Win in Montana Supreme Court**\
+`The court agreed that the state’s energy policies violated Montanans’ constitutional right to a clean environment.`\
+https://nytimes.com/2024/12/18/climate/held-montana-youth-climate-lawsuit.html
+
+**The Fed Cut Rates and Signaled a Long Fight Against Inflation**\
+`Also, California declared an emergency over bird flu. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/12/18/briefing/fed-rate-cut-bird-flu-california-oscar-best-picture.html
+
+**‘Skibidi Toilet’ Is Likely Coming to Fortnite. What the Heck Is It?**\
+`In the survival battle video game with 110 million monthly players, you may now be able to wear a skibidi toilet as a backpack. Here is a breakdown of what in the world that means.`\
+https://nytimes.com/2024/12/18/arts/fortnite-skibidi-toilet.html
+
 **Alabama DB Malachi Moore undergoes season-ending surgery, Jaylen Mbakwe transfer saga**\
 `Several injuries and transfer decisions have opened the door for young players to make an impact in the ReliaQuest Bowl against Michigan.`\
 https://nytimes.com/athletic/6004804/2024/12/18/alabama-college-football-malachi-moore-jaylen-mbakwe/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6004589/2024/12/18/michael-vick-norfolk-state-hbcu-
 **Trump’s Criticism of Spending Deal Raises Fears of Government Shutdown**\
 `The president-elect weighed in against the mammoth spending package after Elon Musk and Vivek Ramaswamy had spent the day attacking it and warning Republicans not to support it.`\
 https://nytimes.com/2024/12/18/us/politics/trump-musk-spending-bill.html
-
-**Think You’re High Class? How Do You Feel About Twice-Baked Potatoes?**\
-`By weighing in on 35 meal options, a popular online quiz claims it can determine your social standing. It might not be so simple.`\
-https://nytimes.com/2024/12/18/style/food-class-social-test.html
-
-**Bat Feces Used to Fertilize Cannabis Is Linked to 2 Deaths**\
-`Two men in Rochester, N.Y., died after being infected with a rare fungus found in bat feces, which is sometimes used as fertilizer, researchers wrote in a medical journal.`\
-https://nytimes.com/2024/12/18/nyregion/bat-poop-cannabis-deaths-ny.html
-
-**Mavericks appoint Rick Welts, NBA Hall of Fame executive, as CEO**\
-`Over the next several years, Welts will be heavily involved in the Mavericks’ plans to develop a state-of-the-art arena. `\
-https://nytimes.com/athletic/6004812/2024/12/18/dallas-mavericks-rick-welts-ceo/
-
-**PSG's Donnarumma sustains serious facial injury in Ligue 1 match**\
-`Paris Saint-Germain goalkeeper Gianluigi Donnarumma was forced off in the first half of his side&#8217;s Ligue 1 fixture against Monaco on Wednesday after sustaining a serious facial injury.`\
-https://nytimes.com/athletic/6004826/2024/12/18/gianluigi-donnarumma-injury-psg/
 
