@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6001767/2024/12/18/nfl-week-15-tua-tagovaiola-ty-johnson/
 
 **Hopes for a New Syria Take Flight**\
-`A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the country’s transitional government tries to demonstrate its ability to run the war-shattered country.`\
+`A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the transitional government tries to demonstrate its ability to run the war-shattered country.`\
 https://nytimes.com/2024/12/18/world/europe/syria-flight-damascus-aleppo-rebels.html
 
 **Amick: After winning NBA Cup, Bucks ready to get to 'back to work'**\
