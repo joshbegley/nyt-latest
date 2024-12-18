@@ -1,3 +1,7 @@
+**A Baby Capybara’s Rise to Fame Is a Perfect End to 2024**\
+`Like this year’s other viral baby animals, Tupi was quickly embraced on social media. An hour later, the San Antonio Zoo distanced itself from a memecoin named after him.`\
+https://nytimes.com/2024/12/18/style/tupi-capybara-memecoin.html
+
 **House Ethics Panel Voted Secretly to Release the Gaetz Report**\
 `Lawmakers agreed the report would come out after the House has completed legislative business for the year and once they have left Washington to return to their districts.`\
 https://nytimes.com/2024/12/18/us/politics/matt-gaetz-ethics-report-release.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/dining/olive-oil-tariffs.html
 **Investigation of Police ‘Courtesy Cards’ Finds a 2-Tiered System of Justice**\
 `Videos released by a New Jersey government watchdog have pierced a veil of secrecy around cards that can be used to avoid traffic tickets.`\
 https://nytimes.com/2024/12/18/nyregion/new-jersey-state-police-courtesy-cards.html
-
-**Who Is Dominique Pelicot, France’s Most Notorious Sexual Predator?**\
-`For over three months, judges and lawyers have tried to grasp the true nature of the man who said he had invited dozens of strangers to join him in raping his drugged wife.`\
-https://nytimes.com/2024/12/18/world/europe/france-dominique-pelicot-rape-trial.html
 

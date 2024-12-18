@@ -1,3 +1,7 @@
+**A Baby Capybara’s Rise to Fame Is a Perfect End to 2024**\
+`Like this year’s other viral baby animals, Tupi was quickly embraced on social media. An hour later, the San Antonio Zoo distanced itself from a memecoin named after him.`\
+https://nytimes.com/2024/12/18/style/tupi-capybara-memecoin.html
+
 **House Ethics Panel Voted Secretly to Release the Gaetz Report**\
 `Lawmakers agreed the report would come out after the House has completed legislative business for the year and once they have left Washington to return to their districts.`\
 https://nytimes.com/2024/12/18/us/politics/matt-gaetz-ethics-report-release.html
