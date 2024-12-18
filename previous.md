@@ -1,3 +1,11 @@
+**Syria’s First Domestic Flight Since the Assad Regime Fell Takes Off**\
+`The Damascus International Airport reopened on Wednesday with a domestic flight to Aleppo, signaling that Syria’s new rulers are confident in their ability to govern after the end of the Assad family’s rule.`\
+https://nytimes.com/video/world/middleeast/100000009884546/syria-damascus-airport-reopens-.html
+
+**Giannis, Bucks dominate with defense to defeat Thunder and win NBA Cup title**\
+`Giannis Antetokounmpo and Damian Lillard combined for 49 of Milwaukee's 97 points, but stout defense carried the Bucks to an NBA Cup title.`\
+https://nytimes.com/athletic/6002970/2024/12/18/giannis-bucks-damian-lillard-nba-cup-thunder/
+
 **How a Forgotten TV Show Forever Changed the Way We Look at Art**\
 `Weekly from 1956 to ’63, a charismatic painter named Lorser Feitelson filled America’s living rooms with the first televised history of art. We’re still exploring — and trapped in — his world.`\
 https://nytimes.com/2024/12/18/t-magazine/lorser-feitelson-on-art-tv-show.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6002989/2024/12/18/nba-cup-future-vegas-neutral-sit
 **Tim Weah suffers hamstring injury, expected to be out for two weeks**\
 `Weah has four goals and four assists in 18 games for Juventus this season.`\
 https://nytimes.com/athletic/6003359/2024/12/18/tim-weah-injury-usmnt-juventus/
-
-**Van de Ven and Romero unlikely to return until new year, says Postecoglou**\
-`Tottenham Hotspur head coach Ange Postecoglou says defenders Micky van de Ven and Cristian Romero are unlikely to return until the new year.`\
-https://nytimes.com/athletic/6003383/2024/12/18/tottenham-pair-van-de-ven-and-romero-unlikely-to-return-until-new-year-says-postecoglou/
-
-**Trump Transition Live Updates: Ex-N.F.L. Star Is Among Latest Ambassador Picks**\
-``\
-https://nytimes.com/live/2024/12/18/us/trump-news
 

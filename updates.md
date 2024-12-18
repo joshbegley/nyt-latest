@@ -1,3 +1,11 @@
+**Syria’s First Domestic Flight Since the Assad Regime Fell Takes Off**\
+`The Damascus International Airport reopened on Wednesday with a domestic flight to Aleppo, signaling that Syria’s new rulers are confident in their ability to govern after the end of the Assad family’s rule.`\
+https://nytimes.com/video/world/middleeast/100000009884546/syria-damascus-airport-reopens-.html
+
+**Giannis, Bucks dominate with defense to defeat Thunder and win NBA Cup title**\
+`Giannis Antetokounmpo and Damian Lillard combined for 49 of Milwaukee's 97 points, but stout defense carried the Bucks to an NBA Cup title.`\
+https://nytimes.com/athletic/6002970/2024/12/18/giannis-bucks-damian-lillard-nba-cup-thunder/
+
 **How a Forgotten TV Show Forever Changed the Way We Look at Art**\
 `Weekly from 1956 to ’63, a charismatic painter named Lorser Feitelson filled America’s living rooms with the first televised history of art. We’re still exploring — and trapped in — his world.`\
 https://nytimes.com/2024/12/18/t-magazine/lorser-feitelson-on-art-tv-show.html
