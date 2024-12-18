@@ -1,4 +1,4 @@
-**Nuggets search for offensive help, eyeing Bulls' Zach LaVine: Sources**\
+**Nuggets searching for offensive help, eyeing Bulls' Zach LaVine: Sources**\
 `Denver's Nikola Jokić is having a historic season. But the Nuggets are searching for trade partners to find him help.`\
 https://nytimes.com/athletic/6002502/2024/12/17/zach-lavine-trade-rumors-nuggets/
 
