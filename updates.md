@@ -1,3 +1,7 @@
+**How Worried Should We Be About Bird Flu?**\
+`California has declared a state of emergency over the virus. We asked experts how concerned they are.`\
+https://nytimes.com/2024/12/18/well/bird-flu-health-risks.html
+
 **Ferrari prepares for Lewis Hamilton's arrival: ‘Not a copy-paste of Mercedes’**\
 `At team headquarters in Italy, Ferrari bid farewell to Carlos Sainz and shared its plans to welcome Lewis Hamilton in a few weeks.`\
 https://nytimes.com/athletic/6004126/2024/12/18/ferrari-lewis-hamilton-f1-fred-vasseur/
