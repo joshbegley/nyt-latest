@@ -1,3 +1,7 @@
+**He Built a Wellness Empire While Adventuring With R.F.K. Jr.**\
+`Dr. Mark Hyman, a “functional medicine” proponent and longtime friend of Robert F. Kennedy Jr., is finding powerful allies in his bid to treat disease with blood tests and supplements.`\
+https://nytimes.com/2024/12/18/health/mark-hyman-rfk-jr-functional-medicine.html
+
 **Giving Pledge Group, Led by Gates and Buffett, Removes Billionaire Accused of Fraud**\
 `Arif Naqvi, founder of the Abraaj Group, a Dubai-based private equity firm that collapsed in 2018, was indicted by U.S. prosecutors in 2019.`\
 https://nytimes.com/2024/12/18/business/dealbook/bill-gates-giving-pledge-arif-naqvi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003115/2024/12/18/chelsea-josh-acheampong-contract
 **Fed Expected to Cut Rates, and C.E.O. Shooting Suspect Branded Terrorist**\
 `Plus, a beefy new skin care trend.`\
 https://nytimes.com/2024/12/18/podcasts/fed-mangione-beef-tallow.html
-
-**France’s Horrifying Rape Trial Has a Feminist Hero**\
-`Gisèle Pelicot’s former husband and 50 other men are accused of raping her. Her poise and courage have made her an icon.`\
-https://nytimes.com/2024/12/18/podcasts/the-daily/france-rape-trial-pelicot.html
 

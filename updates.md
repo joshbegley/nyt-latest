@@ -1,3 +1,7 @@
+**He Built a Wellness Empire While Adventuring With R.F.K. Jr.**\
+`Dr. Mark Hyman, a “functional medicine” proponent and longtime friend of Robert F. Kennedy Jr., is finding powerful allies in his bid to treat disease with blood tests and supplements.`\
+https://nytimes.com/2024/12/18/health/mark-hyman-rfk-jr-functional-medicine.html
+
 **Lowetide: Oilers' Ty Emberson is announcing his presence with authority**\
 `Emberson has recently become a more prominent player on the Oilers' top-six defence.`\
 https://nytimes.com/athletic/6001196/2024/12/18/oilers-ty-emberson-stats/
