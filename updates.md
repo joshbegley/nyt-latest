@@ -1,3 +1,11 @@
+**Trump Picks Herschel Walker to Be Ambassador to the Bahamas**\
+`The president-elect tapped the former football star for the job two years after a failed run for a Senate seat in Georgia.`\
+https://nytimes.com/2024/12/17/us/politics/herschel-walker-bahamas-trump.html
+
+**Giannis Antetokounmpo leads Bucks to NBA Cup title**\
+`Antetokounmpo ripped off a 26-point triple-double and the Bucks beat the Oklahoma City Thunder 97-81.`\
+https://nytimes.com/athletic/6002787/2024/12/17/bucks-thunder-nba-cup-result-giannis/
+
 **Cubs’ outlook after Cody Bellinger and Kyle Tucker trades: 'We’re not done'**\
 `The Cubs still have room to spend on the pitching staff, Michael Busch isn't moving, Matt Shaw is on the radar for Opening Day and more.`\
 https://nytimes.com/athletic/6002650/2024/12/17/cubs-offseason-outlook-tucker-bellinger-trades/
