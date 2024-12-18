@@ -1,6 +1,14 @@
+**Megan Thee Stallion Seeks Restraining Order Against Tory Lanez**\
+`Her lawyers said Mr. Lanez had facilitated a “campaign of harassment” from prison, where he is serving a 10-year sentence after being convicted of shooting her.`\
+https://nytimes.com/2024/12/18/arts/music/megan-thee-stallion-tory-lanez-restraining-order.html
+
 **California Declares an Emergency Over Bird Flu**\
 `Officials have discovered the virus in 645 herds, more than in any other state so far.`\
 https://nytimes.com/2024/12/18/health/bird-flu-emergency-california.html
+
+**Raheem Morris: Falcons didn't expect to make QB change this season**\
+`Morris said the Falcons hoped Kirk Cousins would find a way to improve before they ultimately benched him for Michael Penix Jr.`\
+https://nytimes.com/athletic/6004548/2024/12/18/falcons-kirk-cousins-michael-penix-starter/
 
 **2 Endangered Whales Found Entangled in Fishing Gear, With 1 Likely to Die**\
 `The North Atlantic right whales, which were seen off the coast of Massachusetts, are one of the most endangered large whale species.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/18/us/politics/austin-tice-missing-syria.html
 **Inside a Huge Spending Deal: Disaster Money, a Football Stadium and More**\
 `The mammoth year-end federal funding measure congressional leaders agreed on does far more than just keep the government running. It is stuffed with all manner of policy and other changes.`\
 https://nytimes.com/2024/12/18/us/politics/spending-bill-explainer.html
-
-**Democrats, Don’t Forget the Atheists**\
-`Galvanize these voters without alienating of party members of faith would be pretty easy.`\
-https://nytimes.com/2024/12/18/opinion/democrats-christians-atheists.html
-
-**New York Red Bulls signs former Bayern forward Choupo-Moting**\
-`The New York Red Bulls has completed the signing of Cameroon forward Eric Maxim Choupo-Moting.`\
-https://nytimes.com/athletic/6004403/2024/12/18/eric-maxim-choupo-moting-new-york-red-bulls/
 
