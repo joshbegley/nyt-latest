@@ -1,14 +1,6 @@
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears have lost eight games in a row, so our attention turns to the coach search, GM watch and the 2025 NFL Draft. What's on your mind?`\
-https://nytimes.com/athletic/6003936/2024/12/18/bears-mailbag-questions-42/
-
 **Real Madrid win Intercontinental Cup with victory over Pachuca**\
 `Real Madrid have won the 2024 Intercontinental Cup after beating Pachuca 3-0 in Wednesday&#8217;s final.`\
 https://nytimes.com/athletic/6004007/2024/12/18/real-madrid-intercontinental-cup-final-pachuca/
-
-**NBA Rookie of the Year odds: There's a new favorite after Jared McCain's injury**\
-`Jared McCain was the clear favorite to win NBA ROY until his injury. Now, it's a wide-open field. Read for the new favorite, plus sleepers.`\
-https://nytimes.com/athletic/6004025/2024/12/18/nba-rookie-of-the-year-odds-jared-mccain-stephon-castle/
 
 **They Fought for Assad in Syria. Now They’re Handing in Their Guns.**\
 `Across Syria, soldiers tied to the former Assad regime are surrendering their weapons to the interim government. The New York Times spoke to some of these men in Latakia, as they face a new and uncertain future as civilians.`\
@@ -37,4 +29,12 @@ https://nytimes.com/2024/12/18/us/politics/senate-defense-bill-transgender-care-
 **Hornets apologize for taking PS5 from 13-year-old fan after on-court skit**\
 `The team said they returned the PS5 to the fan and will give him a VIP experience for a future game.`\
 https://nytimes.com/athletic/6003795/2024/12/18/hornets-ps5-giveaway-apology/
+
+**Miami Broker Turns Himself In to Face Sexual Battery Charge**\
+`Ohad Fisherman is accused of participating in an alleged sexual assault in 2016 alongside Oren and Alon Alexander.`\
+https://nytimes.com/2024/12/18/realestate/miami-broker-sexual-battery-charge.html
+
+**Everton takeover by Friedkin Group set for completion, expected to be announced Thursday**\
+`The Friedkin Group (TFG) is set to complete its takeover of Everton with an official announcement expected on Thursday.`\
+https://nytimes.com/athletic/6003911/2024/12/18/everton-takeover-friedkin-approved/
 
