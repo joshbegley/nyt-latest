@@ -1,3 +1,7 @@
+**Giving Pledge Group, Led by Gates and Buffett, Removes Billionaire Accused of Fraud**\
+`Arif Naqvi, founder of the Abraaj Group, a Dubai-based private equity firm that collapsed in 2018, was indicted by U.S. prosecutors in 2019.`\
+https://nytimes.com/2024/12/18/business/dealbook/bill-gates-giving-pledge-arif-naqvi.html
+
 **NFL’s first TNF flex spoils Chargers and Broncos fans' plans: 'Very disappointing'**\
 `Giants owner John Mara warned that flexing back to a Thursday would affect fans negatively, but the NFL did it with this Week 16 game.`\
 https://nytimes.com/athletic/6002186/2024/12/18/chargers-broncos-tnf-flex-fans-upset/
