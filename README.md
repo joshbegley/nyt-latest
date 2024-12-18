@@ -1,3 +1,11 @@
+**Can Anyone Make Sense of Luigi Mangione? Maybe His Favorite Writer.**\
+`How to make sense of the UnitedHealthcare C.E.O. shooting`\
+https://nytimes.com/2024/12/18/opinion/luigi-mangione-writer-tim-urban.html
+
+**White House Pushes to Find American Journalist Abducted in Syria**\
+`U.S. officials have given the rebel group in control of Damascus a list of former members of the Assad government who could have information about Austin Tice.`\
+https://nytimes.com/2024/12/18/us/politics/austin-tice-missing-syria.html
+
 **Inside a Huge Spending Deal: Disaster Money, a Football Stadium and More**\
 `The mammoth year-end federal funding measure congressional leaders agreed on does far more than just keep the government running. It is stuffed with all manner of policy and other changes.`\
 https://nytimes.com/2024/12/18/us/politics/spending-bill-explainer.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6004007/2024/12/18/real-madrid-intercontinental-cup
 **NBA Rookie of the Year odds: There's a new favorite after Jared McCain's injury**\
 `Jared McCain was the clear favorite to win NBA ROY until his injury. Now, it's a wide-open field. Read for the new favorite, plus sleepers.`\
 https://nytimes.com/athletic/6004025/2024/12/18/nba-rookie-of-the-year-odds-jared-mccain-stephon-castle/
-
-**They Fought for Assad in Syria. Now They’re Handing in Their Guns.**\
-`Across Syria, soldiers tied to the former Assad regime are surrendering their weapons to the interim government. The New York Times spoke to some of these men in Latakia, as they face a new and uncertain future as civilians.`\
-https://nytimes.com/video/world/middleeast/100000009882200/assad-forces-weapons-fate.html
-
-**Defense Bill Orders Military to Take New Action on Brain Injury**\
-`Mandates in the annual appropriations act, passed on Wednesday, call for the Pentagon to track and mitigate risks to troops’ brains from firing their own weapons.`\
-https://nytimes.com/2024/12/18/us/defense-bill-brain-injury-blast.html
 
