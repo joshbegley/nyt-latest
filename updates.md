@@ -1,3 +1,11 @@
+**Drug Charges Against Sean Combs Associate Are Dropped in Florida**\
+`The charges against Brendan Paul, a former Syracuse University basketball player who was arrested amid raids on Mr. Combs’s homes, were dropped after he completed a diversion program.`\
+https://nytimes.com/2024/12/18/arts/music/sean-combs-brendan-paul-charges-dropped.html
+
+**Scoop City: Penix Jr. to start, Campbell's onside kick**\
+`What we've seen from Penix so far, debating Dan Campbell's decision and the NFL's All-Improved offense`\
+https://nytimes.com/athletic/6003776/2024/12/18/cousins-benched-penix-falcons-nfl-most-improved-scoop-city/
+
 **A City Lost Control of Its Police Department. A Court Just Gave It Back.**\
 `New Jersey’s attorney general, Matthew J. Platkin, seized control of the Paterson Police Department in March 2023. He vowed to appeal a ruling that found he had overstepped his authority.`\
 https://nytimes.com/2024/12/18/nyregion/paterson-new-jersey-police-takeover-platkin.html
