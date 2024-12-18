@@ -1,6 +1,14 @@
+**Change With the Times**\
+`Jeffrey Martinovic and Will Nediger up the ante.`\
+https://nytimes.com/2024/12/17/crosswords/daily-puzzle-2024-12-18.html
+
 **Commanders one step closer to potential RFK return with congressional funding bill**\
 `The Washington franchise has played in Landover, Maryland, a nearby suburb, since 1997.`\
 https://nytimes.com/athletic/6002619/2024/12/17/commanders-rfk-site-control-update-dc/
+
+**Rosenthal: How the Orioles crafted a winning sales pitch to Tomoyuki Sugano, plus more MLB notes**\
+`Baltimore made it a priority to talk baseball specifics when courting the 35-year-old Japanese free-agent pitcher. `\
+https://nytimes.com/athletic/6002576/2024/12/17/orioles-tomoyuki-sugano-mlb-free-agency/
 
 **NBA's Silver acknowledges sagging TV ratings, but says interest not lacking**\
 `Silver said “ratings are down a bit” but he pointed to a broader trend that “cable television viewership is down double digits.”`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/17/nyregion/fraud-tax-return-charges-bronx.html
 **Congressional Leaders Unveil Short-Term Spending Bill Tied to Disaster Aid**\
 `What started out as a simple stopgap measure to avert a shutdown for a few months became a magnet for more than $100 billion in emergency disaster and farm aid, plus a host of unrelated policy measures.`\
 https://nytimes.com/2024/12/17/world/europe/congress-short-term-spending-bill.html
-
-**Cardinals star safety Budda Baker avoids 2025 free agency after inking three-year extension**\
-`The highly-skilled and versatile safety is currently second in the NFL with 142 total tackles.`\
-https://nytimes.com/athletic/6002392/2024/12/17/cardinals-budda-baker-three-year-extension/
-
-**Biden Administration Running Out of Time to Send Allocated Aid to Ukraine**\
-`Senior officials discussed U.S. plans to announce additional support for Ukraine, and spoke about casualties among North Korean troops sent to help Russia.`\
-https://nytimes.com/2024/12/17/us/politics/ukraine-aid-biden-trump.html
 
