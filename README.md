@@ -1,3 +1,7 @@
+**Congressional Leaders Unveil Short-Term Spending Bill Tied to Disaster Aid**\
+`What started out as a simple stopgap measure to avert a shutdown for a few months became a magnet for more than $100 billion in emergency disaster and farm aid, plus a host of unrelated policy measures.`\
+https://nytimes.com/2024/12/17/world/europe/congress-short-term-spending-bill.html
+
 **Cardinals star safety Budda Baker avoids 2025 free agency after inking three-year extension**\
 `The highly-skilled and versatile safety is currently second in the NFL with 142 total tackles.`\
 https://nytimes.com/athletic/6002392/2024/12/17/cardinals-budda-baker-three-year-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/us/sherrod-brown-senate-career.html
 **Yankees acquire Cody Bellinger for minimal cost but he's not a perfect fit: Law**\
 `The Cubs have cleared salary room without significantly damaging their outfield depth, but they need to spend that money on pitching.`\
 https://nytimes.com/athletic/6002221/2024/12/17/yankees-cubs-cody-bellinger-trade-analysis/
-
-**George Santos, Disgraced Former Congressman, Still Wants Your Attention**\
-`After his lies and expulsion from Congress, and before his sentencing in February, George Santos chases the limelight with a party and a podcast.`\
-https://nytimes.com/2024/12/17/us/politics/santos-podcast-launch-party.html
 
