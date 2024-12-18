@@ -1,3 +1,15 @@
+**How to Find Your Way Around That Updated Photos App**\
+`Redesigned interfaces, new features and artificial intelligence are meant to enhance the experience, even if the changes can be confusing at first.`\
+https://nytimes.com/2024/12/18/technology/personaltech/apple-google-photo-apps-updates-changes.html
+
+**Surveilling Speech Won’t Increase Birthrates**\
+`It’s easier for governments to restrict freedom of expression than it is to fix material conditions.`\
+https://nytimes.com/2024/12/18/opinion/speech-surveillance.html
+
+**A Woman on Our Girls’ Trip Has Grown Snarky. Can We Stop Inviting Her?**\
+`Her bitter comments and antisocial behavior may spring from discomfort around her high-achieving friends, but that doesn’t make her any easier to deal with.`\
+https://nytimes.com/2024/12/18/style/girls-trip-invitation.html
+
 **Hater’s guide to the College Football Playoff: Dabo turns SEC tears into holy water**\
 `All 12 teams in the expanded College Football Playoff are uniquely worthy of deep resentment and scorn. `\
 https://nytimes.com/athletic/6002350/2024/12/18/college-football-playoff-guide-teams-games-2/

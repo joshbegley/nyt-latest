@@ -1,3 +1,15 @@
+**How to Find Your Way Around That Updated Photos App**\
+`Redesigned interfaces, new features and artificial intelligence are meant to enhance the experience, even if the changes can be confusing at first.`\
+https://nytimes.com/2024/12/18/technology/personaltech/apple-google-photo-apps-updates-changes.html
+
+**Surveilling Speech Won’t Increase Birthrates**\
+`It’s easier for governments to restrict freedom of expression than it is to fix material conditions.`\
+https://nytimes.com/2024/12/18/opinion/speech-surveillance.html
+
+**A Woman on Our Girls’ Trip Has Grown Snarky. Can We Stop Inviting Her?**\
+`Her bitter comments and antisocial behavior may spring from discomfort around her high-achieving friends, but that doesn’t make her any easier to deal with.`\
+https://nytimes.com/2024/12/18/style/girls-trip-invitation.html
+
 **Tim Weah suffers hamstring injury, expected to be out for two weeks**\
 `Weah has four goals and four assists in 18 games for Juventus this season.`\
 https://nytimes.com/athletic/6003359/2024/12/18/tim-weah-injury-usmnt-juventus/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6002350/2024/12/18/college-football-playoff-guide-t
 **Giving Pledge Group, Led by Gates and Buffett, Removes Billionaire Accused of Fraud**\
 `Arif Naqvi, founder of the Abraaj Group, a Dubai-based private equity firm that collapsed in 2018, was indicted by U.S. prosecutors in 2019.`\
 https://nytimes.com/2024/12/18/business/dealbook/bill-gates-giving-pledge-arif-naqvi.html
-
-**Lowetide: Oilers' Ty Emberson is announcing his presence with authority**\
-`Emberson has recently become a more prominent player on the Oilers' top-six defence.`\
-https://nytimes.com/athletic/6001196/2024/12/18/oilers-ty-emberson-stats/
-
-**NFL’s first TNF flex spoils Chargers and Broncos fans' plans: 'Very disappointing'**\
-`Giants owner John Mara warned that flexing back to a Thursday would affect fans negatively, but the NFL did it with this Week 16 game.`\
-https://nytimes.com/athletic/6002186/2024/12/18/chargers-broncos-tnf-flex-fans-upset/
-
-**Tua Tagovailoa can't solve Texans' D, Ty Johnson shines, more Week 15 thoughts: Quick Outs**\
-`Tagovailoa was accurate on 75 percent of his passes Sunday, but it didn't amount to much. `\
-https://nytimes.com/athletic/6001767/2024/12/18/nfl-week-15-tua-tagovaiola-ty-johnson/
 
