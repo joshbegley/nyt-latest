@@ -1,3 +1,15 @@
+**Investigation of Police ‘Courtesy Cards’ Finds a 2-Tiered System of Justice**\
+`Videos released by a New Jersey government watchdog have pierced a veil of secrecy around cards that can be used to avoid traffic tickets.`\
+https://nytimes.com/2024/12/18/nyregion/new-jersey-state-police-courtesy-cards.html
+
+**Who Is Dominique Pelicot, France’s Most Notorious Sexual Predator?**\
+`For over three months, judges and lawyers have tried to grasp the true nature of the man who said he had invited dozens of strangers to join him in raping his drugged wife.`\
+https://nytimes.com/2024/12/18/world/europe/france-dominique-pelicot-rape-trial.html
+
+**Zelensky to Meet With European Leaders to Discuss Ukraine’s Future**\
+`As Donald J. Trump prepares to take office in the United States, President Volodymyr Zelensky will attend a dinner hosted by the NATO chief to plot the path forward in the war with Russia.`\
+https://nytimes.com/2024/12/18/world/europe/zelensky-eu-ukraine.html
+
 **Syria’s First Domestic Flight Since the Assad Regime Fell Takes Off**\
 `The Damascus International Airport reopened on Wednesday with a domestic flight to Aleppo, signaling that Syria’s new rulers are confident in their ability to govern after the end of the Assad family’s rule.`\
 https://nytimes.com/video/world/middleeast/100000009884546/syria-damascus-airport-reopens-.html
