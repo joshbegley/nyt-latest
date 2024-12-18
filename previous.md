@@ -1,6 +1,14 @@
+**Commanders film review: How Jayden Daniels' winning performance was nearly sacked**\
+`Washington's rookie QB was sacked a season-high eight times vs. New Orleans. A breakdown of how each one took place. `\
+https://nytimes.com/athletic/6001748/2024/12/18/commanders-jayden-daniels-saints-sacks/
+
 **Rayful Edmond, Drug Lord Who Stoked D.C.’s Crack Cocaine Epidemic, Dies at 60**\
 `He rose to prominence in the 1980s, spending lavishly and befriending athletes, as the city was wracked by murders tied to the drug trade. He later became an informant.`\
 https://nytimes.com/2024/12/18/us/rayful-edmond-dead.html
+
+**How the FIFA Women's Club World Cup could help lessen disparity in player loading**\
+`FIFPRO's recent report says that new competitions could help lessen disparity in women's player loading`\
+https://nytimes.com/athletic/6002484/2024/12/18/fifpro-report-club-world-cup-womens-soccer/
 
 **Who Is Friedrich Merz, Who Could Be Germany’s Next Chancellor?**\
 `If polls are correct, Olaf Scholz’s successor could be Friedrich Merz, 69, leader of the Christian Democratic Union. He is offering to get the German economic engine humming again.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/18/business/media/disney-trump-abc-lawsuit.html
 **Al-Assad’s Soldiers Hope for Amnesty. First, They Have to Take a Number.**\
 `Syria’s new rulers say they will spare conscripts of Bashar al-Assad and pursue those who oversaw his regime’s abuses. Hundreds are lining up to learn which promise applies to them.`\
 https://nytimes.com/2024/12/18/world/middleeast/syria-assad-soldier-amnesty.html
-
-**I Was a Health Insurance Executive. What I Saw Made Me Quit.**\
-`Shareholders, not patient outcomes, tend to drive decisions at health insurance companies.`\
-https://nytimes.com/2024/12/18/opinion/health-insurance-united-ceo-shooting.html
-
-**‘Didi,’ ‘Janet Planet’ and the Year’s Great Under-the-Radar Streaming Films**\
-`Here are just a few of the year’s finest indies, documentaries and international selections, available to stream at this very minute.`\
-https://nytimes.com/2024/12/18/movies/didi-janet-planet-best-streaming-movies.html
 

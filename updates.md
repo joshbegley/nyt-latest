@@ -1,3 +1,11 @@
+**Commanders film review: How Jayden Daniels' winning performance was nearly sacked**\
+`Washington's rookie QB was sacked a season-high eight times vs. New Orleans. A breakdown of how each one took place. `\
+https://nytimes.com/athletic/6001748/2024/12/18/commanders-jayden-daniels-saints-sacks/
+
+**How the FIFA Women's Club World Cup could help lessen disparity in player loading**\
+`FIFPRO's recent report says that new competitions could help lessen disparity in women's player loading`\
+https://nytimes.com/athletic/6002484/2024/12/18/fifpro-report-club-world-cup-womens-soccer/
+
 **Rayful Edmond, Drug Lord Who Stoked D.C.’s Crack Cocaine Epidemic, Dies at 60**\
 `He rose to prominence in the 1980s, spending lavishly and befriending athletes, as the city was wracked by murders tied to the drug trade. He later became an informant.`\
 https://nytimes.com/2024/12/18/us/rayful-edmond-dead.html
