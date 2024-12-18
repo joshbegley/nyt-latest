@@ -1,3 +1,19 @@
+**Review: The Trocks Fill Out the Laughs With Dancing Chops**\
+`Les Ballets Trockadero de Monte Carlo opens its season at the Joyce Theater with its vintage, vampiric “Giselle” and a new take on Balanchine.`\
+https://nytimes.com/2024/12/18/arts/dance/review-ballets-trockadero-de-monte-carlo-symphony.html
+
+**Back-to-Back-to-Back Atmospheric Rivers Are Expected to Soak the West Coast**\
+`A run of storms is moving through the Pacific Northwest and Northern California over the next week.`\
+https://nytimes.com/2024/12/18/weather/atmospheric-river-california-oregon-washington-rain.html
+
+**Supreme Court to Hear TikTok’s Challenge to Law That Could Ban It**\
+`The company and its Chinese parent invoked the First Amendment in urging the justices to step in before a Jan. 19 deadline to sell or be shut down.`\
+https://nytimes.com/2024/12/18/us/politics/supreme-court-tiktok-ban.html
+
+**How to watch Oklahoma vs. Michigan basketball: Storylines, odds for Jumpman Invitational**\
+`Wednesday night will yield either the Sooners' most impressive win to date or a statement on the Wolverines' tenacity.`\
+https://nytimes.com/athletic/6001402/2024/12/18/oklahoma-michigan-how-to-watch-odds-preview/
+
 **An American Curator Takes the Helm at Crisis-Hit Documenta**\
 `Naomi Beckwith, who holds a leadership role at the Guggenheim Museum in New York, said she would make navigating crises a central theme of her exhibition.`\
 https://nytimes.com/2024/12/18/arts/design/naomi-beckwith-documenta-curator.html

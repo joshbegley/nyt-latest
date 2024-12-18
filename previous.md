@@ -1,3 +1,15 @@
+**Review: The Trocks Fill Out the Laughs With Dancing Chops**\
+`Les Ballets Trockadero de Monte Carlo opens its season at the Joyce Theater with its vintage, vampiric “Giselle” and a new take on Balanchine.`\
+https://nytimes.com/2024/12/18/arts/dance/review-ballets-trockadero-de-monte-carlo-symphony.html
+
+**Back-to-Back-to-Back Atmospheric Rivers Are Expected to Soak the West Coast**\
+`A run of storms is moving through the Pacific Northwest and Northern California over the next week.`\
+https://nytimes.com/2024/12/18/weather/atmospheric-river-california-oregon-washington-rain.html
+
+**Supreme Court to Hear TikTok’s Challenge to Law That Could Ban It**\
+`The company and its Chinese parent invoked the First Amendment in urging the justices to step in before a Jan. 19 deadline to sell or be shut down.`\
+https://nytimes.com/2024/12/18/us/politics/supreme-court-tiktok-ban.html
+
 **An American Curator Takes the Helm at Crisis-Hit Documenta**\
 `Naomi Beckwith, who holds a leadership role at the Guggenheim Museum in New York, said she would make navigating crises a central theme of her exhibition.`\
 https://nytimes.com/2024/12/18/arts/design/naomi-beckwith-documenta-curator.html
@@ -5,6 +17,10 @@ https://nytimes.com/2024/12/18/arts/design/naomi-beckwith-documenta-curator.html
 **Killing of Russian General Sends a Message, but Doesn’t Change the War**\
 `Ukraine’s forces are steadily losing ground on the battlefield. The assassination of a top general in Moscow won’t improve their war effort, analysts and Western officials say.`\
 https://nytimes.com/2024/12/18/world/europe/russia-kirillov-ukraine-general.html
+
+**How to watch Oklahoma vs. Michigan basketball: Storylines, odds for Jumpman Invitational**\
+`Wednesday night will yield either the Sooners' most impressive win to date or a statement on the Wolverines' tenacity.`\
+https://nytimes.com/athletic/6001402/2024/12/18/oklahoma-michigan-how-to-watch-odds-preview/
 
 **A 20-Minute Exercise Band Workout to Build Strength**\
 `If you are short on time and space, here is a cheap, effective way to get stronger.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/18/style/tiny-modern-love-stories-what-could-those-t
 **A Baby Capybara’s Rise to Fame Is a Perfect End to 2024**\
 `Like this year’s other viral baby animals, Tupi was quickly embraced on social media. An hour later, the San Antonio Zoo distanced itself from a memecoin named after him.`\
 https://nytimes.com/2024/12/18/style/tupi-capybara-memecoin.html
-
-**House Ethics Panel Voted Secretly to Release the Gaetz Report**\
-`Lawmakers agreed the report would come out after the House has completed legislative business for the year and once they have left Washington to return to their districts.`\
-https://nytimes.com/2024/12/18/us/politics/matt-gaetz-ethics-report-release.html
-
-**Kiefer Sherwood's goals and the case for the Canucks extending Pius Suter**\
-`How sustainable is Sherwood's goal scoring? Plus a look at the Canucks' five-on-five play and how the blue line is trending.`\
-https://nytimes.com/athletic/6001992/2024/12/18/canucks-kiefer-sherwood-goals-pius-suter/
-
-**Two Dead in Small Plane Crash in Hawaii**\
-`The plane, which was reportedly on a training flight with a cargo carrier, could be seen veering away from a highway before it crashed into a vacant building.`\
-https://nytimes.com/2024/12/18/us/hawaii-plane-crash-inyoue-airport.html
-
-**Dashcam Video Shows Honolulu Plane Crash**\
-`A small plane crashed near the Daniel K. Inouye International Airport in Honolulu, killing two people, officials said.`\
-https://nytimes.com/video/us/100000009884616/honolulu-hawaii-plane-crash-dash-cam.html
 
