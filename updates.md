@@ -1,3 +1,15 @@
+**Trinity Rodman opens up about difficult relationship with dad Dennis**\
+`"He's not a dad," Rodman said of her difficult relationship with her NBA Hall of Famer father. "Maybe by blood, but nothing else."`\
+https://nytimes.com/athletic/6004259/2024/12/18/trinity-dennis-rodman-podcast/
+
+**The Federal Reserve Cuts Interest Rates By a Quarter Percentage Point**\
+`Jerome H. Powell, the Federal Reserve chair, announced the central bank’s final interest rate cut for the year and suggested only two more reductions in 2025.`\
+https://nytimes.com/video/business/economy/100000009885988/federal-reserve-interest-rates-jerome-powell.html
+
+**Senators Call for Investigation of Medicaid Work Requirement Program**\
+`A group of Democratic lawmakers accused Georgia Pathways to Coverage, the only Medicaid work requirement program in the country, of spending little of its funding on health benefits.`\
+https://nytimes.com/2024/12/18/us/politics/georgia-medicaid-work-requirement.html
+
 **Raheem Morris: Falcons didn't expect to make QB change this season**\
 `Morris said the Falcons hoped Kirk Cousins would find a way to improve before they ultimately benched him for Michael Penix Jr.`\
 https://nytimes.com/athletic/6004548/2024/12/18/falcons-kirk-cousins-michael-penix-starter/

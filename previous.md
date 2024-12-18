@@ -1,3 +1,15 @@
+**Trinity Rodman opens up about difficult relationship with dad Dennis**\
+`"He's not a dad," Rodman said of her difficult relationship with her NBA Hall of Famer father. "Maybe by blood, but nothing else."`\
+https://nytimes.com/athletic/6004259/2024/12/18/trinity-dennis-rodman-podcast/
+
+**The Federal Reserve Cuts Interest Rates By a Quarter Percentage Point**\
+`Jerome H. Powell, the Federal Reserve chair, announced the central bank’s final interest rate cut for the year and suggested only two more reductions in 2025.`\
+https://nytimes.com/video/business/economy/100000009885988/federal-reserve-interest-rates-jerome-powell.html
+
+**Senators Call for Investigation of Medicaid Work Requirement Program**\
+`A group of Democratic lawmakers accused Georgia Pathways to Coverage, the only Medicaid work requirement program in the country, of spending little of its funding on health benefits.`\
+https://nytimes.com/2024/12/18/us/politics/georgia-medicaid-work-requirement.html
+
 **Raheem Morris: Falcons didn't expect to make QB change this season**\
 `Morris said the Falcons hoped Kirk Cousins would find a way to improve before they ultimately benched him for Michael Penix Jr.`\
 https://nytimes.com/athletic/6004548/2024/12/18/falcons-kirk-cousins-michael-penix-starter/
@@ -21,20 +33,4 @@ https://nytimes.com/2024/12/18/briefing/russia-syria-pelicot.html
 **$100,000 Loan for Porsche at Center of Charges Against Former Adams Aide**\
 `Ingrid Lewis-Martin, her son, and two businessmen were expected to be arraigned on bribery charges connected to the loan for Lewis-Martin’s son.`\
 https://nytimes.com/2024/12/18/nyregion/adams-corruption-ingrid-investigation.html
-
-**Florida Charges Man Suspected of Trump Assassination Plot**\
-`As Ryan W. Routh fled the scene, a highway was shut down and a car crash ensued. In charging him with attempted felony murder, the state defied federal prosecutors.`\
-https://nytimes.com/2024/12/18/us/florida-trump-assassination-plot-charges.html
-
-**Man Who Ran Secret Police Office in New York Admits He Was Chinese Agent**\
-`Chen Jinping used the office in Lower Manhattan to quash dissent against the Chinese government. The Justice Department is fighting Beijing’s efforts to wield its influence secretly.`\
-https://nytimes.com/2024/12/18/nyregion/chinese-police-station-plea-chen-jinping.html
-
-**Giants will start Drew Lock at QB in Week 16 vs. Falcons**\
-`The New York Giants are planning to start Drew Lock at quarterback in Sunday&#8217;s game against the Atlanta Falcons, head coach Brian Daboll announced Wednesday.`\
-https://nytimes.com/athletic/6004374/2024/12/18/drew-lock-starting-qb-giants/
-
-**For a Desperate Few, a Hectic Escape From Gaza**\
-`The war is nearly impossible to flee — except for a small number of sick and wounded who are offered a dramatic path to safety.`\
-https://nytimes.com/interactive/2024/12/18/magazine/israel-gaza-war-medical-treatment-who.html
 
