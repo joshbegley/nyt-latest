@@ -2,6 +2,10 @@
 `Arif Naqvi, founder of the Abraaj Group, a Dubai-based private equity firm that collapsed in 2018, was indicted by U.S. prosecutors in 2019.`\
 https://nytimes.com/2024/12/18/business/dealbook/bill-gates-giving-pledge-arif-naqvi.html
 
+**Lowetide: Oilers' Ty Emberson is announcing his presence with authority**\
+`Emberson has recently become a more prominent player on the Oilers' top-six defence.`\
+https://nytimes.com/athletic/6001196/2024/12/18/oilers-ty-emberson-stats/
+
 **NFL’s first TNF flex spoils Chargers and Broncos fans' plans: 'Very disappointing'**\
 `Giants owner John Mara warned that flexing back to a Thursday would affect fans negatively, but the NFL did it with this Week 16 game.`\
 https://nytimes.com/athletic/6002186/2024/12/18/chargers-broncos-tnf-flex-fans-upset/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/podcasts/fed-mangione-beef-tallow.html
 **France’s Horrifying Rape Trial Has a Feminist Hero**\
 `Gisèle Pelicot’s former husband and 50 other men are accused of raping her. Her poise and courage have made her an icon.`\
 https://nytimes.com/2024/12/18/podcasts/the-daily/france-rape-trial-pelicot.html
-
-**Wordle Review No. 1,279**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 19, 2024.`\
-https://nytimes.com/2024/12/18/crosswords/wordle-review-1279.html
 

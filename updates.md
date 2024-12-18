@@ -1,3 +1,7 @@
+**Lowetide: Oilers' Ty Emberson is announcing his presence with authority**\
+`Emberson has recently become a more prominent player on the Oilers' top-six defence.`\
+https://nytimes.com/athletic/6001196/2024/12/18/oilers-ty-emberson-stats/
+
 **Giving Pledge Group, Led by Gates and Buffett, Removes Billionaire Accused of Fraud**\
 `Arif Naqvi, founder of the Abraaj Group, a Dubai-based private equity firm that collapsed in 2018, was indicted by U.S. prosecutors in 2019.`\
 https://nytimes.com/2024/12/18/business/dealbook/bill-gates-giving-pledge-arif-naqvi.html
