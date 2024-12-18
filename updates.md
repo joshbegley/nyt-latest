@@ -1,3 +1,7 @@
+**What to know about the Fed’s rate move.**\
+`Federal Reserve officials projected just two rate cuts in 2025, and they made it clear that future reductions would hinge on inflation progress.`\
+https://nytimes.com/live/2024/12/18/business/fed-interest-rates/what-to-know-about-the-feds-rate-move
+
 **Stocks Plunge as Fed Forecasts Fewer Rate Cuts Next Year**\
 `The Federal Reserve cut rates for a third time this year, but investors shuddered at revised forecasts suggesting only two cuts in 2025.`\
 https://nytimes.com/2024/12/18/business/stock-market-fed-rate-cut-forecast.html

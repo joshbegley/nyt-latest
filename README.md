@@ -1,3 +1,11 @@
+**Yankees will meet with Roki Sasaki: 'It would be nice to have Yankee Stadium be his home'**\
+`Brian Cashman believes the Yankees have everything Sasaki could want. It's now on him to sell that to the Japanese star.`\
+https://nytimes.com/athletic/6004393/2024/12/18/yankees-roki-sasaki-meeting-scheduled/
+
+**The Wrath of Trump: House Republicans Map a Case Against Liz Cheney**\
+`President-elect Donald J. Trump has never been shy about his desire to see his enemies punished. But he often shows a measure of caution about taking credit for potential prosecutions himself.`\
+https://nytimes.com/2024/12/18/us/politics/trump-liz-cheney-report.html
+
 **Stocks Plunge as Fed Forecasts Fewer Rate Cuts Next Year**\
 `The Federal Reserve cut rates for a third time this year, but investors shuddered at revised forecasts suggesting only two cuts in 2025.`\
 https://nytimes.com/2024/12/18/business/stock-market-fed-rate-cut-forecast.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/12/18/magazine/israel-gaza-war-medical-trea
 **What to know about the Fed’s rate move.**\
 `Federal Reserve officials projected just two rate cuts in 2025, and they made it clear that future reductions would hinge on inflation progress.`\
 https://nytimes.com/live/2024/12/18/business/fed-interest-rates/what-to-know-about-the-feds-rate-move
-
-**Oh baby! Commanders kickers miss practice with newborns on the way**\
-`Kickers Zane Gonzalez and Greg Joseph missed Wednesday's practice as both are expected to welcome children.`\
-https://nytimes.com/athletic/6004472/2024/12/18/commanders-kickers-zane-gonzalez-greg-joseph/
-
-**Takeaways from the Fed’s final meeting of the year.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/12/18/business/fed-interest-rates/takeaways-from-the-feds-final-meeting-of-the-year
 
