@@ -1,3 +1,11 @@
+**Under Pressure, Hyundai Supplier Ends Alabama Prison Labor Contract**\
+`The supplier fired dozens of prisoners after some of them said they felt they had no choice but to take those jobs.`\
+https://nytimes.com/2024/12/18/business/hyundai-supplier-alabama-prison-labor.html
+
+**Justices to Hear Case on South Carolina’s Bid to Defund Planned Parenthood**\
+`The issue in the case is whether Medicaid beneficiaries may sue under a law that lets them choose care from any provider qualified to perform the required services.`\
+https://nytimes.com/2024/12/18/us/supreme-court-abortion-south-carolina-planned-parenthood.html
+
 **Can Anyone Make Sense of Luigi Mangione? Maybe His Favorite Writer.**\
 `How to make sense of the UnitedHealthcare C.E.O. shooting`\
 https://nytimes.com/2024/12/18/opinion/luigi-mangione-writer-tim-urban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/18/nyregion/luigi-mangione-murder-charges.html
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears have lost eight games in a row, so our attention turns to the coach search, GM watch and the 2025 NFL Draft. What's on your mind?`\
 https://nytimes.com/athletic/6003936/2024/12/18/bears-mailbag-questions-42/
-
-**Real Madrid win Intercontinental Cup with victory over Pachuca**\
-`Real Madrid have won the 2024 Intercontinental Cup after beating Pachuca 3-0 in Wednesday&#8217;s final.`\
-https://nytimes.com/athletic/6004007/2024/12/18/real-madrid-intercontinental-cup-final-pachuca/
-
-**NBA Rookie of the Year odds: There's a new favorite after Jared McCain's injury**\
-`Jared McCain was the clear favorite to win NBA ROY until his injury. Now, it's a wide-open field. Read for the new favorite, plus sleepers.`\
-https://nytimes.com/athletic/6004025/2024/12/18/nba-rookie-of-the-year-odds-jared-mccain-stephon-castle/
 

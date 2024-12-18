@@ -1,3 +1,11 @@
+**Under Pressure, Hyundai Supplier Ends Alabama Prison Labor Contract**\
+`The supplier fired dozens of prisoners after some of them said they felt they had no choice but to take those jobs.`\
+https://nytimes.com/2024/12/18/business/hyundai-supplier-alabama-prison-labor.html
+
+**Justices to Hear Case on South Carolina’s Bid to Defund Planned Parenthood**\
+`The issue in the case is whether Medicaid beneficiaries may sue under a law that lets them choose care from any provider qualified to perform the required services.`\
+https://nytimes.com/2024/12/18/us/supreme-court-abortion-south-carolina-planned-parenthood.html
+
 **Can Anyone Make Sense of Luigi Mangione? Maybe His Favorite Writer.**\
 `How to make sense of the UnitedHealthcare C.E.O. shooting`\
 https://nytimes.com/2024/12/18/opinion/luigi-mangione-writer-tim-urban.html
