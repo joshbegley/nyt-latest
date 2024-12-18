@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6002502/2024/12/17/zach-lavine-trade-rumors-nuggets
 `Collins has two years of eligibility after starting his career at Florida.`\
 https://nytimes.com/athletic/6002529/2024/12/17/kelby-collins-alabama-football-transfer-portal/
 
-**House Republicans’ interim report on Jan. 6 calls for former Rep. Liz Cheney to be investigated.**\
-`By Annie Karni`\
+**House Republicans Call for Liz Cheney to Be Investigated Over Jan. 6 Committee Role**\
+`Ms. Cheney defended her work on the select committee in a detailed statement, and called the report “a malicious and cowardly assault on the truth.”`\
 https://nytimes.com/2024/12/17/us/politics/liz-cheney-jan-6-house-republicans.html
 
 **Tax Preparer Known as ‘the Magician’ Bilked I.R.S. Out of $145 Million**\

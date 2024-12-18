@@ -1,3 +1,7 @@
+**House Republicans Call for Liz Cheney to Be Investigated Over Jan. 6 Committee Role**\
+`Ms. Cheney defended her work on the select committee in a detailed statement, and called the report “a malicious and cowardly assault on the truth.”`\
+https://nytimes.com/2024/12/17/us/politics/liz-cheney-jan-6-house-republicans.html
+
 **NBA's Silver acknowledges sagging TV ratings, but says interest not lacking**\
 `Silver said “ratings are down a bit” but he pointed to a broader trend that “cable television viewership is down double digits.”`\
 https://nytimes.com/athletic/6002603/2024/12/17/adam-silver-nba-tv-ratings/
