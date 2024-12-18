@@ -1,3 +1,11 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears have lost eight games in a row, so our attention turns to the coach search, GM watch and the 2025 NFL Draft. What's on your mind?`\
+https://nytimes.com/athletic/6003936/2024/12/18/bears-mailbag-questions-42/
+
+**NBA Rookie of the Year odds: There's a new favorite after Jared McCain's injury**\
+`Jared McCain was the clear favorite to win NBA ROY until his injury. Now, it's a wide-open field. Read for the new favorite, plus sleepers.`\
+https://nytimes.com/athletic/6004025/2024/12/18/nba-rookie-of-the-year-odds-jared-mccain-stephon-castle/
+
 **Ivy League Agrees to Let Football Teams Compete in the Playoffs Next Year**\
 `The conference’s eight schools will be able to participate in the Football Championship Subdivision’s 24-team playoff.`\
 https://nytimes.com/2024/12/18/us/ivy-league-football-fcs-playoffs.html
