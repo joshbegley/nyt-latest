@@ -1,3 +1,7 @@
+**Killing of Russian General Sends a Message, but Doesn’t Change the War**\
+`Ukraine’s forces are steadily losing ground on the battlefield. The assassination of a top general in Moscow won’t improve their war effort, analysts and Western officials say.`\
+https://nytimes.com/2024/12/18/world/europe/russia-kirillov-ukraine-general.html
+
 **A 20-Minute Exercise Band Workout to Build Strength**\
 `If you are short on time and space, here is a cheap, effective way to get stronger.`\
 https://nytimes.com/2024/12/18/well/move/strength-exercise-band-workout.html
