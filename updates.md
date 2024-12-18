@@ -1,3 +1,7 @@
+**The Photos that Defined 2024**\
+`The year was made up of extraordinary moments — and Times photographers captured them in extraordinary images.`\
+https://nytimes.com/2024/12/18/briefing/2024-the-year-in-pictures.html
+
 **Acheampong signs new, improved long-term contract at Chelsea**\
 `Chelsea have ended doubts over the future of Josh Acheampong by tying their young talent to a new and improved long-term contract.`\
 https://nytimes.com/athletic/6003115/2024/12/18/chelsea-josh-acheampong-contract-new/
