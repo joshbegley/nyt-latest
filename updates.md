@@ -1,3 +1,7 @@
+**If USC can't land — and retain — elite talent, then hope will be in short supply**\
+`The Trojans are in a rut. There’s no other way to put it. And it's a sobering reality considering how bright things looked three years ago.`\
+https://nytimes.com/athletic/6003360/2024/12/18/usc-lincoln-riley-transferes-recruiting/
+
 **How to Find Your Way Around That Updated Photos App**\
 `Redesigned interfaces, new features and artificial intelligence are meant to enhance the experience, even if the changes can be confusing at first.`\
 https://nytimes.com/2024/12/18/technology/personaltech/apple-google-photo-apps-updates-changes.html
