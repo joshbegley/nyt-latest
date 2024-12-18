@@ -1,3 +1,7 @@
+**The One Solution to Grow Your Enterprise-Level Business**\
+`Intuit Enterprise Suite simplifies the complex processes of a growing business with real-time data`\
+https://nytimes.com/paidpost/intuit/the-one-solution-to-grow-your-enterprise-level-business.html
+
 **The Case for Throwing Stones From a Glass House**\
 `One of the epic moral battles of this century is the one against sexual violence worldwide, and the U.S. has a chance to lead.`\
 https://nytimes.com/2024/12/18/opinion/sexual-violence-women.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6004126/2024/12/18/ferrari-lewis-hamilton-f1-fred-v
 **The Rev. James Callan, Renegade Catholic Priest, Dies at 77**\
 `He was excommunicated in 1999 after allowing women to celebrate Mass, blessing same-sex unions and offering communion to non-Catholics.`\
 https://nytimes.com/2024/12/18/nyregion/the-rev-james-callan-dead.html
-
-**The New Politics**\
-`At the DealBook Summit, nine prominent political figures, advisers and journalists debated what drove Trump’s victory and what it means for politics going forward. Here’s what they said.`\
-https://nytimes.com/2024/12/18/business/dealbook/the-new-politics.html
 
