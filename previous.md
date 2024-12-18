@@ -1,3 +1,7 @@
+**Pentagon Repatriates Malaysian Prisoners Who Pleaded Guilty to War Crimes**\
+`The prisoners were airlifted from Guantánamo Bay in a secret operation nearly a year after they admitted to serving as foot soldiers for the accused Indonesian terrorist leader Hambali.`\
+https://nytimes.com/2024/12/18/us/politics/malaysian-prisoners-repatriated-gitmo.html
+
 **What happened to Philipp Kurashev, and what can the Blackhawks do about it?**\
 `Two coaches have tried to unlock Kurashev's form from last season without any success. Is there still room for him on the roster?`\
 https://nytimes.com/athletic/6002905/2024/12/18/blackhawks-philipp-kurashev-sorensen-capitals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5971526/2024/12/18/james-bunce-newcastle-performanc
 **Sidney Crosby didn't score but was dominant in Penguins' comeback win: Observations**\
 `The Penguins pulled off an overtime win against the Kings thanks to Crosby's sheer determination in the third period.`\
 https://nytimes.com/athletic/6002858/2024/12/18/penguins-crosby-scoring-malkin-kings/
-
-**Wednesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/12/18/briefing/russia-general-syria-israel.html
 
