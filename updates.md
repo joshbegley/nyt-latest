@@ -1,3 +1,7 @@
+**Hater’s guide to the College Football Playoff: Dabo turns SEC tears into holy water**\
+`All 12 teams in the expanded College Football Playoff are uniquely worthy of deep resentment and scorn. `\
+https://nytimes.com/athletic/6002350/2024/12/18/college-football-playoff-guide-teams-games-2/
+
 **Tim Weah suffers hamstring injury, expected to be out for two weeks**\
 `Weah has four goals and four assists in 18 games for Juventus this season.`\
 https://nytimes.com/athletic/6003359/2024/12/18/tim-weah-injury-usmnt-juventus/
