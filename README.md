@@ -1,3 +1,7 @@
+**Miami Broker Turns Himself In to Face Sexual Battery Charge**\
+`Ohad Fisherman is accused of participating in an alleged sexual assault in 2016 alongside Oren and Alon Alexander.`\
+https://nytimes.com/2024/12/18/realestate/miami-broker-sexual-battery-charge.html
+
 **Everton takeover by Friedkin Group set for completion, expected to be announced Thursday**\
 `The Friedkin Group (TFG) is set to complete its takeover of Everton with an official announcement expected on Thursday.`\
 https://nytimes.com/athletic/6003911/2024/12/18/everton-takeover-friedkin-approved/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/us/politics/guantanamo-prisoner-drawings-torture.
 **What Fed Rate Moves Mean for Your Finances**\
 `Here’s how the central bank’s interest rate moves influence car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2024/12/18/business/interest-rates-consumers-savings-loans.html
-
-**How to Read the Fed’s Projections Like a Pro**\
-`The Federal Reserve will release fresh economic estimates on Wednesday. Here’s how to read the outlook for 2025 and beyond.`\
-https://nytimes.com/2024/12/18/business/fed-interest-rates-dot-plot.html
 
