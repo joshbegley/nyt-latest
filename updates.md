@@ -1,3 +1,15 @@
+**Everton takeover by Friedkin Group set for completion, expected to be announced Thursday**\
+`The Friedkin Group (TFG) is set to complete its takeover of Everton with an official announcement expected on Thursday.`\
+https://nytimes.com/athletic/6003911/2024/12/18/everton-takeover-friedkin-approved/
+
+**The other interest rate that investors are watching today.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2024/12/18/business/fed-interest-rates/the-other-interest-rate-that-investors-are-watching-today
+
+**‘Murder Hornet’ Has Been Eradicated From the U.S., Officials Say**\
+`The hornet was discovered in a corner of Washington State. Five years later, a massive mobilization has eliminated the invasive species, at least for now.`\
+https://nytimes.com/2024/12/18/us/murder-hornet-washington.html
+
 **Aghast at a Move to Revoke the Polio Vaccine**\
 `Readers write about the polio vaccine and the dread of the disease in the past. Also: Reducing crime; the Unabomber’s victims; health insurances woes.`\
 https://nytimes.com/2024/12/18/opinion/polio-vaccine.html

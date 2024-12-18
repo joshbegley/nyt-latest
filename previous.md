@@ -1,3 +1,15 @@
+**Everton takeover by Friedkin Group set for completion, expected to be announced Thursday**\
+`The Friedkin Group (TFG) is set to complete its takeover of Everton with an official announcement expected on Thursday.`\
+https://nytimes.com/athletic/6003911/2024/12/18/everton-takeover-friedkin-approved/
+
+**The other interest rate that investors are watching today.**\
+`By Joe Rennison`\
+https://nytimes.com/live/2024/12/18/business/fed-interest-rates/the-other-interest-rate-that-investors-are-watching-today
+
+**‘Murder Hornet’ Has Been Eradicated From the U.S., Officials Say**\
+`The hornet was discovered in a corner of Washington State. Five years later, a massive mobilization has eliminated the invasive species, at least for now.`\
+https://nytimes.com/2024/12/18/us/murder-hornet-washington.html
+
 **Aghast at a Move to Revoke the Polio Vaccine**\
 `Readers write about the polio vaccine and the dread of the disease in the past. Also: Reducing crime; the Unabomber’s victims; health insurances woes.`\
 https://nytimes.com/2024/12/18/opinion/polio-vaccine.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/18/business/interest-rates-consumers-savings-loans.h
 **How to Read the Fed’s Projections Like a Pro**\
 `The Federal Reserve will release fresh economic estimates on Wednesday. Here’s how to read the outlook for 2025 and beyond.`\
 https://nytimes.com/2024/12/18/business/fed-interest-rates-dot-plot.html
-
-**Live Updates: Fed Is Poised for Another Rate Cut**\
-`Federal Reserve officials are expected to lower rates for a third time this year. Fresh forecasts of how many cuts they expect to make next year will be closely watched.`\
-https://nytimes.com/live/2024/12/18/business/fed-interest-rates
-
-**Read the decision**\
-`A court ruled that the New Jersey attorney general, Matthew J. Platkin, overstepped his authority by seizing control of the Paterson Police Department.`\
-https://nytimes.com/interactive/2024/12/18/nyregion/nj-paterson-ruling.html
-
-**Drug Charges Against Sean Combs Associate Are Dropped in Florida**\
-`The charges against Brendan Paul, a former Syracuse University basketball player who was arrested amid raids on Mr. Combs’s homes, were dropped after he completed a diversion program.`\
-https://nytimes.com/2024/12/18/arts/music/sean-combs-brendan-paul-charges-dropped.html
 
