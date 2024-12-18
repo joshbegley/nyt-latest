@@ -1,3 +1,15 @@
+**Who Will Be New Jersey’s Next Governor? It’s Wide Open.**\
+`At least 10 candidates are vying for attention in the competitive race, including two mayors, a far-right radio host and a former state senator known as “Ed the Trucker.”`\
+https://nytimes.com/2024/12/18/nyregion/new-jersey-governors-race.html
+
+**Social Media Trends**\
+`What are the best and worst you’ve seen this year?`\
+https://nytimes.com/2024/12/18/learning/social-media-trends.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/18/crosswords/spelling-bee-forum.html
+
 **Russia Detains a Suspect in General’s Killing**\
 `The suspect, a 29-year-old citizen of Uzbekistan, confessed to planting the bomb that killed Lt. Gen. Igor Kirillov in Moscow, a spokeswoman for Russian prosecutors said.`\
 https://nytimes.com/2024/12/18/world/europe/russia-general-killing-suspect-uzbekistan.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6002905/2024/12/18/blackhawks-philipp-kurashev-sore
 **U.S. Agrees to Pay $116 Million to Settle Sexual Abuse Claims at California Prison**\
 `Lawyers for the victims said it was the largest deal of its kind reached with the federal Bureau of Prisons.`\
 https://nytimes.com/2024/12/18/us/california-prison-settlement-sexual-abuse.html
-
-**Sabres winless streak hits 11 with blowout loss in Montreal. Will anything change?**\
-`How much patience will owner Terry Pegula have with GM Kevyn Adams if this streak continues?`\
-https://nytimes.com/athletic/6002885/2024/12/18/buffalo-sabres-winless-streak-11-games/
-
-**How Liverpool 2.01 was built - and FSG abandoned any plans to sell**\
-`Two years ago, FSG was exploring selling up at Anfield - now, their tenure has new impetus. How?`\
-https://nytimes.com/athletic/5986837/2024/12/18/liverpool-fsg-slot-sale-plan/
-
-**​​Rangers' free fall continues, leading to big question: What comes next? 4 takeaways**\
-`The Rangers now sit at .500 — and they're a shell of last season’s Presidents’ Trophy team.`\
-https://nytimes.com/athletic/6002869/2024/12/18/new-york-rangers-free-fall/
 
