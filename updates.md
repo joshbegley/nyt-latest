@@ -1,3 +1,7 @@
+**What to Know About the Charges Against Luigi Mangione**\
+`The man the authorities say killed UnitedHealthcare’s chief executive is accused of crimes in Pennsylvania and New York, including first-degree murder, which is a terrorism charge.`\
+https://nytimes.com/2024/12/18/nyregion/luigi-mangione-murder-charges.html
+
 **New York Red Bulls signs former Bayern forward Choupo-Moting**\
 `The New York Red Bulls has completed the signing of Cameroon forward Eric Maxim Choupo-Moting.`\
 https://nytimes.com/athletic/6004403/2024/12/18/eric-maxim-choupo-moting-new-york-red-bulls/
