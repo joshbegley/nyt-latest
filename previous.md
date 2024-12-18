@@ -1,3 +1,7 @@
+**Is Elon Musk a National Security Risk?**\
+`Federal agencies are reviewing whether the tech mogul and ally of Donald Trump complied with disclosure rules meant to protect states secrets.`\
+https://nytimes.com/2024/12/18/business/dealbook/elon-musk-national-security-risk.html
+
 **He Built a Wellness Empire While Adventuring With R.F.K. Jr.**\
 `Dr. Mark Hyman, a “functional medicine” proponent and longtime friend of Robert F. Kennedy Jr., is finding powerful allies in his bid to treat disease with blood tests and supplements.`\
 https://nytimes.com/2024/12/18/health/mark-hyman-rfk-jr-functional-medicine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/briefing/2024-the-year-in-pictures.html
 **Acheampong signs new, improved long-term contract at Chelsea**\
 `Chelsea have ended doubts over the future of Josh Acheampong by tying their young talent to a new and improved long-term contract.`\
 https://nytimes.com/athletic/6003115/2024/12/18/chelsea-josh-acheampong-contract-new/
-
-**Fed Expected to Cut Rates, and C.E.O. Shooting Suspect Branded Terrorist**\
-`Plus, a beefy new skin care trend.`\
-https://nytimes.com/2024/12/18/podcasts/fed-mangione-beef-tallow.html
 

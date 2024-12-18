@@ -1,3 +1,7 @@
+**Is Elon Musk a National Security Risk?**\
+`Federal agencies are reviewing whether the tech mogul and ally of Donald Trump complied with disclosure rules meant to protect states secrets.`\
+https://nytimes.com/2024/12/18/business/dealbook/elon-musk-national-security-risk.html
+
 **He Built a Wellness Empire While Adventuring With R.F.K. Jr.**\
 `Dr. Mark Hyman, a “functional medicine” proponent and longtime friend of Robert F. Kennedy Jr., is finding powerful allies in his bid to treat disease with blood tests and supplements.`\
 https://nytimes.com/2024/12/18/health/mark-hyman-rfk-jr-functional-medicine.html
