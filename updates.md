@@ -1,3 +1,11 @@
+**Takeaways from the Fed’s final meeting of the year.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/12/18/business/fed-interest-rates/takeaways-from-the-feds-final-meeting-of-the-year
+
+**California Declares an Emergency Over Bird Flu**\
+`Officials have discovered the virus in 645 herds of dairy cattle, more than in any other state so far.`\
+https://nytimes.com/2024/12/18/health/bird-flu-emergency-california.html
+
 **Megan Thee Stallion Seeks Restraining Order Against Tory Lanez**\
 `Her lawyers said Mr. Lanez had facilitated a “campaign of harassment” from prison, where he is serving a 10-year sentence after being convicted of shooting her.`\
 https://nytimes.com/2024/12/18/arts/music/megan-thee-stallion-tory-lanez-restraining-order.html
