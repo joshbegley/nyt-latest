@@ -1,3 +1,7 @@
+**E.P.A. Allows California to Ban Sales of New Gas-Powered Cars by 2035**\
+`The Trump administration is expected to revoke the program, setting up a legal clash between the state and federal government.`\
+https://nytimes.com/2024/12/18/climate/california-ban-new-gasoline-powered-cars.html
+
 **How Worried Should We Be About Bird Flu?**\
 `California has declared a state of emergency over the virus. We asked experts how concerned they are.`\
 https://nytimes.com/2024/12/18/well/bird-flu-health-risks.html
