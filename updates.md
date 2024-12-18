@@ -1,3 +1,7 @@
+**What happened to Philipp Kurashev, and what can the Blackhawks do about it?**\
+`Two coaches have tried to unlock Philipp Kurashev's form from last season without any success. Is there still room for him on the roster?`\
+https://nytimes.com/athletic/6002905/2024/12/18/blackhawks-philipp-kurashev-sorensen-capitals/
+
 **Sabres winless streak hits 11 with blowout loss in Montreal. Will anything change?**\
 `How much patience will owner Terry Pegula have with GM Kevyn Adams if this streak continues?`\
 https://nytimes.com/athletic/6002885/2024/12/18/buffalo-sabres-winless-streak-11-games/

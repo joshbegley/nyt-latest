@@ -1,3 +1,7 @@
+**What happened to Philipp Kurashev, and what can the Blackhawks do about it?**\
+`Two coaches have tried to unlock Philipp Kurashev's form from last season without any success. Is there still room for him on the roster?`\
+https://nytimes.com/athletic/6002905/2024/12/18/blackhawks-philipp-kurashev-sorensen-capitals/
+
 **U.S. Agrees to Pay $116 Million to Settle Sexual Abuse Claims at California Prison**\
 `Lawyers for the victims said it was the largest deal of its kind reached with the federal Bureau of Prisons.`\
 https://nytimes.com/2024/12/18/us/california-prison-settlement-sexual-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6002858/2024/12/18/penguins-crosby-scoring-malkin-k
 **Wednesday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/12/18/briefing/russia-general-syria-israel.html
-
-**U.K. Police Chiefs Were Too Slow to React to Summer Riots, Report Says**\
-`Police leaders waited too long — three days — to trigger a national mobilization to tackle the anti-immigrant violence that broke out in Britain this year, a report found.`\
-https://nytimes.com/2024/12/18/world/europe/uk-riots-police-response-report.html
 
