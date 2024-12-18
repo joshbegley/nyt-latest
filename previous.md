@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘What Could Those Two Be Talking About?’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/12/18/style/tiny-modern-love-stories-what-could-those-two-be-talking-about.html
+
 **A Baby Capybara’s Rise to Fame Is a Perfect End to 2024**\
 `Like this year’s other viral baby animals, Tupi was quickly embraced on social media. An hour later, the San Antonio Zoo distanced itself from a memecoin named after him.`\
 https://nytimes.com/2024/12/18/style/tupi-capybara-memecoin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/world/asia/china-nuclear-buildup.html
 **American Kitchens Face an Uncertain Mix: Olive Oil and Tariffs**\
 `Trump hasn’t said whether he’ll move against imported foods, but the effects on oil producers and consumers are already being debated.`\
 https://nytimes.com/2024/12/18/dining/olive-oil-tariffs.html
-
-**Investigation of Police ‘Courtesy Cards’ Finds a 2-Tiered System of Justice**\
-`Videos released by a New Jersey government watchdog have pierced a veil of secrecy around cards that can be used to avoid traffic tickets.`\
-https://nytimes.com/2024/12/18/nyregion/new-jersey-state-police-courtesy-cards.html
 
