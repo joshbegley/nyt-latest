@@ -1,3 +1,11 @@
+**Acheampong signs new, improved long-term contract at Chelsea**\
+`Chelsea have ended doubts over the future of Josh Acheampong by tying their young talent to a new and improved long-term contract.`\
+https://nytimes.com/athletic/6003115/2024/12/18/chelsea-josh-acheampong-contract-new/
+
+**Dehner Jr.: Many Bengals' gaffes track back to this particular roster construction fail**\
+`Leaning on late-round and undrafted rookies this season has proven a big factor in a disappointing 2024 campaign.`\
+https://nytimes.com/athletic/6002429/2024/12/18/bengals-mistakes-late-round-rookies/
+
 **Who Is Friedrich Merz, a Leading Candidate to Be Germany’s Next Chancellor?**\
 `If polls are correct, Olaf Scholz’s successor could be Friedrich Merz, 69, leader of the Christian Democratic Union. He is offering to get the German economic engine humming again.`\
 https://nytimes.com/2024/12/18/world/europe/germany-friedrich-merz-chancellor.html

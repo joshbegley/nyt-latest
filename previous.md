@@ -1,3 +1,7 @@
+**Acheampong signs new, improved long-term contract at Chelsea**\
+`Chelsea have ended doubts over the future of Josh Acheampong by tying their young talent to a new and improved long-term contract.`\
+https://nytimes.com/athletic/6003115/2024/12/18/chelsea-josh-acheampong-contract-new/
+
 **Fed Expected to Cut Rates, and C.E.O. Shooting Suspect Branded Terrorist**\
 `Plus, a beefy new skin care trend.`\
 https://nytimes.com/2024/12/18/podcasts/fed-mangione-beef-tallow.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6002484/2024/12/18/fifpro-report-club-world-cup-wom
 `If polls are correct, Olaf Scholz’s successor could be Friedrich Merz, 69, leader of the Christian Democratic Union. He is offering to get the German economic engine humming again.`\
 https://nytimes.com/2024/12/18/world/europe/germany-friedrich-merz-chancellor.html
 
-**What to Watch as the Fed Makes Its Final 2024 Rate Decision**\
-`Federal Reserve officials are widely expected to cut interest rates, but investors will focus on hints about what comes next.`\
-https://nytimes.com/2024/12/18/business/fed-meeting-interest-rates.html
-
-**The Economy Is Finally Stable. Is That About to Change?**\
-`President-elect Donald J. Trump’s proposals on tariffs, immigration, taxes and deregulation may have far-reaching and contradictory effects, adding uncertainty to forecasts.`\
-https://nytimes.com/2024/12/18/business/economy/trump-us-economy.html
+**Dehner Jr.: Many Bengals' gaffes track back to this particular roster construction fail**\
+`Leaning on late-round and undrafted rookies this season has proven a big factor in a disappointing 2024 campaign.`\
+https://nytimes.com/athletic/6002429/2024/12/18/bengals-mistakes-late-round-rookies/
 
