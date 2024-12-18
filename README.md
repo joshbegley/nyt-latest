@@ -1,4 +1,4 @@
-**Silver acknowledges sagging TV ratings, but says interest not lacking**\
+**Silver acknowledges sagging NBA TV ratings, but says interest not lacking**\
 `Silver said “ratings are down a bit” but he pointed to a broader trend that “cable television viewership is down double digits.”`\
 https://nytimes.com/athletic/6002603/2024/12/17/adam-silver-nba-tv-ratings/
 
