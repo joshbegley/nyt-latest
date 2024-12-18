@@ -1,3 +1,11 @@
+**Trump Picks Herschel Walker to Be Ambassador to the Bahamas**\
+`The president-elect tapped the former football star for the job two years after a failed run for a Senate seat in Georgia.`\
+https://nytimes.com/2024/12/17/us/politics/herschel-walker-bahamas-trump.html
+
+**Giannis Antetokounmpo leads Bucks to NBA Cup title**\
+`Antetokounmpo ripped off a 26-point triple-double and the Bucks beat the Oklahoma City Thunder 97-81.`\
+https://nytimes.com/athletic/6002787/2024/12/17/bucks-thunder-nba-cup-result-giannis/
+
 **Change With the Times**\
 `Jeffrey Martinovic and Will Nediger up the ante.`\
 https://nytimes.com/2024/12/17/crosswords/daily-puzzle-2024-12-18.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6002502/2024/12/17/zach-lavine-trade-rumors-nuggets
 **What Kelby Collins addition brings to Alabama**\
 `Collins has two years of eligibility after starting his career at Florida.`\
 https://nytimes.com/athletic/6002529/2024/12/17/kelby-collins-alabama-football-transfer-portal/
-
-**House Republicans Call for Liz Cheney to Be Investigated Over Jan. 6 Committee Role**\
-`Ms. Cheney defended her work on the select committee in a detailed statement, and called the report “a malicious and cowardly assault on the truth.”`\
-https://nytimes.com/2024/12/17/us/politics/liz-cheney-jan-6-house-republicans.html
-
-**Tax Preparer Known as ‘the Magician’ Bilked I.R.S. Out of $145 Million**\
-`A businessman in the Bronx falsified information on thousands of returns, committing one of the largest tax frauds in Department of Justice history, prosecutors said.`\
-https://nytimes.com/2024/12/17/nyregion/fraud-tax-return-charges-bronx.html
 
