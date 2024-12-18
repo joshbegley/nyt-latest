@@ -1,3 +1,11 @@
+**The Case for Throwing Stones From a Glass House**\
+`One of the epic moral battles of this century is the one against sexual violence worldwide, and the U.S. has a chance to lead.`\
+https://nytimes.com/2024/12/18/opinion/sexual-violence-women.html
+
+**Temporarily Disconnected From Politics? Feel No Guilt About It.**\
+`Black women aren’t the only voters who are taking a moment.`\
+https://nytimes.com/2024/12/18/opinion/trump-liberals-resistance.html
+
 **'Nothing but spectacular': James Cook quietly amassing historic Bills numbers**\
 `While Josh Allen is getting all the MVP hype, Cook is putting up numbers not seen in Buffalo since O.J. Simpson and Thurman Thomas.`\
 https://nytimes.com/athletic/6004646/2024/12/18/buffalo-bills-james-cook-historic-season/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/12/18/nyregion/the-rev-james-callan-dead.html
 **The New Politics**\
 `At the DealBook Summit, nine prominent political figures, advisers and journalists debated what drove Trump’s victory and what it means for politics going forward. Here’s what they said.`\
 https://nytimes.com/2024/12/18/business/dealbook/the-new-politics.html
-
-**Google Street View Captures a Man Loading a Bag Into a Trunk. Arrests Follow.**\
-`The image, from northern Spain, showed a man with a white bag in the trunk of a car. The National Police said it helped them solve a missing-person case.`\
-https://nytimes.com/2024/12/18/world/europe/google-maps-spain-arrests.html
-
-**Education Dept. Reverses Itself and Reopens Two Loan Repayment Plans**\
-`The department had been trying to phase out the two plans in favor of a more generous new one that has been tied up by litigation since this summer.`\
-https://nytimes.com/2024/12/18/us/politics/education-dept-repayment-plans.html
 

@@ -1,3 +1,11 @@
+**The Case for Throwing Stones From a Glass House**\
+`One of the epic moral battles of this century is the one against sexual violence worldwide, and the U.S. has a chance to lead.`\
+https://nytimes.com/2024/12/18/opinion/sexual-violence-women.html
+
+**Temporarily Disconnected From Politics? Feel No Guilt About It.**\
+`Black women aren’t the only voters who are taking a moment.`\
+https://nytimes.com/2024/12/18/opinion/trump-liberals-resistance.html
+
 **'Nothing but spectacular': James Cook quietly amassing historic Bills numbers**\
 `While Josh Allen is getting all the MVP hype, Cook is putting up numbers not seen in Buffalo since O.J. Simpson and Thurman Thomas.`\
 https://nytimes.com/athletic/6004646/2024/12/18/buffalo-bills-james-cook-historic-season/
