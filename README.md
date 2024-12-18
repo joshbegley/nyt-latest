@@ -1,3 +1,7 @@
+**China’s Nuclear Buildup Is on Track Despite Graft Scandals, Pentagon Says**\
+`Corruption investigations may have shaken Beijing’s confidence in top commanders, but China’s military expansion hasn’t slowed, a report found.`\
+https://nytimes.com/2024/12/18/world/asia/china-nuclear-buildup.html
+
 **American Kitchens Face an Uncertain Mix: Olive Oil and Tariffs**\
 `Trump hasn’t said whether he’ll move against imported foods, but the effects on oil producers and consumers are already being debated.`\
 https://nytimes.com/2024/12/18/dining/olive-oil-tariffs.html
@@ -18,8 +22,8 @@ https://nytimes.com/2024/12/18/world/europe/zelensky-eu-ukraine.html
 `The Damascus International Airport reopened on Wednesday with a domestic flight to Aleppo, signaling that Syria’s new rulers are confident in their ability to govern after the end of the Assad family’s rule.`\
 https://nytimes.com/video/world/middleeast/100000009884546/syria-damascus-airport-reopens-.html
 
-**Giannis, Bucks dominate with defense to defeat Thunder and win NBA Cup title**\
-`Giannis Antetokounmpo and Damian Lillard combined for 49 of Milwaukee's 97 points, but stout defense carried the Bucks to an NBA Cup title.`\
+**'We believe we can beat anybody': Giannis, Bucks dominate with defense**\
+`"We have a chance to go deep into the playoffs, but we have to stay healthy," Antetokounmpo said.`\
 https://nytimes.com/athletic/6002970/2024/12/18/giannis-bucks-damian-lillard-nba-cup-thunder/
 
 **How a Forgotten TV Show Forever Changed the Way We Look at Art**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/us/politics/doge-records.html
 **If USC can't land — and retain — elite talent, then hope will be in short supply**\
 `The Trojans are in a rut. There’s no other way to put it. And it's a sobering reality considering how bright things looked three years ago.`\
 https://nytimes.com/athletic/6003360/2024/12/18/usc-lincoln-riley-transferes-recruiting/
-
-**How to Find Your Way Around That Updated Photos App**\
-`Redesigned interfaces, new features and artificial intelligence are meant to enhance the experience, even if the changes can be confusing at first.`\
-https://nytimes.com/2024/12/18/technology/personaltech/apple-google-photo-apps-updates-changes.html
 
