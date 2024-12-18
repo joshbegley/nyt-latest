@@ -14,7 +14,7 @@ https://nytimes.com/2024/12/18/crosswords/spelling-bee-forum.html
 `The suspect, a 29-year-old citizen of Uzbekistan, confessed to planting the bomb that killed Lt. Gen. Igor Kirillov in Moscow, a spokeswoman for Russian prosecutors said.`\
 https://nytimes.com/2024/12/18/world/europe/russia-general-killing-suspect-uzbekistan.html
 
-**The Super League (sorry, the Unify League) is back - but where is the imagination?**\
+**The European Super League (sorry, the Unify League) is back - but where is the imagination?**\
 `The group behind plans for a new European Super League is back with a revamped proposal, so is there any merit to it?`\
 https://nytimes.com/athletic/6002228/2024/12/18/super-league-unify-league-uefa-a22/
 
