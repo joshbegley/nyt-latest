@@ -1,3 +1,15 @@
+**Who Will Be New Jersey’s Next Governor? It’s Wide Open.**\
+`At least 10 candidates are vying for attention in the competitive race, including two mayors, a far-right radio host and a former state senator known as “Ed the Trucker.”`\
+https://nytimes.com/2024/12/18/nyregion/new-jersey-governors-race.html
+
+**Social Media Trends**\
+`What are the best and worst you’ve seen this year?`\
+https://nytimes.com/2024/12/18/learning/social-media-trends.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/18/crosswords/spelling-bee-forum.html
+
 **Russia Detains a Suspect in General’s Killing**\
 `The suspect, a 29-year-old citizen of Uzbekistan, confessed to planting the bomb that killed Lt. Gen. Igor Kirillov in Moscow, a spokeswoman for Russian prosecutors said.`\
 https://nytimes.com/2024/12/18/world/europe/russia-general-killing-suspect-uzbekistan.html
