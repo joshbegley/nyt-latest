@@ -1,3 +1,7 @@
+**Silver acknowledges sagging TV ratings, but says interest not lacking**\
+`Silver said “ratings are down a bit” but he pointed to a broader trend that “cable television viewership is down double digits.”`\
+https://nytimes.com/athletic/6002603/2024/12/17/adam-silver-nba-tv-ratings/
+
 **Nuggets searching for offensive help, eyeing Bulls' Zach LaVine: Sources**\
 `Denver's Nikola Jokić is having a historic season. But the Nuggets are searching for trade partners to find him help.`\
 https://nytimes.com/athletic/6002502/2024/12/17/zach-lavine-trade-rumors-nuggets/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/17/business/honda-nissan-talks-merger.html
 **Done With Never Trump**\
 `There’s plenty to dislike and fear about Trump, but Never Trumpers overstated our case, defeating our purpose.`\
 https://nytimes.com/2024/12/17/opinion/never-trump-republicans.html
-
-**How Elon Musk and Taylor Swift Can Resolve U.S.-China Relations**\
-`Trump will face a new China this time, one whose advanced manufacturing muscles have exploded in size, sophistication and quantity.`\
-https://nytimes.com/2024/12/17/opinion/us-china-musk-swift-tariffs-manufacturing.html
 
