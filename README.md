@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6002392/2024/12/17/cardinals-budda-baker-three-year
 https://nytimes.com/2024/12/17/us/politics/ukraine-aid-biden-trump.html
 
 **Honda and Nissan Are in Talks to Deepen Ties and Possibly Merge**\
-`The automakers, Japan’s second and third largest, are said to be discussing a tie-up that could reshape the country’s industry.`\
+`The automakers, Japan’s second- and third-largest, are said to be discussing a tie-up that could reshape the country’s industry.`\
 https://nytimes.com/2024/12/17/business/honda-nissan-talks-merger.html
 
 **Done With Never Trump**\
