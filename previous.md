@@ -1,3 +1,7 @@
+**Seth Meyers Questions Robert F. Kennedy Jr.’s Workout Fashion**\
+`Reports said Kennedy exercised at a gym in jeans and hiking boots. “If you think that’s weird, wait until you hear every single other thing about him,” Meyers said.`\
+https://nytimes.com/2024/12/18/arts/television/seth-meyers-robert-kennedy.html
+
 **Word of the Day: marginalized**\
 `This word has appeared in 344 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/18/learning/word-of-the-day-marginalized.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/18/climate/insurance-non-renewal-climate
 **See Where Home Insurance Policies Were Dropped in Your State**\
 `Insurers are retreating from communities across the country that face growing risks from hurricanes, wildfires and other disasters. Here’s how your area compares.`\
 https://nytimes.com/interactive/2024/12/18/climate/insurance-nonrenewal-rates-policies-state-map.html
-
-**James Bunce, the man tasked with helping Eddie Howe improve Newcastle's performance**\
-`Who is Newcastle's performance director and how does he operate? The Athletic spoke to people who know him well to find out`\
-https://nytimes.com/athletic/5971526/2024/12/18/james-bunce-newcastle-performance-director/
 

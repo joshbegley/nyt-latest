@@ -1,3 +1,7 @@
+**Seth Meyers Questions Robert F. Kennedy Jr.’s Workout Fashion**\
+`Reports said Kennedy exercised at a gym in jeans and hiking boots. “If you think that’s weird, wait until you hear every single other thing about him,” Meyers said.`\
+https://nytimes.com/2024/12/18/arts/television/seth-meyers-robert-kennedy.html
+
 **Word of the Day: marginalized**\
 `This word has appeared in 344 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/18/learning/word-of-the-day-marginalized.html
