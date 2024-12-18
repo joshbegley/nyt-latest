@@ -1,3 +1,15 @@
+**A 7-Eleven Heir’s $50 Billion Fight to Keep the Company in the Family**\
+`A battle for control of the chain shows how traditional business models embraced by family owners are clashing with a more shareholder-centric approach.`\
+https://nytimes.com/2024/12/18/business/7-eleven-japan-corporate-culture.html
+
+**The Art of the Gift: Roz Chast**\
+`The award-winning cartoonist, who admits to having a “very fraught” relationship with gift-giving, still loves handmade gifts from her children.`\
+https://nytimes.com/2024/12/18/style/roz-chast-gifts-holidays.html
+
+**Blue Jackets' can't overcome another lousy start, lose Dante Fabbro to injury**\
+`Columbus nearly managed a comeback thanks to a third-period surge, but once again the Jackets looked disengaged to start.`\
+https://nytimes.com/athletic/6002632/2024/12/17/blue-jackets-slow-start-fabbro-injury-lightning/
+
 **Trump Picks Herschel Walker to Be Ambassador to the Bahamas**\
 `The president-elect tapped the former football star for the job two years after a failed run for a Senate seat in Georgia.`\
 https://nytimes.com/2024/12/17/us/politics/herschel-walker-bahamas-trump.html
