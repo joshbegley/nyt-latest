@@ -1,3 +1,11 @@
+**Aghast at a Move to Revoke the Polio Vaccine**\
+`Readers write about the polio vaccine and the dread of the disease in the past. Also: Reducing crime; the Unabomber’s victims; health insurances woes.`\
+https://nytimes.com/2024/12/18/opinion/polio-vaccine.html
+
+**Central Bankers Around the Globe Gird Themselves for Another Trump Term**\
+`Central bankers are alert to the risk that global trade tensions will make managing inflation more challenging.`\
+https://nytimes.com/2024/12/18/business/global-central-banks-trump.html
+
 **Sergio Pérez out at Red Bull F1 after difficult season, 2025 replacement not yet announced**\
 `Pérez’s downturn in performance had big implications for Red Bull, which couldn’t defend the constructors’ championship.`\
 https://nytimes.com/athletic/6000811/2024/12/18/sergio-perez-red-bull-f1-exit/
