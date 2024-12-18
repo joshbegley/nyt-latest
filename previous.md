@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Cowboy Carter’ and More **\
+`Text by Nico Grant`\
+https://nytimes.com/card/2024/12/18/arts/editors-recommendations-cowboycarter
+
+**Police Can Seize £2 Million From Andrew Tate Accounts, U.K. Court Rules**\
+`The online influencer has bragged about refusing to pay taxes. A London court found that he and his brother had not paid taxes on more than £21 million in business revenue.`\
+https://nytimes.com/2024/12/18/world/europe/uk-andrew-tate-taxes.html
+
 **Review: The Trocks Fill Out the Laughs With Dancing Chops**\
 `Les Ballets Trockadero de Monte Carlo opens its season at the Joyce Theater with its vintage, vampiric “Giselle” and a new take on Balanchine.`\
 https://nytimes.com/2024/12/18/arts/dance/review-ballets-trockadero-de-monte-carlo-symphony.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/18/well/move/strength-exercise-band-workout.html
 **Perfect Latkes, However You Like Them**\
 `My five-star latkes fry up either thin and crunchy, flecked with golden, crackling strands, or chubby and nubby, with soft, fluffy centers.`\
 https://nytimes.com/2024/12/18/dining/perfect-latkes-however-you-like-them.html
-
-**Tiny Love Stories: ‘What Could Those Two Be Talking About?’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/12/18/style/tiny-modern-love-stories-what-could-those-two-be-talking-about.html
-
-**A Baby Capybara’s Rise to Fame Is a Perfect End to 2024**\
-`Like this year’s other viral baby animals, Tupi was quickly embraced on social media. An hour later, the San Antonio Zoo distanced itself from a memecoin named after him.`\
-https://nytimes.com/2024/12/18/style/tupi-capybara-memecoin.html
 

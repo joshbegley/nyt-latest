@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Cowboy Carter’ and More **\
+`Text by Nico Grant`\
+https://nytimes.com/card/2024/12/18/arts/editors-recommendations-cowboycarter
+
+**Police Can Seize £2 Million From Andrew Tate Accounts, U.K. Court Rules**\
+`The online influencer has bragged about refusing to pay taxes. A London court found that he and his brother had not paid taxes on more than £21 million in business revenue.`\
+https://nytimes.com/2024/12/18/world/europe/uk-andrew-tate-taxes.html
+
 **Review: The Trocks Fill Out the Laughs With Dancing Chops**\
 `Les Ballets Trockadero de Monte Carlo opens its season at the Joyce Theater with its vintage, vampiric “Giselle” and a new take on Balanchine.`\
 https://nytimes.com/2024/12/18/arts/dance/review-ballets-trockadero-de-monte-carlo-symphony.html
