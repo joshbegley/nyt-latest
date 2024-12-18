@@ -1,3 +1,7 @@
+**Miami Broker Turns Himself In to Face Sexual Battery Charge**\
+`Ohad Fisherman is accused of participating in an alleged sexual assault in 2016 alongside Oren and Alon Alexander.`\
+https://nytimes.com/2024/12/18/realestate/miami-broker-sexual-battery-charge.html
+
 **Everton takeover by Friedkin Group set for completion, expected to be announced Thursday**\
 `The Friedkin Group (TFG) is set to complete its takeover of Everton with an official announcement expected on Thursday.`\
 https://nytimes.com/athletic/6003911/2024/12/18/everton-takeover-friedkin-approved/
