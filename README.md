@@ -1,3 +1,7 @@
+**Who Is Friedrich Merz, Who Could Be Germany’s Next Chancellor?**\
+`If polls are correct, Olaf Scholz’s successor could be Friedrich Merz, 69, leader of the Christian Democratic Union. He is offering to get the German economic engine humming again.`\
+https://nytimes.com/2024/12/18/world/europe/germany-friedrich-merz-chancellor.html
+
 **What to Watch as the Fed Makes Its Final 2024 Rate Decision**\
 `Federal Reserve officials are widely expected to cut interest rates, but investors will focus on hints about what comes next.`\
 https://nytimes.com/2024/12/18/business/fed-meeting-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/movies/didi-janet-planet-best-streaming-movies.ht
 **What if Our Democracy Can’t Survive Without Christianity?**\
 `An atheist helps David French understand how religion supports America’s political ideals.`\
 https://nytimes.com/2024/12/18/opinion/christianity-democracy-religion.html
-
-**The Food Stories We Couldn’t Put Down in 2024**\
-`From restaurant lists to indispensable cooking tips, these are our most read articles of the year.`\
-https://nytimes.com/2024/12/18/dining/most-popular-food-stories-2024.html
 
