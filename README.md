@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6004374/2024/12/18/drew-lock-starting-qb-giants/
 https://nytimes.com/interactive/2024/12/18/magazine/israel-gaza-war-medical-treatment-who.html
 
 **What to know about the Fed’s rate move.**\
-`Federal Reserve officials projected just two rate cuts in 2025, and they made it clear that future reductions would hinge on inflation progress. `\
+`Federal Reserve officials projected just two rate cuts in 2025, and they made it clear that future reductions would hinge on inflation progress.`\
 https://nytimes.com/live/2024/12/18/business/fed-interest-rates/what-to-know-about-the-feds-rate-move
 
 **Oh baby! Commanders kickers miss practice with newborns on the way**\
