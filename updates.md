@@ -1,3 +1,11 @@
+**Hopes for a New Syria Take Flight**\
+`A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the transitional government tries to demonstrate its ability to run the war-shattered country.`\
+https://nytimes.com/2024/12/18/world/europe/syria-flight-damascus-aleppo-rebels.html
+
+**Amick: After winning NBA Cup, Bucks ready to get to 'back to work'**\
+`Milwaukee took a lesson from Los Angeles' stumble after winning the first Cup title. Partying can wait until the NBA Finals.`\
+https://nytimes.com/athletic/6003014/2024/12/18/bucks-nba-cup-title-celebrate/
+
 **Tua Tagovailoa can't solve Texans' D, Ty Johnson shines, more Week 15 thoughts: Quick Outs**\
 `Tagovailoa was accurate on 75 percent of his passes Sunday, but it didn't amount to much. `\
 https://nytimes.com/athletic/6001767/2024/12/18/nfl-week-15-tua-tagovaiola-ty-johnson/

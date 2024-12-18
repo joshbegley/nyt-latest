@@ -3,8 +3,12 @@
 https://nytimes.com/athletic/6001767/2024/12/18/nfl-week-15-tua-tagovaiola-ty-johnson/
 
 **Hopes for a New Syria Take Flight**\
-`A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the country’s transitional government tries to demonstrate its ability to run the war-shattered country.`\
+`A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the transitional government tries to demonstrate its ability to run the war-shattered country.`\
 https://nytimes.com/2024/12/18/world/europe/syria-flight-damascus-aleppo-rebels.html
+
+**Amick: After winning NBA Cup, Bucks ready to get to 'back to work'**\
+`Milwaukee took a lesson from Los Angeles' stumble after winning the first Cup title. Partying can wait until the NBA Finals.`\
+https://nytimes.com/athletic/6003014/2024/12/18/bucks-nba-cup-title-celebrate/
 
 **The Photos that Defined 2024**\
 `The year was made up of extraordinary moments — and Times photographers captured them in extraordinary images.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/crosswords/connections-companion-557.html
 **Commanders film review: How Jayden Daniels' winning performance was nearly sacked**\
 `Washington's rookie QB was sacked a season-high eight times vs. New Orleans. A breakdown of how each one took place. `\
 https://nytimes.com/athletic/6001748/2024/12/18/commanders-jayden-daniels-saints-sacks/
-
-**Rayful Edmond, Drug Lord Who Stoked D.C.’s Crack Cocaine Epidemic, Dies at 60**\
-`He rose to prominence in the 1980s, spending lavishly and befriending athletes, as the city was wracked by murders tied to the drug trade. He later became an informant.`\
-https://nytimes.com/2024/12/18/us/rayful-edmond-dead.html
 
