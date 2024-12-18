@@ -1,3 +1,7 @@
+**Cardinals star safety Budda Baker avoids 2025 free agency after inking three-year extension**\
+`The highly-skilled and versatile safety is currently second in the NFL with 142 total tackles.`\
+https://nytimes.com/athletic/6002392/2024/12/17/cardinals-budda-baker-three-year-extension/
+
 **Biden Administration Running Out of Time to Send Allocated Aid to Ukraine**\
 `Senior officials discussed U.S. plans to announce additional support for Ukraine, and spoke about casualties among North Korean troops sent to help Russia.`\
 https://nytimes.com/2024/12/17/us/politics/ukraine-aid-biden-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6002221/2024/12/17/yankees-cubs-cody-bellinger-trad
 **George Santos, Disgraced Former Congressman, Still Wants Your Attention**\
 `After his lies and expulsion from Congress, and before his sentencing in February, George Santos chases the limelight with a party and a podcast.`\
 https://nytimes.com/2024/12/17/us/politics/santos-podcast-launch-party.html
-
-**New Protections for Travelers Flying With Wheelchairs Are Coming Soon**\
-`The Transportation Department has expanded the rights of airline passengers with mobility disabilities. The first changes will go into effect next month.`\
-https://nytimes.com/2024/12/17/travel/airlines-wheelchairs-mobility-scooters.html
 
