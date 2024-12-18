@@ -1,3 +1,7 @@
+**Van de Ven and Romero unlikely to return until new year, says Postecoglou**\
+`Tottenham Hotspur head coach Ange Postecoglou says defenders Micky van de Ven and Cristian Romero are unlikely to return until the new year.`\
+https://nytimes.com/athletic/6003383/2024/12/18/tottenham-pair-van-de-ven-and-romero-unlikely-to-return-until-new-year-says-postecoglou/
+
 **Trump Transition Live Updates: Ex-N.F.L. Star Is Among Latest Ambassador Picks**\
 ``\
 https://nytimes.com/live/2024/12/18/us/trump-news
