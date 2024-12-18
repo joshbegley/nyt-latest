@@ -1,3 +1,7 @@
+**Rayful Edmond, Drug Lord Who Stoked D.C.’s Crack Cocaine Epidemic, Dies at 60**\
+`He rose to prominence in the 1980s, spending lavishly and befriending athletes, as the city was wracked by murders tied to the drug trade. He later became an informant.`\
+https://nytimes.com/2024/12/18/us/rayful-edmond-dead.html
+
 **Who Is Friedrich Merz, Who Could Be Germany’s Next Chancellor?**\
 `If polls are correct, Olaf Scholz’s successor could be Friedrich Merz, 69, leader of the Christian Democratic Union. He is offering to get the German economic engine humming again.`\
 https://nytimes.com/2024/12/18/world/europe/germany-friedrich-merz-chancellor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/opinion/health-insurance-united-ceo-shooting.html
 **‘Didi,’ ‘Janet Planet’ and the Year’s Great Under-the-Radar Streaming Films**\
 `Here are just a few of the year’s finest indies, documentaries and international selections, available to stream at this very minute.`\
 https://nytimes.com/2024/12/18/movies/didi-janet-planet-best-streaming-movies.html
-
-**What if Our Democracy Can’t Survive Without Christianity?**\
-`An atheist helps David French understand how religion supports America’s political ideals.`\
-https://nytimes.com/2024/12/18/opinion/christianity-democracy-religion.html
 

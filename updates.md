@@ -1,3 +1,7 @@
+**Rayful Edmond, Drug Lord Who Stoked D.C.’s Crack Cocaine Epidemic, Dies at 60**\
+`He rose to prominence in the 1980s, spending lavishly and befriending athletes, as the city was wracked by murders tied to the drug trade. He later became an informant.`\
+https://nytimes.com/2024/12/18/us/rayful-edmond-dead.html
+
 **Who Is Friedrich Merz, Who Could Be Germany’s Next Chancellor?**\
 `If polls are correct, Olaf Scholz’s successor could be Friedrich Merz, 69, leader of the Christian Democratic Union. He is offering to get the German economic engine humming again.`\
 https://nytimes.com/2024/12/18/world/europe/germany-friedrich-merz-chancellor.html
