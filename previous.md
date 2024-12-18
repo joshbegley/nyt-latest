@@ -1,3 +1,19 @@
+**How Liverpool 2.01 was built - and FSG abandoned any plans to sell**\
+`Two years ago, FSG was exploring selling up at Anfield - now, their tenure has new impetus. How?`\
+https://nytimes.com/athletic/5986837/2024/12/18/liverpool-fsg-slot-sale-plan/
+
+**​​Rangers' free fall continues, leading to big question: What comes next? 4 takeaways**\
+`The Rangers now sit at .500 — and they're a shell of last season’s Presidents’ Trophy team.`\
+https://nytimes.com/athletic/6002869/2024/12/18/new-york-rangers-free-fall/
+
+**Insurers Are Deserting Homeowners as Climate Shocks Worsen**\
+`Without insurance, it’s impossible to get a mortgage; without a mortgage, most Americans can’t buy a home.`\
+https://nytimes.com/interactive/2024/12/18/climate/insurance-non-renewal-climate-crisis.html
+
+**See Where Home Insurance Policies Were Dropped in Your State**\
+`Insurers are retreating from communities across the country that face growing risks from hurricanes, wildfires and other disasters. Here’s how your area compares.`\
+https://nytimes.com/interactive/2024/12/18/climate/insurance-nonrenewal-rates-policies-state-map.html
+
 **James Bunce, the man tasked with helping Eddie Howe improve Newcastle's performance**\
 `Who is Newcastle's performance director and how does he operate? The Athletic spoke to people who know him well to find out`\
 https://nytimes.com/athletic/5971526/2024/12/18/james-bunce-newcastle-performance-director/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/18/style/roz-chast-gifts-holidays.html
 **Blue Jackets' can't overcome another lousy start, lose Dante Fabbro to injury**\
 `Columbus nearly managed a comeback thanks to a third-period surge, but once again the Jackets looked disengaged to start.`\
 https://nytimes.com/athletic/6002632/2024/12/17/blue-jackets-slow-start-fabbro-injury-lightning/
-
-**Trump Picks Herschel Walker to Be Ambassador to the Bahamas**\
-`The president-elect tapped the former football star for the job two years after a failed run for a Senate seat in Georgia.`\
-https://nytimes.com/2024/12/17/us/politics/herschel-walker-bahamas-trump.html
-
-**Giannis Antetokounmpo leads Bucks to NBA Cup title**\
-`Antetokounmpo ripped off a 26-point triple-double and the Bucks beat the Oklahoma City Thunder 97-81.`\
-https://nytimes.com/athletic/6002787/2024/12/17/bucks-thunder-nba-cup-result-giannis/
-
-**Change With the Times**\
-`Jeffrey Martinovic and Will Nediger up the ante.`\
-https://nytimes.com/2024/12/17/crosswords/daily-puzzle-2024-12-18.html
-
-**Cubs’ outlook after Cody Bellinger and Kyle Tucker trades: 'We’re not done'**\
-`The Cubs still have room to spend on the pitching staff, Michael Busch isn't moving, Matt Shaw is on the radar for Opening Day and more.`\
-https://nytimes.com/athletic/6002650/2024/12/17/cubs-offseason-outlook-tucker-bellinger-trades/
 

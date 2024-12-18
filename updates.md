@@ -1,3 +1,19 @@
+**How Liverpool 2.01 was built - and FSG abandoned any plans to sell**\
+`Two years ago, FSG was exploring selling up at Anfield - now, their tenure has new impetus. How?`\
+https://nytimes.com/athletic/5986837/2024/12/18/liverpool-fsg-slot-sale-plan/
+
+**​​Rangers' free fall continues, leading to big question: What comes next? 4 takeaways**\
+`The Rangers now sit at .500 — and they're a shell of last season’s Presidents’ Trophy team.`\
+https://nytimes.com/athletic/6002869/2024/12/18/new-york-rangers-free-fall/
+
+**Insurers Are Deserting Homeowners as Climate Shocks Worsen**\
+`Without insurance, it’s impossible to get a mortgage; without a mortgage, most Americans can’t buy a home.`\
+https://nytimes.com/interactive/2024/12/18/climate/insurance-non-renewal-climate-crisis.html
+
+**See Where Home Insurance Policies Were Dropped in Your State**\
+`Insurers are retreating from communities across the country that face growing risks from hurricanes, wildfires and other disasters. Here’s how your area compares.`\
+https://nytimes.com/interactive/2024/12/18/climate/insurance-nonrenewal-rates-policies-state-map.html
+
 **James Bunce, the man tasked with helping Eddie Howe improve Newcastle's performance**\
 `Who is Newcastle's performance director and how does he operate? The Athletic spoke to people who know him well to find out`\
 https://nytimes.com/athletic/5971526/2024/12/18/james-bunce-newcastle-performance-director/
