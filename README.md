@@ -1,9 +1,13 @@
+**Takeaways from the Fed’s final meeting of the year.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/12/18/business/fed-interest-rates/takeaways-from-the-feds-final-meeting-of-the-year
+
 **Megan Thee Stallion Seeks Restraining Order Against Tory Lanez**\
 `Her lawyers said Mr. Lanez had facilitated a “campaign of harassment” from prison, where he is serving a 10-year sentence after being convicted of shooting her.`\
 https://nytimes.com/2024/12/18/arts/music/megan-thee-stallion-tory-lanez-restraining-order.html
 
 **California Declares an Emergency Over Bird Flu**\
-`Officials have discovered the virus in 645 herds, more than in any other state so far.`\
+`Officials have discovered the virus in 645 herds of dairy cattle, more than in any other state so far.`\
 https://nytimes.com/2024/12/18/health/bird-flu-emergency-california.html
 
 **Raheem Morris: Falcons didn't expect to make QB change this season**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/opinion/luigi-mangione-writer-tim-urban.html
 **White House Pushes to Find American Journalist Abducted in Syria**\
 `U.S. officials have given the rebel group in control of Damascus a list of former members of the Assad government who could have information about Austin Tice.`\
 https://nytimes.com/2024/12/18/us/politics/austin-tice-missing-syria.html
-
-**Inside a Huge Spending Deal: Disaster Money, a Football Stadium and More**\
-`The mammoth year-end federal funding measure congressional leaders agreed on does far more than just keep the government running. It is stuffed with all manner of policy and other changes.`\
-https://nytimes.com/2024/12/18/us/politics/spending-bill-explainer.html
 
