@@ -1,3 +1,11 @@
+**A 20-Minute Exercise Band Workout to Build Strength**\
+`If you are short on time and space, here is a cheap, effective way to get stronger.`\
+https://nytimes.com/2024/12/18/well/move/strength-exercise-band-workout.html
+
+**Perfect Latkes, However You Like Them**\
+`My five-star latkes fry up either thin and crunchy, flecked with golden, crackling strands, or chubby and nubby, with soft, fluffy centers.`\
+https://nytimes.com/2024/12/18/dining/perfect-latkes-however-you-like-them.html
+
 **Tiny Love Stories: ‘What Could Those Two Be Talking About?’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/12/18/style/tiny-modern-love-stories-what-could-those-two-be-talking-about.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/18/world/middleeast/cease-fire-extended-kurdish-forc
 **Cowboys Today: Playing hard when playoffs are unlikely is great, but still the bare minimum**\
 `The Cowboys are playing hard and have won three our of four games, but shouldn't playing hard be the expectation?`\
 https://nytimes.com/athletic/6003032/2024/12/18/cowboys-today-mike-mccarthy-future/
-
-**China’s Nuclear Buildup Is on Track Despite Graft Scandals, Pentagon Says**\
-`Corruption investigations may have shaken Beijing’s confidence in top commanders, but China’s military expansion hasn’t slowed, a report found.`\
-https://nytimes.com/2024/12/18/world/asia/china-nuclear-buildup.html
-
-**American Kitchens Face an Uncertain Mix: Olive Oil and Tariffs**\
-`Trump hasn’t said whether he’ll move against imported foods, but the effects on oil producers and consumers are already being debated.`\
-https://nytimes.com/2024/12/18/dining/olive-oil-tariffs.html
 
