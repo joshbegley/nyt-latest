@@ -1,3 +1,7 @@
+**The Rev. James Callan, Renegade Catholic Priest, Dies at 77**\
+`He was excommunicated in 1999 after allowing women to celebrate Mass, blessing same-sex unions and offering communion to non-Catholics.`\
+https://nytimes.com/2024/12/18/nyregion/the-rev-james-callan-dead.html
+
 **The New Politics**\
 `At the DealBook Summit, nine prominent political figures, advisers and journalists debated what drove Trump’s victory and what it means for politics going forward. Here’s what they said.`\
 https://nytimes.com/2024/12/18/business/dealbook/the-new-politics.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/12/18/briefing/fed-rate-cut-bird-flu-california-oscar-b
 **‘Skibidi Toilet’ Is Likely Coming to Fortnite. What the Heck Is It?**\
 `In the survival battle video game with 110 million monthly players, you may now be able to wear a skibidi toilet as a backpack. Here is a breakdown of what in the world that means.`\
 https://nytimes.com/2024/12/18/arts/fortnite-skibidi-toilet.html
-
-**Alabama DB Malachi Moore undergoes season-ending surgery, Jaylen Mbakwe transfer saga**\
-`Several injuries and transfer decisions have opened the door for young players to make an impact in the ReliaQuest Bowl against Michigan.`\
-https://nytimes.com/athletic/6004804/2024/12/18/alabama-college-football-malachi-moore-jaylen-mbakwe/
 
