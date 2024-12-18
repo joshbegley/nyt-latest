@@ -1,3 +1,7 @@
+**Tim Weah suffers hamstring injury, expected to be out for two weeks**\
+`Weah has four goals and four assists in 18 games for Juventus this season.`\
+https://nytimes.com/athletic/6003359/2024/12/18/tim-weah-injury-usmnt-juventus/
+
 **Van de Ven and Romero unlikely to return until new year, says Postecoglou**\
 `Tottenham Hotspur head coach Ange Postecoglou says defenders Micky van de Ven and Cristian Romero are unlikely to return until the new year.`\
 https://nytimes.com/athletic/6003383/2024/12/18/tottenham-pair-van-de-ven-and-romero-unlikely-to-return-until-new-year-says-postecoglou/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6001767/2024/12/18/nfl-week-15-tua-tagovaiola-ty-jo
 **Hopes for a New Syria Take Flight**\
 `A Syrian Air flight from Damascus landed in Aleppo on Wednesday, as the transitional government tries to demonstrate its ability to run the war-shattered country.`\
 https://nytimes.com/2024/12/18/world/europe/syria-flight-damascus-aleppo-rebels.html
-
-**Amick: After winning NBA Cup, Bucks ready to get to 'back to work'**\
-`Milwaukee took a lesson from Los Angeles' stumble after winning the first Cup title. Partying can wait until the NBA Finals.`\
-https://nytimes.com/athletic/6003014/2024/12/18/bucks-nba-cup-title-celebrate/
 
