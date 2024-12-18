@@ -1,3 +1,7 @@
+**Exclusive: If Commanders leave for D.C., Maryland has a plan in place**\
+`The Athletic looks into the agreement between the Commanders and the State of Maryland if the team agrees to leave for Washington D.C.`\
+https://nytimes.com/athletic/6004756/2024/12/18/washington-commanders-maryland-rfk-stadium/
+
 **E.P.A. Allows California to Ban Sales of New Gas-Powered Cars by 2035**\
 `The Trump administration is expected to revoke the program, setting up a legal clash between the state and federal government.`\
 https://nytimes.com/2024/12/18/climate/california-ban-new-gasoline-powered-cars.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/12/18/us/politics/education-dept-repayment-plans.html
 **Cardinals' Nolan Arenado nixes trade to Astros, for now**\
 `Despite the St.`\
 https://nytimes.com/athletic/6004944/2024/12/18/cardinals-nolan-arenado-astros-trade/
-
-**A Ten Commandments Tablet Sells for More Than $5 Million at Auction**\
-`Sotheby’s called the stone the world’s oldest inscribed with the Ten Commandments, but some experts had raised questions about its provenance and authenticity.`\
-https://nytimes.com/2024/12/18/us/sothebys-ten-commandments-tablet.html
 
