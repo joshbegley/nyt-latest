@@ -1,3 +1,7 @@
+**NBA Lookahead: How does the league fix its TV ratings?**\
+`Are concerns over falling TV numbers justified? Plus, a look at the top games of the weekend, including Bucks-Cavaliers. `\
+https://nytimes.com/athletic/5999945/2024/12/19/nba-lebron-james-ratings-adam-silver-michael-jordan-nba/
+
 **What does switch to Dorian Thompson-Robinson mean for Browns' future at QB?**\
 `Plus, can Jerry Jeudy keep up his recent production with a new QB under center? And what's next for Jameis Winston? `\
 https://nytimes.com/athletic/6005280/2024/12/19/browns-quarterbacks-dorian-thompson-robinson/
