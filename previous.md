@@ -1,3 +1,7 @@
+**Real Madrid 3 Pachuca 0: Vinicius Jr's victory lap and Ancelotti's record-breaking 15th title**\
+`Real Madrid are World club champions after winning the Intercontinental Cup in Qatar - there were records broken and old wounds healed`\
+https://nytimes.com/athletic/6004889/2024/12/19/real-madrid-intercontinental-cup-vinicius-mbappe-ancelotti/
+
 **Emery says he wants to play Torres and Mings in Villa's starting XI – how does he do that?**\
 `Torres and Mings are both left-footed but very different centre-backs – the plan is to strengthen Villa's principles, not disturb them`\
 https://nytimes.com/athletic/5993710/2024/12/19/unai-emery-pau-torres-tyrone-mings-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5997826/2024/12/19/festive-gifts-club-christmas-hol
 **Thursday Briefing**\
 `Syrian soldiers step toward amnesty.`\
 https://nytimes.com/2024/12/19/briefing/syria-russia-markets.html
-
-**Europe Has a Leadership Vacuum. How Will it Handle Trump?**\
-`With Germany and France both in political turmoil, the new administration of Donald J. Trump will begin at a time of instability for the continent.`\
-https://nytimes.com/2024/12/19/world/europe/europe-has-a-leadership-vacuum-how-will-it-handle-trump.html
 
