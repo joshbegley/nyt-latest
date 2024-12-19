@@ -1,3 +1,7 @@
+**Wolves appoint Vitor Pereira as new head coach**\
+`Wolverhampton Wanderers have appointed Vitor Pereira as their new head coach.`\
+https://nytimes.com/athletic/5995235/2024/12/19/wolves-appoint-vitor-pereira/
+
 **After failed point guard experiment, Jeremy Sochan has a green new deal with the Spurs**\
 `San Antonio tried to make the 6-foot-8 Sochan their primary ballhandler last season. Now, he's back to being a power forward — and agitator.`\
 https://nytimes.com/athletic/6006327/2024/12/19/spurs-jeremy-sochan-wembanyama/
