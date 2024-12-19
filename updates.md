@@ -1,3 +1,15 @@
+**Maps: See Israel’s Moves in Syria Since al-Assad Was Toppled**\
+`Israeli fighter jets have launched hundreds of airstrikes, while soldiers have seized a buffer zone and captured military posts in territory formerly under Syrian control.`\
+https://nytimes.com/2024/12/19/world/middleeast/syria-israel-maps.html
+
+**Trump’s Return May Worsen Financial Woes for Global Health Institutions**\
+`The U.S. provides nearly half of the aid for global health, including childhood vaccination, H.I.V. treatment and disease surveillance.`\
+https://nytimes.com/2024/12/19/health/global-health-funding-us-trump.html
+
+**Cowboys Today: The growing relationship between Micah Parsons and Mike Zimmer**\
+`Back in June, Dallas Cowboys pass rusher Micah Parsons somewhat surprisingly said that he and Mike Zimmer had probably said a total of 20 words to each other since Zimmer was hired as defensive coordinator in February.`\
+https://nytimes.com/athletic/6006918/2024/12/19/cowboys-today-micah-parsons-mike-zimmer-stats/
+
 **What if Trump Doesn’t Need to Keep Any of His Promises?**\
 `For the 47th president, illusion is the new accountability.`\
 https://nytimes.com/2024/12/19/opinion/donald-trump-promises.html

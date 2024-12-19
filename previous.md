@@ -1,3 +1,15 @@
+**Maps: See Israel’s Moves in Syria Since al-Assad Was Toppled**\
+`Israeli fighter jets have launched hundreds of airstrikes, while soldiers have seized a buffer zone and captured military posts in territory formerly under Syrian control.`\
+https://nytimes.com/2024/12/19/world/middleeast/syria-israel-maps.html
+
+**Trump’s Return May Worsen Financial Woes for Global Health Institutions**\
+`The U.S. provides nearly half of the aid for global health, including childhood vaccination, H.I.V. treatment and disease surveillance.`\
+https://nytimes.com/2024/12/19/health/global-health-funding-us-trump.html
+
+**Cowboys Today: The growing relationship between Micah Parsons and Mike Zimmer**\
+`Back in June, Dallas Cowboys pass rusher Micah Parsons somewhat surprisingly said that he and Mike Zimmer had probably said a total of 20 words to each other since Zimmer was hired as defensive coordinator in February.`\
+https://nytimes.com/athletic/6006918/2024/12/19/cowboys-today-micah-parsons-mike-zimmer-stats/
+
 **What if Trump Doesn’t Need to Keep Any of His Promises?**\
 `For the 47th president, illusion is the new accountability.`\
 https://nytimes.com/2024/12/19/opinion/donald-trump-promises.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/19/opinion/luigi-mangione-terrorism.html
 **All They Want for Christmas? This Mariah Carey Bar.**\
 `A New York City lounge devoted to the singer plays her 1994 holiday hit every 15 minutes.`\
 https://nytimes.com/2024/12/19/style/mariah-carey-holiday-bar-nyc.html
-
-**Kylie Kelce Doesn’t Want to Talk About Besting Joe Rogan**\
-`But in her first interview since her podcast reached No. 1, she does share ideas about why the show has become a breakout hit.`\
-https://nytimes.com/2024/12/19/business/media/kylie-kelce-podcast.html
-
-**Nvidia’s Booming A.I. Business Collides With U.S.-Chinese Tensions**\
-`The chipmaker expects more than $10 billion in foreign sales this year, but the Biden administration is advancing rules that could curb that growth.`\
-https://nytimes.com/2024/12/19/technology/nvidia-chip-sales-us-china.html
-
-**Is the Tech Industry Already on the Cusp of an A.I. Slowdown?**\
-`Companies like OpenAI and Google are running out of the data used to train artificial intelligence systems. Can new methods continue years of rapid progress?`\
-https://nytimes.com/2024/12/19/technology/artificial-intelligence-data-openai-google.html
 
