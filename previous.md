@@ -1,3 +1,7 @@
+**Benjamin Netanyahu’s Unlikely Hold on Power**\
+`The Israeli prime minister remains in power.`\
+https://nytimes.com/2024/12/19/opinion/netanyahu-israel-power.html
+
 **Shorthanded Wild handed humbling loss by Cup champion Panthers: Takeaways**\
 `It's the first time this season the Wild have lost two consecutive games in regulation.`\
 https://nytimes.com/athletic/6005712/2024/12/19/wild-humbling-loss-panthers-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003344/2024/12/19/barcelona-high-line-flick-tactic
 **Amad's speed of thought makes him the perfect weapon for Ruben Amorim**\
 `The Ivorian's match-winning Manchester derby display was a result of his ability to spot things before they've happened – his key strength`\
 https://nytimes.com/athletic/5998341/2024/12/19/amad-manchester-united-analysis-ruben-amorim/
-
-**Festive football gifts 2024: Weird and wonderful club-branded merchandise**\
-`Looking for a last-minute festive gift? Caoimhe O'Neill has scoured club shops to find the most eye-catching club-branded merchandise around`\
-https://nytimes.com/athletic/5997826/2024/12/19/festive-gifts-club-christmas-holidays-football/
 
