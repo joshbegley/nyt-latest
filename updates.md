@@ -1,3 +1,11 @@
+**Britain to Name Peter Mandelson as Ambassador to the U.S.**\
+`The veteran Labour lawmaker chosen by Prime Minister Keir Starmer has experience in trade policy and business and was once nicknamed “the Prince of Darkness” for his political tactics.`\
+https://nytimes.com/2024/12/19/world/europe/uk-peter-mandelson-us-ambassador.html
+
+**Faith Is Nothing Like I Thought It Would Be**\
+`The word “faith” implies the possession of something, whereas I experience faith as a yearning for something beautiful that I can sense but not fully grasp.`\
+https://nytimes.com/2024/12/19/opinion/faith-god-christianity.html
+
 **51 Men Guilty in Rape Trial That Horrified France**\
 `Dominique Pelicot, who admitted to drugging and raping his wife for almost a decade and to inviting dozens of strangers to join him, was convicted on Thursday of aggravated rape and other charges and was sentenced to the maximum 20 years in prison.`\
 https://nytimes.com/video/world/europe/100000009883895/51-men-guilty-in-rape-trial-that-horrified-france.html
