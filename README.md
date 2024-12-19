@@ -1,3 +1,15 @@
+**51 Men Guilty in Rape Trial That Horrified France**\
+`Dominique Pelicot, who admitted to drugging and raping his wife for almost a decade and to inviting dozens of strangers to join him, was convicted on Thursday of aggravated rape and other charges and was sentenced to the maximum 20 years in prison.`\
+https://nytimes.com/video/world/europe/100000009883895/51-men-guilty-in-rape-trial-that-horrified-france.html
+
+**Neil Cavuto, Longtime Fox News Host, Signs Off the Network**\
+`“Your World with Neil Cavuto” was shown in the 4-5 p.m. slot for 28 years, since the network began in 1996.`\
+https://nytimes.com/2024/12/19/arts/television/cavuto-fox-news.html
+
+**The Timeless Craft of the Courtroom Sketch Artist**\
+`In courtrooms where cameras are banned, these artists provide a curious public a glimpse behind closed doors. Here’s how they do it.`\
+https://nytimes.com/2024/12/19/us/william-hennessy-jr-courtroom-sketch-artist.html
+
 **Dewsbury-Hall may leave Chelsea in January - Enzo Maresca**\
 `Enzo Maresca admits that Kiernan Dewsbury-Hall is one of the Chelsea players that could leave the club during the January transfer window.`\
 https://nytimes.com/athletic/6008003/2024/12/19/kiernan-dewsbury-hall-chelsea-january-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/19/briefing/government-shutdown-plan-country-music-b
 **Assessing Elon Musk’s Criticisms of the Government Spending Deal**\
 `The world’s richest man posted or amplified inaccurate claims about the bill’s provisions for congressional salaries, a football stadium and biological research.`\
 https://nytimes.com/2024/12/19/us/politics/elon-musk-spending-bill-fact-check.html
-
-**Carabao Cup SF draw: Liverpool-Tottenham, Arsenal-Newcastle**\
-`Liverpool will play Tottenham Hotspur at the semi-final stage of the Carabao Cup, while Arsenal will take on Newcastle United.`\
-https://nytimes.com/athletic/6007157/2024/12/19/carabao-cup-semi-final-draw-2024-25/
-
-**Oysters Sicken at Least 80 at Restaurant Event in Los Angeles, Officials Say**\
-`The county Health Department said that the outbreak at the 101 Best Restaurants event was linked to a broader outbreak from oysters that have since been recalled.`\
-https://nytimes.com/2024/12/19/us/oysters-norovirus-los-angeles.html
-
-**Mayotte Residents Struggle With Cyclone Chido Aftermath**\
-`Residents of Mayotte began relief efforts after Cyclone Chido devastated the French territory. Emmanuel Macron, President of France, surveyed the damage and received a mixed welcome.`\
-https://nytimes.com/video/weather/100000009888690/french-territory-mayotte-cyclone-chido.html
 
