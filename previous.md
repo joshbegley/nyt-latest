@@ -1,3 +1,11 @@
+**How the Climate Crisis Became an Insurance Crisis**\
+`Even in formerly low-risk areas, home insurers are raising premiums and ending coverage. The upheaval could push down home values and reverberate through the economy.`\
+https://nytimes.com/2024/12/19/climate/how-the-climate-crisis-became-an-insurance-crisis.html
+
+**Former Uvalde Schools Police Chief Fails in Bid to Avoid Prosecution**\
+`Investigations have singled out Pete Arredondo, the former chief, for the delayed police response to a 2022 school shooting in Texas. A judge denied his request to quash the charges against him.`\
+https://nytimes.com/2024/12/19/us/uvalde-shooting-pete-arredondo.html
+
 **William J. Hennessy Jr., Sketch Artist of Courtroom Drama, Dies at 67**\
 `His lively drawings of historic Supreme Court arguments, impeachment trials and murder cases gave the public a peek into venues where cameras were banned.`\
 https://nytimes.com/2024/12/19/business/media/william-j-hennessy-jr-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/nyregion/ingrid-lewis-martin-corruption-charges.h
 **Billionaire Rivals Bezos and Musk Are Said to Have Dined With Trump at Mar-a-Lago**\
 `Elon Musk, the chief executive of Tesla, and Jeff Bezos, the Amazon founder, ate with President-elect Donald J. Trump. Both have courted Mr. Trump.`\
 https://nytimes.com/2024/12/19/us/politics/trump-elon-musk-bezos-mar-a-lago.html
-
-**Avian Flu Has Hit Dairies So Hard That They’re Calling It ‘Covid for Cows’**\
-`The virus has spread rapidly in California, the nation’s largest producer of milk. Farmers are frustrated that their herds are getting infected despite various precautions.`\
-https://nytimes.com/2024/12/19/us/bird-flu-california-covid-cows.html
-
-**Adams Hosts Fox News at City Hall, as N.Y. Leaders Mute Trump Hostility**\
-`In an interview with the conservative network, Mayor Eric Adams criticized the Biden administration and did not take aim at President-elect Donald J. Trump. He is not the only New York Democrat treading lightly.`\
-https://nytimes.com/2024/12/19/nyregion/eric-adams-fox-news-trump.html
 

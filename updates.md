@@ -1,3 +1,11 @@
+**How the Climate Crisis Became an Insurance Crisis**\
+`Even in formerly low-risk areas, home insurers are raising premiums and ending coverage. The upheaval could push down home values and reverberate through the economy.`\
+https://nytimes.com/2024/12/19/climate/how-the-climate-crisis-became-an-insurance-crisis.html
+
+**Former Uvalde Schools Police Chief Fails in Bid to Avoid Prosecution**\
+`Investigations have singled out Pete Arredondo, the former chief, for the delayed police response to a 2022 school shooting in Texas. A judge denied his request to quash the charges against him.`\
+https://nytimes.com/2024/12/19/us/uvalde-shooting-pete-arredondo.html
+
 **William J. Hennessy Jr., Sketch Artist of Courtroom Drama, Dies at 67**\
 `His lively drawings of historic Supreme Court arguments, impeachment trials and murder cases gave the public a peek into venues where cameras were banned.`\
 https://nytimes.com/2024/12/19/business/media/william-j-hennessy-jr-dead.html
