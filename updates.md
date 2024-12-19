@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6005513/2024/12/19/maple-leafs-william-nylander-cra
 `\
 https://nytimes.com/athletic/6005513/2024/12/19/maple-leafs-william-nylander-craig-berube/
 
+**William Nylander on excelling under Craig Berube and his next lofty goal for the Leafs**\
+`Nylander is quick to rave about the Leafs coach and his playing style that has him scoring more than ever.
+`\
+https://nytimes.com/athletic/6005513/2024/12/19/maple-leafs-william-nylander-craig-berube/
+
 **How an NHL broadcaster prepares for a game, from name pronunciations to locker-room stories**\
 `In his 36th NHL season, Blues broadcaster John Kelly still takes pride in passing along information that brings fans closer to the team.`\
 https://nytimes.com/athletic/5990291/2024/12/19/blues-john-kelly-broadcaster/
