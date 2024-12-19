@@ -1,3 +1,11 @@
+**Movie Shelved After Jonathan Majors’s Arrest Gets Release Date**\
+`Before the actor was charged with assault, “Magazine Dreams” generated Oscar buzz for his performance as a bodybuilder. The movie is now scheduled to reach theaters in March.`\
+https://nytimes.com/2024/12/19/movies/magazine-dreams-jonathan-majors.html
+
+**‘Getting Your Pink Back:’ How Moms Felt Like Themselves Again After Having a Baby**\
+`Flamingos, which can lose their bright color when tending to their young but get it back over time, have been a helpful metaphor for some women in their postpartum experiences.`\
+https://nytimes.com/2024/12/19/style/get-your-pink-back-tiktok-parenting.html
+
 **Canadiens' Barron-for-Carrier trade sends a message to the room**\
 `As unlikely as it may seem with the Canadiens near the bottom of the standings, management clearly feels this team can still make a push. `\
 https://nytimes.com/athletic/6007462/2024/12/19/canadiens-trade-justin-barron-alexandre-carrier/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6007461/2024/12/19/dodgers-offseason-mailbag-sasaki
 **How Oilers' Zach Hyman was fortunate to only end up with a broken nose**\
 `Hyman suffered a broken nose and two black eyes when he was hit in the face by a deflected slap shot on Monday.`\
 https://nytimes.com/athletic/6007410/2024/12/19/zach-hyman-broken-nose-oilers/
-
-**Chiefs' Patrick Mahomes 'will most likely' start vs. Texans**\
-`Mahomes exited the Chiefs' Week 15 win over the Cleveland Browns midway through the fourth quarter with an ankle injury.`\
-https://nytimes.com/athletic/6007393/2024/12/19/patrick-mahomes-chiefs-start-texans/
-
-**Wisconsin School Shooter May Have Plotted With California Man**\
-`At the request of law enforcement officials, a judge ordered a man, who reportedly corresponded with the shooter about a second attack, to surrender his guns.`\
-https://nytimes.com/2024/12/19/us/wisconsin-school-shooting-plot.html
 
