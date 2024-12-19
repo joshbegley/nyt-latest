@@ -1,3 +1,11 @@
+**Ex-Top Aide to Mayor Adams and Her Son Are Charged in Corruption Case**\
+`Ingrid Lewis-Martin, who resigned as the mayor’s chief adviser, was charged in a bribery scheme involving $100,000 for a new Porsche for her son.`\
+https://nytimes.com/2024/12/19/nyregion/ingrid-lewis-martin-corruption-charges.html
+
+**Billionaire Rivals Bezos and Musk Are Said to Have Dined With Trump at Mar-a-Lago**\
+`Elon Musk, the chief executive of Tesla, and Jeff Bezos, the Amazon founder, ate with President-elect Donald J. Trump. Both have courted Mr. Trump.`\
+https://nytimes.com/2024/12/19/us/politics/trump-elon-musk-bezos-mar-a-lago.html
+
 **Avian Flu Has Hit Dairies So Hard That They’re Calling It ‘Covid for Cows’**\
 `The virus has spread rapidly in California, the nation’s largest producer of milk. Farmers are frustrated that their herds are getting infected despite various precautions.`\
 https://nytimes.com/2024/12/19/us/bird-flu-california-covid-cows.html
