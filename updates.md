@@ -1,3 +1,7 @@
+**Aluko's civil claim against Barton heard at High Court**\
+`A preliminary hearing in a claim for defamation and harassment brought by TV pundit Eni Aluko against Joey Barton was heard today at London’s High Court.`\
+https://nytimes.com/athletic/6007024/2024/12/19/joey-barton-eni-aluko-high-court/
+
 **Wizards, Capitals commit to D.C.; Capital One Arena $515M renovation coming**\
 `Internal and external renovations for the Capital One Center are expected to be completed before the 2027-28 NBA and NHL seasons.`\
 https://nytimes.com/athletic/6006548/2024/12/19/capital-one-arena-renovations-approved-wizards-capitals/

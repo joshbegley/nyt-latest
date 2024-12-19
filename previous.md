@@ -1,3 +1,7 @@
+**Aluko's civil claim against Barton heard at High Court**\
+`A preliminary hearing in a claim for defamation and harassment brought by TV pundit Eni Aluko against Joey Barton was heard today at London’s High Court.`\
+https://nytimes.com/athletic/6007024/2024/12/19/joey-barton-eni-aluko-high-court/
+
 **Wizards, Capitals commit to D.C.; Capital One Arena $515M renovation coming**\
 `Internal and external renovations for the Capital One Center are expected to be completed before the 2027-28 NBA and NHL seasons.`\
 https://nytimes.com/athletic/6006548/2024/12/19/capital-one-arena-renovations-approved-wizards-capitals/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/movies/the-brutalist-review.html
 **Hidden ‘Junk’ Fees Must Be Disclosed, F.T.C. Rule Says**\
 `Hotels, short-term rentals and event ticket-sellers must advertise the full price of their offerings under the rule, which is supposed to go into effect in the coming year. Here’s what to know.`\
 https://nytimes.com/2024/12/19/travel/junk-fees-ftc-rentals-hotels.html
-
-**What Are ‘Healthy’ Foods? The F.D.A. Updates the Labeling Terms.**\
-`The Food and Drug Administration released final rules on labeling foods as “healthy,” tightening limits for sugar, sodium and saturated fat.`\
-https://nytimes.com/2024/12/19/health/fda-healthy-foods-label.html
 
