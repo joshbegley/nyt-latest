@@ -1,3 +1,7 @@
+**P.O Joseph is headed back to Pittsburgh in trade with St. Louis**\
+`P.O Joseph is on his way back to Pittsburgh after a brief stint in St. Louis. `\
+https://nytimes.com/athletic/6005413/2024/12/18/blues-po-joseph-trade-penguins/
+
 **NHL trade grades: Kraken take low-risk bet on Kaapo Kakko, Rangers get little in return**\
 `Kakko never lived up to his ceiling in New York, and he is the type of reclamation project the Kraken should be targeting.`\
 https://nytimes.com/athletic/6005250/2024/12/18/nhl-trade-grades-rangers-kaapo-kakko-kraken/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6004718/2024/12/18/rangers-kaapo-kakko-trade-seattl
 **The One Solution to Grow Your Enterprise-Level Business**\
 `Intuit Enterprise Suite simplifies the complex processes of a growing business with real-time data`\
 https://nytimes.com/paidpost/intuit/the-one-solution-to-grow-your-enterprise-level-business.html
-
-**The Case for Throwing Stones From a Glass House**\
-`One of the epic moral battles of this century is the one against sexual violence worldwide, and the U.S. has a chance to lead.`\
-https://nytimes.com/2024/12/18/opinion/sexual-violence-women.html
 
