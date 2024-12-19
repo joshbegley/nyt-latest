@@ -1,3 +1,7 @@
+**Greenwood undergoes surgery on MCL injury**\
+`Manchester City Women&#8217;s captain Alex Greenwood faces an extended period on the sidelines after undergoing knee surgery.`\
+https://nytimes.com/athletic/5992345/2024/12/19/alex-greenwood-injury-man-city/
+
 **NBA shooting rankings: From Knicks to Sixers, how does your team stack up?**\
 `The volume of 3s is at an all-time high in the NBA, but when we talk shooting, there's a lot more to evaluate.`\
 https://nytimes.com/athletic/6002491/2024/12/19/nba-shooting-rankings-2024-knicks-celtics-sixers/

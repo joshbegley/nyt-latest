@@ -1,3 +1,7 @@
+**Greenwood undergoes surgery on MCL injury**\
+`Manchester City Women&#8217;s captain Alex Greenwood faces an extended period on the sidelines after undergoing knee surgery.`\
+https://nytimes.com/athletic/5992345/2024/12/19/alex-greenwood-injury-man-city/
+
 **NBA shooting rankings: From Knicks to Sixers, how does your team stack up?**\
 `The volume of 3s is at an all-time high in the NBA, but when we talk shooting, there's a lot more to evaluate.`\
 https://nytimes.com/athletic/6002491/2024/12/19/nba-shooting-rankings-2024-knicks-celtics-sixers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/nyregion/mastodon-teeth-new-york.html
 **2024 in Pictures**\
 `Which of the images in this Times collection best capture how you’ll remember this year?`\
 https://nytimes.com/2024/12/19/learning/2024-in-pictures.html
-
-**Holiday Hints From a Gift-Guide Maker**\
-`Mari Uyehara helps develop the dozens of guides published by Wirecutter. She likes gifts you can’t buy in more than one place.`\
-https://nytimes.com/2024/12/19/insider/wirecutter-gift-guides.html
 
