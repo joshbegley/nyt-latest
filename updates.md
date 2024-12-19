@@ -1,3 +1,15 @@
+**Activists say the sentences for other defendants are too light.**\
+`By Catherine Porter and Ségolène Le Stradic`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/activists-say-the-sentences-for-other-defendants-are-too-light
+
+**Popular Arthritis Drug for Dogs May Have Severe Side Effects, F.D.A. Says**\
+`The agency recommended that the maker of Librela update its label to reflect the possibility of more serious adverse reactions.`\
+https://nytimes.com/2024/12/19/science/fda-drugs-dogs-arthritis-librela.html
+
+**As Vitor Pereira finally gets his dream Premier League move, what can Wolves expect?**\
+`Now in England with Wolves, Pereira has managed 10 different clubs across 11 managerial jobs spanning seven countries and three continents`\
+https://nytimes.com/athletic/6002300/2024/12/19/vitor-pereira-wolves-what-to-expect/
+
 **Wolves appoint Vitor Pereira as new head coach**\
 `Wolverhampton Wanderers have appointed Vitor Pereira as their new head coach.`\
 https://nytimes.com/athletic/5995235/2024/12/19/wolves-appoint-vitor-pereira/
