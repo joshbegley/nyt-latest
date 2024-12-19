@@ -1,3 +1,7 @@
+**Appeals Court Disqualifies Fani Willis From Prosecuting Georgia Trump Case**\
+`The panel overruled the trial judge, who had allowed Fani T. Willis to keep the case despite revelations of a romantic relationship that defendants said created a conflict of interest.`\
+https://nytimes.com/2024/12/19/us/fani-willis-georgia-trump-case.html
+
 **After the House Delayed a Bill to Add Judges, a Biden Veto Looms**\
 `The Senate backed a bipartisan bill to add dozens of judges, but the House held off on voting until after Election Day. Now, Donald Trump would be assured at least 22 picks.`\
 https://nytimes.com/2024/12/19/us/biden-veto-federal-judges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006455/2024/12/19/mls-general-allocation-salarycap
 **If You Can See the Tree, There Is Room for More Decorations**\
 `Minimalism is on the naughty list this Christmas as people decorate their trees with bows, garland, tinsel, ornaments and, well, anything else that will fit on a branch.`\
 https://nytimes.com/2024/12/19/style/christmas-tree-ornaments-decorating.html
-
-**This Corpse Has Had a Wild Journey. Its Next Stop? Broadway.**\
-`“Dead Outlaw,” a musical about the mummified body of a bandit, will open at the Longacre next spring, following a successful Off Broadway run.`\
-https://nytimes.com/2024/12/19/theater/dead-outlaw-broadway.html
 

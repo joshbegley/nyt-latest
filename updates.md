@@ -1,3 +1,7 @@
+**Appeals Court Disqualifies Fani Willis From Prosecuting Georgia Trump Case**\
+`The panel overruled the trial judge, who had allowed Fani T. Willis to keep the case despite revelations of a romantic relationship that defendants said created a conflict of interest.`\
+https://nytimes.com/2024/12/19/us/fani-willis-georgia-trump-case.html
+
 **After the House Delayed a Bill to Add Judges, a Biden Veto Looms**\
 `The Senate backed a bipartisan bill to add dozens of judges, but the House held off on voting until after Election Day. Now, Donald Trump would be assured at least 22 picks.`\
 https://nytimes.com/2024/12/19/us/biden-veto-federal-judges.html
