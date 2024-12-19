@@ -1,3 +1,15 @@
+**Who is Dominique Pelicot?**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/who-is-dominique-pelicot
+
+**The Face of Courage**\
+`The French rape trial is over. The verdicts have been levied. And Gisèle Pelicot’s image has become a symbol of female strength around the world.`\
+https://nytimes.com/2024/12/19/style/gisele-pelicot-rape-trial-verdict-image.html
+
+**How Liam Lawson replaced Sergio Pérez at Red Bull after a year of waiting**\
+`It's been a long journey to reach this moment for Lawson — especially the last 12 months. `\
+https://nytimes.com/athletic/6004806/2024/12/19/liam-lawson-red-bull-f1-2025-sergio-perez/
+
 **Live Updates: Dominique Pelicot Gets 20-Year Sentence in Rape Trial That Shook France**\
 `A court found Mr. Pelicot, 72, guilty after he admitted to drugging and raping his wife, Gisèle, for nearly a decade, and inviting strangers to join him. The case has made her a feminist hero.`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot
