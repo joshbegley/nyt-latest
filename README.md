@@ -1,3 +1,7 @@
+**Congestion Pricing Settlement Stalls Between New York and New Jersey**\
+`Gov. Kathy Hochul said New York offered New Jersey “generous” incentives to settle its lawsuit against the tolling plan. A judge could soon determine the program’s fate.`\
+https://nytimes.com/2024/12/18/nyregion/congestion-pricing-ny-nj-hochul.html
+
 **Blues trade P.O Joseph to Penguins for future considerations**\
 `P.O Joseph is on his way back to Pittsburgh after a brief stint in St. Louis. `\
 https://nytimes.com/athletic/6005413/2024/12/18/blues-po-joseph-trade-penguins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005046/2024/12/18/blue-jackets-dante-fabbro-injury
 **Rangers trade Kaapo Kakko to Seattle for Will Borgen, two picks**\
 `The 23-year-old played six seasons with the Rangers and had found early success on the third line this season.`\
 https://nytimes.com/athletic/6004718/2024/12/18/rangers-kaapo-kakko-trade-seattle-will-borgen-picks/
-
-**The One Solution to Grow Your Enterprise-Level Business**\
-`Intuit Enterprise Suite simplifies the complex processes of a growing business with real-time data`\
-https://nytimes.com/paidpost/intuit/the-one-solution-to-grow-your-enterprise-level-business.html
 
