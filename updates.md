@@ -1,3 +1,11 @@
+**New York to Pay $10 Million in Woman’s Death After Abuse in Group Home**\
+`The state in 2019 paid a $2 million abuse settlement. In retaliation, staff members withheld the victim’s medicine, and she died in a hospital.`\
+https://nytimes.com/2024/12/19/nyregion/ny-group-home-abuse-settlement.html
+
+**Bills' Dawkins misses part of practice after small plane crashes behind home**\
+`The East Aurora Police Department confirmed that the pilot died at the scene in Aurora, N.Y., a few miles east of Highmark Stadium.`\
+https://nytimes.com/athletic/6007279/2024/12/19/plane-crash-buffalo-near-dion-dawkins-home/
+
 **Adams’s Former Chief Adviser and Her Son Charged With Corruption**\
 `Ingrid Lewis-Martin, who resigned as Mayor Eric Adams’s chief adviser, and her son, Glenn D. Martin II, were charged with taking $100,000 in bribes from two businessmen in a quid-pro-quo scheme.`\
 https://nytimes.com/video/nyregion/100000009888025/lewis-martin-bribery-charges-new-york.html
