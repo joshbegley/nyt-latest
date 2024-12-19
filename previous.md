@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Nick Robertson turns it on against his brother in Dallas**\
+`The Leafs scored twice in 16 seconds en route to a win over the Stars despite being badly outshot.`\
+https://nytimes.com/athletic/6005675/2024/12/18/maple-leafs-report-cards-nick-robertson-dallas/
+
 **Canadiens acquire Alexandre Carrier from Predators for Justin Barron**\
 `The defenseman swap helps Montreal in the present and potentially helps Nashville in the future.`\
 https://nytimes.com/athletic/6005657/2024/12/18/canadiens-predators-alexandre-carrier-justin-barron/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005413/2024/12/18/blues-po-joseph-trade-penguins/
 **NHL trade grades: Kraken take low-risk bet on Kaapo Kakko, Rangers get little in return**\
 `Kakko never lived up to his ceiling in New York, and he is the type of reclamation project the Kraken should be targeting.`\
 https://nytimes.com/athletic/6005250/2024/12/18/nhl-trade-grades-rangers-kaapo-kakko-kraken/
-
-**Top transfer QB John Mateer commits to Oklahoma after 3 years at Wazzu**\
-`Mateer, who started all 12 games for the Cougars this season, will reunite with his former offensive coordinator Ben Arbuckle.`\
-https://nytimes.com/athletic/6005338/2024/12/18/john-mateer-oklahoma-transfer-washington-state/
 

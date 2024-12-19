@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Nick Robertson turns it on against his brother in Dallas**\
+`The Leafs scored twice in 16 seconds en route to a win over the Stars despite being badly outshot.`\
+https://nytimes.com/athletic/6005675/2024/12/18/maple-leafs-report-cards-nick-robertson-dallas/
+
 **Canadiens acquire Alexandre Carrier from Predators for Justin Barron**\
 `The defenseman swap helps Montreal in the present and potentially helps Nashville in the future.`\
 https://nytimes.com/athletic/6005657/2024/12/18/canadiens-predators-alexandre-carrier-justin-barron/
