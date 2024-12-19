@@ -1,3 +1,11 @@
+**Valtteri Bottas returns to Mercedes as F1 reserve driver for 2025 season**\
+`Bottas, 35, spent five seasons racing for Mercedes between 2017 and 2021.`\
+https://nytimes.com/athletic/6006257/2024/12/19/valtteri-bottas-f1-mercedes-2025-reserve-driver/
+
+**What the Senators need to see from Carter Yakemchuk post-World Juniors snub**\
+`Yakemchuk was among the surprise omissions from Canada's selection camp for the World Juniors, leaving many Senators fans disappointed.`\
+https://nytimes.com/athletic/6005084/2024/12/19/carter-yakemchuk-hitmen-senators/
+
 **Ratcliffe invests further £79m into Man Utd, increases INEOS stake in club**\
 `Sir Jim Ratcliffe has transferred ownership of his shares in Manchester United to INEOS, bringing the football club in line with the rest of the sports investments in his petrochemicals company’s portfolio.`\
 https://nytimes.com/athletic/6006099/2024/12/19/manchester-united-ratcliffe-investment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6003559/2024/12/19/nik-bonitto-broncos-basketball/
 **A USMNT injury crisis? Not yet, but coach Pochettino's list of hurt stars grows**\
 `The USMNT's growing injury list is not ideal, even with the next competitive games three months away`\
 https://nytimes.com/athletic/6005586/2024/12/19/a-usmnt-injury-crisis-not-yet-but-coach-pochettinos-list-of-hurt-stars-grows/
-
-**‘The Six Triple Eight’ Review: Tyler Perry Salutes the Greatest Generation**\
-`Kerry Washington leads a female postal battalion on a moving mission in this World War II drama.`\
-https://nytimes.com/2024/12/19/movies/the-six-triple-eight-review.html
-
-**‘Homestead’ Review: A Home Away From Armageddon**\
-`The moment these Doomsday preppers have been waiting for has arrived, and from within their secure compound they’re confronting unexpected complications.`\
-https://nytimes.com/2024/12/19/movies/homestead-review-armageddon-fortress.html
 
