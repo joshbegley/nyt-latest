@@ -1,3 +1,7 @@
+**American Airlines Settles Racial Discrimination Case**\
+`Three Black men had accused the airline of wrongly forcing them to get off a plane for an hour because of a complaint about body odor.`\
+https://nytimes.com/2024/12/19/business/american-airlines-discrimination-case.html
+
 **Rupert Murdoch’s Appeal to Alter Family Trust Faces Uphill Battle**\
 `Mr. Murdoch’s appeal over whether he can consolidate his son Lachlan’s power over his media empire is due just before Christmas.`\
 https://nytimes.com/2024/12/19/business/media/rupert-murdochs-appeal-to-alter-family-trust-faces-uphill-battle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/us/politics/spending-deal-johnson-speaker.html
 **Friday Briefing: 51 Men Convicted in French Rape Trial**\
 `Plus, the year in viral moments.`\
 https://nytimes.com/2024/12/19/briefing/french-rape-trial-syria-mayotte.html
-
-**Joanne Pierce Misko, Ex-Nun Who Made F.B.I. History, Dies at 83**\
-`She and Susan Malone were sworn in together in 1972 as the first female agents, only months after the bureau opened the door to women.`\
-https://nytimes.com/2024/12/19/us/joanne-pierce-misko-dead.html
 
