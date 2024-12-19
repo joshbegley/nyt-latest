@@ -1,3 +1,11 @@
+**Baby Bear**\
+`Brandon Koppy asks us to pivot.`\
+https://nytimes.com/2024/12/18/crosswords/daily-puzzle-2024-12-19.html
+
+**Move Like a Crab**\
+`Henry Josephson makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/12/18/crosswords/daily-puzzle-2024-12-20.html
+
 **Suspect in Insurance C.E.O.’s Murder Is Said to Face Federal Charges**\
 `The nature of the potential charges against Luigi Mangione was unclear, but they could allow federal prosecutors to seek the death penalty.`\
 https://nytimes.com/2024/12/18/nyregion/luigi-mangione-federal-death-penalty.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6005186/2024/12/18/andres-gimenez-blue-jays-adjustm
 **An Election Draw Decided by a Straw**\
 `In an era of invective and distrust, two California candidates turned a tie over to chance.`\
 https://nytimes.com/2024/12/18/us/politics/galt-california-election-tie.html
-
-**Why the Chicago Cubs are so intent on continuing to add more pitching **\
-`Jed Hoyer said, “It takes a lot of arms — a lot of really good arms — to get through the season.”`\
-https://nytimes.com/athletic/6005211/2024/12/18/cubs-offseason-pitching-plans/
-
-**Vanderbilt QB Diego Pavia granted preliminary injunction**\
-`Pavia filed an antitrust suit against the NCAA arguing against a rule counting junior college seasons toward an athlete’s four years.`\
-https://nytimes.com/athletic/6005162/2024/12/18/vanderbilt-qb-diego-pavia-preliminary-injunction/
 

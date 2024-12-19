@@ -1,3 +1,11 @@
+**Baby Bear**\
+`Brandon Koppy asks us to pivot.`\
+https://nytimes.com/2024/12/18/crosswords/daily-puzzle-2024-12-19.html
+
+**Move Like a Crab**\
+`Henry Josephson makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/12/18/crosswords/daily-puzzle-2024-12-20.html
+
 **Suspect in Insurance C.E.O.’s Murder Is Said to Face Federal Charges**\
 `The nature of the potential charges against Luigi Mangione was unclear, but they could allow federal prosecutors to seek the death penalty.`\
 https://nytimes.com/2024/12/18/nyregion/luigi-mangione-federal-death-penalty.html
