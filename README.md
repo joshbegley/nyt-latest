@@ -1,3 +1,7 @@
+**The Pelicots’ children provided a dramatic moment in the trial.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/the-pelicots-children-provided-a-dramatic-moment-in-the-trial
+
 **Explained: Crystal Palace, Eagle Football and the groups lining up investment bids**\
 `Breaking down which groups are vying to invest in Palace or Eagle and how it could affect the club`\
 https://nytimes.com/athletic/6005195/2024/12/19/crystal-palace-takeover-john-textor-sportsbank/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/business/media/media-newsletters-executives.html
 **Valtteri Bottas returns to Mercedes as F1 reserve driver for 2025 season**\
 `Bottas, 35, spent five seasons racing for Mercedes between 2017 and 2021.`\
 https://nytimes.com/athletic/6006257/2024/12/19/valtteri-bottas-f1-mercedes-2025-reserve-driver/
-
-**What the Senators need to see from Carter Yakemchuk post-World Juniors snub**\
-`Yakemchuk was among the surprise omissions from Canada's selection camp for the World Juniors, leaving many Senators fans disappointed.`\
-https://nytimes.com/athletic/6005084/2024/12/19/world-juniors-senators-carter-yakemchuk/
 
