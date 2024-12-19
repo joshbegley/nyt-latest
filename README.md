@@ -1,3 +1,7 @@
+**Elon Musk Flexes His Political Strength as Government Shutdown Looms**\
+`The world’s richest man led the charge to kill a bipartisan spending deal, in part by promoting false and misleading claims about it.`\
+https://nytimes.com/2024/12/19/us/politics/elon-musk-politics.html
+
 **Man pleads guilty to stalking UConn's Paige Bueckers**\
 `Robert Cole Parmalee received a one-year suspended sentence and three years' probation in Rockville Superior Court (Conn.) on Wednesday.`\
 https://nytimes.com/athletic/6006585/2024/12/19/paige-bueckers-stalker-pleads-guilty-uconn/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/world/europe/gisele-pelicot-rape-trial.html
 **F.A.A. Bans Drone Flights Near ‘Critical Infrastructure’ in New Jersey**\
 `The ban runs through Jan. 17 and precludes most drone flights in airspace near 22 communities, including the cities of Camden, Elizabeth and Jersey City.`\
 https://nytimes.com/2024/12/19/nyregion/faa-bans-drone-flights-new-jersey.html
-
-**A Famed Iowa Pollster’s Career Ends With a ‘Spectacular Miss’ and a Trump Lawsuit**\
-`Known for her “gold standard” polls of Iowans, J. Ann Selzer is facing retribution from Donald Trump after her final 2024 survey showed a surprising, and ultimately wrong, winner.`\
-https://nytimes.com/2024/12/19/us/politics/ann-selzer-iowa-trump.html
 
