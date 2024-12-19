@@ -1,3 +1,7 @@
+**‘Laid’ Is Acerbic, Raunchy Fun**\
+`Starring Stephanie Hsu and Zosia Mamet, the series tells a darkly comic story about a woman whose past sexual partners start dying. And keep dying.`\
+https://nytimes.com/2024/12/19/arts/television/laid-peacock-stephanie-hsu.html
+
 **How the Climate Crisis Became an Insurance Crisis**\
 `Even in formerly low-risk areas, home insurers are raising premiums and ending coverage. The upheaval could push down home values and reverberate through the economy.`\
 https://nytimes.com/2024/12/19/climate/how-the-climate-crisis-became-an-insurance-crisis.html
