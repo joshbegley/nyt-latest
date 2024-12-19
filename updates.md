@@ -1,3 +1,23 @@
+**2025 Pro Bowl Games adding trivia to traditional slate of skill tests**\
+`The skills challenges will occur at separate locations in Orlando, Fla., on Jan. 31 and Feb. 2.`\
+https://nytimes.com/athletic/6006935/2024/12/19/2025-pro-bowl-games-competition/
+
+**Five-star Oregon WR signee requests release, wants to play at Florida: Agent**\
+`Wilson's agent said the receiver wants to play at Florida, which is two hours from his Tampa home and near an ill family member.`\
+https://nytimes.com/athletic/6007010/2024/12/19/dallas-wilson-oregon-florida-recruiting/
+
+**Paul Pogba's brother given suspended prison sentence over extortion plot**\
+`The brother of Paul Pogba has been found guilty of attempting to extort the former France and Manchester United midfielder.`\
+https://nytimes.com/athletic/5949496/2024/12/19/pogba-brother-trial-extortion/
+
+**NFL Week 16 fantasy football, betting cheat sheet: Niners RB Isaac Guerendo ailing, may sit Sunday**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/6001045/2024/12/19/nfl-week-16-fantasy-football-betting-cheat-sheet/
+
+**Saudi Arabia to play in 2025 and 2027 Gold Cup as guest participant**\
+`Saudi Arabia will play in the 2025 and 2027 editions of the Gold Cup as one of 16 teams participating in the tournaments organised by CONCACAF.`\
+https://nytimes.com/athletic/6006943/2024/12/19/saudi-arabia-gold-cup-guest/
+
 **Giséle Pelicot’s Ex-Husband Found Guilty in Mass Rape Trial**\
 `A French court found the ex-husband of Ms. Pelicot, Dominique Pelicot, guilty and sentenced him to 20 years in jail. Fifty other men were also convicted in the mass rape trial.`\
 https://nytimes.com/video/world/europe/100000009887001/gisle-pelicot-rape-trial-case.html
