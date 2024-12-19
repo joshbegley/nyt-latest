@@ -1,3 +1,15 @@
+**Scoop City: Jets drama, how flexing TNF ruined plans & defensive improvements**\
+`A brief look at how the NFL ruined plans by flexing tonight's TNF game, the ongoing dysfunction in New York and 9 improved defensive players`\
+https://nytimes.com/athletic/6007048/2024/12/19/jets-drama-nfl-most-improved-defenders-scoop-city/
+
+**Kennedy Returns to Capitol Hill With New ‘Make America Healthy Again’ Caucus in Senate**\
+`Robert F. Kennedy Jr., the president-elect’s pick for health secretary, has spent much of the week meeting with friendly Senate Republicans, including some who appear to be trying to institutionalize his influence in Congress.`\
+https://nytimes.com/2024/12/19/us/politics/rfk-jr-senate-republicans.html
+
+**With Guilty Verdicts, Victim’s Rape Ordeal in France Becomes a Message of Hope**\
+`Dozens of men who abused Gisèle Pelicot were convicted, including the man who invited them to do so: her husband of 50 years. She wanted the public trial to show rape victims they were not alone.`\
+https://nytimes.com/2024/12/19/world/europe/pelicot-rape-trial-guilty-verdict.html
+
 **2025 Pro Bowl Games adding trivia to traditional slate of skill tests**\
 `The skills challenges will occur at separate locations in Orlando, Fla., on Jan. 31 and Feb. 2.`\
 https://nytimes.com/athletic/6006935/2024/12/19/2025-pro-bowl-games-competition/
