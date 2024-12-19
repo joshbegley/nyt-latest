@@ -1,3 +1,15 @@
+**51 Men Guilty in Rape Trial That Horrified France**\
+`Dominique Pelicot, who admitted to drugging and raping his wife for almost a decade and to inviting dozens of strangers to join him, was convicted on Thursday of aggravated rape and other charges and was sentenced to the maximum 20 years in prison.`\
+https://nytimes.com/video/world/europe/100000009883895/51-men-guilty-in-rape-trial-that-horrified-france.html
+
+**Neil Cavuto, Longtime Fox News Host, Signs Off the Network**\
+`“Your World with Neil Cavuto” was shown in the 4-5 p.m. slot for 28 years, since the network began in 1996.`\
+https://nytimes.com/2024/12/19/arts/television/cavuto-fox-news.html
+
+**The Timeless Craft of the Courtroom Sketch Artist**\
+`In courtrooms where cameras are banned, these artists provide a curious public a glimpse behind closed doors. Here’s how they do it.`\
+https://nytimes.com/2024/12/19/us/william-hennessy-jr-courtroom-sketch-artist.html
+
 **Dewsbury-Hall may leave Chelsea in January - Enzo Maresca**\
 `Enzo Maresca admits that Kiernan Dewsbury-Hall is one of the Chelsea players that could leave the club during the January transfer window.`\
 https://nytimes.com/athletic/6008003/2024/12/19/kiernan-dewsbury-hall-chelsea-january-transfer/
