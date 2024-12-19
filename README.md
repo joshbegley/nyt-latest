@@ -1,3 +1,11 @@
+**Saints' Alvin Kamara unlikely to play, Spencer Rattler to start vs. Packers**\
+`Kamara left the Saints' Week 15 loss to Washington in the second half with a groin injury. The Saints are 0-3 when Rattler has started.`\
+https://nytimes.com/athletic/6007579/2024/12/19/alvin-kamara-spencer-rattler-saints-packers/
+
+**Spending Deal Debacle Threatens Johnson’s Tenuous Hold on His Job**\
+`A Republican backlash to the speaker’s plan to temporarily fund the government has sparked new talk of ousting him, and highlighted the challenges he will face if he manages to keep his job.`\
+https://nytimes.com/2024/12/19/us/politics/spending-deal-johnson-speaker.html
+
 **Friday Briefing: 51 Men Convicted in French Rape Trial**\
 `Plus, the year in viral moments.`\
 https://nytimes.com/2024/12/19/briefing/french-rape-trial-syria-mayotte.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/nyregion/ny-group-home-abuse-settlement.html
 **Bills' Dawkins misses part of practice after small plane crashes behind home**\
 `The East Aurora Police Department confirmed that the pilot died at the scene in Aurora, N.Y., a few miles east of Highmark Stadium.`\
 https://nytimes.com/athletic/6007279/2024/12/19/plane-crash-buffalo-near-dion-dawkins-home/
-
-**Adams’s Former Chief Adviser and Her Son Charged With Corruption**\
-`Ingrid Lewis-Martin, who resigned as Mayor Eric Adams’s chief adviser, and her son, Glenn D. Martin II, were charged with taking $100,000 in bribes from two businessmen in a quid-pro-quo scheme.`\
-https://nytimes.com/video/nyregion/100000009888025/lewis-martin-bribery-charges-new-york.html
-
-**Until Saturday: It's almost time for the first round of the 12-team CFP**\
-`Welcome to Until Saturday, the five-star college football newsletter: The 12-team Playoff is almost here.`\
-https://nytimes.com/athletic/6006463/2024/12/19/college-football-playoff-first-round-games-until-saturday/
 
