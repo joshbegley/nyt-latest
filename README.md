@@ -1,3 +1,7 @@
+**What does switch to Dorian Thompson-Robinson mean for Browns' future at QB?**\
+`Plus, can Jerry Jeudy keep up his recent production with a new QB under center? And what's next for Jameis Winston? `\
+https://nytimes.com/athletic/6005280/2024/12/19/browns-quarterbacks-dorian-thompson-robinson/
+
 **The Pelicots’ children provided a dramatic moment in the trial.**\
 `By Catherine Porter`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/the-pelicots-children-provided-a-dramatic-moment-in-the-trial
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5749745/2024/12/19/hamza-choudhury-bangladesh-leice
 **Publishers Battle for the C-Suite**\
 `Numerous media outlets, looking for new lucrative lines of business, are pursuing newsletters and events aimed specifically at top executives.`\
 https://nytimes.com/2024/12/19/business/media/media-newsletters-executives.html
-
-**Valtteri Bottas returns to Mercedes as F1 reserve driver for 2025 season**\
-`Bottas, 35, spent five seasons racing for Mercedes between 2017 and 2021.`\
-https://nytimes.com/athletic/6006257/2024/12/19/valtteri-bottas-f1-mercedes-2025-reserve-driver/
 
