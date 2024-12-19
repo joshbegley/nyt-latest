@@ -1,3 +1,7 @@
+**Dewsbury-Hall may leave Chelsea in January - Enzo Maresca**\
+`Enzo Maresca admits that Kiernan Dewsbury-Hall is one of the Chelsea players that could leave the club during the January transfer window.`\
+https://nytimes.com/athletic/6008003/2024/12/19/kiernan-dewsbury-hall-chelsea-january-transfer/
+
 **Philadelphia City Council Says Yes to New 76ers Arena Next to Chinatown**\
 `The mayor and labor unions touted the economic promise of the $1.3 billion project. Opponents said the arena would decimate the city’s storied Chinatown.`\
 https://nytimes.com/2024/12/19/us/philadelphia-76ers-arena-chinatown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/us/oysters-norovirus-los-angeles.html
 **Mayotte Residents Struggle With Cyclone Chido Aftermath**\
 `Residents of Mayotte began relief efforts after Cyclone Chido devastated the French territory. Emmanuel Macron, President of France, surveyed the damage and received a mixed welcome.`\
 https://nytimes.com/video/weather/100000009888690/french-territory-mayotte-cyclone-chido.html
-
-**More Than Twice as Many U.S. Troops Are in Syria Than Previously Disclosed**\
-`A Pentagon spokesman said the increase was unrelated to the fall of President Bashar al-Assad to rebel forces in early December.`\
-https://nytimes.com/2024/12/19/us/politics/us-troops-syria.html
 
