@@ -1,3 +1,15 @@
+**Man pleads guilty to stalking UConn's Paige Bueckers**\
+`Robert Cole Parmalee received a one-year suspended sentence and three years' probation in Rockville Superior Court (Conn.) on Wednesday.`\
+https://nytimes.com/athletic/6006585/2024/12/19/paige-bueckers-stalker-pleads-guilty-uconn/
+
+**Zach LaVine is reinventing himself on the fly — and quietly restoring his trade value**\
+`A championship-caliber team like the Nuggets starting to circle is a testament to how LaVine has willed himself into a reclamation project.`\
+https://nytimes.com/athletic/6005819/2024/12/19/zach-lavine-bulls-nuggets-trade-value/
+
+**Productivity Without Limits: How Top Companies Are Building a New Digital Workforce with AI Agents**\
+`The agentic AI revolution is here, and one thing is clear–if you’re not leading, you’re trailing.`\
+https://nytimes.com/paidpost/salesforce/productivity-without-limits-how-top-companies-are-building-a-new-digital-workforce-with-ai-agents.html
+
 **Could This 20-Year-Old Be One of the Democrats’ Bro Whisperers?**\
 `Dean Withers argues online with right-wing stars like Charlie Kirk and Ben Shapiro. His goal? To reach their young, male followers.`\
 https://nytimes.com/2024/12/19/style/dean-withers-tiktok.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/19/nyregion/faa-bans-drone-flights-new-jersey.html
 **A Famed Iowa Pollster’s Career Ends With a ‘Spectacular Miss’ and a Trump Lawsuit**\
 `Known for her “gold standard” polls of Iowans, J. Ann Selzer is facing retribution from Donald Trump after her final 2024 survey showed a surprising, and ultimately wrong, winner.`\
 https://nytimes.com/2024/12/19/us/politics/ann-selzer-iowa-trump.html
-
-**A Lottery Drawing Included Four Consecutive Numbers. What Are the Odds?**\
-`A Mega Millions drawing turned up 66, 67, 68 and 69. Is that unusual?`\
-https://nytimes.com/2024/12/19/us/lottery-mega-millions-four-numbers.html
-
-**Judge John Hodgman on Invisible-Ink Graffiti**\
-`Does it count as vandalism? What if it’s funny?`\
-https://nytimes.com/2024/12/19/magazine/judge-john-hodgman-on-invisible-ink-graffiti.html
-
-**Penguins Today: Sidney Crosby is alive and well**\
-`Crosby is heating up as the Penguins make their annual trip to Nashville on Thursday. `\
-https://nytimes.com/athletic/6006427/2024/12/19/penguins-today-sidney-crosby/
 

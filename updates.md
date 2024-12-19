@@ -1,3 +1,15 @@
+**Man pleads guilty to stalking UConn's Paige Bueckers**\
+`Robert Cole Parmalee received a one-year suspended sentence and three years' probation in Rockville Superior Court (Conn.) on Wednesday.`\
+https://nytimes.com/athletic/6006585/2024/12/19/paige-bueckers-stalker-pleads-guilty-uconn/
+
+**Zach LaVine is reinventing himself on the fly — and quietly restoring his trade value**\
+`A championship-caliber team like the Nuggets starting to circle is a testament to how LaVine has willed himself into a reclamation project.`\
+https://nytimes.com/athletic/6005819/2024/12/19/zach-lavine-bulls-nuggets-trade-value/
+
+**Productivity Without Limits: How Top Companies Are Building a New Digital Workforce with AI Agents**\
+`The agentic AI revolution is here, and one thing is clear–if you’re not leading, you’re trailing.`\
+https://nytimes.com/paidpost/salesforce/productivity-without-limits-how-top-companies-are-building-a-new-digital-workforce-with-ai-agents.html
+
 **F.A.A. Bans Drone Flights Near ‘Critical Infrastructure’ in New Jersey**\
 `The ban runs through Jan. 17 and precludes most drone flights in airspace near 22 communities, including the cities of Camden, Elizabeth and Jersey City.`\
 https://nytimes.com/2024/12/19/nyregion/faa-bans-drone-flights-new-jersey.html
