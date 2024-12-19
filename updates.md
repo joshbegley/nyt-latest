@@ -1,3 +1,11 @@
+**Dewsbury-Hall may leave Chelsea in January - Enzo Maresca**\
+`Enzo Maresca admits that Kiernan Dewsbury-Hall is one of the Chelsea players that could leave the club during the January transfer window.`\
+https://nytimes.com/athletic/6008003/2024/12/19/kiernan-dewsbury-hall-chelsea-january-transfer/
+
+**Philadelphia City Council Says Yes to New 76ers Arena Next to Chinatown**\
+`The mayor and labor unions touted the economic promise of the $1.3 billion project. Opponents said the arena would decimate the city’s storied Chinatown.`\
+https://nytimes.com/2024/12/19/us/philadelphia-76ers-arena-chinatown.html
+
 **Rick Kaufmann, Impresario of Art Furniture, Dies at 77**\
 `Was it art or was it furniture? No one was quite sure what to make of the New York movement that an idiosyncratic gallerist led in the 1970s and ’80s.`\
 https://nytimes.com/2024/12/19/arts/design/rick-kaufmann-dead.html
