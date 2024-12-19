@@ -1,3 +1,11 @@
+**Why the Specter of Trump Hangs Over the Fed, Congress and the Markets**\
+`The President-elect takes office in a month, but his influence on policy is already being felt by investors and across Washington.`\
+https://nytimes.com/2024/12/19/business/dealbook/trump-fed-congress-markets.html
+
+**Publishers Battle for the C-Suite**\
+`Numerous media outlets, looking for new lucrative lines of business, are pursuing newsletters and events aimed specifically at top executives.`\
+https://nytimes.com/2024/12/19/business/media/media-newsletters-executives.html
+
 **Valtteri Bottas returns to Mercedes as F1 reserve driver for 2025 season**\
 `Bottas, 35, spent five seasons racing for Mercedes between 2017 and 2021.`\
 https://nytimes.com/athletic/6006257/2024/12/19/valtteri-bottas-f1-mercedes-2025-reserve-driver/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/world/europe/pelicot-rape-trial-convictions.html
 **Is there anything worth salvaging from this year's Raiders roster?**\
 `Despite the Raiders' 2-12 record, they have intriguing players worth keeping around at every position. We break down their roster.`\
 https://nytimes.com/athletic/6004725/2024/12/19/las-vegas-raiders-roster-2025/
-
-**Nik Bonitto's big splash plays for Broncos rooted in basketball background**\
-`The Broncos linebacker, a candidate for NFL Defensive Player of the Year, once competed against future NBA players like Deandre Ayton.`\
-https://nytimes.com/athletic/6003559/2024/12/19/nik-bonitto-broncos-basketball/
-
-**A USMNT injury crisis? Not yet, but coach Pochettino's list of hurt stars grows**\
-`The USMNT's growing injury list is not ideal, even with the next competitive games three months away`\
-https://nytimes.com/athletic/6005586/2024/12/19/a-usmnt-injury-crisis-not-yet-but-coach-pochettinos-list-of-hurt-stars-grows/
 
