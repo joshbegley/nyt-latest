@@ -1,3 +1,15 @@
+**Stephen Bradley: 'They put a gun to my head and stabbed me three times. That's all I remember'**\
+`Bradley nearly died as a teenager while on the books at Arsenal. He returns to London in charge of Shamrock Rovers to face Chelsea`\
+https://nytimes.com/athletic/6000865/2024/12/19/stephen-bradley-arsenal-stabbing-shamrock-chelsea-conference-league/
+
+**Why Nottingham Forest's Premier League success isn't a fluke: Solid defence, set pieces, quick shots**\
+`The Nuno effect according to the numbers - how he took them from being relegation battlers to fourth place`\
+https://nytimes.com/athletic/6003247/2024/12/19/why-nottingham-forests-premier-league-success-isnt-a-fluke/
+
+**Barcelona are stumbling after a flying start - have teams worked them out?**\
+`From winning 11 of their opening 12 games to just one victory from six in La Liga, it could be time to protect their young stars`\
+https://nytimes.com/athletic/6003344/2024/12/19/barcelona-high-line-flick-tactics-analysis/
+
 **Amad's speed of thought makes him the perfect weapon for Ruben Amorim**\
 `The Ivorian's match-winning Manchester derby display was a result of his ability to spot things before they've happened – his key strength`\
 https://nytimes.com/athletic/5998341/2024/12/19/amad-manchester-united-analysis-ruben-amorim/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6001874/2024/12/19/tottenham-manchester-united-prev
 **G.M. Led in China for Years. Here’s How It Ended Up 16th in Sales.**\
 `General Motors has gone from market leader to also-ran in the world’s largest car market, stymied by its own missteps and Chinese policies that favored its local rivals.`\
 https://nytimes.com/2024/12/19/business/gm-china.html
-
-**Starbucks Has a Pumpkin Spice Latte Problem in China**\
-`For years, Starbucks was the dominant coffee chain in China. Now rivals offering local flavors and cheaper prices are crushing the company’s bottom line in its second-largest market.`\
-https://nytimes.com/2024/12/19/business/starbucks-china.html
-
-**Quote of the Day: A Top van Gogh Is Out of View. The Hunt Is On.**\
-`Quotation of the Day for Thursday, December 19, 2024.`\
-https://nytimes.com/2024/12/18/pageoneplus/quote-of-the-day-a-top-van-gogh-is-out-of-view-the-hunt-is-on.html
-
-**New York City Approves New Contract for Specialized High School Test**\
-`The vote by the Panel for Educational Policy came after a contentious five-hour meeting. The exam for eight highly competitive high schools will now be computerized.`\
-https://nytimes.com/2024/12/18/nyregion/specialized-high-school-test-new-york.html
 

@@ -1,3 +1,15 @@
+**Stephen Bradley: 'They put a gun to my head and stabbed me three times. That's all I remember'**\
+`Bradley nearly died as a teenager while on the books at Arsenal. He returns to London in charge of Shamrock Rovers to face Chelsea`\
+https://nytimes.com/athletic/6000865/2024/12/19/stephen-bradley-arsenal-stabbing-shamrock-chelsea-conference-league/
+
+**Why Nottingham Forest's Premier League success isn't a fluke: Solid defence, set pieces, quick shots**\
+`The Nuno effect according to the numbers - how he took them from being relegation battlers to fourth place`\
+https://nytimes.com/athletic/6003247/2024/12/19/why-nottingham-forests-premier-league-success-isnt-a-fluke/
+
+**Barcelona are stumbling after a flying start - have teams worked them out?**\
+`From winning 11 of their opening 12 games to just one victory from six in La Liga, it could be time to protect their young stars`\
+https://nytimes.com/athletic/6003344/2024/12/19/barcelona-high-line-flick-tactics-analysis/
+
 **Amad's speed of thought makes him the perfect weapon for Ruben Amorim**\
 `The Ivorian's match-winning Manchester derby display was a result of his ability to spot things before they've happened – his key strength`\
 https://nytimes.com/athletic/5998341/2024/12/19/amad-manchester-united-analysis-ruben-amorim/
