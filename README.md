@@ -1,3 +1,11 @@
+**Emery says he wants to play Torres and Mings in Villa's starting XI – how does he do that?**\
+`Torres and Mings are both left-footed but very different centre-backs – the plan is to strengthen Villa's principles, not disturb them`\
+https://nytimes.com/athletic/5993710/2024/12/19/unai-emery-pau-torres-tyrone-mings-aston-villa/
+
+**Fantasy Premier League: With no obvious choice, how do you pick a captain for Gameweek 17?**\
+`Is Bruno Fernandes the best captaincy differential this week? Here are your best FPL options`\
+https://nytimes.com/athletic/6001527/2024/12/19/fantasy-premier-league-picking-captain-gameweek-17/
+
 **Manchester United, dressing-room leaks and why it's not a new problem**\
 `Ruben Amorim is not the first manager to discover that the roof is not the only thing that leaks at Old Trafford`\
 https://nytimes.com/athletic/5986437/2024/12/19/manchester-united-dressing-room-leaks/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/briefing/syria-russia-markets.html
 **Europe Has a Leadership Vacuum. How Will it Handle Trump?**\
 `With Germany and France both in political turmoil, the new administration of Donald J. Trump will begin at a time of instability for the continent.`\
 https://nytimes.com/2024/12/19/world/europe/europe-has-a-leadership-vacuum-how-will-it-handle-trump.html
-
-**The Pelicot Trial: A Timeline**\
-`The trial of Dominique Pelicot for raping and drugging his wife, Gisèle, is about to reach a verdict. Here’s how the events unfolded.`\
-https://nytimes.com/2024/12/19/world/europe/dominique-pelicot-france-rape-trial.html
-
-**Spurs vs Man United preview: Storylines, odds, prediction for League Cup quarterfinal**\
-`Tottenham and Manchester United meet in a League Cup quarterfinal that is tantalising given the recent play of both teams.`\
-https://nytimes.com/athletic/6001874/2024/12/19/tottenham-manchester-united-preview-odds-prediction-league-cup/
 
