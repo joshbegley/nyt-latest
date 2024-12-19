@@ -1,3 +1,7 @@
+**Brock Faber injury is latest gut punch for reeling Wild in 6-1 loss to Panthers**\
+`Considering the team's injuries, the fact it took Minnesota until Game 32 to have its first back-to-back regulation losses is remarkable.`\
+https://nytimes.com/athletic/6005890/2024/12/19/brock-faber-injury-wild-lose-to-panthers/
+
 **They Thought It Was an Old Baseball. It Was a Mastodon Tooth.**\
 `Remarkably well preserved ice age remains like those discovered recently in a yard near Scotchtown, N.Y., are rare — but not that rare for that part of the state.`\
 https://nytimes.com/2024/12/19/nyregion/mastodon-teeth-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005508/2024/12/19/liverpool-carabao-cup-wataru-end
 **Nketiah is showing signs of progress at Crystal Palace - that is reason to be hopeful**\
 `Eddie Nketiah scored for Crystal Palace in their loss against Arsenal on Wednesday night`\
 https://nytimes.com/athletic/6001100/2024/12/19/eddie-nketiah-crystal-palace-analysis/
-
-**Word of the Day: combustion**\
-`This word has appeared in 97 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/19/learning/word-of-the-day-combustion.html
 
