@@ -1,40 +1,41 @@
-**Tierney was a driving force in the early Arteta era but has been a victim of injuries and identity**\
-`Arsenal have decided not to extend the full-back's contract, a reflection of how his status has changed in recent years`\
-https://nytimes.com/athletic/6003971/2024/12/19/kieran-tierney-arsenal-contract-arteta/
+**How an NHL broadcaster prepares for a game, from name pronunciations to locker-room stories**\
+`In his 36th NHL season, Blues broadcaster John Kelly still takes pride in passing along information that brings fans closer to the team.`\
+https://nytimes.com/athletic/5990291/2024/12/19/blues-john-kelly-broadcaster/
 
-**‘The Daily’ podcast covers Gisèle Pelicot’s rise to feminist hero.**\
-`By The Daily Team`\
-https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/the-daily-podcast-covers-gisele-pelicots-rise-to-feminist-hero
+**Our experts' College Football Playoff bracket predictions: Who will win it all?**\
+`Six of the 12 College Football Playoff teams received at least one national title vote from 30 writers and editors who filled out brackets.`\
+https://nytimes.com/athletic/6003358/2024/12/19/college-football-playoff-bracket-predictions/
 
-**The transfer portal and Playoff calendar is a 'total mess.' CFB coaches have 5 solutions**\
-`College football coaches came up with five solutions to fix the sport's "broken" calendar.`\
-https://nytimes.com/athletic/6004927/2024/12/19/college-football-transfer-portal-broken-calendar-solutions/
+**William Nylander on excelling under Craig Berube and his next lofty goal for the Leafs**\
+`Nylander is quick to rave about the Leafs coach and his playing style that has him scoring more than ever.
+`\
+https://nytimes.com/athletic/6005513/2024/12/19/maple-leafs-william-nylander-craig-berube/
 
-**On a Flight With Gaza’s Rare Evacuees**\
-`The war in Gaza is one of the few conflicts most civilians can’t escape.`\
-https://nytimes.com/video/world/middleeast/100000009872530/on-a-flight-with-gazas-rare-evacuees.html
+**Why Nolan Arenado declined a trade to the Astros and what it means for the Cardinals**\
+`Arenado was never fully comfortable with being dealt to the Astros and, sources say, does not want to rush into a trade decision.`\
+https://nytimes.com/athletic/6005277/2024/12/19/nolan-arenado-blocked-cardinals-astros-trade-analysis/
 
-**Israel Launches Airstrikes Against Houthis in Yemen**\
-`The Houthis have been attacking ships in the Red Sea for more than a year in what they have described as a campaign in solidarity with Palestinians in Gaza.`\
-https://nytimes.com/2024/12/19/world/middleeast/yemen-israel-houthis.html
+**51 Men Found Guilty in France Rape Trial, and a U.S. Shutdown Looms**\
+`Plus, man vs. hornet.`\
+https://nytimes.com/2024/12/19/podcasts/france-rape-trial-us-shutdown.html
 
-**Everton's Friedkin Group takeover explained: How rich are they? How will the club change?**\
-`Here's everything you need to know about the Everton takeover - and what The Friedkin Group will bring to the club`\
-https://nytimes.com/athletic/5974316/2024/12/19/evertons-friedkin-group-takeover-explained/
+**Crypto’s Big Bet Is Paying Off**\
+`How the cryptocurrency industry grew to where it is now, and how Donald Trump gave it a boost.`\
+https://nytimes.com/2024/12/19/podcasts/the-daily/crypto-bitcoin-trump.html
 
-**Joe Burrow learning his voice in Bengals' season gone sideways: 'I expect greatness'**\
-`The quarterback admits he could have handled his emotions better after video of him venting at coach Zac Taylor on Sunday went viral.`\
-https://nytimes.com/athletic/6004998/2024/12/19/joe-burrow-bengals-upset-sideline/
+**Blackhawks power rankings: Toews' upswing, CHSN's failure**\
+`Welcome to the definitive ranking of all things Blackhawks.`\
+https://nytimes.com/athletic/6003825/2024/12/19/blackhawks-power-rankings-chsn/
 
-**Can Ryan Day put Michigan behind him? No one faces Playoff pressure like Ohio State**\
-`Ohio State's national championship goals are still within reach in the 12-team College Football Playoff. But the Michigan shadow looms.`\
-https://nytimes.com/athletic/6004558/2024/12/19/ryan-day-ohio-state-tennessee-michigan/
+**Jets owner shot down a trade for Jerry Jeudy over his 'Madden' rating**\
+`To some, the reference to the video game ratings is a sign of Johnson allowing his teenage sons, Brick and Jack, to influence the franchise.`\
+https://nytimes.com/athletic/6005485/2024/12/19/jets-jerry-jeudy-trade-madden-woody-johnson/
 
-**Panthers' career special teams guy could get his shot on defense: 'Fantastic opportunity'**\
-`"It could be a fantastic opportunity,” Panthers coach Dave Canales said of Rhattigan's role Sunday vs. the Cardinals.`\
-https://nytimes.com/athletic/6004999/2024/12/19/panthers-jon-rhattigan-defense-special-teams/
+**Wordle Review No. 1,280**\
+`Scroll down for hints and conversation about the puzzle for Friday, Dec. 20, 2024.`\
+https://nytimes.com/2024/12/19/crosswords/wordle-review-1280.html
 
-**Why the Falcons pulled the plug on Kirk Cousins and what they expect from Michael Penix Jr.**\
-`Cousins called Penix on Tuesday night to offer his support. The rookie QB admitted he'll be nervous running out of the tunnel on Sunday.`\
-https://nytimes.com/athletic/6005305/2024/12/19/falcons-qb-change-kirk-cousins-michael-penix-jr/
+**The Connections Companion No. 558**\
+`Scroll down for hints and conversation about the puzzle for Friday, Dec. 20, 2024.`\
+https://nytimes.com/2024/12/19/crosswords/connections-companion-558.html
 
