@@ -1,3 +1,7 @@
+**The Pulse: He nixed a trade due to Madden ratings**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6005462/2024/12/19/jets-woody-johnson-aaron-rodgers-madden-the-pulse/
+
 **Supporters of Gisèle Pelicot came from far and wide.**\
 `By Ségolène Le Stradic`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/supporters-of-gisele-pelicot-came-from-far-and-wide
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6004288/2024/12/19/vikings-coach-kevin-oconnell-bil
 **Where the Colts' 10 highest-paid players have let them down this season**\
 `Too many of the Colts' best players have failed either in critical areas or at critical times.`\
 https://nytimes.com/athletic/6004786/2024/12/19/colts-highest-paid-michael-pittman-jonathan-taylor/
-
-**Penguins fan survey results: Your views on Dubas, Jagr and more**\
-`We asked, you answered: Here are the results from our in-season Penguins fan poll.`\
-https://nytimes.com/athletic/6001746/2024/12/19/penguins-fan-survey-results-rebuild/
 
