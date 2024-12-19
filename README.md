@@ -1,3 +1,7 @@
+**Adams’s Former Chief Adviser and Her Son Charged With Corruption**\
+`Ingrid Lewis-Martin, who resigned as Mayor Eric Adams’s chief adviser, and her son, Glenn D. Martin II, were charged with taking $100,000 in bribes from two businessmen in a quid-pro-quo scheme.`\
+https://nytimes.com/video/nyregion/100000009888025/lewis-martin-bribery-charges-new-york.html
+
 **Until Saturday: It's almost time for the first round of the 12-team CFP**\
 `Welcome to Until Saturday, the five-star college football newsletter: The 12-team Playoff is almost here.`\
 https://nytimes.com/athletic/6006463/2024/12/19/college-football-playoff-first-round-games-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/arts/television/laid-peacock-stephanie-hsu.html
 **How the Climate Crisis Became an Insurance Crisis**\
 `Even in formerly low-risk areas, home insurers are raising premiums and ending coverage. The upheaval could push down home values and reverberate through the economy.`\
 https://nytimes.com/2024/12/19/climate/how-the-climate-crisis-became-an-insurance-crisis.html
-
-**Former Uvalde Schools Police Chief Fails in Bid to Avoid Prosecution**\
-`Investigations have singled out Pete Arredondo, the former chief, for the delayed police response to a 2022 school shooting in Texas. A judge denied his request to quash the charges against him.`\
-https://nytimes.com/2024/12/19/us/uvalde-shooting-pete-arredondo.html
 
