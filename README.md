@@ -1,3 +1,11 @@
+**Scoop City: Jets drama, how flexing TNF ruined plans & defensive improvements**\
+`A brief look at how the NFL ruined plans by flexing tonight's TNF game, the ongoing dysfunction in New York and 9 improved defensive players`\
+https://nytimes.com/athletic/6007048/2024/12/19/jets-drama-nfl-most-improved-defenders-scoop-city/
+
+**Kennedy Returns to Capitol Hill With New ‘Make America Healthy Again’ Caucus in Senate,**\
+`Robert F. Kennedy Jr., the president-elect’s pick for health secretary, has spent much of the week meeting with friendly Senate Republicans, including some who appear to be trying to institutionalize his influence in Congress.`\
+https://nytimes.com/2024/12/19/us/politics/rfk-jr-senate-republicans.html
+
 **2025 Pro Bowl Games adding trivia to traditional slate of skill tests**\
 `The skills challenges will occur at separate locations in Orlando, Fla., on Jan. 31 and Feb. 2.`\
 https://nytimes.com/athletic/6006935/2024/12/19/2025-pro-bowl-games-competition/
@@ -20,7 +28,7 @@ https://nytimes.com/athletic/6006943/2024/12/19/saudi-arabia-gold-cup-guest/
 
 **With Guilty Verdicts, Victim’s Rape Ordeal in France Becomes a Message of Hope**\
 `Dozens of men who abused Gisèle Pelicot were convicted, including the man who invited them to do so: her husband of 50 years. She wanted the public trial to show rape victims they were not alone.`\
-https://nytimes.com/2024/12/19/pelicot-rape-trial-guilty-verdict.html
+https://nytimes.com/2024/12/19/world/europe/pelicot-rape-trial-guilty-verdict.html
 
 **Maps: See Israel’s Moves in Syria Since al-Assad Was Toppled**\
 `Israeli fighter jets have launched hundreds of airstrikes, while soldiers have seized a buffer zone and captured military posts in territory formerly under Syrian control.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/world/middleeast/syria-israel-maps.html
 **Trump’s Return May Worsen Financial Woes for Global Health Institutions**\
 `The U.S. provides nearly half of the aid for global health, including childhood vaccination, H.I.V. treatment and disease surveillance.`\
 https://nytimes.com/2024/12/19/health/global-health-funding-us-trump.html
-
-**Cowboys Today: The growing relationship between Micah Parsons and Mike Zimmer**\
-`Back in June, Dallas Cowboys pass rusher Micah Parsons somewhat surprisingly said that he and Mike Zimmer had probably said a total of 20 words to each other since Zimmer was hired as defensive coordinator in February.`\
-https://nytimes.com/athletic/6006918/2024/12/19/cowboys-today-micah-parsons-mike-zimmer-stats/
-
-**What if Trump Doesn’t Need to Keep Any of His Promises?**\
-`For the 47th president, illusion is the new accountability.`\
-https://nytimes.com/2024/12/19/opinion/donald-trump-promises.html
 
