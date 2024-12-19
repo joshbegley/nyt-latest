@@ -1,3 +1,15 @@
+**Vanderbilt QB Diego Pavia granted preliminary injunction**\
+`Pavia filed an antitrust suit against the NCAA arguing against a rule counting junior college seasons toward an athlete’s four years.`\
+https://nytimes.com/athletic/6005162/2024/12/18/vanderbilt-qb-diego-pavia-preliminary-injunction/
+
+**On a busy day for roster moves, Blue Jackets get good news on injury front**\
+`Dante Fabbro may miss some games, but the veteran defenseman's injuries aren't as extensive as feared.`\
+https://nytimes.com/athletic/6005046/2024/12/18/blue-jackets-dante-fabbro-injury-update/
+
+**If Commanders leave for D.C., Maryland has a plan in place**\
+`The Athletic looks into the agreement between the Commanders and the State of Maryland if the team agrees to leave for Washington D.C.`\
+https://nytimes.com/athletic/6004756/2024/12/18/washington-commanders-maryland-rfk-stadium/
+
 **Rangers trade Kaapo Kakko to Seattle for Will Borgen, two picks**\
 `The 23-year-old played six seasons with the Rangers and had found early success on the third line this season.`\
 https://nytimes.com/athletic/6004718/2024/12/18/rangers-kaapo-kakko-trade-seattle-will-borgen-picks/

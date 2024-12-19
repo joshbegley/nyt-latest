@@ -1,3 +1,11 @@
+**Vanderbilt QB Diego Pavia granted preliminary injunction**\
+`Pavia filed an antitrust suit against the NCAA arguing against a rule counting junior college seasons toward an athlete’s four years.`\
+https://nytimes.com/athletic/6005162/2024/12/18/vanderbilt-qb-diego-pavia-preliminary-injunction/
+
+**On a busy day for roster moves, Blue Jackets get good news on injury front**\
+`Dante Fabbro may miss some games, but the veteran defenseman's injuries aren't as extensive as feared.`\
+https://nytimes.com/athletic/6005046/2024/12/18/blue-jackets-dante-fabbro-injury-update/
+
 **Rangers trade Kaapo Kakko to Seattle for Will Borgen, two picks**\
 `The 23-year-old played six seasons with the Rangers and had found early success on the third line this season.`\
 https://nytimes.com/athletic/6004718/2024/12/18/rangers-kaapo-kakko-trade-seattle-will-borgen-picks/
@@ -18,19 +26,11 @@ https://nytimes.com/2024/12/18/opinion/trump-liberals-resistance.html
 `While Josh Allen is getting all the MVP hype, Cook is putting up numbers not seen in Buffalo since O.J. Simpson and Thurman Thomas.`\
 https://nytimes.com/athletic/6004646/2024/12/18/buffalo-bills-james-cook-historic-season/
 
-**Exclusive: If Commanders leave for D.C., Maryland has a plan in place**\
+**If Commanders leave for D.C., Maryland has a plan in place**\
 `The Athletic looks into the agreement between the Commanders and the State of Maryland if the team agrees to leave for Washington D.C.`\
 https://nytimes.com/athletic/6004756/2024/12/18/washington-commanders-maryland-rfk-stadium/
 
 **E.P.A. Allows California to Ban Sales of New Gas-Powered Cars by 2035**\
 `The Trump administration is expected to revoke the program, setting up a legal clash between the state and federal government.`\
 https://nytimes.com/2024/12/18/climate/california-ban-new-gasoline-powered-cars.html
-
-**How Worried Should We Be About Bird Flu?**\
-`California has declared a state of emergency over the virus. We asked experts how concerned they are.`\
-https://nytimes.com/2024/12/18/well/bird-flu-health-risks.html
-
-**Ferrari prepares for Lewis Hamilton's arrival: ‘Not a copy-paste of Mercedes’**\
-`At team headquarters in Italy, Ferrari bid farewell to Carlos Sainz and shared its plans to welcome Lewis Hamilton in a few weeks.`\
-https://nytimes.com/athletic/6004126/2024/12/18/ferrari-lewis-hamilton-f1-fred-vasseur/
 
