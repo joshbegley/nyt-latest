@@ -1,3 +1,15 @@
+**Hidden ‘Junk’ Fees Must Be Disclosed, F.T.C. Rule Says**\
+`Hotels, short-term rentals and event ticket-sellers must advertise the full price of their offerings under the rule, which is supposed to go into effect in the coming year. Here’s what to know.`\
+https://nytimes.com/2024/12/19/travel/junk-fees-ftc-rentals-hotels.html
+
+**What Are ‘Healthy’ Foods? The F.D.A. Updates the Labeling Terms.**\
+`The Food and Drug Administration released final rules on labeling foods as “healthy,” tightening limits for sugar, sodium and saturated fat.`\
+https://nytimes.com/2024/12/19/health/fda-healthy-foods-label.html
+
+**Read the Criminal Complaint Against Luigi Mangione**\
+`Federal prosecutors in Manhattan have filed four charges against Luigi Mangione, the suspect in the fatal shooting of UnitedHealthcare’s chief executive.`\
+https://nytimes.com/interactive/2024/12/19/nyregion/24-mag-4375-mangione-complaint.html
+
 **The Simplest Way to Make Creamy Scrambled Eggs for a Crowd**\
 `All it takes is one pot, two dozen eggs and 10 minutes of cooking to serve breakfast to a full house.`\
 https://nytimes.com/2024/12/19/dining/big-batch-scrambled-eggs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6007048/2024/12/19/jets-drama-nfl-most-improved-def
 **Kennedy Returns to Capitol Hill With New ‘Make America Healthy Again’ Caucus in Senate**\
 `Robert F. Kennedy Jr., the president-elect’s pick for health secretary, has spent much of the week meeting with friendly Senate Republicans, including some who appear to be trying to institutionalize his influence in Congress.`\
 https://nytimes.com/2024/12/19/us/politics/rfk-jr-senate-republicans.html
-
-**2025 Pro Bowl Games adding trivia to traditional slate of skill tests**\
-`The skills challenges will occur at separate locations in Orlando, Fla., on Jan. 31 and Feb. 2.`\
-https://nytimes.com/athletic/6006935/2024/12/19/2025-pro-bowl-games-competition/
-
-**Five-star Oregon WR signee requests release, wants to play at Florida: Agent**\
-`Wilson's agent said the receiver wants to play at Florida, which is two hours from his Tampa home and near an ill family member.`\
-https://nytimes.com/athletic/6007010/2024/12/19/dallas-wilson-oregon-florida-recruiting/
-
-**Paul Pogba's brother given suspended prison sentence over extortion plot**\
-`The brother of Paul Pogba has been found guilty of attempting to extort the former France and Manchester United midfielder.`\
-https://nytimes.com/athletic/5949496/2024/12/19/pogba-brother-trial-extortion/
 
