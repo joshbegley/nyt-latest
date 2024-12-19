@@ -1,3 +1,19 @@
+**Micah Parsons wants to be with Cowboys, doesn't need top dollar**\
+`“I think I'm a difference-maker, and I'll probably be treated like a difference-maker," Parsons said of his pending contract extension.`\
+https://nytimes.com/athletic/6007822/2024/12/19/micah-parsons-contract-cowboys/
+
+**2024 Faces Quiz: Sports**\
+`See how well you know the athletes of 2024 with The New York Times Faces Quiz.`\
+https://nytimes.com/interactive/2024/12/19/briefing/2024-faces-quiz-sports.html
+
+**Republicans Offered a Plan to Avoid a Government Shutdown**\
+`Also, country music was ubiquitous in 2024. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/12/19/briefing/government-shutdown-plan-country-music-big-year.html
+
+**Assessing Elon Musk’s Criticisms of the Government Spending Deal**\
+`The world’s richest man posted or amplified inaccurate claims about the bill’s provisions for congressional salaries, a football stadium and biological research.`\
+https://nytimes.com/2024/12/19/us/politics/elon-musk-spending-bill-fact-check.html
+
 **Carabao Cup SF draw: Liverpool-Tottenham, Arsenal-Newcastle**\
 `Liverpool will play Tottenham Hotspur at the semi-final stage of the Carabao Cup, while Arsenal will take on Newcastle United.`\
 https://nytimes.com/athletic/6007157/2024/12/19/carabao-cup-semi-final-draw-2024-25/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/19/opinion/silent-film-forum.html
 **LeBron James on new All-Star Game format: 'Something had to change'**\
 `Several NBA stars, including Anthony Davis, Kevin Durant and Devin Booker, criticized the new All-Star Game format this week.`\
 https://nytimes.com/athletic/6007653/2024/12/19/lebron-james-nba-all-star-game-format-comments/
-
-**Amazon Reaches Settlement to Resolve Federal Safety Accusations**\
-`The Occupational Safety and Health Administration agreed to withdraw citations at nine of 10 warehouses where it had flagged violations; the company agreed to a $145,000 penalty.`\
-https://nytimes.com/2024/12/19/business/amazon-settlement-osha.html
-
-**Inter Miami trades striker Leonardo Campana to New England for $2.5 million GAM**\
-`Miami will receive $2 million in GAM in 2025 and $500,000 in 2026, in addition to 2025 and 2026 international roster slots.`\
-https://nytimes.com/athletic/6007823/2024/12/19/inter-miami-new-england-revolution-leonardo-campana/
-
-**The Briefing: Tottenham 4 Man United 3 - Forster's awful errors, Amorim's subs worked and Son's 'olimpico'**\
-`Jay Harris and Carl Anka analyse the key talking points from a thrilling Carabao Cup quarter-final, as Spurs advanced to the last four`\
-https://nytimes.com/athletic/5992983/2024/12/19/tottenham-man-united-forster-mistakes-cup-analysis/
-
-**Inside the Kaapo Kakko-Will Borgen trade, Vincent Trocheck defends Chris Drury and more**\
-`Trocheck requested to speak with reporters to dispel a report that the Rangers had a players-only meeting criticizing their general manager.`\
-https://nytimes.com/athletic/6007603/2024/12/19/rangers-kakko-borgen-trade-trocheck-drury/
 

@@ -1,3 +1,19 @@
+**Micah Parsons wants to be with Cowboys, doesn't need top dollar**\
+`“I think I'm a difference-maker, and I'll probably be treated like a difference-maker," Parsons said of his pending contract extension.`\
+https://nytimes.com/athletic/6007822/2024/12/19/micah-parsons-contract-cowboys/
+
+**2024 Faces Quiz: Sports**\
+`See how well you know the athletes of 2024 with The New York Times Faces Quiz.`\
+https://nytimes.com/interactive/2024/12/19/briefing/2024-faces-quiz-sports.html
+
+**Republicans Offered a Plan to Avoid a Government Shutdown**\
+`Also, country music was ubiquitous in 2024. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/12/19/briefing/government-shutdown-plan-country-music-big-year.html
+
+**Assessing Elon Musk’s Criticisms of the Government Spending Deal**\
+`The world’s richest man posted or amplified inaccurate claims about the bill’s provisions for congressional salaries, a football stadium and biological research.`\
+https://nytimes.com/2024/12/19/us/politics/elon-musk-spending-bill-fact-check.html
+
 **Carabao Cup SF draw: Liverpool-Tottenham, Arsenal-Newcastle**\
 `Liverpool will play Tottenham Hotspur at the semi-final stage of the Carabao Cup, while Arsenal will take on Newcastle United.`\
 https://nytimes.com/athletic/6007157/2024/12/19/carabao-cup-semi-final-draw-2024-25/
