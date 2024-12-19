@@ -27,7 +27,7 @@ https://nytimes.com/2024/12/19/crosswords/spelling-bee-forum.html
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/here-are-the-latest-developments
 
 **Live Updates: Dominique Pelicot Is Convicted in Rape Trial That Shook France**\
-`A court found Mr. Pelicot, 72, guilty of raping his wife, Gisèle, for nearly a decade. The case has made her a feminist hero.`\
+`A court found Mr. Pelicot, 72, guilty after he admitted to drugging and raping his wife, Gisèle, for nearly a decade, and inviting strangers to join him. The case has made her a feminist hero.`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot
 
 **Liverpool's adaptability in adversity is becoming one of their greatest strengths**\
