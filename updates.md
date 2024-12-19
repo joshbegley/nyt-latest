@@ -1,3 +1,11 @@
+**Britain’s Economy Is ‘Bumbling’ Into the New Year**\
+`Stubborn inflation, tax rises and high interest rates makes it difficult for many to muster optimism, at least in the short term.`\
+https://nytimes.com/2024/12/19/business/uk-economy-bank-of-england.html
+
+**The Athletic FC: How Guinea's stadium tragedy happened, Everton takeover complete**\
+`Today in TAFC: How the stadium disaster in Guinea led to deaths of at least 56 people. Plus: Friedkin Group's takeover of Everton completed.`\
+https://nytimes.com/athletic/6006030/2024/12/19/guinea-stadium-disaster-everton-takeover-complete/
+
 **Commanders' Jonathan Allen, assumed out for the season, has shot at returning**\
 `The two-time Pro Bowler suffered a pectoral injury in Washington's Week 6 loss to Baltimore. `\
 https://nytimes.com/athletic/6006188/2024/12/19/commanders-jonathan-allen-open-practice-window/

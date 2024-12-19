@@ -1,3 +1,11 @@
+**Britain’s Economy Is ‘Bumbling’ Into the New Year**\
+`Stubborn inflation, tax rises and high interest rates makes it difficult for many to muster optimism, at least in the short term.`\
+https://nytimes.com/2024/12/19/business/uk-economy-bank-of-england.html
+
+**The Athletic FC: How Guinea's stadium tragedy happened, Everton takeover complete**\
+`Today in TAFC: How the stadium disaster in Guinea led to deaths of at least 56 people. Plus: Friedkin Group's takeover of Everton completed.`\
+https://nytimes.com/athletic/6006030/2024/12/19/guinea-stadium-disaster-everton-takeover-complete/
+
 **Commanders' Jonathan Allen, assumed out for the season, has shot at returning**\
 `The two-time Pro Bowler suffered a pectoral injury in Washington's Week 6 loss to Baltimore. `\
 https://nytimes.com/athletic/6006188/2024/12/19/commanders-jonathan-allen-open-practice-window/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/movies/homestead-review-armageddon-fortress.html
 **The Pulse: He nixed a trade due to Madden ratings**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6005462/2024/12/19/jets-woody-johnson-aaron-rodgers-madden-the-pulse/
-
-**Supporters of Gisèle Pelicot came from far and wide.**\
-`By Ségolène Le Stradic`\
-https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/supporters-of-gisele-pelicot-came-from-far-and-wide
-
-**Putin Tries to Put Positive Spin on Russian Setback in Syria**\
-`The Russian president said that he had not yet met with Bashar al-Assad, the ousted Syrian leader who fled to Moscow, but that he planned to.`\
-https://nytimes.com/2024/12/19/world/europe/putin-press-conference-syria.html
 
