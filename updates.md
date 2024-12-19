@@ -1,3 +1,7 @@
+**U.S. Files Murder Charge Against Mangione in C.E.O. Shooting Case**\
+`Federal authorities filed four counts against Luigi Mangione.`\
+https://nytimes.com/2024/12/19/nyregion/luigi-mangione-federal-charges.html
+
 **Scoop City: Jets drama, how flexing TNF ruined plans & defensive improvements**\
 `A brief look at how the NFL ruined plans by flexing tonight's TNF game, the ongoing dysfunction in New York and 9 improved defensive players`\
 https://nytimes.com/athletic/6007048/2024/12/19/jets-drama-nfl-most-improved-defenders-scoop-city/
