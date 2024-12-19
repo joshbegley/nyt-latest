@@ -1,3 +1,7 @@
+**What if Trump Doesn’t Need to Keep Any of His Promises?**\
+`For the 47th president, illusion is the new accountability.`\
+https://nytimes.com/2024/12/19/opinion/donald-trump-promises.html
+
 **What's next for the Predators? Despite disappointment, GM Barry Trotz says: 'We’re not selling off'**\
 `With three trades already in the bag, the Predators aren't going into fire-sale mode. So no Steven Stamkos trade? Trotz: "There’s no chance"`\
 https://nytimes.com/athletic/6006850/2024/12/19/predators-disappointment-barry-trotz/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/technology/nvidia-chip-sales-us-china.html
 **Is the Tech Industry Already on the Cusp of an A.I. Slowdown?**\
 `Companies like OpenAI and Google are running out of the data used to train artificial intelligence systems. Can new methods continue years of rapid progress?`\
 https://nytimes.com/2024/12/19/technology/artificial-intelligence-data-openai-google.html
-
-**Trump Tossed a Debt Limit Grenade Into Spending Talks. Here’s Why.**\
-`President-elect Donald J. Trump was forced to negotiate with Democrats over the borrowing cap during his first term.`\
-https://nytimes.com/2024/12/19/business/trump-spending-talks-debt-limit.html
 
