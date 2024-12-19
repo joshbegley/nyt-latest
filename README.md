@@ -1,3 +1,7 @@
+**Nketiah is showing signs of progress at Crystal Palace - that is reason to be hopeful**\
+`Eddie Nketiah scored for Crystal Palace in their loss against Arsenal on Wednesday night`\
+https://nytimes.com/athletic/6001100/2024/12/19/eddie-nketiah-crystal-palace-analysis/
+
 **Word of the Day: combustion**\
 `This word has appeared in 97 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/19/learning/word-of-the-day-combustion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005712/2024/12/19/wild-humbling-loss-panthers-inju
 **Real Madrid 3 Pachuca 0: Vinicius Jr's victory lap and Ancelotti's record-breaking 15th title**\
 `Real Madrid are World club champions after winning the Intercontinental Cup in Qatar - there were records broken and old wounds healed`\
 https://nytimes.com/athletic/6004889/2024/12/19/real-madrid-intercontinental-cup-vinicius-mbappe-ancelotti/
-
-**Emery says he wants to play Torres and Mings in Villa's starting XI – how does he do that?**\
-`Torres and Mings are both left-footed but very different centre-backs – the plan is to strengthen Villa's principles, not disturb them`\
-https://nytimes.com/athletic/5993710/2024/12/19/unai-emery-pau-torres-tyrone-mings-aston-villa/
 
