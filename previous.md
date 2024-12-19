@@ -1,3 +1,27 @@
+**On a Flight With Gaza’s Rare Evacuees**\
+`The war in Gaza is one of the few conflicts most civilians can’t escape.`\
+https://nytimes.com/video/world/middleeast/100000009872530/on-a-flight-with-gazas-rare-evacuees.html
+
+**Israel Launches Airstrikes Against Houthis in Yemen**\
+`The Houthis have been attacking ships in the Red Sea for more than a year in what they have described as a campaign in solidarity with Palestinians in Gaza.`\
+https://nytimes.com/2024/12/19/world/middleeast/yemen-israel-houthis.html
+
+**Everton's Friedkin Group takeover explained: How rich are they? How will the club change?**\
+`Here's everything you need to know about the Everton takeover - and what The Friedkin Group will bring to the club`\
+https://nytimes.com/athletic/5974316/2024/12/19/evertons-friedkin-group-takeover-explained-how-rich-are-they-how-will-the-club-change/
+
+**Joe Burrow learning his voice in Bengals' season gone sideways: 'I expect greatness'**\
+`The quarterback admits he could have handled his emotions better after video of him venting at coach Zac Taylor on Sunday went viral.`\
+https://nytimes.com/athletic/6004998/2024/12/19/joe-burrow-bengals-upset-sideline/
+
+**Can Ryan Day put Michigan behind him? No one faces Playoff pressure like Ohio State**\
+`Ohio State's national championship goals are still within reach in the 12-team College Football Playoff. But the Michigan shadow looms.`\
+https://nytimes.com/athletic/6004558/2024/12/19/ryan-day-ohio-state-tennessee-michigan/
+
+**Panthers' career special teams guy could get his shot on defense: 'Fantastic opportunity'**\
+`"It could be a fantastic opportunity,” Panthers coach Dave Canales said of Rhattigan's role Sunday vs. the Cardinals.`\
+https://nytimes.com/athletic/6004999/2024/12/19/panthers-jon-rhattigan-defense-special-teams/
+
 **Why the Falcons pulled the plug on Kirk Cousins and what they expect from Michael Penix Jr.**\
 `Cousins called Penix on Tuesday night to offer his support. The rookie QB admitted he'll be nervous running out of the tunnel on Sunday.`\
 https://nytimes.com/athletic/6005305/2024/12/19/falcons-qb-change-kirk-cousins-michael-penix-jr/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6001483/2024/12/19/stephon-castle-spurs-grizzlies-r
 **Scouting John Mateer: What the dual-threat quarterback will bring to Oklahoma**\
 `The former three-star prospect from Texas ranks fifth nationally in total offense with 330.4 yards per game. `\
 https://nytimes.com/athletic/6005643/2024/12/19/john-mateer-portal-quarterback-oklahoma/
-
-**Chaos Consumes Drive to Avoid Government Shutdown, With 2 Days to Go**\
-`President-elect Donald J. Trump’s denunciation of a bipartisan spending bill all but buried that deal while leaving unclear what form a new agreement could take.`\
-https://nytimes.com/2024/12/19/us/politics/spending-bill-government-shutdown-trump.html
-
-**Put Down the Laser Pointer, Please, and Then Let’s Chat**\
-`The drone panic isn’t just about drones.`\
-https://nytimes.com/2024/12/19/opinion/drones-ufo-misinformation-ukraine.html
-
-**There’s Still Time for the Senate to Support the First Amendment**\
-`Trump hasn’t been the least bit reticent about his plans to reshape Washington in his image.`\
-https://nytimes.com/2024/12/19/opinion/senate-press-act-reporters.html
-
-**Week 16 N.F.L. Playoff Picture: A Team-by-Team Guide**\
-`With three weeks to go in the N.F.L. season, these detailed tables and scenarios explain every team’s paths to the playoffs — and to better seeding.`\
-https://nytimes.com/interactive/2024/12/19/upshot/nfl-playoff-picture-week-16.html
-
-**Priced Out of New York, She Took Her $350,000 Budget to Philadelphia. Here’s What She Found.**\
-`After a near-death experience gave her a new lease on life, a writer ‘broke up with New York’ and headed south to find a one-bedroom or two-bedroom apartment.`\
-https://nytimes.com/interactive/2024/12/19/realestate/philadelphia-housing-market-apartment-sale.html
-
-**A D.I.Y. ‘Messiah,’ Starring You and Yours as Choristers**\
-`Our critic joined with amateur singers and professionals for a “Messiah” sing-in at David Geffen Hall, just one “Messiah” on the city’s holiday calendar.`\
-https://nytimes.com/2024/12/19/arts/music/messiah-sing-in-at-david-geffen-hall-trinity-church.html
 
