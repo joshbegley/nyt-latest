@@ -1,3 +1,11 @@
+**Chinese Spacewalk Apparently Breaks a Record (Barely)**\
+`China said two of its astronauts spent nine hours outside the Tiangong Space Station. The longest previous spacewalk, by Americans, was eight hours and 56 minutes.`\
+https://nytimes.com/2024/12/19/world/asia/china-astronaut-spacewalk-record.html
+
+**Chinese Astronauts Spend 9 Hours Outside Space Station**\
+`The spacewalk appears to be the longest in history, barely breaking a record set by American astronauts in 2001.`\
+https://nytimes.com/video/world/asia/100000009886746/china-astronaut-spacewalk-record.html
+
 **Benjamin Netanyahu’s Unlikely Hold on Power**\
 `The Israeli prime minister remains in power.`\
 https://nytimes.com/2024/12/19/opinion/netanyahu-israel-power.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6000865/2024/12/19/stephen-bradley-arsenal-stabbing
 **Why Nottingham Forest's Premier League success isn't a fluke: Solid defence, set pieces, quick shots**\
 `The Nuno effect according to the numbers - how he took them from being relegation battlers to fourth place`\
 https://nytimes.com/athletic/6003247/2024/12/19/why-nottingham-forests-premier-league-success-isnt-a-fluke/
-
-**Barcelona are stumbling after a flying start - have teams worked them out?**\
-`From winning 11 of their opening 12 games to just one victory from six in La Liga, it could be time to protect their young stars`\
-https://nytimes.com/athletic/6003344/2024/12/19/barcelona-high-line-flick-tactics-analysis/
-
-**Amad's speed of thought makes him the perfect weapon for Ruben Amorim**\
-`The Ivorian's match-winning Manchester derby display was a result of his ability to spot things before they've happened – his key strength`\
-https://nytimes.com/athletic/5998341/2024/12/19/amad-manchester-united-analysis-ruben-amorim/
 
