@@ -1,4 +1,4 @@
-**P.O Joseph is headed back to Pittsburgh in trade with St. Louis**\
+**Blues trade P.O Joseph to Penguins for future considerations**\
 `P.O Joseph is on his way back to Pittsburgh after a brief stint in St. Louis. `\
 https://nytimes.com/athletic/6005413/2024/12/18/blues-po-joseph-trade-penguins/
 
