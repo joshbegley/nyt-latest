@@ -1,3 +1,11 @@
+**Submit your Dodgers questions for Fabian Ardaya's mailbag**\
+`Submit your Dodgers questions for Fabian Ardaya's mailbag`\
+https://nytimes.com/athletic/6007461/2024/12/19/dodgers-offseason-mailbag-sasaki/
+
+**How Oilers' Zach Hyman was fortunate to only end up with a broken nose**\
+`Hyman suffered a broken nose and two black eyes when he was hit in the face by a deflected slap shot on Monday.`\
+https://nytimes.com/athletic/6007410/2024/12/19/zach-hyman-broken-nose-oilers/
+
 **Chiefs' Patrick Mahomes 'will most likely' start vs. Texans**\
 `Mahomes exited the Chiefs' Week 15 win over the Cleveland Browns midway through the fourth quarter with an ankle injury.`\
 https://nytimes.com/athletic/6007393/2024/12/19/patrick-mahomes-chiefs-start-texans/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/business/media/william-j-hennessy-jr-dead.html
 **Frank Vatrano is helping to drive the Ducks — is it enough to keep him out of trade talks?**\
 `Vatrano is helping the Ducks establish the type of go-to line that they struggled to find for months.`\
 https://nytimes.com/athletic/6007114/2024/12/19/vatrano-ducks-trade-contract/
-
-**Aluko's civil claim against Barton heard at High Court**\
-`A preliminary hearing in a claim for defamation and harassment brought by TV pundit Eni Aluko against Joey Barton was heard today at London’s High Court.`\
-https://nytimes.com/athletic/6007024/2024/12/19/joey-barton-eni-aluko-high-court/
-
-**Wizards, Capitals commit to D.C.; Capital One Arena $515M renovation coming**\
-`Internal and external renovations for the Capital One Center are expected to be completed before the 2027-28 NBA and NHL seasons.`\
-https://nytimes.com/athletic/6006548/2024/12/19/capital-one-arena-renovations-approved-wizards-capitals/
 
