@@ -1,3 +1,7 @@
+**‘The Daily’ podcast covers Gisèle Pelicot’s rise to feminist hero.**\
+`By The Daily Team`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/the-daily-podcast-covers-gisele-pelicots-rise-to-feminist-hero
+
 **The transfer portal and Playoff calendar is a 'total mess.' CFB coaches have 5 solutions**\
 `College football coaches came up with five solutions to fix the sport's "broken" calendar.`\
 https://nytimes.com/athletic/6004927/2024/12/19/college-football-transfer-portal-broken-calendar-solutions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005305/2024/12/19/falcons-qb-change-kirk-cousins-m
 **Is Cooper Rush proving to be the Cowboys' backup quarterback beyond this season?**\
 `With Dak Prescott out for the season, Rush has gotten the audition to return in 2025 with six starts and three more to come.`\
 https://nytimes.com/athletic/6005133/2024/12/19/cowboys-cooper-rush-backup-quarterback-dak-prescott/
-
-**Stephon Castle's minutes, Grizzlies rotation and Amen Thompson's midrange shot: Mailbag**\
-`Kelly Iko answers your questions on the trade deadline, Spurs, Rockets and Grizzlies.`\
-https://nytimes.com/athletic/6001483/2024/12/19/stephon-castle-spurs-grizzlies-rotation-amen-thompson-rockets/
 

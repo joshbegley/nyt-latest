@@ -1,3 +1,7 @@
+**‘The Daily’ podcast covers Gisèle Pelicot’s rise to feminist hero.**\
+`By The Daily Team`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/the-daily-podcast-covers-gisele-pelicots-rise-to-feminist-hero
+
 **The transfer portal and Playoff calendar is a 'total mess.' CFB coaches have 5 solutions**\
 `College football coaches came up with five solutions to fix the sport's "broken" calendar.`\
 https://nytimes.com/athletic/6004927/2024/12/19/college-football-transfer-portal-broken-calendar-solutions/
