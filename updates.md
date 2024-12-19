@@ -1,3 +1,7 @@
+**What if Trump Doesn’t Need to Keep Any of His Promises?**\
+`For the 47th president, illusion is the new accountability.`\
+https://nytimes.com/2024/12/19/opinion/donald-trump-promises.html
+
 **What's next for the Predators? Despite disappointment, GM Barry Trotz says: 'We’re not selling off'**\
 `With three trades already in the bag, the Predators aren't going into fire-sale mode. So no Steven Stamkos trade? Trotz: "There’s no chance"`\
 https://nytimes.com/athletic/6006850/2024/12/19/predators-disappointment-barry-trotz/
