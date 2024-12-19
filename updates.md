@@ -1,3 +1,7 @@
+**Suspect in Insurance C.E.O.’s Murder Is Said to Face Federal Charges**\
+`The nature of the potential charges against Luigi Mangione was unclear, but they could allow federal prosecutors to seek the death penalty.`\
+https://nytimes.com/2024/12/18/nyregion/luigi-mangione-federal-death-penalty.html
+
 **Corrections: Dec. 19, 2024**\
 `Corrections that appeared in print on Thursday, Dec. 19, 2024.`\
 https://nytimes.com/2024/12/18/pageoneplus/corrections-dec-19-2024.html

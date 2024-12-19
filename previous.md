@@ -1,3 +1,7 @@
+**Suspect in Insurance C.E.O.’s Murder Is Said to Face Federal Charges**\
+`The nature of the potential charges against Luigi Mangione was unclear, but they could allow federal prosecutors to seek the death penalty.`\
+https://nytimes.com/2024/12/18/nyregion/luigi-mangione-federal-death-penalty.html
+
 **Corrections: Dec. 19, 2024**\
 `Corrections that appeared in print on Thursday, Dec. 19, 2024.`\
 https://nytimes.com/2024/12/18/pageoneplus/corrections-dec-19-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005211/2024/12/18/cubs-offseason-pitching-plans/
 **Vanderbilt QB Diego Pavia granted preliminary injunction**\
 `Pavia filed an antitrust suit against the NCAA arguing against a rule counting junior college seasons toward an athlete’s four years.`\
 https://nytimes.com/athletic/6005162/2024/12/18/vanderbilt-qb-diego-pavia-preliminary-injunction/
-
-**On a busy day for roster moves, Blue Jackets get good news on injury front**\
-`Dante Fabbro may miss some games, but the veteran defenseman's injuries aren't as extensive as feared.`\
-https://nytimes.com/athletic/6005046/2024/12/18/blue-jackets-dante-fabbro-injury-update/
 
