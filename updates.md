@@ -1,3 +1,11 @@
+**Chinese Spacewalk Apparently Breaks a Record (Barely)**\
+`China said two of its astronauts spent nine hours outside the Tiangong Space Station. The longest previous spacewalk, by Americans, was eight hours and 56 minutes.`\
+https://nytimes.com/2024/12/19/world/asia/china-astronaut-spacewalk-record.html
+
+**Chinese Astronauts Spend 9 Hours Outside Space Station**\
+`The spacewalk appears to be the longest in history, barely breaking a record set by American astronauts in 2001.`\
+https://nytimes.com/video/world/asia/100000009886746/china-astronaut-spacewalk-record.html
+
 **Short-handed Wild handed humbling loss by Cup champion Panthers: Takeaways**\
 `It's the first time this season the Wild have lost two consecutive games in regulation.`\
 https://nytimes.com/athletic/6005712/2024/12/19/wild-humbling-loss-panthers-injuries/
