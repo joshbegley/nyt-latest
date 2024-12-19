@@ -1,40 +1,40 @@
-**Here’s a look at the details of the case.**\
-`By Catherine Porter`\
-https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/heres-a-look-at-the-details-of-the-case
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are five-bedroom house in Westport, Conn., and a five-bedroom in New Rochelle, N.Y.`\
+https://nytimes.com/2024/12/19/realestate/housing-market-near-nyc.html
 
-**Veltman fit to return for West Ham trip**\
-`Brighton &amp; Hove Albion will welcome back defender Joel Veltman for Saturday&#8217;s visit to West Ham.`\
-https://nytimes.com/athletic/6005996/2024/12/19/brighton-joel-veltman-injury/
+**Homes for Sale in Manhattan and Staten Island**\
+`This week’s properties are in the East Village, Chelsea and Port Richmond.`\
+https://nytimes.com/2024/12/19/realestate/housing-market-nyc.html
 
-**Greenwood undergoes surgery on MCL injury**\
-`Manchester City Women&#8217;s captain Alex Greenwood faces an extended period on the sidelines after undergoing knee surgery.`\
-https://nytimes.com/athletic/5992345/2024/12/19/alex-greenwood-injury-man-city/
+**‘Sonic the Hedgehog 3’ Review: Life Comes at You Fast**\
+`Keanu Reeves steps in as Shadow, while Jim Carrey doubles his fun as Robotnik in this action-adventure comedy.`\
+https://nytimes.com/2024/12/19/movies/sonic-the-hedgehog-3-review.html
 
-**NBA shooting rankings: From Knicks to Sixers, how does your team stack up?**\
-`The volume of 3s is at an all-time high in the NBA, but when we talk shooting, there's a lot more to evaluate.`\
-https://nytimes.com/athletic/6002491/2024/12/19/nba-shooting-rankings-2024-knicks-celtics-sixers/
+**‘Mufasa: The Lion King’ Review: Squeaking, Not Roaring**\
+`This wan photorealistic prequel to a remake, the latest addition to the Disney juggernaut, was directed by Barry Jenkins of “Moonlight” fame.`\
+https://nytimes.com/2024/12/19/movies/mufasa-the-lion-king-review.html
 
-**Who is Dominique Pelicot?**\
-`By Catherine Porter`\
-https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/who-is-dominique-pelicot
+**‘The Room Next Door’ Review: A Life Worth Leaving**\
+`Pedro Almodóvar’s moving drama stars Julianne Moore and Tilda Swinton as friends facing mortality together.`\
+https://nytimes.com/2024/12/19/movies/the-room-next-door-review.html
 
-**The Face of Courage**\
-`The French rape trial is over. The verdicts have been levied. And Gisèle Pelicot’s image has become a symbol of female strength around the world.`\
-https://nytimes.com/2024/12/19/style/gisele-pelicot-rape-trial-verdict-image.html
+**‘The Count of Monte Cristo’ Review: Mission Impeccable**\
+`Stirringly acted and gorgeously filmed, this swashbuckler leaves previous versions of Dumas’s famous revenge saga in the dust.`\
+https://nytimes.com/2024/12/19/movies/the-count-of-the-monte-cristo-review.html
 
-**How Liam Lawson replaced Sergio Pérez at Red Bull after a year of waiting**\
-`It's been a long journey to reach this moment for Lawson — especially the last 12 months. `\
-https://nytimes.com/athletic/6004806/2024/12/19/liam-lawson-red-bull-f1-2025-sergio-perez/
+**Even Mobile-Home Prices Keep Rising**\
+`From 2018 to 2023, the average sale price of a new manufactured home grew faster than that of a new single-family home, according to a recent study.`\
+https://nytimes.com/2024/12/19/realestate/mobile-home-prices-rising.html
 
-**Lawson to race for Red Bull in 2025 as Pérez’s replacement**\
-`Lawson, 22, has been part of the Red Bull family since 2021. `\
-https://nytimes.com/athletic/6005264/2024/12/19/liam-lawson-f1-red-bull-2025-sergio-perez/
+**Two Debut Games That Are Captivating and Strange**\
+`30 Birds takes its visual cues from Persian miniatures and asks the player to gather birds for a ritual. Threshold has the quality of a bad dream: It’s brief, a bit illogical and haunting.`\
+https://nytimes.com/2024/12/19/arts/30-birds-threshold-review.html
 
-**Late Night Continues to Drone On About Sightings in the Sky**\
-`“‘Nothing nefarious, apparently’ doesn’t exactly inspire confidence,” Stephen Colbert said of President Biden’s comments about mysterious drones seen over New Jersey.`\
-https://nytimes.com/2024/12/19/arts/television/late-night-drones.html
+**Here Are 4 Reasons China Meddles in Local U.S. Politics**\
+`American intelligence agencies have warned of influence operations targeting city halls and statehouses. But what’s in it for Beijing?`\
+https://nytimes.com/2024/12/19/world/asia/here-are-4-reasons-china-meddles-in-local-us-politics.html
 
-**Brock Faber injury is latest gut punch for reeling Wild in 6-1 loss to Panthers**\
-`Considering the team's injuries, the fact it took Minnesota until Game 32 to have its first back-to-back regulation losses is remarkable.`\
-https://nytimes.com/athletic/6005890/2024/12/19/brock-faber-injury-wild-lose-to-panthers/
+**The Year Country Went Everywhere, and Everyone Went Country**\
+`Our critic hit the road to talk with Jelly Roll, Shaboozey, Tanner Adell and other artists to understand why country music was inescapable in 2024.`\
+https://nytimes.com/2024/12/19/arts/music/jelly-roll-shaboozey-vavo-tanner-adell-country.html
 
