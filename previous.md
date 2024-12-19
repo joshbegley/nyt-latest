@@ -1,3 +1,15 @@
+**Nvidia’s Booming A.I. Business Collides With U.S.-Chinese Tensions**\
+`The chipmaker expects more than $10 billion in foreign sales this year, but the Biden administration is advancing rules that could curb that growth.`\
+https://nytimes.com/2024/12/19/technology/nvidia-chip-sales-us-china.html
+
+**Is the Tech Industry Already on the Cusp of an A.I. Slowdown?**\
+`Companies like OpenAI and Google are running out of the data used to train artificial intelligence systems. Can new methods continue years of rapid progress?`\
+https://nytimes.com/2024/12/19/technology/artificial-intelligence-data-openai-google.html
+
+**Trump Tossed a Debt Limit Grenade Into Spending Talks. Here’s Why.**\
+`President-elect Donald J. Trump was forced to negotiate with Democrats over the borrowing cap during his first term.`\
+https://nytimes.com/2024/12/19/business/trump-spending-talks-debt-limit.html
+
 **Will Notre Dame handle Indiana? Three keys to a game the Irish are built for**\
 `Notre Dame wrote the rules of the new CFP for this moment. The Irish are better on both lines. Now it’s on Marcus Freeman to deliver.`\
 https://nytimes.com/athletic/6006720/2024/12/19/notre-dame-indiana-matchups-prediction/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/19/us/politics/elon-musk-politics.html
 **Man pleads guilty to stalking UConn's Paige Bueckers**\
 `Robert Cole Parmalee received a one-year suspended sentence and three years' probation in Rockville Superior Court (Conn.) on Wednesday.`\
 https://nytimes.com/athletic/6006585/2024/12/19/paige-bueckers-stalker-pleads-guilty-uconn/
-
-**Zach LaVine is reinventing himself on the fly — and quietly restoring his trade value**\
-`A championship-caliber team like the Nuggets starting to circle is a testament to how LaVine has willed himself into a reclamation project.`\
-https://nytimes.com/athletic/6005819/2024/12/19/zach-lavine-bulls-nuggets-trade-value/
-
-**Productivity Without Limits: How Top Companies Are Building a New Digital Workforce with AI Agents**\
-`The agentic AI revolution is here, and one thing is clear–if you’re not leading, you’re trailing.`\
-https://nytimes.com/paidpost/salesforce/productivity-without-limits-how-top-companies-are-building-a-new-digital-workforce-with-ai-agents.html
-
-**Could This 20-Year-Old Be One of the Democrats’ Bro Whisperers?**\
-`Dean Withers argues online with right-wing stars like Charlie Kirk and Ben Shapiro. His goal? To reach their young, male followers.`\
-https://nytimes.com/2024/12/19/style/dean-withers-tiktok.html
 

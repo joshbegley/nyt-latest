@@ -1,3 +1,15 @@
+**Nvidia’s Booming A.I. Business Collides With U.S.-Chinese Tensions**\
+`The chipmaker expects more than $10 billion in foreign sales this year, but the Biden administration is advancing rules that could curb that growth.`\
+https://nytimes.com/2024/12/19/technology/nvidia-chip-sales-us-china.html
+
+**Is the Tech Industry Already on the Cusp of an A.I. Slowdown?**\
+`Companies like OpenAI and Google are running out of the data used to train artificial intelligence systems. Can new methods continue years of rapid progress?`\
+https://nytimes.com/2024/12/19/technology/artificial-intelligence-data-openai-google.html
+
+**Trump Tossed a Debt Limit Grenade Into Spending Talks. Here’s Why.**\
+`President-elect Donald J. Trump was forced to negotiate with Democrats over the borrowing cap during his first term.`\
+https://nytimes.com/2024/12/19/business/trump-spending-talks-debt-limit.html
+
 **Will Notre Dame handle Indiana? Three keys to a game the Irish are built for**\
 `Notre Dame wrote the rules of the new CFP for this moment. The Irish are better on both lines. Now it’s on Marcus Freeman to deliver.`\
 https://nytimes.com/athletic/6006720/2024/12/19/notre-dame-indiana-matchups-prediction/
