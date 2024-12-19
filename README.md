@@ -1,3 +1,11 @@
+**NFL Week 16 fantasy football, betting cheat sheet: Niners RB Isaac Guerendo ailing, may sit Sunday**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/6001045/2024/12/19/nfl-week-16-fantasy-football-betting-cheat-sheet/
+
+**Saudi Arabia to play in 2025 and 2027 Gold Cup as guest participant**\
+`Saudi Arabia will play in the 2025 and 2027 editions of the Gold Cup as one of 16 teams participating in the tournaments organised by CONCACAF.`\
+https://nytimes.com/athletic/6006943/2024/12/19/saudi-arabia-gold-cup-guest/
+
 **With Guilty Verdicts, Victim’s Rape Ordeal in France Becomes a Message of Hope**\
 `Dozens of men who abused Gisèle Pelicot were convicted, including the man who invited them to do so: her husband of 50 years. She wanted the public trial to show rape victims they were not alone.`\
 https://nytimes.com/2024/12/19/pelicot-rape-trial-guilty-verdict.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6006761/2024/12/19/valencia-owner-peter-lim-sale/
 **Heat Today: 'UCLA boys' Jaime Jaquez Jr. and Kevin Love keep team vibes high**\
 `They may be 13 years apart, but Love and Jaquez share more than an alma mater. `\
 https://nytimes.com/athletic/6006726/2024/12/19/kevin-love-jaime-jaquez-jr-heat-ucla-nba/
-
-**Giséle Pelicot’s Ex-Husband Found Guilty in Mass Rape Trial**\
-`A French court found the ex-husband of Ms. Pelicot, Dominique Pelicot, guilty and sentenced him to 20 years in jail. Fifty other men were also convicted in the mass rape trial.`\
-https://nytimes.com/video/world/europe/100000009887001/gisle-pelicot-rape-trial-case.html
-
-**It’s a Mistake to Charge Luigi Mangione With Terrorism**\
-`It could complicate a simple case and turn it into a political circus.`\
-https://nytimes.com/2024/12/19/opinion/luigi-mangione-terrorism.html
 
