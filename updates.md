@@ -1,3 +1,7 @@
+**Manchester United, dressing-room leaks and why it's not a new problem**\
+`Ruben Amorim is not the first manager to discover that the roof is not the only thing that leaks at Old Trafford`\
+https://nytimes.com/athletic/5986437/2024/12/19/manchester-united-dressing-room-leaks/
+
 **Stephen Bradley: 'They put a gun to my head and stabbed me three times. That's all I remember'**\
 `Bradley nearly died as a teenager while on the books at Arsenal. He returns to London in charge of Shamrock Rovers to face Chelsea`\
 https://nytimes.com/athletic/6000865/2024/12/19/stephen-bradley-arsenal-stabbing-shamrock-chelsea-conference-league/
