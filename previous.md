@@ -1,3 +1,7 @@
+**Avian Flu Has Hit Dairies So Hard That They’re Calling It ‘Covid for Cows’**\
+`The virus has spread rapidly in California, the nation’s largest producer of milk. Farmers are frustrated that their herds are getting infected despite various precautions.`\
+https://nytimes.com/2024/12/19/us/bird-flu-california-dairies.html
+
 **Adams Hosts Fox News at City Hall, as N.Y. Leaders Mute Trump Hostility**\
 `In an interview with the conservative network, Mayor Eric Adams criticized the Biden administration and did not take aim at President-elect Donald J. Trump. He is not the only New York Democrat treading lightly.`\
 https://nytimes.com/2024/12/19/nyregion/eric-adams-fox-news-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/nyregion/cuomo-charlotte-bennett-defamation.html
 **The Bounce: Let's pick NBA All-Star starters! Plus, Bodega KAT returns to Minnesota tonight!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6006166/2024/12/19/nba-all-star-voting-karl-anthony-towns-timberwolves-knicks-nba-the-bounce/
-
-**U.S. Files Murder Charge Against Mangione That Could Bring Death Penalty**\
-`Federal authorities filed a total of four counts against Luigi Mangione, who is accused of killing Brian Thompson, the chief executive of UnitedHealthcare.`\
-https://nytimes.com/2024/12/19/nyregion/luigi-mangione-federal-charges.html
 
