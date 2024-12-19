@@ -1,3 +1,15 @@
+**NFL Week 16 fantasy football, betting cheat sheet: Niners RB Isaac Guerendo ailing, may sit Sunday**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/6001045/2024/12/19/nfl-week-16-fantasy-football-betting-cheat-sheet/
+
+**Saudi Arabia to play in 2025 and 2027 Gold Cup as guest participant**\
+`Saudi Arabia will play in the 2025 and 2027 editions of the Gold Cup as one of 16 teams participating in the tournaments organised by CONCACAF.`\
+https://nytimes.com/athletic/6006943/2024/12/19/saudi-arabia-gold-cup-guest/
+
+**With Guilty Verdicts, Victim’s Rape Ordeal in France Becomes a Message of Hope**\
+`Dozens of men who abused Gisèle Pelicot were convicted, including the man who invited them to do so: her husband of 50 years. She wanted the public trial to show rape victims they were not alone.`\
+https://nytimes.com/2024/12/19/pelicot-rape-trial-guilty-verdict.html
+
 **Maps: See Israel’s Moves in Syria Since al-Assad Was Toppled**\
 `Israeli fighter jets have launched hundreds of airstrikes, while soldiers have seized a buffer zone and captured military posts in territory formerly under Syrian control.`\
 https://nytimes.com/2024/12/19/world/middleeast/syria-israel-maps.html
