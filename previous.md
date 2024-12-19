@@ -1,3 +1,23 @@
+**Is there anything worth salvaging from this year's Raiders roster?**\
+`Despite the Raiders' 2-12 record, they have intriguing players worth keeping around at every position. We break down their roster.`\
+https://nytimes.com/athletic/6004725/2024/12/19/las-vegas-raiders-roster-2025/
+
+**Nik Bonitto's big splash plays for Broncos rooted in basketball background**\
+`The Broncos linebacker, a candidate for NFL Defensive Player of the Year, once competed against future NBA players like Deandre Ayton.`\
+https://nytimes.com/athletic/6003559/2024/12/19/nik-bonitto-broncos-basketball/
+
+**A USMNT injury crisis? Not yet, but coach Pochettino's list of hurt stars grows**\
+`The USMNT's growing injury list is not ideal, even with the next competitive games three months away`\
+https://nytimes.com/athletic/6005586/2024/12/19/a-usmnt-injury-crisis-not-yet-but-coach-pochettinos-list-of-hurt-stars-grows/
+
+**‘The Six Triple Eight’ Review: Tyler Perry Salutes the Greatest Generation**\
+`Kerry Washington leads a female postal battalion on a moving mission in this World War II drama.`\
+https://nytimes.com/2024/12/19/movies/the-six-triple-eight-review.html
+
+**‘Homestead’ Review: A Home Away From Armageddon**\
+`The moment these Doomsday preppers have been waiting for has arrived, and from within their secure compound they’re confronting unexpected complications.`\
+https://nytimes.com/2024/12/19/movies/homestead-review-armageddon-fortress.html
+
 **The Pulse: He nixed a trade due to Madden ratings**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6005462/2024/12/19/jets-woody-johnson-aaron-rodgers-madden-the-pulse/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/19/briefing/democrats-2024-defeat.html
 **Amid loud voices, USWNT defender Becky Sauerbrunn perfected the art of subtlety in leadership**\
 `Sauerbrunn announced her retirement from professional soccer after 219 appearances for the USWNT.`\
 https://nytimes.com/athletic/6005769/2024/12/19/becky-sauerbrunn-uswnt-subtly-leader/
-
-**Dylan Sampson believed in Josh Heupel's vision at Tennessee. It's paying off in the Playoff**\
-`Sampson's 22 touchdowns are the most in school history, breaking a 95-year record. His 1,485 rushing yards are also a school record.`\
-https://nytimes.com/athletic/6004836/2024/12/19/tennessee-football-dylan-sampson-ohio-state/
-
-**How a peek at the jumbotron helped the Chiefs' Trent McDuffie grab his first NFL interception**\
-`In his 41st NFL game, McDuffie made his first interception. The Chiefs are counting on him to limit Nico Collins and Tank Dell this week.`\
-https://nytimes.com/athletic/6005358/2024/12/19/chiefs-trent-mcduffie-interception-jumbotron/
-
-**Creating an offense-only short list for Bears' coaching search: Ben Johnson, Joe Brady, more**\
-`The Bears have to find the right offensive head coach to develop quarterback Caleb Williams. Let's dig in on some potential candidates.`\
-https://nytimes.com/athletic/6004640/2024/12/19/bears-head-coach-search-ben-johnson-joe-brady/
-
-**Vikings' Kevin O'Connell leans on unlikely source for guidance: Hall of Famer Bill Cowher**\
-`The Vikings coach has gotten guidance from the Hall of Famer who calls O'Connell "one of the best leaders in the National Football League.”`\
-https://nytimes.com/athletic/6004288/2024/12/19/vikings-coach-kevin-oconnell-bill-cowher/
-
-**Where the Colts' 10 highest-paid players have let them down this season**\
-`Too many of the Colts' best players have failed either in critical areas or at critical times.`\
-https://nytimes.com/athletic/6004786/2024/12/19/colts-highest-paid-michael-pittman-jonathan-taylor/
 
