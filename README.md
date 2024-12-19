@@ -1,3 +1,15 @@
+**Who is Dominique Pelicot?**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/who-is-dominique-pelicot
+
+**The Face of Courage**\
+`The French rape trial is over. The verdicts have been levied. And Gisèle Pelicot’s image has become a symbol of female strength around the world.`\
+https://nytimes.com/2024/12/19/style/gisele-pelicot-rape-trial-verdict-image.html
+
+**How Liam Lawson replaced Sergio Pérez at Red Bull after a year of waiting**\
+`It's been a long journey to reach this moment for Lawson — especially the last 12 months. `\
+https://nytimes.com/athletic/6004806/2024/12/19/liam-lawson-red-bull-f1-2025-sergio-perez/
+
 **Lawson to race for Red Bull in 2025 as Pérez’s replacement**\
 `Lawson, 22, has been part of the Red Bull family since 2021. `\
 https://nytimes.com/athletic/6005264/2024/12/19/liam-lawson-f1-red-bull-2025-sergio-perez/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/19/insider/wirecutter-gift-guides.html
 **It Was a Haven for New York Families. Now They Can’t Afford to Stay.**\
 `Families in Washington Heights are being pushed out by rising rents and costs, and New York City is losing its youngest demographic group.`\
 https://nytimes.com/2024/12/19/nyregion/washington-heights-nyc-cost-rent.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/19/crosswords/spelling-bee-forum.html
-
-**Here are the latest developments.**\
-`By Catherine Porter`\
-https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/here-are-the-latest-developments
-
-**Live Updates: Dominique Pelicot Gets 20-Year Sentence in Rape Trial That Shook France**\
-`A court found Mr. Pelicot, 72, guilty after he admitted to drugging and raping his wife, Gisèle, for nearly a decade, and inviting strangers to join him. The case has made her a feminist hero.`\
-https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot
 

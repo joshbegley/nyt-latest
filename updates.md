@@ -1,3 +1,7 @@
+**Live Updates: Dominique Pelicot Gets 20-Year Sentence in Rape Trial That Shook France**\
+`A court found Mr. Pelicot, 72, guilty after he admitted to drugging and raping his wife, Gisèle, for nearly a decade, and inviting strangers to join him. The case has made her a feminist hero.`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot
+
 **Lawson to race for Red Bull in 2025 as Pérez’s replacement**\
 `Lawson, 22, has been part of the Red Bull family since 2021. `\
 https://nytimes.com/athletic/6005264/2024/12/19/liam-lawson-f1-red-bull-2025-sergio-perez/
