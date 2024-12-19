@@ -1,6 +1,6 @@
 **Avian Flu Has Hit Dairies So Hard That They’re Calling It ‘Covid for Cows’**\
 `The virus has spread rapidly in California, the nation’s largest producer of milk. Farmers are frustrated that their herds are getting infected despite various precautions.`\
-https://nytimes.com/2024/12/19/us/bird-flu-california-dairies.html
+https://nytimes.com/2024/12/19/us/bird-flu-california-covid-cows.html
 
 **Adams Hosts Fox News at City Hall, as N.Y. Leaders Mute Trump Hostility**\
 `In an interview with the conservative network, Mayor Eric Adams criticized the Biden administration and did not take aim at President-elect Donald J. Trump. He is not the only New York Democrat treading lightly.`\

@@ -1,5 +1,9 @@
 **Avian Flu Has Hit Dairies So Hard That They’re Calling It ‘Covid for Cows’**\
 `The virus has spread rapidly in California, the nation’s largest producer of milk. Farmers are frustrated that their herds are getting infected despite various precautions.`\
+https://nytimes.com/2024/12/19/us/bird-flu-california-covid-cows.html
+
+**Avian Flu Has Hit Dairies So Hard That They’re Calling It ‘Covid for Cows’**\
+`The virus has spread rapidly in California, the nation’s largest producer of milk. Farmers are frustrated that their herds are getting infected despite various precautions.`\
 https://nytimes.com/2024/12/19/us/bird-flu-california-dairies.html
 
 **Adams Hosts Fox News at City Hall, as N.Y. Leaders Mute Trump Hostility**\
