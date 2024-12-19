@@ -1,3 +1,11 @@
+**Putin Tries to Put Positive Spin on Russian Setback in Syria**\
+`The Russian president said that he had not yet met with Bashar al-Assad, the ousted Syrian leader who fled to Moscow, but that he planned to.`\
+https://nytimes.com/2024/12/19/world/europe/putin-press-conference-syria.html
+
+**Electoral Wishcasting**\
+`We cover a lesson from the Democrats’ 2024 defeat.`\
+https://nytimes.com/2024/12/19/briefing/democrats-2024-defeat.html
+
 **Amid loud voices, USWNT defender Becky Sauerbrunn perfected the art of subtlety in leadership**\
 `Sauerbrunn announced her retirement from professional soccer after 219 appearances for the USWNT.`\
 https://nytimes.com/athletic/6005769/2024/12/19/becky-sauerbrunn-uswnt-subtly-leader/
