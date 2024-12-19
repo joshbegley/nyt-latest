@@ -1,3 +1,7 @@
+**Veltman fit to return for West Ham trip**\
+`Brighton &amp; Hove Albion will welcome back defender Joel Veltman for Saturday&#8217;s visit to West Ham.`\
+https://nytimes.com/athletic/6005996/2024/12/19/brighton-joel-veltman-injury/
+
 **Greenwood undergoes surgery on MCL injury**\
 `Manchester City Women&#8217;s captain Alex Greenwood faces an extended period on the sidelines after undergoing knee surgery.`\
 https://nytimes.com/athletic/5992345/2024/12/19/alex-greenwood-injury-man-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005890/2024/12/19/brock-faber-injury-wild-lose-to-
 **They Thought It Was an Old Baseball. It Was a Mastodon Tooth.**\
 `Remarkably well preserved ice age remains like those discovered recently in a yard near Scotchtown, N.Y., are rare — but not that rare for that part of the state.`\
 https://nytimes.com/2024/12/19/nyregion/mastodon-teeth-new-york.html
-
-**2024 in Pictures**\
-`Which of the images in this Times collection best capture how you’ll remember this year?`\
-https://nytimes.com/2024/12/19/learning/2024-in-pictures.html
 

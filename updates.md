@@ -1,3 +1,7 @@
+**Veltman fit to return for West Ham trip**\
+`Brighton &amp; Hove Albion will welcome back defender Joel Veltman for Saturday&#8217;s visit to West Ham.`\
+https://nytimes.com/athletic/6005996/2024/12/19/brighton-joel-veltman-injury/
+
 **Greenwood undergoes surgery on MCL injury**\
 `Manchester City Women&#8217;s captain Alex Greenwood faces an extended period on the sidelines after undergoing knee surgery.`\
 https://nytimes.com/athletic/5992345/2024/12/19/alex-greenwood-injury-man-city/
