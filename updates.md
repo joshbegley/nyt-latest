@@ -1,3 +1,7 @@
+**New York City Approves New Contract for Specialized High School Test**\
+`The vote by the Panel for Educational Policy came after a contentious five-hour meeting. The exam for eight highly competitive high schools will now be computerized.`\
+https://nytimes.com/2024/12/18/nyregion/specialized-high-school-test-new-york.html
+
 **Maple Leafs report cards: Nick Robertson turns it on against his brother in Dallas**\
 `The Leafs scored twice in 16 seconds en route to a win over the Stars despite being badly outshot.`\
 https://nytimes.com/athletic/6005675/2024/12/18/maple-leafs-report-cards-nick-robertson-dallas/

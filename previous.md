@@ -1,3 +1,7 @@
+**New York City Approves New Contract for Specialized High School Test**\
+`The vote by the Panel for Educational Policy came after a contentious five-hour meeting. The exam for eight highly competitive high schools will now be computerized.`\
+https://nytimes.com/2024/12/18/nyregion/specialized-high-school-test-new-york.html
+
 **Maple Leafs report cards: Nick Robertson turns it on against his brother in Dallas**\
 `The Leafs scored twice in 16 seconds en route to a win over the Stars despite being badly outshot.`\
 https://nytimes.com/athletic/6005675/2024/12/18/maple-leafs-report-cards-nick-robertson-dallas/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/18/nyregion/congestion-pricing-ny-nj-hochul.html
 **Blues trade P.O Joseph to Penguins for future considerations**\
 `P.O Joseph is on his way back to Pittsburgh after a brief stint in St. Louis. `\
 https://nytimes.com/athletic/6005413/2024/12/18/blues-po-joseph-trade-penguins/
-
-**NHL trade grades: Kraken take low-risk bet on Kaapo Kakko, Rangers get little in return**\
-`Kakko never lived up to his ceiling in New York, and he is the type of reclamation project the Kraken should be targeting.`\
-https://nytimes.com/athletic/6005250/2024/12/18/nhl-trade-grades-rangers-kaapo-kakko-kraken/
 
