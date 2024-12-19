@@ -1,3 +1,7 @@
+**Shorthanded Wild handed humbling loss by Cup champion Panthers: Takeaways**\
+`It's the first time this season the Wild have lost two consecutive games in regulation.`\
+https://nytimes.com/athletic/6005712/2024/12/19/wild-humbling-loss-panthers-injuries/
+
 **Real Madrid 3 Pachuca 0: Vinicius Jr's victory lap and Ancelotti's record-breaking 15th title**\
 `Real Madrid are World club champions after winning the Intercontinental Cup in Qatar - there were records broken and old wounds healed`\
 https://nytimes.com/athletic/6004889/2024/12/19/real-madrid-intercontinental-cup-vinicius-mbappe-ancelotti/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5998341/2024/12/19/amad-manchester-united-analysis-
 **Festive football gifts 2024: Weird and wonderful club-branded merchandise**\
 `Looking for a last-minute festive gift? Caoimhe O'Neill has scoured club shops to find the most eye-catching club-branded merchandise around`\
 https://nytimes.com/athletic/5997826/2024/12/19/festive-gifts-club-christmas-holidays-football/
-
-**Thursday Briefing**\
-`Syrian soldiers step toward amnesty.`\
-https://nytimes.com/2024/12/19/briefing/syria-russia-markets.html
 
