@@ -1,3 +1,7 @@
+**Mets to add former Angels righty Griffin Canning on 1-year deal: Sources**\
+`The Mets add depth with Canning, but they could still look to sign another free-agent starting pitcher or make a trade.`\
+https://nytimes.com/athletic/6005635/2024/12/18/mets-sign-griffin-canning-contract/
+
 **Baby Bear**\
 `Brandon Koppy asks us to pivot.`\
 https://nytimes.com/2024/12/18/crosswords/daily-puzzle-2024-12-19.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005338/2024/12/18/john-mateer-oklahoma-transfer-wa
 **Andrés Giménez joins the Blue Jays ready to make adjustments**\
 `The Blue Jays acquired Giménez with ideas in mind to help him get back to his 2022 levels offensively.`\
 https://nytimes.com/athletic/6005186/2024/12/18/andres-gimenez-blue-jays-adjustments/
-
-**An Election Draw Decided by a Straw**\
-`In an era of invective and distrust, two California candidates turned a tie over to chance.`\
-https://nytimes.com/2024/12/18/us/politics/galt-california-election-tie.html
 

@@ -1,3 +1,7 @@
+**Mets to add former Angels righty Griffin Canning on 1-year deal: Sources**\
+`The Mets add depth with Canning, but they could still look to sign another free-agent starting pitcher or make a trade.`\
+https://nytimes.com/athletic/6005635/2024/12/18/mets-sign-griffin-canning-contract/
+
 **Baby Bear**\
 `Brandon Koppy asks us to pivot.`\
 https://nytimes.com/2024/12/18/crosswords/daily-puzzle-2024-12-19.html
