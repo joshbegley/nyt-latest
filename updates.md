@@ -1,3 +1,7 @@
+**Canadiens acquire Alexandre Carrier from Predators for Justin Barron**\
+`The defenseman swap helps Montreal in the present and potentially helps Nashville in the future.`\
+https://nytimes.com/athletic/6005657/2024/12/18/canadiens-predators-alexandre-carrier-justin-barron/
+
 **Mets to add former Angels righty Griffin Canning on 1-year deal: Sources**\
 `The Mets add depth with Canning, but they could still look to sign another free-agent starting pitcher or make a trade.`\
 https://nytimes.com/athletic/6005635/2024/12/18/mets-sign-griffin-canning-contract/

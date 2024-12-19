@@ -1,3 +1,7 @@
+**Canadiens acquire Alexandre Carrier from Predators for Justin Barron**\
+`The defenseman swap helps Montreal in the present and potentially helps Nashville in the future.`\
+https://nytimes.com/athletic/6005657/2024/12/18/canadiens-predators-alexandre-carrier-justin-barron/
+
 **Mets to add former Angels righty Griffin Canning on 1-year deal: Sources**\
 `The Mets add depth with Canning, but they could still look to sign another free-agent starting pitcher or make a trade.`\
 https://nytimes.com/athletic/6005635/2024/12/18/mets-sign-griffin-canning-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005250/2024/12/18/nhl-trade-grades-rangers-kaapo-k
 **Top transfer QB John Mateer commits to Oklahoma after 3 years at Wazzu**\
 `Mateer, who started all 12 games for the Cougars this season, will reunite with his former offensive coordinator Ben Arbuckle.`\
 https://nytimes.com/athletic/6005338/2024/12/18/john-mateer-oklahoma-transfer-washington-state/
-
-**Andrés Giménez joins the Blue Jays ready to make adjustments**\
-`The Blue Jays acquired Giménez with ideas in mind to help him get back to his 2022 levels offensively.`\
-https://nytimes.com/athletic/6005186/2024/12/18/andres-gimenez-blue-jays-adjustments/
 
