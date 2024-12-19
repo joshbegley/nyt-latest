@@ -2,7 +2,7 @@
 `A brief look at how the NFL ruined plans by flexing tonight's TNF game, the ongoing dysfunction in New York and 9 improved defensive players`\
 https://nytimes.com/athletic/6007048/2024/12/19/jets-drama-nfl-most-improved-defenders-scoop-city/
 
-**Kennedy Returns to Capitol Hill With New ‘Make America Healthy Again’ Caucus in Senate,**\
+**Kennedy Returns to Capitol Hill With New ‘Make America Healthy Again’ Caucus in Senate**\
 `Robert F. Kennedy Jr., the president-elect’s pick for health secretary, has spent much of the week meeting with friendly Senate Republicans, including some who appear to be trying to institutionalize his influence in Congress.`\
 https://nytimes.com/2024/12/19/us/politics/rfk-jr-senate-republicans.html
 
