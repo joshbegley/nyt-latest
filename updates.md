@@ -1,3 +1,15 @@
+**Amad's speed of thought makes him the perfect weapon for Ruben Amorim**\
+`The Ivorian's match-winning Manchester derby display was a result of his ability to spot things before they've happened – his key strength`\
+https://nytimes.com/athletic/5998341/2024/12/19/amad-manchester-united-analysis-ruben-amorim/
+
+**Festive football gifts 2024: Weird and wonderful club-branded merchandise**\
+`Looking for a last-minute festive gift? Caoimhe O'Neill has scoured club shops to find the most eye-catching club-branded merchandise around`\
+https://nytimes.com/athletic/5997826/2024/12/19/festive-gifts-club-christmas-holidays-football/
+
+**Thursday Briefing**\
+`Syrian soldiers step toward amnesty.`\
+https://nytimes.com/2024/12/19/briefing/syria-russia-markets.html
+
 **Europe Has a Leadership Vacuum. How Will it Handle Trump?**\
 `With Germany and France both in political turmoil, the new administration of Donald J. Trump will begin at a time of instability for the continent.`\
 https://nytimes.com/2024/12/19/world/europe/europe-has-a-leadership-vacuum-how-will-it-handle-trump.html

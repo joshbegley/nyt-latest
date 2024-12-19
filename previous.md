@@ -1,3 +1,15 @@
+**Amad's speed of thought makes him the perfect weapon for Ruben Amorim**\
+`The Ivorian's match-winning Manchester derby display was a result of his ability to spot things before they've happened – his key strength`\
+https://nytimes.com/athletic/5998341/2024/12/19/amad-manchester-united-analysis-ruben-amorim/
+
+**Festive football gifts 2024: Weird and wonderful club-branded merchandise**\
+`Looking for a last-minute festive gift? Caoimhe O'Neill has scoured club shops to find the most eye-catching club-branded merchandise around`\
+https://nytimes.com/athletic/5997826/2024/12/19/festive-gifts-club-christmas-holidays-football/
+
+**Thursday Briefing**\
+`Syrian soldiers step toward amnesty.`\
+https://nytimes.com/2024/12/19/briefing/syria-russia-markets.html
+
 **Europe Has a Leadership Vacuum. How Will it Handle Trump?**\
 `With Germany and France both in political turmoil, the new administration of Donald J. Trump will begin at a time of instability for the continent.`\
 https://nytimes.com/2024/12/19/world/europe/europe-has-a-leadership-vacuum-how-will-it-handle-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/18/pageoneplus/quote-of-the-day-a-top-van-gogh-is-ou
 **New York City Approves New Contract for Specialized High School Test**\
 `The vote by the Panel for Educational Policy came after a contentious five-hour meeting. The exam for eight highly competitive high schools will now be computerized.`\
 https://nytimes.com/2024/12/18/nyregion/specialized-high-school-test-new-york.html
-
-**Maple Leafs report cards: Nick Robertson turns it on against his brother in Dallas**\
-`The Leafs scored twice in 16 seconds en route to a win over the Stars despite being badly outshot.`\
-https://nytimes.com/athletic/6005675/2024/12/18/maple-leafs-report-cards-nick-robertson-dallas/
-
-**Canadiens acquire Alexandre Carrier from Predators for Justin Barron**\
-`The defenseman swap helps Montreal in the present and potentially helps Nashville in the future.`\
-https://nytimes.com/athletic/6005657/2024/12/18/canadiens-predators-alexandre-carrier-justin-barron/
-
-**Mets to add former Angels righty Griffin Canning on 1-year deal: Sources**\
-`The Mets add depth with Canning, but they could still look to sign another free-agent starting pitcher or make a trade.`\
-https://nytimes.com/athletic/6005635/2024/12/18/mets-sign-griffin-canning-contract/
 
