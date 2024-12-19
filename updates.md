@@ -1,3 +1,7 @@
+**Commanders' Jonathan Allen, assumed out for the season, has shot at returning**\
+`The two-time Pro Bowler suffered a pectoral injury in Washington's Week 6 loss to Baltimore. `\
+https://nytimes.com/athletic/6006188/2024/12/19/commanders-jonathan-allen-open-practice-window/
+
 **Who Are the 51 Men Convicted in the Gisèle Pelicot Rape Trial?**\
 `Most of the accused received sentences of eight to 10 years, less than the 10- to 18-year terms that the public prosecutor had recommended.`\
 https://nytimes.com/2024/12/19/world/europe/pelicot-rape-trial-convictions.html
