@@ -1,3 +1,7 @@
+**How Each House Member Voted on the Bill to Avoid a Government Shutdown**\
+`The House did not pass a measure that would have funded the federal government for a few months, extended the farm bill and suspended the debt ceiling.`\
+https://nytimes.com/interactive/2024/12/19/us/politics/shutdown-house-vote-live.html
+
 **Its Syrian Bases in Doubt, Russia Sends Cargo Flights to Libya**\
 `A Libyan officer said the stepped-up flights from Russia and Syria delivered military gear.`\
 https://nytimes.com/2024/12/19/world/middleeast/russia-flights-libya-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6008003/2024/12/19/kiernan-dewsbury-hall-chelsea-ja
 **Philadelphia City Council Says Yes to New 76ers Arena Next to Chinatown**\
 `The mayor and labor unions touted the economic promise of the $1.3 billion project. Opponents said the arena would decimate the city’s storied Chinatown.`\
 https://nytimes.com/2024/12/19/us/philadelphia-76ers-arena-chinatown.html
-
-**Rick Kaufmann, Impresario of Art Furniture, Dies at 77**\
-`Was it art or was it furniture? No one was quite sure what to make of the New York movement that an idiosyncratic gallerist led in the 1970s and ’80s.`\
-https://nytimes.com/2024/12/19/arts/design/rick-kaufmann-dead.html
 
