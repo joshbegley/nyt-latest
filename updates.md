@@ -1,3 +1,7 @@
+**Andrew Cuomo Plans to Sue Harassment Accuser for Defamation**\
+`Mr. Cuomo, the former governor of New York, accused a former aide, Charlotte Bennett, of falsely saying that he sexually harassed her, harming his political future.`\
+https://nytimes.com/2024/12/19/nyregion/cuomo-charlotte-bennett-defamation.html
+
 **The Bounce: Let's pick NBA All-Star starters! Plus, Bodega KAT returns to Minnesota tonight!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6006166/2024/12/19/nba-all-star-voting-karl-anthony-towns-timberwolves-knicks-nba-the-bounce/
