@@ -1,3 +1,11 @@
+**William J. Hennessy Jr., Sketch Artist of Courtroom Drama, Dies at 67**\
+`His lively drawings of historic Supreme Court arguments, impeachment trials and murder cases gave the public a peek into venues where cameras were banned.`\
+https://nytimes.com/2024/12/19/business/media/william-j-hennessy-jr-dead.html
+
+**Frank Vatrano is helping to drive the Ducks — is it enough to keep him out of trade talks?**\
+`Vatrano is helping the Ducks establish the type of go-to line that they struggled to find for months.`\
+https://nytimes.com/athletic/6007114/2024/12/19/vatrano-ducks-trade-contract/
+
 **Aluko's civil claim against Barton heard at High Court**\
 `A preliminary hearing in a claim for defamation and harassment brought by TV pundit Eni Aluko against Joey Barton was heard today at London’s High Court.`\
 https://nytimes.com/athletic/6007024/2024/12/19/joey-barton-eni-aluko-high-court/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/us/bird-flu-california-covid-cows.html
 **Adams Hosts Fox News at City Hall, as N.Y. Leaders Mute Trump Hostility**\
 `In an interview with the conservative network, Mayor Eric Adams criticized the Biden administration and did not take aim at President-elect Donald J. Trump. He is not the only New York Democrat treading lightly.`\
 https://nytimes.com/2024/12/19/nyregion/eric-adams-fox-news-trump.html
-
-**‘The Brutalist’ Review: Ambitions Unbound**\
-`Adrien Brody stars as a talented architect who flees postwar Europe to meet his match in America, a power-hungry industrialist played by Guy Pearce.`\
-https://nytimes.com/2024/12/19/movies/the-brutalist-review.html
-
-**Hidden ‘Junk’ Fees Must Be Disclosed, F.T.C. Rule Says**\
-`Hotels, short-term rentals and event ticket-sellers must advertise the full price of their offerings under the rule, which is supposed to go into effect in the coming year. Here’s what to know.`\
-https://nytimes.com/2024/12/19/travel/junk-fees-ftc-rentals-hotels.html
 
