@@ -1,3 +1,7 @@
+**The Bounce: Let's pick NBA All-Star starters! Plus, Bodega KAT returns to Minnesota tonight!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6006166/2024/12/19/nba-all-star-voting-karl-anthony-towns-timberwolves-knicks-nba-the-bounce/
+
 **U.S. Files Murder Charge Against Mangione in C.E.O. Shooting Case**\
 `Federal authorities filed four counts against Luigi Mangione.`\
 https://nytimes.com/2024/12/19/nyregion/luigi-mangione-federal-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006943/2024/12/19/saudi-arabia-gold-cup-guest/
 **With Guilty Verdicts, Victim’s Rape Ordeal in France Becomes a Message of Hope**\
 `Dozens of men who abused Gisèle Pelicot were convicted, including the man who invited them to do so: her husband of 50 years. She wanted the public trial to show rape victims they were not alone.`\
 https://nytimes.com/2024/12/19/world/europe/pelicot-rape-trial-guilty-verdict.html
-
-**Maps: See Israel’s Moves in Syria Since al-Assad Was Toppled**\
-`Israeli fighter jets have launched hundreds of airstrikes, while soldiers have seized a buffer zone and captured military posts in territory formerly under Syrian control.`\
-https://nytimes.com/2024/12/19/world/middleeast/syria-israel-maps.html
 
