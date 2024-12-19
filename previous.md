@@ -1,3 +1,7 @@
+**Calls to the Media: Fight Trump’s Lawsuits**\
+`Readers discuss lawsuits against The Des Moines Register and ABC News. Also: Violence in school; a Mideast bridge; cash and the disabled; murder is wrong.`\
+https://nytimes.com/2024/12/19/opinion/trump-media-lawsuits.html
+
 **White Chicken Chili to Welcome Them Home**\
 `Lidey Heuck’s customizable, five-star chili replenishes and restores.`\
 https://nytimes.com/2024/12/19/dining/white-chicken-chili.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/us/fani-willis-georgia-trump-case.html
 **After the House Delayed a Bill to Add Judges, a Biden Veto Looms**\
 `The Senate backed a bipartisan bill to add dozens of judges, but the House held off on voting until after Election Day. Now, Donald Trump would be assured at least 22 picks.`\
 https://nytimes.com/2024/12/19/us/biden-veto-federal-judges.html
-
-**Gisèle Pelicot Speaks After Rape Trial Verdict: ‘We Share the Same Struggle’**\
-`In brief remarks after her ex-husband and 50 other men were convicted, she said she had never regretted her decision to allow the trial to be public.`\
-https://nytimes.com/2024/12/19/world/europe/gisele-pelicot-rape-trial.html
 

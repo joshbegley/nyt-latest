@@ -1,3 +1,7 @@
+**Calls to the Media: Fight Trump’s Lawsuits**\
+`Readers discuss lawsuits against The Des Moines Register and ABC News. Also: Violence in school; a Mideast bridge; cash and the disabled; murder is wrong.`\
+https://nytimes.com/2024/12/19/opinion/trump-media-lawsuits.html
+
 **White Chicken Chili to Welcome Them Home**\
 `Lidey Heuck’s customizable, five-star chili replenishes and restores.`\
 https://nytimes.com/2024/12/19/dining/white-chicken-chili.html
