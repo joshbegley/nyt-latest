@@ -1,3 +1,15 @@
+**Activists say the sentences for other defendants are too light.**\
+`By Catherine Porter and Ségolène Le Stradic`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/activists-say-the-sentences-for-other-defendants-are-too-light
+
+**Popular Arthritis Drug for Dogs May Have Severe Side Effects, F.D.A. Says**\
+`The agency recommended that the maker of Librela update its label to reflect the possibility of more serious adverse reactions.`\
+https://nytimes.com/2024/12/19/science/fda-drugs-dogs-arthritis-librela.html
+
+**As Vitor Pereira finally gets his dream Premier League move, what can Wolves expect?**\
+`Now in England with Wolves, Pereira has managed 10 different clubs across 11 managerial jobs spanning seven countries and three continents`\
+https://nytimes.com/athletic/6002300/2024/12/19/vitor-pereira-wolves-what-to-expect/
+
 **Wolves appoint Vitor Pereira as new head coach**\
 `Wolverhampton Wanderers have appointed Vitor Pereira as their new head coach.`\
 https://nytimes.com/athletic/5995235/2024/12/19/wolves-appoint-vitor-pereira/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5999945/2024/12/19/nba-lebron-james-ratings-adam-si
 **What does switch to Dorian Thompson-Robinson mean for Browns' future at QB?**\
 `Plus, can Jerry Jeudy keep up his recent production with a new QB under center? And what's next for Jameis Winston? `\
 https://nytimes.com/athletic/6005280/2024/12/19/browns-quarterbacks-dorian-thompson-robinson/
-
-**The Pelicots’ children provided a dramatic moment in the trial.**\
-`By Catherine Porter`\
-https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/the-pelicots-children-provided-a-dramatic-moment-in-the-trial
-
-**Explained: Crystal Palace, Eagle Football and the groups lining up investment bids**\
-`Breaking down which groups are vying to invest in Palace or Eagle and how it could affect the club`\
-https://nytimes.com/athletic/6005195/2024/12/19/crystal-palace-takeover-john-textor-sportsbank/
-
-**49ers mailbag: Will Dre Greenlaw, Talanoa Hufanga be offseason priorities?**\
-`Among this week's questions: I want to buy my 10-year-old nephew a 49ers jersey for Christmas. Which player should I pick?`\
-https://nytimes.com/athletic/6005235/2024/12/19/49ers-mailbag-dre-greenlaw-talanoa-hufanga/
 
