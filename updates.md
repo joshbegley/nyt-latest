@@ -1,3 +1,7 @@
+**Blues trade P.O Joseph to Penguins for future considerations**\
+`P.O Joseph is on his way back to Pittsburgh after a brief stint in St. Louis. `\
+https://nytimes.com/athletic/6005413/2024/12/18/blues-po-joseph-trade-penguins/
+
 **NHL trade grades: Kraken take low-risk bet on Kaapo Kakko, Rangers get little in return**\
 `Kakko never lived up to his ceiling in New York, and he is the type of reclamation project the Kraken should be targeting.`\
 https://nytimes.com/athletic/6005250/2024/12/18/nhl-trade-grades-rangers-kaapo-kakko-kraken/
