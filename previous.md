@@ -1,3 +1,7 @@
+**Artificial Intelligence in 2030**\
+`At the DealBook Summit, ten experts in artificial intelligence discussed the greatest opportunities and risks posed by the technology.`\
+https://nytimes.com/2024/12/19/business/dealbook/artificial-intelligence-in-2030.html
+
 **American Airlines Settles Racial Discrimination Case**\
 `Three Black men had accused the airline of wrongly forcing them to get off a plane for an hour because of a complaint about body odor.`\
 https://nytimes.com/2024/12/19/business/american-airlines-discrimination-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007579/2024/12/19/alvin-kamara-spencer-rattler-sai
 **Spending Deal Debacle Threatens Johnson’s Tenuous Hold on His Job**\
 `A Republican backlash to the speaker’s plan to temporarily fund the government has sparked new talk of ousting him, and highlighted the challenges he will face if he manages to keep his job.`\
 https://nytimes.com/2024/12/19/us/politics/spending-deal-johnson-speaker.html
-
-**Friday Briefing: 51 Men Convicted in French Rape Trial**\
-`Plus, the year in viral moments.`\
-https://nytimes.com/2024/12/19/briefing/french-rape-trial-syria-mayotte.html
 

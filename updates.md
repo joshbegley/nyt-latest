@@ -1,3 +1,7 @@
+**Artificial Intelligence in 2030**\
+`At the DealBook Summit, ten experts in artificial intelligence discussed the greatest opportunities and risks posed by the technology.`\
+https://nytimes.com/2024/12/19/business/dealbook/artificial-intelligence-in-2030.html
+
 **American Airlines Settles Racial Discrimination Case**\
 `Three Black men had accused the airline of wrongly forcing them to get off a plane for an hour because of a complaint about body odor.`\
 https://nytimes.com/2024/12/19/business/american-airlines-discrimination-case.html
