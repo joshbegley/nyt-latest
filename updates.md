@@ -1,3 +1,11 @@
+**Its Syrian Bases in Doubt, Russia Sends Cargo Flights to Libya**\
+`A Libyan officer said the stepped-up flights from Russia and Syria delivered military gear.`\
+https://nytimes.com/2024/12/19/world/middleeast/russia-flights-libya-syria.html
+
+**Greenberg: Finally, Sammy Sosa and the Cubs are getting close to a reunion**\
+`Sosa hit 545 of his 609 career home runs as a Cub but left in a cloud after the '04 season. It’s beneficial for both sides to come together.`\
+https://nytimes.com/athletic/6007959/2024/12/19/chicago-cubs-sammy-sosa-reunion/
+
 **Britain to Name Peter Mandelson as Ambassador to the U.S.**\
 `The veteran Labour lawmaker chosen by Prime Minister Keir Starmer has experience in trade policy and business and was once nicknamed “the Prince of Darkness” for his political tactics.`\
 https://nytimes.com/2024/12/19/world/europe/uk-peter-mandelson-us-ambassador.html
