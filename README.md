@@ -1,3 +1,7 @@
+**Manchester United, dressing-room leaks and why it's not a new problem**\
+`Ruben Amorim is not the first manager to discover that the roof is not the only thing that leaks at Old Trafford`\
+https://nytimes.com/athletic/5986437/2024/12/19/manchester-united-dressing-room-leaks/
+
 **Stephen Bradley: 'They put a gun to my head and stabbed me three times. That's all I remember'**\
 `Bradley nearly died as a teenager while on the books at Arsenal. He returns to London in charge of Shamrock Rovers to face Chelsea`\
 https://nytimes.com/athletic/6000865/2024/12/19/stephen-bradley-arsenal-stabbing-shamrock-chelsea-conference-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/world/europe/dominique-pelicot-france-rape-trial.
 **Spurs vs Man United preview: Storylines, odds, prediction for League Cup quarterfinal**\
 `Tottenham and Manchester United meet in a League Cup quarterfinal that is tantalising given the recent play of both teams.`\
 https://nytimes.com/athletic/6001874/2024/12/19/tottenham-manchester-united-preview-odds-prediction-league-cup/
-
-**G.M. Led in China for Years. Here’s How It Ended Up 16th in Sales.**\
-`General Motors has gone from market leader to also-ran in the world’s largest car market, stymied by its own missteps and Chinese policies that favored its local rivals.`\
-https://nytimes.com/2024/12/19/business/gm-china.html
 
