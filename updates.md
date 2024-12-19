@@ -1,3 +1,7 @@
+**The Pelicots’ children provided a dramatic moment in the trial.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/the-pelicots-children-provided-a-dramatic-moment-in-the-trial
+
 **Explained: Crystal Palace, Eagle Football and the groups lining up investment bids**\
 `Breaking down which groups are vying to invest in Palace or Eagle and how it could affect the club`\
 https://nytimes.com/athletic/6005195/2024/12/19/crystal-palace-takeover-john-textor-sportsbank/
