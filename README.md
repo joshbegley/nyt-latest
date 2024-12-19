@@ -1,3 +1,7 @@
+**Canadiens' Barron-for-Carrier trade sends a message to the room**\
+`As unlikely as it may seem with the Canadiens near the bottom of the standings, management clearly feels this team can still make a push. `\
+https://nytimes.com/athletic/6007462/2024/12/19/canadiens-trade-justin-barron-alexandre-carrier/
+
 **New York to Pay $10 Million in Woman’s Death After Abuse in Group Home**\
 `The state in 2019 paid a $2 million abuse settlement. In retaliation, staff members withheld the victim’s medicine, and she died in a hospital.`\
 https://nytimes.com/2024/12/19/nyregion/ny-group-home-abuse-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007393/2024/12/19/patrick-mahomes-chiefs-start-tex
 **Wisconsin School Shooter May Have Plotted With California Man**\
 `At the request of law enforcement officials, a judge ordered a man, who reportedly corresponded with the shooter about a second attack, to surrender his guns.`\
 https://nytimes.com/2024/12/19/us/wisconsin-school-shooting-plot.html
-
-**Timeline of NASCAR antitrust lawsuit: 23XI, Front Row can race as charter teams**\
-`The NASCAR antitrust lawsuit brought by Michael Jordan&#8217;s 23XI Racing and Front Row Motorsports saw its biggest development yet on Wednesday, as a judge ruled the teams will be allowed to race as charter teams in 2025 as part of a preliminary injunction ruling.`\
-https://nytimes.com/athletic/6000984/2024/12/19/nascar-antitrust-lawsuit-timeline-latest/
 
