@@ -1,3 +1,11 @@
+**Valtteri Bottas returns to Mercedes as F1 reserve driver for 2025 season**\
+`Bottas, 35, spent five seasons racing for Mercedes between 2017 and 2021.`\
+https://nytimes.com/athletic/6006257/2024/12/19/valtteri-bottas-f1-mercedes-2025-reserve-driver/
+
+**What the Senators need to see from Carter Yakemchuk post-World Juniors snub**\
+`Yakemchuk was among the surprise omissions from Canada's selection camp for the World Juniors, leaving many Senators fans disappointed.`\
+https://nytimes.com/athletic/6005084/2024/12/19/carter-yakemchuk-hitmen-senators/
+
 **Ratcliffe invests further £79m into Man Utd, increases INEOS stake in club**\
 `Sir Jim Ratcliffe has transferred ownership of his shares in Manchester United to INEOS, bringing the football club in line with the rest of the sports investments in his petrochemicals company’s portfolio.`\
 https://nytimes.com/athletic/6006099/2024/12/19/manchester-united-ratcliffe-investment/
