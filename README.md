@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6006327/2024/12/19/spurs-jeremy-sochan-wembanyama/
 https://nytimes.com/live/2024/12/19/us/trump-news
 
 **Amazon Workers at Seven Distribution Centers Walk Out**\
-`The retail giant said it expected its operations to be largely unaffected by the strike by some Teamsters union members.`\
+`The retail giant said it expected its operations to be largely unaffected by the strike of some Teamsters union members.`\
 https://nytimes.com/2024/12/19/business/economy/amazon-teamsters-strike.html
 
 **Amazon's NHL behind-the-scenes series renewed, to feature Brady Tkachuk**\
