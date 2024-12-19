@@ -1,3 +1,11 @@
+**Could This 20-Year-Old Be One of the Democrats’ Bro Whisperers?**\
+`Dean Withers argues online with right-wing stars like Charlie Kirk and Ben Shapiro. His goal? To reach their young, male followers.`\
+https://nytimes.com/2024/12/19/style/dean-withers-tiktok.html
+
+**What It Looks Like on an Island Steamrolled by a Cyclone**\
+`A visit to the Indian Ocean islands of Mayotte, which were struck by Cyclone Chido last weekend, reveals the devastating toll of the storm on an impoverished territory that belongs to France.`\
+https://nytimes.com/2024/12/19/world/europe/mayotte-france-cyclone-destruction.html
+
 **Appeals Court Disqualifies Fani Willis From Prosecuting Georgia Trump Case**\
 `The panel overruled the trial judge, who had allowed Fani T. Willis to keep the case despite revelations of a romantic relationship that defendants said created a conflict of interest.`\
 https://nytimes.com/2024/12/19/us/fani-willis-georgia-trump-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/magazine/judge-john-hodgman-on-invisible-ink-graf
 **Penguins Today: Sidney Crosby is alive and well**\
 `Crosby is heating up as the Penguins make their annual trip to Nashville on Thursday. `\
 https://nytimes.com/athletic/6006427/2024/12/19/penguins-today-sidney-crosby/
-
-**MLS general allocation money: first-ever look at teams' spending flexibility**\
-`For the first time, MLS has revealed details of the general allocation money its teams have to spend over the salary cap`\
-https://nytimes.com/athletic/6006455/2024/12/19/mls-general-allocation-salarycap/
-
-**If You Can See the Tree, There Is Room for More Decorations**\
-`Minimalism is on the naughty list this Christmas as people decorate their trees with bows, garland, tinsel, ornaments and, well, anything else that will fit on a branch.`\
-https://nytimes.com/2024/12/19/style/christmas-tree-ornaments-decorating.html
 
