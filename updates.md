@@ -1,3 +1,7 @@
+**The transfer portal and Playoff calendar is a 'total mess.' CFB coaches have 5 solutions**\
+`College football coaches came up with five solutions to fix the sport's "broken" calendar.`\
+https://nytimes.com/athletic/6004927/2024/12/19/college-football-transfer-portal-broken-calendar-solutions/
+
 **Everton's Friedkin Group takeover explained: How rich are they? How will the club change?**\
 `Here's everything you need to know about the Everton takeover - and what The Friedkin Group will bring to the club`\
 https://nytimes.com/athletic/5974316/2024/12/19/evertons-friedkin-group-takeover-explained/
