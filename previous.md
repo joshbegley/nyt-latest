@@ -1,3 +1,15 @@
+**Friday Briefing: 51 Men Convicted in French Rape Trial**\
+`Plus, the year in viral moments.`\
+https://nytimes.com/2024/12/19/briefing/french-rape-trial-syria-mayotte.html
+
+**Joanne Pierce Misko, Ex-Nun Who Made F.B.I. History, Dies at 83**\
+`She and Susan Malone were sworn in together in 1972 as the first female agents, only months after the bureau opened the door to women.`\
+https://nytimes.com/2024/12/19/us/joanne-pierce-misko-dead.html
+
+**The First-Ever ‘Where to Eaties’ Awards**\
+`The best place to wash your hands, the restaurant that will scare your parents and more 2024 superlatives.`\
+https://nytimes.com/2024/12/19/dining/the-first-ever-where-to-eaties-awards.html
+
 **Movie Shelved After Jonathan Majors’s Arrest Gets Release Date**\
 `Before the actor was charged with assault, “Magazine Dreams” generated Oscar buzz for his performance as a bodybuilder. The movie is now scheduled to reach theaters in March.`\
 https://nytimes.com/2024/12/19/movies/magazine-dreams-jonathan-majors.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/nyregion/100000009888025/lewis-martin-bribery-charges-
 **Until Saturday: It's almost time for the first round of the 12-team CFP**\
 `Welcome to Until Saturday, the five-star college football newsletter: The 12-team Playoff is almost here.`\
 https://nytimes.com/athletic/6006463/2024/12/19/college-football-playoff-first-round-games-until-saturday/
-
-**Sammy Sosa acknowledges 'mistakes,' moves closer to reunion with Cubs**\
-`After Sosa apologized for past actions in a written statement, the Cubs invited him to 2025 Cubs Convention.`\
-https://nytimes.com/athletic/6007487/2024/12/19/sammy-sosa-cubs-reunion/
-
-**Submit your Dodgers questions for Fabian Ardaya's mailbag**\
-`Submit your Dodgers questions for Fabian Ardaya's mailbag`\
-https://nytimes.com/athletic/6007461/2024/12/19/dodgers-offseason-mailbag-sasaki/
-
-**How Oilers' Zach Hyman was fortunate to only end up with a broken nose**\
-`Hyman suffered a broken nose and two black eyes when he was hit in the face by a deflected slap shot on Monday.`\
-https://nytimes.com/athletic/6007410/2024/12/19/zach-hyman-broken-nose-oilers/
 

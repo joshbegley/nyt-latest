@@ -1,3 +1,15 @@
+**Friday Briefing: 51 Men Convicted in French Rape Trial**\
+`Plus, the year in viral moments.`\
+https://nytimes.com/2024/12/19/briefing/french-rape-trial-syria-mayotte.html
+
+**Joanne Pierce Misko, Ex-Nun Who Made F.B.I. History, Dies at 83**\
+`She and Susan Malone were sworn in together in 1972 as the first female agents, only months after the bureau opened the door to women.`\
+https://nytimes.com/2024/12/19/us/joanne-pierce-misko-dead.html
+
+**The First-Ever ‘Where to Eaties’ Awards**\
+`The best place to wash your hands, the restaurant that will scare your parents and more 2024 superlatives.`\
+https://nytimes.com/2024/12/19/dining/the-first-ever-where-to-eaties-awards.html
+
 **Movie Shelved After Jonathan Majors’s Arrest Gets Release Date**\
 `Before the actor was charged with assault, “Magazine Dreams” generated Oscar buzz for his performance as a bodybuilder. The movie is now scheduled to reach theaters in March.`\
 https://nytimes.com/2024/12/19/movies/magazine-dreams-jonathan-majors.html
