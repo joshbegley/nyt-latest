@@ -1,3 +1,7 @@
+**Shorthanded Wild handed humbling loss by Cup champion Panthers: Takeaways**\
+`It's the first time this season the Wild have lost two consecutive games in regulation.`\
+https://nytimes.com/athletic/6005712/2024/12/19/wild-humbling-loss-panthers-injuries/
+
 **Real Madrid 3 Pachuca 0: Vinicius Jr's victory lap and Ancelotti's record-breaking 15th title**\
 `Real Madrid are World club champions after winning the Intercontinental Cup in Qatar - there were records broken and old wounds healed`\
 https://nytimes.com/athletic/6004889/2024/12/19/real-madrid-intercontinental-cup-vinicius-mbappe-ancelotti/
