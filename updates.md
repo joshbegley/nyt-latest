@@ -1,3 +1,11 @@
+**Submit your Dodgers questions for Fabian Ardaya's mailbag**\
+`Submit your Dodgers questions for Fabian Ardaya's mailbag`\
+https://nytimes.com/athletic/6007461/2024/12/19/dodgers-offseason-mailbag-sasaki/
+
+**How Oilers' Zach Hyman was fortunate to only end up with a broken nose**\
+`Hyman suffered a broken nose and two black eyes when he was hit in the face by a deflected slap shot on Monday.`\
+https://nytimes.com/athletic/6007410/2024/12/19/zach-hyman-broken-nose-oilers/
+
 **Chiefs' Patrick Mahomes 'will most likely' start vs. Texans**\
 `Mahomes exited the Chiefs' Week 15 win over the Cleveland Browns midway through the fourth quarter with an ankle injury.`\
 https://nytimes.com/athletic/6007393/2024/12/19/patrick-mahomes-chiefs-start-texans/
