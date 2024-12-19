@@ -1,3 +1,7 @@
+**NHL trade grades: Kraken take low-risk bet on Kaapo Kakko, Rangers get little in return**\
+`Kakko never lived up to his ceiling in New York and he is the type of reclamation project the Kraken should have been targeting.`\
+https://nytimes.com/athletic/6005250/2024/12/18/nhl-trade-grades-rangers-kaapo-kakko-kraken/
+
 **Top transfer QB John Mateer commits to Oklahoma after 3 years at Wazzu**\
 `Mateer, who started all 12 games for the Cougars this season, will reunite with his former offensive coordinator Ben Arbuckle.`\
 https://nytimes.com/athletic/6005338/2024/12/18/john-mateer-oklahoma-transfer-washington-state/
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/intuit/the-one-solution-to-grow-your-enterprise-lev
 **The Case for Throwing Stones From a Glass House**\
 `One of the epic moral battles of this century is the one against sexual violence worldwide, and the U.S. has a chance to lead.`\
 https://nytimes.com/2024/12/18/opinion/sexual-violence-women.html
-
-**Temporarily Disconnected From Politics? Feel No Guilt About It.**\
-`Black women aren’t the only voters who are taking a moment.`\
-https://nytimes.com/2024/12/18/opinion/trump-liberals-resistance.html
 
