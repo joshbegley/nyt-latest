@@ -1,3 +1,7 @@
+**Corrections: Dec. 19, 2024**\
+`Corrections that appeared in print on Thursday, Dec. 19, 2024.`\
+https://nytimes.com/2024/12/18/pageoneplus/corrections-dec-19-2024.html
+
 **Congestion Pricing Settlement Stalls Between New York and New Jersey**\
 `Gov. Kathy Hochul said New York offered New Jersey “generous” incentives to settle its lawsuit against the tolling plan. A judge could soon determine the program’s fate.`\
 https://nytimes.com/2024/12/18/nyregion/congestion-pricing-ny-nj-hochul.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005162/2024/12/18/vanderbilt-qb-diego-pavia-prelim
 **On a busy day for roster moves, Blue Jackets get good news on injury front**\
 `Dante Fabbro may miss some games, but the veteran defenseman's injuries aren't as extensive as feared.`\
 https://nytimes.com/athletic/6005046/2024/12/18/blue-jackets-dante-fabbro-injury-update/
-
-**Rangers trade Kaapo Kakko to Kraken for Will Borgen, 2 draft picks**\
-`The 23-year-old played six seasons with the Rangers and had found early success on the third line this season.`\
-https://nytimes.com/athletic/6004718/2024/12/18/rangers-kaapo-kakko-trade-seattle-will-borgen-picks/
 
