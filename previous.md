@@ -1,3 +1,11 @@
+**Carabao Cup SF draw: Liverpool-Tottenham, Arsenal-Newcastle**\
+`Liverpool will play Tottenham Hotspur at the semi-final stage of the Carabao Cup, while Arsenal will take on Newcastle United.`\
+https://nytimes.com/athletic/6007157/2024/12/19/carabao-cup-semi-final-draw-2024-25/
+
+**Oysters Sicken at Least 80 at Restaurant Event in Los Angeles, Officials Say**\
+`The county Health Department said that the outbreak at the 101 Best Restaurants event was linked to a broader outbreak from oysters that have since been recalled.`\
+https://nytimes.com/2024/12/19/us/oysters-norovirus-los-angeles.html
+
 **Mayotte Residents Struggle With Cyclone Chido Aftermath**\
 `Residents of Mayotte began relief efforts after Cyclone Chido devastated the French territory. Emmanuel Macron, President of France, surveyed the damage and received a mixed welcome.`\
 https://nytimes.com/video/weather/100000009888690/french-territory-mayotte-cyclone-chido.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5992983/2024/12/19/tottenham-man-united-forster-mis
 **Inside the Kaapo Kakko-Will Borgen trade, Vincent Trocheck defends Chris Drury and more**\
 `Trocheck requested to speak with reporters to dispel a report that the Rangers had a players-only meeting criticizing their general manager.`\
 https://nytimes.com/athletic/6007603/2024/12/19/rangers-kakko-borgen-trade-trocheck-drury/
-
-**Red Sox say they thoroughly investigated Aroldis Chapman; reliever open to any role**\
-`Chapman said he's undergone therapy following his 2016 suspension and the Red Sox "I think they did do their due diligence."`\
-https://nytimes.com/athletic/6007582/2024/12/19/red-sox-aroldis-chapman-introduction/
-
-**Artificial Intelligence in 2030**\
-`At the DealBook Summit, ten experts in artificial intelligence discussed the greatest opportunities and risks posed by the technology.`\
-https://nytimes.com/2024/12/19/business/dealbook/artificial-intelligence-in-2030.html
 
