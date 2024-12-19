@@ -1,3 +1,7 @@
+**The transfer portal and Playoff calendar is a 'total mess.' CFB coaches have 5 solutions**\
+`College football coaches came up with five solutions to fix the sport's "broken" calendar.`\
+https://nytimes.com/athletic/6004927/2024/12/19/college-football-transfer-portal-broken-calendar-solutions/
+
 **On a Flight With Gaza’s Rare Evacuees**\
 `The war in Gaza is one of the few conflicts most civilians can’t escape.`\
 https://nytimes.com/video/world/middleeast/100000009872530/on-a-flight-with-gazas-rare-evacuees.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005133/2024/12/19/cowboys-cooper-rush-backup-quart
 **Stephon Castle's minutes, Grizzlies rotation and Amen Thompson's midrange shot: Mailbag**\
 `Kelly Iko answers your questions on the trade deadline, Spurs, Rockets and Grizzlies.`\
 https://nytimes.com/athletic/6001483/2024/12/19/stephon-castle-spurs-grizzlies-rotation-amen-thompson-rockets/
-
-**Scouting John Mateer: What the dual-threat quarterback will bring to Oklahoma**\
-`The former three-star prospect from Texas ranks fifth nationally in total offense with 330.4 yards per game. `\
-https://nytimes.com/athletic/6005643/2024/12/19/john-mateer-portal-quarterback-oklahoma/
 
