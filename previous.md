@@ -1,3 +1,7 @@
+**Late Night Continues to Drone On About Sightings in the Sky**\
+`“‘Nothing nefarious, apparently’ doesn’t exactly inspire confidence,” Stephen Colbert said of President Biden’s comments about mysterious drones seen over New Jersey.`\
+https://nytimes.com/2024/12/19/arts/television/late-night-drones.html
+
 **Brock Faber injury is latest gut punch for reeling Wild in 6-1 loss to Panthers**\
 `Considering the team's injuries, the fact it took Minnesota until Game 32 to have its first back-to-back regulation losses is remarkable.`\
 https://nytimes.com/athletic/6005890/2024/12/19/brock-faber-injury-wild-lose-to-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot
 **Liverpool's adaptability in adversity is becoming one of their greatest strengths**\
 `A rotated line-up with square pegs in round holes cruised to victory at Southampton - it was an ominous sign for Liverpool's rivals`\
 https://nytimes.com/athletic/6005508/2024/12/19/liverpool-carabao-cup-wataru-endo-slot/
-
-**Nketiah is showing signs of progress at Crystal Palace - that is reason to be hopeful**\
-`Eddie Nketiah scored for Crystal Palace in their loss against Arsenal on Wednesday night`\
-https://nytimes.com/athletic/6001100/2024/12/19/eddie-nketiah-crystal-palace-analysis/
 
