@@ -1,3 +1,7 @@
+**Liverpool's adaptability in adversity is becoming one of their greatest strengths**\
+`A rotated line-up with square pegs in round holes cruised to victory at Southampton - it was an ominous sign for Liverpool's rivals`\
+https://nytimes.com/athletic/6005508/2024/12/19/liverpool-carabao-cup-wataru-endo-slot/
+
 **Nketiah is showing signs of progress at Crystal Palace - that is reason to be hopeful**\
 `Eddie Nketiah scored for Crystal Palace in their loss against Arsenal on Wednesday night`\
 https://nytimes.com/athletic/6001100/2024/12/19/eddie-nketiah-crystal-palace-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/opinion/netanyahu-israel-power.html
 **Short-handed Wild handed humbling loss by Cup champion Panthers: Takeaways**\
 `It's the first time this season the Wild have lost two consecutive games in regulation.`\
 https://nytimes.com/athletic/6005712/2024/12/19/wild-humbling-loss-panthers-injuries/
-
-**Real Madrid 3 Pachuca 0: Vinicius Jr's victory lap and Ancelotti's record-breaking 15th title**\
-`Real Madrid are World club champions after winning the Intercontinental Cup in Qatar - there were records broken and old wounds healed`\
-https://nytimes.com/athletic/6004889/2024/12/19/real-madrid-intercontinental-cup-vinicius-mbappe-ancelotti/
 
