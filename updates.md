@@ -1,3 +1,11 @@
+**An Election Draw Decided by a Straw**\
+`In an era of invective and distrust, two California candidates turned a tie over to chance.`\
+https://nytimes.com/2024/12/18/us/politics/galt-california-election-tie.html
+
+**Why the Chicago Cubs are so intent on continuing to add more pitching **\
+`Jed Hoyer said this week, “It takes a lot of arms — a lot of really good arms — to get through the season.”`\
+https://nytimes.com/athletic/6005211/2024/12/18/cubs-offseason-pitching-plans/
+
 **Vanderbilt QB Diego Pavia granted preliminary injunction**\
 `Pavia filed an antitrust suit against the NCAA arguing against a rule counting junior college seasons toward an athlete’s four years.`\
 https://nytimes.com/athletic/6005162/2024/12/18/vanderbilt-qb-diego-pavia-preliminary-injunction/

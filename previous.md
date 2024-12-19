@@ -1,3 +1,11 @@
+**An Election Draw Decided by a Straw**\
+`In an era of invective and distrust, two California candidates turned a tie over to chance.`\
+https://nytimes.com/2024/12/18/us/politics/galt-california-election-tie.html
+
+**Why the Chicago Cubs are so intent on continuing to add more pitching **\
+`Jed Hoyer said this week, “It takes a lot of arms — a lot of really good arms — to get through the season.”`\
+https://nytimes.com/athletic/6005211/2024/12/18/cubs-offseason-pitching-plans/
+
 **Vanderbilt QB Diego Pavia granted preliminary injunction**\
 `Pavia filed an antitrust suit against the NCAA arguing against a rule counting junior college seasons toward an athlete’s four years.`\
 https://nytimes.com/athletic/6005162/2024/12/18/vanderbilt-qb-diego-pavia-preliminary-injunction/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/12/18/opinion/trump-liberals-resistance.html
 **'Nothing but spectacular': James Cook quietly amassing historic Bills numbers**\
 `While Josh Allen is getting all the MVP hype, Cook is putting up numbers not seen in Buffalo since O.J. Simpson and Thurman Thomas.`\
 https://nytimes.com/athletic/6004646/2024/12/18/buffalo-bills-james-cook-historic-season/
-
-**If Commanders leave for D.C., Maryland has a plan in place**\
-`The Athletic looks into the agreement between the Commanders and the State of Maryland if the team agrees to leave for Washington D.C.`\
-https://nytimes.com/athletic/6004756/2024/12/18/washington-commanders-maryland-rfk-stadium/
-
-**E.P.A. Allows California to Ban Sales of New Gas-Powered Cars by 2035**\
-`The Trump administration is expected to revoke the program, setting up a legal clash between the state and federal government.`\
-https://nytimes.com/2024/12/18/climate/california-ban-new-gasoline-powered-cars.html
 
