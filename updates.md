@@ -1,3 +1,7 @@
+**F.A.A. Bans Drone Flights Near ‘Critical Infrastructure’ in New Jersey**\
+`The ban runs through Jan. 17 and precludes most drone flights in airspace near 22 communities, including the cities of Camden, Elizabeth and Jersey City.`\
+https://nytimes.com/2024/12/19/nyregion/faa-bans-drone-flights-new-jersey.html
+
 **Could This 20-Year-Old Be One of the Democrats’ Bro Whisperers?**\
 `Dean Withers argues online with right-wing stars like Charlie Kirk and Ben Shapiro. His goal? To reach their young, male followers.`\
 https://nytimes.com/2024/12/19/style/dean-withers-tiktok.html
