@@ -1,3 +1,7 @@
+**Congestion Pricing Settlement Stalls Between New York and New Jersey**\
+`Gov. Kathy Hochul said New York offered New Jersey “generous” incentives to settle its lawsuit against the tolling plan. A judge could soon determine the program’s fate.`\
+https://nytimes.com/2024/12/18/nyregion/congestion-pricing-ny-nj-hochul.html
+
 **Blues trade P.O Joseph to Penguins for future considerations**\
 `P.O Joseph is on his way back to Pittsburgh after a brief stint in St. Louis. `\
 https://nytimes.com/athletic/6005413/2024/12/18/blues-po-joseph-trade-penguins/
