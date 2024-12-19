@@ -1,3 +1,7 @@
+**Rupert Murdoch’s Appeal to Alter Family Trust Faces Uphill Battle**\
+`Mr. Murdoch’s appeal over whether he can consolidate his son Lachlan’s power over his media empire is due just before Christmas.`\
+https://nytimes.com/2024/12/19/business/media/rupert-murdoch-lachlan-family-trust.html
+
 **Artificial Intelligence in 2030**\
 `At the DealBook Summit, ten experts in artificial intelligence discussed the greatest opportunities and risks posed by the technology.`\
 https://nytimes.com/2024/12/19/business/dealbook/artificial-intelligence-in-2030.html
