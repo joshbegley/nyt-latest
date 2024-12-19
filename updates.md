@@ -1,3 +1,19 @@
+**After the House Delayed a Bill to Add Judges, a Biden Veto Looms**\
+`The Senate backed a bipartisan bill to add dozens of judges, but the House held off on voting until after Election Day. Now, Donald Trump would be assured at least 22 picks.`\
+https://nytimes.com/2024/12/19/us/biden-veto-federal-judges.html
+
+**Gisèle Pelicot Speaks After Rape Trial Verdict: ‘We Share the Same Struggle’**\
+`In brief remarks after her ex-husband and 50 other men were convicted, she said she had never regretted her decision to allow the trial to be public.`\
+https://nytimes.com/2024/12/19/world/europe/gisele-pelicot-rape-trial.html
+
+**F.A.A. Bans Drone Flights Near 22 Communities in New Jersey**\
+`The ban runs through Jan. 17 and precludes most flights near some of the state’s largest cities, including Camden, Elizabeth and Jersey City. Sightings have set off fear and disinformation.`\
+https://nytimes.com/2024/12/19/nyregion/faa-bans-drone-flights-new-jersey.html
+
+**Penguins Today: Sidney Crosby is alive and well**\
+`Crosby is heating up as the Penguins make their annual trip to Nashville on Thursday. `\
+https://nytimes.com/athletic/6006427/2024/12/19/penguins-today-sidney-crosby/
+
 **A Famed Iowa Pollster’s Career Ends With a ‘Spectacular Miss’ and a Trump Lawsuit**\
 `Known for her “gold standard” polls of Iowans, J. Ann Selzer is facing retribution from Donald Trump after her final 2024 survey showed a surprising, and ultimately wrong, winner.`\
 https://nytimes.com/2024/12/19/us/politics/ann-selzer-iowa-trump.html
