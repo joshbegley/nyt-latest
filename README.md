@@ -1,3 +1,7 @@
+**With Guilty Verdicts, Victim’s Rape Ordeal in France Becomes a Message of Hope**\
+`Dozens of men who abused Gisèle Pelicot were convicted, including the man who invited them to do so: her husband of 50 years. She wanted the public trial to show rape victims they were not alone.`\
+https://nytimes.com/2024/12/19/pelicot-rape-trial-guilty-verdict.html
+
 **Maps: See Israel’s Moves in Syria Since al-Assad Was Toppled**\
 `Israeli fighter jets have launched hundreds of airstrikes, while soldiers have seized a buffer zone and captured military posts in territory formerly under Syrian control.`\
 https://nytimes.com/2024/12/19/world/middleeast/syria-israel-maps.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009887001/gisle-pelicot-rape-trial-
 **It’s a Mistake to Charge Luigi Mangione With Terrorism**\
 `It could complicate a simple case and turn it into a political circus.`\
 https://nytimes.com/2024/12/19/opinion/luigi-mangione-terrorism.html
-
-**All They Want for Christmas? This Mariah Carey Bar.**\
-`A New York City lounge devoted to the singer plays her 1994 holiday hit every 15 minutes.`\
-https://nytimes.com/2024/12/19/style/mariah-carey-holiday-bar-nyc.html
 
