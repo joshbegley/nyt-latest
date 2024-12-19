@@ -1,3 +1,11 @@
+**Andrés Giménez joins the Blue Jays ready to make adjustments**\
+`The Blue Jays acquired Giménez with ideas in mind to help him get back to his 2022 levels offensively.`\
+https://nytimes.com/athletic/6005186/2024/12/18/andres-gimenez-blue-jays-adjustments/
+
+**Why the Chicago Cubs are so intent on continuing to add more pitching **\
+`Jed Hoyer said, “It takes a lot of arms — a lot of really good arms — to get through the season.”`\
+https://nytimes.com/athletic/6005211/2024/12/18/cubs-offseason-pitching-plans/
+
 **An Election Draw Decided by a Straw**\
 `In an era of invective and distrust, two California candidates turned a tie over to chance.`\
 https://nytimes.com/2024/12/18/us/politics/galt-california-election-tie.html
