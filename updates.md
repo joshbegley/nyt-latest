@@ -1,3 +1,15 @@
+**What's next for the Predators? Despite disappointment, GM Barry Trotz says: 'We’re not selling off'**\
+`With three trades already in the bag, the Predators aren't going into fire-sale mode. So no Steven Stamkos trade? Trotz: "There’s no chance"`\
+https://nytimes.com/athletic/6006850/2024/12/19/predators-disappointment-barry-trotz/
+
+**Valencia not for sale but Lim would 'study' offers - club president**\
+`Valencia club president Lay Hoon Chan says the club is not up for sale but that owner Peter Lim would study any offers received.`\
+https://nytimes.com/athletic/6006761/2024/12/19/valencia-owner-peter-lim-sale/
+
+**Heat Today: 'UCLA boys' Jaime Jaquez Jr. and Kevin Love keep team vibes high**\
+`They may be 13 years apart, but Love and Jaquez share more than an alma mater. `\
+https://nytimes.com/athletic/6006726/2024/12/19/kevin-love-jaime-jaquez-jr-heat-ucla-nba/
+
 **Giséle Pelicot’s Ex-Husband Found Guilty in Mass Rape Trial**\
 `A French court found the ex-husband of Ms. Pelicot, Dominique Pelicot, guilty and sentenced him to 20 years in jail. Fifty other men were also convicted in the mass rape trial.`\
 https://nytimes.com/video/world/europe/100000009887001/gisle-pelicot-rape-trial-case.html
