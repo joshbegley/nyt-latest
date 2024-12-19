@@ -2,7 +2,7 @@
 `The Israeli prime minister remains in power.`\
 https://nytimes.com/2024/12/19/opinion/netanyahu-israel-power.html
 
-**Shorthanded Wild handed humbling loss by Cup champion Panthers: Takeaways**\
+**Short-handed Wild handed humbling loss by Cup champion Panthers: Takeaways**\
 `It's the first time this season the Wild have lost two consecutive games in regulation.`\
 https://nytimes.com/athletic/6005712/2024/12/19/wild-humbling-loss-panthers-injuries/
 
