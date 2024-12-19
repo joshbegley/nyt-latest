@@ -8,7 +8,7 @@ https://nytimes.com/2024/12/19/business/american-airlines-discrimination-case.ht
 
 **Rupert Murdoch’s Appeal to Alter Family Trust Faces Uphill Battle**\
 `Mr. Murdoch’s appeal over whether he can consolidate his son Lachlan’s power over his media empire is due just before Christmas.`\
-https://nytimes.com/2024/12/19/business/media/rupert-murdochs-appeal-to-alter-family-trust-faces-uphill-battle.html
+https://nytimes.com/2024/12/19/business/media/rupert-murdoch-lachlan-family-trust.html
 
 **Submit questions about trades, free agency and more for Jim Bowden’s MLB mailbag**\
 `What does your team still need to do this offseason? Where will the remaining big-name free agents sign? Which stars will get traded? `\
