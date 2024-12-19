@@ -1,3 +1,11 @@
+**Inside the Kaapo Kakko-Will Borgen trade, Vincent Trocheck defends Chris Drury and more**\
+`Trocheck requested to speak with reporters to dispel a report that the Rangers had a players-only meeting criticizing their general manager.`\
+https://nytimes.com/athletic/6007603/2024/12/19/rangers-kakko-borgen-trade-trocheck-drury/
+
+**Red Sox say they thoroughly investigated Aroldis Chapman; reliever open to any role**\
+`Chapman said he's undergone therapy following his 2016 suspension and the Red Sox "I think they did do their due diligence."`\
+https://nytimes.com/athletic/6007582/2024/12/19/red-sox-aroldis-chapman-introduction/
+
 **Artificial Intelligence in 2030**\
 `At the DealBook Summit, ten experts in artificial intelligence discussed the greatest opportunities and risks posed by the technology.`\
 https://nytimes.com/2024/12/19/business/dealbook/artificial-intelligence-in-2030.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6007600/2024/12/19/patriots-christian-barmore-illne
 **5 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/12/19/books/review/new-books-recommendations.html
-
-**Saints' Alvin Kamara unlikely to play, Spencer Rattler to start vs. Packers**\
-`Kamara left the Saints' Week 15 loss to Washington in the second half with a groin injury. The Saints are 0-3 when Rattler has started.`\
-https://nytimes.com/athletic/6007579/2024/12/19/alvin-kamara-spencer-rattler-saints-packers/
-
-**Spending Deal Debacle Threatens Johnson’s Tenuous Hold on His Job**\
-`A Republican backlash to the speaker’s plan to temporarily fund the government has sparked new talk of ousting him, and highlighted the challenges he will face if he manages to keep his job.`\
-https://nytimes.com/2024/12/19/us/politics/spending-deal-johnson-speaker.html
 

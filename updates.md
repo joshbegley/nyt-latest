@@ -1,3 +1,11 @@
+**Inside the Kaapo Kakko-Will Borgen trade, Vincent Trocheck defends Chris Drury and more**\
+`Trocheck requested to speak with reporters to dispel a report that the Rangers had a players-only meeting criticizing their general manager.`\
+https://nytimes.com/athletic/6007603/2024/12/19/rangers-kakko-borgen-trade-trocheck-drury/
+
+**Red Sox say they thoroughly investigated Aroldis Chapman; reliever open to any role**\
+`Chapman said he's undergone therapy following his 2016 suspension and the Red Sox "I think they did do their due diligence."`\
+https://nytimes.com/athletic/6007582/2024/12/19/red-sox-aroldis-chapman-introduction/
+
 **Rupert Murdoch’s Appeal to Alter Family Trust Faces Uphill Battle**\
 `Mr. Murdoch’s appeal over whether he can consolidate his son Lachlan’s power over his media empire is due just before Christmas.`\
 https://nytimes.com/2024/12/19/business/media/rupert-murdoch-lachlan-family-trust.html
