@@ -1,3 +1,7 @@
+**U.S. Files Murder Charge Against Mangione That Could Bring Death Penalty**\
+`Federal authorities filed a total of four counts against Luigi Mangione, who is accused of killing Brian Thompson, the chief executive of UnitedHealthcare.`\
+https://nytimes.com/2024/12/19/nyregion/luigi-mangione-federal-charges.html
+
 **The Simplest Way to Make Creamy Scrambled Eggs for a Crowd**\
 `All it takes is one pot, two dozen eggs and 10 minutes of cooking to serve breakfast to a full house.`\
 https://nytimes.com/2024/12/19/dining/big-batch-scrambled-eggs.html

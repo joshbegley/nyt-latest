@@ -14,8 +14,8 @@ https://nytimes.com/2024/12/19/nyregion/cuomo-charlotte-bennett-defamation.html
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6006166/2024/12/19/nba-all-star-voting-karl-anthony-towns-timberwolves-knicks-nba-the-bounce/
 
-**U.S. Files Murder Charge Against Mangione in C.E.O. Shooting Case**\
-`Federal authorities filed four counts against Luigi Mangione, who is accused of killing Brian Thompson, the chief executive of UnitedHealthcare.`\
+**U.S. Files Murder Charge Against Mangione That Could Bring Death Penalty**\
+`Federal authorities filed a total of four counts against Luigi Mangione, who is accused of killing Brian Thompson, the chief executive of UnitedHealthcare.`\
 https://nytimes.com/2024/12/19/nyregion/luigi-mangione-federal-charges.html
 
 **Scoop City: Jets drama, how flexing TNF ruined plans & defensive improvements**\
