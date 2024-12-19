@@ -1,3 +1,11 @@
+**William J. Hennessy Jr., Sketch Artist of Courtroom Drama, Dies at 67**\
+`His lively drawings of historic Supreme Court arguments, impeachment trials and murder cases gave the public a peek into venues where cameras were banned.`\
+https://nytimes.com/2024/12/19/business/media/william-j-hennessy-jr-dead.html
+
+**Frank Vatrano is helping to drive the Ducks — is it enough to keep him out of trade talks?**\
+`Vatrano is helping the Ducks establish the type of go-to line that they struggled to find for months.`\
+https://nytimes.com/athletic/6007114/2024/12/19/vatrano-ducks-trade-contract/
+
 **Aluko's civil claim against Barton heard at High Court**\
 `A preliminary hearing in a claim for defamation and harassment brought by TV pundit Eni Aluko against Joey Barton was heard today at London’s High Court.`\
 https://nytimes.com/athletic/6007024/2024/12/19/joey-barton-eni-aluko-high-court/
