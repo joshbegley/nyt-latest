@@ -1,3 +1,7 @@
+**Mayotte Residents Struggle With Cyclone Chido Aftermath**\
+`Residents of Mayotte began relief efforts after Cyclone Chido devastated the French territory. Emmanuel Macron, President of France, surveyed the damage and received a mixed welcome.`\
+https://nytimes.com/video/weather/100000009888690/french-territory-mayotte-cyclone-chido.html
+
 **More Than Twice as Many U.S. Troops Are in Syria Than Previously Disclosed**\
 `A Pentagon spokesman said the increase was unrelated to the fall of President Bashar al-Assad to rebel forces in early December.`\
 https://nytimes.com/2024/12/19/us/politics/us-troops-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007582/2024/12/19/red-sox-aroldis-chapman-introduc
 **Artificial Intelligence in 2030**\
 `At the DealBook Summit, ten experts in artificial intelligence discussed the greatest opportunities and risks posed by the technology.`\
 https://nytimes.com/2024/12/19/business/dealbook/artificial-intelligence-in-2030.html
-
-**American Airlines Settles Racial Discrimination Case**\
-`Three Black men had accused the airline of wrongly forcing them to get off a plane for an hour because of a complaint about body odor.`\
-https://nytimes.com/2024/12/19/business/american-airlines-discrimination-case.html
 
