@@ -1,3 +1,7 @@
+**The Simplest Way to Make Creamy Scrambled Eggs for a Crowd**\
+`All it takes is one pot, two dozen eggs and 10 minutes of cooking to serve breakfast to a full house.`\
+https://nytimes.com/2024/12/19/dining/big-batch-scrambled-eggs.html
+
 **2024 Was the Year of Chickpea Anxiety**\
 `It was also a good year for easy, excellent bean recipes and cooking yourself cauliflowers.`\
 https://nytimes.com/2024/12/19/dining/2024-best-veggie-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007010/2024/12/19/dallas-wilson-oregon-florida-rec
 **Paul Pogba's brother given suspended prison sentence over extortion plot**\
 `The brother of Paul Pogba has been found guilty of attempting to extort the former France and Manchester United midfielder.`\
 https://nytimes.com/athletic/5949496/2024/12/19/pogba-brother-trial-extortion/
-
-**NFL Week 16 fantasy football, betting cheat sheet: Niners RB Isaac Guerendo ailing, may sit Sunday**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/6001045/2024/12/19/nfl-week-16-fantasy-football-betting-cheat-sheet/
 
