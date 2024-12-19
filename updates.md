@@ -1,3 +1,7 @@
+**Everton's Friedkin Group takeover explained: How rich are they? How will the club change?**\
+`Here's everything you need to know about the Everton takeover - and what The Friedkin Group will bring to the club`\
+https://nytimes.com/athletic/5974316/2024/12/19/evertons-friedkin-group-takeover-explained/
+
 **On a Flight With Gaza’s Rare Evacuees**\
 `The war in Gaza is one of the few conflicts most civilians can’t escape.`\
 https://nytimes.com/video/world/middleeast/100000009872530/on-a-flight-with-gazas-rare-evacuees.html
