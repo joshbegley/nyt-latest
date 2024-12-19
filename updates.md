@@ -1,3 +1,7 @@
+**Word of the Day: combustion**\
+`This word has appeared in 97 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/19/learning/word-of-the-day-combustion.html
+
 **Progress and progression: Newcastle close in on dreamland**\
 `A 3-1 win over Brentford in their League Cup quarterfinal gives Newcastle belief they can salvage something tangible from a testing season `\
 https://nytimes.com/athletic/6005055/2024/12/19/newcastle-brentford-league-cup-quarter-final/

@@ -1,3 +1,7 @@
+**Word of the Day: combustion**\
+`This word has appeared in 97 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/19/learning/word-of-the-day-combustion.html
+
 **Progress and progression: Newcastle close in on dreamland**\
 `A 3-1 win over Brentford in their League Cup quarterfinal gives Newcastle belief they can salvage something tangible from a testing season `\
 https://nytimes.com/athletic/6005055/2024/12/19/newcastle-brentford-league-cup-quarter-final/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6004889/2024/12/19/real-madrid-intercontinental-cup
 **Emery says he wants to play Torres and Mings in Villa's starting XI – how does he do that?**\
 `Torres and Mings are both left-footed but very different centre-backs – the plan is to strengthen Villa's principles, not disturb them`\
 https://nytimes.com/athletic/5993710/2024/12/19/unai-emery-pau-torres-tyrone-mings-aston-villa/
-
-**Fantasy Premier League: With no obvious choice, how do you pick a captain for Gameweek 17?**\
-`Is Bruno Fernandes the best captaincy differential this week? Here are your best FPL options`\
-https://nytimes.com/athletic/6001527/2024/12/19/fantasy-premier-league-picking-captain-gameweek-17/
 
