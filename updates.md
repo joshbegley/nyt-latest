@@ -1,3 +1,11 @@
+**Amid loud voices, USWNT defender Becky Sauerbrunn perfected the art of subtlety in leadership**\
+`Sauerbrunn announced her retirement from professional soccer after 219 appearances for the USWNT.`\
+https://nytimes.com/athletic/6005769/2024/12/19/becky-sauerbrunn-uswnt-subtly-leader/
+
+**Dylan Sampson believed in Josh Heupel's vision at Tennessee. It's paying off in the Playoff**\
+`Sampson's 22 touchdowns are the most in school history, breaking a 95-year record. His 1,485 rushing yards are also a school record.`\
+https://nytimes.com/athletic/6004836/2024/12/19/tennessee-football-dylan-sampson-ohio-state/
+
 **William Nylander on excelling under Craig Berube and his next lofty goal for the Leafs**\
 `Nylander is quick to rave about the Leafs coach and his playing style that has him scoring more than ever.
 `\

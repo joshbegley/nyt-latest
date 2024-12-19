@@ -1,3 +1,11 @@
+**Putin Tries to Put Positive Spin on Russian Setback in Syria**\
+`The Russian president said that he had not yet met with Bashar al-Assad, the ousted Syrian leader who fled to Moscow, but that he planned to.`\
+https://nytimes.com/2024/12/19/world/europe/putin-press-conference-syria.html
+
+**Electoral Wishcasting**\
+`We cover a lesson from the Democrats’ 2024 defeat.`\
+https://nytimes.com/2024/12/19/briefing/democrats-2024-defeat.html
+
 **Amid loud voices, USWNT defender Becky Sauerbrunn perfected the art of subtlety in leadership**\
 `Sauerbrunn announced her retirement from professional soccer after 219 appearances for the USWNT.`\
 https://nytimes.com/athletic/6005769/2024/12/19/becky-sauerbrunn-uswnt-subtly-leader/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6001746/2024/12/19/penguins-fan-survey-results-rebu
 **What’s next for Kirk Cousins? How the Falcons could move on and where the QB would fit best**\
 `Is Cousins finished? If not, he should have the leverage to choose his next team and sign for cheap, making the Browns an excellent fit.`\
 https://nytimes.com/athletic/6001596/2024/12/19/kirk-cousins-benched-contract-trade-release/
-
-**Packers' playoff outlook, Edgerrin Cooper's playing time, Jordan Morgan's status: Mailbag**\
-`Beat writer Matt Schneidman answers subscriber questions ahead of Green Bay's potential playoff-clinching game against the Saints.`\
-https://nytimes.com/athletic/6004795/2024/12/19/packers-playoff-outlook-edgerrin-cooper/
-
-**How an NHL broadcaster prepares for a game, from name pronunciations to locker-room stories**\
-`In his 36th NHL season, Blues broadcaster John Kelly still takes pride in passing along information that brings fans closer to the team.`\
-https://nytimes.com/athletic/5990291/2024/12/19/blues-john-kelly-broadcaster/
 
