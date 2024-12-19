@@ -1,3 +1,11 @@
+**Until Saturday: It's almost time for the first round of the 12-team CFP**\
+`Welcome to Until Saturday, the five-star college football newsletter: The 12-team Playoff is almost here.`\
+https://nytimes.com/athletic/6006463/2024/12/19/college-football-playoff-first-round-games-until-saturday/
+
+**Sammy Sosa acknowledges 'mistakes,' moves closer to reunion with Cubs**\
+`After Sosa apologized for past actions in a written statement, the Cubs invited him to 2025 Cubs Convention.`\
+https://nytimes.com/athletic/6007487/2024/12/19/sammy-sosa-cubs-reunion/
+
 **Submit your Dodgers questions for Fabian Ardaya's mailbag**\
 `Submit your Dodgers questions for Fabian Ardaya's mailbag`\
 https://nytimes.com/athletic/6007461/2024/12/19/dodgers-offseason-mailbag-sasaki/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/climate/how-the-climate-crisis-became-an-insuranc
 **Former Uvalde Schools Police Chief Fails in Bid to Avoid Prosecution**\
 `Investigations have singled out Pete Arredondo, the former chief, for the delayed police response to a 2022 school shooting in Texas. A judge denied his request to quash the charges against him.`\
 https://nytimes.com/2024/12/19/us/uvalde-shooting-pete-arredondo.html
-
-**William J. Hennessy Jr., Sketch Artist of Courtroom Drama, Dies at 67**\
-`His lively drawings of historic Supreme Court arguments, impeachment trials and murder cases gave the public a peek into venues where cameras were banned.`\
-https://nytimes.com/2024/12/19/business/media/william-j-hennessy-jr-dead.html
-
-**Frank Vatrano is helping to drive the Ducks — is it enough to keep him out of trade talks?**\
-`Vatrano is helping the Ducks establish the type of go-to line that they struggled to find for months.`\
-https://nytimes.com/athletic/6007114/2024/12/19/vatrano-ducks-trade-contract/
 
