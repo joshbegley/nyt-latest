@@ -1,3 +1,15 @@
+**After the House Delayed a Bill to Add Judges, a Biden Veto Looms**\
+`The Senate backed a bipartisan bill to add dozens of judges, but the House held off on voting until after Election Day. Now, Donald Trump would be assured at least 22 picks.`\
+https://nytimes.com/2024/12/19/us/biden-veto-federal-judges.html
+
+**Gisèle Pelicot Speaks After Rape Trial Verdict: ‘We Share the Same Struggle’**\
+`In brief remarks after her ex-husband and 50 other men were convicted, she said she had never regretted her decision to allow the trial to be public.`\
+https://nytimes.com/2024/12/19/world/europe/gisele-pelicot-rape-trial.html
+
+**F.A.A. Bans Drone Flights Near 22 Communities in New Jersey**\
+`The ban runs through Jan. 17 and precludes most flights near some of the state’s largest cities, including Camden, Elizabeth and Jersey City. Sightings have set off fear and disinformation.`\
+https://nytimes.com/2024/12/19/nyregion/faa-bans-drone-flights-new-jersey.html
+
 **A Famed Iowa Pollster’s Career Ends With a ‘Spectacular Miss’ and a Trump Lawsuit**\
 `Known for her “gold standard” polls of Iowans, J. Ann Selzer is facing retribution from Donald Trump after her final 2024 survey showed a surprising, and ultimately wrong, winner.`\
 https://nytimes.com/2024/12/19/us/politics/ann-selzer-iowa-trump.html
@@ -10,6 +22,10 @@ https://nytimes.com/2024/12/19/us/lottery-mega-millions-four-numbers.html
 `Does it count as vandalism? What if it’s funny?`\
 https://nytimes.com/2024/12/19/magazine/judge-john-hodgman-on-invisible-ink-graffiti.html
 
+**Penguins Today: Sidney Crosby is alive and well**\
+`Crosby is heating up as the Penguins make their annual trip to Nashville on Thursday. `\
+https://nytimes.com/athletic/6006427/2024/12/19/penguins-today-sidney-crosby/
+
 **MLS general allocation money: first-ever look at teams' spending flexibility**\
 `For the first time, MLS has revealed details of the general allocation money its teams have to spend over the salary cap`\
 https://nytimes.com/athletic/6006455/2024/12/19/mls-general-allocation-salarycap/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/19/style/christmas-tree-ornaments-decorating.html
 **This Corpse Has Had a Wild Journey. Its Next Stop? Broadway.**\
 `“Dead Outlaw,” a musical about the mummified body of a bandit, will open at the Longacre next spring, following a successful Off Broadway run.`\
 https://nytimes.com/2024/12/19/theater/dead-outlaw-broadway.html
-
-**‘We Just Want Mercy’: A Gaza Hospital Pleads for a Respite**\
-`Medical workers at one of the last functioning hospitals in the north of the territory say the facility has come under heavy attack by Israel this week.`\
-https://nytimes.com/2024/12/19/world/middleeast/gaza-hospital-icu.html
-
-**Zelensky Raises Prospect of European Peacekeepers in Ukraine**\
-`But many European leaders say that with no sign that Russia is interested in peace, it is too early to discuss the presence of peacekeeping forces.`\
-https://nytimes.com/2024/12/19/world/europe/zelensky-europe-peacekeepers-russia.html
-
-**Activists say the sentences for other defendants are too light.**\
-`By Catherine Porter and Ségolène Le Stradic`\
-https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/activists-say-the-sentences-for-other-defendants-are-too-light
-
-**Popular Arthritis Drug for Dogs May Have Severe Side Effects, F.D.A. Says**\
-`The agency recommended that the maker of Librela update its label to reflect the possibility of more serious adverse reactions.`\
-https://nytimes.com/2024/12/19/science/fda-drugs-dogs-arthritis-librela.html
 
