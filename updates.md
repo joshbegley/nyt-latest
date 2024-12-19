@@ -1,3 +1,7 @@
+**Rick Kaufmann, Impresario of Art Furniture, Dies at 77**\
+`Was it art or was it furniture? No one was quite sure what to make of the New York movement that an idiosyncratic gallerist led in the 1970s and ’80s.`\
+https://nytimes.com/2024/12/19/arts/design/rick-kaufmann-dead.html
+
 **Micah Parsons wants to be with Cowboys, doesn't need top dollar**\
 `“I think I'm a difference-maker, and I'll probably be treated like a difference-maker," Parsons said of his pending contract extension.`\
 https://nytimes.com/athletic/6007822/2024/12/19/micah-parsons-contract-cowboys/
