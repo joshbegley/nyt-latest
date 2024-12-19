@@ -1,3 +1,7 @@
+**Liverpool's adaptability in adversity is becoming one of their greatest strengths**\
+`A rotated line-up with square pegs in round holes cruised to victory at Southampton - it was an ominous sign for Liverpool's rivals`\
+https://nytimes.com/athletic/6005508/2024/12/19/liverpool-carabao-cup-wataru-endo-slot/
+
 **Nketiah is showing signs of progress at Crystal Palace - that is reason to be hopeful**\
 `Eddie Nketiah scored for Crystal Palace in their loss against Arsenal on Wednesday night`\
 https://nytimes.com/athletic/6001100/2024/12/19/eddie-nketiah-crystal-palace-analysis/
