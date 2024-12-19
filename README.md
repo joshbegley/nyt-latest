@@ -1,3 +1,7 @@
+**Who Are the 51 Men Convicted in the Gisèle Pelicot Rape Trial?**\
+`Most of the accused received sentences of eight to 10 years, less than the 10- to 18-year terms that the public prosecutor had recommended.`\
+https://nytimes.com/2024/12/19/world/europe/pelicot-rape-trial-convictions.html
+
 **Is there anything worth salvaging from this year's Raiders roster?**\
 `Despite the Raiders' 2-12 record, they have intriguing players worth keeping around at every position. We break down their roster.`\
 https://nytimes.com/athletic/6004725/2024/12/19/las-vegas-raiders-roster-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/world/europe/putin-press-conference-syria.html
 **Electoral Wishcasting**\
 `We cover a lesson from the Democrats’ 2024 defeat.`\
 https://nytimes.com/2024/12/19/briefing/democrats-2024-defeat.html
-
-**Amid loud voices, USWNT defender Becky Sauerbrunn perfected the art of subtlety in leadership**\
-`Sauerbrunn announced her retirement from professional soccer after 219 appearances for the USWNT.`\
-https://nytimes.com/athletic/6005769/2024/12/19/becky-sauerbrunn-uswnt-subtly-leader/
 
