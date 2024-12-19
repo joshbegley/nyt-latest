@@ -1,3 +1,15 @@
+**Will Notre Dame handle Indiana? Three keys to a game the Irish are built for**\
+`Notre Dame wrote the rules of the new CFP for this moment. The Irish are better on both lines. Now it’s on Marcus Freeman to deliver.`\
+https://nytimes.com/athletic/6006720/2024/12/19/notre-dame-indiana-matchups-prediction/
+
+**Johnson Grasps to Avert Shutdown After Trump Tanks Spending Deal**\
+`A top Republican said the situation was “fluid” as the party searched for a Plan B that would keep the government running past 12:01 a.m. on Saturday.`\
+https://nytimes.com/2024/12/19/us/politics/trump-johnson-spending-bill-shutdown.html
+
+**The 73 Best Illustrations of 2024**\
+`The most memorable illustrations of the year, chosen by art directors at The New York Times.`\
+https://nytimes.com/interactive/2024/12/19/arts/year-in-illustration.html
+
 **Calls to the Media: Fight Trump’s Lawsuits**\
 `Readers discuss lawsuits against The Des Moines Register and ABC News. Also: Violence in school; a Mideast bridge; cash and the disabled; murder is wrong.`\
 https://nytimes.com/2024/12/19/opinion/trump-media-lawsuits.html
