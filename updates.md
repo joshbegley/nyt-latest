@@ -1,3 +1,7 @@
+**Canadiens' Barron-for-Carrier trade sends a message to the room**\
+`As unlikely as it may seem with the Canadiens near the bottom of the standings, management clearly feels this team can still make a push. `\
+https://nytimes.com/athletic/6007462/2024/12/19/canadiens-trade-justin-barron-alexandre-carrier/
+
 **New York to Pay $10 Million in Woman’s Death After Abuse in Group Home**\
 `The state in 2019 paid a $2 million abuse settlement. In retaliation, staff members withheld the victim’s medicine, and she died in a hospital.`\
 https://nytimes.com/2024/12/19/nyregion/ny-group-home-abuse-settlement.html
