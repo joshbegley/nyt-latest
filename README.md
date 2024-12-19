@@ -1,3 +1,7 @@
+**U.S. Files Murder Charge Against Mangione in C.E.O. Shooting Case**\
+`Federal authorities filed four counts against Luigi Mangione.`\
+https://nytimes.com/2024/12/19/nyregion/luigi-mangione-federal-charges.html
+
 **Scoop City: Jets drama, how flexing TNF ruined plans & defensive improvements**\
 `A brief look at how the NFL ruined plans by flexing tonight's TNF game, the ongoing dysfunction in New York and 9 improved defensive players`\
 https://nytimes.com/athletic/6007048/2024/12/19/jets-drama-nfl-most-improved-defenders-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/world/europe/pelicot-rape-trial-guilty-verdict.ht
 **Maps: See Israel’s Moves in Syria Since al-Assad Was Toppled**\
 `Israeli fighter jets have launched hundreds of airstrikes, while soldiers have seized a buffer zone and captured military posts in territory formerly under Syrian control.`\
 https://nytimes.com/2024/12/19/world/middleeast/syria-israel-maps.html
-
-**Trump’s Return May Worsen Financial Woes for Global Health Institutions**\
-`The U.S. provides nearly half of the aid for global health, including childhood vaccination, H.I.V. treatment and disease surveillance.`\
-https://nytimes.com/2024/12/19/health/global-health-funding-us-trump.html
 
