@@ -1,3 +1,27 @@
+**Rupert Murdoch’s Appeal to Alter Family Trust Faces Uphill Battle**\
+`Mr. Murdoch’s appeal over whether he can consolidate his son Lachlan’s power over his media empire is due just before Christmas.`\
+https://nytimes.com/2024/12/19/business/media/rupert-murdochs-appeal-to-alter-family-trust-faces-uphill-battle.html
+
+**Submit questions about trades, free agency and more for Jim Bowden’s MLB mailbag**\
+`What does your team still need to do this offseason? Where will the remaining big-name free agents sign? Which stars will get traded? `\
+https://nytimes.com/athletic/6007674/2024/12/19/mlb-offseason-questions-bowden/
+
+**What to watch in college basketball this weekend: Dayton-Cincinnati, Purdue-Auburn**\
+`It's holiday season, but college basketball rolls through with a number of intriguing games before Christmas.`\
+https://nytimes.com/athletic/6005122/2024/12/19/what-to-watch-college-basketball-purdue-auburn-dayton-cincinnati/
+
+**SeaQuest, Interactive Aquarium Where Many Animals Died, Files for Bankruptcy**\
+`After the chief executive stepped down, the company acknowledged that “mistakes were made.”`\
+https://nytimes.com/2024/12/19/style/seaquest-bankruptcy.html
+
+**Patriots' Barmore placed on non-football illness list, likely ending his season**\
+`Barmore returned to the field in November but is experiencing "recurring symptoms" after being diagnosed with blood clots in July.`\
+https://nytimes.com/athletic/6007600/2024/12/19/patriots-christian-barmore-illness-list-recurring-symptoms/
+
+**5 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/12/19/books/review/new-books-recommendations.html
+
 **Saints' Alvin Kamara unlikely to play, Spencer Rattler to start vs. Packers**\
 `Kamara left the Saints' Week 15 loss to Washington in the second half with a groin injury. The Saints are 0-3 when Rattler has started.`\
 https://nytimes.com/athletic/6007579/2024/12/19/alvin-kamara-spencer-rattler-saints-packers/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/12/19/briefing/french-rape-trial-syria-mayotte.html
 **Joanne Pierce Misko, Ex-Nun Who Made F.B.I. History, Dies at 83**\
 `She and Susan Malone were sworn in together in 1972 as the first female agents, only months after the bureau opened the door to women.`\
 https://nytimes.com/2024/12/19/us/joanne-pierce-misko-dead.html
-
-**The First-Ever ‘Where to Eaties’ Awards**\
-`The best place to wash your hands, the restaurant that will scare your parents and more 2024 superlatives.`\
-https://nytimes.com/2024/12/19/dining/the-first-ever-where-to-eaties-awards.html
-
-**Movie Shelved After Jonathan Majors’s Arrest Gets Release Date**\
-`Before the actor was charged with assault, “Magazine Dreams” generated Oscar buzz for his performance as a bodybuilder. The movie is now scheduled to reach theaters in March.`\
-https://nytimes.com/2024/12/19/movies/magazine-dreams-jonathan-majors.html
-
-**‘Getting Your Pink Back:’ How Moms Felt Like Themselves Again After Having a Baby**\
-`Flamingos, which can lose their bright color when tending to their young but get it back over time, have been a helpful metaphor for some women in their postpartum experiences.`\
-https://nytimes.com/2024/12/19/style/get-your-pink-back-tiktok-parenting.html
-
-**Canadiens' Barron-for-Carrier trade sends a message to the room**\
-`As unlikely as it may seem with the Canadiens near the bottom of the standings, management clearly feels this team can still make a push. `\
-https://nytimes.com/athletic/6007462/2024/12/19/canadiens-trade-justin-barron-alexandre-carrier/
-
-**New York to Pay $10 Million in Woman’s Death After Abuse in Group Home**\
-`The state in 2019 paid a $2 million abuse settlement. In retaliation, staff members withheld the victim’s medicine, and she died in a hospital.`\
-https://nytimes.com/2024/12/19/nyregion/ny-group-home-abuse-settlement.html
-
-**Bills' Dawkins misses part of practice after small plane crashes behind home**\
-`The East Aurora Police Department confirmed that the pilot died at the scene in Aurora, N.Y., a few miles east of Highmark Stadium.`\
-https://nytimes.com/athletic/6007279/2024/12/19/plane-crash-buffalo-near-dion-dawkins-home/
 
