@@ -1,3 +1,15 @@
+**Chiefs' Patrick Mahomes 'will most likely' start vs. Texans**\
+`Mahomes exited the Chiefs' Week 15 win over the Cleveland Browns midway through the fourth quarter with an ankle injury.`\
+https://nytimes.com/athletic/6007393/2024/12/19/patrick-mahomes-chiefs-start-texans/
+
+**Wisconsin School Shooter May Have Plotted With California Man**\
+`At the request of law enforcement officials, a judge ordered a man, who reportedly corresponded with the shooter about a second attack, to surrender his guns.`\
+https://nytimes.com/2024/12/19/us/wisconsin-school-shooting-plot.html
+
+**Timeline of NASCAR antitrust lawsuit: 23XI, Front Row can race as charter teams**\
+`The NASCAR antitrust lawsuit brought by Michael Jordan&#8217;s 23XI Racing and Front Row Motorsports saw its biggest development yet on Wednesday, as a judge ruled the teams will be allowed to race as charter teams in 2025 as part of a preliminary injunction ruling.`\
+https://nytimes.com/athletic/6000984/2024/12/19/nascar-antitrust-lawsuit-timeline-latest/
+
 **‘Laid’ Is Acerbic, Raunchy Fun**\
 `Starring Stephanie Hsu and Zosia Mamet, the series tells a darkly comic story about a woman whose past sexual partners start dying. And keep dying.`\
 https://nytimes.com/2024/12/19/arts/television/laid-peacock-stephanie-hsu.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6007024/2024/12/19/joey-barton-eni-aluko-high-court
 **Wizards, Capitals commit to D.C.; Capital One Arena $515M renovation coming**\
 `Internal and external renovations for the Capital One Center are expected to be completed before the 2027-28 NBA and NHL seasons.`\
 https://nytimes.com/athletic/6006548/2024/12/19/capital-one-arena-renovations-approved-wizards-capitals/
-
-**Gisèle Pelicot Has Changed France**\
-`She has opened up a conversation about sexual violence in a country where a serious reckoning was well overdue.`\
-https://nytimes.com/2024/12/19/opinion/gisele-pelicot-rape-trial.html
-
-**NIL deals present new opportunities in the trading card industry**\
-`NIL could have far-reaching implications on the trading card industry.`\
-https://nytimes.com/athletic/6007159/2024/12/19/nil-sports-cards-ncaa/
-
-**Ex-Top Aide to Mayor Adams and Her Son Are Charged in Corruption Case**\
-`Ingrid Lewis-Martin, who resigned as the mayor’s chief adviser, was charged in a bribery scheme involving $100,000 for a new Porsche for her son.`\
-https://nytimes.com/2024/12/19/nyregion/ingrid-lewis-martin-corruption-charges.html
 
