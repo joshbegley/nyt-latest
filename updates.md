@@ -1,3 +1,11 @@
+**Why the Specter of Trump Hangs Over the Fed, Congress and the Markets**\
+`The President-elect takes office in a month, but his influence on policy is already being felt by investors and across Washington.`\
+https://nytimes.com/2024/12/19/business/dealbook/trump-fed-congress-markets.html
+
+**Publishers Battle for the C-Suite**\
+`Numerous media outlets, looking for new lucrative lines of business, are pursuing newsletters and events aimed specifically at top executives.`\
+https://nytimes.com/2024/12/19/business/media/media-newsletters-executives.html
+
 **What the Senators need to see from Carter Yakemchuk post-World Juniors snub**\
 `Yakemchuk was among the surprise omissions from Canada's selection camp for the World Juniors, leaving many Senators fans disappointed.`\
 https://nytimes.com/athletic/6005084/2024/12/19/world-juniors-senators-carter-yakemchuk/
