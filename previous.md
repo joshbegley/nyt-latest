@@ -1,3 +1,7 @@
+**NBA shooting rankings: From Knicks to Sixers, how does your team stack up?**\
+`The volume of 3s is at an all-time high in the NBA, but when we talk shooting, there's a lot more to evaluate.`\
+https://nytimes.com/athletic/6002491/2024/12/19/nba-shooting-rankings-2024-knicks-celtics-sixers/
+
 **Who is Dominique Pelicot?**\
 `By Catherine Porter`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/who-is-dominique-pelicot
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/learning/2024-in-pictures.html
 **Holiday Hints From a Gift-Guide Maker**\
 `Mari Uyehara helps develop the dozens of guides published by Wirecutter. She likes gifts you can’t buy in more than one place.`\
 https://nytimes.com/2024/12/19/insider/wirecutter-gift-guides.html
-
-**It Was a Haven for New York Families. Now They Can’t Afford to Stay.**\
-`Families in Washington Heights are being pushed out by rising rents and costs, and New York City is losing its youngest demographic group.`\
-https://nytimes.com/2024/12/19/nyregion/washington-heights-nyc-cost-rent.html
 

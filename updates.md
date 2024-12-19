@@ -1,3 +1,7 @@
+**NBA shooting rankings: From Knicks to Sixers, how does your team stack up?**\
+`The volume of 3s is at an all-time high in the NBA, but when we talk shooting, there's a lot more to evaluate.`\
+https://nytimes.com/athletic/6002491/2024/12/19/nba-shooting-rankings-2024-knicks-celtics-sixers/
+
 **Who is Dominique Pelicot?**\
 `By Catherine Porter`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/who-is-dominique-pelicot
