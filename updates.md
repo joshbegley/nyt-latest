@@ -1,3 +1,7 @@
+**Nketiah is showing signs of progress at Crystal Palace - that is reason to be hopeful**\
+`Eddie Nketiah scored for Crystal Palace in their loss against Arsenal on Wednesday night`\
+https://nytimes.com/athletic/6001100/2024/12/19/eddie-nketiah-crystal-palace-analysis/
+
 **Word of the Day: combustion**\
 `This word has appeared in 97 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/19/learning/word-of-the-day-combustion.html
