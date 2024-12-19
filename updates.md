@@ -1,3 +1,7 @@
+**The Simplest Way to Make Creamy Scrambled Eggs for a Crowd**\
+`All it takes is one pot, two dozen eggs and 10 minutes of cooking to serve breakfast to a full house.`\
+https://nytimes.com/2024/12/19/dining/big-batch-scrambled-eggs.html
+
 **2024 Was the Year of Chickpea Anxiety**\
 `It was also a good year for easy, excellent bean recipes and cooking yourself cauliflowers.`\
 https://nytimes.com/2024/12/19/dining/2024-best-veggie-recipes.html
