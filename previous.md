@@ -1,3 +1,7 @@
+**Zelensky Raises Prospect of European Peacekeepers in Ukraine**\
+`But many European leaders say that with no sign that Russia is interested in peace, it is too early to discuss the presence of peacekeeping forces.`\
+https://nytimes.com/2024/12/19/world/europe/zelensky-europe-peacekeepers-russia.html
+
 **Activists say the sentences for other defendants are too light.**\
 `By Catherine Porter and Ségolène Le Stradic`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/activists-say-the-sentences-for-other-defendants-are-too-light
@@ -9,6 +13,10 @@ https://nytimes.com/2024/12/19/science/fda-drugs-dogs-arthritis-librela.html
 **As Vitor Pereira finally gets his dream Premier League move, what can Wolves expect?**\
 `Now in England with Wolves, Pereira has managed 10 different clubs across 11 managerial jobs spanning seven countries and three continents`\
 https://nytimes.com/athletic/6002300/2024/12/19/vitor-pereira-wolves-what-to-expect/
+
+**Brighton sign teenage goalkeeper prospect from AFC Wimbledon**\
+`Brighton &amp; Hove Albion have added to their stock of young goalkeeper talent by signing Charlie Wilson-Papps from AFC Wimbledon.`\
+https://nytimes.com/athletic/6006593/2024/12/19/brighton-sign-england-youth-goalkeeper/
 
 **Wolves appoint Vitor Pereira as new head coach**\
 `Wolverhampton Wanderers have appointed Vitor Pereira as their new head coach.`\
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6006327/2024/12/19/spurs-jeremy-sochan-wembanyama/
 https://nytimes.com/live/2024/12/19/us/trump-news
 
 **Amazon Workers at Seven Distribution Centers Walk Out**\
-`The retail giant said it expected its operations to be largely unaffected by the strike by some Teamsters union members.`\
+`The retail giant said it expected its operations to be largely unaffected by the strike of some Teamsters union members.`\
 https://nytimes.com/2024/12/19/business/economy/amazon-teamsters-strike.html
 
 **Amazon's NHL behind-the-scenes series renewed, to feature Brady Tkachuk**\
 `Tkachuk also appeared in Season 1. The other NHL players featured in Season 2 will be announced at a later date.`\
 https://nytimes.com/athletic/6004935/2024/12/19/amazon-faceoff-inside-nhl-renewed/
-
-**NBA Lookahead: How does the league fix its TV ratings?**\
-`Are concerns over falling TV numbers justified? Plus, a look at the top games of the weekend, including Bucks-Cavaliers. `\
-https://nytimes.com/athletic/5999945/2024/12/19/nba-lebron-james-ratings-adam-silver-michael-jordan-nba/
-
-**What does switch to Dorian Thompson-Robinson mean for Browns' future at QB?**\
-`Plus, can Jerry Jeudy keep up his recent production with a new QB under center? And what's next for Jameis Winston? `\
-https://nytimes.com/athletic/6005280/2024/12/19/browns-quarterbacks-dorian-thompson-robinson/
 

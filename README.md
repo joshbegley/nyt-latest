@@ -1,3 +1,7 @@
+**‘We Just Want Mercy’: A Gaza Hospital Pleads for a Respite**\
+`Medical workers at one of the last functioning hospitals in the north of the territory say the facility has come under heavy attack by Israel this week.`\
+https://nytimes.com/2024/12/19/world/middleeast/gaza-hospital-icu.html
+
 **Zelensky Raises Prospect of European Peacekeepers in Ukraine**\
 `But many European leaders say that with no sign that Russia is interested in peace, it is too early to discuss the presence of peacekeeping forces.`\
 https://nytimes.com/2024/12/19/world/europe/zelensky-europe-peacekeepers-russia.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6006327/2024/12/19/spurs-jeremy-sochan-wembanyama/
 ``\
 https://nytimes.com/live/2024/12/19/us/trump-news
 
-**Amazon Workers at Seven Distribution Centers Walk Out**\
+**Amazon Drivers at Seven Distribution Centers Walk Out**\
 `The retail giant said it expected its operations to be largely unaffected by the strike of some Teamsters union members.`\
 https://nytimes.com/2024/12/19/business/economy/amazon-teamsters-strike.html
-
-**Amazon's NHL behind-the-scenes series renewed, to feature Brady Tkachuk**\
-`Tkachuk also appeared in Season 1. The other NHL players featured in Season 2 will be announced at a later date.`\
-https://nytimes.com/athletic/6004935/2024/12/19/amazon-faceoff-inside-nhl-renewed/
 

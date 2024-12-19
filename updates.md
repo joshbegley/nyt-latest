@@ -1,3 +1,15 @@
+**Zelensky Raises Prospect of European Peacekeepers in Ukraine**\
+`But many European leaders say that with no sign that Russia is interested in peace, it is too early to discuss the presence of peacekeeping forces.`\
+https://nytimes.com/2024/12/19/world/europe/zelensky-europe-peacekeepers-russia.html
+
+**Brighton sign teenage goalkeeper prospect from AFC Wimbledon**\
+`Brighton &amp; Hove Albion have added to their stock of young goalkeeper talent by signing Charlie Wilson-Papps from AFC Wimbledon.`\
+https://nytimes.com/athletic/6006593/2024/12/19/brighton-sign-england-youth-goalkeeper/
+
+**Amazon Workers at Seven Distribution Centers Walk Out**\
+`The retail giant said it expected its operations to be largely unaffected by the strike of some Teamsters union members.`\
+https://nytimes.com/2024/12/19/business/economy/amazon-teamsters-strike.html
+
 **Activists say the sentences for other defendants are too light.**\
 `By Catherine Porter and Ségolène Le Stradic`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/activists-say-the-sentences-for-other-defendants-are-too-light
