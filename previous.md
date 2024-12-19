@@ -1,3 +1,7 @@
+**Wizards, Capitals commit to D.C.; Capital One Arena $515M renovation coming**\
+`Internal and external renovations for the Capital One Center are expected to be completed before the 2027-28 NBA and NHL seasons.`\
+https://nytimes.com/athletic/6006548/2024/12/19/capital-one-arena-renovations-approved-wizards-capitals/
+
 **Gisèle Pelicot Has Changed France**\
 `She has opened up a conversation about sexual violence in a country where a serious reckoning was well overdue.`\
 https://nytimes.com/2024/12/19/opinion/gisele-pelicot-rape-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/travel/junk-fees-ftc-rentals-hotels.html
 **What Are ‘Healthy’ Foods? The F.D.A. Updates the Labeling Terms.**\
 `The Food and Drug Administration released final rules on labeling foods as “healthy,” tightening limits for sugar, sodium and saturated fat.`\
 https://nytimes.com/2024/12/19/health/fda-healthy-foods-label.html
-
-**Read the Criminal Complaint Against Luigi Mangione**\
-`Federal prosecutors in Manhattan have filed four charges against Luigi Mangione, the suspect in the fatal shooting of UnitedHealthcare’s chief executive.`\
-https://nytimes.com/interactive/2024/12/19/nyregion/24-mag-4375-mangione-complaint.html
 

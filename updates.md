@@ -1,3 +1,7 @@
+**Wizards, Capitals commit to D.C.; Capital One Arena $515M renovation coming**\
+`Internal and external renovations for the Capital One Center are expected to be completed before the 2027-28 NBA and NHL seasons.`\
+https://nytimes.com/athletic/6006548/2024/12/19/capital-one-arena-renovations-approved-wizards-capitals/
+
 **Gisèle Pelicot Has Changed France**\
 `She has opened up a conversation about sexual violence in a country where a serious reckoning was well overdue.`\
 https://nytimes.com/2024/12/19/opinion/gisele-pelicot-rape-trial.html
