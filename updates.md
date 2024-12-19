@@ -1,3 +1,7 @@
+**Brock Faber injury is latest gut punch for reeling Wild in 6-1 loss to Panthers**\
+`Considering the team's injuries, the fact it took Minnesota until Game 32 to have its first back-to-back regulation losses is remarkable.`\
+https://nytimes.com/athletic/6005890/2024/12/19/brock-faber-injury-wild-lose-to-panthers/
+
 **They Thought It Was an Old Baseball. It Was a Mastodon Tooth.**\
 `Remarkably well preserved ice age remains like those discovered recently in a yard near Scotchtown, N.Y., are rare — but not that rare for that part of the state.`\
 https://nytimes.com/2024/12/19/nyregion/mastodon-teeth-new-york.html
