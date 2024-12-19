@@ -1,3 +1,7 @@
+**NBA Lookahead: How does the league fix its TV ratings?**\
+`Are concerns over falling TV numbers justified? Plus, a look at the top games of the weekend, including Bucks-Cavaliers. `\
+https://nytimes.com/athletic/5999945/2024/12/19/nba-lebron-james-ratings-adam-silver-michael-jordan-nba/
+
 **What does switch to Dorian Thompson-Robinson mean for Browns' future at QB?**\
 `Plus, can Jerry Jeudy keep up his recent production with a new QB under center? And what's next for Jameis Winston? `\
 https://nytimes.com/athletic/6005280/2024/12/19/browns-quarterbacks-dorian-thompson-robinson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003625/2024/12/19/everton-us-takeover-friedkin-mos
 **Hamza Choudhury declares for Bangladesh: 'I want to represent the people'**\
 `Hamza Choudhury has decided to represent Bangladesh at international level`\
 https://nytimes.com/athletic/5749745/2024/12/19/hamza-choudhury-bangladesh-leicester/
-
-**Publishers Battle for the C-Suite**\
-`Numerous media outlets, looking for new lucrative lines of business, are pursuing newsletters and events aimed specifically at top executives.`\
-https://nytimes.com/2024/12/19/business/media/media-newsletters-executives.html
 
