@@ -1,3 +1,7 @@
+**Rangers trade Kaapo Kakko to Seattle for Will Borgen, two picks**\
+`The 23-year-old played six seasons with the Rangers and had found early success on the third line this season.`\
+https://nytimes.com/athletic/6004718/2024/12/18/rangers-kaapo-kakko-trade-seattle-will-borgen-picks/
+
 **The One Solution to Grow Your Enterprise-Level Business**\
 `Intuit Enterprise Suite simplifies the complex processes of a growing business with real-time data`\
 https://nytimes.com/paidpost/intuit/the-one-solution-to-grow-your-enterprise-level-business.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/12/18/well/bird-flu-health-risks.html
 **Ferrari prepares for Lewis Hamilton's arrival: ‘Not a copy-paste of Mercedes’**\
 `At team headquarters in Italy, Ferrari bid farewell to Carlos Sainz and shared its plans to welcome Lewis Hamilton in a few weeks.`\
 https://nytimes.com/athletic/6004126/2024/12/18/ferrari-lewis-hamilton-f1-fred-vasseur/
-
-**The Rev. James Callan, Renegade Catholic Priest, Dies at 77**\
-`He was excommunicated in 1999 after allowing women to celebrate Mass, blessing same-sex unions and offering communion to non-Catholics.`\
-https://nytimes.com/2024/12/18/nyregion/the-rev-james-callan-dead.html
 

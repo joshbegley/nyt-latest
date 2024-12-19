@@ -1,3 +1,7 @@
+**Rangers trade Kaapo Kakko to Seattle for Will Borgen, two picks**\
+`The 23-year-old played six seasons with the Rangers and had found early success on the third line this season.`\
+https://nytimes.com/athletic/6004718/2024/12/18/rangers-kaapo-kakko-trade-seattle-will-borgen-picks/
+
 **The One Solution to Grow Your Enterprise-Level Business**\
 `Intuit Enterprise Suite simplifies the complex processes of a growing business with real-time data`\
 https://nytimes.com/paidpost/intuit/the-one-solution-to-grow-your-enterprise-level-business.html
