@@ -1,3 +1,7 @@
+**White Chicken Chili to Welcome Them Home**\
+`Lidey Heuck’s customizable, five-star chili replenishes and restores.`\
+https://nytimes.com/2024/12/19/dining/white-chicken-chili.html
+
 **Elon Musk Flexes His Political Strength as Government Shutdown Looms**\
 `The world’s richest man led the charge to kill a bipartisan spending deal, in part by promoting false and misleading claims about it.`\
 https://nytimes.com/2024/12/19/us/politics/elon-musk-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/us/biden-veto-federal-judges.html
 **Gisèle Pelicot Speaks After Rape Trial Verdict: ‘We Share the Same Struggle’**\
 `In brief remarks after her ex-husband and 50 other men were convicted, she said she had never regretted her decision to allow the trial to be public.`\
 https://nytimes.com/2024/12/19/world/europe/gisele-pelicot-rape-trial.html
-
-**F.A.A. Bans Drone Flights Near ‘Critical Infrastructure’ in New Jersey**\
-`The ban runs through Jan. 17 and precludes most drone flights in airspace near 22 communities, including the cities of Camden, Elizabeth and Jersey City.`\
-https://nytimes.com/2024/12/19/nyregion/faa-bans-drone-flights-new-jersey.html
 

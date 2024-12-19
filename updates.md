@@ -1,3 +1,7 @@
+**White Chicken Chili to Welcome Them Home**\
+`Lidey Heuck’s customizable, five-star chili replenishes and restores.`\
+https://nytimes.com/2024/12/19/dining/white-chicken-chili.html
+
 **Elon Musk Flexes His Political Strength as Government Shutdown Looms**\
 `The world’s richest man led the charge to kill a bipartisan spending deal, in part by promoting false and misleading claims about it.`\
 https://nytimes.com/2024/12/19/us/politics/elon-musk-politics.html
