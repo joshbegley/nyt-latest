@@ -1,3 +1,7 @@
+**2024 Was the Year of Chickpea Anxiety**\
+`It was also a good year for easy, excellent bean recipes and cooking yourself cauliflowers.`\
+https://nytimes.com/2024/12/19/dining/2024-best-veggie-recipes.html
+
 **Andrew Cuomo Plans to Sue Harassment Accuser for Defamation**\
 `Mr. Cuomo, the former governor of New York, accused a former aide, Charlotte Bennett, of falsely saying that he sexually harassed her, harming his political future.`\
 https://nytimes.com/2024/12/19/nyregion/cuomo-charlotte-bennett-defamation.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/12/19/nyregion/cuomo-charlotte-bennett-defamation.html
 https://nytimes.com/athletic/6006166/2024/12/19/nba-all-star-voting-karl-anthony-towns-timberwolves-knicks-nba-the-bounce/
 
 **U.S. Files Murder Charge Against Mangione in C.E.O. Shooting Case**\
-`Federal authorities filed four counts against Luigi Mangione.`\
+`Federal authorities filed four counts against Luigi Mangione, who is accused of killing Brian Thompson, the chief executive of UnitedHealthcare.`\
 https://nytimes.com/2024/12/19/nyregion/luigi-mangione-federal-charges.html
 
 **Scoop City: Jets drama, how flexing TNF ruined plans & defensive improvements**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949496/2024/12/19/pogba-brother-trial-extortion/
 **NFL Week 16 fantasy football, betting cheat sheet: Niners RB Isaac Guerendo ailing, may sit Sunday**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/6001045/2024/12/19/nfl-week-16-fantasy-football-betting-cheat-sheet/
-
-**Saudi Arabia to play in 2025 and 2027 Gold Cup as guest participant**\
-`Saudi Arabia will play in the 2025 and 2027 editions of the Gold Cup as one of 16 teams participating in the tournaments organised by CONCACAF.`\
-https://nytimes.com/athletic/6006943/2024/12/19/saudi-arabia-gold-cup-guest/
 
