@@ -1,3 +1,7 @@
+**What the Senators need to see from Carter Yakemchuk post-World Juniors snub**\
+`Yakemchuk was among the surprise omissions from Canada's selection camp for the World Juniors, leaving many Senators fans disappointed.`\
+https://nytimes.com/athletic/6005084/2024/12/19/world-juniors-senators-carter-yakemchuk/
+
 **Valtteri Bottas returns to Mercedes as F1 reserve driver for 2025 season**\
 `Bottas, 35, spent five seasons racing for Mercedes between 2017 and 2021.`\
 https://nytimes.com/athletic/6006257/2024/12/19/valtteri-bottas-f1-mercedes-2025-reserve-driver/
