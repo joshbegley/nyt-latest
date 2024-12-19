@@ -1,3 +1,7 @@
+**‘Laid’ Is Acerbic, Raunchy Fun**\
+`Starring Stephanie Hsu and Zosia Mamet, the series tells a darkly comic story about a woman whose past sexual partners start dying. And keep dying.`\
+https://nytimes.com/2024/12/19/arts/television/laid-peacock-stephanie-hsu.html
+
 **How the Climate Crisis Became an Insurance Crisis**\
 `Even in formerly low-risk areas, home insurers are raising premiums and ending coverage. The upheaval could push down home values and reverberate through the economy.`\
 https://nytimes.com/2024/12/19/climate/how-the-climate-crisis-became-an-insurance-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007159/2024/12/19/nil-sports-cards-ncaa/
 **Ex-Top Aide to Mayor Adams and Her Son Are Charged in Corruption Case**\
 `Ingrid Lewis-Martin, who resigned as the mayor’s chief adviser, was charged in a bribery scheme involving $100,000 for a new Porsche for her son.`\
 https://nytimes.com/2024/12/19/nyregion/ingrid-lewis-martin-corruption-charges.html
-
-**Billionaire Rivals Bezos and Musk Are Said to Have Dined With Trump at Mar-a-Lago**\
-`Elon Musk, the chief executive of Tesla, and Jeff Bezos, the Amazon founder, ate with President-elect Donald J. Trump. Both have courted Mr. Trump.`\
-https://nytimes.com/2024/12/19/us/politics/trump-elon-musk-bezos-mar-a-lago.html
 
