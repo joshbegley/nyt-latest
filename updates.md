@@ -1,3 +1,7 @@
+**Elon Musk Flexes His Political Strength as Government Shutdown Looms**\
+`The world’s richest man led the charge to kill a bipartisan spending deal, in part by promoting false and misleading claims about it.`\
+https://nytimes.com/2024/12/19/us/politics/elon-musk-politics.html
+
 **Man pleads guilty to stalking UConn's Paige Bueckers**\
 `Robert Cole Parmalee received a one-year suspended sentence and three years' probation in Rockville Superior Court (Conn.) on Wednesday.`\
 https://nytimes.com/athletic/6006585/2024/12/19/paige-bueckers-stalker-pleads-guilty-uconn/
