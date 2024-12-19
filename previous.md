@@ -1,3 +1,27 @@
+**More Than Twice as Many U.S. Troops Are in Syria Than Previously Disclosed**\
+`A Pentagon spokesman said the increase was unrelated to the fall of President Bashar al-Assad to rebel forces in early December.`\
+https://nytimes.com/2024/12/19/us/politics/us-troops-syria.html
+
+**Why Silent Film Still Speaks Volumes**\
+`The old movies have a great deal to say, and linguistics can explain why.`\
+https://nytimes.com/2024/12/19/opinion/silent-film-forum.html
+
+**LeBron James on new All-Star Game format: 'Something had to change'**\
+`Several NBA stars, including Anthony Davis, Kevin Durant and Devin Booker, criticized the new All-Star Game format this week.`\
+https://nytimes.com/athletic/6007653/2024/12/19/lebron-james-nba-all-star-game-format-comments/
+
+**Amazon Reaches Settlement to Resolve Federal Safety Accusations**\
+`The Occupational Safety and Health Administration agreed to withdraw citations at nine of 10 warehouses where it had flagged violations; the company agreed to a $145,000 penalty.`\
+https://nytimes.com/2024/12/19/business/amazon-settlement-osha.html
+
+**Inter Miami trades striker Leonardo Campana to New England for $2.5 million GAM**\
+`Miami will receive $2 million in GAM in 2025 and $500,000 in 2026, in addition to 2025 and 2026 international roster slots.`\
+https://nytimes.com/athletic/6007823/2024/12/19/inter-miami-new-england-revolution-leonardo-campana/
+
+**The Briefing: Tottenham 4 Man United 3 - Forster's awful errors, Amorim's subs worked and Son's 'olimpico'**\
+`Jay Harris and Carl Anka analyse the key talking points from a thrilling Carabao Cup quarter-final, as Spurs advanced to the last four`\
+https://nytimes.com/athletic/5992983/2024/12/19/tottenham-man-united-forster-mistakes-cup-analysis/
+
 **Inside the Kaapo Kakko-Will Borgen trade, Vincent Trocheck defends Chris Drury and more**\
 `Trocheck requested to speak with reporters to dispel a report that the Rangers had a players-only meeting criticizing their general manager.`\
 https://nytimes.com/athletic/6007603/2024/12/19/rangers-kakko-borgen-trade-trocheck-drury/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/12/19/business/dealbook/artificial-intelligence-in-2030
 **American Airlines Settles Racial Discrimination Case**\
 `Three Black men had accused the airline of wrongly forcing them to get off a plane for an hour because of a complaint about body odor.`\
 https://nytimes.com/2024/12/19/business/american-airlines-discrimination-case.html
-
-**Rupert Murdoch’s Appeal to Alter Family Trust Faces Uphill Battle**\
-`Mr. Murdoch’s appeal over whether he can consolidate his son Lachlan’s power over his media empire is due just before Christmas.`\
-https://nytimes.com/2024/12/19/business/media/rupert-murdoch-lachlan-family-trust.html
-
-**Submit questions about trades, free agency and more for Jim Bowden’s MLB mailbag**\
-`What does your team still need to do this offseason? Where will the remaining big-name free agents sign? Which stars will get traded? `\
-https://nytimes.com/athletic/6007674/2024/12/19/mlb-offseason-questions-bowden/
-
-**What to watch in college basketball this weekend: Dayton-Cincinnati, Purdue-Auburn**\
-`It's holiday season, but college basketball rolls through with a number of intriguing games before Christmas.`\
-https://nytimes.com/athletic/6005122/2024/12/19/what-to-watch-college-basketball-purdue-auburn-dayton-cincinnati/
-
-**SeaQuest, Interactive Aquarium Where Many Animals Died, Files for Bankruptcy**\
-`After the chief executive stepped down, the company acknowledged that “mistakes were made.”`\
-https://nytimes.com/2024/12/19/style/seaquest-bankruptcy.html
-
-**Patriots' Barmore placed on non-football illness list, likely ending his season**\
-`Barmore returned to the field in November but is experiencing "recurring symptoms" after being diagnosed with blood clots in July.`\
-https://nytimes.com/athletic/6007600/2024/12/19/patriots-christian-barmore-illness-list-recurring-symptoms/
-
-**5 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/12/19/books/review/new-books-recommendations.html
 
