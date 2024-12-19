@@ -1,3 +1,7 @@
+**What does switch to Dorian Thompson-Robinson mean for Browns' future at QB?**\
+`Plus, can Jerry Jeudy keep up his recent production with a new QB under center? And what's next for Jameis Winston? `\
+https://nytimes.com/athletic/6005280/2024/12/19/browns-quarterbacks-dorian-thompson-robinson/
+
 **The Pelicots’ children provided a dramatic moment in the trial.**\
 `By Catherine Porter`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/the-pelicots-children-provided-a-dramatic-moment-in-the-trial
