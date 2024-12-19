@@ -1,3 +1,11 @@
+**Emery says he wants to play Torres and Mings in Villa's starting XI – how does he do that?**\
+`Torres and Mings are both left-footed but very different centre-backs – the plan is to strengthen Villa's principles, not disturb them`\
+https://nytimes.com/athletic/5993710/2024/12/19/unai-emery-pau-torres-tyrone-mings-aston-villa/
+
+**Fantasy Premier League: With no obvious choice, how do you pick a captain for Gameweek 17?**\
+`Is Bruno Fernandes the best captaincy differential this week? Here are your best FPL options`\
+https://nytimes.com/athletic/6001527/2024/12/19/fantasy-premier-league-picking-captain-gameweek-17/
+
 **Manchester United, dressing-room leaks and why it's not a new problem**\
 `Ruben Amorim is not the first manager to discover that the roof is not the only thing that leaks at Old Trafford`\
 https://nytimes.com/athletic/5986437/2024/12/19/manchester-united-dressing-room-leaks/
