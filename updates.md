@@ -1,3 +1,7 @@
+**Top transfer QB John Mateer commits to Oklahoma after 3 years at Wazzu**\
+`Mateer, who started all 12 games for the Cougars this season, will reunite with his former offensive coordinator Ben Arbuckle.`\
+https://nytimes.com/athletic/6005338/2024/12/18/john-mateer-oklahoma-transfer-washington-state/
+
 **Andrés Giménez joins the Blue Jays ready to make adjustments**\
 `The Blue Jays acquired Giménez with ideas in mind to help him get back to his 2022 levels offensively.`\
 https://nytimes.com/athletic/6005186/2024/12/18/andres-gimenez-blue-jays-adjustments/
