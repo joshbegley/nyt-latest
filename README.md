@@ -1,3 +1,7 @@
+**Tierney was a driving force in the early Arteta era but has been a victim of injuries and identity**\
+`Arsenal have decided not to extend the full-back's contract, a reflection of how his status has changed in recent years`\
+https://nytimes.com/athletic/6003971/2024/12/19/kieran-tierney-arsenal-contract-arteta/
+
 **‘The Daily’ podcast covers Gisèle Pelicot’s rise to feminist hero.**\
 `By The Daily Team`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/the-daily-podcast-covers-gisele-pelicots-rise-to-feminist-hero
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6004999/2024/12/19/panthers-jon-rhattigan-defense-s
 **Why the Falcons pulled the plug on Kirk Cousins and what they expect from Michael Penix Jr.**\
 `Cousins called Penix on Tuesday night to offer his support. The rookie QB admitted he'll be nervous running out of the tunnel on Sunday.`\
 https://nytimes.com/athletic/6005305/2024/12/19/falcons-qb-change-kirk-cousins-michael-penix-jr/
-
-**Is Cooper Rush proving to be the Cowboys' backup quarterback beyond this season?**\
-`With Dak Prescott out for the season, Rush has gotten the audition to return in 2025 with six starts and three more to come.`\
-https://nytimes.com/athletic/6005133/2024/12/19/cowboys-cooper-rush-backup-quarterback-dak-prescott/
 
