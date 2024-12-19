@@ -1,3 +1,11 @@
+**Saints' Alvin Kamara unlikely to play, Spencer Rattler to start vs. Packers**\
+`Kamara left the Saints' Week 15 loss to Washington in the second half with a groin injury. The Saints are 0-3 when Rattler has started.`\
+https://nytimes.com/athletic/6007579/2024/12/19/alvin-kamara-spencer-rattler-saints-packers/
+
+**Spending Deal Debacle Threatens Johnson’s Tenuous Hold on His Job**\
+`A Republican backlash to the speaker’s plan to temporarily fund the government has sparked new talk of ousting him, and highlighted the challenges he will face if he manages to keep his job.`\
+https://nytimes.com/2024/12/19/us/politics/spending-deal-johnson-speaker.html
+
 **Friday Briefing: 51 Men Convicted in French Rape Trial**\
 `Plus, the year in viral moments.`\
 https://nytimes.com/2024/12/19/briefing/french-rape-trial-syria-mayotte.html
