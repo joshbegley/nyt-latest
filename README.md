@@ -1,3 +1,7 @@
+**Philadelphia City Council Says Yes to New 76ers Arena Next to Chinatown**\
+`The mayor and labor unions touted the economic promise of the $1.3 billion project. Opponents said the arena would decimate the city’s storied Chinatown.`\
+https://nytimes.com/2024/12/19/us/philadelphia-76ers-arena-chinatown.html
+
 **Rick Kaufmann, Impresario of Art Furniture, Dies at 77**\
 `Was it art or was it furniture? No one was quite sure what to make of the New York movement that an idiosyncratic gallerist led in the 1970s and ’80s.`\
 https://nytimes.com/2024/12/19/arts/design/rick-kaufmann-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000009888690/french-territory-mayotte-cyclo
 **More Than Twice as Many U.S. Troops Are in Syria Than Previously Disclosed**\
 `A Pentagon spokesman said the increase was unrelated to the fall of President Bashar al-Assad to rebel forces in early December.`\
 https://nytimes.com/2024/12/19/us/politics/us-troops-syria.html
-
-**Why Silent Film Still Speaks Volumes**\
-`The old movies have a great deal to say, and linguistics can explain why.`\
-https://nytimes.com/2024/12/19/opinion/silent-film-forum.html
 
