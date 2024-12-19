@@ -1,3 +1,11 @@
+**Gisèle Pelicot Has Changed France**\
+`She has opened up a conversation about sexual violence in a country where a serious reckoning was well overdue.`\
+https://nytimes.com/2024/12/19/opinion/gisele-pelicot-rape-trial.html
+
+**NIL deals present new opportunities in the trading card industry**\
+`NIL could have far-reaching implications on the trading card industry.`\
+https://nytimes.com/athletic/6007159/2024/12/19/nil-sports-cards-ncaa/
+
 **Ex-Top Aide to Mayor Adams and Her Son Are Charged in Corruption Case**\
 `Ingrid Lewis-Martin, who resigned as the mayor’s chief adviser, was charged in a bribery scheme involving $100,000 for a new Porsche for her son.`\
 https://nytimes.com/2024/12/19/nyregion/ingrid-lewis-martin-corruption-charges.html
