@@ -1,3 +1,11 @@
+**Until Saturday: It's almost time for the first round of the 12-team CFP**\
+`Welcome to Until Saturday, the five-star college football newsletter: The 12-team Playoff is almost here.`\
+https://nytimes.com/athletic/6006463/2024/12/19/college-football-playoff-first-round-games-until-saturday/
+
+**Sammy Sosa acknowledges 'mistakes,' moves closer to reunion with Cubs**\
+`After Sosa apologized for past actions in a written statement, the Cubs invited him to 2025 Cubs Convention.`\
+https://nytimes.com/athletic/6007487/2024/12/19/sammy-sosa-cubs-reunion/
+
 **Submit your Dodgers questions for Fabian Ardaya's mailbag**\
 `Submit your Dodgers questions for Fabian Ardaya's mailbag`\
 https://nytimes.com/athletic/6007461/2024/12/19/dodgers-offseason-mailbag-sasaki/
