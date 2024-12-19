@@ -1,3 +1,11 @@
+**Could This 20-Year-Old Be One of the Democrats’ Bro Whisperers?**\
+`Dean Withers argues online with right-wing stars like Charlie Kirk and Ben Shapiro. His goal? To reach their young, male followers.`\
+https://nytimes.com/2024/12/19/style/dean-withers-tiktok.html
+
+**What It Looks Like on an Island Steamrolled by a Cyclone**\
+`A visit to the Indian Ocean islands of Mayotte, which were struck by Cyclone Chido last weekend, reveals the devastating toll of the storm on an impoverished territory that belongs to France.`\
+https://nytimes.com/2024/12/19/world/europe/mayotte-france-cyclone-destruction.html
+
 **Appeals Court Disqualifies Fani Willis From Prosecuting Georgia Trump Case**\
 `The panel overruled the trial judge, who had allowed Fani T. Willis to keep the case despite revelations of a romantic relationship that defendants said created a conflict of interest.`\
 https://nytimes.com/2024/12/19/us/fani-willis-georgia-trump-case.html
