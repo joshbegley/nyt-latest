@@ -1,3 +1,11 @@
+**Amid loud voices, USWNT defender Becky Sauerbrunn perfected the art of subtlety in leadership**\
+`Sauerbrunn announced her retirement from professional soccer after 219 appearances for the USWNT.`\
+https://nytimes.com/athletic/6005769/2024/12/19/becky-sauerbrunn-uswnt-subtly-leader/
+
+**Dylan Sampson believed in Josh Heupel's vision at Tennessee. It's paying off in the Playoff**\
+`Sampson's 22 touchdowns are the most in school history, breaking a 95-year record. His 1,485 rushing yards are also a school record.`\
+https://nytimes.com/athletic/6004836/2024/12/19/tennessee-football-dylan-sampson-ohio-state/
+
 **How a peek at the jumbotron helped the Chiefs' Trent McDuffie grab his first NFL interception**\
 `In his 41st NFL game, McDuffie made his first interception. The Chiefs are counting on him to limit Nico Collins and Tank Dell this week.`\
 https://nytimes.com/athletic/6005358/2024/12/19/chiefs-trent-mcduffie-interception-jumbotron/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6004795/2024/12/19/packers-playoff-outlook-edgerrin
 **How an NHL broadcaster prepares for a game, from name pronunciations to locker-room stories**\
 `In his 36th NHL season, Blues broadcaster John Kelly still takes pride in passing along information that brings fans closer to the team.`\
 https://nytimes.com/athletic/5990291/2024/12/19/blues-john-kelly-broadcaster/
-
-**Our experts' College Football Playoff bracket predictions: Who will win it all?**\
-`Six of the 12 College Football Playoff teams received at least one national title vote from 30 writers and editors who filled out brackets.`\
-https://nytimes.com/athletic/6003358/2024/12/19/college-football-playoff-bracket-predictions/
-
-**William Nylander on excelling under Craig Berube and his next lofty goal for the Leafs**\
-`Nylander is quick to rave about the Leafs coach and his playing style that has him scoring more than ever.
-`\
-https://nytimes.com/athletic/6005513/2024/12/19/maple-leafs-william-nylander-craig-berube/
 
