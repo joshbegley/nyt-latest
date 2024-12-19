@@ -1,3 +1,7 @@
+**Here’s a look at the details of the case.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/heres-a-look-at-the-details-of-the-case
+
 **Veltman fit to return for West Ham trip**\
 `Brighton &amp; Hove Albion will welcome back defender Joel Veltman for Saturday&#8217;s visit to West Ham.`\
 https://nytimes.com/athletic/6005996/2024/12/19/brighton-joel-veltman-injury/
