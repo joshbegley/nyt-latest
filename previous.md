@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/here-are-the-latest-developments
+
+**Live Updates: Verdicts Are Due in Rape Trial That Shook France**\
+`Dominique Pelicot, 72, is accused of drugging and raping his wife for nearly a decade and inviting strangers to join him. The case has made her a feminist hero.`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot
+
 **Liverpool's adaptability in adversity is becoming one of their greatest strengths**\
 `A rotated line-up with square pegs in round holes cruised to victory at Southampton - it was an ominous sign for Liverpool's rivals`\
 https://nytimes.com/athletic/6005508/2024/12/19/liverpool-carabao-cup-wataru-endo-slot/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/world/asia/china-astronaut-spacewalk-record.html
 **Chinese Astronauts Spend 9 Hours Outside Space Station**\
 `The spacewalk appears to be the longest in history, barely breaking a record set by American astronauts in 2001.`\
 https://nytimes.com/video/world/asia/100000009886746/china-astronaut-spacewalk-record.html
-
-**Benjamin Netanyahu’s Unlikely Hold on Power**\
-`The Israeli prime minister remains in power.`\
-https://nytimes.com/2024/12/19/opinion/netanyahu-israel-power.html
-
-**Short-handed Wild handed humbling loss by Cup champion Panthers: Takeaways**\
-`It's the first time this season the Wild have lost two consecutive games in regulation.`\
-https://nytimes.com/athletic/6005712/2024/12/19/wild-humbling-loss-panthers-injuries/
 

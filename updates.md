@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/here-are-the-latest-developments
+
+**Live Updates: Verdicts Are Due in Rape Trial That Shook France**\
+`Dominique Pelicot, 72, is accused of drugging and raping his wife for nearly a decade and inviting strangers to join him. The case has made her a feminist hero.`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot
+
 **Liverpool's adaptability in adversity is becoming one of their greatest strengths**\
 `A rotated line-up with square pegs in round holes cruised to victory at Southampton - it was an ominous sign for Liverpool's rivals`\
 https://nytimes.com/athletic/6005508/2024/12/19/liverpool-carabao-cup-wataru-endo-slot/
