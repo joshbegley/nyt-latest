@@ -1,3 +1,19 @@
+**Giséle Pelicot’s Ex-Husband Found Guilty in Mass Rape Trial**\
+`A French court found the ex-husband of Ms. Pelicot, Dominique Pelicot, guilty and sentenced him to 20 years in jail. Fifty other men were also convicted in the mass rape trial.`\
+https://nytimes.com/video/world/europe/100000009887001/gisle-pelicot-rape-trial-case.html
+
+**It’s a Mistake to Charge Luigi Mangione With Terrorism**\
+`It could complicate a simple case and turn it into a political circus.`\
+https://nytimes.com/2024/12/19/opinion/luigi-mangione-terrorism.html
+
+**All They Want for Christmas? This Mariah Carey Bar.**\
+`A New York City lounge devoted to the singer plays her 1994 holiday hit every 15 minutes.`\
+https://nytimes.com/2024/12/19/style/mariah-carey-holiday-bar-nyc.html
+
+**Kylie Kelce Doesn’t Want to Talk About Besting Joe Rogan**\
+`But in her first interview since her podcast reached No. 1, she does share ideas about why the show has become a breakout hit.`\
+https://nytimes.com/2024/12/19/business/media/kylie-kelce-podcast.html
+
 **Nvidia’s Booming A.I. Business Collides With U.S.-Chinese Tensions**\
 `The chipmaker expects more than $10 billion in foreign sales this year, but the Biden administration is advancing rules that could curb that growth.`\
 https://nytimes.com/2024/12/19/technology/nvidia-chip-sales-us-china.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/19/us/politics/trump-johnson-spending-bill-shutdown.
 **The 73 Best Illustrations of 2024**\
 `The most memorable illustrations of the year, chosen by art directors at The New York Times.`\
 https://nytimes.com/interactive/2024/12/19/arts/year-in-illustration.html
-
-**Calls to the Media: Fight Trump’s Lawsuits**\
-`Readers discuss lawsuits against The Des Moines Register and ABC News. Also: Violence in school; a Mideast bridge; cash and the disabled; murder is wrong.`\
-https://nytimes.com/2024/12/19/opinion/trump-media-lawsuits.html
-
-**White Chicken Chili to Welcome Them Home**\
-`Lidey Heuck’s customizable, five-star chili replenishes and restores.`\
-https://nytimes.com/2024/12/19/dining/white-chicken-chili.html
-
-**Elon Musk Flexes His Political Strength as Government Shutdown Looms**\
-`The world’s richest man led the charge to kill a bipartisan spending deal, in part by promoting false and misleading claims about it.`\
-https://nytimes.com/2024/12/19/us/politics/elon-musk-politics.html
-
-**Man pleads guilty to stalking UConn's Paige Bueckers**\
-`Robert Cole Parmalee received a one-year suspended sentence and three years' probation in Rockville Superior Court (Conn.) on Wednesday.`\
-https://nytimes.com/athletic/6006585/2024/12/19/paige-bueckers-stalker-pleads-guilty-uconn/
 
