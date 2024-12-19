@@ -1,3 +1,7 @@
+**Tierney was a driving force in the early Arteta era but has been a victim of injuries and identity**\
+`Arsenal have decided not to extend the full-back's contract, a reflection of how his status has changed in recent years`\
+https://nytimes.com/athletic/6003971/2024/12/19/kieran-tierney-arsenal-contract-arteta/
+
 **‘The Daily’ podcast covers Gisèle Pelicot’s rise to feminist hero.**\
 `By The Daily Team`\
 https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/the-daily-podcast-covers-gisele-pelicots-rise-to-feminist-hero
