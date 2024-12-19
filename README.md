@@ -1,3 +1,7 @@
+**Andrew Cuomo Plans to Sue Harassment Accuser for Defamation**\
+`Mr. Cuomo, the former governor of New York, accused a former aide, Charlotte Bennett, of falsely saying that he sexually harassed her, harming his political future.`\
+https://nytimes.com/2024/12/19/nyregion/cuomo-charlotte-bennett-defamation.html
+
 **The Bounce: Let's pick NBA All-Star starters! Plus, Bodega KAT returns to Minnesota tonight!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6006166/2024/12/19/nba-all-star-voting-karl-anthony-towns-timberwolves-knicks-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6001045/2024/12/19/nfl-week-16-fantasy-football-bet
 **Saudi Arabia to play in 2025 and 2027 Gold Cup as guest participant**\
 `Saudi Arabia will play in the 2025 and 2027 editions of the Gold Cup as one of 16 teams participating in the tournaments organised by CONCACAF.`\
 https://nytimes.com/athletic/6006943/2024/12/19/saudi-arabia-gold-cup-guest/
-
-**With Guilty Verdicts, Victim’s Rape Ordeal in France Becomes a Message of Hope**\
-`Dozens of men who abused Gisèle Pelicot were convicted, including the man who invited them to do so: her husband of 50 years. She wanted the public trial to show rape victims they were not alone.`\
-https://nytimes.com/2024/12/19/world/europe/pelicot-rape-trial-guilty-verdict.html
 
