@@ -1,3 +1,7 @@
+**Amazon's NHL behind-the-scenes series renewed, to feature Brady Tkachuk**\
+`Tkachuk also appeared in Season 1. The other NHL players featured in Season 2 will be announced at a later date.`\
+https://nytimes.com/athletic/6004935/2024/12/19/amazon-faceoff-inside-nhl-renewed/
+
 **NBA Lookahead: How does the league fix its TV ratings?**\
 `Are concerns over falling TV numbers justified? Plus, a look at the top games of the weekend, including Bucks-Cavaliers. `\
 https://nytimes.com/athletic/5999945/2024/12/19/nba-lebron-james-ratings-adam-silver-michael-jordan-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/business/dealbook/trump-fed-congress-markets.html
 **Inside Everton's Friedkin takeover: From the precipice to fresh hope thanks to new U.S. owner**\
 `Everton have been an embattled club for too long - now with The Friedkin Group in charge can they look forward to a brighter future?`\
 https://nytimes.com/athletic/6003625/2024/12/19/everton-us-takeover-friedkin-moshiri/
-
-**Hamza Choudhury declares for Bangladesh: 'I want to represent the people'**\
-`Hamza Choudhury has decided to represent Bangladesh at international level`\
-https://nytimes.com/athletic/5749745/2024/12/19/hamza-choudhury-bangladesh-leicester/
 
