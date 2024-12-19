@@ -1,3 +1,15 @@
+**Progress and progression: Newcastle close in on dreamland**\
+`A 3-1 win over Brentford in their League Cup quarterfinal gives Newcastle belief they can salvage something tangible from a testing season `\
+https://nytimes.com/athletic/6005055/2024/12/19/newcastle-brentford-league-cup-quarter-final/
+
+**Despite Thatcher Demko's play, Canucks lose OT thriller in Utah: 3 takeaways**\
+`Vancouver took a 2-0 lead Wednesday, but this Utah team isn't to be trifled with or written off.`\
+https://nytimes.com/athletic/6005798/2024/12/19/canucks-utah-overtime-dakota-joshua/
+
+**Jesus has to help Arsenal and carry momentum forward into Premier League**\
+`Arsenal beat Crystal Palace on Wednesday night to advance in the Carabao Cup`\
+https://nytimes.com/athletic/6005124/2024/12/19/arsenal-gabriel-jesus-crystal-palace-analysis/
+
 **Chinese Spacewalk Apparently Breaks a Record (Barely)**\
 `China said two of its astronauts spent nine hours outside the Tiangong Space Station. The longest previous spacewalk, by Americans, was eight hours and 56 minutes.`\
 https://nytimes.com/2024/12/19/world/asia/china-astronaut-spacewalk-record.html

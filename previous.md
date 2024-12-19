@@ -1,3 +1,15 @@
+**Progress and progression: Newcastle close in on dreamland**\
+`A 3-1 win over Brentford in their League Cup quarterfinal gives Newcastle belief they can salvage something tangible from a testing season `\
+https://nytimes.com/athletic/6005055/2024/12/19/newcastle-brentford-league-cup-quarter-final/
+
+**Despite Thatcher Demko's play, Canucks lose OT thriller in Utah: 3 takeaways**\
+`Vancouver took a 2-0 lead Wednesday, but this Utah team isn't to be trifled with or written off.`\
+https://nytimes.com/athletic/6005798/2024/12/19/canucks-utah-overtime-dakota-joshua/
+
+**Jesus has to help Arsenal and carry momentum forward into Premier League**\
+`Arsenal beat Crystal Palace on Wednesday night to advance in the Carabao Cup`\
+https://nytimes.com/athletic/6005124/2024/12/19/arsenal-gabriel-jesus-crystal-palace-analysis/
+
 **Chinese Spacewalk Apparently Breaks a Record (Barely)**\
 `China said two of its astronauts spent nine hours outside the Tiangong Space Station. The longest previous spacewalk, by Americans, was eight hours and 56 minutes.`\
 https://nytimes.com/2024/12/19/world/asia/china-astronaut-spacewalk-record.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5993710/2024/12/19/unai-emery-pau-torres-tyrone-min
 **Fantasy Premier League: With no obvious choice, how do you pick a captain for Gameweek 17?**\
 `Is Bruno Fernandes the best captaincy differential this week? Here are your best FPL options`\
 https://nytimes.com/athletic/6001527/2024/12/19/fantasy-premier-league-picking-captain-gameweek-17/
-
-**Manchester United, dressing-room leaks and why it's not a new problem**\
-`Ruben Amorim is not the first manager to discover that the roof is not the only thing that leaks at Old Trafford`\
-https://nytimes.com/athletic/5986437/2024/12/19/manchester-united-dressing-room-leaks/
-
-**Stephen Bradley: 'They put a gun to my head and stabbed me three times. That's all I remember'**\
-`Bradley nearly died as a teenager while on the books at Arsenal. He returns to London in charge of Shamrock Rovers to face Chelsea`\
-https://nytimes.com/athletic/6000865/2024/12/19/stephen-bradley-arsenal-stabbing-shamrock-chelsea-conference-league/
-
-**Why Nottingham Forest's Premier League success isn't a fluke: Solid defence, set pieces, quick shots**\
-`The Nuno effect according to the numbers - how he took them from being relegation battlers to fourth place`\
-https://nytimes.com/athletic/6003247/2024/12/19/why-nottingham-forests-premier-league-success-isnt-a-fluke/
 
