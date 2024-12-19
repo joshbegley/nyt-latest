@@ -93,6 +93,11 @@ https://nytimes.com/athletic/6005513/2024/12/19/maple-leafs-william-nylander-cra
 `\
 https://nytimes.com/athletic/6005513/2024/12/19/maple-leafs-william-nylander-craig-berube/
 
+**William Nylander on excelling under Craig Berube and his next lofty goal for the Leafs**\
+`Nylander is quick to rave about the Leafs coach and his playing style that has him scoring more than ever.
+`\
+https://nytimes.com/athletic/6005513/2024/12/19/maple-leafs-william-nylander-craig-berube/
+
 **How a peek at the jumbotron helped the Chiefs' Trent McDuffie grab his first NFL interception**\
 `In his 41st NFL game, McDuffie made his first interception. The Chiefs are counting on him to limit Nico Collins and Tank Dell this week.`\
 https://nytimes.com/athletic/6005358/2024/12/19/chiefs-trent-mcduffie-interception-jumbotron/
