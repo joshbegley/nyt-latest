@@ -8,7 +8,7 @@ https://nytimes.com/2024/12/19/world/middleeast/yemen-israel-houthis.html
 
 **Everton's Friedkin Group takeover explained: How rich are they? How will the club change?**\
 `Here's everything you need to know about the Everton takeover - and what The Friedkin Group will bring to the club`\
-https://nytimes.com/athletic/5974316/2024/12/19/evertons-friedkin-group-takeover-explained-how-rich-are-they-how-will-the-club-change/
+https://nytimes.com/athletic/5974316/2024/12/19/evertons-friedkin-group-takeover-explained/
 
 **Joe Burrow learning his voice in Bengals' season gone sideways: 'I expect greatness'**\
 `The quarterback admits he could have handled his emotions better after video of him venting at coach Zac Taylor on Sunday went viral.`\
