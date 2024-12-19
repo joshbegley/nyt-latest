@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6005162/2024/12/18/vanderbilt-qb-diego-pavia-prelim
 `Dante Fabbro may miss some games, but the veteran defenseman's injuries aren't as extensive as feared.`\
 https://nytimes.com/athletic/6005046/2024/12/18/blue-jackets-dante-fabbro-injury-update/
 
-**Rangers trade Kaapo Kakko to Seattle for Will Borgen, two picks**\
+**Rangers trade Kaapo Kakko to Kraken for Will Borgen, 2 draft picks**\
 `The 23-year-old played six seasons with the Rangers and had found early success on the third line this season.`\
 https://nytimes.com/athletic/6004718/2024/12/18/rangers-kaapo-kakko-trade-seattle-will-borgen-picks/
 
