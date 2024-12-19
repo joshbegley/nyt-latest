@@ -1,3 +1,7 @@
+**Supporters of Gisèle Pelicot came from far and wide.**\
+`By Ségolène Le Stradic`\
+https://nytimes.com/live/2024/12/19/world/france-rape-verdict-pelicot/supporters-of-gisele-pelicot-came-from-far-and-wide
+
 **Putin Tries to Put Positive Spin on Russian Setback in Syria**\
 `The Russian president said that he had not yet met with Bashar al-Assad, the ousted Syrian leader who fled to Moscow, but that he planned to.`\
 https://nytimes.com/2024/12/19/world/europe/putin-press-conference-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6004786/2024/12/19/colts-highest-paid-michael-pittm
 **Penguins fan survey results: Your views on Dubas, Jagr and more**\
 `We asked, you answered: Here are the results from our in-season Penguins fan poll.`\
 https://nytimes.com/athletic/6001746/2024/12/19/penguins-fan-survey-results-rebuild/
-
-**What’s next for Kirk Cousins? How the Falcons could move on and where the QB would fit best**\
-`Is Cousins finished? If not, he should have the leverage to choose his next team and sign for cheap, making the Browns an excellent fit.`\
-https://nytimes.com/athletic/6001596/2024/12/19/kirk-cousins-benched-contract-trade-release/
 
