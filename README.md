@@ -1,3 +1,11 @@
+**Gisèle Pelicot Has Changed France**\
+`She has opened up a conversation about sexual violence in a country where a serious reckoning was well overdue.`\
+https://nytimes.com/2024/12/19/opinion/gisele-pelicot-rape-trial.html
+
+**NIL deals present new opportunities in the trading card industry**\
+`NIL could have far-reaching implications on the trading card industry.`\
+https://nytimes.com/athletic/6007159/2024/12/19/nil-sports-cards-ncaa/
+
 **Ex-Top Aide to Mayor Adams and Her Son Are Charged in Corruption Case**\
 `Ingrid Lewis-Martin, who resigned as the mayor’s chief adviser, was charged in a bribery scheme involving $100,000 for a new Porsche for her son.`\
 https://nytimes.com/2024/12/19/nyregion/ingrid-lewis-martin-corruption-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/health/fda-healthy-foods-label.html
 **Read the Criminal Complaint Against Luigi Mangione**\
 `Federal prosecutors in Manhattan have filed four charges against Luigi Mangione, the suspect in the fatal shooting of UnitedHealthcare’s chief executive.`\
 https://nytimes.com/interactive/2024/12/19/nyregion/24-mag-4375-mangione-complaint.html
-
-**The Simplest Way to Make Creamy Scrambled Eggs for a Crowd**\
-`All it takes is one pot, two dozen eggs and 10 minutes of cooking to serve breakfast to a full house.`\
-https://nytimes.com/2024/12/19/dining/big-batch-scrambled-eggs.html
-
-**2024 Was the Year of Chickpea Anxiety**\
-`It was also a good year for easy, excellent bean recipes and cooking yourself cauliflowers.`\
-https://nytimes.com/2024/12/19/dining/2024-best-veggie-recipes.html
 
