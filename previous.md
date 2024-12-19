@@ -1,3 +1,7 @@
+**Ratcliffe invests further £79m into Man Utd, increases INEOS stake in club**\
+`Sir Jim Ratcliffe has transferred ownership of his shares in Manchester United to INEOS, bringing the football club in line with the rest of the sports investments in his petrochemicals company’s portfolio.`\
+https://nytimes.com/athletic/6006099/2024/12/19/manchester-united-ratcliffe-investment/
+
 **Britain’s Economy Is ‘Bumbling’ Into the New Year**\
 `Stubborn inflation, tax rises and high interest rates makes it difficult for many to muster optimism, at least in the short term.`\
 https://nytimes.com/2024/12/19/business/uk-economy-bank-of-england.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/movies/the-six-triple-eight-review.html
 **‘Homestead’ Review: A Home Away From Armageddon**\
 `The moment these Doomsday preppers have been waiting for has arrived, and from within their secure compound they’re confronting unexpected complications.`\
 https://nytimes.com/2024/12/19/movies/homestead-review-armageddon-fortress.html
-
-**The Pulse: He nixed a trade due to Madden ratings**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6005462/2024/12/19/jets-woody-johnson-aaron-rodgers-madden-the-pulse/
 

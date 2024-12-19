@@ -1,3 +1,7 @@
+**Ratcliffe invests further £79m into Man Utd, increases INEOS stake in club**\
+`Sir Jim Ratcliffe has transferred ownership of his shares in Manchester United to INEOS, bringing the football club in line with the rest of the sports investments in his petrochemicals company’s portfolio.`\
+https://nytimes.com/athletic/6006099/2024/12/19/manchester-united-ratcliffe-investment/
+
 **Britain’s Economy Is ‘Bumbling’ Into the New Year**\
 `Stubborn inflation, tax rises and high interest rates makes it difficult for many to muster optimism, at least in the short term.`\
 https://nytimes.com/2024/12/19/business/uk-economy-bank-of-england.html
