@@ -1,3 +1,11 @@
+**2024 Was the Year of Chickpea Anxiety**\
+`It was also a good year for easy, excellent bean recipes and cooking yourself cauliflowers.`\
+https://nytimes.com/2024/12/19/dining/2024-best-veggie-recipes.html
+
+**U.S. Files Murder Charge Against Mangione in C.E.O. Shooting Case**\
+`Federal authorities filed four counts against Luigi Mangione, who is accused of killing Brian Thompson, the chief executive of UnitedHealthcare.`\
+https://nytimes.com/2024/12/19/nyregion/luigi-mangione-federal-charges.html
+
 **Andrew Cuomo Plans to Sue Harassment Accuser for Defamation**\
 `Mr. Cuomo, the former governor of New York, accused a former aide, Charlotte Bennett, of falsely saying that he sexually harassed her, harming his political future.`\
 https://nytimes.com/2024/12/19/nyregion/cuomo-charlotte-bennett-defamation.html
