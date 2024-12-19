@@ -1,3 +1,7 @@
+**Adams’s Former Chief Adviser and Her Son Charged With Corruption**\
+`Ingrid Lewis-Martin, who resigned as Mayor Eric Adams’s chief adviser, and her son, Glenn D. Martin II, were charged with taking $100,000 in bribes from two businessmen in a quid-pro-quo scheme.`\
+https://nytimes.com/video/nyregion/100000009888025/lewis-martin-bribery-charges-new-york.html
+
 **Until Saturday: It's almost time for the first round of the 12-team CFP**\
 `Welcome to Until Saturday, the five-star college football newsletter: The 12-team Playoff is almost here.`\
 https://nytimes.com/athletic/6006463/2024/12/19/college-football-playoff-first-round-games-until-saturday/
