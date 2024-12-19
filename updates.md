@@ -1,3 +1,7 @@
+**American Airlines Settles Racial Discrimination Case**\
+`Three Black men had accused the airline of wrongly forcing them to get off a plane for an hour because of a complaint about body odor.`\
+https://nytimes.com/2024/12/19/business/american-airlines-discrimination-case.html
+
 **Rupert Murdoch’s Appeal to Alter Family Trust Faces Uphill Battle**\
 `Mr. Murdoch’s appeal over whether he can consolidate his son Lachlan’s power over his media empire is due just before Christmas.`\
 https://nytimes.com/2024/12/19/business/media/rupert-murdochs-appeal-to-alter-family-trust-faces-uphill-battle.html
