@@ -1,3 +1,7 @@
+**Lawson to race for Red Bull in 2025 as Pérez’s replacement**\
+`Lawson, 22, has been part of the Red Bull family since 2021. `\
+https://nytimes.com/athletic/6005264/2024/12/19/liam-lawson-f1-red-bull-2025-sergio-perez/
+
 **Late Night Continues to Drone On About Sightings in the Sky**\
 `“‘Nothing nefarious, apparently’ doesn’t exactly inspire confidence,” Stephen Colbert said of President Biden’s comments about mysterious drones seen over New Jersey.`\
 https://nytimes.com/2024/12/19/arts/television/late-night-drones.html
