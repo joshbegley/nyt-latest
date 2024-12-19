@@ -1,3 +1,7 @@
+**Wolves appoint Vitor Pereira as new head coach**\
+`Wolverhampton Wanderers have appointed Vitor Pereira as their new head coach.`\
+https://nytimes.com/athletic/5995235/2024/12/19/wolves-appoint-vitor-pereira/
+
 **After failed point guard experiment, Jeremy Sochan has a green new deal with the Spurs**\
 `San Antonio tried to make the 6-foot-8 Sochan their primary ballhandler last season. Now, he's back to being a power forward — and agitator.`\
 https://nytimes.com/athletic/6006327/2024/12/19/spurs-jeremy-sochan-wembanyama/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005195/2024/12/19/crystal-palace-takeover-john-tex
 **49ers mailbag: Will Dre Greenlaw, Talanoa Hufanga be offseason priorities?**\
 `Among this week's questions: I want to buy my 10-year-old nephew a 49ers jersey for Christmas. Which player should I pick?`\
 https://nytimes.com/athletic/6005235/2024/12/19/49ers-mailbag-dre-greenlaw-talanoa-hufanga/
-
-**Inside the Chargers' showdown vs. Broncos: Will quick turnaround be a blessing?**\
-`Defensive coordinator Jesse Minter: “It can be a one-off if we respond the right way. If we don’t, then it becomes a trend.”`\
-https://nytimes.com/athletic/6005259/2024/12/19/chargers-broncos-tnf-preview-matchups/
 
