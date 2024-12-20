@@ -1,11 +1,3 @@
-**Cathy Cade, Groundbreaking Lesbian Photographer, Dies at 82**\
-`The she became a photographer the same year she came out, chronicling the lives of women in same-sex relationships — something most people had never seen.`\
-https://nytimes.com/2024/12/20/arts/cathy-cade-dead.html
-
-**Democrats highlight a casualty of the spending fight: funding to combat pediatric cancer.**\
-`By Teddy Rosenbluth`\
-https://nytimes.com/live/2024/12/20/us/government-shutdown-trump-news/democrats-highlight-a-casualty-of-the-spending-fight-funding-to-combat-pediatric-cancer
-
 **An X-supported bill to help victims of deepfake porn fell with the spending measure Musk helped kill.**\
 `By Kate Conger`\
 https://nytimes.com/live/2024/12/20/us/government-shutdown-trump-news/an-x-supported-bill-to-help-victims-of-deepfake-porn-fell-with-the-spending-measure-musk-help-kill
@@ -37,4 +29,12 @@ https://nytimes.com/2024/12/20/business/economy/government-shutdown-economy-impa
 **The 10 Architectural Sites You Should See in São Paulo**\
 `These buildings and places capture the city’s playful approach to concrete-and-asphalt Modernism.`\
 https://nytimes.com/2024/12/20/t-magazine/sao-paulo-architecture-guide.html
+
+**The Other Game**\
+`At the DealBook Summit, seven sports stars and experts discussed how building a brand as an athlete has changed.`\
+https://nytimes.com/2024/12/20/business/dealbook/sports-branding.html
+
+**The Trinidadian Christmas Staple Worth the Yearlong Wait**\
+`Chow chow, a bright and bracing pickled relish, is essential to the holiday table in Trinidad and Tobago — and the perfect accompaniment to ham.`\
+https://nytimes.com/2024/12/20/dining/christmas-chow-chow-trinidad-tobago.html
 
