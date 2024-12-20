@@ -1,40 +1,40 @@
-**Starbucks Workers Say They Will Begin a Strike in 3 Cities on Friday**\
-`The planned walkout in Los Angeles, Chicago and Seattle comes after talks between the company and the workers’ union failed to produce an agreement on raises.`\
-https://nytimes.com/2024/12/19/business/economy/starbucks-union-strike.html
+**Which Premier League players could get Christmas off through suspension?**\
+`Premier League football is non-stop during the festive season but there are up to 38 players who could be about to get Christmas off.`\
+https://nytimes.com/athletic/6000618/2024/12/20/premier-league-christmas-bookings-explainer/
 
-**Warriors, Steph Curry suffer historic 51-point loss to Grizzlies in Dennis Schröder's debut**\
-`Before Thursday, Curry had never before recorded zero field goals in a game in which he played 12 minutes. `\
-https://nytimes.com/athletic/6008591/2024/12/19/stephen-curry-warriors-grizzlies-score-stats/
+**Chargers get closer to postseason with win vs. Broncos: Takeaways**\
+`With the win and loses by the Miami Dolphins and Indianapolis Colts this weekend, Los Angeles would clinch a playoff berth this weekend.`\
+https://nytimes.com/athletic/6008598/2024/12/20/chargers-get-closer-to-postseason-justin-herbert-shines-in-win-vs-broncos-key-takeaways/
 
-**Chargers score vs. Broncos with rarely used fair-catch kick**\
-`The last successful such kick was also made by the Chargers, in 1976 by Ray Wersching.`\
-https://nytimes.com/athletic/6008537/2024/12/19/chargers-fair-catch-kick/
+**A Mouse That Swims and Dozens More Species Are Discovered in a Peruvian Jungle**\
+`A 38-day expedition in the remote Alto Mayo region, where development threatens wild habitats, turned up one previously unknown animal after another.`\
+https://nytimes.com/2024/12/20/science/peru-alto-mayo-species-discovered.html
 
-**MLB notes: The latest on Vladimir Guerrero Jr., Bo Bichette and the Blue Jays' offseason**\
-`Plus more on the Yankees' options at first base and a new team for Gio Urshela.`\
-https://nytimes.com/athletic/6008454/2024/12/19/blue-jays-vladimir-guerrero-bo-bichette-yankees/
+**Friday Briefing**\
+`The rape trial that horrified France.`\
+https://nytimes.com/2024/12/20/briefing/gisele-pelicot-syria.html
 
-**Move Like a Crab**\
-`Henry Josephson makes his New York Times Crossword debut.`\
-https://nytimes.com/2024/12/19/crosswords/daily-puzzle-2024-12-20.html
+**On Avignon’s Ancient Ramparts, Modern Messages Denounce ‘Rape Culture’**\
+`A feminist collective, the Amazons of Avignon, has been plastering the walls of the city with testimony from the trial of the 51 men who were convicted in the Gisele Pelicot rape case.`\
+https://nytimes.com/2024/12/20/world/europe/avignon-france-pelicot-trial.html
 
-**JJ Redick dishes on declining NBA ratings: 'This game should be celebrated'**\
-`“If I'm a casual fan and you tell me every time I turn on the television that the product sucks, well, I'm not going to watch the product."`\
-https://nytimes.com/athletic/6008384/2024/12/19/jj-redick-lakers-lebron-james-tv-ratings/
+**Review: In a Stripped-Down ‘Gypsy,’ Audra’s Gonna Show It to Ya**\
+`Hold your hats and hallelujah, our leading musical tragedienne offers an ultra-dramatic Rose in George C. Wolfe’s Broadway revival.`\
+https://nytimes.com/2024/12/20/theater/gypsy-review-audra-mcdonald.html
 
-**Cowan, Canada smash Switzerland in World Juniors pre-tournament win**\
-`Maple Leafs first-round pick Easton Cowan scored a hat trick as Canada prevailed 7-1.`\
-https://nytimes.com/athletic/6005202/2024/12/19/canada-world-juniors-easton-cowan-switzerland/
+**Ukrainians Mourn the Loss of a Young Journalist and Her Stories**\
+`Viktoria Roshchyna died in September in Russian custody. The reporter had been well-known for her stories about life in parts of occupied Ukraine.`\
+https://nytimes.com/2024/12/20/world/europe/ukraine-journalist-viktoria-roshchyna-dead.html
 
-**Karl-Anthony Towns welcomed back to Minnesota with ovation, tribute video**\
-`“They're still my brothers, still my guys, just because the trade happened doesn't mean I lost love for them,” Towns said.`\
-https://nytimes.com/athletic/6008193/2024/12/19/kat-karl-anthony-towns-knicks-timberwolves/
+**A Union That Could Not Wait**\
+`After a year of dating, Adrian Burrus and Quinn Sames began considering marriage. But when the presidential election results were announced, getting married became a priority.`\
+https://nytimes.com/2024/12/20/style/adrian-burrus-quinn-sames-wedding.html
 
-**Dozens of House Republicans Defy Trump in Test of His Grip on G.O.P.**\
-`Thirty-eight Republican lawmakers resisted the president-elect’s command to support a spending and debt deal, showing that at least some of his followers are willing to buck his leadership in the right circumstances.`\
-https://nytimes.com/2024/12/19/us/politics/trump-republicans-spending-bill.html
+**A First Date She Nearly Called Off**\
+`Blair Smith and Alec Hall met on a gloomy winter night, but their time together took a celebratory turn when he popped a bottle of champagne.`\
+https://nytimes.com/2024/12/20/style/blair-smith-alec-hall-wedding.html
 
-**Phillies add Max Kepler on 1-year-deal, but offseason picture remains incomplete**\
-`If anything, the Kepler deal signals the Phillies will lean into mixing and matching again in their outfield.`\
-https://nytimes.com/athletic/6008322/2024/12/19/max-kepler-contract-phillies-mlb-free-agency/
+**Grief Makes Us Time Travelers**\
+`A neuroscientist studying memory, I used to believe time was linear. Then my mother had a stroke.`\
+https://nytimes.com/2024/12/20/style/modern-love-grief-makes-us-time-travelers.html
 
