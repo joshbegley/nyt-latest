@@ -1,3 +1,7 @@
+**Britannica Didn’t Just Survive. It’s an A.I. Company Now.**\
+`The encyclopedia maker could have become a casualty of the Wikipedia era. But it has remade itself into a digital learning giant that is weighing going public.`\
+https://nytimes.com/2024/12/20/business/dealbook/britannica-artificial-intelligence.html
+
 **The Athletic FC: Pogba, his brother and £11m extortion plot; inside Everton takeover**\
 `Today in TAFC: Paul Pogba's brother convicted over extortion plot, inside the Everton buyout and Fraser Forster's double shocker.`\
 https://nytimes.com/athletic/6008935/2024/12/20/pogba-blackmail-extortion-prison-everton-takeover/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/podcasts/hardfork-amazon-drone-delivery.html
 **How Arsenal fans feel about Mikel Arteta's five years at the club**\
 `Five years on from his appointment as manager, Arsenal fans assess Mikel Arteta's time in charge`\
 https://nytimes.com/athletic/6004314/2024/12/20/arsenal-survey-analysis-results-mikel-arteta/
-
-**The Pulse: Weird NFL rule ends 48-year hiatus**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6007568/2024/12/20/chargers-free-kick-cfp-indiana-notre-dame-the-pulse/
 
