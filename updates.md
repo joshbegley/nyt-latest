@@ -1,3 +1,11 @@
+**Canucks squander early lead in loss to Golden Knights: 3 takeaways**\
+`After a solid first period, tired legs and a bad goal doomed Vancouver in Vegas on the second night of a back-to-back.`\
+https://nytimes.com/athletic/6008707/2024/12/20/canucks-golden-knights-kevin-lankinen/
+
+**Ruben Amorim is finding order in the chaos of Manchester United**\
+`Even amid this mess of a game, United were attempting to bring order. And that, Amorim will think, is progress`\
+https://nytimes.com/athletic/6008400/2024/12/20/ruben-amorim-man-united-tottenham-carabao-analysis/
+
 **Seth Meyers: Donald Trump Got ‘Cable Guy’-ed by Elon Musk**\
 `The “Late Night” host likened Trump’s relationship with Musk to the 1996 Jim Carrey movie: “You let him do you a favor, and now you can’t get rid of him.”`\
 https://nytimes.com/2024/12/20/arts/television/seth-meyers-trump-musk.html
