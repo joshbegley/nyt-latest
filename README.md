@@ -1,3 +1,7 @@
+**The Budget Fight and Trump’s Nihilistic Style**\
+`A surprise congressional standoff remind us that big, discordant change could be coming.`\
+https://nytimes.com/2024/12/20/opinion/trump-shutdown-allegiances.html
+
 **G.O.P. Spending Hawks Defy Trump on the Debt Limit, Previewing More Clashes**\
 `President-elect Donald J. Trump is known for his tight grip on members of his party, but the rare rejection of his demand to raise the debt limit reflected a disconnect that could plague his policy agenda.`\
 https://nytimes.com/2024/12/20/us/politics/gop-spending-hawks-trump-debt.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/20/us/government-shutdown-trump-news/an-x-suppo
 **Biden Administration Weighs Putting Up Roadblocks to Trump’s Deportation Campaign**\
 `The administration may extend protections for hundreds of thousands of immigrants whose legal status is set to expire near the start of the Trump administration.`\
 https://nytimes.com/2024/12/20/us/politics/biden-trump-deportation-protection.html
-
-**Ravens waive veteran WR Diontae Johnson**\
-`The veteran receiver served a one-game suspension in Week 15 after refusing to take the field in Week 13.`\
-https://nytimes.com/athletic/6010084/2024/12/20/ravens-waive-diontae-johnson/
 
