@@ -1,3 +1,11 @@
+**Biden Administration Weighs Putting Up Roadblocks to Trump’s Deportation Campaign**\
+`The administration may extend protections for hundreds of thousands of immigrants whose legal status is set to expire near the start of the Trump administration.`\
+https://nytimes.com/2024/12/20/us/politics/biden-trump-deportation-protection.html
+
+**Ravens waive veteran WR Diontae Johnson**\
+`The veteran receiver served a one-game suspension in Week 15 after refusing to take the field in Week 13.`\
+https://nytimes.com/athletic/6010084/2024/12/20/ravens-waive-diontae-johnson/
+
 **The Trinidadian Christmas Staple Worth the Yearlong Wait**\
 `Chow chow, a bright and bracing pickled relish, is essential to the holiday table in Trinidad and Tobago — and the perfect accompaniment to ham.`\
 https://nytimes.com/2024/12/20/dining/christmas-chow-chow-trinidad-tobago.html
