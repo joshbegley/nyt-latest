@@ -1,3 +1,7 @@
+**Starbucks Workers Say They Will Begin a Strike in 3 Cities on Friday**\
+`The planned walkout in Los Angeles, Chicago and Seattle comes after talks between the company and the workers’ union failed to produce an agreement on raises.`\
+https://nytimes.com/2024/12/19/business/economy/starbucks-union-strike.html
+
 **Chargers score vs. Broncos with rarely used fair-catch kick**\
 `The last successful such kick was also made by the Chargers, in 1976 by Ray Wersching.`\
 https://nytimes.com/athletic/6008537/2024/12/19/chargers-fair-catch-kick/
