@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6007959/2024/12/19/chicago-cubs-sammy-sosa-reunion/
 `The veteran Labour lawmaker chosen by Prime Minister Keir Starmer has experience in trade policy and business and was once nicknamed “the Prince of Darkness” for his political tactics.`\
 https://nytimes.com/2024/12/19/world/europe/uk-peter-mandelson-us-ambassador.html
 
-**Faith Is Nothing Like I Thought It Would Be**\
+**The Shock of Faith: It’s Nothing Like I Thought It Would Be**\
 `The word “faith” implies the possession of something, whereas I experience faith as a yearning for something beautiful that I can sense but not fully grasp.`\
 https://nytimes.com/2024/12/19/opinion/faith-god-christianity.html
 

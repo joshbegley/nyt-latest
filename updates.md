@@ -1,3 +1,7 @@
+**The Shock of Faith: It’s Nothing Like I Thought It Would Be**\
+`The word “faith” implies the possession of something, whereas I experience faith as a yearning for something beautiful that I can sense but not fully grasp.`\
+https://nytimes.com/2024/12/19/opinion/faith-god-christianity.html
+
 **How Each House Member Voted on the Bill to Avoid a Government Shutdown**\
 `The House did not pass a measure that would have funded the federal government for a few months, extended the farm bill and suspended the debt ceiling.`\
 https://nytimes.com/interactive/2024/12/19/us/politics/shutdown-house-vote-live.html
