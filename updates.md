@@ -1,3 +1,15 @@
+**More People Are Now Dying From the Cold**\
+`A new study finds that deaths related to cold weather in the United States have risen in the past two decades.`\
+https://nytimes.com/2024/12/20/well/cold-deaths-health.html
+
+**Trump Says Shutdown Should Happen on Biden’s Watch, Not His**\
+`The president-elect is eager to evade responsibility for the consequences of a potential shutdown even as he blew up a bipartisan deal that would have kept it open.`\
+https://nytimes.com/2024/12/20/us/politics/trump-blame-shutdown.html
+
+**Top Senate Democrats Want Epshteyn to Address Pay-to-Play Allegations**\
+`The chairmen of the Finance, Judiciary and Banking Committees demanded answers from a Trump lawyer accused of soliciting payments from potential administration nominees.`\
+https://nytimes.com/2024/12/20/us/politics/boris-epshteyn-allegations.html
+
 **Weather’s Impact on Your Wallet: See How Much You Know**\
 `Where do wildfires threaten the most homes? How much can an inch of floodwater in your house cost you? Take our quiz to find out.`\
 https://nytimes.com/interactive/2024/12/20/weather/extreme-weather-costs-quiz.html
