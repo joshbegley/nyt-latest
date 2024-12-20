@@ -1,3 +1,7 @@
+**Italian Deputy Prime Minister Acquitted After Blocking Rescue of Migrant Boat**\
+`Matteo Salvini claimed he was a victim in the fight against immigration in Europe.`\
+https://nytimes.com/2024/12/20/world/europe/italy-salvini-migrants.html
+
 **We Need a Great American Fantasy**\
 `In search of a New World answer to Narnia and Hogwarts.`\
 https://nytimes.com/2024/12/20/opinion/wicked-tolkien-westeros-narnia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/us/politics/republican-defectors-trump.html
 **Elon Musk’s Growing Political Influence**\
 `Readers discuss his role in the government shutdown negotiations. Also: Trump austerity; G.O.P.’s future; clean energy; guns and young people.`\
 https://nytimes.com/2024/12/20/opinion/letters/musk-political-influence.html
-
-**Markets Rally, Shaking Off Threat of Government Shutdown**\
-`The S&P 500 jumped after a November inflation reading helped ease worries. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
-https://nytimes.com/2024/12/20/us/politics/markets-government-shutdown.html
 
