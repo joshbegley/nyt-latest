@@ -1,6 +1,34 @@
+**Raheem Mostert, the 49ers’ original track-star RB, says patience is key for Isaac Guerendo**\
+`The 49ers went after Guerendo in the draft because he reminded them a lot of Mostert, whom they'll face Sunday in Miami.`\
+https://nytimes.com/athletic/6008053/2024/12/20/49ers-isaac-guerendo-raheem-mostert/
+
+**The Athletic’s Friday football quiz question #35**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6007848/2024/12/20/the-athletics-friday-football-quiz-question-35/
+
+**Business of Football: When will Saudi tournaments take place in an already creaking calendar?**\
+`Plus a recap on the Unify League and why it's decision time for UEFA, and a look at takeovers that could be on the horizon…`\
+https://nytimes.com/athletic/6006673/2024/12/20/business-of-football-saudi-world-cup-club-world-cup/
+
+**Broncos' playoff hopes hinge on eliminating miscues that cost clinch vs. Chargers**\
+`Two Broncos penalties led directly to six Chargers points, continuing a "problematic" trend for Sean Payton's team.`\
+https://nytimes.com/athletic/6008795/2024/12/20/broncos-playoff-hopes-loss-chargers/
+
+**Ravens must 'learn how to not lose' to end frustrating skid vs. Steelers**\
+`A victory by Baltimore this week would create a first-place tie atop the AFC North and end a troubling trend against Pittsburgh. `\
+https://nytimes.com/athletic/6007657/2024/12/20/ravens-losing-streak-steelers/
+
+**Lowetide: Could this be the ultimate Oilers season?**\
+`The Oilers have extreme strengths and some areas of weakness but are still a legitimate Stanley Cup contender.`\
+https://nytimes.com/athletic/6005238/2024/12/20/edmonton-oilers-2024-25-ultimate-season/
+
 **Is Amazon’s Drone Delivery Finally Ready for Prime Time?**\
 `We flew to Arizona to test the recently debuted service ourselves.`\
 https://nytimes.com/2024/12/20/podcasts/hardfork-amazon-drone-delivery.html
+
+**How Arsenal fans feel about Mikel Arteta's five years at the club**\
+`Five years on from his appointment as manager, Arsenal fans assess Mikel Arteta's time in charge`\
+https://nytimes.com/athletic/6004314/2024/12/20/arsenal-survey-analysis-results-mikel-arteta/
 
 **The Pulse: Weird NFL rule ends 48-year hiatus**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6007568/2024/12/20/chargers-free-kick-cfp-indiana-n
 **When We Roll Back the Rules**\
 `We cover America’s embrace of individual freedom.`\
 https://nytimes.com/2024/12/20/briefing/marijuana-legalization-betting.html
-
-**Leicester's Hermansen an injury doubt vs Wolves**\
-`Mads Hermansen is a injury doubt for the visit of Wolverhampton Wanderers on Sunday.`\
-https://nytimes.com/athletic/6009039/2024/12/20/leicester-team-news-hermansen/
-
-**What's on the line for Josh Heupel, Ryan Day in CFP first round?**\
-`The stakes couldn’t be more different for the coaches. Much of that is because of what they inherited and have done since.`\
-https://nytimes.com/athletic/6008390/2024/12/20/josh-heupel-tennessee-ryan-day-ohio-state-cfp/
-
-**Court Vision: Green Bay's Doug Gottlieb easy to dunk on with 'Nobody U' disaster**\
-`How have Oklahoma and Florida managed to get this far undefeated? Plus, don't look now, but UConn appears to have figured some things out.`\
-https://nytimes.com/athletic/6007587/2024/12/20/doug-gottlieb-green-bay-basketball-nobody-u/
-
-**As he trains in Texas, Twins' Royce Lewis is recharged, motivated after 'big year to learn'**\
-`A new hitting program is part of Lewis' revamped routine this offseason. He's motivated to move on from a difficult end to the 2024 season.`\
-https://nytimes.com/athletic/6007826/2024/12/20/royce-lewis-workout-twins-2024/
-
-**Romanian Court Blocks Andrew Tate’s Case From Heading to Trial**\
-`An indictment against Mr. Tate, the online influencer facing accusations of human trafficking and sexual misconduct, was sent back to prosecutors, an appeals court said.`\
-https://nytimes.com/2024/12/20/world/europe/andrew-tate-trial-romania.html
-
-**Vikings-Seahawks preview, predictions: Can Minnesota stay on pace for No. 1 seed?**\
-`How can Seattle contain Justin Jefferson? And can the Minnesota offensive line give Sam Darnold sufficient time to throw the ball downfield?`\
-https://nytimes.com/athletic/6007938/2024/12/20/vikings-seahawks-preview-predictions-top-seed-playoffs/
-
-**The Cubs built toward the Kyle Tucker trade and now need to find the next Cam Smith**\
-`The Cubs still have a strong farm system after dipping into it for the Tucker trade.`\
-https://nytimes.com/athletic/6008068/2024/12/20/cubs-kyle-tucker-trade-whats-next/
 
