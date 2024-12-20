@@ -1,3 +1,15 @@
+**Suspect in C.E.O. Killing to Be Arraigned on State Charges Monday**\
+`Luigi Mangione faces terror and murder charges in New York court. A federal prosecution is proceeding in parallel.`\
+https://nytimes.com/2024/12/20/nyregion/mangione-state-arraignment-monday.html
+
+**Missouri Governor Commutes Sentence of Detective Convicted in On-Duty Killing**\
+`Eric J. DeValkenaere was convicted of involuntary manslaughter in the death of Cameron Lamb. Calls for clemency angered many in Kansas City, Mo.`\
+https://nytimes.com/2024/12/20/us/missouri-governor-commutation-police-killing.html
+
+**The Budget Fight and Trump’s Nihilistic Style**\
+`A surprise congressional standoff remind us that big, discordant change could be coming.`\
+https://nytimes.com/2024/12/20/opinion/trump-shutdown-allegiances.html
+
 **G.O.P. Spending Hawks Defy Trump on the Debt Limit, Previewing More Clashes**\
 `President-elect Donald J. Trump is known for his tight grip on members of his party, but the rare rejection of his demand to raise the debt limit reflected a disconnect that could plague his policy agenda.`\
 https://nytimes.com/2024/12/20/us/politics/gop-spending-hawks-trump-debt.html
