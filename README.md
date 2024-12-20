@@ -1,3 +1,7 @@
+**When We Roll Back the Rules**\
+`We cover America’s embrace of individual freedom.`\
+https://nytimes.com/2024/12/20/briefing/marijuana-legalization-betting.html
+
 **Leicester's Hermansen an injury doubt vs Wolves**\
 `Mads Hermansen is a injury doubt for the visit of Wolverhampton Wanderers on Sunday.`\
 https://nytimes.com/athletic/6009039/2024/12/20/leicester-team-news-hermansen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007737/2024/12/20/chicago-bears-mailbag-ryan-poles
 **Mirtle's 10 observations: Does the Maple Leafs' super line make sense long term?**\
 `The Maple Leafs' star-studded top line of William Nylander, Auston Matthews and Mitch Marner is the most expensive in NHL history.`\
 https://nytimes.com/athletic/6007394/2024/12/20/maple-leafs-nylander-matthews-marner-top-line/
-
-**Yankees Mailbag, part 1: Would New York trade for Blue Jays star Vladimir Guerrero Jr.?**\
-`It's been a busy past week for the Yankees, though there is still much work to be done by Brian Cashman and co.`\
-https://nytimes.com/athletic/6007255/2024/12/20/new-york-yankees-mailbag-vladimir-guerrero-jr/
 
