@@ -1,3 +1,7 @@
+**Seth Meyers: Donald Trump Got ‘Cable Guy’-ed by Elon Musk**\
+`The “Late Night” host likened Trump’s relationship with Musk to the 1996 Jim Carrey movie: “You let him do you a favor, and now you can’t get rid of him.”`\
+https://nytimes.com/2024/12/20/arts/television/seth-meyers-trump-musk.html
+
 **'It's just prettier hockey': Blackhawks' gamble paying off with new coach Anders Sorensen**\
 `With a 3-1 win over the Seattle Kraken, Sorensen and the Blackhawks did something they haven't done since 2022-23 — win three in a row.`\
 https://nytimes.com/athletic/6008566/2024/12/20/blackhawks-win-kraken-anders-sorensen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977586/2024/12/20/what-next-for-enciso-has-a-new-m
 **What does an Arteta striker look like? (And does it in any way resemble Alexander Isak?)**\
 `What the Arsenal manager might be looking for in a centre-forward`\
 https://nytimes.com/athletic/6006162/2024/12/20/what-does-an-arteta-striker-look-like/
-
-**Introducing the most dangerous pass in football**\
-`A short vertical pass from a goalkeeper. Sounds harmless enough, right? We analyse the risk and reward behind the pass that drives fans wild`\
-https://nytimes.com/athletic/5991727/2024/12/20/goalkeeper-pass-danger-football-analysis/
 

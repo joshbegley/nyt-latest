@@ -1,3 +1,7 @@
+**Seth Meyers: Donald Trump Got ‘Cable Guy’-ed by Elon Musk**\
+`The “Late Night” host likened Trump’s relationship with Musk to the 1996 Jim Carrey movie: “You let him do you a favor, and now you can’t get rid of him.”`\
+https://nytimes.com/2024/12/20/arts/television/seth-meyers-trump-musk.html
+
 **'It's just prettier hockey': Blackhawks' gamble paying off with new coach Anders Sorensen**\
 `With a 3-1 win over the Seattle Kraken, Sorensen and the Blackhawks did something they haven't done since 2022-23 — win three in a row.`\
 https://nytimes.com/athletic/6008566/2024/12/20/blackhawks-win-kraken-anders-sorensen/
