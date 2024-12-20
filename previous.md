@@ -2,7 +2,7 @@
 `Before Thursday, Curry had never before recorded zero field goals in a game in which he played 12 minutes. `\
 https://nytimes.com/athletic/6008591/2024/12/19/stephen-curry-warriors-grizzlies-score-stats/
 
-**Chargers score vs. Broncos with rarely used fair catch kick**\
+**Chargers score vs. Broncos with rarely used fair-catch kick**\
 `The last successful such kick was also made by the Chargers, in 1976 by Ray Wersching.`\
 https://nytimes.com/athletic/6008537/2024/12/19/chargers-fair-catch-kick/
 
