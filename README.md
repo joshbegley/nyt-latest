@@ -1,3 +1,7 @@
+**Weather’s Impact on Your Wallet: See How Much You Know**\
+`Where do wildfires threaten the most homes? How much can an inch of floodwater in your house cost you? Take our quiz to find out.`\
+https://nytimes.com/interactive/2024/12/20/weather/extreme-weather-costs-quiz.html
+
 **Scoop City: Two game-changing kicks to discuss**\
 `This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
 https://nytimes.com/athletic/6009568/2024/12/20/free-kick-chargers-onside-kick-lions-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/dining/mushroom-bourguignon-ginger-sesame-granola
 **Despite Sabres' winless streak, Kevyn Adams stands pat through NHL roster freeze**\
 `There’s been a jarring lack of action from the general manager given the tailspin the team has been in.`\
 https://nytimes.com/athletic/6009200/2024/12/20/sabres-roster-kevyn-adams-gm/
-
-**Notre Dame vs. Indiana weather: CFP kicks off with snow, cold conditions**\
-`Weather forecasts predict the temperature will be 29 degrees with winds of 11 mph at the 8 p.m. ET kickoff in South Bend.`\
-https://nytimes.com/athletic/6009332/2024/12/20/notre-dame-indiana-weather-snow-college-football-playoff/
 
