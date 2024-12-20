@@ -1,3 +1,7 @@
+**Italian Deputy Prime Minister Acquitted After Blocking Rescue of Migrant Boat**\
+`Matteo Salvini claimed he was a victim in the fight against immigration across Europe.`\
+https://nytimes.com/2024/12/20/world/europe/italy-salvini-migrants.html
+
 **We Need a Great American Fantasy**\
 `In search of a New World answer to Narnia and Hogwarts.`\
 https://nytimes.com/2024/12/20/opinion/wicked-tolkien-westeros-narnia.html
