@@ -1,3 +1,11 @@
+**Driver Rams Christmas Market in Germany, Injuring Dozens**\
+`Videos posted online suggested several people were wounded. The driver was arrested, according to local news reports.`\
+https://nytimes.com/2024/12/20/world/europe/germany-christmas-market-crash.html
+
+**As RFK Jr. Pursues Bid for Health Secretary, Federal Authorities Begin Campaign for Childhood Vaccines**\
+`“Parents have heard so much misinformation,” Kaye Hayes, a federal infectious disease official, said in a statement announcing the campaign.  “Many of them are overwhelmed.”`\
+https://nytimes.com/2024/12/20/us/politics/hhs-childhood-vaccines-campaign-rfk-jr.html
+
 **OpenAI Unveils New A.I. That Can ‘Reason’ Through Math and Science Problems**\
 `The artificial intelligence start-up said the new system, OpenAI o3, outperformed leading A.I. technologies on tests that rate skills in math, science, coding and logic.`\
 https://nytimes.com/2024/12/20/technology/openai-new-ai-math-science.html

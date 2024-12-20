@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/20/technology/openai-new-ai-math-science.html
 `The White Sox win total is 49.5 games on BetMGM, which is the lowest number in sports betting since at least 1990.`\
 https://nytimes.com/athletic/6009689/2024/12/20/white-sox-win-total-odds-historically-low/
 
-**Driver Rams Christmas Market in Germany, Injuring Several**\
+**Driver Rams Christmas Market in Germany, Injuring Dozens**\
 `Videos posted online suggested several people were wounded. The driver was arrested, according to local news reports.`\
 https://nytimes.com/2024/12/20/world/europe/germany-christmas-market-crash.html
 
@@ -22,8 +22,8 @@ https://nytimes.com/2024/12/20/opinion/trade-adjustment-assistance.html
 `A prolific actress, she was best known globally for her work with the filmmaker Pedro Almodóvar, with whom she had a stormy relationship.`\
 https://nytimes.com/2024/12/20/movies/marisa-paredes-dead.html
 
-**Federal health authorities promote childhood vaccines in the shadow of Kennedy’s bid for health secretary.**\
-`By Noah Weiland`\
+**As RFK Jr. Pursues Bid for Health Secretary, Federal Authorities Begin Campaign for Childhood Vaccines**\
+`“Parents have heard so much misinformation,” Kaye Hayes, a federal infectious disease official, said in a statement announcing the campaign.  “Many of them are overwhelmed.”`\
 https://nytimes.com/2024/12/20/us/politics/hhs-childhood-vaccines-campaign-rfk-jr.html
 
 **Newcastle player agents waiting on overdue payments owed by the club**\
