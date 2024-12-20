@@ -1,3 +1,11 @@
+**Ex-Police Chief Who Sexually Assaulted 17-Year-Old Gets 25 Years in Prison**\
+`Larry Allen Clay Jr., 58, of Fayetteville, W.Va., was also a sheriff’s deputy at the time of the crimes, which he tried to cover up, prosecutors said.`\
+https://nytimes.com/2024/12/19/us/chief-larry-allen-clay-sex-offender.html
+
+**Macau Is the Casino Capital of the World. For China, That’s Not Enough.**\
+`A quarter century after the former Portuguese colony was made a Chinese territory, Macau’s economic boundaries with the mainland are being blurred.`\
+https://nytimes.com/2024/12/19/business/macau-china-xi-jinping.html
+
 **Tisch Shakes Up N.Y.P.D. Staff and Orders 500 Officers Back to Key Roles**\
 `Commissioner Jessica Tisch is replacing the Police Department’s head of communications, who had clashed with reporters, and sending many officers back to patrol.`\
 https://nytimes.com/2024/12/19/nyregion/jessica-tisch-nypd-appointments.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6007959/2024/12/19/chicago-cubs-sammy-sosa-reunion/
 **Britain to Name Peter Mandelson as Ambassador to the U.S.**\
 `The veteran Labour lawmaker chosen by Prime Minister Keir Starmer has experience in trade policy and business and was once nicknamed “the Prince of Darkness” for his political tactics.`\
 https://nytimes.com/2024/12/19/world/europe/uk-peter-mandelson-us-ambassador.html
-
-**The Shock of Faith: It’s Nothing Like I Thought It Would Be**\
-`The word “faith” implies the possession of something, whereas I experience faith as a yearning for something beautiful that I can sense but not fully grasp.`\
-https://nytimes.com/2024/12/19/opinion/faith-god-christianity.html
-
-**51 Men Guilty in Rape Trial That Horrified France**\
-`Dominique Pelicot, who admitted to drugging and raping his wife for almost a decade and to inviting dozens of strangers to join him, was convicted on Thursday of aggravated rape and other charges and was sentenced to the maximum 20 years in prison.`\
-https://nytimes.com/video/world/europe/100000009883895/51-men-guilty-in-rape-trial-that-horrified-france.html
 
