@@ -1,3 +1,7 @@
+**Notre Dame vs. Indiana weather: CFP kicks off with snow, cold conditions**\
+`Weather forecasts predict the temperature will be 29 degrees with winds of 11 mph at the 8 p.m. ET kickoff in South Bend.`\
+https://nytimes.com/athletic/6009332/2024/12/20/notre-dame-indiana-weather-snow-college-football-playoff/
+
 **The Bounce: Who are the NBA's most clutch players this season? Plus, why Jalen Williams is a star**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6009084/2024/12/20/deaaron-fox-jayson-tatum-nikola-jokic-karl-anthony-towns-knicks-timberwolves-jalen-williams-thunder-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6009035/2024/12/20/nhl-power-rankings-best-of-2024/
 **Villa's Martinez admits his form has dipped this season**\
 `Aston Villa goalkeeper Emiliano Martinez has admitted his form has dipped this season amid his side&#8217;s struggles to keep clean sheets.`\
 https://nytimes.com/athletic/6009191/2024/12/20/emiliano-martinez-aston-villa/
-
-**Karl-Anthony Towns' return to Minnesota 'wasn't just another game'**\
-`Before an emotional night at Target Center, Towns took some time for himself to reminisce: "I was committed to retiring here."`\
-https://nytimes.com/athletic/6008884/2024/12/20/karl-anthony-towns-timberwolves-return-knicks-trade/
 

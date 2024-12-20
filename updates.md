@@ -1,3 +1,7 @@
+**Notre Dame vs. Indiana weather: CFP kicks off with snow, cold conditions**\
+`Weather forecasts predict the temperature will be 29 degrees with winds of 11 mph at the 8 p.m. ET kickoff in South Bend.`\
+https://nytimes.com/athletic/6009332/2024/12/20/notre-dame-indiana-weather-snow-college-football-playoff/
+
 **The Bounce: Who are the NBA's most clutch players this season? Plus, why Jalen Williams is a star**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6009084/2024/12/20/deaaron-fox-jayson-tatum-nikola-jokic-karl-anthony-towns-knicks-timberwolves-jalen-williams-thunder-nba-the-bounce/
