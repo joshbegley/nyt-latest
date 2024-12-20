@@ -1,3 +1,7 @@
+**Chinese National Charged in California After Aiding Local Candidate, Prosecutors Say**\
+`The man is charged with acting as an illegal foreign agent. The move is part of an effort by the authorities to prevent China from influencing American politicians.`\
+https://nytimes.com/2024/12/19/us/china-california-election-sun-chen.html
+
 **Ex-Police Chief Who Sexually Assaulted 17-Year-Old Gets 25 Years in Prison**\
 `Larry Allen Clay Jr., 58, of Fayetteville, W.Va., was also a sheriff’s deputy at the time of the crimes, which he tried to cover up, prosecutors said.`\
 https://nytimes.com/2024/12/19/us/chief-larry-allen-clay-sex-offender.html
