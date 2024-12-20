@@ -1,3 +1,7 @@
+**Free-agent first-baseman Christian Walker, Astros 'in serious talks' about contract**\
+`A league source notes that the two sides are “down the road.”`\
+https://nytimes.com/athletic/5941661/2024/12/20/christian-walker-contract-astros-free-agency/
+
 **Volkswagen Reaches Labor Deal, Avoiding Germany Plant Closures**\
 `The automaker agreed to keep all 10 of its factories in Germany open and to guarantee workers’ jobs until the end of 2030.`\
 https://nytimes.com/2024/12/20/business/volkswagen-union-deal-germany.html
