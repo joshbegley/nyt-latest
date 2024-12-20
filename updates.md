@@ -1,3 +1,7 @@
+**Wrexham's Okonkwo steps up injury recovery after positive scan results**\
+`Wrexham’s promotion hopes have been given a timely boost by first-choice goalkeeper Arthur Okonkwo being given the green light to step up his rehab after receiving positive scan results.`\
+https://nytimes.com/athletic/6008883/2024/12/20/arthur-okonkwo-wrexham-injury-update/
+
 **Trump Is Threatening Europe With Tariffs. Is It Ready?**\
 `The incoming president promised “tariffs all the way” unless Europe bought more U.S. oil and gas. European officials have no clear strategy for avoiding a trade war.`\
 https://nytimes.com/2024/12/20/world/europe/europe-trump-tariffs.html
