@@ -1,3 +1,7 @@
+**Move Like a Crab**\
+`Henry Josephson makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/12/19/crosswords/daily-puzzle-2024-12-20.html
+
 **JJ Redick dishes on declining NBA ratings: 'This game should be celebrated'**\
 `“If I'm a casual fan and you tell me every time I turn on the television that the product sucks, well, I'm not going to watch the product."`\
 https://nytimes.com/athletic/6008384/2024/12/19/jj-redick-lakers-lebron-james-tv-ratings/
