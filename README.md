@@ -1,3 +1,7 @@
+**Biden to Withdraw Unfinished Student Debt Proposals for 38 Million Borrowers**\
+`The decision to withdraw the regulations was a tacit acknowledgment that they would go nowhere under the Trump administration.`\
+https://nytimes.com/2024/12/20/us/politics/biden-withdraw-student-debt-proposals.html
+
 **Police Respond to Vehicle Ramming Attack at German Christmas Market**\
 `Emergency responders attended to an incident at a Christmas market in Magdeburg, Germany, on Friday.`\
 https://nytimes.com/video/world/europe/100000009890750/germany-attack-christmas-market.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/20/magazine/hettie-jones-poet.html
 **Peter Buxtun Refused to Give Up**\
 `For years, he tried to expose the Tuskegee syphilis study – but no one would listen.`\
 https://nytimes.com/interactive/2024/12/20/magazine/peter-buxtun-tuskegee-study.html
-
-**Janice Burgess Combined High Culture With Childish Delight**\
-`In “The Backyardigans,” she created a world for kids as wildly sophisticated as her own.`\
-https://nytimes.com/interactive/2024/12/20/magazine/janice-burgess-backyardians.html
 
