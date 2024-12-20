@@ -1,3 +1,7 @@
+**Rice, Calafiori set to be available for Arsenal vs Palace**\
+`Declan Rice and Riccardo Calafiori are both set to be available for Arsenal&#8217;s trip to Crystal Palace on Saturday evening.`\
+https://nytimes.com/athletic/5995048/2024/12/20/arsenal-team-news-rice-calafiori-crystal-palace/
+
 **LeBron James leads defensive charge as Lakers grab key win at Sacramento**\
 `"I really felt like this might be my favorite win we've had all season," coach JJ Redick said.`\
 https://nytimes.com/athletic/6008521/2024/12/20/lakers-defense-lebron-james/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995450/2024/12/20/mason-mount-injury-update-manche
 **Devin Booker's groin tightness adds to the Suns' biggest issue: they can't stay healthy**\
 `Call it misfortune. The curse of aging. Whatever you want. The Suns cannot shake it.`\
 https://nytimes.com/athletic/6008782/2024/12/20/devin-bookers-suns-health/
-
-**Jaylen Brown, Celtics lose their cool in loss to Bulls: 'It's been a tough week'**\
-`A spate of technical fouls late doomed Boston's chances. Frustrations boiled after a pair of break-ins affecting the team.`\
-https://nytimes.com/athletic/6008821/2024/12/20/celtics-jaylen-brown-bulls-breakins/
 
