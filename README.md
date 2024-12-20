@@ -1,3 +1,7 @@
+**Mount out 'several weeks' with latest injury**\
+`Manchester United midfielder Mason Mount is set to be out for &#8220;several weeks&#8221; after suffering another injury setback in the Manchester derby.`\
+https://nytimes.com/athletic/5995450/2024/12/20/mason-mount-injury-update-manchester-united/
+
 **Devin Booker's groin tightness adds to the Suns' biggest issue: they can't stay healthy**\
 `Call it misfortune. The curse of aging. Whatever you want. The Suns cannot shake it.`\
 https://nytimes.com/athletic/6008782/2024/12/20/devin-bookers-suns-health/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007071/2024/12/20/naji-marshall-mavericks-pelicans
 **Who’s in Charge?**\
 `Donald Trump has yet to take office but the president-elect and Elon Musk are already influencing policy, putting the federal government hours away from a shut down.`\
 https://nytimes.com/2024/12/20/business/dealbook/musk-trump-government-shutdown.html
-
-**Live Q&A: FPL Gameweek 17 advice from Ben Dinnery**\
-`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 17 Q&A between 4-5pm UK time `\
-https://nytimes.com/athletic/6006172/2024/12/20/fantasy-premier-league-advice-gw17-tips/
 
