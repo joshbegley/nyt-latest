@@ -1,3 +1,15 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 17?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6001335/2024/12/20/premier-league-predicted-line-ups-gameweek-17/
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s sci-fi picks, time loops, zombie apocalypses and robot/dog friendships.`\
+https://nytimes.com/2024/12/20/movies/science-fiction-movies-streaming.html
+
+**Mushroom Bourguignon, Ginger Sesame Granola and Fried Eggplant Heroes**\
+`Weekend kitchen shenanigans to keep everyone festive and fed.`\
+https://nytimes.com/2024/12/20/dining/mushroom-bourguignon-ginger-sesame-granola-and-fried-eggplant-heroes.html
+
 **Despite Sabres' winless streak, Kevyn Adams stands pat through NHL roster freeze**\
 `There’s been a jarring lack of action from the general manager given the tailspin the team has been in.`\
 https://nytimes.com/athletic/6009200/2024/12/20/sabres-roster-kevyn-adams-gm/

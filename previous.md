@@ -1,3 +1,15 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 17?**\
+`As we approach another weekend of action in the Premier League, our writers predict the line-ups for the upcoming games`\
+https://nytimes.com/athletic/6001335/2024/12/20/premier-league-predicted-line-ups-gameweek-17/
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s sci-fi picks, time loops, zombie apocalypses and robot/dog friendships.`\
+https://nytimes.com/2024/12/20/movies/science-fiction-movies-streaming.html
+
+**Mushroom Bourguignon, Ginger Sesame Granola and Fried Eggplant Heroes**\
+`Weekend kitchen shenanigans to keep everyone festive and fed.`\
+https://nytimes.com/2024/12/20/dining/mushroom-bourguignon-ginger-sesame-granola-and-fried-eggplant-heroes.html
+
 **Despite Sabres' winless streak, Kevyn Adams stands pat through NHL roster freeze**\
 `There’s been a jarring lack of action from the general manager given the tailspin the team has been in.`\
 https://nytimes.com/athletic/6009200/2024/12/20/sabres-roster-kevyn-adams-gm/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6009318/2024/12/20/penguins-today-erik-karlsson/
 **Netflix secures U.S. broadcast rights for 2027, 2031 Women's World Cups**\
 `Fox previously had the rights to the 2023 edition of the tournament.`\
 https://nytimes.com/athletic/6009284/2024/12/20/netflix-womens-world-cup/
-
-**Pereira aims to guide Wolves 'like a tactical GPS'**\
-`New Wolverhampton Wanderers head coach Vitor Pereira says his job is to “guide them like a tactical GPS” in the Premier League relegation battle.`\
-https://nytimes.com/athletic/6009381/2024/12/20/vitor-pereira-wolves-relegation/
-
-**‘The Tempest’ Review: A Weak Wind Blows for Sigourney Weaver**\
-`The veteran actress, playing Prospero in her West End debut, is strangely absent from Shakespeare’s narrative.`\
-https://nytimes.com/2024/12/20/theater/the-tempest-sigourney-weaver-jamie-lloyd.html
-
-**NHL Power Rankings: Capitals stay on top, plus each team's best of 2024**\
-`Here is this week's rankings plus each team’s MVP from January-to-December, the best of 2024.`\
-https://nytimes.com/athletic/6009035/2024/12/20/nhl-power-rankings-best-of-2024/
 
