@@ -1,3 +1,19 @@
+**Leicester's Hermansen an injury doubt vs Wolves**\
+`Mads Hermansen is a injury doubt for the visit of Wolverhampton Wanderers on Sunday.`\
+https://nytimes.com/athletic/6009039/2024/12/20/leicester-team-news-hermansen/
+
+**What's on the line for Josh Heupel, Ryan Day in CFP first round?**\
+`The stakes couldn’t be more different for the coaches. Much of that is because of what they inherited and have done since.`\
+https://nytimes.com/athletic/6008390/2024/12/20/josh-heupel-tennessee-ryan-day-ohio-state-cfp/
+
+**Court Vision: Green Bay's Doug Gottlieb easy to dunk on with 'Nobody U' disaster**\
+`How have Oklahoma and Florida managed to get this far undefeated? Plus, don't look now, but UConn appears to have figured some things out.`\
+https://nytimes.com/athletic/6007587/2024/12/20/doug-gottlieb-green-bay-basketball-nobody-u/
+
+**As he trains in Texas, Twins' Royce Lewis is recharged, motivated after 'big year to learn'**\
+`A new hitting program is part of Lewis' revamped routine this offseason. He's motivated to move on from a difficult end to the 2024 season.`\
+https://nytimes.com/athletic/6007826/2024/12/20/royce-lewis-workout-twins-2024/
+
 **Romanian Court Blocks Andrew Tate’s Case From Heading to Trial**\
 `An indictment against Mr. Tate, the online influencer facing accusations of human trafficking and sexual misconduct, was sent back to prosecutors, an appeals court said.`\
 https://nytimes.com/2024/12/20/world/europe/andrew-tate-trial-romania.html
