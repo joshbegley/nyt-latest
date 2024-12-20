@@ -1,3 +1,7 @@
+**Newcastle player agents waiting on overdue payments owed by the club**\
+`The representatives of multiple Newcastle United players have been left in the dark after fees the club owed them were not paid on time.`\
+https://nytimes.com/athletic/6001208/2024/12/20/newcastle-agent-payments/
+
 **Indiana Man Sentenced to 130 Years for Killing 2 Teenage Girls**\
 `Richard Allen, of Delphi, Ind., received the maximum sentence, concluding a case that came to be known as the Delphi Murders. His lawyers plan to appeal.`\
 https://nytimes.com/2024/12/20/us/richard-allen-delphi-murders-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/arts/music/amplifier-newsletter-quincy-jones-toby
 **Italian Deputy Prime Minister Acquitted After Blocking Rescue of Migrant Boat**\
 `Matteo Salvini claimed he was a victim in the fight against immigration across Europe.`\
 https://nytimes.com/2024/12/20/world/europe/italy-salvini-migrants.html
-
-**We Need a Great American Fantasy**\
-`In search of a New World answer to Narnia and Hogwarts.`\
-https://nytimes.com/2024/12/20/opinion/wicked-tolkien-westeros-narnia.html
 
