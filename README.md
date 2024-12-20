@@ -1,3 +1,7 @@
+**Federal health authorities promote childhood vaccines in the shadow of Kennedy’s bid for health secretary.**\
+`By Noah Weiland`\
+https://nytimes.com/2024/12/20/us/politics/hhs-childhood-vaccines-campaign-rfk-jr.html
+
 **Newcastle player agents waiting on overdue payments owed by the club**\
 `The representatives of multiple Newcastle United players have been left in the dark after fees the club owed them were not paid on time.`\
 https://nytimes.com/athletic/6001208/2024/12/20/newcastle-agent-payments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6009815/2024/12/20/maple-leafs-matt-murray-nhl-retu
 **In Memoriam: the Musicians We Lost in 2024**\
 `Hear songs from Quincy Jones, Melanie and Toby Keith.`\
 https://nytimes.com/2024/12/20/arts/music/amplifier-newsletter-quincy-jones-toby-keith.html
-
-**Italian Deputy Prime Minister Acquitted After Blocking Rescue of Migrant Boat**\
-`Matteo Salvini claimed he was a victim in the fight against immigration across Europe.`\
-https://nytimes.com/2024/12/20/world/europe/italy-salvini-migrants.html
 
