@@ -1,3 +1,15 @@
+**Villa's Martinez admits his form has dipped this season**\
+`Aston Villa goalkeeper Emiliano Martinez has admitted his form has dipped this season amid his side&#8217;s struggles to keep clean sheets.`\
+https://nytimes.com/athletic/6009191/2024/12/20/emiliano-martinez-aston-villa/
+
+**Karl-Anthony Towns' return to Minnesota 'wasn't just another game'**\
+`Before an emotional night at Target Center, Towns took some time for himself to reminisce: "I was committed to retiring here."`\
+https://nytimes.com/athletic/6008884/2024/12/20/karl-anthony-towns-timberwolves-return-knicks-trade/
+
+**Jimmy Butler trade hurdles and more NBA trends that have caught my eye**\
+`Plus: How Alex Caruso is getting the Josh Giddey treatment and a unique approach to rebounding in New Orleans.`\
+https://nytimes.com/athletic/6008111/2024/12/20/jimmy-butler-trade-rumors-nba-trends/
+
 **How Anti-Obesity Drugs are Redefining Pharma and Wellness**\
 `Listen to our interview with David Ricks and Fatima Cody Stanford.`\
 https://nytimes.com/2024/12/20/podcasts/ricks-stanford-eli-lilly.html
