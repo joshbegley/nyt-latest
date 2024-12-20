@@ -1,3 +1,7 @@
+**Is Amazon’s Drone Delivery Finally Ready for Prime Time?**\
+`We flew to Arizona to test the recently debuted service ourselves.`\
+https://nytimes.com/2024/12/20/podcasts/hardfork-amazon-drone-delivery.html
+
 **The Pulse: Weird NFL rule ends 48-year hiatus**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6007568/2024/12/20/chargers-free-kick-cfp-indiana-notre-dame-the-pulse/
