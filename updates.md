@@ -1,3 +1,7 @@
+**Christian Walker, Max Kepler should bring good value to their new teams: Law**\
+`Walker is older but should still have good years left, while Kepler was one of the top potential bounce-back players on the market.`\
+https://nytimes.com/athletic/6010045/2024/12/20/christian-walker-max-kepler-signing-analysis-astros-phillies/
+
 **Michael Brewer, Whose ‘One Toke’ Was a Big Hit, Is Dead at 80**\
 `The duo he formed with Tom Shipley reached the Top 10 in 1970 with “One Toke Over the Line,” a ditty about marijuana that ran afoul of censors.`\
 https://nytimes.com/2024/12/20/arts/music/michael-brewer-dead.html

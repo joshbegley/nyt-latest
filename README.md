@@ -24,7 +24,7 @@ https://nytimes.com/2024/12/20/business/dealbook/sports-branding.html
 
 **The Trinidadian Christmas Staple Worth the Yearlong Wait**\
 `Chow chow, a bright and bracing pickled relish, is essential to the holiday table in Trinidad and Tobago — and the perfect accompaniment to ham.`\
-https://nytimes.com/2024/12/20/dining/christmas-chow-chow.html
+https://nytimes.com/2024/12/20/dining/christmas-chow-chow-trinidad-tobago.html
 
 **Why Luigi Mangione Faces 2 Murder Cases Tied to One Killing**\
 `Federal and state prosecutors will follow a delicate legal choreography after characterizing Mr. Mangione’s actions differently in the fatal shooting of Brian Thompson.`\
