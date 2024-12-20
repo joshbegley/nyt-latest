@@ -1,3 +1,19 @@
+**Worst MLB record ever? White Sox open with historically low win total and comical futures odds**\
+`The White Sox win total is 49.5 games on BetMGM, which is the lowest number in sports betting since at least 1990.`\
+https://nytimes.com/athletic/6009689/2024/12/20/white-sox-win-total-odds-historically-low/
+
+**Driver Rams Christmas Market in Germany, Injuring Several**\
+`Videos posted online suggested several people were wounded. The driver was arrested, according to local news reports.`\
+https://nytimes.com/2024/12/20/world/europe/germany-christmas-market-crash.html
+
+**The World Is Falling Apart. Should I Scrap My Plans to Have Kids?**\
+`The magazine’s Ethicist columnist on family planning in uncertain times.`\
+https://nytimes.com/2024/12/20/magazine/family-planning-uncertain-times-ethics.html
+
+**The Fate of This Federal Program Helps Explain Trump’s Win**\
+`It was a cushion for workers hurt by free trade. Why did Congress let it lapse?`\
+https://nytimes.com/2024/12/20/opinion/trade-adjustment-assistance.html
+
 **Marisa Paredes, Acclaimed Diva of Spanish Cinema, Is Dead at 78**\
 `A prolific actress, she was best known globally for her work with the filmmaker Pedro Almodóvar, with whom she had a stormy relationship.`\
 https://nytimes.com/2024/12/20/movies/marisa-paredes-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/20/us/politics/trump-replace-officials.html
 **French Court Convicts 8 People Tied to Events That Led to Teacher’s Killing**\
 `Samuel Paty was beheaded in 2020 by an Islamist extremist after showing caricatures of the Prophet Muhammad to his students to illustrate free speech.`\
 https://nytimes.com/2024/12/20/world/europe/france-paty-beheading.html
-
-**Russia’s Abrupt Setback in Syria Creates Headaches for Putin**\
-`Losing Syrian military bases would hurt the Kremlin’s attempts to project power in the Middle East and Africa.`\
-https://nytimes.com/2024/12/20/us/russia-syria-military-bases-middle-east-setbacks.html
-
-**Five Books That Explain the Chaos of 2024**\
-`And one to read for fun.`\
-https://nytimes.com/2024/12/20/world/five-books-that-explain-the-chaos-of-2024.html
-
-**Trump Used Government Shutdowns as Leverage During His First Presidency**\
-`A partial government shutdown in Donald J. Trump’s first term was the longest in U.S. history.`\
-https://nytimes.com/2024/12/20/us/politics/trump-government-shutdown-threats-leverage.html
-
-**'A lot of fire inside': Why Matt Murray is back in the NHL after 628 days**\
-`Matt Murray has posted an impressive .931 save percentage with the Marlies this season.`\
-https://nytimes.com/athletic/6009815/2024/12/20/maple-leafs-matt-murray-nhl-return/
 
