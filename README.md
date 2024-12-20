@@ -1,40 +1,40 @@
-**Here are the latest developments.**\
-`By Catie Edmondson and Qasim Nauman`\
-https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news/here-are-the-latest-developments
+**Vikings-Seahawks preview, predictions: Can Minnesota stay on pace for No. 1 seed?**\
+`How can Seattle contain Justin Jefferson? And can the Minnesota offensive line give Sam Darnold sufficient time to throw the ball downfield?`\
+https://nytimes.com/athletic/6007938/2024/12/20/vikings-seahawks-preview-predictions-top-seed-playoffs/
 
-**Transition Live Updates: Shutdown Looms as G.O.P. Rebels Against Trump**\
-`House Speaker Mike Johnson is trying to find a spending plan that will satisfy both Republicans and Democrats. He has less than a day to do it.`\
-https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news
+**The Cubs built toward the Kyle Tucker trade and now need to find the next Cam Smith**\
+`The Cubs still have a strong farm system after dipping into it for the Tucker trade.`\
+https://nytimes.com/athletic/6008068/2024/12/20/cubs-kyle-tucker-trade-whats-next/
 
-**Ring-Kissing, Lawsuits and a Looming Shutdown**\
-`Watch or listen to our political round table about the aftermath of the 2024 election.`\
-https://nytimes.com/2024/12/20/podcasts/the-daily/trump-government-shutdown.html
+**Bears mailbag: Should Chicago keep GM Ryan Poles? Cole Kmet's targets? Plus, Week 16 picks**\
+`As bad as the Bears have been, why should Poles be retained? Why isn't Kmet getting the ball more? `\
+https://nytimes.com/athletic/6007737/2024/12/20/chicago-bears-mailbag-ryan-poles-cole-kmet/
 
-**Ring-Kissing, Defamation Lawsuits and a Looming Shutdown**\
-`On this week’s round table Michael Barbaro sits down with Maggie Haberman, Andrew Ross Sorkin and Catie Edmondson to discuss the latest news in Donald J. Trump’s transition to power.`\
-https://nytimes.com/video/podcasts/the-daily/100000009885256/ring-kissing-defamation-lawsuits-and-a-looming-shutdown.html
+**Mirtle's 10 observations: Does the Maple Leafs' super line make sense long term?**\
+`The Maple Leafs' star-studded top line of William Nylander, Auston Matthews and Mitch Marner is the most expensive in NHL history.`\
+https://nytimes.com/athletic/6007394/2024/12/20/maple-leafs-nylander-matthews-marner-top-line/
 
-**Musk, Ring-Kissing and a Looming Shutdown**\
-`Andrew Ross Sorkin sits down with Michael Barbaro to discuss raising the debt ceiling and Elon Musk’s political impact.`\
-https://nytimes.com/video/podcasts/the-daily/100000009888316/musk-ring-kissing-and-a-looming-shutdown.html
+**Yankees Mailbag, part 1: Would New York trade for Blue Jays star Vladimir Guerrero Jr.?**\
+`It's been a busy past week for the Yankees, though there is still much work to be done by Brian Cashman and co.`\
+https://nytimes.com/athletic/6007255/2024/12/20/new-york-yankees-mailbag-vladimir-guerrero-jr/
 
-**Southampton agree Ivan Juric deal**\
-`Southampton have agreed a deal with Ivan Juric to become their new manager.`\
-https://nytimes.com/athletic/6001983/2024/12/20/ivan-juric-southampton-manager/
+**Where will Sam Darnold play next? A Kirk Cousins trade? Setting stage for 2025 QB carousel**\
+`Sam Darnold could be the top free agent available. Will Minnesota try to bring him back, or he is destined for a new team?`\
+https://nytimes.com/athletic/5994147/2024/12/20/nfl-quarterbacks-2025-draft-trade-free-agency-aaron-rodgers-sam-darnold/
 
-**Nguyen: ID'ing each division leader's most important non-QB heading toward playoffs**\
-`George Pickens, Trent McDuffie and Jahmyr Gibbs are among those their teams must have if they want to make a Super Bowl run.`\
-https://nytimes.com/athletic/6004608/2024/12/20/most-important-players-nfl-playoffs/
+**What Michael Penix Jr.'s college film reveals about his chances as Atlanta's QB**\
+`Penix banked a ton of experience in college, as one of the nation's most dangerous downfield passers. Is he ready for the NFL stage?`\
+https://nytimes.com/athletic/6006926/2024/12/20/michael-penix-jr-film-study-atlanta-falcons-starter/
 
-**What's the loudest college football moment you've experienced? Our staff weighs in**\
-`The first-ever on-campus College Football Playoff games are here. Will they add to our list of memorably loud moments?`\
-https://nytimes.com/athletic/6006242/2024/12/20/college-football-playoff-home-stadiums-loudest/
+**What a Shutdown Could Look Like, and a ‘Healthy’ Food Fight**\
+`Plus, real estate’s trendiest mash-up: the “barndo.”`\
+https://nytimes.com/2024/12/20/podcasts/government-shutdown-fda-food.html
 
-**Three Deals in 12 Days: How Australia Is Courting the Pacific**\
-`In separate agreements with Nauru, Papua New Guinea and the Solomon Islands, Australia is attempting to edge out China’s influence in the region.`\
-https://nytimes.com/2024/12/20/world/australia/australia-china-pacific-deals.html
+**Packers' Christian Watson is reaping the rewards of his early-season patience**\
+`Watson ranks first in the NFL over the last five weeks in yards per catch, averaging a whopping 29.8 yards per reception.`\
+https://nytimes.com/athletic/6007945/2024/12/20/packers-christian-watson-receiver/
 
-**In a season of negativity, Christian Gonzalez has been one of Patriots' few bright spots**\
-`The 22-year-old, second-year cornerback is one of the two pillars of this Patriots rebuild along with quarterback Drake Maye.`\
-https://nytimes.com/athletic/6007530/2024/12/20/christian-gonzalez-patriots-nfl-season/
+**The Connections Companion No. 559**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 21, 2024.`\
+https://nytimes.com/2024/12/20/crosswords/connections-companion-559.html
 
