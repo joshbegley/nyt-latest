@@ -1,3 +1,7 @@
+**Regulators Sue 3 Big Banks Over Rampant Fraud on Zelle**\
+`Action against Bank of America, JPMorgan Chase and Wells Fargo may not survive President-elect Donald J. Trump’s return to office.`\
+https://nytimes.com/2024/12/20/business/zelle-fraud-chase-wells-bank-of-america.html
+
 **Heat Today: Against the Thunder, Miami's small-ball style will be tested as schedule toughens**\
 `Oklahoma City shows that teams can win without a massive frontcourt advantage, but the Heat still must shore up some areas like rebounding. `\
 https://nytimes.com/athletic/6009678/2024/12/20/oklahoma-city-thunder-heat-bam-adebayo-jimmy-butler-kevin-love-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981577/2024/12/20/indiana-notre-dame-how-to-watch-
 **Musk Expresses Support for Far-Right Party in Germany’s Election**\
 `It was not the first online intervention by Elon Musk, the entrepreneur and adviser to Donald Trump, on behalf of once-fringe anti-immigrant parties in Europe.`\
 https://nytimes.com/2024/12/20/world/europe/elon-musk-afd-germany.html
-
-**CFP odds, picks, how to watch: Home teams open as big favorites in first round**\
-`The home teams are the betting favorites in all four first-round games of the College Football Playoff.`\
-https://nytimes.com/athletic/5978321/2024/12/20/college-football-playoff-betting-odds-first-round/
 
