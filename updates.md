@@ -1,3 +1,7 @@
+**Phillies add Max Kepler on 1-year-deal, but offseason picture remains incomplete**\
+`If anything, the Kepler deal signals the Phillies will lean into mixing and matching again in their outfield.`\
+https://nytimes.com/athletic/6008322/2024/12/19/max-kepler-contract-phillies-mlb-free-agency/
+
 **MLB notes: The latest on Vladimir Guerrero Jr., Bo Bichette and the Blue Jays' offseason**\
 `Plus more on the Yankees' options at first base and a new team for Gio Urshela.`\
 https://nytimes.com/athletic/6008454/2024/12/19/blue-jays-vladimir-guerrero-bo-bichette-yankees/
