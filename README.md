@@ -1,3 +1,15 @@
+**Many Videos That Purport to Show Drones in New Jersey Likely Show Planes, Visual Analysis Shows**\
+`Here’s why it’s hard to distinguish objects in the night sky.`\
+https://nytimes.com/2024/12/19/video/new-jersey-drones-planes-videos.html
+
+**Here’s What Could Happen in a Government Shutdown**\
+`With a funding deadline approaching, workers are bracing for the possibility of a disruptive holiday season, which could include longer wait times for travelers.`\
+https://nytimes.com/2024/12/19/us/politics/government-shutdown-funding.html
+
+**Commanders’ move takes a hit as RFK control measure removed from Congressional spending bill**\
+`A new revised spending bill to avoid government shutdown has been introduced to the House. It doesn't address the Commanders or RFK Stadium.`\
+https://nytimes.com/athletic/6008209/2024/12/19/washington-commanders-congress-house-rfk-stadium/
+
 **How Each House Member Voted on the Bill to Avoid a Government Shutdown**\
 `The House did not pass a measure that would have funded the federal government for a few months, extended the farm bill and suspended the debt ceiling.`\
 https://nytimes.com/interactive/2024/12/19/us/politics/shutdown-house-vote-live.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000009883895/51-men-guilty-in-rape-tri
 **Neil Cavuto, Longtime Fox News Host, Signs Off the Network**\
 `“Your World with Neil Cavuto” was shown in the 4-5 p.m. slot for 28 years, since the network began in 1996.`\
 https://nytimes.com/2024/12/19/arts/television/cavuto-fox-news.html
-
-**The Timeless Craft of the Courtroom Sketch Artist**\
-`In courtrooms where cameras are banned, these artists provide a curious public a glimpse behind closed doors. Here’s how they do it.`\
-https://nytimes.com/2024/12/19/us/william-hennessy-jr-courtroom-sketch-artist.html
-
-**Dewsbury-Hall may leave Chelsea in January - Enzo Maresca**\
-`Enzo Maresca admits that Kiernan Dewsbury-Hall is one of the Chelsea players that could leave the club during the January transfer window.`\
-https://nytimes.com/athletic/6008003/2024/12/19/kiernan-dewsbury-hall-chelsea-january-transfer/
-
-**Philadelphia City Council Says Yes to New 76ers Arena Next to Chinatown**\
-`The mayor and labor unions touted the economic promise of the $1.3 billion project. Opponents said the arena would decimate the city’s storied Chinatown.`\
-https://nytimes.com/2024/12/19/us/philadelphia-76ers-arena-chinatown.html
 
