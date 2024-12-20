@@ -1,3 +1,7 @@
+**Commanders' move takes a hit with new Congressional spending bill set for House**\
+`A new revised spending bill to avoid government shutdown has been introduced to the House. It doesn't address the Commanders or RFK Stadium.`\
+https://nytimes.com/athletic/6008209/2024/12/19/washington-commanders-congress-house-rfk-stadium/
+
 **How Each House Member Voted on the Bill to Avoid a Government Shutdown**\
 `The House did not pass a measure that would have funded the federal government for a few months, extended the farm bill and suspended the debt ceiling.`\
 https://nytimes.com/interactive/2024/12/19/us/politics/shutdown-house-vote-live.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/us/william-hennessy-jr-courtroom-sketch-artist.ht
 **Dewsbury-Hall may leave Chelsea in January - Enzo Maresca**\
 `Enzo Maresca admits that Kiernan Dewsbury-Hall is one of the Chelsea players that could leave the club during the January transfer window.`\
 https://nytimes.com/athletic/6008003/2024/12/19/kiernan-dewsbury-hall-chelsea-january-transfer/
-
-**Philadelphia City Council Says Yes to New 76ers Arena Next to Chinatown**\
-`The mayor and labor unions touted the economic promise of the $1.3 billion project. Opponents said the arena would decimate the city’s storied Chinatown.`\
-https://nytimes.com/2024/12/19/us/philadelphia-76ers-arena-chinatown.html
 
