@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Catie Edmondson and Qasim Nauman`\
+https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news/here-are-the-latest-developments
+
+**Transition Live Updates: Shutdown Looms as G.O.P. Rebels Against Trump**\
+`House Speaker Mike Johnson is trying to find a spending plan that will satisfy both Republicans and Democrats. He has less than a day to do it.`\
+https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news
+
 **Ring-Kissing, Lawsuits and a Looming Shutdown**\
 `Watch or listen to our political round table about the aftermath of the 2024 election.`\
 https://nytimes.com/2024/12/20/podcasts/the-daily/trump-government-shutdown.html
