@@ -1,3 +1,7 @@
+**Senior U.S. Diplomats Arrive in Syria to Meet With Governing Militias**\
+`The U.S. officials plan to looking for signs of Austin Tice, a missing American journalist, as well as other U.S. citizens.`\
+https://nytimes.com/2024/12/20/us/politics/us-diplomats-syria.html
+
 **FPL: Alisson, David Raya and the budget goalkeepers to consider**\
 `Holly Shand explores whether you should plump for one of FPL's premium goalkeepers or a cheaper alternative`\
 https://nytimes.com/athletic/6003057/2024/12/20/fantasy-premier-league-goalkeepers-raya-alisson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003713/2024/12/20/atletico-madrid-winning-streak-l
 **The Friedkin Group must learn from Moshiri's mistakes at Everton, not ignore them**\
 `The Friedkin Group offer hope for a brighter future and fans will offer nothing but goodwill - showy, quick fixes must be avoided, though`\
 https://nytimes.com/athletic/5983913/2024/12/20/everton-takeover-friedkin-moshiri/
-
-**Anthony Elanga: 'I never felt I was improving at Man United. I have purpose at Forest'**\
-`The winger discusses the Nuno revolution, having no regrets on leaving United in 2023 and how he looks up to LeBron, Kobe and Mohamed Salah.`\
-https://nytimes.com/athletic/6006646/2024/12/20/anthony-elanga-nottingham-forest-man-united/
 
