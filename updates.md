@@ -1,3 +1,7 @@
+**Weather’s Impact on Your Wallet: See How Much You Know**\
+`Where do wildfires threaten the most homes? How much can an inch of floodwater in your house cost you? Take our quiz to find out.`\
+https://nytimes.com/interactive/2024/12/20/weather/extreme-weather-costs-quiz.html
+
 **Scoop City: Two game-changing kicks to discuss**\
 `This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
 https://nytimes.com/athletic/6009568/2024/12/20/free-kick-chargers-onside-kick-lions-scoop-city/
