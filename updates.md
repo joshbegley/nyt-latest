@@ -1,3 +1,7 @@
+**The Athletic FC: Pogba, his brother and £11m extortion plot; inside Everton takeover**\
+`Today in TAFC: Paul Pogba's brother convicted over extortion plot, inside the Everton buyout and Fraser Forster's double shocker.`\
+https://nytimes.com/athletic/6008935/2024/12/20/pogba-blackmail-extortion-prison-everton-takeover/
+
 **Raheem Mostert, the 49ers’ original track-star RB, says patience is key for Isaac Guerendo**\
 `The 49ers went after Guerendo in the draft because he reminded them a lot of Mostert, whom they'll face Sunday in Miami.`\
 https://nytimes.com/athletic/6008053/2024/12/20/49ers-isaac-guerendo-raheem-mostert/
