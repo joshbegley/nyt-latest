@@ -1,3 +1,11 @@
+**The Friedkin Group must learn from Moshiri's mistakes at Everton, not ignore them**\
+`The Friedkin Group offer hope for a brighter future and fans will offer nothing but goodwill - showy, quick fixes must be avoided, though`\
+https://nytimes.com/athletic/5983913/2024/12/20/everton-takeover-friedkin-moshiri/
+
+**Anthony Elanga: 'I never felt I was improving at Man United. I have purpose at Forest'**\
+`The winger discusses the Nuno revolution, having no regrets on leaving United in 2023 and how he looks up to LeBron, Kobe and Mohamed Salah.`\
+https://nytimes.com/athletic/6006646/2024/12/20/anthony-elanga-nottingham-forest-man-united/
+
 **Which Premier League players could get Christmas off through suspension?**\
 `Premier League football is non-stop during the festive season but there are up to 38 players who could be about to get Christmas off.`\
 https://nytimes.com/athletic/6000618/2024/12/20/premier-league-christmas-bookings-explainer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/20/world/europe/ukraine-journalist-viktoria-roshchyn
 **A Union That Could Not Wait**\
 `After a year of dating, Adrian Burrus and Quinn Sames began considering marriage. But when the presidential election results were announced, getting married became a priority.`\
 https://nytimes.com/2024/12/20/style/adrian-burrus-quinn-sames-wedding.html
-
-**A First Date She Nearly Called Off**\
-`Blair Smith and Alec Hall met on a gloomy winter night, but their time together took a celebratory turn when he popped a bottle of champagne.`\
-https://nytimes.com/2024/12/20/style/blair-smith-alec-hall-wedding.html
-
-**Grief Makes Us Time Travelers**\
-`A neuroscientist studying memory, I used to believe time was linear. Then my mother had a stroke.`\
-https://nytimes.com/2024/12/20/style/modern-love-grief-makes-us-time-travelers.html
 
