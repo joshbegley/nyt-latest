@@ -1,3 +1,7 @@
+**Driver Plows a Car Into a Christmas Market in Germany**\
+`At least two people were killed and dozens were wounded after a car rammed into a Christmas market in the city of Magdeburg in central Germany on Friday evening.`\
+https://nytimes.com/video/world/europe/100000009891067/car-christmas-market-germany.html
+
 **Cathy Cade, Groundbreaking Lesbian Photographer, Dies at 82**\
 `The she became a photographer the same year she came out, chronicling the lives of women in same-sex relationships — something most people had never seen.`\
 https://nytimes.com/2024/12/20/arts/cathy-cade-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/well/zepbound-sleep-apnea.html
 **A Shutdown’s Economic Toll: Less Spending, More Uncertainty**\
 `A short lapse in funding would probably do only modest damage. But it could send a troubling signal about government dysfunction.`\
 https://nytimes.com/2024/12/20/business/economy/government-shutdown-economy-impact.html
-
-**The 10 Architectural Sites You Should See in São Paulo**\
-`These buildings and places capture the city’s playful approach to concrete-and-asphalt Modernism.`\
-https://nytimes.com/2024/12/20/t-magazine/sao-paulo-architecture-guide.html
 
