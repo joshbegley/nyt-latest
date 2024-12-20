@@ -1,3 +1,7 @@
+**Heat Today: Against the Thunder, Miami's small-ball style will be tested as schedule toughens**\
+`Oklahoma City shows that teams can win without a massive frontcourt advantage, but the Heat still must shore up some areas like rebounding. `\
+https://nytimes.com/athletic/6009678/2024/12/20/oklahoma-city-thunder-heat-bam-adebayo-jimmy-butler-kevin-love-nba/
+
 **Book Club: Let’s Talk About Claire Keegan’s ‘Small Things Like These’**\
 `This slim novella about one Irishman’s crisis of conscience during the Christmas season is the topic of our December book club discussion.`\
 https://nytimes.com/2024/12/20/books/review/claire-keegan-small-things-like-these-book-club.html
