@@ -1,3 +1,15 @@
+**Police Respond to Vehicle Ramming Attack at German Christmas Market**\
+`Emergency responders attended to an incident at a Christmas market in Magdeburg, Germany, on Friday.`\
+https://nytimes.com/video/world/europe/100000009890750/germany-attack-christmas-market.html
+
+**Naomi Feil Developed a Radical Approach to Caring for Dementia Patients**\
+`She believed that people with dementia were desperate to connect.`\
+https://nytimes.com/interactive/2024/12/20/magazine/naomi-feil-dementia.html
+
+**The Orphaned Sea Otter Who Became a Foster Mom to 15 Pups**\
+`Despite never having had offspring of her own, she was an instinctive caregiver.`\
+https://nytimes.com/interactive/2024/12/20/magazine/rosa-sea-otter.html
+
 **Wafa Al-Udaini Captured the Experiences of Palestinians From Within**\
 `As a journalist, she was determined to tell a story of Gaza that was full of life.`\
 https://nytimes.com/interactive/2024/12/20/magazine/wafa-aludaini-killed-palestinian-journalist.html
