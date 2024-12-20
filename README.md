@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Catie Edmondson and Qasim Nauman`\
+https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news/here-are-the-latest-developments
+
+**Transition Live Updates: Shutdown Looms as G.O.P. Rebels Against Trump**\
+`House Speaker Mike Johnson is trying to find a spending plan that will satisfy both Republicans and Democrats. He has less than a day to do it.`\
+https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news
+
 **Ring-Kissing, Lawsuits and a Looming Shutdown**\
 `Watch or listen to our political round table about the aftermath of the 2024 election.`\
 https://nytimes.com/2024/12/20/podcasts/the-daily/trump-government-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/20/world/australia/australia-china-pacific-deals.htm
 **In a season of negativity, Christian Gonzalez has been one of Patriots' few bright spots**\
 `The 22-year-old, second-year cornerback is one of the two pillars of this Patriots rebuild along with quarterback Drake Maye.`\
 https://nytimes.com/athletic/6007530/2024/12/20/christian-gonzalez-patriots-nfl-season/
-
-**How to Talk to a Loved One About Their Drinking**\
-`There are ways to broach the topic successfully — it’s all about time, place and tone.`\
-https://nytimes.com/2024/12/20/well/family/family-friends-drinking-habits.html
-
-**The New York Times News Quiz, Dec. 20, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/12/20/briefing/news-quiz-trump-congress-luigi-mangione-ukraine.html
 
