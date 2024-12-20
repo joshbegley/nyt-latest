@@ -1,3 +1,11 @@
+**JJ Redick dishes on declining NBA ratings: 'This game should be celebrated'**\
+`“If I'm a casual fan and you tell me every time I turn on the television that the product sucks, well, I'm not going to watch the product."`\
+https://nytimes.com/athletic/6008384/2024/12/19/jj-redick-lakers-lebron-james-tv-ratings/
+
+**Cowan, Canada smash Switzerland in World Juniors pre-tournament win**\
+`Maple Leafs first-round pick Easton Cowan scored a hat trick as Canada prevailed 7-1.`\
+https://nytimes.com/athletic/6005202/2024/12/19/canada-world-juniors-easton-cowan-switzerland/
+
 **Karl-Anthony Towns welcomed back to Minnesota with ovation, tribute video**\
 `“They're still my brothers, still my guys, just because the trade happened doesn't mean I lost love for them,” Towns said.`\
 https://nytimes.com/athletic/6008193/2024/12/19/kat-karl-anthony-towns-knicks-timberwolves/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/19/us/china-california-election-sun-chen.html
 **Ex-Police Chief Who Sexually Assaulted 17-Year-Old Gets 25 Years in Prison**\
 `Larry Allen Clay Jr., 58, of Fayetteville, W.Va., was also a sheriff’s deputy at the time of the crimes, which he tried to cover up, prosecutors said.`\
 https://nytimes.com/2024/12/19/us/chief-larry-allen-clay-sex-offender.html
-
-**Macau Is the Casino Capital of the World. For China, That’s Not Enough.**\
-`A quarter century after the former Portuguese colony was made a Chinese territory, Macau’s economic boundaries with the mainland are being blurred.`\
-https://nytimes.com/2024/12/19/business/macau-china-xi-jinping.html
-
-**Tisch Shakes Up N.Y.P.D. Staff and Orders 500 Officers Back to Key Roles**\
-`Commissioner Jessica Tisch is replacing the Police Department’s head of communications, who had clashed with reporters, and sending many officers back to patrol.`\
-https://nytimes.com/2024/12/19/nyregion/jessica-tisch-nypd-appointments.html
 
