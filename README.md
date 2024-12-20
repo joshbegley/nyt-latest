@@ -1,3 +1,15 @@
+**The Story of Hong Kong’s Billionaire Dissident**\
+`“The Troublemaker” is a brisk account of the life and work of Jimmy Lai, the media mogul and democracy activist currently on trial for national security offenses.`\
+https://nytimes.com/2024/12/20/books/review/the-troublemaker-jimmy-lai-biography.html
+
+**One of 2024’s Last Meteor Showers Is About to Reach Its Peak**\
+`The astronomical event, which overlaps with the Winter Solstice, is often overlooked because of the winter chill.`\
+https://nytimes.com/2024/12/20/science/ursids-meteor-shower-winter-solstice.html
+
+**Clemson at Texas: Picks, odds with Longhorns heavily favored in CFP game**\
+`The Longhorns are a double-digit favorite against Clemson, making Texas the biggest favorite in the College Football Playoff's first round.`\
+https://nytimes.com/athletic/5981899/2024/12/20/clemson-texas-time-odds-college-football-playoff/
+
 **Indiana at Notre Dame: How to watch, odds, storylines for intrastate CFP game**\
 `Two 11-1 teams from the state of Indiana meet in the first round of the College Football Playoff. Notre Dame is favored against IU.`\
 https://nytimes.com/athletic/5981577/2024/12/20/indiana-notre-dame-how-to-watch-odds-college-football-playoff/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/20/us/politics/trump-blame-shutdown.html
 **Top Senate Democrats Want Epshteyn to Address Pay-to-Play Allegations**\
 `The chairmen of the Finance, Judiciary and Banking Committees demanded answers from a Trump lawyer accused of soliciting payments from potential administration nominees.`\
 https://nytimes.com/2024/12/20/us/politics/boris-epshteyn-allegations.html
-
-**Weather’s Impact on Your Wallet: See How Much You Know**\
-`Where do wildfires threaten the most homes? How much can an inch of floodwater in your house cost you? Take our quiz to find out.`\
-https://nytimes.com/interactive/2024/12/20/weather/extreme-weather-costs-quiz.html
-
-**Scoop City: Two game-changing kicks to discuss**\
-`This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
-https://nytimes.com/athletic/6009568/2024/12/20/free-kick-chargers-onside-kick-lions-scoop-city/
-
-**Watch Julianne Moore and Tilda Swinton Connect in ‘The Room Next Door’**\
-`The writer and director Pedro Almodóvar narrates a bittersweet sequence between the two at a luxurious home.`\
-https://nytimes.com/2024/12/20/movies/julianne-moore-tilda-swinton-room-next-door-clip.html
 
