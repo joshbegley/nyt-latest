@@ -1,3 +1,15 @@
+**Many Videos That Purport to Show Drones in New Jersey Likely Show Planes, Visual Analysis Shows**\
+`Here’s why it’s hard to distinguish objects in the night sky.`\
+https://nytimes.com/2024/12/19/video/new-jersey-drones-planes-videos.html
+
+**Here’s What Could Happen in a Government Shutdown**\
+`With a funding deadline approaching, workers are bracing for the possibility of a disruptive holiday season, which could include longer wait times for travelers.`\
+https://nytimes.com/2024/12/19/us/politics/government-shutdown-funding.html
+
+**Commanders’ move takes a hit as RFK control measure removed from Congressional spending bill**\
+`A new revised spending bill to avoid government shutdown has been introduced to the House. It doesn't address the Commanders or RFK Stadium.`\
+https://nytimes.com/athletic/6008209/2024/12/19/washington-commanders-congress-house-rfk-stadium/
+
 **The Shock of Faith: It’s Nothing Like I Thought It Would Be**\
 `The word “faith” implies the possession of something, whereas I experience faith as a yearning for something beautiful that I can sense but not fully grasp.`\
 https://nytimes.com/2024/12/19/opinion/faith-god-christianity.html
