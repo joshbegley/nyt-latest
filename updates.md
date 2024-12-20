@@ -1,3 +1,7 @@
+**NHL Power Rankings: Capitals stay on top, plus each team's best of 2024**\
+`Here is this week's rankings plus each team’s MVP from January-to-December, the best of 2024.`\
+https://nytimes.com/athletic/6009035/2024/12/20/nhl-power-rankings-best-of-2024/
+
 **Villa's Martinez admits his form has dipped this season**\
 `Aston Villa goalkeeper Emiliano Martinez has admitted his form has dipped this season amid his side&#8217;s struggles to keep clean sheets.`\
 https://nytimes.com/athletic/6009191/2024/12/20/emiliano-martinez-aston-villa/
