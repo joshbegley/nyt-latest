@@ -1,3 +1,7 @@
+**Markets Rally, Shaking Off Threat of Government Shutdown**\
+`The S&P 500 jumped after a November inflation reading helped ease worries. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
+https://nytimes.com/2024/12/20/us/politics/markets-government-shutdown.html
+
 **Are Weight-Loss Drugs Causing a Rift in Your Relationship? We Want to Hear About It.**\
 `For an upcoming article, we are looking for stories about what happens to a long-term relationship when one partner decides to get much thinner.`\
 https://nytimes.com/2024/12/20/magazine/glp1-ozempic-sex-relationship.html

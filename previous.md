@@ -10,8 +10,8 @@ https://nytimes.com/2024/12/20/us/politics/republican-defectors-trump.html
 `Readers discuss his role in the government shutdown negotiations. Also: Trump austerity; G.O.P.’s future; clean energy; guns and young people.`\
 https://nytimes.com/2024/12/20/opinion/letters/musk-political-influence.html
 
-**Wall Street rallies, shaking off shutdown threat.**\
-`The S&P 500 jumped after a November inflation reading helped ease worries that lately have loomed over the markets. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
+**Markets Rally, Shaking Off Threat of Government Shutdown**\
+`The S&P 500 jumped after a November inflation reading helped ease worries. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
 https://nytimes.com/2024/12/20/us/politics/markets-government-shutdown.html
 
 **Atlanta United hires Ronny Deila as coach**\

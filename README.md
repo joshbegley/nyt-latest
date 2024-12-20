@@ -1,3 +1,19 @@
+**Virginia Student Accused of Plot to Attack Israeli Consulate in New York**\
+`A freshman at George Mason University, who is a citizen of Egypt, is accused of planning a mass casualty attack.`\
+https://nytimes.com/2024/12/20/us/terror-plot-george-mason-israeli-consulate.html
+
+**Your Ticket to the Theater (at Home)**\
+`Make it through the holidays with these movies, books and music from the past year that are adapted from stage productions or evoke a theatrical spirit.`\
+https://nytimes.com/2024/12/20/theater/theater-adaptations-movies-books-music.html
+
+**Would You Wear Jeans at the Gym?**\
+`Frequent images of Robert F. Kennedy Jr. and others lifting weights in jeans and boots raise the question of what can be classified as proper gym attire.`\
+https://nytimes.com/2024/12/20/style/robert-kennedy-jr-jeans-gym.html
+
+**Kelly Clarkson’s Christmas Love Song, and 12 More New Holiday Tunes**\
+`Hear tracks from Bartees Strange, Madi Diaz, GloRilla and Kehlani, and others.`\
+https://nytimes.com/2024/12/20/arts/music/playlist-christmas-holiday-songs.html
+
 **Are Weight-Loss Drugs Causing a Rift in Your Relationship? We Want to Hear About It.**\
 `For an upcoming article, we are looking for stories about what happens to a long-term relationship when one partner decides to get much thinner.`\
 https://nytimes.com/2024/12/20/magazine/glp1-ozempic-sex-relationship.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6009744/2024/12/20/atlanta-united-ronny-deila-head-
 **Why Britain Has So Many White Christmases (Technically)**\
 `Bing Crosby dreamed of it and Charles Dickens romanticized it, but the truth about a white Christmas in Britain may surprise you.`\
 https://nytimes.com/2024/12/20/weather/uk-white-christmas-snow.html
-
-**Free-agent first-baseman Christian Walker, Astros 'in serious talks' about contract**\
-`A league source notes that the two sides are “down the road.”`\
-https://nytimes.com/athletic/5941661/2024/12/20/christian-walker-contract-astros-free-agency/
-
-**Volkswagen Reaches Labor Deal, Avoiding Germany Plant Closures**\
-`The automaker agreed to keep all 10 of its factories in Germany open and to guarantee workers’ jobs until the end of 2030.`\
-https://nytimes.com/2024/12/20/business/volkswagen-union-deal-germany.html
-
-**Regulators Sue 3 Big Banks Over Rampant Fraud on Zelle**\
-`Action against Bank of America, JPMorgan Chase and Wells Fargo may not survive President-elect Donald J. Trump’s return to office.`\
-https://nytimes.com/2024/12/20/business/zelle-fraud-chase-wells-bank-of-america.html
-
-**Heat Today: Against the Thunder, Miami's small-ball style will be tested as schedule toughens**\
-`Oklahoma City shows that teams can win without a massive frontcourt advantage, but the Heat still must shore up some areas like rebounding. `\
-https://nytimes.com/athletic/6009678/2024/12/20/oklahoma-city-thunder-heat-bam-adebayo-jimmy-butler-kevin-love-nba/
 
