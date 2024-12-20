@@ -1,3 +1,7 @@
+**Despite Sabres' winless streak, Kevyn Adams stands pat through NHL roster freeze**\
+`There’s been a jarring lack of action from the general manager given the tailspin the team has been in.`\
+https://nytimes.com/athletic/6009200/2024/12/20/sabres-roster-kevyn-adams-gm/
+
 **Notre Dame vs. Indiana weather: CFP kicks off with snow, cold conditions**\
 `Weather forecasts predict the temperature will be 29 degrees with winds of 11 mph at the 8 p.m. ET kickoff in South Bend.`\
 https://nytimes.com/athletic/6009332/2024/12/20/notre-dame-indiana-weather-snow-college-football-playoff/
