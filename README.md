@@ -1,3 +1,7 @@
+**Trump Puts Shares of His Media Company in a Trust**\
+`A regulatory filing showed that the president-elect transferred some 115 million shares of Trump Media to a trust controlled by his son Donald Trump Jr.`\
+https://nytimes.com/2024/12/20/business/trump-media-donald-trump-trust.html
+
 **Senior U.S. Diplomats Arrive in Syria to Meet With Governing Militias**\
 `The U.S. officials plan to look for signs of Austin Tice, a missing American journalist, as well as other U.S. citizens.`\
 https://nytimes.com/2024/12/20/us/politics/us-diplomats-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006424/2024/12/20/arne-slot-liverpool-what-footbal
 **Atletico Madrid's 11-game winning streak has been powered by their substitutes**\
 `Atletico go into Saturday's meeting with Barcelona on their best run of form since 2012. Simeone's changes will be key`\
 https://nytimes.com/athletic/6003713/2024/12/20/atletico-madrid-winning-streak-la-liga/
-
-**The Friedkin Group must learn from Moshiri's mistakes at Everton, not ignore them**\
-`The Friedkin Group offer hope for a brighter future and fans will offer nothing but goodwill - showy, quick fixes must be avoided, though`\
-https://nytimes.com/athletic/5983913/2024/12/20/everton-takeover-friedkin-moshiri/
 
