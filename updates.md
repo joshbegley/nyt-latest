@@ -1,3 +1,7 @@
+**Fantasy hockey trends: Keep or kick Mika Zibanejad, Patrik Laine and more**\
+`It's the season of giving, and you should consider giving away some unproductive players.`\
+https://nytimes.com/athletic/6008635/2024/12/20/fantasy-hockey-trends-and-hidden-gems-keep-or-kick-mika-zibanejad-patrik-laine-and-more/
+
 **More People Are Now Dying From the Cold**\
 `A new study finds that deaths related to cold weather in the United States have risen in the past two decades.`\
 https://nytimes.com/2024/12/20/well/cold-deaths-health.html
