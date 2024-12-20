@@ -1,3 +1,7 @@
+**Troy Masters, Pioneering L.G.B.T.Q. Journalist, Dies at 63**\
+`He was at the helm of several influential publications, notably Gay City News in New York City and, since 2017, The Los Angeles Blade.`\
+https://nytimes.com/2024/12/20/business/media/troy-masters-dead.html
+
 **Suspect in C.E.O. Killing to Be Arraigned on State Charges Monday**\
 `Luigi Mangione faces terror and murder charges in New York court. A federal prosecution is proceeding in parallel.`\
 https://nytimes.com/2024/12/20/nyregion/mangione-state-arraignment-monday.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009891067/car-christmas-market-germ
 **Cathy Cade, Groundbreaking Lesbian Photographer, Dies at 82**\
 `The she became a photographer the same year she came out, chronicling the lives of women in same-sex relationships — something most people had never seen.`\
 https://nytimes.com/2024/12/20/arts/cathy-cade-dead.html
-
-**Democrats highlight a casualty of the spending fight: funding to combat pediatric cancer.**\
-`By Teddy Rosenbluth`\
-https://nytimes.com/live/2024/12/20/us/government-shutdown-trump-news/democrats-highlight-a-casualty-of-the-spending-fight-funding-to-combat-pediatric-cancer
 

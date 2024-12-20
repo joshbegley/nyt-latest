@@ -1,3 +1,7 @@
+**Troy Masters, Pioneering L.G.B.T.Q. Journalist, Dies at 63**\
+`He was at the helm of several influential publications, notably Gay City News in New York City and, since 2017, The Los Angeles Blade.`\
+https://nytimes.com/2024/12/20/business/media/troy-masters-dead.html
+
 **Suspect in C.E.O. Killing to Be Arraigned on State Charges Monday**\
 `Luigi Mangione faces terror and murder charges in New York court. A federal prosecution is proceeding in parallel.`\
 https://nytimes.com/2024/12/20/nyregion/mangione-state-arraignment-monday.html
