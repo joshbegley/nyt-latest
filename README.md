@@ -1,3 +1,7 @@
+**Starbucks Workers Say They Will Begin a Strike in 3 Cities on Friday**\
+`The planned walkout in Los Angeles, Chicago and Seattle comes after talks between the company and the workers’ union failed to produce an agreement on raises.`\
+https://nytimes.com/2024/12/19/business/economy/starbucks-union-strike.html
+
 **Warriors, Steph Curry suffer historic 51-point loss to Grizzlies in Dennis Schröder's debut**\
 `Before Thursday, Curry had never before recorded zero field goals in a game in which he played 12 minutes. `\
 https://nytimes.com/athletic/6008591/2024/12/19/stephen-curry-warriors-grizzlies-score-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/us/politics/trump-republicans-spending-bill.html
 **Phillies add Max Kepler on 1-year-deal, but offseason picture remains incomplete**\
 `If anything, the Kepler deal signals the Phillies will lean into mixing and matching again in their outfield.`\
 https://nytimes.com/athletic/6008322/2024/12/19/max-kepler-contract-phillies-mlb-free-agency/
-
-**Mets meet with Japanese star Roki Sasaki**\
-`The New York Mets met Thursday with international amateur free agent Roki Sasaki, the highly coveted 23-year-old right-handed pitcher from Japan, league sources confirmed.`\
-https://nytimes.com/athletic/6008267/2024/12/19/mets-roki-sasaki/
 
