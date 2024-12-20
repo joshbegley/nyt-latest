@@ -1,3 +1,7 @@
+**Romanian Court Blocks Andrew Tate’s Case From Heading to Trial**\
+`An indictment against Mr. Tate, the online influencer facing accusations of human trafficking and sexual misconduct, was sent back to prosecutors, an appeals court said.`\
+https://nytimes.com/2024/12/20/world/europe/andrew-tate-trial-romania.html
+
 **Vikings-Seahawks preview, predictions: Can Minnesota stay on pace for No. 1 seed?**\
 `How can Seattle contain Justin Jefferson? And can the Minnesota offensive line give Sam Darnold sufficient time to throw the ball downfield?`\
 https://nytimes.com/athletic/6007938/2024/12/20/vikings-seahawks-preview-predictions-top-seed-playoffs/

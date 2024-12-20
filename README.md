@@ -1,3 +1,19 @@
+**Leicester's Hermansen an injury doubt vs Wolves**\
+`Mads Hermansen is a injury doubt for the visit of Wolverhampton Wanderers on Sunday.`\
+https://nytimes.com/athletic/6009039/2024/12/20/leicester-team-news-hermansen/
+
+**What's on the line for Josh Heupel, Ryan Day in CFP first round?**\
+`The stakes couldn’t be more different for the coaches. Much of that is because of what they inherited and have done since.`\
+https://nytimes.com/athletic/6008390/2024/12/20/josh-heupel-tennessee-ryan-day-ohio-state-cfp/
+
+**Court Vision: Green Bay's Doug Gottlieb easy to dunk on with 'Nobody U' disaster**\
+`How have Oklahoma and Florida managed to get this far undefeated? Plus, don't look now, but UConn appears to have figured some things out.`\
+https://nytimes.com/athletic/6007587/2024/12/20/doug-gottlieb-green-bay-basketball-nobody-u/
+
+**As he trains in Texas, Twins' Royce Lewis is recharged, motivated after 'big year to learn'**\
+`A new hitting program is part of Lewis' revamped routine this offseason. He's motivated to move on from a difficult end to the 2024 season.`\
+https://nytimes.com/athletic/6007826/2024/12/20/royce-lewis-workout-twins-2024/
+
 **Romanian Court Blocks Andrew Tate’s Case From Heading to Trial**\
 `An indictment against Mr. Tate, the online influencer facing accusations of human trafficking and sexual misconduct, was sent back to prosecutors, an appeals court said.`\
 https://nytimes.com/2024/12/20/world/europe/andrew-tate-trial-romania.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6007394/2024/12/20/maple-leafs-nylander-matthews-ma
 **Yankees Mailbag, part 1: Would New York trade for Blue Jays star Vladimir Guerrero Jr.?**\
 `It's been a busy past week for the Yankees, though there is still much work to be done by Brian Cashman and co.`\
 https://nytimes.com/athletic/6007255/2024/12/20/new-york-yankees-mailbag-vladimir-guerrero-jr/
-
-**Where will Sam Darnold play next? A Kirk Cousins trade? Setting stage for 2025 QB carousel**\
-`Sam Darnold could be the top free agent available. Will Minnesota try to bring him back, or he is destined for a new team?`\
-https://nytimes.com/athletic/5994147/2024/12/20/nfl-quarterbacks-2025-draft-trade-free-agency-aaron-rodgers-sam-darnold/
-
-**What Michael Penix Jr.'s college film reveals about his chances as Atlanta's QB**\
-`Penix banked a ton of experience in college, as one of the nation's most dangerous downfield passers. Is he ready for the NFL stage?`\
-https://nytimes.com/athletic/6006926/2024/12/20/michael-penix-jr-film-study-atlanta-falcons-starter/
-
-**What a Shutdown Could Look Like, and a ‘Healthy’ Food Fight**\
-`Plus, real estate’s trendiest mash-up: the “barndo.”`\
-https://nytimes.com/2024/12/20/podcasts/government-shutdown-fda-food.html
-
-**Packers' Christian Watson is reaping the rewards of his early-season patience**\
-`Watson ranks first in the NFL over the last five weeks in yards per catch, averaging a whopping 29.8 yards per reception.`\
-https://nytimes.com/athletic/6007945/2024/12/20/packers-christian-watson-receiver/
 
