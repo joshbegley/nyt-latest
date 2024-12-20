@@ -1,3 +1,7 @@
+**Indiana at Notre Dame: How to watch, odds, storylines for intrastate CFP game**\
+`Two 11-1 teams from the state of Indiana meet in the first round of the College Football Playoff. Notre Dame is favored against IU.`\
+https://nytimes.com/athletic/5981577/2024/12/20/indiana-notre-dame-how-to-watch-odds-college-football-playoff/
+
 **Musk Expresses Support for Far-Right Party in Germany’s Election**\
 `It was not the first online intervention by Elon Musk, the entrepreneur and adviser to Donald Trump, on behalf of once-fringe anti-immigrant parties in Europe.`\
 https://nytimes.com/2024/12/20/world/europe/elon-musk-afd-germany.html
