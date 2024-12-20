@@ -1,3 +1,7 @@
+**Wrexham's Okonkwo steps up injury recovery after positive scan results**\
+`Wrexham’s promotion hopes have been given a timely boost by first-choice goalkeeper Arthur Okonkwo being given the green light to step up his rehab after receiving positive scan results.`\
+https://nytimes.com/athletic/6008883/2024/12/20/arthur-okonkwo-wrexham-injury-update/
+
 **Trump Is Threatening Europe With Tariffs. Is It Ready?**\
 `The incoming president promised “tariffs all the way” unless Europe bought more U.S. oil and gas. European officials have no clear strategy for avoiding a trade war.`\
 https://nytimes.com/2024/12/20/world/europe/europe-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/learning/word-of-the-day-animatronics.html
 **Canucks squander early lead in loss to Golden Knights: 3 takeaways**\
 `After a solid first period, tired legs and a bad goal doomed Vancouver in Vegas on the second night of a back-to-back.`\
 https://nytimes.com/athletic/6008707/2024/12/20/canucks-golden-knights-kevin-lankinen/
-
-**Seth Meyers: Donald Trump Got ‘Cable Guy’-ed by Elon Musk**\
-`The “Late Night” host likened Trump’s relationship with Musk to the 1996 Jim Carrey movie: “You let him do you a favor, and now you can’t get rid of him.”`\
-https://nytimes.com/2024/12/20/arts/television/seth-meyers-trump-musk.html
 
