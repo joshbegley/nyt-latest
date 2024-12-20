@@ -1,7 +1,3 @@
-**Chinese National Charged in California After Aiding Local Candidate, Prosecutors Say**\
-`The man is charged with acting as an illegal foreign agent. The move is part of an effort by the authorities to prevent China from influencing American politicians.`\
-https://nytimes.com/2024/12/19/us/china-california-election-sun-chen.html
-
 **Ex-Police Chief Who Sexually Assaulted 17-Year-Old Gets 25 Years in Prison**\
 `Larry Allen Clay Jr., 58, of Fayetteville, W.Va., was also a sheriff’s deputy at the time of the crimes, which he tried to cover up, prosecutors said.`\
 https://nytimes.com/2024/12/19/us/chief-larry-allen-clay-sex-offender.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/19/world/middleeast/russia-flights-libya-syria.html
 **Greenberg: Finally, Sammy Sosa and the Cubs are getting close to a reunion**\
 `Sosa hit 545 of his 609 career home runs as a Cub but left in a cloud after the '04 season. It’s beneficial for both sides to come together.`\
 https://nytimes.com/athletic/6007959/2024/12/19/chicago-cubs-sammy-sosa-reunion/
+
+**Britain to Name Peter Mandelson as Ambassador to the U.S.**\
+`The veteran Labour lawmaker chosen by Prime Minister Keir Starmer has experience in trade policy and business and was once nicknamed “the Prince of Darkness” for his political tactics.`\
+https://nytimes.com/2024/12/19/world/europe/uk-peter-mandelson-us-ambassador.html
 
