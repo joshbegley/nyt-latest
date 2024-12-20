@@ -1,3 +1,11 @@
+**Red Sox agree to deal with rehabbing starter Patrick Sandoval: Sources**\
+`Sandoval reportedly has agreed to a deal that will pay him significantly more in the second year, when he's expected to be at full strength.`\
+https://nytimes.com/athletic/6009659/2024/12/20/red-sox-patrick-sandoval-signing/
+
+**The Fair Catch Free Kick, and 4 Other Obscure-but-Real N.F.L. Rules**\
+`On Thursday, the Los Angeles Chargers pulled off a rare “free-kick field goal.” There are other oddball rules in the book if you dig deep enough.`\
+https://nytimes.com/2024/12/20/sports/football/chargers-fair-catch-kick-rare-nfl-rules.html
+
 **The Story of Hong Kong’s Billionaire Dissident**\
 `“The Troublemaker” is a brisk account of the life and work of Jimmy Lai, the media mogul and democracy activist currently on trial for national security offenses.`\
 https://nytimes.com/2024/12/20/books/review/the-troublemaker-jimmy-lai-biography.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6008635/2024/12/20/fantasy-hockey-trends-and-hidden
 **More People Are Now Dying From the Cold**\
 `A new study finds that deaths related to cold weather in the United States have risen in the past two decades.`\
 https://nytimes.com/2024/12/20/well/cold-deaths-health.html
-
-**Trump Says Shutdown Should Happen on Biden’s Watch, Not His**\
-`The president-elect is eager to evade responsibility for the consequences of a potential shutdown even as he blew up a bipartisan deal that would have kept it open.`\
-https://nytimes.com/2024/12/20/us/politics/trump-blame-shutdown.html
-
-**Top Senate Democrats Want Epshteyn to Address Pay-to-Play Allegations**\
-`The chairmen of the Finance, Judiciary and Banking Committees demanded answers from a Trump lawyer accused of soliciting payments from potential administration nominees.`\
-https://nytimes.com/2024/12/20/us/politics/boris-epshteyn-allegations.html
 
