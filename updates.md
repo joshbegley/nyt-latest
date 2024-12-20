@@ -1,3 +1,7 @@
+**Southampton agree Ivan Juric deal**\
+`Southampton have agreed a deal with Ivan Juric to become their new manager.`\
+https://nytimes.com/athletic/6001983/2024/12/20/ivan-juric-southampton-manager/
+
 **Nguyen: ID'ing each division leader's most important non-QB heading toward playoffs**\
 `George Pickens, Trent McDuffie and Jahmyr Gibbs are among those their teams must have if they want to make a Super Bowl run.`\
 https://nytimes.com/athletic/6004608/2024/12/20/most-important-players-nfl-playoffs/

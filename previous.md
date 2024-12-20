@@ -1,3 +1,7 @@
+**Southampton agree Ivan Juric deal**\
+`Southampton have agreed a deal with Ivan Juric to become their new manager.`\
+https://nytimes.com/athletic/6001983/2024/12/20/ivan-juric-southampton-manager/
+
 **Nguyen: ID'ing each division leader's most important non-QB heading toward playoffs**\
 `George Pickens, Trent McDuffie and Jahmyr Gibbs are among those their teams must have if they want to make a Super Bowl run.`\
 https://nytimes.com/athletic/6004608/2024/12/20/most-important-players-nfl-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/opinion/babygirl-kidman-feminism-politics.html
 **Book Club: Read ‘Our Evenings,’ by Alan Hollinghurst, With the Book Review**\
 `In January, the Book Review Book Club will read and discuss “Our Evenings,” a sweeping story about the life, loves, struggles and triumphs of a queer English Burmese actor.`\
 https://nytimes.com/2024/12/20/books/review/our-evenings-alan-hollinghurst-book-club.html
-
-**What’s Your Favorite Holiday Movie or TV Special?**\
-`“Elf,” “Home Alone” or “A Charlie Brown Christmas” — what’s on your must-watch list each holiday season?`\
-https://nytimes.com/2024/12/20/learning/whats-your-favorite-holiday-movie-or-tv-special.html
 
