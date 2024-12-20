@@ -1,3 +1,7 @@
+**After their latest run, Oilers have returned to contender status**\
+`The Oilers overcame a two-goal deficit to earn a 3-2 overtime win over the Bruins on Thursday.`\
+https://nytimes.com/athletic/6008826/2024/12/20/edmonton-oilers-win-bruins-contenders/
+
 **How Chelsea and Josh Acheampong agreed a new contract — a deal that was a long time coming**\
 `With his contract sorted, Acheampong impressed on his first start at Stamford Bridge in the resounding win against Shamrock Rovers`\
 https://nytimes.com/athletic/6008178/2024/12/20/acheampong-chelsea-contract/
