@@ -1,3 +1,7 @@
+**Move Like a Crab**\
+`Henry Josephson makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/12/19/crosswords/daily-puzzle-2024-12-20.html
+
 **JJ Redick dishes on declining NBA ratings: 'This game should be celebrated'**\
 `“If I'm a casual fan and you tell me every time I turn on the television that the product sucks, well, I'm not going to watch the product."`\
 https://nytimes.com/athletic/6008384/2024/12/19/jj-redick-lakers-lebron-james-tv-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891633/2024/12/19/2024-25-mlb-top-40-free-agmlb-to
 **Chinese National Charged in California After Aiding Local Candidate, Prosecutors Say**\
 `The man is charged with acting as an illegal foreign agent. The move is part of an effort by the authorities to prevent China from influencing American politicians.`\
 https://nytimes.com/2024/12/19/us/china-california-election-sun-chen.html
-
-**Ex-Police Chief Who Sexually Assaulted 17-Year-Old Gets 25 Years in Prison**\
-`Larry Allen Clay Jr., 58, of Fayetteville, W.Va., was also a sheriff’s deputy at the time of the crimes, which he tried to cover up, prosecutors said.`\
-https://nytimes.com/2024/12/19/us/chief-larry-allen-clay-sex-offender.html
 
