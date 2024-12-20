@@ -1,3 +1,7 @@
+**Word of the Day: animatronics**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/20/learning/word-of-the-day-animatronics.html
+
 **Canucks squander early lead in loss to Golden Knights: 3 takeaways**\
 `After a solid first period, tired legs and a bad goal doomed Vancouver in Vegas on the second night of a back-to-back.`\
 https://nytimes.com/athletic/6008707/2024/12/20/canucks-golden-knights-kevin-lankinen/

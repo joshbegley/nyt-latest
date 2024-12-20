@@ -1,3 +1,7 @@
+**Word of the Day: animatronics**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/20/learning/word-of-the-day-animatronics.html
+
 **Canucks squander early lead in loss to Golden Knights: 3 takeaways**\
 `After a solid first period, tired legs and a bad goal doomed Vancouver in Vegas on the second night of a back-to-back.`\
 https://nytimes.com/athletic/6008707/2024/12/20/canucks-golden-knights-kevin-lankinen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003057/2024/12/20/fantasy-premier-league-goalkeepe
 **Ruben Amorim is finding order in the chaos of Manchester United**\
 `Even amid this mess of a game, United were attempting to bring order. And that, Amorim will think, is progress`\
 https://nytimes.com/athletic/6008400/2024/12/20/ruben-amorim-man-united-tottenham-carabao-analysis/
-
-**Why do West Ham give managers more time than most clubs before sacking them?**\
-`West Ham tend to give managers more time — and avoid sacking during contracts`\
-https://nytimes.com/athletic/6003282/2024/12/20/west-ham-manager-sacking-analysis/
 
