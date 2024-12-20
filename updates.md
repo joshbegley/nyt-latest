@@ -1,3 +1,11 @@
+**Cathy Cade, Groundbreaking Lesbian Photographer, Dies at 82**\
+`The she became a photographer the same year she came out, chronicling the lives of women in same-sex relationships — something most people had never seen.`\
+https://nytimes.com/2024/12/20/arts/cathy-cade-dead.html
+
+**Democrats highlight a casualty of the spending fight: funding to combat pediatric cancer.**\
+`By Teddy Rosenbluth`\
+https://nytimes.com/live/2024/12/20/us/government-shutdown-trump-news/democrats-highlight-a-casualty-of-the-spending-fight-funding-to-combat-pediatric-cancer
+
 **An X-supported bill to help victims of deepfake porn fell with the spending measure Musk helped kill.**\
 `By Kate Conger`\
 https://nytimes.com/live/2024/12/20/us/government-shutdown-trump-news/an-x-supported-bill-to-help-victims-of-deepfake-porn-fell-with-the-spending-measure-musk-help-kill
