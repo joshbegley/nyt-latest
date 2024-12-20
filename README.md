@@ -1,3 +1,7 @@
+**OpenAI Unveils New A.I. That Can ‘Reason’ Through Math and Science Problems**\
+`The artificial intelligence start-up said the new system, OpenAI o3, outperformed leading A.I. technologies on tests that rate skills in math, science, coding and logic.`\
+https://nytimes.com/2024/12/20/technology/openai-new-ai-math-science.html
+
 **Worst MLB record ever? White Sox open with historically low win total and comical futures odds**\
 `The White Sox win total is 49.5 games on BetMGM, which is the lowest number in sports betting since at least 1990.`\
 https://nytimes.com/athletic/6009689/2024/12/20/white-sox-win-total-odds-historically-low/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/us/richard-allen-delphi-murders-sentencing.html
 **Trump Moves to Replace Officials Whom New Presidents Traditionally Leave Alone**\
 `Congress devised some positions to stay on during changes in administrations. But Donald Trump has declared his intent to replace at least three.`\
 https://nytimes.com/2024/12/20/us/politics/trump-replace-officials.html
-
-**French Court Convicts 8 People Tied to Events That Led to Teacher’s Killing**\
-`Samuel Paty was beheaded in 2020 by an Islamist extremist after showing caricatures of the Prophet Muhammad to his students to illustrate free speech.`\
-https://nytimes.com/2024/12/20/world/europe/france-paty-beheading.html
 
