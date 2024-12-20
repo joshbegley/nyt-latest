@@ -1,3 +1,7 @@
+**Britannica Didn’t Just Survive. It’s an A.I. Company Now.**\
+`The encyclopedia maker could have become a casualty of the Wikipedia era. But it has remade itself into a digital learning giant that is weighing going public.`\
+https://nytimes.com/2024/12/20/business/dealbook/britannica-artificial-intelligence.html
+
 **The Athletic FC: Pogba, his brother and £11m extortion plot; inside Everton takeover**\
 `Today in TAFC: Paul Pogba's brother convicted over extortion plot, inside the Everton buyout and Fraser Forster's double shocker.`\
 https://nytimes.com/athletic/6008935/2024/12/20/pogba-blackmail-extortion-prison-everton-takeover/
