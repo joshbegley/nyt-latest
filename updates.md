@@ -1,3 +1,15 @@
+**Mets meet with Japanese star Roki Sasaki**\
+`The New York Mets met Thursday with international amateur free agent Roki Sasaki, the highly coveted 23-year-old right-handed pitcher from Japan, league sources confirmed.`\
+https://nytimes.com/athletic/6008267/2024/12/19/mets-roki-sasaki/
+
+**Former Knicks Star Clashes With Dolan Lawyer Over Assault at Garden**\
+`Charles Oakley answered questions in a federal courtroom on why he didn’t preserve old text messages that might have shed light on the case.`\
+https://nytimes.com/2024/12/19/nyregion/oakley-msg-knicks.html
+
+**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
+https://nytimes.com/athletic/5891633/2024/12/19/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Chinese National Charged in California After Aiding Local Candidate, Prosecutors Say**\
 `The man is charged with acting as an illegal foreign agent. The move is part of an effort by the authorities to prevent China from influencing American politicians.`\
 https://nytimes.com/2024/12/19/us/china-california-election-sun-chen.html
