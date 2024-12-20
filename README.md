@@ -1,3 +1,7 @@
+**Romanian Court Blocks Andrew Tate’s Case From Heading to Trial**\
+`An indictment against Mr. Tate, the online influencer facing accusations of human trafficking and sexual misconduct, was sent back to prosecutors, an appeals court said.`\
+https://nytimes.com/2024/12/20/world/europe/andrew-tate-trial-romania.html
+
 **Vikings-Seahawks preview, predictions: Can Minnesota stay on pace for No. 1 seed?**\
 `How can Seattle contain Justin Jefferson? And can the Minnesota offensive line give Sam Darnold sufficient time to throw the ball downfield?`\
 https://nytimes.com/athletic/6007938/2024/12/20/vikings-seahawks-preview-predictions-top-seed-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/podcasts/government-shutdown-fda-food.html
 **Packers' Christian Watson is reaping the rewards of his early-season patience**\
 `Watson ranks first in the NFL over the last five weeks in yards per catch, averaging a whopping 29.8 yards per reception.`\
 https://nytimes.com/athletic/6007945/2024/12/20/packers-christian-watson-receiver/
-
-**The Connections Companion No. 559**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 21, 2024.`\
-https://nytimes.com/2024/12/20/crosswords/connections-companion-559.html
 
