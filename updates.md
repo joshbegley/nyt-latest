@@ -1,3 +1,15 @@
+**Newcastle player agents waiting on overdue payments owed by the club**\
+`The representatives of multiple Newcastle United players have been left in the dark after fees the club owed them were not paid on time.`\
+https://nytimes.com/athletic/6001208/2024/12/20/newcastle-agent-payments/
+
+**Indiana Man Sentenced to 130 Years for Killing 2 Teenage Girls**\
+`Richard Allen, of Delphi, Ind., received the maximum sentence, concluding a case that came to be known as the Delphi Murders. His lawyers plan to appeal.`\
+https://nytimes.com/2024/12/20/us/richard-allen-delphi-murders-sentencing.html
+
+**French Court Convicts 8 People Tied to Events That Led to Teacher’s Killing**\
+`Samuel Paty, a teacher, was beheaded in 2020 by an Islamist extremist after showing caricatures of the Prophet Muhammad to his students to illustrate free speech.`\
+https://nytimes.com/2024/12/20/world/europe/france-paty-beheading.html
+
 **French Court Convicts 8 in Connection to Events That Led to Teacher’s Killing**\
 `Samuel Paty, a teacher, was beheaded in 2020 by an Islamist extremist after showing caricatures of the Prophet Muhammad to his students to illustrate free speech.`\
 https://nytimes.com/2024/12/20/world/europe/france-paty-beheading.html
