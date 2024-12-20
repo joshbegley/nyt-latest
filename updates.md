@@ -1,3 +1,15 @@
+**Ex-Police Chief Who Sexually Assaulted 17-Year-Old Gets 25 Years in Prison**\
+`Larry Allen Clay Jr., 58, of Fayetteville, W.Va., was also a sheriff’s deputy at the time of the crimes, which he tried to cover up, prosecutors said.`\
+https://nytimes.com/2024/12/19/us/chief-larry-allen-clay-sex-offender.html
+
+**Macau Is the Casino Capital of the World. For China, That’s Not Enough.**\
+`A quarter century after the former Portuguese colony was made a Chinese territory, Macau’s economic boundaries with the mainland are being blurred.`\
+https://nytimes.com/2024/12/19/business/macau-china-xi-jinping.html
+
+**Many Videos That Purport to Show Drones in New Jersey Likely Show Planes, Visual Analysis Finds**\
+`Here’s why it’s hard to distinguish objects in the night sky.`\
+https://nytimes.com/2024/12/19/video/new-jersey-drones-planes-videos.html
+
 **Tisch Shakes Up N.Y.P.D. Staff and Orders 500 Officers Back to Key Roles**\
 `Commissioner Jessica Tisch is replacing the Police Department’s head of communications, who had clashed with reporters, and sending many officers back to patrol.`\
 https://nytimes.com/2024/12/19/nyregion/jessica-tisch-nypd-appointments.html
