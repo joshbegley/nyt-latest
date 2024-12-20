@@ -1,3 +1,7 @@
+**We Need a Great American Fantasy**\
+`In search of a New World answer to Narnia and Hogwarts.`\
+https://nytimes.com/2024/12/20/opinion/wicked-tolkien-westeros-narnia.html
+
 **E.P.A. Administrator Michael Regan to Depart at End of December**\
 `Mr. Regan informed agency employees that he would leave before the formal end of the Biden term.`\
 https://nytimes.com/2024/12/20/climate/epa-michael-regan-departs.html

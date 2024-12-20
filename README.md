@@ -1,7 +1,3 @@
-**We Need a Great American Fantasy**\
-`In search of a New World answer to Narnia and Hogwarts.`\
-https://nytimes.com/2024/12/20/opinion/wicked-tolkien-westeros-narnia.html
-
 **E.P.A. Administrator Michael Regan to Depart at End of December**\
 `Mr. Regan informed agency employees that he would leave before the formal end of the Biden term.`\
 https://nytimes.com/2024/12/20/climate/epa-michael-regan-departs.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/20/opinion/letters/musk-political-influence.html
 **Markets Rally, Shaking Off Threat of Government Shutdown**\
 `The S&P 500 jumped after a November inflation reading helped ease worries. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
 https://nytimes.com/2024/12/20/us/politics/markets-government-shutdown.html
+
+**Atlanta United hires Ronny Deila as coach**\
+`The challenge for Deila will be to manage expectations and turn a team of underachievers into league leaders.`\
+https://nytimes.com/athletic/6009744/2024/12/20/atlanta-united-ronny-deila-head-coach/
 
