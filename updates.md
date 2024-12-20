@@ -1,3 +1,11 @@
+**JJ Redick dishes on declining NBA ratings: 'This game should be celebrated'**\
+`“If I'm a casual fan and you tell me every time I turn on the television that the product sucks, well, I'm not going to watch the product."`\
+https://nytimes.com/athletic/6008384/2024/12/19/jj-redick-lakers-lebron-james-tv-ratings/
+
+**Cowan, Canada smash Switzerland in World Juniors pre-tournament win**\
+`Maple Leafs first-round pick Easton Cowan scored a hat trick as Canada prevailed 7-1.`\
+https://nytimes.com/athletic/6005202/2024/12/19/canada-world-juniors-easton-cowan-switzerland/
+
 **Karl-Anthony Towns welcomed back to Minnesota with ovation, tribute video**\
 `“They're still my brothers, still my guys, just because the trade happened doesn't mean I lost love for them,” Towns said.`\
 https://nytimes.com/athletic/6008193/2024/12/19/kat-karl-anthony-towns-knicks-timberwolves/
