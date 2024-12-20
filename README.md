@@ -1,3 +1,7 @@
+**Dele confirms Everton exit: 'Things haven't worked out as we hoped'**\
+`Dele Alli has confirmed he will be leaving Everton after conceding &#8220;things haven&#8217;t worked out as we all would have hoped&#8221;.`\
+https://nytimes.com/athletic/6009180/2024/12/20/dele-alli-everton-exit/
+
 **The Fed’s Preferred Inflation Measure Sped Up in November**\
 `The Personal Consumption Expenditures index climbed 2.4 percent from a year earlier, though the report’s details were more subdued than expected.`\
 https://nytimes.com/2024/12/20/business/economy/inflation-pce-fed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6008447/2024/12/20/dodgers-teoscar-hernandez-free-a
 **Chelsea's Fofana and Badiashile out for 'a long period' - Maresca**\
 `Enzo Maresca has revealed Chelsea are going to be without centre-backs Wesley Fofana and Benoit Badiashile for &#8220;a long period&#8221; but captain Reece James is going to resume training with the first team today.`\
 https://nytimes.com/athletic/6009053/2024/12/20/chelsea-injury-news-fofana-badiashile/
-
-**Naji Marshall brings an edge to the Mavericks. His return adds to the team's makeup**\
-`Marshall returned to the Mavericks’ lineup against the LA Clippers after missing five of the last six games with an illness.`\
-https://nytimes.com/athletic/6007071/2024/12/20/naji-marshall-mavericks-pelicans/
 
