@@ -1,3 +1,7 @@
+**Trump Is Threatening Europe With Tariffs. Is It Ready?**\
+`The incoming president promised “tariffs all the way” unless Europe bought more U.S. oil and gas. European officials have no clear strategy for avoiding a trade war.`\
+https://nytimes.com/2024/12/20/world/europe/europe-trump-tariffs.html
+
 **Googly Eyes**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/12/20/learning/googly-eyes.html
