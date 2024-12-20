@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6009217/2024/12/20/ohio-state-stadium-playoff-home-
 https://nytimes.com/athletic/6009318/2024/12/20/penguins-today-erik-karlsson/
 
 **Netflix secures U.S. broadcast rights for 2027, 2031 Women's World Cups**\
-`Netflix has secured the exclusive broadcast rights in the United States for the 2027 and 2031 editions of the Women&#8217;s World Cup.`\
+`Fox previously had the rights to the 2023 edition of the tournament.`\
 https://nytimes.com/athletic/6009284/2024/12/20/netflix-womens-world-cup/
 
 **Pereira aims to guide Wolves 'like a tactical GPS'**\
