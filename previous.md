@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About Claire Keegan’s ‘Small Things Like These’**\
+`This slim novella about one Irishman’s crisis of conscience during the Christmas season is the topic of our December book club discussion.`\
+https://nytimes.com/2024/12/20/books/review/claire-keegan-small-things-like-these-book-club.html
+
 **Red Sox agree to deal with rehabbing starter Patrick Sandoval: Sources**\
 `Sandoval reportedly has agreed to a deal that will pay him significantly more in the second year, when he's expected to be at full strength.`\
 https://nytimes.com/athletic/6009659/2024/12/20/red-sox-patrick-sandoval-signing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5978321/2024/12/20/college-football-playoff-betting
 **Fantasy hockey trends: Keep or kick Mika Zibanejad, Patrik Laine and more**\
 `It's the season of giving, and you should consider giving away some unproductive players.`\
 https://nytimes.com/athletic/6008635/2024/12/20/fantasy-hockey-trends-and-hidden-gems-keep-or-kick-mika-zibanejad-patrik-laine-and-more/
-
-**More People Are Now Dying From the Cold**\
-`A new study finds that deaths related to cold weather in the United States have risen in the past two decades.`\
-https://nytimes.com/2024/12/20/well/cold-deaths-health.html
 

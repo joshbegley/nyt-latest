@@ -1,3 +1,7 @@
+**Book Club: Let’s Talk About Claire Keegan’s ‘Small Things Like These’**\
+`This slim novella about one Irishman’s crisis of conscience during the Christmas season is the topic of our December book club discussion.`\
+https://nytimes.com/2024/12/20/books/review/claire-keegan-small-things-like-these-book-club.html
+
 **Red Sox agree to deal with rehabbing starter Patrick Sandoval: Sources**\
 `Sandoval reportedly has agreed to a deal that will pay him significantly more in the second year, when he's expected to be at full strength.`\
 https://nytimes.com/athletic/6009659/2024/12/20/red-sox-patrick-sandoval-signing/
