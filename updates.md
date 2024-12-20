@@ -1,3 +1,7 @@
+**Penn State, Louisville set to meet for women's volleyball national title**\
+`The championship matchup is set for 3 p.m. ET Sunday at the KFC Yum! Center with televised coverage on ABC.`\
+https://nytimes.com/athletic/6008748/2024/12/20/penn-state-louisville-womens-volleyball-semifinals-ncaa/
+
 **Trump Puts Shares of His Media Company in a Trust**\
 `A regulatory filing showed that the president-elect transferred some 115 million shares of Trump Media to a trust controlled by his son Donald Trump Jr.`\
 https://nytimes.com/2024/12/20/business/trump-media-donald-trump-trust.html

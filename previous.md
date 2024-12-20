@@ -1,3 +1,7 @@
+**Penn State, Louisville set to meet for women's volleyball national title**\
+`The championship matchup is set for 3 p.m. ET Sunday at the KFC Yum! Center with televised coverage on ABC.`\
+https://nytimes.com/athletic/6008748/2024/12/20/penn-state-louisville-womens-volleyball-semifinals-ncaa/
+
 **Trump Puts Shares of His Media Company in a Trust**\
 `A regulatory filing showed that the president-elect transferred some 115 million shares of Trump Media to a trust controlled by his son Donald Trump Jr.`\
 https://nytimes.com/2024/12/20/business/trump-media-donald-trump-trust.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007126/2024/12/20/kyle-walker-is-in-a-storm-on-and
 **'Staggeringly understated – and cool as hell': What football thinks of Arne Slot**\
 `The Dutchman's flying start to life at Anfield has drawn admiration from across the game - this is why`\
 https://nytimes.com/athletic/6006424/2024/12/20/arne-slot-liverpool-what-football-thinks/
-
-**Atletico Madrid's 11-game winning streak has been powered by their substitutes**\
-`Atletico go into Saturday's meeting with Barcelona on their best run of form since 2012. Simeone's changes will be key`\
-https://nytimes.com/athletic/6003713/2024/12/20/atletico-madrid-winning-streak-la-liga/
 
