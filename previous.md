@@ -1,3 +1,15 @@
+**Ring-Kissing, Lawsuits and a Looming Shutdown**\
+`Watch or listen to our political round table about the aftermath of the 2024 election.`\
+https://nytimes.com/2024/12/20/podcasts/the-daily/trump-government-shutdown.html
+
+**Ring-Kissing, Defamation Lawsuits and a Looming Shutdown**\
+`On this week’s round table Michael Barbaro sits down with Maggie Haberman, Andrew Ross Sorkin and Catie Edmondson to discuss the latest news in Donald J. Trump’s transition to power.`\
+https://nytimes.com/video/podcasts/the-daily/100000009885256/ring-kissing-defamation-lawsuits-and-a-looming-shutdown.html
+
+**Musk, Ring-Kissing and a Looming Shutdown**\
+`Andrew Ross Sorkin sits down with Michael Barbaro to discuss raising the debt ceiling and Elon Musk’s political impact.`\
+https://nytimes.com/video/podcasts/the-daily/100000009888316/musk-ring-kissing-and-a-looming-shutdown.html
+
 **Southampton agree Ivan Juric deal**\
 `Southampton have agreed a deal with Ivan Juric to become their new manager.`\
 https://nytimes.com/athletic/6001983/2024/12/20/ivan-juric-southampton-manager/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/20/well/family/family-friends-drinking-habits.html
 **The New York Times News Quiz, Dec. 20, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/12/20/briefing/news-quiz-trump-congress-luigi-mangione-ukraine.html
-
-**Maurice Berger Held a Mirror to a Racist Art World**\
-`A posthumous anthology of photo essays by the curator and art historian reveals the “troubling reality” of prejudice and the power of images to “undermine the very concept of difference.”`\
-https://nytimes.com/2024/12/20/books/review/maurice-berger-race-stories.html
-
-**The Surprising Sexual Politics of Nicole Kidman’s Kinky ‘Babygirl’**\
-`The film feels like an artifact of a more optimistic feminist moment.`\
-https://nytimes.com/2024/12/20/opinion/babygirl-kidman-feminism-politics.html
-
-**Book Club: Read ‘Our Evenings,’ by Alan Hollinghurst, With the Book Review**\
-`In January, the Book Review Book Club will read and discuss “Our Evenings,” a sweeping story about the life, loves, struggles and triumphs of a queer English Burmese actor.`\
-https://nytimes.com/2024/12/20/books/review/our-evenings-alan-hollinghurst-book-club.html
 

@@ -1,3 +1,15 @@
+**Ring-Kissing, Lawsuits and a Looming Shutdown**\
+`Watch or listen to our political round table about the aftermath of the 2024 election.`\
+https://nytimes.com/2024/12/20/podcasts/the-daily/trump-government-shutdown.html
+
+**Ring-Kissing, Defamation Lawsuits and a Looming Shutdown**\
+`On this week’s round table Michael Barbaro sits down with Maggie Haberman, Andrew Ross Sorkin and Catie Edmondson to discuss the latest news in Donald J. Trump’s transition to power.`\
+https://nytimes.com/video/podcasts/the-daily/100000009885256/ring-kissing-defamation-lawsuits-and-a-looming-shutdown.html
+
+**Musk, Ring-Kissing and a Looming Shutdown**\
+`Andrew Ross Sorkin sits down with Michael Barbaro to discuss raising the debt ceiling and Elon Musk’s political impact.`\
+https://nytimes.com/video/podcasts/the-daily/100000009888316/musk-ring-kissing-and-a-looming-shutdown.html
+
 **Southampton agree Ivan Juric deal**\
 `Southampton have agreed a deal with Ivan Juric to become their new manager.`\
 https://nytimes.com/athletic/6001983/2024/12/20/ivan-juric-southampton-manager/
