@@ -1,6 +1,5 @@
 **Free-agent first-baseman Christian Walker, Astros 'in serious talks' about contract**\
-`By Ken Rosenthal, Chandler Rome and Noah Furtado
-Christian Walker, the reigning three-time National League Gold Glove Award-winning first baseman, is in serious talks with the Houston Astros about signing with the organization.`\
+`A league source notes that the two sides are “down the road.”`\
 https://nytimes.com/athletic/5941661/2024/12/20/christian-walker-contract-astros-free-agency/
 
 **Volkswagen Reaches Labor Deal, Avoiding Germany Plant Closures**\
