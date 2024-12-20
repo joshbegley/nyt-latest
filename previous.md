@@ -1,3 +1,11 @@
+**'I'm not dying, I'm OK:' Brock Faber on 'scary' scene taking puck to throat**\
+`'For a while there, it was very hard to breathe and I couldn't swallow,' the Wild star said.`\
+https://nytimes.com/athletic/6009999/2024/12/20/minnesota-wild-brock-faber-injury-throat/
+
+**Christmas-themed trading cards: Fun and surprisingly valuable**\
+`Sports stars, celebrities, and even cryptocurrency all have rookie cards… but does Santa Claus? It’s a question you may ask yourself after consuming a little too much nutmeg.`\
+https://nytimes.com/athletic/6009595/2024/12/20/santa-claus-christmas-trading-cards-griswold/
+
 **Biden to Withdraw Unfinished Student Debt Proposals for 38 Million Borrowers**\
 `The decision to withdraw the regulations was a tacit acknowledgment that they would go nowhere under the Trump administration.`\
 https://nytimes.com/2024/12/20/us/politics/biden-withdraw-student-debt-proposals.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/12/20/magazine/pete-rose-baseball.html
 **Angela Bofill Sang What She Could Until the End**\
 `She was a musical virtuoso who never quite got her due.`\
 https://nytimes.com/interactive/2024/12/20/magazine/angela-bofill-singer.html
-
-**Hettie Jones Helped Kickstart New York’s Beat Scene**\
-`Despite her husband's betrayal, she recreated herself as the writer she always was.`\
-https://nytimes.com/interactive/2024/12/20/magazine/hettie-jones-poet.html
-
-**Peter Buxtun Refused to Give Up**\
-`For years, he tried to expose the Tuskegee syphilis study – but no one would listen.`\
-https://nytimes.com/interactive/2024/12/20/magazine/peter-buxtun-tuskegee-study.html
 

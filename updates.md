@@ -1,3 +1,11 @@
+**'I'm not dying, I'm OK:' Brock Faber on 'scary' scene taking puck to throat**\
+`'For a while there, it was very hard to breathe and I couldn't swallow,' the Wild star said.`\
+https://nytimes.com/athletic/6009999/2024/12/20/minnesota-wild-brock-faber-injury-throat/
+
+**Christmas-themed trading cards: Fun and surprisingly valuable**\
+`Sports stars, celebrities, and even cryptocurrency all have rookie cards… but does Santa Claus? It’s a question you may ask yourself after consuming a little too much nutmeg.`\
+https://nytimes.com/athletic/6009595/2024/12/20/santa-claus-christmas-trading-cards-griswold/
+
 **Biden to Withdraw Unfinished Student Debt Proposals for 38 Million Borrowers**\
 `The decision to withdraw the regulations was a tacit acknowledgment that they would go nowhere under the Trump administration.`\
 https://nytimes.com/2024/12/20/us/politics/biden-withdraw-student-debt-proposals.html
