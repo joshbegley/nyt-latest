@@ -1,3 +1,7 @@
+**Rice, Calafiori set to be available for Arsenal vs Palace**\
+`Declan Rice and Riccardo Calafiori are both set to be available for Arsenal&#8217;s trip to Crystal Palace on Saturday evening.`\
+https://nytimes.com/athletic/5995048/2024/12/20/arsenal-team-news-rice-calafiori-crystal-palace/
+
 **LeBron James leads defensive charge as Lakers grab key win at Sacramento**\
 `"I really felt like this might be my favorite win we've had all season," coach JJ Redick said.`\
 https://nytimes.com/athletic/6008521/2024/12/20/lakers-defense-lebron-james/
