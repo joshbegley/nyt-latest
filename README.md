@@ -1,3 +1,7 @@
+**Despite Sabres' winless streak, Kevyn Adams stands pat through NHL roster freeze**\
+`There’s been a jarring lack of action from the general manager given the tailspin the team has been in.`\
+https://nytimes.com/athletic/6009200/2024/12/20/sabres-roster-kevyn-adams-gm/
+
 **Notre Dame vs. Indiana weather: CFP kicks off with snow, cold conditions**\
 `Weather forecasts predict the temperature will be 29 degrees with winds of 11 mph at the 8 p.m. ET kickoff in South Bend.`\
 https://nytimes.com/athletic/6009332/2024/12/20/notre-dame-indiana-weather-snow-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/theater/the-tempest-sigourney-weaver-jamie-lloyd.
 **NHL Power Rankings: Capitals stay on top, plus each team's best of 2024**\
 `Here is this week's rankings plus each team’s MVP from January-to-December, the best of 2024.`\
 https://nytimes.com/athletic/6009035/2024/12/20/nhl-power-rankings-best-of-2024/
-
-**Villa's Martinez admits his form has dipped this season**\
-`Aston Villa goalkeeper Emiliano Martinez has admitted his form has dipped this season amid his side&#8217;s struggles to keep clean sheets.`\
-https://nytimes.com/athletic/6009191/2024/12/20/emiliano-martinez-aston-villa/
 
