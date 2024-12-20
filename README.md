@@ -1,3 +1,7 @@
+**White Judge Who Threatened to Shoot Black Teens at Party Resigns**\
+`Justice Erin P. Gall of Oneida County, N.Y., faced removal from office after a judicial commission found that she engaged in a “racially offensive, profane” tirade at a high school graduation party.`\
+https://nytimes.com/2024/12/20/nyregion/ny-judge-erin-gall.html
+
 **In Late Push, Senate Democrats Narrowly Top Trump on Judicial Confirmations**\
 `With the vote, the Senate approved its 235th lifetime judge of President Biden’s tenure, besting his predecessor by a single judgeship.`\
 https://nytimes.com/2024/12/20/us/politics/senate-democrats-judges-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/nyregion/mangione-state-arraignment-monday.html
 **Missouri Governor Commutes Sentence of Detective Convicted in On-Duty Killing**\
 `Eric J. DeValkenaere was convicted of involuntary manslaughter in the death of Cameron Lamb. Calls for clemency angered many in Kansas City, Mo.`\
 https://nytimes.com/2024/12/20/us/missouri-governor-commutation-police-killing.html
-
-**The Budget Fight and Trump’s Nihilistic Style**\
-`A surprise congressional standoff remind us that big, discordant change could be coming.`\
-https://nytimes.com/2024/12/20/opinion/trump-shutdown-allegiances.html
 
