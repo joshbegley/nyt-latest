@@ -1,3 +1,7 @@
+**MLB notes: The latest on Vladimir Guerrero Jr., Bo Bichette and the Blue Jays' offseason**\
+`Plus more on the Yankees' options at first base and a new team for Gio Urshela.`\
+https://nytimes.com/athletic/6008454/2024/12/19/blue-jays-vladimir-guerrero-bo-bichette-yankees/
+
 **Move Like a Crab**\
 `Henry Josephson makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/12/19/crosswords/daily-puzzle-2024-12-20.html
