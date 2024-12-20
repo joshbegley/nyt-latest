@@ -1,3 +1,7 @@
+**Phillies agree to add Max Kepler on 1-year, $10 million deal: Sources**\
+`On the surface, it is a puzzling move by the Phillies. Kepler batted .253/.302/.380 last season with the Twins. `\
+https://nytimes.com/athletic/6008322/2024/12/19/max-kepler-contract-phillies-mlb-free-agency/
+
 **Mets meet with Japanese star Roki Sasaki**\
 `The New York Mets met Thursday with international amateur free agent Roki Sasaki, the highly coveted 23-year-old right-handed pitcher from Japan, league sources confirmed.`\
 https://nytimes.com/athletic/6008267/2024/12/19/mets-roki-sasaki/

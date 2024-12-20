@@ -1,3 +1,7 @@
+**Phillies agree to add Max Kepler on 1-year, $10 million deal: Sources**\
+`On the surface, it is a puzzling move by the Phillies. Kepler batted .253/.302/.380 last season with the Twins. `\
+https://nytimes.com/athletic/6008322/2024/12/19/max-kepler-contract-phillies-mlb-free-agency/
+
 **Mets meet with Japanese star Roki Sasaki**\
 `The New York Mets met Thursday with international amateur free agent Roki Sasaki, the highly coveted 23-year-old right-handed pitcher from Japan, league sources confirmed.`\
 https://nytimes.com/athletic/6008267/2024/12/19/mets-roki-sasaki/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/video/new-jersey-drones-planes-videos.html
 **Here’s What Could Happen in a Government Shutdown**\
 `With a funding deadline approaching, workers are bracing for the possibility of a disruptive holiday season, which could include longer wait times for travelers.`\
 https://nytimes.com/2024/12/19/us/politics/government-shutdown-funding.html
-
-**Commanders’ move takes a hit as RFK control measure removed from Congressional spending bill**\
-`A new revised spending bill to avoid government shutdown has been introduced to the House. It doesn't address the Commanders or RFK Stadium.`\
-https://nytimes.com/athletic/6008209/2024/12/19/washington-commanders-congress-house-rfk-stadium/
 
