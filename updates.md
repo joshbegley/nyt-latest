@@ -1,3 +1,7 @@
+**Karl-Anthony Towns welcomed back to Minnesota with ovation, tribute video**\
+`“They're still my brothers, still my guys, just because the trade happened doesn't mean I lost love for them.” Towns said.`\
+https://nytimes.com/athletic/6008193/2024/12/19/kat-karl-anthony-towns-knicks-timberwolves/
+
 **Dozens of House Republicans Defy Trump in Test of His Grip on G.O.P.**\
 `Thirty-eight Republican lawmakers resisted the president-elect’s command to support a spending and debt deal, showing that at least some of his followers are willing to buck his leadership in the right circumstances.`\
 https://nytimes.com/2024/12/19/us/politics/trump-republicans-spending-bill.html

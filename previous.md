@@ -1,3 +1,7 @@
+**Karl-Anthony Towns welcomed back to Minnesota with ovation, tribute video**\
+`“They're still my brothers, still my guys, just because the trade happened doesn't mean I lost love for them.” Towns said.`\
+https://nytimes.com/athletic/6008193/2024/12/19/kat-karl-anthony-towns-knicks-timberwolves/
+
 **Dozens of House Republicans Defy Trump in Test of His Grip on G.O.P.**\
 `Thirty-eight Republican lawmakers resisted the president-elect’s command to support a spending and debt deal, showing that at least some of his followers are willing to buck his leadership in the right circumstances.`\
 https://nytimes.com/2024/12/19/us/politics/trump-republicans-spending-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/business/macau-china-xi-jinping.html
 **Tisch Shakes Up N.Y.P.D. Staff and Orders 500 Officers Back to Key Roles**\
 `Commissioner Jessica Tisch is replacing the Police Department’s head of communications, who had clashed with reporters, and sending many officers back to patrol.`\
 https://nytimes.com/2024/12/19/nyregion/jessica-tisch-nypd-appointments.html
-
-**Many Videos That Purport to Show Drones in New Jersey Likely Show Planes, Visual Analysis Finds**\
-`Here’s why it’s hard to distinguish objects in the night sky.`\
-https://nytimes.com/2024/12/19/video/new-jersey-drones-planes-videos.html
 
