@@ -1,3 +1,11 @@
+**How Anti-Obesity Drugs are Redefining Pharma and Wellness**\
+`Listen to our interview with David Ricks and Fatima Cody Stanford.`\
+https://nytimes.com/2024/12/20/podcasts/ricks-stanford-eli-lilly.html
+
+**Corrections: Dec. 20, 2024**\
+`Corrections that appeared in print on Friday, Dec. 20, 2024.`\
+https://nytimes.com/2024/12/20/pageoneplus/corrections-dec-20-2024.html
+
 **From Amazon to Space — Jeff Bezos Talks Innovation, Progress and What’s Next**\
 `Listen to our interview with Jeff Bezos.`\
 https://nytimes.com/2024/12/20/podcasts/jeff-bezos-amazon-space-washington-post.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/20/podcasts/19dealbook-pichai-google.html
 **Prince Harry on His Murdoch Tabloid Fight and Big Tech**\
 `Listen to our interview with Prince Harry.`\
 https://nytimes.com/2024/12/20/podcasts/prince-harry-on-his-murdoch-tabloid-fight-and-big-tech.html
-
-**Ken Griffin Says ‘America Is Open For Business Again’**\
-`Listen to our interview with Ken Griffin.`\
-https://nytimes.com/2024/12/20/podcasts/ken-griffin.html
-
-**Sam Altman on the Future of A.I. and Society**\
-`Listen to our interview with Sam Altman.`\
-https://nytimes.com/2024/12/20/podcasts/19-dealbook-sam-altman-artificial-intelligence.html
 
