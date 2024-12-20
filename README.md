@@ -1,3 +1,7 @@
+**Is Amazon’s Drone Delivery Finally Ready for Prime Time?**\
+`We flew to Arizona to test the recently debuted service ourselves.`\
+https://nytimes.com/2024/12/20/podcasts/hardfork-amazon-drone-delivery.html
+
 **The Pulse: Weird NFL rule ends 48-year hiatus**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6007568/2024/12/20/chargers-free-kick-cfp-indiana-notre-dame-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007938/2024/12/20/vikings-seahawks-preview-predict
 **The Cubs built toward the Kyle Tucker trade and now need to find the next Cam Smith**\
 `The Cubs still have a strong farm system after dipping into it for the Tucker trade.`\
 https://nytimes.com/athletic/6008068/2024/12/20/cubs-kyle-tucker-trade-whats-next/
-
-**Bears mailbag: Should Chicago keep GM Ryan Poles? Cole Kmet's targets? Plus, Week 16 picks**\
-`As bad as the Bears have been, why should Poles be retained? Why isn't Kmet getting the ball more? `\
-https://nytimes.com/athletic/6007737/2024/12/20/chicago-bears-mailbag-ryan-poles-cole-kmet/
 
