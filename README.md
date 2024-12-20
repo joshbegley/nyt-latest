@@ -1,3 +1,7 @@
+**Canucks squander early lead in loss to Golden Knights: 3 takeaways**\
+`After a solid first period, tired legs and a bad goal doomed Vancouver in Vegas on the second night of a back-to-back.`\
+https://nytimes.com/athletic/6008707/2024/12/20/canucks-golden-knights-kevin-lankinen/
+
 **Seth Meyers: Donald Trump Got ‘Cable Guy’-ed by Elon Musk**\
 `The “Late Night” host likened Trump’s relationship with Musk to the 1996 Jim Carrey movie: “You let him do you a favor, and now you can’t get rid of him.”`\
 https://nytimes.com/2024/12/20/arts/television/seth-meyers-trump-musk.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/12/20/us/politics/us-diplomats-syria.html
 `Holly Shand explores whether you should plump for one of FPL's premium goalkeepers or a cheaper alternative`\
 https://nytimes.com/athletic/6003057/2024/12/20/fantasy-premier-league-goalkeepers-raya-alisson/
 
+**Ruben Amorim is finding order in the chaos of Manchester United**\
+`Even amid this mess of a game, United were attempting to bring order. And that, Amorim will think, is progress`\
+https://nytimes.com/athletic/6008400/2024/12/20/ruben-amorim-man-united-tottenham-carabao-analysis/
+
 **Why do West Ham give managers more time than most clubs before sacking them?**\
 `West Ham tend to give managers more time — and avoid sacking during contracts`\
 https://nytimes.com/athletic/6003282/2024/12/20/west-ham-manager-sacking-analysis/
-
-**What next for Enciso: Has a new 'mindset' convinced Hurzeler to keep him at Brighton?**\
-`One of the Premier League's great young talents has struggled for opportunities this season. But that might be changing...`\
-https://nytimes.com/athletic/5977586/2024/12/20/what-next-for-enciso-has-a-new-mindset-convinced-fabian-hurzeler-to-keep-him-at-brighton/
-
-**What does an Arteta striker look like? (And does it in any way resemble Alexander Isak?)**\
-`What the Arsenal manager might be looking for in a centre-forward`\
-https://nytimes.com/athletic/6006162/2024/12/20/what-does-an-arteta-striker-look-like/
 
