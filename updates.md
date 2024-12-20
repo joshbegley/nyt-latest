@@ -1,3 +1,7 @@
+**Tisch Shakes Up N.Y.P.D. Staff and Orders 500 Officers Back to Key Roles**\
+`Commissioner Jessica Tisch is replacing the Police Department’s head of communications, who had clashed with reporters, and sending many officers back to patrol.`\
+https://nytimes.com/2024/12/19/nyregion/jessica-tisch-nypd-appointments.html
+
 **Many Videos That Purport to Show Drones in New Jersey Likely Show Planes, Visual Analysis Shows**\
 `Here’s why it’s hard to distinguish objects in the night sky.`\
 https://nytimes.com/2024/12/19/video/new-jersey-drones-planes-videos.html
