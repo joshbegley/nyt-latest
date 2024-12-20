@@ -1,3 +1,11 @@
+**A Shutdown’s Economic Toll: Less Spending, More Uncertainty**\
+`A short lapse in funding would probably do only modest damage. But it could send a troubling signal about government dysfunction.`\
+https://nytimes.com/2024/12/20/business/economy/government-shutdown-economy-impact.html
+
+**The 10 Architectural Sites You Should See in São Paulo**\
+`These buildings and places capture the city’s playful approach to concrete-and-asphalt Modernism.`\
+https://nytimes.com/2024/12/20/t-magazine/sao-paulo-architecture-guide.html
+
 **The Other Game**\
 `At the DealBook Summit, seven sports stars and experts discussed how building a brand as an athlete has changed.`\
 https://nytimes.com/2024/12/20/business/dealbook/sports-branding.html

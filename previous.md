@@ -1,3 +1,11 @@
+**A Shutdown’s Economic Toll: Less Spending, More Uncertainty**\
+`A short lapse in funding would probably do only modest damage. But it could send a troubling signal about government dysfunction.`\
+https://nytimes.com/2024/12/20/business/economy/government-shutdown-economy-impact.html
+
+**The 10 Architectural Sites You Should See in São Paulo**\
+`These buildings and places capture the city’s playful approach to concrete-and-asphalt Modernism.`\
+https://nytimes.com/2024/12/20/t-magazine/sao-paulo-architecture-guide.html
+
 **The Other Game**\
 `At the DealBook Summit, seven sports stars and experts discussed how building a brand as an athlete has changed.`\
 https://nytimes.com/2024/12/20/business/dealbook/sports-branding.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009890750/germany-attack-christmas-
 **Naomi Feil Developed a Radical Approach to Caring for Dementia Patients**\
 `She believed that people with dementia were desperate to connect.`\
 https://nytimes.com/interactive/2024/12/20/magazine/naomi-feil-dementia.html
-
-**The Orphaned Sea Otter Who Became a Foster Mom to 15 Pups**\
-`Despite never having had offspring of her own, she was an instinctive caregiver.`\
-https://nytimes.com/interactive/2024/12/20/magazine/rosa-sea-otter.html
-
-**Wafa Al-Udaini Captured the Experiences of Palestinians From Within**\
-`As a journalist, she was determined to tell a story of Gaza that was full of life.`\
-https://nytimes.com/interactive/2024/12/20/magazine/wafa-aludaini-killed-palestinian-journalist.html
 
