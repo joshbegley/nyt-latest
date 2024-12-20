@@ -1,3 +1,11 @@
+**The Other Game**\
+`At the DealBook Summit, seven sports stars and experts discussed how building a brand as an athlete has changed.`\
+https://nytimes.com/2024/12/20/business/dealbook/sports-branding.html
+
+**The Trinidadian Christmas Staple Worth the Yearlong Wait**\
+`Chow chow, a bright and bracing pickled relish, is essential to the holiday table in Trinidad and Tobago — and the perfect accompaniment to ham.`\
+https://nytimes.com/2024/12/20/dining/christmas-chow-chow.html
+
 **Why Luigi Mangione Faces 2 Murder Cases Tied to One Killing**\
 `Federal and state prosecutors will follow a delicate legal choreography after characterizing Mr. Mangione’s actions differently in the fatal shooting of Brian Thompson.`\
 https://nytimes.com/2024/12/20/nyregion/what-to-know-about-mangione-prosecutions.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/12/20/magazine/rosa-sea-otter.html
 **Wafa Al-Udaini Captured the Experiences of Palestinians From Within**\
 `As a journalist, she was determined to tell a story of Gaza that was full of life.`\
 https://nytimes.com/interactive/2024/12/20/magazine/wafa-aludaini-killed-palestinian-journalist.html
-
-**How Wally Amos Lost It All — and Found Something New in the Wreckage**\
-`He made his cookies — and himself — “famous.”`\
-https://nytimes.com/interactive/2024/12/20/magazine/famous-amos-cookies.html
-
-**Were Pete Rose’s Sins Ahead of His Time?**\
-`Banned from Major League Baseball, he turned his disgrace into a personal brand.`\
-https://nytimes.com/interactive/2024/12/20/magazine/pete-rose-baseball.html
 

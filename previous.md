@@ -1,3 +1,7 @@
+**Why Luigi Mangione Faces 2 Murder Cases Tied to One Killing**\
+`Federal and state prosecutors will follow a delicate legal choreography after characterizing Mr. Mangione’s actions differently in the fatal shooting of Brian Thompson.`\
+https://nytimes.com/2024/12/20/nyregion/what-to-know-about-mangione-prosecutions.html
+
 **'I'm not dying, I'm OK:' Brock Faber on 'scary' scene taking puck to throat**\
 `'For a while there, it was very hard to breathe and I couldn't swallow,' the Wild star said.`\
 https://nytimes.com/athletic/6009999/2024/12/20/minnesota-wild-brock-faber-injury-throat/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/20/magazine/famous-amos-cookies.html
 **Were Pete Rose’s Sins Ahead of His Time?**\
 `Banned from Major League Baseball, he turned his disgrace into a personal brand.`\
 https://nytimes.com/interactive/2024/12/20/magazine/pete-rose-baseball.html
-
-**Angela Bofill Sang What She Could Until the End**\
-`She was a musical virtuoso who never quite got her due.`\
-https://nytimes.com/interactive/2024/12/20/magazine/angela-bofill-singer.html
 
