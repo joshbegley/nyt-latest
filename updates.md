@@ -1,3 +1,7 @@
+**When We Roll Back the Rules**\
+`We cover America’s embrace of individual freedom.`\
+https://nytimes.com/2024/12/20/briefing/marijuana-legalization-betting.html
+
 **Leicester's Hermansen an injury doubt vs Wolves**\
 `Mads Hermansen is a injury doubt for the visit of Wolverhampton Wanderers on Sunday.`\
 https://nytimes.com/athletic/6009039/2024/12/20/leicester-team-news-hermansen/
