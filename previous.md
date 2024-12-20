@@ -1,5 +1,5 @@
 **Karl-Anthony Towns welcomed back to Minnesota with ovation, tribute video**\
-`“They're still my brothers, still my guys, just because the trade happened doesn't mean I lost love for them.” Towns said.`\
+`“They're still my brothers, still my guys, just because the trade happened doesn't mean I lost love for them,” Towns said.`\
 https://nytimes.com/athletic/6008193/2024/12/19/kat-karl-anthony-towns-knicks-timberwolves/
 
 **Dozens of House Republicans Defy Trump in Test of His Grip on G.O.P.**\
