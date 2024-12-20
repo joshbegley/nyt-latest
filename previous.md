@@ -30,11 +30,11 @@ https://nytimes.com/2024/12/20/business/trump-media-donald-trump-trust.html
 `The U.S. officials plan to look for signs of Austin Tice, a missing American journalist, as well as other U.S. citizens.`\
 https://nytimes.com/2024/12/20/us/politics/us-diplomats-syria.html
 
+**Tottenham emerge from the mayhem to reach semi-finals — but will they learn from it?**\
+`Next up they face Liverpool, who have kept seven clean sheets in the Premier League and conceded the fewest number of goals`\
+https://nytimes.com/athletic/6008343/2024/12/20/tottenham-postecoglou-man-united-win-analysis/
+
 **FPL: Alisson, David Raya and the budget goalkeepers to consider**\
 `Holly Shand explores whether you should plump for one of FPL's premium goalkeepers or a cheaper alternative`\
 https://nytimes.com/athletic/6003057/2024/12/20/fantasy-premier-league-goalkeepers-raya-alisson/
-
-**Ruben Amorim is finding order in the chaos of Manchester United**\
-`Even amid this mess of a game, United were attempting to bring order. And that, Amorim will think, is progress`\
-https://nytimes.com/athletic/6008400/2024/12/20/ruben-amorim-man-united-tottenham-carabao-analysis/
 

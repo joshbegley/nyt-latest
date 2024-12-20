@@ -1,3 +1,7 @@
+**Tottenham emerge from the mayhem to reach semi-finals — but will they learn from it?**\
+`Next up they face Liverpool, who have kept seven clean sheets in the Premier League and conceded the fewest number of goals`\
+https://nytimes.com/athletic/6008343/2024/12/20/tottenham-postecoglou-man-united-win-analysis/
+
 **Word of the Day: animatronics**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/20/learning/word-of-the-day-animatronics.html
