@@ -1,3 +1,7 @@
+**The Pulse: Weird NFL rule ends 48-year hiatus**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6007568/2024/12/20/chargers-free-kick-cfp-indiana-notre-dame-the-pulse/
+
 **When We Roll Back the Rules**\
 `We cover America’s embrace of individual freedom.`\
 https://nytimes.com/2024/12/20/briefing/marijuana-legalization-betting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6008068/2024/12/20/cubs-kyle-tucker-trade-whats-nex
 **Bears mailbag: Should Chicago keep GM Ryan Poles? Cole Kmet's targets? Plus, Week 16 picks**\
 `As bad as the Bears have been, why should Poles be retained? Why isn't Kmet getting the ball more? `\
 https://nytimes.com/athletic/6007737/2024/12/20/chicago-bears-mailbag-ryan-poles-cole-kmet/
-
-**Mirtle's 10 observations: Does the Maple Leafs' super line make sense long term?**\
-`The Maple Leafs' star-studded top line of William Nylander, Auston Matthews and Mitch Marner is the most expensive in NHL history.`\
-https://nytimes.com/athletic/6007394/2024/12/20/maple-leafs-nylander-matthews-marner-top-line/
 
