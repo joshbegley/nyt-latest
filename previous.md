@@ -1,3 +1,7 @@
+**In Memoriam: the Musicians We Lost in 2024**\
+`Hear songs from Quincy Jones, Melanie and Toby Keith.`\
+https://nytimes.com/2024/12/20/arts/music/amplifier-newsletter-quincy-jones-toby-keith.html
+
 **Italian Deputy Prime Minister Acquitted After Blocking Rescue of Migrant Boat**\
 `Matteo Salvini claimed he was a victim in the fight against immigration across Europe.`\
 https://nytimes.com/2024/12/20/world/europe/italy-salvini-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/magazine/glp1-ozempic-sex-relationship.html
 **Meet the 38 Republicans who defied Trump on the spending and debt deal.**\
 `The rebels are largely the most conservative lawmakers who are passionate about slashing spending and debt. They hail from deep-red districts where a primary challenge is less of a danger.`\
 https://nytimes.com/2024/12/20/us/politics/republican-defectors-trump.html
-
-**Elon Musk’s Growing Political Influence**\
-`Readers discuss his role in the government shutdown negotiations. Also: Trump austerity; G.O.P.’s future; clean energy; guns and young people.`\
-https://nytimes.com/2024/12/20/opinion/letters/musk-political-influence.html
 

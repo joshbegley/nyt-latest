@@ -1,3 +1,7 @@
+**In Memoriam: the Musicians We Lost in 2024**\
+`Hear songs from Quincy Jones, Melanie and Toby Keith.`\
+https://nytimes.com/2024/12/20/arts/music/amplifier-newsletter-quincy-jones-toby-keith.html
+
 **Italian Deputy Prime Minister Acquitted After Blocking Rescue of Migrant Boat**\
 `Matteo Salvini claimed he was a victim in the fight against immigration across Europe.`\
 https://nytimes.com/2024/12/20/world/europe/italy-salvini-migrants.html
