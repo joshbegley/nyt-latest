@@ -1,3 +1,7 @@
+**Regulators Sue 3 Big Banks Over Rampant Fraud on Zelle**\
+`Action against Bank of America, JPMorgan Chase and Wells Fargo may not survive President-elect Donald J. Trump’s return to office.`\
+https://nytimes.com/2024/12/20/business/zelle-fraud-chase-wells-bank-of-america.html
+
 **Heat Today: Against the Thunder, Miami's small-ball style will be tested as schedule toughens**\
 `Oklahoma City shows that teams can win without a massive frontcourt advantage, but the Heat still must shore up some areas like rebounding. `\
 https://nytimes.com/athletic/6009678/2024/12/20/oklahoma-city-thunder-heat-bam-adebayo-jimmy-butler-kevin-love-nba/
