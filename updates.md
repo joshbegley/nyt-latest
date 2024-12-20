@@ -1,3 +1,7 @@
+**Naji Marshall brings an edge to the Mavericks. His return adds to the team's makeup**\
+`Marshall returned to the Mavericks’ lineup against the LA Clippers after missing five of the last six games with an illness.`\
+https://nytimes.com/athletic/6007071/2024/12/20/naji-marshall-mavericks-pelicans/
+
 **Who’s in Charge?**\
 `Donald Trump has yet to take office but the president-elect and Elon Musk are already influencing policy, putting the federal government hours away from a shut down.`\
 https://nytimes.com/2024/12/20/business/dealbook/musk-trump-government-shutdown.html
