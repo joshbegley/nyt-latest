@@ -1,3 +1,31 @@
+**From Amazon to Space — Jeff Bezos Talks Innovation, Progress and What’s Next**\
+`Listen to our interview with Jeff Bezos.`\
+https://nytimes.com/2024/12/20/podcasts/jeff-bezos-amazon-space-washington-post.html
+
+**Why Red Bull chose Liam Lawson, not Yuki Tsunoda, to replace Sergio Pérez**\
+`Red Bull faced a difficult decision that would impact at least three different drivers. Did it make the right one? `\
+https://nytimes.com/athletic/6009158/2024/12/20/red-bull-f1-liam-lawson-yuki-tsunoda-sergio-perez-christian-horner/
+
+**Dyche 'not worried' about own future after Everton takeover**\
+`Sean Dyche says he is &#8220;not worried&#8221; about his own future at Everton following the long-awaited takeover of the club.`\
+https://nytimes.com/athletic/6008998/2024/12/20/everton-takeover-sean-dyche/
+
+**Bill Clinton: ‘There Was No Plan’ After Biden Dropped Out**\
+`Listen to our interview with Bill Clinton.`\
+https://nytimes.com/2024/12/20/podcasts/bill-clinton-dealbook.html
+
+**Serena Williams on Her Impact in Sports and Beyond**\
+`Listen to our interview with Serena Williams.`\
+https://nytimes.com/2024/12/20/podcasts/serena-williams-tennis.html
+
+**Jerome Powell on the Fed’s Role in America’s Financial Future**\
+`Listen to our interview with Jerome Powell.`\
+https://nytimes.com/2024/12/20/podcasts/jerome-powell-federal-reserve.html
+
+**Sundar Pichai on A.I., Regulation and What’s Next for Google**\
+`Listen to our interview with Sundar Pichai.`\
+https://nytimes.com/2024/12/20/podcasts/19dealbook-pichai-google.html
+
 **Prince Harry on His Murdoch Tabloid Fight and Big Tech**\
 `Listen to our interview with Prince Harry.`\
 https://nytimes.com/2024/12/20/podcasts/prince-harry-on-his-murdoch-tabloid-fight-and-big-tech.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/12/20/podcasts/ken-griffin.html
 **Sam Altman on the Future of A.I. and Society**\
 `Listen to our interview with Sam Altman.`\
 https://nytimes.com/2024/12/20/podcasts/19-dealbook-sam-altman-artificial-intelligence.html
-
-**Alex Cooper on Building a Media Brand**\
-`Listen to our interview with Alex Cooper.`\
-https://nytimes.com/2024/12/20/podcasts/alex-cooper-media-podcast.html
-
-**Crystal Palace's Eze out of Arsenal clash with foot injury**\
-`Crystal Palace&#8217;s Eberechi Eze will miss the Premier League game with Arsenal on Saturday through injury, manager Oliver Glasner has confirmed.`\
-https://nytimes.com/athletic/6009190/2024/12/20/eberechi-eze-injury-crystal-palace/
-
-**Rice, Calafiori set to be available for Arsenal vs Palace**\
-`Declan Rice and Riccardo Calafiori are both set to be available for Arsenal&#8217;s trip to Crystal Palace on Saturday evening.`\
-https://nytimes.com/athletic/5995048/2024/12/20/arsenal-team-news-rice-calafiori-crystal-palace/
-
-**LeBron James leads defensive charge as Lakers grab key win at Sacramento**\
-`"I really felt like this might be my favorite win we've had all season," coach JJ Redick said.`\
-https://nytimes.com/athletic/6008521/2024/12/20/lakers-defense-lebron-james/
-
-**Brighton consider recalling Yalcouye from Sturm Graz loan**\
-`Brighton &amp; Hove Albion are considering recalling Malick Yalcouye from a season-long loan with Austrian Champions League participants Sturm Graz.`\
-https://nytimes.com/athletic/6009248/2024/12/20/malick-yalcouye-brighton-loan-return/
-
-**Row Z: Gladiator quotes, rogue stewards and how the Unify League marketing meeting really went**\
-`Tim Spiers looks at football's sillier side - featuring some blue-sky thinking and ominous messages of support at Wolves `\
-https://nytimes.com/athletic/6007360/2024/12/20/ange-postecoglou-unify-league-ian-holloway/
-
-**How a New Year’s Resolution Can Set Up Your Financial Goals for Success**\
-`Don’t give up on resolving to do better, psychologists and personal finance experts say. The key is to reframe the way you think about it.`\
-https://nytimes.com/2024/12/20/your-money/new-years-resolutions-personal-finance.html
 
