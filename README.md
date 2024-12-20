@@ -1,3 +1,31 @@
+**Devin Booker's groin tightness adds to the Suns' biggest issue: they can't stay healthy**\
+`Call it misfortune. The curse of aging. Whatever you want. The Suns cannot shake it.`\
+https://nytimes.com/athletic/6008782/2024/12/20/devin-bookers-suns-health/
+
+**Jaylen Brown, Celtics lose their cool in loss to Bulls: 'It's been a tough week'**\
+`A spate of technical fouls late doomed Boston's chances. Frustrations boiled after a pair of break-ins affecting the team.`\
+https://nytimes.com/athletic/6008821/2024/12/20/celtics-jaylen-brown-bulls-breakins/
+
+**Cyclone Chido Death Toll Nearly Doubles, to 75, in Mozambique**\
+`The swirling wind and rain hit an area where a yearslong insurgent conflict had already forced hundreds of thousands of people to flee their homes.`\
+https://nytimes.com/2024/12/20/world/africa/cyclone-chido-death-toll-mozambique.html
+
+**Raiders rookie Jonah Laulu is 'being disruptive,' making an impact for his hometown team**\
+`Laulu: “This has been like watching a movie. And I have to look again closely at the screen because I am the star.”`\
+https://nytimes.com/athletic/6008301/2024/12/20/raiders-jonah-laulu-vegas-hometown/
+
+**City's Dias out for 'three to four weeks'**\
+`Manchester City defender Ruben Dias is set to miss &#8220;three to four weeks&#8221; with an unspecified muscular injury.`\
+https://nytimes.com/athletic/6009124/2024/12/20/ruben-dias-injury-manchester-city/
+
+**Dodgers mailbag, part 1: The latest on Teoscar Hernández and more from the offseason**\
+`Why didn't the Dodgers end up with Devin Williams? What's up with Clayton Kershaw and Dave Roberts? We answer those questions and more.`\
+https://nytimes.com/athletic/6008447/2024/12/20/dodgers-teoscar-hernandez-free-agents/
+
+**Chelsea's Fofana and Badiashile out for 'a long period' - Maresca**\
+`Enzo Maresca has revealed Chelsea are going to be without centre-backs Wesley Fofana and Benoit Badiashile for &#8220;a long period&#8221; but captain Reece James is going to resume training with the first team today.`\
+https://nytimes.com/athletic/6009053/2024/12/20/chelsea-injury-news-fofana-badiashile/
+
 **Naji Marshall brings an edge to the Mavericks. His return adds to the team's makeup**\
 `Marshall returned to the Mavericks’ lineup against the LA Clippers after missing five of the last six games with an illness.`\
 https://nytimes.com/athletic/6007071/2024/12/20/naji-marshall-mavericks-pelicans/
@@ -9,32 +37,4 @@ https://nytimes.com/2024/12/20/business/dealbook/musk-trump-government-shutdown.
 **Live Q&A: FPL Gameweek 17 advice from Ben Dinnery**\
 `Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 17 Q&A between 4-5pm UK time `\
 https://nytimes.com/athletic/6006172/2024/12/20/fantasy-premier-league-advice-gw17-tips/
-
-**College Football Playoff 2024 projections: Odds to advance for all 12 teams in the bracket**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/12/20/college-football-playoff-projections-odds/
-
-**Britannica Didn’t Just Survive. It’s an A.I. Company Now.**\
-`The encyclopedia maker could have become a casualty of the Wikipedia era. But it has remade itself into a digital learning giant that is weighing going public.`\
-https://nytimes.com/2024/12/20/business/dealbook/britannica-artificial-intelligence.html
-
-**The Athletic FC: Pogba, his brother and £11m extortion plot; inside Everton takeover**\
-`Today in TAFC: Paul Pogba's brother convicted over extortion plot, inside the Everton buyout and Fraser Forster's double shocker.`\
-https://nytimes.com/athletic/6008935/2024/12/20/pogba-blackmail-extortion-prison-everton-takeover/
-
-**Raheem Mostert, the 49ers’ original track-star RB, says patience is key for Isaac Guerendo**\
-`The 49ers went after Guerendo in the draft because he reminded them a lot of Mostert, whom they'll face Sunday in Miami.`\
-https://nytimes.com/athletic/6008053/2024/12/20/49ers-isaac-guerendo-raheem-mostert/
-
-**The Athletic’s Friday football quiz question #35**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6007848/2024/12/20/the-athletics-friday-football-quiz-question-35/
-
-**Business of Football: When will Saudi tournaments take place in an already creaking calendar?**\
-`Plus a recap on the Unify League and why it's decision time for UEFA, and a look at takeovers that could be on the horizon…`\
-https://nytimes.com/athletic/6006673/2024/12/20/business-of-football-saudi-world-cup-club-world-cup/
-
-**Broncos' playoff hopes hinge on eliminating miscues that cost clinch vs. Chargers**\
-`Two Broncos penalties led directly to six Chargers points, continuing a "problematic" trend for Sean Payton's team.`\
-https://nytimes.com/athletic/6008795/2024/12/20/broncos-playoff-hopes-loss-chargers/
 
