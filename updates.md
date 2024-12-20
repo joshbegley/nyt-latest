@@ -1,4 +1,8 @@
 **Phillies agree to add Max Kepler on 1-year, $10 million deal: Sources**\
+`The Phillies, according to major-league sources, had shown interest in Teoscar Hernández. They settled for Kepler at a far cheaper rate.`\
+https://nytimes.com/athletic/6008322/2024/12/19/max-kepler-contract-phillies-mlb-free-agency/
+
+**Phillies agree to add Max Kepler on 1-year, $10 million deal: Sources**\
 `On the surface, it is a puzzling move by the Phillies. Kepler batted .253/.302/.380 last season with the Twins. `\
 https://nytimes.com/athletic/6008322/2024/12/19/max-kepler-contract-phillies-mlb-free-agency/
 
