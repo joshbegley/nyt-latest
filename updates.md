@@ -1,3 +1,7 @@
+**Mount out 'several weeks' with latest injury**\
+`Manchester United midfielder Mason Mount is set to be out for &#8220;several weeks&#8221; after suffering another injury setback in the Manchester derby.`\
+https://nytimes.com/athletic/5995450/2024/12/20/mason-mount-injury-update-manchester-united/
+
 **Devin Booker's groin tightness adds to the Suns' biggest issue: they can't stay healthy**\
 `Call it misfortune. The curse of aging. Whatever you want. The Suns cannot shake it.`\
 https://nytimes.com/athletic/6008782/2024/12/20/devin-bookers-suns-health/
