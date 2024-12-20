@@ -1,3 +1,23 @@
+**Googly Eyes**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/12/20/learning/googly-eyes.html
+
+**How Did New Jersey Become Area 52?**\
+`No matter how many official voices declare there is no drone emergency, conspiracy theories continue to flourish. We’ve been here before.`\
+https://nytimes.com/2024/12/20/nyregion/new-jersey-drones-ufos.html
+
+**Hochul Weighs Legislation Limiting A.I. and More Than 100 Other Bills**\
+`A bill passed by the New York State Legislature to regulate the state’s use of artificial intelligence is among more than 100 that await Gov. Kathy Hochul’s decision.`\
+https://nytimes.com/2024/12/20/nyregion/hochul-ai-bills-ny.html
+
+**What Broadway Gets Right and Wrong About Journalism**\
+`A Culture writer takes stock of recent stage productions that depict newsrooms and reporters.`\
+https://nytimes.com/2024/12/20/insider/what-broadway-gets-right-and-wrong-about-journalism.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/20/crosswords/spelling-bee-forum.html
+
 **After their latest run, Oilers have returned to contender status**\
 `The Oilers overcame a two-goal deficit to earn a 3-2 overtime win over the Bruins on Thursday.`\
 https://nytimes.com/athletic/6008826/2024/12/20/edmonton-oilers-win-bruins-contenders/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/20/arts/television/seth-meyers-trump-musk.html
 **'It's just prettier hockey': Blackhawks' gamble paying off with new coach Anders Sorensen**\
 `With a 3-1 win over the Seattle Kraken, Sorensen and the Blackhawks did something they haven't done since 2022-23 — win three in a row.`\
 https://nytimes.com/athletic/6008566/2024/12/20/blackhawks-win-kraken-anders-sorensen/
-
-**Yohe's 10 observations: Sidney Crosby erupts and Bryan Rust puts Predators away in overtime**\
-`Crosby ended his goal-scoring drought at 10 games with a 4-point outing Thursday in Nashville.`\
-https://nytimes.com/athletic/6008502/2024/12/20/penguins-sidney-crosby-bryan-rust-predators-overtime/
-
-**Penn State, Louisville set to meet for women's volleyball national title**\
-`The championship matchup is set for 3 p.m. ET Sunday at the KFC Yum! Center with televised coverage on ABC.`\
-https://nytimes.com/athletic/6008748/2024/12/20/penn-state-louisville-womens-volleyball-semifinals-ncaa/
-
-**Trump Puts Shares of His Media Company in a Trust**\
-`A regulatory filing showed that the president-elect transferred some 115 million shares of Trump Media to a trust controlled by his son Donald Trump Jr.`\
-https://nytimes.com/2024/12/20/business/trump-media-donald-trump-trust.html
-
-**Senior U.S. Diplomats Arrive in Syria to Meet With Governing Militias**\
-`The U.S. officials plan to look for signs of Austin Tice, a missing American journalist, as well as other U.S. citizens.`\
-https://nytimes.com/2024/12/20/us/politics/us-diplomats-syria.html
-
-**How Chelsea and Josh Acheampong agreed a new contract — a deal that was a long time coming**\
-`With his contract sorted, Acheampong impressed on his first start at Stamford Bridge in the resounding win against Shamrock Rovers`\
-https://nytimes.com/athletic/6008178/2024/12/20/acheampong-chelsea-contract/
 
