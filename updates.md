@@ -1,3 +1,7 @@
+**The Bounce: Who are the NBA's most clutch players this season? Plus, why Jalen Williams is a star**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6009084/2024/12/20/deaaron-fox-jayson-tatum-nikola-jokic-karl-anthony-towns-knicks-timberwolves-jalen-williams-thunder-nba-the-bounce/
+
 **The Government Shutdown: What Travelers Need to Know**\
 `The failure to act by Congress could cause airport lines and other disruptions across the travel industry during a busy holiday travel period.`\
 https://nytimes.com/2024/12/20/travel/government-shutdown-travel.html
