@@ -28,7 +28,7 @@ https://nytimes.com/2024/12/20/dining/christmas-chow-chow-trinidad-tobago.html
 
 **Why Luigi Mangione Faces 2 Murder Cases Tied to One Killing**\
 `Federal and state prosecutors will follow a delicate legal choreography after characterizing Mr. Mangione’s actions differently in the fatal shooting of Brian Thompson.`\
-https://nytimes.com/2024/12/20/nyregion/what-to-know-about-mangione-prosecutions.html
+https://nytimes.com/2024/12/20/nyregion/luigi-mangione-charges-what-to-know.html
 
 **'I'm not dying, I'm OK:' Brock Faber on 'scary' scene taking puck to throat**\
 `'For a while there, it was very hard to breathe and I couldn't swallow,' the Wild star said.`\
