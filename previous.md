@@ -1,40 +1,40 @@
-**One of the Most Unpredictable Actresses of the ’70s Is Back From Exile**\
-`Jessica Harper made risky moves (“Suspiria” over “Annie Hall”), then took time off for family. Her “Nightbitch” role is a nod to her career choices.`\
-https://nytimes.com/2024/12/20/movies/jessica-harper-nightbitch-suspiria.html
+**In a season of negativity, Christian Gonzalez has been one of Patriots' few bright spots**\
+`The 22-year-old, second-year cornerback is one of the two pillars of this Patriots rebuild along with quarterback Drake Maye.`\
+https://nytimes.com/athletic/6007530/2024/12/20/christian-gonzalez-patriots-nfl-season/
 
-**Postmortems Are Bad at Predictions: Democrats May Just Need a ‘Change’ Election**\
-`An opening will probably emerge for Democrats in four years, but it may not be what the party and pundits expect today.`\
-https://nytimes.com/2024/12/20/upshot/election-democrats-postmortem.html
+**How to Talk to a Loved One About Their Drinking**\
+`There are ways to broach the topic successfully — it’s all about time, place and tone.`\
+https://nytimes.com/2024/12/20/well/family/family-friends-drinking-habits.html
 
-**Can Wall Street Pressure Ease Brutality in India’s Sugar Fields?**\
-`Pension funds and big investors are pressuring Coca-Cola, Pepsico and others over brutal working conditions in India’s cane fields. Some of the sugar buyers are tiptoeing toward change.`\
-https://nytimes.com/2024/12/20/world/asia/wall-street-us-companies-india-sugar-labor-abuse.html
+**The New York Times News Quiz, Dec. 20, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/12/20/briefing/news-quiz-trump-congress-luigi-mangione-ukraine.html
 
-**Your College Football Team, Now Brought to You by Whiskey**\
-`The high cost of amateur athletics has led to some unlikely partnerships.`\
-https://nytimes.com/2024/12/20/dining/college-football-alcohol-partnerships.html
+**Maurice Berger Held a Mirror to a Racist Art World**\
+`A posthumous anthology of photo essays by the curator and art historian reveals the “troubling reality” of prejudice and the power of images to “undermine the very concept of difference.”`\
+https://nytimes.com/2024/12/20/books/review/maurice-berger-race-stories.html
 
-**A Legacy of Essential Humanitarian Aid**\
-`Catholic Charities provides help to the poor, homeless, hungry and the most vulnerable immigrants.`\
-https://nytimes.com/2024/12/20/opinion/communities-fund-catholic-charities.html
+**The Surprising Sexual Politics of Nicole Kidman’s Kinky ‘Babygirl’**\
+`The film feels like an artifact of a more optimistic feminist moment.`\
+https://nytimes.com/2024/12/20/opinion/babygirl-kidman-feminism-politics.html
 
-**How Your Car Might Be Making Roads Safer**\
-`Researchers say data from long-haul trucks, and cars made by General Motors, is critical for addressing traffic congestion and road safety. Data privacy experts have their concerns.`\
-https://nytimes.com/2024/12/20/technology/connected-cars-roads-data.html
+**Book Club: Read ‘Our Evenings,’ by Alan Hollinghurst, With the Book Review**\
+`In January, the Book Review Book Club will read and discuss “Our Evenings,” a sweeping story about the life, loves, struggles and triumphs of a queer English Burmese actor.`\
+https://nytimes.com/2024/12/20/books/review/our-evenings-alan-hollinghurst-book-club.html
 
-**At 23, Surviving Scandal to Take a Green Seat in the E.U. Parliament**\
-`Lena Schilling, the youngest lawmaker in Brussels, faced a harsh questioning of her character and credibility before winning a chance to fight against climate change in the halls of power.`\
-https://nytimes.com/2024/12/20/world/europe/lena-schilling-austria-greens.html
+**What’s Your Favorite Holiday Movie or TV Special?**\
+`“Elf,” “Home Alone” or “A Charlie Brown Christmas” — what’s on your must-watch list each holiday season?`\
+https://nytimes.com/2024/12/20/learning/whats-your-favorite-holiday-movie-or-tv-special.html
 
-**Wrexham's Okonkwo steps up injury recovery after positive scan results**\
-`Wrexham’s promotion hopes have been given a timely boost by first-choice goalkeeper Arthur Okonkwo being given the green light to step up his rehab after receiving positive scan results.`\
-https://nytimes.com/athletic/6008883/2024/12/20/arthur-okonkwo-wrexham-injury-update/
+**It’s a Bird! It’s a Plane! It’s Brazilian Bum Bum Cream!**\
+`A recent visit to Amazon’s overhauled drone delivery program in Arizona left me impressed by the drones, but skeptical that the public will welcome them.`\
+https://nytimes.com/2024/12/20/technology/amazon-prime-air-drone-delivery.html
 
-**Trump Is Threatening Europe With Tariffs. Is It Ready?**\
-`The incoming president promised “tariffs all the way” unless Europe bought more U.S. oil and gas. European officials have no clear strategy for avoiding a trade war.`\
-https://nytimes.com/2024/12/20/world/europe/europe-trump-tariffs.html
+**How Drug Overdose Deaths Have Plagued One Generation of Black Men for Decades**\
+`In dozens of cities, the recent rise of fentanyl has put older Black men in particular jeopardy.`\
+https://nytimes.com/2024/12/20/upshot/black-men-overdose-deaths.html
 
-**Googly Eyes**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/12/20/learning/googly-eyes.html
+**‘Elton John: Never Too Late’ Burnishes a Career (but Charmingly)**\
+`The star is in positive, future-looking mode in this Disney+ documentary, directed by his husband, David Furnish, and R.J. Cutler.`\
+https://nytimes.com/2024/12/20/movies/elton-john-doc-never-too-late.html
 
