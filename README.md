@@ -1,3 +1,15 @@
+**Are GLP-1 Drugs Causing a Rift in Your Relationship? We Want to Hear About It.**\
+`For an upcoming article, we are looking for stories about what happens to a long-term relationship when one partner decides to get much thinner.`\
+https://nytimes.com/2024/12/20/magazine/glp1-ozempic-sex-relationship.html
+
+**Meet the 38 Republicans who defied Trump on the spending and debt deal.**\
+`The rebels are largely the most conservative lawmakers who are passionate about slashing spending and debt. They hail from deep-red districts where a primary challenge is less of a danger.`\
+https://nytimes.com/2024/12/20/us/politics/republican-defectors-trump.html
+
+**Elon Musk’s Growing Political Influence**\
+`Readers discuss his role in the government shutdown negotiations. Also: Trump austerity; G.O.P.’s future; clean energy; guns and young people.`\
+https://nytimes.com/2024/12/20/opinion/letters/musk-political-influence.html
+
 **Wall Street rallies, shaking off shutdown threat.**\
 `The S&P 500 jumped after a November inflation reading helped ease worries that lately have loomed over the markets. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
 https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news/wall-street-rallies-shaking-off-shutdown-threat
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/20/business/zelle-fraud-chase-wells-bank-of-america.
 **Heat Today: Against the Thunder, Miami's small-ball style will be tested as schedule toughens**\
 `Oklahoma City shows that teams can win without a massive frontcourt advantage, but the Heat still must shore up some areas like rebounding. `\
 https://nytimes.com/athletic/6009678/2024/12/20/oklahoma-city-thunder-heat-bam-adebayo-jimmy-butler-kevin-love-nba/
-
-**Book Club: Let’s Talk About Claire Keegan’s ‘Small Things Like These’**\
-`This slim novella about one Irishman’s crisis of conscience during the Christmas season is the topic of our December book club discussion.`\
-https://nytimes.com/2024/12/20/books/review/claire-keegan-small-things-like-these-book-club.html
-
-**Red Sox agree to deal with rehabbing starter Patrick Sandoval: Sources**\
-`Sandoval reportedly has agreed to a deal that will pay him significantly more in the second year, when he's expected to be at full strength.`\
-https://nytimes.com/athletic/6009659/2024/12/20/red-sox-patrick-sandoval-signing/
-
-**The Fair Catch Free Kick, and 4 Other Obscure-but-Real N.F.L. Rules**\
-`On Thursday, the Los Angeles Chargers pulled off a rare “free-kick field goal.” There are other oddball rules in the book if you dig deep enough.`\
-https://nytimes.com/2024/12/20/sports/football/chargers-fair-catch-kick-rare-nfl-rules.html
 
