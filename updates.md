@@ -1,3 +1,15 @@
+**The Story of Hong Kong’s Billionaire Dissident**\
+`“The Troublemaker” is a brisk account of the life and work of Jimmy Lai, the media mogul and democracy activist currently on trial for national security offenses.`\
+https://nytimes.com/2024/12/20/books/review/the-troublemaker-jimmy-lai-biography.html
+
+**One of 2024’s Last Meteor Showers Is About to Reach Its Peak**\
+`The astronomical event, which overlaps with the Winter Solstice, is often overlooked because of the winter chill.`\
+https://nytimes.com/2024/12/20/science/ursids-meteor-shower-winter-solstice.html
+
+**Clemson at Texas: Picks, odds with Longhorns heavily favored in CFP game**\
+`The Longhorns are a double-digit favorite against Clemson, making Texas the biggest favorite in the College Football Playoff's first round.`\
+https://nytimes.com/athletic/5981899/2024/12/20/clemson-texas-time-odds-college-football-playoff/
+
 **Indiana at Notre Dame: How to watch, odds, storylines for intrastate CFP game**\
 `Two 11-1 teams from the state of Indiana meet in the first round of the College Football Playoff. Notre Dame is favored against IU.`\
 https://nytimes.com/athletic/5981577/2024/12/20/indiana-notre-dame-how-to-watch-odds-college-football-playoff/
