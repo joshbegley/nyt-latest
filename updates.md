@@ -1,3 +1,7 @@
+**Three Deals in 12 Days: How Australia Is Courting the Pacific**\
+`In separate agreements with Nauru, Papua New Guinea and the Solomon Islands, Australia is attempting to edge out China’s influence in the region.`\
+https://nytimes.com/2024/12/20/world/australia/australia-china-pacific-deals.html
+
 **In a season of negativity, Christian Gonzalez has been one of Patriots' few bright spots**\
 `The 22-year-old, second-year cornerback is one of the two pillars of this Patriots rebuild along with quarterback Drake Maye.`\
 https://nytimes.com/athletic/6007530/2024/12/20/christian-gonzalez-patriots-nfl-season/

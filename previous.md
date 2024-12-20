@@ -1,3 +1,7 @@
+**Three Deals in 12 Days: How Australia Is Courting the Pacific**\
+`In separate agreements with Nauru, Papua New Guinea and the Solomon Islands, Australia is attempting to edge out China’s influence in the region.`\
+https://nytimes.com/2024/12/20/world/australia/australia-china-pacific-deals.html
+
 **In a season of negativity, Christian Gonzalez has been one of Patriots' few bright spots**\
 `The 22-year-old, second-year cornerback is one of the two pillars of this Patriots rebuild along with quarterback Drake Maye.`\
 https://nytimes.com/athletic/6007530/2024/12/20/christian-gonzalez-patriots-nfl-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/technology/amazon-prime-air-drone-delivery.html
 **How Drug Overdose Deaths Have Plagued One Generation of Black Men for Decades**\
 `In dozens of cities, the recent rise of fentanyl has put older Black men in particular jeopardy.`\
 https://nytimes.com/2024/12/20/upshot/black-men-overdose-deaths.html
-
-**‘Elton John: Never Too Late’ Burnishes a Career (but Charmingly)**\
-`The star is in positive, future-looking mode in this Disney+ documentary, directed by his husband, David Furnish, and R.J. Cutler.`\
-https://nytimes.com/2024/12/20/movies/elton-john-doc-never-too-late.html
 
