@@ -1,3 +1,11 @@
+**Suspect in C.E.O. Killing to Be Arraigned on State Charges Monday**\
+`Luigi Mangione faces terror and murder charges in New York court. A federal prosecution is proceeding in parallel.`\
+https://nytimes.com/2024/12/20/nyregion/mangione-state-arraignment-monday.html
+
+**Missouri Governor Commutes Sentence of Detective Convicted in On-Duty Killing**\
+`Eric J. DeValkenaere was convicted of involuntary manslaughter in the death of Cameron Lamb. Calls for clemency angered many in Kansas City, Mo.`\
+https://nytimes.com/2024/12/20/us/missouri-governor-commutation-police-killing.html
+
 **The Budget Fight and Trump’s Nihilistic Style**\
 `A surprise congressional standoff remind us that big, discordant change could be coming.`\
 https://nytimes.com/2024/12/20/opinion/trump-shutdown-allegiances.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/20/arts/cathy-cade-dead.html
 **Democrats highlight a casualty of the spending fight: funding to combat pediatric cancer.**\
 `By Teddy Rosenbluth`\
 https://nytimes.com/live/2024/12/20/us/government-shutdown-trump-news/democrats-highlight-a-casualty-of-the-spending-fight-funding-to-combat-pediatric-cancer
-
-**An X-supported bill to help victims of deepfake porn fell with the spending measure Musk helped kill.**\
-`By Kate Conger`\
-https://nytimes.com/live/2024/12/20/us/government-shutdown-trump-news/an-x-supported-bill-to-help-victims-of-deepfake-porn-fell-with-the-spending-measure-musk-help-kill
-
-**Biden Administration Weighs Putting Up Roadblocks to Trump’s Deportation Campaign**\
-`The administration may extend protections for hundreds of thousands of immigrants whose legal status is set to expire near the start of the Trump administration.`\
-https://nytimes.com/2024/12/20/us/politics/biden-trump-deportation-protection.html
 
