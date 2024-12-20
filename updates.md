@@ -1,3 +1,19 @@
+**Introducing the most dangerous pass in football**\
+`A short vertical pass from a goalkeeper. Sounds harmless enough, right? We analyse the risk and reward behind the pass that drives fans wild`\
+https://nytimes.com/athletic/5991727/2024/12/20/goalkeeper-pass-danger-football-analysis/
+
+**Kyle Walker is in a storm on and off the pitch - can he find a way out for him and Man City?**\
+`The England right-back is facing a storm on and off the pitch. But Pep Guardiola needs him right now. Can he step up again?`\
+https://nytimes.com/athletic/6007126/2024/12/20/kyle-walker-is-in-a-storm-on-and-off-the-pitch-can-he-find-a-way-out-for-him-and-man-city/
+
+**'Staggeringly understated – and cool as hell': What football thinks of Arne Slot**\
+`The Dutchman's flying start to life at Anfield has drawn admiration from across the game - this is why`\
+https://nytimes.com/athletic/6006424/2024/12/20/arne-slot-liverpool-what-football-thinks/
+
+**Atletico Madrid's 11-game winning streak has been powered by their substitutes**\
+`Atletico go into Saturday's meeting with Barcelona on their best run of form since 2012. Simeone's changes will be key`\
+https://nytimes.com/athletic/6003713/2024/12/20/atletico-madrid-winning-streak-la-liga/
+
 **The Friedkin Group must learn from Moshiri's mistakes at Everton, not ignore them**\
 `The Friedkin Group offer hope for a brighter future and fans will offer nothing but goodwill - showy, quick fixes must be avoided, though`\
 https://nytimes.com/athletic/5983913/2024/12/20/everton-takeover-friedkin-moshiri/
