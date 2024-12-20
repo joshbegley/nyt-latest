@@ -1,3 +1,7 @@
+**Live Q&A: FPL Gameweek 17 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 17 Q&A between 4-5pm UK time `\
+https://nytimes.com/athletic/6006172/2024/12/20/fantasy-premier-league-advice-gw17-tips/
+
 **Britannica Didn’t Just Survive. It’s an A.I. Company Now.**\
 `The encyclopedia maker could have become a casualty of the Wikipedia era. But it has remade itself into a digital learning giant that is weighing going public.`\
 https://nytimes.com/2024/12/20/business/dealbook/britannica-artificial-intelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6005238/2024/12/20/edmonton-oilers-2024-25-ultimate
 **Is Amazon’s Drone Delivery Finally Ready for Prime Time?**\
 `We flew to Arizona to test the recently debuted service ourselves.`\
 https://nytimes.com/2024/12/20/podcasts/hardfork-amazon-drone-delivery.html
-
-**How Arsenal fans feel about Mikel Arteta's five years at the club**\
-`Five years on from his appointment as manager, Arsenal fans assess Mikel Arteta's time in charge`\
-https://nytimes.com/athletic/6004314/2024/12/20/arsenal-survey-analysis-results-mikel-arteta/
 

@@ -1,3 +1,7 @@
+**Live Q&A: FPL Gameweek 17 advice from Ben Dinnery**\
+`Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 17 Q&A between 4-5pm UK time `\
+https://nytimes.com/athletic/6006172/2024/12/20/fantasy-premier-league-advice-gw17-tips/
+
 **Britannica Didn’t Just Survive. It’s an A.I. Company Now.**\
 `The encyclopedia maker could have become a casualty of the Wikipedia era. But it has remade itself into a digital learning giant that is weighing going public.`\
 https://nytimes.com/2024/12/20/business/dealbook/britannica-artificial-intelligence.html
