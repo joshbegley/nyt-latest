@@ -1,3 +1,7 @@
+**The Fed’s Preferred Inflation Measure Sped Up in November**\
+`The Personal Consumption Expenditures index climbed 2.4 percent from a year earlier, though the report’s details were more subdued than expected.`\
+https://nytimes.com/2024/12/20/business/economy/inflation-pce-fed.html
+
 **Mount out 'several weeks' with latest injury**\
 `Manchester United midfielder Mason Mount is set to be out for &#8220;several weeks&#8221; after suffering another injury setback in the Manchester derby.`\
 https://nytimes.com/athletic/5995450/2024/12/20/mason-mount-injury-update-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6009053/2024/12/20/chelsea-injury-news-fofana-badia
 **Naji Marshall brings an edge to the Mavericks. His return adds to the team's makeup**\
 `Marshall returned to the Mavericks’ lineup against the LA Clippers after missing five of the last six games with an illness.`\
 https://nytimes.com/athletic/6007071/2024/12/20/naji-marshall-mavericks-pelicans/
-
-**Who’s in Charge?**\
-`Donald Trump has yet to take office but the president-elect and Elon Musk are already influencing policy, putting the federal government hours away from a shut down.`\
-https://nytimes.com/2024/12/20/business/dealbook/musk-trump-government-shutdown.html
 

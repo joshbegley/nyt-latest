@@ -1,3 +1,7 @@
+**The Fed’s Preferred Inflation Measure Sped Up in November**\
+`The Personal Consumption Expenditures index climbed 2.4 percent from a year earlier, though the report’s details were more subdued than expected.`\
+https://nytimes.com/2024/12/20/business/economy/inflation-pce-fed.html
+
 **Mount out 'several weeks' with latest injury**\
 `Manchester United midfielder Mason Mount is set to be out for &#8220;several weeks&#8221; after suffering another injury setback in the Manchester derby.`\
 https://nytimes.com/athletic/5995450/2024/12/20/mason-mount-injury-update-manchester-united/
