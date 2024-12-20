@@ -1,3 +1,11 @@
+**The Trinidadian Christmas Staple Worth the Yearlong Wait**\
+`Chow chow, a bright and bracing pickled relish, is essential to the holiday table in Trinidad and Tobago — and the perfect accompaniment to ham.`\
+https://nytimes.com/2024/12/20/dining/christmas-chow-chow-trinidad-tobago.html
+
+**Why Luigi Mangione Faces 2 Murder Cases Tied to One Killing**\
+`Federal and state prosecutors will follow a delicate legal choreography after characterizing Mr. Mangione’s actions differently in the fatal shooting of Brian Thompson.`\
+https://nytimes.com/2024/12/20/nyregion/luigi-mangione-charges-what-to-know.html
+
 **Christian Walker, Max Kepler should bring good value to their new teams: Law**\
 `Walker is older but should still have good years left, while Kepler was one of the top potential bounce-back players on the market.`\
 https://nytimes.com/athletic/6010045/2024/12/20/christian-walker-max-kepler-signing-analysis-astros-phillies/
