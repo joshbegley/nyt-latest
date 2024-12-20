@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/20/technology/openai-new-ai-math-science.html
 `The White Sox win total is 49.5 games on BetMGM, which is the lowest number in sports betting since at least 1990.`\
 https://nytimes.com/athletic/6009689/2024/12/20/white-sox-win-total-odds-historically-low/
 
-**Driver Rams Christmas Market in Germany, Injuring Several**\
+**Driver Rams Christmas Market in Germany, Injuring Dozens**\
 `Videos posted online suggested several people were wounded. The driver was arrested, according to local news reports.`\
 https://nytimes.com/2024/12/20/world/europe/germany-christmas-market-crash.html
 
