@@ -3,7 +3,7 @@
 https://nytimes.com/2024/12/20/climate/epa-michael-regan-departs.html
 
 **Virginia Student Accused of Plot to Attack Israeli Consulate in New York**\
-`A freshman at George Mason University, who is a citizen of Egypt, is accused of planning a mass casualty attack.`\
+`A freshman at George Mason University, who is a citizen of Egypt, was arrested on Tuesday after being accused of planning an attack.`\
 https://nytimes.com/2024/12/20/us/terror-plot-george-mason-israeli-consulate.html
 
 **Your Ticket to the Theater (at Home)**\
