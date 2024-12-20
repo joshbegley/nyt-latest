@@ -1,3 +1,7 @@
+**Scoop City: Two game-changing kicks to discuss**\
+`This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
+https://nytimes.com/athletic/6009568/2024/12/20/free-kick-chargers-onside-kick-lions-scoop-city/
+
 **Watch Julianne Moore and Tilda Swinton Connect in ‘The Room Next Door’**\
 `The writer and director Pedro Almodóvar narrates a bittersweet sequence between the two at a luxurious home.`\
 https://nytimes.com/2024/12/20/movies/julianne-moore-tilda-swinton-room-next-door-clip.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6009200/2024/12/20/sabres-roster-kevyn-adams-gm/
 **Notre Dame vs. Indiana weather: CFP kicks off with snow, cold conditions**\
 `Weather forecasts predict the temperature will be 29 degrees with winds of 11 mph at the 8 p.m. ET kickoff in South Bend.`\
 https://nytimes.com/athletic/6009332/2024/12/20/notre-dame-indiana-weather-snow-college-football-playoff/
-
-**The Bounce: Who are the NBA's most clutch players this season? Plus, why Jalen Williams is a star**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6009084/2024/12/20/deaaron-fox-jayson-tatum-nikola-jokic-karl-anthony-towns-knicks-timberwolves-jalen-williams-thunder-nba-the-bounce/
 
