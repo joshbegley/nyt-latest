@@ -1,4 +1,4 @@
-**Are GLP-1 Drugs Causing a Rift in Your Relationship? We Want to Hear About It.**\
+**Are Weight-Loss Drugs Causing a Rift in Your Relationship? We Want to Hear About It.**\
 `For an upcoming article, we are looking for stories about what happens to a long-term relationship when one partner decides to get much thinner.`\
 https://nytimes.com/2024/12/20/magazine/glp1-ozempic-sex-relationship.html
 
