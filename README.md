@@ -1,3 +1,7 @@
+**Marisa Paredes, Acclaimed Diva of Spanish Cinema, Is Dead at 78**\
+`A prolific actress, she was best known globally for her work with the filmmaker Pedro Almodóvar, with whom she had a stormy relationship.`\
+https://nytimes.com/2024/12/20/movies/marisa-paredes-dead.html
+
 **Federal health authorities promote childhood vaccines in the shadow of Kennedy’s bid for health secretary.**\
 `By Noah Weiland`\
 https://nytimes.com/2024/12/20/us/politics/hhs-childhood-vaccines-campaign-rfk-jr.html
@@ -15,7 +19,7 @@ https://nytimes.com/2024/12/20/us/richard-allen-delphi-murders-sentencing.html
 https://nytimes.com/2024/12/20/us/politics/trump-replace-officials.html
 
 **French Court Convicts 8 People Tied to Events That Led to Teacher’s Killing**\
-`Samuel Paty, a teacher, was beheaded in 2020 by an Islamist extremist after showing caricatures of the Prophet Muhammad to his students to illustrate free speech.`\
+`Samuel Paty was beheaded in 2020 by an Islamist extremist after showing caricatures of the Prophet Muhammad to his students to illustrate free speech.`\
 https://nytimes.com/2024/12/20/world/europe/france-paty-beheading.html
 
 **Russia’s Abrupt Setback in Syria Creates Headaches for Putin**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/us/politics/trump-government-shutdown-threats-lev
 **'A lot of fire inside': Why Matt Murray is back in the NHL after 628 days**\
 `Matt Murray has posted an impressive .931 save percentage with the Marlies this season.`\
 https://nytimes.com/athletic/6009815/2024/12/20/maple-leafs-matt-murray-nhl-return/
-
-**In Memoriam: the Musicians We Lost in 2024**\
-`Hear songs from Quincy Jones, Melanie and Toby Keith.`\
-https://nytimes.com/2024/12/20/arts/music/amplifier-newsletter-quincy-jones-toby-keith.html
 
