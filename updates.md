@@ -1,3 +1,11 @@
+**How Anti-Obesity Drugs are Redefining Pharma and Wellness**\
+`Listen to our interview with David Ricks and Fatima Cody Stanford.`\
+https://nytimes.com/2024/12/20/podcasts/ricks-stanford-eli-lilly.html
+
+**Corrections: Dec. 20, 2024**\
+`Corrections that appeared in print on Friday, Dec. 20, 2024.`\
+https://nytimes.com/2024/12/20/pageoneplus/corrections-dec-20-2024.html
+
 **From Amazon to Space — Jeff Bezos Talks Innovation, Progress and What’s Next**\
 `Listen to our interview with Jeff Bezos.`\
 https://nytimes.com/2024/12/20/podcasts/jeff-bezos-amazon-space-washington-post.html
