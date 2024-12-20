@@ -1,3 +1,7 @@
+**Chargers score vs. Broncos with rarely used fair catch kick**\
+`The last successful such kick was also made by the Chargers, in 1976 by Ray Wersching.`\
+https://nytimes.com/athletic/6008537/2024/12/19/chargers-fair-catch-kick/
+
 **Chargers score vs. Broncos with rarely-used fair-catch kick rule**\
 `The last successful kick was also by the Chargers in 1976 by Ray Wersching.`\
 https://nytimes.com/athletic/6008537/2024/12/19/chargers-fair-catch-kick/
