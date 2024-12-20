@@ -1,3 +1,7 @@
+**French Court Convicts 8 in Connection to Events That Led to Teacher’s Killing**\
+`Samuel Paty, a teacher, was beheaded in 2020 by an Islamist extremist after showing caricatures of the Prophet Muhammad to his students to illustrate free speech.`\
+https://nytimes.com/2024/12/20/world/europe/france-paty-beheading.html
+
 **Trump Moves to Replace Officials Whom New Presidents Traditionally Leave Alone**\
 `Congress devised some positions to stay on during changes in administrations. But Donald Trump has declared his intent to replace at least three.`\
 https://nytimes.com/2024/12/20/us/politics/trump-replace-officials.html
