@@ -1,3 +1,7 @@
+**Christian Walker, Max Kepler should bring good value to their new teams: Law**\
+`Walker is older but should still have good years left, while Kepler was one of the top potential bounce-back players on the market.`\
+https://nytimes.com/athletic/6010045/2024/12/20/christian-walker-max-kepler-signing-analysis-astros-phillies/
+
 **Michael Brewer, Whose ‘One Toke’ Was a Big Hit, Is Dead at 80**\
 `The duo he formed with Tom Shipley reached the Top 10 in 1970 with “One Toke Over the Line,” a ditty about marijuana that ran afoul of censors.`\
 https://nytimes.com/2024/12/20/arts/music/michael-brewer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6009999/2024/12/20/minnesota-wild-brock-faber-injur
 **Christmas-themed trading cards: Fun and surprisingly valuable**\
 `Sports stars, celebrities, and even cryptocurrency all have rookie cards… but does Santa Claus? It’s a question you may ask yourself after consuming a little too much nutmeg.`\
 https://nytimes.com/athletic/6009595/2024/12/20/santa-claus-christmas-trading-cards-griswold/
-
-**Biden to Withdraw Unfinished Student Debt Proposals for 38 Million Borrowers**\
-`The decision to withdraw the regulations was a tacit acknowledgment that they would go nowhere under the Trump administration.`\
-https://nytimes.com/2024/12/20/us/politics/biden-withdraw-student-debt-proposals.html
 
