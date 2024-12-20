@@ -1,6 +1,14 @@
+**Who’s in Charge?**\
+`Donald Trump has yet to take office but the president-elect and Elon Musk are already influencing policy, putting the federal government hours away from a shut down.`\
+https://nytimes.com/2024/12/20/business/dealbook/musk-trump-government-shutdown.html
+
 **Live Q&A: FPL Gameweek 17 advice from Ben Dinnery**\
 `Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 17 Q&A between 4-5pm UK time `\
 https://nytimes.com/athletic/6006172/2024/12/20/fantasy-premier-league-advice-gw17-tips/
+
+**College Football Playoff 2024 projections: Odds to advance for all 12 teams in the bracket**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/20/college-football-playoff-projections-odds/
 
 **Britannica Didn’t Just Survive. It’s an A.I. Company Now.**\
 `The encyclopedia maker could have become a casualty of the Wikipedia era. But it has remade itself into a digital learning giant that is weighing going public.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6008795/2024/12/20/broncos-playoff-hopes-loss-charg
 **Ravens must 'learn how to not lose' to end frustrating skid vs. Steelers**\
 `A victory by Baltimore this week would create a first-place tie atop the AFC North and end a troubling trend against Pittsburgh. `\
 https://nytimes.com/athletic/6007657/2024/12/20/ravens-losing-streak-steelers/
-
-**Lowetide: Could this be the ultimate Oilers season?**\
-`The Oilers have extreme strengths and some areas of weakness but are still a legitimate Stanley Cup contender.`\
-https://nytimes.com/athletic/6005238/2024/12/20/edmonton-oilers-2024-25-ultimate-season/
-
-**Is Amazon’s Drone Delivery Finally Ready for Prime Time?**\
-`We flew to Arizona to test the recently debuted service ourselves.`\
-https://nytimes.com/2024/12/20/podcasts/hardfork-amazon-drone-delivery.html
 

@@ -1,3 +1,11 @@
+**Who’s in Charge?**\
+`Donald Trump has yet to take office but the president-elect and Elon Musk are already influencing policy, putting the federal government hours away from a shut down.`\
+https://nytimes.com/2024/12/20/business/dealbook/musk-trump-government-shutdown.html
+
+**College Football Playoff 2024 projections: Odds to advance for all 12 teams in the bracket**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/20/college-football-playoff-projections-odds/
+
 **Live Q&A: FPL Gameweek 17 advice from Ben Dinnery**\
 `Join Premier Injuries' Ben Dinnery for a live Fantasy Premier League Gameweek 17 Q&A between 4-5pm UK time `\
 https://nytimes.com/athletic/6006172/2024/12/20/fantasy-premier-league-advice-gw17-tips/
