@@ -1,3 +1,15 @@
+**Row Z: Gladiator quotes, rogue stewards and how the Unify League marketing meeting really went**\
+`Tim Spiers looks at football's sillier side - featuring some blue-sky thinking and ominous messages of support at Wolves `\
+https://nytimes.com/athletic/6007360/2024/12/20/ange-postecoglou-unify-league-ian-holloway/
+
+**How a New Year’s Resolution Can Set Up Your Financial Goals for Success**\
+`Don’t give up on resolving to do better, psychologists and personal finance experts say. The key is to reframe the way you think about it.`\
+https://nytimes.com/2024/12/20/your-money/new-years-resolutions-personal-finance.html
+
+**Wall St. Is at It Again, Making Irrelevant Market Predictions**\
+`Optimistic guesses about the future are not forecasts, our columnist says.`\
+https://nytimes.com/2024/12/20/business/stock-market-predictions-investing.html
+
 **Dele confirms Everton exit: 'Things haven't worked out as we hoped'**\
 `Dele Alli has confirmed he will be leaving Everton after conceding &#8220;things haven&#8217;t worked out as we all would have hoped&#8221;.`\
 https://nytimes.com/athletic/6009180/2024/12/20/dele-alli-everton-exit/
