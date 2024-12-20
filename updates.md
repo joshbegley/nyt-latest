@@ -1,3 +1,11 @@
+**Wall Street rallies, shaking off shutdown threat.**\
+`The S&P 500 jumped after a November inflation reading helped ease worries that lately have loomed over the markets. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
+https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news/wall-street-rallies-shaking-off-shutdown-threat
+
+**Atlanta United hires Ronny Deila as coach**\
+`The challenge for Deila will be to manage expectations and turn a team of underachievers into league leaders.`\
+https://nytimes.com/athletic/6009744/2024/12/20/atlanta-united-ronny-deila-head-coach/
+
 **Why Britain Has So Many White Christmases (Technically)**\
 `Bing Crosby dreamed of it and Charles Dickens romanticized it, but the truth about a white Christmas in Britain may surprise you.`\
 https://nytimes.com/2024/12/20/weather/uk-white-christmas-snow.html
