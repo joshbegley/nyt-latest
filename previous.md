@@ -1,3 +1,7 @@
+**'It's just prettier hockey': Blackhawks' gamble paying off with new coach Anders Sorensen**\
+`With a 3-1 win over the Seattle Kraken, Sorensen and the Blackhawks did something they haven't done since 2022-23 — win three in a row.`\
+https://nytimes.com/athletic/6008566/2024/12/20/blackhawks-win-kraken-anders-sorensen/
+
 **Yohe's 10 observations: Sidney Crosby erupts and Bryan Rust puts Predators away in overtime**\
 `Crosby ended his goal-scoring drought at 10 games with a 4-point outing Thursday in Nashville.`\
 https://nytimes.com/athletic/6008502/2024/12/20/penguins-sidney-crosby-bryan-rust-predators-overtime/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006162/2024/12/20/what-does-an-arteta-striker-look
 **Introducing the most dangerous pass in football**\
 `A short vertical pass from a goalkeeper. Sounds harmless enough, right? We analyse the risk and reward behind the pass that drives fans wild`\
 https://nytimes.com/athletic/5991727/2024/12/20/goalkeeper-pass-danger-football-analysis/
-
-**Kyle Walker is in a storm on and off the pitch - can he find a way out for him and Man City?**\
-`The England right-back is facing a storm on and off the pitch. But Pep Guardiola needs him right now. Can he step up again?`\
-https://nytimes.com/athletic/6007126/2024/12/20/kyle-walker-is-in-a-storm-on-and-off-the-pitch-can-he-find-a-way-out-for-him-and-man-city/
 

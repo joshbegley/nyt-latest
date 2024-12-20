@@ -1,3 +1,7 @@
+**'It's just prettier hockey': Blackhawks' gamble paying off with new coach Anders Sorensen**\
+`With a 3-1 win over the Seattle Kraken, Sorensen and the Blackhawks did something they haven't done since 2022-23 — win three in a row.`\
+https://nytimes.com/athletic/6008566/2024/12/20/blackhawks-win-kraken-anders-sorensen/
+
 **Yohe's 10 observations: Sidney Crosby erupts and Bryan Rust puts Predators away in overtime**\
 `Crosby ended his goal-scoring drought at 10 games with a 4-point outing Thursday in Nashville.`\
 https://nytimes.com/athletic/6008502/2024/12/20/penguins-sidney-crosby-bryan-rust-predators-overtime/
