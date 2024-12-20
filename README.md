@@ -1,3 +1,8 @@
+**Free-agent first-baseman Christian Walker, Astros 'in serious talks' about contract**\
+`By Ken Rosenthal, Chandler Rome and Noah Furtado
+Christian Walker, the reigning three-time National League Gold Glove Award-winning first baseman, is in serious talks with the Houston Astros about signing with the organization.`\
+https://nytimes.com/athletic/5941661/2024/12/20/christian-walker-contract-astros-free-agency/
+
 **Volkswagen Reaches Labor Deal, Avoiding Germany Plant Closures**\
 `The automaker agreed to keep all 10 of its factories in Germany open and to guarantee workers’ jobs until the end of 2030.`\
 https://nytimes.com/2024/12/20/business/volkswagen-union-deal-germany.html
@@ -33,8 +38,4 @@ https://nytimes.com/2024/12/20/science/ursids-meteor-shower-winter-solstice.html
 **Clemson at Texas: Picks, odds with Longhorns heavily favored in CFP game**\
 `The Longhorns are a double-digit favorite against Clemson, making Texas the biggest favorite in the College Football Playoff's first round.`\
 https://nytimes.com/athletic/5981899/2024/12/20/clemson-texas-time-odds-college-football-playoff/
-
-**Indiana at Notre Dame: How to watch, odds, storylines for intrastate CFP game**\
-`Two 11-1 teams from the state of Indiana meet in the first round of the College Football Playoff. Notre Dame is favored against IU.`\
-https://nytimes.com/athletic/5981577/2024/12/20/indiana-notre-dame-how-to-watch-odds-college-football-playoff/
 

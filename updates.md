@@ -1,3 +1,7 @@
+**Volkswagen Reaches Labor Deal, Avoiding Germany Plant Closures**\
+`The automaker agreed to keep all 10 of its factories in Germany open and to guarantee workers’ jobs until the end of 2030.`\
+https://nytimes.com/2024/12/20/business/volkswagen-union-deal-germany.html
+
 **Regulators Sue 3 Big Banks Over Rampant Fraud on Zelle**\
 `Action against Bank of America, JPMorgan Chase and Wells Fargo may not survive President-elect Donald J. Trump’s return to office.`\
 https://nytimes.com/2024/12/20/business/zelle-fraud-chase-wells-bank-of-america.html

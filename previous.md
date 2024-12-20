@@ -1,3 +1,7 @@
+**Volkswagen Reaches Labor Deal, Avoiding Germany Plant Closures**\
+`The automaker agreed to keep all 10 of its factories in Germany open and to guarantee workers’ jobs until the end of 2030.`\
+https://nytimes.com/2024/12/20/business/volkswagen-union-deal-germany.html
+
 **Regulators Sue 3 Big Banks Over Rampant Fraud on Zelle**\
 `Action against Bank of America, JPMorgan Chase and Wells Fargo may not survive President-elect Donald J. Trump’s return to office.`\
 https://nytimes.com/2024/12/20/business/zelle-fraud-chase-wells-bank-of-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981899/2024/12/20/clemson-texas-time-odds-college-
 **Indiana at Notre Dame: How to watch, odds, storylines for intrastate CFP game**\
 `Two 11-1 teams from the state of Indiana meet in the first round of the College Football Playoff. Notre Dame is favored against IU.`\
 https://nytimes.com/athletic/5981577/2024/12/20/indiana-notre-dame-how-to-watch-odds-college-football-playoff/
-
-**Musk Expresses Support for Far-Right Party in Germany’s Election**\
-`It was not the first online intervention by Elon Musk, the entrepreneur and adviser to Donald Trump, on behalf of once-fringe anti-immigrant parties in Europe.`\
-https://nytimes.com/2024/12/20/world/europe/elon-musk-afd-germany.html
 
