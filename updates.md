@@ -1,3 +1,11 @@
+**Nguyen: ID'ing each division leader's most important non-QB heading toward playoffs**\
+`George Pickens, Trent McDuffie and Jahmyr Gibbs are among those their teams must have if they want to make a Super Bowl run.`\
+https://nytimes.com/athletic/6004608/2024/12/20/most-important-players-nfl-playoffs/
+
+**What's the loudest college football moment you've experienced? Our staff weighs in**\
+`The first-ever on-campus College Football Playoff games are here. Will they add to our list of memorably loud moments?`\
+https://nytimes.com/athletic/6006242/2024/12/20/college-football-playoff-home-stadiums-loudest/
+
 **Three Deals in 12 Days: How Australia Is Courting the Pacific**\
 `In separate agreements with Nauru, Papua New Guinea and the Solomon Islands, Australia is attempting to edge out China’s influence in the region.`\
 https://nytimes.com/2024/12/20/world/australia/australia-china-pacific-deals.html
