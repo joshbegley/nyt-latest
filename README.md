@@ -1,3 +1,7 @@
+**Cubs land meeting with star Japanese pitcher Roki Sasaki**\
+`Teams cannot sign Sasaki until Jan. 15 when the new international signing period opens. His 45-day posting period ends Jan. 24.`\
+https://nytimes.com/athletic/6010120/2024/12/20/cubs-roki-sasaki-meeting/
+
 **Ann Rockefeller Roberts, Champion of Native Americans, Dies at 90**\
 `The eldest daughter of Nelson Rockefeller, she founded a nonprofit to support Indigenous culture and helped fill two Smithsonian institutions with artifacts.`\
 https://nytimes.com/2024/12/20/nyregion/ann-rockefeller-roberts-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/us/politics/gop-spending-hawks-trump-debt.html
 **At Luigi Mangione’s Perp Walk, Mayor Eric Adams Appeared Stage Right**\
 `In widely seen images, Mayor Eric Adams was behind Mr. Mangione, a murder suspect, when he arrived in Manhattan. Some questioned the mayor’s motives.`\
 https://nytimes.com/2024/12/20/nyregion/luigi-mangione-eric-adams.html
-
-**Jewish School in Toronto Is Targeted for a Third Time**\
-`Canadian ministers will convene a meeting with the police to discuss antisemitism, after attacks at Jewish establishments in Toronto and Montreal this week.`\
-https://nytimes.com/2024/12/20/world/canada/toronto-jewish-school-antisemitism.html
 
