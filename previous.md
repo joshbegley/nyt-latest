@@ -1,3 +1,27 @@
+**Trump Moves to Replace Officials Whom New Presidents Traditionally Leave Alone**\
+`Congress devised some positions to stay on during changes in administrations. But Donald Trump has declared his intent to replace at least three.`\
+https://nytimes.com/2024/12/20/us/politics/trump-replace-officials.html
+
+**French Court Convicts 8 for Their Roles in Connection With Teacher’s Killing**\
+`Samuel Paty, a teacher, was beheaded in 2020 by an Islamist extremist after showing caricatures of the Prophet Muhammad to his students to illustrate free speech.`\
+https://nytimes.com/2024/12/20/world/europe/france-paty-beheading.html
+
+**Russia’s Abrupt Setback in Syria Creates Headaches for Putin**\
+`Losing Syrian military bases would hurt the Kremlin’s attempts to project power in the Middle East and Africa.`\
+https://nytimes.com/2024/12/20/us/russia-syria-military-bases-middle-east-setbacks.html
+
+**Five Books That Explain the Chaos of 2024**\
+`And one to read for fun.`\
+https://nytimes.com/2024/12/20/world/five-books-that-explain-the-chaos-of-2024.html
+
+**Trump Used Government Shutdowns as Leverage During His First Presidency**\
+`A partial government shutdown in Donald J. Trump’s first term was the longest in U.S. history.`\
+https://nytimes.com/2024/12/20/us/politics/trump-government-shutdown-threats-leverage.html
+
+**'A lot of fire inside': Why Matt Murray is back in the NHL after 628 days**\
+`Matt Murray has posted an impressive .931 save percentage with the Marlies this season.`\
+https://nytimes.com/athletic/6009815/2024/12/20/maple-leafs-matt-murray-nhl-return/
+
 **In Memoriam: the Musicians We Lost in 2024**\
 `Hear songs from Quincy Jones, Melanie and Toby Keith.`\
 https://nytimes.com/2024/12/20/arts/music/amplifier-newsletter-quincy-jones-toby-keith.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/12/20/opinion/wicked-tolkien-westeros-narnia.html
 **E.P.A. Administrator Michael Regan to Depart at End of December**\
 `Mr. Regan informed agency employees that he would leave before the formal end of the Biden term.`\
 https://nytimes.com/2024/12/20/climate/epa-michael-regan-departs.html
-
-**Virginia Student Accused of Plot to Attack Israeli Consulate in New York**\
-`A freshman at George Mason University, who is a citizen of Egypt, was arrested on Tuesday after being accused of planning an attack.`\
-https://nytimes.com/2024/12/20/us/terror-plot-george-mason-israeli-consulate.html
-
-**Your Ticket to the Theater (at Home)**\
-`Make it through the holidays with these movies, books and music from the past year that are adapted from stage productions or evoke a theatrical spirit.`\
-https://nytimes.com/2024/12/20/theater/theater-adaptations-movies-books-music.html
-
-**Would You Wear Jeans at the Gym?**\
-`Frequent images of Robert F. Kennedy Jr. and others lifting weights in jeans and boots raise the question of what can be classified as proper gym attire.`\
-https://nytimes.com/2024/12/20/style/robert-kennedy-jr-jeans-gym.html
-
-**Kelly Clarkson’s Christmas Love Song, and 12 More New Holiday Tunes**\
-`Hear tracks from Bartees Strange, Madi Diaz, GloRilla and Kehlani, and others.`\
-https://nytimes.com/2024/12/20/arts/music/playlist-christmas-holiday-songs.html
-
-**Are Weight-Loss Drugs Causing a Rift in Your Relationship? We Want to Hear About It.**\
-`For an upcoming article, we are looking for stories about what happens to a long-term relationship when one partner decides to get much thinner.`\
-https://nytimes.com/2024/12/20/magazine/glp1-ozempic-sex-relationship.html
-
-**Meet the 38 Republicans who defied Trump on the spending and debt deal.**\
-`The rebels are largely the most conservative lawmakers who are passionate about slashing spending and debt. They hail from deep-red districts where a primary challenge is less of a danger.`\
-https://nytimes.com/2024/12/20/us/politics/republican-defectors-trump.html
 
