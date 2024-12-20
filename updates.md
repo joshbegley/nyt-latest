@@ -1,3 +1,7 @@
+**How Chelsea and Josh Acheampong agreed a new contract — a deal that was a long time coming**\
+`With his contract sorted, Acheampong impressed on his first start at Stamford Bridge in the resounding win against Shamrock Rovers`\
+https://nytimes.com/athletic/6008178/2024/12/20/acheampong-chelsea-contract/
+
 **Tottenham emerge from the mayhem to reach semi-finals — but will they learn from it?**\
 `Next up they face Liverpool, who have kept seven clean sheets in the Premier League and conceded the fewest number of goals`\
 https://nytimes.com/athletic/6008343/2024/12/20/tottenham-postecoglou-man-united-win-analysis/
