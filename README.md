@@ -1,3 +1,15 @@
+**Police Respond to Vehicle Ramming Attack at German Christmas Market**\
+`Emergency responders attended to an incident at a Christmas market in Magdeburg, Germany, on Friday.`\
+https://nytimes.com/video/world/europe/100000009890750/germany-attack-christmas-market.html
+
+**Naomi Feil Developed a Radical Approach to Caring for Dementia Patients**\
+`She believed that people with dementia were desperate to connect.`\
+https://nytimes.com/interactive/2024/12/20/magazine/naomi-feil-dementia.html
+
+**The Orphaned Sea Otter Who Became a Foster Mom to 15 Pups**\
+`Despite never having had offspring of her own, she was an instinctive caregiver.`\
+https://nytimes.com/interactive/2024/12/20/magazine/rosa-sea-otter.html
+
 **Wafa Al-Udaini Captured the Experiences of Palestinians From Within**\
 `As a journalist, she was determined to tell a story of Gaza that was full of life.`\
 https://nytimes.com/interactive/2024/12/20/magazine/wafa-aludaini-killed-palestinian-journalist.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/12/20/magazine/peter-buxtun-tuskegee-study.
 **Janice Burgess Combined High Culture With Childish Delight**\
 `In “The Backyardigans,” she created a world for kids as wildly sophisticated as her own.`\
 https://nytimes.com/interactive/2024/12/20/magazine/janice-burgess-backyardians.html
-
-**Bob Newhart’s Comedy Left a Lot Unsaid**\
-`For him, comedy became a form of therapy.`\
-https://nytimes.com/interactive/2024/12/20/magazine/bob-newhart-comedy.html
-
-**The Rise and Fall of Ivan Boesky, Notorious Inside Trader**\
-`He was seen as greed incarnate — and never said otherwise.`\
-https://nytimes.com/interactive/2024/12/20/magazine/ivan-boesky-greed.html
-
-**Dr. Ruth and Phil Donahue Answered Life’s Big Questions**\
-`Together, they told us everything we wanted to know about sex.`\
-https://nytimes.com/interactive/2024/12/20/magazine/dr-ruth-phil-donahue-tv.html
 
