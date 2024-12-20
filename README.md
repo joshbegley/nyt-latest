@@ -12,7 +12,7 @@ https://nytimes.com/2024/12/20/opinion/letters/musk-political-influence.html
 
 **Wall Street rallies, shaking off shutdown threat.**\
 `The S&P 500 jumped after a November inflation reading helped ease worries that lately have loomed over the markets. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
-https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news/wall-street-rallies-shaking-off-shutdown-threat
+https://nytimes.com/2024/12/20/us/politics/markets-government-shutdown.html
 
 **Atlanta United hires Ronny Deila as coach**\
 `The challenge for Deila will be to manage expectations and turn a team of underachievers into league leaders.`\
