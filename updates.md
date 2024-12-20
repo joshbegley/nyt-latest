@@ -1,3 +1,15 @@
+**Marisa Paredes, Acclaimed Diva of Spanish Cinema, Is Dead at 78**\
+`A prolific actress, she was best known globally for her work with the filmmaker Pedro Almodóvar, with whom she had a stormy relationship.`\
+https://nytimes.com/2024/12/20/movies/marisa-paredes-dead.html
+
+**Federal health authorities promote childhood vaccines in the shadow of Kennedy’s bid for health secretary.**\
+`By Noah Weiland`\
+https://nytimes.com/2024/12/20/us/politics/hhs-childhood-vaccines-campaign-rfk-jr.html
+
+**French Court Convicts 8 People Tied to Events That Led to Teacher’s Killing**\
+`Samuel Paty was beheaded in 2020 by an Islamist extremist after showing caricatures of the Prophet Muhammad to his students to illustrate free speech.`\
+https://nytimes.com/2024/12/20/world/europe/france-paty-beheading.html
+
 **Newcastle player agents waiting on overdue payments owed by the club**\
 `The representatives of multiple Newcastle United players have been left in the dark after fees the club owed them were not paid on time.`\
 https://nytimes.com/athletic/6001208/2024/12/20/newcastle-agent-payments/
