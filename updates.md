@@ -1,3 +1,19 @@
+**Virginia Student Accused of Plot to Attack Israeli Consulate in New York**\
+`A freshman at George Mason University, who is a citizen of Egypt, is accused of planning a mass casualty attack.`\
+https://nytimes.com/2024/12/20/us/terror-plot-george-mason-israeli-consulate.html
+
+**Your Ticket to the Theater (at Home)**\
+`Make it through the holidays with these movies, books and music from the past year that are adapted from stage productions or evoke a theatrical spirit.`\
+https://nytimes.com/2024/12/20/theater/theater-adaptations-movies-books-music.html
+
+**Would You Wear Jeans at the Gym?**\
+`Frequent images of Robert F. Kennedy Jr. and others lifting weights in jeans and boots raise the question of what can be classified as proper gym attire.`\
+https://nytimes.com/2024/12/20/style/robert-kennedy-jr-jeans-gym.html
+
+**Kelly Clarkson’s Christmas Love Song, and 12 More New Holiday Tunes**\
+`Hear tracks from Bartees Strange, Madi Diaz, GloRilla and Kehlani, and others.`\
+https://nytimes.com/2024/12/20/arts/music/playlist-christmas-holiday-songs.html
+
 **Markets Rally, Shaking Off Threat of Government Shutdown**\
 `The S&P 500 jumped after a November inflation reading helped ease worries. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
 https://nytimes.com/2024/12/20/us/politics/markets-government-shutdown.html
