@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Sidney Crosby erupts and Bryan Rust puts Predators away in overtime**\
+`Crosby ended his goal-scoring drought at 10 games with a 4-point outing Thursday in Nashville.`\
+https://nytimes.com/athletic/6008502/2024/12/20/penguins-sidney-crosby-bryan-rust-predators-overtime/
+
 **Penn State, Louisville set to meet for women's volleyball national title**\
 `The championship matchup is set for 3 p.m. ET Sunday at the KFC Yum! Center with televised coverage on ABC.`\
 https://nytimes.com/athletic/6008748/2024/12/20/penn-state-louisville-womens-volleyball-semifinals-ncaa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5991727/2024/12/20/goalkeeper-pass-danger-football-
 **Kyle Walker is in a storm on and off the pitch - can he find a way out for him and Man City?**\
 `The England right-back is facing a storm on and off the pitch. But Pep Guardiola needs him right now. Can he step up again?`\
 https://nytimes.com/athletic/6007126/2024/12/20/kyle-walker-is-in-a-storm-on-and-off-the-pitch-can-he-find-a-way-out-for-him-and-man-city/
-
-**'Staggeringly understated – and cool as hell': What football thinks of Arne Slot**\
-`The Dutchman's flying start to life at Anfield has drawn admiration from across the game - this is why`\
-https://nytimes.com/athletic/6006424/2024/12/20/arne-slot-liverpool-what-football-thinks/
 
