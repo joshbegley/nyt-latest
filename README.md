@@ -1,3 +1,7 @@
+**Why Britain Has So Many White Christmases (Technically)**\
+`Bing Crosby dreamed of it and Charles Dickens romanticized it, but the truth about a white Christmas in Britain may surprise you.`\
+https://nytimes.com/2024/12/20/weather/uk-white-christmas-snow.html
+
 **Free-agent first-baseman Christian Walker, Astros 'in serious talks' about contract**\
 `A league source notes that the two sides are “down the road.”`\
 https://nytimes.com/athletic/5941661/2024/12/20/christian-walker-contract-astros-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/books/review/the-troublemaker-jimmy-lai-biography
 **One of 2024’s Last Meteor Showers Is About to Reach Its Peak**\
 `The astronomical event, which overlaps with the Winter Solstice, is often overlooked because of the winter chill.`\
 https://nytimes.com/2024/12/20/science/ursids-meteor-shower-winter-solstice.html
-
-**Clemson at Texas: Picks, odds with Longhorns heavily favored in CFP game**\
-`The Longhorns are a double-digit favorite against Clemson, making Texas the biggest favorite in the College Football Playoff's first round.`\
-https://nytimes.com/athletic/5981899/2024/12/20/clemson-texas-time-odds-college-football-playoff/
 
