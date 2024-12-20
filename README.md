@@ -1,3 +1,11 @@
+**2024: The Year in Visual Stories and Graphics.**\
+`Selected Times graphics, visualizations and multimedia stories published this year. All free to read for a limited time.`\
+https://nytimes.com/interactive/2024/12/20/us/2024-year-in-graphics.html
+
+**The Best Friends They Left Behind**\
+`The beloved pets of some of the notable people we lost this year.`\
+https://nytimes.com/interactive/2024/12/20/magazine/dogs-cats-pets-friends.html
+
 **OpenAI Unveils New A.I. That Can ‘Reason’ Through Math and Science Problems**\
 `The artificial intelligence start-up said the new system, OpenAI o3, outperformed leading A.I. technologies on tests that rate skills in math, science, coding and logic.`\
 https://nytimes.com/2024/12/20/technology/openai-new-ai-math-science.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/20/us/politics/hhs-childhood-vaccines-campaign-rfk-j
 **Newcastle player agents waiting on overdue payments owed by the club**\
 `The representatives of multiple Newcastle United players have been left in the dark after fees the club owed them were not paid on time.`\
 https://nytimes.com/athletic/6001208/2024/12/20/newcastle-agent-payments/
-
-**Indiana Man Sentenced to 130 Years for Killing 2 Teenage Girls**\
-`Richard Allen, of Delphi, Ind., received the maximum sentence, concluding a case that came to be known as the Delphi Murders. His lawyers plan to appeal.`\
-https://nytimes.com/2024/12/20/us/richard-allen-delphi-murders-sentencing.html
-
-**Trump Moves to Replace Officials Whom New Presidents Traditionally Leave Alone**\
-`Congress devised some positions to stay on during changes in administrations. But Donald Trump has declared his intent to replace at least three.`\
-https://nytimes.com/2024/12/20/us/politics/trump-replace-officials.html
 
