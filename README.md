@@ -1,5 +1,5 @@
 **Senior U.S. Diplomats Arrive in Syria to Meet With Governing Militias**\
-`The U.S. officials plan to looking for signs of Austin Tice, a missing American journalist, as well as other U.S. citizens.`\
+`The U.S. officials plan to look for signs of Austin Tice, a missing American journalist, as well as other U.S. citizens.`\
 https://nytimes.com/2024/12/20/us/politics/us-diplomats-syria.html
 
 **FPL: Alisson, David Raya and the budget goalkeepers to consider**\
