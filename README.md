@@ -1,3 +1,11 @@
+**Nguyen: ID'ing each division leader's most important non-QB heading toward playoffs**\
+`George Pickens, Trent McDuffie and Jahmyr Gibbs are among those their teams must have if they want to make a Super Bowl run.`\
+https://nytimes.com/athletic/6004608/2024/12/20/most-important-players-nfl-playoffs/
+
+**What's the loudest college football moment you've experienced? Our staff weighs in**\
+`The first-ever on-campus College Football Playoff games are here. Will they add to our list of memorably loud moments?`\
+https://nytimes.com/athletic/6006242/2024/12/20/college-football-playoff-home-stadiums-loudest/
+
 **Three Deals in 12 Days: How Australia Is Courting the Pacific**\
 `In separate agreements with Nauru, Papua New Guinea and the Solomon Islands, Australia is attempting to edge out China’s influence in the region.`\
 https://nytimes.com/2024/12/20/world/australia/australia-china-pacific-deals.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/20/books/review/our-evenings-alan-hollinghurst-book-
 **What’s Your Favorite Holiday Movie or TV Special?**\
 `“Elf,” “Home Alone” or “A Charlie Brown Christmas” — what’s on your must-watch list each holiday season?`\
 https://nytimes.com/2024/12/20/learning/whats-your-favorite-holiday-movie-or-tv-special.html
-
-**It’s a Bird! It’s a Plane! It’s Brazilian Bum Bum Cream!**\
-`A recent visit to Amazon’s overhauled drone delivery program in Arizona left me impressed by the drones, but skeptical that the public will welcome them.`\
-https://nytimes.com/2024/12/20/technology/amazon-prime-air-drone-delivery.html
-
-**How Drug Overdose Deaths Have Plagued One Generation of Black Men for Decades**\
-`In dozens of cities, the recent rise of fentanyl has put older Black men in particular jeopardy.`\
-https://nytimes.com/2024/12/20/upshot/black-men-overdose-deaths.html
 
