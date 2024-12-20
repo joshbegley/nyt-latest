@@ -1,3 +1,7 @@
+**Dozens of House Republicans Defy Trump in Test of His Grip on G.O.P.**\
+`Thirty-eight Republican lawmakers resisted the president-elect’s command to support a spending and debt deal, showing that at least some of his followers are willing to buck his leadership in the right circumstances.`\
+https://nytimes.com/2024/12/19/us/politics/trump-republicans-spending-bill.html
+
 **Phillies agree to add Max Kepler on 1-year, $10 million deal: Sources**\
 `The Phillies, according to major-league sources, had shown interest in Teoscar Hernández. They settled for Kepler at a far cheaper rate.`\
 https://nytimes.com/athletic/6008322/2024/12/19/max-kepler-contract-phillies-mlb-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/19/nyregion/jessica-tisch-nypd-appointments.html
 **Many Videos That Purport to Show Drones in New Jersey Likely Show Planes, Visual Analysis Finds**\
 `Here’s why it’s hard to distinguish objects in the night sky.`\
 https://nytimes.com/2024/12/19/video/new-jersey-drones-planes-videos.html
-
-**Here’s What Could Happen in a Government Shutdown**\
-`With a funding deadline approaching, workers are bracing for the possibility of a disruptive holiday season, which could include longer wait times for travelers.`\
-https://nytimes.com/2024/12/19/us/politics/government-shutdown-funding.html
 
