@@ -1,3 +1,23 @@
+**Googly Eyes**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/12/20/learning/googly-eyes.html
+
+**How Did New Jersey Become Area 52?**\
+`No matter how many official voices declare there is no drone emergency, conspiracy theories continue to flourish. We’ve been here before.`\
+https://nytimes.com/2024/12/20/nyregion/new-jersey-drones-ufos.html
+
+**Hochul Weighs Legislation Limiting A.I. and More Than 100 Other Bills**\
+`A bill passed by the New York State Legislature to regulate the state’s use of artificial intelligence is among more than 100 that await Gov. Kathy Hochul’s decision.`\
+https://nytimes.com/2024/12/20/nyregion/hochul-ai-bills-ny.html
+
+**What Broadway Gets Right and Wrong About Journalism**\
+`A Culture writer takes stock of recent stage productions that depict newsrooms and reporters.`\
+https://nytimes.com/2024/12/20/insider/what-broadway-gets-right-and-wrong-about-journalism.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/20/crosswords/spelling-bee-forum.html
+
 **After their latest run, Oilers have returned to contender status**\
 `The Oilers overcame a two-goal deficit to earn a 3-2 overtime win over the Bruins on Thursday.`\
 https://nytimes.com/athletic/6008826/2024/12/20/edmonton-oilers-win-bruins-contenders/
