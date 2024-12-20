@@ -1,3 +1,23 @@
+**Prince Harry on His Murdoch Tabloid Fight and Big Tech**\
+`Listen to our interview with Prince Harry.`\
+https://nytimes.com/2024/12/20/podcasts/prince-harry-on-his-murdoch-tabloid-fight-and-big-tech.html
+
+**Ken Griffin Says ‘America Is Open For Business Again’**\
+`Listen to our interview with Ken Griffin.`\
+https://nytimes.com/2024/12/20/podcasts/ken-griffin.html
+
+**Sam Altman on the Future of A.I. and Society**\
+`Listen to our interview with Sam Altman.`\
+https://nytimes.com/2024/12/20/podcasts/19-dealbook-sam-altman-artificial-intelligence.html
+
+**Alex Cooper on Building a Media Brand**\
+`Listen to our interview with Alex Cooper.`\
+https://nytimes.com/2024/12/20/podcasts/alex-cooper-media-podcast.html
+
+**Crystal Palace's Eze out of Arsenal clash with foot injury**\
+`Crystal Palace&#8217;s Eberechi Eze will miss the Premier League game with Arsenal on Saturday through injury, manager Oliver Glasner has confirmed.`\
+https://nytimes.com/athletic/6009190/2024/12/20/eberechi-eze-injury-crystal-palace/
+
 **Rice, Calafiori set to be available for Arsenal vs Palace**\
 `Declan Rice and Riccardo Calafiori are both set to be available for Arsenal&#8217;s trip to Crystal Palace on Saturday evening.`\
 https://nytimes.com/athletic/5995048/2024/12/20/arsenal-team-news-rice-calafiori-crystal-palace/
