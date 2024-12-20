@@ -1,3 +1,15 @@
+**Are GLP-1 Drugs Causing a Rift in Your Relationship? We Want to Hear About It.**\
+`For an upcoming article, we are looking for stories about what happens to a long-term relationship when one partner decides to get much thinner.`\
+https://nytimes.com/2024/12/20/magazine/glp1-ozempic-sex-relationship.html
+
+**Meet the 38 Republicans who defied Trump on the spending and debt deal.**\
+`The rebels are largely the most conservative lawmakers who are passionate about slashing spending and debt. They hail from deep-red districts where a primary challenge is less of a danger.`\
+https://nytimes.com/2024/12/20/us/politics/republican-defectors-trump.html
+
+**Elon Musk’s Growing Political Influence**\
+`Readers discuss his role in the government shutdown negotiations. Also: Trump austerity; G.O.P.’s future; clean energy; guns and young people.`\
+https://nytimes.com/2024/12/20/opinion/letters/musk-political-influence.html
+
 **Wall Street rallies, shaking off shutdown threat.**\
 `The S&P 500 jumped after a November inflation reading helped ease worries that lately have loomed over the markets. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
 https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news/wall-street-rallies-shaking-off-shutdown-threat
