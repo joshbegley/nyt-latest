@@ -1,3 +1,19 @@
+**Penguins Today: Could Erik Karlsson be a short-term Superman?**\
+`Karlsson has been better lately, which has us wondering how a playoff appearance could lift his game.`\
+https://nytimes.com/athletic/6009318/2024/12/20/penguins-today-erik-karlsson/
+
+**Netflix secures U.S. broadcast rights for 2027, 2031 Women's World Cups**\
+`Netflix has secured the exclusive broadcast rights in the United States for the 2027 and 2031 editions of the Women&#8217;s World Cup.`\
+https://nytimes.com/athletic/6009284/2024/12/20/netflix-womens-world-cup/
+
+**Pereira aims to guide Wolves 'like a tactical GPS'**\
+`New Wolverhampton Wanderers head coach Vitor Pereira says his job is to “guide them like a tactical GPS” in the Premier League relegation battle.`\
+https://nytimes.com/athletic/6009381/2024/12/20/vitor-pereira-wolves-relegation/
+
+**‘The Tempest’ Review: A Weak Wind Blows for Sigourney Weaver**\
+`The veteran actress, playing Prospero in her West End debut, is strangely absent from Shakespeare’s narrative.`\
+https://nytimes.com/2024/12/20/theater/the-tempest-sigourney-weaver-jamie-lloyd.html
+
 **NHL Power Rankings: Capitals stay on top, plus each team's best of 2024**\
 `Here is this week's rankings plus each team’s MVP from January-to-December, the best of 2024.`\
 https://nytimes.com/athletic/6009035/2024/12/20/nhl-power-rankings-best-of-2024/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/20/podcasts/ricks-stanford-eli-lilly.html
 **Corrections: Dec. 20, 2024**\
 `Corrections that appeared in print on Friday, Dec. 20, 2024.`\
 https://nytimes.com/2024/12/20/pageoneplus/corrections-dec-20-2024.html
-
-**From Amazon to Space — Jeff Bezos Talks Innovation, Progress and What’s Next**\
-`Listen to our interview with Jeff Bezos.`\
-https://nytimes.com/2024/12/20/podcasts/jeff-bezos-amazon-space-washington-post.html
-
-**Why Red Bull chose Liam Lawson, not Yuki Tsunoda, to replace Sergio Pérez**\
-`Red Bull faced a difficult decision that would impact at least three different drivers. Did it make the right one? `\
-https://nytimes.com/athletic/6009158/2024/12/20/red-bull-f1-liam-lawson-yuki-tsunoda-sergio-perez-christian-horner/
-
-**Dyche 'not worried' about own future after Everton takeover**\
-`Sean Dyche says he is &#8220;not worried&#8221; about his own future at Everton following the long-awaited takeover of the club.`\
-https://nytimes.com/athletic/6008998/2024/12/20/everton-takeover-sean-dyche/
-
-**Bill Clinton: ‘There Was No Plan’ After Biden Dropped Out**\
-`Listen to our interview with Bill Clinton.`\
-https://nytimes.com/2024/12/20/podcasts/bill-clinton-dealbook.html
 

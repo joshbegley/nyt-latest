@@ -1,3 +1,19 @@
+**Penguins Today: Could Erik Karlsson be a short-term Superman?**\
+`Karlsson has been better lately, which has us wondering how a playoff appearance could lift his game.`\
+https://nytimes.com/athletic/6009318/2024/12/20/penguins-today-erik-karlsson/
+
+**Netflix secures U.S. broadcast rights for 2027, 2031 Women's World Cups**\
+`Netflix has secured the exclusive broadcast rights in the United States for the 2027 and 2031 editions of the Women&#8217;s World Cup.`\
+https://nytimes.com/athletic/6009284/2024/12/20/netflix-womens-world-cup/
+
+**Pereira aims to guide Wolves 'like a tactical GPS'**\
+`New Wolverhampton Wanderers head coach Vitor Pereira says his job is to “guide them like a tactical GPS” in the Premier League relegation battle.`\
+https://nytimes.com/athletic/6009381/2024/12/20/vitor-pereira-wolves-relegation/
+
+**‘The Tempest’ Review: A Weak Wind Blows for Sigourney Weaver**\
+`The veteran actress, playing Prospero in her West End debut, is strangely absent from Shakespeare’s narrative.`\
+https://nytimes.com/2024/12/20/theater/the-tempest-sigourney-weaver-jamie-lloyd.html
+
 **NHL Power Rankings: Capitals stay on top, plus each team's best of 2024**\
 `Here is this week's rankings plus each team’s MVP from January-to-December, the best of 2024.`\
 https://nytimes.com/athletic/6009035/2024/12/20/nhl-power-rankings-best-of-2024/
