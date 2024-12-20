@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6008193/2024/12/19/kat-karl-anthony-towns-knicks-ti
 `Thirty-eight Republican lawmakers resisted the president-elect’s command to support a spending and debt deal, showing that at least some of his followers are willing to buck his leadership in the right circumstances.`\
 https://nytimes.com/2024/12/19/us/politics/trump-republicans-spending-bill.html
 
-**Phillies agree to add Max Kepler on 1-year, $10 million deal: Sources**\
-`The Phillies, according to major-league sources, had shown interest in Teoscar Hernández. They settled for Kepler at a far cheaper rate.`\
+**Phillies add Max Kepler on 1-year-deal, but offseason picture remains incomplete**\
+`If anything, the Kepler deal signals the Phillies will lean into mixing and matching again in their outfield.`\
 https://nytimes.com/athletic/6008322/2024/12/19/max-kepler-contract-phillies-mlb-free-agency/
 
 **Mets meet with Japanese star Roki Sasaki**\
