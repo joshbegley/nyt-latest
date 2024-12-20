@@ -1,3 +1,11 @@
+**Michael Brewer, Whose ‘One Toke’ Was a Big Hit, Is Dead at 80**\
+`The duo he formed with Tom Shipley reached the Top 10 in 1970 with “One Toke Over the Line,” a ditty about marijuana that ran afoul of censors.`\
+https://nytimes.com/2024/12/20/arts/music/michael-brewer-dead.html
+
+**F.D.A. Approves Weight Loss Drug to Treat Obstructive Sleep Apnea**\
+`Zepbound is the first prescription drug approved specifically to treat the common condition.`\
+https://nytimes.com/2024/12/20/well/zepbound-sleep-apnea.html
+
 **A Shutdown’s Economic Toll: Less Spending, More Uncertainty**\
 `A short lapse in funding would probably do only modest damage. But it could send a troubling signal about government dysfunction.`\
 https://nytimes.com/2024/12/20/business/economy/government-shutdown-economy-impact.html
