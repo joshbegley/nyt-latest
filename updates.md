@@ -1,3 +1,23 @@
+**James Earl Jones Found His Voice Through Silence**\
+`After refusing to talk for most of his childhood, he discovered the power in performance.`\
+https://nytimes.com/interactive/2024/12/20/magazine/james-earl-jones-voice.html
+
+**Gena Rowlands Refused to Play the Traditional Woman**\
+`She worried that marriage would ruin her acting career. Instead, it fueled one of the most dynamic partnerships in film history.`\
+https://nytimes.com/interactive/2024/12/20/magazine/gena-rowlands-actor.html
+
+**Key Ally Abandons Trudeau in Fresh Blow to His Government**\
+`The leader of the party that supported Prime Minister Justin Trudeau’s Liberal Party vowed to bring down the government, saying Mr. Trudeau had failed Canada.`\
+https://nytimes.com/2024/12/20/world/canada/trudeau-liberal-party-jagmeet-singh.html
+
+**The Lives They Lived**\
+`Remembering some of the artists, innovators and thinkers we lost in the past year.`\
+https://nytimes.com/interactive/2024/12/20/magazine/people-who-died.html
+
+**Driver Rams Christmas Market in Germany, Injuring Dozens in Suspected Attack**\
+`Video showed a car plowing into a large crowd in the city of Magdeburg. The driver was arrested, according to local news reports.`\
+https://nytimes.com/2024/12/20/world/europe/germany-christmas-market-crash.html
+
 **2024: The Year in Visual Stories and Graphics.**\
 `Selected Times graphics, visualizations and multimedia stories published this year. All free to read for a limited time.`\
 https://nytimes.com/interactive/2024/12/20/us/2024-year-in-graphics.html
