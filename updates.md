@@ -1,3 +1,11 @@
+**Red Sox agree to deal with rehabbing starter Patrick Sandoval: Sources**\
+`Sandoval reportedly has agreed to a deal that will pay him significantly more in the second year, when he's expected to be at full strength.`\
+https://nytimes.com/athletic/6009659/2024/12/20/red-sox-patrick-sandoval-signing/
+
+**The Fair Catch Free Kick, and 4 Other Obscure-but-Real N.F.L. Rules**\
+`On Thursday, the Los Angeles Chargers pulled off a rare “free-kick field goal.” There are other oddball rules in the book if you dig deep enough.`\
+https://nytimes.com/2024/12/20/sports/football/chargers-fair-catch-kick-rare-nfl-rules.html
+
 **The Story of Hong Kong’s Billionaire Dissident**\
 `“The Troublemaker” is a brisk account of the life and work of Jimmy Lai, the media mogul and democracy activist currently on trial for national security offenses.`\
 https://nytimes.com/2024/12/20/books/review/the-troublemaker-jimmy-lai-biography.html
