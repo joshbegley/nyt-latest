@@ -1,3 +1,19 @@
+**G.O.P. Spending Hawks Defy Trump on the Debt Limit, Previewing More Clashes**\
+`President-elect Donald J. Trump is known for his tight grip on members of his party, but the rare rejection of his demand to raise the debt limit reflected a disconnect that could plague his policy agenda.`\
+https://nytimes.com/2024/12/20/us/politics/gop-spending-hawks-trump-debt.html
+
+**At Luigi Mangione’s Perp Walk, Mayor Eric Adams Appeared Stage Right**\
+`In widely seen images, Mayor Eric Adams was behind Mr. Mangione, a murder suspect, when he arrived in Manhattan. Some questioned the mayor’s motives.`\
+https://nytimes.com/2024/12/20/nyregion/luigi-mangione-eric-adams.html
+
+**Jewish School in Toronto Is Targeted for a Third Time**\
+`Canadian ministers will convene a meeting with the police to discuss antisemitism, after attacks at Jewish establishments in Toronto and Montreal this week.`\
+https://nytimes.com/2024/12/20/world/canada/toronto-jewish-school-antisemitism.html
+
+**Why Have So Many Canadians Turned on Justin Trudeau?**\
+`Allies and opponents alike are calling for him to resign as prime minister.`\
+https://nytimes.com/2024/12/20/world/americas/why-have-so-many-canadians-turned-on-justin-trudeau.html
+
 **Driver Plows a Car Into a Christmas Market in Germany**\
 `At least two people were killed and dozens were wounded after a car rammed into a Christmas market in the city of Magdeburg in central Germany on Friday evening.`\
 https://nytimes.com/video/world/europe/100000009891067/car-christmas-market-germany.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/20/us/politics/biden-trump-deportation-protection.ht
 **Ravens waive veteran WR Diontae Johnson**\
 `The veteran receiver served a one-game suspension in Week 15 after refusing to take the field in Week 13.`\
 https://nytimes.com/athletic/6010084/2024/12/20/ravens-waive-diontae-johnson/
-
-**Christian Walker, Max Kepler should bring good value to their new teams: Law**\
-`Walker is older but should still have good years left, while Kepler was one of the top potential bounce-back players on the market.`\
-https://nytimes.com/athletic/6010045/2024/12/20/christian-walker-max-kepler-signing-analysis-astros-phillies/
-
-**Michael Brewer, Whose ‘One Toke’ Was a Big Hit, Is Dead at 80**\
-`The duo he formed with Tom Shipley reached the Top 10 in 1970 with “One Toke Over the Line,” a ditty about marijuana that ran afoul of censors.`\
-https://nytimes.com/2024/12/20/arts/music/michael-brewer-dead.html
-
-**F.D.A. Approves Weight Loss Drug to Treat Obstructive Sleep Apnea**\
-`Zepbound is the first prescription drug approved specifically to treat the common condition.`\
-https://nytimes.com/2024/12/20/well/zepbound-sleep-apnea.html
-
-**A Shutdown’s Economic Toll: Less Spending, More Uncertainty**\
-`A short lapse in funding would probably do only modest damage. But it could send a troubling signal about government dysfunction.`\
-https://nytimes.com/2024/12/20/business/economy/government-shutdown-economy-impact.html
 
