@@ -1,3 +1,11 @@
+**Wall Street rallies, shaking off shutdown threat.**\
+`The S&P 500 jumped after a November inflation reading helped ease worries that lately have loomed over the markets. A partial government shutdown, analysts said, wouldn’t have a lasting economic impact.`\
+https://nytimes.com/live/2024/12/20/us/trump-government-shutdown-news/wall-street-rallies-shaking-off-shutdown-threat
+
+**Atlanta United hires Ronny Deila as coach**\
+`The challenge for Deila will be to manage expectations and turn a team of underachievers into league leaders.`\
+https://nytimes.com/athletic/6009744/2024/12/20/atlanta-united-ronny-deila-head-coach/
+
 **Why Britain Has So Many White Christmases (Technically)**\
 `Bing Crosby dreamed of it and Charles Dickens romanticized it, but the truth about a white Christmas in Britain may surprise you.`\
 https://nytimes.com/2024/12/20/weather/uk-white-christmas-snow.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6009659/2024/12/20/red-sox-patrick-sandoval-signing
 **The Fair Catch Free Kick, and 4 Other Obscure-but-Real N.F.L. Rules**\
 `On Thursday, the Los Angeles Chargers pulled off a rare “free-kick field goal.” There are other oddball rules in the book if you dig deep enough.`\
 https://nytimes.com/2024/12/20/sports/football/chargers-fair-catch-kick-rare-nfl-rules.html
-
-**The Story of Hong Kong’s Billionaire Dissident**\
-`“The Troublemaker” is a brisk account of the life and work of Jimmy Lai, the media mogul and democracy activist currently on trial for national security offenses.`\
-https://nytimes.com/2024/12/20/books/review/the-troublemaker-jimmy-lai-biography.html
-
-**One of 2024’s Last Meteor Showers Is About to Reach Its Peak**\
-`The astronomical event, which overlaps with the Winter Solstice, is often overlooked because of the winter chill.`\
-https://nytimes.com/2024/12/20/science/ursids-meteor-shower-winter-solstice.html
 
