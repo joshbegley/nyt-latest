@@ -1,3 +1,7 @@
+**Trump Puts Shares of His Media Company in a Trust**\
+`A regulatory filing showed that the president-elect transferred some 115 million shares of Trump Media to a trust controlled by his son Donald Trump Jr.`\
+https://nytimes.com/2024/12/20/business/trump-media-donald-trump-trust.html
+
 **Senior U.S. Diplomats Arrive in Syria to Meet With Governing Militias**\
 `The U.S. officials plan to look for signs of Austin Tice, a missing American journalist, as well as other U.S. citizens.`\
 https://nytimes.com/2024/12/20/us/politics/us-diplomats-syria.html
