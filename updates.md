@@ -1,3 +1,19 @@
+**FPL: Alisson, David Raya and the budget goalkeepers to consider**\
+`Holly Shand explores whether you should plump for one of FPL's premium goalkeepers or a cheaper alternative`\
+https://nytimes.com/athletic/6003057/2024/12/20/fantasy-premier-league-goalkeepers-raya-alisson/
+
+**Why do West Ham give managers more time than most clubs before sacking them?**\
+`West Ham tend to give managers more time — and avoid sacking during contracts`\
+https://nytimes.com/athletic/6003282/2024/12/20/west-ham-manager-sacking-analysis/
+
+**What next for Enciso: Has a new 'mindset' convinced Hurzeler to keep him at Brighton?**\
+`One of the Premier League's great young talents has struggled for opportunities this season. But that might be changing...`\
+https://nytimes.com/athletic/5977586/2024/12/20/what-next-for-enciso-has-a-new-mindset-convinced-fabian-hurzeler-to-keep-him-at-brighton/
+
+**What does an Arteta striker look like? (And does it in any way resemble Alexander Isak?)**\
+`What the Arsenal manager might be looking for in a centre-forward`\
+https://nytimes.com/athletic/6006162/2024/12/20/what-does-an-arteta-striker-look-like/
+
 **Introducing the most dangerous pass in football**\
 `A short vertical pass from a goalkeeper. Sounds harmless enough, right? We analyse the risk and reward behind the pass that drives fans wild`\
 https://nytimes.com/athletic/5991727/2024/12/20/goalkeeper-pass-danger-football-analysis/
