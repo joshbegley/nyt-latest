@@ -1,3 +1,7 @@
+**Scoop City: Two game-changing kicks to discuss**\
+`This article is from Scoop City, The Athletic&#8217;s daily NFL newsletter.`\
+https://nytimes.com/athletic/6009568/2024/12/20/free-kick-chargers-onside-kick-lions-scoop-city/
+
 **Watch Julianne Moore and Tilda Swinton Connect in ‘The Room Next Door’**\
 `The writer and director Pedro Almodóvar narrates a bittersweet sequence between the two at a luxurious home.`\
 https://nytimes.com/2024/12/20/movies/julianne-moore-tilda-swinton-room-next-door-clip.html
