@@ -1,3 +1,7 @@
+**The Bounce: Who are the NBA's most clutch players this season? Plus, why Jalen Williams is a star**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6009084/2024/12/20/deaaron-fox-jayson-tatum-nikola-jokic-karl-anthony-towns-knicks-timberwolves-jalen-williams-thunder-nba-the-bounce/
+
 **The Government Shutdown: What Travelers Need to Know**\
 `The failure to act by Congress could cause airport lines and other disruptions across the travel industry during a busy holiday travel period.`\
 https://nytimes.com/2024/12/20/travel/government-shutdown-travel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6009191/2024/12/20/emiliano-martinez-aston-villa/
 **Karl-Anthony Towns' return to Minnesota 'wasn't just another game'**\
 `Before an emotional night at Target Center, Towns took some time for himself to reminisce: "I was committed to retiring here."`\
 https://nytimes.com/athletic/6008884/2024/12/20/karl-anthony-towns-timberwolves-return-knicks-trade/
-
-**Jimmy Butler trade hurdles and more NBA trends that have caught my eye**\
-`Plus: How Alex Caruso is getting the Josh Giddey treatment and a unique approach to rebounding in New Orleans.`\
-https://nytimes.com/athletic/6008111/2024/12/20/jimmy-butler-trade-rumors-nba-trends/
 
