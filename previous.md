@@ -1,3 +1,11 @@
+**LeBron James leads defensive charge as Lakers grab key win at Sacramento**\
+`"I really felt like this might be my favorite win we've had all season," coach JJ Redick said.`\
+https://nytimes.com/athletic/6008521/2024/12/20/lakers-defense-lebron-james/
+
+**Brighton consider recalling Yalcouye from Sturm Graz loan**\
+`Brighton &amp; Hove Albion are considering recalling Malick Yalcouye from a season-long loan with Austrian Champions League participants Sturm Graz.`\
+https://nytimes.com/athletic/6009248/2024/12/20/malick-yalcouye-brighton-loan-return/
+
 **Row Z: Gladiator quotes, rogue stewards and how the Unify League marketing meeting really went**\
 `Tim Spiers looks at football's sillier side - featuring some blue-sky thinking and ominous messages of support at Wolves `\
 https://nytimes.com/athletic/6007360/2024/12/20/ange-postecoglou-unify-league-ian-holloway/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6008782/2024/12/20/devin-bookers-suns-health/
 **Jaylen Brown, Celtics lose their cool in loss to Bulls: 'It's been a tough week'**\
 `A spate of technical fouls late doomed Boston's chances. Frustrations boiled after a pair of break-ins affecting the team.`\
 https://nytimes.com/athletic/6008821/2024/12/20/celtics-jaylen-brown-bulls-breakins/
-
-**Cyclone Chido Death Toll Nearly Doubles, to 75, in Mozambique**\
-`The swirling wind and rain hit an area where a yearslong insurgent conflict had already forced hundreds of thousands of people to flee their homes.`\
-https://nytimes.com/2024/12/20/world/africa/cyclone-chido-death-toll-mozambique.html
-
-**Raiders rookie Jonah Laulu is 'being disruptive,' making an impact for his hometown team**\
-`Laulu: “This has been like watching a movie. And I have to look again closely at the screen because I am the star.”`\
-https://nytimes.com/athletic/6008301/2024/12/20/raiders-jonah-laulu-vegas-hometown/
 

@@ -1,3 +1,11 @@
+**LeBron James leads defensive charge as Lakers grab key win at Sacramento**\
+`"I really felt like this might be my favorite win we've had all season," coach JJ Redick said.`\
+https://nytimes.com/athletic/6008521/2024/12/20/lakers-defense-lebron-james/
+
+**Brighton consider recalling Yalcouye from Sturm Graz loan**\
+`Brighton &amp; Hove Albion are considering recalling Malick Yalcouye from a season-long loan with Austrian Champions League participants Sturm Graz.`\
+https://nytimes.com/athletic/6009248/2024/12/20/malick-yalcouye-brighton-loan-return/
+
 **Row Z: Gladiator quotes, rogue stewards and how the Unify League marketing meeting really went**\
 `Tim Spiers looks at football's sillier side - featuring some blue-sky thinking and ominous messages of support at Wolves `\
 https://nytimes.com/athletic/6007360/2024/12/20/ange-postecoglou-unify-league-ian-holloway/
