@@ -1,3 +1,7 @@
+**Chargers score vs. Broncos with rarely-used fair-catch kick rule**\
+`The l ast successful kick was also by the Chargers in 1976 by Ray Wersching.`\
+https://nytimes.com/athletic/6008537/2024/12/19/chargers-fair-catch-kick/
+
 **Phillies add Max Kepler on 1-year-deal, but offseason picture remains incomplete**\
 `If anything, the Kepler deal signals the Phillies will lean into mixing and matching again in their outfield.`\
 https://nytimes.com/athletic/6008322/2024/12/19/max-kepler-contract-phillies-mlb-free-agency/
