@@ -1,3 +1,7 @@
+**An X-supported bill to help victims of deepfake porn fell with the spending measure Musk helped kill.**\
+`By Kate Conger`\
+https://nytimes.com/live/2024/12/20/us/government-shutdown-trump-news/an-x-supported-bill-to-help-victims-of-deepfake-porn-fell-with-the-spending-measure-musk-help-kill
+
 **Biden Administration Weighs Putting Up Roadblocks to Trump’s Deportation Campaign**\
 `The administration may extend protections for hundreds of thousands of immigrants whose legal status is set to expire near the start of the Trump administration.`\
 https://nytimes.com/2024/12/20/us/politics/biden-trump-deportation-protection.html

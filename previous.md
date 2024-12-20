@@ -1,3 +1,7 @@
+**An X-supported bill to help victims of deepfake porn fell with the spending measure Musk helped kill.**\
+`By Kate Conger`\
+https://nytimes.com/live/2024/12/20/us/government-shutdown-trump-news/an-x-supported-bill-to-help-victims-of-deepfake-porn-fell-with-the-spending-measure-musk-help-kill
+
 **Biden Administration Weighs Putting Up Roadblocks to Trump’s Deportation Campaign**\
 `The administration may extend protections for hundreds of thousands of immigrants whose legal status is set to expire near the start of the Trump administration.`\
 https://nytimes.com/2024/12/20/us/politics/biden-trump-deportation-protection.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/business/dealbook/sports-branding.html
 **The Trinidadian Christmas Staple Worth the Yearlong Wait**\
 `Chow chow, a bright and bracing pickled relish, is essential to the holiday table in Trinidad and Tobago — and the perfect accompaniment to ham.`\
 https://nytimes.com/2024/12/20/dining/christmas-chow-chow-trinidad-tobago.html
-
-**Why Luigi Mangione Faces 2 Murder Cases Tied to One Killing**\
-`Federal and state prosecutors will follow a delicate legal choreography after characterizing Mr. Mangione’s actions differently in the fatal shooting of Brian Thompson.`\
-https://nytimes.com/2024/12/20/nyregion/luigi-mangione-charges-what-to-know.html
 
