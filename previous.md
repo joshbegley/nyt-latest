@@ -1,3 +1,15 @@
+**Watch Julianne Moore and Tilda Swinton Connect in ‘The Room Next Door’**\
+`The writer and director Pedro Almodóvar narrates a bittersweet sequence between the two at a luxurious home.`\
+https://nytimes.com/2024/12/20/movies/julianne-moore-tilda-swinton-room-next-door-clip.html
+
+**This Classic Kwanzaa Cookbook Invites Improvisation**\
+`Dr. Jessica B. Harris revisits and expands “A Kwanzaa Keepsake,” her highly personal book from 1995.`\
+https://nytimes.com/2024/12/20/dining/kwanzaa-cookbook.html
+
+**‘The Room Next Door’ | Anatomy of a Scene**\
+`Pedro Almodóvar narrates a sequence from his film starring Julianne Moore and Tilda Swinton.`\
+https://nytimes.com/video/movies/100000009886144/the-room-next-door-scene.html
+
 **Fantasy football flex fliers: Jalen McMillan, Patrick Taylor Jr. could deliver in Week 16**\
 `Scott Engel says Jalen McMillan, Patrick Taylor Jr. and more are available in free agency and can be started in a pinch in Week 16. `\
 https://nytimes.com/athletic/6009393/2024/12/20/fantasy-football-flex-fliers-week-16/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6009332/2024/12/20/notre-dame-indiana-weather-snow-
 **The Bounce: Who are the NBA's most clutch players this season? Plus, why Jalen Williams is a star**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6009084/2024/12/20/deaaron-fox-jayson-tatum-nikola-jokic-karl-anthony-towns-knicks-timberwolves-jalen-williams-thunder-nba-the-bounce/
-
-**The Government Shutdown: What Travelers Need to Know**\
-`The failure to act by Congress could cause airport lines and other disruptions across the travel industry during a busy holiday travel period.`\
-https://nytimes.com/2024/12/20/travel/government-shutdown-travel.html
-
-**Ohio Stadium is ready for Playoff fireworks: 'Anything we can blow up, we’ll blow up'**\
-`Ohio State's stadium staff had to quickly move on from Michigan and get ready for the long-planned challenge of hosting a Playoff game.`\
-https://nytimes.com/athletic/6009217/2024/12/20/ohio-state-stadium-playoff-home-game-tennessee/
-
-**Penguins Today: Could Erik Karlsson be a short-term Superman?**\
-`Karlsson has been better lately, which has us wondering how a playoff appearance could lift his game.`\
-https://nytimes.com/athletic/6009318/2024/12/20/penguins-today-erik-karlsson/
 
