@@ -1,3 +1,11 @@
+**2024: The Year in Visual Stories and Graphics.**\
+`Selected Times graphics, visualizations and multimedia stories published this year. All free to read for a limited time.`\
+https://nytimes.com/interactive/2024/12/20/us/2024-year-in-graphics.html
+
+**The Best Friends They Left Behind**\
+`The beloved pets of some of the notable people we lost this year.`\
+https://nytimes.com/interactive/2024/12/20/magazine/dogs-cats-pets-friends.html
+
 **Driver Rams Christmas Market in Germany, Injuring Dozens**\
 `Videos posted online suggested several people were wounded. The driver was arrested, according to local news reports.`\
 https://nytimes.com/2024/12/20/world/europe/germany-christmas-market-crash.html
