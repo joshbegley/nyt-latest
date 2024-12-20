@@ -1,3 +1,11 @@
+**Michael Brewer, Whose ‘One Toke’ Was a Big Hit, Is Dead at 80**\
+`The duo he formed with Tom Shipley reached the Top 10 in 1970 with “One Toke Over the Line,” a ditty about marijuana that ran afoul of censors.`\
+https://nytimes.com/2024/12/20/arts/music/michael-brewer-dead.html
+
+**F.D.A. Approves Weight Loss Drug to Treat Obstructive Sleep Apnea**\
+`Zepbound is the first prescription drug approved specifically to treat the common condition.`\
+https://nytimes.com/2024/12/20/well/zepbound-sleep-apnea.html
+
 **A Shutdown’s Economic Toll: Less Spending, More Uncertainty**\
 `A short lapse in funding would probably do only modest damage. But it could send a troubling signal about government dysfunction.`\
 https://nytimes.com/2024/12/20/business/economy/government-shutdown-economy-impact.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6009595/2024/12/20/santa-claus-christmas-trading-ca
 **Biden to Withdraw Unfinished Student Debt Proposals for 38 Million Borrowers**\
 `The decision to withdraw the regulations was a tacit acknowledgment that they would go nowhere under the Trump administration.`\
 https://nytimes.com/2024/12/20/us/politics/biden-withdraw-student-debt-proposals.html
-
-**Police Respond to Vehicle Ramming Attack at German Christmas Market**\
-`Emergency responders attended to an incident at a Christmas market in Magdeburg, Germany, on Friday.`\
-https://nytimes.com/video/world/europe/100000009890750/germany-attack-christmas-market.html
-
-**Naomi Feil Developed a Radical Approach to Caring for Dementia Patients**\
-`She believed that people with dementia were desperate to connect.`\
-https://nytimes.com/interactive/2024/12/20/magazine/naomi-feil-dementia.html
 
