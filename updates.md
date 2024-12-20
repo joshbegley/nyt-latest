@@ -1,3 +1,7 @@
+**Dele confirms Everton exit: 'Things haven't worked out as we hoped'**\
+`Dele Alli has confirmed he will be leaving Everton after conceding &#8220;things haven&#8217;t worked out as we all would have hoped&#8221;.`\
+https://nytimes.com/athletic/6009180/2024/12/20/dele-alli-everton-exit/
+
 **The Fed’s Preferred Inflation Measure Sped Up in November**\
 `The Personal Consumption Expenditures index climbed 2.4 percent from a year earlier, though the report’s details were more subdued than expected.`\
 https://nytimes.com/2024/12/20/business/economy/inflation-pce-fed.html
