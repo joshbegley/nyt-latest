@@ -1,3 +1,7 @@
+**In Late Push, Senate Democrats Narrowly Top Trump on Judicial Confirmations**\
+`With the vote, the Senate approved its 235th lifetime judge of President Biden’s tenure, besting his predecessor by a single judgeship.`\
+https://nytimes.com/2024/12/20/us/politics/senate-democrats-judges-biden.html
+
 **U.S. Prisons Flout Law by Keeping Inmates Past Release Date, A.C.L.U. Says**\
 `Tens of thousands of prisoners deemed to be at low risk of committing crimes again have languished in lockup for as long as a year after they reached their release date under the First Step Act.`\
 https://nytimes.com/2024/12/20/us/politics/prisons-first-step-act-aclu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/us/missouri-governor-commutation-police-killing.h
 **The Budget Fight and Trump’s Nihilistic Style**\
 `A surprise congressional standoff remind us that big, discordant change could be coming.`\
 https://nytimes.com/2024/12/20/opinion/trump-shutdown-allegiances.html
-
-**G.O.P. Spending Hawks Defy Trump on the Debt Limit, Previewing More Clashes**\
-`President-elect Donald J. Trump is known for his tight grip on members of his party, but the rare rejection of his demand to raise the debt limit reflected a disconnect that could plague his policy agenda.`\
-https://nytimes.com/2024/12/20/us/politics/gop-spending-hawks-trump-debt.html
 
