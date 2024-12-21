@@ -1,3 +1,19 @@
+**Congress Approves Full Social Security Benefits for Public Sector Retirees**\
+`The popular measure gives full benefits to millions of people who currently receive them at a reduced level. Critics warn the $196 billion cost will speed up the program’s insolvency.`\
+https://nytimes.com/2024/12/21/us/congress-social-security.html
+
+**Wild preach urgency — not panic — during biggest funk of season: Takeaways vs. Utah**\
+`There are legitimate concerns brewing right now after the Wild lost their third straight game. `\
+https://nytimes.com/athletic/6010395/2024/12/21/wild-utah-takeaways-mats-zuccarello/
+
+**Losing Muriel Furrer – a teenage cycling tragedy and a family's search for answers**\
+`Muriel Furrer crashed at cycling's World Championships and wasn't found for about 90 minutes. Her shocking death has brought devastation`\
+https://nytimes.com/athletic/6006406/2024/12/21/muriel-furrer-cycling-death/
+
+**How Merseyside became America's 51st state**\
+`With two clubs in U.S. hands and another possibly to follow, what is the appeal of Merseyside - and what are the potential pitfalls?`\
+https://nytimes.com/athletic/5989076/2024/12/21/liverpool-everton-tranmere-us-owners-takeover/
+
 **Inside the world of opposition analysis: 'It's not about what they do, it’s about what we need to do'**\
 `Opposition analysts reveal what they do, how they work with managers, and what effect they really have on results`\
 https://nytimes.com/athletic/6009022/2024/12/21/inside-the-world-of-opposition-analysis/
