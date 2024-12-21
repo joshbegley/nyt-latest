@@ -1,3 +1,15 @@
+**Atmospheric Rivers Will Drench the West Coast**\
+`A parade of storms is expected to heighten the flood risk in the Pacific Northwest and Northern California over the next week.`\
+https://nytimes.com/2024/12/21/weather/atmospheric-rivers-will-drench-the-west-coast.html
+
+**Go With the Flow**\
+`Adrian Johnson brings his themeless acumen to a larger arena.`\
+https://nytimes.com/2024/12/21/crosswords/daily-puzzle-2024-12-22.html
+
+**Rickey Henderson, MLB's stolen-base king, dies at 65**\
+`Henderson is MLB's all-time leader in stolen bases and runs, and is widely known as the best leadoff hitter ever to play.`\
+https://nytimes.com/athletic/6010471/2024/12/21/rickey-henderson-death-mlb-athletics-yankees/
+
 **‘A Gift to Everyone’: A Wisconsin Community Mourns a School Shooting Victim**\
 `Rubi Patricia Vergara was one of two victims killed in Madison this week. At a memorial service, she was remembered as an empathetic teenager with a passion for music and art.`\
 https://nytimes.com/2024/12/21/us/wisconsin-school-shooting-victim-memorial.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/21/world/middleeast/iran-economy-energy-crisis.html
 **Penn State routs not-ready-for-prime-time SMU: What does it say about the Playoff?**\
 `Two early pick sixes sent Penn State on its way to a 38-10 Playoff rout of SMU and a quarterfinal date with Boise State in the Fiesta Bowl.`\
 https://nytimes.com/athletic/6011481/2024/12/21/penn-state-smu-score-college-football-playoff/
-
-**Texans WR Tank Dell to remain hospitalized following severe knee injury**\
-`On a deep throw intended for Dell, Houston wide receiver Jared Wayne was in the vicinity of the play and collided with Dell’s knee.`\
-https://nytimes.com/athletic/6011548/2024/12/21/houston-texans-tank-dell-chiefs-knee-injury/
-
-**Bronny James puts together uneven showing at G League Winter Showcase**\
-`We don't have this level of scrutiny for most 20-year-old rookies, but James' two games in Orlando were a mixed bag to say the least.`\
-https://nytimes.com/athletic/6011369/2024/12/21/bronny-james-g-league-showcase-recap/
-
-**Arteta 'pretty worried' by Saka hamstring injury**\
-`Mikel Arteta says Bukayo Saka will have tests to determine the extent of a hamstring injury picked up during Arsenal&#8217;s 5-1 win over Crystal Palace on Saturday.`\
-https://nytimes.com/athletic/6011373/2024/12/21/bukayo-saka-hamstring-arsenal/
 
