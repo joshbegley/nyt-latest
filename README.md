@@ -1,3 +1,11 @@
+**The Waging of an Alleged Smear Campaign Against Blake Lively**\
+`The movie “It Ends With Us” starring Blake Lively was a huge box office hit, even as rumors spread of turmoil behind the scenes.`\
+https://nytimes.com/video/arts/100000009874263/the-waging-of-an-alleged-smear-campaign-against-blake-lively.html
+
+**Tennessee at Ohio State: How to watch, odds, picks for CFP first-round game**\
+`Ohio State hosts Tennessee in a matchup of two of college football's best defenses. The Buckeyes are favored by a touchdown.`\
+https://nytimes.com/athletic/5981997/2024/12/21/tennessee-ohio-state-how-to-watch-odds-college-football-playoff/
+
 **Yankees agree to 1-year deal with 1B Paul Goldschmidt**\
 `Goldschmidt will fill a need for the Yankees after the departure of first baseman Anthony Rizzo.`\
 https://nytimes.com/athletic/6011350/2024/12/21/paul-goldschmidt-contract-yankees-mlb-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5993177/2024/12/21/ipswich-town-0-newcastle-united-
 **NFL Week 16 fantasy, betting cheat sheet: Hollywood Brown set to debut, Pickens ruled out**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/6001045/2024/12/21/nfl-week-16-fantasy-football-betting-cheat-sheet/
-
-**Amazon Warehouse Workers in New York City Join Protest**\
-`The workers’ union hopes that adding employees at the Staten Island warehouse to a protest started by delivery drivers will increase pressure on Amazon.`\
-https://nytimes.com/2024/12/21/business/amazon-warehouse-staten-island-strike.html
-
-**Party City to Close All Stores by February, Company Says**\
-`In an internal letter, the company said inflation and changes in consumer spending had forced it to shut its more than 700 stores.`\
-https://nytimes.com/2024/12/21/business/party-city-closing.html
 
