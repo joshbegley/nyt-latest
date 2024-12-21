@@ -1,3 +1,7 @@
+**RFK bill passes by unanimous consent, making D.C. an option for Commanders' stadium**\
+`The U.S. Senate passed legislation early Saturday morning that would give the District of Columbia control of the 174-acre RFK campus. `\
+https://nytimes.com/athletic/6010275/2024/12/21/washington-commanders-rfk-bill-passed-district-of-columbia/
+
 **Sampson: Notre Dame knows who it is. It can change how others see it against Georgia**\
 `It's hard not to look ahead to Jan. 1 because the Sugar Bowl vs. Georgia is a chance for Notre Dame football to change its perception.`\
 https://nytimes.com/athletic/6010755/2024/12/21/notre-dame-indiana-playoff-georgia-sugar-bowl/

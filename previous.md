@@ -1,3 +1,7 @@
+**RFK bill passes by unanimous consent, making D.C. an option for Commanders' stadium**\
+`The U.S. Senate passed legislation early Saturday morning that would give the District of Columbia control of the 174-acre RFK campus. `\
+https://nytimes.com/athletic/6010275/2024/12/21/washington-commanders-rfk-bill-passed-district-of-columbia/
+
 **Sampson: Notre Dame knows who it is. It can change how others see it against Georgia**\
 `It's hard not to look ahead to Jan. 1 because the Sugar Bowl vs. Georgia is a chance for Notre Dame football to change its perception.`\
 https://nytimes.com/athletic/6010755/2024/12/21/notre-dame-indiana-playoff-georgia-sugar-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/opinion/anonymous-sperm-donations.html
 **For Some, a Silver Lining in Alzheimer’s Caregiving**\
 `Readers discuss a guest essay by a woman who finds things to cherish in caring for her dad.`\
 https://nytimes.com/2024/12/21/opinion/alzheimers.html
-
-**Lindsey Vonn finishes 14th in Super-G race in return to World Cup circuit**\
-`After almost six years away from the sport, Lindsey Vonn made a strong return to the World Cup circuit Saturday.`\
-https://nytimes.com/athletic/6008142/2024/12/21/lindsey-vonn-return-world-cup-super-g-olympics/
 
