@@ -1,3 +1,15 @@
+**Read the Complaint**\
+`Blake Lively v. Wayfarer Studios LLC et al`\
+https://nytimes.com/interactive/2024/12/21/us/complaint-of-blake-lively-v-wayfarer-studios-llc-et-al.html
+
+**Christian Pulisic: Christian Pulisic: Berhalter's USMNT return and exit, Pochettino arrival and pressure of fame**\
+`Christian Pulisic spoke to GQ about a number of topics after an interesting year for the US men's national team`\
+https://nytimes.com/athletic/6010058/2024/12/21/christian-pulisic-usmnt-gregg-berhalter/
+
+**Read the Statement**\
+`Statement to The New York Times from Bryan Freedman, attorney for Justin Baldoni, Wayfarer Studios and all its representatives.`\
+https://nytimes.com/interactive/2024/12/21/us/statement-to-the-new-york-times.html
+
 **Why struggling Kings have entered the danger zone around De'Aaron Fox's future**\
 `League sources say the Spurs are positioning for a pursuit of the All-Star as a partner for Victor Wembanyama, should Fox become available.`\
 https://nytimes.com/athletic/6010644/2024/12/21/deaaron-fox-kings-contract-trade-nba-spurs/
@@ -26,4 +38,3 @@ https://nytimes.com/2024/12/21/health/drugstore-closures-seniors.html
 `Rate cuts, stock surges, and Trump’s tariff threats are among the biggest forces shaping business and the economy.`\
 https://nytimes.com/2024/12/21/business/dealbook/business-economy-charts.html
 
-**Heroes in Their Twilight Years, and Still in the Spotlight**\
