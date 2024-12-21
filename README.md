@@ -1,3 +1,7 @@
+**Lee Edwards, Historian of the Conservative Movement, Dies at 92**\
+`In his books about Ronald Reagan, Barry Goldwater and other figures on the right, he was, one observer said, “a keeper of the flame and spreader of the gospel.”`\
+https://nytimes.com/2024/12/21/us/politics/lee-edwards-dead.html
+
 **Patrick Mahomes leads Chiefs over Texans in 27-19 win: Takeaways**\
 `Mahomes opened the second half with an 8-yard touchdown to Xavier Worthy to give Kansas City a 24-16 lead`\
 https://nytimes.com/athletic/6011071/2024/12/21/texans-chiefs-score-result-takeaways-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011373/2024/12/21/bukayo-saka-hamstring-arsenal/
 **Homeless Woman Going Into Labor Is Cited for Violating Camping Ban**\
 `Body-camera footage shows an officer from the Louisville Metro Police Department in Kentucky detain the woman, who gave birth later that day.`\
 https://nytimes.com/2024/12/21/us/kentucky-woman-pregnant-homeless-police.html
-
-**Paul Goldschmidt headed to Yankees: Reflecting on his Cardinals tenure**\
-`Goldschmidt will be missed throughout the organization, with teammates, coaches and executives praising his professionalism.`\
-https://nytimes.com/athletic/6011302/2024/12/21/paul-goldschmidt-cardinals-yankees/
 
