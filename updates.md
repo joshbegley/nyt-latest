@@ -1,3 +1,11 @@
+**Southampton confirm Juric as new manager**\
+`Southampton have confirmed the appointment of Ivan Juric as their new manager.`\
+https://nytimes.com/athletic/6008993/2024/12/21/ivan-juric-southampton/
+
+**The Briefing: Ipswich Town 0 Newcastle United 4 - Isak's hat-trick, Murphy magic and are Newcastle back?**\
+`Chris Waugh breaks down the main talking points from Newcastle's dominant 4-0 win at Ipswich Town`\
+https://nytimes.com/athletic/5993177/2024/12/21/ipswich-town-0-newcastle-united-4-isak-murphy/
+
 **Amazon Warehouse Workers in New York City Join Protest**\
 `The workers’ union hopes that adding employees at the Staten Island warehouse to a protest started by delivery drivers will increase pressure on Amazon.`\
 https://nytimes.com/2024/12/21/business/amazon-warehouse-staten-island-strike.html

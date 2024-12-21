@@ -1,3 +1,11 @@
+**Southampton confirm Juric as new manager**\
+`Southampton have confirmed the appointment of Ivan Juric as their new manager.`\
+https://nytimes.com/athletic/6008993/2024/12/21/ivan-juric-southampton/
+
+**The Briefing: Ipswich Town 0 Newcastle United 4 - Isak's hat-trick, Murphy magic and are Newcastle back?**\
+`Chris Waugh breaks down the main talking points from Newcastle's dominant 4-0 win at Ipswich Town`\
+https://nytimes.com/athletic/5993177/2024/12/21/ipswich-town-0-newcastle-united-4-isak-murphy/
+
 **Amazon Warehouse Workers in New York City Join Protest**\
 `The workers’ union hopes that adding employees at the Staten Island warehouse to a protest started by delivery drivers will increase pressure on Amazon.`\
 https://nytimes.com/2024/12/21/business/amazon-warehouse-staten-island-strike.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/12/21/us/statement-to-the-new-york-times.ht
 **Why struggling Kings have entered the danger zone around De'Aaron Fox's future**\
 `League sources say the Spurs are positioning for a pursuit of the All-Star as a partner for Victor Wembanyama, should Fox become available.`\
 https://nytimes.com/athletic/6010644/2024/12/21/deaaron-fox-kings-contract-trade-nba-spurs/
-
-**‘We Can Bury Anyone’: Inside a Hollywood Smear Machine**\
-`Private messages detail an alleged campaign to smear Blake Lively after she accused Justin Baldoni of misconduct on the set of “It Ends With Us.”`\
-https://nytimes.com/2024/12/21/business/media/blake-lively-justin-baldoni-it-ends-with-us.html
-
-**The Briefing: Aston Villa 2 Man City 1 - Duran takes his chance, nine defeats in 12 for Guardiola's side ﻿**\
-`Jacob Tanswell, Thom Harris and Anantaajith Raghuraman analyse the key talking points from Aston Villa's victory over Manchester City`\
-https://nytimes.com/athletic/5993151/2024/12/21/aston-villa-manchester-city-analysis/
 
