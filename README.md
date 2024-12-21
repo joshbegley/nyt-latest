@@ -1,3 +1,7 @@
+**Rexrode: Indiana deserved its Playoff bid even if its schedule helped it get there**\
+`It’s OK to love the story of the 2024 Indiana Hoosiers and admit the script had a ghostwriter known as the Big Ten scheduling computer.`\
+https://nytimes.com/athletic/6010572/2024/12/21/indiana-notre-dame-college-football-playoff-committee-debate/
+
 **Igor Shesterkin and a pristine penalty kill rally the Rangers: 3 takeaways**\
 `Matt Rempe returned for the first time since November, but after an elbowing major, supplemental discipline may be coming.`\
 https://nytimes.com/athletic/6010542/2024/12/21/rangers-penalty-kill-matt-rempe-miro-heiskanen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5989076/2024/12/21/liverpool-everton-tranmere-us-ow
 **Inside the world of opposition analysis: 'It's not about what they do, it’s about what we need to do'**\
 `Opposition analysts reveal what they do, how they work with managers, and what effect they really have on results`\
 https://nytimes.com/athletic/6009022/2024/12/21/inside-the-world-of-opposition-analysis/
-
-**Jesus Navas: 'Sometimes the pain in my hip makes it tough to even play with my kids'**\
-`The Sevilla legend plays the 943rd and final match of his career on Sunday. He speaks exclusively to The Athletic about his 22-year career`\
-https://nytimes.com/athletic/6003111/2024/12/21/jesus-navas-retires-interview-sevilla-hip-pain/
 
