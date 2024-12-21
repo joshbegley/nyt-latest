@@ -1,3 +1,23 @@
+**Terrorism Roars Back in Pakistan, 10 Years After a Campaign to End It**\
+`Political instability, dwindling public support and economic constraints are eroding the costly gains that the country made in combating militancy after a ghastly school attack in 2014.`\
+https://nytimes.com/2024/12/21/world/asia/pakistan-terrorism.html
+
+**For Syria’s Economy, the Way Forward Starts With Sanctions Relief**\
+`Years of strife ruined the energy sector, battered the currency and strangled growth. The West must ease financial controls to help the economy, experts say.`\
+https://nytimes.com/2024/12/21/business/economy/syria-economy-sanctions.html
+
+**The Winter Solstice Is Upon Us. Here Comes the Sun Bread.**\
+`A joyful baked creation, taken from a children’s book, celebrates the return of longer days.`\
+https://nytimes.com/2024/12/21/dining/sun-bread-winter-solstice-recipe.html
+
+**Aston Villa vs Man City preview, storylines, odds, prediction: Can City stop slide?**\
+`Manchester City's beyond-belief slide continues. Can Aston Villa add more pain for City fans?`\
+https://nytimes.com/athletic/6009861/2024/12/21/aston-villa-manchester-city-preview-odds-prediction/
+
+**Quote of the Day: When Your $3 Million Cello Is Bumped From Your Flight**\
+`Quotation of the Day for Saturday, December 21, 2024`\
+https://nytimes.com/2024/12/20/pageoneplus/quote-of-the-day-when-your-3-million-cello-is-bumped-from-your-flight.html
+
 **Notre Dame rolls past Indiana in College Football Playoff opening game: What's next?**\
 `Notre Dame controlled the game in a 27-17 win and will advance to the Sugar Bowl against Georgia.`\
 https://nytimes.com/athletic/6010457/2024/12/20/notre-dame-indiana-college-football-playoff/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/20/technology/google-antitrust-case-chrome.html
 **Google Proposes Fix to Solve Search Monopoly**\
 `The search giant’s proposals included allowing flexibility for companies and consumers in choosing a search engine.`\
 https://nytimes.com/2024/12/20/technology/google-antitrust-search-remedies.html
-
-**Chicago Board of Education Votes to Fire Leader of City’s School System**\
-`The job status of Pedro Martinez, the chief executive of Chicago Public Schools, had been in doubt for months amid tension with Mayor Brandon Johnson.`\
-https://nytimes.com/2024/12/20/us/chicago-public-schools-pedro-martinez.html
-
-**It’s a Little Shady**\
-`Barbara Lin and Lewis Rothlein’s puzzle packs the right amount of punch.`\
-https://nytimes.com/2024/12/20/crosswords/daily-puzzle-2024-12-21.html
-
-**Corrections: Dec. 21, 2024**\
-`Corrections that appeared in print on Saturday, Dec. 21, 2024.`\
-https://nytimes.com/2024/12/20/pageoneplus/corrections-dec-21-2024.html
-
-**Guatemalan Officials Raid Compound of Jewish Sect and Remove Dozens of Minors**\
-`The authorities say at least 160 children and teenagers may have been victims of human trafficking and other crimes on a farm run by an ultra-Orthodox sect, Lev Tahor.`\
-https://nytimes.com/2024/12/20/world/americas/guatemala-raid-ultra-orthodox-jewish-sect.html
-
-**In Search of Loved Ones, Syrian Women Face Horror of Assad’s Regime**\
-`In Syria, women begin to pick up the pieces of a broken nation.`\
-https://nytimes.com/2024/12/20/magazine/syria-civil-war-women.html
 
