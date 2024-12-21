@@ -1,3 +1,7 @@
+**The Briefing: Crystal Palace 1 Arsenal 5 - Is Jesus the answer? How worrying is Saka's injury?**\
+`Analysis of Arsenal's victory over Crystal Palace`\
+https://nytimes.com/athletic/5993189/2024/12/21/arsenal-palace-highlights-jesus-goals/
+
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
 https://nytimes.com/athletic/5891633/2024/12/21/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/

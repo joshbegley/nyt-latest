@@ -1,3 +1,7 @@
+**The Briefing: Crystal Palace 1 Arsenal 5 - Is Jesus the answer? How worrying is Saka's injury?**\
+`Analysis of Arsenal's victory over Crystal Palace`\
+https://nytimes.com/athletic/5993189/2024/12/21/arsenal-palace-highlights-jesus-goals/
+
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
 https://nytimes.com/athletic/5891633/2024/12/21/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011199/2024/12/21/arsenal-sterling-injury/
 **Feldman: Sorry, Lane Kiffin. Indiana earned its spot in the Playoff**\
 `Because the Hoosiers were getting handled for much of Friday night at Notre Dame, it became easy for those who got left out to take shots.`\
 https://nytimes.com/athletic/6011144/2024/12/21/indiana-lane-kiffin-college-football-playoff/
-
-**Biden Signs Spending Bill, Finalizing End to Shutdown Drama**\
-`President Biden’s signature, while technically coming after the midnight deadline for a shutdown, ensured that there would be no lapse in government funding.`\
-https://nytimes.com/2024/12/21/us/politics/biden-signs-spending-bill.html
 
