@@ -1,3 +1,7 @@
+**Jonathan Roumie Plays Jesus to Millions. It Can Get Intense.**\
+`The star of “The Chosen” discusses his early struggles in Hollywood, fans who conflate him with his character and how his own faith informs his work.`\
+https://nytimes.com/2024/12/21/magazine/jonathan-roumie-interview.html
+
 **In ‘Mrs. Stern’ and ‘Racecar,’ Humans Keep Repeating Their Worst Mistakes**\
 `Pernicious patterns figure heavily in two thought-provoking plays on small Manhattan stages.`\
 https://nytimes.com/2024/12/21/theater/mrs-stern-racecar-racecar-racecar-review.html
