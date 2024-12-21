@@ -1,3 +1,15 @@
+**In Top Minister’s Resignation, Shades of an Earlier Political Crisis for Trudeau**\
+`Chrystia Freeland’s departure this week recalls the 2019 SNC-Lavalin affair, in which Jody Wilson-Raybould quit Prime Minister Justin Trudeau’s cabinet after a demotion.`\
+https://nytimes.com/2024/12/21/world/canada/in-top-ministers-resignation-shades-of-an-earlier-political-crisis-for-trudeau.html
+
+**Wordle Review No. 1,282**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 22, 2024.`\
+https://nytimes.com/2024/12/21/crosswords/wordle-review-1282.html
+
+**The Connections Companion No. 560**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 22, 2024.`\
+https://nytimes.com/2024/12/21/crosswords/connections-companion-560.html
+
 **André 3000 Performs in the New York Times Newsroom**\
 `After an interview on The Times’s Popcast podcast, André 3000 and the band behind “New Blue Sun” — featuring Surya Botofasina, Nate Mercereau, Carlos Niño and Deantoni Parks — performed an improvised piece in the newsroom.`\
 https://nytimes.com/video/podcasts/100000009887667/andre-3000-music-popcast-clip.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/21/business/egg-prices-bird-flu.html
 **From Liberal Icon to MAGA Joke: The Waning Fortunes of Justin Trudeau**\
 `Canada’s prime minister gained global renown 10 years ago for his unabashedly progressive politics. But at home, voters turned sour on him long ago.`\
 https://nytimes.com/2024/12/21/world/canada/justin-trudeau-canada-popularity-decline.html
-
-**What Is It About the Doechii Aesthetic?**\
-`Braids as tethers, visible face tape, hip-hop-inflected preppiness: Recent looks by the Grammy-nominated rapper have inspired fascination and at least one nail-art tribute.`\
-https://nytimes.com/2024/12/21/style/doechii-fashion.html
-
-**The Best Holiday Brunches Start With This Supermarket Ingredient**\
-`Turn store-bought croissants into so much more with these effortless recipes for a crowd.`\
-https://nytimes.com/2024/12/21/dining/croissant-christmas-brunch.html
-
-**For Pedro Almodóvar’s Movies, the Poster Tells Its Own Story**\
-`The filmmaker has long collaborated with the graphic designer Juan Gatti to make alluring posters for his films, including one for his latest, “The Room Next Door.”`\
-https://nytimes.com/2024/12/21/movies/pedro-almodovar-movie-posters.html
 
