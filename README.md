@@ -1,3 +1,7 @@
+**Pereira's Wolves unveiling: Five key takeaways from his first press conference**\
+`Vitor Pereira was unveiled as the new Wolves head coach this week — here are the takeaways from his first press conference`\
+https://nytimes.com/athletic/6009185/2024/12/21/vitor-pereira-wolves-press-conference-analysis/
+
 **Congress Approves Full Social Security Benefits for Public Sector Retirees**\
 `The popular measure gives full benefits to millions of people who currently receive them at a reduced level. Critics warn the $196 billion cost will speed up the program’s insolvency.`\
 https://nytimes.com/2024/12/21/us/congress-social-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006522/2024/12/21/brazilian-club-ownership-multi-c
 **Terrorism Roars Back in Pakistan, 10 Years After a Campaign to End It**\
 `Political instability, dwindling public support and economic constraints are eroding the costly gains that the country made in combating militancy after a ghastly school attack in 2014.`\
 https://nytimes.com/2024/12/21/world/asia/pakistan-terrorism.html
-
-**For Syria’s Economy, the Way Forward Starts With Sanctions Relief**\
-`Years of strife ruined the energy sector, battered the currency and strangled growth. The West must ease financial controls to help the economy, experts say.`\
-https://nytimes.com/2024/12/21/business/economy/syria-economy-sanctions.html
 
