@@ -1,3 +1,7 @@
+**The Briefing: Ipswich 0 Newcastle 4 - Isak's hat-trick, Murphy magic and are Howe's team back?**\
+`Chris Waugh breaks down the main talking points from Newcastle's dominant 4-0 win at Ipswich Town`\
+https://nytimes.com/athletic/5993177/2024/12/21/ipswich-town-0-newcastle-united-4-isak-murphy/
+
 **Biden Signs Spending Bill, Finalizing End to Shutdown Drama**\
 `President Biden’s signature, while technically coming after the midnight deadline for a shutdown, ensured that there would be no lapse in government funding.`\
 https://nytimes.com/2024/12/21/us/politics/biden-signs-spending-bill.html
