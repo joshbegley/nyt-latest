@@ -18,6 +18,10 @@ https://nytimes.com/athletic/6008993/2024/12/21/ivan-juric-southampton/
 `Chris Waugh breaks down the main talking points from Newcastle's dominant 4-0 win at Ipswich Town`\
 https://nytimes.com/athletic/5993177/2024/12/21/ipswich-town-0-newcastle-united-4-isak-murphy/
 
+**NFL Week 16 fantasy, betting cheat sheet: Hollywood Brown set to debut, Pickens ruled out**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/6001045/2024/12/21/nfl-week-16-fantasy-football-betting-cheat-sheet/
+
 **Amazon Warehouse Workers in New York City Join Protest**\
 `The workers’ union hopes that adding employees at the Staten Island warehouse to a protest started by delivery drivers will increase pressure on Amazon.`\
 https://nytimes.com/2024/12/21/business/amazon-warehouse-staten-island-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/dining/vegetarian-holiday-recipe.html
 **Haaland on Man City slump: 'I haven't been good enough'**\
 `Erling Haaland says he has &#8220;not been good enough&#8221; after Manchester City&#8217;s dire run of form continued with a 2-1 defeat at Aston Villa on Saturday lunchtime.`\
 https://nytimes.com/athletic/6010960/2024/12/21/erling-haaland-city-form/
-
-**Read the Complaint**\
-`Blake Lively v. Wayfarer Studios LLC et al`\
-https://nytimes.com/interactive/2024/12/21/us/complaint-of-blake-lively-v-wayfarer-studios-llc-et-al.html
 

@@ -1,3 +1,7 @@
+**NFL Week 16 fantasy, betting cheat sheet: Hollywood Brown set to debut, Pickens ruled out**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/6001045/2024/12/21/nfl-week-16-fantasy-football-betting-cheat-sheet/
+
 **Sterling misses Crystal Palace game with injury**\
 `Raheem Sterling was left out of Arsenal&#8217;s squad for their Premier League match against Crystal Palace on Saturday with an injury.`\
 https://nytimes.com/athletic/6011199/2024/12/21/arsenal-sterling-injury/
