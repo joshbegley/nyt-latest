@@ -1,3 +1,7 @@
+**Patrick Mahomes leads Chiefs over Texans in 27-19 win: Takeaways**\
+`Mahomes opened the second half with an 8-yard touchdown to Xavier Worthy to give Kansas City a 24-16 lead`\
+https://nytimes.com/athletic/6011071/2024/12/21/texans-chiefs-score-result-takeaways-nfl/
+
 **Dodgers explore right-handed hitting alternatives beyond free-agent Teoscar Hernández**\
 `As the Dodgers weigh a reunion with Hernández, they've also inquired about free-agent Ha-Seong Kim and potential trade targets in Chicago.`\
 https://nytimes.com/athletic/6011626/2024/12/21/dodgers-teoscar-hernandez-alternatives/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/us/kentucky-woman-pregnant-homeless-police.html
 **Paul Goldschmidt headed to Yankees: Reflecting on his Cardinals tenure**\
 `Goldschmidt will be missed throughout the organization, with teammates, coaches and executives praising his professionalism.`\
 https://nytimes.com/athletic/6011302/2024/12/21/paul-goldschmidt-cardinals-yankees/
-
-**Deception and Betrayal: Inside the Final Days of the Assad Regime**\
-`President Bashar al-Assad, who wielded fear and force over Syria for more than two decades, fled the country under the cover of night — and a fake political address.`\
-https://nytimes.com/2024/12/21/world/middleeast/assad-regime-syria-final-days.html
 
