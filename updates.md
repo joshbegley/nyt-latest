@@ -1,3 +1,7 @@
+**Rickey Henderson, Baseball’s Flamboyant ‘Man of Steal,’ Dies at 65**\
+`Widely regarded as the greatest leadoff hitter in baseball history, he was not just one of the game’s most exciting players, but also one of its most eccentric.`\
+https://nytimes.com/2024/12/21/sports/rickey-henderson-dead.html
+
 **Iran’s Energy Crisis Hits ‘Dire’ Point as Industries Are Forced to Shut Down**\
 `Although Iran has one of the biggest supplies of natural gas and crude oil in the world, it finds itself in a full blown energy emergency, coming just as it also suffers major geopolitical setbacks.`\
 https://nytimes.com/2024/12/21/world/middleeast/iran-economy-energy-crisis.html

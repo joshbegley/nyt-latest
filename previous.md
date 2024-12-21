@@ -1,3 +1,7 @@
+**Rickey Henderson, Baseball’s Flamboyant ‘Man of Steal,’ Dies at 65**\
+`Widely regarded as the greatest leadoff hitter in baseball history, he was not just one of the game’s most exciting players, but also one of its most eccentric.`\
+https://nytimes.com/2024/12/21/sports/rickey-henderson-dead.html
+
 **Iran’s Energy Crisis Hits ‘Dire’ Point as Industries Are Forced to Shut Down**\
 `Although Iran has one of the biggest supplies of natural gas and crude oil in the world, it finds itself in a full blown energy emergency, coming just as it also suffers major geopolitical setbacks.`\
 https://nytimes.com/2024/12/21/world/middleeast/iran-economy-energy-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/world/middleeast/assad-regime-syria-final-days.ht
 **The Briefing: Crystal Palace 1 Arsenal 5 - Is Jesus the answer? How worrying is Saka's injury?**\
 `Analysis of Arsenal's victory over Crystal Palace`\
 https://nytimes.com/athletic/5993189/2024/12/21/arsenal-palace-highlights-jesus-goals/
-
-**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
-`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
-https://nytimes.com/athletic/5891633/2024/12/21/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
 
