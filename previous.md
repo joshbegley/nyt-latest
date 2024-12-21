@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5993151/2024/12/21/aston-villa-manchester-city-analysis/
 
 **Top Uniformed N.Y.P.D. Officer Resigns After Abuse Allegations**\
-`Jeffrey Maddrey traded sexual favors for overtime, according to a report from The New York Post.`\
+`Jeffrey Maddrey traded sexual favors for overtime, according to a report from The New York Post. He had previously been accused of harassment on the job.`\
 https://nytimes.com/2024/12/21/nyregion/nypd-jeffrey-maddrey-resigns.html
 
 **Pope Francis’ Christmas Message to His Top Advisers: Don’t Gossip**\
