@@ -1,3 +1,7 @@
+**It’s a Little Shady**\
+`Barbara Lin and Lewis Rothlein’s puzzle packs the right amount of punch.`\
+https://nytimes.com/2024/12/20/crosswords/daily-puzzle-2024-12-21.html
+
 **Corrections: Dec. 21, 2024**\
 `Corrections that appeared in print on Saturday, Dec. 21, 2024.`\
 https://nytimes.com/2024/12/20/pageoneplus/corrections-dec-21-2024.html
