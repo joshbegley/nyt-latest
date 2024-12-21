@@ -1,3 +1,15 @@
+**Rosenthal: For all his wondrous MLB accomplishments, Rickey Henderson is best known as the 'Man of Steal'**\
+`With an all-time record 1,406 career stolen bases, Henderson's prowess on the basepaths will likely never be matched. `\
+https://nytimes.com/athletic/6011382/2024/12/21/rickey-henderson-man-of-steal/
+
+**Congress Approves Spending Package After Political Drama**\
+`President Biden signed the spending bill early on Saturday, ensuring that there would be no lapse in government funding.`\
+https://nytimes.com/video/us/politics/100000009891658/congress-approves-spending-extension.html
+
+**Germany Mourns After Christmas Market Attack**\
+`Germans visited a memorial in Magdeburg, Germany, for the at least five people killed and more than 200 injured at a Christmas market, after an attacker drove a vehicle into a crowd.`\
+https://nytimes.com/video/world/europe/100000009891809/german-market-magdeburg-memorial.html
+
 **Rickey Henderson, Baseball’s Flamboyant ‘Man of Steal,’ Dies at 65**\
 `Widely regarded as the greatest leadoff hitter in baseball history, he was not just one of the game’s most exciting players but also one of its most eccentric.`\
 https://nytimes.com/2024/12/21/sports/rickey-henderson-dead.html
