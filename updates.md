@@ -1,3 +1,7 @@
+**Yamal's injury gives Flick a dilemma for key Atletico Madrid match**\
+`Barcelona have found it tough when Lamine Yamal has been absent, so his injury comes at an inopportune time as they face their title rivals`\
+https://nytimes.com/athletic/6010669/2024/12/21/lamine-yamal-injury-barcelona-atletico-madrid/
+
 **Putting Trash in Trash Cans? Good Luck With That, New Yorkers Say.**\
 `Citywide rules now require more buildings to place trash bags inside containers for pickup. Many New Yorkers are thrilled to see fewer rats, but some are discovering new headaches.`\
 https://nytimes.com/2024/12/21/nyregion/nyc-trash-bins-rats.html

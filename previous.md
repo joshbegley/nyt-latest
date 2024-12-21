@@ -1,3 +1,7 @@
+**Yamal's injury gives Flick a dilemma for key Atletico Madrid match**\
+`Barcelona have found it tough when Lamine Yamal has been absent, so his injury comes at an inopportune time as they face their title rivals`\
+https://nytimes.com/athletic/6010669/2024/12/21/lamine-yamal-injury-barcelona-atletico-madrid/
+
 **Putting Trash in Trash Cans? Good Luck With That, New Yorkers Say.**\
 `Citywide rules now require more buildings to place trash bags inside containers for pickup. Many New Yorkers are thrilled to see fewer rats, but some are discovering new headaches.`\
 https://nytimes.com/2024/12/21/nyregion/nyc-trash-bins-rats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6010431/2024/12/21/yankees-trade-jose-trevino-reds-
 **Pereira's Wolves unveiling: Five key takeaways from his first press conference**\
 `Vitor Pereira was unveiled as the new Wolves head coach this week — here are the takeaways from his first press conference`\
 https://nytimes.com/athletic/6009185/2024/12/21/vitor-pereira-wolves-press-conference-analysis/
-
-**Congress Approves Full Social Security Benefits for Public Sector Retirees**\
-`The popular measure gives full benefits to millions of people who currently receive them at a reduced level. Critics warn the $196 billion cost will speed up the program’s insolvency.`\
-https://nytimes.com/2024/12/21/us/congress-social-security.html
 
