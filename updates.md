@@ -1,3 +1,7 @@
+**Party City to Close All Stores by February, Company Says**\
+`In an internal letter, the company said inflation and changes in consumer spending had forced it to shut its more than 700 stores.`\
+https://nytimes.com/2024/12/21/business/party-city-closing.html
+
 **Get Ready for Oohs and Aahs**\
 `Clare de Boer’s rice and squash bombe makes a glorious vegetarian centerpiece or a show-stealing side for a roast or braise.`\
 https://nytimes.com/2024/12/21/dining/vegetarian-holiday-recipe.html

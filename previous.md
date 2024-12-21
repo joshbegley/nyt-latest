@@ -1,3 +1,7 @@
+**Party City to Close All Stores by February, Company Says**\
+`In an internal letter, the company said inflation and changes in consumer spending had forced it to shut its more than 700 stores.`\
+https://nytimes.com/2024/12/21/business/party-city-closing.html
+
 **Get Ready for Oohs and Aahs**\
 `Clare de Boer’s rice and squash bombe makes a glorious vegetarian centerpiece or a show-stealing side for a roast or braise.`\
 https://nytimes.com/2024/12/21/dining/vegetarian-holiday-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5993151/2024/12/21/aston-villa-manchester-city-anal
 **Top Uniformed N.Y.P.D. Officer Resigns After Abuse Allegations**\
 `Jeffrey Maddrey traded sexual favors for overtime, according to a report from The New York Post. He had previously been accused of harassment on the job.`\
 https://nytimes.com/2024/12/21/nyregion/nypd-jeffrey-maddrey-resigns.html
-
-**Pope Francis’ Christmas Message to His Top Advisers: Don’t Gossip**\
-`Francis urged the Vatican inner circle to bless more and talk less badly of others. It wasn’t the first time he had used the occasion to scold them.`\
-https://nytimes.com/2024/12/21/world/europe/pope-francis-christmas-vatican-gossip.html
 
