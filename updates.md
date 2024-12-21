@@ -1,3 +1,7 @@
+**Pereira's Wolves unveiling: Five key takeaways from his first press conference**\
+`Vitor Pereira was unveiled as the new Wolves head coach this week — here are the takeaways from his first press conference`\
+https://nytimes.com/athletic/6009185/2024/12/21/vitor-pereira-wolves-press-conference-analysis/
+
 **Congress Approves Full Social Security Benefits for Public Sector Retirees**\
 `The popular measure gives full benefits to millions of people who currently receive them at a reduced level. Critics warn the $196 billion cost will speed up the program’s insolvency.`\
 https://nytimes.com/2024/12/21/us/congress-social-security.html
