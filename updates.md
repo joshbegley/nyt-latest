@@ -1,3 +1,7 @@
+**Haaland on Man City slump: 'I haven't been good enough'**\
+`Erling Haaland says he has &#8220;not been good enough&#8221; after Manchester City&#8217;s dire run of form continued with a 2-1 defeat at Aston Villa on Saturday lunchtime.`\
+https://nytimes.com/athletic/6010960/2024/12/21/erling-haaland-city-form/
+
 **‘We Can Bury Anyone’: Inside a Hollywood Smear Machine**\
 `Private messages detail an alleged campaign to smear Blake Lively after she accused Justin Baldoni of misconduct on the set of “It Ends With Us.”`\
 https://nytimes.com/2024/12/21/business/media/blake-lively-justin-baldoni-it-ends-with-us.html

@@ -1,3 +1,7 @@
+**Haaland on Man City slump: 'I haven't been good enough'**\
+`Erling Haaland says he has &#8220;not been good enough&#8221; after Manchester City&#8217;s dire run of form continued with a 2-1 defeat at Aston Villa on Saturday lunchtime.`\
+https://nytimes.com/athletic/6010960/2024/12/21/erling-haaland-city-form/
+
 **Read the Complaint**\
 `Blake Lively v. Wayfarer Studios LLC et al`\
 https://nytimes.com/interactive/2024/12/21/us/complaint-of-blake-lively-v-wayfarer-studios-llc-et-al.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/world/europe/pope-francis-christmas-vatican-gossi
 **As Drugstores Close, Older People Are Left in ‘Pharmacy Deserts’**\
 `Shuttered drugstores pose a particular threat to older adults, who take more medications than younger people and often rely on pharmacies for advice.`\
 https://nytimes.com/2024/12/21/health/drugstore-closures-seniors.html
-
-**From Inflation to Bitcoin, 9 Charts That Explain 2024**\
-`Rate cuts, stock surges, and Trump’s tariff threats are among the biggest forces shaping business and the economy.`\
-https://nytimes.com/2024/12/21/business/dealbook/business-economy-charts.html
 
