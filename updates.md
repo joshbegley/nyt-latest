@@ -1,3 +1,7 @@
+**Lindsey Vonn finishes 14th in Super-G in return to World Cup racing**\
+`After almost six years away from the sport, Lindsey Vonn made a strong return to the World Cup circuit Saturday.`\
+https://nytimes.com/athletic/6008142/2024/12/21/lindsey-vonn-return-world-cup-super-g-olympics/
+
 **Your Favorite Things**\
 `Today, your highly personal, hyperspecific best-ofs of 2024.`\
 https://nytimes.com/2024/12/21/briefing/your-favorite-things.html
