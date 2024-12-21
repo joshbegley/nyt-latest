@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6008993/2024/12/21/ivan-juric-southampton/
 `Chris Waugh breaks down the main talking points from Newcastle's dominant 4-0 win at Ipswich Town`\
 https://nytimes.com/athletic/5993177/2024/12/21/ipswich-town-0-newcastle-united-4-isak-murphy/
 
-**NFL Week 16 fantasy, betting cheat sheet: Hollywood Brown set to debut, Pickens ruled out**\
+**NFL Week 16 fantasy football, betting cheat sheet: Pickens out, Bateman game-time decision**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/6001045/2024/12/21/nfl-week-16-fantasy-football-betting-cheat-sheet/
 
