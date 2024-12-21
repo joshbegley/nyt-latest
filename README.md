@@ -1,3 +1,7 @@
+**Missile from Yemen Hits Tel Aviv Area, Israel Says**\
+`The Israeli military said several people were slightly injured after its air defenses failed to intercept the projectile.`\
+https://nytimes.com/2024/12/20/world/middleeast/israel-tel-aviv-missile-yemen.html
+
 **Maple Leafs report cards: Third line continues to rise to the occasion**\
 `Bobby McMann, Max Domi and Nick Robertson continued their offensive run in a 6-3 victory over Buffalo.`\
 https://nytimes.com/athletic/6010384/2024/12/20/maple-leafs-sabres-grades-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/magazine/syria-civil-war-women.html
 **Potential Commanders stadium in D.C. not part of final government spending bill**\
 `The Commanders' plan for a new stadium in Washington, D.C., needs a recalibration.`\
 https://nytimes.com/athletic/6010275/2024/12/20/commanders-rfk-site-control-government-spending-bill-dc/
-
-**The Best Movies About Politics (According to You)**\
-`Tired of real politics? Try the silver screen instead.`\
-https://nytimes.com/2024/12/20/us/politics/political-movies.html
 
