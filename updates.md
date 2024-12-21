@@ -1,3 +1,7 @@
+**‘We Can Bury Anyone’: Inside a Hollywood Smear Machine**\
+`A legal complaint lays out an alleged campaign to tarnish Blake Lively after she accused Justin Baldoni of misconduct on the set of “It Ends With Us.”`\
+https://nytimes.com/2024/12/21/business/media/blake-lively-justin-baldoni-it-ends-with-us.html
+
 **Top Uniformed N.Y.P.D. Officer Resigns After Abuse Allegations**\
 `Jeffrey Maddrey traded sexual favors for overtime, according to a report from The New York Post. He had previously been accused of harassment on the job.`\
 https://nytimes.com/2024/12/21/nyregion/nypd-jeffrey-maddrey-resigns.html
