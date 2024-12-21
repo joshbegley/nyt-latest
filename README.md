@@ -1,3 +1,7 @@
+**House Passes Bill to Avert Shutdown With Hours to Spare**\
+`The measure still needed approval from the Senate and a signature by President Biden to avert a lapse in federal funding at 12:01 a.m. on Saturday.`\
+https://nytimes.com/2024/12/20/us/politics/congress-shutdown-budget-deadline.html
+
 **White Judge Who Threatened to Shoot Black Teens at Party Resigns**\
 `Justice Erin P. Gall of Oneida County, N.Y., faced removal from office after a judicial commission found that she engaged in a “racially offensive, profane” tirade at a high school graduation party.`\
 https://nytimes.com/2024/12/20/nyregion/ny-judge-erin-gall.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/business/media/troy-masters-dead.html
 **Suspect in C.E.O. Killing to Be Arraigned on State Charges Monday**\
 `Luigi Mangione faces terror and murder charges in New York court. A federal prosecution is proceeding in parallel.`\
 https://nytimes.com/2024/12/20/nyregion/mangione-state-arraignment-monday.html
-
-**Missouri Governor Commutes Sentence of Detective Convicted in On-Duty Killing**\
-`Eric J. DeValkenaere was convicted of involuntary manslaughter in the death of Cameron Lamb. Calls for clemency angered many in Kansas City, Mo.`\
-https://nytimes.com/2024/12/20/us/missouri-governor-commutation-police-killing.html
 
