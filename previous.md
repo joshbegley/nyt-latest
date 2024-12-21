@@ -1,3 +1,15 @@
+**What’s Next for Google’s Search Monopoly**\
+`The federal judge who ruled Google was a monopolist in search is weighing his options to fix the monopoly. Here’s what happens now.`\
+https://nytimes.com/2024/12/20/technology/google-antitrust-case-chrome.html
+
+**Google Proposes Fix to Solve Search Monopoly**\
+`The search giant’s proposals included allowing flexibility for companies and consumers in choosing a search engine.`\
+https://nytimes.com/2024/12/20/technology/google-antitrust-search-remedies.html
+
+**Chicago Board of Education Fires Leader of City’s School System**\
+`The job status of Pedro Martinez, the chief executive of Chicago Public Schools, had been in doubt for months amid tension with Mayor Brandon Johnson.`\
+https://nytimes.com/2024/12/20/us/chicago-public-schools-pedro-martinez.html
+
 **It’s a Little Shady**\
 `Barbara Lin and Lewis Rothlein’s puzzle packs the right amount of punch.`\
 https://nytimes.com/2024/12/20/crosswords/daily-puzzle-2024-12-21.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/20/us/politics/political-movies.html
 **House Passes Bill to Avert Shutdown With Hours to Spare**\
 `The measure still needed approval from the Senate and a signature by President Biden to avert a lapse in federal funding at 12:01 a.m. on Saturday.`\
 https://nytimes.com/2024/12/20/us/politics/congress-shutdown-budget-deadline.html
-
-**White Judge Who Threatened to Shoot Black Teens at Party Resigns**\
-`Justice Erin P. Gall of Oneida County, N.Y., faced removal from office after a judicial commission found that she engaged in a “racially offensive, profane” tirade at a high school graduation party.`\
-https://nytimes.com/2024/12/20/nyregion/ny-judge-erin-gall.html
-
-**In Late Push, Senate Democrats Narrowly Top Trump on Judicial Confirmations**\
-`With the vote, the Senate approved its 235th lifetime judge of President Biden’s tenure, besting his predecessor by a single judgeship.`\
-https://nytimes.com/2024/12/20/us/politics/senate-democrats-judges-biden.html
-
-**U.S. Prisons Flout Law by Keeping Inmates Past Release Date, A.C.L.U. Says**\
-`Tens of thousands of prisoners deemed to be at low risk of committing crimes again have languished in lockup for as long as a year after they reached their release date under the First Step Act.`\
-https://nytimes.com/2024/12/20/us/politics/prisons-first-step-act-aclu.html
 
