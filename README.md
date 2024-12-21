@@ -1,3 +1,11 @@
+**In Search of Loved Ones, Syrian Women Face Horror of Assad’s Regime**\
+`In Syria, women begin to pick up the pieces of a broken nation.`\
+https://nytimes.com/2024/12/20/magazine/syria-civil-war-women.html
+
+**Potential Commanders stadium in D.C. not part of final government spending bill**\
+`The Commanders' plan for a new stadium in Washington, D.C., needs a recalibration.`\
+https://nytimes.com/athletic/6010275/2024/12/20/commanders-rfk-site-control-government-spending-bill-dc/
+
 **The Best Movies About Politics (According to You)**\
 `Tired of real politics? Try the silver screen instead.`\
 https://nytimes.com/2024/12/20/us/politics/political-movies.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/20/nyregion/ann-rockefeller-roberts-dead.html
 **The House Voted to Avert a Government Shutdown**\
 `Also, Canada’s leader suffered another setback. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/12/20/briefing/house-shutdown-vote-canada-leader.html
-
-**How Many People Did Cyclone Chido Actually Kill on a French Island?**\
-`Officials have said that the death toll in Mayotte, currently at 35, could end up in the thousands. But in the capital, there were no scenes of public mourning and little talk of searches for missing loved ones.`\
-https://nytimes.com/2024/12/20/world/africa/cyclone-chido-death-toll-mayotte.html
-
-**Troy Masters, Pioneering L.G.B.T.Q. Journalist, Dies at 63**\
-`He was at the helm of several influential publications, notably Gay City News in New York City and, since 2017, The Los Angeles Blade.`\
-https://nytimes.com/2024/12/20/business/media/troy-masters-dead.html
 
