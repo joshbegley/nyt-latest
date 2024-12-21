@@ -1,3 +1,7 @@
+**Dodgers explore right-handed hitting alternatives beyond free-agent Teoscar Hernández**\
+`As the Dodgers weigh a reunion with Hernández, they've also inquired about free-agent Ha-Seong Kim and potential trade targets in Chicago.`\
+https://nytimes.com/athletic/6011626/2024/12/21/dodgers-teoscar-hernandez-alternatives/
+
 **Rickey Henderson, Baseball’s Flamboyant ‘Man of Steal,’ Dies at 65**\
 `Widely regarded as the greatest leadoff hitter in baseball history, he was not just one of the game’s most exciting players, but also one of its most eccentric.`\
 https://nytimes.com/2024/12/21/sports/rickey-henderson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011302/2024/12/21/paul-goldschmidt-cardinals-yanke
 **Deception and Betrayal: Inside the Final Days of the Assad Regime**\
 `President Bashar al-Assad, who wielded fear and force over Syria for more than two decades, fled the country under the cover of night — and a fake political address.`\
 https://nytimes.com/2024/12/21/world/middleeast/assad-regime-syria-final-days.html
-
-**The Briefing: Crystal Palace 1 Arsenal 5 - Is Jesus the answer? How worrying is Saka's injury?**\
-`Analysis of Arsenal's victory over Crystal Palace`\
-https://nytimes.com/athletic/5993189/2024/12/21/arsenal-palace-highlights-jesus-goals/
 
