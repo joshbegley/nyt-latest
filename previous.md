@@ -1,3 +1,11 @@
+**Sterling misses Crystal Palace game with injury**\
+`Raheem Sterling was left out of Arsenal&#8217;s squad for their Premier League match against Crystal Palace on Saturday with an injury.`\
+https://nytimes.com/athletic/6011199/2024/12/21/arsenal-sterling-injury/
+
+**Feldman: Sorry, Lane Kiffin. Indiana earned its spot in the Playoff**\
+`Because the Hoosiers were getting handled for much of Friday night at Notre Dame, it became easy for those who got left out to take shots.`\
+https://nytimes.com/athletic/6011144/2024/12/21/indiana-lane-kiffin-college-football-playoff/
+
 **Biden Signs Spending Bill, Finalizing End to Shutdown Drama**\
 `President Biden’s signature, while technically coming after the midnight deadline for a shutdown, ensured that there would be no lapse in government funding.`\
 https://nytimes.com/2024/12/21/us/politics/biden-signs-spending-bill.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6010960/2024/12/21/erling-haaland-city-form/
 **Read the Complaint**\
 `Blake Lively v. Wayfarer Studios LLC et al`\
 https://nytimes.com/interactive/2024/12/21/us/complaint-of-blake-lively-v-wayfarer-studios-llc-et-al.html
-
-**Christian Pulisic: Berhalter's USMNT return and exit, Pochettino arrival and pressure of fame**\
-`Christian Pulisic spoke to GQ about a number of topics after an interesting year for the US men's national team`\
-https://nytimes.com/athletic/6010058/2024/12/21/christian-pulisic-usmnt-gregg-berhalter/
-
-**Read the Statement**\
-`Statement to The New York Times from Bryan Freedman, attorney for Justin Baldoni, Wayfarer Studios and all its representatives.`\
-https://nytimes.com/interactive/2024/12/21/us/statement-to-the-new-york-times.html
 

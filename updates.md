@@ -1,3 +1,11 @@
+**Sterling misses Crystal Palace game with injury**\
+`Raheem Sterling was left out of Arsenal&#8217;s squad for their Premier League match against Crystal Palace on Saturday with an injury.`\
+https://nytimes.com/athletic/6011199/2024/12/21/arsenal-sterling-injury/
+
+**Feldman: Sorry, Lane Kiffin. Indiana earned its spot in the Playoff**\
+`Because the Hoosiers were getting handled for much of Friday night at Notre Dame, it became easy for those who got left out to take shots.`\
+https://nytimes.com/athletic/6011144/2024/12/21/indiana-lane-kiffin-college-football-playoff/
+
 **The Briefing: Ipswich 0 Newcastle 4 - Isak's hat-trick, Murphy magic and are Howe's team back?**\
 `Chris Waugh breaks down the main talking points from Newcastle's dominant 4-0 win at Ipswich Town`\
 https://nytimes.com/athletic/5993177/2024/12/21/ipswich-town-0-newcastle-united-4-isak-murphy/
