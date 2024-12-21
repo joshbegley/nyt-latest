@@ -1,3 +1,7 @@
+**Leafs' Auston Matthews expected to miss Saturday's game vs. Islanders**\
+`Matthews is believed to have re-aggravated the undisclosed injury that caused him to miss nine games earlier this season.`\
+https://nytimes.com/athletic/6011408/2024/12/21/auston-matthews-injury-leafs-islanders/
+
 **Germany Bulked Up Christmas Market Security. An Attack Still Happened.**\
 `The latest deadly assault on a beloved German tradition illustrates the challenge of holiday safety.`\
 https://nytimes.com/2024/12/21/world/europe/germany-christmas-market-security.html
