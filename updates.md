@@ -1,3 +1,7 @@
+**Amazon Warehouse Workers in New York City Join Protest**\
+`The workers’ union hopes that adding employees at the Staten Island warehouse to a protest started by delivery drivers will increase pressure on Amazon.`\
+https://nytimes.com/2024/12/21/business/amazon-warehouse-staten-island-strike.html
+
 **Party City to Close All Stores by February, Company Says**\
 `In an internal letter, the company said inflation and changes in consumer spending had forced it to shut its more than 700 stores.`\
 https://nytimes.com/2024/12/21/business/party-city-closing.html
