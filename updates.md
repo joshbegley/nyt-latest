@@ -1,3 +1,11 @@
+**The Briefing: Aston Villa 2 Man City 1 - Duran takes his chance, nine defeats in 12 for Guardiola's side ﻿**\
+`Jacob Tanswell, Thom Harris and Anantaajith Raghuraman analyse the key talking points from Aston Villa's victory over Manchester City`\
+https://nytimes.com/athletic/5993151/2024/12/21/aston-villa-manchester-city-analysis/
+
+**Top Uniformed N.Y.P.D. Officer Resigns After Abuse Allegations**\
+`Jeffrey Maddrey traded sexual favors for overtime, according to a report from The New York Post.`\
+https://nytimes.com/2024/12/21/nyregion/nypd-jeffrey-maddrey-resigns.html
+
 **Pope Francis’ Christmas Message to His Top Advisers: Don’t Gossip**\
 `Francis urged the Vatican inner circle to bless more and talk less badly of others. It wasn’t the first time he had used the occasion to scold them.`\
 https://nytimes.com/2024/12/21/world/europe/pope-francis-christmas-vatican-gossip.html
