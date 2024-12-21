@@ -1,3 +1,7 @@
+**House Passes Bill to Avert Shutdown With Hours to Spare**\
+`The measure still needed approval from the Senate and a signature by President Biden to avert a lapse in federal funding at 12:01 a.m. on Saturday.`\
+https://nytimes.com/2024/12/20/us/politics/congress-shutdown-budget-deadline.html
+
 **White Judge Who Threatened to Shoot Black Teens at Party Resigns**\
 `Justice Erin P. Gall of Oneida County, N.Y., faced removal from office after a judicial commission found that she engaged in a “racially offensive, profane” tirade at a high school graduation party.`\
 https://nytimes.com/2024/12/20/nyregion/ny-judge-erin-gall.html
