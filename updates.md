@@ -1,3 +1,11 @@
+**In Search of Loved Ones, Syrian Women Face Horror of Assad’s Regime**\
+`In Syria, women begin to pick up the pieces of a broken nation.`\
+https://nytimes.com/2024/12/20/magazine/syria-civil-war-women.html
+
+**Potential Commanders stadium in D.C. not part of final government spending bill**\
+`The Commanders' plan for a new stadium in Washington, D.C., needs a recalibration.`\
+https://nytimes.com/athletic/6010275/2024/12/20/commanders-rfk-site-control-government-spending-bill-dc/
+
 **The Best Movies About Politics (According to You)**\
 `Tired of real politics? Try the silver screen instead.`\
 https://nytimes.com/2024/12/20/us/politics/political-movies.html
