@@ -1,3 +1,35 @@
+**Man United face dilemma over Maguire contract situation**\
+`Manchester United face a dilemma in the negotiations for Harry Maguire’s proposed new deal, with the defender able to sign a pre-contract agreement with foreign clubs from January 1.`\
+https://nytimes.com/athletic/6009348/2024/12/21/harry-maguire-contract-manchester-united/
+
+**Justice Thomas Did Not Disclose Additional Trips, Democrats Say**\
+`The revelation was included in a report by Democratic staff members on the Senate Judiciary Committee who had conducted a 20-month investigation into ethics practices at the Supreme Court.`\
+https://nytimes.com/2024/12/21/us/politics/clarence-thomas-trips-disclosure-investigation.html
+
+**Religion Has Been in Decline. This Christmas Seems Different.**\
+`Why religious trends in the later 2020s might be different from the trends of the 2010s.`\
+https://nytimes.com/2024/12/21/opinion/religion-christmas-revival.html
+
+**What gift does each NHL team need most this holiday season?**\
+`The Athletic asked its NHL staff for one last-minute gift idea per team. Here's what they said.`\
+https://nytimes.com/athletic/6007589/2024/12/21/nhl-teams-needs-wish-list-2025/
+
+**Hollywood Is Desperate for Movie Stars. This Year, the Cavalry Arrived.**\
+`For decades, the film industry seemed to forget how to mint new male matinee idols. Then came a much-needed windfall.`\
+https://nytimes.com/2024/12/21/opinion/hollywood-movie-stars.html
+
+**A Conversation About the Virgin Birth That Maybe Wasn’t**\
+`The scholar Elaine Pagels discusses her research about ancient accounts suggesting that Jesus’ father might have been a Roman.`\
+https://nytimes.com/2024/12/21/opinion/virgin-birth-jesus.html
+
+**Why I Would Never Donate Sperm in the United States**\
+`Children deserve better than to feel left in the dark against their will.`\
+https://nytimes.com/2024/12/21/opinion/anonymous-sperm-donations.html
+
+**For Some, a Silver Lining in Alzheimer’s Caregiving**\
+`Readers discuss a guest essay by a woman who finds things to cherish in caring for her dad.`\
+https://nytimes.com/2024/12/21/opinion/alzheimers.html
+
 **Lindsey Vonn finishes 14th in Super-G race in return to World Cup circuit**\
 `After almost six years away from the sport, Lindsey Vonn made a strong return to the World Cup circuit Saturday.`\
 https://nytimes.com/athletic/6008142/2024/12/21/lindsey-vonn-return-world-cup-super-g-olympics/
