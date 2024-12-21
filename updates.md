@@ -1,3 +1,7 @@
+**Guardians trade Josh Naylor to D-Backs, sign Carlos Santana: Sources**\
+`The Guardians signed Naylor's replacement at first base shortly after trading him to Arizona.`\
+https://nytimes.com/athletic/6011721/2024/12/21/guardians-trade-josh-naylor-diamondbacks-carlos-santana/
+
 **Rosenthal: For all his wondrous MLB accomplishments, Rickey Henderson is best known as the 'Man of Steal'**\
 `With an all-time record 1,406 career stolen bases, Henderson's prowess on the basepaths will likely never be matched. `\
 https://nytimes.com/athletic/6011382/2024/12/21/rickey-henderson-man-of-steal/
