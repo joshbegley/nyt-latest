@@ -1,3 +1,7 @@
+**Texans WR Tank Dell to remain hospitalized following severe knee injury**\
+`On a deep throw intended for Dell, Houston wide receiver Jared Wayne was in the vicinity of the play and collided with Dell’s knee.`\
+https://nytimes.com/athletic/6011548/2024/12/21/houston-texans-tank-dell-chiefs-knee-injury/
+
 **Lee Edwards, Historian of the Conservative Movement, Dies at 92**\
 `In his books about Ronald Reagan, Barry Goldwater and other figures on the right, he was, one observer said, “a keeper of the flame and spreader of the gospel.”`\
 https://nytimes.com/2024/12/21/us/politics/lee-edwards-dead.html
