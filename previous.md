@@ -1,3 +1,15 @@
+**Inside the world of opposition analysis: 'It's not about what they do, it’s about what we need to do'**\
+`Opposition analysts reveal what they do, how they work with managers, and what effect they really have on results`\
+https://nytimes.com/athletic/6009022/2024/12/21/inside-the-world-of-opposition-analysis/
+
+**Jesus Navas: 'Sometimes the pain in my hip makes it tough to even play with my kids'**\
+`The Sevilla legend plays the 943rd and final match of his career on Sunday. He speaks exclusively to The Athletic about his 22-year career`\
+https://nytimes.com/athletic/6003111/2024/12/21/jesus-navas-retires-interview-sevilla-hip-pain/
+
+**'Go back to journalism? Forget about it. No way': when journalists become football coaches**\
+`'Go back to journalism? Forget about it.' The Athletic speaks to three highly-rated coaches who worked as journalists in a previous career`\
+https://nytimes.com/athletic/6009271/2024/12/21/journalists-football-coaches-feature/
+
 **Why Brazilian sides are being targeted by multi-club groups**\
 `Why are investors turning their attention to Brazilian clubs?`\
 https://nytimes.com/athletic/6006522/2024/12/21/brazilian-club-ownership-multi-club-model/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/20/pageoneplus/quote-of-the-day-when-your-3-million-
 **Notre Dame rolls past Indiana in College Football Playoff opening game: What's next?**\
 `Notre Dame controlled the game in a 27-17 win and will advance to the Sugar Bowl against Georgia.`\
 https://nytimes.com/athletic/6010457/2024/12/20/notre-dame-indiana-college-football-playoff/
-
-**Missile from Yemen Hits Tel Aviv Area, Israel Says**\
-`The Israeli military said several people were slightly injured after its air defenses failed to intercept the projectile.`\
-https://nytimes.com/2024/12/20/world/middleeast/israel-tel-aviv-missile-yemen.html
-
-**Maple Leafs report cards: Third line continues to rise to the occasion**\
-`Bobby McMann, Max Domi and Nick Robertson continued their offensive run in a 6-3 victory over Buffalo.`\
-https://nytimes.com/athletic/6010384/2024/12/20/maple-leafs-sabres-grades-analysis/
-
-**What’s Next for Google’s Search Monopoly**\
-`The federal judge who ruled Google was a monopolist in search is weighing his options to fix the monopoly. Here’s what happens now.`\
-https://nytimes.com/2024/12/20/technology/google-antitrust-case-chrome.html
 
