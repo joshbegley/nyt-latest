@@ -1,3 +1,7 @@
+**Guatemalan Officials Raid Compound of Jewish Sect and Remove Dozens of Minors**\
+`The authorities say at least 160 children and teenagers may have been victims of human trafficking and other crimes on a farm run by an ultra-Orthodox sect, Lev Tahor.`\
+https://nytimes.com/2024/12/20/world/americas/guatemala-raid-ultra-orthodox-jewish-sect.html
+
 **In Search of Loved Ones, Syrian Women Face Horror of Assad’s Regime**\
 `In Syria, women begin to pick up the pieces of a broken nation.`\
 https://nytimes.com/2024/12/20/magazine/syria-civil-war-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6010120/2024/12/20/cubs-roki-sasaki-meeting/
 **Ann Rockefeller Roberts, Champion of Native Americans, Dies at 90**\
 `The eldest daughter of Nelson Rockefeller, she founded a nonprofit to support Indigenous culture and helped fill two Smithsonian institutions with artifacts.`\
 https://nytimes.com/2024/12/20/nyregion/ann-rockefeller-roberts-dead.html
-
-**The House Voted to Avert a Government Shutdown**\
-`Also, Canada’s leader suffered another setback. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/12/20/briefing/house-shutdown-vote-canada-leader.html
 
