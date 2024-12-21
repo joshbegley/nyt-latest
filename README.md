@@ -1,3 +1,7 @@
+**Biden Signs Spending Bill, Finalizing End to Shutdown Drama**\
+`President Biden’s signature, while technically coming after the midnight deadline for a shutdown, ensured that there would be no lapse in government funding.`\
+https://nytimes.com/2024/12/21/us/politics/biden-signs-spending-bill.html
+
 **Southampton confirm Juric as new manager**\
 `Southampton have confirmed the appointment of Ivan Juric as their new manager.`\
 https://nytimes.com/athletic/6008993/2024/12/21/ivan-juric-southampton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6010058/2024/12/21/christian-pulisic-usmnt-gregg-be
 **Read the Statement**\
 `Statement to The New York Times from Bryan Freedman, attorney for Justin Baldoni, Wayfarer Studios and all its representatives.`\
 https://nytimes.com/interactive/2024/12/21/us/statement-to-the-new-york-times.html
-
-**Why struggling Kings have entered the danger zone around De'Aaron Fox's future**\
-`League sources say the Spurs are positioning for a pursuit of the All-Star as a partner for Victor Wembanyama, should Fox become available.`\
-https://nytimes.com/athletic/6010644/2024/12/21/deaaron-fox-kings-contract-trade-nba-spurs/
 
