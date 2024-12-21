@@ -1,3 +1,11 @@
+**Arteta 'pretty worried' by Saka hamstring injury**\
+`Mikel Arteta says Bukayo Saka will have tests to determine the extent of a hamstring injury picked up during Arsenal&#8217;s 5-1 win over Crystal Palace on Saturday.`\
+https://nytimes.com/athletic/6011373/2024/12/21/bukayo-saka-hamstring-arsenal/
+
+**Paul Goldschmidt headed to Yankees: Reflecting on his Cardinals tenure**\
+`Goldschmidt will be missed throughout the organization, with teammates, coaches and executives praising his professionalism.`\
+https://nytimes.com/athletic/6011302/2024/12/21/paul-goldschmidt-cardinals-yankees/
+
 **Homeless Woman Going Into Labor Is Cited for Camping Violation**\
 `Body-camera footage shows an officer from the Louisville Metro Police Department in Kentucky detain the woman, who gave birth later that day.`\
 https://nytimes.com/2024/12/21/us/kentucky-woman-pregnant-homeless-police.html
