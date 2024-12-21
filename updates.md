@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Third line continues to rise to the occasion**\
+`Bobby McMann, Max Domi and Nick Robertson continued their offensive run in a 6-3 victory over Buffalo.`\
+https://nytimes.com/athletic/6010384/2024/12/20/maple-leafs-sabres-grades-analysis/
+
 **Chicago Board of Education Votes to Fire Leader of City’s School System**\
 `The job status of Pedro Martinez, the chief executive of Chicago Public Schools, had been in doubt for months amid tension with Mayor Brandon Johnson.`\
 https://nytimes.com/2024/12/20/us/chicago-public-schools-pedro-martinez.html
