@@ -1,3 +1,15 @@
+**Putting Trash in Trash Cans? Good Luck With That, New Yorkers Say.**\
+`Citywide rules now require more buildings to place trash bags inside containers for pickup. Many New Yorkers are thrilled to see fewer rats, but some are discovering new headaches.`\
+https://nytimes.com/2024/12/21/nyregion/nyc-trash-bins-rats.html
+
+**How the Founder of a Fruit Jelly Snack Company Spends Her Sundays**\
+`Sophia Cheng, the founder of Oddball, takes a snack tour around the city, breaks for tennis and wards off the Sunday scaries with Channing Tatum.`\
+https://nytimes.com/2024/12/21/nyregion/sophia-cheng-oddball.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/21/crosswords/spelling-bee-forum.html
+
 **Jim Montgomery insists the Blues are playing well overall, and the goals will come**\
 `For the fourth time in their last five games, the Blues were limited to just one goal. `\
 https://nytimes.com/athletic/6010302/2024/12/21/blues-loss-panthers-jim-montgomery-goals/

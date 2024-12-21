@@ -1,3 +1,15 @@
+**Putting Trash in Trash Cans? Good Luck With That, New Yorkers Say.**\
+`Citywide rules now require more buildings to place trash bags inside containers for pickup. Many New Yorkers are thrilled to see fewer rats, but some are discovering new headaches.`\
+https://nytimes.com/2024/12/21/nyregion/nyc-trash-bins-rats.html
+
+**How the Founder of a Fruit Jelly Snack Company Spends Her Sundays**\
+`Sophia Cheng, the founder of Oddball, takes a snack tour around the city, breaks for tennis and wards off the Sunday scaries with Channing Tatum.`\
+https://nytimes.com/2024/12/21/nyregion/sophia-cheng-oddball.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/21/crosswords/spelling-bee-forum.html
+
 **Jim Montgomery insists the Blues are playing well overall, and the goals will come**\
 `For the fourth time in their last five games, the Blues were limited to just one goal. `\
 https://nytimes.com/athletic/6010302/2024/12/21/blues-loss-panthers-jim-montgomery-goals/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6009185/2024/12/21/vitor-pereira-wolves-press-confe
 **Congress Approves Full Social Security Benefits for Public Sector Retirees**\
 `The popular measure gives full benefits to millions of people who currently receive them at a reduced level. Critics warn the $196 billion cost will speed up the program’s insolvency.`\
 https://nytimes.com/2024/12/21/us/congress-social-security.html
-
-**Wild preach urgency — not panic — during biggest funk of season: Takeaways vs. Utah**\
-`There are legitimate concerns brewing after the Wild lost their third straight game. `\
-https://nytimes.com/athletic/6010395/2024/12/21/wild-utah-takeaways-mats-zuccarello/
-
-**Losing Muriel Furrer – a teenage cycling tragedy and a family's search for answers**\
-`Muriel Furrer crashed at cycling's World Championships and wasn't found for about 90 minutes. Her shocking death has brought devastation`\
-https://nytimes.com/athletic/6006406/2024/12/21/muriel-furrer-cycling-death/
-
-**How Merseyside became America's 51st state**\
-`With two clubs in U.S. hands and another possibly to follow, what is the appeal of Merseyside - and what are the potential pitfalls?`\
-https://nytimes.com/athletic/5989076/2024/12/21/liverpool-everton-tranmere-us-owners-takeover/
 
