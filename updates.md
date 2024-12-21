@@ -1,3 +1,7 @@
+**Lane Kiffin calls out CFP after ND thumps Indiana: 'Really exciting game'**\
+`Indiana had the 67th hardest schedule, second behind Boise State at No. 80, of the 12 teams to make the Playoff, per ESPN's FPI.`\
+https://nytimes.com/athletic/6010535/2024/12/21/lane-kiffin-college-football-playoff-committee-comments-notre-dame-indiana/
+
 **Yankees trade Jose Trevino to Reds for Fernando Cruz, Alex Jackson**\
 `He appeared in a career-high 115 games, slashing .248/.283/.388 through 353 plate appearances.`\
 https://nytimes.com/athletic/6010431/2024/12/21/yankees-trade-jose-trevino-reds-fernando-cruz-alex-jackson/
