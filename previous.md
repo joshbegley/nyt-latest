@@ -1,3 +1,7 @@
+**Igor Shesterkin and a pristine penalty kill rally the Rangers: 3 takeaways**\
+`Matt Rempe returned for the first time since November, but after an elbowing major, supplemental discipline may be coming.`\
+https://nytimes.com/athletic/6010542/2024/12/21/rangers-penalty-kill-matt-rempe-miro-heiskanen/
+
 **Lane Kiffin calls out CFP after ND thumps Indiana: 'Really exciting game'**\
 `Indiana had the 67th hardest schedule, second behind Boise State at No. 80, of the 12 teams to make the Playoff, per ESPN's FPI.`\
 https://nytimes.com/athletic/6010535/2024/12/21/lane-kiffin-college-football-playoff-committee-comments-notre-dame-indiana/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6009022/2024/12/21/inside-the-world-of-opposition-a
 **Jesus Navas: 'Sometimes the pain in my hip makes it tough to even play with my kids'**\
 `The Sevilla legend plays the 943rd and final match of his career on Sunday. He speaks exclusively to The Athletic about his 22-year career`\
 https://nytimes.com/athletic/6003111/2024/12/21/jesus-navas-retires-interview-sevilla-hip-pain/
-
-**'Go back to journalism? Forget about it. No way': when journalists become football coaches**\
-`'Go back to journalism? Forget about it.' The Athletic speaks to three highly-rated coaches who worked as journalists in a previous career`\
-https://nytimes.com/athletic/6009271/2024/12/21/journalists-football-coaches-feature/
 

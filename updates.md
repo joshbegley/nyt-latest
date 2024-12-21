@@ -1,3 +1,7 @@
+**Igor Shesterkin and a pristine penalty kill rally the Rangers: 3 takeaways**\
+`Matt Rempe returned for the first time since November, but after an elbowing major, supplemental discipline may be coming.`\
+https://nytimes.com/athletic/6010542/2024/12/21/rangers-penalty-kill-matt-rempe-miro-heiskanen/
+
 **Lane Kiffin calls out CFP after ND thumps Indiana: 'Really exciting game'**\
 `Indiana had the 67th hardest schedule, second behind Boise State at No. 80, of the 12 teams to make the Playoff, per ESPN's FPI.`\
 https://nytimes.com/athletic/6010535/2024/12/21/lane-kiffin-college-football-playoff-committee-comments-notre-dame-indiana/
