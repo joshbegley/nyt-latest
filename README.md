@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6011373/2024/12/21/bukayo-saka-hamstring-arsenal/
 `Body-camera footage shows an officer from the Louisville Metro Police Department in Kentucky detain the woman, who gave birth later that day.`\
 https://nytimes.com/2024/12/21/us/kentucky-woman-pregnant-homeless-police.html
 
-**Paul Goldschmidt signs with Yankees: Reflecting on his Cardinals tenure**\
+**Paul Goldschmidt headed to Yankees: Reflecting on his Cardinals tenure**\
 `Goldschmidt will be missed throughout the organization, with teammates, coaches and executives praising his professionalism.`\
 https://nytimes.com/athletic/6011302/2024/12/21/paul-goldschmidt-cardinals-yankees/
 
