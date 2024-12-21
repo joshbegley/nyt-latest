@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/21/sports/rickey-henderson-dead.html
 `Although Iran has one of the biggest supplies of natural gas and crude oil in the world, it finds itself in a full blown energy emergency, coming just as it also suffers major geopolitical setbacks.`\
 https://nytimes.com/2024/12/21/world/middleeast/iran-economy-energy-crisis.html
 
-**Penn State routs not-ready-for-prime-time SMU in Playoff: How far can Nittany Lions go?**\
+**Penn State routs not-ready-for-prime-time SMU: What does it say about the Playoff?**\
 `Two early pick sixes sent Penn State on its way to a 38-10 Playoff rout of SMU and a quarterfinal date with Boise State in the Fiesta Bowl.`\
 https://nytimes.com/athletic/6011481/2024/12/21/penn-state-smu-score-college-football-playoff/
 
