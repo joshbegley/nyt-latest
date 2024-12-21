@@ -1,3 +1,11 @@
+**Penn State routs not-ready-for-prime-time SMU in Playoff: How far can Nittany Lions go?**\
+`Two early pick sixes sent Penn State on its way to a 38-10 Playoff rout of SMU and a quarterfinal date with Boise State in the Fiesta Bowl.`\
+https://nytimes.com/athletic/6011481/2024/12/21/penn-state-smu-score-college-football-playoff/
+
+**Texans WR Tank Dell exits game vs. Chiefs with severe left knee injury**\
+`On a deep throw intended for Dell, Houston wide receiver Jared Wayne was in the vicinity of the play and collided with Dell’s knee.`\
+https://nytimes.com/athletic/6011548/2024/12/21/houston-texans-tank-dell-chiefs-knee-injury/
+
 **Bronny James puts together uneven showing at G League Winter Showcase**\
 `We don't have this level of scrutiny for most 20-year-old rookies, but James' two games in Orlando were a mixed bag to say the least.`\
 https://nytimes.com/athletic/6011369/2024/12/21/bronny-james-g-league-showcase-recap/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5891633/2024/12/21/2024-25-mlb-top-40-free-agmlb-to
 **Leafs' Auston Matthews expected to miss Saturday's game vs. Islanders**\
 `Matthews is believed to have re-aggravated the undisclosed injury that caused him to miss nine games earlier this season.`\
 https://nytimes.com/athletic/6011408/2024/12/21/auston-matthews-injury-leafs-islanders/
-
-**Germany Bulked Up Christmas Market Security. An Attack Still Happened.**\
-`The latest deadly assault on a beloved German tradition illustrates the challenge of holiday safety.`\
-https://nytimes.com/2024/12/21/world/europe/germany-christmas-market-security.html
-
-**The Waging of an Alleged Smear Campaign Against Blake Lively**\
-`The movie “It Ends With Us” starring Blake Lively was a huge box office hit, even as rumors spread of turmoil behind the scenes.`\
-https://nytimes.com/video/arts/100000009874263/the-waging-of-an-alleged-smear-campaign-against-blake-lively.html
 
