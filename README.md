@@ -1,40 +1,40 @@
-**The Fight to Save Googie, the Style of Postwar Optimism**\
-`The car-centric architectural style, characterized by neon signs and dramatic rooflines, is now endangered. Its admirers mourn the loss of the ideals it represented.`\
-https://nytimes.com/2024/12/21/realestate/googie-architecture.html
+**In ‘Mrs. Stern’ and ‘Racecar,’ Humans Keep Repeating Their Worst Mistakes**\
+`Pernicious patterns figure heavily in two thought-provoking plays on small Manhattan stages.`\
+https://nytimes.com/2024/12/21/theater/mrs-stern-racecar-racecar-racecar-review.html
 
-**Band-Aid Over a Bullet Wound**\
-`Getting shot, and trying to keep it a secret.`\
-https://nytimes.com/2024/12/21/style/band-aid-over-a-bullet-wound.html
+**Hitting Home for the Holidays: A Jump in Egg Prices**\
+`Costs have soared again amid a bird flu outbreak, bringing renewed attention to the fact that while inflation is cooling, prices are still elevated.`\
+https://nytimes.com/2024/12/21/business/egg-prices-bird-flu.html
 
-**Googie, a Futuristic Style of Architecture, Is Endangered**\
-`Googie architecture is a midcentury design style characterized by dramatic rooflines, pops of color, large glass windows and flashy signs.`\
-https://nytimes.com/video/realestate/100000009827985/googie-architecture-endangered.html
+**From Liberal Icon to MAGA Joke: The Waning Fortunes of Justin Trudeau**\
+`Canada’s prime minister gained global renown 10 years ago for his unabashedly progressive politics. But at home, voters turned sour on him long ago.`\
+https://nytimes.com/2024/12/21/world/canada/justin-trudeau-canada-popularity-decline.html
 
-**What Do We Want From the Mall?**\
-`Decades after mega retail centers became a shorthand for bland suburbia, there may be some hope for them yet.`\
-https://nytimes.com/2024/12/21/style/what-do-we-want-from-the-mall.html
+**What Is It About the Doechii Aesthetic?**\
+`Braids as tethers, visible face tape, hip-hop-inflected preppiness: Recent looks by the Grammy-nominated rapper have inspired fascination and at least one nail-art tribute.`\
+https://nytimes.com/2024/12/21/style/doechii-fashion.html
 
-**He’s the Only 3-Michelin-Starred Chef in Seoul. Don’t Cross Him.**\
-`Anh Sung-jae went to America as a 13-year-old, joined the Army, went to culinary school and opened a top restaurant in San Francisco. Now back home in South Korea, he’s a Netflix star.`\
-https://nytimes.com/2024/12/21/business/culinary-class-wars-netflix-anh-sung-jae.html
+**The Best Holiday Brunches Start With This Supermarket Ingredient**\
+`Turn store-bought croissants into so much more with these effortless recipes for a crowd.`\
+https://nytimes.com/2024/12/21/dining/croissant-christmas-brunch.html
 
-**How to (Gently) Set Boundaries During the Holidays**\
-`Experts share tips for minimizing irritation and avoiding intrusive questions.`\
-https://nytimes.com/2024/12/21/well/holiday-boundaries-family.html
+**For Pedro Almodóvar’s Movies, the Poster Tells Its Own Story**\
+`The filmmaker has long collaborated with the graphic designer Juan Gatti to make alluring posters for his films, including one for his latest, “The Room Next Door.”`\
+https://nytimes.com/2024/12/21/movies/pedro-almodovar-movie-posters.html
 
-**Audiobooks to Cook (or Eat) To, From Ina Garten to David Chang**\
-`These culinary coming-of-age tales are movable feasts for the gluttonous listener.`\
-https://nytimes.com/2024/12/21/books/review/audiobooks-by-cooks.html
+**The Gym in My Apartment Building Is SO LOUD! What Can I Do?**\
+`It’s possible that a gym isn’t even allowed in your building. If it is, it cannot violate the noise code, the warranty of habitability or the lease.`\
+https://nytimes.com/2024/12/21/realestate/the-gym-in-my-apartment-building-is-so-loud-what-can-i-do.html
 
-**German Officials Search for Motive in Christmas Market Attack**\
-`At least four people were killed and more than 200 others injured after a driver rammed an SUV into a crowded Christmas market in eastern Germany.`\
-https://nytimes.com/2024/12/21/world/europe/germany-christmas-market-attack.html
+**Is ‘People Pleasing’ Giving You Money Problems? Here’s How to Fix Things.**\
+`Spending money to avoid conflict or gain social acceptance can ruin your finances. Some self-reflection and support from professionals can help turn things around.`\
+https://nytimes.com/2024/12/21/business/people-pleasing-money-debt.html
 
-**Yamal's injury gives Flick a dilemma for key Atletico Madrid match**\
-`Barcelona have found it tough when Lamine Yamal has been absent, so his injury comes at an inopportune time as they face their title rivals`\
-https://nytimes.com/athletic/6010669/2024/12/21/lamine-yamal-injury-barcelona-atletico-madrid/
+**A Restaurant Is More Than a Workplace for People Often Shunned by Employers**\
+`A popular restaurant in Buenos Aires is staffed almost entirely by workers with neurological challenges, tapping into often-overlooked talent and harnessing their skills.`\
+https://nytimes.com/2024/12/21/world/americas/buenos-aires-neurodivergent-restaurant-alamesa.html
 
-**Putting Trash in Trash Cans? Good Luck With That, New Yorkers Say.**\
-`Citywide rules now require more buildings to place trash bags inside containers for pickup. Many New Yorkers are thrilled to see fewer rats, but some are discovering new headaches.`\
-https://nytimes.com/2024/12/21/nyregion/nyc-trash-bins-rats.html
+**This Chrismukkah, Latkes and Eggnog Go Together**\
+`The first night of Hanukkah and Christmas Day converge for the first time since 2005. What are families who celebrate both to do?`\
+https://nytimes.com/2024/12/21/us/christmas-hanukkah-chrismukkah.html
 
