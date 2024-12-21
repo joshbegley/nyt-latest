@@ -1,3 +1,7 @@
+**Rickey Henderson, Baseball’s Flamboyant ‘Man of Steal,’ Dies at 65**\
+`Widely regarded as the greatest leadoff hitter in baseball history, he was not just one of the game’s most exciting players but also one of its most eccentric.`\
+https://nytimes.com/2024/12/21/sports/rickey-henderson-dead.html
+
 **Kepner: Rickey Henderson leaves legacy as one of baseball's greatest showmen**\
 `Certainly, no one outside of the movies loved stealing as much as Rickey Henderson or succeeded so grandly at it.`\
 https://nytimes.com/athletic/6011502/2024/12/21/rickey-henderson-legacy-oakland-athletics-appreciation/
