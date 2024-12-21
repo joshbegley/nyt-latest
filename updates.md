@@ -1,3 +1,7 @@
+**Chicago Board of Education Votes to Fire Leader of City’s School System**\
+`The job status of Pedro Martinez, the chief executive of Chicago Public Schools, had been in doubt for months amid tension with Mayor Brandon Johnson.`\
+https://nytimes.com/2024/12/20/us/chicago-public-schools-pedro-martinez.html
+
 **What’s Next for Google’s Search Monopoly**\
 `The federal judge who ruled Google was a monopolist in search is weighing his options to fix the monopoly. Here’s what happens now.`\
 https://nytimes.com/2024/12/20/technology/google-antitrust-case-chrome.html

@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/20/technology/google-antitrust-case-chrome.html
 `The search giant’s proposals included allowing flexibility for companies and consumers in choosing a search engine.`\
 https://nytimes.com/2024/12/20/technology/google-antitrust-search-remedies.html
 
-**Chicago Board of Education Fires Leader of City’s School System**\
+**Chicago Board of Education Votes to Fire Leader of City’s School System**\
 `The job status of Pedro Martinez, the chief executive of Chicago Public Schools, had been in doubt for months amid tension with Mayor Brandon Johnson.`\
 https://nytimes.com/2024/12/20/us/chicago-public-schools-pedro-martinez.html
 
