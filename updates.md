@@ -1,3 +1,7 @@
+**Wild preach urgency — not panic — during biggest funk of season: Takeaways vs. Utah**\
+`There are legitimate concerns brewing after the Wild lost their third straight game. `\
+https://nytimes.com/athletic/6010395/2024/12/21/wild-utah-takeaways-mats-zuccarello/
+
 **Pereira's Wolves unveiling: Five key takeaways from his first press conference**\
 `Vitor Pereira was unveiled as the new Wolves head coach this week — here are the takeaways from his first press conference`\
 https://nytimes.com/athletic/6009185/2024/12/21/vitor-pereira-wolves-press-conference-analysis/
