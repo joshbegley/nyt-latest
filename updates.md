@@ -1,3 +1,7 @@
+**German Officials Search for Motive in Christmas Market Attack**\
+`At least four people were killed and more than 200 others injured after a driver rammed an SUV into a crowded Christmas market in eastern Germany.`\
+https://nytimes.com/2024/12/21/world/europe/germany-christmas-market-attack.html
+
 **Yamal's injury gives Flick a dilemma for key Atletico Madrid match**\
 `Barcelona have found it tough when Lamine Yamal has been absent, so his injury comes at an inopportune time as they face their title rivals`\
 https://nytimes.com/athletic/6010669/2024/12/21/lamine-yamal-injury-barcelona-atletico-madrid/

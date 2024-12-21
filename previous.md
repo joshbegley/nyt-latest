@@ -1,3 +1,7 @@
+**German Officials Search for Motive in Christmas Market Attack**\
+`At least four people were killed and more than 200 others injured after a driver rammed an SUV into a crowded Christmas market in eastern Germany.`\
+https://nytimes.com/2024/12/21/world/europe/germany-christmas-market-attack.html
+
 **Yamal's injury gives Flick a dilemma for key Atletico Madrid match**\
 `Barcelona have found it tough when Lamine Yamal has been absent, so his injury comes at an inopportune time as they face their title rivals`\
 https://nytimes.com/athletic/6010669/2024/12/21/lamine-yamal-injury-barcelona-atletico-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6010535/2024/12/21/lane-kiffin-college-football-pla
 **Yankees trade Jose Trevino to Reds for Fernando Cruz, Alex Jackson**\
 `He appeared in a career-high 115 games, slashing .248/.283/.388 through 353 plate appearances.`\
 https://nytimes.com/athletic/6010431/2024/12/21/yankees-trade-jose-trevino-reds-fernando-cruz-alex-jackson/
-
-**Pereira's Wolves unveiling: Five key takeaways from his first press conference**\
-`Vitor Pereira was unveiled as the new Wolves head coach this week — here are the takeaways from his first press conference`\
-https://nytimes.com/athletic/6009185/2024/12/21/vitor-pereira-wolves-press-conference-analysis/
 
