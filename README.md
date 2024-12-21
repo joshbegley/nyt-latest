@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6010960/2024/12/21/erling-haaland-city-form/
 `Blake Lively v. Wayfarer Studios LLC et al`\
 https://nytimes.com/interactive/2024/12/21/us/complaint-of-blake-lively-v-wayfarer-studios-llc-et-al.html
 
-**Christian Pulisic: Christian Pulisic: Berhalter's USMNT return and exit, Pochettino arrival and pressure of fame**\
+**Christian Pulisic: Berhalter's USMNT return and exit, Pochettino arrival and pressure of fame**\
 `Christian Pulisic spoke to GQ about a number of topics after an interesting year for the US men's national team`\
 https://nytimes.com/athletic/6010058/2024/12/21/christian-pulisic-usmnt-gregg-berhalter/
 
