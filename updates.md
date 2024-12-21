@@ -1,3 +1,7 @@
+**The Best Movies About Politics (According to You)**\
+`Tired of real politics? Try the silver screen instead.`\
+https://nytimes.com/2024/12/20/us/politics/political-movies.html
+
 **House Passes Bill to Avert Shutdown With Hours to Spare**\
 `The measure still needed approval from the Senate and a signature by President Biden to avert a lapse in federal funding at 12:01 a.m. on Saturday.`\
 https://nytimes.com/2024/12/20/us/politics/congress-shutdown-budget-deadline.html

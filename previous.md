@@ -1,3 +1,7 @@
+**The Best Movies About Politics (According to You)**\
+`Tired of real politics? Try the silver screen instead.`\
+https://nytimes.com/2024/12/20/us/politics/political-movies.html
+
 **House Passes Bill to Avert Shutdown With Hours to Spare**\
 `The measure still needed approval from the Senate and a signature by President Biden to avert a lapse in federal funding at 12:01 a.m. on Saturday.`\
 https://nytimes.com/2024/12/20/us/politics/congress-shutdown-budget-deadline.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/world/africa/cyclone-chido-death-toll-mayotte.htm
 **Troy Masters, Pioneering L.G.B.T.Q. Journalist, Dies at 63**\
 `He was at the helm of several influential publications, notably Gay City News in New York City and, since 2017, The Los Angeles Blade.`\
 https://nytimes.com/2024/12/20/business/media/troy-masters-dead.html
-
-**Suspect in C.E.O. Killing to Be Arraigned on State Charges Monday**\
-`Luigi Mangione faces terror and murder charges in New York court. A federal prosecution is proceeding in parallel.`\
-https://nytimes.com/2024/12/20/nyregion/mangione-state-arraignment-monday.html
 
