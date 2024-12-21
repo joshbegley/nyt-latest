@@ -1,3 +1,7 @@
+**Yankees trade Jose Trevino to Reds for Fernando Cruz, Alex Jackson**\
+`He appeared in a career-high 115 games, slashing .248/.283/.388 through 353 plate appearances.`\
+https://nytimes.com/athletic/6010431/2024/12/21/yankees-trade-jose-trevino-reds-fernando-cruz-alex-jackson/
+
 **Pereira's Wolves unveiling: Five key takeaways from his first press conference**\
 `Vitor Pereira was unveiled as the new Wolves head coach this week — here are the takeaways from his first press conference`\
 https://nytimes.com/athletic/6009185/2024/12/21/vitor-pereira-wolves-press-conference-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6009271/2024/12/21/journalists-football-coaches-fea
 **Why Brazilian sides are being targeted by multi-club groups**\
 `Why are investors turning their attention to Brazilian clubs?`\
 https://nytimes.com/athletic/6006522/2024/12/21/brazilian-club-ownership-multi-club-model/
-
-**Terrorism Roars Back in Pakistan, 10 Years After a Campaign to End It**\
-`Political instability, dwindling public support and economic constraints are eroding the costly gains that the country made in combating militancy after a ghastly school attack in 2014.`\
-https://nytimes.com/2024/12/21/world/asia/pakistan-terrorism.html
 

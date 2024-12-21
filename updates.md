@@ -1,3 +1,7 @@
+**Yankees trade Jose Trevino to Reds for Fernando Cruz, Alex Jackson**\
+`He appeared in a career-high 115 games, slashing .248/.283/.388 through 353 plate appearances.`\
+https://nytimes.com/athletic/6010431/2024/12/21/yankees-trade-jose-trevino-reds-fernando-cruz-alex-jackson/
+
 **Wild preach urgency — not panic — during biggest funk of season: Takeaways vs. Utah**\
 `There are legitimate concerns brewing after the Wild lost their third straight game. `\
 https://nytimes.com/athletic/6010395/2024/12/21/wild-utah-takeaways-mats-zuccarello/
