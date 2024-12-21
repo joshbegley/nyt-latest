@@ -1,3 +1,7 @@
+**NFL Week 16 fantasy football, betting cheat sheet: Pickens out, Bateman game-time decision**\
+`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
+https://nytimes.com/athletic/6001045/2024/12/21/nfl-week-16-fantasy-football-betting-cheat-sheet/
+
 **The Waging of an Alleged Smear Campaign Against Blake Lively**\
 `The movie “It Ends With Us” starring Blake Lively was a huge box office hit, even as rumors spread of turmoil behind the scenes.`\
 https://nytimes.com/video/arts/100000009874263/the-waging-of-an-alleged-smear-campaign-against-blake-lively.html
