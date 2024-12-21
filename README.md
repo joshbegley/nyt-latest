@@ -1,3 +1,7 @@
+**Germany Bulked Up Christmas Market Security. An Attack Still Happened.**\
+`The latest deadly assault on a beloved German tradition illustrates the challenge of holiday safety.`\
+https://nytimes.com/2024/12/21/world/europe/germany-christmas-market-security.html
+
 **The Waging of an Alleged Smear Campaign Against Blake Lively**\
 `The movie “It Ends With Us” starring Blake Lively was a huge box office hit, even as rumors spread of turmoil behind the scenes.`\
 https://nytimes.com/video/arts/100000009874263/the-waging-of-an-alleged-smear-campaign-against-blake-lively.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6008993/2024/12/21/ivan-juric-southampton/
 **The Briefing: Ipswich 0 Newcastle 4 - Isak's hat-trick, Murphy magic and are Howe's team back?**\
 `Chris Waugh breaks down the main talking points from Newcastle's dominant 4-0 win at Ipswich Town`\
 https://nytimes.com/athletic/5993177/2024/12/21/ipswich-town-0-newcastle-united-4-isak-murphy/
-
-**NFL Week 16 fantasy football, betting cheat sheet: Pickens out, Bateman game-time decision**\
-`The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
-https://nytimes.com/athletic/6001045/2024/12/21/nfl-week-16-fantasy-football-betting-cheat-sheet/
 
