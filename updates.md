@@ -1,3 +1,7 @@
+**‘We Can Bury Anyone’: Inside a Hollywood Smear Machine**\
+`Private messages detail an alleged campaign to smear Blake Lively after she accused Justin Baldoni of misconduct on the set of “It Ends With Us.”`\
+https://nytimes.com/2024/12/21/business/media/blake-lively-justin-baldoni-it-ends-with-us.html
+
 **Read the Complaint**\
 `Blake Lively v. Wayfarer Studios LLC et al`\
 https://nytimes.com/interactive/2024/12/21/us/complaint-of-blake-lively-v-wayfarer-studios-llc-et-al.html
