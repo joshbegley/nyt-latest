@@ -1,3 +1,7 @@
+**Jim Montgomery insists the Blues are playing well overall, and the goals will come**\
+`For the fourth time in their last five games, the Blues were limited to just one goal. `\
+https://nytimes.com/athletic/6010302/2024/12/21/blues-loss-panthers-jim-montgomery-goals/
+
 **Rexrode: Indiana deserved its Playoff bid even if its schedule helped it get there**\
 `It’s OK to love the story of the 2024 Indiana Hoosiers and admit the script had a ghostwriter known as the Big Ten scheduling computer.`\
 https://nytimes.com/athletic/6010572/2024/12/21/indiana-notre-dame-college-football-playoff-committee-debate/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006406/2024/12/21/muriel-furrer-cycling-death/
 **How Merseyside became America's 51st state**\
 `With two clubs in U.S. hands and another possibly to follow, what is the appeal of Merseyside - and what are the potential pitfalls?`\
 https://nytimes.com/athletic/5989076/2024/12/21/liverpool-everton-tranmere-us-owners-takeover/
-
-**Inside the world of opposition analysis: 'It's not about what they do, it’s about what we need to do'**\
-`Opposition analysts reveal what they do, how they work with managers, and what effect they really have on results`\
-https://nytimes.com/athletic/6009022/2024/12/21/inside-the-world-of-opposition-analysis/
 

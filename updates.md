@@ -1,3 +1,7 @@
+**Jim Montgomery insists the Blues are playing well overall, and the goals will come**\
+`For the fourth time in their last five games, the Blues were limited to just one goal. `\
+https://nytimes.com/athletic/6010302/2024/12/21/blues-loss-panthers-jim-montgomery-goals/
+
 **Rexrode: Indiana deserved its Playoff bid even if its schedule helped it get there**\
 `It’s OK to love the story of the 2024 Indiana Hoosiers and admit the script had a ghostwriter known as the Big Ten scheduling computer.`\
 https://nytimes.com/athletic/6010572/2024/12/21/indiana-notre-dame-college-football-playoff-committee-debate/
