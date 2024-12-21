@@ -1,3 +1,15 @@
+**Rosenthal: For all his wondrous MLB accomplishments, Rickey Henderson is best known as the 'Man of Steal'**\
+`With an all-time record 1,406 career stolen bases, Henderson's prowess on the basepaths will likely never be matched. `\
+https://nytimes.com/athletic/6011382/2024/12/21/rickey-henderson-man-of-steal/
+
+**Congress Approves Spending Package After Political Drama**\
+`President Biden signed the spending bill early on Saturday, ensuring that there would be no lapse in government funding.`\
+https://nytimes.com/video/us/politics/100000009891658/congress-approves-spending-extension.html
+
+**Germany Mourns After Christmas Market Attack**\
+`Germans visited a memorial in Magdeburg, Germany, for the at least five people killed and more than 200 injured at a Christmas market, after an attacker drove a vehicle into a crowd.`\
+https://nytimes.com/video/world/europe/100000009891809/german-market-magdeburg-memorial.html
+
 **Kepner: Rickey Henderson leaves legacy as one of baseball's greatest showmen**\
 `Certainly, no one outside of the movies loved stealing as much as Rickey Henderson or succeeded so grandly at it.`\
 https://nytimes.com/athletic/6011502/2024/12/21/rickey-henderson-legacy-oakland-athletics-appreciation/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/21/us/wisconsin-school-shooting-victim-memorial.html
 **Lee Edwards, Historian of the Conservative Movement, Dies at 92**\
 `In his books about Ronald Reagan, Barry Goldwater and other figures on the right, he was, one observer said, “a keeper of the flame and spreader of the gospel.”`\
 https://nytimes.com/2024/12/21/us/politics/lee-edwards-dead.html
-
-**Patrick Mahomes leads Chiefs over Texans in 27-19 win**\
-`The Texans lost wide receiver Tank Dell to a significant left knee injury after he caught a TD pass from quarterback C.J. Stroud.`\
-https://nytimes.com/athletic/6011071/2024/12/21/texans-chiefs-score-result-takeaways-nfl/
-
-**Dodgers explore right-handed hitting alternatives beyond free-agent Teoscar Hernández**\
-`As the Dodgers weigh a reunion with Hernández, they've also inquired about free-agent Ha-Seong Kim and potential trade targets in Chicago.`\
-https://nytimes.com/athletic/6011626/2024/12/21/dodgers-teoscar-hernandez-alternatives/
-
-**Rickey Henderson, Baseball’s Flamboyant ‘Man of Steal,’ Dies at 65**\
-`Widely regarded as the greatest leadoff hitter in baseball history, he was not just one of the game’s most exciting players but also one of its most eccentric.`\
-https://nytimes.com/2024/12/21/sports/rickey-henderson-dead.html
 
