@@ -1,3 +1,7 @@
+**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
+https://nytimes.com/athletic/5891633/2024/12/21/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Leafs' Auston Matthews expected to miss Saturday's game vs. Islanders**\
 `Matthews is believed to have re-aggravated the undisclosed injury that caused him to miss nine games earlier this season.`\
 https://nytimes.com/athletic/6011408/2024/12/21/auston-matthews-injury-leafs-islanders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011144/2024/12/21/indiana-lane-kiffin-college-foot
 **Biden Signs Spending Bill, Finalizing End to Shutdown Drama**\
 `President Biden’s signature, while technically coming after the midnight deadline for a shutdown, ensured that there would be no lapse in government funding.`\
 https://nytimes.com/2024/12/21/us/politics/biden-signs-spending-bill.html
-
-**Southampton confirm Juric as new manager**\
-`Southampton have confirmed the appointment of Ivan Juric as their new manager.`\
-https://nytimes.com/athletic/6008993/2024/12/21/ivan-juric-southampton/
 
