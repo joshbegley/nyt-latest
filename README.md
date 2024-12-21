@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6011350/2024/12/21/paul-goldschmidt-contract-yankee
 https://nytimes.com/2024/12/21/opinion/trump-musk-president.html
 
 **Sterling misses Crystal Palace game with injury**\
-`Raheem Sterling was left out of Arsenal&#8217;s squad for their Premier League match against Crystal Palace on Saturday with an injury.`\
+`Raheem Sterling was left out of Arsenal&#8217;s squad for their Premier League win over Crystal Palace on Saturday after picking up an unspecified injury.`\
 https://nytimes.com/athletic/6011199/2024/12/21/arsenal-sterling-injury/
 
 **Feldman: Sorry, Lane Kiffin. Indiana earned its spot in the Playoff**\
