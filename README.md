@@ -1,3 +1,7 @@
+**Get Ready for Oohs and Aahs**\
+`Clare de Boer’s rice and squash bombe makes a glorious vegetarian centerpiece or a show-stealing side for a roast or braise.`\
+https://nytimes.com/2024/12/21/dining/vegetarian-holiday-recipe.html
+
 **Haaland on Man City slump: 'I haven't been good enough'**\
 `Erling Haaland says he has &#8220;not been good enough&#8221; after Manchester City&#8217;s dire run of form continued with a 2-1 defeat at Aston Villa on Saturday lunchtime.`\
 https://nytimes.com/athletic/6010960/2024/12/21/erling-haaland-city-form/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/nyregion/nypd-jeffrey-maddrey-resigns.html
 **Pope Francis’ Christmas Message to His Top Advisers: Don’t Gossip**\
 `Francis urged the Vatican inner circle to bless more and talk less badly of others. It wasn’t the first time he had used the occasion to scold them.`\
 https://nytimes.com/2024/12/21/world/europe/pope-francis-christmas-vatican-gossip.html
-
-**As Drugstores Close, Older People Are Left in ‘Pharmacy Deserts’**\
-`Shuttered drugstores pose a particular threat to older adults, who take more medications than younger people and often rely on pharmacies for advice.`\
-https://nytimes.com/2024/12/21/health/drugstore-closures-seniors.html
 
