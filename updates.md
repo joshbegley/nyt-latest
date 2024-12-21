@@ -1,3 +1,7 @@
+**Notre Dame rolls past Indiana in College Football Playoff opening game: What's next?**\
+`Notre Dame controlled the game in a 27-17 win and will advance to the Sugar Bowl against Georgia.`\
+https://nytimes.com/athletic/6010457/2024/12/20/notre-dame-indiana-college-football-playoff/
+
 **Missile from Yemen Hits Tel Aviv Area, Israel Says**\
 `The Israeli military said several people were slightly injured after its air defenses failed to intercept the projectile.`\
 https://nytimes.com/2024/12/20/world/middleeast/israel-tel-aviv-missile-yemen.html
