@@ -1,3 +1,7 @@
+**Donald Trump Is Vulnerable**\
+`His win did not upend the rules of American politics or render him immune to political misfortune.`\
+https://nytimes.com/2024/12/21/opinion/trump-musk-president.html
+
 **Sterling misses Crystal Palace game with injury**\
 `Raheem Sterling was left out of Arsenal&#8217;s squad for their Premier League match against Crystal Palace on Saturday with an injury.`\
 https://nytimes.com/athletic/6011199/2024/12/21/arsenal-sterling-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/business/party-city-closing.html
 **Get Ready for Oohs and Aahs**\
 `Clare de Boer’s rice and squash bombe makes a glorious vegetarian centerpiece or a show-stealing side for a roast or braise.`\
 https://nytimes.com/2024/12/21/dining/vegetarian-holiday-recipe.html
-
-**Haaland on Man City slump: 'I haven't been good enough'**\
-`Erling Haaland says he has &#8220;not been good enough&#8221; after Manchester City&#8217;s dire run of form continued with a 2-1 defeat at Aston Villa on Saturday lunchtime.`\
-https://nytimes.com/athletic/6010960/2024/12/21/erling-haaland-city-form/
 

@@ -1,3 +1,7 @@
+**Donald Trump Is Vulnerable**\
+`His win did not upend the rules of American politics or render him immune to political misfortune.`\
+https://nytimes.com/2024/12/21/opinion/trump-musk-president.html
+
 **NFL Week 16 fantasy, betting cheat sheet: Hollywood Brown set to debut, Pickens ruled out**\
 `The top injuries to monitor. Plus, Jake Ciely's player rankings, weather reports and more fantasy and betting insights.`\
 https://nytimes.com/athletic/6001045/2024/12/21/nfl-week-16-fantasy-football-betting-cheat-sheet/
