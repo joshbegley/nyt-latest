@@ -1,3 +1,7 @@
+**Bronny James puts together uneven showing at G League Winter Showcase**\
+`We don't have this level of scrutiny for most 20-year-old rookies, but James' two games in Orlando were a mixed bag to say the least.`\
+https://nytimes.com/athletic/6011369/2024/12/21/bronny-james-g-league-showcase-recap/
+
 **Arteta 'pretty worried' by Saka hamstring injury**\
 `Mikel Arteta says Bukayo Saka will have tests to determine the extent of a hamstring injury picked up during Arsenal&#8217;s 5-1 win over Crystal Palace on Saturday.`\
 https://nytimes.com/athletic/6011373/2024/12/21/bukayo-saka-hamstring-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/world/europe/germany-christmas-market-security.ht
 **The Waging of an Alleged Smear Campaign Against Blake Lively**\
 `The movie “It Ends With Us” starring Blake Lively was a huge box office hit, even as rumors spread of turmoil behind the scenes.`\
 https://nytimes.com/video/arts/100000009874263/the-waging-of-an-alleged-smear-campaign-against-blake-lively.html
-
-**Tennessee at Ohio State: How to watch, odds, picks for CFP first-round game**\
-`Ohio State hosts Tennessee in a matchup of two of college football's best defenses. The Buckeyes are favored by a touchdown.`\
-https://nytimes.com/athletic/5981997/2024/12/21/tennessee-ohio-state-how-to-watch-odds-college-football-playoff/
 

@@ -1,3 +1,7 @@
+**Bronny James puts together uneven showing at G League Winter Showcase**\
+`We don't have this level of scrutiny for most 20-year-old rookies, but James' two games in Orlando were a mixed bag to say the least.`\
+https://nytimes.com/athletic/6011369/2024/12/21/bronny-james-g-league-showcase-recap/
+
 **Arteta 'pretty worried' by Saka hamstring injury**\
 `Mikel Arteta says Bukayo Saka will have tests to determine the extent of a hamstring injury picked up during Arsenal&#8217;s 5-1 win over Crystal Palace on Saturday.`\
 https://nytimes.com/athletic/6011373/2024/12/21/bukayo-saka-hamstring-arsenal/
