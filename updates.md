@@ -1,3 +1,7 @@
+**Yankees agree to one-year deal with first baseman Paul Goldschmidt**\
+`Goldschmidt will fill a need for the Yankees after the departure of first baseman Anthony Rizzo.`\
+https://nytimes.com/athletic/6011350/2024/12/21/paul-goldschmidt-contract-yankees-mlb-free-agency/
+
 **Donald Trump Is Vulnerable**\
 `His win did not upend the rules of American politics or render him immune to political misfortune.`\
 https://nytimes.com/2024/12/21/opinion/trump-musk-president.html
