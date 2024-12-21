@@ -1,3 +1,15 @@
+**André 3000 Performs in the New York Times Newsroom**\
+`After an interview on The Times’s Popcast podcast, André 3000 and the band behind “New Blue Sun” — featuring Surya Botofasina, Nate Mercereau, Carlos Niño and Deantoni Parks — performed an improvised piece in the newsroom.`\
+https://nytimes.com/video/podcasts/100000009887667/andre-3000-music-popcast-clip.html
+
+**After This Interview, André 3000 Performed in Our Newsroom**\
+`The rapper-turned-flutist improvised in the middle of The Times’ office following a wide-ranging conversation on Popcast.`\
+https://nytimes.com/2024/12/21/arts/music/andre-3000-popcast-interview-performance.html
+
+**André 3000 Performs Surprise Concert in The NY Times Newsroom**\
+`André 3000 and the band behind “New Blue Sun” — featuring Surya Botofasina, Nate Mercereau, Carlos Niño and Deantoni Parks — perform in The Times’ newsroom.`\
+https://nytimes.com/video/podcasts/100000009887657/andre-3000-performs-surprise-concert-in-the-ny-times-newsroom.html
+
 **Jonathan Roumie Plays Jesus to Millions. It Can Get Intense.**\
 `The star of “The Chosen” discusses his early struggles in Hollywood, fans who conflate him with his character and how his own faith informs his work.`\
 https://nytimes.com/2024/12/21/magazine/jonathan-roumie-interview.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/21/dining/croissant-christmas-brunch.html
 **For Pedro Almodóvar’s Movies, the Poster Tells Its Own Story**\
 `The filmmaker has long collaborated with the graphic designer Juan Gatti to make alluring posters for his films, including one for his latest, “The Room Next Door.”`\
 https://nytimes.com/2024/12/21/movies/pedro-almodovar-movie-posters.html
-
-**The Gym in My Apartment Building Is SO LOUD! What Can I Do?**\
-`It’s possible that a gym isn’t even allowed in your building. If it is, it cannot violate the noise code, the warranty of habitability or the lease.`\
-https://nytimes.com/2024/12/21/realestate/the-gym-in-my-apartment-building-is-so-loud-what-can-i-do.html
-
-**Is ‘People Pleasing’ Giving You Money Problems? Here’s How to Fix Things.**\
-`Spending money to avoid conflict or gain social acceptance can ruin your finances. Some self-reflection and support from professionals can help turn things around.`\
-https://nytimes.com/2024/12/21/business/people-pleasing-money-debt.html
-
-**A Restaurant Is More Than a Workplace for People Often Shunned by Employers**\
-`A popular restaurant in Buenos Aires is staffed almost entirely by workers with neurological challenges, tapping into often-overlooked talent and harnessing their skills.`\
-https://nytimes.com/2024/12/21/world/americas/buenos-aires-neurodivergent-restaurant-alamesa.html
 

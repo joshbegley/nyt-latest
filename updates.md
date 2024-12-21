@@ -1,3 +1,15 @@
+**André 3000 Performs in the New York Times Newsroom**\
+`After an interview on The Times’s Popcast podcast, André 3000 and the band behind “New Blue Sun” — featuring Surya Botofasina, Nate Mercereau, Carlos Niño and Deantoni Parks — performed an improvised piece in the newsroom.`\
+https://nytimes.com/video/podcasts/100000009887667/andre-3000-music-popcast-clip.html
+
+**After This Interview, André 3000 Performed in Our Newsroom**\
+`The rapper-turned-flutist improvised in the middle of The Times’ office following a wide-ranging conversation on Popcast.`\
+https://nytimes.com/2024/12/21/arts/music/andre-3000-popcast-interview-performance.html
+
+**André 3000 Performs Surprise Concert in The NY Times Newsroom**\
+`André 3000 and the band behind “New Blue Sun” — featuring Surya Botofasina, Nate Mercereau, Carlos Niño and Deantoni Parks — perform in The Times’ newsroom.`\
+https://nytimes.com/video/podcasts/100000009887657/andre-3000-performs-surprise-concert-in-the-ny-times-newsroom.html
+
 **Jonathan Roumie Plays Jesus to Millions. It Can Get Intense.**\
 `The star of “The Chosen” discusses his early struggles in Hollywood, fans who conflate him with his character and how his own faith informs his work.`\
 https://nytimes.com/2024/12/21/magazine/jonathan-roumie-interview.html
