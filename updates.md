@@ -1,3 +1,11 @@
+**Iran’s Energy Crisis Hits ‘Dire’ Point as Industries Are Forced to Shut Down**\
+`Although Iran has one of the biggest supplies of natural gas and crude oil in the world, it finds itself in a full blown energy emergency, coming just as it also suffers major geopolitical setbacks.`\
+https://nytimes.com/2024/12/21/world/middleeast/iran-economy-energy-crisis.html
+
+**Homeless Woman Going Into Labor Is Cited for Violating Camping Ban**\
+`Body-camera footage shows an officer from the Louisville Metro Police Department in Kentucky detain the woman, who gave birth later that day.`\
+https://nytimes.com/2024/12/21/us/kentucky-woman-pregnant-homeless-police.html
+
 **Penn State routs not-ready-for-prime-time SMU in Playoff: How far can Nittany Lions go?**\
 `Two early pick sixes sent Penn State on its way to a 38-10 Playoff rout of SMU and a quarterfinal date with Boise State in the Fiesta Bowl.`\
 https://nytimes.com/athletic/6011481/2024/12/21/penn-state-smu-score-college-football-playoff/
