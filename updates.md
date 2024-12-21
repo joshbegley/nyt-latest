@@ -1,3 +1,11 @@
+**SMU's CFP humbling: A 'shell-shocked' Cinderella's lesson about the big stage**\
+`Underdog stories typically end with a thud in the College Football Playoff. SMU and Indiana join a long list after first-round routs.`\
+https://nytimes.com/athletic/6011708/2024/12/21/smu-football-playoff-resume-penn-state/
+
+**Usyk beats Fury again to defend heavyweight world titles**\
+`Usyk outclassed Fury in Riyadh to defend his world heavyweight titles by unanimous decision in another pulsating fight`\
+https://nytimes.com/athletic/6011636/2024/12/21/usyk-vs-fury-fight-result/
+
 **Guardians trade Josh Naylor to D-Backs, sign Carlos Santana: Sources**\
 `The Guardians signed Naylor's replacement at first base shortly after trading him to Arizona.`\
 https://nytimes.com/athletic/6011721/2024/12/21/guardians-trade-josh-naylor-diamondbacks-carlos-santana/

@@ -1,3 +1,11 @@
+**SMU's CFP humbling: A 'shell-shocked' Cinderella's lesson about the big stage**\
+`Underdog stories typically end with a thud in the College Football Playoff. SMU and Indiana join a long list after first-round routs.`\
+https://nytimes.com/athletic/6011708/2024/12/21/smu-football-playoff-resume-penn-state/
+
+**Usyk beats Fury again to defend heavyweight world titles**\
+`Usyk outclassed Fury in Riyadh to defend his world heavyweight titles by unanimous decision in another pulsating fight`\
+https://nytimes.com/athletic/6011636/2024/12/21/usyk-vs-fury-fight-result/
+
 **Guardians trade Josh Naylor to D-Backs, sign Carlos Santana: Sources**\
 `The Guardians signed Naylor's replacement at first base shortly after trading him to Arizona.`\
 https://nytimes.com/athletic/6011721/2024/12/21/guardians-trade-josh-naylor-diamondbacks-carlos-santana/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/21/weather/atmospheric-rivers-will-drench-the-west-c
 **Go With the Flow**\
 `Adrian Johnson brings his themeless acumen to a larger arena.`\
 https://nytimes.com/2024/12/21/crosswords/daily-puzzle-2024-12-22.html
-
-**Rickey Henderson, MLB's stolen-base king, dies at 65**\
-`Henderson is MLB's all-time leader in stolen bases and runs, and is widely known as the best leadoff hitter ever to play.`\
-https://nytimes.com/athletic/6010471/2024/12/21/rickey-henderson-death-mlb-athletics-yankees/
-
-**‘A Gift to Everyone’: A Wisconsin Community Mourns a School Shooting Victim**\
-`Rubi Patricia Vergara was one of two victims killed in Madison this week. At a memorial service, she was remembered as an empathetic teenager with a passion for music and art.`\
-https://nytimes.com/2024/12/21/us/wisconsin-school-shooting-victim-memorial.html
 
