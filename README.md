@@ -1,3 +1,7 @@
+**Lindsey Vonn finishes 14th in Super-G in return to World Cup racing**\
+`After almost six years away from the sport, Lindsey Vonn made a strong return to the World Cup circuit Saturday.`\
+https://nytimes.com/athletic/6008142/2024/12/21/lindsey-vonn-return-world-cup-super-g-olympics/
+
 **Your Favorite Things**\
 `Today, your highly personal, hyperspecific best-ofs of 2024.`\
 https://nytimes.com/2024/12/21/briefing/your-favorite-things.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/crosswords/wordle-review-1282.html
 **The Connections Companion No. 560**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Dec. 22, 2024.`\
 https://nytimes.com/2024/12/21/crosswords/connections-companion-560.html
-
-**The Bears need a coach who holds players accountable. Look no further than Ron Rivera**\
-`History and experience are just two of the reasons the Bears should seriously consider Ron Rivera to be their next head coach.`\
-https://nytimes.com/athletic/6009872/2024/12/21/bears-coaching-search-ron-rivera-accountability/
 
