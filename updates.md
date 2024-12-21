@@ -1,3 +1,7 @@
+**Missile from Yemen Hits Tel Aviv Area, Israel Says**\
+`The Israeli military said several people were slightly injured after its air defenses failed to intercept the projectile.`\
+https://nytimes.com/2024/12/20/world/middleeast/israel-tel-aviv-missile-yemen.html
+
 **Maple Leafs report cards: Third line continues to rise to the occasion**\
 `Bobby McMann, Max Domi and Nick Robertson continued their offensive run in a 6-3 victory over Buffalo.`\
 https://nytimes.com/athletic/6010384/2024/12/20/maple-leafs-sabres-grades-analysis/
