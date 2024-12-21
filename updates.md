@@ -1,3 +1,11 @@
+**John Seidler, Peter's brother, to take over as Padres control person**\
+`The news of the appointment comes after the Padres concluded one of the best seasons in franchise history.`\
+https://nytimes.com/athletic/5978687/2024/12/21/john-seidler-padres-control-peter/
+
+**Guardians trade Josh Naylor to D-Backs, agree to deal with Carlos Santana**\
+`The Guardians agreed to a deal with Naylor's replacement at first base shortly after trading him to Arizona.`\
+https://nytimes.com/athletic/6011721/2024/12/21/guardians-trade-josh-naylor-diamondbacks-carlos-santana/
+
 **SMU's CFP humbling: A 'shell-shocked' Cinderella's lesson about the big stage**\
 `Underdog stories typically end with a thud in the College Football Playoff. SMU and Indiana join a long list after first-round routs.`\
 https://nytimes.com/athletic/6011708/2024/12/21/smu-football-playoff-resume-penn-state/

@@ -1,3 +1,7 @@
+**John Seidler, Peter's brother, to take over as Padres control person**\
+`The news of the appointment comes after the Padres concluded one of the best seasons in franchise history.`\
+https://nytimes.com/athletic/5978687/2024/12/21/john-seidler-padres-control-peter/
+
 **SMU's CFP humbling: A 'shell-shocked' Cinderella's lesson about the big stage**\
 `Underdog stories typically end with a thud in the College Football Playoff. SMU and Indiana join a long list after first-round routs.`\
 https://nytimes.com/athletic/6011708/2024/12/21/smu-football-playoff-resume-penn-state/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6011708/2024/12/21/smu-football-playoff-resume-penn
 `Usyk outclassed Fury in Riyadh to defend his world heavyweight titles by unanimous decision in another pulsating fight`\
 https://nytimes.com/athletic/6011636/2024/12/21/usyk-vs-fury-fight-result/
 
-**Guardians trade Josh Naylor to D-Backs, sign Carlos Santana: Sources**\
-`The Guardians signed Naylor's replacement at first base shortly after trading him to Arizona.`\
+**Guardians trade Josh Naylor to D-Backs, agree to deal with Carlos Santana**\
+`The Guardians agreed to a deal with Naylor's replacement at first base shortly after trading him to Arizona.`\
 https://nytimes.com/athletic/6011721/2024/12/21/guardians-trade-josh-naylor-diamondbacks-carlos-santana/
 
 **Rosenthal: For all his wondrous MLB accomplishments, Rickey Henderson is best known as the 'Man of Steal'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/us/politics/spending-pediatric-cancer-stadium.htm
 **Atmospheric Rivers Will Drench the West Coast**\
 `A parade of storms is expected to heighten the flood risk in the Pacific Northwest and Northern California over the next week.`\
 https://nytimes.com/2024/12/21/weather/atmospheric-rivers-will-drench-the-west-coast.html
-
-**Go With the Flow**\
-`Adrian Johnson brings his themeless acumen to a larger arena.`\
-https://nytimes.com/2024/12/21/crosswords/daily-puzzle-2024-12-22.html
 
