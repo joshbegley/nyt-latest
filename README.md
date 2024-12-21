@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6011708/2024/12/21/smu-football-playoff-resume-penn
 `Usyk outclassed Fury in Riyadh to defend his world heavyweight titles by unanimous decision in another pulsating fight`\
 https://nytimes.com/athletic/6011636/2024/12/21/usyk-vs-fury-fight-result/
 
-**Guardians trade Josh Naylor to D-Backs, sign Carlos Santana: Sources**\
-`The Guardians signed Naylor's replacement at first base shortly after trading him to Arizona.`\
+**Guardians trade Josh Naylor to D-Backs, agree to deal with Carlos Santana**\
+`The Guardians agreed to a deal with Naylor's replacement at first base shortly after trading him to Arizona.`\
 https://nytimes.com/athletic/6011721/2024/12/21/guardians-trade-josh-naylor-diamondbacks-carlos-santana/
 
 **Rosenthal: For all his wondrous MLB accomplishments, Rickey Henderson is best known as the 'Man of Steal'**\
