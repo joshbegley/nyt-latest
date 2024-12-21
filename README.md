@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Third line continues to rise to the occasion**\
+`Bobby McMann, Max Domi and Nick Robertson continued their offensive run in a 6-3 victory over Buffalo.`\
+https://nytimes.com/athletic/6010384/2024/12/20/maple-leafs-sabres-grades-analysis/
+
 **What’s Next for Google’s Search Monopoly**\
 `The federal judge who ruled Google was a monopolist in search is weighing his options to fix the monopoly. Here’s what happens now.`\
 https://nytimes.com/2024/12/20/technology/google-antitrust-case-chrome.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6010275/2024/12/20/commanders-rfk-site-control-gove
 **The Best Movies About Politics (According to You)**\
 `Tired of real politics? Try the silver screen instead.`\
 https://nytimes.com/2024/12/20/us/politics/political-movies.html
-
-**House Passes Bill to Avert Shutdown With Hours to Spare**\
-`The measure still needed approval from the Senate and a signature by President Biden to avert a lapse in federal funding at 12:01 a.m. on Saturday.`\
-https://nytimes.com/2024/12/20/us/politics/congress-shutdown-budget-deadline.html
 
