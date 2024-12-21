@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6009185/2024/12/21/vitor-pereira-wolves-press-confe
 https://nytimes.com/2024/12/21/us/congress-social-security.html
 
 **Wild preach urgency — not panic — during biggest funk of season: Takeaways vs. Utah**\
-`There are legitimate concerns brewing right now after the Wild lost their third straight game. `\
+`There are legitimate concerns brewing after the Wild lost their third straight game. `\
 https://nytimes.com/athletic/6010395/2024/12/21/wild-utah-takeaways-mats-zuccarello/
 
 **Losing Muriel Furrer – a teenage cycling tragedy and a family's search for answers**\
