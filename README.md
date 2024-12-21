@@ -22,7 +22,7 @@ https://nytimes.com/2024/12/21/world/middleeast/iran-economy-energy-crisis.html
 `Two early pick sixes sent Penn State on its way to a 38-10 Playoff rout of SMU and a quarterfinal date with Boise State in the Fiesta Bowl.`\
 https://nytimes.com/athletic/6011481/2024/12/21/penn-state-smu-score-college-football-playoff/
 
-**Texans WR Tank Dell exits vs. Chiefs with severe left knee injury**\
+**Texans WR Tank Dell to remain hospitalized following severe knee injury**\
 `On a deep throw intended for Dell, Houston wide receiver Jared Wayne was in the vicinity of the play and collided with Dell’s knee.`\
 https://nytimes.com/athletic/6011548/2024/12/21/houston-texans-tank-dell-chiefs-knee-injury/
 
