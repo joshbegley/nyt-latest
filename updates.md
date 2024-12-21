@@ -1,3 +1,7 @@
+**Dodgers explore right-handed hitting alternatives beyond free-agent Teoscar Hernández**\
+`As the Dodgers weigh a reunion with Hernández, they've also inquired about free-agent Ha-Seong Kim and potential trade targets in Chicago.`\
+https://nytimes.com/athletic/6011626/2024/12/21/dodgers-teoscar-hernandez-alternatives/
+
 **Penn State routs not-ready-for-prime-time SMU: What does it say about the Playoff?**\
 `Two early pick sixes sent Penn State on its way to a 38-10 Playoff rout of SMU and a quarterfinal date with Boise State in the Fiesta Bowl.`\
 https://nytimes.com/athletic/6011481/2024/12/21/penn-state-smu-score-college-football-playoff/
