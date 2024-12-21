@@ -1,3 +1,7 @@
+**Why struggling Kings have entered the danger zone around De'Aaron Fox's future**\
+`League sources say the Spurs are positioning for a pursuit of the All-Star as a partner for Victor Wembanyama, should Fox become available.`\
+https://nytimes.com/athletic/6010644/2024/12/21/deaaron-fox-kings-contract-trade-nba-spurs/
+
 **‘We Can Bury Anyone’: Inside a Hollywood Smear Machine**\
 `A legal complaint lays out an alleged campaign to tarnish Blake Lively after she accused Justin Baldoni of misconduct on the set of “It Ends With Us.”`\
 https://nytimes.com/2024/12/21/business/media/blake-lively-justin-baldoni-it-ends-with-us.html
