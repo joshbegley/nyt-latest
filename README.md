@@ -1,3 +1,7 @@
+**‘We Can Bury Anyone’: Inside a Hollywood Smear Machine**\
+`A legal complaint lays out an alleged campaign to tarnish Blake Lively after she accused Justin Baldoni of misconduct on the set of “It Ends With Us.”`\
+https://nytimes.com/2024/12/21/business/media/blake-lively-justin-baldoni-it-ends-with-us.html
+
 **The Briefing: Aston Villa 2 Man City 1 - Duran takes his chance, nine defeats in 12 for Guardiola's side ﻿**\
 `Jacob Tanswell, Thom Harris and Anantaajith Raghuraman analyse the key talking points from Aston Villa's victory over Manchester City`\
 https://nytimes.com/athletic/5993151/2024/12/21/aston-villa-manchester-city-analysis/
