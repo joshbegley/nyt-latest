@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2024/12/21/us/statement-to-the-new-york-times.ht
 https://nytimes.com/athletic/6010644/2024/12/21/deaaron-fox-kings-contract-trade-nba-spurs/
 
 **‘We Can Bury Anyone’: Inside a Hollywood Smear Machine**\
-`A legal complaint lays out an alleged campaign to tarnish Blake Lively after she accused Justin Baldoni of misconduct on the set of “It Ends With Us.”`\
+`Private messages detail an alleged campaign to smear Blake Lively after she accused Justin Baldoni of misconduct on the set of “It Ends With Us.”`\
 https://nytimes.com/2024/12/21/business/media/blake-lively-justin-baldoni-it-ends-with-us.html
 
 **The Briefing: Aston Villa 2 Man City 1 - Duran takes his chance, nine defeats in 12 for Guardiola's side ﻿**\
