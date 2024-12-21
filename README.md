@@ -1,3 +1,7 @@
+**Corrections: Dec. 21, 2024**\
+`Corrections that appeared in print on Saturday, Dec. 21, 2024.`\
+https://nytimes.com/2024/12/20/pageoneplus/corrections-dec-21-2024.html
+
 **Guatemalan Officials Raid Compound of Jewish Sect and Remove Dozens of Minors**\
 `The authorities say at least 160 children and teenagers may have been victims of human trafficking and other crimes on a farm run by an ultra-Orthodox sect, Lev Tahor.`\
 https://nytimes.com/2024/12/20/world/americas/guatemala-raid-ultra-orthodox-jewish-sect.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/us/politics/prisons-first-step-act-aclu.html
 **Cubs land meeting with star Japanese pitcher Roki Sasaki**\
 `Teams cannot sign Sasaki until Jan. 15 when the new international signing period opens. His 45-day posting period ends Jan. 24.`\
 https://nytimes.com/athletic/6010120/2024/12/20/cubs-roki-sasaki-meeting/
-
-**Ann Rockefeller Roberts, Champion of Native Americans, Dies at 90**\
-`The eldest daughter of Nelson Rockefeller, she founded a nonprofit to support Indigenous culture and helped fill two Smithsonian institutions with artifacts.`\
-https://nytimes.com/2024/12/20/nyregion/ann-rockefeller-roberts-dead.html
 
