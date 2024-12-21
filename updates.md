@@ -1,3 +1,7 @@
+**Corrections: Dec. 21, 2024**\
+`Corrections that appeared in print on Saturday, Dec. 21, 2024.`\
+https://nytimes.com/2024/12/20/pageoneplus/corrections-dec-21-2024.html
+
 **Guatemalan Officials Raid Compound of Jewish Sect and Remove Dozens of Minors**\
 `The authorities say at least 160 children and teenagers may have been victims of human trafficking and other crimes on a farm run by an ultra-Orthodox sect, Lev Tahor.`\
 https://nytimes.com/2024/12/20/world/americas/guatemala-raid-ultra-orthodox-jewish-sect.html
