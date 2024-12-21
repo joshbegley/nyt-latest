@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6011071/2024/12/21/texans-chiefs-score-result-takea
 https://nytimes.com/athletic/6011626/2024/12/21/dodgers-teoscar-hernandez-alternatives/
 
 **Rickey Henderson, Baseball’s Flamboyant ‘Man of Steal,’ Dies at 65**\
-`Widely regarded as the greatest leadoff hitter in baseball history, he was not just one of the game’s most exciting players, but also one of its most eccentric.`\
+`Widely regarded as the greatest leadoff hitter in baseball history, he was not just one of the game’s most exciting players but also one of its most eccentric.`\
 https://nytimes.com/2024/12/21/sports/rickey-henderson-dead.html
 
