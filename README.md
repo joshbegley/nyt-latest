@@ -1,3 +1,7 @@
+**Amazon Warehouse Workers in New York City Join Protest**\
+`The workers’ union hopes that adding employees at the Staten Island warehouse to a protest started by delivery drivers will increase pressure on Amazon.`\
+https://nytimes.com/2024/12/21/business/amazon-warehouse-staten-island-strike.html
+
 **Party City to Close All Stores by February, Company Says**\
 `In an internal letter, the company said inflation and changes in consumer spending had forced it to shut its more than 700 stores.`\
 https://nytimes.com/2024/12/21/business/party-city-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/business/media/blake-lively-justin-baldoni-it-end
 **The Briefing: Aston Villa 2 Man City 1 - Duran takes his chance, nine defeats in 12 for Guardiola's side ﻿**\
 `Jacob Tanswell, Thom Harris and Anantaajith Raghuraman analyse the key talking points from Aston Villa's victory over Manchester City`\
 https://nytimes.com/athletic/5993151/2024/12/21/aston-villa-manchester-city-analysis/
-
-**Top Uniformed N.Y.P.D. Officer Resigns After Abuse Allegations**\
-`Jeffrey Maddrey traded sexual favors for overtime, according to a report from The New York Post. He had previously been accused of harassment on the job.`\
-https://nytimes.com/2024/12/21/nyregion/nypd-jeffrey-maddrey-resigns.html
 
