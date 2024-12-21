@@ -1,3 +1,7 @@
+**Why Brazilian sides are being targeted by multi-club groups**\
+`Why are investors turning their attention to Brazilian clubs?`\
+https://nytimes.com/athletic/6006522/2024/12/21/brazilian-club-ownership-multi-club-model/
+
 **Terrorism Roars Back in Pakistan, 10 Years After a Campaign to End It**\
 `Political instability, dwindling public support and economic constraints are eroding the costly gains that the country made in combating militancy after a ghastly school attack in 2014.`\
 https://nytimes.com/2024/12/21/world/asia/pakistan-terrorism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6010384/2024/12/20/maple-leafs-sabres-grades-analys
 **What’s Next for Google’s Search Monopoly**\
 `The federal judge who ruled Google was a monopolist in search is weighing his options to fix the monopoly. Here’s what happens now.`\
 https://nytimes.com/2024/12/20/technology/google-antitrust-case-chrome.html
-
-**Google Proposes Fix to Solve Search Monopoly**\
-`The search giant’s proposals included allowing flexibility for companies and consumers in choosing a search engine.`\
-https://nytimes.com/2024/12/20/technology/google-antitrust-search-remedies.html
 
