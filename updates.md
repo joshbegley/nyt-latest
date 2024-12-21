@@ -1,3 +1,7 @@
+**Sterling misses Crystal Palace game with injury**\
+`Raheem Sterling was left out of Arsenal&#8217;s squad for their Premier League win over Crystal Palace on Saturday after picking up an unspecified injury.`\
+https://nytimes.com/athletic/6011199/2024/12/21/arsenal-sterling-injury/
+
 **The Briefing: Crystal Palace 1 Arsenal 5 - Is Jesus the answer? How worrying is Saka's injury?**\
 `Analysis of Arsenal's victory over Crystal Palace`\
 https://nytimes.com/athletic/5993189/2024/12/21/arsenal-palace-highlights-jesus-goals/
