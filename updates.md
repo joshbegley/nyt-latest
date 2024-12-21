@@ -1,3 +1,7 @@
+**Why Brazilian sides are being targeted by multi-club groups**\
+`Why are investors turning their attention to Brazilian clubs?`\
+https://nytimes.com/athletic/6006522/2024/12/21/brazilian-club-ownership-multi-club-model/
+
 **Terrorism Roars Back in Pakistan, 10 Years After a Campaign to End It**\
 `Political instability, dwindling public support and economic constraints are eroding the costly gains that the country made in combating militancy after a ghastly school attack in 2014.`\
 https://nytimes.com/2024/12/21/world/asia/pakistan-terrorism.html
