@@ -1,3 +1,11 @@
+**Homeless Woman Going Into Labor Is Cited for Camping Violation**\
+`Body-camera footage shows an officer from the Louisville Metro Police Department in Kentucky detain the woman, who gave birth later that day.`\
+https://nytimes.com/2024/12/21/us/kentucky-woman-pregnant-homeless-police.html
+
+**Paul Goldschmidt signs with Yankees: Reflecting on his Cardinals tenure**\
+`Goldschmidt will be missed throughout the organization, with teammates, coaches and executives praising his professionalism.`\
+https://nytimes.com/athletic/6011302/2024/12/21/paul-goldschmidt-cardinals-yankees/
+
 **Deception and Betrayal: Inside the Final Days of the Assad Regime**\
 `President Bashar al-Assad, who wielded fear and force over Syria for more than two decades, fled the country under the cover of night — and a fake political address.`\
 https://nytimes.com/2024/12/21/world/middleeast/assad-regime-syria-final-days.html

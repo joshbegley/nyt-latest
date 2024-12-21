@@ -1,3 +1,11 @@
+**Homeless Woman Going Into Labor Is Cited for Camping Violation**\
+`Body-camera footage shows an officer from the Louisville Metro Police Department in Kentucky detain the woman, who gave birth later that day.`\
+https://nytimes.com/2024/12/21/us/kentucky-woman-pregnant-homeless-police.html
+
+**Paul Goldschmidt signs with Yankees: Reflecting on his Cardinals tenure**\
+`Goldschmidt will be missed throughout the organization, with teammates, coaches and executives praising his professionalism.`\
+https://nytimes.com/athletic/6011302/2024/12/21/paul-goldschmidt-cardinals-yankees/
+
 **Deception and Betrayal: Inside the Final Days of the Assad Regime**\
 `President Bashar al-Assad, who wielded fear and force over Syria for more than two decades, fled the country under the cover of night — and a fake political address.`\
 https://nytimes.com/2024/12/21/world/middleeast/assad-regime-syria-final-days.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5981997/2024/12/21/tennessee-ohio-state-how-to-watc
 **Yankees agree to 1-year deal with 1B Paul Goldschmidt**\
 `Goldschmidt will fill a need for the Yankees after the departure of first baseman Anthony Rizzo.`\
 https://nytimes.com/athletic/6011350/2024/12/21/paul-goldschmidt-contract-yankees-mlb-free-agency/
-
-**Donald Trump Is Vulnerable**\
-`His win did not upend the rules of American politics or render him immune to political misfortune.`\
-https://nytimes.com/2024/12/21/opinion/trump-musk-president.html
-
-**Sterling misses Crystal Palace game with injury**\
-`Raheem Sterling was left out of Arsenal&#8217;s squad for their Premier League win over Crystal Palace on Saturday after picking up an unspecified injury.`\
-https://nytimes.com/athletic/6011199/2024/12/21/arsenal-sterling-injury/
 
