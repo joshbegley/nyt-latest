@@ -1,3 +1,7 @@
+**Guatemalan Officials Raid Compound of Jewish Sect and Remove Dozens of Minors**\
+`The authorities say at least 160 children and teenagers may have been victims of human trafficking and other crimes on a farm run by an ultra-Orthodox sect, Lev Tahor.`\
+https://nytimes.com/2024/12/20/world/americas/guatemala-raid-ultra-orthodox-jewish-sect.html
+
 **In Search of Loved Ones, Syrian Women Face Horror of Assad’s Regime**\
 `In Syria, women begin to pick up the pieces of a broken nation.`\
 https://nytimes.com/2024/12/20/magazine/syria-civil-war-women.html
