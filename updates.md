@@ -1,3 +1,7 @@
+**Sampson: Notre Dame knows who it is. It can change how others see it against Georgia**\
+`It's hard not to look ahead to Jan. 1 because the Sugar Bowl vs. Georgia is a chance for Notre Dame football to change its perception.`\
+https://nytimes.com/athletic/6010755/2024/12/21/notre-dame-indiana-playoff-georgia-sugar-bowl/
+
 **Man United face dilemma over Maguire contract situation**\
 `Manchester United face a dilemma in the negotiations for Harry Maguire’s proposed new deal, with the defender able to sign a pre-contract agreement with foreign clubs from January 1.`\
 https://nytimes.com/athletic/6009348/2024/12/21/harry-maguire-contract-manchester-united/
