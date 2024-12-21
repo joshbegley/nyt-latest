@@ -1,3 +1,15 @@
+**Atmospheric Rivers Will Drench the West Coast**\
+`A parade of storms is expected to heighten the flood risk in the Pacific Northwest and Northern California over the next week.`\
+https://nytimes.com/2024/12/21/weather/atmospheric-rivers-will-drench-the-west-coast.html
+
+**Go With the Flow**\
+`Adrian Johnson brings his themeless acumen to a larger arena.`\
+https://nytimes.com/2024/12/21/crosswords/daily-puzzle-2024-12-22.html
+
+**Rickey Henderson, MLB's stolen-base king, dies at 65**\
+`Henderson is MLB's all-time leader in stolen bases and runs, and is widely known as the best leadoff hitter ever to play.`\
+https://nytimes.com/athletic/6010471/2024/12/21/rickey-henderson-death-mlb-athletics-yankees/
+
 **‘A Gift to Everyone’: A Wisconsin Community Mourns a School Shooting Victim**\
 `Rubi Patricia Vergara was one of two victims killed in Madison this week. At a memorial service, she was remembered as an empathetic teenager with a passion for music and art.`\
 https://nytimes.com/2024/12/21/us/wisconsin-school-shooting-victim-memorial.html
