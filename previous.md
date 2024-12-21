@@ -1,9 +1,13 @@
+**‘A Gift to Everyone’: A Wisconsin Community Mourns a School Shooting Victim**\
+`Rubi Patricia Vergara was one of two victims killed in Madison this week. At a memorial service, she was remembered as an empathetic teenager with a passion for music and art.`\
+https://nytimes.com/2024/12/21/us/wisconsin-school-shooting-victim-memorial.html
+
 **Lee Edwards, Historian of the Conservative Movement, Dies at 92**\
 `In his books about Ronald Reagan, Barry Goldwater and other figures on the right, he was, one observer said, “a keeper of the flame and spreader of the gospel.”`\
 https://nytimes.com/2024/12/21/us/politics/lee-edwards-dead.html
 
-**Patrick Mahomes leads Chiefs over Texans in 27-19 win: Takeaways**\
-`Mahomes opened the second half with an 8-yard touchdown to Xavier Worthy to give Kansas City a 24-16 lead`\
+**Patrick Mahomes leads Chiefs over Texans in 27-19 win**\
+`The Texans lost wide receiver Tank Dell to a significant left knee injury after he caught a TD pass from quarterback C.J. Stroud.`\
 https://nytimes.com/athletic/6011071/2024/12/21/texans-chiefs-score-result-takeaways-nfl/
 
 **Dodgers explore right-handed hitting alternatives beyond free-agent Teoscar Hernández**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011369/2024/12/21/bronny-james-g-league-showcase-r
 **Arteta 'pretty worried' by Saka hamstring injury**\
 `Mikel Arteta says Bukayo Saka will have tests to determine the extent of a hamstring injury picked up during Arsenal&#8217;s 5-1 win over Crystal Palace on Saturday.`\
 https://nytimes.com/athletic/6011373/2024/12/21/bukayo-saka-hamstring-arsenal/
-
-**Homeless Woman Going Into Labor Is Cited for Violating Camping Ban**\
-`Body-camera footage shows an officer from the Louisville Metro Police Department in Kentucky detain the woman, who gave birth later that day.`\
-https://nytimes.com/2024/12/21/us/kentucky-woman-pregnant-homeless-police.html
 

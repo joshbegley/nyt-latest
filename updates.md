@@ -1,3 +1,11 @@
+**‘A Gift to Everyone’: A Wisconsin Community Mourns a School Shooting Victim**\
+`Rubi Patricia Vergara was one of two victims killed in Madison this week. At a memorial service, she was remembered as an empathetic teenager with a passion for music and art.`\
+https://nytimes.com/2024/12/21/us/wisconsin-school-shooting-victim-memorial.html
+
+**Patrick Mahomes leads Chiefs over Texans in 27-19 win**\
+`The Texans lost wide receiver Tank Dell to a significant left knee injury after he caught a TD pass from quarterback C.J. Stroud.`\
+https://nytimes.com/athletic/6011071/2024/12/21/texans-chiefs-score-result-takeaways-nfl/
+
 **Texans WR Tank Dell to remain hospitalized following severe knee injury**\
 `On a deep throw intended for Dell, Houston wide receiver Jared Wayne was in the vicinity of the play and collided with Dell’s knee.`\
 https://nytimes.com/athletic/6011548/2024/12/21/houston-texans-tank-dell-chiefs-knee-injury/
