@@ -1,3 +1,7 @@
+**Jonathan Roumie Plays Jesus to Millions. It Can Get Intense.**\
+`The star of “The Chosen” discusses his early struggles in Hollywood, fans who conflate him with his character and how his own faith informs his work.`\
+https://nytimes.com/2024/12/21/magazine/jonathan-roumie-interview.html
+
 **In ‘Mrs. Stern’ and ‘Racecar,’ Humans Keep Repeating Their Worst Mistakes**\
 `Pernicious patterns figure heavily in two thought-provoking plays on small Manhattan stages.`\
 https://nytimes.com/2024/12/21/theater/mrs-stern-racecar-racecar-racecar-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/business/people-pleasing-money-debt.html
 **A Restaurant Is More Than a Workplace for People Often Shunned by Employers**\
 `A popular restaurant in Buenos Aires is staffed almost entirely by workers with neurological challenges, tapping into often-overlooked talent and harnessing their skills.`\
 https://nytimes.com/2024/12/21/world/americas/buenos-aires-neurodivergent-restaurant-alamesa.html
-
-**This Chrismukkah, Latkes and Eggnog Go Together**\
-`The first night of Hanukkah and Christmas Day converge for the first time since 2005. What are families who celebrate both to do?`\
-https://nytimes.com/2024/12/21/us/christmas-hanukkah-chrismukkah.html
 
