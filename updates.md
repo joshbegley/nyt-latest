@@ -1,3 +1,7 @@
+**Dropped From Spending Bill, Cancer Research and D.C. Stadium Measures Revived by Senate**\
+`Two bills on pediatric cancer research and a football stadium site had been left out of the main spending package, but passed early Saturday as separate legislation.`\
+https://nytimes.com/2024/12/21/us/politics/spending-pediatric-cancer-stadium.html
+
 **Atmospheric Rivers Will Drench the West Coast**\
 `A parade of storms is expected to heighten the flood risk in the Pacific Northwest and Northern California over the next week.`\
 https://nytimes.com/2024/12/21/weather/atmospheric-rivers-will-drench-the-west-coast.html
