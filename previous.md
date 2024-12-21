@@ -1,3 +1,7 @@
+**Deception and Betrayal: Inside the Final Days of the Assad Regime**\
+`President Bashar al-Assad, who wielded fear and force over Syria for more than two decades, fled the country under the cover of night — and a fake political address.`\
+https://nytimes.com/2024/12/21/world/middleeast/assad-regime-syria-final-days.html
+
 **The Briefing: Crystal Palace 1 Arsenal 5 - Is Jesus the answer? How worrying is Saka's injury?**\
 `Analysis of Arsenal's victory over Crystal Palace`\
 https://nytimes.com/athletic/5993189/2024/12/21/arsenal-palace-highlights-jesus-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/opinion/trump-musk-president.html
 **Sterling misses Crystal Palace game with injury**\
 `Raheem Sterling was left out of Arsenal&#8217;s squad for their Premier League win over Crystal Palace on Saturday after picking up an unspecified injury.`\
 https://nytimes.com/athletic/6011199/2024/12/21/arsenal-sterling-injury/
-
-**Feldman: Sorry, Lane Kiffin. Indiana earned its spot in the Playoff**\
-`Because the Hoosiers were getting handled for much of Friday night at Notre Dame, it became easy for those who got left out to take shots.`\
-https://nytimes.com/athletic/6011144/2024/12/21/indiana-lane-kiffin-college-football-playoff/
 

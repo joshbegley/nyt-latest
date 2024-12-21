@@ -1,3 +1,7 @@
+**Deception and Betrayal: Inside the Final Days of the Assad Regime**\
+`President Bashar al-Assad, who wielded fear and force over Syria for more than two decades, fled the country under the cover of night — and a fake political address.`\
+https://nytimes.com/2024/12/21/world/middleeast/assad-regime-syria-final-days.html
+
 **Sterling misses Crystal Palace game with injury**\
 `Raheem Sterling was left out of Arsenal&#8217;s squad for their Premier League win over Crystal Palace on Saturday after picking up an unspecified injury.`\
 https://nytimes.com/athletic/6011199/2024/12/21/arsenal-sterling-injury/
