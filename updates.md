@@ -1,3 +1,7 @@
+**Penn State routs not-ready-for-prime-time SMU: What does it say about the Playoff?**\
+`Two early pick sixes sent Penn State on its way to a 38-10 Playoff rout of SMU and a quarterfinal date with Boise State in the Fiesta Bowl.`\
+https://nytimes.com/athletic/6011481/2024/12/21/penn-state-smu-score-college-football-playoff/
+
 **Rickey Henderson, Baseball’s Flamboyant ‘Man of Steal,’ Dies at 65**\
 `Widely regarded as the greatest leadoff hitter in baseball history, he was not just one of the game’s most exciting players, but also one of its most eccentric.`\
 https://nytimes.com/2024/12/21/sports/rickey-henderson-dead.html
