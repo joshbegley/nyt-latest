@@ -1,3 +1,7 @@
+**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
+https://nytimes.com/athletic/5891633/2024/12/21/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Leafs' Auston Matthews expected to miss Saturday's game vs. Islanders**\
 `Matthews is believed to have re-aggravated the undisclosed injury that caused him to miss nine games earlier this season.`\
 https://nytimes.com/athletic/6011408/2024/12/21/auston-matthews-injury-leafs-islanders/
