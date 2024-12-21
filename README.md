@@ -1,3 +1,7 @@
+**It’s a Little Shady**\
+`Barbara Lin and Lewis Rothlein’s puzzle packs the right amount of punch.`\
+https://nytimes.com/2024/12/20/crosswords/daily-puzzle-2024-12-21.html
+
 **Corrections: Dec. 21, 2024**\
 `Corrections that appeared in print on Saturday, Dec. 21, 2024.`\
 https://nytimes.com/2024/12/20/pageoneplus/corrections-dec-21-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/20/us/politics/senate-democrats-judges-biden.html
 **U.S. Prisons Flout Law by Keeping Inmates Past Release Date, A.C.L.U. Says**\
 `Tens of thousands of prisoners deemed to be at low risk of committing crimes again have languished in lockup for as long as a year after they reached their release date under the First Step Act.`\
 https://nytimes.com/2024/12/20/us/politics/prisons-first-step-act-aclu.html
-
-**Cubs land meeting with star Japanese pitcher Roki Sasaki**\
-`Teams cannot sign Sasaki until Jan. 15 when the new international signing period opens. His 45-day posting period ends Jan. 24.`\
-https://nytimes.com/athletic/6010120/2024/12/20/cubs-roki-sasaki-meeting/
 
