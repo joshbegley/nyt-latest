@@ -1,3 +1,7 @@
+**Guardians trade Josh Naylor to D-Backs, sign Carlos Santana: Sources**\
+`The Guardians signed Naylor's replacement at first base shortly after trading him to Arizona.`\
+https://nytimes.com/athletic/6011721/2024/12/21/guardians-trade-josh-naylor-diamondbacks-carlos-santana/
+
 **Rosenthal: For all his wondrous MLB accomplishments, Rickey Henderson is best known as the 'Man of Steal'**\
 `With an all-time record 1,406 career stolen bases, Henderson's prowess on the basepaths will likely never be matched. `\
 https://nytimes.com/athletic/6011382/2024/12/21/rickey-henderson-man-of-steal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6010471/2024/12/21/rickey-henderson-death-mlb-athle
 **‘A Gift to Everyone’: A Wisconsin Community Mourns a School Shooting Victim**\
 `Rubi Patricia Vergara was one of two victims killed in Madison this week. At a memorial service, she was remembered as an empathetic teenager with a passion for music and art.`\
 https://nytimes.com/2024/12/21/us/wisconsin-school-shooting-victim-memorial.html
-
-**Lee Edwards, Historian of the Conservative Movement, Dies at 92**\
-`In his books about Ronald Reagan, Barry Goldwater and other figures on the right, he was, one observer said, “a keeper of the flame and spreader of the gospel.”`\
-https://nytimes.com/2024/12/21/us/politics/lee-edwards-dead.html
 
