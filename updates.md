@@ -1,3 +1,7 @@
+**Law: Arizona boosts lineup with Josh Naylor, Cleveland perplexes and Yanks go for Gold**\
+`The D-Backs found a replacement for Christian Walker, the Guardians reunite with Carlos Santana and the Yankees add Paul Goldschmidt.`\
+https://nytimes.com/athletic/6011903/2024/12/21/guardians-diamondbacks-trade-josh-naylor-yankees-paul-goldschmidt/
+
 **Law: Arizona boosts lineup with Josh Naylor, Cleveland perplexes, and the Yanks go for Gold**\
 `The D-Backs found a replacement for Christian Walker, the Guardians reunite with Carlos Santana and the Yankees add Paul Goldschmidt.`\
 https://nytimes.com/athletic/6011903/2024/12/21/guardians-diamondbacks-trade-josh-naylor-yankees-paul-goldschmidt/
