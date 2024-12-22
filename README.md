@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5982298/2024/12/22/joao-fonseca-tennis-player/
 `The Phillies gave up talent but it is a trade every contender should make given Luzardo helps them now and the prospects are years away.`\
 https://nytimes.com/athletic/6012979/2024/12/22/jesus-luzardo-phillies-marlins-trade-analysis/
 
-**Eagles' Jalen Hurts exits in first quarter, evaluated for concussion**\
-`Kenny Pickett entered the game and finished off the drive with a touchdown to A.J. Brown. `\
+**Eagles' Jalen Hurts ruled out with concussion vs. Commanders**\
+`Kenny Pickett entered the game and connected with A.J. Brown for a first quarter touchdown.  `\
 https://nytimes.com/athletic/6013173/2024/12/22/jalen-hurts-concussion-injured-eagles-commanders/
 
 **Blue Jackets Sunday Gathering: Dmitri Voronkov's impressive skill, missing menace**\
