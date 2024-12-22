@@ -1,3 +1,7 @@
+**NFL Week 16 takeaways: Did Jayden Daniels just clinch Rookie of the Year? How dangerous are the Rams?**\
+`Plus, how did Michael Penix Jr. fare in his first career start?`\
+https://nytimes.com/athletic/6013638/2024/12/22/nfl-week-16-scores-takeaways-jayden-daniels-commanders-eagles/
+
 **Surfers Return for Rare Big Wave Contest in Hawaii**\
 `The Eddie Aikau Big Wave Invitational is held only when conditions are just right. The 45 invited surfers had less than 48 hours to arrive on the North Shore of Oahu, Hawaii, on Sunday.`\
 https://nytimes.com/2024/12/22/us/eddie-aikau-surf-contest.html
