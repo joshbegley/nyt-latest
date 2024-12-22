@@ -1,8 +1,12 @@
+**The Briefing: Everton 0 Chelsea 0 - A missed opportunity? How did makeshift defence do?**\
+`Chelsea were held to a 0-0 draw by Everton at Goodison Park on Sunday afternoon`\
+https://nytimes.com/athletic/5993205/2024/12/22/everton-chelsea-result-report-analysis/
+
 **How to Cook a Perfect Prime Rib Roast**\
 `Step 1: Get an instant-read thermometer. There’s no point in spending money on prime rib if you’re just going to guess when it’s done.`\
 https://nytimes.com/2024/12/22/dining/prime-rib-roast.html
 
-**The Briefing: Man United 0 Bournemouth 3 - problems for Amorim after his biggest setback yet**\
+**The Briefing: United 0 Bournemouth 3 - problems for Amorim after his biggest setback yet**\
 `Mark Critchley analyses the key talking points from Manchester United's heavy home loss to Bournemouth`\
 https://nytimes.com/athletic/5993220/2024/12/22/manchester-united-bournemouth-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012288/2024/12/22/cade-cunningham-kevin-durant-pis
 **Letter Calling for Tracking People of Color Circulates in an Oregon County**\
 `The letter, distributed in Lincoln County, Ore., tells community members to report people who may be undocumented, the sheriff’s office said.`\
 https://nytimes.com/2024/12/22/us/oregon-anti-immigrant-letter-investigation.html
-
-**Cowboys Today: Predictions vs. Bucs, front-office reaction to Micah Parsons' remarks**\
-`Micah Parsons' comments about his next contract drew the Cowboys' attention. Can Rico Dowdle top 100 yards for the fourth straight week?`\
-https://nytimes.com/athletic/6012064/2024/12/22/cowboys-today-predictions-bucs-micah-parsons/
 
