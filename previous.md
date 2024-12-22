@@ -1,3 +1,11 @@
+**Phillies acquire lefty Jesús Luzardo in trade with Marlins: Sources**\
+`With Luzardo, the Phillies could form one of the best — if not the best — rotations in baseball next season.`\
+https://nytimes.com/athletic/6011962/2024/12/22/jesus-luzardo-trade-phillies-marlins/
+
+**Live Q&A: Week 16 fantasy football start/sit chat with Jay Felicio, Sunday 12/22 at 11 a.m. ET**\
+`Submit your Week 16 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5999003/2024/12/22/live-qa-week-16-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-22-at-11-a-m-et/
+
 **Cade Cunningham says Kevin Durant's praise of his game 'validates my work'**\
 `The NBA superstar called his younger counterpart his "brother" and said Cunningham was worthy of his first All-Star nod.`\
 https://nytimes.com/athletic/6012288/2024/12/22/cade-cunningham-kevin-durant-pistons-suns-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6012542/2024/12/22/tennessee-playoff-loss-ohio-stat
 **On ‘S.N.L.,’ Tom Hanks Inducts Martin Short Into the Five-Timers Club**\
 `Short, the host, was accompanied by Paul Rudd, Tina Fey, John Mulaney and others, while the Weekend Update hosts riffed on Luigi Mangione and the drone sightings.`\
 https://nytimes.com/2024/12/22/arts/television/snl-five-timers-club-martin-short.html
-
-**College Football Playoff blowouts are typical. It doesn't mean the system is broken**\
-`All four first-round games in the first 12-team Playoff were decided by double digits. It's unfortunate — but not a reason to panic.`\
-https://nytimes.com/athletic/6012465/2024/12/22/college-football-playoff-scores-blowouts/
-
-**NFL Week 16 inactives and fantasy tips: Nick Chubb on IR, David Montgomery out this week**\
-`Who's in and who's out for Week 16? Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
-https://nytimes.com/athletic/6011261/2024/12/22/nfl-week-16-fantasy-football-inactives-tips/
 
