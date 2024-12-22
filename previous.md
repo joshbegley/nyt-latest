@@ -1,9 +1,17 @@
+**Texas, a complete but imperfect team, looks poised to make deep Playoff run**\
+`Texas, with a favorable draw and versatility, has as good a chance as anyone at hoisting the national championship trophy.`\
+https://nytimes.com/athletic/6012193/2024/12/22/texas-clemson-college-football-playoff-run/
+
+**Unai Emery has a blueprint on how to beat Manchester City**\
+`Villa deservedly beat champions City at home for a second season running. It was a win that started - and was decided - in midfield`\
+https://nytimes.com/athletic/6009324/2024/12/22/aston-villa-unai-emery-blueprint-manchester-city/
+
 **Wrexham can rely on their trio of goalkeepers - but Okonkwo's return will be welcomed**\
 `Wrexham conceded late at Bristol Rovers to miss out on going joint-top but have had positive news around their injured No 1 goalkeeper`\
 https://nytimes.com/athletic/6003140/2024/12/22/wrexham-goalkeeper-arthur-okonkwo-analysis/
 
-**'Ready to really take off': Owen Tippett's career night sparks Flyers in another comeback**\
-`Tippett’s overtime winner in the Flyers’ 5-4 win over the Blue Jackets capped off the first four-point night of his career.
+**'Ready to really take off': Owen Tippett's career night sparks another Flyers comeback**\
+`Tippett’s overtime winner in the Philadelphia's 5-4 win over Columbus capped off the first 4-point night of his career.
 `\
 https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
 
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6008995/2024/12/22/sport-tv-guide-christmas-2024/
 **Memes, Jokes and Cats: South Koreans Use Parody for Political Protest**\
 `As South Koreans took to the streets this month demanding the ousting of their president, some found an unexpected outlet to express their fury.`\
 https://nytimes.com/interactive/2024/12/22/world/asia/south-korea-protest-memes.html
-
-**A Cultural Casualty of the War in Ukraine: ‘The Nutcracker’**\
-`Lithuania’s national opera house had stopped showing Tchaikovsky’s 1892 masterpiece in solidarity with Ukraine over the war with Russia. Then a new minister expressed fondness for the Russian composer, igniting a furor.`\
-https://nytimes.com/2024/12/22/world/europe/-nutcracker-lithuania-russia-ukraine.html
-
-**After Military Took Power, Terrorist Attacks Only Got Worse**\
-`In the West African nation of Niger, killings by insurgents have surged since the military seized power in a coup, expelled U.S. and European troops and stopped negotiations with Islamist groups.`\
-https://nytimes.com/2024/12/22/world/africa/niger-war-coup.html
 

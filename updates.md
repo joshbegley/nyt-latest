@@ -1,3 +1,16 @@
+**Texas, a complete but imperfect team, looks poised to make deep Playoff run**\
+`Texas, with a favorable draw and versatility, has as good a chance as anyone at hoisting the national championship trophy.`\
+https://nytimes.com/athletic/6012193/2024/12/22/texas-clemson-college-football-playoff-run/
+
+**Unai Emery has a blueprint on how to beat Manchester City**\
+`Villa deservedly beat champions City at home for a second season running. It was a win that started - and was decided - in midfield`\
+https://nytimes.com/athletic/6009324/2024/12/22/aston-villa-unai-emery-blueprint-manchester-city/
+
+**'Ready to really take off': Owen Tippett's career night sparks another Flyers comeback**\
+`Tippett’s overtime winner in the Philadelphia's 5-4 win over Columbus capped off the first 4-point night of his career.
+`\
+https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
+
 **'Ready to really take off': Owen Tippett's career night sparks Flyers in another comeback**\
 `Tippett’s overtime winner in the Flyers’ 5-4 win over the Blue Jackets capped off the first four-point night of his career.
 `\
