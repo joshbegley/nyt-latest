@@ -1,3 +1,7 @@
+**How to get your sports fix every day this Christmas**\
+`With a smorgasbord of sport to choose from over the festive season, this is your essential guide to what to watch this Christmas`\
+https://nytimes.com/athletic/6008995/2024/12/22/sport-tv-guide-christmas-2024/
+
 **Memes, Jokes and Cats: South Koreans Use Parody for Political Protest**\
 `As South Koreans took to the streets this month demanding the ousting of their president, some found an unexpected outlet to express their fury.`\
 https://nytimes.com/interactive/2024/12/22/world/asia/south-korea-protest-memes.html
@@ -31,10 +35,6 @@ https://nytimes.com/card/2024/12/22/world/tajikistan-sanatorium
 https://nytimes.com/athletic/6009808/2024/12/22/manchester-united-bournemouth-preview-odds-prediction/
 
 **Marlon Humphrey, Ravens finally dictate a different ending vs. chief rival Steelers**\
-`This time Baltimore was the team to make the game-changing plays needed to pull out a massive victory and tie Pittsburgh atop the AFC North.`\
+`This time, Baltimore was the team to make the game-changing plays needed to earn a massive victory and tie Pittsburgh atop the AFC North.`\
 https://nytimes.com/athletic/6012043/2024/12/21/ravens-marlon-humphrey-win-steelers/
-
-**How Charlie Coyle's position change opens a new door in the Trent Frederic decision**\
-`Coyle playing right wing has given Frederic an opportunity show what he has to offer — for any team that may be watching.`\
-https://nytimes.com/athletic/6012059/2024/12/21/bruins-charlie-coyle-trent-frederic-trade/
 
