@@ -1,3 +1,11 @@
+**Roses and redemption for Will Howard and Ohio State in dominant first-round CFP victory**\
+`The Buckeyes reminded everyone that they have the best collection of skill players in the country. `\
+https://nytimes.com/athletic/6012462/2024/12/22/ohio-state-will-howard-tennesee-playoff/
+
+**Like Kennedy, I Recovered From Heroin Addiction. I Don’t Agree With His Approach.**\
+`America can’t go backward on drug policy.`\
+https://nytimes.com/2024/12/22/opinion/kennedy-addiction.html
+
 **The Enigma of Bob Dylan**\
 `We cover a new film about the singer-songwriter.`\
 https://nytimes.com/2024/12/22/briefing/bob-dylan-a-complete-unknown.html
