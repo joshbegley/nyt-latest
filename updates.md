@@ -1,3 +1,7 @@
+**Wes Moore Given Bronze Star, Nearly 2 Decades After Army Service**\
+`The Maryland governor had faced a controversy over whether he had received the medal for his time in Afghanistan.`\
+https://nytimes.com/2024/12/22/us/wes-moore-bronze-star.html
+
 **How Tielemans and Rogers’ ability between the lines helped Villa beat City**\
 `In his narrow midfield, Unai Emery had players who don't lose the ball, can carry it forward or pick a pass and know how to attack space`\
 https://nytimes.com/athletic/6012320/2024/12/22/aston-villa-manchester-city-tielemans-rogers-analysis/

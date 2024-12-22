@@ -1,3 +1,7 @@
+**Wes Moore Given Bronze Star, Nearly 2 Decades After Army Service**\
+`The Maryland governor had faced a controversy over whether he had received the medal for his time in Afghanistan.`\
+https://nytimes.com/2024/12/22/us/wes-moore-bronze-star.html
+
 **How Tielemans and Rogers’ ability between the lines helped Villa beat City**\
 `In his narrow midfield, Unai Emery had players who don't lose the ball, can carry it forward or pick a pass and know how to attack space`\
 https://nytimes.com/athletic/6012320/2024/12/22/aston-villa-manchester-city-tielemans-rogers-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6013173/2024/12/22/jalen-hurts-concussion-injured-e
 **Blue Jackets Sunday Gathering: Dmitri Voronkov's impressive skill, missing menace**\
 `Voronkov has emerged as an impressive goal scorer for the Blue Jackets, but his lack of combativeness has coach Dean Evason surprised.`\
 https://nytimes.com/athletic/6010295/2024/12/22/blue-jackets-dmitri-voronkov-nhl/
-
-**Tottenham 3 Liverpool 6: Slot's side top of league at Christmas, Gray day, smart Szoboszlai**\
-`Liverpool are top of the Premier League at Christmas after beating Tottenham 6-3. Our writers break down the key talking points`\
-https://nytimes.com/athletic/5993227/2024/12/22/tottenham-liverpool-result-top-of-league-diaz-salah/
 
