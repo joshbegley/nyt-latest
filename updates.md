@@ -1,3 +1,7 @@
+**Monday Briefing: Al-Assad’s Final Days in Power**\
+`Plus, parody as protest in South Korea.`\
+https://nytimes.com/2024/12/22/briefing/syria-germany-iran.html
+
 **Magic suffer another key injury as Moe Wagner tears ACL**\
 `Moe Wagner had emerged as a Sixth Man of the Year candidate before this injury. He joins Paolo Banchero and Franz Wagner on the sideline.`\
 https://nytimes.com/athletic/6013393/2024/12/22/moe-wagner-injury-knee-magic/
