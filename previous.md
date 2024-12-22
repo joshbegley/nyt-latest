@@ -1,3 +1,31 @@
+**The Sunday Read: ‘The Alienation of Jaime Cachua’**\
+`His friends and family members in Rome, Ga., voted to support mass deportation. Now he’s scrambling to stay in the country.`\
+https://nytimes.com/2024/12/22/podcasts/the-daily/undocumented-migrant-trump.html
+
+**We’ve Been Getting Human Nature Wrong for 100 Years**\
+`It’s a source of today’s intense political animosity.`\
+https://nytimes.com/2024/12/22/opinion/human-nature-polarization-predator.html
+
+**The Connections Companion No. 561**\
+`Scroll down for hints and conversation about the puzzle for Monday, Dec. 23, 2024.`\
+https://nytimes.com/2024/12/22/crosswords/connections-companion-561.html
+
+**What Kennedy’s Approach to Addiction Gets Wrong**\
+`America can’t go backward on drug policy.`\
+https://nytimes.com/2024/12/22/opinion/kennedy-addiction.html
+
+**What Nantucket Owes the Whale**\
+`We owe it to the right whale — and to so many other species — to reconstruct what our own history has taken from them.`\
+https://nytimes.com/2024/12/22/opinion/nantucket-whale-extinction.html
+
+**Wordle Review No. 1,283**\
+`Scroll down for hints and conversation about the puzzle for Monday, Dec. 23, 2024.`\
+https://nytimes.com/2024/12/22/crosswords/wordle-review-1283.html
+
+**Detention Is Ordered for Suspect in Christmas Market Killings in Germany**\
+`The authorities said they were struggling to understand the motives for the attack with a car in the eastern city of Magdeburg, in which a 9-year-old boy was among the five victims.`\
+https://nytimes.com/2024/12/22/world/europe/germany-christmas-market-attack.html
+
 **‘Lion King’ Prequel Falls Prey to ‘Sonic’ at the Box Office**\
 `“Mufasa: The Lion King” sputtered in second place at theaters in the United States and Canada. “Sonic the Hedgehog 3” was No. 1.`\
 https://nytimes.com/2024/12/22/business/lion-king-prequel-falls-prey-to-sonic-at-the-box-office.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/12/22/opinion/christmas-jesus-power-humility.html
 **These Spiritual Democrats Urge Their Party to Take a Leap of Faith**\
 `In a party that has grown less religious, some prominent Democrats say discussing their deepest beliefs can be a way to connect — when it’s authentic.`\
 https://nytimes.com/2024/12/22/us/politics/democrats-religion-shapiro-warnock-buttigieg.html
-
-**What’s the Secret to Choosing a Good Airplane Movie?**\
-`You’re about to get on a long flight home, and the options seem overwhelming. Here’s the strategy our critic recommends.`\
-https://nytimes.com/2024/12/22/movies/airplane-movies-in-flight-entertainment.html
-
-**Refugees Are Bracing for Trump to Cut the Resettlement Program Again**\
-`As Donald J. Trump returns to office, the rebuilt program is under threat. Many vulnerable people approved for resettlement in the U.S. could be stranded abroad.`\
-https://nytimes.com/2024/12/22/us/resettlement-program-immigration-trump.html
-
-**Lin-Manuel Miranda on ‘Mufasa’ and the Secret to a Disney Hit**\
-`The “Hamilton” creator, who crafted the soundtrack for the new prequel to “The Lion King,” reflects on writing songs that have a universal appeal.`\
-https://nytimes.com/2024/12/22/arts/music/lin-manuel-miranda-mufasa.html
-
-**Howie Long is a trusted colleague, friend and family man. The secret? His humanity**\
-`Attention to detail helped Long become a Pro Football Hall of Famer and a standout broadcaster, as well as a great husband and father.`\
-https://nytimes.com/athletic/5973964/2024/12/22/howie-long-fox-sports-nfl-raiders/
-
-**The New Climate Gold Rush: Scrubbing Carbon From the Sky**\
-`Investors are betting that they can make a dent in global warming, and healthy profits, with companies that alter the atmosphere.`\
-https://nytimes.com/2024/12/22/climate/carbon-capture-global-warming.html
-
-**Best Classical Music Albums of 2024**\
-`Listen to selections from recordings of a new John Adams opera, Chopin études by Yunchan Lim, Brahms works by Igor Levit and more.`\
-https://nytimes.com/2024/12/22/arts/music/best-classical-music-albums-recordings-2024.html
-
-**History awaits in a Penn State-Louisville national championship volleyball match**\
-`For the first time in the 44 years of NCAA women’s volleyball, a female head coach will win the title.`\
-https://nytimes.com/athletic/6011224/2024/12/22/ncaa-volleyball-championship-penn-state-louisville-coaches/
 
