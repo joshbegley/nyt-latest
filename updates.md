@@ -1,3 +1,7 @@
+**After Playoff wins, what else do Drew Allar, Quinn Ewers need to show NFL scouts?**\
+`Allar and Ewers both moved on in the College Football Playoff. Will either of them jump to the NFL when their seasons are over?`\
+https://nytimes.com/athletic/6011768/2024/12/22/nfl-draft-2025-qb-prospects-ewers-allar/
+
 **The Sunday Read: ‘The Alienation of Jaime Cachua’**\
 `His friends and family members in Rome, Ga., voted to support mass deportation. Now he’s scrambling to stay in the country.`\
 https://nytimes.com/2024/12/22/podcasts/the-daily/undocumented-migrant-trump.html

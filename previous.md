@@ -22,6 +22,10 @@ https://nytimes.com/2024/12/22/opinion/nantucket-whale-extinction.html
 `Scroll down for hints and conversation about the puzzle for Monday, Dec. 23, 2024.`\
 https://nytimes.com/2024/12/22/crosswords/wordle-review-1283.html
 
+**After Playoff wins, what else do Drew Allar, Quinn Ewers need to show NFL scouts?**\
+`Allar and Ewers both moved on in the College Football Playoff. Will either of them jump to the NFL when their seasons are over?`\
+https://nytimes.com/athletic/6011768/2024/12/22/nfl-draft-2025-qb-prospects-ewers-allar/
+
 **Detention Is Ordered for Suspect in Christmas Market Killings in Germany**\
 `The authorities said they were struggling to understand the motives for the attack with a car in the eastern city of Magdeburg, in which a 9-year-old boy was among the five victims.`\
 https://nytimes.com/2024/12/22/world/europe/germany-christmas-market-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/22/business/lion-king-prequel-falls-prey-to-sonic-at
 **Why Are So Many Christians So Cruel?**\
 `It’s a simple question with a complicated answer.`\
 https://nytimes.com/2024/12/22/opinion/christmas-jesus-power-humility.html
-
-**These Spiritual Democrats Urge Their Party to Take a Leap of Faith**\
-`In a party that has grown less religious, some prominent Democrats say discussing their deepest beliefs can be a way to connect — when it’s authentic.`\
-https://nytimes.com/2024/12/22/us/politics/democrats-religion-shapiro-warnock-buttigieg.html
 
