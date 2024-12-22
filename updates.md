@@ -1,3 +1,7 @@
+**Forest are flying - but must continue to improve to keep European dream alive**\
+`Forest will celebrate Christmas in the Champions League places. A European dream could become a reality in 2025 if they continue to improve`\
+https://nytimes.com/athletic/6012431/2024/12/22/forest-brentford-result-premier-league-aina-elanga/
+
 **Houston we have a problem: Why is Fred VanVleet shooting so poorly?**\
 `It might be time for Rockets coach Ime Udoka to become a little less reliant on Fred VanVleet, who is often tasked with running the offense.`\
 https://nytimes.com/athletic/6003823/2024/12/22/rockets-fred-vanvleet-shooting-woes/

@@ -1,3 +1,7 @@
+**Forest are flying - but must continue to improve to keep European dream alive**\
+`Forest will celebrate Christmas in the Champions League places. A European dream could become a reality in 2025 if they continue to improve`\
+https://nytimes.com/athletic/6012431/2024/12/22/forest-brentford-result-premier-league-aina-elanga/
+
 **Houston we have a problem: Why is Fred VanVleet shooting so poorly?**\
 `It might be time for Rockets coach Ime Udoka to become a little less reliant on Fred VanVleet, who is often tasked with running the offense.`\
 https://nytimes.com/athletic/6003823/2024/12/22/rockets-fred-vanvleet-shooting-woes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011768/2024/12/22/nfl-draft-2025-qb-prospects-ewer
 **Detention Is Ordered for Suspect in Christmas Market Killings in Germany**\
 `The authorities said they were struggling to understand the motives for the attack with a car in the eastern city of Magdeburg, in which a 9-year-old boy was among the five victims.`\
 https://nytimes.com/2024/12/22/world/europe/germany-christmas-market-attack.html
-
-**‘Lion King’ Prequel Falls Prey to ‘Sonic’ at the Box Office**\
-`“Mufasa: The Lion King” sputtered in second place at theaters in the United States and Canada. “Sonic the Hedgehog 3” was No. 1.`\
-https://nytimes.com/2024/12/22/business/lion-king-prequel-falls-prey-to-sonic-at-the-box-office.html
 
