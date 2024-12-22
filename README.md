@@ -1,3 +1,11 @@
+**A 1,000-Year-Old Seed Grows in Israel**\
+`For 14 years, scientists have been growing a tree akin to the Judean balsam — the source of the balm of Gilead — but with no modern counterpart.`\
+https://nytimes.com/2024/12/22/science/archaeology-seeds-gilead-sheba.html
+
+**Europe Had a Terrible Year. It’s Probably Going to Get Worse.**\
+`The continent’s parlous economy and ascendant far right foretell a grim future.`\
+https://nytimes.com/2024/12/22/opinion/europe-germany-france-trump.html
+
 **U.S. Fighter Jet Shot Down Over Red Sea by Apparent Friendly Fire**\
 `A U.S. Navy ship mistakenly fired at the F/A-18, whose two pilots were safely recovered, the military said.`\
 https://nytimes.com/2024/12/22/us/us-fighter-jet-red-sea.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6000949/2024/12/22/trent-alexander-arnold-passing-l
 **Jesus, Saka, and Arteta's attempts to balance Arsenal's attacking threat with defensive stability**\
 `Jesus is in remarkable form, Saka is injured, and amid it all Arteta is trying to add oomph in attack while staying secure at the back`\
 https://nytimes.com/athletic/6011586/2024/12/22/arsenal-attack-defence-balance/
-
-**Constantly floating a pass out to Grealish is a symbol of City's attacking muddle**\
-`Pep Guardiola's team continue to make mistakes defensively - but their failings at the other end are becoming all too glaring...`\
-https://nytimes.com/athletic/6011398/2024/12/22/jack-grealish-manchester-city-attacking-muddle/
-
-**How to get your sports fix every day this Christmas**\
-`With a smorgasbord of sport to choose from over the festive season, this is your essential guide to what to watch this Christmas`\
-https://nytimes.com/athletic/6008995/2024/12/22/sport-tv-guide-christmas-2024/
 
