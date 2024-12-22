@@ -1,3 +1,7 @@
+**Skidding Wild go 'off script' as losing streak reaches 4 games: 3 takeaways vs. Jets**\
+`The Wild got shut out for the first time this season as they were swept by the Jets for the second year in a row.`\
+https://nytimes.com/athletic/6011874/2024/12/21/wild-jets-takeaways-losing-streak/
+
 **Maple Leafs report cards: Craig Berube's line blender does nothing for Toronto**\
 `William Nylander produced two goals, but not many other Maple Leafs can be proud of their performance in a 6-3 loss to the Islanders.`\
 https://nytimes.com/athletic/6011731/2024/12/21/maple-leafs-islanders-grades-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011906/2024/12/21/wisconsin-quarterback-mabrey-met
 **Already grieving, Oakland fans mourn the loss of Rickey Henderson, their hometown hero**\
 `Henderson left an indelible mark on the city of Oakland, where he grew up and thrived as the best player to wear an Oakland A's uniform.`\
 https://nytimes.com/athletic/6011805/2024/12/21/rickey-henderson-oakland-grieving/
-
-**Lamar Jackson, Ravens beat Steelers 34-17 to reach playoffs: Takeaways**\
-`Pittsburgh still holds the tiebreaker in the AFC North via conference record (7-3 to 6-4).`\
-https://nytimes.com/athletic/6011686/2024/12/21/steelers-ravens-score-result-takeaways/
 

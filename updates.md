@@ -1,3 +1,7 @@
+**Skidding Wild go 'off script' as losing streak reaches 4 games: 3 takeaways vs. Jets**\
+`The Wild got shut out for the first time this season as they were swept by the Jets for the second year in a row.`\
+https://nytimes.com/athletic/6011874/2024/12/21/wild-jets-takeaways-losing-streak/
+
 **Maple Leafs report cards: Craig Berube's line blender does nothing for Toronto**\
 `William Nylander produced two goals, but not many other Maple Leafs can be proud of their performance in a 6-3 loss to the Islanders.`\
 https://nytimes.com/athletic/6011731/2024/12/21/maple-leafs-islanders-grades-analysis/
