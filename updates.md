@@ -1,3 +1,7 @@
+**Trump Picks a Former Treasury Official as His Top Economist**\
+`Stephen Miran, who served during Donald Trump’s first term and now works at a hedge fund, has accused the Biden administration of manipulating markets.`\
+https://nytimes.com/2024/12/22/climate/trump-miran-council-of-economic-advisers.html
+
 **Small Plane Crashes Into Buildings in Brazilian City**\
 `The 10 on board were not believed to have survived, while at least 14 other people were injured on the ground.`\
 https://nytimes.com/2024/12/22/world/americas/plane-crash-brazil.html

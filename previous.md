@@ -1,3 +1,7 @@
+**Trump Picks a Former Treasury Official as His Top Economist**\
+`Stephen Miran, who served during Donald Trump’s first term and now works at a hedge fund, has accused the Biden administration of manipulating markets.`\
+https://nytimes.com/2024/12/22/climate/trump-miran-council-of-economic-advisers.html
+
 **Charlie Woods hits hole-in-one to put him, Tiger in lead at PNC**\
 `Charlie Woods, 15, aced the par-3 4th in the second and final round at the parent/child event in Orlando.`\
 https://nytimes.com/athletic/6013088/2024/12/22/charlie-woods-hole-in-one-tiger-pnc-championship-2/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6011637/2024/12/22/bucks-khris-middleton-damian-lil
 **China Wants This Deal to Fail. Don’t Let That Happen.**\
 `The Biden administration should approve the proposed $14.9 billion deal with Nippon Steel.`\
 https://nytimes.com/2024/12/22/opinion/us-steel-nippon-biden-trump-cfius.html
-
-**After Oleksandr Usyk beats Tyson Fury again, what's next for heavyweight boxing?**\
-`Usyk's second win over Fury leaves the heavyweight division in an existential state - but new eras always emerge`\
-https://nytimes.com/athletic/6012472/2024/12/22/after-oleksandr-usyk-beats-tyson-fury-again-whats-next-for-heavyweight-boxing/
 
