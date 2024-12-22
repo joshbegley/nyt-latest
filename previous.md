@@ -1,3 +1,7 @@
+**Already grieving, Oakland fans mourn the loss of Rickey Henderson, their hometown hero**\
+`Henderson left an indelible mark on the city of Oakland, where he grew up and thrived as the best player to wear an Oakland A's uniform.`\
+https://nytimes.com/athletic/6011805/2024/12/21/rickey-henderson-oakland-grieving/
+
 **Lamar Jackson, Ravens beat Steelers 34-17 to reach playoffs: Takeaways**\
 `Pittsburgh still holds the tiebreaker in the AFC North via conference record (7-3 to 6-4).`\
 https://nytimes.com/athletic/6011686/2024/12/21/steelers-ravens-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011708/2024/12/21/smu-football-playoff-resume-penn
 **Usyk beats Fury again to defend heavyweight world titles**\
 `Usyk outclassed Fury in Riyadh to defend his world heavyweight titles by unanimous decision in another pulsating fight`\
 https://nytimes.com/athletic/6011636/2024/12/21/usyk-vs-fury-fight-result/
-
-**Guardians trade Josh Naylor to D-Backs, agree to deal with Carlos Santana**\
-`The Guardians agreed to a deal with Naylor's replacement at first base shortly after trading him to Arizona.`\
-https://nytimes.com/athletic/6011721/2024/12/21/guardians-trade-josh-naylor-diamondbacks-carlos-santana/
 
