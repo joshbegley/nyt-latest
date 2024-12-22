@@ -1,3 +1,7 @@
+**Short Snooze**\
+`Glenn Cook makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/12/22/crosswords/daily-puzzle-2024-12-23.html
+
 **Jayden Daniels' 5 TDs spark Commanders' 36-33 win vs. Eagles: Takeaways**\
 `Washington rallies from multiple fourth quarter deficits to move closer to its first playoff berth since 2020. `\
 https://nytimes.com/athletic/6012873/2024/12/22/eagles-commanders-score-result-takeaways/

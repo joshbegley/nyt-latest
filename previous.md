@@ -1,3 +1,7 @@
+**Short Snooze**\
+`Glenn Cook makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/12/22/crosswords/daily-puzzle-2024-12-23.html
+
 **Jayden Daniels' 5 TDs spark Commanders' 36-33 win vs. Eagles: Takeaways**\
 `Washington rallies from multiple fourth quarter deficits to move closer to its first playoff berth since 2020. `\
 https://nytimes.com/athletic/6012873/2024/12/22/eagles-commanders-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012844/2024/12/22/lions-bears-score-result-takeawa
 **Joe Burrow dazzles as Bengals earn 24-6 win vs. Browns: Takeaways**\
 `Burrow completed 23 of his 30 pass attempts for 252 yards and three touchdowns in the victory.`\
 https://nytimes.com/athletic/6012849/2024/12/22/bengals-browns-score-result-takeaways/
-
-**Michael Penix Jr. impresses in Falcons' 34-7 win vs. Giants: Takeaways**\
-`Atlanta keeps pace with Tampa Bay as its playoff hopes remain alive, while the Giants (2-13) lose a franchise-record 10 straight games.`\
-https://nytimes.com/athletic/6012832/2024/12/22/giants-falcons-score-result-takeaways/
 
