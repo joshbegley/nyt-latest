@@ -1,3 +1,7 @@
+**Trump Previews Second Term in Sprawling Speech to Conservative Conference**\
+`President-elect Donald J. Trump repeated false claims about immigration and the border, slammed diversity initiatives and discussed the Panama Canal in the 90-minute address.`\
+https://nytimes.com/2024/12/22/us/politics/trump-speech-turning-point-arizona.html
+
 **Wes Moore Given Bronze Star, Nearly 2 Decades After Army Service**\
 `The Maryland governor had faced a controversy over whether he had received the medal for his time in Afghanistan.`\
 https://nytimes.com/2024/12/22/us/wes-moore-bronze-star.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6013182/2024/12/22/joao-fonseca-next-gen-finals-cha
 `Meet the youngest player and now the champion at the ATP Next Gen Finals: His name is Joao, and he hits a big forehand.`\
 https://nytimes.com/athletic/5982298/2024/12/22/joao-fonseca-tennis-player/
 
-**Jesús Luzardo bolster's Phillies rotation, Marlins add high-ceiling prospects: Law**\
+**Jesús Luzardo bolsters Phillies rotation, Marlins add high-ceiling prospects: Law**\
 `The Phillies gave up talent but it is a trade every contender should make given Luzardo helps them now and the prospects are years away.`\
 https://nytimes.com/athletic/6012979/2024/12/22/jesus-luzardo-phillies-marlins-trade-analysis/
 
 **Eagles' Jalen Hurts ruled out with concussion vs. Commanders**\
 `Kenny Pickett entered the game and connected with A.J. Brown for a first quarter touchdown.  `\
 https://nytimes.com/athletic/6013173/2024/12/22/jalen-hurts-concussion-injured-eagles-commanders/
-
-**Blue Jackets Sunday Gathering: Dmitri Voronkov's impressive skill, missing menace**\
-`Voronkov has emerged as an impressive goal scorer for the Blue Jackets, but his lack of combativeness has coach Dean Evason surprised.`\
-https://nytimes.com/athletic/6010295/2024/12/22/blue-jackets-dmitri-voronkov-nhl/
 
