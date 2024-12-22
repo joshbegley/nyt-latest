@@ -1,3 +1,7 @@
+**Amarius Mims' injury, sideline spat mark significant point for Bengals rookie**\
+`The first-round pick admits "emotions kind of blew over" but shows maturity and growth in handling the aftermath after win over Browns.`\
+https://nytimes.com/athletic/6013859/2024/12/22/bengals-win-amarius-mims-browns/
+
 **As Lions fans take over Soldier Field, Bears look to their rivals for head coach help**\
 `The Bears got a good look at offensive coordinator Ben Johnson in another high-scoring Lions win.`\
 https://nytimes.com/athletic/6013777/2024/12/22/bears-lions-coach-search-ben-johnson/
