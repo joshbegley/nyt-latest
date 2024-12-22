@@ -1,3 +1,7 @@
+**College Football Playoff blowouts are typical. It doesn't mean the system is broken**\
+`All four first-round games in the first 12-team Playoff were decided by double digits. It's unfortunate — but not a reason to panic.`\
+https://nytimes.com/athletic/6012465/2024/12/22/college-football-playoff-scores-blowouts/
+
 **NFL Week 16 inactives and fantasy tips: Nick Chubb on IR, David Montgomery out this week**\
 `Who's in and who's out for Week 16? Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/6011261/2024/12/22/nfl-week-16-fantasy-football-inactives-tips/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/22/crosswords/connections-companion-561.html
 **Like Kennedy, I Recovered From Heroin Addiction. I Don’t Agree With His Approach.**\
 `America can’t go backward on drug policy.`\
 https://nytimes.com/2024/12/22/opinion/kennedy-addiction.html
-
-**A Picturesque New England Town’s Debt to the Right Whale**\
-`We owe it to the right whale — and to so many other species — to reconstruct what our own history has taken from them.`\
-https://nytimes.com/2024/12/22/opinion/nantucket-whale-extinction.html
 
