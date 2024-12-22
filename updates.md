@@ -1,3 +1,7 @@
+**'I put that game on me': Russell Wilson's miscues prove pivotal in Steelers loss**\
+`Despite some dazzling plays, Wilson's two turnovers doomed the Steelers against the Ravens, showing how thin their margin for error can be.`\
+https://nytimes.com/athletic/6012052/2024/12/21/russell-wilson-steelers-loss-ravens/
+
 **Skidding Wild go 'off script' as losing streak reaches 4 games: 3 takeaways vs. Jets**\
 `The Wild got shut out for the first time this season as they were swept by the Jets for the second year in a row.`\
 https://nytimes.com/athletic/6011874/2024/12/21/wild-jets-takeaways-losing-streak/
