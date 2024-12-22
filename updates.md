@@ -1,3 +1,7 @@
+**Constantly floating a pass out to Grealish is a symbol of City's attacking muddle**\
+`Pep Guardiola's team continue to make mistakes defensively - but their failings at the other end are becoming all too glaring...`\
+https://nytimes.com/athletic/6011398/2024/12/22/jack-grealish-manchester-city-attacking-muddle/
+
 **How to get your sports fix every day this Christmas**\
 `With a smorgasbord of sport to choose from over the festive season, this is your essential guide to what to watch this Christmas`\
 https://nytimes.com/athletic/6008995/2024/12/22/sport-tv-guide-christmas-2024/

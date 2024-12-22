@@ -1,3 +1,7 @@
+**Constantly floating a pass out to Grealish is a symbol of City's attacking muddle**\
+`Pep Guardiola's team continue to make mistakes defensively - but their failings at the other end are becoming all too glaring...`\
+https://nytimes.com/athletic/6011398/2024/12/22/jack-grealish-manchester-city-attacking-muddle/
+
 **How to get your sports fix every day this Christmas**\
 `With a smorgasbord of sport to choose from over the festive season, this is your essential guide to what to watch this Christmas`\
 https://nytimes.com/athletic/6008995/2024/12/22/sport-tv-guide-christmas-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/12/22/world/tajikistan-sanatorium
 **Man United vs Bournemouth: Storylines, odds, prediction as Red Devils look to climb table**\
 `Manchester United host Bournemouth in a mid-table clash. Will either team take a big step toward climbing the table?`\
 https://nytimes.com/athletic/6009808/2024/12/22/manchester-united-bournemouth-preview-odds-prediction/
-
-**Marlon Humphrey, Ravens finally dictate a different ending vs. chief rival Steelers**\
-`This time, Baltimore was the team to make the game-changing plays needed to earn a massive victory and tie Pittsburgh atop the AFC North.`\
-https://nytimes.com/athletic/6012043/2024/12/21/ravens-marlon-humphrey-win-steelers/
 
