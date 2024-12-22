@@ -1,3 +1,7 @@
+**Cowboys Today: Predictions vs. Bucs, front-office reaction to Micah Parsons' remarks**\
+`Micah Parsons' comments about his next contract drew the Cowboys' attention. Can Rico Dowdle top 100 yards for the fourth straight week?`\
+https://nytimes.com/athletic/6012064/2024/12/22/cowboys-today-predictions-bucs-micah-parsons/
+
 **The Differences Between Running a Business and Running the Government**\
 `Readers discuss a guest essay arguing that running government like a business would be disastrous. Also: Liberalism; a tech court; aging gracefully.`\
 https://nytimes.com/2024/12/22/opinion/running-business-and-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012462/2024/12/22/ohio-state-will-howard-tennesee-
 **The Enigma of Bob Dylan**\
 `We cover a new film about the singer-songwriter.`\
 https://nytimes.com/2024/12/22/briefing/bob-dylan-a-complete-unknown.html
-
-**College Football Playoff 2024 projections: Texas, Ohio State have best title odds**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/12/22/college-football-playoff-projections-odds/
 
