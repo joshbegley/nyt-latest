@@ -1,3 +1,7 @@
+**Charlie Woods hits hole-in-one to put him, Tiger in lead at PNC**\
+`Charlie Woods, 15, aced the par-3 4th in the second and final round at the parent/child event in Orlando.`\
+https://nytimes.com/athletic/6013088/2024/12/22/charlie-woods-hole-in-one-tiger-pnc-championship-2/
+
 **Submit a question for Stewart Mandel's Mailbag**\
 `<p>Hope everyone thawed out from the first-round games.</p>
 <p>This week&#8217;s Mailbag is running a day early due to the holiday. Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/2024/12/22/opinion/us-steel-nippon-biden-trump-cfius.html
 **After Oleksandr Usyk beats Tyson Fury again, what's next for heavyweight boxing?**\
 `Usyk's second win over Fury leaves the heavyweight division in an existential state - but new eras always emerge`\
 https://nytimes.com/athletic/6012472/2024/12/22/after-oleksandr-usyk-beats-tyson-fury-again-whats-next-for-heavyweight-boxing/
-
-**Phillies acquire lefty Jesús Luzardo in trade with Marlins: Sources**\
-`With Luzardo, the Phillies could form one of the best — if not the best — rotations in baseball next season.`\
-https://nytimes.com/athletic/6011962/2024/12/22/jesus-luzardo-trade-phillies-marlins/
 
