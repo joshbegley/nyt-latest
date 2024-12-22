@@ -1,3 +1,7 @@
+**Trump Appoints ‘The Apprentice’ Producer as Special Envoy to Britain**\
+`Mark Burnett and President-elect Donald J. Trump had a long and successful collaboration that made Mr. Trump a household name.`\
+https://nytimes.com/2024/12/21/us/politics/mark-burnett-special-envoy.html
+
 **Snyder: Why not Penn State? Nittany Lions are playing with championship belief**\
 `Penn State's first home Playoff game against SMU was a cathartic moment for a program that has hopes of winning even bigger games ahead.`\
 https://nytimes.com/athletic/6011792/2024/12/21/penn-state-smu-playoff-national-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011721/2024/12/21/guardians-trade-josh-naylor-diam
 **Rosenthal: For all his wondrous MLB accomplishments, Rickey Henderson is best known as the 'Man of Steal'**\
 `With an all-time record 1,406 career stolen bases, Henderson's prowess on the basepaths will likely never be matched. `\
 https://nytimes.com/athletic/6011382/2024/12/21/rickey-henderson-man-of-steal/
-
-**Congress Approves Spending Package After Political Drama**\
-`President Biden signed the spending bill early on Saturday, ensuring that there would be no lapse in government funding.`\
-https://nytimes.com/video/us/politics/100000009891658/congress-approves-spending-extension.html
 
