@@ -1,3 +1,7 @@
+**Aston Villa to recall forward Barry from Stockport loan in January**\
+`Aston Villa will recall forward Louie Barry from his loan spell at Stockport County in January.`\
+https://nytimes.com/athletic/6013226/2024/12/22/aston-villa-transfer-barry-stockport-loan/
+
 **Eagles' Jalen Hurts ruled out with concussion vs. Commanders**\
 `Kenny Pickett entered the game and connected with A.J. Brown for a first quarter touchdown.  `\
 https://nytimes.com/athletic/6013173/2024/12/22/jalen-hurts-concussion-injured-eagles-commanders/
