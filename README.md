@@ -1,7 +1,3 @@
-**Lamar Jackson, Ravens beat Steelers 34-17 to reach playoffs: Takeaways**\
-`Pittsburgh still holds the tiebreaker in the AFC North via conference record (7-3 to 6-4).`\
-https://nytimes.com/athletic/6011686/2024/12/21/steelers-ravens-score-result-takeaways/
-
 **Trump Appoints ‘The Apprentice’ Producer as Special Envoy to Britain**\
 `Mark Burnett and President-elect Donald J. Trump had a long and successful collaboration that made Mr. Trump a household name.`\
 https://nytimes.com/2024/12/21/us/politics/mark-burnett-special-envoy.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6011636/2024/12/21/usyk-vs-fury-fight-result/
 **Guardians trade Josh Naylor to D-Backs, agree to deal with Carlos Santana**\
 `The Guardians agreed to a deal with Naylor's replacement at first base shortly after trading him to Arizona.`\
 https://nytimes.com/athletic/6011721/2024/12/21/guardians-trade-josh-naylor-diamondbacks-carlos-santana/
+
+**Rosenthal: For all his wondrous MLB accomplishments, Rickey Henderson is best known as the 'Man of Steal'**\
+`With an all-time record 1,406 career stolen bases, Henderson's prowess on the basepaths will likely never be matched. `\
+https://nytimes.com/athletic/6011382/2024/12/21/rickey-henderson-man-of-steal/
 
