@@ -1,3 +1,11 @@
+**How Charlie Coyle's position change opens a new door in the Trent Frederic decision**\
+`Coyle playing right wing has given Frederic an opportunity show what he has to offer — for any team that may be watching.`\
+https://nytimes.com/athletic/6012059/2024/12/21/bruins-charlie-coyle-trent-frederic-trade/
+
+**Ohio State routs Tennessee to complete CFP home-team sweep**\
+`Two programs very familiar with the time-honored tradition of Pasadena will reconvene at the Rose Bowl.`\
+https://nytimes.com/athletic/6012137/2024/12/21/ohio-state-tennessee-college-football-playoff/
+
 **Clemson made it to the 12-team Playoff. But after exit at Texas, is that good enough?**\
 `“We’ve gotta improve everywhere if we want to get to the top,” Dabo Swinney said.`\
 https://nytimes.com/athletic/6012106/2024/12/21/clemson-texas-college-football-playoff-dabo-swinney/
