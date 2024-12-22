@@ -1,3 +1,11 @@
+**Joe Burrow dazzles as Bengals earn 24-6 win vs. Browns: Takeaways**\
+`Burrow completed 23 of his 30 pass attempts for 252 yards and three touchdowns in the victory.`\
+https://nytimes.com/athletic/6012849/2024/12/22/bengals-browns-score-result-takeaways/
+
+**Michael Penix Jr. impresses in Falcons' 34-7 win vs. Giants: Takeaways**\
+`Atlanta keeps pace with Tampa Bay as its playoff hopes remain alive, while the Giants (2-13) lose a franchise-record 10 straight games.`\
+https://nytimes.com/athletic/6012832/2024/12/22/giants-falcons-score-result-takeaways/
+
 **NHL suspends Rangers' Matt Rempe for 8 games**\
 `Rempe now has two suspensions and four ejections in his 22-game NHL career.`\
 https://nytimes.com/athletic/6011084/2024/12/22/matt-rempe-suspension-nhl-rangers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6013270/2024/12/22/browns-myles-garrett-career-sack
 **Texans WR Tank Dell returning to Houston after hospital stay with knee injury**\
 `On a deep throw intended for Dell, Houston wide receiver Jared Wayne was in the vicinity of the play and collided with Dell’s knee.`\
 https://nytimes.com/athletic/6011548/2024/12/22/houston-texans-tank-dell-chiefs-knee-injury/
-
-**Aston Villa to recall forward Barry from Stockport loan in January**\
-`Aston Villa will recall forward Louie Barry from his loan spell at Stockport County in January.`\
-https://nytimes.com/athletic/6013226/2024/12/22/aston-villa-transfer-barry-stockport-loan/
-
-**Joao Fonseca wins ATP Next Gen Finals after searing week of groundstrokes**\
-`He is the lowest-ranked champion in tournament history.`\
-https://nytimes.com/athletic/6013182/2024/12/22/joao-fonseca-next-gen-finals-champion/
 
