@@ -1,3 +1,7 @@
+**Woman Dies After Being Set on Fire in Subway Car, Police Say**\
+`The police said “criminality is suspected” in the death, which they said appeared to be a homicide. It happened aboard a subway car at the Coney Island-Stillwell Avenue station on Sunday morning.`\
+https://nytimes.com/2024/12/22/nyregion/woman-subway-fire-dead.html
+
 **Small Plane Crashes Into Buildings in Brazilian City**\
 `Initial reports suggested it was unlikely that those on the plane survived. At least 14 other people were believed to have been injured on the ground.`\
 https://nytimes.com/2024/12/22/world/americas/plane-crash-brazil.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011962/2024/12/22/jesus-luzardo-trade-phillies-mar
 **Live Q&A: Week 16 fantasy football start/sit chat with Jay Felicio, Sunday 12/22 at 11 a.m. ET**\
 `Submit your Week 16 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5999003/2024/12/22/live-qa-week-16-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-22-at-11-a-m-et/
-
-**Cade Cunningham says Kevin Durant's praise of his game 'validates my work'**\
-`The NBA superstar called his younger counterpart his "brother" and said Cunningham was worthy of his first All-Star nod.`\
-https://nytimes.com/athletic/6012288/2024/12/22/cade-cunningham-kevin-durant-pistons-suns-nba/
 

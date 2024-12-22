@@ -1,3 +1,7 @@
+**Woman Dies After Being Set on Fire in Subway Car, Police Say**\
+`The police said “criminality is suspected” in the death, which they said appeared to be a homicide. It happened aboard a subway car at the Coney Island-Stillwell Avenue station on Sunday morning.`\
+https://nytimes.com/2024/12/22/nyregion/woman-subway-fire-dead.html
+
 **Small Plane Crashes Into Buildings in Brazilian City**\
 `Initial reports suggested it was unlikely that those on the plane survived. At least 14 other people were believed to have been injured on the ground.`\
 https://nytimes.com/2024/12/22/world/americas/plane-crash-brazil.html
