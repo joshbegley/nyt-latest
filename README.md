@@ -1,3 +1,7 @@
+**Bill Belichick's son Steve expected to join UNC staff as DC**\
+`The younger Belichick, 37, had a major impact as the defensive coordinator with the Washington Huskies in his one season in Seattle.`\
+https://nytimes.com/athletic/6013816/2024/12/22/bill-steve-belichick-unc-coaching-staff-washington/
+
 **Penn State beats Louisville to win eighth NCAA volleyball championship**\
 `Penn State won its eighth national volleyball championship and first in a decade with a four-set victory against host Louisville on Sunday.`\
 https://nytimes.com/athletic/6013794/2024/12/22/penn-state-louisville-ncaa-volleyball-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012858/2024/12/22/titans-colts-score-result-takeaw
 **'We're a completely different team': Rangers start fast and fizzle in yet another home loss**\
 `The Rangers' 3-1 loss to the Hurricanes hit too many of the same low notes we've seen during a 4-12-0 slide that now has them back at .500.`\
 https://nytimes.com/athletic/6013419/2024/12/22/rangers-hurricanes-nhl-loss/
-
-**Rams top Jets 19-9 as Aaron Rodgers cools off: Key takeaways**\
-`The Rams (9-6) will close their year with key home games against the Arizona Cardinals and the Seattle Seahawks in Weeks 17 and 18.`\
-https://nytimes.com/athletic/6012863/2024/12/22/rams-jets-score-result-takeaways/
 
