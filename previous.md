@@ -1,3 +1,7 @@
+**The Differences Between Running a Business and Running the Government**\
+`Readers discuss a guest essay arguing that running government like a business would be disastrous. Also: Liberalism; a tech court; aging gracefully.`\
+https://nytimes.com/2024/12/22/opinion/running-business-and-government.html
+
 **‘There’s real trust building’: Lakers believe recent defensive surge raises their ceiling**\
 `The Lakers have played dominant defense during their last five games, helping them rise from 10th to fifth in the Western Conference.`\
 https://nytimes.com/athletic/6012142/2024/12/22/lakers-lebron-james-anthony-davis-defense-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/22/briefing/bob-dylan-a-complete-unknown.html
 **College Football Playoff 2024 projections: Texas, Ohio State have best title odds**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/22/college-football-playoff-projections-odds/
-
-**Forest are flying - but must continue to improve to keep European dream alive**\
-`Forest will celebrate Christmas in the Champions League places. A European dream could become a reality in 2025 if they continue to improve`\
-https://nytimes.com/athletic/6012431/2024/12/22/forest-brentford-result-premier-league-aina-elanga/
 
