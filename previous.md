@@ -1,3 +1,7 @@
+**Cade Cunningham says Kevin Durant's praise of his game 'validates my work'**\
+`The NBA superstar called his younger counterpart his "brother" and said Cunningham was worthy of his first All-Star nod.`\
+https://nytimes.com/athletic/6012288/2024/12/22/cade-cunningham-kevin-durant-pistons-suns-nba/
+
 **Letter Calling for Tracking People of Color Circulates in an Oregon County**\
 `The letter, distributed in Lincoln County, Ore., tells community members to report people who may be undocumented, the sheriff’s office said.`\
 https://nytimes.com/2024/12/22/us/oregon-anti-immigrant-letter-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012465/2024/12/22/college-football-playoff-scores-
 **NFL Week 16 inactives and fantasy tips: Nick Chubb on IR, David Montgomery out this week**\
 `Who's in and who's out for Week 16? Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
 https://nytimes.com/athletic/6011261/2024/12/22/nfl-week-16-fantasy-football-inactives-tips/
-
-**Roses and redemption for Will Howard and Ohio State in dominant first-round CFP victory**\
-`The Buckeyes reminded everyone that they have the best collection of skill players in the country. `\
-https://nytimes.com/athletic/6012462/2024/12/22/ohio-state-will-howard-tennesee-playoff/
 

@@ -1,3 +1,7 @@
+**Cade Cunningham says Kevin Durant's praise of his game 'validates my work'**\
+`The NBA superstar called his younger counterpart his "brother" and said Cunningham was worthy of his first All-Star nod.`\
+https://nytimes.com/athletic/6012288/2024/12/22/cade-cunningham-kevin-durant-pistons-suns-nba/
+
 **Letter Calling for Tracking People of Color Circulates in an Oregon County**\
 `The letter, distributed in Lincoln County, Ore., tells community members to report people who may be undocumented, the sheriff’s office said.`\
 https://nytimes.com/2024/12/22/us/oregon-anti-immigrant-letter-investigation.html
