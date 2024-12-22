@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets
 `\
 https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
 
+**'Ready to really take off': Owen Tippett's career night sparks another Flyers comeback**\
+`Tippett’s overtime winner in the Philadelphia's 5-4 win over Columbus capped off the first 4-point night of his career.
+`\
+https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
+
 **The CFP quarterfinals are set. Here's a reason to be excited for each matchup**\
 `A history lesson and first look at the next round of the College Football Playoff.`\
 https://nytimes.com/athletic/6012200/2024/12/22/college-football-playoff-quarterfinals-preview-analysis/
