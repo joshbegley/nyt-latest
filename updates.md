@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets
 `\
 https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
 
+**'Ready to really take off': Owen Tippett's career night sparks another Flyers comeback**\
+`Tippett’s overtime winner in the Philadelphia's 5-4 win over Columbus capped off the first 4-point night of his career.
+`\
+https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
+
 **U.S. Fighter Jet Shot Down Over Red Sea by Apparent Friendly Fire**\
 `A U.S. Navy ship mistakenly fired at the F/A-18, whose two pilots were safely recovered, the military said.`\
 https://nytimes.com/2024/12/22/us/us-fighter-jet-red-sea.html
