@@ -1,3 +1,7 @@
+**What ankle injury? Patrick Mahomes looks just fine as Chiefs improve to 14-1**\
+`Mahomes surprised the Texans and the fans with a couple of early runs, including a 15-yard TD as the Chiefs closed in on the AFC's top seed.`\
+https://nytimes.com/athletic/6011743/2024/12/21/chiefs-texans-patrick-mahomes-ankle-injury/
+
 **John Seidler, Peter's brother, to take over as Padres control person**\
 `The news of the appointment comes after the Padres concluded one of the best seasons in franchise history.`\
 https://nytimes.com/athletic/5978687/2024/12/21/john-seidler-padres-control-peter/
