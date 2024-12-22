@@ -1,3 +1,7 @@
+**What ankle injury? Patrick Mahomes looks just fine as Chiefs improve to 14-1**\
+`Mahomes surprised the Texans and the fans with a couple of early runs, including a 15-yard TD as the Chiefs closed in on the AFC's top seed.`\
+https://nytimes.com/athletic/6011743/2024/12/21/chiefs-texans-patrick-mahomes-ankle-injury/
+
 **John Seidler, Peter's brother, to take over as Padres control person**\
 `The news of the appointment comes after the Padres concluded one of the best seasons in franchise history.`\
 https://nytimes.com/athletic/5978687/2024/12/21/john-seidler-padres-control-peter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011502/2024/12/21/rickey-henderson-legacy-oakland-
 **Dropped From Spending Bill, Cancer Research and D.C. Stadium Measures Revived by Senate**\
 `Two bills on pediatric cancer research and a football stadium site had been left out of the main spending package, but passed early Saturday as separate legislation.`\
 https://nytimes.com/2024/12/21/us/politics/spending-pediatric-cancer-stadium.html
-
-**Atmospheric Rivers Will Drench the West Coast**\
-`A parade of storms is expected to heighten the flood risk in the Pacific Northwest and Northern California over the next week.`\
-https://nytimes.com/2024/12/21/weather/atmospheric-rivers-will-drench-the-west-coast.html
 
