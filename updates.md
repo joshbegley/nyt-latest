@@ -1,3 +1,7 @@
+**Charlie Woods hits hole-in-one to put him, Tiger in lead at PNC**\
+`Charlie Woods, 15, aced the par-3 4th in the second and final round at the parent/child event in Orlando.`\
+https://nytimes.com/athletic/6013088/2024/12/22/charlie-woods-hole-in-one-tiger-pnc-championship-2/
+
 **Submit a question for Stewart Mandel's Mailbag**\
 `<p>Hope everyone thawed out from the first-round games.</p>
 <p>This week&#8217;s Mailbag is running a day early due to the holiday. Leave your questions here. Please include your city.</p>
