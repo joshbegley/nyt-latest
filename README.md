@@ -1,3 +1,7 @@
+**Police Fatally Shoot Man Who Drove Pickup Into Texas Mall, Injuring 5**\
+`The police said the man was being investigated for possible drunken driving but instead of stopping, he smashed his pickup truck into a J.C. Penney.`\
+https://nytimes.com/2024/12/21/us/killeen-texas-mall-shooting.html
+
 **Wisconsin QB Mabrey Mettauer intends to enter transfer portal**\
 `Mettauer will have four years of eligibility remaining.`\
 https://nytimes.com/athletic/6011906/2024/12/21/wisconsin-quarterback-mabrey-mettauer-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011743/2024/12/21/chiefs-texans-patrick-mahomes-an
 **John Seidler, Peter's brother, to take over as Padres control person**\
 `The news of the appointment comes after the Padres concluded one of the best seasons in franchise history.`\
 https://nytimes.com/athletic/5978687/2024/12/21/john-seidler-padres-control-peter/
-
-**SMU's CFP humbling: A 'shell-shocked' Cinderella's lesson about the big stage**\
-`Underdog stories typically end with a thud in the College Football Playoff. SMU and Indiana join a long list after first-round routs.`\
-https://nytimes.com/athletic/6011708/2024/12/21/smu-football-playoff-resume-penn-state/
 
