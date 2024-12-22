@@ -1,3 +1,7 @@
+**The CFP quarterfinals are set. Here's a reason to be excited for each matchup**\
+`A history lesson and first look at the next round of the College Football Playoff.`\
+https://nytimes.com/athletic/6012200/2024/12/22/college-football-playoff-quarterfinals-preview-analysis/
+
 **A 1,000-Year-Old Seed Grows in Israel**\
 `For 14 years, scientists have been growing a tree akin to the Judean balsam — the source of the balm of Gilead — but with no modern counterpart.`\
 https://nytimes.com/2024/12/22/science/archaeology-seeds-gilead-sheba.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5989079/2024/12/22/morocco-world-cup-superpower/
 **How Trent Alexander-Arnold's passing has changed - and the importance of the letter 'L'**\
 `The arrival of Slot at Anfield has prompted a change in where Alexander-Arnold operates and the types of passes he plays – and how often`\
 https://nytimes.com/athletic/6000949/2024/12/22/trent-alexander-arnold-passing-liverpool-slot/
-
-**Jesus, Saka, and Arteta's attempts to balance Arsenal's attacking threat with defensive stability**\
-`Jesus is in remarkable form, Saka is injured, and amid it all Arteta is trying to add oomph in attack while staying secure at the back`\
-https://nytimes.com/athletic/6011586/2024/12/22/arsenal-attack-defence-balance/
 
