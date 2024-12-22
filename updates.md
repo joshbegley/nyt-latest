@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets
 `\
 https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
 
+**'Ready to really take off': Owen Tippett's career night sparks Flyers in another comeback**\
+`Tippett’s overtime winner in the Flyers’ 5-4 win over the Blue Jackets capped off the first four-point night of his career.
+`\
+https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
+
 **Wrexham can rely on their trio of goalkeepers - but Okonkwo's return will be welcomed**\
 `Wrexham conceded late at Bristol Rovers to miss out on going joint-top but have had positive news around their injured No 1 goalkeeper`\
 https://nytimes.com/athletic/6003140/2024/12/22/wrexham-goalkeeper-arthur-okonkwo-analysis/
