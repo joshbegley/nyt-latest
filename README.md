@@ -1,3 +1,7 @@
+**U.S. Fighter Jet Shot Down Over Red Sea by Apparent Friendly Fire**\
+`A U.S. Navy ship mistakenly fired at the F/A-18, whose two pilots were safely recovered, the military said.`\
+https://nytimes.com/2024/12/22/us/us-fighter-jet-red-sea.html
+
 **Texas, a complete but imperfect team, looks poised to make deep Playoff run**\
 `Texas, with a favorable draw and versatility, has as good a chance as anyone at hoisting the national championship trophy.`\
 https://nytimes.com/athletic/6012193/2024/12/22/texas-clemson-college-football-playoff-run/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6011398/2024/12/22/jack-grealish-manchester-city-at
 **How to get your sports fix every day this Christmas**\
 `With a smorgasbord of sport to choose from over the festive season, this is your essential guide to what to watch this Christmas`\
 https://nytimes.com/athletic/6008995/2024/12/22/sport-tv-guide-christmas-2024/
-
-**Memes, Jokes and Cats: South Koreans Use Parody for Political Protest**\
-`As South Koreans took to the streets this month demanding the ousting of their president, some found an unexpected outlet to express their fury.`\
-https://nytimes.com/interactive/2024/12/22/world/asia/south-korea-protest-memes.html
 
