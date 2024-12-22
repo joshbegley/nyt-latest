@@ -1,3 +1,7 @@
+**How Canucks lost in overtime to Senators despite Quinn Hughes' magic: 3 takeaways**\
+`The Canucks were flattened pretty thoroughly by the Senators in the first period until Hughes led a rally.`\
+https://nytimes.com/athletic/6012203/2024/12/22/canucks-senators-overtime-quinn-hughes/
+
 **'I have not seen that ever': Comeback win shows what the Orlando Magic are about**\
 `Down by 25 points and crushed by an injury to Moe Wagner, Orlando stormed back with one of the greatest comebacks in team history.`\
 https://nytimes.com/athletic/6012263/2024/12/22/orlando-magic-comeback-win-miami-heat/
