@@ -1,3 +1,7 @@
+**Khris Middleton's back-to-back, Lillard's injury and Cavs are tough: 3 Bucks observations**\
+`After winning the NBA Cup on Tuesday, the Bucks still had work to do against Cleveland on Friday and Washington on Saturday.`\
+https://nytimes.com/athletic/6011637/2024/12/22/bucks-khris-middleton-damian-lillard-giannis-antetokounmpo/
+
 **China Wants This Deal to Fail. Don’t Let That Happen.**\
 `The Biden administration should approve the proposed $14.9 billion deal with Nippon Steel.`\
 https://nytimes.com/2024/12/22/opinion/us-steel-nippon-biden-trump-cfius.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/22/opinion/running-business-and-government.html
 **‘There’s real trust building’: Lakers believe recent defensive surge raises their ceiling**\
 `The Lakers have played dominant defense during their last five games, helping them rise from 10th to fifth in the Western Conference.`\
 https://nytimes.com/athletic/6012142/2024/12/22/lakers-lebron-james-anthony-davis-defense-nba/
-
-**Derrick Jones Jr. might be NBA's Wolverine, as latest comeback reminds**\
-`Touched by a tribute in Dallas, Derrick Jones Jr. has struck the balance of being rewarded while staying hungry.`\
-https://nytimes.com/athletic/6012267/2024/12/22/derrick-jones-jr-might-be-the-nbas-wolverine-as-his-latest-comeback-reminds-us/
 
