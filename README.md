@@ -1,3 +1,7 @@
+**Roses and redemption for Will Howard and Ohio State in dominant first-round CFP victory**\
+`The Buckeyes reminded everyone that they have the best collection of skill players in the country. `\
+https://nytimes.com/athletic/6012462/2024/12/22/ohio-state-will-howard-tennesee-playoff/
+
 **The Enigma of Bob Dylan**\
 `We cover a new film about the singer-songwriter.`\
 https://nytimes.com/2024/12/22/briefing/bob-dylan-a-complete-unknown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/22/opinion/nantucket-whale-extinction.html
 **Wordle Review No. 1,283**\
 `Scroll down for hints and conversation about the puzzle for Monday, Dec. 23, 2024.`\
 https://nytimes.com/2024/12/22/crosswords/wordle-review-1283.html
-
-**After Playoff wins, what else do Drew Allar, Quinn Ewers need to show NFL scouts?**\
-`Allar and Ewers both moved on in the College Football Playoff. Will either of them jump to the NFL when their seasons are over?`\
-https://nytimes.com/athletic/6011768/2024/12/22/nfl-draft-2025-qb-prospects-ewers-allar/
 
