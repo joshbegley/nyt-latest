@@ -1,3 +1,7 @@
+**Wrexham can rely on their trio of goalkeepers - but Okonkwo's return will be welcomed**\
+`Wrexham conceded late at Bristol Rovers to miss out on going joint-top but have had positive news around their injured No 1 goalkeeper`\
+https://nytimes.com/athletic/6003140/2024/12/22/wrexham-goalkeeper-arthur-okonkwo-analysis/
+
 **'Ready to really take off': Owen Tippett's career night sparks Flyers in another comeback**\
 `Tippett’s overtime winner in the Flyers’ 5-4 win over the Blue Jackets capped off the first four-point night of his career.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2024/12/22/world/europe/-nutcracker-lithuania-russia-ukraine
 **After Military Took Power, Terrorist Attacks Only Got Worse**\
 `In the West African nation of Niger, killings by insurgents have surged since the military seized power in a coup, expelled U.S. and European troops and stopped negotiations with Islamist groups.`\
 https://nytimes.com/2024/12/22/world/africa/niger-war-coup.html
-
-**Blue Jackets avoid Zach Werenski injury scare, but OT struggles continue**\
-`After a 5-4 loss to the Flyers, the Blue Jackets dropped to a 1-6 record in OT games this season.`\
-https://nytimes.com/athletic/6012032/2024/12/22/blue-jackets-zach-werenski-injury/
 
