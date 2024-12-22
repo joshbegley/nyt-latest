@@ -1,3 +1,7 @@
+**Barcelona 1 Atletico 2: Pedri's wasted wonder goal, youthful errors, what now in title race?**\
+`Barcelona were the better side against Atletico but still lost after Pedri's brilliant opener. Here are the big talking points from the game`\
+https://nytimes.com/athletic/6011922/2024/12/22/barcelona-atletico-pedri-title-race-lewandowski/
+
 **Times Company v. Sullivan: The Case That Helped Make Modern Libel Law**\
 `L.B. Sullivan sued The New York Times over a civil rights fund-raising advertisement. The Supreme Court ruled against him in 1964.`\
 https://nytimes.com/2024/12/22/insider/times-company-v-sullivan-the-case-that-helped-make-modern-libel-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012203/2024/12/22/canucks-senators-overtime-quinn-
 **'I have not seen that ever': Comeback win shows what the Orlando Magic are about**\
 `Down by 25 points and crushed by an injury to Moe Wagner, Orlando stormed back with one of the greatest comebacks in team history.`\
 https://nytimes.com/athletic/6012263/2024/12/22/orlando-magic-comeback-win-miami-heat/
-
-**'This is what basketball excellence was': Why USC's win over UConn is so significant**\
-`For JuJu Watkins and coach Lindsay Gottlieb, Saturday's 72-70 victory further proved USC is among the elite in women's basketball.`\
-https://nytimes.com/athletic/6012236/2024/12/22/usc-uconn-juju-watkins-lindsay-gottlieb-geno-auriemma/
 

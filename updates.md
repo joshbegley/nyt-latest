@@ -1,3 +1,7 @@
+**Barcelona 1 Atletico 2: Pedri's wasted wonder goal, youthful errors, what now in title race?**\
+`Barcelona were the better side against Atletico but still lost after Pedri's brilliant opener. Here are the big talking points from the game`\
+https://nytimes.com/athletic/6011922/2024/12/22/barcelona-atletico-pedri-title-race-lewandowski/
+
 **Times Company v. Sullivan: The Case That Helped Make Modern Libel Law**\
 `L.B. Sullivan sued The New York Times over a civil rights fund-raising advertisement. The Supreme Court ruled against him in 1964.`\
 https://nytimes.com/2024/12/22/insider/times-company-v-sullivan-the-case-that-helped-make-modern-libel-law.html
