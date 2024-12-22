@@ -1,3 +1,7 @@
+**Manchester United planning lucrative post-season trip to Malaysia**\
+`Manchester United are planning to go on a post-season trip to Malaysia at the end of the current season for a money-spinning tour that may earn the club $10million (£7.`\
+https://nytimes.com/athletic/6011255/2024/12/22/manchester-united-malaysia-trip/
+
 **Barcelona 1 Atletico 2: Pedri's wasted wonder goal, youthful errors, what now in title race?**\
 `Barcelona were the better side against Atletico but still lost after Pedri's brilliant opener. Here are the big talking points from the game`\
 https://nytimes.com/athletic/6011922/2024/12/22/barcelona-atletico-pedri-title-race-lewandowski/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012276/2024/12/22/canadiens-alexandre-carrier-defe
 **How Canucks lost in overtime to Senators despite Quinn Hughes' magic: 3 takeaways**\
 `The Canucks were flattened pretty thoroughly by the Senators in the first period until Hughes led a rally.`\
 https://nytimes.com/athletic/6012203/2024/12/22/canucks-senators-overtime-quinn-hughes/
-
-**'I have not seen that ever': Comeback win shows what the Orlando Magic are about**\
-`Down by 25 points and crushed by an injury to Moe Wagner, Orlando stormed back with one of the greatest comebacks in team history.`\
-https://nytimes.com/athletic/6012263/2024/12/22/orlando-magic-comeback-win-miami-heat/
 
