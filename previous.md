@@ -1,3 +1,11 @@
+**Joao Fonseca wins ATP Next Gen Finals after searing week of groundstrokes**\
+`He is the lowest-ranked champion in tournament history.`\
+https://nytimes.com/athletic/6013182/2024/12/22/joao-fonseca-next-gen-finals-champion/
+
+**Tennis stardom is a roulette wheel. Joao Fonseca is ready to bet on himself**\
+`Meet the youngest player and now the champion at the ATP Next Gen Finals: His name is Joao, and he hits a big forehand.`\
+https://nytimes.com/athletic/5982298/2024/12/22/joao-fonseca-tennis-player/
+
 **Jesús Luzardo bolster's Phillies rotation, Marlins add high-ceiling prospects: Law**\
 `The Phillies gave up talent but it is a trade every contender should make given Luzardo helps them now and the prospects are years away.`\
 https://nytimes.com/athletic/6012979/2024/12/22/jesus-luzardo-phillies-marlins-trade-analysis/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6013072/2024/12/22/submit-a-question-for-stewart-ma
 **Woman Dies After Being Set on Fire in Subway Car, Police Say**\
 `The police said “criminality is suspected” in the death, which they said appeared to be a homicide. It happened aboard a subway car at the Coney Island-Stillwell Avenue station on Sunday morning.`\
 https://nytimes.com/2024/12/22/nyregion/woman-subway-fire-dead.html
-
-**Small Plane Crashes Into Buildings in Brazilian City**\
-`The 10 on board were not believed to have survived, while at least 17 other people were injured on the ground.`\
-https://nytimes.com/2024/12/22/world/americas/plane-crash-brazil.html
-
-**The Briefing: Everton 0 Chelsea 0 - A missed opportunity? How did makeshift defence do?**\
-`Chelsea were held to a 0-0 draw by Everton at Goodison Park on Sunday afternoon`\
-https://nytimes.com/athletic/5993205/2024/12/22/everton-chelsea-result-report-analysis/
 

@@ -1,3 +1,11 @@
+**Joao Fonseca wins ATP Next Gen Finals after searing week of groundstrokes**\
+`He is the lowest-ranked champion in tournament history.`\
+https://nytimes.com/athletic/6013182/2024/12/22/joao-fonseca-next-gen-finals-champion/
+
+**Tennis stardom is a roulette wheel. Joao Fonseca is ready to bet on himself**\
+`Meet the youngest player and now the champion at the ATP Next Gen Finals: His name is Joao, and he hits a big forehand.`\
+https://nytimes.com/athletic/5982298/2024/12/22/joao-fonseca-tennis-player/
+
 **Jesús Luzardo bolster's Phillies rotation, Marlins add high-ceiling prospects: Law**\
 `The Phillies gave up talent but it is a trade every contender should make given Luzardo helps them now and the prospects are years away.`\
 https://nytimes.com/athletic/6012979/2024/12/22/jesus-luzardo-phillies-marlins-trade-analysis/
