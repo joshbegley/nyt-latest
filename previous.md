@@ -1,3 +1,7 @@
+**Letter Calling for Tracking People of Color Circulates in an Oregon County**\
+`The letter, distributed in Lincoln County, Ore., tells community members to report people who may be undocumented, the sheriff’s office said.`\
+https://nytimes.com/2024/12/22/us/oregon-anti-immigrant-letter-investigation.html
+
 **Cowboys Today: Predictions vs. Bucs, front-office reaction to Micah Parsons' remarks**\
 `Micah Parsons' comments about his next contract drew the Cowboys' attention. Can Rico Dowdle top 100 yards for the fourth straight week?`\
 https://nytimes.com/athletic/6012064/2024/12/22/cowboys-today-predictions-bucs-micah-parsons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011261/2024/12/22/nfl-week-16-fantasy-football-ina
 **Roses and redemption for Will Howard and Ohio State in dominant first-round CFP victory**\
 `The Buckeyes reminded everyone that they have the best collection of skill players in the country. `\
 https://nytimes.com/athletic/6012462/2024/12/22/ohio-state-will-howard-tennesee-playoff/
-
-**The Enigma of Bob Dylan**\
-`We cover a new film about the singer-songwriter.`\
-https://nytimes.com/2024/12/22/briefing/bob-dylan-a-complete-unknown.html
 

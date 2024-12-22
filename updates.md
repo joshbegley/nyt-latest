@@ -1,3 +1,7 @@
+**Letter Calling for Tracking People of Color Circulates in an Oregon County**\
+`The letter, distributed in Lincoln County, Ore., tells community members to report people who may be undocumented, the sheriff’s office said.`\
+https://nytimes.com/2024/12/22/us/oregon-anti-immigrant-letter-investigation.html
+
 **Cowboys Today: Predictions vs. Bucs, front-office reaction to Micah Parsons' remarks**\
 `Micah Parsons' comments about his next contract drew the Cowboys' attention. Can Rico Dowdle top 100 yards for the fourth straight week?`\
 https://nytimes.com/athletic/6012064/2024/12/22/cowboys-today-predictions-bucs-micah-parsons/
