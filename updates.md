@@ -1,3 +1,7 @@
+**JuJu Watkins, USC prevail in nail-biter vs. Paige Bueckers, UConn**\
+`Watkins finished USC's 72-70 victory with a game-high 25 points.`\
+https://nytimes.com/athletic/6011953/2024/12/21/juju-watkins-paige-bueckers-usc-uconn-basketball/
+
 **Quotation of the Day: Traditions Overlap as Christmas Meets Hanukkah**\
 `Quotation of the Day for Sunday, December 22, 2024.`\
 https://nytimes.com/2024/12/21/pageoneplus/quotation-of-the-day-traditions-overlap-as-christmas-meets-hanukkah.html

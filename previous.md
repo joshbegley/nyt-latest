@@ -1,3 +1,7 @@
+**JuJu Watkins, USC prevail in nail-biter vs. Paige Bueckers, UConn**\
+`Watkins finished USC's 72-70 victory with a game-high 25 points.`\
+https://nytimes.com/athletic/6011953/2024/12/21/juju-watkins-paige-bueckers-usc-uconn-basketball/
+
 **Quotation of the Day: Traditions Overlap as Christmas Meets Hanukkah**\
 `Quotation of the Day for Sunday, December 22, 2024.`\
 https://nytimes.com/2024/12/21/pageoneplus/quotation-of-the-day-traditions-overlap-as-christmas-meets-hanukkah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011686/2024/12/21/steelers-ravens-score-result-tak
 **Trump Appoints ‘The Apprentice’ Producer as Special Envoy to Britain**\
 `Mark Burnett and President-elect Donald J. Trump had a long and successful collaboration that made Mr. Trump a household name.`\
 https://nytimes.com/2024/12/21/us/politics/mark-burnett-special-envoy.html
-
-**Snyder: Why not Penn State? Nittany Lions are playing with championship belief**\
-`Penn State's first home Playoff game against SMU was a cathartic moment for a program that has hopes of winning even bigger games ahead.`\
-https://nytimes.com/athletic/6011792/2024/12/21/penn-state-smu-playoff-national-championship/
 
