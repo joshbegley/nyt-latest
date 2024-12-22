@@ -1,3 +1,7 @@
+**NHL suspends Rangers' Matt Rempe for 8 games**\
+`Rempe now has two suspensions and four ejections in his 22-game NHL career.`\
+https://nytimes.com/athletic/6011084/2024/12/22/matt-rempe-suspension-nhl-rangers/
+
 **Monday Briefing: Al-Assad’s Final Days in Power**\
 `Plus, parody as protest in South Korea.`\
 https://nytimes.com/2024/12/22/briefing/syria-germany-iran.html

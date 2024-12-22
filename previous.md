@@ -1,3 +1,7 @@
+**NHL suspends Rangers' Matt Rempe for 8 games**\
+`Rempe now has two suspensions and four ejections in his 22-game NHL career.`\
+https://nytimes.com/athletic/6011084/2024/12/22/matt-rempe-suspension-nhl-rangers/
+
 **Monday Briefing: Al-Assad’s Final Days in Power**\
 `Plus, parody as protest in South Korea.`\
 https://nytimes.com/2024/12/22/briefing/syria-germany-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6013226/2024/12/22/aston-villa-transfer-barry-stock
 **Joao Fonseca wins ATP Next Gen Finals after searing week of groundstrokes**\
 `He is the lowest-ranked champion in tournament history.`\
 https://nytimes.com/athletic/6013182/2024/12/22/joao-fonseca-next-gen-finals-champion/
-
-**Tennis stardom is a roulette wheel. Joao Fonseca is ready to bet on himself**\
-`Meet the youngest player and now the champion at the ATP Next Gen Finals: His name is Joao, and he hits a big forehand.`\
-https://nytimes.com/athletic/5982298/2024/12/22/joao-fonseca-tennis-player/
 
