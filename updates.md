@@ -1,3 +1,7 @@
+**Penguins’ hot streak cooled off, but it's no reason to panic: 3 takeaways vs. Devils**\
+`The 3-0 final score vs. the Devils looks a lot worse than the Penguins actually played.`\
+https://nytimes.com/athletic/6012034/2024/12/21/penguins-devils-takeaways-owen-pickering-injury/
+
 **'I put that game on me': Russell Wilson's miscues prove pivotal in Steelers loss**\
 `Despite some dazzling plays, Wilson's two turnovers doomed the Steelers against the Ravens, showing how thin their margin for error can be.`\
 https://nytimes.com/athletic/6012052/2024/12/21/russell-wilson-steelers-loss-ravens/
