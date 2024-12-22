@@ -1,3 +1,7 @@
+**The Briefing: Man United 0 Bournemouth 3 - problems for Amorim after his biggest setback yet**\
+`Mark Critchley analyses the key talking points from Manchester United's heavy home loss to Bournemouth`\
+https://nytimes.com/athletic/5993220/2024/12/22/manchester-united-bournemouth-analysis/
+
 **Khris Middleton's back-to-back, Lillard's injury and Cavs are tough: 3 Bucks observations**\
 `After winning the NBA Cup on Tuesday, the Bucks still had work to do against Cleveland on Friday and Washington on Saturday.`\
 https://nytimes.com/athletic/6011637/2024/12/22/bucks-khris-middleton-damian-lillard-giannis-antetokounmpo/
