@@ -1,3 +1,7 @@
+**'I have not seen that ever': Comeback win shows what the Orlando Magic are about**\
+`Down by 25 points and crushed by an injury to Moe Wagner, Orlando stormed back with one of the greatest comebacks in team history.`\
+https://nytimes.com/athletic/6012263/2024/12/22/orlando-magic-comeback-win-miami-heat/
+
 **'Ready to really take off': Owen Tippett's career night sparks another Flyers comeback**\
 `Tippett’s overtime winner in the Philadelphia's 5-4 win over Columbus capped off the first 4-point night of his career.
 `\

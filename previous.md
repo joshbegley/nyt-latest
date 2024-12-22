@@ -1,3 +1,7 @@
+**'I have not seen that ever': Comeback win shows what the Orlando Magic are about**\
+`Down by 25 points and crushed by an injury to Moe Wagner, Orlando stormed back with one of the greatest comebacks in team history.`\
+https://nytimes.com/athletic/6012263/2024/12/22/orlando-magic-comeback-win-miami-heat/
+
 **'This is what basketball excellence was': Why USC's win over UConn is so significant**\
 `For JuJu Watkins and coach Lindsay Gottlieb, Saturday's 72-70 victory further proved USC is among the elite in women's basketball.`\
 https://nytimes.com/athletic/6012236/2024/12/22/usc-uconn-juju-watkins-lindsay-gottlieb-geno-auriemma/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6009324/2024/12/22/aston-villa-unai-emery-blueprint
 **Wrexham can rely on their trio of goalkeepers - but Okonkwo's return will be welcomed**\
 `Wrexham conceded late at Bristol Rovers to miss out on going joint-top but have had positive news around their injured No 1 goalkeeper`\
 https://nytimes.com/athletic/6003140/2024/12/22/wrexham-goalkeeper-arthur-okonkwo-analysis/
-
-**'Ready to really take off': Owen Tippett's career night sparks another Flyers comeback**\
-`Tippett’s overtime winner in the Philadelphia's 5-4 win over Columbus capped off the first 4-point night of his career.
-`\
-https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
 
