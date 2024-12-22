@@ -1,3 +1,7 @@
+**Houston we have a problem: Why is Fred VanVleet shooting so poorly?**\
+`It might be time for Rockets coach Ime Udoka to become a little less reliant on Fred VanVleet, who is often tasked with running the offense.`\
+https://nytimes.com/athletic/6003823/2024/12/22/rockets-fred-vanvleet-shooting-woes/
+
 **After Playoff wins, what else do Drew Allar, Quinn Ewers need to show NFL scouts?**\
 `Allar and Ewers both moved on in the College Football Playoff. Will either of them jump to the NFL when their seasons are over?`\
 https://nytimes.com/athletic/6011768/2024/12/22/nfl-draft-2025-qb-prospects-ewers-allar/
