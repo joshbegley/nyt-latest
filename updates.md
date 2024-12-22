@@ -1,3 +1,11 @@
+**Quotation of the Day: Traditions Overlap as Christmas Meets Hanukkah**\
+`Quotation of the Day for Sunday, December 22, 2024.`\
+https://nytimes.com/2024/12/21/pageoneplus/quotation-of-the-day-traditions-overlap-as-christmas-meets-hanukkah.html
+
+**'Simply the best.' Around baseball, teammates and foes laud the late Rickey Henderson**\
+`“Well known as a great player, less known that he was a great and popular teammate as well,” said longtime manager Tony La Russa.`\
+https://nytimes.com/athletic/6011939/2024/12/21/rickey-henderson-teammates-testimonials/
+
 **Canada rallies to beat Sweden in second WJC pre-tournament game**\
 `Canada's Easton Cowan and Calum Ritchie and Sweden's Theo Lindstein and Otto Stenberg had multi-point games.`\
 https://nytimes.com/athletic/6009926/2024/12/21/canada-sweden-world-juniors-2025-pre-tournament/

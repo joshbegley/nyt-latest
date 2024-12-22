@@ -1,3 +1,11 @@
+**Quotation of the Day: Traditions Overlap as Christmas Meets Hanukkah**\
+`Quotation of the Day for Sunday, December 22, 2024.`\
+https://nytimes.com/2024/12/21/pageoneplus/quotation-of-the-day-traditions-overlap-as-christmas-meets-hanukkah.html
+
+**'Simply the best.' Around baseball, teammates and foes laud the late Rickey Henderson**\
+`“Well known as a great player, less known that he was a great and popular teammate as well,” said longtime manager Tony La Russa.`\
+https://nytimes.com/athletic/6011939/2024/12/21/rickey-henderson-teammates-testimonials/
+
 **Canada rallies to beat Sweden in second WJC pre-tournament game**\
 `Canada's Easton Cowan and Calum Ritchie and Sweden's Theo Lindstein and Otto Stenberg had multi-point games.`\
 https://nytimes.com/athletic/6009926/2024/12/21/canada-sweden-world-juniors-2025-pre-tournament/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/21/us/politics/mark-burnett-special-envoy.html
 **Snyder: Why not Penn State? Nittany Lions are playing with championship belief**\
 `Penn State's first home Playoff game against SMU was a cathartic moment for a program that has hopes of winning even bigger games ahead.`\
 https://nytimes.com/athletic/6011792/2024/12/21/penn-state-smu-playoff-national-championship/
-
-**University of California Resolves Civil Rights Complaints Over Gaza Protests**\
-`Five schools agreed to changes after reports that they failed to protect students from antisemitism and anti-Arab and anti-Muslim discrimination.`\
-https://nytimes.com/2024/12/21/us/uc-antisemitism-anti-arab-discrimination-settlement.html
-
-**How Texas ran away from Clemson: Horns always had a response in Playoff win**\
-`Texas rushed for nearly 300 yards and averaged 6.1 yards per rush but did lose two offensive linemen to injury. `\
-https://nytimes.com/athletic/6011703/2024/12/21/texas-clemson-score-college-football-playoff/
 
