@@ -1,3 +1,11 @@
+**Alex Caruso, Thunder agree to 4-year, $81 million contract extension**\
+`The 30-year-old, known as one of the NBA's best perimeter defenders, was acquired in a trade with Chicago last summer.`\
+https://nytimes.com/athletic/6013389/2024/12/22/alex-caruso-contract-thunder-extension/
+
+**Tyler Higbee's emotional return propels Rams to eighth win in 10 games**\
+`The Rams improved to 9-6 with the win Sunday and lead the NFC West after the Seahawks lost.`\
+https://nytimes.com/athletic/6013815/2024/12/22/rams-win-tyler-higbee-jets/
+
 **Amarius Mims' injury, sideline spat mark significant point for Bengals rookie**\
 `The first-round pick admits "emotions kind of blew over" but shows maturity and growth in handling the aftermath of win over Browns.`\
 https://nytimes.com/athletic/6013859/2024/12/22/bengals-win-amarius-mims-browns/
