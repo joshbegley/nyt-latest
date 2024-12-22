@@ -1,3 +1,11 @@
+**'We're a completely different team': Rangers start fast and fizzle in yet another home loss**\
+`The Rangers' 3-1 loss to the Hurricanes hit too many of the same low notes we've seen during a 4-12-0 slide that now has them back at .500.`\
+https://nytimes.com/athletic/6013419/2024/12/22/rangers-hurricanes-nhl-loss/
+
+**Rams top Jets 19-9 as Aaron Rodgers cools off: Key takeaways**\
+`The Rams (9-6) will close their year with key home games against the Arizona Cardinals and the Seattle Seahawks in Weeks 17 and 18.`\
+https://nytimes.com/athletic/6012863/2024/12/22/rams-jets-score-result-takeaways/
+
 **Jared Goff, Lions improve to 13-2 after beating Bears 34-17: Takeaways**\
 `Dan Campbell's club completed the season sweep of the Bears for the second time in the last three seasons.`\
 https://nytimes.com/athletic/6012844/2024/12/22/lions-bears-score-result-takeaways/
