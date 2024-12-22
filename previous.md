@@ -1,3 +1,7 @@
+**Jayden Daniels' 5 TDs spark Commanders' 36-33 win over Eagles: Takeaways**\
+`Washington rallies from multiple fourth quarter deficits to move closer to its first playoff berth since 2020. `\
+https://nytimes.com/athletic/6012873/2024/12/22/eagles-commanders-score-result-takeaways/
+
 **Panthers dash Cardinals' playoff hopes with 36-30 overtime win: Takeaways**\
 `Hubbard finished one yard short of his career high against the New York Giants in Munich — which was the Panthers’ last win before Sunday.`\
 https://nytimes.com/athletic/6012837/2024/12/22/cardinals-panthers-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012849/2024/12/22/bengals-browns-score-result-take
 **Michael Penix Jr. impresses in Falcons' 34-7 win vs. Giants: Takeaways**\
 `Atlanta keeps pace with Tampa Bay as its playoff hopes remain alive, while the Giants (2-13) lose a franchise-record 10 straight games.`\
 https://nytimes.com/athletic/6012832/2024/12/22/giants-falcons-score-result-takeaways/
-
-**NHL suspends Rangers' Matt Rempe for 8 games**\
-`Rempe now has two suspensions and four ejections in his 22-game NHL career.`\
-https://nytimes.com/athletic/6011084/2024/12/22/matt-rempe-suspension-nhl-rangers/
 
