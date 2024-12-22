@@ -1,3 +1,7 @@
+**How Tielemans and Rogers’ ability between the lines helped Villa beat City**\
+`In his narrow midfield, Unai Emery had players who don't lose the ball, can carry it forward or pick a pass and know how to attack space`\
+https://nytimes.com/athletic/6012320/2024/12/22/aston-villa-manchester-city-tielemans-rogers-analysis/
+
 **Browns' Myles Garrett reaches 100 career sacks**\
 `Garrett becomes just the fifth player since sacks became an official stat in 1982 to reach 100 in his first eight seasons.`\
 https://nytimes.com/athletic/6013270/2024/12/22/browns-myles-garrett-career-sacks/

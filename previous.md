@@ -1,3 +1,7 @@
+**How Tielemans and Rogers’ ability between the lines helped Villa beat City**\
+`In his narrow midfield, Unai Emery had players who don't lose the ball, can carry it forward or pick a pass and know how to attack space`\
+https://nytimes.com/athletic/6012320/2024/12/22/aston-villa-manchester-city-tielemans-rogers-analysis/
+
 **Browns' Myles Garrett reaches 100 career sacks**\
 `Garrett becomes just the fifth player since sacks became an official stat in 1982 to reach 100 in his first eight seasons.`\
 https://nytimes.com/athletic/6013270/2024/12/22/browns-myles-garrett-career-sacks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6010295/2024/12/22/blue-jackets-dmitri-voronkov-nhl
 **Tottenham 3 Liverpool 6: Slot's side top of league at Christmas, Gray day, smart Szoboszlai**\
 `Liverpool are top of the Premier League at Christmas after beating Tottenham 6-3. Our writers break down the key talking points`\
 https://nytimes.com/athletic/5993227/2024/12/22/tottenham-liverpool-result-top-of-league-diaz-salah/
-
-**Trump Picks a Former Treasury Official as His Top Economist**\
-`Stephen Miran, who served during Donald Trump’s first term and now works at a hedge fund, has accused the Biden administration of manipulating markets.`\
-https://nytimes.com/2024/12/22/climate/trump-miran-council-of-economic-advisers.html
 
