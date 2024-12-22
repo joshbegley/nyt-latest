@@ -1,3 +1,7 @@
+**NFL Week 16 inactives and fantasy tips: Nick Chubb on IR, David Montgomery out this week**\
+`Who's in and who's out for Week 16? Plus weather reports, last-minute free agency options, and Jake Ciely's fantasy rankings.`\
+https://nytimes.com/athletic/6011261/2024/12/22/nfl-week-16-fantasy-football-inactives-tips/
+
 **Roses and redemption for Will Howard and Ohio State in dominant first-round CFP victory**\
 `The Buckeyes reminded everyone that they have the best collection of skill players in the country. `\
 https://nytimes.com/athletic/6012462/2024/12/22/ohio-state-will-howard-tennesee-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/22/opinion/kennedy-addiction.html
 **A Picturesque New England Town’s Debt to the Right Whale**\
 `We owe it to the right whale — and to so many other species — to reconstruct what our own history has taken from them.`\
 https://nytimes.com/2024/12/22/opinion/nantucket-whale-extinction.html
-
-**Wordle Review No. 1,283**\
-`Scroll down for hints and conversation about the puzzle for Monday, Dec. 23, 2024.`\
-https://nytimes.com/2024/12/22/crosswords/wordle-review-1283.html
 
