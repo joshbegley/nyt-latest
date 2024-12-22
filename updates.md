@@ -1,3 +1,11 @@
+**The Enigma of Bob Dylan**\
+`We cover a new film about the singer-songwriter.`\
+https://nytimes.com/2024/12/22/briefing/bob-dylan-a-complete-unknown.html
+
+**A Picturesque New England Town’s Debt to the Right Whale**\
+`We owe it to the right whale — and to so many other species — to reconstruct what our own history has taken from them.`\
+https://nytimes.com/2024/12/22/opinion/nantucket-whale-extinction.html
+
 **Forest are flying - but must continue to improve to keep European dream alive**\
 `Forest will celebrate Christmas in the Champions League places. A European dream could become a reality in 2025 if they continue to improve`\
 https://nytimes.com/athletic/6012431/2024/12/22/forest-brentford-result-premier-league-aina-elanga/

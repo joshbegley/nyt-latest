@@ -1,3 +1,7 @@
+**The Enigma of Bob Dylan**\
+`We cover a new film about the singer-songwriter.`\
+https://nytimes.com/2024/12/22/briefing/bob-dylan-a-complete-unknown.html
+
 **Forest are flying - but must continue to improve to keep European dream alive**\
 `Forest will celebrate Christmas in the Champions League places. A European dream could become a reality in 2025 if they continue to improve`\
 https://nytimes.com/athletic/6012431/2024/12/22/forest-brentford-result-premier-league-aina-elanga/
@@ -22,7 +26,7 @@ https://nytimes.com/2024/12/22/crosswords/connections-companion-561.html
 `America can’t go backward on drug policy.`\
 https://nytimes.com/2024/12/22/opinion/kennedy-addiction.html
 
-**What Nantucket Owes the Whale**\
+**A Picturesque New England Town’s Debt to the Right Whale**\
 `We owe it to the right whale — and to so many other species — to reconstruct what our own history has taken from them.`\
 https://nytimes.com/2024/12/22/opinion/nantucket-whale-extinction.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/22/crosswords/wordle-review-1283.html
 **After Playoff wins, what else do Drew Allar, Quinn Ewers need to show NFL scouts?**\
 `Allar and Ewers both moved on in the College Football Playoff. Will either of them jump to the NFL when their seasons are over?`\
 https://nytimes.com/athletic/6011768/2024/12/22/nfl-draft-2025-qb-prospects-ewers-allar/
-
-**Detention Is Ordered for Suspect in Christmas Market Killings in Germany**\
-`The authorities said they were struggling to understand the motives for the attack with a car in the eastern city of Magdeburg, in which a 9-year-old boy was among the five victims.`\
-https://nytimes.com/2024/12/22/world/europe/germany-christmas-market-attack.html
 

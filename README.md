@@ -22,7 +22,7 @@ https://nytimes.com/2024/12/22/opinion/human-nature-polarization-predator.html
 `Scroll down for hints and conversation about the puzzle for Monday, Dec. 23, 2024.`\
 https://nytimes.com/2024/12/22/crosswords/connections-companion-561.html
 
-**What Kennedy’s Approach to Addiction Gets Wrong**\
+**Like Kennedy, I Recovered From Heroin Addiction. I Don’t Agree With His Approach.**\
 `America can’t go backward on drug policy.`\
 https://nytimes.com/2024/12/22/opinion/kennedy-addiction.html
 
