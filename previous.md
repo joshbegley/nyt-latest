@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's Mailbag**\
+`<p>Hope everyone thawed out from the first-round games.</p>
+<p>This week&#8217;s Mailbag is running a day early due to the holiday. Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6013072/2024/12/22/submit-a-question-for-stewart-mandels-mailbag-6/
+
 **Woman Dies After Being Set on Fire in Subway Car, Police Say**\
 `The police said “criminality is suspected” in the death, which they said appeared to be a homicide. It happened aboard a subway car at the Coney Island-Stillwell Avenue station on Sunday morning.`\
 https://nytimes.com/2024/12/22/nyregion/woman-subway-fire-dead.html
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/6012472/2024/12/22/after-oleksandr-usyk-beats-tyson
 **Phillies acquire lefty Jesús Luzardo in trade with Marlins: Sources**\
 `With Luzardo, the Phillies could form one of the best — if not the best — rotations in baseball next season.`\
 https://nytimes.com/athletic/6011962/2024/12/22/jesus-luzardo-trade-phillies-marlins/
-
-**Live Q&A: Week 16 fantasy football start/sit chat with Jay Felicio, Sunday 12/22 at 11 a.m. ET**\
-`Submit your Week 16 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5999003/2024/12/22/live-qa-week-16-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-22-at-11-a-m-et/
 

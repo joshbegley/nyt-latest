@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's Mailbag**\
+`<p>Hope everyone thawed out from the first-round games.</p>
+<p>This week&#8217;s Mailbag is running a day early due to the holiday. Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6013072/2024/12/22/submit-a-question-for-stewart-mandels-mailbag-6/
+
 **Woman Dies After Being Set on Fire in Subway Car, Police Say**\
 `The police said “criminality is suspected” in the death, which they said appeared to be a homicide. It happened aboard a subway car at the Coney Island-Stillwell Avenue station on Sunday morning.`\
 https://nytimes.com/2024/12/22/nyregion/woman-subway-fire-dead.html
