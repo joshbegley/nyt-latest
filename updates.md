@@ -1,4 +1,8 @@
 **Amarius Mims' injury, sideline spat mark significant point for Bengals rookie**\
+`The first-round pick admits "emotions kind of blew over" but shows maturity and growth in handling the aftermath of win over Browns.`\
+https://nytimes.com/athletic/6013859/2024/12/22/bengals-win-amarius-mims-browns/
+
+**Amarius Mims' injury, sideline spat mark significant point for Bengals rookie**\
 `The first-round pick admits "emotions kind of blew over" but shows maturity and growth in handling the aftermath after win over Browns.`\
 https://nytimes.com/athletic/6013859/2024/12/22/bengals-win-amarius-mims-browns/
 
