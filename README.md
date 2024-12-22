@@ -1,3 +1,11 @@
+**China Wants This Deal to Fail. Don’t Let That Happen.**\
+`The Biden administration should approve the proposed $14.9 billion deal with Nippon Steel.`\
+https://nytimes.com/2024/12/22/opinion/us-steel-nippon-biden-trump-cfius.html
+
+**After Oleksandr Usyk beats Tyson Fury again, what's next for heavyweight boxing?**\
+`Usyk's second win over Fury leaves the heavyweight division in an existential state - but new eras always emerge`\
+https://nytimes.com/athletic/6012472/2024/12/22/after-oleksandr-usyk-beats-tyson-fury-again-whats-next-for-heavyweight-boxing/
+
 **Phillies acquire lefty Jesús Luzardo in trade with Marlins: Sources**\
 `With Luzardo, the Phillies could form one of the best — if not the best — rotations in baseball next season.`\
 https://nytimes.com/athletic/6011962/2024/12/22/jesus-luzardo-trade-phillies-marlins/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6012142/2024/12/22/lakers-lebron-james-anthony-davi
 **Derrick Jones Jr. might be NBA's Wolverine, as latest comeback reminds**\
 `Touched by a tribute in Dallas, Derrick Jones Jr. has struck the balance of being rewarded while staying hungry.`\
 https://nytimes.com/athletic/6012267/2024/12/22/derrick-jones-jr-might-be-the-nbas-wolverine-as-his-latest-comeback-reminds-us/
-
-**Seeking a breakthrough, Tennessee breaks down in humbling CFP loss at Ohio State**\
-`Tennessee looked the part of a good team all season but has yet to ascend to the sport's upper crust.  `\
-https://nytimes.com/athletic/6012542/2024/12/22/tennessee-playoff-loss-ohio-state/
-
-**On ‘S.N.L.,’ Tom Hanks Inducts Martin Short Into the Five-Timers Club**\
-`Short, the host, was accompanied by Paul Rudd, Tina Fey, John Mulaney and others, while the Weekend Update hosts riffed on Luigi Mangione and the drone sightings.`\
-https://nytimes.com/2024/12/22/arts/television/snl-five-timers-club-martin-short.html
 
