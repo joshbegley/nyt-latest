@@ -1,3 +1,11 @@
+**The Briefing: Everton 0 Chelsea 0 - A missed opportunity? How did makeshift defence do?**\
+`Chelsea were held to a 0-0 draw by Everton at Goodison Park on Sunday afternoon`\
+https://nytimes.com/athletic/5993205/2024/12/22/everton-chelsea-result-report-analysis/
+
+**The Briefing: United 0 Bournemouth 3 - problems for Amorim after his biggest setback yet**\
+`Mark Critchley analyses the key talking points from Manchester United's heavy home loss to Bournemouth`\
+https://nytimes.com/athletic/5993220/2024/12/22/manchester-united-bournemouth-analysis/
+
 **How to Cook a Perfect Prime Rib Roast**\
 `Step 1: Get an instant-read thermometer. There’s no point in spending money on prime rib if you’re just going to guess when it’s done.`\
 https://nytimes.com/2024/12/22/dining/prime-rib-roast.html
