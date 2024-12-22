@@ -1,3 +1,11 @@
+**Seeking a breakthrough, Tennessee breaks down in humbling CFP loss at Ohio State**\
+`Tennessee looked the part of a good team all season but has yet to ascend to the sport's upper crust.  `\
+https://nytimes.com/athletic/6012542/2024/12/22/tennessee-playoff-loss-ohio-state/
+
+**On ‘S.N.L.,’ Tom Hanks Inducts Martin Short Into the Five-Timers Club**\
+`Short, the host, was accompanied by Paul Rudd, Tina Fey, John Mulaney and others, while the Weekend Update hosts riffed on Luigi Mangione and the drone sightings.`\
+https://nytimes.com/2024/12/22/arts/television/snl-five-timers-club-martin-short.html
+
 **College Football Playoff blowouts are typical. It doesn't mean the system is broken**\
 `All four first-round games in the first 12-team Playoff were decided by double digits. It's unfortunate — but not a reason to panic.`\
 https://nytimes.com/athletic/6012465/2024/12/22/college-football-playoff-scores-blowouts/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/22/podcasts/the-daily/undocumented-migrant-trump.htm
 **We’ve Been Getting Human Nature Wrong for 100 Years**\
 `It’s a source of today’s intense political animosity.`\
 https://nytimes.com/2024/12/22/opinion/human-nature-polarization-predator.html
-
-**The Connections Companion No. 561**\
-`Scroll down for hints and conversation about the puzzle for Monday, Dec. 23, 2024.`\
-https://nytimes.com/2024/12/22/crosswords/connections-companion-561.html
-
-**Like Kennedy, I Recovered From Heroin Addiction. I Don’t Agree With His Approach.**\
-`America can’t go backward on drug policy.`\
-https://nytimes.com/2024/12/22/opinion/kennedy-addiction.html
 

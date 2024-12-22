@@ -1,3 +1,11 @@
+**Seeking a breakthrough, Tennessee breaks down in humbling CFP loss at Ohio State**\
+`Tennessee looked the part of a good team all season but has yet to ascend to the sport's upper crust.  `\
+https://nytimes.com/athletic/6012542/2024/12/22/tennessee-playoff-loss-ohio-state/
+
+**On ‘S.N.L.,’ Tom Hanks Inducts Martin Short Into the Five-Timers Club**\
+`Short, the host, was accompanied by Paul Rudd, Tina Fey, John Mulaney and others, while the Weekend Update hosts riffed on Luigi Mangione and the drone sightings.`\
+https://nytimes.com/2024/12/22/arts/television/snl-five-timers-club-martin-short.html
+
 **College Football Playoff blowouts are typical. It doesn't mean the system is broken**\
 `All four first-round games in the first 12-team Playoff were decided by double digits. It's unfortunate — but not a reason to panic.`\
 https://nytimes.com/athletic/6012465/2024/12/22/college-football-playoff-scores-blowouts/
