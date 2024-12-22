@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6013173/2024/12/22/jalen-hurts-concussion-injured-e
 https://nytimes.com/athletic/6010295/2024/12/22/blue-jackets-dmitri-voronkov-nhl/
 
 **Tottenham 3 Liverpool 6: Slot's side top of league at Christmas, Gray day, smart Szoboszlai**\
-`Liverpool are top of the Premier League at Christmas after beating Tottenham 6-3. Our writers break down the key talking points.`\
+`Liverpool are top of the Premier League at Christmas after beating Tottenham 6-3. Our writers break down the key talking points`\
 https://nytimes.com/athletic/5993227/2024/12/22/tottenham-liverpool-result-top-of-league-diaz-salah/
 
 **Trump Picks a Former Treasury Official as His Top Economist**\
