@@ -1,3 +1,7 @@
+**Clemson made it to the 12-team Playoff. But after exit at Texas, is that good enough?**\
+`“We’ve gotta improve everywhere if we want to get to the top,” Dabo Swinney said.`\
+https://nytimes.com/athletic/6012106/2024/12/21/clemson-texas-college-football-playoff-dabo-swinney/
+
 **Penguins’ hot streak cooled off, but it's no reason to panic: 3 takeaways vs. Devils**\
 `The 3-0 final score vs. the Devils looks a lot worse than the Penguins actually played.`\
 https://nytimes.com/athletic/6012034/2024/12/21/penguins-devils-takeaways-owen-pickering-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6009926/2024/12/21/canada-sweden-world-juniors-2025
 **Law: Arizona boosts lineup with Josh Naylor, Cleveland perplexes and Yanks go for Gold**\
 `The D-Backs found a replacement for Christian Walker, the Guardians reunite with Carlos Santana and the Yankees add Paul Goldschmidt.`\
 https://nytimes.com/athletic/6011903/2024/12/21/guardians-diamondbacks-trade-josh-naylor-yankees-paul-goldschmidt/
-
-**Police Fatally Shoot Man Who Drove Pickup Into Texas Mall, Injuring 5**\
-`The police said the man was being investigated for possible drunken driving but instead of stopping, he smashed his pickup truck into a J.C. Penney.`\
-https://nytimes.com/2024/12/21/us/killeen-texas-mall-shooting.html
 

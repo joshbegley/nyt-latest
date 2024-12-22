@@ -1,3 +1,7 @@
+**Clemson made it to the 12-team Playoff. But after exit at Texas, is that good enough?**\
+`“We’ve gotta improve everywhere if we want to get to the top,” Dabo Swinney said.`\
+https://nytimes.com/athletic/6012106/2024/12/21/clemson-texas-college-football-playoff-dabo-swinney/
+
 **Penguins’ hot streak cooled off, but it's no reason to panic: 3 takeaways vs. Devils**\
 `The 3-0 final score vs. the Devils looks a lot worse than the Penguins actually played.`\
 https://nytimes.com/athletic/6012034/2024/12/21/penguins-devils-takeaways-owen-pickering-injury/
