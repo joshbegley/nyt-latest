@@ -1,3 +1,11 @@
+**Browns' Myles Garrett reaches 100 career sacks**\
+`Garrett becomes just the fifth player since sacks became an official stat in 1982 to reach 100 in his first eight seasons.`\
+https://nytimes.com/athletic/6013270/2024/12/22/browns-myles-garrett-career-sacks/
+
+**Texans WR Tank Dell returning to Houston after hospital stay with knee injury**\
+`On a deep throw intended for Dell, Houston wide receiver Jared Wayne was in the vicinity of the play and collided with Dell’s knee.`\
+https://nytimes.com/athletic/6011548/2024/12/22/houston-texans-tank-dell-chiefs-knee-injury/
+
 **Aston Villa to recall forward Barry from Stockport loan in January**\
 `Aston Villa will recall forward Louie Barry from his loan spell at Stockport County in January.`\
 https://nytimes.com/athletic/6013226/2024/12/22/aston-villa-transfer-barry-stockport-loan/

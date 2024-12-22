@@ -1,3 +1,11 @@
+**Browns' Myles Garrett reaches 100 career sacks**\
+`Garrett becomes just the fifth player since sacks became an official stat in 1982 to reach 100 in his first eight seasons.`\
+https://nytimes.com/athletic/6013270/2024/12/22/browns-myles-garrett-career-sacks/
+
+**Texans WR Tank Dell returning to Houston after hospital stay with knee injury**\
+`On a deep throw intended for Dell, Houston wide receiver Jared Wayne was in the vicinity of the play and collided with Dell’s knee.`\
+https://nytimes.com/athletic/6011548/2024/12/22/houston-texans-tank-dell-chiefs-knee-injury/
+
 **Aston Villa to recall forward Barry from Stockport loan in January**\
 `Aston Villa will recall forward Louie Barry from his loan spell at Stockport County in January.`\
 https://nytimes.com/athletic/6013226/2024/12/22/aston-villa-transfer-barry-stockport-loan/
@@ -29,14 +37,4 @@ https://nytimes.com/athletic/5993227/2024/12/22/tottenham-liverpool-result-top-o
 **Trump Picks a Former Treasury Official as His Top Economist**\
 `Stephen Miran, who served during Donald Trump’s first term and now works at a hedge fund, has accused the Biden administration of manipulating markets.`\
 https://nytimes.com/2024/12/22/climate/trump-miran-council-of-economic-advisers.html
-
-**Charlie Woods hits hole-in-one to put him, Tiger in lead at PNC**\
-`Charlie Woods, 15, aced the par-3 4th in the second and final round at the parent/child event in Orlando.`\
-https://nytimes.com/athletic/6013088/2024/12/22/charlie-woods-hole-in-one-tiger-pnc-championship-2/
-
-**Submit a question for Stewart Mandel's Mailbag**\
-`<p>Hope everyone thawed out from the first-round games.</p>
-<p>This week&#8217;s Mailbag is running a day early due to the holiday. Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6013072/2024/12/22/submit-a-question-for-stewart-mandels-mailbag-6/
 
