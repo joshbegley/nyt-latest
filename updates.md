@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Craig Berube's line blender does nothing for Toronto**\
+`William Nylander produced two goals, but not many other Maple Leafs can be proud of their performance in a 6-3 loss to the Islanders.`\
+https://nytimes.com/athletic/6011731/2024/12/21/maple-leafs-islanders-grades-analysis/
+
 **JuJu Watkins, USC prevail in nail-biter vs. Paige Bueckers, UConn**\
 `Watkins finished USC's 72-70 victory with a game-high 25 points.`\
 https://nytimes.com/athletic/6011953/2024/12/21/juju-watkins-paige-bueckers-usc-uconn-basketball/

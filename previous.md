@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Craig Berube's line blender does nothing for Toronto**\
+`William Nylander produced two goals, but not many other Maple Leafs can be proud of their performance in a 6-3 loss to the Islanders.`\
+https://nytimes.com/athletic/6011731/2024/12/21/maple-leafs-islanders-grades-analysis/
+
 **JuJu Watkins, USC prevail in nail-biter vs. Paige Bueckers, UConn**\
 `Watkins finished USC's 72-70 victory with a game-high 25 points.`\
 https://nytimes.com/athletic/6011953/2024/12/21/juju-watkins-paige-bueckers-usc-uconn-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011805/2024/12/21/rickey-henderson-oakland-grievin
 **Lamar Jackson, Ravens beat Steelers 34-17 to reach playoffs: Takeaways**\
 `Pittsburgh still holds the tiebreaker in the AFC North via conference record (7-3 to 6-4).`\
 https://nytimes.com/athletic/6011686/2024/12/21/steelers-ravens-score-result-takeaways/
-
-**Trump Appoints ‘The Apprentice’ Producer as Special Envoy to Britain**\
-`Mark Burnett and President-elect Donald J. Trump had a long and successful collaboration that made Mr. Trump a household name.`\
-https://nytimes.com/2024/12/21/us/politics/mark-burnett-special-envoy.html
 
