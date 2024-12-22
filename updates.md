@@ -1,3 +1,7 @@
+**Bill Belichick's son Steve expected to join UNC staff as DC**\
+`The younger Belichick, 37, had a major impact as the defensive coordinator with the Washington Huskies in his one season in Seattle.`\
+https://nytimes.com/athletic/6013816/2024/12/22/bill-steve-belichick-unc-coaching-staff-washington/
+
 **Penn State beats Louisville to win eighth NCAA volleyball championship**\
 `Penn State won its eighth national volleyball championship and first in a decade with a four-set victory against host Louisville on Sunday.`\
 https://nytimes.com/athletic/6013794/2024/12/22/penn-state-louisville-ncaa-volleyball-championship/
