@@ -1,11 +1,3 @@
-**How Trent Alexander-Arnold's passing has changed - and the importance of the letter 'L'**\
-`The arrival of Slot at Anfield has prompted a change in where Alexander-Arnold operates and the types of passes he plays – and how often`\
-https://nytimes.com/athletic/6000949/2024/12/22/trent-alexander-arnold-passing-liverpool-slot/
-
-**Jesus, Saka, and Arteta's attempts to balance Arsenal's attacking threat with defensive stability**\
-`Jesus is in remarkable form, Saka is injured, and amid it all Arteta is trying to add oomph in attack while staying secure at the back`\
-https://nytimes.com/athletic/6011586/2024/12/22/arsenal-attack-defence-balance/
-
 **Constantly floating a pass out to Grealish is a symbol of City's attacking muddle**\
 `Pep Guardiola's team continue to make mistakes defensively - but their failings at the other end are becoming all too glaring...`\
 https://nytimes.com/athletic/6011398/2024/12/22/jack-grealish-manchester-city-attacking-muddle/
@@ -26,7 +18,7 @@ https://nytimes.com/2024/12/22/world/europe/-nutcracker-lithuania-russia-ukraine
 `In the West African nation of Niger, killings by insurgents have surged since the military seized power in a coup, expelled U.S. and European troops and stopped negotiations with Islamist groups.`\
 https://nytimes.com/2024/12/22/world/africa/niger-war-coup.html
 
-**Blue Jackets may have avoided Zach Werenski injury scare, but their OT struggles continue**\
+**Blue Jackets avoid Zach Werenski injury scare, but OT struggles continue**\
 `After a 5-4 loss to the Flyers, the Blue Jackets dropped to a 1-6 record in OT games this season.`\
 https://nytimes.com/athletic/6012032/2024/12/22/blue-jackets-zach-werenski-injury/
 
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6009907/2024/12/22/tottenham-liverpool-preview-odds
 **The Art of the Gift: Jenny Lewis**\
 `The Rilo Kiley and Postal Service singer says that her “philosophy in life is ‘one up from the cheapest.’”`\
 https://nytimes.com/2024/12/22/style/jenny-lewis-musician-gifts-holidays.html
+
+**A Day at the Radioactive Spa**\
+`For a price that starts at about $18 a day, Khoja Obi Garm offers its guests room, board, treatments with radon-infused water and echoes of Tajikistan’s Soviet past.`\
+https://nytimes.com/card/2024/12/22/world/tajikistan-sanatorium
+
+**Man United vs Bournemouth: Storylines, odds, prediction as Red Devils look to climb table**\
+`Manchester United host Bournemouth in a mid-table clash. Will either team take a big step toward climbing the table?`\
+https://nytimes.com/athletic/6009808/2024/12/22/manchester-united-bournemouth-preview-odds-prediction/
 
