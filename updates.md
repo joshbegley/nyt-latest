@@ -1,3 +1,7 @@
+**Jared Goff, Lions improve to 13-2 after beating Bears 34-17: Takeaways**\
+`Dan Campbell's club completed the season sweep of the Bears for the second time in the last three seasons.`\
+https://nytimes.com/athletic/6012844/2024/12/22/lions-bears-score-result-takeaways/
+
 **Joe Burrow dazzles as Bengals earn 24-6 win vs. Browns: Takeaways**\
 `Burrow completed 23 of his 30 pass attempts for 252 yards and three touchdowns in the victory.`\
 https://nytimes.com/athletic/6012849/2024/12/22/bengals-browns-score-result-takeaways/
