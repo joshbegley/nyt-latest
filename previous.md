@@ -1,3 +1,7 @@
+**'This is what basketball excellence was': Why USC's win over UConn is so significant**\
+`For JuJu Watkins and coach Lindsay Gottlieb, Saturday's 72-70 victory further proved USC is among the elite in women's basketball.`\
+https://nytimes.com/athletic/6012236/2024/12/22/usc-uconn-juju-watkins-lindsay-gottlieb-geno-auriemma/
+
 **Tennessee fans' orange invasion of Ohio Stadium: 'Don’t tell us we can’t do that'**\
 `A intersectional clash in the type of environment that only the 12-team Playoff could create set up Vols fans to make their presence known.`\
 https://nytimes.com/athletic/6012217/2024/12/22/tennessee-fans-ohio-state-stadium-cfp/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6003140/2024/12/22/wrexham-goalkeeper-arthur-okonkw
 `Tippett’s overtime winner in the Philadelphia's 5-4 win over Columbus capped off the first 4-point night of his career.
 `\
 https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
-
-**How Morocco became a burgeoning football superpower**\
-`Morocco will co-host the men's World Cup in 2030 and aims to stage the final itself - changes have been afoot in the north African nation`\
-https://nytimes.com/athletic/5989079/2024/12/22/morocco-world-cup-superpower/
 
