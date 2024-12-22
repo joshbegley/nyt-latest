@@ -1,3 +1,7 @@
+**Small Plane Crashes Into Buildings in Brazilian City**\
+`Initial reports suggested it was unlikely that those on the plane survived. At least 14 other people were believed to have been injured on the ground.`\
+https://nytimes.com/2024/12/22/world/americas/plane-crash-brazil.html
+
 **The Briefing: Everton 0 Chelsea 0 - A missed opportunity? How did makeshift defence do?**\
 `Chelsea were held to a 0-0 draw by Everton at Goodison Park on Sunday afternoon`\
 https://nytimes.com/athletic/5993205/2024/12/22/everton-chelsea-result-report-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5999003/2024/12/22/live-qa-week-16-fantasy-football
 **Cade Cunningham says Kevin Durant's praise of his game 'validates my work'**\
 `The NBA superstar called his younger counterpart his "brother" and said Cunningham was worthy of his first All-Star nod.`\
 https://nytimes.com/athletic/6012288/2024/12/22/cade-cunningham-kevin-durant-pistons-suns-nba/
-
-**Letter Calling for Tracking People of Color Circulates in an Oregon County**\
-`The letter, distributed in Lincoln County, Ore., tells community members to report people who may be undocumented, the sheriff’s office said.`\
-https://nytimes.com/2024/12/22/us/oregon-anti-immigrant-letter-investigation.html
 

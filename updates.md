@@ -1,3 +1,7 @@
+**Small Plane Crashes Into Buildings in Brazilian City**\
+`Initial reports suggested it was unlikely that those on the plane survived. At least 14 other people were believed to have been injured on the ground.`\
+https://nytimes.com/2024/12/22/world/americas/plane-crash-brazil.html
+
 **The Briefing: Everton 0 Chelsea 0 - A missed opportunity? How did makeshift defence do?**\
 `Chelsea were held to a 0-0 draw by Everton at Goodison Park on Sunday afternoon`\
 https://nytimes.com/athletic/5993205/2024/12/22/everton-chelsea-result-report-analysis/
