@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets
 `\
 https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
 
+**'Ready to really take off': Owen Tippett's career night sparks another Flyers comeback**\
+`Tippett’s overtime winner in the Philadelphia's 5-4 win over Columbus capped off the first 4-point night of his career.
+`\
+https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
+
 **Tennessee fans' orange invasion of Ohio Stadium: 'Don’t tell us we can’t do that'**\
 `A intersectional clash in the type of environment that only the 12-team Playoff could create set up Vols fans to make their presence known.`\
 https://nytimes.com/athletic/6012217/2024/12/22/tennessee-fans-ohio-state-stadium-cfp/
