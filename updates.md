@@ -1,3 +1,15 @@
+**As Lions fans take over Soldier Field, Bears look to their rivals for head coach help**\
+`The Bears got a good look at offensive coordinator Ben Johnson in another high-scoring Lions win.`\
+https://nytimes.com/athletic/6013777/2024/12/22/bears-lions-coach-search-ben-johnson/
+
+**Race to No. 1: Giants, Raiders continue to dominate race for top draft pick**\
+`The Giants and Raiders now have a combined 88 percent chance to lock up the top pick as the race thins to four teams. `\
+https://nytimes.com/athletic/6013721/2024/12/22/giants-raiders-nfl-draft-top-pick/
+
+**They Made Over $100,000 in Overtime. Now the N.Y.P.D. Is Cracking Down.**\
+`Commissioner Jessica Tisch has reassigned at least 29 officers. Some worked under Jeffrey Maddrey, a high-ranking official who was accused of demanding sex from a subordinate in exchange for overtime.`\
+https://nytimes.com/2024/12/22/nyregion/new-york-police-department-maddrey.html
+
 **Bill Belichick's son Steve expected to join UNC staff as DC**\
 `The younger Belichick, 37, had a major impact as the defensive coordinator with the Washington Huskies in his one season in Seattle.`\
 https://nytimes.com/athletic/6013816/2024/12/22/bill-steve-belichick-unc-coaching-staff-washington/
