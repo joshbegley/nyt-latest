@@ -1,3 +1,7 @@
+**How Texas ran away from Clemson: Horns always had a response in Playoff win**\
+`Texas rushed for nearly 300 yards and averaged 6.1 yards per rush but did lose two offensive linemen to injury. `\
+https://nytimes.com/athletic/6011703/2024/12/21/texas-clemson-score-college-football-playoff/
+
 **What ankle injury? Patrick Mahomes looks just fine as Chiefs improve to 14-1**\
 `Mahomes surprised the Texans and the fans with a couple of early runs, including a 15-yard TD as the Chiefs closed in on the AFC's top seed.`\
 https://nytimes.com/athletic/6011743/2024/12/21/chiefs-texans-patrick-mahomes-ankle-injury/
