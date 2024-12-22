@@ -1,3 +1,15 @@
+**How Morocco became a burgeoning football superpower**\
+`Morocco will co-host the men's World Cup in 2030 and aims to stage the final itself - changes have been afoot in the north African nation`\
+https://nytimes.com/athletic/5989079/2024/12/22/morocco-world-cup-superpower/
+
+**How Trent Alexander-Arnold's passing has changed - and the importance of the letter 'L'**\
+`The arrival of Slot at Anfield has prompted a change in where Alexander-Arnold operates and the types of passes he plays – and how often`\
+https://nytimes.com/athletic/6000949/2024/12/22/trent-alexander-arnold-passing-liverpool-slot/
+
+**Jesus, Saka, and Arteta's attempts to balance Arsenal's attacking threat with defensive stability**\
+`Jesus is in remarkable form, Saka is injured, and amid it all Arteta is trying to add oomph in attack while staying secure at the back`\
+https://nytimes.com/athletic/6011586/2024/12/22/arsenal-attack-defence-balance/
+
 **Blue Jackets avoid Zach Werenski injury scare, but OT struggles continue**\
 `After a 5-4 loss to the Flyers, the Blue Jackets dropped to a 1-6 record in OT games this season.`\
 https://nytimes.com/athletic/6012032/2024/12/22/blue-jackets-zach-werenski-injury/
