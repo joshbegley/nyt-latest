@@ -1,3 +1,11 @@
+**Snyder: Why not Penn State? Nittany Lions are playing with championship belief**\
+`Penn State's first home Playoff game against SMU was a cathartic moment for a program that has hopes of winning even bigger games ahead.`\
+https://nytimes.com/athletic/6011792/2024/12/21/penn-state-smu-playoff-national-championship/
+
+**University of California Resolves Civil Rights Complaints Over Gaza Protests**\
+`Five schools agreed to changes after reports that they failed to protect students from antisemitism and anti-Arab and anti-Muslim discrimination.`\
+https://nytimes.com/2024/12/21/us/uc-antisemitism-anti-arab-discrimination-settlement.html
+
 **How Texas ran away from Clemson: Horns always had a response in Playoff win**\
 `Texas rushed for nearly 300 yards and averaged 6.1 yards per rush but did lose two offensive linemen to injury. `\
 https://nytimes.com/athletic/6011703/2024/12/21/texas-clemson-score-college-football-playoff/

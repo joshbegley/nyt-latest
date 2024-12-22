@@ -1,3 +1,11 @@
+**Snyder: Why not Penn State? Nittany Lions are playing with championship belief**\
+`Penn State's first home Playoff game against SMU was a cathartic moment for a program that has hopes of winning even bigger games ahead.`\
+https://nytimes.com/athletic/6011792/2024/12/21/penn-state-smu-playoff-national-championship/
+
+**University of California Resolves Civil Rights Complaints Over Gaza Protests**\
+`Five schools agreed to changes after reports that they failed to protect students from antisemitism and anti-Arab and anti-Muslim discrimination.`\
+https://nytimes.com/2024/12/21/us/uc-antisemitism-anti-arab-discrimination-settlement.html
+
 **How Texas ran away from Clemson: Horns always had a response in Playoff win**\
 `Texas rushed for nearly 300 yards and averaged 6.1 yards per rush but did lose two offensive linemen to injury. `\
 https://nytimes.com/athletic/6011703/2024/12/21/texas-clemson-score-college-football-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6011382/2024/12/21/rickey-henderson-man-of-steal/
 **Congress Approves Spending Package After Political Drama**\
 `President Biden signed the spending bill early on Saturday, ensuring that there would be no lapse in government funding.`\
 https://nytimes.com/video/us/politics/100000009891658/congress-approves-spending-extension.html
-
-**Germany Mourns After Christmas Market Attack**\
-`Germans visited a memorial in Magdeburg, Germany, for the at least five people killed and more than 200 injured at a Christmas market, after an attacker drove a vehicle into a crowd.`\
-https://nytimes.com/video/world/europe/100000009891809/german-market-magdeburg-memorial.html
-
-**Kepner: Rickey Henderson leaves legacy as one of baseball's greatest showmen**\
-`Certainly, no one outside of the movies loved stealing as much as Rickey Henderson or succeeded so grandly at it.`\
-https://nytimes.com/athletic/6011502/2024/12/21/rickey-henderson-legacy-oakland-athletics-appreciation/
 
