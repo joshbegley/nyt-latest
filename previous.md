@@ -1,40 +1,40 @@
-**Manchester United planning lucrative post-season trip to Malaysia**\
-`Manchester United are planning to go on a post-season trip to Malaysia at the end of the current season for a money-spinning tour that may earn the club $10million (£7.`\
-https://nytimes.com/athletic/6011255/2024/12/22/manchester-united-malaysia-trip/
+**‘Lion King’ Prequel Falls Prey to ‘Sonic’ at the Box Office**\
+`“Mufasa: The Lion King” sputtered in second place at theaters in the United States and Canada. “Sonic the Hedgehog 3” was No. 1.`\
+https://nytimes.com/2024/12/22/business/lion-king-prequel-falls-prey-to-sonic-at-the-box-office.html
 
-**Barcelona 1 Atletico 2: Pedri's wasted wonder goal, youthful errors, what now in title race?**\
-`Barcelona were the better side against Atletico but still lost after Pedri's brilliant opener. Here are the big talking points from the game`\
-https://nytimes.com/athletic/6011922/2024/12/22/barcelona-atletico-pedri-title-race-lewandowski/
+**Why Are So Many Christians So Cruel?**\
+`It’s a simple question with a complicated answer.`\
+https://nytimes.com/2024/12/22/opinion/christmas-jesus-power-humility.html
 
-**Times Company v. Sullivan: The Case That Helped Make Modern Libel Law**\
-`L.B. Sullivan sued The New York Times over a civil rights fund-raising advertisement. The Supreme Court ruled against him in 1964.`\
-https://nytimes.com/2024/12/22/insider/times-company-v-sullivan-the-case-that-helped-make-modern-libel-law.html
+**These Spiritual Democrats Urge Their Party to Take a Leap of Faith**\
+`In a party that has grown less religious, some prominent Democrats say discussing their deepest beliefs can be a way to connect — when it’s authentic.`\
+https://nytimes.com/2024/12/22/us/politics/democrats-religion-shapiro-warnock-buttigieg.html
 
-**Favorite Outfits From Around the World**\
-`Three continents, five countries, six cities and endless inspiration.`\
-https://nytimes.com/2024/12/22/style/best-street-style-2024.html
+**What’s the Secret to Choosing a Good Airplane Movie?**\
+`You’re about to get on a long flight home, and the options seem overwhelming. Here’s the strategy our critic recommends.`\
+https://nytimes.com/2024/12/22/movies/airplane-movies-in-flight-entertainment.html
 
-**Let’s Agree to Disagree**\
-`Some readers have their own opinions about the workplace advice that this columnist doled out over the past six months.`\
-https://nytimes.com/2024/12/22/business/work-advice-reader-feedback.html
+**Refugees Are Bracing for Trump to Cut the Resettlement Program Again**\
+`As Donald J. Trump returns to office, the rebuilt program is under threat. Many vulnerable people approved for resettlement in the U.S. could be stranded abroad.`\
+https://nytimes.com/2024/12/22/us/resettlement-program-immigration-trump.html
 
-**When the Bar Mitzvah Boy Is 90**\
-`In 1947, Ron Eliran’s 13th birthday in the British Mandate for Palestine was canceled when authorities called a curfew. Now, 77 years later, he has officially become a man.`\
-https://nytimes.com/2024/12/22/nyregion/ron-eliran-bar-mitzvah-90.html
+**Lin-Manuel Miranda on ‘Mufasa’ and the Secret to a Disney Hit**\
+`The “Hamilton” creator, who crafted the soundtrack for the new prequel to “The Lion King,” reflects on writing songs that have a universal appeal.`\
+https://nytimes.com/2024/12/22/arts/music/lin-manuel-miranda-mufasa.html
 
-**‘Before We Got to the Park, Kali Mentioned the Northern Lights’**\
-`Regret over missing a rare occurrence, a nostalgic stroll and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/12/22/nyregion/metropolitan-diary.html
+**Howie Long is a trusted colleague, friend and family man. The secret? His humanity**\
+`Attention to detail helped Long become a Pro Football Hall of Famer and a standout broadcaster, as well as a great husband and father.`\
+https://nytimes.com/athletic/5973964/2024/12/22/howie-long-fox-sports-nfl-raiders/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/22/crosswords/spelling-bee-forum.html
+**The New Climate Gold Rush: Scrubbing Carbon From the Sky**\
+`Investors are betting that they can make a dent in global warming, and healthy profits, with companies that alter the atmosphere.`\
+https://nytimes.com/2024/12/22/climate/carbon-capture-global-warming.html
 
-**Canadiens off to a good start and Alexandre Carrier is finally home**\
-`Patrik Laine is scoring and Juraj Slafkovský is playing to his identity and Alexandre Carrier is balancing out the defence.`\
-https://nytimes.com/athletic/6012276/2024/12/22/canadiens-alexandre-carrier-defeat-red-wings/
+**Best Classical Music Albums of 2024**\
+`Listen to selections from recordings of a new John Adams opera, Chopin études by Yunchan Lim, Brahms works by Igor Levit and more.`\
+https://nytimes.com/2024/12/22/arts/music/best-classical-music-albums-recordings-2024.html
 
-**How Canucks lost in overtime to Senators despite Quinn Hughes' magic: 3 takeaways**\
-`The Canucks were flattened pretty thoroughly by the Senators in the first period until Hughes led a rally.`\
-https://nytimes.com/athletic/6012203/2024/12/22/canucks-senators-overtime-quinn-hughes/
+**History awaits in a Penn State-Louisville national championship volleyball match**\
+`For the first time in the 44 years of NCAA women’s volleyball, a female head coach will win the title.`\
+https://nytimes.com/athletic/6011224/2024/12/22/ncaa-volleyball-championship-penn-state-louisville-coaches/
 
