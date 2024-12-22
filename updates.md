@@ -1,3 +1,7 @@
+**Police Fatally Shoot Man Who Drove Pickup Into Texas Mall, Injuring 5**\
+`The police said the man was being investigated for possible drunken driving but instead of stopping, he smashed his pickup truck into a J.C. Penney.`\
+https://nytimes.com/2024/12/21/us/killeen-texas-mall-shooting.html
+
 **Wisconsin QB Mabrey Mettauer intends to enter transfer portal**\
 `Mettauer will have four years of eligibility remaining.`\
 https://nytimes.com/athletic/6011906/2024/12/21/wisconsin-quarterback-mabrey-mettauer-transfer/
