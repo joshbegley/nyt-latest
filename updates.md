@@ -1,3 +1,11 @@
+**‘There’s real trust building’: Lakers believe recent defensive surge raises their ceiling**\
+`The Lakers have played dominant defense during their last five games, helping them rise from 10th to fifth in the Western Conference.`\
+https://nytimes.com/athletic/6012142/2024/12/22/lakers-lebron-james-anthony-davis-defense-nba/
+
+**Derrick Jones Jr. might be NBA's Wolverine, as latest comeback reminds**\
+`Touched by a tribute in Dallas, Derrick Jones Jr. has struck the balance of being rewarded while staying hungry.`\
+https://nytimes.com/athletic/6012267/2024/12/22/derrick-jones-jr-might-be-the-nbas-wolverine-as-his-latest-comeback-reminds-us/
+
 **College Football Playoff 2024 projections: Texas, Ohio State have best title odds**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/22/college-football-playoff-projections-odds/

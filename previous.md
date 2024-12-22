@@ -1,3 +1,11 @@
+**‘There’s real trust building’: Lakers believe recent defensive surge raises their ceiling**\
+`The Lakers have played dominant defense during their last five games, helping them rise from 10th to fifth in the Western Conference.`\
+https://nytimes.com/athletic/6012142/2024/12/22/lakers-lebron-james-anthony-davis-defense-nba/
+
+**Derrick Jones Jr. might be NBA's Wolverine, as latest comeback reminds**\
+`Touched by a tribute in Dallas, Derrick Jones Jr. has struck the balance of being rewarded while staying hungry.`\
+https://nytimes.com/athletic/6012267/2024/12/22/derrick-jones-jr-might-be-the-nbas-wolverine-as-his-latest-comeback-reminds-us/
+
 **Seeking a breakthrough, Tennessee breaks down in humbling CFP loss at Ohio State**\
 `Tennessee looked the part of a good team all season but has yet to ascend to the sport's upper crust.  `\
 https://nytimes.com/athletic/6012542/2024/12/22/tennessee-playoff-loss-ohio-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5701128/2024/12/22/college-football-playoff-project
 **Forest are flying - but must continue to improve to keep European dream alive**\
 `Forest will celebrate Christmas in the Champions League places. A European dream could become a reality in 2025 if they continue to improve`\
 https://nytimes.com/athletic/6012431/2024/12/22/forest-brentford-result-premier-league-aina-elanga/
-
-**Houston we have a problem: Why is Fred VanVleet shooting so poorly?**\
-`It might be time for Rockets coach Ime Udoka to become a little less reliant on Fred VanVleet, who is often tasked with running the offense.`\
-https://nytimes.com/athletic/6003823/2024/12/22/rockets-fred-vanvleet-shooting-woes/
-
-**The Sunday Read: ‘The Alienation of Jaime Cachua’**\
-`His friends and family members in Rome, Ga., voted to support mass deportation. Now he’s scrambling to stay in the country.`\
-https://nytimes.com/2024/12/22/podcasts/the-daily/undocumented-migrant-trump.html
 
