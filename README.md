@@ -26,7 +26,7 @@ https://nytimes.com/2024/12/22/crosswords/connections-companion-561.html
 `America can’t go backward on drug policy.`\
 https://nytimes.com/2024/12/22/opinion/kennedy-addiction.html
 
-**What Nantucket Owes the Whale**\
+**A Picturesque New England Town’s Debt to the Right Whale**\
 `We owe it to the right whale — and to so many other species — to reconstruct what our own history has taken from them.`\
 https://nytimes.com/2024/12/22/opinion/nantucket-whale-extinction.html
 
