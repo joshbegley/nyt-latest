@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
 
+**'Ready to really take off': Owen Tippett's career night sparks another Flyers comeback**\
+`Tippett’s overtime winner in the Philadelphia's 5-4 win over Columbus capped off the first 4-point night of his career.
+`\
+https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
+
 **A 1,000-Year-Old Seed Grows in Israel**\
 `For 14 years, scientists have been growing a tree akin to the Judean balsam — the source of the balm of Gilead — but with no modern counterpart.`\
 https://nytimes.com/2024/12/22/science/archaeology-seeds-gilead-sheba.html
