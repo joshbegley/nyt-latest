@@ -1,3 +1,11 @@
+**China Wants This Deal to Fail. Don’t Let That Happen.**\
+`The Biden administration should approve the proposed $14.9 billion deal with Nippon Steel.`\
+https://nytimes.com/2024/12/22/opinion/us-steel-nippon-biden-trump-cfius.html
+
+**After Oleksandr Usyk beats Tyson Fury again, what's next for heavyweight boxing?**\
+`Usyk's second win over Fury leaves the heavyweight division in an existential state - but new eras always emerge`\
+https://nytimes.com/athletic/6012472/2024/12/22/after-oleksandr-usyk-beats-tyson-fury-again-whats-next-for-heavyweight-boxing/
+
 **Phillies acquire lefty Jesús Luzardo in trade with Marlins: Sources**\
 `With Luzardo, the Phillies could form one of the best — if not the best — rotations in baseball next season.`\
 https://nytimes.com/athletic/6011962/2024/12/22/jesus-luzardo-trade-phillies-marlins/
