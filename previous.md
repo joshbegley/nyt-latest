@@ -1,3 +1,7 @@
+**Canada rallies to beat Sweden in second WJC pre-tournament game**\
+`Canada's Easton Cowan and Calum Ritchie and Sweden's Theo Lindstein and Otto Stenberg had multi-point games.`\
+https://nytimes.com/athletic/6009926/2024/12/21/canada-sweden-world-juniors-2025-pre-tournament/
+
 **Law: Arizona boosts lineup with Josh Naylor, Cleveland perplexes and Yanks go for Gold**\
 `The D-Backs found a replacement for Christian Walker, the Guardians reunite with Carlos Santana and the Yankees add Paul Goldschmidt.`\
 https://nytimes.com/athletic/6011903/2024/12/21/guardians-diamondbacks-trade-josh-naylor-yankees-paul-goldschmidt/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/21/us/uc-antisemitism-anti-arab-discrimination-settl
 **How Texas ran away from Clemson: Horns always had a response in Playoff win**\
 `Texas rushed for nearly 300 yards and averaged 6.1 yards per rush but did lose two offensive linemen to injury. `\
 https://nytimes.com/athletic/6011703/2024/12/21/texas-clemson-score-college-football-playoff/
-
-**What ankle injury? Patrick Mahomes looks just fine as Chiefs improve to 14-1**\
-`Mahomes surprised the Texans and the fans with a couple of early runs, including a 15-yard TD as the Chiefs closed in on the AFC's top seed.`\
-https://nytimes.com/athletic/6011743/2024/12/21/chiefs-texans-patrick-mahomes-ankle-injury/
 
