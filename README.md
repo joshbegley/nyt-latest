@@ -1,3 +1,7 @@
+**Magic suffer another key injury as Moe Wagner tears ACL**\
+`Moe Wagner had emerged as a Sixth Man of the Year candidate before this injury. He joins Paolo Banchero and Franz Wagner on the sideline.`\
+https://nytimes.com/athletic/6013393/2024/12/22/moe-wagner-injury-knee-magic/
+
 **Trump Previews Second Term in Sprawling Speech to Conservative Conference**\
 `President-elect Donald J. Trump repeated false claims about immigration and the border, slammed diversity initiatives and discussed the Panama Canal in the 90-minute address.`\
 https://nytimes.com/2024/12/22/us/politics/trump-speech-turning-point-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5982298/2024/12/22/joao-fonseca-tennis-player/
 **Jesús Luzardo bolsters Phillies rotation, Marlins add high-ceiling prospects: Law**\
 `The Phillies gave up talent but it is a trade every contender should make given Luzardo helps them now and the prospects are years away.`\
 https://nytimes.com/athletic/6012979/2024/12/22/jesus-luzardo-phillies-marlins-trade-analysis/
-
-**Eagles' Jalen Hurts ruled out with concussion vs. Commanders**\
-`Kenny Pickett entered the game and connected with A.J. Brown for a first quarter touchdown.  `\
-https://nytimes.com/athletic/6013173/2024/12/22/jalen-hurts-concussion-injured-eagles-commanders/
 
