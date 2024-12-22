@@ -1,3 +1,35 @@
+**Memes, Jokes and Cats: South Koreans Use Parody for Political Protest**\
+`As South Koreans took to the streets this month demanding the ousting of their president, some found an unexpected outlet to express their fury.`\
+https://nytimes.com/interactive/2024/12/22/world/asia/south-korea-protest-memes.html
+
+**A Cultural Casualty of the War in Ukraine: ‘The Nutcracker’**\
+`Lithuania’s national opera house had stopped showing Tchaikovsky’s 1892 masterpiece in solidarity with Ukraine over the war with Russia. Then a new minister expressed fondness for the Russian composer, igniting a furor.`\
+https://nytimes.com/2024/12/22/world/europe/-nutcracker-lithuania-russia-ukraine.html
+
+**After Military Took Power, Terrorist Attacks Only Got Worse**\
+`In the West African nation of Niger, killings by insurgents have surged since the military seized power in a coup, expelled U.S. and European troops and stopped negotiations with Islamist groups.`\
+https://nytimes.com/2024/12/22/world/africa/niger-war-coup.html
+
+**Blue Jackets may have avoided Zach Werenski injury scare, but their OT struggles continue**\
+`After a 5-4 loss to the Flyers, the Blue Jackets dropped to a 1-6 record in games settled in OT this season.`\
+https://nytimes.com/athletic/6012032/2024/12/22/blue-jackets-zach-werenski-injury/
+
+**Tottenham vs Liverpool preview, odds, prediction: Reds aim to hold on to top spot**\
+`Liverpool are top of the league, but have drawn the last two league games. Tottenham have shown they can score against elite teams.`\
+https://nytimes.com/athletic/6009907/2024/12/22/tottenham-liverpool-preview-odds-prediction/
+
+**The Art of the Gift: Jenny Lewis**\
+`The Rilo Kiley and Postal Service singer says that her “philosophy in life is ‘one up from the cheapest.’”`\
+https://nytimes.com/2024/12/22/style/jenny-lewis-musician-gifts-holidays.html
+
+**A Day at the Radioactive Spa**\
+`For a price that starts at about $18 a day, Khoja Obi Garm offers its guests room, board, treatments with radon-infused water and echoes of Tajikistan’s Soviet past.`\
+https://nytimes.com/card/2024/12/22/world/tajikistan-sanatorium
+
+**Man United vs Bournemouth: Storylines, odds, prediction as Red Devils look to climb table**\
+`Manchester United host Bournemouth in a mid-table clash. Will either team take a big step toward climbing the table?`\
+https://nytimes.com/athletic/6009808/2024/12/22/manchester-united-bournemouth-preview-odds-prediction/
+
 **Marlon Humphrey, Ravens finally dictate a different ending vs. chief rival Steelers**\
 `This time Baltimore was the team to make the game-changing plays needed to pull out a massive victory and tie Pittsburgh atop the AFC North.`\
 https://nytimes.com/athletic/6012043/2024/12/21/ravens-marlon-humphrey-win-steelers/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6012043/2024/12/21/ravens-marlon-humphrey-win-steel
 **How Charlie Coyle's position change opens a new door in the Trent Frederic decision**\
 `Coyle playing right wing has given Frederic an opportunity show what he has to offer — for any team that may be watching.`\
 https://nytimes.com/athletic/6012059/2024/12/21/bruins-charlie-coyle-trent-frederic-trade/
-
-**Ohio State routs Tennessee to complete CFP home-team sweep**\
-`Two programs very familiar with the time-honored tradition of Pasadena will reconvene at the Rose Bowl.`\
-https://nytimes.com/athletic/6012137/2024/12/21/ohio-state-tennessee-college-football-playoff/
-
-**Clemson made it to the 12-team Playoff. But after exit at Texas, is that good enough?**\
-`“We’ve gotta improve everywhere if we want to get to the top,” Dabo Swinney said.`\
-https://nytimes.com/athletic/6012106/2024/12/21/clemson-texas-college-football-playoff-dabo-swinney/
-
-**Penguins’ hot streak cooled off, but it's no reason to panic: 3 takeaways vs. Devils**\
-`The 3-0 final score vs. the Devils looks a lot worse than the Penguins actually played.`\
-https://nytimes.com/athletic/6012034/2024/12/21/penguins-devils-takeaways-owen-pickering-injury/
-
-**'I put that game on me': Russell Wilson's miscues prove pivotal in Steelers loss**\
-`Despite some dazzling plays, Wilson's two turnovers doomed the Steelers against the Ravens, showing how thin their margin for error can be.`\
-https://nytimes.com/athletic/6012052/2024/12/21/russell-wilson-steelers-loss-ravens/
-
-**Skidding Wild go 'off script' as losing streak reaches 4 games: 3 takeaways vs. Jets**\
-`The Wild got shut out for the first time this season as they were swept by the Jets for the second year in a row.`\
-https://nytimes.com/athletic/6011874/2024/12/21/wild-jets-takeaways-losing-streak/
-
-**Maple Leafs report cards: Craig Berube's line blender does nothing for Toronto**\
-`William Nylander produced two goals, but not many other Maple Leafs can be proud of their performance in a 6-3 loss to the Islanders.`\
-https://nytimes.com/athletic/6011731/2024/12/21/maple-leafs-islanders-grades-analysis/
-
-**JuJu Watkins, USC prevail in nail-biter vs. Paige Bueckers, UConn**\
-`Watkins finished USC's 72-70 victory with a game-high 25 points.`\
-https://nytimes.com/athletic/6011953/2024/12/21/juju-watkins-paige-bueckers-usc-uconn-basketball/
-
-**Quotation of the Day: Traditions Overlap as Christmas Meets Hanukkah**\
-`Quotation of the Day for Sunday, December 22, 2024.`\
-https://nytimes.com/2024/12/21/pageoneplus/quotation-of-the-day-traditions-overlap-as-christmas-meets-hanukkah.html
 
