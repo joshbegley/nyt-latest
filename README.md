@@ -1,3 +1,15 @@
+**As Lions fans take over Soldier Field, Bears look to their rivals for head coach help**\
+`The Bears got a good look at offensive coordinator Ben Johnson in another high-scoring Lions win.`\
+https://nytimes.com/athletic/6013777/2024/12/22/bears-lions-coach-search-ben-johnson/
+
+**Race to No. 1: Giants, Raiders continue to dominate race for top draft pick**\
+`The Giants and Raiders now have a combined 88 percent chance to lock up the top pick as the race thins to four teams. `\
+https://nytimes.com/athletic/6013721/2024/12/22/giants-raiders-nfl-draft-top-pick/
+
+**They Made Over $100,000 in Overtime. Now the N.Y.P.D. Is Cracking Down.**\
+`Commissioner Jessica Tisch has reassigned at least 29 officers. Some worked under Jeffrey Maddrey, a high-ranking official who was accused of demanding sex from a subordinate in exchange for overtime.`\
+https://nytimes.com/2024/12/22/nyregion/new-york-police-department-maddrey.html
+
 **Bill Belichick's son Steve expected to join UNC staff as DC**\
 `The younger Belichick, 37, had a major impact as the defensive coordinator with the Washington Huskies in his one season in Seattle.`\
 https://nytimes.com/athletic/6013816/2024/12/22/bill-steve-belichick-unc-coaching-staff-washington/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6012837/2024/12/22/cardinals-panthers-score-result-
 **NFL Week 16 takeaways: Did Jayden Daniels just clinch Rookie of the Year? How dangerous are the Rams?**\
 `Plus, how did Michael Penix Jr. fare in his first career start?`\
 https://nytimes.com/athletic/6013638/2024/12/22/nfl-week-16-scores-takeaways-jayden-daniels-commanders-eagles/
-
-**Surfers Return for Rare Big Wave Contest in Hawaii**\
-`The Eddie Aikau Big Wave Invitational is held only when conditions are just right. The 45 invited surfers had less than 48 hours to arrive on the North Shore of Oahu, Hawaii, on Sunday.`\
-https://nytimes.com/2024/12/22/us/eddie-aikau-surf-contest.html
-
-**Jonathan Taylor piles up 3 TDs in Colts' 38-30 win vs. Titans: Takeaways**\
-`Taylor rushed for 218 yards and three touchdowns in the Colts' 38-30 win.`\
-https://nytimes.com/athletic/6012858/2024/12/22/titans-colts-score-result-takeaways/
-
-**'We're a completely different team': Rangers start fast and fizzle in yet another home loss**\
-`The Rangers' 3-1 loss to the Hurricanes hit too many of the same low notes we've seen during a 4-12-0 slide that now has them back at .500.`\
-https://nytimes.com/athletic/6013419/2024/12/22/rangers-hurricanes-nhl-loss/
 
