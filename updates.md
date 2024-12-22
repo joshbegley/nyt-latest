@@ -1,3 +1,7 @@
+**Trump Appoints ‘The Apprentice’ Producer as Special Envoy to Britain**\
+`Mark Burnett and President-elect Donald J. Trump had a long and successful collaboration that made Mr. Trump a household name.`\
+https://nytimes.com/2024/12/21/us/politics/mark-burnett-special-envoy.html
+
 **Snyder: Why not Penn State? Nittany Lions are playing with championship belief**\
 `Penn State's first home Playoff game against SMU was a cathartic moment for a program that has hopes of winning even bigger games ahead.`\
 https://nytimes.com/athletic/6011792/2024/12/21/penn-state-smu-playoff-national-championship/
