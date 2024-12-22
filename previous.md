@@ -18,8 +18,8 @@ https://nytimes.com/2024/12/22/world/europe/-nutcracker-lithuania-russia-ukraine
 `In the West African nation of Niger, killings by insurgents have surged since the military seized power in a coup, expelled U.S. and European troops and stopped negotiations with Islamist groups.`\
 https://nytimes.com/2024/12/22/world/africa/niger-war-coup.html
 
-**Blue Jackets may have avoided Zach Werenski injury scare, but their OT struggles continue**\
-`After a 5-4 loss to the Flyers, the Blue Jackets dropped to a 1-6 record in games settled in OT this season.`\
+**Blue Jackets avoid Zach Werenski injury scare, but OT struggles continue**\
+`After a 5-4 loss to the Flyers, the Blue Jackets dropped to a 1-6 record in OT games this season.`\
 https://nytimes.com/athletic/6012032/2024/12/22/blue-jackets-zach-werenski-injury/
 
 **Tottenham vs Liverpool preview, odds, prediction: Reds aim to hold on to top spot**\

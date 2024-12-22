@@ -1,3 +1,7 @@
+**Blue Jackets avoid Zach Werenski injury scare, but OT struggles continue**\
+`After a 5-4 loss to the Flyers, the Blue Jackets dropped to a 1-6 record in OT games this season.`\
+https://nytimes.com/athletic/6012032/2024/12/22/blue-jackets-zach-werenski-injury/
+
 **Constantly floating a pass out to Grealish is a symbol of City's attacking muddle**\
 `Pep Guardiola's team continue to make mistakes defensively - but their failings at the other end are becoming all too glaring...`\
 https://nytimes.com/athletic/6011398/2024/12/22/jack-grealish-manchester-city-attacking-muddle/
