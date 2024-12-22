@@ -33,7 +33,7 @@ https://nytimes.com/athletic/6013072/2024/12/22/submit-a-question-for-stewart-ma
 https://nytimes.com/2024/12/22/nyregion/woman-subway-fire-dead.html
 
 **Small Plane Crashes Into Buildings in Brazilian City**\
-`The 10 on board were not believed to have survived, while at least 14 other people were injured on the ground.`\
+`The 10 on board were not believed to have survived, while at least 17 other people were injured on the ground.`\
 https://nytimes.com/2024/12/22/world/americas/plane-crash-brazil.html
 
 **The Briefing: Everton 0 Chelsea 0 - A missed opportunity? How did makeshift defence do?**\
