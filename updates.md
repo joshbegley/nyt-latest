@@ -1,3 +1,7 @@
+**Rangers trade first baseman Nathaniel Lowe to Rangers: Source**\
+`Lowe will step in as the Nationals' primary first baseman after Washington declined Joey Gallo's option.`\
+https://nytimes.com/athletic/6013767/2024/12/22/rangers-trade-nathaniel-lowe-nationals/
+
 **Short Snooze**\
 `Glenn Cook makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/12/22/crosswords/daily-puzzle-2024-12-23.html
