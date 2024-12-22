@@ -1,3 +1,7 @@
+**Canadiens off to a good start and Alexandre Carrier is finally home**\
+`Patrik Laine is scoring and Juraj Slafkovský is playing to his identity and Alexandre Carrier is balancing out the defence.`\
+https://nytimes.com/athletic/6012276/2024/12/22/canadiens-alexandre-carrier-defeat-red-wings/
+
 **How Canucks lost in overtime to Senators despite Quinn Hughes' magic: 3 takeaways**\
 `The Canucks were flattened pretty thoroughly by the Senators in the first period until Hughes led a rally.`\
 https://nytimes.com/athletic/6012203/2024/12/22/canucks-senators-overtime-quinn-hughes/

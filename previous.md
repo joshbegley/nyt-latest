@@ -1,3 +1,7 @@
+**Canadiens off to a good start and Alexandre Carrier is finally home**\
+`Patrik Laine is scoring and Juraj Slafkovský is playing to his identity and Alexandre Carrier is balancing out the defence.`\
+https://nytimes.com/athletic/6012276/2024/12/22/canadiens-alexandre-carrier-defeat-red-wings/
+
 **How Canucks lost in overtime to Senators despite Quinn Hughes' magic: 3 takeaways**\
 `The Canucks were flattened pretty thoroughly by the Senators in the first period until Hughes led a rally.`\
 https://nytimes.com/athletic/6012203/2024/12/22/canucks-senators-overtime-quinn-hughes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/22/us/us-fighter-jet-red-sea.html
 **Texas, a complete but imperfect team, looks poised to make deep Playoff run**\
 `Texas, with a favorable draw and versatility, has as good a chance as anyone at hoisting the national championship trophy.`\
 https://nytimes.com/athletic/6012193/2024/12/22/texas-clemson-college-football-playoff-run/
-
-**Unai Emery has a blueprint on how to beat Manchester City**\
-`Villa deservedly beat champions City at home for a second season running. It was a win that started - and was decided - in midfield`\
-https://nytimes.com/athletic/6009324/2024/12/22/aston-villa-unai-emery-blueprint-manchester-city/
 
