@@ -1,3 +1,11 @@
+**Marlon Humphrey, Ravens finally dictate a different ending vs. chief rival Steelers**\
+`This time Baltimore was the team to make the game-changing plays needed to pull out a massive victory and tie Pittsburgh atop the AFC North.`\
+https://nytimes.com/athletic/6012043/2024/12/21/ravens-marlon-humphrey-win-steelers/
+
+**How Charlie Coyle's position change opens a new door in the Trent Frederic decision**\
+`Coyle playing right wing has given Frederic an opportunity show what he has to offer — for any team that may be watching.`\
+https://nytimes.com/athletic/6012059/2024/12/21/bruins-charlie-coyle-trent-frederic-trade/
+
 **Ohio State routs Tennessee to complete CFP home-team sweep**\
 `Two programs very familiar with the time-honored tradition of Pasadena will reconvene at the Rose Bowl.`\
 https://nytimes.com/athletic/6012137/2024/12/21/ohio-state-tennessee-college-football-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6011953/2024/12/21/juju-watkins-paige-bueckers-usc-
 **Quotation of the Day: Traditions Overlap as Christmas Meets Hanukkah**\
 `Quotation of the Day for Sunday, December 22, 2024.`\
 https://nytimes.com/2024/12/21/pageoneplus/quotation-of-the-day-traditions-overlap-as-christmas-meets-hanukkah.html
-
-**'Simply the best.' Around baseball, teammates and foes laud the late Rickey Henderson**\
-`“Well known as a great player, less known that he was a great and popular teammate as well,” said longtime manager Tony La Russa.`\
-https://nytimes.com/athletic/6011939/2024/12/21/rickey-henderson-teammates-testimonials/
-
-**Canada rallies to beat Sweden in second WJC pre-tournament game**\
-`Canada's Easton Cowan and Calum Ritchie and Sweden's Theo Lindstein and Otto Stenberg had multi-point games.`\
-https://nytimes.com/athletic/6009926/2024/12/21/canada-sweden-world-juniors-2025-pre-tournament/
 
