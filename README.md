@@ -1,3 +1,7 @@
+**Jared Goff, Lions improve to 13-2 after beating Bears 34-17: Takeaways**\
+`Dan Campbell's club completed the season sweep of the Bears for the second time in the last three seasons.`\
+https://nytimes.com/athletic/6012844/2024/12/22/lions-bears-score-result-takeaways/
+
 **Joe Burrow dazzles as Bengals earn 24-6 win vs. Browns: Takeaways**\
 `Burrow completed 23 of his 30 pass attempts for 252 yards and three touchdowns in the victory.`\
 https://nytimes.com/athletic/6012849/2024/12/22/bengals-browns-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012320/2024/12/22/aston-villa-manchester-city-tiel
 **Browns' Myles Garrett reaches 100 career sacks**\
 `Garrett becomes just the fifth player since sacks became an official stat in 1982 to reach 100 in his first eight seasons.`\
 https://nytimes.com/athletic/6013270/2024/12/22/browns-myles-garrett-career-sacks/
-
-**Texans WR Tank Dell returning to Houston after hospital stay with knee injury**\
-`On a deep throw intended for Dell, Houston wide receiver Jared Wayne was in the vicinity of the play and collided with Dell’s knee.`\
-https://nytimes.com/athletic/6011548/2024/12/22/houston-texans-tank-dell-chiefs-knee-injury/
 
