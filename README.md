@@ -1,3 +1,7 @@
+**Penn State beats Louisville to win eighth NCAA volleyball championship**\
+`Penn State won its eighth national volleyball championship and first in a decade with a four-set victory against host Louisville on Sunday.`\
+https://nytimes.com/athletic/6013794/2024/12/22/penn-state-louisville-ncaa-volleyball-championship/
+
 **Rangers trade first baseman Nathaniel Lowe to Nationals: Source**\
 `Lowe will step in as the Nationals' primary first baseman after Washington declined Joey Gallo's option.`\
 https://nytimes.com/athletic/6013767/2024/12/22/rangers-trade-nathaniel-lowe-nationals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6013419/2024/12/22/rangers-hurricanes-nhl-loss/
 **Rams top Jets 19-9 as Aaron Rodgers cools off: Key takeaways**\
 `The Rams (9-6) will close their year with key home games against the Arizona Cardinals and the Seattle Seahawks in Weeks 17 and 18.`\
 https://nytimes.com/athletic/6012863/2024/12/22/rams-jets-score-result-takeaways/
-
-**Jared Goff, Lions improve to 13-2 after beating Bears 34-17: Takeaways**\
-`Dan Campbell's club completed the season sweep of the Bears for the second time in the last three seasons.`\
-https://nytimes.com/athletic/6012844/2024/12/22/lions-bears-score-result-takeaways/
 
