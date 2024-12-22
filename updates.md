@@ -1,3 +1,7 @@
+**Lamar Jackson, Ravens beat Steelers 34-17 to reach playoffs: Takeaways**\
+`Pittsburgh still holds the tiebreaker in the AFC North via conference record (7-3 to 6-4).`\
+https://nytimes.com/athletic/6011686/2024/12/21/steelers-ravens-score-result-takeaways/
+
 **Trump Appoints ‘The Apprentice’ Producer as Special Envoy to Britain**\
 `Mark Burnett and President-elect Donald J. Trump had a long and successful collaboration that made Mr. Trump a household name.`\
 https://nytimes.com/2024/12/21/us/politics/mark-burnett-special-envoy.html
