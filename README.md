@@ -1,3 +1,7 @@
+**Aston Villa to recall forward Barry from Stockport loan in January**\
+`Aston Villa will recall forward Louie Barry from his loan spell at Stockport County in January.`\
+https://nytimes.com/athletic/6013226/2024/12/22/aston-villa-transfer-barry-stockport-loan/
+
 **Joao Fonseca wins ATP Next Gen Finals after searing week of groundstrokes**\
 `He is the lowest-ranked champion in tournament history.`\
 https://nytimes.com/athletic/6013182/2024/12/22/joao-fonseca-next-gen-finals-champion/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6013088/2024/12/22/charlie-woods-hole-in-one-tiger-
 <p>This week&#8217;s Mailbag is running a day early due to the holiday. Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6013072/2024/12/22/submit-a-question-for-stewart-mandels-mailbag-6/
-
-**Woman Dies After Being Set on Fire in Subway Car, Police Say**\
-`The police said “criminality is suspected” in the death, which they said appeared to be a homicide. It happened aboard a subway car at the Coney Island-Stillwell Avenue station on Sunday morning.`\
-https://nytimes.com/2024/12/22/nyregion/woman-subway-fire-dead.html
 
