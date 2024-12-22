@@ -1,3 +1,7 @@
+**Magic suffer another key injury as Moe Wagner tears ACL**\
+`Moe Wagner had emerged as a Sixth Man of the Year candidate before this injury. He joins Paolo Banchero and Franz Wagner on the sideline.`\
+https://nytimes.com/athletic/6013393/2024/12/22/moe-wagner-injury-knee-magic/
+
 **Trump Previews Second Term in Sprawling Speech to Conservative Conference**\
 `President-elect Donald J. Trump repeated false claims about immigration and the border, slammed diversity initiatives and discussed the Panama Canal in the 90-minute address.`\
 https://nytimes.com/2024/12/22/us/politics/trump-speech-turning-point-arizona.html
