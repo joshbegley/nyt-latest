@@ -1,3 +1,7 @@
+**Panthers dash Cardinals' playoff hopes with 36-30 overtime win: Takeaways**\
+`Hubbard finished one yard short of his career high against the New York Giants in Munich — which was the Panthers’ last win before Sunday.`\
+https://nytimes.com/athletic/6012837/2024/12/22/cardinals-panthers-score-result-takeaways/
+
 **NFL Week 16 takeaways: Did Jayden Daniels just clinch Rookie of the Year? How dangerous are the Rams?**\
 `Plus, how did Michael Penix Jr. fare in his first career start?`\
 https://nytimes.com/athletic/6013638/2024/12/22/nfl-week-16-scores-takeaways-jayden-daniels-commanders-eagles/
