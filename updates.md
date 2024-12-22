@@ -1,3 +1,7 @@
+**Law: Arizona boosts lineup with Josh Naylor, Cleveland perplexes, and the Yanks go for Gold**\
+`The D-Backs found a replacement for Christian Walker, the Guardians reunite with Carlos Santana and the Yankees add Paul Goldschmidt.`\
+https://nytimes.com/athletic/6011903/2024/12/21/guardians-diamondbacks-trade-josh-naylor-yankees-paul-goldschmidt/
+
 **Police Fatally Shoot Man Who Drove Pickup Into Texas Mall, Injuring 5**\
 `The police said the man was being investigated for possible drunken driving but instead of stopping, he smashed his pickup truck into a J.C. Penney.`\
 https://nytimes.com/2024/12/21/us/killeen-texas-mall-shooting.html

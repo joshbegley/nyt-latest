@@ -1,3 +1,7 @@
+**Law: Arizona boosts lineup with Josh Naylor, Cleveland perplexes, and the Yanks go for Gold**\
+`The D-Backs found a replacement for Christian Walker, the Guardians reunite with Carlos Santana and the Yankees add Paul Goldschmidt.`\
+https://nytimes.com/athletic/6011903/2024/12/21/guardians-diamondbacks-trade-josh-naylor-yankees-paul-goldschmidt/
+
 **Police Fatally Shoot Man Who Drove Pickup Into Texas Mall, Injuring 5**\
 `The police said the man was being investigated for possible drunken driving but instead of stopping, he smashed his pickup truck into a J.C. Penney.`\
 https://nytimes.com/2024/12/21/us/killeen-texas-mall-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011703/2024/12/21/texas-clemson-score-college-foot
 **What ankle injury? Patrick Mahomes looks just fine as Chiefs improve to 14-1**\
 `Mahomes surprised the Texans and the fans with a couple of early runs, including a 15-yard TD as the Chiefs closed in on the AFC's top seed.`\
 https://nytimes.com/athletic/6011743/2024/12/21/chiefs-texans-patrick-mahomes-ankle-injury/
-
-**John Seidler, Peter's brother, to take over as Padres control person**\
-`The news of the appointment comes after the Padres concluded one of the best seasons in franchise history.`\
-https://nytimes.com/athletic/5978687/2024/12/21/john-seidler-padres-control-peter/
 
