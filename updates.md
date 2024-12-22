@@ -1,3 +1,7 @@
+**Small Plane Crashes Into Buildings in Brazilian City**\
+`The 10 on board were not believed to have survived, while at least 14 other people were injured on the ground.`\
+https://nytimes.com/2024/12/22/world/americas/plane-crash-brazil.html
+
 **Charlie Woods hits hole-in-one to put him, Tiger in lead at PNC**\
 `Charlie Woods, 15, aced the par-3 4th in the second and final round at the parent/child event in Orlando.`\
 https://nytimes.com/athletic/6013088/2024/12/22/charlie-woods-hole-in-one-tiger-pnc-championship-2/
