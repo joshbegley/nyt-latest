@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5982298/2024/12/22/joao-fonseca-tennis-player/
 `The Phillies gave up talent but it is a trade every contender should make given Luzardo helps them now and the prospects are years away.`\
 https://nytimes.com/athletic/6012979/2024/12/22/jesus-luzardo-phillies-marlins-trade-analysis/
 
-**Eagles' Jalen Hurts exits in first quarter, evaluated for concussion**\
-`Kenny Pickett entered the game and finished off the drive with a touchdown to A.J. Brown. `\
+**Eagles' Jalen Hurts ruled out with concussion vs. Commanders**\
+`Kenny Pickett entered the game and connected with A.J. Brown for a first quarter touchdown.  `\
 https://nytimes.com/athletic/6013173/2024/12/22/jalen-hurts-concussion-injured-eagles-commanders/
 
 **Blue Jackets Sunday Gathering: Dmitri Voronkov's impressive skill, missing menace**\
@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6013173/2024/12/22/jalen-hurts-concussion-injured-e
 https://nytimes.com/athletic/6010295/2024/12/22/blue-jackets-dmitri-voronkov-nhl/
 
 **Tottenham 3 Liverpool 6: Slot's side top of league at Christmas, Gray day, smart Szoboszlai**\
-`Liverpool are top of the Premier League at Christmas after beating Tottenham 6-3. Our writers break down the key talking points.`\
+`Liverpool are top of the Premier League at Christmas after beating Tottenham 6-3. Our writers break down the key talking points`\
 https://nytimes.com/athletic/5993227/2024/12/22/tottenham-liverpool-result-top-of-league-diaz-salah/
 
 **Trump Picks a Former Treasury Official as His Top Economist**\

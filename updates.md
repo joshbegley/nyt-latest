@@ -1,3 +1,11 @@
+**Eagles' Jalen Hurts ruled out with concussion vs. Commanders**\
+`Kenny Pickett entered the game and connected with A.J. Brown for a first quarter touchdown.  `\
+https://nytimes.com/athletic/6013173/2024/12/22/jalen-hurts-concussion-injured-eagles-commanders/
+
+**Tottenham 3 Liverpool 6: Slot's side top of league at Christmas, Gray day, smart Szoboszlai**\
+`Liverpool are top of the Premier League at Christmas after beating Tottenham 6-3. Our writers break down the key talking points`\
+https://nytimes.com/athletic/5993227/2024/12/22/tottenham-liverpool-result-top-of-league-diaz-salah/
+
 **Joao Fonseca wins ATP Next Gen Finals after searing week of groundstrokes**\
 `He is the lowest-ranked champion in tournament history.`\
 https://nytimes.com/athletic/6013182/2024/12/22/joao-fonseca-next-gen-finals-champion/
