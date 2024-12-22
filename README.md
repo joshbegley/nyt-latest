@@ -1,3 +1,7 @@
+**How Canucks lost in overtime to Senators despite Quinn Hughes' magic: 3 takeaways**\
+`The Canucks were flattened pretty thoroughly by the Senators in the first period until Hughes led a rally.`\
+https://nytimes.com/athletic/6012203/2024/12/22/canucks-senators-overtime-quinn-hughes/
+
 **'I have not seen that ever': Comeback win shows what the Orlando Magic are about**\
 `Down by 25 points and crushed by an injury to Moe Wagner, Orlando stormed back with one of the greatest comebacks in team history.`\
 https://nytimes.com/athletic/6012263/2024/12/22/orlando-magic-comeback-win-miami-heat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012193/2024/12/22/texas-clemson-college-football-p
 **Unai Emery has a blueprint on how to beat Manchester City**\
 `Villa deservedly beat champions City at home for a second season running. It was a win that started - and was decided - in midfield`\
 https://nytimes.com/athletic/6009324/2024/12/22/aston-villa-unai-emery-blueprint-manchester-city/
-
-**Wrexham can rely on their trio of goalkeepers - but Okonkwo's return will be welcomed**\
-`Wrexham conceded late at Bristol Rovers to miss out on going joint-top but have had positive news around their injured No 1 goalkeeper`\
-https://nytimes.com/athletic/6003140/2024/12/22/wrexham-goalkeeper-arthur-okonkwo-analysis/
 
