@@ -1,3 +1,7 @@
+**Cowboys Today: Predictions vs. Bucs, front-office reaction to Micah Parsons' remarks**\
+`Micah Parsons' comments about his next contract drew the Cowboys' attention. Can Rico Dowdle top 100 yards for the fourth straight week?`\
+https://nytimes.com/athletic/6012064/2024/12/22/cowboys-today-predictions-bucs-micah-parsons/
+
 **The Differences Between Running a Business and Running the Government**\
 `Readers discuss a guest essay arguing that running government like a business would be disastrous. Also: Liberalism; a tech court; aging gracefully.`\
 https://nytimes.com/2024/12/22/opinion/running-business-and-government.html
