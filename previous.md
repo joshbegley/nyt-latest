@@ -1,3 +1,7 @@
+**Tennessee fans' orange invasion of Ohio Stadium: 'Don’t tell us we can’t do that'**\
+`A intersectional clash in the type of environment that only the 12-team Playoff could create set up Vols fans to make their presence known.`\
+https://nytimes.com/athletic/6012217/2024/12/22/tennessee-fans-ohio-state-stadium-cfp/
+
 **The CFP quarterfinals are set. Here's a reason to be excited for each matchup**\
 `A history lesson and first look at the next round of the College Football Playoff.`\
 https://nytimes.com/athletic/6012200/2024/12/22/college-football-playoff-quarterfinals-preview-analysis/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets
 **How Morocco became a burgeoning football superpower**\
 `Morocco will co-host the men's World Cup in 2030 and aims to stage the final itself - changes have been afoot in the north African nation`\
 https://nytimes.com/athletic/5989079/2024/12/22/morocco-world-cup-superpower/
-
-**How Trent Alexander-Arnold's passing has changed - and the importance of the letter 'L'**\
-`The arrival of Slot at Anfield has prompted a change in where Alexander-Arnold operates and the types of passes he plays – and how often`\
-https://nytimes.com/athletic/6000949/2024/12/22/trent-alexander-arnold-passing-liverpool-slot/
 
