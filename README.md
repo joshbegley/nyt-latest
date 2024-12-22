@@ -1,3 +1,11 @@
+**Jesús Luzardo bolster's Phillies rotation, Marlins add high-ceiling prospects: Law**\
+`The Phillies gave up talent but it is a trade every contender should make given Luzardo helps them now and the prospects are years away.`\
+https://nytimes.com/athletic/6012979/2024/12/22/jesus-luzardo-phillies-marlins-trade-analysis/
+
+**Eagles' Jalen Hurts exits in first quarter, evaluated for concussion**\
+`Kenny Pickett entered the game and finished off the drive with a touchdown to A.J. Brown. `\
+https://nytimes.com/athletic/6013173/2024/12/22/jalen-hurts-concussion-injured-eagles-commanders/
+
 **Blue Jackets Sunday Gathering: Dmitri Voronkov's impressive skill, missing menace**\
 `Voronkov has emerged as an impressive goal scorer for the Blue Jackets, but his lack of combativeness has coach Dean Evason surprised.`\
 https://nytimes.com/athletic/6010295/2024/12/22/blue-jackets-dmitri-voronkov-nhl/
@@ -31,12 +39,4 @@ https://nytimes.com/2024/12/22/world/americas/plane-crash-brazil.html
 **The Briefing: Everton 0 Chelsea 0 - A missed opportunity? How did makeshift defence do?**\
 `Chelsea were held to a 0-0 draw by Everton at Goodison Park on Sunday afternoon`\
 https://nytimes.com/athletic/5993205/2024/12/22/everton-chelsea-result-report-analysis/
-
-**How to Cook a Perfect Prime Rib Roast**\
-`Step 1: Get an instant-read thermometer. There’s no point in spending money on prime rib if you’re just going to guess when it’s done.`\
-https://nytimes.com/2024/12/22/dining/prime-rib-roast.html
-
-**The Briefing: United 0 Bournemouth 3 - problems for Amorim after his biggest setback yet**\
-`Mark Critchley analyses the key talking points from Manchester United's heavy home loss to Bournemouth`\
-https://nytimes.com/athletic/5993220/2024/12/22/manchester-united-bournemouth-analysis/
 
