@@ -68,6 +68,11 @@ https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets
 `\
 https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
 
+**'Ready to really take off': Owen Tippett's career night sparks another Flyers comeback**\
+`Tippett’s overtime winner in the Philadelphia's 5-4 win over Columbus capped off the first 4-point night of his career.
+`\
+https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
+
 **Texas, a complete but imperfect team, looks poised to make deep Playoff run**\
 `Texas, with a favorable draw and versatility, has as good a chance as anyone at hoisting the national championship trophy.`\
 https://nytimes.com/athletic/6012193/2024/12/22/texas-clemson-college-football-playoff-run/
