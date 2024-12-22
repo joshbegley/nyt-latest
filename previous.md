@@ -1,3 +1,27 @@
+**Times Company v. Sullivan: The Case That Helped Make Modern Libel Law**\
+`L.B. Sullivan sued The New York Times over a civil rights fund-raising advertisement. The Supreme Court ruled against him in 1964.`\
+https://nytimes.com/2024/12/22/insider/times-company-v-sullivan-the-case-that-helped-make-modern-libel-law.html
+
+**Favorite Outfits From Around the World**\
+`Three continents, five countries, six cities and endless inspiration.`\
+https://nytimes.com/2024/12/22/style/best-street-style-2024.html
+
+**Let’s Agree to Disagree**\
+`Some readers have their own opinions about the workplace advice that this columnist doled out over the past six months.`\
+https://nytimes.com/2024/12/22/business/work-advice-reader-feedback.html
+
+**When the Bar Mitzvah Boy Is 90**\
+`In 1947, Ron Eliran’s 13th birthday in the British Mandate for Palestine was canceled when authorities called a curfew. Now, 77 years later, he has officially become a man.`\
+https://nytimes.com/2024/12/22/nyregion/ron-eliran-bar-mitzvah-90.html
+
+**‘Before We Got to the Park, Kali Mentioned the Northern Lights’**\
+`Regret over missing a rare occurrence, a nostalgic stroll and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/12/22/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/22/crosswords/spelling-bee-forum.html
+
 **Canadiens off to a good start and Alexandre Carrier is finally home**\
 `Patrik Laine is scoring and Juraj Slafkovský is playing to his identity and Alexandre Carrier is balancing out the defence.`\
 https://nytimes.com/athletic/6012276/2024/12/22/canadiens-alexandre-carrier-defeat-red-wings/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6012263/2024/12/22/orlando-magic-comeback-win-miami
 **'This is what basketball excellence was': Why USC's win over UConn is so significant**\
 `For JuJu Watkins and coach Lindsay Gottlieb, Saturday's 72-70 victory further proved USC is among the elite in women's basketball.`\
 https://nytimes.com/athletic/6012236/2024/12/22/usc-uconn-juju-watkins-lindsay-gottlieb-geno-auriemma/
-
-**Tennessee fans' orange invasion of Ohio Stadium: 'Don’t tell us we can’t do that'**\
-`A intersectional clash in the type of environment that only the 12-team Playoff could create set up Vols fans to make their presence known.`\
-https://nytimes.com/athletic/6012217/2024/12/22/tennessee-fans-ohio-state-stadium-cfp/
-
-**The CFP quarterfinals are set. Here's a reason to be excited for each matchup**\
-`A history lesson and first look at the next round of the College Football Playoff.`\
-https://nytimes.com/athletic/6012200/2024/12/22/college-football-playoff-quarterfinals-preview-analysis/
-
-**A 1,000-Year-Old Seed Grows in Israel**\
-`For 14 years, scientists have been growing a tree akin to the Judean balsam — the source of the balm of Gilead — but with no modern counterpart.`\
-https://nytimes.com/2024/12/22/science/archaeology-seeds-gilead-sheba.html
-
-**Europe Had a Terrible Year. It’s Probably Going to Get Worse.**\
-`The continent’s parlous economy and ascendant far right foretell a grim future.`\
-https://nytimes.com/2024/12/22/opinion/europe-germany-france-trump.html
-
-**U.S. Fighter Jet Shot Down Over Red Sea by Apparent Friendly Fire**\
-`A U.S. Navy ship mistakenly fired at the F/A-18, whose two pilots were safely recovered, the military said.`\
-https://nytimes.com/2024/12/22/us/us-fighter-jet-red-sea.html
-
-**Texas, a complete but imperfect team, looks poised to make deep Playoff run**\
-`Texas, with a favorable draw and versatility, has as good a chance as anyone at hoisting the national championship trophy.`\
-https://nytimes.com/athletic/6012193/2024/12/22/texas-clemson-college-football-playoff-run/
 
