@@ -1,3 +1,8 @@
+**'Ready to really take off': Owen Tippett's career night sparks Flyers in another comeback**\
+`Tippett’s overtime winner in the Flyers’ 5-4 win over the Blue Jackets capped off the first four-point night of his career.
+`\
+https://nytimes.com/athletic/6012146/2024/12/22/flyers-owen-tippett-blue-jackets/
+
 **How Morocco became a burgeoning football superpower**\
 `Morocco will co-host the men's World Cup in 2030 and aims to stage the final itself - changes have been afoot in the north African nation`\
 https://nytimes.com/athletic/5989079/2024/12/22/morocco-world-cup-superpower/
@@ -33,8 +38,4 @@ https://nytimes.com/2024/12/22/world/africa/niger-war-coup.html
 **Blue Jackets avoid Zach Werenski injury scare, but OT struggles continue**\
 `After a 5-4 loss to the Flyers, the Blue Jackets dropped to a 1-6 record in OT games this season.`\
 https://nytimes.com/athletic/6012032/2024/12/22/blue-jackets-zach-werenski-injury/
-
-**Tottenham vs Liverpool preview, odds, prediction: Reds aim to hold on to top spot**\
-`Liverpool are top of the league, but have drawn the last two league games. Tottenham have shown they can score against elite teams.`\
-https://nytimes.com/athletic/6009907/2024/12/22/tottenham-liverpool-preview-odds-prediction/
 
