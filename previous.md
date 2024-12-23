@@ -1,9 +1,13 @@
+**Raiders, Mark Davis celebrate first victory in three months — draft position be damned**\
+`The Raiders moved down to sixth in the updated draft order, but they'll happily take Sunday's 19-14 home victory over the Jaguars.`\
+https://nytimes.com/athletic/6014402/2024/12/22/raiders-win-mark-davis-jaguars/
+
 **Raptors' poor late-game offence presents many questions, including a big one in June**\
 `The Raptors are a league-worst 4-12 in games that have been within a 5-point margin in the final five minutes or overtime.`\
 https://nytimes.com/athletic/6014242/2024/12/22/raptors-bad-clutch-offence-nba/
 
 **Late lapses vs. Vikings leave Seahawks in a familiar place, with season on the brink**\
-`Geno Smith led dazzling drives but also threw back-breaking INTs, and Mike Macdonald's defense faltered late as Seattle's hopes grew dim.`\
+`Geno Smith led dazzling drives but also threw backbreaking INTs, and Mike Macdonald's defense faltered late as Seattle's hopes grew dim.`\
 https://nytimes.com/athletic/6014479/2024/12/22/seahawks-loss-geno-smith-playoff-chances-vikings/
 
 **‘Dune: Prophecy’ Season 1 Finale Recap: Building the Perfect Beast**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6014481/2024/12/22/florida-dallas-wilson-oregon-fli
 **Despite team's support, Jerod Mayo's seat feels a bit warmer after another Patriots loss**\
 `The Patriots are 3-12 and have lost five straight. With Mike Vrabel available, has Mayo done enough to earn a second season?`\
 https://nytimes.com/athletic/6014333/2024/12/22/patriots-loss-jerod-mayo-job-bills/
-
-**Dolphins keep slim playoff chances after 29-17 win over 49ers: Takeaways**\
-`The Dolphins (7-8) led most of the way, including throughout the second half, on the way to their fifth win in the past seven games.`\
-https://nytimes.com/athletic/6012903/2024/12/22/dolphins-49ers-score-result-takeaways/
 
