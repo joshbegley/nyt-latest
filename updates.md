@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Canucks drama, Stars dropping and holiday wishes for all**\
+`The NHL offers 13 games tonight before a short holiday break: just enough time to spend a few extra days making merry or wallowing in gloom.`\
+https://nytimes.com/athletic/6013710/2024/12/23/nhl-weekend-rankings-canucks-stars-holidays/
+
 **The team who won too much**\
 `There is a risk that the club's recent dominance starts to make Sweden’s model look less like a strength, and more like a weakness`\
 https://nytimes.com/athletic/6007229/2024/12/23/malmo-sweden-football-ownership-prize-money/
