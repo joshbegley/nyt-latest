@@ -1,3 +1,15 @@
+**A Canceled Vote in Romania Hands Russia a Propaganda Coup**\
+`Many in the West have applauded the annulling of the first round of the presidential election, won by a Moscow-friendly candidate, but even his critics say it raises troubling questions about Romanian democracy.`\
+https://nytimes.com/2024/12/23/world/europe/romania-election-russia.html
+
+**Valencia sack head coach Ruben Baraja**\
+`Valencia have sacked head coach Ruben Baraja after winning just two of their opening 17 La Liga matches this season.`\
+https://nytimes.com/athletic/6015435/2024/12/23/ruben-baraja-sacked-valencia-manager/
+
+**House Ethics Panel Draft Report Accuses Gaetz of ‘Regularly’ Paying for Sex and Using Drugs**\
+`The Florida Republican resigned from the House and withdrew as Donald J. Trump’s attorney general nominee in the weeks before the report’s expected release.`\
+https://nytimes.com/2024/12/23/us/politics/gaetz-house-ethics-report.html
+
 **Alessandro Nesta sacked as Monza head coach**\
 `Alessandro Nesta has been sacked as head coach of Monza after winning just one of his 17 Serie A matches in charge.`\
 https://nytimes.com/athletic/6015380/2024/12/23/alessandro-nesta-sacked-monza-manager/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6012427/2024/12/23/bukayo-saka-arsenal-injury-updat
 **Chargers, nearing a playoff berth, showcased their ability to respond vs. Broncos**\
 `The Chargers didn't get the results around the league they needed to clinch a playoff spot Sunday but can do so with a win in New England.`\
 https://nytimes.com/athletic/6013105/2024/12/23/chargers-playoffs-defense-responds-broncos/
-
-**Is it time for the Sharks to give the net to Yaroslav Askarov?**\
-`There's value in playing other goalies in San Jose, but Askarov is showing he's ready for more.`\
-https://nytimes.com/athletic/6014043/2024/12/23/yaroslav-askarov-sharks-goalie/
-
-**Proper width, overloads and early crosses - how Slot's tactics hit Tottenham for six**\
-`Liverpool are adaptable, flexible and looking unstoppable. Arne Slot is keeping opposition managers guessing `\
-https://nytimes.com/athletic/6013590/2024/12/23/arne-slot-liverpool-tactics-tottenham/
-
-**Joc Pederson, Texas Rangers agree to deal: Sources**\
-`Pederson, 32, parlayed his career year with the Diamondbacks into a deal with the Rangers. `\
-https://nytimes.com/athletic/5964701/2024/12/23/joc-pederson-contract-texas-rangers-mlb-free-agency/
 
