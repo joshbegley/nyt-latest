@@ -1,3 +1,15 @@
+**The team who won too much**\
+`There is a risk that the club's recent dominance starts to make Sweden’s model look less like a strength, and more like a weakness`\
+https://nytimes.com/athletic/6007229/2024/12/23/malmo-sweden-football-ownership-prize-money/
+
+**Broncos' leaky pass defense could jeopardize playoff hopes as Joe Burrow looms**\
+`The Broncos could soon benefit from the return of cornerback Riley Moss. "Hopefully, it can happen this weekend," Sean Payton said.`\
+https://nytimes.com/athletic/6009717/2024/12/23/broncos-pass-defense-bengals/
+
+**'I don't find who I am or what I do very impressive': Jack Draper finds his purpose in pain**\
+`The British No. 1 is the heir to a tennis-mad nation's hopes — and to the grandparents who taught him how to look outside himself.`\
+https://nytimes.com/athletic/6006022/2024/12/23/jack-draper-tennis-player-interview/
+
 **NBA Rewind: Will De'Aaron Fox demand a trade?**\
 `Is the clock ticking on De'Aaron Fox remaining in Sacramento? NBA Rewind answers!`\
 https://nytimes.com/athletic/6005956/2024/12/23/nba-rewind-deaaron-fox-kings-christmas-victor-wembanyama-spurs/
