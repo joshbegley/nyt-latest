@@ -1,3 +1,7 @@
+**Braga allow free entry for final home game of 2024**\
+`Portuguese top division club Braga will allow free entry to the general public for their final home league game of 2024.`\
+https://nytimes.com/athletic/6015723/2024/12/23/braga-free-tickets-fans/
+
 **Hollinger's Week That Was: Festivus grievance on NBA popularity discourse**\
 `With all the other adjustments the league has made in recent years, now we're worried about ... shot distance? Really?`\
 https://nytimes.com/athletic/6015169/2024/12/23/nba-ratings-down-popularity-rule-change/

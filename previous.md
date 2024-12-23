@@ -1,3 +1,7 @@
+**Braga allow free entry for final home game of 2024**\
+`Portuguese top division club Braga will allow free entry to the general public for their final home league game of 2024.`\
+https://nytimes.com/athletic/6015723/2024/12/23/braga-free-tickets-fans/
+
 **Hollinger's Week That Was: Festivus grievance on NBA popularity discourse**\
 `With all the other adjustments the league has made in recent years, now we're worried about ... shot distance? Really?`\
 https://nytimes.com/athletic/6015169/2024/12/23/nba-ratings-down-popularity-rule-change/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/world/africa/mozambique-disputed-election-results
 **Christmas Market Attack Stirs Political Bickering in Germany**\
 `After an assailant driving an S.U.V. killed five people, calls for solidarity have quickly given way to criticism by rival lawmakers, ahead of snap elections set for February.`\
 https://nytimes.com/2024/12/23/world/europe/germany-christmas-market-attack-politics.html
-
-**Nordstrom Family Strikes Deal to Buyout Namesake Chain**\
-`The business will be acquired by members of the family and El Puerto de Liverpool, a Mexican real estate and department store company that has owned a stake in Nordstrom since 2022.`\
-https://nytimes.com/2024/12/23/business/nordstrom-private-company-founding-family.html
 
