@@ -1,3 +1,7 @@
+**Christmas Market Attack Stirs Political Sniping in Germany**\
+`After an assailant driving an S.U.V. killed five people, calls for solidarity have quickly given way to criticism by rival lawmakers, ahead of snap elections set for February.`\
+https://nytimes.com/2024/12/23/world/europe/germany-christmas-market-attack-politics.html
+
 **Nordstrom Family Strikes Deal to Buyout Namesake Chain**\
 `The business will be acquired by members of the family and El Puerto de Liverpool, a Mexican real estate and department store company that has owned a stake in Nordstrom since 2022.`\
 https://nytimes.com/2024/12/23/business/nordstrom-private-company-founding-family.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/nyregion/luigi-mangione-arraignment.html
 **Walker Buehler to sign 1-year, $21M deal with Red Sox: Sources**\
 `The worst season of Buehler's career, a miserable return from a second Tommy John surgery, was wiped away with his October heroics.`\
 https://nytimes.com/athletic/5940994/2024/12/23/walker-buehler-contract-red-sox-mlb-free-agency/
-
-**The Bounce: Is it time to trade De'Aaron Fox? Plus, your NBA Stock Report!**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6015248/2024/12/23/deaaron-fox-kings-nba-christmas-anthony-edwards-timberwolves-the-bounce/
 
