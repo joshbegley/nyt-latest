@@ -1,3 +1,11 @@
+**Nordstrom Family Strikes Deal to Buyout Namesake Chain**\
+`The business will be acquired by members of the family and El Puerto de Liverpool, a Mexican real estate and department store company that has owned a stake in Nordstrom since 2022.`\
+https://nytimes.com/2024/12/23/business/nordstrom-private-company-founding-family.html
+
+**Alfa Anderson, Singer With Chic, Dies at 78**\
+`She sang the famous refrain “Le freak, c’est chic,” on one of disco’s biggest hits and was a sought-after vocalist for many prominent artists.`\
+https://nytimes.com/2024/12/23/arts/music/alfa-anderson-dead.html
+
 **The Windup: Rickey, a HOFer even without the steals**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6015633/2024/12/23/rickey-henderson-stats-the-windup/
