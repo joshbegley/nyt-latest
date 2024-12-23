@@ -1,3 +1,7 @@
+**Notre Dame final thoughts: What we learned from Indiana — and what it means for Georgia**\
+`An easy win over Indiana is over, and what's coming against Georgia is the most consequential of Marcus Freeman’s tenure at Notre Dame.`\
+https://nytimes.com/athletic/6015786/2024/12/23/notre-dame-indiana-playoff-georgia/
+
 **Read the Ethics Committee’s Report on Matt Gaetz**\
 `A report by the House Ethics Committee accused former Representative Matt Gaetz, Republican of Florida, of regularly paying for sex and using illegal drugs, and of having sexual relations with a 17-year-old girl in 2017.`\
 https://nytimes.com/interactive/2024/12/23/us/ethics-report-on-gaetz.html
