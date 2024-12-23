@@ -1,3 +1,7 @@
+**A Perpetual Champagne, Built One Year at a Time**\
+`A new method of making nonvintage Champagnes is taking hold. Producers see it as a hedge against climate change while improving overall quality.`\
+https://nytimes.com/2024/12/23/dining/drinks/champagne-perpetual-reserve-method.html
+
 **D.C. Police Officer Convicted Over Leaking Information to Proud Boys’ Leader**\
 `A federal judge found Lt. Shane Lamond guilty of lying to investigators and undermining police work by sharing tips with Enrique Tarrio, the group’s leader.`\
 https://nytimes.com/2024/12/23/us/politics/dc-police-enrique-tarrio-proud-boys.html
