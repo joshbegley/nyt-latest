@@ -1,3 +1,11 @@
+**Betting for (by) dummies: Will our NFL hot streak translate to college bowl picks?**\
+`Jon Greenberg and Zac Jackson stayed hot on NFL picks last week. Can they get some holiday momentum in college, too?`\
+https://nytimes.com/athletic/6016525/2024/12/23/betting-for-by-dummies-christmas-week-bowl-games/
+
+**Oregon vs. Ohio State: How to watch, picks, odds for CFP quarterfinal at Rose Bowl**\
+`Oregon beat Ohio State in the regular season, but now the Buckeyes are favored for the rematch from the Rose Bowl.`\
+https://nytimes.com/athletic/6016684/2024/12/23/oregon-ohio-state-how-to-watch-picks-odds-college-football-playoff/
+
 **Ethics Report Accused Gaetz of ‘Regularly’ Paying for Sex**\
 `Also, Biden commuted nearly every federal death sentence. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/12/23/briefing/ethics-report-matt-gaetz-white-christmas-forecast.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/23/us/politics/trump-greenland-panama-canal.html
 **Jets QB Aaron Rodgers: Without leaks 'it will be a little easier to win'**\
 `Rodgers comments come a day after Jets' latest loss drops New York to 4-11 in a season that started with Super Bowl expectations. `\
 https://nytimes.com/athletic/6016386/2024/12/23/aaron-rodgers-jets-leaks-comments-pat-mcafee/
-
-**Tuesday Briefing: The Matt Gaetz Report is Out**\
-`Plus, celebrating “Chrismukkah.”`\
-https://nytimes.com/2024/12/23/briefing/gaetz-report-germany-automakers.html
-
-**A Culture of Corruption and Abuse in the Biggest Police Department**\
-`It’s been abetted by Mayor Eric Adams.`\
-https://nytimes.com/live/2024/12/17/opinion/thepoint/nypd-corruption-adams
 
