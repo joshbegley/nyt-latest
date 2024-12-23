@@ -1,3 +1,15 @@
+**The team who won too much**\
+`There is a risk that the club's recent dominance starts to make Sweden’s model look less like a strength, and more like a weakness`\
+https://nytimes.com/athletic/6007229/2024/12/23/malmo-sweden-football-ownership-prize-money/
+
+**Broncos' leaky pass defense could jeopardize playoff hopes as Joe Burrow looms**\
+`The Broncos could soon benefit from the return of cornerback Riley Moss. "Hopefully, it can happen this weekend," Sean Payton said.`\
+https://nytimes.com/athletic/6009717/2024/12/23/broncos-pass-defense-bengals/
+
+**'I don't find who I am or what I do very impressive': Jack Draper finds his purpose in pain**\
+`The British No. 1 is the heir to a tennis-mad nation's hopes — and to the grandparents who taught him how to look outside himself.`\
+https://nytimes.com/athletic/6006022/2024/12/23/jack-draper-tennis-player-interview/
+
 **NBA Rewind: Will De'Aaron Fox demand a trade?**\
 `Is the clock ticking on De'Aaron Fox remaining in Sacramento? NBA Rewind answers!`\
 https://nytimes.com/athletic/6005956/2024/12/23/nba-rewind-deaaron-fox-kings-christmas-victor-wembanyama-spurs/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/23/world/middleeast/syria-arab-relations.html
 **Transfer portal takeaways: How Bill Belichick, UNC are faring, where top players are landing**\
 `We dive into the biggest takeaways from the first two weeks of portal action.`\
 https://nytimes.com/athletic/6014440/2024/12/23/college-football-transfer-portal-bill-belichick-winners-losers/
-
-**Six Cowboys who delivered Sunday and are or should be part of the team's future**\
-`From Micah Parsons and DaRon Bland to Cooper Rush and Jourdan Lewis, Dallas should do everything it can to keep these beyond 2024, 2025.`\
-https://nytimes.com/athletic/6014900/2024/12/23/cowboys-future-micah-parsons-daron-bland-jourdan-lewis/
-
-**Sam Darnold produces signature moment with game-winning TD pass against Seahawks**\
-`Darnold's late go-ahead touchdown pass to Justin Jefferson was another special play in a special season for the QB and this Vikings team.`\
-https://nytimes.com/athletic/6014709/2024/12/23/sam-darnold-vikings-win-signature-seahawks/
-
-**The Steelers have lost 3 of 5 and are slumping on offense. Here's why I'm not too worried**\
-`The recent downturn coincides with George Pickens' absence and untimely turnovers from Russell Wilson, both of which might be temporary.`\
-https://nytimes.com/athletic/6014934/2024/12/23/steelers-russell-wilson-george-pickens/
 
