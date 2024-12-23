@@ -1,3 +1,23 @@
+**If You Want to Destroy My Sweater, Hold This Thread as I Walk Away**\
+`When something that should be innocuous unravels your world.`\
+https://nytimes.com/2024/12/22/podcasts/if-you-want-to-destroy-my-sweater-this-american-life-nyt-audio.html
+
+**‘All In’ Review: A Slight Affair for John Mulaney-Led Comedy About Love**\
+`A talented cast has fun in Simon Rich’s Broadway debut, but the minimally staged show doesn’t quite justify the hefty price of tickets.`\
+https://nytimes.com/2024/12/22/theater/all-in-review.html
+
+**The Giants are officially the worst team in football. But we already knew that**\
+`The Giants’ 100th season was supposed to be a celebration of the franchise’s history. Instead, they’re suffering through a season from hell.`\
+https://nytimes.com/athletic/6013969/2024/12/22/giants-loss-brian-daboll-joe-schoen-top-pick/
+
+**'Nearly flawless' Michael Penix Jr. helps re-energize Falcons' playoff push**\
+`Penix finished 18-for-27 for 202 yards, no touchdowns and a deflected interception. Two pick sixes by the defense helped a lot.`\
+https://nytimes.com/athletic/6013867/2024/12/22/falcons-michael-penix-first-start-giants/
+
+**Vikings keep pace in NFC North with 27-24 win over Seahawks: Takeaways**\
+`A late 39-yard touchdown from Sam Darnold to Justin Jefferson lifted the Vikings to their eighth straight win.`\
+https://nytimes.com/athletic/6012879/2024/12/22/vikings-seahawks-score-result-takeaways/
+
 **Short Snooze**\
 `Glenn Cook makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/12/22/crosswords/daily-puzzle-2024-12-23.html
