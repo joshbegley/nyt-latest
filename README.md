@@ -1,3 +1,7 @@
+**D.C. Police Officer Convicted Over Leaking Information to Proud Boys’ Leader**\
+`A federal judge found Lt. Shane Lamond guilty of lying to investigators and undermining police work by sharing tips with Enrique Tarrio, the group’s leader.`\
+https://nytimes.com/2024/12/23/us/politics/dc-police-enrique-tarrio-proud-boys.html
+
 **Texans WR Tank Dell out for year with dislocated knee, torn ACL**\
 `Houston's receiving corps get thinner with both Dell and Stefon Diggs lost for the year. `\
 https://nytimes.com/athletic/6016214/2024/12/23/houston-texans-tank-dell-dislocated-knee/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/t-magazine/favorite-food-stories.html
 **What I’m hearing about the Nuggets, Pelicans and the top-heavy 2026 draft**\
 `Is help on the way for the Joker? Could Brandon Ingram’s time in New Orleans soon be up? `\
 https://nytimes.com/athletic/6010912/2024/12/23/nuggets-pelicans-draft-gleague-showcase-nba/
-
-**Which teams can win the NBA title? History says these teams are on the short list**\
-`Can the first 25 games of the NBA season predict success? History says the answer is yes. These teams are on the short list to win it all.`\
-https://nytimes.com/athletic/6014557/2024/12/23/nba-championship-finals-contenders-odds-predictions-after-25-games/
 
