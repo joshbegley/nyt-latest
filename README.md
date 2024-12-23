@@ -1,3 +1,23 @@
+**If You Want to Destroy My Sweater, Hold This Thread as I Walk Away**\
+`When something that should be innocuous unravels your world.`\
+https://nytimes.com/2024/12/22/podcasts/if-you-want-to-destroy-my-sweater-this-american-life-nyt-audio.html
+
+**‘All In’ Review: A Slight Affair for John Mulaney-Led Comedy About Love**\
+`A talented cast has fun in Simon Rich’s Broadway debut, but the minimally staged show doesn’t quite justify the hefty price of tickets.`\
+https://nytimes.com/2024/12/22/theater/all-in-review.html
+
+**The Giants are officially the worst team in football. But we already knew that**\
+`The Giants’ 100th season was supposed to be a celebration of the franchise’s history. Instead, they’re suffering through a season from hell.`\
+https://nytimes.com/athletic/6013969/2024/12/22/giants-loss-brian-daboll-joe-schoen-top-pick/
+
+**'Nearly flawless' Michael Penix Jr. helps re-energize Falcons' playoff push**\
+`Penix finished 18-for-27 for 202 yards, no touchdowns and a deflected interception. Two pick sixes by the defense helped a lot.`\
+https://nytimes.com/athletic/6013867/2024/12/22/falcons-michael-penix-first-start-giants/
+
+**Vikings keep pace in NFC North with 27-24 win over Seahawks: Takeaways**\
+`A late 39-yard touchdown from Sam Darnold to Justin Jefferson lifted the Vikings to their eighth straight win.`\
+https://nytimes.com/athletic/6012879/2024/12/22/vikings-seahawks-score-result-takeaways/
+
 **Alex Caruso, Thunder agree to 4-year, $81 million contract extension**\
 `The 30-year-old, known as one of the NBA's best perimeter defenders, was acquired in a trade with Chicago last summer.`\
 https://nytimes.com/athletic/6013389/2024/12/22/alex-caruso-contract-thunder-extension/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6013777/2024/12/22/bears-lions-coach-search-ben-joh
 **Race to No. 1: Giants, Raiders continue to dominate race for top draft pick**\
 `The Giants and Raiders now have a combined 88 percent chance to lock up the top pick as the race thins to four teams. `\
 https://nytimes.com/athletic/6013721/2024/12/22/giants-raiders-nfl-draft-top-pick/
-
-**They Made Over $100,000 in Overtime. Now the N.Y.P.D. Is Cracking Down.**\
-`Commissioner Jessica Tisch has reassigned at least 29 officers. Some worked under Jeffrey Maddrey, a high-ranking official who was accused of demanding sex from a subordinate in exchange for overtime.`\
-https://nytimes.com/2024/12/22/nyregion/new-york-police-department-maddrey.html
-
-**Bill Belichick's son Steve expected to join UNC staff as DC**\
-`The younger Belichick, 37, had a major impact as the defensive coordinator with the Washington Huskies in his one season in Seattle.`\
-https://nytimes.com/athletic/6013816/2024/12/22/bill-steve-belichick-unc-coaching-staff-washington/
-
-**Penn State beats Louisville to win eighth NCAA volleyball championship**\
-`Penn State won its eighth national volleyball championship and first in a decade with a four-set victory against host Louisville on Sunday.`\
-https://nytimes.com/athletic/6013794/2024/12/22/penn-state-louisville-ncaa-volleyball-championship/
-
-**Rangers trade first baseman Nathaniel Lowe to Nationals: Source**\
-`Lowe will step in as the Nationals' primary first baseman after Washington declined Joey Gallo's option.`\
-https://nytimes.com/athletic/6013767/2024/12/22/rangers-trade-nathaniel-lowe-nationals/
-
-**Short Snooze**\
-`Glenn Cook makes his New York Times Crossword debut.`\
-https://nytimes.com/2024/12/22/crosswords/daily-puzzle-2024-12-23.html
 

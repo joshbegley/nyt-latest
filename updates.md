@@ -1,3 +1,7 @@
+**Short Snooze**\
+`Glenn Cook makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/12/22/crosswords/daily-puzzle-2024-12-23.html
+
 **Vikings keep pace in NFC North with 27-24 win over Seahawks: Takeaways**\
 `A late 39-yard touchdown from Sam Darnold to Justin Jefferson lifted the Vikings to their eighth straight win.`\
 https://nytimes.com/athletic/6012879/2024/12/22/vikings-seahawks-score-result-takeaways/
