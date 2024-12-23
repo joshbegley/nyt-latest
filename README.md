@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: Festivus grievance on NBA popularity discourse**\
+`With all the other adjustments the league has made in recent years, now we're worried about ... shot distance? Really?`\
+https://nytimes.com/athletic/6015169/2024/12/23/nba-ratings-down-popularity-rule-change/
+
 **A Pro-Trump Group’s Risky Bet on Infrequent Voters Seems to Have Paid Off**\
 `Turning Point Action devoted much of its attention to less reliable voters. New data in Arizona showing a sizable Republican edge among them suggests that the strategy succeeded.`\
 https://nytimes.com/2024/12/23/us/politics/trump-turning-point-arizona-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/world/europe/germany-christmas-market-attack-poli
 **Nordstrom Family Strikes Deal to Buyout Namesake Chain**\
 `The business will be acquired by members of the family and El Puerto de Liverpool, a Mexican real estate and department store company that has owned a stake in Nordstrom since 2022.`\
 https://nytimes.com/2024/12/23/business/nordstrom-private-company-founding-family.html
-
-**The Windup: Rickey, a HOFer even without the steals**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6015633/2024/12/23/rickey-henderson-stats-the-windup/
 
