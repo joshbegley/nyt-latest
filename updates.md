@@ -1,3 +1,11 @@
+**Alessandro Nesta sacked as Monza head coach**\
+`Alessandro Nesta has been sacked as head coach of Monza after winning just one of his 17 Serie A matches in charge.`\
+https://nytimes.com/athletic/6015380/2024/12/23/alessandro-nesta-sacked-monza-manager/
+
+**Palace trigger Mateta contract extension**\
+`Crystal Palace have triggered an extension clause in Jean-Philippe Mateta’s contract which will see his deal now run for a further year until June 2027.`\
+https://nytimes.com/athletic/6015297/2024/12/23/crystal-palace-mateta-contract/
+
 **Deal Makers See a Rebound in 2025 as Trump Returns to Power**\
 `It was another down year for mergers and acquisitions, but Wall Street is optimistic that the lengthy lull is coming to an end.`\
 https://nytimes.com/2024/12/23/business/dealbook/year-in-deal-making.html

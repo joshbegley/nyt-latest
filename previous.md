@@ -1,3 +1,11 @@
+**Alessandro Nesta sacked as Monza head coach**\
+`Alessandro Nesta has been sacked as head coach of Monza after winning just one of his 17 Serie A matches in charge.`\
+https://nytimes.com/athletic/6015380/2024/12/23/alessandro-nesta-sacked-monza-manager/
+
+**Palace trigger Mateta contract extension**\
+`Crystal Palace have triggered an extension clause in Jean-Philippe Mateta’s contract which will see his deal now run for a further year until June 2027.`\
+https://nytimes.com/athletic/6015297/2024/12/23/crystal-palace-mateta-contract/
+
 **Deal Makers See a Rebound in 2025 as Trump Returns to Power**\
 `It was another down year for mergers and acquisitions, but Wall Street is optimistic that the lengthy lull is coming to an end.`\
 https://nytimes.com/2024/12/23/business/dealbook/year-in-deal-making.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6013590/2024/12/23/arne-slot-liverpool-tactics-tott
 **Joc Pederson, Texas Rangers agree to deal: Sources**\
 `Pederson, 32, parlayed his career year with the Diamondbacks into a deal with the Rangers. `\
 https://nytimes.com/athletic/5964701/2024/12/23/joc-pederson-contract-texas-rangers-mlb-free-agency/
-
-**Rickey Henderson left mark with independent league teammates: 'Just the most giving person'**\
-`Henderson's teammates on the San Diego Surf Dawgs remembered a player who was giving and down-to-earth during his time with them at age 46.`\
-https://nytimes.com/athletic/6013263/2024/12/23/rickey-henderson-independent-league-surf-dawgs/
-
-**Why Pettersson and Miller's lacklustre play is a bigger concern than Canucks' off-ice drama**\
-`Whatever Miller and Pettersson's feelings about each other, the Canucks' top two centres aren't performing on the ice.`\
-https://nytimes.com/athletic/6013257/2024/12/23/canucks-petterson-miller-drama-performance/
 
