@@ -1,3 +1,7 @@
+**A Pro-Trump Group’s Risky Bet on Infrequent Voters Seems to Have Paid Off**\
+`Turning Point Action devoted much of its attention to less reliable voters. New data in Arizona showing a sizable Republican edge among them suggests that the strategy succeeded.`\
+https://nytimes.com/2024/12/23/us/politics/trump-turning-point-arizona-2024-election.html
+
 **MLB Hot Stove mailbag: Recruiting Sasaki, landing Burnes, post-Soto Yankees, and trade talk**\
 `Plus, what exactly are the Blue Jays doing? `\
 https://nytimes.com/athletic/6015040/2024/12/23/mlb-hot-stove-trades-yankees-sasaki-burnes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/business/nordstrom-private-company-founding-famil
 **The Windup: Rickey, a HOFer even without the steals**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6015633/2024/12/23/rickey-henderson-stats-the-windup/
-
-**Final thoughts on how Ohio State dominated Tennessee — and what it means for Oregon**\
-`Ohio State quickly made any concerns about the matchup with Tennessee moot. Here's how the Buckeyes beat the Vols with ease.`\
-https://nytimes.com/athletic/6015340/2024/12/23/ohio-state-playoff-tennessee-oregon/
 

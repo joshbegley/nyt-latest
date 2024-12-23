@@ -1,3 +1,7 @@
+**MLB Hot Stove mailbag: Recruiting Sasaki, landing Burnes, post-Soto Yankees, and trade talk**\
+`Plus, what exactly are the Blue Jays doing? `\
+https://nytimes.com/athletic/6015040/2024/12/23/mlb-hot-stove-trades-yankees-sasaki-burnes/
+
 **Decisions About Gender-Affirming Care**\
 `Readers discuss a David French column about a Tennessee legal case. Also: Crime and remorse; ultraprocessed foods; ageism in politics. `\
 https://nytimes.com/2024/12/23/opinion/letters/gender-affirming-care.html
