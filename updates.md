@@ -1,3 +1,7 @@
+**Honda and Nissan Unveil Merger Talks as Global Competition Bears Down**\
+`Japan’s second- and third-largest automakers hope the deal can help them catch up with Tesla and China’s BYD in electric vehicles and advanced software.`\
+https://nytimes.com/2024/12/23/business/honda-nissan-merger-talks.html
+
 **Review: Natasha, Pierre and the Great Comet of Who Knows When**\
 `Dave Malloy’s musical, which was a hit in New York, comes to London in an antirealist staging that loses the 1812 setting and some emotional punch.`\
 https://nytimes.com/2024/12/23/theater/natasha-pierre-and-the-great-comet-of-1812-london-donmar.html

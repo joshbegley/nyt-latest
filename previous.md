@@ -1,3 +1,7 @@
+**Honda and Nissan Unveil Merger Talks as Global Competition Bears Down**\
+`Japan’s second- and third-largest automakers hope the deal can help them catch up with Tesla and China’s BYD in electric vehicles and advanced software.`\
+https://nytimes.com/2024/12/23/business/honda-nissan-merger-talks.html
+
 **Review: Natasha, Pierre and the Great Comet of Who Knows When**\
 `Dave Malloy’s musical, which was a hit in New York, comes to London in an antirealist staging that loses the 1812 setting and some emotional punch.`\
 https://nytimes.com/2024/12/23/theater/natasha-pierre-and-the-great-comet-of-1812-london-donmar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/nyregion/the-son-who-couldnt-leave.html
 **This feels different for Liverpool and Arne Slot's relentless team**\
 `Liverpool are clear at the top at Christmas - they have been caught before but they appear in control and Manchester City are fading`\
 https://nytimes.com/athletic/6013254/2024/12/23/liverpool-arne-slot-premier-league-top/
-
-**Word of the Day: expediency**\
-`This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/12/23/learning/word-of-the-day-expediency.html
 
