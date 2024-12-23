@@ -1,3 +1,11 @@
+**NBA Rewind: Will De'Aaron Fox demand a trade?**\
+`Is the clock ticking on De'Aaron Fox remaining in Sacramento? NBA Rewind answers!`\
+https://nytimes.com/athletic/6005956/2024/12/23/nba-rewind-deaaron-fox-kings-christmas-victor-wembanyama-spurs/
+
+**The Pulse: Playoff-altering chaos in Dallas**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6014556/2024/12/23/buccaneers-cowboys-week-16-nfl-scores-the-pulse/
+
 **Max Kepler's long, complicated Twins career comes to an end with Phillies deal**\
 `Max Kepler, Jorge Polanco and Miguel Sanó all signed with the Twins as 16-year-olds in 2009. Now they're all gone.`\
 https://nytimes.com/athletic/6010976/2024/12/23/max-kepler-twins-career-signs-phillies/

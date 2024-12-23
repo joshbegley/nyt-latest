@@ -1,3 +1,11 @@
+**NBA Rewind: Will De'Aaron Fox demand a trade?**\
+`Is the clock ticking on De'Aaron Fox remaining in Sacramento? NBA Rewind answers!`\
+https://nytimes.com/athletic/6005956/2024/12/23/nba-rewind-deaaron-fox-kings-christmas-victor-wembanyama-spurs/
+
+**The Pulse: Playoff-altering chaos in Dallas**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6014556/2024/12/23/buccaneers-cowboys-week-16-nfl-scores-the-pulse/
+
 **Max Kepler's long, complicated Twins career comes to an end with Phillies deal**\
 `Max Kepler, Jorge Polanco and Miguel Sanó all signed with the Twins as 16-year-olds in 2009. Now they're all gone.`\
 https://nytimes.com/athletic/6010976/2024/12/23/max-kepler-twins-career-signs-phillies/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6014709/2024/12/23/sam-darnold-vikings-win-signatur
 **The Steelers have lost 3 of 5 and are slumping on offense. Here's why I'm not too worried**\
 `The recent downturn coincides with George Pickens' absence and untimely turnovers from Russell Wilson, both of which might be temporary.`\
 https://nytimes.com/athletic/6014934/2024/12/23/steelers-russell-wilson-george-pickens/
-
-**The Rams have recast themselves as the NFC West's most physical team**\
-`"I give the Rams credit because they were soft and they knew it," an exec said. "Now they have become a grittier team than the 49ers."`\
-https://nytimes.com/athletic/6014939/2024/12/23/rams-nfc-west-physical-team/
-
-**Robert Thomas’ rise: A Swedish stick, frozen passes and becoming the face of the Blues franchise**\
-`Thomas and the Blues will play the Winter Classic this year at Wrigley Field in Chicago, where he was booed at the draft eight years ago.`\
-https://nytimes.com/athletic/5272868/2024/12/23/robert-thomas-blues-nhl-winter-classic/
 
