@@ -1,3 +1,11 @@
+**Scoop City: Risers and fallers after Week 16**\
+`A brief look at the risers (Falcons, Chiefs and Lions) and fallers (Seahawks, Bears, Patriots) after Sunday of Week 16`\
+https://nytimes.com/athletic/6016076/2024/12/23/week-16-nfl-risers-fallers-takeaways-scoop-city/
+
+**Rangers scratch Chris Kreider, their longest-tenured player, for game vs. Devils**\
+`Kreider previously missed three games in November with a back injury and has been floated by GM Chris Drury as potential trade bait.`\
+https://nytimes.com/athletic/6016075/2024/12/23/rangers-scratch-chris-kreider/
+
 **The Trumpian Attitude at the Heart of the Gaetz Report**\
 `Both men display the same contempt for the law.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/gaetz-trump-ethics-report
