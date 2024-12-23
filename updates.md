@@ -1,3 +1,19 @@
+**CFP quarterfinal odds, picks, how to watch info: Texas, Penn State biggest favorites**\
+`After four blowouts in the CFP first round, two of the quarterfinals have very close spreads. Texas is the biggest favorite of the quarters.`\
+https://nytimes.com/athletic/6011857/2024/12/23/college-football-playoff-quarterfinal-odds-picks-how-to-watch/
+
+**The Three Death Row Prisoners Biden Chose Not to Spare**\
+`President Biden commuted the sentences of 37 men on federal death row but declined to save the lives of three men convicted of “hate-motivated mass murder” or “terrorism.”`\
+https://nytimes.com/2024/12/23/us/death-row-biden-commutation.html
+
+**Browns' Stefanski 'hopeful' Thompson-Robinson will be able to play in Week 17**\
+`Second-year passer played through calf injury in Week 16. If DTR can't go, Browns will figure out their QB plans as the week goes. `\
+https://nytimes.com/athletic/6016155/2024/12/23/browns-dorian-thompson-robinson-calf-injury/
+
+**Which teams can win the NBA title? History says these teams are on the short list**\
+`Can the first 25 games of the NBA season predict success? History says the answer is yes. These teams are on the short list to win it all.`\
+https://nytimes.com/athletic/6014557/2024/12/23/nba-championship-finals-contenders-odds-predictions-after-25-games/
+
 **Slovak Leader Visits Putin, Breaking With E.U.’s Policy of Isolation**\
 `Prime Minister Robert Fico’s surprise visit to Moscow on Sunday, reportedly to discuss natural gas and Ukraine, was a blow to European unity against Russia’s invasion of Ukraine.`\
 https://nytimes.com/2024/12/23/world/europe/slovak-leader-visits-putin.html
