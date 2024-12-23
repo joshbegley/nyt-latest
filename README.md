@@ -1,3 +1,7 @@
+**Nottingham Forest confirm Souloukou as new CEO**\
+`Nottingham Forest have confirmed the appointment of Lina Souloukou as the club’s new chief executive officer (CEO).`\
+https://nytimes.com/athletic/6015018/2024/12/23/lina-souloukou-nottingham-forest-ceo/
+
 **Eliminated from playoffs, Cowboys express what they have to play for in final 2 weeks**\
 `"All I can say is what good of a job he’s doing,” Jerry Jones said of head coach Mike McCarthy after the Cowboys' victory.`\
 https://nytimes.com/athletic/6014908/2024/12/23/cowboys-win-mike-mccarthy-bucs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/arts/design/childrens-museum-brooklyn-anniversary
 **Why enrolling early has become a popular trend at Wisconsin and across college football**\
 `The Badgers will welcome a program-record 15 early enrollees this January as more players seek the benefits of spring practices.`\
 https://nytimes.com/athletic/6010251/2024/12/23/early-enrollees-college-football-wisconsin-fresman/
-
-**Why Are North Korean Troops in Ukraine Taking Heavy Casualties?**\
-`The North Korean army is one of the world’s largest.​ As it joins Russia’s war against Ukraine, its soldiers are paying a price for Kim Jong-un’s geopolitical maneuvers.`\
-https://nytimes.com/2024/12/23/world/asia/north-korea-military-russia-what-to-know.html
 
