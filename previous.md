@@ -1,3 +1,11 @@
+**I.R.S. to Send Out Unclaimed Tax Credit to One Million Taxpayers**\
+`Some Americans who qualified for a pandemic-era tax credit but did not claim it will get up to $1,400 in their account within the next month.`\
+https://nytimes.com/2024/12/23/business/irs-stimulus-check-payments.html
+
+**Money for 9/11 Health Care Was Dropped From Year-End Spending Bill**\
+`A plan to ensure long-term funding to address health needs stemming from the terrorist attacks fell to the wayside after President-elect Donald Trump and Elon Musk objected to a bipartisan budget deal.`\
+https://nytimes.com/2024/12/23/us/politics/sept-11-health-care-spending-bill.html
+
 **An Architect of Trump’s Tough Latin America Policies Is Named Envoy**\
 `A longtime proponent of harsh sanctions, Mauricio Claver-Carone was forced out of his job at the Inter-American Development Bank in 2022.`\
 https://nytimes.com/2024/12/23/us/politics/trump-latin-america-envoy.html
@@ -7,7 +15,7 @@ https://nytimes.com/2024/12/23/us/politics/trump-latin-america-envoy.html
 https://nytimes.com/athletic/6016611/2024/12/23/eagles-nick-sirianni-jalen-hurts-concussion-kenny-pickett/
 
 **Part of Santa Cruz Wharf in California Collapses in High Surf**\
-`Two people were rescued by lifeguards and a third person made it to safety after part of the wharf, a major tourist attraction, collapsed in powerful surf, the authorities said.`\
+`Three people were rescued after part of the wharf, a major tourist attraction, collapsed in powerful surf, the authorities said.`\
 https://nytimes.com/2024/12/23/us/santa-cruz-wharf-collapse.html
 
 **Astros GM Dana Brown: Team pivoted when Alex Bregman negotiations 'stalled'**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6016648/2024/12/23/texas-arizona-state-picks-odds-c
 **NCAA appeals in Diego Pavia case but creates blanket '25-26 waiver for juco players**\
 `Pavia's suit argued that counting junior college toward an athlete’s eligibility clock was an unlawful restraint on his NIL earning power.`\
 https://nytimes.com/athletic/6016665/2024/12/23/diego-pavia-lawsuit-ncaa-juco-waiver/
-
-**Here Comes Santa Claus’s Approval Rating**\
-`Despite some debates in the news, Americans’ views on Santa haven’t really changed, polls show. Most parents still say he’ll visit on Christmas Eve.`\
-https://nytimes.com/2024/12/23/us/santa-polls-believe.html
-
-**Donor Expected to Admit to Making Illegal Contributions to Adams**\
-`Federal prosecutors said they planned to charge a businessman who has close ties to New York’s Turkish community with conspiracy to commit fraud.`\
-https://nytimes.com/2024/12/23/nyregion/adams-corruption-contributions-businessman.html
 

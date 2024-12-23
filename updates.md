@@ -1,3 +1,15 @@
+**I.R.S. to Send Out Unclaimed Tax Credit to One Million Taxpayers**\
+`Some Americans who qualified for a pandemic-era tax credit but did not claim it will get up to $1,400 in their account within the next month.`\
+https://nytimes.com/2024/12/23/business/irs-stimulus-check-payments.html
+
+**Money for 9/11 Health Care Was Dropped From Year-End Spending Bill**\
+`A plan to ensure long-term funding to address health needs stemming from the terrorist attacks fell to the wayside after President-elect Donald Trump and Elon Musk objected to a bipartisan budget deal.`\
+https://nytimes.com/2024/12/23/us/politics/sept-11-health-care-spending-bill.html
+
+**Part of Santa Cruz Wharf in California Collapses in High Surf**\
+`Three people were rescued after part of the wharf, a major tourist attraction, collapsed in powerful surf, the authorities said.`\
+https://nytimes.com/2024/12/23/us/santa-cruz-wharf-collapse.html
+
 **An Architect of Trump’s Tough Latin America Policies Is Named Envoy**\
 `A longtime proponent of harsh sanctions, Mauricio Claver-Carone was forced out of his job at the Inter-American Development Bank in 2022.`\
 https://nytimes.com/2024/12/23/us/politics/trump-latin-america-envoy.html
