@@ -1,3 +1,7 @@
+**How to Make a Fragrance That Smells Like the Holidays**\
+`Every year, Bath & Body Works introduces a new scent that it hopes will break through during the shopping season. It doesn’t have to smell like gingerbread.`\
+https://nytimes.com/2024/12/23/business/bath-and-body-works-holiday-perfume-candles.html
+
 **Notre Dame final thoughts: What we learned from Indiana — and what it means for Georgia**\
 `After an easy win over Indiana, what's coming against Georgia is the most consequential of Marcus Freeman’s tenure at Notre Dame.`\
 https://nytimes.com/athletic/6015786/2024/12/23/notre-dame-indiana-playoff-georgia/
