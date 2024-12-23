@@ -1,3 +1,5 @@
+**Dec. 24: The Parker Solar Probe will make the closest ever approach to the sun.**\
+
 **Kilauea Volcano Erupts on Hawaii’s Big Island**\
 `Scientists said that the main hazard from the eruption on Monday was increased levels of volcanic gas.`\
 https://nytimes.com/2024/12/23/science/kilauea-volcano-eruption-hawaii.html
