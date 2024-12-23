@@ -1,7 +1,3 @@
-**Dolphins keep slim playoff chances after 29-17 win over 49ers: Takeaways**\
-`The Dolphins (7-8) led most of the way, including throughout the second half, on the way to their fifth win in the past seven games.`\
-https://nytimes.com/athletic/6012903/2024/12/22/dolphins-49ers-score-result-takeaways/
-
 **Jonathan Taylor steamrolls Titans, finds redemption in helping keep Colts' playoff hopes alive**\
 `The Colts rushed for a franchise-record 335 yards as Taylor bounced back from his mindless play against the Broncos.  `\
 https://nytimes.com/athletic/6014256/2024/12/22/colts-win-jonathan-taylor-titans/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6012887/2024/12/22/patriots-bills-score-result-take
 **Redemption for Chuba Hubbard, whose $33 million extension already looks like a bargain**\
 `Hubbard ran for 152 yards and put his overtime fumble vs. the Bucs in Week 13 behind with two huge runs in overtime to beat the Cardinals.`\
 https://nytimes.com/athletic/6014065/2024/12/22/panthers-win-chuba-hubbard-cardinals/
+
+**How Raiders' 19-14 win over Jaguars affects 2025 NFL Draft order: Takeaways**\
+`The Raiders, who entered Sunday with the No. 2 pick, dropped to pick No. 6 by beating Jacksonville.`\
+https://nytimes.com/athletic/6012893/2024/12/22/jaguars-raiders-score-result-takeaways/
 
