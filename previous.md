@@ -1,3 +1,7 @@
+**Finally in alignment, Commanders play winning football — and win in Congress too**\
+`Washington put together a good quarter of football, overcame a 13-point deficit and put the team on the brink of a wild-card berth.`\
+https://nytimes.com/athletic/6013067/2024/12/22/commanders-defeat-eagles-aldridge/
+
 **'Nobody writes our story': Lions remain focused while NFC North still up for grabs**\
 `The Lions' goals are still in sight after a commanding win against the Bears.`\
 https://nytimes.com/athletic/6013851/2024/12/22/lions-win-blowout-bears/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/22/theater/all-in-review.html
 **The Giants are officially the worst team in football. But we already knew that**\
 `The Giants’ 100th season was supposed to be a celebration of the franchise’s history. Instead, they’re suffering through a season from hell.`\
 https://nytimes.com/athletic/6013969/2024/12/22/giants-loss-brian-daboll-joe-schoen-top-pick/
-
-**'Nearly flawless' Michael Penix Jr. helps re-energize Falcons' playoff push**\
-`Penix finished 18-for-27 for 202 yards, no touchdowns and a deflected interception. Two pick sixes by the defense helped a lot.`\
-https://nytimes.com/athletic/6013867/2024/12/22/falcons-michael-penix-first-start-giants/
 

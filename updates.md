@@ -1,3 +1,7 @@
+**Finally in alignment, Commanders play winning football — and win in Congress too**\
+`Washington put together a good quarter of football, overcame a 13-point deficit and put the team on the brink of a wild-card berth.`\
+https://nytimes.com/athletic/6013067/2024/12/22/commanders-defeat-eagles-aldridge/
+
 **'Nobody writes our story': Lions remain focused while NFC North still up for grabs**\
 `The Lions' goals are still in sight after a commanding win against the Bears.`\
 https://nytimes.com/athletic/6013851/2024/12/22/lions-win-blowout-bears/
