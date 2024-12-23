@@ -1,3 +1,7 @@
+**The New York Bookstore That Lets You Visit France for an Afternoon**\
+`Albertine, in a Fifth Avenue mansion, is a portal to both Gilded Age New York and the Francophone world.`\
+https://nytimes.com/2024/12/23/t-magazine/albertine-french-bookstore-new-york-212.html
+
 **A Canceled Vote in Romania Hands Russia a Propaganda Coup**\
 `Many in the West have applauded the annulling of the first round of the presidential election, won by a Moscow-friendly candidate, but even his critics say it raises troubling questions about Romanian democracy.`\
 https://nytimes.com/2024/12/23/world/europe/romania-election-russia.html
