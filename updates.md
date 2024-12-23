@@ -1,3 +1,7 @@
+**Final thoughts on how Ohio State dominated Tennessee — and what it means for Oregon**\
+`Ohio State quickly made any concerns about the matchup with Tennessee moot. Here's how the Buckeyes beat the Vols with ease.`\
+https://nytimes.com/athletic/6015340/2024/12/23/ohio-state-playoff-tennessee-oregon/
+
 **Alfa Anderson, ‘Chic’ Singer, Dies at 78**\
 `She sang the famous refrain “Le freak, c’est chic,” on one of disco’s biggest hits and was a sought-after vocalist for many prominent artists.`\
 https://nytimes.com/2024/12/23/arts/music/alfa-anderson-dead.html
