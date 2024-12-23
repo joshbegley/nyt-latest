@@ -1,3 +1,7 @@
+**As Budget Impasse Grinds On, Macron Appoints a New Cabinet**\
+`President Emmanuel Macron named the choices less than three weeks after the previous government collapsed. He had already picked François Bayrou as prime minister.`\
+https://nytimes.com/2024/12/23/world/europe/macron-new-cabinet-france.html
+
 **CFP quarterfinal odds, picks, how to watch info: Texas, Penn State biggest favorites**\
 `After four blowouts in the CFP first round, two of the quarterfinals have very close spreads. Texas is the biggest favorite of the quarters.`\
 https://nytimes.com/athletic/6011857/2024/12/23/college-football-playoff-quarterfinal-odds-picks-how-to-watch/
