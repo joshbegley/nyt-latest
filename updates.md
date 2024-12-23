@@ -1,3 +1,11 @@
+**Jordan Henderson's year of living differently**\
+`The former Liverpool captain has won over the Ajax doubters in Amsterdam - his quiet stability is proving quietly effective `\
+https://nytimes.com/athletic/6012945/2024/12/23/jordan-henderson-ajax-year-of-living-differently/
+
+**Caring, counselling - and no Christmas: Life in a football club's medical department**\
+`Stressed managers, emotional players and high-stakes decisions. Life as a football medic is not easy`\
+https://nytimes.com/athletic/5986253/2024/12/23/premier-league-medical-department/
+
 **Watching Southampton within earshot of Ivan Juric: 'Come on, come on, come on!'**\
 `Sitting close to Southampton's new manager, it was clear he wants his team to play in a very different way than they have done this season`\
 https://nytimes.com/athletic/6013294/2024/12/23/southampton-ivan-juric-fulham/
