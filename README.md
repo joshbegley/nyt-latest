@@ -1,3 +1,7 @@
+**Takeaways From the House Ethics Committee’s Investigation into Matt Gaetz**\
+`A 37-page report detailed the findings from a yearslong investigation into allegations that Mr. Gaetz engaged in a range of illegal conduct. He has repeatedly denied wrongdoing.`\
+https://nytimes.com/2024/12/23/us/politics/matt-gaetz-ethics-report-takeaways.html
+
 **A Perpetual Champagne, Built One Year at a Time**\
 `A new method of making nonvintage Champagnes is taking hold. Producers see it as a hedge against climate change while improving overall quality.`\
 https://nytimes.com/2024/12/23/dining/drinks/champagne-perpetual-reserve-method.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016001/2024/12/23/notre-dame-rylie-mills-injury-ge
 **Browns' Stefanski 'hopeful' Thompson-Robinson will be able to play in Week 17**\
 `Second-year passer played through calf injury in Week 16. If DTR can't go, Browns will figure out their QB plans as the week goes. `\
 https://nytimes.com/athletic/6016155/2024/12/23/browns-dorian-thompson-robinson-calf-injury/
-
-**Our Favorite Food Stories of 2024**\
-`From a debate about the most delicious pasta dishes in Italy to a luxurious baked potato recipe, these are the most appetizing and surprising food features T published this year.`\
-https://nytimes.com/2024/12/23/t-magazine/favorite-food-stories.html
 
