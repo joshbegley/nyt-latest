@@ -1,3 +1,11 @@
+**Georgia vs. Notre Dame: How to watch, picks, odds for CFP quarterfinal at Sugar Bowl**\
+`Georgia is a small favorite against Notre Dame but will likely be without starting quarterback Carson Beck.`\
+https://nytimes.com/athletic/6016744/2024/12/23/georgia-notre-dame-how-to-watch-picks-odds-college-football-playoff/
+
+**House Member in Assisted Living Draws Fresh Scrutiny to an Aging Congress**\
+`Representative Kay Granger, Republican of Texas, has been largely absent from Capitol Hill since the summer and has moved into a retirement home.`\
+https://nytimes.com/2024/12/23/us/politics/kay-granger-congress-age.html
+
 **Betting for (by) dummies: Will our NFL hot streak translate to college bowl picks?**\
 `Jon Greenberg and Zac Jackson stayed hot on NFL picks last week. Can they get some holiday momentum in college, too?`\
 https://nytimes.com/athletic/6016525/2024/12/23/betting-for-by-dummies-christmas-week-bowl-games/
