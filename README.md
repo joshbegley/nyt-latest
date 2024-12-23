@@ -1,4 +1,4 @@
-**U.S. Open doubles champion Max Purcell admits doping violation, enters provisional suspension**\
+**U.S. Open doubles champion Max Purcell suspended from tennis after admitting doping violation**\
 `The Australian is the third major champion of the year to be sanctioned for a doping violation.`\
 https://nytimes.com/athletic/6014942/2024/12/23/max-purcell-doping-prohibited-method-explained/
 
