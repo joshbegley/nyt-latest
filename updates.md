@@ -1,3 +1,11 @@
+**Ford will donate $1 million and vehicles to the Trump inauguration.**\
+`By Neal E. Boudette`\
+https://nytimes.com/live/2024/12/23/us/matt-gaetz-report-trump-news/ford-will-donate-1-million-and-vehicles-to-the-trump-inauguration
+
+**Why the Bills' playoff opponents are likely to test their run defense**\
+`Plus, the offensive line continues to dominate.`\
+https://nytimes.com/athletic/6016285/2024/12/23/bills-defense-patriots-offensive-line/
+
 **Netanyahu Signals Progress on Hostage Deal but Gives No Timeline**\
 `While pledging to secure the release of hostages held in Gaza by any means necessary, Prime Minister Benjamin Netanyahu of Israel said of the cease-fire talks with Hamas: “I don’t know how long it will take.”`\
 https://nytimes.com/2024/12/23/world/middleeast/netanyahu-hostage-deal.html
