@@ -1,3 +1,7 @@
+**Cowboys stifle Bucs 26-24 to shake up NFC South standings: Takeaways**\
+`DaRon Bland's strip and recovery on the Bucs' final drive clinched the Cowboys' win after a wild sequence.`\
+https://nytimes.com/athletic/6014002/2024/12/23/cowboys-buccaneers-snf-score-result-takeaways/
+
 **The Friedkin Group's start at Everton: Plan to help Dyche, impressed staff, fans lifted**\
 `After a landmark week and a takeover of Everton, the skies now appear to be clearing at Goodison Park`\
 https://nytimes.com/athletic/6013044/2024/12/23/friedkin-takeover-everton-goodison-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5949406/2024/12/23/pontus-jansson-brentford-thomas-
 **Wolves were just crying out for a new voice - Pereira has given these players their mojo back**\
 `Wolves managed to beat Leicester 3-0 in Vitor Pereira's first game in charge of the club`\
 https://nytimes.com/athletic/6012725/2024/12/23/wolves-vitor-pereira-leicester-analysis/
-
-**Is it time to have a conversation about Brenden Aaronson?**\
-`Booed by his own team's supporters in pre-season, Aaronson got a goal and an assist in Saturday's dominant win against Oxford United`\
-https://nytimes.com/athletic/5937503/2024/12/23/leeds-brenden-aaronson-usmnt-analysis/
 
