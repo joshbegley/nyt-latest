@@ -1,3 +1,7 @@
+**Raptors' poor late-game offence presents many questions, including a big one in June**\
+`The Raptors are a league-worst 4-12 in games that have been within a 5-point margin in the final five minutes or overtime.`\
+https://nytimes.com/athletic/6014242/2024/12/22/raptors-bad-clutch-offence-nba/
+
 **Late lapses vs. Vikings leave Seahawks in a familiar place, with season on the brink**\
 `Geno Smith led dazzling drives but also threw back-breaking INTs, and Mike Macdonald's defense faltered late as Seattle's hopes grew dim.`\
 https://nytimes.com/athletic/6014479/2024/12/22/seahawks-loss-geno-smith-playoff-chances-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6014333/2024/12/22/patriots-loss-jerod-mayo-job-bil
 **Dolphins keep slim playoff chances after 29-17 win over 49ers: Takeaways**\
 `The Dolphins (7-8) led most of the way, including throughout the second half, on the way to their fifth win in the past seven games.`\
 https://nytimes.com/athletic/6012903/2024/12/22/dolphins-49ers-score-result-takeaways/
-
-**Jonathan Taylor steamrolls Titans, finds redemption in helping keep Colts' playoff hopes alive**\
-`The Colts rushed for a franchise-record 335 yards as Taylor bounced back from his mindless play against the Broncos.  `\
-https://nytimes.com/athletic/6014256/2024/12/22/colts-win-jonathan-taylor-titans/
 
