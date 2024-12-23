@@ -1,3 +1,7 @@
+**Texans WR Tank Dell out for year with dislocated knee, torn ACL**\
+`Houston's receiving corps get thinner with both Dell and Stefon Diggs lost for the year. `\
+https://nytimes.com/athletic/6016214/2024/12/23/houston-texans-tank-dell-dislocated-knee/
+
 **As Budget Impasse Grinds On, Macron Appoints a New Cabinet**\
 `President Emmanuel Macron named the choices less than three weeks after the previous government collapsed. He had already picked François Bayrou as prime minister.`\
 https://nytimes.com/2024/12/23/world/europe/macron-new-cabinet-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6010912/2024/12/23/nuggets-pelicans-draft-gleague-s
 **Which teams can win the NBA title? History says these teams are on the short list**\
 `Can the first 25 games of the NBA season predict success? History says the answer is yes. These teams are on the short list to win it all.`\
 https://nytimes.com/athletic/6014557/2024/12/23/nba-championship-finals-contenders-odds-predictions-after-25-games/
-
-**BOS Nation FC locks in White Stadium as venue**\
-`Boston Mayor Michelle Wu said the lease will “open up the largest investment into BPS athletics and White Stadium since it opened in 1949."`\
-https://nytimes.com/athletic/6015728/2024/12/23/bos-nation-fc-white-stadium-nwsl/
 

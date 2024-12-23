@@ -1,3 +1,7 @@
+**Texans WR Tank Dell out for year with dislocated knee, torn ACL**\
+`Houston's receiving corps get thinner with both Dell and Stefon Diggs lost for the year. `\
+https://nytimes.com/athletic/6016214/2024/12/23/houston-texans-tank-dell-dislocated-knee/
+
 **As Budget Impasse Grinds On, Macron Appoints a New Cabinet**\
 `President Emmanuel Macron named the choices less than three weeks after the previous government collapsed. He had already picked François Bayrou as prime minister.`\
 https://nytimes.com/2024/12/23/world/europe/macron-new-cabinet-france.html
