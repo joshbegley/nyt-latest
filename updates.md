@@ -1,3 +1,7 @@
+**Maple Leafs report cards: John Tavares scores twice but individual mistakes prove costly**\
+`Tavares scored his 200th goal as a Leaf, but no other Toronto players could beat Connor Hellebuyck.`\
+https://nytimes.com/athletic/6016321/2024/12/23/maple-leafs-report-cards-tavares-jets/
+
 **Eagles' Sirianni: Hurts enters concussion protocol, no update on Pickett**\
 `Philadelphia is a win away from clinching the NFC East and will look to do so in Week 17 at home against the Dallas Cowboys. `\
 https://nytimes.com/athletic/6016611/2024/12/23/eagles-nick-sirianni-jalen-hurts-concussion-kenny-pickett/
