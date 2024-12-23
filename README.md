@@ -1,3 +1,7 @@
+**Trey Murphy’s offensive development can be a win in the Pelicans' lost season**\
+`With injuries putting the ball in his hands more often, Murphy is growing, even as his 3s don't fall. `\
+https://nytimes.com/athletic/6013824/2024/12/23/trey-murphys-pelicans-improvement-nba/
+
 **The Best Times Graphics of 2024**\
 `Our visual journalists are always on the prowl for innovative ways to tell big news stories.`\
 https://nytimes.com/2024/12/23/briefing/best-times-graphics-of-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5272868/2024/12/23/robert-thomas-blues-nhl-winter-c
 **Packers GM Brian Gutekunst, perhaps underappreciated, is really good at his job**\
 `The general manager has set his team up well for the present and future with strong drafting and smart free-agent signings.`\
 https://nytimes.com/athletic/6012980/2024/12/23/packers-gm-brian-gutekunst/
-
-**Confident in his legacy, Leon Draisaitl continues to prove himself as an all-time great**\
-`Draisaitl is having the best season of a sterling career that’s already worthy of Hockey Hall of Fame enshrinement.`\
-https://nytimes.com/athletic/6004388/2024/12/23/leon-draisaitl-nhl-legacy-oilers/
 
