@@ -1,3 +1,7 @@
+**Vikings keep pace in NFC North with 27-24 win over Seahawks: Takeaways**\
+`A late 39-yard touchdown from Sam Darnold to Justin Jefferson lifted the Vikings to their eighth straight win.`\
+https://nytimes.com/athletic/6012879/2024/12/22/vikings-seahawks-score-result-takeaways/
+
 **Alex Caruso, Thunder agree to 4-year, $81 million contract extension**\
 `The 30-year-old, known as one of the NBA's best perimeter defenders, was acquired in a trade with Chicago last summer.`\
 https://nytimes.com/athletic/6013389/2024/12/22/alex-caruso-contract-thunder-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6013794/2024/12/22/penn-state-louisville-ncaa-volle
 **Rangers trade first baseman Nathaniel Lowe to Nationals: Source**\
 `Lowe will step in as the Nationals' primary first baseman after Washington declined Joey Gallo's option.`\
 https://nytimes.com/athletic/6013767/2024/12/22/rangers-trade-nathaniel-lowe-nationals/
-
-**Short Snooze**\
-`Glenn Cook makes his New York Times Crossword debut.`\
-https://nytimes.com/2024/12/22/crosswords/daily-puzzle-2024-12-23.html
 
