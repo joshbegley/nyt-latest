@@ -1,3 +1,5 @@
+**gws-best-restaurant-dishes-america**\
+
 **Ford will donate $1 million and vehicles to the Trump inauguration.**\
 `By Neal E. Boudette`\
 https://nytimes.com/live/2024/12/23/us/matt-gaetz-report-trump-news/ford-will-donate-1-million-and-vehicles-to-the-trump-inauguration
