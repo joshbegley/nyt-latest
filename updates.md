@@ -1,3 +1,11 @@
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Even by Newcastle's standards it has been quite a week... Pose your questions and Chris Waugh will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/6015058/2024/12/23/newcastle-ipswich-tonali-isak/
+
+**Canadiens weekly notebook: Fresh perspective on Kaiden Guhle, exploring Lane Hutson’s mind**\
+`Also this week, the hope that a new power play role can help Kirby Dach's confidence, Brendan Gallagher's belief in the rebuild and more.`\
+https://nytimes.com/athletic/6014496/2024/12/23/canadiens-guhle-carrier-partner-hutson-offence/
+
 **Mets, Sean Manaea agree to 3-year, $75 million deal: Source**\
 `Manaea re-entered free agency in a far stronger position than each of the last two winters.`\
 https://nytimes.com/athletic/5964964/2024/12/23/sean-manaea-contract-mets-mlb-free-agency/
