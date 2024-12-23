@@ -1,3 +1,11 @@
+**Ex-Penn State backup QB Beau Pribula transfers to Missouri**\
+`Pribula entered the transfer portal last week ahead of Penn State’s first-ever appearance in the College Football Playoff.`\
+https://nytimes.com/athletic/6014445/2024/12/22/beau-pribula-missouri-penn-state-transfer/
+
+**Florida adds 5-star WR Dallas Wilson after his Oregon release**\
+`With his addition, Florida’s class moved to No. 10 nationally.`\
+https://nytimes.com/athletic/6014481/2024/12/22/florida-dallas-wilson-oregon-flip/
+
 **Despite team's support, Jerod Mayo's seat feels a bit warmer after another Patriots loss**\
 `The Patriots are 3-12 and have lost five straight. With Mike Vrabel available, has Jerod Mayo done enough to earn a second season?`\
 https://nytimes.com/athletic/6014333/2024/12/22/patriots-loss-jerod-mayo-job-bills/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6013911/2024/12/22/bears-caleb-williams-development
 **Finally in alignment, Commanders play winning football — and win in Congress, too**\
 `Washington put together a good third quarter of football, overcame a 13-point deficit and moved to the brink of a wild-card berth.`\
 https://nytimes.com/athletic/6013067/2024/12/22/commanders-defeat-eagles-aldridge/
-
-**'Nobody writes our story': Lions remain focused while NFC North still up for grabs**\
-`The Lions' goals are still in sight after a commanding win against the Bears.`\
-https://nytimes.com/athletic/6013851/2024/12/22/lions-win-blowout-bears/
-
-**Bills beat Patriots 24-21 to stay in pursuit of AFC's top seed: Takeaways**\
-`MVP front-runner Josh Allen threw for one touchdown and running back James Cook added two more TDs in the victory.`\
-https://nytimes.com/athletic/6012887/2024/12/22/patriots-bills-score-result-takeaways/
 
