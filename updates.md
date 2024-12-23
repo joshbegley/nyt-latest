@@ -1,3 +1,11 @@
+**Manchester United's short-term needs are at odds with Ruben Amorim's long-term plans**\
+`Ruben Amorin is in a tricky space, but compromising on his vision will only paper over the cracks`\
+https://nytimes.com/athletic/6013356/2024/12/23/manchester-united-bournemouth-ruben-amorim-analysis/
+
+**The Briefing: Slot spots Liverpool flaw, the scale of Amorim's task and Saka injury inevitability**\
+`Nick Miller takes you through the big talking points from the weekend's Premier League football`\
+https://nytimes.com/athletic/6013409/2024/12/23/briefing-slot-amorim-saka/
+
 **Jordan Henderson's year of living differently**\
 `The former Liverpool captain has won over the Ajax doubters in Amsterdam - his quiet stability is proving quietly effective `\
 https://nytimes.com/athletic/6012945/2024/12/23/jordan-henderson-ajax-year-of-living-differently/

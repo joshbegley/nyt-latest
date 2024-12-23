@@ -1,3 +1,11 @@
+**Manchester United's short-term needs are at odds with Ruben Amorim's long-term plans**\
+`Ruben Amorin is in a tricky space, but compromising on his vision will only paper over the cracks`\
+https://nytimes.com/athletic/6013356/2024/12/23/manchester-united-bournemouth-ruben-amorim-analysis/
+
+**The Briefing: Slot spots Liverpool flaw, the scale of Amorim's task and Saka injury inevitability**\
+`Nick Miller takes you through the big talking points from the weekend's Premier League football`\
+https://nytimes.com/athletic/6013409/2024/12/23/briefing-slot-amorim-saka/
+
 **Jordan Henderson's year of living differently**\
 `The former Liverpool captain has won over the Ajax doubters in Amsterdam - his quiet stability is proving quietly effective `\
 https://nytimes.com/athletic/6012945/2024/12/23/jordan-henderson-ajax-year-of-living-differently/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/23/pageoneplus/quote-of-the-day-in-some-parts-its-ch
 **Organized Looting Throws Gaza Deeper Into Chaos**\
 `Gangs are filling a power vacuum left by Israel in some parts of southern Gaza, hijacking desperately needed aid for Palestinian residents.`\
 https://nytimes.com/2024/12/23/world/middleeast/gaza-looting.html
-
-**‘I Was Destroyed by It’: 4 Men on Abuse at Ireland’s Catholic Schools**\
-`After decades of silence, dozens of older men are talking about the sexual abuse they suffered at schools run by religious orders. We spoke to four of them.`\
-https://nytimes.com/2024/12/23/world/europe/ireland-catholic-priest-abuse.html
-
-**When Being Together During the Holidays Is Impossible, Send Treats**\
-`I miss the magic and the chaos of a big family gathering — until a box of cookies turns up on my porch.`\
-https://nytimes.com/2024/12/23/dining/cookies-family-holidays.html
 
