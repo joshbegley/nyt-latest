@@ -1,3 +1,15 @@
+**Transfer portal takeaways: How Bill Belichick, UNC are faring, where top players are landing**\
+`We dive into the biggest takeaways from the first two weeks of portal action.`\
+https://nytimes.com/athletic/6014440/2024/12/23/college-football-transfer-portal-bill-belichick-winners-losers/
+
+**Six Cowboys who delivered Sunday and are or should be part of the team's future**\
+`From Micah Parsons and DaRon Bland to Cooper Rush and Jourdan Lewis, Dallas should do everything it can to keep these beyond 2024, 2025.`\
+https://nytimes.com/athletic/6014900/2024/12/23/cowboys-future-micah-parsons-daron-bland-jourdan-lewis/
+
+**Sam Darnold produces signature moment with game-winning TD pass against Seahawks**\
+`Darnold's late go-ahead touchdown pass to Justin Jefferson was another special play in a special season for the QB and this Vikings team.`\
+https://nytimes.com/athletic/6014709/2024/12/23/sam-darnold-vikings-win-signature-seahawks/
+
 **The Steelers have lost 3 of 5 and are slumping on offense. Here's why I'm not too worried**\
 `The recent downturn coincides with George Pickens' absence and untimely turnovers from Russell Wilson, both of which might be temporary.`\
 https://nytimes.com/athletic/6014934/2024/12/23/steelers-russell-wilson-george-pickens/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6013735/2024/12/23/blackhawks-frank-nazar-film-brea
 **Could One Phone Call Lead to the 28th Amendment?**\
 `How President Biden could transform women’s rights and rescue his legacy with just a ring.`\
 https://nytimes.com/2024/12/23/podcasts/the-daily/era-biden.html
-
-**The Connections Companion No. 562**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 24, 2024.`\
-https://nytimes.com/2024/12/23/crosswords/the-connections-companion-562.html
-
-**How AJ Dybantsa, potential No. 1 pick in 2026 NBA Draft, is reshaping NIL and basketball itself**\
-`AJ Dybantsa isn't just the best player in high school basketball. He is the face of the NIL revolution.`\
-https://nytimes.com/athletic/5993543/2024/12/23/aj-dybantsa-byu-nba-draft-nil-college-basketball/
-
-**Wordle Review No. 1,284**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 24, 2024.`\
-https://nytimes.com/2024/12/23/crosswords/wordle-review-1284.html
 
