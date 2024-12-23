@@ -1,3 +1,7 @@
+**Christmas Market Attack Stirs Political Sniping in Germany**\
+`After an assailant driving an S.U.V. killed five people, calls for solidarity have quickly given way to criticism by rival lawmakers, ahead of snap elections set for February.`\
+https://nytimes.com/2024/12/23/world/europe/germany-christmas-market-attack-politics.html
+
 **Nordstrom Family Strikes Deal to Buyout Namesake Chain**\
 `The business will be acquired by members of the family and El Puerto de Liverpool, a Mexican real estate and department store company that has owned a stake in Nordstrom since 2022.`\
 https://nytimes.com/2024/12/23/business/nordstrom-private-company-founding-family.html

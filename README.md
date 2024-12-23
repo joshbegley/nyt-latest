@@ -1,4 +1,4 @@
-**Christmas Market Attack Stirs Political Sniping in Germany**\
+**Christmas Market Attack Stirs Political Bickering in Germany**\
 `After an assailant driving an S.U.V. killed five people, calls for solidarity have quickly given way to criticism by rival lawmakers, ahead of snap elections set for February.`\
 https://nytimes.com/2024/12/23/world/europe/germany-christmas-market-attack-politics.html
 
