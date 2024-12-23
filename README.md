@@ -1,3 +1,31 @@
+**Is it time for the Sharks to give the net to Yaroslav Askarov?**\
+`There's value in playing other goalies in San Jose, but Askarov is showing he's ready for more.`\
+https://nytimes.com/athletic/6014043/2024/12/23/yaroslav-askarov-sharks-goalie/
+
+**Proper width, overloads and early crosses - how Slot's tactics hit Tottenham for six**\
+`Liverpool are adaptable, flexible and looking unstoppable. Arne Slot is keeping opposition managers guessing `\
+https://nytimes.com/athletic/6013590/2024/12/23/arne-slot-liverpool-tactics-tottenham/
+
+**Rickey Henderson left mark with independent league teammates: 'Just the most giving person'**\
+`Henderson's teammates on the San Diego Surf Dawgs remembered a player who was giving and down-to-earth during his time with them at age 46.`\
+https://nytimes.com/athletic/6013263/2024/12/23/rickey-henderson-independent-league-surf-dawgs/
+
+**Why Pettersson and Miller's lacklustre play is a bigger concern than Canucks' off-ice drama**\
+`Whatever Miller and Pettersson's feelings about each other, the Canucks' top two centres aren't performing on the ice.`\
+https://nytimes.com/athletic/6013257/2024/12/23/canucks-petterson-miller-drama-performance/
+
+**Dodgers Mailbag, Part 2: What's next for Roki Sasaki? And for Ohtani's return to mound?**\
+`Dodgers fans had questions about missing out on Juan Soto, deferred contracts, Dalton Rushing's potential and more. `\
+https://nytimes.com/athletic/6013355/2024/12/23/dodgers-roki-sasaki-shohei-ohtani/
+
+**Hurzeler unhappy with Brighton's Premier League form: 'I am very critical of myself'**\
+`Head coach Fabian Hurzeler says Brighton &amp; Hove Albion should be higher up the Premier League table at Christmas than 10th place.`\
+https://nytimes.com/athletic/6015031/2024/12/23/brighton-premier-league-form/
+
+**Trump Transition Live Updates: D.C. Awaits Release of Gaetz Ethics Report**\
+``\
+https://nytimes.com/live/2024/12/23/us/matt-gaetz-report-trump-news
+
 **Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
 `Even by Newcastle's standards it has been quite a week... Pose your questions and Chris Waugh will endeavour to answer as many as possible`\
 https://nytimes.com/athletic/6015058/2024/12/23/newcastle-ipswich-tonali-isak/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6014496/2024/12/23/canadiens-guhle-carrier-partner-
 **Mets, Sean Manaea agree to 3-year, $75 million deal: Source**\
 `Manaea re-entered free agency in a far stronger position than each of the last two winters.`\
 https://nytimes.com/athletic/5964964/2024/12/23/sean-manaea-contract-mets-mlb-free-agency/
-
-**Weekend NHL rankings: Canucks drama, Stars dropping and holiday wishes for all**\
-`The NHL offers 13 games tonight before a short holiday break: just enough time to spend a few extra days making merry or wallowing in gloom.`\
-https://nytimes.com/athletic/6013710/2024/12/23/nhl-weekend-rankings-canucks-stars-holidays/
-
-**The team who won too much**\
-`There is a risk that the club's recent dominance starts to make Sweden’s model look less like a strength, and more like a weakness`\
-https://nytimes.com/athletic/6007229/2024/12/23/malmo-sweden-football-ownership-prize-money/
-
-**Broncos' leaky pass defense could jeopardize playoff hopes as Joe Burrow looms**\
-`The Broncos could soon benefit from the return of cornerback Riley Moss. "Hopefully, it can happen this weekend," Sean Payton said.`\
-https://nytimes.com/athletic/6009717/2024/12/23/broncos-pass-defense-bengals/
-
-**'I don't find who I am or what I do very impressive': Jack Draper finds his purpose in pain**\
-`The British No. 1 is the heir to a tennis-mad nation's hopes — and to the grandparents who taught him how to look outside himself.`\
-https://nytimes.com/athletic/6006022/2024/12/23/jack-draper-tennis-player-interview/
-
-**NBA Rewind: Will De'Aaron Fox demand a trade?**\
-`Is the clock ticking on De'Aaron Fox remaining in Sacramento? NBA Rewind answers!`\
-https://nytimes.com/athletic/6005956/2024/12/23/nba-rewind-deaaron-fox-kings-christmas-victor-wembanyama-spurs/
-
-**The Pulse: Playoff-altering chaos in Dallas**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6014556/2024/12/23/buccaneers-cowboys-week-16-nfl-scores-the-pulse/
-
-**Max Kepler's long, complicated Twins career comes to an end with Phillies deal**\
-`Max Kepler, Jorge Polanco and Miguel Sanó all signed with the Twins as 16-year-olds in 2009. Now they're all gone.`\
-https://nytimes.com/athletic/6010976/2024/12/23/max-kepler-twins-career-signs-phillies/
 
