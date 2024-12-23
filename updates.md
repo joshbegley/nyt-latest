@@ -1,3 +1,7 @@
+**Jonathan Taylor steamrolls Titans, finds redemption in helping keep Colts' playoff hopes alive**\
+`The Colts rushed for a franchise-record 335 yards as Taylor bounced back from his mindless play against the Broncos.  `\
+https://nytimes.com/athletic/6014256/2024/12/22/colts-win-jonathan-taylor-titans/
+
 **Trump Names His Picks for Top Pentagon Roles**\
 `They include a billionaire investor who supported Mr. Trump’s campaign, a former official who froze aid to Ukraine and a former executive at Uber.`\
 https://nytimes.com/2024/12/22/us/trump-pentagon-defense-nominees.html

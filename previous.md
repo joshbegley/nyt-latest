@@ -1,3 +1,7 @@
+**Jonathan Taylor steamrolls Titans, finds redemption in helping keep Colts' playoff hopes alive**\
+`The Colts rushed for a franchise-record 335 yards as Taylor bounced back from his mindless play against the Broncos.  `\
+https://nytimes.com/athletic/6014256/2024/12/22/colts-win-jonathan-taylor-titans/
+
 **Trump Names His Picks for Top Pentagon Roles**\
 `They include a billionaire investor who supported Mr. Trump’s campaign, a former official who froze aid to Ukraine and a former executive at Uber.`\
 https://nytimes.com/2024/12/22/us/trump-pentagon-defense-nominees.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6014065/2024/12/22/panthers-win-chuba-hubbard-cardi
 **How Raiders' 19-14 win over Jaguars affects 2025 NFL Draft order: Takeaways**\
 `The Raiders, who entered Sunday with the No. 2 pick, dropped to pick No. 6 by beating Jacksonville.`\
 https://nytimes.com/athletic/6012893/2024/12/22/jaguars-raiders-score-result-takeaways/
-
-**Greenberg: No-brainer for Bears? Top coach candidate Ben Johnson shows why he's easy pick**\
-`Johnson is "as detailed as they come," players said after Detroit's easy win. It showed on the “Stumble Bum” trick play that went for a TD.`\
-https://nytimes.com/athletic/6013872/2024/12/22/bears-lions-ben-johnson-coach-search/
 
