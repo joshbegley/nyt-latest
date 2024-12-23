@@ -1,3 +1,7 @@
+**Ethics Report Accused Gaetz of ‘Regularly’ Paying for Sex**\
+`Also, Biden commuted nearly every federal death sentence. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/12/23/briefing/ethics-report-matt-gaetz-white-christmas-forecast.html
+
 **Notre Dame lands top transfer target in WR Malachi Fields from Virginia**\
 `Fields posted 55 catches for 808 yards and five scores in the 2024 season.`\
 https://nytimes.com/athletic/6016680/2024/12/23/notre-dame-transfer-wide-receiver-malachi-fields/
