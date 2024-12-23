@@ -1,3 +1,7 @@
+**Week 16 NFL playoff picture: Lions, Chiefs closing in on top seeds; Falcons lead NFC South**\
+`The top seed in the NFC could come down to an epic Week 18 showdown between two NFC North rivals. `\
+https://nytimes.com/athletic/6006774/2024/12/22/week-16-nfl-playoff-picture-chiefs-lions-top-seeds/
+
 **Josh Allen throwing hand scare, Cam Lewis' interception, other observations in victory vs. Patriots**\
 `Plus, James Cook puts on a show once again.`\
 https://nytimes.com/athletic/6014594/2024/12/22/bills-win-josh-allen-observations-patriots/
