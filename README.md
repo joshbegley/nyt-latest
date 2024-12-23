@@ -1,3 +1,7 @@
+**A Perpetual Champagne, Built One Year at a Time**\
+`A new method of making nonvintage Champagnes is taking hold. Producers see it as a hedge against climate change while improving overall quality.`\
+https://nytimes.com/2024/12/23/dining/drinks/champagne-perpetual-reserve-method.html
+
 **D.C. Police Officer Convicted Over Leaking Information to Proud Boys’ Leader**\
 `A federal judge found Lt. Shane Lamond guilty of lying to investigators and undermining police work by sharing tips with Enrique Tarrio, the group’s leader.`\
 https://nytimes.com/2024/12/23/us/politics/dc-police-enrique-tarrio-proud-boys.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016155/2024/12/23/browns-dorian-thompson-robinson-
 **Our Favorite Food Stories of 2024**\
 `From a debate about the most delicious pasta dishes in Italy to a luxurious baked potato recipe, these are the most appetizing and surprising food features T published this year.`\
 https://nytimes.com/2024/12/23/t-magazine/favorite-food-stories.html
-
-**What I’m hearing about the Nuggets, Pelicans and the top-heavy 2026 draft**\
-`Is help on the way for the Joker? Could Brandon Ingram’s time in New Orleans soon be up? `\
-https://nytimes.com/athletic/6010912/2024/12/23/nuggets-pelicans-draft-gleague-showcase-nba/
 
