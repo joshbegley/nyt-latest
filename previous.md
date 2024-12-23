@@ -1,3 +1,11 @@
+**Jets QB Aaron Rodgers: Without leaks 'it will be a little easier to win'**\
+`Rodgers comments come a day after Jets' latest loss drops New York to 4-11 in a season that started with Super Bowl expectations. `\
+https://nytimes.com/athletic/6016386/2024/12/23/aaron-rodgers-jets-leaks-comments-pat-mcafee/
+
+**Tuesday Briefing: The Matt Gaetz Report is Out**\
+`Plus, celebrating “Chrismukkah.”`\
+https://nytimes.com/2024/12/23/briefing/gaetz-report-germany-automakers.html
+
 **A Culture of Corruption and Abuse in the Biggest Police Department**\
 `It’s been abetted by Mayor Eric Adams.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/nypd-corruption-adams
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6016234/2024/12/23/super-bowl-odds-lions-bills-chie
 **Suspect Charged in Fatal Burning of Woman on Subway**\
 `The man charged with murder in the woman’s death was identified by federal officials as a 33-year-old from Guatemala who was in the United States illegally.`\
 https://nytimes.com/2024/12/23/nyregion/fatal-subway-fire.html
-
-**Michael Vick introduced as Norfolk State's head football coach**\
-`Vick's move to Norfolk State resembles a similar career path taken by former NFL players who have made the move to coach at HBCUs`\
-https://nytimes.com/athletic/6015626/2024/12/23/michael-vick-norfolk-state-head-coach-introduction/
-
-**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
-`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
-https://nytimes.com/athletic/5891633/2024/12/23/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
 

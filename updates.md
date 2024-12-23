@@ -1,3 +1,11 @@
+**Jets QB Aaron Rodgers: Without leaks 'it will be a little easier to win'**\
+`Rodgers comments come a day after Jets' latest loss drops New York to 4-11 in a season that started with Super Bowl expectations. `\
+https://nytimes.com/athletic/6016386/2024/12/23/aaron-rodgers-jets-leaks-comments-pat-mcafee/
+
+**Tuesday Briefing: The Matt Gaetz Report is Out**\
+`Plus, celebrating “Chrismukkah.”`\
+https://nytimes.com/2024/12/23/briefing/gaetz-report-germany-automakers.html
+
 **A Culture of Corruption and Abuse in the Biggest Police Department**\
 `It’s been abetted by Mayor Eric Adams.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/nypd-corruption-adams
