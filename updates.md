@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: Festivus grievance on NBA popularity discourse**\
+`With all the other adjustments the league has made in recent years, now we're worried about ... shot distance? Really?`\
+https://nytimes.com/athletic/6015169/2024/12/23/nba-ratings-down-popularity-rule-change/
+
 **A Pro-Trump Group’s Risky Bet on Infrequent Voters Seems to Have Paid Off**\
 `Turning Point Action devoted much of its attention to less reliable voters. New data in Arizona showing a sizable Republican edge among them suggests that the strategy succeeded.`\
 https://nytimes.com/2024/12/23/us/politics/trump-turning-point-arizona-2024-election.html
