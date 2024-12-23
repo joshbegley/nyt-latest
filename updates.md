@@ -1,3 +1,7 @@
+**Netflix's exclusive FIFA Women's World Cup deal puts up roadblocks for the game's growth: Rueter**\
+`Folding the World Cup — long the final bastion of free-to-view soccer — into a subscription service could limit viewership`\
+https://nytimes.com/athletic/6015933/2024/12/23/fifa-netflix-womens-world-cup-broadcast-rights/
+
 **Scoop City: Risers and fallers after Week 16**\
 `A brief look at the risers (Falcons, Chiefs and Lions) and fallers (Seahawks, Bears, Patriots) after Sunday of Week 16`\
 https://nytimes.com/athletic/6016076/2024/12/23/week-16-nfl-risers-fallers-takeaways-scoop-city/
