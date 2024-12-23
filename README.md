@@ -1,3 +1,7 @@
+**Howe: Newcastle cannot 'currently' sanction Dubravka exit**\
+`Eddie Howe insists Newcastle United cannot “currently” sanction an exit for Martin Dubravka, given the Slovakia international is starting, but has not entirely ruled out a late-January departure.`\
+https://nytimes.com/athletic/6015044/2024/12/23/martin-dubravka-newcastle-future-howe/
+
 **Emil Andrae's questionable reassignment a reminder Flyers are still focused on the future**\
 `Andrae is young and waiver-exempt. But is giving the defenseman more time in the AHL really the best option for the Flyers?`\
 https://nytimes.com/athletic/6013633/2024/12/23/flyers-emil-andrae-reassignment-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/style/plus-size-model-diversity.html
 **The Typography Maestro Getting Calls From Greta Gerwig and Robert Eggers**\
 `Teddy Blanks, the designer behind the memorable movie titles for films like “Nosferatu” and “Barbie,” has quietly become Hollywood’s go-to guy.`\
 https://nytimes.com/2024/12/23/style/teddy-blanks-typeface-design-wicked-barbie-nosferatu.html
-
-**The Oldest Children’s Museum Strives to Be of Brooklyn (and Analog)**\
-`The organization has its eyes on the whole borough, its leader, Atiba T. Edwards, says.`\
-https://nytimes.com/2024/12/23/arts/design/childrens-museum-brooklyn-anniversary.html
 
