@@ -1,3 +1,7 @@
+**MLB Hot Stove mailbag: Recruiting Sasaki, landing Burnes, post-Soto Yankees, and trade talk**\
+`Plus, what exactly are the Blue Jays doing? `\
+https://nytimes.com/athletic/6015040/2024/12/23/mlb-hot-stove-trades-yankees-sasaki-burnes/
+
 **Decisions About Gender-Affirming Care**\
 `Readers discuss a David French column about a Tennessee legal case. Also: Crime and remorse; ultraprocessed foods; ageism in politics. `\
 https://nytimes.com/2024/12/23/opinion/letters/gender-affirming-care.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015633/2024/12/23/rickey-henderson-stats-the-windu
 **Final thoughts on how Ohio State dominated Tennessee — and what it means for Oregon**\
 `Ohio State quickly made any concerns about the matchup with Tennessee moot. Here's how the Buckeyes beat the Vols with ease.`\
 https://nytimes.com/athletic/6015340/2024/12/23/ohio-state-playoff-tennessee-oregon/
-
-**Alfa Anderson, Singer With Chic, Dies at 78**\
-`She sang the famous refrain “Le freak, c’est chic,” on one of disco’s biggest hits and was a sought-after vocalist for many prominent artists.`\
-https://nytimes.com/2024/12/23/arts/music/alfa-anderson-dead.html
 
