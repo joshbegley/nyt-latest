@@ -1,3 +1,7 @@
+**Read the Ethics Committee’s Report on Matt Gaetz**\
+`A report by the House Ethics Committee accused former Representative Matt Gaetz, Republican of Florida, of regularly paying for sex and using illegal drugs, and of having sexual relations with a 17-year-old girl in 2017.`\
+https://nytimes.com/interactive/2024/12/23/us/ethics-report-on-gaetz.html
+
 **Will You Have a White Christmas This Year?**\
 `Look up your location to find out.`\
 https://nytimes.com/interactive/2024/12/23/weather/2024-christmas-snow-weather-forecast.html
