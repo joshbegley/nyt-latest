@@ -1,3 +1,7 @@
+**AP men's basketball Top 25: Kentucky drops to No. 10 after Ohio State loss**\
+`Tennessee is the nation's No. 1 team, followed by Auburn at No. 2, for the third consecutive week in the AP men's basketball Top 25.`\
+https://nytimes.com/athletic/6016026/2024/12/23/ap-mens-basketball-top-25-poll-kentucky-auburn/
+
 **Michigan adds Fresno State transfer QB Mikey Keene**\
 `Mikey Keene, a two-year starter at Fresno State who began his career at UCF, committed to Michigan on Monday.`\
 https://nytimes.com/athletic/6016093/2024/12/23/mikey-keene-michigan-transfer-qb-fresno-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015971/2024/12/23/chris-koclanes-coach-dallas-wing
 **Sabrina Ionescu joins Unrivaled 3x3 league ahead of first season in January**\
 `Ionescu previously told The Athletic she was weighing joining the league for a variety of reasons.`\
 https://nytimes.com/athletic/6015990/2024/12/23/unrivaled-basketball-sabrina-ionescu-joins-phantom/
-
-**NFL Week 17 odds: Bengals open as favorites, Cowboys vs. Eagles, Christmas playoff implications**\
-`With just two weeks left in the regular season, Week 17 brings five full days of holiday football as teams try to clinch the postseason.`\
-https://nytimes.com/athletic/6015548/2024/12/23/nfl-week-17-odds-spreads-schedule-christmas/
 
