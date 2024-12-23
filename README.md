@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6016001/2024/12/23/notre-dame-rylie-mills-injury-ge
 
 **Browns' Stefanski 'hopeful' Thompson-Robinson will be able to play in Week 17**\
 `Second-year passer played through calf injury in Week 16. If DTR can't go, Browns will figure out their QB plans as the week goes. `\
-https://nytimes.com/athletic/6016155/2024/12/23/browns-stefanski-hopeful-qb-dorian-thompson-robinson-will-be-able-to-play-in-week-17/
+https://nytimes.com/athletic/6016155/2024/12/23/browns-dorian-thompson-robinson-calf-injury/
 
 **Our Favorite Food Stories of 2024**\
 `From a debate about the most delicious pasta dishes in Italy to a luxurious baked potato recipe, these are the most appetizing and surprising food features T published this year.`\
