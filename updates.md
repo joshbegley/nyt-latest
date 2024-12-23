@@ -1,3 +1,11 @@
+**Ex-Penn State backup QB Beau Pribula transfers to Missouri**\
+`Pribula entered the transfer portal last week ahead of Penn State’s first-ever appearance in the College Football Playoff.`\
+https://nytimes.com/athletic/6014445/2024/12/22/beau-pribula-missouri-penn-state-transfer/
+
+**Florida adds 5-star WR Dallas Wilson after his Oregon release**\
+`With his addition, Florida’s class moved to No. 10 nationally.`\
+https://nytimes.com/athletic/6014481/2024/12/22/florida-dallas-wilson-oregon-flip/
+
 **Despite team's support, Jerod Mayo's seat feels a bit warmer after another Patriots loss**\
 `The Patriots are 3-12 and have lost five straight. With Mike Vrabel available, has Jerod Mayo done enough to earn a second season?`\
 https://nytimes.com/athletic/6014333/2024/12/22/patriots-loss-jerod-mayo-job-bills/
