@@ -1,3 +1,7 @@
+**Nordstrom Family Strikes Deal to Buyout Namesake Chain**\
+`The business will be acquired by members of the family and El Puerto de Liverpool, a Mexican real estate and department store company that has owned a stake in Nordstrom since 2022.`\
+https://nytimes.com/2024/12/23/business/nordstrom-private-company-founding-family.html
+
 **The Windup: Rickey, a HOFer even without the steals**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6015633/2024/12/23/rickey-henderson-stats-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5940994/2024/12/23/walker-buehler-contract-red-sox-
 **The Bounce: Is it time to trade De'Aaron Fox? Plus, your NBA Stock Report!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6015248/2024/12/23/deaaron-fox-kings-nba-christmas-anthony-edwards-timberwolves-the-bounce/
-
-**The New York Bookstore That Lets You Visit France for an Afternoon**\
-`Albertine, in a Fifth Avenue mansion, is a portal to both Gilded Age New York and the Francophone world.`\
-https://nytimes.com/2024/12/23/t-magazine/albertine-french-bookstore-new-york-212.html
 
