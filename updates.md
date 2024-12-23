@@ -1,3 +1,7 @@
+**An Architect of Trump’s Tough Latin America Policies Is Named Envoy**\
+`A longtime proponent of harsh sanctions, Mauricio Claver-Carone was forced out of his job at the Inter-American Development Bank in 2022.`\
+https://nytimes.com/2024/12/23/us/politics/trump-latin-america-envoy.html
+
 **Maple Leafs report cards: John Tavares scores twice but individual mistakes prove costly**\
 `Tavares scored his 200th goal as a Leaf, but no other Toronto players could beat Connor Hellebuyck.`\
 https://nytimes.com/athletic/6016321/2024/12/23/maple-leafs-report-cards-tavares-jets/
