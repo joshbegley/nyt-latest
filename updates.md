@@ -1,3 +1,11 @@
+**Will You Have a White Christmas This Year?**\
+`Look up your location to find out.`\
+https://nytimes.com/interactive/2024/12/23/weather/2024-christmas-snow-weather-forecast.html
+
+**Gaetz was Trump’s initial pick to be attorney general.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2024/12/23/us/matt-gaetz-report-trump-news/gaetz-was-trumps-initial-pick-to-be-attorney-general
+
 **Cowboys Today: Why does CeeDee Lamb continue playing through shoulder injury?**\
 `CeeDee Lamb willing to "put his body out there on the line" and Cowboys make right choice to not let Brandon Aubrey try long field goal`\
 https://nytimes.com/athletic/6015663/2024/12/23/cowboys-today-ceedee-lamb-shoulder-brandon-aubrey/
