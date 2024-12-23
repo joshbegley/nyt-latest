@@ -1,3 +1,11 @@
+**Jordan Henderson's year of living differently**\
+`The former Liverpool captain has won over the Ajax doubters in Amsterdam - his quiet stability is proving quietly effective `\
+https://nytimes.com/athletic/6012945/2024/12/23/jordan-henderson-ajax-year-of-living-differently/
+
+**Caring, counselling - and no Christmas: Life in a football club's medical department**\
+`Stressed managers, emotional players and high-stakes decisions. Life as a football medic is not easy`\
+https://nytimes.com/athletic/5986253/2024/12/23/premier-league-medical-department/
+
 **Watching Southampton within earshot of Ivan Juric: 'Come on, come on, come on!'**\
 `Sitting close to Southampton's new manager, it was clear he wants his team to play in a very different way than they have done this season`\
 https://nytimes.com/athletic/6013294/2024/12/23/southampton-ivan-juric-fulham/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/23/world/europe/ireland-catholic-priest-abuse.html
 **When Being Together During the Holidays Is Impossible, Send Treats**\
 `I miss the magic and the chaos of a big family gathering — until a box of cookies turns up on my porch.`\
 https://nytimes.com/2024/12/23/dining/cookies-family-holidays.html
-
-**Week 16 NFL playoff picture: Lions, Chiefs closing in on top seeds; Falcons lead NFC South**\
-`The top seed in the NFC could come down to an epic Week 18 showdown between two NFC North rivals. `\
-https://nytimes.com/athletic/6006774/2024/12/22/week-16-nfl-playoff-picture-chiefs-lions-top-seeds/
-
-**Josh Allen throwing hand scare, Cam Lewis' interception, other observations in victory vs. Patriots**\
-`Plus, James Cook puts on a show once again.`\
-https://nytimes.com/athletic/6014594/2024/12/22/bills-win-josh-allen-observations-patriots/
 
