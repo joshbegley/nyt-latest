@@ -1,3 +1,7 @@
+**This feels different for Liverpool and Arne Slot's relentless team**\
+`Liverpool are clear at the top at Christmas - they have been caught before but they appear in control and Manchester City are fading`\
+https://nytimes.com/athletic/6013254/2024/12/23/liverpool-arne-slot-premier-league-top/
+
 **Word of the Day: expediency**\
 `This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/23/learning/word-of-the-day-expediency.html

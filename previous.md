@@ -1,3 +1,7 @@
+**This feels different for Liverpool and Arne Slot's relentless team**\
+`Liverpool are clear at the top at Christmas - they have been caught before but they appear in control and Manchester City are fading`\
+https://nytimes.com/athletic/6013254/2024/12/23/liverpool-arne-slot-premier-league-top/
+
 **Word of the Day: expediency**\
 `This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/23/learning/word-of-the-day-expediency.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006231/2024/12/23/zaha-olise-eze-sarr-crystal-pala
 **The numbers behind Alexander Isak's incredible 2024 - and the record he could still break**\
 `Only Erling Haaland and Cole Palmer have scored more Premier League goals than Newcastle's No 9 in 2024`\
 https://nytimes.com/athletic/6008916/2024/12/23/alexander-isak-newcastle-goals-2024/
-
-**Why there is no defence for error-strewn Leicester City**\
-`Seven goals have been conceded without reply in the last two fixtures. Such defensive generosity has to stop or Leicester won't survive `\
-https://nytimes.com/athletic/6012916/2024/12/23/leicester-city-wolves-loss-analysis/
 
