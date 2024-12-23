@@ -2,7 +2,7 @@
 `Plus, James Cook puts on a show once again.`\
 https://nytimes.com/athletic/6014594/2024/12/22/bills-win-josh-allen-observations-patriots/
 
-**Raiders, Mark Davis celebrate first victory in three months — draft position be damned**\
+**Raiders, Mark Davis celebrate first victory in 3 months — draft position be damned**\
 `The Raiders moved down to sixth in the updated draft order, but they'll happily take Sunday's 19-14 home victory over the Jaguars.`\
 https://nytimes.com/athletic/6014402/2024/12/22/raiders-win-mark-davis-jaguars/
 
