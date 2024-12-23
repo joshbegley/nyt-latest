@@ -1,3 +1,7 @@
+**Silicon Valley Heads to Washington**\
+`President-elect Donald Trump is tapping the technology sector for key roles, and executives from the venture capital firm Andreessen Horowitz are featuring heavily.`\
+https://nytimes.com/2024/12/23/business/dealbook/silicon-valley-trump-administration.html
+
 **Arsenal's Saka 'out for many weeks' with hamstring injury - Arteta**\
 `Bukayo Saka faces &#8220;many weeks&#8221; on the sidelines with a hamstring injury while Arsenal team-mate Raheem Sterling will also be unavailable for a similar timeframe, Mikel Arteta has said.`\
 https://nytimes.com/athletic/6012427/2024/12/23/bukayo-saka-arsenal-injury-update/
