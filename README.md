@@ -3,7 +3,7 @@
 https://nytimes.com/2024/12/23/world/europe/slovak-leader-visits-putin.html
 
 **Notre Dame DT Rylie Mills ruled out for rest of Playoff**\
-`Rylie Mills, a Notre Dame senior captain at DT, injured his knee against Indiana and will miss the rest of the College Football Playoff.`\
+`Rylie Mills, a Notre Dame senior captain at DT, injured his knee against Indiana and will miss the Sugar Bowl vs. Georgia.`\
 https://nytimes.com/athletic/6016001/2024/12/23/notre-dame-rylie-mills-injury-georgia/
 
 **Browns' Stefanski 'hopeful' Thompson-Robinson will be able to play in Week 17**\
