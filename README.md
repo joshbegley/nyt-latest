@@ -1,3 +1,7 @@
+**An Architect of Trump’s Tough Latin America Policies Is Named Envoy**\
+`A longtime proponent of harsh sanctions, Mauricio Claver-Carone was forced out of his job at the Inter-American Development Bank in 2022.`\
+https://nytimes.com/2024/12/23/us/politics/trump-latin-america-envoy.html
+
 **Eagles' Sirianni: Hurts enters concussion protocol, no update on Pickett**\
 `Philadelphia is a win away from clinching the NFC East and will look to do so in Week 17 at home against the Dallas Cowboys. `\
 https://nytimes.com/athletic/6016611/2024/12/23/eagles-nick-sirianni-jalen-hurts-concussion-kenny-pickett/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/us/santa-polls-believe.html
 **Donor Expected to Admit to Making Illegal Contributions to Adams**\
 `Federal prosecutors said they planned to charge a businessman who has close ties to New York’s Turkish community with conspiracy to commit fraud.`\
 https://nytimes.com/2024/12/23/nyregion/adams-corruption-contributions-businessman.html
-
-**Georgia vs. Notre Dame: How to watch, picks, odds for CFP quarterfinal at Sugar Bowl**\
-`Georgia is a small favorite against Notre Dame but will likely be without starting quarterback Carson Beck.`\
-https://nytimes.com/athletic/6016744/2024/12/23/georgia-notre-dame-how-to-watch-picks-odds-college-football-playoff/
 
