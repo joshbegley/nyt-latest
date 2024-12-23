@@ -1,3 +1,7 @@
+**Emil Andrae's questionable reassignment a reminder Flyers are still focused on the future**\
+`Andrae is young and waiver-exempt. But is giving the defenseman more time in the AHL really the best option for the Flyers?`\
+https://nytimes.com/athletic/6013633/2024/12/23/flyers-emil-andrae-reassignment-future/
+
 **Nottingham Forest confirm Souloukou as new CEO**\
 `Nottingham Forest have confirmed the appointment of Lina Souloukou as the club’s new chief executive officer (CEO).`\
 https://nytimes.com/athletic/6015018/2024/12/23/lina-souloukou-nottingham-forest-ceo/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/style/teddy-blanks-typeface-design-wicked-barbie-
 **The Oldest Children’s Museum Strives to Be of Brooklyn (and Analog)**\
 `The organization has its eyes on the whole borough, its leader, Atiba T. Edwards, says.`\
 https://nytimes.com/2024/12/23/arts/design/childrens-museum-brooklyn-anniversary.html
-
-**Why enrolling early has become a popular trend at Wisconsin and across college football**\
-`The Badgers will welcome a program-record 15 early enrollees this January as more players seek the benefits of spring practices.`\
-https://nytimes.com/athletic/6010251/2024/12/23/early-enrollees-college-football-wisconsin-fresman/
 
