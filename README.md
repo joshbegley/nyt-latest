@@ -1,3 +1,7 @@
+**Final thoughts on how Ohio State dominated Tennessee — and what it means for Oregon**\
+`Ohio State quickly made any concerns about the matchup with Tennessee moot. Here's how the Buckeyes beat the Vols with ease.`\
+https://nytimes.com/athletic/6015340/2024/12/23/ohio-state-playoff-tennessee-oregon/
+
 **Alfa Anderson, ‘Chic’ Singer, Dies at 78**\
 `She sang the famous refrain “Le freak, c’est chic,” on one of disco’s biggest hits and was a sought-after vocalist for many prominent artists.`\
 https://nytimes.com/2024/12/23/arts/music/alfa-anderson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/t-magazine/albertine-french-bookstore-new-york-21
 **A Canceled Vote in Romania Hands Russia a Propaganda Coup**\
 `Many in the West have applauded the annulling of the first round of the presidential election, won by a Moscow-friendly candidate, but even his critics say it raises troubling questions about Romanian democracy.`\
 https://nytimes.com/2024/12/23/world/europe/romania-election-russia.html
-
-**Valencia sack head coach Ruben Baraja**\
-`Valencia have sacked head coach Ruben Baraja after winning just two of their opening 17 La Liga matches this season.`\
-https://nytimes.com/athletic/6015435/2024/12/23/ruben-baraja-sacked-valencia-manager/
 
