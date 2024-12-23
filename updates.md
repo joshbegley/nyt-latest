@@ -1,3 +1,11 @@
+**AP men's basketball Top 25: Kentucky drops to No. 10 after Ohio State loss**\
+`Tennessee is the nation's No. 1 team, followed by Auburn at No. 2, for the third consecutive week in the AP men's basketball Top 25.`\
+https://nytimes.com/athletic/6016026/2024/12/23/ap-mens-basketball-top-25-poll-kentucky-auburn/
+
+**The Trumpian Attitude at the Heart of the Gaetz Report**\
+`Both men display the same contempt for the law.`\
+https://nytimes.com/2024/12/23/opinion/gaetz-trump-ethics-report.html
+
 **Michigan adds Fresno State transfer QB Mikey Keene**\
 `Mikey Keene, a two-year starter at Fresno State who began his career at UCF, committed to Michigan on Monday.`\
 https://nytimes.com/athletic/6016093/2024/12/23/mikey-keene-michigan-transfer-qb-fresno-state/
