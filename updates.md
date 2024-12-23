@@ -1,3 +1,7 @@
+**Late lapses vs. Vikings leave Seahawks in a familiar place, with season on the brink**\
+`Geno Smith led dazzling drives but also threw back-breaking INTs, and Mike Macdonald's defense faltered late as Seattle's hopes grew dim.`\
+https://nytimes.com/athletic/6014479/2024/12/22/seahawks-loss-geno-smith-playoff-chances-vikings/
+
 **‘Dune: Prophecy’ Season 1 Finale Recap: Building the Perfect Beast**\
 `Valya confronts the limits of her power, and a terrifying truth comes to light about Desmond’s history.`\
 https://nytimes.com/2024/12/22/arts/television/dune-prophecy-recap-season-1-finale.html
