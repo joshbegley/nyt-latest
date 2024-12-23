@@ -1,3 +1,7 @@
+**Week 16 NFL playoff picture: Lions, Chiefs closing in on top seeds; Falcons lead NFC South**\
+`The top seed in the NFC could come down to an epic Week 18 showdown between two NFC North rivals. `\
+https://nytimes.com/athletic/6006774/2024/12/22/week-16-nfl-playoff-picture-chiefs-lions-top-seeds/
+
 **Josh Allen throwing hand scare, Cam Lewis' interception, other observations in victory vs. Patriots**\
 `Plus, James Cook puts on a show once again.`\
 https://nytimes.com/athletic/6014594/2024/12/22/bills-win-josh-allen-observations-patriots/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6014251/2024/12/22/commanders-jayden-daniels-win-ea
 **Ex-Penn State backup QB Beau Pribula transfers to Missouri**\
 `Pribula entered the transfer portal last week ahead of Penn State’s first-ever appearance in the College Football Playoff.`\
 https://nytimes.com/athletic/6014445/2024/12/22/beau-pribula-missouri-penn-state-transfer/
-
-**Florida adds 5-star WR Dallas Wilson after his Oregon release**\
-`With his addition, Florida’s class moved to No. 10 nationally.`\
-https://nytimes.com/athletic/6014481/2024/12/22/florida-dallas-wilson-oregon-flip/
 
