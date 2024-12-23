@@ -1,3 +1,11 @@
+**'Nobody writes our story': Lions remain focused while NFC North still up for grabs**\
+`The Lions' goals are still in sight after a commanding win against the Bears.`\
+https://nytimes.com/athletic/6013851/2024/12/22/lions-win-blowout-bears/
+
+**Bills beat Patriots 24-21 to stay in pursuit of AFC's top seed: Takeaways**\
+`MVP frontrunner Josh Allen threw for one touchdown, while running back James Cook added two scores in the victory.`\
+https://nytimes.com/athletic/6012887/2024/12/22/patriots-bills-score-result-takeaways/
+
 **Redemption for Chuba Hubbard, whose $33 million extension already looks like a bargain**\
 `Hubbard ran for 152 yards and put his overtime fumble vs. the Bucs in Week 13 behind with two huge runs in overtime to beat the Cardinals.`\
 https://nytimes.com/athletic/6014065/2024/12/22/panthers-win-chuba-hubbard-cardinals/
