@@ -1,3 +1,7 @@
+**Phillies sign Joe Ross to one-year deal as swingman**\
+`Ross had a 3.77 ERA for the Brewers in 2024 while making 10 starts and 15 relief appearances.`\
+https://nytimes.com/athletic/6016556/2024/12/23/phillies-joe-ross/
+
 **Phillies to sign Joe Ross to one-year deal as swingman: Sources**\
 `Ross had a 3.77 ERA for the Brewers in 2024 while making 10 starts and 15 relief appearances.`\
 https://nytimes.com/athletic/6016556/2024/12/23/phillies-joe-ross/
