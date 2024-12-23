@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo, Bucks can't fathom why they aren't playing on Christmas: 'Disrespectful'**\
+`While there was initial disappointment, it has turned into gratefulness over an unexpected chance to spend time with family on the holiday.`\
+https://nytimes.com/athletic/6008028/2024/12/23/bucks-giannis-antetokounmpo-nba-christmas-game-snub/
+
 **Howe: Newcastle cannot 'currently' sanction Dubravka exit**\
 `Eddie Howe insists Newcastle United cannot “currently” sanction an exit for Martin Dubravka, given the Slovakia international is starting, but has not entirely ruled out a late-January departure.`\
 https://nytimes.com/athletic/6015044/2024/12/23/martin-dubravka-newcastle-future-howe/
