@@ -1,3 +1,7 @@
+**Trump Picks Callista Gingrich for Ambassador to Switzerland**\
+`In announcing his choice of various envoys, including ambassador to Denmark, the president-elect again floated the idea of the United States acquiring Greenland.`\
+https://nytimes.com/2024/12/22/us/politics/trump-callista-gingrich-ambassador-switzerland.html
+
 **Jayden Daniels maintains calm approach as Commanders come from behind to stun Eagles**\
 `The rookie QB had to wear his superhero cape to lead Washington over the NFC East-leading Eagles.`\
 https://nytimes.com/athletic/6014251/2024/12/22/commanders-jayden-daniels-win-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6013953/2024/12/22/jets-loss-rams-mike-lafleur-retu
 **As Eagles fail to clinch NFC East, Jalen Hurts' concussion is another concern**\
 `Eagles' "sloppy" performance cost them against the Commanders.`\
 https://nytimes.com/athletic/6013120/2024/12/22/eagles-loss-sloppy-performance-commanders/
-
-**What Caleb Williams' big-time throws mean in another ugly Bears loss**\
-`Williams and the Bears have lost nine games in a row. He hasn't thrown an interception in any of them. That's a first for an NFL QB.`\
-https://nytimes.com/athletic/6013911/2024/12/22/bears-caleb-williams-development-lions/
 

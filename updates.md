@@ -1,3 +1,7 @@
+**Trump Picks Callista Gingrich for Ambassador to Switzerland**\
+`In announcing his choice of various envoys, including ambassador to Denmark, the president-elect again floated the idea of the United States acquiring Greenland.`\
+https://nytimes.com/2024/12/22/us/politics/trump-callista-gingrich-ambassador-switzerland.html
+
 **Despite team's support, Jerod Mayo's seat feels a bit warmer after another Patriots loss**\
 `The Patriots are 3-12 and have lost five straight. With Mike Vrabel available, has Mayo done enough to earn a second season?`\
 https://nytimes.com/athletic/6014333/2024/12/22/patriots-loss-jerod-mayo-job-bills/
