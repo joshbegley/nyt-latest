@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6014242/2024/12/22/raptors-bad-clutch-offence-nba/
 
 **Late lapses vs. Vikings leave Seahawks in a familiar place, with season on the brink**\
-`Geno Smith led dazzling drives but also threw back-breaking INTs, and Mike Macdonald's defense faltered late as Seattle's hopes grew dim.`\
+`Geno Smith led dazzling drives but also threw backbreaking INTs, and Mike Macdonald's defense faltered late as Seattle's hopes grew dim.`\
 https://nytimes.com/athletic/6014479/2024/12/22/seahawks-loss-geno-smith-playoff-chances-vikings/
 
 **‘Dune: Prophecy’ Season 1 Finale Recap: Building the Perfect Beast**\
