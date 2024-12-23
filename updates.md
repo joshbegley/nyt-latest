@@ -1,3 +1,7 @@
+**Trey Murphy’s offensive development can be a win in the Pelicans' lost season**\
+`With injuries putting the ball in his hands more often, Murphy is growing, even as his 3s don't fall. `\
+https://nytimes.com/athletic/6013824/2024/12/23/trey-murphys-pelicans-improvement-nba/
+
 **The Best Times Graphics of 2024**\
 `Our visual journalists are always on the prowl for innovative ways to tell big news stories.`\
 https://nytimes.com/2024/12/23/briefing/best-times-graphics-of-2024.html
