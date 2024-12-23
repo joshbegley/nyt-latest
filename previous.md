@@ -1,3 +1,35 @@
+**Review: Natasha, Pierre and the Great Comet of Who Knows When**\
+`Dave Malloy’s musical, which was a hit in New York, comes to London in an antirealist staging that loses the 1812 setting and some emotional punch.`\
+https://nytimes.com/2024/12/23/theater/natasha-pierre-and-the-great-comet-of-1812-london-donmar.html
+
+**8 Months Inside New York’s Migrant Shelters: Fear, Joy and Hope**\
+`A reporter and photographer documented life in New York City’s shelter system for migrants, through the eyes of those living there.`\
+https://nytimes.com/2024/12/23/nyregion/nyc-migrant-shelters.html
+
+**Dateline: Yonder Star**\
+`As Christmas nears, New York Times journalists send dispatches from places like Santa Claus, Ind., and North Pole, N.Y.`\
+https://nytimes.com/2024/12/23/insider/dateline-yonder-star.html
+
+**New York City’s Secret Weapon in the War on Rats: Katie the Dog**\
+`She roams Brooklyn’s parks and streets in search of prey. It’s not hard to find.`\
+https://nytimes.com/2024/12/23/nyregion/katie-dog-rat-hunter.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/23/crosswords/spelling-bee-forum.html
+
+**Our Photographer’s Look Inside New York’s Migrant Shelters**\
+`Just over 225,000 migrants have entered New York City since 2022, and more than $6 billion has been spent on a hodgepodge of shelters that morphed into the largest system of emergency housing for migrants in the country.`\
+https://nytimes.com/video/us/100000009870699/our-photographers-look-inside-new-yorks-migrant-shelters.html
+
+**Robbie Williams Never Broke the U.S. Can His Biopic?**\
+`He had 14 No. 1 singles in Britain, but is not well known in America. In the new movie “Better Man,” he’s played by a CGI monkey.`\
+https://nytimes.com/2024/12/23/movies/robbie-williams-better-man.html
+
+**The Son Who Couldn’t Leave**\
+`Paul Barreto’s father, Mickey, lived at the New Yorker Hotel in Manhattan for five years, paying only $200.57. Paul was desperate to escape.`\
+https://nytimes.com/2024/12/23/nyregion/the-son-who-couldnt-leave.html
+
 **This feels different for Liverpool and Arne Slot's relentless team**\
 `Liverpool are clear at the top at Christmas - they have been caught before but they appear in control and Manchester City are fading`\
 https://nytimes.com/athletic/6013254/2024/12/23/liverpool-arne-slot-premier-league-top/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6013254/2024/12/23/liverpool-arne-slot-premier-leag
 **Word of the Day: expediency**\
 `This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/12/23/learning/word-of-the-day-expediency.html
-
-**Your Christmas Day Lineup, Plus 4 Things to Watch on TV this Week**\
-`Get ready for football games, floats and Beyoncé, oh my! And start preparing for the new year with specials looking back at 2024.`\
-https://nytimes.com/2024/12/23/arts/television/your-christmas-day-lineup-plus-4-things-to-watch-on-tv-this-week.html
-
-**Trump and Biden, Make the Hostages Your Priority**\
-`I was held captive in Gaza. Healing will only happen when all the captives have been brought home.`\
-https://nytimes.com/2024/12/23/opinion/trump-and-biden-make-the-hostages-your-priority.html
-
-**Cowboys stifle Bucs 26-24 to shake up NFC South standings: Takeaways**\
-`DaRon Bland's strip and recovery on the Bucs' final drive clinched the Cowboys' win after a wild sequence.`\
-https://nytimes.com/athletic/6014002/2024/12/23/cowboys-buccaneers-snf-score-result-takeaways/
-
-**The Friedkin Group's start at Everton: Plan to help Dyche, impressed staff, fans lifted**\
-`After a landmark week and a takeover of Everton, the skies now appear to be clearing at Goodison Park`\
-https://nytimes.com/athletic/6013044/2024/12/23/friedkin-takeover-everton-goodison-chelsea/
-
-**Enzo Maresca is content but are Chelsea a false second?**\
-`Chelsea could have gone top, briefly, with a win at Everton - but were grateful to draw. Still, they are ahead of their expectations`\
-https://nytimes.com/athletic/6013176/2024/12/23/chelsea-maresca-everton-draw-premier-league/
-
-**Aaron Wan-Bissaka is getting his career back on track at West Ham**\
-`The right back helped the Hammers seal a point against Brighton, and has been one of the club's most consistent performers this season`\
-https://nytimes.com/athletic/6011013/2024/12/23/aaron-wan-bissaka-west-ham-brighton/
-
-**With Zaha and Olise back at Selhurst, it's time to ask: Have Palace truly replaced them?**\
-`A couple of familiar faces were in attendance for Saturday evening's match vs Arsenal - can the likes of Ismaila Sarr ever replace them?`\
-https://nytimes.com/athletic/6006231/2024/12/23/zaha-olise-eze-sarr-crystal-palace-arsenal/
-
-**The numbers behind Alexander Isak's incredible 2024 - and the record he could still break**\
-`Only Erling Haaland and Cole Palmer have scored more Premier League goals than Newcastle's No 9 in 2024`\
-https://nytimes.com/athletic/6008916/2024/12/23/alexander-isak-newcastle-goals-2024/
 
