@@ -1,3 +1,11 @@
+**Phillies to sign Joe Ross to one-year deal as swingman: Sources**\
+`Ross had a 3.77 ERA for the Brewers in 2024 while making 10 starts and 15 relief appearances.`\
+https://nytimes.com/athletic/6016556/2024/12/23/phillies-joe-ross/
+
+**Trump’s Wish to Control Greenland and Panama Canal: Not a Joke This Time**\
+`In recent days the president-elect has called for asserting U.S. control over the Panama Canal and Greenland, showing that his “America First” philosophy has an expansionist dimension.`\
+https://nytimes.com/2024/12/23/us/politics/trump-greenland-panama-canal.html
+
 **Jets QB Aaron Rodgers: Without leaks 'it will be a little easier to win'**\
 `Rodgers comments come a day after Jets' latest loss drops New York to 4-11 in a season that started with Super Bowl expectations. `\
 https://nytimes.com/athletic/6016386/2024/12/23/aaron-rodgers-jets-leaks-comments-pat-mcafee/
