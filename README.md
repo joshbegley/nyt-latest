@@ -1,3 +1,7 @@
+**Redemption for Chuba Hubbard, whose $33 million extension already looks like a bargain**\
+`Hubbard ran for 152 yards and put his overtime fumble vs. the Bucs in Week 13 behind with two huge runs in overtime to beat the Cardinals.`\
+https://nytimes.com/athletic/6014065/2024/12/22/panthers-win-chuba-hubbard-cardinals/
+
 **How Raiders 19-14 win over Jaguars affects 2025 NFL Draft order: Takeaways**\
 `The Raiders, who entered Sunday with the No. 2 pick, dropped to pick No. 6 by beating Jacksonville.`\
 https://nytimes.com/athletic/6012893/2024/12/22/jaguars-raiders-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012879/2024/12/22/vikings-seahawks-score-result-ta
 **Alex Caruso, Thunder agree to 4-year, $81 million contract extension**\
 `The 30-year-old, known as one of the NBA's best perimeter defenders, was acquired in a trade with Chicago last summer.`\
 https://nytimes.com/athletic/6013389/2024/12/22/alex-caruso-contract-thunder-extension/
-
-**Tyler Higbee's emotional return propels Rams to eighth win in 10 games**\
-`The Rams improved to 9-6 with the win Sunday and lead the NFC West after the Seahawks lost.`\
-https://nytimes.com/athletic/6013815/2024/12/22/rams-win-tyler-higbee-jets/
 
