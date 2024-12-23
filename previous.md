@@ -1,3 +1,7 @@
+**What Caleb Williams' big-time throws mean in another ugly Bears loss**\
+`Williams and the Bears have lost nine games in a row. He hasn't thrown an interception in any of them. That's a first for an NFL QB.`\
+https://nytimes.com/athletic/6013911/2024/12/22/bears-caleb-williams-development-lions/
+
 **Finally in alignment, Commanders play winning football — and win in Congress, too**\
 `Washington put together a good third quarter of football, overcame a 13-point deficit and moved to the brink of a wild-card berth.`\
 https://nytimes.com/athletic/6013067/2024/12/22/commanders-defeat-eagles-aldridge/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6013067/2024/12/22/commanders-defeat-eagles-aldridg
 https://nytimes.com/athletic/6013851/2024/12/22/lions-win-blowout-bears/
 
 **Bills beat Patriots 24-21 to stay in pursuit of AFC's top seed: Takeaways**\
-`MVP frontrunner Josh Allen threw for one touchdown, while running back James Cook added two scores in the victory.`\
+`MVP front-runner Josh Allen threw for one touchdown and running back James Cook added two more TDs in the victory.`\
 https://nytimes.com/athletic/6012887/2024/12/22/patriots-bills-score-result-takeaways/
 
 **Redemption for Chuba Hubbard, whose $33 million extension already looks like a bargain**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/22/podcasts/if-you-want-to-destroy-my-sweater-this-a
 **‘All In’ Review: A Slight Affair for John Mulaney-Led Comedy About Love**\
 `A talented cast has fun in Simon Rich’s Broadway debut, but the minimally staged show doesn’t quite justify the hefty price of tickets.`\
 https://nytimes.com/2024/12/22/theater/all-in-review.html
-
-**The Giants are officially the worst team in football. But we already knew that**\
-`The Giants’ 100th season was supposed to be a celebration of the franchise’s history. Instead, they’re suffering through a season from hell.`\
-https://nytimes.com/athletic/6013969/2024/12/22/giants-loss-brian-daboll-joe-schoen-top-pick/
 

@@ -1,3 +1,11 @@
+**What Caleb Williams' big-time throws mean in another ugly Bears loss**\
+`Williams and the Bears have lost nine games in a row. He hasn't thrown an interception in any of them. That's a first for an NFL QB.`\
+https://nytimes.com/athletic/6013911/2024/12/22/bears-caleb-williams-development-lions/
+
+**Bills beat Patriots 24-21 to stay in pursuit of AFC's top seed: Takeaways**\
+`MVP front-runner Josh Allen threw for one touchdown and running back James Cook added two more TDs in the victory.`\
+https://nytimes.com/athletic/6012887/2024/12/22/patriots-bills-score-result-takeaways/
+
 **Finally in alignment, Commanders play winning football — and win in Congress, too**\
 `Washington put together a good third quarter of football, overcame a 13-point deficit and moved to the brink of a wild-card berth.`\
 https://nytimes.com/athletic/6013067/2024/12/22/commanders-defeat-eagles-aldridge/
