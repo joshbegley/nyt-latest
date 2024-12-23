@@ -1,3 +1,7 @@
+**The Windup: Rickey, a HOFer even without the steals**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6015633/2024/12/23/rickey-henderson-stats-the-windup/
+
 **Final thoughts on how Ohio State dominated Tennessee — and what it means for Oregon**\
 `Ohio State quickly made any concerns about the matchup with Tennessee moot. Here's how the Buckeyes beat the Vols with ease.`\
 https://nytimes.com/athletic/6015340/2024/12/23/ohio-state-playoff-tennessee-oregon/
