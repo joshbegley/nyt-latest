@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6016075/2024/12/23/rangers-scratch-chris-kreider/
 
 **The Trumpian Attitude at the Heart of the Gaetz Report**\
 `Both men display the same contempt for the law.`\
-https://nytimes.com/live/2024/12/17/opinion/thepoint/gaetz-trump-ethics-report
+https://nytimes.com/2024/12/23/opinion/gaetz-trump-ethics-report.html
 
 **Chris Koclanes named coach of Dallas Wings**\
 `Chris Koclanes spent eight seasons before rejoining college basketball in the WNBA, working under Wings general manager Curt Miller.`\
