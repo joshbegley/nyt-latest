@@ -1,3 +1,7 @@
+**Weekend NHL rankings: Canucks drama, Stars dropping and holiday wishes for all**\
+`The NHL offers 13 games tonight before a short holiday break: just enough time to spend a few extra days making merry or wallowing in gloom.`\
+https://nytimes.com/athletic/6013710/2024/12/23/nhl-weekend-rankings-canucks-stars-holidays/
+
 **The team who won too much**\
 `There is a risk that the club's recent dominance starts to make Sweden’s model look less like a strength, and more like a weakness`\
 https://nytimes.com/athletic/6007229/2024/12/23/malmo-sweden-football-ownership-prize-money/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/briefing/best-times-graphics-of-2024.html
 **Top Arab Diplomats Visit Syria to Build Ties With New Leadership**\
 `Ministers from Jordan and Qatar were among the first high-ranking Arab diplomats to meet with the leader of the rebel coalition that toppled the Syrian regime two weeks ago.`\
 https://nytimes.com/2024/12/23/world/middleeast/syria-arab-relations.html
-
-**Transfer portal takeaways: How Bill Belichick, UNC are faring, where top players are landing**\
-`We dive into the biggest takeaways from the first two weeks of portal action.`\
-https://nytimes.com/athletic/6014440/2024/12/23/college-football-transfer-portal-bill-belichick-winners-losers/
 
