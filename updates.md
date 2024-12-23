@@ -1,3 +1,11 @@
+**Despite team's support, Jerod Mayo's seat feels a bit warmer after another Patriots loss**\
+`The Patriots are 3-12 and have lost five straight. With Mike Vrabel available, has Jerod Mayo done enough to earn a second season?`\
+https://nytimes.com/athletic/6014333/2024/12/22/patriots-loss-jerod-mayo-job-bills/
+
+**As Eagles fail to clinch NFC East, Jalen Hurts' concussion is another concern**\
+`Eagles' 'sloppy' performance cost them against the Commanders.`\
+https://nytimes.com/athletic/6013120/2024/12/22/eagles-loss-sloppy-performance-commanders/
+
 **Dolphins keep slim playoff chances after 29-17 win over 49ers: Takeaways**\
 `The Dolphins (7-8) led most of the way, including throughout the second half, on the way to their fifth win in the past seven games.`\
 https://nytimes.com/athletic/6012903/2024/12/22/dolphins-49ers-score-result-takeaways/

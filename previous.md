@@ -1,3 +1,7 @@
+**Despite team's support, Jerod Mayo's seat feels a bit warmer after another Patriots loss**\
+`The Patriots are 3-12 and have lost five straight. With Mike Vrabel available, has Jerod Mayo done enough to earn a second season?`\
+https://nytimes.com/athletic/6014333/2024/12/22/patriots-loss-jerod-mayo-job-bills/
+
 **Dolphins keep slim playoff chances after 29-17 win over 49ers: Takeaways**\
 `The Dolphins (7-8) led most of the way, including throughout the second half, on the way to their fifth win in the past seven games.`\
 https://nytimes.com/athletic/6012903/2024/12/22/dolphins-49ers-score-result-takeaways/
@@ -14,8 +18,8 @@ https://nytimes.com/2024/12/22/us/trump-pentagon-defense-nominees.html
 `In Sunday's loss to the Rams, the Jets made the wrong kind of history again.`\
 https://nytimes.com/athletic/6013953/2024/12/22/jets-loss-rams-mike-lafleur-return/
 
-**Eagles fail to clinch NFC East in 'sloppy' performance vs. Commanders**\
-`The Eagles' primary concern now is Jalen Hurts' health.`\
+**As Eagles fail to clinch NFC East, Jalen Hurts' concussion is another concern**\
+`Eagles' 'sloppy' performance cost them against the Commanders.`\
 https://nytimes.com/athletic/6013120/2024/12/22/eagles-loss-sloppy-performance-commanders/
 
 **What Caleb Williams' big-time throws mean in another ugly Bears loss**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6013851/2024/12/22/lions-win-blowout-bears/
 **Bills beat Patriots 24-21 to stay in pursuit of AFC's top seed: Takeaways**\
 `MVP front-runner Josh Allen threw for one touchdown and running back James Cook added two more TDs in the victory.`\
 https://nytimes.com/athletic/6012887/2024/12/22/patriots-bills-score-result-takeaways/
-
-**Redemption for Chuba Hubbard, whose $33 million extension already looks like a bargain**\
-`Hubbard ran for 152 yards and put his overtime fumble vs. the Bucs in Week 13 behind with two huge runs in overtime to beat the Cardinals.`\
-https://nytimes.com/athletic/6014065/2024/12/22/panthers-win-chuba-hubbard-cardinals/
 
