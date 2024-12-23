@@ -1,3 +1,15 @@
+**How Raiders 19-14 win over Jaguars affects 2025 NFL Draft order: Takeaways**\
+`The Raiders, who entered Sunday with the No. 2 pick, dropped to pick No. 6 by beating Jacksonville.`\
+https://nytimes.com/athletic/6012893/2024/12/22/jaguars-raiders-score-result-takeaways/
+
+**Greenberg: No-brainer for Bears? Top coach candidate Ben Johnson shows why he's easy pick**\
+`Johnson is "as detailed as they come," players said after Detroit's easy win. It showed on the “Stumble Bum” trick play that went for a TD.`\
+https://nytimes.com/athletic/6013872/2024/12/22/bears-lions-ben-johnson-coach-search/
+
+**Myles Garrett, Browns limping toward the finish of what's been a miserable season**\
+`For Cleveland, the goal is to just get to the end of this season without more major injuries or made-for-TV drama.`\
+https://nytimes.com/athletic/6013856/2024/12/22/browns-myles-garrett-loss-bengals/
+
 **If You Want to Destroy My Sweater, Hold This Thread as I Walk Away**\
 `When something that should be innocuous unravels your world.`\
 https://nytimes.com/2024/12/22/podcasts/if-you-want-to-destroy-my-sweater-this-american-life-nyt-audio.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6013389/2024/12/22/alex-caruso-contract-thunder-ext
 **Tyler Higbee's emotional return propels Rams to eighth win in 10 games**\
 `The Rams improved to 9-6 with the win Sunday and lead the NFC West after the Seahawks lost.`\
 https://nytimes.com/athletic/6013815/2024/12/22/rams-win-tyler-higbee-jets/
-
-**Amarius Mims' injury, sideline spat mark significant point for Bengals rookie**\
-`The first-round pick admits "emotions kind of blew over" but shows maturity and growth in handling the aftermath of win over Browns.`\
-https://nytimes.com/athletic/6013859/2024/12/22/bengals-win-amarius-mims-browns/
-
-**As Lions fans take over Soldier Field, Bears look to their rivals for head coach help**\
-`The Bears got a good look at offensive coordinator Ben Johnson in another high-scoring Lions win.`\
-https://nytimes.com/athletic/6013777/2024/12/22/bears-lions-coach-search-ben-johnson/
-
-**Race to No. 1: Giants, Raiders continue to dominate race for top draft pick**\
-`The Giants and Raiders now have a combined 88 percent chance to lock up the top pick as the race thins to four teams. `\
-https://nytimes.com/athletic/6013721/2024/12/22/giants-raiders-nfl-draft-top-pick/
 
