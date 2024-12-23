@@ -1,3 +1,7 @@
+**New Anti-Money Laundering Measures Pass a Legal Roadblock**\
+`Millions of companies may have to report information about their owners to the Treasury Department by Jan. 1 under an appeals court ruling.`\
+https://nytimes.com/2024/12/23/us/anti-money-laundering-law-court-decision.html
+
 **Matt Gaetz Finds Support in His Former District in Florida**\
 `Republicans in the Panhandle district he represented before stepping down last month said Mr. Gaetz had done good work in Congress and criticized the report as partisan.`\
 https://nytimes.com/2024/12/23/us/politics/florida-matt-gaetz-panhandle-district.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/us/santa-cruz-wharf-collapse.html
 **Astros GM Dana Brown: Team pivoted when Alex Bregman negotiations 'stalled'**\
 `The Astros traded for Isaac Paredes and signed Christian Walker, effectively ending any chances of them re-signing Bregman.`\
 https://nytimes.com/athletic/6016748/2024/12/23/astros-alex-bregman-negotiations-stalled/
-
-**Maple Leafs report cards: John Tavares scores twice but individual mistakes prove costly**\
-`Tavares scored his 200th goal as a Leaf, but no other Toronto players could beat Connor Hellebuyck.`\
-https://nytimes.com/athletic/6016321/2024/12/23/maple-leafs-report-cards-tavares-jets/
 

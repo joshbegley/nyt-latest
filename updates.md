@@ -1,3 +1,7 @@
+**New Anti-Money Laundering Measures Pass a Legal Roadblock**\
+`Millions of companies may have to report information about their owners to the Treasury Department by Jan. 1 under an appeals court ruling.`\
+https://nytimes.com/2024/12/23/us/anti-money-laundering-law-court-decision.html
+
 **Matt Gaetz Finds Support in His Former District in Florida**\
 `Republicans in the Panhandle district he represented before stepping down last month said Mr. Gaetz had done good work in Congress and criticized the report as partisan.`\
 https://nytimes.com/2024/12/23/us/politics/florida-matt-gaetz-panhandle-district.html
