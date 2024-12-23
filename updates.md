@@ -1,3 +1,35 @@
+**Watching Southampton within earshot of Ivan Juric: 'Come on, come on, come on!'**\
+`Sitting close to Southampton's new manager, it was clear he wants his team to play in a very different way than they have done this season`\
+https://nytimes.com/athletic/6013294/2024/12/23/southampton-ivan-juric-fulham/
+
+**Fantasy football Week 16 takeaways: The essential, if early, 2025 draft reads**\
+`There's no time like the present to start thinking about the fantasy football future`\
+https://nytimes.com/athletic/6014590/2024/12/23/fantasy-football-week-16-takeaways-the-essential-if-early-2025-draft-reads/
+
+**How Diego Simeone toppled Barcelona with the oldest trick in the book: Fresh legs**\
+`Simeone's first away win in Barcelona as Atletico Madrid coach was yet another vindication of his masterful use of substitutes`\
+https://nytimes.com/athletic/6012758/2024/12/23/atletico-madrid-diego-simeone-barcelona-analysis/
+
+**Monday Briefing**\
+`An attack at a Christmas market in Germany.`\
+https://nytimes.com/2024/12/23/briefing/germany-market-assad-trump.html
+
+**Quote of the Day: In Some Parts, It’s Christmas Adam Before Eve**\
+`Quotation of the Day for Monday, December 23, 2024.`\
+https://nytimes.com/2024/12/23/pageoneplus/quote-of-the-day-in-some-parts-its-christmas-adam-before-eve.html
+
+**Organized Looting Throws Gaza Deeper Into Chaos**\
+`Gangs are filling a power vacuum left by Israel in some parts of southern Gaza, hijacking desperately needed aid for Palestinian residents.`\
+https://nytimes.com/2024/12/23/world/middleeast/gaza-looting.html
+
+**‘I Was Destroyed by It’: 4 Men on Abuse at Ireland’s Catholic Schools**\
+`After decades of silence, dozens of older men are talking about the sexual abuse they suffered at schools run by religious orders. We spoke to four of them.`\
+https://nytimes.com/2024/12/23/world/europe/ireland-catholic-priest-abuse.html
+
+**When Being Together During the Holidays Is Impossible, Send Treats**\
+`I miss the magic and the chaos of a big family gathering — until a box of cookies turns up on my porch.`\
+https://nytimes.com/2024/12/23/dining/cookies-family-holidays.html
+
 **Week 16 NFL playoff picture: Lions, Chiefs closing in on top seeds; Falcons lead NFC South**\
 `The top seed in the NFC could come down to an epic Week 18 showdown between two NFC North rivals. `\
 https://nytimes.com/athletic/6006774/2024/12/22/week-16-nfl-playoff-picture-chiefs-lions-top-seeds/

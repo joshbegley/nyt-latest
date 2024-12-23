@@ -1,3 +1,35 @@
+**Watching Southampton within earshot of Ivan Juric: 'Come on, come on, come on!'**\
+`Sitting close to Southampton's new manager, it was clear he wants his team to play in a very different way than they have done this season`\
+https://nytimes.com/athletic/6013294/2024/12/23/southampton-ivan-juric-fulham/
+
+**Fantasy football Week 16 takeaways: The essential, if early, 2025 draft reads**\
+`There's no time like the present to start thinking about the fantasy football future`\
+https://nytimes.com/athletic/6014590/2024/12/23/fantasy-football-week-16-takeaways-the-essential-if-early-2025-draft-reads/
+
+**How Diego Simeone toppled Barcelona with the oldest trick in the book: Fresh legs**\
+`Simeone's first away win in Barcelona as Atletico Madrid coach was yet another vindication of his masterful use of substitutes`\
+https://nytimes.com/athletic/6012758/2024/12/23/atletico-madrid-diego-simeone-barcelona-analysis/
+
+**Monday Briefing**\
+`An attack at a Christmas market in Germany.`\
+https://nytimes.com/2024/12/23/briefing/germany-market-assad-trump.html
+
+**Quote of the Day: In Some Parts, It’s Christmas Adam Before Eve**\
+`Quotation of the Day for Monday, December 23, 2024.`\
+https://nytimes.com/2024/12/23/pageoneplus/quote-of-the-day-in-some-parts-its-christmas-adam-before-eve.html
+
+**Organized Looting Throws Gaza Deeper Into Chaos**\
+`Gangs are filling a power vacuum left by Israel in some parts of southern Gaza, hijacking desperately needed aid for Palestinian residents.`\
+https://nytimes.com/2024/12/23/world/middleeast/gaza-looting.html
+
+**‘I Was Destroyed by It’: 4 Men on Abuse at Ireland’s Catholic Schools**\
+`After decades of silence, dozens of older men are talking about the sexual abuse they suffered at schools run by religious orders. We spoke to four of them.`\
+https://nytimes.com/2024/12/23/world/europe/ireland-catholic-priest-abuse.html
+
+**When Being Together During the Holidays Is Impossible, Send Treats**\
+`I miss the magic and the chaos of a big family gathering — until a box of cookies turns up on my porch.`\
+https://nytimes.com/2024/12/23/dining/cookies-family-holidays.html
+
 **Week 16 NFL playoff picture: Lions, Chiefs closing in on top seeds; Falcons lead NFC South**\
 `The top seed in the NFC could come down to an epic Week 18 showdown between two NFC North rivals. `\
 https://nytimes.com/athletic/6006774/2024/12/22/week-16-nfl-playoff-picture-chiefs-lions-top-seeds/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6006774/2024/12/22/week-16-nfl-playoff-picture-chie
 **Josh Allen throwing hand scare, Cam Lewis' interception, other observations in victory vs. Patriots**\
 `Plus, James Cook puts on a show once again.`\
 https://nytimes.com/athletic/6014594/2024/12/22/bills-win-josh-allen-observations-patriots/
-
-**Raiders, Mark Davis celebrate first victory in 3 months — draft position be damned**\
-`The Raiders moved down to sixth in the updated draft order, but they'll happily take Sunday's 19-14 home victory over the Jaguars.`\
-https://nytimes.com/athletic/6014402/2024/12/22/raiders-win-mark-davis-jaguars/
-
-**Raptors' poor late-game offence presents many questions, including a big one in June**\
-`The Raptors are a league-worst 4-12 in games that have been within a 5-point margin in the final five minutes or overtime.`\
-https://nytimes.com/athletic/6014242/2024/12/22/raptors-bad-clutch-offence-nba/
-
-**Late lapses vs. Vikings leave Seahawks in a familiar place, with season on the brink**\
-`Geno Smith led dazzling drives but also threw backbreaking INTs, and Mike Macdonald's defense faltered late as Seattle's hopes grew dim.`\
-https://nytimes.com/athletic/6014479/2024/12/22/seahawks-loss-geno-smith-playoff-chances-vikings/
-
-**‘Dune: Prophecy’ Season 1 Finale Recap: Building the Perfect Beast**\
-`Valya confronts the limits of her power, and a terrifying truth comes to light about Desmond’s history.`\
-https://nytimes.com/2024/12/22/arts/television/dune-prophecy-recap-season-1-finale.html
-
-**Injuries, errors and missed kicks: 49ers’ loss to Dolphins sums up their season**\
-`The 49ers ended the game missing the left side of their offensive line and getting little production from backup tailback Patrick Taylor Jr.`\
-https://nytimes.com/athletic/6014527/2024/12/22/49ers-loss-playoff-elimination-dolphins/
-
-**Trump Picks Callista Gingrich for Ambassador to Switzerland**\
-`In announcing his choice of various envoys, including ambassador to Denmark, the president-elect again floated the idea of the United States acquiring Greenland.`\
-https://nytimes.com/2024/12/22/us/politics/trump-callista-gingrich-ambassador-switzerland.html
-
-**Jayden Daniels maintains calm approach as Commanders come from behind to stun Eagles**\
-`The rookie QB had to wear his superhero cape to lead Washington over NFC East-leading Philadelphia.`\
-https://nytimes.com/athletic/6014251/2024/12/22/commanders-jayden-daniels-win-eagles/
-
-**Ex-Penn State backup QB Beau Pribula transfers to Missouri**\
-`Pribula entered the transfer portal last week ahead of Penn State’s first-ever appearance in the College Football Playoff.`\
-https://nytimes.com/athletic/6014445/2024/12/22/beau-pribula-missouri-penn-state-transfer/
 
