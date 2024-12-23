@@ -1,3 +1,7 @@
+**Mangione Pleads Not Guilty in First N.Y. State Court Appearance**\
+`The Manhattan district attorney’s office has charged Luigi Mangione, who is accused of killing UnitedHealthcare’s chief executive, with first-degree murder, a terrorism-related offense.`\
+https://nytimes.com/2024/12/23/nyregion/luigi-mangione-arraignment.html
+
 **Walker Buehler to sign 1-year, $21M deal with Red Sox: Sources**\
 `The worst season of Buehler's career, a miserable return from a second Tommy John surgery, was wiped away with his October heroics.`\
 https://nytimes.com/athletic/5940994/2024/12/23/walker-buehler-contract-red-sox-mlb-free-agency/
