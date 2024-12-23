@@ -1,3 +1,7 @@
+**The New York Bookstore That Lets You Visit France for an Afternoon**\
+`Albertine, in a Fifth Avenue mansion, is a portal to both Gilded Age New York and the Francophone world.`\
+https://nytimes.com/2024/12/23/t-magazine/albertine-french-bookstore-new-york-212.html
+
 **A Canceled Vote in Romania Hands Russia a Propaganda Coup**\
 `Many in the West have applauded the annulling of the first round of the presidential election, won by a Moscow-friendly candidate, but even his critics say it raises troubling questions about Romanian democracy.`\
 https://nytimes.com/2024/12/23/world/europe/romania-election-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/business/dealbook/silicon-valley-trump-administra
 **Arsenal's Saka 'out for many weeks' with hamstring injury - Arteta**\
 `Bukayo Saka faces &#8220;many weeks&#8221; on the sidelines with a hamstring injury while Arsenal team-mate Raheem Sterling will also be unavailable for a similar timeframe, Mikel Arteta has said.`\
 https://nytimes.com/athletic/6012427/2024/12/23/bukayo-saka-arsenal-injury-update/
-
-**Chargers, nearing a playoff berth, showcased their ability to respond vs. Broncos**\
-`The Chargers didn't get the results around the league they needed to clinch a playoff spot Sunday but can do so with a win in New England.`\
-https://nytimes.com/athletic/6013105/2024/12/23/chargers-playoffs-defense-responds-broncos/
 
