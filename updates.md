@@ -1,3 +1,7 @@
+**Emil Andrae's questionable reassignment a reminder Flyers are still focused on the future**\
+`Andrae is young and waiver-exempt. But is giving the defenseman more time in the AHL really the best option for the Flyers?`\
+https://nytimes.com/athletic/6013633/2024/12/23/flyers-emil-andrae-reassignment-future/
+
 **Nottingham Forest confirm Souloukou as new CEO**\
 `Nottingham Forest have confirmed the appointment of Lina Souloukou as the club’s new chief executive officer (CEO).`\
 https://nytimes.com/athletic/6015018/2024/12/23/lina-souloukou-nottingham-forest-ceo/
