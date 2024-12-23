@@ -10,7 +10,7 @@ https://nytimes.com/live/2024/12/23/us/matt-gaetz-report-trump-news/gaetz-was-tr
 `CeeDee Lamb willing to "put his body out there on the line" and Cowboys make right choice to not let Brandon Aubrey try long field goal`\
 https://nytimes.com/athletic/6015663/2024/12/23/cowboys-today-ceedee-lamb-shoulder-brandon-aubrey/
 
-**Read the document**\
+**Read the Ethics Committee’s Report on Matt Gaetz**\
 `A report by the House Ethics Committee accused former Representative Matt Gaetz, Republican of Florida, of regularly paying for sex and using illegal drugs, and of having sexual relations with a 17-year-old girl in 2017.`\
 https://nytimes.com/interactive/2024/12/23/us/ethics-report-on-gaetz.html
 
