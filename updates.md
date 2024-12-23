@@ -1,3 +1,7 @@
+**Kilauea Volcano Erupts on Hawaii’s Big Island**\
+`Scientists said that the main hazard from the eruption on Monday was increased levels of volcanic gas.`\
+https://nytimes.com/2024/12/23/science/kilauea-volcano-eruption-hawaii.html
+
 **How to Make a Fragrance That Smells Like the Holidays**\
 `Every year, Bath & Body Works introduces a new scent that it hopes will break through during the shopping season. It doesn’t have to smell like gingerbread.`\
 https://nytimes.com/2024/12/23/business/bath-and-body-works-holiday-perfume-candles.html

@@ -1,3 +1,7 @@
+**Kilauea Volcano Erupts on Hawaii’s Big Island**\
+`Scientists said that the main hazard from the eruption on Monday was increased levels of volcanic gas.`\
+https://nytimes.com/2024/12/23/science/kilauea-volcano-eruption-hawaii.html
+
 **How to Make a Fragrance That Smells Like the Holidays**\
 `Every year, Bath & Body Works introduces a new scent that it hopes will break through during the shopping season. It doesn’t have to smell like gingerbread.`\
 https://nytimes.com/2024/12/23/business/bath-and-body-works-holiday-perfume-candles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015710/2024/12/23/miami-heat-jimmy-butler-tyler-he
 **Braga allow free entry for final home game of 2024**\
 `Portuguese top division club Braga will allow free entry to the general public for their final home league game of 2024.`\
 https://nytimes.com/athletic/6015723/2024/12/23/braga-free-tickets-fans/
-
-**Hollinger's Week That Was: Festivus grievance on NBA popularity discourse**\
-`With all the other adjustments the league has made in recent years, now we're worried about ... shot distance? Really?`\
-https://nytimes.com/athletic/6015169/2024/12/23/nba-ratings-down-popularity-rule-change/
 
