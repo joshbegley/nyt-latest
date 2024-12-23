@@ -1,4 +1,8 @@
 **Notre Dame final thoughts: What we learned from Indiana — and what it means for Georgia**\
+`After an easy win over Indiana, what's coming against Georgia is the most consequential of Marcus Freeman’s tenure at Notre Dame.`\
+https://nytimes.com/athletic/6015786/2024/12/23/notre-dame-indiana-playoff-georgia/
+
+**Notre Dame final thoughts: What we learned from Indiana — and what it means for Georgia**\
 `An easy win over Indiana is over, and what's coming against Georgia is the most consequential of Marcus Freeman’s tenure at Notre Dame.`\
 https://nytimes.com/athletic/6015786/2024/12/23/notre-dame-indiana-playoff-georgia/
 
