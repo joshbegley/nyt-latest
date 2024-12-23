@@ -1,3 +1,7 @@
+**Nottingham Forest confirm Souloukou as new CEO**\
+`Nottingham Forest have confirmed the appointment of Lina Souloukou as the club’s new chief executive officer (CEO).`\
+https://nytimes.com/athletic/6015018/2024/12/23/lina-souloukou-nottingham-forest-ceo/
+
 **Eliminated from playoffs, Cowboys express what they have to play for in final 2 weeks**\
 `"All I can say is what good of a job he’s doing,” Jerry Jones said of head coach Mike McCarthy after the Cowboys' victory.`\
 https://nytimes.com/athletic/6014908/2024/12/23/cowboys-win-mike-mccarthy-bucs/
