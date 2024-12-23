@@ -1,3 +1,19 @@
+**Slovak Leader Visits Putin, Breaking With E.U.’s Policy of Isolation**\
+`Prime Minister Robert Fico’s surprise visit to Moscow on Sunday, reportedly to discuss natural gas and Ukraine, was a blow to European unity against Russia’s invasion of Ukraine.`\
+https://nytimes.com/2024/12/23/world/europe/slovak-leader-visits-putin.html
+
+**Notre Dame DT Rylie Mills ruled out for rest of Playoff**\
+`Rylie Mills, a Notre Dame senior captain at DT, injured his knee against Indiana and will miss the rest of the College Football Playoff.`\
+https://nytimes.com/athletic/6016001/2024/12/23/notre-dame-rylie-mills-injury-georgia/
+
+**Browns' Stefanski 'hopeful' Thompson-Robinson will be able to play in Week 17**\
+`Second-year passer played through calf injury in Week 16. If DTR can't go, Browns will figure out their QB plans as the week goes. `\
+https://nytimes.com/athletic/6016155/2024/12/23/browns-stefanski-hopeful-qb-dorian-thompson-robinson-will-be-able-to-play-in-week-17/
+
+**Our Favorite Food Stories of 2024**\
+`From a debate about the most delicious pasta dishes in Italy to a luxurious baked potato recipe, these are the most appetizing and surprising food features T published this year.`\
+https://nytimes.com/2024/12/23/t-magazine/favorite-food-stories.html
+
 **What I’m hearing about the Nuggets, Pelicans and the top-heavy 2026 draft**\
 `Is help on the way for the Joker? Could Brandon Ingram’s time in New Orleans soon be up? `\
 https://nytimes.com/athletic/6010912/2024/12/23/nuggets-pelicans-draft-gleague-showcase-nba/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6016093/2024/12/23/mikey-keene-michigan-transfer-qb
 **Research Finds Vaccines Are Not Behind the Rise in Autism. So What Is?**\
 `There is no one factor that causes autism — or explains its growing prevalence. Researchers are seeking explanations for the surge. Here are some possibilities.`\
 https://nytimes.com/2024/12/23/health/what-causes-autism.html
-
-**Patrik Laine on Blue Jackets trade request: 'I was tired of losing and just giving up'**\
-`Laine will face his former club for the first time since his summer trade to the Canadiens Monday night in Columbus.`\
-https://nytimes.com/athletic/6016003/2024/12/23/patrik-laine-canadiens-blue-jackets-nhl/
-
-**Netflix's exclusive FIFA Women's World Cup deal puts up roadblocks for the game's growth: Rueter**\
-`Folding the World Cup — long the final bastion of free-to-view soccer — into a subscription service could limit viewership`\
-https://nytimes.com/athletic/6015933/2024/12/23/fifa-netflix-womens-world-cup-broadcast-rights/
-
-**Scoop City: Risers and fallers after Week 16**\
-`A brief look at the risers (Falcons, Chiefs and Lions) and fallers (Seahawks, Bears, Patriots) after Sunday of Week 16`\
-https://nytimes.com/athletic/6016076/2024/12/23/week-16-nfl-risers-fallers-takeaways-scoop-city/
-
-**Rangers scratch Chris Kreider, their longest-tenured player, for game vs. Devils**\
-`Kreider previously missed three games in November with a back injury and has been floated by GM Chris Drury as potential trade bait.`\
-https://nytimes.com/athletic/6016075/2024/12/23/rangers-scratch-chris-kreider/
 

@@ -1,3 +1,15 @@
+**What I’m hearing about the Nuggets, Pelicans and the top-heavy 2026 draft**\
+`Is help on the way for the Joker? Could Brandon Ingram’s time in New Orleans soon be up? `\
+https://nytimes.com/athletic/6010912/2024/12/23/nuggets-pelicans-draft-gleague-showcase-nba/
+
+**Which teams can win the NBA title? History says these teams are on the short list**\
+`Early-season numbers can determine future success in the NBA finals. How do predictive trends compare to the odds? `\
+https://nytimes.com/athletic/6014557/2024/12/23/nba-championship-finals-contenders-odds-predictions-after-25-games/
+
+**BOS Nation FC locks in White Stadium as venue**\
+`Boston Mayor Michelle Wu said the lease will “open up the largest investment into BPS athletics and White Stadium since it opened in 1949."`\
+https://nytimes.com/athletic/6015728/2024/12/23/bos-nation-fc-white-stadium-nwsl/
+
 **AP men's basketball Top 25: Kentucky drops to No. 10 after Ohio State loss**\
 `Tennessee is the nation's No. 1 team, followed by Auburn at No. 2, for the third consecutive week in the AP men's basketball Top 25.`\
 https://nytimes.com/athletic/6016026/2024/12/23/ap-mens-basketball-top-25-poll-kentucky-auburn/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6016076/2024/12/23/week-16-nfl-risers-fallers-takea
 **Rangers scratch Chris Kreider, their longest-tenured player, for game vs. Devils**\
 `Kreider previously missed three games in November with a back injury and has been floated by GM Chris Drury as potential trade bait.`\
 https://nytimes.com/athletic/6016075/2024/12/23/rangers-scratch-chris-kreider/
-
-**The Trumpian Attitude at the Heart of the Gaetz Report**\
-`Both men display the same contempt for the law.`\
-https://nytimes.com/2024/12/23/opinion/gaetz-trump-ethics-report.html
-
-**Chris Koclanes named coach of Dallas Wings**\
-`Chris Koclanes spent eight seasons before rejoining college basketball in the WNBA, working under Wings general manager Curt Miller.`\
-https://nytimes.com/athletic/6015971/2024/12/23/chris-koclanes-coach-dallas-wings-wnba/
-
-**Sabrina Ionescu joins Unrivaled 3x3 league ahead of first season in January**\
-`Ionescu previously told The Athletic she was weighing joining the league for a variety of reasons.`\
-https://nytimes.com/athletic/6015990/2024/12/23/unrivaled-basketball-sabrina-ionescu-joins-phantom/
 
