@@ -1,4 +1,8 @@
 **Finally in alignment, Commanders play winning football — and win in Congress, too**\
+`Washington put together a good third quarter of football, overcame a 13-point deficit and moved to the brink of a wild-card berth.`\
+https://nytimes.com/athletic/6013067/2024/12/22/commanders-defeat-eagles-aldridge/
+
+**Finally in alignment, Commanders play winning football — and win in Congress, too**\
 `Washington put together a good quarter of football, overcame a 14-point deficit and moved to the brink of a wild-card berth.`\
 https://nytimes.com/athletic/6013067/2024/12/22/commanders-defeat-eagles-aldridge/
 
