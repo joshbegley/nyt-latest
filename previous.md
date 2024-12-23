@@ -1,3 +1,7 @@
+**U.S. Open doubles champion Max Purcell suspended from tennis after admitting doping violation**\
+`The Australian is the third major champion of the year to be sanctioned for a doping violation.`\
+https://nytimes.com/athletic/6014942/2024/12/23/max-purcell-doping-prohibited-method-explained/
+
 **Honda and Nissan Unveil Merger Talks as Global Competition Bears Down**\
 `Japan’s second- and third-largest automakers hope the deal can help them catch up with Tesla and China’s BYD in electric vehicles and advanced software.`\
 https://nytimes.com/2024/12/23/business/honda-nissan-merger-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/movies/robbie-williams-better-man.html
 **The Son Who Couldn’t Leave**\
 `Paul Barreto’s father, Mickey, lived at the New Yorker Hotel in Manhattan for five years, paying only $200.57. Paul was desperate to escape.`\
 https://nytimes.com/2024/12/23/nyregion/new-yorker-hotel-barreto-son.html
-
-**This feels different for Liverpool and Arne Slot's relentless team**\
-`Liverpool are clear at the top at Christmas - they have been caught before but they appear in control and Manchester City are fading`\
-https://nytimes.com/athletic/6013254/2024/12/23/liverpool-arne-slot-premier-league-top/
 
