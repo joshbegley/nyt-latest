@@ -1,3 +1,7 @@
+**Word of the Day: expediency**\
+`This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/23/learning/word-of-the-day-expediency.html
+
 **Your Christmas Day Lineup, Plus 4 Things to Watch on TV this Week**\
 `Get ready for football games, floats and Beyoncé, oh my! And start preparing for the new year with specials looking back at 2024.`\
 https://nytimes.com/2024/12/23/arts/television/your-christmas-day-lineup-plus-4-things-to-watch-on-tv-this-week.html

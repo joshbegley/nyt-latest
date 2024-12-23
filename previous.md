@@ -1,3 +1,7 @@
+**Word of the Day: expediency**\
+`This word has appeared in 47 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/12/23/learning/word-of-the-day-expediency.html
+
 **Your Christmas Day Lineup, Plus 4 Things to Watch on TV this Week**\
 `Get ready for football games, floats and Beyoncé, oh my! And start preparing for the new year with specials looking back at 2024.`\
 https://nytimes.com/2024/12/23/arts/television/your-christmas-day-lineup-plus-4-things-to-watch-on-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6008916/2024/12/23/alexander-isak-newcastle-goals-2
 **Why there is no defence for error-strewn Leicester City**\
 `Seven goals have been conceded without reply in the last two fixtures. Such defensive generosity has to stop or Leicester won't survive `\
 https://nytimes.com/athletic/6012916/2024/12/23/leicester-city-wolves-loss-analysis/
-
-**Joel Veltman's return a timely boost for Brighton - and he could be set for a longer stay**\
-`The 33-year-old returned to face West Ham after a four-match absence, and tells The Athletic he would be happy to end his career at the Amex`\
-https://nytimes.com/athletic/6010713/2024/12/23/joel-veltman-brighton-west-ham-contract/
 
