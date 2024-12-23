@@ -1,3 +1,19 @@
+**Cowboys Today: Why does CeeDee Lamb continue playing through shoulder injury?**\
+`CeeDee Lamb willing to "put his body out there on the line" and Cowboys make right choice to not let Brandon Aubrey try long field goal`\
+https://nytimes.com/athletic/6015663/2024/12/23/cowboys-today-ceedee-lamb-shoulder-brandon-aubrey/
+
+**Read the document**\
+`A report by the House Ethics Committee accused former Representative Matt Gaetz, Republican of Florida, of regularly paying for sex and using illegal drugs, and of having sexual relations with a 17-year-old girl in 2017.`\
+https://nytimes.com/interactive/2024/12/23/us/ethics-report-on-gaetz.html
+
+**How We Documented Life Inside New York’s Migrant Shelters**\
+`A Times reporter and photographer spent months with new arrivals as they navigated the city’s pop-up shelter system.`\
+https://nytimes.com/2024/12/23/nyregion/migrant-shelter-journalism.html
+
+**Heat Today: Sitting at .500 again, Miami's struggles has season at an impasse**\
+`Can a win against the Nets jumpstart another turnaround? Or is this just who the Heat are?`\
+https://nytimes.com/athletic/6015710/2024/12/23/miami-heat-jimmy-butler-tyler-herro-nba/
+
 **Braga allow free entry for final home game of 2024**\
 `Portuguese top division club Braga will allow free entry to the general public for their final home league game of 2024.`\
 https://nytimes.com/athletic/6015723/2024/12/23/braga-free-tickets-fans/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/23/opinion/letters/gender-affirming-care.html
 **Sweet and Sour Cauliflower, Weeknight Wower**\
 `Hetty Lui McKinnon’s clever recipe skips the frying, instead roasting the cornstarch-coated florets for less mess (but lots of crunch).`\
 https://nytimes.com/2024/12/23/dining/cauliflower-dinner-recipe.html
-
-**You Have F.S.A. Dollars to Burn. Everyone Wants Them.**\
-`A growing number of wellness retailers are vying for health care funds that expire at the end of the year.`\
-https://nytimes.com/2024/12/23/well/fsa-account-health-care-deadline.html
-
-**My Sister Was Dying of Cancer. A Christmas Gift Helped Me Process It.**\
-`Two and a half feet tall, roots wrapped in burlap — it was much better than a sweater.`\
-https://nytimes.com/2024/12/23/well/family/cancer-maple-tree-christmas-present.html
-
-**Mozambique’s Top Court Upholds Disputed Presidential Election Result**\
-`The ruling comes after protests that left more than 100 people dead, and paves the way for the candidate from the long-governing Frelimo party to take office next month.`\
-https://nytimes.com/2024/12/23/world/africa/mozambique-disputed-election-results-upheld-chapo.html
-
-**Christmas Market Attack Stirs Political Bickering in Germany**\
-`After an assailant driving an S.U.V. killed five people, calls for solidarity have quickly given way to criticism by rival lawmakers, ahead of snap elections set for February.`\
-https://nytimes.com/2024/12/23/world/europe/germany-christmas-market-attack-politics.html
 
