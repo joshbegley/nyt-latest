@@ -1,3 +1,11 @@
+**Walker Buehler to sign 1-year, $21M deal with Red Sox: Sources**\
+`The worst season of Buehler's career, a miserable return from a second Tommy John surgery, was wiped away with his October heroics.`\
+https://nytimes.com/athletic/5940994/2024/12/23/walker-buehler-contract-red-sox-mlb-free-agency/
+
+**The Bounce: Is it time to trade De'Aaron Fox? Plus, your NBA Stock Report!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6015248/2024/12/23/deaaron-fox-kings-nba-christmas-anthony-edwards-timberwolves-the-bounce/
+
 **The New York Bookstore That Lets You Visit France for an Afternoon**\
 `Albertine, in a Fifth Avenue mansion, is a portal to both Gilded Age New York and the Francophone world.`\
 https://nytimes.com/2024/12/23/t-magazine/albertine-french-bookstore-new-york-212.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/23/business/dealbook/year-in-deal-making.html
 **Sheffield United takeover completed by U.S. consortium**\
 `A U.`\
 https://nytimes.com/athletic/6006031/2024/12/23/sheffield-united-takeover-new-owners/
-
-**Silicon Valley Heads to Washington**\
-`President-elect Donald Trump is tapping the technology sector for key roles, and executives from the venture capital firm Andreessen Horowitz are featuring heavily.`\
-https://nytimes.com/2024/12/23/business/dealbook/silicon-valley-trump-administration.html
-
-**Arsenal's Saka 'out for many weeks' with hamstring injury - Arteta**\
-`Bukayo Saka faces &#8220;many weeks&#8221; on the sidelines with a torn hamstring injury while Arsenal team-mate Raheem Sterling will also be unavailable for a similar timeframe, Mikel Arteta has said.`\
-https://nytimes.com/athletic/6012427/2024/12/23/bukayo-saka-arsenal-injury-update/
 
