@@ -1,3 +1,7 @@
+**Silicon Valley Heads to Washington**\
+`President-elect Donald Trump is tapping the technology sector for key roles, and executives from the venture capital firm Andreessen Horowitz are featuring heavily.`\
+https://nytimes.com/2024/12/23/business/dealbook/silicon-valley-trump-administration.html
+
 **Arsenal's Saka 'out for many weeks' with hamstring injury - Arteta**\
 `Bukayo Saka faces &#8220;many weeks&#8221; on the sidelines with a hamstring injury while Arsenal team-mate Raheem Sterling will also be unavailable for a similar timeframe, Mikel Arteta has said.`\
 https://nytimes.com/athletic/6012427/2024/12/23/bukayo-saka-arsenal-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6013355/2024/12/23/dodgers-roki-sasaki-shohei-ohtan
 **Hurzeler unhappy with Brighton's Premier League form: 'I am very critical of myself'**\
 `Head coach Fabian Hurzeler says Brighton &amp; Hove Albion should be higher up the Premier League table at Christmas than 10th place.`\
 https://nytimes.com/athletic/6015031/2024/12/23/brighton-premier-league-form/
-
-**Trump Transition Live Updates: D.C. Awaits Release of Gaetz Ethics Report**\
-``\
-https://nytimes.com/live/2024/12/23/us/matt-gaetz-report-trump-news
 
