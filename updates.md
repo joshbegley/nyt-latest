@@ -1,3 +1,7 @@
+**Astros GM Dana Brown: Team pivoted when Alex Bregman negotiations 'stalled'**\
+`The Astros traded for Isaac Paredes and signed Christian Walker, effectively ending any chances of them re-signing Bregman.`\
+https://nytimes.com/athletic/6016748/2024/12/23/astros-alex-bregman-negotiations-stalled/
+
 **Maple Leafs report cards: Tavares scores twice but individual mistakes prove costly**\
 `Tavares scored his 200th goal as a Leaf, but no other Toronto players could beat Connor Hellebuyck.`\
 https://nytimes.com/athletic/6016321/2024/12/23/maple-leafs-report-cards-tavares-jets/
