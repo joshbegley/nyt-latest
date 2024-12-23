@@ -1,3 +1,31 @@
+**Why there is no defence for error-strewn Leicester City**\
+`Seven goals have been conceded without reply in the last two fixtures. Such defensive generosity has to stop or Leicester won't survive `\
+https://nytimes.com/athletic/6012916/2024/12/23/leicester-city-wolves-loss-analysis/
+
+**Joel Veltman's return a timely boost for Brighton - and he could be set for a longer stay**\
+`The 33-year-old returned to face West Ham after a four-match absence, and tells The Athletic he would be happy to end his career at the Amex`\
+https://nytimes.com/athletic/6010713/2024/12/23/joel-veltman-brighton-west-ham-contract/
+
+**What Pontus Jansson learned from Thomas Frank: 'The way he changed me I will never forget'**\
+`The Swedish defender was recently inducted into Brentford's Hall of Fame, and tells The Athletic about working with the club's manager`\
+https://nytimes.com/athletic/5949406/2024/12/23/pontus-jansson-brentford-thomas-frank/
+
+**Wolves were just crying out for a new voice - Pereira has given these players their mojo back**\
+`Wolves managed to beat Leicester 3-0 in Vitor Pereira's first game in charge of the club`\
+https://nytimes.com/athletic/6012725/2024/12/23/wolves-vitor-pereira-leicester-analysis/
+
+**Is it time to have a conversation about Brenden Aaronson?**\
+`Booed by his own team's supporters in pre-season, Aaronson got a goal and an assist in Saturday's dominant win against Oxford United`\
+https://nytimes.com/athletic/5937503/2024/12/23/leeds-brenden-aaronson-usmnt-analysis/
+
+**Real Madrid 4 Sevilla 2: Valverde's planned long-range goal, Mbappe improving, defence concerns**\
+`Madrid beat visitors Sevilla 4-2 on Sunday to move within a point of neighbours Atletico at the top as La Liga enters its winter break`\
+https://nytimes.com/athletic/6013258/2024/12/23/real-madrid-sevilla-analysis/
+
+**Yes, Tottenham are entertaining. But how long will that be enough for their fans?**\
+`While Spurs might be enjoyable for neutrals, the chances of them improving on last season's fifth-placed finish are slowly slipping away`\
+https://nytimes.com/athletic/6013533/2024/12/23/tottenham-hotspur-ange-postecoglou-entertainment/
+
 **Manchester United's short-term needs are at odds with Ruben Amorim's long-term plans**\
 `Ruben Amorin is in a tricky space, but compromising on his vision will only paper over the cracks`\
 https://nytimes.com/athletic/6013356/2024/12/23/manchester-united-bournemouth-ruben-amorim-analysis/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6013409/2024/12/23/briefing-slot-amorim-saka/
 **Jordan Henderson's year of living differently**\
 `The former Liverpool captain has won over the Ajax doubters in Amsterdam - his quiet stability is proving quietly effective `\
 https://nytimes.com/athletic/6012945/2024/12/23/jordan-henderson-ajax-year-of-living-differently/
-
-**Caring, counselling - and no Christmas: Life in a football club's medical department**\
-`Stressed managers, emotional players and high-stakes decisions. Life as a football medic is not easy`\
-https://nytimes.com/athletic/5986253/2024/12/23/premier-league-medical-department/
-
-**Watching Southampton within earshot of Ivan Juric: 'Come on, come on, come on!'**\
-`Sitting close to Southampton's new manager, it was clear he wants his team to play in a very different way than they have done this season`\
-https://nytimes.com/athletic/6013294/2024/12/23/southampton-ivan-juric-fulham/
-
-**Fantasy football Week 16 takeaways: The essential, if early, 2025 draft reads**\
-`There's no time like the present to start thinking about the fantasy football future`\
-https://nytimes.com/athletic/6014590/2024/12/23/fantasy-football-week-16-takeaways-the-essential-if-early-2025-draft-reads/
-
-**How Diego Simeone toppled Barcelona with the oldest trick in the book: Fresh legs**\
-`Simeone's first away win in Barcelona as Atletico Madrid coach was yet another vindication of his masterful use of substitutes`\
-https://nytimes.com/athletic/6012758/2024/12/23/atletico-madrid-diego-simeone-barcelona-analysis/
-
-**Monday Briefing**\
-`An attack at a Christmas market in Germany.`\
-https://nytimes.com/2024/12/23/briefing/germany-market-assad-trump.html
-
-**Quote of the Day: In Some Parts, It’s Christmas Adam Before Eve**\
-`Quotation of the Day for Monday, December 23, 2024.`\
-https://nytimes.com/2024/12/23/pageoneplus/quote-of-the-day-in-some-parts-its-christmas-adam-before-eve.html
-
-**Organized Looting Throws Gaza Deeper Into Chaos**\
-`Gangs are filling a power vacuum left by Israel in some parts of southern Gaza, hijacking desperately needed aid for Palestinian residents.`\
-https://nytimes.com/2024/12/23/world/middleeast/gaza-looting.html
 
