@@ -1,3 +1,7 @@
+**D.C. Police Officer Convicted Over Leaking Information to Proud Boys’ Leader**\
+`A federal judge found Lt. Shane Lamond guilty of lying to investigators and undermining police work by sharing tips with Enrique Tarrio, the group’s leader.`\
+https://nytimes.com/2024/12/23/us/politics/dc-police-enrique-tarrio-proud-boys.html
+
 **Texans WR Tank Dell out for year with dislocated knee, torn ACL**\
 `Houston's receiving corps get thinner with both Dell and Stefon Diggs lost for the year. `\
 https://nytimes.com/athletic/6016214/2024/12/23/houston-texans-tank-dell-dislocated-knee/
