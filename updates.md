@@ -1,3 +1,7 @@
+**Takeaways From the House Ethics Committee’s Investigation into Matt Gaetz**\
+`A 37-page report detailed the findings from a yearslong investigation into allegations that Mr. Gaetz engaged in a range of illegal conduct. He has repeatedly denied wrongdoing.`\
+https://nytimes.com/2024/12/23/us/politics/matt-gaetz-ethics-report-takeaways.html
+
 **A Perpetual Champagne, Built One Year at a Time**\
 `A new method of making nonvintage Champagnes is taking hold. Producers see it as a hedge against climate change while improving overall quality.`\
 https://nytimes.com/2024/12/23/dining/drinks/champagne-perpetual-reserve-method.html
