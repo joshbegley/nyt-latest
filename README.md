@@ -1,3 +1,11 @@
+**Inside Newcastle live Q&A: Chris Waugh answers your questions every Monday**\
+`Even by Newcastle's standards it has been quite a week... Pose your questions and Chris Waugh will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/6015058/2024/12/23/newcastle-ipswich-tonali-isak/
+
+**Canadiens weekly notebook: Fresh perspective on Kaiden Guhle, exploring Lane Hutson’s mind**\
+`Also this week, the hope that a new power play role can help Kirby Dach's confidence, Brendan Gallagher's belief in the rebuild and more.`\
+https://nytimes.com/athletic/6014496/2024/12/23/canadiens-guhle-carrier-partner-hutson-offence/
+
 **Mets, Sean Manaea agree to 3-year, $75 million deal: Source**\
 `Manaea re-entered free agency in a far stronger position than each of the last two winters.`\
 https://nytimes.com/athletic/5964964/2024/12/23/sean-manaea-contract-mets-mlb-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6014556/2024/12/23/buccaneers-cowboys-week-16-nfl-s
 **Max Kepler's long, complicated Twins career comes to an end with Phillies deal**\
 `Max Kepler, Jorge Polanco and Miguel Sanó all signed with the Twins as 16-year-olds in 2009. Now they're all gone.`\
 https://nytimes.com/athletic/6010976/2024/12/23/max-kepler-twins-career-signs-phillies/
-
-**Trey Murphy’s offensive development can be a win in the Pelicans' lost season**\
-`With injuries putting the ball in his hands more often, Murphy is growing, even as his 3s don't fall. `\
-https://nytimes.com/athletic/6013824/2024/12/23/trey-murphys-pelicans-improvement-nba/
-
-**The Best Times Graphics of 2024**\
-`Our visual journalists are always on the prowl for innovative ways to tell big news stories.`\
-https://nytimes.com/2024/12/23/briefing/best-times-graphics-of-2024.html
 
