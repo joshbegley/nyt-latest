@@ -1,3 +1,7 @@
+**Mangione Pleads Not Guilty in First N.Y. State Court Appearance**\
+`The Manhattan district attorney’s office has charged Luigi Mangione, who is accused of killing UnitedHealthcare’s chief executive, with first-degree murder, a terrorism-related offense.`\
+https://nytimes.com/2024/12/23/nyregion/luigi-mangione-arraignment.html
+
 **Walker Buehler to sign 1-year, $21M deal with Red Sox: Sources**\
 `The worst season of Buehler's career, a miserable return from a second Tommy John surgery, was wiped away with his October heroics.`\
 https://nytimes.com/athletic/5940994/2024/12/23/walker-buehler-contract-red-sox-mlb-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015297/2024/12/23/crystal-palace-mateta-contract/
 **Deal Makers See a Rebound in 2025 as Trump Returns to Power**\
 `It was another down year for mergers and acquisitions, but Wall Street is optimistic that the lengthy lull is coming to an end.`\
 https://nytimes.com/2024/12/23/business/dealbook/year-in-deal-making.html
-
-**Sheffield United takeover completed by U.S. consortium**\
-`A U.`\
-https://nytimes.com/athletic/6006031/2024/12/23/sheffield-united-takeover-new-owners/
 
