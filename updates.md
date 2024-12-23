@@ -1,3 +1,7 @@
+**Eagles fail to clinch NFC East in 'sloppy' performance vs. Commanders**\
+`The Eagles' primary concern now is Jalen Hurts' health.`\
+https://nytimes.com/athletic/6013120/2024/12/22/eagles-loss-sloppy-performance-commanders/
+
 **What Caleb Williams' big-time throws mean in another ugly Bears loss**\
 `Williams and the Bears have lost nine games in a row. He hasn't thrown an interception in any of them. That's a first for an NFL QB.`\
 https://nytimes.com/athletic/6013911/2024/12/22/bears-caleb-williams-development-lions/
