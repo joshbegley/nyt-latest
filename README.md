@@ -1,3 +1,11 @@
+**'Nobody writes our story': Lions remain focused while NFC North still up for grabs**\
+`The Lions' goals are still in sight after a commanding win against the Bears.`\
+https://nytimes.com/athletic/6013851/2024/12/22/lions-win-blowout-bears/
+
+**Bills beat Patriots 24-21 to stay in pursuit of AFC's top seed: Takeaways**\
+`MVP frontrunner Josh Allen threw for one touchdown, while running back James Cook added two scores in the victory.`\
+https://nytimes.com/athletic/6012887/2024/12/22/patriots-bills-score-result-takeaways/
+
 **Redemption for Chuba Hubbard, whose $33 million extension already looks like a bargain**\
 `Hubbard ran for 152 yards and put his overtime fumble vs. the Bucs in Week 13 behind with two huge runs in overtime to beat the Cardinals.`\
 https://nytimes.com/athletic/6014065/2024/12/22/panthers-win-chuba-hubbard-cardinals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6013969/2024/12/22/giants-loss-brian-daboll-joe-sch
 **'Nearly flawless' Michael Penix Jr. helps re-energize Falcons' playoff push**\
 `Penix finished 18-for-27 for 202 yards, no touchdowns and a deflected interception. Two pick sixes by the defense helped a lot.`\
 https://nytimes.com/athletic/6013867/2024/12/22/falcons-michael-penix-first-start-giants/
-
-**Vikings keep pace in NFC North with 27-24 win over Seahawks: Takeaways**\
-`A late 39-yard touchdown from Sam Darnold to Justin Jefferson lifted the Vikings to their eighth straight win.`\
-https://nytimes.com/athletic/6012879/2024/12/22/vikings-seahawks-score-result-takeaways/
-
-**Alex Caruso, Thunder agree to 4-year, $81 million contract extension**\
-`The 30-year-old, known as one of the NBA's best perimeter defenders, was acquired in a trade with Chicago last summer.`\
-https://nytimes.com/athletic/6013389/2024/12/22/alex-caruso-contract-thunder-extension/
 
