@@ -31,7 +31,7 @@ https://nytimes.com/2024/12/22/us/trump-pentagon-defense-nominees.html
 https://nytimes.com/athletic/6013953/2024/12/22/jets-loss-rams-mike-lafleur-return/
 
 **As Eagles fail to clinch NFC East, Jalen Hurts' concussion is another concern**\
-`Eagles' 'sloppy' performance cost them against the Commanders.`\
+`Eagles' "sloppy" performance cost them against the Commanders.`\
 https://nytimes.com/athletic/6013120/2024/12/22/eagles-loss-sloppy-performance-commanders/
 
 **What Caleb Williams' big-time throws mean in another ugly Bears loss**\
