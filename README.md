@@ -1,3 +1,7 @@
+**How to Make a Fragrance That Smells Like the Holidays**\
+`Every year, Bath & Body Works introduces a new scent that it hopes will break through during the shopping season. It doesn’t have to smell like gingerbread.`\
+https://nytimes.com/2024/12/23/business/bath-and-body-works-holiday-perfume-candles.html
+
 **Notre Dame final thoughts: What we learned from Indiana — and what it means for Georgia**\
 `After an easy win over Indiana, what's coming against Georgia is the most consequential of Marcus Freeman’s tenure at Notre Dame.`\
 https://nytimes.com/athletic/6015786/2024/12/23/notre-dame-indiana-playoff-georgia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015723/2024/12/23/braga-free-tickets-fans/
 **Hollinger's Week That Was: Festivus grievance on NBA popularity discourse**\
 `With all the other adjustments the league has made in recent years, now we're worried about ... shot distance? Really?`\
 https://nytimes.com/athletic/6015169/2024/12/23/nba-ratings-down-popularity-rule-change/
-
-**A Pro-Trump Group’s Risky Bet on Infrequent Voters Seems to Have Paid Off**\
-`Turning Point Action devoted much of its attention to less reliable voters. New data in Arizona showing a sizable Republican edge among them suggests that the strategy succeeded.`\
-https://nytimes.com/2024/12/23/us/politics/trump-turning-point-arizona-2024-election.html
 
