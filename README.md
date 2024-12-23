@@ -1,3 +1,7 @@
+**Steven Englander, Leader of an Outsider Art Outpost, Dies at 63**\
+`As director of the fiercely independent cultural center ABC No Rio, he led the battle to halt its eviction and later raised money to build a new home for the organization.`\
+https://nytimes.com/2024/12/23/nyregion/steven-englander-dead.html
+
 **Phillies sign Joe Ross to one-year deal as swingman**\
 `Ross had a 3.77 ERA for the Brewers in 2024 while making 10 starts and 15 relief appearances.`\
 https://nytimes.com/athletic/6016556/2024/12/23/phillies-joe-ross/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016285/2024/12/23/bills-defense-patriots-offensive
 **Netanyahu Signals Progress on Hostage Deal but Gives No Timeline**\
 `While pledging to secure the release of hostages held in Gaza by any means necessary, Prime Minister Benjamin Netanyahu of Israel said of the cease-fire talks with Hamas: “I don’t know how long it will take.”`\
 https://nytimes.com/2024/12/23/world/middleeast/netanyahu-hostage-deal.html
-
-**This Midnight Pasta Was Made for New Year’s Eve**\
-`Skip expensive caviar for sushi-style tobiko in this festive New Year’s Eve recipe from Eric Kim.`\
-https://nytimes.com/2024/12/23/dining/tobiko-pasta.html
 
