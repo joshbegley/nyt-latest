@@ -1,3 +1,7 @@
+**Eagles' Sirianni: Hurts enters concussion protocol, no update on Pickett**\
+`Philadelphia is a win away from clinching the NFC East and will look to do so in Week 17 at home against the Dallas Cowboys. `\
+https://nytimes.com/athletic/6016611/2024/12/23/eagles-nick-sirianni-jalen-hurts-concussion-kenny-pickett/
+
 **Part of Santa Cruz Wharf in California Collapses in High Surf**\
 `Two people were rescued by lifeguards and a third person made it to safety after part of the wharf, a major tourist attraction, collapsed in powerful surf, the authorities said.`\
 https://nytimes.com/2024/12/23/us/santa-cruz-wharf-collapse.html
