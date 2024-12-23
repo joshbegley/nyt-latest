@@ -1,3 +1,7 @@
+**Mets, Sean Manaea agree to 3-year, $75 million deal: Source**\
+`Manaea re-entered free agency in a far stronger position than each of the last two winters.`\
+https://nytimes.com/athletic/5964964/2024/12/23/sean-manaea-contract-mets-mlb-free-agency/
+
 **Weekend NHL rankings: Canucks drama, Stars dropping and holiday wishes for all**\
 `The NHL offers 13 games tonight before a short holiday break: just enough time to spend a few extra days making merry or wallowing in gloom.`\
 https://nytimes.com/athletic/6013710/2024/12/23/nhl-weekend-rankings-canucks-stars-holidays/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6013824/2024/12/23/trey-murphys-pelicans-improvemen
 **The Best Times Graphics of 2024**\
 `Our visual journalists are always on the prowl for innovative ways to tell big news stories.`\
 https://nytimes.com/2024/12/23/briefing/best-times-graphics-of-2024.html
-
-**Top Arab Diplomats Visit Syria to Build Ties With New Leadership**\
-`Ministers from Jordan and Qatar were among the first high-ranking Arab diplomats to meet with the leader of the rebel coalition that toppled the Syrian regime two weeks ago.`\
-https://nytimes.com/2024/12/23/world/middleeast/syria-arab-relations.html
 
