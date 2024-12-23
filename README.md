@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6014527/2024/12/22/49ers-loss-playoff-elimination-d
 https://nytimes.com/2024/12/22/us/politics/trump-callista-gingrich-ambassador-switzerland.html
 
 **Jayden Daniels maintains calm approach as Commanders come from behind to stun Eagles**\
-`The rookie QB had to wear his superhero cape to lead Washington over the NFC East-leading Eagles.`\
+`The rookie QB had to wear his superhero cape to lead Washington over NFC East-leading Philadelphia.`\
 https://nytimes.com/athletic/6014251/2024/12/22/commanders-jayden-daniels-win-eagles/
 
 **Ex-Penn State backup QB Beau Pribula transfers to Missouri**\
