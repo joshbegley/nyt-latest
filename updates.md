@@ -1,3 +1,11 @@
+**Deal Makers See a Rebound in 2025 as Trump Returns to Power**\
+`It was another down year for mergers and acquisitions, but Wall Street is optimistic that the lengthy lull is coming to an end.`\
+https://nytimes.com/2024/12/23/business/dealbook/year-in-deal-making.html
+
+**Sheffield United takeover completed by U.S. consortium**\
+`A U.`\
+https://nytimes.com/athletic/6006031/2024/12/23/sheffield-united-takeover-new-owners/
+
 **Silicon Valley Heads to Washington**\
 `President-elect Donald Trump is tapping the technology sector for key roles, and executives from the venture capital firm Andreessen Horowitz are featuring heavily.`\
 https://nytimes.com/2024/12/23/business/dealbook/silicon-valley-trump-administration.html

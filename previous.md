@@ -1,3 +1,11 @@
+**Deal Makers See a Rebound in 2025 as Trump Returns to Power**\
+`It was another down year for mergers and acquisitions, but Wall Street is optimistic that the lengthy lull is coming to an end.`\
+https://nytimes.com/2024/12/23/business/dealbook/year-in-deal-making.html
+
+**Sheffield United takeover completed by U.S. consortium**\
+`A U.`\
+https://nytimes.com/athletic/6006031/2024/12/23/sheffield-united-takeover-new-owners/
+
 **Silicon Valley Heads to Washington**\
 `President-elect Donald Trump is tapping the technology sector for key roles, and executives from the venture capital firm Andreessen Horowitz are featuring heavily.`\
 https://nytimes.com/2024/12/23/business/dealbook/silicon-valley-trump-administration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6013263/2024/12/23/rickey-henderson-independent-lea
 **Why Pettersson and Miller's lacklustre play is a bigger concern than Canucks' off-ice drama**\
 `Whatever Miller and Pettersson's feelings about each other, the Canucks' top two centres aren't performing on the ice.`\
 https://nytimes.com/athletic/6013257/2024/12/23/canucks-petterson-miller-drama-performance/
-
-**Dodgers Mailbag, Part 2: What's next for Roki Sasaki? And for Ohtani's return to mound?**\
-`Dodgers fans had questions about missing out on Juan Soto, deferred contracts, Dalton Rushing's potential and more. `\
-https://nytimes.com/athletic/6013355/2024/12/23/dodgers-roki-sasaki-shohei-ohtani/
-
-**Hurzeler unhappy with Brighton's Premier League form: 'I am very critical of myself'**\
-`Head coach Fabian Hurzeler says Brighton &amp; Hove Albion should be higher up the Premier League table at Christmas than 10th place.`\
-https://nytimes.com/athletic/6015031/2024/12/23/brighton-premier-league-form/
 
