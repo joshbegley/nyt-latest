@@ -1,3 +1,11 @@
+**Ford will donate $1 million and vehicles to the Trump inauguration.**\
+`By Neal E. Boudette`\
+https://nytimes.com/live/2024/12/23/us/matt-gaetz-report-trump-news/ford-will-donate-1-million-and-vehicles-to-the-trump-inauguration
+
+**Why the Bills' playoff opponents are likely to test their run defense**\
+`Plus, the offensive line continues to dominate.`\
+https://nytimes.com/athletic/6016285/2024/12/23/bills-defense-patriots-offensive-line/
+
 **gws-best-restaurant-dishes-america**\
 
 **Ford will donate $1 million and vehicles to the Trump inauguration.**\
