@@ -1,3 +1,7 @@
+**What it was like to go to two College Football Playoff games in two nights**\
+`Freezing temperatures, swirling winds and fired-up fans added new elements to the sport’s national title chase.`\
+https://nytimes.com/athletic/6013547/2024/12/23/ohio-state-notre-dame-playoff-game-temperatures/
+
 **U.S. Open doubles champion Max Purcell suspended from tennis after admitting doping violation**\
 `The Australian is the third major champion of the year to be sanctioned for a doping violation.`\
 https://nytimes.com/athletic/6014942/2024/12/23/max-purcell-doping-prohibited-method-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009870699/our-photographers-look-inside-new-y
 **Robbie Williams Never Broke the U.S. Can His Biopic?**\
 `He had 14 No. 1 singles in Britain, but is not well known in America. In the new movie “Better Man,” he’s played by a CGI monkey.`\
 https://nytimes.com/2024/12/23/movies/robbie-williams-better-man.html
-
-**The Son Who Couldn’t Leave**\
-`Paul Barreto’s father, Mickey, lived at the New Yorker Hotel in Manhattan for five years, paying only $200.57. Paul was desperate to escape.`\
-https://nytimes.com/2024/12/23/nyregion/new-yorker-hotel-barreto-son.html
 

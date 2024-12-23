@@ -1,3 +1,7 @@
+**What it was like to go to two College Football Playoff games in two nights**\
+`Freezing temperatures, swirling winds and fired-up fans added new elements to the sport’s national title chase.`\
+https://nytimes.com/athletic/6013547/2024/12/23/ohio-state-notre-dame-playoff-game-temperatures/
+
 **U.S. Open doubles champion Max Purcell suspended from tennis after admitting doping violation**\
 `The Australian is the third major champion of the year to be sanctioned for a doping violation.`\
 https://nytimes.com/athletic/6014942/2024/12/23/max-purcell-doping-prohibited-method-explained/
