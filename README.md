@@ -1,3 +1,7 @@
+**As Budget Impasse Grinds On, Macron Appoints a New Cabinet**\
+`President Emmanuel Macron named the choices less than three weeks after the previous government collapsed. He had already picked François Bayrou as prime minister.`\
+https://nytimes.com/2024/12/23/world/europe/macron-new-cabinet-france.html
+
 **CFP quarterfinal odds, picks, how to watch info: Texas, Penn State biggest favorites**\
 `After four blowouts in the CFP first round, two of the quarterfinals have very close spreads. Texas is the biggest favorite of the quarters.`\
 https://nytimes.com/athletic/6011857/2024/12/23/college-football-playoff-quarterfinal-odds-picks-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6014557/2024/12/23/nba-championship-finals-contende
 **BOS Nation FC locks in White Stadium as venue**\
 `Boston Mayor Michelle Wu said the lease will “open up the largest investment into BPS athletics and White Stadium since it opened in 1949."`\
 https://nytimes.com/athletic/6015728/2024/12/23/bos-nation-fc-white-stadium-nwsl/
-
-**AP men's basketball Top 25: Kentucky drops to No. 10 after Ohio State loss**\
-`Tennessee is the nation's No. 1 team, followed by Auburn at No. 2, for the third consecutive week in the AP men's basketball Top 25.`\
-https://nytimes.com/athletic/6016026/2024/12/23/ap-mens-basketball-top-25-poll-kentucky-auburn/
 
