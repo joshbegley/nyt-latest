@@ -1,3 +1,7 @@
+**Cowboys stifle Bucs 26-24 to shake up NFC South standings: Takeaways**\
+`DaRon Bland's strip and recovery on the Bucs' final drive clinched the Cowboys' win after a wild sequence.`\
+https://nytimes.com/athletic/6014002/2024/12/23/cowboys-buccaneers-snf-score-result-takeaways/
+
 **The Friedkin Group's start at Everton: Plan to help Dyche, impressed staff, fans lifted**\
 `After a landmark week and a takeover of Everton, the skies now appear to be clearing at Goodison Park`\
 https://nytimes.com/athletic/6013044/2024/12/23/friedkin-takeover-everton-goodison-chelsea/
