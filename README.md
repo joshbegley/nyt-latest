@@ -1,3 +1,7 @@
+**Jayden Daniels maintains calm approach as Commanders come from behind to stun Eagles**\
+`The rookie QB had to wear his superhero cape to lead Washington over the NFC East-leading Eagles.`\
+https://nytimes.com/athletic/6014251/2024/12/22/commanders-jayden-daniels-win-eagles/
+
 **Ex-Penn State backup QB Beau Pribula transfers to Missouri**\
 `Pribula entered the transfer portal last week ahead of Penn State’s first-ever appearance in the College Football Playoff.`\
 https://nytimes.com/athletic/6014445/2024/12/22/beau-pribula-missouri-penn-state-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6013120/2024/12/22/eagles-loss-sloppy-performance-c
 **What Caleb Williams' big-time throws mean in another ugly Bears loss**\
 `Williams and the Bears have lost nine games in a row. He hasn't thrown an interception in any of them. That's a first for an NFL QB.`\
 https://nytimes.com/athletic/6013911/2024/12/22/bears-caleb-williams-development-lions/
-
-**Finally in alignment, Commanders play winning football — and win in Congress, too**\
-`Washington put together a good third quarter of football, overcame a 13-point deficit and moved to the brink of a wild-card berth.`\
-https://nytimes.com/athletic/6013067/2024/12/22/commanders-defeat-eagles-aldridge/
 
