@@ -1,3 +1,7 @@
+**Part of Santa Cruz Wharf in California Collapses in High Surf**\
+`Two people were rescued by lifeguards and a third person made it to safety after part of the wharf, a major tourist attraction, collapsed in powerful surf, the authorities said.`\
+https://nytimes.com/2024/12/23/us/santa-cruz-wharf-collapse.html
+
 **Astros GM Dana Brown: Team pivoted when Alex Bregman negotiations 'stalled'**\
 `The Astros traded for Isaac Paredes and signed Christian Walker, effectively ending any chances of them re-signing Bregman.`\
 https://nytimes.com/athletic/6016748/2024/12/23/astros-alex-bregman-negotiations-stalled/
