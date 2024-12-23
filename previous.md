@@ -32,7 +32,7 @@ https://nytimes.com/2024/12/23/movies/robbie-williams-better-man.html
 
 **The Son Who Couldn’t Leave**\
 `Paul Barreto’s father, Mickey, lived at the New Yorker Hotel in Manhattan for five years, paying only $200.57. Paul was desperate to escape.`\
-https://nytimes.com/2024/12/23/nyregion/the-son-who-couldnt-leave.html
+https://nytimes.com/2024/12/23/nyregion/new-yorker-hotel-barreto-son.html
 
 **This feels different for Liverpool and Arne Slot's relentless team**\
 `Liverpool are clear at the top at Christmas - they have been caught before but they appear in control and Manchester City are fading`\

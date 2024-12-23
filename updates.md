@@ -1,3 +1,7 @@
+**The Son Who Couldn’t Leave**\
+`Paul Barreto’s father, Mickey, lived at the New Yorker Hotel in Manhattan for five years, paying only $200.57. Paul was desperate to escape.`\
+https://nytimes.com/2024/12/23/nyregion/new-yorker-hotel-barreto-son.html
+
 **Honda and Nissan Unveil Merger Talks as Global Competition Bears Down**\
 `Japan’s second- and third-largest automakers hope the deal can help them catch up with Tesla and China’s BYD in electric vehicles and advanced software.`\
 https://nytimes.com/2024/12/23/business/honda-nissan-merger-talks.html
