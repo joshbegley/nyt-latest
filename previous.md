@@ -1,3 +1,19 @@
+**Alfa Anderson, ‘Chic’ Singer, Dies at 78**\
+`She sang the famous refrain “Le freak, c’est chic,” on one of disco’s biggest hits and was a sought-after vocalist for many prominent artists.`\
+https://nytimes.com/2024/12/23/arts/music/alfa-anderson-dead.html
+
+**Can You Find the 10 Hidden 2024 Best Sellers in This Text Puzzle?**\
+`This year saw a variety of novels on the New York Times best-sellers list, including the 10 titles lurking in this very short story.`\
+https://nytimes.com/interactive/2024/12/23/books/review/2024-books-quiz.html
+
+**Penguins Today: The best Christmas gift is a playoff race**\
+`Today, we share the best Penguins treasures you've ever received as a holiday gift.`\
+https://nytimes.com/athletic/6015511/2024/12/23/penguins-today-nhl-christmas-break/
+
+**How Hallucinatory A.I. Helps Science Dream Up Big Breakthroughs**\
+`Hallucinations, a bane of popular A.I. programs, turn out to be a boon for venturesome scientists eager to push back the frontiers of human knowledge.`\
+https://nytimes.com/2024/12/23/science/ai-hallucinations-science.html
+
 **Mangione Pleads Not Guilty in First N.Y. State Court Appearance**\
 `The Manhattan district attorney’s office has charged Luigi Mangione, who is accused of killing UnitedHealthcare’s chief executive, with first-degree murder, a terrorism-related offense.`\
 https://nytimes.com/2024/12/23/nyregion/luigi-mangione-arraignment.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/23/world/europe/romania-election-russia.html
 **Valencia sack head coach Ruben Baraja**\
 `Valencia have sacked head coach Ruben Baraja after winning just two of their opening 17 La Liga matches this season.`\
 https://nytimes.com/athletic/6015435/2024/12/23/ruben-baraja-sacked-valencia-manager/
-
-**House Ethics Panel Draft Report Accuses Gaetz of ‘Regularly’ Paying for Sex and Using Drugs**\
-`The Florida Republican resigned from the House and withdrew as Donald J. Trump’s attorney general nominee in the weeks before the report’s expected release.`\
-https://nytimes.com/2024/12/23/us/politics/gaetz-house-ethics-report.html
-
-**Alessandro Nesta sacked as Monza head coach**\
-`Alessandro Nesta has been sacked as head coach of Monza after winning just one of his 17 Serie A matches in charge.`\
-https://nytimes.com/athletic/6015380/2024/12/23/alessandro-nesta-sacked-monza-manager/
-
-**Palace trigger Mateta contract extension**\
-`Crystal Palace have triggered an extension clause in Jean-Philippe Mateta’s contract which will see his deal now run for a further year until June 2027.`\
-https://nytimes.com/athletic/6015297/2024/12/23/crystal-palace-mateta-contract/
-
-**Deal Makers See a Rebound in 2025 as Trump Returns to Power**\
-`It was another down year for mergers and acquisitions, but Wall Street is optimistic that the lengthy lull is coming to an end.`\
-https://nytimes.com/2024/12/23/business/dealbook/year-in-deal-making.html
 

@@ -1,3 +1,19 @@
+**Alfa Anderson, ‘Chic’ Singer, Dies at 78**\
+`She sang the famous refrain “Le freak, c’est chic,” on one of disco’s biggest hits and was a sought-after vocalist for many prominent artists.`\
+https://nytimes.com/2024/12/23/arts/music/alfa-anderson-dead.html
+
+**Can You Find the 10 Hidden 2024 Best Sellers in This Text Puzzle?**\
+`This year saw a variety of novels on the New York Times best-sellers list, including the 10 titles lurking in this very short story.`\
+https://nytimes.com/interactive/2024/12/23/books/review/2024-books-quiz.html
+
+**Penguins Today: The best Christmas gift is a playoff race**\
+`Today, we share the best Penguins treasures you've ever received as a holiday gift.`\
+https://nytimes.com/athletic/6015511/2024/12/23/penguins-today-nhl-christmas-break/
+
+**How Hallucinatory A.I. Helps Science Dream Up Big Breakthroughs**\
+`Hallucinations, a bane of popular A.I. programs, turn out to be a boon for venturesome scientists eager to push back the frontiers of human knowledge.`\
+https://nytimes.com/2024/12/23/science/ai-hallucinations-science.html
+
 **Mangione Pleads Not Guilty in First N.Y. State Court Appearance**\
 `The Manhattan district attorney’s office has charged Luigi Mangione, who is accused of killing UnitedHealthcare’s chief executive, with first-degree murder, a terrorism-related offense.`\
 https://nytimes.com/2024/12/23/nyregion/luigi-mangione-arraignment.html
