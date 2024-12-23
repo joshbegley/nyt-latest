@@ -1,3 +1,11 @@
+**A Culture of Corruption and Abuse in the Biggest Police Department**\
+`It’s been abetted by Mayor Eric Adams.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/nypd-corruption-adams
+
+**Mystics hire Sydney Johnson, former Sky assistant, as head coach**\
+`The Mystics also brought in Jamila Wideman as their new general manager.`\
+https://nytimes.com/athletic/6016493/2024/12/23/mystics-hire-coach-sydney-johnson/
+
 **Ford will donate $1 million and vehicles to the Trump inauguration.**\
 `By Neal E. Boudette`\
 https://nytimes.com/live/2024/12/23/us/matt-gaetz-report-trump-news/ford-will-donate-1-million-and-vehicles-to-the-trump-inauguration
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6015626/2024/12/23/michael-vick-norfolk-state-head-
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
 https://nytimes.com/athletic/5891633/2024/12/23/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
-
-**Climate Change Is Making Homeownership Even More Unaffordable**\
-`Extreme weather is creating a crisis in the home insurance market that has no easy solution.`\
-https://nytimes.com/2024/12/23/opinion/homeowners-insurance-climate-change.html
-
-**Texas live mascot Bevo XV unlikely to travel to Atlanta for Peach Bowl**\
-`The minimal sideline space at Mercedes-Benz Stadium makes it difficult to accommodate Bevo, who weighs more than 1,700 pounds.`\
-https://nytimes.com/athletic/6016431/2024/12/23/texas-mascot-bevo-xv-peach-bowl/
 
