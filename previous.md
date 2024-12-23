@@ -1,40 +1,9 @@
-**Takeaways From the House Ethics Committee’s Investigation into Matt Gaetz**\
-`A 37-page report detailed the findings from a yearslong investigation into allegations that Mr. Gaetz engaged in a range of illegal conduct. He has repeatedly denied wrongdoing.`\
-https://nytimes.com/2024/12/23/us/politics/matt-gaetz-ethics-report-takeaways.html
+**Climate Change Is Making Homeownership Even More Unaffordable**\
+`Extreme weather is creating a crisis in the home insurance market that has no easy solution.`\
+https://nytimes.com/2024/12/23/opinion/homeowners-insurance-climate-change.html
 
-**A Perpetual Champagne, Built One Year at a Time**\
-`A new method of making nonvintage Champagnes is taking hold. Producers see it as a hedge against climate change while improving overall quality.`\
-https://nytimes.com/2024/12/23/dining/drinks/champagne-perpetual-reserve-method.html
+**Texas live mascot Bevo XV unlikely to travel to Atlanta for Peach Bowl**\
+`The minimal sideline space at Mercedes-Benz Stadium makes it difficult to accommodate Bevo, who weighs more than 1,700 pounds.`\
+https://nytimes.com/athletic/6016431/2024/12/23/texas-mascot-bevo-xv-peach-bowl/
 
-**D.C. Police Officer Convicted Over Leaking Information to Proud Boys’ Leader**\
-`A federal judge found Lt. Shane Lamond guilty of lying to investigators and undermining police work by sharing tips with Enrique Tarrio, the group’s leader.`\
-https://nytimes.com/2024/12/23/us/politics/dc-police-enrique-tarrio-proud-boys.html
-
-**Texans WR Tank Dell out for year with dislocated knee, torn ACL**\
-`Houston's receiving corps get thinner with both Dell and Stefon Diggs lost for the year. `\
-https://nytimes.com/athletic/6016214/2024/12/23/houston-texans-tank-dell-dislocated-knee/
-
-**As Budget Impasse Grinds On, Macron Appoints a New Cabinet**\
-`President Emmanuel Macron named the choices less than three weeks after the previous government collapsed. He had already picked François Bayrou as prime minister.`\
-https://nytimes.com/2024/12/23/world/europe/macron-new-cabinet-france.html
-
-**CFP quarterfinal odds, picks, how to watch info: Texas, Penn State biggest favorites**\
-`After four blowouts in the CFP first round, two of the quarterfinals have very close spreads. Texas is the biggest favorite of the quarters.`\
-https://nytimes.com/athletic/6011857/2024/12/23/college-football-playoff-quarterfinal-odds-picks-how-to-watch/
-
-**The Three Death Row Prisoners Biden Chose Not to Spare**\
-`President Biden commuted the sentences of 37 men on federal death row but declined to save the lives of three men convicted of “hate-motivated mass murder” or “terrorism.”`\
-https://nytimes.com/2024/12/23/us/death-row-biden-commutation.html
-
-**Slovak Leader Visits Putin, Breaking With E.U.’s Policy of Isolation**\
-`Prime Minister Robert Fico’s surprise visit to Moscow on Sunday, reportedly to discuss natural gas and Ukraine, was a blow to European unity against Russia’s invasion of Ukraine.`\
-https://nytimes.com/2024/12/23/world/europe/slovak-leader-visits-putin.html
-
-**Notre Dame DT Rylie Mills ruled out for rest of Playoff**\
-`Rylie Mills, a Notre Dame senior captain at DT, injured his knee against Indiana and will miss the Sugar Bowl vs. Georgia.`\
-https://nytimes.com/athletic/6016001/2024/12/23/notre-dame-rylie-mills-injury-georgia/
-
-**Browns' Stefanski 'hopeful' Thompson-Robinson will be able to play in Week 17**\
-`Second-year passer played through calf injury in Week 16. If DTR can't go, Browns will figure out their QB plans as the week goes. `\
-https://nytimes.com/athletic/6016155/2024/12/23/browns-dorian-thompson-robinson-calf-injury/
-
+**gws-best-restaurant-dishes-america**\
