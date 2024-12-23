@@ -1,3 +1,7 @@
+**Matt Gaetz Finds Support in His Former District in Florida**\
+`Republicans in the Panhandle district he represented before stepping down last month said Mr. Gaetz had done good work in Congress and criticized the report as partisan.`\
+https://nytimes.com/2024/12/23/us/politics/florida-matt-gaetz-panhandle-district.html
+
 **Georgia QB Carson Beck has season-ending surgery, Gunner Stockton in for CFP run**\
 `Beck had surgery on Monday after suffering an injury to his UCL during the SEC championship.`\
 https://nytimes.com/athletic/6016952/2024/12/23/carson-beck-georgia-quarterback-injury-surgery/
