@@ -1,3 +1,7 @@
+**Max Kepler's long, complicated Twins career comes to an end with Phillies deal**\
+`Max Kepler, Jorge Polanco and Miguel Sanó all signed with the Twins as 16-year-olds in 2009. Now they're all gone.`\
+https://nytimes.com/athletic/6010976/2024/12/23/max-kepler-twins-career-signs-phillies/
+
 **Trey Murphy’s offensive development can be a win in the Pelicans' lost season**\
 `With injuries putting the ball in his hands more often, Murphy is growing, even as his 3s don't fall. `\
 https://nytimes.com/athletic/6013824/2024/12/23/trey-murphys-pelicans-improvement-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6014939/2024/12/23/rams-nfc-west-physical-team/
 **Robert Thomas’ rise: A Swedish stick, frozen passes and becoming the face of the Blues franchise**\
 `Thomas and the Blues will play the Winter Classic this year at Wrigley Field in Chicago, where he was booed at the draft eight years ago.`\
 https://nytimes.com/athletic/5272868/2024/12/23/robert-thomas-blues-nhl-winter-classic/
-
-**Packers GM Brian Gutekunst, perhaps underappreciated, is really good at his job**\
-`The general manager has set his team up well for the present and future with strong drafting and smart free-agent signings.`\
-https://nytimes.com/athletic/6012980/2024/12/23/packers-gm-brian-gutekunst/
 

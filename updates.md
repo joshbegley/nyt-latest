@@ -1,3 +1,7 @@
+**Max Kepler's long, complicated Twins career comes to an end with Phillies deal**\
+`Max Kepler, Jorge Polanco and Miguel Sanó all signed with the Twins as 16-year-olds in 2009. Now they're all gone.`\
+https://nytimes.com/athletic/6010976/2024/12/23/max-kepler-twins-career-signs-phillies/
+
 **Trey Murphy’s offensive development can be a win in the Pelicans' lost season**\
 `With injuries putting the ball in his hands more often, Murphy is growing, even as his 3s don't fall. `\
 https://nytimes.com/athletic/6013824/2024/12/23/trey-murphys-pelicans-improvement-nba/
