@@ -1,3 +1,11 @@
+**Georgia QB Carson Beck has season-ending surgery, Gunner Stockton in for CFP run**\
+`Beck had surgery on Monday after suffering an injury to his UCL during the SEC championship.`\
+https://nytimes.com/athletic/6016952/2024/12/23/carson-beck-georgia-quarterback-injury-surgery/
+
+**Bill Clinton Is Hospitalized After Developing a Fever**\
+`A Washington hospital admitted Mr. Clinton for testing and observation, and an aide said that the former president was “in good spirits.”`\
+https://nytimes.com/2024/12/23/us/politics/bill-clinton-hospital-fever.html
+
 **I.R.S. to Send Out Unclaimed Tax Credit to One Million Taxpayers**\
 `Some Americans who qualified for a pandemic-era tax credit but did not claim it will get up to $1,400 in their account within the next month.`\
 https://nytimes.com/2024/12/23/business/irs-stimulus-check-payments.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6016321/2024/12/23/maple-leafs-report-cards-tavares
 **Texans claim ex-Ravens WR Diontae Johnson off waivers days before game with Baltimore: Source**\
 `Houston was thin at the wide receiver position following Tank Dell's season-ending injury. `\
 https://nytimes.com/athletic/6016647/2024/12/23/diontae-johnson-texans-claim-ravens-game/
-
-**Texas vs. Arizona State: How to watch, picks, odds for CFP quarterfinal Peach Bowl**\
-`Texas is favored by roughly two touchdowns for its CFP quarterfinal against Arizona State. Can the Sun Devils spring the upset?`\
-https://nytimes.com/athletic/6016648/2024/12/23/texas-arizona-state-picks-odds-college-football-playoff/
-
-**NCAA appeals in Diego Pavia case but creates blanket '25-26 waiver for juco players**\
-`Pavia's suit argued that counting junior college toward an athlete’s eligibility clock was an unlawful restraint on his NIL earning power.`\
-https://nytimes.com/athletic/6016665/2024/12/23/diego-pavia-lawsuit-ncaa-juco-waiver/
 
