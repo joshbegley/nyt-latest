@@ -1,3 +1,15 @@
+**‘Dune: Prophecy’ Season 1 Finale Recap: Building the Perfect Beast**\
+`Valya confronts the limits of her power, and a terrifying truth comes to light about Desmond’s history.`\
+https://nytimes.com/2024/12/22/arts/television/dune-prophecy-recap-season-1-finale.html
+
+**Injuries, errors and missed kicks: 49ers’ loss to Dolphins sums up their season**\
+`The 49ers ended the game missing the left side of their offensive line and getting little production from backup tailback Patrick Taylor Jr.`\
+https://nytimes.com/athletic/6014527/2024/12/22/49ers-loss-playoff-elimination-dolphins/
+
+**Jayden Daniels maintains calm approach as Commanders come from behind to stun Eagles**\
+`The rookie QB had to wear his superhero cape to lead Washington over NFC East-leading Philadelphia.`\
+https://nytimes.com/athletic/6014251/2024/12/22/commanders-jayden-daniels-win-eagles/
+
 **Trump Picks Callista Gingrich for Ambassador to Switzerland**\
 `In announcing his choice of various envoys, including ambassador to Denmark, the president-elect again floated the idea of the United States acquiring Greenland.`\
 https://nytimes.com/2024/12/22/us/politics/trump-callista-gingrich-ambassador-switzerland.html
