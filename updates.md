@@ -1,3 +1,11 @@
+**The Best Times Graphics of 2024**\
+`Our visual journalists are always on the prowl for innovative ways to tell big news stories.`\
+https://nytimes.com/2024/12/23/briefing/best-times-graphics-of-2024.html
+
+**Top Arab Diplomats Visit Syria to Build Ties With New Leadership**\
+`Ministers from Jordan and Qatar were among the first high-ranking Arab diplomats to meet with the leader of the rebel coalition that toppled the Syrian regime two weeks ago.`\
+https://nytimes.com/2024/12/23/world/middleeast/syria-arab-relations.html
+
 **Transfer portal takeaways: How Bill Belichick, UNC are faring, where top players are landing**\
 `We dive into the biggest takeaways from the first two weeks of portal action.`\
 https://nytimes.com/athletic/6014440/2024/12/23/college-football-transfer-portal-bill-belichick-winners-losers/
