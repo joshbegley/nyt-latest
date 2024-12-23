@@ -1,3 +1,11 @@
+**A Culture of Corruption and Abuse in the Biggest Police Department**\
+`It’s been abetted by Mayor Eric Adams.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/nypd-corruption-adams
+
+**Mystics hire Sydney Johnson, former Sky assistant, as head coach**\
+`The Mystics also brought in Jamila Wideman as their new general manager.`\
+https://nytimes.com/athletic/6016493/2024/12/23/mystics-hire-coach-sydney-johnson/
+
 **Ford will donate $1 million and vehicles to the Trump inauguration.**\
 `By Neal E. Boudette`\
 https://nytimes.com/live/2024/12/23/us/matt-gaetz-report-trump-news/ford-will-donate-1-million-and-vehicles-to-the-trump-inauguration
