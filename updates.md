@@ -1,3 +1,7 @@
+**Despite team's support, Jerod Mayo's seat feels a bit warmer after another Patriots loss**\
+`The Patriots are 3-12 and have lost five straight. With Mike Vrabel available, has Mayo done enough to earn a second season?`\
+https://nytimes.com/athletic/6014333/2024/12/22/patriots-loss-jerod-mayo-job-bills/
+
 **Jayden Daniels maintains calm approach as Commanders come from behind to stun Eagles**\
 `The rookie QB had to wear his superhero cape to lead Washington over the NFC East-leading Eagles.`\
 https://nytimes.com/athletic/6014251/2024/12/22/commanders-jayden-daniels-win-eagles/

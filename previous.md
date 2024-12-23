@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6014445/2024/12/22/beau-pribula-missouri-penn-state
 https://nytimes.com/athletic/6014481/2024/12/22/florida-dallas-wilson-oregon-flip/
 
 **Despite team's support, Jerod Mayo's seat feels a bit warmer after another Patriots loss**\
-`The Patriots are 3-12 and have lost five straight. With Mike Vrabel available, has Jerod Mayo done enough to earn a second season?`\
+`The Patriots are 3-12 and have lost five straight. With Mike Vrabel available, has Mayo done enough to earn a second season?`\
 https://nytimes.com/athletic/6014333/2024/12/22/patriots-loss-jerod-mayo-job-bills/
 
 **Dolphins keep slim playoff chances after 29-17 win over 49ers: Takeaways**\
