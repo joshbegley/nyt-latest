@@ -1,3 +1,11 @@
+**Jayden Daniels maintains calm approach as Commanders come from behind to stun Eagles**\
+`The rookie QB had to wear his superhero cape to lead Washington over the NFC East-leading Eagles.`\
+https://nytimes.com/athletic/6014251/2024/12/22/commanders-jayden-daniels-win-eagles/
+
+**As Eagles fail to clinch NFC East, Jalen Hurts' concussion is another concern**\
+`Eagles' "sloppy" performance cost them against the Commanders.`\
+https://nytimes.com/athletic/6013120/2024/12/22/eagles-loss-sloppy-performance-commanders/
+
 **Ex-Penn State backup QB Beau Pribula transfers to Missouri**\
 `Pribula entered the transfer portal last week ahead of Penn State’s first-ever appearance in the College Football Playoff.`\
 https://nytimes.com/athletic/6014445/2024/12/22/beau-pribula-missouri-penn-state-transfer/
