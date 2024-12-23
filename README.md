@@ -1,3 +1,11 @@
+**Phillies to sign Joe Ross to one-year deal as swingman: Sources**\
+`Ross had a 3.77 ERA for the Brewers in 2024 while making 10 starts and 15 relief appearances.`\
+https://nytimes.com/athletic/6016556/2024/12/23/phillies-joe-ross/
+
+**Trump’s Wish to Control Greenland and Panama Canal: Not a Joke This Time**\
+`In recent days the president-elect has called for asserting U.S. control over the Panama Canal and Greenland, showing that his “America First” philosophy has an expansionist dimension.`\
+https://nytimes.com/2024/12/23/us/politics/trump-greenland-panama-canal.html
+
 **Jets QB Aaron Rodgers: Without leaks 'it will be a little easier to win'**\
 `Rodgers comments come a day after Jets' latest loss drops New York to 4-11 in a season that started with Super Bowl expectations. `\
 https://nytimes.com/athletic/6016386/2024/12/23/aaron-rodgers-jets-leaks-comments-pat-mcafee/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/23/world/middleeast/netanyahu-hostage-deal.html
 **This Midnight Pasta Was Made for New Year’s Eve**\
 `Skip expensive caviar for sushi-style tobiko in this festive New Year’s Eve recipe from Eric Kim.`\
 https://nytimes.com/2024/12/23/dining/tobiko-pasta.html
-
-**Super Bowl odds: Lions, Bills, Chiefs form top tier of favorites after Week 16 action**\
-`The Detroit Lions got back in the win column and stand alone as the favorite to win the Super Bowl, just ahead of the Bills and Chiefs.`\
-https://nytimes.com/athletic/6016234/2024/12/23/super-bowl-odds-lions-bills-chiefs/
-
-**Suspect Charged in Fatal Burning of Woman on Subway**\
-`The man charged with murder in the woman’s death was identified by federal officials as a 33-year-old from Guatemala who was in the United States illegally.`\
-https://nytimes.com/2024/12/23/nyregion/fatal-subway-fire.html
 
