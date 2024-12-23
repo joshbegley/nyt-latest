@@ -1,3 +1,11 @@
+**Your Christmas Day Lineup, Plus 4 Things to Watch on TV this Week**\
+`Get ready for football games, floats and Beyoncé, oh my! And start preparing for the new year with specials looking back at 2024.`\
+https://nytimes.com/2024/12/23/arts/television/your-christmas-day-lineup-plus-4-things-to-watch-on-tv-this-week.html
+
+**Trump and Biden, Make the Hostages Your Priority**\
+`I was held captive in Gaza. Healing will only happen when all the captives have been brought home.`\
+https://nytimes.com/2024/12/23/opinion/trump-and-biden-make-the-hostages-your-priority.html
+
 **Cowboys stifle Bucs 26-24 to shake up NFC South standings: Takeaways**\
 `DaRon Bland's strip and recovery on the Bucs' final drive clinched the Cowboys' win after a wild sequence.`\
 https://nytimes.com/athletic/6014002/2024/12/23/cowboys-buccaneers-snf-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6012916/2024/12/23/leicester-city-wolves-loss-analy
 **Joel Veltman's return a timely boost for Brighton - and he could be set for a longer stay**\
 `The 33-year-old returned to face West Ham after a four-match absence, and tells The Athletic he would be happy to end his career at the Amex`\
 https://nytimes.com/athletic/6010713/2024/12/23/joel-veltman-brighton-west-ham-contract/
-
-**What Pontus Jansson learned from Thomas Frank: 'The way he changed me I will never forget'**\
-`The Swedish defender was recently inducted into Brentford's Hall of Fame, and tells The Athletic about working with the club's manager`\
-https://nytimes.com/athletic/5949406/2024/12/23/pontus-jansson-brentford-thomas-frank/
-
-**Wolves were just crying out for a new voice - Pereira has given these players their mojo back**\
-`Wolves managed to beat Leicester 3-0 in Vitor Pereira's first game in charge of the club`\
-https://nytimes.com/athletic/6012725/2024/12/23/wolves-vitor-pereira-leicester-analysis/
 

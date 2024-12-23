@@ -1,3 +1,11 @@
+**Your Christmas Day Lineup, Plus 4 Things to Watch on TV this Week**\
+`Get ready for football games, floats and Beyoncé, oh my! And start preparing for the new year with specials looking back at 2024.`\
+https://nytimes.com/2024/12/23/arts/television/your-christmas-day-lineup-plus-4-things-to-watch-on-tv-this-week.html
+
+**Trump and Biden, Make the Hostages Your Priority**\
+`I was held captive in Gaza. Healing will only happen when all the captives have been brought home.`\
+https://nytimes.com/2024/12/23/opinion/trump-and-biden-make-the-hostages-your-priority.html
+
 **Cowboys stifle Bucs 26-24 to shake up NFC South standings: Takeaways**\
 `DaRon Bland's strip and recovery on the Bucs' final drive clinched the Cowboys' win after a wild sequence.`\
 https://nytimes.com/athletic/6014002/2024/12/23/cowboys-buccaneers-snf-score-result-takeaways/
