@@ -1,3 +1,11 @@
+**Trump Names His Picks for Top Pentagon Roles**\
+`They include a billionaire investor who supported Mr. Trump’s campaign, a former official who froze aid to Ukraine and a former executive at Uber.`\
+https://nytimes.com/2024/12/22/us/trump-pentagon-defense-nominees.html
+
+**Two years later, a former Jets play-caller gets the last laugh**\
+`In Sunday's loss to the Rams, the Jets made the wrong kind of history again.`\
+https://nytimes.com/athletic/6013953/2024/12/22/jets-loss-rams-mike-lafleur-return/
+
 **Eagles fail to clinch NFC East in 'sloppy' performance vs. Commanders**\
 `The Eagles' primary concern now is Jalen Hurts' health.`\
 https://nytimes.com/athletic/6013120/2024/12/22/eagles-loss-sloppy-performance-commanders/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6012893/2024/12/22/jaguars-raiders-score-result-tak
 **Greenberg: No-brainer for Bears? Top coach candidate Ben Johnson shows why he's easy pick**\
 `Johnson is "as detailed as they come," players said after Detroit's easy win. It showed on the “Stumble Bum” trick play that went for a TD.`\
 https://nytimes.com/athletic/6013872/2024/12/22/bears-lions-ben-johnson-coach-search/
-
-**Myles Garrett, Browns limping toward the finish of what's been a miserable season**\
-`For Cleveland, the goal is to just get to the end of this season without more major injuries or made-for-TV drama.`\
-https://nytimes.com/athletic/6013856/2024/12/22/browns-myles-garrett-loss-bengals/
-
-**If You Want to Destroy My Sweater, Hold This Thread as I Walk Away**\
-`When something that should be innocuous unravels your world.`\
-https://nytimes.com/2024/12/22/podcasts/if-you-want-to-destroy-my-sweater-this-american-life-nyt-audio.html
 

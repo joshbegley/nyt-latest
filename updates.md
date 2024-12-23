@@ -1,3 +1,11 @@
+**Trump Names His Picks for Top Pentagon Roles**\
+`They include a billionaire investor who supported Mr. Trump’s campaign, a former official who froze aid to Ukraine and a former executive at Uber.`\
+https://nytimes.com/2024/12/22/us/trump-pentagon-defense-nominees.html
+
+**Two years later, a former Jets play-caller gets the last laugh**\
+`In Sunday's loss to the Rams, the Jets made the wrong kind of history again.`\
+https://nytimes.com/athletic/6013953/2024/12/22/jets-loss-rams-mike-lafleur-return/
+
 **Eagles fail to clinch NFC East in 'sloppy' performance vs. Commanders**\
 `The Eagles' primary concern now is Jalen Hurts' health.`\
 https://nytimes.com/athletic/6013120/2024/12/22/eagles-loss-sloppy-performance-commanders/
