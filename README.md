@@ -1,40 +1,40 @@
-**The Hardest Conversation to Have With Your Parents**\
+**What Does a Sugar Plum Fairy Sound Like?**\
+`Meet the celesta.`\
+https://nytimes.com/2024/12/24/podcasts/what-does-a-sugar-plum-fairy-sound-like.html
+
+**‘The Fire Inside’ Review: When the Fight Isn’t in the Ring**\
+`The story of the boxer Claressa Shields could have been just another sports movie. Directed by Rachel Morrison and penned by Barry Jenkins, it’s much more than that.`\
+https://nytimes.com/2024/12/24/movies/the-fire-inside-review-when-the-fight-isnt-in-the-ring.html
+
+**5 Getaways for a Cozy Winter Escape**\
+`From Austria to Montana, we found a tempting array of hotels, resorts and other getaways for the perfect winter vacation.`\
+https://nytimes.com/2024/12/24/travel/five-winter-hotels.html
+
+**You’re Never Too Old to Have ‘the Talk’**\
 `Sex is a big part of life. Why is it so hard to talk to family members about it?`\
-https://nytimes.com/video/opinion/100000009880784/sex-relationships-family.html
+https://nytimes.com/2024/12/24/opinion/sex-relationships-family.html
 
-**F1 2024 report cards: McLaren gets top marks, Aston Martin needs improvement**\
-`Which teams impressed the most and who has work to do before class resumes in March?`\
-https://nytimes.com/athletic/6001939/2024/12/24/f1-team-2024-ratings-report-cards/
+**Has Seattle’s ‘Belltown Hellcat’ Lost Its Fearsome Roar?**\
+`A modified Dodge Charger that blasted neighbors out of their sleep appears to have gone quiet, at least downtown, as its owner deals with legal problems.`\
+https://nytimes.com/2024/12/24/us/hellcat-charger-loud-car.html
 
-**Warriors lose at home to Pacers as Steph Curry tries to find his rhythm**\
-`"I could be a lot better," Curry said. "And I will be.”`\
-https://nytimes.com/athletic/6017346/2024/12/24/warriors-steph-curry-lose-to-pacers/
+**The Mysterious Donor Who Fled Communism and Left Millions to the Art World**\
+`Asa O. Tavitian grew up poor — but at age 64 he began an ‘‘explosion of buying.” Under the radar, he amassed old masters, leaving 331 to the Clark. How did he do it?`\
+https://nytimes.com/2024/12/24/arts/design/tavitian-collector-old-masters-auction-art-clark.html
 
-**How So Many People Became Obsessed With Looking for Drones in the Sky**\
-`The first sighting was at a military site in New Jersey, then the phenomenon spread into neighboring states. Government assurances that most “drones” were not drones at all has not tamped down curiosity.`\
-https://nytimes.com/2024/12/24/nyregion/new-jersey-new-york-drones.html
+**Flaco, Manhattan’s Beloved Celebrity Owl, Gets His Close-Up**\
+`In a new book, two photographers memorialize the bird that charmed New York City and the world.`\
+https://nytimes.com/2024/12/24/books/review/finding-flaco-owl-photo-book.html
 
-**A New Way to Shrink Class Sizes: Let Schools Take Charge**\
-`This year, schools were encouraged to come up with their own plans to lower their class sizes and apply to the Department of Education for funding.`\
-https://nytimes.com/2024/12/24/nyregion/nyc-schools-class-sizes.html
+**What I’m Thinking at the End of 2024**\
+`Ezra Klein answers listener questions about fatherhood, ‘normalizing’ Trump and his outlook on 2025.`\
+https://nytimes.com/2024/12/24/opinion/ezra-klein-podcast-ask-me-anything.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/24/crosswords/spelling-bee-forum.html
+**If You’re Worried About the Future of Our Country, Do Something About It**\
+`Involvement in issues beyond the immediate scope of one’s personal life and work, undertaken for the greater good, is more important than ever.`\
+https://nytimes.com/2024/12/24/opinion/civil-society-importance.html
 
-**Brighton moving away section at Amex Stadium to give themselves better home advantage**\
-`Brighton &amp; Hove Albion have revealed plans to move the away section at the Amex Stadium to give the team a greater home advantage.`\
-https://nytimes.com/athletic/6003023/2024/12/24/brighton-amex-away-fans-redevelopment/
-
-**Short-handed Magic, NBA's most cohesive group of 'dawgs,' upset the defending champs**\
-`Perhaps no team in the NBA has the intangibles the Magic possess, as the Celtics learned Monday night.`\
-https://nytimes.com/athletic/6017599/2024/12/24/orlando-magic-beat-boston-celtics/
-
-**Cleaning to Soothe the Worried**\
-`I come from a long line of house cleaners. After Oct. 7, I knew what to do.`\
-https://nytimes.com/2024/12/24/opinion/cleaning-to-soothe-the-worried.html
-
-**Wild lower the temperature with a win, excited for a 'fresh start after Christmas'**\
-`Taking three days away from hockey will allow a banged-up Wild team to reset mentally and physically.`\
-https://nytimes.com/athletic/6017541/2024/12/24/wild-reset-holiday-break-blackhawks/
+**The Timeless Spell of Rome’s Oldest Churches**\
+`During the upcoming Jubilee year, millions of Christian pilgrims will flock to the Eternal City’s innumerable holy places. Here are five gorgeous churches that may offer a less-crowded experience.`\
+https://nytimes.com/2024/12/24/travel/churches-rome-jubilee-year.html
 
