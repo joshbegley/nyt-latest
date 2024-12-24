@@ -2,6 +2,10 @@
 `Gomez registered 13 goal involvements playing alongside Messi, Suarez & Co in 2024 - what will 2025 and a move to the Premier League bring?`\
 https://nytimes.com/athletic/5844866/2024/12/24/diego-gomez-brighton-inter-miami-messi/
 
+**Saka is the latest to suffer as hamstring problems increase across the Premier League**\
+`The Athletic's medical expert, Geoff Scott, explains the challenges facing clubs and elite players as hamstring problems become more severe`\
+https://nytimes.com/athletic/6015615/2024/12/24/bukayo-saka-and-the-increase-in-hamstring-injuries-across-the-premier-league/
+
 **The four 'seasons' of the 2024-25 Premier League campaign so far**\
 `If you partitioned the season so far using the international breaks, here's who won and lost each 'mini season'`\
 https://nytimes.com/athletic/6012450/2024/12/24/the-four-seasons-of-the-2024-25-premier-league-campaign-so-far/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/world/europe/uk-parliament-hereditary-peers-lords
 **The story behind the Nuno revolution at Nottingham Forest**\
 `How Nuno has used his experiences at Wolves, Spurs and elsewhere – good and bad – to change perceptions of what Forest can achieve.`\
 https://nytimes.com/athletic/6004057/2024/12/24/the-story-behind-the-nuno-ification-of-nottingham-forest/
-
-**Sorting Fact From Fiction as Fear Engulfs Bangladesh’s Hindus**\
-`Reports of vandalism and mob violence are real, but wilder accusations emanating from India muddy the picture.`\
-https://nytimes.com/2024/12/24/world/asia/bangladesh-hindus.html
 
