@@ -1,6 +1,6 @@
 **Fragments of Santa Cruz Wharf Wash Ashore After Partial Collapse**\
 `Broken wood, debris and a building floated in the ocean after the end of the wharf collapsed.`\
-https://nytimes.com/video/us/100000009894637/fragments-of-santa-cruz-wharf-wash-ashore-after-partial-collapse.html
+https://nytimes.com/video/us/100000009894637/santa-cruz-wharf-collapse.html
 
 **Hochul Orders Firing of 14 Prison Workers After Fatal Attack on Inmate**\
 `Video of the deadly assault on Robert L. Brooks was “horrific,” “disturbing” and “devastating,” a lawyer for his family said after they watched it.`\
