@@ -1,3 +1,7 @@
+**20 Big Cats Die From Bird Flu at a Washington Sanctuary**\
+`More than half of the cats at the sanctuary in Shelton, Wash., died of the virus over the past several weeks.`\
+https://nytimes.com/2024/12/24/us/big-cat-bird-flu-deaths-washington.html
+
 **William Labov, Who Studied How Society Shapes Language, Dies at 97**\
 `He laid the foundation for sociolinguistics, and he showed that structures like class and race shaped speech as much as where someone lives.`\
 https://nytimes.com/2024/12/24/us/william-labov-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/sports/sophie-hediger-swiss-snowboarder-dead-aval
 **What I Learned Most From My Trip to China**\
 `America must compete with China, but there’s also a complicated reality that both countries have to face.`\
 https://nytimes.com/2024/12/24/opinion/us-china-relationship.html
-
-**Avoid California Beaches Because of Dangerous Waves, Officials Warn**\
-`An unusually powerful surf has already killed one man and destroyed part of a historic pier in Santa Cruz, Calif.`\
-https://nytimes.com/2024/12/24/us/california-beach-surf-pier-warning.html
 

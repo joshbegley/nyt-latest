@@ -1,3 +1,7 @@
+**20 Big Cats Die From Bird Flu at a Washington Sanctuary**\
+`More than half of the cats at the sanctuary in Shelton, Wash., died of the virus over the past several weeks.`\
+https://nytimes.com/2024/12/24/us/big-cat-bird-flu-deaths-washington.html
+
 **Christmas Tree Burning Ignites Protests in Syria**\
 `Hundreds of people gathered in Christian neighborhoods in Syria’s capital, Damascus, after a video circulated showing an artificial Christmas tree on fire.`\
 https://nytimes.com/video/world/middleeast/100000009895321/christmas-tree-burning-syria-protests.html
