@@ -1,3 +1,7 @@
+**Full Time: USWNT's 2024 jump scare**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6017331/2024/12/23/uswnt-retirements-2024-soccer-gifts-full-time/
+
 **Ages and Ages**\
 `Sarah Sinclair breaks with tradition.`\
 https://nytimes.com/2024/12/23/crosswords/daily-puzzle-2024-12-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/business/us-steel-nippon-biden-cfius.html
 **Mets rotation gains stability, Red Sox bet on Buehler and Rangers shuffle corners: Law**\
 `The Mets improved their rotation, while the Red Sox rolled the dice on a potential bounce-back. The Rangers added a hitter but lost another.`\
 https://nytimes.com/athletic/6017088/2024/12/23/rangers-red-sox-mets-manaea-buehler-pederson/
-
-**Deputies Missed Signs Before a Detainee Hanged Himself**\
-`Reports and video footage newly released in Riverside County, Calif., indicate that a man was able to cover his cell window and camera without intervention.`\
-https://nytimes.com/2024/12/23/us/ca-jail-death-riverside-county.html
 

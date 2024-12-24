@@ -1,3 +1,7 @@
+**Full Time: USWNT's 2024 jump scare**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/6017331/2024/12/23/uswnt-retirements-2024-soccer-gifts-full-time/
+
 **Ages and Ages**\
 `Sarah Sinclair breaks with tradition.`\
 https://nytimes.com/2024/12/23/crosswords/daily-puzzle-2024-12-24.html
