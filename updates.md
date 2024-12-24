@@ -1,3 +1,7 @@
+**Scoop City: Netflix's $150M football Christmas**\
+`A brief look at the why and how behind Netflix's big NFL bet, plus: What a win means for each Christmas team and good vibes in Washington.`\
+https://nytimes.com/athletic/6018310/2024/12/24/netflix-christmas-schedule-nfl-scoop-city/
+
 **NFL Week 17 playoff scenarios: Broncos, Chargers, Commanders eye berths**\
 `First-round byes and seeds are still up for grabs and several teams can still earn a spot in the playoffs this weekend.`\
 https://nytimes.com/athletic/6018270/2024/12/24/nfl-week-17-playoff-scenarios-2/
