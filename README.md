@@ -1,3 +1,7 @@
+**Brighton moving away section at Amex Stadium to give themselves better home advantage**\
+`Brighton &amp; Hove Albion have revealed plans to move the away section at the Amex Stadium to give the team a greater home advantage.`\
+https://nytimes.com/athletic/6003023/2024/12/24/brighton-amex-away-fans-redevelopment/
+
 **Short-handed Magic, NBA's most cohesive group of 'dawgs,' upset the defending champs**\
 `Perhaps no team in the NBA has the intangibles the Magic possess, as the Celtics learned Monday night.`\
 https://nytimes.com/athletic/6017599/2024/12/24/orlando-magic-beat-boston-celtics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016656/2024/12/24/penguins-crosby-rivalry-flyers-r
 **Leicester City's 2024: Promotion, three managers - and Jamie Vardy's still got it**\
 `They won the Championship, having made hard work of it, but lost a star manager and are finding their Premier League return tough`\
 https://nytimes.com/athletic/6001110/2024/12/24/leicester-citys-2024-promotion-three-managers-and-jamie-vardy-still-banging-in-goals/
-
-**'I don't digest food properly now' — the all-consuming pressure of managing a football club**\
-`Football, essentially, actively discourages managers to switch off. Most Premier League managers struggled to describe how they relax`\
-https://nytimes.com/athletic/6016936/2024/12/24/manager-pressure-guardiola-postecoglou/
 
