@@ -1,3 +1,7 @@
+**What I Learned Most From My Trip to China**\
+`America must compete with China, but there’s also a complicated reality that both countries have to face.`\
+https://nytimes.com/2024/12/24/opinion/us-china-relationship.html
+
 **Avoid California Beaches Because of Dangerous Waves, Officials Warn**\
 `An unusually powerful surf has already killed one man and destroyed part of a historic pier in Santa Cruz, Calif.`\
 https://nytimes.com/2024/12/24/us/california-beach-surf-pier-warning.html
