@@ -18,7 +18,7 @@ https://nytimes.com/2024/12/23/us/politics/bill-clinton-hospital-fever.html
 `Some Americans who qualified for a pandemic-era tax credit but did not claim it will get up to $1,400 in their account within the next month.`\
 https://nytimes.com/2024/12/23/business/irs-stimulus-check-payments.html
 
-**Money for 9/11 Health Care Was Dropped From Year-End Spending Bill**\
+**Money for 9/11 Health Care Was Dropped from Year-End Spending Bill**\
 `A plan to ensure long-term funding to address health needs stemming from the terrorist attacks fell to the wayside after President-elect Donald Trump and Elon Musk objected to a bipartisan budget deal.`\
 https://nytimes.com/2024/12/23/us/politics/sept-11-health-care-spending-bill.html
 
