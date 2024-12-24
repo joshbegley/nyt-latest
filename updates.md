@@ -1,3 +1,7 @@
+**The Hardest Conversation to Have With Your Parents**\
+`Sex is a big part of life. Why is it so hard to talk to family members about it?`\
+https://nytimes.com/video/opinion/100000009880784/sex-relationships-family.html
+
 **F1 2024 report cards: McLaren gets top marks, Aston Martin needs improvement**\
 `Which teams impressed the most and who has work to do before class resumes in March?`\
 https://nytimes.com/athletic/6001939/2024/12/24/f1-team-2024-ratings-report-cards/

@@ -1,3 +1,7 @@
+**The Hardest Conversation to Have With Your Parents**\
+`Sex is a big part of life. Why is it so hard to talk to family members about it?`\
+https://nytimes.com/video/opinion/100000009880784/sex-relationships-family.html
+
 **F1 2024 report cards: McLaren gets top marks, Aston Martin needs improvement**\
 `Which teams impressed the most and who has work to do before class resumes in March?`\
 https://nytimes.com/athletic/6001939/2024/12/24/f1-team-2024-ratings-report-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/opinion/cleaning-to-soothe-the-worried.html
 **Wild lower the temperature with a win, excited for a 'fresh start after Christmas'**\
 `Taking three days away from hockey will allow a banged-up Wild team to reset mentally and physically.`\
 https://nytimes.com/athletic/6017541/2024/12/24/wild-reset-holiday-break-blackhawks/
-
-**Tom Gores talks Cade Cunningham, state of the Pistons and more**\
-`The mood around the Pistons is much different than it was this time a year ago.`\
-https://nytimes.com/athletic/6017512/2024/12/24/tom-gores-interview-pistons-cade-cunningham/
 
