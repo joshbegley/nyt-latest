@@ -1,3 +1,7 @@
+**Until Saturday: Three big things from the first round**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6017367/2024/12/23/cfp-home-games-quarterfinals-until-saturday/
+
 **Gustavsson returns triumphant as Wild snap losing streak heading into break: 3 takeaways**\
 `The Wild also finally scored without needing Kirill Kaprizov on the ice in a 4-3 win over the Blackhawks.`\
 https://nytimes.com/athletic/6017111/2024/12/23/wild-gustavsson-return-blackhawks-fourth-line/
