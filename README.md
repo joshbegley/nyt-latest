@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6016656/2024/12/24/penguins-crosby-rivalry-flyers-r
 `They won the Championship, having made hard work of it, but lost a star manager and are finding their Premier League return tough`\
 https://nytimes.com/athletic/6001110/2024/12/24/leicester-citys-2024-promotion-three-managers-and-jamie-vardy-still-banging-in-goals/
 
-**A year of INEOS at Manchester United: Ruthless cost-cutting, hiring and firing...and an FA Cup**\
-`The past year has been a whirlwind of triumph, trauma and turmoil at Manchester United. And there may be more to come...`\
-https://nytimes.com/athletic/6015096/2024/12/24/manchester-united-ineos-anniversary-ratcliffe/
+**'I don't digest food properly now' — the all-consuming pressure of managing a football club**\
+`Football, essentially, actively discourages managers to switch off. Most Premier League managers struggled to describe how they relax`\
+https://nytimes.com/athletic/6016936/2024/12/24/manager-pressure-guardiola-postecoglou/
 
