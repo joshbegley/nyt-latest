@@ -1,3 +1,7 @@
+**Deputies Missed Signs Before a Detainee Hanged Himself**\
+`Reports and video footage newly released in Riverside County, Calif., indicate that a man was able to cover his cell window and camera without intervention.`\
+https://nytimes.com/2024/12/23/us/ca-jail-death-riverside-county.html
+
 **Eagles QB Hurts enters concussion protocol, no update on Pickett**\
 `Philadelphia is a win away from clinching the NFC East and will look to do so in Week 17 at home against the Dallas Cowboys. `\
 https://nytimes.com/athletic/6016611/2024/12/23/eagles-nick-sirianni-jalen-hurts-concussion-kenny-pickett/
