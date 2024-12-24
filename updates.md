@@ -1,3 +1,7 @@
+**Israel Intercepts Houthi Missile and Threatens Militant Group’s Leaders**\
+`Israel said it had shot down a missile fired by Houthi militants in Yemen, hours after Israel’s defense minister threatened to “behead” the group’s leadership.`\
+https://nytimes.com/2024/12/24/world/middleeast/israel-houthis-yemen-missile.html
+
 **NFL Draft expert: 5 players who could make sense for Cowboys in the first round**\
 `If the season was over now, the Cowboys would own the No. 15 pick in Round 1. Dane Brugler looks at five players at five positions for them.`\
 https://nytimes.com/athletic/6017613/2024/12/24/cowboys-nfl-draft-first-round-options-ashton-jeanty/
