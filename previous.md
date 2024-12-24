@@ -1,3 +1,7 @@
+**Rashford has 'big responsibility' to help Man Utd, says Amorim**\
+`Ruben Amorim has reminded Marcus Rashford that he has a &#8220;big responsibility&#8221; to help turn Manchester United&#8217;s fortunes around amid his continued omission from matchday squads.`\
+https://nytimes.com/athletic/6015758/2024/12/24/manchester-united-marcus-rashford-amorim/
+
 **Pro-Palestinian Activists Removed From Michigan’s Student Government**\
 `The president and vice president of the University of Michigan’s student assembly were impeached after they demanded divestment and stopped funding campus activities.`\
 https://nytimes.com/2024/12/24/us/michigan-palestinian-activists-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017342/2024/12/24/lakers-loss-pistons-lebron-physi
 **American Airlines Briefly Grounds U.S. Flights Over Technical Issue**\
 `The airline grounded all flights on Tuesday morning during the busy holiday travel period for about an hour before restoring its systems.`\
 https://nytimes.com/2024/12/24/us/american-air-flights-grounded.html
-
-**Cade Cunningham impresses LeBron James in Pistons' win over Lakers: 'They got a great one'**\
-`Detroit is now 2-0 on this road trip and will go to Sacramento on Thursday with a chance to match its entire win total from last season.`\
-https://nytimes.com/athletic/6017655/2024/12/24/pistons-lakers-cade-cunningham-lebron-james-nba/
 

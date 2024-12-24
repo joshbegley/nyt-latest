@@ -1,3 +1,7 @@
+**Rashford has 'big responsibility' to help Man Utd, says Amorim**\
+`Ruben Amorim has reminded Marcus Rashford that he has a &#8220;big responsibility&#8221; to help turn Manchester United&#8217;s fortunes around amid his continued omission from matchday squads.`\
+https://nytimes.com/athletic/6015758/2024/12/24/manchester-united-marcus-rashford-amorim/
+
 **Pro-Palestinian Activists Removed From Michigan’s Student Government**\
 `The president and vice president of the University of Michigan’s student assembly were impeached after they demanded divestment and stopped funding campus activities.`\
 https://nytimes.com/2024/12/24/us/michigan-palestinian-activists-students.html
