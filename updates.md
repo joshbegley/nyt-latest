@@ -1,3 +1,7 @@
+**Ages and Ages**\
+`Sarah Sinclair breaks with tradition.`\
+https://nytimes.com/2024/12/23/crosswords/daily-puzzle-2024-12-24.html
+
 **Corrections: Dec. 24, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 24, 2024.`\
 https://nytimes.com/2024/12/23/pageoneplus/corrections-dec-24-2024.html

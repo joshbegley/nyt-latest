@@ -1,3 +1,7 @@
+**Ages and Ages**\
+`Sarah Sinclair breaks with tradition.`\
+https://nytimes.com/2024/12/23/crosswords/daily-puzzle-2024-12-24.html
+
 **Corrections: Dec. 24, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 24, 2024.`\
 https://nytimes.com/2024/12/23/pageoneplus/corrections-dec-24-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017088/2024/12/23/rangers-red-sox-mets-manaea-bueh
 **Deputies Missed Signs Before a Detainee Hanged Himself**\
 `Reports and video footage newly released in Riverside County, Calif., indicate that a man was able to cover his cell window and camera without intervention.`\
 https://nytimes.com/2024/12/23/us/ca-jail-death-riverside-county.html
-
-**New Anti-Money Laundering Measures Pass a Legal Roadblock**\
-`Millions of companies may have to report information about their owners to the Treasury Department by Jan. 1 under an appeals court ruling.`\
-https://nytimes.com/2024/12/23/us/anti-money-laundering-law-court-decision.html
 
