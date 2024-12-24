@@ -1,3 +1,7 @@
+**A Day for Games**\
+`Here are a few you can play during the holidays.`\
+https://nytimes.com/2024/12/24/briefing/a-day-for-games.html
+
 **The Pulse: The NFL's best dark-horse contender**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6017214/2024/12/24/packers-saints-playoffs-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015977/2024/12/24/notre-dame-football-playoff-geor
 **NFL QB stock report, Week 17: What's next for Kirk Cousins if Michael Penix Jr. thrives?**\
 `Is it time for the Seahawks to move on from Geno Smith? Plus, the 2024 QB class is shaping up to be an all-timer.`\
 https://nytimes.com/athletic/6015698/2024/12/24/nfl-qb-stock-report-rankings-michael-penix-kirk-cousins-falcons/
-
-**Packers' dominant night of firsts vs. Saints culminates with playoff clinch**\
-`The Packers breezed to a 34-0 win over the Saints on Monday night, the first shutout in the NFL this season.`\
-https://nytimes.com/athletic/6017635/2024/12/24/packers-clinch-playoff-spot-saints/
 
