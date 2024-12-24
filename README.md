@@ -1,3 +1,7 @@
+**NBA Power Rankings: Finding the right last-minute gift for all 30 teams**\
+`What do you get a team like the Cavaliers or Thunder that has everything? How about some Windex?`\
+https://nytimes.com/athletic/6017889/2024/12/24/nba-power-rankings-cavaliers-celtics-spurs-knicks/
+
 **Russia Sentences U.S. Citizen to 15 Years for Espionage**\
 `Eugene Spector was already serving a sentence for a bribery conviction when he was charged with spying, for which a court ordered him to serve an additional 13 years.`\
 https://nytimes.com/2024/12/24/world/europe/russia-espionage-eugene-spector.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017925/2024/12/24/brian-barry-murphy-leicester-cit
 **Palace's Wharton out for up to four weeks with groin injury**\
 `Crystal Palace midfielder Adam Wharton is expected to be out for up to four weeks after a setback in his return from a groin injury.`\
 https://nytimes.com/athletic/6017994/2024/12/24/adam-wharton-injury-update-crystal-palace/
-
-**Bucks' turnaround: Not only winning games now, but doing so 'with a cushion' and having fun**\
-`After an 11-point win over the Wizards on Saturday, the Bucks put together a 21-point win over the Bulls on Monday. Their stars missed both.`\
-https://nytimes.com/athletic/6017486/2024/12/24/bucks-bulls-aj-green-nba/
 
