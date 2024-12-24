@@ -1,3 +1,7 @@
+**Spurs 'need to reinforce' in the January window - Postecoglou**\
+`Ange Postecoglou has admitted that Tottenham Hotspur “need to reinforce” their squad in the January transfer window.`\
+https://nytimes.com/athletic/6017734/2024/12/24/tottenham-janaury-window-postecoglou/
+
 **Examining Ravens' chances of winning the AFC North with 2 games remaining**\
 `Taking a look at the different scenarios that could lead to Baltimore winning its division for a second straight year. `\
 https://nytimes.com/athletic/6015799/2024/12/24/ravens-afc-north-title-playoff-scenarios/
