@@ -1,3 +1,11 @@
+**Warriors lose at home to Pacers as Steph Curry tries to find his rhythm**\
+`"I could be a lot better," Curry said. "And I will be.”`\
+https://nytimes.com/athletic/6017346/2024/12/24/warriors-steph-curry-lose-to-pacers/
+
+**How So Many People Became Obsessed With Looking for Drones in the Sky**\
+`The first sighting was at a military site in New Jersey, then the phenomenon spread into neighboring states. Government assurances that most “drones” were not drones at all has not tamped down curiosity.`\
+https://nytimes.com/2024/12/24/nyregion/new-jersey-new-york-drones.html
+
 **A New Way to Shrink Class Sizes: Let Schools Take Charge**\
 `This year, schools were encouraged to come up with their own plans to lower their class sizes and apply to the Department of Education for funding.`\
 https://nytimes.com/2024/12/24/nyregion/nyc-schools-class-sizes.html

@@ -1,3 +1,11 @@
+**Warriors lose at home to Pacers as Steph Curry tries to find his rhythm**\
+`"I could be a lot better," Curry said. "And I will be.”`\
+https://nytimes.com/athletic/6017346/2024/12/24/warriors-steph-curry-lose-to-pacers/
+
+**How So Many People Became Obsessed With Looking for Drones in the Sky**\
+`The first sighting was at a military site in New Jersey, then the phenomenon spread into neighboring states. Government assurances that most “drones” were not drones at all has not tamped down curiosity.`\
+https://nytimes.com/2024/12/24/nyregion/new-jersey-new-york-drones.html
+
 **A New Way to Shrink Class Sizes: Let Schools Take Charge**\
 `This year, schools were encouraged to come up with their own plans to lower their class sizes and apply to the Department of Education for funding.`\
 https://nytimes.com/2024/12/24/nyregion/nyc-schools-class-sizes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6017512/2024/12/24/tom-gores-interview-pistons-cade
 **How Elias Pettersson sparked vital Canucks victory before holiday break: 3 takeaways**\
 `Pettersson scored back-to-back goals to lead the Canucks to a 4-3 victory over the Sharks.`\
 https://nytimes.com/athletic/6017311/2024/12/24/elias-pettersson-canucks-win-sharks-holiday-break-takeaways/
-
-**Christmas? Hanukkah? This Year for Our Family, It’s Chrismukkah.**\
-`Like many members of interfaith families, I get to observe the two holidays on the same day this year.`\
-https://nytimes.com/2024/12/24/style/chrismukkah-interfaith-jewish-couples.html
-
-**Inside Newcastle Q&A: Tonali's future? Will Sean Longstaff be sold? Will the club buy in January?**\
-`The futures of Longstaff, Isak and Trippier, as well as reports linking Tonali with a move away are all discussed in our weekly mailbag`\
-https://nytimes.com/athletic/6014940/2024/12/24/newcastle-mailbag-january-transfers-tonali-isak-longstaff/
 
