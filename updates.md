@@ -1,3 +1,7 @@
+**Despite Playoff loss, SMU proved it belongs in the ACC and has a bright future**\
+`With 22 wins over two years and a CFP appearance, SMU redefined the program and changed its identity for future generations.`\
+https://nytimes.com/athletic/6017992/2024/12/24/smu-football-acc-playoff/
+
 **Ohio State adds one of transfer portal's top OTs in Rice's Ethan Onianwa**\
 `Some scouts had a second-round grade on Onianwa for the 2025 NFL Draft.`\
 https://nytimes.com/athletic/6017991/2024/12/24/ohio-state-ethan-onianwa-transfer-rice/
