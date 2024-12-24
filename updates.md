@@ -1,3 +1,7 @@
+**NBA Power Rankings: Finding the right last-minute gift for all 30 teams**\
+`What do you get a team like the Cavaliers or Thunder that has everything? How about some Windex?`\
+https://nytimes.com/athletic/6017889/2024/12/24/nba-power-rankings-cavaliers-celtics-spurs-knicks/
+
 **Russia Sentences U.S. Citizen to 15 Years for Espionage**\
 `Eugene Spector was already serving a sentence for a bribery conviction when he was charged with spying, for which a court ordered him to serve an additional 13 years.`\
 https://nytimes.com/2024/12/24/world/europe/russia-espionage-eugene-spector.html
