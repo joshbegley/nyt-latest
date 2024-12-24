@@ -1,3 +1,11 @@
+**Spending Fight Shows Limits of Trump Power to Change Fiscal Path**\
+`Efforts to cut government spending and eliminate waste are dwarfed by the rising costs of the social safety net programs and interest expenses.`\
+https://nytimes.com/2024/12/24/business/trump-musk-ramaswamy-doge-government-spending.html
+
+**History Shows Big Changes in ‘Big Government’ Are Hard to Achieve**\
+`Past efforts to shrink the federal bureaucracy, including basic things like selling off unused government buildings, have come up short. Republicans are set to try again.`\
+https://nytimes.com/2024/12/24/us/trump-america-government-republicans.html
+
 **Bill Clinton Is Released From Hospital After Having Flu**\
 `The former president was discharged Tuesday morning after being admitted to a hospital on Monday after developing a fever.`\
 https://nytimes.com/2024/12/24/us/bill-clinton-hospital-flu.html

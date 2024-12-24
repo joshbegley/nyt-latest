@@ -1,3 +1,11 @@
+**Spending Fight Shows Limits of Trump Power to Change Fiscal Path**\
+`Efforts to cut government spending and eliminate waste are dwarfed by the rising costs of the social safety net programs and interest expenses.`\
+https://nytimes.com/2024/12/24/business/trump-musk-ramaswamy-doge-government-spending.html
+
+**History Shows Big Changes in ‘Big Government’ Are Hard to Achieve**\
+`Past efforts to shrink the federal bureaucracy, including basic things like selling off unused government buildings, have come up short. Republicans are set to try again.`\
+https://nytimes.com/2024/12/24/us/trump-america-government-republicans.html
+
 **Bill Clinton Is Released From Hospital After Having Flu**\
 `The former president was discharged Tuesday morning after being admitted to a hospital on Monday after developing a fever.`\
 https://nytimes.com/2024/12/24/us/bill-clinton-hospital-flu.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/24/opinion/blake-lively-lawsuit.html
 **Perry Dahl, Who Downed Nine Planes During World War II, Dies at 101**\
 `His courage in battle brought him the Congressional Gold Medal, the Silver Star, the Distinguished Flying Cross and the Legion of Merit.`\
 https://nytimes.com/2024/12/24/us/perry-dahl-dead.html
-
-**Meditations About Finding Faith**\
-`Readers discuss a column by David Brooks. Also: The Gaetz report; qualifications to serve in the government.`\
-https://nytimes.com/2024/12/24/opinion/letters/finding-faith.html
-
-**Chicken and Rice With Ginger; Lemony Shrimp and Bean Stew**\
-`And three more one-pot dinners, because you’ve got better things to do than the dishes.`\
-https://nytimes.com/2024/12/24/dining/chicken-and-rice-with-ginger-lemony-shrimp-and-bean-stew.html
 
