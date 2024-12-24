@@ -1,3 +1,11 @@
+**Chicken and Rice With Ginger; Lemony Shrimp and Bean Stew**\
+`And three more one-pot dinners, because you’ve got better things to do than the dishes.`\
+https://nytimes.com/2024/12/24/dining/chicken-and-rice-with-ginger-lemony-shrimp-and-bean-stew.html
+
+**Week 17 fantasy football waiver wire: Streamers, Hollywood Brown, Michael Carter and more**\
+`It's never to late to shore up your roster on the waiver wire, even during Week 17 fantasy football championship week.`\
+https://nytimes.com/athletic/5999402/2024/12/24/week-17-fantasy-football-waiver-wire-streamers-hollywood-brown-michael-carter/
+
 **The Bounce: Time for your NBA Christmas Day watch guide!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6017868/2024/12/24/nba-christmas-lebron-james-steph-curry-victor-wembanyama-nba-the-bounce/
