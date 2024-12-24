@@ -1,3 +1,19 @@
+**Ohio State adds one of transfer portal's top OTs in Rice's Ethan Onianwa**\
+`Some scouts had a second-round grade on Onianwa for the 2025 NFL Draft.`\
+https://nytimes.com/athletic/6017991/2024/12/24/ohio-state-ethan-onianwa-transfer-rice/
+
+**Tiny Love Stories: ‘My Mother Upstaged Jesus’**\
+`To celebrate the season, we gathered five of our favorite holiday-themed Tiny Love Stories.`\
+https://nytimes.com/2024/12/24/style/tiny-modern-love-stories-my-mother-upstaged-jesus.html
+
+**Ex-City coach Barry-Murphy to join Van Nistelrooy's Leicester staff**\
+`Ruud Van Nistelrooy has confirmed Brian Barry-Murphy will be coming in as his assistant coach at Leicester City.`\
+https://nytimes.com/athletic/6017925/2024/12/24/brian-barry-murphy-leicester-city/
+
+**Palace's Wharton out for up to four weeks with groin injury**\
+`Crystal Palace midfielder Adam Wharton is expected to be out for up to four weeks after a setback in his return from a groin injury.`\
+https://nytimes.com/athletic/6017994/2024/12/24/adam-wharton-injury-update-crystal-palace/
+
 **Bucks' turnaround: Not only winning games now, but doing so 'with a cushion' and having fun**\
 `After an 11-point win over the Wizards on Saturday, the Bucks put together a 21-point win over the Bulls on Monday. Their stars missed both.`\
 https://nytimes.com/athletic/6017486/2024/12/24/bucks-bulls-aj-green-nba/
