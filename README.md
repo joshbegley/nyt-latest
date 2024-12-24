@@ -10,6 +10,10 @@ https://nytimes.com/2024/12/24/nyregion/nyc-subway-fire-what-to-know.html
 `The protests in Damascus broke out after footage circulated online of an artificial Christmas tree on fire in a mostly Christian town as masked men stand around it.`\
 https://nytimes.com/2024/12/24/world/middleeast/syria-christmas-tree-burning-protests.html
 
+**Christmas Tree Burning Ignites Protests in Syria**\
+`Hundreds of people gathered in Christian neighborhoods in Syria’s capital, Damascus, after a video circulated showing an artificial Christmas tree on fire.`\
+https://nytimes.com/video/world/middleeast/100000009895321/christmas-tree-burning-syria-protests.html
+
 **The Evening: Signs of Trouble for Trump’s Spending Cuts**\
 `Plus, celebrating “Chrismukkah.”`\
 https://nytimes.com/2024/12/24/briefing/trump-cuts-american-airlines-michigan-state-chrismukkah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/opinion/us-china-relationship.html
 **Avoid California Beaches Because of Dangerous Waves, Officials Warn**\
 `An unusually powerful surf has already killed one man and destroyed part of a historic pier in Santa Cruz, Calif.`\
 https://nytimes.com/2024/12/24/us/california-beach-surf-pier-warning.html
-
-**‘Everything Calls for Salvation’ Is a Beachy Italian Drama**\
-`The seven-episode first season, on Netflix, plays out like a sunnier Italian “Girl, Interrupted.”`\
-https://nytimes.com/2024/12/24/arts/television/everything-calls-for-salvation-netflix.html
 
