@@ -1,3 +1,7 @@
+**Spurs 'need to reinforce' in the January window - Postecoglou**\
+`Ange Postecoglou has admitted that Tottenham Hotspur “need to reinforce” their squad in the January transfer window.`\
+https://nytimes.com/athletic/6017734/2024/12/24/tottenham-janaury-window-postecoglou/
+
 **Examining Ravens' chances of winning the AFC North with 2 games remaining**\
 `Taking a look at the different scenarios that could lead to Baltimore winning its division for a second straight year. `\
 https://nytimes.com/athletic/6015799/2024/12/24/ravens-afc-north-title-playoff-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/opinion/jesus-christmas-dysfunctional-families.ht
 **Will Troubled Police Departments Escape Federal Accountability?**\
 `As time runs out for the Biden administration, cities like Minneapolis — where an investigation found abuse and racial discrimination — may avoid oversight.`\
 https://nytimes.com/2024/12/24/us/biden-police-departments-federal-accountability.html
-
-**Marv From ‘Home Alone’ Has a New Calling Card: Tangerines and Sculpture**\
-`Daniel Stern has built a social media following by documenting daily life on his family’s farm. “What a crazy way to walk through life,” he said, “to be a little part of people’s lives.”`\
-https://nytimes.com/2024/12/24/arts/daniel-stern-home-alone-tiktok.html
 
