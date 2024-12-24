@@ -1,3 +1,11 @@
+**‘Rust’ Prosecutor Withdraws Appeal of Alec Baldwin Case**\
+`The decision ends the criminal prosecution of the actor for the fatal shooting on a film set. During his trial, the judge dismissed the involuntary manslaughter charge against him.`\
+https://nytimes.com/2024/12/23/movies/rust-appeal-alec-baldwin-trial.html
+
+**National Security Committee Forgoes Decision on U.S. Steel Acquisition**\
+`The Committee on Foreign Investment in the United States kicked a decision over the merger with Japan’s Nippon Steel to President Biden, who is expected to block the deal.`\
+https://nytimes.com/2024/12/23/business/us-steel-nippon-biden-cfius.html
+
 **Mets rotation gains stability, Red Sox bet on Buehler and Rangers shuffle corners: Law**\
 `The Mets improved their rotation, while the Red Sox rolled the dice on a potential bounce-back. The Rangers added a hitter but lost another.`\
 https://nytimes.com/athletic/6017088/2024/12/23/rangers-red-sox-mets-manaea-buehler-pederson/
