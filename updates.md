@@ -1,3 +1,7 @@
+**'I don't digest food properly now' — the all-consuming pressure of managing a football club**\
+`Football, essentially, actively discourages managers to switch off. Most Premier League managers struggled to describe how they relax`\
+https://nytimes.com/athletic/6016936/2024/12/24/manager-pressure-guardiola-postecoglou/
+
 **Short-handed Magic, NBA's most cohesive group of 'dawgs,' upset the defending champs**\
 `Perhaps no team in the NBA has the intangibles the Magic possess, as the Celtics learned Monday night.`\
 https://nytimes.com/athletic/6017599/2024/12/24/orlando-magic-beat-boston-celtics/
