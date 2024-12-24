@@ -1,3 +1,11 @@
+**Pro-Palestinian Activists Removed From Michigan’s Student Government**\
+`The president and vice president of the University of Michigan’s student assembly were impeached after they demanded divestment and stopped funding campus activities.`\
+https://nytimes.com/2024/12/24/us/michigan-palestinian-activists-students.html
+
+**American Airlines Briefly Grounds U.S. Flights Over Technical Issue**\
+`The airline grounded all flights on Tuesday morning during the busy holiday travel period for about an hour before restoring its systems.`\
+https://nytimes.com/2024/12/24/us/american-air-flights-grounded.html
+
 **Timberwolves coach Chris Finch faces pressure to solve problems with no easy answers**\
 `Minnesota lost again on Monday as fans call for lineup changes. It's a test for Finch's usual steadiness.`\
 https://nytimes.com/athletic/6017132/2024/12/24/timberwolves-chris-finch-offense-rotation/
