@@ -2,7 +2,7 @@
 `The top seed in the NFC could come down to an epic Week 18 showdown between two NFC North rivals. `\
 https://nytimes.com/athletic/6006774/2024/12/23/week-16-nfl-playoff-picture-chiefs-lions-top-seeds-update/
 
-**Lindholm has finally arrived in Boston: ‘We were expecting that from Lindy’**\
+**Elias Lindholm has finally arrived in Boston: ‘We were expecting that from Lindy’**\
 `Lindholm scored against the Capitals for three goals and two assists in the last five games, his best five-game stretch this season.`\
 https://nytimes.com/athletic/6017396/2024/12/23/bruins-elias-lindholm-emergence-capitals/
 
