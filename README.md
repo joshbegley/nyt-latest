@@ -1,3 +1,7 @@
+**Fragments of Santa Cruz Wharf Wash Ashore After Partial Collapse**\
+`Broken wood, debris and a building floated in the ocean after the end of the wharf collapsed.`\
+https://nytimes.com/video/us/100000009894637/fragments-of-santa-cruz-wharf-wash-ashore-after-partial-collapse.html
+
 **Hochul Orders Firing of 14 Prison Workers After Fatal Attack on Inmate**\
 `Video of the deadly assault on Robert L. Brooks was “horrific,” “disturbing” and “devastating,” a lawyer for his family said after they watched it.`\
 https://nytimes.com/2024/12/23/nyregion/ny-prison-inmate-killed-hochul.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/us/anti-money-laundering-law-court-decision.html
 **Matt Gaetz Finds Support in His Former District in Florida**\
 `Republicans in the Panhandle district he represented before stepping down last month said Mr. Gaetz had done good work in Congress and criticized the report as partisan.`\
 https://nytimes.com/2024/12/23/us/politics/florida-matt-gaetz-panhandle-district.html
-
-**Georgia QB Carson Beck has season-ending surgery, Gunner Stockton in for CFP run**\
-`Beck had surgery on Monday after suffering an injury to his UCL during the SEC championship.`\
-https://nytimes.com/athletic/6016952/2024/12/23/carson-beck-georgia-quarterback-injury-surgery/
 
