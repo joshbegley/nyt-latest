@@ -6,7 +6,7 @@ https://nytimes.com/2024/12/23/pageoneplus/quote-of-the-day-gangs-tactical-looti
 `The Packers have now won five of their past six games. They play the Vikings in Minneapolis on Sunday.`\
 https://nytimes.com/athletic/6017151/2024/12/23/packers-saints-score-result-takeaways-mnf/
 
-**Blue Jackets respond angrily to Patrik Laine's criticism, earn comeback win over Montreal**\
+**Blue Jackets respond angrily to Patrik Laine's criticism, earn comeback win over Canadiens**\
 `Laine received boos from the fans, hits from the players and no "welcome back" video from the front office.`\
 https://nytimes.com/athletic/6017376/2024/12/23/blue-jackets-laine-comments-response-canadiens/
 
