@@ -1,3 +1,15 @@
+**Diego Gomez: Brighton's new signing has been shaped by farming and Lionel Messi**\
+`Gomez registered 13 goal involvements playing alongside Messi, Suarez & Co in 2024 - what will 2025 and a move to the Premier League bring?`\
+https://nytimes.com/athletic/5844866/2024/12/24/diego-gomez-brighton-inter-miami-messi/
+
+**Saka is the latest to suffer as hamstring problems increase across the Premier League**\
+`The Athletic's medical expert, Geoff Scott, explains the challenges facing clubs and elite players as hamstring problems become more severe`\
+https://nytimes.com/athletic/6015615/2024/12/24/bukayo-saka-and-the-increase-in-hamstring-injuries-across-the-premier-league/
+
+**The four 'seasons' of the 2024-25 Premier League campaign so far**\
+`If you partitioned the season so far using the international breaks, here's who won and lost each 'mini season'`\
+https://nytimes.com/athletic/6012450/2024/12/24/the-four-seasons-of-the-2024-25-premier-league-campaign-so-far/
+
 **The untold story of how Doug Ellis almost sold Villa to the owner of Atlanta Braves**\
 `Long before U.S. owners descended on the Premier League, Doug Ellis hatched a plan to sell the club - it failed but links remain in Georgia`\
 https://nytimes.com/athletic/5934935/2024/12/24/aston-villa-atlanta-braves-doug-ellis-pele/
