@@ -1,3 +1,7 @@
+**William Labov, Who Studied How Society Shapes Language, Dies at 97**\
+`He laid the foundation for sociolinguistics, and he showed that structures like class and race shaped speech as much as where someone lives.`\
+https://nytimes.com/2024/12/24/us/william-labov-dead.html
+
 **What We Know About the Fatal Burning of a Woman on the Subway**\
 `The woman, who has not been identified, died after a man set her on fire on an F train on Sunday morning. The police have charged a man from Guatemala with murder and arson.`\
 https://nytimes.com/2024/12/24/nyregion/nyc-subway-fire-what-to-know.html
