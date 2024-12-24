@@ -1,4 +1,8 @@
 **Poor special teams, worse goaltending: Flyers limp into break with a host of issues**\
+`Philadelphia briefly fought back to a one-goal deficit, but eventually fell in a discouraging 7-3 loss to rival Pittsburgh.`\
+https://nytimes.com/athletic/6017364/2024/12/23/flyers-issues-special-teams-goaltending-penguins/
+
+**Poor special teams, worse goaltending: Flyers limp into break with a host of issues**\
 `The Flyers briefly fought back to a one-goal deficit, but eventually fell in a discouraging 7-3 loss to rival Pittsburgh.`\
 https://nytimes.com/athletic/6017364/2024/12/23/flyers-issues-special-teams-goaltending-penguins/
 
