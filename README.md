@@ -1,3 +1,7 @@
+**How Elias Pettersson sparked vital Canucks victory before holiday break: 3 takeaways**\
+`Pettersson scored back-to-back goals to lead the Canucks to a 4-3 victory over the Sharks.`\
+https://nytimes.com/athletic/6017311/2024/12/24/elias-pettersson-canucks-win-sharks-holiday-break-takeaways/
+
 **Christmas? Hanukkah? This Year for Our Family, It’s Chrismukkah.**\
 `Like many members of interfaith families, I get to observe the two holidays on the same day this year.`\
 https://nytimes.com/2024/12/24/style/chrismukkah-interfaith-jewish-couples.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012450/2024/12/24/the-four-seasons-of-the-2024-25-
 **The untold story of how Doug Ellis almost sold Villa to the owner of Atlanta Braves**\
 `Long before U.S. owners descended on the Premier League, Doug Ellis hatched a plan to sell the club - it failed but links remain in Georgia`\
 https://nytimes.com/athletic/5934935/2024/12/24/aston-villa-atlanta-braves-doug-ellis-pele/
-
-**Bultman: Red Wings' problems run deeper than a lousy record**\
-`The Red Wings were booed off home ice in their final game before Christmas, signaling fans' patience has run out. Has Steve Yzerman's?`\
-https://nytimes.com/athletic/6017314/2024/12/24/red-wings-problems-steve-yzerman-patience/
 
