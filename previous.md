@@ -1,3 +1,7 @@
+**Elon Musk’s xAI Raises $6 Billion in New Funding**\
+`“A lot of compute is needed,” Mr. Musk said in a post about the financing, in which BlackRock, Fidelity and Sequoia participated.`\
+https://nytimes.com/2024/12/24/technology/elon-musk-xai-funding.html
+
 **This Year’s College Drama on TikTok May Be the Last**\
 `But for now, the app reveals a series of memorable family portraits.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/tiktok-early-decision-college
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/dining/chicken-and-rice-with-ginger-lemony-shrimp
 **The Bounce: Time for your NBA Christmas Day watch guide!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6017868/2024/12/24/nba-christmas-lebron-james-steph-curry-victor-wembanyama-nba-the-bounce/
-
-**Connor's defensive impact, Fleury's unlikely rise and He's sensational year: 3 Jets storylines**\
-`With the holiday break upon us, let's dig into three of the more overlooked stories of the Jets' season so far.`\
-https://nytimes.com/athletic/6011622/2024/12/24/winnipeg-jets-connor-defence-injuries-fleury-kevin-he/
 
