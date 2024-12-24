@@ -1,3 +1,7 @@
+**Olympic Snowboarder From Switzerland Dies in Avalanche at 26**\
+`Sophie Hediger, who competed in the 2022 Olympics in Beijing, died in an avalanche in Arosa, Switzerland, according to the police and the Swiss ski federation.`\
+https://nytimes.com/2024/12/24/sports/sophie-hediger-swiss-snowboarder-dead-avalanche.html
+
 **What I Learned Most From My Trip to China**\
 `America must compete with China, but there’s also a complicated reality that both countries have to face.`\
 https://nytimes.com/2024/12/24/opinion/us-china-relationship.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/technology/elon-musk-xai-funding.html
 **This Year’s College Drama on TikTok May Be the Last**\
 `But for now, the app reveals a series of memorable family portraits.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/tiktok-early-decision-college
-
-**NFL Week 17 fantasy football, betting cheat sheet: Pickens could play**\
-`Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
-https://nytimes.com/athletic/6015597/2024/12/24/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
 
