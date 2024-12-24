@@ -1,3 +1,7 @@
+**Dutch Court Issues Prison Sentences Over Violence Against Israeli Soccer Fans**\
+`Five people were found guilty of crimes, including public violence, in relation to attacks targeting Israelis in Amsterdam last month.`\
+https://nytimes.com/2024/12/24/world/europe/amsterdam-israel-soccer-fans-attacks.html
+
 **A Day for Games**\
 `Here are a few you can play during the holidays.`\
 https://nytimes.com/2024/12/24/briefing/a-day-for-games.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016702/2024/12/24/vikings-sam-darnold-kevin-oconne
 **Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
 `What's on your mind about Notre Dame after the Playoff win against Indiana?`\
 https://nytimes.com/athletic/6015977/2024/12/24/notre-dame-football-playoff-georgia-mailbag-questions/
-
-**NFL QB stock report, Week 17: What's next for Kirk Cousins if Michael Penix Jr. thrives?**\
-`Is it time for the Seahawks to move on from Geno Smith? Plus, the 2024 QB class is shaping up to be an all-timer.`\
-https://nytimes.com/athletic/6015698/2024/12/24/nfl-qb-stock-report-rankings-michael-penix-kirk-cousins-falcons/
 
