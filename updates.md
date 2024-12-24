@@ -1,3 +1,7 @@
+**Gustavsson returns triumphant as Wild snap losing streak heading into break: 3 takeaways**\
+`The Wild also finally scored without needing Kirill Kaprizov on the ice in a 4-3 win over the Blackhawks.`\
+https://nytimes.com/athletic/6017111/2024/12/23/wild-gustavsson-return-blackhawks-fourth-line/
+
 **Full Time: USWNT's 2024 jump scare**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6017331/2024/12/23/uswnt-retirements-2024-soccer-gifts-full-time/
