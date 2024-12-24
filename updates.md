@@ -1,3 +1,15 @@
+**NFL Draft expert: 5 players who could make sense for Cowboys in the first round**\
+`If the season was over now, the Cowboys would own the No. 15 pick in Round 1. Dane Brugler looks at five players at five positions for them.`\
+https://nytimes.com/athletic/6017613/2024/12/24/cowboys-nfl-draft-first-round-options-ashton-jeanty/
+
+**Hiring Ben Johnson seems like the obvious move, but can the Bears actually land him?**\
+`The Bears have never made the obvious choice for head coach under chairman George McCaskey. Can they get it right this time?`\
+https://nytimes.com/athletic/6016502/2024/12/24/bears-coaching-search-ben-johnson/
+
+**How Donovan Mitchell found 'sense of peace' with Cavs after years of rumors and drama**\
+`Donovan Mitchell sees parallels with this Cavs team and the last title contender he was on: "You have to appreciate this."`\
+https://nytimes.com/athletic/6016065/2024/12/24/donovan-mitchell-cavs-jazz-nba-trade-rumors/
+
 **Marquise Brown and the Chiefs excited about what's ahead after his productive debut**\
 `Brown had an impactful Chiefs debut against the Texans with five receptions for 45 yards on a limited snap count.`\
 https://nytimes.com/athletic/6016754/2024/12/24/chiefs-marquise-brown-productive-debut/
