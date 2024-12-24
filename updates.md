@@ -1,3 +1,7 @@
+**A year of INEOS at Manchester United: Ruthless cost-cutting, hiring and firing...and an FA Cup**\
+`The past year has been a whirlwind of triumph, trauma and turmoil at Manchester United. And there may be more to come...`\
+https://nytimes.com/athletic/6015096/2024/12/24/manchester-united-ineos-anniversary-ratcliffe/
+
 **Diego Gomez: Brighton's new signing has been shaped by farming and Lionel Messi**\
 `Gomez registered 13 goal involvements playing alongside Messi, Suarez & Co in 2024 - what will 2025 and a move to the Premier League bring?`\
 https://nytimes.com/athletic/5844866/2024/12/24/diego-gomez-brighton-inter-miami-messi/

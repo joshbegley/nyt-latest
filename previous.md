@@ -1,3 +1,7 @@
+**A year of INEOS at Manchester United: Ruthless cost-cutting, hiring and firing...and an FA Cup**\
+`The past year has been a whirlwind of triumph, trauma and turmoil at Manchester United. And there may be more to come...`\
+https://nytimes.com/athletic/6015096/2024/12/24/manchester-united-ineos-anniversary-ratcliffe/
+
 **Diego Gomez: Brighton's new signing has been shaped by farming and Lionel Messi**\
 `Gomez registered 13 goal involvements playing alongside Messi, Suarez & Co in 2024 - what will 2025 and a move to the Premier League bring?`\
 https://nytimes.com/athletic/5844866/2024/12/24/diego-gomez-brighton-inter-miami-messi/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/science/nasa-parker-solar-probe-sun.html
 **He Inherited a Seat in Britain’s House of Lords. How Will It Feel to Lose It?**\
 `The U.K. government has pledged to remove hereditary peers from Parliament in 2025. For Lord Cromwell and 87 others, it is a wistful departure.`\
 https://nytimes.com/2024/12/24/world/europe/uk-parliament-hereditary-peers-lords.html
-
-**The story behind the Nuno revolution at Nottingham Forest**\
-`How Nuno has used his experiences at Wolves, Spurs and elsewhere – good and bad – to change perceptions of what Forest can achieve.`\
-https://nytimes.com/athletic/6004057/2024/12/24/the-story-behind-the-nuno-ification-of-nottingham-forest/
 
