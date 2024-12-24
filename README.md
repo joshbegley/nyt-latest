@@ -1,3 +1,7 @@
+**Mets rotation gains stability, Red Sox bet on Buehler and Rangers shuffle corners: Law**\
+`The Mets improved their rotation, while the Red Sox rolled the dice on a potential bounce-back. The Rangers added a hitter but lost another.`\
+https://nytimes.com/athletic/6017088/2024/12/23/rangers-red-sox-mets-manaea-buehler-pederson/
+
 **Deputies Missed Signs Before a Detainee Hanged Himself**\
 `Reports and video footage newly released in Riverside County, Calif., indicate that a man was able to cover his cell window and camera without intervention.`\
 https://nytimes.com/2024/12/23/us/ca-jail-death-riverside-county.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/us/politics/trump-latin-america-envoy.html
 **Eagles QB Hurts enters concussion protocol, no update on Pickett**\
 `Philadelphia is a win away from clinching the NFC East and will look to do so in Week 17 at home against the Dallas Cowboys. `\
 https://nytimes.com/athletic/6016611/2024/12/23/eagles-nick-sirianni-jalen-hurts-concussion-kenny-pickett/
-
-**Part of Santa Cruz Wharf in California Collapses in High Surf**\
-`Three people were rescued after part of the wharf, a major tourist attraction, collapsed in powerful surf, the authorities said.`\
-https://nytimes.com/2024/12/23/us/santa-cruz-wharf-collapse.html
 
