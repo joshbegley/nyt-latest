@@ -1,3 +1,7 @@
+**Eagles QB Hurts enters concussion protocol, no update on Pickett**\
+`Philadelphia is a win away from clinching the NFC East and will look to do so in Week 17 at home against the Dallas Cowboys. `\
+https://nytimes.com/athletic/6016611/2024/12/23/eagles-nick-sirianni-jalen-hurts-concussion-kenny-pickett/
+
 **Money for 9/11 Health Care Was Dropped from Year-End Spending Bill**\
 `A plan to ensure long-term funding to address health needs stemming from the terrorist attacks fell to the wayside after President-elect Donald Trump and Elon Musk objected to a bipartisan budget deal.`\
 https://nytimes.com/2024/12/23/us/politics/sept-11-health-care-spending-bill.html

@@ -26,7 +26,7 @@ https://nytimes.com/2024/12/23/us/politics/sept-11-health-care-spending-bill.htm
 `A longtime proponent of harsh sanctions, Mauricio Claver-Carone was forced out of his job at the Inter-American Development Bank in 2022.`\
 https://nytimes.com/2024/12/23/us/politics/trump-latin-america-envoy.html
 
-**Eagles' Sirianni: Hurts enters concussion protocol, no update on Pickett**\
+**Eagles QB Hurts enters concussion protocol, no update on Pickett**\
 `Philadelphia is a win away from clinching the NFC East and will look to do so in Week 17 at home against the Dallas Cowboys. `\
 https://nytimes.com/athletic/6016611/2024/12/23/eagles-nick-sirianni-jalen-hurts-concussion-kenny-pickett/
 
