@@ -1,3 +1,19 @@
+**Christmas? Hanukkah? This Year for Our Family, It’s Chrismukkah.**\
+`Like many members of interfaith families, I get to observe the two holidays on the same day this year.`\
+https://nytimes.com/2024/12/24/style/chrismukkah-interfaith-jewish-couples.html
+
+**Inside Newcastle Q&A: Tonali's future? Will Sean Longstaff be sold? Will the club buy in January?**\
+`The futures of Longstaff, Isak and Trippier, as well as reports linking Tonali with a move away are all discussed in our weekly mailbag`\
+https://nytimes.com/athletic/6014940/2024/12/24/newcastle-mailbag-january-transfers-tonali-isak-longstaff/
+
+**Yohe's 10 observations: Suddenly all is well as Crosby leads rampage over Flyers**\
+`Sidney Crosby and the Penguins had their way with the Flyers in a 7-3 victory at PPG Paints Arena on Monday.`\
+https://nytimes.com/athletic/6016656/2024/12/24/penguins-crosby-rivalry-flyers-rust/
+
+**Leicester City's 2024: Promotion, three managers - and Jamie Vardy's still got it**\
+`They won the Championship, having made hard work of it, but lost a star manager and are finding their Premier League return tough`\
+https://nytimes.com/athletic/6001110/2024/12/24/leicester-citys-2024-promotion-three-managers-and-jamie-vardy-still-banging-in-goals/
+
 **A year of INEOS at Manchester United: Ruthless cost-cutting, hiring and firing...and an FA Cup**\
 `The past year has been a whirlwind of triumph, trauma and turmoil at Manchester United. And there may be more to come...`\
 https://nytimes.com/athletic/6015096/2024/12/24/manchester-united-ineos-anniversary-ratcliffe/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5934935/2024/12/24/aston-villa-atlanta-braves-doug-
 **Bultman: Red Wings' problems run deeper than a lousy record**\
 `The Red Wings were booed off home ice in their final game before Christmas, signaling fans' patience has run out. Has Steve Yzerman's?`\
 https://nytimes.com/athletic/6017314/2024/12/24/red-wings-problems-steve-yzerman-patience/
-
-**Luis Diaz's Liverpool form is only going to put more focus on his contract situation**\
-`Luis Diaz's contract with Liverpool ends in 2027, which means he is reaching the point when a new deal has to be considered`\
-https://nytimes.com/athletic/6015277/2024/12/24/luis-diaz-liverpool-contract/
-
-**Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/12/24/briefing/gaetz-netanyahu-putin.html
-
-**The Fastest Spacecraft Ever Heads for Its Close-Up With the Sun**\
-`The Parker Solar Probe is attempting the closest ever pass of the sun’s surface on Christmas Eve.`\
-https://nytimes.com/2024/12/24/science/nasa-parker-solar-probe-sun.html
-
-**He Inherited a Seat in Britain’s House of Lords. How Will It Feel to Lose It?**\
-`The U.K. government has pledged to remove hereditary peers from Parliament in 2025. For Lord Cromwell and 87 others, it is a wistful departure.`\
-https://nytimes.com/2024/12/24/world/europe/uk-parliament-hereditary-peers-lords.html
 
