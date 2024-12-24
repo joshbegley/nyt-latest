@@ -1,3 +1,15 @@
+**NFL Draft expert: 5 players who could make sense for Cowboys in the first round**\
+`If the season was over now, the Cowboys would own the No. 15 pick in Round 1. Dane Brugler looks at five players at five positions for them.`\
+https://nytimes.com/athletic/6017613/2024/12/24/cowboys-nfl-draft-first-round-options-ashton-jeanty/
+
+**Hiring Ben Johnson seems like the obvious move, but can the Bears actually land him?**\
+`The Bears have never made the obvious choice for head coach under chairman George McCaskey. Can they get it right this time?`\
+https://nytimes.com/athletic/6016502/2024/12/24/bears-coaching-search-ben-johnson/
+
+**How Donovan Mitchell found 'sense of peace' with Cavs after years of rumors and drama**\
+`Donovan Mitchell sees parallels with this Cavs team and the last title contender he was on: "You have to appreciate this."`\
+https://nytimes.com/athletic/6016065/2024/12/24/donovan-mitchell-cavs-jazz-nba-trade-rumors/
+
 **Marquise Brown and the Chiefs excited about what's ahead after his productive debut**\
 `Brown had an impactful Chiefs debut against the Texans with five receptions for 45 yards on a limited snap count.`\
 https://nytimes.com/athletic/6016754/2024/12/24/chiefs-marquise-brown-productive-debut/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/24/crosswords/connections-companion-563.html
 **How a Skeptical Critic Came to Love Hallmark Christmas Movies**\
 `Hallmark Christmas movies are corny, predictable and just what our critic needed to embrace the holiday spirit.`\
 https://nytimes.com/2024/12/24/podcasts/the-daily/how-a-skeptical-critic-came-to-love-hallmark-christmas-movies.html
-
-**Wordle Review No. 1,285**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 25, 2024.`\
-https://nytimes.com/2024/12/24/crosswords/wordle-review-1285.html
-
-**The Athletic FC: Inside INEOS' first year at United, when the Braves nearly bought Villa**\
-`Today in TAFC: Inside the first year of INEOS at Manchester United, when the Braves nearly bought Villa and some quiz teasers`\
-https://nytimes.com/athletic/6001233/2024/12/24/ineos-united-braves-villa/
-
-**Brighton coach Calderon in advanced talks to take over at Bristol Rovers**\
-`Brighton &amp; Hove Albion Under 18&#8217;s coach Inigo Calderon is in advanced talks to become the new manager of League One side Bristol Rovers.`\
-https://nytimes.com/athletic/6017730/2024/12/24/inigo-calderon-bristol-rovers-brighton/
 
