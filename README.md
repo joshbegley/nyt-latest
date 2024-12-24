@@ -1,3 +1,11 @@
+**Indiana lands former Cal quarterback Fernando Mendoza**\
+`Former two-star recruit from Miami is in position to replace Kurtis Rourke as IU's starting quarterback. `\
+https://nytimes.com/athletic/6015885/2024/12/24/fernando-mendoza-indiana-qb-transfer/
+
+**The 12,000-Year-Old Wolves That Ate Like Dogs**\
+`Animal remains unearthed in Alaska give clues to how wolves were domesticated.`\
+https://nytimes.com/2024/12/24/science/dog-wolf-domestication-alaska.html
+
 **Auburn's red-hot month in the transfer portal continues with Eric Singleton Jr.**\
 `Auburn is looking to flip the script in 2025 after 6-7 and 5-7 finishes in Hugh Freeze's first two seasons at the helm`\
 https://nytimes.com/athletic/6018014/2024/12/24/auburn-football-transfer-portal-eric-singleton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6015914/2024/12/24/nfl-odds-picks-how-to-watch-chri
 **Despite Playoff loss, SMU proved it belongs in the ACC and has a bright future**\
 `With 22 wins over two years and a CFP appearance, SMU redefined the program and changed its identity for future generations.`\
 https://nytimes.com/athletic/6017992/2024/12/24/smu-football-acc-playoff/
-
-**Ohio State adds one of transfer portal's top OTs in Rice's Ethan Onianwa**\
-`Some scouts had a second-round grade on Onianwa for the 2025 NFL Draft.`\
-https://nytimes.com/athletic/6017991/2024/12/24/ohio-state-ethan-onianwa-transfer-rice/
-
-**Tiny Love Stories: ‘My Mother Upstaged Jesus’**\
-`To celebrate the season, we gathered five of our favorite holiday-themed Tiny Love Stories.`\
-https://nytimes.com/2024/12/24/style/tiny-modern-love-stories-my-mother-upstaged-jesus.html
 
