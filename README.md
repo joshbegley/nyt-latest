@@ -1,3 +1,7 @@
+**Ex-UConn star receives NCAA title ring in Christmas Eve surprise from mom**\
+`“It was crazy, I had no idea that was coming,” Castle said. “They kind of flipped the switch on me.”`\
+https://nytimes.com/athletic/6018426/2024/12/24/stephon-castle-mom-spurs-uconn-championship-ring/
+
 **Spending Fight Shows Limits of Trump Power to Change Fiscal Path**\
 `Efforts to cut government spending and eliminate waste are dwarfed by the rising costs of the social safety net programs and interest expenses.`\
 https://nytimes.com/2024/12/24/business/trump-musk-ramaswamy-doge-government-spending.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018270/2024/12/24/nfl-week-17-playoff-scenarios-2/
 **Blake Lively Turns the Shame Around**\
 `The actress’s lawsuit may prolong a humiliating episode for her. But the only way to end impunity is to speak up.`\
 https://nytimes.com/2024/12/24/opinion/blake-lively-lawsuit.html
-
-**Perry Dahl, Who Downed Nine Planes During World War II, Dies at 101**\
-`His courage in battle brought him the Congressional Gold Medal, the Silver Star, the Distinguished Flying Cross and the Legion of Merit.`\
-https://nytimes.com/2024/12/24/us/perry-dahl-dead.html
 
