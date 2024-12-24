@@ -1,3 +1,7 @@
+**Bill Clinton Is Released From Hospital After Having Flu**\
+`The former president was discharged Tuesday morning after being admitted to a hospital on Monday after developing a fever.`\
+https://nytimes.com/2024/12/24/us/bill-clinton-hospital-flu.html
+
 **Elon Musk’s xAI Raises $6 Billion in New Funding**\
 `“A lot of compute is needed,” Mr. Musk said in a post about the financing, in which BlackRock, Fidelity and Sequoia participated.`\
 https://nytimes.com/2024/12/24/technology/elon-musk-xai-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/opinion/letters/finding-faith.html
 **Chicken and Rice With Ginger; Lemony Shrimp and Bean Stew**\
 `And three more one-pot dinners, because you’ve got better things to do than the dishes.`\
 https://nytimes.com/2024/12/24/dining/chicken-and-rice-with-ginger-lemony-shrimp-and-bean-stew.html
-
-**The Bounce: Time for your NBA Christmas Day watch guide!**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6017868/2024/12/24/nba-christmas-lebron-james-steph-curry-victor-wembanyama-nba-the-bounce/
 
