@@ -1,4 +1,4 @@
-**Bucks' turnaround: Not only winning games now, but winning 'with a cushion' and having fun**\
+**Bucks' turnaround: Not only winning games now, but doing so 'with a cushion' and having fun**\
 `After an 11-point win over the Wizards on Saturday, the Bucks put together a 21-point win over the Bulls on Monday. Their stars missed both.`\
 https://nytimes.com/athletic/6017486/2024/12/24/bucks-bulls-aj-green-nba/
 
