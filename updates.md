@@ -1,3 +1,7 @@
+**The Bounce: Time for your NBA Christmas Day watch guide!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6017868/2024/12/24/nba-christmas-lebron-james-steph-curry-victor-wembanyama-nba-the-bounce/
+
 **Connor's defensive impact, Fleury's unlikely rise and He's sensational year: 3 Jets storylines**\
 `With the holiday break upon us, let's dig into three of the more overlooked stories of the Jets' season so far.`\
 https://nytimes.com/athletic/6011622/2024/12/24/winnipeg-jets-connor-defence-injuries-fleury-kevin-he/

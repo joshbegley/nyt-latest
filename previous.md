@@ -1,3 +1,7 @@
+**The Bounce: Time for your NBA Christmas Day watch guide!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6017868/2024/12/24/nba-christmas-lebron-james-steph-curry-victor-wembanyama-nba-the-bounce/
+
 **Connor's defensive impact, Fleury's unlikely rise and He's sensational year: 3 Jets storylines**\
 `With the holiday break upon us, let's dig into three of the more overlooked stories of the Jets' season so far.`\
 https://nytimes.com/athletic/6011622/2024/12/24/winnipeg-jets-connor-defence-injuries-fleury-kevin-he/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/world/europe/russia-espionage-eugene-spector.html
 **Quiz: Do You Speak 2024?**\
 `A varied assortment of words entered (or re-entered) the lexicon this year. How well do you know them?`\
 https://nytimes.com/2024/12/24/style/quiz-2024-year-popular-words.html
-
-**Why ‘A Christmas Carol’ Endures**\
-`More than 180 years after its publication, “A Christmas Carol” by Charles Dickens is more relevant than ever.`\
-https://nytimes.com/2024/12/24/opinion/why-a-christmas-carol-endures.html
 
