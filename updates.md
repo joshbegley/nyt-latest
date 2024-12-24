@@ -1,3 +1,7 @@
+**Embiid ejected for arguing call after Wembanyama draws charge**\
+`After referee Jennifer Schroeder issued the ejection, Embiid became so angry that he had to be restrained.`\
+https://nytimes.com/athletic/6017146/2024/12/23/joel-embiid-ejected-76ers-spurs-victor-wembanyama/
+
 **‘Rust’ Prosecutor Withdraws Appeal of Alec Baldwin Case**\
 `The decision ends the criminal prosecution of the actor for the fatal shooting on a film set. During his trial, the judge dismissed the involuntary manslaughter charge against him.`\
 https://nytimes.com/2024/12/23/movies/rust-appeal-alec-baldwin-trial.html
