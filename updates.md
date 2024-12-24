@@ -1,3 +1,7 @@
+**The Men and Women Swirling Around Elon Musk**\
+`A look at the people who influence the world’s richest man, and those who stand to gain from their association with him now.`\
+https://nytimes.com/interactive/2024/12/23/business/elon-musk-trump-family-friends-backers.html
+
 **Embiid ejected for arguing call after Wembanyama draws charge**\
 `After referee Jennifer Schroeder issued the ejection, Embiid became so angry that he had to be restrained.`\
 https://nytimes.com/athletic/6017146/2024/12/23/joel-embiid-ejected-76ers-spurs-victor-wembanyama/
