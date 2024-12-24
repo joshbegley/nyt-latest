@@ -1,3 +1,7 @@
+**Mets rotation gains stability, Red Sox bet on Buehler and Rangers shuffle corners: Law**\
+`The Mets improved their rotation, while the Red Sox rolled the dice on a potential bounce-back. The Rangers added a hitter but lost another.`\
+https://nytimes.com/athletic/6017088/2024/12/23/rangers-red-sox-mets-manaea-buehler-pederson/
+
 **Deputies Missed Signs Before a Detainee Hanged Himself**\
 `Reports and video footage newly released in Riverside County, Calif., indicate that a man was able to cover his cell window and camera without intervention.`\
 https://nytimes.com/2024/12/23/us/ca-jail-death-riverside-county.html
