@@ -1,3 +1,11 @@
+**Week 16 NFL playoff picture: Lions, Chiefs closing in on top seeds; Packers clinch playoff spot**\
+`The top seed in the NFC could come down to an epic Week 18 showdown between two NFC North rivals. `\
+https://nytimes.com/athletic/6006774/2024/12/23/week-16-nfl-playoff-picture-chiefs-lions-top-seeds-update/
+
+**Lindholm has finally arrived in Boston: ‘We were expecting that from Lindy’**\
+`Lindholm scored against the Capitals for three goals and two assists in the last five games, his best five-game stretch this season.`\
+https://nytimes.com/athletic/6017396/2024/12/23/bruins-elias-lindholm-emergence-capitals/
+
 **Poor special teams, worse goaltending: Flyers limp into break with a host of issues**\
 `Philadelphia briefly fought back to a one-goal deficit, but eventually fell in a discouraging 7-3 loss to rival Pittsburgh.`\
 https://nytimes.com/athletic/6017364/2024/12/23/flyers-issues-special-teams-goaltending-penguins/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/23/pageoneplus/corrections-dec-24-2024.html
 **Fragments of Santa Cruz Wharf Wash Ashore After Partial Collapse**\
 `Broken wood, debris and a building floated in the ocean after the end of the wharf collapsed.`\
 https://nytimes.com/video/us/100000009894637/santa-cruz-wharf-collapse.html
-
-**Hochul Orders Firing of 14 Prison Workers After Fatal Attack on Inmate**\
-`Video of the deadly assault on Robert L. Brooks was “horrific,” “disturbing” and “devastating,” a lawyer for his family said after they watched it.`\
-https://nytimes.com/2024/12/23/nyregion/ny-prison-inmate-killed-hochul.html
-
-**The Men and Women Swirling Around Elon Musk**\
-`A look at the people who influence the world’s richest man, and those who stand to gain from their association with him now.`\
-https://nytimes.com/interactive/2024/12/23/business/elon-musk-trump-family-friends-backers.html
 
