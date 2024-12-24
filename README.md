@@ -1,3 +1,7 @@
+**Scoop City: Netflix's $150M football Christmas**\
+`A brief look at the why and how behind Netflix's big NFL bet, plus: What a win means for each Christmas team and good vibes in Washington.`\
+https://nytimes.com/athletic/6018310/2024/12/24/netflix-christmas-schedule-nfl-scoop-city/
+
 **NFL Week 17 playoff scenarios: Broncos, Chargers, Commanders eye berths**\
 `First-round byes and seeds are still up for grabs and several teams can still earn a spot in the playoffs this weekend.`\
 https://nytimes.com/athletic/6018270/2024/12/24/nfl-week-17-playoff-scenarios-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/business/justin-baldoni-publicist-blake-lively-la
 **Week 17 fantasy football waiver wire: Streamers, Hollywood Brown, Michael Carter and more**\
 `It's never to late to shore up your roster on the waiver wire, even during Week 17 fantasy football championship week.`\
 https://nytimes.com/athletic/5999402/2024/12/24/week-17-fantasy-football-waiver-wire-streamers-hollywood-brown-michael-carter/
-
-**Indiana lands former Cal quarterback Fernando Mendoza**\
-`Former two-star recruit from Miami is in position to replace Kurtis Rourke as IU's starting quarterback. `\
-https://nytimes.com/athletic/6015885/2024/12/24/fernando-mendoza-indiana-qb-transfer/
 
