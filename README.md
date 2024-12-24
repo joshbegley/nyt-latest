@@ -1,3 +1,11 @@
+**Burning of a Christmas Tree in Syria Sets Off Protests**\
+`The protests in Damascus broke out after footage circulated online of an artificial Christmas tree on fire in a mostly Christian town as masked men stand around it.`\
+https://nytimes.com/2024/12/24/world/middleeast/syria-christmas-tree-burning-protests.html
+
+**The Evening: Signs of Trouble for Trump’s Spending Cuts**\
+`Plus, celebrating “Chrismukkah.”`\
+https://nytimes.com/2024/12/24/briefing/trump-cuts-american-airlines-michigan-state-chrismukkah.html
+
 **Judge Strikes Down Portions of Arkansas Law That Threatened Librarians**\
 `Republicans passed the law in 2023, joining other conservative states and counties that have sought to restrict the availability of certain books.`\
 https://nytimes.com/2024/12/24/us/arkansas-book-ban-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6018426/2024/12/24/stephon-castle-mom-spurs-uconn-c
 **Spending Fight Shows Limits of Trump Power to Change Fiscal Path**\
 `Efforts to cut government spending and eliminate waste are dwarfed by the rising costs of the social safety net programs and interest expenses.`\
 https://nytimes.com/2024/12/24/business/trump-musk-ramaswamy-doge-government-spending.html
-
-**History Shows Big Changes in ‘Big Government’ Are Hard to Achieve**\
-`Past efforts to shrink the federal bureaucracy, including basic things like selling off unused government buildings, have come up short. Republicans are set to try again.`\
-https://nytimes.com/2024/12/24/us/trump-america-government-republicans.html
-
-**Bill Clinton Is Released From Hospital After Having Flu**\
-`The former president was discharged Tuesday morning after being admitted to a hospital on Monday after developing a fever.`\
-https://nytimes.com/2024/12/24/us/bill-clinton-hospital-flu.html
 
