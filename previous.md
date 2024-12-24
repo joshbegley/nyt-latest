@@ -1,3 +1,7 @@
+**What We Know About the Fatal Burning of a Woman on the Subway**\
+`The woman, who has not been identified, died after a man set her on fire on an F train on Sunday morning. The police have charged a man from Guatemala with murder and arson.`\
+https://nytimes.com/2024/12/24/nyregion/nyc-subway-fire-what-to-know.html
+
 **Burning of a Christmas Tree in Syria Sets Off Protests**\
 `The protests in Damascus broke out after footage circulated online of an artificial Christmas tree on fire in a mostly Christian town as masked men stand around it.`\
 https://nytimes.com/2024/12/24/world/middleeast/syria-christmas-tree-burning-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/arts/television/everything-calls-for-salvation-ne
 **Ex-UConn star receives NCAA title ring in Christmas Eve surprise from mom**\
 `“It was crazy, I had no idea that was coming,” Castle said. “They kind of flipped the switch on me.”`\
 https://nytimes.com/athletic/6018426/2024/12/24/stephon-castle-mom-spurs-uconn-championship-ring/
-
-**Spending Fight Shows Limits of Trump Power to Change Fiscal Path**\
-`Efforts to cut government spending and eliminate waste are dwarfed by the rising costs of the social safety net programs and interest expenses.`\
-https://nytimes.com/2024/12/24/business/trump-musk-ramaswamy-doge-government-spending.html
 

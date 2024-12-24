@@ -1,3 +1,7 @@
+**What We Know About the Fatal Burning of a Woman on the Subway**\
+`The woman, who has not been identified, died after a man set her on fire on an F train on Sunday morning. The police have charged a man from Guatemala with murder and arson.`\
+https://nytimes.com/2024/12/24/nyregion/nyc-subway-fire-what-to-know.html
+
 **Burning of a Christmas Tree in Syria Sets Off Protests**\
 `The protests in Damascus broke out after footage circulated online of an artificial Christmas tree on fire in a mostly Christian town as masked men stand around it.`\
 https://nytimes.com/2024/12/24/world/middleeast/syria-christmas-tree-burning-protests.html
