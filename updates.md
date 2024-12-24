@@ -1,3 +1,7 @@
+**The Pulse: The NFL's best dark-horse contender**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6017214/2024/12/24/packers-saints-playoffs-the-pulse/
+
 **Israel Intercepts Houthi Missile and Threatens Militant Group’s Leaders**\
 `Israel said it had shot down a missile fired by Houthi militants in Yemen, hours after Israel’s defense minister threatened to “behead” the group’s leadership.`\
 https://nytimes.com/2024/12/24/world/middleeast/israel-houthis-yemen-missile.html

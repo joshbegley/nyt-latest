@@ -1,3 +1,7 @@
+**The Pulse: The NFL's best dark-horse contender**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6017214/2024/12/24/packers-saints-playoffs-the-pulse/
+
 **Israel Intercepts Houthi Missile and Threatens Militant Group’s Leaders**\
 `Israel said it had shot down a missile fired by Houthi militants in Yemen, hours after Israel’s defense minister threatened to “behead” the group’s leadership.`\
 https://nytimes.com/2024/12/24/world/middleeast/israel-houthis-yemen-missile.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015698/2024/12/24/nfl-qb-stock-report-rankings-mic
 **Packers' dominant night of firsts vs. Saints culminates with playoff clinch**\
 `The Packers breezed to a 34-0 win over the Saints on Monday night, the first shutout in the NFL this season.`\
 https://nytimes.com/athletic/6017635/2024/12/24/packers-clinch-playoff-spot-saints/
-
-**The Connections Companion No. 563**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 25, 2024.`\
-https://nytimes.com/2024/12/24/crosswords/connections-companion-563.html
 
