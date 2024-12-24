@@ -1,3 +1,7 @@
+**Short-handed Magic, NBA's most cohesive group of 'dawgs,' upset the defending champs**\
+`Perhaps no team in the NBA has the intangibles the Magic possess, as the Celtics learned Monday night.`\
+https://nytimes.com/athletic/6017599/2024/12/24/orlando-magic-beat-boston-celtics/
+
 **Cleaning to Soothe the Worried**\
 `I come from a long line of house cleaners. After Oct. 7, I knew what to do.`\
 https://nytimes.com/2024/12/24/opinion/cleaning-to-soothe-the-worried.html
