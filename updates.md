@@ -1,3 +1,11 @@
+**Burning of a Christmas Tree in Syria Sets Off Protests**\
+`The protests in Damascus broke out after footage circulated online of an artificial Christmas tree on fire in a mostly Christian town as masked men stand around it.`\
+https://nytimes.com/2024/12/24/world/middleeast/syria-christmas-tree-burning-protests.html
+
+**The Evening: Signs of Trouble for Trump’s Spending Cuts**\
+`Plus, celebrating “Chrismukkah.”`\
+https://nytimes.com/2024/12/24/briefing/trump-cuts-american-airlines-michigan-state-chrismukkah.html
+
 **Judge Strikes Down Portions of Arkansas Law That Threatened Librarians**\
 `Republicans passed the law in 2023, joining other conservative states and counties that have sought to restrict the availability of certain books.`\
 https://nytimes.com/2024/12/24/us/arkansas-book-ban-law.html
