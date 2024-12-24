@@ -1,3 +1,7 @@
+**What I Learned Most From My Trip to China**\
+`America must compete with China, but there’s also a complicated reality that both countries have to face.`\
+https://nytimes.com/2024/12/24/opinion/us-china-relationship.html
+
 **Avoid California Beaches Because of Dangerous Waves, Officials Warn**\
 `An unusually powerful surf has already killed one man and destroyed part of a historic pier in Santa Cruz, Calif.`\
 https://nytimes.com/2024/12/24/us/california-beach-surf-pier-warning.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/17/opinion/thepoint/tiktok-early-decision-colle
 **NFL Week 17 fantasy football, betting cheat sheet: Pickens could play**\
 `Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
 https://nytimes.com/athletic/6015597/2024/12/24/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
-
-**Scoop City: Netflix's $150M football Christmas**\
-`A brief look at the why and how behind Netflix's big NFL bet, plus: What a win means for each Christmas team and good vibes in Washington.`\
-https://nytimes.com/athletic/6018310/2024/12/24/netflix-christmas-schedule-nfl-scoop-city/
 
