@@ -1,3 +1,11 @@
+**Help wanted: Another loss to Pistons underscores Lakers' urgent perimeter needs**\
+`Rob Pelinka said he wanted to wait until Game 30 before evaluating this team. With No. 30 up next, the Lakers know "we gotta be stronger."`\
+https://nytimes.com/athletic/6017342/2024/12/24/lakers-loss-pistons-lebron-physicality/
+
+**American Airlines Grounds All U.S. Flights Over Technical Issues**\
+`The airline grounded all flights on Tuesday morning during the busy holiday travel period.`\
+https://nytimes.com/2024/12/24/us/american-air-flights-grounded.html
+
 **Cade Cunningham impresses LeBron James in Pistons' win over Lakers: 'They got a great one'**\
 `Detroit is now 2-0 on this road trip and will go to Sacramento on Thursday with a chance to match its entire win total from last season.`\
 https://nytimes.com/athletic/6017655/2024/12/24/pistons-lakers-cade-cunningham-lebron-james-nba/
