@@ -1,3 +1,7 @@
+**Ex-UConn star receives NCAA title ring in Christmas Eve surprise from mom**\
+`“It was crazy, I had no idea that was coming,” Castle said. “They kind of flipped the switch on me.”`\
+https://nytimes.com/athletic/6018426/2024/12/24/stephon-castle-mom-spurs-uconn-championship-ring/
+
 **Spending Fight Shows Limits of Trump Power to Change Fiscal Path**\
 `Efforts to cut government spending and eliminate waste are dwarfed by the rising costs of the social safety net programs and interest expenses.`\
 https://nytimes.com/2024/12/24/business/trump-musk-ramaswamy-doge-government-spending.html
