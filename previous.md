@@ -1,3 +1,7 @@
+**How to Track Santa: NORAD’s Radars Are on the Case**\
+`Children and the young at heart can see where in the world Santa is and how many gifts have been delivered.`\
+https://nytimes.com/2024/12/24/us/how-to-track-santa-norad.html
+
 **Olympic Snowboarder From Switzerland Dies in Avalanche at 26**\
 `Sophie Hediger, who competed in the 2022 Olympics in Beijing, died in an avalanche in Arosa, Switzerland, according to the police and the Swiss ski federation.`\
 https://nytimes.com/2024/12/24/sports/sophie-hediger-swiss-snowboarder-dead-avalanche.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/us/bill-clinton-hospital-flu.html
 **Elon Musk’s xAI Raises $6 Billion in New Funding**\
 `“A lot of compute is needed,” Mr. Musk said in a post about the financing, in which BlackRock, Fidelity and Sequoia participated.`\
 https://nytimes.com/2024/12/24/technology/elon-musk-xai-funding.html
-
-**This Year’s College Drama on TikTok May Be the Last**\
-`But for now, the app reveals a series of memorable family portraits.`\
-https://nytimes.com/live/2024/12/17/opinion/thepoint/tiktok-early-decision-college
 
