@@ -1,3 +1,7 @@
+**F1 2024 report cards: McLaren gets top marks, Aston Martin needs improvement**\
+`Which teams impressed the most and who has work to do before class resumes in March?`\
+https://nytimes.com/athletic/6001939/2024/12/24/f1-team-2024-ratings-report-cards/
+
 **Warriors lose at home to Pacers as Steph Curry tries to find his rhythm**\
 `"I could be a lot better," Curry said. "And I will be.”`\
 https://nytimes.com/athletic/6017346/2024/12/24/warriors-steph-curry-lose-to-pacers/
