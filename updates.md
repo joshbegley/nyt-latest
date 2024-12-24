@@ -1,3 +1,7 @@
+**Richard Perry, Record Producer With a Golden Touch, Dies at 82**\
+`Known for his work with Barbra Streisand, Carly Simon, the Pointer Sisters and many others, he was one of the most reliable hitmakers in the business.`\
+https://nytimes.com/2024/12/24/arts/music/richard-perry-dead.html
+
 **20 Big Cats Die From Bird Flu at a Washington Sanctuary**\
 `More than half of the cats at the sanctuary in Shelton, Wash., died of the virus over the past several weeks.`\
 https://nytimes.com/2024/12/24/us/big-cat-bird-flu-deaths-washington.html

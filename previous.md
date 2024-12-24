@@ -1,3 +1,7 @@
+**Richard Perry, Record Producer With a Golden Touch, Dies at 82**\
+`Known for his work with Barbra Streisand, Carly Simon, the Pointer Sisters and many others, he was one of the most reliable hitmakers in the business.`\
+https://nytimes.com/2024/12/24/arts/music/richard-perry-dead.html
+
 **20 Big Cats Die From Bird Flu at a Washington Sanctuary**\
 `More than half of the cats at the sanctuary in Shelton, Wash., died of the virus over the past several weeks.`\
 https://nytimes.com/2024/12/24/us/big-cat-bird-flu-deaths-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/us/how-to-track-santa-norad.html
 **Olympic Snowboarder From Switzerland Dies in Avalanche at 26**\
 `Sophie Hediger, who competed in the 2022 Olympics in Beijing, died in an avalanche in Arosa, Switzerland, according to the police and the Swiss ski federation.`\
 https://nytimes.com/2024/12/24/sports/sophie-hediger-swiss-snowboarder-dead-avalanche.html
-
-**What I Learned Most From My Trip to China**\
-`America must compete with China, but there’s also a complicated reality that both countries have to face.`\
-https://nytimes.com/2024/12/24/opinion/us-china-relationship.html
 
