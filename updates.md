@@ -1,3 +1,7 @@
+**Avoid California Beaches Because of Dangerous Waves, Officials Warn**\
+`An unusually powerful surf has already killed one man and destroyed part of a historic pier in Santa Cruz, Calif.`\
+https://nytimes.com/2024/12/24/us/california-beach-surf-pier-warning.html
+
 **‘Everything Calls for Salvation’ Is a Beachy Italian Drama**\
 `The seven-episode first season, on Netflix, plays out like a sunnier Italian “Girl, Interrupted.”`\
 https://nytimes.com/2024/12/24/arts/television/everything-calls-for-salvation-netflix.html
