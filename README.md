@@ -1,3 +1,7 @@
+**F1 2024 report cards: McLaren gets top marks, Aston Martin needs improvement**\
+`Which teams impressed the most and who has work to do before class resumes in March?`\
+https://nytimes.com/athletic/6001939/2024/12/24/f1-team-2024-ratings-report-cards/
+
 **Warriors lose at home to Pacers as Steph Curry tries to find his rhythm**\
 `"I could be a lot better," Curry said. "And I will be.”`\
 https://nytimes.com/athletic/6017346/2024/12/24/warriors-steph-curry-lose-to-pacers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017541/2024/12/24/wild-reset-holiday-break-blackha
 **Tom Gores talks Cade Cunningham, state of the Pistons and more**\
 `The mood around the Pistons is much different than it was this time a year ago.`\
 https://nytimes.com/athletic/6017512/2024/12/24/tom-gores-interview-pistons-cade-cunningham/
-
-**How Elias Pettersson sparked vital Canucks victory before holiday break: 3 takeaways**\
-`Pettersson scored back-to-back goals to lead the Canucks to a 4-3 victory over the Sharks.`\
-https://nytimes.com/athletic/6017311/2024/12/24/elias-pettersson-canucks-win-sharks-holiday-break-takeaways/
 
