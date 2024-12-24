@@ -1,3 +1,7 @@
+**The Men and Women Swirling Around Elon Musk**\
+`A look at the people who influence the world’s richest man, and those who stand to gain from their association with him now.`\
+https://nytimes.com/interactive/2024/12/23/business/elon-musk-trump-family-friends-backers.html
+
 **Embiid ejected for arguing call after Wembanyama draws charge**\
 `After referee Jennifer Schroeder issued the ejection, Embiid became so angry that he had to be restrained.`\
 https://nytimes.com/athletic/6017146/2024/12/23/joel-embiid-ejected-76ers-spurs-victor-wembanyama/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016952/2024/12/23/carson-beck-georgia-quarterback-
 **Bill Clinton Is Hospitalized After Developing a Fever**\
 `A Washington hospital admitted Mr. Clinton for testing and observation, and an aide said that the former president was “in good spirits.”`\
 https://nytimes.com/2024/12/23/us/politics/bill-clinton-hospital-fever.html
-
-**I.R.S. to Send Out Unclaimed Tax Credit to One Million Taxpayers**\
-`Some Americans who qualified for a pandemic-era tax credit but did not claim it will get up to $1,400 in their account within the next month.`\
-https://nytimes.com/2024/12/23/business/irs-stimulus-check-payments.html
 
