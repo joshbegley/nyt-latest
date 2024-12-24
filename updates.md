@@ -1,3 +1,7 @@
+**Dutch Court Issues Prison Sentences Over Violence Against Israeli Soccer Fans**\
+`Five people were found guilty of crimes, including public violence, in relation to attacks targeting Israelis in Amsterdam last month.`\
+https://nytimes.com/2024/12/24/world/europe/amsterdam-israel-soccer-fans-attacks.html
+
 **A Day for Games**\
 `Here are a few you can play during the holidays.`\
 https://nytimes.com/2024/12/24/briefing/a-day-for-games.html
