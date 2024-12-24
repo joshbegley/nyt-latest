@@ -1,3 +1,7 @@
+**Christmas Tree Burning Ignites Protests in Syria**\
+`Hundreds of people gathered in Christian neighborhoods in Syria’s capital, Damascus, after a video circulated showing an artificial Christmas tree on fire.`\
+https://nytimes.com/video/world/middleeast/100000009895321/christmas-tree-burning-syria-protests.html
+
 **William Labov, Who Studied How Society Shapes Language, Dies at 97**\
 `He laid the foundation for sociolinguistics, and he showed that structures like class and race shaped speech as much as where someone lives.`\
 https://nytimes.com/2024/12/24/us/william-labov-dead.html
