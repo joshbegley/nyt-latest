@@ -1,3 +1,7 @@
+**Money for 9/11 Health Care Was Dropped from Year-End Spending Bill**\
+`A plan to ensure long-term funding to address health needs stemming from the terrorist attacks fell to the wayside after President-elect Donald Trump and Elon Musk objected to a bipartisan budget deal.`\
+https://nytimes.com/2024/12/23/us/politics/sept-11-health-care-spending-bill.html
+
 **New Anti-Money Laundering Measures Pass a Legal Roadblock**\
 `Millions of companies may have to report information about their owners to the Treasury Department by Jan. 1 under an appeals court ruling.`\
 https://nytimes.com/2024/12/23/us/anti-money-laundering-law-court-decision.html
