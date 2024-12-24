@@ -1,3 +1,7 @@
+**Cleaning to Soothe the Worried**\
+`I come from a long line of house cleaners. After Oct. 7, I knew what to do.`\
+https://nytimes.com/2024/12/24/opinion/cleaning-to-soothe-the-worried.html
+
 **Wild lower the temperature with a win, excited for a 'fresh start after Christmas'**\
 `Taking three days away from hockey will allow a banged-up Wild team to reset mentally and physically.`\
 https://nytimes.com/athletic/6017541/2024/12/24/wild-reset-holiday-break-blackhawks/
