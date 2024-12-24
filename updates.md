@@ -1,3 +1,7 @@
+**Gunmen Attack Haiti’s Largest Public Hospital, Killing at Least 3**\
+`Two journalists and a police officer died and at least seven others were wounded in the shooting before the reopening of a hospital wing in Port-au-Prince.`\
+https://nytimes.com/2024/12/24/world/americas/haiti-hospital-shooting.html
+
 **Richard Perry, Record Producer With a Golden Touch, Dies at 82**\
 `Known for his work with Barbra Streisand, Carly Simon, the Pointer Sisters and many others, he was one of the most reliable hitmakers in the business.`\
 https://nytimes.com/2024/12/24/arts/music/richard-perry-dead.html

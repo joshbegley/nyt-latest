@@ -1,3 +1,7 @@
+**Gunmen Attack Haiti’s Largest Public Hospital, Killing at Least 3**\
+`Two journalists and a police officer died and at least seven others were wounded in the shooting before the reopening of a hospital wing in Port-au-Prince.`\
+https://nytimes.com/2024/12/24/world/americas/haiti-hospital-shooting.html
+
 **Richard Perry, Record Producer With a Golden Touch, Dies at 82**\
 `Known for his work with Barbra Streisand, Carly Simon, the Pointer Sisters and many others, he was one of the most reliable hitmakers in the business.`\
 https://nytimes.com/2024/12/24/arts/music/richard-perry-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/us/arkansas-book-ban-law.html
 **How to Track Santa: NORAD’s Radars Are on the Case**\
 `Children and the young at heart can see where in the world Santa is and how many gifts have been delivered.`\
 https://nytimes.com/2024/12/24/us/how-to-track-santa-norad.html
-
-**Olympic Snowboarder From Switzerland Dies in Avalanche at 26**\
-`Sophie Hediger, who competed in the 2022 Olympics in Beijing, died in an avalanche in Arosa, Switzerland, according to the police and the Swiss ski federation.`\
-https://nytimes.com/2024/12/24/sports/sophie-hediger-swiss-snowboarder-dead-avalanche.html
 
