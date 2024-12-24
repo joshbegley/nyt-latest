@@ -1,3 +1,7 @@
+**NFL Week 17 playoff scenarios: Broncos, Chargers, Commanders eye berths**\
+`First-round byes and seeds are still up for grabs and several teams can still earn a spot in the playoffs this weekend.`\
+https://nytimes.com/athletic/6018270/2024/12/24/nfl-week-17-playoff-scenarios-2/
+
 **Blake Lively Turns the Shame Around**\
 `The actress’s lawsuit may prolong a humiliating episode for her. But the only way to end impunity is to speak up.`\
 https://nytimes.com/2024/12/24/opinion/blake-lively-lawsuit.html
