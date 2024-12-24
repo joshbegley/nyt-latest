@@ -1,3 +1,11 @@
+**Wild lower the temperature with a win, excited for a 'fresh start after Christmas'**\
+`Taking three days away from hockey will allow a banged-up Wild team to reset mentally and physically.`\
+https://nytimes.com/athletic/6017541/2024/12/24/wild-reset-holiday-break-blackhawks/
+
+**Tom Gores talks Cade Cunningham, state of the Pistons and more**\
+`The mood around the Pistons is much different than it was this time a year ago.`\
+https://nytimes.com/athletic/6017512/2024/12/24/tom-gores-interview-pistons-cade-cunningham/
+
 **How Elias Pettersson sparked vital Canucks victory before holiday break: 3 takeaways**\
 `Pettersson scored back-to-back goals to lead the Canucks to a 4-3 victory over the Sharks.`\
 https://nytimes.com/athletic/6017311/2024/12/24/elias-pettersson-canucks-win-sharks-holiday-break-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5844866/2024/12/24/diego-gomez-brighton-inter-miami
 **Saka is the latest to suffer as hamstring problems increase across the Premier League**\
 `The Athletic's medical expert, Geoff Scott, explains the challenges facing clubs and elite players as hamstring problems become more severe`\
 https://nytimes.com/athletic/6015615/2024/12/24/bukayo-saka-and-the-increase-in-hamstring-injuries-across-the-premier-league/
-
-**The four 'seasons' of the 2024-25 Premier League campaign so far**\
-`If you partitioned the season so far using the international breaks, here's who won and lost each 'mini season'`\
-https://nytimes.com/athletic/6012450/2024/12/24/the-four-seasons-of-the-2024-25-premier-league-campaign-so-far/
-
-**The untold story of how Doug Ellis almost sold Villa to the owner of Atlanta Braves**\
-`Long before U.S. owners descended on the Premier League, Doug Ellis hatched a plan to sell the club - it failed but links remain in Georgia`\
-https://nytimes.com/athletic/5934935/2024/12/24/aston-villa-atlanta-braves-doug-ellis-pele/
 
