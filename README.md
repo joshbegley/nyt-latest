@@ -1,3 +1,23 @@
+**Cowboys Today: Giving Mike Zimmer well-deserved props for turning around the defense**\
+`Mike Zimmer didn't have an easy task when he arrived in Dallas and injuries just made it tougher. `\
+https://nytimes.com/athletic/6017477/2024/12/24/cowboys-today-mike-zimmer-defense-turnaround/
+
+**Ranking the Chargers' potential playoff opponents from best to worst matchup**\
+`The Chargers have a 94 percent chance to make the playoffs. Assuming they do, which team is their best wild-card-round opponent?`\
+https://nytimes.com/athletic/6017270/2024/12/24/chargers-playoffs-best-worst-matchups/
+
+**NFL Week 16 best and worst coaching decisions: Ravens' Todd Monken unlocks Derrick Henry**\
+`Also, Chargers coach Jim Harbaugh finally gets his free kick, the Falcons choose wisely and Texans OC Bobby Slowik's flawed plan.`\
+https://nytimes.com/athletic/6014794/2024/12/24/nfl-week-16-worst-best-coaching-decisions-nguyen/
+
+**49ers minutia minute: Trent Williams is finished for 2024 as O-line grows wafer thin**\
+`Kyle Shanahan said a makeshift offensive line would not affect his decision to play Brock Purdy in the upcoming game against the Lions.`\
+https://nytimes.com/athletic/6015974/2024/12/24/49ers-trent-williams-injuries-snap-counts/
+
+**Twins quotes of the year: 10 that stand out from an up-and-down 2024**\
+`This season won't be remembered fondly by Twins fans. Still, there were many memorable moments over the course of 162 games. `\
+https://nytimes.com/athletic/6009810/2024/12/24/minnesota-twins-best-quotes-2024/
+
 **Help wanted: Another loss to Pistons underscores Lakers' urgent perimeter needs**\
 `Rob Pelinka said he wanted to wait until Game 30 before evaluating this team. With No. 30 up next, the Lakers know "we gotta be stronger."`\
 https://nytimes.com/athletic/6017342/2024/12/24/lakers-loss-pistons-lebron-physicality/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6017271/2024/12/24/nba-g-league-showcase-takeaways-
 **Dutch Court Issues Prison Sentences Over Violence Against Israeli Soccer Fans**\
 `Five people were found guilty of crimes, including public violence, in relation to attacks targeting Israelis in Amsterdam last month.`\
 https://nytimes.com/2024/12/24/world/europe/amsterdam-israel-soccer-fans-attacks.html
-
-**A Day for Games**\
-`Here are a few you can play during the holidays.`\
-https://nytimes.com/2024/12/24/briefing/a-day-for-games.html
-
-**The Pulse: The NFL's best dark-horse contender**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6017214/2024/12/24/packers-saints-playoffs-the-pulse/
-
-**Israel Intercepts Houthi Missile and Threatens Militant Group’s Leaders**\
-`Israel said it had shot down a missile fired by Houthi militants in Yemen, hours after Israel’s defense minister threatened to “behead” the group’s leadership.`\
-https://nytimes.com/2024/12/24/world/middleeast/israel-houthis-yemen-missile.html
-
-**NFL Draft expert: 5 players who could make sense for Cowboys in the first round**\
-`If the season was over now, the Cowboys would own the No. 15 pick in Round 1. Dane Brugler looks at five players at five positions for them.`\
-https://nytimes.com/athletic/6017613/2024/12/24/cowboys-nfl-draft-first-round-options-ashton-jeanty/
-
-**Hiring Ben Johnson seems like the obvious move, but can the Bears actually land him?**\
-`The Bears have never made the obvious choice for head coach under chairman George McCaskey. Can they get it right this time?`\
-https://nytimes.com/athletic/6016502/2024/12/24/bears-coaching-search-ben-johnson/
 
