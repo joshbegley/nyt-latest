@@ -1,3 +1,7 @@
+**Timberwolves coach Chris Finch faces pressure to solve problems with no easy answers**\
+`Minnesota lost again on Monday as fans call for lineup changes. It's a test for Finch's usual steadiness.`\
+https://nytimes.com/athletic/6017132/2024/12/24/timberwolves-chris-finch-offense-rotation/
+
 **Cowboys Today: Giving Mike Zimmer well-deserved props for turning around the defense**\
 `Mike Zimmer didn't have an easy task when he arrived in Dallas and injuries just made it tougher. `\
 https://nytimes.com/athletic/6017477/2024/12/24/cowboys-today-mike-zimmer-defense-turnaround/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017655/2024/12/24/pistons-lakers-cade-cunningham-l
 **G League Showcase takeaways: Who shined, who struggled and who's next for a deal**\
 `Did your team's rookies, two-ways and assorted quasi-prospects look good? Here's your answer.`\
 https://nytimes.com/athletic/6017271/2024/12/24/nba-g-league-showcase-takeaways-hollinger/
-
-**Dutch Court Issues Prison Sentences Over Violence Against Israeli Soccer Fans**\
-`Five people were found guilty of crimes, including public violence, in relation to attacks targeting Israelis in Amsterdam last month.`\
-https://nytimes.com/2024/12/24/world/europe/amsterdam-israel-soccer-fans-attacks.html
 
