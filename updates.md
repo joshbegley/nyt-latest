@@ -1,3 +1,7 @@
+**Timberwolves coach Chris Finch faces pressure to solve problems with no easy answers**\
+`Minnesota lost again on Monday as fans call for lineup changes. It's a test for Finch's usual steadiness.`\
+https://nytimes.com/athletic/6017132/2024/12/24/timberwolves-chris-finch-offense-rotation/
+
 **Cowboys Today: Giving Mike Zimmer well-deserved props for turning around the defense**\
 `Mike Zimmer didn't have an easy task when he arrived in Dallas and injuries just made it tougher. `\
 https://nytimes.com/athletic/6017477/2024/12/24/cowboys-today-mike-zimmer-defense-turnaround/
