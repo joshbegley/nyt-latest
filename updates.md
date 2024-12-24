@@ -1,3 +1,11 @@
+**Cade Cunningham impresses LeBron James in Pistons' win over Lakers: 'They got a great one'**\
+`Detroit is now 2-0 on this road trip and will go to Sacramento on Thursday with a chance to match its entire win total from last season.`\
+https://nytimes.com/athletic/6017655/2024/12/24/pistons-lakers-cade-cunningham-lebron-james-nba/
+
+**G League Showcase takeaways: Who shined, who struggled and who's next for a deal**\
+`Did your team's rookies, two-ways and assorted quasi-prospects look good? Here's your answer.`\
+https://nytimes.com/athletic/6017271/2024/12/24/nba-g-league-showcase-takeaways-hollinger/
+
 **Dutch Court Issues Prison Sentences Over Violence Against Israeli Soccer Fans**\
 `Five people were found guilty of crimes, including public violence, in relation to attacks targeting Israelis in Amsterdam last month.`\
 https://nytimes.com/2024/12/24/world/europe/amsterdam-israel-soccer-fans-attacks.html
