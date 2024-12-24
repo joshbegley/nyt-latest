@@ -1,3 +1,7 @@
+**NFL Week 17 fantasy football, betting cheat sheet: Pickens could play**\
+`Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
+https://nytimes.com/athletic/6015597/2024/12/24/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
+
 **Scoop City: Netflix's $150M football Christmas**\
 `A brief look at the why and how behind Netflix's big NFL bet, plus: What a win means for each Christmas team and good vibes in Washington.`\
 https://nytimes.com/athletic/6018310/2024/12/24/netflix-christmas-schedule-nfl-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6011622/2024/12/24/winnipeg-jets-connor-defence-inj
 **Justin Baldoni’s Ex-Publicist Sues Over Alleged Smear Campaign**\
 `An ousted P.R. executive alleges a conspiracy to harm her and steal her clients, in connection with an effort to tarnish Blake Lively.`\
 https://nytimes.com/2024/12/24/business/justin-baldoni-publicist-blake-lively-lawsuit.html
-
-**Week 17 fantasy football waiver wire: Streamers, Hollywood Brown, Michael Carter and more**\
-`It's never to late to shore up your roster on the waiver wire, even during Week 17 fantasy football championship week.`\
-https://nytimes.com/athletic/5999402/2024/12/24/week-17-fantasy-football-waiver-wire-streamers-hollywood-brown-michael-carter/
 
