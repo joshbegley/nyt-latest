@@ -1,4 +1,12 @@
-**Blue Jackets respond angrily to Patrik Laine's criticism, earn comeback win over Montreal**\
+**Quote of the Day: Gangs’ Tactical Looting of Aid Deepens Desperation for Gazans**\
+`Quotation of the Day for Tuesday, December 24, 2024`\
+https://nytimes.com/2024/12/23/pageoneplus/quote-of-the-day-gangs-tactical-looting-of-aid-deepens-desperation-for-gazans.html
+
+**Packers clinch playoff berth with 34-0 win vs. Saints: Takeaways**\
+`The Packers have now won five of their past six games. They play the Vikings in Minneapolis on Sunday.`\
+https://nytimes.com/athletic/6017151/2024/12/23/packers-saints-score-result-takeaways-mnf/
+
+**Blue Jackets respond angrily to Patrik Laine's criticism, earn comeback win over Canadiens**\
 `Laine received boos from the fans, hits from the players and no "welcome back" video from the front office.`\
 https://nytimes.com/athletic/6017376/2024/12/23/blue-jackets-laine-comments-response-canadiens/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6017111/2024/12/23/wild-gustavsson-return-blackhawk
 **Full Time: USWNT's 2024 jump scare**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/6017331/2024/12/23/uswnt-retirements-2024-soccer-gifts-full-time/
-
-**Ages and Ages**\
-`Sarah Sinclair breaks with tradition.`\
-https://nytimes.com/2024/12/23/crosswords/daily-puzzle-2024-12-24.html
-
-**Corrections: Dec. 24, 2024**\
-`Corrections that appeared in print on Tuesday, Dec. 24, 2024.`\
-https://nytimes.com/2024/12/23/pageoneplus/corrections-dec-24-2024.html
 
