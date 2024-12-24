@@ -1,3 +1,11 @@
+**A New Way to Shrink Class Sizes: Let Schools Take Charge**\
+`This year, schools were encouraged to come up with their own plans to lower their class sizes and apply to the Department of Education for funding.`\
+https://nytimes.com/2024/12/24/nyregion/nyc-schools-class-sizes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/24/crosswords/spelling-bee-forum.html
+
 **Brighton moving away section at Amex Stadium to give themselves better home advantage**\
 `Brighton &amp; Hove Albion have revealed plans to move the away section at the Amex Stadium to give the team a greater home advantage.`\
 https://nytimes.com/athletic/6003023/2024/12/24/brighton-amex-away-fans-redevelopment/

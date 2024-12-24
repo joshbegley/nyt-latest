@@ -1,3 +1,11 @@
+**A New Way to Shrink Class Sizes: Let Schools Take Charge**\
+`This year, schools were encouraged to come up with their own plans to lower their class sizes and apply to the Department of Education for funding.`\
+https://nytimes.com/2024/12/24/nyregion/nyc-schools-class-sizes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/24/crosswords/spelling-bee-forum.html
+
 **Brighton moving away section at Amex Stadium to give themselves better home advantage**\
 `Brighton &amp; Hove Albion have revealed plans to move the away section at the Amex Stadium to give the team a greater home advantage.`\
 https://nytimes.com/athletic/6003023/2024/12/24/brighton-amex-away-fans-redevelopment/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/24/style/chrismukkah-interfaith-jewish-couples.html
 **Inside Newcastle Q&A: Tonali's future? Will Sean Longstaff be sold? Will the club buy in January?**\
 `The futures of Longstaff, Isak and Trippier, as well as reports linking Tonali with a move away are all discussed in our weekly mailbag`\
 https://nytimes.com/athletic/6014940/2024/12/24/newcastle-mailbag-january-transfers-tonali-isak-longstaff/
-
-**Yohe's 10 observations: Suddenly all is well as Crosby leads rampage over Flyers**\
-`Sidney Crosby and the Penguins had their way with the Flyers in a 7-3 victory at PPG Paints Arena on Monday.`\
-https://nytimes.com/athletic/6016656/2024/12/24/penguins-crosby-rivalry-flyers-rust/
-
-**Leicester City's 2024: Promotion, three managers - and Jamie Vardy's still got it**\
-`They won the Championship, having made hard work of it, but lost a star manager and are finding their Premier League return tough`\
-https://nytimes.com/athletic/6001110/2024/12/24/leicester-citys-2024-promotion-three-managers-and-jamie-vardy-still-banging-in-goals/
 
