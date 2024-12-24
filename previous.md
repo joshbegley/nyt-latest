@@ -1,3 +1,7 @@
+**‘Everything Calls for Salvation’ Is a Beachy Italian Drama**\
+`The seven-episode first season, on Netflix, plays out like a sunnier Italian “Girl, Interrupted.”`\
+https://nytimes.com/2024/12/24/arts/television/everything-calls-for-salvation-netflix.html
+
 **Ex-UConn star receives NCAA title ring in Christmas Eve surprise from mom**\
 `“It was crazy, I had no idea that was coming,” Castle said. “They kind of flipped the switch on me.”`\
 https://nytimes.com/athletic/6018426/2024/12/24/stephon-castle-mom-spurs-uconn-championship-ring/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018310/2024/12/24/netflix-christmas-schedule-nfl-s
 **NFL Week 17 playoff scenarios: Broncos, Chargers, Commanders eye berths**\
 `First-round byes and seeds are still up for grabs and several teams can still earn a spot in the playoffs this weekend.`\
 https://nytimes.com/athletic/6018270/2024/12/24/nfl-week-17-playoff-scenarios-2/
-
-**Blake Lively Turns the Shame Around**\
-`The actress’s lawsuit may prolong a humiliating episode for her. But the only way to end impunity is to speak up.`\
-https://nytimes.com/2024/12/24/opinion/blake-lively-lawsuit.html
 

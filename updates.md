@@ -1,3 +1,7 @@
+**‘Everything Calls for Salvation’ Is a Beachy Italian Drama**\
+`The seven-episode first season, on Netflix, plays out like a sunnier Italian “Girl, Interrupted.”`\
+https://nytimes.com/2024/12/24/arts/television/everything-calls-for-salvation-netflix.html
+
 **Ex-UConn star receives NCAA title ring in Christmas Eve surprise from mom**\
 `“It was crazy, I had no idea that was coming,” Castle said. “They kind of flipped the switch on me.”`\
 https://nytimes.com/athletic/6018426/2024/12/24/stephon-castle-mom-spurs-uconn-championship-ring/
