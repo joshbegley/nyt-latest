@@ -1,3 +1,7 @@
+**Until Saturday: Three big things from the first round**\
+`Welcome to Until Saturday, The Athletic's college football newsletter. `\
+https://nytimes.com/athletic/6017367/2024/12/23/cfp-home-games-quarterfinals-until-saturday/
+
 **Gustavsson returns triumphant as Wild snap losing streak heading into break: 3 takeaways**\
 `The Wild also finally scored without needing Kirill Kaprizov on the ice in a 4-3 win over the Blackhawks.`\
 https://nytimes.com/athletic/6017111/2024/12/23/wild-gustavsson-return-blackhawks-fourth-line/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017146/2024/12/23/joel-embiid-ejected-76ers-spurs-
 **‘Rust’ Prosecutor Withdraws Appeal of Alec Baldwin Case**\
 `The decision ends the criminal prosecution of the actor for the fatal shooting on a film set. During his trial, the judge dismissed the involuntary manslaughter charge against him.`\
 https://nytimes.com/2024/12/23/movies/rust-appeal-alec-baldwin-trial.html
-
-**National Security Committee Forgoes Decision on U.S. Steel Acquisition**\
-`The Committee on Foreign Investment in the United States kicked a decision over the merger with Japan’s Nippon Steel to President Biden, who is expected to block the deal.`\
-https://nytimes.com/2024/12/23/business/us-steel-nippon-biden-cfius.html
 
