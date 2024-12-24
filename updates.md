@@ -1,3 +1,7 @@
+**How Elias Pettersson sparked vital Canucks victory before holiday break: 3 takeaways**\
+`Pettersson scored back-to-back goals to lead the Canucks to a 4-3 victory over the Sharks.`\
+https://nytimes.com/athletic/6017311/2024/12/24/elias-pettersson-canucks-win-sharks-holiday-break-takeaways/
+
 **Christmas? Hanukkah? This Year for Our Family, It’s Chrismukkah.**\
 `Like many members of interfaith families, I get to observe the two holidays on the same day this year.`\
 https://nytimes.com/2024/12/24/style/chrismukkah-interfaith-jewish-couples.html
