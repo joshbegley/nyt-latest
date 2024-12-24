@@ -1,3 +1,11 @@
+**Blake Lively Turns the Shame Around**\
+`The actress’s lawsuit may prolong a humiliating episode for her. But the only way to end impunity is to speak up.`\
+https://nytimes.com/2024/12/24/opinion/blake-lively-lawsuit.html
+
+**Perry Dahl, Who Downed Nine Planes During World War II, Dies at 101**\
+`His courage in battle brought him the Congressional Gold Medal, the Silver Star, the Distinguished Flying Cross and the Legion of Merit.`\
+https://nytimes.com/2024/12/24/us/perry-dahl-dead.html
+
 **Meditations About Finding Faith**\
 `Readers discuss a column by David Brooks. Also: The Gaetz report; qualifications to serve in the government.`\
 https://nytimes.com/2024/12/24/opinion/letters/finding-faith.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6015885/2024/12/24/fernando-mendoza-indiana-qb-tran
 **The 12,000-Year-Old Wolves That Ate Like Dogs**\
 `Animal remains unearthed in Alaska give clues to how wolves were domesticated.`\
 https://nytimes.com/2024/12/24/science/dog-wolf-domestication-alaska.html
-
-**Auburn's red-hot month in the transfer portal continues with Eric Singleton Jr.**\
-`Auburn is looking to flip the script in 2025 after 6-7 and 5-7 finishes in Hugh Freeze's first two seasons at the helm`\
-https://nytimes.com/athletic/6018014/2024/12/24/auburn-football-transfer-portal-eric-singleton/
-
-**How a Consulting Firm and Trump’s I.R.S. Pick Pushed a Problematic Tax Credit**\
-`Billy Long worked with Lifetime Advisors, a company that solicited clients to claim a pandemic-era tax credit that the I.R.S. said became a magnet for fraud.`\
-https://nytimes.com/2024/12/24/business/billy-long-irs-tax-credit.html
 
