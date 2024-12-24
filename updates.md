@@ -1,3 +1,11 @@
+**Indiana lands former Cal quarterback Fernando Mendoza**\
+`Former two-star recruit from Miami is in position to replace Kurtis Rourke as IU's starting quarterback. `\
+https://nytimes.com/athletic/6015885/2024/12/24/fernando-mendoza-indiana-qb-transfer/
+
+**The 12,000-Year-Old Wolves That Ate Like Dogs**\
+`Animal remains unearthed in Alaska give clues to how wolves were domesticated.`\
+https://nytimes.com/2024/12/24/science/dog-wolf-domestication-alaska.html
+
 **Auburn's red-hot month in the transfer portal continues with Eric Singleton Jr.**\
 `Auburn is looking to flip the script in 2025 after 6-7 and 5-7 finishes in Hugh Freeze's first two seasons at the helm`\
 https://nytimes.com/athletic/6018014/2024/12/24/auburn-football-transfer-portal-eric-singleton/
