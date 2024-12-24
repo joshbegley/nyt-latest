@@ -1,3 +1,11 @@
+**Blake Lively Turns the Shame Around**\
+`The actress’s lawsuit may prolong a humiliating episode for her. But the only way to end impunity is to speak up.`\
+https://nytimes.com/2024/12/24/opinion/blake-lively-lawsuit.html
+
+**Perry Dahl, Who Downed Nine Planes During World War II, Dies at 101**\
+`His courage in battle brought him the Congressional Gold Medal, the Silver Star, the Distinguished Flying Cross and the Legion of Merit.`\
+https://nytimes.com/2024/12/24/us/perry-dahl-dead.html
+
 **Meditations About Finding Faith**\
 `Readers discuss a column by David Brooks. Also: The Gaetz report; qualifications to serve in the government.`\
 https://nytimes.com/2024/12/24/opinion/letters/finding-faith.html

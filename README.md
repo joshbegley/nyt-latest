@@ -1,3 +1,7 @@
+**NFL Week 17 playoff scenarios: Broncos, Chargers, Commanders eye berths**\
+`First-round byes and seeds are still up for grabs and several teams can still earn a spot in the playoffs this weekend.`\
+https://nytimes.com/athletic/6018270/2024/12/24/nfl-week-17-playoff-scenarios-2/
+
 **Blake Lively Turns the Shame Around**\
 `The actress’s lawsuit may prolong a humiliating episode for her. But the only way to end impunity is to speak up.`\
 https://nytimes.com/2024/12/24/opinion/blake-lively-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5999402/2024/12/24/week-17-fantasy-football-waiver-
 **Indiana lands former Cal quarterback Fernando Mendoza**\
 `Former two-star recruit from Miami is in position to replace Kurtis Rourke as IU's starting quarterback. `\
 https://nytimes.com/athletic/6015885/2024/12/24/fernando-mendoza-indiana-qb-transfer/
-
-**The 12,000-Year-Old Wolves That Ate Like Dogs**\
-`Animal remains unearthed in Alaska give clues to how wolves were domesticated.`\
-https://nytimes.com/2024/12/24/science/dog-wolf-domestication-alaska.html
 
