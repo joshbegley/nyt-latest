@@ -1,3 +1,7 @@
+**Judge Strikes Down Portions of Arkansas Law That Threatened Librarians**\
+`Republicans passed the law in 2023, joining other conservative states and counties that have sought to restrict the availability of certain books.`\
+https://nytimes.com/2024/12/24/us/arkansas-book-ban-law.html
+
 **How to Track Santa: NORAD’s Radars Are on the Case**\
 `Children and the young at heart can see where in the world Santa is and how many gifts have been delivered.`\
 https://nytimes.com/2024/12/24/us/how-to-track-santa-norad.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/us/trump-america-government-republicans.html
 **Bill Clinton Is Released From Hospital After Having Flu**\
 `The former president was discharged Tuesday morning after being admitted to a hospital on Monday after developing a fever.`\
 https://nytimes.com/2024/12/24/us/bill-clinton-hospital-flu.html
-
-**Elon Musk’s xAI Raises $6 Billion in New Funding**\
-`“A lot of compute is needed,” Mr. Musk said in a post about the financing, in which BlackRock, Fidelity and Sequoia participated.`\
-https://nytimes.com/2024/12/24/technology/elon-musk-xai-funding.html
 

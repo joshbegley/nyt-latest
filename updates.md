@@ -1,3 +1,7 @@
+**Judge Strikes Down Portions of Arkansas Law That Threatened Librarians**\
+`Republicans passed the law in 2023, joining other conservative states and counties that have sought to restrict the availability of certain books.`\
+https://nytimes.com/2024/12/24/us/arkansas-book-ban-law.html
+
 **How to Track Santa: NORAD’s Radars Are on the Case**\
 `Children and the young at heart can see where in the world Santa is and how many gifts have been delivered.`\
 https://nytimes.com/2024/12/24/us/how-to-track-santa-norad.html
