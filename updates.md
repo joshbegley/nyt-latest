@@ -1,3 +1,15 @@
+**The Connections Companion No. 563**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 25, 2024.`\
+https://nytimes.com/2024/12/24/crosswords/connections-companion-563.html
+
+**How a Skeptical Critic Came to Love Hallmark Christmas Movies**\
+`Hallmark Christmas movies are corny, predictable and just what our critic needed to embrace the holiday spirit.`\
+https://nytimes.com/2024/12/24/podcasts/the-daily/how-a-skeptical-critic-came-to-love-hallmark-christmas-movies.html
+
+**Wordle Review No. 1,285**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 25, 2024.`\
+https://nytimes.com/2024/12/24/crosswords/wordle-review-1285.html
+
 **The Athletic FC: Inside INEOS' first year at United, when the Braves nearly bought Villa**\
 `Today in TAFC: Inside the first year of INEOS at Manchester United, when the Braves nearly bought Villa and some quiz teasers`\
 https://nytimes.com/athletic/6001233/2024/12/24/ineos-united-braves-villa/
