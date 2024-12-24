@@ -1,3 +1,11 @@
+**Why ‘A Christmas Carol’ Endures**\
+`More than 180 years after its publication, “A Christmas Carol” by Charles Dickens is more relevant than ever.`\
+https://nytimes.com/2024/12/24/opinion/why-a-christmas-carol-endures.html
+
+**NFL odds, picks for Christmas Day: Netflix, Beyoncé and one massive bet**\
+`The NFL is teaming up with Netflix for a Christmas Day doubleheader. The Chiefs and Ravens are favored in their respective matchups.`\
+https://nytimes.com/athletic/6015914/2024/12/24/nfl-odds-picks-how-to-watch-christmas-day-games/
+
 **Despite Playoff loss, SMU proved it belongs in the ACC and has a bright future**\
 `With 22 wins over two years and a CFP appearance, SMU redefined the program and changed its identity for future generations.`\
 https://nytimes.com/athletic/6017992/2024/12/24/smu-football-acc-playoff/
