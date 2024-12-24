@@ -1,3 +1,7 @@
+**Brighton coach Calderon in advanced talks to take over at Bristol Rovers**\
+`Brighton &amp; Hove Albion Under 18&#8217;s coach Inigo Calderon is in advanced talks to become the new manager of League One side Bristol Rovers.`\
+https://nytimes.com/athletic/6017730/2024/12/24/inigo-calderon-bristol-rovers-brighton/
+
 **Spurs 'need to reinforce' in the January window - Postecoglou**\
 `Ange Postecoglou has admitted that Tottenham Hotspur “need to reinforce” their squad in the January transfer window.`\
 https://nytimes.com/athletic/6017734/2024/12/24/tottenham-janaury-window-postecoglou/

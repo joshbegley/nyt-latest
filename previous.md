@@ -1,3 +1,7 @@
+**Brighton coach Calderon in advanced talks to take over at Bristol Rovers**\
+`Brighton &amp; Hove Albion Under 18&#8217;s coach Inigo Calderon is in advanced talks to become the new manager of League One side Bristol Rovers.`\
+https://nytimes.com/athletic/6017730/2024/12/24/inigo-calderon-bristol-rovers-brighton/
+
 **Spurs 'need to reinforce' in the January window - Postecoglou**\
 `Ange Postecoglou has admitted that Tottenham Hotspur “need to reinforce” their squad in the January transfer window.`\
 https://nytimes.com/athletic/6017734/2024/12/24/tottenham-janaury-window-postecoglou/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/us/politics/trump-iran-nuclear-deal-israel.html
 **Why It Matters That Jesus Came From a Dysfunctional Family**\
 `He identified with the least and the lowliest, not just those in his lineage but those in his life.`\
 https://nytimes.com/2024/12/24/opinion/jesus-christmas-dysfunctional-families.html
-
-**Will Troubled Police Departments Escape Federal Accountability?**\
-`As time runs out for the Biden administration, cities like Minneapolis — where an investigation found abuse and racial discrimination — may avoid oversight.`\
-https://nytimes.com/2024/12/24/us/biden-police-departments-federal-accountability.html
 
