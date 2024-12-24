@@ -1,3 +1,11 @@
+**‘Rust’ Prosecutor Withdraws Appeal of Alec Baldwin Case**\
+`The decision ends the criminal prosecution of the actor for the fatal shooting on a film set. During his trial, the judge dismissed the involuntary manslaughter charge against him.`\
+https://nytimes.com/2024/12/23/movies/rust-appeal-alec-baldwin-trial.html
+
+**National Security Committee Forgoes Decision on U.S. Steel Acquisition**\
+`The Committee on Foreign Investment in the United States kicked a decision over the merger with Japan’s Nippon Steel to President Biden, who is expected to block the deal.`\
+https://nytimes.com/2024/12/23/business/us-steel-nippon-biden-cfius.html
+
 **Mets rotation gains stability, Red Sox bet on Buehler and Rangers shuffle corners: Law**\
 `The Mets improved their rotation, while the Red Sox rolled the dice on a potential bounce-back. The Rangers added a hitter but lost another.`\
 https://nytimes.com/athletic/6017088/2024/12/23/rangers-red-sox-mets-manaea-buehler-pederson/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/23/business/irs-stimulus-check-payments.html
 **Money for 9/11 Health Care Was Dropped from Year-End Spending Bill**\
 `A plan to ensure long-term funding to address health needs stemming from the terrorist attacks fell to the wayside after President-elect Donald Trump and Elon Musk objected to a bipartisan budget deal.`\
 https://nytimes.com/2024/12/23/us/politics/sept-11-health-care-spending-bill.html
-
-**An Architect of Trump’s Tough Latin America Policies Is Named Envoy**\
-`A longtime proponent of harsh sanctions, Mauricio Claver-Carone was forced out of his job at the Inter-American Development Bank in 2022.`\
-https://nytimes.com/2024/12/23/us/politics/trump-latin-america-envoy.html
-
-**Eagles QB Hurts enters concussion protocol, no update on Pickett**\
-`Philadelphia is a win away from clinching the NFC East and will look to do so in Week 17 at home against the Dallas Cowboys. `\
-https://nytimes.com/athletic/6016611/2024/12/23/eagles-nick-sirianni-jalen-hurts-concussion-kenny-pickett/
 
