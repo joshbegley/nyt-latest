@@ -2,7 +2,7 @@
 `Rob Pelinka said he wanted to wait until Game 30 before evaluating this team. With No. 30 up next, the Lakers know "we gotta be stronger."`\
 https://nytimes.com/athletic/6017342/2024/12/24/lakers-loss-pistons-lebron-physicality/
 
-**American Airlines Grounds All U.S. Flights Over Technical Issues**\
+**American Airlines Grounds All U.S. Flights Over a Technical Issue**\
 `The airline grounded all flights on Tuesday morning during the busy holiday travel period.`\
 https://nytimes.com/2024/12/24/us/american-air-flights-grounded.html
 
