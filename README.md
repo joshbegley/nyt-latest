@@ -1,3 +1,7 @@
+**Examining Ravens' chances of winning the AFC North with 2 games remaining**\
+`Taking a look at the different scenarios that could lead to Baltimore winning its division for a second straight year. `\
+https://nytimes.com/athletic/6015799/2024/12/24/ravens-afc-north-title-playoff-scenarios/
+
 **Bengals' young defense's progress is significant vs. Broncos on Saturday and beyond**\
 `Players stepping up in a 3-game winning streak have helped keep playoff hopes alive while also making strides for the future.`\
 https://nytimes.com/athletic/6017028/2024/12/24/bengals-defense-progress-broncos/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/us/biden-police-departments-federal-accountabilit
 **Marv From ‘Home Alone’ Has a New Calling Card: Tangerines and Sculpture**\
 `Daniel Stern has built a social media following by documenting daily life on his family’s farm. “What a crazy way to walk through life,” he said, “to be a little part of people’s lives.”`\
 https://nytimes.com/2024/12/24/arts/daniel-stern-home-alone-tiktok.html
-
-**Notre Dame-Georgia Sugar Bowl analysis: Who's under more pressure?**\
-`The Bulldogs have dominated the all-time series against the Irish, even though the past two on-campus matchups came down to the very end.`\
-https://nytimes.com/athletic/6016671/2024/12/24/notre-dame-georgia-sugar-bowl-preview-players-college-football-playoff/
 
