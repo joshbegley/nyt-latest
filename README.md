@@ -1,3 +1,15 @@
+**The Connections Companion No. 563**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 25, 2024.`\
+https://nytimes.com/2024/12/24/crosswords/connections-companion-563.html
+
+**How a Skeptical Critic Came to Love Hallmark Christmas Movies**\
+`Hallmark Christmas movies are corny, predictable and just what our critic needed to embrace the holiday spirit.`\
+https://nytimes.com/2024/12/24/podcasts/the-daily/how-a-skeptical-critic-came-to-love-hallmark-christmas-movies.html
+
+**Wordle Review No. 1,285**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 25, 2024.`\
+https://nytimes.com/2024/12/24/crosswords/wordle-review-1285.html
+
 **The Athletic FC: Inside INEOS' first year at United, when the Braves nearly bought Villa**\
 `Today in TAFC: Inside the first year of INEOS at Manchester United, when the Braves nearly bought Villa and some quiz teasers`\
 https://nytimes.com/athletic/6001233/2024/12/24/ineos-united-braves-villa/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6015814/2024/12/24/nfl-draft-patriots-no-2-pick/
 **What a Photographer Saw in New York’s Migrant Shelters**\
 `For months, a photographer and a reporter documented what daily life was like for those living in hotels, tent facilities and former offices across the city.`\
 https://nytimes.com/2024/12/24/nyregion/what-a-photographer-saw-in-new-yorks-migrant-shelters.html
-
-**As Rome Prepares for a Tourist Surge, Residents Fear Losing the City’s Soul**\
-`The Catholic Jubilee in 2025 is expected to draw 32 million visitors. Officials are proud of the city’s accompanying makeover, but residents lament soaring housing costs and changes in Rome’s character.`\
-https://nytimes.com/2024/12/24/world/europe/rome-vatican-jubilee-tourism.html
-
-**Elon Musk Is Creating His Own Texas Town. Hundreds Already Live There.**\
-`Employees of SpaceX have filed a formal petition to create the city of Starbase. Its first mayor would be a security manager for the company.`\
-https://nytimes.com/2024/12/24/us/starbase-texas-city-elon-musk-spacex.html
-
-**Trump Will Confront a More Vulnerable but Determined Iran**\
-`“Coercive diplomacy” could leave Tehran to choose either a negotiated disassembly of its nuclear capability, or a forced one.`\
-https://nytimes.com/2024/12/24/us/politics/trump-iran-nuclear-deal-israel.html
 
