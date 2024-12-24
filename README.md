@@ -1,3 +1,7 @@
+**Embiid ejected for arguing call after Wembanyama draws charge**\
+`After referee Jennifer Schroeder issued the ejection, Embiid became so angry that he had to be restrained.`\
+https://nytimes.com/athletic/6017146/2024/12/23/joel-embiid-ejected-76ers-spurs-victor-wembanyama/
+
 **‘Rust’ Prosecutor Withdraws Appeal of Alec Baldwin Case**\
 `The decision ends the criminal prosecution of the actor for the fatal shooting on a film set. During his trial, the judge dismissed the involuntary manslaughter charge against him.`\
 https://nytimes.com/2024/12/23/movies/rust-appeal-alec-baldwin-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/us/politics/bill-clinton-hospital-fever.html
 **I.R.S. to Send Out Unclaimed Tax Credit to One Million Taxpayers**\
 `Some Americans who qualified for a pandemic-era tax credit but did not claim it will get up to $1,400 in their account within the next month.`\
 https://nytimes.com/2024/12/23/business/irs-stimulus-check-payments.html
-
-**Money for 9/11 Health Care Was Dropped from Year-End Spending Bill**\
-`A plan to ensure long-term funding to address health needs stemming from the terrorist attacks fell to the wayside after President-elect Donald Trump and Elon Musk objected to a bipartisan budget deal.`\
-https://nytimes.com/2024/12/23/us/politics/sept-11-health-care-spending-bill.html
 
