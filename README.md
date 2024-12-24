@@ -1,3 +1,7 @@
+**Israel Intercepts Houthi Missile and Threatens Militant Group’s Leaders**\
+`Israel said it had shot down a missile fired by Houthi militants in Yemen, hours after Israel’s defense minister threatened to “behead” the group’s leadership.`\
+https://nytimes.com/2024/12/24/world/middleeast/israel-houthis-yemen-missile.html
+
 **NFL Draft expert: 5 players who could make sense for Cowboys in the first round**\
 `If the season was over now, the Cowboys would own the No. 15 pick in Round 1. Dane Brugler looks at five players at five positions for them.`\
 https://nytimes.com/athletic/6017613/2024/12/24/cowboys-nfl-draft-first-round-options-ashton-jeanty/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017635/2024/12/24/packers-clinch-playoff-spot-sain
 **The Connections Companion No. 563**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Dec. 25, 2024.`\
 https://nytimes.com/2024/12/24/crosswords/connections-companion-563.html
-
-**How a Skeptical Critic Came to Love Hallmark Christmas Movies**\
-`Hallmark Christmas movies are corny, predictable and just what our critic needed to embrace the holiday spirit.`\
-https://nytimes.com/2024/12/24/podcasts/the-daily/how-a-skeptical-critic-came-to-love-hallmark-christmas-movies.html
 
