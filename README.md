@@ -1,3 +1,7 @@
+**How a Consulting Firm and Trump’s I.R.S. Pick Pushed a Problematic Tax Credit**\
+`Billy Long worked with Lifetime Advisors, a company that solicited clients to claim a pandemic-era tax credit that the I.R.S. said became a magnet for fraud.`\
+https://nytimes.com/2024/12/24/business/billy-long-irs-tax-credit.html
+
 **NBA Power Rankings: Finding the right last-minute gift for all 30 teams**\
 `What do you get a team like the Cavaliers or Thunder that has everything? How about some Windex?`\
 https://nytimes.com/athletic/6017889/2024/12/24/nba-power-rankings-cavaliers-celtics-spurs-knicks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/style/tiny-modern-love-stories-my-mother-upstaged
 **Ex-City coach Barry-Murphy to join Van Nistelrooy's Leicester staff**\
 `Ruud Van Nistelrooy has confirmed Brian Barry-Murphy will be coming in as his assistant coach at Leicester City.`\
 https://nytimes.com/athletic/6017925/2024/12/24/brian-barry-murphy-leicester-city/
-
-**Palace's Wharton out for up to four weeks with groin injury**\
-`Crystal Palace midfielder Adam Wharton is expected to be out for up to four weeks after a setback in his return from a groin injury.`\
-https://nytimes.com/athletic/6017994/2024/12/24/adam-wharton-injury-update-crystal-palace/
 
