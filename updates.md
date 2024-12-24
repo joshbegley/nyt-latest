@@ -1,3 +1,7 @@
+**Brighton moving away section at Amex Stadium to give themselves better home advantage**\
+`Brighton &amp; Hove Albion have revealed plans to move the away section at the Amex Stadium to give the team a greater home advantage.`\
+https://nytimes.com/athletic/6003023/2024/12/24/brighton-amex-away-fans-redevelopment/
+
 **'I don't digest food properly now' — the all-consuming pressure of managing a football club**\
 `Football, essentially, actively discourages managers to switch off. Most Premier League managers struggled to describe how they relax`\
 https://nytimes.com/athletic/6016936/2024/12/24/manager-pressure-guardiola-postecoglou/
