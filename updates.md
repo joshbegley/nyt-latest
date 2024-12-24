@@ -1,3 +1,11 @@
+**Russia Sentences U.S. Citizen to 15 Years for Espionage**\
+`Eugene Spector was already serving a sentence for a bribery conviction when he was charged with spying, for which a court ordered him to serve an additional 13 years.`\
+https://nytimes.com/2024/12/24/world/europe/russia-espionage-eugene-spector.html
+
+**Quiz: Do You Speak 2024?**\
+`A varied assortment of words entered (or re-entered) the lexicon this year. How well do you know them?`\
+https://nytimes.com/2024/12/24/style/quiz-2024-year-popular-words.html
+
 **Why ‘A Christmas Carol’ Endures**\
 `More than 180 years after its publication, “A Christmas Carol” by Charles Dickens is more relevant than ever.`\
 https://nytimes.com/2024/12/24/opinion/why-a-christmas-carol-endures.html
