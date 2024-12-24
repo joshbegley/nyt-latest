@@ -1,8 +1,12 @@
+**Blue Jackets respond angrily to Patrik Laine's criticism, earn comeback win over Montreal**\
+`Laine received boos from the fans, hits from the players and no "welcome back" video from the front office.`\
+https://nytimes.com/athletic/6017376/2024/12/23/blue-jackets-laine-comments-response-canadiens/
+
 **Week 16 NFL playoff picture: Lions, Chiefs closing in on top seeds; Packers clinch playoff spot**\
 `The top seed in the NFC could come down to an epic Week 18 showdown between two NFC North rivals. `\
 https://nytimes.com/athletic/6006774/2024/12/23/week-16-nfl-playoff-picture-chiefs-lions-top-seeds-update/
 
-**Lindholm has finally arrived in Boston: ‘We were expecting that from Lindy’**\
+**Elias Lindholm has finally arrived in Boston: ‘We were expecting that from Lindy’**\
 `Lindholm scored against the Capitals for three goals and two assists in the last five games, his best five-game stretch this season.`\
 https://nytimes.com/athletic/6017396/2024/12/23/bruins-elias-lindholm-emergence-capitals/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/crosswords/daily-puzzle-2024-12-24.html
 **Corrections: Dec. 24, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 24, 2024.`\
 https://nytimes.com/2024/12/23/pageoneplus/corrections-dec-24-2024.html
-
-**Fragments of Santa Cruz Wharf Wash Ashore After Partial Collapse**\
-`Broken wood, debris and a building floated in the ocean after the end of the wharf collapsed.`\
-https://nytimes.com/video/us/100000009894637/santa-cruz-wharf-collapse.html
 
