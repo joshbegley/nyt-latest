@@ -1,3 +1,7 @@
+**This Year’s College Drama on TikTok May Be the Last**\
+`But for now, the app reveals a series of memorable family portraits.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/tiktok-early-decision-college
+
 **NFL Week 17 fantasy football, betting cheat sheet: Pickens could play**\
 `Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
 https://nytimes.com/athletic/6015597/2024/12/24/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017868/2024/12/24/nba-christmas-lebron-james-steph
 **Connor's defensive impact, Fleury's unlikely rise and He's sensational year: 3 Jets storylines**\
 `With the holiday break upon us, let's dig into three of the more overlooked stories of the Jets' season so far.`\
 https://nytimes.com/athletic/6011622/2024/12/24/winnipeg-jets-connor-defence-injuries-fleury-kevin-he/
-
-**Justin Baldoni’s Ex-Publicist Sues Over Alleged Smear Campaign**\
-`An ousted P.R. executive alleges a conspiracy to harm her and steal her clients, in connection with an effort to tarnish Blake Lively.`\
-https://nytimes.com/2024/12/24/business/justin-baldoni-publicist-blake-lively-lawsuit.html
 

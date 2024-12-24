@@ -1,3 +1,7 @@
+**This Year’s College Drama on TikTok May Be the Last**\
+`But for now, the app reveals a series of memorable family portraits.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/tiktok-early-decision-college
+
 **NFL Week 17 fantasy football, betting cheat sheet: Pickens could play**\
 `Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
 https://nytimes.com/athletic/6015597/2024/12/24/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
