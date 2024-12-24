@@ -1,3 +1,11 @@
+**Help wanted: Another loss to Pistons underscores Lakers' urgent perimeter needs**\
+`Rob Pelinka said he wanted to wait until Game 30 before evaluating this team. With No. 30 up next, the Lakers know "we gotta be stronger."`\
+https://nytimes.com/athletic/6017342/2024/12/24/lakers-loss-pistons-lebron-physicality/
+
+**American Airlines Grounds All U.S. Flights Over Technical Issues**\
+`The airline grounded all flights on Tuesday morning during the busy holiday travel period.`\
+https://nytimes.com/2024/12/24/us/american-air-flights-grounded.html
+
 **Cade Cunningham impresses LeBron James in Pistons' win over Lakers: 'They got a great one'**\
 `Detroit is now 2-0 on this road trip and will go to Sacramento on Thursday with a chance to match its entire win total from last season.`\
 https://nytimes.com/athletic/6017655/2024/12/24/pistons-lakers-cade-cunningham-lebron-james-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6017613/2024/12/24/cowboys-nfl-draft-first-round-op
 **Hiring Ben Johnson seems like the obvious move, but can the Bears actually land him?**\
 `The Bears have never made the obvious choice for head coach under chairman George McCaskey. Can they get it right this time?`\
 https://nytimes.com/athletic/6016502/2024/12/24/bears-coaching-search-ben-johnson/
-
-**How Donovan Mitchell found 'sense of peace' with Cavs after years of rumors and drama**\
-`Donovan Mitchell sees parallels with this Cavs team and the last title contender he was on: "You have to appreciate this."`\
-https://nytimes.com/athletic/6016065/2024/12/24/donovan-mitchell-cavs-jazz-nba-trade-rumors/
-
-**Marquise Brown and the Chiefs excited about what's ahead after his productive debut**\
-`Brown had an impactful Chiefs debut against the Texans with five receptions for 45 yards on a limited snap count.`\
-https://nytimes.com/athletic/6016754/2024/12/24/chiefs-marquise-brown-productive-debut/
 
