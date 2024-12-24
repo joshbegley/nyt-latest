@@ -1,3 +1,7 @@
+**Hochul Orders Firing of 14 Prison Workers After Fatal Attack on Inmate**\
+`Video of the deadly assault on Robert L. Brooks was “horrific,” “disturbing” and “devastating,” a lawyer for his family said after they watched it.`\
+https://nytimes.com/2024/12/23/nyregion/ny-prison-inmate-killed-hochul.html
+
 **The Men and Women Swirling Around Elon Musk**\
 `A look at the people who influence the world’s richest man, and those who stand to gain from their association with him now.`\
 https://nytimes.com/interactive/2024/12/23/business/elon-musk-trump-family-friends-backers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/23/us/politics/florida-matt-gaetz-panhandle-district
 **Georgia QB Carson Beck has season-ending surgery, Gunner Stockton in for CFP run**\
 `Beck had surgery on Monday after suffering an injury to his UCL during the SEC championship.`\
 https://nytimes.com/athletic/6016952/2024/12/23/carson-beck-georgia-quarterback-injury-surgery/
-
-**Bill Clinton Is Hospitalized After Developing a Fever**\
-`A Washington hospital admitted Mr. Clinton for testing and observation, and an aide said that the former president was “in good spirits.”`\
-https://nytimes.com/2024/12/23/us/politics/bill-clinton-hospital-fever.html
 

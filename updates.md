@@ -1,3 +1,7 @@
+**Hochul Orders Firing of 14 Prison Workers After Fatal Attack on Inmate**\
+`Video of the deadly assault on Robert L. Brooks was “horrific,” “disturbing” and “devastating,” a lawyer for his family said after they watched it.`\
+https://nytimes.com/2024/12/23/nyregion/ny-prison-inmate-killed-hochul.html
+
 **The Men and Women Swirling Around Elon Musk**\
 `A look at the people who influence the world’s richest man, and those who stand to gain from their association with him now.`\
 https://nytimes.com/interactive/2024/12/23/business/elon-musk-trump-family-friends-backers.html
