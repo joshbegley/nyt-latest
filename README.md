@@ -1,40 +1,40 @@
-**Quote of the Day: Gangs’ Tactical Looting of Aid Deepens Desperation for Gazans**\
-`Quotation of the Day for Tuesday, December 24, 2024`\
-https://nytimes.com/2024/12/23/pageoneplus/quote-of-the-day-gangs-tactical-looting-of-aid-deepens-desperation-for-gazans.html
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/12/24/briefing/gaetz-netanyahu-putin.html
 
-**Packers clinch playoff berth with 34-0 win vs. Saints: Takeaways**\
-`The Packers have now won five of their past six games. They play the Vikings in Minneapolis on Sunday.`\
-https://nytimes.com/athletic/6017151/2024/12/23/packers-saints-score-result-takeaways-mnf/
+**The Fastest Spacecraft Ever Heads for Its Close-Up With the Sun**\
+`The Parker Solar Probe is attempting the closest ever pass of the sun’s surface on Christmas Eve.`\
+https://nytimes.com/2024/12/24/science/nasa-parker-solar-probe-sun.html
 
-**Blue Jackets respond angrily to Patrik Laine's criticism, earn comeback win over Canadiens**\
-`Laine received boos from the fans, hits from the players and no "welcome back" video from the front office.`\
-https://nytimes.com/athletic/6017376/2024/12/23/blue-jackets-laine-comments-response-canadiens/
+**He Inherited a Seat in Britain’s House of Lords. How Will It Feel to Lose It?**\
+`The U.K. government has pledged to remove hereditary peers from Parliament in 2025. For Lord Cromwell and 87 others, it is a wistful departure.`\
+https://nytimes.com/2024/12/24/world/europe/uk-parliament-hereditary-peers-lords.html
 
-**Week 16 NFL playoff picture: Lions, Chiefs closing in on top seeds; Packers clinch playoff spot**\
-`The top seed in the NFC could come down to an epic Week 18 showdown between two NFC North rivals. `\
-https://nytimes.com/athletic/6006774/2024/12/23/week-16-nfl-playoff-picture-chiefs-lions-top-seeds-update/
+**The story behind the Nuno revolution at Nottingham Forest**\
+`How Nuno has used his experiences at Wolves, Spurs and elsewhere – good and bad – to change perceptions of what Forest can achieve.`\
+https://nytimes.com/athletic/6004057/2024/12/24/the-story-behind-the-nuno-ification-of-nottingham-forest/
 
-**Elias Lindholm has finally arrived in Boston: ‘We were expecting that from Lindy’**\
-`Lindholm scored against the Capitals for three goals and two assists in the last five games, his best five-game stretch this season.`\
-https://nytimes.com/athletic/6017396/2024/12/23/bruins-elias-lindholm-emergence-capitals/
+**Sorting Fact From Fiction as Fear Engulfs Bangladesh’s Hindus**\
+`Reports of vandalism and mob violence are real, but wilder accusations emanating from India muddy the picture.`\
+https://nytimes.com/2024/12/24/world/asia/bangladesh-hindus.html
 
-**Poor special teams, worse goaltending: Flyers limp into break with a host of issues**\
-`Philadelphia briefly fought back to a one-goal deficit, but eventually fell in a discouraging 7-3 loss to rival Pittsburgh.`\
-https://nytimes.com/athletic/6017364/2024/12/23/flyers-issues-special-teams-goaltending-penguins/
+**These Students Ousted a Government. Now They’re Rebuilding a Democracy.**\
+`It is a daunting task for Bangladesh. But an unusual mix of young people and seasoned technocrats are determined to make the most of their opening.`\
+https://nytimes.com/2024/12/24/world/asia/bangladesh-students.html
 
-**Baristas at More Than 300 Starbucks Stores Will Strike Tuesday, Union Says**\
-`The walkout began Friday at stores in the Los Angeles, Seattle and Chicago areas and will end on Tuesday.`\
-https://nytimes.com/2024/12/23/business/starbucks-strike.html
+**Under Cambodia’s New Leader, Room for Dissent Narrows**\
+`Hun Manet, who took over as prime minister last year, has followed in the steps of his father, who ran Cambodia for nearly 40 years.`\
+https://nytimes.com/2024/12/24/world/asia/cambodia-hun-manet-dissent.html
 
-**Until Saturday: Three big things from the first round**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/6017367/2024/12/23/cfp-home-games-quarterfinals-until-saturday/
+**Is a Putin Ally in Eastern Europe Making a Cautious Overture to the West?**\
+`President Aleksandr G. Lukashenko of Belarus keeps arresting political opponents, but analysts wonder if a string of unusual pardons is a bid to get sanctions eased.`\
+https://nytimes.com/2024/12/24/world/europe/belarus-lukashenko-putin-west-sanctions.html
 
-**Gustavsson returns triumphant as Wild snap losing streak heading into break: 3 takeaways**\
-`The Wild also finally scored without needing Kirill Kaprizov on the ice in a 4-3 win over the Blackhawks.`\
-https://nytimes.com/athletic/6017111/2024/12/23/wild-gustavsson-return-blackhawks-fourth-line/
+**Week 17 fantasy football waiver wire: Streamers, Hollywood Brown, Michael Carter and more**\
+`It's never to late to shore up your roster on the waiver wire, even during Week 17 fantasy football championship week.`\
+https://nytimes.com/athletic/5999402/2024/12/24/week-17-fantasy-football-waiver-wire-streamers-hollywood-brown-michael-carter/
 
-**Full Time: USWNT's 2024 jump scare**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/6017331/2024/12/23/uswnt-retirements-2024-soccer-gifts-full-time/
+**Why Mergers of Carmakers Like Honda and Nissan Often Falter**\
+`The Japanese companies are considering joining forces to survive in a rapidly changing auto industry, but auto history is filled with troubled and failed marriages.`\
+https://nytimes.com/2024/12/24/business/honda-nissan-auto-merger-deals.html
 
