@@ -1,3 +1,7 @@
+**The Athletic FC: Inside INEOS' first year at United, when the Braves nearly bought Villa**\
+`Today in TAFC: Inside the first year of INEOS at Manchester United, when the Braves nearly bought Villa and some quiz teasers`\
+https://nytimes.com/athletic/6001233/2024/12/24/ineos-united-braves-villa/
+
 **Brighton coach Calderon in advanced talks to take over at Bristol Rovers**\
 `Brighton &amp; Hove Albion Under 18&#8217;s coach Inigo Calderon is in advanced talks to become the new manager of League One side Bristol Rovers.`\
 https://nytimes.com/athletic/6017730/2024/12/24/inigo-calderon-bristol-rovers-brighton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/us/starbase-texas-city-elon-musk-spacex.html
 **Trump Will Confront a More Vulnerable but Determined Iran**\
 `“Coercive diplomacy” could leave Tehran to choose either a negotiated disassembly of its nuclear capability, or a forced one.`\
 https://nytimes.com/2024/12/24/us/politics/trump-iran-nuclear-deal-israel.html
-
-**Why It Matters That Jesus Came From a Dysfunctional Family**\
-`He identified with the least and the lowliest, not just those in his lineage but those in his life.`\
-https://nytimes.com/2024/12/24/opinion/jesus-christmas-dysfunctional-families.html
 
