@@ -1,3 +1,7 @@
+**Meditations About Finding Faith**\
+`Readers discuss a column by David Brooks. Also: The Gaetz report; qualifications to serve in the government.`\
+https://nytimes.com/2024/12/24/opinion/letters/finding-faith.html
+
 **Chicken and Rice With Ginger; Lemony Shrimp and Bean Stew**\
 `And three more one-pot dinners, because you’ve got better things to do than the dishes.`\
 https://nytimes.com/2024/12/24/dining/chicken-and-rice-with-ginger-lemony-shrimp-and-bean-stew.html

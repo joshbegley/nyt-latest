@@ -1,3 +1,7 @@
+**Meditations About Finding Faith**\
+`Readers discuss a column by David Brooks. Also: The Gaetz report; qualifications to serve in the government.`\
+https://nytimes.com/2024/12/24/opinion/letters/finding-faith.html
+
 **Chicken and Rice With Ginger; Lemony Shrimp and Bean Stew**\
 `And three more one-pot dinners, because you’ve got better things to do than the dishes.`\
 https://nytimes.com/2024/12/24/dining/chicken-and-rice-with-ginger-lemony-shrimp-and-bean-stew.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018014/2024/12/24/auburn-football-transfer-portal-
 **How a Consulting Firm and Trump’s I.R.S. Pick Pushed a Problematic Tax Credit**\
 `Billy Long worked with Lifetime Advisors, a company that solicited clients to claim a pandemic-era tax credit that the I.R.S. said became a magnet for fraud.`\
 https://nytimes.com/2024/12/24/business/billy-long-irs-tax-credit.html
-
-**NBA Power Rankings: Finding the right last-minute gift for all 30 teams**\
-`What do you get a team like the Cavaliers or Thunder that has everything? How about some Windex?`\
-https://nytimes.com/athletic/6017889/2024/12/24/nba-power-rankings-cavaliers-celtics-spurs-knicks/
 
