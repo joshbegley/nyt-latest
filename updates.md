@@ -1,3 +1,11 @@
+**Poor special teams, worse goaltending: Flyers limp into break with a host of issues**\
+`The Flyers briefly fought back to a one-goal deficit, but eventually fell in a discouraging 7-3 loss to rival Pittsburgh.`\
+https://nytimes.com/athletic/6017364/2024/12/23/flyers-issues-special-teams-goaltending-penguins/
+
+**Baristas at More Than 300 Starbucks Stores Will Strike Tuesday, Union Says**\
+`The walkout began Friday at stores in the Los Angeles, Seattle and Chicago areas and will end on Tuesday.`\
+https://nytimes.com/2024/12/23/business/starbucks-strike.html
+
 **Until Saturday: Three big things from the first round**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/6017367/2024/12/23/cfp-home-games-quarterfinals-until-saturday/

@@ -1,3 +1,11 @@
+**Poor special teams, worse goaltending: Flyers limp into break with a host of issues**\
+`The Flyers briefly fought back to a one-goal deficit, but eventually fell in a discouraging 7-3 loss to rival Pittsburgh.`\
+https://nytimes.com/athletic/6017364/2024/12/23/flyers-issues-special-teams-goaltending-penguins/
+
+**Baristas at More Than 300 Starbucks Stores Will Strike Tuesday, Union Says**\
+`The walkout began Friday at stores in the Los Angeles, Seattle and Chicago areas and will end on Tuesday.`\
+https://nytimes.com/2024/12/23/business/starbucks-strike.html
+
 **Until Saturday: Three big things from the first round**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/6017367/2024/12/23/cfp-home-games-quarterfinals-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/23/nyregion/ny-prison-inmate-killed-hochul.html
 **The Men and Women Swirling Around Elon Musk**\
 `A look at the people who influence the world’s richest man, and those who stand to gain from their association with him now.`\
 https://nytimes.com/interactive/2024/12/23/business/elon-musk-trump-family-friends-backers.html
-
-**Embiid ejected for arguing call after Wembanyama draws charge**\
-`After referee Jennifer Schroeder issued the ejection, Embiid became so angry that he had to be restrained.`\
-https://nytimes.com/athletic/6017146/2024/12/23/joel-embiid-ejected-76ers-spurs-victor-wembanyama/
-
-**‘Rust’ Prosecutor Withdraws Appeal of Alec Baldwin Case**\
-`The decision ends the criminal prosecution of the actor for the fatal shooting on a film set. During his trial, the judge dismissed the involuntary manslaughter charge against him.`\
-https://nytimes.com/2024/12/23/movies/rust-appeal-alec-baldwin-trial.html
 
