@@ -1,3 +1,11 @@
+**Russia Sentences U.S. Citizen to 15 Years for Espionage**\
+`Eugene Spector was already serving a sentence for a bribery conviction when he was charged with spying, for which a court ordered him to serve an additional 13 years.`\
+https://nytimes.com/2024/12/24/world/europe/russia-espionage-eugene-spector.html
+
+**Quiz: Do You Speak 2024?**\
+`A varied assortment of words entered (or re-entered) the lexicon this year. How well do you know them?`\
+https://nytimes.com/2024/12/24/style/quiz-2024-year-popular-words.html
+
 **Why ‘A Christmas Carol’ Endures**\
 `More than 180 years after its publication, “A Christmas Carol” by Charles Dickens is more relevant than ever.`\
 https://nytimes.com/2024/12/24/opinion/why-a-christmas-carol-endures.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6017994/2024/12/24/adam-wharton-injury-update-cryst
 **Bucks' turnaround: Not only winning games now, but doing so 'with a cushion' and having fun**\
 `After an 11-point win over the Wizards on Saturday, the Bucks put together a 21-point win over the Bulls on Monday. Their stars missed both.`\
 https://nytimes.com/athletic/6017486/2024/12/24/bucks-bulls-aj-green-nba/
-
-**Rashford has 'big responsibility' to help Man Utd, says Amorim**\
-`Ruben Amorim has reminded Marcus Rashford that he has a &#8220;big responsibility&#8221; to help turn Manchester United&#8217;s fortunes around amid his continued omission from matchday squads.`\
-https://nytimes.com/athletic/6015758/2024/12/24/manchester-united-marcus-rashford-amorim/
-
-**Pro-Palestinian Activists Removed From Michigan’s Student Government**\
-`The president and vice president of the University of Michigan’s student assembly were impeached after they demanded divestment and stopped funding campus activities.`\
-https://nytimes.com/2024/12/24/us/michigan-palestinian-activists-students.html
 
