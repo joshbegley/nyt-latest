@@ -1,3 +1,7 @@
+**Deputies Missed Signs Before a Detainee Hanged Himself**\
+`Reports and video footage newly released in Riverside County, Calif., indicate that a man was able to cover his cell window and camera without intervention.`\
+https://nytimes.com/2024/12/23/us/ca-jail-death-riverside-county.html
+
 **New Anti-Money Laundering Measures Pass a Legal Roadblock**\
 `Millions of companies may have to report information about their owners to the Treasury Department by Jan. 1 under an appeals court ruling.`\
 https://nytimes.com/2024/12/23/us/anti-money-laundering-law-court-decision.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016611/2024/12/23/eagles-nick-sirianni-jalen-hurts
 **Part of Santa Cruz Wharf in California Collapses in High Surf**\
 `Three people were rescued after part of the wharf, a major tourist attraction, collapsed in powerful surf, the authorities said.`\
 https://nytimes.com/2024/12/23/us/santa-cruz-wharf-collapse.html
-
-**Astros GM Dana Brown: Team pivoted when Alex Bregman negotiations 'stalled'**\
-`The Astros traded for Isaac Paredes and signed Christian Walker, effectively ending any chances of them re-signing Bregman.`\
-https://nytimes.com/athletic/6016748/2024/12/23/astros-alex-bregman-negotiations-stalled/
 
