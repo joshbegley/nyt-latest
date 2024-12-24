@@ -1,3 +1,11 @@
+**Connor's defensive impact, Fleury's unlikely rise and He's sensational year: 3 Jets storylines**\
+`With the holiday break upon us, let's dig into three of the more overlooked stories of the Jets' season so far.`\
+https://nytimes.com/athletic/6011622/2024/12/24/winnipeg-jets-connor-defence-injuries-fleury-kevin-he/
+
+**Justin Baldoni’s Ex-Publicist Sues Over Alleged Smear Campaign**\
+`An ousted P.R. executive alleges a conspiracy to harm her and steal her clients, in connection with an effort to tarnish Blake Lively.`\
+https://nytimes.com/2024/12/24/business/justin-baldoni-publicist-blake-lively-lawsuit.html
+
 **Indiana lands former Cal quarterback Fernando Mendoza**\
 `Former two-star recruit from Miami is in position to replace Kurtis Rourke as IU's starting quarterback. `\
 https://nytimes.com/athletic/6015885/2024/12/24/fernando-mendoza-indiana-qb-transfer/

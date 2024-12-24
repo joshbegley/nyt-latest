@@ -1,3 +1,11 @@
+**Connor's defensive impact, Fleury's unlikely rise and He's sensational year: 3 Jets storylines**\
+`With the holiday break upon us, let's dig into three of the more overlooked stories of the Jets' season so far.`\
+https://nytimes.com/athletic/6011622/2024/12/24/winnipeg-jets-connor-defence-injuries-fleury-kevin-he/
+
+**Justin Baldoni’s Ex-Publicist Sues Over Alleged Smear Campaign**\
+`An ousted P.R. executive alleges a conspiracy to harm her and steal her clients, in connection with an effort to tarnish Blake Lively.`\
+https://nytimes.com/2024/12/24/business/justin-baldoni-publicist-blake-lively-lawsuit.html
+
 **Indiana lands former Cal quarterback Fernando Mendoza**\
 `Former two-star recruit from Miami is in position to replace Kurtis Rourke as IU's starting quarterback. `\
 https://nytimes.com/athletic/6015885/2024/12/24/fernando-mendoza-indiana-qb-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/24/style/quiz-2024-year-popular-words.html
 **Why ‘A Christmas Carol’ Endures**\
 `More than 180 years after its publication, “A Christmas Carol” by Charles Dickens is more relevant than ever.`\
 https://nytimes.com/2024/12/24/opinion/why-a-christmas-carol-endures.html
-
-**NFL odds, picks for Christmas Day: Netflix, Beyoncé and one massive bet**\
-`The NFL is teaming up with Netflix for a Christmas Day doubleheader. The Chiefs and Ravens are favored in their respective matchups.`\
-https://nytimes.com/athletic/6015914/2024/12/24/nfl-odds-picks-how-to-watch-christmas-day-games/
-
-**Despite Playoff loss, SMU proved it belongs in the ACC and has a bright future**\
-`With 22 wins over two years and a CFP appearance, SMU redefined the program and changed its identity for future generations.`\
-https://nytimes.com/athletic/6017992/2024/12/24/smu-football-acc-playoff/
 
