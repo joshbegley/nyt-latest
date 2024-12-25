@@ -1,3 +1,7 @@
+**Bird Flu Kills 20 Big Cats at Washington Sanctuary**\
+`Archival footage shows Tabbi, a half-Bengal tiger, and Thumper, a Eurasian lynx, playing at the Wild Felid Advocacy Center of Washington. They were among 20 big cats that died from bird flu at the sanctuary.`\
+https://nytimes.com/video/science/earth/100000009895845/bird-flu-big-cat-death.html
+
 **21 Dead as Mozambique Erupts in Violence Over Election Ruling**\
 `A ruling on Monday confirming that Daniel Chapo had won a disputed election has sparked protests and violence.`\
 https://nytimes.com/2024/12/24/world/africa/mozambique-election-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009895321/christmas-tree-burnin
 **The Evening: Signs of Trouble for Trump’s Spending Cuts**\
 `Plus, celebrating “Chrismukkah.”`\
 https://nytimes.com/2024/12/24/briefing/trump-cuts-american-airlines-michigan-state-chrismukkah.html
-
-**Judge Strikes Down Portions of Arkansas Law That Threatened Librarians**\
-`Republicans passed the law in 2023, joining other conservative states and counties that have sought to restrict the availability of certain books.`\
-https://nytimes.com/2024/12/24/us/arkansas-book-ban-law.html
 
