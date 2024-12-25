@@ -1,3 +1,7 @@
+**Will Trump Cut Short the Biden Clean-Energy Boom? Investors Are Nervous.**\
+`President-elect Donald J. Trump is expected to roll back many of the rules and subsidies that have attracted billions of dollars from the private sector to renewable energy and electric vehicles.`\
+https://nytimes.com/2024/12/25/business/energy-environment/trump-clean-energy-finance.html
+
 **‘Babygirl’ Review: Nicole Kidman Takes Control**\
 `Nicole Kidman bares body and some soul in a story about a married woman who enters a dominant-submissive affair with a younger man.`\
 https://nytimes.com/2024/12/25/movies/babygirl-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017452/2024/12/25/edmonton-oilers-world-juniors-hi
 **How Nicholas Hoult Navigates a Transylvanian Village in ‘Nosferatu’**\
 `The director Robert Eggers narrates a one-shot sequence from his film.`\
 https://nytimes.com/2024/12/25/movies/nosferatu-clip.html
-
-**Syria’s New Leaders Try to Unite Rebel Factions Under a Single Government**\
-`The fighters who ousted Bashar al-Assad are aiming to transform their revolutionary movement and assert control over the country.`\
-https://nytimes.com/2024/12/25/world/middleeast/syria-rebels-government-assad.html
 

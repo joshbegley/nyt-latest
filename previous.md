@@ -1,3 +1,11 @@
+**‘Babygirl’ Review: Nicole Kidman Takes Control**\
+`Nicole Kidman bares body and some soul in a story about a married woman who enters a dominant-submissive affair with a younger man.`\
+https://nytimes.com/2024/12/25/movies/babygirl-review.html
+
+**What’s in Our Queue? Bruce Springsteen and More**\
+`Text by Anupreeta Das`\
+https://nytimes.com/card/2024/12/25/arts/editors-recommendations-springsteen
+
 **Russia Unleashes Another Wave of Attacks on Ukraine**\
 `Moscow again struck Ukraine’s energy infrastructure, part of an effort to wear down the country. “In the trenches, there are no holidays,” one man said.`\
 https://nytimes.com/2024/12/25/world/europe/russia-ukraine-strikes-energy-system.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/25/movies/nosferatu-clip.html
 **Syria’s New Leaders Try to Unite Rebel Factions Under a Single Government**\
 `The fighters who ousted Bashar al-Assad are aiming to transform their revolutionary movement and assert control over the country.`\
 https://nytimes.com/2024/12/25/world/middleeast/syria-rebels-government-assad.html
-
-**‘Nosferatu’ | Anatomy of a Scene**\
-`Robert Eggers narrates a sequence from his film featuring Nicholas Hoult.`\
-https://nytimes.com/video/movies/100000009891560/nosferatu-scene.html
-
-**What Keeps Us Going**\
-`Times Opinion staffers share how they escaped it all this year.`\
-https://nytimes.com/2024/12/25/briefing/memes-movies-music-2024.html
 
