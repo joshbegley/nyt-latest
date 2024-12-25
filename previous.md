@@ -1,3 +1,7 @@
+**Regrets? Biden May Have a Few.**\
+`President Biden will seek solace and “relief” during a visit with Pope Francis next month, according to people familiar with his plans. His public comments have offered a glimpse into what is on his mind.`\
+https://nytimes.com/2024/12/25/us/politics/biden-regrets-reflection.html
+
 **Desi Bouterse, Fugitive Former Dictator of Suriname, Dies at 79**\
 `He took power in a military coup in 1980 and later served as the country’s president. He was also convicted of ordering the murder of 15 political opponents.`\
 https://nytimes.com/2024/12/25/world/americas/bouterse-suriname-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/12/25/arts/editors-recommendations-springsteen
 **Russia Unleashes Another Wave of Attacks on Ukraine**\
 `Moscow again struck Ukraine’s energy infrastructure, part of an effort to wear down the country. “In the trenches, there are no holidays,” one man said.`\
 https://nytimes.com/2024/12/25/world/europe/russia-ukraine-strikes-energy-system.html
-
-**NFL Week 17 fantasy football, betting cheat sheet: George Pickens active against Chiefs**\
-`Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
-https://nytimes.com/athletic/6015597/2024/12/25/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
 

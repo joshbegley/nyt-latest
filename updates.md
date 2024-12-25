@@ -1,3 +1,7 @@
+**Regrets? Biden May Have a Few.**\
+`President Biden will seek solace and “relief” during a visit with Pope Francis next month, according to people familiar with his plans. His public comments have offered a glimpse into what is on his mind.`\
+https://nytimes.com/2024/12/25/us/politics/biden-regrets-reflection.html
+
 **Desi Bouterse, Fugitive Former Dictator of Suriname, Dies at 79**\
 `He took power in a military coup in 1980 and later served as the country’s president. He was also convicted of ordering the murder of 15 political opponents.`\
 https://nytimes.com/2024/12/25/world/americas/bouterse-suriname-dead.html
