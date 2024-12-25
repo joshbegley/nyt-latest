@@ -1,3 +1,7 @@
+**NFL Week 17 fantasy football, betting cheat sheet: George Pickens active against Chiefs**\
+`Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
+https://nytimes.com/athletic/6015597/2024/12/25/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
+
 **We Won’t Go Until We Get Some Cinnamon Toast Cookies**\
 `And more delightful — and easy — sweet treats for a very happy holiday.`\
 https://nytimes.com/2024/12/25/dining/holiday-breakfast-recipes.html
