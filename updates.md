@@ -1,3 +1,7 @@
+**Corrections: Dec. 25, 2024**\
+`Corrections that appeared in print on Wednesday, Dec. 25, 2024.`\
+https://nytimes.com/2024/12/24/pageoneplus/corrections-dec-25-2024.html
+
 **Bird Flu Kills 20 Big Cats at Washington Sanctuary**\
 `Archival footage shows Tabbi, a half-Bengal tiger, and Thumper, a Eurasian lynx, playing at the Wild Felid Advocacy Center of Washington. They were among 20 big cats that died from bird flu at the sanctuary.`\
 https://nytimes.com/video/science/earth/100000009895845/bird-flu-big-cat-death.html
