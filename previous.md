@@ -1,3 +1,7 @@
+**Russia Unleashes Another Wave of Attacks on Ukraine**\
+`Moscow again struck Ukraine’s energy infrastructure, part of an effort to wear down the country. “In the trenches, there are no holidays,” one man said.`\
+https://nytimes.com/2024/12/25/world/europe/russia-ukraine-strikes-energy-system.html
+
 **NFL Week 17 fantasy football, betting cheat sheet: George Pickens feels good**\
 `Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
 https://nytimes.com/athletic/6015597/2024/12/25/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
@@ -33,8 +37,4 @@ https://nytimes.com/video/movies/100000009891560/nosferatu-scene.html
 **What Keeps Us Going**\
 `Times Opinion staffers share how they escaped it all this year.`\
 https://nytimes.com/2024/12/25/briefing/memes-movies-music-2024.html
-
-**His father's illness drew him away from basketball. Now Andrew Wiggins is rediscovering his joy**\
-`Andrew Wiggins felt helpless watching his father suffer, but he has rediscovered his spirit and found reconnection in his memory.`\
-https://nytimes.com/athletic/6018536/2024/12/25/andrew-wiggins-father-warriors-nba/
 
