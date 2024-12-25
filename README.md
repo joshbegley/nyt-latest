@@ -12,7 +12,7 @@ https://nytimes.com/interactive/2024/12/25/upshot/nfl-playoff-picture-week-17.ht
 
 **Cyclone on French Archipelago Exposes Resentments Over Immigrants**\
 `In the ruins left by Cyclone Chido, people from Mayotte, off the eastern coast of Africa, are calling to deport the undocumented immigrants who had settled there from neighboring islands.`\
-https://nytimes.com/2024/12/25/world/africa/cyclone-on-french-archipelago-exposes-resentments-over-immigrants.html
+https://nytimes.com/2024/12/25/world/africa/mayotte-cyclone-chido-immigrants.html
 
 **This 127-Year-Old Christmas Contest Has an Unusual Star: The Radish**\
 `In southern Mexico, a city dazzles with a celebration of its rich culture and history through a radish-carving competition, a cherished tradition upheld by generations of families.`\
