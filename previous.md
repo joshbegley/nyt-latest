@@ -1,3 +1,15 @@
+**Pope Calls for Peace on Christmas as Church Begins Jubilee Year Celebrations**\
+`Pope Francis’ Christmas message was a plea for reconciliation, peace and care for others.`\
+https://nytimes.com/2024/12/25/world/europe/pope-francis-christmas-jubilee-peace.html
+
+**Lowetide: Oilers at the World Juniors past and present**\
+`Much of the Oilers organization's history has been on display at the World Juniors over the years.`\
+https://nytimes.com/athletic/6017452/2024/12/25/edmonton-oilers-world-juniors-history/
+
+**How Nicholas Hoult Navigates a Transylvanian Village in ‘Nosferatu’**\
+`The director Robert Eggers narrates a one-shot sequence from his film.`\
+https://nytimes.com/2024/12/25/movies/nosferatu-clip.html
+
 **Syria’s New Leaders Try to Unite Rebel Factions Under a Single Government**\
 `The fighters who ousted Bashar al-Assad are aiming to transform their revolutionary movement and assert control over the country.`\
 https://nytimes.com/2024/12/25/world/middleeast/syria-rebels-government-assad.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/25/podcasts/the-daily/joni-mitchell-blue.html
 **Wordle Review No. 1,286**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Dec. 26, 2024.`\
 https://nytimes.com/2024/12/25/crosswords/wordle-review-1286.html
-
-**Most interesting NBA awards: An unknown Rookie of the Year? Wide-open Most Improved race?**\
-`These aren't NBA award picks or predictions (for the most part). These races are where the most drama appears to be.`\
-https://nytimes.com/athletic/6018197/2024/12/25/nba-awards-races-mvp-rookie-of-the-year/
-
-**‘A Complete Unknown’ Review: Timothée Chalamet Goes Electric**\
-`The actor stars as a young Bob Dylan, who woos folk followers only to betray them later at the 1965 Newport Folk Festival.`\
-https://nytimes.com/2024/12/25/movies/-a-complete-unknown-review.html
-
-**NFL Week 17 roundtable: Who wins Chiefs-Steelers? Does Seahawks' success hinge on playoffs?**\
-`The NFL's busy holiday slate kicks off with a rare Wednesday doubleheader of four AFC teams fighting for postseason positioning.`\
-https://nytimes.com/athletic/6017834/2024/12/25/nfl-week-17-roundtable-chiefs-steelers-seahawks-playoff-picture-christmas/
 

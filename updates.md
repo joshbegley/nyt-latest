@@ -1,3 +1,15 @@
+**Pope Calls for Peace on Christmas as Church Begins Jubilee Year Celebrations**\
+`Pope Francis’ Christmas message was a plea for reconciliation, peace and care for others.`\
+https://nytimes.com/2024/12/25/world/europe/pope-francis-christmas-jubilee-peace.html
+
+**Lowetide: Oilers at the World Juniors past and present**\
+`Much of the Oilers organization's history has been on display at the World Juniors over the years.`\
+https://nytimes.com/athletic/6017452/2024/12/25/edmonton-oilers-world-juniors-history/
+
+**How Nicholas Hoult Navigates a Transylvanian Village in ‘Nosferatu’**\
+`The director Robert Eggers narrates a one-shot sequence from his film.`\
+https://nytimes.com/2024/12/25/movies/nosferatu-clip.html
+
 **Syria’s New Leaders Try to Unite Rebel Factions Under a Single Government**\
 `The fighters who ousted Bashar al-Assad are aiming to transform their revolutionary movement and assert control over the country.`\
 https://nytimes.com/2024/12/25/world/middleeast/syria-rebels-government-assad.html
