@@ -1,3 +1,7 @@
+**At Least 21 Killed in Clashes Over Mozambique’s Disputed Election Ruling**\
+`Hundreds of buildings were damaged or looted, including schools and hospitals, in a wave of unrest after Daniel Chapo was confirmed as the winner of the presidential election.`\
+https://nytimes.com/2024/12/25/world/africa/mozambique-protests-election.html
+
 **Christmas in Pictures: Lights and Color Mark the Season**\
 `Around the world, people found ways to show their holiday spirit.`\
 https://nytimes.com/2024/12/25/world/middleeast/christmas-photos-world-2024.html
