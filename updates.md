@@ -1,3 +1,11 @@
+**Jacques Roubaud, Poetic Master of Form and Whimsy, Dies at 92**\
+`He was trained as a mathematician, but he gained fame in France, and won major prizes, for his modern verse.`\
+https://nytimes.com/2024/12/25/books/jacques-roubaud-poetic-master-of-form-and-whimsy-dies-at-92.html
+
+**Famine Warning for Northern Gaza Draws U.S. Rebuke and Raises Questions**\
+`The dispute highlights the difficulties with data collection in Gaza that have hampered humanitarian efforts since the war began.`\
+https://nytimes.com/2024/12/25/world/middleeast/northern-gaza-famine-warning-dispute.html
+
 **Wemby has historic Christmas, Bridges stars as Grinch in Knicks comeback**\
 `No player had ever turned in a combination of as many points, rebounds, assists and blocks on Christmas as Wembanyama did Wednesday.`\
 https://nytimes.com/athletic/6018872/2024/12/25/victor-wembanyama-historic-nba-christmas-performance/

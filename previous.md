@@ -1,3 +1,11 @@
+**Jacques Roubaud, Poetic Master of Form and Whimsy, Dies at 92**\
+`He was trained as a mathematician, but he gained fame in France, and won major prizes, for his modern verse.`\
+https://nytimes.com/2024/12/25/books/jacques-roubaud-poetic-master-of-form-and-whimsy-dies-at-92.html
+
+**Famine Warning for Northern Gaza Draws U.S. Rebuke and Raises Questions**\
+`The dispute highlights the difficulties with data collection in Gaza that have hampered humanitarian efforts since the war began.`\
+https://nytimes.com/2024/12/25/world/middleeast/northern-gaza-famine-warning-dispute.html
+
 **Wemby has historic Christmas, Bridges stars as Grinch in Knicks comeback**\
 `No player had ever turned in a combination of as many points, rebounds, assists and blocks on Christmas as Wembanyama did Wednesday.`\
 https://nytimes.com/athletic/6018872/2024/12/25/victor-wembanyama-historic-nba-christmas-performance/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/25/world/americas/bouterse-suriname-dead.html
 **A Donor Gave Graduates a Big Cash Gift. Why Didn’t They All Get One?**\
 `A billionaire gave $1,000 to University of Massachusetts Dartmouth graduates in May. You had to be there.`\
 https://nytimes.com/2024/12/25/your-money/umass-dartmouth-billionaire-charity.html
-
-**We Won’t Go Until We Get Some Cinnamon Toast Cookies**\
-`And more delightful — and easy — sweet treats for a very happy holiday.`\
-https://nytimes.com/2024/12/25/dining/holiday-breakfast-recipes.html
-
-**If Syrian Chemical Weapons Were Found, the U.S. Army Could Safely Destroy Them**\
-`A civilian team at a base in Maryland disposed of Syrian toxins a decade ago after hundreds of people were killed in a nerve agent attack.`\
-https://nytimes.com/2024/12/25/us/syria-chemical-weapons.html
 
