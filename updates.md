@@ -1,3 +1,7 @@
+**We Could Have Had Ozempic Nearly 40 Years Ago**\
+`Researchers identified one key breakthrough for GLP-1 drugs in the 1980s, but Pfizer walked away.`\
+https://nytimes.com/2024/12/25/opinion/ozempic-weight-loss-pfizer-diabetes.html
+
 **Jacques Roubaud, Poetic Master of Form and Whimsy, Dies at 92**\
 `He was trained as a mathematician, but he gained fame in France, and won major prizes, for his modern verse.`\
 https://nytimes.com/2024/12/25/books/jacques-roubaud-poetic-master-of-form-and-whimsy-dies-at-92.html
