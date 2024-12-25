@@ -1,3 +1,7 @@
+**Chiefs handle Steelers 29-10 on Christmas to secure AFC top seed: Takeaways**\
+`Mahomes had his first 300-yard, three-touchdown game since Week 7 of 2023.`\
+https://nytimes.com/athletic/6018906/2024/12/25/chiefs-steelers-score-result-takeaways-nfl-christmas/
+
 **Trump Picks Kevin Marino Cabrera for Ambassador to Panama**\
 `The selection of Mr. Cabrera, a Miami-Dade County commissioner, comes a few days after Mr. Trump called for the United States to regain control of the Panama Canal.`\
 https://nytimes.com/2024/12/25/us/politics/panama-ambassador-cabrera-trump.html
