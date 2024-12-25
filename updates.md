@@ -1,3 +1,7 @@
+**Dead Body Is Found in Wheel Well of United Airlines Plane After Landing**\
+`The body was discovered after the flight, which originated from Chicago, landed at the airport in Hawaii. The death is under investigation.`\
+https://nytimes.com/2024/12/25/us/body-found-united-airlines-wheel-well-maui-hawaii.html
+
 **Davies back in Tottenham training, could be fit for Wolves game**\
 `Ben Davies could be available for Tottenham Hotspur against Wolverhampton Wanderers on Sunday after returning to first-team training.`\
 https://nytimes.com/athletic/6017923/2024/12/25/ben-davies-injury-return-tottenham/

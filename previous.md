@@ -1,3 +1,7 @@
+**Dead Body Is Found in Wheel Well of United Airlines Plane After Landing**\
+`The body was discovered after the flight, which originated from Chicago, landed at the airport in Hawaii. The death is under investigation.`\
+https://nytimes.com/2024/12/25/us/body-found-united-airlines-wheel-well-maui-hawaii.html
+
 **Davies back in Tottenham training, could be fit for Wolves game**\
 `Ben Davies could be available for Tottenham Hotspur against Wolverhampton Wanderers on Sunday after returning to first-team training.`\
 https://nytimes.com/athletic/6017923/2024/12/25/ben-davies-injury-return-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018846/2024/12/25/espn-mickey-mouse-alt-cast-nba-c
 **Convicted Murderer Found After Escaping Prison in Mississippi**\
 `The man, who had been serving a life sentence, broke out of the state’s newest prison on Christmas Eve, officials said.`\
 https://nytimes.com/2024/12/25/us/mississippi-prison-murderer-manhunt.html
-
-**Thursday Briefing: Rebel Factions Try to Unite Syria**\
-`Plus, “Squid Game” returns.`\
-https://nytimes.com/2024/12/25/briefing/syria-mozambique-ukraine.html
 
