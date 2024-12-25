@@ -1,3 +1,7 @@
+**Christmas in Pictures: Lights and Color Mark the Season**\
+`Around the world, people found ways to show their holiday spirit.`\
+https://nytimes.com/2024/12/25/world/middleeast/christmas-photos-world-2024.html
+
 **This Hanukkah, Choose Light Over Heat**\
 `We follow the wisdom of the ancient rabbis in approaching both the holiday and this era.`\
 https://nytimes.com/2024/12/25/opinion/hanukkah-jewish-tradition.html
