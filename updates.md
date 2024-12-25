@@ -1,3 +1,7 @@
+**A Reflective Biden Harbors Some Regrets as His Term Winds Down**\
+`President Biden will seek solace and “relief” during a visit with Pope Francis next month, according to people familiar with his plans. His public comments have offered a glimpse into what is on his mind.`\
+https://nytimes.com/2024/12/25/us/politics/biden-regrets-reflection.html
+
 **We Could Have Had Ozempic Nearly 40 Years Ago**\
 `Researchers identified one key breakthrough for GLP-1 drugs in the 1980s, but Pfizer walked away.`\
 https://nytimes.com/2024/12/25/opinion/ozempic-weight-loss-pfizer-diabetes.html
