@@ -1,3 +1,7 @@
+**Passenger Jet Crashes in Kazakhstan With 67 Onboard**\
+`A cabinet official said that at least six people survived, Russia’s state news media reported.`\
+https://nytimes.com/2024/12/25/world/europe/kazakhstan-plane-crash.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/25/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000867/2024/12/25/atalanta-serie-a-title-race/
 **Data and tactics mailbag: The return of the long ball, who are Europe's best finishers and will Man Utd finish higher than 13th?**\
 `Our writers answer your questions about the mechanics of football`\
 https://nytimes.com/athletic/6015381/2024/12/25/the-athletic-data-and-tactics-mailbag/
-
-**Who makes your Premier League team of the season so far? Our writers pick their XIs**\
-`Palmer, Salah, Saka would make most people's teams - but who would you pick in goal and at full-back? And is Wood a definite up front?`\
-https://nytimes.com/athletic/5998184/2024/12/25/premier-league-team-of-the-season-so-far/
 
