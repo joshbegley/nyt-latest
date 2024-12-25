@@ -1,5 +1,5 @@
 **Passenger Jet Crashes in Kazakhstan With 67 Onboard**\
-`A cabinet official said that at least six people survived, Russia’s state news media reported.`\
+`Russia’s state aviation authority said the plane had been attempting an emergency landing when it crashed near the city of Aktau. The Kazakh authorities said that at least 25 people survived.`\
 https://nytimes.com/2024/12/25/world/europe/kazakhstan-plane-crash.html
 
 **Spelling Bee Forum**\
