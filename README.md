@@ -1,5 +1,9 @@
+**Thursday Briefing: Rebel Factions Try to Unite Syria**\
+`Plus, “Squid Game” returns.`\
+https://nytimes.com/2024/12/25/briefing/syria-mozambique-ukraine.html
+
 **Luka Dončić exits Mavericks' Christmas game with calf injury**\
-`The Mavericks' superstar laid on the floor for an extended time in the second quarter. He had missed two recent games with a heel injury. `\
+`The Mavericks superstar had missed two recent games with a heel injury.`\
 https://nytimes.com/athletic/6018931/2024/12/25/luka-doncic-injury-mavericks/
 
 **We Could Have Had Ozempic Nearly 40 Years Ago**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/arts/music/popcast-best-albums-2024.html
 **In New Mexico, a Democratic Governor Wants to Get Tough on Crime**\
 `Gov. Michelle Lujan Grisham has clashed with her own party over how to tackle the nexus of addiction, mental illness and violence in New Mexico.`\
 https://nytimes.com/2024/12/25/business/new-mexico-michelle-grisham-crime.html
-
-**A Reflective Biden Harbors Some Regrets as His Term Winds Down**\
-`President Biden will seek solace and “relief” during a visit with Pope Francis next month, according to people familiar with his plans. His public comments have offered a glimpse into what is on his mind.`\
-https://nytimes.com/2024/12/25/us/politics/biden-regrets-reflection.html
 
