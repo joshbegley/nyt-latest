@@ -1,4 +1,8 @@
 **Passenger Jet Crashes in Kazakhstan With 67 Onboard**\
+`Russia’s state aviation authority said the Azerbaijan Airlines plane had been trying to make an emergency landing. The Kazakh authorities said that at least 28 people survived.`\
+https://nytimes.com/2024/12/25/world/europe/kazakhstan-plane-crash.html
+
+**Passenger Jet Crashes in Kazakhstan With 67 Onboard**\
 `Russia’s state aviation authority said the plane had been attempting an emergency landing when it crashed near the city of Aktau. The Kazakh authorities said that at least 25 people survived.`\
 https://nytimes.com/2024/12/25/world/europe/kazakhstan-plane-crash.html
 
