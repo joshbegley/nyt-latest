@@ -1,3 +1,11 @@
+**This Hanukkah, Choose Light Over Heat**\
+`We follow the wisdom of the ancient rabbis in approaching both the holiday and this era.`\
+https://nytimes.com/2024/12/25/opinion/hanukkah-jewish-tradition.html
+
+**The Gift of an Expectation-Free Christmas**\
+`Sometimes the most unconventional holidays are the most memorable.`\
+https://nytimes.com/2024/12/25/opinion/gifts-christmas-expectations.html
+
 **The Athletic Football Quiz of 2024: Spot the scorer, quotes, stats and finals**\
 `Were you paying attention to all the football storylines in 2024? Take our devilish quiz to see how much you remember`\
 https://nytimes.com/athletic/5998603/2024/12/25/the-athletic-football-quiz-spot-scorer-quotes-finals/

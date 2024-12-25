@@ -1,3 +1,7 @@
+**Christmas in Pictures: Lights and Color Mark the Season**\
+`Around the world, people found ways to show their holiday spirit.`\
+https://nytimes.com/2024/12/25/world/middleeast/christmas-photos-world-2024.html
+
 **This Hanukkah, Choose Light Over Heat**\
 `We follow the wisdom of the ancient rabbis in approaching both the holiday and this era.`\
 https://nytimes.com/2024/12/25/opinion/hanukkah-jewish-tradition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/world/middleeast/lebanon-christmas-war.html
 **Holiday Briefing**\
 `Celebrating cherished traditions on a special day.`\
 https://nytimes.com/2024/12/25/briefing/holiday-briefing.html
-
-**Released From a Russian Prison, This Activist Got Right to Work**\
-`Vladimir Kara-Murza, a vehement critic of President Vladimir V. Putin, didn’t want to be part of a prisoner exchange. But he says more exchanges are needed.`\
-https://nytimes.com/2024/12/25/world/europe/vladimir-kara-murza-interview-critic-putin.html
 
