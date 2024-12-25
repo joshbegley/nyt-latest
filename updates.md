@@ -1,3 +1,7 @@
+**Subway Burning Highlights Difficulty of Identifying Homeless Victims**\
+`It can be challenging to identify the bodies of people who were homeless when they died. For a woman killed Sunday on an F train, the circumstances of her death could make it even harder.`\
+https://nytimes.com/2024/12/25/nyregion/subway-fire-death-victim.html
+
 **Charli! Mk.gee! MJ! Debating the Best Albums of the Year.**\
 `A conversation about how peak pop stars are thinking of LPs in an increasingly singles-driven landscape.`\
 https://nytimes.com/2024/12/25/arts/music/popcast-best-albums-2024.html

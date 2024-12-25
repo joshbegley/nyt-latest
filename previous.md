@@ -1,3 +1,7 @@
+**Subway Burning Highlights Difficulty of Identifying Homeless Victims**\
+`It can be challenging to identify the bodies of people who were homeless when they died. For a woman killed Sunday on an F train, the circumstances of her death could make it even harder.`\
+https://nytimes.com/2024/12/25/nyregion/subway-fire-death-victim.html
+
 **Charli! Mk.gee! MJ! Debating the Best Albums of the Year.**\
 `A conversation about how peak pop stars are thinking of LPs in an increasingly singles-driven landscape.`\
 https://nytimes.com/2024/12/25/arts/music/popcast-best-albums-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/world/europe/uk-king-charles-christmas.html
 **Will Trump Cut Short the Biden Clean-Energy Boom? Investors Are Nervous.**\
 `President-elect Donald J. Trump is expected to roll back many of the rules and subsidies that have attracted billions of dollars from the private sector to renewable energy and electric vehicles.`\
 https://nytimes.com/2024/12/25/business/energy-environment/trump-clean-energy-finance.html
-
-**‘Babygirl’ Review: Nicole Kidman Takes Control**\
-`Nicole Kidman bares body and some soul in a story about a married woman who enters a dominant-submissive affair with a younger man.`\
-https://nytimes.com/2024/12/25/movies/babygirl-review.html
 
