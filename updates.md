@@ -1,3 +1,7 @@
+**Luka Dončić exits Mavericks' Christmas game with calf injury**\
+`The Mavericks' superstar laid on the floor for an extended time in the second quarter. He had missed two recent games with a heel injury. `\
+https://nytimes.com/athletic/6018931/2024/12/25/luka-doncic-injury-mavericks/
+
 **A Reflective Biden Harbors Some Regrets as His Term Winds Down**\
 `President Biden will seek solace and “relief” during a visit with Pope Francis next month, according to people familiar with his plans. His public comments have offered a glimpse into what is on his mind.`\
 https://nytimes.com/2024/12/25/us/politics/biden-regrets-reflection.html
