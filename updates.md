@@ -1,3 +1,7 @@
+**His father's illness drew him away from basketball. Now Andrew Wiggins is rediscovering his joy**\
+`Andrew Wiggins felt helpless watching his father suffer, but he has rediscovered his spirit and found reconnection in his memory.`\
+https://nytimes.com/athletic/6018536/2024/12/25/andrew-wiggins-father-warriors-nba/
+
 **The Connections Companion No. 564**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Dec. 26, 2024.`\
 https://nytimes.com/2024/12/25/crosswords/connections-companion-564.html
