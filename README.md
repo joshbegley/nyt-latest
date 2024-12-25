@@ -1,3 +1,7 @@
+**Desi Bouterse, Fugitive Former Dictator of Suriname, Dies at 79**\
+`He took power in a military coup in 1980 and later served as the country’s president. He was also convicted of ordering the murder of 15 political opponents.`\
+https://nytimes.com/2024/12/25/world/americas/bouterse-suriname-dead.html
+
 **A Donor Gave Graduates a Big Cash Gift. Why Didn’t They All Get One?**\
 `A billionaire gave $1,000 to University of Massachusetts Dartmouth graduates in May. You had to be there.`\
 https://nytimes.com/2024/12/25/your-money/umass-dartmouth-billionaire-charity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/world/europe/russia-ukraine-strikes-energy-system
 **NFL Week 17 fantasy football, betting cheat sheet: George Pickens active against Chiefs**\
 `Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
 https://nytimes.com/athletic/6015597/2024/12/25/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
-
-**Sharing a Bedroom With My Partner and Her Siblings for the Holidays: Odd or Not?**\
-`A reader is less than comfortable sleeping feet away from her partner’s adult siblings (and their partners), but is it worth it to keep the peace?`\
-https://nytimes.com/2024/12/25/style/visiting-home-shared-bedrooms.html
 
