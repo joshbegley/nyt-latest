@@ -1,3 +1,7 @@
+**If Syrian Chemical Weapons Were Found, the U.S. Army Could Safely Destroy Them**\
+`A civilian team at a base in Maryland disposed of Syrian toxins a decade ago after hundreds of people were killed in a nerve agent attack.`\
+https://nytimes.com/2024/12/25/us/syria-chemical-weapons.html
+
 **King Charles Addresses U.K. Riots and His Cancer in Christmas Speech**\
 `The British monarch recorded his annual holiday address from the chapel of a former hospital, rather than from a palace.`\
 https://nytimes.com/2024/12/25/world/europe/uk-king-charles-christmas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/opinion/letters/trump-administration.html
 **Pope Calls for Peace on Christmas as Church Begins Jubilee Year Celebrations**\
 `Pope Francis’ Christmas message was a plea for reconciliation, peace and care for others.`\
 https://nytimes.com/2024/12/25/world/europe/pope-francis-christmas-jubilee-peace.html
-
-**Lowetide: Oilers at the World Juniors past and present**\
-`Much of the Oilers organization's history has been on display at the World Juniors over the years.`\
-https://nytimes.com/athletic/6017452/2024/12/25/edmonton-oilers-world-juniors-history/
 
