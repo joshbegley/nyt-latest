@@ -1,3 +1,7 @@
+**King Charles Addresses U.K. Riots and His Cancer in Christmas Speech**\
+`The British monarch recorded his annual holiday address from the chapel of a former hospital, rather than from a palace.`\
+https://nytimes.com/2024/12/25/world/europe/uk-king-charles-christmas.html
+
 **Will Trump Cut Short the Biden Clean-Energy Boom? Investors Are Nervous.**\
 `President-elect Donald J. Trump is expected to roll back many of the rules and subsidies that have attracted billions of dollars from the private sector to renewable energy and electric vehicles.`\
 https://nytimes.com/2024/12/25/business/energy-environment/trump-clean-energy-finance.html
