@@ -1,3 +1,11 @@
+**Thursday Briefing: Rebel Factions Try to Unite Syria**\
+`Plus, “Squid Game” returns.`\
+https://nytimes.com/2024/12/25/briefing/syria-mozambique-ukraine.html
+
+**Luka Dončić exits Mavericks' Christmas game with calf injury**\
+`The Mavericks superstar had missed two recent games with a heel injury.`\
+https://nytimes.com/athletic/6018931/2024/12/25/luka-doncic-injury-mavericks/
+
 **Luka Dončić exits Mavericks' Christmas game with calf injury**\
 `The Mavericks' superstar laid on the floor for an extended time in the second quarter. He had missed two recent games with a heel injury. `\
 https://nytimes.com/athletic/6018931/2024/12/25/luka-doncic-injury-mavericks/
