@@ -1,3 +1,7 @@
+**If Syrian Chemical Weapons Were Found, the U.S. Army Could Safely Destroy Them**\
+`A civilian team at a base in Maryland disposed of Syrian toxins a decade ago after hundreds of people were killed in a nerve agent attack.`\
+https://nytimes.com/2024/12/25/us/syria-chemical-weapons.html
+
 **King Charles Addresses U.K. Riots and His Cancer in Christmas Speech**\
 `The British monarch recorded his annual holiday address from the chapel of a former hospital, rather than from a palace.`\
 https://nytimes.com/2024/12/25/world/europe/uk-king-charles-christmas.html
