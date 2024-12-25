@@ -1,3 +1,7 @@
+**In New Mexico, a Democratic Governor Wants to Get Tough on Crime**\
+`Gov. Michelle Lujan Grisham has clashed with her own party over how to tackle the nexus of addiction, mental illness and violence in New Mexico.`\
+https://nytimes.com/2024/12/25/business/new-mexico-michelle-grisham-crime.html
+
 **Regrets? Biden May Have a Few.**\
 `President Biden will seek solace and “relief” during a visit with Pope Francis next month, according to people familiar with his plans. His public comments have offered a glimpse into what is on his mind.`\
 https://nytimes.com/2024/12/25/us/politics/biden-regrets-reflection.html
