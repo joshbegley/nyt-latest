@@ -1,3 +1,7 @@
+**21 Dead as Mozambique Erupts in Violence Over Election Ruling**\
+`A ruling on Monday confirming that Daniel Chapo had won a disputed election has sparked protests and violence.`\
+https://nytimes.com/2024/12/24/world/africa/mozambique-election-violence.html
+
 **Gunmen Attack Haiti’s Largest Public Hospital, Killing at Least 3**\
 `Two journalists and a police officer died and at least seven others were wounded in the shooting before the reopening of a hospital wing in Port-au-Prince.`\
 https://nytimes.com/2024/12/24/world/americas/haiti-hospital-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/briefing/trump-cuts-american-airlines-michigan-st
 **Judge Strikes Down Portions of Arkansas Law That Threatened Librarians**\
 `Republicans passed the law in 2023, joining other conservative states and counties that have sought to restrict the availability of certain books.`\
 https://nytimes.com/2024/12/24/us/arkansas-book-ban-law.html
-
-**How to Track Santa: NORAD’s Radars Are on the Case**\
-`Children and the young at heart can see where in the world Santa is and how many gifts have been delivered.`\
-https://nytimes.com/2024/12/24/us/how-to-track-santa-norad.html
 

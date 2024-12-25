@@ -1,3 +1,7 @@
+**21 Dead as Mozambique Erupts in Violence Over Election Ruling**\
+`A ruling on Monday confirming that Daniel Chapo had won a disputed election has sparked protests and violence.`\
+https://nytimes.com/2024/12/24/world/africa/mozambique-election-violence.html
+
 **Gunmen Attack Haiti’s Largest Public Hospital, Killing at Least 3**\
 `Two journalists and a police officer died and at least seven others were wounded in the shooting before the reopening of a hospital wing in Port-au-Prince.`\
 https://nytimes.com/2024/12/24/world/americas/haiti-hospital-shooting.html
