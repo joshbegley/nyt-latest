@@ -1,3 +1,7 @@
+**Most interesting NBA awards: An unknown Rookie of the Year? Wide-open Most Improved race?**\
+`These aren't NBA award picks or predictions (for the most part). These races are where the most drama appears to be.`\
+https://nytimes.com/athletic/6018197/2024/12/25/nba-awards-races-mvp-rookie-of-the-year/
+
 **Cyclone on French Archipelago Exposes Resentments Over Immigrants**\
 `In the ruins left by Cyclone Chido, people from Mayotte, off the eastern coast of Africa, are calling to deport the undocumented immigrants who had settled there from neighboring islands.`\
 https://nytimes.com/2024/12/25/world/africa/mayotte-cyclone-chido-immigrants.html
