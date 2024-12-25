@@ -1,3 +1,7 @@
+**Will Trump Cut Short the Biden Clean-Energy Boom? Investors Are Nervous.**\
+`President-elect Donald J. Trump is expected to roll back many of the rules and subsidies that have attracted billions of dollars from the private sector to renewable energy and electric vehicles.`\
+https://nytimes.com/2024/12/25/business/energy-environment/trump-clean-energy-finance.html
+
 **‘Babygirl’ Review: Nicole Kidman Takes Control**\
 `Nicole Kidman bares body and some soul in a story about a married woman who enters a dominant-submissive affair with a younger man.`\
 https://nytimes.com/2024/12/25/movies/babygirl-review.html
