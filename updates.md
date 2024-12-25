@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/25/crosswords/spelling-bee-forum.html
+
+**You Better Watch Out (for Clichés)**\
+`Do you hear what we hear? It’s The Times’s annual reminder to avoid overused holiday phrases.`\
+https://nytimes.com/2024/12/25/insider/style-guide-christmas.html
+
 **At Least 21 Killed in Clashes Over Mozambique’s Disputed Election Ruling**\
 `Hundreds of buildings were damaged or looted, including schools and hospitals, in a wave of unrest after Daniel Chapo was confirmed as the winner of the presidential election.`\
 https://nytimes.com/2024/12/25/world/africa/mozambique-protests-election.html
