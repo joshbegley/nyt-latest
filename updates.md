@@ -1,3 +1,7 @@
+**What Keeps Us Going**\
+`Times Opinion staffers share how they escaped it all this year.`\
+https://nytimes.com/2024/12/25/briefing/memes-movies-music-2024.html
+
 **His father's illness drew him away from basketball. Now Andrew Wiggins is rediscovering his joy**\
 `Andrew Wiggins felt helpless watching his father suffer, but he has rediscovered his spirit and found reconnection in his memory.`\
 https://nytimes.com/athletic/6018536/2024/12/25/andrew-wiggins-father-warriors-nba/
