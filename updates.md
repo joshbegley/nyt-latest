@@ -1,3 +1,7 @@
+**Wemby has historic Christmas, Bridges stars as Grinch in Knicks comeback**\
+`No player had ever turned in a combination of as many points, rebounds, assists and blocks on Christmas as Wembanyama did Wednesday.`\
+https://nytimes.com/athletic/6018872/2024/12/25/victor-wembanyama-historic-nba-christmas-performance/
+
 **Mozambique Election Ruling Sets Off Deadly Protests**\
 `Hundreds of buildings were looted or vandalized, according to government officials, in a wave of unrest after Daniel Chapo was confirmed as the winner of Mozambique’s presidential election.`\
 https://nytimes.com/video/world/africa/100000009896373/mozambique-protests-presidential-election.html
