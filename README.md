@@ -1,3 +1,11 @@
+**This Hanukkah, Choose Light Over Heat**\
+`We follow the wisdom of the ancient rabbis in approaching both the holiday and this era.`\
+https://nytimes.com/2024/12/25/opinion/hanukkah-jewish-tradition.html
+
+**The Gift of an Expectation-Free Christmas**\
+`Sometimes the most unconventional holidays are the most memorable.`\
+https://nytimes.com/2024/12/25/opinion/gifts-christmas-expectations.html
+
 **The Athletic Football Quiz of 2024: Spot the scorer, quotes, stats and finals**\
 `Were you paying attention to all the football storylines in 2024? Take our devilish quiz to see how much you remember`\
 https://nytimes.com/athletic/5998603/2024/12/25/the-athletic-football-quiz-spot-scorer-quotes-finals/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/25/briefing/holiday-briefing.html
 **Released From a Russian Prison, This Activist Got Right to Work**\
 `Vladimir Kara-Murza, a vehement critic of President Vladimir V. Putin, didn’t want to be part of a prisoner exchange. But he says more exchanges are needed.`\
 https://nytimes.com/2024/12/25/world/europe/vladimir-kara-murza-interview-critic-putin.html
-
-**Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
-`Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
-https://nytimes.com/athletic/6016942/2024/12/25/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
-
-**Trump’s Re-election Defines a New Era of American Politics**\
-`The Obama-Romney race in 2012 was the last in a familiar pattern in U.S. politics, which has since become defined by Donald Trump’s conservative populism.`\
-https://nytimes.com/2024/12/25/upshot/trump-era-republicans-democrats.html
 
