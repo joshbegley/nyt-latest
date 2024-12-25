@@ -1,3 +1,7 @@
+**Klay Thompson passes Reggie Miller for fifth place on all-time 3s made list**\
+`Thompson's former Warriors teammate, Steph Curry, is atop the list, more than 800 3s ahead of second-place James Harden.`\
+https://nytimes.com/athletic/6018626/2024/12/25/klay-thompson-reggie-miller-nba-3-pointers-record/
+
 **ESPN's 'Dunk the Halls' Disney alt-cast brings Mickey Mouse fun to NBA Christmas**\
 `The alt-cast featured animated versions of Knicks and Spurs players with Disney characters occasionally subbing into the action.`\
 https://nytimes.com/athletic/6018846/2024/12/25/espn-mickey-mouse-alt-cast-nba-christmas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018872/2024/12/25/victor-wembanyama-historic-nba-c
 **Mozambique Election Ruling Sets Off Deadly Protests**\
 `Hundreds of buildings were looted or vandalized, according to government officials, in a wave of unrest after Daniel Chapo was confirmed as the winner of Mozambique’s presidential election.`\
 https://nytimes.com/video/world/africa/100000009896373/mozambique-protests-presidential-election.html
-
-**Subway Burning Highlights Difficulty of Identifying Homeless Victims**\
-`It can be challenging to identify the bodies of people who were homeless when they died. For a woman killed Sunday on an F train, the circumstances of her death could make it even harder.`\
-https://nytimes.com/2024/12/25/nyregion/subway-fire-death-victim.html
 

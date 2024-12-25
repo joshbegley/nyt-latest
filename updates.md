@@ -1,3 +1,7 @@
+**Klay Thompson passes Reggie Miller for fifth place on all-time 3s made list**\
+`Thompson's former Warriors teammate, Steph Curry, is atop the list, more than 800 3s ahead of second-place James Harden.`\
+https://nytimes.com/athletic/6018626/2024/12/25/klay-thompson-reggie-miller-nba-3-pointers-record/
+
 **ESPN's 'Dunk the Halls' Disney alt-cast brings Mickey Mouse fun to NBA Christmas**\
 `The alt-cast featured animated versions of Knicks and Spurs players with Disney characters occasionally subbing into the action.`\
 https://nytimes.com/athletic/6018846/2024/12/25/espn-mickey-mouse-alt-cast-nba-christmas/
