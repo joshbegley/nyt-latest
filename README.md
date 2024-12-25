@@ -1,3 +1,7 @@
+**Corrections: Dec. 25, 2024**\
+`Corrections that appeared in print on Wednesday, Dec. 25, 2024.`\
+https://nytimes.com/2024/12/24/pageoneplus/corrections-dec-25-2024.html
+
 **Bird Flu Kills 20 Big Cats at Washington Sanctuary**\
 `Archival footage shows Tabbi, a half-Bengal tiger, and Thumper, a Eurasian lynx, playing at the Wild Felid Advocacy Center of Washington. They were among 20 big cats that died from bird flu at the sanctuary.`\
 https://nytimes.com/video/science/earth/100000009895845/bird-flu-big-cat-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/world/middleeast/syria-christmas-tree-burning-pro
 **Christmas Tree Burning Ignites Protests in Syria**\
 `Hundreds of people gathered in Christian neighborhoods in Syria’s capital, Damascus, after a video circulated showing an artificial Christmas tree on fire.`\
 https://nytimes.com/video/world/middleeast/100000009895321/christmas-tree-burning-syria-protests.html
-
-**The Evening: Signs of Trouble for Trump’s Spending Cuts**\
-`Plus, celebrating “Chrismukkah.”`\
-https://nytimes.com/2024/12/24/briefing/trump-cuts-american-airlines-michigan-state-chrismukkah.html
 
