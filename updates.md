@@ -1,3 +1,7 @@
+**Passenger Jet Crashes in Kazakhstan With 67 Onboard**\
+`A cabinet official said that at least six people survived, Russia’s state news media reported.`\
+https://nytimes.com/2024/12/25/world/europe/kazakhstan-plane-crash.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/25/crosswords/spelling-bee-forum.html
