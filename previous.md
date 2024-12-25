@@ -1,3 +1,11 @@
+**Trump’s Re-election Defines a New Era of American Politics**\
+`The Obama-Romney race in 2012 was the last in a familiar pattern in U.S. politics, which has since become defined by Donald Trump’s conservative populism.`\
+https://nytimes.com/2024/12/25/upshot/trump-era-republicans-democrats.html
+
+**Quote of the Day: A Tough Nut to Crack: Separating Tchaikovsky From the Kremlin**\
+`Quotation of the Day for Wednesday, December 25, 2024.`\
+https://nytimes.com/2024/12/24/pageoneplus/quote-of-the-day-a-tough-nut-to-crack-separating-tchaikovsky-from-the-kremlin.html
+
 **Whence the Gingerbread Man**\
 `Is Jacob McDermott stringing us along?`\
 https://nytimes.com/2024/12/24/crosswords/daily-puzzle-2024-12-25.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/24/us/big-cat-bird-flu-deaths-washington.html
 **William Labov, Who Studied How Society Shapes Language, Dies at 97**\
 `He laid the foundation for sociolinguistics, and he showed that structures like class and race shaped speech as much as where someone lives.`\
 https://nytimes.com/2024/12/24/us/william-labov-dead.html
-
-**What We Know About the Fatal Burning of a Woman on the Subway**\
-`The woman, who has not been identified, died after a man set her on fire on an F train on Sunday morning. The police have charged a man from Guatemala with murder and arson.`\
-https://nytimes.com/2024/12/24/nyregion/nyc-subway-fire-what-to-know.html
-
-**Burning of a Christmas Tree in Syria Sets Off Protests**\
-`The protests in Damascus broke out after footage circulated online of an artificial Christmas tree on fire in a mostly Christian town as masked men stand around it.`\
-https://nytimes.com/2024/12/24/world/middleeast/syria-christmas-tree-burning-protests.html
 

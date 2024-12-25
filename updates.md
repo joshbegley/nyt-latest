@@ -1,3 +1,11 @@
+**Trump’s Re-election Defines a New Era of American Politics**\
+`The Obama-Romney race in 2012 was the last in a familiar pattern in U.S. politics, which has since become defined by Donald Trump’s conservative populism.`\
+https://nytimes.com/2024/12/25/upshot/trump-era-republicans-democrats.html
+
+**Quote of the Day: A Tough Nut to Crack: Separating Tchaikovsky From the Kremlin**\
+`Quotation of the Day for Wednesday, December 25, 2024.`\
+https://nytimes.com/2024/12/24/pageoneplus/quote-of-the-day-a-tough-nut-to-crack-separating-tchaikovsky-from-the-kremlin.html
+
 **Whence the Gingerbread Man**\
 `Is Jacob McDermott stringing us along?`\
 https://nytimes.com/2024/12/24/crosswords/daily-puzzle-2024-12-25.html
