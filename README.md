@@ -1,3 +1,11 @@
+**Syria’s New Leaders Try to Unite Rebel Factions Under a Single Government**\
+`The fighters who ousted Bashar al-Assad are aiming to transform their revolutionary movement and assert control over the country.`\
+https://nytimes.com/2024/12/25/world/middleeast/syria-rebels-government-assad.html
+
+**‘Nosferatu’ | Anatomy of a Scene**\
+`Robert Eggers narrates a sequence from his film featuring Nicholas Hoult.`\
+https://nytimes.com/video/movies/100000009891560/nosferatu-scene.html
+
 **What Keeps Us Going**\
 `Times Opinion staffers share how they escaped it all this year.`\
 https://nytimes.com/2024/12/25/briefing/memes-movies-music-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/25/movies/-a-complete-unknown-review.html
 **NFL Week 17 roundtable: Who wins Chiefs-Steelers? Does Seahawks' success hinge on playoffs?**\
 `The NFL's busy holiday slate kicks off with a rare Wednesday doubleheader of four AFC teams fighting for postseason positioning.`\
 https://nytimes.com/athletic/6017834/2024/12/25/nfl-week-17-roundtable-chiefs-steelers-seahawks-playoff-picture-christmas/
-
-**Week 17 N.F.L. Playoff Picture: A Team-by-Team Guide**\
-`With two weeks to go in the N.F.L. season, these detailed tables and scenarios explain every team’s paths to the playoffs — and to better seeding.`\
-https://nytimes.com/interactive/2024/12/25/upshot/nfl-playoff-picture-week-17.html
-
-**Cyclone on French Archipelago Exposes Resentments Over Immigrants**\
-`In the ruins left by Cyclone Chido, people from Mayotte, off the eastern coast of Africa, are calling to deport the undocumented immigrants who had settled there from neighboring islands.`\
-https://nytimes.com/2024/12/25/world/africa/mayotte-cyclone-chido-immigrants.html
 
