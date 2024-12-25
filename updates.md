@@ -1,3 +1,11 @@
+**Sharing a Bedroom With My Partner and Her Siblings for the Holidays: Odd or Not?**\
+`A reader is less than comfortable sleeping feet away from her partner’s adult siblings (and their partners), but is it worth it to keep the peace?`\
+https://nytimes.com/2024/12/25/style/visiting-home-shared-bedrooms.html
+
+**Wish the Trump Administration Well? Nope.**\
+`Readers disagree with Bret Stephens. Also: Biden’s commutation of death sentences; a suspect’s immigration status; threats to the economy.`\
+https://nytimes.com/2024/12/25/opinion/letters/trump-administration.html
+
 **Pope Calls for Peace on Christmas as Church Begins Jubilee Year Celebrations**\
 `Pope Francis’ Christmas message was a plea for reconciliation, peace and care for others.`\
 https://nytimes.com/2024/12/25/world/europe/pope-francis-christmas-jubilee-peace.html
