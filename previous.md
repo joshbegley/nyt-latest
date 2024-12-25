@@ -1,3 +1,7 @@
+**A Donor Gave Graduates a Big Cash Gift. Why Didn’t They All Get One?**\
+`A billionaire gave $1,000 to University of Massachusetts Dartmouth graduates in May. You had to be there.`\
+https://nytimes.com/2024/12/25/your-money/umass-dartmouth-billionaire-charity.html
+
 **We Won’t Go Until We Get Some Cinnamon Toast Cookies**\
 `And more delightful — and easy — sweet treats for a very happy holiday.`\
 https://nytimes.com/2024/12/25/dining/holiday-breakfast-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015597/2024/12/25/nfl-week-17-fantasy-betting-chea
 **Sharing a Bedroom With My Partner and Her Siblings for the Holidays: Odd or Not?**\
 `A reader is less than comfortable sleeping feet away from her partner’s adult siblings (and their partners), but is it worth it to keep the peace?`\
 https://nytimes.com/2024/12/25/style/visiting-home-shared-bedrooms.html
-
-**Wish the Trump Administration Well? Nope.**\
-`Readers disagree with Bret Stephens. Also: Biden’s commutation of death sentences; a suspect’s immigration status; threats to the economy.`\
-https://nytimes.com/2024/12/25/opinion/letters/trump-administration.html
 

@@ -1,3 +1,7 @@
+**A Donor Gave Graduates a Big Cash Gift. Why Didn’t They All Get One?**\
+`A billionaire gave $1,000 to University of Massachusetts Dartmouth graduates in May. You had to be there.`\
+https://nytimes.com/2024/12/25/your-money/umass-dartmouth-billionaire-charity.html
+
 **NFL Week 17 fantasy football, betting cheat sheet: George Pickens active against Chiefs**\
 `Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
 https://nytimes.com/athletic/6015597/2024/12/25/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
