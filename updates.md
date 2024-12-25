@@ -1,3 +1,7 @@
+**NFL Week 17 fantasy football, betting cheat sheet: George Pickens feels good**\
+`Who's in and who's out for Week 17. Plus weather reports, Jake Ciely's waiver wire advice. `\
+https://nytimes.com/athletic/6015597/2024/12/25/nfl-week-17-fantasy-betting-cheat-sheet-holiday/
+
 **Sharing a Bedroom With My Partner and Her Siblings for the Holidays: Odd or Not?**\
 `A reader is less than comfortable sleeping feet away from her partner’s adult siblings (and their partners), but is it worth it to keep the peace?`\
 https://nytimes.com/2024/12/25/style/visiting-home-shared-bedrooms.html
