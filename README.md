@@ -1,3 +1,7 @@
+**His father's illness drew him away from basketball. Now Andrew Wiggins is rediscovering his joy**\
+`Andrew Wiggins felt helpless watching his father suffer, but he has rediscovered his spirit and found reconnection in his memory.`\
+https://nytimes.com/athletic/6018536/2024/12/25/andrew-wiggins-father-warriors-nba/
+
 **The Connections Companion No. 564**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Dec. 26, 2024.`\
 https://nytimes.com/2024/12/25/crosswords/connections-companion-564.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/world/africa/mayotte-cyclone-chido-immigrants.htm
 **This 127-Year-Old Christmas Contest Has an Unusual Star: The Radish**\
 `In southern Mexico, a city dazzles with a celebration of its rich culture and history through a radish-carving competition, a cherished tradition upheld by generations of families.`\
 https://nytimes.com/2024/12/25/world/americas/oaxaca-radish-contest-mexico.html
-
-**In ‘Babygirl’ Nicole Kidman Wants Him. But What Does Harris Dickinson Want?**\
-`The rising British actor has a sexy star turn opposite in the new film, but he is of two minds when it comes to his career: “Acting is neurotic.”`\
-https://nytimes.com/2024/12/25/movies/harris-dickinson-nicole-kidman-babygirl.html
 

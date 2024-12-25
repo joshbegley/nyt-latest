@@ -1,3 +1,15 @@
+**The Connections Companion No. 564**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 26, 2024.`\
+https://nytimes.com/2024/12/25/crosswords/connections-companion-564.html
+
+**Joni Mitchell Never Lies**\
+`Our critic Wesley Morris on why the queen of folk is still in command.`\
+https://nytimes.com/2024/12/25/podcasts/the-daily/joni-mitchell-blue.html
+
+**Wordle Review No. 1,286**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 26, 2024.`\
+https://nytimes.com/2024/12/25/crosswords/wordle-review-1286.html
+
 **Most interesting NBA awards: An unknown Rookie of the Year? Wide-open Most Improved race?**\
 `These aren't NBA award picks or predictions (for the most part). These races are where the most drama appears to be.`\
 https://nytimes.com/athletic/6018197/2024/12/25/nba-awards-races-mvp-rookie-of-the-year/
