@@ -1,3 +1,11 @@
+**Edwards: With 'special' Christmas outing, Mikal Bridges catches people up to speed**\
+`You may have heard otherwise, but Mikal Bridges has been playing well in New York. His Christmas performance was simply a culmination. `\
+https://nytimes.com/athletic/6018944/2024/12/25/mikal-bridges-knicks-spurs-christmas/
+
+**Pope Francis’s Christmas Message Calls for Peace Amid War**\
+`Pope Francis called for cease-fires for the conflicts in Ukraine and in the Middle East during his Christmas message in St. Peter’s Square in Vatican City.`\
+https://nytimes.com/video/world/europe/100000009896551/pope-christmas-message.html
+
 **Chiefs handle Steelers 29-10 on Christmas to secure AFC top seed: Takeaways**\
 `Mahomes had his first 300-yard, three-touchdown game since Week 7 of 2023.`\
 https://nytimes.com/athletic/6018906/2024/12/25/chiefs-steelers-score-result-takeaways-nfl-christmas/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/25/briefing/syria-mozambique-ukraine.html
 **Luka Dončić exits Mavericks' Christmas game with calf injury**\
 `The Mavericks superstar had missed two recent games with a heel injury.`\
 https://nytimes.com/athletic/6018931/2024/12/25/luka-doncic-injury-mavericks/
-
-**We Could Have Had Ozempic Nearly 40 Years Ago**\
-`Researchers identified one key breakthrough for GLP-1 drugs in the 1980s, but Pfizer walked away.`\
-https://nytimes.com/2024/12/25/opinion/ozempic-weight-loss-pfizer-diabetes.html
-
-**Jacques Roubaud, Poetic Master of Form and Whimsy, Dies at 92**\
-`He was trained as a mathematician, but he gained fame in France, and won major prizes, for his modern verse.`\
-https://nytimes.com/2024/12/25/books/jacques-roubaud-poetic-master-of-form-and-whimsy-dies-at-92.html
 
