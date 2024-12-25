@@ -1,3 +1,7 @@
+**Desi Bouterse, Fugitive Former Dictator of Suriname, Dies at 79**\
+`He took power in a military coup in 1980 and later served as the country’s president. He was also convicted of ordering the murder of 15 political opponents.`\
+https://nytimes.com/2024/12/25/world/americas/bouterse-suriname-dead.html
+
 **A Donor Gave Graduates a Big Cash Gift. Why Didn’t They All Get One?**\
 `A billionaire gave $1,000 to University of Massachusetts Dartmouth graduates in May. You had to be there.`\
 https://nytimes.com/2024/12/25/your-money/umass-dartmouth-billionaire-charity.html
