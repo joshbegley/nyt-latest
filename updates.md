@@ -1,3 +1,7 @@
+**Davies back in Tottenham training, could be fit for Wolves game**\
+`Ben Davies could be available for Tottenham Hotspur against Wolverhampton Wanderers on Sunday after returning to first-team training.`\
+https://nytimes.com/athletic/6017923/2024/12/25/ben-davies-injury-return-tottenham/
+
 **Edwards: With 'special' Christmas outing, Mikal Bridges catches people up to speed**\
 `You may have heard otherwise, but Mikal Bridges has been playing well in New York. His Christmas performance was simply a culmination. `\
 https://nytimes.com/athletic/6018944/2024/12/25/mikal-bridges-knicks-spurs-christmas/

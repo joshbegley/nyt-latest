@@ -1,3 +1,7 @@
+**Davies back in Tottenham training, could be fit for Wolves game**\
+`Ben Davies could be available for Tottenham Hotspur against Wolverhampton Wanderers on Sunday after returning to first-team training.`\
+https://nytimes.com/athletic/6017923/2024/12/25/ben-davies-injury-return-tottenham/
+
 **Edwards: With 'special' Christmas outing, Mikal Bridges catches people up to speed**\
 `You may have heard otherwise, but Mikal Bridges has been playing well in New York. His Christmas performance was simply a culmination. `\
 https://nytimes.com/athletic/6018944/2024/12/25/mikal-bridges-knicks-spurs-christmas/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/us/mississippi-prison-murderer-manhunt.html
 **Thursday Briefing: Rebel Factions Try to Unite Syria**\
 `Plus, “Squid Game” returns.`\
 https://nytimes.com/2024/12/25/briefing/syria-mozambique-ukraine.html
-
-**Luka Dončić exits Mavericks' Christmas game with calf injury**\
-`The Mavericks superstar had missed two recent games with a heel injury.`\
-https://nytimes.com/athletic/6018931/2024/12/25/luka-doncic-injury-mavericks/
 
