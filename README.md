@@ -1,3 +1,11 @@
+**Data and tactics mailbag: The return of the long ball, who are Europe's best finishers and will Man Utd finish higher than 13th?**\
+`Our writers answer your questions about the mechanics of football`\
+https://nytimes.com/athletic/6015381/2024/12/25/the-athletic-data-and-tactics-mailbag/
+
+**Who makes your Premier League team of the season so far? Our writers pick their XIs**\
+`Palmer, Salah, Saka would make most people's teams - but who would you pick in goal and at full-back? And is Wood a definite up front?`\
+https://nytimes.com/athletic/5998184/2024/12/25/premier-league-team-of-the-season-so-far/
+
 **Why rotating players over the festive period is best for everyone – the science explained**\
 `An injury expert's guide to using and resting players over Christmas`\
 https://nytimes.com/athletic/6015095/2024/12/25/squad-rotation-premier-league-manchester-united/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/24/pageoneplus/quote-of-the-day-a-tough-nut-to-crack
 **Whence the Gingerbread Man**\
 `Is Jacob McDermott stringing us along?`\
 https://nytimes.com/2024/12/24/crosswords/daily-puzzle-2024-12-25.html
-
-**Corrections: Dec. 25, 2024**\
-`Corrections that appeared in print on Wednesday, Dec. 25, 2024.`\
-https://nytimes.com/2024/12/24/pageoneplus/corrections-dec-25-2024.html
-
-**Bird Flu Kills 20 Big Cats at Washington Sanctuary**\
-`Archival footage shows Tabbi, a half-Bengal tiger, and Thumper, a Eurasian lynx, playing at the Wild Felid Advocacy Center of Washington. They were among 20 big cats that died from bird flu at the sanctuary.`\
-https://nytimes.com/video/science/earth/100000009895845/bird-flu-big-cat-death.html
 
