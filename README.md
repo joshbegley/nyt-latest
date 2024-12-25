@@ -1,3 +1,7 @@
+**‘A Complete Unknown’ Review: Timothée Chalamet Goes Electric**\
+`The actor stars as a young Bob Dylan, who woos folk followers only to betray them later at the 1965 Newport Folk Festival.`\
+https://nytimes.com/2024/12/25/movies/-a-complete-unknown-review.html
+
 **NFL Week 17 roundtable: Who wins Chiefs-Steelers? Does Seahawks' success hinge on playoffs?**\
 `The NFL's busy holiday slate kicks off with a rare Wednesday doubleheader of four AFC teams fighting for postseason positioning.`\
 https://nytimes.com/athletic/6017834/2024/12/25/nfl-week-17-roundtable-chiefs-steelers-seahawks-playoff-picture-christmas/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/nyregion/betty-gordon-new-york-stoned-crow.html
 **From Fighters to Policemen in a Post-Assad Damascus**\
 `As the rebels who ousted Syria’s longtime dictator, Bashar al-Assad, transition from insurgents to administrators, maintaining order in the streets of the capital has become a top priority.`\
 https://nytimes.com/video/world/middleeast/100000009885344/syria-rebels-police-damascus.html
-
-**Coming to a Tiny Airport Near You: New Airlines**\
-`Avelo Airlines and Breeze Airways have found success and loyal customers by serving airports in smaller cities, like New Haven, Conn., that were neglected by national carriers.`\
-https://nytimes.com/2024/12/25/business/avelo-breeze-small-airports.html
 
