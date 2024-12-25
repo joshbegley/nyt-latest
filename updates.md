@@ -1,3 +1,7 @@
+**Charli! Mk.gee! MJ! Debating the Best Albums of the Year.**\
+`A conversation about how peak pop stars are thinking of LPs in an increasingly singles-driven landscape.`\
+https://nytimes.com/2024/12/25/arts/music/popcast-best-albums-2024.html
+
 **In New Mexico, a Democratic Governor Wants to Get Tough on Crime**\
 `Gov. Michelle Lujan Grisham has clashed with her own party over how to tackle the nexus of addiction, mental illness and violence in New Mexico.`\
 https://nytimes.com/2024/12/25/business/new-mexico-michelle-grisham-crime.html
