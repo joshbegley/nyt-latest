@@ -1,3 +1,7 @@
+**Most interesting NBA awards: An unknown Rookie of the Year? Wide-open Most Improved race?**\
+`These aren't NBA award picks or predictions (for the most part). These races are where the most drama appears to be.`\
+https://nytimes.com/athletic/6018197/2024/12/25/nba-awards-races-mvp-rookie-of-the-year/
+
 **‘A Complete Unknown’ Review: Timothée Chalamet Goes Electric**\
 `The actor stars as a young Bob Dylan, who woos folk followers only to betray them later at the 1965 Newport Folk Festival.`\
 https://nytimes.com/2024/12/25/movies/-a-complete-unknown-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/travel/carry-on-netflix-movie-thriller.html
 **At 94, She Had One of Her Best Years (and Made Sure Her Friend Did, Too)**\
 `Betty Gordon enjoyed reconnecting with a famous former paramour. But her favorite part of 2024 was helping out a friend in trouble.`\
 https://nytimes.com/2024/12/25/nyregion/betty-gordon-new-york-stoned-crow.html
-
-**From Fighters to Policemen in a Post-Assad Damascus**\
-`As the rebels who ousted Syria’s longtime dictator, Bashar al-Assad, transition from insurgents to administrators, maintaining order in the streets of the capital has become a top priority.`\
-https://nytimes.com/video/world/middleeast/100000009885344/syria-rebels-police-damascus.html
 
