@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/25/crosswords/spelling-bee-forum.html
+
+**You Better Watch Out (for Clichés)**\
+`Do you hear what we hear? It’s The Times’s annual reminder to avoid overused holiday phrases.`\
+https://nytimes.com/2024/12/25/insider/style-guide-christmas.html
+
 **At Least 21 Killed in Clashes Over Mozambique’s Disputed Election Ruling**\
 `Hundreds of buildings were damaged or looted, including schools and hospitals, in a wave of unrest after Daniel Chapo was confirmed as the winner of the presidential election.`\
 https://nytimes.com/2024/12/25/world/africa/mozambique-protests-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6015381/2024/12/25/the-athletic-data-and-tactics-ma
 **Who makes your Premier League team of the season so far? Our writers pick their XIs**\
 `Palmer, Salah, Saka would make most people's teams - but who would you pick in goal and at full-back? And is Wood a definite up front?`\
 https://nytimes.com/athletic/5998184/2024/12/25/premier-league-team-of-the-season-so-far/
-
-**Why rotating players over the festive period is best for everyone – the science explained**\
-`An injury expert's guide to using and resting players over Christmas`\
-https://nytimes.com/athletic/6015095/2024/12/25/squad-rotation-premier-league-manchester-united/
-
-**In Southern Lebanon, Trauma and Grief Mark a Somber Christmas**\
-`The ancient Christian community in the coastal city of Tyre has little cause for celebration this year, with many mourning their dead and still rattled by months of Israeli bombardment.`\
-https://nytimes.com/2024/12/25/world/middleeast/lebanon-christmas-war.html
 
