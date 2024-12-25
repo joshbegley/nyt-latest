@@ -1,3 +1,11 @@
+**Trump Picks Kevin Marino Cabrera for Ambassador to Panama**\
+`The selection of Mr. Cabrera, a Miami-Dade County commissioner, comes a few days after Mr. Trump called for the United States to regain control of the Panama Canal.`\
+https://nytimes.com/2024/12/25/us/politics/panama-ambassador-cabrera-trump.html
+
+**Netflix has up-and-down first foray into NFL broadcasting after early glitch**\
+`Viewers were welcomed to the broadcast with immediate audio issues.`\
+https://nytimes.com/athletic/6018940/2024/12/25/netflix-nfl-broadcasting-streaming-christmas/
+
 **Klay Thompson passes Reggie Miller for fifth place on all-time 3s made list**\
 `Thompson's former Warriors teammate, Steph Curry, is atop the list, more than 800 3s ahead of second-place James Harden.`\
 https://nytimes.com/athletic/6018626/2024/12/25/klay-thompson-reggie-miller-nba-3-pointers-record/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/25/books/jacques-roubaud-poetic-master-of-form-and-w
 **Famine Warning for Northern Gaza Draws U.S. Rebuke and Raises Questions**\
 `The dispute highlights the difficulties with data collection in Gaza that have hampered humanitarian efforts since the war began.`\
 https://nytimes.com/2024/12/25/world/middleeast/northern-gaza-famine-warning-dispute.html
-
-**Wemby has historic Christmas, Bridges stars as Grinch in Knicks comeback**\
-`No player had ever turned in a combination of as many points, rebounds, assists and blocks on Christmas as Wembanyama did Wednesday.`\
-https://nytimes.com/athletic/6018872/2024/12/25/victor-wembanyama-historic-nba-christmas-performance/
-
-**Mozambique Election Ruling Sets Off Deadly Protests**\
-`Hundreds of buildings were looted or vandalized, according to government officials, in a wave of unrest after Daniel Chapo was confirmed as the winner of Mozambique’s presidential election.`\
-https://nytimes.com/video/world/africa/100000009896373/mozambique-protests-presidential-election.html
 
