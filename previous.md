@@ -1,40 +1,40 @@
-**Passenger Jet Crashes in Kazakhstan With 67 Onboard**\
-`Russia’s state aviation authority said the Azerbaijan Airlines plane had been trying to make an emergency landing. The Kazakh authorities said that at least 28 people survived.`\
-https://nytimes.com/2024/12/25/world/europe/kazakhstan-plane-crash.html
+**From Fighters to Policemen in a Post-Assad Damascus**\
+`As the rebels who ousted Syria’s longtime dictator, Bashar al-Assad, transition from insurgents to administrators, maintaining order in the streets of the capital has become a top priority.`\
+https://nytimes.com/video/world/middleeast/100000009885344/syria-rebels-police-damascus.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/25/crosswords/spelling-bee-forum.html
+**Coming to a Tiny Airport Near You: New Airlines**\
+`Avelo Airlines and Breeze Airways have found success and loyal customers by serving airports in smaller cities, like New Haven, Conn., that were neglected by national carriers.`\
+https://nytimes.com/2024/12/25/business/avelo-breeze-small-airports.html
 
-**You Better Watch Out (for Clichés)**\
-`Do you hear what we hear? It’s The Times’s annual reminder to avoid overused holiday phrases.`\
-https://nytimes.com/2024/12/25/insider/style-guide-christmas.html
+**Assist or Resist: Local Officials Debate Trump’s Mass Deportation Threat**\
+`Communities are divided on how much to cooperate with immigration agents. In San Diego, the sheriff has vowed to defy a new policy protecting migrants.`\
+https://nytimes.com/2024/12/25/us/trump-deportations-migrants-san-diego.html
 
-**At Least 21 Killed in Clashes Over Mozambique’s Disputed Election Ruling**\
-`Hundreds of buildings were damaged or looted, including schools and hospitals, in a wave of unrest after Daniel Chapo was confirmed as the winner of the presidential election.`\
-https://nytimes.com/2024/12/25/world/africa/mozambique-protests-election.html
+**‘Vermiglio’ Review: Remote Rites of Passage**\
+`During World War II, life changes for a family in a Northern Italian mountain village when a Sicilian stranger arrives.`\
+https://nytimes.com/2024/12/25/movies/vermiglio-review.html
 
-**Christmas in Pictures: Lights and Color Mark the Season**\
-`Around the world, people found ways to show their holiday spirit.`\
-https://nytimes.com/2024/12/25/world/middleeast/christmas-photos-world-2024.html
+**‘Nosferatu’ Review: Drac’s Back, Sucking Blood and Souls**\
+`The director Robert Eggers dares you to feel seduced in his take on the classic vampire tale, starring Bill Skarsgard and Lily Rose Depp.`\
+https://nytimes.com/2024/12/25/movies/nosferatu-review.html
 
-**This Hanukkah, Choose Light Over Heat**\
-`We follow the wisdom of the ancient rabbis in approaching both the holiday and this era.`\
-https://nytimes.com/2024/12/25/opinion/hanukkah-jewish-tradition.html
+**‘Better Man’ Review: The Boy in the Band**\
+`The singer Robbie Williams’s caustic, often vulnerable narration is the melody that enriches this musical biopic’s otherwise familiar beats of pop stardom.`\
+https://nytimes.com/2024/12/25/movies/better-man-review.html
 
-**The Gift of an Expectation-Free Christmas**\
-`Sometimes the most unconventional holidays are the most memorable.`\
-https://nytimes.com/2024/12/25/opinion/gifts-christmas-expectations.html
+**Beyoncé Halftime Show Gives Netflix Some Pizazz**\
+`As part of its push into live programming, the streaming service is hosting two N.F.L. games and a big musical performance on Christmas.`\
+https://nytimes.com/2024/12/25/arts/television/nfl-games-beyonce-netflix-christmas.html
 
-**The Athletic Football Quiz of 2024: Spot the scorer, quotes, stats and finals**\
-`Were you paying attention to all the football storylines in 2024? Take our devilish quiz to see how much you remember`\
-https://nytimes.com/athletic/5998603/2024/12/25/the-athletic-football-quiz-spot-scorer-quotes-finals/
+**What We Loved in 2024**\
+`The books, movies, habits and hobbies we’ll take with us into the new year.`\
+https://nytimes.com/interactive/2024/12/25/opinion/best-of-2024.html
 
-**The rise and rise of Atalanta - the featherweights fighting for a first ever Serie A title**\
-`Atalanta cannot compete with Serie A's giants when it comes to revenue. But led by the genius of Gasperini, on the pitch they lead the way`\
-https://nytimes.com/athletic/6000867/2024/12/25/atalanta-serie-a-title-race/
+**Who’s Who in ‘A Complete Unknown’: A Guide to the Characters and Stars**\
+`The biopic, with Timothée Chalamet as Bob Dylan, is peppered with figures from the folk world and beyond. These are some of them.`\
+https://nytimes.com/2024/12/25/movies/complete-unknown-bob-dylan-character-guide.html
 
-**Data and tactics mailbag: The return of the long ball, who are Europe's best finishers and will Man Utd finish higher than 13th?**\
-`Our writers answer your questions about the mechanics of football`\
-https://nytimes.com/athletic/6015381/2024/12/25/the-athletic-data-and-tactics-mailbag/
+**Two Men Wrote ‘Messiah.’ You Know One of Them.**\
+`How a contentious friendship between political rivals led to the creation of a classic Christmas anthem of hope.`\
+https://nytimes.com/2024/12/25/opinion/handel-messiah-holiday-hope.html
 
