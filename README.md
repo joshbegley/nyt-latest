@@ -1,3 +1,7 @@
+**Wemby has historic Christmas, Bridges stars as Grinch in Knicks comeback**\
+`No player had ever turned in a combination of as many points, rebounds, assists and blocks on Christmas as Wembanyama did Wednesday.`\
+https://nytimes.com/athletic/6018872/2024/12/25/victor-wembanyama-historic-nba-christmas-performance/
+
 **Mozambique Election Ruling Sets Off Deadly Protests**\
 `Hundreds of buildings were looted or vandalized, according to government officials, in a wave of unrest after Daniel Chapo was confirmed as the winner of Mozambique’s presidential election.`\
 https://nytimes.com/video/world/africa/100000009896373/mozambique-protests-presidential-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/dining/holiday-breakfast-recipes.html
 **If Syrian Chemical Weapons Were Found, the U.S. Army Could Safely Destroy Them**\
 `A civilian team at a base in Maryland disposed of Syrian toxins a decade ago after hundreds of people were killed in a nerve agent attack.`\
 https://nytimes.com/2024/12/25/us/syria-chemical-weapons.html
-
-**King Charles Addresses U.K. Riots and His Cancer in Christmas Speech**\
-`The British monarch recorded his annual holiday address from the chapel of a former hospital, rather than from a palace.`\
-https://nytimes.com/2024/12/25/world/europe/uk-king-charles-christmas.html
 
