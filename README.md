@@ -1,6 +1,6 @@
 **Whence the Gingerbread Man**\
 `Is Jacob McDermott stringing us along?`\
-https://nytimes.com/2024/12/24/crosswords/daily-puzzles-2024-12-25.html
+https://nytimes.com/2024/12/24/crosswords/daily-puzzle-2024-12-25.html
 
 **Corrections: Dec. 25, 2024**\
 `Corrections that appeared in print on Wednesday, Dec. 25, 2024.`\
