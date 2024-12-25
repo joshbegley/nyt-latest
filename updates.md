@@ -1,3 +1,7 @@
+**‘A Complete Unknown’ Review: Timothée Chalamet Goes Electric**\
+`The actor stars as a young Bob Dylan, who woos folk followers only to betray them later at the 1965 Newport Folk Festival.`\
+https://nytimes.com/2024/12/25/movies/-a-complete-unknown-review.html
+
 **NFL Week 17 roundtable: Who wins Chiefs-Steelers? Does Seahawks' success hinge on playoffs?**\
 `The NFL's busy holiday slate kicks off with a rare Wednesday doubleheader of four AFC teams fighting for postseason positioning.`\
 https://nytimes.com/athletic/6017834/2024/12/25/nfl-week-17-roundtable-chiefs-steelers-seahawks-playoff-picture-christmas/
