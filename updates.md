@@ -1,3 +1,7 @@
+**We Won’t Go Until We Get Some Cinnamon Toast Cookies**\
+`And more delightful — and easy — sweet treats for a very happy holiday.`\
+https://nytimes.com/2024/12/25/dining/holiday-breakfast-recipes.html
+
 **If Syrian Chemical Weapons Were Found, the U.S. Army Could Safely Destroy Them**\
 `A civilian team at a base in Maryland disposed of Syrian toxins a decade ago after hundreds of people were killed in a nerve agent attack.`\
 https://nytimes.com/2024/12/25/us/syria-chemical-weapons.html

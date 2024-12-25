@@ -1,3 +1,7 @@
+**We Won’t Go Until We Get Some Cinnamon Toast Cookies**\
+`And more delightful — and easy — sweet treats for a very happy holiday.`\
+https://nytimes.com/2024/12/25/dining/holiday-breakfast-recipes.html
+
 **If Syrian Chemical Weapons Were Found, the U.S. Army Could Safely Destroy Them**\
 `A civilian team at a base in Maryland disposed of Syrian toxins a decade ago after hundreds of people were killed in a nerve agent attack.`\
 https://nytimes.com/2024/12/25/us/syria-chemical-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/style/visiting-home-shared-bedrooms.html
 **Wish the Trump Administration Well? Nope.**\
 `Readers disagree with Bret Stephens. Also: Biden’s commutation of death sentences; a suspect’s immigration status; threats to the economy.`\
 https://nytimes.com/2024/12/25/opinion/letters/trump-administration.html
-
-**Pope Calls for Peace on Christmas as Church Begins Jubilee Year Celebrations**\
-`Pope Francis’ Christmas message was a plea for reconciliation, peace and care for others.`\
-https://nytimes.com/2024/12/25/world/europe/pope-francis-christmas-jubilee-peace.html
 
