@@ -1,3 +1,7 @@
+**Cyclone on French Archipelago Exposes Resentments Over Immigrants**\
+`In the ruins left by Cyclone Chido, people from Mayotte, off the eastern coast of Africa, are calling to deport the undocumented immigrants who had settled there from neighboring islands.`\
+https://nytimes.com/2024/12/25/world/africa/mayotte-cyclone-chido-immigrants.html
+
 **‘A Complete Unknown’ Review: Timothée Chalamet Goes Electric**\
 `The actor stars as a young Bob Dylan, who woos folk followers only to betray them later at the 1965 Newport Folk Festival.`\
 https://nytimes.com/2024/12/25/movies/-a-complete-unknown-review.html
