@@ -1,3 +1,11 @@
+**The Athletic Football Quiz of 2024: Spot the scorer, quotes, stats and finals**\
+`Were you paying attention to all the football storylines in 2024? Take our devilish quiz to see how much you remember`\
+https://nytimes.com/athletic/5998603/2024/12/25/the-athletic-football-quiz-spot-scorer-quotes-finals/
+
+**The rise and rise of Atalanta - the featherweights fighting for a first ever Serie A title**\
+`Atalanta cannot compete with Serie A's giants when it comes to revenue. But led by the genius of Gasperini, on the pitch they lead the way`\
+https://nytimes.com/athletic/6000867/2024/12/25/atalanta-serie-a-title-race/
+
 **Data and tactics mailbag: The return of the long ball, who are Europe's best finishers and will Man Utd finish higher than 13th?**\
 `Our writers answer your questions about the mechanics of football`\
 https://nytimes.com/athletic/6015381/2024/12/25/the-athletic-data-and-tactics-mailbag/
