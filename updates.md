@@ -1,3 +1,7 @@
+**Convicted Murderer Found After Escaping Prison in Mississippi**\
+`The man, who had been serving a life sentence, broke out of the state’s newest prison on Christmas Eve, officials said.`\
+https://nytimes.com/2024/12/25/us/mississippi-prison-murderer-manhunt.html
+
 **Thursday Briefing: Rebel Factions Try to Unite Syria**\
 `Plus, “Squid Game” returns.`\
 https://nytimes.com/2024/12/25/briefing/syria-mozambique-ukraine.html

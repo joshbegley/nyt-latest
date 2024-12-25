@@ -1,3 +1,7 @@
+**Convicted Murderer Found After Escaping Prison in Mississippi**\
+`The man, who had been serving a life sentence, broke out of the state’s newest prison on Christmas Eve, officials said.`\
+https://nytimes.com/2024/12/25/us/mississippi-prison-murderer-manhunt.html
+
 **Thursday Briefing: Rebel Factions Try to Unite Syria**\
 `Plus, “Squid Game” returns.`\
 https://nytimes.com/2024/12/25/briefing/syria-mozambique-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/nyregion/subway-fire-death-victim.html
 **Charli! Mk.gee! MJ! Debating the Best Albums of the Year.**\
 `A conversation about how peak pop stars are thinking of LPs in an increasingly singles-driven landscape.`\
 https://nytimes.com/2024/12/25/arts/music/popcast-best-albums-2024.html
-
-**In New Mexico, a Democratic Governor Wants to Get Tough on Crime**\
-`Gov. Michelle Lujan Grisham has clashed with her own party over how to tackle the nexus of addiction, mental illness and violence in New Mexico.`\
-https://nytimes.com/2024/12/25/business/new-mexico-michelle-grisham-crime.html
 
