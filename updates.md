@@ -1,3 +1,11 @@
+**Trump Picks Kevin Marino Cabrera for Ambassador to Panama**\
+`The selection of Mr. Cabrera, a Miami-Dade County commissioner, comes a few days after Mr. Trump called for the United States to regain control of the Panama Canal.`\
+https://nytimes.com/2024/12/25/us/politics/panama-ambassador-cabrera-trump.html
+
+**Netflix has up-and-down first foray into NFL broadcasting after early glitch**\
+`Viewers were welcomed to the broadcast with immediate audio issues.`\
+https://nytimes.com/athletic/6018940/2024/12/25/netflix-nfl-broadcasting-streaming-christmas/
+
 **Klay Thompson passes Reggie Miller for fifth place on all-time 3s made list**\
 `Thompson's former Warriors teammate, Steph Curry, is atop the list, more than 800 3s ahead of second-place James Harden.`\
 https://nytimes.com/athletic/6018626/2024/12/25/klay-thompson-reggie-miller-nba-3-pointers-record/
