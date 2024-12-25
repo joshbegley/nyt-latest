@@ -1,3 +1,15 @@
+**The Connections Companion No. 564**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 26, 2024.`\
+https://nytimes.com/2024/12/25/crosswords/connections-companion-564.html
+
+**Joni Mitchell Never Lies**\
+`Our critic Wesley Morris on why the queen of folk is still in command.`\
+https://nytimes.com/2024/12/25/podcasts/the-daily/joni-mitchell-blue.html
+
+**Wordle Review No. 1,286**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Dec. 26, 2024.`\
+https://nytimes.com/2024/12/25/crosswords/wordle-review-1286.html
+
 **Most interesting NBA awards: An unknown Rookie of the Year? Wide-open Most Improved race?**\
 `These aren't NBA award picks or predictions (for the most part). These races are where the most drama appears to be.`\
 https://nytimes.com/athletic/6018197/2024/12/25/nba-awards-races-mvp-rookie-of-the-year/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/25/world/americas/oaxaca-radish-contest-mexico.html
 **In ‘Babygirl’ Nicole Kidman Wants Him. But What Does Harris Dickinson Want?**\
 `The rising British actor has a sexy star turn opposite in the new film, but he is of two minds when it comes to his career: “Acting is neurotic.”`\
 https://nytimes.com/2024/12/25/movies/harris-dickinson-nicole-kidman-babygirl.html
-
-**$700,00 Homes in Georgia, Massachusetts and Maryland**\
-`A brick house in Savanah, a converted schoolhouse in Salem and a colonial-revival house in Takoma Park.`\
-https://nytimes.com/2024/12/25/realestate/70000-dollar-homes-in-georgia-massachusetts-and-maryland.html
-
-**The Writer of the Netflix Hit ‘Carry-On’ Talks About the ‘Trolley Problem’ and the T. S.A.**\
-`T.J. Fixman on what makes an exciting Christmas thriller, his own interactions with airport security and what you shouldn’t leave in your luggage.`\
-https://nytimes.com/2024/12/25/travel/carry-on-netflix-movie-thriller.html
-
-**At 94, She Had One of Her Best Years (and Made Sure Her Friend Did, Too)**\
-`Betty Gordon enjoyed reconnecting with a famous former paramour. But her favorite part of 2024 was helping out a friend in trouble.`\
-https://nytimes.com/2024/12/25/nyregion/betty-gordon-new-york-stoned-crow.html
 
