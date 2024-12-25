@@ -1,3 +1,7 @@
+**Mozambique Election Ruling Sets Off Deadly Protests**\
+`Hundreds of buildings were looted or vandalized, according to government officials, in a wave of unrest after Daniel Chapo was confirmed as the winner of Mozambique’s presidential election.`\
+https://nytimes.com/video/world/africa/100000009896373/mozambique-protests-presidential-election.html
+
 **Subway Burning Highlights Difficulty of Identifying Homeless Victims**\
 `It can be challenging to identify the bodies of people who were homeless when they died. For a woman killed Sunday on an F train, the circumstances of her death could make it even harder.`\
 https://nytimes.com/2024/12/25/nyregion/subway-fire-death-victim.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/us/syria-chemical-weapons.html
 **King Charles Addresses U.K. Riots and His Cancer in Christmas Speech**\
 `The British monarch recorded his annual holiday address from the chapel of a former hospital, rather than from a palace.`\
 https://nytimes.com/2024/12/25/world/europe/uk-king-charles-christmas.html
-
-**Will Trump Cut Short the Biden Clean-Energy Boom? Investors Are Nervous.**\
-`President-elect Donald J. Trump is expected to roll back many of the rules and subsidies that have attracted billions of dollars from the private sector to renewable energy and electric vehicles.`\
-https://nytimes.com/2024/12/25/business/energy-environment/trump-clean-energy-finance.html
 

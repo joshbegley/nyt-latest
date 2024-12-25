@@ -1,3 +1,7 @@
+**Mozambique Election Ruling Sets Off Deadly Protests**\
+`Hundreds of buildings were looted or vandalized, according to government officials, in a wave of unrest after Daniel Chapo was confirmed as the winner of Mozambique’s presidential election.`\
+https://nytimes.com/video/world/africa/100000009896373/mozambique-protests-presidential-election.html
+
 **Subway Burning Highlights Difficulty of Identifying Homeless Victims**\
 `It can be challenging to identify the bodies of people who were homeless when they died. For a woman killed Sunday on an F train, the circumstances of her death could make it even harder.`\
 https://nytimes.com/2024/12/25/nyregion/subway-fire-death-victim.html
