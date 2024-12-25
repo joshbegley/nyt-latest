@@ -1,3 +1,7 @@
+**Whence the Gingerbread Man**\
+`Is Jacob McDermott stringing us along?`\
+https://nytimes.com/2024/12/24/crosswords/daily-puzzles-2024-12-25.html
+
 **Corrections: Dec. 25, 2024**\
 `Corrections that appeared in print on Wednesday, Dec. 25, 2024.`\
 https://nytimes.com/2024/12/24/pageoneplus/corrections-dec-25-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/24/nyregion/nyc-subway-fire-what-to-know.html
 **Burning of a Christmas Tree in Syria Sets Off Protests**\
 `The protests in Damascus broke out after footage circulated online of an artificial Christmas tree on fire in a mostly Christian town as masked men stand around it.`\
 https://nytimes.com/2024/12/24/world/middleeast/syria-christmas-tree-burning-protests.html
-
-**Christmas Tree Burning Ignites Protests in Syria**\
-`Hundreds of people gathered in Christian neighborhoods in Syria’s capital, Damascus, after a video circulated showing an artificial Christmas tree on fire.`\
-https://nytimes.com/video/world/middleeast/100000009895321/christmas-tree-burning-syria-protests.html
 
