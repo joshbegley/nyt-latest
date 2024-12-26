@@ -1,3 +1,7 @@
+**Lakers beat Warriors 115-113, Anthony Davis leaves game with sprain**\
+`Without leading scorer Anthony Davis and amid a Curry 3-point flurry, the Lakers leaned on Austin Reaves.`\
+https://nytimes.com/athletic/6019121/2024/12/25/anthony-davis-lakers-warriors-ankle-sprain/
+
 **How the Premier League became too expensive even for Amazon - as the internet giant's deal ends**\
 `After six years, Amazon will stream no more Premier League matches - here's why`\
 https://nytimes.com/athletic/6009822/2024/12/26/how-the-premier-league-became-too-expensive-even-for-amazon/
