@@ -1,3 +1,11 @@
+**Kevin Durant after Suns' Christmas win: NBA here to stay, 'but we're in a rough patch'**\
+`Television viewership is down from this time a year ago. This matters to Kevin Durant, a 14-time All-Star who's seen what the NBA can do.`\
+https://nytimes.com/athletic/6019258/2024/12/26/kevin-durant-after-suns-christmas-win-nba-here-to-stay-but-in-a-rough-patch/
+
+**What's next for college football's patchwork bowl season?**\
+`The new marketplace has forced bowls to change the way they do business.`\
+https://nytimes.com/athletic/6016898/2024/12/26/college-football-bowl-season-ratings-money/
+
 **49ers mailbag: Nick Zakelj among the most interesting 49ers to watch on Monday**\
 `Among the questions this week: Will the 49ers alter their philosophy and draft a tackle in Round 1? Also, is this it for Jake Moody?`\
 https://nytimes.com/athletic/6018479/2024/12/26/49ers-mailbag-nick-zakelj-players-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/26/business/holiday-season-sales-mastercard.html
 **‘Mr. Deeds Goes to Town’: Frank Capra’s Two-Fisted Santa**\
 `This 1936 comedy, starring Gary Cooper and showing for a week at Film Forum, turns the tables on the period’s metropolitan melodramas.`\
 https://nytimes.com/2024/12/26/movies/mr-deeds-goes-to-town-film-forum.html
-
-**The Year in News**\
-`An election. A shooting. A solar eclipse. Wars in the Middle East and Ukraine.`\
-https://nytimes.com/2024/12/26/briefing/the-year-in-news.html
-
-**The Athletic FC: Man City & Real Madrid eye transfer deals, team of the season (so far)**\
-`Today in TAFC: Manchester City and Real Madrid might need to make moves in January. Plus Phil's team of the season (so far)`\
-https://nytimes.com/athletic/6001241/2024/12/26/transfers-manchester-city-real-madrid/
 
