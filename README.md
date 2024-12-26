@@ -1,3 +1,7 @@
+**The January Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
+`The January transfer window opens in a week — this is what to expect from that period`\
+https://nytimes.com/athletic/6001248/2024/12/26/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-barcelona-chelsea/
+
 **Nottingham Forest Transfer DealSheet: What to expect in the January window**\
 `Nuno's priority during the window will be to ensure Forest take a step forward — and not backwards — with any business they do`\
 https://nytimes.com/athletic/6015473/2024/12/26/nottingham-forest-transfers-january-window/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000938/2024/12/26/real-madrid-transfers-alexander-
 **Aston Villa Transfer DealSheet: What to expect in the January window**\
 `What positions are Villa looking at? Could their be exits? How much is PSR still a concern?`\
 https://nytimes.com/athletic/5962891/2024/12/26/aston-villa-transfer-dealsheet-what-to-expect-in-the-january-window/
-
-**Arsenal Transfer DealSheet: What to expect in the January window**\
-`Arsenal are doing well in the Premier League and have plans for the January transfer window`\
-https://nytimes.com/athletic/6003346/2024/12/26/arsenal-transfer-dealsheet-what-to-expect-in-the-january-window/
 
