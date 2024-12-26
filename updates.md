@@ -1,3 +1,23 @@
+**20 Years Since the Deadly Tsunami in Asia**\
+`A look back at the horrible loss of life.`\
+https://nytimes.com/2024/12/26/world/asia/tsunami-anniversary-photos.html
+
+**Thursday Briefing**\
+`Christmas Day attacks on Ukraine.`\
+https://nytimes.com/2024/12/26/briefing/thursday-briefing.html
+
+**The Deadliest Tsunami Set Off Work to Be Ready for the Next Big Wave**\
+`Experts said they were “blind” to the Indian Ocean tsunami in 2004. Twenty years later, working toward a world without tsunami deaths is a challenge.`\
+https://nytimes.com/2024/12/26/science/tsunami-2004-20th-anniversary.html
+
+**The War Killed Her Dreams. To Survive, She Treated Its Fighters.**\
+`Trapped in Sudan’s brutal civil war, a young woman chose to work in a clinic on the front line, treating civilians and combatants. She had to navigate suspicion from both sides.`\
+https://nytimes.com/2024/12/26/world/africa/sudan-war-rsf-medical-clinic.html
+
+**Still Sounding Young at 85, She Is the Voice of Old Japan**\
+`Midori Kato is the last original member of the cast of “Sazae-san,” a cartoon series that premiered in 1969 and never quite joined the modern world.`\
+https://nytimes.com/2024/12/26/world/asia/japan-society-television-cartoon-sazae.html
+
 **Quote of the Day: Born Into the House of Lords And Preparing to Be Evicted**\
 `Quotation of the Day for Thursday, December 26, 2024.`\
 https://nytimes.com/2024/12/25/pageoneplus/quote-of-the-day-born-into-the-house-of-lords-and-preparing-to-be-evicted.html
