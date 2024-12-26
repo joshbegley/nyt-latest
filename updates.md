@@ -1,3 +1,11 @@
+**Why Ollie Palmer is Wrexham's ultimate team player**\
+`The striker's goalscoring statistics are nothing to shout about but Palmer's all-round contribution is much more significant`\
+https://nytimes.com/athletic/6015128/2024/12/26/wrexham-ollie-palmer-striker-blackpool/
+
+**Until Saturday: Best of 2024, plus this weekend's top bowls**\
+`Welcome to Until Saturday, the five-star college football newsletter: What were the biggest moments of 2024?`\
+https://nytimes.com/athletic/6020217/2024/12/26/college-football-2024-review-bowl-games-until-saturday/
+
 **Friday Briefing: How Israel Weakened Civilian Protections**\
 `Plus, video games can’t afford to look this good.`\
 https://nytimes.com/2024/12/26/briefing/israel-plane-crash-russia-tsunami.html
