@@ -1,3 +1,7 @@
+**Teens, Parents and Pornography: We Need to Talk**\
+`Readers discuss the need for frank discussions about porn. Also: Luigi Mangione; pediatric cancer bills; our environmental focus; the obesity crisis.`\
+https://nytimes.com/2024/12/26/opinion/letters/teens-parents-pornography.html
+
 **Miami coach Larrañaga expected to step down 2 years after Final Four run**\
 `Larranaga, who turned 75 in October, began coaching in 1971 as an assistant and compiled a 744-505 career record as a head coach.`\
 https://nytimes.com/athletic/6019715/2024/12/26/miami-basketball-jim-larranaga-stepping-down/
