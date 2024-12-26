@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 3-1 Leicester - Seven points clear... but what changed at half-time?**\
+`The big talking points analysed as Arne Slot's side stretched their Premier League lead`\
+https://nytimes.com/athletic/6017805/2024/12/26/liverpool-leicester-result-analysis/
+
 **Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
 `Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
 https://nytimes.com/athletic/6016942/2024/12/26/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/

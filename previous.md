@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 3-1 Leicester - Seven points clear... but what changed at half-time?**\
+`The big talking points analysed as Arne Slot's side stretched their Premier League lead`\
+https://nytimes.com/athletic/6017805/2024/12/26/liverpool-leicester-result-analysis/
+
 **Shyam Benegal, Indian Filmmaker Who Explored Social Issues, Dies at 90**\
 `He won acclaim from critics and audiences even as the gritty stories he put on the big screen grappled with some of India’s thorniest problems.`\
 https://nytimes.com/2024/12/26/movies/shyam-benegal-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/us/dorthy-moxley-dead.html
 **Richard Parsons, Serial Fixer of Media and Finance Giants, Dies at 76**\
 `Mr. Parsons’s lengthy résumé is a catalog of corporate emergencies at Time Warner, Citigroup and the Los Angeles Clippers.`\
 https://nytimes.com/2024/12/26/business/media/richard-parsons-dead.html
-
-**Trump Wants U.S. Control of the Panama Canal. Here’s Three Things to Know.**\
-`Treaties ratified by the Senate in 1978 established permanent neutrality, but some Republicans regret that decision.`\
-https://nytimes.com/2024/12/26/us/politics/trump-panama-canal.html
 
