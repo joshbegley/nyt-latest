@@ -1,3 +1,7 @@
+**Sporting sack Amorim's replacement after six weeks in charge**\
+`Sporting CP have sacked Joao Pereira after just six weeks as their head coach.`\
+https://nytimes.com/athletic/6016453/2024/12/26/joao-pereira-sporting-cp-amorim/
+
 **In C.E.O. Murder Case, a Test of New York’s Antiterrorism Laws**\
 `The Manhattan district attorney has brought a terrorism charge against the man accused of killing a health insurance executive, arguing that he intended to “sow fear.”`\
 https://nytimes.com/2024/12/26/nyregion/luigi-mangione-terrorism-charge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003874/2024/12/26/liverpool-transfers-january-wind
 **Leeds United Transfer DealSheet: What to expect in the January window**\
 `Leeds are doing well in the Championship, but the January window could be important for the rest of their season`\
 https://nytimes.com/athletic/5954734/2024/12/26/leeds-transfers-latest-january-window/
-
-**Newcastle United Transfer DealSheet: What to expect in the January window**\
-`Right-wing, centre-back and goalkeeper are priorities – but sales are needed`\
-https://nytimes.com/athletic/6003049/2024/12/26/newcastle-united-transfer-dealsheet-what-to-expect-in-the-january-window/
 

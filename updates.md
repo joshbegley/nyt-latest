@@ -1,3 +1,7 @@
+**Sporting sack Amorim's replacement after six weeks in charge**\
+`Sporting CP have sacked Joao Pereira after just six weeks as their head coach.`\
+https://nytimes.com/athletic/6016453/2024/12/26/joao-pereira-sporting-cp-amorim/
+
 **In C.E.O. Murder Case, a Test of New York’s Antiterrorism Laws**\
 `The Manhattan district attorney has brought a terrorism charge against the man accused of killing a health insurance executive, arguing that he intended to “sow fear.”`\
 https://nytimes.com/2024/12/26/nyregion/luigi-mangione-terrorism-charge.html
