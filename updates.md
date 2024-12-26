@@ -1,3 +1,7 @@
+**Trump Wants U.S. Control of the Panama Canal. Here’s Three Things to Know.**\
+`Treaties ratified by the Senate in 1978 established permanent neutrality, but some Republicans regret that decision.`\
+https://nytimes.com/2024/12/26/us/politics/trump-panama-canal.html
+
 **Marianne Williamson Announces Long-Shot Bid to Lead the D.N.C.**\
 `The self-help author has twice run unsuccessfully for the Democratic presidential nomination.`\
 https://nytimes.com/2024/12/26/us/politics/marianne-williamson-dnc-chair.html

@@ -1,3 +1,7 @@
+**Trump Wants U.S. Control of the Panama Canal. Here’s Three Things to Know.**\
+`Treaties ratified by the Senate in 1978 established permanent neutrality, but some Republicans regret that decision.`\
+https://nytimes.com/2024/12/26/us/politics/trump-panama-canal.html
+
 **Marianne Williamson Announces Long-Shot Bid to Lead the D.N.C.**\
 `The self-help author has twice run unsuccessfully for the Democratic presidential nomination.`\
 https://nytimes.com/2024/12/26/us/politics/marianne-williamson-dnc-chair.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/briefing/holiday-briefing-special-edition.html
 **The Briefing: Wolves 2 Man Utd 0: What was Fernandes doing? An olimpico problem, what next for Amorim?**\
 `Manchester United's season took another turn for the worse with Fernandes sent off and another 'olimpico' conceded in defeat to Wolves`\
 https://nytimes.com/athletic/6017804/2024/12/26/wolves-2-manchester-united-0-fernandes-olimpico-amorim/
-
-**Pat Riley on recent reports: Heat ‘will not trade Jimmy Butler’**\
-`Riley's attempt to shut down rumors comes as the Heat sit at 14-13 and in sixth place in the Eastern Conference.`\
-https://nytimes.com/athletic/6020206/2024/12/26/jimmy-butler-trade-request-pat-riley-heat/
 
