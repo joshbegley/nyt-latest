@@ -1,3 +1,7 @@
+**The women's players that could be on the move in January**\
+`Here are some of the names that could interest clubs in the Women's Super League and beyond in January`\
+https://nytimes.com/athletic/6015539/2024/12/26/womens-players-january-transfers/
+
 **How the Premier League became too expensive even for Amazon - as the internet giant's deal ends**\
 `After six years, Amazon will stream no more Premier League matches - here's why`\
 https://nytimes.com/athletic/6009822/2024/12/26/how-the-premier-league-became-too-expensive-even-for-amazon/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/pageoneplus/quote-of-the-day-born-into-the-house-
 **Lakers beat Warriors 115-113, Anthony Davis leaves game with sprain**\
 `Without leading scorer Anthony Davis and amid a Curry 3-point flurry, the Lakers leaned on Austin Reaves.`\
 https://nytimes.com/athletic/6019121/2024/12/25/anthony-davis-lakers-warriors-ankle-sprain/
-
-**Christmas win in Boston proves 76ers are finally turning disastrous season around**\
-`Things are a lot different for the Sixers in the past few weeks. They’re 8-3 in their last 11 games.`\
-https://nytimes.com/athletic/6019152/2024/12/25/76ers-christmas-win-boston/
 

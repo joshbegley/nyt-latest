@@ -1,3 +1,7 @@
+**The women's players that could be on the move in January**\
+`Here are some of the names that could interest clubs in the Women's Super League and beyond in January`\
+https://nytimes.com/athletic/6015539/2024/12/26/womens-players-january-transfers/
+
 **How the Premier League became too expensive even for Amazon - as the internet giant's deal ends**\
 `After six years, Amazon will stream no more Premier League matches - here's why`\
 https://nytimes.com/athletic/6009822/2024/12/26/how-the-premier-league-became-too-expensive-even-for-amazon/
