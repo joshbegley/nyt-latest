@@ -1,3 +1,7 @@
+**NFL best bets Week 17: Edge on Falcons-Commanders total as Michael Penix Jr. hits the road**\
+`Austin Mock is back for Week 17 after a hot two weeks going 6-1-1. Where does his model see value this week?`\
+https://nytimes.com/athletic/6019347/2024/12/26/nfl-best-bets-week-17-edge-on-falcons-commanders-total-as-michael-penix-jr-hits-the-road/
+
 **The Eye Has to Report**\
 `The best, most delightful and most shocking images from the Styles desk this year.`\
 https://nytimes.com/2024/12/26/style/law-roach-naomi-osaka-rnc-fashion-culture-photos.html

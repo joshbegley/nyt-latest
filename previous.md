@@ -1,3 +1,7 @@
+**NFL best bets Week 17: Edge on Falcons-Commanders total as Michael Penix Jr. hits the road**\
+`Austin Mock is back for Week 17 after a hot two weeks going 6-1-1. Where does his model see value this week?`\
+https://nytimes.com/athletic/6019347/2024/12/26/nfl-best-bets-week-17-edge-on-falcons-commanders-total-as-michael-penix-jr-hits-the-road/
+
 **The Eye Has to Report**\
 `The best, most delightful and most shocking images from the Styles desk this year.`\
 https://nytimes.com/2024/12/26/style/law-roach-naomi-osaka-rnc-fashion-culture-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018479/2024/12/26/49ers-mailbag-nick-zakelj-player
 **Canucks trade tiers 2024: Ranking every player by market value**\
 `For our annual Boxing Day exercise, it's time to take stock and assess the Canucks' assets.`\
 https://nytimes.com/athletic/6016137/2024/12/26/canucks-trade-value-tiers-2024/
-
-**Guardiola: Man City 'definitely have to add players' in January**\
-`Pep Guardiola has said Manchester City &#8220;definitely have to add players&#8221; to their squad in the January transfer window as they look to turn around their alarming drop in form.`\
-https://nytimes.com/athletic/6019343/2024/12/26/man-city-transfers-january-pep-guardiola/
 
