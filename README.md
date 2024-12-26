@@ -1,3 +1,7 @@
+**The 12 Browns salary-cap numbers to know as 2024 season winds down**\
+`Taking a look at Cleveland's biggest cap numbers for next year and how those players might be addressed in the offseason. `\
+https://nytimes.com/athletic/6015714/2024/12/26/browns-salary-cap-numbers-2025/
+
 **Why the Packers — with NFL's hottest offense — still aren't satisfied as playoffs approach**\
 `The Packers travel to Minnesota this weekend for a crucial matchup against the 13-2 Vikings.`\
 https://nytimes.com/athletic/6018985/2024/12/26/green-bay-packers-offense-jordan-love-minnesota-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/movies/2073-review.html
 **The Speed of Human Thought Lags Far Behind Your Internet Connection, Study Finds**\
 `A new study is “a bit of a counterweight to the endless hyperbole about how incredibly complex and powerful the human brain is,” one researcher said.`\
 https://nytimes.com/2024/12/26/science/speed-of-thought.html
-
-**Broadway Shows Closing Soon: ‘Our Town,’ ‘Cult of Love’ and More**\
-`Thornton Wilder’s classic, starring Jim Parsons, wraps up, as does Leslye Headland’s angsty family drama. Catch these and other plays while you can.`\
-https://nytimes.com/2024/12/26/theater/broadway-shows-closing-soon.html
 
