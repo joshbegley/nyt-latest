@@ -1,3 +1,7 @@
+**'We all feel validated': The rise of Cam Skattebo surprised everyone and no one**\
+`"We knew exactly what we were looking at and nobody else understood," said Cam Skattebo's high school coach of the Sun Devils star. `\
+https://nytimes.com/athletic/6016933/2024/12/26/cam-skattebo-arizona-running-back-college-football-playoff/
+
 **The 12 Browns salary-cap numbers to know as 2024 season winds down**\
 `Taking a look at Cleveland's biggest cap numbers for next year and how those players might be addressed in the offseason. `\
 https://nytimes.com/athletic/6015714/2024/12/26/browns-salary-cap-numbers-2025/
