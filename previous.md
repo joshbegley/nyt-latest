@@ -6,6 +6,10 @@ https://nytimes.com/2024/12/26/movies/shyam-benegal-dead.html
 `Where does Alabama's roster stand with the winter transfer portal window closing on Saturday, and where else do the Crimson Tide need help?`\
 https://nytimes.com/athletic/6020224/2024/12/26/alabama-2025-football-recruiting-transfer-portal-roster/
 
+**Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
+`Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
+https://nytimes.com/athletic/6016942/2024/12/26/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
+
 **Why Ollie Palmer is Wrexham's ultimate team player**\
 `The striker's goalscoring statistics are nothing to shout about but Palmer's all-round contribution is much more significant`\
 https://nytimes.com/athletic/6015128/2024/12/26/wrexham-ollie-palmer-striker-blackpool/
@@ -17,10 +21,6 @@ https://nytimes.com/athletic/6020217/2024/12/26/college-football-2024-review-bow
 **Friday Briefing: How Israel Weakened Civilian Protections**\
 `Plus, video games can’t afford to look this good.`\
 https://nytimes.com/2024/12/26/briefing/israel-plane-crash-russia-tsunami.html
-
-**Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
-`Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
-https://nytimes.com/athletic/6016942/2024/12/26/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
 
 **Amorim 'frustrated' by Fernandes red card 'but it can happen'**\
 `Ruben Amorim had sympathy for Bruno Fernandes after the Manchester United captain saw red for a third time this season in the Premier League defeat at Wolverhampton Wanderers on Boxing Day.`\
