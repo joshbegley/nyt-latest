@@ -1,3 +1,7 @@
+**Marianne Williamson Announces Long-Shot Bid to Lead the D.N.C.**\
+`The self-help author has twice run unsuccessfully for the Democratic presidential nomination.`\
+https://nytimes.com/2024/12/26/us/politics/marianne-williamson-dnc-chair.html
+
 **‘Go to Hell,’ ‘The Light of Freedom’ and Other Ways to Send Presidential Christmas Messages**\
 `Past U.S. presidents have used their holiday messages to inspire the nation to overlook their differences and face hard times by coming together. President-elect Donald J. Trump had his own idea.`\
 https://nytimes.com/2024/12/26/us/politics/president-christmas-messages-trump.html
