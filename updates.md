@@ -1,5 +1,9 @@
 **Kevin Durant after Suns' Christmas win: NBA here to stay, 'but we're in a rough patch'**\
 `Television viewership is down from this time a year ago. This matters to Kevin Durant, a 14-time All-Star who's seen what the NBA can do.`\
+https://nytimes.com/athletic/6019258/2024/12/26/kevin-durant-nba-tv-ratings-rough-patch-suns-christmas/
+
+**Kevin Durant after Suns' Christmas win: NBA here to stay, 'but we're in a rough patch'**\
+`Television viewership is down from this time a year ago. This matters to Kevin Durant, a 14-time All-Star who's seen what the NBA can do.`\
 https://nytimes.com/athletic/6019258/2024/12/26/kevin-durant-after-suns-christmas-win-nba-here-to-stay-but-in-a-rough-patch/
 
 **What's next for college football's patchwork bowl season?**\
