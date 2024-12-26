@@ -1,3 +1,7 @@
+**Gotham FC trades Yazmeen Ryan to Houston after working 'tirelessly to honor her request' to move**\
+`Ryan joins Houston after two successful season at Gotham.`\
+https://nytimes.com/athletic/6020801/2024/12/26/gotham-fc-yazmeen-ryan-houston-dash-trade/
+
 **Sugar Pie DeSanto, Gritty Soul Singer, Is Dead at 89**\
 `A powerful performer who paved the way for later soul and hip-hop artists, she recorded with Etta James and toured with Johnny Otis and James Brown.`\
 https://nytimes.com/2024/12/26/arts/music/sugar-pie-desanto-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020641/2024/12/26/kenneth-walker-seahawks-ir/
 **Plane Crash Investigators Look at Russian Antiaircraft Systems**\
 `Also, Israel bombed an airport and ports in Yemen. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/12/26/briefing/plane-crash-investigation-israel-yemen-strikes.html
-
-**Lakers-Warriors draws highest NBA regular-season audience in 5 years**\
-`The game pulled in 7.763 million viewers, according to ESPN, and was part of a resurgent showing for the league on Christmas.`\
-https://nytimes.com/athletic/6020644/2024/12/26/lakers-warriors-christmas-game-viewership-nba/
 
