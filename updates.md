@@ -1,3 +1,7 @@
+**The Briefing: Wolves 2 Man Utd 0: What was Fernandes doing? An olimpico problem, what next for Amorim?**\
+`Manchester United's season took another turn for the worse with Fernandes sent off and another 'olimpico' conceded in defeat to Wolves`\
+https://nytimes.com/athletic/6017804/2024/12/26/wolves-2-manchester-united-0-fernandes-olimpico-amorim/
+
 **Anthony Edwards delivers on Christmas but also shows how far Wolves have to go**\
 `On Christmas, there were real glimpses of the dynamic Edwards that has been stifled much of the season. That is what the Wolves need most.`\
 https://nytimes.com/athletic/6018886/2024/12/26/anthony-edwards-timberwolves-nba-christmas/
