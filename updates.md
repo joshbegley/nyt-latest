@@ -1,3 +1,7 @@
+**The Briefing: Manchester City 1-1 Everton - What went wrong? Was any of it convincing? And what now?**\
+`Analysis of the champions' latest frustrating outing as Earling Haaland missed a penalty and Everton claimed a point at the Etihad stadium`\
+https://nytimes.com/athletic/6017800/2024/12/26/manchester-city-everton-haaland-guardiola-doku-bernardo/
+
 **Marvel Comics as Penguin Classics? Elda Rotor Heard a ‘Hell Yeah’**\
 `“I get real geek joy out of learning something new,” says the imprint’s vice president and publisher. She’s proud to have broadened the definition of a classic during her tenure.`\
 https://nytimes.com/2024/12/26/books/review/elda-rotor-penguin-classics.html
