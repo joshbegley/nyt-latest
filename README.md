@@ -1,3 +1,7 @@
+**Manmohan Singh, Indian Premier Behind Economic Changes, Dies at 92**\
+`The country’s first Sikh prime minister, he introduced free-market reforms that turned India into an economic powerhouse. He signed a nuclear deal with Washington and sought reconciliation with Pakistan.`\
+https://nytimes.com/2024/12/26/world/asia/manmohan-singh-dead.html
+
 **Teddy Bridgewater to sign with Lions after HS state title coaching run**\
 `Bridgewater retired after the 2023 season following a decade in the league that saw him play for six teams.`\
 https://nytimes.com/athletic/6019956/2024/12/26/teddy-bridgewater-signing-detroit-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/world/middleeast/syria-rebel-forces-hunt-assad-lo
 **Hochul Signs Law That Penalizes Companies for Greenhouse Gas Emissions**\
 `The measure will seek to raise funds to pay for some of the damage caused by extreme weather events, which are becoming more frequent because of the combustion of fossil fuels.`\
 https://nytimes.com/2024/12/26/nyregion/hochul-climate-change-superfund-law.html
-
-**Red Wings fire coach Derek Lalonde after 13-17-4 start, hire Todd McLellan**\
-`Lalonde took over the team in the 2022 offseason after Detroit moved on from Jeff Blashill, and the team improved in his first two seasons.`\
-https://nytimes.com/athletic/5932340/2024/12/26/red-wings-derek-lalonde-coach-fired/
 
