@@ -1,3 +1,7 @@
+**Five Journalists Killed in Gaza Strike, Palestinian Media Says**\
+`The Israeli military said it had struck a vehicle containing a “terrorist cell” in the Nuseirat area of Gaza.`\
+https://nytimes.com/2024/12/25/world/middleeast/israel-strike-journalists-gaza.html
+
 **With 3 wins in 11 days, the Ravens stamped themselves as legitimate contenders**\
 `The Ravens won three games by a combined score of 100-33 and now have control of the AFC North with one game to play.`\
 https://nytimes.com/athletic/6019131/2024/12/25/ravens-lamar-jackson-texans-win-christmas/
