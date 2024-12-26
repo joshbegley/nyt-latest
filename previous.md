@@ -1,3 +1,7 @@
+**Japan Airlines Delays Flights After Cyberattack**\
+`The airline also temporarily stopped selling tickets for flights departing Thursday, but said that there was no impact on flight safety.`\
+https://nytimes.com/2024/12/25/business/japan-airlines-cyber-attack.html
+
 **Lamar Jackson runs away with QB rushing record in 31-2 win over Texans: Takeaways**\
 `It took Michael Vick 13 seasons to set the 6,109-career rushing yard mark. Jackson did it in under seven.`\
 https://nytimes.com/athletic/6019043/2024/12/25/ravens-texans-score-result-takeaways-nfl-christmas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018906/2024/12/25/chiefs-steelers-score-result-tak
 **Trump Picks Kevin Marino Cabrera for Ambassador to Panama**\
 `The selection of Mr. Cabrera, a Miami-Dade County commissioner, comes a few days after Mr. Trump called for the United States to regain control of the Panama Canal.`\
 https://nytimes.com/2024/12/25/us/politics/panama-ambassador-cabrera-trump.html
-
-**Netflix has up-and-down first foray into NFL broadcasting after early glitch**\
-`Viewers were welcomed to the broadcast with immediate audio issues.`\
-https://nytimes.com/athletic/6018940/2024/12/25/netflix-nfl-broadcasting-streaming-christmas/
 

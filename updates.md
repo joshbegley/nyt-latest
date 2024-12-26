@@ -1,3 +1,7 @@
+**Japan Airlines Delays Flights After Cyberattack**\
+`The airline also temporarily stopped selling tickets for flights departing Thursday, but said that there was no impact on flight safety.`\
+https://nytimes.com/2024/12/25/business/japan-airlines-cyber-attack.html
+
 **The Steelers had 3 chances to prove they're contenders. They struck out**\
 `“The last three weeks, we played like s---,” Cameron Heyward said. “Simple as that. I own that. Every player's got to own it in here.”`\
 https://nytimes.com/athletic/6019048/2024/12/25/steelers-chiefs-loss-christmas-netflix/
