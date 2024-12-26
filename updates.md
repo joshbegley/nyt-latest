@@ -1,3 +1,11 @@
+**Friday Briefing: How Israel Weakened Civilian Protections**\
+`Plus, video games can’t afford to look this good.`\
+https://nytimes.com/2024/12/26/briefing/israel-plane-crash-russia-tsunami.html
+
+**Amorim 'frustrated' by Fernandes red card 'but it can happen'**\
+`Ruben Amorim had sympathy for Bruno Fernandes after the Manchester United captain saw red for a third time this season in the Premier League defeat at Wolverhampton Wanderers on Boxing Day.`\
+https://nytimes.com/athletic/6020335/2024/12/26/manchester-united-wolves-bruno-fernandes-red-card/
+
 **‘Go to Hell,’ ‘The Light of Freedom’ and Other Ways to Send Presidential Christmas Messages**\
 `Past U.S. presidents have used their holiday messages to inspire the nation to face hard times by coming together. President-elect Donald J. Trump had his own idea.`\
 https://nytimes.com/2024/12/26/us/politics/president-christmas-messages-trump.html
