@@ -1,3 +1,7 @@
+**Corberan says leaving West Brom for Valencia was 'hardest decision of my life'**\
+`Carlos Corberan has said it was the &#8220;hardest decision of my life&#8221; to leave his position as West Bromwich Albion manager to become Valencia head coach.`\
+https://nytimes.com/athletic/6015903/2024/12/26/valencia-manager-carlos-corberan-west-brom/
+
 **The January Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
 `The January transfer window opens in a week — this is what to expect from that period`\
 https://nytimes.com/athletic/6001248/2024/12/26/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-barcelona-chelsea/
