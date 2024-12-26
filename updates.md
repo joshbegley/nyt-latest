@@ -1,3 +1,7 @@
+**Hanukkah in Pictures: Keeping the Flame Alive**\
+`Jews around the globe lit the first of eight candles on Wednesday and came together to celebrate and reflect on their history.`\
+https://nytimes.com/2024/12/25/world/middleeast/first-night-hanukkah-photos.html
+
 **Anthony Davis out with ankle sprain during Lakers vs. Warriors**\
 `Anthony Davis sprained his left ankle midway through the first quarter of the Los Angeles Lakers’ Christmas Day matchup with the Golden State Warriors and did not return to the game.`\
 https://nytimes.com/athletic/6019121/2024/12/25/anthony-davis-lakers-warriors-ankle-sprain/
