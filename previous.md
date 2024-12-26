@@ -1,3 +1,7 @@
+**‘Drop the Dead Donkey’ Is a ’90s British Newsroom Comedy**\
+`The ’90s sitcom fits alongside American newsroom shows like “Murphy Brown,” but it’s a little slower and more misanthropic.`\
+https://nytimes.com/2024/12/26/arts/television/drop-the-dead-donkey-roku-pluto.html
+
 **Anthony Edwards delivers on Christmas but also shows how far Wolves have to go**\
 `On Christmas, there were real glimpses of the dynamic Edwards that has been stifled much of the season. That is what the Wolves need most.`\
 https://nytimes.com/athletic/6018886/2024/12/26/anthony-edwards-timberwolves-nba-christmas/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/world/africa/mozambique-unrest-news.html
 **NFL Week 17 odds, picks: Vikings-Packers highlights three days of action**\
 `NFL Week 17 continues with do-or-die matchups for several teams as final playoff positioning looms. `\
 https://nytimes.com/athletic/6019738/2024/12/26/nfl-week-17-odds-picks-vikings-packers/
-
-**Howe defends Tindall after half-time melee, red card**\
-`Eddie Howe has stood up for Jason Tindall and insists Newcastle United players were &#8220;protecting each other&#8221; at half-time of the 3-0 victory over Aston Villa, when a melee involving up to 20 people broke out in the tunnel.`\
-https://nytimes.com/athletic/6020191/2024/12/26/newcastle-aston-villa-tindall-red-card/
 

@@ -1,3 +1,7 @@
+**‘Drop the Dead Donkey’ Is a ’90s British Newsroom Comedy**\
+`The ’90s sitcom fits alongside American newsroom shows like “Murphy Brown,” but it’s a little slower and more misanthropic.`\
+https://nytimes.com/2024/12/26/arts/television/drop-the-dead-donkey-roku-pluto.html
+
 **The Briefing: Wolves 2 Man Utd 0: What was Fernandes doing? An olimpico problem, what next for Amorim?**\
 `Manchester United's season took another turn for the worse with Fernandes sent off and another 'olimpico' conceded in defeat to Wolves`\
 https://nytimes.com/athletic/6017804/2024/12/26/wolves-2-manchester-united-0-fernandes-olimpico-amorim/
