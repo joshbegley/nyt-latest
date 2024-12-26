@@ -1,3 +1,7 @@
+**Marvel Comics as Penguin Classics? Elda Rotor Heard a ‘Hell Yeah’**\
+`“I get real geek joy out of learning something new,” says the imprint’s vice president and publisher. She’s proud to have broadened the definition of a classic during her tenure.`\
+https://nytimes.com/2024/12/26/books/review/elda-rotor-penguin-classics.html
+
 **I Published a Story About Trauma. I Heard About Everyone Else’s.**\
 `It all started with the retelling of a 50-year-old kidnapping, but for readers, it was about them, too.`\
 https://nytimes.com/2024/12/26/magazine/kidnapping-trauma.html
