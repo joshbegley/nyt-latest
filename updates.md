@@ -1,3 +1,7 @@
+**Sugar Pie DeSanto, Gritty Soul Singer, Is Dead at 89**\
+`A powerful performer who paved the way for later soul and hip-hop artists, she recorded with Etta James and toured with Johnny Otis and James Brown.`\
+https://nytimes.com/2024/12/26/arts/music/sugar-pie-desanto-dead.html
+
 **Israeli Forces Strike International Airport in Yemen**\
 `The deadly assault came after a week of attacks in Israel by the Iran-backed Houthi militia.`\
 https://nytimes.com/video/world/middleeast/100000009897615/israel-yemen-houthis.html
