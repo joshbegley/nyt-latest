@@ -1,3 +1,7 @@
+**Pope Francis’ Christmas Message Calls for Peace Amid War**\
+`Pope Francis called for cease-fires for the conflicts in Ukraine and in the Middle East during his Christmas message in St. Peter’s Square in Vatican City.`\
+https://nytimes.com/video/world/europe/100000009896551/pope-christmas-message.html
+
 **Dead Body Is Found in Wheel Well of United Airlines Plane After Landing**\
 `The body was discovered after the flight, which originated from Chicago, landed at the airport in Hawaii. The death is under investigation.`\
 https://nytimes.com/2024/12/25/us/body-found-united-airlines-wheel-well-maui-hawaii.html
