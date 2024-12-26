@@ -1,3 +1,7 @@
+**Israeli Warplanes Bomb Yemen After Houthis Step Up Missile Launches**\
+`The assault killed at least two people and injured 11 others, a Houthi-affiliated TV channel reported. The strikes came after a week of attacks by the Iran-backed militia on Israel.`\
+https://nytimes.com/2024/12/26/world/middleeast/israel-yemen-bombs-houthis.html
+
 **Teens, Parents and Pornography: We Need to Talk**\
 `Readers discuss the need for frank discussions about porn. Also: Luigi Mangione; pediatric cancer bills; our environmental focus; the obesity crisis.`\
 https://nytimes.com/2024/12/26/opinion/letters/teens-parents-pornography.html
