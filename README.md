@@ -1,3 +1,11 @@
+**Hochul Signs Law That Penalizes Companies for Greenhouse Gas Emissions**\
+`The measure will seek to raise funds to pay for some of the damage caused by extreme weather events, which are becoming more frequent because of the combustion of fossil fuels.`\
+https://nytimes.com/2024/12/26/nyregion/hochul-climate-change-superfund-law.html
+
+**Red Wings fire coach Derek Lalonde after 13-17-4 start, hire Todd McLellan**\
+`Lalonde took over the team in the 2022 offseason after Detroit moved on from Jeff Blashill, and the team improved in his first two seasons.`\
+https://nytimes.com/athletic/5932340/2024/12/26/red-wings-derek-lalonde-coach-fired/
+
 **As Hollywood Struggles, the Region’s Economy Feels the Pain**\
 `Film production has failed to bounce back after major strikes last year, and competition from other locales has gotten stiffer.`\
 https://nytimes.com/2024/12/26/business/economy/hollywood-southern-california-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6017802/2024/12/26/newcastle-united-3-aston-villa-0
 **Finland Seizes Ship After Undersea Cable Is Cut**\
 `The country’s prime minister said the incident, the latest in a series of disruptions to undersea infrastructure, underscored the danger of a so-called Russian shadow fleet.`\
 https://nytimes.com/2024/12/26/world/europe/finland-estonia-cables-russia.html
-
-**8 Art Shows to See Before They Close in January**\
-`Sublime paintings from Siena, the birth of Impressionism and more dazzling exhibitions in New York and Washington, D.C., to catch before they’re gone.`\
-https://nytimes.com/2024/12/26/arts/design/museum-art-shows-exhibits-closing.html
-
-**Teens, Parents and Pornography: We Need to Talk**\
-`Readers discuss the need for frank discussions about porn. Also: Luigi Mangione; pediatric cancer bills; our environmental focus; the obesity crisis.`\
-https://nytimes.com/2024/12/26/opinion/letters/teens-parents-pornography.html
 
