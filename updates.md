@@ -1,3 +1,7 @@
+**Vikings' playoff hopes (and Super Bowl dreams?) may come down to these concerns**\
+`Minnesota is 13-2 and fighting for the No. 1 seed. But there are several significant concerns with this team as the playoffs approach.`\
+https://nytimes.com/athletic/6018632/2024/12/26/minnesota-vikings-playoffs-super-bowl-concerns/
+
 **Why the Leafs might need to go shopping for another defenceman**\
 `A partner for Morgan Rielly is near the top of the Leafs' needs leading to the March 7 trade deadline.`\
 https://nytimes.com/athletic/6003764/2024/12/26/maple-leafs-defenceman-trade-targets/

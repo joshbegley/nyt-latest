@@ -1,3 +1,7 @@
+**Vikings' playoff hopes (and Super Bowl dreams?) may come down to these concerns**\
+`Minnesota is 13-2 and fighting for the No. 1 seed. But there are several significant concerns with this team as the playoffs approach.`\
+https://nytimes.com/athletic/6018632/2024/12/26/minnesota-vikings-playoffs-super-bowl-concerns/
+
 **Why the Leafs might need to go shopping for another defenceman**\
 `A partner for Morgan Rielly is near the top of the Leafs' needs leading to the March 7 trade deadline.`\
 https://nytimes.com/athletic/6003764/2024/12/26/maple-leafs-defenceman-trade-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/26/world/middleeast/israel-gaza-strikes-
 **Israel Loosened Its Rules to Bomb Hamas Fighters, Killing Many More Civilians**\
 `Surprised by Oct. 7 and fearful of another attack, Israel weakened safeguards meant to protect noncombatants, allowing officers to endanger up to 20 people in each airstrike. One of the deadliest bombardments of the 21st century followed.`\
 https://nytimes.com/2024/12/26/world/middleeast/israel-hamas-gaza-bombing.html
-
-**'We all feel validated': The rise of Cam Skattebo surprised everyone and no one**\
-`"We knew exactly what we were looking at and nobody else understood," said Cam Skattebo's high school coach of the Sun Devils star. `\
-https://nytimes.com/athletic/6016933/2024/12/26/cam-skattebo-arizona-running-back-college-football-playoff/
 
