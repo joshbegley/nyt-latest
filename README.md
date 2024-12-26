@@ -1,3 +1,7 @@
+**Christmas win in Boston proves 76ers are finally turning disastrous season around**\
+`Things are a lot different for the Sixers in the past few weeks. They’re 8-3 in their last 11 games.`\
+https://nytimes.com/athletic/6019152/2024/12/25/76ers-christmas-win-boston/
+
 **Strike on Press Van in Gaza Kills Five Journalists, Palestinian Media Say**\
 `Emergency responders worked to put out the fire in a van marked “Press” and recover the bodies in Nuseirat, Gaza, on Thursday.`\
 https://nytimes.com/video/world/middleeast/100000009896715/nuseirat-journalists-killed-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/business/tokyo-haneda-plane-crash.html
 **Japan Airlines Delays Flights After Cyberattack**\
 `The airline also temporarily stopped selling tickets for flights departing Thursday, but said that there was no impact on flight safety.`\
 https://nytimes.com/2024/12/25/business/japan-airlines-cyber-attack.html
-
-**Lamar Jackson runs away with QB rushing record in 31-2 win over Texans: Takeaways**\
-`It took Michael Vick 13 seasons to set the 6,109-career rushing yard mark. Jackson did it in under seven.`\
-https://nytimes.com/athletic/6019043/2024/12/25/ravens-texans-score-result-takeaways-nfl-christmas/
 
