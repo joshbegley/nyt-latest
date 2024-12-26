@@ -1,3 +1,7 @@
+**The January Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
+`The January transfer window opens in a week — this is what to expect from that period`\
+https://nytimes.com/athletic/6001248/2024/12/26/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-barcelona-chelsea/
+
 **Nottingham Forest Transfer DealSheet: What to expect in the January window**\
 `Nuno's priority during the window will be to ensure Forest take a step forward — and not backwards — with any business they do`\
 https://nytimes.com/athletic/6015473/2024/12/26/nottingham-forest-transfers-january-window/
