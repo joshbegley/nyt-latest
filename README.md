@@ -1,3 +1,7 @@
+**Hanukkah in Pictures: Keeping the Flame Alive**\
+`Jews around the globe lit the first of eight candles on Wednesday and came together to celebrate and reflect on their history.`\
+https://nytimes.com/2024/12/25/world/middleeast/first-night-hanukkah-photos.html
+
 **Anthony Davis out with ankle sprain during Lakers vs. Warriors**\
 `Anthony Davis sprained his left ankle midway through the first quarter of the Los Angeles Lakers’ Christmas Day matchup with the Golden State Warriors and did not return to the game.`\
 https://nytimes.com/athletic/6019121/2024/12/25/anthony-davis-lakers-warriors-ankle-sprain/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019048/2024/12/25/steelers-chiefs-loss-christmas-n
 **Dead Body Is Found in Wheel Well of United Airlines Plane After Landing**\
 `The body was discovered after the flight, which originated from Chicago, landed at the airport in Hawaii. The death is under investigation.`\
 https://nytimes.com/2024/12/25/us/body-found-united-airlines-wheel-well-maui-hawaii.html
-
-**Davies back in Tottenham training, could be fit for Wolves game**\
-`Ben Davies could be available for Tottenham Hotspur against Wolverhampton Wanderers on Sunday after returning to first-team training.`\
-https://nytimes.com/athletic/6017923/2024/12/25/ben-davies-injury-return-tottenham/
 
