@@ -1,3 +1,11 @@
+**Bus Veers Into Frigid Lake in Norway, Killing at Least 3**\
+`The bus, which was carrying more than 50 people, was partly submerged after leaving a road in the country’s northwest.`\
+https://nytimes.com/2024/12/26/world/europe/norway-bus-accident.html
+
+**Syrian Government Forces Hunt for a Senior Assad Official**\
+`Syria’s new government is searching for a senior official from the Assad dictatorship and for military forces loyal to the ousted president.`\
+https://nytimes.com/2024/12/26/world/middleeast/syria-rebel-forces-hunt-assad-loyalists.html
+
 **Hochul Signs Law That Penalizes Companies for Greenhouse Gas Emissions**\
 `The measure will seek to raise funds to pay for some of the damage caused by extreme weather events, which are becoming more frequent because of the combustion of fossil fuels.`\
 https://nytimes.com/2024/12/26/nyregion/hochul-climate-change-superfund-law.html
