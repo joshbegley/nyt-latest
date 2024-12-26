@@ -1,40 +1,40 @@
-**Warriors falter late against Lakers as slump and vibes worsen**\
-`This wasn't a lifeless performance by the Warriors, but after a 12-3 start to the season, lately, they keep finding ways to lose.`\
-https://nytimes.com/athletic/6019092/2024/12/26/warriors-falter-late-against-lakers/
+**Nottingham Forest Transfer DealSheet: What to expect in the January window**\
+`Nuno's priority during the window will be to ensure Forest take a step forward — and not backwards — with any business they do`\
+https://nytimes.com/athletic/6015473/2024/12/26/nottingham-forest-transfers-january-window/
 
-**Celtics hit season's first 2-game skid in Christmas Day loss to 76ers**\
-`As a dangerous January schedule looms, Boston hasn't been playing up to its standard recently, falling 4 games out of first in the East.`\
-https://nytimes.com/athletic/6019181/2024/12/26/celtics-lose-to-76ers-christmas/
+**Chelsea Transfer DealSheet: What to expect in the January window**\
+`Chelsea are doing well in the Premier League and have plans for the January transfer window`\
+https://nytimes.com/athletic/6001561/2024/12/26/chelsea-transfer-dealsheet-what-to-expect-in-the-january-window/
 
-**Prosecutors in Taiwan Indict Former Presidential Candidate**\
-`The prosecutors asserted that Ko Wen-je, a former mayor, took bribes. He and his supports have maintained that the charges are a political vendetta.`\
-https://nytimes.com/2024/12/26/world/asia/taiwan-presidential-candidate-indicted.html
+**Liverpool DealSheet: Why January transfers are unlikely and who could go on loan?**\
+`Will there be much business at Anfield next month - and if not, why not?`\
+https://nytimes.com/athletic/6003874/2024/12/26/liverpool-transfers-january-window/
 
-**Nuclear Weapons Are Not a Fact of Life**\
-`Like other weapons of mass destruction, nuclear weapons are not unsolvable problems.`\
-https://nytimes.com/2024/12/26/opinion/nuclear-weapons.html
+**Leeds United Transfer DealSheet: What to expect in the January window**\
+`Leeds are doing well in the Championship, but the January window could be important for the rest of their season`\
+https://nytimes.com/athletic/5954734/2024/12/26/leeds-transfers-latest-january-window/
 
-**20 Years Ago a Tsunami Killed 230,000 People. We Can Do Better Now.**\
-`With better technology, we could further shorten the time between an earthquake and when the tsunami warning goes out.`\
-https://nytimes.com/2024/12/26/opinion/california-tsunami-warnings.html
+**Newcastle United Transfer DealSheet: What to expect in the January window**\
+`Right-wing, centre-back and goalkeeper are priorities – but sales are needed`\
+https://nytimes.com/athletic/6003049/2024/12/26/newcastle-united-transfer-dealsheet-what-to-expect-in-the-january-window/
 
-**The women's players that could be on the move in January**\
-`Here are some of the names that could interest clubs in the Women's Super League and beyond in January`\
-https://nytimes.com/athletic/6015539/2024/12/26/womens-players-january-transfers/
+**Manchester City Transfer DealSheet: What to expect in the January window**\
+`A squad overhaul will be needed at some point, but how much will get done this winter?`\
+https://nytimes.com/athletic/6000709/2024/12/26/man-city-transfer-dealsheet-january/
 
-**How the Premier League became too expensive even for Amazon - as the internet giant's deal ends**\
-`After six years, Amazon will stream no more Premier League matches - here's why`\
-https://nytimes.com/athletic/6009822/2024/12/26/how-the-premier-league-became-too-expensive-even-for-amazon/
+**Crystal Palace Transfer DealSheet: What to expect in the January window**\
+`Crystal Palace have plans afoot for the January transfer window`\
+https://nytimes.com/athletic/6012446/2024/12/26/crystal-palace-january-transfer-window-latest/
 
-**How Antonee Robinson became the best left-back in the Premier League**\
-`A crossing machine who combines lung-busting runs with defensive effectiveness, Robinson can claim to be the league's best left-back`\
-https://nytimes.com/athletic/6013281/2024/12/26/antonee-robinson-premier-league-left-back-best/
+**Real Madrid Transfer DealSheet: What to expect in the January window**\
+`Madrid enter the January transfer window with plenty of questions about their squad depth. But will they make any moves?`\
+https://nytimes.com/athletic/6000938/2024/12/26/real-madrid-transfers-alexander-arnold-davies/
 
-**20 Years Since the Deadly Tsunami in Asia**\
-`A look back at the horrible loss of life.`\
-https://nytimes.com/2024/12/26/world/asia/tsunami-anniversary-photos.html
+**Aston Villa Transfer DealSheet: What to expect in the January window**\
+`What positions are Villa looking at? Could their be exits? How much is PSR still a concern?`\
+https://nytimes.com/athletic/5962891/2024/12/26/aston-villa-transfer-dealsheet-what-to-expect-in-the-january-window/
 
-**Thursday Briefing**\
-`Christmas Day attacks on Ukraine.`\
-https://nytimes.com/2024/12/26/briefing/thursday-briefing.html
+**Arsenal Transfer DealSheet: What to expect in the January window**\
+`Arsenal are doing well in the Premier League and have plans for the January transfer window`\
+https://nytimes.com/athletic/6003346/2024/12/26/arsenal-transfer-dealsheet-what-to-expect-in-the-january-window/
 
