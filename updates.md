@@ -1,3 +1,15 @@
+**Anthony Edwards delivers on Christmas but also shows how far Wolves have to go**\
+`On Christmas, there were real glimpses of the dynamic Edwards that has been stifled much of the season. That is what the Wolves need most.`\
+https://nytimes.com/athletic/6018886/2024/12/26/anthony-edwards-timberwolves-nba-christmas/
+
+**5 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/12/26/books/review/new-books-recommendations.html
+
+**How Lamar Jackson’s Christmas heroics may have turned the NFL’s MVP race upside down**\
+`The NFL MVP award was all but wrapped up by Josh Allen. That was until Lamar Jackson's Christmas Day performance. Read here for latest odds.`\
+https://nytimes.com/athletic/6019864/2024/12/26/nfl-mvp-odds-2024-lamar-jackson-josh-allen/
+
 **Pat Riley on recent reports: Heat ‘will not trade Jimmy Butler’**\
 `Riley's attempt to shut down rumors comes as the Heat sit at 14-13 and in sixth place in the Eastern Conference.`\
 https://nytimes.com/athletic/6020206/2024/12/26/jimmy-butler-trade-request-pat-riley-heat/
