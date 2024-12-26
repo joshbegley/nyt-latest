@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6020801/2024/12/26/gotham-fc-yazmeen-ryan-houston-d
 https://nytimes.com/2024/12/26/arts/music/sugar-pie-desanto-dead.html
 
 **Israeli Forces Strike International Airport in Yemen**\
-`The deadly assault came after a week of attacks in Israel by the Iran-backed Houthi militia.`\
+`The deadly assault came after a week of attacks against Israel by the Iran-backed Houthi militia, including a missile strike on Tel Aviv.`\
 https://nytimes.com/video/world/middleeast/100000009897615/israel-yemen-houthis.html
 
 **The Briefing: Who can stop Liverpool, fragile Haaland and why are Man Utd conceding 'olimpicos'?**\
