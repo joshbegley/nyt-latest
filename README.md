@@ -1,5 +1,5 @@
 **Manmohan Singh, Indian Premier Behind Economic Changes, Dies at 92**\
-`The country’s first Sikh prime minister, he introduced free-market reforms that turned India into an economic powerhouse. He signed a nuclear deal with Washington and sought reconciliation with Pakistan.`\
+`The country’s first Sikh prime minister, he introduced free-market reforms that turned India into an economic powerhouse and sought reconciliation with Pakistan.`\
 https://nytimes.com/2024/12/26/world/asia/manmohan-singh-dead.html
 
 **Teddy Bridgewater to sign with Lions after HS state title coaching run**\
