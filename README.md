@@ -1,3 +1,7 @@
+**With 3 wins in 11 days, the Ravens stamped themselves as legitimate contenders**\
+`The Ravens won three games by a combined score of 100-33 and now have control of the AFC North with one game to play.`\
+https://nytimes.com/athletic/6019131/2024/12/25/ravens-lamar-jackson-texans-win-christmas/
+
 **Hanukkah in Pictures: Keeping the Flame Alive**\
 `Jews around the globe lit the first of eight candles on Wednesday and came together to celebrate and reflect on their history.`\
 https://nytimes.com/2024/12/25/world/middleeast/first-night-hanukkah-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019054/2024/12/25/chiefs-afc-top-seed-patrick-maho
 **The Steelers had 3 chances to prove they're contenders. They struck out**\
 `“The last three weeks, we played like s---,” Cameron Heyward said. “Simple as that. I own that. Every player's got to own it in here.”`\
 https://nytimes.com/athletic/6019048/2024/12/25/steelers-chiefs-loss-christmas-netflix/
-
-**Dead Body Is Found in Wheel Well of United Airlines Plane After Landing**\
-`The body was discovered after the flight, which originated from Chicago, landed at the airport in Hawaii. The death is under investigation.`\
-https://nytimes.com/2024/12/25/us/body-found-united-airlines-wheel-well-maui-hawaii.html
 
