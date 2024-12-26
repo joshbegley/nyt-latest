@@ -1,3 +1,7 @@
+**Gotham FC trades Yazmeen Ryan to Houston after working 'tirelessly to honor her request' to move**\
+`Ryan joins Houston after two successful season at Gotham.`\
+https://nytimes.com/athletic/6020801/2024/12/26/gotham-fc-yazmeen-ryan-houston-dash-trade/
+
 **Sugar Pie DeSanto, Gritty Soul Singer, Is Dead at 89**\
 `A powerful performer who paved the way for later soul and hip-hop artists, she recorded with Etta James and toured with Johnny Otis and James Brown.`\
 https://nytimes.com/2024/12/26/arts/music/sugar-pie-desanto-dead.html
