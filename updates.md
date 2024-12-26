@@ -1,3 +1,7 @@
+**‘Go to Hell,’ ‘The Light of Freedom’ and Other Ways to Send Presidential Christmas Messages**\
+`Past U.S. presidents have used their holiday messages to inspire the nation to overlook their differences and face hard times by coming together. President-elect Donald J. Trump had his own idea.`\
+https://nytimes.com/2024/12/26/us/politics/president-christmas-messages-trump.html
+
 **‘Drop the Dead Donkey’ Is a ’90s British Newsroom Comedy**\
 `The ’90s sitcom fits alongside American newsroom shows like “Murphy Brown,” but it’s a little slower and more misanthropic.`\
 https://nytimes.com/2024/12/26/arts/television/drop-the-dead-donkey-roku-pluto.html
