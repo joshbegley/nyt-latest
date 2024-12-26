@@ -1,3 +1,11 @@
+**Friday Briefing: How Israel Weakened Civilian Protections**\
+`Plus, video games can’t afford to look this good.`\
+https://nytimes.com/2024/12/26/briefing/israel-plane-crash-russia-tsunami.html
+
+**Amorim 'frustrated' by Fernandes red card 'but it can happen'**\
+`Ruben Amorim had sympathy for Bruno Fernandes after the Manchester United captain saw red for a third time this season in the Premier League defeat at Wolverhampton Wanderers on Boxing Day.`\
+https://nytimes.com/athletic/6020335/2024/12/26/manchester-united-wolves-bruno-fernandes-red-card/
+
 **Dorthy Moxley, Who Pursued Justice in Her Daughter’s Murder, Dies at 92**\
 `For decades after Martha Moxley’s gruesome death, Mrs. Moxley remained a compelling figure in a roller-coaster case that captured the world’s attention.`\
 https://nytimes.com/2024/12/26/us/dorthy-moxley-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6018886/2024/12/26/anthony-edwards-timberwolves-nba
 **5 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/12/26/books/review/new-books-recommendations.html
-
-**How Lamar Jackson’s Christmas heroics may have turned the NFL’s MVP race upside down**\
-`The NFL MVP award was all but wrapped up by Josh Allen. That was until Lamar Jackson's Christmas Day performance. Read here for latest odds.`\
-https://nytimes.com/athletic/6019864/2024/12/26/nfl-mvp-odds-2024-lamar-jackson-josh-allen/
-
-**Thompson: The Burden of Steph Curry**\
-`Wednesday was vintage Curry on the NBA’s showcase stage. But the vociferation of his excellence felt like a simultaneous cry for help.`\
-https://nytimes.com/athletic/6020023/2024/12/26/steph-curry-warriors-lakers-nba-christmas-day/
 
