@@ -1,3 +1,7 @@
+**Worried About Market Turmoil Under Trump? Look to the Past.**\
+`Readers have concerns that President-elect Trump’s policy agenda will unsettle stocks. If you’re tempted to make big portfolio moves, revisit 2020.`\
+https://nytimes.com/2024/12/26/business/trump-stock-market-investing.html
+
 **Should Investors Worry About Market Turmoil Under Trump?**\
 `Readers have concerns that President-elect Trump’s policy agenda will unsettle stocks. If you’re tempted to make big portfolio moves, revisit 2020.`\
 https://nytimes.com/2024/12/26/business/trump-stock-market-investing.html
