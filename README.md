@@ -1,3 +1,7 @@
+**Should Investors Worry About Market Turmoil Under Trump?**\
+`Readers have concerns that President-elect Trump’s policy agenda will unsettle stocks. If you’re tempted to make big portfolio moves, revisit 2020.`\
+https://nytimes.com/2024/12/26/business/trump-stock-market-investing.html
+
 **The Briefing: Manchester City 1-1 Everton - What went wrong? Was any of it convincing? And what now?**\
 `Analysis of the champions' latest frustrating outing as Erling Haaland missed a penalty and Everton claimed a point at the Etihad stadium`\
 https://nytimes.com/athletic/6017800/2024/12/26/manchester-city-everton-haaland-guardiola-doku-bernardo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019343/2024/12/26/man-city-transfers-january-pep-g
 **Five notable Oilers stats and what they could mean going forward**\
 `The Oilers have nabbed victories in 11 of their last 13 games to vault themselves up the NHL standings.`\
 https://nytimes.com/athletic/6014901/2024/12/26/edmonton-oilers-2024-stats/
-
-**Bo Nix owns best Broncos rookie QB season, but he's still chasing '83 John Elway**\
-`Nix is trying to become the first Broncos rookie quarterback to lead the team to the playoffs in 40 years.`\
-https://nytimes.com/athletic/6018752/2024/12/26/bo-nix-broncos-playoffs-bengals/
 
