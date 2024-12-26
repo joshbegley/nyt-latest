@@ -1,3 +1,15 @@
+**Why transfer QB Billy Edwards Jr. picked Wisconsin, what he brings to Badgers: Q&A**\
+`Edwards said he will "have the keys to the Ferrari," that is Wisconsin's future offense.`\
+https://nytimes.com/athletic/6016201/2024/12/26/billy-edwards-wisconsin-quarterback-transfer/
+
+**Happy Hunting: Our Favorite Home-Buying Stories of 2024**\
+`This year, the Hunt touched down in 14 U.S. states and four foreign nations, with prices ranging from $135,000 to $6.75 million.`\
+https://nytimes.com/2024/12/26/realestate/the-hunt-home-sales-2024.html
+
+**I’ve Seen Celebrity P.R. Tactics at Work. Blake Lively Is Not Alone.**\
+`On the internet, the truth and the manufactured lies about celebrities are hard to sort through.`\
+https://nytimes.com/2024/12/26/opinion/blake-lively-justin-baldoni.html
+
 **36 Hours in Palm Springs, Calif.**\
 `With its kitsch, color and joyous queer scene, this oasis in the Coachella Valley is all in on earthly pleasures.`\
 https://nytimes.com/interactive/2024/12/26/travel/things-to-do-palm-springs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/26/opinion/vanilla-bean-climate-change.html
 **Homes for Sale in Manhattan and Brooklyn**\
 `This week’s properties are on the Lower East Side, in Hamilton Heights and Kensington.`\
 https://nytimes.com/2024/12/26/realestate/housing-market-nyc.html
-
-**‘Santosh’ Review: When Justice Isn’t Just**\
-`An Indian widow becomes a police officer in this crime drama that offers searing social critique.`\
-https://nytimes.com/2024/12/26/movies/santosh-review-when-justice-isnt-just.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a three-bedroom in Sea Cliff, and a five-bedroom in Mahwah.`\
-https://nytimes.com/2024/12/26/realestate/housing-market-near-nyc.html
-
-**How A.I. Could Reshape the Economic Geography of America**\
-`As the technology is widely adopted, some once-struggling midsize cities in the Midwest, Mid-Atlantic and South may benefit, new research predicts.`\
-https://nytimes.com/2024/12/26/technology/ai-economy-workers.html
 
