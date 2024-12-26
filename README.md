@@ -1,3 +1,7 @@
+**49ers to give Jake Moody the boot? Instead, Kyle Shanahan gives him his backing**\
+`The 49ers practiced with a reconfigured offensive line Thursday after placing two more linemen on season-ending injured reserve.`\
+https://nytimes.com/athletic/6020817/2024/12/26/49ers-kyle-shanahan-jake-moody/
+
 **The Sidney Awards**\
 `A revelatory portrait, an “American Vulcan,” a sober take on DOGE and more.`\
 https://nytimes.com/2024/12/26/opinion/sidney-awards.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020364/2024/12/26/red-wings-derek-lalonde-changes-
 **Cowboys rule out CeeDee Lamb for final two games, surgery not expected**\
 `With Lamb ruled out, Dallas will now be without six Week 1 starters in Philadelphia on Sunday.`\
 https://nytimes.com/athletic/6020647/2024/12/26/ceedee-lamb-cowboys-shoulder-injury-out-season/
-
-**Seahawks place RB Kenneth Walker on IR with ankle injury**\
-`Walker had already been ruled out of Seattle's Thursday night game against the Chicago Bears with the injury.`\
-https://nytimes.com/athletic/6020641/2024/12/26/kenneth-walker-seahawks-ir/
 
