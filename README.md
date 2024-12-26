@@ -1,3 +1,23 @@
+**The Briefing: Nottingham Forest 1-0 Tottenham - Nuno has the last laugh, Spence sent off**\
+`Spurs enjoyed 70.4 per cent of possession but it was Anthony Elanga's goal for Forest which made the difference`\
+https://nytimes.com/athletic/6017803/2024/12/26/nottingham-forest-tottenham-result-nuno/
+
+**Biden and Aides Courted Allies Who Undermined U.S. Goals**\
+`The Biden administration has been caught by surprise when partners like South Korea and Israel have acted against U.S. interests and principles.`\
+https://nytimes.com/2024/12/26/us/politics/biden-allies-foreign-policy.html
+
+**For a Happier New Year, Focus on Your Loved Ones**\
+`Experts share how shifting from self-focused goals to thinking about others can have a positive impact on the year ahead.`\
+https://nytimes.com/2024/12/26/style/new-years-resolutions-relationships-loved-ones.html
+
+**The Best Sentences of 2024**\
+`An ugly year in politics was a gorgeous one for words.`\
+https://nytimes.com/2024/12/26/opinion/best-sentences-of-2024.html
+
+**The Briefing: Newcastle 3 Villa 0: Have Howe's team turned a corner? Was Duran's red card deserved?**\
+`The Athletic's Chris Waugh and Jacob Tanswell analyse the talking points from a dramatic and tetchy meeting at St James' Park `\
+https://nytimes.com/athletic/6017802/2024/12/26/newcastle-united-3-aston-villa-0-gordon-isak-duran-sent-off/
+
 **Finland Seizes Ship After Undersea Cable Is Cut**\
 `The country’s prime minister said the incident, the latest in a series of disruptions to undersea infrastructure, underscored the danger of a so-called Russian shadow fleet.`\
 https://nytimes.com/2024/12/26/world/europe/finland-estonia-cables-russia.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6019715/2024/12/26/miami-basketball-jim-larranaga-s
 **‘From Ground Zero’ Review: An Inside View of Gaza**\
 `This collection of 22 shorts by Palestinian filmmakers presents on-the-ground accounts of life and death that might otherwise be ignored.`\
 https://nytimes.com/2024/12/26/movies/from-ground-zero-review.html
-
-**An Easy Holiday Cake That’s Not Too Sweet**\
-`This gingerbread cake — with a swoop of molasses frosting — is rich and complex in flavor. It’s also a snap to make.`\
-https://nytimes.com/2024/12/26/dining/an-easy-holiday-cake-thats-not-too-sweet.html
-
-**Everything You Need to Know About Dry January**\
-`The popular sobriety challenge can be a good way to start the year. Here’s how to prepare, what to expect and more.`\
-https://nytimes.com/2024/12/26/well/eat/dry-january-guide.html
-
-**Israeli Warplanes Bomb Yemen After Houthis Step Up Missile Launches**\
-`The assault killed at least two people and injured 11 others, a Houthi-affiliated TV channel reported. The strikes came after a week of attacks by the Iran-backed militia on Israel.`\
-https://nytimes.com/2024/12/26/world/middleeast/israel-yemen-bombs-houthis.html
-
-**NFL best bets Week 17: Edge on Falcons-Commanders total as Michael Penix Jr. hits the road**\
-`Austin Mock is back for Week 17 after a hot two weeks going 6-1-1. Where does his model see value this week?`\
-https://nytimes.com/athletic/6019347/2024/12/26/nfl-best-bets-week-17-edge-on-falcons-commanders-total-as-michael-penix-jr-hits-the-road/
-
-**The Eye Has to Report**\
-`The best, most delightful and most shocking images from the Styles desk this year.`\
-https://nytimes.com/2024/12/26/style/law-roach-naomi-osaka-rnc-fashion-culture-photos.html
 
