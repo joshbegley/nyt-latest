@@ -1,3 +1,7 @@
+**The Sidney Awards**\
+`A revelatory portrait, an “American Vulcan,” a sober take on DOGE and more.`\
+https://nytimes.com/2024/12/26/opinion/sidney-awards.html
+
 **Gotham FC trades Yazmeen Ryan to Houston after working 'tirelessly to honor her request' to move**\
 `Ryan joins Houston after two successful season at Gotham.`\
 https://nytimes.com/athletic/6020801/2024/12/26/gotham-fc-yazmeen-ryan-houston-dash-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020647/2024/12/26/ceedee-lamb-cowboys-shoulder-inj
 **Seahawks place RB Kenneth Walker on IR with ankle injury**\
 `Walker had already been ruled out of Seattle's Thursday night game against the Chicago Bears with the injury.`\
 https://nytimes.com/athletic/6020641/2024/12/26/kenneth-walker-seahawks-ir/
-
-**Plane Crash Investigators Look at Russian Antiaircraft Systems**\
-`Also, Israel bombed an airport and ports in Yemen. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/12/26/briefing/plane-crash-investigation-israel-yemen-strikes.html
 

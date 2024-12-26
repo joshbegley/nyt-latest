@@ -1,3 +1,7 @@
+**The Sidney Awards**\
+`A revelatory portrait, an “American Vulcan,” a sober take on DOGE and more.`\
+https://nytimes.com/2024/12/26/opinion/sidney-awards.html
+
 **Israeli Forces Strike International Airport in Yemen**\
 `The deadly assault came after a week of attacks against Israel by the Iran-backed Houthi militia, including a missile strike on Tel Aviv.`\
 https://nytimes.com/video/world/middleeast/100000009897615/israel-yemen-houthis.html
