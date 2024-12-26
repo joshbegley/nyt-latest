@@ -1,3 +1,7 @@
+**'We all feel validated': The rise of Cam Skattebo surprised everyone and no one**\
+`"We knew exactly what we were looking at and nobody else understood," said Cam Skattebo's high school coach of the Sun Devils star. `\
+https://nytimes.com/athletic/6016933/2024/12/26/cam-skattebo-arizona-running-back-college-football-playoff/
+
 **The 12 Browns salary-cap numbers to know as 2024 season winds down**\
 `Taking a look at Cleveland's biggest cap numbers for next year and how those players might be addressed in the offseason. `\
 https://nytimes.com/athletic/6015714/2024/12/26/browns-salary-cap-numbers-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/arts/music/charli-xcx-brat.html
 **‘2073’ Review: Back to the Future**\
 `Asif Kapadia’s documentary-fiction hybrid film, starring Samantha Morton, visualizes a dystopian San Francisco.`\
 https://nytimes.com/2024/12/26/movies/2073-review.html
-
-**The Speed of Human Thought Lags Far Behind Your Internet Connection, Study Finds**\
-`A new study is “a bit of a counterweight to the endless hyperbole about how incredibly complex and powerful the human brain is,” one researcher said.`\
-https://nytimes.com/2024/12/26/science/speed-of-thought.html
 
