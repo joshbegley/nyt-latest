@@ -1,3 +1,7 @@
+**I Published a Story About Trauma. I Heard About Everyone Else’s.**\
+`It all started with the retelling of a 50-year-old kidnapping, but for readers, it was about them, too.`\
+https://nytimes.com/2024/12/26/magazine/kidnapping-trauma.html
+
 **Kevin Durant after Suns' Christmas win: NBA here to stay, 'but we're in a rough patch'**\
 `Television viewership is down from this time a year ago. This matters to Kevin Durant, a 14-time All-Star who's seen what the NBA can do.`\
 https://nytimes.com/athletic/6019258/2024/12/26/kevin-durant-nba-tv-ratings-rough-patch-suns-christmas/
