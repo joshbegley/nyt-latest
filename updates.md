@@ -1,3 +1,11 @@
+**Why the Packers — with NFL's hottest offense — still aren't satisfied as playoffs approach**\
+`The Packers travel to Minnesota this weekend for a crucial matchup against the 13-2 Vikings.`\
+https://nytimes.com/athletic/6018985/2024/12/26/green-bay-packers-offense-jordan-love-minnesota-vikings/
+
+**Falcons' late-season storylines, starting with what to do with Kirk Cousins**\
+`How will the Falcons-Cousins relationship end? No one is saying right now, but it's one of five storylines worth monitoring.`\
+https://nytimes.com/athletic/6018672/2024/12/26/falcons-storylines-kirk-cousins-michael-penix-jr/
+
 **Why transfer QB Billy Edwards Jr. picked Wisconsin, what he brings to Badgers: Q&A**\
 `Edwards said he will "have the keys to the Ferrari," that is Wisconsin's future offense.`\
 https://nytimes.com/athletic/6016201/2024/12/26/billy-edwards-wisconsin-quarterback-transfer/
