@@ -1,3 +1,7 @@
+**Bultman: The Red Wings have changed coaches, but they can't stop there**\
+`The Red Wings fired Lalonde on Thursday in search of a spark. But their biggest issues will require more work to fix.`\
+https://nytimes.com/athletic/6020364/2024/12/26/red-wings-derek-lalonde-changes-yzerman/
+
 **How They Celebrated the Holidays 250 Miles Above Earth**\
 `The astronauts on the I.S.S. — including two who were scheduled to return months ago — held a zero-gravity cookie-decorating contest and built a reindeer from storage bags.`\
 https://nytimes.com/2024/12/26/science/iss-astronauts-holiday-celebration.html
