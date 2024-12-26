@@ -1,3 +1,7 @@
+**Five notable Oilers stats and what they could mean going forward**\
+`The Oilers have nabbed victories in 11 of their last 13 games to vault themselves up the NHL standings.`\
+https://nytimes.com/athletic/6014901/2024/12/26/edmonton-oilers-2024-stats/
+
 **Bo Nix owns best Broncos rookie QB season, but he's still chasing '83 John Elway**\
 `Nix is trying to become the first Broncos rookie quarterback to lead the team to the playoffs in 40 years.`\
 https://nytimes.com/athletic/6018752/2024/12/26/bo-nix-broncos-playoffs-bengals/

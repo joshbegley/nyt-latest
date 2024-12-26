@@ -1,3 +1,7 @@
+**Five notable Oilers stats and what they could mean going forward**\
+`The Oilers have nabbed victories in 11 of their last 13 games to vault themselves up the NHL standings.`\
+https://nytimes.com/athletic/6014901/2024/12/26/edmonton-oilers-2024-stats/
+
 **Bo Nix owns best Broncos rookie QB season, but he's still chasing '83 John Elway**\
 `Nix is trying to become the first Broncos rookie quarterback to lead the team to the playoffs in 40 years.`\
 https://nytimes.com/athletic/6018752/2024/12/26/bo-nix-broncos-playoffs-bengals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6003764/2024/12/26/maple-leafs-defenceman-trade-tar
 **Michael Hage’s triumph: Tragedy, a dream and a future with Canadiens**\
 `Since Hage's dad died in 2023, he has remained laser-focused: "You’ve just got to move on and continue to play like he’s watching."`\
 https://nytimes.com/athletic/6016179/2024/12/26/canadiens-michael-hage-nhl/
-
-**Klay Thompson on breaking 3-point record held by idol Reggie Miller: 'Just surreal'**\
-`Klay Thompson wears No. 31 in tribute to Reggie Miller, the same number the Pacers star wore over his 18 seasons.`\
-https://nytimes.com/athletic/6019089/2024/12/26/klay-thompson-reggie-miller-3-pointers-nba/
 
