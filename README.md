@@ -1,3 +1,11 @@
+**49ers mailbag: Nick Zakelj among the most interesting 49ers to watch on Monday**\
+`Among the questions this week: Will the 49ers alter their philosophy and draft a tackle in Round 1? Also, is this it for Jake Moody?`\
+https://nytimes.com/athletic/6018479/2024/12/26/49ers-mailbag-nick-zakelj-players-to-watch/
+
+**Canucks trade tiers 2024: Ranking every player by market value**\
+`For our annual Boxing Day exercise, it's time to take stock and assess the Canucks' assets.`\
+https://nytimes.com/athletic/6016137/2024/12/26/canucks-trade-value-tiers-2024/
+
 **Guardiola: Man City 'definitely have to add players' in January**\
 `Pep Guardiola has said Manchester City &#8220;definitely have to add players&#8221; to their squad in the January transfer window as they look to turn around their alarming drop in form.`\
 https://nytimes.com/athletic/6019343/2024/12/26/man-city-transfers-january-pep-guardiola/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/26/briefing/the-year-in-news.html
 **The Athletic FC: Man City & Real Madrid eye transfer deals, team of the season (so far)**\
 `Today in TAFC: Manchester City and Real Madrid might need to make moves in January. Plus Phil's team of the season (so far)`\
 https://nytimes.com/athletic/6001241/2024/12/26/transfers-manchester-city-real-madrid/
-
-**Vikings' playoff hopes (and Super Bowl dreams?) may come down to these concerns**\
-`Minnesota is 13-2 and fighting for the No. 1 seed. But there are several significant concerns with this team as the playoffs approach.`\
-https://nytimes.com/athletic/6018632/2024/12/26/minnesota-vikings-playoffs-super-bowl-concerns/
-
-**Why the Leafs might need to go shopping for another defenceman**\
-`A partner for Morgan Rielly is near the top of the Leafs' needs leading to the March 7 trade deadline.`\
-https://nytimes.com/athletic/6003764/2024/12/26/maple-leafs-defenceman-trade-targets/
 
