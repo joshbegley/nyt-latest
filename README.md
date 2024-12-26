@@ -1,3 +1,7 @@
+**Seahawks place RB Kenneth Walker on IR with ankle injury**\
+`Walker had already been ruled out of Seattle's Thursday night game against the Chicago Bears with the injury.`\
+https://nytimes.com/athletic/6020641/2024/12/26/kenneth-walker-seahawks-ir/
+
 **Plane Crash Investigators Look at Russian Antiaircraft Systems**\
 `Also, Israel bombed an airport and ports in Yemen. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/12/26/briefing/plane-crash-investigation-israel-yemen-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020217/2024/12/26/college-football-2024-review-bow
 **Friday Briefing: How Israel Weakened Civilian Protections**\
 `Plus, video games can’t afford to look this good.`\
 https://nytimes.com/2024/12/26/briefing/israel-plane-crash-russia-tsunami.html
-
-**Amorim 'frustrated' by Fernandes red card 'but it can happen'**\
-`Ruben Amorim had sympathy for Bruno Fernandes after the Manchester United captain saw red for a third time this season in the Premier League defeat at Wolverhampton Wanderers on Boxing Day.`\
-https://nytimes.com/athletic/6020335/2024/12/26/manchester-united-wolves-bruno-fernandes-red-card/
 
