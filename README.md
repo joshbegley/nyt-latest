@@ -1,3 +1,7 @@
+**‘Go to Hell,’ ‘The Light of Freedom’ and Other Ways to Send Presidential Christmas Messages**\
+`Past U.S. presidents have used their holiday messages to inspire the nation to overlook their differences and face hard times by coming together. President-elect Donald J. Trump had his own idea.`\
+https://nytimes.com/2024/12/26/us/politics/president-christmas-messages-trump.html
+
 **‘Drop the Dead Donkey’ Is a ’90s British Newsroom Comedy**\
 `The ’90s sitcom fits alongside American newsroom shows like “Murphy Brown,” but it’s a little slower and more misanthropic.`\
 https://nytimes.com/2024/12/26/arts/television/drop-the-dead-donkey-roku-pluto.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020206/2024/12/26/jimmy-butler-trade-request-pat-r
 **Why Is Mozambique in Chaos?**\
 `More than 250 people have died in this southern African nation as protesters disputing the results of the presidential election clash with the police and military.`\
 https://nytimes.com/2024/12/26/world/africa/mozambique-unrest-news.html
-
-**NFL Week 17 odds, picks: Vikings-Packers highlights three days of action**\
-`NFL Week 17 continues with do-or-die matchups for several teams as final playoff positioning looms. `\
-https://nytimes.com/athletic/6019738/2024/12/26/nfl-week-17-odds-picks-vikings-packers/
 
