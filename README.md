@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/26/dining/an-easy-holiday-cake-thats-not-too-sweet.h
 https://nytimes.com/2024/12/26/well/eat/dry-january-guide.html
 
 **Israeli Warplanes Bomb Yemen After Houthis Step Up Missile Launches**\
-`The assault came after a week of attacks by the Iran-backed militia on Israel.`\
+`The assault killed at least two people and injured 11 others, a Houthi-affiliated TV channel reported. The strikes came after a week of attacks by the Iran-backed militia on Israel.`\
 https://nytimes.com/2024/12/26/world/middleeast/israel-yemen-bombs-houthis.html
 
 **NFL best bets Week 17: Edge on Falcons-Commanders total as Michael Penix Jr. hits the road**\
