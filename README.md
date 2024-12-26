@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6019043/2024/12/25/ravens-texans-score-result-takea
 `With their 15th win, the Chiefs earned the AFC’s No. 1 seed, giving them home-field advantage and a first-round bye in the playoffs.`\
 https://nytimes.com/athletic/6019054/2024/12/25/chiefs-afc-top-seed-patrick-mahomes-steelers/
 
-**The Steelers had 3 chances to prove they're contenders. They struck out.**\
+**The Steelers had 3 chances to prove they're contenders. They struck out**\
 `“The last three weeks, we played like s---,” Cameron Heyward said. “Simple as that. I own that. Every player's got to own it in here.”`\
 https://nytimes.com/athletic/6019048/2024/12/25/steelers-chiefs-loss-christmas-netflix/
 
