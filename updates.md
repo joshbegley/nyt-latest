@@ -1,3 +1,7 @@
+**Israeli Forces Strike International Airport in Yemen**\
+`The deadly assault came after a week of attacks in Israel by the Iran-backed Houthi militia.`\
+https://nytimes.com/video/world/middleeast/100000009897615/israel-yemen-houthis.html
+
 **The Briefing: Who can stop Liverpool, fragile Haaland and why are Man Utd conceding 'olimpicos'?**\
 `The major Premier League talking points analysed - including Amazon's farewell and Nottingham Forest's fairytale`\
 https://nytimes.com/athletic/6019645/2024/12/26/liverpool-premier-league-manchester-united-olimpico-haaland/

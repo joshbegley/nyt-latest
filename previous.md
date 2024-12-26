@@ -1,3 +1,7 @@
+**Israeli Forces Strike International Airport in Yemen**\
+`The deadly assault came after a week of attacks in Israel by the Iran-backed Houthi militia.`\
+https://nytimes.com/video/world/middleeast/100000009897615/israel-yemen-houthis.html
+
 **The Briefing: Who can stop Liverpool, fragile Haaland and why are Man Utd conceding 'olimpicos'?**\
 `The major Premier League talking points analysed - including Amazon's farewell and Nottingham Forest's fairytale`\
 https://nytimes.com/athletic/6019645/2024/12/26/liverpool-premier-league-manchester-united-olimpico-haaland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020644/2024/12/26/lakers-warriors-christmas-game-v
 **The Briefing: Liverpool 3-1 Leicester - Seven points clear... but what changed at half-time?**\
 `The big talking points analysed as Arne Slot's side stretched their Premier League lead`\
 https://nytimes.com/athletic/6017805/2024/12/26/liverpool-leicester-result-analysis/
-
-**Shyam Benegal, Indian Filmmaker Who Explored Social Issues, Dies at 90**\
-`He won acclaim from critics and audiences even as the gritty stories he put on the big screen grappled with some of India’s thorniest problems.`\
-https://nytimes.com/2024/12/26/movies/shyam-benegal-dead.html
 
