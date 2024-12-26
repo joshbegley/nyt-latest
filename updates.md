@@ -1,3 +1,7 @@
+**The Steelers had 3 chances to prove they're contenders. They struck out**\
+`“The last three weeks, we played like s---,” Cameron Heyward said. “Simple as that. I own that. Every player's got to own it in here.”`\
+https://nytimes.com/athletic/6019048/2024/12/25/steelers-chiefs-loss-christmas-netflix/
+
 **Lamar Jackson runs away with QB rushing record in 31-2 win over Texans: Takeaways**\
 `It took Michael Vick 13 seasons to set the 6,109-career rushing yard mark. Jackson did it in under seven.`\
 https://nytimes.com/athletic/6019043/2024/12/25/ravens-texans-score-result-takeaways-nfl-christmas/
