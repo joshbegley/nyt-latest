@@ -1,3 +1,7 @@
+**Guardiola: Man City 'definitely have to add players' in January**\
+`Pep Guardiola has said Manchester City &#8220;definitely have to add players&#8221; to their squad in the January transfer window as they look to turn around their alarming drop in form.`\
+https://nytimes.com/athletic/6019343/2024/12/26/man-city-transfers-january-pep-guardiola/
+
 **Five notable Oilers stats and what they could mean going forward**\
 `The Oilers have nabbed victories in 11 of their last 13 games to vault themselves up the NHL standings.`\
 https://nytimes.com/athletic/6014901/2024/12/26/edmonton-oilers-2024-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018632/2024/12/26/minnesota-vikings-playoffs-super
 **Why the Leafs might need to go shopping for another defenceman**\
 `A partner for Morgan Rielly is near the top of the Leafs' needs leading to the March 7 trade deadline.`\
 https://nytimes.com/athletic/6003764/2024/12/26/maple-leafs-defenceman-trade-targets/
-
-**Michael Hage’s triumph: Tragedy, a dream and a future with Canadiens**\
-`Since Hage's dad died in 2023, he has remained laser-focused: "You’ve just got to move on and continue to play like he’s watching."`\
-https://nytimes.com/athletic/6016179/2024/12/26/canadiens-michael-hage-nhl/
 
