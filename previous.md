@@ -1,3 +1,11 @@
+**Dorthy Moxley, Who Pursued Justice in Her Daughter’s Murder, Dies at 92**\
+`For decades after Martha Moxley’s gruesome death, Mrs. Moxley remained a compelling figure in a roller-coaster case that captured the world’s attention.`\
+https://nytimes.com/2024/12/26/us/dorthy-moxley-dead.html
+
+**Richard Parsons, Serial Fixer of Media and Finance Giants, Dies at 76**\
+`Mr. Parsons’s lengthy résumé is a catalog of corporate emergencies at Time Warner, Citigroup and the Los Angeles Clippers.`\
+https://nytimes.com/2024/12/26/business/media/richard-parsons-dead.html
+
 **Trump Wants U.S. Control of the Panama Canal. Here’s Three Things to Know.**\
 `Treaties ratified by the Senate in 1978 established permanent neutrality, but some Republicans regret that decision.`\
 https://nytimes.com/2024/12/26/us/politics/trump-panama-canal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6019864/2024/12/26/nfl-mvp-odds-2024-lamar-jackson-
 **Thompson: The Burden of Steph Curry**\
 `Wednesday was vintage Curry on the NBA’s showcase stage. But the vociferation of his excellence felt like a simultaneous cry for help.`\
 https://nytimes.com/athletic/6020023/2024/12/26/steph-curry-warriors-lakers-nba-christmas-day/
-
-**Holiday Briefing: A Day to Celebrate**\
-`A special edition for a special day.`\
-https://nytimes.com/2024/12/26/briefing/holiday-briefing-special-edition.html
-
-**The Briefing: Wolves 2 Man Utd 0: What was Fernandes doing? An olimpico problem, what next for Amorim?**\
-`Manchester United's season took another turn for the worse with Fernandes sent off and another 'olimpico' conceded in defeat to Wolves`\
-https://nytimes.com/athletic/6017804/2024/12/26/wolves-2-manchester-united-0-fernandes-olimpico-amorim/
 
