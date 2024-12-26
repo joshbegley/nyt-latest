@@ -1,3 +1,7 @@
+**Manmohan Singh, Indian Premier Who Spurred Economic Boom, Dies at 92**\
+`The country’s first Sikh prime minister, he introduced free-market reforms that turned India into an economic powerhouse and sought reconciliation with Pakistan.`\
+https://nytimes.com/2024/12/26/world/asia/manmohan-singh-dead.html
+
 **Teddy Bridgewater to sign with Lions after HS state title coaching run**\
 `Bridgewater retired after the 2023 season following a decade in the league that saw him play for six teams.`\
 https://nytimes.com/athletic/6019956/2024/12/26/teddy-bridgewater-signing-detroit-lions/
