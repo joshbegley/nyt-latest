@@ -1,40 +1,40 @@
-**Sporting sack Amorim's replacement after six weeks in charge**\
-`Sporting CP have sacked Joao Pereira after just six weeks as their head coach.`\
-https://nytimes.com/athletic/6016453/2024/12/26/joao-pereira-sporting-cp-amorim/
+**36 Hours in Palm Springs, Calif.**\
+`With its kitsch, color and joyous queer scene, this oasis in the Coachella Valley is all in on earthly pleasures.`\
+https://nytimes.com/interactive/2024/12/26/travel/things-to-do-palm-springs.html
 
-**In C.E.O. Murder Case, a Test of New York’s Antiterrorism Laws**\
-`The Manhattan district attorney has brought a terrorism charge against the man accused of killing a health insurance executive, arguing that he intended to “sow fear.”`\
-https://nytimes.com/2024/12/26/nyregion/luigi-mangione-terrorism-charge.html
+**Charli XCX’s Year of the ‘Brat’**\
+`In six months, the (once) underground pop singer and songwriter played her version of the fame game, sampling the highs and lows of genuine stardom.`\
+https://nytimes.com/2024/12/26/arts/music/charli-xcx-brat.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/26/crosswords/spelling-bee-forum.html
+**‘2073’ Review: Back to the Future**\
+`Asif Kapadia’s documentary-fiction hybrid film, starring Samantha Morton, visualizes a dystopian San Francisco.`\
+https://nytimes.com/2024/12/26/movies/2073-review.html
 
-**Review: ‘Squid Game’ Hits a Red Light**\
-`The second season of the Netflix smash delivers more stylized carnage, but the story stalls.`\
-https://nytimes.com/2024/12/26/arts/television/squid-game-review-season-2.html
+**The Speed of Human Thought Lags Far Behind Your Internet Connection, Study Finds**\
+`A new study is “a bit of a counterweight to the endless hyperbole about how incredibly complex and powerful the human brain is,” one researcher said.`\
+https://nytimes.com/2024/12/26/science/speed-of-thought.html
 
-**Corberan says leaving West Brom for Valencia was 'hardest decision of my life'**\
-`Carlos Corberan has said it was the &#8220;hardest decision of my life&#8221; to leave his position as West Bromwich Albion manager to become Valencia head coach.`\
-https://nytimes.com/athletic/6015903/2024/12/26/valencia-manager-carlos-corberan-west-brom/
+**Broadway Shows Closing Soon: ‘Our Town,’ ‘Cult of Love’ and More**\
+`Thornton Wilder’s classic, starring Jim Parsons, wraps up, as does Leslye Headland’s angsty family drama. Catch these and other plays while you can.`\
+https://nytimes.com/2024/12/26/theater/broadway-shows-closing-soon.html
 
-**The January Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
-`The January transfer window opens in a week — this is what to expect from that period`\
-https://nytimes.com/athletic/6001248/2024/12/26/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-barcelona-chelsea/
+**The Secrets of the World’s Favorite Smell**\
+`Your holiday baking wouldn’t be the same without it.`\
+https://nytimes.com/2024/12/26/opinion/vanilla-bean-climate-change.html
 
-**Nottingham Forest Transfer DealSheet: What to expect in the January window**\
-`Nuno's priority during the window will be to ensure Forest take a step forward — and not backwards — with any business they do`\
-https://nytimes.com/athletic/6015473/2024/12/26/nottingham-forest-transfers-january-window/
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are on the Lower East Side, in Hamilton Heights and Kensington.`\
+https://nytimes.com/2024/12/26/realestate/housing-market-nyc.html
 
-**Chelsea Transfer DealSheet: What to expect in the January window**\
-`Chelsea are doing well in the Premier League and have plans for the January transfer window`\
-https://nytimes.com/athletic/6001561/2024/12/26/chelsea-transfer-dealsheet-what-to-expect-in-the-january-window/
+**‘Santosh’ Review: When Justice Isn’t Just**\
+`An Indian widow becomes a police officer in this crime drama that offers searing social critique.`\
+https://nytimes.com/2024/12/26/movies/santosh-review-when-justice-isnt-just.html
 
-**Liverpool DealSheet: Why January transfers are unlikely and who could go on loan?**\
-`Will there be much business at Anfield next month - and if not, why not?`\
-https://nytimes.com/athletic/6003874/2024/12/26/liverpool-transfers-january-window/
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a three-bedroom in Sea Cliff, and a five-bedroom in Mahwah.`\
+https://nytimes.com/2024/12/26/realestate/housing-market-near-nyc.html
 
-**Leeds United Transfer DealSheet: What to expect in the January window**\
-`Leeds are doing well in the Championship, but the January window could be important for the rest of their season`\
-https://nytimes.com/athletic/5954734/2024/12/26/leeds-transfers-latest-january-window/
+**How A.I. Could Reshape the Economic Geography of America**\
+`As the technology is widely adopted, some once-struggling midsize cities in the Midwest, Mid-Atlantic and South may benefit, new research predicts.`\
+https://nytimes.com/2024/12/26/technology/ai-economy-workers.html
 
