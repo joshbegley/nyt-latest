@@ -22,7 +22,7 @@ https://nytimes.com/2024/12/25/arts/music/beyonce-performance-halftime-show-chri
 `Ella Dershowitz dreams of snowy adventures.`\
 https://nytimes.com/2024/12/25/crosswords/daily-puzzle-2024-12-26.html
 
-**Tokyo Plane Collision Was Caused by Human Error, Investigators Find**\
+**Human Error Cited for Collision of Two Planes at Tokyo Airport**\
 `A report confirmed prior indications that a pilot’s misunderstanding of air traffic control directives, and a missed warning, caused the January accident.`\
 https://nytimes.com/2024/12/25/business/tokyo-haneda-plane-crash.html
 

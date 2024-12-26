@@ -1,3 +1,7 @@
+**Human Error Cited for Collision of Two Planes at Tokyo Airport**\
+`A report confirmed prior indications that a pilot’s misunderstanding of air traffic control directives, and a missed warning, caused the January accident.`\
+https://nytimes.com/2024/12/25/business/tokyo-haneda-plane-crash.html
+
 **Five Journalists Killed in Gaza Strike, Palestinian Media Says**\
 `The Israeli military said it had struck a vehicle containing a “terrorist cell” in the Nuseirat area of Gaza.`\
 https://nytimes.com/2024/12/25/world/middleeast/israel-strike-journalists-gaza.html
