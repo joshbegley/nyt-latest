@@ -1,3 +1,7 @@
+**Anthony Davis out with ankle sprain during Lakers vs. Warriors**\
+`Anthony Davis sprained his left ankle midway through the first quarter of the Los Angeles Lakers’ Christmas Day matchup with the Golden State Warriors and did not return to the game.`\
+https://nytimes.com/athletic/6019121/2024/12/25/anthony-davis-lakers-warriors-ankle-sprain/
+
 **Beyoncé’s Netflix Halftime Set: A Stunning ‘Cowboy Carter’ Showcase**\
 `The star performed songs from her country-and-more album for the first time during an N.F.L. game, spotlighting her onstage prowess and the contributions of her collaborators.`\
 https://nytimes.com/2024/12/25/arts/music/beyonce-performance-halftime-show-christmas-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/us/body-found-united-airlines-wheel-well-maui-haw
 **Davies back in Tottenham training, could be fit for Wolves game**\
 `Ben Davies could be available for Tottenham Hotspur against Wolverhampton Wanderers on Sunday after returning to first-team training.`\
 https://nytimes.com/athletic/6017923/2024/12/25/ben-davies-injury-return-tottenham/
-
-**Edwards: With 'special' Christmas outing, Mikal Bridges catches people up to speed**\
-`You may have heard otherwise, but Mikal Bridges has been playing well in New York. His Christmas performance was simply a culmination. `\
-https://nytimes.com/athletic/6018944/2024/12/25/mikal-bridges-knicks-spurs-christmas/
 

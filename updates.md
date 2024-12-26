@@ -1,3 +1,7 @@
+**Anthony Davis out with ankle sprain during Lakers vs. Warriors**\
+`Anthony Davis sprained his left ankle midway through the first quarter of the Los Angeles Lakers’ Christmas Day matchup with the Golden State Warriors and did not return to the game.`\
+https://nytimes.com/athletic/6019121/2024/12/25/anthony-davis-lakers-warriors-ankle-sprain/
+
 **Beyoncé’s Netflix Halftime Set: A Stunning ‘Cowboy Carter’ Showcase**\
 `The star performed songs from her country-and-more album for the first time during an N.F.L. game, spotlighting her onstage prowess and the contributions of her collaborators.`\
 https://nytimes.com/2024/12/25/arts/music/beyonce-performance-halftime-show-christmas-netflix.html
