@@ -1,3 +1,7 @@
+**Bultman: The Red Wings have changed coaches, but they can't stop there**\
+`The Red Wings fired Derek Lalonde on Thursday in search of a spark. But their biggest issues will require more work to fix.`\
+https://nytimes.com/athletic/6020364/2024/12/26/red-wings-derek-lalonde-changes-yzerman/
+
 **Cowboys rule out CeeDee Lamb for final two games, surgery not expected**\
 `With Lamb ruled out, Dallas will now be without six Week 1 starters in Philadelphia on Sunday.`\
 https://nytimes.com/athletic/6020647/2024/12/26/ceedee-lamb-cowboys-shoulder-injury-out-season/
