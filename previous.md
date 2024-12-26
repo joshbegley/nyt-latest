@@ -18,6 +18,10 @@ https://nytimes.com/athletic/6020217/2024/12/26/college-football-2024-review-bow
 `Plus, video games can’t afford to look this good.`\
 https://nytimes.com/2024/12/26/briefing/israel-plane-crash-russia-tsunami.html
 
+**Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
+`Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
+https://nytimes.com/athletic/6016942/2024/12/26/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
+
 **Amorim 'frustrated' by Fernandes red card 'but it can happen'**\
 `Ruben Amorim had sympathy for Bruno Fernandes after the Manchester United captain saw red for a third time this season in the Premier League defeat at Wolverhampton Wanderers on Boxing Day.`\
 https://nytimes.com/athletic/6020335/2024/12/26/manchester-united-wolves-bruno-fernandes-red-card/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/business/media/richard-parsons-dead.html
 **Trump Wants U.S. Control of the Panama Canal. Here’s Three Things to Know.**\
 `Treaties ratified by the Senate in 1978 established permanent neutrality, but some Republicans regret that decision.`\
 https://nytimes.com/2024/12/26/us/politics/trump-panama-canal.html
-
-**Marianne Williamson Announces Long-Shot Bid to Lead the D.N.C.**\
-`The self-help author has twice run unsuccessfully for the Democratic presidential nomination.`\
-https://nytimes.com/2024/12/26/us/politics/marianne-williamson-dnc-chair.html
 

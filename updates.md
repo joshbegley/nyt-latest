@@ -1,3 +1,7 @@
+**Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
+`Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
+https://nytimes.com/athletic/6016942/2024/12/26/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
+
 **Shyam Benegal, Indian Filmmaker Who Explored Social Issues, Dies at 90**\
 `He won acclaim from critics and audiences even as the gritty stories he put on the big screen grappled with some of India’s thorniest problems.`\
 https://nytimes.com/2024/12/26/movies/shyam-benegal-dead.html
