@@ -1,3 +1,11 @@
+**Miami coach Larrañaga expected to step down 2 years after Final Four run**\
+`Larranaga, who turned 75 in October, began coaching in 1971 as an assistant and compiled a 744-505 career record as a head coach.`\
+https://nytimes.com/athletic/6019715/2024/12/26/miami-basketball-jim-larranaga-stepping-down/
+
+**‘From Ground Zero’ Review: An Inside View of Gaza**\
+`This collection of 22 shorts by Palestinian filmmakers presents on-the-ground accounts of life and death that might otherwise be ignored.`\
+https://nytimes.com/2024/12/26/movies/from-ground-zero-review.html
+
 **An Easy Holiday Cake That’s Not Too Sweet**\
 `This gingerbread cake — with a swoop of molasses frosting — is rich and complex in flavor. It’s also a snap to make.`\
 https://nytimes.com/2024/12/26/dining/an-easy-holiday-cake-thats-not-too-sweet.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6017800/2024/12/26/manchester-city-everton-haaland-
 **Marvel Comics as Penguin Classics? Elda Rotor Heard a ‘Hell Yeah’**\
 `“I get real geek joy out of learning something new,” says the imprint’s vice president and publisher. She’s proud to have broadened the definition of a classic during her tenure.`\
 https://nytimes.com/2024/12/26/books/review/elda-rotor-penguin-classics.html
-
-**I Published a Story About Trauma. I Heard About Everyone Else’s.**\
-`It all started with the retelling of a 50-year-old kidnapping, but for readers, it was about them, too.`\
-https://nytimes.com/2024/12/26/magazine/kidnapping-trauma.html
-
-**Kevin Durant after Suns' Christmas win: NBA here to stay, 'but we're in a rough patch'**\
-`Television viewership is down from this time a year ago. This matters to Kevin Durant, a 14-time All-Star who's seen what the NBA can do.`\
-https://nytimes.com/athletic/6019258/2024/12/26/kevin-durant-nba-tv-ratings-rough-patch-suns-christmas/
 
