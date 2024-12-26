@@ -1,3 +1,7 @@
+**Marvel Comics as Penguin Classics? Elda Rotor Heard a ‘Hell Yeah’**\
+`“I get real geek joy out of learning something new,” says the imprint’s vice president and publisher. She’s proud to have broadened the definition of a classic during her tenure.`\
+https://nytimes.com/2024/12/26/books/review/elda-rotor-penguin-classics.html
+
 **I Published a Story About Trauma. I Heard About Everyone Else’s.**\
 `It all started with the retelling of a 50-year-old kidnapping, but for readers, it was about them, too.`\
 https://nytimes.com/2024/12/26/magazine/kidnapping-trauma.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018752/2024/12/26/bo-nix-broncos-playoffs-bengals/
 **Investigators Try to Determine Cause of Deadly Plane Crash in Kazakhstan**\
 `Of 62 passengers and five crew members on board the Azerbaijan Airlines flight, 29 survived, according to Kazakhstan’s authorities.`\
 https://nytimes.com/2024/12/26/world/asia/investigators-plane-crash-kazakhstan.html
-
-**As Retailers Offered Holiday Discounts, Shoppers Showed Up**\
-`Total spending from Nov. 1 through Dec. 24 rose 3.8 percent, data released by Mastercard SpendingPulse showed.`\
-https://nytimes.com/2024/12/26/business/holiday-season-sales-mastercard.html
 
