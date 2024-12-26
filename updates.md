@@ -1,3 +1,11 @@
+**Should Investors Worry About Market Turmoil Under Trump?**\
+`Readers have concerns that President-elect Trump’s policy agenda will unsettle stocks. If you’re tempted to make big portfolio moves, revisit 2020.`\
+https://nytimes.com/2024/12/26/business/trump-stock-market-investing.html
+
+**The Briefing: Manchester City 1-1 Everton - What went wrong? Was any of it convincing? And what now?**\
+`Analysis of the champions' latest frustrating outing as Erling Haaland missed a penalty and Everton claimed a point at the Etihad stadium`\
+https://nytimes.com/athletic/6017800/2024/12/26/manchester-city-everton-haaland-guardiola-doku-bernardo/
+
 **The Briefing: Manchester City 1-1 Everton - What went wrong? Was any of it convincing? And what now?**\
 `Analysis of the champions' latest frustrating outing as Earling Haaland missed a penalty and Everton claimed a point at the Etihad stadium`\
 https://nytimes.com/athletic/6017800/2024/12/26/manchester-city-everton-haaland-guardiola-doku-bernardo/
