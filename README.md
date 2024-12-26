@@ -1,3 +1,7 @@
+**The Steelers had 3 chances to prove they're contenders. They struck out.**\
+`“The last three weeks, we played like s---,” Cameron Heyward said. “Simple as that. I own that. Every player's got to own it in here.”`\
+https://nytimes.com/athletic/6019048/2024/12/25/steelers-chiefs-loss-christmas-netflix/
+
 **Dead Body Is Found in Wheel Well of United Airlines Plane After Landing**\
 `The body was discovered after the flight, which originated from Chicago, landed at the airport in Hawaii. The death is under investigation.`\
 https://nytimes.com/2024/12/25/us/body-found-united-airlines-wheel-well-maui-hawaii.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018626/2024/12/25/klay-thompson-reggie-miller-nba-
 **ESPN's 'Dunk the Halls' Disney alt-cast brings Mickey Mouse fun to NBA Christmas**\
 `The alt-cast featured animated versions of Knicks and Spurs players with Disney characters occasionally subbing into the action.`\
 https://nytimes.com/athletic/6018846/2024/12/25/espn-mickey-mouse-alt-cast-nba-christmas/
-
-**Convicted Murderer Found After Escaping Prison in Mississippi**\
-`The man, who had been serving a life sentence, broke out of the state’s newest prison on Christmas Eve, officials said.`\
-https://nytimes.com/2024/12/25/us/mississippi-prison-murderer-manhunt.html
 
