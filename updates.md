@@ -1,3 +1,15 @@
+**Thompson: The Burden of Steph Curry**\
+`Wednesday was vintage Curry on the NBA’s showcase stage. But the vociferation of his excellence felt like a simultaneous cry for help.`\
+https://nytimes.com/athletic/6020023/2024/12/26/steph-curry-warriors-lakers-nba-christmas-day/
+
+**Holiday Briefing: A Day to Celebrate**\
+`A special edition for a special day.`\
+https://nytimes.com/2024/12/26/briefing/holiday-briefing-special-edition.html
+
+**The Briefing: Wolves 2 Man Utd 0: What was Fernandes doing? An olimpico problem, what next for Amorim?**\
+`Manchester United's season took another turn for the worse with Fernandes sent off and another 'Olimpico' conceded in defeat to Wolves`\
+https://nytimes.com/athletic/6017804/2024/12/26/wolves-2-manchester-united-0-fernandes-olimpico-amorim/
+
 **Pat Riley: Heat not trading Jimmy Butler, calls speculation 'a distraction'**\
 `Riley's attempt to shut down rumors comes as the Heat sit at 14-13 and in sixth place in the Eastern Conference.`\
 https://nytimes.com/athletic/6020206/2024/12/26/jimmy-butler-trade-request-pat-riley-heat/
