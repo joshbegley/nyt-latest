@@ -1,3 +1,7 @@
+**Israeli Warplanes Bomb Yemen After Houthis Step Up Missile Launches**\
+`The assault came after a week of attacks by the Iran-backed militia on Israel.`\
+https://nytimes.com/2024/12/26/world/middleeast/israel-yemen-bombs-houthis.html
+
 **NFL best bets Week 17: Edge on Falcons-Commanders total as Michael Penix Jr. hits the road**\
 `Austin Mock is back for Week 17 after a hot two weeks going 6-1-1. Where does his model see value this week?`\
 https://nytimes.com/athletic/6019347/2024/12/26/nfl-best-bets-week-17-edge-on-falcons-commanders-total-as-michael-penix-jr-hits-the-road/

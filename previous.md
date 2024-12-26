@@ -1,3 +1,7 @@
+**Israeli Warplanes Bomb Yemen After Houthis Step Up Missile Launches**\
+`The assault came after a week of attacks by the Iran-backed militia on Israel.`\
+https://nytimes.com/2024/12/26/world/middleeast/israel-yemen-bombs-houthis.html
+
 **NFL best bets Week 17: Edge on Falcons-Commanders total as Michael Penix Jr. hits the road**\
 `Austin Mock is back for Week 17 after a hot two weeks going 6-1-1. Where does his model see value this week?`\
 https://nytimes.com/athletic/6019347/2024/12/26/nfl-best-bets-week-17-edge-on-falcons-commanders-total-as-michael-penix-jr-hits-the-road/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016898/2024/12/26/college-football-bowl-season-rat
 **49ers mailbag: Nick Zakelj among the most interesting 49ers to watch on Monday**\
 `Among the questions this week: Will the 49ers alter their philosophy and draft a tackle in Round 1? Also, is this it for Jake Moody?`\
 https://nytimes.com/athletic/6018479/2024/12/26/49ers-mailbag-nick-zakelj-players-to-watch/
-
-**Canucks trade tiers 2024: Ranking every player by market value**\
-`For our annual Boxing Day exercise, it's time to take stock and assess the Canucks' assets.`\
-https://nytimes.com/athletic/6016137/2024/12/26/canucks-trade-value-tiers-2024/
 
