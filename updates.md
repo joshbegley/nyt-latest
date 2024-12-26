@@ -1,3 +1,7 @@
+**With 3 wins in 11 days, the Ravens stamped themselves as legitimate contenders**\
+`The Ravens won three games by a combined score of 100-33 and now have control of the AFC North with one game to play.`\
+https://nytimes.com/athletic/6019131/2024/12/25/ravens-lamar-jackson-texans-win-christmas/
+
 **Hanukkah in Pictures: Keeping the Flame Alive**\
 `Jews around the globe lit the first of eight candles on Wednesday and came together to celebrate and reflect on their history.`\
 https://nytimes.com/2024/12/25/world/middleeast/first-night-hanukkah-photos.html
