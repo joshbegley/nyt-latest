@@ -1,3 +1,23 @@
+**20 Years Since the Deadly Tsunami in Asia**\
+`A look back at the horrible loss of life.`\
+https://nytimes.com/2024/12/26/world/asia/tsunami-anniversary-photos.html
+
+**Thursday Briefing**\
+`Christmas Day attacks on Ukraine.`\
+https://nytimes.com/2024/12/26/briefing/thursday-briefing.html
+
+**The Deadliest Tsunami Set Off Work to Be Ready for the Next Big Wave**\
+`Experts said they were “blind” to the Indian Ocean tsunami in 2004. Twenty years later, working toward a world without tsunami deaths is a challenge.`\
+https://nytimes.com/2024/12/26/science/tsunami-2004-20th-anniversary.html
+
+**The War Killed Her Dreams. To Survive, She Treated Its Fighters.**\
+`Trapped in Sudan’s brutal civil war, a young woman chose to work in a clinic on the front line, treating civilians and combatants. She had to navigate suspicion from both sides.`\
+https://nytimes.com/2024/12/26/world/africa/sudan-war-rsf-medical-clinic.html
+
+**Still Sounding Young at 85, She Is the Voice of Old Japan**\
+`Midori Kato is the last original member of the cast of “Sazae-san,” a cartoon series that premiered in 1969 and never quite joined the modern world.`\
+https://nytimes.com/2024/12/26/world/asia/japan-society-television-cartoon-sazae.html
+
 **Quote of the Day: Born Into the House of Lords And Preparing to Be Evicted**\
 `Quotation of the Day for Thursday, December 26, 2024.`\
 https://nytimes.com/2024/12/25/pageoneplus/quote-of-the-day-born-into-the-house-of-lords-and-preparing-to-be-evicted.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/25/world/middleeast/israel-strike-journalists-gaza.h
 **With 3 wins in 11 days, the Ravens stamped themselves as legitimate contenders**\
 `The Ravens won three games by a combined score of 100-33 and now have control of the AFC North with one game to play.`\
 https://nytimes.com/athletic/6019131/2024/12/25/ravens-lamar-jackson-texans-win-christmas/
-
-**Hanukkah in Pictures: Keeping the Flame Alive**\
-`Jews around the globe lit the first of eight candles on Wednesday and came together to celebrate and reflect on their history.`\
-https://nytimes.com/2024/12/25/world/middleeast/first-night-hanukkah-photos.html
-
-**Anthony Davis out with ankle sprain during Lakers vs. Warriors**\
-`Anthony Davis sprained his left ankle midway through the first quarter of the Los Angeles Lakers’ Christmas Day matchup with the Golden State Warriors and did not return to the game.`\
-https://nytimes.com/athletic/6019121/2024/12/25/anthony-davis-lakers-warriors-ankle-sprain/
-
-**Beyoncé’s Netflix Halftime Set: A Stunning ‘Cowboy Carter’ Showcase**\
-`The star performed songs from her country-and-more album for the first time during an N.F.L. game, spotlighting her onstage prowess and the contributions of her collaborators.`\
-https://nytimes.com/2024/12/25/arts/music/beyonce-performance-halftime-show-christmas-netflix.html
-
-**Peak Picker-Uppers**\
-`Ella Dershowitz dreams of snowy adventures.`\
-https://nytimes.com/2024/12/25/crosswords/daily-puzzle-2024-12-26.html
-
-**Human Error Cited for Collision of Two Planes at Tokyo Airport**\
-`A report confirmed prior indications that a pilot’s misunderstanding of air traffic control directives, and a missed warning, caused the January accident.`\
-https://nytimes.com/2024/12/25/business/tokyo-haneda-plane-crash.html
 
