@@ -1,3 +1,11 @@
+**Nuclear Weapons Are Not a Fact of Life**\
+`Like other weapons of mass destruction, nuclear weapons are not unsolvable problems.`\
+https://nytimes.com/2024/12/26/opinion/nuclear-weapons.html
+
+**20 Years Ago a Tsunami Killed 230,000 People. We Can Do Better Now.**\
+`With better technology, we could further shorten the time between an earthquake and when the tsunami warning goes out.`\
+https://nytimes.com/2024/12/26/opinion/california-tsunami-warnings.html
+
 **The women's players that could be on the move in January**\
 `Here are some of the names that could interest clubs in the Women's Super League and beyond in January`\
 https://nytimes.com/athletic/6015539/2024/12/26/womens-players-january-transfers/
