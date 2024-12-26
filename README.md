@@ -1,3 +1,15 @@
+**In C.E.O. Murder Case, a Test of New York’s Antiterrorism Laws**\
+`The Manhattan district attorney has brought a terrorism charge against the man accused of killing a health insurance executive, arguing that he intended to “sow fear.”`\
+https://nytimes.com/2024/12/26/nyregion/luigi-mangione-terrorism-charge.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/26/crosswords/spelling-bee-forum.html
+
+**Review: ‘Squid Game’ Hits a Red Light**\
+`The second season of the Netflix smash delivers more stylized carnage, but the story stalls.`\
+https://nytimes.com/2024/12/26/arts/television/squid-game-review-season-2.html
+
 **Corberan says leaving West Brom for Valencia was 'hardest decision of my life'**\
 `Carlos Corberan has said it was the &#8220;hardest decision of my life&#8221; to leave his position as West Bromwich Albion manager to become Valencia head coach.`\
 https://nytimes.com/athletic/6015903/2024/12/26/valencia-manager-carlos-corberan-west-brom/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5954734/2024/12/26/leeds-transfers-latest-january-w
 **Newcastle United Transfer DealSheet: What to expect in the January window**\
 `Right-wing, centre-back and goalkeeper are priorities – but sales are needed`\
 https://nytimes.com/athletic/6003049/2024/12/26/newcastle-united-transfer-dealsheet-what-to-expect-in-the-january-window/
-
-**Manchester City Transfer DealSheet: What to expect in the January window**\
-`A squad overhaul will be needed at some point, but how much will get done this winter?`\
-https://nytimes.com/athletic/6000709/2024/12/26/man-city-transfer-dealsheet-january/
-
-**Crystal Palace Transfer DealSheet: What to expect in the January window**\
-`Crystal Palace have plans afoot for the January transfer window`\
-https://nytimes.com/athletic/6012446/2024/12/26/crystal-palace-january-transfer-window-latest/
-
-**Real Madrid Transfer DealSheet: What to expect in the January window**\
-`Madrid enter the January transfer window with plenty of questions about their squad depth. But will they make any moves?`\
-https://nytimes.com/athletic/6000938/2024/12/26/real-madrid-transfers-alexander-arnold-davies/
 
