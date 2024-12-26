@@ -1,7 +1,3 @@
-**Sugar Pie DeSanto, Gritty Soul Singer, Is Dead at 89**\
-`A powerful performer who paved the way for later soul and hip-hop artists, she recorded with Etta James and toured with Johnny Otis and James Brown.`\
-https://nytimes.com/2024/12/26/arts/music/sugar-pie-desanto-dead.html
-
 **Israeli Forces Strike International Airport in Yemen**\
 `The deadly assault came after a week of attacks in Israel by the Iran-backed Houthi militia.`\
 https://nytimes.com/video/world/middleeast/100000009897615/israel-yemen-houthis.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/26/briefing/plane-crash-investigation-israel-yemen-s
 **Lakers-Warriors draws highest NBA regular-season audience in 5 years**\
 `The game pulled in 7.763 million viewers, according to ESPN, and was part of a resurgent showing for the league on Christmas.`\
 https://nytimes.com/athletic/6020644/2024/12/26/lakers-warriors-christmas-game-viewership-nba/
+
+**The Briefing: Liverpool 3-1 Leicester - Seven points clear... but what changed at half-time?**\
+`The big talking points analysed as Arne Slot's side stretched their Premier League lead`\
+https://nytimes.com/athletic/6017805/2024/12/26/liverpool-leicester-result-analysis/
 
