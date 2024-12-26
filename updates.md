@@ -1,3 +1,11 @@
+**An Easy Holiday Cake That’s Not Too Sweet**\
+`This gingerbread cake — with a swoop of molasses frosting — is rich and complex in flavor. It’s also a snap to make.`\
+https://nytimes.com/2024/12/26/dining/an-easy-holiday-cake-thats-not-too-sweet.html
+
+**Everything You Need to Know About Dry January**\
+`The popular sobriety challenge can be a good way to start the year. Here’s how to prepare, what to expect and more.`\
+https://nytimes.com/2024/12/26/well/eat/dry-january-guide.html
+
 **Israeli Warplanes Bomb Yemen After Houthis Step Up Missile Launches**\
 `The assault came after a week of attacks by the Iran-backed militia on Israel.`\
 https://nytimes.com/2024/12/26/world/middleeast/israel-yemen-bombs-houthis.html
