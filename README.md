@@ -1,3 +1,7 @@
+**The Briefing: Manchester City 1-1 Everton - What went wrong? Was any of it convincing? And what now?**\
+`Analysis of the champions' latest frustrating outing as Earling Haaland missed a penalty and Everton claimed a point at the Etihad stadium`\
+https://nytimes.com/athletic/6017800/2024/12/26/manchester-city-everton-haaland-guardiola-doku-bernardo/
+
 **Marvel Comics as Penguin Classics? Elda Rotor Heard a ‘Hell Yeah’**\
 `“I get real geek joy out of learning something new,” says the imprint’s vice president and publisher. She’s proud to have broadened the definition of a classic during her tenure.`\
 https://nytimes.com/2024/12/26/books/review/elda-rotor-penguin-classics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6014901/2024/12/26/edmonton-oilers-2024-stats/
 **Bo Nix owns best Broncos rookie QB season, but he's still chasing '83 John Elway**\
 `Nix is trying to become the first Broncos rookie quarterback to lead the team to the playoffs in 40 years.`\
 https://nytimes.com/athletic/6018752/2024/12/26/bo-nix-broncos-playoffs-bengals/
-
-**Investigators Try to Determine Cause of Deadly Plane Crash in Kazakhstan**\
-`Of 62 passengers and five crew members on board the Azerbaijan Airlines flight, 29 survived, according to Kazakhstan’s authorities.`\
-https://nytimes.com/2024/12/26/world/asia/investigators-plane-crash-kazakhstan.html
 
