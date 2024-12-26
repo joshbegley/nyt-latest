@@ -1,3 +1,7 @@
+**Vegetable Dumplings, Oven Beans and Ginger Sesame Granola**\
+`This liminal-space week is a good time to fill your fridge, freezer and pantry with delicious, sustaining things.`\
+https://nytimes.com/2024/12/26/dining/vegetable-dumplings-oven-beans-and-ginger-sesame-granola.html
+
 **Heat Today: With or without a trade, Jimmy Butler's Miami legacy is secure**\
 `Rumors of Butler's desire to leave continue to circulate. He long ago established his value to a contender in South Florida.`\
 https://nytimes.com/athletic/6019583/2024/12/26/jimmy-butler-heat-mavericks-suns-warriors-rockets-nba/

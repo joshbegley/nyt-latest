@@ -1,3 +1,7 @@
+**Vegetable Dumplings, Oven Beans and Ginger Sesame Granola**\
+`This liminal-space week is a good time to fill your fridge, freezer and pantry with delicious, sustaining things.`\
+https://nytimes.com/2024/12/26/dining/vegetable-dumplings-oven-beans-and-ginger-sesame-granola.html
+
 **Heat Today: With or without a trade, Jimmy Butler's Miami legacy is secure**\
 `Rumors of Butler's desire to leave continue to circulate. He long ago established his value to a contender in South Florida.`\
 https://nytimes.com/athletic/6019583/2024/12/26/jimmy-butler-heat-mavericks-suns-warriors-rockets-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017803/2024/12/26/nottingham-forest-tottenham-resu
 **Biden and Aides Courted Allies Who Undermined U.S. Goals**\
 `The Biden administration has been caught by surprise when partners like South Korea and Israel have acted against U.S. interests and principles.`\
 https://nytimes.com/2024/12/26/us/politics/biden-allies-foreign-policy.html
-
-**For a Happier New Year, Focus on Your Loved Ones**\
-`Experts share how shifting from self-focused goals to thinking about others can have a positive impact on the year ahead.`\
-https://nytimes.com/2024/12/26/style/new-years-resolutions-relationships-loved-ones.html
 
