@@ -1,3 +1,7 @@
+**‘Go to Hell,’ ‘The Light of Freedom’ and Other Ways to Send Presidential Christmas Messages**\
+`Past U.S. presidents have used their holiday messages to inspire the nation to face hard times by coming together. President-elect Donald J. Trump had his own idea.`\
+https://nytimes.com/2024/12/26/us/politics/president-christmas-messages-trump.html
+
 **Dorthy Moxley, Who Pursued Justice in Her Daughter’s Murder, Dies at 92**\
 `For decades after Martha Moxley’s gruesome death, Mrs. Moxley remained a compelling figure in a roller-coaster case that captured the world’s attention.`\
 https://nytimes.com/2024/12/26/us/dorthy-moxley-dead.html

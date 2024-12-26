@@ -15,7 +15,7 @@ https://nytimes.com/2024/12/26/us/politics/trump-panama-canal.html
 https://nytimes.com/2024/12/26/us/politics/marianne-williamson-dnc-chair.html
 
 **‘Go to Hell,’ ‘The Light of Freedom’ and Other Ways to Send Presidential Christmas Messages**\
-`Past U.S. presidents have used their holiday messages to inspire the nation to overlook their differences and face hard times by coming together. President-elect Donald J. Trump had his own idea.`\
+`Past U.S. presidents have used their holiday messages to inspire the nation to face hard times by coming together. President-elect Donald J. Trump had his own idea.`\
 https://nytimes.com/2024/12/26/us/politics/president-christmas-messages-trump.html
 
 **‘Drop the Dead Donkey’ Is a ’90s British Newsroom Comedy**\
