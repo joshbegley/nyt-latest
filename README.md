@@ -1,4 +1,4 @@
-**Manmohan Singh, Indian Premier Behind Economic Changes, Dies at 92**\
+**Manmohan Singh, Indian Premier Who Spurred Economic Boom, Dies at 92**\
 `The country’s first Sikh prime minister, he introduced free-market reforms that turned India into an economic powerhouse and sought reconciliation with Pakistan.`\
 https://nytimes.com/2024/12/26/world/asia/manmohan-singh-dead.html
 
