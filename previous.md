@@ -1,3 +1,7 @@
+**Prosecutors in Taiwan Indict Former Presidential Candidate**\
+`The prosecutors asserted that Ko Wen-je, a former mayor, took bribes. He and his supports have maintained that the charges are a political vendetta.`\
+https://nytimes.com/2024/12/26/world/asia/taiwan-presidential-candidate-indicted.html
+
 **Nuclear Weapons Are Not a Fact of Life**\
 `Like other weapons of mass destruction, nuclear weapons are not unsolvable problems.`\
 https://nytimes.com/2024/12/26/opinion/nuclear-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/science/tsunami-2004-20th-anniversary.html
 **The War Killed Her Dreams. To Survive, She Treated Its Fighters.**\
 `Trapped in Sudan’s brutal civil war, a young woman chose to work in a clinic on the front line, treating civilians and combatants. She had to navigate suspicion from both sides.`\
 https://nytimes.com/2024/12/26/world/africa/sudan-war-rsf-medical-clinic.html
-
-**Still Sounding Young at 85, She Is the Voice of Old Japan**\
-`Midori Kato is the last original member of the cast of “Sazae-san,” a cartoon series that premiered in 1969 and never quite joined the modern world.`\
-https://nytimes.com/2024/12/26/world/asia/japan-society-television-cartoon-sazae.html
 

@@ -1,3 +1,7 @@
+**Prosecutors in Taiwan Indict Former Presidential Candidate**\
+`The prosecutors asserted that Ko Wen-je, a former mayor, took bribes. He and his supports have maintained that the charges are a political vendetta.`\
+https://nytimes.com/2024/12/26/world/asia/taiwan-presidential-candidate-indicted.html
+
 **Nuclear Weapons Are Not a Fact of Life**\
 `Like other weapons of mass destruction, nuclear weapons are not unsolvable problems.`\
 https://nytimes.com/2024/12/26/opinion/nuclear-weapons.html

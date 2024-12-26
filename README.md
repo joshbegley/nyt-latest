@@ -1,3 +1,7 @@
+**Celtics hit season's first 2-game skid in Christmas Day loss to 76ers**\
+`As a dangerous January schedule looms, Boston hasn't been playing up to its standard recently, falling 4 games out of first in the East.`\
+https://nytimes.com/athletic/6019181/2024/12/26/celtics-lose-to-76ers-christmas/
+
 **Prosecutors in Taiwan Indict Former Presidential Candidate**\
 `The prosecutors asserted that Ko Wen-je, a former mayor, took bribes. He and his supports have maintained that the charges are a political vendetta.`\
 https://nytimes.com/2024/12/26/world/asia/taiwan-presidential-candidate-indicted.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/briefing/thursday-briefing.html
 **The Deadliest Tsunami Set Off Work to Be Ready for the Next Big Wave**\
 `Experts said they were “blind” to the Indian Ocean tsunami in 2004. Twenty years later, working toward a world without tsunami deaths is a challenge.`\
 https://nytimes.com/2024/12/26/science/tsunami-2004-20th-anniversary.html
-
-**The War Killed Her Dreams. To Survive, She Treated Its Fighters.**\
-`Trapped in Sudan’s brutal civil war, a young woman chose to work in a clinic on the front line, treating civilians and combatants. She had to navigate suspicion from both sides.`\
-https://nytimes.com/2024/12/26/world/africa/sudan-war-rsf-medical-clinic.html
 
