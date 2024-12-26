@@ -1,3 +1,11 @@
+**Howe defends Tindall after half-time melee, red card**\
+`Eddie Howe has stood up for Jason Tindall and insists Newcastle United players were &#8220;protecting each other&#8221; at half-time of the 3-0 victory over Aston Villa, when a melee involving up to 20 people broke out in the tunnel.`\
+https://nytimes.com/athletic/6020191/2024/12/26/newcastle-aston-villa-tindall-red-card/
+
+**Find Your New Favorite Song from 2024**\
+`Catch up on the year’s most notable music: Listen to the 450-plus tracks we reviewed this year, save them to a playlist and share it with your friends.`\
+https://nytimes.com/interactive/2024/12/26/arts/music/discover-songs-2024.html
+
 **Manmohan Singh, Indian Premier Who Spurred Economic Boom, Dies at 92**\
 `The country’s first Sikh prime minister, he introduced free-market reforms that turned India into an economic powerhouse and sought reconciliation with Pakistan.`\
 https://nytimes.com/2024/12/26/world/asia/manmohan-singh-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6019583/2024/12/26/jimmy-butler-heat-mavericks-suns
 **Bus Veers Into Frigid Lake in Norway, Killing at Least 3**\
 `The bus, which was carrying more than 50 people, was partly submerged after leaving a road in the country’s northwest.`\
 https://nytimes.com/2024/12/26/world/europe/norway-bus-accident.html
-
-**Syrian Government Forces Hunt for a Senior Assad Official**\
-`Syria’s new government is searching for a senior official from the Assad dictatorship and for military forces loyal to the ousted president.`\
-https://nytimes.com/2024/12/26/world/middleeast/syria-rebel-forces-hunt-assad-loyalists.html
-
-**Hochul Signs Law That Penalizes Companies for Greenhouse Gas Emissions**\
-`The measure will seek to raise funds to pay for some of the damage caused by extreme weather events, which are becoming more frequent because of the combustion of fossil fuels.`\
-https://nytimes.com/2024/12/26/nyregion/hochul-climate-change-superfund-law.html
 
