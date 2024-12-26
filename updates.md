@@ -1,3 +1,11 @@
+**Beyoncé’s Netflix Halftime Set: A Stunning ‘Cowboy Carter’ Showcase**\
+`The star performed songs from her country-and-more album for the first time during an N.F.L. game, spotlighting her onstage prowess and the contributions of her collaborators.`\
+https://nytimes.com/2024/12/25/arts/music/beyonce-performance-halftime-show-christmas-netflix.html
+
+**Peak Picker-Uppers**\
+`Ella Dershowitz dreams of snowy adventures.`\
+https://nytimes.com/2024/12/25/crosswords/daily-puzzle-2024-12-26.html
+
 **Tokyo Plane Collision Was Caused by Human Error, Investigators Find**\
 `A report confirmed prior indications that a pilot’s misunderstanding of air traffic control directives, and a missed warning, caused the January accident.`\
 https://nytimes.com/2024/12/25/business/tokyo-haneda-plane-crash.html
