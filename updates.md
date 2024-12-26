@@ -1,3 +1,11 @@
+**Finland Seizes Ship After Undersea Cable Is Cut**\
+`The country’s prime minister said the incident, the latest in a series of disruptions to undersea infrastructure, underscored the danger of a so-called Russian shadow fleet.`\
+https://nytimes.com/2024/12/26/world/europe/finland-estonia-cables-russia.html
+
+**8 Art Shows to See Before They Close in January**\
+`Sublime paintings from Siena, the birth of Impressionism and more dazzling exhibitions in New York and Washington, D.C., to catch before they’re gone.`\
+https://nytimes.com/2024/12/26/arts/design/museum-art-shows-exhibits-closing.html
+
 **Israeli Warplanes Bomb Yemen After Houthis Step Up Missile Launches**\
 `The assault killed at least two people and injured 11 others, a Houthi-affiliated TV channel reported. The strikes came after a week of attacks by the Iran-backed militia on Israel.`\
 https://nytimes.com/2024/12/26/world/middleeast/israel-yemen-bombs-houthis.html

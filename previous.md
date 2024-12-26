@@ -1,3 +1,11 @@
+**Finland Seizes Ship After Undersea Cable Is Cut**\
+`The country’s prime minister said the incident, the latest in a series of disruptions to undersea infrastructure, underscored the danger of a so-called Russian shadow fleet.`\
+https://nytimes.com/2024/12/26/world/europe/finland-estonia-cables-russia.html
+
+**8 Art Shows to See Before They Close in January**\
+`Sublime paintings from Siena, the birth of Impressionism and more dazzling exhibitions in New York and Washington, D.C., to catch before they’re gone.`\
+https://nytimes.com/2024/12/26/arts/design/museum-art-shows-exhibits-closing.html
+
 **Teens, Parents and Pornography: We Need to Talk**\
 `Readers discuss the need for frank discussions about porn. Also: Luigi Mangione; pediatric cancer bills; our environmental focus; the obesity crisis.`\
 https://nytimes.com/2024/12/26/opinion/letters/teens-parents-pornography.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6019347/2024/12/26/nfl-best-bets-week-17-edge-on-fa
 **The Eye Has to Report**\
 `The best, most delightful and most shocking images from the Styles desk this year.`\
 https://nytimes.com/2024/12/26/style/law-roach-naomi-osaka-rnc-fashion-culture-photos.html
-
-**Worried About Market Turmoil Under Trump? Look to the Past.**\
-`Readers have concerns that President-elect Trump’s policy agenda will unsettle stocks. If you’re tempted to make big portfolio moves, revisit 2020.`\
-https://nytimes.com/2024/12/26/business/trump-stock-market-investing.html
-
-**The Briefing: Manchester City 1-1 Everton - What went wrong? Was any of it convincing? And what now?**\
-`Analysis of the champions' latest frustrating outing as Erling Haaland missed a penalty and Everton claimed a point at the Etihad stadium`\
-https://nytimes.com/athletic/6017800/2024/12/26/manchester-city-everton-haaland-guardiola-doku-bernardo/
 
