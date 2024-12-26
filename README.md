@@ -1,3 +1,11 @@
+**Bus Veers Into Frigid Lake in Norway, Killing at Least 3**\
+`The bus, which was carrying more than 50 people, was partly submerged after leaving a road in the country’s northwest.`\
+https://nytimes.com/2024/12/26/world/europe/norway-bus-accident.html
+
+**Syrian Government Forces Hunt for a Senior Assad Official**\
+`Syria’s new government is searching for a senior official from the Assad dictatorship and for military forces loyal to the ousted president.`\
+https://nytimes.com/2024/12/26/world/middleeast/syria-rebel-forces-hunt-assad-loyalists.html
+
 **Hochul Signs Law That Penalizes Companies for Greenhouse Gas Emissions**\
 `The measure will seek to raise funds to pay for some of the damage caused by extreme weather events, which are becoming more frequent because of the combustion of fossil fuels.`\
 https://nytimes.com/2024/12/26/nyregion/hochul-climate-change-superfund-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/26/style/new-years-resolutions-relationships-loved-o
 **The Best Sentences of 2024**\
 `An ugly year in politics was a gorgeous one for words.`\
 https://nytimes.com/2024/12/26/opinion/best-sentences-of-2024.html
-
-**The Briefing: Newcastle 3 Villa 0: Have Howe's team turned a corner? Was Duran's red card deserved?**\
-`The Athletic's Chris Waugh and Jacob Tanswell analyse the talking points from a dramatic and tetchy meeting at St James' Park `\
-https://nytimes.com/athletic/6017802/2024/12/26/newcastle-united-3-aston-villa-0-gordon-isak-duran-sent-off/
-
-**Finland Seizes Ship After Undersea Cable Is Cut**\
-`The country’s prime minister said the incident, the latest in a series of disruptions to undersea infrastructure, underscored the danger of a so-called Russian shadow fleet.`\
-https://nytimes.com/2024/12/26/world/europe/finland-estonia-cables-russia.html
 
