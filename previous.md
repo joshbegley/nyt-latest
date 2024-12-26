@@ -1,3 +1,11 @@
+**The Briefing: Who can stop Liverpool, fragile Haaland and why are Man Utd conceding 'olimpicos'?**\
+`The major Premier League talking points analysed - including Amazon's farewell and Nottingham Forest's fairytale`\
+https://nytimes.com/athletic/6019645/2024/12/26/liverpool-premier-league-manchester-united-olimpico-haaland/
+
+**Reagan Backed Off His Panama Threats. Will Trump?**\
+`He may be hungry for global disorder.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/trump-greenland-panama-carter
+
 **How They Celebrated the Holidays 250 Miles Above Earth**\
 `The astronauts on the I.S.S. — including two who were scheduled to return months ago — held a zero-gravity cookie-decorating contest and built a reindeer from storage bags.`\
 https://nytimes.com/2024/12/26/science/iss-astronauts-holiday-celebration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6017805/2024/12/26/liverpool-leicester-result-analy
 **Shyam Benegal, Indian Filmmaker Who Explored Social Issues, Dies at 90**\
 `He won acclaim from critics and audiences even as the gritty stories he put on the big screen grappled with some of India’s thorniest problems.`\
 https://nytimes.com/2024/12/26/movies/shyam-benegal-dead.html
-
-**What has Alabama lost, what needs have to be filled?**\
-`Where does Alabama's roster stand with the winter transfer portal window closing on Saturday, and where else do the Crimson Tide need help?`\
-https://nytimes.com/athletic/6020224/2024/12/26/alabama-2025-football-recruiting-transfer-portal-roster/
-
-**Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
-`Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
-https://nytimes.com/athletic/6016942/2024/12/26/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
 

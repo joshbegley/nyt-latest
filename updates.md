@@ -1,3 +1,11 @@
+**The Briefing: Who can stop Liverpool, fragile Haaland and why are Man Utd conceding 'olimpicos'?**\
+`The major Premier League talking points analysed - including Amazon's farewell and Nottingham Forest's fairytale`\
+https://nytimes.com/athletic/6019645/2024/12/26/liverpool-premier-league-manchester-united-olimpico-haaland/
+
+**Reagan Backed Off His Panama Threats. Will Trump?**\
+`He may be hungry for global disorder.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/trump-greenland-panama-carter
+
 **Bultman: The Red Wings have changed coaches, but they can't stop there**\
 `The Red Wings fired Lalonde on Thursday in search of a spark. But their biggest issues will require more work to fix.`\
 https://nytimes.com/athletic/6020364/2024/12/26/red-wings-derek-lalonde-changes-yzerman/
