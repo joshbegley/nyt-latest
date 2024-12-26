@@ -1,3 +1,11 @@
+**Hochul Signs Law That Penalizes Companies for Greenhouse Gas Emissions**\
+`The measure will seek to raise funds to pay for some of the damage caused by extreme weather events, which are becoming more frequent because of the combustion of fossil fuels.`\
+https://nytimes.com/2024/12/26/nyregion/hochul-climate-change-superfund-law.html
+
+**Red Wings fire coach Derek Lalonde after 13-17-4 start, hire Todd McLellan**\
+`Lalonde took over the team in the 2022 offseason after Detroit moved on from Jeff Blashill, and the team improved in his first two seasons.`\
+https://nytimes.com/athletic/5932340/2024/12/26/red-wings-derek-lalonde-coach-fired/
+
 **As Hollywood Struggles, the Region’s Economy Feels the Pain**\
 `Film production has failed to bounce back after major strikes last year, and competition from other locales has gotten stiffer.`\
 https://nytimes.com/2024/12/26/business/economy/hollywood-southern-california-economy.html
