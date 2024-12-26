@@ -1,3 +1,7 @@
+**The Eye Has to Report**\
+`The best, most delightful and most shocking images from the Styles desk this year.`\
+https://nytimes.com/2024/12/26/style/law-roach-naomi-osaka-rnc-fashion-culture-photos.html
+
 **Worried About Market Turmoil Under Trump? Look to the Past.**\
 `Readers have concerns that President-elect Trump’s policy agenda will unsettle stocks. If you’re tempted to make big portfolio moves, revisit 2020.`\
 https://nytimes.com/2024/12/26/business/trump-stock-market-investing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016137/2024/12/26/canucks-trade-value-tiers-2024/
 **Guardiola: Man City 'definitely have to add players' in January**\
 `Pep Guardiola has said Manchester City &#8220;definitely have to add players&#8221; to their squad in the January transfer window as they look to turn around their alarming drop in form.`\
 https://nytimes.com/athletic/6019343/2024/12/26/man-city-transfers-january-pep-guardiola/
-
-**Five notable Oilers stats and what they could mean going forward**\
-`The Oilers have nabbed victories in 11 of their last 13 games to vault themselves up the NHL standings.`\
-https://nytimes.com/athletic/6014901/2024/12/26/edmonton-oilers-2024-stats/
 
