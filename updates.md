@@ -1,3 +1,7 @@
+**Strike on Press Van in Gaza Kills Five Journalists, Palestinian Media Say**\
+`Emergency responders worked to put out the fire in a van marked “Press” and recover the bodies in Nuseirat, Gaza, on Thursday.`\
+https://nytimes.com/video/world/middleeast/100000009896715/nuseirat-journalists-killed-gaza.html
+
 **Human Error Cited for Collision of Two Planes at Tokyo Airport**\
 `A report confirmed prior indications that a pilot’s misunderstanding of air traffic control directives, and a missed warning, caused the January accident.`\
 https://nytimes.com/2024/12/25/business/tokyo-haneda-plane-crash.html
