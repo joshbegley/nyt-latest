@@ -1,3 +1,11 @@
+**Plane Crash Investigators Look at Russian Antiaircraft Systems**\
+`Also, Israel bombed an airport and ports in Yemen. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/12/26/briefing/plane-crash-investigation-israel-yemen-strikes.html
+
+**Lakers-Warriors draws highest NBA regular-season audience in 5 years**\
+`The game pulled in 7.763 million viewers, according to ESPN, and was part of a resurgent showing for the league on Christmas.`\
+https://nytimes.com/athletic/6020644/2024/12/26/lakers-warriors-christmas-game-viewership-nba/
+
 **The Briefing: Liverpool 3-1 Leicester - Seven points clear... but what changed at half-time?**\
 `The big talking points analysed as Arne Slot's side stretched their Premier League lead`\
 https://nytimes.com/athletic/6017805/2024/12/26/liverpool-leicester-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/26/briefing/israel-plane-crash-russia-tsunami.html
 **Amorim 'frustrated' by Fernandes red card 'but it can happen'**\
 `Ruben Amorim had sympathy for Bruno Fernandes after the Manchester United captain saw red for a third time this season in the Premier League defeat at Wolverhampton Wanderers on Boxing Day.`\
 https://nytimes.com/athletic/6020335/2024/12/26/manchester-united-wolves-bruno-fernandes-red-card/
-
-**Dorthy Moxley, Who Pursued Justice in Her Daughter’s Murder, Dies at 92**\
-`For decades after Martha Moxley’s gruesome death, Mrs. Moxley remained a compelling figure in a roller-coaster case that captured the world’s attention.`\
-https://nytimes.com/2024/12/26/us/dorthy-moxley-dead.html
-
-**Richard Parsons, Serial Fixer of Media and Finance Giants, Dies at 76**\
-`Mr. Parsons’s lengthy résumé is a catalog of corporate emergencies at Time Warner, Citigroup and the Los Angeles Clippers.`\
-https://nytimes.com/2024/12/26/business/media/richard-parsons-dead.html
 
