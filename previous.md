@@ -1,3 +1,7 @@
+**Donald Bitzer, Unsung Pioneer of Interactive Computing, Dies at 90**\
+`In the 1960s and ’70s, he developed the PLATO computer system, which combined instant messaging, email, chat rooms and gaming on flat-screen plasma displays.`\
+https://nytimes.com/2024/12/26/technology/donald-bitzer-dead.html
+
 **Vegetable Dumplings, Oven Beans and Ginger Sesame Granola**\
 `This liminal-space week is a good time to fill your fridge, freezer and pantry with delicious, sustaining things.`\
 https://nytimes.com/2024/12/26/dining/vegetable-dumplings-oven-beans-and-ginger-sesame-granola.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017801/2024/12/26/chelsea-1-fulham-2-palmer-muniz-
 **The Briefing: Nottingham Forest 1-0 Tottenham - Nuno has the last laugh, Spence sent off**\
 `Spurs enjoyed 70.4 per cent of possession but it was Anthony Elanga's goal for Forest which made the difference`\
 https://nytimes.com/athletic/6017803/2024/12/26/nottingham-forest-tottenham-result-nuno/
-
-**Biden and Aides Courted Allies Who Undermined U.S. Goals**\
-`The Biden administration has been caught by surprise when partners like South Korea and Israel have acted against U.S. interests and principles.`\
-https://nytimes.com/2024/12/26/us/politics/biden-allies-foreign-policy.html
 
