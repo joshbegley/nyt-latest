@@ -10,7 +10,7 @@ https://nytimes.com/2024/12/26/briefing/holiday-briefing-special-edition.html
 `Manchester United's season took another turn for the worse with Fernandes sent off and another 'Olimpico' conceded in defeat to Wolves`\
 https://nytimes.com/athletic/6017804/2024/12/26/wolves-2-manchester-united-0-fernandes-olimpico-amorim/
 
-**Pat Riley: Heat not trading Jimmy Butler, calls speculation 'a distraction'**\
+**Pat Riley on recent reports: Heat ‘will not trade Jimmy Butler’**\
 `Riley's attempt to shut down rumors comes as the Heat sit at 14-13 and in sixth place in the Eastern Conference.`\
 https://nytimes.com/athletic/6020206/2024/12/26/jimmy-butler-trade-request-pat-riley-heat/
 
