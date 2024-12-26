@@ -1,3 +1,7 @@
+**The Year in News**\
+`An election. A shooting. A solar eclipse. Wars in the Middle East and Ukraine.`\
+https://nytimes.com/2024/12/26/briefing/the-year-in-news.html
+
 **The Athletic FC: Man City & Real Madrid eye transfer deals, team of the season (so far)**\
 `Today in TAFC: Manchester City and Real Madrid might need to make moves in January. Plus Phil's team of the season (so far)`\
 https://nytimes.com/athletic/6001241/2024/12/26/transfers-manchester-city-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/podcasts/the-daily/2024-best-tv-movies.html
 **Wordle Review No. 1,287**\
 `Scroll down for hints and conversation about the puzzle for Friday, Dec. 27, 2024.`\
 https://nytimes.com/2024/12/26/crosswords/wordle-review-1287.html
-
-**Eight Takeaways: How Israel Weakened Civilian Protections When Bombing Hamas Fighters**\
-`A New York Times investigation found that Israel severely undermined its system of safeguards when striking Gaza, and used flawed methods to find targets and assess the risk to civilians.`\
-https://nytimes.com/interactive/2024/12/26/world/middleeast/israel-gaza-strikes-takeaways.html
 
