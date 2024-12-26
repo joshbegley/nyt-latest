@@ -1,3 +1,11 @@
+**Why Ollie Palmer is Wrexham's ultimate team player**\
+`The striker's goalscoring statistics are nothing to shout about but Palmer's all-round contribution is much more significant`\
+https://nytimes.com/athletic/6015128/2024/12/26/wrexham-ollie-palmer-striker-blackpool/
+
+**Until Saturday: Best of 2024, plus this weekend's top bowls**\
+`Welcome to Until Saturday, the five-star college football newsletter: What were the biggest moments of 2024?`\
+https://nytimes.com/athletic/6020217/2024/12/26/college-football-2024-review-bowl-games-until-saturday/
+
 **Friday Briefing: How Israel Weakened Civilian Protections**\
 `Plus, video games can’t afford to look this good.`\
 https://nytimes.com/2024/12/26/briefing/israel-plane-crash-russia-tsunami.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/26/us/politics/president-christmas-messages-trump.ht
 **‘Drop the Dead Donkey’ Is a ’90s British Newsroom Comedy**\
 `The ’90s sitcom fits alongside American newsroom shows like “Murphy Brown,” but it’s a little slower and more misanthropic.`\
 https://nytimes.com/2024/12/26/arts/television/drop-the-dead-donkey-roku-pluto.html
-
-**Anthony Edwards delivers on Christmas but also shows how far Wolves have to go**\
-`On Christmas, there were real glimpses of the dynamic Edwards that has been stifled much of the season. That is what the Wolves need most.`\
-https://nytimes.com/athletic/6018886/2024/12/26/anthony-edwards-timberwolves-nba-christmas/
-
-**5 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/12/26/books/review/new-books-recommendations.html
 
