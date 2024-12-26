@@ -1,3 +1,7 @@
+**Warriors falter late against Lakers as slump and vibes worsen**\
+`This wasn't a lifeless performance by the Warriors, but after a 12-3 start to the season, lately, they keep finding ways to lose.`\
+https://nytimes.com/athletic/6019092/2024/12/26/warriors-falter-late-against-lakers/
+
 **Celtics hit season's first 2-game skid in Christmas Day loss to 76ers**\
 `As a dangerous January schedule looms, Boston hasn't been playing up to its standard recently, falling 4 games out of first in the East.`\
 https://nytimes.com/athletic/6019181/2024/12/26/celtics-lose-to-76ers-christmas/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/world/asia/tsunami-anniversary-photos.html
 **Thursday Briefing**\
 `Christmas Day attacks on Ukraine.`\
 https://nytimes.com/2024/12/26/briefing/thursday-briefing.html
-
-**The Deadliest Tsunami Set Off Work to Be Ready for the Next Big Wave**\
-`Experts said they were “blind” to the Indian Ocean tsunami in 2004. Twenty years later, working toward a world without tsunami deaths is a challenge.`\
-https://nytimes.com/2024/12/26/science/tsunami-2004-20th-anniversary.html
 
