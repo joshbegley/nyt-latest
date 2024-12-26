@@ -1,3 +1,11 @@
+**Why Is Mozambique in Chaos?**\
+`More than 250 people have died in this southern African nation as protesters disputing the results of the presidential election clash with the police and military.`\
+https://nytimes.com/2024/12/26/world/africa/mozambique-unrest-news.html
+
+**NFL Week 17 odds, picks: Vikings-Packers highlights three days of action**\
+`NFL Week 17 continues with do-or-die matchups for several teams as final playoff positioning looms. `\
+https://nytimes.com/athletic/6019738/2024/12/26/nfl-week-17-odds-picks-vikings-packers/
+
 **Howe defends Tindall after half-time melee, red card**\
 `Eddie Howe has stood up for Jason Tindall and insists Newcastle United players were &#8220;protecting each other&#8221; at half-time of the 3-0 victory over Aston Villa, when a melee involving up to 20 people broke out in the tunnel.`\
 https://nytimes.com/athletic/6020191/2024/12/26/newcastle-aston-villa-tindall-red-card/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/26/technology/donald-bitzer-dead.html
 **Vegetable Dumplings, Oven Beans and Ginger Sesame Granola**\
 `This liminal-space week is a good time to fill your fridge, freezer and pantry with delicious, sustaining things.`\
 https://nytimes.com/2024/12/26/dining/vegetable-dumplings-oven-beans-and-ginger-sesame-granola.html
-
-**Heat Today: With or without a trade, Jimmy Butler's Miami legacy is secure**\
-`Rumors of Butler's desire to leave continue to circulate. He long ago established his value to a contender in South Florida.`\
-https://nytimes.com/athletic/6019583/2024/12/26/jimmy-butler-heat-mavericks-suns-warriors-rockets-nba/
-
-**Bus Veers Into Frigid Lake in Norway, Killing at Least 3**\
-`The bus, which was carrying more than 50 people, was partly submerged after leaving a road in the country’s northwest.`\
-https://nytimes.com/2024/12/26/world/europe/norway-bus-accident.html
 
