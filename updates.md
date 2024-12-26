@@ -1,3 +1,7 @@
+**Christmas win in Boston proves 76ers are finally turning disastrous season around**\
+`Things are a lot different for the Sixers in the past few weeks. They’re 8-3 in their last 11 games.`\
+https://nytimes.com/athletic/6019152/2024/12/25/76ers-christmas-win-boston/
+
 **Strike on Press Van in Gaza Kills Five Journalists, Palestinian Media Say**\
 `Emergency responders worked to put out the fire in a van marked “Press” and recover the bodies in Nuseirat, Gaza, on Thursday.`\
 https://nytimes.com/video/world/middleeast/100000009896715/nuseirat-journalists-killed-gaza.html
