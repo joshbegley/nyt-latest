@@ -1,3 +1,7 @@
+**49ers to give Jake Moody the boot? Instead, Kyle Shanahan gives him his backing**\
+`The 49ers practiced with a reconfigured offensive line Thursday after placing two more linemen on season-ending injured reserve.`\
+https://nytimes.com/athletic/6020817/2024/12/26/49ers-kyle-shanahan-jake-moody/
+
 **The Sidney Awards**\
 `A revelatory portrait, an “American Vulcan,” a sober take on DOGE and more.`\
 https://nytimes.com/2024/12/26/opinion/sidney-awards.html
