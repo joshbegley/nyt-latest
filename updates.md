@@ -1,3 +1,7 @@
+**Tokyo Plane Collision Was Caused by Human Error, Investigators Find**\
+`A report confirmed prior indications that a pilot’s misunderstanding of air traffic control directives, and a missed warning, caused the January accident.`\
+https://nytimes.com/2024/12/25/business/tokyo-haneda-plane-crash.html
+
 **Japan Airlines Delays Flights After Cyberattack**\
 `The airline also temporarily stopped selling tickets for flights departing Thursday, but said that there was no impact on flight safety.`\
 https://nytimes.com/2024/12/25/business/japan-airlines-cyber-attack.html

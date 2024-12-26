@@ -1,3 +1,7 @@
+**Tokyo Plane Collision Was Caused by Human Error, Investigators Find**\
+`A report confirmed prior indications that a pilot’s misunderstanding of air traffic control directives, and a missed warning, caused the January accident.`\
+https://nytimes.com/2024/12/25/business/tokyo-haneda-plane-crash.html
+
 **Japan Airlines Delays Flights After Cyberattack**\
 `The airline also temporarily stopped selling tickets for flights departing Thursday, but said that there was no impact on flight safety.`\
 https://nytimes.com/2024/12/25/business/japan-airlines-cyber-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009896551/pope-christmas-message.ht
 **Chiefs handle Steelers 29-10 on Christmas to secure AFC top seed: Takeaways**\
 `Mahomes had his first 300-yard, three-touchdown game since Week 7 of 2023.`\
 https://nytimes.com/athletic/6018906/2024/12/25/chiefs-steelers-score-result-takeaways-nfl-christmas/
-
-**Trump Picks Kevin Marino Cabrera for Ambassador to Panama**\
-`The selection of Mr. Cabrera, a Miami-Dade County commissioner, comes a few days after Mr. Trump called for the United States to regain control of the Panama Canal.`\
-https://nytimes.com/2024/12/25/us/politics/panama-ambassador-cabrera-trump.html
 

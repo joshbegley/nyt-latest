@@ -1,3 +1,11 @@
+**Beyoncé’s Netflix Halftime Set: A Stunning ‘Cowboy Carter’ Showcase**\
+`The star performed songs from her country-and-more album for the first time during an N.F.L. game, spotlighting her onstage prowess and the contributions of her collaborators.`\
+https://nytimes.com/2024/12/25/arts/music/beyonce-performance-halftime-show-christmas-netflix.html
+
+**Peak Picker-Uppers**\
+`Ella Dershowitz dreams of snowy adventures.`\
+https://nytimes.com/2024/12/25/crosswords/daily-puzzle-2024-12-26.html
+
 **Tokyo Plane Collision Was Caused by Human Error, Investigators Find**\
 `A report confirmed prior indications that a pilot’s misunderstanding of air traffic control directives, and a missed warning, caused the January accident.`\
 https://nytimes.com/2024/12/25/business/tokyo-haneda-plane-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6017923/2024/12/25/ben-davies-injury-return-tottenh
 **Edwards: With 'special' Christmas outing, Mikal Bridges catches people up to speed**\
 `You may have heard otherwise, but Mikal Bridges has been playing well in New York. His Christmas performance was simply a culmination. `\
 https://nytimes.com/athletic/6018944/2024/12/25/mikal-bridges-knicks-spurs-christmas/
-
-**Pope Francis’ Christmas Message Calls for Peace Amid War**\
-`Pope Francis called for cease-fires for the conflicts in Ukraine and in the Middle East during his Christmas message in St. Peter’s Square in Vatican City.`\
-https://nytimes.com/video/world/europe/100000009896551/pope-christmas-message.html
-
-**Chiefs handle Steelers 29-10 on Christmas to secure AFC top seed: Takeaways**\
-`Mahomes had his first 300-yard, three-touchdown game since Week 7 of 2023.`\
-https://nytimes.com/athletic/6018906/2024/12/25/chiefs-steelers-score-result-takeaways-nfl-christmas/
 
