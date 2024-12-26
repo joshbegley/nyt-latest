@@ -1,3 +1,7 @@
+**The Steelers had 3 chances to prove they're contenders. They struck out.**\
+`“The last three weeks, we played like s---,” Cameron Heyward said. “Simple as that. I own that. Every player's got to own it in here.”`\
+https://nytimes.com/athletic/6019048/2024/12/25/steelers-chiefs-loss-christmas-netflix/
+
 **Pope Francis’ Christmas Message Calls for Peace Amid War**\
 `Pope Francis called for cease-fires for the conflicts in Ukraine and in the Middle East during his Christmas message in St. Peter’s Square in Vatican City.`\
 https://nytimes.com/video/world/europe/100000009896551/pope-christmas-message.html
