@@ -1,3 +1,11 @@
+**Shyam Benegal, Indian Filmmaker Who Explored Social Issues, Dies at 90**\
+`He won acclaim from critics and audiences even as the gritty stories he put on the big screen grappled with some of India’s thorniest problems.`\
+https://nytimes.com/2024/12/26/movies/shyam-benegal-dead.html
+
+**What has Alabama lost, what needs have to be filled?**\
+`Where does Alabama's roster stand with the winter transfer portal window closing on Saturday, and where else do the Crimson Tide need help?`\
+https://nytimes.com/athletic/6020224/2024/12/26/alabama-2025-football-recruiting-transfer-portal-roster/
+
 **Why Ollie Palmer is Wrexham's ultimate team player**\
 `The striker's goalscoring statistics are nothing to shout about but Palmer's all-round contribution is much more significant`\
 https://nytimes.com/athletic/6015128/2024/12/26/wrexham-ollie-palmer-striker-blackpool/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/26/us/politics/trump-panama-canal.html
 **Marianne Williamson Announces Long-Shot Bid to Lead the D.N.C.**\
 `The self-help author has twice run unsuccessfully for the Democratic presidential nomination.`\
 https://nytimes.com/2024/12/26/us/politics/marianne-williamson-dnc-chair.html
-
-**‘Go to Hell,’ ‘The Light of Freedom’ and Other Ways to Send Presidential Christmas Messages**\
-`Past U.S. presidents have used their holiday messages to inspire the nation to face hard times by coming together. President-elect Donald J. Trump had his own idea.`\
-https://nytimes.com/2024/12/26/us/politics/president-christmas-messages-trump.html
-
-**‘Drop the Dead Donkey’ Is a ’90s British Newsroom Comedy**\
-`The ’90s sitcom fits alongside American newsroom shows like “Murphy Brown,” but it’s a little slower and more misanthropic.`\
-https://nytimes.com/2024/12/26/arts/television/drop-the-dead-donkey-roku-pluto.html
 
