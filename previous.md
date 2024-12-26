@@ -1,3 +1,11 @@
+**As Hollywood Struggles, the Region’s Economy Feels the Pain**\
+`Film production has failed to bounce back after major strikes last year, and competition from other locales has gotten stiffer.`\
+https://nytimes.com/2024/12/26/business/economy/hollywood-southern-california-economy.html
+
+**The Briefing: Chelsea 1-2 Fulham Muniz's late winner shatters unbeaten run despite Palmer's Messi-esque goal**\
+`Liam Twomey breaks down the main talking points from Chelsea's 2-1 defeat to Fulham`\
+https://nytimes.com/athletic/6017801/2024/12/26/chelsea-1-fulham-2-palmer-muniz-maresca/
+
 **The Briefing: Nottingham Forest 1-0 Tottenham - Nuno has the last laugh, Spence sent off**\
 `Spurs enjoyed 70.4 per cent of possession but it was Anthony Elanga's goal for Forest which made the difference`\
 https://nytimes.com/athletic/6017803/2024/12/26/nottingham-forest-tottenham-result-nuno/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/26/arts/design/museum-art-shows-exhibits-closing.htm
 **Teens, Parents and Pornography: We Need to Talk**\
 `Readers discuss the need for frank discussions about porn. Also: Luigi Mangione; pediatric cancer bills; our environmental focus; the obesity crisis.`\
 https://nytimes.com/2024/12/26/opinion/letters/teens-parents-pornography.html
-
-**Miami coach Larrañaga expected to step down 2 years after Final Four run**\
-`Larranaga, who turned 75 in October, began coaching in 1971 as an assistant and compiled a 744-505 career record as a head coach.`\
-https://nytimes.com/athletic/6019715/2024/12/26/miami-basketball-jim-larranaga-stepping-down/
-
-**‘From Ground Zero’ Review: An Inside View of Gaza**\
-`This collection of 22 shorts by Palestinian filmmakers presents on-the-ground accounts of life and death that might otherwise be ignored.`\
-https://nytimes.com/2024/12/26/movies/from-ground-zero-review.html
 

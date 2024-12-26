@@ -1,3 +1,11 @@
+**As Hollywood Struggles, the Region’s Economy Feels the Pain**\
+`Film production has failed to bounce back after major strikes last year, and competition from other locales has gotten stiffer.`\
+https://nytimes.com/2024/12/26/business/economy/hollywood-southern-california-economy.html
+
+**The Briefing: Chelsea 1-2 Fulham Muniz's late winner shatters unbeaten run despite Palmer's Messi-esque goal**\
+`Liam Twomey breaks down the main talking points from Chelsea's 2-1 defeat to Fulham`\
+https://nytimes.com/athletic/6017801/2024/12/26/chelsea-1-fulham-2-palmer-muniz-maresca/
+
 **The Briefing: Nottingham Forest 1-0 Tottenham - Nuno has the last laugh, Spence sent off**\
 `Spurs enjoyed 70.4 per cent of possession but it was Anthony Elanga's goal for Forest which made the difference`\
 https://nytimes.com/athletic/6017803/2024/12/26/nottingham-forest-tottenham-result-nuno/
