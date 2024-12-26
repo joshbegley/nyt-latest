@@ -1,3 +1,7 @@
+**The 12 Browns salary-cap numbers to know as 2024 season winds down**\
+`Taking a look at Cleveland's biggest cap numbers for next year and how those players might be addressed in the offseason. `\
+https://nytimes.com/athletic/6015714/2024/12/26/browns-salary-cap-numbers-2025/
+
 **Why the Packers — with NFL's hottest offense — still aren't satisfied as playoffs approach**\
 `The Packers travel to Minnesota this weekend for a crucial matchup against the 13-2 Vikings.`\
 https://nytimes.com/athletic/6018985/2024/12/26/green-bay-packers-offense-jordan-love-minnesota-vikings/
