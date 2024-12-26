@@ -1,3 +1,7 @@
+**Pat Riley on recent reports: Heat ‘will not trade Jimmy Butler’**\
+`Riley's attempt to shut down rumors comes as the Heat sit at 14-13 and in sixth place in the Eastern Conference.`\
+https://nytimes.com/athletic/6020206/2024/12/26/jimmy-butler-trade-request-pat-riley-heat/
+
 **Thompson: The Burden of Steph Curry**\
 `Wednesday was vintage Curry on the NBA’s showcase stage. But the vociferation of his excellence felt like a simultaneous cry for help.`\
 https://nytimes.com/athletic/6020023/2024/12/26/steph-curry-warriors-lakers-nba-christmas-day/
