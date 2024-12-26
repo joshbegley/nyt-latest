@@ -1,3 +1,15 @@
+**Why transfer QB Billy Edwards Jr. picked Wisconsin, what he brings to Badgers: Q&A**\
+`Edwards said he will "have the keys to the Ferrari," that is Wisconsin's future offense.`\
+https://nytimes.com/athletic/6016201/2024/12/26/billy-edwards-wisconsin-quarterback-transfer/
+
+**Happy Hunting: Our Favorite Home-Buying Stories of 2024**\
+`This year, the Hunt touched down in 14 U.S. states and four foreign nations, with prices ranging from $135,000 to $6.75 million.`\
+https://nytimes.com/2024/12/26/realestate/the-hunt-home-sales-2024.html
+
+**I’ve Seen Celebrity P.R. Tactics at Work. Blake Lively Is Not Alone.**\
+`On the internet, the truth and the manufactured lies about celebrities are hard to sort through.`\
+https://nytimes.com/2024/12/26/opinion/blake-lively-justin-baldoni.html
+
 **36 Hours in Palm Springs, Calif.**\
 `With its kitsch, color and joyous queer scene, this oasis in the Coachella Valley is all in on earthly pleasures.`\
 https://nytimes.com/interactive/2024/12/26/travel/things-to-do-palm-springs.html
