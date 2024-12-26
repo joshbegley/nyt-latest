@@ -1,3 +1,7 @@
+**Pat Riley: Heat not trading Jimmy Butler, calls speculation 'a distraction'**\
+`Riley's attempt to shut down rumors comes as the Heat sit at 14-13 and in sixth place in the Eastern Conference.`\
+https://nytimes.com/athletic/6020206/2024/12/26/jimmy-butler-trade-request-pat-riley-heat/
+
 **Why Is Mozambique in Chaos?**\
 `More than 250 people have died in this southern African nation as protesters disputing the results of the presidential election clash with the police and military.`\
 https://nytimes.com/2024/12/26/world/africa/mozambique-unrest-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019960/2024/12/26/duran-red-card-aston-villa/
 **Donald Bitzer, Unsung Pioneer of Interactive Computing, Dies at 90**\
 `In the 1960s and ’70s, he developed the PLATO computer system, which combined instant messaging, email, chat rooms and gaming on flat-screen plasma displays.`\
 https://nytimes.com/2024/12/26/technology/donald-bitzer-dead.html
-
-**Vegetable Dumplings, Oven Beans and Ginger Sesame Granola**\
-`This liminal-space week is a good time to fill your fridge, freezer and pantry with delicious, sustaining things.`\
-https://nytimes.com/2024/12/26/dining/vegetable-dumplings-oven-beans-and-ginger-sesame-granola.html
 

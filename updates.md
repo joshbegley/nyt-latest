@@ -1,3 +1,7 @@
+**Pat Riley: Heat not trading Jimmy Butler, calls speculation 'a distraction'**\
+`Riley's attempt to shut down rumors comes as the Heat sit at 14-13 and in sixth place in the Eastern Conference.`\
+https://nytimes.com/athletic/6020206/2024/12/26/jimmy-butler-trade-request-pat-riley-heat/
+
 **Why Is Mozambique in Chaos?**\
 `More than 250 people have died in this southern African nation as protesters disputing the results of the presidential election clash with the police and military.`\
 https://nytimes.com/2024/12/26/world/africa/mozambique-unrest-news.html
