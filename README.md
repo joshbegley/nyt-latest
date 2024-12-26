@@ -1,3 +1,7 @@
+**Corberan says leaving West Brom for Valencia was 'hardest decision of my life'**\
+`Carlos Corberan has said it was the &#8220;hardest decision of my life&#8221; to leave his position as West Bromwich Albion manager to become Valencia head coach.`\
+https://nytimes.com/athletic/6015903/2024/12/26/valencia-manager-carlos-corberan-west-brom/
+
 **The January Transfer DealSheet: Latest on Man Utd, Arsenal, Liverpool, Real Madrid and more**\
 `The January transfer window opens in a week — this is what to expect from that period`\
 https://nytimes.com/athletic/6001248/2024/12/26/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-barcelona-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6012446/2024/12/26/crystal-palace-january-transfer-
 **Real Madrid Transfer DealSheet: What to expect in the January window**\
 `Madrid enter the January transfer window with plenty of questions about their squad depth. But will they make any moves?`\
 https://nytimes.com/athletic/6000938/2024/12/26/real-madrid-transfers-alexander-arnold-davies/
-
-**Aston Villa Transfer DealSheet: What to expect in the January window**\
-`What positions are Villa looking at? Could their be exits? How much is PSR still a concern?`\
-https://nytimes.com/athletic/5962891/2024/12/26/aston-villa-transfer-dealsheet-what-to-expect-in-the-january-window/
 
