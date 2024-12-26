@@ -1,3 +1,7 @@
+**Heat Today: With or without a trade, Jimmy Butler's Miami legacy is secure**\
+`Rumors of Butler's desire to leave continue to circulate. He long ago established his value to a contender in South Florida.`\
+https://nytimes.com/athletic/6019583/2024/12/26/jimmy-butler-heat-mavericks-suns-warriors-rockets-nba/
+
 **The Best Sentences of 2024**\
 `An ugly year in politics was a gorgeous one for words.`\
 https://nytimes.com/2024/12/26/opinion/best-sentences-of-2024.html
