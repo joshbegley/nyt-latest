@@ -1,3 +1,7 @@
+**Strike on Press Van in Gaza Kills Five Journalists, Palestinian Media Say**\
+`Emergency responders worked to put out the fire in a van marked “Press” and recover the bodies in Nuseirat, Gaza, on Thursday.`\
+https://nytimes.com/video/world/middleeast/100000009896715/nuseirat-journalists-killed-gaza.html
+
 **Five Journalists Killed in Gaza Strike, Palestinian Media Says**\
 `The Israeli military said it had struck a vehicle containing a “terrorist cell” in the Nuseirat area of Gaza.`\
 https://nytimes.com/2024/12/25/world/middleeast/israel-strike-journalists-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/business/japan-airlines-cyber-attack.html
 **Lamar Jackson runs away with QB rushing record in 31-2 win over Texans: Takeaways**\
 `It took Michael Vick 13 seasons to set the 6,109-career rushing yard mark. Jackson did it in under seven.`\
 https://nytimes.com/athletic/6019043/2024/12/25/ravens-texans-score-result-takeaways-nfl-christmas/
-
-**Happy holiday for Chiefs, who wrap up AFC's No. 1 seed with dominant win in Pittsburgh**\
-`With their 15th win, the Chiefs earned the AFC’s No. 1 seed, giving them home-field advantage and a first-round bye in the playoffs.`\
-https://nytimes.com/athletic/6019054/2024/12/25/chiefs-afc-top-seed-patrick-mahomes-steelers/
 
