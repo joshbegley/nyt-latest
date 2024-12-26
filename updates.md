@@ -1,3 +1,7 @@
+**The Year in News**\
+`An election. A shooting. A solar eclipse. Wars in the Middle East and Ukraine.`\
+https://nytimes.com/2024/12/26/briefing/the-year-in-news.html
+
 **The Athletic FC: Man City & Real Madrid eye transfer deals, team of the season (so far)**\
 `Today in TAFC: Manchester City and Real Madrid might need to make moves in January. Plus Phil's team of the season (so far)`\
 https://nytimes.com/athletic/6001241/2024/12/26/transfers-manchester-city-real-madrid/
