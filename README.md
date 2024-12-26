@@ -1,3 +1,15 @@
+**Teddy Bridgewater to sign with Lions after HS state title coaching run**\
+`Bridgewater retired after the 2023 season following a decade in the league that saw him play for six teams.`\
+https://nytimes.com/athletic/6019956/2024/12/26/teddy-bridgewater-signing-detroit-lions/
+
+**Michigan DT Kenneth Grant, a projected first-round pick, declares for NFL Draft**\
+`The former three-star recruit from Indiana emerged as one of the top defensive linemen in college football over the past few years. `\
+https://nytimes.com/athletic/6019982/2024/12/26/michigan-kenneth-nfl-draft-defensive-tackle/
+
+**Emery: Villa to appeal against Duran red card, ban would be 'hard to accept'**\
+`Aston Villa intend to appeal against the red card received by Jhon Duran for violent conduct against Newcastle United with Unai Emery saying any ban for his striker would be &#8220;hard to accept&#8221;.`\
+https://nytimes.com/athletic/6019960/2024/12/26/duran-red-card-aston-villa/
+
 **Donald Bitzer, Unsung Pioneer of Interactive Computing, Dies at 90**\
 `In the 1960s and ’70s, he developed the PLATO computer system, which combined instant messaging, email, chat rooms and gaming on flat-screen plasma displays.`\
 https://nytimes.com/2024/12/26/technology/donald-bitzer-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/26/nyregion/hochul-climate-change-superfund-law.html
 **Red Wings fire coach Derek Lalonde after 13-17-4 start, hire Todd McLellan**\
 `Lalonde took over the team in the 2022 offseason after Detroit moved on from Jeff Blashill, and the team improved in his first two seasons.`\
 https://nytimes.com/athletic/5932340/2024/12/26/red-wings-derek-lalonde-coach-fired/
-
-**As Hollywood Struggles, the Region’s Economy Feels the Pain**\
-`Film production has failed to bounce back after major strikes last year, and competition from other locales has gotten stiffer.`\
-https://nytimes.com/2024/12/26/business/economy/hollywood-southern-california-economy.html
-
-**The Briefing: Chelsea 1-2 Fulham Muniz's late winner shatters unbeaten run despite Palmer's Messi-esque goal**\
-`Liam Twomey breaks down the main talking points from Chelsea's 2-1 defeat to Fulham`\
-https://nytimes.com/athletic/6017801/2024/12/26/chelsea-1-fulham-2-palmer-muniz-maresca/
-
-**The Briefing: Nottingham Forest 1-0 Tottenham - Nuno has the last laugh, Spence sent off**\
-`Spurs enjoyed 70.4 per cent of possession but it was Anthony Elanga's goal for Forest which made the difference`\
-https://nytimes.com/athletic/6017803/2024/12/26/nottingham-forest-tottenham-result-nuno/
 
