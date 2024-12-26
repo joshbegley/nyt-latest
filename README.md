@@ -1,3 +1,7 @@
+**Quote of the Day: Born Into the House of Lords And Preparing to Be Evicted**\
+`Quotation of the Day for Thursday, December 26, 2024.`\
+https://nytimes.com/2024/12/25/pageoneplus/quote-of-the-day-born-into-the-house-of-lords-and-preparing-to-be-evicted.html
+
 **Christmas win in Boston proves 76ers are finally turning disastrous season around**\
 `Things are a lot different for the Sixers in the past few weeks. They’re 8-3 in their last 11 games.`\
 https://nytimes.com/athletic/6019152/2024/12/25/76ers-christmas-win-boston/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/25/crosswords/daily-puzzle-2024-12-26.html
 **Human Error Cited for Collision of Two Planes at Tokyo Airport**\
 `A report confirmed prior indications that a pilot’s misunderstanding of air traffic control directives, and a missed warning, caused the January accident.`\
 https://nytimes.com/2024/12/25/business/tokyo-haneda-plane-crash.html
-
-**Japan Airlines Delays Flights After Cyberattack**\
-`The airline also temporarily stopped selling tickets for flights departing Thursday, but said that there was no impact on flight safety.`\
-https://nytimes.com/2024/12/25/business/japan-airlines-cyber-attack.html
 
