@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6020023/2024/12/26/steph-curry-warriors-lakers-nba-
 https://nytimes.com/2024/12/26/briefing/holiday-briefing-special-edition.html
 
 **The Briefing: Wolves 2 Man Utd 0: What was Fernandes doing? An olimpico problem, what next for Amorim?**\
-`Manchester United's season took another turn for the worse with Fernandes sent off and another 'Olimpico' conceded in defeat to Wolves`\
+`Manchester United's season took another turn for the worse with Fernandes sent off and another 'olimpico' conceded in defeat to Wolves`\
 https://nytimes.com/athletic/6017804/2024/12/26/wolves-2-manchester-united-0-fernandes-olimpico-amorim/
 
 **Pat Riley on recent reports: Heat ‘will not trade Jimmy Butler’**\
