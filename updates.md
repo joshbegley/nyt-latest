@@ -1,3 +1,15 @@
+**In C.E.O. Murder Case, a Test of New York’s Antiterrorism Laws**\
+`The Manhattan district attorney has brought a terrorism charge against the man accused of killing a health insurance executive, arguing that he intended to “sow fear.”`\
+https://nytimes.com/2024/12/26/nyregion/luigi-mangione-terrorism-charge.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/26/crosswords/spelling-bee-forum.html
+
+**Review: ‘Squid Game’ Hits a Red Light**\
+`The second season of the Netflix smash delivers more stylized carnage, but the story stalls.`\
+https://nytimes.com/2024/12/26/arts/television/squid-game-review-season-2.html
+
 **Corberan says leaving West Brom for Valencia was 'hardest decision of my life'**\
 `Carlos Corberan has said it was the &#8220;hardest decision of my life&#8221; to leave his position as West Bromwich Albion manager to become Valencia head coach.`\
 https://nytimes.com/athletic/6015903/2024/12/26/valencia-manager-carlos-corberan-west-brom/
