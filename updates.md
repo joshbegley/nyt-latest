@@ -1,3 +1,11 @@
+**How the Premier League became too expensive even for Amazon - as the internet giant's deal ends**\
+`After six years, Amazon will stream no more Premier League matches - here's why`\
+https://nytimes.com/athletic/6009822/2024/12/26/how-the-premier-league-became-too-expensive-even-for-amazon/
+
+**How Antonee Robinson became the best left-back in the Premier League**\
+`A crossing machine who combines lung-busting runs with defensive effectiveness, Robinson can claim to be the league's best left-back`\
+https://nytimes.com/athletic/6013281/2024/12/26/antonee-robinson-premier-league-left-back-best/
+
 **20 Years Since the Deadly Tsunami in Asia**\
 `A look back at the horrible loss of life.`\
 https://nytimes.com/2024/12/26/world/asia/tsunami-anniversary-photos.html

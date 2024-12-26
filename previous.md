@@ -1,3 +1,11 @@
+**How the Premier League became too expensive even for Amazon - as the internet giant's deal ends**\
+`After six years, Amazon will stream no more Premier League matches - here's why`\
+https://nytimes.com/athletic/6009822/2024/12/26/how-the-premier-league-became-too-expensive-even-for-amazon/
+
+**How Antonee Robinson became the best left-back in the Premier League**\
+`A crossing machine who combines lung-busting runs with defensive effectiveness, Robinson can claim to be the league's best left-back`\
+https://nytimes.com/athletic/6013281/2024/12/26/antonee-robinson-premier-league-left-back-best/
+
 **20 Years Since the Deadly Tsunami in Asia**\
 `A look back at the horrible loss of life.`\
 https://nytimes.com/2024/12/26/world/asia/tsunami-anniversary-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6019152/2024/12/25/76ers-christmas-win-boston/
 **Strike on Press Van in Gaza Kills Five Journalists, Palestinian Media Say**\
 `Emergency responders worked to put out the fire in a van marked “Press” and recover the bodies in Nuseirat, Gaza, on Thursday.`\
 https://nytimes.com/video/world/middleeast/100000009896715/nuseirat-journalists-killed-gaza.html
-
-**Five Journalists Killed in Gaza Strike, Palestinian Media Says**\
-`The Israeli military said it had struck a vehicle containing a “terrorist cell” in the Nuseirat area of Gaza.`\
-https://nytimes.com/2024/12/25/world/middleeast/israel-strike-journalists-gaza.html
-
-**With 3 wins in 11 days, the Ravens stamped themselves as legitimate contenders**\
-`The Ravens won three games by a combined score of 100-33 and now have control of the AFC North with one game to play.`\
-https://nytimes.com/athletic/6019131/2024/12/25/ravens-lamar-jackson-texans-win-christmas/
 
