@@ -1,3 +1,7 @@
+**Quote of the Day: Born Into the House of Lords And Preparing to Be Evicted**\
+`Quotation of the Day for Thursday, December 26, 2024.`\
+https://nytimes.com/2024/12/25/pageoneplus/quote-of-the-day-born-into-the-house-of-lords-and-preparing-to-be-evicted.html
+
 **Christmas win in Boston proves 76ers are finally turning disastrous season around**\
 `Things are a lot different for the Sixers in the past few weeks. They’re 8-3 in their last 11 games.`\
 https://nytimes.com/athletic/6019152/2024/12/25/76ers-christmas-win-boston/
