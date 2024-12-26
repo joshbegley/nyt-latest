@@ -1,3 +1,7 @@
+**The Athletic FC: Man City & Real Madrid eye transfer deals, team of the season (so far)**\
+`Today in TAFC: Manchester City and Real Madrid might need to make moves in January. Plus Phil's team of the season (so far)`\
+https://nytimes.com/athletic/6001241/2024/12/26/transfers-manchester-city-real-madrid/
+
 **Vikings' playoff hopes (and Super Bowl dreams?) may come down to these concerns**\
 `Minnesota is 13-2 and fighting for the No. 1 seed. But there are several significant concerns with this team as the playoffs approach.`\
 https://nytimes.com/athletic/6018632/2024/12/26/minnesota-vikings-playoffs-super-bowl-concerns/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/crosswords/wordle-review-1287.html
 **Eight Takeaways: How Israel Weakened Civilian Protections When Bombing Hamas Fighters**\
 `A New York Times investigation found that Israel severely undermined its system of safeguards when striking Gaza, and used flawed methods to find targets and assess the risk to civilians.`\
 https://nytimes.com/interactive/2024/12/26/world/middleeast/israel-gaza-strikes-takeaways.html
-
-**Israel Loosened Its Rules to Bomb Hamas Fighters, Killing Many More Civilians**\
-`Surprised by Oct. 7 and fearful of another attack, Israel weakened safeguards meant to protect noncombatants, allowing officers to endanger up to 20 people in each airstrike. One of the deadliest bombardments of the 21st century followed.`\
-https://nytimes.com/2024/12/26/world/middleeast/israel-hamas-gaza-bombing.html
 
