@@ -1,3 +1,7 @@
+**Israeli Forces Strike International Airport in Yemen**\
+`The deadly assault came after a week of attacks against Israel by the Iran-backed Houthi militia, including a missile strike on Tel Aviv.`\
+https://nytimes.com/video/world/middleeast/100000009897615/israel-yemen-houthis.html
+
 **Gotham FC trades Yazmeen Ryan to Houston after working 'tirelessly to honor her request' to move**\
 `Ryan joins Houston after two successful season at Gotham.`\
 https://nytimes.com/athletic/6020801/2024/12/26/gotham-fc-yazmeen-ryan-houston-dash-trade/
