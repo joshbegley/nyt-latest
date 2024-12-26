@@ -1,3 +1,11 @@
+**Lamar Jackson runs away with QB rushing record in 31-2 win over Texans: Takeaways**\
+`It took Michael Vick 13 seasons to set the 6,109-career rushing yard mark. Jackson did it in under seven.`\
+https://nytimes.com/athletic/6019043/2024/12/25/ravens-texans-score-result-takeaways-nfl-christmas/
+
+**Happy holiday for Chiefs, who wrap up AFC's No. 1 seed with dominant win in Pittsburgh**\
+`With their 15th win, the Chiefs earned the AFC’s No. 1 seed, giving them home-field advantage and a first-round bye in the playoffs.`\
+https://nytimes.com/athletic/6019054/2024/12/25/chiefs-afc-top-seed-patrick-mahomes-steelers/
+
 **The Steelers had 3 chances to prove they're contenders. They struck out.**\
 `“The last three weeks, we played like s---,” Cameron Heyward said. “Simple as that. I own that. Every player's got to own it in here.”`\
 https://nytimes.com/athletic/6019048/2024/12/25/steelers-chiefs-loss-christmas-netflix/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/25/us/politics/panama-ambassador-cabrera-trump.html
 **Netflix has up-and-down first foray into NFL broadcasting after early glitch**\
 `Viewers were welcomed to the broadcast with immediate audio issues.`\
 https://nytimes.com/athletic/6018940/2024/12/25/netflix-nfl-broadcasting-streaming-christmas/
-
-**Klay Thompson passes Reggie Miller for fifth place on all-time 3s made list**\
-`Thompson's former Warriors teammate, Steph Curry, is atop the list, more than 800 3s ahead of second-place James Harden.`\
-https://nytimes.com/athletic/6018626/2024/12/25/klay-thompson-reggie-miller-nba-3-pointers-record/
-
-**ESPN's 'Dunk the Halls' Disney alt-cast brings Mickey Mouse fun to NBA Christmas**\
-`The alt-cast featured animated versions of Knicks and Spurs players with Disney characters occasionally subbing into the action.`\
-https://nytimes.com/athletic/6018846/2024/12/25/espn-mickey-mouse-alt-cast-nba-christmas/
 
