@@ -1,3 +1,15 @@
+**Teddy Bridgewater to sign with Lions after HS state title coaching run**\
+`Bridgewater retired after the 2023 season following a decade in the league that saw him play for six teams.`\
+https://nytimes.com/athletic/6019956/2024/12/26/teddy-bridgewater-signing-detroit-lions/
+
+**Michigan DT Kenneth Grant, a projected first-round pick, declares for NFL Draft**\
+`The former three-star recruit from Indiana emerged as one of the top defensive linemen in college football over the past few years. `\
+https://nytimes.com/athletic/6019982/2024/12/26/michigan-kenneth-nfl-draft-defensive-tackle/
+
+**Emery: Villa to appeal against Duran red card, ban would be 'hard to accept'**\
+`Aston Villa intend to appeal against the red card received by Jhon Duran for violent conduct against Newcastle United with Unai Emery saying any ban for his striker would be &#8220;hard to accept&#8221;.`\
+https://nytimes.com/athletic/6019960/2024/12/26/duran-red-card-aston-villa/
+
 **Donald Bitzer, Unsung Pioneer of Interactive Computing, Dies at 90**\
 `In the 1960s and ’70s, he developed the PLATO computer system, which combined instant messaging, email, chat rooms and gaming on flat-screen plasma displays.`\
 https://nytimes.com/2024/12/26/technology/donald-bitzer-dead.html
