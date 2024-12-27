@@ -1,3 +1,7 @@
+**Davies ruled out for Tottenham vs Wolves after injury setback**\
+`Tottenham Hotspur defender Ben Davies has suffered a setback and won&#8217;t now be available for Sunday&#8217;s game with Wolverhampton Wanderers.`\
+https://nytimes.com/athletic/6021537/2024/12/27/tottenham-team-news-ben-davies-injury/
+
 **Overlooked Stories**\
 `Read some of our best journalism that you may have missed this year.`\
 https://nytimes.com/2024/12/27/briefing/overlooked-stories.html
