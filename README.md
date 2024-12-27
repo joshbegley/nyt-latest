@@ -1,3 +1,7 @@
+**Can the Vikings inch closer to the No. 1 seed by beating the rival Packers?**\
+`The Vikings host the Packers on Sunday in a game with enormous playoff implications. Our experts break down the matchup.`\
+https://nytimes.com/athletic/6020810/2024/12/27/vikings-packers-preview-predictions-no-1-seed/
+
 **Gleyber Torres, Tigers agree to 1-year, $15 million deal**\
 `Torres, 28, is a free agent coming off a strange 2024 season.`\
 https://nytimes.com/athletic/5977301/2024/12/27/gleyber-torres-tigers-free-agency-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6021354/2024/12/27/jaden-ivey-pistons-game-winner-k
 **Amorim aware of Man United pressure: 'Every manager is in danger'**\
 `Manchester United head coach Ruben Amorim is fully aware that his job will be in &#8220;danger&#8221; if results under him don&#8217;t improve.`\
 https://nytimes.com/athletic/6021744/2024/12/27/manchester-united-ruben-amorim-danger/
-
-**Slot: Liverpool managing Jota's fitness after injury lay-off**\
-`Arne Slot says Liverpool will continue to tread carefully with Diogo Jota following his return to action from a chest injury.`\
-https://nytimes.com/athletic/6021523/2024/12/27/liverpool-diogo-jota-fitness-arne-slot/
 
