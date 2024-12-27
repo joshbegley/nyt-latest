@@ -1,3 +1,11 @@
+**How Dan Quinn’s early decision allowed Jayden Daniels to naturally take command**\
+`Washington's players gravitate toward the 24-year-old rookie QB who has the team on the cusp of clinching a playoff berth. `\
+https://nytimes.com/athletic/6020454/2024/12/27/jayden-daniels-commanders-leader/
+
+**MLB's weirdest injuries of 2024: Beware of water bottles, heating pads and walls**\
+`Will Rays reliever Pete Fairbanks, last year's Injury of the Year grand prize winner, win back-to-back titles? He faces tough competition. `\
+https://nytimes.com/athletic/6020952/2024/12/27/mlb-weird-injuries-2024/
+
 **Bills notebook: Is Sunday Josh Allen's final MVP statement? How much does seeding matter?**\
 `Considering Lamar Jackson's performance on Christmas Day, Josh Allen and the Bills might want to make a statement Sunday in the MVP race.`\
 https://nytimes.com/athletic/6020580/2024/12/27/bills-josh-allen-mvp-statement-playoff-seeding/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6020847/2024/12/27/lions-49ers-game-dan-campbell/
 **7 New Shows Our Theater Critics Are Talking About**\
 `A film adaptation onstage, a Broadway classic, comedy galore: These are the productions worth knowing about this holiday season.`\
 https://nytimes.com/2024/12/27/theater/new-shows-theater-broadway.html
-
-**Which Parts of These Images Are A.I.-Generated?**\
-`This quiz shows genuine images that were edited with A.I. tools. Your job: Find what’s fake.`\
-https://nytimes.com/interactive/2024/12/27/technology/artificial-intelligence-generative-fill-photoshop-openai.html
-
-**3 Resolutions for Eating and Drinking in 2025**\
-`Reach for a new recipe, to start.`\
-https://nytimes.com/2024/12/27/well/eat/eating-drinking-resolutions-2025.html
 
