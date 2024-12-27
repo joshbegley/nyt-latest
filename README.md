@@ -18,6 +18,10 @@ https://nytimes.com/2024/12/27/realestate/kyshawn-lane-household-hacks.html
 `Ivey's clutch play against the Kings lifted Detroit to 3-0 on its road trip. He's becoming a legit No. 2 option next to Cade Cunningham.`\
 https://nytimes.com/athletic/6021354/2024/12/27/jaden-ivey-pistons-game-winner-kings/
 
+**Amorim aware of Man United pressure: 'Every manager is in danger'**\
+`Manchester United head coach Ruben Amorim is fully aware that his job will be in &#8220;danger&#8221; if results under him don&#8217;t improve.`\
+https://nytimes.com/athletic/6021744/2024/12/27/manchester-united-ruben-amorim-danger/
+
 **Slot: Liverpool managing Jota's fitness after injury lay-off**\
 `Arne Slot says Liverpool will continue to tread carefully with Diogo Jota following his return to action from a chest injury.`\
 https://nytimes.com/athletic/6021523/2024/12/27/liverpool-diogo-jota-fitness-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007062/2024/12/27/world-juniors-today-mckenna-sand
 **OpenAI Details Plans for Becoming a For-Profit Company**\
 `OpenAI said it will be restructured as a public benefit corporation, and the nonprofit that controls the organization would receive shares in the new company.`\
 https://nytimes.com/2024/12/27/technology/openai-public-benefit-corporation.html
-
-**Madueke's omission vs Fulham a 'technical decision' - Maresca**\
-`Chelsea head coach Enzo Maresca revealed he made a “technical decision” to leave out Noni Madueke and Renato Veiga from his matchday squad to face Fulham.`\
-https://nytimes.com/athletic/6020110/2024/12/27/madueke-chelsea-fulham-enzo-maresca/
 
