@@ -1,3 +1,7 @@
+**Davies ruled out for Tottenham vs Wolves after injury setback**\
+`Tottenham Hotspur defender Ben Davies has suffered a setback and won&#8217;t now be available for Sunday&#8217;s game with Wolverhampton Wanderers.`\
+https://nytimes.com/athletic/6021537/2024/12/27/tottenham-team-news-ben-davies-injury/
+
 **Overlooked Stories**\
 `Read some of our best journalism that you may have missed this year.`\
 https://nytimes.com/2024/12/27/briefing/overlooked-stories.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6021070/2024/12/27/blackhawks-roman-kantserov-film-
 **The Connections Companion No. 566**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Dec. 28, 2024.`\
 https://nytimes.com/2024/12/27/crosswords/connections-companion-566.html
-
-**The Year in Music**\
-`Our pop music critics on the biggest stories of 2024.`\
-https://nytimes.com/2024/12/27/podcasts/the-daily/2024-biggest-music-stories.html
 
