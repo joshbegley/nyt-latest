@@ -1,3 +1,11 @@
+**The Athletic FC: Who can catch Liverpool? Man Utd's corner conundrum, Atalanta's title bid**\
+`Today in TAFC: Are Liverpool looking unstoppable in the Premier League? Manchester United's Olimpico problem and Beyonce for 2026?`\
+https://nytimes.com/athletic/6021400/2024/12/27/liverpool-premier-league-title-united-corners/
+
+**What We Know About the Plane Crash in Kazakhstan**\
+`The Embraer 190 was traveling to Grozny, Russia, but crashed near Aktau, Kazakhstan, killing 38 people onboard. Investigators are focusing on Russian air defense as the likely cause.`\
+https://nytimes.com/2024/12/27/world/europe/kazakhstan-plane-crash-russia.html
+
 **Barcelona lose court appeal to register Olmo for second half of season**\
 `Barcelona have been dealt a blow in their hopes of registering Dani Olmo and Pau Victor in their squad for the second half of the 2024-25 season in La Liga, with the club&#8217;s court appeal for a precautionary registration measure rejected.`\
 https://nytimes.com/athletic/6021526/2024/12/27/dani-olmo-barcelona-registration/
