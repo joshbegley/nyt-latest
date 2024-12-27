@@ -1,3 +1,7 @@
+**Berrien Moore III, Pioneering Scholar of Earth Science, Dies at 83**\
+`As a researcher at several universities and an adviser at NASA, he used data analysis to show how the planet’s different systems are interrelated.`\
+https://nytimes.com/2024/12/27/climate/berrien-moore-dead.html
+
 **Trump’s Designs on the Panama Canal and Greenland**\
 `Readers are critical of the president-elect’s calls for U.S. control. Also: Dispirited after the election; billionaires and politics; the joy of reading novellas.`\
 https://nytimes.com/2024/12/27/opinion/letters/trump-panama-canal-greenland.html

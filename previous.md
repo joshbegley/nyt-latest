@@ -1,3 +1,7 @@
+**Berrien Moore III, Pioneering Scholar of Earth Science, Dies at 83**\
+`As a researcher at several universities and an adviser at NASA, he used data analysis to show how the planet’s different systems are interrelated.`\
+https://nytimes.com/2024/12/27/climate/berrien-moore-dead.html
+
 **Trump’s Designs on the Panama Canal and Greenland**\
 `Readers are critical of the president-elect’s calls for U.S. control. Also: Dispirited after the election; billionaires and politics; the joy of reading novellas.`\
 https://nytimes.com/2024/12/27/opinion/letters/trump-panama-canal-greenland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/world/middleeast/israel-lebanon-ceasefire.html
 **In Syria, U.S. Hopes to Avoid Replay of Afghanistan**\
 `American officials are wary as they try to persuade the rebels now in control in Syria to govern with an inclusive and moderate hand.`\
 https://nytimes.com/2024/12/27/us/politics/biden-syria-afghanistan-taliban.html
-
-**The Eddie Howe tactical tweak that has revitalised Sandro Tonali and Newcastle's form**\
-`Newcastle’s manager has tweaked the structure of his midfield this season - and it is starting to pay dividends  `\
-https://nytimes.com/athletic/6021415/2024/12/27/newcastle-tonali-howe-no-6-tweak/
 
