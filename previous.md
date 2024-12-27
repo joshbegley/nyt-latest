@@ -1,3 +1,7 @@
+**A Month on, a Tenuous Cease-fire Holds in Lebanon**\
+`Israel and Hezbollah have exchanged strikes and accusations of breaches. Implementation of the deal has been slow. But the truce has brought some calm to a tumultuous region.`\
+https://nytimes.com/2024/12/27/world/middleeast/israel-lebanon-ceasefire.html
+
 **In Syria, U.S. Hopes to Avoid Replay of Afghanistan**\
 `American officials are wary as they try to persuade the rebels now in control in Syria to govern with an inclusive and moderate hand.`\
 https://nytimes.com/2024/12/27/us/politics/biden-syria-afghanistan-taliban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5977301/2024/12/27/gleyber-torres-tigers-free-agenc
 **'Ain't no excuses' for Bucks' error-filled loss to Nets**\
 `Milwaukee was again without Giannis Antetokounmpo and Damian Lillard, but the Bucks know this was a game they should have won.`\
 https://nytimes.com/athletic/6021574/2024/12/27/bucks-nets-score-recap-nba/
-
-**Tesla Investors Are Still Bullish. Can Elon Musk Deliver?**\
-`Sales of the company’s cars are flagging, but investors are focusing on the potential of autonomous driving and Mr. Musk’s ties to President-elect Donald J. Trump.`\
-https://nytimes.com/2024/12/27/business/tesla-sales-stock-elon-musk.html
 

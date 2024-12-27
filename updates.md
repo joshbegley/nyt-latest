@@ -1,3 +1,7 @@
+**A Month on, a Tenuous Cease-fire Holds in Lebanon**\
+`Israel and Hezbollah have exchanged strikes and accusations of breaches. Implementation of the deal has been slow. But the truce has brought some calm to a tumultuous region.`\
+https://nytimes.com/2024/12/27/world/middleeast/israel-lebanon-ceasefire.html
+
 **In Syria, U.S. Hopes to Avoid Replay of Afghanistan**\
 `American officials are wary as they try to persuade the rebels now in control in Syria to govern with an inclusive and moderate hand.`\
 https://nytimes.com/2024/12/27/us/politics/biden-syria-afghanistan-taliban.html
