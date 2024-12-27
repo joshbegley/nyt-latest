@@ -1,3 +1,11 @@
+**Nottingham Forest are third in the Premier League - this is now more than just a good start**\
+`Forest's priority after their stunning start should be to keep hold of their core players - and to trust their manager `\
+https://nytimes.com/athletic/6020165/2024/12/27/nottingham-forest-premier-league-start/
+
+**When will Tottenham Hotspur's recruitment come under scrutiny?**\
+`Postecoglou's principles are perpetually debated - but what if Spurs simply haven't signed the right players for him to be a success?`\
+https://nytimes.com/athletic/6019883/2024/12/27/tottenham-hotspur-postecoglou-transfers-recruitment/
+
 **Kovac: 'Player success is connected with the team - everything is connected'**\
 `Niko Kovac spoke to The Athletic about his upbringing and his time as a player and a coach`\
 https://nytimes.com/athletic/5992282/2024/12/27/niko-kovac-bayern-munich-eintrach-frankfurt-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/style/stephanie-morrison-scott-platt-wedding.html
 **Running From Shame (for 26.2 Miles)**\
 `After having an affair with a married man, I ran a marathon to absolve my sins. It didn’t work.`\
 https://nytimes.com/2024/12/27/style/modern-love-adultery-made-me-run-a-marathon.html
-
-**Yes, Kwanzaa Is Made Up. That’s Why It’s Great**\
-`There’s something uniquely American in both its wanton borrowing from existing tradition and its naked admission of artificiality.`\
-https://nytimes.com/2024/12/27/style/kwanzaa-celebrating-holidays.html
-
-**Quote of the Day: Intricate Sculpture? Root Vegetable? In Vibrant Oaxaca, It’s Both.**\
-`Quote of the Day for Friday, December 27, 2024`\
-https://nytimes.com/2024/12/26/pageoneplus/quote-of-the-day-intricate-sculpture-root-vegetable-in-vibrant-oaxaca-its-both.html
 
