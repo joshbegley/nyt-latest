@@ -1,3 +1,11 @@
+**A Strange Banging Sound, Chaos and Prayers Before a Plane Crashes**\
+`Flight attendants and a passengers described the moments before an Azerbaijan Airlines flight went down in Kazakhstan, killing dozens.`\
+https://nytimes.com/2024/12/27/world/europe/azerbaijan-airlines-crash-kazakhstan-survivors.html
+
+**Too Old to Ace This Year-End Quiz? Ask a Kid for Help.**\
+`A 2024 trivia challenge you’ll need Gen Alpha’s help to beat`\
+https://nytimes.com/interactive/2024/12/27/magazine/kids-quiz-2024-trivia.html
+
 **Trump Backers Battle Online Over Skilled Immigrants**\
 `A fierce dispute erupted in the president-elect’s camp between immigration hard-liners and tech industry leaders including Elon Musk.`\
 https://nytimes.com/2024/12/27/technology/trump-musk-immigration-h1b-visa.html
