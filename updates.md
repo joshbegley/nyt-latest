@@ -1,3 +1,11 @@
+**In Syria, U.S. Hopes to Avoid Replay of Afghanistan**\
+`American officials are wary as they try to persuade the rebels now in control in Syria to govern with an inclusive and moderate hand.`\
+https://nytimes.com/2024/12/27/us/politics/biden-syria-afghanistan-taliban.html
+
+**The Eddie Howe tactical tweak that has revitalised Sandro Tonali and Newcastle's form**\
+`Newcastle’s manager has tweaked the structure of his midfield this season - and it is starting to pay dividends  `\
+https://nytimes.com/athletic/6021415/2024/12/27/newcastle-tonali-howe-no-6-tweak/
+
 **Cunha banned for five matches after altercation with Ipswich staff member**\
 `Wolverhampton Wanderers striker Matheus Cunha has been banned for five matches after an altercation with an Ipswich Town security guard.`\
 https://nytimes.com/athletic/6000628/2024/12/27/matheus-cunha-suspension-wolves/
