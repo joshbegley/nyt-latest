@@ -1,3 +1,7 @@
+**Axel Sandin-Pellikka, USA's top line shine on Boxing Day at World Juniors**\
+`Scott Wheeler and Corey Pronman share their Day 1 thoughts after the tournament began in Ottawa on Thursday.`\
+https://nytimes.com/athletic/6006840/2024/12/26/world-juniors-sandin-pellikka-boxing-day/
+
 **The Stuff of Legends**\
 `Jem Burch opens our weekend solving.`\
 https://nytimes.com/2024/12/26/crosswords/daily-puzzle-2024-12-27.html

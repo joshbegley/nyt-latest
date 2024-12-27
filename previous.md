@@ -1,3 +1,7 @@
+**Axel Sandin-Pellikka, USA's top line shine on Boxing Day at World Juniors**\
+`Scott Wheeler and Corey Pronman share their Day 1 thoughts after the tournament began in Ottawa on Thursday.`\
+https://nytimes.com/athletic/6006840/2024/12/26/world-juniors-sandin-pellikka-boxing-day/
+
 **The Stuff of Legends**\
 `Jem Burch opens our weekend solving.`\
 https://nytimes.com/2024/12/26/crosswords/daily-puzzle-2024-12-27.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020801/2024/12/26/gotham-fc-yazmeen-ryan-houston-d
 **Sugar Pie DeSanto, Gritty Soul Singer, Is Dead at 89**\
 `A powerful performer who paved the way for later soul and hip-hop artists, she recorded with Etta James and toured with Johnny Otis and James Brown.`\
 https://nytimes.com/2024/12/26/arts/music/sugar-pie-desanto-dead.html
-
-**Israeli Forces Strike International Airport in Yemen**\
-`The deadly assault came after a week of attacks against Israel by the Iran-backed Houthi militia, including a missile strike on Tel Aviv.`\
-https://nytimes.com/video/world/middleeast/100000009897615/israel-yemen-houthis.html
 
