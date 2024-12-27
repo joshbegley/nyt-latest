@@ -1,3 +1,7 @@
+**Slot: Liverpool managing Jota's fitness after injury lay-off**\
+`Arne Slot says Liverpool will continue to tread carefully with Diogo Jota following his return to action from a chest injury.`\
+https://nytimes.com/athletic/6021523/2024/12/27/liverpool-diogo-jota-fitness-arne-slot/
+
 **Heat Today: Extended Kel'el Ware minutes could add new dimension to Miami rotation**\
 `The 7-foot rookie has stayed patient — and is showing tantalizing glimpses of his talent. `\
 https://nytimes.com/athletic/6019823/2024/12/27/kelel-ware-heat-bam-adebayo-kevin-love-heat-nba/
