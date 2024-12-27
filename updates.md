@@ -1,3 +1,15 @@
+**Can the Vikings inch closer to the No. 1 seed by beating the rival Packers?**\
+`The Vikings host the Packers on Sunday in a game with enormous playoff implications. Our experts break down the matchup.`\
+https://nytimes.com/athletic/6020810/2024/12/27/vikings-packers-preview-predictions-no-1-seed/
+
+**Gleyber Torres, Tigers agree to 1-year, $15 million deal**\
+`Torres, 28, is a free agent coming off a strange 2024 season.`\
+https://nytimes.com/athletic/5977301/2024/12/27/gleyber-torres-tigers-free-agency-contract/
+
+**'Ain't no excuses' for Bucks' error-filled loss to Nets**\
+`Milwaukee was again without Giannis Antetokounmpo and Damian Lillard, but the Bucks know this was a game they should have won.`\
+https://nytimes.com/athletic/6021574/2024/12/27/bucks-nets-score-recap-nba/
+
 **Tesla Investors Are Still Bullish. Can Elon Musk Deliver?**\
 `Sales of the company’s cars are flagging, but investors are focusing on the potential of autonomous driving and Mr. Musk’s ties to President-elect Donald J. Trump.`\
 https://nytimes.com/2024/12/27/business/tesla-sales-stock-elon-musk.html
