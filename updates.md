@@ -1,3 +1,7 @@
+**NBA trends I'm watching: Julius Randle, Payton Pritchard's glass work and more**\
+`Plus: Why the NBA has become a copy-cat league for one Portland Trail Blazer.`\
+https://nytimes.com/athletic/6021762/2024/12/27/julius-randle-contract-payton-pritchard-rebounding/
+
 **Berrien Moore III, Pioneering Scholar of Earth Science, Dies at 83**\
 `As a researcher at several universities and an adviser at NASA, he used data analysis to show how the planet’s different systems are interrelated.`\
 https://nytimes.com/2024/12/27/climate/berrien-moore-dead.html

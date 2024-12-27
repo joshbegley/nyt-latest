@@ -1,3 +1,7 @@
+**NBA trends I'm watching: Julius Randle, Payton Pritchard's glass work and more**\
+`Plus: Why the NBA has become a copy-cat league for one Portland Trail Blazer.`\
+https://nytimes.com/athletic/6021762/2024/12/27/julius-randle-contract-payton-pritchard-rebounding/
+
 **Berrien Moore III, Pioneering Scholar of Earth Science, Dies at 83**\
 `As a researcher at several universities and an adviser at NASA, he used data analysis to show how the planet’s different systems are interrelated.`\
 https://nytimes.com/2024/12/27/climate/berrien-moore-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/dining/cleanse-your-palate-with-this-smashed-cucu
 **A Month on, a Tenuous Cease-fire Holds in Lebanon**\
 `Israel and Hezbollah have exchanged strikes and accusations of breaches. Implementation of the deal has been slow. But the truce has brought some calm to a tumultuous region.`\
 https://nytimes.com/2024/12/27/world/middleeast/israel-lebanon-ceasefire.html
-
-**In Syria, U.S. Hopes to Avoid Replay of Afghanistan**\
-`American officials are wary as they try to persuade the rebels now in control in Syria to govern with an inclusive and moderate hand.`\
-https://nytimes.com/2024/12/27/us/politics/biden-syria-afghanistan-taliban.html
 
