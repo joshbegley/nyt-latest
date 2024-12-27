@@ -1,3 +1,11 @@
+**Takeaways from Netflix's NFL Christmas Day ratings door-buster**\
+`Netflix's NFL debut produced a record U.S. streaming audience for an NFL game.`\
+https://nytimes.com/athletic/6021736/2024/12/27/netflix-nfl-christmas-ratings-takeaways/
+
+**‘Squid Game’ Season 2: Finished Watching? Let’s Talk**\
+`Netflix’s hit Korean series about the indignities of modern capitalism is back for more brightly colored mayhem. Here’s a recap of what happened.`\
+https://nytimes.com/2024/12/27/arts/television/squid-game-season-2-recap.html
+
 **The Vivid Thread of Memories by the Yard**\
 `Suchitra Mattai uses vintage saris and vivid found materials to weave exquisite tapestries that challenge fixed histories about art and migration.`\
 https://nytimes.com/2024/12/27/arts/design/mattai-textiles-museum-women-washington.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6021594/2024/12/27/76ers-joel-embiid-heat-pat-riley
 **Italian Journalist Is Detained While Reporting in Iran**\
 `Cecilia Sala, 29, was arrested on Dec. 19, but news of her detention only became public on Friday. The reason for the arrest of Ms. Sala, a well-known reporter, has not been made public.`\
 https://nytimes.com/2024/12/27/world/middleeast/cecilia-sala-italian-journalist-arrested-iran.html
-
-**NPR and PBS Stations Brace for Funding Battle Under Trump**\
-`Republicans in Congress have tried to defund public media for decades. With the help of Elon Musk, could they finally make good on their threat?`\
-https://nytimes.com/2024/12/27/business/media/npr-pbs-funding-trump-musk.html
-
-**Can the Vikings inch closer to the No. 1 seed by beating the rival Packers?**\
-`The Vikings host the Packers on Sunday in a game with enormous playoff implications. Our experts break down the matchup.`\
-https://nytimes.com/athletic/6020810/2024/12/27/vikings-packers-preview-predictions-no-1-seed/
 
