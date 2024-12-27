@@ -1,3 +1,15 @@
+**World Juniors Today: McKenna vibes with the music, Sandin-Pellikka reintroduces himself**\
+`Axel Sandin-Pellikka scored a hat trick on Day 1 while Gavin McKenna explains Canada's goal song choice.`\
+https://nytimes.com/athletic/6007062/2024/12/27/world-juniors-today-mckenna-sandin-pellikka/
+
+**OpenAI Details Plans for Becoming a For-Profit Company**\
+`OpenAI said it will be restructured as a public benefit corporation, and the nonprofit that controls the organization would receive shares in the new company.`\
+https://nytimes.com/2024/12/27/technology/openai-public-benefit-corporation.html
+
+**Madueke's omission vs Fulham a 'technical decision' - Maresca**\
+`Chelsea head coach Enzo Maresca revealed he made a “technical decision” to leave out Noni Madueke and Renato Veiga from his matchday squad to face Fulham.`\
+https://nytimes.com/athletic/6020110/2024/12/27/madueke-chelsea-fulham-enzo-maresca/
+
 **The Athletic FC: Who can catch Liverpool? Man Utd's corner conundrum, Atalanta's title bid**\
 `Today in TAFC: Are Liverpool looking unstoppable in the Premier League? Manchester United's Olimpico problem and Beyonce for 2026?`\
 https://nytimes.com/athletic/6021400/2024/12/27/liverpool-premier-league-title-united-corners/

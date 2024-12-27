@@ -1,3 +1,15 @@
+**World Juniors Today: McKenna vibes with the music, Sandin-Pellikka reintroduces himself**\
+`Axel Sandin-Pellikka scored a hat trick on Day 1 while Gavin McKenna explains Canada's goal song choice.`\
+https://nytimes.com/athletic/6007062/2024/12/27/world-juniors-today-mckenna-sandin-pellikka/
+
+**OpenAI Details Plans for Becoming a For-Profit Company**\
+`OpenAI said it will be restructured as a public benefit corporation, and the nonprofit that controls the organization would receive shares in the new company.`\
+https://nytimes.com/2024/12/27/technology/openai-public-benefit-corporation.html
+
+**Madueke's omission vs Fulham a 'technical decision' - Maresca**\
+`Chelsea head coach Enzo Maresca revealed he made a “technical decision” to leave out Noni Madueke and Renato Veiga from his matchday squad to face Fulham.`\
+https://nytimes.com/athletic/6020110/2024/12/27/madueke-chelsea-fulham-enzo-maresca/
+
 **The Athletic FC: Who can catch Liverpool? Man Utd's corner conundrum, Atalanta's title bid**\
 `Today in TAFC: Are Liverpool looking unstoppable in the Premier League? Manchester United's Olimpico problem and Beyonce for 2026?`\
 https://nytimes.com/athletic/6021400/2024/12/27/liverpool-premier-league-title-united-corners/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6021551/2024/12/27/seahawks-bears-pete-carroll-the-
 **'Sell the team!': Bears fans vent their anger in home finale of calamitous season**\
 `The Bears have lost 10 games in a row and Caleb Williams is getting more frustrated. Just not as much as Bears fans.`\
 https://nytimes.com/athletic/6021255/2024/12/27/bears-fans-sell-the-team-seahawks/
-
-**Lowetide: Projecting the Oilers' deadline plans and possible targets**\
-`The Oilers have a few needs but might be wise to make small moves ahead of the deadline in March.`\
-https://nytimes.com/athletic/6019829/2024/12/27/oilers-trade-deadline-projections-targets/
-
-**Broncos' 5 keys for beating Bengals, clinching AFC playoff spot Saturday**\
-`Can Pat Surtain II win Round 2 with wide receiver Ja'Marr Chase? `\
-https://nytimes.com/athletic/6020838/2024/12/27/broncos-playoffs-five-keys-bengals/
-
-**How the Raiders can climb back up in the NFL Draft over the final two weeks to land a QB**\
-`Some Raiders fans are ruing the potential loss of a rookie quarterback in the draft. But there are still ways for Las Vegas to move back up.`\
-https://nytimes.com/athletic/6018693/2024/12/27/raiders-2025-nfl-draft-order-quarterback/
 
