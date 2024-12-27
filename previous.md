@@ -1,3 +1,11 @@
+**South Korea’s Political Instability Deepens With New Impeachment**\
+`Lawmakers from South Korea’s governing party protested on Friday against a vote to impeach the country’s acting president, Han Duck-soo. The motion, which passed 192-0, came less than two weeks after President Yoon Suk Yeol was also ousted by the opposition in the National Assembly.`\
+https://nytimes.com/video/world/asia/100000009898161/south-koreas-political-instability-deepens-with-new-impeachment.html
+
+**Ashton Jeanty's legacy at Boise State is secure, but he's still chasing history**\
+`He enters the CFP just 131 yards shy of college football’s official single-season record, set by Oklahoma State’s Barry Sanders in 1988.`\
+https://nytimes.com/athletic/6014346/2024/12/27/ashton-jeanty-boise-state-heisman-barry-sanders/
+
 **How the Chiefs aced their late-season test — 3 games in 11 days — to finish atop the AFC**\
 `Coach Andy Reid held shorter practices and slowed down the tempo during the compressed window to help the Chiefs keep winning.`\
 https://nytimes.com/athletic/6020609/2024/12/27/chiefs-3-games-11-days-test-afc-top-seed/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/crosswords/wordle-review-1288.html
 **Osamu Suzuki, Who Led Japanese Carmaker for Over 4 Decades, Dies at 94**\
 `He built Suzuki Motor from a small company into a global powerhouse, entering the Indian market in the 1980s in one of his early successes.`\
 https://nytimes.com/2024/12/27/business/osamu-suzuki-dies-94.html
-
-**How Dan Quinn’s early decision allowed Jayden Daniels to naturally take command**\
-`Washington's players gravitate toward the 24-year-old rookie QB who has the team on the cusp of clinching a playoff berth. `\
-https://nytimes.com/athletic/6020454/2024/12/27/jayden-daniels-commanders-leader/
-
-**MLB's weirdest injuries of 2024: Beware of water bottles, heating pads and walls**\
-`Will Rays reliever Pete Fairbanks, last year's Injury of the Year grand prize winner, win back-to-back titles? He faces tough competition. `\
-https://nytimes.com/athletic/6020952/2024/12/27/mlb-weird-injuries-2024/
 
