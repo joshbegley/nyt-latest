@@ -1,3 +1,7 @@
+**Arlene Croce Elevated Dance Criticism With Style and Daring**\
+`She was The New Yorker’s first dance critic. Her wit could be devastating but behind it was a belief in beauty.`\
+https://nytimes.com/2024/12/27/arts/dance/arlene-croce-dance-critic-appraisal.html
+
 **The stars and sports that captivated collectors in 2024**\
 `The trends that defined the sports card world in 2024, plus what 2025 might hold for the top names`\
 https://nytimes.com/athletic/6020475/2024/12/27/top-sports-cards-2024-jordan-wembanyama-clark/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/us/homelessness-hit-record-level-in-2024.html
 **What We Know About the Ship Finland Seized Over Fears of Sabotage**\
 `Finland seized an oil tanker that authorities believe might have deliberately cut vital undersea cables. Finnish authorities believe the tanker may be linked to Russia.`\
 https://nytimes.com/2024/12/27/world/europe/finland-ship-russia-sabotage.html
-
-**NFL Week 17 injuries and fantasy tips: Cardinals backfield banged up**\
-`Who's in and who's out for Week 17? Plus weather reports, game previews and fantasy football rankings. `\
-https://nytimes.com/athletic/6019528/2024/12/27/nfl-week-17-inactives-and-fantasy-tips/
 
