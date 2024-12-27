@@ -1,3 +1,7 @@
+**Barcelona lose court appeal to register Olmo for second half of season**\
+`Barcelona have been dealt a blow in their hopes of registering Dani Olmo and Pau Victor in their squad for the second half of the 2024-25 season in La Liga, with the club&#8217;s court appeal for a precautionary registration measure rejected.`\
+https://nytimes.com/athletic/6021526/2024/12/27/dani-olmo-barcelona-registration/
+
 **The top NFL media stories of 2024: Tom Brady debuts, Netflix steps in and more**\
 `The NFL story will, of course, continue in 2025 and beyond, but here we offer eight NFL media stories that captured our interest in 2024.`\
 https://nytimes.com/athletic/6016190/2024/12/27/nfl-media-stories-of-2024-tom-brady-netflix-brazil/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/podcasts/hardfork-wirecutter-kitchenware.html
 **Davies ruled out for Tottenham vs Wolves after injury setback**\
 `Tottenham Hotspur defender Ben Davies has suffered a setback and won&#8217;t now be available for Sunday&#8217;s game with Wolverhampton Wanderers.`\
 https://nytimes.com/athletic/6021537/2024/12/27/tottenham-team-news-ben-davies-injury/
-
-**Overlooked Stories**\
-`Read some of our best journalism that you may have missed this year.`\
-https://nytimes.com/2024/12/27/briefing/overlooked-stories.html
 
