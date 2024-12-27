@@ -1,3 +1,7 @@
+**Why the New Fight Inside MAGA Matters So Much**\
+`It’s what happens when a free-market party confronts reactionary protectionism.`\
+https://nytimes.com/2024/12/27/opinion/trump-musk-ramaswamy-immigration.html
+
 **A Strange Banging Sound, Chaos and Prayers Before a Plane Crashes**\
 `Flight attendants and a passengers described the moments before an Azerbaijan Airlines flight went down in Kazakhstan, killing dozens.`\
 https://nytimes.com/2024/12/27/world/europe/azerbaijan-airlines-crash-kazakhstan-survivors.html
