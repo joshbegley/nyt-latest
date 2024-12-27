@@ -1,11 +1,3 @@
-**Homelessness Hit Record Level in 2024**\
-`The federal government blamed factors including the surge in migrants seeking asylum and the end of pandemic-era measures to protect the needy.`\
-https://nytimes.com/2024/12/27/us/homelessness-hit-record-level-in-2024.html
-
-**What We Know About the Ship Finland Seized Over Fears of Sabotage**\
-`Finland seized an oil tanker that authorities believe might have deliberately cut vital undersea cables. Finnish authorities believe the tanker may be linked to Russia.`\
-https://nytimes.com/2024/12/27/world/europe/finland-ship-russia-sabotage.html
-
 **NFL Week 17 injuries and fantasy tips: Cardinals backfield banged up**\
 `Who's in and who's out for Week 17? Plus weather reports, game previews and fantasy football rankings. `\
 https://nytimes.com/athletic/6019528/2024/12/27/nfl-week-17-inactives-and-fantasy-tips/
@@ -37,4 +29,12 @@ https://nytimes.com/video/nyregion/100000009898406/fire-bryant-park-holiday-mark
 **Takeaways from Netflix's NFL Christmas Day ratings door-buster**\
 `Netflix's NFL debut produced a record U.S. streaming audience for an NFL game.`\
 https://nytimes.com/athletic/6021736/2024/12/27/netflix-nfl-christmas-ratings-takeaways/
+
+**‘Squid Game’ Season 2: Finished Watching? Let’s Talk**\
+`Netflix’s hit Korean series about the indignities of modern capitalism is back for more brightly colored mayhem. Here’s a recap of what happened.`\
+https://nytimes.com/2024/12/27/arts/television/squid-game-season-2-recap.html
+
+**The Vivid Thread of Memories by the Yard**\
+`Suchitra Mattai uses vintage saris and vivid found materials to weave exquisite tapestries that challenge fixed histories about art and migration.`\
+https://nytimes.com/2024/12/27/arts/design/mattai-textiles-museum-women-washington.html
 
