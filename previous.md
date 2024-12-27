@@ -1,3 +1,7 @@
+**Heat Today: Extended Kel'el Ware minutes could add new dimension to Miami rotation**\
+`The 7-foot rookie has stayed patient — and is showing tantalizing glimpses of his talent. `\
+https://nytimes.com/athletic/6019823/2024/12/27/kelel-ware-heat-bam-adebayo-kevin-love-heat-nba/
+
 **World Juniors Today: McKenna vibes with the music, Sandin-Pellikka reintroduces himself**\
 `Axel Sandin-Pellikka scored a hat trick on Day 1 while Gavin McKenna explains Canada's goal song choice.`\
 https://nytimes.com/athletic/6007062/2024/12/27/world-juniors-today-mckenna-sandin-pellikka/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/world/middleeast/israel-gaza-hospital-raid.html
 **The Pulse: What an impressively bad NFL game**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6021551/2024/12/27/seahawks-bears-pete-carroll-the-pulse/
-
-**'Sell the team!': Bears fans vent their anger in home finale of calamitous season**\
-`The Bears have lost 10 games in a row and Caleb Williams is getting more frustrated. Just not as much as Bears fans.`\
-https://nytimes.com/athletic/6021255/2024/12/27/bears-fans-sell-the-team-seahawks/
 

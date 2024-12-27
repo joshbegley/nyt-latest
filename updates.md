@@ -1,3 +1,7 @@
+**Heat Today: Extended Kel'el Ware minutes could add new dimension to Miami rotation**\
+`The 7-foot rookie has stayed patient — and is showing tantalizing glimpses of his talent. `\
+https://nytimes.com/athletic/6019823/2024/12/27/kelel-ware-heat-bam-adebayo-kevin-love-heat-nba/
+
 **World Juniors Today: McKenna vibes with the music, Sandin-Pellikka reintroduces himself**\
 `Axel Sandin-Pellikka scored a hat trick on Day 1 while Gavin McKenna explains Canada's goal song choice.`\
 https://nytimes.com/athletic/6007062/2024/12/27/world-juniors-today-mckenna-sandin-pellikka/
