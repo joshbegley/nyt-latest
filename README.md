@@ -23,7 +23,7 @@ https://nytimes.com/2024/12/26/crosswords/daily-puzzle-2024-12-27.html
 https://nytimes.com/athletic/6021064/2024/12/26/pete-carroll-bears-seahawks-coaching-job/
 
 **South Korea’s Acting President Faces Impeachment Vote**\
-`As the nation’s president awaits an impeachment trial over an ill-fated martial law bid, its prime minister and interim leader may face an ousting of his own.`\
+`As the president awaits an impeachment trial, the country’s interim leader may face an ousting of his own. The currency has plunged as the crisis has deepened.`\
 https://nytimes.com/2024/12/26/world/asia/south-korea-impeach-president-han.html
 
 **Corrections: Dec. 27, 2024**\
