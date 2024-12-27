@@ -1,3 +1,7 @@
+**Jaden Ivey's game-winner shows his growing confidence for suddenly surging Pistons**\
+`Ivey's clutch play against the Kings lifted Detroit to 3-0 on its road trip. He's becoming a legit No. 2 option next to Cade Cunningham.`\
+https://nytimes.com/athletic/6021354/2024/12/27/jaden-ivey-pistons-game-winner-kings/
+
 **Slot: Liverpool managing Jota's fitness after injury lay-off**\
 `Arne Slot says Liverpool will continue to tread carefully with Diogo Jota following his return to action from a chest injury.`\
 https://nytimes.com/athletic/6021523/2024/12/27/liverpool-diogo-jota-fitness-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6021526/2024/12/27/dani-olmo-barcelona-registration
 **The top NFL media stories of 2024: Tom Brady debuts, Netflix steps in and more**\
 `The NFL story will, of course, continue in 2025 and beyond, but here we offer eight NFL media stories that captured our interest in 2024.`\
 https://nytimes.com/athletic/6016190/2024/12/27/nfl-media-stories-of-2024-tom-brady-netflix-brazil/
-
-**Israeli Military Forces Patients and Staff to Leave Hospital in Northern Gaza**\
-`The hospital, Kamal Adwan, has been caught in the middle of Israel’s offensive against Hamas militants in northern Gaza.`\
-https://nytimes.com/2024/12/27/world/middleeast/israel-gaza-hospital-raid.html
 

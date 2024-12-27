@@ -1,3 +1,7 @@
+**Jaden Ivey's game-winner shows his growing confidence for suddenly surging Pistons**\
+`Ivey's clutch play against the Kings lifted Detroit to 3-0 on its road trip. He's becoming a legit No. 2 option next to Cade Cunningham.`\
+https://nytimes.com/athletic/6021354/2024/12/27/jaden-ivey-pistons-game-winner-kings/
+
 **Slot: Liverpool managing Jota's fitness after injury lay-off**\
 `Arne Slot says Liverpool will continue to tread carefully with Diogo Jota following his return to action from a chest injury.`\
 https://nytimes.com/athletic/6021523/2024/12/27/liverpool-diogo-jota-fitness-arne-slot/
