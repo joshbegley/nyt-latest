@@ -1,3 +1,11 @@
+**In Syria, U.S. Hopes to Avoid Replay of Afghanistan**\
+`American officials are wary as they try to persuade the rebels now in control in Syria to govern with an inclusive and moderate hand.`\
+https://nytimes.com/2024/12/27/us/politics/biden-syria-afghanistan-taliban.html
+
+**The Eddie Howe tactical tweak that has revitalised Sandro Tonali and Newcastle's form**\
+`Newcastle’s manager has tweaked the structure of his midfield this season - and it is starting to pay dividends  `\
+https://nytimes.com/athletic/6021415/2024/12/27/newcastle-tonali-howe-no-6-tweak/
+
 **Cunha banned for five matches after altercation with Ipswich staff member**\
 `Wolverhampton Wanderers striker Matheus Cunha has been banned for five matches after an altercation with an Ipswich Town security guard.`\
 https://nytimes.com/athletic/6000628/2024/12/27/matheus-cunha-suspension-wolves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6021574/2024/12/27/bucks-nets-score-recap-nba/
 **Tesla Investors Are Still Bullish. Can Elon Musk Deliver?**\
 `Sales of the company’s cars are flagging, but investors are focusing on the potential of autonomous driving and Mr. Musk’s ties to President-elect Donald J. Trump.`\
 https://nytimes.com/2024/12/27/business/tesla-sales-stock-elon-musk.html
-
-**Union Berlin part company with head coach Svensson**\
-`Union Berlin have parted company with head coach Bo Svensson.`\
-https://nytimes.com/athletic/6021701/2024/12/27/bo-svensson-sacked-union-berlin/
-
-**Filling in NHL history's awards gaps with once-a-decade bonus trophies I made up**\
-`Let's reward some excellent performances with bonus trophies to make up for the real ones these players probably should have won.`\
-https://nytimes.com/athletic/6020523/2024/12/27/nhl-history-bonus-trophies-decades/
 
