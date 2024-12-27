@@ -1,3 +1,15 @@
+**Athletics president Dave Kaval to step down after 8 tumultuous years**\
+`Kaval, the public face of the team's relocation process, will be replaced by Sandy Dean on an interim basis. `\
+https://nytimes.com/athletic/6022045/2024/12/27/athletics-president-dave-kaval-resigns/
+
+**After Days of Silence, NASA’s Parker Solar Probe Phones Home**\
+`The probe sent a signal to Earth indicating that it had survived the closest solar encounter ever attempted by a spacecraft.`\
+https://nytimes.com/2024/12/27/science/space/parker-solar-probe-nasa-sun-signal.html
+
+**Pickett poised to make first Eagles start with Hurts in concussion protocol**\
+`Pickett played for the Steelers for his first two seasons, throwing for 4,474 yards, 13 touchdowns and 13 interceptions in 25 appearances.`\
+https://nytimes.com/athletic/6022003/2024/12/27/jalen-hurts-status-concussion-kenny-pickett-eagles/
+
 **2024 Notable Deaths**\
 `As the year winds to a close, we’re recalling those we’ve lost who forged consequential lives.`\
 https://nytimes.com/interactive/2024/obituaries/notable-deaths.html
