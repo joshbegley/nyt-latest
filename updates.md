@@ -1,3 +1,7 @@
+**Seattle's defense steps up in 6-3 win vs. Bears: Takeaways**\
+`Seahawks need help but still have a chance to make the playoffs`\
+https://nytimes.com/athletic/6021094/2024/12/26/seahawks-bears-score-result-takeaways-tnf/
+
 **N.F.L. Christmas Games on Netflix Break Streaming Records, With Beyoncé’s Help**\
 `The two games had more than 24 million viewers on average in the United States, Netflix said. Viewership peaked when Beyoncé performed.`\
 https://nytimes.com/2024/12/26/us/netflix-christmas-nfl-ratings-beyonce.html
