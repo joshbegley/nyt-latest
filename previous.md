@@ -1,3 +1,27 @@
+**Marco Rossi keeps proving himself to Wild brass: 'I’m not looking to trade him'**\
+`In his second full season in the NHL, Rossi has made himself invaluable as a top-line center for the Wild.`\
+https://nytimes.com/athletic/6020896/2024/12/27/wild-marco-rossi-bill-guerin/
+
+**Dyson Daniels’ grand heist: Inside how he became the NBA's deflections king**\
+`Dyson Daniels is a breakout defensive star. Here's how the Great Barrier Thief is tricking NBA stars into handing the ball over.`\
+https://nytimes.com/athletic/6008685/2024/12/27/dyson-daniels-hawks-nba-defensive-player-of-year-deflections/
+
+**What's behind Blackhawks prospect Roman Kantserov's impressive play lately?**\
+`Kantserov has exploded offensively over the past month in the KHL. Let's break down why.`\
+https://nytimes.com/athletic/6021070/2024/12/27/blackhawks-roman-kantserov-film-breakdown/
+
+**The Connections Companion No. 566**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 28, 2024.`\
+https://nytimes.com/2024/12/27/crosswords/connections-companion-566.html
+
+**The Year in Music**\
+`Our pop music critics on the biggest stories of 2024.`\
+https://nytimes.com/2024/12/27/podcasts/the-daily/2024-biggest-music-stories.html
+
+**Wordle Review No. 1,288**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 28, 2024.`\
+https://nytimes.com/2024/12/27/crosswords/wordle-review-1288.html
+
 **Osamu Suzuki, Who Led Japanese Carmaker for Over 4 Decades, Dies at 94**\
 `He built Suzuki Motor from a small company into a global powerhouse, entering the Indian market in the 1980s in one of his early successes.`\
 https://nytimes.com/2024/12/27/business/osamu-suzuki-dies-94.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6020952/2024/12/27/mlb-weird-injuries-2024/
 **Bills notebook: Is Sunday Josh Allen's final MVP statement? How much does seeding matter?**\
 `Considering Lamar Jackson's performance on Christmas Day, Josh Allen and the Bills might want to make a statement Sunday in the MVP race.`\
 https://nytimes.com/athletic/6020580/2024/12/27/bills-josh-allen-mvp-statement-playoff-seeding/
-
-**Will Bengals' season of underachievement come to a fitting conclusion?: Dehner Jr.**\
-`Many things need to happen for Cincinnati to make the playoffs but the big question is whether it can hold up its end of the deal.`\
-https://nytimes.com/athletic/6020815/2024/12/27/bengals-playoffs-broncos-prediction/
-
-**How the Bears found yet another way to lose a game in the final minute**\
-`The Bears embarrassed themselves again on national TV, mismanaging the final two minutes and failing to get in position to end their skid.`\
-https://nytimes.com/athletic/6021260/2024/12/27/bears-lose-to-seahawks-thomas-brown/
-
-**Eagles have contingency plan in place if Jalen Hurts is unable to play vs. Cowboys**\
-`Hurts has yet to practice this week amid concussion protocol. Pickett is limited with a rib injury. Who's up next in Philadelphia?`\
-https://nytimes.com/athletic/6019467/2024/12/27/jalen-hurts-concussion-philadelphia-eagles-dallas-cowboys-plan/
-
-**'A different feeling' in Atlanta as the Falcons look to end their playoff drought**\
-`The Falcons will clinch the NFC South if they win their final two games. If things break right, it could happen Sunday night.`\
-https://nytimes.com/athletic/6020671/2024/12/27/falcons-playoff-drought-michael-penix-jr/
-
-**Panthers midseason predictions revisited: Spot on with Chuba Hubbard, top-5 pick TBD**\
-`Seven weeks ago, Joe Person called Hubbard's contract and yardage. How did he fare on the rest of his predictions?`\
-https://nytimes.com/athletic/6020794/2024/12/27/panthers-midseason-predictions-revisiting-chuba-hubbard-bryce-young/
-
-**Lions-49ers doesn't have the same spark, but Detroit is 'bringing everything' Monday**\
-`This isn't the same 49ers team the Lions lined up against 11 months ago, but Detroit is still treating it like a marquee game.`\
-https://nytimes.com/athletic/6020847/2024/12/27/lions-49ers-game-dan-campbell/
 
