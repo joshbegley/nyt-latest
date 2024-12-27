@@ -1,3 +1,7 @@
+**The Stuff of Legends**\
+`Jem Burch opens our weekend solving.`\
+https://nytimes.com/2024/12/26/crosswords/daily-puzzle-2024-12-27.html
+
 **Pete Carroll interested in Bears coaching job: Source**\
 `The Bears, currently last in the NFC North, fired coach Matt Eberflus in November after a string of losses.`\
 https://nytimes.com/athletic/6021064/2024/12/26/pete-carroll-bears-seahawks-coaching-job/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/arts/music/sugar-pie-desanto-dead.html
 **Israeli Forces Strike International Airport in Yemen**\
 `The deadly assault came after a week of attacks against Israel by the Iran-backed Houthi militia, including a missile strike on Tel Aviv.`\
 https://nytimes.com/video/world/middleeast/100000009897615/israel-yemen-houthis.html
-
-**The Briefing: Who can stop Liverpool, fragile Haaland and why are Man Utd conceding 'olimpicos'?**\
-`The major Premier League talking points analysed - including Amazon's farewell and Nottingham Forest's fairytale`\
-https://nytimes.com/athletic/6019645/2024/12/26/liverpool-premier-league-manchester-united-olimpico-haaland/
 

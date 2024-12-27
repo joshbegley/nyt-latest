@@ -1,3 +1,7 @@
+**The Stuff of Legends**\
+`Jem Burch opens our weekend solving.`\
+https://nytimes.com/2024/12/26/crosswords/daily-puzzle-2024-12-27.html
+
 **Pete Carroll interested in Bears coaching job: Source**\
 `The Bears, currently last in the NFC North, fired coach Matt Eberflus in November after a string of losses.`\
 https://nytimes.com/athletic/6021064/2024/12/26/pete-carroll-bears-seahawks-coaching-job/
