@@ -1,3 +1,7 @@
+**Traveling This Weekend? Where Weather May Complicate Your Plans**\
+`A day-by-day look at the rain and snow expected across the United States, and a peek at the New Year’s Eve forecast.`\
+https://nytimes.com/2024/12/27/weather/travel-forecast-new-years.html
+
 **Arlene Croce Elevated Dance Criticism With Style and Daring**\
 `She was The New Yorker’s first dance critic. Her wit could be devastating but behind it was a belief in beauty.`\
 https://nytimes.com/2024/12/27/arts/dance/arlene-croce-dance-critic-appraisal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6021622/2024/12/27/desean-jackson-delaware-state-fo
 **Migrants and End of Covid Restrictions Fuel Jump in U.S. Homelessness**\
 `The number of people experiencing homelessness topped 770,000, an increase of more than 18 percent over last year.`\
 https://nytimes.com/2024/12/27/us/homelessness-hit-record-level-in-2024.html
-
-**What We Know About the Ship Finland Seized Over Fears of Sabotage**\
-`Finland seized an oil tanker that authorities believe might have deliberately cut vital undersea cables. Finnish authorities believe the tanker may be linked to Russia.`\
-https://nytimes.com/2024/12/27/world/europe/finland-ship-russia-sabotage.html
 
