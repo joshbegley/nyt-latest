@@ -1,3 +1,7 @@
+**The Bald Eagle Is (Finally) the National Bird of the United States**\
+`The bird of brown and white feathers has long represented the United States as a majestic and soaring symbol, but only this week did a law make it official.`\
+https://nytimes.com/2024/12/26/us/bald-eagle-national-bird.html
+
 **49ers to give Jake Moody the boot? Instead, Kyle Shanahan gives him his backing**\
 `The 49ers practiced with a reconfigured offensive line Thursday after placing two more linemen on season-ending injured reserve.`\
 https://nytimes.com/athletic/6020817/2024/12/26/49ers-kyle-shanahan-jake-moody/

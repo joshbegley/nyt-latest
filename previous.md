@@ -1,3 +1,7 @@
+**The Bald Eagle Is (Finally) the National Bird of the United States**\
+`The bird of brown and white feathers has long represented the United States as a majestic and soaring symbol, but only this week did a law make it official.`\
+https://nytimes.com/2024/12/26/us/bald-eagle-national-bird.html
+
 **49ers to give Jake Moody the boot? Instead, Kyle Shanahan gives him his backing**\
 `The 49ers practiced with a reconfigured offensive line Thursday after placing two more linemen on season-ending injured reserve.`\
 https://nytimes.com/athletic/6020817/2024/12/26/49ers-kyle-shanahan-jake-moody/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/science/iss-astronauts-holiday-celebration.html
 **Bultman: The Red Wings have changed coaches, but they can't stop there**\
 `The Red Wings fired Lalonde on Thursday in search of a spark. But their biggest issues will require more work to fix.`\
 https://nytimes.com/athletic/6020364/2024/12/26/red-wings-derek-lalonde-changes-yzerman/
-
-**Cowboys rule out CeeDee Lamb for final two games, surgery not expected**\
-`With Lamb ruled out, Dallas will now be without six Week 1 starters in Philadelphia on Sunday.`\
-https://nytimes.com/athletic/6020647/2024/12/26/ceedee-lamb-cowboys-shoulder-injury-out-season/
 
