@@ -1,3 +1,7 @@
+**Delaware State hiring former Eagles WR DeSean Jackson as head coach**\
+`The move comes less than a week after Norfolk State, another MEAC school, hired former Pro Bowl QB Michael Vick as its coach.`\
+https://nytimes.com/athletic/6021622/2024/12/27/desean-jackson-delaware-state-football-eagles/
+
 **Migrants and End of Covid Restrictions Fuel Jump in U.S. Homelessness**\
 `The federal government blamed factors including the surge in migrants seeking asylum and the end of pandemic-era measures to protect the needy.`\
 https://nytimes.com/2024/12/27/us/homelessness-hit-record-level-in-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6021933/2024/12/27/ryan-walters-washington-defensiv
 **Fire Breaks Out at Bryant Park Holiday Market**\
 `There were no injuries at Bryant Park in Manhattan on Friday, but some holiday booths burned.`\
 https://nytimes.com/video/nyregion/100000009898406/fire-bryant-park-holiday-market.html
-
-**Takeaways from Netflix's NFL Christmas Day ratings door-buster**\
-`Netflix's NFL debut produced a record U.S. streaming audience for an NFL game.`\
-https://nytimes.com/athletic/6021736/2024/12/27/netflix-nfl-christmas-ratings-takeaways/
 

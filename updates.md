@@ -1,3 +1,7 @@
+**Delaware State hiring former Eagles WR DeSean Jackson as head coach**\
+`The move comes less than a week after Norfolk State, another MEAC school, hired former Pro Bowl QB Michael Vick as its coach.`\
+https://nytimes.com/athletic/6021622/2024/12/27/desean-jackson-delaware-state-football-eagles/
+
 **Migrants and End of Covid Restrictions Fuel Jump in U.S. Homelessness**\
 `The federal government blamed factors including the surge in migrants seeking asylum and the end of pandemic-era measures to protect the needy.`\
 https://nytimes.com/2024/12/27/us/homelessness-hit-record-level-in-2024.html
