@@ -1,3 +1,7 @@
+**Union Berlin part company with head coach Svensson**\
+`Union Berlin have parted company with head coach Bo Svensson.`\
+https://nytimes.com/athletic/6021701/2024/12/27/bo-svensson-sacked-union-berlin/
+
 **Filling in NHL history's awards gaps with once-a-decade bonus trophies I made up**\
 `Let's reward some excellent performances with bonus trophies to make up for the real ones these players probably should have won.`\
 https://nytimes.com/athletic/6020523/2024/12/27/nhl-history-bonus-trophies-decades/

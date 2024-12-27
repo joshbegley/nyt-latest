@@ -1,3 +1,7 @@
+**Union Berlin part company with head coach Svensson**\
+`Union Berlin have parted company with head coach Bo Svensson.`\
+https://nytimes.com/athletic/6021701/2024/12/27/bo-svensson-sacked-union-berlin/
+
 **Filling in NHL history's awards gaps with once-a-decade bonus trophies I made up**\
 `Let's reward some excellent performances with bonus trophies to make up for the real ones these players probably should have won.`\
 https://nytimes.com/athletic/6020523/2024/12/27/nhl-history-bonus-trophies-decades/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/technology/openai-public-benefit-corporation.html
 **Madueke's omission vs Fulham a 'technical decision' - Maresca**\
 `Chelsea head coach Enzo Maresca revealed he made a “technical decision” to leave out Noni Madueke and Renato Veiga from his matchday squad to face Fulham.`\
 https://nytimes.com/athletic/6020110/2024/12/27/madueke-chelsea-fulham-enzo-maresca/
-
-**The Athletic FC: Who can catch Liverpool? Man Utd's corner conundrum, Atalanta's title bid**\
-`Today in TAFC: Are Liverpool looking unstoppable in the Premier League? Manchester United's Olimpico problem and Beyonce for 2026?`\
-https://nytimes.com/athletic/6021400/2024/12/27/liverpool-premier-league-title-united-corners/
 
