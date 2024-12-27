@@ -1,3 +1,7 @@
+**'Sell the team!': Bears fans vent their anger in home finale of calamitous season**\
+`The Bears have lost 10 games in a row and Caleb Williams is getting more frustrated. Just not as much as Bears fans.`\
+https://nytimes.com/athletic/6021255/2024/12/27/bears-fans-sell-the-team-seahawks/
+
 **Lowetide: Projecting the Oilers' deadline plans and possible targets**\
 `The Oilers have a few needs but might be wise to make small moves ahead of the deadline in March.`\
 https://nytimes.com/athletic/6019829/2024/12/27/oilers-trade-deadline-projections-targets/

@@ -1,3 +1,7 @@
+**'Sell the team!': Bears fans vent their anger in home finale of calamitous season**\
+`The Bears have lost 10 games in a row and Caleb Williams is getting more frustrated. Just not as much as Bears fans.`\
+https://nytimes.com/athletic/6021255/2024/12/27/bears-fans-sell-the-team-seahawks/
+
 **Lowetide: Projecting the Oilers' deadline plans and possible targets**\
 `The Oilers have a few needs but might be wise to make small moves ahead of the deadline in March.`\
 https://nytimes.com/athletic/6019829/2024/12/27/oilers-trade-deadline-projections-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009898161/south-koreas-political-inst
 **Ashton Jeanty's legacy at Boise State is secure, but he's still chasing history**\
 `He enters the CFP just 131 yards shy of college football’s official single-season record, set by Oklahoma State’s Barry Sanders in 1988.`\
 https://nytimes.com/athletic/6014346/2024/12/27/ashton-jeanty-boise-state-heisman-barry-sanders/
-
-**How the Chiefs aced their late-season test — 3 games in 11 days — to finish atop the AFC**\
-`Coach Andy Reid held shorter practices and slowed down the tempo during the compressed window to help the Chiefs keep winning.`\
-https://nytimes.com/athletic/6020609/2024/12/27/chiefs-3-games-11-days-test-afc-top-seed/
 
