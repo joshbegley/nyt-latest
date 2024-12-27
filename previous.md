@@ -1,3 +1,7 @@
+**N.F.L. Christmas Games on Netflix Break Streaming Records, With Beyoncé’s Help**\
+`The two games had more than 24 million viewers on average in the United States, Netflix said. Viewership peaked when Beyoncé performed.`\
+https://nytimes.com/2024/12/26/us/netflix-christmas-nfl-ratings-beyonce.html
+
 **Two Sailors Die During Sydney to Hobart Yacht Race**\
 `The men were hit in the head by booms on their yachts in separate episodes, as participants faced challenging weather conditions, the police said.`\
 https://nytimes.com/2024/12/26/world/australia/sydney-hobart-yacht-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020817/2024/12/26/49ers-kyle-shanahan-jake-moody/
 **The Sidney Awards**\
 `A revelatory portrait, an “American Vulcan,” a sober take on DOGE and more.`\
 https://nytimes.com/2024/12/26/opinion/sidney-awards.html
-
-**Gotham FC trades Yazmeen Ryan to Houston after working 'tirelessly to honor her request' to move**\
-`Ryan joins Houston after two successful season at Gotham.`\
-https://nytimes.com/athletic/6020801/2024/12/26/gotham-fc-yazmeen-ryan-houston-dash-trade/
 
