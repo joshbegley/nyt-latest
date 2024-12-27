@@ -1,3 +1,7 @@
+**Greg Gumbel, a Familiar Voice to Football and Basketball Fans, Is Dead at 78**\
+`The sportscaster combined play-by-play excitement with a knack for precision in his decades as a sports broadcaster calling N.F.L. and N.C.A.A. games for CBS.`\
+https://nytimes.com/2024/12/27/obituaries/greg-gumbel-dead.html
+
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
 https://nytimes.com/athletic/5891633/2024/12/27/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
