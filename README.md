@@ -1,6 +1,10 @@
+**Ronaldo backs Amorim to guide Man Utd through 'storm'**\
+`Cristiano Ronaldo has backed Manchester United head coach Ruben Amorim to arrest the club&#8217;s slump after a difficult start to his compatriot&#8217;s Old Trafford reign.`\
+https://nytimes.com/athletic/6022507/2024/12/27/cristiano-ronaldo-ruben-amorim/
+
 **Greg Gumbel, a Familiar Voice to Football and Basketball Fans, Is Dead at 78**\
 `The sportscaster combined play-by-play excitement with a knack for precision in his decades as a sports broadcaster calling N.F.L. and N.C.A.A. games for CBS.`\
-https://nytimes.com/2024/12/27/obituaries/greg-gumbel-dead.html
+https://nytimes.com/2024/12/27/business/media/greg-gumbel-dead.html
 
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/5891633/2024/12/27/2024-25-mlb-top-40-free-agmlb-to
 `Watson, 29, is under contract with Cleveland through the 2026 season.`\
 https://nytimes.com/athletic/6022274/2024/12/27/browns-deshaun-watson-contract-restructure/
 
-**Teoscar Hernández agrees to re-sign with Dodgers on 3-year deal: Source**\
-`In 2024, Hernández slugged a career-best 33 home runs, won a Silver Slugger and won the World Series. `\
+**Teoscar Hernández agrees to re-sign with Dodgers on 3-year deal**\
+`In 2024, Hernández slugged a career-best 33 home runs, won a Silver Slugger and won the World Series.`\
 https://nytimes.com/athletic/5932721/2024/12/27/teoscar-hernandez-dodgers-free-agent-deal/
 
 **Trump Urges Supreme Court to Pause TikTok Ban**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/world/africa/aid-trucks-sudan-capital-famine.html
 **Chargers activate Dobbins from IR ahead of Saturday's game vs. Patriots**\
 `The Chargers' leading rusher has missed the last four games due to a knee injury suffered in Week 12 against his former team.`\
 https://nytimes.com/athletic/6022305/2024/12/27/chargers-activate-jk-dobbins-patriots/
-
-**Yellen Warns ‘Extraordinary Measures’ Will Be Needed to Avoid Default**\
-`The Treasury secretary urged Congress to protect the full faith and credit of the United States by raising the debt limit.`\
-https://nytimes.com/2024/12/27/business/economy/yellen-debt-limit-warning-congress.html
 
