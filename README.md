@@ -1,3 +1,7 @@
+**It's not just about Gunner Stockton: The other Georgia X-factor in the CFP **\
+`Georgia's defense has been inconsistent this season, so it will be important for the unit to bring its best against the Irish.`\
+https://nytimes.com/athletic/6022226/2024/12/27/georgia-notre-dame-football-cfp-sugar-bowl/
+
 **Scheffler to have surgery to remove glass fragments from hand**\
 `Scheffler was preparing Christmas dinner when a broken glass punctured his right hand, according to his manager.`\
 https://nytimes.com/athletic/6022267/2024/12/27/scottie-scheffler-broken-glass-hand-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/world/europe/azerbaijan-airlines-crash-kazakhstan
 **Too Old to Ace This Year-End Quiz? Ask a Kid for Help.**\
 `A 2024 trivia challenge you’ll need Gen Alpha’s help to beat`\
 https://nytimes.com/interactive/2024/12/27/magazine/kids-quiz-2024-trivia.html
-
-**Trump Backers Battle Online Over Skilled Immigrants**\
-`A fierce dispute erupted in the president-elect’s camp between immigration hard-liners and tech industry leaders including Elon Musk.`\
-https://nytimes.com/2024/12/27/technology/trump-musk-immigration-h1b-visa.html
 
