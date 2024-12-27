@@ -1,3 +1,7 @@
+**Athletics president Dave Kaval to step down after 8 tumultuous years**\
+`Kaval, the public face of the team's relocation process, will be replaced by Sandy Dean on an interim basis. `\
+https://nytimes.com/athletic/6022045/2024/12/27/athletics-president-dave-kaval-resigns/
+
 **After Days of Silence, NASA’s Parker Solar Probe Phones Home**\
 `The probe sent a signal to Earth indicating that it had survived the closest solar encounter ever attempted by a spacecraft.`\
 https://nytimes.com/2024/12/27/science/space/parker-solar-probe-nasa-sun-signal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/arts/dance/arlene-croce-dance-critic-appraisal.ht
 **The stars and sports that captivated collectors in 2024**\
 `The trends that defined the sports card world in 2024, plus what 2025 might hold for the top names`\
 https://nytimes.com/athletic/6020475/2024/12/27/top-sports-cards-2024-jordan-wembanyama-clark/
-
-**Video Shows Prison Officers’ Fatal Assault of Inmate in ‘Shocking’ Detail**\
-`Robert Brooks died after a savage attack at a New York prison this month that was captured by several officers’ body-worn cameras.`\
-https://nytimes.com/2024/12/27/nyregion/marcy-correctional-inmate-death-video-ny-prison.html
 
