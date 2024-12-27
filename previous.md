@@ -1,3 +1,7 @@
+**Overlooked Stories**\
+`Read some of our best journalism that you may have missed this year.`\
+https://nytimes.com/2024/12/27/briefing/overlooked-stories.html
+
 **AFC North Whiparound: Biggest Christmas Day surprise, making a case for individual awards**\
 `Plus, our writers discuss what stood out most about this week's episode of "Hard Knocks" and make game predictions. `\
 https://nytimes.com/athletic/6020542/2024/12/27/afc-north-bengals-steelers-ravens-browns/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/crosswords/connections-companion-566.html
 **The Year in Music**\
 `Our pop music critics on the biggest stories of 2024.`\
 https://nytimes.com/2024/12/27/podcasts/the-daily/2024-biggest-music-stories.html
-
-**Wordle Review No. 1,288**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Dec. 28, 2024.`\
-https://nytimes.com/2024/12/27/crosswords/wordle-review-1288.html
 
