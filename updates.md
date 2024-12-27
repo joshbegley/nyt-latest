@@ -1,3 +1,7 @@
+**First-Time Home Buyer Shares His Household Hacks**\
+`With more than a million people following along on Instagram, Kyshawn Lane lets you know just when to vacuum your refrigerator coils.`\
+https://nytimes.com/2024/12/27/realestate/kyshawn-lane-household-hacks.html
+
 **Jaden Ivey's game-winner shows his growing confidence for suddenly surging Pistons**\
 `Ivey's clutch play against the Kings lifted Detroit to 3-0 on its road trip. He's becoming a legit No. 2 option next to Cade Cunningham.`\
 https://nytimes.com/athletic/6021354/2024/12/27/jaden-ivey-pistons-game-winner-kings/
