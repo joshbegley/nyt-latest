@@ -1,3 +1,11 @@
+**Trucks Carrying Aid Finally Reach Sudan’s War-Torn Capital Region**\
+`After 20 months of war, and three months of negotiations with the warring sides, a bit of relief arrives for some of the hundreds of thousands of people facing famine.`\
+https://nytimes.com/2024/12/27/world/africa/aid-trucks-sudan-capital-famine.html
+
+**Chargers activate Dobbins from IR ahead of Saturday's game vs. Patriots**\
+`The Chargers' leading rusher has missed the last four games due to a knee injury suffered in Week 12 against his former team.`\
+https://nytimes.com/athletic/6022305/2024/12/27/chargers-activate-jk-dobbins-patriots/
+
 **Yellen Warns ‘Extraordinary Measures’ Will Be Needed to Avoid Default**\
 `The Treasury secretary urged Congress to protect the full faith and credit of the United States by raising the debt limit.`\
 https://nytimes.com/2024/12/27/business/economy/yellen-debt-limit-warning-congress.html
