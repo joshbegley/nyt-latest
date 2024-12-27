@@ -1,3 +1,11 @@
+**NFL Week 17 injuries and fantasy tips: Cardinals backfield banged up**\
+`Who's in and who's out for Week 17? Plus weather reports, game previews and fantasy football rankings. `\
+https://nytimes.com/athletic/6019528/2024/12/27/nfl-week-17-inactives-and-fantasy-tips/
+
+**Fire Erupts at Bryant Park Holiday Market**\
+`Several booths at one of New York City’s largest seasonal markets were affected, but there were no injuries.`\
+https://nytimes.com/2024/12/27/nyregion/bryant-park-holiday-market-fire.html
+
 **NBA trends I'm watching: Julius Randle, Payton Pritchard's glass work and more**\
 `Plus: Why the NBA has become a copy-cat league for one Portland Trail Blazer.`\
 https://nytimes.com/athletic/6021762/2024/12/27/julius-randle-contract-payton-pritchard-rebounding/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/arts/television/squid-game-season-2-recap.html
 **The Vivid Thread of Memories by the Yard**\
 `Suchitra Mattai uses vintage saris and vivid found materials to weave exquisite tapestries that challenge fixed histories about art and migration.`\
 https://nytimes.com/2024/12/27/arts/design/mattai-textiles-museum-women-washington.html
-
-**Cleanse Your Palate With This Smashed Cucumber Salad**\
-`Crunchy, cool and refreshing, it’s the perfect foil for the season’s rich mains and sugary sweets.`\
-https://nytimes.com/2024/12/27/dining/cleanse-your-palate-with-this-smashed-cucumber-salad.html
-
-**A Month on, a Tenuous Cease-fire Holds in Lebanon**\
-`Israel and Hezbollah have exchanged strikes and accusations of breaches. Implementation of the deal has been slow. But the truce has brought some calm to a tumultuous region.`\
-https://nytimes.com/2024/12/27/world/middleeast/israel-lebanon-ceasefire.html
 
