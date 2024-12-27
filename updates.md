@@ -1,3 +1,7 @@
+**Trump Backers Battle Online Over Skilled Immigrants**\
+`A fierce dispute erupted in the president-elect’s camp between immigration hard-liners and tech industry leaders including Elon Musk.`\
+https://nytimes.com/2024/12/27/technology/trump-musk-immigration-h1b-visa.html
+
 **Three reasons Ohio State is better prepared to defend Oregon in the Rose Bowl**\
 `Ohio State's defense took a lot of heat for its lapses in an October loss at Oregon. What's different for the Buckeyes in the Playoff?`\
 https://nytimes.com/athletic/6022105/2024/12/27/ohio-state-defense-oregon-rose-bowl/
