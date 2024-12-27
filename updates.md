@@ -1,3 +1,7 @@
+**How Would You Do if You Went to Space for Eight Days and Were Gone Six Months?**\
+`Astronauts are made of different stuff from you and me.`\
+https://nytimes.com/2024/12/27/opinion/nasa-stranded-space.html
+
 **How a daunting run and return of the old guard helped fortify Everton**\
 `Everton are still a team to be endured rather than enjoyed - but Sean Dyche's tactical changes are paying off amid tough fixtures`\
 https://nytimes.com/athletic/6020250/2024/12/27/everton-manchester-city-seamus-coleman-dyche/

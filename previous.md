@@ -1,3 +1,7 @@
+**How Would You Do if You Went to Space for Eight Days and Were Gone Six Months?**\
+`Astronauts are made of different stuff from you and me.`\
+https://nytimes.com/2024/12/27/opinion/nasa-stranded-space.html
+
 **How a daunting run and return of the old guard helped fortify Everton**\
 `Everton are still a team to be endured rather than enjoyed - but Sean Dyche's tactical changes are paying off amid tough fixtures`\
 https://nytimes.com/athletic/6020250/2024/12/27/everton-manchester-city-seamus-coleman-dyche/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5965500/2024/12/27/kevin-oconnor-interview-brentfor
 **From 'architecture of neglect' to 'modern cathedrals': The evolution of British stadiums**\
 `Simon Inglis quite literally wrote the book on British football grounds - now he tells The Athletic how and why they have changed`\
 https://nytimes.com/athletic/5897189/2024/12/27/how-premier-league-stadiums-have-evolved-over-the-past-40-years/
-
-**Manchester United and Amorim are in a storm - who knows when it will pass?**\
-`The Portuguese coach needs time for his ideas to bed in but, in the meantime, United are a team in freefall`\
-https://nytimes.com/athletic/6020854/2024/12/27/manchester-united-ruben-amorim-premier-league/
 
