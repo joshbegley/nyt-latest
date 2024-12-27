@@ -1,3 +1,7 @@
+**How the Chiefs aced their late-season test — 3 games in 11 days — to finish atop the AFC**\
+`Coach Andy Reid held shorter practices and slowed down the tempo during the compressed window to help the Chiefs keep winning.`\
+https://nytimes.com/athletic/6020609/2024/12/27/chiefs-3-games-11-days-test-afc-top-seed/
+
 **Marco Rossi keeps proving himself to Wild brass: 'I’m not looking to trade him'**\
 `In his second full season in the NHL, Rossi has made himself invaluable as a top-line center for the Wild.`\
 https://nytimes.com/athletic/6020896/2024/12/27/wild-marco-rossi-bill-guerin/

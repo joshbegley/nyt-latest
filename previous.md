@@ -1,3 +1,7 @@
+**How the Chiefs aced their late-season test — 3 games in 11 days — to finish atop the AFC**\
+`Coach Andy Reid held shorter practices and slowed down the tempo during the compressed window to help the Chiefs keep winning.`\
+https://nytimes.com/athletic/6020609/2024/12/27/chiefs-3-games-11-days-test-afc-top-seed/
+
 **Marco Rossi keeps proving himself to Wild brass: 'I’m not looking to trade him'**\
 `In his second full season in the NHL, Rossi has made himself invaluable as a top-line center for the Wild.`\
 https://nytimes.com/athletic/6020896/2024/12/27/wild-marco-rossi-bill-guerin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020454/2024/12/27/jayden-daniels-commanders-leader
 **MLB's weirdest injuries of 2024: Beware of water bottles, heating pads and walls**\
 `Will Rays reliever Pete Fairbanks, last year's Injury of the Year grand prize winner, win back-to-back titles? He faces tough competition. `\
 https://nytimes.com/athletic/6020952/2024/12/27/mlb-weird-injuries-2024/
-
-**Bills notebook: Is Sunday Josh Allen's final MVP statement? How much does seeding matter?**\
-`Considering Lamar Jackson's performance on Christmas Day, Josh Allen and the Bills might want to make a statement Sunday in the MVP race.`\
-https://nytimes.com/athletic/6020580/2024/12/27/bills-josh-allen-mvp-statement-playoff-seeding/
 
