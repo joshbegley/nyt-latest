@@ -1,3 +1,7 @@
+**Fire Breaks Out at Bryant Park Holiday Market**\
+`There were no injuries at Bryant Park in Manhattan on Friday, but some holiday booths burned.`\
+https://nytimes.com/video/nyregion/100000009898406/fire-bryant-park-holiday-market.html
+
 **Takeaways from Netflix's NFL Christmas Day ratings door-buster**\
 `Netflix's NFL debut produced a record U.S. streaming audience for an NFL game.`\
 https://nytimes.com/athletic/6021736/2024/12/27/netflix-nfl-christmas-ratings-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000628/2024/12/27/matheus-cunha-suspension-wolves/
 **The Bounce: Are the 76ers finally back? Plus, Pat Riley has had enough of the rumors**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6021594/2024/12/27/76ers-joel-embiid-heat-pat-riley-jimmy-butler-nba-the-bounce/
-
-**Italian Journalist Is Detained While Reporting in Iran**\
-`Cecilia Sala, 29, was arrested on Dec. 19, but news of her detention only became public on Friday. The reason for the arrest of Ms. Sala, a well-known reporter, has not been made public.`\
-https://nytimes.com/2024/12/27/world/middleeast/cecilia-sala-italian-journalist-arrested-iran.html
 

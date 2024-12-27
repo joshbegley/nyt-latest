@@ -1,3 +1,7 @@
+**Fire Breaks Out at Bryant Park Holiday Market**\
+`There were no injuries at Bryant Park in Manhattan on Friday, but some holiday booths burned.`\
+https://nytimes.com/video/nyregion/100000009898406/fire-bryant-park-holiday-market.html
+
 **Takeaways from Netflix's NFL Christmas Day ratings door-buster**\
 `Netflix's NFL debut produced a record U.S. streaming audience for an NFL game.`\
 https://nytimes.com/athletic/6021736/2024/12/27/netflix-nfl-christmas-ratings-takeaways/
