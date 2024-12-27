@@ -1,3 +1,7 @@
+**South Korea’s Acting President Faces Impeachment Vote**\
+`As the president awaits an impeachment trial, the country’s interim leader may face an ousting of his own. The currency has plunged as the crisis has deepened.`\
+https://nytimes.com/2024/12/26/world/asia/south-korea-impeach-president-han.html
+
 **Seattle's defense steps up in 6-3 win vs. Bears: Takeaways**\
 `Seahawks need help but still have a chance to make the playoffs`\
 https://nytimes.com/athletic/6021094/2024/12/26/seahawks-bears-score-result-takeaways-tnf/
