@@ -1,3 +1,7 @@
+**In a fitting end to the home season, Bears go out with a thud at Soldier Field: Greenberg**\
+`This season wasn't planned. It was an accidental disaster. We're used to those.`\
+https://nytimes.com/athletic/6021249/2024/12/27/greenberg-fitting-end-bears-home-season/
+
 **How Would You Do if You Went to Space for Eight Days and Were Gone Six Months?**\
 `Astronauts are made of different stuff from you and me.`\
 https://nytimes.com/2024/12/27/opinion/nasa-stranded-space.html
