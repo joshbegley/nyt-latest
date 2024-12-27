@@ -1,3 +1,7 @@
+**Duran to serve three-game ban after FA rejects red card appeal**\
+`Jhon Duran will serve a three-game ban after Aston Villa had their appeal against his red card rejected by the Football Association (FA).`\
+https://nytimes.com/athletic/6022228/2024/12/27/jhon-duran-ban-appeal-red-card/
+
 **Penn State defense focused on Ashton Jeanty in Fiesta Bowl preparations**\
 `The one person likely determining whether the Nittany Lions’ Playoff run continues is Jeanty.`\
 https://nytimes.com/athletic/6022219/2024/12/27/ashton-jeanty-penn-state-cfp-fiesta-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/technology/trump-musk-immigration-h1b-visa.html
 **Three reasons Ohio State is better prepared to defend Oregon in the Rose Bowl**\
 `Ohio State's defense took a lot of heat for its lapses in an October loss at Oregon. What's different for the Buckeyes in the Playoff?`\
 https://nytimes.com/athletic/6022105/2024/12/27/ohio-state-defense-oregon-rose-bowl/
-
-**Why the New Fight Inside MAGA Matters So Much**\
-`It’s what happens when a free-market party confronts reactionary protectionism.`\
-https://nytimes.com/2024/12/27/opinion/trump-musk-ramaswamy-immigration.html
 
