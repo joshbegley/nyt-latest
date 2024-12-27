@@ -1,40 +1,40 @@
-**Welbeck 'very doubtful' for next two Brighton games - Hurzeler**\
-`Brighton &amp; Hove Albion&#8217;s top goal scorer Danny Welbeck is expected to miss the rest of 2024 with an ankle injury.`\
-https://nytimes.com/athletic/6015451/2024/12/27/danny-welbeck-injury-update/
+**Panthers midseason predictions revisited: Spot on with Chuba Hubbard, top-5 pick TBD**\
+`Seven weeks ago, Joe Person called Hubbard's contract and yardage. How did he fare on the rest of his predictions?`\
+https://nytimes.com/athletic/6020794/2024/12/27/panthers-midseason-predictions-revisiting-chuba-hubbard-bryce-young/
 
-**Months After Hamptons Tragedy, Widow Contends With a Tangle of Debt**\
-`On Instagram, Candice Miller showed the world glittering parties and vacations. When her husband, Brandon Miller, died, he had $33.6 million in debt and just $8,000 in the bank.`\
-https://nytimes.com/2024/12/27/nyregion/candice-miller-mama-and-tata-widow-debt.html
+**Lions-49ers doesn't have the same spark, but Detroit is 'bringing everything' Monday**\
+`This isn't the same 49ers team the Lions lined up against 11 months ago, but Detroit is still treating it like a marquee game.`\
+https://nytimes.com/athletic/6020847/2024/12/27/lions-49ers-game-dan-campbell/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/27/crosswords/spelling-bee-forum.html
+**7 New Shows Our Theater Critics Are Talking About**\
+`A film adaptation onstage, a Broadway classic, comedy galore: These are the productions worth knowing about this holiday season.`\
+https://nytimes.com/2024/12/27/theater/new-shows-theater-broadway.html
 
-**What Leicester need to go right in their fight for survival**\
-`The four areas that need to turn in Leicester's favour as they reach the season's mid-point - Ruud van Nistelrooy has a job on`\
-https://nytimes.com/athletic/6021062/2024/12/27/leicester-survival-relegation-battle/
+**Which Parts of These Images Are A.I.-Generated?**\
+`This quiz shows genuine images that were edited with A.I. tools. Your job: Find what’s fake.`\
+https://nytimes.com/interactive/2024/12/27/technology/artificial-intelligence-generative-fill-photoshop-openai.html
 
-**Piroe is back playing in his best position - and Leeds are reaping the rewards**\
-`The Dutch striker is back playing in his natural position and Daniel Farke knows he will keep delivering in Leeds' quest for promotion`\
-https://nytimes.com/athletic/6010902/2024/12/27/leeds-united-joel-piroe-striker/
+**3 Resolutions for Eating and Drinking in 2025**\
+`Reach for a new recipe, to start.`\
+https://nytimes.com/2024/12/27/well/eat/eating-drinking-resolutions-2025.html
 
-**Gakpo's settled role and why he's proving so important to Slot**\
-`Having played across the front line in his first season and a half, the Netherlands forward is thriving in a settled role on the left.`\
-https://nytimes.com/athletic/6020980/2024/12/27/cody-gakpo-liverpool-arne-slot-left/
+**7 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2024/12/27/movies/new-movies-this-week-critics.html
 
-**In a fitting end to the home season, Bears go out with a thud at Soldier Field: Greenberg**\
-`This season wasn't planned. It was an accidental disaster. We're used to those.`\
-https://nytimes.com/athletic/6021249/2024/12/27/greenberg-fitting-end-bears-home-season/
+**The Hottest Trend in Publishing: Books You Can Judge by Their Cover**\
+`Elaborately designed books with patterned edges and other effects started as a trend in romance and fantasy, and have now spread throughout the publishing industry.`\
+https://nytimes.com/2024/12/27/books/deluxe-book-editions-decorated-edges.html
 
-**How Would You Do if You Went to Space for Eight Days and Were Gone Six Months?**\
-`Astronauts are made of different stuff from you and me.`\
-https://nytimes.com/2024/12/27/opinion/nasa-stranded-space.html
+**Like ‘Squid Game’? Stream These 9 New Korean Dramas Next**\
+`As more and more K-dramas debut for U.S. viewers, it is becoming harder to choose which to watch. Here are a few favorites that premiered in 2024.`\
+https://nytimes.com/2024/12/27/arts/television/best-korean-dramas-kdrama-streaming.html
 
-**How a daunting run and return of the old guard helped fortify Everton**\
-`Everton are still a team to be endured rather than enjoyed - but Sean Dyche's tactical changes are paying off amid tough fixtures`\
-https://nytimes.com/athletic/6020250/2024/12/27/everton-manchester-city-seamus-coleman-dyche/
+**Five Action Movies to Stream Now**\
+`This month’s picks include a Malaysian war movie, an underwater plane rescue and a single-location western with gutsy gunfights.`\
+https://nytimes.com/2024/12/27/movies/five-action-movies-to-stream-now.html
 
-**Matheus Cunha: Wolves' man possessed**\
-`Wolves' latest captain has responded to the extra responsibility - a ban is coming but before that he is intent on lifting Molineux`\
-https://nytimes.com/athletic/6020604/2024/12/27/wolves-matheus-cunha-vitor-pereira/
+**Three Great Documentaries to Stream**\
+`Picks this month include a Bob Dylan sleeper, a harrowing portrait of Syria, and Will Ferrell and Harper Steele’s road trip.`\
+https://nytimes.com/2024/12/27/movies/documentaries-streaming.html
 
