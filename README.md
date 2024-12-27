@@ -1,3 +1,11 @@
+**The Vivid Thread of Memories by the Yard**\
+`Suchitra Mattai uses vintage saris and vivid found materials to weave exquisite tapestries that challenge fixed histories about art and migration.`\
+https://nytimes.com/2024/12/27/arts/design/mattai-textiles-museum-women-washington.html
+
+**Cleanse Your Palate With This Smashed Cucumber Salad**\
+`Crunchy, cool and refreshing, it’s the perfect foil for the season’s rich mains and sugary sweets.`\
+https://nytimes.com/2024/12/27/dining/cleanse-your-palate-with-this-smashed-cucumber-salad.html
+
 **A Month on, a Tenuous Cease-fire Holds in Lebanon**\
 `Israel and Hezbollah have exchanged strikes and accusations of breaches. Implementation of the deal has been slow. But the truce has brought some calm to a tumultuous region.`\
 https://nytimes.com/2024/12/27/world/middleeast/israel-lebanon-ceasefire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/business/media/npr-pbs-funding-trump-musk.html
 **Can the Vikings inch closer to the No. 1 seed by beating the rival Packers?**\
 `The Vikings host the Packers on Sunday in a game with enormous playoff implications. Our experts break down the matchup.`\
 https://nytimes.com/athletic/6020810/2024/12/27/vikings-packers-preview-predictions-no-1-seed/
-
-**Gleyber Torres, Tigers agree to 1-year, $15 million deal**\
-`Torres, 28, is a free agent coming off a strange 2024 season.`\
-https://nytimes.com/athletic/5977301/2024/12/27/gleyber-torres-tigers-free-agency-contract/
-
-**'Ain't no excuses' for Bucks' error-filled loss to Nets**\
-`Milwaukee was again without Giannis Antetokounmpo and Damian Lillard, but the Bucks know this was a game they should have won.`\
-https://nytimes.com/athletic/6021574/2024/12/27/bucks-nets-score-recap-nba/
 
