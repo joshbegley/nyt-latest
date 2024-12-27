@@ -1,3 +1,11 @@
+**Three reasons Ohio State is better prepared to defend Oregon in the Rose Bowl**\
+`Ohio State's defense took a lot of heat for its lapses in an October loss at Oregon. What's different for the Buckeyes in the Playoff?`\
+https://nytimes.com/athletic/6022105/2024/12/27/ohio-state-defense-oregon-rose-bowl/
+
+**The Cultural Contradictions of Trumpism**\
+`It’s what happens when a free-market party confronts reactionary protectionism.`\
+https://nytimes.com/2024/12/27/opinion/trump-musk-ramaswamy-immigration.html
+
 **Colts QB Richardson misses practice, but not ruled out for Sunday**\
 `“We’ll see how the next 48 hours go,” coach Shane Steichen said.`\
 https://nytimes.com/athletic/6022087/2024/12/27/anthony-richardson-injury-update-colts-qb/
