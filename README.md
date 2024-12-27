@@ -1,3 +1,15 @@
+**Crystal Palace and the case for the defence - 'boring' is what's needed**\
+`Marc Guehi may have found the match boring, but a clean sheet was very welcome`\
+https://nytimes.com/athletic/6015706/2024/12/27/crystal-palace-and-the-case-for-the-defence/
+
+**Goals. Another win. And Jason Tindall winding people up. Newcastle are back.**\
+`Consecutive victories have transformed the end of 2024 for Eddie Howe's team. Europe is in the conversation again`\
+https://nytimes.com/athletic/6020154/2024/12/27/newcastle-are-back/
+
+**Brentford coach Kevin O'Connor: 'Thomas Frank thinks differently about football to anybody else'**\
+`A Brentford stalwart as a player, O'Connor is a long-serving assistant coach who has evolved as his club have risen through the divisions`\
+https://nytimes.com/athletic/5965500/2024/12/27/kevin-oconnor-interview-brentford-thomas-frank/
+
 **From 'architecture of neglect' to 'modern cathedrals': The evolution of British stadiums**\
 `Simon Inglis quite literally wrote the book on British football grounds - now he tells The Athletic how and why they have changed`\
 https://nytimes.com/athletic/5897189/2024/12/27/how-premier-league-stadiums-have-evolved-over-the-past-40-years/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6019883/2024/12/27/tottenham-hotspur-postecoglou-tr
 **Kovac: 'Player success is connected with the team - everything is connected'**\
 `Niko Kovac spoke to The Athletic about his upbringing and his time as a player and a coach`\
 https://nytimes.com/athletic/5992282/2024/12/27/niko-kovac-bayern-munich-eintrach-frankfurt-interview/
-
-**Fabian Hurzeler and the village team that started his journey to the Premier League**\
-`In 2016, the German, then 23, became player-manager of FC Pipinsried, a team from a place in Bavaria with fewer than 800 residents`\
-https://nytimes.com/athletic/5971580/2024/12/27/fabian-hurzeler-brighton-pipiensried/
-
-**Friday Briefing**\
-`A mysterious vessel in Finnish waters.`\
-https://nytimes.com/2024/12/27/briefing/finland-russia-israel-houthis.html
-
-**It All Started With a Brief Touch on the Shoulder**\
-`Justin Baiardi and Kiera Rommel began chatting while he was working as a nightclub bouncer. “It was so magnetic,” she said of their interaction.`\
-https://nytimes.com/2024/12/27/style/justin-baiardi-kiera-rommel-wedding.html
 
