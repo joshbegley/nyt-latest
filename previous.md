@@ -1,3 +1,11 @@
+**Trump’s Designs on the Panama Canal and Greenland**\
+`Readers are critical of the president-elect’s calls for U.S. control. Also: Dispirited after the election; billionaires and politics; the joy of reading novellas.`\
+https://nytimes.com/2024/12/27/opinion/letters/trump-panama-canal-greenland.html
+
+**Washington expected to hire ex-Purdue coach Ryan Walters as new DC: Source**\
+`With Steve Belichick joining his father at UNC, look for Washington to bring in Ryan Walters as its new defensive coordinator.`\
+https://nytimes.com/athletic/6021933/2024/12/27/ryan-walters-washington-defensive-coordinator-steve-belichick/
+
 **Fire Breaks Out at Bryant Park Holiday Market**\
 `There were no injuries at Bryant Park in Manhattan on Friday, but some holiday booths burned.`\
 https://nytimes.com/video/nyregion/100000009898406/fire-bryant-park-holiday-market.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/us/politics/biden-syria-afghanistan-taliban.html
 **The Eddie Howe tactical tweak that has revitalised Sandro Tonali and Newcastle's form**\
 `Newcastle’s manager has tweaked the structure of his midfield this season - and it is starting to pay dividends  `\
 https://nytimes.com/athletic/6021415/2024/12/27/newcastle-tonali-howe-no-6-tweak/
-
-**Cunha banned for five matches after altercation with Ipswich staff member**\
-`Wolverhampton Wanderers striker Matheus Cunha has been banned for five matches after an altercation with an Ipswich Town security guard.`\
-https://nytimes.com/athletic/6000628/2024/12/27/matheus-cunha-suspension-wolves/
-
-**The Bounce: Are the 76ers finally back? Plus, Pat Riley has had enough of the rumors**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6021594/2024/12/27/76ers-joel-embiid-heat-pat-riley-jimmy-butler-nba-the-bounce/
 

@@ -1,3 +1,11 @@
+**Trump’s Designs on the Panama Canal and Greenland**\
+`Readers are critical of the president-elect’s calls for U.S. control. Also: Dispirited after the election; billionaires and politics; the joy of reading novellas.`\
+https://nytimes.com/2024/12/27/opinion/letters/trump-panama-canal-greenland.html
+
+**Washington expected to hire ex-Purdue coach Ryan Walters as new DC: Source**\
+`With Steve Belichick joining his father at UNC, look for Washington to bring in Ryan Walters as its new defensive coordinator.`\
+https://nytimes.com/athletic/6021933/2024/12/27/ryan-walters-washington-defensive-coordinator-steve-belichick/
+
 **Fire Breaks Out at Bryant Park Holiday Market**\
 `There were no injuries at Bryant Park in Manhattan on Friday, but some holiday booths burned.`\
 https://nytimes.com/video/nyregion/100000009898406/fire-bryant-park-holiday-market.html
