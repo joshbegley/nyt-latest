@@ -1,3 +1,7 @@
+**In Trump’s Mind, Greenland Is Just Real Estate**\
+`But that doesn’t mean he can buy it.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/greenland-trump-real-estate
+
 **Delaware State hiring former Eagles WR DeSean Jackson as head coach**\
 `The move comes less than a week after Norfolk State, another MEAC school, hired former Pro Bowl QB Michael Vick as its coach.`\
 https://nytimes.com/athletic/6021622/2024/12/27/desean-jackson-delaware-state-football-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/opinion/letters/trump-panama-canal-greenland.html
 **Washington expected to hire ex-Purdue coach Ryan Walters as new DC: Source**\
 `With Steve Belichick joining his father at UNC, look for Washington to bring in Ryan Walters as its new defensive coordinator.`\
 https://nytimes.com/athletic/6021933/2024/12/27/ryan-walters-washington-defensive-coordinator-steve-belichick/
-
-**Fire Breaks Out at Bryant Park Holiday Market**\
-`There were no injuries at Bryant Park in Manhattan on Friday, but some holiday booths burned.`\
-https://nytimes.com/video/nyregion/100000009898406/fire-bryant-park-holiday-market.html
 
