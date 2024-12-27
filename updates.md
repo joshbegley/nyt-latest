@@ -1,3 +1,7 @@
+**Duran to serve three-game ban after FA rejects red card appeal**\
+`Jhon Duran will serve a three-game ban after Aston Villa had their appeal against his red card rejected by the Football Association (FA).`\
+https://nytimes.com/athletic/6022228/2024/12/27/jhon-duran-ban-appeal-red-card/
+
 **Penn State defense focused on Ashton Jeanty in Fiesta Bowl preparations**\
 `The one person likely determining whether the Nittany Lions’ Playoff run continues is Jeanty.`\
 https://nytimes.com/athletic/6022219/2024/12/27/ashton-jeanty-penn-state-cfp-fiesta-bowl/
