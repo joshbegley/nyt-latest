@@ -1,3 +1,7 @@
+**Scheffler to have surgery to remove glass fragments from hand**\
+`Scheffler was preparing Christmas dinner when a broken glass punctured his right hand, according to his manager.`\
+https://nytimes.com/athletic/6022267/2024/12/27/scottie-scheffler-broken-glass-hand-surgery/
+
 **Duran to serve three-game ban after FA rejects red card appeal**\
 `Jhon Duran will serve a three-game ban after Aston Villa had their appeal against his red card rejected by the Football Association (FA).`\
 https://nytimes.com/athletic/6022228/2024/12/27/jhon-duran-ban-appeal-red-card/
