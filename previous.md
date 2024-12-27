@@ -1,3 +1,7 @@
+**AFC North Whiparound: Biggest Christmas Day surprise, making a case for individual awards**\
+`Plus, our writers discuss what stood out most about this week's episode of "Hard Knocks" and make game predictions. `\
+https://nytimes.com/athletic/6020542/2024/12/27/afc-north-bengals-steelers-ravens-browns/
+
 **South Korea’s Political Instability Deepens With New Impeachment**\
 `Lawmakers from South Korea’s governing party protested on Friday against a vote to impeach the country’s acting president, Han Duck-soo. The motion, which passed 192-0, came less than two weeks after President Yoon Suk Yeol was also ousted by the opposition in the National Assembly.`\
 https://nytimes.com/video/world/asia/100000009898161/south-koreas-political-instability-deepens-with-new-impeachment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/podcasts/the-daily/2024-biggest-music-stories.htm
 **Wordle Review No. 1,288**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Dec. 28, 2024.`\
 https://nytimes.com/2024/12/27/crosswords/wordle-review-1288.html
-
-**Osamu Suzuki, Who Led Japanese Carmaker for Over 4 Decades, Dies at 94**\
-`He built Suzuki Motor from a small company into a global powerhouse, entering the Indian market in the 1980s in one of his early successes.`\
-https://nytimes.com/2024/12/27/business/osamu-suzuki-dies-94.html
 
