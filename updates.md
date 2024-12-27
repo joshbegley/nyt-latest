@@ -1,3 +1,11 @@
+**Filling in NHL history's awards gaps with once-a-decade bonus trophies I made up**\
+`Let's reward some excellent performances with bonus trophies to make up for the real ones these players probably should have won.`\
+https://nytimes.com/athletic/6020523/2024/12/27/nhl-history-bonus-trophies-decades/
+
+**Dončić out at least one month after straining calf in Christmas Day game**\
+`Dončić missed two games last week with a left heel contusion and time in November with a knee contusion and right wrist sprain.`\
+https://nytimes.com/athletic/6021614/2024/12/27/luka-injury-calf-out-a-month/
+
 **First-Time Home Buyer Shares His Household Hacks**\
 `With more than a million people following along on Instagram, Kyshawn Lane lets you know just when to vacuum your refrigerator coils.`\
 https://nytimes.com/2024/12/27/realestate/kyshawn-lane-household-hacks.html
