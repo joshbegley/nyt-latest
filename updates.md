@@ -1,3 +1,7 @@
+**Piroe is back playing in his best position - and Leeds are reaping the rewards**\
+`The Dutch striker is back playing in his natural position and Daniel Farke knows he will keep delivering in Leeds' quest for promotion`\
+https://nytimes.com/athletic/6010902/2024/12/27/leeds-united-joel-piroe-striker/
+
 **Gakpo's settled role and why he's proving so important to Slot**\
 `Having played across the front line in his first season and a half, the Netherlands forward is thriving in a settled role on the left.`\
 https://nytimes.com/athletic/6020980/2024/12/27/cody-gakpo-liverpool-arne-slot-left/

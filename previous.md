@@ -1,3 +1,7 @@
+**Piroe is back playing in his best position - and Leeds are reaping the rewards**\
+`The Dutch striker is back playing in his natural position and Daniel Farke knows he will keep delivering in Leeds' quest for promotion`\
+https://nytimes.com/athletic/6010902/2024/12/27/leeds-united-joel-piroe-striker/
+
 **Gakpo's settled role and why he's proving so important to Slot**\
 `Having played across the front line in his first season and a half, the Netherlands forward is thriving in a settled role on the left.`\
 https://nytimes.com/athletic/6020980/2024/12/27/cody-gakpo-liverpool-arne-slot-left/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019355/2024/12/27/aston-villa-newcastle-united-awa
 **Crystal Palace and the case for the defence - 'boring' is what's needed**\
 `Marc Guehi may have found the match boring, but a clean sheet was very welcome`\
 https://nytimes.com/athletic/6015706/2024/12/27/crystal-palace-and-the-case-for-the-defence/
-
-**Goals. Another win. And Jason Tindall winding people up. Newcastle are back.**\
-`Consecutive victories have transformed the end of 2024 for Eddie Howe's team. Europe is in the conversation again`\
-https://nytimes.com/athletic/6020154/2024/12/27/newcastle-are-back/
 
