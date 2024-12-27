@@ -1,3 +1,15 @@
+**Kirill Kaprizov out vs. Stars: What we know about his timeline, and how the Wild will adjust**\
+`Kaprizov has been one of the league's top players this season — and its fourth-leading scorer, with 23 goals and 50 points.`\
+https://nytimes.com/athletic/6022163/2024/12/27/kirill-kaprizov-injury-wild-stars/
+
+**Enforcement of Anti-Money-Laundering Law Blocked After Court Reversal**\
+`Businesses will not have to reveal their owners after an appeals court reversed a move that would have forced them to disclose the information by Jan. 1.`\
+https://nytimes.com/2024/12/27/us/court-corporate-transparency-act.html
+
+**North Korea Is Experiencing Mass Casualties in Russia, White House Says**\
+`The North Korean losses amount to almost 10 percent of the country’s deployment to Russia, the Biden administration said.`\
+https://nytimes.com/2024/12/27/us/politics/north-korea-russia-war-casualties.html
+
 **A Blog, an Anonymous Writer and Twin Brothers Accused of Sexual Assault**\
 `Years before they were charged with sex crimes, Oren and Alon Alexander took legal action to find a mystery blogger who claimed they had committed sexual assault as teenagers.`\
 https://nytimes.com/2024/12/27/realestate/alexander-brothers-real-estate-blog-post-sexual-assault.html
