@@ -14,7 +14,7 @@ https://nytimes.com/2024/12/27/technology/trump-musk-immigration-h1b-visa.html
 `Ohio State's defense took a lot of heat for its lapses in an October loss at Oregon. What's different for the Buckeyes in the Playoff?`\
 https://nytimes.com/athletic/6022105/2024/12/27/ohio-state-defense-oregon-rose-bowl/
 
-**The Cultural Contradictions of Trumpism**\
+**Why the New Fight Inside MAGA Matters So Much**\
 `It’s what happens when a free-market party confronts reactionary protectionism.`\
 https://nytimes.com/2024/12/27/opinion/trump-musk-ramaswamy-immigration.html
 
