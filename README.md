@@ -1,3 +1,11 @@
+**A Strange Banging Sound, Chaos and Prayers Before a Plane Crashes**\
+`Flight attendants and a passengers described the moments before an Azerbaijan Airlines flight went down in Kazakhstan, killing dozens.`\
+https://nytimes.com/2024/12/27/world/europe/azerbaijan-airlines-crash-kazakhstan-survivors.html
+
+**Too Old to Ace This Year-End Quiz? Ask a Kid for Help.**\
+`A 2024 trivia challenge you’ll need Gen Alpha’s help to beat`\
+https://nytimes.com/interactive/2024/12/27/magazine/kids-quiz-2024-trivia.html
+
 **Trump Backers Battle Online Over Skilled Immigrants**\
 `A fierce dispute erupted in the president-elect’s camp between immigration hard-liners and tech industry leaders including Elon Musk.`\
 https://nytimes.com/2024/12/27/technology/trump-musk-immigration-h1b-visa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/us/politics/north-korea-russia-war-casualties.htm
 **A Blog, an Anonymous Writer and Twin Brothers Accused of Sexual Assault**\
 `Years before they were charged with sex crimes, Oren and Alon Alexander took legal action to find a mystery blogger who claimed they had committed sexual assault as teenagers.`\
 https://nytimes.com/2024/12/27/realestate/alexander-brothers-real-estate-blog-post-sexual-assault.html
-
-**Athletics president Dave Kaval to step down after 8 tumultuous years**\
-`Kaval, the public face of the team's relocation process, will be replaced by Sandy Dean on an interim basis. `\
-https://nytimes.com/athletic/6022045/2024/12/27/athletics-president-dave-kaval-resigns/
-
-**After Days of Silence, NASA’s Parker Solar Probe Phones Home**\
-`The probe sent a signal to Earth indicating that it had survived the closest solar encounter ever attempted by a spacecraft.`\
-https://nytimes.com/2024/12/27/science/space/parker-solar-probe-nasa-sun-signal.html
 
