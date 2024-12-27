@@ -1,3 +1,11 @@
+**The Cultural Contradictions of Trumpism**\
+`It’s what happens when a free-market party confronts reactionary protectionism.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/trump-musk-ramaswamy-immigration
+
+**Kaprizov out vs. Stars: What we know about timeline, how Wild will adjust**\
+`Kaprizov has been one of the league's top players this season — and its fourth-leading scorer, with 23 goals and 50 points.`\
+https://nytimes.com/athletic/6022163/2024/12/27/kirill-kaprizov-injury-wild-stars/
+
 **Investigators Using Video Surveillance to Identify Subway Burn Victim**\
 `The Brooklyn district attorney said the police were trying to retrace the woman’s steps to find a clear picture of her face. The man accused of killing her has been indicted on a first-degree murder charge.`\
 https://nytimes.com/2024/12/27/nyregion/subway-fire-death.html
