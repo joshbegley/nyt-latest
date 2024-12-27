@@ -1,3 +1,7 @@
+**Kings fire Mike Brown after 13-18 start to season: Source**\
+`Brown helped the Kings end a 16-year playoff drought in his first season, but Sacramento currently sits 12th in the West.`\
+https://nytimes.com/athletic/6022342/2024/12/27/mike-brown-kings-fired-nba/
+
 **It's not just about Gunner Stockton: The other Georgia X-factor in the CFP **\
 `Georgia's defense has been inconsistent this season, so it will be important for the unit to bring its best against the Irish.`\
 https://nytimes.com/athletic/6022226/2024/12/27/georgia-notre-dame-football-cfp-sugar-bowl/

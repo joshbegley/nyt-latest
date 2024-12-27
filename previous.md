@@ -1,3 +1,7 @@
+**Kings fire Mike Brown after 13-18 start to season: Source**\
+`Brown helped the Kings end a 16-year playoff drought in his first season, but Sacramento currently sits 12th in the West.`\
+https://nytimes.com/athletic/6022342/2024/12/27/mike-brown-kings-fired-nba/
+
 **It's not just about Gunner Stockton: The other Georgia X-factor in the CFP **\
 `Georgia's defense has been inconsistent this season, so it will be important for the unit to bring its best against the Irish.`\
 https://nytimes.com/athletic/6022226/2024/12/27/georgia-notre-dame-football-cfp-sugar-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6022220/2024/12/27/nfl-midseason-best-worst-scoop-c
 **A Strange Banging Sound, Chaos and Prayers Before a Plane Crashes**\
 `Flight attendants and a passenger described the moments before an Azerbaijan Airlines flight went down in Kazakhstan, killing dozens.`\
 https://nytimes.com/2024/12/27/world/europe/azerbaijan-airlines-crash-kazakhstan-survivors.html
-
-**Too Old to Ace This Year-End Quiz? Ask a Kid for Help.**\
-`A 2024 trivia challenge you’ll need Gen Alpha’s help to beat`\
-https://nytimes.com/interactive/2024/12/27/magazine/kids-quiz-2024-trivia.html
 
