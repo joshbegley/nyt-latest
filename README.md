@@ -1,3 +1,7 @@
+**The Evening: Record Homelessness in the U.S.**\
+`Plus, how to get fitter in 2025.`\
+https://nytimes.com/2024/12/27/briefing/homelessness-epa-forever-chemicals-south-korea.html
+
 **Kings fire Mike Brown after 13-18 start to season: Source**\
 `Brown helped the Kings end a 16-year playoff drought in his first season, but Sacramento currently sits 12th in the West.`\
 https://nytimes.com/athletic/6022342/2024/12/27/mike-brown-kings-fired-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/health/bird-flu-mutations-louisiana.html
 **Scoop City: NFL's best/worst since midseason**\
 `A quick look at who's hot and cold since midseason, plus what Dianna's hearing on Pete Carroll.`\
 https://nytimes.com/athletic/6022220/2024/12/27/nfl-midseason-best-worst-scoop-city/
-
-**A Strange Banging Sound, Chaos and Prayers Before a Plane Crashes**\
-`Flight attendants and a passenger described the moments before an Azerbaijan Airlines flight went down in Kazakhstan, killing dozens.`\
-https://nytimes.com/2024/12/27/world/europe/azerbaijan-airlines-crash-kazakhstan-survivors.html
 
