@@ -1,3 +1,15 @@
+**Ronaldo backs Amorim to guide Man Utd through 'storm'**\
+`Cristiano Ronaldo has backed Manchester United head coach Ruben Amorim to arrest the club&#8217;s slump after a difficult start to his compatriot&#8217;s Old Trafford reign.`\
+https://nytimes.com/athletic/6022507/2024/12/27/cristiano-ronaldo-ruben-amorim/
+
+**Greg Gumbel, a Familiar Voice to Football and Basketball Fans, Is Dead at 78**\
+`The sportscaster combined play-by-play excitement with a knack for precision in his decades as a sports broadcaster calling N.F.L. and N.C.A.A. games for CBS.`\
+https://nytimes.com/2024/12/27/business/media/greg-gumbel-dead.html
+
+**Teoscar Hernández agrees to re-sign with Dodgers on 3-year deal**\
+`In 2024, Hernández slugged a career-best 33 home runs, won a Silver Slugger and won the World Series.`\
+https://nytimes.com/athletic/5932721/2024/12/27/teoscar-hernandez-dodgers-free-agent-deal/
+
 **Greg Gumbel, a Familiar Voice to Football and Basketball Fans, Is Dead at 78**\
 `The sportscaster combined play-by-play excitement with a knack for precision in his decades as a sports broadcaster calling N.F.L. and N.C.A.A. games for CBS.`\
 https://nytimes.com/2024/12/27/obituaries/greg-gumbel-dead.html
