@@ -1,3 +1,11 @@
+**Gleyber Torres, Tigers agree to 1-year, $15 million deal**\
+`Torres, 28, is a free agent coming off a strange 2024 season.`\
+https://nytimes.com/athletic/5977301/2024/12/27/gleyber-torres-tigers-free-agency-contract/
+
+**'Ain't no excuses' for Bucks' error-filled loss to Nets**\
+`Milwaukee was again without Giannis Antetokounmpo and Damian Lillard, but the Bucks know this was a game they should have won.`\
+https://nytimes.com/athletic/6021574/2024/12/27/bucks-nets-score-recap-nba/
+
 **Tesla Investors Are Still Bullish. Can Elon Musk Deliver?**\
 `Sales of the company’s cars are flagging, but investors are focusing on the potential of autonomous driving and Mr. Musk’s ties to President-elect Donald J. Trump.`\
 https://nytimes.com/2024/12/27/business/tesla-sales-stock-elon-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6021744/2024/12/27/manchester-united-ruben-amorim-d
 **Slot: Liverpool managing Jota's fitness after injury lay-off**\
 `Arne Slot says Liverpool will continue to tread carefully with Diogo Jota following his return to action from a chest injury.`\
 https://nytimes.com/athletic/6021523/2024/12/27/liverpool-diogo-jota-fitness-arne-slot/
-
-**Heat Today: Extended Kel'el Ware minutes could add new dimension to Miami rotation**\
-`The 7-foot rookie has stayed patient — and is showing tantalizing glimpses of his talent. `\
-https://nytimes.com/athletic/6019823/2024/12/27/kelel-ware-heat-bam-adebayo-kevin-love-heat-nba/
-
-**World Juniors Today: McKenna vibes with the music, Sandin-Pellikka reintroduces himself**\
-`Axel Sandin-Pellikka scored a hat trick on Day 1 while Gavin McKenna explains Canada's goal song choice.`\
-https://nytimes.com/athletic/6007062/2024/12/27/world-juniors-today-mckenna-sandin-pellikka/
 
