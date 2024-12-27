@@ -1,3 +1,7 @@
+**It's not just about Gunner Stockton: The other Georgia X-factor in the CFP **\
+`Georgia's defense has been inconsistent this season, so it will be important for the unit to bring its best against the Irish.`\
+https://nytimes.com/athletic/6022226/2024/12/27/georgia-notre-dame-football-cfp-sugar-bowl/
+
 **Can Penn State stop Ashton Jeanty? 'He just doesn’t go down'**\
 `The one person likely determining whether the Nittany Lions’ Playoff run continues is Jeanty.`\
 https://nytimes.com/athletic/6022219/2024/12/27/ashton-jeanty-penn-state-cfp-fiesta-bowl/
