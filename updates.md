@@ -1,3 +1,7 @@
+**The Briefing - Arsenal 1 Ipswich 0: Most six-yard box goals this season, Havertz and Jesus, Rice's role**\
+`Analysis of Arsenal's Premier League game at home to Ipswich Town`\
+https://nytimes.com/athletic/6017815/2024/12/27/arsenal-ipswich-highlights-goals/
+
 **The Briefing: Arsenal 1 Ipswich 0: Most six-yard box goals this season, Havertz and Jesus, Rice's role**\
 `Analysis of Arsenal's Premier League game at home to Ipswich Town`\
 https://nytimes.com/athletic/6017815/2024/12/27/arsenal-ipswich-highlights-goals/
