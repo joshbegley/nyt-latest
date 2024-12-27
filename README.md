@@ -1,3 +1,7 @@
+**Ruth Butler, Who Brought Artists’ Muses to Life, Dies at 93**\
+`After publishing a definitive biography of Rodin, she went on to write about the underappreciated women who modeled for the giants of 19th-century French art.`\
+https://nytimes.com/2024/12/27/arts/ruth-butler-dead.html
+
 **Traveling This Weekend? Where Weather May Complicate Your Plans**\
 `A day-by-day look at the rain and snow expected across the United States, and a peek at the New Year’s Eve forecast.`\
 https://nytimes.com/2024/12/27/weather/travel-forecast-new-years.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/opinion/greenland-trump-real-estate.html
 **Delaware State hiring former Eagles WR DeSean Jackson as head coach**\
 `The move comes less than a week after Norfolk State, another MEAC school, hired former Pro Bowl QB Michael Vick as its coach.`\
 https://nytimes.com/athletic/6021622/2024/12/27/desean-jackson-delaware-state-football-eagles/
-
-**Migrants and End of Covid Restrictions Fuel Jump in U.S. Homelessness**\
-`The number of people experiencing homelessness topped 770,000, an increase of more than 18 percent over last year.`\
-https://nytimes.com/2024/12/27/us/homelessness-hit-record-level-in-2024.html
 
