@@ -1,3 +1,7 @@
+**Greg Gumbel, a Familiar Voice to Football and Basketball Fans, Is Dead at 78**\
+`The sportscaster combined play-by-play excitement with a knack for precision in his decades as a sports broadcaster calling N.F.L. and N.C.A.A. games for CBS.`\
+https://nytimes.com/2024/12/27/obituaries/greg-gumbel-dead.html
+
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
 https://nytimes.com/athletic/5891633/2024/12/27/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6022305/2024/12/27/chargers-activate-jk-dobbins-pat
 **Yellen Warns ‘Extraordinary Measures’ Will Be Needed to Avoid Default**\
 `The Treasury secretary urged Congress to protect the full faith and credit of the United States by raising the debt limit.`\
 https://nytimes.com/2024/12/27/business/economy/yellen-debt-limit-warning-congress.html
-
-**Commanders to be without Lattimore vs. Falcons as hamstring injury lingers**\
-`Lattimore previously missed the initial four games after the Commanders acquired him from the New Orleans Saints at the trade deadline.`\
-https://nytimes.com/athletic/6022295/2024/12/27/commanders-marshon-lattimore-injury-falcons/
 
