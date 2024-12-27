@@ -1,3 +1,7 @@
+**Pete Carroll interested in Bears coaching job: Source**\
+`The Bears, currently last in the NFC North, fired coach Matt Eberflus in November after a string of losses.`\
+https://nytimes.com/athletic/6021064/2024/12/26/pete-carroll-bears-seahawks-coaching-job/
+
 **South Korea’s Acting President Faces Impeachment Vote**\
 `As the nation’s president awaits an impeachment trial over an ill-fated martial law bid, its prime minister and interim leader may face an ousting of his own.`\
 https://nytimes.com/2024/12/26/world/asia/south-korea-impeach-president-han.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009897615/israel-yemen-houthis.
 **The Briefing: Who can stop Liverpool, fragile Haaland and why are Man Utd conceding 'olimpicos'?**\
 `The major Premier League talking points analysed - including Amazon's farewell and Nottingham Forest's fairytale`\
 https://nytimes.com/athletic/6019645/2024/12/26/liverpool-premier-league-manchester-united-olimpico-haaland/
-
-**Reagan Backed Off His Panama Threats. Will Trump?**\
-`He may be hungry for global disorder.`\
-https://nytimes.com/live/2024/12/17/opinion/thepoint/trump-greenland-panama-carter
 

@@ -1,3 +1,7 @@
+**Pete Carroll interested in Bears coaching job: Source**\
+`The Bears, currently last in the NFC North, fired coach Matt Eberflus in November after a string of losses.`\
+https://nytimes.com/athletic/6021064/2024/12/26/pete-carroll-bears-seahawks-coaching-job/
+
 **South Korea’s Acting President Faces Impeachment Vote**\
 `As the nation’s president awaits an impeachment trial over an ill-fated martial law bid, its prime minister and interim leader may face an ousting of his own.`\
 https://nytimes.com/2024/12/26/world/asia/south-korea-impeach-president-han.html
