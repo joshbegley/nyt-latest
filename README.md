@@ -1,3 +1,7 @@
+**Tesla Investors Are Still Bullish. Can Elon Musk Deliver?**\
+`Sales of the company’s cars are flagging, but investors are focusing on the potential of autonomous driving and Mr. Musk’s ties to President-elect Donald J. Trump.`\
+https://nytimes.com/2024/12/27/business/tesla-sales-stock-elon-musk.html
+
 **Union Berlin part company with head coach Svensson**\
 `Union Berlin have parted company with head coach Bo Svensson.`\
 https://nytimes.com/athletic/6021701/2024/12/27/bo-svensson-sacked-union-berlin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019823/2024/12/27/kelel-ware-heat-bam-adebayo-kevi
 **World Juniors Today: McKenna vibes with the music, Sandin-Pellikka reintroduces himself**\
 `Axel Sandin-Pellikka scored a hat trick on Day 1 while Gavin McKenna explains Canada's goal song choice.`\
 https://nytimes.com/athletic/6007062/2024/12/27/world-juniors-today-mckenna-sandin-pellikka/
-
-**OpenAI Details Plans for Becoming a For-Profit Company**\
-`OpenAI said it will be restructured as a public benefit corporation, and the nonprofit that controls the organization would receive shares in the new company.`\
-https://nytimes.com/2024/12/27/technology/openai-public-benefit-corporation.html
 
