@@ -1,3 +1,7 @@
+**Scheffler to have surgery to remove glass fragments from hand**\
+`Scheffler was preparing Christmas dinner when a broken glass punctured his right hand, according to his manager.`\
+https://nytimes.com/athletic/6022267/2024/12/27/scottie-scheffler-broken-glass-hand-surgery/
+
 **Duran to serve three-game ban after FA rejects red card appeal**\
 `Jhon Duran will serve a three-game ban after Aston Villa had their appeal against his red card rejected by the Football Association (FA).`\
 https://nytimes.com/athletic/6022228/2024/12/27/jhon-duran-ban-appeal-red-card/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/27/magazine/kids-quiz-2024-trivia.html
 **Trump Backers Battle Online Over Skilled Immigrants**\
 `A fierce dispute erupted in the president-elect’s camp between immigration hard-liners and tech industry leaders including Elon Musk.`\
 https://nytimes.com/2024/12/27/technology/trump-musk-immigration-h1b-visa.html
-
-**Three reasons Ohio State is better prepared to defend Oregon in the Rose Bowl**\
-`Ohio State's defense took a lot of heat for its lapses in an October loss at Oregon. What's different for the Buckeyes in the Playoff?`\
-https://nytimes.com/athletic/6022105/2024/12/27/ohio-state-defense-oregon-rose-bowl/
 
