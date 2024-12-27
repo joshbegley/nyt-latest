@@ -1,3 +1,7 @@
+**Ruth Butler, Who Brought Artists’ Muses to Life, Dies at 93**\
+`After publishing a definitive biography of Rodin, she went on to write about the underappreciated women who modeled for the giants of 19th-century French art.`\
+https://nytimes.com/2024/12/27/arts/ruth-butler-dead.html
+
 **Traveling This Weekend? Where Weather May Complicate Your Plans**\
 `A day-by-day look at the rain and snow expected across the United States, and a peek at the New Year’s Eve forecast.`\
 https://nytimes.com/2024/12/27/weather/travel-forecast-new-years.html
