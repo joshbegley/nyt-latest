@@ -1,3 +1,7 @@
+**Teoscar Hernández agrees to re-sign with Dodgers on 3-year deal: Source**\
+`In 2024, Hernández slugged a career-best 33 home runs, won a Silver Slugger and won the World Series. `\
+https://nytimes.com/athletic/5932721/2024/12/27/teoscar-hernandez-dodgers-free-agent-deal/
+
 **Trump Urges Supreme Court to Pause TikTok Ban**\
 `The president-elect took no position on the app’s First Amendment challenge to the law, which sets a Jan. 19 deadline to sell or close the popular platform.`\
 https://nytimes.com/2024/12/27/us/politics/tiktok-ban-supreme-court-trump.html

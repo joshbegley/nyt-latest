@@ -1,3 +1,7 @@
+**Teoscar Hernández agrees to re-sign with Dodgers on 3-year deal: Source**\
+`In 2024, Hernández slugged a career-best 33 home runs, won a Silver Slugger and won the World Series. `\
+https://nytimes.com/athletic/5932721/2024/12/27/teoscar-hernandez-dodgers-free-agent-deal/
+
 **Trump Urges Supreme Court to Pause TikTok Ban**\
 `The president-elect took no position on the app’s First Amendment challenge to the law, which sets a Jan. 19 deadline to sell or close the popular platform.`\
 https://nytimes.com/2024/12/27/us/politics/tiktok-ban-supreme-court-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017815/2024/12/27/arsenal-ipswich-highlights-goals
 **The Evening: Record Homelessness in the U.S.**\
 `Plus, how to get fitter in 2025.`\
 https://nytimes.com/2024/12/27/briefing/homelessness-epa-forever-chemicals-south-korea.html
-
-**Kings fire Mike Brown after 13-18 start to season: Source**\
-`Brown helped the Kings end a 16-year playoff drought in his first season, but Sacramento currently sits 12th in the West.`\
-https://nytimes.com/athletic/6022342/2024/12/27/mike-brown-kings-fired-nba/
 
