@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 1 Ipswich 0: Most six-yard box goals this season, Havertz and Jesus, Rice's role**\
+`Analysis of Arsenal's Premier League game at home to Ipswich Town`\
+https://nytimes.com/athletic/6017815/2024/12/27/arsenal-ipswich-highlights-goals/
+
 **The Evening: Record Homelessness in the U.S.**\
 `Plus, how to get fitter in 2025.`\
 https://nytimes.com/2024/12/27/briefing/homelessness-epa-forever-chemicals-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/us/morrison-hotel-doors-fire.html
 **Bird Flu Samples From Very Ill Patient Had ‘Concerning’ Mutations**\
 `Tiny genetic alterations could help the bird flu virus enter cells in the upper respiratory tract, the C.D.C. said. But there is no sign that mutations are widespread in nature.`\
 https://nytimes.com/2024/12/27/health/bird-flu-mutations-louisiana.html
-
-**Scoop City: NFL's best/worst since midseason**\
-`A quick look at who's hot and cold since midseason, plus what Dianna's hearing on Pete Carroll.`\
-https://nytimes.com/athletic/6022220/2024/12/27/nfl-midseason-best-worst-scoop-city/
 
