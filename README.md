@@ -1,3 +1,11 @@
+**Italian Journalist Is Detained While Reporting in Iran**\
+`Cecilia Sala, 29, was arrested on Dec. 19, but news of her detention only became public on Friday. The reason for the arrest of Ms. Sala, a well-known reporter, has not been made public.`\
+https://nytimes.com/2024/12/27/world/middleeast/cecilia-sala-italian-journalist-arrested-iran.html
+
+**NPR and PBS Stations Brace for Funding Battle Under Trump**\
+`Republicans in Congress have tried to defund public media for decades. With the help of Elon Musk, could they finally make good on their threat?`\
+https://nytimes.com/2024/12/27/business/media/npr-pbs-funding-trump-musk.html
+
 **Can the Vikings inch closer to the No. 1 seed by beating the rival Packers?**\
 `The Vikings host the Packers on Sunday in a game with enormous playoff implications. Our experts break down the matchup.`\
 https://nytimes.com/athletic/6020810/2024/12/27/vikings-packers-preview-predictions-no-1-seed/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6021614/2024/12/27/luka-injury-calf-out-a-month/
 **First-Time Home Buyer Shares His Household Hacks**\
 `With more than a million people following along on Instagram, Kyshawn Lane lets you know just when to vacuum your refrigerator coils.`\
 https://nytimes.com/2024/12/27/realestate/kyshawn-lane-household-hacks.html
-
-**Jaden Ivey's game-winner shows his growing confidence for suddenly surging Pistons**\
-`Ivey's clutch play against the Kings lifted Detroit to 3-0 on its road trip. He's becoming a legit No. 2 option next to Cade Cunningham.`\
-https://nytimes.com/athletic/6021354/2024/12/27/jaden-ivey-pistons-game-winner-kings/
-
-**Amorim aware of Man United pressure: 'Every manager is in danger'**\
-`Manchester United head coach Ruben Amorim is fully aware that his job will be in &#8220;danger&#8221; if results under him don&#8217;t improve.`\
-https://nytimes.com/athletic/6021744/2024/12/27/manchester-united-ruben-amorim-danger/
 
