@@ -1,3 +1,7 @@
+**In Trump’s Mind, Greenland Is Just Real Estate**\
+`But that doesn’t mean he can buy it.`\
+https://nytimes.com/2024/12/27/opinion/greenland-trump-real-estate.html
+
 **In a Political Year, Some Deaths Spoke to the Struggles for Democracy**\
 `Among the notable figures who died in a sometimes polarizing 2024, many championed justice, equal rights and political freedom.`\
 https://nytimes.com/2024/12/27/obituaries/obituaries-deaths-2024.html

@@ -12,7 +12,7 @@ https://nytimes.com/2024/12/27/world/canada/canada-ministers-trump-border-tariff
 
 **In Trump’s Mind, Greenland Is Just Real Estate**\
 `But that doesn’t mean he can buy it.`\
-https://nytimes.com/live/2024/12/17/opinion/thepoint/greenland-trump-real-estate
+https://nytimes.com/2024/12/27/opinion/greenland-trump-real-estate.html
 
 **Delaware State hiring former Eagles WR DeSean Jackson as head coach**\
 `The move comes less than a week after Norfolk State, another MEAC school, hired former Pro Bowl QB Michael Vick as its coach.`\
