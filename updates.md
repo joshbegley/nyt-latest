@@ -1,3 +1,7 @@
+**Can Penn State stop Ashton Jeanty? 'He just doesn’t go down'**\
+`The one person likely determining whether the Nittany Lions’ Playoff run continues is Jeanty.`\
+https://nytimes.com/athletic/6022219/2024/12/27/ashton-jeanty-penn-state-cfp-fiesta-bowl/
+
 **Scheffler to have surgery to remove glass fragments from hand**\
 `Scheffler was preparing Christmas dinner when a broken glass punctured his right hand, according to his manager.`\
 https://nytimes.com/athletic/6022267/2024/12/27/scottie-scheffler-broken-glass-hand-surgery/
