@@ -1,3 +1,11 @@
+**Trump Urges Supreme Court to Pause TikTok Ban**\
+`The president-elect took no position on the app’s First Amendment challenge to the law, which sets a Jan. 19 deadline to sell or close the popular platform.`\
+https://nytimes.com/2024/12/27/us/politics/tiktok-ban-supreme-court-trump.html
+
+**Saka out for 'more than two months' after hamstring surgery - Arteta**\
+`Bukayo Saka faces &#8220;more than two months&#8221; on the sidelines after undergoing surgery to repair his torn hamstring, says Mikel Arteta.`\
+https://nytimes.com/athletic/6016479/2024/12/27/bukayo-saka-surgery-arsenal/
+
 **Greg Gumbel, longtime March Madness and NFL broadcaster, dies at 78**\
 `With a voice synonymous with Selection Sunday and the NFL, Gumbel became one of the most recognizable broadcasters in sports.`\
 https://nytimes.com/athletic/6022424/2024/12/27/greg-gumbel-cbs-cancer-death/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/briefing/homelessness-epa-forever-chemicals-south
 **Kings fire Mike Brown after 13-18 start to season: Source**\
 `Brown helped the Kings end a 16-year playoff drought in his first season, but Sacramento currently sits 12th in the West.`\
 https://nytimes.com/athletic/6022342/2024/12/27/mike-brown-kings-fired-nba/
-
-**It's not just about Gunner Stockton: The other Georgia X-factor in the CFP **\
-`Georgia's defense has been inconsistent this season, so it will be important for the unit to bring its best against the Irish.`\
-https://nytimes.com/athletic/6022226/2024/12/27/georgia-notre-dame-football-cfp-sugar-bowl/
-
-**Scheffler to have surgery to remove glass fragments from hand**\
-`Scheffler was preparing Christmas dinner when a broken glass punctured his right hand, according to his manager.`\
-https://nytimes.com/athletic/6022267/2024/12/27/scottie-scheffler-broken-glass-hand-surgery/
 
