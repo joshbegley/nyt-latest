@@ -1,7 +1,3 @@
-**The Cultural Contradictions of Trumpism**\
-`It’s what happens when a free-market party confronts reactionary protectionism.`\
-https://nytimes.com/live/2024/12/17/opinion/thepoint/trump-musk-ramaswamy-immigration
-
 **Investigators Using Video Surveillance to Identify Subway Burn Victim**\
 `The Brooklyn district attorney said the police were trying to retrace the woman’s steps to find a clear picture of her face. The man accused of killing her has been indicted on a first-degree murder charge.`\
 https://nytimes.com/2024/12/27/nyregion/subway-fire-death.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6022003/2024/12/27/jalen-hurts-status-concussion-ke
 **2024 Notable Deaths**\
 `As the year winds to a close, we’re recalling those we’ve lost who forged consequential lives.`\
 https://nytimes.com/interactive/2024/obituaries/notable-deaths.html
+
+**Colts QB Richardson misses practice, but not ruled out for Sunday**\
+`“We’ll see how the next 48 hours go,” coach Shane Steichen said.`\
+https://nytimes.com/athletic/6022087/2024/12/27/anthony-richardson-injury-update-colts-qb/
 
