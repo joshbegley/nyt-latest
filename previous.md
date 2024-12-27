@@ -1,3 +1,7 @@
+**Gakpo's settled role and why he's proving so important to Slot**\
+`Having played across the front line in his first season and a half, the Netherlands forward is thriving in a settled role on the left.`\
+https://nytimes.com/athletic/6020980/2024/12/27/cody-gakpo-liverpool-arne-slot-left/
+
 **In a fitting end to the home season, Bears go out with a thud at Soldier Field: Greenberg**\
 `This season wasn't planned. It was an accidental disaster. We're used to those.`\
 https://nytimes.com/athletic/6021249/2024/12/27/greenberg-fitting-end-bears-home-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015706/2024/12/27/crystal-palace-and-the-case-for-
 **Goals. Another win. And Jason Tindall winding people up. Newcastle are back.**\
 `Consecutive victories have transformed the end of 2024 for Eddie Howe's team. Europe is in the conversation again`\
 https://nytimes.com/athletic/6020154/2024/12/27/newcastle-are-back/
-
-**Brentford coach Kevin O'Connor: 'Thomas Frank thinks differently about football to anybody else'**\
-`A Brentford stalwart as a player, O'Connor is a long-serving assistant coach who has evolved as his club have risen through the divisions`\
-https://nytimes.com/athletic/5965500/2024/12/27/kevin-oconnor-interview-brentford-thomas-frank/
 

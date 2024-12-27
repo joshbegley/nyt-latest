@@ -1,3 +1,7 @@
+**Gakpo's settled role and why he's proving so important to Slot**\
+`Having played across the front line in his first season and a half, the Netherlands forward is thriving in a settled role on the left.`\
+https://nytimes.com/athletic/6020980/2024/12/27/cody-gakpo-liverpool-arne-slot-left/
+
 **In a fitting end to the home season, Bears go out with a thud at Soldier Field: Greenberg**\
 `This season wasn't planned. It was an accidental disaster. We're used to those.`\
 https://nytimes.com/athletic/6021249/2024/12/27/greenberg-fitting-end-bears-home-season/
