@@ -1,3 +1,11 @@
+**Bird Flu Samples From Very Ill Patient Had ‘Concerning’ Mutations**\
+`Tiny genetic alterations could help the bird flu virus enter cells in the upper respiratory tract, the C.D.C. said. But there is no sign that mutations are widespread in nature.`\
+https://nytimes.com/2024/12/27/health/bird-flu-mutations-louisiana.html
+
+**Scoop City: NFL's best/worst since midseason**\
+`A quick look at who's hot and cold since midseason, plus what Dianna's hearing on Pete Carroll.`\
+https://nytimes.com/athletic/6022220/2024/12/27/nfl-midseason-best-worst-scoop-city/
+
 **Why the New Fight Inside MAGA Matters So Much**\
 `It’s what happens when a free-market party confronts reactionary protectionism.`\
 https://nytimes.com/2024/12/27/opinion/trump-musk-ramaswamy-immigration.html

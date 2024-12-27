@@ -1,3 +1,11 @@
+**Bird Flu Samples From Very Ill Patient Had ‘Concerning’ Mutations**\
+`Tiny genetic alterations could help the bird flu virus enter cells in the upper respiratory tract, the C.D.C. said. But there is no sign that mutations are widespread in nature.`\
+https://nytimes.com/2024/12/27/health/bird-flu-mutations-louisiana.html
+
+**Scoop City: NFL's best/worst since midseason**\
+`A quick look at who's hot and cold since midseason, plus what Dianna's hearing on Pete Carroll.`\
+https://nytimes.com/athletic/6022220/2024/12/27/nfl-midseason-best-worst-scoop-city/
+
 **A Strange Banging Sound, Chaos and Prayers Before a Plane Crashes**\
 `Flight attendants and a passengers described the moments before an Azerbaijan Airlines flight went down in Kazakhstan, killing dozens.`\
 https://nytimes.com/2024/12/27/world/europe/azerbaijan-airlines-crash-kazakhstan-survivors.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6022163/2024/12/27/kirill-kaprizov-injury-wild-star
 **Enforcement of Anti-Money-Laundering Law Blocked After Court Reversal**\
 `Businesses will not have to reveal their owners after an appeals court reversed a move that would have forced them to disclose the information by Jan. 1.`\
 https://nytimes.com/2024/12/27/us/court-corporate-transparency-act.html
-
-**North Korea Is Experiencing Mass Casualties in Russia, White House Says**\
-`The North Korean losses amount to almost 10 percent of the country’s deployment to Russia, the Biden administration said.`\
-https://nytimes.com/2024/12/27/us/politics/north-korea-russia-war-casualties.html
-
-**A Blog, an Anonymous Writer and Twin Brothers Accused of Sexual Assault**\
-`Years before they were charged with sex crimes, Oren and Alon Alexander took legal action to find a mystery blogger who claimed they had committed sexual assault as teenagers.`\
-https://nytimes.com/2024/12/27/realestate/alexander-brothers-real-estate-blog-post-sexual-assault.html
 
