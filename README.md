@@ -1,3 +1,11 @@
+**The Athletic FC: Who can catch Liverpool? Man Utd's corner conundrum, Atalanta's title bid**\
+`Today in TAFC: Are Liverpool looking unstoppable in the Premier League? Manchester United's Olimpico problem and Beyonce for 2026?`\
+https://nytimes.com/athletic/6021400/2024/12/27/liverpool-premier-league-title-united-corners/
+
+**What We Know About the Plane Crash in Kazakhstan**\
+`The Embraer 190 was traveling to Grozny, Russia, but crashed near Aktau, Kazakhstan, killing 38 people onboard. Investigators are focusing on Russian air defense as the likely cause.`\
+https://nytimes.com/2024/12/27/world/europe/kazakhstan-plane-crash-russia.html
+
 **Barcelona lose court appeal to register Olmo for second half of season**\
 `Barcelona have been dealt a blow in their hopes of registering Dani Olmo and Pau Victor in their squad for the second half of the 2024-25 season in La Liga, with the club&#8217;s court appeal for a precautionary registration measure rejected.`\
 https://nytimes.com/athletic/6021526/2024/12/27/dani-olmo-barcelona-registration/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6020838/2024/12/27/broncos-playoffs-five-keys-benga
 **How the Raiders can climb back up in the NFL Draft over the final two weeks to land a QB**\
 `Some Raiders fans are ruing the potential loss of a rookie quarterback in the draft. But there are still ways for Las Vegas to move back up.`\
 https://nytimes.com/athletic/6018693/2024/12/27/raiders-2025-nfl-draft-order-quarterback/
-
-**The Wirecutter Show: Kitchen Gear That Lasts a Lifetime (or Extremely Close)**\
-`Quality kitchen gear can last a lifetime — but not every pot, pan or knife is made to last.`\
-https://nytimes.com/2024/12/27/podcasts/hardfork-wirecutter-kitchenware.html
-
-**Davies ruled out for Tottenham vs Wolves after injury setback**\
-`Tottenham Hotspur defender Ben Davies has suffered a setback and won&#8217;t now be available for Sunday&#8217;s game with Wolverhampton Wanderers.`\
-https://nytimes.com/athletic/6021537/2024/12/27/tottenham-team-news-ben-davies-injury/
 
