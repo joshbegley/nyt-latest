@@ -1,3 +1,7 @@
+**Tesla Investors Are Still Bullish. Can Elon Musk Deliver?**\
+`Sales of the company’s cars are flagging, but investors are focusing on the potential of autonomous driving and Mr. Musk’s ties to President-elect Donald J. Trump.`\
+https://nytimes.com/2024/12/27/business/tesla-sales-stock-elon-musk.html
+
 **Amorim aware of Man United pressure: 'Every manager is in danger'**\
 `Manchester United head coach Ruben Amorim is fully aware that his job will be in &#8220;danger&#8221; if results under him don&#8217;t improve.`\
 https://nytimes.com/athletic/6021744/2024/12/27/manchester-united-ruben-amorim-danger/
