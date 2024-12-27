@@ -1,3 +1,7 @@
+**Corrections: Dec. 27, 2024**\
+`Corrections that appeared in print on Friday, Dec. 27, 2024.`\
+https://nytimes.com/2024/12/26/pageoneplus/corrections-dec-27-2024.html
+
 **The Bald Eagle Is (Finally) the National Bird of the United States**\
 `The bird of brown and white feathers has long represented the United States as a majestic and soaring symbol, but only this week did a law make it official.`\
 https://nytimes.com/2024/12/26/us/bald-eagle-national-bird.html
