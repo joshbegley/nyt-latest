@@ -1,3 +1,7 @@
+**What Leicester need to go right in their fight for survival**\
+`The four areas that need to turn in Leicester's favour as they reach the season's mid-point.`\
+https://nytimes.com/athletic/6021062/2024/12/27/leicester-survival-relegation-battle/
+
 **Piroe is back playing in his best position - and Leeds are reaping the rewards**\
 `The Dutch striker is back playing in his natural position and Daniel Farke knows he will keep delivering in Leeds' quest for promotion`\
 https://nytimes.com/athletic/6010902/2024/12/27/leeds-united-joel-piroe-striker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019512/2024/12/27/west-ham-jarrod-bowen-southampto
 **'Aston Villa, it's happened again'**\
 `Villa's record on Boxing Day is poor and their performances away from home are beginning to cause alarm, too`\
 https://nytimes.com/athletic/6019355/2024/12/27/aston-villa-newcastle-united-away-result/
-
-**Crystal Palace and the case for the defence - 'boring' is what's needed**\
-`Marc Guehi may have found the match boring, but a clean sheet was very welcome`\
-https://nytimes.com/athletic/6015706/2024/12/27/crystal-palace-and-the-case-for-the-defence/
 

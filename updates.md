@@ -1,3 +1,7 @@
+**What Leicester need to go right in their fight for survival**\
+`The four areas that need to turn in Leicester's favour as they reach the season's mid-point.`\
+https://nytimes.com/athletic/6021062/2024/12/27/leicester-survival-relegation-battle/
+
 **Piroe is back playing in his best position - and Leeds are reaping the rewards**\
 `The Dutch striker is back playing in his natural position and Daniel Farke knows he will keep delivering in Leeds' quest for promotion`\
 https://nytimes.com/athletic/6010902/2024/12/27/leeds-united-joel-piroe-striker/
