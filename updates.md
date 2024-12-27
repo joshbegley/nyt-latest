@@ -1,3 +1,7 @@
+**The President-Elect Comments Often on the Men Around Him**\
+`“These guys are specimens.”`\
+https://nytimes.com/2024/12/27/style/donald-trump-compliments-looks-men.html
+
 **Ruth Butler, Who Brought Artists’ Muses to Life, Dies at 93**\
 `After publishing a definitive biography of Rodin, she went on to write about the underappreciated women who modeled for the giants of 19th-century French art.`\
 https://nytimes.com/2024/12/27/arts/ruth-butler-dead.html
