@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/12/17/opinion/thepoint/greenland-trump-real-estate
 https://nytimes.com/athletic/6021622/2024/12/27/desean-jackson-delaware-state-football-eagles/
 
 **Migrants and End of Covid Restrictions Fuel Jump in U.S. Homelessness**\
-`The federal government blamed factors including the surge in migrants seeking asylum and the end of pandemic-era measures to protect the needy.`\
+`The number of people experiencing homelessness topped 770,000, an increase of more than 18 percent over last year.`\
 https://nytimes.com/2024/12/27/us/homelessness-hit-record-level-in-2024.html
 
 **What We Know About the Ship Finland Seized Over Fears of Sabotage**\
