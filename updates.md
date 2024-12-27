@@ -1,3 +1,15 @@
+**In a Political Year, Some Deaths Spoke to the Struggles for Democracy**\
+`Among the notable figures who died in a sometimes polarizing 2024, many championed justice, equal rights and political freedom.`\
+https://nytimes.com/2024/12/27/obituaries/obituaries-deaths-2024.html
+
+**Tennessee RB Dylan Sampson declares for NFL draft**\
+`Sampson, the SEC offensive player of the year, finished the 2024 season with 1,491 rushing yards and 22 touchdowns.`\
+https://nytimes.com/athletic/6021950/2024/12/27/dylan-sampson-nfl-draft-tennessee-football/
+
+**Canadian Ministers to Meet Trump Aides at Mar-a-Lago to Discuss Border, and Tariffs**\
+`President-elect Donald J. Trump has threatened to impose tariffs on Canadian exports unless the country stops the flow of migrants and fentanyl to the U.S.`\
+https://nytimes.com/2024/12/27/world/canada/canada-ministers-trump-border-tariffs.html
+
 **In Trump’s Mind, Greenland Is Just Real Estate**\
 `But that doesn’t mean he can buy it.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/greenland-trump-real-estate

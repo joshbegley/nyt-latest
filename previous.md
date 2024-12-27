@@ -1,3 +1,15 @@
+**In a Political Year, Some Deaths Spoke to the Struggles for Democracy**\
+`Among the notable figures who died in a sometimes polarizing 2024, many championed justice, equal rights and political freedom.`\
+https://nytimes.com/2024/12/27/obituaries/obituaries-deaths-2024.html
+
+**Tennessee RB Dylan Sampson declares for NFL draft**\
+`Sampson, the SEC offensive player of the year, finished the 2024 season with 1,491 rushing yards and 22 touchdowns.`\
+https://nytimes.com/athletic/6021950/2024/12/27/dylan-sampson-nfl-draft-tennessee-football/
+
+**Canadian Ministers to Meet Trump Aides at Mar-a-Lago to Discuss Border, and Tariffs**\
+`President-elect Donald J. Trump has threatened to impose tariffs on Canadian exports unless the country stops the flow of migrants and fentanyl to the U.S.`\
+https://nytimes.com/2024/12/27/world/canada/canada-ministers-trump-border-tariffs.html
+
 **In Trump’s Mind, Greenland Is Just Real Estate**\
 `But that doesn’t mean he can buy it.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/greenland-trump-real-estate
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/27/nyregion/bryant-park-holiday-market-fire.html
 **NBA trends I'm watching: Julius Randle, Payton Pritchard's glass work and more**\
 `Plus: Why the NBA has become a copy-cat league for one Portland Trail Blazer.`\
 https://nytimes.com/athletic/6021762/2024/12/27/julius-randle-contract-payton-pritchard-rebounding/
-
-**Berrien Moore III, Pioneering Scholar of Earth Science, Dies at 83**\
-`As a researcher at several universities and an adviser at NASA, he used data analysis to show how the planet’s different systems are interrelated.`\
-https://nytimes.com/2024/12/27/climate/berrien-moore-dead.html
-
-**Trump’s Designs on the Panama Canal and Greenland**\
-`Readers are critical of the president-elect’s calls for U.S. control. Also: Dispirited after the election; billionaires and politics; the joy of reading novellas.`\
-https://nytimes.com/2024/12/27/opinion/letters/trump-panama-canal-greenland.html
-
-**Washington expected to hire ex-Purdue coach Ryan Walters as new DC: Source**\
-`With Steve Belichick joining his father at UNC, look for Washington to bring in Ryan Walters as its new defensive coordinator.`\
-https://nytimes.com/athletic/6021933/2024/12/27/ryan-walters-washington-defensive-coordinator-steve-belichick/
 
