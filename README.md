@@ -1,3 +1,7 @@
+**In a Political Year, Some Deaths Spoke to the Struggles for Democracy**\
+`Among the notable figures who died in a sometimes polarizing 2024, many championed justice, equal rights and political freedom.`\
+https://nytimes.com/2024/12/27/obituaries/obituaries-deaths-2024.html
+
 **Tennessee RB Dylan Sampson declares for NFL draft**\
 `Sampson, the SEC offensive player of the year, finished the 2024 season with 1,491 rushing yards and 22 touchdowns.`\
 https://nytimes.com/athletic/6021950/2024/12/27/dylan-sampson-nfl-draft-tennessee-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/nyregion/bryant-park-holiday-market-fire.html
 **NBA trends I'm watching: Julius Randle, Payton Pritchard's glass work and more**\
 `Plus: Why the NBA has become a copy-cat league for one Portland Trail Blazer.`\
 https://nytimes.com/athletic/6021762/2024/12/27/julius-randle-contract-payton-pritchard-rebounding/
-
-**Berrien Moore III, Pioneering Scholar of Earth Science, Dies at 83**\
-`As a researcher at several universities and an adviser at NASA, he used data analysis to show how the planet’s different systems are interrelated.`\
-https://nytimes.com/2024/12/27/climate/berrien-moore-dead.html
 
