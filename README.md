@@ -1,3 +1,7 @@
+**The President-Elect Comments Often on the Men Around Him**\
+`“These guys are specimens.”`\
+https://nytimes.com/2024/12/27/style/donald-trump-compliments-looks-men.html
+
 **Ruth Butler, Who Brought Artists’ Muses to Life, Dies at 93**\
 `After publishing a definitive biography of Rodin, she went on to write about the underappreciated women who modeled for the giants of 19th-century French art.`\
 https://nytimes.com/2024/12/27/arts/ruth-butler-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/world/canada/canada-ministers-trump-border-tariff
 **In Trump’s Mind, Greenland Is Just Real Estate**\
 `But that doesn’t mean he can buy it.`\
 https://nytimes.com/2024/12/27/opinion/greenland-trump-real-estate.html
-
-**Delaware State hiring former Eagles WR DeSean Jackson as head coach**\
-`The move comes less than a week after Norfolk State, another MEAC school, hired former Pro Bowl QB Michael Vick as its coach.`\
-https://nytimes.com/athletic/6021622/2024/12/27/desean-jackson-delaware-state-football-eagles/
 
