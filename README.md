@@ -1,3 +1,11 @@
+**The stars and sports that captivated collectors in 2024**\
+`The trends that defined the sports card world in 2024, plus what 2025 might hold for the top names`\
+https://nytimes.com/athletic/6020475/2024/12/27/top-sports-cards-2024-jordan-wembanyama-clark/
+
+**Video Shows Prison Officers’ Fatal Assault of Inmate in ‘Shocking’ Detail**\
+`Robert Brooks died after a savage attack at a New York prison this month that was captured by several officers’ body-worn cameras.`\
+https://nytimes.com/2024/12/27/nyregion/marcy-correctional-inmate-death-video-ny-prison.html
+
 **In a Political Year, Some Deaths Spoke to the Struggles for Democracy**\
 `Among the notable figures who died in a sometimes polarizing 2024, many championed justice, equal rights and political freedom.`\
 https://nytimes.com/2024/12/27/obituaries/obituaries-deaths-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/world/europe/finland-ship-russia-sabotage.html
 **NFL Week 17 injuries and fantasy tips: Cardinals backfield banged up**\
 `Who's in and who's out for Week 17? Plus weather reports, game previews and fantasy football rankings. `\
 https://nytimes.com/athletic/6019528/2024/12/27/nfl-week-17-inactives-and-fantasy-tips/
-
-**Fire Erupts at Bryant Park Holiday Market**\
-`Several booths at one of New York City’s largest seasonal markets were affected, but there were no injuries.`\
-https://nytimes.com/2024/12/27/nyregion/bryant-park-holiday-market-fire.html
-
-**NBA trends I'm watching: Julius Randle, Payton Pritchard's glass work and more**\
-`Plus: Why the NBA has become a copy-cat league for one Portland Trail Blazer.`\
-https://nytimes.com/athletic/6021762/2024/12/27/julius-randle-contract-payton-pritchard-rebounding/
 
