@@ -1,3 +1,7 @@
+**Slot: Liverpool managing Jota's fitness after injury lay-off**\
+`Arne Slot says Liverpool will continue to tread carefully with Diogo Jota following his return to action from a chest injury.`\
+https://nytimes.com/athletic/6021523/2024/12/27/liverpool-diogo-jota-fitness-arne-slot/
+
 **Heat Today: Extended Kel'el Ware minutes could add new dimension to Miami rotation**\
 `The 7-foot rookie has stayed patient — and is showing tantalizing glimpses of his talent. `\
 https://nytimes.com/athletic/6019823/2024/12/27/kelel-ware-heat-bam-adebayo-kevin-love-heat-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016190/2024/12/27/nfl-media-stories-of-2024-tom-br
 **Israeli Military Forces Patients and Staff to Leave Hospital in Northern Gaza**\
 `The hospital, Kamal Adwan, has been caught in the middle of Israel’s offensive against Hamas militants in northern Gaza.`\
 https://nytimes.com/2024/12/27/world/middleeast/israel-gaza-hospital-raid.html
-
-**The Pulse: What an impressively bad NFL game**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6021551/2024/12/27/seahawks-bears-pete-carroll-the-pulse/
 
