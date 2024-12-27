@@ -1,3 +1,11 @@
+**Three reasons Ohio State is better prepared to defend Oregon in the Rose Bowl**\
+`Ohio State's defense took a lot of heat for its lapses in an October loss at Oregon. What's different for the Buckeyes in the Playoff?`\
+https://nytimes.com/athletic/6022105/2024/12/27/ohio-state-defense-oregon-rose-bowl/
+
+**The Cultural Contradictions of Trumpism**\
+`It’s what happens when a free-market party confronts reactionary protectionism.`\
+https://nytimes.com/2024/12/27/opinion/trump-musk-ramaswamy-immigration.html
+
 **Investigators Using Video Surveillance to Identify Subway Burn Victim**\
 `The Brooklyn district attorney said the police were trying to retrace the woman’s steps to find a clear picture of her face. The man accused of killing her has been indicted on a first-degree murder charge.`\
 https://nytimes.com/2024/12/27/nyregion/subway-fire-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/science/space/parker-solar-probe-nasa-sun-signal.
 **Pickett poised to make first Eagles start with Hurts in concussion protocol**\
 `Pickett played for the Steelers for his first two seasons, throwing for 4,474 yards, 13 touchdowns and 13 interceptions in 25 appearances.`\
 https://nytimes.com/athletic/6022003/2024/12/27/jalen-hurts-status-concussion-kenny-pickett-eagles/
-
-**2024 Notable Deaths**\
-`As the year winds to a close, we’re recalling those we’ve lost who forged consequential lives.`\
-https://nytimes.com/interactive/2024/obituaries/notable-deaths.html
-
-**Colts QB Richardson misses practice, but not ruled out for Sunday**\
-`“We’ll see how the next 48 hours go,” coach Shane Steichen said.`\
-https://nytimes.com/athletic/6022087/2024/12/27/anthony-richardson-injury-update-colts-qb/
 
