@@ -7,7 +7,7 @@ https://nytimes.com/2024/12/27/health/bird-flu-mutations-louisiana.html
 https://nytimes.com/athletic/6022220/2024/12/27/nfl-midseason-best-worst-scoop-city/
 
 **A Strange Banging Sound, Chaos and Prayers Before a Plane Crashes**\
-`Flight attendants and a passengers described the moments before an Azerbaijan Airlines flight went down in Kazakhstan, killing dozens.`\
+`Flight attendants and a passenger described the moments before an Azerbaijan Airlines flight went down in Kazakhstan, killing dozens.`\
 https://nytimes.com/2024/12/27/world/europe/azerbaijan-airlines-crash-kazakhstan-survivors.html
 
 **Too Old to Ace This Year-End Quiz? Ask a Kid for Help.**\
