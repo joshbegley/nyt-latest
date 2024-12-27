@@ -1,3 +1,11 @@
+**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
+https://nytimes.com/athletic/5891633/2024/12/27/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
+**Browns restructure Deshaun Watson's contract**\
+`Watson, 29, is under contract with Cleveland through the 2026 season.`\
+https://nytimes.com/athletic/6022274/2024/12/27/browns-deshaun-watson-contract-restructure/
+
 **Teoscar Hernández agrees to re-sign with Dodgers on 3-year deal: Source**\
 `In 2024, Hernández slugged a career-best 33 home runs, won a Silver Slugger and won the World Series. `\
 https://nytimes.com/athletic/5932721/2024/12/27/teoscar-hernandez-dodgers-free-agent-deal/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/business/economy/yellen-debt-limit-warning-congre
 **Commanders to be without Lattimore vs. Falcons as hamstring injury lingers**\
 `Lattimore previously missed the initial four games after the Commanders acquired him from the New Orleans Saints at the trade deadline.`\
 https://nytimes.com/athletic/6022295/2024/12/27/commanders-marshon-lattimore-injury-falcons/
-
-**The Briefing - Arsenal 1 Ipswich 0: Most six-yard box goals this season, Havertz and Jesus, Rice's role**\
-`Analysis of Arsenal's Premier League game at home to Ipswich Town`\
-https://nytimes.com/athletic/6017815/2024/12/27/arsenal-ipswich-highlights-goals/
-
-**The Evening: Record Homelessness in the U.S.**\
-`Plus, how to get fitter in 2025.`\
-https://nytimes.com/2024/12/27/briefing/homelessness-epa-forever-chemicals-south-korea.html
 
