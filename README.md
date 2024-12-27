@@ -1,3 +1,7 @@
+**Corrections: Dec. 27, 2024**\
+`Corrections that appeared in print on Friday, Dec. 27, 2024.`\
+https://nytimes.com/2024/12/26/pageoneplus/corrections-dec-27-2024.html
+
 **The Bald Eagle Is (Finally) the National Bird of the United States**\
 `The bird of brown and white feathers has long represented the United States as a majestic and soaring symbol, but only this week did a law make it official.`\
 https://nytimes.com/2024/12/26/us/bald-eagle-national-bird.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/17/opinion/thepoint/trump-greenland-panama-cart
 **How They Celebrated the Holidays 250 Miles Above Earth**\
 `The astronauts on the I.S.S. — including two who were scheduled to return months ago — held a zero-gravity cookie-decorating contest and built a reindeer from storage bags.`\
 https://nytimes.com/2024/12/26/science/iss-astronauts-holiday-celebration.html
-
-**Bultman: The Red Wings have changed coaches, but they can't stop there**\
-`The Red Wings fired Lalonde on Thursday in search of a spark. But their biggest issues will require more work to fix.`\
-https://nytimes.com/athletic/6020364/2024/12/26/red-wings-derek-lalonde-changes-yzerman/
 
