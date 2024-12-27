@@ -1,3 +1,7 @@
+**Osamu Suzuki, Who Led Japanese Carmaker for Over 4 Decades, Dies at 94**\
+`He built Suzuki Motor from a small company into a global powerhouse, entering the Indian market in the 1980s in one of his early successes.`\
+https://nytimes.com/2024/12/27/business/osamu-suzuki-dies-94.html
+
 **How Dan Quinn’s early decision allowed Jayden Daniels to naturally take command**\
 `Washington's players gravitate toward the 24-year-old rookie QB who has the team on the cusp of clinching a playoff berth. `\
 https://nytimes.com/athletic/6020454/2024/12/27/jayden-daniels-commanders-leader/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020794/2024/12/27/panthers-midseason-predictions-r
 **Lions-49ers doesn't have the same spark, but Detroit is 'bringing everything' Monday**\
 `This isn't the same 49ers team the Lions lined up against 11 months ago, but Detroit is still treating it like a marquee game.`\
 https://nytimes.com/athletic/6020847/2024/12/27/lions-49ers-game-dan-campbell/
-
-**7 New Shows Our Theater Critics Are Talking About**\
-`A film adaptation onstage, a Broadway classic, comedy galore: These are the productions worth knowing about this holiday season.`\
-https://nytimes.com/2024/12/27/theater/new-shows-theater-broadway.html
 
