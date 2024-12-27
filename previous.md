@@ -1,4 +1,8 @@
-**Kirill Kaprizov out vs. Stars: What we know about his timeline, and how the Wild will adjust**\
+**Investigators Using Video Surveillance to Identify Subway Burn Victim**\
+`The Brooklyn district attorney said the police were trying to retrace the woman’s steps to find a clear picture of her face. The man accused of killing her has been indicted on a first-degree murder charge.`\
+https://nytimes.com/2024/12/27/nyregion/subway-fire-death.html
+
+**Kirill Kaprizov out vs. the Stars: What we know about his timeline, and how the Wild will adjust**\
 `Kaprizov has been one of the league's top players this season — and its fourth-leading scorer, with 23 goals and 50 points.`\
 https://nytimes.com/athletic/6022163/2024/12/27/kirill-kaprizov-injury-wild-stars/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/obituaries/notable-deaths.html
 **Colts QB Richardson misses practice, but not ruled out for Sunday**\
 `“We’ll see how the next 48 hours go,” coach Shane Steichen said.`\
 https://nytimes.com/athletic/6022087/2024/12/27/anthony-richardson-injury-update-colts-qb/
-
-**The President-Elect Comments Often on the Men Around Him**\
-`“These guys are specimens.”`\
-https://nytimes.com/2024/12/27/style/donald-trump-compliments-looks-men.html
 
