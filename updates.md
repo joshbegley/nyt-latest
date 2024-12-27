@@ -1,3 +1,7 @@
+**Colts QB Richardson misses practice, but not ruled out for Sunday**\
+`“We’ll see how the next 48 hours go,” coach Shane Steichen said.`\
+https://nytimes.com/athletic/6022087/2024/12/27/anthony-richardson-injury-update-colts-qb/
+
 **The Cultural Contradictions of Trumpism**\
 `It’s what happens when a free-market party confronts reactionary protectionism.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/trump-musk-ramaswamy-immigration
