@@ -1,3 +1,7 @@
+**First-Time Home Buyer Shares His Household Hacks**\
+`With more than a million people following along on Instagram, Kyshawn Lane lets you know just when to vacuum your refrigerator coils.`\
+https://nytimes.com/2024/12/27/realestate/kyshawn-lane-household-hacks.html
+
 **Jaden Ivey's game-winner shows his growing confidence for suddenly surging Pistons**\
 `Ivey's clutch play against the Kings lifted Detroit to 3-0 on its road trip. He's becoming a legit No. 2 option next to Cade Cunningham.`\
 https://nytimes.com/athletic/6021354/2024/12/27/jaden-ivey-pistons-game-winner-kings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/world/europe/kazakhstan-plane-crash-russia.html
 **Barcelona lose court appeal to register Olmo for second half of season**\
 `Barcelona have been dealt a blow in their hopes of registering Dani Olmo and Pau Victor in their squad for the second half of the 2024-25 season in La Liga, with the club&#8217;s court appeal for a precautionary registration measure rejected.`\
 https://nytimes.com/athletic/6021526/2024/12/27/dani-olmo-barcelona-registration/
-
-**The top NFL media stories of 2024: Tom Brady debuts, Netflix steps in and more**\
-`The NFL story will, of course, continue in 2025 and beyond, but here we offer eight NFL media stories that captured our interest in 2024.`\
-https://nytimes.com/athletic/6016190/2024/12/27/nfl-media-stories-of-2024-tom-brady-netflix-brazil/
 
