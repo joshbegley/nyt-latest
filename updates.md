@@ -1,3 +1,7 @@
+**Greg Gumbel, longtime March Madness and NFL broadcaster, dies at 78**\
+`With a voice synonymous with Selection Sunday and the NFL, Gumbel became one of the most recognizable broadcasters in sports.`\
+https://nytimes.com/athletic/6022424/2024/12/27/greg-gumbel-cbs-cancer-death/
+
 **Trucks Carrying Aid Finally Reach Sudan’s War-Torn Capital Region**\
 `After 20 months of war, and three months of negotiations with the warring sides, a bit of relief arrives for some of the hundreds of thousands of people facing famine.`\
 https://nytimes.com/2024/12/27/world/africa/aid-trucks-sudan-capital-famine.html

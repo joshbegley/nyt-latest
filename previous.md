@@ -1,3 +1,7 @@
+**Greg Gumbel, longtime March Madness and NFL broadcaster, dies at 78**\
+`With a voice synonymous with Selection Sunday and the NFL, Gumbel became one of the most recognizable broadcasters in sports.`\
+https://nytimes.com/athletic/6022424/2024/12/27/greg-gumbel-cbs-cancer-death/
+
 **Trucks Carrying Aid Finally Reach Sudan’s War-Torn Capital Region**\
 `After 20 months of war, and three months of negotiations with the warring sides, a bit of relief arrives for some of the hundreds of thousands of people facing famine.`\
 https://nytimes.com/2024/12/27/world/africa/aid-trucks-sudan-capital-famine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6022226/2024/12/27/georgia-notre-dame-football-cfp-
 **Scheffler to have surgery to remove glass fragments from hand**\
 `Scheffler was preparing Christmas dinner when a broken glass punctured his right hand, according to his manager.`\
 https://nytimes.com/athletic/6022267/2024/12/27/scottie-scheffler-broken-glass-hand-surgery/
-
-**Duran to serve three-game ban after FA rejects red card appeal**\
-`Jhon Duran will serve a three-game ban after Aston Villa had their appeal against his red card rejected by the Football Association (FA).`\
-https://nytimes.com/athletic/6022228/2024/12/27/jhon-duran-ban-appeal-red-card/
 
