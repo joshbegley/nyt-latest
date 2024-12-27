@@ -1,3 +1,11 @@
+**Israeli Military Forces Patients and Staff to Leave Hospital in Northern Gaza**\
+`The hospital, Kamal Adwan, has been caught in the middle of Israel’s offensive against Hamas militants in northern Gaza.`\
+https://nytimes.com/2024/12/27/world/middleeast/israel-gaza-hospital-raid.html
+
+**The Pulse: What an impressively bad NFL game**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6021551/2024/12/27/seahawks-bears-pete-carroll-the-pulse/
+
 **'Sell the team!': Bears fans vent their anger in home finale of calamitous season**\
 `The Bears have lost 10 games in a row and Caleb Williams is getting more frustrated. Just not as much as Bears fans.`\
 https://nytimes.com/athletic/6021255/2024/12/27/bears-fans-sell-the-team-seahawks/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/briefing/overlooked-stories.html
 **AFC North Whiparound: Biggest Christmas Day surprise, making a case for individual awards**\
 `Plus, our writers discuss what stood out most about this week's episode of "Hard Knocks" and make game predictions. `\
 https://nytimes.com/athletic/6020542/2024/12/27/afc-north-bengals-steelers-ravens-browns/
-
-**South Korea’s Political Instability Deepens With New Impeachment**\
-`Lawmakers from South Korea’s governing party protested on Friday against a vote to impeach the country’s acting president, Han Duck-soo. The motion, which passed 192-0, came less than two weeks after President Yoon Suk Yeol was also ousted by the opposition in the National Assembly.`\
-https://nytimes.com/video/world/asia/100000009898161/south-koreas-political-instability-deepens-with-new-impeachment.html
-
-**Ashton Jeanty's legacy at Boise State is secure, but he's still chasing history**\
-`He enters the CFP just 131 yards shy of college football’s official single-season record, set by Oklahoma State’s Barry Sanders in 1988.`\
-https://nytimes.com/athletic/6014346/2024/12/27/ashton-jeanty-boise-state-heisman-barry-sanders/
 
