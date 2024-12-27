@@ -1,3 +1,23 @@
+**Bills notebook: Is Sunday Josh Allen's final MVP statement? How much does seeding matter?**\
+`Considering Lamar Jackson's performance on Christmas Day, Josh Allen and the Bills might want to make a statement Sunday in the MVP race.`\
+https://nytimes.com/athletic/6020580/2024/12/27/bills-josh-allen-mvp-statement-playoff-seeding/
+
+**Will Bengals' season of underachievement come to a fitting conclusion?: Dehner Jr.**\
+`Many things need to happen for Cincinnati to make the playoffs but the big question is whether it can hold up its end of the deal.`\
+https://nytimes.com/athletic/6020815/2024/12/27/bengals-playoffs-broncos-prediction/
+
+**How the Bears found yet another way to lose a game in the final minute**\
+`The Bears embarrassed themselves again on national TV, mismanaging the final two minutes and failing to get in position to end their skid.`\
+https://nytimes.com/athletic/6021260/2024/12/27/bears-lose-to-seahawks-thomas-brown/
+
+**Eagles have contingency plan in place if Jalen Hurts is unable to play vs. Cowboys**\
+`Hurts has yet to practice this week amid concussion protocol. Pickett is limited with a rib injury. Who's up next in Philadelphia?`\
+https://nytimes.com/athletic/6019467/2024/12/27/jalen-hurts-concussion-philadelphia-eagles-dallas-cowboys-plan/
+
+**'A different feeling' in Atlanta as the Falcons look to end their playoff drought**\
+`The Falcons will clinch the NFC South if they win their final two games. If things break right, it could happen Sunday night.`\
+https://nytimes.com/athletic/6020671/2024/12/27/falcons-playoff-drought-michael-penix-jr/
+
 **Panthers midseason predictions revisited: Spot on with Chuba Hubbard, top-5 pick TBD**\
 `Seven weeks ago, Joe Person called Hubbard's contract and yardage. How did he fare on the rest of his predictions?`\
 https://nytimes.com/athletic/6020794/2024/12/27/panthers-midseason-predictions-revisiting-chuba-hubbard-bryce-young/
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2024/12/27/technology/artificial-intelligence-ge
 **3 Resolutions for Eating and Drinking in 2025**\
 `Reach for a new recipe, to start.`\
 https://nytimes.com/2024/12/27/well/eat/eating-drinking-resolutions-2025.html
-
-**7 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2024/12/27/movies/new-movies-this-week-critics.html
-
-**The Hottest Trend in Publishing: Books You Can Judge by Their Cover**\
-`Elaborately designed books with patterned edges and other effects started as a trend in romance and fantasy, and have now spread throughout the publishing industry.`\
-https://nytimes.com/2024/12/27/books/deluxe-book-editions-decorated-edges.html
-
-**Like ‘Squid Game’? Stream These 9 New Korean Dramas Next**\
-`As more and more K-dramas debut for U.S. viewers, it is becoming harder to choose which to watch. Here are a few favorites that premiered in 2024.`\
-https://nytimes.com/2024/12/27/arts/television/best-korean-dramas-kdrama-streaming.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include a Malaysian war movie, an underwater plane rescue and a single-location western with gutsy gunfights.`\
-https://nytimes.com/2024/12/27/movies/five-action-movies-to-stream-now.html
-
-**Three Great Documentaries to Stream**\
-`Picks this month include a Bob Dylan sleeper, a harrowing portrait of Syria, and Will Ferrell and Harper Steele’s road trip.`\
-https://nytimes.com/2024/12/27/movies/documentaries-streaming.html
 
