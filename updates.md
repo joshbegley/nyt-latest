@@ -1,3 +1,11 @@
+**Italian Journalist Is Detained While Reporting in Iran**\
+`Cecilia Sala, 29, was arrested on Dec. 19, but news of her detention only became public on Friday. The reason for the arrest of Ms. Sala, a well-known reporter, has not been made public.`\
+https://nytimes.com/2024/12/27/world/middleeast/cecilia-sala-italian-journalist-arrested-iran.html
+
+**NPR and PBS Stations Brace for Funding Battle Under Trump**\
+`Republicans in Congress have tried to defund public media for decades. With the help of Elon Musk, could they finally make good on their threat?`\
+https://nytimes.com/2024/12/27/business/media/npr-pbs-funding-trump-musk.html
+
 **Can the Vikings inch closer to the No. 1 seed by beating the rival Packers?**\
 `The Vikings host the Packers on Sunday in a game with enormous playoff implications. Our experts break down the matchup.`\
 https://nytimes.com/athletic/6020810/2024/12/27/vikings-packers-preview-predictions-no-1-seed/
