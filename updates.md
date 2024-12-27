@@ -1,3 +1,11 @@
+**Israeli Military Forces Patients and Staff to Leave Hospital in Northern Gaza**\
+`The hospital, Kamal Adwan, has been caught in the middle of Israel’s offensive against Hamas militants in northern Gaza.`\
+https://nytimes.com/2024/12/27/world/middleeast/israel-gaza-hospital-raid.html
+
+**The Pulse: What an impressively bad NFL game**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6021551/2024/12/27/seahawks-bears-pete-carroll-the-pulse/
+
 **'Sell the team!': Bears fans vent their anger in home finale of calamitous season**\
 `The Bears have lost 10 games in a row and Caleb Williams is getting more frustrated. Just not as much as Bears fans.`\
 https://nytimes.com/athletic/6021255/2024/12/27/bears-fans-sell-the-team-seahawks/
