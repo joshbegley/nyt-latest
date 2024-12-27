@@ -1,3 +1,7 @@
+**A Strange Banging Sound, Chaos and Prayers Before a Plane Crashes**\
+`Flight attendants and a passenger described the moments before an Azerbaijan Airlines flight went down in Kazakhstan, killing dozens.`\
+https://nytimes.com/2024/12/27/world/europe/azerbaijan-airlines-crash-kazakhstan-survivors.html
+
 **Bird Flu Samples From Very Ill Patient Had ‘Concerning’ Mutations**\
 `Tiny genetic alterations could help the bird flu virus enter cells in the upper respiratory tract, the C.D.C. said. But there is no sign that mutations are widespread in nature.`\
 https://nytimes.com/2024/12/27/health/bird-flu-mutations-louisiana.html
