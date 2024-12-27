@@ -1,3 +1,7 @@
+**Two Sailors Die During Sydney to Hobart Yacht Race**\
+`The men were hit in the head by booms on their yachts in separate episodes, as participants faced challenging weather conditions, the police said.`\
+https://nytimes.com/2024/12/26/world/australia/sydney-hobart-yacht-deaths.html
+
 **Axel Sandin-Pellikka, USA's top line shine on Boxing Day at World Juniors**\
 `Scott Wheeler and Corey Pronman share their Day 1 thoughts after the tournament began in Ottawa on Thursday.`\
 https://nytimes.com/athletic/6006840/2024/12/26/world-juniors-sandin-pellikka-boxing-day/

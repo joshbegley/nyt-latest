@@ -1,3 +1,7 @@
+**Two Sailors Die During Sydney to Hobart Yacht Race**\
+`The men were hit in the head by booms on their yachts in separate episodes, as participants faced challenging weather conditions, the police said.`\
+https://nytimes.com/2024/12/26/world/australia/sydney-hobart-yacht-deaths.html
+
 **Axel Sandin-Pellikka, USA's top line shine on Boxing Day at World Juniors**\
 `Scott Wheeler and Corey Pronman share their Day 1 thoughts after the tournament began in Ottawa on Thursday.`\
 https://nytimes.com/athletic/6006840/2024/12/26/world-juniors-sandin-pellikka-boxing-day/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/26/opinion/sidney-awards.html
 **Gotham FC trades Yazmeen Ryan to Houston after working 'tirelessly to honor her request' to move**\
 `Ryan joins Houston after two successful season at Gotham.`\
 https://nytimes.com/athletic/6020801/2024/12/26/gotham-fc-yazmeen-ryan-houston-dash-trade/
-
-**Sugar Pie DeSanto, Gritty Soul Singer, Is Dead at 89**\
-`A powerful performer who paved the way for later soul and hip-hop artists, she recorded with Etta James and toured with Johnny Otis and James Brown.`\
-https://nytimes.com/2024/12/26/arts/music/sugar-pie-desanto-dead.html
 
