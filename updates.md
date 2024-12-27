@@ -1,3 +1,7 @@
+**Yellen Warns ‘Extraordinary Measures’ Will Be Needed to Avoid Default**\
+`The Treasury secretary urged Congress to protect the full faith and credit of the United States by raising the debt limit.`\
+https://nytimes.com/2024/12/27/business/economy/yellen-debt-limit-warning-congress.html
+
 **Commanders to be without Lattimore vs. Falcons as hamstring injury lingers**\
 `Lattimore previously missed the initial four games after the Commanders acquired him from the New Orleans Saints at the trade deadline.`\
 https://nytimes.com/athletic/6022295/2024/12/27/commanders-marshon-lattimore-injury-falcons/
