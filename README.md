@@ -1,3 +1,7 @@
+**Yellen Warns ‘Extraordinary Measures’ Will Be Needed to Avoid Default**\
+`The Treasury secretary urged Congress to protect the full faith and credit of the United States by raising the debt limit.`\
+https://nytimes.com/2024/12/27/business/economy/yellen-debt-limit-warning-congress.html
+
 **Commanders to be without Lattimore vs. Falcons as hamstring injury lingers**\
 `Lattimore previously missed the initial four games after the Commanders acquired him from the New Orleans Saints at the trade deadline.`\
 https://nytimes.com/athletic/6022295/2024/12/27/commanders-marshon-lattimore-injury-falcons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6022219/2024/12/27/ashton-jeanty-penn-state-cfp-fie
 **Here’s how Gleyber Torres will fit with the Tigers**\
 `Torres signed a one-year deal worth $15 million. What are the pros and cons for Detroit, and what does this mean for Colt Keith?`\
 https://nytimes.com/athletic/6022200/2024/12/27/detroit-tigers-gleyber-torres-fit/
-
-**Los Angeles Building Featured on Doors’ ‘Morrison Hotel’ Cover Burns**\
-`The building, now boarded up, was made famous when it was featured on the cover of the 1970 album “Morrison Hotel.”`\
-https://nytimes.com/2024/12/27/us/morrison-hotel-doors-fire.html
 
