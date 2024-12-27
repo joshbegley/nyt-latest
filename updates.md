@@ -1,3 +1,7 @@
+**Traveling This Weekend? Where Weather May Complicate Your Plans**\
+`A day-by-day look at the rain and snow expected across the United States, and a peek at the New Year’s Eve forecast.`\
+https://nytimes.com/2024/12/27/weather/travel-forecast-new-years.html
+
 **Arlene Croce Elevated Dance Criticism With Style and Daring**\
 `She was The New Yorker’s first dance critic. Her wit could be devastating but behind it was a belief in beauty.`\
 https://nytimes.com/2024/12/27/arts/dance/arlene-croce-dance-critic-appraisal.html
