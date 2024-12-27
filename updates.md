@@ -1,3 +1,15 @@
+**Penn State defense focused on Ashton Jeanty in Fiesta Bowl preparations**\
+`The one person likely determining whether the Nittany Lions’ Playoff run continues is Jeanty.`\
+https://nytimes.com/athletic/6022219/2024/12/27/ashton-jeanty-penn-state-cfp-fiesta-bowl/
+
+**Here’s how Gleyber Torres will fit with the Tigers**\
+`Torres signed a one-year deal worth $15 million. What are the pros and cons for Detroit, and what does this mean for Colt Keith?`\
+https://nytimes.com/athletic/6022200/2024/12/27/detroit-tigers-gleyber-torres-fit/
+
+**Los Angeles Building Featured on Doors’ ‘Morrison Hotel’ Cover Burns**\
+`The building, now boarded up, was made famous when it was featured on the cover of the 1970 album “Morrison Hotel.”`\
+https://nytimes.com/2024/12/27/us/morrison-hotel-doors-fire.html
+
 **A Strange Banging Sound, Chaos and Prayers Before a Plane Crashes**\
 `Flight attendants and a passenger described the moments before an Azerbaijan Airlines flight went down in Kazakhstan, killing dozens.`\
 https://nytimes.com/2024/12/27/world/europe/azerbaijan-airlines-crash-kazakhstan-survivors.html

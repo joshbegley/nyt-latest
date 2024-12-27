@@ -1,3 +1,15 @@
+**Penn State defense focused on Ashton Jeanty in Fiesta Bowl preparations**\
+`The one person likely determining whether the Nittany Lions’ Playoff run continues is Jeanty.`\
+https://nytimes.com/athletic/6022219/2024/12/27/ashton-jeanty-penn-state-cfp-fiesta-bowl/
+
+**Here’s how Gleyber Torres will fit with the Tigers**\
+`Torres signed a one-year deal worth $15 million. What are the pros and cons for Detroit, and what does this mean for Colt Keith?`\
+https://nytimes.com/athletic/6022200/2024/12/27/detroit-tigers-gleyber-torres-fit/
+
+**Los Angeles Building Featured on Doors’ ‘Morrison Hotel’ Cover Burns**\
+`The building, now boarded up, was made famous when it was featured on the cover of the 1970 album “Morrison Hotel.”`\
+https://nytimes.com/2024/12/27/us/morrison-hotel-doors-fire.html
+
 **Bird Flu Samples From Very Ill Patient Had ‘Concerning’ Mutations**\
 `Tiny genetic alterations could help the bird flu virus enter cells in the upper respiratory tract, the C.D.C. said. But there is no sign that mutations are widespread in nature.`\
 https://nytimes.com/2024/12/27/health/bird-flu-mutations-louisiana.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6022105/2024/12/27/ohio-state-defense-oregon-rose-b
 **Why the New Fight Inside MAGA Matters So Much**\
 `It’s what happens when a free-market party confronts reactionary protectionism.`\
 https://nytimes.com/2024/12/27/opinion/trump-musk-ramaswamy-immigration.html
-
-**Investigators Using Video Surveillance to Identify Subway Burn Victim**\
-`The Brooklyn district attorney said the police were trying to retrace the woman’s steps to find a clear picture of her face. The man accused of killing her has been indicted on a first-degree murder charge.`\
-https://nytimes.com/2024/12/27/nyregion/subway-fire-death.html
-
-**Kaprizov out vs. Stars: What we know about timeline, how Wild will adjust**\
-`Kaprizov has been one of the league's top players this season — and its fourth-leading scorer, with 23 goals and 50 points.`\
-https://nytimes.com/athletic/6022163/2024/12/27/kirill-kaprizov-injury-wild-stars/
-
-**Enforcement of Anti-Money-Laundering Law Blocked After Court Reversal**\
-`Businesses will not have to reveal their owners after an appeals court reversed a move that would have forced them to disclose the information by Jan. 1.`\
-https://nytimes.com/2024/12/27/us/court-corporate-transparency-act.html
 
