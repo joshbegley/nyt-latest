@@ -1,3 +1,19 @@
+**Welbeck 'very doubtful' for next two Brighton games - Hurzeler**\
+`Brighton &amp; Hove Albion&#8217;s top goal scorer Danny Welbeck is expected to miss the rest of 2024 with an ankle injury.`\
+https://nytimes.com/athletic/6015451/2024/12/27/danny-welbeck-injury-update/
+
+**Months After Hamptons Tragedy, Widow Contends With a Tangle of Debt**\
+`On Instagram, Candice Miller showed the world glittering parties and vacations. When her husband, Brandon Miller, died, he had $33.6 million in debt and just $8,000 in the bank.`\
+https://nytimes.com/2024/12/27/nyregion/candice-miller-mama-and-tata-widow-debt.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/27/crosswords/spelling-bee-forum.html
+
+**What Leicester need to go right in their fight for survival**\
+`The four areas that need to turn in Leicester's favour as they reach the season's mid-point - Ruud van Nistelrooy has a job on`\
+https://nytimes.com/athletic/6021062/2024/12/27/leicester-survival-relegation-battle/
+
 **What Leicester need to go right in their fight for survival**\
 `The four areas that need to turn in Leicester's favour as they reach the season's mid-point.`\
 https://nytimes.com/athletic/6021062/2024/12/27/leicester-survival-relegation-battle/
