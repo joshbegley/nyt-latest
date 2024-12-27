@@ -1,3 +1,15 @@
+**Kirill Kaprizov out vs. Stars: What we know about his timeline, and how the Wild will adjust**\
+`Kaprizov has been one of the league's top players this season — and its fourth-leading scorer, with 23 goals and 50 points.`\
+https://nytimes.com/athletic/6022163/2024/12/27/kirill-kaprizov-injury-wild-stars/
+
+**Enforcement of Anti-Money-Laundering Law Blocked After Court Reversal**\
+`Businesses will not have to reveal their owners after an appeals court reversed a move that would have forced them to disclose the information by Jan. 1.`\
+https://nytimes.com/2024/12/27/us/court-corporate-transparency-act.html
+
+**North Korea Is Experiencing Mass Casualties in Russia, White House Says**\
+`The North Korean losses amount to almost 10 percent of the country’s deployment to Russia, the Biden administration said.`\
+https://nytimes.com/2024/12/27/us/politics/north-korea-russia-war-casualties.html
+
 **A Blog, an Anonymous Writer and Twin Brothers Accused of Sexual Assault**\
 `Years before they were charged with sex crimes, Oren and Alon Alexander took legal action to find a mystery blogger who claimed they had committed sexual assault as teenagers.`\
 https://nytimes.com/2024/12/27/realestate/alexander-brothers-real-estate-blog-post-sexual-assault.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6022087/2024/12/27/anthony-richardson-injury-update
 **The President-Elect Comments Often on the Men Around Him**\
 `“These guys are specimens.”`\
 https://nytimes.com/2024/12/27/style/donald-trump-compliments-looks-men.html
-
-**Ruth Butler, Who Brought Artists’ Muses to Life, Dies at 93**\
-`After publishing a definitive biography of Rodin, she went on to write about the underappreciated women who modeled for the giants of 19th-century French art.`\
-https://nytimes.com/2024/12/27/arts/ruth-butler-dead.html
-
-**Traveling This Weekend? Where Weather May Complicate Your Plans**\
-`A day-by-day look at the rain and snow expected across the United States, and a peek at the New Year’s Eve forecast.`\
-https://nytimes.com/2024/12/27/weather/travel-forecast-new-years.html
-
-**Arlene Croce Elevated Dance Criticism With Style and Daring**\
-`She was The New Yorker’s first dance critic. Her wit could be devastating but behind it was a belief in beauty.`\
-https://nytimes.com/2024/12/27/arts/dance/arlene-croce-dance-critic-appraisal.html
 
