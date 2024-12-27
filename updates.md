@@ -1,3 +1,11 @@
+**The stars and sports that captivated collectors in 2024**\
+`The trends that defined the sports card world in 2024, plus what 2025 might hold for the top names`\
+https://nytimes.com/athletic/6020475/2024/12/27/top-sports-cards-2024-jordan-wembanyama-clark/
+
+**Video Shows Prison Officers’ Fatal Assault of Inmate in ‘Shocking’ Detail**\
+`Robert Brooks died after a savage attack at a New York prison this month that was captured by several officers’ body-worn cameras.`\
+https://nytimes.com/2024/12/27/nyregion/marcy-correctional-inmate-death-video-ny-prison.html
+
 **In Trump’s Mind, Greenland Is Just Real Estate**\
 `But that doesn’t mean he can buy it.`\
 https://nytimes.com/2024/12/27/opinion/greenland-trump-real-estate.html
