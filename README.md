@@ -1,3 +1,7 @@
+**South Korea’s Acting President Faces Impeachment Vote**\
+`As the nation’s president awaits an impeachment trial over an ill-fated martial law bid, its prime minister and interim leader may face an ousting of his own.`\
+https://nytimes.com/2024/12/26/world/asia/south-korea-impeach-president-han.html
+
 **Corrections: Dec. 27, 2024**\
 `Corrections that appeared in print on Friday, Dec. 27, 2024.`\
 https://nytimes.com/2024/12/26/pageoneplus/corrections-dec-27-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019645/2024/12/26/liverpool-premier-league-manches
 **Reagan Backed Off His Panama Threats. Will Trump?**\
 `He may be hungry for global disorder.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/trump-greenland-panama-carter
-
-**How They Celebrated the Holidays 250 Miles Above Earth**\
-`The astronauts on the I.S.S. — including two who were scheduled to return months ago — held a zero-gravity cookie-decorating contest and built a reindeer from storage bags.`\
-https://nytimes.com/2024/12/26/science/iss-astronauts-holiday-celebration.html
 
