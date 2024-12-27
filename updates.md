@@ -1,3 +1,11 @@
+**Cunha banned for five matches after altercation with Ipswich staff member**\
+`Wolverhampton Wanderers striker Matheus Cunha has been banned for five matches after an altercation with an Ipswich Town security guard.`\
+https://nytimes.com/athletic/6000628/2024/12/27/matheus-cunha-suspension-wolves/
+
+**The Bounce: Are the 76ers finally back? Plus, Pat Riley has had enough of the rumors**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6021594/2024/12/27/76ers-joel-embiid-heat-pat-riley-jimmy-butler-nba-the-bounce/
+
 **Italian Journalist Is Detained While Reporting in Iran**\
 `Cecilia Sala, 29, was arrested on Dec. 19, but news of her detention only became public on Friday. The reason for the arrest of Ms. Sala, a well-known reporter, has not been made public.`\
 https://nytimes.com/2024/12/27/world/middleeast/cecilia-sala-italian-journalist-arrested-iran.html
