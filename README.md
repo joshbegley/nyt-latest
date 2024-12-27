@@ -1,3 +1,11 @@
+**Trucks Carrying Aid Finally Reach Sudan’s War-Torn Capital Region**\
+`After 20 months of war, and three months of negotiations with the warring sides, a bit of relief arrives for some of the hundreds of thousands of people facing famine.`\
+https://nytimes.com/2024/12/27/world/africa/aid-trucks-sudan-capital-famine.html
+
+**Chargers activate Dobbins from IR ahead of Saturday's game vs. Patriots**\
+`The Chargers' leading rusher has missed the last four games due to a knee injury suffered in Week 12 against his former team.`\
+https://nytimes.com/athletic/6022305/2024/12/27/chargers-activate-jk-dobbins-patriots/
+
 **Yellen Warns ‘Extraordinary Measures’ Will Be Needed to Avoid Default**\
 `The Treasury secretary urged Congress to protect the full faith and credit of the United States by raising the debt limit.`\
 https://nytimes.com/2024/12/27/business/economy/yellen-debt-limit-warning-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6022267/2024/12/27/scottie-scheffler-broken-glass-h
 **Duran to serve three-game ban after FA rejects red card appeal**\
 `Jhon Duran will serve a three-game ban after Aston Villa had their appeal against his red card rejected by the Football Association (FA).`\
 https://nytimes.com/athletic/6022228/2024/12/27/jhon-duran-ban-appeal-red-card/
-
-**Can Penn State stop Ashton Jeanty? 'He just doesn’t go down'**\
-`The one person likely determining whether the Nittany Lions’ Playoff run continues is Jeanty.`\
-https://nytimes.com/athletic/6022219/2024/12/27/ashton-jeanty-penn-state-cfp-fiesta-bowl/
-
-**Here’s how Gleyber Torres will fit with the Tigers**\
-`Torres signed a one-year deal worth $15 million. What are the pros and cons for Detroit, and what does this mean for Colt Keith?`\
-https://nytimes.com/athletic/6022200/2024/12/27/detroit-tigers-gleyber-torres-fit/
 
