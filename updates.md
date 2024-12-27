@@ -1,3 +1,11 @@
+**Migrants and End of Covid Restrictions Fuel Jump in U.S. Homelessness**\
+`The federal government blamed factors including the surge in migrants seeking asylum and the end of pandemic-era measures to protect the needy.`\
+https://nytimes.com/2024/12/27/us/homelessness-hit-record-level-in-2024.html
+
+**What We Know About the Ship Finland Seized Over Fears of Sabotage**\
+`Finland seized an oil tanker that authorities believe might have deliberately cut vital undersea cables. Finnish authorities believe the tanker may be linked to Russia.`\
+https://nytimes.com/2024/12/27/world/europe/finland-ship-russia-sabotage.html
+
 **NFL Week 17 injuries and fantasy tips: Cardinals backfield banged up**\
 `Who's in and who's out for Week 17? Plus weather reports, game previews and fantasy football rankings. `\
 https://nytimes.com/athletic/6019528/2024/12/27/nfl-week-17-inactives-and-fantasy-tips/
