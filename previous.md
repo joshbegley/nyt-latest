@@ -1,3 +1,11 @@
+**2024 Notable Deaths**\
+`As the year winds to a close, we’re recalling those we’ve lost who forged consequential lives.`\
+https://nytimes.com/interactive/2024/obituaries/notable-deaths.html
+
+**Colts QB Richardson misses practice, but not ruled out for Sunday**\
+`“We’ll see how the next 48 hours go,” coach Shane Steichen said.`\
+https://nytimes.com/athletic/6022087/2024/12/27/anthony-richardson-injury-update-colts-qb/
+
 **The President-Elect Comments Often on the Men Around Him**\
 `“These guys are specimens.”`\
 https://nytimes.com/2024/12/27/style/donald-trump-compliments-looks-men.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/27/obituaries/obituaries-deaths-2024.html
 **Tennessee RB Dylan Sampson declares for NFL draft**\
 `Sampson, the SEC offensive player of the year, finished the 2024 season with 1,491 rushing yards and 22 touchdowns.`\
 https://nytimes.com/athletic/6021950/2024/12/27/dylan-sampson-nfl-draft-tennessee-football/
-
-**Canadian Ministers to Meet Trump Aides at Mar-a-Lago to Discuss Border, and Tariffs**\
-`President-elect Donald J. Trump has threatened to impose tariffs on Canadian exports unless the country stops the flow of migrants and fentanyl to the U.S.`\
-https://nytimes.com/2024/12/27/world/canada/canada-ministers-trump-border-tariffs.html
-
-**In Trump’s Mind, Greenland Is Just Real Estate**\
-`But that doesn’t mean he can buy it.`\
-https://nytimes.com/2024/12/27/opinion/greenland-trump-real-estate.html
 

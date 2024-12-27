@@ -1,3 +1,11 @@
+**2024 Notable Deaths**\
+`As the year winds to a close, we’re recalling those we’ve lost who forged consequential lives.`\
+https://nytimes.com/interactive/2024/obituaries/notable-deaths.html
+
+**Colts QB Richardson misses practice, but not ruled out for Sunday**\
+`“We’ll see how the next 48 hours go,” coach Shane Steichen said.`\
+https://nytimes.com/athletic/6022087/2024/12/27/anthony-richardson-injury-update-colts-qb/
+
 **The President-Elect Comments Often on the Men Around Him**\
 `“These guys are specimens.”`\
 https://nytimes.com/2024/12/27/style/donald-trump-compliments-looks-men.html
