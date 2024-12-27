@@ -1,3 +1,7 @@
+**The Evening: Record Homelessness in the U.S.**\
+`Plus, how to get fitter in 2025.`\
+https://nytimes.com/2024/12/27/briefing/homelessness-epa-forever-chemicals-south-korea.html
+
 **Kings fire Mike Brown after 13-18 start to season: Source**\
 `Brown helped the Kings end a 16-year playoff drought in his first season, but Sacramento currently sits 12th in the West.`\
 https://nytimes.com/athletic/6022342/2024/12/27/mike-brown-kings-fired-nba/
