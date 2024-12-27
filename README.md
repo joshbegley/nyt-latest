@@ -1,3 +1,7 @@
+**The top NFL media stories of 2024: Tom Brady debuts, Netflix steps in and more**\
+`The NFL story will, of course, continue in 2025 and beyond, but here we offer eight NFL media stories that captured our interest in 2024.`\
+https://nytimes.com/athletic/6016190/2024/12/27/nfl-media-stories-of-2024-tom-brady-netflix-brazil/
+
 **Israeli Military Forces Patients and Staff to Leave Hospital in Northern Gaza**\
 `The hospital, Kamal Adwan, has been caught in the middle of Israel’s offensive against Hamas militants in northern Gaza.`\
 https://nytimes.com/2024/12/27/world/middleeast/israel-gaza-hospital-raid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6021537/2024/12/27/tottenham-team-news-ben-davies-i
 **Overlooked Stories**\
 `Read some of our best journalism that you may have missed this year.`\
 https://nytimes.com/2024/12/27/briefing/overlooked-stories.html
-
-**AFC North Whiparound: Biggest Christmas Day surprise, making a case for individual awards**\
-`Plus, our writers discuss what stood out most about this week's episode of "Hard Knocks" and make game predictions. `\
-https://nytimes.com/athletic/6020542/2024/12/27/afc-north-bengals-steelers-ravens-browns/
 
