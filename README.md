@@ -1,3 +1,7 @@
+**Read the document**\
+`President-elect Donald J. Trump filed a brief asking the Supreme Court to block a law that requires TikTok to be sold or shut down by Jan. 19, the day before his inauguration,`\
+https://nytimes.com/interactive/2024/12/27/us/tiktoktrumpamicusbrief.html
+
 **Ex-N.Y.P.D. Leader Denies Sexual Abuse Accusations, Through His Lawyer**\
 `Jeffrey Maddrey, until last week the Police Department’s top uniformed officer, faced reporters for the first time since resigning. He did not say a word.`\
 https://nytimes.com/2024/12/27/nyregion/nypd-jeffrey-maddrey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/27/us/politics/tiktok-ban-supreme-court-trump.html
 **Saka out for 'more than two months' after hamstring surgery - Arteta**\
 `Bukayo Saka faces &#8220;more than two months&#8221; on the sidelines after undergoing surgery to repair his torn hamstring, says Mikel Arteta.`\
 https://nytimes.com/athletic/6016479/2024/12/27/bukayo-saka-surgery-arsenal/
-
-**Greg Gumbel, longtime March Madness and NFL broadcaster, dies at 78**\
-`With a voice synonymous with Selection Sunday and the NFL, Gumbel became one of the most recognizable broadcasters in sports.`\
-https://nytimes.com/athletic/6022424/2024/12/27/greg-gumbel-cbs-cancer-death/
 
