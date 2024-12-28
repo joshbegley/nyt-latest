@@ -1,3 +1,7 @@
+**Chelsea gambled by not agreeing a cheaper shirt sponsor deal - will they reap the reward?**\
+`Unusually, Chelsea players have not had a sponsor's logo on their chests so far this season - but there is a sense of a calculated gamble`\
+https://nytimes.com/athletic/6017926/2024/12/28/chelsea-sponsorship-shirt-why/
+
 **Nurkić, Marshall, Washington ejected after Suns-Mavs brawl**\
 `Mavericks forward P.J. Washington was also ejected for shoving Nurkić during the brawl.`\
 https://nytimes.com/athletic/6023250/2024/12/28/mavericks-suns-nurkic-washington-marshall-fight-ejections/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023132/2024/12/28/usc-texas-am-las-vegas-bowl/
 **Game programs from Nebraska's 1962 Gotham Bowl are a rare — and pricey — find**\
 `An eBay retailer in New York said he sold one a 1962 Gotham Bowl game program this year for $10,000.`\
 https://nytimes.com/athletic/6022632/2024/12/28/nebraska-college-football-gotham-pinstripe-bowl-history-programs/
-
-**World Juniors Today: Latvia's epic upset over Canada, visiting fans enjoy Ottawa**\
-`Welcome to Day 3 of the 2025 World Juniors in Ottawa.`\
-https://nytimes.com/athletic/6007069/2024/12/28/world-juniors-today-latvia-canada/
 

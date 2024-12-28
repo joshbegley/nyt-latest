@@ -1,3 +1,7 @@
+**Chelsea gambled by not agreeing a cheaper shirt sponsor deal - will they reap the reward?**\
+`Unusually, Chelsea players have not had a sponsor's logo on their chests so far this season - but there is a sense of a calculated gamble`\
+https://nytimes.com/athletic/6017926/2024/12/28/chelsea-sponsorship-shirt-why/
+
 **Nurkić, Marshall, Washington ejected after Suns-Mavs brawl**\
 `Mavericks forward P.J. Washington was also ejected for shoving Nurkić during the brawl.`\
 https://nytimes.com/athletic/6023250/2024/12/28/mavericks-suns-nurkic-washington-marshall-fight-ejections/
