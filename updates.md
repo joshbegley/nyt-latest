@@ -1,3 +1,7 @@
+**Liverpool's 2024: Klopp shock, imperious Van Dijk and a stunning Slot statistic**\
+`A year that started with a managerial bombshell is ending in glorious fashion - here's our picks of 2025`\
+https://nytimes.com/athletic/6003222/2024/12/28/liverpool-2024-review-slot-klopp/
+
 **Youssef Chermiti: 'Everton phoned every day to sign me - I'd had lots of calls from clubs'**\
 `Youssef Chermiti arrived at Everton as one of most wanted young forwards in Europe - after summer setback he wants to make up for lost time`\
 https://nytimes.com/athletic/6009529/2024/12/28/youssef-chermiti-everton-interview/
