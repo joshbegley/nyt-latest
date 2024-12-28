@@ -1,3 +1,7 @@
+**Your Best Advice of 2024**\
+`As we start to look ahead, here’s the best advice that readers of The Morning received this year.`\
+https://nytimes.com/2024/12/28/briefing/your-best-advice-of-2024.html
+
 **The Gauthier-Drysdale trade, revisited: Did the Flyers and Ducks get what they expected?**\
 `After the high-profile trade, both young players are still attempting to solidify themselves in the NHL.`\
 https://nytimes.com/athletic/6022544/2024/12/28/flyers-ducks-gauthier-drysdale-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/movies/anora-brooklyn-sean-baker.html
 **My Condo Sponsor Owes the Building $30,000. How Do We Make Him Pay?**\
 `The office of the New York State attorney general calls the failure of building sponsors to pay dues on unsold units a “serious” problem.`\
 https://nytimes.com/2024/12/28/realestate/condominiums-sponsor-fees.html
-
-**Perhaps You Didn’t Know Pamela Anderson Is a Cinephile**\
-`The Golden Globe-nominated star of “The Last Showgirl” is a Criterion Channel fan. “I watch every night before I go to bed. I love Godard and Fellini and Herzog and Cassavetes.”`\
-https://nytimes.com/2024/12/28/movies/pamela-anderson-last-showgirl.html
 

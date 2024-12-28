@@ -1,3 +1,7 @@
+**Your Best Advice of 2024**\
+`As we start to look ahead, here’s the best advice that readers of The Morning received this year.`\
+https://nytimes.com/2024/12/28/briefing/your-best-advice-of-2024.html
+
 **The Gauthier-Drysdale trade, revisited: Did the Flyers and Ducks get what they expected?**\
 `After the high-profile trade, both young players are still attempting to solidify themselves in the NHL.`\
 https://nytimes.com/athletic/6022544/2024/12/28/flyers-ducks-gauthier-drysdale-trade/
