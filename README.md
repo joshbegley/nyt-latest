@@ -1,3 +1,15 @@
+**Multi-Hyphenates**\
+`Harry Zheng presents a too-fun-to-fail inaugural Sunday puzzle.`\
+https://nytimes.com/2024/12/28/crosswords/daily-puzzle-2024-12-29.html
+
+**State Dept. Designates American Teacher Held in Russia as ‘Wrongfully Detained’**\
+`Marc Fogel was convicted of drug smuggling and sentenced in 2022 to 14 years in prison by the same court that handled the case of Brittney Griner.`\
+https://nytimes.com/2024/12/28/us/politics/marc-fogel-wrongfully-detained.html
+
+**NHL investigating potential CBA violation by Stars for optional practice over holiday break**\
+`Stars coach Pete DeBoer said that Dallas' young players practiced Thursday during a mandated NHL off day and that they were "supposed to."`\
+https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice/
+
 **Severe Weekend Weather Disrupts Holiday Travel**\
 `More than 7,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
 https://nytimes.com/2024/12/28/us/storm-tornado-travel-delays.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6023587/2024/12/28/titans-rb-tony-pollard-out-ankle
 **Cam Ward breaks Case Keenum's D-I touchdown passes record**\
 `Ward may not hold on to the record for too long. Oregon quarterback Dillon Gabriel has thrown 153 career touchdown passes.`\
 https://nytimes.com/athletic/6023730/2024/12/28/cam-ward-d1-touchdown-passes-record/
-
-**Wazzu hiring South Dakota State's Jimmy Rogers as next coach: Sources**\
-`The Jackrabbits won their second consecutive FCS national title in Rogers' first season in charge, then made the semifinals this year.`\
-https://nytimes.com/athletic/6023508/2024/12/28/washington-state-coach-jimmy-rogers-sdsu/
-
-**Gunner Stockton’s cows, Mike Bobo’s self-awareness: Takeaways before Sugar Bowl**\
-`What's the plan for Stockton and the Georgia offense vs. Notre Dame in the Sugar Bowl? `\
-https://nytimes.com/athletic/6023602/2024/12/28/georgia-notre-dame-sugar-bowl-cfp-gunner-stockton/
-
-**Nebraska holds off Boston College rally in Pinstripe Bowl, clinches first winning season since 2016**\
-`The Huskers issues on special teams continued, making their 20-15 win over the Eagles more difficult than it should have been.`\
-https://nytimes.com/athletic/6023652/2024/12/28/nebraska-boston-college-score-analysis-college-football-pinstripe-bowl/
 
