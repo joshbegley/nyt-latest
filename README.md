@@ -1,3 +1,7 @@
+**World Juniors Today: Latvia's epic upset over Canada, visiting fans enjoy Ottawa**\
+`Welcome to Day 3 of the 2025 World Juniors in Ottawa.`\
+https://nytimes.com/athletic/6007069/2024/12/28/world-juniors-today-latvia-canada/
+
 **Syria’s New Government Steps Up Pursuit of Assad Loyalists**\
 `Finding the remnants of the old dictatorship and bringing them to justice has emerged as a top priority for the new administration in Syria.`\
 https://nytimes.com/2024/12/28/world/middleeast/syria-government-arrests-human-rights.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6022241/2024/12/28/nhl-2025-new-years-resolutions/
 **The 19th-Century Technology That Threatens A.I.**\
 `The biggest thing holding America back from dominance in artificial intelligence is the country’s inability to keep up with the demand for electricity.`\
 https://nytimes.com/2024/12/28/opinion/ai-electricity-power-plants.html
-
-**Your Best Advice of 2024**\
-`As we start to look ahead, here’s the best advice that readers of The Morning received this year.`\
-https://nytimes.com/2024/12/28/briefing/your-best-advice-of-2024.html
 
