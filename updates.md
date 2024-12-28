@@ -1,3 +1,7 @@
+**Shigeko Sasamori, Hiroshima Survivor Who Preached Peace, Dies at 92**\
+`Severely disfigured when the United States dropped an atomic bomb on Japan, she spent her life warning others about the dangers of nuclear war.`\
+https://nytimes.com/2024/12/28/world/asia/shigeko-sasamori-dead.html
+
 **Shigeko Sasamori, Hiroshima Survivor Who Preached Peace, Dies at 91**\
 `Severely disfigured when the United States dropped an atomic bomb on Japan, she spent her life warning others about the dangers of nuclear war.`\
 https://nytimes.com/2024/12/28/world/asia/shigeko-sasamori-dead.html
