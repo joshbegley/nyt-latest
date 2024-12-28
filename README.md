@@ -1,3 +1,7 @@
+**Interior Dept. Is Caught Between Tribes in Casino Battles**\
+`The Biden administration’s consideration of three proposed tribal casinos in California and Oregon has touched off a fierce debate about tribal sovereignty and land rights.`\
+https://nytimes.com/2024/12/28/us/politics/tribes-casinos.html
+
 **Guards in Fatal Prison Assault Were Accused of Beating Inmates Before**\
 `Three of the 13 guards implicated in the savage beating of Robert Brooks had been accused in lawsuits of earlier attacks in New York prisons.`\
 https://nytimes.com/2024/12/28/nyregion/robert-brooks-marcy-correctional-facility-inmate-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/dining/7-go-to-dinner-party-dinners.html
 **A Photo of Nancy Pelosi, Rediscovered Decades Later**\
 `In 1963, the politician Thomas D’Alesandro Jr. submitted a photo to appear with The New York Times’s announcement of his daughter’s engagement.`\
 https://nytimes.com/2024/12/28/insider/nancy-pelosi-engagement-photo.html
-
-**Chelsea gambled by not agreeing a cheaper shirt sponsor deal - will they reap the reward?**\
-`Unusually, Chelsea players have not had a sponsor's logo on their chests so far this season - but there is a sense of a calculated gamble`\
-https://nytimes.com/athletic/6017926/2024/12/28/chelsea-sponsorship-shirt-why/
 
