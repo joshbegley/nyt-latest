@@ -1,3 +1,7 @@
+**Liverpool's 2024: Klopp shock, imperious Van Dijk and a stunning Slot statistic**\
+`A year that started with a managerial bombshell is ending in glorious fashion - here's our picks of 2025`\
+https://nytimes.com/athletic/6003222/2024/12/28/liverpool-2024-review-slot-klopp/
+
 **Youssef Chermiti: 'Everton phoned every day to sign me - I'd had lots of calls from clubs'**\
 `Youssef Chermiti arrived at Everton as one of most wanted young forwards in Europe - after summer setback he wants to make up for lost time`\
 https://nytimes.com/athletic/6009529/2024/12/28/youssef-chermiti-everton-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6015469/2024/12/28/ruud-van-nistelrooy-early-years/
 **FPL GW19 preview: Targeting Newcastle players and and holding on to Haaland**\
 `Which Man City players to keep and which to ditch, who to watch out for, and how to take advantage of Newcastle's form`\
 https://nytimes.com/athletic/6020081/2024/12/28/fpl-gameweek-19-preview/
-
-**Has Russia’s Shadow Fleet, Built to Evade Sanctions, Added Sabotage to Its List?**\
-`Russia has assembled a fleet of hundreds of vessels to covertly ship its oil. With so many ships at sea, the idea of using some to cause havoc may be proving irresistible to the Kremlin.`\
-https://nytimes.com/2024/12/28/world/europe/russia-ship-shadow-fleet-finland.html
 
