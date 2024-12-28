@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-g
 `\
 https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-grades/
 
+**Maple Leafs report cards: Toronto's stars shine bright in Detroit**\
+`Mitch Marner scored a hat trick and John Tavares recorded two assists as Toronto defeated Detroit 5-2.
+`\
+https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-grades/
+
 **Blue Origin Is Ready to Launch New Glenn Rocket After Critical Test**\
 `The company, owned by the Amazon founder Jeff Bezos, also received approval from the Federal Aviation Administration to launch the vehicle to orbit.`\
 https://nytimes.com/2024/12/27/science/new-glenn-blue-origin.html
