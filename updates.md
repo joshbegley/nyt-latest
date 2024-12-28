@@ -1,3 +1,7 @@
+**Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
+`Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
+https://nytimes.com/athletic/6016942/2024/12/28/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
+
 **Chelsea gambled by not agreeing a cheaper shirt sponsor deal - will they reap the reward?**\
 `Unusually, Chelsea players have not had a sponsor's logo on their chests so far this season - but there is a sense of a calculated gamble`\
 https://nytimes.com/athletic/6017926/2024/12/28/chelsea-sponsorship-shirt-why/
