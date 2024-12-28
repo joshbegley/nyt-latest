@@ -1,3 +1,7 @@
+**As Hopes Rise for Gaza Cease-Fire, Conditions There Have Worsened**\
+`Human rights organizations and residents describe the situation in the enclave as getting more desperate. Here is a closer look.`\
+https://nytimes.com/2024/12/28/world/middleeast/gaza-cease-fire-human-rights.html
+
 **Women's tennis storylines for 2025: Swiatek and Sabalenka's rivalry and Gauff's rebuild**\
 `The world No. 1 battle rolls on, two top players go in search of a surge and the sport reckons with its limitations`\
 https://nytimes.com/athletic/6010718/2024/12/28/swiatek-sabalenka-h2h-wta-gauff-rybakina/
