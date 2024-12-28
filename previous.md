@@ -1,3 +1,11 @@
+**Musk Doubles Down on Support for German Far-Right AfD**\
+`The world’s richest man, a key adviser to President-elect Donald Trump, ridicules critics over his backing of the German extremist party, as Germany prepares for elections.`\
+https://nytimes.com/2024/12/28/world/europe/musk-support-for-german-far-right-afd.html
+
+**Titans RB Tony Pollard out with ankle injury vs. Jaguars**\
+`Tyjae Spears will command the backfield in Tennessee's Week 17 game with the 1,000-yard rusher out. `\
+https://nytimes.com/athletic/6023587/2024/12/28/titans-rb-tony-pollard-out-ankle-injury/
+
 **Cam Ward breaks Case Keenum's D-I touchdown passes record**\
 `Ward may not hold on to the record for too long. Oregon quarterback Dillon Gabriel has thrown 153 career touchdown passes.`\
 https://nytimes.com/athletic/6023730/2024/12/28/cam-ward-d1-touchdown-passes-record/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6023529/2024/12/28/dolphins-qb-tua-tagovailoa-doubt
 **Wemby takes on patrons in chess at Washington Square Park in NYC**\
 `Wembanyama loves Legos and art and science fiction. This was just another side pursuit.`\
 https://nytimes.com/athletic/6023537/2024/12/28/victor-wembanyama-chess-washington-square-park-nyc/
-
-**Bucks' Damian Lillard plans to return from 4-game absence vs. Bulls**\
-`"I've never been that sick before in my entire life," Lillard said Saturday.`\
-https://nytimes.com/athletic/6023515/2024/12/28/damian-lillard-vs-bulls-bucks/
-
-**Michel del Castillo, 91, Dies; Child’s-Eye Chronicler of Concentration Camps**\
-`His first novel, “Tanguy,” published when he was 24, was a fact-based Holocaust story that one reviewer said “begins where Anne Frank’s diary ended.”`\
-https://nytimes.com/2024/12/28/books/michel-del-castillo-dead.html
 

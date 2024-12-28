@@ -1,3 +1,11 @@
+**Musk Doubles Down on Support for German Far-Right AfD**\
+`The world’s richest man, a key adviser to President-elect Donald Trump, ridicules critics over his backing of the German extremist party, as Germany prepares for elections.`\
+https://nytimes.com/2024/12/28/world/europe/musk-support-for-german-far-right-afd.html
+
+**Titans RB Tony Pollard out with ankle injury vs. Jaguars**\
+`Tyjae Spears will command the backfield in Tennessee's Week 17 game with the 1,000-yard rusher out. `\
+https://nytimes.com/athletic/6023587/2024/12/28/titans-rb-tony-pollard-out-ankle-injury/
+
 **Cam Ward breaks Case Keenum's D-I touchdown passes record**\
 `Ward may not hold on to the record for too long. Oregon quarterback Dillon Gabriel has thrown 153 career touchdown passes.`\
 https://nytimes.com/athletic/6023730/2024/12/28/cam-ward-d1-touchdown-passes-record/
