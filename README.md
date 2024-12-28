@@ -1,3 +1,7 @@
+**Alisson says Liverpool will 'take lessons' from last season in trophy pursuit**\
+`Liverpool goalkeeper Alisson has said that the squad will &#8220;take a lot of lessons&#8221; from last season as they aim to win trophies in 2024-25.`\
+https://nytimes.com/athletic/6023298/2024/12/28/alisson-liverpool-trophies/
+
 **NFL Week 17 injuries and fantasy tips: Eagles' Hurts out; Panthers' Hubbard shut down**\
 `Who's in and who's out for Week 17? Plus weather reports, game previews and fantasy football rankings. `\
 https://nytimes.com/athletic/6019528/2024/12/28/nfl-week-17-inactives-and-fantasy-tips/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023065/2024/12/28/mike-brown-firing-sacramento-kin
 **Anthony Edwards' hero shot and Randle-DiVincenzo tandem pave path for Wolves**\
 `Thanks to two timely wins this week, the new-look Timberwolves are resembling a team with true upside.`\
 https://nytimes.com/athletic/6022907/2024/12/28/anthony-edwards-donte-divincenzo-julius-randle-timberwolves/
-
-**Shigeko Sasamori, Hiroshima Survivor Who Preached Peace, Dies at 92**\
-`Severely disfigured when the United States dropped an atomic bomb on Japan, she spent her life warning others about the dangers of nuclear war.`\
-https://nytimes.com/2024/12/28/world/asia/shigeko-sasamori-dead.html
 
