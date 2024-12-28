@@ -1,3 +1,7 @@
+**Severe Weekend Weather Disrupts Holiday Travel**\
+`More than 7,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
+https://nytimes.com/2024/12/28/us/storm-tornado-travel-delays.html
+
 **Dodgers star Shohei Ohtani, wife Mamiko Tanaka expecting first child**\
 `The Los Angeles Dodgers star announced on his Instagram account that he and his wife are expecting their first child.  `\
 https://nytimes.com/athletic/6023803/2024/12/28/shohei-ohtani-baby-announcement/
