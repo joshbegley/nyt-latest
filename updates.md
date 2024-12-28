@@ -1,3 +1,7 @@
+**What Enciso’s many, many shots against Brentford tell us about Brighton’s faltering attack**\
+`Shots are one thing, but fashioning more clear-cut chances is pivotal to regaining the winning habit for Fabian Hurzeler's side.`\
+https://nytimes.com/athletic/6022487/2024/12/28/brighton-attack-goals-hurzeler/
+
 **Winning $1.22 Billion Mega Millions Ticket Sold in California**\
 `The identity of the jackpot winner was not immediately known, but lottery officials in California are expected to reveal it.`\
 https://nytimes.com/2024/12/28/us/mega-millions-jackpot-winner.html

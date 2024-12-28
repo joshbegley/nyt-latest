@@ -18,7 +18,7 @@ https://nytimes.com/2024/12/28/nyregion/nazli-parvizi-food-museum.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/12/28/crosswords/spelling-bee-forum.html
 
-**Brighton have stopped creating clear-cut chances and it's starting to hurt them**\
+**What Enciso’s many, many shots against Brentford tell us about Brighton’s faltering attack**\
 `Shots are one thing, but fashioning more clear-cut chances is pivotal to regaining the winning habit for Fabian Hurzeler's side.`\
 https://nytimes.com/athletic/6022487/2024/12/28/brighton-attack-goals-hurzeler/
 
