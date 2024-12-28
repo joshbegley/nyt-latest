@@ -1,3 +1,7 @@
+**Stowaway Caught on Delta Plane at Seattle Airport**\
+`The person, who boarded the flight without a ticket, was detected as the plane was preparing to take off for Hawaii on Christmas Eve.`\
+https://nytimes.com/2024/12/28/us/delta-stowaway-seattle-honolulu.html
+
 **Liverpool's 2024: Klopp shock, imperious Van Dijk and a stunning Slot statistic**\
 `A year that started with a managerial bombshell is ending in glorious fashion - here's our picks of 2025`\
 https://nytimes.com/athletic/6003222/2024/12/28/liverpool-2024-review-slot-klopp/
