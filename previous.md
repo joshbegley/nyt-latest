@@ -7,7 +7,7 @@ https://nytimes.com/2024/12/28/us/storm-tornado-travel-delays.html
 https://nytimes.com/athletic/6023803/2024/12/28/shohei-ohtani-baby-announcement/
 
 **Chargers beat Pats 40-7 to make playoffs in Harbaugh's first year: Takeaways**\
-`Los Angeles doubled its win total from last season in Harbaugh's first year at the helm. `\
+`Los Angeles has doubled its win total from last season in Harbaugh's first year at the helm. `\
 https://nytimes.com/athletic/6023423/2024/12/28/chargers-patriots-score-result-takeaways/
 
 **NFL Week 17 playoff scenarios: Broncos, Commanders eye berths**\
