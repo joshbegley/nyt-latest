@@ -1,3 +1,11 @@
+**Michel del Castillo, 91, Dies; Child’s-Eye Chronicler of Concentration Camps**\
+`His first novel, “Tanguy,” published when he was 24, was a fact-based Holocaust story that one reviewer said “begins where Anne Frank’s diary ended.”`\
+https://nytimes.com/2024/12/28/books/michel-del-castillo-dead.html
+
+**Mets explored Teoscar Hernández deal as they seek to bolster lineup**\
+`The Mets hold some interest in a reunion with free-agent Jesse Winker, league sources said`\
+https://nytimes.com/athletic/6023558/2024/12/28/mets-teoscar-hernandez-free-agency/
+
 **Panthers place Chuba Hubbard on IR with calf injury**\
 `Entering the weekend, Hubbard's breakout season saw him rank sixth in rushing in the NFL.`\
 https://nytimes.com/athletic/6023444/2024/12/28/chuba-hubbard-panthers-injured-reserve/
@@ -22,19 +30,11 @@ https://nytimes.com/2024/12/28/us/politics/tribes-casinos.html
 `Three of the 13 guards implicated in the savage beating of Robert Brooks had been accused in lawsuits of earlier attacks in New York prisons.`\
 https://nytimes.com/2024/12/28/nyregion/robert-brooks-marcy-correctional-facility-inmate-abuse.html
 
+**NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
+`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
+https://nytimes.com/athletic/5966084/2024/12/28/nfl-draft-2025-underclassmen-tracker-early-entrants/
+
 **A blank Saturday and a restricted Sunday: Explaining this weekend's Premier League fixture list**\
 `UK viewers could watch any Premier League game they liked on Boxing Day and December 27 – but that's not the case for the upcoming matches`\
 https://nytimes.com/athletic/6023325/2024/12/28/premier-league-christmas-new-year-tv-fixtures/
-
-**Georgia QB Carson Beck declares for 2025 NFL Draft**\
-`Beck led the SEC with 28 touchdown passes this season, adding 3,485 passing yards against 12 interceptions.`\
-https://nytimes.com/athletic/6023366/2024/12/28/carson-beck-nfl-draft-georgia-quarterback/
-
-**Can returning Alex Ovechkin still catch Wayne Gretzky this season? Teammates: 'Everything's in play'**\
-`Ovechkin needs 27 goals to pass Gretzky's career mark and has 48 games left on the Caps' schedule to try to get it done, starting Saturday.`\
-https://nytimes.com/athletic/6021732/2024/12/28/alex-ovechkin-return-gretzky-goals-record/
-
-**Why Jordan Love's recent success against blitzes will be pivotal against Vikings**\
-`Love has gone from one of the NFL's worst against blitzes in the first half of the season to one of the best in the second half.`\
-https://nytimes.com/athletic/6022456/2024/12/28/packers-qb-jordan-love-vikings/
 

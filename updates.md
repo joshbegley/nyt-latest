@@ -1,3 +1,15 @@
+**Michel del Castillo, 91, Dies; Child’s-Eye Chronicler of Concentration Camps**\
+`His first novel, “Tanguy,” published when he was 24, was a fact-based Holocaust story that one reviewer said “begins where Anne Frank’s diary ended.”`\
+https://nytimes.com/2024/12/28/books/michel-del-castillo-dead.html
+
+**Mets explored Teoscar Hernández deal as they seek to bolster lineup**\
+`The Mets hold some interest in a reunion with free-agent Jesse Winker, league sources said`\
+https://nytimes.com/athletic/6023558/2024/12/28/mets-teoscar-hernandez-free-agency/
+
+**NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
+`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
+https://nytimes.com/athletic/5966084/2024/12/28/nfl-draft-2025-underclassmen-tracker-early-entrants/
+
 **Panthers place Chuba Hubbard on IR with calf injury**\
 `Entering the weekend, Hubbard's breakout season saw him rank sixth in rushing in the NFL.`\
 https://nytimes.com/athletic/6023444/2024/12/28/chuba-hubbard-panthers-injured-reserve/
