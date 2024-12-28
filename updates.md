@@ -1,3 +1,7 @@
+**Can returning Alex Ovechkin still catch Wayne Gretzky this season? Teammates: 'Everything's in play'**\
+`Ovechkin needs 27 goals to pass Gretzky's career mark and has 48 games left on the Caps' schedule to try to get it done, starting Saturday.`\
+https://nytimes.com/athletic/6021732/2024/12/28/alex-ovechkin-return-gretzky-goals-record/
+
 **Why Jordan Love's recent success against blitzes will be pivotal against Vikings**\
 `Love has gone from one of the NFL's worst against blitzes in the first half of the season to one of the best in the second half.`\
 https://nytimes.com/athletic/6022456/2024/12/28/packers-qb-jordan-love-vikings/
