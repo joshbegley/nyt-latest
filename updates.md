@@ -1,3 +1,7 @@
+**Guards in Fatal Prison Assault Were Accused of Beating Inmates Before**\
+`Three of the 13 guards implicated in the savage beating of Robert Brooks had been accused in lawsuits of earlier attacks in New York prisons.`\
+https://nytimes.com/2024/12/28/nyregion/robert-brooks-marcy-correctional-facility-inmate-abuse.html
+
 **A blank Saturday and a restricted Sunday: Explaining this weekend's Premier League fixture list**\
 `UK viewers could watch any Premier League game they liked on Boxing Day and December 27 – but that's not the case for the upcoming matches`\
 https://nytimes.com/athletic/6023325/2024/12/28/premier-league-christmas-new-year-tv-fixtures/
