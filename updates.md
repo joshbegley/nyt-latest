@@ -1,3 +1,7 @@
+**Alisson says Liverpool will 'take lessons' from last season in trophy pursuit**\
+`Liverpool goalkeeper Alisson has said that the squad will &#8220;take a lot of lessons&#8221; from last season as they aim to win trophies in 2024-25.`\
+https://nytimes.com/athletic/6023298/2024/12/28/alisson-liverpool-trophies/
+
 **NFL Week 17 injuries and fantasy tips: Eagles' Hurts out; Panthers' Hubbard shut down**\
 `Who's in and who's out for Week 17? Plus weather reports, game previews and fantasy football rankings. `\
 https://nytimes.com/athletic/6019528/2024/12/28/nfl-week-17-inactives-and-fantasy-tips/
