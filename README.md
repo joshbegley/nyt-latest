@@ -1,3 +1,7 @@
+**Cam Ward breaks Case Keenum's D-I touchdown passes record**\
+`Ward may not hold on to the record for too long. Oregon quarterback Dillon Gabriel has thrown 153 career touchdown passes.`\
+https://nytimes.com/athletic/6023730/2024/12/28/cam-ward-d1-touchdown-passes-record/
+
 **Wazzu hiring South Dakota State's Jimmy Rogers as next coach: Sources**\
 `The Jackrabbits won their second consecutive FCS national title in Rogers' first season in charge, then made the semifinals this year.`\
 https://nytimes.com/athletic/6023508/2024/12/28/washington-state-coach-jimmy-rogers-sdsu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023515/2024/12/28/damian-lillard-vs-bulls-bucks/
 **Michel del Castillo, 91, Dies; Child’s-Eye Chronicler of Concentration Camps**\
 `His first novel, “Tanguy,” published when he was 24, was a fact-based Holocaust story that one reviewer said “begins where Anne Frank’s diary ended.”`\
 https://nytimes.com/2024/12/28/books/michel-del-castillo-dead.html
-
-**Mets explored Teoscar Hernández deal as they seek to bolster lineup**\
-`The Mets hold some interest in a reunion with free-agent Jesse Winker, league sources said`\
-https://nytimes.com/athletic/6023558/2024/12/28/mets-teoscar-hernandez-free-agency/
 
