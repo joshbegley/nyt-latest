@@ -1,3 +1,7 @@
+**Greg Gumbel, Familiar Voice to Football and Basketball Fans, Dies at 78**\
+`The sportscaster combined play-by-play excitement with a knack for precision in his decades as a sports broadcaster calling N.F.L. and N.C.A.A. games for CBS.`\
+https://nytimes.com/2024/12/27/business/media/greg-gumbel-dead.html
+
 **Diego Pavia says he'll return to Vanderbilt if coaching staff remains**\
 `Pavia was recently granted an extra season by a Tennessee court after he sued the NCAA.`\
 https://nytimes.com/athletic/6022690/2024/12/27/diego-pavia-vanderbilt-return/
