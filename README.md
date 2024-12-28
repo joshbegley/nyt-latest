@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6017926/2024/12/28/chelsea-sponsorship-shirt-why/
 `Mavericks forward P.J. Washington was also ejected for shoving Nurkić during the brawl.`\
 https://nytimes.com/athletic/6023250/2024/12/28/mavericks-suns-nurkic-washington-marshall-fight-ejections/
 
+**Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
+`Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
+https://nytimes.com/athletic/6016942/2024/12/28/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
+
 **Russini’s what I’m hearing: Vikings want Darnold back in 2025, Watson’s new deal, Brady’s big role**\
 `Plus, Giants indecision, how to stop Josh Allen, and the one question every coaching candidate should be asked.`\
 https://nytimes.com/athletic/6022956/2024/12/28/nfl-news-sam-darnold-deshaun-watson-contract-tom-brady-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/world/europe/kazakhstan-russia-azerbaijan-plane-c
 **For USC, a woeful 2024 ends with a wild Las Vegas Bowl victory**\
 `USC played badly enough to fall into a 17-point second-half hole against Texas A&M. Then it played well enough to overcome it all.`\
 https://nytimes.com/athletic/6023132/2024/12/28/usc-texas-am-las-vegas-bowl/
-
-**Game programs from Nebraska's 1962 Gotham Bowl are a rare — and pricey — find**\
-`An eBay retailer in New York said he sold one a 1962 Gotham Bowl game program this year for $10,000.`\
-https://nytimes.com/athletic/6022632/2024/12/28/nebraska-college-football-gotham-pinstripe-bowl-history-programs/
 
