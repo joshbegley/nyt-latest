@@ -1,3 +1,11 @@
+**How Donald Trump Went From Backing a TikTok Ban to Backing Off**\
+`In 2020, he moved to ban the Chinese-owned app. Now, he is opposing the Biden administration’s effort to do just that.`\
+https://nytimes.com/2024/12/28/us/politics/trump-tik-tok-ban.html
+
+**Canadiens emerged from rock bottom to put together a 20-game stretch with real promise**\
+`The Canadiens dropped to last in the NHL standings on a big Saturday night stage in early November, but have steadily progressed ever since.`\
+https://nytimes.com/athletic/6023919/2024/12/28/canadiens-panthers-kirby-dach-cole-caufield/
+
 **Latvia hangs tight with USA, Czechia blows out Kazakhstan on Day 3 at World Juniors**\
 `Day 3 at the World Juniors was a quieter one on the schedule, with just two games on deck.`\
 https://nytimes.com/athletic/6006870/2024/12/28/world-juniors-latvia-usa-day-3/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice
 **Severe Weekend Weather Disrupts Holiday Travel**\
 `More than 8,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
 https://nytimes.com/2024/12/28/us/storm-tornado-travel-delays.html
-
-**Dodgers star Shohei Ohtani, wife Mamiko Tanaka expecting first child**\
-`The Los Angeles Dodgers star announced on his Instagram account that he and his wife are expecting their first child.  `\
-https://nytimes.com/athletic/6023803/2024/12/28/shohei-ohtani-baby-announcement/
-
-**Chargers beat Pats 40-7 to make playoffs in Harbaugh's first year: Takeaways**\
-`Los Angeles has doubled its win total from last season in Harbaugh's first year at the helm. `\
-https://nytimes.com/athletic/6023423/2024/12/28/chargers-patriots-score-result-takeaways/
 
