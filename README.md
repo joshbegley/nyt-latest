@@ -1,3 +1,7 @@
+**Syria’s New Government Steps Up Pursuit of Assad Loyalists**\
+`Finding the remnants of the old dictatorship and bringing them to justice has emerged as a top priority for the new administration in Syria.`\
+https://nytimes.com/2024/12/28/world/middleeast/syria-government-arrests-human-rights.html
+
 **Six questions facing the Rangers after the break: Schedule, Kreider, Zibanejad, Perreault and more**\
 `After a few days off for the holiday break, the Rangers are back in action Saturday. Returning too are the questions surrounding the team.`\
 https://nytimes.com/athletic/6021724/2024/12/28/rangers-questions-kreider-zibanejad-perreault/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/opinion/ai-electricity-power-plants.html
 **Your Best Advice of 2024**\
 `As we start to look ahead, here’s the best advice that readers of The Morning received this year.`\
 https://nytimes.com/2024/12/28/briefing/your-best-advice-of-2024.html
-
-**The Gauthier-Drysdale trade, revisited: Did the Flyers and Ducks get what they expected?**\
-`After the high-profile trade, both young players are still attempting to solidify themselves in the NHL.`\
-https://nytimes.com/athletic/6022544/2024/12/28/flyers-ducks-gauthier-drysdale-trade/
 
