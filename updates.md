@@ -1,3 +1,19 @@
+**7 People (and One Coyote) Who Made New York City a Better Place in 2024**\
+`They were the bright lights during a rocky year, making the city a cooler, and fairer, place to be.`\
+https://nytimes.com/2024/12/28/nyregion/best-new-yorkers-2024.html
+
+**Bob Dylan As the Original Hipster**\
+`The costumes of ‘A Complete Unknown’ are a joy.`\
+https://nytimes.com/2024/12/28/style/bob-dylan-a-complete-unknown-timothee-chalamet-rock-style.html
+
+**How the Head of a Food Museum Spends Her Sundays**\
+`Nazli Parvizi, the president of the Museum of Food and Drink in Brooklyn, spreads her time between homemade meals with friends, walks with her son and intense card games.`\
+https://nytimes.com/2024/12/28/nyregion/nazli-parvizi-food-museum.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/28/crosswords/spelling-bee-forum.html
+
 **Brighton have stopped creating clear-cut chances and it's starting to hurt them**\
 `Shots are one thing, but fashioning more clear-cut chances is pivotal to regaining the winning habit for Fabian Hurzeler's side.`\
 https://nytimes.com/athletic/6022487/2024/12/28/brighton-attack-goals-hurzeler/
