@@ -1,3 +1,12 @@
+**Man With Burns on His Body Is Rescued at Penn Station, Police Say**\
+`The cause of the injuries was yet unknown. The episode on Friday night came days after a woman was fatally burned at another subway station in New York City.`\
+https://nytimes.com/2024/12/27/nyregion/penn-station-person-burned.html
+
+**Maple Leafs report cards: Toronto's stars shine bright in Detroit**\
+`Mitch Marner scored a hat trick and John Tavares recorded two assists as Toronto defeated Detroit 5-2.
+`\
+https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-grades/
+
 **Sesquipedalia**\
 `Sam Berriman surfs up from Down Under with a corker of a debut puzzle.`\
 https://nytimes.com/2024/12/27/crosswords/daily-puzzle-2024-12-28.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6022507/2024/12/27/cristiano-ronaldo-ruben-amorim/
 **Greg Gumbel, 78, Familiar Voice to Football and Basketball Fans, Dies**\
 `The sportscaster combined play-by-play excitement with a knack for precision in his decades as a sports broadcaster calling N.F.L. and N.C.A.A. games for CBS.`\
 https://nytimes.com/2024/12/27/business/media/greg-gumbel-dead.html
-
-**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
-`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
-https://nytimes.com/athletic/5891633/2024/12/27/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
-
-**Browns restructure Deshaun Watson's contract**\
-`Watson, 29, is under contract with Cleveland through the 2026 season.`\
-https://nytimes.com/athletic/6022274/2024/12/27/browns-deshaun-watson-contract-restructure/
 
