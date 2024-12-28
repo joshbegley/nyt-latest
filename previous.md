@@ -1,40 +1,40 @@
+**'It's always intense': The eight teams leading the fight for Premier League promotion**\
+`One point separates the top three in the second tier and all of the top eight will fancy their chances of promotion to the Premier League`\
+https://nytimes.com/athletic/6021710/2024/12/28/premier-league-promotion-race-championship/
+
+**13 insights fantasy football managers need to know ahead of 2025**\
+`Theo Gremminger's casts an eye towards the 2025 fantasy football campaign, including his way-too-early top 25 player rankings.`\
+https://nytimes.com/athletic/6022191/2024/12/28/fantasy-football-insights-2025-way-too-early-rankings/
+
+**Archie Gray: From Leeds scion to Spurs' star-in-the-making**\
+`From small-sided football to Bielsa's murderball madness, Gray has cut his teeth in brutal environments from the very start of his journey`\
+https://nytimes.com/athletic/6018756/2024/12/28/archie-gray-leeds-tottenham-futsal/
+
+**The making of Ruud van Nistelrooy: The early years in the Netherlands**\
+`Friends, team-mates and coaches from his career in the Netherlands discuss the personality and professionalism that led to his big move`\
+https://nytimes.com/athletic/6015469/2024/12/28/ruud-van-nistelrooy-early-years/
+
+**FPL GW19 preview: Targeting Newcastle players and and holding on to Haaland**\
+`Which Man City players to keep and which to ditch, who to watch out for, and how to take advantage of Newcastle's form`\
+https://nytimes.com/athletic/6020081/2024/12/28/fpl-gameweek-19-preview/
+
+**Has Russia’s Shadow Fleet, Built to Evade Sanctions, Added Sabotage to Its List?**\
+`Russia has assembled a fleet of hundreds of vessels to covertly ship its oil. With so many ships at sea, the idea of using some to cause havoc may be proving irresistible to the Kremlin.`\
+https://nytimes.com/2024/12/28/world/europe/russia-ship-shadow-fleet-finland.html
+
+**Tormentors Change, but Not the Torment**\
+`Brutally persecuted for years by the military in Myanmar, the Rohingya ethnic minority has now become the target of one of the junta’s most formidable rivals in the country’s civil war.`\
+https://nytimes.com/2024/12/28/world/asia/tormentors-change-but-not-the-torment.html
+
+**Our Reporter Returned to Afghanistan, Seeking Lessons and Secrets**\
+`Here’s what he found.`\
+https://nytimes.com/2024/12/28/world/asia/takeaways-from-correspondent-return-to-afghanistan-investigate-war.html
+
+**Greeks Are Defying an Indoor Smoking Ban, Even After 14 Years**\
+`The country, which has one of Europe’s highest smoking rates, is also resisting a wider push for outdoor bans.`\
+https://nytimes.com/2024/12/28/world/europe/greece-indoor-smoking-ban.html
+
 **Make a Soup, Any Soup**\
 `As the days start to feel shorter and darker and colder, soup can warm both our bodies and our souls.`\
 https://nytimes.com/2024/12/28/dining/soup-holidays-pleasure.html
-
-**Quote of the Day: Definitely Maybe Sounding Like Oasis**\
-`Quotation of the Day for Saturday, December 28, 2024.`\
-https://nytimes.com/2024/12/27/pageoneplus/quote-of-the-day-definitely-maybe-sounding-like-oasis.html
-
-**Blue Jackets' power play, long a sore spot, continues hot stretch in rout of Bruins**\
-`The Blue Jackets scored four second-period goals and rolled to a 6-2 win over the Bruins.`\
-https://nytimes.com/athletic/6022763/2024/12/27/blue-jackets-bruins-power-play/
-
-**What we learned about Todd McLellan in his first game behind the Red Wings bench**\
-`McLellan wants the Red Wings to play harder, faster and smarter. But it won't happen overnight.`\
-https://nytimes.com/athletic/6022259/2024/12/27/red-wings-todd-mclellan-coach/
-
-**Sabres blow out Blackhawks in front of a rare sellout crowd at home: 3 takeaways**\
-`The scene on Friday night in Buffalo was a palate cleanser for the fans and players alike.`\
-https://nytimes.com/athletic/6022827/2024/12/27/sabres-blackhawks-score-alex-tuch/
-
-**Blue Origin Is Ready to Launch New Glenn Rocket After Critical Test**\
-`The company, owned by the Amazon founder Jeff Bezos, also received approval from the Federal Aviation Administration to launch the vehicle to orbit.`\
-https://nytimes.com/2024/12/27/science/new-glenn-blue-origin.html
-
-**How Brock Faber's highlight-reel goal capped gutsy comeback for Wild: 3 takeaways vs. Stars**\
-`Faber delivered in overtime to give Minnesota arguably its biggest win of the season.`\
-https://nytimes.com/athletic/6022738/2024/12/27/wild-stars-takeaways-brock-faber/
-
-**World Juniors Day 2: Canada upset by Latvia in shambolic performance**\
-`The other Day 2 games were overshadowed by Canada's lackluster, lifeless showing against Latvia in a shootout loss.`\
-https://nytimes.com/athletic/6006859/2024/12/27/canada-latvia-world-juniors-2025/
-
-**Canada loses to Latvia in shootout at World Juniors**\
-`Canada was shocked Friday night by Latvia, losing 3-2 in a shootout in round-robin play.`\
-https://nytimes.com/athletic/6022726/2024/12/27/canada-latvia-shootout-loss/
-
-**For Blackhawks, trip to Buffalo a reminder of the folly of tanking and the sliding-doors 2019 draft**\
-`The Blackhawks put forth one of their worst efforts of the season against Buffalo and got a glimpse into their possible future.`\
-https://nytimes.com/athletic/6022779/2024/12/27/blackhawks-sabres-nhl-draft-tanking/
 
