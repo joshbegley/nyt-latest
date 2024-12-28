@@ -1,3 +1,7 @@
+**For USC, a woeful 2024 ends with a wild Las Vegas Bowl victory**\
+`USC played badly enough to fall into a 17-point second-half hole against Texas A&M. Then it played well enough to overcome it all.`\
+https://nytimes.com/athletic/6023132/2024/12/28/usc-texas-am-las-vegas-bowl/
+
 **Game programs from Nebraska's 1962 Gotham Bowl are a rare — and pricey — find**\
 `An eBay retailer in New York said he sold one a 1962 Gotham Bowl game program this year for $10,000.`\
 https://nytimes.com/athletic/6022632/2024/12/28/nebraska-college-football-gotham-pinstripe-bowl-history-programs/
