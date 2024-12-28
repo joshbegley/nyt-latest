@@ -1,3 +1,7 @@
+**Corbin Burnes, Diamondbacks agree to 6-year, $210 million contract**\
+`Burnes entered this offseason as the No. 2 player on The Athletic’s Free Agent Big Board, behind only Juan Soto.`\
+https://nytimes.com/athletic/5935173/2024/12/28/corbin-burnes-diamondbacks-contract-mlb/
+
 **Stowaway Caught on Delta Plane at Seattle Airport**\
 `The person, who boarded the flight without a ticket, was detected as the plane was preparing to take off for Hawaii on Christmas Eve.`\
 https://nytimes.com/2024/12/28/us/delta-stowaway-seattle-honolulu.html
