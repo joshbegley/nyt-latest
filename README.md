@@ -1,3 +1,7 @@
+**Youssef Chermiti: 'Everton phoned every day to sign me - I'd had lots of calls from clubs'**\
+`Youssef Chermiti arrived at Everton as one of most wanted young forwards in Europe - after summer setback he wants to make up for lost time`\
+https://nytimes.com/athletic/6009529/2024/12/28/youssef-chermiti-everton-interview/
+
 **The seventh-tier club Levi Colwill loves and is creating an academy for: 'He can be himself here'**\
 `Why the Chelsea and England star is so dedicated to a team far down the football pyramid`\
 https://nytimes.com/athletic/6019282/2024/12/28/levi-colwill-sholing-academy-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020081/2024/12/28/fpl-gameweek-19-preview/
 **Has Russia’s Shadow Fleet, Built to Evade Sanctions, Added Sabotage to Its List?**\
 `Russia has assembled a fleet of hundreds of vessels to covertly ship its oil. With so many ships at sea, the idea of using some to cause havoc may be proving irresistible to the Kremlin.`\
 https://nytimes.com/2024/12/28/world/europe/russia-ship-shadow-fleet-finland.html
-
-**Tormentors Change, but Not the Torment**\
-`Brutally persecuted for years by the military in Myanmar, the Rohingya ethnic minority has now become the target of one of the junta’s most formidable rivals in the country’s civil war.`\
-https://nytimes.com/2024/12/28/world/asia/tormentors-change-but-not-the-torment.html
 
