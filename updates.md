@@ -1,3 +1,7 @@
+**Panthers place Chuba Hubbard on IR with calf injury**\
+`Entering the weekend, Hubbard's breakout season saw him rank sixth in rushing in the NFL.`\
+https://nytimes.com/athletic/6023444/2024/12/28/chuba-hubbard-panthers-injured-reserve/
+
 **NHL looking into potential Stars CBA violation for optional practice over holiday break**\
 `Stars coach Pete DeBoer said that Dallas' young players practiced Thursday during a mandated NHL off day and that they were "supposed to."`\
 https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice/
