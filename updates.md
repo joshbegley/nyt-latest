@@ -1,3 +1,11 @@
+**Arsenal have Premier League's meanest defence, but with Saka out, will that be enough?**\
+`As the clock ticked down on Arsenal’s 1-0 win over Ipswich Town, David Raya received a backpass just outside his penalty area, dribbled back into the box, hovered over the ball and gathered it up, using up precious seconds.`\
+https://nytimes.com/athletic/6022636/2024/12/28/arsenal-saka-defence-arteta/
+
+**Jaylen Brown, Celtics soar again to snap brief losing streak**\
+`Brown scored 44 points as the Celtics righted themselves against the Pacers on Friday night.`\
+https://nytimes.com/athletic/6022986/2024/12/28/jaylen-brown-celtics-pacers-2/
+
 **Why Wild's OT comeback over Stars is the biggest 'character win' of the season**\
 `Brock Faber's overtime wraparound sealed the victory, but goaltending, penalty killers and resilience put the Wild in position to win.`\
 https://nytimes.com/athletic/6022958/2024/12/28/wild-overtime-comeback-brock-faber-stars/
