@@ -1,3 +1,7 @@
+**Georgia QB Carson Beck declares for 2025 NFL Draft**\
+`Beck led the SEC with 28 touchdown passes this season, adding 3,485 passing yards against 12 interceptions.`\
+https://nytimes.com/athletic/6023366/2024/12/28/carson-beck-nfl-draft-georgia-quarterback/
+
 **Can returning Alex Ovechkin still catch Wayne Gretzky this season? Teammates: 'Everything's in play'**\
 `Ovechkin needs 27 goals to pass Gretzky's career mark and has 48 games left on the Caps' schedule to try to get it done, starting Saturday.`\
 https://nytimes.com/athletic/6021732/2024/12/28/alex-ovechkin-return-gretzky-goals-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023250/2024/12/28/mavericks-suns-nurkic-washington
 **Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
 `Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
 https://nytimes.com/athletic/6016942/2024/12/28/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
-
-**Russini’s what I’m hearing: Vikings want Darnold back in 2025, Watson’s new deal, Brady’s big role**\
-`Plus, Giants indecision, how to stop Josh Allen, and the one question every coaching candidate should be asked.`\
-https://nytimes.com/athletic/6022956/2024/12/28/nfl-news-sam-darnold-deshaun-watson-contract-tom-brady-raiders/
 
