@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6023423/2024/12/28/chargers-patriots-score-result-t
 https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
 
 **Musk Doubles Down on Support for German Far-Right Party**\
-`The world’s richest man, a key adviser to President-elect Donald Trump, ridicules critics over his backing of the German extremist party AfD, as Germany prepares for elections.`\
+`The world’s richest man, a key adviser to President-elect Donald J. Trump, ridicules critics over his backing of the German extremist party AfD, as Germany prepares for elections.`\
 https://nytimes.com/2024/12/28/world/europe/musk-support-for-german-far-right-afd.html
 
 **Titans RB Tony Pollard out with ankle injury vs. Jaguars**\

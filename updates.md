@@ -1,3 +1,7 @@
+**Musk Doubles Down on Support for German Far-Right Party**\
+`The world’s richest man, a key adviser to President-elect Donald J. Trump, ridicules critics over his backing of the German extremist party AfD, as Germany prepares for elections.`\
+https://nytimes.com/2024/12/28/world/europe/musk-support-for-german-far-right-afd.html
+
 **Severe Weekend Weather Disrupts Holiday Travel**\
 `More than 7,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
 https://nytimes.com/2024/12/28/us/storm-tornado-travel-delays.html
