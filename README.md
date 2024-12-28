@@ -1,3 +1,7 @@
+**Can returning Alex Ovechkin still catch Wayne Gretzky this season? Teammates: 'Everything's in play'**\
+`Ovechkin needs 27 goals to pass Gretzky's career mark and has 48 games left on the Caps' schedule to try to get it done, starting Saturday.`\
+https://nytimes.com/athletic/6021732/2024/12/28/alex-ovechkin-return-gretzky-goals-record/
+
 **Why Jordan Love's recent success against blitzes will be pivotal against Vikings**\
 `Love has gone from one of the NFL's worst against blitzes in the first half of the season to one of the best in the second half.`\
 https://nytimes.com/athletic/6022456/2024/12/28/packers-qb-jordan-love-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016942/2024/12/28/week-17-fantasy-football-ranking
 **Russini’s what I’m hearing: Vikings want Darnold back in 2025, Watson’s new deal, Brady’s big role**\
 `Plus, Giants indecision, how to stop Josh Allen, and the one question every coaching candidate should be asked.`\
 https://nytimes.com/athletic/6022956/2024/12/28/nfl-news-sam-darnold-deshaun-watson-contract-tom-brady-raiders/
-
-**Mike Brown’s final days with Kings: Disastrous play, tension with star and an awkward firing**\
-`Brown led the Kings' most successful era since the early 2000s. But tension built over a nightmare homestand, leading to Friday's dismissal.`\
-https://nytimes.com/athletic/6023065/2024/12/28/mike-brown-firing-sacramento-kings-nba/
 
