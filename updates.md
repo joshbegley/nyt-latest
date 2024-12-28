@@ -1,3 +1,7 @@
+**Corbin Burnes is joining the Diamondbacks. Can they leverage his secret weapon?**\
+`The story of Burnes’ sweeper is the latest reason why so many in the industry view him as a pitcher worthy of a long-term commitment.`\
+https://nytimes.com/athletic/5952676/2024/12/28/corbin-burnes-diamondbacks-contract-sweeper/
+
 **Interior Dept. Is Caught Between Tribes in Casino Battles**\
 `The Biden administration’s consideration of three proposed tribal casinos in California and Oregon has touched off a fierce debate about tribal sovereignty and land rights.`\
 https://nytimes.com/2024/12/28/us/politics/tribes-casinos.html

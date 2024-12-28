@@ -1,3 +1,7 @@
+**Corbin Burnes is joining the Diamondbacks. Can they leverage his secret weapon?**\
+`The story of Burnes’ sweeper is the latest reason why so many in the industry view him as a pitcher worthy of a long-term commitment.`\
+https://nytimes.com/athletic/5952676/2024/12/28/corbin-burnes-diamondbacks-contract-sweeper/
+
 **Interior Dept. Is Caught Between Tribes in Casino Battles**\
 `The Biden administration’s consideration of three proposed tribal casinos in California and Oregon has touched off a fierce debate about tribal sovereignty and land rights.`\
 https://nytimes.com/2024/12/28/us/politics/tribes-casinos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019528/2024/12/28/nfl-week-17-inactives-and-fantas
 **7 Go-To Dinner Party Dinners**\
 `Or: the New York Times Cooking recipes I trot out when I want to impress without any stress.`\
 https://nytimes.com/2024/12/28/dining/7-go-to-dinner-party-dinners.html
-
-**A Photo of Nancy Pelosi, Rediscovered Decades Later**\
-`In 1963, the politician Thomas D’Alesandro Jr. submitted a photo to appear with The New York Times’s announcement of his daughter’s engagement.`\
-https://nytimes.com/2024/12/28/insider/nancy-pelosi-engagement-photo.html
 
