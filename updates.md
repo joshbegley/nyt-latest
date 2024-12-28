@@ -1,3 +1,7 @@
+**Putin Apologizes but Stops Short of Taking Responsibility for Kazakhstan Crash**\
+`President Vladimir V. Putin of Russia told the Azerbaijani leader, Ilham Aliyev, in a phone call, “that the tragic incident took place in Russian airspace.”`\
+https://nytimes.com/2024/12/28/world/europe/kazakhstan-russia-azerbaijan-plane-crash.html
+
 **Putin Apologizes but Stops Short of in the lede that 38 people dTaking Responsibility for Kazakhstan Crash**\
 `President Vladimir V. Putin of Russia told the Azerbaijani leader, Ilham Aliyev, in a phone call, “that the tragic incident took place in Russian airspace.”`\
 https://nytimes.com/2024/12/28/world/europe/kazakhstan-russia-azerbaijan-plane-crash.html

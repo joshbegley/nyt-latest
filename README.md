@@ -1,3 +1,11 @@
+**Nurkić, Marshall, Washington ejected after Suns-Mavs brawl**\
+`Mavericks forward P.J. Washington was also ejected for shoving Nurkić during the brawl.`\
+https://nytimes.com/athletic/6023250/2024/12/28/mavericks-suns-nurkic-washington-marshall-fight-ejections/
+
+**Russini’s what I’m hearing: Vikings want Darnold back in 2025, Watson’s new deal, Brady’s big role**\
+`Plus, Giants indecision, how to stop Josh Allen, and the one question every coaching candidate should be asked.`\
+https://nytimes.com/athletic/6022956/2024/12/28/nfl-news-sam-darnold-deshaun-watson-contract-tom-brady-raiders/
+
 **Mike Brown’s final days with Kings: Disastrous play, tension with star and an awkward firing**\
 `Brown led the Kings' most successful era since the early 2000s. But tension built over a nightmare homestand, leading to Friday's dismissal.`\
 https://nytimes.com/athletic/6023065/2024/12/28/mike-brown-firing-sacramento-kings-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6022632/2024/12/28/nebraska-college-football-gotham
 **World Juniors Today: Latvia's epic upset over Canada, visiting fans enjoy Ottawa**\
 `Welcome to Day 3 of the 2025 World Juniors in Ottawa.`\
 https://nytimes.com/athletic/6007069/2024/12/28/world-juniors-today-latvia-canada/
-
-**Syria’s New Government Steps Up Pursuit of Assad Loyalists**\
-`Finding the remnants of the old dictatorship and bringing them to justice has emerged as a top priority for the new administration in Syria.`\
-https://nytimes.com/2024/12/28/world/middleeast/syria-government-arrests-human-rights.html
-
-**Six questions facing the Rangers after the break: Schedule, Kreider, Zibanejad, Perreault and more**\
-`After a few days off for the holiday break, the Rangers are back in action Saturday. Returning too are the questions surrounding the team.`\
-https://nytimes.com/athletic/6021724/2024/12/28/rangers-questions-kreider-zibanejad-perreault/
 
