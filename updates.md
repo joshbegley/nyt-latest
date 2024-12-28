@@ -1,3 +1,11 @@
+**Dodgers star Shohei Ohtani, wife Mamiko Tanaka expecting first child**\
+`The Los Angeles Dodgers star announced on his Instagram account that he and his wife are expecting their first child.  `\
+https://nytimes.com/athletic/6023803/2024/12/28/shohei-ohtani-baby-announcement/
+
+**NFL Week 17 playoff scenarios: Broncos, Commanders eye berths**\
+`Several division titles remain up for grabs with two weeks left in the regular season. `\
+https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
+
 **Musk Doubles Down on Support for German Far-Right Party**\
 `The world’s richest man, a key adviser to President-elect Donald Trump, ridicules critics over his backing of the German extremist party AfD, as Germany prepares for elections.`\
 https://nytimes.com/2024/12/28/world/europe/musk-support-for-german-far-right-afd.html

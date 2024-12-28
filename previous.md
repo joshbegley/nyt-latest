@@ -1,6 +1,14 @@
+**Dodgers star Shohei Ohtani, wife Mamiko Tanaka expecting first child**\
+`The Los Angeles Dodgers star announced on his Instagram account that he and his wife are expecting their first child.  `\
+https://nytimes.com/athletic/6023803/2024/12/28/shohei-ohtani-baby-announcement/
+
 **Chargers beat Pats 40-7 to make playoffs in Harbaugh's first year: Takeaways**\
 `Los Angeles doubled its win total from last season in Harbaugh's first year at the helm. `\
 https://nytimes.com/athletic/6023423/2024/12/28/chargers-patriots-score-result-takeaways/
+
+**NFL Week 17 playoff scenarios: Broncos, Commanders eye berths**\
+`Several division titles remain up for grabs with two weeks left in the regular season. `\
+https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
 
 **Musk Doubles Down on Support for German Far-Right Party**\
 `The world’s richest man, a key adviser to President-elect Donald Trump, ridicules critics over his backing of the German extremist party AfD, as Germany prepares for elections.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6023652/2024/12/28/nebraska-boston-college-score-an
 **Sarris: Corbin Burnes is a major coup for the Diamondbacks**\
 `An ace's ace, Burnes rediscovered his old cutter in August, while also managing to flash signs of a sweeper.`\
 https://nytimes.com/athletic/6023494/2024/12/28/corbin-burnes-diamondbacks-signing-sarris-analysis/
-
-**Cowboys place WR CeeDee Lamb on injured reserve, surgery not expected**\
-`With Lamb ruled out, Dallas will now be without six Week 1 starters in Philadelphia on Sunday.`\
-https://nytimes.com/athletic/6020647/2024/12/28/ceedee-lamb-cowboys-shoulder-injury-out-season/
-
-**Tagovailoa downgraded to doubtful (hip) for Week 17 vs. Browns**\
-`Skylar Thompson has been elevated to the active roster and No. 2 QB Tyler Huntley could be in line to start against Cleveland. `\
-https://nytimes.com/athletic/6023529/2024/12/28/dolphins-qb-tua-tagovailoa-doubtful-browns/
 
