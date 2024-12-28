@@ -1,3 +1,7 @@
+**Canada's Matthew Schaefer leaves game vs. Latvia with injury**\
+`Schaefer was injured in the first period of Canada's round-robin game against Latvia during the World Juniors.`\
+https://nytimes.com/athletic/6022599/2024/12/27/matthew-schaefer-injury-canada-world-juniors/
+
 **Ronaldo backs Amorim to guide Man Utd through 'storm'**\
 `Cristiano Ronaldo has backed Manchester United head coach Ruben Amorim to arrest the club&#8217;s slump after a difficult start to his compatriot&#8217;s Old Trafford reign.`\
 https://nytimes.com/athletic/6022507/2024/12/27/cristiano-ronaldo-ruben-amorim/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6022424/2024/12/27/greg-gumbel-cbs-cancer-death/
 **Trucks Carrying Aid Finally Reach Sudan’s War-Torn Capital Region**\
 `After 20 months of war, and three months of negotiations with the warring sides, a bit of relief arrives for some of the hundreds of thousands of people facing famine.`\
 https://nytimes.com/2024/12/27/world/africa/aid-trucks-sudan-capital-famine.html
-
-**Chargers activate Dobbins from IR ahead of Saturday's game vs. Patriots**\
-`The Chargers' leading rusher has missed the last four games due to a knee injury suffered in Week 12 against his former team.`\
-https://nytimes.com/athletic/6022305/2024/12/27/chargers-activate-jk-dobbins-patriots/
 
