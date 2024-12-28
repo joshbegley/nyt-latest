@@ -1,3 +1,7 @@
+**NFL Week 17 injuries and fantasy tips: Eagles' Hurts out; Panthers' Hubbard shut down**\
+`Who's in and who's out for Week 17? Plus weather reports, game previews and fantasy football rankings. `\
+https://nytimes.com/athletic/6019528/2024/12/28/nfl-week-17-inactives-and-fantasy-tips/
+
 **7 Go-To Dinner Party Dinners**\
 `Or: the New York Times Cooking recipes I trot out when I want to impress without any stress.`\
 https://nytimes.com/2024/12/28/dining/7-go-to-dinner-party-dinners.html

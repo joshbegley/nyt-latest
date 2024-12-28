@@ -1,3 +1,7 @@
+**NFL Week 17 injuries and fantasy tips: Eagles' Hurts out; Panthers' Hubbard shut down**\
+`Who's in and who's out for Week 17? Plus weather reports, game previews and fantasy football rankings. `\
+https://nytimes.com/athletic/6019528/2024/12/28/nfl-week-17-inactives-and-fantasy-tips/
+
 **7 Go-To Dinner Party Dinners**\
 `Or: the New York Times Cooking recipes I trot out when I want to impress without any stress.`\
 https://nytimes.com/2024/12/28/dining/7-go-to-dinner-party-dinners.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6022907/2024/12/28/anthony-edwards-donte-divincenzo
 **Shigeko Sasamori, Hiroshima Survivor Who Preached Peace, Dies at 92**\
 `Severely disfigured when the United States dropped an atomic bomb on Japan, she spent her life warning others about the dangers of nuclear war.`\
 https://nytimes.com/2024/12/28/world/asia/shigeko-sasamori-dead.html
-
-**Cade Cunningham's growth helping Pistons to forget 'quiet plane rides' of last season**\
-`A forgettable, record-breaking 2023-24 has made Cunningham a better player and leader for the Pistons. Now, he knows he was "built for it."`\
-https://nytimes.com/athletic/6021200/2024/12/28/cade-cunningham-pistons-growth-2023-streak/
 
