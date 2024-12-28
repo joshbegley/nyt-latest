@@ -1,3 +1,7 @@
+**Putin Apologizes but Stops Short of Taking Responsibility for Kazakhstan Crash**\
+`President Vladimir V. Putin of Russia told the Azerbaijani leader, Ilham Aliyev, in a phone call, “that the tragic incident took place in Russian airspace.”`\
+https://nytimes.com/2024/12/28/world/europe/kazakhstan-russia-azerbaijan-plane-crash.html
+
 **For USC, a woeful 2024 ends with a wild Las Vegas Bowl victory**\
 `USC played badly enough to fall into a 17-point second-half hole against Texas A&M. Then it played well enough to overcome it all.`\
 https://nytimes.com/athletic/6023132/2024/12/28/usc-texas-am-las-vegas-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/opinion/catholic-churches-silence.html
 **Lonely? Schubert Knows You Best.**\
 `Schubert’s final three piano sonatas are a deep exploration of loneliness, and particularly apt for our age of isolation.`\
 https://nytimes.com/2024/12/28/opinion/franz-schubert-loneliness-piano-sonatas.html
-
-**What It Would Take to Get Me to Fly for Fun Again**\
-`The aviation industry should get serious about direct air capture so that its emissions never reach the atmosphere.`\
-https://nytimes.com/2024/12/28/opinion/air-travel-airlines-carbon-capture-climate-change.html
 

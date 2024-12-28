@@ -1,3 +1,7 @@
+**Putin Apologizes but Stops Short of Taking Responsibility for Kazakhstan Crash**\
+`President Vladimir V. Putin of Russia told the Azerbaijani leader, Ilham Aliyev, in a phone call, “that the tragic incident took place in Russian airspace.”`\
+https://nytimes.com/2024/12/28/world/europe/kazakhstan-russia-azerbaijan-plane-crash.html
+
 **For USC, a woeful 2024 ends with a wild Las Vegas Bowl victory**\
 `USC played badly enough to fall into a 17-point second-half hole against Texas A&M. Then it played well enough to overcome it all.`\
 https://nytimes.com/athletic/6023132/2024/12/28/usc-texas-am-las-vegas-bowl/
