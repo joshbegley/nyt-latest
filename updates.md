@@ -1,3 +1,7 @@
+**Winning $1.22 Billion Mega Millions Ticket Sold in California**\
+`The identity of the jackpot winner was not immediately known, but lottery officials in California are expected to reveal it.`\
+https://nytimes.com/2024/12/28/us/mega-millions-jackpot-winner.html
+
 **7 People (and One Coyote) Who Made New York City a Better Place in 2024**\
 `They were the bright lights during a rocky year, making the city a cooler, and fairer, place to be.`\
 https://nytimes.com/2024/12/28/nyregion/best-new-yorkers-2024.html
