@@ -1,3 +1,19 @@
+**The Gauthier-Drysdale trade, revisited: Did the Flyers and Ducks get what they expected?**\
+`After the high-profile trade, both young players are still attempting to solidify themselves in the NHL.`\
+https://nytimes.com/athletic/6022544/2024/12/28/flyers-ducks-gauthier-drysdale-trade/
+
+**The Connections Companion No. 567**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 29, 2024.`\
+https://nytimes.com/2024/12/28/crosswords/connections-companion-567.html
+
+**Wordle Review No. 1,289**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 29, 2024.`\
+https://nytimes.com/2024/12/28/crosswords/wordle-review-1289.html
+
+**Playing to Win: How a First Nation Turned Around Its Fortunes**\
+`Steered by an entrepreneurial chief, Membertou First Nation in Nova Scotia led the largest investment by Indigenous people in Canada’s seafood industry.`\
+https://nytimes.com/2024/12/28/world/canada/clearwater-membertou-cape-breton.html
+
 **As Hopes Rise for Gaza Cease-Fire, Conditions There Have Worsened**\
 `Human rights organizations and residents describe the situation in the enclave as getting more desperate. Here is a closer look.`\
 https://nytimes.com/2024/12/28/world/middleeast/gaza-cease-fire-human-rights.html
