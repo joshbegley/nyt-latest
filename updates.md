@@ -1,3 +1,7 @@
+**Youssef Chermiti: 'Everton phoned every day to sign me - I'd had lots of calls from clubs'**\
+`Youssef Chermiti arrived at Everton as one of most wanted young forwards in Europe - after summer setback he wants to make up for lost time`\
+https://nytimes.com/athletic/6009529/2024/12/28/youssef-chermiti-everton-interview/
+
 **The seventh-tier club Levi Colwill loves and is creating an academy for: 'He can be himself here'**\
 `Why the Chelsea and England star is so dedicated to a team far down the football pyramid`\
 https://nytimes.com/athletic/6019282/2024/12/28/levi-colwill-sholing-academy-chelsea/
