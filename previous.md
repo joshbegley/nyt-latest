@@ -1,3 +1,7 @@
+**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
+https://nytimes.com/athletic/5891633/2024/12/28/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Arsenal have Premier League's meanest defence, but with Saka out, will that be enough?**\
 `As the clock ticked down on Arsenal’s 1-0 win over Ipswich Town, David Raya received a backpass just outside his penalty area, dribbled back into the box, hovered over the ball and gathered it up, using up precious seconds.`\
 https://nytimes.com/athletic/6022636/2024/12/28/arsenal-saka-defence-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019282/2024/12/28/levi-colwill-sholing-academy-che
 **After lean years in Anaheim recently, Cam Fowler finding a fit with Blues: 'I'm happy'**\
 `The new Blues defenseman scored his first goal with St. Louis in Friday's 7-4 win over the Predators.`\
 https://nytimes.com/athletic/6021925/2024/12/28/cam-fowler-blues-ducks-colton-parayko/
-
-**Alan Shearer and The Dive**\
-`Watching it back sends a shiver down my spine. I played more than 750 times in my career and dived only once. I hate myself for it`\
-https://nytimes.com/athletic/6003480/2024/12/28/alan-shearer-dive-england/
 

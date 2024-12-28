@@ -1,3 +1,7 @@
+**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
+`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
+https://nytimes.com/athletic/5891633/2024/12/28/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+
 **Jaylen Brown, Celtics soar again to snap brief losing streak**\
 `Brown scored 44 points as the Celtics righted themselves against the Pacers on Friday night in a 142-105 rout.`\
 https://nytimes.com/athletic/6022986/2024/12/28/jaylen-brown-celtics-pacers-2/
