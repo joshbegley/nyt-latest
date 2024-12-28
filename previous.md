@@ -1,3 +1,7 @@
+**Sesquipedalia**\
+`Sam Berriman surfs up from Down Under with a corker of a debut puzzle.`\
+https://nytimes.com/2024/12/27/crosswords/daily-puzzle-2024-12-28.html
+
 **Diego Pavia says he'll return to Vanderbilt if coaching staff remains**\
 `Pavia was recently granted an extra season by a Tennessee court after he sued the NCAA.`\
 https://nytimes.com/athletic/6022690/2024/12/27/diego-pavia-vanderbilt-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5891633/2024/12/27/2024-25-mlb-top-40-free-agmlb-to
 **Browns restructure Deshaun Watson's contract**\
 `Watson, 29, is under contract with Cleveland through the 2026 season.`\
 https://nytimes.com/athletic/6022274/2024/12/27/browns-deshaun-watson-contract-restructure/
-
-**Teoscar Hernández agrees to re-sign with Dodgers on 3-year deal**\
-`In 2024, Hernández slugged a career-best 33 home runs, won a Silver Slugger and won the World Series.`\
-https://nytimes.com/athletic/5932721/2024/12/27/teoscar-hernandez-dodgers-free-agent-deal/
 
