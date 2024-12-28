@@ -1,3 +1,7 @@
+**Severe Weekend Weather Disrupts Holiday Travel**\
+`More than 7,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
+https://nytimes.com/2024/12/28/us/storm-tornado-travel-delays.html
+
 **Dodgers star Shohei Ohtani, wife Mamiko Tanaka expecting first child**\
 `The Los Angeles Dodgers star announced on his Instagram account that he and his wife are expecting their first child.  `\
 https://nytimes.com/athletic/6023803/2024/12/28/shohei-ohtani-baby-announcement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023602/2024/12/28/georgia-notre-dame-sugar-bowl-cf
 **Nebraska holds off Boston College rally in Pinstripe Bowl, clinches first winning season since 2016**\
 `The Huskers issues on special teams continued, making their 20-15 win over the Eagles more difficult than it should have been.`\
 https://nytimes.com/athletic/6023652/2024/12/28/nebraska-boston-college-score-analysis-college-football-pinstripe-bowl/
-
-**Sarris: Corbin Burnes is a major coup for the Diamondbacks**\
-`An ace's ace, Burnes rediscovered his old cutter in August, while also managing to flash signs of a sweeper.`\
-https://nytimes.com/athletic/6023494/2024/12/28/corbin-burnes-diamondbacks-signing-sarris-analysis/
 
