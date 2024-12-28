@@ -1,3 +1,11 @@
+**Nurkić, Marshall, Washington ejected after Suns-Mavs brawl**\
+`Mavericks forward P.J. Washington was also ejected for shoving Nurkić during the brawl.`\
+https://nytimes.com/athletic/6023250/2024/12/28/mavericks-suns-nurkic-washington-marshall-fight-ejections/
+
+**Russini’s what I’m hearing: Vikings want Darnold back in 2025, Watson’s new deal, Brady’s big role**\
+`Plus, Giants indecision, how to stop Josh Allen, and the one question every coaching candidate should be asked.`\
+https://nytimes.com/athletic/6022956/2024/12/28/nfl-news-sam-darnold-deshaun-watson-contract-tom-brady-raiders/
+
 **Putin Apologizes but Stops Short of Taking Responsibility for Kazakhstan Crash**\
 `President Vladimir V. Putin of Russia told the Azerbaijani leader, Ilham Aliyev, in a phone call, “that the tragic incident took place in Russian airspace.”`\
 https://nytimes.com/2024/12/28/world/europe/kazakhstan-russia-azerbaijan-plane-crash.html
