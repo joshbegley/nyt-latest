@@ -1,3 +1,7 @@
+**Canada loses to Latvia in shootout at World Juniors**\
+`Canada was shocked Friday night by Latvia, losing 3-2 in a shootout in round-robin play.`\
+https://nytimes.com/athletic/6022726/2024/12/27/canada-latvia-shootout-loss/
+
 **For Blackhawks, trip to Buffalo a reminder of the folly of tanking and the sliding-doors 2019 draft**\
 `The Blackhawks put forth one of their worst efforts of the season against Buffalo and got a glimpse into their possible future.`\
 https://nytimes.com/athletic/6022779/2024/12/27/blackhawks-sabres-nhl-draft-tanking/
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2024/12/27/us/tiktoktrumpamicusbrief.html
 **Ex-N.Y.P.D. Leader Denies Sexual Abuse Accusations, Through His Lawyer**\
 `Jeffrey Maddrey, until last week the Police Department’s top uniformed officer, faced reporters for the first time since resigning. He did not say a word.`\
 https://nytimes.com/2024/12/27/nyregion/nypd-jeffrey-maddrey.html
-
-**Canada's Matthew Schaefer leaves game vs. Latvia with injury**\
-`Schaefer was injured in the first period of Canada's round-robin game against Latvia during the World Juniors.`\
-https://nytimes.com/athletic/6022599/2024/12/27/matthew-schaefer-injury-canada-world-juniors/
 
