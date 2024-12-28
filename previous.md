@@ -1,3 +1,11 @@
+**What we learned about Todd McLellan in his first game behind the Red WIngs bench**\
+`McLellan wants the Red Wings to be harder, faster and smarter. But it won't happen overnight.`\
+https://nytimes.com/athletic/6022259/2024/12/27/red-wings-todd-mclellan-coach/
+
+**Sabres blow out Blackhawks in front of a rare sellout crowd at home: 3 takeaways**\
+`The scene on Friday night in Buffalo was a palate cleanser for the fans and players alike.`\
+https://nytimes.com/athletic/6022827/2024/12/27/sabres-blackhawks-score-alex-tuch/
+
 **Blue Origin Is Ready to Launch New Glenn Rocket After Critical Test**\
 `The company, owned by the Amazon founder Jeff Bezos, also received approval from the Federal Aviation Administration to launch the vehicle to orbit.`\
 https://nytimes.com/2024/12/27/science/new-glenn-blue-origin.html
@@ -30,12 +38,4 @@ https://nytimes.com/2024/12/27/nyregion/penn-station-person-burned.html
 `Mitch Marner scored a hat trick and John Tavares recorded two assists as Toronto defeated Detroit 5-2.
 `\
 https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-grades/
-
-**Sesquipedalia**\
-`Sam Berriman surfs up from Down Under with a corker of a debut puzzle.`\
-https://nytimes.com/2024/12/27/crosswords/daily-puzzle-2024-12-28.html
-
-**Diego Pavia says he'll return to Vanderbilt if coaching staff remains**\
-`Pavia was recently granted an extra season by a Tennessee court after he sued the NCAA.`\
-https://nytimes.com/athletic/6022690/2024/12/27/diego-pavia-vanderbilt-return/
 

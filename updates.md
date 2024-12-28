@@ -1,3 +1,16 @@
+**What we learned about Todd McLellan in his first game behind the Red WIngs bench**\
+`McLellan wants the Red Wings to be harder, faster and smarter. But it won't happen overnight.`\
+https://nytimes.com/athletic/6022259/2024/12/27/red-wings-todd-mclellan-coach/
+
+**Sabres blow out Blackhawks in front of a rare sellout crowd at home: 3 takeaways**\
+`The scene on Friday night in Buffalo was a palate cleanser for the fans and players alike.`\
+https://nytimes.com/athletic/6022827/2024/12/27/sabres-blackhawks-score-alex-tuch/
+
+**Maple Leafs report cards: Toronto's stars shine bright in Detroit**\
+`Mitch Marner scored a hat trick and John Tavares recorded two assists as Toronto defeated Detroit 5-2.
+`\
+https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-grades/
+
 **Maple Leafs report cards: Toronto's stars shine bright in Detroit**\
 `Mitch Marner scored a hat trick and John Tavares recorded two assists as Toronto defeated Detroit 5-2.
 `\
