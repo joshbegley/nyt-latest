@@ -1,3 +1,7 @@
+**Wazzu hiring South Dakota State's Jimmy Rogers as next coach: Sources**\
+`The Jackrabbits won their second consecutive FCS national title in Rogers' first season in charge, then made the semifinals this year.`\
+https://nytimes.com/athletic/6023508/2024/12/28/washington-state-coach-jimmy-rogers-sdsu/
+
 **Gunner Stockton’s cows, Mike Bobo’s self-awareness: Takeaways before Sugar Bowl**\
 `What's the plan for Stockton and the Georgia offense vs. Notre Dame in the Sugar Bowl? `\
 https://nytimes.com/athletic/6023602/2024/12/28/georgia-notre-dame-sugar-bowl-cfp-gunner-stockton/
