@@ -1,3 +1,7 @@
+**Tagovailoa downgraded to doubtful (hip) for Week 17 vs. Browns**\
+`Skylar Thompson has been elevated to the active roster and No. 2 QB Tyler Huntley could be in line to start against Cleveland. `\
+https://nytimes.com/athletic/6023529/2024/12/28/dolphins-qb-tua-tagovailoa-doubtful-browns/
+
 **Wemby takes on patrons in chess at Washington Square Park in NYC**\
 `Wembanyama loves Legos and art and science fiction. This was just another side pursuit.`\
 https://nytimes.com/athletic/6023537/2024/12/28/victor-wembanyama-chess-washington-square-park-nyc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5952676/2024/12/28/corbin-burnes-diamondbacks-contr
 **Interior Dept. Is Caught Between Tribes in Casino Battles**\
 `The Biden administration’s consideration of three proposed tribal casinos in California and Oregon has touched off a fierce debate about tribal sovereignty and land rights.`\
 https://nytimes.com/2024/12/28/us/politics/tribes-casinos.html
-
-**Guards in Fatal Prison Assault Were Accused of Beating Inmates Before**\
-`Three of the 13 guards implicated in the savage beating of Robert Brooks had been accused in lawsuits of earlier attacks in New York prisons.`\
-https://nytimes.com/2024/12/28/nyregion/robert-brooks-marcy-correctional-facility-inmate-abuse.html
 

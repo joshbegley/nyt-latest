@@ -1,3 +1,7 @@
+**Tagovailoa downgraded to doubtful (hip) for Week 17 vs. Browns**\
+`Skylar Thompson has been elevated to the active roster and No. 2 QB Tyler Huntley could be in line to start against Cleveland. `\
+https://nytimes.com/athletic/6023529/2024/12/28/dolphins-qb-tua-tagovailoa-doubtful-browns/
+
 **Wemby takes on patrons in chess at Washington Square Park in NYC**\
 `Wembanyama loves Legos and art and science fiction. This was just another side pursuit.`\
 https://nytimes.com/athletic/6023537/2024/12/28/victor-wembanyama-chess-washington-square-park-nyc/
