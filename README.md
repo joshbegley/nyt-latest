@@ -1,3 +1,11 @@
+**7 Go-To Dinner Party Dinners**\
+`Or: the New York Times Cooking recipes I trot out when I want to impress without any stress.`\
+https://nytimes.com/2024/12/28/dining/7-go-to-dinner-party-dinners.html
+
+**A Photo of Nancy Pelosi, Rediscovered Decades Later**\
+`In 1963, the politician Thomas D’Alesandro Jr. submitted a photo to appear with The New York Times’s announcement of his daughter’s engagement.`\
+https://nytimes.com/2024/12/28/insider/nancy-pelosi-engagement-photo.html
+
 **Chelsea gambled by not agreeing a cheaper shirt sponsor deal - will they reap the reward?**\
 `Unusually, Chelsea players have not had a sponsor's logo on their chests so far this season - but there is a sense of a calculated gamble`\
 https://nytimes.com/athletic/6017926/2024/12/28/chelsea-sponsorship-shirt-why/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/28/world/asia/shigeko-sasamori-dead.html
 **Cade Cunningham's growth helping Pistons to forget 'quiet plane rides' of last season**\
 `A forgettable, record-breaking 2023-24 has made Cunningham a better player and leader for the Pistons. Now, he knows he was "built for it."`\
 https://nytimes.com/athletic/6021200/2024/12/28/cade-cunningham-pistons-growth-2023-streak/
-
-**Putin Apologizes but Stops Short of Taking Responsibility for Kazakhstan Crash**\
-`President Vladimir V. Putin of Russia told the Azerbaijani leader, Ilham Aliyev, in a phone call, “that the tragic incident took place in Russian airspace.”`\
-https://nytimes.com/2024/12/28/world/europe/kazakhstan-russia-azerbaijan-plane-crash.html
-
-**For USC, a woeful 2024 ends with a wild Las Vegas Bowl victory**\
-`USC played badly enough to fall into a 17-point second-half hole against Texas A&M. Then it played well enough to overcome it all.`\
-https://nytimes.com/athletic/6023132/2024/12/28/usc-texas-am-las-vegas-bowl/
 
