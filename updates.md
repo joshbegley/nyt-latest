@@ -1,3 +1,7 @@
+**A blank Saturday and a restricted Sunday: Explaining this weekend's Premier League fixture list**\
+`UK viewers could watch any Premier League game they liked on Boxing Day and December 27 – but that's not the case for the upcoming matches`\
+https://nytimes.com/athletic/6023325/2024/12/28/premier-league-christmas-new-year-tv-fixtures/
+
 **Georgia QB Carson Beck declares for 2025 NFL Draft**\
 `Beck led the SEC with 28 touchdown passes this season, adding 3,485 passing yards against 12 interceptions.`\
 https://nytimes.com/athletic/6023366/2024/12/28/carson-beck-nfl-draft-georgia-quarterback/

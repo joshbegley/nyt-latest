@@ -1,3 +1,7 @@
+**A blank Saturday and a restricted Sunday: Explaining this weekend's Premier League fixture list**\
+`UK viewers could watch any Premier League game they liked on Boxing Day and December 27 – but that's not the case for the upcoming matches`\
+https://nytimes.com/athletic/6023325/2024/12/28/premier-league-christmas-new-year-tv-fixtures/
+
 **Georgia QB Carson Beck declares for 2025 NFL Draft**\
 `Beck led the SEC with 28 touchdown passes this season, adding 3,485 passing yards against 12 interceptions.`\
 https://nytimes.com/athletic/6023366/2024/12/28/carson-beck-nfl-draft-georgia-quarterback/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017926/2024/12/28/chelsea-sponsorship-shirt-why/
 **Nurkić, Marshall, Washington ejected after Suns-Mavs brawl**\
 `Mavericks forward P.J. Washington was also ejected for shoving Nurkić during the brawl.`\
 https://nytimes.com/athletic/6023250/2024/12/28/mavericks-suns-nurkic-washington-marshall-fight-ejections/
-
-**Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
-`Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
-https://nytimes.com/athletic/6016942/2024/12/28/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
 
