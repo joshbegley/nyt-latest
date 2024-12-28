@@ -1,3 +1,11 @@
+**Diego Pavia says he'll return to Vanderbilt if coaching staff remains**\
+`Pavia was recently granted an extra season by a Tennessee court after he sued the NCAA.`\
+https://nytimes.com/athletic/6022690/2024/12/27/diego-pavia-vanderbilt-return/
+
+**Corrections: Dec. 28, 2024**\
+`Corrections that appeared in print on Saturday, Dec. 28, 2024.`\
+https://nytimes.com/2024/12/27/pageoneplus/corrections-dec-28-2024.html
+
 **Read the document**\
 `President-elect Donald J. Trump filed a brief asking the Supreme Court to block a law that requires TikTok to be sold or shut down by Jan. 19, the day before his inauguration,`\
 https://nytimes.com/interactive/2024/12/27/us/tiktoktrumpamicusbrief.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6022274/2024/12/27/browns-deshaun-watson-contract-r
 **Teoscar Hernández agrees to re-sign with Dodgers on 3-year deal**\
 `In 2024, Hernández slugged a career-best 33 home runs, won a Silver Slugger and won the World Series.`\
 https://nytimes.com/athletic/5932721/2024/12/27/teoscar-hernandez-dodgers-free-agent-deal/
-
-**Trump Urges Supreme Court to Pause TikTok Ban**\
-`The president-elect took no position on the app’s First Amendment challenge to the law, which sets a Jan. 19 deadline to sell or close the popular platform.`\
-https://nytimes.com/2024/12/27/us/politics/tiktok-ban-supreme-court-trump.html
-
-**Saka out for 'more than two months' after hamstring surgery - Arteta**\
-`Bukayo Saka faces &#8220;more than two months&#8221; on the sidelines after undergoing surgery to repair his torn hamstring, says Mikel Arteta.`\
-https://nytimes.com/athletic/6016479/2024/12/27/bukayo-saka-surgery-arsenal/
 

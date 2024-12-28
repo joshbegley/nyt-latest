@@ -1,3 +1,11 @@
+**Diego Pavia says he'll return to Vanderbilt if coaching staff remains**\
+`Pavia was recently granted an extra season by a Tennessee court after he sued the NCAA.`\
+https://nytimes.com/athletic/6022690/2024/12/27/diego-pavia-vanderbilt-return/
+
+**Corrections: Dec. 28, 2024**\
+`Corrections that appeared in print on Saturday, Dec. 28, 2024.`\
+https://nytimes.com/2024/12/27/pageoneplus/corrections-dec-28-2024.html
+
 **Read the document**\
 `President-elect Donald J. Trump filed a brief asking the Supreme Court to block a law that requires TikTok to be sold or shut down by Jan. 19, the day before his inauguration,`\
 https://nytimes.com/interactive/2024/12/27/us/tiktoktrumpamicusbrief.html
