@@ -1,3 +1,11 @@
+**Make a Soup, Any Soup**\
+`As the days start to feel shorter and darker and colder, soup can warm both our bodies and our souls.`\
+https://nytimes.com/2024/12/28/dining/soup-holidays-pleasure.html
+
+**Quote of the Day: Definitely Maybe Sounding Like Oasis**\
+`Quotation of the Day for Saturday, December 28, 2024.`\
+https://nytimes.com/2024/12/27/pageoneplus/quote-of-the-day-definitely-maybe-sounding-like-oasis.html
+
 **What we learned about Todd McLellan in his first game behind the Red Wings bench**\
 `McLellan wants the Red Wings to play harder, faster and smarter. But it won't happen overnight.`\
 https://nytimes.com/athletic/6022259/2024/12/27/red-wings-todd-mclellan-coach/
