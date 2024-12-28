@@ -1,40 +1,40 @@
-**Winning $1.22 Billion Mega Millions Ticket Sold in California**\
-`The identity of the jackpot winner was not immediately known, but lottery officials in California are expected to reveal it.`\
-https://nytimes.com/2024/12/28/us/mega-millions-jackpot-winner.html
+**Women's tennis storylines for 2025: Swiatek and Sabalenka's rivalry and Gauff's rebuild**\
+`The world No. 1 battle rolls on, two top players go in search of a surge and the sport reckons with its limitations`\
+https://nytimes.com/athletic/6010718/2024/12/28/swiatek-sabalenka-h2h-wta-gauff-rybakina/
 
-**7 People (and One Coyote) Who Made New York City a Better Place in 2024**\
-`They were the bright lights during a rocky year, making the city a cooler, and fairer, place to be.`\
-https://nytimes.com/2024/12/28/nyregion/best-new-yorkers-2024.html
+**Pop Musicians, Please Spare Me the Back Stories**\
+`The power of a lasting song is that it breaks free of its origins. Hits should be more than celebrity narratives.`\
+https://nytimes.com/2024/12/28/arts/music/pop-songs-metanarratives-back-stories.html
 
-**Bob Dylan As the Original Hipster**\
-`The costumes of ‘A Complete Unknown’ are a joy.`\
-https://nytimes.com/2024/12/28/style/bob-dylan-a-complete-unknown-timothee-chalamet-rock-style.html
+**The New York That ‘Anora’ Travels Does Exist: Take Our Tour**\
+`The movie is structured around a chaotic chase through Brooklyn and Manhattan. The director Sean Baker and his location manager retraced their steps.`\
+https://nytimes.com/2024/12/28/movies/anora-brooklyn-sean-baker.html
 
-**How the Head of a Food Museum Spends Her Sundays**\
-`Nazli Parvizi, the president of the Museum of Food and Drink in Brooklyn, spreads her time between homemade meals with friends, walks with her son and intense card games.`\
-https://nytimes.com/2024/12/28/nyregion/nazli-parvizi-food-museum.html
+**My Condo Sponsor Owes the Building $30,000. How Do We Make Him Pay?**\
+`The office of the New York State attorney general calls the failure of building sponsors to pay dues on unsold units a “serious” problem.`\
+https://nytimes.com/2024/12/28/realestate/condominiums-sponsor-fees.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/28/crosswords/spelling-bee-forum.html
+**Perhaps You Didn’t Know Pamela Anderson Is a Cinephile**\
+`The Golden Globe-nominated star of “The Last Showgirl” is a Criterion Channel fan. “I watch every night before I go to bed. I love Godard and Fellini and Herzog and Cassavetes.”`\
+https://nytimes.com/2024/12/28/movies/pamela-anderson-last-showgirl.html
 
-**What Enciso’s many, many shots against Brentford tell us about Brighton’s faltering attack**\
-`Shots are one thing, but fashioning more clear-cut chances is pivotal to regaining the winning habit for Fabian Hurzeler's side`\
-https://nytimes.com/athletic/6022487/2024/12/28/brighton-attack-goals-hurzeler/
+**Why Coffee Prices Are Soaring (Again)**\
+`Wholesale coffee prices are trading near a 50-year high because of shortages related to extreme weather and increased global demand.`\
+https://nytimes.com/2024/12/28/business/coffee-prices-climate-change.html
 
-**MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
-`Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
-https://nytimes.com/athletic/5891633/2024/12/28/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
+**How to watch BC vs. Nebraska: Picks, odds for Pinstripe Bowl as Huskers end bowl drought**\
+`Nebraska is playing in its first bowl game in eight years and does so as a small favorite against Boston College.`\
+https://nytimes.com/athletic/6007370/2024/12/28/boston-college-nebraska-picks-odds-pinstripe-bowl/
 
-**Arsenal have Premier League's meanest defence, but with Saka out, will that be enough?**\
-`As the clock ticked down on Arsenal’s 1-0 win over Ipswich Town, David Raya received a backpass just outside his penalty area, dribbled back into the box, hovered over the ball and gathered it up, using up precious seconds.`\
-https://nytimes.com/athletic/6022636/2024/12/28/arsenal-saka-defence-arteta/
+**How to watch UConn vs. UNC: Picks, odds for Fenway Bowl as UNC transitions to Belichick**\
+`Bill Belichick won't coach North Carolina in the Fenway Bowl against UConn, but all eyes will still be on the Tar Heels' new coach.`\
+https://nytimes.com/athletic/6007356/2024/12/28/how-to-watch-uconn-north-carolina-picks-odds-fenway-bowl/
 
-**Jaylen Brown, Celtics soar again to snap brief losing streak**\
-`Brown scored 44 points as the Celtics righted themselves against the Pacers on Friday night in a 142-105 rout.`\
-https://nytimes.com/athletic/6022986/2024/12/28/jaylen-brown-celtics-pacers-2/
+**In Bomb-Scarred Cities, Risking Life and Limb to Get Civilians to Safety**\
+`The danger and hardship gets worse by the day for civilians in eastern Ukraine. Still, they resist leaving the places that have become their homes.`\
+https://nytimes.com/2024/12/28/world/europe/ukraine-civilians-aid-groups.html
 
-**Why Wild's OT comeback over Stars is the biggest 'character win' of the season**\
-`Brock Faber's overtime wraparound sealed the victory, but goaltending, penalty killers and resilience put the Wild in position to win.`\
-https://nytimes.com/athletic/6022958/2024/12/28/wild-overtime-comeback-brock-faber-stars/
+**How to watch Army vs. Louisiana Tech: Picks, odds for Independence Bowl**\
+`Army was already favored in the Independence Bowl when the opponent was Marshall. Now it's Louisiana Tech and a wider spread.`\
+https://nytimes.com/athletic/6007467/2024/12/28/army-louisiana-tech-picks-odds-independence-bowl/
 
