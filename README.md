@@ -1,3 +1,7 @@
+**Panthers place Chuba Hubbard on IR with calf injury**\
+`Entering the weekend, Hubbard's breakout season saw him rank sixth in rushing in the NFL`\
+https://nytimes.com/athletic/6023444/2024/12/28/chuba-hubbard-panthers-injured-reserve/
+
 **NHL looking into potential Stars CBA violation for optional practice over holiday break**\
 `Stars coach Pete DeBoer said that Dallas' young players practiced Thursday during a mandated NHL off day and that they were "supposed to."`\
 https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6021732/2024/12/28/alex-ovechkin-return-gretzky-goa
 **Why Jordan Love's recent success against blitzes will be pivotal against Vikings**\
 `Love has gone from one of the NFL's worst against blitzes in the first half of the season to one of the best in the second half.`\
 https://nytimes.com/athletic/6022456/2024/12/28/packers-qb-jordan-love-vikings/
-
-**Alisson says Liverpool will 'take lessons' from last season in trophy pursuit**\
-`Liverpool goalkeeper Alisson has said that the squad will &#8220;take a lot of lessons&#8221; from last season as they aim to win trophies in 2024-25.`\
-https://nytimes.com/athletic/6023298/2024/12/28/alisson-liverpool-trophies/
 
