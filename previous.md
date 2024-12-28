@@ -1,3 +1,7 @@
+**Kirsten Simone, Danish Ballet Star, Is Dead at 90**\
+`One of Denmark’s most authoritative ballerinas, she was a prominent figure in a country better known for its male dancers.`\
+https://nytimes.com/2024/12/28/arts/dance/kirsten-simone-dead.html
+
 **Corbin Burnes is joining the Diamondbacks. Can they leverage his secret weapon?**\
 `The story of Burnes’ sweeper is the latest reason why so many in the industry view him as a pitcher worthy of a long-term commitment.`\
 https://nytimes.com/athletic/5952676/2024/12/28/corbin-burnes-diamondbacks-contract-sweeper/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023298/2024/12/28/alisson-liverpool-trophies/
 **NFL Week 17 injuries and fantasy tips: Eagles' Hurts out; Panthers' Hubbard shut down**\
 `Who's in and who's out for Week 17? Plus weather reports, game previews and fantasy football rankings. `\
 https://nytimes.com/athletic/6019528/2024/12/28/nfl-week-17-inactives-and-fantasy-tips/
-
-**7 Go-To Dinner Party Dinners**\
-`Or: the New York Times Cooking recipes I trot out when I want to impress without any stress.`\
-https://nytimes.com/2024/12/28/dining/7-go-to-dinner-party-dinners.html
 

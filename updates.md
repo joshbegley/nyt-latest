@@ -1,3 +1,7 @@
+**Kirsten Simone, Danish Ballet Star, Is Dead at 90**\
+`One of Denmark’s most authoritative ballerinas, she was a prominent figure in a country better known for its male dancers.`\
+https://nytimes.com/2024/12/28/arts/dance/kirsten-simone-dead.html
+
 **Corbin Burnes is joining the Diamondbacks. Can they leverage his secret weapon?**\
 `The story of Burnes’ sweeper is the latest reason why so many in the industry view him as a pitcher worthy of a long-term commitment.`\
 https://nytimes.com/athletic/5952676/2024/12/28/corbin-burnes-diamondbacks-contract-sweeper/
