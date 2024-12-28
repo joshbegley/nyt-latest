@@ -1,3 +1,7 @@
+**Wemby takes on patrons in chess at Washington Square Park in NYC**\
+`Wembanyama loves Legos and art and science fiction. This was just another side pursuit.`\
+https://nytimes.com/athletic/6023537/2024/12/28/victor-wembanyama-chess-washington-square-park-nyc/
+
 **Bucks' Damian Lillard plans to return from 4-game absence vs. Bulls**\
 `"I've never been that sick before in my entire life," Lillard said Saturday.`\
 https://nytimes.com/athletic/6023515/2024/12/28/damian-lillard-vs-bulls-bucks/
