@@ -1,4 +1,8 @@
 **What Enciso’s many, many shots against Brentford tell us about Brighton’s faltering attack**\
+`Shots are one thing, but fashioning more clear-cut chances is pivotal to regaining the winning habit for Fabian Hurzeler's side`\
+https://nytimes.com/athletic/6022487/2024/12/28/brighton-attack-goals-hurzeler/
+
+**What Enciso’s many, many shots against Brentford tell us about Brighton’s faltering attack**\
 `Shots are one thing, but fashioning more clear-cut chances is pivotal to regaining the winning habit for Fabian Hurzeler's side.`\
 https://nytimes.com/athletic/6022487/2024/12/28/brighton-attack-goals-hurzeler/
 
