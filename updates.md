@@ -1,3 +1,7 @@
+**Cam Ward breaks Case Keenum's D-I touchdown passes record**\
+`Ward may not hold on to the record for too long. Oregon quarterback Dillon Gabriel has thrown 153 career touchdown passes.`\
+https://nytimes.com/athletic/6023730/2024/12/28/cam-ward-d1-touchdown-passes-record/
+
 **Wazzu hiring South Dakota State's Jimmy Rogers as next coach: Sources**\
 `The Jackrabbits won their second consecutive FCS national title in Rogers' first season in charge, then made the semifinals this year.`\
 https://nytimes.com/athletic/6023508/2024/12/28/washington-state-coach-jimmy-rogers-sdsu/
