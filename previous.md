@@ -1,3 +1,7 @@
+**Blue Origin Is Ready to Launch New Glenn Rocket After Critical Test**\
+`The company, owned by the Amazon founder Jeff Bezos, also received approval from the Federal Aviation Administration to launch the vehicle to orbit.`\
+https://nytimes.com/2024/12/27/science/new-glenn-blue-origin.html
+
 **How Brock Faber's highlight-reel goal capped gutsy comeback for Wild: 3 takeaways vs. Stars**\
 `Faber delivered in overtime to give Minnesota arguably its biggest win of the season.`\
 https://nytimes.com/athletic/6022738/2024/12/27/wild-stars-takeaways-brock-faber/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/12/27/crosswords/daily-puzzle-2024-12-28.html
 **Diego Pavia says he'll return to Vanderbilt if coaching staff remains**\
 `Pavia was recently granted an extra season by a Tennessee court after he sued the NCAA.`\
 https://nytimes.com/athletic/6022690/2024/12/27/diego-pavia-vanderbilt-return/
-
-**Corrections: Dec. 28, 2024**\
-`Corrections that appeared in print on Saturday, Dec. 28, 2024.`\
-https://nytimes.com/2024/12/27/pageoneplus/corrections-dec-28-2024.html
 
