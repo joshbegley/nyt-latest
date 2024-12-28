@@ -1,7 +1,3 @@
-**Chargers beat Pats 40-7 to make playoffs in Harbaugh's first year: Takeaways**\
-`Los Angeles has more than doubled its win total from last year in Harbaugh's first season at the helm. `\
-https://nytimes.com/athletic/6023423/2024/12/28/chargers-patriots-score-result-takeaways/
-
 **Musk Doubles Down on Support for German Far-Right AfD**\
 `The world’s richest man, a key adviser to President-elect Donald Trump, ridicules critics over his backing of the German extremist party, as Germany prepares for elections.`\
 https://nytimes.com/2024/12/28/world/europe/musk-support-for-german-far-right-afd.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6020647/2024/12/28/ceedee-lamb-cowboys-shoulder-inj
 **Tagovailoa downgraded to doubtful (hip) for Week 17 vs. Browns**\
 `Skylar Thompson has been elevated to the active roster and No. 2 QB Tyler Huntley could be in line to start against Cleveland. `\
 https://nytimes.com/athletic/6023529/2024/12/28/dolphins-qb-tua-tagovailoa-doubtful-browns/
+
+**Wemby takes on patrons in chess at Washington Square Park in NYC**\
+`Wembanyama loves Legos and art and science fiction. This was just another side pursuit.`\
+https://nytimes.com/athletic/6023537/2024/12/28/victor-wembanyama-chess-washington-square-park-nyc/
 
