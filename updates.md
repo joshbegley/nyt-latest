@@ -1,3 +1,11 @@
+**Mike Brown’s final days with Kings: Disastrous play, tension with star and an awkward firing**\
+`Brown led the Kings' most successful era since the early 2000s. But tension built over a nightmare homestand, leading to Friday's dismissal.`\
+https://nytimes.com/athletic/6023065/2024/12/28/mike-brown-firing-sacramento-kings-nba/
+
+**Anthony Edwards' hero shot and Randle-DiVincenzo tandem pave path for Wolves**\
+`Thanks to two timely wins this week, the new-look Timberwolves are resembling a team with true upside.`\
+https://nytimes.com/athletic/6022907/2024/12/28/anthony-edwards-donte-divincenzo-julius-randle-timberwolves/
+
 **Shigeko Sasamori, Hiroshima Survivor Who Preached Peace, Dies at 92**\
 `Severely disfigured when the United States dropped an atomic bomb on Japan, she spent her life warning others about the dangers of nuclear war.`\
 https://nytimes.com/2024/12/28/world/asia/shigeko-sasamori-dead.html
