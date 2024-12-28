@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-g
 `\
 https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-grades/
 
+**Maple Leafs report cards: Toronto's stars shine bright in Detroit**\
+`Mitch Marner scored a hat trick and John Tavares recorded two assists as Toronto defeated Detroit 5-2.
+`\
+https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-grades/
+
 **Clippers' Kawhi Leonard aiming for Jan. 4 season debut: Sources**\
 `Leonard has not played this season due to injury management on his surgically repaired right knee, but teased his return in a video.`\
 https://nytimes.com/athletic/6022716/2024/12/27/kawhi-leonard-clippers-return-date-injury/
