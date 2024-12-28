@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/28/nyregion/nazli-parvizi-food-museum.html
 https://nytimes.com/2024/12/28/crosswords/spelling-bee-forum.html
 
 **What Enciso’s many, many shots against Brentford tell us about Brighton’s faltering attack**\
-`Shots are one thing, but fashioning more clear-cut chances is pivotal to regaining the winning habit for Fabian Hurzeler's side.`\
+`Shots are one thing, but fashioning more clear-cut chances is pivotal to regaining the winning habit for Fabian Hurzeler's side`\
 https://nytimes.com/athletic/6022487/2024/12/28/brighton-attack-goals-hurzeler/
 
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
