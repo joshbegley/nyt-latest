@@ -1,3 +1,7 @@
+**Blue Jackets' power play, long a sore spot, continues hot stretch in rout of Bruins**\
+`The Blue Jackets scored four second-period goals and rolled to a 6-2 win over the Bruins.`\
+https://nytimes.com/athletic/6022763/2024/12/27/blue-jackets-bruins-power-play/
+
 **What we learned about Todd McLellan in his first game behind the Red WIngs bench**\
 `McLellan wants the Red Wings to be harder, faster and smarter. But it won't happen overnight.`\
 https://nytimes.com/athletic/6022259/2024/12/27/red-wings-todd-mclellan-coach/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6022716/2024/12/27/kawhi-leonard-clippers-return-da
 **Man With Burns on His Body Is Rescued at Penn Station, Police Say**\
 `The cause of the injuries was yet unknown. The episode on Friday night came days after a woman was fatally burned at another subway station in New York City.`\
 https://nytimes.com/2024/12/27/nyregion/penn-station-person-burned.html
-
-**Maple Leafs report cards: Toronto's stars shine bright in Detroit**\
-`Mitch Marner scored a hat trick and John Tavares recorded two assists as Toronto defeated Detroit 5-2.
-`\
-https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-grades/
 
