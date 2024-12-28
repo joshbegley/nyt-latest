@@ -1,3 +1,7 @@
+**NHL looking into potential Stars CBA violation for optional practice over holiday break**\
+`Stars coach Pete DeBoer said that Dallas' young players practiced Thursday during a mandated NHL off day and that they were "supposed to."`\
+https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice/
+
 **Kirsten Simone, Danish Ballet Star, Is Dead at 90**\
 `One of Denmark’s most authoritative ballerinas, she was a prominent figure in a country better known for its male dancers.`\
 https://nytimes.com/2024/12/28/arts/dance/kirsten-simone-dead.html
