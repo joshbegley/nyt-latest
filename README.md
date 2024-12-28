@@ -1,5 +1,5 @@
 **Diego Pavia says he'll return to Vanderbilt if coaching staff remains**\
-`Pavia was recently been granted an extra season by a Tennessee court after he sued the NCAA.`\
+`Pavia was recently granted an extra season by a Tennessee court after he sued the NCAA.`\
 https://nytimes.com/athletic/6022690/2024/12/27/diego-pavia-vanderbilt-return/
 
 **Corrections: Dec. 28, 2024**\
