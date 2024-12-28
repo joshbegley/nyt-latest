@@ -1,3 +1,11 @@
+**7 Go-To Dinner Party Dinners**\
+`Or: the New York Times Cooking recipes I trot out when I want to impress without any stress.`\
+https://nytimes.com/2024/12/28/dining/7-go-to-dinner-party-dinners.html
+
+**A Photo of Nancy Pelosi, Rediscovered Decades Later**\
+`In 1963, the politician Thomas D’Alesandro Jr. submitted a photo to appear with The New York Times’s announcement of his daughter’s engagement.`\
+https://nytimes.com/2024/12/28/insider/nancy-pelosi-engagement-photo.html
+
 **Week 17 fantasy football rankings: Projections, starts, sits, Jalen McMillan, Tyjae Spears**\
 `Jake Ciely has your Week 17 fantasy football rankings, game notes and Christmas fun to finish the season with a smile.`\
 https://nytimes.com/athletic/6016942/2024/12/28/week-17-fantasy-football-rankings-projections-starts-sits-jalen-mcmillan/
