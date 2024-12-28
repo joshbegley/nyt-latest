@@ -1,3 +1,7 @@
+**Syria’s New Government Steps Up Pursuit of Assad Loyalists**\
+`Finding the remnants of the old dictatorship and bringing them to justice has emerged as a top priority for the new administration in Syria.`\
+https://nytimes.com/2024/12/28/world/middleeast/syria-government-arrests-human-rights.html
+
 **Six questions facing the Rangers after the break: Schedule, Kreider, Zibanejad, Perreault and more**\
 `After a few days off for the holiday break, the Rangers are back in action Saturday. Returning too are the questions surrounding the team.`\
 https://nytimes.com/athletic/6021724/2024/12/28/rangers-questions-kreider-zibanejad-perreault/
