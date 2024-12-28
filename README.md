@@ -1,3 +1,7 @@
+**Shigeko Sasamori, Hiroshima Survivor Who Preached Peace, Dies at 91**\
+`Severely disfigured when the United States dropped an atomic bomb on Japan, she spent her life warning others about the dangers of nuclear war.`\
+https://nytimes.com/2024/12/28/world/asia/shigeko-sasamori-dead.html
+
 **Cade Cunningham's growth helping Pistons to forget 'quiet plane rides' of last season**\
 `A forgettable, record-breaking 2023-24 has made Cunningham a better player and leader for the Pistons. Now, he knows he was "built for it."`\
 https://nytimes.com/athletic/6021200/2024/12/28/cade-cunningham-pistons-growth-2023-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/opinion/joe-biden-presidency.html
 **My Restaurant Was Named One of New York City’s Best. Here’s Why It Closed.**\
 `My story is one small part of an ongoing struggle for restaurant workers and culinary culture.`\
 https://nytimes.com/2024/12/28/opinion/resturant-workers-health-care-crisis.html
-
-**The Joy of Sitting in Empty Churches**\
-`In that quiet space there is solace, a silence like nothing else.`\
-https://nytimes.com/2024/12/28/opinion/catholic-churches-silence.html
 
