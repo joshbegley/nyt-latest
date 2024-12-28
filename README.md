@@ -1,3 +1,7 @@
+**Wemby takes on patrons in chess at Washington Square Park in NYC**\
+`Wembanyama loves Legos and art and science fiction. This was just another side pursuit.`\
+https://nytimes.com/athletic/6023537/2024/12/28/victor-wembanyama-chess-washington-square-park-nyc/
+
 **Bucks' Damian Lillard plans to return from 4-game absence vs. Bulls**\
 `"I've never been that sick before in my entire life," Lillard said Saturday.`\
 https://nytimes.com/athletic/6023515/2024/12/28/damian-lillard-vs-bulls-bucks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/us/politics/tribes-casinos.html
 **Guards in Fatal Prison Assault Were Accused of Beating Inmates Before**\
 `Three of the 13 guards implicated in the savage beating of Robert Brooks had been accused in lawsuits of earlier attacks in New York prisons.`\
 https://nytimes.com/2024/12/28/nyregion/robert-brooks-marcy-correctional-facility-inmate-abuse.html
-
-**NFL Draft 2025 underclassman tracker: Which college football stars have declared early?**\
-`We're tracking all non-seniors who have publicly acknowledged their intention to declare for the 2025 draft.`\
-https://nytimes.com/athletic/5966084/2024/12/28/nfl-draft-2025-underclassmen-tracker-early-entrants/
 

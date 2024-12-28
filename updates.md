@@ -1,3 +1,7 @@
+**Bucks' Damian Lillard plans to return from 4-game absence vs. Bulls**\
+`"I've never been that sick before in my entire life," Lillard said Saturday.`\
+https://nytimes.com/athletic/6023515/2024/12/28/damian-lillard-vs-bulls-bucks/
+
 **Michel del Castillo, 91, Dies; Child’s-Eye Chronicler of Concentration Camps**\
 `His first novel, “Tanguy,” published when he was 24, was a fact-based Holocaust story that one reviewer said “begins where Anne Frank’s diary ended.”`\
 https://nytimes.com/2024/12/28/books/michel-del-castillo-dead.html
