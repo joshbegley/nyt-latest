@@ -1,3 +1,7 @@
+**For USC, a woeful 2024 ends with a wild Las Vegas Bowl victory**\
+`USC played badly enough to fall into a 17-point second-half hole against Texas A&M. Then it played well enough to overcome it all.`\
+https://nytimes.com/athletic/6023132/2024/12/28/usc-texas-am-las-vegas-bowl/
+
 **Game programs from Nebraska's 1962 Gotham Bowl are a rare — and pricey — find**\
 `An eBay retailer in New York said he sold one a 1962 Gotham Bowl game program this year for $10,000.`\
 https://nytimes.com/athletic/6022632/2024/12/28/nebraska-college-football-gotham-pinstripe-bowl-history-programs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/opinion/franz-schubert-loneliness-piano-sonatas.h
 **What It Would Take to Get Me to Fly for Fun Again**\
 `The aviation industry should get serious about direct air capture so that its emissions never reach the atmosphere.`\
 https://nytimes.com/2024/12/28/opinion/air-travel-airlines-carbon-capture-climate-change.html
-
-**One New Year’s resolution for every NHL team as they enter 2025**\
-`From trades to contracts to arena renovations, The Athletic asked its NHL staff to identify one critical resolution for each team in 2025.`\
-https://nytimes.com/athletic/6022241/2024/12/28/nhl-2025-new-years-resolutions/
 
