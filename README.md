@@ -1,3 +1,7 @@
+**Why Jordan Love's recent success against blitzes will be pivotal against Vikings**\
+`Love has gone from one of the NFL's worst against blitzes in the first half of the season to one of the best in the second half.`\
+https://nytimes.com/athletic/6022456/2024/12/28/packers-qb-jordan-love-vikings/
+
 **Alisson says Liverpool will 'take lessons' from last season in trophy pursuit**\
 `Liverpool goalkeeper Alisson has said that the squad will &#8220;take a lot of lessons&#8221; from last season as they aim to win trophies in 2024-25.`\
 https://nytimes.com/athletic/6023298/2024/12/28/alisson-liverpool-trophies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6022956/2024/12/28/nfl-news-sam-darnold-deshaun-wat
 **Mike Brown’s final days with Kings: Disastrous play, tension with star and an awkward firing**\
 `Brown led the Kings' most successful era since the early 2000s. But tension built over a nightmare homestand, leading to Friday's dismissal.`\
 https://nytimes.com/athletic/6023065/2024/12/28/mike-brown-firing-sacramento-kings-nba/
-
-**Anthony Edwards' hero shot and Randle-DiVincenzo tandem pave path for Wolves**\
-`Thanks to two timely wins this week, the new-look Timberwolves are resembling a team with true upside.`\
-https://nytimes.com/athletic/6022907/2024/12/28/anthony-edwards-donte-divincenzo-julius-randle-timberwolves/
 
