@@ -1,3 +1,7 @@
+**Nebraska holds off Boston College rally in Pinstripe Bowl, clinches first winning season since 2016**\
+`The Huskers issues on special teams continued, making their 20-15 win over the Eagles more difficult than it should have been.`\
+https://nytimes.com/athletic/6023652/2024/12/28/nebraska-boston-college-score-analysis-college-football-pinstripe-bowl/
+
 **Cowboys place WR CeeDee Lamb on injured reserve, surgery not expected**\
 `With Lamb ruled out, Dallas will now be without six Week 1 starters in Philadelphia on Sunday.`\
 https://nytimes.com/athletic/6020647/2024/12/28/ceedee-lamb-cowboys-shoulder-injury-out-season/

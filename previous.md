@@ -1,3 +1,7 @@
+**Nebraska holds off Boston College rally in Pinstripe Bowl, clinches first winning season since 2016**\
+`The Huskers issues on special teams continued, making their 20-15 win over the Eagles more difficult than it should have been.`\
+https://nytimes.com/athletic/6023652/2024/12/28/nebraska-boston-college-score-analysis-college-football-pinstripe-bowl/
+
 **Sarris: Corbin Burnes is a major coup for the Diamondbacks**\
 `An ace's ace, Burnes rediscovered his old cutter in August, while also managing to flash signs of a sweeper.`\
 https://nytimes.com/athletic/6023494/2024/12/28/corbin-burnes-diamondbacks-signing-sarris-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023444/2024/12/28/chuba-hubbard-panthers-injured-r
 **NHL looking into potential Stars CBA violation for optional practice over holiday break**\
 `Stars coach Pete DeBoer said that Dallas' young players practiced Thursday during a mandated NHL off day and that they were "supposed to."`\
 https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice/
-
-**Kirsten Simone, Danish Ballet Star, Is Dead at 90**\
-`One of Denmark’s most authoritative ballerinas, she was a prominent figure in a country better known for its male dancers.`\
-https://nytimes.com/2024/12/28/arts/dance/kirsten-simone-dead.html
 
