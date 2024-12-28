@@ -1,3 +1,7 @@
+**Netanyahu to Have Prostate Removal Surgery on Sunday**\
+`The prime minister was diagnosed with an infection from a “benign enlargement of his prostate.”`\
+https://nytimes.com/2024/12/28/world/middleeast/israel-netanyahu-prostate.html
+
 **How Donald Trump Went From Backing a TikTok Ban to Backing Off**\
 `In 2020, he moved to ban the Chinese-owned app. Now, he is opposing the Biden administration’s effort to do just that.`\
 https://nytimes.com/2024/12/28/us/politics/trump-tik-tok-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/us/politics/marc-fogel-wrongfully-detained.html
 **NHL investigating potential CBA violation by Stars for optional practice over holiday break**\
 `Stars coach Pete DeBoer said that Dallas' young players practiced Thursday during a mandated NHL off day and that they were "supposed to."`\
 https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice/
-
-**Severe Weekend Weather Disrupts Holiday Travel**\
-`More than 8,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
-https://nytimes.com/2024/12/28/us/storm-tornado-travel-delays.html
 
