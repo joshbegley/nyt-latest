@@ -1,3 +1,7 @@
+**Jaylen Brown, Celtics soar again to snap brief losing streak**\
+`Brown scored 44 points as the Celtics righted themselves against the Pacers on Friday night in a 142-105 rout.`\
+https://nytimes.com/athletic/6022986/2024/12/28/jaylen-brown-celtics-pacers-2/
+
 **Arsenal have Premier League's meanest defence, but with Saka out, will that be enough?**\
 `As the clock ticked down on Arsenal’s 1-0 win over Ipswich Town, David Raya received a backpass just outside his penalty area, dribbled back into the box, hovered over the ball and gathered it up, using up precious seconds.`\
 https://nytimes.com/athletic/6022636/2024/12/28/arsenal-saka-defence-arteta/
