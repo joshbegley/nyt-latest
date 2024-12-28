@@ -1,3 +1,7 @@
+**Brighton have stopped creating clear-cut chances and it's starting to hurt them**\
+`Shots are one thing, but fashioning more clear-cut chances is pivotal to regaining the winning habit for Fabian Hurzeler's side.`\
+https://nytimes.com/athletic/6022487/2024/12/28/brighton-attack-goals-hurzeler/
+
 **MLB Top 40 Free Agent Big Board: After Fried and Soto, what's the next big move?**\
 `Analysis, best fits, and contract projections on a strong class that includes Corbin Burnes, Alex Bregman and Roki Sasaki.`\
 https://nytimes.com/athletic/5891633/2024/12/28/2024-25-mlb-top-40-free-agmlb-top-40-free-agents-2024-big-boardent-big-board-welcome-to-the-juan-soto-sweepstakes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6009529/2024/12/28/youssef-chermiti-everton-intervi
 **The seventh-tier club Levi Colwill loves and is creating an academy for: 'He can be himself here'**\
 `Why the Chelsea and England star is so dedicated to a team far down the football pyramid`\
 https://nytimes.com/athletic/6019282/2024/12/28/levi-colwill-sholing-academy-chelsea/
-
-**After lean years in Anaheim recently, Cam Fowler finding a fit with Blues: 'I'm happy'**\
-`The new Blues defenseman scored his first goal with St. Louis in Friday's 7-4 win over the Predators.`\
-https://nytimes.com/athletic/6021925/2024/12/28/cam-fowler-blues-ducks-colton-parayko/
 
