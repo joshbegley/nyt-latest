@@ -1,3 +1,7 @@
+**Ex-N.Y.P.D. Leader Denies Sexual Abuse Accusations, Through His Lawyer**\
+`Jeffrey Maddrey, until last week the Police Department’s top uniformed officer, faced reporters for the first time since resigning. He did not say a word.`\
+https://nytimes.com/2024/12/27/nyregion/nypd-jeffrey-maddrey.html
+
 **Canada's Matthew Schaefer leaves game vs. Latvia with injury**\
 `Schaefer was injured in the first period of Canada's round-robin game against Latvia during the World Juniors.`\
 https://nytimes.com/athletic/6022599/2024/12/27/matthew-schaefer-injury-canada-world-juniors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016479/2024/12/27/bukayo-saka-surgery-arsenal/
 **Greg Gumbel, longtime March Madness and NFL broadcaster, dies at 78**\
 `With a voice synonymous with Selection Sunday and the NFL, Gumbel became one of the most recognizable broadcasters in sports.`\
 https://nytimes.com/athletic/6022424/2024/12/27/greg-gumbel-cbs-cancer-death/
-
-**Trucks Carrying Aid Finally Reach Sudan’s War-Torn Capital Region**\
-`After 20 months of war, and three months of negotiations with the warring sides, a bit of relief arrives for some of the hundreds of thousands of people facing famine.`\
-https://nytimes.com/2024/12/27/world/africa/aid-trucks-sudan-capital-famine.html
 
