@@ -1,3 +1,7 @@
+**Stowaway Caught on Delta Plane at Seattle Airport**\
+`The person, who boarded the flight without a ticket, was detected as the plane was preparing to take off for Hawaii on Christmas Eve.`\
+https://nytimes.com/2024/12/28/us/delta-stowaway-seattle-honolulu.html
+
 **Liverpool's 2024: Klopp shock, imperious Van Dijk and a stunning Slot statistic**\
 `A year that started with a managerial bombshell is ending in glorious fashion - here's our picks of 2025`\
 https://nytimes.com/athletic/6003222/2024/12/28/liverpool-2024-review-slot-klopp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6018756/2024/12/28/archie-gray-leeds-tottenham-futs
 **The making of Ruud van Nistelrooy: The early years in the Netherlands**\
 `Friends, team-mates and coaches from his career in the Netherlands discuss the personality and professionalism that led to his big move`\
 https://nytimes.com/athletic/6015469/2024/12/28/ruud-van-nistelrooy-early-years/
-
-**FPL GW19 preview: Targeting Newcastle players and and holding on to Haaland**\
-`Which Man City players to keep and which to ditch, who to watch out for, and how to take advantage of Newcastle's form`\
-https://nytimes.com/athletic/6020081/2024/12/28/fpl-gameweek-19-preview/
 
