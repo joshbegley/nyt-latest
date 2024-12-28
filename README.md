@@ -1,3 +1,11 @@
+**Arsenal have Premier League's meanest defence, but with Saka out, will that be enough?**\
+`As the clock ticked down on Arsenal’s 1-0 win over Ipswich Town, David Raya received a backpass just outside his penalty area, dribbled back into the box, hovered over the ball and gathered it up, using up precious seconds.`\
+https://nytimes.com/athletic/6022636/2024/12/28/arsenal-saka-defence-arteta/
+
+**Jaylen Brown, Celtics soar again to snap brief losing streak**\
+`Brown scored 44 points as the Celtics righted themselves against the Pacers on Friday night.`\
+https://nytimes.com/athletic/6022986/2024/12/28/jaylen-brown-celtics-pacers-2/
+
 **Why Wild's OT comeback over Stars is the biggest 'character win' of the season**\
 `Brock Faber's overtime wraparound sealed the victory, but goaltending, penalty killers and resilience put the Wild in position to win.`\
 https://nytimes.com/athletic/6022958/2024/12/28/wild-overtime-comeback-brock-faber-stars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6021925/2024/12/28/cam-fowler-blues-ducks-colton-pa
 **Alan Shearer and The Dive**\
 `Watching it back sends a shiver down my spine. I played more than 750 times in my career and dived only once. I hate myself for it`\
 https://nytimes.com/athletic/6003480/2024/12/28/alan-shearer-dive-england/
-
-**'It's always intense': The eight teams leading the fight for Premier League promotion**\
-`One point separates the top three in the second tier and all of the top eight will fancy their chances of promotion to the Premier League`\
-https://nytimes.com/athletic/6021710/2024/12/28/premier-league-promotion-race-championship/
-
-**13 insights fantasy football managers need to know ahead of 2025**\
-`Theo Gremminger's casts an eye towards the 2025 fantasy football campaign, including his way-too-early top 25 player rankings.`\
-https://nytimes.com/athletic/6022191/2024/12/28/fantasy-football-insights-2025-way-too-early-rankings/
 
