@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/28/us/politics/marc-fogel-wrongfully-detained.html
 https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice/
 
 **Severe Weekend Weather Disrupts Holiday Travel**\
-`More than 7,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
+`More than 8,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
 https://nytimes.com/2024/12/28/us/storm-tornado-travel-delays.html
 
 **Dodgers star Shohei Ohtani, wife Mamiko Tanaka expecting first child**\
