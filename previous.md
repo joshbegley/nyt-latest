@@ -1,3 +1,15 @@
+**The seventh-tier club Levi Colwill loves and is creating an academy for: 'He can be himself here'**\
+`Why the Chelsea and England star is so dedicated to a team far down the football pyramid`\
+https://nytimes.com/athletic/6019282/2024/12/28/levi-colwill-sholing-academy-chelsea/
+
+**After lean years in Anaheim recently, Cam Fowler finding a fit with Blues: 'I'm happy'**\
+`The new Blues defenseman scored his first goal with St. Louis in Friday's 7-4 win over the Predators.`\
+https://nytimes.com/athletic/6021925/2024/12/28/cam-fowler-blues-ducks-colton-parayko/
+
+**Alan Shearer and The Dive**\
+`Watching it back sends a shiver down my spine. I played more than 750 times in my career and dived only once. I hate myself for it`\
+https://nytimes.com/athletic/6003480/2024/12/28/alan-shearer-dive-england/
+
 **'It's always intense': The eight teams leading the fight for Premier League promotion**\
 `One point separates the top three in the second tier and all of the top eight will fancy their chances of promotion to the Premier League`\
 https://nytimes.com/athletic/6021710/2024/12/28/premier-league-promotion-race-championship/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/28/world/europe/russia-ship-shadow-fleet-finland.htm
 **Tormentors Change, but Not the Torment**\
 `Brutally persecuted for years by the military in Myanmar, the Rohingya ethnic minority has now become the target of one of the junta’s most formidable rivals in the country’s civil war.`\
 https://nytimes.com/2024/12/28/world/asia/tormentors-change-but-not-the-torment.html
-
-**Our Reporter Returned to Afghanistan, Seeking Lessons and Secrets**\
-`Here’s what he found.`\
-https://nytimes.com/2024/12/28/world/asia/takeaways-from-correspondent-return-to-afghanistan-investigate-war.html
-
-**Greeks Are Defying an Indoor Smoking Ban, Even After 14 Years**\
-`The country, which has one of Europe’s highest smoking rates, is also resisting a wider push for outdoor bans.`\
-https://nytimes.com/2024/12/28/world/europe/greece-indoor-smoking-ban.html
-
-**Make a Soup, Any Soup**\
-`As the days start to feel shorter and darker and colder, soup can warm both our bodies and our souls.`\
-https://nytimes.com/2024/12/28/dining/soup-holidays-pleasure.html
 
