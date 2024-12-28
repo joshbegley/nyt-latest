@@ -1,3 +1,7 @@
+**World Juniors Today: Latvia's epic upset over Canada, visiting fans enjoy Ottawa**\
+`Welcome to Day 3 of the 2025 World Juniors in Ottawa.`\
+https://nytimes.com/athletic/6007069/2024/12/28/world-juniors-today-latvia-canada/
+
 **Syria’s New Government Steps Up Pursuit of Assad Loyalists**\
 `Finding the remnants of the old dictatorship and bringing them to justice has emerged as a top priority for the new administration in Syria.`\
 https://nytimes.com/2024/12/28/world/middleeast/syria-government-arrests-human-rights.html
