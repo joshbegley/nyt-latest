@@ -1,3 +1,7 @@
+**Blue Jackets' power play, long a sore spot, continues hot stretch in rout of Bruins**\
+`The Blue Jackets scored four second-period goals and rolled to a 6-2 win over the Bruins.`\
+https://nytimes.com/athletic/6022763/2024/12/27/blue-jackets-bruins-power-play/
+
 **Maple Leafs report cards: Toronto's stars shine bright in Detroit**\
 `Mitch Marner scored a hat trick and John Tavares recorded two assists as Toronto defeated Detroit 5-2.
 `\

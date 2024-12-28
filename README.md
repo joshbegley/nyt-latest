@@ -1,3 +1,11 @@
+**Make a Soup, Any Soup**\
+`As the days start to feel shorter and darker and colder, soup can warm both our bodies and our souls.`\
+https://nytimes.com/2024/12/28/dining/soup-holidays-pleasure.html
+
+**Quote of the Day: Definitely Maybe Sounding Like Oasis**\
+`Quotation of the Day for Saturday, December 28, 2024.`\
+https://nytimes.com/2024/12/27/pageoneplus/quote-of-the-day-definitely-maybe-sounding-like-oasis.html
+
 **Blue Jackets' power play, long a sore spot, continues hot stretch in rout of Bruins**\
 `The Blue Jackets scored four second-period goals and rolled to a 6-2 win over the Bruins.`\
 https://nytimes.com/athletic/6022763/2024/12/27/blue-jackets-bruins-power-play/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6022726/2024/12/27/canada-latvia-shootout-loss/
 **For Blackhawks, trip to Buffalo a reminder of the folly of tanking and the sliding-doors 2019 draft**\
 `The Blackhawks put forth one of their worst efforts of the season against Buffalo and got a glimpse into their possible future.`\
 https://nytimes.com/athletic/6022779/2024/12/27/blackhawks-sabres-nhl-draft-tanking/
-
-**Clippers' Kawhi Leonard aiming for Jan. 4 season debut: Sources**\
-`Leonard has not played this season due to injury management on his surgically repaired right knee, but teased his return in a video.`\
-https://nytimes.com/athletic/6022716/2024/12/27/kawhi-leonard-clippers-return-date-injury/
-
-**Man With Burns on His Body Is Rescued at Penn Station, Police Say**\
-`The cause of the injuries was yet unknown. The episode on Friday night came days after a woman was fatally burned at another subway station in New York City.`\
-https://nytimes.com/2024/12/27/nyregion/penn-station-person-burned.html
 
