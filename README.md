@@ -1,3 +1,7 @@
+**Corbin Burnes, Diamondbacks agree to 6-year, $210 million contract**\
+`Burnes entered this offseason as the No. 2 player on The Athletic’s Free Agent Big Board, behind only Juan Soto.`\
+https://nytimes.com/athletic/5935173/2024/12/28/corbin-burnes-diamondbacks-contract-mlb/
+
 **Stowaway Caught on Delta Plane at Seattle Airport**\
 `The person, who boarded the flight without a ticket, was detected as the plane was preparing to take off for Hawaii on Christmas Eve.`\
 https://nytimes.com/2024/12/28/us/delta-stowaway-seattle-honolulu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6022191/2024/12/28/fantasy-football-insights-2025-w
 **Archie Gray: From Leeds scion to Spurs' star-in-the-making**\
 `From small-sided football to Bielsa's murderball madness, Gray has cut his teeth in brutal environments from the very start of his journey`\
 https://nytimes.com/athletic/6018756/2024/12/28/archie-gray-leeds-tottenham-futsal/
-
-**The making of Ruud van Nistelrooy: The early years in the Netherlands**\
-`Friends, team-mates and coaches from his career in the Netherlands discuss the personality and professionalism that led to his big move`\
-https://nytimes.com/athletic/6015469/2024/12/28/ruud-van-nistelrooy-early-years/
 
