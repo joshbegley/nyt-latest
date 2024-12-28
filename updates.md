@@ -1,3 +1,15 @@
+**Latvia hangs tight with USA, Czechia blows out Kazakhstan on Day 3 at World Juniors**\
+`Day 3 at the World Juniors was a quieter one on the schedule, with just two games on deck.`\
+https://nytimes.com/athletic/6006870/2024/12/28/world-juniors-latvia-usa-day-3/
+
+**It's time for the Patriots to dump Jerod Mayo and set sights on Mike Vrabel**\
+`Mayo's first year as Patriots head coach has been so bad that it's time to target Vrabel, a Patriots Hall of Fame player.`\
+https://nytimes.com/athletic/6023879/2024/12/28/new-england-patriots-rumors-jerod-mayo-fired/
+
+**Severe Weekend Weather Disrupts Holiday Travel**\
+`More than 8,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
+https://nytimes.com/2024/12/28/us/storm-tornado-travel-delays.html
+
 **Christian Pulisic has injury setback, will not return until 2025**\
 `USMNT's leader Christian Pulisic must wait a little longer to make his return from injury, AC Milan coach Paulo Fonseca said.`\
 https://nytimes.com/athletic/6023912/2024/12/28/christian-pulisic-injury-usmnt-milan-2/

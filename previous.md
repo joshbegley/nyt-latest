@@ -1,3 +1,11 @@
+**Latvia hangs tight with USA, Czechia blows out Kazakhstan on Day 3 at World Juniors**\
+`Day 3 at the World Juniors was a quieter one on the schedule, with just two games on deck.`\
+https://nytimes.com/athletic/6006870/2024/12/28/world-juniors-latvia-usa-day-3/
+
+**It's time for the Patriots to dump Jerod Mayo and set sights on Mike Vrabel**\
+`Mayo's first year as Patriots head coach has been so bad that it's time to target Vrabel, a Patriots Hall of Fame player.`\
+https://nytimes.com/athletic/6023879/2024/12/28/new-england-patriots-rumors-jerod-mayo-fired/
+
 **Christian Pulisic has injury setback, will not return until 2025**\
 `USMNT's leader Christian Pulisic must wait a little longer to make his return from injury, AC Milan coach Paulo Fonseca said.`\
 https://nytimes.com/athletic/6023912/2024/12/28/christian-pulisic-injury-usmnt-milan-2/
@@ -19,7 +27,7 @@ https://nytimes.com/2024/12/28/us/politics/marc-fogel-wrongfully-detained.html
 https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice/
 
 **Severe Weekend Weather Disrupts Holiday Travel**\
-`More than 7,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
+`More than 8,000 flights were delayed on Saturday amid threats of rain, snow and tornadoes across the country.`\
 https://nytimes.com/2024/12/28/us/storm-tornado-travel-delays.html
 
 **Dodgers star Shohei Ohtani, wife Mamiko Tanaka expecting first child**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6023803/2024/12/28/shohei-ohtani-baby-announcement/
 **Chargers beat Pats 40-7 to make playoffs in Harbaugh's first year: Takeaways**\
 `Los Angeles has doubled its win total from last season in Harbaugh's first year at the helm. `\
 https://nytimes.com/athletic/6023423/2024/12/28/chargers-patriots-score-result-takeaways/
-
-**NFL Week 17 playoff scenarios: Broncos, Commanders eye berths**\
-`Several division titles remain up for grabs with two weeks left in the regular season. `\
-https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
-
-**Musk Doubles Down on Support for German Far-Right Party**\
-`The world’s richest man, a key adviser to President-elect Donald J. Trump, ridicules critics over his backing of the German extremist party AfD, as Germany prepares for elections.`\
-https://nytimes.com/2024/12/28/world/europe/musk-support-for-german-far-right-afd.html
 
