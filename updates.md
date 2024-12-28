@@ -1,3 +1,7 @@
+**Georgia QB Carson Beck declares for 2025 NFL Draft**\
+`Beck led the SEC with 28 touchdown passes this season, adding 3,485 passing yards against 12 interceptions.`\
+https://nytimes.com/athletic/6023366/2024/12/28/carson-beck-nfl-draft-georgia-quarterback/
+
 **Can returning Alex Ovechkin still catch Wayne Gretzky this season? Teammates: 'Everything's in play'**\
 `Ovechkin needs 27 goals to pass Gretzky's career mark and has 48 games left on the Caps' schedule to try to get it done, starting Saturday.`\
 https://nytimes.com/athletic/6021732/2024/12/28/alex-ovechkin-return-gretzky-goals-record/
