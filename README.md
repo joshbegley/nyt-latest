@@ -1,3 +1,7 @@
+**Gunner Stockton’s cows, Mike Bobo’s self-awareness: Takeaways before Sugar Bowl**\
+`What's the plan for Stockton and the Georgia offense vs. Notre Dame in the Sugar Bowl? `\
+https://nytimes.com/athletic/6023602/2024/12/28/georgia-notre-dame-sugar-bowl-cfp-gunner-stockton/
+
 **Nebraska holds off Boston College rally in Pinstripe Bowl, clinches first winning season since 2016**\
 `The Huskers issues on special teams continued, making their 20-15 win over the Eagles more difficult than it should have been.`\
 https://nytimes.com/athletic/6023652/2024/12/28/nebraska-boston-college-score-analysis-college-football-pinstripe-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023558/2024/12/28/mets-teoscar-hernandez-free-agen
 **Panthers place Chuba Hubbard on IR with calf injury**\
 `Entering the weekend, Hubbard's breakout season saw him rank sixth in rushing in the NFL.`\
 https://nytimes.com/athletic/6023444/2024/12/28/chuba-hubbard-panthers-injured-reserve/
-
-**NHL looking into potential Stars CBA violation for optional practice over holiday break**\
-`Stars coach Pete DeBoer said that Dallas' young players practiced Thursday during a mandated NHL off day and that they were "supposed to."`\
-https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice/
 
