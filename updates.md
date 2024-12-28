@@ -1,3 +1,7 @@
+**Netanyahu to Have Prostate Removal Surgery on Sunday**\
+`The prime minister was diagnosed with an infection from a “benign enlargement of his prostate.”`\
+https://nytimes.com/2024/12/28/world/middleeast/israel-netanyahu-prostate.html
+
 **How Donald Trump Went From Backing a TikTok Ban to Backing Off**\
 `In 2020, he moved to ban the Chinese-owned app. Now, he is opposing the Biden administration’s effort to do just that.`\
 https://nytimes.com/2024/12/28/us/politics/trump-tik-tok-ban.html
