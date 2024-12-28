@@ -2,8 +2,8 @@
 `The Blue Jackets scored four second-period goals and rolled to a 6-2 win over the Bruins.`\
 https://nytimes.com/athletic/6022763/2024/12/27/blue-jackets-bruins-power-play/
 
-**What we learned about Todd McLellan in his first game behind the Red WIngs bench**\
-`McLellan wants the Red Wings to be harder, faster and smarter. But it won't happen overnight.`\
+**What we learned about Todd McLellan in his first game behind the Red Wings bench**\
+`McLellan wants the Red Wings to play harder, faster and smarter. But it won't happen overnight.`\
 https://nytimes.com/athletic/6022259/2024/12/27/red-wings-todd-mclellan-coach/
 
 **Sabres blow out Blackhawks in front of a rare sellout crowd at home: 3 takeaways**\
