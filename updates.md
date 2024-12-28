@@ -1,3 +1,7 @@
+**Cowboys place WR CeeDee Lamb on injured reserve, surgery not expected**\
+`With Lamb ruled out, Dallas will now be without six Week 1 starters in Philadelphia on Sunday.`\
+https://nytimes.com/athletic/6020647/2024/12/28/ceedee-lamb-cowboys-shoulder-injury-out-season/
+
 **Sarris: Corbin Burnes is a major coup for the Diamondbacks**\
 `An ace's ace, Burnes rediscovered his old cutter in August, while also managing to flash signs of a sweeper.`\
 https://nytimes.com/athletic/6023494/2024/12/28/corbin-burnes-diamondbacks-signing-sarris-analysis/

@@ -2,6 +2,10 @@
 `An ace's ace, Burnes rediscovered his old cutter in August, while also managing to flash signs of a sweeper.`\
 https://nytimes.com/athletic/6023494/2024/12/28/corbin-burnes-diamondbacks-signing-sarris-analysis/
 
+**Cowboys place WR CeeDee Lamb on injured reserve, surgery not expected**\
+`With Lamb ruled out, Dallas will now be without six Week 1 starters in Philadelphia on Sunday.`\
+https://nytimes.com/athletic/6020647/2024/12/28/ceedee-lamb-cowboys-shoulder-injury-out-season/
+
 **Tagovailoa downgraded to doubtful (hip) for Week 17 vs. Browns**\
 `Skylar Thompson has been elevated to the active roster and No. 2 QB Tyler Huntley could be in line to start against Cleveland. `\
 https://nytimes.com/athletic/6023529/2024/12/28/dolphins-qb-tua-tagovailoa-doubtful-browns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice
 **Kirsten Simone, Danish Ballet Star, Is Dead at 90**\
 `One of Denmark’s most authoritative ballerinas, she was a prominent figure in a country better known for its male dancers.`\
 https://nytimes.com/2024/12/28/arts/dance/kirsten-simone-dead.html
-
-**Corbin Burnes is joining the Diamondbacks. Can they leverage his secret weapon?**\
-`The story of Burnes’ sweeper is the latest reason why so many in the industry view him as a pitcher worthy of a long-term commitment.`\
-https://nytimes.com/athletic/5952676/2024/12/28/corbin-burnes-diamondbacks-contract-sweeper/
 
