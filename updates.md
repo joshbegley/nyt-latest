@@ -1,3 +1,7 @@
+**Gunner Stockton’s cows, Mike Bobo’s self-awareness: Takeaways before Sugar Bowl**\
+`What's the plan for Stockton and the Georgia offense vs. Notre Dame in the Sugar Bowl? `\
+https://nytimes.com/athletic/6023602/2024/12/28/georgia-notre-dame-sugar-bowl-cfp-gunner-stockton/
+
 **Nebraska holds off Boston College rally in Pinstripe Bowl, clinches first winning season since 2016**\
 `The Huskers issues on special teams continued, making their 20-15 win over the Eagles more difficult than it should have been.`\
 https://nytimes.com/athletic/6023652/2024/12/28/nebraska-boston-college-score-analysis-college-football-pinstripe-bowl/
