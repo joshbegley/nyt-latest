@@ -1,3 +1,11 @@
+**How Brock Faber's highlight-reel goal capped gutsy comeback for Wild: 3 takeaways vs. Stars**\
+`Faber delivered in overtime to give Minnesota arguably its biggest win of the season.`\
+https://nytimes.com/athletic/6022738/2024/12/27/wild-stars-takeaways-brock-faber/
+
+**World Juniors Day 2: Canada upset by Latvia in shambolic performance**\
+`The other Day 2 games were overshadowed by Canada's lackluster, lifeless showing against Latvia in a shootout loss.`\
+https://nytimes.com/athletic/6006859/2024/12/27/canada-latvia-world-juniors-2025/
+
 **Canada loses to Latvia in shootout at World Juniors**\
 `Canada was shocked Friday night by Latvia, losing 3-2 in a shootout in round-robin play.`\
 https://nytimes.com/athletic/6022726/2024/12/27/canada-latvia-shootout-loss/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6022690/2024/12/27/diego-pavia-vanderbilt-return/
 **Corrections: Dec. 28, 2024**\
 `Corrections that appeared in print on Saturday, Dec. 28, 2024.`\
 https://nytimes.com/2024/12/27/pageoneplus/corrections-dec-28-2024.html
-
-**Read the document**\
-`President-elect Donald J. Trump filed a brief asking the Supreme Court to block a law that requires TikTok to be sold or shut down by Jan. 19, the day before his inauguration.`\
-https://nytimes.com/interactive/2024/12/27/us/tiktoktrumpamicusbrief.html
-
-**Ex-N.Y.P.D. Leader Denies Sexual Abuse Accusations, Through His Lawyer**\
-`Jeffrey Maddrey, until last week the Police Department’s top uniformed officer, faced reporters for the first time since resigning. He did not say a word.`\
-https://nytimes.com/2024/12/27/nyregion/nypd-jeffrey-maddrey.html
 
