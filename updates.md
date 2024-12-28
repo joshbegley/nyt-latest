@@ -1,3 +1,7 @@
+**Why Jordan Love's recent success against blitzes will be pivotal against Vikings**\
+`Love has gone from one of the NFL's worst against blitzes in the first half of the season to one of the best in the second half.`\
+https://nytimes.com/athletic/6022456/2024/12/28/packers-qb-jordan-love-vikings/
+
 **Alisson says Liverpool will 'take lessons' from last season in trophy pursuit**\
 `Liverpool goalkeeper Alisson has said that the squad will &#8220;take a lot of lessons&#8221; from last season as they aim to win trophies in 2024-25.`\
 https://nytimes.com/athletic/6023298/2024/12/28/alisson-liverpool-trophies/
