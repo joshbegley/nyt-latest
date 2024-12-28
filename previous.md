@@ -1,3 +1,35 @@
+**Six questions facing the Rangers after the break: Schedule, Kreider, Zibanejad, Perreault and more**\
+`After a few days off for the holiday break, the Rangers are back in action Saturday. Returning too are the questions surrounding the team.`\
+https://nytimes.com/athletic/6021724/2024/12/28/rangers-questions-kreider-zibanejad-perreault/
+
+**The Blaming of Joe Biden**\
+`Blame is simplistic. Might I suggest that there is another way to understand what happened with the president? A more humane way?`\
+https://nytimes.com/2024/12/28/opinion/joe-biden-presidency.html
+
+**My Restaurant Was Named One of New York City’s Best. Here’s Why It Closed.**\
+`My story is one small part of an ongoing struggle for restaurant workers and culinary culture.`\
+https://nytimes.com/2024/12/28/opinion/resturant-workers-health-care-crisis.html
+
+**The Joy of Sitting in Empty Churches**\
+`In that quiet space there is solace, a silence like nothing else.`\
+https://nytimes.com/2024/12/28/opinion/catholic-churches-silence.html
+
+**Lonely? Schubert Knows You Best.**\
+`Schubert’s final three piano sonatas are a deep exploration of loneliness, and particularly apt for our age of isolation.`\
+https://nytimes.com/2024/12/28/opinion/franz-schubert-loneliness-piano-sonatas.html
+
+**What It Would Take to Get Me to Fly for Fun Again**\
+`The aviation industry should get serious about direct air capture so that its emissions never reach the atmosphere.`\
+https://nytimes.com/2024/12/28/opinion/air-travel-airlines-carbon-capture-climate-change.html
+
+**One New Year’s resolution for every NHL team as they enter 2025**\
+`From trades to contracts to arena renovations, The Athletic asked its NHL staff to identify one critical resolution for each team in 2025.`\
+https://nytimes.com/athletic/6022241/2024/12/28/nhl-2025-new-years-resolutions/
+
+**The 19th-Century Technology That Threatens A.I.**\
+`The biggest thing holding America back from dominance in artificial intelligence is the country’s inability to keep up with the demand for electricity.`\
+https://nytimes.com/2024/12/28/opinion/ai-electricity-power-plants.html
+
 **Your Best Advice of 2024**\
 `As we start to look ahead, here’s the best advice that readers of The Morning received this year.`\
 https://nytimes.com/2024/12/28/briefing/your-best-advice-of-2024.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/12/28/briefing/your-best-advice-of-2024.html
 **The Gauthier-Drysdale trade, revisited: Did the Flyers and Ducks get what they expected?**\
 `After the high-profile trade, both young players are still attempting to solidify themselves in the NHL.`\
 https://nytimes.com/athletic/6022544/2024/12/28/flyers-ducks-gauthier-drysdale-trade/
-
-**The Connections Companion No. 567**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 29, 2024.`\
-https://nytimes.com/2024/12/28/crosswords/connections-companion-567.html
-
-**Wordle Review No. 1,289**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Dec. 29, 2024.`\
-https://nytimes.com/2024/12/28/crosswords/wordle-review-1289.html
-
-**Playing to Win: How a First Nation Turned Around Its Fortunes**\
-`Steered by an entrepreneurial chief, Membertou First Nation in Nova Scotia led the largest investment by Indigenous people in Canada’s seafood industry.`\
-https://nytimes.com/2024/12/28/world/canada/clearwater-membertou-cape-breton.html
-
-**As Hopes Rise for Gaza Cease-Fire, Conditions There Have Worsened**\
-`Human rights organizations and residents describe the situation in the enclave as getting more desperate. Here is a closer look.`\
-https://nytimes.com/2024/12/28/world/middleeast/gaza-cease-fire-human-rights.html
-
-**Women's tennis storylines for 2025: Swiatek and Sabalenka's rivalry and Gauff's rebuild**\
-`The world No. 1 battle rolls on, two top players go in search of a surge and the sport reckons with its limitations`\
-https://nytimes.com/athletic/6010718/2024/12/28/swiatek-sabalenka-h2h-wta-gauff-rybakina/
-
-**Pop Musicians, Please Spare Me the Back Stories**\
-`The power of a lasting song is that it breaks free of its origins. Hits should be more than celebrity narratives.`\
-https://nytimes.com/2024/12/28/arts/music/pop-songs-metanarratives-back-stories.html
-
-**The New York That ‘Anora’ Travels Does Exist: Take Our Tour**\
-`The movie is structured around a chaotic chase through Brooklyn and Manhattan. The director Sean Baker and his location manager retraced their steps.`\
-https://nytimes.com/2024/12/28/movies/anora-brooklyn-sean-baker.html
-
-**My Condo Sponsor Owes the Building $30,000. How Do We Make Him Pay?**\
-`The office of the New York State attorney general calls the failure of building sponsors to pay dues on unsold units a “serious” problem.`\
-https://nytimes.com/2024/12/28/realestate/condominiums-sponsor-fees.html
 
