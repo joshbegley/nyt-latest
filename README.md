@@ -1,3 +1,7 @@
+**Guards in Fatal Prison Assault Were Accused of Beating Inmates Before**\
+`Three of the 13 guards implicated in the savage beating of Robert Brooks had been accused in lawsuits of earlier attacks in New York prisons.`\
+https://nytimes.com/2024/12/28/nyregion/robert-brooks-marcy-correctional-facility-inmate-abuse.html
+
 **A blank Saturday and a restricted Sunday: Explaining this weekend's Premier League fixture list**\
 `UK viewers could watch any Premier League game they liked on Boxing Day and December 27 – but that's not the case for the upcoming matches`\
 https://nytimes.com/athletic/6023325/2024/12/28/premier-league-christmas-new-year-tv-fixtures/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/insider/nancy-pelosi-engagement-photo.html
 **Chelsea gambled by not agreeing a cheaper shirt sponsor deal - will they reap the reward?**\
 `Unusually, Chelsea players have not had a sponsor's logo on their chests so far this season - but there is a sense of a calculated gamble`\
 https://nytimes.com/athletic/6017926/2024/12/28/chelsea-sponsorship-shirt-why/
-
-**Nurkić, Marshall, Washington ejected after Suns-Mavs brawl**\
-`Mavericks forward P.J. Washington was also ejected for shoving Nurkić during the brawl.`\
-https://nytimes.com/athletic/6023250/2024/12/28/mavericks-suns-nurkic-washington-marshall-fight-ejections/
 
