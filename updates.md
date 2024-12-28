@@ -1,3 +1,7 @@
+**Interior Dept. Is Caught Between Tribes in Casino Battles**\
+`The Biden administration’s consideration of three proposed tribal casinos in California and Oregon has touched off a fierce debate about tribal sovereignty and land rights.`\
+https://nytimes.com/2024/12/28/us/politics/tribes-casinos.html
+
 **Guards in Fatal Prison Assault Were Accused of Beating Inmates Before**\
 `Three of the 13 guards implicated in the savage beating of Robert Brooks had been accused in lawsuits of earlier attacks in New York prisons.`\
 https://nytimes.com/2024/12/28/nyregion/robert-brooks-marcy-correctional-facility-inmate-abuse.html
