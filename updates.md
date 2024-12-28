@@ -1,3 +1,7 @@
+**Why Wild's OT comeback over Stars is the biggest 'character win' of the season**\
+`Brock Faber's overtime wraparound sealed the victory, but goaltending, penalty killers and resilience put the Wild in position to win.`\
+https://nytimes.com/athletic/6022958/2024/12/28/wild-overtime-comeback-brock-faber-stars/
+
 **Corbin Burnes, Diamondbacks agree to 6-year, $210 million contract**\
 `Burnes entered this offseason as the No. 2 player on The Athletic’s Free Agent Big Board, behind only Juan Soto.`\
 https://nytimes.com/athletic/5935173/2024/12/28/corbin-burnes-diamondbacks-contract-mlb/
