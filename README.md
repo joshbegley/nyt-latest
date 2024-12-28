@@ -1,7 +1,3 @@
-**Alan Shearer and The Dive**\
-`Watching it back sends a shiver down my spine. I played more than 750 times in my career and dived only once. I hate myself for it`\
-https://nytimes.com/athletic/6003480/2024/12/28/alan-shearer-dive-england/
-
 **'It's always intense': The eight teams leading the fight for Premier League promotion**\
 `One point separates the top three in the second tier and all of the top eight will fancy their chances of promotion to the Premier League`\
 https://nytimes.com/athletic/6021710/2024/12/28/premier-league-promotion-race-championship/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/28/world/asia/takeaways-from-correspondent-return-to
 **Greeks Are Defying an Indoor Smoking Ban, Even After 14 Years**\
 `The country, which has one of Europe’s highest smoking rates, is also resisting a wider push for outdoor bans.`\
 https://nytimes.com/2024/12/28/world/europe/greece-indoor-smoking-ban.html
+
+**Make a Soup, Any Soup**\
+`As the days start to feel shorter and darker and colder, soup can warm both our bodies and our souls.`\
+https://nytimes.com/2024/12/28/dining/soup-holidays-pleasure.html
 
