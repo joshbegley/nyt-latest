@@ -1,3 +1,7 @@
+**Greg Gumbel, 78, Familiar Voice to Football and Basketball Fans, Dies**\
+`The sportscaster combined play-by-play excitement with a knack for precision in his decades as a sports broadcaster calling N.F.L. and N.C.A.A. games for CBS.`\
+https://nytimes.com/2024/12/27/business/media/greg-gumbel-dead.html
+
 **Greg Gumbel, Familiar Voice to Football and Basketball Fans, Dies at 78**\
 `The sportscaster combined play-by-play excitement with a knack for precision in his decades as a sports broadcaster calling N.F.L. and N.C.A.A. games for CBS.`\
 https://nytimes.com/2024/12/27/business/media/greg-gumbel-dead.html
