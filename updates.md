@@ -1,3 +1,15 @@
+**Multi-Hyphenates**\
+`Harry Zheng presents a too-fun-to-fail inaugural Sunday puzzle.`\
+https://nytimes.com/2024/12/28/crosswords/daily-puzzle-2024-12-29.html
+
+**State Dept. Designates American Teacher Held in Russia as ‘Wrongfully Detained’**\
+`Marc Fogel was convicted of drug smuggling and sentenced in 2022 to 14 years in prison by the same court that handled the case of Brittney Griner.`\
+https://nytimes.com/2024/12/28/us/politics/marc-fogel-wrongfully-detained.html
+
+**NHL investigating potential CBA violation by Stars for optional practice over holiday break**\
+`Stars coach Pete DeBoer said that Dallas' young players practiced Thursday during a mandated NHL off day and that they were "supposed to."`\
+https://nytimes.com/athletic/6023307/2024/12/28/nhl-stars-cba-violation-practice/
+
 **Chargers beat Pats 40-7 to make playoffs in Harbaugh's first year: Takeaways**\
 `Los Angeles has doubled its win total from last season in Harbaugh's first year at the helm. `\
 https://nytimes.com/athletic/6023423/2024/12/28/chargers-patriots-score-result-takeaways/
