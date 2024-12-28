@@ -1,3 +1,7 @@
+**As Hopes Rise for Gaza Cease-Fire, Conditions There Have Worsened**\
+`Human rights organizations and residents describe the situation in the enclave as getting more desperate. Here is a closer look.`\
+https://nytimes.com/2024/12/28/world/middleeast/gaza-cease-fire-human-rights.html
+
 **Women's tennis storylines for 2025: Swiatek and Sabalenka's rivalry and Gauff's rebuild**\
 `The world No. 1 battle rolls on, two top players go in search of a surge and the sport reckons with its limitations`\
 https://nytimes.com/athletic/6010718/2024/12/28/swiatek-sabalenka-h2h-wta-gauff-rybakina/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007356/2024/12/28/how-to-watch-uconn-north-carolin
 **In Bomb-Scarred Cities, Risking Life and Limb to Get Civilians to Safety**\
 `The danger and hardship gets worse by the day for civilians in eastern Ukraine. Still, they resist leaving the places that have become their homes.`\
 https://nytimes.com/2024/12/28/world/europe/ukraine-civilians-aid-groups.html
-
-**How to watch Army vs. Louisiana Tech: Picks, odds for Independence Bowl**\
-`Army was already favored in the Independence Bowl when the opponent was Marshall. Now it's Louisiana Tech and a wider spread.`\
-https://nytimes.com/athletic/6007467/2024/12/28/army-louisiana-tech-picks-odds-independence-bowl/
 
