@@ -1,3 +1,7 @@
+**Musk Doubles Down on Support for German Far-Right Party**\
+`The world’s richest man, a key adviser to President-elect Donald Trump, ridicules critics over his backing of the German extremist party AfD, as Germany prepares for elections.`\
+https://nytimes.com/2024/12/28/world/europe/musk-support-for-german-far-right-afd.html
+
 **Chargers beat Pats 40-7 to make playoffs in Harbaugh's first year: Takeaways**\
 `Los Angeles doubled its win total from last season in Harbaugh's first year at the helm. `\
 https://nytimes.com/athletic/6023423/2024/12/28/chargers-patriots-score-result-takeaways/
