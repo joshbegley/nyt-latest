@@ -1,3 +1,16 @@
+**How Brock Faber's highlight-reel goal capped gutsy comeback for Wild: 3 takeaways vs. Stars**\
+`Faber delivered in overtime to give Minnesota arguably its biggest win of the season.`\
+https://nytimes.com/athletic/6022738/2024/12/27/wild-stars-takeaways-brock-faber/
+
+**World Juniors Day 2: Canada upset by Latvia in shambolic performance**\
+`The other Day 2 games were overshadowed by Canada's lackluster, lifeless showing against Latvia in a shootout loss.`\
+https://nytimes.com/athletic/6006859/2024/12/27/canada-latvia-world-juniors-2025/
+
+**Maple Leafs report cards: Toronto's stars shine bright in Detroit**\
+`Mitch Marner scored a hat trick and John Tavares recorded two assists as Toronto defeated Detroit 5-2.
+`\
+https://nytimes.com/athletic/6022711/2024/12/27/maple-leafs-red-wings-analysis-grades/
+
 **Maple Leafs report cards: Toronto's stars shine bright in Detroit**\
 `Mitch Marner scored a hat trick and John Tavares recorded two assists as Toronto defeated Detroit 5-2.
 `\
