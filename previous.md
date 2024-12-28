@@ -1,3 +1,7 @@
+**Sarris: Corbin Burnes is a major coup for the Diamondbacks**\
+`An ace's ace, Burnes rediscovered his old cutter in August, while also managing to flash signs of a sweeper.`\
+https://nytimes.com/athletic/6023494/2024/12/28/corbin-burnes-diamondbacks-signing-sarris-analysis/
+
 **Tagovailoa downgraded to doubtful (hip) for Week 17 vs. Browns**\
 `Skylar Thompson has been elevated to the active roster and No. 2 QB Tyler Huntley could be in line to start against Cleveland. `\
 https://nytimes.com/athletic/6023529/2024/12/28/dolphins-qb-tua-tagovailoa-doubtful-browns/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/arts/dance/kirsten-simone-dead.html
 **Corbin Burnes is joining the Diamondbacks. Can they leverage his secret weapon?**\
 `The story of Burnes’ sweeper is the latest reason why so many in the industry view him as a pitcher worthy of a long-term commitment.`\
 https://nytimes.com/athletic/5952676/2024/12/28/corbin-burnes-diamondbacks-contract-sweeper/
-
-**Interior Dept. Is Caught Between Tribes in Casino Battles**\
-`The Biden administration’s consideration of three proposed tribal casinos in California and Oregon has touched off a fierce debate about tribal sovereignty and land rights.`\
-https://nytimes.com/2024/12/28/us/politics/tribes-casinos.html
 
