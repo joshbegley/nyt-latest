@@ -1,3 +1,7 @@
+**For Blackhawks, trip to Buffalo a reminder of the folly of tanking and the sliding-doors 2019 draft**\
+`The Blackhawks put forth one of their worst efforts of the season against Buffalo and got a glimpse into their possible future.`\
+https://nytimes.com/athletic/6022779/2024/12/27/blackhawks-sabres-nhl-draft-tanking/
+
 **Clippers' Kawhi Leonard aiming for Jan. 4 season debut: Sources**\
 `Leonard has not played this season due to injury management on his surgically repaired right knee, but teased his return in a video.`\
 https://nytimes.com/athletic/6022716/2024/12/27/kawhi-leonard-clippers-return-date-injury/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/12/27/nyregion/nypd-jeffrey-maddrey.html
 **Canada's Matthew Schaefer leaves game vs. Latvia with injury**\
 `Schaefer was injured in the first period of Canada's round-robin game against Latvia during the World Juniors.`\
 https://nytimes.com/athletic/6022599/2024/12/27/matthew-schaefer-injury-canada-world-juniors/
-
-**Ronaldo backs Amorim to guide Man Utd through 'storm'**\
-`Cristiano Ronaldo has backed Manchester United head coach Ruben Amorim to arrest the club&#8217;s slump after a difficult start to his compatriot&#8217;s Old Trafford reign.`\
-https://nytimes.com/athletic/6022507/2024/12/27/cristiano-ronaldo-ruben-amorim/
 
