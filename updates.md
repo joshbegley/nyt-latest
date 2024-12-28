@@ -1,3 +1,7 @@
+**Canada's Matthew Schaefer leaves game vs. Latvia with injury**\
+`Schaefer was injured in the first period of Canada's round-robin game against Latvia during the World Juniors.`\
+https://nytimes.com/athletic/6022599/2024/12/27/matthew-schaefer-injury-canada-world-juniors/
+
 **Ronaldo backs Amorim to guide Man Utd through 'storm'**\
 `Cristiano Ronaldo has backed Manchester United head coach Ruben Amorim to arrest the club&#8217;s slump after a difficult start to his compatriot&#8217;s Old Trafford reign.`\
 https://nytimes.com/athletic/6022507/2024/12/27/cristiano-ronaldo-ruben-amorim/
