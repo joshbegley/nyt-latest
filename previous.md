@@ -1,3 +1,7 @@
+**Game programs from Nebraska's 1962 Gotham Bowl are a rare — and pricey — find**\
+`An eBay retailer in New York said he sold one a 1962 Gotham Bowl game program this year for $10,000.`\
+https://nytimes.com/athletic/6022632/2024/12/28/nebraska-college-football-gotham-pinstripe-bowl-history-programs/
+
 **World Juniors Today: Latvia's epic upset over Canada, visiting fans enjoy Ottawa**\
 `Welcome to Day 3 of the 2025 World Juniors in Ottawa.`\
 https://nytimes.com/athletic/6007069/2024/12/28/world-juniors-today-latvia-canada/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/28/opinion/air-travel-airlines-carbon-capture-climat
 **One New Year’s resolution for every NHL team as they enter 2025**\
 `From trades to contracts to arena renovations, The Athletic asked its NHL staff to identify one critical resolution for each team in 2025.`\
 https://nytimes.com/athletic/6022241/2024/12/28/nhl-2025-new-years-resolutions/
-
-**The 19th-Century Technology That Threatens A.I.**\
-`The biggest thing holding America back from dominance in artificial intelligence is the country’s inability to keep up with the demand for electricity.`\
-https://nytimes.com/2024/12/28/opinion/ai-electricity-power-plants.html
 

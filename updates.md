@@ -1,3 +1,7 @@
+**Game programs from Nebraska's 1962 Gotham Bowl are a rare — and pricey — find**\
+`An eBay retailer in New York said he sold one a 1962 Gotham Bowl game program this year for $10,000.`\
+https://nytimes.com/athletic/6022632/2024/12/28/nebraska-college-football-gotham-pinstripe-bowl-history-programs/
+
 **World Juniors Today: Latvia's epic upset over Canada, visiting fans enjoy Ottawa**\
 `Welcome to Day 3 of the 2025 World Juniors in Ottawa.`\
 https://nytimes.com/athletic/6007069/2024/12/28/world-juniors-today-latvia-canada/
