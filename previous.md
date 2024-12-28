@@ -1,3 +1,7 @@
+**Clippers' Kawhi Leonard aiming for Jan. 4 season debut: Sources**\
+`Leonard has not played this season due to injury management on his surgically repaired right knee, but teased his return in a video.`\
+https://nytimes.com/athletic/6022716/2024/12/27/kawhi-leonard-clippers-return-date-injury/
+
 **Man With Burns on His Body Is Rescued at Penn Station, Police Say**\
 `The cause of the injuries was yet unknown. The episode on Friday night came days after a woman was fatally burned at another subway station in New York City.`\
 https://nytimes.com/2024/12/27/nyregion/penn-station-person-burned.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6022599/2024/12/27/matthew-schaefer-injury-canada-w
 **Ronaldo backs Amorim to guide Man Utd through 'storm'**\
 `Cristiano Ronaldo has backed Manchester United head coach Ruben Amorim to arrest the club&#8217;s slump after a difficult start to his compatriot&#8217;s Old Trafford reign.`\
 https://nytimes.com/athletic/6022507/2024/12/27/cristiano-ronaldo-ruben-amorim/
-
-**Greg Gumbel, 78, Familiar Voice to Football and Basketball Fans, Dies**\
-`The sportscaster combined play-by-play excitement with a knack for precision in his decades as a sports broadcaster calling N.F.L. and N.C.A.A. games for CBS.`\
-https://nytimes.com/2024/12/27/business/media/greg-gumbel-dead.html
 
