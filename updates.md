@@ -1,3 +1,7 @@
+**Editor’s Note: Guess who’s back, back again**\
+`Shortz is back, tell a friend.`\
+https://nytimes.com/2024/12/29/crosswords/editors-note-guess-whos-back-back-again.html
+
 **What to Know About South Korea’s Worst Plane Crash in Decades**\
 `A plane carrying 181 people crashed while landing, killing most on board. Officials were investigating a possible malfunction with the landing gear and a bird strike.`\
 https://nytimes.com/2024/12/29/world/asia/what-to-know-south-korea-plane-crash.html
