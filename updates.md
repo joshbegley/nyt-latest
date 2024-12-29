@@ -1,3 +1,7 @@
+**Dodgers met with Japanese pitching phenom Roki Sasaki**\
+`The hard throwing righty has been a subject of intrigue for years for a club with a clear vision of maximizing a large Japanese market.`\
+https://nytimes.com/athletic/6023986/2024/12/28/roki-sasaki-los-angeles-dodgers-meeting/
+
 **Maple Leafs report cards: Poor team defence and goaltending stick out**\
 `In Toronto's 5-2 loss to Washington, the difference in goaltending between the two clubs was evident.`\
 https://nytimes.com/athletic/6024088/2024/12/28/maple-leafs-capitals-analysis-grades/
