@@ -1,3 +1,11 @@
+**In the Presidents’ Club, Carter Was the Odd Man Out**\
+`Jimmy Carter’s relationship with his successors in the Oval Office, both Republicans and fellow Democrats, was generally tense because of his outspokenness. That never mattered to him.`\
+https://nytimes.com/2024/12/29/us/politics/jimmy-carter-successors.html
+
+**Bills secure AFC's No. 2 seed with 40-14 blowout win over Jets: Takeaways**\
+`Jets quarterback Aaron Rodgers had a season-low QB rating Sunday and remains one passing touchdown short of 500 for his career.`\
+https://nytimes.com/athletic/6024758/2024/12/29/jets-bills-score-result-takeaways/
+
 **Jimmy Carter’s Life Was One Big Trust Exercise**\
 `What the 39th president did before he got to the White House is as interesting as what came after.`\
 https://nytimes.com/2024/12/29/opinion/jimmy-carter-plains-georgia-early-years.html
