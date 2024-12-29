@@ -1,4 +1,4 @@
-**Plane Crashes at South Korean Airport, Multiple Casualties Reported**\
+**Plane Crashes at South Korean Airport, at Least 23 Deaths Reported**\
 `The plane was trying to land when the accident happened, according to local news reports, which said that 181 people were on board.`\
 https://nytimes.com/2024/12/28/world/asia/south-korea-plane-crash.html
 
