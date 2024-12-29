@@ -1,3 +1,7 @@
+**World leaders mourn Jimmy Carter while celebrating his legacy.**\
+`By Caroline Houck`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/world-leaders-mourn-jimmy-carters-death-while-celebrating-his-legacy
+
 **The former president’s long hospice stay let him witness a living eulogy.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/the-former-presidents-long-hospice-stay-let-him-witness-a-living-eulogy
