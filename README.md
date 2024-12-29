@@ -1,3 +1,7 @@
+**The former president’s long hospice stay let him witness a living eulogy.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/the-former-presidents-long-hospice-stay-let-him-witness-a-living-eulogy
+
 **U.S. Presidents Pay Tribute to Jimmy Carter**\
 `The living members of the exclusive club of Oval Office occupants said Mr. Carter would be remembered for his efforts to promote peace and democracy.`\
 https://nytimes.com/2024/12/29/us/politics/us-presidents-react-jimmy-carter-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/us/politics/jimmy-carter-rock-music.html
 **Covering Carter: A Reporter Recalls the President’s Personal Side**\
 `In private, Jimmy Carter could be appealing and unassuming, according to a reporter who covered his presidency for The Times.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-reporter-white-house.html
-
-**In his own words: The U.S. must recognize Palestine.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/in-his-own-words-the-us-must-recognize-palestine
 
