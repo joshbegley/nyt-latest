@@ -1,3 +1,19 @@
+**The Carter Center’s Statement on Jimmy Carter’s Death**\
+`Mr. Carter died on Sunday at 100.`\
+https://nytimes.com/interactive/2024/12/29/us/untitled-document.html
+
+**From Scorn to Respect, Carter’s Legacy Evolved After His Presidency**\
+`The 39th president left the White House with his popularity in tatters. But four decades later, he is judged more kindly, in part for what he did after leaving office.`\
+https://nytimes.com/2024/12/29/us/politics/jimmy-carter-legacy-presidency.html
+
+**Bucs rout Panthers 48-14 to stay in playoff hunt: Key takeaways**\
+`The Panthers allowed a season-high 551 yards of offense as Baker Mayfield, Bucky Irving and Mike Evans all post career days in Tampa Bay.`\
+https://nytimes.com/athletic/6024786/2024/12/29/panthers-buccaneers-score-result-takeaways/
+
+**In His Reading Life, Jimmy Carter Favored ‘Anything but Politics’**\
+`A voracious reader, the president liked poetry, Civil War history and Southern fiction. He also sent Erica Jong a fan letter.`\
+https://nytimes.com/2024/12/29/books/jimmy-carter-reading-life.html
+
 **Jimmy and Rosalynn’s relationship was a constant through wins and losses.**\
 `By Rick Rojas`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/jimmy-and-rosalynns-relationship-was-a-constant-through-wins-and-losses

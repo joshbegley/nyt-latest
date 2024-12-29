@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6024779/2024/12/29/cowboys-eagles-score-result-take
 https://nytimes.com/2024/12/29/opinion/editorials/jimmy-carter-death-editorial.html
 
 **Jimmy Carter’s Life Was One Big Trust Exercise**\
-`What the 39th president did before he got to the White House Is as interesting as what came after.`\
+`What the 39th president did before he got to the White House is as interesting as what came after.`\
 https://nytimes.com/2024/12/29/opinion/jimmy-carter-plains-georgia-early-years.html
 
