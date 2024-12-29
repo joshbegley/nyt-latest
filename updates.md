@@ -1,3 +1,7 @@
+**Azerbaijan Blames Russia for Plane Crash and Rebukes Kremlin**\
+`The leader of Azerbaijan criticized the Russian response to the crash of a passenger jet that Azerbaijani officials said had most likely been hit by Russian air defenses.`\
+https://nytimes.com/2024/12/29/world/europe/azerbaijan-blames-russia-plane-crash.html
+
 **Aston Villa considering recalling Iling-Junior from Bologna loan**\
 `Aston Villa are considering recalling Samuel Iling-Junior from his season-long loan at Bologna.`\
 https://nytimes.com/athletic/6024477/2024/12/29/samuel-iling-junior-aston-villa-loan/

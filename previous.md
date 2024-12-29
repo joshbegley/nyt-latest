@@ -1,3 +1,7 @@
+**Azerbaijan Blames Russia for Plane Crash and Rebukes Kremlin**\
+`The leader of Azerbaijan criticized the Russian response to the crash of a passenger jet that Azerbaijani officials said had most likely been hit by Russian air defenses.`\
+https://nytimes.com/2024/12/29/world/europe/azerbaijan-blames-russia-plane-crash.html
+
 **Aston Villa considering recalling Iling-Junior from Bologna loan**\
 `Aston Villa are considering recalling Samuel Iling-Junior from his season-long loan at Bologna.`\
 https://nytimes.com/athletic/6024477/2024/12/29/samuel-iling-junior-aston-villa-loan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024132/2024/12/29/jonathan-kuminga-warriors-nba-st
 **Through injury and tragedy, Nebraska's Rahmir Johnson stayed — and secured the win**\
 `Nebraska's first winning season in years was secured by a player who stayed through all of the troubled times.`\
 https://nytimes.com/athletic/6024523/2024/12/29/nebraska-football-pinstripe-bowl-rahmir-johnson/
-
-**Feldman: A bittersweet ending for Deion Sanders and sons at Colorado after shaking up CFB**\
-`Deion Sanders' last game coaching sons Shedeur and Shilo, in addition to Travis Hunter, ended in a lopsided loss to BYU in the Alamo Bowl.`\
-https://nytimes.com/athletic/6024529/2024/12/29/deion-sanders-colorado-shedeur-alamo-bowl-byu/
 
