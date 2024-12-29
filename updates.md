@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Poor team defence and goaltending stick out**\
+`In Toronto's 5-2 loss to Washington, the difference in goaltending between the two clubs was evident.`\
+https://nytimes.com/athletic/6024088/2024/12/28/maple-leafs-capitals-analysis-grades/
+
 **Live Updates: Jeju Air Flight Crashes in South Korea, Killing Dozens**\
 `The passenger plane was landing when it went off the runway in Muan, in the country’s southwest. The flight came from Bangkok and was carrying 181 people.`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash
