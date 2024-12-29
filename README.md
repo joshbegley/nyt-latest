@@ -1,3 +1,7 @@
+**Nottingham Forest maintain 83-year homegrown player record as Abbott in squad**\
+`Nottingham Forest have preserved their record of having a home grown player in every matchday squad since 1941 by including 18-year-old Zach Abbott on the bench at Everton.`\
+https://nytimes.com/athletic/6024651/2024/12/29/zach-abbott-nottingham-forest-homegrown/
+
 **Democratic Fears of a Constitutional Convention**\
 `Readers discuss the possibility of Republicans pushing for one. Also: Care for migrant children; sober at parties; Rudolph at Dartmouth.`\
 https://nytimes.com/2024/12/29/opinion/letters/constitutional-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/world/asia/south-korea-plane-crash-jeju.html
 **World Juniors Today: Canada back in action, Latvia still buzzing over experience**\
 `Canada returns to the ice for the first time since their stunning upset loss to Latvia on Friday.`\
 https://nytimes.com/athletic/6007073/2024/12/29/world-juniors-today-canada-latvia-schaefer/
-
-**At the airport’s arrivals hall, an agonizing wait for news.**\
-`By John Yoon`\
-https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/at-the-airports-arrivals-hall-an-agonizing-wait-for-news
 
