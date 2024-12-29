@@ -1,3 +1,7 @@
+**In Doug Christie's first game as coach, Kings show it'll take more to turn around their season**\
+`The Kings are hopeful Doug Christie's voice can spark a turnaround, but they understand more change may be neeeded.`\
+https://nytimes.com/athletic/6024476/2024/12/29/kings-doug-christie-lakers-mike-brown-nba/
+
 **The plane crash is the deadliest on South Korean soil.**\
 `The Jeju Air Flight Crash was the worst in more than two decades, after South Korea worked to improve airline safety.`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/the-plane-crash-is-the-deadliest-on-south-korean-soil
