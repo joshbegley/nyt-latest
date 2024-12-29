@@ -1,3 +1,7 @@
+**In his own words: The U.S. must recognize Palestine.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/in-his-own-words-the-us-must-recognize-palestine
+
 **Covering Carter: Seeing Hope Restored in Africa**\
 `A Times reporter visited a clinic in Ethiopia that provided life-changing treatment with the support of Jimmy Carter.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-africa-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025602/2024/12/29/nfl-week-17-scores-takeaways-cow
 **After the Presidency, Shaking Hands and Teaching Sunday School**\
 `Once he left the White House in 1981, Mr. Carter became known for his striking accessibility and his sense of humility.`\
 https://nytimes.com/2024/12/29/us/carter-after-presidency-sunday-school.html
-
-**The White House Statement on Jimmy Carter’s Death**\
-`Read the statement from President Biden and Jill Biden.`\
-https://nytimes.com/interactive/2024/12/29/us/biden-statement.html
 

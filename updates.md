@@ -1,3 +1,7 @@
+**In his own words: The U.S. must recognize Palestine.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/in-his-own-words-the-us-must-recognize-palestine
+
 **Covering Carter: Seeing Hope Restored in Africa**\
 `A Times reporter visited a clinic in Ethiopia that provided life-changing treatment with the support of Jimmy Carter.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-africa-health.html
