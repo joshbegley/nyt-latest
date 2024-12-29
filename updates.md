@@ -1,3 +1,15 @@
+**That Time President Carter Was Menaced by a ‘Killer Rabbit’**\
+`Mr. Carter’s 1979 confrontation with a swimming rabbit was a “throwaway story” that became emblematic of his problems at home and abroad.`\
+https://nytimes.com/2024/12/29/us/politics/jimmy-carter-killer-rabbit.html
+
+**Jimmy Carter’s Life Started in Georgia and Expanded to the World**\
+`Mr. Carter spent his childhood on a peanut farm and returned there after serving in the Navy. His political career took him to Atlanta, the White House and beyond.`\
+https://nytimes.com/2024/12/29/us/jimmy-carter-life-timeline.html
+
+**Jimmy Carter, Peacemaking President Amid Crises, Is Dead at 100**\
+`Rising from Georgia farmland to the White House, he oversaw the historic Camp David peace accords, but his one-term presidency was waylaid by troubles at home and abroad.`\
+https://nytimes.com/2024/12/29/us/politics/jimmy-carter-dead.html
+
 **Carter defied expectations, even in hospice.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-defied-expectations-even-in-hospice
