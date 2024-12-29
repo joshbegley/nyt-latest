@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor
 
 **The Jeju Air Crash Appears to Be the Airline’s First Fatal One**\
 `It was also unusual for South Korea, which has had a strong aviation safety record in recent decades.`\
-https://nytimes.com/2024/12/29/world/asia/south-korea-plane-crash-jeju-air-safety.html
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash-jeju-air-safety
 
 **Ignoring Warnings, a Growing Band of Tourists Venture to Afghanistan**\
 `With the war now over, the Taliban are welcoming foreign travelers, even as governments advise their citizens to stay away.`\
