@@ -1,3 +1,7 @@
+**Live Q&A: Week 17 fantasy football start/sit chat with Jay Felicio, Sunday 12/29 at 11:15 a.m. ET**\
+`Submit your Week 17 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/6024756/2024/12/29/live-qa-week-17-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-29-at-1115-a-m-et/
+
 **Bright Flavors, Easy Dinners**\
 `Simple, savory fare to see you across the holiday season finish line: lemony skillet chicken; hot and sour soup; white bean dip with chile-cumin oil.`\
 https://nytimes.com/2024/12/29/dining/bright-flavors-easy-dinners.html
