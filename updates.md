@@ -1,3 +1,7 @@
+**Iowa State downs Miami in Pop-Tarts Bowl, devours Cinnamon Roll mascot**\
+`The flavored mascot was lowered into a giant toaster, cementing its place as one of the two greatest faux deaths in Pop-Tarts Bowl history.`\
+https://nytimes.com/athletic/6023984/2024/12/28/pop-tarts-bowl-iowa-state-miami-result/
+
 **Plane Crashes at South Korean Airport, With at Least 23 Deaths Reported**\
 `The plane, with 181 people on board, was landing when the accident happened.`\
 https://nytimes.com/2024/12/28/world/asia/south-korea-plane-crash.html

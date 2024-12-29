@@ -1,3 +1,7 @@
+**Iowa State downs Miami in Pop-Tarts Bowl, devours Cinnamon Roll mascot**\
+`The flavored mascot was lowered into a giant toaster, cementing its place as one of the two greatest faux deaths in Pop-Tarts Bowl history.`\
+https://nytimes.com/athletic/6023984/2024/12/28/pop-tarts-bowl-iowa-state-miami-result/
+
 **NFL Week 17 playoff scenarios: Commanders, Falcons eye berths**\
 `Several division titles remain up for grabs with two weeks left in the regular season. `\
 https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006870/2024/12/28/world-juniors-latvia-usa-day-3/
 **It's time for the Patriots to dump Jerod Mayo and set sights on Mike Vrabel**\
 `Mayo's first year as Patriots head coach has been so bad that it's time to target Vrabel, a Patriots Hall of Fame player.`\
 https://nytimes.com/athletic/6023879/2024/12/28/new-england-patriots-rumors-jerod-mayo-fired/
-
-**Christian Pulisic has injury setback, will not return until 2025**\
-`USMNT's leader Christian Pulisic must wait a little longer to make his return from injury, AC Milan coach Paulo Fonseca said.`\
-https://nytimes.com/athletic/6023912/2024/12/28/christian-pulisic-injury-usmnt-milan-2/
 
