@@ -1,3 +1,7 @@
+**The White House Statement on Jimmy Carter’s Death**\
+`Read the statement from President Biden and Jill Biden.`\
+https://nytimes.com/interactive/2024/12/29/us/biden-statement.html
+
 **Jimmy Carter Deserved Our Thanks and Respect, Not Our Sneers**\
 `We in the media and chattering class jeered at a man who probably improved more lives over a longer period than any recent president.`\
 https://nytimes.com/2024/12/29/opinion/jimmy-carter-death-respect.html

@@ -1,3 +1,7 @@
+**The White House Statement on Jimmy Carter’s Death**\
+`Read the statement from President Biden and Jill Biden.`\
+https://nytimes.com/interactive/2024/12/29/us/biden-statement.html
+
 **Jimmy Carter Deserved Our Thanks and Respect, Not Our Sneers**\
 `We in the media and chattering class jeered at a man who probably improved more lives over a longer period than any recent president.`\
 https://nytimes.com/2024/12/29/opinion/jimmy-carter-death-respect.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024786/2024/12/29/panthers-buccaneers-score-result
 **In His Reading Life, Jimmy Carter Favored ‘Anything but Politics’**\
 `A voracious reader, the president liked poetry, Civil War history and Southern fiction. He also sent Erica Jong a fan letter.`\
 https://nytimes.com/2024/12/29/books/jimmy-carter-reading-life.html
-
-**Jimmy and Rosalynn’s relationship was a constant through wins and losses.**\
-`By Rick Rojas`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/jimmy-and-rosalynns-relationship-was-a-constant-through-wins-and-losses
 
