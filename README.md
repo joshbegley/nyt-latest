@@ -1,3 +1,7 @@
+**Warren Upton, Who Escaped Sinking Battleship at Pearl Harbor, Dies at 105**\
+`The last survivor of the U.S.S. Utah, he was a 22-year-old Navy radioman when Japanese forces attacked.`\
+https://nytimes.com/2024/12/29/us/warren-upton-dead.html
+
 **Azerbaijan Blames Russia for Plane Crash and Rebukes Kremlin**\
 `The leader of Azerbaijan criticized the Russian response to the crash of a passenger jet that Azerbaijani officials said had most likely been hit by Russian air defenses.`\
 https://nytimes.com/2024/12/29/world/europe/azerbaijan-blames-russia-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/business/charles-dolan-dead.html
 **Is Jonathan Kuminga's latest Warriors surge for real? 'He’s turning a corner'**\
 `Kuminga has posted back-to-back games with 34 points. Steve Kerr says there's something different this time about Kuminga's play.`\
 https://nytimes.com/athletic/6024132/2024/12/29/jonathan-kuminga-warriors-nba-steve-kerr/
-
-**Through injury and tragedy, Nebraska's Rahmir Johnson stayed — and secured the win**\
-`Nebraska's first winning season in years was secured by a player who stayed through all of the troubled times.`\
-https://nytimes.com/athletic/6024523/2024/12/29/nebraska-football-pinstripe-bowl-rahmir-johnson/
 
