@@ -1,3 +1,7 @@
+**Dayle Haddon, Model and Actress Who Bucked Age Discrimination, Dies at 76**\
+`Ms. Haddon, who carved a path all her own in the modeling world, was found dead on Friday morning from what authorities believed was a carbon monoxide leak.`\
+https://nytimes.com/2024/12/28/us/dayle-haddon-dead.html
+
 **Here’s what to know about the plane crash.**\
 `The plane was`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash
