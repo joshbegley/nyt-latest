@@ -1,3 +1,7 @@
+**What are the chances of Forest qualifying for the Champions League?**\
+`Forest find themselves in uncharted territory. Or, more accurately, territory they have not explored in the best part of three decades`\
+https://nytimes.com/athletic/6025118/2024/12/29/nottingham-forest-champions-league/
+
 **Dolphins QB Tua Tagovailoa inactive for Week 17 vs. Browns**\
 `Skylar Thompson has been elevated to the active roster and No. 2 QB Tyler Huntley will start against Cleveland.`\
 https://nytimes.com/athletic/6023529/2024/12/29/dolphins-qb-tua-tagovailoa-doubtful-browns/
