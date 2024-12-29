@@ -1,3 +1,7 @@
+**Penguins come out of break cold against Islanders: 3 takeaways**\
+`The Islanders' three goals in a 10-minute span to open the second period helped fuel them past the Penguins.`\
+https://nytimes.com/athletic/6024230/2024/12/28/penguins-islanders-sidney-crosby-takeaways/
+
 **Dodgers met with Japanese pitching phenom Roki Sasaki**\
 `The hard throwing righty has been a subject of intrigue for years for a club with a clear vision of maximizing a large Japanese market.`\
 https://nytimes.com/athletic/6023986/2024/12/28/roki-sasaki-los-angeles-dodgers-meeting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023431/2024/12/28/broncos-bengals-score-result-tak
 **Live Updates: Jeju Air Flight Crashes in South Korea, Killing Dozens**\
 `The passenger plane was landing when it went off the runway in Muan, in the country’s southwest. The flight came from Bangkok and was carrying 181 people.`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash
-
-**Noah Cates continues to surge, Matvei Michkov benched as Flyers skate past Ducks**\
-`Cates has emerged as a vital player during a time when the Flyers as a team have been inconsistent.`\
-https://nytimes.com/athletic/6024072/2024/12/28/flyers-noah-cates-matvei-michkov-ducks/
 
