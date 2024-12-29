@@ -1,7 +1,3 @@
-**Colorado takes third-largest loss of Deion Sanders era as BYU rolls in Alamo Bowl**\
-`The Cougars picked off Sanders twice, limited Hunter to one highlight-reel touchdown and moved down the field with ease.`\
-https://nytimes.com/athletic/6024239/2024/12/28/colorado-byu-alamo-bowl-shedeur-sanders-travis-hunter/
-
 **Penguins come out of break cold against Islanders: 3 takeaways**\
 `The Islanders' three goals in a 10-minute span to open the second period helped fuel them past the Penguins.`\
 https://nytimes.com/athletic/6024230/2024/12/28/penguins-islanders-sidney-crosby-takeaways/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/28/business/trump-immigration-h1b-visa.html
 **Burrow keeps Bengals playoff hopes alive in wild 30-24 OT win over Broncos: Takeaways**\
 `Despite loss, Denver can still make the playoffs with a Week 18 win, while Cincinnati must win and receive some help. `\
 https://nytimes.com/athletic/6023431/2024/12/28/broncos-bengals-score-result-takeaways/
+
+**Live Updates: Jeju Air Flight Crashes in South Korea, Killing Dozens**\
+`The passenger plane was landing when it went off the runway in Muan, in the country’s southwest. The flight came from Bangkok and was carrying 181 people.`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash
 
