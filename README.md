@@ -1,5 +1,5 @@
 **What are the chances of Forest qualifying for the Champions League?**\
-`Forest find themselves in unchartered territory. Or, more accurately, territory they have not explored in the best part of three decades`\
+`Forest find themselves in uncharted territory. Or, more accurately, territory they have not explored in the best part of three decades`\
 https://nytimes.com/athletic/6025118/2024/12/29/nottingham-forest-champions-league/
 
 **Bird Strikes Are a Common Problem for Flights**\
