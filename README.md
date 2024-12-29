@@ -1,3 +1,19 @@
+**When Jimmy Carter Turned TV Into a Pulpit**\
+`Other presidents were more celebrated for their on-screen presences, but in 1979 he gave one of the White House’s most astonishing televised speeches.`\
+https://nytimes.com/2024/12/29/arts/television/jimmy-carter-malaise-speech-crisis-confidence.html
+
+**Jimmy Carter Was Right About Materialism but, Alas, Wrong About Us**\
+`“Too many of us now tend to worship self-indulgence and consumption,” he said in his 1979 “Crisis of Confidence” speech. If only we had listened.`\
+https://nytimes.com/2024/12/29/your-money/jimmy-carter-legacy-materialism.html
+
+**World leaders mourn Jimmy Carter’s death while celebrating his legacy.**\
+`By Caroline Houck`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/world-leaders-mourn-jimmy-carters-death-while-celebrating-his-legacy
+
+**After Panthers defense rests (again), big questions facing Dave Canales and Ejiro Evero**\
+`Carolina allowed 551 yards and has given up a franchise-record 496 points this season after the blowout loss to Tampa Bay.`\
+https://nytimes.com/athletic/6025703/2024/12/29/panthers-defense-blowout-bucs/
+
 **Sergio Conceicao set to be new Milan coach after Paolo Fonseca sacked**\
 `AC Milan have sacked head coach Paulo Fonseca and are set to appoint Sergio Conceicao to replace him.`\
 https://nytimes.com/athletic/6025554/2024/12/29/sergio-conceicao-set-to-be-new-milan-coach-after-paulo-fonseca-sacked/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/29/us/politics/jimmy-carter-africa-health.html
 **What the World Gets Wrong About Jimmy Carter’s Legacy**\
 `Nicholas Kristof on what the former president’s legacy meant to him — and the world.`\
 https://nytimes.com/2024/12/29/opinion/jimmy-carter-legacy.html
-
-**A Texas politician says he unwittingly helped sabotage Carter in 1980.**\
-`By Peter Baker and Michael Levenson`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/a-texas-politician-says-he-unwittingly-helped-sabotage-carter-in-1980
-
-**Units of Force**\
-`Hannah Binney makes her New York Times Crossword debut.`\
-https://nytimes.com/2024/12/29/crosswords/daily-puzzle-2024-12-30.html
-
-**Tentative Plans for Carter’s Memorial Services**\
-`Plans include lying in state at the U.S. Capitol and a state funeral at Washington National Cathedral.`\
-https://nytimes.com/2024/12/29/us/jimmy-carter-funeral-burial-plans.html
-
-**One Week in the Carter Presidency: Brokering Peace and a Nuclear Crisis**\
-`A single week in 1979 underscored just how eventful Mr. Carter’s presidency really was.`\
-https://nytimes.com/2024/12/29/us/politics/carter-peace-egypt-israel-nuclear-three-mile.html
 
