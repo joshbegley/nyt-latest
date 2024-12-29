@@ -1,3 +1,11 @@
+**Salah says he and Liverpool 'far away' from positive update on contract talks**\
+`Liverpool’s Mohamed Salah says he is “far away” from being able to provide a positive update on his contract situation.`\
+https://nytimes.com/athletic/6025327/2024/12/29/salah-liverpool-contract-update-far-away/
+
+**Eagles' Kenny Pickett exits with ribs injury vs. Cowboys**\
+`Pickett started Sunday's game in place of Jalen Hurts, who missed the matchup vs. Dallas with a concussion.`\
+https://nytimes.com/athletic/6025303/2024/12/29/eagles-kenny-pickett-rib-injury/
+
 **What are the chances of Forest qualifying for the Champions League?**\
 `Forest find themselves in unchartered territory. Or, more accurately, territory they have not explored in the best part of three decades`\
 https://nytimes.com/athletic/6025118/2024/12/29/nottingham-forest-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6025049/2024/12/29/james-franklin-nick-saban-colleg
 **Texas A&M adds to WR portal haul with NC State's KC Concepcion**\
 `Concepcion, the 2023 ACC rookie of the year, joins Texas Tech's Micah Hudson and Mississippi State's Mario Craver in transferring to A&M.`\
 https://nytimes.com/athletic/6025050/2024/12/29/kc-concepcion-texas-am-nc-state-portal/
-
-**Blue Jackets Sunday Gathering: Jordan Dumais activated and sent to AHL Cleveland**\
-`Dumais will begin practicing with the Monsters and ramping up his skating and conditioning, eyeing a pro debut later this season.`\
-https://nytimes.com/athletic/6024585/2024/12/29/blue-jackets-nhl-jordan-dumais-ahl/
-
-**Sources: Lakers trade D'Angelo Russell to Nets for Dorian Finney-Smith**\
-`The Nets will receive second-year forward Maxwell Lewis and three second-round picks in addition to reuniting with Russell.`\
-https://nytimes.com/athletic/6024941/2024/12/29/dangelo-russell-dlo-trade-lakers-nets/
 
