@@ -1,3 +1,7 @@
+**Why Lakers have long coveted Dorian Finney-Smith and how he can immediately help**\
+`The Lakers are excited about the positional versatility Finney-Smith provides. And they still have flexibility to reinforce the roster.`\
+https://nytimes.com/athletic/6025301/2024/12/29/lakers-dorian-finney-smith-fit-nba-trade/
+
 **The former president’s long hospice stay let him witness a living eulogy.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/the-former-presidents-long-hospice-stay-let-him-witness-a-living-eulogy
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025554/2024/12/29/sergio-conceicao-set-to-be-new-m
 **Jimmy Carter Opened the White House to the Music He Loved**\
 `The Allman Brothers kick-started his candidacy and Willie Nelson smoked marijuana at the White House. Mr. Carter’s tastes were a confluence of strategy, generational change and forthright appreciation.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-rock-music.html
-
-**Covering Carter: A Reporter Recalls the President’s Personal Side**\
-`In private, Jimmy Carter could be appealing and unassuming, according to a reporter who covered his presidency for The Times.`\
-https://nytimes.com/2024/12/29/us/politics/jimmy-carter-reporter-white-house.html
 
