@@ -1,3 +1,19 @@
+**Tentative Plans for Carter’s Memorial Services**\
+`Plans include lying in state at the U.S. Capitol and a state funeral at Washington National Cathedral.`\
+https://nytimes.com/2024/12/29/us/jimmy-carter-funeral-burial-plans.html
+
+**One Week in the Carter Presidency: Brokering Peace and a Nuclear Crisis**\
+`A single week in 1979 underscored just how eventful Mr. Carter’s presidency really was.`\
+https://nytimes.com/2024/12/29/us/politics/carter-peace-egypt-israel-nuclear-three-mile.html
+
+**Bowers record-setting day paces Raiders in win vs. Saints: Takeaways**\
+`The Raiders are now 4-12 with one regular-season game to play, while the Saints drop to 5-11.`\
+https://nytimes.com/athletic/6024767/2024/12/29/raiders-saints-score-result-takeaways/
+
+**NFL Week 17 takeaways: Should Cowboys keep Mike McCarthy?**\
+`Plus, the resilient Eagles, and missed opportunities for two playoff contenders.`\
+https://nytimes.com/athletic/6025602/2024/12/29/nfl-week-17-scores-takeaways-cowboys-mike-mccarthy/
+
 **Bucs rout Panthers 48-14 to stay in playoff hunt: Key takeaways**\
 `The Panthers allowed a season-high 551 yards of offense as Baker Mayfield, Bucky Irving and Mike Evans all post career days in Tampa Bay.`\
 https://nytimes.com/athletic/6024786/2024/12/29/panthers-buccaneers-score-result-takeaways/
