@@ -1,3 +1,7 @@
+**'We did this to ourselves': Blue Jackets too careless with the puck to end road woes**\
+`After a 4-0 loss to the Bruins, the Blue Jackets now have a 4-12-3 record away from Nationwide Arena this season.`\
+https://nytimes.com/athletic/6024207/2024/12/28/blue-jackets-bruins-road-record/
+
 **Bruins’ Fabian Lysell, Oliver Wahlstrom and the hunt for secondary offense**\
 `Lysell’s promotion reflects poorly on Wahlstrom’s second chance.`\
 https://nytimes.com/athletic/6024238/2024/12/28/bruins-fabian-lysell-nhl-debut-oliver-wahlstrom/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024175/2024/12/28/zac-taylor-game-management-benga
 **Dončić 'doing fine' after Mavericks star's home burglarized, Kidd says**\
 `The incident marked the latest development in a string of break-ins into professional athletes’ homes in the past few months.`\
 https://nytimes.com/athletic/6023440/2024/12/28/luka-doncic-home-dallas-burglary-mavericks/
-
-**Dayle Haddon, Model and Actress Who Bucked Age Discrimination, Dies at 76**\
-`Ms. Haddon, who carved a path all her own in the modeling world, was found dead on Friday morning from what authorities believed was a carbon monoxide leak.`\
-https://nytimes.com/2024/12/28/us/dayle-haddon-dead.html
 
