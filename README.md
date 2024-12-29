@@ -1,3 +1,7 @@
+**Aston Villa considering recalling Iling-Junior from Bologna loan**\
+`Aston Villa are considering recalling Samuel Iling-Junior from his season-long loan at Bologna.`\
+https://nytimes.com/athletic/6024477/2024/12/29/samuel-iling-junior-aston-villa-loan/
+
 **In Doug Christie's first game as coach, Kings show it'll take more to turn around their season**\
 `The Kings are hopeful Doug Christie's voice can spark a turnaround, but they understand more change may be neeeded.`\
 https://nytimes.com/athletic/6024476/2024/12/29/kings-doug-christie-lakers-mike-brown-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024523/2024/12/29/nebraska-football-pinstripe-bowl
 **Feldman: A bittersweet ending for Deion Sanders and sons at Colorado after shaking up CFB**\
 `Deion Sanders' last game coaching sons Shedeur and Shilo, in addition to Travis Hunter, ended in a lopsided loss to BYU in the Alamo Bowl.`\
 https://nytimes.com/athletic/6024529/2024/12/29/deion-sanders-colorado-shedeur-alamo-bowl-byu/
-
-**Bulls guard Josh Giddey on being locked in defensively: ‘I flipped that switch’**\
-`Giddey had a triple-double in a win over the Bucks on Saturday but was most proud of his defensive effort.`\
-https://nytimes.com/athletic/6024436/2024/12/29/bulls-josh-giddey-zach-lavine-nba/
 
