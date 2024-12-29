@@ -1,3 +1,7 @@
+**Rangers' special teams and stars struggle vs. Lightning: 3 takeaways**\
+`The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them.`\
+https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor-shesterkin/
+
 **Newcastle United's 2024: Faith wobbles, Isak shines and promise sparks again**\
 `Newcastle's 'project' stuttered in 2024 but Eddie Howe's side weathered potential storms, and fans can dare to dream of a brighter future`\
 https://nytimes.com/athletic/6006123/2024/12/29/newcastle-united-2024-gordon-isak-howe/
