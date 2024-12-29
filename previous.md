@@ -1,3 +1,19 @@
+**Rams on verge of NFC West title with 13-9 win vs. Cardinals: Takeaways**\
+`While the victory gives the Rams control over the division, they still need help to clinch the title.`\
+https://nytimes.com/athletic/6023438/2024/12/29/cardinals-rams-score-result-takeaways/
+
+**Leeds' Scandinavian love affair: 'The first time I saw Elland Road I cried'**\
+`Leeds have a significant fanbase in Scandanavia that have stuck with the club through thick and thin`\
+https://nytimes.com/athletic/5986233/2024/12/29/leeds-united-scandanavian-fans/
+
+**Arsenal's 2024: Almost champions, Raya's shootout glory, and emptying stadiums**\
+`Over the past 12 months Arsenal have stepped up a level, but still not reached their goal. Here are the highs and lows...`\
+https://nytimes.com/athletic/5980655/2024/12/29/arsenals-2024-almost-champions-rayas-shootout-glory-and-emptying-stadiums/
+
+**The Premier League tactics and trends that have shaped the season so far**\
+`Our experts discuss the good, the bad and the unusual from the campaign so far`\
+https://nytimes.com/athletic/6023134/2024/12/29/premier-league-half-season-review-tactics/
+
 **The art of the 'olimpico' - football's (usually) rare phenomenon**\
 `Unless you're Manchester United, you're unlikely to see many goals being scored direct from corners – but here experts explain how to do it`\
 https://nytimes.com/athletic/6023128/2024/12/29/olimpico-scoring-from-corner/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-pl
 **Ignoring Warnings, a Growing Band of Tourists Venture to Afghanistan**\
 `With the war now over, the Taliban are welcoming foreign travelers, even as governments advise their citizens to stay away.`\
 https://nytimes.com/2024/12/29/world/asia/afghanistan-taliban-tourism.html
-
-**Despite Attacks, an Underground Church for L.G.B.T.Q. Africans Thrives**\
-`The congregation in Nairobi, Kenya, has been forced to move to 10 different locations over 10 years, and yet it has survived as a sanctuary in an increasingly hostile environment.`\
-https://nytimes.com/2024/12/29/world/africa/despite-attacks-an-underground-church-for-lgbtq-africans-thrives.html
-
-**The Loneliness and Joy of a Late-December Birthday**\
-`It’s hard to have your special day in a month of special days. December babies have one request: Make an effort.`\
-https://nytimes.com/2024/12/29/style/late-december-birthdays.html
-
-**Quote of the Day: Sturgeon and Shrapnel — Making Caviar as the Rockets Flew**\
-`Quotation of the Day for Sunday, December 29, 2024`\
-https://nytimes.com/2024/12/28/pageoneplus/quote-of-the-day-sturgeon-and-shrapnel-making-caviar-as-the-rockets-flew.html
-
-**South Korea’s Acting President Has Only Been in Office Since Friday**\
-`After two impeachments of leaders in two weeks, the country is deep into a political crisis.`\
-https://nytimes.com/2024/12/28/world/asia/south-korea-president-political-crisis.html
 

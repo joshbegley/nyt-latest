@@ -1,3 +1,19 @@
+**Rams on verge of NFC West title with 13-9 win vs. Cardinals: Takeaways**\
+`While the victory gives the Rams control over the division, they still need help to clinch the title.`\
+https://nytimes.com/athletic/6023438/2024/12/29/cardinals-rams-score-result-takeaways/
+
+**Leeds' Scandinavian love affair: 'The first time I saw Elland Road I cried'**\
+`Leeds have a significant fanbase in Scandanavia that have stuck with the club through thick and thin`\
+https://nytimes.com/athletic/5986233/2024/12/29/leeds-united-scandanavian-fans/
+
+**Arsenal's 2024: Almost champions, Raya's shootout glory, and emptying stadiums**\
+`Over the past 12 months Arsenal have stepped up a level, but still not reached their goal. Here are the highs and lows...`\
+https://nytimes.com/athletic/5980655/2024/12/29/arsenals-2024-almost-champions-rayas-shootout-glory-and-emptying-stadiums/
+
+**The Premier League tactics and trends that have shaped the season so far**\
+`Our experts discuss the good, the bad and the unusual from the campaign so far`\
+https://nytimes.com/athletic/6023134/2024/12/29/premier-league-half-season-review-tactics/
+
 **Rangers' special teams and stars struggle vs. Lightning: 3 takeaways**\
 `The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them for the team.`\
 https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor-shesterkin/
