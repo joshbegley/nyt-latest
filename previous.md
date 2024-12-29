@@ -1,3 +1,7 @@
+**West Ham 0 Liverpool 5 - Breaking down Salah's extraordinary assist and why Diaz is scoring**\
+`Analysis of Liverpool's victory over West Ham that witnessed an extraordinary Mohamed Salah assist`\
+https://nytimes.com/athletic/6017904/2024/12/29/west-ham-liverpool-salah-assist-highlights/
+
 **Rooney on Plymouth future: 'You have to look at every outcome'**\
 `Wayne Rooney said he was “hurting” and accepted “you have to look at every possible outcome” after yet another defeat on the road left his Plymouth Argyle rooted to the bottom of the Championship.`\
 https://nytimes.com/athletic/6025071/2024/12/29/wayne-rooney-plymouth-argyle-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017899/2024/12/29/tottenham-udogie-wolves-son-bent
 **The Pulse: Big NFL playoff stakes today**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/6024841/2024/12/29/nfl-watch-playoff-scenarios-the-pulse/
-
-**Israel Struggles to Halt Attacks From Faraway Foe Once Off Radar**\
-`Even as battles with its enemies on its borders appear to be winding down, Israel is being challenged by intensifying attacks by the Houthi militia in Yemen, 1,000 miles away.`\
-https://nytimes.com/2024/12/29/world/middleeast/israel-houthis-yemen.html
 
