@@ -1,3 +1,7 @@
+**Here’s what to know about the Jeju Air accident.**\
+`The plane was`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash
+
 **Noah Cates continues to surge, Matvei Michkov benched as Flyers skate past Ducks**\
 `Cates has emerged as a vital player during a time when the Flyers as a team have been inconsistent.`\
 https://nytimes.com/athletic/6024072/2024/12/28/flyers-noah-cates-matvei-michkov-ducks/
