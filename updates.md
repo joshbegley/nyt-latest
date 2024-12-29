@@ -1,3 +1,11 @@
+**Live Updates: Jeju Air Flight Crashes in South Korea, Killing Many**\
+`The passenger plane was landing when it went off the runway in Muan. The flight came from Bangkok and was carrying 181 people.`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash
+
+**Here’s what to know about the plane crash. accident.**\
+`The plane was`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash
+
 **Trump Weighs In on Immigrant Visa Debate but Offers Little Clarity**\
 `He said in an interview that he had used the visas for skilled workers “many times.” But he has mainly used visas for unskilled workers like housekeepers.`\
 https://nytimes.com/2024/12/28/business/trump-immigration-h1b-visa.html
