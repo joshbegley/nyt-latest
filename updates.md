@@ -1,3 +1,19 @@
+**The art of the 'olimpico' - football's (usually) rare phenomenon**\
+`Unless you're Manchester United, you're unlikely to see many goals being scored direct from corners – but here experts explain how to do it`\
+https://nytimes.com/athletic/6023128/2024/12/29/olimpico-scoring-from-corner/
+
+**Liverpool's corners: 'Sugar huddles', more inswingers – and room for improvement**\
+`The team's record from corners has dropped this season. While it's not hurting them now, it's a clear area to improve`\
+https://nytimes.com/athletic/6023080/2024/12/29/liverpool-corners-premier-league/
+
+**Mbappe, Vinicius Jr and Bellingham: Real Madrid's third wave of 'galacticos' are just getting started**\
+`Mbappe is finding form, Bellingham has started having a big impact in attacking situations again and Vinicius Jr has been, well, Vinicius Jr`\
+https://nytimes.com/athletic/6015731/2024/12/29/mbappe-vinicius-bellingham-real-madrid-mvb/
+
+**The crash appears to be Jeju Air’s first fatal one.**\
+`It was also unusual for South Korea, which has had a strong aviation safety record in recent decades.`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash-jeju-air-safety
+
 **Rangers' special teams woes, top player struggles and a standings plummet: 3 takeaways**\
 `The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them for the team.`\
 https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor-shesterkin/
