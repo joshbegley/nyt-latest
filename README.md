@@ -1,7 +1,3 @@
-**Carter defied expectations, even in hospice.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-defied-expectations-even-in-hospice
-
 **The Last Word: Jimmy Carter**\
 `In a never-before-seen interview with The Times in 2006, Jimmy Carter reflects on his life and work as a Cold War leader, Middle East peace broker and post-presidential career as a citizen diplomat.`\
 https://nytimes.com/video/us/politics/1194834031782/jimmy-carter-obituary.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/12/29/books/stanley-booth-dead.html
 **Raiders’ Brock Bowers breaks Ditka’s, Nacua's rookie receiving records**\
 `In the third quarter, Bowers also matched Darren Waller's franchise record for most receptions in a season with his 107th catch.`\
 https://nytimes.com/athletic/6025173/2024/12/29/brock-bowers-nfl-rookie-record-raiders-mike-ditka/
+
+**Salah says he and Liverpool 'far away' from positive update on contract talks**\
+`Liverpool’s Mohamed Salah says he is “far away” from being able to provide a positive update on his contract situation.`\
+https://nytimes.com/athletic/6025327/2024/12/29/salah-liverpool-contract-update-far-away/
 

@@ -1,3 +1,11 @@
+**Carter defied expectations, even in hospice.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-defied-expectations-even-in-hospice
+
+**Updates: Jimmy Carter Dies at 100**\
+`The former president, a peanut farmer and Democrat from Georgia, was known as much for his charity and diplomatic work later in life as he was for his single presidential term, which ended in 1981.`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter
+
 **The Last Word: Jimmy Carter**\
 `In a never-before-seen interview with The Times in 2006, Jimmy Carter reflects on his life and work as a Cold War leader, Middle East peace broker and post-presidential career as a citizen diplomat.`\
 https://nytimes.com/video/us/politics/1194834031782/jimmy-carter-obituary.html
