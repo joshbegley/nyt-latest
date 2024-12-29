@@ -1,3 +1,7 @@
+**South Korea’s Acting President Has Only Been in Office Since Friday**\
+`After two impeachments of leaders in two weeks, the country is deep into a political crisis.`\
+https://nytimes.com/2024/12/28/world/asia/south-korea-president-political-crisis.html
+
 **'We did this to ourselves': Blue Jackets too careless with the puck to end road woes**\
 `After a 4-0 loss to the Bruins, the Blue Jackets now have a 4-12-3 record away from Nationwide Arena this season.`\
 https://nytimes.com/athletic/6024207/2024/12/28/blue-jackets-bruins-road-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024191/2024/12/28/ecu-nc-state-fight-ejections-ref
 **Bengals' Zac Taylor explains his game management at end of regulation vs. Broncos**\
 `Cincinnati's head coach stayed aggressive and an injury threw off a chance to bleed the clock almost all the way down.`\
 https://nytimes.com/athletic/6024175/2024/12/28/zac-taylor-game-management-bengals-broncos/
-
-**Dončić 'doing fine' after Mavericks star's home burglarized, Kidd says**\
-`The incident marked the latest development in a string of break-ins into professional athletes’ homes in the past few months.`\
-https://nytimes.com/athletic/6023440/2024/12/28/luka-doncic-home-dallas-burglary-mavericks/
 
