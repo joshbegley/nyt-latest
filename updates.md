@@ -1,3 +1,7 @@
+**Plane Crashes at South Korean Airport, With at Least 23 Deaths Reported**\
+`The plane, with 181 people on board, was landing when the accident happened.`\
+https://nytimes.com/2024/12/28/world/asia/south-korea-plane-crash.html
+
 **NFL Week 17 playoff scenarios: Commanders, Falcons eye berths**\
 `Several division titles remain up for grabs with two weeks left in the regular season. `\
 https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
