@@ -1,3 +1,7 @@
+**Dolphins QB Tua Tagovailoa inactive for Week 17 vs. Browns**\
+`Skylar Thompson has been elevated to the active roster and No. 2 QB Tyler Huntley could be in line to start against Cleveland.`\
+https://nytimes.com/athletic/6023529/2024/12/29/dolphins-qb-tua-tagovailoa-doubtful-browns/
+
 **Bird Strikes Are a Common Problem for Flights**\
 `It is not uncommon for planes to strike wildlife, but most episodes don’t result in deaths or serious injuries.`\
 https://nytimes.com/2024/12/29/world/asia/bird-strike-plane-crash.html
