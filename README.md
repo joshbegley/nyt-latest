@@ -1,3 +1,11 @@
+**A Texas politician says he unwittingly helped sabotage Carter in 1980.**\
+`By Peter Baker and Michael Levenson`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/a-texas-politician-says-he-unwittingly-helped-sabotage-carter-in-1980
+
+**Units of Force**\
+`Hannah Binney makes her New York Times Crossword debut.`\
+https://nytimes.com/2024/12/29/crosswords/daily-puzzle-2024-12-30.html
+
 **Tentative Plans for Carter’s Memorial Services**\
 `Plans include lying in state at the U.S. Capitol and a state funeral at Washington National Cathedral.`\
 https://nytimes.com/2024/12/29/us/jimmy-carter-funeral-burial-plans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/29/opinion/jimmy-carter-death-respect.html
 **Giants crush Colts' playoff hopes with 45-33 win: Takeaways**\
 `Drew Lock had a near-perfect passer rating (155.3), 309 passing yards and five total touchdowns — four passing and one rushing.`\
 https://nytimes.com/athletic/6024772/2024/12/29/colts-giants-score-result-takeaways/
-
-**South Korea Plane Crash Kills 179 People**\
-`Only two people survived when a Jeju Air plane crashed at Muan Airport in South Korea on Sunday, the country’s worst aviation disaster in decades. Officials said they were investigating the cause.`\
-https://nytimes.com/video/world/asia/100000009900149/south-korea-plane-crash.html
-
-**In the Presidents’ Club, Carter Was the Odd Man Out**\
-`Jimmy Carter’s relationship with his successors in the Oval Office, both Republicans and fellow Democrats, was generally tense because of his outspokenness. That never mattered to him.`\
-https://nytimes.com/2024/12/29/us/politics/jimmy-carter-successors.html
 
