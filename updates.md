@@ -1,3 +1,7 @@
+**Warren Upton, Who Escaped Sinking Battleship at Pearl Harbor, Dies at 105**\
+`The last survivor of the U.S.S. Utah, he was a 22-year-old Navy radioman when Japanese forces attacked.`\
+https://nytimes.com/2024/12/29/us/warren-upton-dead.html
+
 **Nottingham Forest maintain 83-year homegrown player record as Abbott in squad**\
 `Nottingham Forest have preserved their record of having a homegrown player in every matchday squad since 1941 by including 18-year-old Zach Abbott on the bench at Everton.`\
 https://nytimes.com/athletic/6024651/2024/12/29/zach-abbott-nottingham-forest-homegrown/
