@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6015731/2024/12/29/mbappe-vinicius-bellingham-real-
 `The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them for the team.`\
 https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor-shesterkin/
 
-**The Jeju Air Crash Appears to Be the Airline’s First Fatal One**\
+**The crash appears to be Jeju Air’s first fatal one.**\
 `It was also unusual for South Korea, which has had a strong aviation safety record in recent decades.`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash-jeju-air-safety
 
