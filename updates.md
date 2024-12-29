@@ -1,3 +1,7 @@
+**Newcastle United's 2024: Faith wobbles, Isak shines and promise sparks again**\
+`Newcastle's 'project' stuttered in 2024 but Eddie Howe's side weathered potential storms, and fans can dare to dream of a brighter future`\
+https://nytimes.com/athletic/6006123/2024/12/29/newcastle-united-2024-gordon-isak-howe/
+
 **Rams on verge of NFC West title with 13-9 win vs. Cardinals: Takeaways**\
 `While the victory gives the Rams control over the division, they still need help to clinch the title.`\
 https://nytimes.com/athletic/6023438/2024/12/29/cardinals-rams-score-result-takeaways/

@@ -1,3 +1,7 @@
+**Newcastle United's 2024: Faith wobbles, Isak shines and promise sparks again**\
+`Newcastle's 'project' stuttered in 2024 but Eddie Howe's side weathered potential storms, and fans can dare to dream of a brighter future`\
+https://nytimes.com/athletic/6006123/2024/12/29/newcastle-united-2024-gordon-isak-howe/
+
 **Rams on verge of NFC West title with 13-9 win vs. Cardinals: Takeaways**\
 `While the victory gives the Rams control over the division, they still need help to clinch the title.`\
 https://nytimes.com/athletic/6023438/2024/12/29/cardinals-rams-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor
 **The crash appears to be Jeju Air’s first fatal one.**\
 `It was also unusual for South Korea, which has had a strong aviation safety record in recent decades.`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash-jeju-air-safety
-
-**Ignoring Warnings, a Growing Band of Tourists Venture to Afghanistan**\
-`With the war now over, the Taliban are welcoming foreign travelers, even as governments advise their citizens to stay away.`\
-https://nytimes.com/2024/12/29/world/asia/afghanistan-taliban-tourism.html
 

@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6023080/2024/12/29/liverpool-corners-premier-league
 https://nytimes.com/athletic/6015731/2024/12/29/mbappe-vinicius-bellingham-real-madrid-mvb/
 
 **Rangers' special teams and stars struggle vs. Lightning: 3 takeaways**\
-`The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them for the team.`\
+`The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them.`\
 https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor-shesterkin/
 
 **The crash appears to be Jeju Air’s first fatal one.**\
