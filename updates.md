@@ -1,3 +1,11 @@
+**NFL Week 17 takeaways: Should Cowboys keep Mike McCarthy?**\
+`Plus, the resilient Eagles, and missed opportunities for two playoff contenders.`\
+https://nytimes.com/athletic/6025602/2024/12/29/nfl-week-17-scores-takeaways-cowboys-mike-mccarthy/
+
+**Giants crush Colts' playoff hopes with 45-33 win: Takeaways**\
+`Drew Lock had a near-perfect passer rating (155.3), 309 passing yards and five total touchdowns — four passing and one rushing.`\
+https://nytimes.com/athletic/6024772/2024/12/29/colts-giants-score-result-takeaways/
+
 **After the Presidency, Shaking Hands and Teaching Sunday School**\
 `Once he left the White House in 1981, Mr. Carter became known for his striking accessibility and his sense of humility.`\
 https://nytimes.com/2024/12/29/us/carter-after-presidency-sunday-school.html

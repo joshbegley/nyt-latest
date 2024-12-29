@@ -1,3 +1,7 @@
+**NFL Week 17 takeaways: Should Cowboys keep Mike McCarthy?**\
+`Plus, the resilient Eagles, and missed opportunities for two playoff contenders.`\
+https://nytimes.com/athletic/6025602/2024/12/29/nfl-week-17-scores-takeaways-cowboys-mike-mccarthy/
+
 **After the Presidency, Shaking Hands and Teaching Sunday School**\
 `Once he left the White House in 1981, Mr. Carter became known for his striking accessibility and his sense of humility.`\
 https://nytimes.com/2024/12/29/us/carter-after-presidency-sunday-school.html
@@ -11,7 +15,7 @@ https://nytimes.com/interactive/2024/12/29/us/biden-statement.html
 https://nytimes.com/2024/12/29/opinion/jimmy-carter-death-respect.html
 
 **Giants crush Colts' playoff hopes with 45-33 win: Takeaways**\
-`Drew Lock Lock tallied a near-perfect passer rating (155.3), 309 passing yards and five total touchdowns — four passing and one rushing.`\
+`Drew Lock had a near-perfect passer rating (155.3), 309 passing yards and five total touchdowns — four passing and one rushing.`\
 https://nytimes.com/athletic/6024772/2024/12/29/colts-giants-score-result-takeaways/
 
 **South Korea Plane Crash Kills 179 People**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/29/us/untitled-document.html
 **From Scorn to Respect, Carter’s Legacy Evolved After His Presidency**\
 `The 39th president left the White House with his popularity in tatters. But four decades later, he is judged more kindly, in part for what he did after leaving office.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-legacy-presidency.html
-
-**Bucs rout Panthers 48-14 to stay in playoff hunt: Key takeaways**\
-`The Panthers allowed a season-high 551 yards of offense as Baker Mayfield, Bucky Irving and Mike Evans all post career days in Tampa Bay.`\
-https://nytimes.com/athletic/6024786/2024/12/29/panthers-buccaneers-score-result-takeaways/
 
