@@ -1,3 +1,15 @@
+**At the airport’s arrivals hall, an agonizing wait for news.**\
+`By John Yoon`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/at-the-airports-arrivals-hall-an-agonizing-wait-for-news
+
+**Lowetide: How the Oilers potential recall list evolved in December**\
+`The Oilers have some real talent in the minors, all waiting for that chance to shine in the NHL`\
+https://nytimes.com/athletic/6023385/2024/12/29/edmonton-oilers-recall-list-december-2024/
+
+**Max Christie talks earning a starting role, pulling himself from 'gutter' and more**\
+`Not long ago, the third-year wing was out of JJ Redick's rotation. Now it appears he's finding his footing in the Lakers' first unit.`\
+https://nytimes.com/athletic/6023560/2024/12/29/max-christie-lakers-interview-nba/
+
 **Editor’s Note: Guess who’s back, back again**\
 `Shortz is back, tell a friend.`\
 https://nytimes.com/2024/12/29/crosswords/editors-note-guess-whos-back-back-again.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6023969/2024/12/29/patriots-chargers-drake-maye-jer
 **'What am I supposed to say?' Ex-Bears in media struggling amid latest miserable season**\
 `It’s been a long, trying season for everyone, including former players who are paid to talk about a team trapped in a cycle of dysfunction.`\
 https://nytimes.com/athletic/6022684/2024/12/29/chicago-bears-former-players-miserable-season/
-
-**The Sunday Read: ‘Ozempic Could Crush the Junk Food Industry. But It Is Fighting Back.’**\
-`As revolutionary new weight-loss drugs turn consumers off ultraprocessed foods, the industry is on the hunt for new products.`\
-https://nytimes.com/2024/12/29/podcasts/the-daily/ozempic-big-food.html
-
-**The Connections Companion No. 568**\
-`Scroll down for hints and conversation about the puzzle for Monday, Dec. 30, 2024.`\
-https://nytimes.com/2024/12/29/crosswords/connections-companion-568.html
-
-**Ranking Cleveland's top 10 sports moments in a year of thrilling highs and excruciating lows**\
-`Wild walk-off wins, important contracts, coach hirings and firings and a dramatic quarterback injury headlined an impactful, memorable year.`\
-https://nytimes.com/athletic/6008768/2024/12/29/cleveland-year-in-review-guardians-browns-cavaliers/
 

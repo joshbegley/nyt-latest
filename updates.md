@@ -1,3 +1,15 @@
+**At the airport’s arrivals hall, an agonizing wait for news.**\
+`By John Yoon`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/at-the-airports-arrivals-hall-an-agonizing-wait-for-news
+
+**Lowetide: How the Oilers potential recall list evolved in December**\
+`The Oilers have some real talent in the minors, all waiting for that chance to shine in the NHL`\
+https://nytimes.com/athletic/6023385/2024/12/29/edmonton-oilers-recall-list-december-2024/
+
+**Max Christie talks earning a starting role, pulling himself from 'gutter' and more**\
+`Not long ago, the third-year wing was out of JJ Redick's rotation. Now it appears he's finding his footing in the Lakers' first unit.`\
+https://nytimes.com/athletic/6023560/2024/12/29/max-christie-lakers-interview-nba/
+
 **Editor’s Note: Guess who’s back, back again**\
 `Shortz is back, tell a friend.`\
 https://nytimes.com/2024/12/29/crosswords/editors-note-guess-whos-back-back-again.html
