@@ -1,3 +1,11 @@
+**Burrow keeps Bengals playoff hopes alive in wild 30-24 OT win over Broncos: Takeaways**\
+`Despite loss, Denver can still make the playoffs with a Week 18 win, while Cincinnati must win and receive some help. `\
+https://nytimes.com/athletic/6023431/2024/12/28/broncos-bengals-score-result-takeaways/
+
+**Live Updates: Plane Crashes at South Korean Airport, Killing at Least 23**\
+`The passenger plane, operated by South Korea’s Jeju Air, was landing when it went off the runway. The flight came from Bangkok and was carrying 181 people.`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash
+
 **Canadiens emerged from rock bottom to put together a 20-game stretch with real promise**\
 `The Canadiens dropped to last in the NHL standings on a big Saturday night stage in early November, but have steadily progressed ever since.`\
 https://nytimes.com/athletic/6023919/2024/12/28/canadiens-panthers-kirby-dach-cole-caufield/
