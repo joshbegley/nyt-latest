@@ -1,3 +1,11 @@
+**The Briefing: Spurs 2 Wolves 2: Bentancur steps up but late equaliser and Udogie injury hit Postecoglou**\
+`Jay Harris breaks down the action from the Tottenham Hotspur Stadium.`\
+https://nytimes.com/athletic/6017899/2024/12/29/tottenham-udogie-wolves-son-bentancur/
+
+**The Pulse: Big NFL playoff stakes today**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6024841/2024/12/29/nfl-watch-playoff-scenarios-the-pulse/
+
 **Israel Struggles to Halt Attacks From Faraway Foe Once Off Radar**\
 `Even as battles with its enemies on its borders appear to be winding down, Israel is being challenged by intensifying attacks by the Houthi militia in Yemen, 1,000 miles away.`\
 https://nytimes.com/2024/12/29/world/middleeast/israel-houthis-yemen.html
