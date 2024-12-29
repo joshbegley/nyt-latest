@@ -1,3 +1,7 @@
+**Eight players ejected in Military Bowl after brawl leaves official bleeding**\
+`During the altercation, an ECU player shoved an NC State player from behind, and the NC State player's helmet hit the ref in the face.`\
+https://nytimes.com/athletic/6024191/2024/12/28/ecu-nc-state-fight-ejections-referee/
+
 **Bengals' Zac Taylor explains his game management at end of regulation vs. Broncos**\
 `Cincinnati's head coach stayed aggressive and an injury threw off a chance to bleed the clock almost all the way down.`\
 https://nytimes.com/athletic/6024175/2024/12/28/zac-taylor-game-management-bengals-broncos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023984/2024/12/28/pop-tarts-bowl-iowa-state-miami-
 **NFL Week 17 playoff scenarios: Commanders, Falcons eye berths**\
 `Several division titles remain up for grabs with two weeks left in the regular season. `\
 https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
-
-**Here’s what to know about the plane crash.**\
-`The plane was`\
-https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash
 
