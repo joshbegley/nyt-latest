@@ -1,3 +1,11 @@
+**NFL Week 17 playoff scenarios: Commanders, Falcons eye berths**\
+`Several division titles remain up for grabs with two weeks left in the regular season. `\
+https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
+
+**Plane Crashes at South Korean Airport, With at Least 23 Deaths Reported**\
+`The plane, with 181 people on board, was trying to land when the accident happened.`\
+https://nytimes.com/2024/12/28/world/asia/south-korea-plane-crash.html
+
 **Plane Crashes at South Korean Airport, With at Least 23 Deaths Reported**\
 `The plane was trying to land when the accident happened, according to local news reports, which said that 181 people were on board.`\
 https://nytimes.com/2024/12/28/world/asia/south-korea-plane-crash.html
