@@ -1,3 +1,15 @@
+**The Last Word: Jimmy Carter**\
+`In a never-before-seen interview with The Times in 2006, Jimmy Carter reflects on his life and work as a Cold War leader, Middle East peace broker and post-presidential career as a citizen diplomat.`\
+https://nytimes.com/video/us/politics/1194834031782/jimmy-carter-obituary.html
+
+**He lived longer than any other U.S. president. Here’s the latest.**\
+`By Rick Rojas and Peter Baker`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/he-lived-longer-than-any-other-us-president-heres-the-latest
+
+**Jimmy Carter Dies at 100**\
+`The former president, a peanut farmer and Democrat from Georgia, was known as much for his charity and diplomatic work later in life as he was for his single presidential term, which ended in 1981.`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter
+
 **Saquon Barkley surpasses 2,000 rushing yards, ninth player in NFL history**\
 `Barkley became the ninth player in NFL history to surpass the famed threshold, which was most recently accomplished by Derrick Henry.`\
 https://nytimes.com/athletic/6025384/2024/12/29/saquon-barkley-eagles-nfl-rushing-record/
