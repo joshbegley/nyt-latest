@@ -1,3 +1,7 @@
+**Eight players ejected in Military Bowl after brawl leaves official bleeding**\
+`During the altercation, an ECU player shoved an NC State player from behind, and the NC State player's helmet hit the ref in the face.`\
+https://nytimes.com/athletic/6024191/2024/12/28/ecu-nc-state-fight-ejections-referee/
+
 **Bengals' Zac Taylor explains his game management at end of regulation vs. Broncos**\
 `Cincinnati's head coach stayed aggressive and an injury threw off a chance to bleed the clock almost all the way down.`\
 https://nytimes.com/athletic/6024175/2024/12/28/zac-taylor-game-management-bengals-broncos/
