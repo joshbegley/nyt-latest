@@ -1,3 +1,11 @@
+**Plane Crashes at South Korean Airport, Multiple Casualties Reported**\
+`The plane was trying to land when the accident happened, according to local news reports, which said that 181 people were on board.`\
+https://nytimes.com/2024/12/28/world/asia/south-korea-plane-crash.html
+
+**'He's that guy': Jim Harbaugh cements turnaround as Chargers clinch playoff spot**\
+`In 10 months, Harbaugh and GM Joe Hortiz have transformed the Chargers from an embarrassment to a playoff team.`\
+https://nytimes.com/athletic/6024031/2024/12/28/chargers-clinch-playoffs-jim-harbaugh/
+
 **How the Canucks squandered a 4-1 lead in shocking collapse: 3 takeaways vs. Kraken**\
 `The Canucks' 5-4 overtime loss to the Kraken shows just how small the margins for error are for Vancouver.`\
 https://nytimes.com/athletic/6023866/2024/12/28/canucks-kraken-takeaways-collapse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6023912/2024/12/28/christian-pulisic-injury-usmnt-m
 **1 Person Killed and at Least 4 Injured in Texas Tornado**\
 `A tornado that touched down in Brazoria County struck some homes and other structures on Saturday, the authorities said. It was a day of tornado warnings in Texas, Louisiana and Mississippi.`\
 https://nytimes.com/2024/12/28/us/tornado-texas-dead.html
-
-**Multi-Hyphenates**\
-`Harry Zheng presents a too-fun-to-fail inaugural Sunday puzzle.`\
-https://nytimes.com/2024/12/28/crosswords/daily-puzzle-2024-12-29.html
-
-**State Dept. Designates American Teacher Held in Russia as ‘Wrongfully Detained’**\
-`Marc Fogel was convicted of drug smuggling and sentenced in 2022 to 14 years in prison by the same court that handled the case of Brittney Griner.`\
-https://nytimes.com/2024/12/28/us/politics/marc-fogel-wrongfully-detained.html
 
