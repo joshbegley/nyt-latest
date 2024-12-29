@@ -1,6 +1,6 @@
 **The Boeing 737-800, a precursor to the 737 Max, is used widely.**\
 `Nearly 200 airlines use the 737-800, which makes up about 15 percent of the world’s fleet of aircraft.`\
-https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/boeing-737-800
+https://nytimes.com/2024/12/29/world/asia/boeing-737-800.html
 
 **Departing Air Force Secretary Will Leave Space Weaponry as a Legacy**\
 `Frank Kendall, who grew up on an apple farm and then rose to the pinnacle of the U.S. military, has preached the need for better preparation for the next big fight.`\
