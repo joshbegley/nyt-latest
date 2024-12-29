@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6023984/2024/12/28/pop-tarts-bowl-iowa-state-miami-
 `Several division titles remain up for grabs with two weeks left in the regular season. `\
 https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
 
-**Here’s what to know about the plane crash. accident.**\
+**Here’s what to know about the plane crash.**\
 `The plane was`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash
 

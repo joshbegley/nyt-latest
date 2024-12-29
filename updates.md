@@ -1,3 +1,7 @@
+**Here’s what to know about the plane crash.**\
+`The plane was`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash
+
 **Live Updates: Jeju Air Flight Crashes in South Korea, Killing Many**\
 `The passenger plane was landing when it went off the runway in Muan. The flight came from Bangkok and was carrying 181 people.`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash
