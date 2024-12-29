@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Jordan Dumais activated and sent to AHL Cleveland**\
+`Dumais will begin practicing with the Monsters and ramping up his skating and conditioning, eyeing a pro debut later this season.`\
+https://nytimes.com/athletic/6024585/2024/12/29/blue-jackets-nhl-jordan-dumais-ahl/
+
 **Sources: Lakers trade D'Angelo Russell to Nets for Dorian Finney-Smith**\
 `The Nets will receive second-year forward Maxwell Lewis and three second-round picks in addition to reuniting with Russell.`\
 https://nytimes.com/athletic/6024941/2024/12/29/dangelo-russell-dlo-trade-lakers-nets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024756/2024/12/29/live-qa-week-17-fantasy-football
 **Bright Flavors, Easy Dinners**\
 `Simple, savory fare to see you across the holiday season finish line: lemony skillet chicken; hot and sour soup; white bean dip with chile-cumin oil.`\
 https://nytimes.com/2024/12/29/dining/bright-flavors-easy-dinners.html
-
-**Warren Upton, Who Escaped Sinking Battleship at Pearl Harbor, Dies at 105**\
-`The last survivor of the U.S.S. Utah, he was a 22-year-old Navy radioman when Japanese forces attacked.`\
-https://nytimes.com/2024/12/29/us/warren-upton-dead.html
 

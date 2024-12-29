@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Jordan Dumais activated and sent to AHL Cleveland**\
+`Dumais will begin practicing with the Monsters and ramping up his skating and conditioning, eyeing a pro debut later this season.`\
+https://nytimes.com/athletic/6024585/2024/12/29/blue-jackets-nhl-jordan-dumais-ahl/
+
 **Sources: Lakers trade D'Angelo Russell to Nets for Dorian Finney-Smith**\
 `The Nets will receive second-year forward Maxwell Lewis and three second-round picks in addition to reuniting with Russell.`\
 https://nytimes.com/athletic/6024941/2024/12/29/dangelo-russell-dlo-trade-lakers-nets/
