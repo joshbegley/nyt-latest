@@ -1,3 +1,15 @@
+**The art of the 'olimpico' - football's (usually) rare phenomenon**\
+`Unless you're Manchester United, you're unlikely to see many goals being scored direct from corners – but here experts explain how to do it`\
+https://nytimes.com/athletic/6023128/2024/12/29/olimpico-scoring-from-corner/
+
+**Liverpool's corners: 'Sugar huddles', more inswingers – and room for improvement**\
+`The team's record from corners has dropped this season. While it's not hurting them now, it's a clear area to improve`\
+https://nytimes.com/athletic/6023080/2024/12/29/liverpool-corners-premier-league/
+
+**Mbappe, Vinicius Jr and Bellingham: Real Madrid's third wave of 'galacticos' are just getting started**\
+`Mbappe is finding form, Bellingham has started having a big impact in attacking situations again and Vinicius Jr has been, well, Vinicius Jr`\
+https://nytimes.com/athletic/6015731/2024/12/29/mbappe-vinicius-bellingham-real-madrid-mvb/
+
 **Rangers' special teams woes, top player struggles and a standings plummet: 3 takeaways**\
 `The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them for the team.`\
 https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor-shesterkin/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/28/pageoneplus/quote-of-the-day-sturgeon-and-shrapne
 **South Korea’s Acting President Has Only Been in Office Since Friday**\
 `After two impeachments of leaders in two weeks, the country is deep into a political crisis.`\
 https://nytimes.com/2024/12/28/world/asia/south-korea-president-political-crisis.html
-
-**'We did this to ourselves': Blue Jackets too careless with the puck to end road woes**\
-`After a 4-0 loss to the Bruins, the Blue Jackets now have a 4-12-3 record away from Nationwide Arena this season.`\
-https://nytimes.com/athletic/6024207/2024/12/28/blue-jackets-bruins-road-record/
-
-**Bruins’ Fabian Lysell, Oliver Wahlstrom and the hunt for secondary offense**\
-`Lysell’s promotion reflects poorly on Wahlstrom’s second chance.`\
-https://nytimes.com/athletic/6024238/2024/12/28/bruins-fabian-lysell-nhl-debut-oliver-wahlstrom/
-
-**Broncos are out of chances to squander after heartbreaking loss to Bengals**\
-`Denver blew too many chances, including two three-and-outs in overtime, to survive Joe Burrow's magic.`\
-https://nytimes.com/athletic/6024226/2024/12/28/broncos-playoff-hopes-bengals/
 
