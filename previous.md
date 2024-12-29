@@ -23,7 +23,7 @@ https://nytimes.com/2024/12/29/us/carter-after-presidency-sunday-school.html
 https://nytimes.com/interactive/2024/12/29/us/biden-statement.html
 
 **Jimmy Carter Deserved Our Thanks and Respect, Not Our Sneers**\
-`We in the media and chattering class jeered at a man who probably improved more lives over a longer period than any recent president.`\
+`We in the media and chattering class jeered at a man who probably improved more lives over a longer period than any other recent president.`\
 https://nytimes.com/2024/12/29/opinion/jimmy-carter-death-respect.html
 
 **Giants crush Colts' playoff hopes with 45-33 win: Takeaways**\

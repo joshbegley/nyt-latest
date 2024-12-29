@@ -1,3 +1,7 @@
+**Jimmy Carter Deserved Our Thanks and Respect, Not Our Sneers**\
+`We in the media and chattering class jeered at a man who probably improved more lives over a longer period than any other recent president.`\
+https://nytimes.com/2024/12/29/opinion/jimmy-carter-death-respect.html
+
 **Tentative Plans for Carter’s Memorial Services**\
 `Plans include lying in state at the U.S. Capitol and a state funeral at Washington National Cathedral.`\
 https://nytimes.com/2024/12/29/us/jimmy-carter-funeral-burial-plans.html
