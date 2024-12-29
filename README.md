@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Poor team defence and goaltending stick out**\
+`In Toronto's 5-2 loss to Washington, the difference in goaltending between the two clubs was evident.`\
+https://nytimes.com/athletic/6024088/2024/12/28/maple-leafs-capitals-analysis-grades/
+
 **Eight players ejected in Military Bowl after brawl leaves official bleeding**\
 `During the altercation, an ECU player shoved an NC State player from behind, and the NC State player's helmet hit the ref in the face.`\
 https://nytimes.com/athletic/6024191/2024/12/28/ecu-nc-state-fight-ejections-referee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024072/2024/12/28/flyers-noah-cates-matvei-michkov
 **Iowa State downs Miami in Pop-Tarts Bowl, devours Cinnamon Roll mascot**\
 `The flavored mascot was lowered into a giant toaster, cementing its place as one of the two greatest faux deaths in Pop-Tarts Bowl history.`\
 https://nytimes.com/athletic/6023984/2024/12/28/pop-tarts-bowl-iowa-state-miami-result/
-
-**NFL Week 17 playoff scenarios: Commanders, Falcons eye berths**\
-`Several division titles remain up for grabs with two weeks left in the regular season. `\
-https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
 
