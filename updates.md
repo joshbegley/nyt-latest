@@ -1,3 +1,7 @@
+**Nottingham Forest maintain 83-year homegrown player record as Abbott in squad**\
+`Nottingham Forest have preserved their record of having a homegrown player in every matchday squad since 1941 by including 18-year-old Zach Abbott on the bench at Everton.`\
+https://nytimes.com/athletic/6024651/2024/12/29/zach-abbott-nottingham-forest-homegrown/
+
 **Azerbaijan Blames Russia for Plane Crash and Rebukes Kremlin**\
 `The leader of Azerbaijan criticized the Russian response to the crash of a passenger jet that Azerbaijani officials said had most likely been hit by Russian air defenses.`\
 https://nytimes.com/2024/12/29/world/europe/azerbaijan-blames-russia-plane-crash.html
