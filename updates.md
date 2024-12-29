@@ -1,3 +1,19 @@
+**Monday Briefing: A Plane Crash in South Korea killed 179**\
+`Plus, Falun Gong’s money engine.`\
+https://nytimes.com/2024/12/29/briefing/plane-crash-hezbollah-shen-yun.html
+
+**Stanley Booth, Music Journalist Who Loved the Blues, Dies at 82**\
+`He is best known for his book about the Rolling Stones. But he mostly wrote about blues artists, some of them famous (B.B. King) and some less renowned (Furry Lewis).`\
+https://nytimes.com/2024/12/29/books/stanley-booth-dead.html
+
+**Raiders’ Brock Bowers breaks Ditka’s, Nacua's rookie receiving records**\
+`In the third quarter, Bowers also matched Darren Waller's franchise record for most receptions in a season with his 107th catch.`\
+https://nytimes.com/athletic/6025173/2024/12/29/brock-bowers-nfl-rookie-record-raiders-mike-ditka/
+
+**Salah says he and Liverpool 'far away' from positive update on contract talks**\
+`Liverpool’s Mohamed Salah says he is “far away” from being able to provide a positive update on his contract situation.`\
+https://nytimes.com/athletic/6025327/2024/12/29/salah-liverpool-contract-update-far-away/
+
 **That Time President Carter Was Menaced by a ‘Killer Rabbit’**\
 `Mr. Carter’s 1979 confrontation with a swimming rabbit was a “throwaway story” that became emblematic of his problems at home and abroad.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-killer-rabbit.html
