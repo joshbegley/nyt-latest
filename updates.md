@@ -1,3 +1,7 @@
+**West Ham 0 Liverpool 5: Breaking down Salah's extraordinary assist and why Diaz is scoring**\
+`Analysis of Liverpool's victory over West Ham that witnessed an extraordinary Mohamed Salah assist`\
+https://nytimes.com/athletic/6017904/2024/12/29/west-ham-liverpool-salah-assist-highlights/
+
 **West Ham 0 Liverpool 5 - Breaking down Salah's extraordinary assist and why Diaz is scoring**\
 `Analysis of Liverpool's victory over West Ham that witnessed an extraordinary Mohamed Salah assist`\
 https://nytimes.com/athletic/6017904/2024/12/29/west-ham-liverpool-salah-assist-highlights/
