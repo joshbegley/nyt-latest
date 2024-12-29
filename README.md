@@ -6,7 +6,7 @@ https://nytimes.com/video/us/politics/1194834031782/jimmy-carter-obituary.html
 `By Rick Rojas and Peter Baker`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/he-lived-longer-than-any-other-us-president-heres-the-latest
 
-**Jimmy Carter Dies at 100**\
+**Updates: Jimmy Carter Dies at 100**\
 `The former president, a peanut farmer and Democrat from Georgia, was known as much for his charity and diplomatic work later in life as he was for his single presidential term, which ended in 1981.`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter
 
