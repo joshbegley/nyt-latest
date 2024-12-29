@@ -1,3 +1,7 @@
+**The plane crash is the deadliest on South Korean soil.**\
+`The Jeju Air Flight Crash was the worst in more than two decades, after South Korea worked to improve airline safety.`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/the-plane-crash-is-the-deadliest-on-south-korean-soil
+
 **Nottingham Forest maintain 83-year homegrown player record as Abbott in squad**\
 `Nottingham Forest have preserved their record of having a home grown player in every matchday squad since 1941 by including 18-year-old Zach Abbott on the bench at Everton.`\
 https://nytimes.com/athletic/6024651/2024/12/29/zach-abbott-nottingham-forest-homegrown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024436/2024/12/29/bulls-josh-giddey-zach-lavine-nb
 **Anger and Agony in South Korea After Plane Crash-Lands, Killing 179**\
 `A Jeju Air passenger jet carrying 181 people from Bangkok sped off the runway and burst into flames. Two crew were rescued in what was the country’s worst air disaster in decades.`\
 https://nytimes.com/2024/12/29/world/asia/south-korea-plane-crash-jeju.html
-
-**World Juniors Today: Canada back in action, Latvia still buzzing over experience**\
-`Canada returns to the ice for the first time since their stunning upset loss to Latvia on Friday.`\
-https://nytimes.com/athletic/6007073/2024/12/29/world-juniors-today-canada-latvia-schaefer/
 
