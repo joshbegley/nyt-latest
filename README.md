@@ -1,3 +1,7 @@
+**In Doug Christie's first game as coach, Kings show it'll take more to turn around their season**\
+`The Kings are hopeful Doug Christie's voice can spark a turnaround, but they understand more change may be neeeded.`\
+https://nytimes.com/athletic/6024476/2024/12/29/kings-doug-christie-lakers-mike-brown-nba/
+
 **The plane crash is the deadliest on South Korean soil.**\
 `The Jeju Air Flight Crash was the worst in more than two decades, after South Korea worked to improve airline safety.`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/the-plane-crash-is-the-deadliest-on-south-korean-soil
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024529/2024/12/29/deion-sanders-colorado-shedeur-a
 **Bulls guard Josh Giddey on being locked in defensively: ‘I flipped that switch’**\
 `Giddey had a triple-double in a win over the Bucks on Saturday but was most proud of his defensive effort.`\
 https://nytimes.com/athletic/6024436/2024/12/29/bulls-josh-giddey-zach-lavine-nba/
-
-**Anger and Agony in South Korea After Plane Crash-Lands, Killing 179**\
-`A Jeju Air passenger jet carrying 181 people from Bangkok sped off the runway and burst into flames. Two crew were rescued in what was the country’s worst air disaster in decades.`\
-https://nytimes.com/2024/12/29/world/asia/south-korea-plane-crash-jeju.html
 
