@@ -1,3 +1,7 @@
+**After the Presidency, Shaking Hands and Teaching Sunday School**\
+`Once he left the White House in 1981, Mr. Carter became known for his striking accessibility and his sense of humility.`\
+https://nytimes.com/2024/12/29/us/carter-after-presidency-sunday-school.html
+
 **The White House Statement on Jimmy Carter’s Death**\
 `Read the statement from President Biden and Jill Biden.`\
 https://nytimes.com/interactive/2024/12/29/us/biden-statement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/us/politics/jimmy-carter-legacy-presidency.html
 **Bucs rout Panthers 48-14 to stay in playoff hunt: Key takeaways**\
 `The Panthers allowed a season-high 551 yards of offense as Baker Mayfield, Bucky Irving and Mike Evans all post career days in Tampa Bay.`\
 https://nytimes.com/athletic/6024786/2024/12/29/panthers-buccaneers-score-result-takeaways/
-
-**In His Reading Life, Jimmy Carter Favored ‘Anything but Politics’**\
-`A voracious reader, the president liked poetry, Civil War history and Southern fiction. He also sent Erica Jong a fan letter.`\
-https://nytimes.com/2024/12/29/books/jimmy-carter-reading-life.html
 
