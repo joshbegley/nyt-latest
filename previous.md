@@ -1,3 +1,7 @@
+**Saquon Barkley surpasses 2,000 rushing yards, ninth player in NFL history**\
+`Barkley became the ninth player in NFL history to surpass the famed threshold, which was most recently accomplished by Derrick Henry.`\
+https://nytimes.com/athletic/6025384/2024/12/29/saquon-barkley-eagles-nfl-rushing-record/
+
 **Video Offers Clues to Cause of Plane Crash, but No Immediate Answers**\
 `The cause of the crash probably won’t be determined for months, with investigators expected to focus on a wide range of issues.`\
 https://nytimes.com/2024/12/29/world/asia/plane-crash-video-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025118/2024/12/29/nottingham-forest-champions-leag
 **Bird Strikes Are a Common Problem for Flights**\
 `It is not uncommon for planes to strike wildlife, but most episodes don’t result in deaths or serious injuries.`\
 https://nytimes.com/2024/12/29/world/asia/bird-strike-plane-crash.html
-
-**Wolves defender Toti out for up to four weeks with hamstring injury**\
-`Wolverhampton Wanderers will be without defender Toti for three to four weeks due to a hamstring injury.`\
-https://nytimes.com/athletic/6025172/2024/12/29/wolves-toti-hamstring-injury/
 
