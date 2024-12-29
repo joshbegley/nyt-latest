@@ -1,3 +1,15 @@
+**The former president’s long hospice stay let him witness a living eulogy.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/the-former-presidents-long-hospice-stay-let-him-witness-a-living-eulogy
+
+**U.S. Presidents Pay Tribute to Jimmy Carter**\
+`The living members of the exclusive club of Oval Office occupants said Mr. Carter would be remembered for his efforts to promote peace and democracy.`\
+https://nytimes.com/2024/12/29/us/politics/us-presidents-react-jimmy-carter-death.html
+
+**Carter the Critic Didn’t Spare His Successors**\
+`Jimmy Carter defied the unwritten rule of former presidents: Don’t criticize the occupant of the Oval Office.`\
+https://nytimes.com/2024/12/29/us/carter-successors-criticism.html
+
 **When Jimmy Carter Turned TV Into a Pulpit**\
 `Other presidents were more celebrated for their on-screen presences, but in 1979 he gave one of the White House’s most astonishing televised speeches.`\
 https://nytimes.com/2024/12/29/arts/television/jimmy-carter-malaise-speech-crisis-confidence.html
