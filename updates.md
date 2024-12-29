@@ -1,3 +1,7 @@
+**Bucs rout Panthers 48-14 to stay in playoff hunt: Key takeaways**\
+`The Panthers allowed a season-high 551 yards of offense as Baker Mayfield, Bucky Irving and Mike Evans all post career days in Tampa Bay.`\
+https://nytimes.com/athletic/6024786/2024/12/29/panthers-buccaneers-score-result-takeaways/
+
 **NFL Week 17 takeaways: Should Cowboys keep Mike McCarthy?**\
 `Plus, the resilient Eagles, and missed opportunities for two playoff contenders.`\
 https://nytimes.com/athletic/6025602/2024/12/29/nfl-week-17-scores-takeaways-cowboys-mike-mccarthy/
