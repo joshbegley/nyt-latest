@@ -1,3 +1,7 @@
+**Penguins come out of break cold against Islanders: 3 takeaways**\
+`The Islanders' three goals in a 10-minute span to open the second period helped fuel them past the Penguins.`\
+https://nytimes.com/athletic/6024230/2024/12/28/penguins-islanders-sidney-crosby-takeaways/
+
 **Dodgers met with Japanese pitching phenom Roki Sasaki**\
 `The hard throwing righty has been a subject of intrigue for years for a club with a clear vision of maximizing a large Japanese market.`\
 https://nytimes.com/athletic/6023986/2024/12/28/roki-sasaki-los-angeles-dodgers-meeting/
