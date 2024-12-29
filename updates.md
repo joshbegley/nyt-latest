@@ -1,3 +1,7 @@
+**Warren Foegele, ex-Oiler, might help the Kings eliminate them one day**\
+`With the Oilers, Foegele handed three first-round playoff exits to the Kings. Now he's on the other side and could help L.A. tip the scales.`\
+https://nytimes.com/athletic/6024224/2024/12/29/kings-oilers-warren-foegele-quinton-byfield/
+
 **Rangers' special teams and stars struggle vs. Lightning: 3 takeaways**\
 `The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them.`\
 https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor-shesterkin/
