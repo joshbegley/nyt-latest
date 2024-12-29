@@ -1,3 +1,7 @@
+**Bright Flavors, Easy Dinners**\
+`Simple, savory fare to see you across the holiday season finish line: lemony skillet chicken; hot and sour soup; white bean dip with chile-cumin oil.`\
+https://nytimes.com/2024/12/29/dining/bright-flavors-easy-dinners.html
+
 **Warren Upton, Who Escaped Sinking Battleship at Pearl Harbor, Dies at 105**\
 `The last survivor of the U.S.S. Utah, he was a 22-year-old Navy radioman when Japanese forces attacked.`\
 https://nytimes.com/2024/12/29/us/warren-upton-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023050/2024/12/29/anthony-gordon-newcastle-transfe
 **Charles Dolan, Cablevision Founder Who Sat Atop a Media Empire, Dies at 98**\
 `His business choices were diverse and prolific: He founded HBO, bought Madison Square Garden and the New York Knicks, and took over a Long Island newspaper.`\
 https://nytimes.com/2024/12/29/business/charles-dolan-dead.html
-
-**Is Jonathan Kuminga's latest Warriors surge for real? 'He’s turning a corner'**\
-`Kuminga has posted back-to-back games with 34 points. Steve Kerr says there's something different this time about Kuminga's play.`\
-https://nytimes.com/athletic/6024132/2024/12/29/jonathan-kuminga-warriors-nba-steve-kerr/
 

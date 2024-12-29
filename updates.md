@@ -1,3 +1,7 @@
+**Bright Flavors, Easy Dinners**\
+`Simple, savory fare to see you across the holiday season finish line: lemony skillet chicken; hot and sour soup; white bean dip with chile-cumin oil.`\
+https://nytimes.com/2024/12/29/dining/bright-flavors-easy-dinners.html
+
 **Warren Upton, Who Escaped Sinking Battleship at Pearl Harbor, Dies at 105**\
 `The last survivor of the U.S.S. Utah, he was a 22-year-old Navy radioman when Japanese forces attacked.`\
 https://nytimes.com/2024/12/29/us/warren-upton-dead.html
