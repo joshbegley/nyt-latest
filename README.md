@@ -1,3 +1,7 @@
+**Editor’s Note: Guess who’s back, back again**\
+`Shortz is back, tell a friend.`\
+https://nytimes.com/2024/12/29/crosswords/editors-note-guess-whos-back-back-again.html
+
 **What to Know About South Korea’s Worst Plane Crash in Decades**\
 `A plane carrying 181 people crashed while landing, killing most on board. Officials were investigating a possible malfunction with the landing gear and a bird strike.`\
 https://nytimes.com/2024/12/29/world/asia/what-to-know-south-korea-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/crosswords/connections-companion-568.html
 **Ranking Cleveland's top 10 sports moments in a year of thrilling highs and excruciating lows**\
 `Wild walk-off wins, important contracts, coach hirings and firings and a dramatic quarterback injury headlined an impactful, memorable year.`\
 https://nytimes.com/athletic/6008768/2024/12/29/cleveland-year-in-review-guardians-browns-cavaliers/
-
-**What a Trump Presidency Means for U.S. Business**\
-`Populists may promise low taxes and deregulation, but they also undermine the institutions that help an economy run smoothly.`\
-https://nytimes.com/2024/12/29/opinion/trump-business-populism.html
 
