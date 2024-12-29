@@ -1,3 +1,7 @@
+**Bird Strikes Are a Common Problem for Flights**\
+`It is not uncommon for planes to strike wildlife, but most episodes don’t result in deaths or serious injuries.`\
+https://nytimes.com/2024/12/29/world/asia/bird-strike-plane-crash.html
+
 **Wolves defender Toti out for up to four weeks with hamstring injury**\
 `Wolverhampton Wanderers will be without defender Toti for three to four weeks due to a hamstring injury.`\
 https://nytimes.com/athletic/6025172/2024/12/29/wolves-toti-hamstring-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/world/europe/georgia-president-mikheil-kavelashvi
 **Charlie Maxwell, Who Hit Homers in 4 Consecutive At-Bats, Dies at 97**\
 `An All-Star outfielder for the Tigers, he tied a major league record with that feat on a Sunday (what else?) in 1959 playing against the Yankees in Detroit.`\
 https://nytimes.com/2024/12/29/sports/baseball/charlie-maxwell-dead.html
-
-**The Briefing: Spurs 2 Wolves 2: Bentancur steps up but late equaliser and Udogie injury hit Postecoglou**\
-`Jay Harris breaks down the action from the Tottenham Hotspur Stadium`\
-https://nytimes.com/athletic/6017899/2024/12/29/tottenham-udogie-wolves-son-bentancur/
 
