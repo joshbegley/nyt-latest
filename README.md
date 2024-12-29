@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6024529/2024/12/29/deion-sanders-colorado-shedeur-a
 `Giddey had a triple-double in a win over the Bucks on Saturday but was most proud of his defensive effort.`\
 https://nytimes.com/athletic/6024436/2024/12/29/bulls-josh-giddey-zach-lavine-nba/
 
-**Anger and Agony in South Korea After Plane Crash Lands, Killing 179**\
+**Anger and Agony in South Korea After Plane Crash-Lands, Killing 179**\
 `A Jeju Air passenger jet carrying 181 people from Bangkok sped off the runway and burst into flames. Two crew were rescued in what was the country’s worst air disaster in decades.`\
 https://nytimes.com/2024/12/29/world/asia/south-korea-plane-crash-jeju.html
 

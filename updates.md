@@ -1,3 +1,7 @@
+**Nottingham Forest maintain 83-year homegrown player record as Abbott in squad**\
+`Nottingham Forest have preserved their record of having a home grown player in every matchday squad since 1941 by including 18-year-old Zach Abbott on the bench at Everton.`\
+https://nytimes.com/athletic/6024651/2024/12/29/zach-abbott-nottingham-forest-homegrown/
+
 **Democratic Fears of a Constitutional Convention**\
 `Readers discuss the possibility of Republicans pushing for one. Also: Care for migrant children; sober at parties; Rudolph at Dartmouth.`\
 https://nytimes.com/2024/12/29/opinion/letters/constitutional-convention.html
