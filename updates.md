@@ -1,3 +1,15 @@
+**Video Offers Clues to Cause of Plane Crash, but No Immediate Answers**\
+`The cause of the crash probably won’t be determined for months, with investigators expected to focus on a wide range of issues.`\
+https://nytimes.com/2024/12/29/world/asia/plane-crash-video-south-korea.html
+
+**3 Are Killed in Texas Tornado and Storms in Mississippi**\
+`A tornado south of Houston struck some homes and other structures on Saturday. The rare rash of late-December storms was spreading east on Sunday.`\
+https://nytimes.com/2024/12/29/weather/tornado-texas-mississippi-storms-south.html
+
+**Monday Briefing: A Plane Crash in South Korea killed 179**\
+`Plus, Falun Gong’s money engine.`\
+https://nytimes.com/2024/12/29/briefing/plane-crash-hezbollah-shen-yun.html
+
 **Stanley Booth, Music Journalist Who Loved the Blues, Dies at 82**\
 `He is best known for his book about the Rolling Stones. But he mostly wrote about blues artists, some of them famous (B.B. King) and some less renowned (Furry Lewis).`\
 https://nytimes.com/2024/12/29/books/stanley-booth-dead.html

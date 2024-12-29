@@ -1,3 +1,15 @@
+**Video Offers Clues to Cause of Plane Crash, but No Immediate Answers**\
+`The cause of the crash probably won’t be determined for months, with investigators expected to focus on a wide range of issues.`\
+https://nytimes.com/2024/12/29/world/asia/plane-crash-video-south-korea.html
+
+**3 Are Killed in Texas Tornado and Storms in Mississippi**\
+`A tornado south of Houston struck some homes and other structures on Saturday. The rare rash of late-December storms was spreading east on Sunday.`\
+https://nytimes.com/2024/12/29/weather/tornado-texas-mississippi-storms-south.html
+
+**Monday Briefing: A Plane Crash in South Korea killed 179**\
+`Plus, Falun Gong’s money engine.`\
+https://nytimes.com/2024/12/29/briefing/plane-crash-hezbollah-shen-yun.html
+
 **Stanley Booth, Music Journalist Who Loved the Blues, Dies at 82**\
 `He is best known for his book about the Rolling Stones. But he mostly wrote about blues artists, some of them famous (B.B. King) and some less renowned (Furry Lewis).`\
 https://nytimes.com/2024/12/29/books/stanley-booth-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/29/world/asia/bird-strike-plane-crash.html
 **Wolves defender Toti out for up to four weeks with hamstring injury**\
 `Wolverhampton Wanderers will be without defender Toti for three to four weeks due to a hamstring injury.`\
 https://nytimes.com/athletic/6025172/2024/12/29/wolves-toti-hamstring-injury/
-
-**West Ham 0 Liverpool 5: Breaking down Salah's extraordinary assist and why Diaz is scoring**\
-`Analysis of Liverpool's victory over West Ham that witnessed an extraordinary Mohamed Salah assist`\
-https://nytimes.com/athletic/6017904/2024/12/29/west-ham-liverpool-salah-assist-highlights/
-
-**Dolphins QB Tua Tagovailoa inactive for Week 17 vs. Browns**\
-`Skylar Thompson has been elevated to the active roster and No. 2 QB Tyler Huntley will start against Cleveland.`\
-https://nytimes.com/athletic/6023529/2024/12/29/dolphins-qb-tua-tagovailoa-doubtful-browns/
-
-**Rooney on Plymouth future: 'You have to look at every outcome'**\
-`Wayne Rooney said he was “hurting” and accepted “you have to look at every possible outcome” after yet another defeat on the road left his Plymouth Argyle rooted to the bottom of the Championship.`\
-https://nytimes.com/athletic/6025071/2024/12/29/wayne-rooney-plymouth-argyle-future/
 
