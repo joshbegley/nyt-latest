@@ -1,3 +1,7 @@
+**The Briefing: Leicester 0 Man City 2: Savinho off mark, Haaland ends drought, Guardiola wins in 500th game**\
+`Tim Spiers and Anantaajith Raghuraman analyse the talking points as Manchester City return to winning ways against Leicester`\
+https://nytimes.com/athletic/6017895/2024/12/29/leicester-0-man-city-2-savinho-haaland-guardiola-500/
+
 **Live Q&A: Week 17 fantasy football start/sit chat with Jay Felicio, Sunday 12/29 at 11:15 a.m. ET**\
 `Submit your Week 17 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/6024756/2024/12/29/live-qa-week-17-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-29-at-1115-a-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024651/2024/12/29/zach-abbott-nottingham-forest-ho
 **Democratic Fears of a Constitutional Convention**\
 `Readers discuss the possibility of Republicans pushing for one. Also: Care for migrant children; sober at parties; Rudolph at Dartmouth.`\
 https://nytimes.com/2024/12/29/opinion/letters/constitutional-convention.html
-
-**Gordon has 'no plans' to leave Newcastle and wants to fulfil contract**\
-`Anthony Gordon insists he has &#8220;no plans&#8221; to leave Newcastle United and &#8220;intends&#8221; to see out his long-term contract on Tyneside, believing a trophy and Champions League qualification can cement the club&#8217;s status among the elite.`\
-https://nytimes.com/athletic/6023050/2024/12/29/anthony-gordon-newcastle-transfer/
 
