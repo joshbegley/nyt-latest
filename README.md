@@ -1,3 +1,7 @@
+**What are the chances of Forest qualifying for the Champions League?**\
+`Forest find themselves in unchartered territory. Or, more accurately, territory they have not explored in the best part of three decades`\
+https://nytimes.com/athletic/6025118/2024/12/29/nottingham-forest-champions-league/
+
 **Bird Strikes Are a Common Problem for Flights**\
 `It is not uncommon for planes to strike wildlife, but most episodes don’t result in deaths or serious injuries.`\
 https://nytimes.com/2024/12/29/world/asia/bird-strike-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024585/2024/12/29/blue-jackets-nhl-jordan-dumais-a
 **Sources: Lakers trade D'Angelo Russell to Nets for Dorian Finney-Smith**\
 `The Nets will receive second-year forward Maxwell Lewis and three second-round picks in addition to reuniting with Russell.`\
 https://nytimes.com/athletic/6024941/2024/12/29/dangelo-russell-dlo-trade-lakers-nets/
-
-**Amid Anti-Western Drift, Georgia Inaugurates a Conservative President**\
-`Even though a figurehead, Mikheil Kavelashvili occupies a symbolic role as the country moves further from the West and toward Russia and China.`\
-https://nytimes.com/2024/12/29/world/europe/georgia-president-mikheil-kavelashvili.html
 
