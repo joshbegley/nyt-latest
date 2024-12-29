@@ -1,3 +1,7 @@
+**Charles Dolan, Cablevision Founder Who Sat Atop a Media Empire, Dies at 98**\
+`His business choices were diverse and prolific: He founded HBO, bought Madison Square Garden and the New York Knicks, and took over a Long Island newspaper.`\
+https://nytimes.com/2024/12/29/business/charles-dolan-dead.html
+
 **Is Jonathan Kuminga's latest Warriors surge for real? 'He’s turning a corner'**\
 `Kuminga has posted back-to-back games with 34 points. Steve Kerr says there's something different this time about Kuminga's play.`\
 https://nytimes.com/athletic/6024132/2024/12/29/jonathan-kuminga-warriors-nba-steve-kerr/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023385/2024/12/29/edmonton-oilers-recall-list-dece
 **Max Christie talks earning a starting role, pulling himself from 'gutter' and more**\
 `Not long ago, the third-year wing was out of JJ Redick's rotation. Now it appears he's finding his footing in the Lakers' first unit.`\
 https://nytimes.com/athletic/6023560/2024/12/29/max-christie-lakers-interview-nba/
-
-**Editor’s Note: Guess who’s back, back again**\
-`Shortz is back, tell a friend.`\
-https://nytimes.com/2024/12/29/crosswords/editors-note-guess-whos-back-back-again.html
 
