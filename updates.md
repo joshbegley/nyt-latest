@@ -1,3 +1,7 @@
+**Anger and Agony in South Korea After Plane Crash Lands, Killing 179**\
+`A Jeju Air passenger jet carrying 181 people from Bangkok sped off the runway and burst into flames. Two crew were rescued in what was the country’s worst air disaster in decades.`\
+https://nytimes.com/2024/12/29/world/asia/south-korea-plane-crash-jeju.html
+
 **World Juniors Today: Canada back in action, Latvia still buzzing over experience**\
 `Canada returns to the ice for the first time since their stunning upset loss to Latvia on Friday.`\
 https://nytimes.com/athletic/6007073/2024/12/29/world-juniors-today-canada-latvia-schaefer/
