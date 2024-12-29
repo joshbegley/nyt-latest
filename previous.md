@@ -1,3 +1,7 @@
+**World Juniors Today: Canada back in action, Latvia still buzzing over experience**\
+`Canada returns to the ice for the first time since their stunning upset loss to Latvia on Friday.`\
+https://nytimes.com/athletic/6007073/2024/12/29/world-juniors-today-canada-latvia-schaefer/
+
 **At the airport’s arrivals hall, an agonizing wait for news.**\
 `By John Yoon`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/at-the-airports-arrivals-hall-an-agonizing-wait-for-news
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/opinion/elon-musk-china-classified-secrets-nation
 **It's great Drake Maye wanted to play, but Jerod Mayo needs to know when to clock him out**\
 `The decision to leave Maye in the game for most of the fourth quarter was a head-scratcher. Mayo’s explanation was even harder to accept.`\
 https://nytimes.com/athletic/6023969/2024/12/29/patriots-chargers-drake-maye-jerod-mayo/
-
-**'What am I supposed to say?' Ex-Bears in media struggling amid latest miserable season**\
-`It’s been a long, trying season for everyone, including former players who are paid to talk about a team trapped in a cycle of dysfunction.`\
-https://nytimes.com/athletic/6022684/2024/12/29/chicago-bears-former-players-miserable-season/
 

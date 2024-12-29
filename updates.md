@@ -1,3 +1,7 @@
+**World Juniors Today: Canada back in action, Latvia still buzzing over experience**\
+`Canada returns to the ice for the first time since their stunning upset loss to Latvia on Friday.`\
+https://nytimes.com/athletic/6007073/2024/12/29/world-juniors-today-canada-latvia-schaefer/
+
 **At the airport’s arrivals hall, an agonizing wait for news.**\
 `By John Yoon`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/at-the-airports-arrivals-hall-an-agonizing-wait-for-news
