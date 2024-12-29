@@ -18,7 +18,7 @@ https://nytimes.com/2024/12/29/arts/television/jimmy-carter-malaise-speech-crisi
 `“Too many of us now tend to worship self-indulgence and consumption,” he said in his 1979 “Crisis of Confidence” speech. If only we had listened.`\
 https://nytimes.com/2024/12/29/your-money/jimmy-carter-legacy-materialism.html
 
-**World leaders mourn Jimmy Carter’s death while celebrating his legacy.**\
+**World leaders mourn Jimmy Carter while celebrating his legacy.**\
 `By Caroline Houck`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/world-leaders-mourn-jimmy-carters-death-while-celebrating-his-legacy
 
