@@ -1,3 +1,7 @@
+**Texas A&M adds to WR portal haul with NC State's KC Concepcion**\
+`Concepcion, the 2023 ACC rookie of the year, joins Texas Tech's Micah Hudson and Mississippi State's Mario Craver in transferring to A&M.`\
+https://nytimes.com/athletic/6025050/2024/12/29/kc-concepcion-texas-am-nc-state-portal/
+
 **Blue Jackets Sunday Gathering: Jordan Dumais activated and sent to AHL Cleveland**\
 `Dumais will begin practicing with the Monsters and ramping up his skating and conditioning, eyeing a pro debut later this season.`\
 https://nytimes.com/athletic/6024585/2024/12/29/blue-jackets-nhl-jordan-dumais-ahl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017895/2024/12/29/leicester-0-man-city-2-savinho-h
 **Live Q&A: Week 17 fantasy football start/sit chat with Jay Felicio, Sunday 12/29 at 11:15 a.m. ET**\
 `Submit your Week 17 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/6024756/2024/12/29/live-qa-week-17-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-29-at-1115-a-m-et/
-
-**Bright Flavors, Easy Dinners**\
-`Simple, savory fare to see you across the holiday season finish line: lemony skillet chicken; hot and sour soup; white bean dip with chile-cumin oil.`\
-https://nytimes.com/2024/12/29/dining/bright-flavors-easy-dinners.html
 

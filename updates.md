@@ -1,3 +1,7 @@
+**Texas A&M adds to WR portal haul with NC State's KC Concepcion**\
+`Concepcion, the 2023 ACC rookie of the year, joins Texas Tech's Micah Hudson and Mississippi State's Mario Craver in transferring to A&M.`\
+https://nytimes.com/athletic/6025050/2024/12/29/kc-concepcion-texas-am-nc-state-portal/
+
 **Blue Jackets Sunday Gathering: Jordan Dumais activated and sent to AHL Cleveland**\
 `Dumais will begin practicing with the Monsters and ramping up his skating and conditioning, eyeing a pro debut later this season.`\
 https://nytimes.com/athletic/6024585/2024/12/29/blue-jackets-nhl-jordan-dumais-ahl/
