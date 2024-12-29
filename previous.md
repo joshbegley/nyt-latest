@@ -1,3 +1,11 @@
+**Is Jonathan Kuminga's latest Warriors surge for real? 'He’s turning a corner'**\
+`Kuminga has posted back-to-back games with 34 points. Steve Kerr says there's something different this time about Kuminga's play.`\
+https://nytimes.com/athletic/6024132/2024/12/29/jonathan-kuminga-warriors-nba-steve-kerr/
+
+**Through injury and tragedy, Nebraska's Rahmir Johnson stayed — and secured the win**\
+`Nebraska's first winning season in years was secured by a player who stayed through all of the troubled times.`\
+https://nytimes.com/athletic/6024523/2024/12/29/nebraska-football-pinstripe-bowl-rahmir-johnson/
+
 **Feldman: A bittersweet ending for Deion Sanders and sons at Colorado after shaking up CFB**\
 `Deion Sanders' last game coaching sons Shedeur and Shilo, in addition to Travis Hunter, ended in a lopsided loss to BYU in the Alamo Bowl.`\
 https://nytimes.com/athletic/6024529/2024/12/29/deion-sanders-colorado-shedeur-alamo-bowl-byu/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6023560/2024/12/29/max-christie-lakers-interview-nb
 **Editor’s Note: Guess who’s back, back again**\
 `Shortz is back, tell a friend.`\
 https://nytimes.com/2024/12/29/crosswords/editors-note-guess-whos-back-back-again.html
-
-**What to Know About South Korea’s Worst Plane Crash in Decades**\
-`A plane carrying 181 people crashed while landing, killing most on board. Officials were investigating a possible malfunction with the landing gear and a bird strike.`\
-https://nytimes.com/2024/12/29/world/asia/what-to-know-south-korea-plane-crash.html
-
-**The Case for Resolutions**\
-`Write them with us.`\
-https://nytimes.com/2024/12/29/briefing/the-case-for-resolutions.html
 
