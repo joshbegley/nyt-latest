@@ -1,3 +1,7 @@
+**Noah Cates continues to surge; Matvei Michkov benched as Flyers skate past Ducks**\
+`Cates has emerged as a vital player during a time when the Flyers as a team have been inconsistent.`\
+https://nytimes.com/athletic/6024072/2024/12/28/flyers-noah-cates-matvei-michkov-ducks/
+
 **Iowa State downs Miami in Pop-Tarts Bowl, devours Cinnamon Roll mascot**\
 `The flavored mascot was lowered into a giant toaster, cementing its place as one of the two greatest faux deaths in Pop-Tarts Bowl history.`\
 https://nytimes.com/athletic/6023984/2024/12/28/pop-tarts-bowl-iowa-state-miami-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023919/2024/12/28/canadiens-panthers-kirby-dach-co
 **Latvia hangs tight with USA, Czechia blows out Kazakhstan on Day 3 at World Juniors**\
 `Day 3 at the World Juniors was a quieter one on the schedule, with just two games on deck.`\
 https://nytimes.com/athletic/6006870/2024/12/28/world-juniors-latvia-usa-day-3/
-
-**It's time for the Patriots to dump Jerod Mayo and set sights on Mike Vrabel**\
-`Mayo's first year as Patriots head coach has been so bad that it's time to target Vrabel, a Patriots Hall of Fame player.`\
-https://nytimes.com/athletic/6023879/2024/12/28/new-england-patriots-rumors-jerod-mayo-fired/
 
