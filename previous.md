@@ -1,3 +1,11 @@
+**Democratic Fears of a Constitutional Convention**\
+`Readers discuss the possibility of Republicans pushing for one. Also: Care for migrant children; sober at parties; Rudolph at Dartmouth.`\
+https://nytimes.com/2024/12/29/opinion/letters/constitutional-convention.html
+
+**Gordon has 'no plans' to leave Newcastle and wants to fulfil contract**\
+`Anthony Gordon insists he has &#8220;no plans&#8221; to leave Newcastle United and &#8220;intends&#8221; to see out his long-term contract on Tyneside, believing a trophy and Champions League qualification can cement the club&#8217;s status among the elite.`\
+https://nytimes.com/athletic/6023050/2024/12/29/anthony-gordon-newcastle-transfer/
+
 **Charles Dolan, Cablevision Founder Who Sat Atop a Media Empire, Dies at 98**\
 `His business choices were diverse and prolific: He founded HBO, bought Madison Square Garden and the New York Knicks, and took over a Long Island newspaper.`\
 https://nytimes.com/2024/12/29/business/charles-dolan-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6007073/2024/12/29/world-juniors-today-canada-latvi
 **At the airport’s arrivals hall, an agonizing wait for news.**\
 `By John Yoon`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/at-the-airports-arrivals-hall-an-agonizing-wait-for-news
-
-**Lowetide: How the Oilers potential recall list evolved in December**\
-`The Oilers have some real talent in the minors, all waiting for that chance to shine in the NHL`\
-https://nytimes.com/athletic/6023385/2024/12/29/edmonton-oilers-recall-list-december-2024/
-
-**Max Christie talks earning a starting role, pulling himself from 'gutter' and more**\
-`Not long ago, the third-year wing was out of JJ Redick's rotation. Now it appears he's finding his footing in the Lakers' first unit.`\
-https://nytimes.com/athletic/6023560/2024/12/29/max-christie-lakers-interview-nba/
 

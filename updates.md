@@ -1,3 +1,11 @@
+**Democratic Fears of a Constitutional Convention**\
+`Readers discuss the possibility of Republicans pushing for one. Also: Care for migrant children; sober at parties; Rudolph at Dartmouth.`\
+https://nytimes.com/2024/12/29/opinion/letters/constitutional-convention.html
+
+**Gordon has 'no plans' to leave Newcastle and wants to fulfil contract**\
+`Anthony Gordon insists he has &#8220;no plans&#8221; to leave Newcastle United and &#8220;intends&#8221; to see out his long-term contract on Tyneside, believing a trophy and Champions League qualification can cement the club&#8217;s status among the elite.`\
+https://nytimes.com/athletic/6023050/2024/12/29/anthony-gordon-newcastle-transfer/
+
 **Charles Dolan, Cablevision Founder Who Sat Atop a Media Empire, Dies at 98**\
 `His business choices were diverse and prolific: He founded HBO, bought Madison Square Garden and the New York Knicks, and took over a Long Island newspaper.`\
 https://nytimes.com/2024/12/29/business/charles-dolan-dead.html
