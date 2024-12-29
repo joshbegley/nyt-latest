@@ -1,3 +1,7 @@
+**After the Presidency, Shaking Hands and Teaching Sunday School**\
+`Once he left the White House in 1981, Mr. Carter became known for his striking accessibility and his sense of humility.`\
+https://nytimes.com/2024/12/29/us/carter-after-presidency-sunday-school.html
+
 **The White House Statement on Jimmy Carter’s Death**\
 `Read the statement from President Biden and Jill Biden.`\
 https://nytimes.com/interactive/2024/12/29/us/biden-statement.html
