@@ -1,3 +1,7 @@
+**The Case for Resolutions**\
+`Write them with us.`\
+https://nytimes.com/2024/12/29/briefing/the-case-for-resolutions.html
+
 **Connor Bedard has finally found his ideal linemates in Taylor Hall, Tyler Bertuzzi: What took so long?**\
 `The Blackhawks' new top line seems like the right fit for Bedard and the team.`\
 https://nytimes.com/athletic/6023659/2024/12/29/blackhawks-connor-bedard-taylor-hall-tyler-bertuzzi/
