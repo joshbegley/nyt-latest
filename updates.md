@@ -1,3 +1,7 @@
+**Aston Villa considering recalling Iling-Junior from Bologna loan**\
+`Aston Villa are considering recalling Samuel Iling-Junior from his season-long loan at Bologna.`\
+https://nytimes.com/athletic/6024477/2024/12/29/samuel-iling-junior-aston-villa-loan/
+
 **In Doug Christie's first game as coach, Kings show it'll take more to turn around their season**\
 `The Kings are hopeful Doug Christie's voice can spark a turnaround, but they understand more change may be neeeded.`\
 https://nytimes.com/athletic/6024476/2024/12/29/kings-doug-christie-lakers-mike-brown-nba/
