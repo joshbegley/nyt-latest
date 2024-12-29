@@ -1,3 +1,7 @@
+**Live Updates: Jeju Air Flight Crashes in South Korea, Killing Dozens**\
+`The passenger plane was landing when it went off the runway in Muan, in the country’s southwest. The flight came from Bangkok and was carrying 181 people.`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash
+
 **Eight players ejected in Military Bowl after brawl leaves official bleeding**\
 `During the altercation, an ECU player shoved an NC State player from behind, and the NC State player's helmet hit the ref in the face.`\
 https://nytimes.com/athletic/6024191/2024/12/28/ecu-nc-state-fight-ejections-referee/
