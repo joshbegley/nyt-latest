@@ -1,3 +1,11 @@
+**Jimmy Carter Deserved Our Thanks and Respect, Not Our Sneers**\
+`We in the media and chattering class jeered at a man who probably improved more lives over a longer period than any recent president.`\
+https://nytimes.com/2024/12/29/opinion/jimmy-carter-death-respect.html
+
+**Giants crush Colts' playoff hopes with 45-33 win: Takeaways**\
+`Drew Lock Lock tallied a near-perfect passer rating (155.3), 309 passing yards and five total touchdowns — four passing and one rushing.`\
+https://nytimes.com/athletic/6024772/2024/12/29/colts-giants-score-result-takeaways/
+
 **South Korea Plane Crash Kills 179 People**\
 `Only two people survived when a Jeju Air plane crashed at Muan Airport in South Korea on Sunday, the country’s worst aviation disaster in decades. Officials said they were investigating the cause.`\
 https://nytimes.com/video/world/asia/100000009900149/south-korea-plane-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/29/books/jimmy-carter-reading-life.html
 **Jimmy and Rosalynn’s relationship was a constant through wins and losses.**\
 `By Rick Rojas`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/jimmy-and-rosalynns-relationship-was-a-constant-through-wins-and-losses
-
-**8 Books to Read About Jimmy Carter’s Life and Legacy**\
-`For many years, the 39th president generated little attention from authors. But recently books have sought to re-evaluate his reputation. Here is a look at the expanding Carter library.`\
-https://nytimes.com/2024/12/29/books/review/books-about-jimmy-carter.html
-
-**Rodessa Barrett Porter, Member of a Storied Gospel Trio, Dies at 94**\
-`The Barrett Sisters were a Chicago institution, known for their tight harmonies and joyful performances. She was the last one standing.`\
-https://nytimes.com/2024/12/29/arts/music/rodessa-barrett-porter-dead.html
 
