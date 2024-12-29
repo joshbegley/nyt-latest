@@ -1,3 +1,7 @@
+**Jimmy Carter’s Life Was One Big Trust Exercise**\
+`What the 39th president did before he got to the White House is as interesting as what came after.`\
+https://nytimes.com/2024/12/29/opinion/jimmy-carter-plains-georgia-early-years.html
+
 **The Carter Center’s Statement on Jimmy Carter’s Death**\
 `Mr. Carter died on Sunday at 100.`\
 https://nytimes.com/interactive/2024/12/29/us/untitled-document.html
