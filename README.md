@@ -1,3 +1,7 @@
+**Israel Struggles to Halt Attacks From Faraway Foe Once Off Radar**\
+`Even as battles with its enemies on its borders appear to be winding down, Israel is being challenged by intensifying attacks by the Houthi militia in Yemen, 1,000 miles away.`\
+https://nytimes.com/2024/12/29/world/middleeast/israel-houthis-yemen.html
+
 **The Briefing: Leicester 0 Man City 2: Savinho off mark, Haaland ends drought, Guardiola wins in 500th game**\
 `Tim Spiers and Anantaajith Raghuraman analyse the talking points as Manchester City return to winning ways against Leicester`\
 https://nytimes.com/athletic/6017895/2024/12/29/leicester-0-man-city-2-savinho-haaland-guardiola-500/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/the-plane-cras
 **Nottingham Forest maintain 83-year homegrown player record as Abbott in squad**\
 `Nottingham Forest have preserved their record of having a homegrown player in every matchday squad since 1941 by including 18-year-old Zach Abbott on the bench at Everton.`\
 https://nytimes.com/athletic/6024651/2024/12/29/zach-abbott-nottingham-forest-homegrown/
-
-**Democratic Fears of a Constitutional Convention**\
-`Readers discuss the possibility of Republicans pushing for one. Also: Care for migrant children; sober at parties; Rudolph at Dartmouth.`\
-https://nytimes.com/2024/12/29/opinion/letters/constitutional-convention.html
 
