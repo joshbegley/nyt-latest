@@ -1,3 +1,11 @@
+**U.S. Presidents Pay Tribute to Jimmy Carter**\
+`The living members of the exclusive club of Oval Office occupants said Mr. Carter would be remembered for his efforts to promote peace and democracy.`\
+https://nytimes.com/2024/12/29/us/politics/us-presidents-react-jimmy-carter-death.html
+
+**Carter the Critic Didn’t Spare His Successors**\
+`Jimmy Carter defied the unwritten rule of former presidents: Don’t criticize the occupant of the Oval Office.`\
+https://nytimes.com/2024/12/29/us/carter-successors-criticism.html
+
 **When Jimmy Carter Turned TV Into a Pulpit**\
 `Other presidents were more celebrated for their on-screen presences, but in 1979 he gave one of the White House’s most astonishing televised speeches.`\
 https://nytimes.com/2024/12/29/arts/television/jimmy-carter-malaise-speech-crisis-confidence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/29/us/politics/jimmy-carter-reporter-white-house.htm
 **In his own words: The U.S. must recognize Palestine.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/in-his-own-words-the-us-must-recognize-palestine
-
-**Covering Carter: Seeing Hope Restored in Africa**\
-`A Times reporter visited a clinic in Ethiopia that provided life-changing treatment with the support of Jimmy Carter.`\
-https://nytimes.com/2024/12/29/us/politics/jimmy-carter-africa-health.html
-
-**What the World Gets Wrong About Jimmy Carter’s Legacy**\
-`Nicholas Kristof on what the former president’s legacy meant to him — and the world.`\
-https://nytimes.com/2024/12/29/opinion/jimmy-carter-legacy.html
 
