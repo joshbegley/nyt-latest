@@ -1,3 +1,11 @@
+**Covering Carter: Seeing Hope Restored in Africa**\
+`A Times reporter visited a clinic in Ethiopia that provided life-changing treatment with the support of Jimmy Carter.`\
+https://nytimes.com/2024/12/29/us/politics/jimmy-carter-africa-health.html
+
+**What the World Gets Wrong About Jimmy Carter’s Legacy**\
+`Nicholas Kristof on what the former president’s legacy meant to him — and the world.`\
+https://nytimes.com/2024/12/29/opinion/jimmy-carter-legacy.html
+
 **A Texas politician says he unwittingly helped sabotage Carter in 1980.**\
 `By Peter Baker and Michael Levenson`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/a-texas-politician-says-he-unwittingly-helped-sabotage-carter-in-1980
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/29/us/carter-after-presidency-sunday-school.html
 **The White House Statement on Jimmy Carter’s Death**\
 `Read the statement from President Biden and Jill Biden.`\
 https://nytimes.com/interactive/2024/12/29/us/biden-statement.html
-
-**Jimmy Carter Deserved Our Thanks and Respect, Not Our Sneers**\
-`We in the media and chattering class jeered at a man who probably improved more lives over a longer period than any other recent president.`\
-https://nytimes.com/2024/12/29/opinion/jimmy-carter-death-respect.html
-
-**Giants crush Colts' playoff hopes with 45-33 win: Takeaways**\
-`Drew Lock had a near-perfect passer rating (155.3), 309 passing yards and five total touchdowns — four passing and one rushing.`\
-https://nytimes.com/athletic/6024772/2024/12/29/colts-giants-score-result-takeaways/
 

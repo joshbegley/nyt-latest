@@ -1,3 +1,11 @@
+**Covering Carter: Seeing Hope Restored in Africa**\
+`A Times reporter visited a clinic in Ethiopia that provided life-changing treatment with the support of Jimmy Carter.`\
+https://nytimes.com/2024/12/29/us/politics/jimmy-carter-africa-health.html
+
+**What the World Gets Wrong About Jimmy Carter’s Legacy**\
+`Nicholas Kristof on what the former president’s legacy meant to him — and the world.`\
+https://nytimes.com/2024/12/29/opinion/jimmy-carter-legacy.html
+
 **A Texas politician says he unwittingly helped sabotage Carter in 1980.**\
 `By Peter Baker and Michael Levenson`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/a-texas-politician-says-he-unwittingly-helped-sabotage-carter-in-1980
