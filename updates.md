@@ -1,3 +1,7 @@
+**What to Know About South Korea’s Worst Plane Crash in Decades**\
+`A plane carrying 181 people crashed while landing, killing most on board. Officials were investigating a possible malfunction with the landing gear and a bird strike.`\
+https://nytimes.com/2024/12/29/world/asia/what-to-know-south-korea-plane-crash.html
+
 **The Case for Resolutions**\
 `Write them with us.`\
 https://nytimes.com/2024/12/29/briefing/the-case-for-resolutions.html

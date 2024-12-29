@@ -1,3 +1,7 @@
+**What to Know About South Korea’s Worst Plane Crash in Decades**\
+`A plane carrying 181 people crashed while landing, killing most on board. Officials were investigating a possible malfunction with the landing gear and a bird strike.`\
+https://nytimes.com/2024/12/29/world/asia/what-to-know-south-korea-plane-crash.html
+
 **The Case for Resolutions**\
 `Write them with us.`\
 https://nytimes.com/2024/12/29/briefing/the-case-for-resolutions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6008768/2024/12/29/cleveland-year-in-review-guardia
 **What a Trump Presidency Means for U.S. Business**\
 `Populists may promise low taxes and deregulation, but they also undermine the institutions that help an economy run smoothly.`\
 https://nytimes.com/2024/12/29/opinion/trump-business-populism.html
-
-**New Yorkers Deserve More Public Restrooms**\
-`Just don’t force people to pay to use them.`\
-https://nytimes.com/2024/12/29/opinion/restrooms-shortage-new-york.html
 
