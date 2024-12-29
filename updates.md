@@ -1,3 +1,11 @@
+**Salah says he and Liverpool 'far away' from positive update on contract talks**\
+`Liverpool’s Mohamed Salah says he is “far away” from being able to provide a positive update on his contract situation.`\
+https://nytimes.com/athletic/6025327/2024/12/29/salah-liverpool-contract-update-far-away/
+
+**Eagles' Kenny Pickett exits with ribs injury vs. Cowboys**\
+`Pickett started Sunday's game in place of Jalen Hurts, who missed the matchup vs. Dallas with a concussion.`\
+https://nytimes.com/athletic/6025303/2024/12/29/eagles-kenny-pickett-rib-injury/
+
 **What are the chances of Forest qualifying for the Champions League?**\
 `Forest find themselves in unchartered territory. Or, more accurately, territory they have not explored in the best part of three decades`\
 https://nytimes.com/athletic/6025118/2024/12/29/nottingham-forest-champions-league/
