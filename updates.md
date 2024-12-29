@@ -1,3 +1,11 @@
+**Jimmy Carter Deserved Our Thanks and Respect, Not Our Sneers**\
+`We in the media and chattering class jeered at a man who probably improved more lives over a longer period than any recent president.`\
+https://nytimes.com/2024/12/29/opinion/jimmy-carter-death-respect.html
+
+**Giants crush Colts' playoff hopes with 45-33 win: Takeaways**\
+`Drew Lock Lock tallied a near-perfect passer rating (155.3), 309 passing yards and five total touchdowns — four passing and one rushing.`\
+https://nytimes.com/athletic/6024772/2024/12/29/colts-giants-score-result-takeaways/
+
 **South Korea Plane Crash Kills 179 People**\
 `Only two people survived when a Jeju Air plane crashed at Muan Airport in South Korea on Sunday, the country’s worst aviation disaster in decades. Officials said they were investigating the cause.`\
 https://nytimes.com/video/world/asia/100000009900149/south-korea-plane-crash.html
