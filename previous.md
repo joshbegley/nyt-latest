@@ -1,3 +1,7 @@
+**Wolves defender Toti out for up to four weeks with hamstring injury**\
+`Wolverhampton Wanderers will be without defender Toti for three to four weeks due to a hamstring injury.`\
+https://nytimes.com/athletic/6025172/2024/12/29/wolves-toti-hamstring-injury/
+
 **West Ham 0 Liverpool 5: Breaking down Salah's extraordinary assist and why Diaz is scoring**\
 `Analysis of Liverpool's victory over West Ham that witnessed an extraordinary Mohamed Salah assist`\
 https://nytimes.com/athletic/6017904/2024/12/29/west-ham-liverpool-salah-assist-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/sports/baseball/charlie-maxwell-dead.html
 **The Briefing: Spurs 2 Wolves 2: Bentancur steps up but late equaliser and Udogie injury hit Postecoglou**\
 `Jay Harris breaks down the action from the Tottenham Hotspur Stadium`\
 https://nytimes.com/athletic/6017899/2024/12/29/tottenham-udogie-wolves-son-bentancur/
-
-**The Pulse: Big NFL playoff stakes today**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/6024841/2024/12/29/nfl-watch-playoff-scenarios-the-pulse/
 
