@@ -1,3 +1,7 @@
+**South Korea Plane Crash Kills 179 People**\
+`Only two people survived when a Jeju Air plane crashed at Muan Airport in South Korea on Sunday, the country’s worst aviation disaster in decades. Officials said they were investigating the cause.`\
+https://nytimes.com/video/world/asia/100000009900149/south-korea-plane-crash.html
+
 **In the Presidents’ Club, Carter Was the Odd Man Out**\
 `Jimmy Carter’s relationship with his successors in the Oval Office, both Republicans and fellow Democrats, was generally tense because of his outspokenness. That never mattered to him.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-successors.html

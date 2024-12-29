@@ -1,3 +1,7 @@
+**South Korea Plane Crash Kills 179 People**\
+`Only two people survived when a Jeju Air plane crashed at Muan Airport in South Korea on Sunday, the country’s worst aviation disaster in decades. Officials said they were investigating the cause.`\
+https://nytimes.com/video/world/asia/100000009900149/south-korea-plane-crash.html
+
 **In the Presidents’ Club, Carter Was the Odd Man Out**\
 `Jimmy Carter’s relationship with his successors in the Oval Office, both Republicans and fellow Democrats, was generally tense because of his outspokenness. That never mattered to him.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-successors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/books/review/books-about-jimmy-carter.html
 **Rodessa Barrett Porter, Member of a Storied Gospel Trio, Dies at 94**\
 `The Barrett Sisters were a Chicago institution, known for their tight harmonies and joyful performances. She was the last one standing.`\
 https://nytimes.com/2024/12/29/arts/music/rodessa-barrett-porter-dead.html
-
-**Eagles clinch NFC East, Barkley hits 2K yards in win vs. Cowboys: Takeaways**\
-`Barkley, who now has 2,005 rushing yards this season, tallied 167 rushing yards on 31 carries for the Eagles on Sunday.`\
-https://nytimes.com/athletic/6024779/2024/12/29/cowboys-eagles-score-result-takeaways/
 
