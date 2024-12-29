@@ -1,3 +1,7 @@
+**Dayle Haddon, Model and Actress Who Bucked Age Discrimination, Dies at 76**\
+`Ms. Haddon, who carved a path all her own in the modeling world, was found dead on Friday morning from what authorities believed was a carbon monoxide leak.`\
+https://nytimes.com/2024/12/28/us/dayle-haddon-dead.html
+
 **Trump Weighs In on Immigrant Visa Debate but Offers Little Clarity**\
 `He said in an interview that he had used the visas for skilled workers “many times.” But he has mainly used visas for unskilled workers like housekeepers.`\
 https://nytimes.com/2024/12/28/business/trump-immigration-h1b-visa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024031/2024/12/28/chargers-clinch-playoffs-jim-har
 **How the Canucks squandered a 4-1 lead in shocking collapse: 3 takeaways vs. Kraken**\
 `The Canucks' 5-4 overtime loss to the Kraken shows just how small the margins for error are for Vancouver.`\
 https://nytimes.com/athletic/6023866/2024/12/28/canucks-kraken-takeaways-collapse/
-
-**Netanyahu to Have Prostate Removal Surgery on Sunday**\
-`The prime minister was diagnosed with an infection from a “benign enlargement of his prostate.”`\
-https://nytimes.com/2024/12/28/world/middleeast/israel-netanyahu-prostate.html
 
