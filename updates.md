@@ -1,3 +1,7 @@
+**Trump Weighs In on Immigrant Visa Debate but Offers Little Clarity**\
+`He said in an interview that he had used the visas for skilled workers “many times.” But he has mainly used visas for unskilled workers like housekeepers.`\
+https://nytimes.com/2024/12/28/business/trump-immigration-h1b-visa.html
+
 **Burrow keeps Bengals playoff hopes alive in wild 30-24 OT win over Broncos: Takeaways**\
 `Despite loss, Denver can still make the playoffs with a Week 18 win, while Cincinnati must win and receive some help. `\
 https://nytimes.com/athletic/6023431/2024/12/28/broncos-bengals-score-result-takeaways/

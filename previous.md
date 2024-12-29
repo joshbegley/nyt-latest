@@ -1,3 +1,7 @@
+**Trump Weighs In on Immigrant Visa Debate but Offers Little Clarity**\
+`He said in an interview that he had used the visas for skilled workers “many times.” But he has mainly used visas for unskilled workers like housekeepers.`\
+https://nytimes.com/2024/12/28/business/trump-immigration-h1b-visa.html
+
 **Burrow keeps Bengals playoff hopes alive in wild 30-24 OT win over Broncos: Takeaways**\
 `Despite loss, Denver can still make the playoffs with a Week 18 win, while Cincinnati must win and receive some help. `\
 https://nytimes.com/athletic/6023431/2024/12/28/broncos-bengals-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023866/2024/12/28/canucks-kraken-takeaways-collaps
 **Netanyahu to Have Prostate Removal Surgery on Sunday**\
 `The prime minister was diagnosed with an infection from a “benign enlargement of his prostate.”`\
 https://nytimes.com/2024/12/28/world/middleeast/israel-netanyahu-prostate.html
-
-**How Donald Trump Went From Backing a TikTok Ban to Backing Off**\
-`In 2020, he moved to ban the Chinese-owned app. Now, he is opposing the Biden administration’s effort to do just that.`\
-https://nytimes.com/2024/12/28/us/politics/trump-tik-tok-ban.html
 
