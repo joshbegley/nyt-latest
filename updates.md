@@ -1,3 +1,7 @@
+**Israel Struggles to Halt Attacks From Faraway Foe Once Off Radar**\
+`Even as battles with its enemies on its borders appear to be winding down, Israel is being challenged by intensifying attacks by the Houthi militia in Yemen, 1,000 miles away.`\
+https://nytimes.com/2024/12/29/world/middleeast/israel-houthis-yemen.html
+
 **The Briefing: Leicester 0 Man City 2: Savinho off mark, Haaland ends drought, Guardiola wins in 500th game**\
 `Tim Spiers and Anantaajith Raghuraman analyse the talking points as Manchester City return to winning ways against Leicester`\
 https://nytimes.com/athletic/6017895/2024/12/29/leicester-0-man-city-2-savinho-haaland-guardiola-500/
