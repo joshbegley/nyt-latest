@@ -1,3 +1,7 @@
+**Bruins’ Fabian Lysell, Oliver Wahlstrom and the hunt for secondary offense**\
+`Lysell’s promotion reflects poorly on Wahlstrom’s second chance.`\
+https://nytimes.com/athletic/6024238/2024/12/28/bruins-fabian-lysell-nhl-debut-oliver-wahlstrom/
+
 **Broncos are out of chances to squander after heartbreaking loss to Bengals**\
 `Denver blew too many chances, including two three-and-outs in overtime, to survive Joe Burrow's magic.`\
 https://nytimes.com/athletic/6024226/2024/12/28/broncos-playoff-hopes-bengals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6023440/2024/12/28/luka-doncic-home-dallas-burglary
 **Dayle Haddon, Model and Actress Who Bucked Age Discrimination, Dies at 76**\
 `Ms. Haddon, who carved a path all her own in the modeling world, was found dead on Friday morning from what authorities believed was a carbon monoxide leak.`\
 https://nytimes.com/2024/12/28/us/dayle-haddon-dead.html
-
-**Trump Weighs In on Immigrant Visa Debate but Offers Little Clarity**\
-`He said in an interview that he had used the visas for skilled workers “many times.” But he has mainly used visas for unskilled workers like housekeepers.`\
-https://nytimes.com/2024/12/28/business/trump-immigration-h1b-visa.html
 

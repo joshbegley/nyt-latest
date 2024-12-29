@@ -1,3 +1,7 @@
+**Bruins’ Fabian Lysell, Oliver Wahlstrom and the hunt for secondary offense**\
+`Lysell’s promotion reflects poorly on Wahlstrom’s second chance.`\
+https://nytimes.com/athletic/6024238/2024/12/28/bruins-fabian-lysell-nhl-debut-oliver-wahlstrom/
+
 **Broncos are out of chances to squander after heartbreaking loss to Bengals**\
 `Denver blew too many chances, including two three-and-outs in overtime, to survive Joe Burrow's magic.`\
 https://nytimes.com/athletic/6024226/2024/12/28/broncos-playoff-hopes-bengals/
