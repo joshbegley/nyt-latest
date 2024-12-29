@@ -1,3 +1,7 @@
+**How the Canucks squandered a 4-1 lead in shocking collapse: 3 takeaways vs. Kraken**\
+`The Canucks' 5-4 overtime loss to the Kraken shows just how small the margins for error are for Vancouver.`\
+https://nytimes.com/athletic/6023866/2024/12/28/canucks-kraken-takeaways-collapse/
+
 **Netanyahu to Have Prostate Removal Surgery on Sunday**\
 `The prime minister was diagnosed with an infection from a “benign enlargement of his prostate.”`\
 https://nytimes.com/2024/12/28/world/middleeast/israel-netanyahu-prostate.html
