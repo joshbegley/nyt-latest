@@ -1,4 +1,4 @@
-**Noah Cates continues to surge; Matvei Michkov benched as Flyers skate past Ducks**\
+**Noah Cates continues to surge, Matvei Michkov benched as Flyers skate past Ducks**\
 `Cates has emerged as a vital player during a time when the Flyers as a team have been inconsistent.`\
 https://nytimes.com/athletic/6024072/2024/12/28/flyers-noah-cates-matvei-michkov-ducks/
 
@@ -12,7 +12,7 @@ https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
 
 **Plane Crashes at South Korean Airport, With at Least 23 Deaths Reported**\
 `The plane, with 181 people on board, was landing when the accident happened.`\
-https://nytimes.com/2024/12/28/world/asia/south-korea-plane-crash.html
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash
 
 **'He's that guy': Jim Harbaugh cements turnaround as Chargers clinch playoff spot**\
 `In 10 months, Harbaugh and GM Joe Hortiz have transformed the Chargers from an embarrassment to a playoff team.`\

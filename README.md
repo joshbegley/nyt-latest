@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6023984/2024/12/28/pop-tarts-bowl-iowa-state-miami-
 `Several division titles remain up for grabs with two weeks left in the regular season. `\
 https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
 
-**Plane Crashes at South Korean Airport, With at Least 23 Deaths Reported**\
-`The plane, with 181 people on board, was landing when the accident happened.`\
+**Here’s what to know about the accident.**\
+`The plane was`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash
 
 **'He's that guy': Jim Harbaugh cements turnaround as Chargers clinch playoff spot**\

@@ -1,3 +1,11 @@
+**Noah Cates continues to surge, Matvei Michkov benched as Flyers skate past Ducks**\
+`Cates has emerged as a vital player during a time when the Flyers as a team have been inconsistent.`\
+https://nytimes.com/athletic/6024072/2024/12/28/flyers-noah-cates-matvei-michkov-ducks/
+
+**Plane Crashes at South Korean Airport, With at Least 23 Deaths Reported**\
+`The plane, with 181 people on board, was landing when the accident happened.`\
+https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash
+
 **Noah Cates continues to surge; Matvei Michkov benched as Flyers skate past Ducks**\
 `Cates has emerged as a vital player during a time when the Flyers as a team have been inconsistent.`\
 https://nytimes.com/athletic/6024072/2024/12/28/flyers-noah-cates-matvei-michkov-ducks/
