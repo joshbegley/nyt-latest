@@ -1,3 +1,11 @@
+**A Texas politician says he unwittingly helped sabotage Carter in 1980.**\
+`By Peter Baker and Michael Levenson`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/a-texas-politician-says-he-unwittingly-helped-sabotage-carter-in-1980
+
+**Units of Force**\
+`Hannah Binney makes her New York Times Crossword debut.`\
+https://nytimes.com/2024/12/29/crosswords/daily-puzzle-2024-12-30.html
+
 **Jimmy Carter Deserved Our Thanks and Respect, Not Our Sneers**\
 `We in the media and chattering class jeered at a man who probably improved more lives over a longer period than any other recent president.`\
 https://nytimes.com/2024/12/29/opinion/jimmy-carter-death-respect.html
