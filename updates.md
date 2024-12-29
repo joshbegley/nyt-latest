@@ -1,3 +1,7 @@
+**Rangers' special teams and stars struggle vs. Lightning: 3 takeaways**\
+`The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them for the team.`\
+https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor-shesterkin/
+
 **The art of the 'olimpico' - football's (usually) rare phenomenon**\
 `Unless you're Manchester United, you're unlikely to see many goals being scored direct from corners – but here experts explain how to do it`\
 https://nytimes.com/athletic/6023128/2024/12/29/olimpico-scoring-from-corner/
