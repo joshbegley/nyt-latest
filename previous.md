@@ -1,3 +1,11 @@
+**How to Go Back in Time**\
+`The diary I kept this past year offers me an express ticket back to beautiful moments I’ve lived.`\
+https://nytimes.com/2024/12/29/opinion/memory-forgetting-diary.html
+
+**What Happened in 2024? The Year in 10 Charts.**\
+`Steven Rattner recaps a historic year in charts.`\
+https://nytimes.com/interactive/2024/12/29/opinion/year-in-charts-2024.html
+
 **Warren Foegele, ex-Oiler, might help the Kings eliminate them one day**\
 `With the Oilers, Foegele handed three first-round playoff exits to the Kings. Now he's on the other side and could help L.A. tip the scales.`\
 https://nytimes.com/athletic/6024224/2024/12/29/kings-oilers-warren-foegele-quinton-byfield/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6023128/2024/12/29/olimpico-scoring-from-corner/
 **Liverpool's corners: 'Sugar huddles', more inswingers – and room for improvement**\
 `The team's record from corners has dropped this season. While it's not hurting them now, it's a clear area to improve`\
 https://nytimes.com/athletic/6023080/2024/12/29/liverpool-corners-premier-league/
-
-**Mbappe, Vinicius Jr and Bellingham: Real Madrid's third wave of 'galacticos' are just getting started**\
-`Mbappe is finding form, Bellingham has started having a big impact in attacking situations again and Vinicius Jr has been, well, Vinicius Jr`\
-https://nytimes.com/athletic/6015731/2024/12/29/mbappe-vinicius-bellingham-real-madrid-mvb/
-
-**Rangers' special teams and stars struggle vs. Lightning: 3 takeaways**\
-`The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them.`\
-https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor-shesterkin/
 

@@ -1,3 +1,11 @@
+**How to Go Back in Time**\
+`The diary I kept this past year offers me an express ticket back to beautiful moments I’ve lived.`\
+https://nytimes.com/2024/12/29/opinion/memory-forgetting-diary.html
+
+**What Happened in 2024? The Year in 10 Charts.**\
+`Steven Rattner recaps a historic year in charts.`\
+https://nytimes.com/interactive/2024/12/29/opinion/year-in-charts-2024.html
+
 **Warren Foegele, ex-Oiler, might help the Kings eliminate them one day**\
 `With the Oilers, Foegele handed three first-round playoff exits to the Kings. Now he's on the other side and could help L.A. tip the scales.`\
 https://nytimes.com/athletic/6024224/2024/12/29/kings-oilers-warren-foegele-quinton-byfield/
