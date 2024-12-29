@@ -1,3 +1,7 @@
+**South Korea’s Acting President Has Only Been in Office Since Friday**\
+`After two impeachments of leaders in two weeks, the country is deep into a political crisis.`\
+https://nytimes.com/2024/12/28/world/asia/south-korea-president-political-crisis.html
+
 **'We did this to ourselves': Blue Jackets too careless with the puck to end road woes**\
 `After a 4-0 loss to the Bruins, the Blue Jackets now have a 4-12-3 record away from Nationwide Arena this season.`\
 https://nytimes.com/athletic/6024207/2024/12/28/blue-jackets-bruins-road-record/
