@@ -1,3 +1,11 @@
+**Rooney on Plymouth future: 'You have to look at every outcome'**\
+`Wayne Rooney said he was “hurting” and accepted “you have to look at every possible outcome” after yet another defeat on the road left his Plymouth Argyle rooted to the bottom of the Championship.`\
+https://nytimes.com/athletic/6025071/2024/12/29/wayne-rooney-plymouth-argyle-future/
+
+**CFB needs a commissioner, Nick Saban 'obvious choice': James Franklin**\
+`The challenges that would await a commissioner would be plentiful in a new era that the NCAA has struggled to navigate.`\
+https://nytimes.com/athletic/6025049/2024/12/29/james-franklin-nick-saban-college-football-commissioner/
+
 **Texas A&M adds to WR portal haul with NC State's KC Concepcion**\
 `Concepcion, the 2023 ACC rookie of the year, joins Texas Tech's Micah Hudson and Mississippi State's Mario Craver in transferring to A&M.`\
 https://nytimes.com/athletic/6025050/2024/12/29/kc-concepcion-texas-am-nc-state-portal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6024841/2024/12/29/nfl-watch-playoff-scenarios-the-
 **Israel Struggles to Halt Attacks From Faraway Foe Once Off Radar**\
 `Even as battles with its enemies on its borders appear to be winding down, Israel is being challenged by intensifying attacks by the Houthi militia in Yemen, 1,000 miles away.`\
 https://nytimes.com/2024/12/29/world/middleeast/israel-houthis-yemen.html
-
-**The Briefing: Leicester 0 Man City 2: Savinho off mark, Haaland ends drought, Guardiola wins in 500th game**\
-`Tim Spiers and Anantaajith Raghuraman analyse the talking points as Manchester City return to winning ways against Leicester`\
-https://nytimes.com/athletic/6017895/2024/12/29/leicester-0-man-city-2-savinho-haaland-guardiola-500/
-
-**Live Q&A: Week 17 fantasy football start/sit chat with Jay Felicio, Sunday 12/29 at 11:15 a.m. ET**\
-`Submit your Week 17 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/6024756/2024/12/29/live-qa-week-17-fantasy-football-start-sit-chat-with-jay-felicio-sunday-12-29-at-1115-a-m-et/
 
