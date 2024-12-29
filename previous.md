@@ -1,5 +1,9 @@
+**Charlie Maxwell, Who Hit Homers in 4 Consecutive At-Bats, Dies at 97**\
+`An All-Star outfielder for the Tigers, he tied a major league record with that feat on a Sunday (what else?) in 1959 playing against the Yankees in Detroit.`\
+https://nytimes.com/2024/12/29/sports/baseball/charlie-maxwell-dead.html
+
 **The Briefing: Spurs 2 Wolves 2: Bentancur steps up but late equaliser and Udogie injury hit Postecoglou**\
-`Jay Harris breaks down the action from the Tottenham Hotspur Stadium.`\
+`Jay Harris breaks down the action from the Tottenham Hotspur Stadium`\
 https://nytimes.com/athletic/6017899/2024/12/29/tottenham-udogie-wolves-son-bentancur/
 
 **The Pulse: Big NFL playoff stakes today**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/world/europe/azerbaijan-blames-russia-plane-crash
 **Aston Villa considering recalling Iling-Junior from Bologna loan**\
 `Aston Villa are considering recalling Samuel Iling-Junior from his season-long loan at Bologna.`\
 https://nytimes.com/athletic/6024477/2024/12/29/samuel-iling-junior-aston-villa-loan/
-
-**In Doug Christie's first game as coach, Kings show it'll take more to turn around their season**\
-`The Kings are hopeful Doug Christie's voice can spark a turnaround, but they understand more change may be neeeded.`\
-https://nytimes.com/athletic/6024476/2024/12/29/kings-doug-christie-lakers-mike-brown-nba/
 

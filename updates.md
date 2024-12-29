@@ -1,3 +1,11 @@
+**Charlie Maxwell, Who Hit Homers in 4 Consecutive At-Bats, Dies at 97**\
+`An All-Star outfielder for the Tigers, he tied a major league record with that feat on a Sunday (what else?) in 1959 playing against the Yankees in Detroit.`\
+https://nytimes.com/2024/12/29/sports/baseball/charlie-maxwell-dead.html
+
+**The Briefing: Spurs 2 Wolves 2: Bentancur steps up but late equaliser and Udogie injury hit Postecoglou**\
+`Jay Harris breaks down the action from the Tottenham Hotspur Stadium`\
+https://nytimes.com/athletic/6017899/2024/12/29/tottenham-udogie-wolves-son-bentancur/
+
 **The Briefing: Spurs 2 Wolves 2: Bentancur steps up but late equaliser and Udogie injury hit Postecoglou**\
 `Jay Harris breaks down the action from the Tottenham Hotspur Stadium.`\
 https://nytimes.com/athletic/6017899/2024/12/29/tottenham-udogie-wolves-son-bentancur/
