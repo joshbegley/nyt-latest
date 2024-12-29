@@ -1,3 +1,11 @@
+**Bengals' Zac Taylor explains his game management at end of regulation vs. Broncos**\
+`Cincinnati's head coach stayed aggressive and an injury threw off a chance to bleed the clock almost all the way down.`\
+https://nytimes.com/athletic/6024175/2024/12/28/zac-taylor-game-management-bengals-broncos/
+
+**Dončić 'doing fine' after Mavericks star's home burglarized, Kidd says**\
+`The incident marked the latest development in a string of break-ins into professional athletes’ homes in the past few months.`\
+https://nytimes.com/athletic/6023440/2024/12/28/luka-doncic-home-dallas-burglary-mavericks/
+
 **Dayle Haddon, Model and Actress Who Bucked Age Discrimination, Dies at 76**\
 `Ms. Haddon, who carved a path all her own in the modeling world, was found dead on Friday morning from what authorities believed was a carbon monoxide leak.`\
 https://nytimes.com/2024/12/28/us/dayle-haddon-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6018270/2024/12/28/nfl-week-17-playoff-scenarios-2/
 **Here’s what to know about the plane crash.**\
 `The plane was`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/south-korea-plane-crash
-
-**'He's that guy': Jim Harbaugh cements turnaround as Chargers clinch playoff spot**\
-`In 10 months, Harbaugh and GM Joe Hortiz have transformed the Chargers from an embarrassment to a playoff team.`\
-https://nytimes.com/athletic/6024031/2024/12/28/chargers-clinch-playoffs-jim-harbaugh/
-
-**How the Canucks squandered a 4-1 lead in shocking collapse: 3 takeaways vs. Kraken**\
-`The Canucks' 5-4 overtime loss to the Kraken shows just how small the margins for error are for Vancouver.`\
-https://nytimes.com/athletic/6023866/2024/12/28/canucks-kraken-takeaways-collapse/
 
