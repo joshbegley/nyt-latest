@@ -1,3 +1,7 @@
+**Feldman: A bittersweet ending for Deion Sanders and sons at Colorado after shaking up CFB**\
+`Deion Sanders' last game coaching sons Shedeur and Shilo, in addition to Travis Hunter, ended in a lopsided loss to BYU in the Alamo Bowl.`\
+https://nytimes.com/athletic/6024529/2024/12/29/deion-sanders-colorado-shedeur-alamo-bowl-byu/
+
 **Bulls guard Josh Giddey on being locked in defensively: ‘I flipped that switch’**\
 `Giddey had a triple-double in a win over the Bucks on Saturday but was most proud of his defensive effort.`\
 https://nytimes.com/athletic/6024436/2024/12/29/bulls-josh-giddey-zach-lavine-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/world/asia/what-to-know-south-korea-plane-crash.h
 **The Case for Resolutions**\
 `Write them with us.`\
 https://nytimes.com/2024/12/29/briefing/the-case-for-resolutions.html
-
-**Connor Bedard has finally found his ideal linemates in Taylor Hall, Tyler Bertuzzi: What took so long?**\
-`The Blackhawks' new top line seems like the right fit for Bedard and the team.`\
-https://nytimes.com/athletic/6023659/2024/12/29/blackhawks-connor-bedard-taylor-hall-tyler-bertuzzi/
 

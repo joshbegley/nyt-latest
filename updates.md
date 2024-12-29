@@ -1,3 +1,7 @@
+**Feldman: A bittersweet ending for Deion Sanders and sons at Colorado after shaking up CFB**\
+`Deion Sanders' last game coaching sons Shedeur and Shilo, in addition to Travis Hunter, ended in a lopsided loss to BYU in the Alamo Bowl.`\
+https://nytimes.com/athletic/6024529/2024/12/29/deion-sanders-colorado-shedeur-alamo-bowl-byu/
+
 **Bulls guard Josh Giddey on being locked in defensively: ‘I flipped that switch’**\
 `Giddey had a triple-double in a win over the Bucks on Saturday but was most proud of his defensive effort.`\
 https://nytimes.com/athletic/6024436/2024/12/29/bulls-josh-giddey-zach-lavine-nba/
