@@ -1,3 +1,11 @@
+**Broncos are out of chances to squander after heartbreaking loss to Bengals**\
+`Denver blew too many chances, including two three-and-outs in overtime, to survive Joe Burrow's magic.`\
+https://nytimes.com/athletic/6024226/2024/12/28/broncos-playoff-hopes-bengals/
+
+**Colorado takes third-largest loss of Deion Sanders era as BYU rolls in Alamo Bowl**\
+`The Cougars picked off Sanders twice, limited Hunter to one highlight-reel touchdown and moved down the field with ease.`\
+https://nytimes.com/athletic/6024239/2024/12/28/colorado-byu-alamo-bowl-shedeur-sanders-travis-hunter/
+
 **Penguins come out of break cold against Islanders: 3 takeaways**\
 `The Islanders' three goals in a 10-minute span to open the second period helped fuel them past the Penguins.`\
 https://nytimes.com/athletic/6024230/2024/12/28/penguins-islanders-sidney-crosby-takeaways/
