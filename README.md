@@ -1,3 +1,11 @@
+**The Briefing: Spurs 2 Wolves 2: Bentancur steps up but late equaliser and Udogie injury hit Postecoglou**\
+`Jay Harris breaks down the action from the Tottenham Hotspur Stadium.`\
+https://nytimes.com/athletic/6017899/2024/12/29/tottenham-udogie-wolves-son-bentancur/
+
+**The Pulse: Big NFL playoff stakes today**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/6024841/2024/12/29/nfl-watch-playoff-scenarios-the-pulse/
+
 **Israel Struggles to Halt Attacks From Faraway Foe Once Off Radar**\
 `Even as battles with its enemies on its borders appear to be winding down, Israel is being challenged by intensifying attacks by the Houthi militia in Yemen, 1,000 miles away.`\
 https://nytimes.com/2024/12/29/world/middleeast/israel-houthis-yemen.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6024477/2024/12/29/samuel-iling-junior-aston-villa-
 **In Doug Christie's first game as coach, Kings show it'll take more to turn around their season**\
 `The Kings are hopeful Doug Christie's voice can spark a turnaround, but they understand more change may be neeeded.`\
 https://nytimes.com/athletic/6024476/2024/12/29/kings-doug-christie-lakers-mike-brown-nba/
-
-**The plane crash is the deadliest on South Korean soil.**\
-`The Jeju Air Flight Crash was the worst in more than two decades, after South Korea worked to improve airline safety.`\
-https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/the-plane-crash-is-the-deadliest-on-south-korean-soil
-
-**Nottingham Forest maintain 83-year homegrown player record as Abbott in squad**\
-`Nottingham Forest have preserved their record of having a homegrown player in every matchday squad since 1941 by including 18-year-old Zach Abbott on the bench at Everton.`\
-https://nytimes.com/athletic/6024651/2024/12/29/zach-abbott-nottingham-forest-homegrown/
 
