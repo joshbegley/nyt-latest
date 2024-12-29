@@ -1,3 +1,7 @@
+**Video Offers Clues to Cause of Plane Crash, but No Immediate Answers**\
+`The cause of the crash probably won’t be determined for months, with investigators expected to focus on a wide range of issues.`\
+https://nytimes.com/2024/12/29/world/asia/plane-crash-video-south-korea.html
+
 **3 Are Killed in Texas Tornado and Storms in Mississippi**\
 `A tornado south of Houston struck some homes and other structures on Saturday. The rare rash of late-December storms was spreading east on Sunday.`\
 https://nytimes.com/2024/12/29/weather/tornado-texas-mississippi-storms-south.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/world/asia/bird-strike-plane-crash.html
 **Wolves defender Toti out for up to four weeks with hamstring injury**\
 `Wolverhampton Wanderers will be without defender Toti for three to four weeks due to a hamstring injury.`\
 https://nytimes.com/athletic/6025172/2024/12/29/wolves-toti-hamstring-injury/
-
-**West Ham 0 Liverpool 5: Breaking down Salah's extraordinary assist and why Diaz is scoring**\
-`Analysis of Liverpool's victory over West Ham that witnessed an extraordinary Mohamed Salah assist`\
-https://nytimes.com/athletic/6017904/2024/12/29/west-ham-liverpool-salah-assist-highlights/
 
