@@ -1,3 +1,7 @@
+**Bulls guard Josh Giddey on being locked in defensively: ‘I flipped that switch’**\
+`Giddey had a triple-double in a win over the Bucks on Saturday but was most proud of his defensive effort.`\
+https://nytimes.com/athletic/6024436/2024/12/29/bulls-josh-giddey-zach-lavine-nba/
+
 **Anger and Agony in South Korea After Plane Crash Lands, Killing 179**\
 `A Jeju Air passenger jet carrying 181 people from Bangkok sped off the runway and burst into flames. Two crew were rescued in what was the country’s worst air disaster in decades.`\
 https://nytimes.com/2024/12/29/world/asia/south-korea-plane-crash-jeju.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/briefing/the-case-for-resolutions.html
 **Connor Bedard has finally found his ideal linemates in Taylor Hall, Tyler Bertuzzi: What took so long?**\
 `The Blackhawks' new top line seems like the right fit for Bedard and the team.`\
 https://nytimes.com/athletic/6023659/2024/12/29/blackhawks-connor-bedard-taylor-hall-tyler-bertuzzi/
-
-**Elon Musk Is a National Security Risk**\
-`His cozy relationship with Chinese leaders and reported contacts with Russian officials is a cause for alarm.`\
-https://nytimes.com/2024/12/29/opinion/elon-musk-china-classified-secrets-national-security-russia-doge.html
 
