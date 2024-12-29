@@ -1,4 +1,4 @@
-**Noah Cates continues to surge; Matvei Michkov benched as Flyers skate past Ducks**\
+**Noah Cates continues to surge, Matvei Michkov benched as Flyers skate past Ducks**\
 `Cates has emerged as a vital player during a time when the Flyers as a team have been inconsistent.`\
 https://nytimes.com/athletic/6024072/2024/12/28/flyers-noah-cates-matvei-michkov-ducks/
 
