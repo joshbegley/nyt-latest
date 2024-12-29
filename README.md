@@ -1,3 +1,27 @@
+**Rangers' special teams woes, top player struggles and a standings plummet: 3 takeaways**\
+`The Rangers' 6-2 trouncing Saturday at the hands of the Lightning was another disaster in a stretch full of them for the team.`\
+https://nytimes.com/athletic/6024274/2024/12/29/rangers-lightning-takeaways-igor-shesterkin/
+
+**The Jeju Air Crash Appears to Be the Airline’s First Fatal One**\
+`It was also unusual for South Korea, which has had a strong aviation safety record in recent decades.`\
+https://nytimes.com/2024/12/29/world/asia/south-korea-plane-crash-jeju-air-safety.html
+
+**Ignoring Warnings, a Growing Band of Tourists Venture to Afghanistan**\
+`With the war now over, the Taliban are welcoming foreign travelers, even as governments advise their citizens to stay away.`\
+https://nytimes.com/2024/12/29/world/asia/afghanistan-taliban-tourism.html
+
+**Despite Attacks, an Underground Church for L.G.B.T.Q. Africans Thrives**\
+`The congregation in Nairobi, Kenya, has been forced to move to 10 different locations over 10 years, and yet it has survived as a sanctuary in an increasingly hostile environment.`\
+https://nytimes.com/2024/12/29/world/africa/despite-attacks-an-underground-church-for-lgbtq-africans-thrives.html
+
+**The Loneliness and Joy of a Late-December Birthday**\
+`It’s hard to have your special day in a month of special days. December babies have one request: Make an effort.`\
+https://nytimes.com/2024/12/29/style/late-december-birthdays.html
+
+**Quote of the Day: Sturgeon and Shrapnel — Making Caviar as the Rockets Flew**\
+`Quotation of the Day for Sunday, December 29, 2024`\
+https://nytimes.com/2024/12/28/pageoneplus/quote-of-the-day-sturgeon-and-shrapnel-making-caviar-as-the-rockets-flew.html
+
 **South Korea’s Acting President Has Only Been in Office Since Friday**\
 `After two impeachments of leaders in two weeks, the country is deep into a political crisis.`\
 https://nytimes.com/2024/12/28/world/asia/south-korea-president-political-crisis.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6024238/2024/12/28/bruins-fabian-lysell-nhl-debut-o
 **Broncos are out of chances to squander after heartbreaking loss to Bengals**\
 `Denver blew too many chances, including two three-and-outs in overtime, to survive Joe Burrow's magic.`\
 https://nytimes.com/athletic/6024226/2024/12/28/broncos-playoff-hopes-bengals/
-
-**Colorado takes third-largest loss of Deion Sanders era as BYU rolls in Alamo Bowl**\
-`The Cougars picked off Sanders twice, limited Hunter to one highlight-reel touchdown and moved down the field with ease.`\
-https://nytimes.com/athletic/6024239/2024/12/28/colorado-byu-alamo-bowl-shedeur-sanders-travis-hunter/
-
-**Penguins come out of break cold against Islanders: 3 takeaways**\
-`The Islanders' three goals in a 10-minute span to open the second period helped fuel them past the Penguins.`\
-https://nytimes.com/athletic/6024230/2024/12/28/penguins-islanders-sidney-crosby-takeaways/
-
-**Dodgers met with Japanese pitching phenom Roki Sasaki**\
-`The hard throwing righty has been a subject of intrigue for years for a club with a clear vision of maximizing a large Japanese market.`\
-https://nytimes.com/athletic/6023986/2024/12/28/roki-sasaki-los-angeles-dodgers-meeting/
-
-**Maple Leafs report cards: Poor team defence and goaltending stick out**\
-`In Toronto's 5-2 loss to Washington, the difference in goaltending between the two clubs was evident.`\
-https://nytimes.com/athletic/6024088/2024/12/28/maple-leafs-capitals-analysis-grades/
-
-**Eight players ejected in Military Bowl after brawl leaves official bleeding**\
-`During the altercation, an ECU player shoved an NC State player from behind, and the NC State player's helmet hit the ref in the face.`\
-https://nytimes.com/athletic/6024191/2024/12/28/ecu-nc-state-fight-ejections-referee/
-
-**Bengals' Zac Taylor explains his game management at end of regulation vs. Broncos**\
-`Cincinnati's head coach stayed aggressive and an injury threw off a chance to bleed the clock almost all the way down.`\
-https://nytimes.com/athletic/6024175/2024/12/28/zac-taylor-game-management-bengals-broncos/
 
