@@ -1,5 +1,9 @@
 **The Boeing 737-800, a precursor to the 737 Max, is used widely.**\
 `Nearly 200 airlines use the 737-800, which makes up about 15 percent of the world’s fleet of aircraft.`\
+https://nytimes.com/2024/12/29/world/asia/boeing-737-800.html
+
+**The Boeing 737-800, a precursor to the 737 Max, is used widely.**\
+`Nearly 200 airlines use the 737-800, which makes up about 15 percent of the world’s fleet of aircraft.`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash/boeing-737-800
 
 **Departing Air Force Secretary Will Leave Space Weaponry as a Legacy**\
