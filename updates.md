@@ -1,3 +1,7 @@
+**Amid Anti-Western Drift, Georgia Inaugurates a Conservative President**\
+`Even though a figurehead, Mikheil Kavelashvili occupies a symbolic role as the country moves further from the West and toward Russia and China.`\
+https://nytimes.com/2024/12/29/world/europe/georgia-president-mikheil-kavelashvili.html
+
 **Charlie Maxwell, Who Hit Homers in 4 Consecutive At-Bats, Dies at 97**\
 `An All-Star outfielder for the Tigers, he tied a major league record with that feat on a Sunday (what else?) in 1959 playing against the Yankees in Detroit.`\
 https://nytimes.com/2024/12/29/sports/baseball/charlie-maxwell-dead.html
