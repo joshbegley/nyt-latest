@@ -1,3 +1,11 @@
+**Stanley Booth, Music Journalist Who Loved the Blues, Dies at 82**\
+`He is best known for his book about the Rolling Stones. But he mostly wrote about blues artists, some of them famous (B.B. King) and some less renowned (Furry Lewis).`\
+https://nytimes.com/2024/12/29/books/stanley-booth-dead.html
+
+**Raiders’ Brock Bowers breaks Ditka’s, Nacua's rookie receiving records**\
+`In the third quarter, Bowers also matched Darren Waller's franchise record for most receptions in a season with his 107th catch.`\
+https://nytimes.com/athletic/6025173/2024/12/29/brock-bowers-nfl-rookie-record-raiders-mike-ditka/
+
 **Salah says he and Liverpool 'far away' from positive update on contract talks**\
 `Liverpool’s Mohamed Salah says he is “far away” from being able to provide a positive update on his contract situation.`\
 https://nytimes.com/athletic/6025327/2024/12/29/salah-liverpool-contract-update-far-away/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6023529/2024/12/29/dolphins-qb-tua-tagovailoa-doubt
 **Rooney on Plymouth future: 'You have to look at every outcome'**\
 `Wayne Rooney said he was “hurting” and accepted “you have to look at every possible outcome” after yet another defeat on the road left his Plymouth Argyle rooted to the bottom of the Championship.`\
 https://nytimes.com/athletic/6025071/2024/12/29/wayne-rooney-plymouth-argyle-future/
-
-**CFB needs a commissioner, Nick Saban 'obvious choice': James Franklin**\
-`The challenges that would await a commissioner would be plentiful in a new era that the NCAA has struggled to navigate.`\
-https://nytimes.com/athletic/6025049/2024/12/29/james-franklin-nick-saban-college-football-commissioner/
-
-**Texas A&M adds to WR portal haul with NC State's KC Concepcion**\
-`Concepcion, the 2023 ACC rookie of the year, joins Texas Tech's Micah Hudson and Mississippi State's Mario Craver in transferring to A&M.`\
-https://nytimes.com/athletic/6025050/2024/12/29/kc-concepcion-texas-am-nc-state-portal/
 
