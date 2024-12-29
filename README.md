@@ -1,3 +1,11 @@
+**Sergio Conceicao set to be new Milan coach after Paolo Fonseca sacked**\
+`AC Milan have sacked head coach Paulo Fonseca and are set to appoint Sergio Conceicao to replace him.`\
+https://nytimes.com/athletic/6025554/2024/12/29/sergio-conceicao-set-to-be-new-milan-coach-after-paulo-fonseca-sacked/
+
+**Jimmy Carter Opened the White House to the Music He Loved**\
+`The Allman Brothers kick-started his candidacy and Willie Nelson smoked marijuana at the White House. Mr. Carter’s tastes were a confluence of strategy, generational change and forthright appreciation.`\
+https://nytimes.com/2024/12/29/us/politics/jimmy-carter-rock-music.html
+
 **Covering Carter: A Reporter Recalls the President’s Personal Side**\
 `In private, Jimmy Carter could be appealing and unassuming, according to a reporter who covered his presidency for The Times.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-reporter-white-house.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/29/us/jimmy-carter-funeral-burial-plans.html
 **One Week in the Carter Presidency: Brokering Peace and a Nuclear Crisis**\
 `A single week in 1979 underscored just how eventful Mr. Carter’s presidency really was.`\
 https://nytimes.com/2024/12/29/us/politics/carter-peace-egypt-israel-nuclear-three-mile.html
-
-**Bowers record-setting day paces Raiders in win vs. Saints: Takeaways**\
-`The Raiders are now 4-12 with one regular-season game to play, while the Saints drop to 5-11.`\
-https://nytimes.com/athletic/6024767/2024/12/29/raiders-saints-score-result-takeaways/
-
-**NFL Week 17 takeaways: Should Cowboys keep Mike McCarthy?**\
-`Plus, the resilient Eagles, and missed opportunities for two playoff contenders.`\
-https://nytimes.com/athletic/6025602/2024/12/29/nfl-week-17-scores-takeaways-cowboys-mike-mccarthy/
 
