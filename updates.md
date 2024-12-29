@@ -1,3 +1,7 @@
+**'We did this to ourselves': Blue Jackets too careless with the puck to end road woes**\
+`After a 4-0 loss to the Bruins, the Blue Jackets now have a 4-12-3 record away from Nationwide Arena this season.`\
+https://nytimes.com/athletic/6024207/2024/12/28/blue-jackets-bruins-road-record/
+
 **Bruins’ Fabian Lysell, Oliver Wahlstrom and the hunt for secondary offense**\
 `Lysell’s promotion reflects poorly on Wahlstrom’s second chance.`\
 https://nytimes.com/athletic/6024238/2024/12/28/bruins-fabian-lysell-nhl-debut-oliver-wahlstrom/
