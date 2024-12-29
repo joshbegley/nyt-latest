@@ -22,8 +22,8 @@ https://nytimes.com/2024/12/28/business/trump-immigration-h1b-visa.html
 `Despite loss, Denver can still make the playoffs with a Week 18 win, while Cincinnati must win and receive some help. `\
 https://nytimes.com/athletic/6023431/2024/12/28/broncos-bengals-score-result-takeaways/
 
-**Live Updates: Jeju Air Flight Crashes in South Korea, Killing Many**\
-`The passenger plane was landing when it went off the runway in Muan. The flight came from Bangkok and was carrying 181 people.`\
+**Live Updates: Jeju Air Flight Crashes in South Korea, Killing Dozens**\
+`The passenger plane was landing when it went off the runway in Muan, in the country’s southwest. The flight came from Bangkok and was carrying 181 people.`\
 https://nytimes.com/live/2024/12/28/world/south-korea-plane-crash
 
 **Noah Cates continues to surge, Matvei Michkov benched as Flyers skate past Ducks**\
