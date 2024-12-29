@@ -1,3 +1,7 @@
+**Sources: Lakers trade D'Angelo Russell to Nets for Dorian Finney-Smith**\
+`The Nets will receive second-year forward Maxwell Lewis and three second-round picks in addition to reuniting with Russell.`\
+https://nytimes.com/athletic/6024941/2024/12/29/dangelo-russell-dlo-trade-lakers-nets/
+
 **Amid Anti-Western Drift, Georgia Inaugurates a Conservative President**\
 `Even though a figurehead, Mikheil Kavelashvili occupies a symbolic role as the country moves further from the West and toward Russia and China.`\
 https://nytimes.com/2024/12/29/world/europe/georgia-president-mikheil-kavelashvili.html

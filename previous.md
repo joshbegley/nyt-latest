@@ -1,3 +1,7 @@
+**Sources: Lakers trade D'Angelo Russell to Nets for Dorian Finney-Smith**\
+`The Nets will receive second-year forward Maxwell Lewis and three second-round picks in addition to reuniting with Russell.`\
+https://nytimes.com/athletic/6024941/2024/12/29/dangelo-russell-dlo-trade-lakers-nets/
+
 **Amid Anti-Western Drift, Georgia Inaugurates a Conservative President**\
 `Even though a figurehead, Mikheil Kavelashvili occupies a symbolic role as the country moves further from the West and toward Russia and China.`\
 https://nytimes.com/2024/12/29/world/europe/georgia-president-mikheil-kavelashvili.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/dining/bright-flavors-easy-dinners.html
 **Warren Upton, Who Escaped Sinking Battleship at Pearl Harbor, Dies at 105**\
 `The last survivor of the U.S.S. Utah, he was a 22-year-old Navy radioman when Japanese forces attacked.`\
 https://nytimes.com/2024/12/29/us/warren-upton-dead.html
-
-**Azerbaijan Blames Russia for Plane Crash and Rebukes Kremlin**\
-`The leader of Azerbaijan criticized the Russian response to the crash of a passenger jet that Azerbaijani officials said had most likely been hit by Russian air defenses.`\
-https://nytimes.com/2024/12/29/world/europe/azerbaijan-blames-russia-plane-crash.html
 
