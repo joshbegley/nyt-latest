@@ -1,3 +1,15 @@
+**The Last Word: Jimmy Carter**\
+`In a never-before-seen interview with The Times in 2006, Jimmy Carter reflects on his life and work as a Cold War leader, Middle East peace broker and post-presidential career as a citizen diplomat.`\
+https://nytimes.com/video/us/politics/1194834031782/jimmy-carter-obituary.html
+
+**He lived longer than any other U.S. president. Here’s the latest.**\
+`By Rick Rojas and Peter Baker`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/he-lived-longer-than-any-other-us-president-heres-the-latest
+
+**Jimmy Carter Dies at 100**\
+`The former president, a peanut farmer and Democrat from Georgia, was known as much for his charity and diplomatic work later in life as he was for his single presidential term, which ended in 1981.`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter
+
 **Saquon Barkley surpasses 2,000 rushing yards, ninth player in NFL history**\
 `Barkley became the ninth player in NFL history to surpass the famed threshold, which was most recently accomplished by Derrick Henry.`\
 https://nytimes.com/athletic/6025384/2024/12/29/saquon-barkley-eagles-nfl-rushing-record/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6025173/2024/12/29/brock-bowers-nfl-rookie-record-r
 **Salah says he and Liverpool 'far away' from positive update on contract talks**\
 `Liverpool’s Mohamed Salah says he is “far away” from being able to provide a positive update on his contract situation.`\
 https://nytimes.com/athletic/6025327/2024/12/29/salah-liverpool-contract-update-far-away/
-
-**Eagles' Kenny Pickett exits with ribs injury vs. Cowboys**\
-`Pickett started Sunday's game in place of Jalen Hurts, who missed the matchup vs. Dallas with a concussion.`\
-https://nytimes.com/athletic/6025303/2024/12/29/eagles-kenny-pickett-rib-injury/
-
-**What are the chances of Forest qualifying for the Champions League?**\
-`Forest find themselves in unchartered territory. Or, more accurately, territory they have not explored in the best part of three decades`\
-https://nytimes.com/athletic/6025118/2024/12/29/nottingham-forest-champions-league/
-
-**Bird Strikes Are a Common Problem for Flights**\
-`It is not uncommon for planes to strike wildlife, but most episodes don’t result in deaths or serious injuries.`\
-https://nytimes.com/2024/12/29/world/asia/bird-strike-plane-crash.html
 
