@@ -1,3 +1,11 @@
+**Jimmy Carter went to North Korea for nuclear talks in 1994. It didn’t go as planned.**\
+`In a 1994 trip that triggered Bill Clinton’s ire, Carter met with the North’s leader as a “private citizen.” He emerged with what he said was a “miracle.” Others had a different view.`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/jimmy-carter-went-to-north-korea-for-nuclear-talks-in-1994-it-didnt-go-as-planned
+
+**Canada disappoints again, Czechia emerges as a contender on Day 4 at World Juniors**\
+`Canada required an empty-netter for a second straight year to beat Germany.`\
+https://nytimes.com/athletic/6006893/2024/12/29/canada-world-juniors-day-4-czechia/
+
 **'I want a banner up there': Saquon Barkley, Eagles look at bigger picture after milestone, win**\
 `Barkley joined rare company in reaching the 2,000-yard rushing mark as Philadelphia locked up the NFC East title.`\
 https://nytimes.com/athletic/6025024/2024/12/29/eagles-win-blowout-saquon-barkley-cowboys/

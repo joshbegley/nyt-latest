@@ -1,3 +1,11 @@
+**Jimmy Carter went to North Korea for nuclear talks in 1994. It didn’t go as planned.**\
+`In a 1994 trip that triggered Bill Clinton’s ire, Carter met with the North’s leader as a “private citizen.” He emerged with what he said was a “miracle.” Others had a different view.`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/jimmy-carter-went-to-north-korea-for-nuclear-talks-in-1994-it-didnt-go-as-planned
+
+**Canada disappoints again, Czechia emerges as a contender on Day 4 at World Juniors**\
+`Canada required an empty-netter for a second straight year to beat Germany.`\
+https://nytimes.com/athletic/6006893/2024/12/29/canada-world-juniors-day-4-czechia/
+
 **‘He Always Knew My Name’: Carter Is Remembered at a Bar That Was Dear to Him**\
 `The former president had kicked off his campaign for Georgia governor at Manuel’s Tavern in Atlanta. On Sunday, workers and patrons at the bar raised a glass in his honor.`\
 https://nytimes.com/2024/12/29/us/politics/carter-atlanta-dive-bar.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009900402/biden-jimmy-carter.html
 **'I want a banner up there': Saquon Barkley, Eagles look at bigger picture after milestone, win**\
 `Barkley joined rare company in reaching the 2,000-yard rushing mark as Philadelphia locked up the NFC East title.`\
 https://nytimes.com/athletic/6025024/2024/12/29/eagles-win-blowout-saquon-barkley-cowboys/
-
-**In his own words: Carter had ‘fear for our democracy.’**\
-`By The New York Times`\
-https://nytimes.com/2024/12/29/us/in-his-own-words-carter-had-fear-for-our-democracy.html
-
-**Carter once supported segregationist policies, but he eventually won the enduring support of Black voters.**\
-`By Maya King and Richard Fausset`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-once-supported-segregationist-policies-but-he-eventually-won-the-enduring-support-of-black-voters
 
