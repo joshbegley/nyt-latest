@@ -1,3 +1,7 @@
+**After Judge’s Split Ruling, M.T.A. Says Congestion Pricing Will Begin**\
+`The decision in a lawsuit brought by the State of New Jersey prompted a dispute between New York and New Jersey over whether the plan to toll drivers could start on Jan. 5.`\
+https://nytimes.com/2024/12/30/nyregion/nyc-congestion-pricing-lawsuit.html
+
 **‘Hanging Out With Jimmy Carter,’ Biden Faces the Echoes of History**\
 `President Biden is yet another one-term Democrat hurt by inflation and struggling to free hostages before leaving office. But Mr. Carter’s enhanced reputation offers hope that he too may be remembered more favorably.`\
 https://nytimes.com/2024/12/30/us/politics/jimmy-carter-joe-biden-history.html
