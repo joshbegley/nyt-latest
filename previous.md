@@ -19,7 +19,7 @@ https://nytimes.com/2024/12/29/us/navy-jimmy-carter-submarine.html
 https://nytimes.com/video/us/politics/100000009900402/biden-jimmy-carter.html
 
 **'I want a banner up there:' Saquon Barkley, Eagles look at bigger picture after milestone, win**\
-`Saquon Barkley joined rare company in reaching the 2,000-yard rushing mark.`\
+`Barkley joined rare company in reaching the 2,000-yard rushing mark.`\
 https://nytimes.com/athletic/6025024/2024/12/29/eagles-win-blowout-saquon-barkley-cowboys/
 
 **In his own words: Carter had ‘fear for our democracy.’**\
