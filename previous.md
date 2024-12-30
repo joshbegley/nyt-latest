@@ -1,3 +1,11 @@
+**The Music Is Too Loud. That’s the Point.**\
+`Vinyl-focused listening bars inspired by ones in Japan are opening across New York, attracting audiophiles and city dwellers looking for a respite from the cacophony outside their doors.`\
+https://nytimes.com/2024/12/30/style/vinyl-listening-bars.html
+
+**Russia and Ukraine Swap More Than 300 Prisoners Ahead of U.S. Transition**\
+`Exchanges have taken place before, but this deal, involving big numbers on both sides, comes as Trump prepares to take over in Washington, potentially endangering American aid to Kyiv.`\
+https://nytimes.com/2024/12/30/world/europe/russia-ukraine-prisoner-swap.html
+
 **Submit your Mets questions for Will Sammon's mailbag**\
 `Submit your Mets questions for Will Sammon's mailbag`\
 https://nytimes.com/athletic/6027566/2024/12/30/submit-your-mets-questions-for-will-sammons-mailbag-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6027330/2024/12/30/nfl-week-18-odds-schedule-lions-
 **Sam Darnold continues late MVP push with a stellar stretch run for Vikings**\
 `Continuing his out-of-nowhere season for the Vikings, Darnold torched the Packers for a career-high 377 passing yards and three touchdowns.`\
 https://nytimes.com/athletic/6025474/2024/12/30/sam-darnold-mvp-push-vikings-packers/
-
-**Dark Doldrums Overshadow Europe’s Energy Markets**\
-`Periods of low sun and wind, a weather pattern known as a Dunkelflaute, can increase electricity prices and stoke political tensions.`\
-https://nytimes.com/2024/12/30/business/energy-environment/europe-energy-solar-wind.html
-
-**The 2024 Good Tech Awards**\
-`In a year of continued A.I. progress, “founder mode” drama and a Trump election win, a few tech projects stood out for their clear benefits to humanity.`\
-https://nytimes.com/2024/12/30/technology/good-tech-awards.html
 
