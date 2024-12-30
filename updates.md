@@ -1,3 +1,7 @@
+**Why Lakers have long coveted Dorian Finney-Smith and how he can immediately help**\
+`The Lakers are excited about the positional versatility Finney-Smith provides. And they still have flexibility to reinforce the roster.`\
+https://nytimes.com/athletic/6025301/2024/12/29/lakers-dorian-finney-smith-fit-nba-trade/
+
 **World leaders mourn Jimmy Carter while celebrating his legacy.**\
 `By Caroline Houck`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/world-leaders-mourn-jimmy-carters-death-while-celebrating-his-legacy

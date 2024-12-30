@@ -1,3 +1,7 @@
+**Carter Remembered by Politicians as a Compassionate Leader and Humanitarian**\
+`Republicans and Democrats praised the former president’s service and character. Speaker Mike Johnson called his life “a testament to the boundless opportunities available in this great nation.”`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-remembered-by-politicians-as-a-compassionate-leader-and-humanitarian
+
 **Why Lakers have long coveted Dorian Finney-Smith and how he can immediately help**\
 `The Lakers are excited about the positional versatility Finney-Smith provides. And they still have flexibility to reinforce the roster.`\
 https://nytimes.com/athletic/6025301/2024/12/29/lakers-dorian-finney-smith-fit-nba-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025703/2024/12/29/panthers-defense-blowout-bucs/
 **Sergio Conceicao set to be new Milan coach after Paolo Fonseca sacked**\
 `AC Milan have sacked head coach Paulo Fonseca and are set to appoint Sergio Conceicao to replace him.`\
 https://nytimes.com/athletic/6025554/2024/12/29/sergio-conceicao-set-to-be-new-milan-coach-after-paulo-fonseca-sacked/
-
-**Jimmy Carter Opened the White House to the Music He Loved**\
-`The Allman Brothers kick-started his candidacy and Willie Nelson smoked marijuana at the White House. Mr. Carter’s tastes were a confluence of strategy, generational change and forthright appreciation.`\
-https://nytimes.com/2024/12/29/us/politics/jimmy-carter-rock-music.html
 
