@@ -1,3 +1,7 @@
+**Holding the ‘Title of Citizen,’ Carter Carved a New Mold for Ex-Presidents**\
+`Jimmy Carter redefined what a president can do after departing the White House, leaving a lasting imprint through his work overseas, particularly in the realm of public health.`\
+https://nytimes.com/2024/12/30/us/politics/jimmy-carter-post-presidency.html
+
 **Spurs year-in-review: Wemby's ascent, Popovich's absence, reasons to believe in 2025**\
 `The stroke suffered on Nov. 2 by Gregg Popovich dominates a Spurs year that has been defined both by great promise and remaining challenge.`\
 https://nytimes.com/athletic/6027029/2024/12/30/spurs-review-victor-wembanyama-gregg-popovich/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/us/politics/mondale-carter-eulogy.html
 **Biden Announces $2.5 Billion in Security Aid to Ukraine**\
 `The Treasury Department also released an additional $3.4 billion in budget aid as the Biden administration rushes assistance to Kyiv in its final weeks in office.`\
 https://nytimes.com/2024/12/30/us/politics/ukraine-aid-weapons.html
-
-**10 Tips to Help You Eat Healthier in 2025**\
-`Throughout the past year, we reviewed seed oils, ultraprocessed foods, Bruce Springsteen’s diet and more. Here’s what we learned.`\
-https://nytimes.com/2024/12/30/well/eat/nutrition-food-tips-2025.html
 
