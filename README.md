@@ -1,3 +1,11 @@
+**Jaylen Mbakwe to stay at WR, Kadyn Proctor to play vs. Michigan**\
+`Mbakwe’s experiment at wide receiver is likely a permanent move for Alabama.`\
+https://nytimes.com/athletic/6027452/2024/12/30/alabama-football-jaylen-mbakwe-kadyn-proctor/
+
+**Fire-Friendly Weather Predicted for Parts of the High Plains and Southern California**\
+`Forecasters warned of a “critical” wildfire risk on Monday in New Mexico, Texas and Oklahoma.`\
+https://nytimes.com/2024/12/30/weather/wildfire-risk-california-texas.html
+
 **Jimmy Carter and Motown Founder Berry Gordy’s Surprising Connection**\
 `According to a detailed family history compiled by one of the former president’s sons, the two men shared a common ancestor in 19th-century Georgia.`\
 https://nytimes.com/2024/12/30/arts/music/jimmy-carter-berry-gordy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6027192/2024/12/30/college-football-playoff-upset-p
 **Ex-Chelsea winger Willian becomes free agent after leaving Olympiacos**\
 `Willian has left Olympiacos only six months into a one-year deal.`\
 https://nytimes.com/athletic/6027460/2024/12/30/willian-free-agent-olympiacos/
-
-**‘Aida’ Returns to the Met Opera Through Archaeologists’ Eyes**\
-`Michael Mayer is directing the Met’s first new production of Verdi’s classic in nearly four decades, aiming for something fresh yet enduring.`\
-https://nytimes.com/2024/12/30/arts/music/aida-met-opera.html
-
-**Syria’s Rebel Leader Offers Hint of Timetable for Potential Elections**\
-`Ahmed al-Shara, who led the rebel offensive that toppled Bashar al-Assad, offered little clarity on what the electoral process might look like.`\
-https://nytimes.com/2024/12/30/world/middleeast/syria-rebel-leader-elections.html
 
