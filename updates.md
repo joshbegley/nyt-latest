@@ -1,3 +1,7 @@
+**In-stadium VAR announcements to be trialled in Carabao Cup semi-finals**\
+`In-stadium video assistant referee (VAR) announcements will be trialled in English football for the first time during January&#8217;s Carabao Cup semi-finals.`\
+https://nytimes.com/athletic/6027144/2024/12/30/var-in-stadium-trial/
+
 **CFB winter transfer window wrap-up: Hot teams, best players available**\
 `Which teams did the best in December? Who's allowed to hit the portal in January? And who are the top transfers still available?`\
 https://nytimes.com/athletic/6026978/2024/12/30/college-football-transfer-portal-best-available-whats-next/
