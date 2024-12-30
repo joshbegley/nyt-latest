@@ -1,3 +1,7 @@
+**Carter’s Visit to the Blighted Bronx Blazed a Trail**\
+`Mr. Carter made a ‘sobering’ trip to the South Bronx to reinforce his commitment to urban areas. Other leaders would follow.`\
+https://nytimes.com/2024/12/29/us/politics/jimmy-carter-south-bronx.html
+
 **Myles Garrett makes NFL history with 14-plus sacks in 4 consecutive seasons**\
 `After Sunday's game, his 102.5 career sacks are tied with Jim Jeffcoat for 38th on the NFL all-time list.`\
 https://nytimes.com/athletic/6025834/2024/12/29/browns-myles-garrett-sack-season-mark/
