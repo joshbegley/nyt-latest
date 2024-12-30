@@ -1,3 +1,11 @@
+**Falcons' second-half collapse in Washington likely to haunt them for a long time**\
+`The Falcons were outscored 23-7 after halftime, mismanaged the clock and fumbled away the NFC South lead entering Week 18.`\
+https://nytimes.com/athletic/6026540/2024/12/30/falcons-commanders-second-half-collapse/
+
+**Submit your questions for Until Saturday’s podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/6026908/2024/12/30/college-football-questions-mailbag-until-saturday-41/
+
 **Jets deep dive: Mark Scheifele and Kyle Connor's chemistry, an update on defence**\
 `Breaking down what Jets coach Scott Arniel is getting right, a confusing depth chart on defence, a top line in flight and more.`\
 https://nytimes.com/athletic/6024001/2024/12/30/winnipeg-jets-scheifele-connor-nhl-defense/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6025615/2024/12/30/broncos-defensive-front-playoff-
 **Lowetide: How will the Oilers' plethora of skill wingers shake out this season?**\
 `Making sense of the Oilers winger situation at the moment comes with some hard truths.`\
 https://nytimes.com/athletic/6025026/2024/12/30/edmonton-oilers-stats-wingers-skill/
-
-**NBA Rewind: King James turns 40, while the Kings remain dysfunctional**\
-`On LeBron James' milestone birthday, Zach Harper wonders what's next for the Timberwolves and Kings. `\
-https://nytimes.com/athletic/6020328/2024/12/30/nba-rewind-lebron-james-lakers-mike-brown-kings-anthony-edwards-timberwolves-nba/
-
-**For South Korean Families, a Grim Wait for Bodies After Plane Crash**\
-`Officials said it could take up to 10 days to prepare the dead for transport, with the uncertainty adding to the shock and grief of relatives packed into an airport hall.`\
-https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-victims.html
 

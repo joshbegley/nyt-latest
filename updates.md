@@ -1,3 +1,7 @@
+**Jets deep dive: Mark Scheifele and Kyle Connor's chemistry, an update on defence**\
+`Breaking down what Jets coach Scott Arniel is getting right, a confusing depth chart on defence, a top line in flight and more.`\
+https://nytimes.com/athletic/6024001/2024/12/30/winnipeg-jets-scheifele-connor-nhl-defense/
+
 **Linda Lavin, Broadway Actress and Star of TV Sitcom ‘Alice,’ Dies at 87**\
 `She won two Golden Globe Awards and an Emmy nomination for her role on the show. She also earned a Tony Award for best actress in the play “Broadway Bound.”`\
 https://nytimes.com/2024/12/30/arts/linda-lavin-dead.html
