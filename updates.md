@@ -1,3 +1,15 @@
+**For 49ers' Dre Greenlaw, football's pain and injuries are no match for his resolve**\
+`Dre Greenlaw has been through a lot just to get to the NFL. It's why the 49ers linebacker isn't deterred by another round of injuries.`\
+https://nytimes.com/athletic/6014551/2024/12/30/dre-greenlaw-san-francisco-49ers-achilles-injuries-free-agent/
+
+**From Bird Strike to Crash: the Mystery of Jeju Air Plane’s Four Fateful Minutes**\
+`The time between when the pilot reported a bird strike and when it crashed could be key to unraveling one of the world’s worst aviation disasters in years.`\
+https://nytimes.com/2024/12/30/world/asia/from-bird-strike-to-crash-the-mystery-of-jeju-air-planes-four-fateful-minutes.html
+
+**The manner of Paulo Fonseca’s Milan exit may have been shabby - but change was needed**\
+`Fonseca struggled to win over a fanbase whose expectations are not being met — on or off the pitch `\
+https://nytimes.com/athletic/6026677/2024/12/30/inside-milan-fonseca-sacked-conceicao/
+
 **Carter Funeral Service to Be Held at Washington National Cathedral on Jan. 9**\
 `The state funeral will cap more than a week of remembrances honoring Jimmy Carter, the 39th president of the United States, who died at 100 on Sunday.`\
 https://nytimes.com/2024/12/30/us/politics/jimmy-carter-funeral.html
