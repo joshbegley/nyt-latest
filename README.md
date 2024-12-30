@@ -1,3 +1,7 @@
+**New Year’s Eve Specials, Plus 3 Things to Watch on TV this Week**\
+`Several networks will host their annual countdowns on Tuesday, and award season will begin with the Golden Globes on Sunday.`\
+https://nytimes.com/2024/12/30/arts/television/new-years-eve-specials-tv-this-week.html
+
 **Commanders clinch playoff berth with 30-24 OT win vs. Falcons: Takeaways**\
 `Jayden Daniels led a game-winning drive, capped by a touchdown pass to Zach Ertz, to continue his Rookie of the Year campaign.`\
 https://nytimes.com/athletic/6025909/2024/12/30/commanders-falcons-snf-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025258/2024/12/30/leicester-have-two-clean-sheets-
 **Aston Villa's 2024: Bayern revisited, Mings' moment of madness and Duran makes his mark**\
 `A look back at the year for Villa, from qualifying for the Champions League to Martinez's heroics and Duran's goals`\
 https://nytimes.com/athletic/5981137/2024/12/30/aston-villas-2024-bayern-revisited-mings-moment-of-madness-and-duran-makes-his-mark/
-
-**If Eze has his confidence back, Palace have a true triple threat up front**\
-`Against Southampton, Sarr, Mateta and Eze demonstrated how they can work together to boost Palace’s hopes in front of goal`\
-https://nytimes.com/athletic/6020084/2024/12/30/eberechi-eze-crystal-palace-southampton-premier-league/
 
