@@ -1,3 +1,7 @@
+**From Bird Strike to Crash: the Mystery of Jeju Air Plane’s Four Fateful Minutes**\
+`The time between when the pilot reported a bird strike and when it crashed could be key to unraveling one of the world’s worst aviation disasters in years.`\
+https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-cause.html
+
 **For 49ers' Dre Greenlaw, football's pain and injuries are no match for his resolve**\
 `Dre Greenlaw has been through a lot just to get to the NFL. It's why the 49ers linebacker isn't deterred by another round of injuries.`\
 https://nytimes.com/athletic/6014551/2024/12/30/dre-greenlaw-san-francisco-49ers-achilles-injuries-free-agent/
