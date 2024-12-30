@@ -1,3 +1,7 @@
+**Assault Charge Against Oklahoma Police Officer Is Dismissed**\
+`Oklahoma’s attorney general dismissed the charge against an Oklahoma City police sergeant who was seen in body camera footage throwing a 71-year-old man to the pavement during an argument over a ticket.`\
+https://nytimes.com/2024/12/30/us/oklahoma-officer-assault-charges-dropped.html
+
 **What to watch this week in NBA, with Timberwolves and Thunder ringing in New Year**\
 `What to watch across the NBA on New Year's week, including an enticing matchup between Minnesota and Oklahoma City on Monday.`\
 https://nytimes.com/athletic/6027678/2024/12/30/nba-what-to-watch-thunder-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027775/2024/12/30/dolphins-tua-tagovailoa-hip-inju
 **Barcelona lose second appeal for Olmo registration**\
 `Barcelona have lost a second appeal for the precautionary registration of Dani Olmo for the rest of the season, meaning he remains unable to play for the club from January 1 onwards.`\
 https://nytimes.com/athletic/6026923/2024/12/30/dani-olmo-appeal-rejected-registration/
-
-**Jimmy Carter, the President and the Man**\
-`Readers praise the former president’s accomplishments and character and recall encounters with him.`\
-https://nytimes.com/2024/12/30/opinion/letters/jimmy-carter-readers-react.html
 

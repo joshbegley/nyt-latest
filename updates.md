@@ -1,3 +1,7 @@
+**Assault Charge Against Oklahoma Police Officer Is Dismissed**\
+`Oklahoma’s attorney general dismissed the charge against an Oklahoma City police sergeant who was seen in body camera footage throwing a 71-year-old man to the pavement during an argument over a ticket.`\
+https://nytimes.com/2024/12/30/us/oklahoma-officer-assault-charges-dropped.html
+
 **What to watch this week in NBA, with Timberwolves and Thunder ringing in New Year**\
 `What to watch across the NBA on New Year's week, including an enticing matchup between Minnesota and Oklahoma City on Monday.`\
 https://nytimes.com/athletic/6027678/2024/12/30/nba-what-to-watch-thunder-wolves/
