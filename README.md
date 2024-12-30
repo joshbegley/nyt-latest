@@ -1,40 +1,40 @@
+**Vikings-Lions headlines NFL Week 18 schedule**\
+`The "Sunday Night Football" contest between Detroit and Minnesota will be a battle for the NFC's No. 1 seed.`\
+https://nytimes.com/athletic/6024929/2024/12/30/nfl-week-18-schedule-times-matchups/
+
+**Is Sean Dyche doing enough to merit another season at Everton?**\
+`If the new owners were watching this game, they wouldn’t have seen anything to persuade them to keep Dyche beyond the end of the campaign`\
+https://nytimes.com/athletic/6025163/2024/12/30/is-sean-dyche-doing-enough-to-merit-another-season-at-everton/
+
+**Leicester have two clean sheets in 42 Premier League matches - individual errors are costing them**\
+`Across Van Nistelrooy's six matches in charge, Leicester have made four errors leading to shots and three errors leading to goals.`\
+https://nytimes.com/athletic/6025258/2024/12/30/leicester-have-two-clean-sheets-in-42-premier-league-matches-individual-errors-are-costing-them/
+
+**Aston Villa's 2024: Bayern revisited, Mings' moment of madness and Duran makes his mark**\
+`A look back at the year for Villa, from qualifying for the Champions League to Martinez's heroics and Duran's goals`\
+https://nytimes.com/athletic/5981137/2024/12/30/aston-villas-2024-bayern-revisited-mings-moment-of-madness-and-duran-makes-his-mark/
+
+**If Eze has his confidence back, Palace have a true triple threat up front**\
+`Against Southampton, Sarr, Mateta and Eze demonstrated how they can work together to boost Palace’s hopes in front of goal`\
+https://nytimes.com/athletic/6020084/2024/12/30/eberechi-eze-crystal-palace-southampton-premier-league/
+
+**Brentford's 2024: Toney's departure, Mbeumo and Wissa step up, and that Schade hat-trick**\
+`Brentford tailed off last season, but despite the departure of their leading striker, 2024-25 started with a bang`\
+https://nytimes.com/athletic/5971820/2024/12/30/brentfords-2024-toneys-departure-mbeumo-and-wissa-step-up-and-that-schade-hat-trick/
+
+**Are Wrexham on course for promotion?**\
+`Here’s what the data and history says about the chances of Phil Parkinson’s side`\
+https://nytimes.com/athletic/6019378/2024/12/30/are-wrexham-on-course-for-promotion/
+
+**It's a difficult subject for Spurs fans, but it's time to talk about Son's form**\
+`What's going on with Tottenham's captain?`\
+https://nytimes.com/athletic/6025285/2024/12/30/its-time-to-talk-about-son/
+
+**'A perfect team move' - the goal-of-the-season contender that showed the best of Leeds**\
+`Daniel Farke said he put Brenden Aaronson's winner against Derby 'straight away into my poetry album'. Here, we break down the move`\
+https://nytimes.com/athletic/6025201/2024/12/30/brenden-aaronson-finishes-off-the-perfect-team-move-that-showed-the-best-of-leeds/
+
 **Stand offs like Rashford and Amorim at Man Utd rarely end in true reconciliation**\
 `Marcus Rashford's exile under Ruben Amorim is four games and counting - history says when it gets this bad it usually only ends one way`\
 https://nytimes.com/athletic/6024503/2024/12/30/rashford-amorim-man-utd-exile/
-
-**xG, xA and a battle for hearts and minds – a friendly debate between a fan and The Athletic's data expert**\
-`Duncan Alexander and a football fan discuss data, where it is used well, where it could be used better and why it's sometimes confusing`\
-https://nytimes.com/athletic/6021663/2024/12/30/xg-ppda-explained-expected-goals/
-
-**Tough night for Wild's first line, but details costly in the end: 3 takeaways vs. Senators**\
-`The Wild struggled to take advantage of their chances against a beatable goalie in their second game without Kaprizov.`\
-https://nytimes.com/athletic/6025956/2024/12/30/wild-top-line-penalty-kill-senators/
-
-**Cedric Soares interview: 'Mikel Arteta changed the way I see football'**\
-`The former Arsenal defender reflects on his time in north London, his returns since leaving and discusses his plans for the future`\
-https://nytimes.com/athletic/6001673/2024/12/30/cedric-soares-interview-mikel-arteta-changed-the-way-i-see-football/
-
-**Explained: The Premier League players who can sign a pre-contract agreement in January**\
-`As part of the 1995 Bosman ruling, clubs from other countries can now discuss and finalise pre-contract agreements with players in England`\
-https://nytimes.com/athletic/6006330/2024/12/30/explained-the-premier-league-players-who-can-sign-a-pre-contract-agreement-in-january/
-
-**Monday Briefing**\
-`Jimmy Carter dies at 100.`\
-https://nytimes.com/2024/12/30/briefing/jimmy-carter-plane-crash.html
-
-**Week 17 NFL playoff picture: Vikings win sets up clash with Lions for NFC No. 1 seed**\
-`The final AFC playoff spot is up for grabs with the Broncos facing a win-and-in Week 18. If they lose, the Bengals and Dolphins are lurking.`\
-https://nytimes.com/athletic/6019766/2024/12/30/week-17-nfl-playoff-picture-vikings-lions/
-
-**WSL's 2024: Chelsea reign supreme, increased competition and a sock farce**\
-`The last 12 months has seen another title for Chelsea, Emma Hayes exit for the USWNT and Arsenal in need of a rush to a club shop...`\
-https://nytimes.com/athletic/5987417/2024/12/30/wsl-review-2024-chelsea-sock-farce/
-
-**The mood among Man City fans is... gallows humour: 'It could be worse, we could be Man United'**\
-`'City are back' the travelling supporters chanted after the final whistle. Maybe not quite yet, but this one felt good`\
-https://nytimes.com/athletic/6024550/2024/12/30/man-city-fans-leicester/
-
-**13 Cozy Winter Dinners to Warm You Up**\
-`When the weather outside is frightful, cook something delightful.`\
-https://nytimes.com/2024/12/30/dining/winter-recipes-warming.html
 
