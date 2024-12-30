@@ -1,3 +1,7 @@
+**Vitor Pereira has transformed Wolves' belief but he needs signings to fix their defence**\
+`The mood around Wolves has changed beyond belief, but the issues that put them in trouble have not gone away`\
+https://nytimes.com/athletic/6025135/2024/12/30/wolves-pereira-january-transfers-defender/
+
 **Vikings-Lions headlines NFL Week 18 schedule**\
 `The "Sunday Night Football" contest between Detroit and Minnesota will be a battle for the NFC's No. 1 seed.`\
 https://nytimes.com/athletic/6024929/2024/12/30/nfl-week-18-schedule-times-matchups/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025285/2024/12/30/its-time-to-talk-about-son/
 **'A perfect team move' - the goal-of-the-season contender that showed the best of Leeds**\
 `Daniel Farke said he put Brenden Aaronson's winner against Derby 'straight away into my poetry album'. Here, we break down the move`\
 https://nytimes.com/athletic/6025201/2024/12/30/brenden-aaronson-finishes-off-the-perfect-team-move-that-showed-the-best-of-leeds/
-
-**Stand offs like Rashford and Amorim at Man Utd rarely end in true reconciliation**\
-`Marcus Rashford's exile under Ruben Amorim is four games and counting - history says when it gets this bad it usually only ends one way`\
-https://nytimes.com/athletic/6024503/2024/12/30/rashford-amorim-man-utd-exile/
 
