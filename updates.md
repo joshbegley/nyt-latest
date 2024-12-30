@@ -1,3 +1,19 @@
+**Five Laws Going Into Effect for New York in 2025**\
+`Changes are coming to paid family leave, insulin costs, restaurant reservations, gym membership cancellations and protections for fashion industry workers.`\
+https://nytimes.com/2024/12/30/nyregion/ny-laws-2025-insulin-gym-membership.html
+
+**Shen Yun Needed Publicity. The Epoch Times Wrote 17,000 Articles.**\
+`A publisher that rose to prominence promoting right-wing conspiracy theories has also served as sword and shield for the dance group and the religious movement behind it.`\
+https://nytimes.com/2024/12/30/nyregion/shen-yun-epoch-times-falun-gong.html
+
+**Democratic N.Y. Lawmakers Brace for Risks of a Trump Administration**\
+`After President-elect Donald J. Trump’s gains in New York, lawmakers plan to focus on high costs and crime while safeguarding policies about immigration and abortion.`\
+https://nytimes.com/2024/12/30/nyregion/trump-ny-legislature.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/30/crosswords/spelling-bee-forum.html
+
 **The numbers behind Mohamed Salah's historic Premier League season so far**\
 `Liverpool's talisman is having the greatest Premier League season for an attacker ever - and he's only played 18 games `\
 https://nytimes.com/athletic/6026134/2024/12/30/mohamed-salah-goals-assists-premier-league-history/
