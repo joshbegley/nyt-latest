@@ -1,3 +1,7 @@
+**'I want a banner up there': Saquon Barkley, Eagles look at bigger picture after milestone, win**\
+`Barkley joined rare company in reaching the 2,000-yard rushing mark as Philadelphia locked up the NFC East title.`\
+https://nytimes.com/athletic/6025024/2024/12/29/eagles-win-blowout-saquon-barkley-cowboys/
+
 **‘He Always Knew My Name’: Carter Is Remembered at a Bar That Was Dear to Him**\
 `The former president had kicked off his campaign for Georgia governor at Manuel’s Tavern in Atlanta. On Sunday, workers and patrons at the bar raised a glass in his honor.`\
 https://nytimes.com/2024/12/29/us/politics/carter-atlanta-dive-bar.html
