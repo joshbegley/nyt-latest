@@ -1,3 +1,7 @@
+**Heat Today: How Tyler Herro's All-Star case grows by the day**\
+`From timely clutch plays to versatile production, Herro's first NBA All-Star nod feels inevitable.`\
+https://nytimes.com/athletic/6026899/2024/12/30/tyler-herro-heat-all-star-nba/
+
 **Jaylen Mbakwe to stay at WR, Kadyn Proctor to play vs. Michigan**\
 `Mbakwe’s experiment at wide receiver is likely a permanent move for Alabama.`\
 https://nytimes.com/athletic/6027452/2024/12/30/alabama-football-jaylen-mbakwe-kadyn-proctor/

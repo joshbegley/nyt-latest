@@ -1,3 +1,7 @@
+**Heat Today: How Tyler Herro's All-Star case grows by the day**\
+`From timely clutch plays to versatile production, Herro's first NBA All-Star nod feels inevitable.`\
+https://nytimes.com/athletic/6026899/2024/12/30/tyler-herro-heat-all-star-nba/
+
 **Jaylen Mbakwe to stay at WR, Kadyn Proctor to play vs. Michigan**\
 `Mbakwe’s experiment at wide receiver is likely a permanent move for Alabama.`\
 https://nytimes.com/athletic/6027452/2024/12/30/alabama-football-jaylen-mbakwe-kadyn-proctor/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027348/2024/12/30/sabres-prospect-jiri-kulich-stat
 **The most likely upsets for the College Football Playoff's second round**\
 `The seedings for the College Football Playoff and the betting lines stand almost entirely at, ahem, odds. Read for the most likely upsets.`\
 https://nytimes.com/athletic/6027192/2024/12/30/college-football-playoff-upset-predictions-quarterfinals/
-
-**Ex-Chelsea winger Willian becomes free agent after leaving Olympiacos**\
-`Willian has left Olympiacos only six months into a one-year deal.`\
-https://nytimes.com/athletic/6027460/2024/12/30/willian-free-agent-olympiacos/
 
