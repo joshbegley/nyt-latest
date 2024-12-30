@@ -1,3 +1,7 @@
+**The numbers behind Mohamed Salah's historic Premier League season so far**\
+`Liverpool's talisman is having the greatest Premier League season for an attacker ever - and he's only played 18 games `\
+https://nytimes.com/athletic/6026134/2024/12/30/mohamed-salah-goals-assists-premier-league-history/
+
 **‘She Was Almost Home’: Father Mourns South Korea Plane Crash Victim**\
 `Jeon Je-young was among the hundreds of family members waiting for news from the authorities about Jeju Air Flight 2216, which crashed at an airport in South Korea.`\
 https://nytimes.com/video/world/asia/100000009900500/south-korea-plane-crash-victim.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024929/2024/12/30/nfl-week-18-schedule-times-match
 **Is Sean Dyche doing enough to merit another season at Everton?**\
 `If the new owners were watching this game, they wouldn’t have seen anything to persuade them to keep Dyche beyond the end of the campaign`\
 https://nytimes.com/athletic/6025163/2024/12/30/is-sean-dyche-doing-enough-to-merit-another-season-at-everton/
-
-**Leicester have two clean sheets in 42 Premier League matches - individual errors are costing them**\
-`Across Van Nistelrooy's six matches in charge, Leicester have made four errors leading to shots and three errors leading to goals.`\
-https://nytimes.com/athletic/6025258/2024/12/30/leicester-have-two-clean-sheets-in-42-premier-league-matches-individual-errors-are-costing-them/
 
