@@ -1,3 +1,15 @@
+**Jaden Rashada says 'I needed Georgia,' in QB's first public interviews since transfer**\
+`Rashada became the poster child for college football's new era when he went through an eight-figure NIL dispute as a recruit. `\
+https://nytimes.com/athletic/6027609/2024/12/30/jaden-rashada-georgia-quarterback-transfer/
+
+**Six ex-FSU MBB players sue coach Leonard Hamilton over unpaid NIL promises**\
+`Hamilton promised six former players $250,000 each in NIL compensation during their recruitment, according to the lawsuit.`\
+https://nytimes.com/athletic/6027174/2024/12/30/florida-state-leonard-hamilton-nil-lawsuit/
+
+**Submit your Pistons questions for Hunter Patterson's mailbag**\
+`What's on your mind about the Pistons? Let us know.`\
+https://nytimes.com/athletic/6027620/2024/12/30/pistons-mailbag-hunter-patterson/
+
 **Amy Carter, Thrust Into the Public Eye at a Young Age, Has Since Receded**\
 `Jimmy Carter’s daughter had an extraordinary and well-documented childhood in the White House. Since then she has for the most part lived a very private life.`\
 https://nytimes.com/2024/12/30/us/politics/amy-carter-jimmy.html
