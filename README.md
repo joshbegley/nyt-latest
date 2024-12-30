@@ -1,3 +1,11 @@
+**AP Top 25: UCLA, Memphis rise, Tennessee on top to start 2025**\
+`The arrival of conference play in high-major leagues across the country this week presents several opportunities for Top 25 shakeups.`\
+https://nytimes.com/athletic/6027643/2024/12/30/ap-mens-basketball-top-25-rankings-ucla-memphis/
+
+**Trump Loses Appeal of Carroll’s $5 Million Award in Sex-Abuse Case**\
+`The president-elect had asked a court to overturn the defamation judgment against him in the case, which centered on E. Jean Carroll’s account of a sexual attack in a dressing room.`\
+https://nytimes.com/2024/12/30/nyregion/trump-carroll-appeal-denied.html
+
 **Jumping Out of a Plane, With Skydiving Seniors**\
 `To report on the Wuest Ways group, which has been hosting skydives since 1987, a reporter had to strap on a parachute and take the 12,500-foot leap.`\
 https://nytimes.com/2024/12/30/insider/skydiving-seniors-reporting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6027609/2024/12/30/jaden-rashada-georgia-quarterbac
 **Six ex-FSU MBB players sue coach Leonard Hamilton over unpaid NIL promises**\
 `Hamilton promised six former players $250,000 each in NIL compensation during their recruitment, according to the lawsuit.`\
 https://nytimes.com/athletic/6027174/2024/12/30/florida-state-leonard-hamilton-nil-lawsuit/
-
-**Submit your Pistons questions for Hunter Patterson's mailbag**\
-`What's on your mind about the Pistons? Let us know.`\
-https://nytimes.com/athletic/6027620/2024/12/30/pistons-mailbag-hunter-patterson/
-
-**Amy Carter, Thrust Into the Public Eye at a Young Age, Has Since Receded**\
-`Jimmy Carter’s daughter had an extraordinary and well-documented childhood in the White House. Since then she has for the most part lived a very private life.`\
-https://nytimes.com/2024/12/30/us/politics/amy-carter-jimmy.html
 
