@@ -1,3 +1,11 @@
+**Penn State already has a lot to remember in 2024. Can it make this season unforgettable?**\
+`From a comeback at USC to heroics at Minnesota, Penn State's path to the Playoff hasn't always been easy. But it has been memorable.`\
+https://nytimes.com/athletic/6025414/2024/12/30/penn-state-2024-season-fiesta-bowl-playoff/
+
+**ReliaQuest Bowl preview: What's on the line for Alabama and Michigan?**\
+`Alabama and Michigan will end 2024 the way they began it, by meeting in a bowl game. What's at stake in Tampa on New Year's Eve?`\
+https://nytimes.com/athletic/6023332/2024/12/30/alabama-michigan-reliaquest-bowl-matchup-predictions/
+
 **Cowboys' final 2 games are warning of 'very difficult' NFC East future that awaits**\
 `The division isn't getting any easier and the Cowboys have work to do to keep up with the Eagles and Commanders.`\
 https://nytimes.com/athletic/6025802/2024/12/30/cowboys-nfc-east-difficult-eagles/
