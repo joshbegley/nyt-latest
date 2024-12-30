@@ -1,3 +1,23 @@
+**Dark Doldrums Overshadow Europe’s Energy Markets**\
+`Periods of low sun and wind, a weather pattern known as a Dunkelflaute, can increase electricity prices and stoke political tensions.`\
+https://nytimes.com/2024/12/30/business/energy-environment/europe-energy-solar-wind.html
+
+**The 2024 Good Tech Awards**\
+`In a year of continued A.I. progress, “founder mode” drama and a Trump election win, a few tech projects stood out for their clear benefits to humanity.`\
+https://nytimes.com/2024/12/30/technology/good-tech-awards.html
+
+**How Jiří Kulich's breakthrough has stood out during Sabres' 3-game winning streak**\
+`Kulich’s emergence has been a welcome development for a Sabres team that’s lacked secondary scoring.`\
+https://nytimes.com/athletic/6027348/2024/12/30/sabres-prospect-jiri-kulich-stats/
+
+**The most likely upsets for the College Football Playoff's second round**\
+`The seedings for the College Football Playoff and the betting lines stand almost entirely at, ahem, odds. Read for the most likely upsets.`\
+https://nytimes.com/athletic/6027192/2024/12/30/college-football-playoff-upset-predictions-quarterfinals/
+
+**Ex-Chelsea winger Willian becomes free agent after leaving Olympiacos**\
+`Willian has left Olympiacos only six months into a one-year deal.`\
+https://nytimes.com/athletic/6027460/2024/12/30/willian-free-agent-olympiacos/
+
 **‘Aida’ Returns to the Met Opera Through Archaeologists’ Eyes**\
 `Michael Mayer is directing the Met’s first new production of Verdi’s classic in nearly four decades, aiming for something fresh yet enduring.`\
 https://nytimes.com/2024/12/30/arts/music/aida-met-opera.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6027015/2024/12/30/how-will-notre-dame-replace-ryli
 **Denim in the White House? President Carter Made It So.**\
 `He projected authenticity not just through his actions, but also with his uniform.`\
 https://nytimes.com/2024/12/30/style/jimmy-carter-fashion.html
-
-**Auston Matthews joins Maple Leafs practice for first time since aggravating injury**\
-`Matthews has missed the last four games after aggravating an undisclosed injury on Dec. 20 in Buffalo.`\
-https://nytimes.com/athletic/6027352/2024/12/30/auston-matthews-maple-leafs-injury-practice/
-
-**Trump Endorses Mike Johnson to Continue as House Speaker**\
-`The question of whether the president-elect would back the speaker for another term has hung over Republicans, especially after recent tensions over an end-of-year spending bill.`\
-https://nytimes.com/2024/12/30/us/politics/trump-johnson-house-speaker.html
-
-**Tennis Briefing: Djokovic and Kyrgios comments highlight doping problem, 2025 season begins**\
-`When tennis players speak, fans listen. So what happens when they're not quite right?`\
-https://nytimes.com/athletic/6025850/2024/12/30/tennis-doping-rules-djokovic-kyrgios/
-
-**The Seahawks replaced Pete Carroll to escape mediocrity. In Year 1, they failed**\
-`Mike Macdonald was hired to elevate the Seahawks, but they remain stuck on the same level as the end of the Carroll era.`\
-https://nytimes.com/athletic/6026554/2024/12/30/seahawks-playoffs-eliminated-mike-macdonald/
-
-**Falcons' Raheem Morris laments not using timeout on final drive vs. Commanders**\
-`Morris decided against using one of his two timeouts and 17 seconds ran off the clock in between plays.`\
-https://nytimes.com/athletic/6027244/2024/12/30/falcons-raheem-morris-timeout-commanders/
 
