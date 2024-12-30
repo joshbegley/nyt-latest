@@ -1,3 +1,7 @@
+**Tuesday Briefing: Remembering Jimmy Carter**\
+`Plus, the best of 2024.`\
+https://nytimes.com/2024/12/30/briefing/jimmy-carter-south-korea.html
+
 **China Hacked Treasury Dept. in ‘Major’ Breach, U.S. Says**\
 `The department notified lawmakers of the episode, which it said was linked to a state-sponsored actor in China.`\
 https://nytimes.com/2024/12/30/us/politics/china-hack-treasury.html
