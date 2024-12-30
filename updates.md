@@ -1,3 +1,7 @@
+**Jimmy Carter’s Family Carved Varied Paths Through Life**\
+`Mr. Carter’s brother hawked Billy Beer and got tied up with the Libyans. His daughter was arrested while protesting the C.I.A. His grandson sought to follow him as governor of Georgia.`\
+https://nytimes.com/2024/12/29/us/jimmy-carter-kids-children-family.html
+
 **In his own words: Carter had ‘fear for our democracy.’**\
 `By The New York Times`\
 https://nytimes.com/2024/12/29/us/in-his-own-words-carter-had-fear-for-our-democracy.html
