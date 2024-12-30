@@ -1,3 +1,11 @@
+**The Life and Legacy of Jimmy Carter**\
+`At 100, he was the longest-lived president in American history, admired more for what he did after leaving office than for his single term in the White House.`\
+https://nytimes.com/2024/12/30/podcasts/the-daily/jimmy-carter-death.html
+
+**Nottingham Forest hopeful Murillo, Hudson-Odoi injuries are not serious**\
+`Nottingham Forest are hopeful that neither Murillo nor Callum Hudson-Odoi will be sidelined for long with injury.`\
+https://nytimes.com/athletic/6026735/2024/12/30/murillo-hudson-odoi-injury-forest/
+
 **Boeing Shares Drop After South Korean Crash**\
 `A widely used Boeing aircraft, the 737-800, was involved in Sunday’s crash-landing of a Jeju Air flight that killed 179 people.`\
 https://nytimes.com/2024/12/30/business/boeing-stock-south-korea-plane-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6025802/2024/12/30/cowboys-nfc-east-difficult-eagle
 **Olivia Hussey, Star of a Renowned ‘Romeo and Juliet,’ Dies at 73**\
 `Her passionate portrayal of Juliet in Franco Zeffirelli’s 1968 film adaptation won enduring acclaim. In 2023, she sued over the circumstances of a nude scene.`\
 https://nytimes.com/2024/12/30/arts/olivia-hussey-dead-romeo-and-juliet.html
-
-**How Top Pollsters Grade 2024’s Polls**\
-`Despite a pretty accurate year, the pre-election polls once again underestimated support for Donald Trump. Does that make it a successful polling cycle, or not?`\
-https://nytimes.com/2024/12/30/us/elections/2024-polls-grades.html
-
-**San Diego State transfer Danny O'Neil adds to Wisconsin's new-look quarterback group**\
-`O'Neil started for one season for the Aztecs and knew he might be have to give up that starting role with the Baders.`\
-https://nytimes.com/athletic/6016279/2024/12/30/wisconsin-college-football-quarterbacks-danny-oneil/
 
