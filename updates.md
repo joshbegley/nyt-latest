@@ -1,3 +1,7 @@
+**What to watch this week in NBA, with Timberwolves and Thunder ringing in New Year**\
+`What to watch across the NBA on New Year's week, including an enticing matchup between Minnesota and Oklahoma City on Monday.`\
+https://nytimes.com/athletic/6027678/2024/12/30/nba-what-to-watch-thunder-wolves/
+
 **Packers' Matt LaFleur sounds off on criticism of Tucker Kraft's low block**\
 `Vikings edge defender Jonathan Greenard told Kraft to "Be a man" in a Sunday night post on X.`\
 https://nytimes.com/athletic/6027993/2024/12/30/packers-matt-lafleur-tucker-kraft-block/

@@ -1,3 +1,7 @@
+**What to watch this week in NBA, with Timberwolves and Thunder ringing in New Year**\
+`What to watch across the NBA on New Year's week, including an enticing matchup between Minnesota and Oklahoma City on Monday.`\
+https://nytimes.com/athletic/6027678/2024/12/30/nba-what-to-watch-thunder-wolves/
+
 **Packers' Matt LaFleur sounds off on criticism of Tucker Kraft's low block**\
 `Vikings edge defender Jonathan Greenard told Kraft to "Be a man" in a Sunday night post on X.`\
 https://nytimes.com/athletic/6027993/2024/12/30/packers-matt-lafleur-tucker-kraft-block/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026923/2024/12/30/dani-olmo-appeal-rejected-regist
 **Jimmy Carter, the President and the Man**\
 `Readers praise the former president’s accomplishments and character and recall encounters with him.`\
 https://nytimes.com/2024/12/30/opinion/letters/jimmy-carter-readers-react.html
-
-**Vrabel permitted to leave Browns, start head-coaching interviews**\
-`The former Tennessee Titans coach is expected to be one of the most coveted candidates available.`\
-https://nytimes.com/athletic/6027101/2024/12/30/mike-vrabel-head-coaching-interviews/
 
