@@ -1,3 +1,7 @@
+**After Years in Prison, a Dancehall Star Returns to the Stage**\
+`Vybz Kartel served more than a decade of a murder sentence before his conviction was overturned. Despite imprisonment and a radio ban, his influence has grown.`\
+https://nytimes.com/2024/12/30/arts/music/vybz-kartel-concert-freedom-street.html
+
 **The manner of Paulo Fonseca’s Milan exit may have been shabby - but change was needed**\
 `Fonseca struggled over six months as Milan coach to win over a fanbase whose expectations are not being met - on or off the pitch `\
 https://nytimes.com/athletic/6026677/2024/12/30/inside-milan-fonseca-sacked-conceicao/

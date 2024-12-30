@@ -1,3 +1,7 @@
+**After Years in Prison, a Dancehall Star Returns to the Stage**\
+`Vybz Kartel served more than a decade of a murder sentence before his conviction was overturned. Despite imprisonment and a radio ban, his influence has grown.`\
+https://nytimes.com/2024/12/30/arts/music/vybz-kartel-concert-freedom-street.html
+
 **Conceicao appointed head coach of Milan**\
 `Sergio Conceicao has been appointed as the new head coach of AC Milan.`\
 https://nytimes.com/athletic/5995159/2024/12/30/milan-manager-next-sergio-conceicao-confirmed/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/business/plane-crash-korea-wall-investigation.htm
 **The best of 2024 from The Athletic's North American soccer staff**\
 `Here are our best stories from 2024 in North American soccer`\
 https://nytimes.com/athletic/6021770/2024/12/30/2024-us-soccer-best-stories/
-
-**The Athletic FC: Can Forest qualify for Champions League? Aaronson's classy goal, Fonseca sacked**\
-`Today in TAFC: Could Forest be playing in Europe next season? Salah's incredible stats and Aaronson helps take Leeds top of the Championship`\
-https://nytimes.com/athletic/6026702/2024/12/30/nottingham-forest-champions-league-aaronson-leeds/
 
