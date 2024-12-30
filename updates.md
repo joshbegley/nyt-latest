@@ -1,3 +1,15 @@
+**Another Raiders win sets up an important regular-season finale for coach Antonio Pierce**\
+`A second straight win has taken the Raiders out of the running for a top draft pick. But could this late push save Pierce's job?`\
+https://nytimes.com/athletic/6025585/2024/12/30/raiders-win-antonio-pierce-job-security-saints/
+
+**Broncos defensive front has been NFL's best this season — and must deliver once more**\
+`Dondrea Tillman on Saturday became the sixth Broncos player to record five sacks this season. Only the 1986 Chicago Bears had more.`\
+https://nytimes.com/athletic/6025615/2024/12/30/broncos-defensive-front-playoff-hopes/
+
+**Lowetide: How will the Oilers' plethora of skill wingers shake out this season?**\
+`Making sense of the Oilers winger situation at the moment comes with some hard truths.`\
+https://nytimes.com/athletic/6025026/2024/12/30/edmonton-oilers-stats-wingers-skill/
+
 **NBA Rewind: King James turns 40, while the Kings remain dysfunctional**\
 `On LeBron James' milestone birthday, Zach Harper wonders what's next for the Timberwolves and Kings. `\
 https://nytimes.com/athletic/6020328/2024/12/30/nba-rewind-lebron-james-lakers-mike-brown-kings-anthony-edwards-timberwolves-nba/
