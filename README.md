@@ -1,15 +1,3 @@
-**Spurs year-in-review: Wemby's ascent, Popovich's absence, reasons to believe in 2025**\
-`The stroke suffered on Nov. 2 by Gregg Popovich dominates a Spurs year that has been defined both by great promise and remaining challenge.`\
-https://nytimes.com/athletic/6027029/2024/12/30/spurs-review-victor-wembanyama-gregg-popovich/
-
-**Yankees not ruling out DJ LeMahieu for everyday role in 2025 — but should they?**\
-`The Yankees' current infield vacancy has given LeMahieu the opportunity to prove his way back onto the team's starting lineup once again.`\
-https://nytimes.com/athletic/6025274/2024/12/30/yankees-dj-lemahieu-2025-role/
-
-**$100 Million for One Square Mile: Deal to Protect Land in Grand Tetons**\
-`After years of negotiations and threats of development, Wyoming will sell a prized piece of land so that it can be preserved inside Grand Teton National Park.`\
-https://nytimes.com/2024/12/30/us/grand-teton-park-wyoming-sale.html
-
 **Read Walter Mondale’s Eulogy of Jimmy Carter**\
 `Before former Vice President Walter Mondale died in 2021, he left behind the eulogy he had planned to deliver. His son Ted Mondale will read it at Jimmy Carter’s memorial service at Washington National Cathedral on Jan. 9.`\
 https://nytimes.com/interactive/2024/12/30/us/politics/walter-mondale-eulogy.html
@@ -37,4 +25,16 @@ https://nytimes.com/2024/12/30/us/politics/ukraine-aid-weapons.html
 **10 Tips to Help You Eat Healthier in 2025**\
 `Throughout the past year, we reviewed seed oils, ultraprocessed foods, Bruce Springsteen’s diet and more. Here’s what we learned.`\
 https://nytimes.com/2024/12/30/well/eat/nutrition-food-tips-2025.html
+
+**The Bounce: About that weird Kings decision. Plus, LeBron turns 40 and your NBA Stock Report!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6026731/2024/12/30/mike-brown-kings-lebron-james-lakers-nets-warriors-grizzlies-nba/
+
+**Dominique Pelicot, Convicted in Mass Rape Trial in France, Will Not Appeal**\
+`Seventeen of the other 50 men convicted in the case — most for participating in rapes of Gisèle Pelicot, then Mr. Pelicot’s wife — have filed appeals, according to a lawyer.`\
+https://nytimes.com/2024/12/30/world/europe/dominique-pelicot-appeal-france-rape-trial.html
+
+**After Years in Prison, a Dancehall Star Returns to the Stage**\
+`Vybz Kartel served more than a decade of a murder sentence before his conviction was overturned. Despite imprisonment and a radio ban, his influence has grown.`\
+https://nytimes.com/2024/12/30/arts/music/vybz-kartel-concert-freedom-street.html
 
