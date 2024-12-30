@@ -1,3 +1,15 @@
+**Weekend NHL rankings: Change finally comes in Detroit, plus I was wrong but it's fine**\
+`Steve Yzerman can admit when he got something wrong, and on occasion, so can sports writers.`\
+https://nytimes.com/athletic/6026100/2024/12/30/nhl-weekend-rankings-red-wings-sabres/
+
+**Zion to Brooklyn? Brandon Ingram to ... anywhere? Evaluating your Pelicans trades**\
+`Is there a bigger trade for the Pelicans to make, or will they be stuck working on the margins with the new CBA? `\
+https://nytimes.com/athletic/6024480/2024/12/30/new-orleans-trade-rumors-zion-williamson/
+
+**The MLB starting pitcher rankings I got right (and wrong) in 2024: Sarris**\
+`Some lessons were reinforced, and others were learned, from 2024's starting pitcher rankings.`\
+https://nytimes.com/athletic/5966427/2024/12/30/starting-pitcher-rankings-2024-hits-misses/
+
 **How Magnus Carlsen's jeans sparked a chess controversy**\
 `The world&#8217;s No 1 chess player Magnus Carlsen will return to the World Rapid and Blitz Chess Championships in New York after initially withdrawing as he refused to change out of a pair of jeans.`\
 https://nytimes.com/athletic/6026738/2024/12/30/magnus-carlsen-jeans-chess-explained/
