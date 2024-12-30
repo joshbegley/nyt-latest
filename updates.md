@@ -1,3 +1,7 @@
+**West Ham end 2024 with their calling card - conceding a heap of goals**\
+`West Ham's year ends on a bum note after a demoralising defeat and the mood surrounding Julen Lopetegui as sour as ever`\
+https://nytimes.com/athletic/6024917/2024/12/30/west-ham-2024-goals-conceded-lopetegui/
+
 **Five Laws Going Into Effect for New York in 2025**\
 `Changes are coming to paid family leave, insulin costs, restaurant reservations, gym membership cancellations and protections for fashion industry workers.`\
 https://nytimes.com/2024/12/30/nyregion/ny-laws-2025-insulin-gym-membership.html
