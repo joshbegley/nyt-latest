@@ -1,3 +1,15 @@
+**How Elon Musk Has Planted Himself Almost Literally at Trump’s Doorstep**\
+`For much of the period since Election Day, the billionaire has been staying at a $2,000-a-night cottage at Mar-a-Lago, giving him easy access to the president-elect.`\
+https://nytimes.com/2024/12/30/us/politics/elon-musk-trump-mar-a-lago.html
+
+**Dolphins' Tua Tagovailoa stands 'firmly in the unknown' to play vs. Jets**\
+`Backup QB Tyler Huntley seemingly put the Dolphins' offense on his back during Sunday's 20-3 win in Cleveland.`\
+https://nytimes.com/athletic/6027775/2024/12/30/dolphins-tua-tagovailoa-hip-injury/
+
+**Barcelona lose second appeal for Olmo registration**\
+`Barcelona have lost a second appeal for the precautionary registration of Dani Olmo for the rest of the season, meaning he remains unable to play for the club from January 1 onwards.`\
+https://nytimes.com/athletic/6026923/2024/12/30/dani-olmo-appeal-rejected-registration/
+
 **Jimmy Carter, the President and the Man**\
 `Readers praise the former president’s accomplishments and character and recall encounters with him.`\
 https://nytimes.com/2024/12/30/opinion/letters/jimmy-carter-readers-react.html
