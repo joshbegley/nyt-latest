@@ -7,7 +7,7 @@ https://nytimes.com/2024/12/30/arts/television/new-years-eve-specials-tv-this-we
 https://nytimes.com/athletic/6025909/2024/12/30/commanders-falcons-snf-score-result-takeaways/
 
 **'We just sucked': Blackhawks searching for answers again as Winter Classic arrives**\
-`The Blackhawks' improvement will be a long process, but individual breakdowns have started to creep in again under Sorensen.`\
+`The Blackhawks' improvement will be a long process, but individual breakdowns have started to creep in again under Anders Sorensen.`\
 https://nytimes.com/athletic/6026315/2024/12/30/blackhawks-sorensen-breakdowns-jones-stars/
 
 **Pacers punch their way past Celtics, showing teams trending in opposite directions**\
