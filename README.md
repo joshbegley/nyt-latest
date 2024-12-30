@@ -1,3 +1,7 @@
+**Lopsided loss to Eagles another example that Cowboys need help at offensive skill positions**\
+`Finding a No. 2 receiver and another running back should be priorities for the Cowboys in the 2025 NFL Draft. `\
+https://nytimes.com/athletic/6025754/2024/12/29/cowboys-loss-offense-struggles-ceedee-lamb/
+
 **Carter’s Visit to the Blighted Bronx Blazed a Trail**\
 `Mr. Carter made a ‘sobering’ trip to the South Bronx to reinforce his commitment to urban areas. Other leaders would follow.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-south-bronx.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/arts/television/jimmy-carter-malaise-speech-crisi
 **Jimmy Carter Was Right About Materialism but, Alas, Wrong About Us**\
 `“Too many of us now tend to worship self-indulgence and consumption,” he said in his 1979 “Crisis of Confidence” speech. If only we had listened.`\
 https://nytimes.com/2024/12/29/your-money/jimmy-carter-legacy-materialism.html
-
-**World leaders mourn Jimmy Carter while celebrating his legacy.**\
-`By Caroline Houck`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/world-leaders-mourn-jimmy-carters-death-while-celebrating-his-legacy
 
