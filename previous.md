@@ -1,3 +1,11 @@
+**Scoop City: Every key scenario for Week 18**\
+`A brief look at how the current playoff standings and draft order could change after Week 18`\
+https://nytimes.com/athletic/6027808/2024/12/30/nfl-week-18-key-matchups-odds-draft-order-playoffs-scoop-city/
+
+**What to Know About Celebrating New Year’s Eve in Times Square**\
+`New York’s ball-drop celebration is more than a century old. One important fact about this year: You are likely to get wet.`\
+https://nytimes.com/2024/12/30/nyregion/new-years-eve-in-times-square.html
+
 **How Elon Musk Has Planted Himself Almost Literally at Trump’s Doorstep**\
 `For much of the period since Election Day, the billionaire has been staying at a $2,000-a-night cottage at Mar-a-Lago, giving him easy access to the president-elect.`\
 https://nytimes.com/2024/12/30/us/politics/elon-musk-trump-mar-a-lago.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/30/nyregion/trump-carroll-appeal-denied.html
 **Jumping Out of a Plane, With Skydiving Seniors**\
 `To report on the Wuest Ways group, which has been hosting skydives since 1987, a reporter had to strap on a parachute and take the 12,500-foot leap.`\
 https://nytimes.com/2024/12/30/insider/skydiving-seniors-reporting.html
-
-**The Most Inspiring Houses We Visited in 2024**\
-`From a tiny French fisherman’s cabin to a hexagonal home in Hawaii.`\
-https://nytimes.com/2024/12/30/t-magazine/favorite-house-stories.html
-
-**Brighton considering recalling Rushworth from Hull City loan**\
-`Brighton &amp; Hove Albion could recall Carl Rushworth from his loan spell with Hull City for a temporary move to another Championship club.`\
-https://nytimes.com/athletic/6027656/2024/12/30/brighton-carl-rushworth-loan-hull/
 
