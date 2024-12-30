@@ -1,3 +1,7 @@
+**Josh Allen's ultimate MVP endorsement, Bills defense's statement performance vs. Jets, more**\
+`Plus, Amari Cooper's usage and Matt Milano's role in his return.`\
+https://nytimes.com/athletic/6026014/2024/12/29/bills-win-josh-allen-mvp-performance-jets/
+
 **Carter once supported segregationist policies, but he eventually won the enduring support of Black voters.**\
 `By Maya King and Richard Fausset`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-once-supported-segregationist-policies-but-he-eventually-won-the-enduring-support-of-black-voters
