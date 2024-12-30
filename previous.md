@@ -1,3 +1,7 @@
+**Mark Gronowski, lauded South Dakota State QB, enters transfer portal**\
+`Gronowski guided the Jackrabbits to national titles in 2022 and 2023 and a semifinal appearance this fall.`\
+https://nytimes.com/athletic/6026359/2024/12/29/mark-gronowski-transfer-portal-south-dakota-state/
+
 **The Iran hostage crisis helped define the Carter presidency.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/the-iran-hostage-crisis-helped-define-the-carter-presidency
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025912/2024/12/29/penguins-sidney-crosby-assist-re
 **Red Wings get first win under new coach Todd McLellan: 5 thoughts**\
 `After the Red Wings' new coach gave a clear message at his first practice, his team responded by delivering his first win in Detroit.`\
 https://nytimes.com/athletic/6026045/2024/12/29/red-wings-mclellan-first-win-capitals/
-
-**Colts choke again as their playoffs hopes die in 'embarrassing' loss to Giants**\
-`No member of the Colts franchise should feel safe after their humiliating loss. Not the players, not the coach and not the GM. `\
-https://nytimes.com/athletic/6026049/2024/12/29/colts-loss-shane-steichen-giants/
 

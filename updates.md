@@ -1,3 +1,7 @@
+**Mark Gronowski, lauded South Dakota State QB, enters transfer portal**\
+`Gronowski guided the Jackrabbits to national titles in 2022 and 2023 and a semifinal appearance this fall.`\
+https://nytimes.com/athletic/6026359/2024/12/29/mark-gronowski-transfer-portal-south-dakota-state/
+
 **The Iran hostage crisis helped define the Carter presidency.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/the-iran-hostage-crisis-helped-define-the-carter-presidency
