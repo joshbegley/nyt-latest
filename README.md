@@ -1,3 +1,7 @@
+**In-stadium VAR announcements to be trialled in Carabao Cup semi-finals**\
+`In-stadium video assistant referee (VAR) announcements will be trialled in English football for the first time during January&#8217;s Carabao Cup semi-finals.`\
+https://nytimes.com/athletic/6027144/2024/12/30/var-in-stadium-trial/
+
 **CFB winter transfer window wrap-up: Hot teams, best players available**\
 `Which teams did the best in December? Who's allowed to hit the portal in January? And who are the top transfers still available?`\
 https://nytimes.com/athletic/6026978/2024/12/30/college-football-transfer-portal-best-available-whats-next/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5995159/2024/12/30/milan-manager-next-sergio-concei
 **Ohio State got the Oregon second chance it wanted. Are the Buckeyes ready for revenge?**\
 `Ohio State won't get another shot at Michigan this year, but the Buckeyes are thrilled the Playoff put Oregon in their championship path.`\
 https://nytimes.com/athletic/6026905/2024/12/30/ohio-state-oregon-rose-bowl-rematch/
-
-**What Nebraska's landmark Pinstripe Bowl win means for program momentum**\
-`While special teams hangs over their heads, the Huskers feel good about their young players, including quarterback Dylan Raiola. `\
-https://nytimes.com/athletic/6026956/2024/12/30/nebraska-pinstripe-bowl-college-football-matt-rhule/
 
