@@ -1,3 +1,7 @@
+**10 Tips to Help You Eat Healthier in 2025**\
+`Throughout the past year, we reviewed seed oils, ultraprocessed foods, Bruce Springsteen’s diet and more. Here’s what we learned.`\
+https://nytimes.com/2024/12/30/well/eat/nutrition-food-tips-2025.html
+
 **The Bounce: About that weird Kings decision. Plus, LeBron turns 40 and your NBA Stock Report!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6026731/2024/12/30/mike-brown-kings-lebron-james-lakers-nets-warriors-grizzlies-nba/

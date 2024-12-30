@@ -1,3 +1,7 @@
+**10 Tips to Help You Eat Healthier in 2025**\
+`Throughout the past year, we reviewed seed oils, ultraprocessed foods, Bruce Springsteen’s diet and more. Here’s what we learned.`\
+https://nytimes.com/2024/12/30/well/eat/nutrition-food-tips-2025.html
+
 **The Bounce: About that weird Kings decision. Plus, LeBron turns 40 and your NBA Stock Report!**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6026731/2024/12/30/mike-brown-kings-lebron-james-lakers-nets-warriors-grizzlies-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-cause.html
 **The manner of Paulo Fonseca’s Milan exit may have been shabby - but change was needed**\
 `Fonseca struggled over six months as Milan coach to win over a fanbase whose expectations are not being met - on or off the pitch `\
 https://nytimes.com/athletic/6026677/2024/12/30/inside-milan-fonseca-sacked-conceicao/
-
-**Carter Funeral Service to Be Held at Washington National Cathedral on Jan. 9**\
-`The state funeral will cap more than a week of remembrances honoring Jimmy Carter, the 39th president of the United States, who died at 100 on Sunday.`\
-https://nytimes.com/2024/12/30/us/politics/jimmy-carter-funeral.html
 
