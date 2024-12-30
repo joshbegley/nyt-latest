@@ -1,3 +1,23 @@
+**Dark Doldrums Overshadow Europe’s Energy Markets**\
+`Periods of low sun and wind, a weather pattern known as a Dunkelflaute, can increase electricity prices and stoke political tensions.`\
+https://nytimes.com/2024/12/30/business/energy-environment/europe-energy-solar-wind.html
+
+**The 2024 Good Tech Awards**\
+`In a year of continued A.I. progress, “founder mode” drama and a Trump election win, a few tech projects stood out for their clear benefits to humanity.`\
+https://nytimes.com/2024/12/30/technology/good-tech-awards.html
+
+**How Jiří Kulich's breakthrough has stood out during Sabres' 3-game winning streak**\
+`Kulich’s emergence has been a welcome development for a Sabres team that’s lacked secondary scoring.`\
+https://nytimes.com/athletic/6027348/2024/12/30/sabres-prospect-jiri-kulich-stats/
+
+**The most likely upsets for the College Football Playoff's second round**\
+`The seedings for the College Football Playoff and the betting lines stand almost entirely at, ahem, odds. Read for the most likely upsets.`\
+https://nytimes.com/athletic/6027192/2024/12/30/college-football-playoff-upset-predictions-quarterfinals/
+
+**Ex-Chelsea winger Willian becomes free agent after leaving Olympiacos**\
+`Willian has left Olympiacos only six months into a one-year deal.`\
+https://nytimes.com/athletic/6027460/2024/12/30/willian-free-agent-olympiacos/
+
 **‘Aida’ Returns to the Met Opera Through Archaeologists’ Eyes**\
 `Michael Mayer is directing the Met’s first new production of Verdi’s classic in nearly four decades, aiming for something fresh yet enduring.`\
 https://nytimes.com/2024/12/30/arts/music/aida-met-opera.html
