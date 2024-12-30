@@ -1,3 +1,7 @@
+**Southgate knighted in King's New Year's Honours list**\
+`Former England manager Gareth Southgate has been knighted in King Charles III&#8217;s New Year&#8217;s Honours list.`\
+https://nytimes.com/athletic/6028258/2024/12/30/gareth-southgate-knighthood-england/
+
 **On 40th birthday, LeBron says he could play at high level another 5-7 years**\
 `James made it clear that once he decides to retire, he won't unretire like Michael Jordan or Tom Brady did in their late 30s and early 40s.`\
 https://nytimes.com/athletic/6028277/2024/12/30/lebron-james-40th-birthday-lakers/
