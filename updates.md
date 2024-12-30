@@ -1,3 +1,7 @@
+**From Bird Strike to Crash: the Mystery of the Korean Plane’s Four Fateful Minutes**\
+`The time between when the pilot reported a bird strike and when it crashed could be key to unraveling one of the world’s worst aviation disasters in years.`\
+https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-cause.html
+
 **Ohio State got the Oregon second chance it wanted. Are the Buckeyes ready for revenge?**\
 `Ohio State won't get another shot at Michigan this year, but the Buckeyes are thrilled the Playoff put Oregon in their championship path.`\
 https://nytimes.com/athletic/6026905/2024/12/30/ohio-state-oregon-rose-bowl-rematch/
