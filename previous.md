@@ -1,3 +1,23 @@
+**How Bears receiver Rome Odunze has shown his potential in a tough rookie season**\
+`Odunze has stayed positive in a challenging year, leaning on his note-taking and building chemistry with fellow rookie Caleb Williams.`\
+https://nytimes.com/athletic/6025244/2024/12/30/bears-rome-odunze-rookie-season/
+
+**From unknown to brink of CFP history: Meet Boise State coach Spencer Danielson**\
+`He wasn't supposed to get the job. Now the Broncos can reach unprecedented heights with another round of Fiesta Bowl magic vs. Penn State.`\
+https://nytimes.com/athletic/6024830/2024/12/30/boise-state-coach-cfp-fiesta-bowl/
+
+**How Kenny Dillingham created the soundtrack for Arizona State's turnaround season**\
+`Dillingham's passion and positivity are pillars of the Arizona State program. It's helped the Sun Devils get to the CFP quarterfinals.`\
+https://nytimes.com/athletic/6023906/2024/12/30/arizona-state-football-coach-cfp-peach-bowl/
+
+**Would the Bears passing on Pete Carroll equate to passing on Jim Harbaugh last year?**\
+`Do the Bears regret not trying to hire Harbaugh last year? Carroll, while much older, is one of the few candidates in the same mold.`\
+https://nytimes.com/athletic/6026647/2024/12/30/pete-carroll-bears-jim-harbaugh/
+
+**Joe Burrow has reached a rare level. So what's holding the Bengals back?**\
+`The defense has obviously let the Bengals down, but that's far from their only problem.`\
+https://nytimes.com/athletic/6026641/2024/12/30/joe-burrow-bengals-zac-taylor-defense/
+
 **How does Drake Maye compare to Mac Jones? They're closer than you might think**\
 `Through 11 career starts with the Patriots, Maye's and Jones' numbers look remarkably similar, except for one key area.`\
 https://nytimes.com/athletic/6026650/2024/12/30/drake-maye-patriots-mac-jones/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6019460/2024/12/30/minnesota-twins-notes-mickey-gas
 **Chicago Cubs roster analysis: Outfield depth shines, but more moves may be needed**\
 `The Cubs have made major moves this offseason, but there is still some work to be done ahead of Opening Day.`\
 https://nytimes.com/athletic/6025205/2024/12/30/chicago-cubs-roster-end-of-year-update/
-
-**Re-stacking the NFC: Lions, Eagles or Vikings? Who else is dangerous? Sando’s Pick Six**\
-`With the playoff field nearly set ahead of a colossal Vikings-Lions finale, three execs see the top of the NFC three different ways.`\
-https://nytimes.com/athletic/6023595/2024/12/30/nfc-playoffs-lions-vikings-eagles-packers-commanders/
-
-**The Connections Companion No. 569**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Dec. 31, 2024.`\
-https://nytimes.com/2024/12/30/crosswords/connections-companion-569.html
-
-**Wordle Review No. 1,291**\
-`Scroll down for hints and conversation about the puzzle for Dec. 31, 2024.`\
-https://nytimes.com/2024/12/30/crosswords/wordle-review-1291.html
-
-**Jimmy Carter: Poet, Novelist, Memoirist, Philosopher**\
-`He wasn’t just prolific, publishing 32 books. His output also showed an unusual range that included memoirs and forays into historical fiction and even poetry.`\
-https://nytimes.com/2024/12/30/books/jimmy-carter-books.html
-
-**The Life and Legacy of Jimmy Carter**\
-`At 100, he was the longest-lived president in American history, admired more for what he did after leaving office than for his single term in the White House.`\
-https://nytimes.com/2024/12/30/podcasts/the-daily/jimmy-carter-death.html
 
