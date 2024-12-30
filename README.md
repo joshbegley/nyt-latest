@@ -1,3 +1,11 @@
+**Carter Funeral Service to Be Held at Washington National Cathedral on Jan. 9**\
+`The state funeral will cap more than a week of remembrances honoring Jimmy Carter, the 39th president of the United States, who died at 100 on Sunday.`\
+https://nytimes.com/2024/12/30/us/politics/jimmy-carter-funeral.html
+
+**Role of Concrete Wall Near Runway Questioned in South Korea Crash**\
+`Aviation safety analysts said they expect officials investigating the crash, which killed 179 people, to look into the location and composition of a structure housing an antenna.`\
+https://nytimes.com/2024/12/30/business/plane-crash-korea-wall-investigation.html
+
 **The best of 2024 from The Athletic's North American soccer staff**\
 `Here are our best stories from 2024 in North American soccer`\
 https://nytimes.com/athletic/6021770/2024/12/30/2024-us-soccer-best-stories/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6026540/2024/12/30/falcons-commanders-second-half-c
 **Submit your questions for Until Saturday’s podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/6026908/2024/12/30/college-football-questions-mailbag-until-saturday-41/
-
-**Jets deep dive: Mark Scheifele and Kyle Connor's chemistry, an update on defence**\
-`Breaking down what Jets coach Scott Arniel is getting right, a confusing depth chart on defence, a top line in flight and more.`\
-https://nytimes.com/athletic/6024001/2024/12/30/winnipeg-jets-scheifele-connor-nhl-defense/
-
-**Linda Lavin, Broadway Actress and Star of TV Sitcom ‘Alice,’ Dies at 87**\
-`She won two Golden Globe Awards and an Emmy nomination for her role on the show. She also earned a Tony Award for best actress in the play “Broadway Bound.”`\
-https://nytimes.com/2024/12/30/arts/linda-lavin-dead.html
 
