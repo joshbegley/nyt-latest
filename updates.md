@@ -1,3 +1,7 @@
+**13 Cozy Winter Dinners to Warm You Up**\
+`When the weather outside is frightful, cook something delightful.`\
+https://nytimes.com/2024/12/30/dining/winter-recipes-warming.html
+
 **Carter Had Complicated History With Israel, Despite Camp David Accords**\
 `After his presidency, Jimmy Carter became critical of Israel’s treatment of Palestinians and likened the situation to apartheid.`\
 https://nytimes.com/2024/12/29/us/politics/carter-israel-camp-david.html

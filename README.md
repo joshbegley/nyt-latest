@@ -1,3 +1,19 @@
+**Monday Briefing**\
+`Jimmy Carter dies at 100.`\
+https://nytimes.com/2024/12/30/briefing/jimmy-carter-plane-crash.html
+
+**Week 17 NFL playoff picture: Vikings win sets up clash with Lions for NFC No. 1 seed**\
+`The final AFC playoff spot is up for grabs with the Broncos facing a win-and-in Week 18. If they lose, the Bengals and Dolphins are lurking.`\
+https://nytimes.com/athletic/6019766/2024/12/30/week-17-nfl-playoff-picture-vikings-lions/
+
+**WSL's 2024: Chelsea reign supreme, increased competition and a sock farce**\
+`The last 12 months has seen another title for Chelsea, Emma Hayes exit for the USWNT and Arsenal in need of a rush to a club shop...`\
+https://nytimes.com/athletic/5987417/2024/12/30/wsl-review-2024-chelsea-sock-farce/
+
+**The mood among Man City fans is... gallows humour: 'It could be worse, we could be Man United'**\
+`'City are back' the travelling supporters chanted after the final whistle. Maybe not quite yet, but this one felt good`\
+https://nytimes.com/athletic/6024550/2024/12/30/man-city-fans-leicester/
+
 **13 Cozy Winter Dinners to Warm You Up**\
 `When the weather outside is frightful, cook something delightful.`\
 https://nytimes.com/2024/12/30/dining/winter-recipes-warming.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6026258/2024/12/29/packers-loss-matt-lafleur-viking
 **Amen Thompson-Tyler Herro fight leads to slew of ejections at end of Heat's win vs. Rockets**\
 `Rockets coaches Ime Udoka and Ben Sullivan were among those ejected after the late-game fracas.`\
 https://nytimes.com/athletic/6026188/2024/12/29/rockets-heat-fight-ejections-amen-thompson-tyler-herro/
-
-**In 2024, the Toronto Raptors finally took their medicine. It tasted awful**\
-`There is hope for the year to come, mostly because 2024 went so poorly. `\
-https://nytimes.com/athletic/6025851/2024/12/29/koreen-2024-toronto-raptors/
-
-**Jimmy Carter went to North Korea for nuclear talks in 1994. It didn’t go as planned.**\
-`In a 1994 trip that triggered Bill Clinton’s ire, Carter met with the North’s leader as a “private citizen.” He emerged with what he said was a “miracle.” Others had a different view.`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/jimmy-carter-went-to-north-korea-for-nuclear-talks-in-1994-it-didnt-go-as-planned
-
-**Canada disappoints again, Czechia emerges as a contender on Day 4 at World Juniors**\
-`Canada required an empty-netter for a second straight year to beat Germany.`\
-https://nytimes.com/athletic/6006893/2024/12/29/canada-world-juniors-day-4-czechia/
-
-**‘He Always Knew My Name’: Carter Is Remembered at a Bar That Was Dear to Him**\
-`The former president had kicked off his campaign for Georgia governor at Manuel’s Tavern in Atlanta. On Sunday, workers and patrons at the bar raised a glass in his honor.`\
-https://nytimes.com/2024/12/29/us/politics/carter-atlanta-dive-bar.html
 
