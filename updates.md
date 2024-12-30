@@ -1,3 +1,11 @@
+**Rosalynn Carter was the most politically active first lady since Eleanor Roosevelt.**\
+`By Katharine Q. Seelye`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/rosalynn-carter-was-the-most-politically-active-first-lady-since-eleanor-roosevelt
+
+**Why Jeff Skinner and the Oilers should stay the course and stick it out**\
+`Skinner, a star offseason signing a few months ago, became a healthy scratch just 36 games into the season with the Oilers.`\
+https://nytimes.com/athletic/6025926/2024/12/29/oilers-jeff-skinner-healthy-scratch-decline/
+
 **Why Jeff Skinner and the Oilers should stay the course and stick it out**\
 `Jeff Skinner, a star offseason signing a few months ago, became a healthy scratch just 36 games into the season with the Oilers.`\
 https://nytimes.com/athletic/6025926/2024/12/29/oilers-jeff-skinner-healthy-scratch-decline/

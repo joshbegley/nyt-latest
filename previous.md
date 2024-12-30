@@ -1,5 +1,9 @@
+**Rosalynn Carter was the most politically active first lady since Eleanor Roosevelt.**\
+`By Katharine Q. Seelye`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/rosalynn-carter-was-the-most-politically-active-first-lady-since-eleanor-roosevelt
+
 **Why Jeff Skinner and the Oilers should stay the course and stick it out**\
-`Jeff Skinner, a star offseason signing a few months ago, became a healthy scratch just 36 games into the season with the Oilers.`\
+`Skinner, a star offseason signing a few months ago, became a healthy scratch just 36 games into the season with the Oilers.`\
 https://nytimes.com/athletic/6025926/2024/12/29/oilers-jeff-skinner-healthy-scratch-decline/
 
 **Raiders' Ameer Abdullah has found 'fountain of youth,' powers Las Vegas to another win**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025754/2024/12/29/cowboys-loss-offense-struggles-c
 **Carter’s Visit to the Blighted Bronx Blazed a Trail**\
 `Mr. Carter made a ‘sobering’ trip to the South Bronx to reinforce his commitment to urban areas. Other leaders would follow.`\
 https://nytimes.com/2024/12/29/us/politics/jimmy-carter-south-bronx.html
-
-**Myles Garrett makes NFL history with 14-plus sacks in 4 consecutive seasons**\
-`After Sunday's game, his 102.5 career sacks are tied with Jim Jeffcoat for 38th on the NFL all-time list.`\
-https://nytimes.com/athletic/6025834/2024/12/29/browns-myles-garrett-sack-season-mark/
 
