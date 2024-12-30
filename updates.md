@@ -1,3 +1,7 @@
+**Jimmy Carter and Motown Founder Berry Gordy’s Surprising Connection**\
+`According to a detailed family history compiled by one of the former president’s sons, the two men shared a common ancestor in 19th-century Georgia.`\
+https://nytimes.com/2024/12/30/arts/music/jimmy-carter-berry-gordy.html
+
 **NFL Week 18 odds, schedule: Lions favored against Vikings for crucial tilt**\
 `Detroit is favored against Minnesota to decide the No. 1 seed in the NFC. There are a number of other playoff-deciding games in Week 18.`\
 https://nytimes.com/athletic/6027330/2024/12/30/nfl-week-18-odds-schedule-lions-vikings/
