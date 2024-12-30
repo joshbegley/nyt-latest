@@ -1,3 +1,11 @@
+**Amen Thompson-Tyler Herro fight leads to slew of ejections at end of Heat's win vs. Rockets**\
+`Rockets coaches Ime Udoka and Ben Sullivan were among those ejected after the late-game fracas.`\
+https://nytimes.com/athletic/6026188/2024/12/29/rockets-heat-fight-ejections-amen-thompson-tyler-herro/
+
+**In 2024, the Toronto Raptors finally took their medicine. It tasted awful**\
+`There is hope for the year to come, mostly because 2024 went so poorly. `\
+https://nytimes.com/athletic/6025851/2024/12/29/koreen-2024-toronto-raptors/
+
 **Jimmy Carter went to North Korea for nuclear talks in 1994. It didn’t go as planned.**\
 `In a 1994 trip that triggered Bill Clinton’s ire, Carter met with the North’s leader as a “private citizen.” He emerged with what he said was a “miracle.” Others had a different view.`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/jimmy-carter-went-to-north-korea-for-nuclear-talks-in-1994-it-didnt-go-as-planned
