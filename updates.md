@@ -1,3 +1,7 @@
+**Syria’s Rebel Leader Offers Hint of Timetable for Potential Elections**\
+`Ahmed al-Shara, who led the rebel offensive that toppled Bashar al-Assad, offered little clarity on what the electoral process might look like.`\
+https://nytimes.com/2024/12/30/world/middleeast/syria-rebel-leader-elections.html
+
 **The Final Moments of 2024 Are a Chance to Make a Difference**\
 `Nick Kristof’s last-minute suggestions for meaningful charitable giving.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/kristof-giving-guide-community

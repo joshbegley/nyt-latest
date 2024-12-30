@@ -1,3 +1,7 @@
+**Syria’s Rebel Leader Offers Hint of Timetable for Potential Elections**\
+`Ahmed al-Shara, who led the rebel offensive that toppled Bashar al-Assad, offered little clarity on what the electoral process might look like.`\
+https://nytimes.com/2024/12/30/world/middleeast/syria-rebel-leader-elections.html
+
 **The Final Moments of 2024 Are a Chance to Make a Difference**\
 `Nick Kristof’s last-minute suggestions for meaningful charitable giving.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/kristof-giving-guide-community
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027244/2024/12/30/falcons-raheem-morris-timeout-co
 **You Saw the Movie in 2024. Do You Know the Book That Inspired It?**\
 `As the year winds down, the last of the big buzzy films have hit the screen — and these five were based largely on memoirs and biographies. Try this quiz to see how many you know.`\
 https://nytimes.com/interactive/2024/12/30/books/review/2024-movie-books.html
-
-**What if Reagan Had Been More Like Carter?**\
-`Carter’s vision and persistence on solar energy deserve to be brightly illuminated.`\
-https://nytimes.com/2024/12/30/opinion/jimmy-carter-ronald-reagan.html
 
