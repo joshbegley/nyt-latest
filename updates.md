@@ -1,3 +1,11 @@
+**With loss to Dolphins, Browns may be in position to take one of 2025 draft's top QBs**\
+`Cleveland fell to 3-13 and could wind up with a top-3 pick in April's draft depending on the outcome in the season finale. `\
+https://nytimes.com/athletic/6026209/2024/12/30/browns-quarterback-draft-loss-dolphins/
+
+**Ravens feel their defense has come full circle after early-season struggles**\
+`The improvement by the defense is as big of a reason as any that Baltimore will head into this weekend with a chance to win the AFC North. `\
+https://nytimes.com/athletic/6022538/2024/12/30/ravens-defense-improvement-afc-north/
+
 **Penn State already has a lot to remember in 2024. Can it make this season unforgettable?**\
 `From a comeback at USC to heroics at Minnesota, Penn State's path to the Playoff hasn't always been easy. But it has been memorable.`\
 https://nytimes.com/athletic/6025414/2024/12/30/penn-state-2024-season-fiesta-bowl-playoff/

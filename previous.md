@@ -1,3 +1,11 @@
+**With loss to Dolphins, Browns may be in position to take one of 2025 draft's top QBs**\
+`Cleveland fell to 3-13 and could wind up with a top-3 pick in April's draft depending on the outcome in the season finale. `\
+https://nytimes.com/athletic/6026209/2024/12/30/browns-quarterback-draft-loss-dolphins/
+
+**Ravens feel their defense has come full circle after early-season struggles**\
+`The improvement by the defense is as big of a reason as any that Baltimore will head into this weekend with a chance to win the AFC North. `\
+https://nytimes.com/athletic/6022538/2024/12/30/ravens-defense-improvement-afc-north/
+
 **Penn State already has a lot to remember in 2024. Can it make this season unforgettable?**\
 `From a comeback at USC to heroics at Minnesota, Penn State's path to the Playoff hasn't always been easy. But it has been memorable.`\
 https://nytimes.com/athletic/6025414/2024/12/30/penn-state-2024-season-fiesta-bowl-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/30/arts/television/wi-ha-jun-squid-game-season-2.htm
 **The 2024 High School Yearbook of American Politics**\
 `​My year-end awards in politics for hottest king maker, biggest flash in the pan, top mean girl, most disappointing draft pick and more.`\
 https://nytimes.com/2024/12/30/opinion/donald-trump-elon-musk-taylor-swift-politics.html
-
-**$4 Million Homes in California**\
-`This week’s listings include a compound in Healdsburg, a 1940s house in Glendale and an ocean-view home in Ventura.`\
-https://nytimes.com/2024/12/30/realestate/four-million-dollar-homes-in-california.html
-
-**Dungeons & Dragons Rolls the Dice With New Rules About Identity**\
-`The role-playing game replaced “race” with “species” and divorced several character traits from biological identity. Some longtime players are upset (as is Elon Musk).`\
-https://nytimes.com/2024/12/30/arts/dungeons-and-dragons-rule-changes-race-species.html
 
