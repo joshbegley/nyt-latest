@@ -1,3 +1,7 @@
+**The Final Moments of 2024 Are a Chance to Make a Difference**\
+`Nick Kristof’s last-minute suggestions for meaningful charitable giving.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/kristof-giving-guide-community
+
 **Notre Dame mailbag: Are Irish more 'bought-in' than before? What needs to happen to beat Georgia?**\
 `When did preparation for Georgia begin? Answering your questions ahead of Notre Dame's Sugar Bowl matchup against Georgia.`\
 https://nytimes.com/athletic/6027015/2024/12/30/how-will-notre-dame-replace-rylie-mills-how-can-irish-beat-georgia-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/30/books/review/2024-movie-books.html
 **What if Reagan Had Been More Like Carter?**\
 `Carter’s vision and persistence on solar energy deserve to be brightly illuminated.`\
 https://nytimes.com/2024/12/30/opinion/jimmy-carter-ronald-reagan.html
-
-**An Easy (and Less Expensive) Way to Ring in the New Year With Caviar**\
-`Eric Kim’s tobiko pasta combines the briny flavor of flying-fish roe with a rich, creamy sauce.`\
-https://nytimes.com/2024/12/30/dining/an-easy-and-less-expensive-way-to-ring-in-the-new-year-with-caviar.html
 
