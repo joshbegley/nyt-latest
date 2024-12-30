@@ -1,3 +1,7 @@
+**Jimmy Carter, on Death**\
+`In a culture where death as a subject is often taboo, Mr. Carter left behind a compilation of observations about the end. Here is a selection of those writings.`\
+https://nytimes.com/interactive/2024/12/30/us/carter-on-death.html
+
 **Weekend NHL rankings: Change finally comes in Detroit, plus I was wrong but it's fine**\
 `Steve Yzerman can admit when he got something wrong, and on occasion, so can sports writers.`\
 https://nytimes.com/athletic/6026100/2024/12/30/nhl-weekend-rankings-red-wings-sabres/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026206/2024/12/30/dangelo-russell-nets-lakers-dori
 **How Bears receiver Rome Odunze has shown his potential in a tough rookie season**\
 `Odunze has stayed positive in a challenging year, leaning on his note-taking and building chemistry with fellow rookie Caleb Williams.`\
 https://nytimes.com/athletic/6025244/2024/12/30/bears-rome-odunze-rookie-season/
-
-**From unknown to brink of CFP history: Meet Boise State coach Spencer Danielson**\
-`He wasn't supposed to get the job. Now the Broncos can reach unprecedented heights with another round of Fiesta Bowl magic vs. Penn State.`\
-https://nytimes.com/athletic/6024830/2024/12/30/boise-state-coach-cfp-fiesta-bowl/
 
