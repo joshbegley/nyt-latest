@@ -1,3 +1,7 @@
+**Commanders clinch playoff berth with 30-24 OT win vs. Falcons: Takeaways**\
+`Jayden Daniels led a game-winning drive, capped by a touchdown pass to Zach Ertz, to continue his Rookie of the Year campaign.`\
+https://nytimes.com/athletic/6025909/2024/12/30/commanders-falcons-snf-score-result-takeaways/
+
 **'We just sucked': Blackhawks searching for answers again as Winter Classic arrives**\
 `The Blackhawks' improvement will be a long process, but individual breakdowns have started to creep in again under Sorensen.`\
 https://nytimes.com/athletic/6026315/2024/12/30/blackhawks-sorensen-breakdowns-jones-stars/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5981137/2024/12/30/aston-villas-2024-bayern-revisit
 **If Eze has his confidence back, Palace have a true triple threat up front**\
 `Against Southampton, Sarr, Mateta and Eze demonstrated how they can work together to boost Palace’s hopes in front of goal`\
 https://nytimes.com/athletic/6020084/2024/12/30/eberechi-eze-crystal-palace-southampton-premier-league/
-
-**Brentford's 2024: Toney's departure, Mbeumo and Wissa step up, and that Schade hat-trick**\
-`Brentford tailed off last season, but despite the departure of their leading striker, 2024-25 started with a bang`\
-https://nytimes.com/athletic/5971820/2024/12/30/brentfords-2024-toneys-departure-mbeumo-and-wissa-step-up-and-that-schade-hat-trick/
 
