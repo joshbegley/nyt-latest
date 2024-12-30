@@ -1,3 +1,7 @@
+**Pacers punch their way past Celtics, showing teams trending in opposite directions**\
+`“I think we set our precedent for how we want to play,” the Pacers' Myles Turner said after a 123-114 win.`\
+https://nytimes.com/athletic/6026368/2024/12/30/celtics-pacers-nba-rematch/
+
 **Vikings stamp themselves as legitimate contenders with impressive victory over Packers**\
 `As the pressure continues to mount, the Vikings keep getting it done. Now the Lions are all that stand between them and the NFC's top seed.`\
 https://nytimes.com/athletic/6026333/2024/12/30/vikings-win-darnold-oconnell-contenders-packers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5971820/2024/12/30/brentfords-2024-toneys-departure
 **Are Wrexham on course for promotion?**\
 `Here’s what the data and history says about the chances of Phil Parkinson’s side`\
 https://nytimes.com/athletic/6019378/2024/12/30/are-wrexham-on-course-for-promotion/
-
-**It's a difficult subject for Spurs fans, but it's time to talk about Son's form**\
-`What's going on with Tottenham's captain?`\
-https://nytimes.com/athletic/6025285/2024/12/30/its-time-to-talk-about-son/
 
