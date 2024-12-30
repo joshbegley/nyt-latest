@@ -1,11 +1,3 @@
-**‘He Always Knew My Name’: Carter Is Remembered at a Bar That Was Dear to Him**\
-`The former president had kicked off his campaign for Georgia governor at Manuel’s Tavern in Atlanta. On Sunday, workers and patrons at the bar raised a glass in his honor.`\
-https://nytimes.com/2024/12/29/us/politics/carter-atlanta-dive-bar.html
-
-**Move over, Mario: Sidney Crosby passes Lemieux to becomes Penguins' assist leader**\
-`Crosby made history yet again and earned a standing ovation as the Penguins held on to defeat the Islanders 3-2 at home.`\
-https://nytimes.com/athletic/6025912/2024/12/29/penguins-sidney-crosby-assist-record-lemieux-islanders/
-
 **Red Wings get first win under new coach Todd McLellan: 5 thoughts**\
 `After the Red Wings' new coach gave a clear message at his first practice, his team responded by delivering his first win in Detroit.`\
 https://nytimes.com/athletic/6026045/2024/12/29/red-wings-mclellan-first-win-capitals/
@@ -37,4 +29,12 @@ https://nytimes.com/2024/12/29/us/in-his-own-words-carter-had-fear-for-our-democ
 **Carter once supported segregationist policies, but he eventually won the enduring support of Black voters.**\
 `By Maya King and Richard Fausset`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-once-supported-segregationist-policies-but-he-eventually-won-the-enduring-support-of-black-voters
+
+**Josh Allen's ultimate MVP endorsement, Bills defense's statement performance vs. Jets, more**\
+`Plus, Amari Cooper's usage and Matt Milano's role in his return.`\
+https://nytimes.com/athletic/6026014/2024/12/29/bills-win-josh-allen-mvp-performance-jets/
+
+**Brian Daboll makes plea for keeping his job after Giants snap 10-game losing streak**\
+`Much like Joe Judge’s epic postgame rant three years ago, it appeared Daboll’s message Sunday was intended for the ears of ownership. `\
+https://nytimes.com/athletic/6025884/2024/12/29/giants-win-brian-daboll-job-colts/
 

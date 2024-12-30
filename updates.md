@@ -1,3 +1,11 @@
+**‘He Always Knew My Name’: Carter Is Remembered at a Bar That Was Dear to Him**\
+`The former president had kicked off his campaign for Georgia governor at Manuel’s Tavern in Atlanta. On Sunday, workers and patrons at the bar raised a glass in his honor.`\
+https://nytimes.com/2024/12/29/us/politics/carter-atlanta-dive-bar.html
+
+**Move over, Mario: Sidney Crosby passes Lemieux to becomes Penguins' assist leader**\
+`Crosby made history yet again and earned a standing ovation as the Penguins held on to defeat the Islanders 3-2 at home.`\
+https://nytimes.com/athletic/6025912/2024/12/29/penguins-sidney-crosby-assist-record-lemieux-islanders/
+
 **Red Wings get first win under new coach Todd McLellan: 5 thoughts**\
 `After the Red Wings' new coach gave a clear message at his first practice, his team responded by delivering his first win in Detroit.`\
 https://nytimes.com/athletic/6026045/2024/12/29/red-wings-mclellan-first-win-capitals/
