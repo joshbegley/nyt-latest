@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6028015/2024/12/30/2024-nfl-playoff-scenarios-week-
 `As the renewed clashes in the north of the enclave neared the three-month mark, there was no sign of them abating.`\
 https://nytimes.com/2024/12/30/world/middleeast/israel-hamas-northern-gaza.html
 
-**The Briefing: Ipswich 2 Chelsea 0: Bad festive form, Felix's missed opportunity and Delap's audition**\
+**The Briefing: Ipswich 2 Chelsea 0 - bad festive form, Felix's missed opportunity and Delap's audition**\
 `Chelsea fell to a loss against Ipswich Town at Portman Road on Monday evening`\
 https://nytimes.com/athletic/6017907/2024/12/30/ipswich-chelsea-result-report-analysis/
 
