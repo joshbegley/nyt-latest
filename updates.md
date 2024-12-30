@@ -1,3 +1,7 @@
+**Man Dies After Helping His Family Flee Christmas Morning House Fire**\
+`Steven Weatherford ran upstairs to wake his father and two aunts as a fire engulfed their home in Oakland, Calif. He later died of smoke inhalation, the authorities said.`\
+https://nytimes.com/2024/12/30/us/oakland-christmas-house-fire-death.html
+
 **In-stadium VAR announcements to be trialled in Carabao Cup semi-finals**\
 `In-stadium video assistant referee (VAR) announcements will be trialled in English football for the first time during January&#8217;s Carabao Cup semi-finals.`\
 https://nytimes.com/athletic/6027144/2024/12/30/var-in-stadium-trial/
