@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6024792/2024/12/29/dolphins-browns-score-result-tak
 `Mr. Carter was a lifeline to stalled talks by mediating a summit at Camp David in 1978.`\
 https://nytimes.com/2024/12/29/us/jimmy-carter-israel-egypt.html
 
-**Vikings edge Packers 27-25 to keep NFC No. 1 seed hopes alive: Takeaways**\
+**Vikings edge Packers 27-25 for shot at NFC’s No. 1 seed: Takeaways**\
 `The Vikings have given themselves a chance to secure the No. 1 seed in the NFC playoff race with a win over the Detroit Lions in Week 18.`\
 https://nytimes.com/athletic/6024795/2024/12/29/packers-vikings-score-result-takeaways/
 
