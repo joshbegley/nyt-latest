@@ -1,3 +1,19 @@
+**Carter’s Navy Legacy Includes a Top-Secret Spy Submarine Named After Him**\
+`The former president, who served aboard submarines as a young naval officer, was “in awe” when he learned the capabilities of the U.S.S. Jimmy Carter.`\
+https://nytimes.com/2024/12/29/us/navy-jimmy-carter-submarine.html
+
+**President Biden Pays Tribute to Jimmy Carter**\
+`President Biden said that former President Jimmy Carter, who died on Sunday at 100, was not only a great leader but also a “dear friend.”`\
+https://nytimes.com/video/us/politics/100000009900402/biden-jimmy-carter.html
+
+**'I want a banner up there:' Saquon Barkley, Eagles look at bigger picture after milestone, win**\
+`Saquon Barkley joined rare company in reaching the 2,000-yard rushing mark.`\
+https://nytimes.com/athletic/6025024/2024/12/29/eagles-win-blowout-saquon-barkley-cowboys/
+
+**In his own words: Carter had ‘fear for our democracy.’**\
+`By The New York Times`\
+https://nytimes.com/2024/12/29/us/in-his-own-words-carter-had-fear-for-our-democracy.html
+
 **Carter once supported segregationist policies, but he eventually won the enduring support of Black voters.**\
 `By Maya King and Richard Fausset`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-once-supported-segregationist-policies-but-he-eventually-won-the-enduring-support-of-black-voters
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/12/29/us/jimmy-carter/carters-presidency-through-t
 **In his own words: the place of faith in public service.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/in-his-own-words-the-place-of-faith-in-public-service
-
-**Rosalynn Carter was the most politically active first lady since Eleanor Roosevelt.**\
-`By Katharine Q. Seelye`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/rosalynn-carter-was-the-most-politically-active-first-lady-since-eleanor-roosevelt
-
-**Why Jeff Skinner and the Oilers should stay the course and stick it out**\
-`Skinner, a star offseason signing a few months ago, became a healthy scratch just 36 games into the season with the Oilers.`\
-https://nytimes.com/athletic/6025926/2024/12/29/oilers-jeff-skinner-healthy-scratch-decline/
-
-**Raiders' Ameer Abdullah has found 'fountain of youth,' powers Las Vegas to another win**\
-`The 10-year veteran delivered the first 100-yard rushing performance of his NFL career in the Raiders' 25-10 win in New Orleans.`\
-https://nytimes.com/athletic/6025895/2024/12/29/raiders-ameer-abdullah-win-saints/
-
-**Jimmy Carter’s Family Carved Varied Paths Through Life**\
-`Mr. Carter’s brother hawked Billy Beer and got tied up with the Libyans. His daughter was arrested while protesting the C.I.A. His grandson sought to follow him as governor of Georgia.`\
-https://nytimes.com/2024/12/29/us/jimmy-carter-kids-children-family.html
 
