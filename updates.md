@@ -1,3 +1,7 @@
+**Submit your Mets questions for Will Sammon's mailbag**\
+`Submit your Mets questions for Will Sammon's mailbag`\
+https://nytimes.com/athletic/6027566/2024/12/30/submit-your-mets-questions-for-will-sammons-mailbag-2/
+
 **Five People Indicted in Connection With Liam Payne’s Fatal Fall**\
 `Two people are accused of supplying the singer with drugs and three others with negligence related to his fall from the balcony of a Buenos Aires hotel.`\
 https://nytimes.com/2024/12/30/arts/music/liam-payne-indictments.html
