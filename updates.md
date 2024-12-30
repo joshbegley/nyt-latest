@@ -1,3 +1,11 @@
+**Ohio State got the Oregon second chance it wanted. Are the Buckeyes ready for revenge?**\
+`Ohio State won't get another shot at Michigan this year, but the Buckeyes are thrilled the Playoff put Oregon in their championship path.`\
+https://nytimes.com/athletic/6026905/2024/12/30/ohio-state-oregon-rose-bowl-rematch/
+
+**What Nebraska's landmark Pinstripe Bowl win means for program momentum**\
+`While special teams hangs over their heads, the Huskers feel good about their young players, including quarterback Dylan Raiola. `\
+https://nytimes.com/athletic/6026956/2024/12/30/nebraska-pinstripe-bowl-college-football-matt-rhule/
+
 **From Bird Strike to Crash: the Mystery of Jeju Air Plane’s Four Fateful Minutes**\
 `The time between when the pilot reported a bird strike and when it crashed could be key to unraveling one of the world’s worst aviation disasters in years.`\
 https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-cause.html
