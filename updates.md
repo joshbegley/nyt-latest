@@ -1,3 +1,7 @@
+**The numbers behind Mohamed Salah's historic Premier League season so far**\
+`Liverpool's talisman is having the greatest Premier League season for an attacker ever - and he's only played 18 games `\
+https://nytimes.com/athletic/6026134/2024/12/30/mohamed-salah-goals-assists-premier-league-history/
+
 **‘She Was Almost Home’: Father Mourns South Korea Plane Crash Victim**\
 `Jeon Je-young was among the hundreds of family members waiting for news from the authorities about Jeju Air Flight 2216, which crashed at an airport in South Korea.`\
 https://nytimes.com/video/world/asia/100000009900500/south-korea-plane-crash-victim.html
