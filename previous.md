@@ -1,3 +1,7 @@
+**Vrabel permitted to leave Browns, start head-coaching interviews**\
+`The former Tennessee Titans coach is expected to be one of the most coveted candidates available.`\
+https://nytimes.com/athletic/6027101/2024/12/30/mike-vrabel-head-coaching-interviews/
+
 **AP Top 25: UCLA, Memphis rise, Tennessee on top to start 2025**\
 `The arrival of conference play in high-major leagues across the country this week presents several opportunities for Top 25 shakeups.`\
 https://nytimes.com/athletic/6027643/2024/12/30/ap-mens-basketball-top-25-rankings-ucla-memphis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026714/2024/12/30/manchester-united-team-news-marc
 **Jaden Rashada says 'I needed Georgia,' in QB's first public interviews since transfer**\
 `Rashada became the poster child for college football's new era when he went through an eight-figure NIL dispute as a recruit. `\
 https://nytimes.com/athletic/6027609/2024/12/30/jaden-rashada-georgia-quarterback-transfer/
-
-**Six ex-FSU MBB players sue coach Leonard Hamilton over unpaid NIL promises**\
-`Hamilton promised six former players $250,000 each in NIL compensation during their recruitment, according to the lawsuit.`\
-https://nytimes.com/athletic/6027174/2024/12/30/florida-state-leonard-hamilton-nil-lawsuit/
 

@@ -1,3 +1,7 @@
+**Vrabel permitted to leave Browns, start head-coaching interviews**\
+`The former Tennessee Titans coach is expected to be one of the most coveted candidates available.`\
+https://nytimes.com/athletic/6027101/2024/12/30/mike-vrabel-head-coaching-interviews/
+
 **AP Top 25: UCLA, Memphis rise, Tennessee on top to start 2025**\
 `The arrival of conference play in high-major leagues across the country this week presents several opportunities for Top 25 shakeups.`\
 https://nytimes.com/athletic/6027643/2024/12/30/ap-mens-basketball-top-25-rankings-ucla-memphis/
