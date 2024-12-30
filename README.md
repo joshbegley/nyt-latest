@@ -1,3 +1,7 @@
+**For 49ers' Dre Greenlaw, football's pain and injuries are no match for his resolve**\
+`Dre Greenlaw has been through a lot just to get to the NFL. It's why the 49ers linebacker isn't deterred by another round of injuries.`\
+https://nytimes.com/athletic/6014551/2024/12/30/dre-greenlaw-san-francisco-49ers-achilles-injuries-free-agent/
+
 **From Bird Strike to Crash: the Mystery of Jeju Air Plane’s Four Fateful Minutes**\
 `The time between when the pilot reported a bird strike and when it crashed could be key to unraveling one of the world’s worst aviation disasters in years.`\
 https://nytimes.com/2024/12/30/world/asia/from-bird-strike-to-crash-the-mystery-of-jeju-air-planes-four-fateful-minutes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6007080/2024/12/30/world-juniors-today-usa-canada-n
 **The Canucks' reality without Quinn Hughes, the goalie split and more**\
 `We're about to learn a lot about what this Vancouver team is and where it's headed over the course of this week.`\
 https://nytimes.com/athletic/6026099/2024/12/30/vancouver-canucks-quinn-hughes-injury/
-
-**49ers awards: George Kittle, Dominick Puni and other standouts in a terrible year**\
-`Who are the MVPs of such a bleak season? Two names stand out, while a third, Fred Warner, is a legitimate candidate for six team awards.`\
-https://nytimes.com/athletic/6022504/2024/12/30/49ers-awards-mvp-george-kittle-dominick-puni/
 
