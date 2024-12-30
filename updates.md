@@ -1,3 +1,7 @@
+**'We just sucked': Blackhawks searching for answers again as Winter Classic arrives**\
+`The Blackhawks' improvement will be a long process, but individual breakdowns have started to creep in again under Sorensen.`\
+https://nytimes.com/athletic/6026315/2024/12/30/blackhawks-sorensen-breakdowns-jones-stars/
+
 **Pacers punch their way past Celtics, showing teams trending in opposite directions**\
 `“I think we set our precedent for how we want to play,” the Pacers' Myles Turner said after a 123-114 win.`\
 https://nytimes.com/athletic/6026368/2024/12/30/celtics-pacers-nba-rematch/

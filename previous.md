@@ -1,3 +1,7 @@
+**'We just sucked': Blackhawks searching for answers again as Winter Classic arrives**\
+`The Blackhawks' improvement will be a long process, but individual breakdowns have started to creep in again under Sorensen.`\
+https://nytimes.com/athletic/6026315/2024/12/30/blackhawks-sorensen-breakdowns-jones-stars/
+
 **Pacers punch their way past Celtics, showing teams trending in opposite directions**\
 `“I think we set our precedent for how we want to play,” the Pacers' Myles Turner said after a 123-114 win.`\
 https://nytimes.com/athletic/6026368/2024/12/30/celtics-pacers-nba-rematch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6020084/2024/12/30/eberechi-eze-crystal-palace-sout
 **Brentford's 2024: Toney's departure, Mbeumo and Wissa step up, and that Schade hat-trick**\
 `Brentford tailed off last season, but despite the departure of their leading striker, 2024-25 started with a bang`\
 https://nytimes.com/athletic/5971820/2024/12/30/brentfords-2024-toneys-departure-mbeumo-and-wissa-step-up-and-that-schade-hat-trick/
-
-**Are Wrexham on course for promotion?**\
-`Here’s what the data and history says about the chances of Phil Parkinson’s side`\
-https://nytimes.com/athletic/6019378/2024/12/30/are-wrexham-on-course-for-promotion/
 
