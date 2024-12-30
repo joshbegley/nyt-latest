@@ -1,3 +1,11 @@
+**Jayden Daniels' clutch gene leads Commanders to playoffs: 'There's nobody like him'**\
+`The rookie capped his latest unreal performance with a TD pass on the opening drive of OT to secure Washington a spot in the postseason. `\
+https://nytimes.com/athletic/6026639/2024/12/30/commanders-jayden-daniels-clinch-playoff-berth/
+
+**Vote: Where will Nottingham Forest finish in the Premier League this season?**\
+`Nottingham Forest are second in the Premier League - but where do you think they will finish at the end of the season?`\
+https://nytimes.com/athletic/6026858/2024/12/30/vote-where-will-nottingham-forest-finish-in-the-premier-league-this-season/
+
 **Donte DiVincenzo is finally feeling Minnesota after his heart got over New York**\
 `DiVincenzo scored 26 points Sunday and is looking like the skilled, confident player the Wolves traded for. It just took him a while. `\
 https://nytimes.com/athletic/6026132/2024/12/30/donte-dinvencenzo-timberwolves-knicks-nba/
