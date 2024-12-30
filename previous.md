@@ -1,3 +1,7 @@
+**China Hacked Treasury Dept. in ‘Major Incident,’ U.S. Says**\
+`The department notified lawmakers of the breach, which it said was linked to a state-sponsored actor in China.`\
+https://nytimes.com/2024/12/30/us/politics/china-hack-treasury.html
+
 **Scoop City: Every key scenario for Week 18**\
 `A brief look at how the current playoff standings and draft order could change after Week 18`\
 https://nytimes.com/athletic/6027808/2024/12/30/nfl-week-18-key-matchups-odds-draft-order-playoffs-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027643/2024/12/30/ap-mens-basketball-top-25-rankin
 **Trump Loses Appeal of Carroll’s $5 Million Award in Sex-Abuse Case**\
 `The president-elect had asked a court to overturn the defamation judgment against him in the case, which centered on E. Jean Carroll’s account of a sexual attack in a dressing room.`\
 https://nytimes.com/2024/12/30/nyregion/trump-carroll-appeal-denied.html
-
-**Jumping Out of a Plane, With Skydiving Seniors**\
-`To report on the Wuest Ways group, which has been hosting skydives since 1987, a reporter had to strap on a parachute and take the 12,500-foot leap.`\
-https://nytimes.com/2024/12/30/insider/skydiving-seniors-reporting.html
 

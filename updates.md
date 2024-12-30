@@ -1,3 +1,7 @@
+**China Hacked Treasury Dept. in ‘Major Incident,’ U.S. Says**\
+`The department notified lawmakers of the breach, which it said was linked to a state-sponsored actor in China.`\
+https://nytimes.com/2024/12/30/us/politics/china-hack-treasury.html
+
 **Scoop City: Every key scenario for Week 18**\
 `A brief look at how the current playoff standings and draft order could change after Week 18`\
 https://nytimes.com/athletic/6027808/2024/12/30/nfl-week-18-key-matchups-odds-draft-order-playoffs-scoop-city/
