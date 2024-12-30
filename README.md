@@ -1,3 +1,7 @@
+**The Seahawks replaced Pete Carroll to escape mediocrity. In Year 1, they failed**\
+`Mike Macdonald was hired to elevate the Seahawks, but they remain stuck on the same level as the end of the Carroll era.`\
+https://nytimes.com/athletic/6026554/2024/12/30/seahawks-playoffs-eliminated-mike-macdonald/
+
 **Falcons' Raheem Morris laments not using timeout on final drive vs. Commanders**\
 `Morris decided against using one of his two timeouts and 17 seconds ran off the clock in between plays.`\
 https://nytimes.com/athletic/6027244/2024/12/30/falcons-raheem-morris-timeout-commanders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027029/2024/12/30/spurs-review-victor-wembanyama-g
 **Yankees not ruling out DJ LeMahieu for everyday role in 2025 — but should they?**\
 `The Yankees' current infield vacancy has given LeMahieu the opportunity to prove his way back onto the team's starting lineup once again.`\
 https://nytimes.com/athletic/6025274/2024/12/30/yankees-dj-lemahieu-2025-role/
-
-**$100 Million for One Square Mile: Deal to Protect Land in Grand Tetons**\
-`After years of negotiations and threats of development, Wyoming will sell a prized piece of land so that it can be preserved inside Grand Teton National Park.`\
-https://nytimes.com/2024/12/30/us/grand-teton-park-wyoming-sale.html
 
