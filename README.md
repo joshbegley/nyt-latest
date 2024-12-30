@@ -1,3 +1,15 @@
+**Red Wings get first win under McLellan: Five thoughts**\
+`After the Red Wings' new coach gave a clear message at his first practice, his team responded by delivering his first win in Detroit.`\
+https://nytimes.com/athletic/6026045/2024/12/29/red-wings-mclellan-first-win-capitals/
+
+**Colts choke again on big stage, as their playoffs hopes die in 'embarrassing' loss to Giants**\
+`No member of the Colts franchise should feel safe after their humiliating loss. Not the players, not the coach and not the GM. `\
+https://nytimes.com/athletic/6026049/2024/12/29/colts-loss-shane-steichen-giants/
+
+**Quotation of the Day: Harris Dickinson’s Love-Hate Relationship With Acting**\
+`Quotation of the Day for Monday, December 30, 2024.`\
+https://nytimes.com/2024/12/29/pageoneplus/quotation-of-the-day-harris-dickinsons-love-hate-relationship-with-acting.html
+
 **Carter’s Navy Legacy Includes a Top-Secret Spy Submarine Named After Him**\
 `The former president, who served aboard submarines as a young naval officer, was “in awe” when he learned the capabilities of the U.S.S. Jimmy Carter.`\
 https://nytimes.com/2024/12/29/us/navy-jimmy-carter-submarine.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6026014/2024/12/29/bills-win-josh-allen-mvp-perform
 **Brian Daboll makes plea for keeping his job after Giants snap 10-game losing streak**\
 `Much like Joe Judge’s epic postgame rant three years ago, it appeared Daboll’s message Sunday was intended for the ears of ownership. `\
 https://nytimes.com/athletic/6025884/2024/12/29/giants-win-brian-daboll-job-colts/
-
-**Another ugly Jets loss, and a fraying relationship between Aaron Rodgers and Garrett Wilson**\
-`Among other issues, Sunday's loss in Buffalo highlighted the lingering discord between Hall of Fame QB and rising star receiver.`\
-https://nytimes.com/athletic/6025747/2024/12/29/jets-loss-bills-aaron-rodgers-garrett-wilson-relationship/
-
-**Carter’s presidency through the pages of The New York Times.**\
-`By Ben Shpigel`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/carters-presidency-through-the-pages-of-the-new-york-times
-
-**In his own words: the place of faith in public service.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/in-his-own-words-the-place-of-faith-in-public-service
 
