@@ -1,3 +1,7 @@
+**Packers show they're a good team, not a great one in loss to Vikings**\
+`The Packers are in the playoffs, but a similar loss to an elite NFC team should raise concern with the postseason on the horizon.`\
+https://nytimes.com/athletic/6026258/2024/12/29/packers-loss-matt-lafleur-vikings/
+
 **Amen Thompson-Tyler Herro fight leads to slew of ejections at end of Heat's win vs. Rockets**\
 `Rockets coaches Ime Udoka and Ben Sullivan were among those ejected after the late-game fracas.`\
 https://nytimes.com/athletic/6026188/2024/12/29/rockets-heat-fight-ejections-amen-thompson-tyler-herro/
