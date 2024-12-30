@@ -1,3 +1,15 @@
+**How Elon Musk Has Planted Himself Almost Literally at Trump’s Doorstep**\
+`For much of the period since Election Day, the billionaire has been staying at a $2,000-a-night cottage at Mar-a-Lago, giving him easy access to the president-elect.`\
+https://nytimes.com/2024/12/30/us/politics/elon-musk-trump-mar-a-lago.html
+
+**Dolphins' Tua Tagovailoa stands 'firmly in the unknown' to play vs. Jets**\
+`Backup QB Tyler Huntley seemingly put the Dolphins' offense on his back during Sunday's 20-3 win in Cleveland.`\
+https://nytimes.com/athletic/6027775/2024/12/30/dolphins-tua-tagovailoa-hip-injury/
+
+**Barcelona lose second appeal for Olmo registration**\
+`Barcelona have lost a second appeal for the precautionary registration of Dani Olmo for the rest of the season, meaning he remains unable to play for the club from January 1 onwards.`\
+https://nytimes.com/athletic/6026923/2024/12/30/dani-olmo-appeal-rejected-registration/
+
 **Jimmy Carter, the President and the Man**\
 `Readers praise the former president’s accomplishments and character and recall encounters with him.`\
 https://nytimes.com/2024/12/30/opinion/letters/jimmy-carter-readers-react.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/12/30/t-magazine/favorite-house-stories.html
 **Brighton considering recalling Rushworth from Hull City loan**\
 `Brighton &amp; Hove Albion could recall Carl Rushworth from his loan spell with Hull City for a temporary move to another Championship club.`\
 https://nytimes.com/athletic/6027656/2024/12/30/brighton-carl-rushworth-loan-hull/
-
-**5 Takeaways From The Times’s Coverage of Shen Yun**\
-`The dance group has exploited its young performers while amassing huge wealth for the Falun Gong religious movement — and getting a publicity boost from The Epoch Times.`\
-https://nytimes.com/2024/12/30/nyregion/shen-yun-nyt-falun-gong.html
-
-**Broncos' Sean Payton on not going for 2-point try: 'You always second guess'**\
-`The coach said he's pondered his decision after Saturday's OT loss to the Bengals, but his team now must focus on a win-and-in finale.`\
-https://nytimes.com/athletic/6027627/2024/12/30/sean-payton-broncos-two-point-try/
-
-**Rashford returns to Man United squad after four-game absence**\
-`The England international has missed the club's last four games in all competitions`\
-https://nytimes.com/athletic/6026714/2024/12/30/manchester-united-team-news-marcus-rashford/
 
