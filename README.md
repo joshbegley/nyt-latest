@@ -1,7 +1,3 @@
-**Quotation of the Day: Harris Dickinson’s Love-Hate Relationship With Acting**\
-`Quotation of the Day for Monday, December 30, 2024.`\
-https://nytimes.com/2024/12/29/pageoneplus/quotation-of-the-day-harris-dickinsons-love-hate-relationship-with-acting.html
-
 **Carter’s Navy Legacy Includes a Top-Secret Spy Submarine Named After Him**\
 `The former president, who served aboard submarines as a young naval officer, was “in awe” when he learned the capabilities of the U.S.S. Jimmy Carter.`\
 https://nytimes.com/2024/12/29/us/navy-jimmy-carter-submarine.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6025747/2024/12/29/jets-loss-bills-aaron-rodgers-ga
 **Carter’s presidency through the pages of The New York Times.**\
 `By Ben Shpigel`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/carters-presidency-through-the-pages-of-the-new-york-times
+
+**In his own words: the place of faith in public service.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/in-his-own-words-the-place-of-faith-in-public-service
 
