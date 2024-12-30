@@ -1,3 +1,7 @@
+**The Life of Jimmy Carter**\
+`The former president has died at 100.`\
+https://nytimes.com/2024/12/30/briefing/jimmy-carter-dead.html
+
 **Hollinger's Week That Was: What's next for Lakers, Nets? What's up with Utah's rookies?**\
 `It's quite possible L.A. plugged one hole by creating another, and in Brooklyn, don't be shocked if the Russell reunion is short-lived.`\
 https://nytimes.com/athletic/6026206/2024/12/30/dangelo-russell-nets-lakers-dorian-finney-smith-trade/
