@@ -1,8 +1,12 @@
+**NFL Week 18 playoff scenarios: AFC North, NFC South up for grabs**\
+`A division title in each conference, one wild card slot in the AFC and the No. 1 seed in the NFC all will be on the line in Week 18.`\
+https://nytimes.com/athletic/6028015/2024/12/30/2024-nfl-playoff-scenarios-week-18/
+
 **Israel and Hamas Each Claim Wins in Fierce Fighting in Northern Gaza**\
 `As the renewed clashes in the north of the enclave neared the three-month mark, there was no sign of them abating.`\
 https://nytimes.com/2024/12/30/world/middleeast/israel-hamas-northern-gaza.html
 
-**The Briefing: Ipswich 2 Chelsea 0: Bad festive form, Felix's missed opportunity and Delap's audition**\
+**The Briefing: Ipswich 2 Chelsea 0 - bad festive form, Felix's missed opportunity and Delap's audition**\
 `Chelsea fell to a loss against Ipswich Town at Portman Road on Monday evening`\
 https://nytimes.com/athletic/6017907/2024/12/30/ipswich-chelsea-result-report-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/us/politics/china-hack-treasury.html
 **Scoop City: Every key scenario for Week 18**\
 `A brief look at how the current playoff standings and draft order could change after Week 18`\
 https://nytimes.com/athletic/6027808/2024/12/30/nfl-week-18-key-matchups-odds-draft-order-playoffs-scoop-city/
-
-**What to Know About Celebrating New Year’s Eve in Times Square**\
-`New York’s ball-drop celebration is more than a century old. One important fact about this year: You are likely to get wet.`\
-https://nytimes.com/2024/12/30/nyregion/new-years-eve-in-times-square.html
 

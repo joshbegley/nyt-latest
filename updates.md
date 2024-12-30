@@ -1,3 +1,11 @@
+**NFL Week 18 playoff scenarios: AFC North, NFC South up for grabs**\
+`A division title in each conference, one wild card slot in the AFC and the No. 1 seed in the NFC all will be on the line in Week 18.`\
+https://nytimes.com/athletic/6028015/2024/12/30/2024-nfl-playoff-scenarios-week-18/
+
+**The Briefing: Ipswich 2 Chelsea 0 - bad festive form, Felix's missed opportunity and Delap's audition**\
+`Chelsea fell to a loss against Ipswich Town at Portman Road on Monday evening`\
+https://nytimes.com/athletic/6017907/2024/12/30/ipswich-chelsea-result-report-analysis/
+
 **Israel and Hamas Each Claim Wins in Fierce Fighting in Northern Gaza**\
 `As the renewed clashes in the north of the enclave neared the three-month mark, there was no sign of them abating.`\
 https://nytimes.com/2024/12/30/world/middleeast/israel-hamas-northern-gaza.html
