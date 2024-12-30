@@ -1,3 +1,23 @@
+**The Athletic FC: Can Forest qualify for Champions League? Aaronson's classy goal, Fonseca sacked**\
+`Today in TAFC: Could Forest be playing in Europe next season? Salah's incredible stats and Aaronson helps take Leeds top of the Championship`\
+https://nytimes.com/athletic/6026702/2024/12/30/nottingham-forest-champions-league-aaronson-leeds/
+
+**Blues at 2025 World Juniors: Will a record 9 prospects increase odds of NHL players?**\
+`A breakdown of how the Blues' prospects have looked through the early part of the tournament's preliminary round.`\
+https://nytimes.com/athletic/6019992/2024/12/30/world-juniors-blues-nhl-players/
+
+**World Juniors Today: Quarterfinals berths on the line, Canada-USA prepare for NYE matchup**\
+`There are only two games on Monday, a much quieter day compared to most of the preliminary round, but New Year's Eve looms large.`\
+https://nytimes.com/athletic/6007080/2024/12/30/world-juniors-today-usa-canada-new-year/
+
+**The Canucks' reality without Quinn Hughes, the goalie split and more**\
+`We're about to learn a lot about what this Vancouver team is and where it's headed over the course of this week.`\
+https://nytimes.com/athletic/6026099/2024/12/30/vancouver-canucks-quinn-hughes-injury/
+
+**49ers awards: George Kittle, Dominick Puni and other standouts in a terrible year**\
+`Who are the MVPs of such a bleak season? Two names stand out, while a third, Fred Warner, is a legitimate candidate for six team awards.`\
+https://nytimes.com/athletic/6022504/2024/12/30/49ers-awards-mvp-george-kittle-dominick-puni/
+
 **Falcons' second-half collapse in Washington likely to haunt them for a long time**\
 `The Falcons were outscored 23-7 after halftime, mismanaged the clock and fumbled away the NFC South lead entering Week 18.`\
 https://nytimes.com/athletic/6026540/2024/12/30/falcons-commanders-second-half-collapse/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/12/30/arts/linda-lavin-dead.html
 **Jayden Daniels' clutch gene leads Commanders to playoffs: 'There's nobody like him'**\
 `The rookie capped his latest unreal performance with a TD pass on the opening drive of OT to secure Washington a spot in the postseason. `\
 https://nytimes.com/athletic/6026639/2024/12/30/commanders-jayden-daniels-clinch-playoff-berth/
-
-**Vote: Where will Nottingham Forest finish in the Premier League this season?**\
-`Nottingham Forest are second in the Premier League - but where do you think they will finish at the end of the season?`\
-https://nytimes.com/athletic/6026858/2024/12/30/vote-where-will-nottingham-forest-finish-in-the-premier-league-this-season/
-
-**Donte DiVincenzo is finally feeling Minnesota after his heart got over New York**\
-`DiVincenzo scored 26 points Sunday and is looking like the skilled, confident player the Wolves traded for. It just took him a while. `\
-https://nytimes.com/athletic/6026132/2024/12/30/donte-dinvencenzo-timberwolves-knicks-nba/
-
-**Another Raiders win sets up an important regular-season finale for coach Antonio Pierce**\
-`A second straight win has taken the Raiders out of the running for a top draft pick. But could this late push save Pierce's job?`\
-https://nytimes.com/athletic/6025585/2024/12/30/raiders-win-antonio-pierce-job-security-saints/
-
-**Broncos defensive front has been NFL's best this season — and must deliver once more**\
-`Dondrea Tillman on Saturday became the sixth Broncos player to record five sacks this season. Only the 1986 Chicago Bears had more.`\
-https://nytimes.com/athletic/6025615/2024/12/30/broncos-defensive-front-playoff-hopes/
-
-**Lowetide: How will the Oilers' plethora of skill wingers shake out this season?**\
-`Making sense of the Oilers winger situation at the moment comes with some hard truths.`\
-https://nytimes.com/athletic/6025026/2024/12/30/edmonton-oilers-stats-wingers-skill/
 
