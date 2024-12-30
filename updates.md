@@ -1,3 +1,15 @@
+**Brian Daboll makes plea for keeping his job after Giants snap 10-game losing streak**\
+`Much like Joe Judge’s epic postgame rant three years ago, it appeared Daboll’s message Sunday was intended for the ears of ownership. `\
+https://nytimes.com/athletic/6025884/2024/12/29/iants-win-brian-daboll-job-colts/
+
+**Another ugly Jets loss, and a fraying relationship between Aaron Rodgers and Garrett Wilson**\
+`Among other issues, Sunday's loss in Buffalo highlighted the lingering discord between Hall of Fame QB and rising star receiver.`\
+https://nytimes.com/athletic/6025747/2024/12/29/jets-loss-bills-aaron-rodgers-garrett-wilson-relationship/
+
+**Carter’s presidency through the pages of The New York Times.**\
+`By Ben Shpigel`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/carters-presidency-through-the-pages-of-the-new-york-times
+
 **Vikings edge Packers 27-25 for shot at NFC’s No. 1 seed: Takeaways**\
 `The Vikings have given themselves a chance to secure the No. 1 seed in the NFC playoff race with a win over the Detroit Lions in Week 18.`\
 https://nytimes.com/athletic/6024795/2024/12/29/packers-vikings-score-result-takeaways/
