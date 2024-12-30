@@ -1,7 +1,3 @@
-**Tennis Briefing: Djokovic and Kyrgios comments highlight doping problem, 2025 season begins**\
-`When tennis players speak, fans listen. So what happens when they're not quite right?`\
-https://nytimes.com/athletic/6025850/2024/12/30/tennis-doping-rules-djokovic-kyrgios/
-
 **The Seahawks replaced Pete Carroll to escape mediocrity. In Year 1, they failed**\
 `Mike Macdonald was hired to elevate the Seahawks, but they remain stuck on the same level as the end of the Carroll era.`\
 https://nytimes.com/athletic/6026554/2024/12/30/seahawks-playoffs-eliminated-mike-macdonald/
@@ -9,6 +5,10 @@ https://nytimes.com/athletic/6026554/2024/12/30/seahawks-playoffs-eliminated-mik
 **Falcons' Raheem Morris laments not using timeout on final drive vs. Commanders**\
 `Morris decided against using one of his two timeouts and 17 seconds ran off the clock in between plays.`\
 https://nytimes.com/athletic/6027244/2024/12/30/falcons-raheem-morris-timeout-commanders/
+
+**Tennis Briefing: Djokovic and Kyrgios comments highlight doping problem, 2025 season begins**\
+`When tennis players speak, fans listen. So what happens when they're not quite right?`\
+https://nytimes.com/athletic/6025850/2024/12/30/tennis-doping-rules-djokovic-kyrgios/
 
 **You Saw the Movie in 2024. Do You Know the Book That Inspired It?**\
 `As the year winds down, the last of the big buzzy films have hit the screen — and these five were based largely on memoirs and biographies. Try this quiz to see how many you know.`\
