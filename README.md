@@ -1,4 +1,4 @@
-**Red Wings get first win under McLellan: 5 thoughts**\
+**Red Wings get first win under new coach Todd McLellan: 5 thoughts**\
 `After the Red Wings' new coach gave a clear message at his first practice, his team responded by delivering his first win in Detroit.`\
 https://nytimes.com/athletic/6026045/2024/12/29/red-wings-mclellan-first-win-capitals/
 
