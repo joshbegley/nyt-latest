@@ -1,3 +1,15 @@
+**Trinidad and Tobago Declares State of Emergency Over Rising Crime**\
+`To curb gang killings and a rise in homicides, the measure empowers the military to make arrests and allows the authorities to enter suspects’ homes without warrants and deny them bail.`\
+https://nytimes.com/2024/12/30/world/americas/trinidad-and-tobago-emergency-crime.html
+
+**Jimmy Carter’s legacy**\
+`Plus, the search for answers on the Jeju Air crash. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/12/30/briefing/jimmy-carter-south-korea-plane-crash.html
+
+**The Briefing: Man Utd 0 Newcastle 2: Isak's electric form, Zirkzee lasts 33 minutes and Amorim's side lose again**\
+`Both these teams are making history — for very different reasons. Our writers analyse the key talking points from Newcastle's win`\
+https://nytimes.com/athletic/6017911/2024/12/30/man-united-newcastle-isak-zirkzee-amorim-analysis/
+
 **Our Favorite Crossword Debuts of 2024**\
 `Our puzzle editors and Wordplay columnists share their favorite new entries to the New York Times Crossword this year.`\
 https://nytimes.com/2024/12/30/crosswords/2024-crossword-debuts.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6027679/2024/12/30/college-football-playoff-transfe
 **Assault Charge Against Oklahoma Police Officer Is Dismissed**\
 `Oklahoma’s attorney general dismissed the charge against an Oklahoma City police sergeant who was seen in body camera footage throwing a 71-year-old man to the pavement during an argument over a ticket.`\
 https://nytimes.com/2024/12/30/us/oklahoma-officer-assault-charges-dropped.html
-
-**What to watch this week in NBA, with Timberwolves and Thunder ringing in New Year**\
-`What to watch across the NBA on New Year's week, including an enticing matchup between Minnesota and Oklahoma City on Monday.`\
-https://nytimes.com/athletic/6027678/2024/12/30/nba-what-to-watch-thunder-wolves/
-
-**Packers' Matt LaFleur sounds off on criticism of Tucker Kraft's low block**\
-`Vikings edge defender Jonathan Greenard told Kraft to "Be a man" in a Sunday night post on X.`\
-https://nytimes.com/athletic/6027993/2024/12/30/packers-matt-lafleur-tucker-kraft-block/
-
-**Tuesday Briefing: Remembering Jimmy Carter**\
-`Plus, the best of 2024.`\
-https://nytimes.com/2024/12/30/briefing/jimmy-carter-south-korea.html
 
