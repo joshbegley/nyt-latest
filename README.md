@@ -1,3 +1,19 @@
+**Notre Dame mailbag: Are Irish more 'bought-in' than before? What needs to happen to beat Georgia?**\
+`When did preparation for Georgia begin? Answering your questions ahead of Notre Dame's Sugar Bowl matchup against Georgia.`\
+https://nytimes.com/athletic/6027015/2024/12/30/how-will-notre-dame-replace-rylie-mills-how-can-irish-beat-georgia-mailbag/
+
+**Denim in the White House? President Carter Made It So.**\
+`He projected authenticity not just through his actions, but also with his uniform.`\
+https://nytimes.com/2024/12/30/style/jimmy-carter-fashion.html
+
+**Auston Matthews joins Maple Leafs practice for first time since aggravating injury**\
+`Matthews has missed the last four games after aggravating an undisclosed injury on Dec. 20 in Buffalo.`\
+https://nytimes.com/athletic/6027352/2024/12/30/auston-matthews-maple-leafs-injury-practice/
+
+**Trump Endorses Mike Johnson to Continue as House Speaker**\
+`The question of whether the president-elect would back the speaker for another term has hung over Republicans, especially after recent tensions over an end-of-year spending bill.`\
+https://nytimes.com/2024/12/30/us/politics/trump-johnson-house-speaker.html
+
 **Tennis Briefing: Djokovic and Kyrgios comments highlight doping problem, 2025 season begins**\
 `When tennis players speak, fans listen. So what happens when they're not quite right?`\
 https://nytimes.com/athletic/6025850/2024/12/30/tennis-doping-rules-djokovic-kyrgios/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/30/opinion/jimmy-carter-ronald-reagan.html
 **An Easy (and Less Expensive) Way to Ring in the New Year With Caviar**\
 `Eric Kim’s tobiko pasta combines the briny flavor of flying-fish roe with a rich, creamy sauce.`\
 https://nytimes.com/2024/12/30/dining/an-easy-and-less-expensive-way-to-ring-in-the-new-year-with-caviar.html
-
-**The New York Times 2024 Culture News Quiz**\
-`How well did you keep up with the world of arts and entertainment this year? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/12/30/arts/culture-news-quiz.html
-
-**Holding the ‘Title of Citizen,’ Carter Carved a New Mold for Ex-Presidents**\
-`Jimmy Carter redefined what a president can do after departing the White House, leaving a lasting imprint through his work overseas, particularly in the realm of public health.`\
-https://nytimes.com/2024/12/30/us/politics/jimmy-carter-post-presidency.html
-
-**Spurs year-in-review: Wemby's ascent, Popovich's absence, reasons to believe in 2025**\
-`The stroke suffered on Nov. 2 by Gregg Popovich dominates a Spurs year that has been defined both by great promise and remaining challenge.`\
-https://nytimes.com/athletic/6027029/2024/12/30/spurs-review-victor-wembanyama-gregg-popovich/
-
-**Yankees not ruling out DJ LeMahieu for everyday role in 2025 — but should they?**\
-`The Yankees' current infield vacancy has given LeMahieu the opportunity to prove his way back onto the team's starting lineup once again.`\
-https://nytimes.com/athletic/6025274/2024/12/30/yankees-dj-lemahieu-2025-role/
 
