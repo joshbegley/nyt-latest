@@ -1,3 +1,11 @@
+**Falcons' second-half collapse in Washington likely to haunt them for a long time**\
+`The Falcons were outscored 23-7 after halftime, mismanaged the clock and fumbled away the NFC South lead entering Week 18.`\
+https://nytimes.com/athletic/6026540/2024/12/30/falcons-commanders-second-half-collapse/
+
+**Submit your questions for Until Saturday’s podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/6026908/2024/12/30/college-football-questions-mailbag-until-saturday-41/
+
 **Jets deep dive: Mark Scheifele and Kyle Connor's chemistry, an update on defence**\
 `Breaking down what Jets coach Scott Arniel is getting right, a confusing depth chart on defence, a top line in flight and more.`\
 https://nytimes.com/athletic/6024001/2024/12/30/winnipeg-jets-scheifele-connor-nhl-defense/
