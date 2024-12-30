@@ -1,3 +1,11 @@
+**Conceicao appointed head coach of Milan**\
+`Sergio Conceicao has been appointed as the new head coach of AC Milan.`\
+https://nytimes.com/athletic/5995159/2024/12/30/milan-manager-next-sergio-conceicao-confirmed/
+
+**Experts Question Role of Concrete Wall Near Runway in South Korea Crash**\
+`Aviation safety analysts said they expect officials investigating the crash, which killed 179 people, to look into the location and composition of a structure housing an antenna.`\
+https://nytimes.com/2024/12/30/business/plane-crash-korea-wall-investigation.html
+
 **From Bird Strike to Crash: the Mystery of the Korean Plane’s Four Fateful Minutes**\
 `The time between when the pilot reported a bird strike and when it crashed could be key to unraveling one of the world’s worst aviation disasters in years.`\
 https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-cause.html
