@@ -1,3 +1,7 @@
+**On 40th birthday, LeBron says he could play at high level another 5-7 years**\
+`James made it clear that once he decides to retire, he won't unretire like Michael Jordan or Tom Brady did in their late 30s and early 40s.`\
+https://nytimes.com/athletic/6028277/2024/12/30/lebron-james-40th-birthday-lakers/
+
 **Hurzeler bemoans blocking of goalkeepers in Premier League**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler says football will become &#8220;a different kind of sport&#8221; unless the Premier League provides clarity on the blocking of goalkeepers at corners.`\
 https://nytimes.com/athletic/6028302/2024/12/30/fabian-hurzeler-blocking-aston-villa/
