@@ -1,3 +1,7 @@
+**Red Wings get first win under new coach Todd McLellan: 5 thoughts**\
+`After the Red Wings' new coach gave a clear message at his first practice, his team responded by delivering his first win in Detroit.`\
+https://nytimes.com/athletic/6026045/2024/12/29/red-wings-mclellan-first-win-capitals/
+
 **'I want a banner up there:' Saquon Barkley, Eagles look at bigger picture after milestone, win**\
 `Barkley joined rare company in reaching the 2,000-yard rushing mark.`\
 https://nytimes.com/athletic/6025024/2024/12/29/eagles-win-blowout-saquon-barkley-cowboys/
