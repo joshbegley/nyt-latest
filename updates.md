@@ -1,3 +1,7 @@
+**NBA Rewind: King James turns 40, while the Kings remain dysfunctional**\
+`On LeBron James' milestone birthday, Zach Harper wonders what's next for the Timberwolves and Kings. `\
+https://nytimes.com/athletic/6020328/2024/12/30/nba-rewind-lebron-james-lakers-mike-brown-kings-anthony-edwards-timberwolves-nba/
+
 **For South Korean Families, a Grim Wait for Bodies After Plane Crash**\
 `Officials said it could take up to 10 days to prepare the dead for transport, with the uncertainty adding to the shock and grief of relatives packed into an airport hall.`\
 https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-victims.html
