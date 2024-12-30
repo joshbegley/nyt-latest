@@ -1,3 +1,7 @@
+**‘Hanging Out With Jimmy Carter,’ Biden Faces the Echoes of History**\
+`President Biden is yet another one-term Democrat hurt by inflation and struggling to free hostages before leaving office. But Mr. Carter’s enhanced reputation offers hope that he too may be remembered more favorably.`\
+https://nytimes.com/2024/12/30/us/politics/jimmy-carter-joe-biden-history.html
+
 **Relegation talk is the 'shock' Man Utd need - Amorim**\
 `Manchester United head coach Ruben Amorim has said he talks about the prospect of relegation because the club needs a &#8220;shock&#8221;.`\
 https://nytimes.com/athletic/6028400/2024/12/30/ruben-amorim-relegation-talk-man-utd/
