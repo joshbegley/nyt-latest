@@ -1,3 +1,7 @@
+**$100 Million for One Square Mile: Deal to Protect Land in Grand Tetons**\
+`After years of negotiations and threats of development, Wyoming will sell a prized piece of land so that it can be preserved inside Grand Teton National Park.`\
+https://nytimes.com/2024/12/30/us/grand-teton-park-wyoming-sale.html
+
 **Read Walter Mondale’s Eulogy of Jimmy Carter**\
 `Former Vice President Walter Mondale died in 2021, but he left behind the eulogy he had planned to deliver. His son Ted Mondale will read it at Jimmy Carter’s memorial service at Washington National Cathedral on Jan. 9.`\
 https://nytimes.com/interactive/2024/12/30/us/politics/walter-mondale-eulogy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026731/2024/12/30/mike-brown-kings-lebron-james-la
 **Dominique Pelicot, Convicted in Mass Rape Trial in France, Will Not Appeal**\
 `Seventeen of the other 50 men convicted in the case — most for participating in rapes of Gisèle Pelicot, then Mr. Pelicot’s wife — have filed appeals, according to a lawyer.`\
 https://nytimes.com/2024/12/30/world/europe/dominique-pelicot-appeal-france-rape-trial.html
-
-**After Years in Prison, a Dancehall Star Returns to the Stage**\
-`Vybz Kartel served more than a decade of a murder sentence before his conviction was overturned. Despite imprisonment and a radio ban, his influence has grown.`\
-https://nytimes.com/2024/12/30/arts/music/vybz-kartel-concert-freedom-street.html
 

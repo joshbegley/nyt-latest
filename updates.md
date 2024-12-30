@@ -1,3 +1,7 @@
+**$100 Million for One Square Mile: Deal to Protect Land in Grand Tetons**\
+`After years of negotiations and threats of development, Wyoming will sell a prized piece of land so that it can be preserved inside Grand Teton National Park.`\
+https://nytimes.com/2024/12/30/us/grand-teton-park-wyoming-sale.html
+
 **Read Walter Mondale’s Eulogy of Jimmy Carter**\
 `Former Vice President Walter Mondale died in 2021, but he left behind the eulogy he had planned to deliver. His son Ted Mondale will read it at Jimmy Carter’s memorial service at Washington National Cathedral on Jan. 9.`\
 https://nytimes.com/interactive/2024/12/30/us/politics/walter-mondale-eulogy.html
