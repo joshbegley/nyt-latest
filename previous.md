@@ -1,6 +1,14 @@
+**Carter once supported segregationist policies, but he eventually won the enduring support of Black voters.**\
+`By Maya King and Richard Fausset`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-once-supported-segregationist-policies-but-he-eventually-won-the-enduring-support-of-black-voters
+
+**Josh Allen's ultimate MVP endorsement, Bills defense's statement performance, and more vs. Jets**\
+`Plus, Amari Cooper's usage and Matt Milano's role in his return.`\
+https://nytimes.com/athletic/6026014/2024/12/29/bills-win-josh-allen-mvp-performance-jets/
+
 **Brian Daboll makes plea for keeping his job after Giants snap 10-game losing streak**\
 `Much like Joe Judge’s epic postgame rant three years ago, it appeared Daboll’s message Sunday was intended for the ears of ownership. `\
-https://nytimes.com/athletic/6025884/2024/12/29/iants-win-brian-daboll-job-colts/
+https://nytimes.com/athletic/6025884/2024/12/29/giants-win-brian-daboll-job-colts/
 
 **Another ugly Jets loss, and a fraying relationship between Aaron Rodgers and Garrett Wilson**\
 `Among other issues, Sunday's loss in Buffalo highlighted the lingering discord between Hall of Fame QB and rising star receiver.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6025895/2024/12/29/raiders-ameer-abdullah-win-saint
 **Jimmy Carter’s Family Carved Varied Paths Through Life**\
 `Mr. Carter’s brother hawked Billy Beer and got tied up with the Libyans. His daughter was arrested while protesting the C.I.A. His grandson sought to follow him as governor of Georgia.`\
 https://nytimes.com/2024/12/29/us/jimmy-carter-kids-children-family.html
-
-**Patriots in control of 2025 NFL Draft No. 1 pick after Giants' win**\
-`A surprising Giants win completely shakes up the race for the No. 1 pick, putting New England in the driver's seat and sowing chaos. `\
-https://nytimes.com/athletic/6025578/2024/12/29/2025-nfl-draft-top-pick-projection/
-
-**Dolphins keep playoff hopes alive with 20-3 win over Browns: Takeaways**\
-`Now at 8-8, Miami remains in a three-way battle for the AFC's final playoff spot with the Broncos and Bengals.`\
-https://nytimes.com/athletic/6024792/2024/12/29/dolphins-browns-score-result-takeaways/
 

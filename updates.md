@@ -1,3 +1,15 @@
+**Carter once supported segregationist policies, but he eventually won the enduring support of Black voters.**\
+`By Maya King and Richard Fausset`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-once-supported-segregationist-policies-but-he-eventually-won-the-enduring-support-of-black-voters
+
+**Josh Allen's ultimate MVP endorsement, Bills defense's statement performance, and more vs. Jets**\
+`Plus, Amari Cooper's usage and Matt Milano's role in his return.`\
+https://nytimes.com/athletic/6026014/2024/12/29/bills-win-josh-allen-mvp-performance-jets/
+
+**Brian Daboll makes plea for keeping his job after Giants snap 10-game losing streak**\
+`Much like Joe Judge’s epic postgame rant three years ago, it appeared Daboll’s message Sunday was intended for the ears of ownership. `\
+https://nytimes.com/athletic/6025884/2024/12/29/giants-win-brian-daboll-job-colts/
+
 **Brian Daboll makes plea for keeping his job after Giants snap 10-game losing streak**\
 `Much like Joe Judge’s epic postgame rant three years ago, it appeared Daboll’s message Sunday was intended for the ears of ownership. `\
 https://nytimes.com/athletic/6025884/2024/12/29/iants-win-brian-daboll-job-colts/
