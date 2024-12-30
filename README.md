@@ -1,5 +1,5 @@
 **Why Jeff Skinner and the Oilers should stay the course and stick it out**\
-`Jeff Skinner, a star offseason signing a few months ago, became a healthy scratch just 36 games into the season with the Oilers.`\
+`Skinner, a star offseason signing a few months ago, became a healthy scratch just 36 games into the season with the Oilers.`\
 https://nytimes.com/athletic/6025926/2024/12/29/oilers-jeff-skinner-healthy-scratch-decline/
 
 **Raiders' Ameer Abdullah has found 'fountain of youth,' powers Las Vegas to another win**\

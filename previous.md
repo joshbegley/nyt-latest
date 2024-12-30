@@ -1,3 +1,19 @@
+**Why Jeff Skinner and the Oilers should stay the course and stick it out**\
+`Jeff Skinner, a star offseason signing a few months ago, became a healthy scratch just 36 games into the season with the Oilers.`\
+https://nytimes.com/athletic/6025926/2024/12/29/oilers-jeff-skinner-healthy-scratch-decline/
+
+**Raiders' Ameer Abdullah has found 'fountain of youth,' powers Las Vegas to another win**\
+`The 10-year veteran delivered the first 100-yard rushing performance of his NFL career in the Raiders' 25-10 win in New Orleans.`\
+https://nytimes.com/athletic/6025895/2024/12/29/raiders-ameer-abdullah-win-saints/
+
+**Jimmy Carter’s Family Carved Varied Paths Through Life**\
+`Mr. Carter’s brother hawked Billy Beer and got tied up with the Libyans. His daughter was arrested while protesting the C.I.A. His grandson sought to follow him as governor of Georgia.`\
+https://nytimes.com/2024/12/29/us/jimmy-carter-kids-children-family.html
+
+**Patriots in control of 2025 NFL Draft No. 1 pick after Giants' win**\
+`A surprising Giants win completely shakes up the race for the No. 1 pick, putting New England in the driver's seat and sowing chaos. `\
+https://nytimes.com/athletic/6025578/2024/12/29/2025-nfl-draft-top-pick-projection/
+
 **Dolphins keep playoff hopes alive with 20-3 win over Browns: Takeaways**\
 `Now at 8-8, Miami remains in a three-way battle for the AFC's final playoff spot with the Broncos and Bengals.`\
 https://nytimes.com/athletic/6024792/2024/12/29/dolphins-browns-score-result-takeaways/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/12/29/us/politics/jimmy-carter-south-bronx.html
 **Myles Garrett makes NFL history with 14-plus sacks in 4 consecutive seasons**\
 `After Sunday's game, his 102.5 career sacks are tied with Jim Jeffcoat for 38th on the NFL all-time list.`\
 https://nytimes.com/athletic/6025834/2024/12/29/browns-myles-garrett-sack-season-mark/
-
-**Carter remembered by politicians as a compassionate leader and humanitarian**\
-`Republicans and Democrats praised the former president’s service and character. Speaker Mike Johnson called his life “a testament to the boundless opportunities available in this great nation.”`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-remembered-by-politicians-as-a-compassionate-leader-and-humanitarian
-
-**Why Lakers have long coveted Dorian Finney-Smith and how he can immediately help**\
-`The Lakers are excited about the positional versatility Finney-Smith provides. And they still have flexibility to reinforce the roster.`\
-https://nytimes.com/athletic/6025301/2024/12/29/lakers-dorian-finney-smith-fit-nba-trade/
-
-**The former president’s long hospice stay let him witness a living eulogy.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/12/29/us/jimmy-carter/the-former-presidents-long-hospice-stay-let-him-witness-a-living-eulogy
-
-**U.S. Presidents Pay Tribute to Jimmy Carter**\
-`The living members of the exclusive club of Oval Office occupants said Mr. Carter would be remembered for his efforts to promote peace and democracy.`\
-https://nytimes.com/2024/12/29/us/politics/us-presidents-react-jimmy-carter-death.html
 
