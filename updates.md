@@ -1,3 +1,7 @@
+**Amy Carter, Thrust Into the Public Eye at a Young Age, Has Since Receded**\
+`Jimmy Carter’s daughter had an extraordinary and well-documented childhood in the White House. Since then she has for the most part lived a very private life.`\
+https://nytimes.com/2024/12/30/us/politics/amy-carter-jimmy.html
+
 **The Music Is Too Loud. That’s the Point.**\
 `Vinyl-focused listening bars inspired by ones in Japan are opening across New York, attracting audiophiles and city dwellers looking for a respite from the cacophony outside their doors.`\
 https://nytimes.com/2024/12/30/style/vinyl-listening-bars.html

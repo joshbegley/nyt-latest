@@ -1,3 +1,7 @@
+**Amy Carter, Thrust Into the Public Eye at a Young Age, Has Since Receded**\
+`Jimmy Carter’s daughter had an extraordinary and well-documented childhood in the White House. Since then she has for the most part lived a very private life.`\
+https://nytimes.com/2024/12/30/us/politics/amy-carter-jimmy.html
+
 **The Music Is Too Loud. That’s the Point.**\
 `Vinyl-focused listening bars inspired by ones in Japan are opening across New York, attracting audiophiles and city dwellers looking for a respite from the cacophony outside their doors.`\
 https://nytimes.com/2024/12/30/style/vinyl-listening-bars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/arts/music/jimmy-carter-berry-gordy.html
 **NFL Week 18 odds, schedule: Lions favored against Vikings for crucial tilt**\
 `Detroit is favored against Minnesota to decide the No. 1 seed in the NFC. There are a number of other playoff-deciding games in Week 18.`\
 https://nytimes.com/athletic/6027330/2024/12/30/nfl-week-18-odds-schedule-lions-vikings/
-
-**Sam Darnold continues late MVP push with a stellar stretch run for Vikings**\
-`Continuing his out-of-nowhere season for the Vikings, Darnold torched the Packers for a career-high 377 passing yards and three touchdowns.`\
-https://nytimes.com/athletic/6025474/2024/12/30/sam-darnold-mvp-push-vikings-packers/
 
