@@ -1,3 +1,7 @@
+**Iga Swiatek 'not expecting' WADA intervention in doping case as Poland agency declines to appeal**\
+`WADA has until January 21 2025 to lodge an appeal into Iga Swiatek's doping case after Polish anti-doping authorities declined to intervene.`\
+https://nytimes.com/athletic/6021786/2024/12/30/iga-swiatek-doping-ban-wada-appeal-timeline/
+
 **The numbers behind Mohamed Salah's historic Premier League season so far**\
 `Liverpool's talisman is having the greatest Premier League season for an attacker ever — and he's only played 18 games `\
 https://nytimes.com/athletic/6026134/2024/12/30/mohamed-salah-goals-assists-premier-league-history/
