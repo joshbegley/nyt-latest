@@ -1,3 +1,19 @@
+**Five Laws Going Into Effect for New York in 2025**\
+`Changes are coming to paid family leave, insulin costs, restaurant reservations, gym membership cancellations and protections for fashion industry workers.`\
+https://nytimes.com/2024/12/30/nyregion/ny-laws-2025-insulin-gym-membership.html
+
+**Shen Yun Needed Publicity. The Epoch Times Wrote 17,000 Articles.**\
+`A publisher that rose to prominence promoting right-wing conspiracy theories has also served as sword and shield for the dance group and the religious movement behind it.`\
+https://nytimes.com/2024/12/30/nyregion/shen-yun-epoch-times-falun-gong.html
+
+**Democratic N.Y. Lawmakers Brace for Risks of a Trump Administration**\
+`After President-elect Donald J. Trump’s gains in New York, lawmakers plan to focus on high costs and crime while safeguarding policies about immigration and abortion.`\
+https://nytimes.com/2024/12/30/nyregion/trump-ny-legislature.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/30/crosswords/spelling-bee-forum.html
+
 **The numbers behind Mohamed Salah's historic Premier League season so far**\
 `Liverpool's talisman is having the greatest Premier League season for an attacker ever - and he's only played 18 games `\
 https://nytimes.com/athletic/6026134/2024/12/30/mohamed-salah-goals-assists-premier-league-history/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6026315/2024/12/30/blackhawks-sorensen-breakdowns-j
 **Pacers punch their way past Celtics, showing teams trending in opposite directions**\
 `“I think we set our precedent for how we want to play,” the Pacers' Myles Turner said after a 123-114 win.`\
 https://nytimes.com/athletic/6026368/2024/12/30/celtics-pacers-nba-rematch/
-
-**Vikings stamp themselves as legitimate contenders with impressive victory over Packers**\
-`As the pressure continues to mount, the Vikings keep getting it done. Now the Lions are all that stand between them and the NFC's top seed.`\
-https://nytimes.com/athletic/6026333/2024/12/30/vikings-win-darnold-oconnell-contenders-packers/
-
-**Vitor Pereira has transformed Wolves' belief but he needs signings to fix their defence**\
-`The mood around Wolves has changed beyond belief, but the issues that put them in trouble have not gone away`\
-https://nytimes.com/athletic/6025135/2024/12/30/wolves-pereira-january-transfers-defender/
-
-**Vikings-Lions headlines NFL Week 18 schedule**\
-`The "Sunday Night Football" contest between Detroit and Minnesota will be a battle for the NFC's No. 1 seed.`\
-https://nytimes.com/athletic/6024929/2024/12/30/nfl-week-18-schedule-times-matchups/
-
-**Is Sean Dyche doing enough to merit another season at Everton?**\
-`If the new owners were watching this game, they wouldn’t have seen anything to persuade them to keep Dyche beyond the end of the campaign`\
-https://nytimes.com/athletic/6025163/2024/12/30/is-sean-dyche-doing-enough-to-merit-another-season-at-everton/
 
