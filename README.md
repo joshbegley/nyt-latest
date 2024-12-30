@@ -1,3 +1,7 @@
+**Iga Swiatek 'not expecting' WADA intervention in doping case as Poland agency declines to appeal**\
+`WADA has until January 21 2025 to lodge an appeal into Iga Swiatek's doping case after Polish anti-doping authorities declined to intervene.`\
+https://nytimes.com/athletic/6021786/2024/12/30/iga-swiatek-doping-ban-wada-appeal-timeline/
+
 **West Ham end 2024 with their calling card - conceding a heap of goals**\
 `West Ham's year ends on a bum note after a demoralising defeat and the mood surrounding Julen Lopetegui as sour as ever`\
 https://nytimes.com/athletic/6024917/2024/12/30/west-ham-2024-goals-conceded-lopetegui/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/arts/television/new-years-eve-specials-tv-this-we
 **Commanders clinch playoff berth with 30-24 OT win vs. Falcons: Takeaways**\
 `Jayden Daniels led a game-winning drive, capped by a touchdown pass to Zach Ertz, to continue his Rookie of the Year campaign.`\
 https://nytimes.com/athletic/6025909/2024/12/30/commanders-falcons-snf-score-result-takeaways/
-
-**'We just sucked': Blackhawks searching for answers again as Winter Classic arrives**\
-`The Blackhawks' improvement will be a long process, but individual breakdowns have started to creep in again under Anders Sorensen.`\
-https://nytimes.com/athletic/6026315/2024/12/30/blackhawks-sorensen-breakdowns-jones-stars/
 
