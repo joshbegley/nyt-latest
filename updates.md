@@ -1,3 +1,7 @@
+**CFB winter transfer window wrap-up: Hot teams, best players available**\
+`Which teams did the best in December? Who's allowed to hit the portal in January? And who are the top transfers still available?`\
+https://nytimes.com/athletic/6026978/2024/12/30/college-football-transfer-portal-best-available-whats-next/
+
 **From the Grave, Mondale to Eulogize the Man Who Made Him Vice President**\
 `Walter F. Mondale died in 2021, but he left behind the eulogy he planned to deliver at former President Jimmy Carter’s funeral.`\
 https://nytimes.com/2024/12/30/us/politics/mondale-carter-eulogy.html

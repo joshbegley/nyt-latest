@@ -1,3 +1,7 @@
+**CFB winter transfer window wrap-up: Hot teams, best players available**\
+`Which teams did the best in December? Who's allowed to hit the portal in January? And who are the top transfers still available?`\
+https://nytimes.com/athletic/6026978/2024/12/30/college-football-transfer-portal-best-available-whats-next/
+
 **From the Grave, Mondale to Eulogize the Man Who Made Him Vice President**\
 `Walter F. Mondale died in 2021, but he left behind the eulogy he planned to deliver at former President Jimmy Carter’s funeral.`\
 https://nytimes.com/2024/12/30/us/politics/mondale-carter-eulogy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026905/2024/12/30/ohio-state-oregon-rose-bowl-rema
 **What Nebraska's landmark Pinstripe Bowl win means for program momentum**\
 `While special teams hangs over their heads, the Huskers feel good about their young players, including quarterback Dylan Raiola. `\
 https://nytimes.com/athletic/6026956/2024/12/30/nebraska-pinstripe-bowl-college-football-matt-rhule/
-
-**For 49ers' Dre Greenlaw, football's pain and injuries are no match for his resolve**\
-`Dre Greenlaw has been through a lot just to get to the NFL. It's why the 49ers linebacker isn't deterred by another round of injuries.`\
-https://nytimes.com/athletic/6014551/2024/12/30/dre-greenlaw-san-francisco-49ers-achilles-injuries-free-agent/
 
