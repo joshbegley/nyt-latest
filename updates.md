@@ -1,3 +1,7 @@
+**Linda Lavin, Broadway Actress and Star of TV Sitcom ‘Alice,’ Dies at 87**\
+`She won two Golden Globe Awards and an Emmy nomination for her role on the show. She also earned a Tony Award for best actress in the play “Broadway Bound.”`\
+https://nytimes.com/2024/12/30/arts/linda-lavin-dead.html
+
 **Jayden Daniels' clutch gene leads Commanders to playoffs: 'There's nobody like him'**\
 `The rookie capped his latest unreal performance with a TD pass on the opening drive of OT to secure Washington a spot in the postseason. `\
 https://nytimes.com/athletic/6026639/2024/12/30/commanders-jayden-daniels-clinch-playoff-berth/

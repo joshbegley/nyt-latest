@@ -1,3 +1,7 @@
+**Linda Lavin, Broadway Actress and Star of TV Sitcom ‘Alice,’ Dies at 87**\
+`She won two Golden Globe Awards and an Emmy nomination for her role on the show. She also earned a Tony Award for best actress in the play “Broadway Bound.”`\
+https://nytimes.com/2024/12/30/arts/linda-lavin-dead.html
+
 **Jayden Daniels' clutch gene leads Commanders to playoffs: 'There's nobody like him'**\
 `The rookie capped his latest unreal performance with a TD pass on the opening drive of OT to secure Washington a spot in the postseason. `\
 https://nytimes.com/athletic/6026639/2024/12/30/commanders-jayden-daniels-clinch-playoff-berth/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-victims.html
 **The Pulse: NFL's 2 most important battles right now**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6026263/2024/12/30/nfl-playoff-picture-week-17-the-pulse/
-
-**Jimmy Carter, on Death**\
-`In a culture where death as a subject is often taboo, Mr. Carter left behind a compilation of observations about the end. Here is a selection of those writings.`\
-https://nytimes.com/interactive/2024/12/30/us/carter-on-death.html
 
