@@ -1,3 +1,7 @@
+**The numbers behind Mohamed Salah's historic Premier League season so far**\
+`Liverpool's talisman is having the greatest Premier League season for an attacker ever — and he's only played 18 games `\
+https://nytimes.com/athletic/6026134/2024/12/30/mohamed-salah-goals-assists-premier-league-history/
+
 **West Ham end 2024 with their calling card - conceding a heap of goals**\
 `West Ham's year ends on a bum note after a demoralising defeat and the mood surrounding Julen Lopetegui as sour as ever`\
 https://nytimes.com/athletic/6024917/2024/12/30/west-ham-2024-goals-conceded-lopetegui/
