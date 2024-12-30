@@ -1,3 +1,11 @@
+**The Life and Legacy of Jimmy Carter**\
+`At 100, he was the longest-lived president in American history, admired more for what he did after leaving office than for his single term in the White House.`\
+https://nytimes.com/2024/12/30/podcasts/the-daily/jimmy-carter-death.html
+
+**Nottingham Forest hopeful Murillo, Hudson-Odoi injuries are not serious**\
+`Nottingham Forest are hopeful that neither Murillo nor Callum Hudson-Odoi will be sidelined for long with injury.`\
+https://nytimes.com/athletic/6026735/2024/12/30/murillo-hudson-odoi-injury-forest/
+
 **Boeing Shares Drop After South Korean Crash**\
 `A widely used Boeing aircraft, the 737-800, was involved in Sunday’s crash-landing of a Jeju Air flight that killed 179 people.`\
 https://nytimes.com/2024/12/30/business/boeing-stock-south-korea-plane-crash.html
