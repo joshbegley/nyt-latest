@@ -1,3 +1,15 @@
+**Tough night for Wild's first line, but details costly in the end: 3 takeaways vs. Senators**\
+`The Wild struggled to take advantage of their chances against a beatable goalie in their second game without Kaprizov.`\
+https://nytimes.com/athletic/6025956/2024/12/30/wild-top-line-penalty-kill-senators/
+
+**Cedric Soares interview: 'Mikel Arteta changed the way I see football'**\
+`The former Arsenal defender reflects on his time in north London, his returns since leaving and discusses his plans for the future`\
+https://nytimes.com/athletic/6001673/2024/12/30/cedric-soares-interview-mikel-arteta-changed-the-way-i-see-football/
+
+**Explained: The Premier League players who can sign a pre-contract agreement in January**\
+`As part of the 1995 Bosman ruling, clubs from other countries can now discuss and finalise pre-contract agreements with players in England`\
+https://nytimes.com/athletic/6006330/2024/12/30/explained-the-premier-league-players-who-can-sign-a-pre-contract-agreement-in-january/
+
 **Monday Briefing**\
 `Jimmy Carter dies at 100.`\
 https://nytimes.com/2024/12/30/briefing/jimmy-carter-plane-crash.html
