@@ -1,3 +1,7 @@
+**The Seahawks replaced Pete Carroll to escape mediocrity. In Year 1, they failed**\
+`Mike Macdonald was hired to elevate the Seahawks, but they remain stuck on the same level as the end of the Carroll era.`\
+https://nytimes.com/athletic/6026554/2024/12/30/seahawks-playoffs-eliminated-mike-macdonald/
+
 **Falcons' Raheem Morris laments not using timeout on final drive vs. Commanders**\
 `Morris decided against using one of his two timeouts and 17 seconds ran off the clock in between plays.`\
 https://nytimes.com/athletic/6027244/2024/12/30/falcons-raheem-morris-timeout-commanders/
