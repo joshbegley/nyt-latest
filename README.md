@@ -1,3 +1,7 @@
+**Donte DiVincenzo is finally feeling Minnesota after his heart got over New York**\
+`DiVincenzo scored 26 points Sunday and is looking like the skilled, confident player the Wolves traded for. It just took him a while. `\
+https://nytimes.com/athletic/6026132/2024/12/30/donte-dinvencenzo-timberwolves-knicks-nba/
+
 **Another Raiders win sets up an important regular-season finale for coach Antonio Pierce**\
 `A second straight win has taken the Raiders out of the running for a top draft pick. But could this late push save Pierce's job?`\
 https://nytimes.com/athletic/6025585/2024/12/30/raiders-win-antonio-pierce-job-security-saints/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026100/2024/12/30/nhl-weekend-rankings-red-wings-s
 **Zion to Brooklyn? Brandon Ingram to ... anywhere? Evaluating your Pelicans trades**\
 `Is there a bigger trade for the Pelicans to make, or will they be stuck working on the margins with the new CBA? `\
 https://nytimes.com/athletic/6024480/2024/12/30/new-orleans-trade-rumors-zion-williamson/
-
-**The MLB starting pitcher rankings I got right (and wrong) in 2024: Sarris**\
-`Some lessons were reinforced, and others were learned, from 2024's starting pitcher rankings.`\
-https://nytimes.com/athletic/5966427/2024/12/30/starting-pitcher-rankings-2024-hits-misses/
 
