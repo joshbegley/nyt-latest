@@ -1,3 +1,7 @@
+**Boeing Shares Drop After South Korean Crash**\
+`A widely used Boeing aircraft, the 737-800, was involved in Sunday’s crash-landing of a Jeju Air flight that killed 179 people.`\
+https://nytimes.com/2024/12/30/business/boeing-stock-south-korea-plane-crash.html
+
 **40 for 40: LeBron James' top-40 NBA moments and accomplishments**\
 `As LeBron turns 40, let's relive some of his most notable achievements, from his debut in Sacramento to playing alongside his son Bronny.`\
 https://nytimes.com/athletic/6018678/2024/12/30/lebron-james-40th-birthday-nba-moments/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/us/elections/2024-polls-grades.html
 **San Diego State transfer Danny O'Neil adds to Wisconsin's new-look quarterback group**\
 `O'Neil started for one season for the Aztecs and knew he might be have to give up that starting role with the Baders.`\
 https://nytimes.com/athletic/6016279/2024/12/30/wisconsin-college-football-quarterbacks-danny-oneil/
-
-**Wi Ha-jun of ‘Squid Game’ on the Challenges of Brotherly Love**\
-`All sibling relationships are complex — more so when your brother is a criminal mastermind who shoots you. Wi talked about his character’s predicament.`\
-https://nytimes.com/2024/12/30/arts/television/wi-ha-jun-squid-game-season-2.html
 
