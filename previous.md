@@ -1,5 +1,5 @@
-**China Hacked Treasury Dept. in ‘Major Incident,’ U.S. Says**\
-`The department notified lawmakers of the breach, which it said was linked to a state-sponsored actor in China.`\
+**China Hacked Treasury Dept. in ‘Major’ Breach, U.S. Says**\
+`The department notified lawmakers of the episode, which it said was linked to a state-sponsored actor in China.`\
 https://nytimes.com/2024/12/30/us/politics/china-hack-treasury.html
 
 **Scoop City: Every key scenario for Week 18**\
