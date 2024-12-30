@@ -1,3 +1,7 @@
+**In his own words: Carter had ‘fear for our democracy.’**\
+`By The New York Times`\
+https://nytimes.com/2024/12/29/us/in-his-own-words-carter-had-fear-for-our-democracy.html
+
 **Josh Allen's ultimate MVP endorsement, Bills defense's statement performance vs. Jets, more**\
 `Plus, Amari Cooper's usage and Matt Milano's role in his return.`\
 https://nytimes.com/athletic/6026014/2024/12/29/bills-win-josh-allen-mvp-performance-jets/
