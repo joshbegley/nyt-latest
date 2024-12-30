@@ -1,3 +1,7 @@
+**Five People Indicted in Connection With Liam Payne’s Fatal Fall**\
+`Two people are accused of supplying the singer with drugs and three others with negligence related to his fall from the balcony of a Buenos Aires hotel.`\
+https://nytimes.com/2024/12/30/arts/music/liam-payne-indictments.html
+
 **Heat Today: How Tyler Herro's All-Star case grows by the day**\
 `From timely clutch plays to versatile production, Herro's first NBA All-Star nod feels inevitable.`\
 https://nytimes.com/athletic/6026899/2024/12/30/tyler-herro-heat-all-star-nba/

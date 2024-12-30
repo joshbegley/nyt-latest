@@ -1,3 +1,7 @@
+**Five People Indicted in Connection With Liam Payne’s Fatal Fall**\
+`Two people are accused of supplying the singer with drugs and three others with negligence related to his fall from the balcony of a Buenos Aires hotel.`\
+https://nytimes.com/2024/12/30/arts/music/liam-payne-indictments.html
+
 **Heat Today: How Tyler Herro's All-Star case grows by the day**\
 `From timely clutch plays to versatile production, Herro's first NBA All-Star nod feels inevitable.`\
 https://nytimes.com/athletic/6026899/2024/12/30/tyler-herro-heat-all-star-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/technology/good-tech-awards.html
 **How Jiří Kulich's breakthrough has stood out during Sabres' 3-game winning streak**\
 `Kulich’s emergence has been a welcome development for a Sabres team that’s lacked secondary scoring.`\
 https://nytimes.com/athletic/6027348/2024/12/30/sabres-prospect-jiri-kulich-stats/
-
-**The most likely upsets for the College Football Playoff's second round**\
-`The seedings for the College Football Playoff and the betting lines stand almost entirely at, ahem, odds. Read for the most likely upsets.`\
-https://nytimes.com/athletic/6027192/2024/12/30/college-football-playoff-upset-predictions-quarterfinals/
 
