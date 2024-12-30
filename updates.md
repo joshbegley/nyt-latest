@@ -1,3 +1,7 @@
+**Carter remembered by politicians as a compassionate leader and humanitarian**\
+`Republicans and Democrats praised the former president’s service and character. Speaker Mike Johnson called his life “a testament to the boundless opportunities available in this great nation.”`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-remembered-by-politicians-as-a-compassionate-leader-and-humanitarian
+
 **Why Lakers have long coveted Dorian Finney-Smith and how he can immediately help**\
 `The Lakers are excited about the positional versatility Finney-Smith provides. And they still have flexibility to reinforce the roster.`\
 https://nytimes.com/athletic/6025301/2024/12/29/lakers-dorian-finney-smith-fit-nba-trade/
