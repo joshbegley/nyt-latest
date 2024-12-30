@@ -1,3 +1,7 @@
+**‘Aida’ Returns to the Met Opera Through Archaeologists’ Eyes**\
+`Michael Mayer is directing the Met’s first new production of Verdi’s classic in nearly four decades, aiming for something fresh yet enduring.`\
+https://nytimes.com/2024/12/30/arts/music/aida-met-opera.html
+
 **Syria’s Rebel Leader Offers Hint of Timetable for Potential Elections**\
 `Ahmed al-Shara, who led the rebel offensive that toppled Bashar al-Assad, offered little clarity on what the electoral process might look like.`\
 https://nytimes.com/2024/12/30/world/middleeast/syria-rebel-leader-elections.html
