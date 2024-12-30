@@ -1,3 +1,11 @@
+**Jayden Daniels' clutch gene leads Commanders to playoffs: 'There's nobody like him'**\
+`The rookie capped his latest unreal performance with a TD pass on the opening drive of OT to secure Washington a spot in the postseason. `\
+https://nytimes.com/athletic/6026639/2024/12/30/commanders-jayden-daniels-clinch-playoff-berth/
+
+**Vote: Where will Nottingham Forest finish in the Premier League this season?**\
+`Nottingham Forest are second in the Premier League - but where do you think they will finish at the end of the season?`\
+https://nytimes.com/athletic/6026858/2024/12/30/vote-where-will-nottingham-forest-finish-in-the-premier-league-this-season/
+
 **Donte DiVincenzo is finally feeling Minnesota after his heart got over New York**\
 `DiVincenzo scored 26 points Sunday and is looking like the skilled, confident player the Wolves traded for. It just took him a while. `\
 https://nytimes.com/athletic/6026132/2024/12/30/donte-dinvencenzo-timberwolves-knicks-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6026263/2024/12/30/nfl-playoff-picture-week-17-the-
 **Jimmy Carter, on Death**\
 `In a culture where death as a subject is often taboo, Mr. Carter left behind a compilation of observations about the end. Here is a selection of those writings.`\
 https://nytimes.com/interactive/2024/12/30/us/carter-on-death.html
-
-**Weekend NHL rankings: Change finally comes in Detroit, plus I was wrong but it's fine**\
-`Steve Yzerman can admit when he got something wrong, and on occasion, so can sports writers.`\
-https://nytimes.com/athletic/6026100/2024/12/30/nhl-weekend-rankings-red-wings-sabres/
-
-**Zion to Brooklyn? Brandon Ingram to ... anywhere? Evaluating your Pelicans trades**\
-`Is there a bigger trade for the Pelicans to make, or will they be stuck working on the margins with the new CBA? `\
-https://nytimes.com/athletic/6024480/2024/12/30/new-orleans-trade-rumors-zion-williamson/
 
