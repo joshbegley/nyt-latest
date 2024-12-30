@@ -1,3 +1,7 @@
+**Boeing Shares Drop After South Korean Crash**\
+`A widely used Boeing aircraft, the 737-800, was involved in Sunday’s crash-landing of a Jeju Air flight that killed 179 people.`\
+https://nytimes.com/2024/12/30/business/boeing-stock-south-korea-plane-crash.html
+
 **40 for 40: LeBron James' top-40 NBA moments and accomplishments**\
 `As LeBron turns 40, let's relive some of his most notable achievements, from his debut in Sacramento to playing alongside his son Bronny.`\
 https://nytimes.com/athletic/6018678/2024/12/30/lebron-james-40th-birthday-nba-moments/
