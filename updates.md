@@ -1,3 +1,7 @@
+**Donte DiVincenzo is finally feeling Minnesota after his heart got over New York**\
+`DiVincenzo scored 26 points Sunday and is looking like the skilled, confident player the Wolves traded for. It just took him a while. `\
+https://nytimes.com/athletic/6026132/2024/12/30/donte-dinvencenzo-timberwolves-knicks-nba/
+
 **Another Raiders win sets up an important regular-season finale for coach Antonio Pierce**\
 `A second straight win has taken the Raiders out of the running for a top draft pick. But could this late push save Pierce's job?`\
 https://nytimes.com/athletic/6025585/2024/12/30/raiders-win-antonio-pierce-job-security-saints/
