@@ -1,3 +1,11 @@
+**Relegation talk is the 'shock' Man Utd need - Amorim**\
+`Manchester United head coach Ruben Amorim has said he talks about the prospect of relegation because the club needs a &#8220;shock&#8221;.`\
+https://nytimes.com/athletic/6028400/2024/12/30/ruben-amorim-relegation-talk-man-utd/
+
+**Missouri rallies vs. Iowa for win in Music City Bowl**\
+`It marked Missouri’s 14th come-from-behind victory in the last two seasons and the ninth that took place in the second half.`\
+https://nytimes.com/athletic/6028366/2024/12/30/missouri-iowa-music-city-bowl-result-analysis/
+
 **Southgate knighted in King's New Year's Honours list**\
 `Former England manager Gareth Southgate has been knighted in King Charles III&#8217;s New Year&#8217;s Honours list.`\
 https://nytimes.com/athletic/6028258/2024/12/30/gareth-southgate-knighthood-england/
