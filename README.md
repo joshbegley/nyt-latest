@@ -1,3 +1,7 @@
+**Rashford returns to Man United squad after four-game absence**\
+`The England international has missed the club's last four games in all competitions`\
+https://nytimes.com/athletic/6026714/2024/12/30/manchester-united-team-news-marcus-rashford/
+
 **Jaden Rashada says 'I needed Georgia,' in QB's first public interviews since transfer**\
 `Rashada became the poster child for college football's new era when he went through an eight-figure NIL dispute as a recruit. `\
 https://nytimes.com/athletic/6027609/2024/12/30/jaden-rashada-georgia-quarterback-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/arts/music/liam-payne-indictments.html
 **Heat Today: How Tyler Herro's All-Star case grows by the day**\
 `From timely clutch plays to versatile production, Herro's first NBA All-Star nod feels inevitable.`\
 https://nytimes.com/athletic/6026899/2024/12/30/tyler-herro-heat-all-star-nba/
-
-**Jaylen Mbakwe to stay at WR, Kadyn Proctor to play vs. Michigan**\
-`Mbakwe’s experiment at wide receiver is likely a permanent move for Alabama.`\
-https://nytimes.com/athletic/6027452/2024/12/30/alabama-football-jaylen-mbakwe-kadyn-proctor/
 
