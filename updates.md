@@ -1,3 +1,7 @@
+**Carter Had Complicated History With Israel, Despite Camp David Accords**\
+`After his presidency, Jimmy Carter became critical of Israel’s treatment of Palestinians and likened the situation to apartheid.`\
+https://nytimes.com/2024/12/29/us/politics/carter-israel-camp-david.html
+
 **Mark Gronowski, lauded South Dakota State QB, enters transfer portal**\
 `Gronowski guided the Jackrabbits to national titles in 2022 and 2023 and a semifinal appearance this fall.`\
 https://nytimes.com/athletic/6026359/2024/12/29/mark-gronowski-transfer-portal-south-dakota-state/

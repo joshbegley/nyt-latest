@@ -1,3 +1,7 @@
+**Carter Had Complicated History With Israel, Despite Camp David Accords**\
+`After his presidency, Jimmy Carter became critical of Israel’s treatment of Palestinians and likened the situation to apartheid.`\
+https://nytimes.com/2024/12/29/us/politics/carter-israel-camp-david.html
+
 **Mark Gronowski, lauded South Dakota State QB, enters transfer portal**\
 `Gronowski guided the Jackrabbits to national titles in 2022 and 2023 and a semifinal appearance this fall.`\
 https://nytimes.com/athletic/6026359/2024/12/29/mark-gronowski-transfer-portal-south-dakota-state/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/29/us/politics/carter-atlanta-dive-bar.html
 **Move over, Mario: Sidney Crosby passes Lemieux to becomes Penguins' assist leader**\
 `Crosby made history yet again and earned a standing ovation as the Penguins held on to defeat the Islanders 3-2 at home.`\
 https://nytimes.com/athletic/6025912/2024/12/29/penguins-sidney-crosby-assist-record-lemieux-islanders/
-
-**Red Wings get first win under new coach Todd McLellan: 5 thoughts**\
-`After the Red Wings' new coach gave a clear message at his first practice, his team responded by delivering his first win in Detroit.`\
-https://nytimes.com/athletic/6026045/2024/12/29/red-wings-mclellan-first-win-capitals/
 
