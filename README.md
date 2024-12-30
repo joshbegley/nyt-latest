@@ -1,6 +1,6 @@
 **Brian Daboll makes plea for keeping his job after Giants snap 10-game losing streak**\
 `Much like Joe Judge’s epic postgame rant three years ago, it appeared Daboll’s message Sunday was intended for the ears of ownership. `\
-https://nytimes.com/athletic/6025884/2024/12/29/iants-win-brian-daboll-job-colts/
+https://nytimes.com/athletic/6025884/2024/12/29/giants-win-brian-daboll-job-colts/
 
 **Another ugly Jets loss, and a fraying relationship between Aaron Rodgers and Garrett Wilson**\
 `Among other issues, Sunday's loss in Buffalo highlighted the lingering discord between Hall of Fame QB and rising star receiver.`\
