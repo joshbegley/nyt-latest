@@ -1,3 +1,7 @@
+**Packers' Matt LaFleur sounds off on criticism of Tucker Kraft's low block**\
+`Vikings edge defender Jonathan Greenard told Kraft to "Be a man" in a Sunday night post on X.`\
+https://nytimes.com/athletic/6027993/2024/12/30/packers-matt-lafleur-tucker-kraft-block/
+
 **Tuesday Briefing: Remembering Jimmy Carter**\
 `Plus, the best of 2024.`\
 https://nytimes.com/2024/12/30/briefing/jimmy-carter-south-korea.html

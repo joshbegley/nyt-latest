@@ -1,3 +1,7 @@
+**Packers' Matt LaFleur sounds off on criticism of Tucker Kraft's low block**\
+`Vikings edge defender Jonathan Greenard told Kraft to "Be a man" in a Sunday night post on X.`\
+https://nytimes.com/athletic/6027993/2024/12/30/packers-matt-lafleur-tucker-kraft-block/
+
 **Tuesday Briefing: Remembering Jimmy Carter**\
 `Plus, the best of 2024.`\
 https://nytimes.com/2024/12/30/briefing/jimmy-carter-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/opinion/letters/jimmy-carter-readers-react.html
 **Vrabel permitted to leave Browns, start head-coaching interviews**\
 `The former Tennessee Titans coach is expected to be one of the most coveted candidates available.`\
 https://nytimes.com/athletic/6027101/2024/12/30/mike-vrabel-head-coaching-interviews/
-
-**AP Top 25: UCLA, Memphis rise, Tennessee on top to start 2025**\
-`The arrival of conference play in high-major leagues across the country this week presents several opportunities for Top 25 shakeups.`\
-https://nytimes.com/athletic/6027643/2024/12/30/ap-mens-basketball-top-25-rankings-ucla-memphis/
 
