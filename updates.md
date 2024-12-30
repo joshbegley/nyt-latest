@@ -1,3 +1,11 @@
+**Jaylen Mbakwe to stay at WR, Kadyn Proctor to play vs. Michigan**\
+`Mbakwe’s experiment at wide receiver is likely a permanent move for Alabama.`\
+https://nytimes.com/athletic/6027452/2024/12/30/alabama-football-jaylen-mbakwe-kadyn-proctor/
+
+**Fire-Friendly Weather Predicted for Parts of the High Plains and Southern California**\
+`Forecasters warned of a “critical” wildfire risk on Monday in New Mexico, Texas and Oklahoma.`\
+https://nytimes.com/2024/12/30/weather/wildfire-risk-california-texas.html
+
 **Jimmy Carter and Motown Founder Berry Gordy’s Surprising Connection**\
 `According to a detailed family history compiled by one of the former president’s sons, the two men shared a common ancestor in 19th-century Georgia.`\
 https://nytimes.com/2024/12/30/arts/music/jimmy-carter-berry-gordy.html
