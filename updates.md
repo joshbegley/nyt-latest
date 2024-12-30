@@ -1,3 +1,7 @@
+**Jimmy Carter, on Death**\
+`In a culture where death as a subject is often taboo, Mr. Carter left behind a compilation of observations about the end. Here is a selection of those writings.`\
+https://nytimes.com/interactive/2024/12/30/us/carter-on-death.html
+
 **Weekend NHL rankings: Change finally comes in Detroit, plus I was wrong but it's fine**\
 `Steve Yzerman can admit when he got something wrong, and on occasion, so can sports writers.`\
 https://nytimes.com/athletic/6026100/2024/12/30/nhl-weekend-rankings-red-wings-sabres/
