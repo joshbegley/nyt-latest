@@ -1,3 +1,7 @@
+**The manner of Paulo Fonseca’s Milan exit may have been shabby - but change was needed**\
+`Fonseca struggled over six months as Milan coach to win over a fanbase whose expectations are not being met - on or off the pitch `\
+https://nytimes.com/athletic/6026677/2024/12/30/inside-milan-fonseca-sacked-conceicao/
+
 **Conceicao appointed head coach of Milan**\
 `Sergio Conceicao has been appointed as the new head coach of AC Milan.`\
 https://nytimes.com/athletic/5995159/2024/12/30/milan-manager-next-sergio-conceicao-confirmed/

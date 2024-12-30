@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6014551/2024/12/30/dre-greenlaw-san-francisco-49ers
 https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-cause.html
 
 **The manner of Paulo Fonseca’s Milan exit may have been shabby - but change was needed**\
-`Fonseca struggled to win over a fanbase whose expectations are not being met — on or off the pitch `\
+`Fonseca struggled over six months as Milan coach to win over a fanbase whose expectations are not being met - on or off the pitch `\
 https://nytimes.com/athletic/6026677/2024/12/30/inside-milan-fonseca-sacked-conceicao/
 
 **Carter Funeral Service to Be Held at Washington National Cathedral on Jan. 9**\
