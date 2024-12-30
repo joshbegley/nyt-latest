@@ -1,3 +1,19 @@
+**Carter’s Navy Legacy Includes a Top-Secret Spy Submarine Named After Him**\
+`The former president, who served aboard submarines as a young naval officer, was “in awe” when he learned the capabilities of the U.S.S. Jimmy Carter.`\
+https://nytimes.com/2024/12/29/us/navy-jimmy-carter-submarine.html
+
+**President Biden Pays Tribute to Jimmy Carter**\
+`President Biden said that former President Jimmy Carter, who died on Sunday at 100, was not only a great leader but also a “dear friend.”`\
+https://nytimes.com/video/us/politics/100000009900402/biden-jimmy-carter.html
+
+**'I want a banner up there:' Saquon Barkley, Eagles look at bigger picture after milestone, win**\
+`Saquon Barkley joined rare company in reaching the 2,000-yard rushing mark.`\
+https://nytimes.com/athletic/6025024/2024/12/29/eagles-win-blowout-saquon-barkley-cowboys/
+
+**In his own words: Carter had ‘fear for our democracy.’**\
+`By The New York Times`\
+https://nytimes.com/2024/12/29/us/in-his-own-words-carter-had-fear-for-our-democracy.html
+
 **Jimmy Carter’s Family Carved Varied Paths Through Life**\
 `Mr. Carter’s brother hawked Billy Beer and got tied up with the Libyans. His daughter was arrested while protesting the C.I.A. His grandson sought to follow him as governor of Georgia.`\
 https://nytimes.com/2024/12/29/us/jimmy-carter-kids-children-family.html
