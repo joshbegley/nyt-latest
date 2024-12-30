@@ -1,3 +1,7 @@
+**The best of 2024 from The Athletic's North American soccer staff**\
+`Here are our best stories from 2024 in North American soccer`\
+https://nytimes.com/athletic/6021770/2024/12/30/2024-us-soccer-best-stories/
+
 **The Athletic FC: Can Forest qualify for Champions League? Aaronson's classy goal, Fonseca sacked**\
 `Today in TAFC: Could Forest be playing in Europe next season? Salah's incredible stats and Aaronson helps take Leeds top of the Championship`\
 https://nytimes.com/athletic/6026702/2024/12/30/nottingham-forest-champions-league-aaronson-leeds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024001/2024/12/30/winnipeg-jets-scheifele-connor-n
 **Linda Lavin, Broadway Actress and Star of TV Sitcom ‘Alice,’ Dies at 87**\
 `She won two Golden Globe Awards and an Emmy nomination for her role on the show. She also earned a Tony Award for best actress in the play “Broadway Bound.”`\
 https://nytimes.com/2024/12/30/arts/linda-lavin-dead.html
-
-**Jayden Daniels' clutch gene leads Commanders to playoffs: 'There's nobody like him'**\
-`The rookie capped his latest unreal performance with a TD pass on the opening drive of OT to secure Washington a spot in the postseason. `\
-https://nytimes.com/athletic/6026639/2024/12/30/commanders-jayden-daniels-clinch-playoff-berth/
 
