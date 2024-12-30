@@ -1,3 +1,7 @@
+**Jimmy Carter, the President and the Man**\
+`Readers praise the former president’s accomplishments and character and recall encounters with him.`\
+https://nytimes.com/2024/12/30/opinion/letters/jimmy-carter-readers-react.html
+
 **Vrabel permitted to leave Browns, start head-coaching interviews**\
 `The former Tennessee Titans coach is expected to be one of the most coveted candidates available.`\
 https://nytimes.com/athletic/6027101/2024/12/30/mike-vrabel-head-coaching-interviews/

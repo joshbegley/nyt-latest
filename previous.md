@@ -1,3 +1,7 @@
+**Jimmy Carter, the President and the Man**\
+`Readers praise the former president’s accomplishments and character and recall encounters with him.`\
+https://nytimes.com/2024/12/30/opinion/letters/jimmy-carter-readers-react.html
+
 **Vrabel permitted to leave Browns, start head-coaching interviews**\
 `The former Tennessee Titans coach is expected to be one of the most coveted candidates available.`\
 https://nytimes.com/athletic/6027101/2024/12/30/mike-vrabel-head-coaching-interviews/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027627/2024/12/30/sean-payton-broncos-two-point-tr
 **Rashford returns to Man United squad after four-game absence**\
 `The England international has missed the club's last four games in all competitions`\
 https://nytimes.com/athletic/6026714/2024/12/30/manchester-united-team-news-marcus-rashford/
-
-**Jaden Rashada says 'I needed Georgia,' in QB's first public interviews since transfer**\
-`Rashada became the poster child for college football's new era when he went through an eight-figure NIL dispute as a recruit. `\
-https://nytimes.com/athletic/6027609/2024/12/30/jaden-rashada-georgia-quarterback-transfer/
 
