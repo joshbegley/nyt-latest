@@ -1,3 +1,7 @@
+**‘She Was Almost Home’: Father Mourns South Korea Plane Crash Victim**\
+`Jeon Je-young was among the hundreds of family members waiting for news from the authorities about Jeju Air Flight 2216, which crashed at an airport in South Korea.`\
+https://nytimes.com/video/world/asia/100000009900500/south-korea-plane-crash-victim.html
+
 **'We just sucked': Blackhawks searching for answers again as Winter Classic arrives**\
 `The Blackhawks' improvement will be a long process, but individual breakdowns have started to creep in again under Anders Sorensen.`\
 https://nytimes.com/athletic/6026315/2024/12/30/blackhawks-sorensen-breakdowns-jones-stars/

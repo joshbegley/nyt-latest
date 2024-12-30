@@ -1,3 +1,7 @@
+**‘She Was Almost Home’: Father Mourns South Korea Plane Crash Victim**\
+`Jeon Je-young was among the hundreds of family members waiting for news from the authorities about Jeju Air Flight 2216, which crashed at an airport in South Korea.`\
+https://nytimes.com/video/world/asia/100000009900500/south-korea-plane-crash-victim.html
+
 **New Year’s Eve Specials, Plus 3 Things to Watch on TV this Week**\
 `Several networks will host their annual countdowns on Tuesday, and award season will begin with the Golden Globes on Sunday.`\
 https://nytimes.com/2024/12/30/arts/television/new-years-eve-specials-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025163/2024/12/30/is-sean-dyche-doing-enough-to-me
 **Leicester have two clean sheets in 42 Premier League matches - individual errors are costing them**\
 `Across Van Nistelrooy's six matches in charge, Leicester have made four errors leading to shots and three errors leading to goals.`\
 https://nytimes.com/athletic/6025258/2024/12/30/leicester-have-two-clean-sheets-in-42-premier-league-matches-individual-errors-are-costing-them/
-
-**Aston Villa's 2024: Bayern revisited, Mings' moment of madness and Duran makes his mark**\
-`A look back at the year for Villa, from qualifying for the Champions League to Martinez's heroics and Duran's goals`\
-https://nytimes.com/athletic/5981137/2024/12/30/aston-villas-2024-bayern-revisited-mings-moment-of-madness-and-duran-makes-his-mark/
 
