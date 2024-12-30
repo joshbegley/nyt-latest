@@ -1,4 +1,4 @@
-**Carter Remembered by Politicians as a Compassionate Leader and Humanitarian**\
+**Carter remembered by politicians as a compassionate leader and humanitarian**\
 `Republicans and Democrats praised the former president’s service and character. Speaker Mike Johnson called his life “a testament to the boundless opportunities available in this great nation.”`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-remembered-by-politicians-as-a-compassionate-leader-and-humanitarian
 
