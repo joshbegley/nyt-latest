@@ -1,3 +1,7 @@
+**Sam Darnold continues late MVP push with a stellar stretch run for Vikings**\
+`Continuing his out-of-nowhere season for the Vikings, Darnold torched the Packers for a career-high 377 passing yards and three touchdowns.`\
+https://nytimes.com/athletic/6025474/2024/12/30/sam-darnold-mvp-push-vikings-packers/
+
 **Dark Doldrums Overshadow Europe’s Energy Markets**\
 `Periods of low sun and wind, a weather pattern known as a Dunkelflaute, can increase electricity prices and stoke political tensions.`\
 https://nytimes.com/2024/12/30/business/energy-environment/europe-energy-solar-wind.html
