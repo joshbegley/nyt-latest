@@ -1,3 +1,15 @@
+**Jumping Out of a Plane, With Skydiving Seniors**\
+`To report on the Wuest Ways group, which has been hosting skydives since 1987, a reporter had to strap on a parachute and take the 12,500-foot leap.`\
+https://nytimes.com/2024/12/30/insider/skydiving-seniors-reporting.html
+
+**The Most Inspiring Houses We Visited in 2024**\
+`From a tiny French fisherman’s cabin to a hexagonal home in Hawaii.`\
+https://nytimes.com/2024/12/30/t-magazine/favorite-house-stories.html
+
+**Brighton considering recalling Rushworth from Hull City loan**\
+`Brighton &amp; Hove Albion could recall Carl Rushworth from his loan spell with Hull City for a temporary move to another Championship club.`\
+https://nytimes.com/athletic/6027656/2024/12/30/brighton-carl-rushworth-loan-hull/
+
 **5 Takeaways From The Times’s Coverage of Shen Yun**\
 `The dance group has exploited its young performers while amassing huge wealth for the Falun Gong religious movement — and getting a publicity boost from The Epoch Times.`\
 https://nytimes.com/2024/12/30/nyregion/shen-yun-nyt-falun-gong.html
