@@ -1,3 +1,7 @@
+**Tuesday Briefing: Remembering Jimmy Carter**\
+`Plus, the best of 2024.`\
+https://nytimes.com/2024/12/30/briefing/jimmy-carter-south-korea.html
+
 **China Hacked Treasury Dept. in ‘Major’ Breach, U.S. Says**\
 `The department notified lawmakers of the episode, which it said was linked to a state-sponsored actor in China.`\
 https://nytimes.com/2024/12/30/us/politics/china-hack-treasury.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027101/2024/12/30/mike-vrabel-head-coaching-interv
 **AP Top 25: UCLA, Memphis rise, Tennessee on top to start 2025**\
 `The arrival of conference play in high-major leagues across the country this week presents several opportunities for Top 25 shakeups.`\
 https://nytimes.com/athletic/6027643/2024/12/30/ap-mens-basketball-top-25-rankings-ucla-memphis/
-
-**Trump Loses Appeal of Carroll’s $5 Million Award in Sex-Abuse Case**\
-`The president-elect had asked a court to overturn the defamation judgment against him in the case, which centered on E. Jean Carroll’s account of a sexual attack in a dressing room.`\
-https://nytimes.com/2024/12/30/nyregion/trump-carroll-appeal-denied.html
 
