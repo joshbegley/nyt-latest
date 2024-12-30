@@ -1,3 +1,7 @@
+**Dominique Pelicot, Convicted in Mass Rape Trial in France, Will Not Appeal**\
+`Seventeen of the other 50 men convicted in the case — most for participating in rapes of Gisèle Pelicot, then Mr. Pelicot’s wife — have filed appeals, according to a lawyer.`\
+https://nytimes.com/2024/12/30/world/europe/dominique-pelicot-appeal-france-rape-trial.html
+
 **After Years in Prison, a Dancehall Star Returns to the Stage**\
 `Vybz Kartel served more than a decade of a murder sentence before his conviction was overturned. Despite imprisonment and a radio ban, his influence has grown.`\
 https://nytimes.com/2024/12/30/arts/music/vybz-kartel-concert-freedom-street.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/us/politics/jimmy-carter-funeral.html
 **Questions Arise Over Concrete Wall Near Runway in South Korea Crash**\
 `Aviation safety analysts said they expect officials investigating the crash, which killed 179 people, to look into the location and composition of a structure housing an antenna.`\
 https://nytimes.com/2024/12/30/business/plane-crash-korea-wall-investigation.html
-
-**The best of 2024 from The Athletic's North American soccer staff**\
-`Here are our best stories from 2024 in North American soccer`\
-https://nytimes.com/athletic/6021770/2024/12/30/2024-us-soccer-best-stories/
 

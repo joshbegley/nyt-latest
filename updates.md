@@ -1,3 +1,7 @@
+**Dominique Pelicot, Convicted in Mass Rape Trial in France, Will Not Appeal**\
+`Seventeen of the other 50 men convicted in the case — most for participating in rapes of Gisèle Pelicot, then Mr. Pelicot’s wife — have filed appeals, according to a lawyer.`\
+https://nytimes.com/2024/12/30/world/europe/dominique-pelicot-appeal-france-rape-trial.html
+
 **After Years in Prison, a Dancehall Star Returns to the Stage**\
 `Vybz Kartel served more than a decade of a murder sentence before his conviction was overturned. Despite imprisonment and a radio ban, his influence has grown.`\
 https://nytimes.com/2024/12/30/arts/music/vybz-kartel-concert-freedom-street.html
