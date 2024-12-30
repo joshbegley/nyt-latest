@@ -1,40 +1,40 @@
-**Iga Swiatek 'not expecting' WADA intervention in doping case as Poland agency declines to appeal**\
-`WADA has until January 21 2025 to lodge an appeal into Iga Swiatek's doping case after Polish anti-doping authorities declined to intervene.`\
-https://nytimes.com/athletic/6021786/2024/12/30/iga-swiatek-doping-ban-wada-appeal-timeline/
+**$4 Million Homes in California**\
+`This week’s listings include a compound in Healdsburg, a 1940s house in Glendale and an ocean-view home in Ventura.`\
+https://nytimes.com/2024/12/30/realestate/four-million-dollar-homes-in-california.html
 
-**West Ham end 2024 with their calling card - conceding a heap of goals**\
-`West Ham's year ends on a bum note after a demoralising defeat and the mood surrounding Julen Lopetegui as sour as ever`\
-https://nytimes.com/athletic/6024917/2024/12/30/west-ham-2024-goals-conceded-lopetegui/
+**Dungeons & Dragons Rolls the Dice With New Rules About Identity**\
+`The role-playing game replaced “race” with “species” and divorced several character traits from biological identity. Some longtime players are upset (as is Elon Musk).`\
+https://nytimes.com/2024/12/30/arts/dungeons-and-dragons-rule-changes-race-species.html
 
-**Five Laws Going Into Effect for New York in 2025**\
-`Changes are coming to paid family leave, insulin costs, restaurant reservations, gym membership cancellations and protections for fashion industry workers.`\
-https://nytimes.com/2024/12/30/nyregion/ny-laws-2025-insulin-gym-membership.html
+**Time to Retire? Better to Take On a New Challenge.**\
+`At 67, a heart surgeon leaves the suburbs for Brooklyn and for the chance to continue his life’s work in a new hospital.`\
+https://nytimes.com/2024/12/30/realestate/renters-windsor-terrace-surgeon.html
 
-**Shen Yun Needed Publicity. The Epoch Times Wrote 17,000 Articles.**\
-`A publisher that rose to prominence promoting right-wing conspiracy theories has also served as sword and shield for the dance group and the religious movement behind it.`\
-https://nytimes.com/2024/12/30/nyregion/shen-yun-epoch-times-falun-gong.html
+**This New Year, Resolve to Green Up Your News Feed**\
+`These organizations are capturing local and regional news about climate and environmental justice that often flies under the national radar.`\
+https://nytimes.com/2024/12/30/opinion/climate-change-news-coverage-2025.html
 
-**Democratic N.Y. Lawmakers Brace for Risks of a Trump Administration**\
-`After President-elect Donald J. Trump’s gains in New York, lawmakers plan to focus on high costs and crime while safeguarding policies about immigration and abortion.`\
-https://nytimes.com/2024/12/30/nyregion/trump-ny-legislature.html
+**Social Media Companies Face Global Tug-of-War Over Free Speech**\
+`President-elect Donald J. Trump’s picks for the F.C.C. and F.T.C. have vowed to remove censorship online. That conflicts with European regulators who are pushing for stricter moderation.`\
+https://nytimes.com/2024/12/30/technology/trump-administration-speech-policy.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/30/crosswords/spelling-bee-forum.html
+**What Period Products Are Best for the Environment?**\
+`You’ve got choices, from menstrual cups to washable pads. Here’s how they stack up.`\
+https://nytimes.com/2024/12/30/climate/period-products-menstruation-environment.html
 
-**The numbers behind Mohamed Salah's historic Premier League season so far**\
-`Liverpool's talisman is having the greatest Premier League season for an attacker ever — and he's only played 18 games `\
-https://nytimes.com/athletic/6026134/2024/12/30/mohamed-salah-goals-assists-premier-league-history/
+**Bringing Modern Dance, Once Forbidden, to China**\
+`An oral history project, “Planting Seeds,” considers the history and impact of an American Dance Festival program to train dancers in China.`\
+https://nytimes.com/2024/12/30/arts/dance/planting-seeds-oral-history-modern-dance-china.html
 
-**‘She Was Almost Home’: Father Mourns South Korea Plane Crash Victim**\
-`Jeon Je-young was among the hundreds of family members waiting for news from the authorities about Jeju Air Flight 2216, which crashed at an airport in South Korea.`\
-https://nytimes.com/video/world/asia/100000009900500/south-korea-plane-crash-victim.html
+**The Number of Murders Kept Falling This Year, but Fear of Crime Persists**\
+`Crime was a talking point on the presidential campaign trail. But after a spike during the pandemic, murders have been dropping steadily, including in big cities like Chicago and San Francisco.`\
+https://nytimes.com/2024/12/30/us/murders-decline-crime-concerns.html
 
-**New Year’s Eve Specials, Plus 3 Things to Watch on TV this Week**\
-`Several networks will host their annual countdowns on Tuesday, and award season will begin with the Golden Globes on Sunday.`\
-https://nytimes.com/2024/12/30/arts/television/new-years-eve-specials-tv-this-week.html
+**Looking for Random, but Great, Movies to Stream? Try Pluto TV.**\
+`Our viewing habits these days tend to be so destination-driven that there’s a real throwback pleasure in just seeing what’s on. This streaming platform allows for that.`\
+https://nytimes.com/2024/12/30/movies/plutotv-streaming.html
 
-**Commanders clinch playoff berth with 30-24 OT win vs. Falcons: Takeaways**\
-`Jayden Daniels led a game-winning drive, capped by a touchdown pass to Zach Ertz, to continue his Rookie of the Year campaign.`\
-https://nytimes.com/athletic/6025909/2024/12/30/commanders-falcons-snf-score-result-takeaways/
+**What’s the Matter With Chicago?**\
+`The burden of debt and public pensions could soon push Chicago into bankruptcy.`\
+https://nytimes.com/2024/12/30/opinion/chicago-illinois-pensions-debt.html
 
