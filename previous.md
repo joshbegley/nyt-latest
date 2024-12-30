@@ -1,3 +1,7 @@
+**Read Walter Mondale’s Eulogy of Jimmy Carter**\
+`Former Vice President Walter Mondale died in 2021, but he left behind the eulogy he had planned to deliver. His son Ted Mondale will read it at Jimmy Carter’s memorial service at Washington National Cathedral on Jan. 9.`\
+https://nytimes.com/interactive/2024/12/30/us/politics/walter-mondale-eulogy.html
+
 **Man Dies After Helping His Family Flee Christmas Morning House Fire**\
 `Steven Weatherford ran upstairs to wake his father and two aunts as a fire engulfed their home in Oakland, Calif. He later died of smoke inhalation, the authorities said.`\
 https://nytimes.com/2024/12/30/us/oakland-christmas-house-fire-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/world/europe/dominique-pelicot-appeal-france-rape
 **After Years in Prison, a Dancehall Star Returns to the Stage**\
 `Vybz Kartel served more than a decade of a murder sentence before his conviction was overturned. Despite imprisonment and a radio ban, his influence has grown.`\
 https://nytimes.com/2024/12/30/arts/music/vybz-kartel-concert-freedom-street.html
-
-**Conceicao appointed head coach of Milan**\
-`Sergio Conceicao has been appointed as the new head coach of AC Milan.`\
-https://nytimes.com/athletic/5995159/2024/12/30/milan-manager-next-sergio-conceicao-confirmed/
 
