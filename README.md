@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6014551/2024/12/30/dre-greenlaw-san-francisco-49ers
 
 **From Bird Strike to Crash: the Mystery of Jeju Air Plane’s Four Fateful Minutes**\
 `The time between when the pilot reported a bird strike and when it crashed could be key to unraveling one of the world’s worst aviation disasters in years.`\
-https://nytimes.com/2024/12/30/world/asia/from-bird-strike-to-crash-the-mystery-of-jeju-air-planes-four-fateful-minutes.html
+https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-cause.html
 
 **The manner of Paulo Fonseca’s Milan exit may have been shabby - but change was needed**\
 `Fonseca struggled to win over a fanbase whose expectations are not being met — on or off the pitch `\
