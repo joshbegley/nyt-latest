@@ -1,3 +1,7 @@
+**Submit your Mets questions for Will Sammon's mailbag**\
+`Submit your Mets questions for Will Sammon's mailbag`\
+https://nytimes.com/athletic/6027566/2024/12/30/submit-your-mets-questions-for-will-sammons-mailbag-2/
+
 **Five People Indicted in Connection With Liam Payne’s Fatal Fall**\
 `Two people are accused of supplying the singer with drugs and three others with negligence related to his fall from the balcony of a Buenos Aires hotel.`\
 https://nytimes.com/2024/12/30/arts/music/liam-payne-indictments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/business/energy-environment/europe-energy-solar-w
 **The 2024 Good Tech Awards**\
 `In a year of continued A.I. progress, “founder mode” drama and a Trump election win, a few tech projects stood out for their clear benefits to humanity.`\
 https://nytimes.com/2024/12/30/technology/good-tech-awards.html
-
-**How Jiří Kulich's breakthrough has stood out during Sabres' 3-game winning streak**\
-`Kulich’s emergence has been a welcome development for a Sabres team that’s lacked secondary scoring.`\
-https://nytimes.com/athletic/6027348/2024/12/30/sabres-prospect-jiri-kulich-stats/
 
