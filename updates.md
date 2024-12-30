@@ -1,3 +1,7 @@
+**40 for 40: LeBron James' top-40 NBA moments and accomplishments**\
+`As LeBron turns 40, let's relive some of his most notable achievements, from his debut in Sacramento to playing alongside his son Bronny.`\
+https://nytimes.com/athletic/6018678/2024/12/30/lebron-james-40th-birthday-nba-moments/
+
 **With loss to Dolphins, Browns may be in position to take one of 2025 draft's top QBs**\
 `Cleveland fell to 3-13 and could wind up with a top-3 pick in April's draft depending on the outcome in the season finale. `\
 https://nytimes.com/athletic/6026209/2024/12/30/browns-quarterback-draft-loss-dolphins/
