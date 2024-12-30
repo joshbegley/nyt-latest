@@ -1,3 +1,11 @@
+**Penn State already has a lot to remember in 2024. Can it make this season unforgettable?**\
+`From a comeback at USC to heroics at Minnesota, Penn State's path to the Playoff hasn't always been easy. But it has been memorable.`\
+https://nytimes.com/athletic/6025414/2024/12/30/penn-state-2024-season-fiesta-bowl-playoff/
+
+**ReliaQuest Bowl preview: What's on the line for Alabama and Michigan?**\
+`Alabama and Michigan will end 2024 the way they began it, by meeting in a bowl game. What's at stake in Tampa on New Year's Eve?`\
+https://nytimes.com/athletic/6023332/2024/12/30/alabama-michigan-reliaquest-bowl-matchup-predictions/
+
 **Cowboys' final 2 games are warning of 'very difficult' NFC East future that awaits**\
 `The division isn't getting any easier and the Cowboys have work to do to keep up with the Eagles and Commanders.`\
 https://nytimes.com/athletic/6025802/2024/12/30/cowboys-nfc-east-difficult-eagles/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/30/realestate/four-million-dollar-homes-in-californi
 **Dungeons & Dragons Rolls the Dice With New Rules About Identity**\
 `The role-playing game replaced “race” with “species” and divorced several character traits from biological identity. Some longtime players are upset (as is Elon Musk).`\
 https://nytimes.com/2024/12/30/arts/dungeons-and-dragons-rule-changes-race-species.html
-
-**Time to Retire? Better to Take On a New Challenge.**\
-`At 67, a heart surgeon leaves the suburbs for Brooklyn and for the chance to continue his life’s work in a new hospital.`\
-https://nytimes.com/2024/12/30/realestate/renters-windsor-terrace-surgeon.html
-
-**One serve? New scoring? How changing tennis might actually go down**\
-`Imagining three-set Grand Slams, one-serve points and scoring changes is all well and good — but what would tennis actually look like?`\
-https://nytimes.com/athletic/6011698/2024/12/30/tennis-rules-scoring-changes-impact/
 
