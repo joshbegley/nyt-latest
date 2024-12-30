@@ -1,8 +1,8 @@
-**Red Wings get first win under McLellan: Five thoughts**\
+**Red Wings get first win under McLellan: 5 thoughts**\
 `After the Red Wings' new coach gave a clear message at his first practice, his team responded by delivering his first win in Detroit.`\
 https://nytimes.com/athletic/6026045/2024/12/29/red-wings-mclellan-first-win-capitals/
 
-**Colts choke again on big stage, as their playoffs hopes die in 'embarrassing' loss to Giants**\
+**Colts choke again as their playoffs hopes die in 'embarrassing' loss to Giants**\
 `No member of the Colts franchise should feel safe after their humiliating loss. Not the players, not the coach and not the GM. `\
 https://nytimes.com/athletic/6026049/2024/12/29/colts-loss-shane-steichen-giants/
 
