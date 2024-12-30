@@ -1,4 +1,8 @@
 **For South Korean Families, a Grim Wait for Bodies After Plane Crash**\
+`Officials said it could take up to 10 days to prepare the dead for transport, with the uncertainty adding to the shock and grief of relatives packed into an airport hall.`\
+https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-victims.html
+
+**For South Korean Families, a Grim Wait for Bodies After Plane Crash**\
 `Officials said it could take up to 10 days to prepare victims for transport, with the uncertainty adding to the shock and grief of relatives packed into an airport hall.`\
 https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-victims.html
 

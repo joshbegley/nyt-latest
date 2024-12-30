@@ -1,3 +1,7 @@
+**NBA Rewind: King James turns 40, while the Kings remain dysfunctional**\
+`On LeBron James' milestone birthday, Zach Harper wonders what's next for the Timberwolves and Kings. `\
+https://nytimes.com/athletic/6020328/2024/12/30/nba-rewind-lebron-james-lakers-mike-brown-kings-anthony-edwards-timberwolves-nba/
+
 **For South Korean Families, a Grim Wait for Bodies After Plane Crash**\
 `Officials said it could take up to 10 days to prepare the dead for transport, with the uncertainty adding to the shock and grief of relatives packed into an airport hall.`\
 https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-victims.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/world/middleeast/gaza-baby-deaths-cold.html
 **Millwall appoint Neil as new head coach**\
 `Millwall have appointed Alex Neil as their new head coach following the resignation of Neil Harris earlier this month.`\
 https://nytimes.com/athletic/6023079/2024/12/30/alex-neil-millwall-manager/
-
-**The Life of Jimmy Carter**\
-`The former president has died at 100.`\
-https://nytimes.com/2024/12/30/briefing/jimmy-carter-dead.html
 
