@@ -1,3 +1,7 @@
+**Vikings edge Packers 27-25 for shot at NFC’s No. 1 seed: Takeaways**\
+`The Vikings have given themselves a chance to secure the No. 1 seed in the NFC playoff race with a win over the Detroit Lions in Week 18.`\
+https://nytimes.com/athletic/6024795/2024/12/29/packers-vikings-score-result-takeaways/
+
 **In his own words: the place of faith in public service.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/in-his-own-words-the-place-of-faith-in-public-service
