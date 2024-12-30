@@ -1,3 +1,15 @@
+**Jaden Rashada says 'I needed Georgia,' in QB's first public interviews since transfer**\
+`Rashada became the poster child for college football's new era when he went through an eight-figure NIL dispute as a recruit. `\
+https://nytimes.com/athletic/6027609/2024/12/30/jaden-rashada-georgia-quarterback-transfer/
+
+**Six ex-FSU MBB players sue coach Leonard Hamilton over unpaid NIL promises**\
+`Hamilton promised six former players $250,000 each in NIL compensation during their recruitment, according to the lawsuit.`\
+https://nytimes.com/athletic/6027174/2024/12/30/florida-state-leonard-hamilton-nil-lawsuit/
+
+**Submit your Pistons questions for Hunter Patterson's mailbag**\
+`What's on your mind about the Pistons? Let us know.`\
+https://nytimes.com/athletic/6027620/2024/12/30/pistons-mailbag-hunter-patterson/
+
 **Amy Carter, Thrust Into the Public Eye at a Young Age, Has Since Receded**\
 `Jimmy Carter’s daughter had an extraordinary and well-documented childhood in the White House. Since then she has for the most part lived a very private life.`\
 https://nytimes.com/2024/12/30/us/politics/amy-carter-jimmy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6026899/2024/12/30/tyler-herro-heat-all-star-nba/
 **Jaylen Mbakwe to stay at WR, Kadyn Proctor to play vs. Michigan**\
 `Mbakwe’s experiment at wide receiver is likely a permanent move for Alabama.`\
 https://nytimes.com/athletic/6027452/2024/12/30/alabama-football-jaylen-mbakwe-kadyn-proctor/
-
-**Fire-Friendly Weather Predicted for Parts of the High Plains and Southern California**\
-`Forecasters warned of a “critical” wildfire risk on Monday in New Mexico, Texas and Oklahoma.`\
-https://nytimes.com/2024/12/30/weather/wildfire-risk-california-texas.html
-
-**Jimmy Carter and Motown Founder Berry Gordy’s Surprising Connection**\
-`According to a detailed family history compiled by one of the former president’s sons, the two men shared a common ancestor in 19th-century Georgia.`\
-https://nytimes.com/2024/12/30/arts/music/jimmy-carter-berry-gordy.html
-
-**NFL Week 18 odds, schedule: Lions favored against Vikings for crucial tilt**\
-`Detroit is favored against Minnesota to decide the No. 1 seed in the NFC. There are a number of other playoff-deciding games in Week 18.`\
-https://nytimes.com/athletic/6027330/2024/12/30/nfl-week-18-odds-schedule-lions-vikings/
 
