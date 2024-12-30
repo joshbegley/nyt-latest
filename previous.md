@@ -1,3 +1,11 @@
+**For South Korean Families, a Grim Wait for Bodies After Plane Crash**\
+`Officials said it could take up to 10 days to prepare victims for transport, with the uncertainty adding to the shock and grief of relatives packed into an airport hall.`\
+https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-victims.html
+
+**The Pulse: NFL's 2 most important battles right now**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6026263/2024/12/30/nfl-playoff-picture-week-17-the-pulse/
+
 **Jimmy Carter, on Death**\
 `In a culture where death as a subject is often taboo, Mr. Carter left behind a compilation of observations about the end. Here is a selection of those writings.`\
 https://nytimes.com/interactive/2024/12/30/us/carter-on-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6023079/2024/12/30/alex-neil-millwall-manager/
 **The Life of Jimmy Carter**\
 `The former president has died at 100.`\
 https://nytimes.com/2024/12/30/briefing/jimmy-carter-dead.html
-
-**Hollinger's Week That Was: What's next for Lakers, Nets? What's up with Utah's rookies?**\
-`It's quite possible L.A. plugged one hole by creating another, and in Brooklyn, don't be shocked if the Russell reunion is short-lived.`\
-https://nytimes.com/athletic/6026206/2024/12/30/dangelo-russell-nets-lakers-dorian-finney-smith-trade/
-
-**How Bears receiver Rome Odunze has shown his potential in a tough rookie season**\
-`Odunze has stayed positive in a challenging year, leaning on his note-taking and building chemistry with fellow rookie Caleb Williams.`\
-https://nytimes.com/athletic/6025244/2024/12/30/bears-rome-odunze-rookie-season/
 
