@@ -1,3 +1,7 @@
+**Myles Garrett makes NFL history with 14-plus sacks in 4 consecutive seasons**\
+`After Sunday's game, his 102.5 career sacks are tied with Jim Jeffcoat for 38th on the NFL all-time list.`\
+https://nytimes.com/athletic/6025834/2024/12/29/browns-myles-garrett-sack-season-mark/
+
 **Carter remembered by politicians as a compassionate leader and humanitarian**\
 `Republicans and Democrats praised the former president’s service and character. Speaker Mike Johnson called his life “a testament to the boundless opportunities available in this great nation.”`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/carter-remembered-by-politicians-as-a-compassionate-leader-and-humanitarian
