@@ -1,3 +1,15 @@
+**Dolphins keep playoff hopes alive with 20-3 win over Browns: Takeaways**\
+`Now at 8-8, Miami remains in a three-way battle for the AFC's final playoff spot with the Broncos and Bengals.`\
+https://nytimes.com/athletic/6024792/2024/12/29/dolphins-browns-score-result-takeaways/
+
+**Carter Played a Pivotal Role in Israel-Egypt Peace Deal**\
+`Mr. Carter was a lifeline to stalled talks by mediating a summit at Camp David in 1978.`\
+https://nytimes.com/2024/12/29/us/jimmy-carter-israel-egypt.html
+
+**Vikings edge Packers 27-25 to keep NFC No. 1 seed hopes alive: Takeaways**\
+`The Vikings have given themselves a chance to secure the No. 1 seed in the NFC playoff race with a win over the Detroit Lions in Week 18.`\
+https://nytimes.com/athletic/6024795/2024/12/29/packers-vikings-score-result-takeaways/
+
 **Lopsided loss to Eagles another example that Cowboys need help at offensive skill positions**\
 `Finding a No. 2 receiver and another running back should be priorities for the Cowboys in the 2025 NFL Draft. `\
 https://nytimes.com/athletic/6025754/2024/12/29/cowboys-loss-offense-struggles-ceedee-lamb/

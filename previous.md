@@ -1,3 +1,15 @@
+**Dolphins keep playoff hopes alive with 20-3 win over Browns: Takeaways**\
+`Now at 8-8, Miami remains in a three-way battle for the AFC's final playoff spot with the Broncos and Bengals.`\
+https://nytimes.com/athletic/6024792/2024/12/29/dolphins-browns-score-result-takeaways/
+
+**Carter Played a Pivotal Role in Israel-Egypt Peace Deal**\
+`Mr. Carter was a lifeline to stalled talks by mediating a summit at Camp David in 1978.`\
+https://nytimes.com/2024/12/29/us/jimmy-carter-israel-egypt.html
+
+**Vikings edge Packers 27-25 to keep NFC No. 1 seed hopes alive: Takeaways**\
+`The Vikings have given themselves a chance to secure the No. 1 seed in the NFC playoff race with a win over the Detroit Lions in Week 18.`\
+https://nytimes.com/athletic/6024795/2024/12/29/packers-vikings-score-result-takeaways/
+
 **Lopsided loss to Eagles another example that Cowboys need help at offensive skill positions**\
 `Finding a No. 2 receiver and another running back should be priorities for the Cowboys in the 2025 NFL Draft. `\
 https://nytimes.com/athletic/6025754/2024/12/29/cowboys-loss-offense-struggles-ceedee-lamb/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/12/29/us/jimmy-carter/the-former-presidents-long-h
 **U.S. Presidents Pay Tribute to Jimmy Carter**\
 `The living members of the exclusive club of Oval Office occupants said Mr. Carter would be remembered for his efforts to promote peace and democracy.`\
 https://nytimes.com/2024/12/29/us/politics/us-presidents-react-jimmy-carter-death.html
-
-**Carter the Critic Didn’t Spare His Successors**\
-`Jimmy Carter defied the unwritten rule of former presidents: Don’t criticize the occupant of the Oval Office.`\
-https://nytimes.com/2024/12/29/us/carter-successors-criticism.html
-
-**When Jimmy Carter Turned TV Into a Pulpit**\
-`Other presidents were more celebrated for their on-screen presences, but in 1979 he gave one of the White House’s most astonishing televised speeches.`\
-https://nytimes.com/2024/12/29/arts/television/jimmy-carter-malaise-speech-crisis-confidence.html
-
-**Jimmy Carter Was Right About Materialism but, Alas, Wrong About Us**\
-`“Too many of us now tend to worship self-indulgence and consumption,” he said in his 1979 “Crisis of Confidence” speech. If only we had listened.`\
-https://nytimes.com/2024/12/29/your-money/jimmy-carter-legacy-materialism.html
 
