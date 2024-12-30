@@ -1,3 +1,27 @@
+**Falcons' Raheem Morris laments not using timeout on final drive vs. Commanders**\
+`Morris decided against using one of his two timeouts and 17 seconds ran off the clock in between plays.`\
+https://nytimes.com/athletic/6027244/2024/12/30/falcons-raheem-morris-timeout-commanders/
+
+**Tennis Briefing: Djokovic and Kyrgios comments highlight doping problem, 2025 season begins**\
+`When tennis players speak, fans listen. So what happens when they're not quite right?`\
+https://nytimes.com/athletic/6025850/2024/12/30/tennis-doping-rules-djokovic-kyrgios/
+
+**You Saw the Movie in 2024. Do You Know the Book That Inspired It?**\
+`As the year winds down, the last of the big buzzy films have hit the screen — and these five were based largely on memoirs and biographies. Try this quiz to see how many you know.`\
+https://nytimes.com/interactive/2024/12/30/books/review/2024-movie-books.html
+
+**What if Reagan Had Been More Like Carter?**\
+`Carter’s vision and persistence on solar energy deserve to be brightly illuminated.`\
+https://nytimes.com/2024/12/30/opinion/jimmy-carter-ronald-reagan.html
+
+**An Easy (and Less Expensive) Way to Ring in the New Year With Caviar**\
+`Eric Kim’s tobiko pasta combines the briny flavor of flying-fish roe with a rich, creamy sauce.`\
+https://nytimes.com/2024/12/30/dining/an-easy-and-less-expensive-way-to-ring-in-the-new-year-with-caviar.html
+
+**The New York Times 2024 Culture News Quiz**\
+`How well did you keep up with the world of arts and entertainment this year? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/12/30/arts/culture-news-quiz.html
+
 **Holding the ‘Title of Citizen,’ Carter Carved a New Mold for Ex-Presidents**\
 `Jimmy Carter redefined what a president can do after departing the White House, leaving a lasting imprint through his work overseas, particularly in the realm of public health.`\
 https://nytimes.com/2024/12/30/us/politics/jimmy-carter-post-presidency.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6025274/2024/12/30/yankees-dj-lemahieu-2025-role/
 **$100 Million for One Square Mile: Deal to Protect Land in Grand Tetons**\
 `After years of negotiations and threats of development, Wyoming will sell a prized piece of land so that it can be preserved inside Grand Teton National Park.`\
 https://nytimes.com/2024/12/30/us/grand-teton-park-wyoming-sale.html
-
-**Read Walter Mondale’s Eulogy of Jimmy Carter**\
-`Before former Vice President Walter Mondale died in 2021, he left behind the eulogy he had planned to deliver. His son Ted Mondale will read it at Jimmy Carter’s memorial service at Washington National Cathedral on Jan. 9.`\
-https://nytimes.com/interactive/2024/12/30/us/politics/walter-mondale-eulogy.html
-
-**Man Dies After Helping His Family Flee Christmas Morning House Fire**\
-`Steven Weatherford ran upstairs to wake his father and two aunts as a fire engulfed their home in Oakland, Calif. He later died of smoke inhalation, the authorities said.`\
-https://nytimes.com/2024/12/30/us/oakland-christmas-house-fire-death.html
-
-**In-stadium VAR announcements to be trialled in Carabao Cup semi-finals**\
-`In-stadium video assistant referee (VAR) announcements will be trialled in English football for the first time during January&#8217;s Carabao Cup semi-finals.`\
-https://nytimes.com/athletic/6027144/2024/12/30/var-in-stadium-trial/
-
-**CFB winter transfer window wrap-up: Hot teams, best players available**\
-`Which teams did the best in December? Who's allowed to hit the portal in January? And who are the top transfers still available?`\
-https://nytimes.com/athletic/6026978/2024/12/30/college-football-transfer-portal-best-available-whats-next/
-
-**From the Grave, Mondale to Eulogize the Man Who Made Him Vice President**\
-`Walter F. Mondale died in 2021, but he left behind the eulogy he planned to deliver at former President Jimmy Carter’s funeral.`\
-https://nytimes.com/2024/12/30/us/politics/mondale-carter-eulogy.html
-
-**Biden Announces $2.5 Billion in Security Aid to Ukraine**\
-`The Treasury Department also released an additional $3.4 billion in budget aid as the Biden administration rushes assistance to Kyiv in its final weeks in office.`\
-https://nytimes.com/2024/12/30/us/politics/ukraine-aid-weapons.html
 
