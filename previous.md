@@ -1,3 +1,7 @@
+**The Bounce: About that weird Kings decision. Plus, LeBron turns 40 and your NBA Stock Report!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6026731/2024/12/30/mike-brown-kings-lebron-james-lakers-nets-warriors-grizzlies-nba/
+
 **Dominique Pelicot, Convicted in Mass Rape Trial in France, Will Not Appeal**\
 `Seventeen of the other 50 men convicted in the case — most for participating in rapes of Gisèle Pelicot, then Mr. Pelicot’s wife — have filed appeals, according to a lawyer.`\
 https://nytimes.com/2024/12/30/world/europe/dominique-pelicot-appeal-france-rape-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026677/2024/12/30/inside-milan-fonseca-sacked-conc
 **Carter Funeral Service to Be Held at Washington National Cathedral on Jan. 9**\
 `The state funeral will cap more than a week of remembrances honoring Jimmy Carter, the 39th president of the United States, who died at 100 on Sunday.`\
 https://nytimes.com/2024/12/30/us/politics/jimmy-carter-funeral.html
-
-**Questions Arise Over Concrete Wall Near Runway in South Korea Crash**\
-`Aviation safety analysts said they expect officials investigating the crash, which killed 179 people, to look into the location and composition of a structure housing an antenna.`\
-https://nytimes.com/2024/12/30/business/plane-crash-korea-wall-investigation.html
 

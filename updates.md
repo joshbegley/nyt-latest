@@ -1,3 +1,7 @@
+**The Bounce: About that weird Kings decision. Plus, LeBron turns 40 and your NBA Stock Report!**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6026731/2024/12/30/mike-brown-kings-lebron-james-lakers-nets-warriors-grizzlies-nba/
+
 **Dominique Pelicot, Convicted in Mass Rape Trial in France, Will Not Appeal**\
 `Seventeen of the other 50 men convicted in the case — most for participating in rapes of Gisèle Pelicot, then Mr. Pelicot’s wife — have filed appeals, according to a lawyer.`\
 https://nytimes.com/2024/12/30/world/europe/dominique-pelicot-appeal-france-rape-trial.html
