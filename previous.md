@@ -1,3 +1,7 @@
+**In his own words: the place of faith in public service.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/in-his-own-words-the-place-of-faith-in-public-service
+
 **Rosalynn Carter was the most politically active first lady since Eleanor Roosevelt.**\
 `By Katharine Q. Seelye`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/rosalynn-carter-was-the-most-politically-active-first-lady-since-eleanor-roosevelt
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024795/2024/12/29/packers-vikings-score-result-tak
 **Lopsided loss to Eagles another example that Cowboys need help at offensive skill positions**\
 `Finding a No. 2 receiver and another running back should be priorities for the Cowboys in the 2025 NFL Draft. `\
 https://nytimes.com/athletic/6025754/2024/12/29/cowboys-loss-offense-struggles-ceedee-lamb/
-
-**Carter’s Visit to the Blighted Bronx Blazed a Trail**\
-`Mr. Carter made a ‘sobering’ trip to the South Bronx to reinforce his commitment to urban areas. Other leaders would follow.`\
-https://nytimes.com/2024/12/29/us/politics/jimmy-carter-south-bronx.html
 

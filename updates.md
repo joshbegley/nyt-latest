@@ -1,3 +1,7 @@
+**In his own words: the place of faith in public service.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/in-his-own-words-the-place-of-faith-in-public-service
+
 **Rosalynn Carter was the most politically active first lady since Eleanor Roosevelt.**\
 `By Katharine Q. Seelye`\
 https://nytimes.com/live/2024/12/29/us/jimmy-carter/rosalynn-carter-was-the-most-politically-active-first-lady-since-eleanor-roosevelt
