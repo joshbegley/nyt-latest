@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: What's next for Lakers, Nets? What's up with Utah's rookies?**\
+`It's quite possible L.A. plugged one hole by creating another, and in Brooklyn, don't be shocked if the Russell reunion is short-lived.`\
+https://nytimes.com/athletic/6026206/2024/12/30/dangelo-russell-nets-lakers-dorian-finney-smith-trade/
+
 **How Bears receiver Rome Odunze has shown his potential in a tough rookie season**\
 `Odunze has stayed positive in a challenging year, leaning on his note-taking and building chemistry with fellow rookie Caleb Williams.`\
 https://nytimes.com/athletic/6025244/2024/12/30/bears-rome-odunze-rookie-season/

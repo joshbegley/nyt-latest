@@ -1,3 +1,7 @@
+**Hollinger's Week That Was: What's next for Lakers, Nets? What's up with Utah's rookies?**\
+`It's quite possible L.A. plugged one hole by creating another, and in Brooklyn, don't be shocked if the Russell reunion is short-lived.`\
+https://nytimes.com/athletic/6026206/2024/12/30/dangelo-russell-nets-lakers-dorian-finney-smith-trade/
+
 **How Bears receiver Rome Odunze has shown his potential in a tough rookie season**\
 `Odunze has stayed positive in a challenging year, leaning on his note-taking and building chemistry with fellow rookie Caleb Williams.`\
 https://nytimes.com/athletic/6025244/2024/12/30/bears-rome-odunze-rookie-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/podcasts/carter-dies-south-korea-plane-crash.html
 **Twins notes: Jovani Morán traded for Mickey Gasper, plus hole at first base**\
 `Carlos Santana signing with the rival Guardians leaves a hole at first base, and the Twins made an intriguing swap with the Red Sox.`\
 https://nytimes.com/athletic/6019460/2024/12/30/minnesota-twins-notes-mickey-gasper-carlos-santana/
-
-**Chicago Cubs roster analysis: Outfield depth shines, but more moves may be needed**\
-`The Cubs have made major moves this offseason, but there is still some work to be done ahead of Opening Day.`\
-https://nytimes.com/athletic/6025205/2024/12/30/chicago-cubs-roster-end-of-year-update/
 
