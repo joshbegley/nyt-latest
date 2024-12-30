@@ -1,3 +1,7 @@
+**The Iran hostage crisis helped define the Carter presidency.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/the-iran-hostage-crisis-helped-define-the-carter-presidency
+
 **Packers show they're a good team, not a great one in loss to Vikings**\
 `The Packers are in the playoffs, but a similar loss to an elite NFC team should raise concern with the postseason on the horizon.`\
 https://nytimes.com/athletic/6026258/2024/12/29/packers-loss-matt-lafleur-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026045/2024/12/29/red-wings-mclellan-first-win-cap
 **Colts choke again as their playoffs hopes die in 'embarrassing' loss to Giants**\
 `No member of the Colts franchise should feel safe after their humiliating loss. Not the players, not the coach and not the GM. `\
 https://nytimes.com/athletic/6026049/2024/12/29/colts-loss-shane-steichen-giants/
-
-**Quotation of the Day: Harris Dickinson’s Love-Hate Relationship With Acting**\
-`Quotation of the Day for Monday, December 30, 2024.`\
-https://nytimes.com/2024/12/29/pageoneplus/quotation-of-the-day-harris-dickinsons-love-hate-relationship-with-acting.html
 
