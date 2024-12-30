@@ -1,3 +1,7 @@
+**Vikings stamp themselves as legitimate contenders with impressive victory over Packers**\
+`As the pressure continues to mount, the Vikings keep getting it done. Now the Lions are all that stand between them and the NFC's top seed.`\
+https://nytimes.com/athletic/6026333/2024/12/30/vikings-win-darnold-oconnell-contenders-packers/
+
 **Vitor Pereira has transformed Wolves' belief but he needs signings to fix their defence**\
 `The mood around Wolves has changed beyond belief, but the issues that put them in trouble have not gone away`\
 https://nytimes.com/athletic/6025135/2024/12/30/wolves-pereira-january-transfers-defender/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6019378/2024/12/30/are-wrexham-on-course-for-promot
 **It's a difficult subject for Spurs fans, but it's time to talk about Son's form**\
 `What's going on with Tottenham's captain?`\
 https://nytimes.com/athletic/6025285/2024/12/30/its-time-to-talk-about-son/
-
-**'A perfect team move' - the goal-of-the-season contender that showed the best of Leeds**\
-`Daniel Farke said he put Brenden Aaronson's winner against Derby 'straight away into my poetry album'. Here, we break down the move`\
-https://nytimes.com/athletic/6025201/2024/12/30/brenden-aaronson-finishes-off-the-perfect-team-move-that-showed-the-best-of-leeds/
 
