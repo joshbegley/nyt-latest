@@ -1,3 +1,7 @@
+**13 Cozy Winter Dinners to Warm You Up**\
+`When the weather outside is frightful, cook something delightful.`\
+https://nytimes.com/2024/12/30/dining/winter-recipes-warming.html
+
 **Carter Had Complicated History With Israel, Despite Camp David Accords**\
 `After his presidency, Jimmy Carter became critical of Israel’s treatment of Palestinians and likened the situation to apartheid.`\
 https://nytimes.com/2024/12/29/us/politics/carter-israel-camp-david.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6006893/2024/12/29/canada-world-juniors-day-4-czech
 **‘He Always Knew My Name’: Carter Is Remembered at a Bar That Was Dear to Him**\
 `The former president had kicked off his campaign for Georgia governor at Manuel’s Tavern in Atlanta. On Sunday, workers and patrons at the bar raised a glass in his honor.`\
 https://nytimes.com/2024/12/29/us/politics/carter-atlanta-dive-bar.html
-
-**Move over, Mario: Sidney Crosby passes Lemieux to becomes Penguins' assist leader**\
-`Crosby made history yet again and earned a standing ovation as the Penguins held on to defeat the Islanders 3-2 at home.`\
-https://nytimes.com/athletic/6025912/2024/12/29/penguins-sidney-crosby-assist-record-lemieux-islanders/
 
