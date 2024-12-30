@@ -1,3 +1,7 @@
+**NFL Week 18 odds, schedule: Lions favored against Vikings for crucial tilt**\
+`Detroit is favored against Minnesota to decide the No. 1 seed in the NFC. There are a number of other playoff-deciding games in Week 18.`\
+https://nytimes.com/athletic/6027330/2024/12/30/nfl-week-18-odds-schedule-lions-vikings/
+
 **Sam Darnold continues late MVP push with a stellar stretch run for Vikings**\
 `Continuing his out-of-nowhere season for the Vikings, Darnold torched the Packers for a career-high 377 passing yards and three touchdowns.`\
 https://nytimes.com/athletic/6025474/2024/12/30/sam-darnold-mvp-push-vikings-packers/
