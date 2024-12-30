@@ -1,3 +1,11 @@
+**5 Takeaways From The Times’s Coverage of Shen Yun**\
+`The dance group has exploited its young performers while amassing huge wealth for the Falun Gong religious movement — and getting a publicity boost from The Epoch Times.`\
+https://nytimes.com/2024/12/30/nyregion/shen-yun-nyt-falun-gong.html
+
+**Broncos' Sean Payton on not going for 2-point try: 'You always second guess'**\
+`The coach said he's pondered his decision after Saturday's OT loss to the Bengals, but his team now must focus on a win-and-in finale.`\
+https://nytimes.com/athletic/6027627/2024/12/30/sean-payton-broncos-two-point-try/
+
 **Rashford returns to Man United squad after four-game absence**\
 `The England international has missed the club's last four games in all competitions`\
 https://nytimes.com/athletic/6026714/2024/12/30/manchester-united-team-news-marcus-rashford/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/30/world/europe/russia-ukraine-prisoner-swap.html
 **Submit your Mets questions for Will Sammon's mailbag**\
 `Submit your Mets questions for Will Sammon's mailbag`\
 https://nytimes.com/athletic/6027566/2024/12/30/submit-your-mets-questions-for-will-sammons-mailbag-2/
-
-**Five People Indicted in Connection With Liam Payne’s Fatal Fall**\
-`Two people are accused of supplying the singer with drugs and three others with negligence related to his fall from the balcony of a Buenos Aires hotel.`\
-https://nytimes.com/2024/12/30/arts/music/liam-payne-indictments.html
-
-**Heat Today: How Tyler Herro's All-Star case grows by the day**\
-`From timely clutch plays to versatile production, Herro's first NBA All-Star nod feels inevitable.`\
-https://nytimes.com/athletic/6026899/2024/12/30/tyler-herro-heat-all-star-nba/
 

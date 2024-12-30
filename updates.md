@@ -1,3 +1,11 @@
+**5 Takeaways From The Times’s Coverage of Shen Yun**\
+`The dance group has exploited its young performers while amassing huge wealth for the Falun Gong religious movement — and getting a publicity boost from The Epoch Times.`\
+https://nytimes.com/2024/12/30/nyregion/shen-yun-nyt-falun-gong.html
+
+**Broncos' Sean Payton on not going for 2-point try: 'You always second guess'**\
+`The coach said he's pondered his decision after Saturday's OT loss to the Bengals, but his team now must focus on a win-and-in finale.`\
+https://nytimes.com/athletic/6027627/2024/12/30/sean-payton-broncos-two-point-try/
+
 **Rashford returns to Man United squad after four-game absence**\
 `The England international has missed the club's last four games in all competitions`\
 https://nytimes.com/athletic/6026714/2024/12/30/manchester-united-team-news-marcus-rashford/
