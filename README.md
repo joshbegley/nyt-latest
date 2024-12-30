@@ -1,3 +1,11 @@
+**Ohio State got the Oregon second chance it wanted. Are the Buckeyes ready for revenge?**\
+`Ohio State won't get another shot at Michigan this year, but the Buckeyes are thrilled the Playoff put Oregon in their championship path.`\
+https://nytimes.com/athletic/6026905/2024/12/30/ohio-state-oregon-rose-bowl-rematch/
+
+**What Nebraska's landmark Pinstripe Bowl win means for program momentum**\
+`While special teams hangs over their heads, the Huskers feel good about their young players, including quarterback Dylan Raiola. `\
+https://nytimes.com/athletic/6026956/2024/12/30/nebraska-pinstripe-bowl-college-football-matt-rhule/
+
 **For 49ers' Dre Greenlaw, football's pain and injuries are no match for his resolve**\
 `Dre Greenlaw has been through a lot just to get to the NFL. It's why the 49ers linebacker isn't deterred by another round of injuries.`\
 https://nytimes.com/athletic/6014551/2024/12/30/dre-greenlaw-san-francisco-49ers-achilles-injuries-free-agent/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6026702/2024/12/30/nottingham-forest-champions-leag
 **Blues at 2025 World Juniors: Will a record 9 prospects increase odds of NHL players?**\
 `A breakdown of how the Blues' prospects have looked through the early part of the tournament's preliminary round.`\
 https://nytimes.com/athletic/6019992/2024/12/30/world-juniors-blues-nhl-players/
-
-**World Juniors Today: Quarterfinals berths on the line, Canada-USA prepare for NYE matchup**\
-`There are only two games on Monday, a much quieter day compared to most of the preliminary round, but New Year's Eve looms large.`\
-https://nytimes.com/athletic/6007080/2024/12/30/world-juniors-today-usa-canada-new-year/
-
-**The Canucks' reality without Quinn Hughes, the goalie split and more**\
-`We're about to learn a lot about what this Vancouver team is and where it's headed over the course of this week.`\
-https://nytimes.com/athletic/6026099/2024/12/30/vancouver-canucks-quinn-hughes-injury/
 
