@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6026677/2024/12/30/inside-milan-fonseca-sacked-conc
 `The state funeral will cap more than a week of remembrances honoring Jimmy Carter, the 39th president of the United States, who died at 100 on Sunday.`\
 https://nytimes.com/2024/12/30/us/politics/jimmy-carter-funeral.html
 
-**Role of Concrete Wall Near Runway Questioned in South Korea Crash**\
+**Experts Question Role of Concrete Wall Near Runway in South Korea Crash**\
 `Aviation safety analysts said they expect officials investigating the crash, which killed 179 people, to look into the location and composition of a structure housing an antenna.`\
 https://nytimes.com/2024/12/30/business/plane-crash-korea-wall-investigation.html
 
