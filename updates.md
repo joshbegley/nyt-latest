@@ -1,3 +1,7 @@
+**Pacers punch their way past Celtics, showing teams trending in opposite directions**\
+`“I think we set our precedent for how we want to play,” the Pacers' Myles Turner said after a 123-114 win.`\
+https://nytimes.com/athletic/6026368/2024/12/30/celtics-pacers-nba-rematch/
+
 **Vikings stamp themselves as legitimate contenders with impressive victory over Packers**\
 `As the pressure continues to mount, the Vikings keep getting it done. Now the Lions are all that stand between them and the NFC's top seed.`\
 https://nytimes.com/athletic/6026333/2024/12/30/vikings-win-darnold-oconnell-contenders-packers/
