@@ -1,3 +1,11 @@
+**Stand offs like Rashford and Amorim at Man Utd rarely end in true reconciliation**\
+`Marcus Rashford's exile under Ruben Amorim is four games and counting - history says when it gets this bad it usually only ends one way`\
+https://nytimes.com/athletic/6024503/2024/12/30/rashford-amorim-man-utd-exile/
+
+**xG, xA and a battle for hearts and minds – a friendly debate between a fan and The Athletic's data expert**\
+`Duncan Alexander and a football fan discuss data, where it is used well, where it could be used better and why it's sometimes confusing`\
+https://nytimes.com/athletic/6021663/2024/12/30/xg-ppda-explained-expected-goals/
+
 **Tough night for Wild's first line, but details costly in the end: 3 takeaways vs. Senators**\
 `The Wild struggled to take advantage of their chances against a beatable goalie in their second game without Kaprizov.`\
 https://nytimes.com/athletic/6025956/2024/12/30/wild-top-line-penalty-kill-senators/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6024550/2024/12/30/man-city-fans-leicester/
 **13 Cozy Winter Dinners to Warm You Up**\
 `When the weather outside is frightful, cook something delightful.`\
 https://nytimes.com/2024/12/30/dining/winter-recipes-warming.html
-
-**Carter Had Complicated History With Israel, Despite Camp David Accords**\
-`After his presidency, Jimmy Carter became critical of Israel’s treatment of Palestinians and likened the situation to apartheid.`\
-https://nytimes.com/2024/12/29/us/politics/carter-israel-camp-david.html
-
-**Mark Gronowski, lauded South Dakota State QB, enters transfer portal**\
-`Gronowski guided the Jackrabbits to national titles in 2022 and 2023 and a semifinal appearance this fall.`\
-https://nytimes.com/athletic/6026359/2024/12/29/mark-gronowski-transfer-portal-south-dakota-state/
 
