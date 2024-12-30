@@ -1,3 +1,7 @@
+**Vikings stamp themselves as legitimate contenders with impressive victory over Packers**\
+`As the pressure continues to mount, the Vikings keep getting it done. Now the Lions are all that stand between them and the NFC's top seed.`\
+https://nytimes.com/athletic/6026333/2024/12/30/vikings-win-darnold-oconnell-contenders-packers/
+
 **Vitor Pereira has transformed Wolves' belief but he needs signings to fix their defence**\
 `The mood around Wolves has changed beyond belief, but the issues that put them in trouble have not gone away`\
 https://nytimes.com/athletic/6025135/2024/12/30/wolves-pereira-january-transfers-defender/
