@@ -1,3 +1,7 @@
+**The Iran hostage crisis helped define the Carter presidency.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/12/29/us/jimmy-carter/the-iran-hostage-crisis-helped-define-the-carter-presidency
+
 **Packers show they're a good team, not a great one in loss to Vikings**\
 `The Packers are in the playoffs, but a similar loss to an elite NFC team should raise concern with the postseason on the horizon.`\
 https://nytimes.com/athletic/6026258/2024/12/29/packers-loss-matt-lafleur-vikings/
