@@ -1,3 +1,7 @@
+**Rashford returns to Man United squad after four-game absence**\
+`The England international has missed the club's last four games in all competitions`\
+https://nytimes.com/athletic/6026714/2024/12/30/manchester-united-team-news-marcus-rashford/
+
 **Jaden Rashada says 'I needed Georgia,' in QB's first public interviews since transfer**\
 `Rashada became the poster child for college football's new era when he went through an eight-figure NIL dispute as a recruit. `\
 https://nytimes.com/athletic/6027609/2024/12/30/jaden-rashada-georgia-quarterback-transfer/
