@@ -1,3 +1,15 @@
+**Red Wings get first win under McLellan: Five thoughts**\
+`After the Red Wings' new coach gave a clear message at his first practice, his team responded by delivering his first win in Detroit.`\
+https://nytimes.com/athletic/6026045/2024/12/29/red-wings-mclellan-first-win-capitals/
+
+**Colts choke again on big stage, as their playoffs hopes die in 'embarrassing' loss to Giants**\
+`No member of the Colts franchise should feel safe after their humiliating loss. Not the players, not the coach and not the GM. `\
+https://nytimes.com/athletic/6026049/2024/12/29/colts-loss-shane-steichen-giants/
+
+**Quotation of the Day: Harris Dickinson’s Love-Hate Relationship With Acting**\
+`Quotation of the Day for Monday, December 30, 2024.`\
+https://nytimes.com/2024/12/29/pageoneplus/quotation-of-the-day-harris-dickinsons-love-hate-relationship-with-acting.html
+
 **Carter’s Navy Legacy Includes a Top-Secret Spy Submarine Named After Him**\
 `The former president, who served aboard submarines as a young naval officer, was “in awe” when he learned the capabilities of the U.S.S. Jimmy Carter.`\
 https://nytimes.com/2024/12/29/us/navy-jimmy-carter-submarine.html
