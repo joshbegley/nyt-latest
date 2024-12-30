@@ -1,3 +1,7 @@
+**40 for 40: LeBron James' top-40 NBA moments and accomplishments**\
+`As LeBron turns 40, let's relive some of his most notable achievements, from his debut in Sacramento to playing alongside his son Bronny.`\
+https://nytimes.com/athletic/6018678/2024/12/30/lebron-james-40th-birthday-nba-moments/
+
 **With loss to Dolphins, Browns may be in position to take one of 2025 draft's top QBs**\
 `Cleveland fell to 3-13 and could wind up with a top-3 pick in April's draft depending on the outcome in the season finale. `\
 https://nytimes.com/athletic/6026209/2024/12/30/browns-quarterback-draft-loss-dolphins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016279/2024/12/30/wisconsin-college-football-quart
 **Wi Ha-jun of ‘Squid Game’ on the Challenges of Brotherly Love**\
 `All sibling relationships are complex — more so when your brother is a criminal mastermind who shoots you. Wi talked about his character’s predicament.`\
 https://nytimes.com/2024/12/30/arts/television/wi-ha-jun-squid-game-season-2.html
-
-**The 2024 High School Yearbook of American Politics**\
-`​My year-end awards in politics for hottest king maker, biggest flash in the pan, top mean girl, most disappointing draft pick and more.`\
-https://nytimes.com/2024/12/30/opinion/donald-trump-elon-musk-taylor-swift-politics.html
 
