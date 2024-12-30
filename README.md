@@ -1,3 +1,7 @@
+**West Ham end 2024 with their calling card - conceding a heap of goals**\
+`West Ham's year ends on a bum note after a demoralising defeat and the mood surrounding Julen Lopetegui as sour as ever`\
+https://nytimes.com/athletic/6024917/2024/12/30/west-ham-2024-goals-conceded-lopetegui/
+
 **Five Laws Going Into Effect for New York in 2025**\
 `Changes are coming to paid family leave, insulin costs, restaurant reservations, gym membership cancellations and protections for fashion industry workers.`\
 https://nytimes.com/2024/12/30/nyregion/ny-laws-2025-insulin-gym-membership.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6025909/2024/12/30/commanders-falcons-snf-score-res
 **'We just sucked': Blackhawks searching for answers again as Winter Classic arrives**\
 `The Blackhawks' improvement will be a long process, but individual breakdowns have started to creep in again under Anders Sorensen.`\
 https://nytimes.com/athletic/6026315/2024/12/30/blackhawks-sorensen-breakdowns-jones-stars/
-
-**Pacers punch their way past Celtics, showing teams trending in opposite directions**\
-`“I think we set our precedent for how we want to play,” the Pacers' Myles Turner said after a 123-114 win.`\
-https://nytimes.com/athletic/6026368/2024/12/30/celtics-pacers-nba-rematch/
 
