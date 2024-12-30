@@ -1,3 +1,7 @@
+**Holding the ‘Title of Citizen,’ Carter Carved a New Mold for Ex-Presidents**\
+`Jimmy Carter redefined what a president can do after departing the White House, leaving a lasting imprint through his work overseas, particularly in the realm of public health.`\
+https://nytimes.com/2024/12/30/us/politics/jimmy-carter-post-presidency.html
+
 **Spurs year-in-review: Wemby's ascent, Popovich's absence, reasons to believe in 2025**\
 `The stroke suffered on Nov. 2 by Gregg Popovich dominates a Spurs year that has been defined both by great promise and remaining challenge.`\
 https://nytimes.com/athletic/6027029/2024/12/30/spurs-review-victor-wembanyama-gregg-popovich/
