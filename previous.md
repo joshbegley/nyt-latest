@@ -1,3 +1,15 @@
+**How Magnus Carlsen's jeans sparked a chess controversy**\
+`The world&#8217;s No 1 chess player Magnus Carlsen will return to the World Rapid and Blitz Chess Championships in New York after initially withdrawing as he refused to change out of a pair of jeans.`\
+https://nytimes.com/athletic/6026738/2024/12/30/magnus-carlsen-jeans-chess-explained/
+
+**Cold Takes More Infant Lives in Gaza, Adding to the War’s Civilian Toll**\
+`The Gazan health ministry says at least five babies have died from the cold in the last week. Displaced families have little more than tents and tarps to protect them from the weather.`\
+https://nytimes.com/2024/12/30/world/middleeast/gaza-baby-deaths-cold.html
+
+**Millwall appoint Neil as new head coach**\
+`Millwall have appointed Alex Neil as their new head coach following the resignation of Neil Harris earlier this month.`\
+https://nytimes.com/athletic/6023079/2024/12/30/alex-neil-millwall-manager/
+
 **The Life of Jimmy Carter**\
 `The former president has died at 100.`\
 https://nytimes.com/2024/12/30/briefing/jimmy-carter-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6026647/2024/12/30/pete-carroll-bears-jim-harbaugh/
 **Joe Burrow has reached a rare level. So what's holding the Bengals back?**\
 `The defense has obviously let the Bengals down, but that's far from their only problem.`\
 https://nytimes.com/athletic/6026641/2024/12/30/joe-burrow-bengals-zac-taylor-defense/
-
-**How does Drake Maye compare to Mac Jones? They're closer than you might think**\
-`Through 11 career starts with the Patriots, Maye's and Jones' numbers look remarkably similar, except for one key area.`\
-https://nytimes.com/athletic/6026650/2024/12/30/drake-maye-patriots-mac-jones/
-
-**Greenberg: Was 2024 the worst year in modern Chicago sports history? Numbers don't lie**\
-`It's not just the black-and-white numbers that made the year so miserable. The totality of the Chicago sports experience was dreadful.`\
-https://nytimes.com/athletic/6015785/2024/12/30/chicago-sports-2024-worst-year-modern-history/
-
-**Jimmy Carter Dies at 100, and Questions Surround South Korean Plane Crash**\
-`Plus, why coffee prices are soaring.`\
-https://nytimes.com/2024/12/30/podcasts/carter-dies-south-korea-plane-crash.html
 
