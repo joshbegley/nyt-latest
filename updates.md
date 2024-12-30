@@ -1,3 +1,11 @@
+**Carter Funeral Service to Be Held at Washington National Cathedral on Jan. 9**\
+`The state funeral will cap more than a week of remembrances honoring Jimmy Carter, the 39th president of the United States, who died at 100 on Sunday.`\
+https://nytimes.com/2024/12/30/us/politics/jimmy-carter-funeral.html
+
+**Role of Concrete Wall Near Runway Questioned in South Korea Crash**\
+`Aviation safety analysts said they expect officials investigating the crash, which killed 179 people, to look into the location and composition of a structure housing an antenna.`\
+https://nytimes.com/2024/12/30/business/plane-crash-korea-wall-investigation.html
+
 **The best of 2024 from The Athletic's North American soccer staff**\
 `Here are our best stories from 2024 in North American soccer`\
 https://nytimes.com/athletic/6021770/2024/12/30/2024-us-soccer-best-stories/
