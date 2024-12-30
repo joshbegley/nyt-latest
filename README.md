@@ -1,3 +1,7 @@
+**Packers show they're a good team, not a great one in loss to Vikings**\
+`The Packers are in the playoffs, but a similar loss to an elite NFC team should raise concern with the postseason on the horizon.`\
+https://nytimes.com/athletic/6026258/2024/12/29/packers-loss-matt-lafleur-vikings/
+
 **Amen Thompson-Tyler Herro fight leads to slew of ejections at end of Heat's win vs. Rockets**\
 `Rockets coaches Ime Udoka and Ben Sullivan were among those ejected after the late-game fracas.`\
 https://nytimes.com/athletic/6026188/2024/12/29/rockets-heat-fight-ejections-amen-thompson-tyler-herro/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6026049/2024/12/29/colts-loss-shane-steichen-giants
 **Quotation of the Day: Harris Dickinson’s Love-Hate Relationship With Acting**\
 `Quotation of the Day for Monday, December 30, 2024.`\
 https://nytimes.com/2024/12/29/pageoneplus/quotation-of-the-day-harris-dickinsons-love-hate-relationship-with-acting.html
-
-**Carter’s Navy Legacy Includes a Top-Secret Spy Submarine Named After Him**\
-`The former president, who served aboard submarines as a young naval officer, was “in awe” when he learned the capabilities of the U.S.S. Jimmy Carter.`\
-https://nytimes.com/2024/12/29/us/navy-jimmy-carter-submarine.html
 
