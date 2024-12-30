@@ -1,3 +1,11 @@
+**Our Favorite Crossword Debuts of 2024**\
+`Our puzzle editors and Wordplay columnists share their favorite new entries to the New York Times Crossword this year.`\
+https://nytimes.com/2024/12/30/crosswords/2024-crossword-debuts.html
+
+**Every Crossword Constructor Debut in 2024**\
+`This year, 88 constructors published their first crossword puzzle in The New York Times.`\
+https://nytimes.com/2024/12/30/crosswords/crossword-constructor-debuts-2024.html
+
 **NFL Week 18 playoff scenarios: AFC North, NFC South up for grabs**\
 `A division title in each conference, one wild card slot in the AFC and the No. 1 seed in the NFC all will be on the line in Week 18.`\
 https://nytimes.com/athletic/6028015/2024/12/30/2024-nfl-playoff-scenarios-week-18/
