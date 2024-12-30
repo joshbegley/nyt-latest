@@ -1,3 +1,11 @@
+**From the Grave, Mondale to Eulogize the Man Who Made Him Vice President**\
+`Walter F. Mondale died in 2021, but he left behind the eulogy he planned to deliver at former President Jimmy Carter’s funeral.`\
+https://nytimes.com/2024/12/30/us/politics/mondale-carter-eulogy.html
+
+**Biden Announces $2.5 Billion in Security Aid to Ukraine**\
+`The Treasury Department also released an additional $3.4 billion in budget aid as the Biden administration rushes assistance to Kyiv in its final weeks in office.`\
+https://nytimes.com/2024/12/30/us/politics/ukraine-aid-weapons.html
+
 **10 Tips to Help You Eat Healthier in 2025**\
 `Throughout the past year, we reviewed seed oils, ultraprocessed foods, Bruce Springsteen’s diet and more. Here’s what we learned.`\
 https://nytimes.com/2024/12/30/well/eat/nutrition-food-tips-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6026956/2024/12/30/nebraska-pinstripe-bowl-college-
 **For 49ers' Dre Greenlaw, football's pain and injuries are no match for his resolve**\
 `Dre Greenlaw has been through a lot just to get to the NFL. It's why the 49ers linebacker isn't deterred by another round of injuries.`\
 https://nytimes.com/athletic/6014551/2024/12/30/dre-greenlaw-san-francisco-49ers-achilles-injuries-free-agent/
-
-**From Bird Strike to Crash: the Mystery of the Korean Plane’s Four Fateful Minutes**\
-`The time between when the pilot reported a bird strike and when it crashed could be key to unraveling one of the world’s worst aviation disasters in years.`\
-https://nytimes.com/2024/12/30/world/asia/south-korea-plane-crash-cause.html
-
-**The manner of Paulo Fonseca’s Milan exit may have been shabby - but change was needed**\
-`Fonseca struggled over six months as Milan coach to win over a fanbase whose expectations are not being met - on or off the pitch `\
-https://nytimes.com/athletic/6026677/2024/12/30/inside-milan-fonseca-sacked-conceicao/
 

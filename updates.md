@@ -1,3 +1,11 @@
+**From the Grave, Mondale to Eulogize the Man Who Made Him Vice President**\
+`Walter F. Mondale died in 2021, but he left behind the eulogy he planned to deliver at former President Jimmy Carter’s funeral.`\
+https://nytimes.com/2024/12/30/us/politics/mondale-carter-eulogy.html
+
+**Biden Announces $2.5 Billion in Security Aid to Ukraine**\
+`The Treasury Department also released an additional $3.4 billion in budget aid as the Biden administration rushes assistance to Kyiv in its final weeks in office.`\
+https://nytimes.com/2024/12/30/us/politics/ukraine-aid-weapons.html
+
 **10 Tips to Help You Eat Healthier in 2025**\
 `Throughout the past year, we reviewed seed oils, ultraprocessed foods, Bruce Springsteen’s diet and more. Here’s what we learned.`\
 https://nytimes.com/2024/12/30/well/eat/nutrition-food-tips-2025.html
