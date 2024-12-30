@@ -1,3 +1,15 @@
+**Israel and Hamas Each Claim Wins in Fierce Fighting in Northern Gaza**\
+`As the renewed clashes in the north of the enclave neared the three-month mark, there was no sign of them abating.`\
+https://nytimes.com/2024/12/30/world/middleeast/israel-hamas-northern-gaza.html
+
+**The Briefing: Ipswich 2 Chelsea 0: Bad festive form, Felix's missed opportunity and Delap's audition**\
+`Chelsea fell to a loss against Ipswich Town at Portman Road on Monday evening`\
+https://nytimes.com/athletic/6017907/2024/12/30/ipswich-chelsea-result-report-analysis/
+
+**'Super bizarre': The dynamic of being in the Playoff while transfer portal remains open**\
+`Awkward is one word to describe it. Bizarre is another word Georgia receivers coach James Coley threw out.`\
+https://nytimes.com/athletic/6027679/2024/12/30/college-football-playoff-transfer-portal/
+
 **Assault Charge Against Oklahoma Police Officer Is Dismissed**\
 `Oklahoma’s attorney general dismissed the charge against an Oklahoma City police sergeant who was seen in body camera footage throwing a 71-year-old man to the pavement during an argument over a ticket.`\
 https://nytimes.com/2024/12/30/us/oklahoma-officer-assault-charges-dropped.html

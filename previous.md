@@ -1,3 +1,15 @@
+**Israel and Hamas Each Claim Wins in Fierce Fighting in Northern Gaza**\
+`As the renewed clashes in the north of the enclave neared the three-month mark, there was no sign of them abating.`\
+https://nytimes.com/2024/12/30/world/middleeast/israel-hamas-northern-gaza.html
+
+**The Briefing: Ipswich 2 Chelsea 0: Bad festive form, Felix's missed opportunity and Delap's audition**\
+`Chelsea fell to a loss against Ipswich Town at Portman Road on Monday evening`\
+https://nytimes.com/athletic/6017907/2024/12/30/ipswich-chelsea-result-report-analysis/
+
+**'Super bizarre': The dynamic of being in the Playoff while transfer portal remains open**\
+`Awkward is one word to describe it. Bizarre is another word Georgia receivers coach James Coley threw out.`\
+https://nytimes.com/athletic/6027679/2024/12/30/college-football-playoff-transfer-portal/
+
 **Assault Charge Against Oklahoma Police Officer Is Dismissed**\
 `Oklahoma’s attorney general dismissed the charge against an Oklahoma City police sergeant who was seen in body camera footage throwing a 71-year-old man to the pavement during an argument over a ticket.`\
 https://nytimes.com/2024/12/30/us/oklahoma-officer-assault-charges-dropped.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6027808/2024/12/30/nfl-week-18-key-matchups-odds-dr
 **What to Know About Celebrating New Year’s Eve in Times Square**\
 `New York’s ball-drop celebration is more than a century old. One important fact about this year: You are likely to get wet.`\
 https://nytimes.com/2024/12/30/nyregion/new-years-eve-in-times-square.html
-
-**How Elon Musk Has Planted Himself Almost Literally at Trump’s Doorstep**\
-`For much of the period since Election Day, the billionaire has been staying at a $2,000-a-night cottage at Mar-a-Lago, giving him easy access to the president-elect.`\
-https://nytimes.com/2024/12/30/us/politics/elon-musk-trump-mar-a-lago.html
-
-**Dolphins' Tua Tagovailoa stands 'firmly in the unknown' to play vs. Jets**\
-`Backup QB Tyler Huntley seemingly put the Dolphins' offense on his back during Sunday's 20-3 win in Cleveland.`\
-https://nytimes.com/athletic/6027775/2024/12/30/dolphins-tua-tagovailoa-hip-injury/
-
-**Barcelona lose second appeal for Olmo registration**\
-`Barcelona have lost a second appeal for the precautionary registration of Dani Olmo for the rest of the season, meaning he remains unable to play for the club from January 1 onwards.`\
-https://nytimes.com/athletic/6026923/2024/12/30/dani-olmo-appeal-rejected-registration/
 
