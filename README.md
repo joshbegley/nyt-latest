@@ -1,3 +1,7 @@
+**Man Dies After Helping His Family Flee Christmas Morning House Fire**\
+`Steven Weatherford ran upstairs to wake his father and two aunts as a fire engulfed their home in Oakland, Calif. He later died of smoke inhalation, the authorities said.`\
+https://nytimes.com/2024/12/30/us/oakland-christmas-house-fire-death.html
+
 **In-stadium VAR announcements to be trialled in Carabao Cup semi-finals**\
 `In-stadium video assistant referee (VAR) announcements will be trialled in English football for the first time during January&#8217;s Carabao Cup semi-finals.`\
 https://nytimes.com/athletic/6027144/2024/12/30/var-in-stadium-trial/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/arts/music/vybz-kartel-concert-freedom-street.htm
 **Conceicao appointed head coach of Milan**\
 `Sergio Conceicao has been appointed as the new head coach of AC Milan.`\
 https://nytimes.com/athletic/5995159/2024/12/30/milan-manager-next-sergio-conceicao-confirmed/
-
-**Ohio State got the Oregon second chance it wanted. Are the Buckeyes ready for revenge?**\
-`Ohio State won't get another shot at Michigan this year, but the Buckeyes are thrilled the Playoff put Oregon in their championship path.`\
-https://nytimes.com/athletic/6026905/2024/12/30/ohio-state-oregon-rose-bowl-rematch/
 
