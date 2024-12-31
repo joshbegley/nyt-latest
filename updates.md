@@ -1,3 +1,7 @@
+**Shorthanded Michigan stuns No. 11 Alabama in ReliaQuest Bowl**\
+`Alabama, the first team left out of the College Football Playoff, was favored by more than two touchdowns but was stymied on offense.`\
+https://nytimes.com/athletic/6030169/2024/12/31/michigan-alabama-score-reliaquest-bowl-takeaways/
+
 **Dan Campbell is a vibe, and the Detroit Lions are feeding off his energy**\
 `The Lions have harnessed Dan Campbell's mindset and turned it into the best regular season in Detroit franchise history. `\
 https://nytimes.com/athletic/6030070/2024/12/31/dan-campbell-vibe-lions-nfl-playoffs/
