@@ -1,3 +1,15 @@
+**Mike McCarthy not interested in addressing his job status: 'We need to finish the race'**\
+`Stephen Jones said he's not surprised with reports that other teams are interested in Mike McCarthy.`\
+https://nytimes.com/athletic/6029213/2024/12/31/cowboys-mike-mccarthy-job-status/
+
+**49ers' Brock Purdy ends loss to Lions with elbow ‘on fire,' awaits more tests**\
+`Purdy's injury came on a day when the 49ers were missing not just their left tackle and left guard but also the players' top backups.`\
+https://nytimes.com/athletic/6028994/2024/12/31/brock-purdy-49ers-elbow-injury-loss-lions/
+
+**The Atlantic Beefs Up Politics Coverage Under Trump**\
+`The magazine is recruiting from a crosstown rival, The Washington Post, to bolster its political staff.`\
+https://nytimes.com/2024/12/31/business/media/atlantic-politics-parker-scherer.html
+
 **Villa's Duran charged by FA following Newcastle red card**\
 `Aston Villa striker Jhon Duran has been charged by the Football Association (FA) following his red card against Newcastle United on Boxing Day.`\
 https://nytimes.com/athletic/6029236/2024/12/31/jhon-duran-red-card-charge-aston-villa/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6028409/2024/12/31/bears-coaching-search-ben-johnso
 **'He knows this is it': Why Oregon's Dillon Gabriel enters Rose Bowl as 'best version of himself'**\
 `Gabriel, called Pops by his teammates, will make his 63rd career start, the most in FBS history by a QB, in the Granddaddy of them all.`\
 https://nytimes.com/athletic/6027646/2024/12/31/oregon-dillon-gabriel-cfp-rose-bowl/
-
-**Jordan Addison's star continuing to rise at perfect time for Vikings offense**\
-`The talented second-year receiver is proving to be a perfect complement to Justin Jefferson — and a dangerous target in his own right.`\
-https://nytimes.com/athletic/6028138/2024/12/31/jordan-addison-vikings-offense-playoffs/
-
-**'It's super cool': Wrigley Field the star of the show for Blackhawks, Blues on eve of Winter Classic**\
-`Sights and soundbites from Wrigley Field on the eve of the NHL's Winter Classic.`\
-https://nytimes.com/athletic/6028783/2024/12/31/nhl-winter-classic-wrigley-field-blackhawks-blues/
-
-**Top 15 NFL Draft prospects to watch in College Football Playoff quarterfinals**\
-`There will be no shortage of NFL Draft prospects on the field during this week's quarterfinal matchups. `\
-https://nytimes.com/athletic/6024736/2024/12/31/nfl-draft-2025-prospects-college-football-playoffs/
 
