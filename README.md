@@ -1,3 +1,7 @@
+**How the Jeju Air Plane Crashed: Timeline, Maps and Photos**\
+`Video from the scene and aircraft positioning data offer clues about the deadliest aviation disaster in years.`\
+https://nytimes.com/interactive/2024/12/31/world/asia/jeju-plane-crash-maps-photos.html
+
 **The Year in Wisdom**\
 `Our staff — and listeners — on the best advice of 2024.`\
 https://nytimes.com/2024/12/31/podcasts/the-daily/2024-best-advice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029919/2024/12/31/georgia-notre-dame-sugar-bowl-ma
 **F.B.I. Says It Found Largest Cache of Homemade Explosives in Its History at Va. Farm**\
 `Investigators discovered more than 150 devices, mostly pipe bombs, on a property outside Norfolk, court papers say.`\
 https://nytimes.com/2024/12/31/us/fbi-explosives-virginia-farm.html
-
-**As Confetti Rained on Times Square, Y2K Bug Was a No-Show**\
-`Planes didn’t fall from the sky on Jan. 1, 2000. A technology reporter who wrote a front-page article early that morning reflects on a crisis that never was.`\
-https://nytimes.com/2024/12/31/insider/y2k-crisis.html
 
