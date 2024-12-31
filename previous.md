@@ -1,3 +1,7 @@
+**Tracking War Crimes in Sudan**\
+`Inside a six-month Times investigation.`\
+https://nytimes.com/2024/12/31/briefing/sudan-war-crimes.html
+
 **Houthis Launch Latest Missile at Israel Amid Warnings of Retaliation**\
 `The Houthis, an Iranian-backed group based in Yemen, have launched repeated attacks despite the Israeli military’s retaliatory airstrikes.`\
 https://nytimes.com/2024/12/31/world/middleeast/houthis-israel-missile-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6024736/2024/12/31/nfl-draft-2025-prospects-college
 **Behind Declan Chisholm's unlikely rise to Wild's top 4: 'All he needed was a chance'**\
 `For a while, it wasn't a given Chisholm would be able to walk. Now he's holding his own next to Wild captain Jared Spurgeon.`\
 https://nytimes.com/athletic/6027576/2024/12/31/declan-chisholm-wild-top-four/
-
-**The Connections Companion No. 570**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 1, 2025.`\
-https://nytimes.com/2024/12/31/crosswords/connections-companion-570.html
 

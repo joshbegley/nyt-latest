@@ -1,3 +1,7 @@
+**Tracking War Crimes in Sudan**\
+`Inside a six-month Times investigation.`\
+https://nytimes.com/2024/12/31/briefing/sudan-war-crimes.html
+
 **He Didn’t Know His Father Was on the Doomed Flight Until It Crashed**\
 `Oh Jaejin’s father, 64, had not told Mr. Oh he was flying, because he didn’t want his son to worry. They had been looking forward to his becoming a grandfather.`\
 https://nytimes.com/2024/12/31/world/asia/south-korea-plane-crash-victims.html
