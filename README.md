@@ -27,7 +27,7 @@ https://nytimes.com/2024/12/31/movies/jolie-pitt-divorce.html
 https://nytimes.com/athletic/6028188/2024/12/31/tariq-lamptey-brighton-aston-villa/
 
 **How Newcastle handled and embraced the pressure of expectation at Old Trafford**\
-`There have been some huge highs under Eddie Howe but a league win at the red side of Manchester had eluded his team — until now`\
+`There have been some huge highs under Eddie Howe but a league win at the red side of Manchester had eluded his team – until now`\
 https://nytimes.com/athletic/6019380/2024/12/31/newcastle-united-old-trafford-pressure/
 
 **Enzo Maresca has deserved Chelsea praise, now he must show he can handle adversity**\
