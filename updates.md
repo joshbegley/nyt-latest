@@ -1,3 +1,7 @@
+**Cowboys Today: Why Rico Dowdle's season is so impressive, and weighing his future**\
+`Should the Cowboys re-sign Rico Dowdle and is he enough to carry the team's backfield?`\
+https://nytimes.com/athletic/6028539/2024/12/31/cowboys-today-rico-dowdle-future/
+
 **Josh Hart is no longer 'lost' on the Knicks. In fact, he's 'more confident than ever'**\
 `Josh Hart is having his best season, averaging 14.4 points, 8.6 rebounds and 5.5 assists. It's a stark turnaround from two months ago.`\
 https://nytimes.com/athletic/6029423/2024/12/31/josh-hart-confidence-knicks-nba/
