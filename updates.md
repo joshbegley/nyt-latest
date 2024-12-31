@@ -1,3 +1,7 @@
+**Woody Fraser, Pioneering Producer of Daytime Talk Shows, Dies at 90**\
+`He spiced up the format in creating “The Mike Douglas Show” and brought “Good Morning America” to life. But his career ended under a cloud of sexual harassment claims.`\
+https://nytimes.com/2024/12/31/arts/television/woody-fraser-dead.html
+
 **Rangers to place Igor Shesterkin on IR with upper-body injury: Source**\
 `The Rangers, who have lost 15 of their last 19 games, will be in even more trouble without their franchise goalie.`\
 https://nytimes.com/athletic/6030469/2024/12/31/rangers-igor-shesterkin-injury/

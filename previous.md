@@ -1,3 +1,7 @@
+**Woody Fraser, Pioneering Producer of Daytime Talk Shows, Dies at 90**\
+`He spiced up the format in creating “The Mike Douglas Show” and brought “Good Morning America” to life. But his career ended under a cloud of sexual harassment claims.`\
+https://nytimes.com/2024/12/31/arts/television/woody-fraser-dead.html
+
 **Rangers to place Igor Shesterkin on IR with upper-body injury: Source**\
 `The Rangers, who have lost 15 of their last 19 games, will be in even more trouble without their franchise goalie.`\
 https://nytimes.com/athletic/6030469/2024/12/31/rangers-igor-shesterkin-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/12/31/realestate/fine-china-dumulong-family
 **Dan Campbell is a vibe, and the Detroit Lions are feeding off his energy**\
 `The Lions have harnessed Dan Campbell's mindset and turned it into the best regular season in Detroit franchise history. `\
 https://nytimes.com/athletic/6030070/2024/12/31/dan-campbell-vibe-lions-nfl-playoffs/
-
-**Maple Leafs report cards: Depth scoring comes up big to cap off 2024**\
-`Steven Lorentz scored a highlight-reel goal as Toronto finished the year on a winning note.`\
-https://nytimes.com/athletic/6030267/2024/12/31/maple-leafs-islanders-analysis-grades/
 
