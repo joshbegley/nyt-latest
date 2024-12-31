@@ -1,40 +1,40 @@
+**Jordan Addison's star continuing to rise at perfect time for Vikings offense**\
+`The talented second-year receiver is proving to be a perfect complement to Justin Jefferson — and a dangerous target in his own right.`\
+https://nytimes.com/athletic/6028138/2024/12/31/jordan-addison-vikings-offense-playoffs/
+
+**'It's super cool': Wrigley Field the star of the show for Blackhawks, Blues on eve of Winter Classic**\
+`Sights and soundbites from Wrigley Field on the eve of the NHL's Winter Classic.`\
+https://nytimes.com/athletic/6028783/2024/12/31/nhl-winter-classic-wrigley-field-blackhawks-blues/
+
+**Top 15 NFL Draft prospects to watch in College Football Playoff quarterfinals**\
+`There will be no shortage of NFL Draft prospects on the field during this week's quarterfinal matchups. `\
+https://nytimes.com/athletic/6024736/2024/12/31/nfl-draft-2025-prospects-college-football-playoffs/
+
+**Behind Declan Chisholm's unlikely rise to Wild's top 4: 'All he needed was a chance'**\
+`For a while, it wasn't a given Chisholm would be able to walk. Now he's holding his own next to Wild captain Jared Spurgeon.`\
+https://nytimes.com/athletic/6027576/2024/12/31/declan-chisholm-wild-top-four/
+
+**The Connections Companion No. 570**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 1, 2025.`\
+https://nytimes.com/2024/12/31/crosswords/connections-companion-570.html
+
+**China Hacks the Treasury Dept., and a Hydropower Crisis**\
+`Plus, what you might be eating in 2025.`\
+https://nytimes.com/2024/12/31/podcasts/china-hacks-the-treasury-dept-and-a-hydropower-crisis.html
+
+**NFL QB stock report, Week 18: Has Packers' Jordan Love validated his huge contract extension?**\
+`Green Bay signed Love to a four-year, $220 million deal when he had just 18 career starts on his resume. The move has proved prescient. `\
+https://nytimes.com/athletic/6027236/2024/12/31/nfl-qb-stock-report-rankings-jordan-love-packers/
+
 **Wordle Review No. 1,292**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 1, 2025.`\
 https://nytimes.com/2024/12/31/crosswords/wordle-review-1292.html
 
+**Blue Jackets need veteran defenseman Damon Severson to clean up his mistakes**\
+`A streak of bad mistakes at the worst possible times is undermining Severson's generally positive play.`\
+https://nytimes.com/athletic/6028509/2024/12/31/blue-jackets-damon-severson-defense-mistakes/
+
 **The Year in Books**\
 `Our Book Review staff on the best of 2024.`\
 https://nytimes.com/2024/12/31/podcasts/the-daily/2024-best-books.html
-
-**Dabrowski played through breast cancer treatment to win Olympic tennis medal, WTA Tour Finals**\
-`The Canadian was diagnosed in April 2024 and delayed some of her treatment to play Wimbledon and the Olympic Games.`\
-https://nytimes.com/athletic/6029152/2024/12/31/gabriela-dabrowski-tennis-cancer-diagnosis/
-
-**Commanders playoff scenarios: Who are they better suited to face in wild-card round?**\
-`Depending on Sunday's results, Washington could match up against the Rams, Buccaneers or Eagles on Super Wild Card Weekend.`\
-https://nytimes.com/athletic/6028126/2024/12/31/commanders-playoff-scenarios-nfc-wild-card-round/
-
-**Florida's recruiting reversal: Class of 2026 QB Will Griffin enjoying Gators' surge**\
-`Florida's 2025 class is ranked 10th nationally and includes 10 blue-chip prospects from the Sunshine State.`\
-https://nytimes.com/athletic/6027193/2024/12/31/florida-gators-recruiting-qb-will-griffin/
-
-**If the Patriots keep Jerod Mayo, what staff changes would be necessary this offseason?**\
-`If the Patriots retain Mayo, what might their offseason look like? And what staff changes — likely the coordinators — would be needed?`\
-https://nytimes.com/athletic/6027610/2024/12/31/jerod-mayo-patriots-coaching-job/
-
-**Penn State-Boise State preview: Predictions, players to watch and keys to Fiesta Bowl**\
-`The Nittany Lions and Broncos will play in the first CFP quarterfinal game at 7:30 p.m. ET Tuesday.`\
-https://nytimes.com/athletic/6027809/2024/12/31/penn-state-boise-state-prediction-fiesta-bowl/
-
-**Panthers offensive roster analysis: Is Bryce Young the future? Jalen Coker makes his mark**\
-`After being benched for five games, Young looked better and more confident. Chuba Hubbard became a major strength for Carolina.`\
-https://nytimes.com/athletic/6028210/2024/12/31/panthers-roster-analysis-offense-bryce-young-jalen-coker/
-
-**Predicting Nebraska sports moments for 2025 (and what we got wrong for 2024)**\
-`Freshman quarterback Dylan Raiola will continue to show strength as a leader for the Huskers. And which team could win a national title?`\
-https://nytimes.com/athletic/6027742/2024/12/31/nebraska-college-athletics-predictions-2025/
-
-**Carter’s Mission to Build More Housing Became an Urgent National Issue**\
-`After Jimmy and Rosalynn Carter linked themselves to Habitat for Humanity, it grew and built homes for millions. Now, their cause is a national crisis.`\
-https://nytimes.com/2024/12/31/us/jimmy-carter-habitat-for-humanity.html
 
