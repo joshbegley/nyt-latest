@@ -1,3 +1,7 @@
+**Trent Alexander-Arnold, Liverpool and Real Madrid: What we're hearing**\
+`How advanced is the Spanish club's interest in England right-back - and how significant is January 1?`\
+https://nytimes.com/athletic/6024486/2024/12/31/trent-alexander-arnold-liverpool-real-madrid-transfer/
+
 **Cowboys Today: Why Rico Dowdle's season is so impressive, and weighing his future**\
 `Should the Cowboys re-sign Rico Dowdle and is he enough to carry the team's backfield?`\
 https://nytimes.com/athletic/6028539/2024/12/31/cowboys-today-rico-dowdle-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029093/2024/12/31/newcastle-manchester-united-wide
 **College Football Playoff 2024 projections: Who will advance from the quarterfinals?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/31/college-football-playoff-projections-odds/
-
-**Ohio State's national title hopes hinge on a position that knows adversity like no other**\
-`The Buckeyes' hard-luck offensive line has been shuffled and shuffled again. Can it meet the moment in the Rose Bowl against Oregon?`\
-https://nytimes.com/athletic/6028801/2024/12/31/ohio-state-offensive-line-oregon-playoff/
 

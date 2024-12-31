@@ -1,3 +1,7 @@
+**Trent Alexander-Arnold, Liverpool and Real Madrid: What we're hearing**\
+`How advanced is the Spanish club's interest in England right-back - and how significant is January 1?`\
+https://nytimes.com/athletic/6024486/2024/12/31/trent-alexander-arnold-liverpool-real-madrid-transfer/
+
 **Cowboys Today: Why Rico Dowdle's season is so impressive, and weighing his future**\
 `Should the Cowboys re-sign Rico Dowdle and is he enough to carry the team's backfield?`\
 https://nytimes.com/athletic/6028539/2024/12/31/cowboys-today-rico-dowdle-future/
