@@ -1,5 +1,13 @@
+**Pentagon Releases Detainee Held at Guantánamo Since Day 1**\
+`The prisoner, who was repatriated to Tunisia, was never charged. His transfer is part of a Biden administration push to further reduce the dwindling detainee population at the wartime prison.`\
+https://nytimes.com/2024/12/30/us/politics/guantanamo-detainee-released-tunisia.html
+
+**Go Around in Circles**\
+`Michael Lieberman brings our solving year to a close.`\
+https://nytimes.com/2024/12/30/crosswords/daily-puzzle-2024-12-31.html
+
 **MLB offseason notes: What we're hearing about Jack Flaherty's market and Nolan Arenado**\
-`With Corbin Burnes off the board, Jack Flaherty stands as one of the best remaining options for teams in search of starting pitching.`\
+`With Corbin Burnes off the board, Flaherty stands as one of the best remaining options for teams in search of starting pitching.`\
 https://nytimes.com/athletic/6028641/2024/12/30/mlb-offseason-notes-jack-flaherty-nolan-arenado/
 
 **Hochul Installs New Leader at Prison Where Inmate Was Fatally Beaten**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6028561/2024/12/30/roki-sasaki-mlb-free-agent/
 **South Korea Clears Way to Detain President in Martial Law Inquiry**\
 `The police are investigating whether President Yoon Suk Yeol tried to lead an insurrection when he declared martial law and plunged the country into crisis.`\
 https://nytimes.com/2024/12/30/world/asia/south-korea-warrant-president-yoon-suk-yeol.html
-
-**FBI warns leagues about organized theft groups targeting athletes**\
-`The report follows a spate of burglaries at the homes of high-profile athletes, with a recent break-in occurring at Luka Dončic's home.`\
-https://nytimes.com/athletic/6028472/2024/12/30/fbi-warning-theft-groups-burglaries-nfl-nba/
-
-**Eidevall set to be appointed San Diego Wave head coach**\
-`The former Arsenal head coach chose San Diego partly for its growth potential under new ownership.`\
-https://nytimes.com/athletic/5958337/2024/12/30/san-diego-wave-jonas-eidevall/
 
