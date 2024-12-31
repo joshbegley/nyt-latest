@@ -1,3 +1,7 @@
+**Ranking the Rangers' most embarrassing losses during descent in the standings**\
+`The Rangers are on a 4-15-0 run since Nov. 21. Where does the latest 5-3 loss to the Panthers rank in an awful stretch?`\
+https://nytimes.com/athletic/6028821/2024/12/30/rangers-most-embarrassing-losses/
+
 **Full Time: Our 2024 soccer superlatives**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6028838/2024/12/30/nwsl-uswnt-2024-soccer-recap-full-time/
