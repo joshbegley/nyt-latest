@@ -1,3 +1,7 @@
+**The Pulse: The Lions’ dangerous reality**\
+`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6027623/2024/12/31/lions-49ers-nfc-playoffs-the-pulse/
+
 **Mike McCarthy not interested in addressing his job status: 'We need to finish the race'**\
 `Stephen Jones said he's not surprised with reports that other teams are interested in Mike McCarthy.`\
 https://nytimes.com/athletic/6029213/2024/12/31/cowboys-mike-mccarthy-job-status/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/world/europe/new-years-eve-edinburgh-hogmanay-wea
 **Chasing the Lions and impressing Ben Johnson requires changes from the Bears**\
 `The Lions' turnaround really began when they asked a beloved former player for help. Would the Bears do something similar?`\
 https://nytimes.com/athletic/6028409/2024/12/31/bears-coaching-search-ben-johnson-lions/
-
-**'He knows this is it': Why Oregon's Dillon Gabriel enters Rose Bowl as 'best version of himself'**\
-`Gabriel, called Pops by his teammates, will make his 63rd career start, the most in FBS history by a QB, in the Granddaddy of them all.`\
-https://nytimes.com/athletic/6027646/2024/12/31/oregon-dillon-gabriel-cfp-rose-bowl/
 
