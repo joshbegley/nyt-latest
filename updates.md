@@ -1,3 +1,7 @@
+**Joel Embiid and the Sixers are beginning to look like what we thought they'd be**\
+`Embiid scored a season-high 37 points on Monday in Portland, and the way he got those points was the most encouraging sign.`\
+https://nytimes.com/athletic/6028992/2024/12/31/joel-embiid-sixers-portland/
+
 **The Pulse: The Lions’ dangerous reality**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6027623/2024/12/31/lions-49ers-nfc-playoffs-the-pulse/
