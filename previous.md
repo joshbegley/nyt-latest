@@ -2,7 +2,7 @@
 `The Houthis, an Iranian-backed group based in Yemen, have launched repeated attacks despite the Israeli military’s retaliatory airstrikes.`\
 https://nytimes.com/2024/12/31/world/middleeast/houthis-israel-missile-attack.html
 
-**He Didn’t Know His Father Was on the Doomed Flight Until it Crashed**\
+**He Didn’t Know His Father Was on the Doomed Flight Until It Crashed**\
 `Oh Jaejin’s father, 64, had not told Mr. Oh he was flying, because he didn’t want his son to worry. They had been looking forward to his becoming a grandfather.`\
 https://nytimes.com/2024/12/31/world/asia/south-korea-plane-crash-victims.html
 
