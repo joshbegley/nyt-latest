@@ -1,3 +1,7 @@
+**Pulling Back From the Nuclear Brink**\
+`Some ways to lessen the world’s most deadly risk. Also: The debate over work visas; unreliable polls; cruelty and Christianity.`\
+https://nytimes.com/2024/12/31/opinion/letters/nuclear-brink.html
+
 **College Football Playoff betting action report: 'All the money is coming in on Texas'**\
 `The second round of the CFP is finally here! Ben Fawkes talked to oddsmakers about big bets, liabilities, futures bets and line moves.`\
 https://nytimes.com/athletic/6027680/2024/12/31/college-football-playoff-betting-odds-report-quaterfinals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027451/2024/12/31/nfl-draft-cam-ward-shedeur-sande
 **New Year’s 2025: Celebrations Around the World**\
 `See how people across the globe celebrated.`\
 https://nytimes.com/2024/12/31/world/new-years-eve-photos.html
-
-**Does Wayne Rooney still have a future in football management?**\
-`His failure at Plymouth was predictable, but so is him getting further offers in management`\
-https://nytimes.com/athletic/6029269/2024/12/31/does-wayne-rooney-still-have-a-future-in-football-management/
 
