@@ -1,3 +1,11 @@
+**Lessons from soul-crushing fantasy football draft misses: CMC, Tyreek Hill and more**\
+`Tough lessons are learned during every fantasy football season. What stood out in 2024, and how can you adapt for 2025?`\
+https://nytimes.com/athletic/6029436/2024/12/31/2024-nfl-fantasy-football-lessons/
+
+**Miami fires defensive coordinator Lance Guidry**\
+`Guidry spent two years in Coral Gables running head coach Mario Cristobal’s defense.`\
+https://nytimes.com/athletic/6029681/2024/12/31/miami-defensive-coordinator-lance-guidry-fired/
+
 **Pulling Back From the Nuclear Brink**\
 `Some ways to lessen the world’s most deadly risk. Also: The debate over work visas; unreliable polls; cruelty and Christianity.`\
 https://nytimes.com/2024/12/31/opinion/letters/nuclear-brink.html

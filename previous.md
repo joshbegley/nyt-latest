@@ -1,3 +1,11 @@
+**Lessons from soul-crushing fantasy football draft misses: CMC, Tyreek Hill and more**\
+`Tough lessons are learned during every fantasy football season. What stood out in 2024, and how can you adapt for 2025?`\
+https://nytimes.com/athletic/6029436/2024/12/31/2024-nfl-fantasy-football-lessons/
+
+**Miami fires defensive coordinator Lance Guidry**\
+`Guidry spent two years in Coral Gables running head coach Mario Cristobal’s defense.`\
+https://nytimes.com/athletic/6029681/2024/12/31/miami-defensive-coordinator-lance-guidry-fired/
+
 **Pulling Back From the Nuclear Brink**\
 `Some ways to lessen the world’s most deadly risk. Also: The debate over work visas; unreliable polls; cruelty and Christianity.`\
 https://nytimes.com/2024/12/31/opinion/letters/nuclear-brink.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/31/fashion/weddings/proposal-ideas-marriage.html
 **Give Chicken Breasts a Chance**\
 `And more cooking plans (with corresponding recipes) I have for the coming year.`\
 https://nytimes.com/2024/12/31/dining/give-chicken-breasts-a-chance.html
-
-**Where Shedeur Sanders, Cam Ward NFL Draft evaluations stand after QBs' bowl games**\
-`Ward and Sanders played their final college games on Saturday. How will NFL teams view them as prospects heading into the draft cycle?`\
-https://nytimes.com/athletic/6027451/2024/12/31/nfl-draft-cam-ward-shedeur-sanders-bowl-games/
-
-**New Year’s 2025: Celebrations Around the World**\
-`See how people across the globe celebrated.`\
-https://nytimes.com/2024/12/31/world/new-years-eve-photos.html
 
