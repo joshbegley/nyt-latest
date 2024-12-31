@@ -1,3 +1,11 @@
+**Putin Declares ‘Everything Will Be Fine’ Despite Russia’s Growing Challenges**\
+`Speaking on the 25th anniversary of his rule, President Vladimir V. Putin delivered an upbeat and vague New Year’s Eve message that did not address casualties in Ukraine or rising inflation at home.`\
+https://nytimes.com/2024/12/31/world/europe/putin-russia-ukraine-speech.html
+
+**Five final Georgia thoughts before the Sugar Bowl**\
+`Marcus Freeman has been building Notre Dame for this game. Georgia, meanwhile, seems to be seeing how long it can keep this ride going.`\
+https://nytimes.com/athletic/6029919/2024/12/31/georgia-notre-dame-sugar-bowl-matchups/
+
 **F.B.I. Says It Found Largest Cache of Homemade Explosives in Its History at Va. Farm**\
 `Investigators discovered more than 150 devices, mostly pipe bombs, on a property outside Norfolk, court papers say.`\
 https://nytimes.com/2024/12/31/us/fbi-explosives-virginia-farm.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6010637/2024/12/31/review-of-2024-football/
 **Heat Today: 5 New Year's resolutions for Miami as 2025 approaches**\
 `The Heat have been mediocre through 30 games, but a few small improvements could go a long way.`\
 https://nytimes.com/athletic/6029698/2024/12/31/jimmy-butler-tyler-herro-bam-adebayo-heat-all-star-nba/
-
-**Georgia vs. Notre Dame: How to watch, picks, odds for CFP quarterfinal at Sugar Bowl**\
-`Georgia is a small favorite against Notre Dame but the Bulldogs will be without starting quarterback Carson Beck.`\
-https://nytimes.com/athletic/6016744/2024/12/31/georgia-notre-dame-how-to-watch-picks-odds-college-football-playoff/
-
-**Victim of Coney Island Subway Immolation Is Identified by the Police**\
-`Debrina Kawam of Toms River, N.J., was burned alive on Dec. 22 in a videotaped killing that shocked New York.`\
-https://nytimes.com/2024/12/31/nyregion/coney-island-subway-burning-victim-identified.html
 

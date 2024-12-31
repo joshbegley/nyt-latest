@@ -1,3 +1,11 @@
+**Putin Declares ‘Everything Will Be Fine’ Despite Russia’s Growing Challenges**\
+`Speaking on the 25th anniversary of his rule, President Vladimir V. Putin delivered an upbeat and vague New Year’s Eve message that did not address casualties in Ukraine or rising inflation at home.`\
+https://nytimes.com/2024/12/31/world/europe/putin-russia-ukraine-speech.html
+
+**Five final Georgia thoughts before the Sugar Bowl**\
+`Marcus Freeman has been building Notre Dame for this game. Georgia, meanwhile, seems to be seeing how long it can keep this ride going.`\
+https://nytimes.com/athletic/6029919/2024/12/31/georgia-notre-dame-sugar-bowl-matchups/
+
 **In Jab at Musk, Scholz Condemns Foreign Interference in German Election**\
 `Chancellor Olaf Scholz said Germany’s election would “not be decided by the owners of social media channels” in his annual New Year’s Eve address.`\
 https://nytimes.com/2024/12/31/world/europe/scholz-elon-musk-germany-election.html
