@@ -1,3 +1,11 @@
+**On E-Scooters and ATVs, Russian Forces Swarm Ukrainian Positions in the East**\
+`Stepped up attacks by Russia are heightening longstanding concerns over how Ukraine manages its military and countering assumptions that Moscow’s offensive would slow, soldiers and military analysts say.`\
+https://nytimes.com/2024/12/31/world/europe/ukraine-russia-attacks-eastern-frong.html
+
+**How to fix the college football calendar in 10 simple steps**\
+`It's not just about moving Week 1 up or playing more home Playoff games. An interconnected series of schedule tweaks could address a lot.`\
+https://nytimes.com/athletic/6028036/2024/12/31/college-football-calendar-transfer-portal-bowls/
+
 **How Newcastle handled and embraced the pressure of expectation at Old Trafford**\
 `There have been some huge highs under Eddie Howe but a league win at the red side of Manchester had eluded his team – until now`\
 https://nytimes.com/athletic/6019380/2024/12/31/newcastle-united-old-trafford-pressure/
