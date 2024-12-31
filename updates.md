@@ -1,3 +1,11 @@
+**Chasing the Lions and impressing Ben Johnson requires changes from the Bears**\
+`The Lions' turnaround really began when they asked a beloved former player for help. Would the Bears do something similar?`\
+https://nytimes.com/athletic/6028409/2024/12/31/bears-coaching-search-ben-johnson-lions/
+
+**'He knows this is it': Why Oregon's Dillon Gabriel enters Rose Bowl as 'best version of himself'**\
+`Gabriel, called Pops by his teammates, will make his 63rd career start, the most in FBS history by a QB, in the Granddaddy of them all.`\
+https://nytimes.com/athletic/6027646/2024/12/31/oregon-dillon-gabriel-cfp-rose-bowl/
+
 **Jordan Addison's star continuing to rise at perfect time for Vikings offense**\
 `The talented second-year receiver is proving to be a perfect complement to Justin Jefferson — and a dangerous target in his own right.`\
 https://nytimes.com/athletic/6028138/2024/12/31/jordan-addison-vikings-offense-playoffs/
