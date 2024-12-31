@@ -1,3 +1,7 @@
+**Congestion Pricing to Start Sunday, After Last-Minute Meeting With Judge**\
+`New Jersey had sued in an attempt to halt New York’s plan to charge motorists entering Manhattan’s busiest roadways.`\
+https://nytimes.com/2024/12/31/nyregion/congestion-pricing-new-york-new-jersey.html
+
 **‘Population 11’ Is a Peppy Small-Town Outback Mystery**\
 `The new Amazon series isn’t reinventing the TV mystery, but it is a fun and clever watch, buoyed by a few well-timed and energetic twists`\
 https://nytimes.com/2024/12/31/arts/television/population-11-amazon-prime-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030469/2024/12/31/rangers-igor-shesterkin-injury/
 **62 Fascinating Facts of 2024**\
 `Each day, Times Insider editors scour the newspaper for the most interesting facts to appear in articles. This year, tidbits about grudge-holding crows, the first-ever first kiss and George Washington’s dentures enlightened, informed and entertained us.`\
 https://nytimes.com/2024/12/31/insider/-ifacts-2024.html
-
-**Russian Forces are Swarming Ukrainian Positions in the East**\
-`Plus, Wall Street sees more gains ahead.`\
-https://nytimes.com/2024/12/31/briefing/ukraine-russia-new-years-eve.html
 
