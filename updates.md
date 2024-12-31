@@ -1,3 +1,7 @@
+**What's next for Roki Sasaki? Agent provides update on coveted free agent**\
+`Factors include location, market size and team success, but agent Joel Wolfe says Sasaki tends to think differently than most players.`\
+https://nytimes.com/athletic/6028561/2024/12/30/roki-sasaki-mlb-free-agent/
+
 **South Korea Clears Way to Detain President in Martial Law Inquiry**\
 `The police are investigating whether President Yoon Suk Yeol tried to lead an insurrection when he declared martial law and plunged the country into crisis.`\
 https://nytimes.com/2024/12/30/world/asia/south-korea-warrant-president-yoon-suk-yeol.html
