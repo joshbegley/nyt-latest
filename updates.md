@@ -1,3 +1,11 @@
+**He Didn’t Know His Father Was on the Doomed Flight Until it Crashed**\
+`Oh Jaejin’s father, 64, had not told Mr. Oh he was flying, because he didn’t want his son to worry. They had been looking forward to his becoming a grandfather.`\
+https://nytimes.com/2024/12/31/world/asia/south-korea-plane-crash-victims.html
+
+**Edinburgh’s Epic New Year’s Eve Street Party Is Canceled Because of Weather**\
+`The outdoor Hogmanay festivities were called off in Scotland’s capital as forecasters warned of rain, strong winds and snow across Britain.`\
+https://nytimes.com/2024/12/31/world/europe/new-years-eve-edinburgh-hogmanay-weather-canceled.html
+
 **Chasing the Lions and impressing Ben Johnson requires changes from the Bears**\
 `The Lions' turnaround really began when they asked a beloved former player for help. Would the Bears do something similar?`\
 https://nytimes.com/athletic/6028409/2024/12/31/bears-coaching-search-ben-johnson-lions/
