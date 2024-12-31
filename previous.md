@@ -1,3 +1,11 @@
+**How Newcastle handled and embraced the pressure of expectation at Old Trafford**\
+`There have been some huge highs under Howe but a league win at the red side of Manchester had eluded his team — until now`\
+https://nytimes.com/athletic/6019380/2024/12/31/newcastle-united-old-trafford-pressure/
+
+**Enzo Maresca has deserved Chelsea praise, now he must show he can handle adversity**\
+`After an incredible start and all the Premier League title talk, Chelsea have hit a bump in the road`\
+https://nytimes.com/athletic/6028395/2024/12/31/enzo-maresca-chelsea-ipswich-form/
+
 **Are Manchester United now a part of the Premier League relegation battle?**\
 `After six defeats in a month for the first time since 1930, Ruben Amorim is increasingly aware of how much trouble his side may be in`\
 https://nytimes.com/athletic/6028709/2024/12/31/manchester-united-amorim-relegation-battle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5997807/2024/12/31/nottingham-forests-2024-from-psr
 **Tottenham Hotspur's 2024: Dejan Kulusevski comes to the fore but inconsistency lingers**\
 `Ange Postecoglou's side continue to impress and bewilder their fanbase in equal measure - will 2025 be a smoother ride?`\
 https://nytimes.com/athletic/5966195/2024/12/31/tottenham-review-of-the-year-2024/
-
-**Everton's 2024: Takeover joy, Goodison derby to savour and Branthwaite steps up**\
-`From the fear of relegation (again) to the start of a new era under The Friedkin Group - it's been another dramatic 12 months at Goodison`\
-https://nytimes.com/athletic/5997926/2024/12/31/everton-2024-review-friedkin-goodison/
-
-**How thoughtful management has unlocked the best form of Alexis Mac Allister's Liverpool career**\
-`Arne Slot's careful rotation of key figures is underpinning Liverpool's title bid - and few players have benefited as much as Mac Allister`\
-https://nytimes.com/athletic/6027014/2024/12/31/alexis-mac-allister-form-slot-rested/
 

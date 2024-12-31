@@ -1,3 +1,11 @@
+**How Newcastle handled and embraced the pressure of expectation at Old Trafford**\
+`There have been some huge highs under Howe but a league win at the red side of Manchester had eluded his team — until now`\
+https://nytimes.com/athletic/6019380/2024/12/31/newcastle-united-old-trafford-pressure/
+
+**Enzo Maresca has deserved Chelsea praise, now he must show he can handle adversity**\
+`After an incredible start and all the Premier League title talk, Chelsea have hit a bump in the road`\
+https://nytimes.com/athletic/6028395/2024/12/31/enzo-maresca-chelsea-ipswich-form/
+
 **Are Manchester United now a part of the Premier League relegation battle?**\
 `After six defeats in a month for the first time since 1930, Ruben Amorim is increasingly aware of how much trouble his side may be in`\
 https://nytimes.com/athletic/6028709/2024/12/31/manchester-united-amorim-relegation-battle/
