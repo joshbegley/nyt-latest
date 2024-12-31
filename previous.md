@@ -1,3 +1,11 @@
+**The Soviet Holiday Classic Even Kremlin Skeptics Can’t Stop Watching**\
+`“The Irony of Fate” is a turn-of-the-year TV tradition that endures even in households that are now wary of Russian culture.`\
+https://nytimes.com/2024/12/31/arts/television/the-irony-of-fate-new-years.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/31/crosswords/spelling-bee-forum.html
+
 **Warriors veterans have devolved into a debilitating team-wide shooting slump**\
 `Golden State showed little resistance against a significantly superior Cleveland team and lost again to drop to 16-16.`\
 https://nytimes.com/athletic/6028869/2024/12/31/warriors-shooting-slump-lose-to-cavs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6028709/2024/12/31/manchester-united-amorim-relegat
 **The Man Who Showed the World South Korea’s Deadly Plane Crash**\
 `A restaurant owner described witnessing the Jeju Air plane crash and recording videos as it happened. “Every time I closed my eyes, I kept seeing afterimages of the blast.”`\
 https://nytimes.com/2024/12/31/world/asia/south-korea-crash-witness.html
-
-**Food Tourism Is Dead. But Something More Interesting Is Emerging.**\
-`The world’s next great cuisine isn’t hidden in some undiscovered corner of the globe. It’s in the spaces among cultures, traditions and technologies.`\
-https://nytimes.com/2024/12/31/opinion/food-tourism-travel-instagram-tiktok.html
-
-**A China-Taiwan War Would Start an Economic Crisis. America Isn’t Ready.**\
-`Congress must prepare a plan now to avoid global meltdown.`\
-https://nytimes.com/2024/12/31/opinion/china-taiwan-war-america.html
 

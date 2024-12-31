@@ -1,3 +1,11 @@
+**The Soviet Holiday Classic Even Kremlin Skeptics Can’t Stop Watching**\
+`“The Irony of Fate” is a turn-of-the-year TV tradition that endures even in households that are now wary of Russian culture.`\
+https://nytimes.com/2024/12/31/arts/television/the-irony-of-fate-new-years.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/12/31/crosswords/spelling-bee-forum.html
+
 **Warriors veterans have devolved into a debilitating team-wide shooting slump**\
 `Golden State showed little resistance against a significantly superior Cleveland team and lost again to drop to 16-16.`\
 https://nytimes.com/athletic/6028869/2024/12/31/warriors-shooting-slump-lose-to-cavs/
