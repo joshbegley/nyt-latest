@@ -1,3 +1,7 @@
+**Warriors veterans have devolved into a debilitating team-wide shooting slump**\
+`Golden State showed little resistance against a significantly superior Cleveland team and lost again to drop to 16-16.`\
+https://nytimes.com/athletic/6028869/2024/12/31/warriors-shooting-slump-lose-to-cavs/
+
 **The frustrating trend that threatens to derail Aston Villa's Premier League campaign**\
 `Missed opportunities against close competitors are proliferating and they are costing Unai Emery's side vital points`\
 https://nytimes.com/athletic/6027721/2024/12/31/aston-villa-trend-start-end-games-badly/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/opinion/food-tourism-travel-instagram-tiktok.html
 **A China-Taiwan War Would Start an Economic Crisis. America Isn’t Ready.**\
 `Congress must prepare a plan now to avoid global meltdown.`\
 https://nytimes.com/2024/12/31/opinion/china-taiwan-war-america.html
-
-**Barcelona's 2024: Yamal-Messi comparisons, Xavi drama, 109 offsides**\
-`A year in which Barca experienced institutional, economic and sporting crisis has ended much better than it began`\
-https://nytimes.com/athletic/6004313/2024/12/31/barcelona-2024-yamal-messi-flick/
 
