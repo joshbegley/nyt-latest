@@ -1,3 +1,7 @@
+**Pulling Back From the Nuclear Brink**\
+`Some ways to lessen the world’s most deadly risk. Also: The debate over work visas; unreliable polls; cruelty and Christianity.`\
+https://nytimes.com/2024/12/31/opinion/letters/nuclear-brink.html
+
 **College Football Playoff betting action report: 'All the money is coming in on Texas'**\
 `The second round of the CFP is finally here! Ben Fawkes talked to oddsmakers about big bets, liabilities, futures bets and line moves.`\
 https://nytimes.com/athletic/6027680/2024/12/31/college-football-playoff-betting-odds-report-quaterfinals/
