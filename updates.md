@@ -1,3 +1,7 @@
+**Until Saturday: Quick coach notes on CFP quarterfinals**\
+`Welcome to Until Saturday, the five-star college football newsletter: xxxx `\
+https://nytimes.com/athletic/6028334/2024/12/31/college-football-playoff-quarterfinals-until-saturday/
+
 **Joel Embiid and the Sixers are beginning to look like what we thought they'd be**\
 `Embiid scored a season-high 37 points on Monday in Portland, and the way he got those points was the most encouraging sign.`\
 https://nytimes.com/athletic/6028992/2024/12/31/joel-embiid-sixers-portland/
