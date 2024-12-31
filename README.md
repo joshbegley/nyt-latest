@@ -1,3 +1,11 @@
+**Liverpool reject Real Madrid approach to sign Alexander-Arnold in January**\
+`Liverpool have turned down an approach from Real Madrid to sign Trent Alexander-Arnold in January.`\
+https://nytimes.com/athletic/6029950/2024/12/31/real-madrid-alexander-arnold-transfer-liverpool/
+
+**In Jab at Musk, Scholz Condemns Foreign Interference in German Election**\
+`Chancellor Olaf Scholz said Germany’s election will “not be decided by the owners of social media channels” in his annual New Year's Eve address.`\
+https://nytimes.com/2024/12/31/world/europe/scholz-elon-musk-germany-election.html
+
 **Aaron Brown, CNN Anchor During the Sept. 11 Attacks, Dies at 76**\
 `He was still in training when he was rushed into live coverage of the collapse of the World Trade Center, and his broadcast became one of the enduring records of the day.`\
 https://nytimes.com/2024/12/31/business/media/aaron-brown-dead-911.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6016684/2024/12/31/oregon-ohio-state-how-to-watch-p
 **Texas vs. Arizona State: How to watch, picks, odds for CFP quarterfinal Peach Bowl**\
 `Texas is favored by roughly two touchdowns for its CFP quarterfinal against Arizona State. Can the Sun Devils spring the upset?`\
 https://nytimes.com/athletic/6016648/2024/12/31/texas-arizona-state-picks-odds-college-football-playoff/
-
-**Penn State vs. Boise State: How to watch, picks, odds for CFP quarterfinal at Fiesta Bowl**\
-`Penn State is a double-digit favorite against Boise State for the CFP quarterfinal at the Fiesta Bowl.`\
-https://nytimes.com/athletic/6016562/2024/12/31/penn-state-boise-state-how-to-watch-picks-odds-college-football-playoff/
-
-**Lessons from soul-crushing fantasy football draft misses: CMC, Tyreek Hill and more**\
-`Tough lessons are learned during every fantasy football season. What stood out in 2024, and how can you adapt for 2025?`\
-https://nytimes.com/athletic/6029436/2024/12/31/2024-nfl-fantasy-football-lessons/
 
