@@ -1,3 +1,11 @@
+**The Bounce: 13 NBA New Year’s resolutions.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6029306/2024/12/31/nba-new-years-resolutions-luka-doncic-mavericks-lebron-james-lakers-the-bounce/
+
+**Most of Puerto Rico Is Darkened by New Year’s Eve Blackout**\
+`Only a fraction of the island’s 1.4 million utility customers had power on Tuesday morning. The electricity provider said it would take 24 to 48 hours to restore power.`\
+https://nytimes.com/2024/12/31/us/puerto-rico-power-blackout.html
+
 **How Newcastle won the crucial battle for supremacy out wide at Old Trafford**\
 `Eddie Howe's plan and the execution of it by his players made sure it was Newcastle who came out flying`\
 https://nytimes.com/athletic/6029093/2024/12/31/newcastle-manchester-united-wide-supremacy-eddie-howe/
