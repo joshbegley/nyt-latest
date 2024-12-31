@@ -1,3 +1,11 @@
+**Heat Today: 5 New Year's resolutions for Miami as 2025 approaches**\
+`The Heat have been mediocre through 30 games, but a few small improvements could go a long way.`\
+https://nytimes.com/athletic/6029698/2024/12/31/jimmy-butler-tyler-herro-bam-adebayo-heat-all-star-nba/
+
+**Texas vs. Arizona State: How to watch, picks, odds for CFP quarterfinal Peach Bowl**\
+`Texas is favored by roughly two touchdowns for its CFP quarterfinal against Arizona State. Can the Sun Devils spring the upset?`\
+https://nytimes.com/athletic/6016648/2024/12/31/texas-arizona-state-picks-odds-college-football-playoff/
+
 **Victim of Coney Island Subway Immolation Is Identified by the Police**\
 `Debrina Kawam of Toms River, N.J., was burned alive on Dec. 22 in a videotaped killing that shocked New York.`\
 https://nytimes.com/2024/12/31/nyregion/coney-island-subway-burning-victim-identified.html
