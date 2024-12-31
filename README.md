@@ -1,4 +1,4 @@
-**Aaron Brown, CNN Anchor During Sept. 11 Attacks, Dies at 76**\
+**Aaron Brown, CNN Anchor During the Sept. 11 Attacks, Dies at 76**\
 `He was still in training when he was rushed into live coverage of the collapse of the World Trade Center, and his broadcast became one of the enduring records of the day.`\
 https://nytimes.com/2024/12/31/business/media/aaron-brown-dead-911.html
 
