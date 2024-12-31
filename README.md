@@ -1,3 +1,7 @@
+**West Ham's Bowen out with fractured foot**\
+`West Ham United captain Jarrod Bowen sustained a fracture to his left foot during their 5-0 home loss against Liverpool on Sunday.`\
+https://nytimes.com/athletic/6029466/2024/12/31/jarrod-bowen-foot-injury-west-ham/
+
 **The Bounce: 13 NBA New Year’s resolutions.**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6029306/2024/12/31/nba-new-years-resolutions-luka-doncic-mavericks-lebron-james-lakers-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029264/2024/12/31/best-worst-2024-athletic-fc/
 **Notre Dame hasn't won a major bowl in a generation. Is it finally ready?**\
 `Notre Dame hasn't won a game like the Playoff quarterfinal against Georgia in Wednesday's Sugar Bowl in more than 30 years.`\
 https://nytimes.com/athletic/6028663/2024/12/31/notre-dame-georgia-playoff-major-bowls/
-
-**NFL Week 17 best and worst coaching decisions: Kevin O'Connell has Sam Darnold dealing**\
-`Also, the Chiefs may have an answer at left tackle, the Bengals and Tee Higgins shine and Raheem Morris may have doomed the Falcons.`\
-https://nytimes.com/athletic/6024444/2024/12/31/nfl-week-17-worst-best-coaching-decisions-nguyen/
 
