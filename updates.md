@@ -1,3 +1,7 @@
+**Josh Hart is no longer 'lost' on the Knicks. In fact, he's 'more confident than ever'**\
+`Josh Hart is having his best season, averaging 14.4 points, 8.6 rebounds and 5.5 assists. It's a stark turnaround from two months ago.`\
+https://nytimes.com/athletic/6029423/2024/12/31/josh-hart-confidence-knicks-nba/
+
 **Wall Street Sees More Gains Ahead After Another Bumper Year for Stocks**\
 `The S&P 500 is set to post back-to-back annual gains of more than 20 percent for the first time since the late 1990s. Analysts expect stocks to continue rising in 2025.`\
 https://nytimes.com/2024/12/31/business/stock-market-2025-predictions.html
