@@ -1,3 +1,15 @@
+**Barcelona's 2024: Yamal-Messi comparisons, Xavi drama, 109 offsides**\
+`A year in which Barca experienced institutional, economic and sporting crisis has ended much better than it began`\
+https://nytimes.com/athletic/6004313/2024/12/31/barcelona-2024-yamal-messi-flick/
+
+**Real Madrid's 2024: Champions League glory, miracle of Joselu, Mbappe's mixed start**\
+`It has been a year of contrasts for Madrid, with a La Liga-Champions League double followed by a shaky start to this season`\
+https://nytimes.com/athletic/6003940/2024/12/31/real-madrid-2024-reviewed-mbappe/
+
+**Forest's 2024: From PSR and relegation battles to challenging for Europe**\
+`A look back at the year for Forest, from points deductions to managerial change to challenging the league's elite.`\
+https://nytimes.com/athletic/5997807/2024/12/31/nottingham-forests-2024-from-psr-and-relegation-battles-to-challenging-for-europe/
+
 **Tottenham Hotspur's 2024: Dejan Kulusevski comes to the fore but inconsistency lingers**\
 `Ange Postecoglou's side continue to impress and bewilder their fanbase in equal measure - will 2025 be a smoother ride?`\
 https://nytimes.com/athletic/5966195/2024/12/31/tottenham-review-of-the-year-2024/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6027070/2024/12/31/premier-league-history-salah-hen
 **A fictional New Year's Eve party: Our writers pick three dream guests from the world of football**\
 `Jose Mourinho is going toe to toe with Diego Maradona and Antoine Griezmann is on baby-settling duties. But who invited David Coote...?`\
 https://nytimes.com/athletic/6026891/2024/12/31/nye-party-football-dream-guests/
-
-**The Athletic 500: What we learned and why we've changed our transfer scoring system**\
-`Our new transfers ratings explained`\
-https://nytimes.com/athletic/6021982/2024/12/31/the-athletic-transfer-500-new-scoring-system-explained/
-
-**Fantasy basketball crystal ball: Player predictions for the new year**\
-`With a new year upon us, Eric Wong shares his fantasy basketball predictions for early 2025, including a ROY push for Zach Edey.`\
-https://nytimes.com/athletic/6027911/2024/12/31/fantasy-basketball-player-predictions-2025/
-
-**The top football media stories of 2024: Lineker leaves, Carragher-Abdo, Amazon Premier League exit**\
-`Sometimes it feels like the football media storylines are just as good as any of the dramas that people constantly tell you to watch on TV`\
-https://nytimes.com/athletic/6027281/2024/12/31/football-media-stories-2024/
 
