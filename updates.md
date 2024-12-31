@@ -1,3 +1,11 @@
+**Scoop City: NFL moments, stories of 2024**\
+`A brief look at the NFL's biggest stories of 2024, plus The Athletic's most popular football content and Dianna's favorite scoop`\
+https://nytimes.com/athletic/6029987/2024/12/31/nfl-biggest-stories-2024-the-athletic-profiles-most-read-articles-scoop-city/
+
+**Jimmy Butler on if he wants to stay with Heat: 'That's a good question'**\
+`When asked if he or his agent had spoken to Pat Riley recently, Butler replied, “Next.”`\
+https://nytimes.com/athletic/6030023/2024/12/31/miami-heat-jimmy-butler-trade-rumors-comments/
+
 **Dada Masilo, Who Fused Ballet With African Dance, Dies at 39**\
 `Ms. Masilo, a South African dancer and choreographer, was known as a fearless creative who brought African dance styles to traditional pieces like “Swan Lake.”`\
 https://nytimes.com/2024/12/31/world/africa/dada-masilo-dead.html
