@@ -1,6 +1,14 @@
+**Heat Today: 5 New Year's resolutions for Miami as 2025 approaches**\
+`The Heat have been mediocre through 30 games, but a few small improvements could go a long way.`\
+https://nytimes.com/athletic/6029698/2024/12/31/jimmy-butler-tyler-herro-bam-adebayo-heat-all-star-nba/
+
 **Victim of Coney Island Subway Immolation Is Identified by the Police**\
 `Debrina Kawam of Toms River, N.J., was burned alive on Dec. 22 in a videotaped killing that shocked New York.`\
 https://nytimes.com/2024/12/31/nyregion/coney-island-subway-burning-victim-identified.html
+
+**Texas vs. Arizona State: How to watch, picks, odds for CFP quarterfinal Peach Bowl**\
+`Texas is favored by roughly two touchdowns for its CFP quarterfinal against Arizona State. Can the Sun Devils spring the upset?`\
+https://nytimes.com/athletic/6016648/2024/12/31/texas-arizona-state-picks-odds-college-football-playoff/
 
 **Lessons from soul-crushing fantasy football draft misses: CMC, Tyreek Hill and more**\
 `Tough lessons are learned during every fantasy football season. What stood out in 2024, and how can you adapt for 2025?`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/31/dining/cooking-new-years-resolutions-2025.html
 **$850 for a Table at Applebee’s? Welcome to Times Square on New Year’s Eve.**\
 `As revelers throng Midtown Manhattan, some chain restaurants are offering a respite, if a pricey one. Perks include bathroom access and unlimited breadsticks.`\
 https://nytimes.com/2024/12/31/nyregion/restaurants-new-years-eve-times-square.html
-
-**Moviegoers Dealt Originality a Setback in 2024**\
-`Box office returns have started to stabilize. But nine of the top 10 box office hits this year were sequels. And the 10th was “Wicked.”`\
-https://nytimes.com/2024/12/31/business/top-movies-wicked-moana.html
-
-**From Grand Gestures to Intimate Moments: 10 Memorable Proposals**\
-`There was no shortage of creative engagements for couples who married in 2024. Here are some of the standouts that appeared in The New York Times’s Wedding section.`\
-https://nytimes.com/2024/12/31/fashion/weddings/proposal-ideas-marriage.html
 
