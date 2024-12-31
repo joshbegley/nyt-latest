@@ -1,3 +1,7 @@
+**The Athletic FC: Best & worst of 2024, who to watch in 2025**\
+`We look back at 2024, forward to 2025, bring you some breaking news and reveal the most-clicked stories in The Athletic FC this year`\
+https://nytimes.com/athletic/6029264/2024/12/31/best-worst-2024-athletic-fc/
+
 **Notre Dame hasn't won a major bowl in a generation. Is it finally ready?**\
 `Notre Dame hasn't won a game like the Playoff quarterfinal against Georgia in Wednesday's Sugar Bowl in more than 30 years.`\
 https://nytimes.com/athletic/6028663/2024/12/31/notre-dame-georgia-playoff-major-bowls/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029213/2024/12/31/cowboys-mike-mccarthy-job-status
 **49ers' Brock Purdy ends loss to Lions with elbow ‘on fire,' awaits more tests**\
 `Purdy's injury came on a day when the 49ers were missing not just their left tackle and left guard but also the players' top backups.`\
 https://nytimes.com/athletic/6028994/2024/12/31/brock-purdy-49ers-elbow-injury-loss-lions/
-
-**The Atlantic Beefs Up Politics Coverage Under Trump**\
-`The magazine is recruiting from a crosstown rival, The Washington Post, to bolster its political staff.`\
-https://nytimes.com/2024/12/31/business/media/atlantic-politics-parker-scherer.html
 
