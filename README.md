@@ -1,3 +1,7 @@
+**Joel Embiid and the Sixers are beginning to look like what we thought they'd be**\
+`Embiid scored a season-high 37 points on Monday in Portland, and the way he got those points was the most encouraging sign.`\
+https://nytimes.com/athletic/6028992/2024/12/31/joel-embiid-sixers-portland/
+
 **The Pulse: The Lions’ dangerous reality**\
 `The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6027623/2024/12/31/lions-49ers-nfc-playoffs-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/world/asia/south-korea-plane-crash-victims.html
 **Edinburgh’s Epic New Year’s Eve Street Party Is Canceled Because of Weather**\
 `The outdoor Hogmanay festivities were called off in Scotland’s capital as forecasters warned of rain, strong winds and snow across Britain.`\
 https://nytimes.com/2024/12/31/world/europe/new-years-eve-edinburgh-hogmanay-weather-canceled.html
-
-**Chasing the Lions and impressing Ben Johnson requires changes from the Bears**\
-`The Lions' turnaround really began when they asked a beloved former player for help. Would the Bears do something similar?`\
-https://nytimes.com/athletic/6028409/2024/12/31/bears-coaching-search-ben-johnson-lions/
 
