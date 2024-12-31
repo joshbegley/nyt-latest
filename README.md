@@ -1,3 +1,11 @@
+**Cowboys cut Ezekiel Elliott ahead of Week 18 after RB requests release**\
+`Dallas will enter the new year and its season finale without the nine-year veteran.`\
+https://nytimes.com/athletic/6030296/2024/12/31/cowboys-zeke-elliott-stats-released/
+
+**One Set of China. Five Generations.**\
+`A family’s set of dishes has passed through five generations of women, but will the teacups, plates and bowls make it to a sixth?`\
+https://nytimes.com/interactive/2024/12/31/realestate/fine-china-dumulong-family.html
+
 **Dan Campbell is a vibe, and the Detroit Lions are feeding off his energy**\
 `The Lions have harnessed Dan Campbell's mindset and turned it into the best regular season in Detroit franchise history. `\
 https://nytimes.com/athletic/6030070/2024/12/31/dan-campbell-vibe-lions-nfl-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/31/briefing/new-years-holiday-briefing.html
 **NBA suspends Amen Thompson, Terry Rozier in wake of Heat-Rockets fight**\
 `Rockets guard Amen Thompson, who started the altercation by slamming Heat guard Tyler Herro to the ground, was given a two-game suspension.`\
 https://nytimes.com/athletic/6030175/2024/12/31/heat-rockets-fight-suspensions-amen-thompson-tyler-herro/
-
-**Can an All-Day Cafe Actually Be Exciting? This One Is.**\
-`At Cafe Mado in Brooklyn, the heart of an adventurous tasting-menu restaurant beats within a relaxed comfort-food retreat.`\
-https://nytimes.com/2024/12/31/dining/cafe-mado-nyc-restaurant-review.html
-
-**Listen to the Year’s Best Wisdom**\
-`We’re closing December’s 31 days by looking back at the best wisdom shared with Times reporters, editors and columnists in 2024.`\
-https://nytimes.com/2024/12/31/special-series/listen-to-the-years-best-wisdom.html
 
