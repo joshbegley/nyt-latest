@@ -1,3 +1,11 @@
+**F.B.I. Says It Found Largest Cache of Homemade Explosives in Its History at Va. Farm**\
+`Investigators discovered more than 150 devices, mostly pipe bombs, on a property outside Norfolk, court papers say.`\
+https://nytimes.com/2024/12/31/us/fbi-explosives-virginia-farm.html
+
+**As Confetti Rained on Times Square, Y2K Bug Was a No-Show**\
+`Planes didn’t fall from the sky on Jan. 1, 2000. A technology reporter who wrote a front-page article early that morning reflects on a crisis that never was.`\
+https://nytimes.com/2024/12/31/insider/y2k-crisis.html
+
 **Liverpool reject Real Madrid approach to sign Alexander-Arnold in January**\
 `Liverpool have turned down an approach from Real Madrid to sign Trent Alexander-Arnold in January.`\
 https://nytimes.com/athletic/6029950/2024/12/31/real-madrid-alexander-arnold-transfer-liverpool/
