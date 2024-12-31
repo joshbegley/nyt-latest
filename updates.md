@@ -1,3 +1,7 @@
+**The Athletic's review of 2024: Farewell Jurgen, the rise of Yamal and... San Marino win a game**\
+`Our writers reflect on a year of high drama, on and off the pitch`\
+https://nytimes.com/athletic/6010637/2024/12/31/review-of-2024-football/
+
 **Heat Today: 5 New Year's resolutions for Miami as 2025 approaches**\
 `The Heat have been mediocre through 30 games, but a few small improvements could go a long way.`\
 https://nytimes.com/athletic/6029698/2024/12/31/jimmy-butler-tyler-herro-bam-adebayo-heat-all-star-nba/

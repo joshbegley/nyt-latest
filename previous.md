@@ -1,3 +1,7 @@
+**The Athletic's review of 2024: Farewell Jurgen, the rise of Yamal and... San Marino win a game**\
+`Our writers reflect on a year of high drama, on and off the pitch`\
+https://nytimes.com/athletic/6010637/2024/12/31/review-of-2024-football/
+
 **Heat Today: 5 New Year's resolutions for Miami as 2025 approaches**\
 `The Heat have been mediocre through 30 games, but a few small improvements could go a long way.`\
 https://nytimes.com/athletic/6029698/2024/12/31/jimmy-butler-tyler-herro-bam-adebayo-heat-all-star-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/17/opinion/thepoint/carter-engineer-poet
 **Making a Cooking Resolution? These Recipes Will Get You Started.**\
 `If you’ve decided to get great at meal prep, waste less food or just eat breakfast, here are tips and dishes to set you up for success.`\
 https://nytimes.com/2024/12/31/dining/cooking-new-years-resolutions-2025.html
-
-**$850 for a Table at Applebee’s? Welcome to Times Square on New Year’s Eve.**\
-`As revelers throng Midtown Manhattan, some chain restaurants are offering a respite, if a pricey one. Perks include bathroom access and unlimited breadsticks.`\
-https://nytimes.com/2024/12/31/nyregion/restaurants-new-years-eve-times-square.html
 
