@@ -1,3 +1,7 @@
+**College Football Playoff betting action report: 'All the money is coming in on Texas'**\
+`The second round of the CFP is finally here! Ben Fawkes talked to oddsmakers about big bets, liabilities, futures bets and line moves.`\
+https://nytimes.com/athletic/6027680/2024/12/31/college-football-playoff-betting-odds-report-quaterfinals/
+
 **Carter’s Inner Struggle Between the Engineer and the Poet**\
 `Even those closest to Jimmy Carter often found him hard to read.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/carter-engineer-poet
