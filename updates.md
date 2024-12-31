@@ -1,3 +1,11 @@
+**From Grand Gestures to Intimate Moments: 10 Memorable Proposals**\
+`There was no shortage of creative engagements for couples who married in 2024. Here are some of the standouts that appeared in The New York Times’s Wedding section.`\
+https://nytimes.com/2024/12/31/fashion/weddings/proposal-ideas-marriage.html
+
+**Give Chicken Breasts a Chance**\
+`And more cooking plans (with corresponding recipes) I have for the coming year.`\
+https://nytimes.com/2024/12/31/dining/give-chicken-breasts-a-chance.html
+
 **Where Cam Ward, Shedeur Sanders NFL Draft evaluations stand after QBs' bowl games**\
 `Ward and Sanders played their final college games on Saturday. How will NFL teams view them as prospects heading into the draft cycle?`\
 https://nytimes.com/athletic/6027451/2024/12/31/nfl-draft-cam-ward-shedeur-sanders-bowl-games/

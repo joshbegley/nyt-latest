@@ -1,3 +1,11 @@
+**From Grand Gestures to Intimate Moments: 10 Memorable Proposals**\
+`There was no shortage of creative engagements for couples who married in 2024. Here are some of the standouts that appeared in The New York Times’s Wedding section.`\
+https://nytimes.com/2024/12/31/fashion/weddings/proposal-ideas-marriage.html
+
+**Give Chicken Breasts a Chance**\
+`And more cooking plans (with corresponding recipes) I have for the coming year.`\
+https://nytimes.com/2024/12/31/dining/give-chicken-breasts-a-chance.html
+
 **Where Cam Ward, Shedeur Sanders NFL Draft evaluations stand after QBs' bowl games**\
 `Ward and Sanders played their final college games on Saturday. How will NFL teams view them as prospects heading into the draft cycle?`\
 https://nytimes.com/athletic/6027451/2024/12/31/nfl-draft-cam-ward-shedeur-sanders-bowl-games/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/31/business/stock-market-2025-predictions.html
 **NBA Power Rankings: Knicks up, Warriors down and a time-capsule item for each team**\
 `Before we step into 2025, let's take stock of where each NBA team stands, from the top (Cavs) to bottom (Pels).`\
 https://nytimes.com/athletic/6029214/2024/12/31/nba-power-rankings-knicks-timberwolves-warriors/
-
-**West Ham's Bowen out with fractured foot**\
-`West Ham United captain Jarrod Bowen sustained a fracture to his left foot during their 5-0 home loss against Liverpool on Sunday.`\
-https://nytimes.com/athletic/6029466/2024/12/31/jarrod-bowen-foot-injury-west-ham/
-
-**The Bounce: 13 NBA New Year’s resolutions**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6029306/2024/12/31/nba-new-years-resolutions-luka-doncic-mavericks-lebron-james-lakers-the-bounce/
 
