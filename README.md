@@ -1,3 +1,7 @@
+**Trump Wants Greenland and the Panama Canal. It’s About Climate.**\
+`Global warming is making both places more important to global shipping and trade.`\
+https://nytimes.com/2024/12/31/climate/trump-greenland-panama-canal-climate-change.html
+
 **Scoop City: NFL moments, stories of 2024**\
 `A brief look at the NFL's biggest stories of 2024, plus The Athletic's most popular football content and Dianna's favorite scoop`\
 https://nytimes.com/athletic/6029987/2024/12/31/nfl-biggest-stories-2024-the-athletic-profiles-most-read-articles-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029950/2024/12/31/real-madrid-alexander-arnold-tra
 **In Jab at Musk, Scholz Condemns Foreign Interference in German Election**\
 `Chancellor Olaf Scholz said Germany’s election would “not be decided by the owners of social media channels” in his annual New Year’s Eve address.`\
 https://nytimes.com/2024/12/31/world/europe/scholz-elon-musk-germany-election.html
-
-**Aaron Brown, CNN Anchor During the Sept. 11 Attacks, Dies at 76**\
-`He was still in training when he was rushed into live coverage of the collapse of the World Trade Center, and his broadcast became one of the enduring records of the day.`\
-https://nytimes.com/2024/12/31/business/media/aaron-brown-dead-911.html
 
