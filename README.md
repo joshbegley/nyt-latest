@@ -1,3 +1,7 @@
+**Dan Campbell is a vibe, and the Detroit Lions are feeding off his energy**\
+`The Lions have harnessed Dan Campbell's mindset and turned it into the best regular season in Detroit franchise history. `\
+https://nytimes.com/athletic/6030070/2024/12/31/dan-campbell-vibe-lions-nfl-playoffs/
+
 **Maple Leafs report cards: Depth scoring comes up big to cap off 2024**\
 `Steven Lorentz scored a highlight-reel goal as Toronto finished the year on a winning note.`\
 https://nytimes.com/athletic/6030267/2024/12/31/maple-leafs-islanders-analysis-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/dining/cafe-mado-nyc-restaurant-review.html
 **Listen to the Year’s Best Wisdom**\
 `We’re closing December’s 31 days by looking back at the best wisdom shared with Times reporters, editors and columnists in 2024.`\
 https://nytimes.com/2024/12/31/special-series/listen-to-the-years-best-wisdom.html
-
-**Shorthanded Michigan stuns No. 11 Alabama in ReliaQuest Bowl**\
-`Alabama, the first team left out of the College Football Playoff, was favored by more than two touchdowns but was stymied on offense.`\
-https://nytimes.com/athletic/6030169/2024/12/31/michigan-alabama-score-reliaquest-bowl-takeaways/
 
