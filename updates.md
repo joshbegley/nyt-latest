@@ -1,3 +1,7 @@
+**Wall Street Sees More Gains Ahead After Another Bumper Year for Stocks**\
+`The S&P 500 is set to post back-to-back annual gains of more than 20 percent for the first time since the late 1990s. Analysts expect stocks to continue rising in 2025.`\
+https://nytimes.com/2024/12/31/business/stock-market-2025-predictions.html
+
 **The Bounce: 13 NBA New Year’s resolutions**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6029306/2024/12/31/nba-new-years-resolutions-luka-doncic-mavericks-lebron-james-lakers-the-bounce/
