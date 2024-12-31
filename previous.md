@@ -1,3 +1,7 @@
+**Russian Forces are Swarming Ukrainian Positions in the East**\
+`Plus, Wall Street sees more gains ahead.`\
+https://nytimes.com/2024/12/31/briefing/ukraine-russia-new-years-eve.html
+
 **Islanders hobble into 2025 headed toward a reckoning**\
 `This Islanders team has run its course. It's time for New York to act like it heading into a crucial trade deadline and offseason.`\
 https://nytimes.com/athletic/6030246/2024/12/31/islanders-maple-leafs-nhl-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/12/17/opinion/thepoint/ohio-queer-kids-legislation
 **Feldman: Cam Ward played in Miami's bowl for his team. Despite the loss, everyone won**\
 `Cam Ward was always going to just start the Pop-Tarts Bowl. The outrage isn't earned. `\
 https://nytimes.com/athletic/6030245/2024/12/31/cam-ward-miami-hurricanes-pop-tarts-bowl/
-
-**Tiny Love Stories: ‘He Never Says the Words’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/12/31/style/tiny-modern-love-stories-he-never-says-the-words.html
 

@@ -1,3 +1,7 @@
+**Russian Forces are Swarming Ukrainian Positions in the East**\
+`Plus, Wall Street sees more gains ahead.`\
+https://nytimes.com/2024/12/31/briefing/ukraine-russia-new-years-eve.html
+
 **Islanders hobble into 2025 headed toward a reckoning**\
 `This Islanders team has run its course. It's time for New York to act like it heading into a crucial trade deadline and offseason.`\
 https://nytimes.com/athletic/6030246/2024/12/31/islanders-maple-leafs-nhl-trade-deadline/
