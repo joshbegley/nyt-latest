@@ -1,40 +1,40 @@
-**On E-Scooters and ATVs, Russian Forces Swarm Ukrainian Positions in the East**\
-`Stepped up attacks by Russia are heightening longstanding concerns over how Ukraine manages its military and countering assumptions that Moscow’s offensive would slow, soldiers and military analysts say.`\
-https://nytimes.com/2024/12/31/world/europe/ukraine-russia-attacks-eastern-frong.html
+**Penn State-Boise State preview: Predictions, players to watch and keys to Fiesta Bowl**\
+`The Nittany Lions and Broncos will play in the first CFP quarterfinal game at 7:30 p.m. ET Tuesday.`\
+https://nytimes.com/athletic/6027809/2024/12/31/penn-state-boise-state-prediction-fiesta-bowl/
 
-**How to fix the college football calendar in 10 simple steps**\
-`It's not just about moving Week 1 up or playing more home Playoff games. An interconnected series of schedule tweaks could address a lot.`\
-https://nytimes.com/athletic/6028036/2024/12/31/college-football-calendar-transfer-portal-bowls/
+**Panthers offensive roster analysis: Is Bryce Young the future? Jalen Coker makes his mark**\
+`After being benched for five games, Young looked better and more confident. Chuba Hubbard became a major strength for Carolina.`\
+https://nytimes.com/athletic/6028210/2024/12/31/panthers-roster-analysis-offense-bryce-young-jalen-coker/
 
-**Lions win a 'meaningless' game that meant everything. The Vikings and real stakes await**\
-`The Lions now have a chance to accomplish what they couldn't a year ago: a first-round bye and home-field advantage throughout the playoffs.`\
-https://nytimes.com/athletic/6029042/2024/12/31/lions-defeat-49ers-vikings-await/
+**Predicting Nebraska sports moments for 2025 (and what we got wrong for 2024)**\
+`Freshman quarterback Dylan Raiola will continue to show strength as a leader for the Huskers. And which team could win a national title?`\
+https://nytimes.com/athletic/6027742/2024/12/31/nebraska-college-athletics-predictions-2025/
 
-**The Soviet Holiday Classic Even Kremlin Skeptics Can’t Stop Watching**\
-`“The Irony of Fate” is a turn-of-the-year TV tradition that endures even in households that are now wary of Russian culture.`\
-https://nytimes.com/2024/12/31/arts/television/the-irony-of-fate-new-years.html
+**Carter’s Mission to Build More Housing Became an Urgent National Issue**\
+`After Jimmy and Rosalynn Carter linked themselves to Habitat for Humanity, it grew and built homes for millions. Now, their cause is a national crisis.`\
+https://nytimes.com/2024/12/31/us/jimmy-carter-habitat-for-humanity.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/12/31/crosswords/spelling-bee-forum.html
+**Here’s Something We Agree On in America**\
+`Americans think of our society as so divided. Might there be some upside to starting the new year knowing we aren’t as polarized as we thought?`\
+https://nytimes.com/2024/12/31/opinion/american-politics-trust-institutions.html
 
-**Warriors veterans have devolved into a debilitating team-wide shooting slump**\
-`Golden State showed little resistance against a significantly superior Cleveland team and lost again to drop to 16-16.`\
-https://nytimes.com/athletic/6028869/2024/12/31/warriors-shooting-slump-lose-to-cavs/
+**Chinese Companies Have Sidestepped Trump’s Tariffs. They Could Do It Again.**\
+`The companies have found plenty of new channels to the U.S. market — demonstrating the potential limits of the tariffs Donald Trump has promised to impose.`\
+https://nytimes.com/2024/12/31/business/economy/trump-tariffs-china.html
 
-**The frustrating trend that threatens to derail Aston Villa's Premier League campaign**\
-`Missed opportunities against close competitors are proliferating and they are costing Unai Emery's side vital points`\
-https://nytimes.com/athletic/6027721/2024/12/31/aston-villa-trend-start-end-games-badly/
+**Alaska Knows Why Her Drag Show Resonates: ‘It’s About Family’**\
+`The performer discusses her Off Broadway musical about warring queens. “Everyone can connect to being a young person not feeling understood,” she said.`\
+https://nytimes.com/2024/12/31/theater/alaska-drag-show-musical.html
 
-**Angelina Jolie and Brad Pitt Reach Divorce Settlement**\
-`The settlement resolves a key part of the protracted end of their very public Hollywood romance.`\
-https://nytimes.com/2024/12/31/movies/jolie-pitt-divorce.html
+**One Indelible Scene: Yearning and Loss in ‘All We Imagine as Light’**\
+`A mysterious rice cooker and a rainstorm combine to convey what a woman doesn’t speak of.`\
+https://nytimes.com/2024/12/31/movies/all-we-imagine-as-light-payal-kapadia.html
 
-**Tariq Lamptey seizes his moment - but what will come next?**\
-`The right back scored his third goal of the season at Villa Park, but is currently set to be out of contract in the summer`\
-https://nytimes.com/athletic/6028188/2024/12/31/tariq-lamptey-brighton-aston-villa/
+**For Comics, Honing Jokes Has Taken a Back Seat to Marketing. That’s Not Good.**\
+`Stand-ups need time and practice to get good. When they have to focus on promotion and their social media feeds, the art form suffers.`\
+https://nytimes.com/2024/12/31/arts/television/netflix-comedy-marketing.html
 
-**How Newcastle handled and embraced the pressure of expectation at Old Trafford**\
-`There have been some huge highs under Eddie Howe but a league win at the red side of Manchester had eluded his team – until now`\
-https://nytimes.com/athletic/6019380/2024/12/31/newcastle-united-old-trafford-pressure/
+**How Suicide Drones Transformed the Front Lines in Ukraine**\
+`Outnumbered and desperate, the nation began hacking cheap consumer UAVs with explosives — bringing a brutal new form of terror to 21st-century warfare.`\
+https://nytimes.com/2024/12/31/magazine/drones-weapons-ukraine-war.html
 
