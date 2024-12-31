@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Who will advance from the quarterfinals?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/31/college-football-playoff-projections-odds/
+
 **Ohio State's national title hopes hinge on a position that knows adversity like no other**\
 `The Buckeyes' hard-luck offensive line has been shuffled and shuffled again. Can it meet the moment in the Rose Bowl against Oregon?`\
 https://nytimes.com/athletic/6028801/2024/12/31/ohio-state-offensive-line-oregon-playoff/
