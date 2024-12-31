@@ -1,3 +1,7 @@
+**Commanders playoff scenarios: Who are they better suited to face in wild-card round?**\
+`Depending on Sunday's results, Washington could match up against the Rams, Buccaneers or Eagles on Super Wild Card Weekend.`\
+https://nytimes.com/athletic/6028126/2024/12/31/commanders-playoff-scenarios-nfc-wild-card-round/
+
 **Florida's recruiting reversal: Class of 2026 QB Will Griffin enjoying Gators' surge**\
 `Florida's 2025 class is ranked 10th nationally and includes 10 blue-chip prospects from the Sunshine State.`\
 https://nytimes.com/athletic/6027193/2024/12/31/florida-gators-recruiting-qb-will-griffin/
