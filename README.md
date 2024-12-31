@@ -1,3 +1,11 @@
+**NFL playoff picture after Week 17: Vikings, Lions to battle in finale for NFC No. 1 seed**\
+`The final AFC playoff spot is up for grabs with the Broncos facing a win-and-in Week 18. If they lose, the Bengals and Dolphins are lurking.`\
+https://nytimes.com/athletic/6019766/2024/12/30/week-17-nfl-playoff-picture-vikings-lions-update/
+
+**Pentagon Appeals Court Upholds Plea Deals in Sept. 11 Case**\
+`The three-judge decision appeared, at least for now, to put plea proceedings for Khalid Shaikh Mohammed and two others back on track to take place in early January at Guantánamo Bay.`\
+https://nytimes.com/2024/12/30/us/politics/911-case-plea-deals.html
+
 **Ranking the Rangers' most embarrassing losses during descent in the standings**\
 `The Rangers are on a 4-15-0 slide since Nov. 21. Where does the latest 5-3 loss to the Panthers rank in an awful stretch?`\
 https://nytimes.com/athletic/6028821/2024/12/30/rangers-most-embarrassing-losses/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/30/crosswords/daily-puzzle-2024-12-31.html
 **MLB offseason notes: What we're hearing about Jack Flaherty's market and Nolan Arenado**\
 `With Corbin Burnes off the board, Flaherty stands as one of the best remaining options for teams in search of starting pitching.`\
 https://nytimes.com/athletic/6028641/2024/12/30/mlb-offseason-notes-jack-flaherty-nolan-arenado/
-
-**Hochul Installs New Leader at Prison Where Inmate Was Fatally Beaten**\
-`Gov. Kathy Hochul of New York moved to try to contain the fallout from the death of Robert Brooks, in which 14 corrections workers have been implicated.`\
-https://nytimes.com/2024/12/30/nyregion/ny-prison-beating-brooks-marcy.html
-
-**U.S. Senator’s Son Gets 28 Years for Car Chase That Killed Sheriff’s Deputy**\
-`Ian Cramer, the 43-year-old son of Senator Kevin Cramer,  Republican of North Dakota, led the police on a highway pursuit that killed a sheriff’s deputy.`\
-https://nytimes.com/2024/12/30/us/ian-cramer-north-dakota-sentenced.html
 
