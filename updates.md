@@ -1,3 +1,7 @@
+**In Jab at Musk, Scholz Condemns Foreign Interference in German Election**\
+`Chancellor Olaf Scholz said Germany’s election would “not be decided by the owners of social media channels” in his annual New Year’s Eve address.`\
+https://nytimes.com/2024/12/31/world/europe/scholz-elon-musk-germany-election.html
+
 **F.B.I. Says It Found Largest Cache of Homemade Explosives in Its History at Va. Farm**\
 `Investigators discovered more than 150 devices, mostly pipe bombs, on a property outside Norfolk, court papers say.`\
 https://nytimes.com/2024/12/31/us/fbi-explosives-virginia-farm.html
