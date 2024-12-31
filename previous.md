@@ -1,3 +1,11 @@
+**Rangers to place Igor Shesterkin on IR with upper-body injury: Source**\
+`The Rangers, who have lost 15 of their last 19 games, will be in even more trouble without their franchise goalie.`\
+https://nytimes.com/athletic/6030469/2024/12/31/rangers-igor-shesterkin-injury/
+
+**62 Fascinating Facts of 2024**\
+`Each day, Times Insider editors scour the newspaper for the most interesting facts to appear in articles. This year, tidbits about grudge-holding crows, the first-ever first kiss and George Washington’s dentures enlightened, informed and entertained us.`\
+https://nytimes.com/2024/12/31/insider/-ifacts-2024.html
+
 **Russian Forces are Swarming Ukrainian Positions in the East**\
 `Plus, Wall Street sees more gains ahead.`\
 https://nytimes.com/2024/12/31/briefing/ukraine-russia-new-years-eve.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6030070/2024/12/31/dan-campbell-vibe-lions-nfl-play
 **Maple Leafs report cards: Depth scoring comes up big to cap off 2024**\
 `Steven Lorentz scored a highlight-reel goal as Toronto finished the year on a winning note.`\
 https://nytimes.com/athletic/6030267/2024/12/31/maple-leafs-islanders-analysis-grades/
-
-**Ohio Is About to Make Queer Kids Miserable**\
-`The legislature passed a bill that could pressure schools to out L.G.B.T.Q. students to their parents.`\
-https://nytimes.com/live/2024/12/17/opinion/thepoint/ohio-queer-kids-legislation
-
-**Feldman: Cam Ward played in Miami's bowl for his team. Despite the loss, everyone won**\
-`Cam Ward was always going to just start the Pop-Tarts Bowl. The outrage isn't earned. `\
-https://nytimes.com/athletic/6030245/2024/12/31/cam-ward-miami-hurricanes-pop-tarts-bowl/
 
