@@ -1,3 +1,7 @@
+**How the Jeju Air Plane Crashed: Timeline, Maps and Photos**\
+`Video from the scene and aircraft positioning data offer clues about the deadliest aviation disaster in years.`\
+https://nytimes.com/interactive/2024/12/31/world/asia/jeju-plane-crash-maps-photos.html
+
 **The Year in Wisdom**\
 `Our staff — and listeners — on the best advice of 2024.`\
 https://nytimes.com/2024/12/31/podcasts/the-daily/2024-best-advice.html
