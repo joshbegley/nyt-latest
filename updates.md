@@ -1,3 +1,7 @@
+**Corrections: Dec. 31, 2024**\
+`Corrections that appeared in print on Tuesday, Dec. 31, 2024.`\
+https://nytimes.com/2024/12/30/pageoneplus/corrections-dec-31-2024.html
+
 **What's next for Roki Sasaki? Agent provides update on coveted free agent**\
 `As it stands, Wolfe said he does not anticipate Sasaki signing on precisely Jan. 15 but at some point between Jan. 15 and Jan. 23.`\
 https://nytimes.com/athletic/6028561/2024/12/30/roki-sasaki-mlb-free-agent/

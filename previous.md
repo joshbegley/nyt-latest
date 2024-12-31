@@ -1,3 +1,7 @@
+**Corrections: Dec. 31, 2024**\
+`Corrections that appeared in print on Tuesday, Dec. 31, 2024.`\
+https://nytimes.com/2024/12/30/pageoneplus/corrections-dec-31-2024.html
+
 **Northern Lights Could Glow in U.S. During New Year’s Celebrations**\
 `The northern part of the country could see pink and red streaks in the skies this week, just in time for New Year’s Eve, according to NOAA.`\
 https://nytimes.com/2024/12/30/us/northern-lights-united-states-new-years-eve.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6028400/2024/12/30/ruben-amorim-relegation-talk-man
 **Missouri rallies vs. Iowa for win in Music City Bowl**\
 `It marked Missouri’s 14th come-from-behind victory in the last two seasons and the ninth that took place in the second half.`\
 https://nytimes.com/athletic/6028366/2024/12/30/missouri-iowa-music-city-bowl-result-analysis/
-
-**Southgate knighted in King's New Year's Honours list**\
-`Former England manager Gareth Southgate has been knighted in King Charles III&#8217;s New Year&#8217;s Honours list.`\
-https://nytimes.com/athletic/6028258/2024/12/30/gareth-southgate-knighthood-england/
 
