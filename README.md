@@ -1,3 +1,7 @@
+**How Newcastle won the crucial battle for supremacy out wide at Old Trafford**\
+`Eddie Howe's plan and the execution of it by his players made sure it was Newcastle who came out flying`\
+https://nytimes.com/athletic/6029093/2024/12/31/newcastle-manchester-united-wide-supremacy-eddie-howe/
+
 **College Football Playoff 2024 projections: Who will advance from the quarterfinals?**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/12/31/college-football-playoff-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027589/2024/12/31/2024-english-team-mega-ranking/
 **Justin Herbert, Chargers offense might be peaking at the perfect time**\
 `Justin Herbert has caught fire. The offensive line is clicking. And Greg Roman had his best game as the Chargers' offensive play caller.`\
 https://nytimes.com/athletic/6028541/2024/12/31/justin-herbert-chargers-offense-peaking/
-
-**Until Saturday: Quick coach notes on CFP quarterfinals**\
-`Welcome to Until Saturday, the five-star college football newsletter: xxxx `\
-https://nytimes.com/athletic/6028334/2024/12/31/college-football-playoff-quarterfinals-until-saturday/
 
