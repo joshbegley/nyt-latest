@@ -1,3 +1,7 @@
+**The Athletic FC: Best & worst of 2024, who to watch in 2025**\
+`We look back at 2024, forward to 2025, bring you some breaking news and reveal the most-clicked stories in The Athletic FC this year`\
+https://nytimes.com/athletic/6029264/2024/12/31/best-worst-2024-athletic-fc/
+
 **Notre Dame hasn't won a major bowl in a generation. Is it finally ready?**\
 `Notre Dame hasn't won a game like the Playoff quarterfinal against Georgia in Wednesday's Sugar Bowl in more than 30 years.`\
 https://nytimes.com/athletic/6028663/2024/12/31/notre-dame-georgia-playoff-major-bowls/
