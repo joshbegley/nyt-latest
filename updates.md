@@ -1,3 +1,7 @@
+**How Newcastle handled and embraced the pressure of expectation at Old Trafford**\
+`There have been some huge highs under Eddie Howe but a league win at the red side of Manchester had eluded his team – until now`\
+https://nytimes.com/athletic/6019380/2024/12/31/newcastle-united-old-trafford-pressure/
+
 **Lions win a 'meaningless' game that meant everything. The Vikings and real stakes await**\
 `The Lions now have a chance to accomplish what they couldn't a year ago: a first-round bye and home-field advantage throughout the playoffs.`\
 https://nytimes.com/athletic/6029042/2024/12/31/lions-defeat-49ers-vikings-await/
