@@ -1,4 +1,8 @@
 **Dabrowski played through breast cancer treatment to win Olympic tennis medal, WTA Tour Finals**\
+`The Canadian was diagnosed in April 2024 and delayed some of her treatment to play Wimbledon and the Olympic Games.`\
+https://nytimes.com/athletic/6029152/2024/12/31/gabriela-dabrowski-tennis-cancer-diagnosis/
+
+**Dabrowski played through breast cancer treatment to win Olympic tennis medal, WTA Tour Finals**\
 `The Canadian was diagnosed with breast cancer in April 2024 and paused treatment to play Wimbledon and the Olympic Games.`\
 https://nytimes.com/athletic/6029152/2024/12/31/gabriela-dabrowski-tennis-cancer-diagnosis/
 
