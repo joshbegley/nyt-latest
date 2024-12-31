@@ -1,3 +1,7 @@
+**Northern Lights Could Glow in U.S. During New Year’s Celebrations**\
+`The northern part of the country could see pink and red streaks in the skies this week, just in time for New Year’s Eve, according to NOAA.`\
+https://nytimes.com/2024/12/30/us/northern-lights-united-states-new-years-eve.html
+
 **What's next for Roki Sasaki? Agent provides update on coveted free agent**\
 `Factors include location, market size and team success, but agent Joel Wolfe says Sasaki tends to think differently than most players.`\
 https://nytimes.com/athletic/6028561/2024/12/30/roki-sasaki-mlb-free-agent/
