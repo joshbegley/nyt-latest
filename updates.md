@@ -1,3 +1,11 @@
+**NBA Power Rankings: Knicks up, Warriors down and a time-capsule item for each team**\
+`Before we step into 2025, let's take stock of where each NBA team stands, from the top (Cavs) to bottom (Pels).`\
+https://nytimes.com/athletic/6029214/2024/12/31/nba-power-rankings-knicks-timberwolves-warriors/
+
+**West Ham's Bowen out with fractured foot**\
+`West Ham United captain Jarrod Bowen sustained a fracture to his left foot during their 5-0 home loss against Liverpool on Sunday.`\
+https://nytimes.com/athletic/6029466/2024/12/31/jarrod-bowen-foot-injury-west-ham/
+
 **The Bounce: 13 NBA New Year’s resolutions.**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6029306/2024/12/31/nba-new-years-resolutions-luka-doncic-mavericks-lebron-james-lakers-the-bounce/
