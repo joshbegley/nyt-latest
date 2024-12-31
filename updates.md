@@ -1,3 +1,7 @@
+**Dabrowski played through breast cancer treatment to win Olympic tennis medal, WTA Tour Finals**\
+`The Canadian was diagnosed with breast cancer in April 2024 and paused treatment to play Wimbledon and the Olympic Games.`\
+https://nytimes.com/athletic/6029152/2024/12/31/gabriela-dabrowski-tennis-cancer-diagnosis/
+
 **Commanders playoff scenarios: Who are they better suited to face in wild-card round?**\
 `Depending on Sunday's results, Washington could match up against the Rams, Buccaneers or Eagles on Super Wild Card Weekend.`\
 https://nytimes.com/athletic/6028126/2024/12/31/commanders-playoff-scenarios-nfc-wild-card-round/
