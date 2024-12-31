@@ -1,3 +1,7 @@
+**Eidevall set to be appointed San Diego Wave head coach**\
+`The former Arsenal head coach chose San Diego partly for its growth potential under new ownership.`\
+https://nytimes.com/athletic/5958337/2024/12/30/san-diego-wave-jonas-eidevall/
+
 **After Judge’s Split Ruling, M.T.A. Says Congestion Pricing Will Begin**\
 `The decision in a lawsuit brought by the State of New Jersey prompted a dispute between New York and New Jersey over whether the plan to toll drivers could start on Sunday.`\
 https://nytimes.com/2024/12/30/nyregion/nyc-congestion-pricing-lawsuit.html
