@@ -1,3 +1,7 @@
+**Betting for (by) dummies: Do the Lions have enough on defense to stay with the Vikings?**\
+`Jon Greenberg and Zac Jackson are aligned on their Week 18 NFL picks, with Detroit's injury-riddled defense making the Lions vulnerable.`\
+https://nytimes.com/athletic/6029736/2024/12/31/betting-for-by-dummies-vikings-lions/
+
 **The Athletic's review of 2024: Farewell Jurgen, the rise of Yamal and... San Marino win a game**\
 `Our writers reflect on a year of high drama, on and off the pitch`\
 https://nytimes.com/athletic/6010637/2024/12/31/review-of-2024-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027680/2024/12/31/college-football-playoff-betting
 **Carter’s Inner Struggle Between the Engineer and the Poet**\
 `Even those closest to Jimmy Carter often found him hard to read.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/carter-engineer-poet
-
-**Making a Cooking Resolution? These Recipes Will Get You Started.**\
-`If you’ve decided to get great at meal prep, waste less food or just eat breakfast, here are tips and dishes to set you up for success.`\
-https://nytimes.com/2024/12/31/dining/cooking-new-years-resolutions-2025.html
 

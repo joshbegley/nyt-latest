@@ -1,3 +1,7 @@
+**Betting for (by) dummies: Do the Lions have enough on defense to stay with the Vikings?**\
+`Jon Greenberg and Zac Jackson are aligned on their Week 18 NFL picks, with Detroit's injury-riddled defense making the Lions vulnerable.`\
+https://nytimes.com/athletic/6029736/2024/12/31/betting-for-by-dummies-vikings-lions/
+
 **The Athletic's review of 2024: Farewell Jurgen, the rise of Yamal and... San Marino win a game**\
 `Our writers reflect on a year of high drama, on and off the pitch`\
 https://nytimes.com/athletic/6010637/2024/12/31/review-of-2024-football/
