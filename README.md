@@ -1,3 +1,7 @@
+**Man Is Pushed in Front of Subway Train in Manhattan and Survives**\
+`On the afternoon of New Year’s Eve, a man waiting for a No. 1 train at the 18th Street station was shoved in front of an arriving train.`\
+https://nytimes.com/2024/12/31/nyregion/nyc-subway-tracks-man-shoved.html
+
 **Vannini: Indiana, SMU deserve an apology after yet another Alabama loss**\
 `Pundits like Kirk Herbstreit blasted SMU and especially Indiana for blowout Playoff losses. But Alabama proved it wasn't worth arguing for.`\
 https://nytimes.com/athletic/6030482/2024/12/31/alabama-michigan-playoff-indiana-smu-herbstreit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030396/2024/12/31/joe-burrow-bengals-tee-higgins-j
 **Cowboys cut Ezekiel Elliott ahead of Week 18 after RB requests release**\
 `Dallas will enter the new year and its season finale without the nine-year veteran.`\
 https://nytimes.com/athletic/6030296/2024/12/31/cowboys-zeke-elliott-stats-released/
-
-**One Set of China. Five Generations.**\
-`A family’s set of dishes has passed through five generations of women, but will the teacups, plates and bowls make it to a sixth?`\
-https://nytimes.com/interactive/2024/12/31/realestate/fine-china-dumulong-family.html
 

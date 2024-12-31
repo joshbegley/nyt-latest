@@ -1,3 +1,7 @@
+**Vannini: Indiana, SMU deserve an apology after yet another Alabama loss**\
+`Pundits like Kirk Herbstreit blasted SMU and especially Indiana for blowout Playoff losses. But Alabama proved it wasn't worth arguing for.`\
+https://nytimes.com/athletic/6030482/2024/12/31/alabama-michigan-playoff-indiana-smu-herbstreit/
+
 **Woody Fraser, Pioneering Producer of Daytime Talk Shows, Dies at 90**\
 `He spiced up the format in creating “The Mike Douglas Show” and brought “Good Morning America” to life. But his career ended under a cloud of sexual harassment claims.`\
 https://nytimes.com/2024/12/31/arts/television/woody-fraser-dead.html

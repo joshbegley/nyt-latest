@@ -1,3 +1,7 @@
+**Vannini: Indiana, SMU deserve an apology after yet another Alabama loss**\
+`Pundits like Kirk Herbstreit blasted SMU and especially Indiana for blowout Playoff losses. But Alabama proved it wasn't worth arguing for.`\
+https://nytimes.com/athletic/6030482/2024/12/31/alabama-michigan-playoff-indiana-smu-herbstreit/
+
 **Woody Fraser, Pioneering Producer of Daytime Talk Shows, Dies at 90**\
 `He spiced up the format in creating “The Mike Douglas Show” and brought “Good Morning America” to life. But his career ended under a cloud of sexual harassment claims.`\
 https://nytimes.com/2024/12/31/arts/television/woody-fraser-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030296/2024/12/31/cowboys-zeke-elliott-stats-relea
 **One Set of China. Five Generations.**\
 `A family’s set of dishes has passed through five generations of women, but will the teacups, plates and bowls make it to a sixth?`\
 https://nytimes.com/interactive/2024/12/31/realestate/fine-china-dumulong-family.html
-
-**Dan Campbell is a vibe, and the Detroit Lions are feeding off his energy**\
-`The Lions have harnessed Dan Campbell's mindset and turned it into the best regular season in Detroit franchise history. `\
-https://nytimes.com/athletic/6030070/2024/12/31/dan-campbell-vibe-lions-nfl-playoffs/
 
