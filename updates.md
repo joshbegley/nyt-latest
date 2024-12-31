@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Depth scoring comes up big to cap off 2024**\
+`Steven Lorentz scored a highlight-reel goal as Toronto finished the year on a winning note.`\
+https://nytimes.com/athletic/6030267/2024/12/31/maple-leafs-islanders-analysis-grades/
+
 **Ohio Is About to Make Queer Kids Miserable**\
 `The legislature passed a bill that could pressure schools to out L.G.B.T.Q. students to their parents.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/ohio-queer-kids-legislation
