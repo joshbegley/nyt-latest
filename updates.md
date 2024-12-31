@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘He Never Says the Words’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/12/31/style/tiny-modern-love-stories-he-never-says-the-words.html
+
+**The States Restricting Guns and Legalizing Marijuana in the New Year**\
+`Other state laws going into effect in 2025 will boost wages, restrict social media for children and make insulin cheaper.`\
+https://nytimes.com/2024/12/31/us/state-laws-guns-drugs-transgender-youth.html
+
 **Holiday Briefing: Welcome to 2025**\
 `Plus, you shared the New Year’s resolutions that stuck.`\
 https://nytimes.com/2024/12/31/briefing/new-years-holiday-briefing.html

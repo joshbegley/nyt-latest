@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘He Never Says the Words’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/12/31/style/tiny-modern-love-stories-he-never-says-the-words.html
+
+**The States Restricting Guns and Legalizing Marijuana in the New Year**\
+`Other state laws going into effect in 2025 will boost wages, restrict social media for children and make insulin cheaper.`\
+https://nytimes.com/2024/12/31/us/state-laws-guns-drugs-transgender-youth.html
+
 **Holiday Briefing: Welcome to 2025**\
 `Plus, you shared the New Year’s resolutions that stuck.`\
 https://nytimes.com/2024/12/31/briefing/new-years-holiday-briefing.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/12/31/world/asia/jeju-plane-crash-maps-phot
 **The Year in Wisdom**\
 `Our staff — and listeners — on the best advice of 2024.`\
 https://nytimes.com/2024/12/31/podcasts/the-daily/2024-best-advice.html
-
-**Super Bowl odds: Breaking down 5 favorites as Chiefs, Lions, Bills still lead pack**\
-`The Chiefs are back as the favorite to win the Super Bowl after clinching the top seed in the AFC. The Lions and Bills are right behind.`\
-https://nytimes.com/athletic/6029941/2024/12/31/super-bowl-odds-chiefs-lions-bills/
-
-**Trump Wants Greenland and the Panama Canal. It’s About Climate.**\
-`Global warming is making both places more important to global shipping and trade.`\
-https://nytimes.com/2024/12/31/climate/trump-greenland-panama-canal-climate-change.html
 
