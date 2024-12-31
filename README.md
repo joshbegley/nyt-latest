@@ -1,3 +1,7 @@
+**NBA Power Rankings: Knicks up, Warriors down and a time-capsule item for each team**\
+`Before we step into 2025, let's take stock of where each NBA team stands, from the top (Cavs) to bottom (Pels).`\
+https://nytimes.com/athletic/6029214/2024/12/31/nba-power-rankings-knicks-timberwolves-warriors/
+
 **West Ham's Bowen out with fractured foot**\
 `West Ham United captain Jarrod Bowen sustained a fracture to his left foot during their 5-0 home loss against Liverpool on Sunday.`\
 https://nytimes.com/athletic/6029466/2024/12/31/jarrod-bowen-foot-injury-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6028950/2024/12/31/houston-texans-azeez-al-shaair-s
 **The Athletic FC: Best & worst of 2024, who to watch in 2025**\
 `We look back at 2024, forward to 2025, bring you some breaking news and reveal the most-clicked stories in The Athletic FC this year`\
 https://nytimes.com/athletic/6029264/2024/12/31/best-worst-2024-athletic-fc/
-
-**Notre Dame hasn't won a major bowl in a generation. Is it finally ready?**\
-`Notre Dame hasn't won a game like the Playoff quarterfinal against Georgia in Wednesday's Sugar Bowl in more than 30 years.`\
-https://nytimes.com/athletic/6028663/2024/12/31/notre-dame-georgia-playoff-major-bowls/
 
