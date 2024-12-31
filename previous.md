@@ -1,5 +1,5 @@
 **MLB offseason notes: What we're hearing about Jack Flaherty's market and Nolan Arenado**\
-`Corbin Burnes’ agreement with the Arizona Diamondbacks early Saturday morning left the Baltimore Orioles without a bona fide ace, further emphasizing the need to look elsewhere for pitching help.`\
+`With Corbin Burnes off the board, Jack Flaherty stands as one of the best remaining options for teams in search of starting pitching.`\
 https://nytimes.com/athletic/6028641/2024/12/30/mlb-offseason-notes-jack-flaherty-nolan-arenado/
 
 **Hochul Installs New Leader at Prison Where Inmate Was Fatally Beaten**\
