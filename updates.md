@@ -1,3 +1,7 @@
+**In shocking move, Toronto Sceptres trade defender Jocelyne Larocque to Ottawa Charge**\
+`The first trade of the 2024-25 PWHL season — and the biggest trade in league history — was announced on Monday night.`\
+https://nytimes.com/athletic/6028706/2024/12/30/pwhl-toronto-sceptres-trade-jocelyne-larocque-ottawa-charge/
+
 **Pentagon Releases Detainee Held at Guantánamo Since Day 1**\
 `The prisoner, who was repatriated to Tunisia, was never charged. His transfer is part of a Biden administration push to further reduce the dwindling detainee population at the wartime prison.`\
 https://nytimes.com/2024/12/30/us/politics/guantanamo-detainee-released-tunisia.html
