@@ -1,3 +1,7 @@
+**Houthis Launch Latest Missile at Israel Amid Warnings of Retaliation**\
+`The Houthis, an Iranian-backed group based in Yemen, have launched repeated attacks despite the Israeli military’s retaliatory airstrikes.`\
+https://nytimes.com/2024/12/31/world/middleeast/houthis-israel-missile-attack.html
+
 **He Didn’t Know His Father Was on the Doomed Flight Until it Crashed**\
 `Oh Jaejin’s father, 64, had not told Mr. Oh he was flying, because he didn’t want his son to worry. They had been looking forward to his becoming a grandfather.`\
 https://nytimes.com/2024/12/31/world/asia/south-korea-plane-crash-victims.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6027576/2024/12/31/declan-chisholm-wild-top-four/
 **The Connections Companion No. 570**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 1, 2025.`\
 https://nytimes.com/2024/12/31/crosswords/connections-companion-570.html
-
-**China Hacks the Treasury Dept., and a Hydropower Crisis**\
-`Plus, what you might be eating in 2025.`\
-https://nytimes.com/2024/12/31/podcasts/china-hacks-the-treasury-dept-and-a-hydropower-crisis.html
 
