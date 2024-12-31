@@ -1,3 +1,7 @@
+**Carter’s Inner Struggle Between the Engineer and the Poet**\
+`Even those closest to Jimmy Carter often found him hard to read.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/carter-engineer-poet
+
 **Making a Cooking Resolution? These Recipes Will Get You Started.**\
 `If you’ve decided to get great at meal prep, waste less food or just eat breakfast, here are tips and dishes to set you up for success.`\
 https://nytimes.com/2024/12/31/dining/cooking-new-years-resolutions-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029269/2024/12/31/does-wayne-rooney-still-have-a-f
 **Trent Alexander-Arnold, Liverpool and Real Madrid: What we're hearing**\
 `How advanced is the Spanish club's interest in England right-back - and how significant is January 1?`\
 https://nytimes.com/athletic/6024486/2024/12/31/trent-alexander-arnold-liverpool-real-madrid-transfer/
-
-**Cowboys Today: Why Rico Dowdle's season is so impressive, and weighing his future**\
-`Should the Cowboys re-sign Rico Dowdle and is he enough to carry the team's backfield?`\
-https://nytimes.com/athletic/6028539/2024/12/31/cowboys-today-rico-dowdle-future/
 
