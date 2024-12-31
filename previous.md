@@ -1,5 +1,5 @@
 **After Judge’s Split Ruling, M.T.A. Says Congestion Pricing Will Begin**\
-`The decision in a lawsuit brought by the State of New Jersey prompted a dispute between New York and New Jersey over whether the plan to toll drivers could start on Jan. 5.`\
+`The decision in a lawsuit brought by the State of New Jersey prompted a dispute between New York and New Jersey over whether the plan to toll drivers could start on Sunday.`\
 https://nytimes.com/2024/12/30/nyregion/nyc-congestion-pricing-lawsuit.html
 
 **‘Hanging Out With Jimmy Carter,’ Biden Faces the Echoes of History**\
