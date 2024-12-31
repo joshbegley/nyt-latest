@@ -1,3 +1,7 @@
+**Angelina Jolie and Brad Pitt Reach Divorce Settlement**\
+`The settlement resolves a key part of the protracted end of their very public Hollywood romance.`\
+https://nytimes.com/2024/12/31/movies/jolie-pitt-divorce.html
+
 **Tariq Lamptey seizes his moment - but what will come next?**\
 `The right back scored his third goal of the season at Villa Park, but is currently set to be out of contract in the summer`\
 https://nytimes.com/athletic/6028188/2024/12/31/tariq-lamptey-brighton-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6004313/2024/12/31/barcelona-2024-yamal-messi-flick
 **Real Madrid's 2024: Champions League glory, miracle of Joselu, Mbappe's mixed start**\
 `It has been a year of contrasts for Madrid, with a La Liga-Champions League double followed by a shaky start to this season`\
 https://nytimes.com/athletic/6003940/2024/12/31/real-madrid-2024-reviewed-mbappe/
-
-**Forest's 2024: From PSR and relegation battles to challenging for Europe**\
-`A look back at the year for Forest, from points deductions to managerial change to challenging the league's elite.`\
-https://nytimes.com/athletic/5997807/2024/12/31/nottingham-forests-2024-from-psr-and-relegation-battles-to-challenging-for-europe/
 

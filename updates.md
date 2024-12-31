@@ -1,3 +1,7 @@
+**Angelina Jolie and Brad Pitt Reach Divorce Settlement**\
+`The settlement resolves a key part of the protracted end of their very public Hollywood romance.`\
+https://nytimes.com/2024/12/31/movies/jolie-pitt-divorce.html
+
 **Tariq Lamptey seizes his moment - but what will come next?**\
 `The right back scored his third goal of the season at Villa Park, but is currently set to be out of contract in the summer`\
 https://nytimes.com/athletic/6028188/2024/12/31/tariq-lamptey-brighton-aston-villa/
