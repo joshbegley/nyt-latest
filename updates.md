@@ -1,3 +1,7 @@
+**South Korea Clears Way to Detain President in Martial Law Inquiry**\
+`The police are investigating whether President Yoon Suk Yeol tried to lead an insurrection when he declared martial law and plunged the country into crisis.`\
+https://nytimes.com/2024/12/30/world/asia/south-korea-warrant-president-yoon-suk-yeol.html
+
 **FBI warns leagues about organized theft groups targeting athletes**\
 `The report follows a spate of burglaries at the homes of high-profile athletes, with a recent break-in occurring at Luka Dončic's home.`\
 https://nytimes.com/athletic/6028472/2024/12/30/fbi-warning-theft-groups-burglaries-nfl-nba/
