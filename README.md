@@ -11,7 +11,7 @@ https://nytimes.com/2024/12/31/insider/y2k-crisis.html
 https://nytimes.com/athletic/6029950/2024/12/31/real-madrid-alexander-arnold-transfer-liverpool/
 
 **In Jab at Musk, Scholz Condemns Foreign Interference in German Election**\
-`Chancellor Olaf Scholz said Germany’s election will “not be decided by the owners of social media channels” in his annual New Year's Eve address.`\
+`Chancellor Olaf Scholz said Germany’s election would “not be decided by the owners of social media channels” in his annual New Year’s Eve address.`\
 https://nytimes.com/2024/12/31/world/europe/scholz-elon-musk-germany-election.html
 
 **Aaron Brown, CNN Anchor During the Sept. 11 Attacks, Dies at 76**\
