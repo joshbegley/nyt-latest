@@ -1,3 +1,7 @@
+**Super Bowl odds: Breaking down 5 favorites as Chiefs, Lions, Bills still lead pack**\
+`The Chiefs are back as the favorite to win the Super Bowl after clinching the top seed in the AFC. The Lions and Bills are right behind.`\
+https://nytimes.com/athletic/6029941/2024/12/31/super-bowl-odds-chiefs-lions-bills/
+
 **Trump Wants Greenland and the Panama Canal. It’s About Climate.**\
 `Global warming is making both places more important to global shipping and trade.`\
 https://nytimes.com/2024/12/31/climate/trump-greenland-panama-canal-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/insider/y2k-crisis.html
 **Liverpool reject Real Madrid approach to sign Alexander-Arnold in January**\
 `Liverpool have turned down an approach from Real Madrid to sign Trent Alexander-Arnold in January.`\
 https://nytimes.com/athletic/6029950/2024/12/31/real-madrid-alexander-arnold-transfer-liverpool/
-
-**In Jab at Musk, Scholz Condemns Foreign Interference in German Election**\
-`Chancellor Olaf Scholz said Germany’s election would “not be decided by the owners of social media channels” in his annual New Year’s Eve address.`\
-https://nytimes.com/2024/12/31/world/europe/scholz-elon-musk-germany-election.html
 
