@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Who will advance from the quarterfinals?**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/12/31/college-football-playoff-projections-odds/
+
 **Ohio State's national title hopes hinge on a position that knows adversity like no other**\
 `The Buckeyes' hard-luck offensive line has been shuffled and shuffled again. Can it meet the moment in the Rose Bowl against Oregon?`\
 https://nytimes.com/athletic/6028801/2024/12/31/ohio-state-offensive-line-oregon-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6028541/2024/12/31/justin-herbert-chargers-offense-
 **Until Saturday: Quick coach notes on CFP quarterfinals**\
 `Welcome to Until Saturday, the five-star college football newsletter: xxxx `\
 https://nytimes.com/athletic/6028334/2024/12/31/college-football-playoff-quarterfinals-until-saturday/
-
-**Joel Embiid and the Sixers are beginning to look like what we thought they'd be**\
-`Embiid scored a season-high 37 points on Monday in Portland, and the way he got those points was the most encouraging sign.`\
-https://nytimes.com/athletic/6028992/2024/12/31/joel-embiid-sixers-portland/
 
