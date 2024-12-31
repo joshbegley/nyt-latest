@@ -1,3 +1,7 @@
+**FBI warns leagues about organized theft groups targeting athletes**\
+`The report follows a spate of burglaries at the homes of high-profile athletes, with a recent break-in occurring at Luka Dončic's home.`\
+https://nytimes.com/athletic/6028472/2024/12/30/fbi-warning-theft-groups-burglaries-nfl-nba/
+
 **Eidevall set to be appointed San Diego Wave head coach**\
 `The former Arsenal head coach chose San Diego partly for its growth potential under new ownership.`\
 https://nytimes.com/athletic/5958337/2024/12/30/san-diego-wave-jonas-eidevall/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6028302/2024/12/30/fabian-hurzeler-blocking-aston-v
 **In Carter’s Hometown, a Long Vigil Ends With Sorrow, but Also Uplift**\
 `Plains, Ga., had been bracing for the inevitable through the former president’s ailments and nearly two years of hospice care. Still, his death, at 100, “doesn’t seem real.”`\
 https://nytimes.com/2024/12/30/us/jimmy-carter-hometown-vigil-plains-georgia.html
-
-**Norovirus Outbreaks Are Rising Nationwide, C.D.C. Says**\
-`Here’s what to know about symptoms and treatment, as well as how to reduce your risk of infection.`\
-https://nytimes.com/2024/12/30/well/norovirus-symptoms-outbreak.html
 

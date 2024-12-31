@@ -1,3 +1,7 @@
+**FBI warns leagues about organized theft groups targeting athletes**\
+`The report follows a spate of burglaries at the homes of high-profile athletes, with a recent break-in occurring at Luka Dončic's home.`\
+https://nytimes.com/athletic/6028472/2024/12/30/fbi-warning-theft-groups-burglaries-nfl-nba/
+
 **Eidevall set to be appointed San Diego Wave head coach**\
 `The former Arsenal head coach chose San Diego partly for its growth potential under new ownership.`\
 https://nytimes.com/athletic/5958337/2024/12/30/san-diego-wave-jonas-eidevall/
