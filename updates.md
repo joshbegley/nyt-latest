@@ -1,3 +1,7 @@
+**Victim of Coney Island Subway Immolation Is Identified by the Police**\
+`Debrina Kawam of Toms River, N.J., was burned alive on Dec. 22 in a videotaped killing that shocked New York.`\
+https://nytimes.com/2024/12/31/nyregion/coney-island-subway-burning-victim-identified.html
+
 **Lessons from soul-crushing fantasy football draft misses: CMC, Tyreek Hill and more**\
 `Tough lessons are learned during every fantasy football season. What stood out in 2024, and how can you adapt for 2025?`\
 https://nytimes.com/athletic/6029436/2024/12/31/2024-nfl-fantasy-football-lessons/

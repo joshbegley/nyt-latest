@@ -1,3 +1,7 @@
+**Victim of Coney Island Subway Immolation Is Identified by the Police**\
+`Debrina Kawam of Toms River, N.J., was burned alive on Dec. 22 in a videotaped killing that shocked New York.`\
+https://nytimes.com/2024/12/31/nyregion/coney-island-subway-burning-victim-identified.html
+
 **Lessons from soul-crushing fantasy football draft misses: CMC, Tyreek Hill and more**\
 `Tough lessons are learned during every fantasy football season. What stood out in 2024, and how can you adapt for 2025?`\
 https://nytimes.com/athletic/6029436/2024/12/31/2024-nfl-fantasy-football-lessons/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/business/top-movies-wicked-moana.html
 **From Grand Gestures to Intimate Moments: 10 Memorable Proposals**\
 `There was no shortage of creative engagements for couples who married in 2024. Here are some of the standouts that appeared in The New York Times’s Wedding section.`\
 https://nytimes.com/2024/12/31/fashion/weddings/proposal-ideas-marriage.html
-
-**Give Chicken Breasts a Chance**\
-`And more cooking plans (with corresponding recipes) I have for the coming year.`\
-https://nytimes.com/2024/12/31/dining/give-chicken-breasts-a-chance.html
 
