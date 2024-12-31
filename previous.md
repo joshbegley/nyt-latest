@@ -1,3 +1,11 @@
+**Shorthanded Michigan stuns No. 11 Alabama in ReliaQuest Bowl**\
+`Alabama, the first team left out of the College Football Playoff, was favored by more than two touchdowns but was stymied on offense.`\
+https://nytimes.com/athletic/6030169/2024/12/31/michigan-alabama-score-reliaquest-bowl-takeaways/
+
+**Brock Purdy's elbow injury not considered serious but likely out of Week 18**\
+`Purdy left Monday night's game against the Lions feeling like his arm was "on fire" after a hit.`\
+https://nytimes.com/athletic/6030143/2024/12/31/49ers-brock-purdy-elbow-injury/
+
 **How the Jeju Air Plane Crashed: Timeline, Maps and Photos**\
 `Video from the scene and aircraft positioning data offer clues about the deadliest aviation disaster in years.`\
 https://nytimes.com/interactive/2024/12/31/world/asia/jeju-plane-crash-maps-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/31/world/africa/dada-masilo-dead.html
 **Putin Declares ‘Everything Will Be Fine’ Despite Russia’s Growing Challenges**\
 `Speaking on the 25th anniversary of his rule, President Vladimir V. Putin delivered an upbeat and vague New Year’s Eve message that did not address casualties in Ukraine or rising inflation at home.`\
 https://nytimes.com/2024/12/31/world/europe/putin-russia-ukraine-speech.html
-
-**Five final Georgia thoughts before the Sugar Bowl**\
-`Marcus Freeman has been building Notre Dame for this game. Georgia, meanwhile, seems to be seeing how long it can keep this ride going.`\
-https://nytimes.com/athletic/6029919/2024/12/31/georgia-notre-dame-sugar-bowl-matchups/
-
-**F.B.I. Says It Found Largest Cache of Homemade Explosives in Its History at Va. Farm**\
-`Investigators discovered more than 150 devices, mostly pipe bombs, on a property outside Norfolk, court papers say.`\
-https://nytimes.com/2024/12/31/us/fbi-explosives-virginia-farm.html
 

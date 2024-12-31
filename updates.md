@@ -1,3 +1,11 @@
+**Shorthanded Michigan stuns No. 11 Alabama in ReliaQuest Bowl**\
+`Alabama, the first team left out of the College Football Playoff, was favored by more than two touchdowns but was stymied on offense.`\
+https://nytimes.com/athletic/6030169/2024/12/31/michigan-alabama-score-reliaquest-bowl-takeaways/
+
+**Brock Purdy's elbow injury not considered serious but likely out of Week 18**\
+`Purdy left Monday night's game against the Lions feeling like his arm was "on fire" after a hit.`\
+https://nytimes.com/athletic/6030143/2024/12/31/49ers-brock-purdy-elbow-injury/
+
 **How the Jeju Air Plane Crashed: Timeline, Maps and Photos**\
 `Video from the scene and aircraft positioning data offer clues about the deadliest aviation disaster in years.`\
 https://nytimes.com/interactive/2024/12/31/world/asia/jeju-plane-crash-maps-photos.html
