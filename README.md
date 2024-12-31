@@ -1,3 +1,11 @@
+**The Bounce: 13 NBA New Year’s resolutions.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6029306/2024/12/31/nba-new-years-resolutions-luka-doncic-mavericks-lebron-james-lakers-the-bounce/
+
+**Most of Puerto Rico Is Darkened by New Year’s Eve Blackout**\
+`Only a fraction of the island’s 1.4 million utility customers had power on Tuesday morning. The electricity provider said it would take 24 to 48 hours to restore power.`\
+https://nytimes.com/2024/12/31/us/puerto-rico-power-blackout.html
+
 **How Newcastle won the crucial battle for supremacy out wide at Old Trafford**\
 `Eddie Howe's plan and the execution of it by his players made sure it was Newcastle who came out flying`\
 https://nytimes.com/athletic/6029093/2024/12/31/newcastle-manchester-united-wide-supremacy-eddie-howe/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6028663/2024/12/31/notre-dame-georgia-playoff-major
 **NFL Week 17 best and worst coaching decisions: Kevin O'Connell has Sam Darnold dealing**\
 `Also, the Chiefs may have an answer at left tackle, the Bengals and Tee Higgins shine and Raheem Morris may have doomed the Falcons.`\
 https://nytimes.com/athletic/6024444/2024/12/31/nfl-week-17-worst-best-coaching-decisions-nguyen/
-
-**Ranking every team in England’s top four divisions based on their performance in 2024**\
-`The numbers that show why Arsenal, Liverpool, Leeds and Wrexham had a very good year, and why Manchester United and Carlisle did not`\
-https://nytimes.com/athletic/6027589/2024/12/31/2024-english-team-mega-ranking/
-
-**Justin Herbert, Chargers offense might be peaking at the perfect time**\
-`Justin Herbert has caught fire. The offensive line is clicking. And Greg Roman had his best game as the Chargers' offensive play caller.`\
-https://nytimes.com/athletic/6028541/2024/12/31/justin-herbert-chargers-offense-peaking/
 
