@@ -1,3 +1,15 @@
+**Which attacking player had the best season in Premier League history?**\
+`Liverpool's Mohamed Salah is on course to have the best campaign according to the data, but what do our writers think?`\
+https://nytimes.com/athletic/6027070/2024/12/31/premier-league-history-salah-henry/
+
+**A fictional New Year's Eve party: Our writers pick three dream guests from the world of football**\
+`Jose Mourinho is going toe to toe with Diego Maradona and Antoine Griezmann is on baby-settling duties. But who invited David Coote...?`\
+https://nytimes.com/athletic/6026891/2024/12/31/nye-party-football-dream-guests/
+
+**The Athletic 500: What we learned and why we've changed our transfer scoring system**\
+`Our new transfers ratings explained`\
+https://nytimes.com/athletic/6021982/2024/12/31/the-athletic-transfer-500-new-scoring-system-explained/
+
 **Fantasy basketball crystal ball: Player predictions for the new year**\
 `With a new year upon us, Eric Wong shares his fantasy basketball predictions for early 2025, including a ROY push for Zach Edey.`\
 https://nytimes.com/athletic/6027911/2024/12/31/fantasy-basketball-player-predictions-2025/
