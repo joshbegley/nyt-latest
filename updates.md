@@ -1,3 +1,15 @@
+**Mike McCarthy not interested in addressing his job status: 'We need to finish the race'**\
+`Stephen Jones said he's not surprised with reports that other teams are interested in Mike McCarthy.`\
+https://nytimes.com/athletic/6029213/2024/12/31/cowboys-mike-mccarthy-job-status/
+
+**49ers' Brock Purdy ends loss to Lions with elbow ‘on fire,' awaits more tests**\
+`Purdy's injury came on a day when the 49ers were missing not just their left tackle and left guard but also the players' top backups.`\
+https://nytimes.com/athletic/6028994/2024/12/31/brock-purdy-49ers-elbow-injury-loss-lions/
+
+**The Atlantic Beefs Up Politics Coverage Under Trump**\
+`The magazine is recruiting from a crosstown rival, The Washington Post, to bolster its political staff.`\
+https://nytimes.com/2024/12/31/business/media/atlantic-politics-parker-scherer.html
+
 **Villa's Duran charged by FA following Newcastle red card**\
 `Aston Villa striker Jhon Duran has been charged by the Football Association (FA) following his red card against Newcastle United on Boxing Day.`\
 https://nytimes.com/athletic/6029236/2024/12/31/jhon-duran-red-card-charge-aston-villa/
