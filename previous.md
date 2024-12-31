@@ -1,3 +1,7 @@
+**Villa's Duran charged by FA following Newcastle red card**\
+`Aston Villa striker Jhon Duran has been charged by the Football Association (FA) following his red card against Newcastle United on Boxing Day.`\
+https://nytimes.com/athletic/6029236/2024/12/31/jhon-duran-red-card-charge-aston-villa/
+
 **Tracking War Crimes in Sudan**\
 `Inside a six-month Times investigation.`\
 https://nytimes.com/2024/12/31/briefing/sudan-war-crimes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6028783/2024/12/31/nhl-winter-classic-wrigley-field
 **Top 15 NFL Draft prospects to watch in College Football Playoff quarterfinals**\
 `There will be no shortage of NFL Draft prospects on the field during this week's quarterfinal matchups. `\
 https://nytimes.com/athletic/6024736/2024/12/31/nfl-draft-2025-prospects-college-football-playoffs/
-
-**Behind Declan Chisholm's unlikely rise to Wild's top 4: 'All he needed was a chance'**\
-`For a while, it wasn't a given Chisholm would be able to walk. Now he's holding his own next to Wild captain Jared Spurgeon.`\
-https://nytimes.com/athletic/6027576/2024/12/31/declan-chisholm-wild-top-four/
 

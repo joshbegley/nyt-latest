@@ -1,3 +1,7 @@
+**Villa's Duran charged by FA following Newcastle red card**\
+`Aston Villa striker Jhon Duran has been charged by the Football Association (FA) following his red card against Newcastle United on Boxing Day.`\
+https://nytimes.com/athletic/6029236/2024/12/31/jhon-duran-red-card-charge-aston-villa/
+
 **Tracking War Crimes in Sudan**\
 `Inside a six-month Times investigation.`\
 https://nytimes.com/2024/12/31/briefing/sudan-war-crimes.html
