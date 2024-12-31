@@ -1,3 +1,7 @@
+**What's next for Roki Sasaki? Agent provides update on coveted free agent**\
+`Factors include location, market size and team success, but agent Joel Wolfe says Sasaki tends to think differently than most players.`\
+https://nytimes.com/athletic/6028561/2024/12/30/roki-sasaki-mlb-free-agent/
+
 **South Korea Clears Way to Detain President in Martial Law Inquiry**\
 `The police are investigating whether President Yoon Suk Yeol tried to lead an insurrection when he declared martial law and plunged the country into crisis.`\
 https://nytimes.com/2024/12/30/world/asia/south-korea-warrant-president-yoon-suk-yeol.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6028258/2024/12/30/gareth-southgate-knighthood-engl
 **On 40th birthday, LeBron says he could play at high level another 5-7 years**\
 `James made it clear that once he decides to retire, he won't unretire like Michael Jordan or Tom Brady did in their late 30s and early 40s.`\
 https://nytimes.com/athletic/6028277/2024/12/30/lebron-james-40th-birthday-lakers/
-
-**Hurzeler bemoans blocking of goalkeepers in Premier League**\
-`Brighton &amp; Hove Albion head coach Fabian Hurzeler says football will become &#8220;a different kind of sport&#8221; unless the Premier League provides clarity on the blocking of goalkeepers at corners.`\
-https://nytimes.com/athletic/6028302/2024/12/30/fabian-hurzeler-blocking-aston-villa/
 
