@@ -1,3 +1,7 @@
+**Man Is Pushed in Front of Subway Train in Manhattan and Survives**\
+`On the afternoon of New Year’s Eve, a man waiting for a No. 1 train at the 18th Street station was shoved in front of an arriving train.`\
+https://nytimes.com/2024/12/31/nyregion/nyc-subway-tracks-man-shoved.html
+
 **Vannini: Indiana, SMU deserve an apology after yet another Alabama loss**\
 `Pundits like Kirk Herbstreit blasted SMU and especially Indiana for blowout Playoff losses. But Alabama proved it wasn't worth arguing for.`\
 https://nytimes.com/athletic/6030482/2024/12/31/alabama-michigan-playoff-indiana-smu-herbstreit/
