@@ -1,3 +1,11 @@
+**Ohio State's national title hopes hinge on a position that knows adversity like no other**\
+`The Buckeyes' hard-luck offensive line has been shuffled and shuffled again. Can it meet the moment in the Rose Bowl against Oregon?`\
+https://nytimes.com/athletic/6028801/2024/12/31/ohio-state-offensive-line-oregon-playoff/
+
+**West Ham's Antonio discharged from hospital following car crash**\
+`West Ham United forward Michail Antonio has been discharged from hospital following a car crash that left him requiring surgery.`\
+https://nytimes.com/athletic/5980663/2024/12/31/michail-antonio-car-crash-hospital/
+
 **West Ham's Antonio discharged from hospital following car crash**\
 `West Ham United forward Michail Antonio has been discharged from hospital three weeks after a car crash left him requiring surgery.`\
 https://nytimes.com/athletic/5980663/2024/12/31/michail-antonio-car-crash-hospital/

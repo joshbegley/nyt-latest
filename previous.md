@@ -1,5 +1,9 @@
+**Ohio State's national title hopes hinge on a position that knows adversity like no other**\
+`The Buckeyes' hard-luck offensive line has been shuffled and shuffled again. Can it meet the moment in the Rose Bowl against Oregon?`\
+https://nytimes.com/athletic/6028801/2024/12/31/ohio-state-offensive-line-oregon-playoff/
+
 **West Ham's Antonio discharged from hospital following car crash**\
-`West Ham United forward Michail Antonio has been discharged from hospital three weeks after a car crash left him requiring surgery.`\
+`West Ham United forward Michail Antonio has been discharged from hospital following a car crash that left him requiring surgery.`\
 https://nytimes.com/athletic/5980663/2024/12/31/michail-antonio-car-crash-hospital/
 
 **Texans' Al-Shaair says he met with Goodell during 3-game suspension**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6028334/2024/12/31/college-football-playoff-quarter
 **Joel Embiid and the Sixers are beginning to look like what we thought they'd be**\
 `Embiid scored a season-high 37 points on Monday in Portland, and the way he got those points was the most encouraging sign.`\
 https://nytimes.com/athletic/6028992/2024/12/31/joel-embiid-sixers-portland/
-
-**The Pulse: The Lions’ dangerous reality**\
-`The Pulse Newsletter📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6027623/2024/12/31/lions-49ers-nfc-playoffs-the-pulse/
 
