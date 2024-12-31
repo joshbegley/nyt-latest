@@ -1,3 +1,11 @@
+**Carter’s Inner Struggle Between the Engineer and the Poet**\
+`Even those closest to Jimmy Carter often found him hard to read.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/carter-engineer-poet
+
+**Where Shedeur Sanders, Cam Ward NFL Draft evaluations stand after QBs' bowl games**\
+`Ward and Sanders played their final college games on Saturday. How will NFL teams view them as prospects heading into the draft cycle?`\
+https://nytimes.com/athletic/6027451/2024/12/31/nfl-draft-cam-ward-shedeur-sanders-bowl-games/
+
 **Making a Cooking Resolution? These Recipes Will Get You Started.**\
 `If you’ve decided to get great at meal prep, waste less food or just eat breakfast, here are tips and dishes to set you up for success.`\
 https://nytimes.com/2024/12/31/dining/cooking-new-years-resolutions-2025.html
