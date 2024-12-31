@@ -1,3 +1,11 @@
+**Are Manchester United now a part of the Premier League relegation battle?**\
+`After six defeats in a month for the first time since 1930, Ruben Amorim is increasingly aware of how much trouble his side may be in`\
+https://nytimes.com/athletic/6028709/2024/12/31/manchester-united-amorim-relegation-battle/
+
+**The Man Who Showed the World South Korea’s Deadly Plane Crash**\
+`A restaurant owner described witnessing the Jeju Air plane crash and recording videos as it happened. “Every time I closed my eyes, I kept seeing afterimages of the blast.”`\
+https://nytimes.com/2024/12/31/world/asia/south-korea-crash-witness.html
+
 **Food Tourism Is Dead. But Something More Interesting Is Emerging.**\
 `The world’s next great cuisine isn’t hidden in some undiscovered corner of the globe. It’s in the spaces among cultures, traditions and technologies.`\
 https://nytimes.com/2024/12/31/opinion/food-tourism-travel-instagram-tiktok.html
