@@ -1,3 +1,15 @@
+**Georgia vs. Notre Dame: How to watch, picks, odds for CFP quarterfinal at Sugar Bowl**\
+`Georgia is a small favorite against Notre Dame but the Bulldogs will be without starting quarterback Carson Beck.`\
+https://nytimes.com/athletic/6016744/2024/12/31/georgia-notre-dame-how-to-watch-picks-odds-college-football-playoff/
+
+**Oregon vs. Ohio State: How to watch, picks, odds for CFP quarterfinal at Rose Bowl**\
+`Oregon beat Ohio State in the regular season, but now the Buckeyes are favored for the rematch from the Rose Bowl.`\
+https://nytimes.com/athletic/6016684/2024/12/31/oregon-ohio-state-how-to-watch-picks-odds-college-football-playoff/
+
+**Penn State vs. Boise State: How to watch, picks, odds for CFP quarterfinal at Fiesta Bowl**\
+`Penn State is a double-digit favorite against Boise State for the CFP quarterfinal at the Fiesta Bowl.`\
+https://nytimes.com/athletic/6016562/2024/12/31/penn-state-boise-state-how-to-watch-picks-odds-college-football-playoff/
+
 **Betting for (by) dummies: Do the Lions have enough on defense to stay with the Vikings?**\
 `Jon Greenberg and Zac Jackson are aligned on their Week 18 NFL picks, with Detroit's injury-riddled defense making the Lions vulnerable.`\
 https://nytimes.com/athletic/6029736/2024/12/31/betting-for-by-dummies-vikings-lions/
