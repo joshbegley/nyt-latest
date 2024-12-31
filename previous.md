@@ -1,3 +1,11 @@
+**Dartmouth College Basketball Players Halt Effort to Unionize**\
+`The decision to withdraw the petition appeared to be an effort to preserve a favorable federal ruling that could have been in jeopardy under President-elect Donald J. Trump.`\
+https://nytimes.com/2024/12/31/us/dartmouth-basketball-unionize.html
+
+**Minutia minute: 49ers sticking with Jake Moody; Jauan Jennings brought the fire**\
+`Nick Bosa took all but 10 of his snaps against the Lions' Penei Sewell because he wanted to see how he matched up against the right tackle.`\
+https://nytimes.com/athletic/6030491/2024/12/31/49ers-jake-moody-jauan-jennings/
+
 **Congestion Pricing to Start Sunday, After Last-Minute Meeting With Judge**\
 `New Jersey had sued in an attempt to halt New York’s plan to charge motorists entering Manhattan’s busiest roadways.`\
 https://nytimes.com/2024/12/31/nyregion/congestion-pricing-new-york-new-jersey.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6030482/2024/12/31/alabama-michigan-playoff-indiana
 **Woody Fraser, Pioneering Producer of Daytime Talk Shows, Dies at 90**\
 `He spiced up the format in creating “The Mike Douglas Show” and brought “Good Morning America” to life. But his career ended under a cloud of sexual harassment claims.`\
 https://nytimes.com/2024/12/31/arts/television/woody-fraser-dead.html
-
-**Rangers to place Igor Shesterkin on IR with upper-body injury: Source**\
-`The Rangers, who have lost 15 of their last 19 games, will be in even more trouble without their franchise goalie.`\
-https://nytimes.com/athletic/6030469/2024/12/31/rangers-igor-shesterkin-injury/
-
-**62 Fascinating Facts of 2024**\
-`Each day, Times Insider editors scour the newspaper for the most interesting facts to appear in articles. This year, tidbits about grudge-holding crows, the first-ever first kiss and George Washington’s dentures enlightened, informed and entertained us.`\
-https://nytimes.com/2024/12/31/insider/-ifacts-2024.html
 
