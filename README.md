@@ -1,3 +1,11 @@
+**He Didn’t Know His Father Was on the Doomed Flight Until it Crashed**\
+`Oh Jaejin’s father, 64, had not told Mr. Oh he was flying, because he didn’t want his son to worry. They had been looking forward to his becoming a grandfather.`\
+https://nytimes.com/2024/12/31/world/asia/south-korea-plane-crash-victims.html
+
+**Edinburgh’s Epic New Year’s Eve Street Party Is Canceled Because of Weather**\
+`The outdoor Hogmanay festivities were called off in Scotland’s capital as forecasters warned of rain, strong winds and snow across Britain.`\
+https://nytimes.com/2024/12/31/world/europe/new-years-eve-edinburgh-hogmanay-weather-canceled.html
+
 **Chasing the Lions and impressing Ben Johnson requires changes from the Bears**\
 `The Lions' turnaround really began when they asked a beloved former player for help. Would the Bears do something similar?`\
 https://nytimes.com/athletic/6028409/2024/12/31/bears-coaching-search-ben-johnson-lions/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/31/crosswords/connections-companion-570.html
 **China Hacks the Treasury Dept., and a Hydropower Crisis**\
 `Plus, what you might be eating in 2025.`\
 https://nytimes.com/2024/12/31/podcasts/china-hacks-the-treasury-dept-and-a-hydropower-crisis.html
-
-**NFL QB stock report, Week 18: Has Packers' Jordan Love validated his huge contract extension?**\
-`Green Bay signed Love to a four-year, $220 million deal when he had just 18 career starts on his resume. The move has proved prescient. `\
-https://nytimes.com/athletic/6027236/2024/12/31/nfl-qb-stock-report-rankings-jordan-love-packers/
-
-**Wordle Review No. 1,292**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 1, 2025.`\
-https://nytimes.com/2024/12/31/crosswords/wordle-review-1292.html
 
