@@ -1,8 +1,16 @@
+**Fantasy basketball crystal ball: Player predictions for the new year**\
+`With a new year upon us, Eric Wong shares his fantasy basketball predictions for early 2025, including a ROY push for Zach Edey.`\
+https://nytimes.com/athletic/6027911/2024/12/31/fantasy-basketball-player-predictions-2025/
+
+**The top football media stories of 2024: Lineker leaves, Carragher-Abdo, Amazon Premier League exit**\
+`Sometimes it feels like the football media storylines are just as good as any of the dramas that people constantly tell you to watch on TV`\
+https://nytimes.com/athletic/6027281/2024/12/31/football-media-stories-2024/
+
 **Tuesday Briefing**\
 `Fighting in Northern Gaza.`\
 https://nytimes.com/2024/12/31/briefing/gaza-fighting-south-korea.html
 
-**China’s Muslims, After Finding a Refuge in Queens, Now Fear Trump**\
+**Chinese Muslims, After Finding a Refuge in Queens, Now Fear Trump**\
 `At a shelter in the Flushing area of New York, Hui Muslims who fled oppression in China are concerned about the president-elect’s vows to tighten asylum policy.`\
 https://nytimes.com/2024/12/31/business/china-hui-muslims-immigrants-trump.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6019766/2024/12/30/week-17-nfl-playoff-picture-viki
 **Pentagon Appeals Court Upholds Plea Deals in Sept. 11 Case**\
 `The three-judge decision appeared, at least for now, to put plea proceedings for Khalid Shaikh Mohammed and two others back on track to take place in early January at Guantánamo Bay.`\
 https://nytimes.com/2024/12/30/us/politics/911-case-plea-deals.html
-
-**Ranking the Rangers' most embarrassing losses during descent in the standings**\
-`The Rangers are on a 4-15-0 slide since Nov. 21. Where does the latest 5-3 loss to the Panthers rank in an awful stretch?`\
-https://nytimes.com/athletic/6028821/2024/12/30/rangers-most-embarrassing-losses/
-
-**Full Time: Our 2024 soccer superlatives**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6028838/2024/12/30/nwsl-uswnt-2024-soccer-recap-full-time/
 
