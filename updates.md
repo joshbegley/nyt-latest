@@ -1,3 +1,11 @@
+**Migrants Accused of Killing Mexican Immigration Agent**\
+`Officials said the agent was attacked by a group of migrants at a checkpoint in the northern state of Chihuahua after asking to see their identification papers. At least two migrants were arrested.`\
+https://nytimes.com/2024/12/30/world/americas/mexico-us-border-migration-officer-killed.html
+
+**FAA looking into close call involving plane carrying Gonzaga men's basketball**\
+`The team was flying into LAX for their Saturday game against UCLA, which the Bulldogs lost 62-65.`\
+https://nytimes.com/athletic/6028629/2024/12/30/gonzaga-basketball-lax-plane-investigation/
+
 **In shocking move, Toronto Sceptres trade defender Jocelyne Larocque to Ottawa Charge**\
 `The first trade of the 2024-25 PWHL season — and the biggest trade in league history — was announced on Monday night.`\
 https://nytimes.com/athletic/6028706/2024/12/30/pwhl-toronto-sceptres-trade-jocelyne-larocque-ottawa-charge/
