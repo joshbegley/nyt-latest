@@ -1,3 +1,7 @@
+**The frustrating trend that threatens to derail Aston Villa's Premier League campaign**\
+`Missed opportunities against close competitors are proliferating and they are costing Unai Emery's side vital points`\
+https://nytimes.com/athletic/6027721/2024/12/31/aston-villa-trend-start-end-games-badly/
+
 **Angelina Jolie and Brad Pitt Reach Divorce Settlement**\
 `The settlement resolves a key part of the protracted end of their very public Hollywood romance.`\
 https://nytimes.com/2024/12/31/movies/jolie-pitt-divorce.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/opinion/china-taiwan-war-america.html
 **Barcelona's 2024: Yamal-Messi comparisons, Xavi drama, 109 offsides**\
 `A year in which Barca experienced institutional, economic and sporting crisis has ended much better than it began`\
 https://nytimes.com/athletic/6004313/2024/12/31/barcelona-2024-yamal-messi-flick/
-
-**Real Madrid's 2024: Champions League glory, miracle of Joselu, Mbappe's mixed start**\
-`It has been a year of contrasts for Madrid, with a La Liga-Champions League double followed by a shaky start to this season`\
-https://nytimes.com/athletic/6003940/2024/12/31/real-madrid-2024-reviewed-mbappe/
 
