@@ -1,3 +1,7 @@
+**Until Saturday: Quick coach notes on CFP quarterfinals**\
+`Welcome to Until Saturday, the five-star college football newsletter: xxxx `\
+https://nytimes.com/athletic/6028334/2024/12/31/college-football-playoff-quarterfinals-until-saturday/
+
 **Joel Embiid and the Sixers are beginning to look like what we thought they'd be**\
 `Embiid scored a season-high 37 points on Monday in Portland, and the way he got those points was the most encouraging sign.`\
 https://nytimes.com/athletic/6028992/2024/12/31/joel-embiid-sixers-portland/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/world/middleeast/houthis-israel-missile-attack.ht
 **He Didn’t Know His Father Was on the Doomed Flight Until It Crashed**\
 `Oh Jaejin’s father, 64, had not told Mr. Oh he was flying, because he didn’t want his son to worry. They had been looking forward to his becoming a grandfather.`\
 https://nytimes.com/2024/12/31/world/asia/south-korea-plane-crash-victims.html
-
-**Edinburgh’s Epic New Year’s Eve Street Party Is Canceled Because of Weather**\
-`The outdoor Hogmanay festivities were called off in Scotland’s capital as forecasters warned of rain, strong winds and snow across Britain.`\
-https://nytimes.com/2024/12/31/world/europe/new-years-eve-edinburgh-hogmanay-weather-canceled.html
 
