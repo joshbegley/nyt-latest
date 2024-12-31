@@ -3,7 +3,7 @@
 https://nytimes.com/2024/12/30/us/northern-lights-united-states-new-years-eve.html
 
 **What's next for Roki Sasaki? Agent provides update on coveted free agent**\
-`Factors include location, market size and team success, but agent Joel Wolfe says Sasaki tends to think differently than most players.`\
+`As it stands, Wolfe said he does not anticipate Sasaki signing on precisely Jan. 15 but at some point between Jan. 15 and Jan. 23.`\
 https://nytimes.com/athletic/6028561/2024/12/30/roki-sasaki-mlb-free-agent/
 
 **South Korea Clears Way to Detain President in Martial Law Inquiry**\
@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6028472/2024/12/30/fbi-warning-theft-groups-burglar
 `The former Arsenal head coach chose San Diego partly for its growth potential under new ownership.`\
 https://nytimes.com/athletic/5958337/2024/12/30/san-diego-wave-jonas-eidevall/
 
-**After Judge’s Split Ruling, M.T.A. Says Congestion Pricing Will Begin**\
-`The decision in a lawsuit brought by the State of New Jersey prompted a dispute between New York and New Jersey over whether the plan to toll drivers could start on Sunday.`\
+**After Judicial Ruling, M.T.A. Says Congestion Pricing to Begin on Sunday**\
+`The decision in a lawsuit brought by the State of New Jersey meant that the tolling plan could go ahead as planned, New York said. A lawyer for New Jersey disagreed.`\
 https://nytimes.com/2024/12/30/nyregion/nyc-congestion-pricing-lawsuit.html
 
 **‘Hanging Out With Jimmy Carter,’ Biden Faces the Echoes of History**\

@@ -1,3 +1,11 @@
+**What's next for Roki Sasaki? Agent provides update on coveted free agent**\
+`As it stands, Wolfe said he does not anticipate Sasaki signing on precisely Jan. 15 but at some point between Jan. 15 and Jan. 23.`\
+https://nytimes.com/athletic/6028561/2024/12/30/roki-sasaki-mlb-free-agent/
+
+**After Judicial Ruling, M.T.A. Says Congestion Pricing to Begin on Sunday**\
+`The decision in a lawsuit brought by the State of New Jersey meant that the tolling plan could go ahead as planned, New York said. A lawyer for New Jersey disagreed.`\
+https://nytimes.com/2024/12/30/nyregion/nyc-congestion-pricing-lawsuit.html
+
 **Northern Lights Could Glow in U.S. During New Year’s Celebrations**\
 `The northern part of the country could see pink and red streaks in the skies this week, just in time for New Year’s Eve, according to NOAA.`\
 https://nytimes.com/2024/12/30/us/northern-lights-united-states-new-years-eve.html
