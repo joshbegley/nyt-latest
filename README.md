@@ -18,7 +18,7 @@ https://nytimes.com/2024/12/31/fashion/weddings/proposal-ideas-marriage.html
 `And more cooking plans (with corresponding recipes) I have for the coming year.`\
 https://nytimes.com/2024/12/31/dining/give-chicken-breasts-a-chance.html
 
-**Where Cam Ward, Shedeur Sanders NFL Draft evaluations stand after QBs' bowl games**\
+**Where Shedeur Sanders, Cam Ward NFL Draft evaluations stand after QBs' bowl games**\
 `Ward and Sanders played their final college games on Saturday. How will NFL teams view them as prospects heading into the draft cycle?`\
 https://nytimes.com/athletic/6027451/2024/12/31/nfl-draft-cam-ward-shedeur-sanders-bowl-games/
 

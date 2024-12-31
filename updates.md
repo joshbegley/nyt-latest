@@ -1,3 +1,15 @@
+**Making a Cooking Resolution? These Recipes Will Get You Started.**\
+`If you’ve decided to get great at meal prep, waste less food or just eat breakfast, here are tips and dishes to set you up for success.`\
+https://nytimes.com/2024/12/31/dining/cooking-new-years-resolutions-2025.html
+
+**$850 for a Table at Applebee’s? Welcome to Times Square on New Year’s Eve.**\
+`As revelers throng Midtown Manhattan, some chain restaurants are offering a respite, if a pricey one. Perks include bathroom access and unlimited breadsticks.`\
+https://nytimes.com/2024/12/31/nyregion/restaurants-new-years-eve-times-square.html
+
+**Moviegoers Dealt Originality a Setback in 2024**\
+`Box office returns have started to stabilize. But nine of the top 10 box office hits this year were sequels. And the 10th was “Wicked.”`\
+https://nytimes.com/2024/12/31/business/top-movies-wicked-moana.html
+
 **From Grand Gestures to Intimate Moments: 10 Memorable Proposals**\
 `There was no shortage of creative engagements for couples who married in 2024. Here are some of the standouts that appeared in The New York Times’s Wedding section.`\
 https://nytimes.com/2024/12/31/fashion/weddings/proposal-ideas-marriage.html

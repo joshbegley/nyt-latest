@@ -1,3 +1,15 @@
+**Making a Cooking Resolution? These Recipes Will Get You Started.**\
+`If you’ve decided to get great at meal prep, waste less food or just eat breakfast, here are tips and dishes to set you up for success.`\
+https://nytimes.com/2024/12/31/dining/cooking-new-years-resolutions-2025.html
+
+**$850 for a Table at Applebee’s? Welcome to Times Square on New Year’s Eve.**\
+`As revelers throng Midtown Manhattan, some chain restaurants are offering a respite, if a pricey one. Perks include bathroom access and unlimited breadsticks.`\
+https://nytimes.com/2024/12/31/nyregion/restaurants-new-years-eve-times-square.html
+
+**Moviegoers Dealt Originality a Setback in 2024**\
+`Box office returns have started to stabilize. But nine of the top 10 box office hits this year were sequels. And the 10th was “Wicked.”`\
+https://nytimes.com/2024/12/31/business/top-movies-wicked-moana.html
+
 **From Grand Gestures to Intimate Moments: 10 Memorable Proposals**\
 `There was no shortage of creative engagements for couples who married in 2024. Here are some of the standouts that appeared in The New York Times’s Wedding section.`\
 https://nytimes.com/2024/12/31/fashion/weddings/proposal-ideas-marriage.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6024486/2024/12/31/trent-alexander-arnold-liverpool
 **Cowboys Today: Why Rico Dowdle's season is so impressive, and weighing his future**\
 `Should the Cowboys re-sign Rico Dowdle and is he enough to carry the team's backfield?`\
 https://nytimes.com/athletic/6028539/2024/12/31/cowboys-today-rico-dowdle-future/
-
-**Josh Hart is no longer 'lost' on the Knicks. In fact, he's 'more confident than ever'**\
-`Josh Hart is having his best season, averaging 14.4 points, 8.6 rebounds and 5.5 assists. It's a stark turnaround from two months ago.`\
-https://nytimes.com/athletic/6029423/2024/12/31/josh-hart-confidence-knicks-nba/
-
-**Wall Street Sees More Gains Ahead After Another Bumper Year for Stocks**\
-`The S&P 500 is set to post back-to-back annual gains of more than 20 percent for the first time since the late 1990s. Analysts expect stocks to continue rising in 2025.`\
-https://nytimes.com/2024/12/31/business/stock-market-2025-predictions.html
-
-**NBA Power Rankings: Knicks up, Warriors down and a time-capsule item for each team**\
-`Before we step into 2025, let's take stock of where each NBA team stands, from the top (Cavs) to bottom (Pels).`\
-https://nytimes.com/athletic/6029214/2024/12/31/nba-power-rankings-knicks-timberwolves-warriors/
 
