@@ -1,3 +1,7 @@
+**Can an All-Day Cafe Actually Be Exciting? This One Is.**\
+`At Cafe Mado in Brooklyn, the heart of an adventurous tasting-menu restaurant beats within a relaxed comfort-food retreat.`\
+https://nytimes.com/2024/12/31/dining/cafe-mado-nyc-restaurant-review.html
+
 **NBA suspends Amen Thompson, Terry Rozier in wake of Heat-Rockets fight**\
 `Rockets guard Amen Thompson, who started the altercation by slamming Heat guard Tyler Herro to the ground, was given a two-game suspension.`\
 https://nytimes.com/athletic/6030175/2024/12/31/heat-rockets-fight-suspensions-amen-thompson-tyler-herro/
