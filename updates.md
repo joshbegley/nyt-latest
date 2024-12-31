@@ -1,3 +1,7 @@
+**Where Cam Ward, Shedeur Sanders NFL Draft evaluations stand after QBs' bowl games**\
+`Ward and Sanders played their final college games on Saturday. How will NFL teams view them as prospects heading into the draft cycle?`\
+https://nytimes.com/athletic/6027451/2024/12/31/nfl-draft-cam-ward-shedeur-sanders-bowl-games/
+
 **New Year’s 2025: Celebrations Around the World**\
 `See how people across the globe celebrated.`\
 https://nytimes.com/2024/12/31/world/new-years-eve-photos.html

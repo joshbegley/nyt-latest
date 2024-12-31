@@ -1,3 +1,7 @@
+**Where Cam Ward, Shedeur Sanders NFL Draft evaluations stand after QBs' bowl games**\
+`Ward and Sanders played their final college games on Saturday. How will NFL teams view them as prospects heading into the draft cycle?`\
+https://nytimes.com/athletic/6027451/2024/12/31/nfl-draft-cam-ward-shedeur-sanders-bowl-games/
+
 **New Year’s 2025: Celebrations Around the World**\
 `See how people across the globe celebrated.`\
 https://nytimes.com/2024/12/31/world/new-years-eve-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029466/2024/12/31/jarrod-bowen-foot-injury-west-ha
 **The Bounce: 13 NBA New Year’s resolutions**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6029306/2024/12/31/nba-new-years-resolutions-luka-doncic-mavericks-lebron-james-lakers-the-bounce/
-
-**Most of Puerto Rico Is Darkened by New Year’s Eve Blackout**\
-`Only a fraction of the island’s 1.4 million utility customers had power on Tuesday morning. The electricity provider said it would take 24 to 48 hours to restore power.`\
-https://nytimes.com/2024/12/31/us/puerto-rico-power-blackout.html
 
