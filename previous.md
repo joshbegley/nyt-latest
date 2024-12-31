@@ -1,3 +1,7 @@
+**Holiday Briefing: Welcome to 2025**\
+`Plus, you shared the New Year’s resolutions that stuck.`\
+https://nytimes.com/2024/12/31/briefing/new-years-holiday-briefing.html
+
 **NBA suspends Amen Thompson, Terry Rozier in wake of Heat-Rockets fight**\
 `Rockets guard Amen Thompson, who started the altercation by slamming Heat guard Tyler Herro to the ground, was given a two-game suspension.`\
 https://nytimes.com/athletic/6030175/2024/12/31/heat-rockets-fight-suspensions-amen-thompson-tyler-herro/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029941/2024/12/31/super-bowl-odds-chiefs-lions-bil
 **Trump Wants Greenland and the Panama Canal. It’s About Climate.**\
 `Global warming is making both places more important to global shipping and trade.`\
 https://nytimes.com/2024/12/31/climate/trump-greenland-panama-canal-climate-change.html
-
-**Scoop City: NFL moments, stories of 2024**\
-`A brief look at the NFL's biggest stories of 2024, plus The Athletic's most popular football content and Dianna's favorite scoop`\
-https://nytimes.com/athletic/6029987/2024/12/31/nfl-biggest-stories-2024-the-athletic-profiles-most-read-articles-scoop-city/
 

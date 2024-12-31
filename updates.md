@@ -1,3 +1,7 @@
+**Holiday Briefing: Welcome to 2025**\
+`Plus, you shared the New Year’s resolutions that stuck.`\
+https://nytimes.com/2024/12/31/briefing/new-years-holiday-briefing.html
+
 **Can an All-Day Cafe Actually Be Exciting? This One Is.**\
 `At Cafe Mado in Brooklyn, the heart of an adventurous tasting-menu restaurant beats within a relaxed comfort-food retreat.`\
 https://nytimes.com/2024/12/31/dining/cafe-mado-nyc-restaurant-review.html
