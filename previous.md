@@ -1,3 +1,7 @@
+**Full Time: Our 2024 soccer superlatives**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6028838/2024/12/30/nwsl-uswnt-2024-soccer-recap-full-time/
+
 **Migrants Accused of Killing Mexican Immigration Agent**\
 `Officials said the agent was attacked by a group of migrants at a checkpoint in the northern state of Chihuahua after asking to see their identification papers. At least two migrants were arrested.`\
 https://nytimes.com/2024/12/30/world/americas/mexico-us-border-migration-officer-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/30/us/ian-cramer-north-dakota-sentenced.html
 **11 Data Points and Discoveries That Surprised Us in 2024**\
 `Upshot staff members share a selection of their favorite charts, documents, queries and calculations from the past year.`\
 https://nytimes.com/interactive/2024/12/30/upshot/year-in-review.html
-
-**Corrections: Dec. 31, 2024**\
-`Corrections that appeared in print on Tuesday, Dec. 31, 2024.`\
-https://nytimes.com/2024/12/30/pageoneplus/corrections-dec-31-2024.html
 
