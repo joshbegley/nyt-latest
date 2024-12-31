@@ -1,3 +1,11 @@
+**F.B.I. Says It Found Largest Cache of Homemade Explosives in Its History at Va. Farm**\
+`Investigators discovered more than 150 devices, mostly pipe bombs, on a property outside Norfolk, court papers say.`\
+https://nytimes.com/2024/12/31/us/fbi-explosives-virginia-farm.html
+
+**As Confetti Rained on Times Square, Y2K Bug Was a No-Show**\
+`Planes didn’t fall from the sky on Jan. 1, 2000. A technology reporter who wrote a front-page article early that morning reflects on a crisis that never was.`\
+https://nytimes.com/2024/12/31/insider/y2k-crisis.html
+
 **Liverpool reject Real Madrid approach to sign Alexander-Arnold in January**\
 `Liverpool have turned down an approach from Real Madrid to sign Trent Alexander-Arnold in January.`\
 https://nytimes.com/athletic/6029950/2024/12/31/real-madrid-alexander-arnold-transfer-liverpool/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6016744/2024/12/31/georgia-notre-dame-how-to-watch-
 **Victim of Coney Island Subway Immolation Is Identified by the Police**\
 `Debrina Kawam of Toms River, N.J., was burned alive on Dec. 22 in a videotaped killing that shocked New York.`\
 https://nytimes.com/2024/12/31/nyregion/coney-island-subway-burning-victim-identified.html
-
-**Oregon vs. Ohio State: How to watch, picks, odds for CFP quarterfinal at Rose Bowl**\
-`Oregon beat Ohio State in the regular season, but now the Buckeyes are favored for the rematch from the Rose Bowl.`\
-https://nytimes.com/athletic/6016684/2024/12/31/oregon-ohio-state-how-to-watch-picks-odds-college-football-playoff/
-
-**Texas vs. Arizona State: How to watch, picks, odds for CFP quarterfinal Peach Bowl**\
-`Texas is favored by roughly two touchdowns for its CFP quarterfinal against Arizona State. Can the Sun Devils spring the upset?`\
-https://nytimes.com/athletic/6016648/2024/12/31/texas-arizona-state-picks-odds-college-football-playoff/
 
