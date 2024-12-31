@@ -1,3 +1,7 @@
+**‘Population 11’ Is a Peppy Small-Town Outback Mystery**\
+`The new Amazon series isn’t reinventing the TV mystery, but it is a fun and clever watch, buoyed by a few well-timed and energetic twists`\
+https://nytimes.com/2024/12/31/arts/television/population-11-amazon-prime-video.html
+
 **Chief Justice Roberts Condemns Threats to Judicial Independence**\
 `In his year-end report on the federal judiciary, the chief justice decried violence, intimidation and disinformation and warned against defiance of court rulings.`\
 https://nytimes.com/2024/12/31/us/politics/chief-justice-roberts-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/insider/-ifacts-2024.html
 **Russian Forces are Swarming Ukrainian Positions in the East**\
 `Plus, Wall Street sees more gains ahead.`\
 https://nytimes.com/2024/12/31/briefing/ukraine-russia-new-years-eve.html
-
-**Islanders hobble into 2025 headed toward a reckoning**\
-`This Islanders team has run its course. It's time for New York to act like it heading into a crucial trade deadline and offseason.`\
-https://nytimes.com/athletic/6030246/2024/12/31/islanders-maple-leafs-nhl-trade-deadline/
 
