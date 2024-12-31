@@ -1,3 +1,7 @@
+**Does Wayne Rooney still have a future in football management?**\
+`His failure at Plymouth was predictable, but so is him getting further offers in management`\
+https://nytimes.com/athletic/6029269/2024/12/31/does-wayne-rooney-still-have-a-future-in-football-management/
+
 **Trent Alexander-Arnold, Liverpool and Real Madrid: What we're hearing**\
 `How advanced is the Spanish club's interest in England right-back - and how significant is January 1?`\
 https://nytimes.com/athletic/6024486/2024/12/31/trent-alexander-arnold-liverpool-real-madrid-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/us/puerto-rico-power-blackout.html
 **How Newcastle won the crucial battle for supremacy out wide at Old Trafford**\
 `Eddie Howe's plan and the execution of it by his players made sure it was Newcastle who came out flying`\
 https://nytimes.com/athletic/6029093/2024/12/31/newcastle-manchester-united-wide-supremacy-eddie-howe/
-
-**College Football Playoff 2024 projections: Who will advance from the quarterfinals?**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/12/31/college-football-playoff-projections-odds/
 

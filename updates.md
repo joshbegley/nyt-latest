@@ -1,3 +1,7 @@
+**Does Wayne Rooney still have a future in football management?**\
+`His failure at Plymouth was predictable, but so is him getting further offers in management`\
+https://nytimes.com/athletic/6029269/2024/12/31/does-wayne-rooney-still-have-a-future-in-football-management/
+
 **Trent Alexander-Arnold, Liverpool and Real Madrid: What we're hearing**\
 `How advanced is the Spanish club's interest in England right-back - and how significant is January 1?`\
 https://nytimes.com/athletic/6024486/2024/12/31/trent-alexander-arnold-liverpool-real-madrid-transfer/
