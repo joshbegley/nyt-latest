@@ -1,3 +1,7 @@
+**Tariq Lamptey seizes his moment - but what will come next?**\
+`The right back scored his third goal of the season at Villa Park, but is currently set to be out of contract in the summer`\
+https://nytimes.com/athletic/6028188/2024/12/31/tariq-lamptey-brighton-aston-villa/
+
 **How Newcastle handled and embraced the pressure of expectation at Old Trafford**\
 `There have been some huge highs under Howe but a league win at the red side of Manchester had eluded his team — until now`\
 https://nytimes.com/athletic/6019380/2024/12/31/newcastle-united-old-trafford-pressure/
