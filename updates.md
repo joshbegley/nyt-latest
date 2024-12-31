@@ -1,3 +1,15 @@
+**NBA suspends Amen Thompson, Terry Rozier in wake of Heat-Rockets fight**\
+`Rockets guard Amen Thompson, who started the altercation by slamming Heat guard Tyler Herro to the ground, was given a two-game suspension.`\
+https://nytimes.com/athletic/6030175/2024/12/31/heat-rockets-fight-suspensions-amen-thompson-tyler-herro/
+
+**Can an All-Day Cafe Actually Be Exciting? This One Is.**\
+`At Cafe Mado in Brooklyn, the heart of an adventurous tasting-menu restaurant beats within a relaxed comfort-food retreat.`\
+https://nytimes.com/2024/12/31/dining/can-an-all-day-cafe-actually-be-exciting-this-one-is.html
+
+**Listen to the Year’s Best Wisdom**\
+`We’re closing December’s 31 days by looking back at the best wisdom shared with Times reporters, editors and columnists in 2024.`\
+https://nytimes.com/2024/12/31/special-series/listen-to-the-years-best-wisdom.html
+
 **Shorthanded Michigan stuns No. 11 Alabama in ReliaQuest Bowl**\
 `Alabama, the first team left out of the College Football Playoff, was favored by more than two touchdowns but was stymied on offense.`\
 https://nytimes.com/athletic/6030169/2024/12/31/michigan-alabama-score-reliaquest-bowl-takeaways/
