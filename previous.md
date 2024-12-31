@@ -1,3 +1,7 @@
+**Aaron Brown, CNN Anchor During Sept. 11 Attacks, Dies at 76**\
+`He was still in training when he was rushed into live coverage of the collapse of the World Trade Center, and his broadcast became one of the enduring records of the day.`\
+https://nytimes.com/2024/12/31/business/media/aaron-brown-dead-911.html
+
 **Betting for (by) dummies: Do the Lions have enough on defense to stay with the Vikings?**\
 `Jon Greenberg and Zac Jackson are aligned on their Week 18 NFL picks, with Detroit's injury-riddled defense making the Lions vulnerable.`\
 https://nytimes.com/athletic/6029736/2024/12/31/betting-for-by-dummies-vikings-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6016562/2024/12/31/penn-state-boise-state-how-to-wa
 **Lessons from soul-crushing fantasy football draft misses: CMC, Tyreek Hill and more**\
 `Tough lessons are learned during every fantasy football season. What stood out in 2024, and how can you adapt for 2025?`\
 https://nytimes.com/athletic/6029436/2024/12/31/2024-nfl-fantasy-football-lessons/
-
-**Miami fires defensive coordinator Lance Guidry**\
-`Guidry spent two years in Coral Gables running head coach Mario Cristobal’s defense.`\
-https://nytimes.com/athletic/6029681/2024/12/31/miami-defensive-coordinator-lance-guidry-fired/
 

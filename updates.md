@@ -1,3 +1,7 @@
+**Aaron Brown, CNN Anchor During Sept. 11 Attacks, Dies at 76**\
+`He was still in training when he was rushed into live coverage of the collapse of the World Trade Center, and his broadcast became one of the enduring records of the day.`\
+https://nytimes.com/2024/12/31/business/media/aaron-brown-dead-911.html
+
 **Georgia vs. Notre Dame: How to watch, picks, odds for CFP quarterfinal at Sugar Bowl**\
 `Georgia is a small favorite against Notre Dame but the Bulldogs will be without starting quarterback Carson Beck.`\
 https://nytimes.com/athletic/6016744/2024/12/31/georgia-notre-dame-how-to-watch-picks-odds-college-football-playoff/
