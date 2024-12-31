@@ -1,3 +1,7 @@
+**Dada Masilo, Who Fused Ballet With African Dance, Dies at 39**\
+`Ms. Masilo, a South African dancer and choreographer, was known as a fearless creative who brought African dance styles to traditional pieces like “Swan Lake.”`\
+https://nytimes.com/2024/12/31/world/africa/dada-masilo-dead.html
+
 **Putin Declares ‘Everything Will Be Fine’ Despite Russia’s Growing Challenges**\
 `Speaking on the 25th anniversary of his rule, President Vladimir V. Putin delivered an upbeat and vague New Year’s Eve message that did not address casualties in Ukraine or rising inflation at home.`\
 https://nytimes.com/2024/12/31/world/europe/putin-russia-ukraine-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029736/2024/12/31/betting-for-by-dummies-vikings-l
 **The Athletic's review of 2024: Farewell Jurgen, the rise of Yamal and... San Marino win a game**\
 `Our writers reflect on a year of high drama, on and off the pitch`\
 https://nytimes.com/athletic/6010637/2024/12/31/review-of-2024-football/
-
-**Heat Today: 5 New Year's resolutions for Miami as 2025 approaches**\
-`The Heat have been mediocre through 30 games, but a few small improvements could go a long way.`\
-https://nytimes.com/athletic/6029698/2024/12/31/jimmy-butler-tyler-herro-bam-adebayo-heat-all-star-nba/
 

@@ -1,3 +1,7 @@
+**Dada Masilo, Who Fused Ballet With African Dance, Dies at 39**\
+`Ms. Masilo, a South African dancer and choreographer, was known as a fearless creative who brought African dance styles to traditional pieces like “Swan Lake.”`\
+https://nytimes.com/2024/12/31/world/africa/dada-masilo-dead.html
+
 **Putin Declares ‘Everything Will Be Fine’ Despite Russia’s Growing Challenges**\
 `Speaking on the 25th anniversary of his rule, President Vladimir V. Putin delivered an upbeat and vague New Year’s Eve message that did not address casualties in Ukraine or rising inflation at home.`\
 https://nytimes.com/2024/12/31/world/europe/putin-russia-ukraine-speech.html
