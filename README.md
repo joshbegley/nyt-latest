@@ -1,3 +1,11 @@
+**Chasing the Lions and impressing Ben Johnson requires changes from the Bears**\
+`The Lions' turnaround really began when they asked a beloved former player for help. Would the Bears do something similar?`\
+https://nytimes.com/athletic/6028409/2024/12/31/bears-coaching-search-ben-johnson-lions/
+
+**'He knows this is it': Why Oregon's Dillon Gabriel enters Rose Bowl as 'best version of himself'**\
+`Gabriel, called Pops by his teammates, will make his 63rd career start, the most in FBS history by a QB, in the Granddaddy of them all.`\
+https://nytimes.com/athletic/6027646/2024/12/31/oregon-dillon-gabriel-cfp-rose-bowl/
+
 **Jordan Addison's star continuing to rise at perfect time for Vikings offense**\
 `The talented second-year receiver is proving to be a perfect complement to Justin Jefferson — and a dangerous target in his own right.`\
 https://nytimes.com/athletic/6028138/2024/12/31/jordan-addison-vikings-offense-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6027236/2024/12/31/nfl-qb-stock-report-rankings-jor
 **Wordle Review No. 1,292**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 1, 2025.`\
 https://nytimes.com/2024/12/31/crosswords/wordle-review-1292.html
-
-**Blue Jackets need veteran defenseman Damon Severson to clean up his mistakes**\
-`A streak of bad mistakes at the worst possible times is undermining Severson's generally positive play.`\
-https://nytimes.com/athletic/6028509/2024/12/31/blue-jackets-damon-severson-defense-mistakes/
-
-**The Year in Books**\
-`Our Book Review staff on the best of 2024.`\
-https://nytimes.com/2024/12/31/podcasts/the-daily/2024-best-books.html
 
