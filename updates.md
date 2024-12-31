@@ -1,3 +1,19 @@
+**Notre Dame hasn't won a major bowl in a generation. Is it finally ready?**\
+`Notre Dame hasn't won a game like the Playoff quarterfinal against Georgia in Wednesday's Sugar Bowl in more than 30 years.`\
+https://nytimes.com/athletic/6028663/2024/12/31/notre-dame-georgia-playoff-major-bowls/
+
+**NFL Week 17 best and worst coaching decisions: Kevin O'Connell has Sam Darnold dealing**\
+`Also, the Chiefs may have an answer at left tackle, the Bengals and Tee Higgins shine and Raheem Morris may have doomed the Falcons.`\
+https://nytimes.com/athletic/6024444/2024/12/31/nfl-week-17-worst-best-coaching-decisions-nguyen/
+
+**Ranking every team in England’s top four divisions based on their performance in 2024**\
+`The numbers that show why Arsenal, Liverpool, Leeds and Wrexham had a very good year, and why Manchester United and Carlisle did not`\
+https://nytimes.com/athletic/6027589/2024/12/31/2024-english-team-mega-ranking/
+
+**Justin Herbert, Chargers offense might be peaking at the perfect time**\
+`Justin Herbert has caught fire. The offensive line is clicking. And Greg Roman had his best game as the Chargers' offensive play caller.`\
+https://nytimes.com/athletic/6028541/2024/12/31/justin-herbert-chargers-offense-peaking/
+
 **Until Saturday: Quick coach notes on CFP quarterfinals**\
 `Welcome to Until Saturday, the five-star college football newsletter: xxxx `\
 https://nytimes.com/athletic/6028334/2024/12/31/college-football-playoff-quarterfinals-until-saturday/
