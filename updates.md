@@ -1,3 +1,15 @@
+**Islanders hobble into 2025 headed toward a reckoning**\
+`This Islanders team has run its course. It's time for New York to act like it heading into a crucial trade deadline and offseason.`\
+https://nytimes.com/athletic/6030246/2024/12/31/islanders-maple-leafs-nhl-trade-deadline/
+
+**How West Virginia snapped No. 7 Kansas' 33-year conference opener winning streak**\
+`The Mountaineers won at Allen Fieldhouse for the first time in 12 tries, ending the Jayhawks' 33-year winning streak in conference openers.`\
+https://nytimes.com/athletic/6030395/2024/12/31/west-virginia-kansas-big-12-basketball/
+
+**Joe Burrow pushes Bengals’ front office regarding futures of Higgins, Chase**\
+`“You don't want to make a living out of letting great players leave the building," Burrow said.`\
+https://nytimes.com/athletic/6030396/2024/12/31/joe-burrow-bengals-tee-higgins-jamarr-chase/
+
 **Cowboys cut Ezekiel Elliott ahead of Week 18 after RB requests release**\
 `Dallas will enter the new year and its season finale without the nine-year veteran.`\
 https://nytimes.com/athletic/6030296/2024/12/31/cowboys-zeke-elliott-stats-released/

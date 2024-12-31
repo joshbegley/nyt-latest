@@ -1,3 +1,15 @@
+**Islanders hobble into 2025 headed toward a reckoning**\
+`This Islanders team has run its course. It's time for New York to act like it heading into a crucial trade deadline and offseason.`\
+https://nytimes.com/athletic/6030246/2024/12/31/islanders-maple-leafs-nhl-trade-deadline/
+
+**How West Virginia snapped No. 7 Kansas' 33-year conference opener winning streak**\
+`The Mountaineers won at Allen Fieldhouse for the first time in 12 tries, ending the Jayhawks' 33-year winning streak in conference openers.`\
+https://nytimes.com/athletic/6030395/2024/12/31/west-virginia-kansas-big-12-basketball/
+
+**Joe Burrow pushes Bengals’ front office regarding futures of Higgins, Chase**\
+`“You don't want to make a living out of letting great players leave the building," Burrow said.`\
+https://nytimes.com/athletic/6030396/2024/12/31/joe-burrow-bengals-tee-higgins-jamarr-chase/
+
 **Cowboys cut Ezekiel Elliott ahead of Week 18 after RB requests release**\
 `Dallas will enter the new year and its season finale without the nine-year veteran.`\
 https://nytimes.com/athletic/6030296/2024/12/31/cowboys-zeke-elliott-stats-released/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6030245/2024/12/31/cam-ward-miami-hurricanes-pop-ta
 **Tiny Love Stories: ‘He Never Says the Words’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/12/31/style/tiny-modern-love-stories-he-never-says-the-words.html
-
-**The States Restricting Guns and Legalizing Marijuana in the New Year**\
-`Other state laws going into effect in 2025 will boost wages, restrict social media for children and make insulin cheaper.`\
-https://nytimes.com/2024/12/31/us/state-laws-guns-drugs-transgender-youth.html
-
-**Holiday Briefing: Welcome to 2025**\
-`Plus, you shared the New Year’s resolutions that stuck.`\
-https://nytimes.com/2024/12/31/briefing/new-years-holiday-briefing.html
-
-**NBA suspends Amen Thompson, Terry Rozier in wake of Heat-Rockets fight**\
-`Rockets guard Amen Thompson, who started the altercation by slamming Heat guard Tyler Herro to the ground, was given a two-game suspension.`\
-https://nytimes.com/athletic/6030175/2024/12/31/heat-rockets-fight-suspensions-amen-thompson-tyler-herro/
 
