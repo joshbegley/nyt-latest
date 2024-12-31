@@ -1,3 +1,7 @@
+**Lions win a 'meaningless' game that meant everything. The Vikings and real stakes await**\
+`The Lions now have a chance to accomplish what they couldn't a year ago: a first-round bye and home-field advantage throughout the playoffs.`\
+https://nytimes.com/athletic/6029042/2024/12/31/lions-defeat-49ers-vikings-await/
+
 **The Soviet Holiday Classic Even Kremlin Skeptics Can’t Stop Watching**\
 `“The Irony of Fate” is a turn-of-the-year TV tradition that endures even in households that are now wary of Russian culture.`\
 https://nytimes.com/2024/12/31/arts/television/the-irony-of-fate-new-years.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6028395/2024/12/31/enzo-maresca-chelsea-ipswich-for
 **Are Manchester United now part of the Premier League relegation battle?**\
 `After six defeats in a month for the first time since 1930, Ruben Amorim is increasingly aware of how much trouble his side may be in`\
 https://nytimes.com/athletic/6028709/2024/12/31/manchester-united-amorim-relegation-battle/
-
-**The Man Who Showed the World South Korea’s Deadly Plane Crash**\
-`A restaurant owner described witnessing the Jeju Air plane crash and recording videos as it happened. “Every time I closed my eyes, I kept seeing afterimages of the blast.”`\
-https://nytimes.com/2024/12/31/world/asia/south-korea-crash-witness.html
 
