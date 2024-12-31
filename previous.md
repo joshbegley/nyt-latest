@@ -1,3 +1,11 @@
+**U.S. Senator’s Son Gets 28 Years for Car Chase That Killed Sheriff’s Deputy**\
+`Ian Cramer, the 43-year-old son of Senator Kevin Cramer,  Republican of North Dakota, led the police on a highway pursuit that killed a sheriff’s deputy.`\
+https://nytimes.com/2024/12/30/us/ian-cramer-north-dakota-sentenced.html
+
+**11 Data Points and Discoveries That Surprised Us in 2024**\
+`Upshot staff members share a selection of their favorite charts, documents, queries and calculations from the past year.`\
+https://nytimes.com/interactive/2024/12/30/upshot/year-in-review.html
+
 **Corrections: Dec. 31, 2024**\
 `Corrections that appeared in print on Tuesday, Dec. 31, 2024.`\
 https://nytimes.com/2024/12/30/pageoneplus/corrections-dec-31-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/12/30/nyregion/nyc-congestion-pricing-lawsuit.html
 **‘Hanging Out With Jimmy Carter,’ Biden Faces the Echoes of History**\
 `President Biden is yet another one-term Democrat hurt by inflation and struggling to free hostages before leaving office. But Mr. Carter’s enhanced reputation offers hope that he too may be remembered more favorably.`\
 https://nytimes.com/2024/12/30/us/politics/jimmy-carter-joe-biden-history.html
-
-**Relegation talk is the 'shock' Man Utd need - Amorim**\
-`Manchester United head coach Ruben Amorim has said he talks about the prospect of relegation because the club needs a &#8220;shock&#8221;.`\
-https://nytimes.com/athletic/6028400/2024/12/30/ruben-amorim-relegation-talk-man-utd/
-
-**Missouri rallies vs. Iowa for win in Music City Bowl**\
-`It marked Missouri’s 14th come-from-behind victory in the last two seasons and the ninth that took place in the second half.`\
-https://nytimes.com/athletic/6028366/2024/12/30/missouri-iowa-music-city-bowl-result-analysis/
 
