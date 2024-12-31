@@ -1,3 +1,7 @@
+**Ohio Is About to Make Queer Kids Miserable**\
+`The legislature passed a bill that could pressure schools to out L.G.B.T.Q. students to their parents.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/ohio-queer-kids-legislation
+
 **Feldman: Cam Ward played in Miami's bowl for his team. Despite the loss, everyone won**\
 `Cam Ward was always going to just start the Pop-Tarts Bowl. The outrage isn't earned. `\
 https://nytimes.com/athletic/6030245/2024/12/31/cam-ward-miami-hurricanes-pop-tarts-bowl/

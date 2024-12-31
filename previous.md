@@ -1,3 +1,7 @@
+**Ohio Is About to Make Queer Kids Miserable**\
+`The legislature passed a bill that could pressure schools to out L.G.B.T.Q. students to their parents.`\
+https://nytimes.com/live/2024/12/17/opinion/thepoint/ohio-queer-kids-legislation
+
 **Feldman: Cam Ward played in Miami's bowl for his team. Despite the loss, everyone won**\
 `Cam Ward was always going to just start the Pop-Tarts Bowl. The outrage isn't earned. `\
 https://nytimes.com/athletic/6030245/2024/12/31/cam-ward-miami-hurricanes-pop-tarts-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030169/2024/12/31/michigan-alabama-score-reliaques
 **Brock Purdy's elbow injury not considered serious but likely out of Week 18**\
 `Purdy left Monday night's game against the Lions feeling like his arm was "on fire" after a hit.`\
 https://nytimes.com/athletic/6030143/2024/12/31/49ers-brock-purdy-elbow-injury/
-
-**How the Jeju Air Plane Crashed: Timeline, Maps and Photos**\
-`Video from the scene and aircraft positioning data offer clues about the deadliest aviation disaster in years.`\
-https://nytimes.com/interactive/2024/12/31/world/asia/jeju-plane-crash-maps-photos.html
 

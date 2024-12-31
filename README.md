@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Depth scoring comes up big to cap off 2024**\
+`Steven Lorentz scored a highlight-reel goal as Toronto finished the year on a winning note.`\
+https://nytimes.com/athletic/6030267/2024/12/31/maple-leafs-islanders-analysis-grades/
+
 **Ohio Is About to Make Queer Kids Miserable**\
 `The legislature passed a bill that could pressure schools to out L.G.B.T.Q. students to their parents.`\
 https://nytimes.com/live/2024/12/17/opinion/thepoint/ohio-queer-kids-legislation
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/special-series/listen-to-the-years-best-wisdom.ht
 **Shorthanded Michigan stuns No. 11 Alabama in ReliaQuest Bowl**\
 `Alabama, the first team left out of the College Football Playoff, was favored by more than two touchdowns but was stymied on offense.`\
 https://nytimes.com/athletic/6030169/2024/12/31/michigan-alabama-score-reliaquest-bowl-takeaways/
-
-**Brock Purdy's elbow injury not considered serious but likely out of Week 18**\
-`Purdy left Monday night's game against the Lions feeling like his arm was "on fire" after a hit.`\
-https://nytimes.com/athletic/6030143/2024/12/31/49ers-brock-purdy-elbow-injury/
 
