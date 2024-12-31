@@ -1,3 +1,23 @@
+**Tottenham Hotspur's 2024: Dejan Kulusevski comes to the fore but inconsistency lingers**\
+`Ange Postecoglou's side continue to impress and bewilder their fanbase in equal measure - will 2025 be a smoother ride?`\
+https://nytimes.com/athletic/5966195/2024/12/31/tottenham-review-of-the-year-2024/
+
+**Everton's 2024: Takeover joy, Goodison derby to savour and Branthwaite steps up**\
+`From the fear of relegation (again) to the start of a new era under The Friedkin Group - it's been another dramatic 12 months at Goodison`\
+https://nytimes.com/athletic/5997926/2024/12/31/everton-2024-review-friedkin-goodison/
+
+**How thoughtful management has unlocked the best form of Alexis Mac Allister's Liverpool career**\
+`Arne Slot's careful rotation of key figures is underpinning Liverpool's title bid - and few players have benefited as much as Mac Allister`\
+https://nytimes.com/athletic/6027014/2024/12/31/alexis-mac-allister-form-slot-rested/
+
+**Crystal Palace's 2024: The Glasner effect, Brighton rocked and the rise of Mateta**\
+`Over 12 months, the mood at Palace was transformed thanks to a new manager and players proving their worth`\
+https://nytimes.com/athletic/6015306/2024/12/31/crystal-palace-2024-glasner-mateta-wharton/
+
+**Wrexham's 2024: Another promotion, the rise of Max Cleworth, and that Jack Marriott goal**\
+`After a second promotion, Wrexham are proving themselves able in League One. Here's the story of their eventful 12 months...`\
+https://nytimes.com/athletic/5962697/2024/12/31/wrexham-2024-promotion-max-cleworth-jack-marriott/
+
 **Which attacking player had the best season in Premier League history?**\
 `Liverpool's Mohamed Salah is on course to have the best campaign according to the data, but what do our writers think?`\
 https://nytimes.com/athletic/6027070/2024/12/31/premier-league-history-salah-henry/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6027911/2024/12/31/fantasy-basketball-player-predic
 **The top football media stories of 2024: Lineker leaves, Carragher-Abdo, Amazon Premier League exit**\
 `Sometimes it feels like the football media storylines are just as good as any of the dramas that people constantly tell you to watch on TV`\
 https://nytimes.com/athletic/6027281/2024/12/31/football-media-stories-2024/
-
-**Tuesday Briefing**\
-`Fighting in Northern Gaza.`\
-https://nytimes.com/2024/12/31/briefing/gaza-fighting-south-korea.html
-
-**Chinese Muslims, After Finding a Refuge in Queens, Now Fear Trump**\
-`At a shelter in the Flushing area of New York, Hui Muslims who fled oppression in China are concerned about the president-elect’s vows to tighten asylum policy.`\
-https://nytimes.com/2024/12/31/business/china-hui-muslims-immigrants-trump.html
-
-**Quote of the Day: After a Presidency Ended, Carter Took On the World**\
-`Quotation of the Day for Tuesday, December 31, 2024.`\
-https://nytimes.com/2024/12/31/pageoneplus/quote-of-the-day-after-a-presidency-ended-carter-took-on-the-world.html
-
-**Syrian Refugees in Germany Are Glad They Can Visit Home. But Just Visit.**\
-`The more than one million Syrians who fled to Germany have celebrated the end of war in their homeland, but some fear it could mean losing their refugee status.`\
-https://nytimes.com/2024/12/31/world/europe/syrian-refugees-germany.html
-
-**Drugs, Scams and Sin: Myanmar’s War Has Made It the Global Crime Capital**\
-`The chaotic country is now a magnet for criminal syndicates, particularly from China, destabilizing law enforcement across much of Asia.`\
-https://nytimes.com/2024/12/31/world/asia/myanmar-drugs-crime.html
 
