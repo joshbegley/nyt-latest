@@ -1,3 +1,11 @@
+**MLB offseason notes: What we're hearing about Jack Flaherty's market and Nolan Arenado**\
+`Corbin Burnes’ agreement with the Arizona Diamondbacks early Saturday morning left the Baltimore Orioles without a bona fide ace, further emphasizing the need to look elsewhere for pitching help.`\
+https://nytimes.com/athletic/6028641/2024/12/30/mlb-offseason-notes-jack-flaherty-nolan-arenado/
+
+**Hochul Installs New Leader at Prison Where Inmate Was Fatally Beaten**\
+`Gov. Kathy Hochul of New York moved to try to contain the fallout from the death of Robert Brooks, in which 14 corrections workers have been implicated.`\
+https://nytimes.com/2024/12/30/nyregion/ny-prison-beating-brooks-marcy.html
+
 **U.S. Senator’s Son Gets 28 Years for Car Chase That Killed Sheriff’s Deputy**\
 `Ian Cramer, the 43-year-old son of Senator Kevin Cramer,  Republican of North Dakota, led the police on a highway pursuit that killed a sheriff’s deputy.`\
 https://nytimes.com/2024/12/30/us/ian-cramer-north-dakota-sentenced.html
