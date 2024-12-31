@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6030175/2024/12/31/heat-rockets-fight-suspensions-a
 
 **Can an All-Day Cafe Actually Be Exciting? This One Is.**\
 `At Cafe Mado in Brooklyn, the heart of an adventurous tasting-menu restaurant beats within a relaxed comfort-food retreat.`\
-https://nytimes.com/2024/12/31/dining/can-an-all-day-cafe-actually-be-exciting-this-one-is.html
+https://nytimes.com/2024/12/31/dining/cafe-mado-nyc-restaurant-review.html
 
 **Listen to the Year’s Best Wisdom**\
 `We’re closing December’s 31 days by looking back at the best wisdom shared with Times reporters, editors and columnists in 2024.`\
