@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6027281/2024/12/31/football-media-stories-2024/
 `Fighting in Northern Gaza.`\
 https://nytimes.com/2024/12/31/briefing/gaza-fighting-south-korea.html
 
-**China’s Muslims, After Finding a Refuge in Queens, Now Fear Trump**\
+**Chinese Muslims, After Finding a Refuge in Queens, Now Fear Trump**\
 `At a shelter in the Flushing area of New York, Hui Muslims who fled oppression in China are concerned about the president-elect’s vows to tighten asylum policy.`\
 https://nytimes.com/2024/12/31/business/china-hui-muslims-immigrants-trump.html
 
