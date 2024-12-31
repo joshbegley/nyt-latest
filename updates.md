@@ -1,3 +1,7 @@
+**How Newcastle handled and embraced the pressure of expectation at Old Trafford**\
+`There have been some huge highs under Eddie Howe but a league win at the red side of Manchester had eluded his team — until now`\
+https://nytimes.com/athletic/6019380/2024/12/31/newcastle-united-old-trafford-pressure/
+
 **Are Manchester United now part of the Premier League relegation battle?**\
 `After six defeats in a month for the first time since 1930, Ruben Amorim is increasingly aware of how much trouble his side may be in`\
 https://nytimes.com/athletic/6028709/2024/12/31/manchester-united-amorim-relegation-battle/
