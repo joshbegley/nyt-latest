@@ -1,3 +1,7 @@
+**The Year in Wisdom**\
+`Our staff — and listeners — on the best advice of 2024.`\
+https://nytimes.com/2024/12/31/podcasts/the-daily/2024-best-advice.html
+
 **Super Bowl odds: Breaking down 5 favorites as Chiefs, Lions, Bills still lead pack**\
 `The Chiefs are back as the favorite to win the Super Bowl after clinching the top seed in the AFC. The Lions and Bills are right behind.`\
 https://nytimes.com/athletic/6029941/2024/12/31/super-bowl-odds-chiefs-lions-bills/
