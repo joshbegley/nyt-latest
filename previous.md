@@ -1,3 +1,11 @@
+**Wordle Review No. 1,292**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 1, 2025.`\
+https://nytimes.com/2024/12/31/crosswords/wordle-review-1292.html
+
+**The Year in Books**\
+`Our Book Review staff on the best of 2024.`\
+https://nytimes.com/2024/12/31/podcasts/the-daily/2024-best-books.html
+
 **Dabrowski played through breast cancer treatment to win Olympic tennis medal, WTA Tour Finals**\
 `The Canadian was diagnosed in April 2024 and delayed some of her treatment to play Wimbledon and the Olympic Games.`\
 https://nytimes.com/athletic/6029152/2024/12/31/gabriela-dabrowski-tennis-cancer-diagnosis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6027742/2024/12/31/nebraska-college-athletics-predi
 **Carter’s Mission to Build More Housing Became an Urgent National Issue**\
 `After Jimmy and Rosalynn Carter linked themselves to Habitat for Humanity, it grew and built homes for millions. Now, their cause is a national crisis.`\
 https://nytimes.com/2024/12/31/us/jimmy-carter-habitat-for-humanity.html
-
-**Here’s Something We Agree On in America**\
-`Americans think of our society as so divided. Might there be some upside to starting the new year knowing we aren’t as polarized as we thought?`\
-https://nytimes.com/2024/12/31/opinion/american-politics-trust-institutions.html
-
-**Chinese Companies Have Sidestepped Trump’s Tariffs. They Could Do It Again.**\
-`The companies have found plenty of new channels to the U.S. market — demonstrating the potential limits of the tariffs Donald Trump has promised to impose.`\
-https://nytimes.com/2024/12/31/business/economy/trump-tariffs-china.html
 

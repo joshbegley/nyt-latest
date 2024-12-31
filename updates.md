@@ -1,3 +1,11 @@
+**Wordle Review No. 1,292**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Jan. 1, 2025.`\
+https://nytimes.com/2024/12/31/crosswords/wordle-review-1292.html
+
+**The Year in Books**\
+`Our Book Review staff on the best of 2024.`\
+https://nytimes.com/2024/12/31/podcasts/the-daily/2024-best-books.html
+
 **Dabrowski played through breast cancer treatment to win Olympic tennis medal, WTA Tour Finals**\
 `The Canadian was diagnosed in April 2024 and delayed some of her treatment to play Wimbledon and the Olympic Games.`\
 https://nytimes.com/athletic/6029152/2024/12/31/gabriela-dabrowski-tennis-cancer-diagnosis/
