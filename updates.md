@@ -1,3 +1,11 @@
+**Florida's recruiting reversal: Class of 2026 QB Will Griffin enjoying Gators' surge**\
+`Florida's 2025 class is ranked 10th nationally and includes 10 blue-chip prospects from the Sunshine State.`\
+https://nytimes.com/athletic/6027193/2024/12/31/florida-gators-recruiting-qb-will-griffin/
+
+**If the Patriots keep Jerod Mayo, what staff changes would be necessary this offseason?**\
+`If the Patriots retain Mayo, what might their offseason look like? And what staff changes — likely the coordinators — would be needed?`\
+https://nytimes.com/athletic/6027610/2024/12/31/jerod-mayo-patriots-coaching-job/
+
 **Penn State-Boise State preview: Predictions, players to watch and keys to Fiesta Bowl**\
 `The Nittany Lions and Broncos will play in the first CFP quarterfinal game at 7:30 p.m. ET Tuesday.`\
 https://nytimes.com/athletic/6027809/2024/12/31/penn-state-boise-state-prediction-fiesta-bowl/
