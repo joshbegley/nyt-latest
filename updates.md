@@ -1,3 +1,11 @@
+**West Ham's Antonio discharged from hospital following car crash**\
+`West Ham United forward Michail Antonio has been discharged from hospital three weeks after a car crash left him requiring surgery.`\
+https://nytimes.com/athletic/5980663/2024/12/31/michail-antonio-car-crash-hospital/
+
+**Texans' Al-Shaair says he met with Goodell during 3-game suspension**\
+`Al-Shaair criticized how the NFL characterized him in a letter announcing his suspension after his hit on Trevor Lawrence.`\
+https://nytimes.com/athletic/6028950/2024/12/31/houston-texans-azeez-al-shaair-suspension/
+
 **The Athletic FC: Best & worst of 2024, who to watch in 2025**\
 `We look back at 2024, forward to 2025, bring you some breaking news and reveal the most-clicked stories in The Athletic FC this year`\
 https://nytimes.com/athletic/6029264/2024/12/31/best-worst-2024-athletic-fc/
