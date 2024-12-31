@@ -1,3 +1,11 @@
+**Cowboys cut Ezekiel Elliott ahead of Week 18 after RB requests release**\
+`Dallas will enter the new year and its season finale without the nine-year veteran.`\
+https://nytimes.com/athletic/6030296/2024/12/31/cowboys-zeke-elliott-stats-released/
+
+**One Set of China. Five Generations.**\
+`A family’s set of dishes has passed through five generations of women, but will the teacups, plates and bowls make it to a sixth?`\
+https://nytimes.com/interactive/2024/12/31/realestate/fine-china-dumulong-family.html
+
 **Dan Campbell is a vibe, and the Detroit Lions are feeding off his energy**\
 `The Lions have harnessed Dan Campbell's mindset and turned it into the best regular season in Detroit franchise history. `\
 https://nytimes.com/athletic/6030070/2024/12/31/dan-campbell-vibe-lions-nfl-playoffs/
