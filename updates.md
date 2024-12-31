@@ -1,3 +1,7 @@
+**Congestion Pricing to Start Sunday, After Last-Minute Meeting With Judge**\
+`New Jersey had sued in an attempt to halt New York’s plan to charge motorists entering Manhattan’s busiest roadways.`\
+https://nytimes.com/2024/12/31/nyregion/congestion-pricing-new-york-new-jersey.html
+
 **‘Population 11’ Is a Peppy Small-Town Outback Mystery**\
 `The new Amazon series isn’t reinventing the TV mystery, but it is a fun and clever watch, buoyed by a few well-timed and energetic twists`\
 https://nytimes.com/2024/12/31/arts/television/population-11-amazon-prime-video.html
