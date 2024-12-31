@@ -1,3 +1,7 @@
+**Wall Street Sees More Gains Ahead After Another Bumper Year for Stocks**\
+`The S&P 500 is set to post back-to-back annual gains of more than 20 percent for the first time since the late 1990s. Analysts expect stocks to continue rising in 2025.`\
+https://nytimes.com/2024/12/31/business/stock-market-2025-predictions.html
+
 **NBA Power Rankings: Knicks up, Warriors down and a time-capsule item for each team**\
 `Before we step into 2025, let's take stock of where each NBA team stands, from the top (Cavs) to bottom (Pels).`\
 https://nytimes.com/athletic/6029214/2024/12/31/nba-power-rankings-knicks-timberwolves-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5980663/2024/12/31/michail-antonio-car-crash-hospit
 **Texans' Al-Shaair says he met with Goodell during 3-game suspension**\
 `Al-Shaair criticized how the NFL characterized him in a letter announcing his suspension after his hit on Trevor Lawrence.`\
 https://nytimes.com/athletic/6028950/2024/12/31/houston-texans-azeez-al-shaair-suspension/
-
-**The Athletic FC: Best & worst of 2024, who to watch in 2025**\
-`We look back at 2024, forward to 2025, bring you some breaking news and reveal the most-clicked stories in The Athletic FC this year`\
-https://nytimes.com/athletic/6029264/2024/12/31/best-worst-2024-athletic-fc/
 
