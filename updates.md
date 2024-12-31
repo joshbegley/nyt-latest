@@ -1,3 +1,7 @@
+**Are Manchester United now part of the Premier League relegation battle?**\
+`After six defeats in a month for the first time since 1930, Ruben Amorim is increasingly aware of how much trouble his side may be in`\
+https://nytimes.com/athletic/6028709/2024/12/31/manchester-united-amorim-relegation-battle/
+
 **The Soviet Holiday Classic Even Kremlin Skeptics Can’t Stop Watching**\
 `“The Irony of Fate” is a turn-of-the-year TV tradition that endures even in households that are now wary of Russian culture.`\
 https://nytimes.com/2024/12/31/arts/television/the-irony-of-fate-new-years.html

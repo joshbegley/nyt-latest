@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6019380/2024/12/31/newcastle-united-old-trafford-pr
 `After an incredible start and all the Premier League title talk, Chelsea have hit a bump in the road`\
 https://nytimes.com/athletic/6028395/2024/12/31/enzo-maresca-chelsea-ipswich-form/
 
-**Are Manchester United now a part of the Premier League relegation battle?**\
+**Are Manchester United now part of the Premier League relegation battle?**\
 `After six defeats in a month for the first time since 1930, Ruben Amorim is increasingly aware of how much trouble his side may be in`\
 https://nytimes.com/athletic/6028709/2024/12/31/manchester-united-amorim-relegation-battle/
 
