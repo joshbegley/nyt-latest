@@ -1,3 +1,11 @@
+**Food Tourism Is Dead. But Something More Interesting Is Emerging.**\
+`The world’s next great cuisine isn’t hidden in some undiscovered corner of the globe. It’s in the spaces among cultures, traditions and technologies.`\
+https://nytimes.com/2024/12/31/opinion/food-tourism-travel-instagram-tiktok.html
+
+**A China-Taiwan War Would Start an Economic Crisis. America Isn’t Ready.**\
+`Congress must prepare a plan now to avoid global meltdown.`\
+https://nytimes.com/2024/12/31/opinion/china-taiwan-war-america.html
+
 **Barcelona's 2024: Yamal-Messi comparisons, Xavi drama, 109 offsides**\
 `A year in which Barca experienced institutional, economic and sporting crisis has ended much better than it began`\
 https://nytimes.com/athletic/6004313/2024/12/31/barcelona-2024-yamal-messi-flick/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6015306/2024/12/31/crystal-palace-2024-glasner-mate
 **Wrexham's 2024: Another promotion, the rise of Max Cleworth, and that Jack Marriott goal**\
 `After a second promotion, Wrexham are proving themselves able in League One. Here's the story of their eventful 12 months...`\
 https://nytimes.com/athletic/5962697/2024/12/31/wrexham-2024-promotion-max-cleworth-jack-marriott/
-
-**Which attacking player had the best season in Premier League history?**\
-`Liverpool's Mohamed Salah is on course to have the best campaign according to the data, but what do our writers think?`\
-https://nytimes.com/athletic/6027070/2024/12/31/premier-league-history-salah-henry/
-
-**A fictional New Year's Eve party: Our writers pick three dream guests from the world of football**\
-`Jose Mourinho is going toe to toe with Diego Maradona and Antoine Griezmann is on baby-settling duties. But who invited David Coote...?`\
-https://nytimes.com/athletic/6026891/2024/12/31/nye-party-football-dream-guests/
 
