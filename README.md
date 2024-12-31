@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6028801/2024/12/31/ohio-state-offensive-line-oregon-playoff/
 
 **West Ham's Antonio discharged from hospital following car crash**\
-`West Ham United forward Michail Antonio has been discharged from hospital three weeks after a car crash left him requiring surgery.`\
+`West Ham United forward Michail Antonio has been discharged from hospital following a car crash that left him requiring surgery.`\
 https://nytimes.com/athletic/5980663/2024/12/31/michail-antonio-car-crash-hospital/
 
 **Texans' Al-Shaair says he met with Goodell during 3-game suspension**\
