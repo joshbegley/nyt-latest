@@ -1,11 +1,3 @@
-**Scoop City: NFL moments, stories of 2024**\
-`A brief look at the NFL's biggest stories of 2024, plus The Athletic's most popular football content and Dianna's favorite scoop`\
-https://nytimes.com/athletic/6029987/2024/12/31/nfl-biggest-stories-2024-the-athletic-profiles-most-read-articles-scoop-city/
-
-**Jimmy Butler on if he wants to stay with Heat: 'That's a good question'**\
-`When asked if he or his agent had spoken to Pat Riley recently, Butler replied, “Next.”`\
-https://nytimes.com/athletic/6030023/2024/12/31/miami-heat-jimmy-butler-trade-rumors-comments/
-
 **Dada Masilo, Who Fused Ballet With African Dance, Dies at 39**\
 `Ms. Masilo, a South African dancer and choreographer, was known as a fearless creative who brought African dance styles to traditional pieces like “Swan Lake.”`\
 https://nytimes.com/2024/12/31/world/africa/dada-masilo-dead.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/12/31/world/europe/scholz-elon-musk-germany-election.ht
 **Aaron Brown, CNN Anchor During the Sept. 11 Attacks, Dies at 76**\
 `He was still in training when he was rushed into live coverage of the collapse of the World Trade Center, and his broadcast became one of the enduring records of the day.`\
 https://nytimes.com/2024/12/31/business/media/aaron-brown-dead-911.html
+
+**Betting for (by) dummies: Do the Lions have enough on defense to stay with the Vikings?**\
+`Jon Greenberg and Zac Jackson are aligned on their Week 18 NFL picks, with Detroit's injury-riddled defense making the Lions vulnerable.`\
+https://nytimes.com/athletic/6029736/2024/12/31/betting-for-by-dummies-vikings-lions/
+
+**The Athletic's review of 2024: Farewell Jurgen, the rise of Yamal and... San Marino win a game**\
+`Our writers reflect on a year of high drama, on and off the pitch`\
+https://nytimes.com/athletic/6010637/2024/12/31/review-of-2024-football/
 
