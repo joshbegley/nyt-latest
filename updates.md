@@ -1,3 +1,7 @@
+**Dan Campbell is a vibe, and the Detroit Lions are feeding off his energy**\
+`The Lions have harnessed Dan Campbell's mindset and turned it into the best regular season in Detroit franchise history. `\
+https://nytimes.com/athletic/6030070/2024/12/31/dan-campbell-vibe-lions-nfl-playoffs/
+
 **Maple Leafs report cards: Depth scoring comes up big to cap off 2024**\
 `Steven Lorentz scored a highlight-reel goal as Toronto finished the year on a winning note.`\
 https://nytimes.com/athletic/6030267/2024/12/31/maple-leafs-islanders-analysis-grades/
