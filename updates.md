@@ -1,3 +1,7 @@
+**New Year’s 2025: Celebrations Around the World**\
+`See how people across the globe celebrated.`\
+https://nytimes.com/2024/12/31/world/new-years-eve-photos.html
+
 **Does Wayne Rooney still have a future in football management?**\
 `His failure at Plymouth was predictable, but so is him getting further offers in management`\
 https://nytimes.com/athletic/6029269/2024/12/31/does-wayne-rooney-still-have-a-future-in-football-management/

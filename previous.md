@@ -1,3 +1,7 @@
+**New Year’s 2025: Celebrations Around the World**\
+`See how people across the globe celebrated.`\
+https://nytimes.com/2024/12/31/world/new-years-eve-photos.html
+
 **Does Wayne Rooney still have a future in football management?**\
 `His failure at Plymouth was predictable, but so is him getting further offers in management`\
 https://nytimes.com/athletic/6029269/2024/12/31/does-wayne-rooney-still-have-a-future-in-football-management/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029306/2024/12/31/nba-new-years-resolutions-luka-d
 **Most of Puerto Rico Is Darkened by New Year’s Eve Blackout**\
 `Only a fraction of the island’s 1.4 million utility customers had power on Tuesday morning. The electricity provider said it would take 24 to 48 hours to restore power.`\
 https://nytimes.com/2024/12/31/us/puerto-rico-power-blackout.html
-
-**How Newcastle won the crucial battle for supremacy out wide at Old Trafford**\
-`Eddie Howe's plan and the execution of it by his players made sure it was Newcastle who came out flying`\
-https://nytimes.com/athletic/6029093/2024/12/31/newcastle-manchester-united-wide-supremacy-eddie-howe/
 
