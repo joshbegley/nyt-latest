@@ -1,3 +1,7 @@
+**The frustrating trend that threatens to derail Aston Villa's Premier League campaign**\
+`Missed opportunities against close competitors are proliferating and they are costing Unai Emery's side vital points`\
+https://nytimes.com/athletic/6027721/2024/12/31/aston-villa-trend-start-end-games-badly/
+
 **Angelina Jolie and Brad Pitt Reach Divorce Settlement**\
 `The settlement resolves a key part of the protracted end of their very public Hollywood romance.`\
 https://nytimes.com/2024/12/31/movies/jolie-pitt-divorce.html
