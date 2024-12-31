@@ -1,3 +1,7 @@
+**Commanders playoff scenarios: Who are they better suited to face in wild-card round?**\
+`Depending on Sunday's results, Washington could match up against the Rams, Buccaneers or Eagles on Super Wild Card Weekend.`\
+https://nytimes.com/athletic/6028126/2024/12/31/commanders-playoff-scenarios-nfc-wild-card-round/
+
 **Florida's recruiting reversal: Class of 2026 QB Will Griffin enjoying Gators' surge**\
 `Florida's 2025 class is ranked 10th nationally and includes 10 blue-chip prospects from the Sunshine State.`\
 https://nytimes.com/athletic/6027193/2024/12/31/florida-gators-recruiting-qb-will-griffin/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/business/economy/trump-tariffs-china.html
 **Alaska Knows Why Her Drag Show Resonates: ‘It’s About Family’**\
 `The performer discusses her Off Broadway musical about warring queens. “Everyone can connect to being a young person not feeling understood,” she said.`\
 https://nytimes.com/2024/12/31/theater/alaska-drag-show-musical.html
-
-**One Indelible Scene: Yearning and Loss in ‘All We Imagine as Light’**\
-`A mysterious rice cooker and a rainstorm combine to convey what a woman doesn’t speak of.`\
-https://nytimes.com/2024/12/31/movies/all-we-imagine-as-light-payal-kapadia.html
 
