@@ -1,3 +1,11 @@
+**With Jaire Alexander likely out for season, how will the Packers adjust?**\
+`The two-time All-Pro cornerback has been dealing with a knee injury since Week 8.`\
+https://nytimes.com/athletic/6032060/2025/01/01/packers-jaire-alexander-knee-injury/
+
+**New Orleans Attacker Evaded a Security System Under Repair**\
+`Bollards that normally protect pedestrians from vehicles were to be replaced as part of the city’s preparations for the Super Bowl next month. The attacker drove his pickup around a police vehicle parked to block traffic from the street he struck.`\
+https://nytimes.com/2025/01/01/us/new-orleans-attack-security-system-under-repair.html
+
 **Smoke Billows at Trump Hotel After Cybertruck Explosion**\
 `A Tesla Cybertruck exploded and caught fire outside the Trump International Hotel in Las Vegas on Wednesday, killing one person and wounding at least seven.`\
 https://nytimes.com/video/us/100000009904015/trump-hotel-tesla-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6031698/2025/01/01/colts-anthony-richardson-back-in
 **Big Sporting Events Like the Sugar Bowl Are Rarely Postponed**\
 `The game, a playoff matchup between Notre Dame and Georgia, is now scheduled to be played on Thursday night.`\
 https://nytimes.com/2025/01/01/us/sugar-bowl-postponed-new-orleans-attack.html
-
-**Why the Patriots should rest Drake Maye — even though they probably won’t**\
-`The Patriots get the No. 1 pick in the NFL Draft if they lose. So why do they want to play Drake Maye?`\
-https://nytimes.com/athletic/6031758/2025/01/01/patriots-drake-maye-rest-jerod-mayo/
-
-**Thursday Briefing: An Attack in New Orleans**\
-`Plus, fitness goals beyond weight loss.`\
-https://nytimes.com/2025/01/01/briefing/new-orleans-russia-ukraine-pakistan-afghanistan.html
 

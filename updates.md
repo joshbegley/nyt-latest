@@ -1,3 +1,11 @@
+**With Jaire Alexander likely out for season, how will the Packers adjust?**\
+`The two-time All-Pro cornerback has been dealing with a knee injury since Week 8.`\
+https://nytimes.com/athletic/6032060/2025/01/01/packers-jaire-alexander-knee-injury/
+
+**New Orleans Attacker Evaded a Security System Under Repair**\
+`Bollards that normally protect pedestrians from vehicles were to be replaced as part of the city’s preparations for the Super Bowl next month. The attacker drove his pickup around a police vehicle parked to block traffic from the street he struck.`\
+https://nytimes.com/2025/01/01/us/new-orleans-attack-security-system-under-repair.html
+
 **Deadly New Year’s Day Attack in New Orleans**\
 `At least 10 people were killed in the early hours of New Year’s Day when a man plowed a truck into crowds on Bourbon Street.`\
 https://nytimes.com/video/us/100000009903732/new-orleans-truck-attack.html
