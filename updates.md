@@ -1,3 +1,7 @@
+**‘Like Something out of a Horror Movie’: Witnesses Describe French Quarter Carnage**\
+`A couple visiting from Mobile, Ala., saw the attacker veer his pickup onto Bourbon Street and slam into New Year’s revelers, undeterred by a ‘flimsy’ police barrier.`\
+https://nytimes.com/2025/01/01/us/witnesses-french-quarter-attack.html
+
 **‘It was like something out of a horror movie.’**\
 `By Keith Bradsher`\
 https://nytimes.com/2025/01/01/us/it-was-like-something-out-of-a-horror-movie.html
