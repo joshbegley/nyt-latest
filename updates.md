@@ -1,3 +1,11 @@
+**Smoke Billows at Trump Hotel After Cybertruck Explosion**\
+`A Tesla Cybertruck exploded and caught fire outside the Trump International Hotel in Las Vegas on Wednesday, killing one person and wounding at least seven.`\
+https://nytimes.com/video/us/100000009904015/trump-hotel-tesla-fire.html
+
+**Deadly New Year’s Day Attack in New Orleans**\
+`At least 10 people were killed in the early hours of New Year’s Day when a man deliberately plowed a pickup truck into crowds on Bourbon Street.`\
+https://nytimes.com/video/us/100000009903732/new-orleans-truck-attack.html
+
 **Officials Trying to Determine if New Orleans Suspect Had Ties to Terrorist Groups**\
 `U.S. officials have warned that the conflict in Gaza and Lebanon could spill into the United States, most likely in the form of small radicalized groups acting on their own initiative or lone-wolf terrorists.`\
 https://nytimes.com/2025/01/01/us/politics/new-orleans-attack-terrorism.html
