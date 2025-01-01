@@ -1,3 +1,7 @@
+**Michkov or Celebrini for the Calder? Experts weigh in as Flyers best Sharks**\
+`The two forwards vying for the Calder Trophy faced off for the second and final time this season.`\
+https://nytimes.com/athletic/6030945/2025/01/01/calder-michkov-celebrini-flyers-sharks/
+
 **‘It Ends With Us’ Actor and Director and His Publicists Sue The Times for Libel**\
 `Justin Baldoni claims that The Times defamed him and his team in a story about the actress Blake Lively’s allegations that she had been the victim of a smear campaign.`\
 https://nytimes.com/2025/01/01/us/justin-baldoni-blake-lively-it-ends-with-us-new-york-times-lawsuit.html
