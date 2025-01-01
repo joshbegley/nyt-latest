@@ -1,40 +1,40 @@
-**March 13-14: The moon will be totally eclipsed in much of the Western Hemisphere.**\
-`By Michael Roston`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/march-13-14-the-moon-will-be-totally-eclipsed-in-much-of-the-western-hemisphere
+**She’s a Famous Author With a Secret Identity. Now She’s Ready to Emerge.**\
+`In Kate Fagan’s novel, “The Three Lives of Cate Kay,” a best-selling writer decides to reveal the tragedy behind her success.`\
+https://nytimes.com/2025/01/01/books/review/the-three-lives-of-cate-kay-kate-fagan.html
 
-**Late February: NASA may launch the SPHEREx mission to survey the sky in 102 colors.**\
-`By Michael Roston`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/late-february-nasa-may-launch-the-spherex-mission-to-survey-the-sky-in-102-colors
+**Giannis Antetokounmpo’s midrange mastery highlights Bucks trends**\
+`As Giannis and Lillard return, let's take a closer look at the micro and macro trends that have affected the Bucks over the last week.`\
+https://nytimes.com/athletic/6029478/2025/01/01/giannis-antetokounmpo-return-bucks-trends-nba/
 
-**Feb. 28: Seven planets will be visible in the sky at the same time.**\
+**'This is jubilation': Penn State relishes Fiesta Bowl win as Playoff charge continues**\
+`This isn’t just a team that can do one or two things well. There’s real credence to the idea that it has as good a chance as anyone.`\
+https://nytimes.com/athletic/6031194/2025/01/01/penn-state-boise-state-fiesta-bowl-cfp/
+
+**Dec. 12-13: The Geminids meteor shower will reach its peak.**\
 `By Katrina Miller`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/feb-28-seven-planets-will-be-visible-in-the-sky-at-the-same-time
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/dec-12-13-the-geminids-meteor-shower-will-reach-its-peak
 
-**February: A private lander and a NASA orbiter could launch to the moon on the same SpaceX rocket.**\
+**Sept. 22: Autumn is here.**\
 `By Michael Roston`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/february-a-private-lander-and-a-nasa-orbiter-could-launch-to-the-moon-on-the-same-spacex-rocket
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-22-autumn-is-here
 
-**Mid-January: Two privately built moon landers could launch on the same SpaceX rocket.**\
-`By Michael Roston`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/mid-january-two-privately-built-moon-landers-could-launch-on-the-same-spacex-rocket
-
-**Jan. 13-14: A bright Mars will pass behind the moon in night skies.**\
+**Aug. 12-13: The Perseids meteor shower will reach its peak.**\
 `By Katrina Miller`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/jan-13-14-a-bright-mars-will-pass-behind-the-moon-in-night-skies
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/aug-12-13-the-perseids-meteor-shower-will-reach-its-peak
 
-**Jan. 13-14: Comet ATLAS could become visible to the naked eye.**\
+**July 4: The Vera C. Rubin Observatory might capture its first views of the night sky.**\
 `By Katrina Miller`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/jan-13-14-comet-atlas-could-become-visible-to-the-naked-eye
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/july-4-the-vera-c-rubin-observatory-might-capture-its-first-views-of-the-night-sky
 
-**Jan. 4: Earth will be at its closest point to the sun.**\
+**May 3-4: The Eta Aquarids meteor shower will reach its peak.**\
+`By Katrina Miller`\
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/may-3-4-the-eta-aquarids-meteor-shower-will-reach-its-peak
+
+**April 21-22: The Lyrids meteor shower will reach its peak.**\
+`By Katrina Miller`\
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/april-21-22-the-lyrids-meteor-shower-will-reach-its-peak
+
+**Spring: The Axiom-4 mission may carry Indian, Polish and Hungarian astronauts to the International Space Station.**\
 `By Michael Roston`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/jan-4-earth-will-be-at-its-closest-point-to-the-sun
-
-**Boise State earned its Playoff chance, but Fiesta Bowl loss shows flaws in system**\
-`The Broncos deserved their spot in the Playoff, but Penn State running away from Boise State illustrated flaws in the system's format.`\
-https://nytimes.com/athletic/6031177/2025/01/01/boise-state-penn-state-playoff-seeding-fiesta/
-
-**California Laws That Go Into Effect on Jan. 1**\
-`Lawmakers passed hundreds of bills in 2024, addressing issues including shoplifting, marijuana and artificial intelligence. Here are some of the key measures that begin New Year’s Day.`\
-https://nytimes.com/2025/01/01/us/new-california-laws-2025.html
+https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/spring-the-axiom-4-mission-may-carry-indian-polish-and-hungarian-astronauts-to-the-international-space-station
 
