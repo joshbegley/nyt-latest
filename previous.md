@@ -1,3 +1,11 @@
+**Police work to ensure Sugar Bowl safety after man rams truck into New Orleans crowd**\
+`The crash happened around 4:15 a.m. ET about a mile from the Superdome, the site for the Sugar Bowl between Georgia and Notre Dame.`\
+https://nytimes.com/athletic/6031324/2025/01/01/new-orleans-truck-attack-sugar-bowl/
+
+**What’s in Our Queue? ‘Homicide’ and More **\
+`Text by Andrés R. Martínez`\
+https://nytimes.com/card/2025/01/01/arts/editors-recommendations-homocide
+
 **What We Know About the Attack in the French Quarter of New Orleans**\
 `A man drove a pickup truck into crowds celebrating the New Year on Bourbon Street in the early morning, killing at least 10 people and injuring dozens.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-what-we-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6029478/2025/01/01/giannis-antetokounmpo-return-buc
 **'This is jubilation': Penn State relishes Fiesta Bowl win as Playoff charge continues**\
 `This isn’t just a team that can do one or two things well. There’s real credence to the idea that it has as good a chance as anyone.`\
 https://nytimes.com/athletic/6031194/2025/01/01/penn-state-boise-state-fiesta-bowl-cfp/
-
-**Dec. 12-13: The Geminids meteor shower will reach its peak.**\
-`By Katrina Miller`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/dec-12-13-the-geminids-meteor-shower-will-reach-its-peak
-
-**Sept. 22: Autumn is here.**\
-`By Michael Roston`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/sept-22-autumn-is-here
 

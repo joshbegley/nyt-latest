@@ -1,3 +1,11 @@
+**Police work to ensure Sugar Bowl safety after man rams truck into New Orleans crowd**\
+`The crash happened around 4:15 a.m. ET about a mile from the Superdome, the site for the Sugar Bowl between Georgia and Notre Dame.`\
+https://nytimes.com/athletic/6031324/2025/01/01/new-orleans-truck-attack-sugar-bowl/
+
+**What’s in Our Queue? ‘Homicide’ and More **\
+`Text by Andrés R. Martínez`\
+https://nytimes.com/card/2025/01/01/arts/editors-recommendations-homocide
+
 **What We Know About the Attack in the French Quarter of New Orleans**\
 `A man drove a pickup truck into crowds celebrating the New Year on Bourbon Street in the early morning, killing at least 10 people and injuring dozens.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-what-we-know.html
