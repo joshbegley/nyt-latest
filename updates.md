@@ -1,3 +1,7 @@
+**Montenegro Shooting Kills 10, Including 2 Children, Officials Say**\
+`The authorities in the small Balkan country reported after a search that the gunman, whose rampage followed a bar fight, had been found dead.`\
+https://nytimes.com/2025/01/01/world/europe/montenegro-shooting.html
+
 **What to Know About the Islamic State**\
 `The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
 https://nytimes.com/2025/01/01/world/middleeast/isis-islamic-state.html

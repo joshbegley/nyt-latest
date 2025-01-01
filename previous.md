@@ -1,3 +1,7 @@
+**Montenegro Shooting Kills 10, Including 2 Children, Officials Say**\
+`The authorities in the small Balkan country reported after a search that the gunman, whose rampage followed a bar fight, had been found dead.`\
+https://nytimes.com/2025/01/01/world/europe/montenegro-shooting.html
+
 **McVay: Jimmy Garoppolo to start for Rams in Week 18, Stetson Bennett will be backup**\
 `Matthew Stafford will get the Week 18 matchup vs. the Seahawks off and some rest in front of the Rams' playoff game.`\
 https://nytimes.com/athletic/6031869/2025/01/01/rams-matthew-stafford-out-jimmy-garoppolo-starting-seahawks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6031504/2025/01/01/texas-survives-frantic-arizona-s
 **Trump Falsely Suggested New Orleans Suspect Was an Immigrant**\
 `The president-elect said on social media that he was right about fearing criminals on the other side of the border. Officials later identified the suspect as a U.S.-born citizen and Army veteran.`\
 https://nytimes.com/2025/01/01/us/politics/trump-new-orleans.html
-
-**With Jaire Alexander likely out for season, how will the Packers adjust?**\
-`The two-time All-Pro cornerback has been dealing with a knee injury since Week 8.`\
-https://nytimes.com/athletic/6032060/2025/01/01/packers-jaire-alexander-knee-injury/
 
