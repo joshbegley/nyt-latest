@@ -1,3 +1,7 @@
+**Democrats’ Battleground Leader, Exiting Congress, Reflects on What She Learned**\
+`Representative Abigail Spanberger of Virginia, the only Democrat in a leadership position to leave Congress this year, talked about her party, her competitive district, and what the Trump era has in store.`\
+https://nytimes.com/2025/01/01/us/spanberger-congress.html
+
 **Police work to ensure Sugar Bowl safety after man rams truck into New Orleans crowd**\
 `The crash happened around 4:15 a.m. ET about a mile from the Superdome, the site for the Sugar Bowl between Georgia and Notre Dame.`\
 https://nytimes.com/athletic/6031324/2025/01/01/new-orleans-truck-attack-sugar-bowl/
