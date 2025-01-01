@@ -1,3 +1,7 @@
+**Man City Women sign defender Knaak from Rosengard**\
+`Manchester City have completed the signing of defender Rebecca Knaak from FC Rosengard.`\
+https://nytimes.com/athletic/6031175/2025/01/01/rebecca-knaak-manchester-city-transfer/
+
 **Davies, Marsch, World Cup prep: Canada looks for big 2025**\
 `Anticipation is the defining emotion for Canadian men's soccer heading into a new year`\
 https://nytimes.com/athletic/6029371/2025/01/01/alphonso-davies-jesse-marsch-canada-soccer-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/world/middleeast/israel-gaza-strike.html
 **Ivory Coast Says French Forces Will Withdraw**\
 `The troops are expected to leave this month as France, a former colonial power in West Africa, fast loses influence there.`\
 https://nytimes.com/2025/01/01/world/africa/ivory-coast-france-troop-withdrawal.html
-
-**Murders Plunge**\
-`We have good news to start your 2025.`\
-https://nytimes.com/2025/01/01/briefing/murders-plunge.html
 
