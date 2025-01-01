@@ -1,3 +1,7 @@
+**USA beats Canada at World Juniors on New Year's Eve**\
+`Hutson and Eiserman each scored a goal and an assist in a 4-1 United States victory over Canada on Tuesday night.`\
+https://nytimes.com/athletic/6027632/2024/12/31/usa-canada-world-juniors-2025-nye/
+
 **Blues improve to 3-0 in Winter Classics, making memories for themselves and fans**\
 `The Blues won their third Winter Classic 6-2 over the Blackhawks, following victories over Chicago in 2017 and Minnesota in 2022.`\
 https://nytimes.com/athletic/6030412/2024/12/31/blues-winter-classic-memories-fight/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030612/2024/12/31/south-carolina-shane-beamer-illi
 **‘He Saved Our Lives’: Former Hostages Recall Carter’s Quest to Free Them**\
 `The Iran hostage crisis became a symbol of a failed presidency, but for some of those who lived it, Jimmy Carter was the one who brought them home at the expense of his political career.`\
 https://nytimes.com/2024/12/31/us/politics/jimmy-carter-hostages.html
-
-**Dartmouth College Basketball Players Halt Effort to Unionize**\
-`The decision to withdraw the petition appeared to be an effort to preserve a favorable federal ruling that could have been in jeopardy under President-elect Donald J. Trump.`\
-https://nytimes.com/2024/12/31/us/dartmouth-basketball-unionize.html
 

@@ -1,3 +1,7 @@
+**USA beats Canada at World Juniors on New Year's Eve**\
+`Hutson and Eiserman each scored a goal and an assist in a 4-1 United States victory over Canada on Tuesday night.`\
+https://nytimes.com/athletic/6027632/2024/12/31/usa-canada-world-juniors-2025-nye/
+
 **Blues improve to 3-0 in Winter Classics, making memories for themselves and fans**\
 `The Blues won their third Winter Classic 6-2 over the Blackhawks, following victories over Chicago in 2017 and Minnesota in 2022.`\
 https://nytimes.com/athletic/6030412/2024/12/31/blues-winter-classic-memories-fight/
