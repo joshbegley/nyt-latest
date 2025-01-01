@@ -1,6 +1,6 @@
-**‘It was like something out of a horror movie.’**\
-`By Keith Bradsher`\
-https://nytimes.com/2025/01/01/us/it-was-like-something-out-of-a-horror-movie.html
+**‘Like Something out of a Horror Movie’: Witnesses Describe French Quarter Carnage**\
+`A couple visiting from Mobile, Ala., saw the attacker veer his pickup onto Bourbon Street and slam into New Year’s revelers, undeterred by a ‘flimsy’ police barrier.`\
+https://nytimes.com/2025/01/01/us/witnesses-french-quarter-attack.html
 
 **Barcelona remain hopeful on Olmo registration despite missing La Liga deadline**\
 `Barcelona have not given up hope that Dani Olmo will be able to play for them in the second half of the season despite missing the January 1 deadline to register him with La Liga.`\
