@@ -1,3 +1,7 @@
+**Boise State earned its Playoff chance, but Fiesta Bowl loss shows flaws in system**\
+`The Broncos deserved their spot in the Playoff, but Penn State running away from Boise State illustrated flaws in the system's format.`\
+https://nytimes.com/athletic/6031177/2025/01/01/boise-state-penn-state-playoff-seeding-fiesta/
+
 **California Laws That Go Into Effect on Jan. 1**\
 `Lawmakers passed hundreds of bills in 2024, addressing issues including shoplifting, marijuana and artificial intelligence. Here are some of the key measures that begin New Year’s Day.`\
 https://nytimes.com/2025/01/01/us/new-california-laws-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/science/space-astronomy-nasa.html
 **Man City Women sign defender Knaak from Rosengard**\
 `Manchester City have completed the signing of defender Rebecca Knaak from FC Rosengard.`\
 https://nytimes.com/athletic/6031175/2025/01/01/rebecca-knaak-manchester-city-transfer/
-
-**Davies, Marsch, World Cup prep: Canada looks for big 2025**\
-`Anticipation is the defining emotion for Canadian men's soccer heading into a new year`\
-https://nytimes.com/athletic/6029371/2025/01/01/alphonso-davies-jesse-marsch-canada-soccer-world-cup/
 
