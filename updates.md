@@ -1,3 +1,7 @@
+**Optimism abounds in Blue Jackets' come-from-behind shootout win over Carolina**\
+`With the win, Columbus is just two points behind Ottawa, which currently holds the final wild-card playoff spot in the Eastern Conference.`\
+https://nytimes.com/athletic/6030951/2025/01/01/blue-jackets-win-shootout-over-carolina/
+
 **The Panama Canal Has a Big Problem, but It’s Not China or Trump**\
 `Climate change is causing drought conditions that are making it harder to operate the Panama Canal and more expensive to pass through.`\
 https://nytimes.com/2025/01/01/opinion/panama-canal-trump-china-drought.html
