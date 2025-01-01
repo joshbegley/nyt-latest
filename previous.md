@@ -1,3 +1,7 @@
+**Stream These 11 Titles Before They Leave Netflix in January**\
+`A bunch of great titles depart this month for U.S. subscribers, including a few beloved TV series and several acclaimed comedy and horror movies.`\
+https://nytimes.com/2025/01/01/arts/television/netflix-leaving-movies-tv-january.html
+
 **Texas survives Arizona State comeback in double-overtime Peach Bowl thriller**\
 `The Longhorns will return to their home state to play in the Cotton Bowl in Arlington, Texas, on Jan. 10.`\
 https://nytimes.com/athletic/6031504/2025/01/01/texas-survives-frantic-arizona-state-comeback-in-double-overtime-peach-bowl-thriller/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029256/2025/01/01/wrexham-barnsley-defensive-weakn
 **Outspoken N.Y.P.D. Chief Is Tapped for Top Uniformed Position**\
 `Chief John Chell, a 30-year veteran of the Police Department, has publicly sparred with members of the media and liberal politicians.`\
 https://nytimes.com/2025/01/01/nyregion/outspoken-nypd-chief-is-tapped-for-top-uniformed-position.html
-
-**What We Know About the Suspected Bombs Found in the New Orleans Attack**\
-`Possible homemade bombs were found in and near the pickup that smashed into crowds, and possibly elsewhere in the French Quarter. That has raised investigators’ suspicions that the attacker may have had accomplices.`\
-https://nytimes.com/2025/01/01/us/new-orleans-attack-suspected-bombs.html
 

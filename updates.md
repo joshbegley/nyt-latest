@@ -1,3 +1,7 @@
+**Stream These 11 Titles Before They Leave Netflix in January**\
+`A bunch of great titles depart this month for U.S. subscribers, including a few beloved TV series and several acclaimed comedy and horror movies.`\
+https://nytimes.com/2025/01/01/arts/television/netflix-leaving-movies-tv-january.html
+
 **Texas survives Arizona State comeback in double-overtime Peach Bowl thriller**\
 `The Longhorns will return to their home state to play in the Cotton Bowl in Arlington, Texas, on Jan. 10.`\
 https://nytimes.com/athletic/6031504/2025/01/01/texas-survives-frantic-arizona-state-comeback-in-double-overtime-peach-bowl-thriller/
