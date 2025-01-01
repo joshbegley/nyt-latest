@@ -1,3 +1,7 @@
+**Electric Vehicle Catches Fire Outside the Trump Hotel in Las Vegas**\
+`Videos posted to social media appeared to show a vehicle engulfed in flames outside a lobby’s entrance. It was not immediately clear if anyone was injured.`\
+https://nytimes.com/2025/01/01/us/car-fire-trump-hotel-las-vegas.html
+
 **Auston Matthews unsure if he'll fully get past injury this season: 'I hope so'**\
 `Still without a timeline for return, Matthews spoke with media for the first time since he last played on Dec. 20.`\
 https://nytimes.com/athletic/6031573/2025/01/01/auston-matthews-maple-leafs-injury-update/
