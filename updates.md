@@ -1,3 +1,7 @@
+**China’s Leader Nods to Economic Challenges**\
+`In a New Year’s address, Xi Jinping made a rare acknowledgment of the flagging economy while reiterating the government’s growth targets.`\
+https://nytimes.com/2024/12/31/business/xi-jinping-china-economy.html
+
 **A Certain Tankful**\
 `Seth Bisen-Hersh and Jeff Chen take it from the top.`\
 https://nytimes.com/2024/12/31/crosswords/daily-puzzle-2025-01-01.html
