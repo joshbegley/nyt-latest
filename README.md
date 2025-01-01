@@ -1,3 +1,7 @@
+**Backup QBs to start for Dolphins, Chiefs in key games for AFC wild card**\
+`The Dolphins need a win and the Broncos to lose to Wentz and the Chiefs to earn the AFC's final wild-card playoff spot.`\
+https://nytimes.com/athletic/6031714/2025/01/01/dolphins-snoop-huntley-chiefs-carson-wentz-broncos/
+
 **Bryce James, younger son of LeBron, commits to Arizona**\
 `Bryce James would be the second James kid to play college basketball in recent years, following Bronny James' one year at USC.`\
 https://nytimes.com/athletic/6031659/2025/01/01/bryce-james-lebron-arizona-college-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6031553/2025/01/01/eagles-saquon-barkley-rest-rushi
 **Anderson Cooper and Andy Cohen Dish About Their New Year’s Eve Show**\
 `The morning after the two were live on CNN, they talked about tequila shots, Diplo and Cohen’s dancing skills.`\
 https://nytimes.com/2025/01/01/arts/television/anderson-cooper-andy-cohen-nye-show.html
-
-**Wild's Jared Spurgeon to get MRI after slew foot — Predators' Zach L'Heureux gets phone hearing**\
-`Even though he is not deemed a "repeat offender" by the NHL, at only 21 years old, L'Heureux has been suspended 11 times at lower levels.`\
-https://nytimes.com/athletic/6031502/2025/01/01/wilds-jared-spurgeon-slew-foot-injury/
 
