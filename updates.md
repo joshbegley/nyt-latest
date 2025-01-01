@@ -1,3 +1,7 @@
+**Optimism abounds in Blue Jackets' come-from-behind shootout win over Hurricanes**\
+`With the win, Columbus is just 2 points behind Ottawa, which holds the final wild-card playoff spot in the Eastern Conference.`\
+https://nytimes.com/athletic/6030951/2025/01/01/blue-jackets-win-shootout-over-carolina/
+
 **Kris Knoblauch's line juggling worked well against Utah but is likely a short-lived trial**\
 `It turns out a little tinkering — OK, a lot of tinkering — by Knoblauch was just what the doctor ordered Tuesday. `\
 https://nytimes.com/athletic/6031026/2025/01/01/oilers-utah-kris-knoblauch-line-juggling/
