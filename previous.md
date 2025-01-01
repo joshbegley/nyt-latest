@@ -1,3 +1,7 @@
+**‘He Saved Our Lives.’ Former Hostages Recall Carter’s Quest to Free Them**\
+`The Iran hostage crisis became a symbol of a failed presidency, but for some of those who lived it, Jimmy Carter was the one who brought them home at the expense of his own political career.`\
+https://nytimes.com/2024/12/31/us/politics/jimmy-carter-hostages.html
+
 **Dartmouth College Basketball Players Halt Effort to Unionize**\
 `The decision to withdraw the petition appeared to be an effort to preserve a favorable federal ruling that could have been in jeopardy under President-elect Donald J. Trump.`\
 https://nytimes.com/2024/12/31/us/dartmouth-basketball-unionize.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/nyregion/nyc-subway-tracks-man-shoved.html
 **Vannini: Indiana, SMU deserve an apology after yet another Alabama loss**\
 `Pundits like Kirk Herbstreit blasted SMU and especially Indiana for blowout Playoff losses. But Alabama proved it wasn't worth arguing for.`\
 https://nytimes.com/athletic/6030482/2024/12/31/alabama-michigan-playoff-indiana-smu-herbstreit/
-
-**Woody Fraser, Pioneering Producer of Daytime Talk Shows, Dies at 90**\
-`He spiced up the format in creating “The Mike Douglas Show” and brought “Good Morning America” to life. But his career ended under a cloud of sexual harassment claims.`\
-https://nytimes.com/2024/12/31/arts/television/woody-fraser-dead.html
 
