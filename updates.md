@@ -1,3 +1,7 @@
+**Cybertruck Explodes Outside Trump Hotel in Las Vegas**\
+`A Tesla Cybertruck exploded and caught fire outside the Trump International Hotel in Las Vegas on Wednesday, killing one person and wounding at least seven.`\
+https://nytimes.com/video/us/100000009904015/trump-hotel-tesla-fire.html
+
 **With Jaire Alexander likely out for season, how will the Packers adjust?**\
 `The two-time All-Pro cornerback has been dealing with a knee injury since Week 8.`\
 https://nytimes.com/athletic/6032060/2025/01/01/packers-jaire-alexander-knee-injury/
