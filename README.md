@@ -1,5 +1,5 @@
 **Ohio State jumps to 34-8 halftime lead over No. 1 Oregon in Rose Bowl**\
-`Ohio State stormed out to a 34-point lead and lead undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
+`Ohio State stormed out to a 34-point lead and led undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
 https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
 
 **Palestinian Authority Bans Al-Jazeera, in Latest Blow to Channel**\
