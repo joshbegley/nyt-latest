@@ -1,3 +1,7 @@
+**Sirianni 'probably' resting Barkley despite being within shot of rushing record**\
+`Barkley will likely end his season 101 yards shy of breaking Eric Dickerson's single-season rushing record`\
+https://nytimes.com/athletic/6031553/2025/01/01/eagles-saquon-barkley-rest-rushing-record/
+
 **Anderson Cooper and Andy Cohen Dish About Their New Year’s Eve Show**\
 `The morning after the two were live on CNN, they talked about tequila shots, Diplo and Cohen’s dancing skills.`\
 https://nytimes.com/2025/01/01/arts/television/anderson-cooper-andy-cohen-nye-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/world/vehicle-ramming-attacks.html
 **Dick Capri, Catskills Comic Who Took His Shtick to Broadway, Dies at 93**\
 `He was a regular at the mountain resorts where many comedians honed their acts, then had a star turn in the long-running revue “Catskills on Broadway.”`\
 https://nytimes.com/2025/01/01/theater/dick-capri-dead.html
-
-**Review: The Met’s New ‘Aida’ Stages Spectacle Without Horses**\
-`Michael Mayer directs Verdi’s classic as an archaeologist’s discovery, featuring the shining soprano Angel Blue.`\
-https://nytimes.com/2025/01/01/arts/music/review-met-opera-verdi-aida.html
 
