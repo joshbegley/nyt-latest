@@ -1,3 +1,15 @@
+**The Acid Comedy of Thomas Schütte, the Man in the Mud**\
+`In a MoMA retrospective filled with humorous angst, the German sculptor offers a prime 2025 resolution: Don’t run from failure.`\
+https://nytimes.com/2025/01/01/arts/design/thomas-schutte-art-humor-moma-sculpture.html
+
+**How Do I Discourage My Remote Colleagues from Taking Secret Second Jobs?**\
+`The magazine’s Ethicist columnist on employees who pull double duty at different companies.`\
+https://nytimes.com/2025/01/01/magazine/remote-work-second-jobs-ethics.html
+
+**Victim in Subway Shoving Suffered a Broken Skull and Other Injuries**\
+`The suspect, Kamel Hawkins, has been charged with attempted murder and was arraigned on Wednesday morning.`\
+https://nytimes.com/2025/01/01/nyregion/subway-shoving-victim-injuries.html
+
 **Partisan Judges and Public Disrespect**\
 `Readers discuss the plummeting respect for the judicial system. Also: Syria sanctions; religion and Democrats; medical uses of psychedelics.`\
 https://nytimes.com/2025/01/01/opinion/letters/partisan-judges-public-disrespect.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/01/us/new-orleans-attack-what-we-know.html
 **Rooney's Plymouth exit: Sinking morale, off-field criticism - and regret**\
 `Plymouth's executives wanted to back ex-England striker but his position became untenable`\
 https://nytimes.com/athletic/6030096/2025/01/01/wayne-rooney-plymouth-sack-inside-story/
-
-**USMNT defender Sands joins St Pauli on loan**\
-`German Bundesliga side St Pauli have signed defender James Sands on loan from New York City FC until the end of the 2024-25 season.`\
-https://nytimes.com/athletic/6031284/2025/01/01/usmnt-james-sands-st-pauli/
-
-**Embracing the Joys of Solitude in the New Year**\
-`Being alone doesn’t mean you’re lonely.`\
-https://nytimes.com/2025/01/01/opinion/joy-solitude.html
-
-**My Two Best Friends Started Dating Each Other. I’m Livid!**\
-`Feeling slighted after a former flame paired up with an old friend she met through him, a middle-aged reader cut off contact with both. So why does he feel so bad?`\
-https://nytimes.com/2025/01/01/style/ex-new-relationship-with-friend.html
 
