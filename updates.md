@@ -1,3 +1,7 @@
+**Why the F.B.I. Is Investigating the Bourbon Street Attack as Terrorism**\
+`An Islamic State terror group flag was found in the suspect’s vehicle, investigators said, as well as a bomb near the vehicle used in the attack.`\
+https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-terrorism-fbi.html
+
 **Suspect in New Orleans Attack Is Identified as a Texan and Had an ISIS Flag With Him**\
 `In a YouTube video from 2020, the man identified as the suspect said he had been born and raised in Beaumont, Texas, and had served in the U.S. military.`\
 https://nytimes.com/2025/01/01/us/suspect-new-orleans-texan-isis-flag.html

@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6029414/2025/01/01/barcelona-dani-olmo-registration
 https://nytimes.com/athletic/6030624/2025/01/01/bears-mailbag-questions-43/
 
 **Why the F.B.I. Is Investigating the Bourbon Street Attack as Terrorism**\
-`The F.B.I. defines international terrorism as violence inspired by foreign terrorist groups. Domestic terrorism is defined as violence meant to further ideological goals or intimidate civilians.`\
+`An Islamic State terror group flag was found in the suspect’s vehicle, investigators said, as well as a bomb near the vehicle used in the attack.`\
 https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-terrorism-fbi.html
 
 **Vehicle Ramming Attacks: Using Cars and Trucks as Weapons Has Become Common**\
