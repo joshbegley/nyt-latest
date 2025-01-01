@@ -1,3 +1,7 @@
+**The French Quarter Is New Orleans’s Most Famous Tourist Attraction**\
+`The area is the historic colonial heart of the city and the center of its tourism industry. Bourbon Street, where the attack occurred, is the Quarter’s most recognizable address and a focus for revelers.`\
+https://nytimes.com/2025/01/01/us/french-quarter-tourist-attraction.html
+
 **Vehicle Ramming Attacks: Using Cars and Trucks as Weapons Has Become Common**\
 `A New Year’s Day attack in New Orleans killed at least 10 people.`\
 https://nytimes.com/2025/01/01/world/vehicle-ramming-attacks.html
