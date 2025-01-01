@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-scor
 https://nytimes.com/2025/01/01/world/middleeast/palestinian-authority-al-jazeera.html
 
 **American Teenager Fighting for His Life After Ambush in Mexico Kills 3**\
-`Jason Peña, 14, was shot in the head on a highway in the city of Durango, a family spokeswoman said. His father and uncle, both U.S. citizens, and a Mexican relative were also killed.`\
+`Jason Peña, now 14, was shot in the head on a highway in the city of Durango, a family spokeswoman said. His father and uncle, both U.S. citizens, and a Mexican relative were also killed.`\
 https://nytimes.com/2025/01/01/world/americas/americans-killed-durango-mexico.html
 
 **Montenegro Shooting Kills 10, Including 2 Children, Officials Say**\

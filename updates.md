@@ -1,3 +1,7 @@
+**American Teenager Fighting for His Life After Ambush in Mexico Kills 3**\
+`Jason Peña, now 14, was shot in the head on a highway in the city of Durango, a family spokeswoman said. His father and uncle, both U.S. citizens, and a Mexican relative were also killed.`\
+https://nytimes.com/2025/01/01/world/americas/americans-killed-durango-mexico.html
+
 **Ohio State jumps to 34-8 halftime lead over No. 1 Oregon in Rose Bowl**\
 `Ohio State stormed out to a 34-point lead and led undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
 https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
