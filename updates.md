@@ -1,3 +1,11 @@
+**Chelsea's 2024 - Cole Palmer, ownership tensions, Maresca's impact... and Cole Palmer**\
+`Chelsea enjoyed a remarkable turnaround in 2024 - these are the highs and the lows of a remarkable 12 months`\
+https://nytimes.com/athletic/6016365/2025/01/01/chelsea-2024-review/
+
+**Yohe's 10 observations: Erik Karlsson penalty leads to Detroit game winner**\
+`Drew O'Connor scored both Penguins goals to end his 32-game scoreless streak in a 4-2 loss to Detroit on Tuesday.`\
+https://nytimes.com/athletic/6028947/2025/01/01/penguins-karlsson-penalty-oconnor-red-wings/
+
 **Why the injury-plagued Canucks looked limited in New Year's Eve loss: 3 takeaways**\
 `The defeat in Calgary dropped the Canucks below the Western Conference playoff bar for the time being.`\
 https://nytimes.com/athletic/6030880/2025/01/01/canucks-flames-score-takeaway-new-years/
