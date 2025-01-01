@@ -1,3 +1,7 @@
+**Vehicle Ramming Attacks: Using Cars and Trucks as Weapons Has Become Common**\
+`A New Year’s Day attack in New Orleans killed at least 10 people.`\
+https://nytimes.com/2025/01/01/world/vehicle-ramming-attacks.html
+
 **Dick Capri, Catskills Comic Who Took His Shtick to Broadway, Dies at 93**\
 `He was a regular at the mountain resorts where many comedians honed their acts, then had a star turn in the long-running revue “Catskills on Broadway.”`\
 https://nytimes.com/2025/01/01/theater/dick-capri-dead.html

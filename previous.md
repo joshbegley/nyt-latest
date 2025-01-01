@@ -1,3 +1,7 @@
+**Vehicle Ramming Attacks: Using Cars and Trucks as Weapons Has Become Common**\
+`A New Year’s Day attack in New Orleans killed at least 10 people.`\
+https://nytimes.com/2025/01/01/world/vehicle-ramming-attacks.html
+
 **Dick Capri, Catskills Comic Who Took His Shtick to Broadway, Dies at 93**\
 `He was a regular at the mountain resorts where many comedians honed their acts, then had a star turn in the long-running revue “Catskills on Broadway.”`\
 https://nytimes.com/2025/01/01/theater/dick-capri-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/magazine/remote-work-second-jobs-ethics.html
 **Victim in Subway Shoving Suffered a Broken Skull and Other Injuries**\
 `The suspect, Kamel Hawkins, has been charged with attempted murder and was arraigned on Wednesday morning.`\
 https://nytimes.com/2025/01/01/nyregion/subway-shoving-victim-injuries.html
-
-**Partisan Judges and Public Disrespect**\
-`Readers discuss the plummeting respect for the judicial system. Also: Syria sanctions; religion and Democrats; medical uses of psychedelics.`\
-https://nytimes.com/2025/01/01/opinion/letters/partisan-judges-public-disrespect.html
 
