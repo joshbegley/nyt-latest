@@ -1,3 +1,7 @@
+**Deadly New Year’s Day Attack in New Orleans**\
+`At least 15 people were killed in the early hours of New Year’s Day when a man plowed a truck into crowds on Bourbon Street.`\
+https://nytimes.com/video/us/100000009903732/new-orleans-truck-attack.html
+
 **What to Know About the Islamic State**\
 `The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
 https://nytimes.com/2025/01/01/world/what-to-know-about-the-islamic-state.html
