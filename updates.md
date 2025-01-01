@@ -1,3 +1,7 @@
+**Beamer never saw anything like Bielema's Citrus Bowl taunt 'in all my years of football'**\
+`Emotions flared at Tuesday's bowl game as staff held back the South Carolina and Illinois coach on the field.`\
+https://nytimes.com/athletic/6030612/2024/12/31/south-carolina-shane-beamer-illinois-bret-bielema-cheez-it-citrus-bowl/
+
 **‘He Saved Our Lives.’ Former Hostages Recall Carter’s Quest to Free Them**\
 `The Iran hostage crisis became a symbol of a failed presidency, but for some of those who lived it, Jimmy Carter was the one who brought them home at the expense of his own political career.`\
 https://nytimes.com/2024/12/31/us/politics/jimmy-carter-hostages.html
