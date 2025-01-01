@@ -1,3 +1,15 @@
+**Ohio State jumps to 34-8 halftime lead over No. 1 Oregon in Rose Bowl**\
+`Ohio State stormed out to a 34-point lead and lead undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
+https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
+
+**Palestinian Authority Bans Al-Jazeera, in Latest Blow to Channel**\
+`The authority’s official news media accused the Qatari-backed broadcaster of “inciting sedition” and “interfering in internal Palestinian affairs,” though it did not provide detailed examples of law breaking.`\
+https://nytimes.com/2025/01/01/world/middleeast/palestinian-authority-al-jazeera.html
+
+**American Teenager Fighting for His Life After Ambush in Mexico Kills 3**\
+`Jason Peña, 14, was shot in the head on a highway in the city of Durango, a family spokeswoman said. His father and uncle, both U.S. citizens, and a Mexican relative were also killed.`\
+https://nytimes.com/2025/01/01/world/americas/americans-killed-durango-mexico.html
+
 **Montenegro Shooting Kills 10, Including 2 Children, Officials Say**\
 `The authorities in the small Balkan country reported after a search that the gunman, whose rampage followed a bar fight, had been found dead.`\
 https://nytimes.com/2025/01/01/world/europe/montenegro-shooting.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/01/01/world/middleeast/isis-islamic-state.html
 **The attack was the deadliest in the U.S. in more than a year.**\
 `Less than a month ago, New York State authorities charged Luigi Mangione with an act of terrorism in the killing of a health care executive in a shooting in Midtown Manhattan.`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/terror-attacks
-
-**Stream These 11 Titles Before They Leave Netflix in January**\
-`A bunch of great titles depart this month for U.S. subscribers, including a few beloved TV series and several acclaimed comedy and horror movies.`\
-https://nytimes.com/2025/01/01/arts/television/netflix-leaving-movies-tv-january.html
-
-**Texas survives Arizona State comeback in double-overtime Peach Bowl thriller**\
-`The Longhorns will return to their home state to play in the Cotton Bowl in Arlington, Texas, on Jan. 10.`\
-https://nytimes.com/athletic/6031504/2025/01/01/texas-survives-frantic-arizona-state-comeback-in-double-overtime-peach-bowl-thriller/
-
-**Trump Falsely Suggested New Orleans Suspect Was an Immigrant**\
-`The president-elect said on social media that he was right about fearing criminals on the other side of the border. Officials later identified the suspect as a U.S.-born citizen and Army veteran.`\
-https://nytimes.com/2025/01/01/us/politics/trump-new-orleans.html
 
