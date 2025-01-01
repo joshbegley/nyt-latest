@@ -1,3 +1,11 @@
+**Texas survives Arizona State comeback in double-overtime Peach Bowl thriller**\
+`The Longhorns will return to their home state to play in the Cotton Bowl in Arlington, Texas, on Jan. 10.`\
+https://nytimes.com/athletic/6031504/2025/01/01/texas-survives-frantic-arizona-state-comeback-in-double-overtime-peach-bowl-thriller/
+
+**Trump Falsely Suggested New Orleans Suspect Was an Immigrant**\
+`The president-elect said on social media that he was right about fearing criminals on the other side of the border. Officials later identified the suspect as a U.S.-born citizen and Army veteran.`\
+https://nytimes.com/2025/01/01/us/politics/trump-new-orleans.html
+
 **With Jaire Alexander likely out for season, how will the Packers adjust?**\
 `The two-time All-Pro cornerback has been dealing with a knee injury since Week 8.`\
 https://nytimes.com/athletic/6032060/2025/01/01/packers-jaire-alexander-knee-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/01/nyregion/outspoken-nypd-chief-is-tapped-for-top-u
 **What We Know About the Suspected Bombs Found in the New Orleans Attack**\
 `Possible homemade bombs were found in and near the pickup that smashed into crowds, and possibly elsewhere in the French Quarter. That has raised investigators’ suspicions that the attacker may have had accomplices.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-suspected-bombs.html
-
-**Anthony Richardson details back injury struggles: 'I couldn't even stand up'**\
-`Richardson said that the back injury "might be chronic," but added there are ways to prevent the injury going forward. `\
-https://nytimes.com/athletic/6031698/2025/01/01/colts-anthony-richardson-back-injury-chronic/
-
-**Big Sporting Events Like the Sugar Bowl Are Rarely Postponed**\
-`The game, a playoff matchup between Notre Dame and Georgia, is now scheduled to be played on Thursday night.`\
-https://nytimes.com/2025/01/01/us/sugar-bowl-postponed-new-orleans-attack.html
 

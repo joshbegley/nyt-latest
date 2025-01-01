@@ -1,3 +1,11 @@
+**Texas survives Arizona State comeback in double-overtime Peach Bowl thriller**\
+`The Longhorns will return to their home state to play in the Cotton Bowl in Arlington, Texas, on Jan. 10.`\
+https://nytimes.com/athletic/6031504/2025/01/01/texas-survives-frantic-arizona-state-comeback-in-double-overtime-peach-bowl-thriller/
+
+**Trump Falsely Suggested New Orleans Suspect Was an Immigrant**\
+`The president-elect said on social media that he was right about fearing criminals on the other side of the border. Officials later identified the suspect as a U.S.-born citizen and Army veteran.`\
+https://nytimes.com/2025/01/01/us/politics/trump-new-orleans.html
+
 **Cybertruck Explodes Outside Trump Hotel in Las Vegas**\
 `A Tesla Cybertruck exploded and caught fire outside the Trump International Hotel in Las Vegas on Wednesday, killing one person and wounding at least seven.`\
 https://nytimes.com/video/us/100000009904015/trump-hotel-tesla-fire.html
