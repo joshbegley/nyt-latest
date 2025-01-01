@@ -1,3 +1,7 @@
+**Auston Matthews unsure if he'll fully get past injury this season: 'I hope so'**\
+`Still without a timeline for return, Matthews spoke with media for the first time since he last played on Dec. 20.`\
+https://nytimes.com/athletic/6031573/2025/01/01/auston-matthews-maple-leafs-injury-update/
+
 **Suspect in New Orleans Attack Is Identified as a Texan and Had an ISIS Flag With Him**\
 `In a YouTube video from 2020, the man identified as the suspect said he had been born and raised in Beaumont, Texas, and had served in the U.S. military.`\
 https://nytimes.com/2025/01/01/us/suspect-new-orleans-texan-isis-flag.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030624/2025/01/01/bears-mailbag-questions-43/
 **Why the F.B.I. Is Investigating the Bourbon Street Attack as Terrorism**\
 `An Islamic State terror group flag was found in the suspect’s vehicle, investigators said, as well as a bomb near the vehicle used in the attack.`\
 https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-terrorism-fbi.html
-
-**Vehicle Ramming Attacks: Using Cars and Trucks as Weapons Has Become Common**\
-`A New Year’s Day attack in New Orleans killed at least 10 people.`\
-https://nytimes.com/2025/01/01/world/americas/vehicle-ramming-attacks.html
 
