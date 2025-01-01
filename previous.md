@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6030945/2025/01/01/calder-michkov-celebrini-flyers-sharks/
 
 **‘It Ends With Us’ Actor and Director and His Publicists Sue The Times for Libel**\
-`Justin Baldoni claims that The Times defamed him and his team in a story about the actress Blake Lively’s allegations that she had been the victim of a smear campaign.`\
+`Justin Baldoni claims that The Times defamed him and his team in an article about the actress Blake Lively’s allegations that she had been the victim of a smear campaign.`\
 https://nytimes.com/2025/01/01/us/justin-baldoni-blake-lively-it-ends-with-us-new-york-times-lawsuit.html
 
 **Leeds United's 2024: Play-off pain (again), Tanaka's emergence, Red Bull and ketchup**\
