@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6029371/2025/01/01/alphonso-davies-jesse-marsch-can
 https://nytimes.com/2025/01/01/world/europe/ukraine-russia-war-zelensky.html
 
 **Live Updates: At Least 10 Killed as Vehicle Drives Into New Orleans Crowd**\
-`At least 30 more people were injured when a vehicle drove into a large crowd on Bourbon Street overnight, the city said.`\
+`At least 30 more people were injured when a vehicle drove into a large crowd on Bourbon Street in the early hours of New Year’s Day, the city said.`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash
 
 **Lowetide: Why Adam Henrique's struggles a troubling development for the Oilers**\

@@ -1,3 +1,7 @@
+**Man City Women sign defender Knaak from Rosengard**\
+`Manchester City have completed the signing of defender Rebecca Knaak from FC Rosengard.`\
+https://nytimes.com/athletic/6031175/2025/01/01/rebecca-knaak-manchester-city-transfer/
+
 **Davies, Marsch, World Cup prep: Canada looks for big 2025**\
 `Anticipation is the defining emotion for Canadian men's soccer heading into a new year`\
 https://nytimes.com/athletic/6029371/2025/01/01/alphonso-davies-jesse-marsch-canada-soccer-world-cup/
