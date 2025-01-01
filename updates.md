@@ -1,3 +1,11 @@
+**What to Know About the Islamic State**\
+`The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
+https://nytimes.com/2025/01/01/world/what-to-know-about-the-islamic-state.html
+
+**The attack was the deadliest in the U.S. in more than a year.**\
+`Less than a month ago, New York State authorities charged Luigi Mangione with an act of terrorism in the killing of a health care executive in a shooting in Midtown Manhattan.`\
+https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/terror-attacks
+
 **Stream These 11 Titles Before They Leave Netflix in January**\
 `A bunch of great titles depart this month for U.S. subscribers, including a few beloved TV series and several acclaimed comedy and horror movies.`\
 https://nytimes.com/2025/01/01/arts/television/netflix-leaving-movies-tv-january.html
