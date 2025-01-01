@@ -1,3 +1,31 @@
+**Kenny Dillingham, Arizona State agree to 5-year extension**\
+`In his second season, Dillingham led Arizona State to a Big 12 championship and into the College Football Playoff.`\
+https://nytimes.com/athletic/6030937/2025/01/01/kenny-dillingham-ariona-state-football-extension/
+
+**Times Square Revelers Ring in a Soggy New Year After Thunderstorm**\
+`People lined up in ponchos to see the New Year’s Eve ball-drop in New York.`\
+https://nytimes.com/2025/01/01/nyregion/new-years-eve-rain-nyc.html
+
+**Inside Real Madrid's open training: Children crying over Bellingham, Rudiger bearhugs and Alaba is back**\
+`Ceballos scored three goals in the space of a minute and Guler sparkled. Here's what we learned from watching Madrid's open training session`\
+https://nytimes.com/athletic/6029486/2025/01/01/real-madrid-open-training-bellingham-child-alaba-return/
+
+**Brighton's 2024: Beating Man City, a nightmare in Rome and the great Spurs comeback**\
+`Europe. A new manager. And a lot of new talent. This is what's happened to Brighton over the past 12 months`\
+https://nytimes.com/athletic/5966118/2025/01/01/brighton-review-2024/
+
+**Wolves' 2024: O'Neil's exit, Cunha's class (and meltdown) and FA Cup collapse**\
+`Vitor Pereira's arrival has brought some much needed hope back to Molineux - something sorely missing for most of 2024`\
+https://nytimes.com/athletic/5987847/2025/01/01/wolves-2024-oneils-exit-cunhas-class-and-meltdown-and-fa-cup-collapse/
+
+**Manchester City's 2024: A fourth consecutive title, losing Rodri, and the low ebb of Guardiola era**\
+`A year of unprecedented highs followed by farcical lows`\
+https://nytimes.com/athletic/6000680/2025/01/01/manchester-city-2024-review/
+
+**Manchester United's 2024: FA Cup and derby winners, farewell Ten Hag, and the start of the Amorim era**\
+`Some good results and a seemingly positive change in the head coach role, but the year was a journey rather than a destination...`\
+https://nytimes.com/athletic/5940297/2025/01/01/manchester-united-2024-review/
+
 **Chelsea's 2024 - Cole Palmer, ownership tensions, Maresca's impact... and Cole Palmer**\
 `Chelsea enjoyed a remarkable turnaround in 2024 - these are the highs and the lows of a remarkable 12 months`\
 https://nytimes.com/athletic/6016365/2025/01/01/chelsea-2024-review/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6030880/2025/01/01/canucks-flames-score-takeaway-ne
 **Slot has brought control and consistency to Liverpool - the proven recipe for success**\
 `Liverpool’s boss understands that teams win leagues when their ‘average’ performance is good enough to consistently pick up points`\
 https://nytimes.com/athletic/6026932/2025/01/01/arne-slot-liverpool-title-race-flawless/
-
-**What will Thomas Tuchel do on his first day as England manager?**\
-`Thomas Tuchel officially starts as England manager today. So what will he be doing?`\
-https://nytimes.com/athletic/6021619/2025/01/01/thomas-tuchel-first-day-england-manager/
-
-**Best of 2024 from The Athletic UK: our staff pick their favourite pieces (by their colleagues)**\
-`We didn't expect to write about flowery wallpapers in 2024. We did expect to write about Erik ten Hag, and Jurgen Klopp, and Lamine Yamal...`\
-https://nytimes.com/athletic/6029726/2025/01/01/athletic-best-work-2024-football-tennis-athletics/
-
-**Yohe's 10 observations: Erik Karlsson penalty leads to Detroit game winner**\
-`Drew O'Connor scored both Penguins goals to end his 32-game scoreless streak in a 4-2 loss to Detroit on Tuesday.`\
-https://nytimes.com/athletic/6028947/2025/01/01/penguins-karlsson-penalty-oconnor-red-wings/
-
-**De Bruyne, Kimmich, Van Dijk and more: The top out-of-contract players available as free agents**\
-`There are a number of elite players set to be available as free agents in the summer - and negotiations with other clubs can now begin`\
-https://nytimes.com/athletic/6026877/2025/01/01/free-agents-out-of-contract-transfer-latest/
-
-**Wednesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2025/01/01/briefing/new-year-2025.html
-
-**WSL and UWCL players to watch in 2025: Who will become a household name?**\
-`With a European Championship taking place in Switzerland in the summer, there will be even more of a rush for youngsters to prove themselves`\
-https://nytimes.com/athletic/6029195/2025/01/01/2025-players-to-watch-wsl-uwcl/
-
-**The player at each Premier League club who needs a move this transfer window**\
-`With the January transfer window open, we asked our writers which players, for various reasons, might be looking for a move.`\
-https://nytimes.com/athletic/6014938/2025/01/01/premier-league-transfer-players-needing-move/
 
