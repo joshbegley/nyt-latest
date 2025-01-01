@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6031714/2025/01/01/dolphins-snoop-huntley-chiefs-ca
 `Bryce James would be the second James kid to play college basketball in recent years, following Bronny James' one year at USC.`\
 https://nytimes.com/athletic/6031659/2025/01/01/bryce-james-lebron-arizona-college-basketball/
 
+**Brock Purdy's elbow injury not considered serious but he'll miss season finale**\
+`Purdy left Monday night's game against the Lions feeling like his arm was "on fire" after a hit.`\
+https://nytimes.com/athletic/6030143/2025/01/01/49ers-brock-purdy-elbow-injury/
+
 **Plymouth director of football Dewsnip to leave following Rooney sacking**\
 `Plymouth Argyle director of football Neil Dewsnip is set to leave his role at the club following head coach Wayne Rooney&#8217;s exit.`\
 https://nytimes.com/athletic/6031440/2025/01/01/neil-dewsnip-plymouth-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/us/suspect-new-orleans-texan-isis-flag.html
 **Sirianni 'probably' resting Barkley despite being within shot of rushing record**\
 `Barkley will likely end his season 101 yards shy of breaking Eric Dickerson's single-season rushing record`\
 https://nytimes.com/athletic/6031553/2025/01/01/eagles-saquon-barkley-rest-rushing-record/
-
-**Anderson Cooper and Andy Cohen Dish About Their New Year’s Eve Show**\
-`The morning after the two were live on CNN, they talked about tequila shots, Diplo and Cohen’s dancing skills.`\
-https://nytimes.com/2025/01/01/arts/television/anderson-cooper-andy-cohen-nye-show.html
 
