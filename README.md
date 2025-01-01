@@ -1,3 +1,11 @@
+**With three letters, Jalen Johnson is helping to mold Hawks' new identity**\
+`Atlanta is no longer just the Trae Young show on offense, and the guard has found a qualified co-star to orchestrate things.`\
+https://nytimes.com/athletic/6028892/2025/01/01/trae-young-jalen-johnson-hawks-offense/
+
+**Three Notre Dame keys and a prediction: Can Riley Leonard's legs beat Georgia?**\
+`Georgia's talent and Notre Dame's injuries present hurdles, but there's reason to believe the Irish can get over the hump Wednesday.`\
+https://nytimes.com/athletic/6030284/2025/01/01/notre-dame-georgia-sugar-bowl-prediction/
+
 **Tensions Escalate After Pakistan Pounds Afghanistan With Airstrikes**\
 `Pakistani leaders were once friends of the Taliban in Afghanistan. Now, cross-border violence has become alarmingly frequent.`\
 https://nytimes.com/2025/01/01/world/asia/pakistan-afghanistan-taliban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/01/style/workout-wear-loosens-up.html
 **The Most Reliable Scapegoat in Politics? Red Tape.**\
 `Less regulation is an easy rhetorical pitch. Better regulation is harder to stump for.`\
 https://nytimes.com/2025/01/01/magazine/marie-gluesenkamp-perez-politics-regulation.html
-
-**Mavericks have built deepest roster of Luka Dončić era. It will be tested in January**\
-`A Dončić-less Mavericks team has shown itself competitive. Kyrie Irving and P.J. Washington have been catalysts without Dončić on the floor.`\
-https://nytimes.com/athletic/6029076/2025/01/01/luka-doncic-injury-dallas-mavericks-kyrie-irving/
-
-**Fishing Coins From Trevi Fountain and Putting Wet Money to Work**\
-`Who gets to spend the millions of euros in change tossed into the Roman landmark?`\
-https://nytimes.com/2025/01/01/world/europe/rome-coins-trevi-fountain-caritas.html
 
