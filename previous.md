@@ -1,3 +1,19 @@
+**How Katz’s Deli’s Legal Woes Started With the 2011 Zagat Guide**\
+`The Lower East Side institution agreed to make renovations to accommodate people with disabilities, long after a “most popular” restaurants list put it under Justice Department scrutiny.`\
+https://nytimes.com/2025/01/01/nyregion/katz-deli-nyc.html
+
+**What Our Critics Are Looking Forward to in 2025**\
+`“Severance” is finally back for its second season, three New York art museums are set to reopen and ballet goes extreme.`\
+https://nytimes.com/2025/01/01/arts/tv-movies-music-picks-2025.html
+
+**‘Walkable’ New York City Became Deadlier for Pedestrians in 2024**\
+`The city said overall traffic deaths were down compared with 2023, and the number was still far lower than it was before the city adopted its Vision Zero safety program.`\
+https://nytimes.com/2025/01/01/nyregion/walkable-new-york-city-became-deadlier-for-pedestrians-in-2024.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/01/01/crosswords/spelling-bee-forum.html
+
 **Lakers debut 2 new players, but lack the firepower against NBA's best team**\
 `Cleveland dominated Los Angeles in three key areas: 3-point shooting, second-chance points and bench scoring.`\
 https://nytimes.com/athletic/6031002/2025/01/01/lakers-debut-new-pieces-lose-to-cleveland/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/01/01/opinion/panama-canal-trump-china-drought.html
 **Potentially serious Jared Spurgeon injury makes Wild win 'bittersweet': Takeaways**\
 `Spurgeon left the game after getting slew-footed by Predators rookie Zach L'Heureux.`\
 https://nytimes.com/athletic/6030768/2025/01/01/wild-jared-spurgeon-injury-predators/
-
-**Russia Suspends Flow of Natural Gas to Europe Through Ukraine**\
-`The Russian energy giant Gazprom announced the move early Wednesday. Ukraine had refused to renew an agreement that allowed for the transit of Russian gas through its territory.`\
-https://nytimes.com/2025/01/01/world/europe/russia-ukraine-natural-gas-europe.html
-
-**Matvei Michkov or Macklin Celebrini for the Calder? Experts weigh in as Flyers best Sharks**\
-`The two forwards vying for the Calder Trophy faced off for the second and final time this season.`\
-https://nytimes.com/athletic/6030945/2025/01/01/calder-michkov-celebrini-flyers-sharks/
-
-**‘It Ends With Us’ Actor and Director and His Publicists Sue The Times for Libel**\
-`Justin Baldoni claims that The Times defamed him and his team in an article about the actress Blake Lively’s allegations that she had been the victim of a smear campaign.`\
-https://nytimes.com/2025/01/01/us/justin-baldoni-blake-lively-it-ends-with-us-new-york-times-lawsuit.html
-
-**Leeds United's 2024: Play-off pain (again), Tanaka's emergence, Red Bull and ketchup**\
-`Leeds and Daniel Farke will hope 2025 brings what 2024 did not: a return to the Premier League`\
-https://nytimes.com/athletic/5954731/2025/01/01/leeds-2024-farke-tanaka-red-bull/
 
