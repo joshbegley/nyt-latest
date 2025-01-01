@@ -1,3 +1,11 @@
+**‘It Ends With Us’ Actor and Director and His Publicists Sue The Times for Libel**\
+`Justin Baldoni claims that The Times defamed him and his team in a story about the actress Blake Lively’s allegations that she had been the victim of a smear campaign.`\
+https://nytimes.com/2025/01/01/us/justin-baldoni-blake-lively-it-ends-with-us-new-york-times-lawsuit.html
+
+**Leeds United's 2024: Play-off pain (again), Tanaka's emergence, Red Bull and ketchup**\
+`Leeds and Daniel Farke will hope 2025 brings what 2024 did not: a return to the Premier League`\
+https://nytimes.com/athletic/5954731/2025/01/01/leeds-2024-farke-tanaka-red-bull/
+
 **Kenny Dillingham, Arizona State agree to 5-year extension**\
 `In his second season, Dillingham led Arizona State to a Big 12 championship and into the College Football Playoff.`\
 https://nytimes.com/athletic/6030937/2025/01/01/kenny-dillingham-ariona-state-football-extension/

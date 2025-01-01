@@ -1,3 +1,7 @@
+**Michkov or Celebrini for the Calder? Experts weigh in as Flyers best Sharks**\
+`The two forwards vying for the Calder Trophy faced off for the second and final time this season.`\
+https://nytimes.com/athletic/6030945/2025/01/01/calder-michkov-celebrini-flyers-sharks/
+
 **‘It Ends With Us’ Actor and Director and His Publicists Sue The Times for Libel**\
 `Justin Baldoni claims that The Times defamed him and his team in a story about the actress Blake Lively’s allegations that she had been the victim of a smear campaign.`\
 https://nytimes.com/2025/01/01/us/justin-baldoni-blake-lively-it-ends-with-us-new-york-times-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6000680/2025/01/01/manchester-city-2024-review/
 **Manchester United's 2024: FA Cup and derby winners, farewell Ten Hag, and the start of the Amorim era**\
 `Some good results and a seemingly positive change in the head coach role, but the year was a journey rather than a destination...`\
 https://nytimes.com/athletic/5940297/2025/01/01/manchester-united-2024-review/
-
-**Chelsea's 2024 - Cole Palmer, ownership tensions, Maresca's impact... and Cole Palmer**\
-`Chelsea enjoyed a remarkable turnaround in 2024 - these are the highs and the lows of a remarkable 12 months`\
-https://nytimes.com/athletic/6016365/2025/01/01/chelsea-2024-review/
 

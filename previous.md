@@ -1,3 +1,11 @@
+**‘It Ends With Us’ Actor and Director and His Publicists Sue The Times for Libel**\
+`Justin Baldoni claims that The Times defamed him and his team in a story about the actress Blake Lively’s allegations that she had been the victim of a smear campaign.`\
+https://nytimes.com/2025/01/01/us/justin-baldoni-blake-lively-it-ends-with-us-new-york-times-lawsuit.html
+
+**Leeds United's 2024: Play-off pain (again), Tanaka's emergence, Red Bull and ketchup**\
+`Leeds and Daniel Farke will hope 2025 brings what 2024 did not: a return to the Premier League`\
+https://nytimes.com/athletic/5954731/2025/01/01/leeds-2024-farke-tanaka-red-bull/
+
 **Kenny Dillingham, Arizona State agree to 5-year extension**\
 `In his second season, Dillingham led Arizona State to a Big 12 championship and into the College Football Playoff.`\
 https://nytimes.com/athletic/6030937/2025/01/01/kenny-dillingham-ariona-state-football-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5940297/2025/01/01/manchester-united-2024-review/
 **Chelsea's 2024 - Cole Palmer, ownership tensions, Maresca's impact... and Cole Palmer**\
 `Chelsea enjoyed a remarkable turnaround in 2024 - these are the highs and the lows of a remarkable 12 months`\
 https://nytimes.com/athletic/6016365/2025/01/01/chelsea-2024-review/
-
-**Why the injury-plagued Canucks looked limited in New Year's Eve loss: 3 takeaways**\
-`The defeat in Calgary dropped the Canucks below the Western Conference playoff bar for the time being.`\
-https://nytimes.com/athletic/6030880/2025/01/01/canucks-flames-score-takeaway-new-years/
-
-**Slot has brought control and consistency to Liverpool - the proven recipe for success**\
-`Liverpool’s boss understands that teams win leagues when their ‘average’ performance is good enough to consistently pick up points`\
-https://nytimes.com/athletic/6026932/2025/01/01/arne-slot-liverpool-title-race-flawless/
 
