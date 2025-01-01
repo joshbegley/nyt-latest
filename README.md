@@ -1,40 +1,40 @@
-**Peach Bowl preview: Can Arizona State hang with Texas?**\
-`Arizona State is the largest underdog of the College Football Playoff quarterfinals, but the Sun Devils have no intention of lying down.`\
-https://nytimes.com/athletic/6030092/2025/01/01/texas-arizona-state-predictions-peach-bowl/
+**The 73 Percent Solution**\
+`Whenever someone agrees wholeheartedly with something I write, I die a little inside.`\
+https://nytimes.com/2025/01/01/opinion/agreement-100-percent-conversation.html
 
-**What Ohio State and Oregon can learn from the six other Rose Bowl rematches**\
-`If Oregon-Ohio State II lives up to the hype of their first matchup, then it will eclipse any Rose Bowl rematch that has come before it.`\
-https://nytimes.com/athletic/6029536/2025/01/01/ohio-state-football-rose-bowl-2025-oregon/
+**Workout Wear Loosens Up**\
+`Skintight leggings, crop tops and unitards have long been the workout uniform, but women’s active wear trends are expanding.`\
+https://nytimes.com/2025/01/01/style/workout-wear-loosens-up.html
 
-**How Katz’s Deli’s Legal Woes Started With the 2011 Zagat Guide**\
-`The Lower East Side institution agreed to make renovations to accommodate people with disabilities, long after a “most popular” restaurants list put it under Justice Department scrutiny.`\
-https://nytimes.com/2025/01/01/nyregion/katz-deli-nyc.html
+**The Most Reliable Scapegoat in Politics? Red Tape.**\
+`Less regulation is an easy rhetorical pitch. Better regulation is harder to stump for.`\
+https://nytimes.com/2025/01/01/magazine/marie-gluesenkamp-perez-politics-regulation.html
 
-**What Our Critics Are Looking Forward to in 2025**\
-`“Severance” is finally back for its second season, three New York art museums are set to reopen and ballet goes extreme.`\
-https://nytimes.com/2025/01/01/arts/tv-movies-music-picks-2025.html
+**Fishing Coins From Trevi Fountain and Putting Wet Money to Work**\
+`Who gets to spend the millions of euros in change tossed into the Roman landmark?`\
+https://nytimes.com/2025/01/01/world/europe/rome-coins-trevi-fountain-caritas.html
 
-**‘Walkable’ New York City Became Deadlier for Pedestrians in 2024**\
-`The city said overall traffic deaths were down compared with 2023, and the number was still far lower than it was before the city adopted its Vision Zero safety program.`\
-https://nytimes.com/2025/01/01/nyregion/walkable-new-york-city-became-deadlier-for-pedestrians-in-2024.html
+**Dead Squirrels, TikTok Bops and Raw Milk: The Internet Slop of 2024**\
+`Two extremely online people on how the internet became so strange.`\
+https://nytimes.com/2025/01/01/opinion/internet-social-media-recap-2024.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/01/01/crosswords/spelling-bee-forum.html
+**The Secret Lives of Vikings**\
+`In “Embers of the Hands,” the historian Eleanor Barraclough looks beyond the soap-opera sagas to those lost in the cracks of history.`\
+https://nytimes.com/2025/01/01/books/review/embers-of-the-hands-eleanor-barraclough.html
 
-**Lakers debut 2 new players, but lack the firepower against NBA's best team**\
-`Cleveland dominated Los Angeles in three key areas: 3-point shooting, second-chance points and bench scoring.`\
-https://nytimes.com/athletic/6031002/2025/01/01/lakers-debut-new-pieces-lose-to-cleveland/
+**One Indelible Scene: A Battle of Gazes in ‘The Substance’**\
+`In the brawl between Demi Moore and Margaret Qualley’s characters, the images that loom over them prove the most telling.`\
+https://nytimes.com/2025/01/01/movies/the-substance-coralie-fargeat.html
 
-**What relegation would cost Manchester United - Adidas cut, no player clauses, huge TV and prize money dips**\
-`Ruben Amorim says the prospect of United being relegated this season is real - here's why that would be a huge problem for the club`\
-https://nytimes.com/athletic/6029647/2025/01/01/manchester-united-relegated-cost/
+**This Four-Ingredient Recipe, Passed Down for Generations, Will Change the Game**\
+`Turn cabbage into something intensely craveable.`\
+https://nytimes.com/2025/01/01/magazine/yamitsuki-cabbage-recipe.html
 
-**Kris Knoblauch's line juggling worked well against Utah but is likely a short-lived trial**\
-`It turns out a little tinkering — OK, a lot of tinkering — by Knoblauch was just what the doctor ordered Tuesday. `\
-https://nytimes.com/athletic/6031026/2025/01/01/oilers-utah-kris-knoblauch-line-juggling/
+**As Marijuana Use Grows, Effect on Road Safety Remains a Blind Spot**\
+`Scientists want to create breathalyzers that show how recently a driver used marijuana. Researchers also are studying how cannabis impairs motor skills and reflexes for habitual and occasional users.`\
+https://nytimes.com/2025/01/01/us/marijuana-driving-impairment.html
 
-**Optimism abounds in Blue Jackets' come-from-behind shootout win over Hurricanes**\
-`With the win, Columbus is just 2 points behind Ottawa, which holds the final wild-card playoff spot in the Eastern Conference.`\
-https://nytimes.com/athletic/6030951/2025/01/01/blue-jackets-win-shootout-over-carolina/
+**My Home Is Messy and I Don’t Feel Bad About It**\
+`The parts of my brain that make it hard for me to keep a tidy house are also responsible for much of what I love about my personality.`\
+https://nytimes.com/2025/01/01/opinion/celebrating-messiness.html
 
