@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6032059/2025/01/01/nfl-draft-2025-cam-skattebo-scou
 
 **What to Know About the Islamic State**\
 `The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
-https://nytimes.com/2025/01/01/world/what-to-know-about-the-islamic-state.html
+https://nytimes.com/2025/01/01/world/isis-islamic-state.html
 
 **The attack was the deadliest in the U.S. in more than a year.**\
 `Less than a month ago, New York State authorities charged Luigi Mangione with an act of terrorism in the killing of a health care executive in a shooting in Midtown Manhattan.`\
