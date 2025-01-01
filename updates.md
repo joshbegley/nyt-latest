@@ -1,3 +1,7 @@
+**Thursday Briefing: An Attack in New Orleans**\
+`Plus, fitness goals beyond weight loss.`\
+https://nytimes.com/2025/01/01/briefing/new-orleans-russia-ukraine-pakistan-afghanistan.html
+
 **Brock Purdy's elbow injury not considered serious but he'll miss season finale**\
 `Purdy left Monday night's game against the Lions feeling like his arm was "on fire" after a hit.`\
 https://nytimes.com/athletic/6030143/2025/01/01/49ers-brock-purdy-elbow-injury/

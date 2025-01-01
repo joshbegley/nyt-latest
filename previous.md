@@ -1,3 +1,7 @@
+**Thursday Briefing: An Attack in New Orleans**\
+`Plus, fitness goals beyond weight loss.`\
+https://nytimes.com/2025/01/01/briefing/new-orleans-russia-ukraine-pakistan-afghanistan.html
+
 **Backup QBs to start for Dolphins, Chiefs in key games for AFC wild card**\
 `The Dolphins need a win and the Broncos to lose to Wentz and the Chiefs to earn the AFC's final wild-card playoff spot.`\
 https://nytimes.com/athletic/6031714/2025/01/01/dolphins-snoop-huntley-chiefs-carson-wentz-broncos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6031573/2025/01/01/auston-matthews-maple-leafs-inju
 **Suspect in New Orleans Attack Is Identified as a Texan and Had an ISIS Flag With Him**\
 `In a YouTube video from 2020, the man identified as the suspect said he had been born and raised in Beaumont, Texas, and had served in the U.S. military.`\
 https://nytimes.com/2025/01/01/us/suspect-new-orleans-texan-isis-flag.html
-
-**Sirianni 'probably' resting Barkley despite being within shot of rushing record**\
-`Barkley will likely end his season 101 yards shy of breaking Eric Dickerson's single-season rushing record`\
-https://nytimes.com/athletic/6031553/2025/01/01/eagles-saquon-barkley-rest-rushing-record/
 
