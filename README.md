@@ -1,3 +1,7 @@
+**Big Sporting Events Like the Sugar Bowl Are Rarely Postponed**\
+`The game, a playoff matchup between Notre Dame and Georgia, is now scheduled to be played on Thursday night.`\
+https://nytimes.com/2025/01/01/us/sugar-bowl-postponed-new-orleans-attack.html
+
 **Why the Patriots should rest Drake Maye — even though they probably won’t**\
 `The Patriots get the No. 1 pick in the NFL Draft if they lose. So why do they want to play Drake Maye?`\
 https://nytimes.com/athletic/6031758/2025/01/01/patriots-drake-maye-rest-jerod-mayo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6017914/2025/01/01/brentford-arsenal-analysis/
 **1 Dead After a Cybertruck Explodes Outside the Trump Hotel in Las Vegas**\
 `At least seven people were injured, the authorities said. Videos posted to social media appeared to show a vehicle engulfed in flames outside the lobby’s entrance.`\
 https://nytimes.com/2025/01/01/us/car-fire-trump-hotel-las-vegas.html
-
-**Auston Matthews unsure if he'll fully get past injury this season: 'I hope so'**\
-`Still without a timeline for return, Matthews spoke with media for the first time since he last played on Dec. 20.`\
-https://nytimes.com/athletic/6031573/2025/01/01/auston-matthews-maple-leafs-injury-update/
 
