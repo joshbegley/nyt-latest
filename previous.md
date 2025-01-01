@@ -1,3 +1,7 @@
+**USMNT defender Sands joins St Pauli on loan**\
+`German Bundesliga side St Pauli have signed defender James Sands on loan from New York City FC until the end of the 2024-25 season.`\
+https://nytimes.com/athletic/6031284/2025/01/01/usmnt-james-sands-st-pauli/
+
 **Embracing the Joys of Solitude in the New Year**\
 `Being alone doesn’t mean you’re lonely.`\
 https://nytimes.com/2025/01/01/opinion/joy-solitude.html
@@ -33,8 +37,4 @@ https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/aug-12-
 **July 4: The Vera C. Rubin Observatory might capture its first views of the night sky.**\
 `By Katrina Miller`\
 https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/july-4-the-vera-c-rubin-observatory-might-capture-its-first-views-of-the-night-sky
-
-**May 3-4: The Eta Aquarids meteor shower will reach its peak.**\
-`By Katrina Miller`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/may-3-4-the-eta-aquarids-meteor-shower-will-reach-its-peak
 

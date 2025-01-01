@@ -1,3 +1,7 @@
+**USMNT defender Sands joins St Pauli on loan**\
+`German Bundesliga side St Pauli have signed defender James Sands on loan from New York City FC until the end of the 2024-25 season.`\
+https://nytimes.com/athletic/6031284/2025/01/01/usmnt-james-sands-st-pauli/
+
 **Embracing the Joys of Solitude in the New Year**\
 `Being alone doesn’t mean you’re lonely.`\
 https://nytimes.com/2025/01/01/opinion/joy-solitude.html
