@@ -1,3 +1,11 @@
+**Partisan Judges and Public Disrespect**\
+`Readers discuss the plummeting respect for the judicial system. Also: Syria sanctions; religion and Democrats; medical uses of psychedelics.`\
+https://nytimes.com/2025/01/01/opinion/letters/partisan-judges-public-disrespect.html
+
+**My One-Pan Orzo With Spinach for Jan. 1**\
+`With five stars and more than 11,000 reviews, it’s a very green (and very easy) recipe to kick off the new year.`\
+https://nytimes.com/2025/01/01/dining/my-one-pan-orzo-with-spinach-for-jan-1.html
+
 **Democrats’ Battleground Leader, Exiting Congress, Reflects on What She Learned**\
 `Representative Abigail Spanberger of Virginia, the only Democrat in a leadership position to leave Congress this year, talked about her party, her competitive district, and what the Trump era has in store.`\
 https://nytimes.com/2025/01/01/us/spanberger-congress.html
