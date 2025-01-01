@@ -1,3 +1,7 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears take a 10-game losing streak into their finale. The coaching search and the 2025 roster are now the focus. What's on your mind?`\
+https://nytimes.com/athletic/6030624/2025/01/01/bears-mailbag-questions-43/
+
 **Why the F.B.I. Is Investigating the Bourbon Street Attack as Terrorism**\
 `The F.B.I. defines international terrorism as violence inspired by foreign terrorist groups. Domestic terrorism is defined as violence meant to further ideological goals or intimidate civilians.`\
 https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-terrorism-fbi.html
