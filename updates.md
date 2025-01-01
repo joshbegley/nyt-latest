@@ -1,3 +1,7 @@
+**The Panama Canal Has a Big Problem, but It’s Not China or Trump**\
+`Climate change is causing drought conditions that are making it harder to operate the Panama Canal and more expensive to pass through.`\
+https://nytimes.com/2025/01/01/opinion/panama-canal-trump-china-drought.html
+
 **Potentially serious Jared Spurgeon injury makes Wild win 'bittersweet': Takeaways**\
 `Spurgeon left the game after taking a slewfoot from Predators rookie Zach L'Heureux.`\
 https://nytimes.com/athletic/6030768/2025/01/01/wild-jared-spurgeon-injury-predators/

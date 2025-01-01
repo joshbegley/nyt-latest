@@ -1,3 +1,7 @@
+**The Panama Canal Has a Big Problem, but It’s Not China or Trump**\
+`Climate change is causing drought conditions that are making it harder to operate the Panama Canal and more expensive to pass through.`\
+https://nytimes.com/2025/01/01/opinion/panama-canal-trump-china-drought.html
+
 **Potentially serious Jared Spurgeon injury makes Wild win 'bittersweet': Takeaways**\
 `Spurgeon left the game after taking a slewfoot from Predators rookie Zach L'Heureux.`\
 https://nytimes.com/athletic/6030768/2025/01/01/wild-jared-spurgeon-injury-predators/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029486/2025/01/01/real-madrid-open-training-bellin
 **Brighton's 2024: Beating Man City, a nightmare in Rome and the great Spurs comeback**\
 `Europe. A new manager. And a lot of new talent. This is what's happened to Brighton over the past 12 months`\
 https://nytimes.com/athletic/5966118/2025/01/01/brighton-review-2024/
-
-**Wolves' 2024: O'Neil's exit, Cunha's class (and meltdown) and FA Cup collapse**\
-`Vitor Pereira's arrival has brought some much needed hope back to Molineux - something sorely missing for most of 2024`\
-https://nytimes.com/athletic/5987847/2025/01/01/wolves-2024-oneils-exit-cunhas-class-and-meltdown-and-fa-cup-collapse/
 
