@@ -1,3 +1,7 @@
+**Kris Knoblauch's line juggling worked well against Utah but is likely a short-lived trial**\
+`It turns out a little tinkering — OK, a lot of tinkering — by Knoblauch was just what the doctor ordered Tuesday. `\
+https://nytimes.com/athletic/6031026/2025/01/01/oilers-utah-kris-knoblauch-line-juggling/
+
 **Optimism abounds in Blue Jackets' come-from-behind shootout win over Carolina**\
 `With the win, Columbus is just two points behind Ottawa, which currently holds the final wild-card playoff spot in the Eastern Conference.`\
 https://nytimes.com/athletic/6030951/2025/01/01/blue-jackets-win-shootout-over-carolina/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030937/2025/01/01/kenny-dillingham-ariona-state-fo
 **Times Square Revelers Ring in a Soggy New Year After Thunderstorm**\
 `People lined up in ponchos to see the New Year’s Eve ball-drop in New York.`\
 https://nytimes.com/2025/01/01/nyregion/new-years-eve-rain-nyc.html
-
-**Inside Real Madrid's open training: Children crying over Bellingham, Rudiger bearhugs and Alaba is back**\
-`Ceballos scored three goals in the space of a minute and Guler sparkled. Here's what we learned from watching Madrid's open training session`\
-https://nytimes.com/athletic/6029486/2025/01/01/real-madrid-open-training-bellingham-child-alaba-return/
 
