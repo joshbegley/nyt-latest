@@ -1,3 +1,7 @@
+**Democrats’ Battleground Leader, Exiting Congress, Reflects on What She Learned**\
+`Representative Abigail Spanberger of Virginia, the only Democrat in a leadership position to leave Congress this year, talked about her party, her competitive district, and what the Trump era has in store.`\
+https://nytimes.com/2025/01/01/us/spanberger-congress.html
+
 **Police work to ensure Sugar Bowl safety after man rams truck into New Orleans crowd**\
 `The crash happened around 4:15 a.m. ET about a mile from the Superdome, the site for the Sugar Bowl between Georgia and Notre Dame.`\
 https://nytimes.com/athletic/6031324/2025/01/01/new-orleans-truck-attack-sugar-bowl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/books/review/the-three-lives-of-cate-kay-kate-fag
 **Giannis Antetokounmpo’s midrange mastery highlights Bucks trends**\
 `As Giannis and Lillard return, let's take a closer look at the micro and macro trends that have affected the Bucks over the last week.`\
 https://nytimes.com/athletic/6029478/2025/01/01/giannis-antetokounmpo-return-bucks-trends-nba/
-
-**'This is jubilation': Penn State relishes Fiesta Bowl win as Playoff charge continues**\
-`This isn’t just a team that can do one or two things well. There’s real credence to the idea that it has as good a chance as anyone.`\
-https://nytimes.com/athletic/6031194/2025/01/01/penn-state-boise-state-fiesta-bowl-cfp/
 
