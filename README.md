@@ -1,3 +1,7 @@
+**Anthony Richardson details back injury struggles: 'I couldn't even stand up'**\
+`Richardson said that the back injury "might be chronic," but added there are ways to prevent the injury going forward. `\
+https://nytimes.com/athletic/6031698/2025/01/01/colts-anthony-richardson-back-injury-chronic/
+
 **Big Sporting Events Like the Sugar Bowl Are Rarely Postponed**\
 `The game, a playoff matchup between Notre Dame and Georgia, is now scheduled to be played on Thursday night.`\
 https://nytimes.com/2025/01/01/us/sugar-bowl-postponed-new-orleans-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/world/europe/ukraine-russia-gas-europe-explained.
 **The Briefing: Brentford 1 Arsenal 3 - Jesus scores again, Nwaneri's full debut and midfield balance**\
 `Amy Lawrence and Anantaajith Raghuraman analyse the main talking points from Arsenal's victory at Brentford`\
 https://nytimes.com/athletic/6017914/2025/01/01/brentford-arsenal-analysis/
-
-**1 Dead After a Cybertruck Explodes Outside the Trump Hotel in Las Vegas**\
-`At least seven people were injured, the authorities said. Videos posted to social media appeared to show a vehicle engulfed in flames outside the lobby’s entrance.`\
-https://nytimes.com/2025/01/01/us/car-fire-trump-hotel-las-vegas.html
 
