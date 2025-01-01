@@ -1,3 +1,7 @@
+**Brock Purdy's elbow injury not considered serious but he'll miss season finale**\
+`Purdy left Monday night's game against the Lions feeling like his arm was "on fire" after a hit.`\
+https://nytimes.com/athletic/6030143/2025/01/01/49ers-brock-purdy-elbow-injury/
+
 **1 Dead After a Cybertruck Explodes Outside the Trump Hotel in Las Vegas**\
 `At least seven people were injured, the authorities said. Videos posted to social media appeared to show a vehicle engulfed in flames outside the lobby’s entrance.`\
 https://nytimes.com/2025/01/01/us/car-fire-trump-hotel-las-vegas.html
