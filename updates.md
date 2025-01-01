@@ -1,3 +1,7 @@
+**Deadly New Year’s Day Attack in New Orleans**\
+`At least 10 people were killed in the early hours of New Year’s Day when a man plowed a truck into crowds on Bourbon Street.`\
+https://nytimes.com/video/us/100000009903732/new-orleans-truck-attack.html
+
 **Smoke Billows at Trump Hotel After Cybertruck Explosion**\
 `A Tesla Cybertruck exploded and caught fire outside the Trump International Hotel in Las Vegas on Wednesday, killing one person and wounding at least seven.`\
 https://nytimes.com/video/us/100000009904015/trump-hotel-tesla-fire.html

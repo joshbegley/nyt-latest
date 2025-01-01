@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/100000009904015/trump-hotel-tesla-fire.html
 
 **Deadly New Year’s Day Attack in New Orleans**\
-`At least 10 people were killed in the early hours of New Year’s Day when a man deliberately plowed a pickup truck into crowds on Bourbon Street.`\
+`At least 10 people were killed in the early hours of New Year’s Day when a man plowed a truck into crowds on Bourbon Street.`\
 https://nytimes.com/video/us/100000009903732/new-orleans-truck-attack.html
 
 **Officials Trying to Determine if New Orleans Suspect Had Ties to Terrorist Groups**\
