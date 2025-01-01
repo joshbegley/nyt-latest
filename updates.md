@@ -1,3 +1,7 @@
+**Zelensky Expresses Hope for 2025, but Russia Presses On With Attacks**\
+`In his New Year’s address, President Volodymyr Zelensky of Ukraine urged continued U.S. support.`\
+https://nytimes.com/2025/01/01/world/europe/ukraine-russia-war-zelensky.html
+
 **Live Updates: At Least 10 Killed as Vehicle Drives Into New Orleans Crowd**\
 `At least 30 more people were injured when a vehicle drove into a large crowd on Bourbon Street overnight, the city said.`\
 https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash
