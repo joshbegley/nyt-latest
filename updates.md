@@ -1,3 +1,7 @@
+**Anthony Richardson details back injury struggles: 'I couldn't even stand up'**\
+`Richardson said that the back injury "might be chronic," but added there are ways to prevent the injury going forward. `\
+https://nytimes.com/athletic/6031698/2025/01/01/colts-anthony-richardson-back-injury-chronic/
+
 **Big Sporting Events Like the Sugar Bowl Are Rarely Postponed**\
 `The game, a playoff matchup between Notre Dame and Georgia, is now scheduled to be played on Thursday night.`\
 https://nytimes.com/2025/01/01/us/sugar-bowl-postponed-new-orleans-attack.html
