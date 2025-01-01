@@ -1,3 +1,11 @@
+**Peach Bowl preview: Can Arizona State hang with Texas?**\
+`Arizona State is the largest underdog of the College Football Playoff quarterfinals, but the Sun Devils have no intention of lying down.`\
+https://nytimes.com/athletic/6030092/2025/01/01/texas-arizona-state-predictions-peach-bowl/
+
+**What Ohio State and Oregon can learn from the six other Rose Bowl rematches**\
+`If Oregon-Ohio State II lives up to the hype of their first matchup, then it will eclipse any Rose Bowl rematch that has come before it.`\
+https://nytimes.com/athletic/6029536/2025/01/01/ohio-state-football-rose-bowl-2025-oregon/
+
 **How Katz’s Deli’s Legal Woes Started With the 2011 Zagat Guide**\
 `The Lower East Side institution agreed to make renovations to accommodate people with disabilities, long after a “most popular” restaurants list put it under Justice Department scrutiny.`\
 https://nytimes.com/2025/01/01/nyregion/katz-deli-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6031026/2025/01/01/oilers-utah-kris-knoblauch-line-
 **Optimism abounds in Blue Jackets' come-from-behind shootout win over Hurricanes**\
 `With the win, Columbus is just 2 points behind Ottawa, which holds the final wild-card playoff spot in the Eastern Conference.`\
 https://nytimes.com/athletic/6030951/2025/01/01/blue-jackets-win-shootout-over-carolina/
-
-**The Panama Canal Has a Big Problem, but It’s Not China or Trump**\
-`Climate change is causing drought conditions that are making it harder to operate the Panama Canal and more expensive to pass through.`\
-https://nytimes.com/2025/01/01/opinion/panama-canal-trump-china-drought.html
-
-**Potentially serious Jared Spurgeon injury makes Wild win 'bittersweet': Takeaways**\
-`Spurgeon left the game after getting slew-footed by Predators rookie Zach L'Heureux.`\
-https://nytimes.com/athletic/6030768/2025/01/01/wild-jared-spurgeon-injury-predators/
 

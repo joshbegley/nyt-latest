@@ -1,3 +1,11 @@
+**Peach Bowl preview: Can Arizona State hang with Texas?**\
+`Arizona State is the largest underdog of the College Football Playoff quarterfinals, but the Sun Devils have no intention of lying down.`\
+https://nytimes.com/athletic/6030092/2025/01/01/texas-arizona-state-predictions-peach-bowl/
+
+**What Ohio State and Oregon can learn from the six other Rose Bowl rematches**\
+`If Oregon-Ohio State II lives up to the hype of their first matchup, then it will eclipse any Rose Bowl rematch that has come before it.`\
+https://nytimes.com/athletic/6029536/2025/01/01/ohio-state-football-rose-bowl-2025-oregon/
+
 **How Katz’s Deli’s Legal Woes Started With the 2011 Zagat Guide**\
 `The Lower East Side institution agreed to make renovations to accommodate people with disabilities, long after a “most popular” restaurants list put it under Justice Department scrutiny.`\
 https://nytimes.com/2025/01/01/nyregion/katz-deli-nyc.html
