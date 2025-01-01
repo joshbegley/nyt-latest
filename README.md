@@ -1,3 +1,7 @@
+**Why the injury-plagued Canucks looked limited in New Year's Eve loss: 3 takeaways**\
+`The defeat in Calgary dropped the Canucks below the Western Conference playoff bar for the time being.`\
+https://nytimes.com/athletic/6030880/2025/01/01/canucks-flames-score-takeaway-new-years/
+
 **Slot has brought control and consistency to Liverpool - the proven recipe for success**\
 `Liverpool’s boss understands that teams win leagues when their ‘average’ performance is good enough to consistently pick up points`\
 https://nytimes.com/athletic/6026932/2025/01/01/arne-slot-liverpool-title-race-flawless/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6014938/2025/01/01/premier-league-transfer-players-
 **A Mayor’s Odyssey: From Undocumented Migrant to Cartel Target**\
 `A former undocumented resident of California who now runs a town in Mexico, Crispín Agustín Mendoza has survived one assassination attempt. But he says, “I have to learn how to survive.”`\
 https://nytimes.com/2025/01/01/world/americas/mexico-mayor-cartels-deportations.html
-
-**Quote of the Day: Syria Refugees in Germany Fear Having to Leave Home Yet Again**\
-`Quotation of the Day for Wednesday, January 1, 2025.`\
-https://nytimes.com/2025/01/01/pageoneplus/quote-of-the-day-syria-refugees-in-germany-fear-having-to-leave-home-yet-again.html
 
