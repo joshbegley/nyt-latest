@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6030951/2025/01/01/blue-jackets-win-shootout-over-c
 https://nytimes.com/2025/01/01/opinion/panama-canal-trump-china-drought.html
 
 **Potentially serious Jared Spurgeon injury makes Wild win 'bittersweet': Takeaways**\
-`Spurgeon left the game after taking a slewfoot from Predators rookie Zach L'Heureux.`\
+`Spurgeon left the game after getting slew-footed by Predators rookie Zach L'Heureux.`\
 https://nytimes.com/athletic/6030768/2025/01/01/wild-jared-spurgeon-injury-predators/
 
 **Russia Suspends Flow of Natural Gas to Europe Through Ukraine**\
