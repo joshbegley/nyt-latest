@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6031456/2025/01/01/seko-fofana-al-nassr-transfer-re
 https://nytimes.com/2025/01/01/us/new-orleans-security-bollards-construction-bourbon-street.html
 
 **The French Quarter Is New Orleans’s Most Famous Tourist Attraction**\
-`The six-by-13 block area, on the curving bank of the Mississippi River, is known for vibrant festivals and parties that attract revelers from across the United States and abroad.`\
+`The area is the historic colonial heart of the city and the center of its tourism industry. Bourbon Street, where the attack occurred, is the Quarter’s most recognizable address and a focus for revelers.`\
 https://nytimes.com/2025/01/01/us/french-quarter-tourist-attraction.html
 
 **The Acid Comedy of Thomas Schütte, the Man in the Mud**\
