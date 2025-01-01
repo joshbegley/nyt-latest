@@ -1,3 +1,7 @@
+**At Least 10 Killed After Vehicle Drives Into Crowd in New Orleans**\
+`At least 30 more were injured after a vehicle drove into a large crowd on Bourbon Street early Wednesday, the city said.`\
+https://nytimes.com/2025/01/01/us/new-orleans-vehicle-crash.html
+
 **Deadly Strike Hits Northern Gaza, Palestinian Officials Say**\
 `Several people were killed in an attack on the city of Jabaliya, according to the Palestinian Civil Defense. Israel’s military did not immediately comment.`\
 https://nytimes.com/2025/01/01/world/middleeast/israel-gaza-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030263/2025/01/01/nfl-week-17-sam-darnold-quick-ou
 **Brian Flores vs. Ben Johnson is a matchup made for this type of moment**\
 `Flores and Johnson are two of the best in the game at their respective jobs. Their teams' rematch has the makings of a title bout. `\
 https://nytimes.com/athletic/6030410/2025/01/01/lions-vikings-brian-flores-ben-johnson/
-
-**Inside the Mikal Bridges-Josh Hart brotherhood forged by competition: 'He didn't like me'**\
-`The two Knicks used to go at it as Villanova teammates. Now they're giving NBA teams problems together.`\
-https://nytimes.com/athletic/6026943/2025/01/01/ny-knicks-mikal-bridges-josh-hart-villanova/
 

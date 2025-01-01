@@ -1,3 +1,7 @@
+**At Least 10 Killed After Vehicle Drives Into Crowd in New Orleans**\
+`At least 30 more were injured after a vehicle drove into a large crowd on Bourbon Street early Wednesday, the city said.`\
+https://nytimes.com/2025/01/01/us/new-orleans-vehicle-crash.html
+
 **Deadly Strike Hits Northern Gaza, Palestinian Officials Say**\
 `Several people were killed in an attack on the city of Jabaliya, according to the Palestinian Civil Defense. Israel’s military did not immediately comment.`\
 https://nytimes.com/2025/01/01/world/middleeast/israel-gaza-strike.html
