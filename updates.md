@@ -1,3 +1,7 @@
+**Auston Matthews unsure if he'll fully get past injury this season: 'I hope so'**\
+`Still without a timeline for return, Matthews spoke with media for the first time since he last played on Dec. 20.`\
+https://nytimes.com/athletic/6031573/2025/01/01/auston-matthews-maple-leafs-injury-update/
+
 **Why the F.B.I. Is Investigating the Bourbon Street Attack as Terrorism**\
 `An Islamic State terror group flag was found in the suspect’s vehicle, investigators said, as well as a bomb near the vehicle used in the attack.`\
 https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-terrorism-fbi.html
