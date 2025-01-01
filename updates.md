@@ -1,3 +1,7 @@
+**Why Did Ukraine Halt the Flow of Russia’s Natural Gas to Europe?**\
+`And why didn’t it cut off Russia’s natural gas earlier?`\
+https://nytimes.com/2025/01/01/world/europe/ukraine-russia-gas-europe-explained.html
+
 **The Briefing: Brentford 1 Arsenal 3 - Jesus scores again, Nwaneri's full debut and midfield balance**\
 `Amy Lawrence and Anantaajith Raghuraman analyse the main talking points from Arsenal's victory at Brentford`\
 https://nytimes.com/athletic/6017914/2025/01/01/brentford-arsenal-analysis/
