@@ -1,3 +1,7 @@
+**Lakers debut 2 new players, but lack the firepower against NBA's best team**\
+`Cleveland dominated Los Angeles in three key areas: 3-point shooting, second-chance points and bench scoring.`\
+https://nytimes.com/athletic/6031002/2025/01/01/lakers-debut-new-pieces-lose-to-cleveland/
+
 **What relegation would cost Manchester United - Adidas cut, no player clauses, huge TV and prize money dips**\
 `Ruben Amorim says the prospect of United being relegated this season is real - here's why that would be a huge problem for the club`\
 https://nytimes.com/athletic/6029647/2025/01/01/manchester-united-relegated-cost/
