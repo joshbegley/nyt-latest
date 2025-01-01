@@ -1,3 +1,7 @@
+**Murders Plunge**\
+`We have good news to start your 2025.`\
+https://nytimes.com/2025/01/01/briefing/murders-plunge.html
+
 **You read it here first: 22 predictions for the 2025 men's golf season**\
 `Scottie Scheffler remains the best golfer, but the honeymoon ends — and 21 other things that may or may not happen.`\
 https://nytimes.com/athletic/6030593/2025/01/01/22-predictions-2025-mens-golf-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/crosswords/wordle-review-1293.html
 **The Connections Companion No. 571**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Jan. 2, 2025.`\
 https://nytimes.com/2025/01/01/crosswords/connections-companion-571.html
-
-**With three letters, Jalen Johnson is helping to mold Hawks' new identity**\
-`Atlanta is no longer just the Trae Young show on offense, and the guard has found a qualified co-star to orchestrate things.`\
-https://nytimes.com/athletic/6028892/2025/01/01/trae-young-jalen-johnson-hawks-offense/
 
