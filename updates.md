@@ -1,3 +1,7 @@
+**Vehicle Ramming Attacks: Using Cars and Trucks as Weapons Has Become Common**\
+`A New Year’s Day attack in New Orleans killed at least 10 people.`\
+https://nytimes.com/2025/01/01/world/americas/vehicle-ramming-attacks.html
+
 **Sirianni 'probably' resting Barkley despite being within shot of rushing record**\
 `Barkley will likely end his season 101 yards shy of breaking Eric Dickerson's single-season rushing record`\
 https://nytimes.com/athletic/6031553/2025/01/01/eagles-saquon-barkley-rest-rushing-record/
