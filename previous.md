@@ -1,3 +1,7 @@
+**‘It was like something out of a horror movie.’**\
+`By Keith Bradsher`\
+https://nytimes.com/2025/01/01/us/it-was-like-something-out-of-a-horror-movie.html
+
 **Barcelona remain hopeful on Olmo registration despite missing La Liga deadline**\
 `Barcelona have not given up hope that Dani Olmo will be able to play for them in the second half of the season despite missing the January 1 deadline to register him with La Liga.`\
 https://nytimes.com/athletic/6029414/2025/01/01/barcelona-dani-olmo-registration-la-liga/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6031456/2025/01/01/seko-fofana-al-nassr-transfer-re
 **A Street Security System in New Orleans Was Under Construction**\
 `The bollards that prevent traffic from entering some streets in the French Quarter, where a man drove a truck into crowds of people, were being replaced, according to a city website.`\
 https://nytimes.com/2025/01/01/us/new-orleans-security-bollards-construction-bourbon-street.html
-
-**The French Quarter Is New Orleans’s Most Famous Tourist Attraction**\
-`The area is the historic colonial heart of the city and the center of its tourism industry. Bourbon Street, where the attack occurred, is the Quarter’s most recognizable address and a focus for revelers.`\
-https://nytimes.com/2025/01/01/us/french-quarter-tourist-attraction.html
 
