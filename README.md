@@ -1,3 +1,7 @@
+**Mandel: Penn State powers into CFP semis to carry Big Ten flag, while SEC no longer looks untouchable**\
+`Penn State trucked Boise State on New Year's Eve to ensure its conference will claim half of next week’s CFP semifinal field.`\
+https://nytimes.com/athletic/6031122/2025/01/01/penn-state-boise-state-big-ten-sec/
+
 **At Least 10 Killed After Vehicle Drives Into Crowd in New Orleans**\
 `At least 30 more were injured after a vehicle drove into a large crowd on Bourbon Street early Wednesday, the city said.`\
 https://nytimes.com/2025/01/01/us/new-orleans-vehicle-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029134/2025/01/01/diego-kochen-barcelona-usmnt-goa
 **Another look at Sam Darnold, Colts bottom out, more Week 17 thoughts: Quick Outs**\
 `The Vikings' QB dazzled in a big Week 17 win over the Packers, while Baker Mayfield closed in on history and the Colts fell apart.`\
 https://nytimes.com/athletic/6030263/2025/01/01/nfl-week-17-sam-darnold-quick-outs/
-
-**Brian Flores vs. Ben Johnson is a matchup made for this type of moment**\
-`Flores and Johnson are two of the best in the game at their respective jobs. Their teams' rematch has the makings of a title bout. `\
-https://nytimes.com/athletic/6030410/2025/01/01/lions-vikings-brian-flores-ben-johnson/
 
