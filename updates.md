@@ -1,3 +1,15 @@
+**Officials Trying to Determine if New Orleans Suspect Had Ties to Terrorist Groups**\
+`U.S. officials have warned that the conflict in Gaza and Lebanon could spill into the United States, most likely in the form of small radicalized groups acting on their own initiative or lone-wolf terrorists.`\
+https://nytimes.com/2025/01/01/us/politics/new-orleans-attack-terrorism.html
+
+**Barnsley 2 Wrexham 1: A glaring defensive weakness and a remarkable record preserved**\
+`The big talking points after Wrexham dropped three points in the race for promotion `\
+https://nytimes.com/athletic/6029256/2025/01/01/wrexham-barnsley-defensive-weakness-remarkable-record/
+
+**Outspoken N.Y.P.D. Chief Is Tapped for Top Uniformed Position**\
+`Chief John Chell, a 30-year veteran of the Police Department, has publicly sparred with members of the media and liberal politicians.`\
+https://nytimes.com/2025/01/01/nyregion/outspoken-nypd-chief-is-tapped-for-top-uniformed-position.html
+
 **What We Know About the Suspected Bombs Found in the New Orleans Attack**\
 `Possible homemade bombs were found in and near the pickup that smashed into crowds, and possibly elsewhere in the French Quarter. That has raised investigators’ suspicions that the attacker may have had accomplices.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-suspected-bombs.html
