@@ -1,3 +1,7 @@
+**What We Know About the Suspected Bombs Found in the New Orleans Attack**\
+`Possible homemade bombs were found in and near the pickup that smashed into crowds, and possibly elsewhere in the French Quarter. That has raised investigators’ suspicions that the attacker may have had accomplices.`\
+https://nytimes.com/2025/01/01/us/new-orleans-attack-suspected-bombs.html
+
 **Anthony Richardson details back injury struggles: 'I couldn't even stand up'**\
 `Richardson said that the back injury "might be chronic," but added there are ways to prevent the injury going forward. `\
 https://nytimes.com/athletic/6031698/2025/01/01/colts-anthony-richardson-back-injury-chronic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6031440/2025/01/01/neil-dewsnip-plymouth-exit/
 **Why Did Ukraine Halt the Flow of Russia’s Natural Gas to Europe?**\
 `And why didn’t it cut off Russia’s natural gas earlier?`\
 https://nytimes.com/2025/01/01/world/europe/ukraine-russia-gas-europe-explained.html
-
-**The Briefing: Brentford 1 Arsenal 3 - Jesus scores again, Nwaneri's full debut and midfield balance**\
-`Amy Lawrence and Anantaajith Raghuraman analyse the main talking points from Arsenal's victory at Brentford`\
-https://nytimes.com/athletic/6017914/2025/01/01/brentford-arsenal-analysis/
 
