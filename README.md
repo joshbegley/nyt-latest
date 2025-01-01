@@ -1,3 +1,7 @@
+**Wild's Jared Spurgeon to get MRI after slew foot — Predators' Zach L'Heureux gets phone hearing**\
+`Even though he is not deemed a "repeat offender" by the NHL, at only 21 years old, L'Heureux has been suspended 11 times at lower levels.`\
+https://nytimes.com/athletic/6031502/2025/01/01/wilds-jared-spurgeon-slew-foot-injury/
+
 **‘Don’t Die: The Man Who Wants to Live Forever’ Review: Matter Over Mind**\
 `A documentary tracks the tech entrepreneur Bryan Johnson’s efforts to follow a hyper-regimented body care system.`\
 https://nytimes.com/2025/01/01/movies/dont-die-the-man-who-wants-to-live-forever-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/arts/music/review-met-opera-verdi-aida.html
 **Scenes From New Orleans After Attack on New Year’s Day**\
 `A man drove a pickup truck into the crowds on Bourbon Street early Wednesday morning, killing at least 10 people.`\
 https://nytimes.com/2025/01/01/us/new-orleans-vehicle-attack-photos.html
-
-**Seko Fofana leaves Al Nassr to join Rennes**\
-`Ligue 1 side Rennes have completed the signing of midfielder Seko Fofana from Al Nassr.`\
-https://nytimes.com/athletic/6031456/2025/01/01/seko-fofana-al-nassr-transfer-rennes/
 
