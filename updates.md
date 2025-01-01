@@ -1,3 +1,11 @@
+**Wordle Review No. 1,293**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 2, 2025.`\
+https://nytimes.com/2025/01/01/crosswords/wordle-review-1293.html
+
+**The Connections Companion No. 571**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 2, 2025.`\
+https://nytimes.com/2025/01/01/crosswords/connections-companion-571.html
+
 **With three letters, Jalen Johnson is helping to mold Hawks' new identity**\
 `Atlanta is no longer just the Trae Young show on offense, and the guard has found a qualified co-star to orchestrate things.`\
 https://nytimes.com/athletic/6028892/2025/01/01/trae-young-jalen-johnson-hawks-offense/

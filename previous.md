@@ -1,3 +1,11 @@
+**Wordle Review No. 1,293**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 2, 2025.`\
+https://nytimes.com/2025/01/01/crosswords/wordle-review-1293.html
+
+**The Connections Companion No. 571**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Jan. 2, 2025.`\
+https://nytimes.com/2025/01/01/crosswords/connections-companion-571.html
+
 **With three letters, Jalen Johnson is helping to mold Hawks' new identity**\
 `Atlanta is no longer just the Trae Young show on offense, and the guard has found a qualified co-star to orchestrate things.`\
 https://nytimes.com/athletic/6028892/2025/01/01/trae-young-jalen-johnson-hawks-offense/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/01/01/world/middleeast/syria-rebel-groups-army.html
 **The 73 Percent Solution**\
 `Whenever someone agrees wholeheartedly with something I write, I die a little inside.`\
 https://nytimes.com/2025/01/01/opinion/agreement-100-percent-conversation.html
-
-**Workout Wear Loosens Up**\
-`Skintight leggings, crop tops and unitards have long been the workout uniform, but women’s active wear trends are expanding.`\
-https://nytimes.com/2025/01/01/style/workout-wear-loosens-up.html
-
-**The Most Reliable Scapegoat in Politics? Red Tape.**\
-`Less regulation is an easy rhetorical pitch. Better regulation is harder to stump for.`\
-https://nytimes.com/2025/01/01/magazine/marie-gluesenkamp-perez-politics-regulation.html
 
