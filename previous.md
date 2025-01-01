@@ -1,4 +1,12 @@
-**Michkov or Celebrini for the Calder? Experts weigh in as Flyers best Sharks**\
+**Potentially serious Jared Spurgeon injury makes Wild win 'bittersweet': Takeaways**\
+`Spurgeon left the game after taking a slewfoot from Predators rookie Zach L'Heureux.`\
+https://nytimes.com/athletic/6030768/2025/01/01/wild-jared-spurgeon-injury-predators/
+
+**Russia Suspends Flow of Natural Gas to Europe Through Ukraine**\
+`The Russian energy giant Gazprom announced the move early Wednesday. Ukraine had refused to renew an agreement that allowed for the transit of Russian gas through its territory.`\
+https://nytimes.com/2025/01/01/world/europe/russia-ukraine-natural-gas-europe.html
+
+**Matvei Michkov or Macklin Celebrini for the Calder? Experts weigh in as Flyers best Sharks**\
 `The two forwards vying for the Calder Trophy faced off for the second and final time this season.`\
 https://nytimes.com/athletic/6030945/2025/01/01/calder-michkov-celebrini-flyers-sharks/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5966118/2025/01/01/brighton-review-2024/
 **Wolves' 2024: O'Neil's exit, Cunha's class (and meltdown) and FA Cup collapse**\
 `Vitor Pereira's arrival has brought some much needed hope back to Molineux - something sorely missing for most of 2024`\
 https://nytimes.com/athletic/5987847/2025/01/01/wolves-2024-oneils-exit-cunhas-class-and-meltdown-and-fa-cup-collapse/
-
-**Manchester City's 2024: A fourth consecutive title, losing Rodri, and the low ebb of Guardiola era**\
-`A year of unprecedented highs followed by farcical lows`\
-https://nytimes.com/athletic/6000680/2025/01/01/manchester-city-2024-review/
-
-**Manchester United's 2024: FA Cup and derby winners, farewell Ten Hag, and the start of the Amorim era**\
-`Some good results and a seemingly positive change in the head coach role, but the year was a journey rather than a destination...`\
-https://nytimes.com/athletic/5940297/2025/01/01/manchester-united-2024-review/
 

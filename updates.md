@@ -1,3 +1,15 @@
+**Potentially serious Jared Spurgeon injury makes Wild win 'bittersweet': Takeaways**\
+`Spurgeon left the game after taking a slewfoot from Predators rookie Zach L'Heureux.`\
+https://nytimes.com/athletic/6030768/2025/01/01/wild-jared-spurgeon-injury-predators/
+
+**Russia Suspends Flow of Natural Gas to Europe Through Ukraine**\
+`The Russian energy giant Gazprom announced the move early Wednesday. Ukraine had refused to renew an agreement that allowed for the transit of Russian gas through its territory.`\
+https://nytimes.com/2025/01/01/world/europe/russia-ukraine-natural-gas-europe.html
+
+**Matvei Michkov or Macklin Celebrini for the Calder? Experts weigh in as Flyers best Sharks**\
+`The two forwards vying for the Calder Trophy faced off for the second and final time this season.`\
+https://nytimes.com/athletic/6030945/2025/01/01/calder-michkov-celebrini-flyers-sharks/
+
 **‘It Ends With Us’ Actor and Director and His Publicists Sue The Times for Libel**\
 `Justin Baldoni claims that The Times defamed him and his team in an article about the actress Blake Lively’s allegations that she had been the victim of a smear campaign.`\
 https://nytimes.com/2025/01/01/us/justin-baldoni-blake-lively-it-ends-with-us-new-york-times-lawsuit.html
