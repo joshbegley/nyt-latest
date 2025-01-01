@@ -1,3 +1,19 @@
+**A Mayor’s Odyssey: From Undocumented Migrant to Cartel Target**\
+`A former undocumented resident of California who now runs a town in Mexico, Crispín Agustín Mendoza has survived one assassination attempt. But he says, “I have to learn how to survive.”`\
+https://nytimes.com/2025/01/01/world/americas/mexico-mayor-cartels-deportations.html
+
+**Quote of the Day: Syria Refugees in Germany Fear Having to Leave Home Yet Again**\
+`Quotation of the Day for Wednesday, January 1, 2025.`\
+https://nytimes.com/2025/01/01/pageoneplus/quote-of-the-day-syria-refugees-in-germany-fear-having-to-leave-home-yet-again.html
+
+**Week 18 fantasy football rankings: Waivers, projections, starts, Ricky Pearsall, Ameer Abdullah**\
+`Jake Ciely helps you make sense of your lineup for the final time of 2024, ranking players and offering key insights for Week 18.`\
+https://nytimes.com/athletic/6030230/2025/01/01/week-18-fantasy-football-rankings-waivers-projections-starts-rikcy-pearsall-ameer-abdullah/
+
+**How an Old Laptop Is Transformed Into 9-Karat Gold Earrings   **\
+`After 1,000 years of making coins, Britain’s Royal Mint has a new focus: turning electronic waste into jewelry.`\
+https://nytimes.com/card/2025/01/01/business/uk-royal-mint-jewelry
+
 **Trump Says He Plans to Attend Carter’s Funeral**\
 `In wide-ranging remarks at a New Year’s Eve party at Mar-a-Lago, the president-elect also predicted that Mike Johnson would secure enough votes to be re-elected as House speaker.`\
 https://nytimes.com/2024/12/31/us/politics/trump-carter-funeral.html
