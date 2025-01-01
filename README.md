@@ -1,3 +1,7 @@
+**Why Did Ukraine Halt the Flow of Russia’s Natural Gas to Europe?**\
+`And why didn’t it cut off Russia’s natural gas earlier?`\
+https://nytimes.com/2025/01/01/world/europe/ukraine-russia-gas-europe-explained.html
+
 **The Briefing: Brentford 1 Arsenal 3 - Jesus scores again, Nwaneri's full debut and midfield balance**\
 `Amy Lawrence and Anantaajith Raghuraman analyse the main talking points from Arsenal's victory at Brentford`\
 https://nytimes.com/athletic/6017914/2025/01/01/brentford-arsenal-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/movies/dont-die-the-man-who-wants-to-live-forever
 **‘Like Something out of a Horror Movie’: Witnesses Describe French Quarter Carnage**\
 `A couple visiting from Mobile, Ala., saw the attacker veer his pickup onto Bourbon Street and slam into New Year’s revelers, undeterred by a ‘flimsy’ police barrier.`\
 https://nytimes.com/2025/01/01/us/witnesses-french-quarter-attack.html
-
-**Barcelona remain hopeful on Olmo registration despite missing La Liga deadline**\
-`Barcelona have not given up hope that Dani Olmo will be able to play for them in the second half of the season despite missing the January 1 deadline to register him with La Liga.`\
-https://nytimes.com/athletic/6029414/2025/01/01/barcelona-dani-olmo-registration-la-liga/
 
