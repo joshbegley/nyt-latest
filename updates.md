@@ -1,3 +1,7 @@
+**Potentially serious Jared Spurgeon injury makes Wild win 'bittersweet': Takeaways**\
+`Spurgeon left the game after getting slew-footed by Predators rookie Zach L'Heureux.`\
+https://nytimes.com/athletic/6030768/2025/01/01/wild-jared-spurgeon-injury-predators/
+
 **Optimism abounds in Blue Jackets' come-from-behind shootout win over Carolina**\
 `With the win, Columbus is just two points behind Ottawa, which currently holds the final wild-card playoff spot in the Eastern Conference.`\
 https://nytimes.com/athletic/6030951/2025/01/01/blue-jackets-win-shootout-over-carolina/
