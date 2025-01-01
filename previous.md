@@ -1,3 +1,7 @@
+**Who Were the People Killed in the New Orleans Attack on New Year’s?**\
+`This is what we have learned about a few of the 15 people who died when a man slammed a pickup into crowds on Bourbon Street.`\
+https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
+
 **Ohio State jumps to 34-8 halftime lead over No. 1 Oregon in Rose Bowl**\
 `Ohio State stormed out to a 34-point lead and led undefeated Oregon 34-8 at halftime of a Playoff quarterfinal at the Rose Bowl.`\
 https://nytimes.com/athletic/6032316/2025/01/01/ohio-state-oregon-rose-bowl-score-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6032059/2025/01/01/nfl-draft-2025-cam-skattebo-scou
 **What to Know About the Islamic State**\
 `The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
 https://nytimes.com/2025/01/01/world/middleeast/isis-islamic-state.html
-
-**The attack was the deadliest in the U.S. in more than a year.**\
-`Less than a month ago, New York State authorities charged Luigi Mangione with an act of terrorism in the killing of a health care executive in a shooting in Midtown Manhattan.`\
-https://nytimes.com/live/2025/01/01/us/new-orleans-vehicle-crash/terror-attacks
 

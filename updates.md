@@ -1,3 +1,7 @@
+**Who Were the People Killed in the New Orleans Attack on New Year’s?**\
+`This is what we have learned about a few of the 15 people who died when a man slammed a pickup into crowds on Bourbon Street.`\
+https://nytimes.com/2025/01/01/us/new-orleans-attack-victims.html
+
 **American Teenager Fighting for His Life After Ambush in Mexico Kills 3**\
 `Jason Peña, now 14, was shot in the head on a highway in the city of Durango, a family spokeswoman said. His father and uncle, both U.S. citizens, and a Mexican relative were also killed.`\
 https://nytimes.com/2025/01/01/world/americas/americans-killed-durango-mexico.html
