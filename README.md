@@ -1,3 +1,7 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears take a 10-game losing streak into their finale. The coaching search and the 2025 roster are now the focus. What's on your mind?`\
+https://nytimes.com/athletic/6030624/2025/01/01/bears-mailbag-questions-43/
+
 **Why the F.B.I. Is Investigating the Bourbon Street Attack as Terrorism**\
 `The F.B.I. defines international terrorism as violence inspired by foreign terrorist groups. Domestic terrorism is defined as violence meant to further ideological goals or intimidate civilians.`\
 https://nytimes.com/2025/01/01/us/new-orleans-truck-attack-terrorism-fbi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/us/french-quarter-tourist-attraction.html
 **The Acid Comedy of Thomas Schütte, the Man in the Mud**\
 `In a MoMA retrospective filled with humorous angst, the German sculptor offers a prime 2025 resolution: Don’t run from failure.`\
 https://nytimes.com/2025/01/01/arts/design/thomas-schutte-art-humor-moma-sculpture.html
-
-**How Do I Discourage My Remote Colleagues from Taking Secret Second Jobs?**\
-`The magazine’s Ethicist columnist on employees who pull double duty at different companies.`\
-https://nytimes.com/2025/01/01/magazine/remote-work-second-jobs-ethics.html
 
