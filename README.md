@@ -1,3 +1,7 @@
+**You read it here first: 22 predictions for the 2025 men's golf season**\
+`Scottie Scheffler remains the best golfer, but the honeymoon ends — and 21 other things that may or may not happen.`\
+https://nytimes.com/athletic/6030593/2025/01/01/22-predictions-2025-mens-golf-season/
+
 **The Battle Over What to Tell Americans About Drinking**\
 `Officials in other countries are warning about the health hazards of alcohol in any amount. Americans are still told that moderate drinking is safe. What gives?`\
 https://nytimes.com/2025/01/01/health/alcohol-dietary-guidelines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/crosswords/connections-companion-571.html
 **With three letters, Jalen Johnson is helping to mold Hawks' new identity**\
 `Atlanta is no longer just the Trae Young show on offense, and the guard has found a qualified co-star to orchestrate things.`\
 https://nytimes.com/athletic/6028892/2025/01/01/trae-young-jalen-johnson-hawks-offense/
-
-**Three Notre Dame keys and a prediction: Can Riley Leonard's legs beat Georgia?**\
-`Georgia's talent and Notre Dame's injuries present hurdles, but there's reason to believe the Irish can get over the hump Wednesday.`\
-https://nytimes.com/athletic/6030284/2025/01/01/notre-dame-georgia-sugar-bowl-prediction/
 
