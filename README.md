@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6032060/2025/01/01/packers-jaire-alexander-knee-inj
 `Bollards that normally protect pedestrians from vehicles were to be replaced as part of the city’s preparations for the Super Bowl next month. The attacker drove his pickup around a police vehicle parked to block traffic from the street he struck.`\
 https://nytimes.com/2025/01/01/us/new-orleans-attack-security-system-under-repair.html
 
-**Smoke Billows at Trump Hotel After Cybertruck Explosion**\
+**Cybertruck Explodes Outside Trump Hotel in Las Vegas**\
 `A Tesla Cybertruck exploded and caught fire outside the Trump International Hotel in Las Vegas on Wednesday, killing one person and wounding at least seven.`\
 https://nytimes.com/video/us/100000009904015/trump-hotel-tesla-fire.html
 
