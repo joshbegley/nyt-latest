@@ -1,3 +1,11 @@
+**Smoke Billows at Trump Hotel After Cybertruck Explosion**\
+`A Tesla Cybertruck exploded and caught fire outside the Trump International Hotel in Las Vegas on Wednesday, killing one person and wounding at least seven.`\
+https://nytimes.com/video/us/100000009904015/trump-hotel-tesla-fire.html
+
+**Deadly New Year’s Day Attack in New Orleans**\
+`At least 10 people were killed in the early hours of New Year’s Day when a man deliberately plowed a pickup truck into crowds on Bourbon Street.`\
+https://nytimes.com/video/us/100000009903732/new-orleans-truck-attack.html
+
 **Officials Trying to Determine if New Orleans Suspect Had Ties to Terrorist Groups**\
 `U.S. officials have warned that the conflict in Gaza and Lebanon could spill into the United States, most likely in the form of small radicalized groups acting on their own initiative or lone-wolf terrorists.`\
 https://nytimes.com/2025/01/01/us/politics/new-orleans-attack-terrorism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6031758/2025/01/01/patriots-drake-maye-rest-jerod-m
 **Thursday Briefing: An Attack in New Orleans**\
 `Plus, fitness goals beyond weight loss.`\
 https://nytimes.com/2025/01/01/briefing/new-orleans-russia-ukraine-pakistan-afghanistan.html
-
-**Backup QBs to start for Dolphins, Chiefs in key games for AFC wild card**\
-`The Dolphins need a win and the Broncos to lose to Wentz and the Chiefs to earn the AFC's final wild-card playoff spot.`\
-https://nytimes.com/athletic/6031714/2025/01/01/dolphins-snoop-huntley-chiefs-carson-wentz-broncos/
-
-**Bryce James, younger son of LeBron, commits to Arizona**\
-`Bryce James would be the second James kid to play college basketball in recent years, following Bronny James' one year at USC.`\
-https://nytimes.com/athletic/6031659/2025/01/01/bryce-james-lebron-arizona-college-basketball/
 
