@@ -1,3 +1,7 @@
+**What to Know About the Islamic State**\
+`The group whose flag was found after a New Orleans truck-ramming attack has never stopped orchestrating and inspiring acts of terror.`\
+https://nytimes.com/2025/01/01/world/middleeast/isis-islamic-state.html
+
 **McVay: Jimmy Garoppolo to start for Rams in Week 18, Stetson Bennett will be backup**\
 `Matthew Stafford will get the Week 18 matchup vs. the Seahawks off and some rest in front of the Rams' playoff game.`\
 https://nytimes.com/athletic/6031869/2025/01/01/rams-matthew-stafford-out-jimmy-garoppolo-starting-seahawks/
