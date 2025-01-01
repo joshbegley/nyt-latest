@@ -1,3 +1,15 @@
+**The Acid Comedy of Thomas Schütte, the Man in the Mud**\
+`In a MoMA retrospective filled with humorous angst, the German sculptor offers a prime 2025 resolution: Don’t run from failure.`\
+https://nytimes.com/2025/01/01/arts/design/thomas-schutte-art-humor-moma-sculpture.html
+
+**How Do I Discourage My Remote Colleagues from Taking Secret Second Jobs?**\
+`The magazine’s Ethicist columnist on employees who pull double duty at different companies.`\
+https://nytimes.com/2025/01/01/magazine/remote-work-second-jobs-ethics.html
+
+**Victim in Subway Shoving Suffered a Broken Skull and Other Injuries**\
+`The suspect, Kamel Hawkins, has been charged with attempted murder and was arraigned on Wednesday morning.`\
+https://nytimes.com/2025/01/01/nyregion/subway-shoving-victim-injuries.html
+
 **Partisan Judges and Public Disrespect**\
 `Readers discuss the plummeting respect for the judicial system. Also: Syria sanctions; religion and Democrats; medical uses of psychedelics.`\
 https://nytimes.com/2025/01/01/opinion/letters/partisan-judges-public-disrespect.html
