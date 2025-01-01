@@ -1,3 +1,7 @@
+**Rooney's Plymouth exit: Sinking morale, off-field criticism - and regret**\
+`Plymouth's executives wanted to back ex-England striker but his position became untenable`\
+https://nytimes.com/athletic/6030096/2025/01/01/wayne-rooney-plymouth-sack-inside-story/
+
 **USMNT defender Sands joins St Pauli on loan**\
 `German Bundesliga side St Pauli have signed defender James Sands on loan from New York City FC until the end of the 2024-25 season.`\
 https://nytimes.com/athletic/6031284/2025/01/01/usmnt-james-sands-st-pauli/
