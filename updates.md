@@ -1,3 +1,7 @@
+**Sirianni 'probably' resting Barkley despite being within shot of rushing record**\
+`Barkley will likely end his season 101 yards shy of breaking Eric Dickerson's single-season rushing record`\
+https://nytimes.com/athletic/6031553/2025/01/01/eagles-saquon-barkley-rest-rushing-record/
+
 **Anderson Cooper and Andy Cohen Dish About Their New Year’s Eve Show**\
 `The morning after the two were live on CNN, they talked about tequila shots, Diplo and Cohen’s dancing skills.`\
 https://nytimes.com/2025/01/01/arts/television/anderson-cooper-andy-cohen-nye-show.html
