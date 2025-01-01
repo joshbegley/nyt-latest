@@ -1,3 +1,7 @@
+**Blues improve to 3-0 in Winter Classics, making memories for themselves and fans**\
+`The Blues won their third Winter Classic 6-2 over the Blackhawks, following victories over Chicago in 2017 and Minnesota in 2022.`\
+https://nytimes.com/athletic/6030412/2024/12/31/blues-winter-classic-memories-fight/
+
 **China’s Leader Nods to Economic Challenges**\
 `In a New Year’s address, Xi Jinping made a rare acknowledgment of the flagging economy while reiterating the government’s growth targets.`\
 https://nytimes.com/2024/12/31/business/xi-jinping-china-economy.html

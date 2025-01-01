@@ -1,3 +1,7 @@
+**Blues improve to 3-0 in Winter Classics, making memories for themselves and fans**\
+`The Blues won their third Winter Classic 6-2 over the Blackhawks, following victories over Chicago in 2017 and Minnesota in 2022.`\
+https://nytimes.com/athletic/6030412/2024/12/31/blues-winter-classic-memories-fight/
+
 **China’s Leader Nods to Economic Challenges**\
 `In a New Year’s address, Xi Jinping made a rare acknowledgment of the flagging economy while reiterating the government’s growth targets.`\
 https://nytimes.com/2024/12/31/business/xi-jinping-china-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/12/31/us/politics/jimmy-carter-hostages.html
 **Dartmouth College Basketball Players Halt Effort to Unionize**\
 `The decision to withdraw the petition appeared to be an effort to preserve a favorable federal ruling that could have been in jeopardy under President-elect Donald J. Trump.`\
 https://nytimes.com/2024/12/31/us/dartmouth-basketball-unionize.html
-
-**Minutia minute: 49ers sticking with Jake Moody; Jauan Jennings brought the fire**\
-`Nick Bosa took all but 10 of his snaps against the Lions' Penei Sewell because he wanted to see how he matched up against the right tackle.`\
-https://nytimes.com/athletic/6030491/2024/12/31/49ers-jake-moody-jauan-jennings/
 
