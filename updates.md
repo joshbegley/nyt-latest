@@ -1,3 +1,7 @@
+**Davies, Marsch, World Cup prep: Canada looks for big 2025**\
+`Anticipation is the defining emotion for Canadian men's soccer heading into a new year`\
+https://nytimes.com/athletic/6029371/2025/01/01/alphonso-davies-jesse-marsch-canada-soccer-world-cup/
+
 **Zelensky Expresses Hope for 2025, but Russia Presses On With Attacks**\
 `In his New Year’s address, President Volodymyr Zelensky of Ukraine urged continued U.S. support.`\
 https://nytimes.com/2025/01/01/world/europe/ukraine-russia-war-zelensky.html
