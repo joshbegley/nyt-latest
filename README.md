@@ -1,3 +1,7 @@
+**How Penn State stuffed Ashton Jeanty, kept Playoff run rolling: Fiesta Bowl takeaways**\
+`Penn State pulled away from Boise State 31-14 in Tuesday's Fiesta Bowl, earning the first spot in the semifinals. Here's how it happened.`\
+https://nytimes.com/athletic/6030782/2024/12/31/penn-state-boise-state-fiesta-bowl-score/
+
 **Canada lacks discipline, USA's secondary scoring continues on New Year's Eve at World Juniors**\
 `The results of Canada-USA and Sweden-Czechia on Tuesday decided first place in the two groups.`\
 https://nytimes.com/athletic/6006903/2024/12/31/canada-usa-world-juniors-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6030613/2024/12/31/nhl-winter-classic-fowler-blues-
 **Michigan suddenly looks like it knows where it's going after upsets of Alabama, Ohio State**\
 `Michigan pulled off its second consecutive big upset in the ReliaQuest Bowl, taking down Alabama a month after stunning Ohio State.`\
 https://nytimes.com/athletic/6030632/2024/12/31/michigan-alabama-reliaquest-bowl-sherrone-moore/
-
-**Beamer never saw anything like Bielema's Citrus Bowl taunt 'in all my years of football'**\
-`Bielema said postgame he did the "T-bar" motion to "to the whole damn sideline" and not just Beamer.`\
-https://nytimes.com/athletic/6030612/2024/12/31/south-carolina-shane-beamer-illinois-bret-bielema-cheez-it-citrus-bowl/
 
