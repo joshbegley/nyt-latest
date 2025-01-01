@@ -1,3 +1,7 @@
+**What We Know About the Suspected Bombs Found in the New Orleans Attack**\
+`Possible homemade bombs were found in and near the pickup that smashed into crowds, and possibly elsewhere in the French Quarter. That has raised investigators’ suspicions that the attacker may have had accomplices.`\
+https://nytimes.com/2025/01/01/us/new-orleans-attack-suspected-bombs.html
+
 **Anthony Richardson details back injury struggles: 'I couldn't even stand up'**\
 `Richardson said that the back injury "might be chronic," but added there are ways to prevent the injury going forward. `\
 https://nytimes.com/athletic/6031698/2025/01/01/colts-anthony-richardson-back-injury-chronic/
