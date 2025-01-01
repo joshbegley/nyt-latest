@@ -1,3 +1,11 @@
+**Embracing the Joys of Solitude in the New Year**\
+`Being alone doesn’t mean you’re lonely.`\
+https://nytimes.com/2025/01/01/opinion/joy-solitude.html
+
+**My Two Best Friends Started Dating Each Other. I’m Livid!**\
+`Feeling slighted after a former flame paired up with an old friend she met through him, a middle-aged reader cut off contact with both. So why does he feel so bad?`\
+https://nytimes.com/2025/01/01/style/ex-new-relationship-with-friend.html
+
 **She’s a Famous Author With a Secret Identity. Now She’s Ready to Emerge.**\
 `In Kate Fagan’s novel, “The Three Lives of Cate Kay,” a best-selling writer decides to reveal the tragedy behind her success.`\
 https://nytimes.com/2025/01/01/books/review/the-three-lives-of-cate-kay-kate-fagan.html
@@ -29,12 +37,4 @@ https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/july-4-
 **May 3-4: The Eta Aquarids meteor shower will reach its peak.**\
 `By Katrina Miller`\
 https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/may-3-4-the-eta-aquarids-meteor-shower-will-reach-its-peak
-
-**April 21-22: The Lyrids meteor shower will reach its peak.**\
-`By Katrina Miller`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/april-21-22-the-lyrids-meteor-shower-will-reach-its-peak
-
-**Spring: The Axiom-4 mission may carry Indian, Polish and Hungarian astronauts to the International Space Station.**\
-`By Michael Roston`\
-https://nytimes.com/explain/2025/science/astronomy-space-calendar-events/spring-the-axiom-4-mission-may-carry-indian-polish-and-hungarian-astronauts-to-the-international-space-station
 
