@@ -1,3 +1,11 @@
+**Scenes From New Orleans After Attack on New Year’s Day**\
+`A man drove a pickup truck into the crowds on Bourbon Street early Wednesday morning, killing at least 10 people.`\
+https://nytimes.com/2025/01/01/us/new-orleans-vehicle-attack-photos.html
+
+**The French Quarter Is New Orleans’s Most Famous Tourist Attraction**\
+`The six-by-13 block area, on the curving bank of the Mississippi River, is known for vibrant festivals and parties that attract revelers from across the United States and abroad.`\
+https://nytimes.com/2025/01/01/us/french-quarter-tourist-attraction.html
+
 **Seko Fofana leaves Al Nassr to join Rennes**\
 `Ligue 1 side Rennes have completed the signing of midfielder Seko Fofana from Al Nassr.`\
 https://nytimes.com/athletic/6031456/2025/01/01/seko-fofana-al-nassr-transfer-rennes/
