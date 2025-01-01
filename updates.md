@@ -1,3 +1,7 @@
+**What relegation would cost Manchester United - Adidas cut, no player clauses, huge TV and prize money dips**\
+`Ruben Amorim says the prospect of United being relegated this season is real - here's why that would be a huge problem for the club`\
+https://nytimes.com/athletic/6029647/2025/01/01/manchester-united-relegated-cost/
+
 **Optimism abounds in Blue Jackets' come-from-behind shootout win over Hurricanes**\
 `With the win, Columbus is just 2 points behind Ottawa, which holds the final wild-card playoff spot in the Eastern Conference.`\
 https://nytimes.com/athletic/6030951/2025/01/01/blue-jackets-win-shootout-over-carolina/
