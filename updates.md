@@ -1,3 +1,7 @@
+**1 Dead After a Cybertruck Explodes Outside the Trump Hotel in Las Vegas**\
+`At least seven people were injured, the authorities said. Videos posted to social media appeared to show a vehicle engulfed in flames outside the lobby’s entrance.`\
+https://nytimes.com/2025/01/01/us/car-fire-trump-hotel-las-vegas.html
+
 **Backup QBs to start for Dolphins, Chiefs in key games for AFC wild card**\
 `The Dolphins need a win and the Broncos to lose to Wentz and the Chiefs to earn the AFC's final wild-card playoff spot.`\
 https://nytimes.com/athletic/6031714/2025/01/01/dolphins-snoop-huntley-chiefs-carson-wentz-broncos/
