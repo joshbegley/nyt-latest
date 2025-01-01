@@ -1,3 +1,7 @@
+**Chelsea's 2024 - Cole Palmer, ownership tensions, Maresca's impact... and Cole Palmer**\
+`Chelsea enjoyed a remarkable turnaround in 2024 - these are the highs and the lows of a remarkable 12 months`\
+https://nytimes.com/athletic/6016365/2025/01/01/chelsea-2024-review/
+
 **Why the injury-plagued Canucks looked limited in New Year's Eve loss: 3 takeaways**\
 `The defeat in Calgary dropped the Canucks below the Western Conference playoff bar for the time being.`\
 https://nytimes.com/athletic/6030880/2025/01/01/canucks-flames-score-takeaway-new-years/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6021619/2025/01/01/thomas-tuchel-first-day-england-
 `We didn't expect to write about flowery wallpapers in 2024. We did expect to write about Erik ten Hag, and Jurgen Klopp, and Lamine Yamal...`\
 https://nytimes.com/athletic/6029726/2025/01/01/athletic-best-work-2024-football-tennis-athletics/
 
-**Yohe's 10 observations: Erik Karlsson penalty leads to Detroit game-winner**\
+**Yohe's 10 observations: Erik Karlsson penalty leads to Detroit game winner**\
 `Drew O'Connor scored both Penguins goals to end his 32-game scoreless streak in a 4-2 loss to Detroit on Tuesday.`\
 https://nytimes.com/athletic/6028947/2025/01/01/penguins-karlsson-penalty-oconnor-red-wings/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6029195/2025/01/01/2025-players-to-watch-wsl-uwcl/
 **The player at each Premier League club who needs a move this transfer window**\
 `With the January transfer window open, we asked our writers which players, for various reasons, might be looking for a move.`\
 https://nytimes.com/athletic/6014938/2025/01/01/premier-league-transfer-players-needing-move/
-
-**A Mayor’s Odyssey: From Undocumented Migrant to Cartel Target**\
-`A former undocumented resident of California who now runs a town in Mexico, Crispín Agustín Mendoza has survived one assassination attempt. But he says, “I have to learn how to survive.”`\
-https://nytimes.com/2025/01/01/world/americas/mexico-mayor-cartels-deportations.html
 
