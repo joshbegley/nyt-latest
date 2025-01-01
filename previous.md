@@ -1,3 +1,7 @@
+**‘Don’t Die: The Man Who Wants to Live Forever’ Review: Matter Over Mind**\
+`A documentary tracks the tech entrepreneur Bryan Johnson’s efforts to follow a hyper-regimented body care system.`\
+https://nytimes.com/2025/01/01/movies/dont-die-the-man-who-wants-to-live-forever-review.html
+
 **‘Like Something out of a Horror Movie’: Witnesses Describe French Quarter Carnage**\
 `A couple visiting from Mobile, Ala., saw the attacker veer his pickup onto Bourbon Street and slam into New Year’s revelers, undeterred by a ‘flimsy’ police barrier.`\
 https://nytimes.com/2025/01/01/us/witnesses-french-quarter-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/01/01/us/new-orleans-vehicle-attack-photos.html
 **Seko Fofana leaves Al Nassr to join Rennes**\
 `Ligue 1 side Rennes have completed the signing of midfielder Seko Fofana from Al Nassr.`\
 https://nytimes.com/athletic/6031456/2025/01/01/seko-fofana-al-nassr-transfer-rennes/
-
-**A Street Security System in New Orleans Was Under Construction**\
-`The bollards that prevent traffic from entering some streets in the French Quarter, where a man drove a truck into crowds of people, were being replaced, according to a city website.`\
-https://nytimes.com/2025/01/01/us/new-orleans-security-bollards-construction-bourbon-street.html
 

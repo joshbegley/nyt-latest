@@ -1,3 +1,7 @@
+**‘Don’t Die: The Man Who Wants to Live Forever’ Review: Matter Over Mind**\
+`A documentary tracks the tech entrepreneur Bryan Johnson’s efforts to follow a hyper-regimented body care system.`\
+https://nytimes.com/2025/01/01/movies/dont-die-the-man-who-wants-to-live-forever-review.html
+
 **‘Like Something out of a Horror Movie’: Witnesses Describe French Quarter Carnage**\
 `A couple visiting from Mobile, Ala., saw the attacker veer his pickup onto Bourbon Street and slam into New Year’s revelers, undeterred by a ‘flimsy’ police barrier.`\
 https://nytimes.com/2025/01/01/us/witnesses-french-quarter-attack.html
