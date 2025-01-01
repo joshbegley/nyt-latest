@@ -1,3 +1,7 @@
+**Plymouth director of football Dewsnip to leave following Rooney sacking**\
+`Plymouth Argyle director of football Neil Dewsnip is set to leave his role at the club following head coach Wayne Rooney&#8217;s exit.`\
+https://nytimes.com/athletic/6031440/2025/01/01/neil-dewsnip-plymouth-exit/
+
 **Why Did Ukraine Halt the Flow of Russia’s Natural Gas to Europe?**\
 `And why didn’t it cut off Russia’s natural gas earlier?`\
 https://nytimes.com/2025/01/01/world/europe/ukraine-russia-gas-europe-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6031502/2025/01/01/wilds-jared-spurgeon-slew-foot-i
 **‘Don’t Die: The Man Who Wants to Live Forever’ Review: Matter Over Mind**\
 `A documentary tracks the tech entrepreneur Bryan Johnson’s efforts to follow a hyper-regimented body care system.`\
 https://nytimes.com/2025/01/01/movies/dont-die-the-man-who-wants-to-live-forever-review.html
-
-**‘Like Something out of a Horror Movie’: Witnesses Describe French Quarter Carnage**\
-`A couple visiting from Mobile, Ala., saw the attacker veer his pickup onto Bourbon Street and slam into New Year’s revelers, undeterred by a ‘flimsy’ police barrier.`\
-https://nytimes.com/2025/01/01/us/witnesses-french-quarter-attack.html
 

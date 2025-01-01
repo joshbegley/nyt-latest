@@ -1,3 +1,7 @@
+**Plymouth director of football Dewsnip to leave following Rooney sacking**\
+`Plymouth Argyle director of football Neil Dewsnip is set to leave his role at the club following head coach Wayne Rooney&#8217;s exit.`\
+https://nytimes.com/athletic/6031440/2025/01/01/neil-dewsnip-plymouth-exit/
+
 **Why Did Ukraine Halt the Flow of Russia’s Natural Gas to Europe?**\
 `And why didn’t it cut off Russia’s natural gas earlier?`\
 https://nytimes.com/2025/01/01/world/europe/ukraine-russia-gas-europe-explained.html
